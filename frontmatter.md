@@ -1621,5 +1621,285 @@ Dedicatio S. Michaëlis Archangeli
 Nativitas S. Joannis Baptistæ
 Festum S. Joseph, Sponsi B. Mariæ Virg., Conf.
 Solemnitas S. Joseph, Sponsi B. Mariæ Virg., Conf. et Ecclesiæ universalis Patroni
+Festum Ss. Petri et Pauli Apostolorum
+Festum Omnium Sanctorum
+Dedicatio Ecclesiæ propriæ, ejusque Anniversarium
+Dedicatio Ecclesiæ Cathedralis, ejusque Anniversarium
+Titulus propriæ Ecclesiæ
+Titulus Ecclesiæ Cathedralis
+Patroni principales Oppidi, vel Civitatis, Diœcesis, Provinciæ et Nationis
+Titularis et Sanctus Fundator Ordinis seu Congregationis
 
+### Duplex I Classis Secundarium
 
+Pretiosissimi Sanguinis D. N. J. C.
+
+### Duplicia II Classis Primaria
+
+Circumcisio Domini
+Transfiguratio Domini
+Dedicatio Archibasilicæ Ssmi Salvatoris
+Purificatio B. Mariæ Virg.
+Visitatio B. Mariæ Virg.
+Nativitas B. Mariæ Virg.
+Festum S. Andreæ Ap.
+» S. Thomæ Ap.
+» S. Joannis Ap. et Ev.
+» S. Matthiæ Ap.
+» Ss. Philippi et Jacobi App.
+» S. Jacobi Ap.
+Festum S. Bartholomæi Ap.
+» S. Matthæi Ap. et Ev.
+» Ss. Simonis et Judæ App.
+» S. Marci Ev.
+» S. Lucæ Ev.
+» S. Stephani Protomartyris
+» Ss. Innocentium Mm.
+» S. Annæ, Matris B. Mariæ Virg.
+» S. Laurentii Mart.
+» S. Joachim, Patris B. Mariæ Virg., Conf.
+
+### Duplicia II Classis Secundaria
+
+Festum Ssmi Nominis Jesu
+» Inventionis S. Crucis
+» septem Dolorum B. M. V. mense Septembri
+Festum Ssmi Rosarii B. M. V.
+» Maternitatis B. M. V.
+
+### Duplicia Majora Primaria
+
+Dies Octava cujuslibet Duplicis I classis Primarii
+Festum Sanctæ Familiæ Jesu, Mariæ, Joseph
+Dedicatio Basilicarum Ss. Petri et Pauli App.
+Dedicatio S. Mariæ ad Nives
+Præsentatio B. Mariæ Virginis
+Festum S. Gabrielis Archangeli
+» S. Raphaëlis Archangeli
+» Ss. Angelorum Custodum
+Decollatio S. Joannis Baptistæ
+Festum S. Petri Ap. ad Vincula
+» S. Barnabæ Ap.
+» S. Benedicti Abb.
+» S. Dominici Conf.
+» S. Francisci Assisiensis Conf.
+» S. Ignatii Conf.
+» S. Francisci Xaverii Conf.
+» Patronorum minus principalium
+
+### Duplicia Majora Secundaria
+
+Dies Octava cujuslibet Duplicis I classis Secundarii
+Exaltatio S. Crucis
+Apparitio B. Mariæ Virg. immaculatæ
+Festum septem Dolorum B. Mariæ Virg., tempore Passionis
+Commemoratio B. Mariæ Virg. de Monte Carmelo
+Festum Ssmi Nominis Mariæ
+Festum B. Mariæ Virg. de Mercede
+Apparitio S. Michaëlis Archangeli
+Cathedra S. Petri Ap. Romæ
+Cathedra S. Petri Ap. Antiochiæ
+Conversio S. Pauli Ap.
+Commemoratio S. Pauli Ap.
+Festum S. Joannis Ap. ante Portam Latinam
+
+### Alia Festa Primaria
+
+Dies Natalitia, vel quasi-Natalitia, cujuscumque Sancti.
+
+### Alia Festa Secundaria
+
+Impressio sacrorum Stigmatum sancti Francisci Conf.
+Inventio S. Stephani Protomartyris
+Festa sive Domini, sive B. Mariæ Virg. sub aliquo peculiari titulo, sive Sanctorum, præter eorumdem Natalem diem, uti Inventionis, Translationis, Patrocinii et hisce similia
+
+### Festa Feriata
+
+Dominicæ omnes
+Nativitas Domini
+Circumcisio
+Epiphania
+Feria II et III Paschatis
+Ascensio Domini
+Feria II et III Pentecostes
+Festum Sanctissimi Corporis Christi
+Inventio S. Crucis
+Conceptio immaculata B. M. V.
+Purificatio B. Mariæ Virg.
+Annuntiatio B. Mariæ Virg.
+Assumptio B. Mariæ Virg.
+Nativitas B. Mariæ Virg.
+Dedicatio S. Michaëlis Archangeli
+Nativitas S. Joannis Baptistæ
+Festum S. Joseph, Sponsi B. Mariæ Virg., Conf.
+Solemnitas S. Joseph, Sponsi B. Mariæ Virg., Conf. et Ecclesiæ universalis Patroni
+Festum S. Andreæ Ap.
+» S. Thomæ Ap.
+» S. Joannis Ap. et Ev.
+» S. Matthiæ Ap.
+» Ss. Philippi et Jacobi App.
+» Ss. Petri et Pauli App.
+» S. Jacobi Ap.
+» S. Bartholomæi Ap.
+» S. Matthæi Ap. et Ev.
+» Ss. Simonis et Judæ App.
+» S. Stephani Protomartyris
+» Ss. Innocentium Mm.
+» S. Annæ, Matris B. Mariæ Virg.
+Festum S. Laurentii Mart.
+» S. Joachim, Patris B. Mariæ Virg., Conf.
+» Omnium Sanctorum
+Festum Patronorum principalium Oppidi vel Civitatis, Diœcesis, Provinciæ et Nationis
+
+*Festum Feriatis æquiparatum*
+
+Festum Sacratissimi Cordis Jesu
+
+### Festa quæ cum Octava celebrantur
+
+alia gaudent Octava privilegiata, de qua semper fit aut Officium, aut saltem Commemoratio; alia Octava communi, de qua etiam Commemoratio quandoque omitti potest, juxta Rubricas; alia Octava simplici de qua fit tantum in die Octava.
+
+#### Octavæ Privilegiatæ
+
+de quibus semper fit aut Officium aut Commemoratio dividuntur in tres ordines:
+
+**Octavæ I Ordinis**
+
+quæ in occurrentia Festis quibuslibet præferuntur:
+
+Octava Paschatis | Octava Pentecostes
+
+**Octavæ II Ordinis**
+
+quæ in diebus infra Octavam Festis quibuslibet præferuntur præterquam Duplicibus I classis, in die autem Octava etiam Duplicibus I classis quæ non sint Ecclesiæ universalis:
+
+Octava Epiphaniæ Domini | Octava Ssmi Corporis Christi
+
+**Octavæ III Ordinis**
+
+quæ in occurrentia iisdem tantum Festis præferuntur atque Octavæ communes:
+
+Octava Nativitatis Domini | Octava Sacratissimi Cordis Jesu
+Octava Ascensionis Domini |
+
+#### Octavæ Communes
+
+quæ infra Octavam præferuntur tantum Officiis Simplicibus, et in die Octava omnibus Duplicibus quæ non sint I aut II classis:
+
+Octava Conceptionis immaculatæ B. Mariæ Virg. | Octava Solemnit. S. Joseph
+Octava Assumptionis ejusdem | Octava Ss. Petri et Pauli App.
+Octava Nativitatis S. Joannis Baptistæ | Octava Omnium Sanctorum
+| Octava Dedicationis et Tituli propriæ Ecclesiæ
+
+Octava Dedicationis et Tituli Ecclesiæ Cathedralis | Octava Tituli et Sancti Fundatoris Ordinis seu Congregationis
+Octava Patroni principalis Oppidi vel Civitatis, Diœcesis, Provinciæ et Nationis | Octavæ aliorum Festorum Duplicium I classis, quæ alicubi cum Octava celebrentur
+
+#### Octavæ Simplices
+
+quæ in die Octava Festis Simplicibus præferuntur et Officio Sanctæ Mariæ in Sabbato:
+
+Octava Nativitatis B. Mariæ Virg. | Octava Ss. Innocentium Mm.
+Octava S. Joannis Ap. et Ev. | Octava S. Laurentii Mart.
+Octava S. Stephani Protomartyris | Octavæ aliorum Festorum Duplicium II classis, quæ alicubi cum Octava celebrentur.
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Prima Tabella — Si occurrat eodem die...
+
+*(columnæ: 1 Duplex I classis; 2 Duplex II classis; 3 Dies Octava Communis; 4 Duplex majus; 5 Duplex minus; 6 Semiduplex; 7 Dies infra Oct. communem; 8 Vigilia; 9 Dies Octava Simplex; 10 Simplex)*
+
+| et... \ cum col. → | 1 | 2 | 3 | 4 | 5 | 6 | 7 | 8 | 9 | 10 |
+|---|---|---|---|---|---|---|---|---|---|---|
+| Dominica I classis | 6 | 6 | 4 | 4 | 4 | 4 | 4 | 0 | 4 | 4 |
+| Dominica II classis | 3 | 6 | 4 | 4 | 4 | 4 | 4 | 0 | 4 | 4 |
+| Dominica minor vel Vigilia Epiphaniæ | 3 | 3 | 4 | 4 | 4 | 4 | 4 | 0 | 4 | 4 |
+| Feria privileg., Vigilia I cl., vel dies infra Oct. I ord. | 6 | 6 | 0 | 4 | 4 | 4 | 0 | 2 | 0 | 4 |
+| Duplex I classis | 8 | 6 | 4 | 4 | 4 | 4 | 2 | 2 | 2 | 2 |
+| Duplex II classis | 5 | 8 | 4 | 4 | 4 | 4 | 2 | 4 | 4 | 4 |
+| Dies Octava II ordinis | 6 | 6 | 4 | 4 | 4 | 4 | 4 | 4 | 0 | 4 |
+| Dies Oct. Communis vel III ordinis | 3 | 3 | 7 | 4 | 4 | 4 | 4 | 4 | 4 | 4 |
+| Duplex majus | 3 | 3 | 3 | 7 | 4 | 4 | 4 | 4 | 4 | 4 |
+| Duplex minus | 3 | 3 | 3 | 3 | 7 | 4 | 4 | 4 | 4 | 4 |
+| Semiduplex | 3 | 3 | 3 | 3 | 3 | 7 | 4 | 4 | 4 | 4 |
+| Dies infra Octavam II ordinis | 3 | 6 | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 4 |
+| Dies infra Octavam III ordinis | 3 | 3 | 3 | 3 | 3 | 3 | 4 | 4 | 4 | 4 |
+| Dies infra Octavam communem | 1 | 1 | 3 | 3 | 3 | 3 | 7 | 4 | 4 | 4 |
+| Feria major non privilegiata | 3 | 3 | 3 | 3 | 3 | 3 | 3 | 2 | 4 | 4 |
+| Dies Octava simplex | 1 | 3 | 3 | 3 | 3 | 3 | 3 | 3 | 7 | 4 |
+| S. Maria in Sabbato | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 4 |
+
+**Legenda:**
+1. Officium de 1, nihil de 2.
+2. Officium de 2, nihil de 1.
+3. Officium de 1, com. de 2.
+4. Offi[c]ium de 2, com. de 1.
+5. Offic. de 1, translatio de 2.
+6. Offic. de 2, translatio de 1.
+7. Officium de nobiliori, commemoratio de alio.
+8. Officium de nobiliori, translatio de alio.
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Altera Tabella — Quando concurrit...
+
+*(columnæ: 1 Dominica; 2 Duplex I classis; 3 Duplex II classis; 4 Dies Octava privilegiata; 5 Dies Octava Communis; 6 Duplex majus; 7 Duplex minus; 8 Semiduplex; 9 Dies infra Octavam privilegiatam; 10 Dies infra Octavam communem)*
+
+| cum... \ col. → | 1 | 2 | 3 | 4 | 5 | 6 | 7 | 8 | 9 | 10 |
+|---|---|---|---|---|---|---|---|---|---|---|
+| Dominica vel Vigilia Epiphaniæ | 0 | 4 | 4 | 4 | 3 | 3 | 3 | 3 | 3 | 3 |
+| Duplici I classis | 3 | 5 | 3 | 3 | 1 | 1 | 1 | 1 | 3 | 1 |
+| Duplici II classis | 3 | 4 | 5 | 3 | 3 | 3 | 3 | 1 | 3 | 1 |
+| Die Octava Duplici majori | 4 | 4 | 4 | 4 | 5 | 3 | 3 | 3 | 3 | 3 |
+| Duplici majori | 4 | 4 | 4 | 4 | 4 | 5 | 3 | 3 | 3 | 3 |
+| Duplici minori | 4 | 4 | 4 | 4 | 4 | 4 | 5 | 3 | 3 | 3 |
+| Semiduplici | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 5 | 3 | 3 |
+| Die infra Octavam privilegiatam | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 0 | 0 |
+| Die infra Octavam communem | 4 | 2 | 2 | 4 | 4 | 4 | 4 | 4 | 0 | 0 |
+| S. Maria in Sabbato | 0 | 2 | 2 | 4 | 4 | 4 | 4 | 4 | 0 | 0 |
+| Die Octava vel Festo Simplici | 4 | 2 | 2 | 4 | 4 | 4 | 4 | 4 | 4 | 4 |
+
+**Legenda:**
+1. Totum de sequenti, nihil de præcedenti.
+2. Totum de præcedenti, nihil de sequenti.
+3. Totum de sequenti, Commemoratio de præcedenti.
+4. Totum de præcedenti, Commemoratio de sequenti.
+5. Totum de nobiliori, Commemoratio de alio; in paritate, a Capitulo de sequenti, Commemoratio de præcedenti.
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Notanda in Præcedentes Tabellas
+
+1. Quando in regulis alterutrius Tabellæ invenitur *Officium de Nobiliori,* vel *Totum de Nobiliori,* intelligi debet de illo ex duobus occurrentibus aut concurrentibus Festis vel Officiis, quod, ad normam tituli II præcedentium Rubricarum *De Festorum præstantia,* alteri præferri debeat.
+
+2. Dominicæ quævis assignationem perpetuam excludunt cujusvis Festi, excepta Dominica inter Circumcisionem et Epiphaniam, in qua fit Officium Ssmi Nominis Jesu; Dominica infra Octavam Epiphaniæ, in qua Festum agitur Sanctæ Familiæ Jesu, Mariæ, Joseph; Dominica I post Pentecosten, in qua celebratur Festum Ssmæ Trinitatis et Dominica ultima Octobris, in qua recolitur Festum D. N. Jesu Christi Regis.
+
+3. Vigiliæ communes, si in aliquam Dominicam inciderint, anticipantur Sabbato, juxta Rubricas, etiam sicubi a Duplici I classis occurrenti sua die perpetuo impeditæ fuerint; Vigiliæ vero privilegiatæ ipsa die Dominica celebrantur, ut propriis locis habetur.
+
+4. De Octavis quæ non sunt in Breviario Romano, nihil fit a die 17 ad 24 Decembris, a Feria IV Cinerum ad Dominicam in Albis, et a Vigilia Pentecostes ad Festum Ssmæ Trinitatis, semper inclusive.
+
+5. De quolibet Duplici majori vel minori aut Semiduplici, quod a Festo Duplici I classis primario Domini Ecclesiæ universalis impediatur, nihil fit; de Festo hujusmodi, a ceteris Duplicibus I classis impedito, nisi hoc fuerit Domini Festum in Dominica quavis aut in Vigilia Epiphaniæ occurrens, fit tantum Commemoratio ad Laudes.
+
+6. Item de die Octava Simplici vel Festo item Simplici ab occurrenti Duplici II classis impeditis, fit tantum ad Laudes, et insuper, de Festo, etiam ad Matutinum, si legi possit IX Lectio historica vel stricte propria.
+
+7. Festa tamen alicujus Nationis, Diœcesis, Ordinis, Instituti vel particularis Ecclesiæ propria, quæ in tota Natione, Diœcesi, Ordine vel Instituto aut in sua particulari Ecclesia perpetuo impediantur, si celebrentur sub ritu Duplici majori vel minori aut Semiduplici, reponuntur in proxima sequenti die, quæ libera sit a quolibet Officio Duplici, a Festo Semiduplici, a Vigiliis privilegiatis et ab Octavis II ordinis.
+
+8. Si duo Officia ejusdem Personæ eodem die occurrant, fit de nobiliori juxta Rubricas, et omittitur, nisi agatur de mysteriis Domini diversis, Commemoratio alterius. Idem servatur in concurrentia, et in paritate nobilitatis Vesperæ non dimidiantur, nisi pariter agatur de diversis Domini mysteriis, sed integræ dicuntur de præcedenti sine Commemoratione sequentis. Si tamen aliquod Festum Duplex majus aut minus vel Semiduplex vel Simplex occurrat infra aliquam Octavam communem ejusdem Personæ, vel in ipsa die Octava, etiam Simplici, Officium fit de Festo sub ritu et cum privilegiis ipsi Octavæ convenientibus, nisi illud sub altiori ritu sit celebrandum; et additur vel omittitur Commemoratio Octavæ, ut supra.
+
+9. Feria VI post Octavam Ascensionis in occurrentia et concurrentia, et Vigilia Pentecostes in concurrentia tantum, iisdem gaudent privilegiis ac dies infra Octavam communem; sed hæc illis præfertur.
+
+10. Festa Domini, et dies Octavæ item Domini quæ in universali Ecclesia sint privilegiatæ, in occurrentia accidentali et in concurrentia, Dominicæ minori præferuntur.
+
+11. De VII die infra aliquam Octavam nihil fit in II Vesperis, si die sequenti persolvendum sit Officium de die Octava; dicuntur autem integræ Vesperæ vel fit Commemoratio juxta Rubricas, si die sequenti nihil faciendum sit de die Octava, vel etiam si concurrens dies VII infra Octavam, juxta ordinem in titulo VII, num. 5, *De Commemorationibus,* præscriptum, præferri debeat diei Octavæ, in Officio nobiliori commemorandæ.
+
+12. Item nihil fit ad II Vesperas de Dominicis post Octavam Epiphaniæ vel Pentecostes, quæ Sabbato anticipari debuerint juxta Rubricas, quamvis Dominica sequens commemoranda tantum sit; eis tamen integra manent privilegia Dominicæ tam in occursu, quam in concursu ad I Vesperas.
+
+13. In Nativitate Domini et tribus sequentibus diebus, in Circumcisione, in Officio Ssmi Nominis Jesu, et in Epiphania ejusque die Octava, nulla fit Commemoratio de Dominica occurrenti, nec etiam, præterquam in II Vesperis sanctorum Innocentium et Epiphaniæ, et utrisque Vesperis diei Octavæ ejusdem, de Dominica concurrenti. Officium tamen Ssmi Nominis Jesu tam in occursu quam in concursu admittit Commemorationem de Vigilia Epiphaniæ. Circumcisio autem Domini præfertur in occurrentia cuilibet Festo, etiam Duplici I classis, et in concurrentia non admittit Commemorationem Officii præcedentis, quod non fuerit Duplex II classis. Dies vero Octava Corporis Christi cedit in occurrentia Festis Duplicibus I classis primariis Ecclesiæ universalis.
+
+14. Infra Octavam Nativitatis Domini, præterquam in Officio Circumcisionis, Vesperæ usque ad Capitulum dicuntur semper de Octava, sub ritu Officii in concurrentia nobilioris. A Capitulo autem ipsæ Vesperæ juxta normam consuetam fiunt de Officio ex concurrentibus nobiliori, exceptis II Vesperis S. Stephani Protomartyris, cum Commemoratione alterius, si hæc agenda sit juxta Rubricas; sed in paritate nobilitatis fiunt semper de Officio præcedenti, cum Commemoratione sequentis.
+
+15. De Feriis Adventus et Quadragesimæ, quando a nobiliori Officio impeditæ fuerint, semper fit Commemoratio ad Laudes et in Vesperis; de Feriis vero Quatuor Temporum et II Rogationum, fit ad Laudes tantum. Itemque ad Laudes tantum fit Commemoratio de Vigiliis communibus, quando agenda est, juxta superiorem tabellam. Et tam de Feria quam de Vigilia commemoratis, dummodo in eis idem atque in Officio currenti non habeatur Evangelium, dicitur IX Lectio de Homilia, præterquam de Feriis Adventus extra Quatuor Tempora.
+
+---

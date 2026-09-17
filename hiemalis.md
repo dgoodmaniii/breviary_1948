@@ -284,3 +284,223 @@ A vínculis, {RUBRIC: ut in III Nocturno Officii novem Lectionum.}
 **2 Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
 
 **3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Feriis, quando non legitur Homilia cum Evangelio, Feria II et V Benedictiones ut in I Nocturno, Feria III et VI ut in II Nocturno Officii novem Lectionum; Feria autem IV et Sabbato erit:}
+
+**1 Bened.** Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen.
+
+**2 Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Festis Sanctorum erit:}
+
+**1 Bened.** Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen.
+
+**2 Bened.** Cujus (*vel* Quorum *aut* Quarum) festum cólimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercédat (*vel* intercédant) pro nobis ad Dóminum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Officio de sancta María in Sabbato Absolutio et Benedictiones, quæ ibidem ponuntur.}
+
+{RUBRIC: Post ultimam Lectionem, in omnibus Dominicis per Annum minoribus, etiam repositis vel anticipatis, in Vigilia Epiphaniæ, in Festis cujusvis ritus, excepto tamen sanctorum Innocentium Festo, nisi hoc in Dominicam incidat, aut ritu gaudeat duplici I classis, per omnes Octavas, et in Officio sanctæ Mariæ in Sabbato, dicitur Hymnus Ambrosianus. In Adventu autem, et a Dominica Septuagesimæ usque ad Sabbatum post Dominicam Quinquagesimæ inclusive, non dicitur nisi in Festis. Alio Tempore numquam dicitur in feriali Officio. Quando vero Hymnus prædictus omittitur, ejus loco dicitur IX aut III Responsorium.}
+
+##### Hymnus Ambrosianus
+
+TE Deum laudámus: \* te Dóminum confitémur.
+
+Teætérnum Patrem \* omnis terra venerátur.
+
+Tibi omnes Angeli, \* tibi Cæli, et univérsæ Potestátes:
+
+Tibi Chérubim et Séraphim \* incessábili voce proclámant:
+
+Sanctus, \* Sanctus, \* Sanctus \* Dóminus, Deus Sábaoth.
+
+Pleni sunt cæli et terra \* majestátis glóriæ tuæ.
+
+Te gloriósus \* Apostolórum chorus,
+
+Te Prophetárum \* laudábilis númerus,
+
+Te Mártyrum candidátus \* laudat exércitus.
+
+Te per orbem terrárum \* sancta confitétur Ecclésia,
+
+Patrem \* imménsæ majestátis;
+
+Venerándum tuum verum \* et únicum Fílium;
+
+Sanctum quoque \* Paráclitum Spíritum.
+
+Tu Rex glóriæ,\* Christe.
+
+Tu Patris \* sempitérnus es Fílius.
+
+Tu, ad liberándum susceptúrus hóminem, \* non horruísti Vírginis úterum.
+
+Tu, devícto mortis acúleo, \* aperuísti credéntibus regna cælórum.
+
+Tu ad déxteram Dei sedes, \* in glória Patris.
+
+Judex créderis \* esse ventúrus.
+
+{RUBRIC: Sequens versus dicitur flexis genibus.}
+
+Te ergo quæsumus, tuis fámulis súbveni, \* quos pretióso sánguine redemísti.
+
+Ætérna fac cum Sanctis tuis \* in glória numerári.
+
+Salvum fac pópulum tuum, Dómine, \* et bénedic hereditáti tuæ.
+
+Et rege eos, \* et extólle illos usque in ætérnum.
+
+Per síngulos dies \* benedícimus te;
+
+Et laudámus nomen tuum in séculum, \* et in séculum séculi.
+
+Dignáre, Dómine, die isto \* sine peccáto nos custodíre.
+
+Miserére nostri, Dómine, \* miserére nostri.
+
+Fiat misericórdia tua, Dómine, super nos, \* quemádmodum sperávimus in te.
+
+In te, Dómine, sperávi: \* non confúndar in ætérnum.
+
+{RUBRIC: Dicto Te Deum, aut ultimo Responsorio, statim incipiuntur Laudes a Versu Deus, in adjutórium, ut infra.}
+
+{RUBRIC: In privata vero recitatione Matutinum a Laudibus separari potest; quo in casu, post Hymnum Te Deum, vel post ultimum Responsorium, dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+{RUBRIC: Hic Versus Dóminus vobíscum non dicitur ab eo, qui non est saltem in ordine Diaconatus; sed ejus loco substituitur, etiam in aliis Horis, quoties in antecedentibus Precibus dictus non fuerit:}
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+Orémus.
+
+{RUBRIC: Et dicitur Oratio ut ad Laudes.}
+
+{RUBRIC: Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur Pater noster totum secreto.}
+
+{RUBRIC: In publica vero recitatione Matutinum in Choro a Laudibus separari non potest.}
+
+---
+
+<!-- p. 10 -->
+## Ad Laudes
+
+{RUBRIC: Si Laudes extra Chorum separentur a Matutino, ante eas dicitur secreto Pater noster et Ave María; secus absolute incipiuntur, ut sequitur:}
+
+℣. Deus in adjutórium.
+
+{RUBRIC: Deinde, sub congruentibus Antiphonis, dicuntur Psalmi et Cánticum, prouti Officium occurrens requirit.}
+
+{RUBRIC: Repetita vero post ultimum Psalmum Antiphona, dicuntur Capitulum, Hymnus et Versus, prouti Officium occurrens exigit.}
+
+#### Per Annum
+
+{RUBRIC: In Officio dominicali: In Dominicis Septuagesimæ, Sexagesimæ et Quinquagesimæ, Capitulum ut in Proprio de Tempore, Hymnus et Versus ut in Psalterio.}
+
+{RUBRIC: In Dominicis per Annum minoribus, extra Octavam Nativitatis, Capitulum, Hymnus et Versus ut in Psalterio.}
+
+{RUBRIC: In Officio feriali: In omnibus per Annum Feriis, et a Feria IV Cinerum usque ad Sabbatum sequens inclusive, Capitulum, Hymnus et Versus de Feria currenti, ut in Psalterio.}
+
+#### Tempore Adventus
+
+{RUBRIC: In Officio dominicali, atque in Vigilia Nativitatis Domini, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio autem feriali, usque ad ultimam Feriam ante Vigiliam Nativitatis Domini inclusive, dicitur quotidie sequens}
+
+**Capitulum** *Is. 2, 3*
+
+VENITE, et ascendámus ad montem Dómini, et ad domum Dei Jacob, et docébit nos vias suas, et ambulábimus in sémitis ejus: quia de Sion exíbit lex, et verbum Dómini de Jerúsalem. ℟. Deo grátias.
+
+{RUBRIC: Sic respondetur in fine omnium Capitulorum.}
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens Hymnus et Versus:}
+
+##### Hymnus
+
+EN, clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En, Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam:
+
+Ut, cum secúndo fúlserit
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula.
+Amen.
+
+---
+
+<!-- p. 11 -->
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+{RUBRIC: Recitato Versu, dicitur cum Antiphona convenienti sequens}
+
+##### Canticum Zachariæ
+
+*Luc. 1, 68-69*
+
+BENEDICTUS † Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a século sunt, Prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+Glória Patri, et Fílio, \* et Spirítui Sancto.
+
+Sicut erat in princípio, et nunc, et semper, \* et in sécula seculórum. Amen.
+
+{RUBRIC: Hic Versus Glória Patri dicitur in fine omnium Canticorum, nisi aliter adnotetur.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, si Preces non fuerint recitandæ, statim dicitur Versus Dóminus vobíscum cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}
+
+{RUBRIC: In Feriis vero Adventus, Quadragesimæ a die Cinerum, atque in omnibus Vigiliis præter quam Nativitatis Domini et Epiphaniæ, si fiat Officium de Feria aut Vigilia currenti, et quamvis in eo peragenda sit Commemoratio Duplicis aut Semiduplicis ad instar Simplicis redacti, post repetitam ad Benedictus Antiphonam dicuntur flexis genibus sequentes Preces quæ aliis temporibus omittuntur:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Pater noster, quod dicitur a solo Hebdomadario}

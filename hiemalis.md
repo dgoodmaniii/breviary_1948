@@ -740,4 +740,99 @@ DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæ
 
 **Lectio br.** *2 Thess. 3, 5*
 
-DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et pa-
+DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia Christi. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+{RUBRIC: Ita semper concluduntur Lectiones breves ad Primam, et ita in earum fine respondetur.}
+
+{RUBRIC: A Dominica I Adventus usque ad ultimam diem ante Vigiliam Nativitatis Domini inclusive:}
+
+**Lectio brevis** *Is. 33, 2*
+
+DOMINE, miserére nostri: te enim exspectávimus: esto bráchium nostrum in mane, et salus nostra in témpore tribulatiónis. Tu autem.
+
+{RUBRIC: In Officio autem cujuslibet Festi vel Octavæ, atque sanctæ Mariæ in Sabbato; itemque in Vigiliis Nativitatis Domini et Epiphaniæ, in Dominica, etiam translata, infra Octavam Nativitatis, si de eis fiat Officium:}
+
+{RUBRIC: Pro Lectione brevi sumitur Capitulum, quod ad Nonam ponitur ipsius Officii currentis, et in fine dicitur: Tu autem, Dómine, ut supra.}
+
+{RUBRIC: Post Lectionem brevem dicitur:}
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Bened.** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+---
+
+<!-- p. 20 -->
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor,
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: Expleto Hymno, convéniens dicitur Antiphona usque ad Asteriscum \*, et tres Psalmi, prouti Officium occurrens requirit; atque Psalmis absolutis, integra repetitur Antiphona.}
+
+#### Per Annum
+
+{RUBRIC: In Officio dominicali: In Dominicis Septuagesimæ, Sexagesimæ et Quinquagesimæ, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Dominicis per Annum minoribus, extra Octavam Nativitatis, Antiphona ut in Psalterio, et dicitur sequens}
+
+**Capitulum** *1 Joann. 4, 16*
+
+DEUS cáritas est: et qui manet in caritáte, in Deo manet, et Deus in eo.
+
+{RUBRIC: In omnibus vero Dominicis superius indicatis, dicitur sequens}
+
+℟. br. Inclína cor meum, Deus, \* In testimónia tua. Inclína. ℣. Avérte óculos meos, ne vídeant vanitátem: in via tua vivífica me. In testimónia tua. Glória Patri. Inclína. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi.
+
+{RUBRIC: In Officio feriali: In omnibus per Annum Feriis, et a Feria IV Cinerum usque ad Sabbatum sequens inclusive, Antiphona de Feria currenti, ut in Psalterio; et dicitur quotidie sequens}
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+#### Tempore Adventus
+
+{RUBRIC: In Officio dominicali, Antiphona secunda de Laudibus Dominicæ currentis, et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali, Antiphona secunda de Laudibus antecedentis Dominicæ, et in sex Feriis ante Vigiliam Nativitatis Domini ex Laudibus Feriæ currentis, ut in Proprio de Tempore; et dicitur quotidie sequens}
+
+**Capitulum** *Jer. 23, 5*
+
+ECCE, dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit: et fáciet judícium et justítiam in terra.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+{RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus Dóminus vobíscum cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}
+
+{RUBRIC: Quando vero ad Laudes recitatæ sunt Preces, post Responsorium breve dicuntur sequentes flexis genibus:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indú-

@@ -3264,3 +3264,117 @@ Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
 Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in séculum séculi.
 
 **Ant.** Magna ópera Dómini: exquisíta in omnes voluntátes ejus.
+
+### Psalmus 111
+
+BEATUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in séculum séculi.
+
+Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício: \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus: \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus: justítia ejus manet in séculum séculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
+
+**Ant.** Qui timet Dóminum, in mandátis ejus cupit nimis.
+
+**Ant.** Sit nomen Dómini.
+
+### Psalmus 112
+
+LAUDATE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in séculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Sit nomen Dómini benedíctum in sécula.
+
+**Ant.** Deus autem noster.
+
+### Psalmus 113
+
+IN éxitu Israël de Ægýpto, \* domus Jacob de pópulo bárbaro:
+
+Facta est Judǽa sanctificátio ejus, \* Israël potéstas ejus.
+
+Mare vidit, et fugit: \* Jordánis convérsus est retrórsum.
+
+Montes exsultavérunt ut aríetes, \* et colles sicut agni óvium.
+
+Quid est tibi, mare, quod fugísti: \* et tu, Jordánis, quia convérsus es retrórsum?
+
+Montes, exsultástis sicut aríetes, \* et colles, sicut agni óvium?
+
+A fácie Dómini mota est terra, \* a fácie Dei Jacob.
+
+Qui convértit petram in stagna aquárum, \* et rupem in fontes aquárum.
+
+Non nobis, Dómine, non nobis: \* sed nómini tuo da glóriam.
+
+Super misericórdia tua, et veritáte tua: \* nequándo dicant gentes: Ubi est Deus eórum?
+
+Deus autem noster in cælo: \* ómnia quæcúmque vóluit, fecit.
+
+Simulácra géntium argéntum, et aurum, \* ópera mánuum hóminum.
+
+Os habent, et non loquéntur: \* óculos habent, et non vidébunt.
+
+Aures habent, et non áudient: \* nares habent, et non odorábunt.
+
+Manus habent, et non palpábunt: pedes habent, et non ambulábunt: \* non clamábunt in gútture suo.
+
+Símiles illis fiant qui fáciunt ea: \* et omnes qui confídunt in eis.
+
+Domus Israël sperávit in Dómino: \* adjútor eórum et protéctor eórum est.
+
+Domus Aaron sperávit in Dómino: \* adjútor eórum et protéctor eórum est.
+
+Qui timent Dóminum, speravérunt in Dómino: \* adjútor eórum et protéctor eórum est.
+
+Dóminus memor fuit nostri: \* et benedíxit nobis:
+
+Benedíxit dómui Israël: \* benedíxit dómui Aaron.
+
+Benedíxit ómnibus, qui timent Dóminum, \* pusíllis cum majóribus.
+
+Adjíciat Dóminus super vos: \* super vos, et super fílios vestros.
+
+Benedícti vos a Dómino, \* qui fecit cælum, et terram.
+
+Cælum cæli Dómino: \* terram autem dedit fíliis hóminum.
+
+Non mórtui laudábunt te, Dómine: \* neque omnes, qui descéndunt in inférnum.
+
+Sed nos qui vívimus, benedícimus Dómino, \* ex hoc nunc et usque in séculum.
+
+#### Per Annum
+
+**Ant.** Deus autem noster in cælo: ómnia quæcúmque vóluit, fecit.
+
+#### In Adventu
+
+{RUBRIC: Capitulum, Hymnus et Versus ut in Proprio de Tempore.}
+
+#### Per Annum
+
+{RUBRIC: In Dominicis Septuagesimæ, Sexagesimæ et Quinqua-

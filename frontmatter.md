@@ -892,4 +892,133 @@ N° 28 B. — H. *c*
 
 —»o«—
 
+---
+
+<!-- p. [unnumbered; section-opening page] -->
+# Rubricae Generales Breviarii
+
+### Juxta Editionem Typicam Anni Jubilæi 1900
+
+Officium quotidie fit aut Duplex, aut Semiduplex, aut Simplex.
+
+#### I De Officio Duplici
+
+1. OFFICIUM fit Duplex in diebus a Feria quinta in Cœna Domini usque ad Feriam tertiam Paschæ inclusive, in Dominica in Albis, in Ascensione Domini, in Dominica Pentecostes, et duobus diebus sequentibus: in Festo Trinitatis, Corporis Christi, et Dedicationis propriæ Ecclesiæ: in Festis, quibus in Kalendario apponitur hæc vox, **Duplex**: in die octava Festi habentis Octavam: in Festo Patroni unius vel plurium alicujus loci, vel Titularis Ecclesiæ; et in Festis Sanctorum, qui apud quasdam Ecclesias, Religiones, vel Congregationes consueverunt solemniter celebrari, cum Officiis propriis a Sede Apostolica approbatis, aut ex ejusdem Sedis auctoritate receptis, vel recipiendis (servata tamen forma hujus Breviarii) alioquin de Communi, etiamsi prædicta Festa in hoc Kalendario non sint descripta. Præterea Officium fit Duplex pro Defunctis in Commemoratione omnium fidelium Defunctorum, et in die obitus, seu depositionis Defuncti, ut in eodem Officio dicitur, circa finem Breviarii.
+
+2. Festum Duplex celebratur aut de eodem fit Commemoratio eo die quo cadit, nisi illud contingat transferri aut penitus omitti, ut dicetur in Rubrica de Translatione Festorum.
+
+3. Habet primas et secundas Vesperas integras, nisi cum alio simili concurrat, ut dicetur in Rubrica de Concurrentia Officii, et totum Officium fit de Duplici, incipiendo a primis Vesperis, usque ad Completorium sequentis diei inclusive: nisi aliter in propriis locis assignetur. Officium autem Defunctorum habet tantum primas Vesperas, Matutinum et Laudes, ut circa finem Breviarii ponitur.
+
+4. In utrisque Vesperis, Matutino et Laudibus tantum, non autem in aliis Horis, duplicantur Antiphonæ, id est, integræ dicuntur in principio et in fine Psalmorum.
+
+5. Ad Matutinum regulariter dicuntur tres Nocturni, cum novem Psalmis, et totidem Lectionibus, hoc est, in unoquoque Nocturno tres Psalmi, et tres Lectiones, præterquam in Paschate Resurrectionis et Pentecoste cum duobus sequentibus diebus, in quibus dicitur unum tantum Nocturnum cum tribus Psalmis, et totidem Lectionibus, ut ibidem ponitur.
+
+6. Preces ad Primam et Completorium, et Suffragia de sancta Maria, sancto Joseph, Apostolis, Titulo, et Pace ad Vesperas et Laudes non dicuntur in Officio Duplici, ut etiam in propriis eorum Rubricis dicetur.
+
+7. Quomodo sit ordinandum Officium Duplex in Vesperis, Matutino et ceteris Horis: similiter et de Antiphonis, Responsoriis, Versibus, Capitulis et aliis in eo dicendis, habentur inferius de singulis propriæ Rubricæ.
+
+#### II De Officio Semiduplici
+
+1. Officium fit Semiduplex diebus Dominicis (excepta Dominica in Albis, in qua fit Duplex): et diebus infra Octavas: item in Festis, quibus in Kalendario ponitur hæc vox, **Semiduplex**, et in Festis propriis quorumdam locorum, seu Congregationum, quæ solemnius apud illas, quam Simplicia, consueverunt celebrari.
+
+2. De Festo Semiduplici fit eo die quo cadit, aut de illo ponitur Commemoratio, vel penitus omittitur, ut dicetur in Rubrica de Translatione Festorum.
+
+3. Habet totum Officium integrum, sicut Duplex, sed non duplicantur Antiphonæ.
+
+4. Ad Matutinum dicuntur tres Nocturni, præterquam infra Octavas Paschæ et Pentecostes, in quibus dicitur unum Nocturnum cum tribus Psalmis et totidem Lectionibus. Et regulariter quando dicuntur tres Nocturni, dicuntur novem Psalmi et totidem Lectiones; exceptis iis Dominicis, in quibus fit Officium ut in Psalterio, quæ habent xviii Psalmos, ut ibi.
+
+5. Quomodo sit ordinandum Officium Semiduplex tam in Festis, quam in Dominicis et infra Octavas, item et de Antiphonis, Versibus, Responsoriis et hujusmodi aliis, et quando in Semiduplici dicantur Preces ad Primam et Completorium, et Suffragia de Sanctis ad Vesperas et Laudes, habentur inferius de singulis propriæ Rubricæ.
+
+#### III De Officio Simplici
+
+1. Officium fit Simplex in diebus ferialibus, quando occurrit fieri de Feria: item in Festis, quibus in Kalendario non apponitur hæc vox, Duplex vel Semiduplex, vel de Octava: item quando fit de beata Maria in Sabbato, ut in ejus Rubrica dicetur.
+
+2. De Festo Simplici fit eo die quo cadit; nisi eodem die occurrat fieri Officium novem Lectionum, vel de sancta Maria in Sabbato, vel de aliquibus Feriis, quibus Festum Simplex cedit, ut dicetur in Rubricis de Feriis et de Commemorationibus.
+
+3. Habet tantum primas Vesperas, in quibus dicuntur Psalmi Feriales, et a Capitulo fit de Festo, nisi cum eo concurrat Officium novem Lectionum, quia tunc de eo fit sola Commemoratio, ut dicetur in Rubrica de concurrentia Officii: et ejus Officium terminatur ad Nonam, et nihil amplius fit de eo, nec Commemoratio.
+
+4. Ad Matutinum post Invitatorium et Hymnum de Festo, dicitur unum tantum Nocturnum cum duodecim Psalmis, ut in Psalterio, secundum Feriam quæ occurrit; et tres Lectiones leguntur, ut infra in Rubrica de Lectionibus habetur.
+
+5. Quomodo sit ordinandum Officium Simplex ad Vesperas, Matutinum et alias Horas; item et de Antiphonis, Versibus, Responsoriis et aliis, ac quando Preces, et Suffragia de Sanctis dicenda sint, habentur inferius propriæ Rubricæ.
+
+#### IV De Dominicis
+
+1. De Dominica semper fit Officium in Dominicis Adventus, et in Dominicis a Septuagesima usque ad Dominicam in Albis inclusive, quocumque Festo Duplici, vel Semiduplici adveniente: quia tunc Festum transfertur, aut de eo fit Commemoratio aut penitus omittitur (ut in Rubrica de Translatione Festorum dicetur), nisi illud Festum sit Duplex primæ classis; quia tunc fit tantum de hujusmodi Festo, cum Commemoratione Dominicæ; quibusdam Dominicis exceptis, ut dicetur in Rubrica de Commemorationibus. In aliis Dominicis per annum fit de Dominica, quando in eis non occurrit Festum Duplex; quia tunc fit de Duplici cum Commemoratione Dominicæ in utrisque Vesperis et Laudibus, et ad Matutinum legitur nona Lectio de Homilia Dominicæ, ut dicetur in Rubrica de Commemorationibus. Si Semiduplex eodem die occurrat, de eo fit Commemoratio, ut pariter dicetur in Rubrica de Commemorationibus.
+
+2. De Dominica infra Octavas Nativitatis, Epiphaniæ, Ascensionis et Corporis Christi occurrenti, Officium fit sicut infra Octavam, et in Proprio de Tempore, cum Commemoratione Octavæ et sine Precibus et Suffragiis Sanctorum. In Dominicis vero, quæ occurrunt infra alias Octavas, totum Officium fit de Dominica, ut in Psalterio et in Proprio de Tempore, cum Commemoratione Octavæ, omissis etiam dictis Precibus et Suffragiis, ut supra. De Dominica occurrente in die Octava fit Commemoratio, sicut dictum est, quando in ea fit de Festo Duplici, præterquam in die Octava Epiphaniæ, in qua nihil fit de Dominica, quia ejus Officium ponitur in Sabbato præcedenti.
+
+3. Positum est autem Officium sex Dominicarum post Epiphaniam, et vigintiquatuor post Pentecosten, ut compleatur numerus triginta Dominicarum, quæ esse possunt ab Epiphania usque ad Septuagesimam, et a Pentecoste usque ad Adventum; ne ulla ex his Dominicis vacet, quin saltem de ea fit Commemoratio. Nam quæ aliquando supersunt post Epiphaniam ante Septuagesimam, ponuntur post xxiii a Pentecoste, hoc ordine:
+
+4. Si Dominicæ post Pentecosten fuerint xxv, Dominica xxiv post Pentecosten erit quæ est vi post Epiphaniam. Si fuerint xxvi, Dominica xxiv erit quæ est v; et xxv quæ est vi. Si fuerint xxvii, Dominica xxiv erit quæ est iv; et xxv quæ est v, et xxvi erit vi. Si fuerint xxviii, Dominica xxiv erit iii, et xxv erit iv, et xxvi erit v, et xxvii erit vi; et ultimo loco semper ponitur, quæ in ordine est xxiv post Pentecosten, etiamsi post Pentecosten aliquando non sint nisi xxiii Dominicæ. Tunc enim xxiv ponitur loco xxiii, et Officium xxiii ponitur in præcedenti Sabbato, quod non sit impeditum Festo novem Lectionum; alioquin in alia præcedenti die similiter non impedita, in qua fiat Officium de Feria, cum Commemoratione Festi Simplicis, si occurrat; et in ea legantur tres Lectiones de Homilia Dominicæ, omissis Lectionibus Scripturæ illius Feriæ: et in Laudibus dicatur Antiphona ad Benedictus, et Oratio de Dominica xxiii. Quod si tota Hebdomada impedita sit Festis novem Lectionum, etiam translatis, vel aliqua Octava, tunc in Sabbato legatur nona Lectio de Homilia Dominicæ xxiii, et de ea fiat Commemoratio in Laudibus tantum, cum Antiphona et Oratione propria.
+
+5. Cum vero interdum contingat, ut Dominica tertia, vel quarta, vel quinta, vel sexta post Epiphaniam supersit, nec possit poni etiam post xxiii a Pentecoste, tunc de ea fit Officium in Sabbato ante Dominicam Septuagesimæ, ut dictum est supra, numero præcedenti.
+
+6. De Dominica secunda post Epiphaniam, quando Septuagesima venerit immediate post Octavam Epiphaniæ, quomodo agendum sit Officium, habetur in propria Rubrica ante Dominicam primam post Epiphaniam.
+
+7. Cum autem in Proprio de Tempore dicitur aliqua Dominica esse prima mensis, in qua primo ponitur initium libri de Scriptura cum sua historia, id est, cum Responsoriis, animadvertendum est, eam dici primam Dominicam mensis, quæ venit in Kalendis illius mensis, vel est proximior Kalendis, hoc modo. Si Kalendæ venerint in secunda, et tertia, et quarta Feria, Dominica prima mensis erit quæ præcedit Kalendas, licet veniat in præcedenti mense: si autem Kalendæ venerint in quinta, et sexta Feria et in Sabbato, prima Dominica erit quæ sequitur post ipsas Kalendas. Dominica autem prima Adventus non sumitur ea, quæ est proximior Kalendis Decembris, sed Festo sancti Andreæ, vel quæ venerit in ipso Festo.
+
+8. Officium Dominicæ fit Semiduplex, et incipit a primis Vesperis in Sabbato: et habet totum Officium integrum usque ad Completorium Dominicæ inclusive, nisi cum aliquo concurrat, ut dicetur in Rubrica de Concurrentia Officii.
+
+9. Ad Matutinum dicuntur tres Nocturni cum Psalmis, ut in Psalterio, et leguntur novem Lectiones, ut in Proprio de Tempore.
+
+10. Quomodo autem sit ordinandum ejus Officium, insuper et de Lectionibus, Responsoriis et aliis, et quomodo initia librorum Scripturæ cum sua historia sint ponenda, habentur de singulis inferius propriæ Rubricæ.
+
+#### V De Feriis
+
+1. Officium Feriale, hoc est, Simplex de Tempore occurrenti, prout in Psalterio et Proprio de Tempore habetur, fit semper in Feriis Adventus, Quadragesimæ, Quatuor Temporum, Vigiliarum, et in Feria secunda Rogationum, quando infra Hebdomadam non occurrit Festum Duplex, vel Semiduplex, vel de Octava: quia tunc de hujusmodi Feriis fit Commemoratio, ut dicetur in Rubrica de Commemorationibus. Si vero in eis occurrat Festum Simplex, de eo fit tantum Commemoratio. Item per annum fit Officium de Feria illis diebus, quibus infra Hebdomadam in Kalendario non ponitur aliquod Festum Duplex, Semiduplex, vel Simplex, et non occurrit aliqua Octava, vel Officium sanctæ Mariæ in Sabbato, vel aliquod Festum solemne, aut consuetum in aliqua Ecclesia celebrari, quamvis in Kalendario hujus Breviarii non sit descriptum.
+
+2. Officium Feriæ in Adventu, Quadragesima, Quatuor Temporibus, Vigiliis, et prima die Rogationum incipit a Matutino: in aliis vero Feriis per annum, inde fit de Feria, ubi desinit Officium præcedentis diei, ita ut si præcedenti die fuerit Duplex, vel Semiduplex, Officium Feriæ incipiat sequenti die a Matutino: si præcedenti die fuerit Festum Simplex, de Feria fiat a Vesperis illius præcedentis diei inclusive. Similiter et quando in Feria quarta et sexta Quatuor Temporum Septembris, et in Feria quarta Cinerum, ac in Vigiliis occurrit aliquod Festum Simplex, de quo fieri debet Commemoratio, tunc præcedenti die (nisi fuerit Festum novem Lectionum) in Vesperis fit de Feria, ut in Psalterio, sine Precibus, cum Oratione Dominicæ præcedentis, et cum Commemoratione Festi trium Lectionum in sequenti Feria occurrentis, ut dicetur infra in Rubrica de Concurrentia. Terminatur autem Officium de Feria subsequente Duplici, vel Semiduplici, ad Nonam: subsequente vero Simplici, de quo fieri debeat Officium, ad Capitulum Vesperarum, quia inde fit de Festo Simplici absque ulla deinceps Commemoratione Feriæ.
+
+3. Ad Matutinum dicitur unum tantum Nocturnum cum duodecim Psalmis, secundum ordinem Feriarum in Psalterio, et tribus Lectionibus, ut in Proprio de Tempore.
+
+4. Excipiuntur ab hoc ordinario Officii Ferialis tres Feriæ majores Hebdomadæ sanctæ, et Feriæ Octavarum Paschæ et Pentecostes, in quibus fit Officium, ut in propriis locis ponitur.
+
+5. Quomodo ordinandum sit Officium de Feria ad Matutinum et alias Horas, item de Lectionibus et Responsoriis, et quando dicendæ sint Preces feriales, ac de aliis, quæ ad Officium Feriæ pertinent, habentur inferius de singulis propriæ Rubricæ.
+
+#### VI De Vigiliis
+
+1. De Vigilia fit Officium in omnibus Vigiliis per annum quæ jejunantur, ubi in Kalendario adnotatur hæc vox **Vigilia**: nisi in die Vigiliæ occurrat Festum novem Lectionum, vel Octava; tunc enim in Officio novem Lectionum legitur nona Lectio de Homilia Vigiliæ, et fit Commemoratio de ea ad Laudes tantum, cum Antiphona ad Benedictus, et ℣. Feriæ occurrentis de Psalterio, et Oratione Vigiliæ; præterquam in illis Festis majoribus, quæ inferius excipiuntur.
+
+2. Si Vigilia occurrat in Dominica, de ea fit Officium in Sabbato, quod non sit impeditum Officio novem Lectionum: quia tunc de Vigilia fit tantum Commemoratio, ut dictum est. Excipitur ab hac regula Vigilia Nativitatis et Epiphaniæ Domini; quæ si venerint in Dominica, fit de illis, ut in propriis Rubricis dicitur. Si autem in Vigilia occurrat Festum solemne alicujus loci, vel ex solemnioribus infra annum, quæ inferius in Rubrica de Commemorationibus numerantur (veluti si in Vigilia sancti Joannis Baptistæ venerit Festum Corporis Christi), nihil tunc prorsus, nec Commemoratio fit de Vigilia, excepta Vigilia Epiphaniæ. Idem servetur quando aliqua Vigilia venerit in Adventu, Quadragesima et Quatuor Temporibus, nulla enim in his Feriis de Vigilia fit Commemoratio.
+
+3. Officium Vigiliæ incipit ad Matutinum, sicut dictum est in superiori Rubrica de Feriis: terminatur autem ad Nonam, quia Vesperæ sunt de sequenti Festo.
+
+4. Officium Vigiliæ totum fit de Feria occurrenti, ut in Psalterio: et tres Lectiones leguntur de Homilia in Evangelium Vigiliæ, ut in propriis locis assignatur, cum tribus Responsoriis de Feria occurrenti, ordine in Rubrica de Responsoriis descripto. Dicuntur Preces feriales, et Commemorationes communes, aliaque omnia sicut in Feriis Adventus, Quadragesimæ et Quatuor Temporum, de quibus et de aliis circa ordinandum ejus Officium habentur inferius propriæ Rubricæ.
+
+5. Excipitur ab hoc ordinario Vigiliarum, quæ jejunantur, Vigilia Pentecostes, quæ cum tribus Nocturnis sub Officio Semiduplici celebratur, ut ibi; et Vigilia Nativitatis Domini, quæ, Nocturno Feriæ excepto, in Laudibus et Horis habet reliquum Officium Duplex. In Vigiliis vero Epiphaniæ et Ascensionis, quæ non jejunantur, fit Officium, ut in propriis locis notatur.
+
+#### VII De Octavis
+
+1. De Octava fit Officium, vel saltem Commemoratio (quando aliquo Festo, vel Dominica impeditur) per octo dies continuos. Fit de Octava in Paschate Resurrectionis, in Ascensione Domini, in Pentecoste, in Festo Corporis Christi, in Festis quibus in Kalendario apponitur Octava. Item in Festo Dedicationis propriæ Ecclesiæ, et in Festo principalis Patroni, et Titularis loci vel Ecclesiæ, et in Festis aliorum Sanctorum, quæ apud quasdam Ecclesias, Congregationes et Religiones consueverunt solemniter cum Octavis celebrari, nisi illa Festa venerint in Quadragesima, quo tempore omittitur Officium cujuscumque Octavæ. Quod si aliquod Festum, quod celebrari solet cum Octava, paulo ante Quadragesimam venerit, et jam per aliquot dies factum sit Officium de ejus Octava, adveniente Quadragesima, nihil amplius fit de ea, nec Commemoratio. Et idem servetur de Octavis nondum absolutis, quando supervenit Festum Pentecostes, et dies xvii Decembris.
+
+2. In Pascha Resurrectionis et Pentecostes Officium Octavæ terminatur in Sabbato sequenti ad Nonam.
+
+3. Infra Octavas fit de Festis Duplicibus et Semiduplicibus occurrentibus, ac etiam Duplicibus translatis, de quibus dicetur infra Tit. X de Translatione Festorum, cum Commemoratione Octavæ; nisi illa Festa sint de solemnioribus enumeratis in sequenti Rubrica de Commemorationibus, in quibus nulla fit Commemoratio de Octava, exceptis Octavis Nativitatis, Epiphaniæ et Corporis Christi, de quibus fit semper Commemoratio, quocumque Festo in illis occurrente. Infra Octavas autem Paschæ et Pentecostes non fit de Festo aliquo, etiam principali Patrono vel Titulari Ecclesiæ, vel Dedicatione ejusdem, sed transfertur post Octavam, si transferri valeat, secus de eo fit Commemoratio, ut dicetur in eadem Rubrica de Translatione Festorum. Infra Octavam Epiphaniæ fit tantum de Duplicibus primæ classis (non tamen in die Octava), cum Commemoratione Octavæ. Infra Octavam Corporis Christi fit tantum de Duplicibus, non tamen translatis, nisi fuerint primæ vel secundæ classis, cum Commemoratione Octavæ. De Semiduplicibus vero, cum non transferantur, infra eam fit Commemoratio, ut dicetur in præfata Rubrica. De Simplicibus infra quascumque Octavas occurrentibus, item fit tantum Commemoratio, præterquam in duobus diebus post Pascha et Pentecosten, ut dicetur in sequenti Rubrica de Commemorationibus. De Dominicis infra Octavas occurrentibus fit Officium, ut dictum est supra in Rubrica de Dominicis. Si duæ Octavæ simul occurrant, (ut Octava sancti Joannis Baptistæ, et Octava Corporis Christi, vel Octava Patroni vel Titularis Ecclesiæ cum alia Octava), quando non erunt celebranda Festa novem Lectionum, vel dies Dominicus, fiet Officium de digniori, cum Commemoratione alterius. De die autem Octava cujuscumque Festi fit totum Officium Duplex, cum Commemoratione diei infra aliam Octavam. De Festis occurrentibus in die Octava servetur quod dicitur in Rubrica de Translatione Festorum.
+
+4. Officium de Octava fit cum tribus Nocturnis, novem scilicet Psalmis et novem Lectionibus (exceptis Octavis Paschæ et Pentecostes, in quibus fit cum uno Nocturno, ut suis locis ponitur), et omnia dicuntur sicut in die Festi, præter Lectiones; quarum primæ tres semper sunt de Scriptura occurrente in Officio de Tempore, præterquam infra Octavam Assumptionis beatæ Mariæ, in qua singulis diebus positæ sunt Lectiones propriæ de Canticis Canticorum: aliæ Lectiones secundi et tertii Nocturni dicuntur quæ infra Octavam positæ sunt. Infra Octavam vero Patroni, vel Titularis Ecclesiæ, aut alterius Festi, quod in aliquibus Ecclesiis consuevit cum Octava celebrari, si apud illas Ecclesias non habentur propriæ et approbatæ Lectiones pro secundo et tertio Nocturno, infra Octavam repetantur Lectiones positæ in Communi Sanctorum, si de Sanctis fiat Octava, alioquin Lectiones diei Festi.
+
+5. Infra Octavam Officium fit Semiduplex, in die Octava Duplex. In Vesperis infra Octavam omnia dicuntur sicut in secundis Vesperis Festi: et primis Vesperis diei Octavæ omnia sicut in primis Vesperis Festi, nisi aliter in propriis locis notetur.
+
+6. Infra Octavas non fiunt Suffragia consueta de Sanctis, nec dicuntur Preces ad Primam et Completorium, etiamsi fiat Officium de Dominica, vel Festo Semiduplici. In aliis, quomodo sit ordinandum Officium de Octava, habentur inferius propriæ Rubricæ.
+
+#### VIII De Officio S. Mariæ in Sabbato
+
+1. In omnibus Sabbatis per annum extra Adventum et Quadragesimam, ac nisi Quatuor Tempora aut Vigiliæ occurrant, vel nisi fieri debeat de Feria propter Officium alicujus Dominicæ aliquando infra Hebdomadam ponendum, ut in Rubrica de Dominicis dictum est: et nisi fiat Officium novem Lectionum, vel de Octava Paschæ et Pentecostes, semper fit Officium de sancta Maria, eo modo, quo fit de Festo Simplici, quemadmodum circa finem Breviarii disponitur. De Festo autem Simplici, in Sabbato occurrente, fit tantum Commemoratio.
+
+2. Cum vero supradictis diebus fieri non potest Officium de sancta Maria, nulla etiam fit Commemoratio de ea propter Sabbatum; sed tantum in Semiduplicibus (quando ejus Officium parvum non dicitur) fit consueta ejus Commemoratio per annum cum aliis Suffragiis positis in Psalterio post Vesperas Sabbati.
+
+3. Ejus Officium in Sabbato incipit Feria sexta ad modum Festi Simplicis, a Capitulo, et terminatur ad Nonam Sabbati. Si autem Feria sexta occurrat Officium novem Lectionum, in Vesperis fit tantum Commemoratio de sancta Maria, cum Antiphona, Versu et Oratione, quæ habentur in Officio ejus in Sabbato, nisi illud Officium novem Lectionum sit de eadem beata Maria, quia tunc nulla alia Commemoratio de ea facienda est.
+
+4. Ad Matutinum, post Invitatorium et Hymnum de sancta Maria, dicitur unum Nocturnum cum duodecim Psalmis ferialibus, ut in Psalterio. Versus de sancta Maria, prima et secunda Lectio ex Scriptura de Tempore occurrente; tertia Lectio et alia omnia tam in Matutino quam in Laudibus et Horis, ut in Officio sanctæ Mariæ in Sabbato assignantur.
+
+5. Dicuntur Preces Dominicales ad Primam et Completorium, et fiunt Suffragia consueta de sancto Joseph, de Apostolis, de Titulo, et de Pace, et tempore Paschali sola Commemoratio de Cruce, ut in secunda Feria post Octavam Paschæ. Post Nonam nihil fit de ea, nisi consueta ejus Commemoratio cum aliis Suffragiis, quando dicenda sunt in Officio de Dominica.
+
+#### IX De Commemorationibus
+
+1. Commemorationes fiunt de Festis Simplicibus, quando in eorum diebus incidit Festum novem Lectionum etiam translatum, vel Dominica, vel Octava, vel Sabbatum: et quando fieri debet de Feria, ut ponatur Officium alicujus Dominicæ, quæ eo anno supersit.
+
+2. De Feriis Adventus, Quadragesimæ, Quatuor Temporum, Vigiliarum, et secunda Rogationum fit Commemoratio, quando Festum novem Lectionum in illis Feriis occurrit. Si Simplex Festum in eisdem Feriis occurrat, Officium fit de Feria, et Commemoratio de Festo Simplici.
+
+3. Præterea fit Commemoratio de Dominicis a Pentecoste usque ad Adventum, et ab Epiphania usque ad Septuagesimam, et a Dominica in Albis usque ad Pentecosten exclusive, quando Festo Duplici impediuntur. De aliis Dominicis nulla fit Commemoratio occurrente Festo Duplici, quia Festum in illis occurrens transfertur, aut de eo fit Commemoratio, ut dicetur in sequenti Rubrica de Translatione Festorum: nisi illud Festum fuerit principalis Patroni, vel Tituli, aut Dedicationis ipsius Ecclesiæ, non autem alicujus Capellæ vel Altaris ejusdem Ecclesiæ; et tunc de hujusmodi principali Festo fit tantum in eo loco vel Ecclesia, cujus est Patronus vel Titulus aut Dedicatio, cum Commemoratione Dominicæ; excepta Dominica prima
+
 

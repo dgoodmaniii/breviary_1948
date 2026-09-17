@@ -2186,3 +2186,364 @@ Deus meus es tu, et confitébor tibi: \* Deus meus es tu, et exaltábo te.
 Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
 
 Confitémini Dómino quóniam bonus: \* quóniam in séculum misericórdia ejus.
+
+### Psalmus 62
+
+DEUS, Deus meus, † ad te de luce vígilo.
+
+Sitívit in te ánima mea, \* quam multiplíciter tibi caro mea.
+
+In terra desérta, et ínvia, et inaquósa: \* sic in sancto appárui tibi, ut vidérem virtútem tuam, et glóriam tuam.
+
+Quóniam mélior est misericórdia tua super vitas: \* lábia mea laudábunt te.
+
+Sic benedícam te in vita mea: \* et in nómine tuo levábo manus meas.
+
+Sicut ádipe et pinguédine repleátur ánima mea: \* et lábiis exsultatiónis laudábit os meum.
+
+Si memor fui tui super stratum meum, in matutínis meditábor in te: \* quia fuísti adjútor meus.
+
+Et in velaménto alárum tuárum exsultábo, adhǽsit ánima mea post te: \* me suscépit déxtera tua.
+
+Ipsi vero in vanum quæsiérunt ánimam meam, introíbunt in inferióra terræ: \* tradéntur in manus gládii, partes vúlpium erunt.
+
+Rex vero lætábitur in Deo, laudabúntur omnes qui jurant in eo: \* quia obstrúctum est os loquéntium iníqua.
+
+### Canticum trium Puerorum
+
+*Dan. 3, 52-57*
+
+BENEDICTUS es, † Dómine, Deus patrum nostrórum: \* et laudábilis, et gloriósus, et superexaltátus in sécula.
+
+Et benedíctum nomen glóriæ tuæ sanctum: \* et laudábile, et superexaltátum in ómnibus sæculis.
+
+Benedíctus es in templo sancto glóriæ tuæ: \* et superlaudábilis, et supergloriósus in sécula.
+
+Benedíctus es in throno regni tui: \* et superlaudábilis, et superexaltátus in sécula.
+
+Benedíctus es, qui intuéris abýssos, et sedes super Chérubim: \* et laudábilis, et superexaltátus in sécula.
+
+Benedíctus es in firmaménto cæli: \* et laudábilis, et gloriósus in sécula.
+
+Benedícite, ómnia ópera Dómini, Dómino: \* laudáte, et superexaltáte eum in sécula.
+
+Glória Patri.
+
+### Psalmus 148
+
+LAUDATE † Dóminum de cælis: \* laudáte eum in excélsis.
+
+Laudáte eum, omnes Angeli ejus: \* laudáte eum, omnes virtútes ejus.
+
+Laudáte eum, sol et luna: \* laudáte eum, omnes stellæ, et lumen.
+
+Laudáte eum, cæli cælórum: \* et aquæ omnes, quæ super cælos sunt, laudent nomen Dómini.
+
+Quia ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Státuit ea in ætérnum, et in séculum séculi: \* præcéptum pósuit, et non præteríbit.
+
+Laudáte Dóminum de terra, \* dracónes, et omnes abýssi.
+
+Ignis, grando, nix, glácies, spíritus procellárum: \* quæ fáciunt verbum ejus:
+
+Montes, et omnes colles: \* ligna fructífera, et omnes cedri.
+
+Béstiæ, et univérsa pécora: \* serpéntes, et vólucres pennátæ.
+
+Reges terræ, et omnes pópuli: \* príncipes, et omnes júdices terræ.
+
+Júvenes, et vírgines: senes cum junióribus laudent nomen Dómini: \* quia exaltátum est nomen ejus solíus.
+
+Conféssio ejus super cælum, et terram: \* et exaltávit cornu pópuli sui.
+
+Hymnus ómnibus sanctis ejus: \* fíliis Israël, pópulo appropinquánti sibi.
+
+{RUBRIC: Capitulum, Hymnus, Versus, Antiphona ad Benedíctus et Oratio ut in Proprio de Tempore.}
+
+{RUBRIC: Reliqua ut in Ordinario, 12.}
+
+---
+
+### Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+{RUBRIC: In Adventu: Antiphona, etiam ad Tertiam, Sextam et Nonam, e Laudibus Dominicæ currentis, ut in Proprio de Tempore.}
+
+{RUBRIC: Per Annum:} **Ant.** Allelúja.
+
+{RUBRIC: Antiphona cum Psalmis, per Annum ad Horas minores assignata, adhibetur semper, extra Octavam Nativitatis, quando fit Officium de qualibet Dominica minori.}
+
+### Psalmus 117
+
+CONFITEMINI Dómino quóniam bonus: \* quóniam in séculum misericórdia ejus.
+
+Dicat nunc Israël quóniam bonus: \* quóniam in séculum misericórdia ejus.
+
+Dicat nunc domus Aaron: \* quóniam in séculum misericórdia ejus.
+
+Dicant nunc qui timent Dóminum: \* quóniam in séculum misericórdia ejus.
+
+De tribulatióne invocávi Dóminum: \* et exaudívit me in latitúdine Dóminus.
+
+Dóminus mihi adjútor: \* non timébo quid fáciat mihi homo.
+
+Dóminus mihi adjútor: \* et ego despíciam inimícos meos.
+
+Bonum est confídere in Dómino, \* quam confídere in hómine:
+
+Bonum est speráre in Dómino, \* quam speráre in princípibus.
+
+Omnes gentes circuiérunt me: \* et in nómine Dómini quia ultus sum in eos.
+
+Circumdántes circumdedérunt me: \* et in nómine Dómini quia ultus sum in eos.
+
+Circumdedérunt me sicut apes, et exarsérunt sicut ignis in spinis: \* et in nómine Dómini quia ultus sum in eos.
+
+Impúlsus evérsus sum ut cáderem: \* et Dóminus suscépit me.
+
+Fortitúdo mea, et laus mea Dóminus: \* et factus est mihi in salútem.
+
+Vox exsultatiónis, et salútis \* in tabernáculis justórum.
+
+Déxtera Dómini fecit virtútem: déxtera Dómini exaltávit me, \* déxtera Dómini fecit virtútem.
+
+Non móriar, sed vivam: \* et narrábo ópera Dómini.
+
+Castígans castigávit me Dóminus: \* et morti non trádidit me.
+
+Aperíte mihi portas justítiæ, ingréssus in eas confitébor Dómino: \* hæc porta Dómini, justi intrábunt in eam.
+
+Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
+
+Lápidem, quem reprobavérunt ædificántes: \* hic factus est in caput ánguli.
+
+A Dómino factum est istud: \* et est mirábile in óculis nostris.
+
+Hæc est dies, quam fecit Dóminus: \* exsultémus, et lætémur in ea.
+
+O Dómine, salvum me fac, o Dómine, bene prosperáre: \* benedíctus qui venit in nómine Dómini.
+
+Benedíximus vobis de domo Dómini: \* Deus Dóminus, et illúxit nobis.
+
+Constitúite diem solémnem in condénsis, \* usque ad cornu altáris.
+
+Deus meus es tu, et confitébor tibi: \* Deus meus es tu, et exaltábo te.
+
+Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
+
+Confitémini Dómino quóniam bonus: \* quóniam in séculum misericórdia ejus.
+
+{RUBRIC: In Dominicis Septuagesimæ, Sexagesimæ et Quinquagesimæ, Antiphona, etiam ad Tertiam, Sextam et Nonam, ut in Proprio de Tempore; atque loco præcedentis Ps. 117 Confitémini, dicuntur sequentes Ps. 92 et 99, qui in Laudibus locum non habuérunt:}
+
+### Psalmus 92
+
+DOMINUS regnávit, decórem indútus est: \* indútus est Dóminus fortitúdinem, et præcínxit se.
+
+Etenim firmávit orbem terræ, \* qui non commovébitur.
+
+Paráta sedes tua ex tunc: \* a século tu es.
+
+Elevavérunt flúmina, Dómine: \* elevavérunt flúmina vocem suam.
+
+Elevavérunt flúmina fluctus suos, \* a vócibus aquárum multárum.
+
+Mirábiles elatiónes maris: \* mirábilis in altis Dóminus.
+
+Testimónia tua credibília facta sunt nimis: \* domum tuam decet sanctitúdo, Dómine, in longitúdinem diérum.
+
+### Psalmus 99
+
+JUBILATE Deo, omnis terra: \* servíte Dómino in lætítia.
+
+Introíte in conspéctu ejus, \* in exsultatióne.
+
+Scitóte quóniam Dóminus ipse est Deus: \* ipse fecit nos, et non ipsi nos.
+
+Pópulus ejus, et oves páscuæ ejus: \* introíte portas ejus in confessióne, átria ejus in hymnis: confitémini illi.
+
+Laudáte nomen ejus: quóniam suávis est Dóminus, in ætérnum misericórdia ejus, \* et usque in generatiónem et generatiónem véritas ejus.
+
+{RUBRIC: In Vigiliis Nativitatis Domini et Epiphaniæ, in Dominica, etiam translata, infra Octavam Nativitatis, in Duplicibus I vel II classis, in Festis novem Lectionum Domini, beátæ Mariæ Virginis, Angelórum, sancti Joannis Baptístæ, sancti Joseph, Apostolórum, Evangelistárum, si de eis fiat Officium, ad Primam, Tertiam, Sextam et Nonam dicuntur Psalmi de Dominica, sub Antiphonis Officio diei congruentibus, nisi aliter suo loco notetur; sed ad Primam, loco Psalmi 117 Confitémini, in ipsa etiam die Dominica, semper dicitur
+
+### Psalmus 53
+
+DEUS, in nómine tuo salvum me fac: \* et in virtúte tua júdica me.
+
+Deus, exáudi oratiónem meam: \* áuribus pércipe verba oris mei.
+
+Quóniam aliéni insurrexérunt advérsum me, et fortes quæsiérunt ánimam meam: \* et non proposuérunt Deum ante conspéctum suum.
+
+Ecce enim, Deus ádjuvat me: \* et Dóminus suscéptor est ánimæ meæ.
+
+Avérte mala inimícis meis: \* et in veritáte tua dispérde illos.
+
+Voluntárie sacrificábo tibi, \* et confitébor nómini tuo, Dómine: quóniam bonum est:
+
+Quóniam ex omni tribulatióne eripuísti me: \* et super inimícos meos despéxit óculus meus.
+
+### Psalmus 118, i
+
+BEATI immaculáti in via: \* qui ámbulant in lege Dómini.
+
+Beáti, qui scrutántur testimónia ejus: \* in toto corde exquírunt eum.
+
+Non enim qui operántur iniquitátem, \* in viis ejus ambulavérunt.
+
+Tu mandásti \* mandáta tua custodíri nimis.
+
+Utinam dirigántur viæ meæ, \* ad custodiéndas justificatiónes tuas!
+
+Tunc non confúndar, \* cum perspéxero in ómnibus mandátis tuis.
+
+Confitébor tibi in directióne cordis: \* in eo quod dídici judícia justítiæ tuæ.
+
+Justificatiónes tuas custódiam: \* non me derelínquas usquequáque.
+
+In quo córrigit adolescéntior viam suam? \* in custodiéndo sermónes tuos.
+
+In toto corde meo exquisívi te: \* ne repéllas me a mandátis tuis.
+
+In corde meo abscóndi elóquia tua: \* ut non peccem tibi.
+
+Benedíctus es, Dómine: \* doce me justificatiónes tuas.
+
+In lábiis meis, \* pronuntiávi ómnia judícia oris tui.
+
+In via testimoniórum tuórum delectátus sum, \* sicut in ómnibus divítiis.
+
+In mandátis tuis exercébor: \* et considerábo vias tuas.
+
+In justificatiónibus tuis meditábor: \* non oblivíscar sermónes tuos.
+
+### Psalmus 118, ii
+
+RETRIBUE servo tuo, vivífica me: \* et custódiam sermónes tuos.
+
+Revéla óculos meos: \* et considerábo mirabília de lege tua.
+
+Íncola ego sum in terra: \* non abscóndas a me mandáta tua.
+
+Concupívit ánima mea desideráre justificatiónes tuas, \* in omni témpore.
+
+Increpásti supérbos: \* maledícti qui declínant a mandátis tuis.
+
+Aufer a me oppróbrium, et contémptum: \* quia testimónia tua exquisívi.
+
+Etenim sedérunt príncipes, et advérsum me loquebántur: \* servus autem tuus exercebátur in justificatiónibus tuis.
+
+Nam et testimónia tua meditátio mea est: \* et consílium meum justificatiónes tuæ.
+
+Adhǽsit paviménto ánima mea: \* vivífica me secúndum verbum tuum.
+
+Vias meas enuntiávi, et exaudísti me: \* doce me justificatiónes tuas.
+
+Viam justificatiónum tuárum instrue me: \* et exercébor in mirabílibus tuis.
+
+Dormitávit ánima mea præ tǽdio: \* confírma me in verbis tuis.
+
+Viam iniquitátis ámove a me: \* et de lege tua miserére mei.
+
+Viam veritátis elégi: \* judícia tua non sum oblítus.
+
+Adhǽsi testimóniis tuis, Dómine: \* noli me confúndere.
+
+Viam mandatórum tuórum cucúrri, \* cum dilatásti cor meum.
+
+{RUBRIC: Si Athanasianum Symbolum omittatur, expletis Psalmis præcedentibus, statim dicitur Antiphona, ut infra. 58}
+
+{RUBRIC: Sequens Symbolum dicitur in Dominicis tantum minoribus post Epiphaniam, quando fit Officium de Dominica ut in Psalterio, neque ulla Commemoratio Officii duplicis vel Octavæ recurrit.}
+
+### Symbolum Athanasianum
+
+QUICUMQUE vult salvus esse, \* ante ómnia opus est, ut téneat cathólicam fidem:
+
+Quam nisi quisque íntegram inviolatámque serváverit, \* absque dúbio in ætérnum períbit.
+
+Fides autem cathólica hæc est: \* ut unum Deum in Trinitáte, et Trinitátem in unitáte venerémur.
+
+Neque confundéntes persónas, \* neque substántiam separántes.
+
+Ália est enim persóna Patris, ália Fílii, \* ália Spíritus Sancti:
+
+Sed Patris, et Fílii, et Spíritus Sancti una est divínitas, \* æquális glória, coætérna majéstas.
+
+Quális Pater, talis Fílius, \* talis Spíritus Sanctus.
+
+Increátus Pater, increátus Fílius, \* increátus Spíritus Sanctus.
+
+Imménsus Pater, imménsus Fílius, \* imménsus Spíritus Sanctus.
+
+Ætérnus Pater, ætérnus Fílius, \* ætérnus Spíritus Sanctus.
+
+Et tamen non tres ætérni, \* sed unus ætérnus.
+
+Sicut non tres increáti, nec tres imménsi, \* sed unus increátus, et unus imménsus.
+
+Simíliter omnípotens Pater, omnípotens Fílius, \* omnípotens Spíritus Sanctus.
+
+Et tamen non tres omnipoténtes, \* sed unus omnípotens.
+
+Ita Deus Pater, Deus Fílius, \* Deus Spíritus Sanctus.
+
+Et tamen non tres Dii, \* sed unus est Deus.
+
+Ita Dóminus Pater, Dóminus Fílius, \* Dóminus Spíritus Sanctus.
+
+Et tamen non tres Dómini, \* sed unus est Dóminus.
+
+Quia, sicut singillátim unamquámque persónam Deum ac Dóminum confitéri christiána veritáte compéllimur: \* ita tres Deos aut Dóminos dícere cathólica religióne prohibémur.
+
+Pater a nullo est factus: \* nec creátus, nec génitus.
+
+Fílius a Patre solo est: \* non factus, nec creátus, sed génitus.
+
+Spíritus Sanctus a Patre et Fílio: \* non factus, nec creátus, nec génitus, sed procédens.
+
+Unus ergo Pater, non tres Patres: unus Fílius, non tres Fílii: \* unus Spíritus Sanctus, non tres Spíritus Sancti.
+
+Et in hac Trinitáte nihil prius aut postérius, nihil majus aut minus: \* sed totæ tres persónæ coætérnæ sibi sunt et coæquáles.
+
+Ita ut per ómnia, sicut jam supra dictum est, \* et únitas in Trinitáte, et Trínitas in unitáte veneránda sit.
+
+Qui vult ergo salvus esse, \* ita de Trinitáte séntiat.
+
+Sed necessárium est ad ætérnam salútem, \* ut Incarnatiónem quoque Dómini nostri Jesu Christi fidéliter credat.
+
+Est ergo fides recta, ut credámus et confiteámur, \* quia Dóminus noster Jesus Christus, Dei Fílius, Deus et homo est.
+
+Deus est ex substántia Patris ante sécula génitus: \* et homo est ex substántia matris in século natus.
+
+Perféctus Deus, perféctus homo: \* ex ánima
+

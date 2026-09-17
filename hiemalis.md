@@ -2709,5 +2709,167 @@ SAULUS autem multo magis convalescébat, et confundébat Judǽos, qui habitában
 
 #### In Purificatione B. M. V.
 
-ET placébit Dómino sacrifícium Juda et Jerúsalem sicut dies séculi
+ET placébit Dómino sacrifícium Juda et Jerúsalem sicut dies séculi et sicut anni antíqui, dicit Dóminus omnípotens.
+
+#### In Apparitione B. M. V.
+
+IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis implémini.
+
+---
+
+### E Communi Sanctorum
+
+#### Pro Apostolis
+
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni habíti sunt pro nómine Jesu contumélias pati.
+
+#### Pro Martyre
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+#### Pro pluribus Martyribus
+
+FULGEBUNT justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt natiónes, et dominabúntur pópulis: et regnábit Dóminus illórum in perpétuum.
+
+#### Pro Conf. Pont.
+
+FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+#### Pro Conf. non Pont.
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
+
+#### Pro Virgine Martyre
+
+DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+#### Pro Virgine non Martyre
+
+O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam apud Deum nota est, et apud hómines.
+
+#### Pro Martyre tantum
+
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+#### Pro nec Virg. nec Mart.
+
+MULTÆ fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo: múlier timens Dóminum, ipsa laudábitur.
+
+#### Pro Dedicatione Ecclesiæ
+
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+#### In Festis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+---
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+---
+
+### Ad Tertiam
+
+Pater et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: Per Annum:} **Ant.** Allelúja.
+
+### Psalmus 118, iii
+
+LEGEM pone mihi, Dómine, viam justificatiónum tuárum: \* et exquíram eam semper.
+
+Da mihi intelléctum, et scrutábor legem tuam: \* et custódiam illam in toto corde meo.
+
+Deduc me in sémitam mandatórum tuórum: \* quia ipsam vólui.
+
+Inclína cor meum in testimónia tua: \* et non in avarítiam.
+
+Avérte óculos meos ne vídeant vanitátem: \* in via tua vivífica me.
+
+Státue servo tuo elóquium tuum, \* in timóre tuo.
+
+Ampúta oppróbrium meum quod suspicátus sum: \* quia judícia tua jucúnda.
+
+Ecce, concupívi mandáta tua: \* in æquitáte tua vivífica me.
+
+Et véniat super me misericórdia tua, Dómine: \* salutáre tuum secúndum elóquium tuum.
+
+Et respondébo exprobrántibus mihi verbum: \* quia sperávi in sermónibus tuis.
+
+Et ne áuferas de ore meo verbum veritátis usquequáque: \* quia in judíciis tuis supersperávi.
+
+Et custódiam legem tuam semper: \* in séculum et in séculum séculi.
+
+Et ambulábam in latitúdine: \* quia mandáta tua exquisívi.
+
+Et loquébar in testimóniis tuis in conspéctu regum: \* et non confundébar.
+
+Et meditábar in mandátis tuis, \* quæ diléxi.
+
+Et levávi manus meas ad mandáta tua, quæ diléxi: \* et exercébar in justificatiónibus tuis.
+
+### Psalmus 118, iv
+
+MEMOR esto verbi tui servo tuo, \* in quo mihi spem dedísti.
+
+Hæc me consoláta est in humilitáte mea: \* quia elóquium tuum vivificábit me.
+
+Supérbi iníque agébant usquequáque: \* a lege autem tua non declinávi.
+
+Memor fui judiciórum tuórum a século, Dómine: \* et consolátus sum.
+
+Deféctio ténuit me, \* pro peccatóribus derelinquéntibus legem tuam.
+
+Cantábiles mihi erant justificatiónes tuæ, \* in loco peregrinatiónis meæ.
+
+Memor fui nocte nóminis tui, Dómine: \* et custodívi legem tuam.
+
+Hæc facta est mihi: \* quia justificatiónes tuas exquisívi.
+
+Pórtio mea, Dómine, \* dixi custodíre legem tuam.
+
+Deprecátus sum fáciem tuam in toto corde meo: \* miserére mei secúndum elóquium tuum.
+
+Cogitávi vias meas: \* et convérti pedes meos in testimónia tua.
+
+Parátus sum, et non sum turbátus: \* ut custódiam mandáta tua.
+
+Funes peccatórum circumpléxi sunt me: \* et legem tuam non sum oblítus.
+
+Média nocte surgébam ad confiténdum tibi, \* super judícia justificatiónis tuæ.
+
+Párticeps ego sum ómnium timéntium te: \* et custodiéntium mandáta tua.
+
+Misericórdia tua, Dómine, plena est terra: \* justificatiónes tuas doce me.
+
+### Psalmus 118, v
+
+BONITATEM fecísti cum servo tuo, Dómine, \* secúndum verbum tuum.
 

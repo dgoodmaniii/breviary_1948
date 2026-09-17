@@ -1552,3 +1552,157 @@ Sicut erat in princípio, et nunc, et semper, \* et in sécula sæculórum. Amen
 QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
 
 Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+{RUBRIC: In Adventu:} **Ant.** Confortáte manus dissolútas: confortámini, dícite: Ecce, Deus noster véniet, et salvábit nos, allelúja.
+
+**Ant.** Gaudéte omnes.
+
+{RUBRIC: Per Annum:} **Ant.** Servíte Dómino in timóre: et exsultáte ei cum tremóre.
+
+**Ant.** Exsúrge.
+
+### Psalmus 3
+
+DOMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+{RUBRIC: In Adventu:} **Ant.** Gaudéte omnes, et lætámini: ecce, quia véniet Dóminus ultiónis, addúcet retributiónem: ipse véniet, et salvábit nos.
+
+℣. Ex Sion spécies decóris ejus. ℟. Deus noster maniféste véniet.
+
+{RUBRIC: Per Annum:} **Ant.** Exsúrge, Dómine, salvum me fac, Deus meus.
+
+℣. Memor fui nocte nóminis tui, Dómine. ℟. Et custodívi legem tuam.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+{RUBRIC: In Adventu:} **Ant.** Gaude et lætáre.
+
+{RUBRIC: Per Annum:} **Ant.** Quam admirábile.
+
+### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+{RUBRIC: In Adventu:} **Ant.** Gaude et lætáre, fília Jerúsalem: ecce, Rex tuus véniet tibi: Sion, noli timére, quia cito véniet salus tua.
+
+**Ant.** Rex noster.
+
+{RUBRIC: Per Annum:} **Ant.** Quam admirábile est nomen tuum, Dómine, in univérsa terra!
+
+**Ant.** Sedísti super thronum.
+
+### Psalmus 9, i
+
+CONFITEBOR tibi, Dómine, in toto corde meo: \* narrábo ómnia mirabília tua.
+
+Lætábor et exsultábo in te: \* psallam nómini tuo, Altíssime,
+
+In converténdo inimícum meum retrórsum: \* infirmabúntur, et períbunt a fácie tua.
+
+Quóniam fecísti judícium meum et causam meam: \* sedísti super thronum, qui júdicas justítiam.
+
+Increpásti gentes, et périit ímpius: \* nomen eórum delésti in ætérnum, et in séculum séculi.
+
+Inimíci defecérunt frámeæ in finem: \* et civitátes eórum destruxísti.
+
+Périit memória eórum cum sónitu: \* et Dóminus in ætérnum pérmanet.
+
+Parávit in judício thronum suum: \* et ipse judicábit orbem terræ in æquitáte, judicábit pópulos in justítia.
+
+Et factus est Dóminus refúgium páuperi: \* adjútor in opportunitátibus, in tribulatióne.
+
+Et sperent in te qui novérunt nomen tuum: \* quóniam non dereliquísti quæréntes te, Dómine.
+
+{RUBRIC: In Adventu:} **Ant.** Rex noster advéniet Christus, quem Joánnes prædicávit Agnum esse ventúrum.
+
+**Ant.** Ecce, vénio.
+
+{RUBRIC: Per Annum:} **Ant.** Sedísti super thronum, qui júdicas justítiam.
+
+**Ant.** Exsúrge, Dómine.
+
+### Psalmus 9, ii
+
+PSALLITE Dómino, qui hábitat in Sion: \* annuntiáte inter gentes stúdia ejus:
+
+Quóniam requírens sánguinem eórum recordátus est: \* non est oblítus clamórem páuperum.
+
+Miserére mei, Dómine: \* vide humilitátem meam de inimícis meis.
+
+Qui exáltas me de portis mortis, \* ut annúntiem omnes laudatiónes tuas in portis fíliæ Sion.
+
+Exsultábo in salutári tuo: \* infíxæ sunt gentes in intéritu, quem fecérunt.
+
+In láqueo isto, quem abscondérunt, \* comprehénsus est pes eórum.
+
+Cognoscétur Dóminus judícia fáciens: \* in opéribus mánuum suárum comprehénsus est peccátor.
+
+Convertántur peccatóres in inférnum: \* omnes gentes quæ obliviscúntur Deum.
+
+Quóniam non in finem oblívio erit páuperis: \* patiéntia páuperum non períbit in finem.
+
+Exsúrge, Dómine, non confortétur homo: \* judicéntur gentes in conspéctu tuo.
+
+Constítue, Dómine, legislatórem super eos: \* ut sciant gentes quóniam hómines sunt.
+
+{RUBRIC: In Adventu:} **Ant.** Ecce, vénio cito et merces mea mecum est, dicit Dóminus: dare unicuíque secúndum ópera sua.
+
+℣. Emítte Agnum, Dómine, Dominatórem terræ. ℟. De Petra desérti ad montem fíliæ Sion.
+
+{RUBRIC: Per Annum:} **Ant.** Exsúrge, Dómine, non prævéleat homo.

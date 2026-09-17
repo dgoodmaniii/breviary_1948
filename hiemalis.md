@@ -3160,3 +3160,107 @@ Princípium verbórum tuórum, véritas: \* in ætérnum ómnia judícia justít
 ### Psalmus 118, xi
 
 PRINCIPES persecúti sunt me gratis: \* et a verbis tuis formidávit cor meum.
+
+Lætábor ego super elóquia tua: \* sicut qui invénit spólia multa.
+
+Iniquitátem ódio hábui, et abominátus sum: \* legem autem tuam diléxi.
+
+Sépties in die laudem dixi tibi, \* super judícia justítiæ tuæ.
+
+Pax multa diligéntibus legem tuam: \* et non est illis scándalum.
+
+Exspectábam salutáre tuum, Dómine: \* et mandáta tua diléxi.
+
+Custodívit ánima mea testimónia tua: \* et diléxit ea vehemánter.
+
+Serváte mandáta tua, et testimónia tua: \* quia omnes viæ meæ in conspéctu tuo.
+
+Appropínquet deprecátio mea in conspéctu tuo, Dómine: \* juxta elóquium tuum da mihi intelléctum.
+
+Intret postulátio mea in conspéctu tuo: \* secúndum elóquium tuum éripe me.
+
+Eructábunt lábia mea hymnum, \* cum docúeris me justificatiónes tuas.
+
+Pronuntiábit lingua mea elóquium tuum: \* quia ómnia mandáta tua æquitas.
+
+Fiat manus tua ut salvet me: \* quóniam mandáta tua elégi.
+
+Concupívi salutáre tuum, Dómine: \* et lex tua meditátio mea est.
+
+Vivet ánima mea, et laudábit te: \* et judícia tua adjuvábunt me.
+
+Errávi, sicut ovis, quæ périit: \* quǽre servum tuum, quia mandáta tua non sum oblítus.
+
+#### Per Annum
+
+**Ant.** Allelúja, fáciem tuam, Dómine, illúmina super servum tuum, allelúja, allelúja.
+
+**Capitulum** *1 Cor. 6, 20*
+
+EMPTI enim estis prétio magno. Glorificáte et portáte Deum in córpore vestro.
+
+℟. br. Clamávi in toto corde meo: \* Exáudi me, Dómine. Clamávi. ℣. Justificatiónes tuas requíram. Exáudi. Glória Patri. Clamávi. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: Oratio convéniens.}
+
+{RUBRIC: Reliqua ut in Ordinario. 23}
+
+---
+
+### Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: In Adventu: Antiphonæ de Laudibus Dominicæ currentis, ut in Proprio de Tempore.}
+
+{RUBRIC: Per Annum:} **Ant.** Dixit Dóminus. †
+
+{RUBRIC: Antæ cum Psalmis per Annum assignatæ adhibentur semper, quando fit Officium de Dominica, tam in Dominicis minoribus, extra Oct. Nativit., quam in Dominicis majoribus extra Adventum.}
+
+### Psalmus 109
+
+DIXIT Dóminus † Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pænitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Dixit Dóminus Dómino meo: Sede a dextris meis.
+
+**Ant.** Magna ópera Dómini.
+
+### Psalmus 110
+
+CONFITEBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in séculum séculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in séculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in séculum séculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in séculum séculi.
+
+**Ant.** Magna ópera Dómini: exquisíta in omnes voluntátes ejus.

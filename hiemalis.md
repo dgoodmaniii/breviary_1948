@@ -1864,3 +1864,227 @@ Laudáte nomen ejus: quóniam suávis est Dóminus, in ætérnum misericórdia e
 **Ant.** Jubiláte Deo, omnis terra, allelúja.
 
 **Ant.** Benedícam te.
+
+### Psalmus 62, 3
+
+DEUS, Deus meus, \* ad te de luce vígilo.
+
+Sitívit in te ánima mea, \* quam multiplíciter tibi caro mea.
+
+In terra desérta, et ínvia, et inaquósa: \* sic in sancto appárui tibi, ut vidérem virtútem tuam, et glóriam tuam.
+
+Quóniam mélior est misericórdia tua super vitas: \* lábia mea laudábunt te.
+
+Sic benedícam te in vita mea: \* et in nómine tuo levábo manus meas.
+
+Sicut ádipe et pinguédine repleátur ánima mea: \* et lábiis exsultatiónis laudábit os meum.
+
+Si memor fui tui super stratum meum, in matutínis meditábor in te: \* quia fuísti adjútor meus.
+
+Et in velaménto alárum tuárum exsultábo, adhǽsit ánima mea post te: \* me suscépit déxtera tua.
+
+Ipsi vero in vanum quæsiérunt ánimam meam, introíbunt in inferióra terræ: \* tradéntur in manus gládii, partes vúlpium erunt.
+
+Rex vero lætábitur in Deo, laudabúntur omnes qui jurant in eo: \* quia obstrúctum est os loquéntium iníqua.
+
+**Ant.** Benedícam te in vita mea, Dómine: et in nómine tuo levábo manus meas, allelúja.
+
+**Ant.** Tres púeri.
+
+### Canticum trium Puerorum, 4
+
+*Dan. 3, 57-88 et 56*
+
+BENEDICITE, ómnia ópera Dómini, Dómino: \* laudáte et superexaltáte eum in sécula.
+
+Benedícite, Angeli Dómini, Dómino: \* benedícite, cæli, Dómino.
+
+Benedícite, aquæ omnes, quæ super cælos sunt, Dómino: \* benedícite, omnes virtútes Dómini, Dómino.
+
+Benedícite, sol et luna, Dómino: \* benedícite, stellæ cæli, Dómino.
+
+Benedícite, omnis imber et ros, Dómino: \* benedícite, omnes spíritus Dei, Dómino.
+
+Benedícite, ignis et æstus, Dómino: \* benedícite, frigus et æstus, Dómino.
+
+Benedícite, rores et pruína, Dómino: \* benedícite, gelu et frigus, Dómino.
+
+Benedícite, glácies et nives, Dómino: \* benedícite, noctes et dies, Dómino.
+
+Benedícite, lux et ténebræ, Dómino: \* benedícite, fúlgura et nubes, Dómino.
+
+Benedícat terra Dóminum: \* laudet et superexáltet eum in sécula.
+
+Benedícite, montes et colles, Dómino: \* benedícite, univérsa germinántia in terra, Dómino.
+
+Benedícite, fontes, Dómino: \* benedícite, mária et flúmina, Dómino.
+
+Benedícite, cete, et ómnia, quæ movéntur in aquis, Dómino: \* benedícite, omnes vólucres cæli, Dómino.
+
+Benedícite, omnes béstiæ et pécora, Dómino: \* benedícite, fílii hóminum, Dómino.
+
+Benedícat Israël Dóminum: \* laudet et superexáltet eum in sécula.
+
+Benedícite, sacerdótes Dómini, Dómino: \* benedícite, servi Dómini, Dómino.
+
+Benedícite, spíritus, et ánimæ justórum, Dómino: \* benedícite, sancti, et húmiles corde, Dómino.
+
+Benedícite, Ananía, Azaría, Mísaël, Dómino: \* laudáte et superexaltáte eum in sécula.
+
+Benedicámus Patrem et Fílium cum Sancto Spíritu: \* laudémus et superexaltémus eum in sécula.
+
+Benedíctus es, Dómine, in firmaménto cæli: \* et laudábilis, et gloriósus, et superexaltátus in sécula.
+
+{RUBRIC: Hic non dicitur Glória Patri, neque Amen.}
+
+**Ant.** Tres púeri jussu regis in fornácem missi sunt, non timéntes flammam ignis, dicéntes: Benedíctus Deus, allelúja.
+
+**Ant.** Allelúja.
+
+### Psalmus 148, 5
+
+LAUDATE Dóminum de cælis: \* laudáte eum in excélsis.
+
+Laudáte eum, omnes Angeli ejus: \* laudáte eum, omnes virtútes ejus.
+
+Laudáte eum, sol et luna: \* laudáte eum, omnes stellæ et lumen.
+
+Laudáte eum, cæli cælórum: \* et aquæ omnes, quæ super cælos sunt, laudent nomen Dómini.
+
+Quia ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Státuit ea in ætérnum, et in séculum séculi: \* præcéptum pósuit, et non præteríbit.
+
+Laudáte Dóminum de terra, \* dracónes, et omnes abýssi.
+
+Ignis, grando, nix, glácies, spíritus procellárum: \* quæ fáciunt verbum ejus:
+
+Montes, et omnes colles: \* ligna fructífera, et omnes cedri.
+
+Béstiæ, et univérsa pécora: \* serpéntes, et vólucres pennátæ:
+
+Reges terræ, et omnes pópuli: \* príncipes, et omnes júdices terræ.
+
+Júvenes, et vírgines: senes cum junióribus laudent nomen Dómini: \* quia exaltátum est nomen ejus solíus.
+
+Conféssio ejus super cælum et terram: \* et exaltávit cornu pópuli sui.
+
+Hymnus ómnibus sanctis ejus: \* fíliis Israël, pópulo appropinquánti sibi.
+
+**Ant.** Allelúja, laudáte Dóminum de cælis, allelúja, allelúja.
+
+#### In Adventu
+
+{RUBRIC: Capitulum, Hymnus et Versus ut in Proprio de Tempore.}
+
+#### Per Annum
+
+{RUBRIC: In omnibus Dominicis minoribus extra Octavam Nativitatis, dicitur}
+
+**Capitulum** *Apoc. 7, 12*
+
+BENEDICTIO, et cláritas, et sapiéntia, et gratiárum áctio, honor, virtus, et fortitúdo Deo nostro in sécula sæculórum. Amen. ℟. Deo grátias.
+
+{RUBRIC: In Dominicis post Epiphaniam a die 14 Januarii et deinceps ante Septuagesimam occurrentibus dicitur}
+
+##### Hymnus
+
+AETERNE rerum Cónditor,
+Noctem diémque qui regis,
+Et témporum das témpora,
+Ut álleves fastídium.
+
+Noctúrna lux viántibus
+A nocte noctem ségregans,
+Præco diéi jam sonat,
+Jubárque solis évocat.
+
+Hoc excitátus Lúcifer
+Solvit polum calígine:
+Hoc omnis errónum cohors
+Viam nocéndi déserit.
+
+Hoc nauta vires cólligit,
+Pontíque mitéscunt freta:
+Hoc, ipsa petra Ecclésiæ,
+Canénte, culpam díluit.
+
+Surgámus ergo strénue:
+Gallus jacéntes éxcitat,
+Et somnoléntos íncrepat,
+Gallus negántes árguit.
+
+Gallo canénte, spes redit,
+Ægris salus refúnditur,
+Mucro latrónis cónditur,
+Lapsis fides revértitur.
+
+Jesu, labántes réspice,
+Et nos vidéndo córrige:
+Si réspicis, labes cadunt,
+Fletúque culpa sólvitur.
+
+Tu, lux, refúlge sénsibus,
+Mentísque somnum díscute:
+Te nostra vox primum sonet,
+Et vota solvámus tibi.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+{RUBRIC: Ad Benedíctus Antiphona ut in Proprio de Tempore.}
+
+### Canticum Zachariæ
+
+*Luc. 1, 68-79*
+
+BENEDICTUS † Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a século sunt, prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+{RUBRIC: Oratio convéniens.}
+
+{RUBRIC: Reliqua ut in Ordinario, 11.}
+
+{RUBRIC: Psalmi cum Cantico de Dominica superius appositi dicuntur etiam, sub Antiphonis Officio diei congruentibus, in Vigilia Nativitatis Domini et Epiphaniæ, in Dominica, etiam translata, infra Octavam Nativitatis, in Duplicibus I vel II classis, in Festis novem Lectionum Domini, B. Mariæ Virginis, Angelórum, S. Joannis Baptistæ, S. Joseph, Apostolórum, Evangelistárum et per Octavas privilegiátas; item que in quolibet Festo novem Lectionum próprias Antiphonas ad Laudes habénti, quando de eis persolvitur Officium.}
+
+---
+
+### Ad Laudes II
+
+*In Dominicis Septuagesimæ, Sexagesimæ et Quinquagesimæ.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Antiphonæ de Laudibus Dominicæ currentis, ut in Proprio de Tempore.}
+
+### Psalmus 50
+
+MISERERE † mei, Deus, \* secúndum magnam misericórdiam tuam.

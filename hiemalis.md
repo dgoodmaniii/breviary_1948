@@ -2088,3 +2088,101 @@ Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos 
 ### Psalmus 50
 
 MISERERE † mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim, in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim, veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis: \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus: \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua: \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui: \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.
+
+Dómine, lábia mea apéries: \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem útique: \* holocáustis non delectáberis.
+
+Sacrifícium Deo spíritus contribulátus: \* cor contrítum, et humiliátum, Deus, non despícies.
+
+Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jerúsalem.
+
+Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
+
+### Psalmus 117
+
+CONFITEMINI Dómino quóniam bonus: \* quóniam in séculum misericórdia ejus.
+
+Dicat nunc Israël quóniam bonus: \* quóniam in séculum misericórdia ejus.
+
+Dicat nunc domus Aaron: \* quóniam in séculum misericórdia ejus.
+
+Dicant nunc qui timent Dóminum: \* quóniam in séculum misericórdia ejus.
+
+De tribulatióne invocávi Dóminum: \* et exaudívit me in latitúdine Dóminus.
+
+Dóminus mihi adjútor: \* non timébo quid fáciat mihi homo.
+
+Dóminus mihi adjútor: \* et ego despíciam inimícos meos.
+
+Bonum est confídere in Dómino, \* quam confídere in hómine:
+
+Bonum est speráre in Dómino, \* quam speráre in princípibus.
+
+Omnes gentes circuiérunt me: \* et in nómine Dómini quia ultus sum in eos.
+
+Circumdántes circumdedérunt me: \* et in nómine Dómini quia ultus sum in eos.
+
+Circumdedérunt me sicut apes, et exarsérunt sicut ignis in spinis: \* et in nómine Dómini quia ultus sum in eos.
+
+Impúlsus evérsus sum ut cáderem: \* et Dóminus suscépit me.
+
+Fortitúdo mea, et laus mea Dóminus: \* et factus est mihi in salútem.
+
+Vox exsultatiónis, et salútis \* in tabernáculis justórum.
+
+Déxtera Dómini fecit virtútem: déxtera Dómini exaltávit me, \* déxtera Dómini fecit virtútem.
+
+Non móriar, sed vivam: \* et narrábo ópera Dómini.
+
+Castígans castigávit me Dóminus: \* et morti non trádidit me.
+
+Aperíte mihi portas justítiæ, ingréssus in eas confitébor Dómino: \* hæc porta Dómini, justi intrábunt in eam.
+
+Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
+
+Lápidem, quem reprobavérunt ædificántes: \* hic factus est in caput ánguli.
+
+A Dómino factum est istud: \* et est mirábile in óculis nostris.
+
+Hæc est dies, quam fecit Dóminus: \* exsultémus, et lætémur in ea.
+
+O Dómine, salvum me fac, o Dómine, bene prosperáre: \* benedíctus qui venit in nómine Dómini.
+
+Benedíximus vobis de domo Dómini: \* Deus Dóminus, et illúxit nobis.
+
+Constitúite diem solémnem in condénsis, \* usque ad cornu altáris.
+
+Deus meus es tu, et confitébor tibi: \* Deus meus es tu, et exaltábo te.
+
+Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
+
+Confitémini Dómino quóniam bonus: \* quóniam in séculum misericórdia ejus.

@@ -3040,3 +3040,123 @@ Súscipe servum tuum in bonum: \* non calumniéntur me supérbi.
 Fac cum servo tuo secúndum misericórdiam tuam: \* et justificatiónes tuas doce me.
 
 Servus tuus sum ego: \* da mihi intelléctum, ut sciam testimónia tua.
+
+Tempus faciéndi, Dómine: \* dissipavérunt legem tuam.
+
+Ideo diléxi mandáta tua, \* super aurum et topázion.
+
+Proptérea ad ómnia mandáta tua dirigébar: \* omnem viam iníquam ódio hábui.
+
+#### Per Annum
+
+**Ant.** Allelúja, tuus sum ego, salvum me fac, Dómine, allelúja, allelúja.
+
+**Capitulum** *Gal. 6, 2*
+
+ALTER altérius ónera portáte, et sic adimplébitis legem Christi.
+
+℟. br. In ætérnum, Dómine, \* Pérmanet verbum tuum. In ætérnum. ℣. In séculum séculi véritas tua. Pérmanet. Glória Patri. In ætérnum. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: Oratio convéniens.}
+
+{RUBRIC: Reliqua ut in Ordinario. 21}
+
+---
+
+### Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Successíbus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prǽmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: Per Annum:} **Ant.** Allelúja.
+
+### Psalmus 118, ix
+
+MIRABILIA testimónia tua: \* ídeo scrutáta est ea ánima mea.
+
+Declarátio sermónum tuórum illúminat: \* et intelléctum dat párvulis.
+
+Os meum apérui, et attráxi spíritum: \* quia mandáta tua desiderábam.
+
+Aspice in me, et miserére mei, \* secúndum judícium diligéntium nomen tuum.
+
+Gressus meos dírige secúndum elóquium tuum: \* et non dominétur mei omnis injustítia.
+
+Rédime me a calúmniis hóminum: \* ut custódiam mandáta tua.
+
+Fáciem tuam illúmina super servum tuum: \* et doce me justificatiónes tuas.
+
+Éxitus aquárum deduxérunt óculi mei: \* quia non custodiérunt legem tuam.
+
+Justus es, Dómine: \* et rectum judícium tuum.
+
+Mandásti justítiam testimónia tua: \* et veritátem tuam nimis.
+
+Tabéscere me fecit zelus meus: \* quia oblíti sunt verba tua inimíci mei.
+
+Ignítum elóquium tuum veheménter: \* et servus tuus diléxit illud.
+
+Adolescéntulus sum ego et contémptus: \* justificatiónes tuas non sum oblítus.
+
+Justítia tua, justítia in ætérnum: \* et lex tua véritas.
+
+Tribulátio, et angústia invenérunt me: \* mandáta tua meditátio mea est.
+
+Æquitas testimónia tua in ætérnum: \* intelléctum da mihi, et vivam.
+
+### Psalmus 118, x
+
+CLAMAVI in toto corde meo, exáudi me, Dómine: \* justificatiónes tuas requíram.
+
+Clamávi ad te, salvum me fac: \* ut custódiam mandáta tua.
+
+Prævéni in maturitáte, et clamávi: \* quia in verba tua supersperávi.
+
+Prævenérunt óculi mei ad te dilúculo: \* ut meditárer elóquia tua.
+
+Vocem meam audi secúndum misericórdiam tuam, Dómine: \* et secúndum judícium tuum vivífica me.
+
+Appropinquavérunt persequéntes me iniquitáti: \* a lege autem tua longe facti sunt.
+
+Prope es tu, Dómine: \* et omnes viæ tuæ véritas.
+
+Inítio cognóvi de testimóniis tuis: \* quia in ætérnum fundásti ea.
+
+Vide humilitátem meam, et éripe me: \* quia legem tuam non sum oblítus.
+
+Júdica judícium meum, et rédime me: \* propter elóquium tuum vivífica me.
+
+Longe a peccatóribus salus: \* quia justificatiónes tuas non exquisiérunt.
+
+Misericórdiæ tuæ multæ, Dómine: \* secúndum judícium tuum vivífica me.
+
+Multi qui persequúntur me, et tríbulant me: \* a testimóniis tuis non declinávi.
+
+Vidi prævaricántes, et tabescébam: \* quia elóquia tua non custodiérunt.
+
+Vide quóniam mandáta tua diléxi, Dómine: \* in misericórdia tua vivífica me.
+
+Princípium verbórum tuórum, véritas: \* in ætérnum ómnia judícia justítiæ tuæ.
+
+### Psalmus 118, xi
+
+PRINCIPES persecúti sunt me gratis: \* et a verbis tuis formidávit cor meum.

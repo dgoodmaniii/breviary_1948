@@ -1275,6 +1275,153 @@ Quid autem observandum sit, cum mensis, cui quinque Dominicæ assignantur, non h
 
 9. Lectiones de Scriptura positæ in Communi Sanctorum leguntur in Festis, ubi assignantur in Proprio Sanctorum per annum. Rursus, quando aliquod Festum in propria Ecclesia solemniter celebratur: item, quando aliquod Festum novem Lectionum occurrit in Quadragesima, et Quatuor Temporibus, in secunda Feria Rogationum, et in Vigilia Ascensionis, in quibus Feriis in Officio de Tempore non assignantur Lectiones de Scriptura, sed de Homilia; tunc enim in Festis recurrendum est ad Lectiones de Scriptura positas in Communi Sanctorum. Quod si in aliquibus ex supradictis Feriis occurrat dies Octava alicujus Festi habentis Octavam, tunc in primo Nocturno diei Octavæ repetantur Lectiones, quæ in primo Nocturno Festi lectæ fuerint: si vero occurrat dies infra Octavam, tunc sumantur de Communi. Aliæ Lectiones secundi et tertii Nocturni positæ in Communi Sanctorum similiter leguntur, quando in Proprio Sanctorum assignantur, et quando in aliqua Ecclesia aliquod Festum celebratur cum novem Lectionibus (quia in ea est solemne, aut consuetum in ea celebrari), quod proprias et approbatas de Festo Lectiones non habuerit.
 
-10. Lectiones primi Nocturni leguntur cum titulo libri, ex quo sumuntur, nisi aliter in propriis locis notetur. Lectiones etiam secundi Nocturni, quando sunt ex aliquo Sermone vel Tractatu,
+10. Lectiones primi Nocturni leguntur cum titulo libri, ex quo sumuntur, nisi aliter in propriis locis notetur. Lectiones etiam secundi Nocturni, quando sunt ex aliquo Sermone vel Tractatu, leguntur cum titulo et nomine Auctoris; alias minime. Et similiter in tertio Nocturno præponitur titulus auctoris cujus est Homilia.
+
+11. In fine cujusque Lectionis dicitur **Tu autem Dómine miserére nobis,** et respondetur **Deo grátias.** Quod etiam fit in Lectionibus brevibus in principio Completorii, et in fine Primæ post **Pretiósa** præterquam in triduo majoris Hebdomadæ ante Pascha, et in Officio Defunctorum, ut suis locis ponitur.
+
+#### XXVII De Responsoriis post Lectiones
+
+1. Responsoria dicuntur ad Matutinum post Lectiones: id est, post quamlibet Lectionem dicitur unum Responsorium, ut infra.
+
+2. In Festis novem Lectionum (præterquam in Festo sanctorum Innocentium, quando non venerit in Dominica), et in Dominicis ab Octava Paschæ inclusive usque ad Adventum exclusive, et a Dominica infra Octavam Nativitatis inclusive usque ad Septuagesimam exclusive, dicuntur octo tantum Responsoria; et in fine tertii, sexti, et octavi dicitur **Glória Patri,** cum repetitione partis Responsorii: quod regulare est in fine ultimi Responsorii cujuslibet Nocturni, tam in Officio novem quam trium Lectionum: excepto Tempore Passionis, quo Tempore, loco **Glória Patri,** repetitur Responsorium a principio: excepto etiam Officio Defunctorum, in quo illius loco dicitur **Réquiem ætérnam, etc.** Qui Versus **Glória Patri** quibusdam diebus dicitur in primo Responsorio, ut in propriis locis annotatur. Post nonam Lectionem prædictis diebus, quando octo tantum dicuntur Responsoria, immediate dicitur Hymnus **Te Deum.**
+
+3. In Dominicis Adventus, et in Dominicis a Septuagesima usque ad Dominicam Palmarum inclusive, et in triduo ante Pascha, dicuntur novem Responsoria, quia tunc non dicitur **Te Deum.**
+
+4. In Officio autem trium Lectionum, quando fit de Festo, et in Feriis Temporis Paschalis, quod est inter Dominicam in Albis et Ascensionem (excepta Feria secunda Rogationum, in qua ponitur tertium Responsorium), dicuntur duo Responsoria, quia post tertiam Lectionem dicitur **Te Deum.** Quæ Responsoria in Festis sumuntur de Communi Sanctorum, et in dictis Feriis Temporis Paschalis, quando alia propria non assignantur, sumuntur de Dominica in qua primo sunt posita, hoc ordine: secunda et quinta Feria, primum et secundum Responsorium primi Nocturni: Feria tertia et sexta, primum et secundum Responsorium secundi Nocturni: Feria quarta primum et secundum Responsorium tertii Nocturni.
+
+5. In aliis Feriis extra Tempus Paschale dicuntur tria Responsoria (quia in illis non dicitur **Te Deum**), hoc ordine: Feria secunda et quinta, tria Responsoria primi Nocturni: Feria tertia et sexta, tria Responsoria secundi Nocturni: Feria quarta et Sabbato, quando in eo fit de Feria, tria Responsoria tertii Nocturni Dominicæ præcedentis, in qua primo sunt posita. Verum quia in tertio Nocturno Dominicarum a tertia post Pentecosten inclusive, usque ad Adventum exclusive, non habetur nisi unum Responsorium dicendum infra Hebdomadam, quod est septimum in Dominica (propterea quod Responsorium **Duo Séraphim** non dicitur nisi in prædictis Dominicis); ideo Feria quarta et Sabbato, quando Responsoria sumenda erunt ex tertio Nocturno, primum Responsorium erit quod est septimum Dominicæ: secundo et tertio loco dicitur secundum et tertium sequentis Feriæ, id est, post secundam et tertiam Lectionem dicitur secundum et tertium Responsorium, quod est secundum et tertium secundæ sequentis Feriæ, si propria Responsoria habuerit; alioquin, si non habuerit propria, dicitur secundum et tertium Responsorium primi Nocturni ejusdem Dominicæ. Ab Octava Epiphaniæ usque ad Septuagesimam habentur Responsoria propria in singulis Feriis, excepto Sabbato, in quo, quando fit de Feria, dicuntur Responsoria Feriæ quartæ.
+
+6. Sumuntur autem Responsoria ex eo loco, ubi primo sunt posita in principio mensis, vel libri, et repetuntur in aliis sequentibus Dominicis illius mensis in quibus alia non assignantur, vel donec de illo libro legitur, unde sumpta sunt Responsoria. Quæ autem in prima Hebdomada mensis posita sunt per Ferias, repetuntur eodem ordine in eisdem Feriis per sequentes Hebdomadas, donec alia ponantur. Ubi vero non adsunt propria, semper ex Nocturnis Dominicæ sumuntur dicto ordine.
+
+7. Si Responsoria primi Nocturni ejus Dominicæ, in qua primo ponuntur, propter Festum Duplex in ea occurrens, in ipsa Dominica poni non possint, ponantur prima die ejus Hebdomadæ, in qua occurrit fieri de Feria, et omittantur alia quæ forte in illa Feria propria haberentur. Si vero in tota Hebdomada non occurrat dies in quo fiat de Feria, illa Responsoria ponantur in sequenti Hebdomada, vel Dominica similiter non impedita, et dummodo in ea alia Responsoria non sint primo ponenda; alioquin eo anno omittantur. Responsoria etiam quæ in aliquibus Feriis per Hebdomadam habentur, si eo die quo posita sunt, non possunt dici propter Festum occurrens, non sunt transferenda in aliam diem sed omittuntur.
+
+8. Tempore Paschali, in fine Responsorii, ante Versum, additur **Allelúja.**
+
+#### XXVIII De Responsoriis Brevibus Horarum
+
+1. Responsoria brevia dicuntur post Capitulum ad Primam, Tertiam, Sextam, et Nonam, et ad Completorium, præterquam in triduo ante Pascha usque ad Nonam Sabbati in Albis inclusive, quibus diebus non dicuntur. Ad Primam et Completorium semper dicuntur eodem modo, ut in Psalterio. In aliis Horis, quando fit Officium de Dominica, vel Feria per annum, dicuntur ut habentur in Psalterio. In Adventu autem, Quadragesima, Tempore Passionis et Paschali, ut suis locis habentur propria. In Festis similiter, quando non habentur propria, dicuntur ut in Communi Sanctorum.
+
+2. In fine Responsorii brevis dicitur **Glória Patri,** cum repetitione Responsorii eo modo quo ordinatur ad Primam in Psalterio, præterquam Tempore Passionis: tunc enim non dicitur **Glória Patri** in Officio de Tempore, sed solum repetitur Responsorium breve a principio.
+
+3. In Responsorio brevi ad Primam, loco Versus: **Qui sedes etc.,** in Adventu dicitur: **Qui ventúrus es in mundum,** tam in Dominicis et Feriis, quam in Festis, excepto Festo Immaculatæ Conceptionis beatæ Mariæ et per Octavam. In Nativitate Domini usque ad Epiphaniam, etiam in Festis occurrentibus; in Festo Corporis Christi, et per Octavam, et in omni Officio beatæ Mariæ, tam novem quam trium Lectionum, etiamsi infra ejusdem Octavas fiat de Festo vel de Dominica, dicitur: **Qui natus es de María Vírgine.** In Epiphania, et per Octavam, et in Festo Transfigurationis, dicitur: **Qui apparuísti hódie.** A Dominica in Albis inclusive, usque ad Ascensionem exclusive, tam in Officio de Tempore, quam de Sanctis (excepto Officio beatæ Mariæ) semper dicitur: **Qui surrexísti a mórtuis.** In Ascensione usque ad Pentecosten exclusive dicitur: **Qui scandis super sídera.** In Pentecoste et reliquo anni tempore, tam in Officio de Tempore quam de Sanctis, dicitur: **Qui sedes ad déxteram Patris,** ut in Psalterio. Aliqua præterea sunt propria Officia, veluti Pretiosissimi Sanguinis, et Sacratissimi Cordis D. N. J. C. ac septem Dolorum B. M. V., in quibus proprius versus assignatur, ut suis locis ponitur.
+
+4. Responsoria brevia aliarum Horarum, quæ ponuntur in prima Dominica de Adventu, dicuntur per totum Adventum, quando fit Officium de Tempore. Similiter quæ ponuntur in prima Dominica Quadragesimæ, dicuntur usque ad Dominicam Passionis exclusive. Et quæ ponuntur in Dominica Passionis, dicuntur usque ad Feriam quintam in Cœna Domini exclusive. Item quæ ponuntur in Dominica in Albis, dicuntur usque ad Ascensionem exclusive. Quæ vero ponuntur in aliquo Festo habente Octavam, dicuntur per totam Octavam quando fit de Octava. In Officio autem beatæ Mariæ, tam novem quam trium Lectionum, exceptis Festis quæ habent propria, dicuntur semper Responsoria brevia de Communi Virginum.
+
+5. Tempore Paschali, a Dominica in Octava Paschæ usque ad Sabbatum post Pentecosten inclusive, in fine Responsorii brevis ante primum Versum dicuntur duo **Allelúja,** quæ etiam post dictum primum Versum repetuntur pro parte Responsorii; et in fine secundi Versus unum tantum **Allelúja,** tam in Officio de Tempore quam de Sanctis, ut dicitur in Rubrica quæ est in Sabbato in Albis. Extra tempus Paschale, quamvis in aliquibus Festis ad Tertiam, Sextam et Nonam, Responsoriis brevibus addantur **Allelúja,** non ideo adduntur ad Primam et Completorium.
+
+#### XXIX De Capitulis
+
+1. Capitula semper dicuntur (præterquam a Feria quinta in Cœna Domini, usque ad Vesperas Sabbati in Albis exclusive, et præterquam in Officio Defunctorum) ad Vesperas, Laudes et alias Horas, dictis Psalmis et Antiphonis; ad Completorium vero dicto etiam Hymno.
+
+2. Capitula Dominicalia posita in Psalterio in primis et secundis Vesperis, in Laudibus et Horis, dicuntur a tertia Dominica post Pentecosten usque ad Adventum, et a secunda post Epiphaniam usque ad Septuagesimam. Capitula autem ferialia dicuntur post Octavam Pentecostes usque ad Adventum, et ab Octava Epiphaniæ usque ad Dominicam primam Quadragesimæ. Aliis temporibus dicuntur ut in Proprio de Tempore: si fit de Sanctis, ut in Proprio de Sanctis cum propria adsunt; alioquin de Communi Sanctorum. Capitulum Primæ et Completorii (quando Capitula dicuntur) numquam mutatur, ut in Psalterio.
+
+3. In Dominicis ab Adventu usque ad Octavam Epiphaniæ, et a Septuagesima usque ad tertiam post Pentecosten, et in Feriis temporis Paschalis, et in omnibus Festis regulariter, Capitulum positum in primis Vesperis dicitur in Laudibus, ad Tertiam, et in secundis Vesperis, quibusdam exceptis, quæ suis locis assignantur.
+
+4. In Feriis tempore Paschali ad Primam dicitur Capitulum **Regi sæculórum,** sicut in Dominicis et in Festis. Post Capitulum semper respondetur **Deo grátias.**
+
+#### XXX De Oratione
+
+1. Oratio in Vesperis et Laudibus dicitur post Antiphonas ad **Magníficat** et **Benedíctus** immediate, nisi quando dicendæ sunt Preces, quæ dicuntur post Antiphonam, et in fine illarum Oratio. Ad Primam et alias Horas Oratio dicitur post Responsorium breve, nisi dicendæ sint Preces: tunc enim Oratio dicitur post Preces. Ad Completorium Oratio dicitur post Antiphonam **Salva nos,** nisi dicendæ sint Preces: et tunc dicitur post illas.
+
+2. Ad Primam et Completorium numquam mutantur Orationes, quæ habentur in Psalterio, præterquam in triduo ante Pascha, in quo triduo ad omnes Horas usque ad Nonam Sabbati sancti inclusive post Psalmum **Miserére,** dicitur Oratio diei, ut suo loco ponitur. In aliis Horis regulariter dicitur Oratio quæ dicta est in primis Vesperis. In Quadragesima autem, Quatuor Temporibus, Vigiliis, et Feria secunda Rogationum, Oratio quæ dicta est in Laudibus, dicitur tantum ad Tertiam, Sextam et Nonam. In Vesperis autem sequentibus, si fit de Feria, dicitur vel alia propria, ut in Quadragesima, vel Dominicæ præcedentis, ut in aliis Feriis. Quæ Oratio præcedentis Dominicæ semper dicitur in feriali Officio per Hebdomadam, quando propria non assignatur. Infra Octavas dicitur Oratio ut in die Festi: similiter et in die Octava, nisi alia propria assignetur.
+
+3. Ante Orationem, etiam quando aliquis solus recitat Officium, semper dicitur Versus **Dóminus vobíscum,** et respondetur **Et cum spíritu tuo.** Qui Versus non dicitur ab eo qui non est saltem in ordine Diaconatus, nec a Diacono, præsente Sacerdote, nisi de illius licentia. Si quis autem ad Diaconatus ordinem non pervenerit, ejus loco dicat **Dómine, exáudi oratiónem meam,** et respondetur **Et clamor meus ad te véniat.** Deinde dicitur **Orémus,** postea Oratio: quæ si unica tantum dicatur, Versus **Dóminus vobíscum,** vel **Dómine exáudi,** repetitur finita Oratione, postquam fuerit responsum **Amen.** Sin autem plures Orationes dicendæ sint, ante quamlibet Orationem dicitur Antiphona et Versus, deinde **Orémus:** et post ultimam Orationem repetitur **Dóminus vobíscum:** postea dicitur **Benedicámus Dómino,** respondetur **Deo grátias.** Deinde dicitur Versus **Fidélium ánimæ:** qui Versus non dicitur post **Benedicámus Dómino,** ad Primam ante **Pretiósa etc.,** neque ad Completorium ante Versum **Benedícat etc.,** nec quando post aliquam Horam immediate sequitur Officium parvum beatæ Mariæ, vel Officium Defunctorum, aut Septem Psalmi Pœnitentiales, vel solæ Litaniæ.
+
+4. Si Oratio dirigatur ad Patrem, concluditur **Per Dóminum;** si ad Filium, **Qui vivis et regnas.** Si in principio Orationis fiat mentio Filii, dicatur **Per eúmdem;** si in fine Orationis, dicatur **Qui tecum vivit et regnat.** Si fiat mentio Spiritus Sancti, dicatur **In unitáte ejúsdem Spíritus Sancti, etc.**
+
+5. Quando plures Orationes dicuntur, prima tantum dicitur sub sua conclusione **Per Dóminum,** vel aliter, ut supra, aliæ non concluduntur, nisi in ultima Oratione; sed unicuique Orationi semper præponitur **Orémus,** præterquam in Officio Defunctorum, in quo, alio modo quam ut supra, Orationes dicuntur: item in Litaniis, Orationes omnes dicuntur conjunctim sub uno **Orémus,** ut suis locis habetur.
+
+#### XXXI De Hymno Te Deum
+
+1. Hymnus **Te Deum** dicitur in omnibus Festis per annum, tam trium quam novem Lectionum, et per eorum Octavas, excepto Festo sanctorum Innocentium, nisi venerit in Dominica; dicitur tamen in ejus die Octava. Dicitur etiam in omnibus Dominicis a Pascha Resurrectionis inclusive, usque ad Adventum exclusive; et a Nativitate Domini inclusive, usque ad Septuagesimam exclusive, et in omnibus Feriis temporis Paschalis, scilicet a Dominica in Albis usque ad Ascensionem, excepta Feria secunda Rogationum, in qua non dicitur.
+
+2. Non dicitur autem in Dominicis Adventus, et a Septuagesima usque ad Dominicam Palmarum inclusive, neque in Feriis extra tempus Paschale.
+
+3. Cum dicitur, omittitur semper nonum, vel tertium Responsorium, et statim dicitur post ultimam Lectionem.
+
+4. Cum non dicitur, ejus loco ponitur nonum, vel tertium Responsorium; quo dicto statim inchoantur Laudes. Similiter quando dicitur **Te Deum,** eo Hymno dicto statim inchoantur Laudes, præterquam in Nocte Nativitatis Domini: quia tunc dicitur Oratio, postea celebratur Missa, ut suo loco notatur.
+
+#### XXXII De Oratione Dominica et Salutatione Angelica
+
+1. Oratio Dominica **Pater noster,** et Salutatio Angelica **Ave, María,** semper dicitur secreto ante omnes Horas, præterquam ad Completorium, in cujus principio post Lectionem brevem **Fratres: Sóbrii,** dicto Versu **Adjutórium nostrum,** dicitur tantum **Pater noster,** secreto; et in fine Completorii, statim post Orationem beatæ Mariæ, dicitur **Pater noster, Ave María,** et **Credo,** totum similiter secreto. Finitis Horis, et dicto Versu **Fidélium ánimæ,** dicitur similiter secreto **Pater noster** tantum, nisi sequatur Officium beatæ Mariæ, quia tunc post illud dicitur **Pater noster,** ut supra, et nisi alia Hora subsequatur: tunc enim dicitur semel tantum **Pater noster,** cum **Ave María,** pro principio sequentis Horæ; qua finita, dicitur **Pater noster,** ita ut semper dicatur in fine ultimæ Horæ. Si autem post Vesperas immediate sequatur Completorium, dicto **Fidélium ánimæ** incipitur Versus **Jube, domne, benedícere.**
+
+2. Quando in fine Orationis Dominicæ proferendum est clara voce **Et ne nos indúcas,** semper in principio eadem voce proferuntur hæc duo verba **Pater noster,** ut in Precibus, et similibus: alias numquam proferuntur, sed dicitur totum secreto. Ad Laudes vero et Vesperas quando in feriali Officio dicuntur Preces, totum dicitur clara voce ab Hebdomadario.
+
+3. Salutatio Angelica semper dicitur ante Officium beatæ Mariæ, quando non conjungitur cum Officio Domini; quia tunc sufficit dixisse eam in principio cum Oratione Dominica.
+
+#### XXXIII De Symbolo Apostolorum et Symbolo S. Athanasii
+
+1. Symbolum Apostolorum semper dicitur ante Matutinum et Primam, et finito Completorio post Orationem Angelicam, totum secreto: etiamsi ad Primam et Completorium iterum dicendum sit cum Precibus. Quando vero dicitur cum Precibus ad Primam et Completorium, clara voce profertur **Credo in Deum,** et in fine **Carnis resurrectiónem:** reliquum dicitur secreto: alias totum secreto dicitur, ut supra.
+
+2. Symbolum S. Athanasii dicitur ad Primam post Psalmum **Retríbue,** in omnibus Dominicis per annum, quando Officium fit de Dominica, exceptis Dominicis infra Octavas Nativitatis Domini, Epiphaniæ, Ascensionis, et Corporis Christi, ac Dominica Resurrectionis et Pentecostes, in quibus dicuntur tantum tres Psalmi consueti, ut in Festis. In Dominicis infra alias Octavas, et in Dominica Trinitatis dicitur; alias numquam, neque si aliquod Festum Duplex celebretur in Dominica. Et in fine illius dicitur **Glória Patri.**
+
+#### XXXIV De Precibus
+
+1. Preces sunt aliquot Versus qui aliquando dicuntur ante Orationem, incipientes a **Kýrie eléison** vel a **Pater noster.**
+
+2. Preces Dominicales ad Primam et Completorium, ut in Psalterio, non dicuntur in Duplicibus, nec infra Octavas, nec in Vigilia Epiphaniæ, et Feria sexta et Sabbato post Octavam Ascensionis, etiamsi infra Octavam fiat Officium de Dominica, vel alio Festo Semiduplici, quia tunc ratione Octavæ non dicuntur; alias autem semper dicuntur.
+
+3. Preces feriales ad Laudes et per Horas distinctæ, ut in Psalterio, dicuntur tantum in Feriis Adventus, Quadragesimæ, Quatuor Temporum, et Vigiliarum quæ jejunantur (exceptis Vigilia Nativitatis Domini, ac Vigilia et Quatuor Temporibus Pentecostes), et tunc dicuntur flexis genibus. In aliis Feriis per annum numquam dicuntur nisi Dominicales, et in illis non flectuntur genua.
+
+4. In Feriis Adventus, Quadragesimæ, et Quatuor Temporum, dicuntur Preces feriales etiam ad Vesperas, si non sequatur Festum: ad Completorium dicuntur consuetæ de Dominica, sed flexis genibus. Dicuntur autem Preces flexis genibus ab Hebdomadario usque ad Versum **Dóminus vobíscum** ante primam Orationem: a circumstantibus autem, usque ad Versum **Benedicámus Dómino,** post ultimam Orationem.
+
+5. In Vigiliis Preces feriales dicuntur tantum ad Matutinum, et per Horas: ad Vesperas vero sequentes non dicuntur, quia inde fit de Festo. Quod si post Vigiliam S. Matthiæ sequatur primus dies Quadragesimæ, in Vesperis dicuntur Preces feriales, quamvis dicenda sit Oratio Dominicæ præcedentis, et non Vigiliæ. Quod etiam servatur quando in Feria sexta et Sabbato Quatuor Temporum Septembris fit Officium de Feria, cum in eis non occurrat Festum novem Lectionum: tunc enim in Vesperis Feriæ sextæ dicuntur Preces, quamvis dicenda sit Oratio Dominicæ præcedentis, non autem Feriæ Quatuor Temporum.
+
+6. Psalmus **Miserére** dicitur cum Precibus ad Vesperas tantum, et Psalmus **De profúndis** ad Laudes. In Officio Defunctorum dicuntur Psalmi, qui in eo Officio designantur.
+
+#### XXXV De Commemorationibus Communibus, seu Suffragiis Sanctorum
+
+1. Commemorationes communes, seu Suffragia de Sanctis quæ habentur in Psalterio post Vesperas Sabbati, dicuntur in fine Vesperarum et Laudum, ab Octava Epiphaniæ usque ad Dominicam Passionis exclusive, et ab Octava Pentecostes usque ad Adventum exclusive, in Dominicis, Feriis et Festis (nisi Officium sit Duplex, vel infra Octavas, etiamsi de Dominica, vel Semiduplici infra eas fiat), et illis adjungitur Commemoratio de Patrono, vel Titulo Ecclesiæ, ante vel post Commemorationem de sancta Maria, de sancto Joseph, et de Apostolis, pro dignitate illius; ita tamen, ut semper ultimo loco ponatur Commemoratio de Pace. Et ante illas in feriali Officio fit Commemoratio de Cruce, quæ habetur in Psalterio post Laudes Feriæ secundæ.
+
+2. Tempore Paschali fit alia Commemoratio de Cruce, ut ibi ponitur in Laudibus Feriæ secundæ post Dominicam in Albis, et ea solum tunc dicitur; non tamen in Duplicibus, neque infra Octavas, neque in Officio votivo de sanctissimo Eucharistiæ Sacramento, aut de Passione Domini.
+
+3. Si facienda sit Commemoratio alicujus Festi occurrentis, semper fit ante ipsa Suffragia consueta, etiam ante Commemorationem de Cruce.
+
+4. Commemoratio de sancta Maria non fit cum aliis, quando dicitur ejus Officium parvum, nec quandocumque fit Officium de ea.
+
+#### XXXVI De Antiphonis Beatæ Mariæ in fine Officii
+
+1. Antiphonæ beatæ Mariæ positæ in fine Psalterii post Completorium, singulæ dicuntur pro temporis diversitate, ut ibi annotatur, præterquam in triduo majoris Hebdomadæ ante Pascha.
+
+2. Dicuntur autem extra Chorum, tantum in fine Completorii, et in fine Matutini, dictis Laudibus, si tunc terminandum sit Officium; alioquin, si alia subsequatur Hora, in fine ultimæ Horæ. In Choro autem semper dicuntur quandocumque terminata aliqua Hora discedendum est a Choro.
+
+3. Numquam vero dicuntur post aliquam Horam, quando subsequitur cum Officio diei Officium Defunctorum, vel Septem Psalmi Pœnitentiales, aut Litaniæ, præterquam post Completorium, in quo semper dicuntur, etiamsi prædicta subsequantur: neque etiam dicuntur quando post aliquam Horam immediate subsequitur Missa. Dicuntur autem flexis genibus (præterquam in diebus Dominicis, a primis Vesperis Sabbati, et toto tempore Paschali), Hebdomadario tamen ad Orationem surgente.
+
+#### XXXVII De Officio parvo Beatæ Mariæ et aliis
+
+1. De Officio parvo beatæ Mariæ, de Officio Defunctorum, de Septem Psalmis Pœnitentialibus, et Litaniis, et de Psalmis Gradualibus, quando et quomodo, tam in Choro quam extra Chorum dicenda sint, habentur suis locis propriæ Rubricæ circa finem Breviarii.
+
+2. Tempore Paschali in Officio parvo beatæ Mariæ, quod dicitur in Choro, non additur **Allelúja** Antiphonis, neque Versibus, neque Responsoriis.
+
+---
+
+<!-- p. [unnumbered; section-opening page] -->
+# Additiones et Variationes
+
+### in Rubricis Breviarii
+
+## Ad Normam Bullæ «Divino Afflatu»
+
+---
+
+### Tit. I. — *De ratione divini Officii recitandi*
+
+IN recitatione divini Officii juxta Romanum Ritum Psalmi quotidie sumendi sunt ad singulas Horas canonicas de occurrenti hebdomadæ die, prout distribuuntur in Psalterio.
+
+2. Excipiuntur tamen omnia Festa novem Lectionum Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum, omnia Duplicia I et II classis aliorum Sanctorum, Vigiliæ Epiphaniæ et Pentecostes, Dominicæ infra Octavas et integræ Octavæ Domini quæ in universali Ecclesia recoluntur, et Feria VI post Octavam Ascensionis, quorum omnium Officium persolvendum est prout assignatur vel in Breviario, vel in Proprio Diœcesis aut Instituti; hac tamen lege, ut Psalmi ad Laudes, Horas et Completorium semper sumantur ex Dominica, ut in Psalterio, ad Matutinum vero et ad Vesperas dicantur ut in Communi, nisi speciales Psalmi sint assignati. Item excipiuntur Vigilia Nativitatis Domini, tres ultimi dies Hebdomadæ majoris et Commemoratio Omnium Fidelium Defunctorum, in quibus Psalmi dicuntur proprio loco adnotati.
+
+3. In quolibet alio Festo Duplici, etiam majori, vel Semiduplici, vel Simplici, et per omnes Octavas supra non exceptas, semper dicuntur Psalmi, cum Antiphonis ad omnes Horas, et Versibus ad Matutinum, ut in Psalterio de occurrenti hebdomadæ die; reliqua omnia, et Antiphonæ ad *Magnificat* et *Benedictus,* ut in Proprio aut Communi. Quod si aliquod ex Festis Duplicibus aut Semiduplicibus proprias vel peculiariter assignatas habeat Antiphonas in aliqua Hora majori, eas in eadem Hora cum suis Psalmis, et ad Matutinum etiam Versibus, retinet; in ceteris Horis Psalmi et Antiphonæ dicuntur de Feria occurrenti.
+
+4. In omnibus novem Lectionum Officiis in I Nocturno dicuntur semper Lectiones de Scriptura occurrenti juxta Rubricas, adhibitis Responsoriis quæ singulis Feriis assignantur, dummodo resumendæ vel anticipandæ non sint Lectiones cujusvis Dominicæ impeditæ, quæ semper dicuntur cum suis Responsoriis; aut primo non sint ponenda, juxta proprias Rubricas, Responsoria Feriæ II infra Hebdomadam I post Epiphaniam vel Feriæ II infra Hebdomadam I post Octavam Pentecostes; aut demum non occurrant Octavæ Domini quæ in universa Ecclesia recoluntur, in quibus semper adhibenda sunt Responsoria de Octava. In Festis tamen Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum, in omnibus Duplicibus I vel II classis, in aliis Festis quæ propria habeant Responsoria, et in Officiis quibusvis quæ Lectiones pariter habeant proprias vel quæ occurrant in Feriis Lectiones de Scriptura nullimode habentibus, tam Lectiones quam Responsoria, quæ propria non sint, sumuntur de Communi juxta Rubricas; adhibitis tamen, per Octavas, Responsoriis de Festo, si propria de ipsa Octava non habeantur. Quod si in Festis vel Officiis, quæ Lectiones etiam proprias habeant, reponendæ sint juxta Rubricas Lectiones de aliquo Initio Scripturæ occurrentis, eæ leguntur cum Responsoriis propriis de Festo, si hæc habeantur, secus de Tempore, ut supra; numquam vero cum Responsoriis de Communi aut de Octava, quæ non sit de Tempore.
+
+5. Porro sic persolvendum est Officium in Festis Duplicibus et Semiduplicibus superius non exceptis, cauto quod ultimæ tres Antiphonæ cum Psalmis ad Matutinum Feriæ IV et omnes Antiphonæ cum Psalmis ad Laudes cujusque Feriæ semper sumuntur de I loco, et Versus Nocturnorum atque Antiphonæ ad Horas, etiam Tempore Adventus, Quadragesimæ et Passionis, dicuntur ut per Annum: Ad Matutinum Invitatorium, Hymnus, Lectiones cum Responsoriis II et III Nocturni propria vel de Communi; Antiphonæ vero, Psalmi et Versus trium Nocturnorum, nec non Lectiones cum Responsoriis I Nocturni, de Feria occurrenti.
+
+Ad Laudes et ad Vesperas Antiphonæ cum Psalmis, de Feria; Capitulum, Hymnus, Versus et Antiphona ad *Benedictus* et ad *Magnificat* cum Oratione, aut ex Proprio aut de Communi.
+
+Ad Horas minores et Completorium Antiphonæ cum Psalmis semper dicuntur de occurrenti Feria. Ad Primam pro Lectione brevi legitur Capitulum Nonæ ex Proprio aut de Communi. Ad Tertiam, Sextam et Nonam Capitulum, Responsorium breve et Oratio pariter sumuntur aut ex Proprio aut de Communi.
+
+6. In Officio sanctæ Mariæ in Sabbato et in Festis Simplicibus Officium sic persolvendum est: ad Matutinum Invitatorium et Hymnus dicuntur de eodem Officio vel de iisdem Festis; Psalmi cum suis Antiphonis et Versu de Feria occurrenti, ut supra; I et II Lectio cum suis Responsoriis de Feria, III vero Lectio de Officio vel Festo; ad Laudes et Vesperas Antiphonæ cum Psalmis semper de Feria; Capitulum, Hymnus, Versus et Antiphona ad *Benedictus* vel ad *Magnificat* cum Oratione, aut ex Proprio aut de Communi; ad reliquas autem Horas omnia dicuntur ut supra de Festis Duplicibus aut Semiduplicibus ordinatur.
+
+7. Similiter ordinatur Officium de omnibus Octavis num. 2 non exceptis, juxta qualitatem ritus Duplicis vel Semiduplicis, aut Simplicis, sumptis tamen omnibus quæ propria vel de Communi sumenda edicuntur, de ipso die Festo, nisi tamen propria de Octava habeantur. Lectiones vero II et III Nocturni in diebus infra Octavam quæ pro-
 
 

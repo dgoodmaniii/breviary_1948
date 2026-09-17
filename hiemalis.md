@@ -1706,3 +1706,161 @@ Constítue, Dómine, legislatórem super eos: \* ut sciant gentes quóniam hómi
 ℣. Emítte Agnum, Dómine, Dominatórem terræ. ℟. De Petra desérti ad montem fíliæ Sion.
 
 {RUBRIC: Per Annum:} **Ant.** Exsúrge, Dómine, non prævéleat homo.
+
+℣. Média nocte surgébam ad confiténdum tibi. ℟. Super judícia justificatiónis tuæ.
+
+**Absol.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+{RUBRIC: In Adventu:} **Ant.** Gábriel Angelus.
+
+{RUBRIC: Per Annum:} **Ant.** Ut quid, Dómine. †
+
+### Psalmus 9, iii
+
+UT quid, Dómine, † recessísti longe, \* déspicis in opportunitátibus, in tribulatióne?
+
+Dum supérbit ímpius, incénditur pauper: \* comprehendúntur in consíliis quibus cógitant.
+
+Quóniam laudátur peccátor in desidériis ánimæ suæ: \* et iníquus benedícitur.
+
+Exacerbávit Dóminum peccátor, \* secúndum multitúdinem iræ suæ non quæret.
+
+Non est Deus in conspéctu ejus: \* inquinátæ sunt viæ illíus in omni témpore.
+
+Auferúntur judícia tua a fácie ejus: \* ómnium inimicórum suórum dominábitur.
+
+Dixit enim in corde suo: \* Non movébor a generatióne in generatiónem sine malo.
+
+Cujus maledictióne os plenum est, et amaritúdine, et dolo: \* sub lingua ejus labor et dolor.
+
+Sedet in insídiis cum divítibus in occúltis, \* ut interfíciat innocéntem.
+
+Óculi ejus in páuperem respíciunt: \* insidiátur in abscóndito, quasi leo in spelúnca sua.
+
+Insidiátur ut rápiat páuperem: \* rápere páuperem, dum áttrahit eum.
+
+In láqueo suo humiliábit eum: \* inclinábit se, et cadet, cum dominátus fúerit páuperum.
+
+Dixit enim in corde suo: Oblítus est Deus, \* avértit fáciem suam ne vídeat in finem.
+
+{RUBRIC: In Adventu:} **Ant.** Gábriel Angelus locútus est Maríæ, dicens: Ave, grátia plena; Dóminus tecum; benedícta tu inter mulíeres.
+
+**Ant.** María dixit.
+
+{RUBRIC: Per Annum:} **Ant.** Ut quid, Dómine, recessísti longe?
+
+**Ant.** Exsúrge. †
+
+### Psalmus 9, iv
+
+EXSURGE, † Dómine Deus, exaltétur manus tua: \* ne obliviscáris páuperum.
+
+Propter quid irritávit ímpius Deum? \* dixit enim in corde suo: Non requíret.
+
+Vides quóniam tu labórem et dolórem consíderas: \* ut tradas eos in manus tuas.
+
+Tibi derelíctus est pauper: \* órphano tu eris adjútor.
+
+Cóntere bráchium peccatóris et malígni: \* quærétur peccátum illíus, et non inveniétur.
+
+Dóminus regnábit in ætérnum, et in séculum séculi: \* períbitis, gentes, de terra illíus.
+
+Desidérium páuperum exaudívit Dóminus: \* præparatiónem cordis eórum audívit auris tua.
+
+Judicáre pupíllo et húmili, \* ut non appónat ultra magnificáre se homo super terram.
+
+{RUBRIC: In Adventu:} **Ant.** María dixit: Putas quális est ista salutátio, quia conturbáta est ánima mea, et quia paritúra sum Regem, qui claustrum virginitátis meæ non violábit?
+
+**Ant.** In advéntu.
+
+{RUBRIC: Per Annum:} **Ant.** Exsúrge, Dómine Deus, exaltétur manus tua.
+
+**Ant.** Justus Dóminus.
+
+### Psalmus 10
+
+IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Óculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+{RUBRIC: In Adventu:} **Ant.** In advéntu summi Regis mundéntur corda hóminum, ut digne ambulémus in occúrsum illíus: quia ecce véniet, et non tardábit.
+
+℣. Egrediétur Dóminus de loco sancto suo. ℟. Véniet, ut salvet pópulum suum.
+
+{RUBRIC: In Vigilia Nativ. Domini:} ℣. Hódie sciétis, quia véniet Dóminus. ℟. Et mane vidébitis glóriam ejus.
+
+{RUBRIC: Per Annum:} **Ant.** Justus Dóminus, et justítiam diléxit.
+
+℣. Prævenérunt óculi mei ad te dilúculo. ℟. Ut meditárer elóquia tua, Dómine.
+
+**Absolutio** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 Divínum auxílium. 9 Ad societátem cívium.
+
+---
+
+### Ad Laudes I
+
+*A Dominica I Adventus usque ad Dominicam ante Septuagesimam inclusive.*
+
+(Pater noster et Ave).
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: In Adventu: Antiphonæ de Laudibus Dominicæ currentis ut in Proprio de Tempore.}
+
+{RUBRIC: Per Annum:} **Ant.** Allelúja.
+
+{RUBRIC: Antiphonæ cum Psalmis, per Annum assignatæ, adhibentur semper, extra Octavam Nativitatis, quando fit Officium de qualibet Dominica minori.}
+
+### Psalmus 92, 1
+
+DOMINUS regnávit, decórem indútus est: \* indútus est Dóminus fortitúdinem, et præcínxit se.
+
+Etenim firmávit orbem terræ, \* qui non commovébitur.
+
+Paráta sedes tua ex tunc: \* a século tu es.
+
+Elevavérunt flúmina, Dómine: \* elevavérunt flúmina vocem suam.
+
+Elevavérunt flúmina fluctus suos, \* a vócibus aquárum multárum.
+
+Mirábiles elatiónes maris: \* mirábilis in altis Dóminus.
+
+Testimónia tua credibília facta sunt nimis: \* domum tuam decet sanctitúdo, Dómine, in longitúdinem diérum.
+
+**Ant.** Allelúja, Dóminus regnávit, decórem índuit, allelúja, allelúja.
+
+**Ant.** Jubiláte. †
+
+### Psalmus 99, 2
+
+JUBILATE † Deo, omnis terra: \* servíte Dómino in lætítia.
+
+Introíte in conspéctu ejus, \* in exsultatióne.
+
+Scitóte quóniam Dóminus ipse est Deus: \* ipse fecit nos, et non ipsi nos.
+
+Pópulus ejus, et oves páscuæ ejus: \* introíte portas ejus in confessióne, átria ejus in hymnis: confitémini illi.
+
+Laudáte nomen ejus: quóniam suávis est Dóminus, in ætérnum misericórdia ejus, \* et usque in generatiónem et generatiónem véritas ejus.
+
+**Ant.** Jubiláte Deo, omnis terra, allelúja.
+
+**Ant.** Benedícam te.

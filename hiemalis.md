@@ -1247,3 +1247,143 @@ TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: n
 
 ℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus tuas. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo spíritum meum. Glória Patri, et Fílio, et Spirítui Sancto. In manus tuas, Dómine, comméndo spíritum meum.
 
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+{RUBRIC: Postea ad Canticum dicitur sequens}
+
+**Ant.** Salva nos.
+
+### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum.
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace.
+
+{RUBRIC: Deinde, si Preces non fuerint recitandæ, statim dicitur Versus Dóminus vobíscum cum subsequenti Oratione et reliquis omnibus usque ad finem Completorii, ut infra.}
+
+{RUBRIC: In quolibet Officio semiduplici, in Officio sanctæ Mariæ in Sabbato, in Festis simplicibus, atque in Feriis per Annum communibus, post repetitam ad Nunc dimíttis Antiphonam dicuntur sequentes Preces, quæ tamen omittuntur in Vigilia Epiphaniæ, et omnibus insuper diebus, in quibus ad Vesperas dictæ sint Preces feriales.}
+
+{RUBRIC: Semper autem recitari debent, et flexis quidem genibus, in iis Feriis, in quibus ad Vesperas dictæ sint Preces feriales.}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sécula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sécula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sécula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolutis Precibus, vel, si Preces locum non habeant, repetita Antiphona post Nunc dimíttis, statim dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: Et non dicitur Versus Fidélium ánimæ, sed immediate subjungitur una ex finalibus beátæ Mariæ Virginis Antiphonis, quæ infra pro diversitate Temporis assignantur.}
+
+{RUBRIC: Postea subjungitur:}
+
+℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+{RUBRIC: Deinde dicitur secreto Pater noster, Ave María et Credo.}
+
+{RUBRIC: Si post Completorium immediate sequatur Matutinum, tunc bis dicitur Pater noster, Ave María et Credo, pro fine videlicet Officii diei præcedentis, et pro initio Officii diei sequentis.}
+
+---
+
+## Post singulas Horas
+
+{RUBRIC: In fine Laudum, vel, si post Laudes immediate subsequatur alia Hora, in fine ultimæ Horæ, sicuti et semper in fine Completorii, quamvis immediate sequatur Matutinum diei sequentis, tam in publica quam in privata divini Officii recitatione; atque in publica insuper recitatione post alias quascumque Horas, si tunc terminetur Officium et discedatur a Choro, dicitur sequens Antiphona finalis beátæ Mariæ Virginis.}
+
+{RUBRIC: I Post Laudes ac ceteras Horas, præter Completorium, dicto Versu Fidélium ánimæ et Oratione Dominica secreto recitata, subjungitur:}
+
+℣. Dóminus det nobis suam pacem. ℟. Et vitam ætérnam. Amen.
+
+{RUBRIC: Atque statim dicitur Antiphona finalis, ut infra.}
+
+{RUBRIC: II Post Completorium vero, recitata Benedictione Benedícat et custódiat nos, immediate subjungitur Antiphona finalis, ut infra.}
+
+### Antiphonæ finales Beátæ Mariæ Virginis
+
+{RUBRIC: 1 A Vesperis Sabbati ante Dominicam I Adventus usque ad II Vesperas Purificationis inclusive.}
+
+#### Antiphona
+
+ALMA Redemptóris Mater, quæ pérvia cæli
+Porta manes, et stella maris, succúrre cadénti,
+Súrgere qui curat, pópulo: tu quæ genuísti,
+Natúra miránte, tuum sanctum Genitórem,
+Virgo prius ac postérius, Gabriélis ab ore
+Sumens illud Ave, peccatórum miserére.
+
+##### In Adventu
+
+℣. Angelus Dómini nuntiávit Maríæ. ℟. Et concépit de Spíritu Sancto.
+
+Orémus. **Oratio**
+
+GRATIAM tuam, quæsumus, Dómine, méntibus nostris infúnde: ut, qui, Angelo nuntiánte, Christi Fílii tui incarnatiónem cognóvimus; per passiónem ejus et crucem, ad resurrectiónis glóriam perducámur. Per eúmdem Christum Dóminum nostrum. ℟. Amen.
+
+##### A I Vesperis Nativitatis Domini et deinceps
+
+℣. Post partum, Virgo, invioláta permansísti. ℟. Dei Génitrix, intercéde pro nobis.
+
+Orémus. **Oratio**
+
+DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti: tríbue, quæsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum Fílium tuum. ℟. Amen.
+
+{RUBRIC: 2 Post Purificationem, id est a Completorio diei 2 Februarii, etiam quando transfertur Festum Purificationis beátæ Mariæ Virginis, usque ad Nonam Sabbati ante Dominicam I Quadragesimæ inclusive:}
+
+#### Antiphona
+
+AVE, Regína cælórum,
+Ave, Dómina Angelórum:
+Salve, radix, salve, porta,
+Ex qua mundo lux est orta:
+Gaude, Virgo gloriósa,
+Super omnes speciósa,
+Vale, o valde decóra,
+Et pro nobis Christum exóra.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+Orémus. **Oratio**
+
+CONCEDE, miséricors Deus, fragilitáti nostræ præsídium: ut, qui sanctæ Dei Genitrícis memóriam ágimus; intercessiónis ejus auxílio, a nostris iniquitátibus resurgámus. Per eúmdem Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Absoluta vero Antiphona finali cum suis Versu et Oratione, concluditur:}
+
+℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+---
+
+## Post divinum Officium
+
+{RUBRIC: Cum expletum fuerit Officium, laudabiliter dicitur sequens Oratio; pro qua Summus Pontifex Pius Papa XI sub die 1 Decembris 1933 indulgéntiam trium annórum concessit. Præterea Clericis in sacris constitútis et Sacerdótibus eam devóte post Officium recitántibus Summus Pontifex Leo X defectus et culpas in eo persolvéndo ex humána fragilitáte contráctas, indúlsit. Dicitur autem flexis semper génibus in privata étiam recitatióne, præter quam ab iis, qui ob certam infirmitátem vel graviόris impediménti causam nequeant genufléctere.}
+
+### Oratio
+
+SACROSANCTAE et indivíduæ Trinitáti, crucifíxi Dómini nostri Jesu Christi humanitáti, beatíssimæ et gloriosíssimæ semperque Vírginis Maríæ fecúndæ integritáti, et ómnium Sanctórum universitáti sit sempitérna laus, honor, virtus et glória ab omni creatúra, nobísque remíssio ómnium peccatórum, per infiníta sécula sæculórum. ℟. Amen.
+
+℣. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium. ℟. Et beáta úbera, quæ lactavérunt Christum Dóminum.
+
+{RUBRIC: Et dicitur secreto Pater noster et Ave María.}
+

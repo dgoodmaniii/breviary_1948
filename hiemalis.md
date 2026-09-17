@@ -835,4 +835,148 @@ ECCE, dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regn�
 
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
-Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indú-
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolutis Precibus, vel, si Preces locum non habeant, post Responsorium breve statim dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+{RUBRIC: Et dicitur Oratio convéniens. Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias. ℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: Expleto Hymno, convéniens dicitur Antiphona usque ad Asteriscum \*, et tres Psalmi, prouti Officium occurrens requirit; atque, Psalmis absolutis, integra repetitur Antiphona.}
+
+#### Per Annum
+
+{RUBRIC: In Officio dominicali: In Dominicis Septuagesimæ, Sexagesimæ et Quinquagesimæ, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Dominicis per Annum minoribus, extra Octavam Nativitatis, Antiphona ut in Psalterio, et dicitur sequens}
+
+**Capitulum** *Gal. 6, 2*
+
+ALTER altérius ónera portáte, et sic adimplébitis legem Christi.
+
+{RUBRIC: In omnibus vero Dominicis superius indicatis, dicitur sequens}
+
+℟. br. In ætérnum, Dómine, \* Pérmanet verbum tuum. In ætérnum. ℣. In séculum séculi véritas tua. Pérmanet. Glória Patri. In ætérnum. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: In Officio feriali: In omnibus per Annum Feriis, et a Feria IV Cinerum usque ad Sabbatum sequens inclusive, Antiphona de Feria currenti, ut in Psalterio; et dicitur quotidie sequens}
+
+**Capitulum** *Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+#### Tempore Adventus
+
+{RUBRIC: In Officio dominicali, Antiphona tertia de Laudibus Dominicæ currentis, et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali, Antiphona tertia de Laudibus antecedentis Dominicæ, et in sex Feriis ante Vigiliam Nativitatis Domini ex Laudibus Feriæ currentis, ut in Proprio de Tempore; et dicitur quotidie sequens}
+
+**Capitulum** *Jer. 23, 6*
+
+IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc est nomen, quod vocábunt eum, Dóminus justus noster.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+{RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus Dóminus vobíscum cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}
+
+{RUBRIC: Quando vero ad Laudes recitatæ sunt Preces, post Responsorium breve dicuntur sequentes flexis genibus:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolutis Precibus, vel, si Preces locum non habeant, post Responsorium breve statim dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+{RUBRIC: Et dicitur Oratio convéniens. Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias. ℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Successíbus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prémium mortis sacræ
+Perénnis instet glória.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: Expleto Hymno, convéniens dicitur Antiphona usque ad Asteriscum \*, et tres Psalmi, prouti Officium occurrens requirit; atque, Psalmis absolutis, integra repetitur Antiphona.}
+
+#### Per Annum
+
+{RUBRIC: In Officio dominicali: In Dominicis Septuagesimæ, Sexagesimæ et Quinquagesimæ, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Dominicis per Annum minoribus, extra Octavam Nativitatis, Antiphona ut in Psalterio, et dicitur sequens}
+
+**Capitulum** *1 Cor. 6, 20*
+
+EMPTI enim estis prétio magno. Glorificáte et portáte Deum in córpore vestro.
+
+{RUBRIC: In omnibus vero Dominicis superius indicatis, dicitur sequens}
+
+℟. br. Clamávi in toto corde meo: \* Exáudi me, Dómine. Clamávi. ℣. Justificatiónes tuas requíram. Exáudi. Glória Patri. Clamávi. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: In Officio feriali: In omnibus per Annum Feriis, et a Feria IV Cinerum usque ad Sabbatum sequens inclusive, Antiphona de Feria currenti, ut in Psalterio; et dicitur quotidie sequens}
+
+**Capit.** *1 Petr. 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel

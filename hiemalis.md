@@ -3377,4 +3377,184 @@ Sed nos qui vívimus, benedícimus Dómino, \* ex hoc nunc et usque in séculum.
 
 #### Per Annum
 
-{RUBRIC: In Dominicis Septuagesimæ, Sexagesimæ et Quinqua-
+{RUBRIC: In Dominicis Septuagesimæ, Sexagesimæ et Quinquagesimæ Capitulum ut in Proprio de Tempore; in Dominicis autem post Epiphaniam a die 14 Januarii ac deinceps ante Septuagesimam occurréntibus dícitur}
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BENEDICTUS Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+{RUBRIC: In ómnibus vero Dominicis supérius indicátis, dícitur sequens Hymnus et Versus:}
+
+#### Hymnus
+
+LUCIS Creátor óptime,
+Lucem diérum prófereus,
+Primórdiis lucis novæ,
+Mundi parans oríginem:
+
+Qui mane junctum vésperi
+Diem vocári præcípis:
+Illábitur tetrum chaos,
+Audi preces cum flétibus.
+
+Ne mens graváta crímine,
+Vitæ sit exsul múnere,
+Dum nil perénne cógitat,
+Seséque culpis illigat.
+
+Cæléste pulset óstium:
+Vitále tollat prǽmium:
+Vitémus omne nóxium:
+Purgémus omne péssimum.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+{RUBRIC: Ad Magníficat Antiphona ut in Proprio de Tempore.}
+
+#### Canticum B. Mariæ Virg.
+
+*Luc. 1, 46-55*
+
+MAGNIFICAT \* ánima mea Dóminum:
+
+Et exsultávit spíritus meus \* in Deo, salutári meo.
+
+Quia respéxit humilitátem ancíllæ suæ: \* ecce enim ex hoc beátam me dicent omnes generatiónes.
+
+Quia fecit mihi magna qui potens est: \* et sanctum nomen ejus.
+
+Et misericórdia ejus a progénie in progénies \* timéntibus eum.
+
+Fecit poténtiam in bráchio suo: \* dispérsit supérbos mente cordis sui.
+
+Depósuit poténtes de sede \* et exaltávit húmiles.
+
+Esuriéntes implévit bonis: \* et dívites dimísit inánes.
+
+Suscépit Israël, púerum suum, \* recordátus misericórdiæ suæ.
+
+Sicut locútus est ad patres nostros, \* Abraham, et sémini ejus in sécula.
+
+{RUBRIC: Oratio convéniens.}
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dícitur totum secréto.}
+
+**Confíteor. Misereátur. Indulgéntiam.**
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Miserére.
+
+### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+### Psalmus 90
+
+QUI hábitat in adjutório Altíssimi, \* in protectióne Dei cæli commorábitur.
+
+Dicet Dómino: Suscéptor meus es tu, et refúgium meum: \* Deus meus, sperábo in eum.
+
+Quóniam ipse liberávit me de láqueo venántium, \* et a verbo áspero.
+
+Scápulis suis obumbrábit tibi: \* et sub pennis ejus sperábis.
+
+Scuto circúmdabit te véritas ejus: \* non timébis a timóre noctúrno.
+
+A sagítta volánte in die, a negótio perambulánte in ténebris: \* ab incúrsu, et dæmónio meridiáno.
+
+Cadent a látere tuo mille, et decem míllia a dextris tuis: \* ad te autem non appropinquábit.
+
+Verúmtamen óculis tuis considerábis: \* et retributiónem peccatórum vidébis.
+
+Quóniam tu es, Dómine, spes mea: \* Altíssimum posuísti refúgium tuum.
+
+Non accédet ad te malum: \* et flagéllum non appropinquábit tabernáculo tuo.
+
+Quóniam Angelis suis mandávit de te: \* ut custódiant te in ómnibus viis tuis.
+
+In mánibus portábunt te: \* ne forte offéndas ad lápidem pedem tuum.
+
+Super áspidem, et basilíscum ambulábis: \* et conculcábis leónem et dracónem.
+
+Quóniam in me sperávit, liberábo eum: \* prótegam eum, quóniam cognóvit nomen meum.
+
+Clamábit ad me, et ego exáudiam eum: \* cum ipso sum in tribulatióne: erípiam eum et glorificábo eum.
+
+Longitúdine diérum replébo eum: \* et osténdam illi salutáre meum.
+
+### Psalmus 133
+
+ECCE, nunc benedícite Dóminum, \* omnes servi Dómini:
+
+Qui statis in domo Dómini, \* in átriis domus Dei nostri.
+
+In nóctibus extóllite manus vestras in sancta, \* et benedícite Dóminum.
+
+Benedícat te Dóminus ex Sion, \* qui fecit cælum et terram.
+
+**Ant.** Miserére mihi, Dómine, et exáudi oratiónem meam.
+
+#### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.

@@ -3558,3 +3558,104 @@ Amen.
 **Capitulum** *Jer. 14, 9*
 
 TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+**Ant.** Salva nos.
+
+### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace.
+
+#### Preces (si dicendæ sint)
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster secreto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum secreto usque ad ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sécula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sécula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sécula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+VISITA, quǽsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum nostrum. ℟. Amen.
+
+℣. Dóminus vobíscum. ℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+**Antiphona finalis B. M. V.**
+
+℣. Divínum auxílium.
+
+Pater, Ave et Credo.
+
+{RUBRIC: Psalmi de Dominica supérius appósiti dicúntur ad Completórium, adhíbita simul Antíphona, étiam in Vigília Epiphaníæ, post utrásque Vésperas in Domínica, quamvis translata, infra Octávam Nativitátis Dómini, in Duplícibus I vel II clássis, in Festis novem Lectiónum Dómini, B. Mariæ Vírginis, Angelórum, S. Joánnis Baptístæ, S. Joseph, Apostolórum et Evangelistárum, et per Octávas privilegiátas; si tamen præcedéntes I Vésperæ de eis íntegræ vel saltem a Capítulo sint celebrátæ, ac II Vésperæ de ipsis íntegræ fúerint persolútæ.}
+
+---
+
+## Feria Secunda
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+#### In Officio feriali Adventus
+
+##### Infra Hebdomadam I et II:
+
+**Invit.** Regem ventúrum Dóminum, \* Veníte, adorémus.
+
+##### Infra Hebdom. III et IV:
+
+**Invit.** Prope est jam Dóminus: \* Veníte, adorémus.
+
+##### In Vigilia Nativ. Domini:
+
+**Invit.** Hódie sciétis quia véniet Dóminus: \* Et mane vidébitis glóriam ejus.
+
+#### Hymnus
+
+VERBUM supérnum, pródiens
+E Patris ætérni sinu,
+Qui natus orbi súbvenis,
+Labénte cursu témporis:
+
+Illúmina nunc péctora,
+Tuóque amóre cóncrema;
+Ut cor cadúca déserens
+Cæli volúptas ímpleat.
+
+Ut, cum tribúnal Júdicis
+Damnábit igni nóxios,
+Et vox amíca débitum
+Vocábit ad cælum pios;
+
+Non esca flammárum nigros
+Volvámur inter túrbines,
+Vultu Dei sed cómpotes
+Cæli fruámur gáudiis.
+
+Patri simúlque Fílio,
+Tibíque, Sancte Spíritus,

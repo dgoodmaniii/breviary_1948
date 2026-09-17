@@ -2545,5 +2545,169 @@ Est ergo fides recta, ut credámus et confiteámur, \* quia Dóminus noster Jesu
 
 Deus est ex substántia Patris ante sécula génitus: \* et homo est ex substántia matris in século natus.
 
-Perféctus Deus, perféctus homo: \* ex ánima
+Perféctus Deus, perféctus homo: \* ex ánima rationáli et humána carne subsístens.
+
+Æquális Patri secúndum divinitátem: \* minor Patre secúndum humanitátem.
+
+Qui, licet Deus sit et homo, \* non duo tamen, sed unus est Christus.
+
+Unus autem non conversióne divinitátis in carnem, \* sed assumptióne humanitátis in Deum.
+
+Unus omníno, non confusióne substántiæ, \* sed unitáte persónæ.
+
+Nam sicut ánima ratiónális et caro unus est homo: \* ita Deus et homo unus est Christus.
+
+Qui passus est pro salúte nostra: descéndit ad ínferos: \* tértia die resurréxit a mórtuis.
+
+Ascéndit ad cælos, sedet ad déxteram Dei Patris omnipoténtis: \* inde ventúrus est judicáre vivos et mórtuos.
+
+Ad cujus advéntum omnes hómines resúrgere habent cum corpóribus suis: \* et redditúri sunt de factis própriis ratiónem.
+
+Et qui bona egérunt, ibunt in vitam ætérnam: \* qui vero mala, in ignem ætérnum.
+
+Hæc est fides cathólica, \* quam nisi quisque fidéliter firmitérque credíderit, salvus esse non póterit.
+
+Glória Patri.
+
+{RUBRIC: Expleto Symbolo, vel, si hoc non habeat locum, Psalmis absolutis, statim dicitur Antiphona.}
+
+{RUBRIC: Per Annum:} **Ant.** Allelúja, confitémini Dómino quóniam in séculum misericórdia ejus, allelúja, allelúja.
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sécula sæculórum. Amen.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: In Offic. Dom. Adventus:} ℣. Qui ventúrus es in mundum.
+
+#### Preces (si dicendæ sint)
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me. ℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Dignáre, Dómine, die isto. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+DOMINE, Deus omnípotens, qui ad princípium hujus diéi nos perveníre fecísti: tua nos hódie salva virtúte; ut in hac die ad nullum declinémus peccátum, sed semper ad tuam justítiam faciéndam nostra procédant elóquia, dirigántur cogitatiónes et ópera. Per Dóminum. ℟. Amen.
+
+℣. Dóminus vobíscum. ℣. Benedicámus Dómino.
+
+{RUBRIC: Deinde in Choro legitur Martyrologium, quod laudabíliter fit etiam extra Chorum.}
+
+{RUBRIC: Postea Hebdomad. dicit:}
+
+℣. Pretiósa in conspéctu Dómini. ℟. Mors Sanctórum ejus.
+
+{RUBRIC: Et absolute, sine Orémus:}
+
+**Oratio**
+
+SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári et salvári, qui vivit et regnat in sécula sæculórum. ℟. Amen.
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína. {RUBRIC: Et dicitur ter; ultimo additur:} Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos, et opus mánuum nostrárum dírige. ℣. Glória Patri. ℟. Sicut erat.
+
+Orémus. **Oratio**
+
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sécula sæculórum. ℟. Amen.
+
+℣. Jube, domne.
+
+**Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+---
+
+#### In Adventu
+
+DOMINE, miserére nostri: te enim exspectávimus: esto bráchium nostrum in mane, et salus nostra in témpore tribulatiónis. Tu autem.
+
+{RUBRIC: In Vigilia Nativitatis Domini Lectio br. Per quem, ut infra.}
+
+#### Per Annum
+
+DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia Christi.
+
+---
+
+### E Proprio de Tempore
+
+#### In Vigilia Nativitatis
+
+PER quem accépimus grátiam, et apostolátum ad obediéndum fídei in ómnibus géntibus pro nómine ejus, in quibus estis et vos vocáti Jesu Christi, Dómini nostri.
+
+#### In Nativitate Domini et in die VI infra Octavam
+
+IPSI períbunt, tu autem permanébis; et omnes sicut vestiméntum veteráscent: et velut amíctum mutábis eos, et mutabúntur: tu autem idem ipse es, et anni tui non defícient.
+
+#### S. Stephani Protomartyris
+
+POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+#### S. Joannis Ap. et Ev.
+
+IN médio Ecclésiæ apéruit os ejus, et implévit illum Dóminus spíritu sapiéntiæ et intelléctus, et stolam glóriæ índuit eum.
+
+#### Ss. Innocentium Mm.
+
+HI empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est invéntum mendácium: sine mácula enim sunt ante thronum Dei.
+
+#### Dom. infra Oct. Nativ.
+
+ITAQUE jam non est servus, sed fílius: quod si fílius, et heres per Deum.
+
+#### In Circumcisione Domini
+
+IPSI períbunt, tu autem permanébis; et omnes sicut vestiméntum veteráscent: et velut amíctum mutábis eos, et mutabúntur: tu autem idem ipse es, et anni tui non defícient.
+
+#### Ssmi Nominis Jesu
+
+OMNE quodcúmque fácitis in verbo, aut in ópere: ómnia in nómine Dómini Jesu Christi fácite, grátias agéntes Deo et Patri per ipsum.
+
+#### In Vigilia Epiphaniæ
+
+ITAQUE jam non est servus, sed fílius: quod si fílius, et heres per Deum.
+
+#### In Epiphania et per Oct.
+
+OMNES de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes.
+
+#### Sanctæ Familiæ J. M. J.
+
+SEMETIPSUM exinanívit formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+---
+
+### E Proprio Sanctorum
+
+#### S. Andreæ Apost.
+
+ISAIAS enim dicit: Dómine, quis crédidit audítui nostro? Ergo fides ex audítu, audítus autem per verbum Christi. Sed dico: Numquid non audiérunt? Et quidem in omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum.
+
+#### In Conceptione immacul. B. Mariæ V.
+
+SIGNUM magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, et in cápite ejus coróna stellárum duódecim.
+
+#### S. Agnetis et S. Agathæ
+
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis susténtes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+#### In Conversione S. Pauli
+
+SAULUS autem multo magis convalescébat, et confundébat Judǽos, qui habitábant Damásci, affírmans, quóniam hic est Christus.
+
+#### In Purificatione B. M. V.
+
+ET placébit Dómino sacrifícium Juda et Jerúsalem sicut dies séculi
 

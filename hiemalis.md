@@ -30662,4 +30662,28 @@ SCRIPTUM est: Spíritus Dómini ornávit cælos. Ornaménta enim cælórum sunt 
 
 #### Lectio vi
 
-QUOT ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est: Verbo Dómini cæli firmáti sunt. Verbum enim Dómini, Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur: Et Spíritu oris ejus omnis virtus eórum. Cælórum ergo virtus de Spíritu sumpta est: quia mundi hujus potestátibus contraíre non præsúmerent, nisi eos Sancti Spíritus fortitúdo solidásset. Quales namque doctóres sanctæ Ecclésiæ ante advéntum hujus Spíritus fúerint, scimus; et
+QUOT ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est: Verbo Dómini cæli firmáti sunt. Verbum enim Dómini, Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur: Et Spíritu oris ejus omnis virtus eórum. Cælórum ergo virtus de Spíritu sumpta est: quia mundi hujus potestátibus contraíre non præsúmerent, nisi eos Sancti Spíritus fortitúdo solidásset. Quales namque doctóres sanctæ Ecclésiæ ante advéntum hujus Spíritus fúerint, scimus; etpost advéntum illíus, cujus fortitúdinis facti sint, conspícimus.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui, contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 20, 24-29*
+
+IN illo témpore: Thomas unus ex duódecim, qui dícitur Dídymus, non erat cum eis quando venit Jesus. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 26 in Evang., post médium}
+
+QUID, fratres caríssimi, quid inter hæc animadvértitis? Numquid casu gestum créditis, ut eléctus ille discípulus tunc deésset, post autem véniens audíret, áudiens dubitáret, dúbitans palpáret, palpans créderet? Non hoc casu, sed divína dispensatióne gestum est. Egit namque miro modo supérna cleméntia, ut discípulus ille dúbitans, dum in magístro suo vúlnera palpáret carnis, in nobis vúlnera sanáret infidelitátis. Plus enim nobis Thomæ infidélitas ad fidem, quam fides credéntium discipulórum prófuit; quia dum ille ad fidem palpándo redúcitur, nostra mens, omni dubitatióne postpósita, in fide solidátur.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+SIC quippe discípulum Dóminus post resurrectiónem suam dubitáre permísit, nec tamen in dubitatióne deséruit; sicut ante nativitátem suam habére Maríam sponsum vóluit, qui tamen ad ejus núptias non pervénit. Nam ita factus est discípulus dúbitans et palpans, testis veræ resurrectiónis, sicut sponsus matris fúerat custos integérrimæ virginitátis. Palpávit autem, et exclamávit: Dóminus meus, et Deus meus. Dicit ei Jesus: Quia vidísti me, credidísti. Cum Paulus Apóstolus dicat, Est au-

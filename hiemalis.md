@@ -28534,3 +28534,30 @@ EXÁUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánim
 Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
 
 Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem
+amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Bíduo vivens pendébat in cruce beátus Andréas pro Christi nómine, et docébat pópulum.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+#### Lectio iv
+
+ANDRÉAS Apóstolus, Bethsáidæ natus, qui est Galilǽæ vicus, frater Petri, discípulus Joánnis Baptístæ, cum eum de Christo dicéntem audísset: Ecce Agnus Dei; secútus Jesum, fratrem quoque suum ad eúmdem perdúxit. Cum póstea una cum fratre piscarétur in mari Galilǽæ, ambo a prætereúnti Christo Dómino ante álios Apóstolos vocáti illis verbis: Veníte post me, fáciam vos fíeri piscatóres hóminum; nullam interponéntes moram, et relíctis rétibus, secúti sunt eum. Post cujus passiónem et resurrectiónem, Andréas, cum in Scythiam Európæ, quæ ei província ad Christi fidem disseminándam obtígerat, venísset, deínde Epírum ac Thráciam peragrásset; doctrína et miráculis innumerábiles hómines ad Christum convértit. Post, Patras Achájæ proféctus, et in ea urbe plúrimis ad veritátem evangélicam perdúctis, Ægéam procónsulem, prædicatióni evangélicæ resisténtem, libérrime increpávit, quod, qui judex hóminum habéri vellet, Christum Deum ómnium júdicem, a dæmónibus elúsus, non agnósceret.
+
+℟. Homo Dei ducebátur ut crucifígerent eum: pópulus autem clamábat voce magna, dicens: \* Innocens ejus sanguis sine

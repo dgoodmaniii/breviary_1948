@@ -20695,3 +20695,18 @@ IN illo témpore: Dixit Jesus pharisǽis: Ego sum pastor bonus. Bonus pastor án
 {RUBRIC: Homilia 59 in Joannem}
 
 MAGNUM quiddam, dilectíssimi, magnum, inquam, est Ecclésiæ prælátio, et quæ multa índiget sapiéntia et fortitúdine, qualem Christus propósuit: ut ánimam pro óvibus ponámus, et numquam illas deserámus; ut lupo generóse resistámus. Hæc enim inter pastórem et mercenárium est differéntia: alter própriæ,
+contémptis óvibus; alter, sua contémpta, óvium semper salúti invígilat. Pastóris ergo exémplo demonstráto, deceptóres duos méminit: furem mactántem et rapiéntem oves; et mercenárium permitténtem, neque defendéntem commíssas.
+
+℟. Corónа áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+QUOD supérióri témpore Ezéchiel his verbis insectátus est: Væ pastóribus Israël: nonne pascébant semetípsos? nonne greges pascúntur a pastóribus? Sed illi contrárium faciébant, quod máxima malítiæ genus est, et plurimórum causa malórum. Idcírco inquit: Neque quod abjéctum erat, reducébant: neque quod períerat, quærébant: neque confráctum alligábant, neque infírmum consolidábant; quóniam se, non gregem pascébant. Idem et Paulus áliis verbis signíficat: Omnes quæ sua sunt, quærunt, non quæ Jesu Christi.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+VERUM ab utróque se dissidére osténdit Christus: ab illis quidem, qui in aliórum perníciem véniunt, cum dicat, se proptérea venísse, ut vitam habérent, et abundántius habérent; ab his autem, qui oves a lupis rapi negligébant, dicéndo se propter eas ánimam pónere, ne oves perírent. Nam cum Judǽi ipsum interímere vellent, non proptérea déstitit a doctrína, neque credéntes trádidit, sed pérstitit, et pértulit mortem: ídeo frequénter inquit: Ego sum pastor bonus. Quæ cum nullo niti testimónio vidéréntur, (quod enim póneret ánimam suam, non multo post demonstrátum est; quod autem vitam habérent, et abundántius habérent, eventúrum erat in futúro século), álterum ab áltero confírmat.
+
+{RUBRIC: Deinde dícitur} Te Deum laudámus.

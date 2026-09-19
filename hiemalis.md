@@ -7501,3 +7501,50 @@ Pater noster {RUBRIC: quod dicitur totum secreto.}
 ### Psalmus 11
 
 SALVUM me fac, Dómine, quóniam defécit sanctus: \* quóniam diminútæ sunt
+ veritátes a fíliis hóminum.
+
+Vana locúti sunt unusquísque ad próximum suum: \* lábia dolósa, in corde et corde locúti sunt.
+
+Dispérdat Dóminus univérsa lábia dolósa, \* et linguam magníloquam.
+
+Qui dixérunt: Linguam nostram magnificábimus, lábia nostra a nobis sunt, \* quis noster Dóminus est?
+
+Propter misériam ínopum, et gémitum páuperum, \* nunc exsúrgam, dicit Dóminus.
+
+Ponam in salutári: \* fiduciáliter agam in eo.
+
+Elóquia Dómini, elóquia casta: \* argéntum igne examinátum, probátum terræ purgátum séptuplum.
+
+Tu, Dómine, servábis nos: et custódies nos \* a generatióne hac in ætérnum.
+
+In circúitu ímpii ámbulant: \* secúndum altitúdinem tuam multiplicásti fílios hóminum.
+
+### Psalmus 12
+
+USQUEQUO, Dómine, oblivascéris me in finem? \* Usquequo avértis fáciem tuam a me?
+
+Quámdiu ponam consília in ánima mea, \* dolórem in corde meo per diem?
+
+Usquequo exaltábitur inimícus meus super me? \* réspice, et exáudi me, Dómine, Deus meus.
+
+Illúmina óculos meos ne umquam obdórmiam in morte: \* nequándo dicat inimícus meus: Præválui advérsus eum.
+
+Qui tríbulant me, exsultábunt si motus fúero: \* ego autem in misericórdia tua sperávi.
+
+Exsultábit cor meum in salutári tuo: cantábo Dómino qui bona tríbuit mihi: \* et psallam nómini Dómini altíssimi.
+
+### Psalmus 15
+
+CONSERVA me, Dómine, quóniam sperávi in te. \* Dixi Dómino: Deus meus es tu, quóniam bonórum meórum non eges.
+
+Sanctis, qui sunt in terra ejus, \* mirificávit omnes voluntátes meas in eis.
+
+Multiplicátæ sunt infirmitátes eórum: \* póstea acceleravérunt.
+
+Non congregábo conventícula eórum de sanguínibus, \* nec memor ero nóminum eórum per lábia mea.
+
+Dóminus pars hereditátis meæ, et cálicis mei: \* tu es, qui restítues hereditátem meam mihi.
+
+Funes cecidérunt mihi in præcláris: \* étenim heréditas mea præclára est mihi.
+
+Benedícam Dóminum, qui tríbuit mihi intellé-

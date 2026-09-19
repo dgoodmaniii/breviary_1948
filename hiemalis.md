@@ -14228,3 +14228,57 @@ Expándit nubem in protectiónem eórum, \* et ignem ut lucéret eis per noctem.
 Petiérunt, et venit cotúrnix: \* et pane cæli saturávit eos.
 
 Dirúpit petram, et fluxérunt aquæ: \* abiérunt in sicco flúmina;
+
+Quóniam memor fuit verbi sancti sui, \* quod hábuit ad Abraham, púerum suum.
+
+Et edúxit pópulum suum in exsultatióne, \* et eléctos suos in lætítia.
+
+Et dedit illis regiónes géntium: \* et labóres populórum possedérunt:
+
+Ut custódiant justificatiónes ejus, \* et legem ejus requírant.
+
+**Ant.** Edúxit Deus pópulum suum in exsultatióne, et eléctos suos in lætítia.
+
+#### In Festis novem Lectionum:
+
+℣. Memor fuit Dóminus verbi sancti tui. ℟. Quod locútus est ad Abraham, púerum suum.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+#### In II Nocturno
+
+**Ant.** Salvávit eos Dóminus \* propter nomen suum.
+
+#### Psalmus 105, i
+
+CONFITÉMINI Dómino quóniam bonus: \* quóniam in séculum misericórdia ejus.
+
+Quis loquétur poténtias Dómini, \* audítas fáciet omnes laudes ejus?
+
+Beáti, qui custódiunt judícium, \* et fáciunt justítiam in omni témpore.
+
+Meménto nostri, Dómine, in beneplácito pópuli tui: \* vísita nos in salutári tuo:
+
+Ad vidéndum in bonitáte electórum tuórum, ad lætándum in lætítia gentis tuæ: \* ut laudéris cum hereditáte tua.
+
+Peccávimus cum pátribus nostris: \* injúste égimus, iniquitátem fécimus.
+
+Patres nostri in Ægýpto non intellexérunt mirabília tua: \* non fuérunt mémores multitúdinis misericórdiæ tuæ.
+
+Et irritavérunt ascendéntes in mare, \* Mare Rubrum.
+
+Et salvávit eos propter nomen suum: \* ut notam fáceret poténtiam suam.
+
+Et incrépuit Mare Rubrum, et exsiccátum est: \* et dedúxit eos in abýssis sicut in desérto.
+
+Et salvávit eos de manu odiéntium: \* et redémit eos de manu inimíci.
+
+Et opéruit aqua tribulántes eos: \* unus ex eis non remánsit.
+
+Et credidérunt verbis ejus: \* et laudavérunt laudem ejus.
+
+Cito fecérunt, oblíti sunt óperum ejus: \* et non sustinuérunt consílium ejus.
+
+Et concupiérunt concupiscéntiam in desérto: \* et tentavérunt Deum in inaquóso.

@@ -26660,4 +26660,30 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut semper rationabília meditántes, quæ 
 
 UNDE, fratres sancti, vocatiónis cæléstis partícipes, consideráte apóstolum et pontíficem confessiónis nostræ Jesum: qui fidélis est ei, qui fecit illum, sicut et Móyses, in omni domo ejus. Amplióris enim glóriæ iste præ Móyse dignus est hábitus, quanto ampliórem honórem habet domus, qui fabricávit illam. Omnis namque domus fabricátur ab áliquo: qui autem ómnia creávit, Deus est.
 
-℟. Quam magna multitúdo dulcédinis tuæ, Dómine, \* Quam abscondísti timéntibus te! ℣. Et perfecísti eis qui sperant in te, Dómine, in conspéctu filió-
+℟. Quam magna multitúdo dulcédinis tuæ, Dómine, \* Quam abscondísti timéntibus te! ℣. Et perfecísti eis qui sperant in te, Dómine, in conspéctu filiórum hóminum. — Quam abscondísti.
+
+#### Lectio ii
+
+ET Móyses quidem fidélis erat in tota domo ejus tamquam fámulus, in testimónium eórum, quæ dicénda erant: Christus vero tamquam fílius in domo sua: quæ domus sumus nos, si fidúciam, et glóriam spei usque ad finem firmam retineámus. Quaprópter sicut dicit Spíritus Sanctus: Hódie si vocem ejus audiéritis, nolíte obduráre corda vestra, sicut in exacerbatióne secúndum diem tentatiónis in desérto. Quidam enim audiéntes exacerbavérunt: sed non univérsi qui profécti sunt ex Ægýpto per Móysen.
+
+℟. Benedícam Dóminum in omni témpore: \* Semper laus ejus in ore meo. ℣. In Dómino laudábitur ánima mea, áudiant mansuéti, et læténtur. — Semper. Glória Patri. Semper.
+
+#### Lectio iii
+
+*Cap. 3, 12-16*
+
+VIDÉTE, fratres, ne forte sit in áliquo vestrum cor malum incredulitátis, discedéndi a Deo vivo: sed adhortámini vosmetípsos per síngulos dies, donec Hódie cognominátur, ut non obdurétur quis ex vobis fallácia peccáti. Partícipes enim Christi efféctí sumus: si tamen inítium substántiæ ejus usque ad finem firmum retineámus. Dum dícitur: Hódie si vocem ejus audiéritis, nolíte obduráre corda
+
+---
+
+### Feria Tertia
+
+{RUBRIC: De Epístola ad Hebrǽos}
+
+#### Lectio i
+
+*Cap. 4, 1-12*
+
+TIMEÁMUS ergo, ne forte relícta pollicitatióne introeúndi in réquiem ejus, existimétur áliquis ex vobis deésse. Etenim et nobis nuntiátum est, quemádmodum et illis. Sed non prófuit illis sermo audítus, non admístus fídei ex iis, quæ audiérunt. Ingrediémur enim in réquiem, qui credídimus: quemádmodum dixit: Sicut jurávi in ira mea: Si introíbunt in réquiem meam: et quidem opéribus ab institutióne mundi perféctis.
+
+℟. Auribus pércipe, Deus, lácrimas meas: ne síleas a me, remítte mihi: \* Quóniam íncola ego sum apud te, et peregrínus. ℣. Compláceat tibi, ut erípias me: Dómine, ad adjuvándum me festína. — Quóniam.

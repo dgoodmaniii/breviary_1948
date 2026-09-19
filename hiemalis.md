@@ -26916,3 +26916,28 @@ MORTIS supplícium Dóminus hómini comminátus fúerat, si peccáret: sic eum m
 #### Lectio v
 
 SIC per unum hóminem peccátum intrávit in mundum, et per peccátum mors: et ita in omnes hó-
+mines pertránsiit, in quo omnes peccavérunt. Mundum quippe appellávit eo loco Apóstolus univérsum genus humánum. Ita ergo res se habébant. Jacébat in malis, vel étiam volvebátur, et de malis in mala præcipitabátur totíus humáni géneris massa damnáta: et adjúncta parti eórum, qui peccáverant, angelórum, luébat ímpiæ desertiónis digníssimas pœnas.
+
+℟. Dixit Dóminus Deus: Non est bonum hóminem esse solum: \* Faciámus ei adjutórium símile sibi. ℣. Adæ vero non inveniebátur adjútor símilis sibi: dixit vero Deus. — Faciámus.
+
+#### Lectio vi
+
+AD iram quippe Dei pértinet justam, quidquid cæca et indómita concupiscéntia fáciunt libénter mali, et quidquid manifféstis opertísque pœnis patiúntur invíti: non sane Creatóris desisténte bonitáte, et malis ángelis subministráre vitam, vivacémque poténtiam, (quæ subministrátio si auferátur, interíbunt) et hóminum, quamvis de propágine vitiáta damnatáque nascéntium, formáre sémina, et animáre, et ordináre membra per témporum ætátes, per locórum spátia vegetáre sensus, aliménta donáre. Mélius enim judicávit de malis bene fácere, quam mala nulla esse permíttere.
+
+℟. Immísit Dóminus sopórem in Adam, et tulit unam de cóstis ejus: \* Et ædificávit costam, quam túlerat Dóminus de Adam, in mulíerem, et addúxit eam ad Adam, ut vidéret quid vocáret eam: \* Et vocávit nomen ejus Virágo, quia de viro sumpta est. ℣. Cumque obdormísset, tulit unam de cóstis ejus, et replévit carnem pro ea. — Et ædificávit. Glória Patri. Et vocávit.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 20, 1-16*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile est regnum cælórum hómini patrifamílias, qui éxiit primo mane condúcere operários in víneam suam. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 19 in Evang. post princ.}
+
+REGNUM cælórum hómini patrifamílias símile dícitur, qui ad excoléndam víneam

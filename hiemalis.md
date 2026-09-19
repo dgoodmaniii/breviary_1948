@@ -34116,3 +34116,52 @@ JESU, coróna Vírginum,
 Quem Mater illa cóncipit
 Quæ sola Virgo párturit,
 Hæc vota clemens áccipe:
+
+Qui pergis inter lília
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia;
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant;
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+\* Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Paganórum \* multitúdo fúgiens ad sepúlcrum Vírginis, tulérunt velum ejus contra ignem; ut comprobáret Dóminus, quod a perículis incéndii méritis beátæ Agathæ Mártyris suæ eos liberáret.
+
+**Oratio** C 1
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Agathæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: Ad Horas Antiphóna et Psalmi de Féria; ad Primam Lectio brevis Laudábit, ut infra ad Nonam.} [862]
+
+{RUBRIC: Sicubi autem hoc Festum sub ritu dúplici I vel II clássis recolátur, Antiphónæ de Laudibus, ut supra} [860], {RUBRIC: cum Psalmis de Dominica ut in Festis.}
+
+### Ad Tertiam
+
+{RUBRIC: Capit.} Confitébor tibi. [860]
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+### Ad Sextam
+
+{RUBRIC: Capitulum} *Eccli. 51, 4-5*
+
+LIBERÁSTI me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de multis tribulatiónibus, quæ circumdedérunt me.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elé-

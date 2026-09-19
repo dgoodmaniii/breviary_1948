@@ -7240,3 +7240,51 @@ Exsúrge, Dómine, ádjuva nos: \* et rédime nos propter nomen tuum.
 #### In Officio feriali Adventus
 
 {RUBRIC: Feria III post Dominicam I:} **Ant.** Ecce véniet Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Lex per Móysen data est, grátia et véritas per Jesum Christum facta est.
+
+**Capitulum** *Is. 14, 1*
+
+PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur: miserébitur enim Dóminus Jacob, et Israël salvábitur.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super te. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super te. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+#### Per Annum
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime me, Dómine, et miserére mei. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: In Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+### Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Qui hábitas in cælis, \* miserére nobis.
+
+### Psalmus 122
+
+AD te levávi óculos meos, \* qui hábitas in cælis.
+
+Ecce, sicut óculi servórum \* in mánibus dominórum suórum.
+
+Sicut óculi ancíllæ in mánibus dóminæ suæ: \* ita óculi nostri ad Dóminum, Deum nostrum, donec misereátur nostri.
+
+Miserére nostri, Dómine, miserére nostri: \* quia multum repléti sumus despectióne:

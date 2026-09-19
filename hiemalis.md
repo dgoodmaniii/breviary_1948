@@ -12579,3 +12579,54 @@ Sacrifícium Deo spíritus contribulátus: \* cor contrítum, et humiliátum, De
 Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jerúsalem.
 
 Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc im-
+pónent super altáre tuum vítulos.
+
+**Ant.** Cor contrítum, et humiliátum, Deus, non despícies.
+
+**Ant.** Propter nomen tuum.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Constántes estóte, vidébitis auxílium Dómini super vos.
+
+**Ant.** Ad te, Dómine.
+
+### Psalmus 142
+
+DOMINE, exáudi oratiónem meam: áuribus pércipe obsecratiónem meam in veritáte tua: \* exáudi me in tua justítia.
+
+Et non intres in judícium cum servo tuo: \* quia non justificábitur in conspéctu tuo omnis vivens.
+
+Quia persecútus est inimícus ánimam meam: \* humiliávit in terra vitam meam.
+
+Collocávit me in obscúris sicut mórtuos séculi: \* et anxiátus est super me spíritus meus, in me turbátum est cor meum.
+
+Memor fui diérum antiquórum, meditátus sum in ómnibus opéribus tuis: \* in factis mánuum tuárum meditábar.
+
+Expándi manus meas ad te: \* ánima mea sicut terra sine aqua tibi.
+
+Velóciter exáudi me, Dómine: \* defécit spíritus meus.
+
+Non avértas fáciem tuam a me: \* et símilis ero descendéntibus in lacum.
+
+Audítam fac mihi mane misericórdiam tuam: \* quia in te sperávi.
+
+Notam fac mihi viam, in qua ámbulem: \* quia ad te levávi ánimam meam.
+
+Eripe me de inimícis meis, Dómine, ad te confúgi: \* doce me fácere voluntátem tuam, quia Deus meus es tu.
+
+Spíritus tuus bonus dedúcet me in terram rectam: \* propter nomen tuum, Dómine, vivificábis me, in æquitáte tua.
+
+Edúces de tribulatióne ánimam meam: \* et in misericórdia tua dispérdes inimícos meos.
+
+Et perdes omnes, qui tríbulant ánimam meam: \* quóniam ego servus tuus sum.
+
+**Ant.** Propter nomen tuum, Dómine, vivificábis me, in æquitáte tua.
+
+**Ant.** Deus, tu convérsus.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Ad te, Dómine, levávi ánimam meam: veni, et éripe me, Dómine, ad te confúgi.
+
+**Ant.** Veni, Dómine.
+
+### Psalmus 84
+
+BENEDIXISTI, Dómine, terram tuam: \* avertísti captivitátem Jacob.

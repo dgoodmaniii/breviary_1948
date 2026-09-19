@@ -13643,3 +13643,101 @@ Et omnes vias meas prævidísti: \* quia non est sermo in lingua mea.
 #### Psalmus 138, ii
 
 CONFITÉBOR tibi quia terribíliter magnificátus es: \* mirabília ópera tua, et ánima mea cognóscit nimis.
+
+Non est occultátum os meum a te, quod fecísti in occúlto: \* et substántia mea in inferióribus terræ.
+
+Imperféctum meum vidérunt óculi tui, et in libro tuo omnes scribéntur: \* dies formabúntur, et nemo in eis.
+
+Mihi autem nimis honorificáti sunt amíci tui, Deus: \* nimis confortátus est principátus eórum.
+
+Dinumerábo eos, et super arénam multiplicabúntur: \* exsurréxi, et adhuc sum tecum.
+
+Si occíderis, Deus, peccatóres: \* viri sánguinum, declináte a me:
+
+Quia dícitis in cogitatióne: \* Accípient in vanitáte civitátes tuas.
+
+Nonne qui odérunt te, Dómine, óderam? \* et super inimícos tuos tabescébam?
+
+Perfécto ódio óderam illos: \* et inimíci facti sunt mihi.
+
+Proba me, Deus, et scito cor meum: \* intérroga me, et cognósce sémitas meas.
+
+Et vide, si via iniquitátis in me est: \* et deduc me in via ætérna.
+
+**Ant.** Mirabília ópera tua, Dómine, et ánima mea cognóscit nimis.
+
+**Ant.** Ne derelínquas me, \* Dómine, virtus salútis meæ.
+
+#### Psalmus 139
+
+ÉRIPE me, Dómine, ab hómine malo: \* a viro iníquo éripe me.
+
+Qui cogitavérunt iniquitátes in corde: \* tota die constituébant prǽlia.
+
+Acuérunt línguas suas sicut serpéntis: \* venénum áspidum sub lábiis eórum.
+
+Custódi me, Dómine, de manu peccatóris: \* et ab homínibus iníquis éripe me.
+
+Qui cogitavérunt supplantáre gressus meos: \* absondérunt supérbi láqueum mihi:
+
+Et funes extendérunt in láqueum: \* juxta iter scándalum posuérunt mihi.
+
+Dixi Dómino: Deus meus es tu: \* exáudi, Dómine, vocem deprecatiónis meæ.
+
+Dómine, Dómine, virtus salútis meæ: \* obumbrásti super caput meum in die belli.
+
+Ne tradas me, Dómine, a desidério meo peccatóri: \* cogitavérunt contra me, ne derelínquas me, ne forte exalténtur.
+
+Caput circúitus eórum: \* labor labiórum ipsórum opériet eos.
+
+Cadent super eos carbónes, in ignem dejícies eos: \* in misériis non subsístent.
+
+Vir linguósus non dirigétur in terra: \* virum injústum mala cápient in intéritu.
+
+Cognóvi quia fáciet Dóminus judícium ínopis: \* et vindíctam páuperum.
+
+Verúmtamen justi confitebúntur nómini tuo: \* et habitábunt recti cum vultu tuo.
+
+**Ant.** Ne derelínquas me, Dómine, virtus salútis meæ.
+
+**Ant.** Dómine, † clamávi ad te, exáudi me. ‡
+
+#### Psalmus 140
+
+DÓMINE, † clamávi ad te, exáudi me: \* ‡ inténde voci meæ, cum clamávero ad te.
+
+Dirigátur orátio mea sicut incénsum in conspéctu tuo: \* elevátio mánuum meárum sacrifícium vespertínum.
+
+Pone, Dómine, custódiam ori meo: \* et óstium circumstántiæ lábiis meis.
+
+Non declínes cor meum in verba malítiæ, \* ad excusándas excusatiónes in peccátis.
+
+Cum homínibus operántibus iniquitátem: \* et non communicábo cum eléctis eórum.
+
+Corrípiet me justus in misericórdia, et increpábit me: \* óleum autem peccatóris non impínguet caput meum.
+
+Quóniam adhuc et orátio mea in beneplácitis eórum: \* absórpti sunt juncti petræ júdices eórum.
+
+Audient verba mea quóniam potuérunt: \* sicut crassitúdo terræ erúpta est super terram.
+
+Dissipáta sunt ossa nostra secus inférnum: \* quia ad te, Dómine, Dómine, óculi mei: in te sperávi, non áuferas ánimam meam.
+
+Custódi me a láqueo, quem statuérunt mihi: \* et a scándalis operántium iniquitátem.
+
+Cadent in retiáculo ejus peccatóres: \* singuláriter sum ego donec tránseam.
+
+**Ant.** Dómine, clamávi ad te, exáudi me.
+
+**Ant.** Educ de custódia \* ánimam meam, Dómine, ad confiténdum nómini tuo.
+
+#### Psalmus 141
+
+VOCE mea ad Dóminum clamávi: \* voce mea ad Dóminum deprecátus sum:
+
+Effúndo in conspéctu ejus oratiónem meam, \* et tribulatiónem meam ante ipsum pronúntio.
+
+In deficiéndo ex me spíritum meum, \* et tu cognovísti sémitas meas.
+
+In via hac, qua ambulábam, \* absondérunt láqueum mihi.
+
+Considerábam ad déxte-

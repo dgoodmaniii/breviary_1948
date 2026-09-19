@@ -14177,3 +14177,54 @@ ET vocávit famem super terram: \* et omne firmaméntum panis contrívit.
 Misit ante eos virum: \* in servum venúmdatus est Joseph.
 
 Humiliavérunt in compédibus pedes ejus, ferrum
+pertránsiit ánimam ejus, \* donec veníret verbum ejus.
+
+Elóquium Dómini inflammávit eum: \* misit rex, et solvit eum; princeps populórum, et dimísit eum.
+
+Constítuit eum dóminum domus suæ: \* et príncipem omnis possessiónis suæ:
+
+Ut erudíret príncipes ejus sicut semetípsum: \* et senes ejus prudéntiam docéret.
+
+Et intrávit Israël in Ægýptum: \* et Jacob áccola fuit in terra Cham.
+
+Et auxit pópulum suum veheménter: \* et firmávit eum super inimícos ejus.
+
+Convértit cor eórum ut odírent pópulum ejus: \* et dolum fácerent in servos ejus.
+
+Misit Móysen, servum suum: \* Aaron, quem elégit ipsum.
+
+Pósuit in eis verba signórum suórum, \* et prodigiórum in terra Cham.
+
+**Ant.** Auxit Dóminus pópulum suum: et firmávit eum super inimícos ejus.
+
+**Ant.** Edúxit Deus \* pópulum suum in exsultatióne, et eléctos suos in lætítia.
+
+#### Psalmus 104, iii
+
+MISIT ténebras, et obscurávit: \* et non exacerbávit sermónes suos.
+
+Convértit aquas eórum in sánguinem: \* et occídit pisces eórum.
+
+Edidit terra eórum ranas \* in penetrálibus regum ipsórum.
+
+Dixit, et venit cœnomýia: \* et cínifes in ómnibus fínibus eórum.
+
+Pósuit plúvias eórum grándinem: \* ignem comburéntem in terra ipsórum.
+
+Et percússit víneas eórum, et ficúlneas eórum: \* et contrívit lignum fínium eórum.
+
+Dixit, et venit locústa, et bruchus, \* cujus non erat númerus:
+
+Et comédit omne fœnum in terra eórum: \* et comédit omnem fructum terræ eórum.
+
+Et percússit omne primogénitum in terra eórum: \* primítias omnis labóris eórum.
+
+Et edúxit eos cum argénto et auro: \* et non erat in tríbubus eórum infírmus.
+
+Lætáta est Ægýptus in profectióne eórum: \* quia incúbuit timor eórum super eos.
+
+Expándit nubem in protectiónem eórum, \* et ignem ut lucéret eis per noctem.
+
+Petiérunt, et venit cotúrnix: \* et pane cæli saturávit eos.
+
+Dirúpit petram, et fluxérunt aquæ: \* abiérunt in sicco flúmina;

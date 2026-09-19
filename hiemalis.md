@@ -30381,3 +30381,44 @@ DOMINE, Deus meus, exaltásti super terras habitatiónem meam, et pro morte defl
 {RUBRIC: Antiphónæ, Capitulum et Hymnus ut in Laudibus} [735] {RUBRIC: , Psalmi ut in Communi Festórum B. Maríæ Virg.}
 
 ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea
+benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Tanto póndere \* eam fixit Spíritus Sanctus, ut Virgo Christi immóbilis permanéret.
+
+{RUBRIC: Et fit Commemoratio sequéntis et Fériæ.}
+
+{RUBRIC: Completórium de Féria.}
+
+{RUBRIC: ¶ In ómnibus novem Lectiónum Offíciis in Fériis Quátuor Témporum occurréntibus, dícitur ix Lectio de Homilía Fériæ et de ea fit Commemoratio ad Laudes. In Offício tamen de Conceptióne immaculátæ beátæ Maríæ Vírginis non dícitur ix Lectio Fériæ IV Quátuor Témporum cum idem sit Evangélium.}
+
+---
+
+## Die 14 Decembris
+
+### De VII die infra Octavam Conceptionis Immaculatæ B. Mariæ V.
+
+{RUBRIC: Semiduplex} [REF: p. 702]
+
+**Ant.** Beátam me dicent omnes generatiónes, quia fecit mihi magna qui potens est, allelúja.
+
+{RUBRIC: Si vero hac die faciéndum non sit Offícium de Octáva, dícitur:}
+
+**Ant.** Hódie egréssa est virga de radíce Jesse: hódie sine ulla peccáti labe concépta est María: hódie contrítum est ab ea caput serpéntis antíqui, allelúja.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: quǽsumus; ut, qui ex morte ejúsdem Fílii tui prævísa, eam ab omni labe præservásti, nos quoque mundos ejus intercessióne ad te perveníre concédas. (Per eúmdem Dóminum.)
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+{RUBRIC: In I Nocturno Lectiónes de Scriptúra occurrénti; sed in Féria IV Quátuor Témporum Ego sapiéntia, de Communi Festórum B. M. V. cum ℟℟. ut in Festo} [704] {RUBRIC: , nisi resuméndæ aut anticipándæ sint Lectiónes de Scriptúra impedítæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+{RUBRIC: Ex Bulla dogmática Pii Papæ noni}
+
+OMNES norunt quanto stúdio hæc de immaculáta Deíparæ Vírginis Conceptióne doctrína a spectatíssimis religiósis famíliis et celebrióribus theológicis academíis, ac præstantíssimis divinárum rerum sciéntia doctóribus fúerit tradíta, assérta ac propugnáta.

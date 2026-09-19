@@ -24891,3 +24891,30 @@ IPSE Deus, qui sibi in véteri testaménto primítias offérri mandávit, homo n
 #### Lectio v
 
 QUIS est iste Rex Judæórum? Pauper et dives, húmilis et sublímis. Quis est iste Rex Judæórum, qui portátur ut párvulus, adorátur ut Deus? Parvus in præsépio, imménsus in cælo: vilis in pannis, pretiósus in stellis. Quid est quod sic turbáris, Heródes? Rex iste, qui natus est, non venit reges pugnándo superáre, sed moriéndo mirabíliter subjugáre. Nec ídeo
+natus est, ut tibi succédat, sed ut in eum mundus fidéliter credat. Venit ergo, non ut pugnet vivus, sed ut triúmphet occísus.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja, allelúja, allelúja.
+
+#### Lectio vi
+
+PUER iste, qui nunc a Magis dícitur Rex Judæórum, idem Creátor est, et Dóminus Angelórum. Quaprópter cujus times infántiam nascéntis, magis timére debes omnipoténtiam judicántis. Noli eum timére regni tui successórem, sed time infidelitátis tuæ justíssimum damnatórem. Ite, inquit, et renuntiáte mihi, ut et ego véniens adórem eum. O callíditas ficta, o incredúlitas ímpia, o nequítia fraudulénta! Sanguis Innocéntium, quem crudéliter effudísti, attestátur quid de hoc púero voluísti.
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 1-12*
+
+CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab Oriénte venérunt Jerosólymam, dicéntes: Ubi est qui natus est Rex Judæórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 2 in Lucæ cap. 2 post initium}
+
+QUÆ sunt ista veræ fídei múnera? Aurum Regi, thus Deo, myrrha defúncto. Áliud enim Regis insígne, áliud divínæ sacraméntum potestátis, áliud honor est sepultúræ, quæ non corrúmpat corpus mórtui, sed servet. Nos quoque, qui hæc audímus et légimus, de thesáuris nostris tália, fratres, múnera proferámus. Habémus enim thesáurum in vasis fictílibus. Si ígitur in teípso quod es, non ex te debes æstimáre, sed ex Christo: quanto magis in Christo non tua debes æstimáre, sed Christi?
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad

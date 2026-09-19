@@ -20201,3 +20201,64 @@ Glória Patri. Víndica, {RUBRIC: et post ix Lectiónem dícitur Hymnus} Te Deum
 TUNC adimplétum est, quod dictum est per Jeremíam prophétam dicéntem: Vox in Rama audíta est, plorátus et ululátus multus, Rachel plorans fílios suos. De Rachel natus est Bénjamin, in cujus tribu non est Béthlehem. Quǽritur ergo, quómodo Rachel fílios Judæ, id est Béthlehem, quasi suos ploret. Respondébimus bréviter, quia sepúlta sit juxta Béthlehem in Ephrata; et ex matérno corpúsculi hospítio matris nomen accéperit; sive quóniam Juda et Bénjamin duæ tribus junctæ erant, et Heródes præcéperat non solum in Béthlehem intérfici púeros, sed et in ómnibus fínibus ejus.
 
 ℟. Isti, qui amícti sunt stolis albis, qui sunt, et unde venérunt? Et dixit mihi: \* Hi sunt, qui venérunt de tribulatióne magna, et lavérunt stolas suas, et dealbavérunt eas in sánguine Agni. ℣. Vidi sub altáre Dei ánimas interfectórum propter verbum Dei, et propter testimónium quod habébant. — Hi. Glória Patri. Hi.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Heródes irátus \* occídit multos púeros in Béthlehem Judæ civitáte David.
+
+**2** A bimátu \* et infra occídit multos púeros Heródes propter Dóminum.
+
+**3** Angeli eórum \* semper vident fáciem Patris.
+
+**4** Vox in Rama \* audíta est, plorátus et ululátus, Rachel plorans fílios suos.
+
+**5** Sub throno Dei \* omnes Sancti clamant: Víndica sánguinem nostrum, Deus noster.
+
+#### Capitulum
+
+*Apoc. 14, 1*
+
+VIDI supra montem Sion Agnum stantem, et cum eo centum quadragínta quátuor míllia, habéntes nomen ejus, et nomen Patris ejus scriptum in fróntibus suis.
+
+#### Hymnus
+
+SALVÉTE, flores Mártyrum,
+Quos lucis ipso in límine
+Christi insecútor sústulit,
+Ceu turbo nascéntes rosas.
+
+Vos prima Christi víctima,
+Grex immolatórum tener,
+Aram sub ipsam símplices
+Palma et corónis lúditis.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Heródes irátus occídit multos púeros. ℟. In Béthlehem Judæ civitáte David.
+
+**Ad Bened. Ant.** Hi sunt, \* qui cum muliéribus non sunt coinquináti: vírgines enim sunt, et sequúntur Agnum quocúmque íerit.
+
+#### Oratio
+
+DEUS, cujus hodiérna die præcónium Innocéntes Mártyres non loquéndo, sed moriéndo conféssi sunt: ómnia in nobis vitiórum mala mortífica: ut fidem tuam, quam lingua nostra lóquitur, étiam móribus vita fateátur. Per Dóminum.
+
+{RUBRIC: Et fit Com. Oct. Nativitatis:}
+
+**Ant.** Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+### Ad Tertiam
+
+**Capit.** Vidi, {RUBRIC: ut supra.}
+
+℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde. Et.

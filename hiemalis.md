@@ -17929,3 +17929,47 @@ DIDICÍSTIS, vírgines, pudórem Maríæ: díscite humilitátem. Venit propínqu
 {RUBRIC: Nisi (die 21 Dec.) dicénda sit}
 
 **Ant.** Nolíte timére: \* quinta enim die véniet ad vos Dóminus noster.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut hi, qui in tua pietáte confídunt, ab omni cítius adversitáte liberéntur: Qui vivis.
+
+{RUBRIC: Et dícitur ad omnes Horas, prǽterquam in Vésperis.}
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Hoc est testimónium, \* quod perhíbuit Joánnes: Qui post me venit, ante me factus est.
+
+{RUBRIC: Nisi dicénda sit Ant. O. 355}
+
+#### Oratio
+
+AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et mentis nostræ ténebras grátia tuæ visitatiónis illústra: Qui vivis.
+
+---
+
+### Sabbato
+
+#### Quatuor Temporum
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 3, 1-6*
+
+ANNO quintodécimo impérii Tibérii Cǽsaris, procuránte Póntio Piláto Judǽam. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 20 in Evang.}
+
+REDEMPTÓRIS nostri Præcúrsor, quo témpore prædicatiónis offícium ac-
+
+céperit, memoráto Románæ reipúblicæ príncipe, et Judǽæ régibus, designátur. Quia enim illum prædicáre veniébat, qui et ex Judǽa quosdam, et multos ex géntibus redemptúrus erat: per regem géntium et príncipes Judæórum prædicatiónis ejus témpora designántur. Quia autem gentílitas colligénda erat, et Judǽa pro culpa perfídiæ dispergénda, ipsa quoque descríptio terréni principátus osténdit: quóniam et in Romána república unus præfuísse descríbitur, et in Judǽæ regno per quartam partem plúrimi principabántur.
+
+℟. Egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet: \* Et erit justítia cíngulum lumbórum ejus, et fides cinctórium renum ejus. ℣. Et requiéscet super eum spíritus Dómini: spíritus sapiéntiæ, et intelléctus: spíritus consílii, et fortitúdinis. — Et erit.
+
+#### Lectio ii
+
+VOCE étenim nostri Redemptóris dícitur: Omne regnum in seípsum divísum desolábitur. Liquet ergo, quod ad finem regni Judǽa pervénerat, quæ tot régibus divísa subjacébat. Apte quoque non solum quibus régibus, sed étiam

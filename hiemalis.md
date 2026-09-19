@@ -14655,3 +14655,74 @@ Miserére plebi tuæ, super quam invocátum est nomen tuum: \* et Israël, quem 
 Miserére civitáti sanctificatiónis tuæ Jerúsalem, \* civitáti requiéi tuæ.
 
 Reple Sion inenarrabílibus verbis tuis, \* et glória tua pópulum tuum.
+
+**Ant.** Osténde nobis, Dómine, lucem miseratiónum tuárum.
+
+**Ant.** Omnis spíritus \* laudet Dóminum.
+
+#### Psalmus 150
+
+LAUDÁTE Dóminum in sanctis ejus: \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus: \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ: \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro: \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus: laudáte eum in cýmbalis jubilatiónis: \* omnis spíritus laudet Dóminum.
+
+**Ant.** Omnis spíritus laudet Dóminum.
+
+#### In Officio feriali
+
+{RUBRIC: (In Officio Dominicæ post Oct. Epiphaniæ anticipátæ.)}
+
+#### Capit.
+
+*Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+AURÓRA jam spargit polum:
+Terris dies illábitur:
+
+Lucis resúltat spículum:
+Discédat omne lúbricum.
+
+Phantásma noctis éxsulet:
+Mentis reátus córruat:
+Quidquid tenébris hórridum
+Nox áttulit culpæ, cadat.
+
+Ut mane, quod nos últimum
+Hic deprecámur cérnui,
+Cum luce nobis éffluat,
+Hoc dum canóre cóncrepat.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum. Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+{RUBRIC: In Dominica post Octavam Epiphaniæ anticipáta Ant. ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+### Ad Laudes II
+
+*{RUBRIC: In Sabbatis Adventus, et in Sabbato post Cineres, necnon in Vigíliis commúnibus, quando fit Officium de Feria.}*
+
+{RUBRIC: (Pater noster et Ave.)}
+
+℣. Deus, in adjutórium.
+
+**Ant.** Benígne fac, Dómine.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:} **Ant.** Intuémini.

@@ -34403,3 +34403,29 @@ QUO vero matúrius in re tanti moménti procéderet, in solitúdinem secéssit, 
 SIC stabilíto órdine, sancti fundatóres in Gálliam rediérunt, primóque cœnóbio Cervi Frígidi in diœcési Meldénsi constrúcto, ad ejus régimen Felix remánsit; et Joánnes Romam cum áliquot sóciis revérsus est, ubi Innocéntius domum, ecclésiam et hospitále sancti Thomæ de Formis in monte Cœlio eis donávit cum multis redítibus et possessiónibus. Datis quoque lítteris ad Miramolínum regem Maróchii, opus redemptiónis felíci auspício inchoátum fuit. Tum ad Hispánias, sub jugo Saracenórum magna ex parte oppréssas, Joánnes proféctus est, regúmque, príncipum atque aliórum fidélium ánimos ad captivórum et páuperum commiseratiónem commóvit. Monastéria ædificávit, hospitália eréxit, magnóque lucro animárum plures captívos redémit. Romam tandem revérsus, sanctísque opéribus incúmbens, assíduis labóribus attrítus et morbo conféctus, ardentíssimo Dei et próximi amóre exæstuans, ad extrémum devénit. Quare frátribus convocátis, eísque ad opus redemptiónis cælitus præmonstrátum efficáciter cohortátis, obdormívit in Dómino sextodécimo Kaléndas Januárii, anno salútis millésimo ducentésimo décimo tértio; ejúsque corpus in ipsa ecclésia sancti Thomæ de Formis condígno honóre tumulátum fuit.
 
 ℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOÁNNES de Matha, Falcóne in Província piis et nobílibus paréntibus natus, cum primum Deo Sacrum offérret, per visiónem intelléxit, se ad rediméndos ab infidélibus captívos destinári. Quare divíno nutu in erémum secéssit, ubi Felícem Valésium in ea jam multis annis degéntem réperit. Ibi ferventius cum oratióni vacárent, ter in somnis admóniti, Romam profécti, ab Innocéntio Papa tértio approbatiónem novi órdinis sanctíssimæ Trinitátis pro rediméndis captívis obtinuérunt. Tum primum cœnóbium in diœcési Meldénsi construxérunt, cui regéndo Felix remánsit. Joánnes vero Romam cum áliquot sóciis revérsus est, ubi Innocéntius domum, ecclésiam et hospitále sancti Thomæ de Formis in monte Cœlio eis donávit. Datis quoque lítteris ad Miramolínum regem Maróchii, opus redemptiónis felíciter inchoátum fuit. Tum Joánnes ad Hispánias, sub jugo Saracenórum magna ex parte oppréssas, proféctus, ómnium ánimis ad captivórum commiseratiónem commótis, hospitália eréxit et plures captívos redémit. Romam demum revérsus, assíduis fractus labóribus et morbo conféctus, óbiit in Dómino, sexto décimo Kaléndas Januárii, anno millésimo ducentésimo décimo tértio.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi vestri, de Communi Confessóris non Pont. 1 loco.} [98]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum de potestáte Saracenórum captívos cǽlitus institúere dignátus es: præsta, quǽsumus; ut, ejus suffragántibus méritis, a captivitáte córporis et ánimæ, te adjuvánte, liberémur. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis, in Quadragésima Fériæ, ac S. Apollóniæ Virg. et Mart.}

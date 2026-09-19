@@ -20570,3 +20570,51 @@ ITAQUE jam non est servus, sed fílius: quod si fílius, et heres per Deum.
 {RUBRIC: Antiphónæ et Psalmi de Nativitáte. 402}
 
 **Capit.** Fratres: Quanto, {RUBRIC: et Hymnus} Jesu, Redémptor, {RUBRIC: ut in I Vésperis. 426}
+
+℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+**Ad Magnif. Ant.** Puer Jesus \* proficiébat ætáte et sapiéntia coram Deo et homínibus.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléc­ti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+
+{RUBRIC: Et fit Com. Oct. Nativitatis:}
+
+**Ant.** Hódie, {RUBRIC:} ℣. Notum fecit {RUBRIC: et Oratio} Concéde, {RUBRIC: ut infra.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## Die 29 Decembris
+
+# S. Thomæ
+
+## Episcopi et Martyris
+
+{RUBRIC: Duplex}
+
+{RUBRIC: Ad omnes Horas, prǽterquam ad Vésperas, Antiphónæ et Psalmi, et ad Matutínum étiam Versus, de Féria currénti, ut in Psaltério; réliqua de Communi unius Mártyris [29] prǽter sequéntia:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+#### Oratio
+
+DEUS, pro cujus Ecclésia gloriósus Póntifex Thomas gládiis impiórum occúbuit: præsta, quǽsumus; ut omnes, qui ejus implórant auxílium, petitiónis suæ salutárem consequántur efféctum. (Per Dóminum.)
+
+{RUBRIC: Pro Com. Oct. Nativitatis:}
+
+**Ant.** Hódie Christus natus est: hódie Salvátor appáruit: hódie in terra canunt Angeli, lætántur Archángeli: hódie exsúltant justi, dicéntes: Glória in excélsis Deo, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+### In I Nocturno
+
+{RUBRIC: Lectiónes de Epístola B. Pauli ad Romános hoc tríduo apposítæ, semper legúntur, in sua quǽque die, cum Responsóriis de Dominica infra Octávam, sive fiat Offícium de Sancto, sive de Dominica, sive de Octáva Nativitátis; nisi tamen legéndæ sint Lectiónes própriæ aut de Communi cujúsvis Festi occurréntis, juxta Rúbricas, quo in casu Lectiónes de Epístola ad

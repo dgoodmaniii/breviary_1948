@@ -23059,3 +23059,41 @@ Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
 #### Psalmus 46
 
 OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ vehemánter eleváti sunt.
+
+**Ant.** Psállite Deo nostro, psállite: psállite Regi nostro, psállite sapiénter.
+
+℣. Omnis terra adóret te, et psallat tibi. ℟. Psalmum dicat nómini tuo, Dómine.
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 55, 1-4*
+
+OMNES sitiéntes, veníte ad aquas: et qui non habétis argéntum, properáte, émite, et comédite: veníte, émite absque argénto, et absque ulla commutatióne vinum et lac. Quare appénditis argéntum non in pánibus, et labórem vestrum non in saturitáte? Audíte audiéntes me, et comédite bonum, et delectábitur in crassitúdine ánima vestra. Inclináte aurem vestram, et veníte ad me: audíte, et vivet ánima vestra, et fériam vobíscum pactum sempitérnum, misericórdias David fidéles. Ecce testem pópulis dedi eum, ducem ac præceptórem géntibus.
+
+{RUBRIC: ¶ Sequens ℟. dícitur tantum hac die, in prima infra Octávam et post Domínicam Fériam, in qua sumendæ sint Lectiónes de inítio Epístolæ I beáti Pauli Ap. ad Corínthios et in die Octáva; áliis vero diébus infra Octávam, ejus loco dícitur ℟. Tria sunt múnera, ut infra. [REF: p. 529]}
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum, et vox de cælo facta est. — Hic.
+
+#### Lectio ii
+
+*Cap. 60, 1-6*
+
+SURGE, illumináre, Jerúsalem: quia venit lumen tuum, et glória Dómini super te orta est. Quia ecce ténebræ opérient terram, et calígo pópulos: super te autem oriétur Dómi-

@@ -16650,3 +16650,29 @@ EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccat
 ET apprehéndent septem mulíeres virum unum in die illa, dicéntes: Panem nostrum comedémus, et vestiméntis nostris operiémur: tantúmmodo invocétur nomen tuum super nos, aufer oppróbrium nostrum. In die illa erit germen Dómini in magnificéntia, et glória, et fructus terræ sublímis, et exsultátio his, qui salváti fúerint de Israël. Et erit: Omnis qui relíctus fúerit in Sion, et resíduus in Jerúsalem, sanctus vocábitur, omnis qui scriptus est in vita in Jerúsalem.
 
 ℟. Súscipe verbum, Virgo María, quod tibi a Dómino per Ángelum transmíssum est: concípies et páries Deum páriter et hóminem, \* Ut benedícta dicáris inter omnes mulíeres. ℣. Páries quidem fílium, et virginitátis non patiéris detriméntum: efficiéris grávida, et eris mater semper intácta. — Ut.
+
+#### Lectio ii
+
+*Cap. 5, 1-7*
+
+CANTÁBO dilécto meo cánticum patruélis mei víneæ suæ: Vínea facta est dilécto meo in cornu fílio ólei. Et sepívit eam, et lápides elégit ex illa, et plantávit eam eléctam, et ædificávit turrim in médio ejus, et tórcular exstrúxit in ea: et exspectávit ut fáceret uvas, et fecit labrúscas. Nunc ergo, habitatóres Jerúsalem, et viri Juda, judicáte inter me et víneam meam. Quid est quod débui ultra fácere víneæ meæ, et non feci ei? An quod exspectávi, ut fáceret uvas, et fecit labrúscas?
+
+℟. Aspiciébam in visu noctis, et ecce in núbibus cæli Fílius hóminis veniébat: et datum est ei regnum, et honor: \* Et omnis pópulus, tribus, et línguæ sérvient ei. ℣. Potéstas ejus, potéstas ætérna, quæ non auferétur: et regnum ejus, quod non corrumpétur. — Et.
+
+#### Lectio iii
+
+ET nunc osténdam vobis quid ego fáciam víneæ meæ: áuferam sepem ejus, et erit in direptiónem: díruam macériam ejus, et erit in conculcatiónem. Et ponam eam desértam: non putábitur, et non fodiétur: et ascéndent ve-
+
+pres et spinæ: et núbibus mandábo ne pluant super eam imbrem. Vínea enim Dómini exercítuum domus Israël est: et vir Juda germen ejus delectábile: et exspectávi ut fáceret judícium, et ecce iníquitas: et justítiam, et ecce clamor.
+
+℟. Missus est Gábriel Angelus ad Maríam Vírginem despónsatam Joseph, núntians ei verbum; et expavéscit Virgo de lúmine: ne tímeas, María, invenísti grátiam apud Dóminum: \* Ecce concípies et páries, et vocábitur Altíssimi Fílius. ℣. Dabit ei Dóminus Deus sedem David, patris ejus, et regnábit in domo Jacob in ætérnum. — Ecce. Glória Patri. Ecce.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Benedícta \* tu in muliéribus, et benedíctus fructus ventris tui.
+
+**Oratio** Excita, {RUBRIC: ut supra.}
+
+℣. Roráte, cæli.
+
+**Ad Magnif. Ant.** Exspectábo \* Dóminum Salvatórem meum, et præstolábor eum, dum prope est, allelúja.

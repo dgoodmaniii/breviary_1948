@@ -9143,3 +9143,51 @@ MISERERE mei, Deus, quóniam conculcávit me homo: \* tota die impúgnans tribul
 Conculcavérunt me inimíci mei tota die: \* quóniam multi bellántes advérsum me.
 
 Ab altitúdine diéi timébo: \* ego vero in te sperábo.
+
+In Deo laudábo sermónes meos, in Deo sperávi: \* non timébo quid fáciat mihi caro.
+
+Tota die verba mea exsecrabántur: \* advérsum me omnes cogitatiónes eórum in malum.
+
+Inhabitábunt et abscóndent: \* ipsi calcáneum meum observábunt.
+
+Sicut sustinuérunt ánimam meam, pro níhilo salvos fácies illos: \* in ira pópulos confrínges.
+
+Deus, vitam meam annuntiávi tibi: \* posuísti lácrimas meas in conspéctu tuo.
+
+Sicut et in promissióne tua: \* tunc converténtur inimíci mei retrórsum:
+
+In quacúmque die invocávero te: \* ecce, cognóvi, quóniam Deus meus es.
+
+In Deo laudábo verbum, in Dómino laudábo sermónem: \* in Deo sperávi, non timébo quid fáciat mihi homo.
+
+In me sunt, Deus, vota tua, \* quæ reddam, laudatiónes tibi.
+
+Quóniam eripuísti ánimam meam de morte, et pedes meos de lapsu: \* ut pláceam coram Deo in lúmine vivéntium.
+
+### Psalmus 56
+
+MISERERE mei, Deus, miserére mei: \* quóniam in te confídit ánima mea.
+
+Et in umbra alárum tuárum sperábo, \* donec tránseat iníquitas.
+
+Clamábo ad Deum altíssimum: \* Deum qui benefécit mihi.
+
+Misit de cælo, et liberávit me: \* dedit in oppróbrium conculcántes me.
+
+Misit Deus misericórdiam suam, et veritátem suam, \* et erípuit ánimam meam de médio catulórum leónum: dormívi conturbátus.
+
+Fílii hóminum dentes eórum arma et sagíttæ: \* et lingua eórum gládius acútus.
+
+Exaltáre super cælos, Deus, \* et in omnem terram glória tua.
+
+Láqueum paravérunt pédibus meis: \* et incurvavérunt ánimam meam.
+
+Fodérunt ante fáciem meam fóveam: \* et incidérunt in eam.
+
+Parátum cor meum, Deus, parátum cor meum: \* cantábo, et psalmum dicam.
+
+Exsúrge, glória mea, exsúrge, psaltérium et cíthara: \* exsúrgam dilúculo.
+
+Confitébor tibi in pópulis, Dómine: \* et psalmum dicam tibi in géntibus:
+
+Quóniam magnificáta est usque ad cælos misericórdia tua, \* et usque ad nubes véritas tua.

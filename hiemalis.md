@@ -33504,4 +33504,30 @@ DIFFEREBÁTUR exíre de sæculo, ut vidéret natum, per quem cónditum est sæcu
 
 IN isto quidem sǽculo diu esse nolébat, et Christum in hoc sǽculo vidére cupiébat, cantans cum prophéta et dicens: Osténde nobis, Dómine, misericórdiam tuam, et salutáre tuum da nobis. Dénique, ut noverítis ita esse istíus lætítiam, conclúsit dicens: Nunc dimíttis servum tuum in pace: quia vidérunt óculi mei salutáre tuum. Prophétæ cecinérunt Conditórem cæli et terræ in terra cum homínibus futúrum; Angelus nuntiávit Creatórem carnis et spíritus in carne ventúrum; salutávit Joánnes ex útero in útero Salvatórem; Símeon senex Deum agnóvit infántem.
 
-℟. Cum indúcerent púerum Jesum paréntes ejus in templum, ut fácerent secúndum consuetúdinem legis pro eo, accépit eum Símeon in ulnas suas, et benedíxit Deum, dicens: \* Nunc dimíttis, Dómine, servum tuum in pace. ℣. Suscípiens Símeon
+℟. Cum indúcerent púerum Jesum paréntes ejus in templum, ut fácerent secúndum consuetúdinem legis pro eo, accépit eum Símeon in ulnas suas, et benedíxit Deum, dicens: \* Nunc dimíttis, Dómine, servum tuum in pace. ℣. Suscípiens Símeon Púerum in mánibus, exclamávit, dicens. — Nunc. Glória Patri. Nunc.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 2, 22-32*
+
+IN illo témpore: Postquam impléti sunt dies purgatiónis Maríæ secúndum legem Móysi, tulérunt Jesum in Jerúsalem, ut sísterent eum Dómino, sicut scriptum est in lege Dómini. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 2 Comment. in Lucæ cap. 2, post initium}
+
+ET ecce homo erat in Jerúsalem, cui nomen Símeon, et homo iste justus et timorátus, exspéctans consolatiónem Israël. Non solum ab Angelis, et prophétis, et a pastóribus, sed étiam a senióribus et justis generátio Dómini accépit testimónium. Omnis ætas, et utérque sexus, eventorúmque mirácula fidem ástruunt. Virgo génerat, stérilis parit, mutus lóquitur, Elísabeth prophétat, Magus adórat, útero clausus exsúltat, vídua confitétur, justus exspéctat.
+
+℟. Suscípiens Jesum in ulnas suas Símeon, exclamávit, et dixit: \* Tu es vere lumen ad illuminatiónem géntium, et glóriam plebis tuæ Israël. ℣. Cum indúcerent púerum Jesum paréntes ejus, et ipse accépit eum in ulnas suas, et benedíxit Deum, et dixit. — Tu.
+
+{RUBRIC: Bened.} Cujus festum cólimus, ipsa Virgo vírginum.
+
+#### Lectio viii
+
+ET bene justus, qui non suam, sed pópuli grátiam requirébat, cúpiens ipse corpóreæ vínculis fragilitátis exsólvi, sed exspéctans vidére promíssum: sciébat enim quia beáti óculi, qui eum vidérent. Et ipse accépit eum in ulnas suas, et benedíxit Deum, et dixit: Nunc dimítte servum tuum, Dómine, secúndum verbum tuum in pace. Vide justum, velut corpóreæ cárcere molis inclúsum, velle dissólvi, ut incípiat esse cum Christo. Dissólvi enim, et cum Christo esse, multo mélius est.
+
+℟. Senex Púerum portábat, Puer autem senem regébat: \* Quem virgo concépit, virgo péperit, virgo post partum, quem génuit, adorávit. ℣. Accípiens Símeon Púerum in mánibus, grátias agens benedíxit Dóminum. — Quem. Glória Patri. Quem.

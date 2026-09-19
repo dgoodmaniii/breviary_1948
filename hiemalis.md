@@ -23428,3 +23428,61 @@ ET notándum, quod Redemptórem nostrum, cum jam perféctæ esset ætátis, eís
 OMNIA quippe eleménta auctórem suum venísse testáta sunt. Ut enim de eis quiddam usu humáno loquar: Deum hunc cæli esse cognovérunt, quia prótinus stellam misérunt. Mare cognóvit, quia sub plantis ejus se calcábile prǽbuit. Terra cognóvit, quia eo moriénte contrémuit. Sol cognóvit, quia lucis suæ rádios abscóndit. Saxa et paríetes cognovérunt, quia témpore mortis ejus scissa sunt. Inférnus agnóvit, quia hos, quos tenébat mórtuos, réddidit. Et tamen hunc, quem Dóminum ómnia insensibília eleménta sensérunt, adhuc infidélium Judæórum corda Deum esse mínime cognóscunt, et durióra saxis, scindi ad pœniténdum nolunt.
 
 Te Deum.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ}
+
+**1** Ante lucíferum génitus, \* et ante sǽcula, Dóminus Salvátor noster hódie mundo appáruit.
+
+{RUBRIC: Psalmi de Dominica [REF: p. 44], I loco.}
+
+**2** Venit lumen tuum, \* Jerúsalem, et glória Dómini super te orta est, et ambulábunt gentes in lúmine tuo, allelúja.
+
+**3** Apértis thesáuris suis, \* obtulérunt Magi Dómino aurum, thus et myrrham, allelúja.
+
+**4** María et flúmina, \* benedícite Dómino: hymnum dícite, fontes, Dómino, allelúja.
+
+**5** Stella ista \* sicut flamma corúscat, et Regem regum Deum demónstrat: Magi eam vidérunt, et magno Regi múnera obtulérunt.
+
+#### Capitulum
+
+*Is. 60, 1*
+
+SURGE, illumináre, Jerúsalem, quia venit lumen tuum, et glória Dómini super te orta est.
+
+#### Hymnus
+
+O SOLA magnárum úrbium
+Major Béthlem, cui cóntigit
+Ducem salútis cælitus
+Incorporátum gígnere.
+
+Quem stella, quæ solis rotam
+Vincit decóre ac lúmine,
+Venísse terris núntiat
+Cum carne terréstri Deum.
+
+Vidére postquam illum Magi,
+Eóa promunt múnera:
+Stratíque votis ófferunt
+Thus, myrrham, et aurum régium.
+
+Regem Deúmque annúntiant
+Thesáurus, et fragrans odor
+Thuris Sabǽi, ac mýrrheus
+Pulvis sepúlcrum prǽdocet.
+
+Jesu, tibi sit glória,
+Qui apparuísti géntibus,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Adoráte Deum, allelúja. ℟. Omnes Angeli ejus, allelúja.
+
+**Ad Bened. Ant.** Hódie \* cæléstí Sponso juncta est Ecclésia, quóniam in Jordáne lavit Christus ejus crímina: currunt cum munéribus Magi ad regáles núptias, et ex aqua facto vino lætántur convívæ, allelúja.
+
+#### Oratio
+
+DEUS, qui hodiérna die Unigénitum tuum géntibus stella duce revelásti: concéde propítius; ut, qui jam te ex fide cognóvimus, usque ad contemplándam spéciem tuæ celsitúdinis perducámur. Per eúmdem Dóminum.

@@ -31046,4 +31046,38 @@ DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti
 
 **Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
 
-℣. Justum dedúxit.
+℣. Justum dedúxit.**Oratio** C 4
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Antónii Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Postea Commem. S. Priscæ Virg. et Mart.}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+#### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut, qui beátæ Priscæ Vírginis et Mártyris tuæ natalítia cólimus, et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.
+
+### Ad Matutinum
+
+**Invitat.** Tu es pastor óvium, Princeps Apostolórum: \* Tibi trádidit Deus claves regni cælórum. **Ps. 94** Veníte. 3
+
+**Hymnus** Quodcúmque, ut supra. 765
+
+### In I Nocturno
+
+{RUBRIC: Incipit Epístola prima beáti Petri Apóstoli}
+
+#### Lectio i
+
+*Cap. 1, 1-12*
+
+PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ, Cappadóciæ, Asíæ, et Bithýniæ secúndum præsciéntiam Dei Patris, in sanctificatiónem Spíritus, in obediéntiam, et aspersiónem sánguinis Jesu Christi: Grátia vobis, et pax multiplicétur. Benedíctus Deus et Pater Dómini nostri Jesu Christi, qui secúndum misericórdiam suam magnam regenerávit nos in spem vivam, per resurrectiónem Jesu Christi ex mórtuis, in hereditátem incorruptíbilem, et incontaminátam, et immarcescíbilem, conservátam in cælis in vobis, qui in virtúte Dei custodímini per fidem in salútem, parátam revelári in témpore novíssimo.
+
+℟. Simon Petre, ántequam de navi vocárem te, novi te, et super plebem meam príncipem te constítui, \* Et claves regni cælórum trádidi tibi. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et.
+
+#### Lectio ii
+
+IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in lau-

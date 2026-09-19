@@ -33978,4 +33978,36 @@ QUAM ob rem irátus prǽtor hanc ei optiónem dat, velítne pótius venerári de
 
 QUO témpore, ingénti terrǽmótu urbs tota contrémuit, ac duo paríetes, corruéntes, Silvínum et Falcónium íntimos prætóris familiáres oppressérunt. Quare veheménter commóta civitáte, véritus pópuli tumúltum Quintiánus, Agatham semimórtuam clam redúci ímperat in cárcerem. Quæ sic Deum precáta: Dómine, qui me custodísti ab infántia, qui abstulísti a me amórem sǽculi, qui me carníficum torméntis superiórem præstitísti, áccipe ánimam meam. Ea in oratióne migrávit in cælum, Nonis Februárii: cujus corpus a Christiánis sepelítur.
 
-℟. Vidísti, Dómine, et spectásti agónem meum, quómodo pugnávi in stádio; sed quia nólui obedíre mandátis príncipum,
+℟. Vidísti, Dómine, et spectásti agónem meum, quómodo pugnávi in stádio; sed quia nólui obedíre mandátis príncipum, \* Jussa sum in mamílla torquéri. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Jussa. Glória Patri. Jussa.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+AGATHA, in Sicília nobílibus paréntibus nata, in persecutióne Décii imperatóris, Cátanæ gloriósum martýrium fecit. Nam cum Quintiánus, Sicíliæ prǽtor, ómnibus modis ejus pudicítiam frustra tentásset, Agatha, superstitiónis christiánæ nómine comprehénsa, primum cólaphis cǽditur, dein admótis candéntibus láminis in equúleo torquétur, tum ei mamílla abscínditur. Mox conjécta in víncula, a beáto Petro Apóstolo, noctu ei apparénti, sanátur. Rursum evocáta a prǽtóre et in Christi confessióne persevérans, in acútis téstulis et candéntibus carbónibus ei subjéctis volutátur. Sed ob ingéntem terrǽmótum veheménter commóta civitáte, Quintiánus, véritus pópuli tumúltum, eam semimórtuam clam redúci ímperat in cárcerem; ubi paulo post migrávit in cælum, Nonis Februárii.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+**Ant.** Nisi diligénter \* perféceris corpus meum a carnifícibus attrectári, non potest ánima mea in paradísum Dómini cum palma intráre martýrii.
+
+###### Psalmus 10
+
+IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Óculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+**Ant.** Nisi diligénter perféceris corpus meum a car-

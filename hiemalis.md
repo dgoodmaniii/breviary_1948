@@ -25757,3 +25757,24 @@ MIROR quod sic tam cito transferímini ab eo, qui vos vocávit in grátiam Chris
 #### Lectio iii
 
 NOTUM enim vobis fácio, fratres, Evangélium, quod evangelizátum est a me, quia non est secúndum hóminem: neque enim ego ab hómine accépi illud, ne-
+que dídici, sed per revelatiónem Jesu Christi. Audístis enim conversatiónem meam aliquándo in Judaísmo: quóniam supra modum persequébar Ecclésiam Dei, et expugnábam illam, et proficiébam in Judaísmo supra multos coætáneos meos in génere meo, abundántius æmulátor exsístens paternárum meárum traditiónum.
+
+℟. A dextris est mihi Dóminus, ne commóvear: \* Propter hoc dilatátum est cor meum, et exsultávit lingua mea. ℣. Dóminus pars hereditátis meæ, et cálicis mei. — Propter. Glória Patri. Propter.
+
+### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Augustíni Epíscopi in Epístolam ad Gálatas}
+
+{RUBRIC: Præfatio, tom. 4}
+
+#### Lectio iv
+
+CAUSA, propter quam scribit Apóstolus ad Gálatas, hæc est: ut intélligant grátiam Dei id secum ágere, ut sub lege jam non sint. Cum enim prædicáta eis esset Evangélii grátia, non defuérunt quidam ex circumcisióne, quamvis Christiáni nómine, nondum tamen tenéntes ipsum grátiæ benefícium, et adhuc voléntes esse sub onéribus legis, quæ Dóminus Deus imposúerat non justítiæ serviéntibus, sed peccáto, justam scílicet legem injústis homínibus dando ad demonstránda peccáta eórum, non auferénda. Non enim aufert peccáta, nisi grátia fídei, quæ per dilectiónem operátur.
+
+℟. Notas mihi fecísti, Dómine, vias vitæ: \* Adimplébis me lætítia cum vultu tuo: delectatiónes in déxtera tua usque in finem. ℣. Tu es qui restítues hereditátem meam mihi. — Adimplébis.
+
+#### Lectio v
+
+SUB hac ergo grátia jam Gálatas constitútos illi volébant constitúere sub onéribus legis, asseverántes nihil eis prodésse Evangélium, nisi circumciderétur, et céteras carnáles Judáici ritus observatiónes subírent. Et ídeo Paulum Apóstolum suspéctum habére cœpérant, a quo illis Evangélium prædicátum erat, tamquam non tenéntem disciplínam ceterórum Apostolórum, qui gentes cogébant judaizáre.
+
+℟. Díligam te, Dómine, virtus mea: Dóminus firmaméntum meum, \* Et refúgium meum. ℣. Liberátor meus, Deus meus, adjútor meus. — Et.

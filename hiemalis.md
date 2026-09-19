@@ -29846,3 +29846,12 @@ INEFFÁBILIS Deus, cujus viæ misericórdia et véritas, cujus volúntas omnipot
 #### Lectio v
 
 QUAPRÓPTER illam, longe ante omnes angélicos spíritus cunctósque Sanctos, cæléstium ómnium charísmatum cópia de the-
+sáuro divinitátis deprómpta ita mirífice cumulávit, ut ipsa ab omni prorsus peccáti labe semper líbera, ac tota pulchra et perfécta eam innocéntiæ et sanctitátis plenitúdinem præ se ferret, qua major sub Deo nullátenus intellígitur, et quam præter Deum nemo ássequi cogitándo potest. Et quidem decébat omníno, ut perfectíssimæ sanctitátis splendóribus semper ornáta fulgéret, ac vel ab ipsa originális culpæ labe plane immúnis amplíssimum de antíquo serpénte triúmphum referret tam venerábilis Mater, cui Deus Pater únicum Fílium suum, quem de corde suo æquálem sibi génitum, tamquam seípsum díligit, ita dare dispósuit, ut naturáliter esset unus idémque commúnis Dei Patris et Vírginis Fílius.
+
+℟. Nihil inquinátum in eam incúrrit: \* Candor est lucis ætérnæ et spéculum sine mácula. ℣. Est enim hæc speciósior sole, et luci comparáta invenítur púrior. — Candor est lucis.
+
+#### Lectio vi
+
+QUAM originálem augústæ Vírginis innocéntiam cum admirábili ejúsdem sanctitáte præcelsáque Dei Matris dignitáte omníno cohæréntem cathólica Ecclésia, quæ a Sancto semper edócta Spíritu colúmna est ac firmaméntum veritátis, tamquam doctrínam póssidens divínitus accéptam, et cæléstis revelatiónis depósito comprehénsam multíplici continénter ratióne, splendidísque factis magis in dies explicáre, propónere ac fovére numquam déstitit. Hanc enim doctrínam ab antiquíssimis témporibus vigéntem, ac fidélium ánimis pénitus ínsitam, et sacrórum antístitum curis studiísque per cathólicum orbem mirífice propagátam, ipsa Ecclésia luculentíssime significávit, cum ejúsdem Vírginis Conceptiónem público fidélium cúltui ac venerationi propónere non dubitávit. Quo illústri quidem facto ipsíus Vírginis Conceptiónem véluti singulárem, miram et a relíquórum hóminum primórdiis longíssime secrétam, et omníno sanctam coléndam exhíbuit, cum Ecclésia nónnisi de Sanctis dies festos concélebret.
+
+℟. Signum magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, \* Et in cápite ejus coróna stellárum duódecim. ℣. Induit eam Dóminus vestiméntis salútis, induménto justítiæ, et quasi sponsam ornávit

@@ -10852,3 +10852,55 @@ Et erit firmaméntum in terra in summis móntium, superextollétur super Líbanu
 Sit nomen ejus benedíctum in sécula: \* ante solem pérmanet nomen ejus.
 
 Et benedicéntur in ipso omnes tribus terræ: \* omnes gentes magnificábunt eum.
+
+Benedíctus Dóminus, Deus Israël, \* qui facit mirabília solus:
+
+Et benedíctum nomen majestátis ejus in ætérnum: \* et replébitur majestáte ejus omnis terra: fiat, fiat.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 97, qui in Laudibus locum non habuit.}
+
+### Psalmus 97
+
+CANTATE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+{RUBRIC: Secus vero, tribus Psalmis explétis, statim dícitur Ant.}
+
+**Per Annum: Ant.** In loco páscuæ, ibi Dóminus me collocávit.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria V post Dominicam I:} **Ant.** In illa die stillábunt montes dulcédinem, et colles fluent lac et mel, allelúja.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** De Sion véniet Dóminus omnípotens, ut salvum fáciat pópulum suum.
+
+{RUBRIC: In Officio Festi vel Octavæ:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In omnibus autem Feriis et in Vigiliis communibus:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe,

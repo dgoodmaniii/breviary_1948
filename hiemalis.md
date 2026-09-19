@@ -27848,3 +27848,30 @@ MAGNUS plane vir Abraham, et multárum virtútum clarus insígnibus, quem votis 
 #### Lectio v
 
 SED ídeo áddidit síngula, ut ejus afféctum probáret: ne forte aut imprudénter cœpísse viderétur, aut fraus áliqua mandátis cæléstibus pararétur. Sed sicut coacervánda fuérunt præcépta, ne quid latéret; ita étiam proponénda prǽmia, ne forte desperáret. Tentátur ut fortis, incitátur ut fidélis, provocátur ut justus: meritóque exívit, quemádmodum locútus est illi Dóminus. Et exívit cum eo Lot. Hoc autem, quod pro magno inter
+septem sapiéntum dicta celebrátur, Séquere Deum; perfécit Abraham, factóque sapiéntum dicta prævénit, et secútus Deum exívit de terra sua.
+
+℟. Vocávit Angelus Dómini Abraham de cælo, secúndo, dicens: Benedícam tibi, \* Et multiplicábo te sicut stellas cæli. ℣. Possidébit semen tuum portas inimicórum tuórum, et benedicéntur in sémine tuo omnes tribus terræ. — Et.
+
+#### Lectio vi
+
+SED quia ante terra ei fúerat ália, hoc est, régio Chaldæórum, de qua exívit Thare pater Abrahæ, et in Charran demigrávit: et quia secum edúxit nepótem suum, cui dictum fúerat, Exi de cognatióne tua: considerémus, ne forte hoc sit exíre de terra sua, de hujus terræ, hoc est, de córporis nostri quadam commoratióne égredi, de qua exívit Paulus, qui dixit: Nostra autem conversátio in cælis est.
+
+℟. Deus dómini mei Abraham, dírige viam meam: \* Ut cum salúte revértar in domum dómini mei. ℣. Obsecro, Dómine, fac misericórdiam cum servo tuo. — Ut. Glória Patri. Ut.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 18, 31-43*
+
+IN illo témpore: Assúmpsit Jesus duódecim, et ait illis: Ecce ascéndimus Jerosólymam, et consummabúntur ómnia, quæ scripta sunt per Prophétas de Fílio hóminis. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 2 in Evangelia}
+
+REDÉMPTOR noster, prævídens ex passióne sua discipulórum ánimos perturbándos, eis longe ante et ejúsdem passiónis pœnam, et resurrectiónis suæ glóriam prædíxit: ut cum eum moriéntem, sicut prædíctum est, cérnerent; étiam resurrectúrum non dubitárent. Sed quia carnáles adhuc discípuli nullo modo valébant cápere verba mystérii, venítur ad miráculum. Ante eórum óculos cæcus lumen recépit: ut qui cæléstis mystérii verba non cáperent, eos ad fidem cæléstia facta solidárent.
+
+℟. Veni hódie ad fontem aquæ, et orávi Dóminum, dicens: \* Dómine, Deus Abraham, tu prósperum fecísti desidérium meum. ℣. Igitur puélla, cui díxero, Da mihi aquam de hý-

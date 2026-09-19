@@ -28091,3 +28091,39 @@ ET ecce unus, qui eváserat, nuntiávit Abram Hebrǽo, qui habitábat in convál
 ℟. Vocávit Angelus Dómini Abraham de cælo, secúndo, dicens: Benedícam tibi, \* Et multiplicábo te sicut stellas cæli. ℣. Possidébit semen tuum portas inimicórum tuórum, et benedicéntur in sémine tuo omnes tribus terræ. — Et.
 
 {RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+EGRÉSSUS est autem rex Sodomórum in occúrsum ejus, postquam revérsus est a cæde Chodorláhomor, et regum qui cum eo erant in valle Save, quæ est vallis regis. At vero Melchísedech rex Salem, próferens panem et vinum, erat enim sacérdos Dei altíssimi, benedíxit ei, et ait: Benedíctus Abram Deo excélso, qui creávit cælum et terram: et benedíctus Deus excélsus, quo protegénte, hostes in mánibus tuis sunt. Et dedit ei décimas ex ómnibus.
+
+℟. Deus dómini mei Abraham, dírige viam meam: \* Ut cum salúte revértar in domum dómini mei. ℣. Obsecro, Dómine, fac misericórdiam cum servo tuo. — Ut. Glória Patri. Ut.
+
+**Ad Magnif. Ant.** Miserére mei, \* Fili David. Quid vis, ut fáciam tibi? Dómine, ut vídeam.
+
+{RUBRIC: Sequens Féria IV Cínerum est major privilegiáta, réliquæ autem usque ad Sábbatum sequens inclusíve, sunt majóres non privilegiátæ.}
+
+---
+
+## Feria Quarta Cinerum
+
+{RUBRIC: Ab hac die cessant omnes Octávæ.}
+
+{RUBRIC: In hac et áliis Fériis usque ad Nonam Sábbati sequéntis inclusíve, ómnia dicúntur ut in præcedéntibus Fériis post Septuagésimam, excéptis iis quæ hic habéntur própria.}
+
+{RUBRIC: Et quotídie in Offício feriáli ad omnes Horas dicúntur Preces, ut in Ordinário.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 6, 16-21*
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum jejunátis, nolíte fíeri sicut hypócritæ, tristes. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Liber 2 de Sermóne Dómini in monte, cap. 12, tom. 4}
+
+MANIFÉSTUM est, his præcéptis omnem nostram intentiónem in interióra gáudia dírigi: ne foris quæréntes mercédem, huic sǽculo conformémur, et amittámus promissiónem tanto solidióris atque firmióris, quanto interióris beatitúdinis, qua nos elégit Deus confórmes fíeri imáginis Fílii sui. In hoc autem capítulo máxime adverténdum est, non in solo rerum corporeárum nitóre, atque pompa, sed étiam in ipsis sórdibus luctuósis esse posse jactántiam; et eo periculosiórem, quo sub nómine servitútis Dei décipit.

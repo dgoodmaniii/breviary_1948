@@ -23838,3 +23838,55 @@ Amen.
 #### Oratio
 
 DÓMINE Jesu Christe, qui Maríæ et Joseph súbditus, doméstiam vitam ineffabílibus virtútibus consecrásti: fac nos, utriúsque auxílio, Famíliæ sanctæ tuæ exémplis ín-
+strui; et consórtium cónsequi sempitérnum: Qui vivis.
+
+{RUBRIC: Et fit Commem. præcedéntis diéi infra Octávam: Antíphona diéi curréntis própria.}
+
+℣. Reges Tharsis et ínsulæ múnera ófferent. ℟. Reges Arabum et Saba dona addúcent.
+
+#### Oratio
+
+DEUS, qui hodiérna die Unigénitum tuum géntibus stella duce revelásti: concéde propítius; ut, qui jam te ex fide cognóvimus, usque ad contemplándam spéciem tuæ celsitúdinis perducámur. (Per eúmdem Dóminum.)
+
+{RUBRIC: Deinde Com. Dominicæ:}
+
+**Ant.** Remánsit puer Jesus in Jerúsalem, et non cognovérunt paréntes ejus, existimántes illum esse in comitátu: et requirébant eum inter cognátos et notos.
+
+℣. Omnes de Saba vénient, allelúja. ℟. Aurum et thus deferéntes, allelúja.
+
+#### Oratio
+
+VOTA, quǽsumus, Dómine, supplicántis pópuli cælésti pietáte proséquere: ut et quæ agénda sunt, vídeant, et ad implénda quæ víderint, conváléscant. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Christum, Dei Fílium, Maríæ et Joseph súbditum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+#### Hymnus
+
+SACRA jam splendent decoráta lychnis
+Templa, jam sertis redimítur ara,
+Et pio fumant redoléntque acérræ
+Thuris honóre.
+
+Num juvet Summo Géniti Paréntе
+Régios ortus celebráre cantu?
+Num domus David, décora et vetústæ
+Nómina gentis?
+
+Grátius nobis memoráre parvum
+Názaræ tectum, tenuémque cultum;
+Grátius Jesu tácitam referre
+Cármine vitam.
+
+Nili ab extrémis peregrínus oris,
+Angeli ductu, própere remígrat
+Multa perpéssus Puer, et patérno
+Límine sospes.
+
+Arte, qua Joseph, húmili excoléndus
+Abdíto, Jesus juvenéscit ævo,
+Seque fabrílis sócium labóris
+Adjícit ultro.

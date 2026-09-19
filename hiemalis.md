@@ -32910,4 +32910,22 @@ QUAM gratum Deo fúerit hoc sancti viri desidérium, súbsequens declarávit ev�
 
 #### Lectio vi
 
-EDITO virginitátis voto, illibátam perpétuo castitátem servávit. Patiéntia, humilitáte, abstinéntia, ceterísque virtútibus mirabíliter enítuit. Prophetíæ dono illústris, futúra prædíxit; inter quæ máxime celebrátur, quod Jacóbus rex Valéntiam a Mauris occupátam expugnáverit, accépta prius ab
+EDITO virginitátis voto, illibátam perpétuo castitátem servávit. Patiéntia, humilitáte, abstinéntia, ceterísque virtútibus mirabíliter enítuit. Prophetíæ dono illústris, futúra prædíxit; inter quæ máxime celebrátur, quod Jacóbus rex Valéntiam a Mauris occupátam expugnáverit, accépta prius abeo obtinéndæ victóriæ securitáte. Angeli Custódis ac Deíparæ Vírginis frequénti apparitióne recreabátur. Sénio tandem conféctus, de imminénti morte cértior factus, in morbum íncidit, sanctísque reféctus sacraméntis, fratres suos ad caritátem erga captívos cohortátus, et Psalmum Confitébor tibi, Dómine, in toto corde meo, devotíssime récitans, ad illa verba, Redemptiónem misit Dóminus pópulo suo, spíritum Deo réddidit média nocte Vigíliæ Nativitátis Dómini, anno millésimo ducentésimo quinquagésimo sexto. Ejus autem festum Alexánder séptimus ad univérsam exténdit Ecclésiam.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, adoléscens paréntibus orbátus, Albigénsium hǽresim éxsecrans, divéndito património, in Hispániam secéssit, ubi noctu oránti beáta Virgo appárens, Fílio suo sibíque acceptíssimum fore suggéssit, si ordo religiosórum instituerétur pro captívis ab infidélium tyránnide liberándis. Quare una cum sancto Raymúndo de Péñafort et Jacóbo primo, rege Aragóniæ, de eádem re a Dei Genítrice ipsa nocte præmónitis, religiónem beátæ Maríæ de Mercéde redemptiónis captivórum instítuit; sodálibus suis quarto voto obstríctis, manéndi in pignus sub paganórum potestáte, si pro Christiánis liberándis opus esset. Angeli Custódis ac Deíparæ Vírginis apparitiónibus sæpe recreátus, cum ad bonam senectútem pervenísset, piíssime óbiit média nocte Vigíliæ Nativitátis Dómini, anno millésimo ducentésimo quinquagésimo sexto.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Nolíte timére, {RUBRIC: de Communi Conf. non Pontif. 2 loco.} [105]
+
+{RUBRIC: Pro S. Agnete secúndo}
+
+#### Lectio ix
+
+BEÁTA Agnes, paréntibus ad ejus sepúlcrum assídue vigilántibus, qua-

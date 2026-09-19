@@ -28687,3 +28687,50 @@ AUDÍSTIS, fratres caríssimi, quia ad uníus jussiónis vocem Petrus et Andréa
 IN cælo jam sedet, qui de conversióne nos ádmonet; jam jugo fídei colla géntium súbdidit, jam mundi glóriam stravit, jam ruínis ejus crebrescéntibus, distrícti sui judícii diem propinquántem denúntiat: et tamen supérba mens nostra adhuc non vult hoc sponte desérere, quod quotídie perdit invíta. Quid ergo, fratres caríssimi, quid in ejus judício dictúri sumus, qui ab amóre præséntis sǽculi nec præcéptis fléctimur, nec verbéribus emendámur?
 
 ℟. Videns crucem Andréas exclamávit, dicens: O crux admirábilis, o crux desiderábilis, o crux quæ per totum mundum rúti-
+las: \* Súscipe discípulum Christi, ac per te me recípiat, qui per te móriens me redémit. ℣. O bona crux, quæ decórem et pulchritúdinem de membris Dómini suscepísti. — Súscipe. Glória Patri. Súscipe.
+
+#### Lectio ix
+
+SED fortásse áliquis tácitis sibi cogitatiónibus dicat: Ad vocem Domínicam utérque iste piscátor quid, aut quantum dimísit, qui pene nihil hábuit? Sed hac in re, fratres caríssimi, afféctum debémus pótius pensáre quam censum. Multum relíquit, qui sibi nihil retínuit: multum relíquit, qui quantúmlibet parum, totum deséruit. Certe nos et hábita cum amóre possidémus, et ea, quæ mínime habémus, ex desidério quǽrimus. Multum ergo Petrus et Andréas dimísit, quando utérque étiam desidéria habéndi dereliquit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphónæ}
+
+**1** Salve, crux pretiósa, \* súscipe discípulum ejus, qui pepéndit in te magíster meus Christus.
+
+**2** Beátus Andréas \* orábat, dicens: Dómine, Rex ætérnæ glóriæ, súscipe me pendéntem in patíbulo.
+
+**3** Andréas Christi fámulus, \* dignus Dei Apóstolus, germánus Petri, et in passióne sócius.
+
+**4** Maximílla Christo amábilis \* tulit corpus Apóstoli, óptimo loco cum aromátibus sepelívit.
+
+**5** Qui persequebántur justum, \* demersísti eos, Dómine, in inférno, et in ligno crucis dux justi fuísti.
+
+**Capit.** *Rom. 10, 10-11*
+
+FRATRES: Corde enim créditur ad justítiam, ore autem conféssio fit ad salútem. Dicit enim Scriptúra: Omnis, qui credit in illum, non confundétur.
+
+#### Hymnus
+
+EXSÚLTET orbis gáudiis,
+Cælum resúltet láudibus:
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices,
+Et vera mundi lúmina,
+Votis precámur córdium:
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus:

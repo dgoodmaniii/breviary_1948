@@ -7940,3 +7940,56 @@ Et annuntiábunt cæli justítiam ejus: \* quóniam Deus judex est.
 Audi, pópulus meus, et loquar: Israël, et testificábor tibi: \* Deus, Deus tuus ego sum.
 
 Non in sacrifíciis tuis árguam te: \* holocáusta au-
+tem tua in conspéctu meo sunt semper.
+
+Non accípiam de domo tua vítulos: \* neque de grégibus tuis hircos.
+
+Quóniam meæ sunt omnes feræ silvárum, \* juménta in móntibus et boves.
+
+Cognóvi ómnia volatília cæli: \* et pulchritúdo agri mecum est.
+
+Si esuríero, non dicam tibi: \* meus est enim orbis terræ, et plenitúdo ejus.
+
+Numquid manducábo carnes taurórum? \* aut sánguinem hircórum potábo?
+
+Immola Deo sacrifícium laudis: \* et redde Altíssimo vota tua.
+
+Et ínvoca me in die tribulatiónis: \* éruam te, et honorificábis me.
+
+**Ant.** Deus deórum, Dóminus locútus est.
+
+**Ant.** Intellígite, \* qui obliviscímini Deum.
+
+### Psalmus 49, ii
+
+PECCATORI autem dixit Deus: \* Quare tu enárras justítias meas, et assúmis testaméntum meum per os tuum?
+
+Tu vero odísti disciplínam: \* et projecísti sermónes meos retrórsum:
+
+Si vidébas furem, currébas cum eo: \* et cum adúlteris portiónem tuam ponébas.
+
+Os tuum abundávit malítia: \* et lingua tua concinnábat dolos.
+
+Sedens advérsus fratrem tuum loquebáris, et advérsus fílium matris tuæ ponébas scándalum: \* hæc fecísti, et tácui.
+
+Existimásti, iníque, quod ero tui símilis: \* árguam te, et státuam contra fáciem tuam.
+
+Intellígite hæc, qui oblivíscimini Deum: \* nequándo rápiat, et non sit qui erípiat.
+
+Sacrifícium laudis honorificábit me: \* et illic iter, quo osténdam illi salutáre Dei.
+
+**Ant.** Intellígite, qui obliviscímini Deum.
+
+**Ant.** Acceptábis sacrifícium \* justítiæ super altáre tuum, Dómine.
+
+### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut

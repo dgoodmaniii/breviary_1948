@@ -33932,4 +33932,36 @@ Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
 
 **Ant.** Si ignem adhíbeas, rorem mihi salvíficum de cælo Angeli ministrábunt.
 
-**Ant.** Agatha \* lætíssime et gloriánter ibat ad cárcerem, quasi ad épulas in-
+**Ant.** Agatha \* lætíssime et gloriánter ibat ad cárcerem, quasi ad épulas in-vitáta; et agónem suum Dómino précibus commendábat.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Agatha lætíssime et gloriánter ibat ad cárcerem, quasi ad épulas invitáta; et agónem suum Dómino précibus commendábat.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Virgínibus}
+
+#### Lectio iv
+
+{RUBRIC: Liber I post initium}
+
+AGATHA virgo, in Sicília nobílibus paréntibus nata, quam Panormitáni et Catanénses cívem suam esse dicunt, in persecutióne Décii imperatóris Cátanæ gloriósi martýrii corónam consecúta est. Nam cum pari pulchritúdinis et castitátis laude commendarétur, Quintiánus Sicíliæ prǽtor ejus amóre captus est. Sed cum, tentáta modis ómnibus ejus pudicítia, Agatham in suam senténtiam perdúcere non posset, christiánæ superstitiónis nómine comprehénsam, Aphrodísiæ cuidam mulíeri depravándam tradit. Quæ Aphrodísiæ consuetúdine cum de constántia coléndæ christiánæ fídei et servándæ virginitátis removéri non posset, núntiat illa Quintiáno se in Agatha óperam pérdere. Quare ille ad se Vírginem addúci jubet; et, Nonne, inquit, te pudet nóbili génere natam, húmilem et servílem Christianórum vitam ágere? Cui Aga-

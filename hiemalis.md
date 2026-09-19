@@ -5271,3 +5271,57 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 **Capit.** *1 Petri 1, 17-19*
 
 IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: In Vigiliis communibus Preces feriales, ut supra.} [REF: p. 109]
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+### Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Inclinávit Dóminus \* aurem suam mihi.
+
+{RUBRIC: ¶ Antiphonæ, in hac et aliis Feriis appositæ, dicuntur semper in Officio feriali et in Festis sive trium sive novem Lectionum, quando juxta Rubricas sumendi sint Psalmi de Feria, ut in Psalterio.}
+
+### Psalmus 114
+
+DILEXI, quóniam exáudiet Dóminus \* vocem oratiónis meæ.
+
+Quia inclinávit aurem suam mihi: \* et in diébus meis invocábo.
+
+Circumdedérunt me dolóres mortis: \* et perícula inférni invenérunt me.
+
+Tribulatiónem et dolórem invéni: \* et nomen Dómini invocávi.
+
+O Dómine, líbera ánimam meam: \* miséricors Dóminus, et justus, et Deus noster miserétur.
+
+Custódiens párvulos Dóminus: \* humiliátus sum, et liberávit me.
+
+Convértere, ánima mea, in réquiem tuam: \* quia Dóminus benefécit tibi.
+
+Quia erípuit ánimam meam de morte: \* óculos meos a lácrimis, pedes meos a lapsu.
+
+Placébo Dómino \* in regióne vivórum.
+
+**Ant.** Inclinávit Dóminus aurem suam mihi.
+
+**Ant.** Vota mea \* Dómino reddam coram omni pópulo ejus.
+
+### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:

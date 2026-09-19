@@ -26687,3 +26687,64 @@ VIDÉTE, fratres, ne forte sit in áliquo vestrum cor malum incredulitátis, dis
 TIMEÁMUS ergo, ne forte relícta pollicitatióne introeúndi in réquiem ejus, existimétur áliquis ex vobis deésse. Etenim et nobis nuntiátum est, quemádmodum et illis. Sed non prófuit illis sermo audítus, non admístus fídei ex iis, quæ audiérunt. Ingrediémur enim in réquiem, qui credídimus: quemádmodum dixit: Sicut jurávi in ira mea: Si introíbunt in réquiem meam: et quidem opéribus ab institutióne mundi perféctis.
 
 ℟. Auribus pércipe, Deus, lácrimas meas: ne síleas a me, remítte mihi: \* Quóniam íncola ego sum apud te, et peregrínus. ℣. Compláceat tibi, ut erípias me: Dómine, ad adjuvándum me festína. — Quóniam.
+
+
+#### Lectio ii
+
+DIXIT enim in quodam loco de die séptima sic: Et requiévit Deus die séptima ab ómnibus opéribus suis. Et in isto rursum: Si introíbunt in réquiem meam. Quóniam ergo súperest introíre quosdam in illam, et ii, quibus prióribus annuntiátum est, non introiérunt propter incredulitátem: íterum términat diem quemdam, Hódie, in David dicéndo, post tantum témporis, sicut supra dictum est: Hódie si vocem ejus audiéritis, nolíte obduráre corda vestra.
+
+℟. Státuit Dóminus supra petram pedes meos, et diréxit gressus meos Deus: \* Et misit in os meum cánticum novum. ℣. Exaudívit preces meas: et edúxit me de lacu misériæ. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+NAM si eis Jesus réquiem præstitísset, numquam de ália loquerétur, posthac, die. Itaque relínquitur sabbatísmus pópulo Dei. Qui enim ingréssus est in réquiem ejus: étiam ipse requiévit ab opéribus suis, sicut a suis Deus. Festinémus ergo íngredi in illam réquiem: ut ne in idípsum quis íncidat incredulitátis exémplum. Vivus est enim sermo Dei, et éfficax, et penetrabílior omni gládio ancípiti: et pertíngens usque ad divisiónem ánimæ ac spíritus, compágum quoque ac medullárum, et discrétor cogitatiónum et intentiónum cordis.
+
+℟. Ego dixi, Dómine, miserére mei: \* Sana ánimam meam, quia peccávi tibi. ℣. Ab ómnibus iniquitátibus meis éripe me, Dómine. — Sana. Glória Patri. Sana.
+
+---
+
+### Feria Quarta
+
+{RUBRIC: De Epístola ad Hebrǽos}
+
+#### Lectio i
+
+*Cap. 6, 1-10*
+
+QUAPRÓPTER intermitténtes inchoatiónis Christi sermónem, ad perfectióra ferámur, non rursum jaciéntes fundaméntum pœniténtiæ ab opéribus mórtuis, et fídei ad Deum, baptísmatum doctrínæ, impositiónis quoque mánuum, ac resurrectiónis mortuórum, et judícii ætérni. Et hoc faciémus, si quidem permíserit Deus.
+
+℟. Ne perdíderis me cum iniquitátibus meis: \* Neque in finem irátus resérves mala mea. ℣. Non intres in judícium cum servo tuo, Dómine. — Neque.
+
+#### Lectio ii
+
+IMPOSSÍBILE est enim eos, qui semel sunt illumináti, gustavérunt étiam donum cæléste, et partícipes facti sunt Spíritus Sancti, gustavérunt nihilóminus bonum Dei verbum, virtutésque sǽculi ventúri, et proplápsi sunt; rursus renovári ad pœniténtiam, rursum crucifigéntes sibimetípsis Fílium Dei, et osténtui habéntes.
+
+℟. Parátum cor meum, Deus, parátum cor meum: \* Cantábo, et psalmum dicam Dómino. ℣. Exsúrge, glória mea, exsúrge, psaltérium et cíthara, exsúrgam dilúculo. — Cantábo.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Cantábo.}
+
+#### Lectio iii
+
+TERRA enim sæpe veniéntem super se bibens imbrem, et génerans herbam opportúnam illis, a quibus cólitur: áccipit benedictiónem a Deo. Próferens autem spinas ac tríbulos, réproba est, et maledícto próxima: cujus consummátio in combustiónem. Confídimus autem de vobis, dilectíssimi, melióra, et vicinióra salúti: tamétsi ita lóquimur. Non enim injústus Deus, ut oblivíscátur óperis vestri, et dilectiónis, quam ostendístis in nómine ipsíus, qui ministrástis sanctis, et ministrátis.
+
+℟. Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea. ℣. Lætábor, et exsultábo in te, psallam nómini tuo, Altíssime. — Deus. Glória Patri. Deus.
+
+---
+
+### Feria Quinta
+
+{RUBRIC: De Epístola ad Hebrǽos}
+
+#### Lectio i
+
+*Cap. 7, 1-12*
+
+HIC enim Melchísedech, rex Salem, sacérdos Dei summi, qui obviávit Abrahǽ regrésso a cæde regum, et benedíxit ei: cui et décimas ómnium divísit Abraham: primum quidem qui interpretátur rex justítiæ: deínde autem et rex Salem, quod est, rex pacis, sine patre, sine matre, sine genealógia, neque inítium diérum, neque finem vitæ habens, assimilátus autem Fílio Dei, manet sacérdos in perpétuum.
+
+℟. Deus, in te sperávi, Dómine, non confúndar in ætérnum: in justítia tua líbera me, \* Et éripe me. ℣. Inclína ad me aurem tuam, et salva me. — Et.
+
+#### Lectio ii
+
+INTUÉMINI autem quantus sit hic, cui et décimas dedit de præcípuis

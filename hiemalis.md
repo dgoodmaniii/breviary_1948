@@ -23690,3 +23690,60 @@ Cælum cæli Dómino: \* terram autem dedit fíliis hóminum.
 Non mórtui laudábunt te, Dómine: \* neque omnes, qui descéndunt in inférnum.
 
 Sed nos qui vívimus, benedícimus Dómino, \* ex
+hoc nunc et usque in sǽculum.
+
+**Ant.** Stella ista sicut flamma corúscat, et Regem regum Deum demónstrat: Magi eam vidérunt, et magno Regi múnera obtulérunt.
+
+#### Capitulum
+
+*Is. 60, 1*
+
+SURGE, illumináre, Jerúsalem, quia venit lumen tuum, et glória Dómini super te orta est.
+
+#### Hymnus
+
+CRUDÉLIS Heródes, Deum
+Regem veníre quid times?
+Non éripit mortália,
+Qui regna dat cæléstia.
+
+Ibant Magi, quam víderant,
+Stellam sequéntes prǽviam:
+Lumen requírunt lúmine:
+Deum faténtur múnere.
+
+Lavácra puri gúrgitis
+Cæléstis Agnus áttigit:
+Peccáta, quæ non détulit,
+Nos abluéndo sústulit.
+
+Novum genus poténtiæ:
+Aquæ rubéscunt hýdriæ,
+Vinúmque jussa fúndere,
+Mutávit unda oríginem.
+
+Jesu, tibi sit glória,
+Qui apparuísti géntibus,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Reges Tharsis et ínsulæ múnera ófferent. ℟. Reges Arabum et Saba dona addúcent.
+
+**Ad Magnif. Ant.** Tribus \* miráculis ornátum diem sanctum cólimus: hódie stella Magos duxit ad præsépium: hódie vinum ex aqua factum est ad núptias: hódie in Jordáne a Joánne Christus baptizári vóluit, ut salváret nos, allelúja.
+
+#### Oratio
+
+DEUS, qui hodiérna die Unigénitum tuum géntibus stella duce revelásti: concéde propítius; ut, qui jam te ex fide cognóvimus, usque ad contemplándam spéciem tuæ celsitúdinis perducámur. Per eúmdem Dóminum.
+
+{RUBRIC: In die Octava}
+
+#### Oratio
+
+DEUS, cujus Unigénitus in substántia nostræ carnis appáruit: præsta, quǽsumus; ut per eum, quem símilem nobis foris agnóvimus, intus reformári mereámur: Qui tecum.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Infra Octávam Offícium dícitur ut in Festo, ut supra notátur, prǽter ea quæ pro síngulis diébus assignántur própria.}
+
+{RUBRIC: De Domínica infra Octávam non dícitur Offícium, sed fit tantúmmodo Commemorátio

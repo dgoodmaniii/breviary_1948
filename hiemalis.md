@@ -33240,3 +33240,41 @@ QUIDEN quot modis nos indúcat Dóminus ad curam vel minórum fratrum? Ne ítaqu
 IMPROBUS, inquis, difícile tolerátur. Atque ídeo debes illi amóre jungi, ut eum a vítio remóveas, ut convértas et ad virtútem redúcas. At non obtémperat, inquis, neque consílium admíttit. Unde hoc nosti? An exhortátus es et emendáre studuísti? Hortátus sæpe sum, inquies. Quóties? Sæpius: semel et íterum. Idne sæpius vocas? Etiámsi per totam vitam id fecísses, nec deficere, nec desperáre oportébat. Non vides quómodo nos Deus semper hortátur per Prophétas, per Apóstolos, per Evangelístas? Quid ígitur? Num recte operámur? Num in ómnibus obtemperámus? Mínime. Num ídeo finem fecit admonéndi?
 
 ℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et vos símiles. Glória Patri. Et vos símiles.
+
+#### Lectio ix
+
+NIHIL quippe tam pretiósum est quam ánima: quid enim prodest hómini, si mundum univérsum lucrétur, ánimæ vero suæ detriméntum patiátur? Verum ómnia pervértit et dejécit pecuniárum amor, Deíque timórem decússit, sicut tyránnus arcem sic ánimas óccupans. Idcírco et filiórum et nostram neglígimus salútem. Hinc magna insipiéntia; hinc líberi servis vilióres fiunt. Ecquid de servis loquor? Mulum si quis hábeat, multum curat ut agasónem illi óptimum provídeat, non ímprobum, non furácem, non temuléntum, non artis suæ imperítum: si autem fílio pædagógum dare opus sit, casu et sine deléctu óbvium quemque excípimus; etsi hac arte nulla sit major. Quid par illi arti, quæ dirigéndæ ánimæ et efformándæ júvenis menti et índoli incúmbit? Qui tali instrúctus est facultáte, plus diligéntiæ exhíbeat opórtet, quam quivis pictor aut statuárius.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEUS, qui sanctum Joánnem Confessórem tuum adolescéntium patrem et magístrum excitásti, ac per eum, auxiliatríce Vírgine María, novas in Ecclésia tua famílias floréscere voluísti: concéde, quǽsumus; ut eódem caritátis igne succénsi, ánimas quǽrere, tibíque soli servíre valeámus. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti.}
+
+{RUBRIC: Et fit Commemoratio præcedéntis.}
+
+---
+
+## Festa Februarii
+
+### Die 1 Februarii
+
+#### S. Ignatii
+
+{RUBRIC: Ep. et Mart.} {RUBRIC: Duplex} [29]
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+**Oratio** C 1
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ

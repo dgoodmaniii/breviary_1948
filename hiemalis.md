@@ -33317,4 +33317,30 @@ NUNC incípio Christi esse discípulus, nihil de his quæ vidéntur, desíderans
 
 #### Lectio ix
 
-IGNÁTIUS, Antiochíæ post Petrum secúnda successióne episcopátum sortítus est, et Trajáni témpore accusátus, quod Christiánus esset, ad béstias damnátur Romam mitténdus. Quo cum a Sýria vinctus deportarétur, omnes Asíæ civitátes, ad quas appulísset, evangélicis cohortatiónibus edocébat, remotióres étiam epístolis erúdiens. In quarum una, quam Smyrnæ, dum apud Polycárpum diversarétur, ad Romános scripsit, inter cétera hæc de sua damnatióne refert: O salutáres béstias, quæ præparántur mihi! Quando vénient? Quando emitténtur? Quando eis frui licébit cárnibus meis? Quas et ego opto acrióres paráre, ne forte, ut in nonnúllis fecérunt, tímeant contíngere corpus meum. Nunc incípio discípulus esse Christi. Ignes, cruces, béstiæ, discerptiónes membrórum, ac totíus córporis pœnæ, et ómnia in me unum supplícia diáboli arte quæsíta cuméntur, dúmmodo Jesum Christum mérear adipísci. Romam ígitur perdúctus, cum rugiéntes audíret leónes, ardóre martýrii incénsus, in hæc verba pro-
+IGNÁTIUS, Antiochíæ post Petrum secúnda successióne episcopátum sortítus est, et Trajáni témpore accusátus, quod Christiánus esset, ad béstias damnátur Romam mitténdus. Quo cum a Sýria vinctus deportarétur, omnes Asíæ civitátes, ad quas appulísset, evangélicis cohortatiónibus edocébat, remotióres étiam epístolis erúdiens. In quarum una, quam Smyrnæ, dum apud Polycárpum diversarétur, ad Romános scripsit, inter cétera hæc de sua damnatióne refert: O salutáres béstias, quæ præparántur mihi! Quando vénient? Quando emitténtur? Quando eis frui licébit cárnibus meis? Quas et ego opto acrióres paráre, ne forte, ut in nonnúllis fecérunt, tímeant contíngere corpus meum. Nunc incípio discípulus esse Christi. Ignes, cruces, béstiæ, discerptiónes membrórum, ac totíus córporis pœnæ, et ómnia in me unum supplícia diáboli arte quæsíta cuméntur, dúmmodo Jesum Christum mérear adipísci. Romam ígitur perdúctus, cum rugiéntes audíret leónes, ardóre martýrii incénsus, in hæc verba prorúpit: Fruméntum Christi sum; déntibus bestiárum molar, ut panis mundus invéniar. Passus est autem undécimo anno Trajáni.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 12, 24-26*
+
+IN illo témpore: Dixit Jesus discípulis suis: Amen, amen, dico vobis, nisi granum fruménti cadens in terram, mórtuum fúerit, ipsum solum manet. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractátus 51 in Joánnem, sub médium}
+
+IPSE Dóminus Jesus erat granum mortificándum et multiplicándum; mortificándum infidelitáte Judæórum, multiplicándum fide populórum. Jam vero exhórtans ad passiónis suæ sectánda vestígia, Qui amat, inquit, ánimam suam, perdet eam. Quod duóbus modis intélligi potest. Qui amat, perdet; id est, si amas, perdes. Si cupis vitam tenére in Christo, noli mortem timére pro Christo. Item álio modo: Qui amat ánimam suam, perdet eam; noli amáre, ne perdas; noli amáre in hac vita, ne perdas in ætérna vita.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa signo.
+
+#### Lectio viii
+
+HOC autem, quod postérius dixi, magis habére vidétur evangélicus sensus; séquitur enim: Et qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam. Ergo, quod supra dictum est, Qui amat, subintellígitur in hoc mundo, ipse útique perdet; qui autem odit, útique in hoc mundo, in vitam ætérnam ipse custódit eam. Magna et mira senténtia, quemádmodum sit hóminis in ánimam suam amor ut péreat, ódium ne péreat. Si male amáveris, tunc odísti; si bene óderis, tunc amásti. Felíces, qui odérunt custodiéndo, ne perdant amándo.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit:

@@ -20401,3 +20401,28 @@ bit? Utrámque enim substántiam in unam convenísse persónam, nisi fides creda
 GAUDEÁMUS ígitur, quod ad eloquéndum tantæ misericórdiæ sacraméntum ímpares sumus; et cum salútis nostræ altitúdinem prómere non valeámus, sentiámus nobis bonum esse, quod víncimur. Nemo enim ad cognitiónem veritátis magis propínquat, quam qui intélligit in rebus divínis, étiam si multum profíciat, semper sibi superésse quod quǽrat. Nam qui se ad id, in quod tendit, pervenísse præsúmit, non quæsíta réperit, sed in inquisitióne déficit.
 
 ℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta
+tu in muliéribus, et benedíctus fructus ventris tui. — Quia quem cæli cápere non póterant, tuo grémio contulísti.
+
+#### Lectio vi
+
+NE autem infirmitátis nostræ perturbémur angústiis, evangélicæ nos et prophéticæ ádjuvant voces; quibus ita accéndimur, et docémur, ut nos nativitátem Dómini, qua Verbum caro factum est, non tam prætéritam recólere, quam præséntem videámur inspícere. Quod enim pastóribus pro gregum suórum custódia vigilántibus nuntiávit Ángelus, étiam nostrum implévit audítum: et ídeo Domínicis óvibus præsúmus, quia verba divínitus édita cordis aure servámus; tamquam et in hodiérna festivitáte dicátur: Evangelízo vobis gáudium magnum, quod erit omni pópulo, quia natus est vobis hódie Salvátor, qui est Christus Dóminus, in civitáte David.
+
+℟. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium: et beáta úbera, quæ lactavérunt Christum Dóminum: \* Qui hódie pro salúte mundi de Vírgine nasci dignátus est. ℣. Dies sanctificátus illúxit nobis: veníte, gentes, et adoráte Dóminum. — Qui. Glória Patri. Qui.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 2, 33-40*
+
+IN illo témpore: Erat Joseph, et María mater Jesu, mirántes super his, quæ dicebántur de illo. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 2 in cap. 2 Lucæ, prope finem}
+
+FIDES úberem in omnes grátiam, Dómini generatióne diffúsam, et prophetíam incrédulis negátam esse, non justis. Ecce et Símeon prophétat, in ruínam et resurrectiónem plurimórum venísse Dóminum Jesum Christum, ut justórum iniquorúmque mérita discérnat; et pro nostrórum qualitáte factórum, judex verus et justus aut supplícia decérnat, aut prǽmia.
+
+℟. Verbum caro factum est, et habitávit in nobis: \* Et vídimus glóriam ejus, glóriam quasi Unigéniti a Patre, plenum grátiæ et veritátis. ℣. Omnia per ipsum facta sunt, et sine ipso factum est nihil. — Et.

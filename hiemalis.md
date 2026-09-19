@@ -19183,3 +19183,42 @@ Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílib
 Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
 
 Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \*
+quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Notum fecit Dóminus, allelúja, salutáre suum, allelúja.
+
+℣. Ipse invocábit me, allelúja. ℟. Pater meus es tu, allelúja.
+
+**Absolutio.** A vínculis.
+
+**Benedictio.** Evangélica léctio sit nobis salus et protéctio. ℟. Amen.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 2, 1-14*
+
+IN illo témpore: Exiit edíctum a Cǽsare Augústo, ut describerétur univérsus orbis. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 8 in Evang.}
+
+QUIA, largiénte Dómino, Missárum solémnia ter hódie celebratúri sumus, loqui diu de evangélica lectióne non póssumus; sed nos áliquid vel bréviter dícere, Redemptóris nostri Natívitas ipsa compéllit. Quid est enim, quod nascitúro Dómino mundus descríbitur, nisi hoc, quod apérte monstrátur, quia ille apparébat in carne, qui eléctos suos adscríberet in æternitáte? Quo contra de réprobis per prophétam dí-
+
+cítur: Deleántur de libro vivéntium, et cum justis non scribántur. Qui bene étiam in Béthlehem náscitur: Béthlehem quippe domus panis interpretátur. Ipse namque est, qui ait: Ego sum panis vivus, qui de cælo descéndi. Locus ergo, in quo Dóminus náscitur, domus panis ántea vocátus est; quia futúrum profécto erat, ut ille ibi per matériam carnis apparéret, qui electórum mentes intérna satietáte refíceret. Qui non in paréntum domo, sed in via náscitur: ut profécto osténderet, quia per humanitátem suam, quam assúmpserat, quasi in aliéno nascebátur.
+
+℟. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium: et beáta úbera, quæ lactavérunt Christum Dóminum: \* Qui hódie pro salúte mundi de Vírgine nasci dignátus est. ℣. Dies sanctificátus illúxit nobis: veníte, gentes, et adoráte Dóminum. — Qui.
+
+**Benedictio.** Per Evangélica dicta deleántur nostra delícta. ℟. Amen.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio viii
+
+*Cap. 2, 15-20*
+
+IN illo témpore: Pastóres loquebántur ad ínvicem: Transeámus usque

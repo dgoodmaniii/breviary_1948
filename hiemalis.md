@@ -31514,4 +31514,30 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 
 CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
 
-℟. Diem festum sacratíssimæ Vírginis celebrémus, quáliter passa sit beáta Agnes ad memóriam revocémus: tertiodécimo ætátis suæ anno mortem pérdidit, et vitam invénit: \* Quia solum vitæ diléxit auctórem. ℣. Infántia quidem computabátur in annis, sed erat senéctus mentis imménsa. — Quia.
+℟. Diem festum sacratíssimæ Vírginis celebrémus, quáliter passa sit beáta Agnes ad memóriam revocémus: tertiodécimo ætátis suæ anno mortem pérdidit, et vitam invénit: \* Quia solum vitæ diléxit auctórem. ℣. Infántia quidem computabátur in annis, sed erat senéctus mentis imménsa. — Quia.#### Lectio ii
+
+LAUDÁBIT usque ad mortem ánima mea Dóminum, et vita mea appropínquans erat in inférno deórsum. Circumdedérunt me úndique, et non erat qui adjuváret. Respíciens eram ad adjutórium hóminum, et non erat. Memoráta sum misericórdiæ tuæ, Dómine, et operatiónis tuæ, quæ a sǽculo sunt: quóniam éruis sustinéntes te, Dómine, et líberas eos de mánibus géntium.
+
+℟. Déxteram meam et collum meum cinxit lapídibus pretiósis, trádidit áuribus meis inæstimábiles margarítas, \* Et circúmdedit me vernántibus atque coruscántibus gemmis. ℣. Pósuit signum in fáciem meam, ut nullum præter eum amatórem admíttam. — Et.
+
+#### Lectio iii
+
+EXALTÁSTI super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório. Laudábo nomen tuum assídue, et collaudábo illud in confessióne, et exaudíta est orátio mea. Et liberásti me de perditióne, et eripuísti me de témpore iníquo. Proptérea confitébor, et laudem dicam tibi, et benedícam nómini Dómini.
+
+℟. Amo Christum, in cujus thálamum introíbo, cujus mater virgo est, cujus Pater féminam nescit, cujus mihi órgana modulátis vócibus cantant: \* Quem cum amávero, casta sum; cum tetígero, munda sum; cum accépero, virgo sum. ℣. Annulo fídei suæ subarrhávit me, et imménsis monílibus ornávit me. — Quem. Glória Patri. Quem.
+
+### In II Nocturno
+
+**Ant.** Induit me Dóminus \* cýclade auro texta, et imménsis monílibus ornávit me.
+
+###### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.

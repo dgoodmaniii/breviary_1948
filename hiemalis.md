@@ -30994,4 +30994,56 @@ ANTÓNIUS Ægýptius, cum ingréssus ecclésiam ex Evangélio audivísset: Si vi
 
 **Oratio** C 4
 
-INTERCÉSSIO nos, quǽsumus, Dómine, beáti Antónii Abbátis comméndet: ut, quod nostris méritis non valémus, ejus
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Antónii Abbátis comméndet: ut, quod nostris méritis non valémus, ejuspatrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio S. Pauli Ap., præcedéntis ac S. Priscæ Virg. et Mart.}
+
+---
+
+## Die 18 Januarii
+
+### In Cathedra S. Petri Ap. Romæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia ut in Communi Confessóris Pontíficis} [69], {RUBRIC: præter ea quæ hic habéntur própria.}
+
+##### In I Vesperis
+
+#### Hymnus
+
+QUODCÚMQUE in orbe néxibus revínxeris,
+Erit revínctum, Petre, in arce síderum:
+Et quod resólvit hic potéstas trádita,
+Erit solútum cæli in alto vértice:
+In fine mundi judicábis sæculum.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,
+Honor tibi decúsque: sancta júgiter
+Laudétur omne Trínitas per sæculum. Amen.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+**Ad Magnif. Ant.** Tu es pastor óvium, \* Princeps Apostolórum, tibi tráditæ sunt claves regni cælórum.
+
+#### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur. Qui vivis et regnas.
+
+{RUBRIC: Et fit Com. S. Pauli Ap. ante omnes álias Commemoratiónes:}
+
+**Ant.** Sancte Paule Apóstole, prædicátor veritátis et Doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+#### Oratio
+
+DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Deinde Commem. præced.}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.

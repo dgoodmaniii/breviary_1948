@@ -32928,4 +32928,42 @@ PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, a
 
 #### Lectio ix
 
-BEÁTA Agnes, paréntibus ad ejus sepúlcrum assídue vigilántibus, qua-
+BEÁTA Agnes, paréntibus ad ejus sepúlcrum assídue vigilántibus, qua-dam nocte choro vírginum comitáta cum apparuísset, sic ad eos locúta dícitur: Ne me, paréntes, mórtuam lugeátis; nam una cum his virgínibus vivo apud illum in cælis, quem in terris tota mente diléxi. Cum áliquot post annos Constántia, Constantíni imperatóris fília, insanábili úlceri medicínam quǽrens, nondum christiána ad idem sepúlcrum accessísset; obdormíscens sibi audíre visa est vocem hanc Agnétis: Constánter age, Constántia: crede in Jesum Christum Fílium Dei, qui te sanam fáciet. Quæ sanáta, paulo post una cum multis ex família imperatóris baptísmum suscípiens, ibi ecclésiam nómine beátæ Agnétis ædificávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEUS, qui in tuæ caritátis exémplum, ad fidélium redemptiónem sanctum Petrum Ecclésiam tuam nova prole fecundáre divínitus docuísti: ipsíus nobis intercessióne concéde; a peccáti servitúte solútis, in cælésti pátria perpétua libertáte gaudére: Qui vivis.
+
+{RUBRIC: Et fit Com. S. Agnetis:}
+
+**Ant.** Ecce quod concupívi, \* jam vídeo: quod sperávi, jam téneo: ipsi sum juncta in cælis, quem in terris pósita, tota devotióne diléxi.
+
+℣. Diffúsa est grátia.
+
+#### Oratio
+
+DEUS, qui nos ánnua beátæ Agnétis Vírginis et Mártyris tuæ solemnitáte lætíficas: da, quǽsumus; ut, quam venerámur offício, étiam piæ conversatiónis sequámur exémplo. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Com. præcedéntis.}
+
+---
+
+## Die 29 Januarii
+
+### S. Francisci Salesii
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex} (m. t. v.) [69]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Francísce, divínæ legis amátor, deprecáre pro nobis Fílium Dei.

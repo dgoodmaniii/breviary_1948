@@ -5069,3 +5069,45 @@ In eo dum convenírent simul advérsum me, \* accípere ánimam meam consiliáti
 Ego autem in te sperávi, Dómine: \* dixi: Deus meus es tu: in mánibus tuis sortes meæ.
 
 Eripe me de manu inimicórum meórum, \* et a persequéntibus me.
+
+Illústra fáciem tuam super servum tuum, salvum me fac in misericórdia tua: \* Dómine, non confúndar, quóniam invocávi te.
+
+Erubéscant ímpii, et deducántur in inférnum: \* muta fiant lábia dolósa.
+
+Quæ loquúntur advérsus justum iniquitátem, \* in supérbia, et in abusióne.
+
+### Psalmus 30, iii
+
+QUAM magna multitúdo dulcédinis tuæ, Dómine, \* quam abscondísti timéntibus te.
+
+Perfecísti eis, qui sperant in te, \* in conspéctu filiórum hóminum.
+
+Abscóndes eos in abscóndito faciéi tuæ, \* a conturbatióne hóminum.
+
+Próteges eos in tabernáculo tuo \* a contradictióne linguárum.
+
+Benedíctus Dóminus: \* quóniam mirificávit misericórdiam suam mihi in civitáte muníta.
+
+Ego autem dixi in excéssu mentis meæ: \* Projéctus sum a fácie oculórum tuórum.
+
+Ideo exaudísti vocem oratiónis meæ, \* dum clamárem ad te.
+
+Dilígite Dóminum, omnes sancti ejus: \* quóniam veritátem requíret Dóminus, et retríbuet abundánter faciéntibus supérbiam.
+
+Viríliter ágite, et confortétur cor vestrum, \* omnes, qui sperátis in Dómino.
+
+{RUBRIC: Per Annum:} **Ant.** In tua justítia líbera me, Dómine.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria II post Dominicam I:} **Ant.** Ecce Dóminus véniet, et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
+
+{RUBRIC: Feria II post Dominicam II:} **Ant.** Ecce apparébit Dóminus, et non mentiétur: si moram fécerit, exspécta eum, quia véniet, et non tardábit, allelúja.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Ecce jam venit plenitúdo témporis, in quo misit Deus Fílium suum in terras.
+
+**Capitulum** *Jer. 23, 6*
+
+IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc est nomen, quod vocábunt eum, Dóminus justus noster.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.

@@ -27816,3 +27816,16 @@ PRECES nostras, quǽsumus, Dómine, cleménter exáudi: atque a peccatórum vín
 *Cap. 12, 1-19*
 
 DIXIT autem Dóminus ad Abram: Egrédere de terra tua, et de cognatióne tua, et de domo patris tui, et veni in terram, quam monstrábo tibi. Faciámque te in gentem magnam, et benedícam tibi, et magnificábo nomen tuum, erísque benedíctus. Benedícam benedicéntibus tibi, et maledícam maledicéntibus tibi, atque in te benedicéntur univérsæ cognatiónes terræ. Egréssus est ítaque Abram sicut præcéperat ei
+Dóminus, et ivit cum eo Lot. Septuagínta quinque annórum erat Abram, cum egrederétur de Haran. Tulítque Sárai uxórem suam, et Lot fílium fratris sui, universámque substántiam quam posséderant, et ánimas quas fécerant in Haran: et egréssi sunt ut irent in terram Chánaan. Cumque veníssent in eam, pertransívit Abram terram usque ad locum Sichem, usque ad convállem illústrem: Chananǽus autem tunc erat in terra.
+
+℟. Locútus est Dóminus ad Abram, dicens: Egrédere de terra tua, et de cognatióne tua, et veni in terram quam monstrávero tibi: \* Et fáciam te in gentem magnam. ℣. Benedícens benedícam tibi, et magnificábo nomen tuum, erísque benedíctus. — Et.
+
+#### Lectio ii
+
+APPÁRUIT autem Dóminus Abram, et dixit ei: Sémini tuo dabo terram hanc. Qui ædificávit ibi altáre Dómino, qui apparúerat ei. Et inde transgrédiens ad montem, qui erat contra Oriéntem Bethel, teténdit ibi tabernáculum suum, ab Occidénte habens Bethel, et ab Oriénte Hai: ædificávit quoque ibi altáre Dómino, et invocávit nomen ejus. Perrexítque Abram vadens, et ultra progrédiens ad merídiem. Facta est autem fames in terra: descendítque Abram in Ægýptum, ut peregrinarétur ibi: prævalúerat enim fames in terra. Cumque prope esset ut ingrederétur Ægýptum, dixit Sárai uxóri suæ: Novi quod pulchra sis múlier, et quod cum víderint te Ægýptii, dictúri sunt: Uxor ipsíus est: et interfícient me, et te reservábunt. Dic ergo, óbsecro te, quod soror mea sis: ut bene sit mihi propter te, et vivat ánima mea ob grátiam tui.
+
+℟. Dum staret Abraham ad ílicem Mambre, vidit tres viros ascendéntes per viam: \* Tres vidit, et unum adorávit. ℣. Ecce Sara uxor tua páriet tibi fílium, et vocábis nomen ejus Isaac. — Tres.
+
+#### Lectio iii
+
+CUM ítaque ingréssus esset Abram Ægýptum, vidérunt Ægýptii mulíerem quod esset pulchra nimis. Et nuntiavérunt príncipes Pharaóni, et laudavérunt eam apud illum: et subláta est múlier in domum Pharaónis. Abram vero bene usi sunt propter illam: fuerúntque ei oves et boves et ásini, et servi et fámulæ, et ásinæ et ca-

@@ -28965,3 +28965,39 @@ DEUS, qui Indiárum gentes beáti Francísci prædicatióne et miráculis Ecclé
 {RUBRIC: Et fit Com. sequéntis, Fériæ ac S. Barbáræ Virg. et Mart.}
 
 ---
+
+### Die 4 Decembris
+
+#### S. Petri Chrysologi
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex (m. t. v.) [69]}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Petre Chrysóloge, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEUS, qui beátum Petrum Chrysólogum Doctórem egrégium, divínitus præmonstrátum, ad regéndam et instruéndam Ecclésiam tuam éligi voluísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. (Per Dóminum.)
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+{RUBRIC: Postea Commem. S. Barbáræ Virg. et Mart.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+**Oratio** C 1
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Bárbaræ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si dicéndæ non sint de Scriptúra occurrénti, Lectiónes Fidélis sermo, de Communi Conf. Pont. 1 loco.} [73]
+
+##### In II Nocturno
+
+#### Lectio iv
+
+PETRUS, qui ob áuream ejus eloquéntiam Chrysólogi cognómen adéptus est, Foro Cornélii in Æmília honéstis paréntibus natus, a prima ætáte ánimum ad religiónem adjíciens, Cornélio Románo, tunc ejúsdem urbis Corneliénsis epíscopo, óperam dedit: a quo étiam, sciéntia et vitæ sanctitáte cum brevi profecísset, diáconus creátus est. Póstmodum cóntigit, ut Ravennátes ob mortem archiprǽsulis sui álium (ut moris erat) ab eis eléctum Romam ad sanctum Xystum Papam tértium pro confirmatióne míserint una cum legátis suis et cum prædícto Cornélio, qui eúmdem levítam secum perdúxit. Intérim sanctus Petrus Apóstolus, et Martyr Apollináris summo Pontífici in somnis apparuérunt, mediúmque habéntes hunc júvenem, jussérunt, ut

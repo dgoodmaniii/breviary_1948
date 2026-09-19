@@ -19311,3 +19311,57 @@ Baptísta clausum sénserat.
 
 Fœno jacére pértulit:
 Præsépe non abhórruit:
+Et lacte módico pastus est,
+Per quem nec ales ésurit.
+
+Gaudet chorus cæléstium,
+Et Angeli canunt Deo;
+Palámque fit pastóribus
+Pastor, Creátor ómnium.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+**Ad Bened. Ant.** Glória in excélsis Deo, \* et in terra pax homínibus bonæ voluntátis, allelúja, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Summo mane dícitur Prima, qua finíta, celebrátur secúnda Missa in Auróra, et in ea fit Commemorátio de sancta Anastásia Mártyre.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis: et ad eam in ℟. br. ℣. Qui natus es de María Vírgine, qui dícitur usque ad Vigíliam Epiphániæ inclusíve.}
+
+{RUBRIC: Ad absolutiónem Capítuli, Léctio brevis Ipsi períbunt, ut infra ad Nonam.}
+
+{RUBRIC: Tértia dícitur hora sua, qua finíta, celebrátur tértia Missa de die Nativitátis.}
+
+### Ad Tertiam
+
+**Capit.** ut ad Laudes.
+
+℟. br. Verbum caro factum est, \* Allelúja, allelúja. Verbum. ℣. Et habitávit in nobis. Allelúja, allelúja. Glória Patri. Verbum. ℣. Ipse invocábit me, allelúja. ℟. Pater meus es tu, allelúja.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Hebr. 1, 10*
+
+ET: Tu in princípio, Dómine, terram fundásti: et ópera mánuum tuárum sunt cæli.
+
+℟. br. Notum fecit Dóminus, \* Allelúja, allelúja. Notum. ℣. Salutáre suum. Allelúja, allelúja. Glória Patri. Notum. ℣. Vidérunt omnes fines terræ, allelúja. ℟. Salutáre Dei nostri, allelúja.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Hebr. 1, 11-12*
+
+IPSI períbunt, tu autem permanébis; et omnes sicut vestiméntum veteráscent: et velut amíctum mutábis eos, et mutabúntur: tu autem idem ipse es, et anni tui non defícient.
+
+℟. br. Vidérunt omnes fines terræ, \* Allelúja, allelúja. Vidérunt. ℣. Salutáre Dei nostri. Allelúja, allelúja. Glória Patri. Vidérunt. ℣. Verbum caro

@@ -32446,4 +32446,34 @@ IBAT spirans et anhélans cædes: hoc est, mane rápiens. Nam et quando lapidát
 
 #### Lectio ix
 
-PAULUS Tarsénsis, qui ántea Saulus, Judǽus ex tribu Bénjamin, pharisæórum sectæ addíctus, Jerosólymis óperam dedit Gamaliéli, Mosáicæ legis peritíssimo. Paternárum
+PAULUS Tarsénsis, qui ántea Saulus, Judǽus ex tribu Bénjamin, pharisæórum sectæ addíctus, Jerosólymis óperam dedit Gamaliéli, Mosáicæ legis peritíssimo. Paternárumtraditiónum tenax, Stéphani martýrio intérfuit, acceptísque a Judæórum pontífice lítteris, cum Damáscum pérgeret, ut Christifidéles velut ímpios insectarétur, súbita luce circumfúsa, ad terram dejéctus vocem audívit: Saule, Saule, quid me perséqueris? Cum vero novit eum qui loquebátur esse Jesum Nazarénum, repénte mutátus, pétiit, quid se fácere jubéret. Respónso accépto, Damáscum dedúci vóluit, ubi tríduum fuit, nihil videns. Mox occúrrens ei Christi discípulus Ananías, cælitus mónitus, manus super eum impósuit, statímque Saulus visum recépit. Ab Ananía baptizátus, cum discípulis dies áliquot versátus est; tum, ómnibus admirántibus, cœpit Jesu Christi divinitátem tanto ánimi ardóre in synagógis prædicáre, ut Judǽi statúerint eum interfícere. Verum Dei servus ab eórum insídiis, ope discipulórum, incólumis evádens, ex persecutóre Apóstolus, Christi nomen longe latéque propagávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+### In III Nocturno
+
+**Ant.** Saulus, \* qui et Paulus, magnus prædicátor, a Deo confortátus convalescébat, et confundébat Judǽos.
+
+###### Psalmus 74
+
+CONFITÉBIMUR tibi, Deus: \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua: \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea: \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis: Nolíte iníque ágere: \* et delinquéntibus: Nolíte exaltáre cornu:
+
+Nolíte extóllere in altum cornu vestrum: \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus: \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat: \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc: verúmtamen fæx ejus non est exinaníta: \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sǽculum: \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.

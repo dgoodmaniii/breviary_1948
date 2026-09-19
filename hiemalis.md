@@ -30503,3 +30503,26 @@ runt, ac potíssimum felícis recordatiónis Gregório decimoséxto prædecessó
 ITAQUE plúrimum in Dómino confísi advenísse témporum opportunitátem pro immaculáta sanctíssimæ Dei Genitrícis Vírginis Maríæ Conceptióne definiénda, quam divína elóquia, veneránda tradítio, perpétuus Ecclésiæ sensus, singuláris cathólicórum antístitum ac fidélium conspirátio, et insígnia prædecessórum nostrórum acta et constitutiónes mirífice illústrant atque declárant; rebus ómnibus diligentíssime perpénsis et assíduis fervidísque ad Deum précibus effúsis, mínime cunctándum nobis esse censúimus, suprémo nostro judício immaculátam ipsíus Vírginis Conceptiónem sancíre, definíre, atque ita pientíssimis cathólici orbis desidériis, nostrǽque in ipsam sanctíssimam Vírginem pietáti satisfácere, ac simul in ipsa unigénitum Fílium suum Dóminum nostrum Jesum Christum magis atque magis honorificáre, cum in Fílium redúndet quidquid honóris et laudis in Matrem impénditur.
 
 ℟. Nihil inquinátum in eam incúrrit: \* Candor est lucis ætérnæ et spéculum sine mácula. ℣. Est enim hæc speciósior sole, et luci comparáta invenítur pú-
+rior. — Candor est lucis ætérnæ et spéculum sine mácula.
+
+#### Lectio vi
+
+QUARE postquam numquam intermísimus in humilitáte et jejúnio privátas nostras et públicas Ecclésiæ preces Deo Patri per Fílium ejus offérre, ut Spíritus Sancti virtúte mentem nostram dirígere et confirmáre dignarétur, imploráto universǽ cæléstis cúriæ præsídio, et advocáto cum gemítibus Paráclito Spíritu, eóque sic aspiránte; ad honórem sanctæ et indivíduæ Trinitátis, ad decus et ornaméntum Vírginis Deíparæ, ad exaltatiónem fídei cathólicæ et christiánæ religiónis augméntum, auctoritáte Dómini nostri Jesu Christi, beatórum Apostolórum Petri et Pauli, ac nostra, declarámus, pronuntiámus et definímus: Doctrínam quæ tenet beatíssimam Vírginem Maríam in primo instánti suæ Conceptiónis fuísse singulári omnipoténtis Dei grátia et privilégio, intúitu meritórum Christi Jesu Salvatóris humáni géneris, ab omni originális culpæ labe præservátam immúnem, esse a Deo revelátam, atque idcírco ab ómnibus fidélibus fírmiter constantérque credéndam. Quaprópter si qui secus ac a nobis definítum est, quod Deus avértat, præsúmpserint corde sentíre, ii nóverint ac porro sciant se próprio judício condemnátos, naufrágium circa fidem passos esse, et ab unitáte Ecclésiæ defecísse.
+
+℟. Signum magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, \* Et in cápite ejus coróna stellárum duódecim. ℣. Induit eam Dóminus vestiméntis salútis, induménto justítiæ, et quasi sponsam ornávit eam monílibus suis. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 1, 26-28*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Epiphánii Epíscopi}
+
+{RUBRIC: Oratio de laudibus S. Maríæ Deíparæ}
+
+QUID dicam, aut quid próloquar de præclára et sancta Vírgine? Solo enim Deo excé-

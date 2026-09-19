@@ -26845,3 +26845,42 @@ Laudémus inter cǽlites.
 
 Patri, simúlque Fílio,
 Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sǽclum per omne glória.
+Amen.
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Dixit Dóminus \* ad Adam: De ligno quod est in médio paradísi, ne cómedas: in qua hora coméderis, morte moriéris.
+
+#### Oratio
+
+PRECES pópuli tui, quǽsumus, Dómine, cleménter exáudi: ut, qui juste pro peccátis nostris afflígimur, pro tui nóminis glória misericórditer liberémur. Per Dóminum.
+
+℣. Benedicámus Dómino, allelúja, allelúja. ℟. Deo grátias, allelúja, allelúja.
+
+{RUBRIC: Et sic dícitur præcédens Versus hoc Sábbato, étiam si Vésperæ fúerint de Festo dúplici I vel II classis.}
+
+{RUBRIC: Et deínceps non dícitur Allelúja, usque ad Sábbatum sanctum. Sed post Deus, in adjutórium, ubi dicebátur Allelúja, dícitur Laus tibi, Dómine, Rex ætérnæ glóriæ.}
+
+---
+
+## Dominica in Septuagesima
+
+{RUBRIC: II classis Semiduplex}
+
+### Ad Matutinum
+
+{RUBRIC: Invitatórium Præoccupémus, et Hymnus Primo die, ut in Psaltério 37: quæ étiam dicúntur in duábus Domínicis sequéntibus.}
+
+### In I Nocturno
+
+{RUBRIC: Quando sequéntes Lectiónes I Noctúrni reponúntur infra hebdómadam juxta Rúbricas, dicúntur cum suis Responsóriis hic assignátis, omíssis áliis secus recitándis. Quod ítem servátur quóties Lectiónes I Noctúrni alicújus Domínicæ infra hebdómadam sint reponéndæ, étiam si cum Lectiónibus infra hebdómadam pósitis conjungúntur.}
+
+{RUBRIC: Incipit liber Génesis}
+
+#### Lectio i
+
+*Cap. 1, 1-26*
+
+IN princípio creávit Deus cælum, et terram. Terra autem erat inánis et vácua, et ténebræ erant super fáciem abýssi: et Spíritus Dei ferebátur super aquas. Dixítque Deus: Fiat lux. Et facta est lux. Et vidit Deus lucem quod esset bona: et divísit lucem a ténebris. Appellavítque lucem Diem, et ténebras Noctem: factúmque est véspere et mane, dies unus. Dixit quoque Deus: Fiat firmaméntum in médio aquárum: et dívidat aquas ab aquis. Et fecit Deus firmaméntum, divisítque aquas, quæ erant sub firmaménto, ab his, quæ erant super firmaméntum. Et factum est ita. Vocavítque Deus firma-

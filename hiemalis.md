@@ -21171,3 +21171,36 @@ QUID ergo dicémus invenísse Abraham patrem nostrum secúndum carnem? Si enim A
 #### Lectio ii
 
 BEATITÚDO ergo hæc in circumcisióne tantum manet, an étiam in præpútio? Dícimus enim quia reputáta est Abrahæ fides ad justítiam. Quómodo ergo reputáta est? in circumcisióne, an in præpútio? Non in circumcisióne, sed in præpútio. Et signum ac-
+cépit circumcisiónis, signáculum justítiæ fídei, quæ est in præpútio: ut sit pater ómnium credéntium per præpútium, ut reputétur et illis ad justítiam: et sit pater circumcisiónis non iis tantum, qui sunt ex circumcisióne, sed et iis, qui sectántur vestígia fídei, quæ est in præpútio patris nostri Abrahæ.
+
+℟. Dies sanctificátus illúxit nobis: veníte, gentes, et adoráte Dóminum: \* Quia hódie descéndit lux magna in terris. ℣. Hæc dies quam fecit Dóminus, exsultémus et lætémur in ea. — Quia hódie.
+
+#### Lectio iii
+
+NON enim per legem promíssio Abrahæ, aut sémini ejus ut heres esset mundi: sed per justítiam fídei. Si enim qui ex lege, herédes sunt: exinaníta est fides, abolíta est promíssio. Lex enim iram operátur. Ubi enim non est lex: nec prævaricátio. Ideo ex fide, ut secúndum grátiam firma sit promíssio omni sémini, non ei, qui ex lege est solum, sed et ei, qui ex fide est Abrahæ, qui pater est ómnium nostrum (sicut scriptum est: Quia patrem multárum géntium pósui te) ante Deum, cui crédidit, qui vivíficat mórtuos, et vo-
+
+cat ea quæ non sunt, tamquam ea quæ sunt.
+
+℟. Benedíctus qui venit in nómine Dómini, Deus Dóminus, et illúxit nobis: \* Allelúja, allelúja. ℣. Hæc dies quam fecit Dóminus, exsultémus et lætémur in ea. — Allelúja, allelúja. Glória Patri. Allelúja, allelúja.
+
+### In II Nocturno
+
+**Ant.** Speciósus forma \* præ fíliis hóminum, diffúsa est grátia in lábiis tuis.
+
+#### Psalmus 44
+
+ERUCTÁVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* poténtíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in séculum séculi: \* virga directiónis virga regni tui.

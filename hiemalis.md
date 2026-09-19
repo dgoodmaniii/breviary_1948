@@ -28127,3 +28127,21 @@ IN illo témpore: Dixit Jesus discípulis suis: Cum jejunátis, nolíte fíeri s
 {RUBRIC: Liber 2 de Sermóne Dómini in monte, cap. 12, tom. 4}
 
 MANIFÉSTUM est, his præcéptis omnem nostram intentiónem in interióra gáudia dírigi: ne foris quæréntes mercédem, huic sǽculo conformémur, et amittámus promissiónem tanto solidióris atque firmióris, quanto interióris beatitúdinis, qua nos elégit Deus confórmes fíeri imáginis Fílii sui. In hoc autem capítulo máxime adverténdum est, non in solo rerum corporeárum nitóre, atque pompa, sed étiam in ipsis sórdibus luctuósis esse posse jactántiam; et eo periculosiórem, quo sub nómine servitútis Dei décipit.
+
+℟. Veni hódie ad fontem aquæ, et orávi Dóminum, dicens: \* Dómine, Deus Abraham, tu prósperum fecísti desidérium meum. ℣. Igitur puélla, cui díxero, Da mihi aquam de hýdria tua, ut bibam: et illa díxerit, Bibe, dómine, et camélis tuis potum tríbuam: ipsa est, quam præparávit Dóminus fílio dómini mei. — Dómine.
+
+#### Lectio ii
+
+QUI ergo immoderáto cultu córporis atque vestítu, vel ceterárum rerum nitóre præfúlget, fácile convíncitur rebus ipsis, pompárum sǽculi esse sectátor, nec quemquam fallit dolósa imágine sanctitátis. Qui autem in professióne christianitátis, inusitáto squalóre ac sórdibus inténtos in se óculos hóminum facit, cum id voluntáte fáciat, non necessitáte patiátur: ex céteris ejus opéribus potest cónjici, utrum hoc contémptu supérflui cultus, an ambitióne áliqua fáciat: quia et sub ovína pelle cavéndos lupos Dóminus præcépit: Sed ex frúctibus, inquit, eórum cognoscétis eos.
+
+℟. Factus est sermo Dómini ad Abram, dicens: \* Noli timére, Abram: ego protéctor tuus sum, et merces tua magna nimis. ℣. Ego enim sum Dóminus Deus tuus, qui edúxi te de Ur Chaldæórum. — Noli.
+
+#### Lectio iii
+
+CUM enim cœperint alíquibus tentatiónibus ea ipsa scílicet illis súbtrahi, vel negári, quæ isto velámine vel consecúti sunt, vel cónsequi cúpiunt: tunc necésse est ut appáreat, utrum lupus in ovína pelle sit, an ovis in sua. Non tamen proptérea ornátu supérfluo debet aspéctus hóminum mulcére Christiánus, quia illum parcum hábitum ac necessárium étiam simulatóres sǽpius usúrpant, ut incáutos decípiant; quia et illæ oves non debent pelles suas depónere, si aliquándo eis lupi se contégant.
+
+℟. Movens Abram tabernáculum suum, venit et habitávit juxta convállem Mambre: \* Ædificavítque ibi altáre Dómino. ℣. Dixit autem Dóminus ad eum: Leva óculos tuos, et vide: omnem terram quam cónspicis, tibi dabo, et sémini tuo in sempitérnum. — Ædificavítque. Glória Patri. Ædificavítque.
+
+### Ad Laudes
+
+**Ad Bened. Ant.** Cum jejunátis, \* nolíte fíeri sicut hypócritæ, tristes.

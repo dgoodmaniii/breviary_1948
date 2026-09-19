@@ -16587,3 +16587,36 @@ REPLÉTA est terra argénto et auro: et non est finis thesaurórum ejus: et repl
 ℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
 
 **Ad Bened. Ant.** Antequam conveníent, \* invénta est María habens in
+útero de Spíritu Sancto, allelúja.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccatórum nostrórum perículis, te mereámur protegénte éripi, te liberánte salvári: Qui vivis.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Quǽrite Dóminum, \* dum inveníri potest: invocáte eum, dum prope est, allelúja.
+
+---
+
+### Feria Quarta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 3, 1-11*
+
+ECCE enim Dominátor Dóminus exercítuum áuferet a Jerúsalem et a Juda válidum et fortem, omne robur panis, et omne robur aquæ: fortem, et virum bellatórem, júdicem, et prophétam, et aríolum, et senem: príncipem super quinquagínta, et honorábilem vultu, et consiliárium, et sapiéntem de architéctis, et prudéntem elóquii mýstici. Et dabo púeros príncipes eórum, et effemináti dominabúntur
+
+eis. — Rex noster advéniet Christus, \* Quem Joánnes præ dicávit Agnum esse ventúrum. ℣. Super ipsum continébunt reges os suum, ipsum gentes deprecabúntur. — Quem.
+
+#### Lectio ii
+
+ET írruet pópulus, vir ad virum, et unusquísque ad próximum suum: tumultuábitur puer contra senem, et ignóbilis contra nóbilem. Apprehéndet enim vir fratrem suum doméstícum patris sui: Vestiméntum tibi est, princeps esto noster, ruína autem hæc sub manu tua. Respondébit in die illa, dicens: Non sum médicus, et in domo mea non est panis, neque vestiméntum: nolíte constitúere me príncipem pópuli.
+
+℟. Ante multum tempus prophetávit Ezéchiel: Vidi portam clausam; ecce Deus ante sécula ex ea procedébat pro salúte mundi: \* Et erat íterum clausa, demónstrans Vírginem, quia post partum permánsit virgo. ℣. Porta quam vidísti, Dóminus solus transíbit per illam. — Et.
+
+#### Lectio iii
+
+RUIT enim Jerúsalem, et Judas cóncidit: quia lingua eórum et adinventiónes eórum contra Dóminum, ut provocárent óculos majestátis ejus.

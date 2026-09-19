@@ -9386,3 +9386,67 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
 
 ℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: Feria IV Cinerum et in Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+### Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Beáti omnes, \* † qui timent Dóminum. ‡
+
+### Psalmus 127
+
+BEATI omnes, † qui timent Dóminum, \* ‡ qui ámbulant in viis ejus.
+
+Labóres mánuum tuárum quia manducábis: \* beátus es, et bene tibi erit.
+
+Uxor tua sicut vitis abúndans, \* in latéribus domus tuæ.
+
+Fílii tui sicut novéllæ olivárum, \* in circúitu mensæ tuæ.
+
+Ecce, sic benedicétur homo, \* qui timet Dóminum.
+
+Benedícat tibi Dóminus ex Sion: \* et vídeas bona Jerúsalem ómnibus diébus vitæ tuæ.
+
+Et vídeas fílios filiórum tuórum, \* pacem super Israël.
+
+**Ant.** Beáti omnes, qui timent Dóminum.
+
+**Ant.** Confundántur omnes, \* qui odérunt Sion.
+
+### Psalmus 128
+
+SÆPE expugnavérunt me a juventúte mea, \* dicat nunc Israël:
+
+Sæpe expugnavérunt me a juventúte mea: \* étenim non potuérunt mihi.
+
+Supra dorsum meum fabricavérunt peccatóres: \* prolongavérunt iniquitátem suam.
+
+Dóminus justus concídit cervíces peccatórum: \* confundántur et convertántur retrórsum omnes, qui odérunt Sion.
+
+Fiant sicut fœnum tectórum: \* quod priúsquam evellátur, exáruit:
+
+De quo non implévit manum suam qui metit, \* et sinum suum qui manípulos cólligit.
+
+Et non dixérunt qui præteríbant: Benedíctio Dómini super vos: \* benedíximus vobis in nómine Dómini.
+
+**Ant.** Confundántur omnes, qui odérunt Sion.
+
+**Ant.** De profúndis \* † clamávi ad te, Dómine. ‡
+
+### Psalmus 129
+
+DE profúndis † clamávi ad te, Dómine: \* ‡ Dómine, exáudi vocem meam:
+
+Fiant aures tuæ inténdentes, \* in vocem deprecatiónis meæ.
+
+Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
+
+Quia apud te propitiátio est: \* et propter legem tuam sustínui te, Dómine.

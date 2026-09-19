@@ -31100,4 +31100,26 @@ DE qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in 
 
 CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, princeps apostólici órdinis, ad arcem Románi destinátur impérii, ut lux veritátis, quæ in ómnium géntium revelabátur salútem, efficácius se ab ipso cápite per totum mundi corpus effúnderet. Cujus autem natiónis hómines in hac tunc urbe non essent? aut quæ usquam gentes ignorárent quod Roma didicísset?
 
-℟. Tu es pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris super
+℟. Tu es pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris superterram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et ídeo tibi tráditæ sunt claves regni cælórum.
+
+#### Lectio v
+
+HIC conculcándæ philosóphiæ opiniónes, hic dissolvéndæ erant terrénæ sapiéntiæ vanitátes, hic confutándi dæmónum cultus, hic ómnium sacrilegiórum impíetas destruénda, ubi diligentíssima superstitióne habebátur colléctum quidquid usquam fúerat vanis erróribus institútum. Ad hanc ergo urbem tu, beatíssime Petre Apóstole, veníre non métuis, et, consórte glóriæ tuæ Paulo Apóstolo, aliárum adhuc ecclesiárum ordinatiónibus occupáto, silvam istam freméntium bestiárum, et turbulentíssimæ profunditátis océanum, constántior quam cum supra mare graderéris, ingréderis.
+
+℟. Ego pro te rogávi, Petre, ut non déficiat fides tua: \* Et tu aliquándo convérsus confírma fratres tuos. ℣. Caro et sánguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et.
+
+#### Lectio vi
+
+JAM pópulos, qui ex circumcisióne credíderant, erudíeras: jam Antiochénam ecclésiam, ubi primum christiáni nóminis dígnitas est orta, fundáveras: jam Pontum, Galátiam, Cappadóciam, Asíam atque Bithýniam légibus evangélicæ prædicatiónis impléveras; nec aut dúbius de provéctu óperis, aut de spátio tuæ ignárus ætátis, trophǽum crucis Christi Románis árcibus inferébas, quo te divínis præordinatiónibus anteíbant, et honor potestátis, et glória passiónis.
+
+℟. Petre, amas me? Tu scis, Dómine, quia amo te. \* Pasce oves meas. ℣. Simon Joánnis, díligis me plus his? Tu scis, Dómine, quia amo te. — Pasce. Glória Patri. Pasce.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 1 de Ss. App. Petro et Paulo, ante médium}
+
+CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, Princeps apostólici órdinis, ad arcem Románi de-

@@ -28319,3 +28319,56 @@ ADÉSTO, Dómine, supplicatiónibus nostris: et concéde; ut hoc solémne jejún
 {RUBRIC: Ad Tértiam, Sextam et Nonam Capítulum et ℟. breve.}
 
 {RUBRIC: Per Octávas autem commúnes, simíliter Antiphónæ et Psalmi dicúntur de occurrénti hebdómadæ die, réliqua, nisi áliter suis locis notétur, ut in Festo: sed Lectiónes et Responsória I Noctúrni, nisi própria habeántur, sumúntur de Scriptúra occurrénti, ut supra, et iis deficiéntibus, Lectiónes in diébus infra Octávam dicúntur de Communi, in die Octáva, et pro Festis Dómini Commúne non habéntibus étiam infra Octávam, ut in Festo; Responsória vero, tam infra Octávam quam in die Octáva, ut in Festo. Item Lectiónes II et
+III Noctúrni, si própriæ de Octáva non habeántur, in diébus infra Octávam dicúntur de Communi, in die Octáva, et pro Festis Dómini ut supra, ut in Festo. Et de Festo étiam infra Octávam sumúntur Lectiónes III Noctúrni, si ália non habeátur Homilía in Evangélium Festi.}
+
+{RUBRIC: In Festis autem et diébus Octávis simplícibus ómnia páriter dicúntur de occurrénti hebdómadæ die, et de Festo vel de Communi, ut supra; sed ad Matutínum, omíssis Versíbus I et II, novem Psalmi sub suis Antiphónis dicúntur continuátim in único Noctúrno, et in eo sumúntur I et II Lectio de Scriptúra occurrénti cum suis Responsóriis de Témpore, áddito II Responsório Glória Patri, ut notátur; Lectio vero III de Festo, ut in Proprio vel Communi.}
+
+---
+
+## Festa Novembris
+
+### Die 26 Novembris
+
+#### S. Silvestri
+
+{RUBRIC: Abbátis Duplex}
+
+##### In II Vesperis
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+###### Oratio
+
+CLEMENTÍSSIME Deus, qui sanctum Silvéstrum Abbátem, sǽculi hujus vanitátem in apérto túmulo pie meditántem, ad erémum vocáre, et præcláris vitæ méritis decoráre dignátus es: te súpplices exorámus; ut, ejus exémplo terréna despiciéntes, tui consórtio perfruámur ætérno. Per Dóminum.
+
+---
+
+### Die 29 Novembris
+
+#### S. Saturnini
+
+{RUBRIC: Mártyris}
+
+{RUBRIC: Commemoratio}
+
+##### Ad Vesperas
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+DEUS, qui nos beáti Saturníni Mártyris tui concédis natalítio pérfrui: ejus nos tríbue méritis adjuvári. Per Dóminum.
+
+{RUBRIC: De Vigília S. Andréæ Apóstoli nihil fit Offício.}
+
+##### Ad Laudes
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+{RUBRIC: Vésperæ de sequénti.}

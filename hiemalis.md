@@ -18305,3 +18305,30 @@ NOLI timére, vermis Jacob, qui mórtui estis ex Israël: ego auxiliátus sum ti
 ECCE servus meus, suscípiam eum: eléctus meus, complácuit sibi in illo ánima mea: dedi spíritum meum super eum, judícium géntibus próferet. Non clamábit neque accípiet persónam nec audiétur vox ejus foris. Cálamum quassátum non cónteret, et linum fúmigans non exstínguet: in veritáte edúcet judícium. Non erit tristis, neque turbuléntus, donec ponat in terra judícium: et legem ejus ínsulæ exspectábunt.
 
 ℟. Nascétur nobis párvulus, et vocábitur Deus,
+Fortis: \* Ipse sedébit super thronum David patris sui, et imperábit: cujus potéstas super húmerum ejus. ℣. In ipso benedicéntur omnes tribus terræ, omnes gentes sérvient ei. — Ipse.
+
+#### Lectio ii
+
+HÆC dicit Dóminus Deus creans cælos, et exténdens eos: firmans terram, et quæ gérminant ex ea: dans flatum pópulo, qui est super eam, et spíritum calcántibus eam. Ego Dóminus vocávi te in justítia, et apprehéndi manum tuam, et servávi te. Et dedi te in fœdus pópuli, in lucem géntium: ut aperíres óculos cæcórum, et edúceres de conclusióne vinctum, de domo cárceris sedéntes in ténebris.
+
+℟. Ecce jam venit plenitúdo témporis, in quo misit Deus Fílium suum in terras, natum de Vírgine, factum sub lege: \* Ut eos, qui sub lege erant, redímeret. ℣. Propter nímiam caritátem suam, qua diléxit nos Deus, Fílium suum misit in similitúdinem carnis peccáti. — Ut.
+
+#### Lectio iii
+
+*Cap. 42, 10-13*
+
+CANTÁTE Dómino cánticum novum, laus ejus ab extrémis terræ: qui descénditis in mare, et plenitúdo ejus, ínsulæ, et
+
+habitatóres eárum. Sublevétur desértum, et civitátes ejus; in dómibus habitábit Cedar: laudáte habitatóres Petræ, de vértice móntium clamábunt. Ponent Dómino glóriam, et laudem ejus in ínsulis nuntiábunt. Dóminus sicut fortis egrediétur, sicut vir præliátor suscitábit zelum: vociferábitur, et clamábit: super inimícos suos confortábitur.
+
+℟. Virgo Israël, revértere ad civitátes tuas: \* Usquequo dolens avertéris? generábis Dóminum Salvatórem, oblatiónem novam in terra: \* Ambulábunt hómines in salvatiónem. ℣. In caritáte perpétua diléxi te: ídeo attráxi te míserans tui. — Usquequo. Glória Patri. Ambulábunt.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Consúrge, consúrge: \* indúere fortitúdinem, bráchium Dómini.
+
+{RUBRIC: Nisi (21 Dec.) dicénda sit Ant. Nolíte timére, vel (23 Dec.) Ant. Ecce compléta. 367}
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis

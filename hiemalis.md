@@ -15075,3 +15075,79 @@ Pater noster, {RUBRIC: quod dícitur a solo Hebdomadário totum clara voce, usqu
 *Rom. 13, 12-13*
 
 NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur
+arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+AURÓRA jam spargit polum:
+Terris dies illábitur:
+Lucis resúltat spículum:
+Discédat omne lúbricum.
+
+Phantásma noctis éxsulet:
+Mentis reátus córruat:
+Quidquid tenébris hórridum
+Nox áttulit culpæ, cadat.
+
+Ut mane, quod nos últimum
+Hic deprecámur cérnui,
+Cum luce nobis éffluat,
+Hoc dum canóre cóncrepat.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum. Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+{RUBRIC: Sabbato post Cineres Antiphona ad Benedictus ut in Proprio de Tempore; alias}
+
+**Ad Bened. Ant.** Illúmina, Dómine, \* sedéntes in ténebris et umbra mortis, et dírige pedes nostros in viam pacis.
+
+{RUBRIC: Sabbato post Cineres et in Vigíliis commúnibus Preces feriáles, ut supra. 296}
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+### Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum. Amen.
+
+{RUBRIC: Per Annum:} **Ant.** Exaltáre, Dómine.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Sabbato post Dominicam I:} **Ant.** In illa die.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:} **Ant.** Intuémini.

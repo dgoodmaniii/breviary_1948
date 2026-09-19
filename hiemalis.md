@@ -18002,3 +18002,66 @@ bat verbo prædicatiónis, ita baptísmum pœniténtiæ, quo peccáta solvúntur
 #### Oratio
 
 DEUS, qui cónspicis, quia ex nostra pravitáte afflígimur: concéde propí-
+tius; ut ex tua visitatióne consolémur: Qui vivis.
+
+{RUBRIC: Et dícitur per omnes Horas.}
+
+### Ad Vesperas
+
+**Ant. 1** Cánite tuba \* in Sion, quia prope est dies Dómini: ecce véniet ad salvándum nos, allelúja, allelúja.
+
+{RUBRIC: Psalmi de Sabbato, ut in Psaltério. 312}
+
+**2** Ecce véniet \* desiderátus cunctis géntibus: et replébitur glória domus Dómini, allelúja.
+
+**3** Erunt prava \* in directa, et áspera in vias planas: veni, Dómine, et noli tardáre, allelúja.
+
+**4** Dóminus véniet, \* occúrrite illi, dicéntes: Magnum princípium, et regni ejus non erit finis: Deus, fortis, dominátor, princeps pacis, allelúja, allelúja.
+
+**5** Omnípotens Sermo tuus, \* Dómine, a regálibus sédibus véniet, allelúja.
+
+#### Capitulum
+
+*1 Cor. 4, 1-2*
+
+FRATRES: Sic nos exístimet homo ut minístros Christi, et dispensatóres mysteriórum Dei. Hic jam quǽritur inter dispensatóres, ut fidélis quis inveniátur.
+
+#### Hymnus
+
+CREÁTOR alme síderum,
+Ætérna lux credéntium,
+Jesu, Redémptor ómnium,
+Inténde votis súpplicum.
+
+Qui dæmonis ne fráudibus
+Períret orbis, ímpetu
+Amóris actus, lánguidi
+Mundi medéla factus es.
+
+Commúne qui mundi nefas
+Ut expiáres, ad crucem
+E Vírginis sacrário
+Intácta prodis víctima.
+
+Cujus potéstas glóriæ,
+Noménque cum primum sonat,
+Et cælites et ínferi
+Treménte curvántur genu.
+
+Te deprecámur últimæ
+Magnum diéi Júdicem,
+Armis supérnæ grátiæ
+Defénde nos ab hóstibus.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+{RUBRIC: Antiphona ad Magnificat una ex majóribus. 355}
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpédiunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.

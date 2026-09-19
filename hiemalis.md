@@ -34244,4 +34244,40 @@ ITAQUE tamquam lucérna inter eos, qui in idolatríæ et mendaciórum ténebris 
 
 #### Lectio ix
 
-TITUS Creténsium epíscopus, qui inter discípulos Doctóris géntium méruit cooptári, ádeo evangelizándi ardóre et fidelitáte Paulo exstitit carus, ut, cum hic venísset Tróadem propter Evangélium Christi, testátus sit non habuísse réquiem spirítui suo, eo quod Titum fratrem suum ibi non invénerit. Et paulo post Macedóniam petens, suam in eum caritátem ita confírmat: Sed qui consolátur húmiles, consolátus est nos Deus in advéntu Titi. Corínthum ab Apóstolo missus, sapiénter functus est múnere hujus legatiónis, quæ prǽsertim eleemósynas colligéndas ad sublevándam Ecclésiæ Hebrǽórum inópiam spectábat. Interim ad effundéndum divíni verbi semen inter gentes linguis locísque distínctas, post tot
+TITUS Creténsium epíscopus, qui inter discípulos Doctóris géntium méruit cooptári, ádeo evangelizándi ardóre et fidelitáte Paulo exstitit carus, ut, cum hic venísset Tróadem propter Evangélium Christi, testátus sit non habuísse réquiem spirítui suo, eo quod Titum fratrem suum ibi non invénerit. Et paulo post Macedóniam petens, suam in eum caritátem ita confírmat: Sed qui consolátur húmiles, consolátus est nos Deus in advéntu Titi. Corínthum ab Apóstolo missus, sapiénter functus est múnere hujus legatiónis, quæ prǽsertim eleemósynas colligéndas ad sublevándam Ecclésiæ Hebrǽórum inópiam spectábat. Interim ad effundéndum divíni verbi semen inter gentes linguis locísque distínctas, post tot itínera et labóres cum duce Paulo Cretam ínsulam áppulit. Porro, cum isti ecclésiæ epíscopus ab ipso Apóstolo deléctus esset, se ipsum prǽbuit exémplum bonórum óperum. Tráditur ipse inter Dálmatas, ut crucis vexíllum explicáret, strénue consudásse. Tandem plenus méritis, quarto supra nonagésimum anno, óbiit in Dómino.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Designávit Dóminus, de Comm. Evang., cum Respónsoriis de Comm. Conf. Pont. ibi notátis.} [27]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ, alias}
+
+{RUBRIC: Pro S. Doróthea Virg. et Mart.}
+
+#### Lectio ix
+
+DORÓTHEA virgo, ex Cæsaréa Cappadóciæ, propter Christi confessiónem ab Apricio prǽside comprehénsa, Chrystæ et Callístæ soróribus, quæ a fide defécerant, trádita est, ut eam a propósito removérent. Sed contra factum est; nam eas Doróthea ad cultum christiánæ religiónis redúxit, propter quam étiam martýrium suscepérunt. Quare Virgo equúleo diu torta et palmis cæsa, ad extrémum cápitis damnáta, duplicátam virginitátis et martýrii palmam accépit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+#### Oratio
+
+DEUS, qui beátum Titum Confessórem tuum atque Pontíficem apostólicis virtútibus decorásti: ejus méritis et intercessióne concéde; ut juste et pie vivéntes in hoc sǽculo, ad cæléstem pátriam perveníre mereámur. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: Deinde Commem. S. Dorótheæ Virg. et Mart.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+#### Oratio
+
+INDULGÉNTIAM nobis, quǽsumus, Dómine, beáta Doróthea Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis, et tuæ professióne virtútis. Per Dóminum.

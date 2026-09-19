@@ -26329,3 +26329,30 @@ QUÆRIS, quid váleat ad malum líberum arbítrium? Récole hóminem peccántem.
 #### Lectio vi
 
 PRORSUS nusquam sic appáret benígnitas grátiæ, et liberálitas omnipoténtiæ Dei, quam in hómine mediatóre Dei et hóminum, hómine Christo Jesu. Quid enim dícimus, fratres mei? In fide cathólica nutrítis loquor, vel in pacem cathólicam lucrátis. Nóvimus et tenémus, mediatórem Dei et hóminum, hóminem Christum Jesum, in quantum homo erat, ejus esse natúræ, cujus et nos sumus. Non enim altérius natúræ caro nostra, et caro illíus: nec altérius natúræ ánima nostra, et ánima illíus. Hanc suscépit
+natúram, quam salvándam esse judicávit.
+
+℟. Dómini est terra, et plenitúdo ejus: \* Orbis terrárum, et univérsi qui hábitant in eo. ℣. Ipse super mária fundávit eam, et super flúmina præparávit illam. — Orbis. Glória Patri. Orbis.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 13, 24-30*
+
+IN illo témpore: Dixit Jesus turbis parábolam hanc: Símile factum est regnum cælórum hómini, qui seminávit bonum semen in agro suo. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Liber Quæst. Evang. in Matth. cap. 11, tom. 4}
+
+CUM negligéntius ágerent præpósiti Ecclésiæ, aut cum dormitiónem mortis accíperent Apóstoli, venit diábolus, et superseminávit eos, quos malos fílios Dóminus interpretátur. Sed quæritur, utrum hærétici sint, an male vivéntes cathólici? Possunt enim dici fílii mali étiam hærétici, quia ex eódem Evangélii sémine, et Christi nómine procreáti, pravis opiniónibus ad falsa dógmata convertúntur.
+
+℟. Ad te, Dómine, levávi ánimam meam: \* Deus meus, in te confído, non erubéscam. ℣. Custódi ánimam meam, et éripe me. — Deus.
+
+#### Lectio viii
+
+SED quod dicit eos in médio trítici seminátos, quasi vidéntur illi significári, qui uníus communiónis sunt. Verúmtamen quóniam Dóminus agrum ipsum, non Ecclésiam, sed hunc mundum interpretátus est: bene intelligúntur hærétici, quia non societáte uníus Ecclésiæ, vel uníus fídei, sed societáte solíus nóminis christiáni in hoc mundo permiscéntur bonis. At illi, qui in eádem fide mali sunt, pálea pótius quam zizánia reputántur: quia pálea étiam fundaméntum ipsum habet cum frumento, radicémque commúnem.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus: et hi tres unum sunt. — Sanctus. Glória Patri. Plena.

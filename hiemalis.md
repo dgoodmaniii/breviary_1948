@@ -28005,3 +28005,48 @@ NUNC autem manent fides, spes, cáritas, tria hæc: major autem horum est cárit
 {RUBRIC: Antiphonæ et Psalmi de Dominica.} [REF: p. 70]
 
 {RUBRIC: Capitulum Fratres, ut supra.} [REF: p. 656]
+
+#### Hymnus
+
+LUCIS Creátor óptime,
+Lucem diérum próferens,
+Primórdiis lucis novæ,
+Mundi parans oríginem:
+
+Qui mane junctum vésperi
+Diem vocári præcipis:
+Illábitur tetrum chaos,
+Audi preces cum flétibus.
+
+Ne mens graváta crímine,
+Vitæ sit exsul múnere,
+Dum nil perénne cógitat,
+Seséque culpis illigat.
+
+Cæléste pulset óstium:
+Vitále tollat prǽmium:
+Vitémus omne nóxium:
+Purgémus omne péssimum.
+
+\* Præsta, Pater piíssime,
+Patríque compar Únice,
+Cum Spíritu Paráclito
+Regnans per omne sǽculum. Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Stans autem Jesus, \* jussit cæcum addúci ad se, et ait illi: Quid vis ut fáciam tibi? Dómine, ut vídeam. Et Jesus ait illi: Réspice, fides tua te salvum fecit. Et conféstim vidit, et sequebátur illum, magníficans Deum.
+
+---
+
+### Feria Secunda
+
+{RUBRIC: Lectiónes hujus Fériæ quacúmque de causa impedítæ, si post Cíneres fíeri contíngat Offícium Lectiónibus I Noctúrni própriis aut de Communi assignátis carens et reponéndæ in eo non sint Lectiónes Domínicæ, ponúntur in prima sequénti die, in qua dicéndæ sunt Lectiónes de Scriptúra occurrénti, cum Responsóriis tamen de Féria curránti. Quod ítem servátur de Lectiónibus Fériæ III páriter in sua die quomodolíbet impedítis; et si quando infra Hebdómadam ómnibus non sit locus, Lectiónes primo impedítæ omittúntur.}
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 13, 1-16*
+
+ASCÉNDIT ergo Abram de Ægýpto, ipse et uxor ejus, et ómnia quæ habébat, et Lot cum eo ad austrálem plagam. Erat autem dives valde in possessióne auri et argénti. Reversúsque est per iter, quo vénerat, a Merídie in Bethel usque ad locum ubi prius fíxerat tabernáculum inter Bethel et Hai: in loco altáris quod fécerat prius, et invocávit ibi nomen Dómini. Sed et Lot qui erat cum Abram, fuérunt greges óvium, et arménta, et tabernácula. Nec póterat eos cápere terra, ut habitárent simul: erat quippe substántia eórum multa,

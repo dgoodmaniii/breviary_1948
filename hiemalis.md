@@ -18140,3 +18140,27 @@ ANNO quintodécimo impérii Tibérii Cǽsaris, procuránte Póntio Piláto Judǽ
 DICÉBAT Joánnes ad turbas, quæ exíbant ut baptizaréntur ab eo: Genímina viperárum, quis osténdit vobis fúgere a ventúra ira? Ventúra enim ira est animadvérsio ultiónis extrémæ: quam tunc fúgere peccátor non valet, qui nunc ad laménta pœniténtiæ non recúrrit. Et notándum, quod malæ sóboles, malórum paréntum actiónem imitántes, genímina viperárum vocántur: quia per hoc quod bonis ínvident, eósque persequúntur, quod quibúsdam mala retríbuunt, quod læsiónes próximis exquírunt: quóniam in his ómnibus patrum suórum carnálium vias sequúntur, quasi venenáti fílii de venenátis paréntibus nati sunt.
 
 ℟. Jurávi, dicit Dóminus, ut ultra jam non iráscar super terram: montes enim et colles suscípient justítiam meam, \* Et testaméntum pacis erit in Jerúsalem. ℣. Juxta est salus mea, ut véniat: et justítia mea, ut revelétur. — Et testaméntum.
+
+#### Lectio viii
+
+SED quia jam peccávimus, quia usu malæ consuetúdinis involúti sumus: dicat quid nobis faciéndum sit, ut fúgere a ventúra ira valeámus. Séquitur: Fácite ergo fructus dignos pœniténtiæ. In quibus verbis notándum est, quod amícus sponsi non solum fructus pœniténtiæ, sed dignos pœniténtiæ ádmonet esse faciéndos. Áliud namque est fructum fácere pœniténtiæ; áliud, dignum pœniténtiæ fructum fácere. Ut enim secúndum dignos pœniténtiæ fructus loquámur, sciéndum est, quia quisquis illícita nulla commísit, huic jure concéditur, ut lícitis utátur: sícque pietátis ópera fáciat, ut tamen si volúerit, ea quæ mundi sunt, non relínquat.
+
+℟. Non discédimus a te, vivificábis nos, Dómine, et nomen tuum invocábimus: \* Osténde nobis fáciem tuam, et salvi érimus. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui: vísita nos in salutári tuo. — Osténde.
+
+#### Lectio ix
+
+AT si quis in fornicatiónis culpam, vel fortásse, quod est grávius, in adultérium lapsus est: tanto a se lícita debet abscíndere, quanto se mémi-
+
+nit et illícita perpetrásse. Neque enim par fructus boni óperis esse debet, ejus qui minus, et ejus qui ámplius delíquit: aut ejus qui in nullis, et ejus qui in quibúsdam facinóribus cécidit, et ejus qui in multis est lapsus. Per hoc ergo quod dícitur: Fácite fructus dignos pœniténtiæ: uniuscujúsque consciéntia convenítur, ut tanto majóra acquírat bonórum ópérum lucra per pœniténtiam, quanto gravióra sibi íntulit damna per culpam.
+
+℟. Intuémini, quantus sit iste, qui ingréditur ad salvándas gentes: ipse est Rex justítiæ, \* Cujus generátio non habet finem. ℣. Præcúrsor pro nobis ingréditur, secúndum órdinem Melchísedech Póntifex factus in ætérnum. — Cujus. Glória Patri. Cujus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Cánite tuba \* in Sion, quia prope est dies Dómini: ecce véniet ad salvándum nos, allelúja, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 44}
+
+**2** Ecce véniet \* desiderátus cunctis géntibus: et replébitur glória domus Dómini, allelúja.

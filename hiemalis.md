@@ -16231,3 +16231,51 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 ℣. Divínum auxílium.
 
 Pater, Ave María et Credo.
+
+---
+
+# Proprium de Tempore
+
+[IMAGE]
+
+## Sabbato ante Dominicam I Adventus
+
+### Ad Vesperas
+
+**Ant. 1** In illa die \* stillábunt montes dulcédinem, et colles fluent lac et mel, allelúja.
+
+{RUBRIC: Psalmi de Sabbato, ut in Psaltério. 312}
+
+**2** Jucundáre, \* fília Sion, et exsúlta satis, fília Jerúsalem, allelúja.
+
+**3** Ecce Dóminus véniet, \* et omnes Sancti ejus cum eo \* et erit in die illa lux magna, allelúja.
+
+**4** Omnes sitiéntes, \* veníte ad aquas: quǽrite Dóminum, dum inveníri potest, allelúja.
+
+**5** Ecce véniet \* Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+#### Capitulum
+
+*Rom. 13, 11*
+
+FRATRES: Hora est jam nos de somno súrgere: nunc enim própior est nostra salus, quam cum credídimus.
+
+#### Hymnus
+
+CREÁTOR alme síderum,
+Ætérna lux credéntium,
+Jesu, Redémptor ómnium,
+Inténde votis súpplicum.
+
+Qui dæmonis ne fráudibus
+Períret orbis, ímpetu
+Amóris actus, lánguidi
+Mundi medéla factus es.
+
+Commúne qui mundi nefas
+Ut expiáres, ad crucem
+E Vírginis sacrário
+Intácta prodis víctima.
+
+Cujus potéstas glóriæ,
+Noménque cum primum sonat,

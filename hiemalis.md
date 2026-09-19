@@ -27113,3 +27113,25 @@ Regnans per omne sǽculum. Amen.
 PRECES pópuli tui, quǽsumus, Dómine, cleménter exáudi: ut, qui juste pro peccátis nostris afflígimur, pro tui nóminis glória misericórditer liberémur. Per Dóminum.
 
 ---
+
+## Infra Hebdomadam Septuagesimæ
+
+### Feria Secunda
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 1, 27-31*
+
+ET creávit Deus hóminem ad imáginem suam: ad imáginem Dei creávit illum, másculum et féminam creávit eos. Benedixítque illis Deus, et ait: Créscite, et multiplicámini, et repléte terram, et subjícite eam, et dominámini píscibus maris, et volatílibus cæli, et univérsis animántibus, quæ movéntur super terram. Dixítque Deus: Ecce dedi vobis omnem herbam afferéntem semen super terram, et univérsa ligna quæ habent in semetípsis seméntem géneris sui, ut sint vobis in escam: et cunctis animántibus terræ, omníque vólucri cæli, et univérsis quæ movéntur in terra, et in quibus est ánima vivens, ut hábeant ad vescéndum. Et factum est ita. Vidítque Deus cuncta quæ fécerat: et erant valde bona. Et factum est véspere et mane, dies sextus.
+
+℟. Dum deambuláret Dóminus in paradíso ad auram post merídiem, clamávit, et dixit: Adam, ubi es? Audívi, Dómine, vocem tuam, \* Et abscóndi me. ℣. Vocem tuam audívi in paradíso, et tímui, eo quod nudus essem. — Et.
+
+#### Lectio ii
+
+*Cap. 2, 1-10*
+
+IGITUR perfécti sunt cæli et terra, et omnis ornátus eórum. Complevítque Deus die séptimo opus suum quod fécerat: et requiévit die séptimo ab univérso ópere quod patrárat. Et benedíxit diéi séptimo, et sanctificávit illum: quia in ipso cessáverat ab omni ópere suo quod creávit Deus ut fáceret. Istæ sunt generatiónes cæli et terræ, quando creáta sunt, in die quo fecit Dóminus Deus cælum et terram: Et omne virgúltum agri ántequam oriétur in terra, omnémque herbam regiónis priúsquam germináret: non enim plúerat Dóminus Deus super terram, et homo non erat qui operarétur terram: Sed fons ascendébat e terra, írrigans univérsam superfíciem terræ.
+
+℟. In sudóre vultus tui vescéris pane tuo, dixit Dóminus ad Adam: cum operátus fúeris terram, non dabit fructus suos: \* Sed spinas et tríbulos germinábit tibi. ℣. Quia audísti vocem uxóris tuæ, et comedísti de ligno, ex quo præcéperam tibi ne

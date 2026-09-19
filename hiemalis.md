@@ -20426,3 +20426,33 @@ IN illo témpore: Erat Joseph, et María mater Jesu, mirántes super his, quæ d
 FIDES úberem in omnes grátiam, Dómini generatióne diffúsam, et prophetíam incrédulis negátam esse, non justis. Ecce et Símeon prophétat, in ruínam et resurrectiónem plurimórum venísse Dóminum Jesum Christum, ut justórum iniquorúmque mérita discérnat; et pro nostrórum qualitáte factórum, judex verus et justus aut supplícia decérnat, aut prǽmia.
 
 ℟. Verbum caro factum est, et habitávit in nobis: \* Et vídimus glóriam ejus, glóriam quasi Unigéniti a Patre, plenum grátiæ et veritátis. ℣. Omnia per ipsum facta sunt, et sine ipso factum est nihil. — Et.
+
+#### Lectio viii
+
+ET tuam ipsíus ánimam pertransíbit gládius. Nec líttera, nec história docet, ex hac vita Maríam corporális necis passióne migrásse. Non enim ánima, sed corpus materiáli gládio transverberátur. Et ídeo prudéntiam Maríæ haud ignáram mystérii cæléstis osténdit. Vivum enim verbum Dei, et válidum, et acútius omni gládio acutíssimo, pénetrans usque ad divisiónem ánimæ et spíritus, ártuum quoque et medullárum, cogitatiónes cordis et secréta scrutátur animórum, quia nuda et apérta sunt ómnia Dei Fílio, quem consciéntiæ secréta non fallunt.
+
+℟. O Regem cæli, cui tália famulántur obséquia: stábulo pónitur, qui cóntinet mundum: \* Jacet in præsépio, et in cælis regnat. ℣. Natus est nobis hódie Salvátor, qui est Christus Dóminus, in civitáte David. — Jacet. Glória Patri. Jacet.
+
+#### Lectio ix
+
+PROPHETÁVIT ítaque Símeon, prophetáverat virgo, prophetáverat copuláta conjúgio; prophetáre débuit étiam vídua, ne qua aut proféssio deésset, aut sexus. Et ídeo Anna et stipéndiis viduitátis,
+
+et móribus talis indúcitur, ut digna plane fuísse credátur, quæ Redemptórem ómnium venísse nuntiáret. Cujus mérita cum álibi descripsérimus, cum víduas hortarémur, hoc loco, quóniam ad ália properámus, non putámus iteránda.
+
+{RUBRIC: Deinde dícitur} Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Quem vidístis, \* pastóres? dícite, annuntiáte nobis, in terris quis appáruit? Natum vídimus, et choros Angelórum collaudántes Dóminum, allelúja, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 44}
+
+**2** Génuit puérpera \* Regem, cui nomen ætérnum, et gáudia matris habens cum virginitátis honóre: nec primam símilem visa est, nec habére sequéntem, allelúja.
+
+**3** Angelus ad pastóres \* ait: Annúntio vobis gáudium magnum: quia natus est vobis hódie Salvátor mundi, allelúja.
+
+**4** Facta est cum Angelo \* multitúdo cæléstis exércitus laudántium Deum, et dicéntium: Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja.
+
+**5** Párvulus fílius \* hódie natus est nobis: et vocá-

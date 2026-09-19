@@ -16620,3 +16620,33 @@ ET írruet pópulus, vir ad virum, et unusquísque ad próximum suum: tumultuáb
 #### Lectio iii
 
 RUIT enim Jerúsalem, et Judas cóncidit: quia lingua eórum et adinventiónes eórum contra Dóminum, ut provocárent óculos majestátis ejus.
+
+Agnítio vultus eórum respóndit eis: et peccátum suum quasi Sódoma prædicavérunt, nec abscondérunt: væ ánimæ eórum, quóniam rédita sunt eis mala. Dícite justo quóniam bene, quóniam fructum adinventiónum suárum comédet. Væ ímpio in malum: retribútio enim mánuum ejus fiet ei.
+
+℟. Ecce dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit, et fáciet judícium et justítiam in terra: \* Et hoc est nomen quod vocábunt eum: \* Dóminus justus noster. ℣. In diébus illis salvábitur Juda, et Israël habitábit confidénter. — Et. Glória Patri. Dóminus.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** De Sion \* exíbit lex, et verbum Dómini de Jerúsalem.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccatórum nostrórum perículis, te mereámur protegénte éripi, te liberánte salvári: Qui vivis.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Véniet \* fórtior me post me, cujus non sum dignus sólvere corrígiam calceamentórum.
+
+---
+
+### Feria Quinta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 4, 1-3*
+
+ET apprehéndent septem mulíeres virum unum in die illa, dicéntes: Panem nostrum comedémus, et vestiméntis nostris operiémur: tantúmmodo invocétur nomen tuum super nos, aufer oppróbrium nostrum. In die illa erit germen Dómini in magnificéntia, et glória, et fructus terræ sublímis, et exsultátio his, qui salváti fúerint de Israël. Et erit: Omnis qui relíctus fúerit in Sion, et resíduus in Jerúsalem, sanctus vocábitur, omnis qui scriptus est in vita in Jerúsalem.
+
+℟. Súscipe verbum, Virgo María, quod tibi a Dómino per Ángelum transmíssum est: concípies et páries Deum páriter et hóminem, \* Ut benedícta dicáris inter omnes mulíeres. ℣. Páries quidem fílium, et virginitátis non patiéris detriméntum: efficiéris grávida, et eris mater semper intácta. — Ut.

@@ -25829,3 +25829,31 @@ OMNÍPOTENS sempitérne Deus, infirmitátem nostram propítius réspice: atque a
 ### Ad Vesperas
 
 ℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Dómine, \* si vis, potes me mundáre: et ait Jesus: Volo, mundáre.
+
+### Feria Secunda
+
+{RUBRIC: De Epístola ad Gálatas}
+
+#### Lectio i
+
+*Cap. 3, 1-14*
+
+O INSENSÁTI Gálatæ, quis vos fascinávit non obedíre veritáti, ante quorum óculos Jesus Christus præscríptus est, in vobis crucifíxus? Hoc solum a vobis volo díscere: Ex opéribus legis Spíritum accepístis, an ex audítu fídei? Sic stulti estis, ut cum spíritu cœpéritis, nunc carne consummémini? Tanta passi estis sine causa? si tamen sine causa. Qui ergo tríbuit vobis Spíritum, et operátur virtútes in vobis: ex opéribus legis, an ex audítu fídei? Sicut scriptum est: Abraham crédidit Deo, et reputátum est illi ad justítiam.
+
+℟. Quam magna multitúdo dulcédinis tuæ, Dómine, \* Quam abscondísti timéntibus te! ℣. Et perfecísti eis qui sperant in te, Dómine, in conspéctu filiórum hóminum. — Quam abscondísti.
+
+#### Lectio ii
+
+COGNÓSCITE ergo, quia qui ex fide sunt, ii sunt fílii Abrahæ. Próvidens autem Scriptúra, quia ex fide justíficat gentes Deus, prænuntiávit Abrahæ: Quia benedicéntur in te omnes gentes. Igitur qui ex fide sunt, benedicéntur cum fidéli Abraham. Quicúmque enim ex opéribus legis sunt, sub maledícto sunt. Scriptum est enim: Maledíctus omnis, qui non permánserit in ómnibus, quæ scripta sunt in libro legis ut fáciat ea.
+
+℟. Adjútor meus esto, Deus: \* Ne derelínquas me. ℣. Neque despícias me, Deus, salutáris meus. — Ne.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ne.}
+
+#### Lectio iii
+
+QUÓNIAM autem in lege nemo justificátur apud Deum, maniféstum est: quia justus ex fide vivit. Lex autem non est ex fide, sed, Qui fécerit ea, vivet in illis. Christus nos redémit de maledícto legis, factus pro nobis maledíctum: quia scriptum est: Maledíctus omnis qui pendet in ligno: ut in géntibus benedíctio Abrahæ fíeret in Christo Jesu, ut pollicitatiónem Spíritus accipiámus per fidem.
+
+℟. Benedícam Dóminum in omni témpore: \* Semper laus ejus in ore meo. ℣. In Dómino laudábitur

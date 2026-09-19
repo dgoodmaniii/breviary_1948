@@ -33204,3 +33204,31 @@ præsértim juveníles ánimas Christo lucrifácere; item novam famíliam suscé
 #### Lectio vi
 
 ANIMÁRUM stúdio flagrans, nulli pepércit labóri nullíque impénsæ, ut festórum diérum ascetéria pro adolescéntulis, pupillórum hospítia, pusiónum operariórum scholas, ædes púeris aléndis, instituéndis, templa Deo longe latéque per orbem excitáret. Simul Christi fidem in Subalpínis verbo et exémplo fovére, per totam Itáliam óptimos libros conficiéndo, edéndo, divulgándo tutári, Evangélii præcónes ad gentes infidéles sǽpius mitténdo propagáre non désiit. Símplex ac rectus homo Dei, ad omne opus bonum instrúctus, omnígenis virtútibus flóruit, quas incensíssimæ caritátis ardor alébat. Mente in Deum constánter erécta ac supérnis charismátibus cumulátus, nullis sanctíssimus vir nec mínis terréri nec labóribus fatigári, nec curis ópprimi, neque rebus advérsis perturbári videbátur. Tria autem pietátis offícia suis máxime commendávit: ut quam sæpíssime ad sacram exomológesim sacrámque synáxim accéderent, ut Maríam Auxiliatrícem peramánter cólerent, ut Pontíficem Máximum ceu fílii addictíssimi obsequeréntur. Nec siléntio prætereúndum est eum, in difficíllimis rerum adjúnctis, præsto non semel Románo Pontífici adfuísse, ut mala ex légibus contra Ecclésiam eo témpore latis deriváta temperáret. Vitæ cursum, tot tantísque opéribus ac labóribus refértum, confécit prídie kaléndas februárii anno salútis millésimo octingentésimo octogésimo octávo, ætátis septuagésimo tértio. Quem multis clarum miráculis, Pius Undécimus Póntifex Máximus, anno millésimo nongentésimo vigésimo
+
+nono Beatórum, quinquénnio post, die solémni Paschæ, décimo nono exeúnte século a perácta humáni géneris Redemptióne, géntibus ex orbe univérso in Urbem confluéntibus, Sanctórum ordínibus adserébat.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOÁNNES Bosco, húmili loco natus, post ærumnósam innocentíssimámque puerítiam, stúdiis Chérii óperam dedit, quo quidem témpore ingénii et virtútum laude enítuit. Sacérdos creátus, Augústam Taurinórum pétiit, ubi ómnibus ómnia factus est; sed præsértim in adolescéntulos eósque páuperes ac derelíctos adjuvándos curam impéndit. Liberálibus disciplínis, opíficum scholis, festórum diérum ascetériis a venenátis errórum vitiorúmque pábulis puerílem ætátem removére omni ope stúduit: quam ad rem duas in Ecclésia virórum virginúmque famílias excitávit. Plúrimos ipse édidit libros christiána sapiéntia refértos. De ætérna étiam infidélium salúte per sacras suórum sodálium expeditiónes óptime méruit. Mente in Deum constánter erécta, nullis homo sanctíssimus, nec minis terréri, nec labóribus fatigári, nec curis ópprimi, nec rebus advérsis perturbári videbátur. Obiit anno salútis millésimo octingentésimo octogésimo octávo, ætátis septuagésimo tértio. A Pio Undécimo, Pontífice Máximo, in Sanctórum númerum relátus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 18, 1-5*
+
+IN illo témpore: Accessérunt discípuli ad Jesum, dicéntes: Quis, putas, major est in regno cælórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 60 in Matth., cap. 18}
+
+QUIDEN quot modis nos indúcat Dóminus ad curam vel minórum fratrum? Ne íta-

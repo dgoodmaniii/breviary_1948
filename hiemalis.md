@@ -33469,3 +33469,23 @@ LOCÚTUS est Dóminus ad Móysen, dicens: Sanctífica mihi omne primogénitum qu
 *Cap. 12, 1-8*
 
 LOCÚTUS est Dóminus ad Móysen, dicens: Lóquere fíliis Israël, et dices ad eos: Múlier, si suscépto sémine pepérerit másculum, immúnda erit septem diébus juxta dies separatiónis ménstruæ. Et die octávo circumcidétur
+
+infántulus: ipsa vero trigínta tribus diébus manébit in sánguine purificatiónis suæ. Omne sanctum non tanget, nec ingrediétur in Sanctuárium, donec impleántur dies purificatiónis suæ. Sin autem féminam pepérerit, immúnda erit duábus hebdomádibus juxta ritum fluxus ménstrui, et sexagínta sex diébus manébit in sánguine purificatiónis suæ.
+
+℟. Postquam impléti sunt dies purgatiónis Maríæ secúndum legem Móysi, tulérunt Jesum in Jerúsalem, ut sísterent eum Dómino, \* Sicut scriptum est in lege Dómini: Quia omne masculínum adapériens vulvam, sanctum Dómino vocábitur. ℣. Obtulérunt pro eo Dómino par túrturum aut duos pullos columbárum. — Sicut.
+
+#### Lectio iii
+
+CUMQUE explétí fúerint dies purificatiónis suæ, pro fílio, sive pro fília, déferet agnum annículum in holocáustum, et pullum colúmbæ sive túrturem pro peccáto, ad óstium tabernáculi testimónii, et tradet sacerdóti, qui ófferet illa coram Dómino; et orábit pro ea, et sic mundábitur a profúvio sánguinis sui. Ista est lex pariéntis másculum aut féminam. Quod si non invénerit manus ejus, nec potúerit offérre agnum, sumet duos túrtures vel duos pullos columbárum, unum in holocáustum, et álterum pro peccáto; orabítque pro ea sacérdos, et sic mundábitur.
+
+℟. Obtulérunt pro eo Dómino par túrturum aut duos pullos columbárum, \* Sicut scriptum est in lege Dómini. ℣. Postquam autem impléti sunt dies purgatiónis Maríæ secúndum legem Móysi, tulérunt illum in Jerúsalem, ut sísterent eum Dómino. — Sicut. Glória Patri. Sicut.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 13 de Tempore, post initium}
+
+#### Lectio iv
+
+SIC olim prædíctum est: Mater Sion dicit: Homo et homo factus est in ea; et ipse fundávit eam Altíssimus. O omnipoténtia nascéntis! o magnificéntia de cælo ad terram descendéntis! Adhuc in útero portabátur, et ex útero matris a Joánne Baptísta salutabátur. In templo præsentabátur, et a Simeóne sene famóso, annóso, probáto, coronáto agnoscebátur. Tunc cognóvit, tunc adorávit,

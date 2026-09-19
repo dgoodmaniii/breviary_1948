@@ -32582,4 +32582,60 @@ ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur? c
 
 {RUBRIC: Capitulum} *Act. 9, 1-2*
 
-SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.
+SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.sit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.
+
+#### Hymnus
+
+EXSÚLTET orbis gáudiis,
+Cælum resúltet láudibus:
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices,
+Et vera mundi lúmina,
+Votis precámur córdium:
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter
+In fine Christus sæculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória. Amen.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole.
+
+**Ad Bened. Ant.** Vos qui secúti estis me, \* sedébitis super sedes, judicántes duódecim tribus Israël, dicit Dóminus.
+
+#### Oratio
+
+DEUS, qui univérsum mundum beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, qui ejus hódie Conversiónem cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Petri Ap.:}
+
+**Ant.** Tu es pastor óvium, Princeps Apostolórum, tibi tráditæ sunt claves regni cælórum.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+#### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur: Qui vivis et regnas.
+
+### Ad Tertiam
+
+{RUBRIC: Capitulum Saulus, ut supra.} 810
+
+℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terræ

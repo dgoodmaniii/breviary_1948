@@ -33810,4 +33810,38 @@ Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
 
 Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
 
-Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo. Summa ingenúitas ista est, in qua sérvitus Christi comprobátur.
+
+**Ant.** Ancílla Christi sum, \* ídeo me osténdo servílem habére persónam.
+
+###### Psalmus 3
+
+DOMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Ancílla Christi sum, ídeo me osténdo servílem habére persónam.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+
+*Cap. 51, 1-17*
+
+CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
+
+℟. Dum torquerétur beáta Agatha in mamílla gráviter, dixit ad júdicem: \* Impie, crudélis et dire tyránne, non es confúsus amputáre in fémina, quod ipse in matre suxísti? ℣. Ego enim hábeo mamíllas íntegras intus in ánima mea, quas ab infántia Dómino consecrávi. — Impie.

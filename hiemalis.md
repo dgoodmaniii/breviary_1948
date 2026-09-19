@@ -32336,4 +32336,48 @@ ERAT autem quidam discípulus Damásci, nómine Ananías: et dixit ad illum in v
 
 ### In II Nocturno
 
-**Ant.** Tu es vas electiónis, \* sancte Paule Apóstole, prædicátor veritátis in univérso mundo.
+**Ant.** Tu es vas electiónis, \* sancte Paule Apóstole, prædicátor veritátis in univérso mundo.###### Psalmus 46
+
+OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+**Ant.** Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis in univérso mundo.
+
+**Ant.** Magnus sanctus Paulus \* vas electiónis, vere digne est glorificándus, qui et méruit thronum duodécimum possidére.
+
+###### Psalmus 60
+
+EXÁUDI, Deus, deprecatiónem meam: \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi: \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea: \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sécula: \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam: \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in séculum séculi: \* ut reddam vota mea de die in diem.
+
+**Ant.** Magnus sanctus Paulus vas electiónis, vere digne est glorificándus, qui et méruit thronum duodécimum possidére.
+
+**Ant.** Bonum certámen \* certávi, cursum consummávi, fidem servávi.

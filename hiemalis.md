@@ -7123,3 +7123,70 @@ IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc es
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
 Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+ ℟. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 23}
+
+#### Per Annum
+
+**Capitulum** *Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: In Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 23}
+
+---
+
+### Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prǽmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Salvásti nos.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria III post Dominicam I:} **Ant.** Ecce véniet.
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Lex per Móysen data est.
+
+### Psalmus 43, i
+
+DEUS, áuribus nostris audívimus: \* patres nostri annuntiavérunt nobis.
+
+Opus, quod operátus es in diébus eórum, \* et in diébus antíquis.
+
+Manus tua gentes dispérdidit, et plantásti eos: \* afflixísti pópulos, et expulísti eos.
+
+Nec enim in gládio suo possedérunt terram, \* et bráchium eórum non salvávit eos:
+
+Sed déxtera tua, et bráchium tuum, et illuminátio vultus tui: \* quóniam complacuísti in eis.
+
+Tu es ipse Rex meus et Deus meus: \* qui mandas salútes Jacob.
+
+In te inimícos nostros ventilábimus cornu: \* et in nómine tuo spernémus insurgéntes in nobis.
+
+Non enim in arcu meo sperábo: \* et gládius meus non salvábit me.

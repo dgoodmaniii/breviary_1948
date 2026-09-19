@@ -18663,3 +18663,63 @@ Tui per orbem sérvuli.
 
 Meménto, rerum Cónditor,
 Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+Testátur hoc præsens dies,
+Currens per anni círculum,
+Quod solus e sinu Patris
+Mundi salus advéneris.
+
+Hunc astra, tellus, ǽquora,
+Hunc omne, quod cælo subest,
+Salútis auctórem novæ
+Novo salútat cántico.
+
+Et nos, beáta quos sacri
+Rigávit unda sánguinis,
+Natális ob diem tui
+Hymni tribútum sólvimus.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+{RUBRIC: Sic termínantur omnes Hymni ejúsdem metri usque ad Vigíliam Epiphániæ inclusíve.}
+
+℣. Crástina die delébitur iníquitas terræ. ℟. Et regnábit super nos Salvátor mundi.
+
+**Ad Magnif. Ant.** Cum ortus fúerit \* sol de cælo, vidébitis Regem regum procedéntem a Patre, tamquam sponsum de thálamo suo.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per
+
+carnem Natívitas líberet: quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Completórium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Christus natus est nobis: \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+**Hymnus** Jesu, Redémptor ómnium. *385*
+
+#### In I Nocturno
+
+**Ant.** Dóminus dixit \* ad me: Fílius meus es tu, ego hódie génui te.
+
+#### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.

@@ -18164,3 +18164,66 @@ nit et illícita perpetrásse. Neque enim par fructus boni óperis esse debet, e
 {RUBRIC: Psalmi de Domin. 1 loco. 44}
 
 **2** Ecce véniet \* desiderátus cunctis géntibus: et replébitur glória domus Dómini, allelúja.
+
+**3** Erunt prava \* in directa, et áspera in vias planas: veni, Dómine, et noli tardáre, allelúja.
+
+**4** Dóminus véniet, \* occúrrite illi, dicéntes: Magnum princípium, et regni ejus non erit finis: Deus, fortis, dominátor, princeps pacis, allelúja, allelúja.
+
+**5** Omnípotens Sermo tuus, \* Dómine, a regálibus sédibus véniet, allelúja.
+
+#### Capitulum
+
+*1 Cor. 4, 1-2*
+
+FRATRES: Sic nos exístimet homo ut minístros Christi, et dispensatóres mysteriórum Dei. Hic jam quǽritur inter dispensatóres, ut fidélis quis inveniátur.
+
+#### Hymnus
+
+EN clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit,
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Ave, María, \* grátia plena: Dóminus tecum: benedícta tu in muliéribus, allelúja.
+
+{RUBRIC: Nisi (21 Dec.) dicénda sit Ant. Nolíte timére, vel (23 Dec., Ant. Ecce compléta. 367}
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpédiunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.
+
+### Ad Tertiam
+
+**Capit.** Fratres.
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+### Ad Sextam
+
+#### Capitulum
+
+*1 Cor. 4, 3*
+
+MIHI autem pro mínimo est, ut a vobis júdicer, aut ab humáno die:

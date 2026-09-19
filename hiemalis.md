@@ -30646,4 +30646,20 @@ DA nobis, quǽsumus, Dómine, beáti Apóstoli tui Thomæ solemnitátibus glori�
 
 #### Lectio iv
 
-THOMAS Apóstolus, qui et Dídymus, Galilǽus, post accéptum Spíritum Sanctum in multas províncias proféctus est ad prædicándum Christi Evangélium: Parthis, Medis, Persis, Hyrcánis et Bactris christiánæ fídei et vitæ præcépta trádidit. Postrémo ad Indos se cónferens, eos in christiána religióne erudívit. Qui ad extrémum, vitæ doctrinǽque sanctitáte et miraculórum magnitúdine, cum céteris ómnibus suis admiratiónem et Jesu Christi amórem commo-
+THOMAS Apóstolus, qui et Dídymus, Galilǽus, post accéptum Spíritum Sanctum in multas províncias proféctus est ad prædicándum Christi Evangélium: Parthis, Medis, Persis, Hyrcánis et Bactris christiánæ fídei et vitæ præcépta trádidit. Postrémo ad Indos se cónferens, eos in christiána religióne erudívit. Qui ad extrémum, vitæ doctrinǽque sanctitáte et miraculórum magnitúdine, cum céteris ómnibus suis admiratiónem et Jesu Christi amórem commo-vísset; illíus gentis regem, idolórum cultórem, magis ad iram accéndit: cujus senténtia condemnátus, telísque confóssus, Calamínæ apostolátus honórem martýrii coróna decorávit.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+{RUBRIC: Sermo sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 30 in Evang., post médium}
+
+#### Lectio v
+
+SCRIPTUM est: Spíritus Dómini ornávit cælos. Ornaménta enim cælórum sunt virtútes prædicántium. Quæ vidélicet ornaménta Paulus enúmerat, dicens: Álii datur per Spíritum sermo sapiéntiæ, álii sermo sciéntiæ secúndum eúmdem Spíritum, álteri fides in eódem Spíritu, álii grátia sanitátum in uno Spíritu, álii operátio virtútum, álii prophetía, álii discrétio spirítuum, álii génera linguárum, álii interpretátio sermónum. Hæc autem ómnia operátur unus atque idem Spíritus, dívidens síngulis prout vult.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+QUOT ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est: Verbo Dómini cæli firmáti sunt. Verbum enim Dómini, Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur: Et Spíritu oris ejus omnis virtus eórum. Cælórum ergo virtus de Spíritu sumpta est: quia mundi hujus potestátibus contraíre non præsúmerent, nisi eos Sancti Spíritus fortitúdo solidásset. Quales namque doctóres sanctæ Ecclésiæ ante advéntum hujus Spíritus fúerint, scimus; et

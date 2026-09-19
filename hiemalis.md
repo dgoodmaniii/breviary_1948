@@ -31930,4 +31930,42 @@ ANASTÁSIUS Persa, mónachus, Heráclio imperatóre, cum sanctam Jerosolymórum 
 
 #### Lectio ix
 
-VINCÉNTIUS, Oscæ in Hispánia citerióre natus, a prima ætáte stúdiis déditus, sacras lítteras a Valério Cæsaraugustáno epíscopo dídicit; cujus étiam partes suscépit prædicándi Evangélium, quod epíscopus, propter linguæ impediméntum, prædicatiónis offício fungi non
+VINCÉNTIUS, Oscæ in Hispánia citerióre natus, a prima ætáte stúdiis déditus, sacras lítteras a Valério Cæsaraugustáno epíscopo dídicit; cujus étiam partes suscépit prædicándi Evangélium, quod epíscopus, propter linguæ impediméntum, prædicatiónis offício fungi nonpóterat. Ea re ad Daciánum impiíssimum prǽsidem deláta, Vincéntius ab eódem Valéntiam addúcitur; et cárceres, famem, equúleum aliáque tormentórum génera perpéssus, ad martýrii corónam advolávit undécimo Kaléndas Februárii. Anastásius Persa, mónachus, Heráclio imperatóre, cum sanctam Jerosolymórum terram visitásset, ad Cæsaréam Palæstínæ pro Christi religióne víncula et vérbera constánter perpéssus est. Mox a Persis ob eámdem causam váriis cruciátibus afféctus, a rege Chósroa una cum septuagínta áliis Christiánis, secúri percútitur. Cujus relíquiæ primum Jerosólymam, deínde Romam delátæ, collocátæ sunt in monastério ad Aquas Sálvias.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Cum audiéritis, {RUBRIC: de Communi plurimórum Mártyrum 1 loco.} [60]
+
+### Ad Laudes
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+#### Oratio
+
+ADÉSTO, Dómine, supplicatiónibus nostris: ut, qui ex iniquitáte nostra reos nos esse cognóscimus, beatórum Mártyrum tuórum Vincéntii et Anastásii intercessióne liberémur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis ac S. Emerentiánæ Virg. et Mart.}
+
+---
+
+## Die 23 Januarii
+
+### S. Raymundi de Peñafort
+
+{RUBRIC: Confessoris} [94]
+
+{RUBRIC: Semiduplex} (m. t. v.)
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+#### Oratio
+
+DEUS, qui beátum Raymúndum pœniténtiæ sacraménti insígnem minístrum elegísti, et per maris undas mirabíliter traduxísti: concéde; ut ejus intercessióne dignos pœniténtiæ fructus fácere, et ad ætérnæ salútis portum perveníre valeámus. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Gaudent in cælis ánimæ Sanctórum, qui

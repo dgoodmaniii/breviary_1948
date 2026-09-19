@@ -26291,3 +26291,18 @@ FAMÍLIAM tuam, quǽsumus, Dómine, contínua pietáte custódi: ut, quæ in sol
 *Cap. 1, 1-16*
 
 PAULUS Apóstolus Jesu Christi secúndum impérium Dei Salvatóris nostri, et Christi Jesu spei nostræ: Timótheo dilécto fílio in fide. Grátia, misericórdia, et pax a Deo Patre, et Christo Jesu Dómino nostro. Sicut rogávi te ut remanéres Ephesi, cum irem in Macedóniam, ut denun-
+tiáres quibúsdam ne áliter docérent, neque inténderent fábulis, et genealógiis interminátis: quæ quæstiónes præstant magis quam ædificatiónem Dei, quæ est in fide.
+
+℟. Dómine, ne in ira tua árguas me, neque in furóre tuo corrípias me: \* Miserére mei, Dómine, quóniam infírmus sum. ℣. Timor et tremor venérunt super me, et contexérunt me ténebræ. — Miserére.
+
+#### Lectio ii
+
+FINIS autem præcépti est cáritas de corde puro, et consciéntia bona, et fide non ficta. A quibus quidam aberrántes, convérsi sunt in vanilóquium, voléntes esse legis doctóres, non intelligéntes neque quæ loquúntur, neque de quibus affírmant. Scimus autem quia bona est lex, si quis ea legítime utátur: sciens hoc quia lex justo non est pósita, sed injústis, et non súbditis, ímpiis et peccatóribus, scelerátis et contaminátis, parricídis et matricídis, homicídis, fornicáriis, masculórum concubitóribus, plagiáriis, mendácibus et perjúris, et si quid áliud sanæ doctrínæ adversátur, quæ est secúndum Evangélium glóriæ beáti Dei, quod créditum est mihi.
+
+℟. Deus, qui sedes super thronum, et júdicas æquitátem, esto refúgium páuperum in tribulatióne: \* Quia tu solus labórem et dolórem consíderas. ℣. Tibi enim derelíctus est pauper, pupíllo tu eris adjútor. — Quia.
+
+#### Lectio iii
+
+GRÁTIAS ago ei, qui me confortávit Christo Jesu Dómino nostro, quia fidélem me existimávit, ponens in ministério: qui prius blasphémus fui, et persecútor, et contumeliósus: sed misericórdiam Dei consecútus sum, quia ignórans feci in incredulitáte. Superabundávit autem grátia Dómini nostri cum fide et dilectióne, quæ est in Christo Jesu. Fidélis sermo, et omni acceptióne dignus: quod Christus Jesus venit in hunc mundum peccatóres salvos fácere, quorum primus ego sum. Sed ídeo misericórdiam consecútus sum: ut in me primo osténderet Christus Jesus omnem patiéntiam ad informatiónem eórum, qui creditúri sunt illi, in vitam ætérnam.
+
+℟. A dextris est mihi Dóminus, ne commóvear: \* Propter hoc dilatátum est cor meum, et exsultávit lingua mea. ℣. Dóminus pars hereditátis meæ,

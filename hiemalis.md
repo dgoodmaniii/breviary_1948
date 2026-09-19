@@ -19464,3 +19464,53 @@ Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
 **Ant.** Apud Dóminum misericórdia, et copiósa apud eum redémptio.
 
 **Ant.** De fructu \* ventris tui ponam super sedem tuam.
+
+#### Psalmus 131
+
+MEMÉNTO, Dómine, David, \* et omnis mansuetúdinis ejus:
+
+Sicut jurávit Dómino, \* votum vovit Deo Jacob:
+
+Si introíero in tabernáculum domus meæ, \* si ascéndero in lectum strati mei:
+
+Si dédero somnum óculis meis, \* et pálpebris meis dormitatiónem:
+
+Et réquiem tempóribus meis: donec invéniam locum Dómino, \* tabernáculum Deo Jacob.
+
+Ecce audívimus eam in Ephrata: \* invénimus eam in campis silvæ.
+
+Introíbimus in tabernáculum ejus: \* adorábimus in loco, ubi steterúnt pedes ejus.
+
+Surge, Dómine, in réquiem tuam, \* tu et arca sanctificatiónis tuæ.
+
+Sacerdótes tui induántur justítiam: \* et sancti tui exsúltent.
+
+Propter David, servum tuum, \* non avértas fáciem Christi tui.
+
+Jurávit Dóminus David veritátem, et non frustrábitur eam: \* de fructu ventris tui ponam super sedem tuam.
+
+Si custodíerint fílii tui testaméntum meum, \* et testimónia mea hæc, quæ docébo eos:
+
+Et fílii eórum usque in séculum, \* sedébunt super sedem tuam.
+
+Quóniam elégit Dóminus Sion: \* elégit eam in habitatiónem sibi.
+
+Hæc réquies mea in séculum séculi: \* hic habitábo quóniam elégi eam.
+
+Víduam ejus benedícens benedícam: \* páuperes ejus saturábo pánibus.
+
+Sacerdótes ejus índuam salutári: \* et sancti ejus exsultatióne exsultábunt.
+
+Illuc prodúcam cornu David, \* parávi lucérnam Christo meo.
+
+Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificátio mea.
+
+**Ant.** De fructu ventris tui ponam super sedem tuam.
+
+{RUBRIC: ¶ Psalmi præcedéntes cum suis Antiphónis dicúntur, per totam Octávam Nativitátis, in Vésperis cujúslibet Offícii, prǽterquam in Circumcisióne Dómini; a Capítulo autem fit de Offício præcedénti, cum Commemoratióne sequéntis, nisi hoc sit nóbilius, quo in casu a Capítulo fit de sequénti, cum Commemoratióne præcedéntis, si hæc agénda sit juxta Rúbricas, excéptis tamen II Vésperis S. Stéphani, quæ dicúntur ut infra. 412}
+
+#### Capitulum
+
+*Hebr. 1, 1-2*
+
+MULTIFÁRIAM, multísque modis olim Deus loquens pátribus in prophé-

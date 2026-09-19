@@ -20887,3 +20887,24 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 *Cap. 3, 19-21*
 
 SCIMUS autem quóniam quæcúmque lex lóquitur, iis, qui in lege sunt, lóquitur: ut omne os obstruátur, et súbditus fiat omnis mundus Deo: quia ex opéribus
+legis non justificábitur omnis caro coram illo. Per legem enim cognítio peccáti. Nunc autem sine lege justítia Dei manifestáta est: testificáta a lege et prophétis. Justítia autem Dei per fidem Jesu Christi in omnes, et super omnes, qui credunt in eum: non enim est distínctio.
+
+℟. Hódie nobis de cælo pax vera descéndit: \* Hódie per totum mundum mellíflui facti sunt cæli. ℣. Hódie illúxit nobis dies redemptiónis novæ, reparatiónis antíquæ, felicitátis ætérnæ. — Hódie per.
+
+#### Lectio ii
+
+OMNES enim peccavérunt, et egent glória Dei. Justificáti gratis per grátiam ipsíus, per redemptiónem, quæ est in Christo Jesu, quem propósuit Deus propitiatiónem per fidem in sánguine ipsíus, ad ostensiónem justítiæ suæ propter remissiónem præcedéntium delictórum in sustentatióne Dei, ad ostensiónem justítiæ ejus in hoc témpore: ut sit ipse justus, et justíficans eum, qui est ex fide Jesu Christi.
+
+℟. Quem vidístis, pastóres? dícite, annuntiáte nobis, in terris quis appáruit? \* Natum vídimus, et choros Angelórum collaudántes Dóminum. ℣. Dícite, quidnam vidístis? et annuntiáte Christi nativitátem. — Natum.
+
+#### Lectio iii
+
+UBI est ergo gloriátio tua? Exclúsa est. Per quam legem? Factórum? Non: sed per legem fídei. Arbitrámur enim justificári hóminem per fidem sine opéribus legis. An Judæórum Deus tantum? nonne et géntium? Immo et géntium: quóniam quidem unus est Deus, qui justíficat circumcisiónem ex fide, et præpútium per fidem. Legem ergo destrúimus per fidem? Absit: sed legem statúimus.
+
+℟. O magnum mystérium, et admirábile sacraméntum, ut animália vidérent Dóminum natum, jacéntem in præsépio: \* Beáta Virgo, cujus víscera meruérunt portáre Dóminum Christum. ℣. Ave, María, grátia plena: Dóminus tecum. — Beáta. Glória Patri. Beáta.
+
+### In II Nocturno
+
+#### Lectio iv
+
+SILVÉSTER Románus, patre Rufíno, a prima ætáte óperam dedit Cyríno presbýtero; cujus doctrínam et mores egrégie imitátus est. Hic, sæviénte persecutióne, in

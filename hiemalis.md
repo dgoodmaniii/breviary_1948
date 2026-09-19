@@ -34336,4 +34336,56 @@ IN vita et post mortem miráculis clarus, spíritu étiam prophetíæ non cárui
 
 #### Lectio ix
 
-ROMUÁLDUS, Ravénnæ, Sérgio patre, nóbili génere natus, adoléscens in propínquum monastérium Classénse pœniténtiæ causa secéssit; ubi ad pietátis stúdium veheméntius incénsus et beáti Apollináris apparitióne recreátus, mónachus effícitur. Jejúniis et oratiónibus assídue se exércuit, vultu tamen ádeo lætus, ut intuéntes exhiláraret. Martýrii cupiditáte flagrans, dum in Pannóniam proficíscitur, morbo corréptus, revérti cógitur. Institúti monachórum Camaldulén-
+ROMUÁLDUS, Ravénnæ, Sérgio patre, nóbili génere natus, adoléscens in propínquum monastérium Classénse pœniténtiæ causa secéssit; ubi ad pietátis stúdium veheméntius incénsus et beáti Apollináris apparitióne recreátus, mónachus effícitur. Jejúniis et oratiónibus assídue se exércuit, vultu tamen ádeo lætus, ut intuéntes exhiláraret. Martýrii cupiditáte flagrans, dum in Pannóniam proficíscitur, morbo corréptus, revérti cógitur. Institúti monachórum Camaldulén-sium auctor fuit, quos tamquam Angelos scalam cælum pertingéntem ascéndere per visum conspéxit. Dénique cum annos centum et vigínti ágeret, et centum ipsos in summa vitæ asperitáte Deo servísset, ad eum migrávit, anno salútis millésimo vigésimo séptimo, et Fabriáni in ecclésia sui órdinis honorífice cónditus est.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ecce nos relíquimus, de Comm. Abbátum 1 loco.} [107]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio** C 4
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Romuáldi Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis et, in Quadragésima, Fériæ.}
+
+## Die 8 Februarii
+
+### S. Joannis de Matha
+
+{RUBRIC: Confessóris}
+
+{RUBRIC: Duplex} (m. t. v.) [94]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+#### Oratio
+
+DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum de potestáte Saracenórum captívos cǽlitus institúere dignátus es: præsta, quǽsumus; ut, ejus suffragántibus méritis, a captivitáte córporis et ánimæ, te adjuvánte, liberémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio** Intercéssio, ut supra.
+
+{RUBRIC: Deinde, in Quadrag., Commemoratio Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+JOÁNNES de Matha, órdinis sanctíssimæ Trinitátis redemptiónis captivórum insti-

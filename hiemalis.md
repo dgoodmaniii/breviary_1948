@@ -18527,3 +18527,59 @@ JOSEPH autem vir ejus, cum esset justus, et nollet eam tradúcere, vóluit occú
 **3** Crástina die \* delébitur iníquitas terræ: et regnábit super nos Salvátor mundi.
 
 **4** Dóminus véniet, \* occúrrite illi, dicéntes: Ma-
+gnum princípium, et regni ejus non erit finis: Deus, Fortis, Dominátor, Princeps pacis, allelúja.
+
+**5** Crástina erit \* vobis salus, dicit Dóminus Deus exercítuum.
+
+#### Capitulum
+
+*Rom. 1, 1-3*
+
+PAULUS, servus Jesu Christi, vocátus Apóstolus, segregátus in Evangélium Dei, quod ante promíserat per prophétas suos in Scriptúris sanctis de Fílio suo, qui factus est ei ex sémine David secúndum carnem.
+
+#### Hymnus
+
+EN clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit,
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Crástina die delébitur iníquitas terræ. ℟. Et regnábit super nos Salvátor mundi.
+
+**Ad Bened. Ant.** Oriétur \* sicut sol Salvátor mundi: et descéndet in úterum Vírginis, sicut imber super gramen, allelúja.
+
+#### Oratio
+
+DEUS, qui nos redemptiónis nostræ ánnua exspectatióne lætíficas: præsta; ut Unigénitum tuum, quem Redemptórem læti suscípimus, veniéntem quoque júdicem secúri videámus, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
+
+{RUBRIC: Et dícitur per Horas diei.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica; sed ad Primam, loco Psalmi 117 Confitémini, dícitur Ps. 53 Deus, in nómine tuo. 55 Quod observátur in ómnibus Offíciis in quibus séquens pónitur Rubríca: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+{RUBRIC: Ad absolutiónem Capítuli Léctio brevis Per quem accépimus, ut infra ad Nonam.}
+
+### Ad Tertiam
+
+**Capit.** Paulus, {RUBRIC: ut supra.}
+
+℣. br. Hódie sciétis \* Quia véniet Dóminus. Hódie. ℣. Et mane vidébi-

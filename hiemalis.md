@@ -26954,3 +26954,63 @@ HIC ítaque paterfamílias ad excoléndam víneam suam, mane, hora tértia, sext
 #### Lectio ix
 
 AD erudiéndam ergo Dóminus plebem suam, quasi ad excoléndam víneam suam, nullo témpore déstitit operários míttere: quia et prius per Patres, et póstmodum per legis Doctóres et Prophétas, ad extrémum vero per Apóstolos, dum plebis suæ mores excóluit, quasi per operários in víneæ cultúra laborávit: quamvis in quólibet módulo vel mensúra, quisquis cum fide recta bonæ prædicátor actiónis éxstitit, hujus víneæ operárius fuit. Operátor ergo mane, hora tértia, sexta, et nona, antíquus ille et Hebráicus pópulus designátur: qui in eléctis suis ab ipso mundi
+exórdio, dum recta fide Deum stúduit cólere, quasi non déstitit in víneæ cultúra laboráre. Ad undécimam vero gentíles vocántur, quibus et dícitur: Quid hic statis tota die otiósi?
+
+℟. Ubi est Abel frater tuus? dixit Dóminus ad Cain. Néscio, Dómine, numquid custos fratris mei sum ego? Et dixit ad eum: Quid fecísti? \* Ecce vox sánguinis fratris tui Abel clamat ad me de terra. ℣. Maledíctus eris super terram, quæ apéruit os suum, et suscépit sánguinem fratris tui de manu tua. — Ecce. Glória Patri. Ecce.
+
+{RUBRIC: Et non dícitur Hymnus Te Deum in Offício de Témpore, usque ad Sábbatum post Cineres inclusíve.}
+
+### Ad Laudes
+
+**Ant. 1** Miserére † \* mei, Deus, et a delícto meo munda me: quia tibi soli peccávi.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 48}
+
+**2** Confitébor \* tibi, quóniam exaudísti me.
+
+**3** Deus, Deus meus, † \* ad te de luce vígilo, quia factus es adjútor meus.
+
+**4** Benedíctus es † \* in firmaménto cæli, et laudábilis in sǽcula, Deus noster.
+
+**5** Laudáte † \* Dóminum de cælis.
+
+**Capitulum** *1 Cor. 9, 24*
+
+FRATRES: Nescítis quod ii, qui in stádio currunt, omnes quidem currunt, sed unus áccipit bravíum? Sic cúrrite ut comprehendátis.
+
+#### Hymnus
+
+ÆTÉRNE rerum Cónditor,
+Noctem diémque qui regis,
+Et témporum das témpora,
+Ut álleves fastídium.
+
+Noctúrna lux viántibus
+A nocte noctem ségregans,
+Præco diéi jam sonat,
+Jubárque solis évocat.
+
+Hoc excitátus Lúcifer
+Solvit polum calígine:
+Hoc omnis errónum cohors
+Viam nocéndi déserit.
+
+Hoc nauta vires cólligit,
+Pontíque mitéscunt freta:
+Hoc, ipsa petra Ecclésiæ,
+Canénte, culpam díluit.
+
+Surgámus ergo strénue:
+Gallus jacéntes éxcitat,
+Et somnoléntos íncrepat,
+Gallus negántes árguit.
+
+Gallo canénte, spes redit,
+Ægris salus refúnditur,
+Mucro latrónis cónditur,
+Lapsis fides revértitur.
+
+Jesu, labántes réspice,
+Et nos vidéndo córrige:
+Si réspicis, labes cadunt,
+Fletúque culpa sólvitur.

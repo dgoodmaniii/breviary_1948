@@ -9235,3 +9235,66 @@ IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc es
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
 Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed
+ líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 23}
+
+#### Per Annum
+
+**Capitulum** *Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: Feria IV Cinerum et in Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 23}
+
+---
+
+### Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prǽmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Deus meus.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria IV post Dominicam I:} **Ant.** Ecce, véniet.
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Annuntiáte.
+
+### Psalmus 58, i
+
+ERIPE me de inimícis meis, Deus meus: \* et ab insurgéntibus in me líbera me.
+
+Eripe me de operántibus iniquitátem: \* et de viris sánguinum salva me.
+
+Quia ecce cepérunt ánimam meam: \* irruérunt in me fortes.
+
+Neque iníquitas mea, neque peccátum meum, Dómine: \* sine iniquitáte cucúrri, et diréxi.
+
+Exsúrge in occúrsum meum, et vide: \* et tu, Dómine, Deus virtútum, Deus Israël,
+
+Inténde ad visitándas omnes gentes: \* non misereáris ómnibus, qui operántur iniquitátem.

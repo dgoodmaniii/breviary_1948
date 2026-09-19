@@ -18359,3 +18359,38 @@ ATTÉNDITE ad me, pópule meus, et tribus mea, me audíte: quia lex a me éxiet,
 #### Lectio iii
 
 AUDÍTE me, qui scitis justum, pópulus meus, lex mea in corde eórum: nolíte timére oppróbrium hóminum, et blasphémias eórum ne metuátis. Sicut enim vestiméntum, sic cómedet eos vermis: et sicut lanam, sic devorábit eos tínea: Salus autem
+mea in sempitérnum erit, et justítia mea in generatiónes generatiónum.
+
+℟. Intuémini, quantus sit iste, qui ingréditur ad salvándas gentes: ipse est Rex justítiæ, \* Cujus generátio non habet finem. ℣. Præcúrsor pro nobis ingréditur, secúndum órdinem Melchísedech Póntifex factus in ætérnum. — Cujus. Glória Patri. Cujus.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Ponam in Sion \* salútem, et in Jerúsalem glóriam meam, allelúja.
+
+{RUBRIC: Nisi (21 Dec.) dicénda sit Ant. Nolíte timére, vel (23 Dec.) Ant. Ecce compléta. 367}
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpédiunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.
+
+**Ad Magnif. Ant.** O. {RUBRIC: 355}
+
+---
+
+### Feria Quinta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 64, 1-11*
+
+UTINAM dirúmperes cælos, et descénderes: a fácie tua montes defluérent. Sicut exústio ignis tabéscerent, aquæ ardérent igni, ut notum fíeret nomen tuum inimícis tuis: a fácie tua gentes turbaréntur. Cum féceris mirabília, non sustinébimus: descendísti, et a fácie tua montes defluxérunt. A século non audiérunt, neque áuribus percepérunt: óculus non vidit, Deus absque te, quæ præparásti exspectántibus te.
+
+℟. Cánite tuba in Sion, vocáte gentes, annuntiáte pópulis, et dícite: \* Ecce Deus Salvátor noster advéniet. ℣. Annuntiáte, et audítum fácite: loquímini, et clamáte. — Ecce.
+
+#### Lectio ii
+
+OCCURRÍSTI lætánti et faciénti justítiam: in viis tuis recordabúntur tui: ecce tu irátus es, et peccávimus: in ipsis fúimus semper, et salvábimur. Et facti sumus ut immúndus omnes nos, et quasi pannus menstruátæ univérsæ justítiæ nostræ: et cecídimus quasi fólium univérsi, et iniquitátes nostræ quasi ventus abstulérunt nos. Non est qui ínvocet nomen tuum: qui consúrgat, et téneat te: abscondísti fáciem tuam a nobis, et allisísti nos in manu iniquitátis nostræ.
+
+℟. Non auferétur sceptrum de Juda, et dux de

@@ -18583,3 +18583,36 @@ DEUS, qui nos redemptiónis nostræ ánnua exspectatióne lætíficas: præsta; 
 **Capit.** Paulus, {RUBRIC: ut supra.}
 
 ℣. br. Hódie sciétis \* Quia véniet Dóminus. Hódie. ℣. Et mane vidébi-
+tis glóriam ejus. Quia. Glória Patri. Hódie. ℣. Constántes estóte. ℟. Vidébitis auxílium Dómini super vos.
+
+#### Oratio
+
+DEUS, qui nos redemptiónis nostræ ánnua exspectatióne lætíficas: præsta; ut Unigénitum tuum, quem Redemptórem læti suscípimus, veniéntem quoque júdicem secúri videámus, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
+
+### Ad Sextam
+
+**Ant.** Crástina die \* delébitur iníquitas terræ: et regnábit super nos Salvátor mundi.
+
+#### Capitulum
+
+*Rom. 1, 4*
+
+QUI prædestinátus est Fílius Dei in virtúte secúndum spíritum sanctificatiónis, ex resurrectióne mortuórum Jesu Christi Dómini nostri.
+
+℟. br. Crástina die \* Delébitur iníquitas terræ. Crástina. ℣. Et regnábit super nos Salvátor mundi. Delébitur. Glória Patri. Crástina. ℣. Crástina erit vobis salus. ℟. Dicit Dóminus Deus exercítuum.
+
+### Ad Nonam
+
+**Ant.** Crástina erit \* vobis salus, dicit Dóminus Deus exercítuum.
+
+#### Capitulum
+
+*Rom. 1, 5-6*
+
+PER quem accépimus grátiam, et apostolátum ad obediéndum fídei in ómnibus géntibus pro nómine ejus, in quibus estis et vos vocáti Jesu Christi, Dómini nostri.
+
+℟. br. Crástina \* Erit vobis salus. Crástina. ℣. Dicit Dóminus Deus exercítuum. Erit. Glória Patri. Crástina. ℣. Crástina die delébitur iníquitas terræ. ℟. Et regnábit super nos Salvátor mundi.
+
+---
+
+{RUBRIC: ¶ Si Dominica a die 25 ad 28 Decémbris inclusíve occúrrerit, ipsa die de ea nihil fit, sed ejus Offícium post diem 28 transfértur, ut infra suo loco notátur.}

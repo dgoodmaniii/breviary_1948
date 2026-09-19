@@ -19707,13 +19707,14 @@ Vitæ repéllens tǽdium.
 
 Solúta sunt jam víncula
 Tui sacráti córporis:
-Nos solve vinclis séculi
+Nos solve vinclis sǽculi,
 Dono supérni Núminis.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Sepeliérunt Stéphanum viri timoráti. ℟. Et fecérunt planctum magnum super eum.
 
@@ -22225,3 +22226,58 @@ UT quid enim Christus, cum adhuc infírmi essémus, secúndum tempus pro ímpiis
 CHRISTUS caput Mártyrum prior passus est pro nobis, relínquens vobis exémplum, ut sequámini vestígia ejus. Cujus passiónis vestígia prosecútus beatíssimus Stéphanus, confiténdo Christum lapidátus a Judǽis, corónam méruit tamquam suo sibi nómine pósitam. Stéphanus enim Græce, Latíne coróna appellátur. Jam corónæ nomen habébat, et ídeo palmam martýrii suo nómine præferébat. Qui cum lapidarétur, non solum non exspectábat de persecutóribus reportáre vindíctam, sed eis pótius a Deo véniam postulábat.
 
 Te Deum laudámus.
+
+{RUBRIC: In Officiis vero novem Lectiónum, omísso Glória Patri in II Responsório, dícitur}
+
+#### Lectio iii
+
+*Rom. 5, 10-12*
+
+SI enim, cum inimíci essémus, reconciliáti sumus Deo per mortem Fílii ejus: multo magis reconciliáti, salvi érimus in vita ipsíus. Non solum autem: sed et gloriámur in Deo per Dóminum nostrum Jesum Christum, per quem nunc reconciliatiónem accépimus. Proptérea sicut per unum hóminem peccátum in hunc mundum intrávit, et per peccátum mors, et ita in omnes hómines mors pertránsiit, in quo omnes peccavérunt.
+
+℟. Benedíctus qui venit in nómine Dómini, Deus Dóminus, et illúxit nobis: \* Allelúja, allelúja. ℣. Hæc dies quam fecit Dóminus, exsultémus et lætémur in ea. — Allelúja, allelúja. Glória. Allelúja, allelúja.
+
+### Ad Laudes
+
+#### Capitulum
+
+*Act. 6, 8*
+
+STÉPHANUS autem plenus grátia et fortitúdine, faciébat prodígia et signa magna in pópulo.
+
+#### Hymnus
+
+INVÍCTE Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tǽdium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vinclis sǽculi,
+Dono supérni Núminis.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Sepeliérunt Stéphanum viri timoráti. ℟. Et fecérunt planctum magnum super eum.
+
+**Ad Bened. Ant.** Stéphanus autem \* plenus grátia et fortitúdine, faciébat signa magna in pópulo.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, qui primítias Mártyrum in beáti Levítæ Stéphani sánguine dedicásti: tríbue, quǽsumus; ut pro nobis intercéssor exsístat, qui pro suis étiam persecutóribus exorávit Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum.
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. Glória et honóre \* Coronásti eum, Dómine, Glória et. ℣. Et constituísti eum super ópera má-

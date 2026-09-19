@@ -16888,3 +16888,24 @@ SUPER hunc ígitur flórem, qui de trunco et radíce Jesse per Maríam Vírginem
 *Cap. 11, 2-10*
 
 IN illo témpore: Cum audísset Joánnes in vínculis ópera Christi, mittens duos de discípulis
+suis, ait illi: Tu es qui ventúrus es, an álium exspectámus? Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homília 6 in Evang. post init.}
+
+VISIS tot signis tantísque virtútibus, non scandalizári quisque pótuit, sed admirári. Sed infidélium mens grave in illo scándalum pértulit, cum eum post tot miácula moriéntem vidit. Unde et Paulus dicit: Nos autem prædicámus Christum crucifíxum, Judǽis quidem scándalum, géntibus autem stultítiam. Stultum quippe homínibus visum est, ut pro homínibus auctor vitæ morerétur: et inde contra eum homo scándalum sumpsit, unde ei ámplius débitor fíeri débuit. Nam tanto Deus ab homínibus dígnius honorándus est, quanto pro homínibus et indígna suscépit.
+
+℟. Egrediétur Dóminus de Samaría ad portam, quæ réspicit ad Oriéntem: et véniet in Béthlehem, ámbulans super aquas redemptiónis Judæ: \* Tunc salvus erit omnis homo: quia ecce véniet. ℣. Et præparábitur in misericórdia sólium ejus, et sedébit super illud in veritáte. — Tunc.
+
+#### Lectio viii
+
+QUID est ergo dícere: Beátus qui non fúerit scandalizátus in me; nisi apérta voce abjectiónem mortis suæ humilitatémque signáre? Ac si paténter dicat: Mira quidem fácio, sed abjécta pérpeti non dedígnor. Quia ergo moriéndo te súbsequor, cavéndum valde est homínibus, ne in me mortem despíciant, qui signa venerántur.
+
+℟. Festína, ne tardáveris, Dómine: \* Et líbera pópulum tuum. ℣. Veni, Dómine, et noli tardáre: reláxa facínora plebi tuæ. — Et.
+
+#### Lectio ix
+
+SED dimíssis Joánnis discípulis, quid de eódem Joánne turbis dicat, audiámus. Quid exístis in desértum vidére? Arúndinem vento agitátam? Quod vidélicet non asseréndo, sed negándo íntulit. Arúndinem quippe mox ut aura contígerit, in partem álteram infléctit. Et quid per arúndinem, nisi carnális ánimus designátur? Qui mox ut favóre vel detractióne tángitur, statim in partem quámlibet inclinátur.
+
+℟. Ecce Dóminus véniet cum splendóre descéndens, et virtus ejus cum

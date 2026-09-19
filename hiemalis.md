@@ -21428,3 +21428,68 @@ tus. Dénique ipsum esse, qui lege signétur, in eúmdem modum ab Ángelo repet�
 #### Lectio ix
 
 SOLUS enim per ómnia ex natis de fémina sanctus Dóminus Jesus, qui terrénæ contágia corruptélæ, immaculáti partus novitáte non sénserit, et cæléstí majestáte depúlerit. Nam si líttéram sequámur: quómodo sanctus omnis másculus, cum multos sceleratíssimos fuísse non láteat? Numquid sanctus Achab? numquid sancti pseudo-prophétæ, quos ad Elíæ preces ultor cæléstis injúriæ ignis absúmpsit? Sed ille sanctus, quem in figúra futúri mystérii pia legis divínæ præscrípta signábant; eo quod solus sanctæ Ecclésiæ vírginis ad generándos pópulos Dei, immaculátæ fœ-
+cunditátis aperíret genitále secrétum.
+
+{RUBRIC: Deinde dícitur} Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est: et procédens homo sine sémine, largítus est nobis suam Deitátem.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 44}
+
+**2** Quando natus es \* ineffabíliter ex Vírgine, tunc implétæ sunt Scriptúræ: sicut plúvia in vellus descendísti, ut salvum fáceres genus humánum: te laudámus, Deus noster.
+
+**3** Rubum, quem víderat Móyses \* incombústum, conservátam agnóvimus tuam laudábilem virginitátem: Dei Génitrix, intercéde pro nobis.
+
+**4** Germinávit radix Jesse, \* orta est stella ex Jacob: Virgo péperit Salvatórem: te laudámus, Deus noster.
+
+**5** Ecce María génuit \* nobis Salvatórem, quem Joánnes videns exclamávit, dicens: Ecce Agnus Dei, ecce qui tollit peccáta mundi, allelúja.
+
+#### Capitulum
+
+*Tit. 2, 11-12*
+
+APPÁRUIT grátia Dei Salvatóris nostri ómnibus homínibus, erúdiens nos, ut, abnegántes impietátem, et sæculária desidéria, sóbrie, et juste, et pie vivámus in hoc século.
+
+#### Hymnus
+
+A SOLIS ortus cárdine
+Ad usque terræ límitem,
+Christum canámus Príncipem,
+Natum María Vírgine.
+
+Beátus auctor séculi
+Servíle corpus índuit:
+Ut carne carnem líberans,
+Ne pérderet quos cóndidit.
+
+Castæ Paréntis víscera
+Cæléstis intrat grátia:
+Venter Puéllæ bájulat
+Secréta, quæ non nóverat.
+
+Domus pudíci péctoris
+Templum repénte fit Dei:
+Intácta nésciens virum,
+Concépit alvo Fílium.
+
+Enítitur puérpera,
+Quem Gábriel prædíxerat,
+Quem ventre Matris géstiens,
+Baptísta clausum sénserat.
+
+Fœno jacére pértulit:
+Præsépe non abhórruit:
+Et lacte módico pastus est,
+Per quem nec ales ésurit.
+
+Gaudet chorus cæléstium,
+Et Ángeli canunt Deo;
+Palámque fit pastóribus
+Pastor, Creátor ómnium.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,

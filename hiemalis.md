@@ -12246,3 +12246,60 @@ Super pópulum tuum malignavérunt consílium: \* et cogitavérunt advérsus san
 Dixérunt: Veníte, et disperdámus eos de gente: \* et non memorétur nomen Israël ultra.
 
 Quóniam cogitavérunt unanímiter: \* simul ad-
+vérsum te testaméntum disposuérunt, \* tabernácula Idumæórum et Ismahelítæ:
+
+Moab, et Agaréni, Gebal, et Ammon, et Amalec: \* alienígenæ cum habitántibus Tyrum.
+
+Etenim Assur venit cum illis: \* facti sunt in adjutórium fíliis Lot.
+
+Fac illis sicut Mádian, et Sísaræ: \* sicut Jabin in torrénte Cisson.
+
+Disperiérunt in Endor: \* facti sunt ut stercus terræ.
+
+Pone príncipes eórum sicut Oreb, et Zeb, \* et Zébee, et Sálmana:
+
+Omnes príncipes eórum: \* qui dixérunt: Hereditáte possideámus Sanctuárium Dei.
+
+Deus meus, pone illos ut rotam: \* et sicut stípulam ante fáciem venti.
+
+Sicut ignis, qui combúrit silvam: \* et sicut flamma combúrens montes:
+
+Ita persequéris illos in tempestáte tua: \* et in ira tua turbábis eos.
+
+Imple fácies eórum ignomínia: \* et quærent nomen tuum, Dómine.
+
+Erubéscant, et conturbéntur in séculum séculi: \* et confundántur et péreant.
+
+Et cognóscant quia nomen tibi Dóminus: \* tu solus Altíssimus in omni terra.
+
+**Ant.** Ne táceas, Deus, quóniam inimíci tui extulérunt caput.
+
+#### In feriali Officio per Annum et in Festis:
+
+℣. Cognóscant quia nomen tibi Dóminus. ℟. Tu solus Altíssimus super omnem terram.
+
+#### In feriali Officio Adventus:
+
+℣. Emítte Agnum, Dómine, Dominatórem terræ. ℟. De Petra desérti ad montem fíliæ Sion.
+
+#### In Vig. Nativitatis Domini:
+
+℣. Hódie sciétis, quia véniet Dóminus. ℟. Et mane vidébitis glóriam ejus.
+
+#### In Officio novem Lectionum
+
+**Absolutio.** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absolutio.** Ipsíus píetas et.
+
+##### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis sine Homilia:
+
+**Bened.** 1 Deus Pater. 2 Christus perpétuæ. 3 Ignem sui amóris.

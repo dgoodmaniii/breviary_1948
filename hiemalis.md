@@ -34388,4 +34388,10 @@ DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum
 
 #### Lectio iv
 
-JOÁNNES de Matha, órdinis sanctíssimæ Trinitátis redemptiónis captivórum insti-
+JOÁNNES de Matha, órdinis sanctíssimæ Trinitátis redemptiónis captivórum insti-tútor, Falcóne in Província natus est paréntibus pietáte et nobilitáte conspícuis. Studiórum causa Aquas Séxtias, mox Parísios proféctus, confectóque theológiæ currículo, magistérii láuream adéptus, doctrínæ et virtútum splendóre enítuit. Quibus motus Parisiénsis antístes, ad sacrum presbyterátus órdinem præ humilitáte reluctántem promóvit, eo consílio, ut in ea civitáte cómmorans, sapiéntia et móribus studiósæ juventúti prælucéret. Cum autem in sacéllo ejúsdem epíscopi, ipso cum áliis astánte, primum Deo Sacrum offérret, cælésti favóre méruit recreári. Nam Angelus cándida et fulgénti veste indútus, cui in péctore crux rúbei et cærúlei colóris assúta erat, bráchiis cancellátis et super duos captívos ad látera pósitos, Christiánum unum, álterum Maurum, exténsis appáruit. Qua visióne in éxtasim raptus, intelléxit prótinus vir Dei, se ad rediméndos ab infidélibus captívos destinári.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+QUO vero matúrius in re tanti moménti procéderet, in solitúdinem secéssit, ibíque divíno nutu factum est, ut Felícem Valésium in ipsa erémo jam multis annis degéntem repérerit: cum quo ínita societáte, se per triénnium in oratióne, et contemplatióne, omniúmque virtútum stúdio exércuit. Cóntigit autem, ut, dum secum de rebus divínis prope fontem colloqueréntur, cervus ad eos accésserit, crucem inter córnua gerens rúbei et cærúlei colóris. Cumque Felix ob rei novitátem mirarétur, narrávit ei Joánnes visiónem in prima Missa hábitam; et exínde ferventius oratióni incumbéntes, ter in somnis admóniti, Romam proficísci decrevérunt, ut a summo Pontífice novi órdinis pro rediméndis captívis institutiónem impetrárent. Eléctus fúerat eo témpore Innocéntius tértius; qui, illis benígne accéptis, dum secum de re propósita delíberat, in festo sanctæ Agnétis secúndo, Lateráni intra Missárum solémnia ad sacræ Hóstiæ

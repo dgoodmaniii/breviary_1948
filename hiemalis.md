@@ -14041,3 +14041,82 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 ℣. Divínum auxílium.
 
 Pater noster, Ave María et Credo.
+
+---
+
+## Sabbato
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+#### In Officio feriali Adventus
+
+##### Infra hebdomadam I et II:
+
+**Invit.** Regem ventúrum Dóminum, \* Veníte, adorémus.
+
+##### Infra hebdomadam III et IV:
+
+**Invit.** Prope est jam Dóminus: \* Veníte, adorémus.
+
+##### In Vig. Nativitatis Domini:
+
+**Invit.** Hódie sciétis, quia véniet Dóminus: \* Et mane vidébitis glóriam ejus.
+
+#### Hymnus
+
+VERBUM supérnum, pródiens
+E Patris ætérni sinu,
+Qui natus orbi súbvenis,
+Labénte cursu témporis:
+
+Illúmina nunc péctora,
+Tuóque amóre cóncrema;
+Ut cor cadúca déserens
+Cæli volúptas ímpleat.
+
+Ut, cum tribúnal Júdicis
+Damnábit igni nóxios,
+Et vox amíca débitum
+Vocábit ad cælum pios;
+
+Non esca flammárum nigros
+Volvámur inter túrbines,
+Vultu Dei sed cómpotes
+Cæli fruámur gáudiis.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Séclum per omne glória. Amen.
+
+#### Per Annum
+
+{RUBRIC: (In Officio Dom. anticipatæ)}
+
+**Invit.** Pópulus Dómini, et oves páscuæ ejus: \* Veníte, adorémus. *Ps. 94* Veníte.
+
+#### Hymnus
+
+SUMMÆ Parens cleméntiæ,
+Mundi regis qui máchinam,
+Uníus et substántiæ,
+Trinúsque persónis Deus:
+
+Nostros pius cum cánticis
+Fletus benígne súscipe:
+Ut corde puro sórdium
+Te perfruámur lárgius.
+
+Lumbos jecúrque mórbidum
+Flammis adúre cóngruis,
+Accíncti ut artus éxcubent,
+Luxu remóto péssimo.
+
+Quicúmque ut horas nóctium
+Nunc concinéndo rúmpimus,

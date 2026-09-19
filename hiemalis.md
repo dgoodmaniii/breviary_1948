@@ -32967,3 +32967,29 @@ DEUS, qui nos ánnua beátæ Agnétis Vírginis et Mártyris tuæ solemnitáte l
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Francísce, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+#### Oratio
+
+DEUS, qui ad animárum salútem beátum Francíscum Confessórem tuum atque Pontíficem ómnibus ómnia factum esse voluísti: concéde propítius; ut caritátis tuæ dulcédine perfúsi, ejus dirigéntibus mónitis ac suffragántibus méritis, ætérna gáudia consequámur. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Hic vir despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui in tuæ caritátis, ut supra.} 822
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam.} [87]
+
+### In II Nocturno
+
+#### Lectio iv
+
+FRANCISCUS in óppido Salésio, unde famíliæ cognómen, piis et nobílibus paréntibus natus, a téneris annis futúræ sanctitátis índicia prǽbuit, morum innocéntia et gravitáte. Adoléscens liberálibus disciplínis erudítus, mox philosophíæ ac theologíæ Parísiis óperam dedit; et, ne quid sibi deésset ad ánimi cultúram, juris utriúsque láuream summa cum laude Patávii obtínuit. In sacra æde Laurentína perpétuæ virginitátis votum, quo pridem Parísiis se obstrínxerat, innovávit; a cujus virtútis propósito nullis umquam dæmónum fráudibus, nullis sénsuum illécebris pótuit dimovéri.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+RECUSÁTA in Sabáudiæ senátu amplíssima dignitáte, clericáli milítiæ nomen dedit. Tum sacerdótio initiátus et Genevénsis ecclésiæ præpositúram adéptus, ejus múneris partes ádeo perfécte explévit, ut eum Granérius epíscopus vindicándis ab hǽresi Calviniána Chabalicénsibus aliísque Genévæ finítimis pópulis, divíni verbi præcónem destinárit. Quam expeditiónem álacri ánimo suscípiens, aspérrima quæque perpéssus est, sæpe ab hæréticis conquisítus ad necem, variísque calúmniis et insídiis vexátus. Sed inter tot discrímina et agónes, insuperábilis ejus constántia semper enítuit; Deíque ope protéctus, septuagínta

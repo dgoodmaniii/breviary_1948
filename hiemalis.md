@@ -30138,3 +30138,40 @@ num in lucem édidit invídiæ et nequítiæ príncipem; unigénitus Fílius tuu
 #### Lectio ix
 
 NOS autem pópulus Dei, gens sancta, congregátio acceptábilis, fílii colúmbæ, sóboles grátiæ, in hac Vírginis celebritáte puris ánimis, impollútis lábiis, multísonis linguis hymnos suavídicos extollámus. Illústre hoc festum, príncipem solemnitátem Angelis lætam et hóminum prædicatióne digníssimam, próuti par est, venerántes, illud Ave Gabriélis cum reveréntia et gáudio sancto conclamémus. Ave, delícium Patris, per quam ad últimos terræ fines Dei cognítio manávit. Ave, Fílii domicílium, de qua ille carne indútus prodívit. Ave, Sancti Spíritus habitáculum ineffábile. Ave, sán-
+ctior Chérubim; ave, gloriósior Séraphim; ave, cælo látior; ave, sole splendídior; ave, luna micántior; ave, múltiplex astrórum nitor; ave, levis nubes, quæ cæléstem plúviam ínspérgis. Ave, aura sancta, quæ spíritum malítiæ a terra dissipásti. Ave, nóbile præcónium Prophetárum; ave, Apostolórum audítus per totum orbem sonus; ave, Mártyrum excéllens conféssio; ave, Patriarchárum laudatíssima prædicátio; ave, Sanctórum summum ornaméntum. Ave, causa salútis ómnium mortálium; ave, regína pacis conciliátrix; ave, matrum splendor immaculátus. Ave, mediátrix ómnium, qui sub cælo sunt; ave, totíus orbis reparátio; ave, grátia plena; Dóminus tecum, qui ante te, et ex te, et nobíscum. Ipsi laus cum Patre et sanctíssimo et vivífico Spíritu, nunc et semper, et in infiníta sǽcula sæculórum. Amen.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: Ad Laudes fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis diéi infra Octávam et Fériæ.}
+
+---
+
+## Die 13 Decembris
+
+### S. Luciæ
+
+{RUBRIC: Virginis et Mártyris}
+
+{RUBRIC: Duplex} [111]
+
+##### In I Vesperis
+
+{RUBRIC: Antiphónæ, Capítulum et Hymnus de Laudibus} [REF: p. 735]
+
+{RUBRIC: Psalmi ut in Communi Festórum B. M. V.}
+
+℣. Spécie tua.
+
+**Ad Magnif. Ant.** In tua patiéntia \* possedísti ánimam tuam, Lúcia, sponsa Christi: odísti quæ in mundo sunt, et corúscas cum Angelis: sánguine próprio inimícum vicísti.
+
+###### Oratio
+
+EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ Lúciæ Vírginis et Mártyris tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis diéi infra Octávam:}
+
+**Ant.** Hódie egréssa est virga de radíce Jesse: hódie sine ulla peccáti labe concépta est María: hódie contrítum est ab ea caput serpéntis antíqui, allelúja.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.

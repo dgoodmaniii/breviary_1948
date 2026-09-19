@@ -21256,3 +21256,42 @@ Sicut lætántium ómnium \* habitátio est in te.
 #### Psalmus 95
 
 CANTÁTE Dómino cánticum novum: \* cantáte Dómino, omnis terra
+.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+**Ant.** Exsultábunt ómnia ligna silvárum ante fáciem Dómini, quóniam venit.
+
+℣. Speciósus forma præ fíliis hóminum. ℟. Diffúsa est grátia in lábiis tuis.
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 7 de Nativitate Domini}
+
+#### Lectio iv
+
+FESTIVITÁTIS hodiérnæ, dilectíssimi, verus venerátor est, et pius cultor, qui nec de Incarnatióne Dómini áliquid falsum, nec de Deitáte áliquid sentit indígnum. Parit enim perículi malum est, si illi aut natúræ nostræ véritas, aut Patérnæ glóriæ negátur æquálitas. Cum ergo ad intelligéndum sacraméntum nativitátis Christi, qua de Matre vírgine est ortus, accédimus, abigátur procul terrenárum calígo ratiónum, et ab illumináta fídei óculo mundánæ sapiéntiæ fumus abscédat.
+
+℟. Congratulámini mihi, omnes qui dilígitis Dóminum: \* Quia cum essem párvula, plácui Altíssimo, et de meis víscéribus génui Deum et hóminem. ℣. Beátam me dicent omnes ge-

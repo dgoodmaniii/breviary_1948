@@ -33438,7 +33438,7 @@ Tribus honor unus. Amen.
 
 #### Oratio
 
-OMNÍPOTENS sempitérne Deus, majestátem tuam súpplices exorámus: ut, sicut unigénitus Fílius tuus hodiérna die cum nostræ carnis substántia templo est præsentátus; ita nos fácias purificátis tibi méntibus præsentári. Per eúmdem Dóminum.
+OMNÍPOTENS sempitérne Deus, majestátem tuam súpplices exorámus: ut, sicut unigénitus Fílius tuus hodiérna die cum nostræ carnis substántia in templo est præsentátus; ita nos fácias purificátis tibi méntibus præsentári. Per eúmdem Dóminum.
 
 {RUBRIC: Et fit Com. præcedéntis:}
 
@@ -33583,4 +33583,42 @@ Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
 
-℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Cum indúcerent \* púerum Jesum paréntes ejus, accépit eum Símeon in ulnas suas, et benedíxit Deum, dicens: Nunc dimíttis servum tuum in pace.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, majestátem tuam súpplices exorámus: ut, sicut unigénitus Fílius tuus hodiérna die cum nostræ carnis substántia in templo est præsentátus; ita nos fácias purificátis tibi méntibus præsentári. Per eúmdem Dóminum.
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+### Ad Sextam
+
+{RUBRIC: Capitulum} *Malach. 3, 1-2*
+
+ECCE véniet, dicit Dóminus exercítuum: et quis póterit cogitáre diem advéntus ejus, et quis stabit ad vidéndum eum? Ipse enim quasi ignis conflans, et quasi herba fullónum.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+### Ad Nonam
+
+{RUBRIC: Capitulum} *Malach. 3, 4*
+
+ET placébit Dómino sacrifícium Juda et Jerúsalem sicut dies sǽculi et sicut anni antíqui, dicit Dóminus omnípotens.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit. ℣. Diffúsa, ut supra.
+
+### In II Vesperis
+
+{RUBRIC: Antiphonæ et Capitulum de Laudibus.} [REF: p. 844]
+
+{RUBRIC: Hymnus Ave, maris stella ut in I Vésperis.} [REF: p. 839]
+
+℣. Respónsum accépit Símeon a Spíritu Sancto. ℟. Non visúrum se mortem, nisi vidéret Christum Dómini.
+
+**Ad Magnif. Ant.** Hódie \* beáta Virgo María púerum Jesum præsentávit in templo, et Símeon replétus Spíritu Sancto accépit eum

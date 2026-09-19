@@ -28832,3 +28832,42 @@ NIHIL autem proficiénte Rufína, quæ, prǽter dolósa verba, illam quotídie v
 #### Lectio ix
 
 BIBIÁNA virgo Romána, nóbili génere nata, christiána fide nobílior fuit. Ejus enim paréntes, Flaviánus et Dafrósa, sub Juliáno Apóstata martýrium
+subiérunt. Tum Bibiána ejúsque soror Demétria, bonis ómnibus exspoliátæ et ab Aproniáno, Urbis prǽtóre, blandítiis et minis tentátæ, ut a recta fide declinárent, prætóris impietátem constantíssime detestátæ sunt. Quo in agóne Demétria, ob óculos Bibiánæ repénte córruens, óbiit in Dómino. Bibiána autem Rufínæ mulíeri vaférrimæ seducénda tráditur; sed, ejus superátis insídiis, prætóris astus delúsit. Quare hujus jussu plumbátis cæsa est, donec ánimam efflávit. Ejus sacrum corpus, bíduo cánibus objéctum, illǽsum tamen divínitus servátum, Joánnes présbyter sepelívit noctu juxta sepúlcrum soróris et matris ad palátium Liciniánum, ubi nunc exstat ecclésia Deo, sanctæ Bibiánæ nómine, dicáta.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est regnum cælórum thesáuro abscóndito, ut in Communi non Virginum cum ℟℟. tamen de Communi Virginum ibi notátis.} [REF: p. 134]
+
+### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+DEUS, ómnium largítor bonórum, qui in fámula tua Bibiána cum virginitátis flore martýrii palmam conjunxísti: mentes nostras ejus intercessióne tibi caritáte conjúnge; ut, amótis perículis, prǽmia consequámur ætérna. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis et Fériæ.}
+
+---
+
+### Die 3 Decembris
+
+#### S. Francisci Xaverii
+
+{RUBRIC: Confessoris [94]}
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Si hoc de Festo in I Vésperis facta fúerit tantum Commemoratio, m. t. v.}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEUS, qui Indiárum gentes beáti Francísci prædicatióne et miráculis Ecclésiæ tuæ aggregáre voluísti: concéde propítius; ut, cujus gloriósa

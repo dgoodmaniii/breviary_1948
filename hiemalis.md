@@ -30098,3 +30098,22 @@ QUÓNIAM quæ ad cultum pértinent, íntimo plane vínculo cum ejúsdem objécto
 #### Lectio v
 
 NEQUE mítius cum iis agéndum esse existimárunt, qui ad labefactándam de immaculáta Vírginis Conceptióne doctrínam, excogitáto inter prímum atque álterum Conceptiónis instans et moméntum discrímine, asserébant, celebrári quidem Conceptiónem, sed non pro primo instánti atque moménto. Ipsi namque prædecessóres nostri suárum pártium esse duxérunt, et beatíssimæ Vírginis Conceptiónis festum, et Conceptiónem pro primo instánti tamquam verum cultus objéctum omni stúdio tuéri ac propugnáre. Hinc decretória plane verba, quibus Alexánder séptimus decéssor noster sincéram Ecclésiæ mentem declarávit, ínquiens: Sane
+vetus est Christifidélium erga ejus beatíssimam Matrem Vírginem Maríam pietas sentiéntium, ejus ánimam in primo instánti creatiónis atque infusiónis in corpus fuísse speciáli Dei grátia et privilégio, intúitu meritórum Jesu Christi ejus Fílii humáni géneris Redemptóris, a mácula peccáti originális præservátam immúnem, atque in hoc sensu ejus Conceptiónis festivitátem solémni ritu coléntium et celebrántium.
+
+℟. Nihil inquinátum in eam incúrrit: \* Candor est lucis ætérnæ et spéculum sine mácula. ℣. Est enim hæc speciósior sole, et luci comparáta invenítur púrior. — Candor.
+
+#### Lectio vi
+
+ATQUE illud in primis solémne quoque fuit iísdem decessóribus nostris, doctrínam de immaculáta Dei Matris Conceptióne sartam tectámque omni cura, stúdio et contentióne tuéri. Etenim non solum nullátenus passi sunt, ipsam doctrínam quovis modo a quópiam notári atque tradúci, verum étiam longe ultérius progréssi, perspícuis declaratiónibus iteratísque vícibus edixérunt: Doctrínam qua immaculátam Vírginis Conceptiónem profitémur, esse, suóque mérito habéri cum ecclesiástico cultu plane cónsonam, eámque véterem ac prope universálem, et ejúsmodi, quam Romána Ecclésia sibi fovéndam tuendámque suscéperit, atque omníno dignam, quæ in sacra ipsa litúrgia solemnioribúsque précibus usurparétur. Neque his conténti, ut ipsa de immaculáto Vírginis Concéptu doctrína invioláta persísteret, opiniónem huic doctrínæ advérsam, sive públice, sive privátim, deféndi posse severíssime prohibuére, eámque multíplici véluti vúlnere conféctam esse voluérunt.
+
+℟. Signum magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, \* Et in cápite ejus coróna stellárum duódecim. ℣. Induit eam Dóminus vestiméntis salútis, induménto justítiæ, et quasi sponsam ornávit eam monílibus suis. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 1, 26-28*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad

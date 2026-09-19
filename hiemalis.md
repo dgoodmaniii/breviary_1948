@@ -22596,3 +22596,50 @@ Amen.
 #### Oratio
 
 DEUS, cujus hodiérna die præcónium Innocéntes Mártyres non loquéndo, sed moriéndo conféssi
+ sunt: ómnia in nobis vitiórum mala mortífica; ut fidem tuam, quam lingua nostra lóquitur, étiam móribus vita fateátur. Per Dóminum.
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde. Et. Glória Patri. Lætámini. ℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Apoc. 14, 4*
+
+HI sunt, qui cum muliéribus non sunt coinquináti: vírgines enim sunt. Hi sequúntur Agnum quocúmque íerit.
+
+℟. br. Exsúltent justi \* In conspéctu Dei. Exsúltent. ℣. Et delecténtur in lætítia. In. Glória Patri. Exsúltent. ℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Apoc. 14, 4-5*
+
+HI empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est invéntum mendácium: sine mácula enim sunt ante thronum Dei.
+
+℟. br. Justi autem \* In perpétuum vivent. Justi. ℣. Et apud Dóminum est merces eórum. In. Glória Patri. Justi. ℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+{RUBRIC: Vésperæ de sequénti, Commemorátio S. Telésphori Papæ et Mártyris.}
+
+## Die 5 Januarii
+
+# In Vigilia Epiphaniæ
+
+{RUBRIC: II classis Semiduplex}
+
+{RUBRIC: ¶ Officium hujus Vigíliæ locum tenet Officii Domínicæ quæ vel occúrrit a die 1 ad 5 Januárii, vel a supervenienti Festo aut Domínica infra Octávam Epiphaníæ impedítur; proíndeque gaudet ómnibus privilégiis Domínicæ, tam in concúrsu ad I Vésperas, quam in occúrsu: et Commemoratiónem servat in I Vésperis, ad Matutínum per ix Lectiónem de Homilía, et ad Laudes, étiam in Offício Ssmi Nóminis Jesu occurrénti, juxta própriam Rubricam.}
+
+{RUBRIC: Omnia dicúntur, ut in Octáva Nativitátis [REF: p. 446], præter sequéntia:}
+
+### In I Vesperis
+
+#### Capitulum
+
+*Gal. 4, 1-2*
+
+FRATRES: Quanto témpore heres párvulus est, nihil differt a servo, cum sit dóminus ómnium: sed sub tutóribus et actó-

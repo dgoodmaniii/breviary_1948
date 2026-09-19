@@ -34281,3 +34281,45 @@ DEUS, qui beátum Titum Confessórem tuum atque Pontíficem apostólicis virtút
 #### Oratio
 
 INDULGÉNTIAM nobis, quǽsumus, Dómine, beáta Doróthea Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis, et tuæ professióne virtútis. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis et, in Quadragésima, Fériæ.}
+
+## Die 7 Februarii
+
+### S. Romualdi
+
+{RUBRIC: Abbátis}
+
+{RUBRIC: Duplex} (m. t. v.) [94]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio** C 4
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Romuáldi Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+℣. Justum dedúxit.
+
+#### Oratio
+
+DEUS, qui beátum Titum Confessórem tuum atque Pontíficem apostólicis virtútibus decorásti: ejus méritis et intercessióne concéde; ut juste et pie vivéntes in hoc sǽculo, ad cæléstem pátriam perveníre mereámur. Per Dóminum.
+
+{RUBRIC: Deinde, in Quadrag., Commemoratio Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+ROMUÁLDUS, Ravénnæ, Sérgio patre, nóbili génere natus, adoléscens in propínquum monastérium Classénse pœniténtiæ causa secéssit; ubi religiósi hóminis sermóne ad pietátis stúdium veheméntius incénsus, viso étiam semel et íterum per noctem in ecclésia beáto Appollinári, quod Dei servus illi futúrum promíserat, mónachus effícitur. Mox ad Marínum, vitæ sanctitáte ac severióre discíplina in fínibus Venetórum eo témpore célebrem, se cóntulit, ut ad arctam et sublímem perfectiónis viam eo magístro ac duce uterétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+MULTIS sátanæ insídiis et hóminum invídia oppugnátus, tanto humílior se assídue jejúniis et oratiónibus exercébat, et

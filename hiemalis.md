@@ -31637,7 +31637,7 @@ Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos
 
 Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
 
-Qui jurat próximo suo, et non décipit, \* qui pe-cúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
 
 Qui facit hæc: \* non movébitur in ætérnum.
 
@@ -34010,4 +34010,44 @@ Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procelláru
 
 Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
 
-**Ant.** Nisi diligénter perféceris corpus meum a car-
+**Ant.** Nisi diligénter perféceris corpus meum a car-nifícibus attrectári, non potest ánima mea in paradísum Dómini cum palma intráre martýrii.
+
+**Ant.** Vidísti, Dómine, \* agónem meum, quómodo pugnávi in stádio; sed, quia nólui obedíre mandátis príncipum, jussa sum in mamílla torquéri.
+
+###### Psalmus 14
+
+DÓMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc: \* non movébitur in ætérnum.
+
+**Ant.** Vidísti, Dómine, agónem meum, quómodo pugnávi in stádio; sed, quia nólui obedíre mandátis príncipum, jussa sum in mamílla torquéri.
+
+**Ant.** Propter fidem castitátis \* jussa sum suspéndi in equúleo: \* ádjuva me, Dómine, Deus meus, in tortúra mamillárum meárum.
+
+###### Psalmus 15
+
+CONSÉRVA me, Dómine, quóniam sperávi in te. \* Dixi Dómino: Deus meus es tu, quóniam bonórum meórum non eges.
+
+Sanctis, qui sunt in terra ejus, \* mirificávit omnes voluntátes meas in eis.
+
+Multiplicátæ sunt infirmitátes eórum: \* póstea acceleravérunt.
+
+Non congregábo conventícula eórum de sanguínibus, \* nec memor ero nóminum eórum per lábia mea.
+
+Dóminus pars hereditátis meæ, et cálicis mei: \* tu es, qui restítues hereditátem meam mihi.
+
+Funes cecidérunt mihi in præcláris: \* étenim heréditas mea præclára est mihi.
+
+Benedícam Dóminum, qui tríbuit mihi intelléctum: \* ínsuper et usque ad noctem increpuérunt me renes mei.
+
+Providébam Dóminum in conspéctu meo semper: \* quóniam a dextris est mihi, ne commóvear.

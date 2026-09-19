@@ -22395,3 +22395,67 @@ Te Deum laudámus.
 NON ergo regnet peccátum in vestro mortáli córpore, ut obediátis concupiscéntiis ejus. Sed neque exhibeátis membra vestra arma iniquitátis peccáto: sed exhibéte vos Deo tamquam ex mórtuis vivéntes: et membra vestra arma justítiæ Deo. Peccátum enim vobis non dominábitur: non enim sub lege estis, sed sub grátia. Quid ergo? peccábimus, quóniam non sumus sub lege, sed sub grátia? Absit. Nescítis quóniam cui exhibétis vos servos ad obediéndum, servi estis ejus, cui obedítis, sive peccáti ad mortem, sive obeditiónis ad justítiam? Grátias autem Deo, quod fuístis servi peccáti, obedístis autem ex corde in eam formam doctrínæ, in quam tráditi estis. Liberáti autem a peccáto, servi facti estis justítiæ.
 
 ℟. Benedícta et venerábilis es, Virgo María, quæ sine tactu pudóris invénta es mater Salvatóris: \* Ja-
+cébat in præsépio, et fulgébat in cælo. ℣. Dómine, audívi audítum tuum, et tímui: considerávi ópera tua, et expávi: in médio duórum animálium. — Jacébat. Glória. Jacébat.
+
+### Ad Laudes
+
+#### Capitulum
+
+*Eccli. 15, 1-2*
+
+QUI timet Deum, fáciet bona: et qui contínens est justítiæ, apprehéndet illam, et obviábit illi quasi mater honorificáta.
+
+#### Hymnus
+
+EXSÚLTET orbis gáudiis,
+Cælum resúltet láudibus:
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices,
+Et vera mundi lúmina,
+Votis precámur córdium:
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter
+In fine Christus sǽculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Hic est discípulus ille, qui testimónium pérhibet de his. ℟. Et scimus quia verum est testimónium ejus.
+
+**Ad Bened. Ant.** Iste est Joánnes, \* qui supra pectus Dómini in cœna recúbuit: beátus Apóstolus, cui reveláta sunt secréta cæléstia.
+
+#### Oratio
+
+ECCLÉSIAM tuam, Dómine, benígnus illústra: ut, beáti Joánnis Apóstoli tui et Evangelístæ illumináta doctrínis, ad dona pervéniat sempitérna. Per Dóminum.
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. In omnem terram \* Exívit sonus eórum. In omnem. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In omnem. ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Eccli. 15, 3*
+
+CIBÁVIT illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potá-

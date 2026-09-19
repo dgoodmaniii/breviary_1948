@@ -22036,3 +22036,62 @@ NEQUE enim ad instar priórum meus iste Jesus nomen vácuum aut ináne portat: n
 {RUBRIC: Sermo 2 de Circumcisióne}
 
 MÉRITO sane, dum circumcíditur puer, qui natus est nobis, Salvátor vocátur; quod vidélicet ex hoc jam cœpit operári salútem nostram, immaculátum illum pro nobis sánguinem fundens. Neque enim jam quǽrere est Christiánis, cur volúerit Dóminus Christus circumcídi. Propter hoc síquidem circumcísus est, propter quod natus, propter quod passus. Nihil horum propter se, sed ómnia propter eléctos. Nec in peccáto génitus, nec a peccáto circum-
+císus, nec mórtuus est pro peccáto suo; magis autem propter delícta nostra. Quod vocátum est, inquit, ab Angelo, priúsquam in útero conciperétur. Vocátum plane, non impósitum: nempe hoc ei nomen est ab ætérno. A natúra própria habet, ut sit Salvátor: innátum est ei nomen hoc, non índitum ab humána vel angélica creatúra.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ}
+
+**1** Oleum effúsum \* nomen tuum, ídeo adolescéntulæ dilexérunt te.
+
+{RUBRIC: Psalmi de Dominica, I loco, [REF: p. 44]}
+
+**2** Scitóte, \* quia Dóminus ipse est Deus, cujus nomen in ætérnum.
+
+**3** Sitívit \* ánima mea ad nomen sanctum tuum, Dómine.
+
+**4** Benedíctum \* nomen glóriæ tuæ sanctum, et laudábile, et superexaltátum in sǽcula.
+
+**5** Júvenes et vírgines, \* senes cum juvénibus, laudáte nomen Dómini: quia exaltátum est nomen ejus solíus.
+
+#### Capitulum
+
+*Philipp. 2, 8-10*
+
+FRATRES: Christus humiliávit semetípsum, factus obédiens usque ad mortem, mortem autem crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen, quod est super omne nomen, ut in nómine Jesu omne genu flectátur.
+
+#### Hymnus
+
+JESU, decus angélicum,
+In aure dulce cánticum,
+In ore mel miríficum,
+In corde néctar cælicum.
+
+Qui te gustant, esúriunt;
+Qui bibunt, adhuc sítiunt;
+Desideráre nésciunt,
+Nisi Jesum, quem díligunt.
+
+O Jesu mi dulcíssime,
+Spes suspirántis ánimæ!
+Te quǽrunt piæ lácrimæ,
+Te clamor mentis íntimæ.
+
+Mane nobíscum, Dómine,
+Et nos illústra lúmine:
+Pulsa mentis calígine,
+Mundum reple dulcédine.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Jesu, flos Matris Vírginis,
+Amor nostræ dulcédinis,
+Tibi laus, honor nóminis,
+Regnum beatitúdinis.
+Amen.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+**Ad Bened. Ant.** Dedit se, \* ut liberáret pópulum, et acquíreret sibi nomen ætérnum, allelúja.

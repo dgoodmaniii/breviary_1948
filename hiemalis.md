@@ -33106,3 +33106,30 @@ EX ejus tortóribus nonnúlli, miráculi novitáte corrépti, Dei aspiránte gr�
 #### Lectio vi
 
 HISCE prodígiis, ejúsque in primis constántia, ácriter permótus judex, caput Vírgini amputári præcépit: qua perémpta, auditáque de cælo voce, qua ad Súperos evocabátur, Urbs tota contrémuit, ac multi idolórum cultóres ad Christi fidem convérsi sunt. Sacrum Martínæ corpus, sedénte sancto Urbáno primo, martýrio afféctum, Urbáno octávo Pontífice máximo, in pervetústa ejúsdem ecclésia, ad Mamertínum cárcerem,
+
+in Capitolíni clivi radícibus, cum sanctórum Mártyrum Concórdii, Epiphánii et Sociórum corpóribus repértum, eódem loco in meliórem formam redácto, atque decéntius ornáto, magno pópuli concúrsu, totíus Urbis lætítia, solémni ritu ac pompa repósitum est.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+MARTINA virgo Romána, illústri génere nata, téneris adhuc annis orbáta paréntibus, ingéntes divítias lárgiter in páuperes distríbuit. Sub Alexándro príncipe jussa inánibus diis sacrificáre, immáne facínus detestátur. Quare divérsis tormentórum genéribus cruciáta, demum in amphitheátro damnátur ad béstias; a quibus illǽsa divínitus evádens, in ardéntem rogum injécta, incólumis páriter servátur. Nonnúlli ex ejus tortóribus, capti novitáte miráculi, Christi fidem amplecténtes, palmam martýrii adépti sunt. Précibus Martínæ multa Deus prodígia patrávit, quibus judex ácriter permótus et Vírginis constántiam demirátus, caput eídem amputári præcépit, sedénte sancto Urbáno Papa primo. Martínæ corpus, Urbáno octávo Pontífice máximo, in vetústa ejúsdem ecclésia ad Mamertínum cárcerem, cum sanctórum Mártyrum Concórdii, Epiphánii et Sociórum corpóribus repértum, eódem loco, decéntius ornáto, totíus Urbis lætítia solémniter repósitum fuit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Símile erit regnum cælórum, {RUBRIC: de Communi Virginum 1 loco.} [122]
+
+### Ad Laudes
+
+{RUBRIC: Capit.} *2 Cor. 10, 17-18*
+
+FRATRES: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+#### Hymnus
+
+TU natále solum prótege, tu bonæ
+Da pacis réquiem Christíadum plagis;
+Armórum strépitus, et fera prǽlia
+In fines age Thrácios.

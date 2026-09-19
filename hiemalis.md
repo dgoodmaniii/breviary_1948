@@ -26056,3 +26056,31 @@ UNDE bene per Paulum dícitur: Vanitáti enim subjécta est creatúra non volens
 HIC ítaque elécti moléstia vincti sunt, quia adhuc corruptiónis suæ pœna deprimúntur: sed cum corruptíbili carne exúimur, quasi ab his, quibus nunc astríngimur, moléstiæ vínculis relaxámur. Præsentári namque jam Deo cúpimus, sed adhuc mortális córporis obligatióne præpedímur. Jure ergo vincti dícimur, quia adhuc incéssum nostri desidérii ad Deum líberum non habémus. Unde bene Paulus, ætérna desíderans, sed tamen adhuc corruptiónis suæ sárcinam portans, vinctus clamat: Cúpio dissólvi, et esse cum Christo. Dissólvi enim non quǽreret, nisi se proculdúbio vinctum vidéret.
 
 ℟. Dómini est terra, et plenitúdo ejus: \* Orbis terrárum, et univérsi qui hábitant in eo. ℣. Ipse super mária fundávit eam, et super flúmina præparávit illam. — Orbis. Glória Patri. Orbis.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 8, 23-27*
+
+IN illo témpore: Ascendénte Jesu in navículam, secúti sunt eum discípuli ejus: et ecce motus magnus factus est in mari, ita ut navícula operirétur flúctibus: ipse vero dormiébat. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 1 Comment. in cap. 8 Matthæi}
+
+QUINTUM signum fecit, quando ascéndens navem de Caphárnaum, ventis imperávit et mari. Sextum, quando in regióne Gerasenórum dedit potestátem dæmónibus in porcos. Séptimum, quando ingrédiens civitátem suam, paralýticum secúndum curávit in léctulo. Primus enim paralýticus est puer centuriónis.
+
+℟. Ad te, Dómine, levávi ánimam meam: \* Deus meus, in te confído, non erubéscam. ℣. Custódi ánimam meam, et éripe me. — Deus.
+
+#### Lectio viii
+
+IPSE vero dormiébat: et accessérunt ad eum, et suscitavérunt eum, dicéntes: Dómine, salva nos. Hujus signi typum in Jona légimus, quando céteris periclitántibus, ipse secúrus est, et dormit, et suscitátur; et império ac sacraménto passiónis suæ líberat suscitántes. Tunc surgens imperávit ventis et mari. Ex hoc loco intellígimus quod omnes creatúræ séntiant Creatórem. Quas enim increpávit, et quibus imperávit, séntiunt imperántem: non erróre hæreticórum qui ómnia putant animántia, sed majestáte Condítoris, quæ apud nos insensibília, illi sensibília sunt.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus: et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+#### Lectio ix
+
+PORRO hómines miráti sunt, dicéntes: Qualis est hic, quia venti et mare obédiunt ei? Non discípuli, sed nautæ, et céteri, qui in navi erant, mirabántur. Sin autem quis contentióse volúerit, eos, qui mirabántur, fuísse discípulos: respondémus, recte hómines appellátos, qui necdum

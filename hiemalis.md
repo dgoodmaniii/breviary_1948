@@ -26172,3 +26172,24 @@ INDÚITE vos ergo sicut elécti Dei, sancti et dilécti, víscera misericórdiæ
 #### Lectio ii
 
 VERBUM Christi hábitet in vobis abundánter, in omni sapiéntia, docén-
+tes, et commonéntes vosmetípsos, psalmis, hymnis, et cánticis spirituálibus, in grátia cantántes in córdibus vestris Deo. Omne, quodcúmque fácitis in verbo aut in ópere, ómnia in nómine Dómini Jesu Christi, grátias agéntes Deo et Patri per ipsum. Mulíeres, súbditæ estóte viris, sicut opórtet, in Dómino. Viri, dilígite uxóres vestras, et nolíte amári esse ad illas. Fílii, obedíte paréntibus per ómnia: hoc enim plácitum est in Dómino. Patres, nolíte ad indignatiónem provocáre fílios vestros, ut non pusíllo ánimo fiant.
+
+℟. Parátum cor meum, Deus, parátum cor meum: \* Cantábo, et psalmum dicam Dómino. ℣. Exsúrge, glória mea, exsúrge, psaltérium et cíthara, exsúrgam dilúculo. — Cantábo.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Cantábo.}
+
+#### Lectio iii
+
+SERVI, obedíte per ómnia dóminis carnálibus, non ad óculum serviéntes, quasi homínibus placéntes, sed in simplicitáte cordis, timéntes Deum. Quodcúmque fácitis, ex ánimo operámini sicut Dómino, et non homínibus: sciéntes quod a Dómino accipiétis retributiónem hereditátis. Dómino Christo servíte. Qui enim injúriam facit, recípiet id, quod iníque gessit: et non est personárum accéptio apud Deum. Dómini, quod justum est et æquum, servis præstáte: sciéntes quod et vos Dóminum habétis in cælo. Oratióni instáte, vigilántes in ea in gratiárum actióne.
+
+℟. Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea. ℣. Lætábor, et exsultábo in te, psallam nómini tuo, Altíssime. — Deus. Glória Patri. Deus.
+
+### Feria Quinta
+
+### Incipit Epistola prima beati Pauli Apostoli ad Thessalonicenses
+
+#### Lectio i
+
+*Cap. 1, 1-10*
+
+PAULUS, et Silvánus, et Timótheus Ecclésiæ Thessalonicénsium in Deo Patre, et Dómino Jesu Christo. Grátia vobis et pax. Grátias ágimus Deo semper pro ómnibus vobis, memóriam vestri faciéntes in oratiónibus nostris sine intermissióne, mémores óperis fídei ve-

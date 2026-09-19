@@ -33489,3 +33489,19 @@ CUMQUE explétí fúerint dies purificatiónis suæ, pro fílio, sive pro fília
 #### Lectio iv
 
 SIC olim prædíctum est: Mater Sion dicit: Homo et homo factus est in ea; et ipse fundávit eam Altíssimus. O omnipoténtia nascéntis! o magnificéntia de cælo ad terram descendéntis! Adhuc in útero portabátur, et ex útero matris a Joánne Baptísta salutabátur. In templo præsentabátur, et a Simeóne sene famóso, annóso, probáto, coronáto agnoscebátur. Tunc cognóvit, tunc adorávit,
+
+tunc dixit: Nunc, Dómine, dimíttis servum tuum in pace, quia vidérunt óculi mei salutáre tuum.
+
+℟. Símeon justus et timorátus exspectábat redemptiónem Israël, \* Et Spíritus Sanctus erat in eo. ℣. Respónsum accépit Símeon a Spíritu Sancto, non visúrum se mortem, nisi vidéret Christum Dómini. — Et.
+
+#### Lectio v
+
+DIFFEREBÁTUR exíre de sæculo, ut vidéret natum, per quem cónditum est sæculum. Agnóvit Infántem senex, factus est in Púero puer. Innovátus in ætáte, qui plenus erat pietáte. Símeon senex ferébat Christum infántem, Christus regébat Simeónis senectútem. Dictum ei fúerat a Dómino, quod non gustáret mortem, nisi vidéret Christum Dómini natum. Natus est Christus, et implétum est desidérium senis in mundi ipsíus senectúte. Ipse ad senem hóminem venit, qui mundum inveterátum invénit.
+
+℟. Respónsum accépit Símeon a Spíritu Sancto, non visúrum se mortem, nisi vidéret Christum Dómini: \* Et benedíxit Deum, et dixit: Nunc dimíttis servum tuum in pace, quia vidérunt óculi mei salutáre tuum, Dómine. ℣. Dum indúcerent púerum Jesum paréntes ejus, ut fácerent secúndum consuetúdinem legis pro eo, ipse accépit eum in ulnas suas. — Et.
+
+#### Lectio vi
+
+IN isto quidem sǽculo diu esse nolébat, et Christum in hoc sǽculo vidére cupiébat, cantans cum prophéta et dicens: Osténde nobis, Dómine, misericórdiam tuam, et salutáre tuum da nobis. Dénique, ut noverítis ita esse istíus lætítiam, conclúsit dicens: Nunc dimíttis servum tuum in pace: quia vidérunt óculi mei salutáre tuum. Prophétæ cecinérunt Conditórem cæli et terræ in terra cum homínibus futúrum; Angelus nuntiávit Creatórem carnis et spíritus in carne ventúrum; salutávit Joánnes ex útero in útero Salvatórem; Símeon senex Deum agnóvit infántem.
+
+℟. Cum indúcerent púerum Jesum paréntes ejus in templum, ut fácerent secúndum consuetúdinem legis pro eo, accépit eum Símeon in ulnas suas, et benedíxit Deum, dicens: \* Nunc dimíttis, Dómine, servum tuum in pace. ℣. Suscípiens Símeon

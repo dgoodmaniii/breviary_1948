@@ -9508,3 +9508,66 @@ Si custodíerint fílii tui testaméntum meum, \* et testimónia mea hæc, quæ 
 Et fílii eórum usque in séculum, \* sedébunt super sedem tuam.
 
 Quóniam elégit Dóminus Sion: \* elégit eam in habitatiónem sibi.
+
+Hæc réquies mea in séculum séculi: \* hic habitábo quóniam elégi eam.
+
+Víduam ejus benedícens benedícam: \* páuperes ejus saturábo pánibus.
+
+Sacerdótes ejus índuam salutári: \* et sancti ejus exsultatióne exsultábunt.
+
+Illuc prodúcam cornu David, \* parávi lucérnam Christo meo.
+
+Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificátio mea.
+
+**Ant.** Elégit Dóminus Sion in habitatiónem sibi.
+
+#### In Officio feriali Adventus
+
+**Capitulum** *Gen. 49, 10*
+
+NON auferétur sceptrum de Juda, et dux de fémore ejus, donec véniat qui mitténdus est: et ipse erit exspectátio géntium.
+
+#### Hymnus
+
+CREATOR alme síderum,
+Ætérna lux credéntium,
+Jesu, Redémptor ómnium,
+Inténde votis súpplicum.
+
+Qui dæmonis ne fráudibus
+Períret orbis, ímpetu
+Amóris actus, lánguidi
+Mundi medéla factus es.
+
+Commúne qui mundi nefas
+Ut expiáres, ad Crucem
+E Vírginis sacrário
+Intácta prodis víctima.
+
+Cujus potéstas glóriæ,
+Noménque cum primum sonat,
+Et Cælites et ínferi
+Treménte curvántur genu.
+
+Te deprecámur última
+Magnum diéi Júdicem,
+Armis supérnæ grátiæ
+Defénde nos ab hóstibus.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula.
+Amen.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+{RUBRIC: Antiphona ad Magnificat ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicuntur sequentes}
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsquequo? ℟. Et deprecábilis esto super servos tuos. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Sacerdó-

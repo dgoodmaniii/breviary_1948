@@ -10217,3 +10217,53 @@ Et semen servórum ejus possidébit eam, \* et qui díligunt nomen ejus, habitá
 ℣. Deus, in adjutórium.
 
 **Ant.** Jubiláte \* in conspéctu regis Dómini.
+
+### Psalmus 97
+
+CANTATE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Jubiláte in conspéctu regis Dómini.
+
+**Ant.** Dómine, \* † refúgium factus es nobis. ‡
+
+### Psalmus 89
+
+DOMINE, † refúgium factus es nobis: \* ‡ a generatióne in generatiónem.
+
+Priúsquam montes fíerent, aut formarétur terra et orbis: \* a século et usque in séculum tu es, Deus.
+
+Ne avértas hóminem in humilitátem: \* et dixísti: Convertímini, fílii hóminum.
+
+Quóniam mille anni ante óculos tuos, \* tamquam dies hestérna, quæ prætériit.
+
+Et custódia in nocte, \* quæ pro níhilo habéntur, eórum anni erunt.
+
+Mane sicut herba tránseat, mane flóreat, et tránseat: \* véspere décidat, indúret et aréscat.
+
+Quia defécimus in ira tua, \* et in furóre tuo turbáti sumus.
+
+Posuísti iniquitátes nostras in conspéctu tuo: \* séculum nostrum in illuminatióne vultus tui.
+
+Quóniam omnes dies nostri defecérunt: \* et in ira tua defécimus.
+
+Anni nostri sicut aránea meditabúntur: \* dies annórum nostrórum in ipsis, septuagínta anni.
+
+Si autem in potentátibus octogínta anni: \* et ámplius eórum, labor et dolor.

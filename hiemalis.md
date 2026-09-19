@@ -14830,3 +14830,61 @@ Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquit�
 Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
 
 Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** A timóre inimíci éripe, Dómine, ánimam meam.
+
+**Ant.** In servis suis.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:}
+
+**Ant.** Ego Dóminus prope feci justítiam meam, non elongábitur, et salus mea non morábitur.
+
+**Ant.** Exspectétur.
+
+#### Canticum Moysis
+
+*Deut. 32, 1-43*
+
+AUDÍTE, cæli, quæ loquor: \* áudiat terra verba oris mei.
+
+Concréscat ut plúvia doctrína mea, \* fluat ut ros elóquium meum,
+
+Quasi imber super herbam, et quasi stillæ super grámina. \* Quia nomen Dómini invocábo:
+
+Date magnificéntiam Deo nostro. \* Dei perfécta sunt ópera, et omnes viæ ejus judícia:
+
+Deus fidélis, et absque ulla iniquitáte, justus et rectus. \* Peccavérunt ei, et non fílii ejus in sórdibus:
+
+Generátio prava atque pervérsa. \* Hǽccine réddis Dómino, pópule stulte et insípiens?
+
+Numquid non ipse est pater tuus, \* qui posséedit te, et fecit, et creávit te?
+
+Meménto diérum antiquórum, \* cógita generatiónes síngulas:
+
+Intérroga patrem tuum, et annuntiábit tibi: \* majóres tuos, et dicent tibi.
+
+Quando dividébat Altíssimus gentes: \* quando separábat fílios Adam,
+
+Constítuit términos populórum \* juxta númerum filiórum Israël.
+
+Pars autem Dómini, pópulus ejus: \* Jacob funículus hereditátis ejus.
+
+Invénit eum in terra desérta, \* in loco horróris, et vastæ solitúdinis:
+
+Circumdúxit eum, et dócuit: \* et custodívit quasi pupíllam óculi sui.
+
+Sicut áquila próvocans ad volándum pullos suos, \* et super eos vólitans,

@@ -10540,3 +10540,51 @@ Iniquitátem meditátus est in cubíli suo: \* ástitit omni viæ non bonæ, mal
 Dómine, in cælo misericórdia tua: \* et véritas tua usque ad nubes.
 
 Justítia tua sicut montes Dei: \* judícia tua abýssus multa.
+
+Hómines, et juménta salvábis, Dómine: \* quemádmodum multiplicásti misericórdiam tuam, Deus.
+
+Fílii autem hóminum, \* in tégmine alárum tuárum sperábunt.
+
+Inebriabúntur ab ubertáte domus tuæ: \* et torrénte voluptátis tuæ potábis eos.
+
+Quóniam apud te est fons vitæ: \* et in lúmine tuo vidébimus lumen.
+
+Præténde misericórdiam tuam sciéntibus te, \* et justítiam tuam his, qui recto sunt corde.
+
+Non véniat mihi pes supérbiæ: \* et manus peccatóris non móveat me.
+
+Ibi cecidérunt qui operántur iniquitátem: \* expúlsi sunt, nec potuérunt stare.
+
+**Ant.** Multiplicásti, Deus, misericórdiam tuam.
+
+**Ant.** Fortitúdo mea.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** De Sion véniet, qui regnatúrus est Dóminus, Emmánuel magnum nomen ejus.
+
+**Ant.** Ecce Deus meus.
+
+#### Canticum Moysis
+
+*Exodi 15, 1-19*
+
+CANTEMUS Dómino: glorióse enim magnificátus est, \* equum et ascensórem dejécit in mare.
+
+Fortitúdo mea, et laus mea Dóminus, \* et factus est mihi in salútem:
+
+Iste Deus meus, et glorificábo eum: \* Deus patris mei, et exaltábo eum.
+
+Dóminus quasi vir pugnátor, Omnípotens nomen ejus. \* Currus Pharaónis et exércitum ejus projécit in mare.
+
+Elécti príncipes ejus submérsi sunt in Mari Rubro: \* abýssi operuérunt eos, descendérunt in profúndum quasi lapis.
+
+Déxtera tua, Dómine, magnificáta est in fortitúdine: déxtera tua, Dómine, percússit inimícum. \* Et in multitúdine glóriæ tuæ deposuísti adversários tuos:
+
+Misísti iram tuam, quæ devorávit eos sicut stípulam. \* Et in spíritu furóris tui congregátæ sunt aquæ:
+
+Stetit unda fluens, \* congregátæ sunt abýssi in médio mari.
+
+Dixit inimícus: Pérsequar et comprehéndam, \* dívidam spólia, implébitur ánima mea:
+
+Evaginábo gládium meum, \* interfíciet eos manus mea.
+
+Flavit spíritus tuus, et opéruit eos mare: \* submérsi sunt quasi plumbum in aquis vehemméntibus.

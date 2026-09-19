@@ -6656,3 +6656,51 @@ Firmaméntum est Dóminus timéntibus eum: \* et testaméntum ipsíus ut manifes
 ### Psalmus 24, iii
 
 OCULI mei semper ad Dóminum: \* quóniam ipse evéllet de láqueo pedes meos.
+
+Réspice in me, et miserére mei: \* quia únicus et pauper sum ego.
+
+Tribulatiónes cordis mei multiplicátæ sunt: \* de necessitátibus meis érue me.
+
+Vide humilitátem meam, et labórem meum: \* et dimítte univérsa delícta mea.
+
+Réspice inimícos meos quóniam multiplicáti sunt, \* et ódio iníquo odérunt me.
+
+Custódi ánimam meam, et érue me: \* non erubéscam quóniam sperávi in te.
+
+Innocéntes et recti adhæsérunt mihi: \* quia sustínui te.
+
+Líbera, Deus, Israël, \* ex ómnibus tribulatiónibus suis.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjúngitur seq. Ps. 95, qui in Laudibus locum non habuit.}
+
+### Psalmus 95
+
+CANTATE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+{RUBRIC: Secus vero, tribus Psalmis explétis, statim dícitur Ant.}
+
+**Per Annum: Ant.** Deus meus, in te confído, non erubéscam.

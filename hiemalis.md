@@ -27962,3 +27962,46 @@ Nunc et per omne sǽculum. Amen.
 #### Oratio
 
 PRECES nostras, quǽsumus, Dómine, cleménter exáudi: atque, a pec-
+catórum vínculis absolútos, ab omni nos adversitáte custódi. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Iter faciénte \* Jesu, dum appropinquáret Jéricho, cæcus clamábat ad eum, ut lumen recípere mererétur.
+
+{RUBRIC: Psalmi 92 Dóminus regnávit et 99 Jubiláte 54, deínde 118 Beáti immaculáti et Retríbue, ut in Psaltério 55. Ad absolutiónem vero Capítuli Lectio brevis Dóminus autem, ut item in Psaltério. 60}
+
+### Ad Tertiam
+
+**Ant.** Transeúnte \* Dómino, clamábat cæcus ad eum: Miserére mei, Fili David.
+
+{RUBRIC: Capitulum Fratres, ut supra.} [REF: p. 656]
+
+℟. br. Inclína cor meum, Deus, \* In testimónia tua. Inclína. ℣. Avérte óculos meos, ne vídeant vanitátem: in via tua vivífica me. In. Glória Patri. Inclína. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi.
+
+### Ad Sextam
+
+**Ant.** Et qui præíbant, \* increpábant eum ut tacéret: ipse vero multo magis clamábat: Miserére mei, Fili David.
+
+**Capitulum** *1 Cor. 13, 8-9*
+
+CÁRITAS numquam éxcidit: sive prophétiæ evacuabúntur, sive linguæ cessábunt, sive sciéntia destruétur. Ex parte enim cognóscimus, et ex parte prophetámus.
+
+℟. br. In ætérnum, Dómine, \* Pérmanet verbum tuum. In ætérnum. ℣. In sǽculum sǽculi véritas tua. Pérmanet. Glória Patri. In ætérnum. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: Oratio Preces.} [REF: p. 656]
+
+### Ad Nonam
+
+**Ant.** Cæcus magis \* ac magis clamábat, ut eum Dóminus illumináret.
+
+**Capitulum** *1 Cor. 13, 13*
+
+NUNC autem manent fides, spes, cáritas, tria hæc: major autem horum est cáritas.
+
+℟. br. Clamávi in toto corde meo: \* Exáudi me, Dómine. Clamávi. ℣. Justificatiónes tuas requíram. Exáudi. Glória Patri. Clamávi. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica.} [REF: p. 70]
+
+{RUBRIC: Capitulum Fratres, ut supra.} [REF: p. 656]

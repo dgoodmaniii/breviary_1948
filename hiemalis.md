@@ -31586,4 +31586,38 @@ Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíce
 
 Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
 
-**Ant.** Mel et lac ex ejus ore suscépi, et san-
+**Ant.** Mel et lac ex ejus ore suscépi, et san-guis ejus ornávit genas meas.
+
+**Ant.** Ipsi soli servo fidem, \* ipsi me tota devotióne commítto.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Ipsi soli servo fidem, ipsi me tota devotióne commítto.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Virgínibus}
+
+#### Lectio iv
+
+{RUBRIC: Liber I post initium}
+
+ODIE natális est Vírginis, integritátem sequámur. Natális est Mártyris, hóstias immolémus. Natális est sanctæ Agnétis, miréntur viri, non despérent párvuli, stúpeant nuptæ, imiténtur innúptæ. Sed quid dignum ea loqui póssumus, cujus ne nomen quidem vácuum laudis est? Devótio supra ætátem, virtus supra natúram: ut mihi videátur non hóminis habuísse nomen, sed oráculum Mártyris, quod indicávit quid esset futúra. Nomen Vírginis títulus est pudóris. Appellábo Mártyrem: prædicávi satis. Prolíxa laudátio est, quæ non quæritur, sed tenétur. Nemo est laudabílior, quam qui ab ómnibus laudári potest. Quot hómines, tot præcónes, qui Mártyrem prædicant, dum loquúntur.

@@ -25000,3 +25000,24 @@ MAGI, intrántes domum, vidérunt púerum cum María, matre ejus. Et procidénte
 #### Lectio viii
 
 NISI enim res ita se habéret, cum ómnia quæ istic videbántur, vília essent, non ei tantum exhi-
+buíssent honórem. Ideo autem nihil eórum quæ sub sensum cadunt, ibi magnum erat, sed præsépe, tugúrium, mater inops; ut nudam Magórum philosóphiam perspícias, atque discas, eos non ut hóminem purum, sed ut Deum, et ipsum benéficum, adivísse. Quaprópter nullo eórum quæ extrínsecus vidébantur, offénsi sunt, sed adorárunt; et dona obtulérunt, quæ dona multum a Judáica crassítie differébant. Neque enim oves et vítulos immolárunt, sed quæ ecclesiásticæ philosóphiæ vicína erant; síquidem sciéntiam, obediéntiam et dilectiónem ipsi offerébant.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio magno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra ubi erat puer. — Et intrántes. Glória Patri. Et, apértis.
+
+#### Lectio ix
+
+ET, respónso accépto in somnis, ne redírent ad Heródem, per áliam viam revérsi sunt in regiónem suam. Hic mihi vide fidem ipsórum, quómodo non offendántur, sed sint quiéti et obtemperántes, neque turbéntur, neque tália mútuo loquántur: Sane, si magnus hic puer est, et si quam habet poténtiam, quid opus fuga et occúlto discéssu? cur vero nos, qui palam et cum fidúcia accéssimus ad pópulum tantum, et coram furénte rege stétimus, quasi fugitívos ex civitáte dimíttit Ángelus? At nihil tale vel dixérunt vel cogitárunt. Illud enim máxime ad fidem pértinet, ut nulla mandatórum exquirátur rátio, sed jussis tantum obediátur.
+
+Te Deum.
+
+**Ad Bened. Ant.** Manifésto magnum est \* pietátis sacraméntum, quod manifestátum est in carne, justificátum est in spíritu, appáruit Ángelis, prædicátum est géntibus, créditum est in mundo, assúmptum est in glória, allelúja.
+
+{RUBRIC: Vésperæ de sequénti die Octáva, ut infra.}
+
+## Die 13 Januarii
+
+# In Octava Epiphaniæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: In I Vésperis ómnia dicúntur sicut in I Vésperis Epiphaníæ, [REF: p. 492] excépta Oratióne, quæ dícitur ut sequitur:}

@@ -29943,3 +29943,16 @@ INSUPER summópere lætáti sunt decérnere Conceptiónis festum ab omni Ecclés
 *Cap. 1, 26-28*
 
 IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ,
+ cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Bernárdi Abbátis}
+
+{RUBRIC: Homilía 2 super Missus est}
+
+LÆTÁRE, pater Adam, sed magis tu, o Heva mater, exsúlta, qui, sicut ómnium paréntes, ita ómnium fuístis peremptóres; et, quod infelícius est, prius peremptóres quam paréntes. Ambo, inquam, consolámini super fília, et tali fília; sed illa ámplius, de qua malum ortum est prius, cujus oppróbrium in omnes pertransívit mulíeres. Instat namque tempus, quo jam tollátur oppróbrium, nec hábeat vir quid causétur advérsus féminam: qui útique, dum se imprudénter excusáre conarétur, crudéliter illam accusáre non cunctátus est, dicens: Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Proptérea curre, Heva, ad Maríam; curre, mater, ad fíliam; fília pro matre respóndeat; ipsa matris oppróbrium áuferat; ipsa patri pro matre satisfáciat: quia ecce si vir cécidit per féminam, jam non erígitur nisi per féminam.
+
+℟. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons signátus: \* Emissiónes tuæ paradísus, o María. ℣. Aperi mihi, soror mea, amíca mea, colúmba mea, immaculáta mea. — Emissiónes.
+
+#### Lectio viii
+
+QUID dicébas, o Adam? Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Verba malítiæ sunt hæc, quibus magis áugeas quam déleas culpam. Verúmtamen Sapiéntia vicit malítiam, cum occasiónem véniæ, quam a te Deus interrogándo elícere tentávit, sed non pótuit, in thesáuro indeficiéntis suæ pietátis invénit. Rédditur nempe fémina pro fémina, prudens pro fátua, húmilis pro supérba; quæ pro ligno mortis gustum tibi pórrigat vitæ, et pro venenóso cibo illo amaritúdinis, dulcédinem páriat fructus ætérni. Muta ergo iníquæ excusatiónis verbum in vocem gratiárum actiónis, et dic: Dómine, múlier quam dedísti mihi, dedit mihi de ligno vitæ, et comédi; et dulce factum est super mel ori meo, quia in ipso vivificásti me. Ecce enim ad hoc missus est Angelus ad Vírginem. O admirándam et omni honóre digníssimam Vír-

@@ -9298,3 +9298,51 @@ Neque iníquitas mea, neque peccátum meum, Dómine: \* sine iniquitáte cucúrr
 Exsúrge in occúrsum meum, et vide: \* et tu, Dómine, Deus virtútum, Deus Israël,
 
 Inténde ad visitándas omnes gentes: \* non misereáris ómnibus, qui operántur iniquitátem.
+
+Converténtur ad vésperam: et famem patiéntur ut canes, \* et circuíbunt civitátem.
+
+Ecce, loquéntur in ore suo, et gládius in lábiis eórum: \* quóniam quis audívit?
+
+Et tu, Dómine, deridébis eos: \* ad níhilum dedúces omnes gentes.
+
+Fortitúdinem meam ad te custódiam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia ejus prævéniet me.
+
+### Psalmus 58, ii
+
+DEUS osténdet mihi super inimícos meos, ne occídas eos: \* nequándo obliviscántur pópuli mei.
+
+Dispérge illos in virtúte tua: \* et depóne eos, protéctor meus, Dómine:
+
+Delíctum oris eórum, sermónem labiórum ipsórum: \* et comprehendántur in supérbia sua.
+
+Et de exsecratióne et mendácio annuntiabúntur in consummatióne: \* in ira consummatiónis, et non erunt.
+
+Et scient quia Deus dominábitur Jacob: \* et fínium terræ.
+
+Converténtur ad vésperam: et famem patiéntur ut canes, \* et circuíbunt civitátem.
+
+Ipsi dispergéntur ad manducándum: \* si vero non fúerint saturáti, et murmurábunt.
+
+Ego autem cantábo fortitúdinem tuam: \* et exsultábo mane misericórdiam tuam.
+
+Quia factus es suscéptor meus, \* et refúgium meum, in die tribulatiónis meæ.
+
+Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea.
+
+### Psalmus 59
+
+DEUS, repulísti nos, et destruxísti nos: \* irátus es, et misértus es nobis.
+
+Commovísti terram, et conturbásti eam: \* sana contritiónes ejus, quia commóta est.
+
+Ostendísti pópulo tuo dura: \* potásti nos vino compunctiónis.
+
+Dedísti metuéntibus te significatiónem: \* ut fúgiant a fácie arcus:
+
+Ut liberéntur dilécti tui: \* salvum fac déxtera tua, et exáudi me.
+
+Deus locútus est in sancto suo: \* Lætábor, et partíbor Síchimam: et convállem tabernaculórum metíbor.
+
+Meus est Gálaad, et meus est Manásses: \* et Ephraïm fortitúdo cápitis mei.
+
+Juda rex meus: \* Moab olla spei meæ.

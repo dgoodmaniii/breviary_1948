@@ -23992,3 +23992,35 @@ DÓMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui háb
 Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
 
 Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Puer autem crescébat, et confortabátur plenus sapiéntia, et grátia Dei erat in illo.
+
+℣. Propter nos egénus factus est, cum esset dives. ℟. Ut illíus inópia nos dívites essémus.
+
+{RUBRIC: De Epístola beáti Pauli Apóstoli ad Colossénses}
+
+#### Lectio i
+
+*Cap. 3, 12-25; 4, 1-2*
+
+INDÚITE vos ergo sicut elécti Dei, sancti, et dilécti, víscera misericórdiæ, benignitátem, humilitátem, modéstiam, patiéntiam: supportántes ínvicem, et donántes vobismetípsis si quis advérsus áliquem habet querélam: sicut et Dóminus donávit vobis, ita et vos. Super ómnia autem hæc, caritátem habéte, quod est vínculum perfectiónis: et pax Christi exsúltet in córdibus vestris, in qua et vocáti estis in uno córpore: et grati estóte. Verbum Christi hábitet in vobis abundánter, in omni sapiéntia, docéntes, et commonéntes vosmetípsos, psalmis, hymnis, et cánticis spirituálibus, in grátia cantántes in córdibus vestris Deo.
+
+℟. Deus noster in terris visus est, \* Et cum homínibus conversátus est. ℣. Hic adinvénit omnem viam disciplínæ, et trádidit illam Jacob, púero suo. — Et.
+
+#### Lectio ii
+
+OMNE, quodcúmque fácitis in verbo aut in ópere, ómnia in nómine Dómini Jesu Christi, grátias agéntes Deo et Patri per ipsum. Mulíeres, súbditæ estóte viris, sicut opórtet, in Dómino. Viri, dilígite uxóres vestras, et nolíte amári esse ad illas. Fílii, obedíte paréntibus per ómnia: hoc enim plácitum est in Dómino. Pa-

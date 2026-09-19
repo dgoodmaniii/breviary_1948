@@ -20804,3 +20804,32 @@ tia Salvatórem angélicis vócibus didicére pastóres, et apud Dominicórum pr
 #### Lectio vi
 
 UNDE ipsa colláti múneris magnitúdo dignam a nobis éxigit suo splendóre reveréntiam. Ideo enim, sicut beátus Apóstolus docet, non spíritum hujus mundi accépimus, sed spíritum qui ex Deo est, ut sciámus quæ a Deo donáta sunt nobis; qui non áliter pie cólitur, nisi id ei, quod ipse tríbuit, offerátur. Quid autem in thesáuro Domínicæ largitátis ad honórem præséntis festi tam cóngruum póssumus inveníre, quam pacem, quæ in nativitáte Dómini prima est angélico prædicáta concéntu? Ipsa enim est quæ parit fílios Dei,
+nutrix dilectiónis et génitrix unitátis, réquies beatórum et æternitátis habitáculum; cujus hoc opus próprium et speciále beneficium est, ut jungat Deo quos secérnit de mundo.
+
+℟. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium: et beáta úbera, quæ lactavérunt Christum Dóminum: \* Qui hódie pro salúte mundi de Vírgine nasci dignátus est. ℣. Dies sanctificátus illúxit nobis: veníte, gentes, et adoráte Dóminum. — Qui. Glória Patri. Qui.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 2, 15-20*
+
+IN illo témpore: Pastóres loquebántur ad ínvicem: Transeámus usque Béthlehem, et videámus hoc verbum quod factum est, quod Dóminus osténdit nobis. Et venérunt festinántes. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 2 in cap. 2 Lucæ, circa médium}
+
+FIDES festináre pastóres; nemo enim cum desídia Christum requírit. Vides pastóres Angelo credidísse: et tu Patri, Fílio, Spirítui
+
+Sancto, Angelis, Prophétis et Apóstolis crédere non vis? Vide, quam signánter Scriptúra singulórum líbret moménta verbórum. Festínant, inquit, Verbum vidére. Etenim cum caro Dómini vidétur, Verbum vidétur, quod est Fílius.
+
+℟. Verbum caro factum est, et habitávit in nobis: \* Et vídimus glóriam ejus, glóriam quasi Unigéniti a Patre, plenum grátiæ et veritátis. ℣. Omnia per ipsum facta sunt, et sine ipso factum est nihil. — Et.
+
+#### Lectio viii
+
+NON mediócre fídei tibi hoc videátur exémplum, quod vilis sit persóna pastórum. Certe quo vílior ad prudéntiam, eo pretiósior ad fidem. Non gymnásia choris referta sapiéntum, sed plebem Dóminus símplicem requisívit, quæ phaleráre audíta et fucáre nescíret. Simplícitas enim quǽritur, non ambítio desiderátur.
+
+℟. O Regem cæli, cui tália famulántur obséquia: stábulo pónitur, qui cóntinet mundum: \* Jacet in præsépio, et in cælis regnat. ℣. Natus est nobis hódie Salvátor, qui est Christus Dóminus, in civitáte David. — Jacet. Glória Patri. Jacet.

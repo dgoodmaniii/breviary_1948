@@ -31860,4 +31860,38 @@ LAUDÁBIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, 
 
 ℣. Diffúsa est grátia.
 
-**Ad Magnif. Ant.** Stans beáta Agnes \* in médio flammæ, expánsis mánibus orábat ad Dóminum: Omnípotens, adoránde,
+**Ad Magnif. Ant.** Stans beáta Agnes \* in médio flammæ, expánsis mánibus orábat ad Dóminum: Omnípotens, adoránde,colénde, treménde, benedíco te, et glorífico nomen tuum in ætérnum.
+
+{RUBRIC: Et fit Commem. sequéntis.}
+
+{RUBRIC: Completorium de Feria.}
+
+---
+
+## Die 22 Januarii
+
+### Ss. Vincentii et Anastasii
+
+{RUBRIC: Martyrum}
+
+{RUBRIC: Semiduplex} [49]
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+#### Oratio
+
+ADÉSTO, Dómine, supplicatiónibus nostris: ut, qui ex iniquitáte nostra reos nos esse cognóscimus, beatórum Mártyrum tuórum Vincéntii et Anastásii intercessióne liberémur. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+VINCÉNTIUS, Oscæ in Hispánia citerióre natus, a prima ætáte stúdiis déditus, sacras lítteras a Valério Cæsaraugustáno epíscopo dídicit; cujus étiam partes suscépit prædicándi Evangélium, quod epíscopus, propter linguæ impediméntum, prædicatiónis offício fungi non póterat. Ea re ad Daciánum, província a Diocletiáno et Maximiáno præpósitum, deláta, Vincéntius Cæsaraugústæ comprehénditur, et vinctus ad Daciánum Valéntiam addúcitur. Ubi verbéribus et equúleo tortus, multis præséntibus, cum nulla aut tormentórum vi, aut acerbitáte vel lenitáte verbórum a propósito deterréri posset; in craticula impósitus, prunis ardéntibus suppósitis, ac férreis únguibus excarnificátus, candentibúsque láminis exústus, íterum dúcitur in cárcerem stratum testáceis fragméntis, ut ejus nudum corpus, somno oppréssum, a subjéctis étiam testárum acúleis torquerétur.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+#### Lectio v
+
+VERUM, illo in tenebricósa inclúso custódia, claríssimus splendor obórtus totum cárcerem illustrávit; quæ lux cum

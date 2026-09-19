@@ -32090,4 +32090,61 @@ AD quem Apóstolus duas epístolas scripsit, álteram Laodicéa, álteram Roma. 
 
 #### Lectio vi
 
-TRIUMPHÁLIS beáti Mártyris Timóthei dies hódie nobis anniversária celebritáte recúrrit; cujus glorificatióni sicut congáudet Ecclésia, sic ejus propónit sequénda vestígia. Si enim compátimur, et conglorificábimur. In cujus glorióso agóne duo nobis præcípue consideránda sunt: induráta vidélicet tortóris sævítia, et Mártyris invícta patiéntia. Sævítia tortóris, ut eam detestémur; patiéntia Mártyris, ut eam imitémur. Audi Psalmístam advérsus malítiam increpántem: Noli æmulári in malignántibus, quóniam tamquam fœnum velóciter aréscent. Quod autem advérsus malignántes patiéntia exhibénda sit, audi Apóstolum suadéntem:
+TRIUMPHÁLIS beáti Mártyris Timóthei dies hódie nobis anniversária celebritáte recúrrit; cujus glorificatióni sicut congáudet Ecclésia, sic ejus propónit sequénda vestígia. Si enim compátimur, et conglorificábimur. In cujus glorióso agóne duo nobis præcípue consideránda sunt: induráta vidélicet tortóris sævítia, et Mártyris invícta patiéntia. Sævítia tortóris, ut eam detestémur; patiéntia Mártyris, ut eam imitémur. Audi Psalmístam advérsus malítiam increpántem: Noli æmulári in malignántibus, quóniam tamquam fœnum velóciter aréscent. Quod autem advérsus malignántes patiéntia exhibénda sit, audi Apóstolum suadéntem:Patiéntia vobis necessária est, ut reportétis promissiónes.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Si quis venit, {RUBRIC: de Communi unius Mart. 1 loco.} [39]
+
+### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+{RUBRIC: Oratio Infirmitátem, ut supra.} 799
+
+{RUBRIC: Vésperæ de sequénti, Com. S. Petri Ap. et præcedéntis.}
+
+---
+
+## Die 25 Januarii
+
+### In Conversione S. Pauli Apostoli
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Apostolórum} [3], {RUBRIC: præter ea quæ hic habéntur própria.}
+
+##### In I Vesperis
+
+{RUBRIC: Ant. 1} Ego plantávi, \* Apóllo rigávit, Deus autem increméntum dedit, allelúja.
+
+{RUBRIC: 2} Libénter gloriábor \* in infirmitátibus meis, ut inhábitet in me virtus Christi.
+
+{RUBRIC: 3} Grátia Dei \* in me vácua non fuit, sed grátia ejus semper in me manet.
+
+{RUBRIC: 4} Damásci, præpósitus \* gentis Arétæ regis vóluit me comprehéndere: a frátribus per murum demíssus sum in sporta, et sic evási manus ejus in nómine Dómini.
+
+{RUBRIC: 5} Ter virgis cæsus sum, \* semel lapidátus sum, ter naufrágium pértuli pro Christi nómine.
+
+{RUBRIC: Capitulum} *Act. 9, 1-2*
+
+SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.
+
+#### Hymnus
+
+EGRÉGIE Doctor, Paule,
+    mores ínstrue,
+Et nostra tecum péctora
+    in cælum trahe:
+
+Veláta dum merídiem
+    cernat fides,
+Et solis instar sola
+    regnet cáritas.
+
+Sit Trinitáti sempitérna
+    glória,
+Honor, potéstas atque
+    jubilátio,

@@ -32556,4 +32556,30 @@ PERFÉCTUS ille est, qui ábiens vendit ómnia quæ habet, et dat paupéribus, a
 
 ℟. Sancte Paule Apóstole, prædicátor veritátis et Doctor géntium, \* Intercéde pro nobis ad Deum, qui te elégit, ut digni efficiámur grátia Dei. ℣. Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis. — Intercéde.
 
-{RUBRIC: Si dicenda sit ix Lectio alicújus Offícii commemoráti, ex viii et ix Lectióne fit una.}
+{RUBRIC: Si dicenda sit ix Lectio alicújus Offícii commemoráti, ex viii et ix Lectióne fit una.}ET justa prorsus retribútio, ut, qui hic pro Christo humánæ glóriam celsitúdinis neglexérunt, illic a Christo júdices glorificáti singuláriter cum eo assídeant; qui a sequéndis ejus vestígiis nulla ratióne póterant avélli. Nemo autem putet duódecim tantum Apóstolos, quia pro Juda prævaricánte Matthías eléctus est, tunc esse judicatúros; sicut nec duódecim solæ sunt tribus Israël judicándæ: alióquin tribus Levi, quæ tertiadécima est, injudicáta recédet.
+
+℟. Damásci, præpósitus gentis Arétæ regis vóluit me comprehéndere: \* Et a frátribus per murum demíssus sum in sporta, \* Et sic evási manus ejus in nómine Dómini. ℣. Deus et Pater Dómini nostri Jesu Christi scit quia non méntior. — Et a. Glória Patri. Et sic.
+
+#### Lectio ix
+
+ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur? cum ipse dicat: Nescítis quóniam ángelos judicábimus, quanto magis sæculária? Sciéndum namque est, omnes, qui, ad exémplum Apostolórum sua reliquérunt ómnia, et secúti sunt Christum, júdices cum eo ventúros, sicut étiam omne mortálium genus esse judicándum. Quia enim duodenário sæpe número solet in Scriptúris universitas designári, per duódecim sedes Apostolórum, ómnium numerósitas judicántium, et, per duódecim tribus Israël, universitas eórum qui judicándi sunt, osténditur.
+
+{RUBRIC: Te Deum.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+{RUBRIC: 1} Ego plantávi, \* Apóllo rigávit, Deus autem increméntum dedit, allelúja.
+
+{RUBRIC: 2} Libénter gloriábor \* in infirmitátibus meis, ut inhábitet in me virtus Christi.
+
+{RUBRIC: 3} Grátia Dei \* in me vácua non fuit, sed grátia ejus semper in me manet.
+
+{RUBRIC: 4} Damásci, præpósitus \* gentis Arétæ regis vóluit me comprehéndere: a frátribus per murum demíssus sum in sporta, et sic evási manus ejus in nómine Dómini.
+
+{RUBRIC: 5} Ter virgis cæsus sum, \* semel lapidátus sum, ter naufrágium pértuli pro Christi nómine.
+
+{RUBRIC: Capitulum} *Act. 9, 1-2*
+
+SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.

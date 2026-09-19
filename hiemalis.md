@@ -14496,3 +14496,62 @@ Quis sápiens et custódiet hæc? \* et intélliget misericórdias Dómini?
 **Absolutio.** A vínculis.
 
 **Bened.** 7 Evangélica léctio. 8 {RUBRIC: In Festis Domini:} Divínum auxílium.
+9 {RUBRIC: In Festis B. M. V.:} Cujus festum cólimus, ipsa Virgo.
+
+{RUBRIC: In Festis Sanctorum:} Cujus {RUBRIC: (vel} Quorum {RUBRIC: aut} Quarum{RUBRIC: )} festum cólimus. 9 Ad societátem. {RUBRIC: (Per evangélica dicta.)}
+
+#### In Officio trium Lectionum
+
+**Absolutio.** A vínculis.
+
+{RUBRIC: In Feriis:} **Bened.** 1 Evangélica {RUBRIC: vel} Ille nos benedícat. 2 Divínum. 3 Ad societátem.
+
+#### In Octava simplici:
+
+**Bened.** 1 Ille nos benedícat. 2 Cujus {RUBRIC: (vel} Quorum {RUBRIC: aut} Quarum{RUBRIC: )}. 3 Ad societátem.
+
+#### In Officio sanctæ Mariæ in Sabbato
+
+**Absol.** Précibus et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. Amen.
+
+**Bened.** 1 Nos cum prole pia benedícat Virgo María. Amen.
+
+2 Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. Amen.
+
+3 Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. Amen.
+
+---
+
+### Ad Laudes I
+
+*{RUBRIC: In Sabbatis per Annum, extra hebdómadam Quinquagésimæ ac Vigílias communes occurréntibus, in Festis novem Lectiónum quolíbet anni témpore celebrándis, in ómnibus Officiis de Octava non privilegiáta, atque in Officio sanctæ Maríæ in Sabbato.}*
+
+{RUBRIC: (Pater noster et Ave.)}
+
+℣. Deus, in adjutórium.
+
+**Ant.** Fílii Sion \* exsúltent in Rege suo.
+
+#### Psalmus 149
+
+CANTÁTE Dómino cánticum novum: \* laus ejus in ecclésia sanctórum.
+
+Lætétur Israël in eo, qui fecit eum: \* et fílii Sion exsúltent in rege suo.
+
+Laudent nomen ejus in choro: \* in týmpano, et psaltério psallant ei:
+
+Quia beneplácitum est Dómino in pópulo suo: \* et exaltábit mansuétos in salútem.
+
+Exsultábunt sancti in glória: \* lætabúntur in cubílibus suis.
+
+Exaltatiónes Dei in gútture eórum: \* et gládii ancípites in mánibus eórum.
+
+Ad faciéndam vindíctam in natiónibus: \* increpatiónes in pópulis.
+
+Ad alligándos reges eórum in compédibus: \* et nóbiles eórum in mánicis férreis.
+
+Ut fáciant in eis judícium conscríptum: \* glória hæc est ómnibus sanctis ejus.
+
+**Ant.** Fílii Sion exsúltent in Rege suo.
+
+**Ant.** Quam magnificáta \* sunt ópera tua, Dómine!

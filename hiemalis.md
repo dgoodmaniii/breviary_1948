@@ -29023,3 +29023,40 @@ DUM públice sermónes habéret ad pópulum, ádeo veheméns erat in dicéndo, u
 #### Lectio ix
 
 PETRUS, qui ob áuream ejus eloquéntiam Chrysólogi cognómen adéptus est, Foro Cornélii in Æmília honéstis paréntibus natus, a prima ætáte ánimum ad religiónem adjíciens, Cornélio Románo, tunc ejúsdem urbis Corneliénsis epíscopo, óperam dedit: a quo diáconus mérito creátus est. A sancto Xysto Papa tértio archiepíscopus Ravénnæ, licet
+invítus, renuntiátus, a Ravennátibus máxima cum reveréntia suscéptus est. In pastoráli múnere exímius, ludos ab homínibus personátis fíeri sólitos ut cohibéret concióne, illud præcláre dixit: Qui jocári volúerit cum diábolo, non póterit gaudére cum Christo. Vitæ suæ finem divínitus prænóscens, in pátriam se cóntulit; et sancti Cassiáni templum ingréssus, pretiósa dona cum obtulísset, Deum eúmdemque patrónum humíliter rogávit, ut benígne ánimam ejus excíperent. Migrávit ex hac vita quarto Nonas Decémbris, décimo octávo episcopátus anno. Ejus sacrum corpus prope corpus sancti Cassiáni honorífice cónditum est.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Communi Doct. 1 loco.} [90]
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DEUS, qui beátum Petrum Chrysólogum Doctórem egrégium, divínitus præmonstrátum, ad regéndam et instruéndam Ecclésiam tuam éligi voluísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+{RUBRIC: Deinde Commem. S. Barbáræ Virg. et Mart.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+**Oratio** C 1
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Bárbaræ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Petre Chrysóloge, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+{RUBRIC: Et fit Commemoratio Fériæ ac S. Sabbæ Abbátis.}
+
+---

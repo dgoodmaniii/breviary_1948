@@ -21253,8 +21253,7 @@ Sicut lætántium ómnium \* habitátio est in te.
 
 #### Psalmus 95
 
-CANTÁTE Dómino cánticum novum: \* cantáte Dómino, omnis terra
-.
+CANTÁTE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
 
 Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
 
@@ -21903,3 +21902,28 @@ NON otióse Spíritus Sanctus nomen Sponsi óleo cómparat, cum ita dóceat spon
 #### Lectio v
 
 HOC dénique nomen coram régibus, et géntibus, et fíliis Israël portáre jussus est idem Apóstolus; et portábat nomen tamquam lumen, et illuminábat pátriam, et clamábat ubíque: Nox præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis, sicut in die honéste ambulémus. Et monstrábat ómnibus lucérnam super candelábrum, annúntians in omni loco Jesum, et hunc crucifíxum. Quómodo lux ista resplénduit ac perstrínxit cunctórum intuéntium óculos, quando de ore Petri, tamquam fulgur egrédiens,
+claudi uníus corporáles plantas solidávit et bases, multósque spirituáliter cæcos illuminávit? Numquid non ignem sparsit, cum ait: In nómine Jesu Christi Nazaréni surge et ámbula?
+
+℟. Confiteámur nómini tuo magno, \* Quóniam terríbile et sanctum est. ℣. Hi in cúrribus, et hi in equis, nos autem in nómine Dómini, Dei nostri, invocábimus. — Quóniam.
+
+#### Lectio vi
+
+NEC tantum lux est nomen Jesu, sed est et cibus. An non tóties confortáris, quóties recordáris? Quid æque mentem cogitántis impínguat? Quid ita exercitátos réparat sensus, virtútes róborat, végetat mores bonos atque honéstos, castas fovet affectiónes? Áridus est omnis ánimæ cibus, si non óleo isto infúnditur; insípidus est, si non hoc sale condítur. Si scribas, non sapit mihi, nisi légero ibi Jesum. Si dispútes aut cónferas, non sapit mihi, nisi sonúerit ibi Jesus. Jesus mel in ore, in aure melos, in corde júbilus. Sed est et medicína. Tristátur áliquis nostrum? Véniat in cor ejus Jesus, et inde sáliat in os. Et ecce ad exórtum nóminis lumen, núbilum omne diffúgit, redit serénum. Lábitur quis in crimen? currit ínsuper ad láqueum mortis desperándo? Nonne, si ínvocet nomen vitæ, conféstim respirábit ad vitam?
+
+℟. Læténtur omnes, qui sperant in te, Dómine, in ætérnum exsultábunt, et habitábis in eis, et gloriabúntur in te omnes, \* Qui díligunt nomen tuum. ℣. Dómine, in lúmine vultus tui ambulábunt, et in nómine tuo exsultábunt tota die. — Qui. Glória Patri. Qui.
+
+### In III Nocturno
+
+**Ant.** Cantáte Dómino, \* et benedícite nómini ejus: annuntiáte de die in diem salutáre ejus.
+
+#### Psalmus 95
+
+CANTÁTE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.

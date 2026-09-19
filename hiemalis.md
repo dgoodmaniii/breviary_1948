@@ -25354,3 +25354,32 @@ SI linguis hóminum loquar et Angelórum, caritátem autem non hábeam, factus s
 {RUBRIC: Nisi resuménda sint Responsória de Fería II. [REF: p. 555]}
 
 ℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum: \* Quia misericórdia tua, Dómine,
+magna est super me. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — Quia.
+
+#### Lectio ii
+
+CARITAS pátiens est, benígna est: cáritas non æmulátur, non agit pérperam, non inflátur, non est ambitiósa, non quǽrit quæ sua sunt, non irritátur, non cógitat malum, non gaudet super iniquitáte, congáudet autem veritáti: ómnia suffert, ómnia credit, ómnia sperat, ómnia sústinet. Cáritas numquam éxcidit: sive prophetíæ evacuabúntur, sive linguæ cessábunt, sive sciéntia destruétur. Ex parte enim cognóscimus, et ex parte prophetámus. Cum autem vénerit quod perféctum est, evacuábitur quod ex parte est.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Misericórdia tua, Dómine, magna est super me: \* Et liberásti ánimam meam ex inférno inferióri. ℣. In die tribulatiónis meæ clamávi ad te, quia exaudísti me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+CUM essem párvulus, loquébar ut párvulus, sapiébam ut párvulus, cogitábam ut párvulus. Quando autem factus sum vir, evacuávi quæ erant párvuli. Vidémus nunc per spéculum in ænígmate: tunc autem fácie ad fáciem. Nunc cognósco ex parte: tunc autem cognóscam, sicut et cógnitus sum. Nunc autem manent fides, spes, cáritas: tria hæc. Major autem horum est cáritas.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Factus est mihi Dóminus in refúgium: \* Et Deus meus in auxílium spei meæ. ℣. Erípuit me de inimícis meis fortíssimis, et factus est Dóminus protéctor meus. — Et. Glória Patri. Et.
+
+{RUBRIC: Ad Vésperas, nisi sequénti die persolvéndum sit Offícium

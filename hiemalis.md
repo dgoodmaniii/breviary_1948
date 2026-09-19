@@ -7839,3 +7839,52 @@ Sicut audívimus, sic vídimus in civitáte Dómini virtútum, in civitáte Dei 
 Suscépimus, Deus, misericórdiam tuam, \* in médio templi tui.
 
 Secúndum nomen tuum, Deus, sic et laus tua in
+ fines terræ: \* justítia plena est déxtera tua.
+
+Lætétur mons Sion, et exsúltent fíliæ Judæ: \* propter judícia tua, Dómine.
+
+Circúmdate Sion, et complectímini eam: \* narráte in túrribus ejus.
+
+Pónite corda vestra in virtúte ejus: \* et distribúite domos ejus, ut enarrétis in progénie áltera.
+
+Quóniam hic est Deus, Deus noster in ætérnum, et in séculum séculi: \* ipse reget nos in sécula.
+
+**Ant.** Magnus Dóminus, et laudábilis nimis in civitáte Dei nostri.
+
+**Ant.** Os meum loquétur \* sapiéntiam: et meditátio cordis mei prudéntiam.
+
+### Psalmus 48, i
+
+AUDITE hæc, omnes gentes: \* áuribus percípite omnes, qui habitátis orbem:
+
+Quique terrígenæ, et fílii hóminum: \* simul in unum dives et pauper.
+
+Os meum loquétur sapiéntiam: \* et meditátio cordis mei prudéntiam.
+
+Inclinábo in parábolam aurem meam: \* apériam in psaltério propositiónem meam.
+
+Cur timébo in die mala? \* iníquitas calcánei mei circúmdabit me:
+
+Qui confídunt in virtúte sua: \* et in multitúdine divitiárum suárum gloriántur.
+
+Frater non rédimit, rédimet homo: \* non dabit Deo placatiónem suam.
+
+Et prétium redemptiónis ánimæ suæ: \* et laborábit in ætérnum, et vivet adhuc in finem.
+
+Non vidébit intéritum, cum víderit sapiéntes moriéntes: \* simul insípiens, et stultus períbunt.
+
+Et relínquent aliénis divítias suas: \* et sepúlcra eórum domus illórum in ætérnum.
+
+Tabernácula eórum in progénie et progénie: \* vocavérunt nómina sua in terris suis.
+
+Et homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis insipiéntibus, et símilis factus est illis.
+
+**Ant.** Os meum loquétur sapiéntiam: et meditátio cordis mei prudéntiam.
+
+**Ant.** Ne timúeris: \* cum dives non descéndet in sepúlcrum glória ejus.
+
+### Psalmus 48, ii
+
+HÆC via illórum scándalum ipsis: \* et póstea in ore suo complacébunt.
+
+Sicut oves in inférno pósiti sunt: \* mors depáscet eos.

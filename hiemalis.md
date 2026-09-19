@@ -30782,4 +30782,56 @@ HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia ex-cél
 
 FELIX Nolánus présbyter, cum in idóla vehiméntius inveherétur, ab infidélibus várie vexátus, in cárcerem conjícitur. Unde ab Angelo nocte edúctus, quærere jussus est Maximiánum Nolæ epíscopum: qui, cum sénio conféctus desperáret se ferre posse supplícia persequéntium, se abdíderat in silvam. Quo cum Felix Deo duce pervenísset, sanctum epíscopum humi jacéntem pene mórtuum videt; quem recreátum ac sublátum in húmeros, apud fidélem víduam reficiéndum curávit. Sed cum is íterum idolórum cultóres impietátis argúeret, facto in ipsum ímpetu, fúgiens in angústo duórum paríetum intervállo se occultávit; qui áditus cum repénte araneárum telis pertéxtus visus esset, némini recéntis látebræ suspiciónem relíquit. Inde ígitur evádens Felix in ædibus piæ mulíeris tres menses látuit. Cum vero Dei Ecclésia requiéscere cœpísset, Nolam rédiens, multísque ibi vitæ exémplis, et doctrínæ præcéptis, miraculísque ad Christi fidem convérsis, constánter étiam recusáto ejus urbis episcopátu, obdormívit in Dómino, sepultúsque est prope Nolam in loco, quem in Píncis appellábant.
 
-{RUBRIC: Te Deum laudámus.}
+{RUBRIC: Te Deum laudámus.}### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+**Oratio** C 3
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Hilárium minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Felícis Presb. et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut ad meliórem vitam Sanctórum tuórum exémpla nos próvocent; quátenus, quorum solémnia ágimus, étiam actus imitémur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequ., Commemoratio præcedéntis ac S. Mauri Abbátis.}
+
+---
+
+## Die 15 Januarii
+
+### S. Pauli
+
+{RUBRIC: primi Eremítæ, Confess.}
+
+{RUBRIC: Duplex} (m. t. v.) [94]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio** C 1
+
+DEUS, qui nos beáti Pauli Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Hilári, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui pópulo, ut supra.}
+
+{RUBRIC: Deínde Commem. S. Mauri Abbátis:}
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.

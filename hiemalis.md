@@ -29196,3 +29196,28 @@ RECUSÁNTE illo et eórum précibus resisténte, ardens pópuli stúdium ad Vale
 #### Lectio vi
 
 GRATIÁNO imperatóre occíso, ad Máximum ejus interfectórem legátus íterum proféctus est; eóque pœniténtiam ágere recusánte, se ab ejus communióne semóvit. Theodósium imperatórem, propter cædem Thessalonícæ factam, ingréssu ecclésiæ prohíbuit. Cui, cum ille David quoque regem adúlterum et homicídam fuísse dixísset, respóndit Ambrósius: Qui secútus es errántem, séquere pœniténtem. Quare Theodósius sibi ab eo impósitam públicam pœniténtiam humíliter egit. Ergo sanctus epíscopus pro Ecclésia Dei máximis labóribus curísque perfúnctus, multis líbris étiam egrégie conscríptis, ántequam in morbum incíderet, mortis suæ diem prædíxit. Ad quem ægrótum Honorátus Vercellénsis epíscopus, Dei voce ter admónitus, accúrrit, eíque sanctum Dómini corpus prǽbuit: quo ille sumpto, conformátis in crucis simi-
+litúdinem mánibus, orans, ánimam Deo réddidit prídie Nonas Aprílis, anno post Christum natum trecentésimo nonagésimo séptimo.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+AMBRÓSIUS epíscopus Mediolanénsis, Ambrósii civis Románi fílius, in Urbe liberálibus disciplínis erudítus est. A Probo præfécto Ligúriæ et Æmíliæ præpósitus, ejúsdem jussu cum potestáte Mediolánum venit; ubi, mórtuo Auxéntio Ariáno epíscopo, pópulus de successóre deligéndo dissidébat. Quare Ambrósius, pro offícii sui múnere ecclésiam ingréssus, ut commótam seditiónem sedáret, cum multa de quiéte et tranquillitáte reipúblicæ præcláre dixísset, derepénte púero Ambrósium epíscopum exclamánte, univérsi pópuli vox erúpit, Ambrósium epíscopum deposcéntis. Quare baptizátus (erat enim catechúmenus), sacris initiátus, omnibúsque órdinum grádibus de more Ecclésiæ suscéptis, episcopáli dignitáte auctus est. Quo in múnere cathólicam veritátem et disciplínam ecclesiásticam tum verbo tum scriptis ácriter deféndit, multósque Ariános et álios hæréticos ad fidem convértit, e quibus sanctum Augustínum Jesu Christo péperit. Tot pro Ecclésia Dei labóribus curísque perfúnctus, óbiit prídie Nonas Aprílis, anno trecentésimo nonagésimo séptimo.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Communi Doctórum 1 loco.} [90]
+
+**Oratio** C 3
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Ambrósium minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Ad Laudes fit Commemoratio Fériæ.}
+
+{RUBRIC: ¶ De Vigília Conceptiónis immaculátæ beátæ Maríæ Vírginis nihil fit in Offício.}
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio Fériæ tantum.}
+
+---

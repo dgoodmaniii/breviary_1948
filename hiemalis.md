@@ -18394,3 +18394,34 @@ UTINAM dirúmperes cælos, et descénderes: a fácie tua montes defluérent. Sic
 OCCURRÍSTI lætánti et faciénti justítiam: in viis tuis recordabúntur tui: ecce tu irátus es, et peccávimus: in ipsis fúimus semper, et salvábimur. Et facti sumus ut immúndus omnes nos, et quasi pannus menstruátæ univérsæ justítiæ nostræ: et cecídimus quasi fólium univérsi, et iniquitátes nostræ quasi ventus abstulérunt nos. Non est qui ínvocet nomen tuum: qui consúrgat, et téneat te: abscondísti fáciem tuam a nobis, et allisísti nos in manu iniquitátis nostræ.
 
 ℟. Non auferétur sceptrum de Juda, et dux de
+fémore ejus, donec véniat qui mitténdus est: \* Et ipse erit exspectátio géntium. ℣. Pulchrióres sunt óculi ejus vino, et dentes ejus lacte candidióres. — Et.
+
+#### Lectio iii
+
+ET nunc, Dómine, pater noster es tu, nos vero lutum: et fictor noster tu, et ópera mánuum tuárum omnes nos. Ne irascáris, Dómine, satis, et ne ultra memíneris iniquitátis nostræ: ecce réspice, pópulus tuus omnes nos. Cívitas sancti tui facta est desérta, Sion desérta facta est, Jerúsalem desoláta est. Domus sanctificatiónis nostræ, et glóriæ nostræ, ubi laudavérunt te patres nostri, facta est in exustiónem ignis, et ómnia desiderabília nostra versa sunt in ruínas.
+
+℟. Me opórtet mínui, illum autem créscere: qui autem post me venit, ante me factus est: \* Cujus non sum dignus corrígiam calceamentórum sólvere. ℣. Ego baptizávi vos aqua: ille autem baptizábit vos Spíritu Sancto. — Cujus. Glória. Cujus.
+
+℣. Vox clamántis.
+
+**Ad Bened. Ant.** Consolámini, consolámini, \* pópule meus, dicit Dóminus, Deus vester.
+
+{RUBRIC: Nisi (die 23 Dec.) dicénda sit Ant. Ecce compléta, ut infra. 367}
+
+**Oratio** Excita, {RUBRIC: ut supra.}
+
+**Ad Magnif. Ant.** O. {RUBRIC: 355}
+
+---
+
+### Feria Sexta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 66, 5-16*
+
+AUDÍTE verbum Dómini, qui trémitis ad verbum ejus: dixérunt fratres vestri odiéntes vos, et abjiciéntes propter nomen meum: glorificétur Dóminus, et vidébimus in lætítia vestra: ipsi autem confundéntur. Vox pópuli de civitáte, vox de templo, vox Dómini reddéntis retributiónem inimícis suis. Antequam parturíret, péperit: antequam veníret partus ejus, péperit másculum. Quis audívit umquam tale? et quis vidit huic símile? Numquid partúriet terra in die una? aut pariétur gens simul, quia parturívit et péperit Sion fílios suos?
+
+℟. Nascétur nobis párvulus, et vocábitur Deus, Fortis: \* Ipse sedébit super thronum David patris sui, et imperábit: cujus potéstas super húmerum ejus. ℣. In ipso benedicéntur omnes tribus terræ, omnes gentes sérvient ei. — Ipse.

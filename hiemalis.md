@@ -8273,3 +8273,65 @@ Qui autem timent te, \* magni erunt apud te per ómnia.
 Væ genti insurgénti super genus meum: Dóminus enim omnípotens vindicábit in eis, \* in die judícii visitábit illos.
 
 Dabit enim ignem, et vermes in carnes eórum, \* ut urántur, et séntiant usque in sempitérnum.
+
+**Ant.** Dómine, magnus es tu, et præclárus in virtúte tua.
+
+**Ant.** Laudábo Deum meum \* in vita mea.
+
+### Psalmus 145
+
+LAUDA, ánima mea, Dóminum, laudábo Dóminum in vita mea: \* psallam Deo meo quámdiu fúero.
+
+Nolíte confídere in princípibus: \* in fíliis hóminum, in quibus non est salus.
+
+Exíbit spíritus ejus, et revertétur in terram suam: \* in illa die períbunt omnes cogitatiónes eórum.
+
+Beátus, cujus Deus Jacob adjútor ejus, spes ejus in Dómino, Deo ipsíus: \* qui fecit cælum et terram, mare, et ómnia, quæ in eis sunt.
+
+Qui custódit veritátem in séculum, facit judícium injúriam patiéntibus: \* dat escam esuriéntibus.
+
+Dóminus solvit compedítos: \* Dóminus illúminat cæcos.
+
+Dóminus érigit elísos, \* Dóminus díligit justos.
+
+Dóminus custódit ádvenas, pupíllum et víduam suscípiet: \* et vias peccatórum dispérdet.
+
+Regnábit Dóminus in sécula, Deus tuus, Sion, \* in generatiónem et generatiónem.
+
+**Ant.** Laudábo Deum meum in vita mea.
+
+#### In Officio feriali
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+NOX, et ténebræ, et núbila,
+Confúsa mundi et túrbida:
+Lux intrat, albéscit polus:
+Christus venit: discédite.
+
+Calígo terræ scínditur
+Percússa solis spículo,
+Rebúsque jam color redit,
+Vultu niténtis síderis.
+
+Te, Christe, solum nóvimus:
+Te mente pura et símplici,
+Flendo et canéndo quǽsumus,
+Inténde nostris sénsibus.
+
+Sunt multa fucis illíta,
+Quæ luce purgéntur tua:
+Tu, vera lux Cæléstium,
+Vultu seréno illúmina.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.

@@ -25494,3 +25494,26 @@ NON enim vólumus ignoráre vos, fratres, de tribulatióne nostra, quæ facta es
 BEÁTI Pauli Epistolárum lectiónem dum assídue auscúlto, perque hebdómadas síngulas bis sæpe, et ter et quater, quotiescúmque sanctórum Mártyrum memórias celebrámus, gáudio exsúlto, tuba illa spiritáli pérfruens, et éxcitor, ac desidério incalésco, vocem mihi amícam agnóscens, et fere præséntem ipsum intuéri, et disseréntem audíre vídeor. Sed tamen dóleo et moléste fero, quod virum hunc non omnes, sicut par est, cognóscunt: verum ita illum nonnúlli ignórant, ut ne Epistolárum quidem ejus númerum plane sciant. Hoc vero non imperítia facit: sed quod nolint beáti hujus viri scripta assídue in mánibus habére.
 
 ℟. Notas mihi fecísti, Dómine, vias vitæ:
+ \* Adimplébis me lætítia cum vultu tuo: delectatiónes in déxtera tua usque in finem. ℣. Tu es qui restítues hereditátem meam mihi. — Adimplébis me.
+
+#### Lectio v
+
+NEQUE enim nos, quæ scimus, si quid scimus, ab ingénii bonitáte atque acúmine scimus: sed quod erga hunc virum impénse afféci, ab illíus lectióne numquam discédimus: síquidem qui amant, ii plus quam céteri omnes eórum facta norunt, quos amant, ut qui de iis ipsis sint sollíciti. Id quod beátus hic véluti osténdens, ad Philippénses ait: Sicut est mihi justum, ut hoc de vobis ómnibus séntiam, eo quod hábeam vos in corde, et in vínculis meis, et in defensióne et confirmatióne Evangélii.
+
+℟. Díligam te, Dómine, virtus mea: Dóminus firmaméntum meum, \* Et refúgium meum. ℣. Liberátor meus, Deus meus, adjútor meus. — Et.
+
+#### Lectio vi
+
+QUAPRÓPTER si et vos quoque lectióni diligénter atténdere voluéritis, nihil áliud vobis erit requiréndum. Verax est enim Christi sermo dicéntis: Quǽrite, et inveniétis: pulsáte, et aperiétur vobis. Céterum, quandóquidem complúres ex iis, qui huc nobíscum convéniunt, et liberórum educatiónem, et uxóris curam, et famíliæ providéntiam suscepére, ob idque totos sese huic labóri dare non sústinent: at certe ipsi vos excitáte ad ea saltem capiénda, quæ álii collégerint; stúdii tantúmdem iis, quæ dicta fúerint, auscultándis, quantum pecúniis colligéndis impertiéntes. Nam etsi turpe sit, non nisi tantum stúdii a vobis exígere: optábile tamen erit, si tantum saltem tribuátis.
+
+℟. Dómini est terra, et plenitúdo ejus: \* Orbis terrárum, et univérsi qui hábitant in eo. ℣. Ipse super mária fundávit eam, et super flúmina præparávit illam. — Orbis. Glória Patri. Orbis.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 2, 1-11*
+
+IN illo témpore: Núptiæ factæ sunt in Cana Galilǽæ, et erat Mater Jesu ibi. Vocátus est autem et Jesus, et discípuli ejus ad núptias. Et réliqua.

@@ -32074,4 +32074,20 @@ INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ acti
 
 #### Lectio iv
 
-TIMÓTHEUS, Lystris in Lycaónia natus ex patre Gentíli et matre Judǽa, christiánam
+TIMÓTHEUS, Lystris in Lycaónia natus ex patre Gentíli et matre Judǽa, christiánamcolébat religiónem, cum in ea loca venit Paulus apóstolus. Qui fama commótus quæ de Timóthei sanctitáte percrebúerat, ipsum adhíbuit sócium suæ peregrinatiónis: sed propter Judǽos, qui se ad Christum convérterant, sciéntes Timóthei patrem esse gentílem, eum circumcídit. Cum ígitur ambo Ephesum veníssent, ibi ordinátus est epíscopus ab Apóstolo, ut eam ecclésiam gubernáret.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+#### Lectio v
+
+AD quem Apóstolus duas epístolas scripsit, álteram Laodicéa, álteram Roma. Quibus in pastorális offícii cura confirmátus, cum sacrifícium, quod uni Deo debétur, fíeri dǽmonum simulácris, ferre non posset; pópulum Ephesínum, Diánæ in ejus celebritáte immolántem, ab illa impietáte removére conátus, lapídibus óbrutus est; ac pene mórtuus, a Christiánis eréptus et in montem óppido vicínum delátus, nono Kaléndas Februárii obdormívit in Dómino.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 44 de Sanctis}
+
+#### Lectio vi
+
+TRIUMPHÁLIS beáti Mártyris Timóthei dies hódie nobis anniversária celebritáte recúrrit; cujus glorificatióni sicut congáudet Ecclésia, sic ejus propónit sequénda vestígia. Si enim compátimur, et conglorificábimur. In cujus glorióso agóne duo nobis præcípue consideránda sunt: induráta vidélicet tortóris sævítia, et Mártyris invícta patiéntia. Sævítia tortóris, ut eam detestémur; patiéntia Mártyris, ut eam imitémur. Audi Psalmístam advérsus malítiam increpántem: Noli æmulári in malignántibus, quóniam tamquam fœnum velóciter aréscent. Quod autem advérsus malignántes patiéntia exhibénda sit, audi Apóstolum suadéntem:

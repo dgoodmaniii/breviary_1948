@@ -5470,3 +5470,64 @@ IMMENSE cæli Cónditor,
 Qui mixta ne confúnderent,
 Aquæ fluénta dívidens,
 Cælum dedísti límitem.
+
+Firmans locum cæléstibus,
+Simúlque terræ rívulis;
+Ut unda flammas témperet,
+Terræ solum ne díssipent.
+
+Infúnde nunc, piíssime,
+Donum perénnis grátiæ:
+Fraudis novæ ne cásibus
+Nos error átterat vetus.
+
+Lucem fides adáugeat:
+Sic lúminis jubar ferat:
+Hæc vana cuncta próterat:
+Hanc falsa nulla cómprimant.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+{RUBRIC: A Feria II post Dominicam Septuagesimæ usque ad Feriam VI post Cineres inclusive, in singulis Feriis Ant. ad Magnificat, ut in Proprio de Tempore; in aliis vero Feriis per Annum, Ant. ad Magnificat dicitur quotidie de Feria currenti, ut in Psalterio hic et alibi apponitur.}
+
+**Ad Magnif. Ant.** Magníficat \* † ánima mea Dóminum, quia respéxit Deus humilitátem meam.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Salvum me fac.
+
+{RUBRIC: ¶ Antiphonæ, in hac et aliis Feriis appositæ, dicuntur semper ad Completórium tum de Témpore tum de Sanctis, quando juxta Rubricas sumendi sint Psalmi de Feria.}
+
+### Psalmus 6
+
+DOMINE, ne in furóre tuo árguas me, \* neque in ira tua corrípias me.
+
+Miserére mei, Dómine, quóniam infírmus sum: \*

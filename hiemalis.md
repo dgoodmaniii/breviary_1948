@@ -24697,3 +24697,31 @@ NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próxi
 CELEBRÁTO próximo die, quo intemeráta virgínitas humáni géneris édidit Salvatórem, Epiphaníæ nobis, dilectíssimi, veneránda festívitas dat perseverántiam gaudiórum: ut inter cognatárum solemnitátum vicína sacraménta, exsultatiónis vigor et fervor fídei non tepéscat. Ad ómnium enim hóminum spectat salútem, quod infántia mediatóris Dei et hóminum, jam univérso declarabátur mundo, cum adhuc exíguo detinerétur oppídulo.
 
 ℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+QUAMVIS enim Israëlíticam gentem, et ipsíus gentis unam famíliam delegísset, de qua natúram univérsæ humanitátis assúmeret: nóluit tamen intra matérnæ habitatiónis angústias ortus sui latére primórdia: sed mox ab ómnibus vóluit agnósci, qui dignátus est pro ómnibus nasci. Tribus ígitur Magis in regióne Oriéntis stella novæ claritátis appáruit, quæ illústrior céteris pulchriórque sidéribus, fácile in se intuéntium óculos animósque convérteret: ut conféstim advertérétur, non esse otiósum, quod tam insólitum videbátur.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja, allelúja, allelúja.
+
+#### Lectio vi
+
+DEDIT ergo aspiciéntibus intelléctum, qui præstítit signum: et quod fecit intélligi, fecit inquíri, et se inveniéndum óbtulit requisítus. Sequúntur tres viri supérni lúminis ductum, et prǽvii fulgóris indícium inténta contemplatióne comitántes, ad agnitiónem veritátis, grátiæ splendóre ducúntur: qui humáno sensu significátum sibi Regis ortum æstimavérunt in civitáte régia esse quæréndum. Sed qui servi suscéperat formam, et non judicáre venérat, sed judicári, Béthlehem prælégit nativitáti, Jerosólymam passióni.
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et vénimus. Glória Patri. Et vénimus.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 1-12*
+
+CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab Oriénte venérunt Jerosólymam, dicéntes: Ubi est qui natus est Rex Judæórum? Et réliqua.
+
+{RUBRIC: De Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 10 in Evang.}
+
+MAGNUM vero nobis áliquid Magi ínnuunt, quod in regiónem suam per áliam viam revertúntur. In eo

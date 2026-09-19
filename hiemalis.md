@@ -10319,3 +10319,57 @@ Ibi cecidérunt qui operántur iniquitátem: \* expúlsi sunt, nec potuérunt st
 **Ant.** Dómine, in cælo misericórdia tua.
 
 **Ant.** Pópulus meus, \* ait Dóminus, bonis meis adimplébitur.
+
+#### Canticum Jeremiæ
+
+*Jer. 31, 10-14*
+
+AUDITE verbum Dómini, gentes, \* et annuntiáte in ínsulis, quæ procul sunt,
+
+Et dícite: Qui dispérsit Israël, congregábit eum: \* et custódiet eum sicut pastor gregem suum.
+
+Redémit enim Dóminus Jacob, \* et liberábit eum de manu potentióris.
+
+Et vénient, et laudábunt in monte Sion: \* et confluent ad bona Dómini.
+
+Super fruménto, et vino, et óleo, \* et fetu pécorum et armentórum:
+
+Erítque ánima eórum quasi hortus irríguus, \* et ultra non esúrient.
+
+Tunc lætábitur virgo in choro, \* júvenes et senes simul:
+
+Et convértam luctum eórum in gáudium, \* et consolábor eos, et lætificábo a dolóre suo.
+
+Et inebriábo ánimam sacerdótum pinguédine: \* et pópulus meus bonis meis adimplébitur.
+
+**Ant.** Pópulus meus, ait Dóminus, bonis meis adimplébitur.
+
+**Ant.** Deo nostro \* jucúnda sit laudátio.
+
+### Psalmus 146
+
+LAUDATE Dóminum quóniam bonus est psalmus: \* Deo nostro sit jucúnda, decóraque laudátio.
+
+Ædíficans Jerúsalem Dóminus: \* dispersiónes Israélis congregábit.
+
+Qui sanat contrítos corde: \* et álligat contritiónes eórum.
+
+Qui númerat multitúdinem stellárum: \* et ómnibus eis nómina vocat.
+
+Magnus Dóminus noster, et magna virtus ejus: \* et sapiéntiæ ejus non est númerus.
+
+Suscípiens mansuétos Dóminus: \* humílians autem peccatóres usque ad terram.
+
+Præcínite Dómino in confessióne: \* psállite Deo nostro in cíthara.
+
+Qui óperit cælum núbibus: \* et parat terræ plúviam.
+
+Qui prodúcit in móntibus fœnum: \* et herbam servitúti hóminum.
+
+Qui dat juméntis escam ipsórum: \* et pullis corvórum invocántibus eum.
+
+Non in fortitúdine equi voluntátem habébit: \* nec in tíbiis viri beneplácitum erit ei.
+
+Beneplácitum est Dómino super timéntes eum: \* et in eis, qui sperant super misericórdia ejus.
+
+**Ant.** Deo nostro jucúnda sit laudátio.

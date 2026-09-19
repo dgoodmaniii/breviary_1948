@@ -19253,3 +19253,61 @@ NE vile áliquid putáres, quale consuevísti cogitáre, cum verba humána solé
 {RUBRIC: quo finíto dícitur}
 
 ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Et dicto Benedicámus Dómino, celebrátur prima Missa post médiam noctem, ut in Missáli: qua finíta, dicúntur Laudes.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Quem vidístis, \* pastóres? dícite, annuntiáte nobis, in terris quis appáruit? Natum vídimus, et choros Angelórum collaudántes Dóminum, allelúja, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 44}
+
+**2** Génuit puérpera \* Regem, cui nomen ætérnum, et gáudia matris habens cum virginitátis honóre: nec primam símilem visa est, nec habére sequéntem, allelúja.
+
+**3** Angelus ad pastóres \* ait: Annúntio vobis gáudium magnum: quia natus est vobis hódie Salvátor mundi, allelúja.
+
+**4** Facta est cum Angelo \* multitúdo cæléstis exércitus laudántium Deum, et dicéntium: Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja.
+
+**5** Párvulus fílius \* hódie natus est nobis: et vocábitur Deus, Fortis, allelúja, allelúja.
+
+#### Capitulum
+
+*Hebr. 1, 1-2*
+
+MULTIFÁRIAM, multísque modis olim Deus loquens pátribus in prophétis: novíssime diébus istis locútus est nobis in Fílio, quem constítuit herédem universórum, per quem fecit et sécula.
+
+#### Hymnus
+
+A SOLIS ortus cárdine
+Ad usque terræ límitem,
+Christum canámus Príncipem,
+Natum María Vírgine.
+
+Beátus auctor séculi
+Servíle corpus índuit:
+Ut carne carnem líberans,
+Ne pérderet quos cóndidit.
+
+Castæ Paréntis víscera
+Cæléstis intrat grátia:
+Venter Puéllæ bájulat
+Secréta, quæ non nóverat.
+
+Domus pudíci péctoris
+Templum repénte fit Dei:
+Intácta nésciens virum,
+Concépit alvo Fílium.
+
+Enítitur puérpera,
+Quem Gábriel prædíxerat,
+Quem ventre Matris géstiens,
+Baptísta clausum sénserat.
+
+Fœno jacére pértulit:
+Præsépe non abhórruit:

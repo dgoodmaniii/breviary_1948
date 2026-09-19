@@ -4077,4 +4077,104 @@ Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérn
 
 **Ant.** Jubiláte \* Deo in voce exsultatiónis.
 
-{RUBRIC: Antíphonæ, in hac et áliis Fériis apposítæ, dicúntur
+{RUBRIC: Antíphonæ, in hac et áliis Fériis apposítæ, dicúntur semper in Officio feriáli et in Festis sive trium sive novem Lectiónum, quando juxta Rubricas sumendi sint Psalmi de Feria; atque adhibéntur étiam in Festis, quæ Témpore Advéntus celebrántur.}
+
+### Psalmus 46
+
+OMNES gentes, plaúdite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+**Ant.** Jubiláte Deo in voce exsultatiónis.
+
+**Ant.** Inténde \* voci oratiónis meæ, Rex meus et Deus meus.
+
+### Psalmus 5
+
+VERBA mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo: \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus: \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem: \* perdes omnes, qui loquúntur mendácium.
+
+Virum sánguinum et dolósum abominábitur Dóminus: \* ego autem in multitúdine misericórdiæ tuæ.
+
+Introíbo in domum tuam: \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua: \* propter inimícos meos dírige in conspéctu tuo viam meam.
+
+Quóniam non est in ore eórum véritas: \* cor eórum vanum est.
+
+Sepúlcrum patens est guttur eórum, linguis suis dolóse agébant, \* judíca illos, Deus.
+
+Décidant a cogitatiónibus suis, secúndum multitúdinem impietátum eórum expélle eos, \* quóniam irritavérunt te, Dómine.
+
+Et lætántur omnes, qui sperant in te, \* in ætérnum exsultábunt: et habitábis in eis.
+
+Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíces justo.
+
+Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
+
+**Ant.** Inténde voci oratiónis meæ, Rex meus et Deus meus.
+
+**Ant.** Deus majestátis \* intónuit: afférte glóriam nómini ejus.
+
+### Psalmus 28
+
+AFFERTE Dómino, fílii Dei: \* afférte Dómino fílios aríetum.
+
+Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Vox Dómini super aquas, Deus majestátis intónuit: \* Dóminus super aquas multas.
+
+Vox Dómini in virtúte: \* vox Dómini in magnificéntia.
+
+Vox Dómini confringéntis cedros: \* et confrínget Dóminus cedros Líbani:
+
+Et commínuet eas tamquam vítulum Líbani: \* et diléctus quemádmodum fílius unicórnium.
+
+Vox Dómini intercidéntis flammam ignis: \* vox Dómini concutiéntis desértum: et commovébit Dóminus desértum Cades.
+
+Vox Dómini præparántis cervos, et revelábit condénsa: \* et in templo ejus omnes dicent glóriam.
+
+Dóminus dilúvium inhabitáre facit: \* et sedébit Dóminus Rex in ætérnum.
+
+Dóminus virtútem pópulo suo dabit: \* Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Deus majestátis intónuit: afférte glóriam nómini ejus.
+
+**Ant.** Laudámus nomen tuum \* ínclitum, Deus noster.
+
+### Canticum David
+
+*1 Par. 29, 10-13*
+
+BENEDICTUS es, Dómine, Deus Israël patris nostri, \* ab ætérno in ætérnum.
+
+Tua est, Dómine, magnificéntia, et poténtia, \* et glória, atque victória:
+
+Et tibi laus: \* cuncta enim quæ in cælo sunt, et in terra, tua sunt:
+
+Tuum, Dómine, regnum, \* et tu es super omnes príncipes.
+
+Tuæ divítiæ, et tua est glória: \* tu domináris ómnium.

@@ -26803,3 +26803,45 @@ FIDE qui vocátur Abraham obedívit in locum exíre, quem acceptúrus erat in he
 CÁRITAS fraternitátis máneat in vobis. Et hospitalitátem nolíte oblivísci: per hanc enim latuérunt quidam, Angelis hospítio recéptis. Mementóte vinctórum, tamquam simul vincti: et laborántium, tamquam et ipsi in córpore morántes. Honorábile connúbium in ómnibus, et thorus immaculátus. Fornicatóres enim, et adúlteros judicábit Deus.
 
 ℟. Misericórdiam et judícium cantábo tibi, Dómine: \* Psallam et intélligam in via immaculáta, quando vénies ad me.
+℣. Perambulábam in innocéntia cordis mei, in médio domus meæ. — Psallam.
+
+#### Lectio ii
+
+SINT mores sine avarítia, conténti præséntibus: ipse enim dixit: Non te déseram, neque derelínquam. Ita ut confidénter dicámus: Dóminus mihi adjútor: non timébo quid fáciat mihi homo. Mementóte præpositórum vestrórum, qui vobis locúti sunt verbum Dei: quorum intuéntes éxitum conversatiónis, imitámini fidem. Jesus Christus heri, et hódie: ipse et in sǽcula.
+
+℟. Dómine, exáudi oratiónem meam, et clamor meus ad te pervéniat: \* Quia non spernis, Deus, preces páuperum. ℣. Fiant aures tuæ intendéntes in oratiónem servi tui. — Quia.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Quia.}
+
+#### Lectio iii
+
+DOCTRÍNIS váriis, et peregrínis nolíte abdúci. Óptimum est enim grátia stabilíre cor, non escis: quæ non profuérunt ambulántibus in eis. Habémus altáre, de quo édere non habent potestátem qui tabernáculo desérviunt. Quorum enim animálium infértur sanguis pro peccáto in Sancta per pontíficem, horum córpora cremántur extra castra. Própter quod et Jesus, ut sanctificáret per suum sánguinem pópulum, extra portam passus est.
+
+℟. Velóciter exáudi me, Deus, \* Quia defecérunt sicut fumus dies mei: \* Tu autem idem ipse es, et anni tui non defícient. ℣. Dies mei sicut umbra declinavérunt, et ego sicut fœnum árui. — Quia. Glória Patri. Tu.
+
+---
+
+## Sabbato ante Septuagesimam
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sábbato.} [REF: p. 312]
+
+**Capitulum** *1 Cor. 9, 24*
+
+FRATRES: Nescítis quod ii qui in stádio currunt, omnes quidem currunt, sed unus áccipit bravíum? Sic cúrrite ut comprehendátis.
+
+#### Hymnus
+
+JAM sol recédit ígneus:
+Tu, lux perénnis Únitas,
+Nostris, beáta Trínitas,
+Infúnde lumen córdibus.
+
+Te mane laudum cármine,
+Te deprecámur véspere;
+Dignéris ut te súpplices
+Laudémus inter cǽlites.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,

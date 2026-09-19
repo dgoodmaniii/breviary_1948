@@ -19895,3 +19895,31 @@ QUARTO décimo ígitur anno, secúndam post Nerónem persecutiónem movénte Dom
 BEÁTUS Joánnes Evangelísta cum Ephesi morarétur usque ad últimam senectútem, et vix inter discipulórum manus ad Ecclésiam deferrétur, nec posset in plúra vocem verba contéxere; nihil áliud per síngulas solébat proférre colléctas, nisi hoc: Filíoli, dilígite altérutrum. Tandem discípuli et fratres, qui áderant, tǽdio afécti quod éadem semper audírent, dixérunt: Magíster, quare semper hoc lóqueris? Qui respóndit dignam Joánne senténtiam: Quia præcéptum Dómini est; et, si solum fiat, súfficit.
 
 ℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 21, 19-24*
+
+IN illo témpore: Dixit Jesus Petro: Séquere me. Convérsus Petrus, vidit illum discípulum, quem diligébat Jesus, sequéntem. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 124 in Joánnem, post médium}
+
+DUAS vitas sibi divínitus prædicátas, et commendátas novit Ecclésia: quarum est una in fide, áltera in spécie; una in témpore peregrinatiónis, áltera in æternitáte mansiónis; una in labóre, áltera in réquie; una in via, áltera in pátria; una in ópere actiónis, áltera in mercéde contemplatiónis. Una declínat a malo, et facit bonum: áltera nullum habet, a quo declínet, malum; et magnum habet, quo fruátur, bonum. Una cum hoste pugnat; áltera sine hoste regnat.
+
+℟. In illum diem suscípiam te servum meum, et ponam te sicut signáculum in conspéctu meo: \* Quóniam ego elégi te, dicit Dóminus. ℣. Esto fidélis usque ad mortem, et dabo tibi corónam vitæ. — Quóniam.
+
+#### Lectio viii
+
+UNA súbvenit indigénti; áltera ibi est, ubi nullum ínvenit indigéntem. Una aliéna peccáta, ut sua sibi ignoscántur, ignóscit; áltera nec pátitur quod ignóscat, nec facit quod sibi poscat ignósci. Una flagellátur malis, ne extollátur in bonis; áltera tanta plenitúdine grátiæ caret omni malo, ut sine ulla tentatióne supérbiæ cohǽreat summo bono.
+
+℟. Iste est Joánnes, qui supra pectus Dómini in cœna recúbuit: \* Beátus Apóstolus, cui reveláta sunt secréta cæléstia. ℣. Fluénta Evangélii de ipso sacro Domínici péctoris fonte potávit. — Beátus. Glória Patri. Beátus.
+
+#### Lectio ix
+
+ÉRGO una bona est, sed adhuc mísera; áltera mélior, et beáta. Ista signifícáta est per Apóstolum Petrum, illa per Joánnem. Tota hic ágitur ista usque in hujus séculi finem, et illic ínvenit finem; differtur illa complénda post hujus séculi finem, sed in futúro século non habet finem. Ideo dícitur huic: Séquere me. De illo autem: Sic eum volo manére, donec véniam: quid ad te? tu me séquere. Quid

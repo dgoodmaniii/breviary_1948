@@ -27135,3 +27135,36 @@ ET creávit Deus hóminem ad imáginem suam: ad imáginem Dei creávit illum, m�
 IGITUR perfécti sunt cæli et terra, et omnis ornátus eórum. Complevítque Deus die séptimo opus suum quod fécerat: et requiévit die séptimo ab univérso ópere quod patrárat. Et benedíxit diéi séptimo, et sanctificávit illum: quia in ipso cessáverat ab omni ópere suo quod creávit Deus ut fáceret. Istæ sunt generatiónes cæli et terræ, quando creáta sunt, in die quo fecit Dóminus Deus cælum et terram: Et omne virgúltum agri ántequam oriétur in terra, omnémque herbam regiónis priúsquam germináret: non enim plúerat Dóminus Deus super terram, et homo non erat qui operarétur terram: Sed fons ascendébat e terra, írrigans univérsam superfíciem terræ.
 
 ℟. In sudóre vultus tui vescéris pane tuo, dixit Dóminus ad Adam: cum operátus fúeris terram, non dabit fructus suos: \* Sed spinas et tríbulos germinábit tibi. ℣. Quia audísti vocem uxóris tuæ, et comedísti de ligno, ex quo præcéperam tibi ne
+comédéres, maledícta terra in ópere tuo. — Sed.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Sed.}
+
+#### Lectio iii
+
+FORMÁVIT ígitur Dóminus Deus hóminem de limo terræ, et inspirávit in fáciem ejus spiráculum vitæ, et factus est homo in ánimam vivéntem. Plantáverat autem Dóminus Deus paradísum voluptátis a princípio: in quo pósuit hóminem, quem formáverat. Produxítque Dóminus Deus de humo omne lignum pulchrum visu, et ad vescéndum suáve: lignum étiam vitæ in médio paradísi, lignúmque sciéntiæ boni et mali. Et flúvius egrediebátur de loco voluptátis ad irrigándum paradísum, qui inde dividítur in quátuor cápita.
+
+℟. Formávit Dóminus hóminem de limo terræ, \* Et inspirávit in fáciem ejus spiráculum vitæ, et factus est homo in ánimam vivéntem. ℣. In princípio fecit Deus cælum et terram, et plasmávit in ea hóminem. — Et. Glória Patri. Et.
+
+{RUBRIC: In hac et sequéntibus Fériis usque ad Sábbatum post Cineres inclusíve, Psalmi ad Laudes, et Féria IV étiam tres última ad Matutínum, dicúntur de 2 loco, atque inde étiam sumúntur Antiphonæ.}
+
+{RUBRIC: Ad Primam autem addítur quartus Psalmus, ut notátur in Psaltério.}
+
+**Ad Magnif. Ant.** Hi novíssimi \* una hora fecérunt, et pares illos nobis fecísti, qui portávimus pondus diéi, et ǽstus.
+
+---
+
+### Feria Tertia
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 2, 15-24*
+
+TULIT ergo Dóminus Deus hóminem, et pósuit eum in paradíso voluptátis, ut operarétur, et custodíret illum: præcepítque ei dicens: Ex omni ligno paradísi cómede: de ligno autem sciéntiæ boni et mali ne cómedas. In quocúmque enim die coméderis ex eo, morte moriéris. Dixit quoque Dóminus Deus: Non est bonum esse hóminem solum: faciámus ei adjutórium símile sibi.
+
+℟. Tulit Dóminus hóminem, et pósuit eum in paradíso voluptátis: \* Ut operarétur et custodíret illum. ℣. Plantáverat autem Dóminus Deus paradísum voluptátis a princípio, in quo pósuit hóminem, quem formáverat. — Ut.
+
+#### Lectio ii
+
+FORMÁTIS ígitur, Dóminus Deus, de humo cunctis animántibus ter-

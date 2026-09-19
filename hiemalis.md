@@ -33088,3 +33088,21 @@ A nobis ábigas lúbrica gáudia,
 Tu, qui Martýribus dexter ades, Deus
 Une et Trine: tuis da fámulis jubar,
 Quo clemens ánimos beas. Amen.
+
+### In II Nocturno
+
+#### Lectio iv
+
+MARTINA virgo Romána, patre consulári, illústri génere nata, téneris adhuc annis orbáta paréntibus, christiánæ pietátis ardóre succénsa, divítias, quibus affluébat, mira in páuperes liberalitáte distríbuit. Sub Alexándro príncipe, cum deos inánes cólere juberétur, immáne facínus summa libertáte detestátur. Quaprópter íterum atque íterum affécta verbéribus, uncis, úngulis férreis, testárum fragméntis laceráta, acutíssimis gládiis membrátim concísa, ádipe fervénti perúncta, demum in amphitheátro damnátur ad béstias; a quibus illǽsa divínitus evádens, in ardéntem rogum injécta, incólumis pari benefício servátur.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+EX ejus tortóribus nonnúlli, miráculi novitáte corrépti, Dei aspiránte grátia, Christi fidem ampléxi, post cruciátus gloriósam martýrii palmam cápitis abscissióne promeruére. Ad ejúsdem preces nunc terræ motíbus exórtis, nunc ignibus e cælo tonánte delápsis, deórum templa prostráta sunt et simulácra consúmpta. Intérdum ex vulnéribus lac cum sánguine erúpit, splendórque nitidíssimus ac suavíssimus odor e córpore emanávit: intérdum sublímis régia in sede divínis láudibus una cum cælítibus interésse visa est.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+HISCE prodígiis, ejúsque in primis constántia, ácriter permótus judex, caput Vírgini amputári præcépit: qua perémpta, auditáque de cælo voce, qua ad Súperos evocabátur, Urbs tota contrémuit, ac multi idolórum cultóres ad Christi fidem convérsi sunt. Sacrum Martínæ corpus, sedénte sancto Urbáno primo, martýrio afféctum, Urbáno octávo Pontífice máximo, in pervetústa ejúsdem ecclésia, ad Mamertínum cárcerem,

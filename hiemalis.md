@@ -30463,3 +30463,34 @@ VERE benedícta tu in muliéribus, quóniam Hevæ maledictiónem in benedictión
 #### Lectio viii
 
 NE tímeas, María, invenísti enim apud Deum grátiam períre nésciam; invenísti apud Deum grátiam præ quálibet exímiam; invenísti apud Deum grátiam ómnibus votis expeténdam; invenísti apud Deum grátiam ómnium gratiárum splendidíssimam; invenísti apud Deum grátiam numquam elanguéntem; invenísti apud Deum grátiam, quæ te salvam prǽstet; invenísti apud Deum grátiam, quæ nullo ímpetu quatiátur; invenísti apud Deum grátiam plane invíctam; invenísti apud Deum grátiam perénniter duratúram. Et álii quidem, iíque plures, ante te exímia sanctitáte floruérunt. Sed némini, quemádmodum tibi, plena grátia impertíta est: nemo sicut tu, ad tantum magnificéntiæ est evéctus; nemo sicut tu, purificánte grátia præoccupátus est; nemo sicut tu, cælésti lúmine refúlsit; nemo sicut tu, præ omni celsitúdine exaltátus est.
+
+
+℟. Magníficat ánima mea Dóminum: \* Quia fecit mihi magna qui potens est, et sanctum nomen ejus. ℣. Ecce enim ex hoc beátam me dicent omnes generatiónes. — Quia. Glória Patri. Quia.
+
+#### Lectio ix
+
+ET mérito quidem; nemo enim sicut tu, ad Deum tam prope accéssit; nemo sicut tu, Dei donis ditátus est; nemo sicut tu, Dei grátiæ párticeps fuit. Omnia vincis, quæcúmque inter hómines emíneant; ómnia súperas múnera, quæ effúsa a Dei largitáte in quóslibet dimanáverint. Plus enim ómnibus inhabitántis Dei possessióne ditéscis. Nemo sic in se Deum complécti pótuit; nemo pótuit sic frui Dei præséntia; nemo dignus est hábitus, qui sic per Deum illuminarétur: ac proptérea non modo Deum ómnium Conditórem ac Dóminum in te excepísti, sed eum habes ex te ineffabíliter incarnátum, atque in útero tuo gestátum, et post hæc génitum, et univérsos hómines a patérna condemnatióne rediméntem, ac salútem, quæ nullum finem habitúra sit, ipsis elargiéntem. Et proptérea tibi clamávi, atque íterum veheménter clamábo: Ave, grátia plena; Dóminus tecum: benedícta tu in muliéribus.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: Ad Laudes fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ de sequénti die Octáva, Commem. Fériæ.}
+
+---
+
+## Die 15 Decembris
+
+### In Octava Conceptionis Immaculatæ B. M. V.
+
+{RUBRIC: Duplex majus} [701]
+
+{RUBRIC: In I Nocturno Lectiónes de Scriptúra occurrénti; sed in Féria IV Quátuor Témporum Serpens erat, cum suis Responsóriis ut in Festo} [704] {RUBRIC: , nisi resuméndæ aut anticipándæ sint Lectiónes de Scriptúra impedítæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+{RUBRIC: Ex Bulla dogmática Pii Papæ noni}
+
+AB antíquis tempóribus Sacrórum antístites, ecclesiástici viri, reguláres órdines ac vel ipsi imperatóres et reges ab hac apostólica Sede eníxe efflagitárunt, ut immaculáta sanctíssimæ Dei Genitrícis Concéptio véluti cathólicæ fídei dogma definirétur. Quæ postulatiónes hac nostra quoque ætáte iterátæ fué-

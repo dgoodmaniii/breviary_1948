@@ -10634,3 +10634,63 @@ Magnus Dóminus noster, et magna virtus ejus: \* et sapiéntiæ ejus non est nú
 Suscípiens mansuétos Dóminus: \* humílians autem peccatóres usque ad terram.
 
 Præcínite Dómino in confessióne: \* psállite Deo nostro in cíthara.
+
+Qui óperit cælum núbibus: \* et parat terræ plúviam.
+
+Qui prodúcit in móntibus fœnum: \* et herbam servitúti hóminum.
+
+Qui dat juméntis escam ipsórum: \* et pullis corvórum invocántibus eum.
+
+Non in fortitúdine equi voluntátem habébit: \* nec in tíbiis viri beneplácitum erit ei.
+
+Beneplácitum est Dómino super timéntes eum: \* et in eis, qui sperant super misericórdia ejus.
+
+**Ant.** Laudáte Dóminum, qui sanat contrítos corde, et álligat contritiónes eórum.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** Dóminus légifer noster, Dóminus Rex noster, ipse véniet, et salvábit nos.
+
+#### In Adventu
+
+**Capitulum** *Is. 2, 3*
+
+VENITE, et ascendámus ad montem Dómini, et ad domum Dei Jacob, et docébit nos vias suas, et ambulábimus in sémitis ejus: quia de Sion exíbit lex, et verbum Dómini de Jerúsalem.
+
+#### Hymnus
+
+EN, clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En, Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula.
+Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicuntur sequentes}
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei.

@@ -20710,3 +20710,57 @@ QUOD supérióri témpore Ezéchiel his verbis insectátus est: Væ pastóribus 
 VERUM ab utróque se dissidére osténdit Christus: ab illis quidem, qui in aliórum perníciem véniunt, cum dicat, se proptérea venísse, ut vitam habérent, et abundántius habérent; ab his autem, qui oves a lupis rapi negligébant, dicéndo se propter eas ánimam pónere, ne oves perírent. Nam cum Judǽi ipsum interímere vellent, non proptérea déstitit a doctrína, neque credéntes trádidit, sed pérstitit, et pértulit mortem: ídeo frequénter inquit: Ego sum pastor bonus. Quæ cum nullo niti testimónio vidéréntur, (quod enim póneret ánimam suam, non multo post demonstrátum est; quod autem vitam habérent, et abundántius habérent, eventúrum erat in futúro século), álterum ab áltero confírmat.
 
 {RUBRIC: Deinde dícitur} Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+#### Oratio
+
+DEUS, pro cujus Ecclésia gloriósus Póntifex Thomas gládiis impiórum occúbuit: præsta, quǽsumus; ut omnes, qui ejus implórant auxílium, petitiónis suæ salutárem consequántur efféctum. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Octávæ Nativitátis:}
+
+**Ant.** Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Vesperas Antiphónæ et Psalmi dicúntur de Nativitáte 402, Capítulum et réliqua de Communi. [30]}
+
+℣. Justus ut palma.
+
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget
+
+semetípsum, et tollat crucem suam, et sequátur me.
+
+{RUBRIC: Et fit Commemoratio sequentis diei infra Octavam.}
+
+---
+
+## Die 30 Decembris
+
+# De VI die infra Octavam Nativitatis
+
+{RUBRIC: Semiduplex}
+
+{RUBRIC: Omnia dicúntur ut in Festo Nativitátis 386, prǽter Lectiónes et Responsória, ut infra.}
+
+**Ant.** Hódie Christus natus est: hódie Salvátor appáruit: hódie in terra canunt Angeli, lætántur Archángeli: hódie exsúltant justi, dicéntes: Glória in excélsis Deo, allelúja.
+
+℣. Notum fecit {RUBRIC: et Oratio} Concéde, {RUBRIC: ut supra.}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 2, 1-13*
+
+PROPTER quod inexcusábilis es, o homo omnis, qui júdicas. In quo enim júdicas álterum, teípsum condémnas: éadem enim agis quæ júdicas. Scimus enim quóniam judícium Dei est secúndum veritátem in eos, qui tália agunt. Exístimas autem hoc, o homo, qui júdicas eos, qui tália agunt, et facis ea, quia tu effúgies judícium Dei? An divítias bonitátis ejus, et patién-

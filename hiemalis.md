@@ -28282,3 +28282,20 @@ LABOR discipulórum in remigándo, et contrárius eis ventus, labóres sanctæ E
 UNDE est illa vox ejus inter undas procellásque tentatiónum irruéntium deprehénsæ, atque auxílium protectiónis illíus gemebúndo clamóre quæréntis: Ut quid, Dómine, recessísti longe, déspicis in opportunitátibus, in tribulatióne? Quæ páriter vocem inimíci persequéntis expónit, in sequéntibus Psalmi subjíciens: Dixit enim in corde suo, Oblítus est Deus, avértit fáciem suam, ne vídeat usque in finem.
 
 ℟. Factus est sermo Dómini ad Abram, dicens: \* Noli timére, Abram: ego protéctor tuus sum, et merces tua magna nimis. ℣. Ego enim sum Dóminus Deus tuus, qui edúxi
+te de Ur Chaldæórum. — Noli timére, Abram: ego protéctor tuus sum, et merces tua magna nimis.
+
+#### Lectio iii
+
+VERUM ille non oblivíscitur oratiónem páuperum, neque avértit fáciem suam a sperántibus in se: quin pótius et certántes cum hóstibus, ut vincant, ádjuvat, et victóres in ætérnum corónat. Unde hic quoque apérte dícitur, quia vidit eos laborántes in remigándo. Videt quippe Dóminus laborántes in mari, quamvis ipse pósitus in terra: quia etsi ad horam differre videátur auxílium tribulátis impéndere, nihilóminus eos, ne in tribulatiónibus defíciant, suæ respéctu pietátis corróborat: et aliquándo étiam manifésto adjutório, victis adversitátibus, quasi calcátis sedatísque flúctuum volumínibus líberat.
+
+℟. Movens Abram tabernáculum suum, venit et habitávit juxta convállem Mambre: \* Ædificavítque ibi altáre Dómino. ℣. Dixit autem Dóminus ad eum: Leva óculos tuos, et vide: omnem terram quam cónspicis, tibi dabo, et sémini tuo in sempitérnum. — Ædificavítque. Glória Patri. Ædificavítque.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Me étenim \* de die in diem quǽrunt, et scire vias meas volunt.
+
+#### Oratio
+
+ADÉSTO, Dómine, supplicatiónibus nostris: et concéde; ut hoc solémne jejúnium, quod animábus corporibúsque curándis salúbriter institútum est, devóto servítio celebrémus. Per Dóminum.
+
+---

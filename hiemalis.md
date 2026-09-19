@@ -27389,3 +27389,26 @@ HÆ sunt generatiónes Noë: Noë vir justus atque perféctus fuit in generatió
 HABES, quia irátus Dóminus est: quóniam quamvis cogitáret, hoc est scíret, quia homo pósitus in terræ regióne, carnem portans, sine peccáto esse non possit, (terra enim velut quidam tentatiónum locus est, caróque corruptélæ illécebra) tamen cum habérent mentem ratiónis capácem, virtutémque ánimæ infúsam córpori, sine consideratióne áliqua in lapsum ruérunt, ex quo revocáre se nollent. Neque enim Deus cógitat sicut hómines, ut áliqua ei nova succédat senténtia, neque iráscitur quasi mutábilis: sed ídeo hæc legúntur, ut exprimátur peccatórum nostrórum acérbitas, quæ divínam merúerit offénsam: tamquam eoúsque increvérit culpa, ut étiam Deus, qui naturáliter non movétur aut ira, aut ódio, aut passióne ulla, provocátus videátur ad iracúndiam.
 
 ℟. Ædificávit Noë altáre Dómino, ófferens super illud holocáustum: odoratúsque est Dóminus odó-
+rem suavitátis, et benedíxit ei, dicens: \* Créscite, et multiplicámini, et repléte terram. ℣. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos. — Créscite.
+
+#### Lectio v
+
+MINITÁTUS est prætérea, quod deléret hóminem. Ab hómine, inquit, usque ad pecus, et a reptílibus usque ad volatília delébo. Quid lǽserant irrationabília? Sed quia propter hóminem illa facta erant, eo útique deléto, propter quem facta sunt, cónsequens erat, ut étiam illa deleréntur, quia non erat qui his uterétur. Sensu autem altióre illud manifestátur: quia homo mens est, quæ est ratiónis capax. Homo enim finítur ánimal vivum, mortále, rationábile. Principáli ígitur exstíncto, étiam sensus omnis exstínguitur: eo quod nihil réliqui ad salútem supérsit, cum salútis fundaméntum virtus defécerit.
+
+℟. Ponam arcum meum in núbibus cæli, dixit Dóminus ad Noë: \* Et recordábor fœderis mei, quod pépigi tecum. ℣. Cumque obdúxero núbibus cælum, apparébit arcus meus in núbibus. — Et recordábor.
+
+#### Lectio vi
+
+AD condemnatiónem autem ceterórum, et ad expressiónem pietátis divínæ, dícitur Noë apud Deum grátiam invenísse. Simul osténditur, quod hóminem justum non obúmbret aliórum offénsio, quando ipse ad totíus géneris reservátur seminárium. Qui non generatiónis nobilitáte, sed justítiæ et perfectiónis mérito laudátur. Probáti enim viri genus, virtútis prosápia est: quia sicut hóminum genus hómines, ita animárum genus virtútes sunt. Etenim famíliæ hóminum splendóre géneris nobilitántur, animárum autem clarificátur grátia splendóre virtútis.
+
+℟. Per memetípsum jurávi, dicit Dóminus, non adjíciam ultra aquas dilúvii super terram: pacti mei recordábor, \* Ut non perdam aquis dilúvii omnem carnem. ℣. Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. — Ut. Glória Patri. Ut.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 8, 4-15*
+
+IN illo témpore: Cum turba plúrima convenírent, et de civitátibus

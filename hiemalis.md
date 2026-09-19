@@ -30233,3 +30233,34 @@ QUOD ubi rescivísset is, cui eam paréntes contra vírginis voluntátem despón
 #### Lectio vi
 
 QUAM cum Paschásius interrogásset, Estne in te Spíritus Sanctus? respóndit: Caste et pie vivéntes templum sunt Spíritus Sancti. At ille: Jubébo te ad lupánar duci, ut te Spíritus Sanctus déserat. Cui virgo: Si invítam jússeris violári, cástitas mihi duplicábitur ad corónam. Quare Paschásius ira inflammátus, Lúciam eo trahi jussit, ubi ejus virgínitas violarétur: sed divínitus factum est, ut firma virgo ita consísteret, ut nulla vi de loco dimovéri posset. Quam ob rem præféctus circum ipsam, pice, resína, ac fervénti óleo perfúsam, ignem accéndi imperávit: sed cum ne flamma quidem eam lǽderet, multis torméntis excruciátæ guttur gládio transfígitur. Quo vúlnere accépto, Lúcia prædícens Ecclésiæ tranquillitátem, quæ futúra erat Diocletiáno et Maximiáno mórtuis, Idibus Decémbris spíritum Deo réddidit. Cujus corpus Syracúsis sepúltum, deínde Constantinópolim, postrémo Venétias translátum est.
+
+
+℟. Grata facta est a Dómino in certámine, quia apud Deum et apud hómines glorificáta est: in conspéctu príncipis loquebátur sapiéntiam: \* Et Dóminus ómnium diléxit eam. ℣. Adjuvábit eam Deus vultu suo: Deus in médio ejus, non commovébitur. — Et. Glória Patri. Et.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+LUCIA virgo Syracúsana, génere et christiána fide nóbilis, Cátanæ ad beátæ Agathæ sepúlcrum, Eutýchiæ matris, sánguinis fluxu laborántis, sanitátem impetrávit. Mox bona ómnia quæ in dotem esset acceptúra, a matre impetráta, paupéribus distríbuit. Quare apud Paschásium præféctum, quod christiána esset, accusáta, nec blandítiis nec minis addúci pótuit, ut idólis sacrificáret. Tunc Paschásius ira inflammátus, Lúciam eo trahi jussit, ubi ejus virgínitas violarétur; sed divínitus factum est, ut firma virgo ita consísteret, ut nulla vi de loco dimovéri posset. Quam ob rem præféctus circum ipsam ignem accéndi imperávit; sed cum ne flamma quidem eam lǽderet, multis torméntis excruciátæ guttur gládio transfígitur. Quo vúlnere accépto, Lúcia prædícens Ecclésiæ tranquillitátem, quæ futúra erat Diocletiáno et Maximiáno mórtuis, Idibus Decémbris spíritum Deo réddidit. Cujus corpus Syracúsis sepúltum, deínde Constantinópolim, postrémo Venétias translátum est.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 13, 44-52*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile est regnum cælórum thesáuro abscóndito in agro. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 11 in Evangelia}
+
+CÆLÓRUM regnum, fratres caríssimi, idcírco terrénis rebus símile dícitur, ut, ex his quæ ánimus novit, surgat ad incógnita, quæ non novit: quátenus exémplo visibílium se ad invisibília rápiat, et per ea quæ usu dídicit quasi confricátus incaléscat; ut per hoc, quod scit notum dilígere, discat et incógnita

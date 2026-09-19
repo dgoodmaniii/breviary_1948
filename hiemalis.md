@@ -15699,3 +15699,61 @@ Defíciant peccatóres a terra, et iníqui ita ut non sint: \* benedíc, ánima 
 #### In Officio feriali Adventus
 
 {RUBRIC: Sabbato post Dominicam I:} **Ant.** Ecce Dóminus véniet, et omnes Sancti ejus
+cum eo: et erit in die illa lux magna, allelúja.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:} **Ant.** Ego Dóminus prope feci justítiam meam, non elongábitur, et salus mea non morábitur.
+
+#### Capitulum
+
+*Jer. 23, 6*
+
+IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc est nomen, quod vocábunt eum, Dóminus justus noster.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 24}
+
+#### Per Annum
+
+{RUBRIC: (et in Officio Dominicæ post Oct. Epiph. anticipátæ)}
+
+#### Capitulum
+
+*Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: Sabbato post Cineres et in Vigíliis commúnibus Preces feriáles, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 24}
+
+---
+
+### Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prǽmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,

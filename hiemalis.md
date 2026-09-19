@@ -27892,3 +27892,73 @@ NOTÁNDUM vero est, quod cum Jesus Jéricho propinquáre dícitur, cæcus illum�
 ### Ad Laudes
 
 **Ant. 1** Secúndum multitúdinem \* miseratiónum
+tuárum, Dómine, dele iniquitátem meam.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 48}
+
+**2** Deus meus es tu, \* et confitébor tibi: Deus meus es tu, et exaltábo te.
+
+**3** Ad te de luce \* vígilo, Deus, ut vídeam virtútem tuam.
+
+**4** Hymnum dícite, \* et superexaltáte eum in sǽcula.
+
+**5** Omnes Angeli \* ejus, laudáte Dóminum de cælis.
+
+**Capitulum** *1 Cor. 13, 1*
+
+FRATRES: Si linguis hóminum loquar et Angelórum, caritátem autem non hábeam, factus sum velut æs sonans, aut cýmbalum tínniens.
+
+#### Hymnus
+
+ÆTÉRNE rerum Cónditor,
+Noctem diémque qui regis,
+Et témporum das témpora,
+Ut álleves fastídium.
+
+Noctúrna lux viántibus
+A nocte noctem ségregans,
+Præco diéi jam sonat,
+Jubárque solis évocat.
+
+Hoc excitátus Lúcifer
+Solvit polum calígine:
+Hoc omnis errónum cohors
+Viam nocéndi déserit.
+
+Hoc nauta vires cólligit,
+Pontíque mitéscunt freta:
+Hoc, ipsa petra Ecclésiæ,
+Canénte, culpam díluit.
+
+Surgámus ergo strénue:
+Gallus jacéntes éxcitat,
+Et somnoléntos íncrepat,
+Gallus negántes árguit.
+
+Gallo canénte, spes redit,
+Ægris salus refúnditur,
+Mucro latrónis cónditur,
+Lapsis fides revértitur.
+
+Jesu, labántes réspice,
+Et nos vidéndo córrige:
+Si réspicis, labes cadunt,
+Fletúque culpa sólvitur.
+
+Tu, lux, refúlge sénsibus,
+Mentísque somnum díscute:
+Te nostra vox primum sonet,
+Et vota solvámus tibi.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum. Amen.
+
+℣. Dómine, refúgium factus es nobis. ℟. A generatióne et progénie.
+
+**Ad Bened. Ant.** Ecce ascéndimus \* Jerosólymam, et consummabúntur ómnia, quæ scripta sunt de Fílio hóminis: tradétur enim géntibus, et illudétur, et conspuétur: et postquam flagelláverint, occídent eum, et tértia die resúrget.
+
+#### Oratio
+
+PRECES nostras, quǽsumus, Dómine, cleménter exáudi: atque, a pec-

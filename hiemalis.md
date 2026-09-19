@@ -8497,3 +8497,51 @@ Dóminus mortíficat et vivíficat, \* dedúcit ad ínferos et redúcit.
 Dóminus páuperem facit et ditat, \* humíliat et súblevat.
 
 Súscitat de púlvere egénum, \* et de stércore élevat páuperem:
+
+Ut sédeat cum princípibus, \* et sólium glóriæ téneat.
+
+Dómini enim sunt cárdines terræ, \* et pósuit super eos orbem.
+
+Pedes sanctórum suórum servábit, et ímpii in ténebris conticéscent: \* quia non in fortitúdine sua roborábitur vir.
+
+Dóminum formidábunt adversárii ejus: \* et super ipsos in cælis tonábit:
+
+Dóminus judicábit fines terræ, et dabit impérium regi suo, \* et sublimábit cornu Christi sui.
+
+**Ant.** Exsultávit cor meum in Dómino, qui humíliat et súblevat.
+
+**Ant.** Lauda. †
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Ecce, véniet Dóminus, ut sédeat cum princípibus, et sólium glóriæ téneat.
+
+**Ant.** Annuntiáte.
+
+### Psalmus 145
+
+LAUDA, † ánima mea, Dóminum, laudábo Dóminum in vita mea: \* psallam Deo meo quámdiu fúero.
+
+Nolíte confídere in princípibus: \* in fíliis hóminum, in quibus non est salus.
+
+Exíbit spíritus ejus, et revertétur in terram suam: \* in illa die períbunt omnes cogitatiónes eórum.
+
+Beátus, cujus Deus Jacob adjútor ejus, spes ejus in Dómino, Deo ipsíus: \* qui fecit cælum et terram, mare, et ómnia, quæ in eis sunt.
+
+Qui custódit veritátem in séculum, facit judícium injúriam patiéntibus: \* dat escam esuriéntibus.
+
+Dóminus solvit compedítos: \* Dóminus illúminat cæcos.
+
+Dóminus érigit elísos, \* Dóminus díligit justos.
+
+Dóminus custódit ádvenas, pupíllum et víduam suscípiet: \* et vias peccatórum dispérdet.
+
+Regnábit Dóminus in sécula, Deus tuus, Sion, \* in generatiónem et generatiónem.
+
+**Ant.** Lauda, ánima mea, Dóminum, qui érigit elísos, et díligit justos.
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Annuntiáte pópulis, et dícite: Ecce, Deus Salvátor noster véniet.
+
+#### In Adventu
+
+**Capitulum** *Is. 2, 3*
+
+VENITE, et ascendámus ad montem Dómini, et ad domum Dei Jacob, et docébit nos vias suas, et ambulábimus in sémitis ejus: quia de Sion exíbit lex, et verbum Dómini de Jerúsalem.

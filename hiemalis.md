@@ -30526,3 +30526,16 @@ IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui
 {RUBRIC: Oratio de laudibus S. Maríæ Deíparæ}
 
 QUID dicam, aut quid próloquar de præclára et sancta Vírgine? Solo enim Deo excé-
+pto, cunctis supérior éxstitit: natúra formósior est ipsis Chérubim et Séraphim, et omni exércitu Angélico: cui prædicándæ cæléstis ac terréna lingua mínime súfficit, immo vero nec Angelórum. O beáta Virgo, colúmba pura et sponsa cæléstis, María, cælum, templum, et thronus divinitátis, quæ coruscántem in cælo et in terra solem habes Christum! Nubes lúcida, quæ fulgur de cælo lucidíssimum ad illuminándum mundum deduxísti Christum. Ave, grátia plena, porta cælórum, de qua in Cánticis prophéta in decúrsu oratiónis plane et apérte lóquitur inclámans: Hortus conclúsus soror mea sponsa, hortus conclúsus, fons signátus.
+
+℟. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons signátus: \* Emissiónes tuæ paradísus, o María. ℣. Aperi mihi, soror mea, amíca mea, colúmba mea, immaculáta mea. — Emissiónes.
+
+#### Lectio viii
+
+VIRGO est lílium immaculátum, quæ rosam immarcescíbilem génuit Christum. O sancta Deípara, ovis immaculáta quæ Verbum ex te incarnátum Agnum Christum peperísti! O Virgo sanctíssima, quæ exércitus Angelórum in stupórem deduxísti! Stupéndum est miráculum in cælis, múlier amícta sole, gestans lucem in ulnis: stupéndum miráculum in cælis, thálamus Vírginis habens Fílium Dei: stupéndum miráculum in cælis, Dóminus Angelórum infans Vírginis efféctus est. Angeli accusábant Hevam, nunc vero Maríam glória prosequúntur, quæ lapsam Hevam eréxit, et Adámum e paradíso dejéctum in cælos misit. Ipsa enim est cæli et terræ mediátrix, quæ uniónem naturáliter perégit.
+
+℟. Magníficat ánima mea Dóminum: \* Quia fecit mihi magna qui potens est, et sanctum nomen ejus. ℣. Ecce enim ex hoc beátam me dicent omnes generatiónes. — Quia. Glória Patri. Quia.
+
+#### Lectio ix
+
+GRÁTIA sanctæ Vírginis est imménsa. Hinc Gábriel in primis salútat Vírginem, dicens: Ave, grátia plena, quæ es spléndidum cælum. Ave, grátia plena, multis virtútibus exornáta Virgo. Ave, grátia plena, quæ es urna áurea cóntinens manna cæléste. Ave, grátia plena,

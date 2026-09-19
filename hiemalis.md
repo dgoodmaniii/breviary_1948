@@ -6122,3 +6122,55 @@ Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóni
 Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte tua.
 
 **Ant.** Cantáte Dómino, et benedícite nómini ejus.
+
+**Ant.** Salutáre vultus mei \* Deus meus.
+
+### Psalmus 42
+
+JUDICA me, Deus, et discérne causam meam de gente non sancta, \* ab hómine iníquo, et dolóso érue me.
+
+Quia tu es, Deus, fortitúdo mea: \* quare me repulísti? et quare tristis incédo, dum afflígit me inimícus?
+
+Emítte lucem tuam et veritátem tuam: \* ipsa me deduxérunt, et adduxérunt in montem sanctum tuum, et in tabernácula tua.
+
+Et introíbo ad altáre Dei: \* ad Deum, qui lætíficat juventútem meam.
+
+Confitébor tibi in cíthara, Deus, Deus meus: \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Ant.** Salutáre vultus mei Deus meus.
+
+**Ant.** Illúmina, Dómine, \* vultum tuum super nos.
+
+### Psalmus 66
+
+DEUS misereátur nostri, et benedícat nobis: \* illúminet vultum suum super nos, et misereátur nostri.
+
+Ut cognoscámus in terra viam tuam, \* in ómnibus géntibus salutáre tuum.
+
+Confiteántur tibi pópuli, Deus: \* confiteántur tibi pópuli omnes.
+
+Læténtur et exsúltent gentes: \* quóniam júdicas pópulos in æquitáte, et gentes in terra dírigis.
+
+Confiteántur tibi pópuli, Deus, confiteántur tibi pópuli omnes: \* terra dedit fructum suum.
+
+Benedícat nos Deus, Deus noster, benedícat nos Deus: \* et métuant eum omnes fines terræ.
+
+**Ant.** Illúmina, Dómine, vultum tuum super nos.
+
+**Ant.** Exaltáte \* Regem sæculórum in opéribus vestris.
+
+#### Canticum Tobiæ
+
+*Tob. 13, 1-10*
+
+MAGNUS es, Dómine, in ætérnum, \* et in ómnia sécula regnum tuum:
+
+Quóniam tu flagéllas, et salvas: dedúcis ad ínferos, et redúcis: \* et non est qui effúgiat manum tuam.
+
+Confitémini Dómino, fílii Israël, \* et in conspéctu géntium laudáte eum:
+
+Quóniam ídeo dispérsit vos inter gentes, quæ ignórant eum, \* ut vos enarrétis mirabília ejus.
+
+Et faciátis scire eos, \* quia non est álius Deus omnípotens præter eum.

@@ -19750,3 +19750,64 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 SURREXÉRUNT autem quidam de synagóga, quæ appellátur Libertinórum, et Cyrenénsium, et Alexandrinórum, et eórum qui erant a Cilícia, et Asia, disputántes cum Stéphano: et non póterant resístere sapiéntiæ, et Spirítui qui loquebátur.
 
 ℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. Glória Patri. Posuísti. ℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+### Ad Nonam
+
+**Ant.** Ecce vídeo \* cælos apértos, et Jesum stantem a dextris virtútis Dei.
+
+#### Capitulum
+
+*Act. 7, 60*
+
+POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+℟. br. Magna est glória ejus \* In salutári tuo. Magna. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna. ℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+#### Oratio
+
+DA nobis, quǽsumus, Dómine, imitári quod cólimus: ut discámus et inimícos dilígere; quia ejus natalítia celebrámus, qui novit étiam pro persecutóribus exoráre Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum.
+
+### In II Vesperis
+
+{RUBRIC: Antíphonæ et Psalmi de Nativitáte. 402}
+
+#### Capitulum
+
+*Act. 6, 8*
+
+STÉPHANUS autem plenus grátia et fortitúdine, faciébat prodígia et signa magna in pópulo.
+
+#### Hymnus
+
+DEUS, tuórum mílitum
+Sors, et corónа, prǽmium,
+Laudes canéntes Mártyris
+Absólve nexu críminis.
+
+Hic nempe mundi gáudia,
+Et blanda fraudum pábula
+Imbúta felle députans,
+Pervénit ad cæléstia.
+
+Pœnas cucúrrit fórtiter,
+Et sústulit viríliter,
+Fundénsque pro te sánguinem,
+Ætérna dona póssidet.
+
+Ob hoc precátu súpplici
+Te póscimus, piíssime:
+In hoc triúmpho Mártyris
+Dimítte noxam sérvulis.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Stéphanus vidit cælos apértos. ℟. Vidit, et introívit: beátus homo, cui cæli patébant.
+
+**Ad Magnif. Ant.** Sepeliérunt Stéphanum \* viri timoráti, et fecérunt planctum magnum super eum.
+
+{RUBRIC: Et fit Commemorátio sequéntis et Octávæ Nativitátis, ut infra.}
+
+{RUBRIC: ¶ De Octáva S. Stéphani, sicut et de Octávis S. Joánnis

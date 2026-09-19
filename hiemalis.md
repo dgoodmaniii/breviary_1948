@@ -17631,3 +17631,69 @@ quibus occúrrat Festum novem Lectiónum, eo anno omittúntur.
 **2** Convértere, Dómine, \* aliquántulum, et ne tardes veníre ad servos tuos.
 
 **3** De Sion \* véniet, qui regnatúrus est Dóminus, Emmánuel magnum nomen ejus.
+
+**4** Ecce Deus meus, \* et honorábo eum: Deus patris mei, et exaltábo eum.
+
+**5** Dóminus \* légifer noster, Dóminus Rex noster, ipse véniet, et salvábit nos.
+
+### Feria Sexta
+
+#### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Constántes estóte, \* vidébitis auxílium Dómini super vos.
+
+{RUBRIC: Psalmi de Féria 2 loco. 248}
+
+**2** Ad te, Dómine, \* levávi ánimam meam: veni, et éripe me, Dómine, ad te confúgi.
+
+**3** Veni, Dómine, \* et noli tardáre: reláxa facínora plebi tuæ Israël.
+
+**4** Deus a Líbano véniet, \* et splendor ejus sicut lumen erit.
+
+**5** Ego autem \* ad Dóminum aspíciam, et exspectábo Deum, Salvatórem meum.
+
+### Sabbato
+
+#### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Intuémini, \* quam sit gloriósus iste, qui ingréditur ad salvándos pópulos.
+
+{RUBRIC: Psalmi de Sábbato 2 loco. 289}
+
+**2** Multiplicábitur \* ejus impérium, et pacis non erit finis.
+
+**3** Ego Dóminus \* prope feci justítiam meam, non elongábitur, et salus mea non morábitur.
+
+**4** Exspectétur, \* sicut plúvia, elóquium Dómini: et descéndat, sicut ros, super nos Deus noster.
+
+**5** Parátus esto, \* Israël, in occúrsum Dómini, quóniam venit.
+
+#### A die 17 Decembris cessant omnes Octavæ usque ad Vigiliam Nativitatis Domini inclusive.
+
+{RUBRIC: Die 21 Decémbris, si fiat Offícium de Festo occurrénti, pro Commemoratióne Advéntus, ad Laudes pónitur}
+
+**Ant.** Nolíte timére: \* quinta enim die véniet ad vos Dóminus noster.
+
+{RUBRIC: Si vero ea die fiat Offícium de Dominica, Antiphóna prædícta dícitur ad Benedíctus, loco Antiphónæ Ave, María.}
+
+{RUBRIC: Ultimo die ante Vigíliam Nativitátis:}
+
+**Ad Bened. Ant.** Ecce compléta sunt \* ómnia, quæ dicta sunt per Ángelum de Vírgine María.
+
+{RUBRIC: Quibus Antiphónis cedunt áliæ Antíphonæ in própriis locis ad Benedíctus assignátæ.}
+
+---
+
+### Feria Secunda
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 28, 1-7*
+
+VÆ corónæ supérbiæ, ébriis Ephraim, et flori decidénti, glóriæ exsultatiónis ejus, qui erant in vér-

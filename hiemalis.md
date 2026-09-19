@@ -19876,3 +19876,22 @@ FILÍOLI mei, hæc scribo vobis, ut non peccétis. Sed et si quis peccáverit, a
 *Cap. 9*
 
 JOÁNNES Apóstolus, quem Jesus amávit plúrimum, fílius Zebedǽi, frater Jacóbi Apóstoli, quem Heródes post passiónem Dómini de-
+collávit, novíssimus ómnium scripsit Evangélium, rogátus ab Ásiæ epíscopis, advérsus Cerínthum aliósque haeréticos, et máxime tunc Ebionitárum dogma consúrgens, qui ásserunt Christum ante Maríam non fuísse: unde et compúlsus est divínam ejus nativitátem edícere.
+
+℟. Qui vícerit, fáciam illum colúmnam in templo meo, dicit Dóminus: \* Et scribam super eum nomen meum, et nomen civitátis novæ Jerúsalem. ℣. Vincénti dabo édere de ligno vitæ, quod est in paradíso Dei mei. — Et.
+
+#### Lectio v
+
+QUARTO décimo ígitur anno, secúndam post Nerónem persecutiónem movénte Domitiáno, in Patmos ínsulam relegátus, scripsit Apocalýpsim, quam interpretátur Justínus Martyr, et Irenǽus. Interfécto autem Domitiáno, et actis ejus ob nímiam crudelitátem a senátu rescíssis, sub Nerva príncipe rédiit Éphesum: ibíque usque ad Trajánum príncipem persevérans, totas Ásiæ fundávit rexítque ecclésias: et conféctus sénio, sexagésimo octávo post passiónem Dómini anno mórtuus, juxta eámdem urbem sepúltus est.
+
+℟. Diligébat autem eum Jesus, quóniam speciális prærogatíva castitátis amplióri dilectióne fécerat dignum: \* Quia virgo eléctus ab ipso, virgo in ævum permánsit. ℣. In cruce dénique moritúrus, huic Matrem suam vírginem vírgini commendávit. — Quia.
+
+{RUBRIC: Ex Commentáriis ejúsdem in Epístolam ad Gálatas}
+
+#### Lectio vi
+
+*Lib. 3, cap. 6*
+
+BEÁTUS Joánnes Evangelísta cum Ephesi morarétur usque ad últimam senectútem, et vix inter discipulórum manus ad Ecclésiam deferrétur, nec posset in plúra vocem verba contéxere; nihil áliud per síngulas solébat proférre colléctas, nisi hoc: Filíoli, dilígite altérutrum. Tandem discípuli et fratres, qui áderant, tǽdio afécti quod éadem semper audírent, dixérunt: Magíster, quare semper hoc lóqueris? Qui respóndit dignam Joánne senténtiam: Quia præcéptum Dómini est; et, si solum fiat, súfficit.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.

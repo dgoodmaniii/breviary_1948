@@ -30175,3 +30175,50 @@ EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ Lúciæ Vírginis et 
 **Ant.** Hódie egréssa est virga de radíce Jesse: hódie sine ulla peccáti labe concépta est María: hódie contrítum est ab ea caput serpéntis antíqui, allelúja.
 
 ℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: quǽsumus; ut, qui ex morte ejúsdem Fílii tui prævísa, eam ab omni labe præservásti, nos quoque mundos ejus intercessióne ad te perveníre concédas. (Per eúmdem Dóminum.)
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+{RUBRIC: Completórium de Féria.}
+
+##### Ad Matutinum
+
+**Invitat.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+VIRGINIS Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis partos cánimus decóra
+Morte triúmphos.
+
+Hæc enim palmæ dúplicis beáta
+Sorte, dum gestit frágilem domáre
+Córporis sexum, dómuit cruéntum
+Cæde tyránnum.
+
+Unde nec mortem, nec amíca mortis
+Mille pœnárum génera expavéscens,
+Sánguine effúso méruit serénum
+Scándere cælum.
+
+Hujus orátu, Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+Témporis ævo. Amen.
+
+### In II Nocturno
+
+#### Lectio iv
+
+LUCIA virgo Syracúsana, génere et christiána fide ab infántia nóbilis, una cum matre Eutýchia, quæ sánguinis fluxu laborábat, Cátanam ad venerándum corpus beátæ Agathæ venit: quæ ad ejus sepúlcrum cum supplíciter orásset, Agathæ intercessióne matri sanitátem impetrávit. Statim vero matrem exorávit, ut quam dotem sibi datúra esset, Christi paupéribus tríbui paterétur. Ut ígitur Syracúsas rédiit, omnem pecúniam, quam ex facultátibus vénditis redégerat, paupéribus distríbuit.
+
+℟. Lúcia virgo, quid a me petis quod ipsa póteris præstáre contínuo matri tuæ? nam et fides tua illi

@@ -8976,3 +8976,59 @@ Nostro refúsus péctori.
 
 Os, lingua, mens, sensus, vigor
 Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Deus ádjuvat me.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria IV post Dominicam I:} **Ant.** Jucundáre.
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Spíritus.
+
+### Psalmus 53
+
+DEUS, in nómine tuo salvum me fac: \* et in virtúte tua júdica me.
+
+Deus, exáudi oratiónem meam: \* áuribus pércipe verba oris mei.
+
+Quóniam aliéni insurrexérunt advérsum me, et fortes quæsiérunt ánimam meam: \* et non proposuérunt Deum ante conspéctum suum.
+
+Ecce enim, Deus ádjuvat me: \* et Dóminus suscéptor est ánimæ meæ.
+
+Avérte mala inimícis meis: \* et in veritáte tua dispérde illos.
+
+Voluntárie sacrificábo tibi, \* et confitébor nómini tuo, Dómine: quóniam bonum est:
+
+Quóniam ex omni tribulatióne eripuísti me: \* et super inimícos meos despéxit óculus meus.
+
+### Psalmus 54, i
+
+EXAUDI, Deus, oratiónem meam, et ne despéxeris deprecatiónem meam: \* inténde mihi, et exáudi me.
+
+Contristátus sum in exercitatióne mea: \* et conturbátus sum a voce inimíci, et a tribulatióne peccatóris.
+
+Quóniam declinavérunt in me iniquitátes: \* et in ira molésti erant mihi.
+
+Cor meum conturbátum est in me: \* et formído mortis cécidit super me.
+
+Timor et tremor venérunt super me: \* et contexérunt me ténebræ.
+
+Et dixi: Quis dabit mihi pennas sicut colúmbæ, \* et volábo, et requiéscam?
+
+Ecce, elongávi fúgiens: \* et mansi in solitúdine.
+
+Exspectábam eum, qui salvum me fecit \* a pusillanimitáte spíritus et tempestáte.
+
+Præcípita, Dómine, dívide linguas eórum: \* quóniam vidi iniquitátem, et contradictiónem in civitáte.
+
+Die ac nocte circúmdabit eam super muros ejus iníquitas: \* et labor in médio ejus, et injustítia.
+
+Et non defécit de platéis ejus \* usúra, et dolus.

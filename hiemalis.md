@@ -11852,3 +11852,86 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 ℣. Divínum auxílium.
 
 Pater noster, Ave María et Credo.
+
+## Feria Sexta
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+#### In Officio feriali Adventus
+
+##### Infra Hebdomadam I et II:
+
+**Invit.** Regem ventúrum Dóminum, \* Veníte, adorémus.
+
+##### Infra Hebdomadam III et IV:
+
+**Invit.** Prope est jam Dóminus: \* Veníte, adorémus.
+
+##### In Vig. Nativitatis Domini:
+
+**Invit.** Hódie sciétis, quia véniet Dóminus: \* Et mane vidébitis glóriam ejus.
+
+#### Hymnus
+
+VERBUM supérnum, pródiens
+E Patris ætérni sinu,
+Qui natus orbi súbvenis,
+Labénte cursu témporis:
+
+Illúmina nunc péctora,
+Tuóque amóre cóncrema;
+Ut cor cadúca déserens
+Cæli volúptas ímpleat.
+
+Ut, cum tribúnal Júdicis
+Damnábit igni nóxios,
+Et vox amíca débitum
+Vocábit ad cælum pios;
+
+Non esca flammárum nigros
+Volvámur inter túrbines,
+Vultu Dei sed cómpotes
+Cæli fruámur gáudiis.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Séclum per omne glória.
+Amen.
+
+#### Per Annum
+
+**Invit.** Dóminum, Deum nostrum, \* Veníte, adorémus. *Ps. 94* Veníte.
+
+#### Hymnus
+
+TU, Trinitátis Únitas,
+Orbem poténter quæ regis,
+Atténde laudis cánticum,
+Quod excubántes psállimus.
+
+Nam léctulo consúrgimus
+Noctis quiéto témpore,
+Ut flagitémus ómnium
+A te medélam vúlnerum.
+
+Quo fraude quidquid dæmonum
+In nóctibus delíquimus,
+Abstérgat illud cælitus
+Tuæ potéstas glóriæ.
+
+Ne corpus astet sórdidum,
+Nec torpor instet córdium,
+Ne críminis contágio
+Tepéscat ardor spíritus.
+
+Ob hoc, Redémptor, quǽsumus,
+Reple tuo nos lúmine,
+Per quod diérum círculis
+Nullis ruámus áctibus.

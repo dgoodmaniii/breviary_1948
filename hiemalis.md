@@ -21139,3 +21139,35 @@ DÓMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui háb
 Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
 
 Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Elevámini, portæ æternáles, et introíbit Rex glóriæ.
+
+℣. Tamquam sponsus. ℟. Dóminus procédens de thálamo suo.
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 4, 1-17*
+
+QUID ergo dicémus invenísse Abraham patrem nostrum secúndum carnem? Si enim Abraham ex opéribus justificátus est, habet glóriam, sed non apud Deum. Quid enim dicit Scriptúra? Crédidit Abraham Deo: et reputátum est illi ad justítiam. Ei autem, qui operátur, merces non imputátur secúndum grátiam, sed secúndum débitum. Ei vero, qui non operátur, credénti autem in eum, qui justíficat ímpium, reputátur fides ejus ad justítiam secúndum propósitum grátiæ Dei. Sicut et David dicit beatitúdinem hóminis, cui Deus accépto fert justítiam sine opéribus: Beáti, quorum remíssæ sunt iniquitátes, et quorum tecta sunt peccáta. Beátus vir, cui non imputávit Dóminus peccátum.
+
+℟. Ecce Agnus Dei, ecce qui tollit peccáta mundi: ecce de quo dicébam vobis: \* Qui post me venit, ante me factus est: Cujus non sum dignus corrígiam calceaménti sólvere. ℣. Qui de terra est, de terra lóquitur: qui de cælo venit, super omnes est. — Cujus.
+
+#### Lectio ii
+
+BEATITÚDO ergo hæc in circumcisióne tantum manet, an étiam in præpútio? Dícimus enim quia reputáta est Abrahæ fides ad justítiam. Quómodo ergo reputáta est? in circumcisióne, an in præpútio? Non in circumcisióne, sed in præpútio. Et signum ac-

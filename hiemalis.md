@@ -27297,3 +27297,45 @@ VIXIT autem Maláleel sexagínta quinque annis, et génuit Jared. Et vixit Malá
 ET ambulávit Henoch cum Deo: et vixit, postquam génuit Mathúsalam, trecéntis annis: et génuit fílios et fílias. Et facti sunt omnes dies Henoch trecénti sexagínta quinque anni. Ambulavítque cum Deo, et non appáruit: quia tulit eum Deus. Vixit quoque Mathúsala centum octogínta septem annis, et génuit Lamech. Et vixit Mathúsala, postquam génuit Lamech, septingéntis octogínta duóbus annis: et génuit fílios et fílias. Et facti sunt omnes dies Mathúsala, nongénti sexagínta novem anni, et mórtuus est.
 
 ℟. Ecce Adam quasi unus ex nobis factus est, sciens bonum et malum: \* Vidéte, ne forte sumat de ligno vitæ, et vivat in ætérnum. ℣. Fecit quoque Dóminus Deus Adæ túnicam pellí-
+ceam, et índuit eum, et dixit. — Vidéte, ne forte sumat de ligno vitæ, et vivat in ætérnum.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Vidéte.}
+
+#### Lectio iii
+
+VIXIT autem Lamech centum octogínta duóbus annis, et génuit fílium: vocavítque nomen ejus Noë, dicens: Iste consolábitur nos ab opéribus et labóribus mánuum nostrárum in terra, cui maledíxit Dóminus. Vixítque Lamech, postquam génuit Noë, quingéntis nonagínta quinque annis: et génuit fílios et fílias. Et facti sunt omnes dies Lamech, septingénti septuagínta septem anni, et mórtuus est.
+
+℟. Ubi est Abel frater tuus? dixit Dóminus ad Cain. Néscio, Dómine, numquid custos fratris mei sum ego? Et dixit ad eum: Quid fecísti? \* Ecce vox sánguinis fratris tui Abel clamat ad me de terra. ℣. Maledíctus eris super terram, quæ apéruit os suum, et suscépit sánguinem fratris tui de manu tua. — Ecce. Glória Patri. Ecce.
+
+---
+
+## Sabbato ante Sexagesimam
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sábbato.} [REF: p. 312]
+
+**Capit.** *2 Cor. 11, 19-20*
+
+FRATRES: Libénter suffértis insipiéntes, cum sitis ipsi sapiéntes: sustinétis enim si quis vos in servitútem rédigit, si quis dévorat, si quis áccipit, si quis extóllitur, si quis in fáciem vos cædit.
+
+#### Hymnus
+
+JAM sol recédit ígneus:
+Tu, lux perénnis, Únitas,
+Nostris, beáta Trínitas,
+Infúnde lumen córdibus.
+
+Te mane laudum cármine,
+Te deprecámur véspere;
+Dignéris ut te súpplices
+Laudémus inter cǽlites.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sǽclum per omne glória. Amen.
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Dixit Dóminus \* ad Noë: Finis univérsæ carnis venit coram me: fac tibi arcam de lignis lævigátis, ut salvétur univérsum semen in ea.

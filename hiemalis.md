@@ -28483,3 +28483,54 @@ SED non omnes obédiunt Evangélio. Isaías enim dicit: Dómine, quis crédidit 
 ###### Psalmus 46
 
 OMNES gentes, plaúdite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+**Ant.** Dignum sibi Dóminus computávit Mártyrem, quem vocávit Apóstolum, dum esset in mari, allelúja.
+
+**Ant.** Diléxit Andréam \* Dóminus in odórem suavitátis.
+
+###### Psalmus 60
+
+EXÁUDI, Deus, deprecatiónem meam: \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi: \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea: \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sécula: \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam: \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in séculum séculi: \* ut reddam vota mea de die in diem.
+
+**Ant.** Diléxit Andréam Dóminus in odórem suavitátis.
+
+**Ant.** Bíduo vivens \* pendébat in cruce beátus Andréas pro Christi nómine, et docébat pópulum.
+
+###### Psalmus 63
+
+EXÁUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem

@@ -33184,3 +33184,15 @@ DEUS, qui sanctum Joánnem Confessórem tuum adolescéntium patrem et magístrum
 ℣. Diffúsa est grátia.
 
 {RUBRIC: Oratio Deus, qui inter, ut supra.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+JOÁNNES Bosco, húmili loco natus apud Castrum Novum in Asténsibus atque sanctíssime, patre amísso, disciplína matérna institútus, mira de se vel a prima ætáte porténdit. Ingénio enim mitis atque ad pietátem pronus, singulári se gerébat auctoritáte inter æquáles, quorum lites dirímere, fáciles rixas compónere, túrpia verba jocósque lascívos compéscere matúre cœpit. Tum verbis eos jucúndis ad se advocáre, ludis preces insérere, quæ sacra elóquia in templo audísset mirábili sermónis cópia ac dulcédine reférre, ad Pœniténtiæ et Eucharístiæ sacraménta rite suscipiénda púerulos quam primum quamque crebérrime indúcere satégit. Oris quoque decor verecúndus, morum suávitas atque innocentíssimæ vitæ candor ómnium ánimos ad eum pertrahébant. Licet vero, familiáris rei angústia pressus, labórum ærumnarúmque plenam adolescéntiam égerit, in id tamen unum hílaris ac Deo fidens conténdit, ut sacerdótio augerétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+VOTI tandem compos efféctus, Cheriénsem civitátem primum, ac dein Augústam Taurinórum pétiit, quo ácrius, beáto Josépho Cafásso magístro, et in sciéntia sanctórum profíceret et ad sacram morum doctrínam addiscéndam ánimum adjúngeret. Ibi autem, cum voluntátis inclinatióne tum supérno instínctu incitátus, suum in adolescéntulos ánimum convértit, ut prima iis christiánæ sapiéntiæ tráderet rudiménta. Quorum cum fíeret in dies major númerus, sedem ad eos coadunándos stábilem ac firmam, haud sine cælésti afflátu, ásperis et diutúrnis difficultátibus superátis, in illa urbis parte collocávit, quæ vulgo Valdócco appellátur, in eámque rem totus incúbuit. Paulo vero post, Vírgine Deípara auxiliánte, quæ ei puérulo per visum in somnis futúra innúerat, Joánnes Salesianórum Societátem instítuere decrévit, cujus esset

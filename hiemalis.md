@@ -34051,3 +34051,33 @@ Funes cecidérunt mihi in præcláris: \* étenim heréditas mea præclára est 
 Benedícam Dóminum, qui tríbuit mihi intelléctum: \* ínsuper et usque ad noctem increpuérunt me renes mei.
 
 Providébam Dóminum in conspéctu meo semper: \* quóniam a dextris est mihi, ne commóvear.
+
+Propter hoc lætátum est cor meum, et exsultávit lingua mea: \* ínsuper et caro mea requiéscet in spe.
+
+Quóniam non derelínques ánimam meam in inférno: \* nec dabis sanctum tuum vidére corruptiónem.
+
+Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo: \* delectatiónes in déxtera tua usque in finem.
+
+**Ant.** Propter fidem castitátis jussa sum suspéndi in equúleo: ádjuva me, Dómine, Deus meus, in tortúra mamillárum meárum.
+
+℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 19, 3-12*
+
+IN illo témpore: Accessérunt ad Jesum pharisǽi, tentántes eum et dicéntes: Si licet hómini dimíttere uxórem suam quacúmque ex causa? Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 63 in Matth., sub médium}
+
+DOMINUS noster, quia ad virginitátem hortári grave esse videbátur, a necessitáte legis de non solvéndo matrimónio, eos ad cupiditátem illíus tráhere studet. Deínde, ut eam esse possíbilem osténdat, sic inquit: Sunt eunúchi qui ex ventre matris ita nati sunt, et sunt qui ab homínibus eunúchi facti sunt, et sunt qui seípsos castravérunt propter regnum cælórum. Quibus verbis laténter eos ad eligéndam virginitátem indúcit, dum eam virtútem esse possíbilem ástruit.
+
+℟. Beáta Agatha, ingréssa cárcerem, expándit manus suas ad Deum, et dixit: Dómine, qui me fecísti víncere torménta carníficum, \* Jube me ad tuam misericórdiam perveníre. ℣. Dómine, qui me creásti, et tulísti a me amórem sǽculi, qui corpus meum a pollutióne separásti. — Jube.
+
+#### Lectio viii
+
+ID autem hoc fere modo confírmat: Cógita tecum, si aut a natúra talis esses, aut ab homínibus eam injúriam passus, quid fáceres, cum et ejúsmodi voluptáte caréres, et nullam, caréndo, mercédem consequeréris? Grátias ígitur nunc Deo agas, quod cum mercéde atque corónis idem sústines, quod illi sine corónis ac prǽmio tólerant. Immo vero non

@@ -33754,4 +33754,57 @@ In sæculórum sǽcula. Amen.
 
 ℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
 
-**Ad Magnif. Ant.** Stans beáta Agatha \* in médio cárceris, expánsis mánibus orábat ad Dóminum: Dómine Jesu Christe, magíster bone, grátias tibi
+**Ad Magnif. Ant.** Stans beáta Agatha \* in médio cárceris, expánsis mánibus orábat ad Dóminum: Dómine Jesu Christe, magíster bone, grátias tibi ago, qui me fecísti víncere torménta carníficum; jube me, Dómine, ad tuam immarcescíbilem glóriam felíciter perveníre.
+
+**Oratio** C 1
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Agathæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+℣. Jústum dedúxit.
+
+#### Oratio
+
+DEUS, qui in Ecclésia tua, nova semper instáuras exémpla virtútum: da pópulo tuo beáti Andréæ Confessóris tui atque Pontíficis ita sequi vestígia; ut assequátur et prǽmia. Per Dóminum.
+
+{RUBRIC: Deinde, in Quadragésima, Commemorátio Fériæ.}
+
+{RUBRIC: Complétorium de Féria.}
+
+### Ad Matutinum
+
+**Invitat.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+VIRGINIS Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis partos cánimus decóra
+    Morte triúmphos.
+
+Hæc enim palmæ dúplicis beáta
+Sorte, dum gestit frágilem domáre
+Córporis sexum, dómuit cruéntum
+    Cæde tyránnum.
+
+Unde nec mortem, nec amíca mortis
+Mille pœnárum génera expavéscens,
+Sánguine effúso méruit serénum
+    Scándere cælum.
+
+Hujus orátu, Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+    Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+    Témporis ævo. Amen.
+
+### In I Nocturno
+
+**Ant.** Ingénua sum, \* et ex spectábili génere, ut omnis parentéla mea testátur.

@@ -22954,3 +22954,60 @@ Deum faténtur múnere.
 
 Lavácra puri gúrgitis
 Cæléstis Agnus áttigit:
+Peccáta, quæ non détulit,
+Nos abluéndo sústulit.
+
+Novum genus poténtiæ:
+Aquæ rubéscunt hýdriæ,
+Vinúmque jussa fúndere,
+Mutávit unda oríginem.
+
+Jesu, tibi sit glória,
+Qui apparuísti géntibus,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: Sic termínantur Hymni per totam Octávam, nisi áliter conclúdendi sint, juxta Rubricas.}
+
+℣. Reges Tharsis et ínsulæ múnera ófferent. ℟. Reges Arabum et Saba dona addúcent.
+
+**Ad Magnif. Ant.** Magi \* vidéntes stellam, dixérunt ad ínvicem: Hoc signum magni Regis est: eámus et inquirámus eum, et offerámus ei múnera, aurum, thus et myrrham, allelúja.
+
+#### Oratio
+
+DEUS, qui hodiérna die Unigénitum tuum géntibus stella duce revelásti: concéde propítius; ut, qui jam te ex fide cognóvimus, usque ad contemplándam spéciem tuæ celsitúdinis perducámur. Per eúmdem Dóminum.
+
+{RUBRIC: In die Octava}
+
+#### Oratio
+
+DEUS, cujus Unigénitus in substántia nostræ carnis appáruit: præsta, quǽsumus; ut per eum, quem símilem nobis foris agnóvimus, intus reformári mereámur: Qui tecum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+{RUBRIC: Dictis Pater, Ave, et Credo, atque omíssis ℣. Dómine, lábia mea, Invitatório cum Ps. Veníte et Hymno, incípitur ab Ant. Afférte Dómino.}
+
+{RUBRIC: Infra Octávam vero dícitur:}
+
+℣. Dómine, lábia mea.
+
+**Invitat.** Christus appáruit nobis, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+{RUBRIC: Hymnus Crudélis Heródes, ut supra. [REF: p. 492]}
+
+### In I Nocturno
+
+**Ant.** Afférte Dómino, \* † fílii Dei, adoráte Dóminum in aula sancta ejus.
+
+#### Psalmus 28
+
+AFFÉRTE Dómino, † fílii Dei: \* afférte Dómino fílios aríetum.
+
+Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Vox Dómini super aquas, Deus majestátis intónuit: \* Dóminus super aquas multas.
+
+Vox Dómini in virtúte: \* vox Dómini in magnificéntia.

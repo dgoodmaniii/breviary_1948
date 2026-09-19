@@ -5690,3 +5690,72 @@ Pater, Ave et Credo.
 ##### In Vigilia Nativitatis Domini:
 
 **Invit.** Hódie sciétis quia véniet Dóminus: \* Et mane vidébitis glóriam ejus.
+
+#### Hymnus
+
+VERBUM supérnum, pródiens
+E Patris ætérni sinu,
+Qui natus orbi súbvenis,
+Labénte cursu témporis:
+
+Illúmina nunc péctora,
+Tuóque amóre cóncrema;
+Ut cor cadúca déserens
+Cæli volúptas ímpleat.
+
+Ut, cum tribúnal Júdicis
+Damnábit igni nóxios,
+Et vox amíca débitum
+Vocábit ad cælum pios;
+
+Non esca flammárum nigros
+Volvámur inter túrbines,
+Vultu Dei sed cómpotes
+Cæli fruámur gáudiis.
+
+Sic, Christe, nobis ómnibus
+Indúlgeas credéntibus,
+Ut prosit exorántibus
+Quod præcinéntes psállimus.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+#### Per Annum
+
+**Invitat.** Jubilémus Deo, \* Salutári nostro. *Ps. 94* Veníte, exsultémus.
+
+#### Hymnus
+
+CONSORS Patérni lúminis,
+Lux ipse lucis, et dies,
+Noctem canéndo rúmpimus:
+Assíste postulántibus.
+
+Aufer tenébras méntium,
+Fuga catérvas dæmónum,
+Expélle somnoléntiam,
+Ne pigritántes óbruat.
+
+#### In I Nocturno
+
+**Ant.** Expúgna, Dómine, \* impugnántes me.
+
+### Psalmus 34, i
+
+JUDICA, Dómine, nocéntes me, \* expúgna impugnántes me.
+
+Apprehénde arma et scutum: \* exsúrge in adjutórium mihi.
+
+Effúnde frámeam, et conclúde advérsus eos, qui persequúntur me: \* dic ánimæ meæ: Salus tua ego sum.
+
+Confundántur et revereántur, \* quæréntes ánimam meam.
+
+Avertántur retrórsum, et confundántur \* cogitántes mihi mala.
+
+Fiant tamquam pulvis ante fáciem venti: \* et Angelus Dómini coárctans eos.
+
+Fiat via illórum ténebræ et lúbricum: \* et Angelus Dómini pérsequens eos.

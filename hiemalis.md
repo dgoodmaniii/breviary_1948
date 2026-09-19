@@ -20128,3 +20128,27 @@ et noléntis consolári super eis, quia non sunt. Hæc dicit Dóminus: Quiéscat
 #### Lectio ii
 
 AUDIENS audívi Ephraim transmigrántem: Castigásti me, et erudítus sum, quasi juvénculus indómitus: convérte me, et convértar: quia tu Dóminus Deus meus. Postquam enim convertísti me, egi pœniténtiam: et postquam ostendísti mihi, percússi femur meum. Confúsus sum, et erúbui: quóniam sustínui oppróbrium adolescéntiæ meæ. Si fílius honorábilis mihi Ephraim, si puer delicátus: quia ex quo locútus sum de eo, adhuc recordábor ejus.
+
+℟. Sub altáre Dei audívi voces occisórum dicéntium: \* Quare non defén­dis sánguinem nostrum? Et accepérunt divínum respónsum: Adhuc sustinéte módicum tempus, donec impleátur númerus fratrum vestrórum. ℣. Vidi sub altáre Dei ánimas interfectórum propter verbum Dei, et propter testimónium quod habébant, et clamábant voce magna, dicéntes. — Quare.
+
+#### Lectio iii
+
+STÁTUE tibi spéculam, pone tibi amaritúdines: dírige cor tuum in viam rectam, in qua ambulásti: revértere virgo Israël, revértere ad civitátes tuas istas. Usquequo delíciis dissolvéris, fília vaga? quia creávit Dóminus novum super terram: Fémina circúmdabit virum. Hæc dicit Dóminus exercítuum, Deus Israël: Adhuc dicent verbum istud in terra Juda, et in úrbibus ejus, cum convértero captivitátem eórum: Benedícat tibi Dóminus, pulchritúdo justítiæ, mons sanctus.
+
+℟. Adoravérunt vivéntem in sécula sæculórum, \* Mitténtes corónas suas ante thronum Dómini Dei sui. ℣. Et cecidérunt in conspéctu throni in fácies suas: et benedixérunt vivéntem in sécula sæculórum. — Mitténtes. Glória Patri. Mitténtes.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 10 de Sanctis}
+
+#### Lectio iv
+
+HÓDIE, fratres caríssimi, natálem illórum infántium cólimus, quos ab Heróde crudelíssimo rege interféctos esse, Evangélii textus éloquitur. Et ídeo cum summa exsultatióne gáudeat terra, cæléstium mílitum et tantárum parens fœcúnda virtútum. Ecce profánus hostis numquam beátis párvulis tantum prodésse potuísset obséquio, quantum prófuit ódio. Nam, sicut sacratíssimum præséntis diéi festum maniféstat, quantum in beátos párvulos iníquitas abundávit, tantum in eis grátia benedictiónis refúdit.
+
+℟. Effudérunt sánguinem sanctórum velut aquam in circúitu Jerúsalem: \* Et non erat qui sepelíret. ℣. Posuérunt mortália servórum tuórum escas volatílibus cæli, carnes sanctórum tuórum béstiis terræ. — Et.
+
+#### Lectio v
+
+BEÁTA es, o Béthlehem terra Juda, quæ Heródis regis immanitátem in

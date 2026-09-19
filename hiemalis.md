@@ -16532,3 +16532,28 @@ LAVÁMINI, mundi estóte, auférte malum cogitatiónum vestrárum ab óculis mei
 #### Lectio ii
 
 SI voluéritis, et audiéritis me, bona terræ comedétis. Quod si noluéritis, et me ad iracúndiam provocavéritis, gládius de-
+vorábit vos, quia os Dómini locútum est. Quómodo facta est méretrix cívitas fidélis, plena judícii? Justítia habitávit in ea, nunc autem homicídæ. Argéntum tuum versum est in scóriam: vinum tuum mistum est aqua. Príncipes tui infidéles, sócii furum: omnes díligunt múnera, sequúntur retributiónes. Pupíllo non júdicant: et causa víduæ non ingréditur ad illos.
+
+℟. Læténtur cæli, et exsúltet terra, jubiláte, montes, laudem: quia Dóminus noster véniet, \* Et páuperum suórum miserébitur. ℣. Oriétur in diébus ejus justítia, et abundántia pacis. — Et.
+
+#### Lectio iii
+
+PROPTER hoc ait Dóminus Deus exercítuum fortis Israël: Heu, consolábor super hóstibus meis, et vindicábor de inimícis meis. Et convértam manum meam ad te, et éxcoquam ad purum scóriam tuam, et áuferam omne stannum tuum. Et restítuam júdices tuos ut fuérunt prius, et consiliários tuos sicut antíquitus: post hæc vocáberis cívitas justi, urbs fidélis. Sion in judício redimétur, et redúcent eam in justítia: et cónteret sceléstos, et pec-
+
+catóres simul: et qui dereliquérunt Dóminum, consuméntur.
+
+℟. Aliéni non transíbunt per Jerúsalem ámplius: \* Nam in illa die stillábunt montes dulcédinem, et colles fluent lac et mel, dicit Dóminus. ℣. Deus a Líbano véniet, et Sanctus de monte umbróso et condénso. — Nam. Glória Patri. Nam.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Angelus Dómini \* nuntiávit Maríæ, et concépit de Spíritu Sancto, allelúja.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccatórum nostrórum perículis, te mereámur protegénte éripi, te liberánte salvári: Qui vivis.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Leva, Jerúsalem, \* óculos tuos, et vide poténtiam regis: ecce Salvátor venit sólvere te a vínculo.
+
+---

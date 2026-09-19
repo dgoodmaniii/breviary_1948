@@ -20919,3 +20919,18 @@ ITAQUE, auctóre Silvéstro, pius imperátor quam christifidélibus públice tem
 licas, scílicet Lateranénsem Christo Servatóri, Vaticánam sancto Petro, Ostiénsem sancto Paulo, sancto Lauréntio in Agro Veráno, sanctæ Cruci in Átrio Sessoriáno, sancto Petro et Marcellíno ac sanctæ Agnéti in viis Lavicána et Nomentána, et álias; quas sacris imagínibus spléndide exornávit, et, munéribus prædiísque attribútis, magnificentíssime locupletávit. Hoc Pontífice hábitum est Concílium Nicǽnum primum, ubi præsidéntibus ejus legátis, præsénteque Constantíno et trecéntis decem et octo epíscopis, sancta et cathólica fides explicáta est, Ário ejúsque sectatóribus condemnátis; quod étiam Concílium, peténtibus Pátribus, confirmávit in sýnodo Romæ hábita, ubi íterum Aríus condemnátus est. Multa idem decréta fecit Ecclésiæ Dei utília, quæ sub ejus nómine recenséntur: id est, ut a solo epíscopo chrisma conficerétur; ut présbyter chrísmate baptizáti summum liníret vérticem; ut diáconi dalmáticis in ecclésia, et palla linóstima ad lævam uteréntur; ut in líneo tantum velo sacrifícium altáris conficerétur.
 
 ℟. Pósui adjutórium super poténtem, et exaltávi
+eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+IDEM præscripsísse tráditur tempus ómnibus, qui ordínibus initiáti essent, exercéndi síngulos órdines in Ecclésia, antequam quisque ad altiórem gradum ascénderet; ut láicus clérico non inférret crimen, ne cléricus apud profánum júdicem causam díceret. Sábbati et Dominíci diéi nómine reténto, réliquos hebdómadæ dies feriárum nómine distínctos, ut jam ante in Ecclésia vocári cœperant, appellári vóluit, quo significarétur, quotídie cléricos, abjécta ceterárum rerum cura, uni Deo prorsus vacáre debére. Huic cæléstis prudéntiæ, qua Ecclésiam administrábat, insígnis vitæ sánctitas, et benígnitas in páuperes perpétuo respóndit. Quo in génere providit, ut cléricis copiósis egéntes conjúngeret, et sacris virgínibus, quæ ad victum necessária essent, suppeditaréntur. Vixit in pontificátu annos vigínti unum, menses decem, diem unum. Sepúltus est in cœmetério Priscíllæ, via Salária. Fecit ordinatiónes septem mense Decémbri, quibus creávit presbýteros quadragínta duos, diáconos vigínti quinque, epíscopos per divérsa loca sexagínta quinque.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---
+
+#### Pro hoc Festo commemorato
+
+#### Lectio ix
+
+SILVÉSTER Románus, patre Rufíno, sæviénte persecutióne, in Sorácte monte látuit; et, trigésimum annum agens, présbyter sanctæ Románæ Ecclésiæ est creátus. Melchíade Pontífice vita functo, in ejus locum succéssit, imperatóre Constantíno, qui ántea pacem Ecclésiæ Christi lege pública déderat. Quem Silvéster ad tuéndam propagandámque religiónem ita fovit, ut imperátor multas eréxerit Basílicas, easque munificentíssime locupletárit. Hoc Pontífice hábitum est Concílium Nicǽnum primum ab ipso Silvéstro confirmátum, quo Árius condemnátus fuit. Vitæ sanctitáte

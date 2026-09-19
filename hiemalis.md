@@ -30756,4 +30756,18 @@ HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia excéll
 
 #### Lectio v
 
-QUADRIÉNNIO post coácto concílio ad Seleucíam, Isáuriæ urbem, Hilárius adésse compúlsus est: ac deínde Constantinópolim proféctus, ubi extrémum fídei perículum animadvértit, tribus libéllis pú-
+QUADRIÉNNIO post coácto concílio ad Seleucíam, Isáuriæ urbem, Hilárius adésse compúlsus est: ac deínde Constantinópolim proféctus, ubi extrémum fídei perículum animadvértit, tribus libéllis pú-blice datis, audiéntiam imperatóris popóscit, ut de fide cum adversáriis coram disputáret. Verum cum Ursácius et Valens, Ariáni epíscopi, quos Hilárius scriptis confutárat, præséntis eruditiónem pertiméscerent, Constántio persuasérunt, ut spécie honóris eum in suum episcopátum restitúeret. Tunc Hilárium e prǽlio hæreticórum reverténtem, ut inquit sanctus Hierónymus, Gálliárum ecclésia compléxa est: quem ad episcopátum secútus est Martínus, qui póstea Turonénsi prǽfuit ecclésiæ; tantúmque illo doctóre profécit, quantum ejus póstea sánctitas declarávit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+MAGNA deínceps tranquillitáte Pictavórum ecclésiam administrávit: Galliámque univérsam addúxit, ut Ariánórum impietátem condemnáret. Multos libros scripsit mira eruditióne; quos omnes sanctus Hierónymus ad Lætam, sine ulla erróris suspicióne legi posse testátur illis verbis: Hilárii libros inoffénso decúrrat pede. Migrávit in cælum Idibus Januárii, Valentiniáno et Valénte imperatóribus, anno post Christum natum trecentésimo sexagésimo nono. Eum a multis Pátribus et concíliis insígnem Ecclésiæ Doctórem nuncupátum, atque uti talem in áliquot diœcésibus cultum, tándem instánte sýnodo Burdigalénsi Pius nonus Póntifex máximus, ex sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctórem declarávit et confirmávit, ac ipsíus festo die Missam et Offícium de Doctóribus ab ómnibus recitári jussit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia ex-

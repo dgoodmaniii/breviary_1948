@@ -13174,3 +13174,70 @@ LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, e
 ##### Pro nec Virg. nec Mart.
 
 MULTÆ fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo: múlier ti-
+mens Dóminum, ipsa laudábitur.
+
+##### Pro Dedicatione Ecclesiæ
+
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+##### In Officiis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+---
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+---
+
+### Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Excita, Dómine.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria VI post Dominicam I:} **Ant.** Jucundáre.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Ad te, Dómine.
+
+### Psalmus 79, i
+
+QUI regis Israël, inténde: \* qui dedúcis velut ovem Joseph.
+
+Qui sedes super Chérubim, \* manifestáre coram Ephraïm, Bénjamin, et Manásse.
+
+Excita poténtiam tuam, et veni, \* ut salvos fácias nos.
+
+Deus, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
+
+Dómine, Deus virtútum, \* quoúsque irascéris super oratiónem servi tui?
+
+Cibábis nos pane lacrimárum: \* et potum dabis

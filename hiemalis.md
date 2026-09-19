@@ -25990,3 +25990,30 @@ SERVI, obedíte dóminis carnálibus cum timóre et tremóre, in simplicitáte c
 #### Lectio iii
 
 DE cétero, fratres, confortámini in Dómino, et in poténtia virtútis ejus.
+Indúite vos armatúram Dei, ut possítis stare advérsus insídias diáboli. Quóniam non est nobis colluctátio advérsus carnem et sánguinem: sed advérsus príncipes, et potestátes, advérsus mundi rectóres tenebrárum harum, contra spirituália nequítiæ, in cæléstibus. Proptérea accípite armatúram Dei, ut possítis resístere in die malo, et in ómnibus perfécti stare.
+
+℟. Velóciter exáudi me, Deus, \* Quia defecérunt sicut fumus dies mei: \* Tu autem idem ipse es, et anni tui non defícient. ℣. Dies mei sicut umbra declinavérunt, et ego sicut fœnum árui. — Quia. Glória Patri. Tu.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Suscépit Deus \* Israël, púerum suum: sicut locútus est ad Abraham, et semen ejus usque in sǽculum.
+
+#### Oratio
+
+DEUS, qui nos in tantis perículis constitútos, pro humána scis fragilitáte non posse subsístere: da nobis salútem mentis et córporis; ut ea, quæ pro peccátis nostris pátimur, te adjuvánte vincámus. Per Dóminum.
+
+## Dominica IV post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+### Incipit Epistola beati Pauli Apostoli ad Philippenses
+
+#### Lectio i
+
+*Cap. 1, 1-18*
+
+PAULUS, et Timótheus servi Jesu Christi, ómnibus sanctis in Christo Jesu, qui sunt Philíppis, cum epíscopis et diacónibus. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo. Grátias ago Deo meo in omni memória vestri, semper in cunctis oratiónibus meis pro ómnibus vobis cum gáudio deprecatiónem fáciens, super communicatióne vestra in Evangélio Christi a prima die usque nunc. Confídens hoc ipsum, quia qui cœpit in vobis opus bonum, perfíciet usque in diem Christi Jesu. Sicut est mihi justum hoc sentíre pro ómnibus vobis: eo quod hábeam vos in corde, et in vínculis meis, et in defensióne, et confirmatióne Evangélii, sócios gáudii mei omnes vos esse.

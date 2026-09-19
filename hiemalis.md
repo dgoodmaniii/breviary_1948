@@ -13967,6 +13967,8 @@ Réspice in me, et miserére mei, \* da impérium tuum púero tuo: et salvum fac
 
 Fac mecum signum in bonum, ut vídeant qui odérunt me, et confundántur: \* quóniam tu, Dómine, adjuvísti me, et consolátus es me.
 
+**Ant.** Voce mea ad Dóminum clamávi: neque obliviscétur miseréri Deus.
+
 #### Hymnus
 
 TE lucis ante términum,
@@ -13998,4 +14000,44 @@ TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: n
 
 *Luc. 2, 29-32*
 
-NUNC dimíttis servum tuum, Dómine, \* secún-
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace.
+
+#### Preces
+
+{RUBRIC: (si dicendæ sint)}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sécula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sécula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sécula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+---
+
+℣. Dóminus vobíscum.
+
+**Orémus.** **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum. ℟. Amen.
+
+℣. Dóminus vobíscum.
+
+℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: Antiphona finalis beatæ Mariæ Virginis.}
+
+℣. Divínum auxílium.
+
+Pater noster, Ave María et Credo.

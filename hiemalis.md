@@ -31080,4 +31080,24 @@ PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ
 
 #### Lectio ii
 
-IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in lau-
+IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in lau-dem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum.
+
+℟. Si díligis me, Simon Petre, pasce oves meas. Dómine, tu nosti quia amo te, \* Et ánimam meam pono pro te. ℣. Si oportúerit me mori tecum, non te negábo. — Et.
+
+#### Lectio iii
+
+DE qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in vobis grátia prophetavérunt; scrutántes in quod vel quale tempus significáret in eis Spíritus Christi: prænúntians eas quæ in Christo sunt passiónes et posterióres glórias: quibus revelátum est, quia non sibimetípsis, vobis autem ministrábant ea, quæ nunc nuntiáta sunt vobis per eos, qui evangelizavérunt vobis, Spíritu Sancto misso de cælo, in quem desíderant Angeli prospícere.
+
+℟. Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: \* Et tibi dabo claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et tibi dabo claves regni cælórum. Glória Patri. Et.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 1 de Ss. App. Petro et Paulo, ante médium}
+
+#### Lectio iv
+
+CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, princeps apostólici órdinis, ad arcem Románi destinátur impérii, ut lux veritátis, quæ in ómnium géntium revelabátur salútem, efficácius se ab ipso cápite per totum mundi corpus effúnderet. Cujus autem natiónis hómines in hac tunc urbe non essent? aut quæ usquam gentes ignorárent quod Roma didicísset?
+
+℟. Tu es pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris super

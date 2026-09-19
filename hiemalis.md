@@ -29106,3 +29106,16 @@ DEUS, qui beátum Nicoláum Pontíficem innúmeris decorásti miráculis: tríbu
 #### Lectio iv
 
 NICOLÁUM, illústri loco Pátaræ in Lýcia natum, paréntes a Deo précibus impetrárunt. Cujus viri sánctitas quanta futúra esset, jam ab incunábulis appáruit. Nam infans, cum réliquos dies lac nutrícis frequens súgeret, quarta et sexta féria semel dumtáxat, idque vésperi sugébat: quam jejúnii consuetúdinem in réliqua vita semper ténuit. Adoléscens paréntibus orbátus, facultátes suas paupéribus distríbuit. Cujus illud insígne est christiánæ benignitátis exémplum, quod cum ejus civis egens tres fílias jam núbiles in matrimónio collocáre non posset, earúmque pudicítiam prostitúere cogitáret; re cógnita, Nicoláus noctu per fenéstram tantum pecúniæ in ejus domum injécit, quantum uníus vírginis doti satis esset: quod cum íterum et tértio fecísset, tres illæ vírgines honéstis viris in matrimónium datæ sunt.
+
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+CUM vero se totum Deo dedísset, in Palæstínam proféctus est, ut loca sancta víseret, et præsens venerarétur. Qua in peregrinatióne navem conscéndens seréno cælo et tranquíllo mari, horríbilem nautis tempestátem prædíxit; moxque ortam, cum essent omnes in summo perículo, orans mirabíliter sedávit. Unde cum domum revérsus singuláris sanctitátis ómnibus documénta præbéret, Dei admónitu Myram, quæ Lýciæ metrópolis erat, venit; quo témpore ejus urbis epíscopo mórtuo, provinciáles epíscopi de successóre deligéndo consultábant. Itaque in ea deliberatióne divínitus admóniti sunt, ut eum elígerent, qui postrídie mane primus in ecclésiam ingrederétur, Nicoláum nómine. Qua observatióne adhíbita, in ecclésiæ jánua deprehénsus est Nicoláus, et summo ómnium consénsu Myræ epíscopus creátur. In episcopátu castitátem, quam semper colúerat, gravitátem, oratiónis assiduitátem, vigílias, abstinéntiam, liberalitátem et hospitalitátem, in adhortándo mansuetúdinem, in reprehendéndo severitátem perpétuo adhíbuit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+VIDUIS et órphanis pecúnia, consílio, ópera non défuit; oppréssos ádeo sublevávit, ut étiam tres tribúnos, per calúmniam a Constantíno Augústo condemnátos, qui se propter famam ejus miraculórum oratiónibus longíssime absénti commendárant, adhuc vivens, cum imperatóri, mináciter eum terrens, apparuísset, liberáverit. Cum vero contra edíctum Dioclétiáni et Maximiáni christiánæ fídei veritátem Myræ prædicáret, ab imperatórum satellítibus comprehénsus, et longíssime abdúctus, in cárcerem conjéctus est; ubi fuit usque ad Constantínum imperatórem, cujus jussu ex custódia eréptus, Myram rédiit. Mox ad

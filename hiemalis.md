@@ -22019,3 +22019,20 @@ IN illo témpore: Postquam consummáti sunt dies octo, ut circumciderétur Puer,
 {RUBRIC: Sermo 1 de Circumcisióne}
 
 MAGNUM et mirábile sacraméntum! Circumcíditur Puer, et vocátur Jesus. Quid sibi vult ista connéxio? Circumcísio nempe magis salvándi, quam Salvatóris esse vidétur; et Salvatórem circumcídere pótius decet, quam circumcídi. Sed agnósce mediatórem Dei et hóminum, qui ab ipso nativitátis suæ exórdio
+divínis humána sóciat, ima summis. Náscitur ex mulíere, sed cui fœcunditátis fructus sic accédat, ut non décidat flos virginitátis. Pannis invólvitur; sed panni ipsi angélicis láudibus honorántur. Abscónditur in præsépio; sed próditur radiánte stella de cælo. Sic et circumcísio veritátem suscéptæ probat humanitátis; et nomen, quod est super omne nomen, glóriam índicat majestátis. Circumcíditur tamquam verus Abrahæ fílius; Jesus vocátur tamquam verus Fílius Dei.
+
+℟. Tribulatiónem et dolórem invéni: \* Et nomen Dómini invocávi. ℣. Turris fortíssima nomen Dómini, in ipso sperávi, et adjútus sum. — Et.
+
+**Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+#### Lectio viii
+
+NEQUE enim ad instar priórum meus iste Jesus nomen vácuum aut ináne portat: non est in eo magni nóminis umbra, sed véritas. Cælitus síquidem índitum nomen Evangelísta testátur, quod vocátum est ab Angelo, priúsquam in útero conciperétur. Et atténde verbi profunditátem: Postquam natus est Jesus. Jesus vocátur ab homínibus, qui vocátus est ab Angelo, priúsquam in útero conciperétur. Idem quippe et Ángeli Salvátor et hóminis; sed hóminis ab incarnatióne, Ángeli ab inítio creatúræ. Vocátum est, ait, nomen ejus Jesus, quod vocátum est ab Angelo. In ore ergo duórum vel trium téstium stat omne verbum; et ipsum, quod in Prophéta abbreviátum, manifestíus in Evangélio légitur caro factum.
+
+℟. Exspectábo nomen tuum, Dómine, \* Quóniam bonum est in conspéctu sanctórum tuórum. ℣. Ut confiteámur nómini sancto tuo, et gloriémur in laude tua. — Quóniam. Glória Patri. Quóniam.
+
+#### Lectio ix
+
+{RUBRIC: Sermo 2 de Circumcisióne}
+
+MÉRITO sane, dum circumcíditur puer, qui natus est nobis, Salvátor vocátur; quod vidélicet ex hoc jam cœpit operári salútem nostram, immaculátum illum pro nobis sánguinem fundens. Neque enim jam quǽrere est Christiánis, cur volúerit Dóminus Christus circumcídi. Propter hoc síquidem circumcísus est, propter quod natus, propter quod passus. Nihil horum propter se, sed ómnia propter eléctos. Nec in peccáto génitus, nec a peccáto circum-

@@ -31250,4 +31250,42 @@ EXÁUDI, Dómine, pópulum tuum cum Sanctórum tuórum patrocínio supplicántem
 
 #### Oratio
 
-DEUS, qui ad illustrándam Ecclésiam tuam beátum Canútum regem martýrii palma et gloriósis miráculis decoráre dignátus es: concéde propítius; ut, sicut ipse Domínicæ passiónis imitátor fuit, ita nos, per ejus vestígia gra-
+DEUS, qui ad illustrándam Ecclésiam tuam beátum Canútum regem martýrii palma et gloriósis miráculis decoráre dignátus es: concéde propítius; ut, sicut ipse Domínicæ passiónis imitátor fuit, ita nos, per ejus vestígia gra-diéntes, ad gáudia sempitérna pervenire mereámur. Per eúmdem Dóminum.
+
+#### Lectio iii
+
+MARIUS Persa, nóbili loco natus, cum Martha cónjuge pari nobilitáte, et duóbus fíliis Audíface et Abachum, Romam venit Cláudio imperatóre, ut Mártyrum sepúlcra venerarétur. Ibi Christiános in víncula conjéctos fovébant, et ópera ac facultátibus suis sustentábant, et Sanctórum córpora sepeliébant. Quam ob rem comprehénsi omnes, cum nec impiórum minis nec terróre commoveréntur, ut diis sacrificárent; primum fústibus debilitáti, deínde fúnibus attrácti, tum admótis candéntibus láminis combústi, et úngulis férreis excarnificáti sunt. Postrémo præcísis mánibus, et ad collum alligátis, ducti per médiam urbem, via Cornélia ad tértium décimum ab Urbe milliárium, in eum locum, qui Nymphe dicebátur, necántur: ac primum Martha quæ virum ac fílios ad supplícia pro Jesu Christi fide constánter perferénda, veheménter fúerat cohortáta; mox céteris in eádem arenária cervíces abscindúntur, eorúmque córpora conjiciúntur in ignem. Quæ semiústa, Felícitas matróna Romána nóbilis, colligénda et in suo prǽdio sepeliénda curávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+{RUBRIC: Oratio Exáudi, ut supra. 772}
+
+{RUBRIC: Et fit Commem. S. Canúti Regis, Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+{RUBRIC: Oratio Deus qui, ut supra. 772}
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Die 20 Januarii
+
+### Ss. Fabiani
+
+{RUBRIC: Papæ} {RUBRIC: et Sebastiáni} {RUBRIC: Mártyrum}
+
+{RUBRIC: Duplex} [49]
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.

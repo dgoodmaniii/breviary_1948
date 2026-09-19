@@ -24024,3 +24024,40 @@ INDÚITE vos ergo sicut elécti Dei, sancti, et dilécti, víscera misericórdi�
 #### Lectio ii
 
 OMNE, quodcúmque fácitis in verbo aut in ópere, ómnia in nómine Dómini Jesu Christi, grátias agéntes Deo et Patri per ipsum. Mulíeres, súbditæ estóte viris, sicut opórtet, in Dómino. Viri, dilígite uxóres vestras, et nolíte amári esse ad illas. Fílii, obedíte paréntibus per ómnia: hoc enim plácitum est in Dómino. Pa-
+tres, nolíte ad indignatiónem provocáre fílios vestros, ut non pusíllo ánimo fiant.
+
+℟. Beáti qui hábitant \* In domo tua, Dómine. ℣. In sǽcula sæculórum laudábunt te. — In domo.
+
+#### Lectio iii
+
+SERVI, obedíte per ómnia dóminis carnálibus, non ad óculum serviéntes, quasi homínibus placéntes, sed in simplicitáte cordis, timéntes Deum. Quodcúmque fácitis, ex ánimo operámini sicut Dómino, et non homínibus: sciéntes quod a Dómino accipiétis retributiónem hereditátis. Dómino Christo servíte. Qui enim injúriam facit, recípiet id, quod iníque gessit: et non est personárum accéptio apud Deum. Dómini, quod justum est et æquum, servis præstáte: sciéntes quod et vos Dóminum habétis in cælo. Oratióni instáte, vigilántes in ea in gratiárum actióne.
+
+℟. Débuit per ómnia frátribus assimilári, \* Ut miséricors fíeret. ℣. Cum esset Fílius Dei, dídicit ex iis quæ passus est, obediéntiam. — Ut. Glória. Ut.
+
+### In II Nocturno
+
+**Ant.** Consúrgens Joseph \* accépit púerum et matrem ejus nocte, et secéssit in Ægýptum.
+
+#### Psalmus 44
+
+ERUCTÁVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* poténtíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent: \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sæculum sæculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto: \* circúmdata varietáte.

@@ -30834,4 +30834,20 @@ DEUS, qui nos beáti Pauli Confessóris tui ánnua solemnitáte lætíficas: con
 
 **Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
 
-℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.
+℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.**Oratio** C 1
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Mauri Abbátis comméndet: ut quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+PAULUS, eremitárum auctor et magíster, apud inferiórem Thebáidem natus, cum quíndecim esset annórum, orbátus paréntibus est. Qui póstea declinándæ causa persecutiónis Décii et Valeriáni, et Deo libérius inserviéndi, in erémi spelúncam se cóntulit: ubi, palma ei victum et vestítum præbénte, vixit ad centésimum et décimum tértium annum, quo témpore ab António nonagenário Dei admónitu invísitur. Quibus inter se, cum ántea non nossent, próprio nómine consalutántibus, et multa de regno Dei colloquéntibus, corvus, qui ántea semper Paulo dimidiátum panem attúlerat, íntegrum détulit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+POST corvi discéssum, Eja, inquit Paulus, Dóminus nobis prándium misit, vere pius, vere miséricors. Sexagínta jam anni sunt, cum accípio quotídie dimídii panis fragméntum, nunc ad advéntum tuum milítibus suis Christus duplicávit annónam. Quare cum gratiárum actióne ad fontem capiéntes cibum, ubi tantísper recreáti sunt, íterum grátiis de more Deo actis, noctem in divínis láudibus consumpsérunt. Dilúculo Paulus de morte, quæ sibi instáret, admónens Antónium, hortátur, ut pállium, quod ab Athanásio accéperat, ad involvéndum suum corpus afférret. Quo ex itínere rédiens ille, vidit inter Angelórum choros, inter Prophetárum et Apostolórum cœtus Pauli ánimam in cælum ascéndere.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.

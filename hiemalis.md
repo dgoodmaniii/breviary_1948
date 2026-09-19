@@ -26255,3 +26255,39 @@ PAULUS, et Silvánus, et Timótheus Ecclésiæ Thessalonicénsium in Deo Patre n
 #### Lectio ii
 
 SI tamen justum est apud Deum retribúere tribulatiónem iis, qui vos tríbulant: et vobis, qui tribulámini, réquiem nobíscum in revelatióne Dómini Jesu de cælo cum Angelis virtútis ejus, in flamma ignis dantis vindíctam iis, qui non novérunt Deum, et qui non obédiunt Evangélio Dómini nostri Jesu Christi. Qui pœnas dabunt in intéritu ætérnas a fácie Dómini, et a glória virtútis ejus: cum vénerit glorificári in sanctis suis, et admirábilis fíeri in ómnibus, qui credidérunt, quia créditum est testimónium nostrum super vos in die illo. In quo étiam orámus semper pro vobis: ut dignétur vos vocatióne sua Deus noster, et ímpleat omnem voluntátem bonitátis, et opus fídei in virtúte, ut clarificétur nomen Dómini nostri Jesu Christi in vobis, et vos in illo, secúndum grátiam Dei nostri, et Dómini Jesu Christi.
+
+℟. Dómine, exáudi oratiónem meam, et clamor meus ad te pervéniat: \* Quia non spernis, Deus, preces páuperum. ℣. Fiant aures tuæ intendéntes in oratiónem servi tui. — Quia.
+
+{RUBRIC: In Octávis simplícibus et in Officio sanctæ Maríæ in Sábbato: Glória Patri. Quia.}
+
+#### Lectio iii
+
+*Cap. 2, 1-4*
+
+ROGÁMUS autem vos, fratres, per advéntum Dómini nostri Jesu Christi, et nostræ congregatiónis in ipsum: ut non cito moveámini a vestro sensu, neque terreámini, neque per spíritum, neque per sermónem, neque per epístolam tamquam per nos missam, quasi instet dies Dómini. Ne quis vos sedúcat ullo modo: quóniam nisi vénerit discéssio primum, et revelátus fúerit homo peccáti, fílius perditiónis, qui adversátur, et extóllitur supra omne, quod dícitur Deus, aut quod cólitur, ita ut in templo Dei sédeat osténdens se tamquam sit Deus.
+
+℟. Velóciter exáudi me, Deus, \* Quia defecérunt sicut fumus dies mei: \* Tu autem idem ipse es, et anni tui non defícient. ℣. Dies mei sicut umbra declinavérunt, et ego sicut fœnum árui. — Quia. Glória. Tu.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Suscépit Deus \* Israël, púerum suum: sicut locútus est ad Abraham, et semen ejus usque in sǽculum.
+
+#### Oratio
+
+FAMÍLIAM tuam, quǽsumus, Dómine, contínua pietáte custódi: ut, quæ in sola spe grátiæ cæléstis innítitur, tua semper protectióne muniátur. Per Dóminum.
+
+## Dominica V post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+### Incipit Epistola prima beati Pauli Apostoli ad Timotheum
+
+#### Lectio i
+
+*Cap. 1, 1-16*
+
+PAULUS Apóstolus Jesu Christi secúndum impérium Dei Salvatóris nostri, et Christi Jesu spei nostræ: Timótheo dilécto fílio in fide. Grátia, misericórdia, et pax a Deo Patre, et Christo Jesu Dómino nostro. Sicut rogávi te ut remanéres Ephesi, cum irem in Macedóniam, ut denun-

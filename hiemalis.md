@@ -24229,3 +24229,41 @@ Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ej
 CANTÁTE Dómino cánticum novum: \* quia mirabília fecit.
 
 Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Non inveniéntes Jesum regréssi sunt in Jerúsalem, requiréntes eum.
+
+℣. Pauper sum ego et in labóribus a juventúte mea. ℟. Exaltátus autem humiliátus sum et conturbátus.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 2, 42-52*
+
+CUM factus esset Jesus annórum duódecim, ascendéntibus illis Jerosólymam secúndum consuetúdinem diéi festi, consummatísque diébus, cum redírent, remánsit puer Jesus in Jerúsalem, et non cognovérunt paréntes ejus. Et réliqua.
+
+{RUBRIC: Homilía sancti Bernárdi Abbátis}
+
+{RUBRIC: Homilía 1 super Missus est, n. 7-8}
+
+ET erat súbditus illis. Quis, quibus? Deus homínibus; Deus, inquam, cui Ángeli súbditi sunt, cui Principátus et Potestátes obédiunt, súbditus erat Maríæ, nec tantum Maríæ, sed étiam Joseph propter Maríam. Miráre ergo utrúmlibet, et élige quid ámplius miréris, sive Fílii benigníssimam dignatiónem, sive Matris excellentíssimam dignitátem. Utrínque stupor, utrínque miráculum. Et quod Deus fémina obtémperet, humílitas absque exémplo; et quod Deo fémina principétur, sublímitas sine sócio. In láudibus vírginum singuláriter cánitur quod sequúntur Agnum quocúmque íerit. Quibus ergo láudibus júdicas dignam, quæ étiam præit?
+
+℟. Vere tu es Rex abscónditus, \* Deus Israël Salvátor. ℣. Tu doces hóminem sciéntiam. — Deus.
+
+**Bened.** Divínum auxílium.

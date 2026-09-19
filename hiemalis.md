@@ -12355,3 +12355,52 @@ Et non intres in judícium cum servo tuo: \* quia non justificábitur in conspé
 Quia persecútus est inimícus ánimam meam: \* humiliávit in terra vitam meam.
 
 Collocávit me in obscúris sicut mórtuos séculi: \* et anxiátus est super me spí-
+ritus meus, in me turbátum est cor meum.
+
+Memor fui diérum antiquórum, meditátus sum in ómnibus opéribus tuis: \* in factis mánuum tuárum meditábar.
+
+Expándi manus meas ad te: \* ánima mea sicut terra sine aqua tibi.
+
+Velóciter exáudi me, Dómine: \* defécit spíritus meus.
+
+Non avértas fáciem tuam a me: \* et símilis ero descendéntibus in lacum.
+
+Audítam fac mihi mane misericórdiam tuam: \* quia in te sperávi.
+
+Notam fac mihi viam, in qua ámbulem: \* quia ad te levávi ánimam meam.
+
+Eripe me de inimícis meis, Dómine, ad te confúgi: \* doce me fácere voluntátem tuam, quia Deus meus es tu.
+
+Spíritus tuus bonus dedúcet me in terram rectam: \* propter nomen tuum, Dómine, vivificábis me, in æquitáte tua.
+
+Edúces de tribulatióne ánimam meam: \* et in misericórdia tua dispérdes inimícos meos.
+
+Et perdes omnes, qui tríbulant ánimam meam: \* quóniam ego servus tuus sum.
+
+**Ant.** Eripe me de inimícis meis, Dómine, ad te confúgi.
+
+**Ant.** Benedixísti, \* † Dómine, terram tuam: remisísti iniquitátem plebis tuæ.
+
+### Psalmus 84
+
+BENEDIXISTI, † Dómine, terram tuam: \* avertísti captivitátem Jacob.
+
+Remisísti iniquitátem plebis tuæ: \* operuísti ómnia peccáta eórum.
+
+Mitigásti omnem iram tuam: \* avertísti ab ira indignatiónis tuæ.
+
+Convérte nos, Deus, salutáris noster: \* et avérte iram tuam a nobis.
+
+Numquid in ætérnum irascéris nobis? \* aut exténdes iram tuam a generatióne in generatiónem?
+
+Deus, tu convérsus vivificábis nos: \* et plebs tua lætábitur in te.
+
+Osténde nobis, Dómine, misericórdiam tuam: \* et salutáre tuum da nobis.
+
+Audiam quid loquátur in me Dóminus Deus: \* quóniam loquétur pacem in plebem suam.
+
+Et super sanctos suos: \* et in eos, qui convertúntur ad cor.
+
+Verúmtamen prope timéntibus eum salutáre ipsíus: \* ut inhábitet glória in terra nostra.
+
+Misericórdia, et véritas obviavérunt sibi: \* justítia, et pax osculátæ sunt.

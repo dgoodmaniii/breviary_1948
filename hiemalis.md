@@ -23269,3 +23269,55 @@ AGNOSCÁMUS ergo, dilectíssimi, in Magis adoratóribus Christi, vocatiónis nos
 ### In III Nocturno
 
 **Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.
+
+{RUBRIC: Hæc Antíphona repétitur in Psalmo órdine infrascrípto.}
+
+#### Psalmus 94
+
+VENÍTE, exsultémus Dómino: \* jubilémus Deo salutári nostro:
+
+Præoccupémus fáciem ejus in confessióne: \* et in psalmis jubilémus ei.
+
+**Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.
+
+Quóniam Deus magnus Dóminus: \* et Rex magnus super omnes deos.
+
+Quia in manu ejus sunt omnes fines terræ: \* et altitúdines móntium ipsíus sunt.
+
+**Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.
+
+Quóniam ipsíus est mare, et ipse fecit illud: \* et siccam manus ejus formavérunt.
+
+**Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.
+
+Et nos pópulus páscuæ ejus, et oves manus ejus: \* Hódie si vocem ejus audiéritis, nolíte obduráre corda vestra:
+
+Sicut in irritatióne secúndum diem tentatiónis in desérto: \* ubi tentavérunt me patres vestri, probavérunt me, et vidérunt ópera mea.
+
+**Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.
+
+Quadragínta annis offénsus fui generatióni illi, \* et dixi: Semper hi errant corde.
+
+Et isti non cognovérunt vias meas, ut jurávi in ira mea: \* Si introíbunt in réquiem meam.
+
+**Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.
+
+Glória Patri, et Fílio, \* et Spirítui Sancto.
+
+Sicut erat in princípio, et nunc, et semper, \* et in sǽcula sæculórum. Amen.
+
+**Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.
+
+{RUBRIC: Ant. prǽdicta cum suo Psalmo dícitur tantum hac nocte.}
+
+{RUBRIC: Per Octávam vero hujus loco dícitur:}
+
+**Ant.** Homo natus est \* in ea, et ipse fundávit eam Altíssimus.
+
+#### Psalmus 86
+
+FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.

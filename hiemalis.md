@@ -24355,3 +24355,47 @@ Amen.
 #### Oratio
 
 DÓMINE Jesu Christe, qui Maríæ et Joseph súbditus, doméstiam vitam ineffabílibus virtútibus consecrásti: fac nos, utriúsque auxílio, Famíliæ sanctæ tuæ exémplis ínstrui; et consórtium cónsequi sempitérnum: Qui vivis.
+
+{RUBRIC: Et fit Commemoratio Dominicæ:}
+
+**Ant.** Remánsit puer Jesus in Jerúsalem, et non cognovérunt paréntes ejus, existimántes illum esse in comitátu: et requirébant eum inter cognátos et notos.
+
+℣. Omnes de Saba vénient, allelúja. ℟. Aurum et thus deferéntes, allelúja.
+
+#### Oratio
+
+VOTA, quǽsumus, Dómine, supplicántis pópuli cælésti pietáte proséquere: ut et quæ agénda sunt, vídeant, et ad implénda quæ víderint, conváléscant. (Per Dóminum.)
+
+{RUBRIC: Deinde Commem. Octávæ: Antíphona diéi curréntis própria.}
+
+℣. Adoráte Deum, allelúja. ℟. Omnes Ángeli ejus, allelúja.
+
+#### Oratio
+
+DEUS, qui hodiérna die Unigénitum tuum Géntibus stella duce revelásti: concéde propítius; ut, qui jam te ex fide cognóvimus, usque ad contemplándam spéciem tuæ celsitúdinis perducámur. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Primam
+
+**Ant.** Post tríduum \* invenérunt Jesum in templo sedéntem in médio doctórum, audiéntem illos, et interrogántem eos.
+
+{RUBRIC: In ℟. brevi:}
+
+℣. Qui Maríæ et Joseph súbditus fuísti.
+
+### Ad Tertiam
+
+**Ant.** Dixit mater Jesu \* ad illum: Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te.
+
+#### Capitulum
+
+*Luc. 2, 51*
+
+DESCÉNDIT Jesus cum María et Joseph, et venit Názareth, et erat súbditus illis.
+
+℟. br. Propter nos egénus factus est: \* Cum esset dives. Propter. ℣. Ut illíus inópia nos dívites essémus. Cum. Glória Patri. Propter. ℣. Dóminus vias suas docébit nos. ℟. Et ambulábimus in sémitis ejus.
+
+#### Oratio
+
+DÓMINE Jesu Christe, qui Maríæ et Joseph súbditus, doméstiam vitam ineffabílibus virtútibus consecrásti: fac nos, utriúsque auxílio, Famíliæ sanctæ tuæ exémplis ínstrui; et consórtium cónsequi sempitérnum: Qui vivis.

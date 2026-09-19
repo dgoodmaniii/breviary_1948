@@ -17795,3 +17795,31 @@ IN illo témpore: Missus est Ángelus Gábriel a Deo in civitátem Galilǽæ, cu
 {RUBRIC: Liber 2 in Lucam}
 
 LATENT quidem divína mystéria, nec fácile, juxta prophéticum dictum, quisquam hóminum potest scire consílium Dei. Sed tamen ex céteris factis, atque præcéptis Dómini Salvatóris póssumus intellígere, et hoc propensióris fuísse consílii, quod ea potíssimum elécta est, ut Dóminum páreret, quæ erat desponsáta viro. Cur autem non ántequam desponsarétur, impléta est? Fortásse ne dicerétur, quod concéperat ex adultério.
+
+℟. Clama in fortitúdine, qui annúntias pacem in Jerúsalem: \* Dic civitátibus Judæ, et habitatóribus Sion: Ecce Deus noster, quem exspectabámus, advéniet. ℣. Supra montem excélsum ascénde tu, qui evangelízas Sion, exálta in fortitúdine vocem tuam. — Dic.
+
+#### Lectio ii
+
+ET ingréssus ad eam Ángelus. Disce vírginem móribus, disce vírginem verecúndia, disce oráculo, disce mystério. Trepidáre vírginum est, et ad omnes viri ingréssus pavére, omnes viri affátus veréri. Discant mulíeres propósitum pudóris imitári. Sola in penetrálibus, quam nemo virórum víderit, solus Ángelus repérerit: sola sine cómite, sola sine teste, ne quo degénere depravarétur affátu, ab Ángelo salutátur.
+
+℟. Oriétur stella ex Jacob, et exsúrget homo de Israël, et confrínget omnes duces alienigenárum: \* Et erit omnis terra posséssio ejus. ℣. Adorábunt eum omnes reges terræ, omnes gentes sérvient ei. — Et.
+
+#### Lectio iii
+
+TANTI namque mandáti mystérium non hóminis fuit, sed Ángeli ore
+
+proméndum. Hódie primum audítur: Spíritus Sanctus supervéniet in te. Et audítur, et créditur. Dénique, Ecce, inquit, ancílla Dómini: contíngat mihi secúndum verbum tuum. Vide humilitátem, vide devotiónem. Ancíllam se dicit Dómini, quæ mater elígitur, nec repentíno exaltáta promísso est.
+
+℟. Modo véniet Dominátor Dóminus: \* Et nomen ejus Emmánuel vocábitur. ℣. Oriétur in diébus ejus justítia, et abundántia pacis. — Et. Glória Patri. Et.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Missus est Gábriel \* Ángelus ad Maríam Vírginem desponsátam Joseph.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut redemptiónis nostræ ventúra solémnitas, et præséntis nobis vitæ subsídia cónferat, et ætérnæ beatitúdinis prǽmia largiátur. Per Dóminum.
+
+{RUBRIC: Et dícitur ad omnes Horas, prǽterquam in Vésperis.}
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.

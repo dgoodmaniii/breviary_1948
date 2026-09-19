@@ -25383,3 +25383,28 @@ CUM essem párvulus, loquébar ut párvulus, sapiébam ut párvulus, cogitábam 
 ℟. Factus est mihi Dóminus in refúgium: \* Et Deus meus in auxílium spei meæ. ℣. Erípuit me de inimícis meis fortíssimis, et factus est Dóminus protéctor meus. — Et. Glória Patri. Et.
 
 {RUBRIC: Ad Vésperas, nisi sequénti die persolvéndum sit Offícium
+de Festo novem Lectiónum, aut de qualíbet Octáva vel Vigília, et nisi anticipánda sit Domínica impedíta, ut infra a Capítulo fit de sancta María, et de ea dícitur Offícium in Sábbato. Quod item fit in ómnibus Sábbatis, simíliter non impedítis, usque ad Sábbatum post Sexagésimam inclusíve.
+
+¶ Si sequens Dominica II vel ália post Epiphaníam, Septuagésima supervéniente impediátur, nec sit ei locus post Pentecósten, juxta Rubricas, de ea anticipátur Offícium Sábbato sub ritu semidúplici, cum ómnibus privilégiis Domínicæ própriis, tam in occúrsu, quam in concúrsu ad I Vésperas. In II autem Vésperis nihil fit de ea, quamvis sequens Domínica Septuagésimæ commemoránda tantum sit, juxta Rubricas.
+
+In Offício hujus Domínicæ anticipátæ ómnia dicúntur de Sábbato, et, in I Vésperis et Completório eas sequénti, de Fería VI, ut in Psaltério, præter Capítulum Primæ, quod dícitur de Domínica, ut in Ordinário, Oratiónem, Lectiónes cum suis Responsóriis, et Antíphonam ad Benedíctus, quæ de ipsa Domínica dicúntur. In I autem Nocturno ponúntur Lectiónes de Inítio Epistolárum beáti Pauli, quæ in Domínica anticipáta et duábus étiam ex sequéntibus Fériis occúrrant; et Inítia Epistolárum sequéntibus Fériis et Domínicis assignáta, pénitus omittúntur. Inítium vero Epístolæ quod assignátur Sábbato, in quod anticipátur Offícium Domínicæ ut supra, pónitur in Fería próxime antecedénti, juxta Rubricas.
+
+### Sabbato
+
+{RUBRIC: De Epístola prima ad Corínthios}
+
+#### Lectio i
+
+*Cap. 16, 1-14*
+
+DE colléctis autem, quæ fiunt in sanctos, sicut ordinávi ecclésiis Galátiæ, ita et vos fácite. Per unam sábbati unusquísque vestrum apud se sepónat, recóndens quod ei bene placúerit: ut non, cum vénero, tunc colléctæ fiant. Cum autem præsens fúero: quos probavéritis per epístolas, hos mittam perférre grátiam vestram in Jerúsalem. Quod si dignum fúerit ut et ego eam, mecum ibunt.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum, et vox de cælo facta est. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+{RUBRIC: Nisi resuménda sint Responsória de Fería II. [REF: p. 555]}
+
+℟. Misericórdiam et judícium cantábo tibi, Dómi-

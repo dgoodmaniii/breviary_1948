@@ -27255,3 +27255,22 @@ DIXÍTQUE Cain ad Dóminum: Major est iníquitas mea, quam ut véniam mérear. E
 *Cap. 4, 17-26*
 
 COGNÓVIT autem Cain uxórem suam, quæ concépit, et péperit Henoch: et ædificávit civitátem, vocavítque nomen ejus ex nómine fílii sui, Henoch. Porro Henoch génuit Irad, et Irad génuit Mavíael, et Mavíael génuit Mathúsael, et Mathú-
+sael génuit Lamech. Qui accépit duas uxóres, nomen uni Ada, et nomen álteri Sella. Genuítque Ada Jabel, qui fuit pater habitántium in tentóriis, atque pastórum. Et nomen fratris ejus Jubal: ipse fuit pater canéntium cíthara et órgano. Sella quoque génuit Tubálcain, qui fuit malleátor et faber in cuncta ópera æris et ferri. Soror vero Tubálcain, Noéma.
+
+℟. Tulit Dóminus hóminem, et pósuit eum in paradíso voluptátis: \* Ut operarétur et custodíret illum. ℣. Plantáverat autem Dóminus Deus paradísum voluptátis a princípio, in quo pósuit hóminem, quem formáverat. — Ut.
+
+#### Lectio ii
+
+DIXÍTQUE Lamech uxóribus suis Adæ et Sellæ: Audíte vocem meam, uxóres Lamech, auscultáte sermónem meum: quóniam occídi virum in vulnus meum, et adolescéntulum in livórem meum. Séptuplum últio dábitur de Cain, de Lamech vero septuágies sépties. Cognóvit quoque adhuc Adam uxórem suam: et péperit fílium, vocavítque nomen ejus Seth, dicens: Pósuit mihi Deus semen áliud pro Abel, quem occídit Cain. Sed et Seth natus est fílius, quem vocávit Enos: iste cœpit invocáre nomen Dómini.
+
+℟. Dixit Dóminus Deus: Non est bonum hóminem esse solum: \* Faciámus ei adjutórium símile sibi. ℣. Adæ vero non inveniebátur adjútor símilis sibi: dixit vero Deus. — Faciámus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Faciámus.}
+
+#### Lectio iii
+
+*Cap. 5, 1-5*
+
+HIC est liber generatiónis Adam. In die, qua creávit Deus hóminem, ad similitúdinem Dei fecit illum. Másculum et féminam creávit eos, et benedíxit illis: et vocávit nomen eórum Adam, in die quo creáti sunt. Vixit autem Adam centum trigínta annis: et génuit ad imáginem et similitúdinem suam, vocavítque nomen ejus Seth. Et facti sunt dies Adam, postquam génuit Seth, octingénti anni: genuítque fílios et fílias. Et factum est omne tempus quod vixit Adam, anni nongénti trigínta, et mórtuus est.
+
+℟. Immísit Dóminus sopórem in Adam, et tulit unam de cóstis ejus: \* Et ædificávit costam, quam

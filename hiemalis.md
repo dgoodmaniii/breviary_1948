@@ -26602,3 +26602,62 @@ DEÍNDE cum narrátio institúta esset de humána Verbi dispensatióne, deque ú
 FUNCTIÓNEM ígitur discérnens Apóstolus, tum véterem, tum novam, magna dicéndi libertáte útitur, ad Judǽos scribens et loquens. Propter hoc ígitur non in univérsum ex própria comparatiónis ratióne dixit, quod major aut honorátior esset: ne quis quasi de ejúsdem géneris, et cum eo commúnibus rebus hæc verba intellígeret: sed ídeo meliórem illum dixit, ut discrímen natúræ Fílii ad res creátas indicáret.
 
 ℟. Dómini est terra, et plenitúdo ejus: \* Orbis
+terrárum, et univérsi qui hábitant in eo. ℣. Ipse super mária fundávit eam, et super flúmina præparávit illam. — Orbis terrárum, et univérsi qui hábitant in eo. Glória Patri. Orbis.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 13, 31-35*
+
+IN illo témpore: Dixit Jesus turbis parábolam hanc: Símile est regnum cælórum grano sinápis, quod accípiens homo seminávit in agro suo. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 2 Comment. in cap. 13 Matthǽi}
+
+REGNUM cælórum prædicátio Evangélii est, et notítia Scripturárum, quæ ducit ad vitam, et de qua dícitur ad Judǽos: Auferétur a vobis regnum Dei, et dábitur genti faciénti fructus ejus. Símile est ergo hujuscémodi regnum grano sinápis, quod accípiens homo seminávit in agro suo. Homo qui séminat in agro suo, a plerísque Salvátor intellígitur, quod in ánimis credéntium séminet: ab áliis ipse homo séminans in agro suo, hoc est in semetípso, et in corde suo.
+
+℟. Ad te, Dómine, levávi ánimam meam: \* Deus meus, in te confído, non erubéscam. ℣. Custódi ánimam meam, et éripe me. — Deus.
+
+#### Lectio viii
+
+QUIS est iste, qui séminat, nisi sensus noster et ánimus; qui suscípiens granum prædicatiónis, et fovens seméntem, humóre fídei facit in agro sui péctoris pullulare? Prædicátio Evangélii mínima est ómnibus disciplínis. Ad primam quippe doctrínam, fidem non habet veritátis, hóminem Deum, Christum mórtuum, et scándalum crucis prædicans. Confer hujuscémodi doctrínam dogmátibus philosophórum, et libris eórum, et splendóri eloquéntiæ, et compositióni sermónum: et vidébis quanto minor sit céteris semínibus seméntis Evangélii.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus: et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+#### Lectio ix
+
+SED illa cum créverint, nihil mordax, nihil vívidum, nihil vitále demónstrant: sed totum fláccidum marcidúmque et mollítum ebúllit in ólera et in herbas, quæ cito aréscunt et córruunt. Hæc autem prædicátio, quæ parva videbátur in princípio, cum vel in ánima credéntis, vel in toto mundo sata fúerit, non exsúrgit in ólera, sed crescit in árborem: ita ut vólucres cæli (quas vel ánimas credéntium, vel fortitúdines, Dei servítio mancipátas, sentíre debémus) véniant et hábitent in ramis ejus. Ramos puto evangélicæ árboris, quæ de grano sinápis créverit, dógmatum esse diversitátes, in quibus supradictárum vólucrum unaquǽque requiéscit. Te Deum.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Símile est \* regnum cælórum grano sinápis, quod mínimum est ómnibus semínibus: cum autem créverit, majus est ómnibus oléribus.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut semper rationabília meditántes, quæ tibi sunt plácita, et dictis exsequámur, et factis. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Símile est \* regnum cælórum ferménto, quod accéptum múlier abscóndit in farínæ satis tribus, donec fermentátum est totum.
+
+---
+
+### Feria Secunda
+
+{RUBRIC: De Epístola ad Hebrǽos}
+
+#### Lectio i
+
+*Cap. 3, 1-8*
+
+UNDE, fratres sancti, vocatiónis cæléstis partícipes, consideráte apóstolum et pontíficem confessiónis nostræ Jesum: qui fidélis est ei, qui fecit illum, sicut et Móyses, in omni domo ejus. Amplióris enim glóriæ iste præ Móyse dignus est hábitus, quanto ampliórem honórem habet domus, qui fabricávit illam. Omnis namque domus fabricátur ab áliquo: qui autem ómnia creávit, Deus est.
+
+℟. Quam magna multitúdo dulcédinis tuæ, Dómine, \* Quam abscondísti timéntibus te! ℣. Et perfecísti eis qui sperant in te, Dómine, in conspéctu filió-

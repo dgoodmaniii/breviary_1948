@@ -29426,3 +29426,28 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 SERPENS erat callídior cunctis animántibus terræ quæ fécerat Dóminus Deus. Qui dixit ad mulíerem: Cur præcépit vobis Deus ut non comederétis de omni ligno paradísi? Cui respóndit múlier: De fructu lignórum, quæ sunt in paradíso, véscimur: de fructu vero ligni, quod est in médio paradísi, præcépit nobis Deus ne comederémus: et ne tangerémus illud, ne forte moriámur. Dixit autem serpens ad mulíerem: Nequáquam morte moriémini. Scit enim Deus quod in quocúmque die comedéritis ex eo, aperiéntur óculi vestri: et éritis sicut dii, sciéntes bonum et malum.
 
 ℟. Per unum hóminem peccátum in hunc mundum intrávit, in quo omnes peccavérunt: \* Ne tímeas, María, invenísti grátiam apud Deum. ℣. Erípuit Dóminus ánimam
+ tuam de morte, et contra inimícum factus est protéctor tuus. — Ne.
+
+#### Lectio ii
+
+VIDIT ígitur múlier quod bonum esset lignum ad vescéndum, et pulchrum óculis, aspectúque delectábile: et tulit de fructu illíus, et comédit: dedítque viro suo, qui comédit. Et apérti sunt óculi ambórum: cumque cognovíssent se esse nudos, consuérunt fólia ficus, et fecérunt sibi perizómata. Et cum audíssent vocem Dómini Dei deambulántis in paradíso ad áuram post merídiem, abscóndit se Adam et uxor ejus a fácie Dómini Dei in médio ligni paradísi.
+
+℟. Transíte ad me, omnes qui concupíscitis me: \* Et narrábo vobis, quanta fecit Deus ánimæ meæ. ℣. Vivit Dóminus, quóniam adimplévit in me misericórdiam suam. — Et.
+
+#### Lectio iii
+
+VOCAVÍTQUE Dóminus Deus Adam, et dixit ei: Ubi es? Qui ait: Vocem tuam audívi in paradíso: et tímui, eo quod nudus essem, et abscóndi me. Cui dixit: Quis enim indicávit tibi, quod nudus esses, nisi quod ex ligno, de quo præcéperam tibi ne coméderes, comedísti? Dixítque Adam: Múlier, quam dedísti mihi sóciam, dedit mihi de ligno, et comédi. Et dixit Dóminus Deus ad mulíerem: Quare hoc fecísti? Quæ respóndit: Serpens decépit me, et comédi. Et ait Dóminus Deus ad serpéntem: Quia fecísti hoc, maledíctus es inter ómnia animántia et béstias terræ: super pectus tuum gradiéris, et terram cómedes cunctis diébus vitæ tuæ. Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus: ipsa cónteret caput tuum, et tu insidiáberis calcáneo ejus.
+
+℟. Elécta mea cándida sicut nix in Líbano; sicut favus distíllans lábia ejus: \* Mel et lac sub lingua illíus. ℣. Veni de Líbano, sponsa mea, veni, coronáberis coróna gratiárum. — Mel. Glória Patri. Mel.
+
+### In II Nocturno
+
+**Ant.** Diffúsa est \* grátia in Conceptióne ejus, et speciósa appáruit inter fílias hóminum.
+
+###### Psalmus 44
+
+ERUCTÁVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* pro-

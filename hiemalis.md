@@ -33133,3 +33133,54 @@ TU natále solum prótege, tu bonæ
 Da pacis réquiem Christíadum plagis;
 Armórum strépitus, et fera prǽlia
 In fines age Thrácios.
+
+Et regum sócians ágmina sub crucis
+Vexíllo, Sólymas néxibus éxime,
+Vindéxque innócui sánguinis hósticum
+Robur fúnditus érue.
+
+Tu nostrum cólumen, tu decus ínclytum,
+Nostrárum obséquium réspice méntium;
+Romæ vota libens éxcipe, quæ pio
+Te ritu canit, et colit.
+
+A nobis ábigas lúbrica gáudia,
+Tu, qui Martýribus dexter ades, Deus
+Une et Trine: tuis da fámulis jubar,
+Quo clemens ánimos beas. Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio** C 1
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Martínæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 31 Januarii
+
+### S. Joannis Bosco
+
+{RUBRIC: Conf.}
+
+{RUBRIC: Duplex} [94]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+#### Oratio
+
+DEUS, qui sanctum Joánnem Confessórem tuum adolescéntium patrem et magístrum excitásti, ac per eum, auxiliatríce Vírgine María, novas in Ecclésia tua famílias floréscere voluísti: concéde, quǽsumus; ut eódem caritátis igne succénsi, ánimas quǽrere, tibíque soli servíre valeámus. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedéntis:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+{RUBRIC: Oratio Deus, qui inter, ut supra.}

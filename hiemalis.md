@@ -32812,4 +32812,34 @@ VERUM dum, concílio Románæ hábito, decréto Innocéntii primi Pontíficis re
 
 #### Lectio ix
 
-JOÁNNES Antiochénus, propter áureum eloquéntiæ flumen cognoménto Chrysóstomus, présbyter Antiochénæ ecclésiæ factus, mórtuo Nectário, Arcádii imperatóris ópera, invítus Constantinopolitánæ ecclésiæ præfícitur. Quo in múnere, cum de-
+JOÁNNES Antiochénus, propter áureum eloquéntiæ flumen cognoménto Chrysóstomus, présbyter Antiochénæ ecclésiæ factus, mórtuo Nectário, Arcádii imperatóris ópera, invítus Constantinopolitánæ ecclésiæ præfícitur. Quo in múnere, cum de-pravátos mores et nobílium hóminum vivéndi licéntiam veheméntius objurgáret, magnam multórum súbiit invídiam. Apud Eudóxiam étiam, quod eam propter Callítropæ víduæ pecúniam, et altérius víduæ agrum reprehendísset, gráviter offéndit. Quare exsuláre cógitur, víduis et egéntibus ómnibus commúnis paréntis ejectiónem lugéntibus. Incredíbile dictu est quanta mala in exsílio perpéssus sit, et quam multos ad Jesu Christi fidem convérterit. Multitúdinem, pietátem ac splendórem conciónum ceterorúmque ejus scriptórum, omnes admirántur. Animam Deo réddidit décimo octávo Kaléndas Octóbris, ejúsque corpus in basílica Vaticána cónditum est. Hunc præclárum totíus Ecclésiæ Doctórem Pius Papa décimus cæléstem prædicatórum patrónum constítuit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 15 in Matth., sub médium}
+
+ATTÉNDITE, quid díxerit: Vos estis sal terræ; per quod osténdit, quam necessário ista præcípiat. Non enim de vestra, inquit, tantúmmodo vita, sed de univérso orbe vobis rátio reddénda est. Non ad duas quippe urbes aut decem aut vigínti, neque ad unam gentem vos mitto, sicut mittébam Prophétas; sed ad omnem terram prorsus ac mare totúmque mundum, et hunc váriis crimínibus oppréssum.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+#### Lectio viii
+
+DICÉNDO enim, Vos estis sal terræ, osténdit univérsam hóminum infatuátam esse natúram et peccatórum vi corrúptam; et idcírco illas ab eis virtútes requírit, quæ máxime ad multórum salútem procurándam necessáriæ sunt atque útiles. Nam, qui mansuétus est ac modéstus et miséricors et justus, non intra se tantúmmodo hæc recte facta conclúdit, verum in aliórum quoque utilitátem præcláros hos fáciet efflúere fontes. Igitur qui corde mundo est atque pacíficus, et persecutiónem pro veritáte pátitur, nihilóminus in commúne commódum vitam instítuit.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+NE ígitur putétis, inquit, ad lévia vos ducéndos esse certámina, neque exíguarum rerum vobis ineúndam esse ratiónem, Vos estis sal terræ. Quid ígitur? Ipsíne putrefácta medicáti sunt? Nequáquam: neque enim fíeri potest, ut ea, quæ jam corrúpta sunt, salis perfricatióne reparéntur. Non ergo hoc fecérunt; sed ante renováta sibíque trádita atque ab illa jam putrédine liberáta aspergébant sale et in ea novitáte conservábant, quam a Dómino suscéperant. Liberáre quippe a putrédine peccatórum, Christi virtútis est; ut autem ad illa íte-

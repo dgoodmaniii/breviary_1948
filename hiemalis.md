@@ -20639,3 +20639,16 @@ PRIMUM quidem grátias ago Deo meo per Jesum Christum pro ómnibus vobis: quia f
 #### Lectio iii
 
 NOLO autem vos ignoráre, fratres: quia sæpe propósui veníre ad vos (et
+prohíbitus sum usque adhuc), ut áliquem fructum hábeam et in vobis, sicut et in céteris géntibus: Græcis, ac Bárbaris, sapiéntibus, et insipiéntibus débitor sum: ita (quod in me) promptum est et vobis, qui Romæ estis, evangelizáre. Non enim erubésco Evangélium. Virtus enim Dei est in salútem omni credénti, Judǽo primum, et Græco. Justítia enim Dei in eo revelátur ex fide in fidem; sicut scriptum est: Justus autem ex fide vivit. Revelátur enim ira Dei de cælo super omnem impietátem et injustítiam hóminum eórum, qui veritátem Dei in injustítia détinent: quia quod notum est Dei, maniféstum est in illis. Deus enim illis manifestávit.
+
+℟. O magnum mystérium, et admirábile sacraméntum, ut animália vidérent Dóminum natum, jacéntem in præsépio: \* Beáta Virgo, cujus víscera meruérunt portáre Dóminum Christum. ℣. Ave, María, grátia plena; Dóminus tecum. — Beáta. Glória Patri. Beáta.
+
+### In II Nocturno
+
+#### Lectio iv
+
+THOMAS, Londíni in Anglia natus, Theobáldo succéssit Cantuariénsi epíscopo: et qui
+
+ántea in administrándo cancelláriæ múnere præcláre se gésserat, in episcopáli offício fortis et invíctus fuit. Cum enim Henrícus secúndus Angliæ rex, convocátis ad se epíscopis et procéribus regni, leges ferret utilitáti ac dignitáti ecclesiásticæ repugnántes, ádeo constánter óbstitit régiæ cupiditáti, ut neque pollicitatiónibus, neque terróribus de senténtia decédens, próxime conjiciéndus in cárcerem clam recésserit. Inde propínqui ejus omnis ætátis ejécti, amíci, fautóres omnes, iis, quibus per ætátem licéret, jurejurándo adstríctis, univérsos Thomam aditúros, si fortásse miserábili suórum calamitátis aspéctu moverétur, qui a sancto propósito privátis incómmodis deterréri mínime potuísset. Non respéxit carnem aut sánguinem, neque ullus in eo humanitátis sensus pastorális offícii constántiam labefactávit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et dedit illi claritátem ætérnam.

@@ -8591,3 +8591,52 @@ Pater noster {RUBRIC: quod dicitur a solo Hebdomadario totum clara voce, usque a
 ℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui.
 
 ℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona fa-
+ciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 13}
+
+#### Per Annum
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+NOX, et ténebræ, et núbila,
+Confúsa mundi et túrbida:
+Lux intrat, albéscit polus:
+Christus venit: discédite.
+
+Calígo terræ scínditur
+Percússa solis spículo,
+Rebúsque jam color redit,
+Vultu niténtis síderis.
+
+Te, Christe, solum nóvimus,
+Te mente pura et símplici,
+Flendo et canéndo quǽsumus,
+Inténde nostris sénsibus.
+
+Sunt multa fucis illíta,
+Quæ luce purgéntur tua:
+Tu, vera lux Cæléstium,
+Vultu seréno illúmina.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+{RUBRIC: Feria IV Cinerum Ant. ad Benedictus ut in Proprio de Tempore.}
+
+**Ad Bened. Ant.** De manu ómnium, \* qui odérunt nos, liberávit nos Dóminus.
+
+{RUBRIC: Feria IV Cinerum et in Vigiliis communibus Preces feriales, ut supra.} [REF: p. 172]
+
+{RUBRIC: Reliqua ut in Ordinario. 13}
+
+---

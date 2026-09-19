@@ -34229,3 +34229,19 @@ TITUM Creténsium epíscopum, vix Páuli Apóstoli verbo christiánæ fídei sac
 #### Lectio v
 
 QUAM ob rem Corínthum ab Apóstolo missus, ea sapiéntia et lenitáte legatiónis hujus múnere functus est, quæ prǽsertim de fidélium pietáte eleemósynas colligéndas ad sublevándam Ecclésiæ Hebrǽórum inópiam spectábat, ut Corínthios non solum in Christi fide continúerit, sed étiam desidérium, fletum, æmulatiónem inter eos pro Paulo, qui illos primus institúit, excitáverit. Ad effundéndum ínterim inter gentes linguis locísque distínctas divíni verbi semen, plúribus terra maríque itinéribus reléctis, magnáque ánimi firmitáte pro crucis tropháeo curis laboribúsque exantlátis, una cum duce Paulo Cretæ ínsulam áppulit. Cum porro huic ecclésiæ epíscopus ab ipso Apóstolo deléctus esset, dubitándum non est
+
+quin in eo múnere ita versátus sit, ut, juxta ipsíus Pauli præceptóris mónita, seípsum præbúerit exémplum bonórum óperum in doctrína, in integritáte, in gravitáte.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+ITAQUE tamquam lucérna inter eos, qui in idolatríæ et mendaciórum ténebris véluti in umbra mortis sedébant, religiónis jubar diffúdit. Tráditur eum inter Dálmatas, ut crucis vexíllum explicáret, strénue consudásse. Tandem meritórum et diérum plenus, quarto supra nonagésimum anno, prídie Nonas Januárii, pretiósa justórum morte obdormívit in Dómino, et sepúltus est in ecclésia ubi ab Apóstolo minister fúerat constitútus. Hujus nomen, a sancto Joánne Chrysóstomo et a sancto Hierónymo præcípue commendátum, Martyrológio Románo eádem die inscríptum légitur: ejus autem festum summus Póntifex Pius nonus ab univérsa Ecclésia celebrári præcépit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+TITUS Creténsium epíscopus, qui inter discípulos Doctóris géntium méruit cooptári, ádeo evangelizándi ardóre et fidelitáte Paulo exstitit carus, ut, cum hic venísset Tróadem propter Evangélium Christi, testátus sit non habuísse réquiem spirítui suo, eo quod Titum fratrem suum ibi non invénerit. Et paulo post Macedóniam petens, suam in eum caritátem ita confírmat: Sed qui consolátur húmiles, consolátus est nos Deus in advéntu Titi. Corínthum ab Apóstolo missus, sapiénter functus est múnere hujus legatiónis, quæ prǽsertim eleemósynas colligéndas ad sublevándam Ecclésiæ Hebrǽórum inópiam spectábat. Interim ad effundéndum divíni verbi semen inter gentes linguis locísque distínctas, post tot

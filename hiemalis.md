@@ -22514,3 +22514,37 @@ Perfúnde cunas sánguine.
 
 Quid próficit tantum nefas?
 Quid crimen Heródem juvat?
+Unus tot inter fúnera
+Impúne Christus tóllitur.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### Ad Nocturnum
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 7, 1-6*
+
+AN ignorátis, fratres (sciéntibus enim legem loquor) quia lex in hómine dominátur quanto témpore vivit? Nam quæ sub viro est múlier, vivénte viro, alligáta est legi: si autem mórtuus fúerit vir ejus, solúta est a lege viri. Igitur, vivénte viro, vocábitur adúltera si fúerit cum álio viro: si autem mórtuus fúerit vir ejus, liberáta est a lege viri: ut non sit adúltera si fúerit cum álio viro.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+#### Lectio ii
+
+ITAQUE, fratres mei, et vos mortificáti estis legi per corpus Christi: ut sitis altérius, qui ex mórtuis resurréxit, ut fructificémus Deo. Cum enim essémus in carne, passiónes peccatórum, quæ per legem erant, operabántur in membris nostris, ut fructificárent morti. Nunc autem solúti sumus a lege mortis, in qua detinebámur, ita ut serviámus in novitáte spíritus, et non in vetustáte lítteræ.
+
+℟. Nésciens mater Virgo virum, péperit sine dolóre: \* Salvatórem sæculórum, ipsum Regem Angelórum, sola Virgo lactábat úbere de cælo pleno. ℣. Domus pudíci péctoris templum repénte fit Dei: intácta nésciens virum, verbo concépit Fílium. — Salvatórem. (Glória Patri. Salvatórem.)
+
+#### Lectio iii
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 1 de Innocentibus}
+
+NASCÉNTE Dómino, luctus cœpit, non cælo, sed mundo: indícitur mátribus lamentátio, Angelis exsultátio, infántibus transmigrátio. Deus est, qui natus est: Innocéntes illi debéntur víctima, qui venit damnáre mundi malítiam. Agnélli debent immolári, quia Agnus futúrus est crucifígi, qui tollit peccáta mundi. Sed oves úlulant matres, quia agnos perdunt sine voce balán-

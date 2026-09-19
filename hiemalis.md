@@ -34164,4 +34164,46 @@ DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victó
 
 LIBERÁSTI me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de multis tribulatiónibus, quæ circumdedérunt me.
 
-℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elé-
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elé-git eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+### Ad Nonam
+
+{RUBRIC: Capit.} *Eccli. 51, 8 et 12*
+
+LAUDÁBIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine Deus noster.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ de Laudibus} [860]; {RUBRIC: Psalmi ut in Communi Dedicatiónis Ecclésiæ.} [140]
+
+{RUBRIC: A Capítulo fit de sequénti, Commemorátio præcedéntis, in Quadragésima Fériæ, ac S. Dorótheæ Virg. et Mart., ut infra.}
+
+{RUBRIC: Si Vésperæ dicéndæ sint íntegræ, Antiphónæ, Capítulum, Hymnus et ℣. de Laudibus} [860]; {RUBRIC: Antiphóna ad Magníficat Stans, ut infra.}
+
+## Die 6 Februarii
+
+### S. Titi
+
+{RUBRIC: Epíscopi et Confessóris}
+
+{RUBRIC: Duplex} (m. t. v.) [69]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+#### Oratio
+
+DEUS, qui beátum Titum Confessórem tuum atque Pontíficem apostólicis virtútibus decorásti: ejus méritis et intercessióne concéde; ut juste et pie vivéntes in hoc sǽculo, ad cæléstem pátriam perveníre mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Stans beáta Agatha in médio cárceris, expánsis mánibus orábat ad Dóminum: Dómine Jesu Christe, magíster bone, grátias tibi ago, qui me fecísti víncere torménta carníficum; jube me, Dómine, ad tuam immarcescíbilem glóriam felíciter perveníre.
+
+℣. Diffúsa est grátia.
+
+#### Oratio
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Agathæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dómi-

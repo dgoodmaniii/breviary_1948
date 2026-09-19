@@ -30770,4 +30770,16 @@ MAGNA deínceps tranquillitáte Pictavórum ecclésiam administrávit: Galliámq
 
 #### Lectio ix
 
-HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia ex-
+HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia ex-célluit. Pictavórum epíscopus creátus, tale munus sic gessit, ut a fidélibus summam laudem consequerétur. Ob cathólicam fidem, quam strénue propugnávit, quadriénnio apud Phrýgiam relegátus, inter ália miracula, mórtuum suscitávit. Duódecim libros scripsit de Trinitáte contra Ariános, et Gálliam univérsam addúxit, ut Ariánórum impietátem condemnáret. Multos libros scripsit mira eruditióne; quos omnes sanctus Hierónymus ad Lætam, sine ulla erróris suspicióne legi posse testátur illis verbis: Hilárii libros inoffénso decúrrat pede. Migrávit in cælum Idibus Januárii, anno trecentésimo sexagésimo nono. Eum Pius nonus Póntifex máximus, instánte sýnodo Burdigalénsi, Doctórem universális Ecclésiæ declarávit et confirmávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Vos estis sal terræ, {RUBRIC: de Comm. Doctórum 2 loco.} [91]
+
+{RUBRIC: Pro S. Felíce Presbýtero et Mártyre}
+
+#### Lectio ix
+
+FELIX Nolánus présbyter, cum in idóla vehiméntius inveherétur, ab infidélibus várie vexátus, in cárcerem conjícitur. Unde ab Angelo nocte edúctus, quærere jussus est Maximiánum Nolæ epíscopum: qui, cum sénio conféctus desperáret se ferre posse supplícia persequéntium, se abdíderat in silvam. Quo cum Felix Deo duce pervenísset, sanctum epíscopum humi jacéntem pene mórtuum videt; quem recreátum ac sublátum in húmeros, apud fidélem víduam reficiéndum curávit. Sed cum is íterum idolórum cultóres impietátis argúeret, facto in ipsum ímpetu, fúgiens in angústo duórum paríetum intervállo se occultávit; qui áditus cum repénte araneárum telis pertéxtus visus esset, némini recéntis látebræ suspiciónem relíquit. Inde ígitur evádens Felix in ædibus piæ mulíeris tres menses látuit. Cum vero Dei Ecclésia requiéscere cœpísset, Nolam rédiens, multísque ibi vitæ exémplis, et doctrínæ præcéptis, miraculísque ad Christi fidem convérsis, constánter étiam recusáto ejus urbis episcopátu, obdormívit in Dómino, sepultúsque est prope Nolam in loco, quem in Píncis appellábant.
+
+{RUBRIC: Te Deum laudámus.}

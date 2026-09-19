@@ -28372,3 +28372,72 @@ DEUS, qui nos beáti Saturníni Mártyris tui concédis natalítio pérfrui: eju
 ℣. Justus ut palma.
 
 {RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Die 30 Novembris
+
+### S. Andreæ Apostoli
+
+{RUBRIC: Duplex II classis}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], prǽter ea quæ hic habéntur própria.}
+
+##### In I Vesperis
+
+{RUBRIC: Antiphónæ, Capítulum et Hymnus de Laudibus.} [REF: p. 682]
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Unus ex duóbus, \* qui secúti sunt Dóminum, erat Andréas, frater Simónis Petri, allelúja.
+
+###### Oratio
+
+MAJESTÁTEM tuam, Dómine, supplíciter exorámus: ut, sicut Ecclésiæ tuæ beátus Andréas Apóstolus éxstitit prædicátor et rector; ita apud te sit pro nobis perpétuus intercéssor. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+##### Ad Matutinum
+
+**Invitat.** Regem Apostolórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+###### Hymnus
+
+ÆTÉRNA Christi múnera,
+Apostolórum glóriam,
+Palmas et hymnos débitos
+Lætis canámus méntibus.
+
+Ecclesiárum Príncipes,
+Belli triumpháles duces,
+Cæléstis aulæ mílites
+Et vera mundi lúmina.
+
+Devóta Sanctórum fides,
+Invícta spes credéntium,
+Perfécta Christi cáritas
+Mundi tyránnum cónterit.
+
+In his Patérna glória,
+In his triúmphat Fílius,
+In his volúntas Spíritus,
+Cælum replétur gáudio.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sǽclum per omne glória. Amen.
+
+### In I Nocturno
+
+**Ant.** Vidit Dóminus \* Petrum et Andréam, et vocávit eos.
+
+###### Psalmus 18
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.

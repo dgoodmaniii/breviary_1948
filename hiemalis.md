@@ -21041,3 +21041,51 @@ In sempitérna sécula. Amen.
 ### In II Vesperis
 
 ℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+**Ad Magnif. Ant.** Magnum \* hereditátis mystérium: templum Dei factus est úterus nesciéntis virum: non est pollútus ex ea carnem assúmens; omnes gentes vénient, dicéntes: Glória tibi, Dómine.
+
+#### Oratio
+
+DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fœcúnda, humáno géneri prǽmia præstitísti: tríbue, quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum Fílium tuum: Qui tecum.
+
+{RUBRIC: Et nulla fit Commemoratio, nisi tantum de præcedénti Dúplici II classis, sicúbi occúrrerit.}
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invit.** Christus natus est nobis: \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+**Hymnus** Jesu, Redémptor, {RUBRIC: ut supra. 447}
+
+### In I Nocturno
+
+**Ant.** Dóminus dixit \* ad me: Fílius meus es tu, ego hódie génui te.
+
+#### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.

@@ -16393,3 +16393,61 @@ HUIC étenim lectióni sancti Evangélii, quam modo vestra fratérnitas audívit
 #### Lectio ix
 
 NAM gentem contra gentem exsúrgere, earúmque pressúram terris insístere, plus jam in nostris tempóribus cérnimus, quam in codícibus légimus. Quod terræmótus urbes innúmeras óbruat, ex áliis mundi pártibus scitis quam frequénter audívimus. Pestiléntias sine cessatióne pátimur. Signa vero in sole, et luna, et stellis, adhuc apérte mínime vídimus: sed quia et
+hæc non longe sint, ex ipsa jam áëris immutatióne collígimus.
+
+℟. Ecce dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit, et fáciet judícium et justítiam in terra: \* Et hoc est nomen quod vocábunt eum: \* Dóminus justus noster. ℣. In diébus illis salvábitur Juda, et Israël habitábit confidénter. — Et hoc. Glória. Dóminus.
+
+{RUBRIC: Et non dícitur Hymnus Te Deum in Offíciis de Témpore per totum Advéntum.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** In illa die \* stillábunt montes dulcédinem, et colles fluent lac et mel, allelúja.
+
+{RUBRIC: Psalmi cum Cántico de Dominica 1 loco. 44}
+
+**2** Jucundáre, \* fília Sion, et exsúlta satis, fília Jerúsalem, allelúja.
+
+**3** Ecce Dóminus véniet, \* et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
+
+**4** Omnes sitiéntes, \* veníte ad aquas: quǽrite Dóminum, dum inveníri potest, allelúja.
+
+**5** Ecce véniet \* Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+#### Capitulum
+
+*Rom. 13, 11*
+
+FRATRES: Hora est jam nos de somno súrgere: nunc enim própior est nostra salus, quam cum credídimus.
+
+#### Hymnus
+
+EN clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit,
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habé-

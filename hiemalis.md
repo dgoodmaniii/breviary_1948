@@ -24844,3 +24844,31 @@ Te Deum laudámus.
 #### Oratio
 
 GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Hygínum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+## Die 11 Januarii
+
+# De VI die infra Octavam Epiphaniæ
+
+{RUBRIC: Semiduplex [REF: p. 492]}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 15, 1-16*
+
+DEBÉMUS autem nos firmióres imbecillitátes infirmórum sustinére, et non nobis placére. Unusquísque vestrum próximo suo pláceat in bonum, ad ædificatiónem. Etenim Christus non sibi plácuit, sed sicut scriptum est: Impropéria improperántium tibi cecidérunt super me. Quæcúmque enim scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam et consolatiónem Scripturárum, spem habeámus.
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+#### Lectio ii
+
+DEUS autem patiéntiæ et solátii det vobis idípsum sápere in altérutrum secúndum Jesum Christum: ut unánimes, uno ore honorificétis Deum, et Patrem Dómini nostri Jesu Christi. Propter quod suscípite ínvicem, sicut et Christus suscépit vos in honórem Dei. Dico enim Christum Jesum minístrum fuísse circumcisiónis propter veritátem Dei, ad confirmándas promissiónes patrum: gentes autem super misericórdia honoráre Deum, sicut scriptum est: Proptérea confitébor tibi in géntibus, Dómine, et nómini tuo cantábo. Et íterum dicit: Lætámini, gentes, cum plebe ejus. Et íterum: Laudáte, omnes gentes, Dóminum, et magnificáte eum, omnes pópuli.
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+#### Lectio iii
+
+ET rursus Isaías ait: Erit radix Jesse, et qui exsúrget régere gentes, in eum gentes sperábunt. Deus autem spei répleat

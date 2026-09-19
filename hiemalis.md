@@ -25882,3 +25882,30 @@ NAM in Christo Jesu neque circumcísio áliquid valet, neque præpútium: sed fi
 #### Lectio iii
 
 EGO autem, fratres, si circumcisiónem adhuc prǽdico: quid adhuc persecutiónem pátior? Ergo evacuátum est scándalum crucis. Utinam et abscindántur qui vos contúrbant. Vos enim in libertátem vocáti estis, fratres: tantum ne libertátem in occasiónem detis carnis, sed per caritátem Spíritus servíte ínvicem. Omnis enim lex in uno sermóne implétur: Díliges próximum tuum sicut teípsum. Quod si ínvicem mordétis, et coméditis: vidéte ne ab ínvicem consumámini. Dico autem: Spíritu ambuláte, et desidéria carnis non perficiétis. Caro enim concupíscit advérsus spí-
+ritum: spíritus autem advérsus carnem: hæc enim sibi ínvicem adversántur: ut non quæcúmque vultis, illa faciátis.
+
+℟. Ego dixi, Dómine, miserére mei: \* Sana ánimam meam, quia peccávi tibi. ℣. Ab ómnibus iniquitátibus meis éripe me, Dómine. — Sana. Glória Patri. Sana.
+
+### Feria Quarta
+
+### Incipit Epistola beati Pauli Apostoli ad Ephesios
+
+#### Lectio i
+
+*Cap. 1, 1-14*
+
+PAULUS Apóstolus Jesu Christi per voluntátem Dei, ómnibus sanctis, qui sunt Ephesi, et fidélibus in Christo Jesu. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo. Benedíctus Deus et Pater Dómini nostri Jesu Christi, qui benedíxit nos in omni benedictióne spirituáli in cæléstibus in Christo, sicut elégit nos in ipso ante mundi constitutiónem, ut essémus sancti et immaculáti in conspéctu ejus in caritáte.
+
+℟. Ne perdíderis me cum iniquitátibus meis: \* Neque in finem irátus resérves mala mea. ℣. Non intres in judícium cum servo tuo, Dómine. — Neque.
+
+#### Lectio ii
+
+QUI prædestinávit nos in adoptiónem filiórum per Jesum Christum in ipsum: secúndum propósitum voluntátis suæ, in laudem glóriæ grátiæ suæ, in qua gratificávit nos in dilécto Fílio suo. In quo habémus redemptiónem per sánguinem ejus, remissiónem peccatórum secúndum divítias grátiæ ejus, quæ superabundávit in nobis in omni sapiéntia, et prudéntia: ut notum fáceret nobis sacraméntum voluntátis suæ, secúndum beneplácitum ejus, quod propósuit in eo, in dispensatióne plenitúdinis témporum, instauráre ómnia in Christo, quæ in cælis, et quæ in terra sunt, in ipso.
+
+℟. Parátum cor meum, Deus, parátum cor meum: \* Cantábo, et psalmum dicam Dómino. ℣. Exsúrge, glória mea, exsúrge, psaltérium et cíthara, exsúrgam dilúculo. — Cantábo.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Cantábo.}
+
+#### Lectio iii
+
+IN quo étiam et nos sorte vocáti sumus, prædestináti secúndum propósitum ejus, qui operátur ómnia secúndum consílium voluntátis suæ: ut simus

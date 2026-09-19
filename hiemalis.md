@@ -27663,3 +27663,29 @@ LOCÚTUS est autem Deus ad Noë, dicens: Egrédere de arca, tu et uxor tua, fíl
 ℟. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos: \* Neque erit deínceps dilúvium díssipans terram. ℣. Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. — Neque erit.
 
 {RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Neque.}
+
+#### Lectio iii
+
+*Cap. 9, 1-6*
+
+BENEDIXÍTQUE Deus Noë et fíliis ejus. Et dixit ad eos: Créscite, et multiplicámini, et repléte terram. Et terror vester ac tremor sit super cuncta animália terræ, et super omnes vólucres cæli, cum univérsis quæ movéntur super terram: omnes pisces maris mánui vestræ tráditi sunt. Et omne, quod movétur et vivit, erit vobis in cibum: quasi ólera viréntia trádidi vobis ómnia. Excépto, quod carnem cum sánguine non comedétis. Sánguinem enim animárum vestrárum requíram de manu cunctárum bestiárum; et de manu hóminis, de manu viri, et fratris ejus requíram ánimam hóminis. Quicúmque effúderit humánum sánguinem, fundétur sanguis illíus: ad imáginem quippe Dei factus est homo.
+
+℟. In artículo diéi illíus ingréssus est Noë in arcam, et fílii ejus, \* Uxor illíus et uxóres filiórum ejus. ℣. Deléta sunt univérsa de terra, remánsit autem solus Noë, et qui cum eo erant in arca. — Uxor. Glória Patri. Uxor.
+
+**Ad Magnif. Ant.** Quod autem cécidit \* in terram bonam, hi sunt, qui in corde bono et óptimo fructum áfferunt in patiéntia.
+
+{RUBRIC: Si prædíctæ Antíphonæ ad Magníficat non potuérint dici in præcedéntibus Fériis, et in sequéntibus Fériis V et VI Vésperæ sint de Féria, dícitur última ex iis prætermíssa; alióquin, si omnes recitátæ fúerint, súmitur de Psaltério.}
+
+---
+
+### Feria Quinta
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 9, 12-15*
+
+DIXÍTQUE Deus: Hoc signum fœderis quod do inter me et vos, et ad omnem ánimam vivéntem, quæ est vobíscum in generatiónes sempitérnas: Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. Cumque obdúxero núbibus cælum, apparébit arcus meus in núbibus: et recordábor fœderis mei vobíscum, et cum omni ánima vivénte, quæ carnem végetat: et non erunt ultra aquæ dilúvii ad deléndum univérsam carnem.
+
+℟. Dixit Dóminus ad Noë: Finis univérsæ carnis venit coram me: repléta est terra iniquitáte eórum, \* Et ego dispérdam eos cum terra. ℣. Fac tibi arcam de lignis lævigátis, mansiúnculas in ea fácies. — Et.

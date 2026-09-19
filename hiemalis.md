@@ -26532,3 +26532,58 @@ GAUDIUM enim magnum hábui, et consolatiónem in caritáte tua: quia víscera sa
 ℟. Dómine, exáudi oratiónem meam, et clamor meus ad te pervéniat: \* Quia non spernis, Deus, preces páuperum. ℣. Fiant aures tuæ intendéntes in oratiónem servi tui. — Quia.
 
 {RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Quia.}
+
+#### Lectio iii
+
+TU autem illum, ut mea víscera, súscipe: quem ego volúeram mecum detinére, ut pro te mihi ministráret in vínculis Evangélii: sine consílio autem tuo nihil vólui fácere, uti ne velut ex necessitáte bonum tuum esset, sed voluntárium. Fórsitan enim ídeo discéssit ad horam a te, ut ætérnum illum recíperes: jam non ut servum, sed pro servo caríssimum fratrem, máxime mihi: quanto autem magis tibi et in carne et in Dómino? Si ergo habes me sócium, súscipe illum sicut me: si autem áliquid nócuit tibi, aut debet: hoc mihi ímputa. Ego Paulus scripsi mea manu.
+
+℟. Velóciter exáudi me, Deus, \* Quia defecérunt sicut fumus dies mei: \* Tu autem idem ipse es, et anni tui non defícient. ℣. Dies mei sicut umbra declinavérunt, et ego sicut fœnum árui. — Quia. Glória Patri. Tu.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Suscépit Deus \* Israël, púerum suum: sicut locútus est ad Abraham, et semen ejus usque in sǽculum.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut semper rationabília meditántes, quæ tibi sunt plácita, et dictis exsequámur, et factis. Per Dóminum.
+
+## Dominica VI post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit Epístola beáti Pauli Apóstoli ad Hebrǽos}
+
+#### Lectio i
+
+*Cap. 1, 1-14*
+
+MULTIFÁRIAM, multísque modis olim Deus loquens pátribus in prophétis: novíssime, diébus istis locútus est nobis in Fílio, quem constítuit herédem universórum, per quem fecit et sǽcula: qui cum sit splendor glóriæ, et figúra substántiæ ejus, portánsque ómnia verbo virtútis suæ, purgatiónem peccatórum fáciens, sedet ad déxteram majestátis in excélsis: tanto mélior Angelis efféctus, quanto differéntius præ illis nomen hereditávit.
+
+℟. Dómine, ne in ira tua árguas me, neque in furóre
+tuo corrípias me: \* Miserére mei, Dómine, quóniam infírmus sum. ℣. Timor et tremor venérunt super me, et contexérunt me ténebræ. — Miserére.
+
+#### Lectio ii
+
+CUI enim dixit aliquándo Angelórum: Fílius meus es tu, ego hódie génui te? Et rursum: Ego ero illi in patrem, et ipse erit mihi in fílium? Et cum íterum introdúcit primogénitum in orbem terræ, dicit: Et adórent eum omnes Angeli Dei. Et ad Angelos quidem dicit: Qui facit Angelos suos spíritus, et minístros suos flammam ignis. Ad Fílium autem: Thronus tuus, Deus, in sǽculum sǽculi: virga æquitátis, virga regni tui. Dilexísti justítiam, et odísti iniquitátem: proptérea unxit te Deus, Deus tuus, óleo exsultatiónis præ participíbus tuis.
+
+℟. Deus, qui sedes super thronum, et júdicas æquitátem, esto refúgium páuperum in tribulatióne: \* Quia tu solus labórem et dolórem consíderas. ℣. Tibi enim derelíctus est pauper, pupíllo tu eris adjútor. — Quia.
+
+#### Lectio iii
+
+ET: Tu in princípio, Dómine, terram fundásti: et ópera mánuum tuárum sunt cæli. Ipsi períbunt, tu autem permanébis, et omnes ut vestiméntum veteráscent: et velut amíctum mutábis eos, et mutabúntur: tu autem idem ipse es, et anni tui non defícient. Ad quem autem Angelórum dixit aliquándo: Sede a dextris meis, quoadúsque ponam inimícos tuos scabéllum pedum tuórum? Nonne omnes sunt administratórii spíritus, in ministérium missi propter eos, qui hereditátem cápient salútis?
+
+℟. A dextris est mihi Dóminus, ne commóvear: \* Propter hoc dilatátum est cor meum, et exsultávit lingua mea. ℣. Dóminus pars hereditátis meæ, et cálicis mei. — Propter. Glória Patri. Propter.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Athanásii Epíscopi}
+
+{RUBRIC: Oratio 2 contra Arianos, post medium}
+
+#### Lectio iv
+
+SI persónam, rem, tempus apostólici dicti cognóscerent hærétici, numquam humána in Deitátem transferéntes, tam ímpie et stulte advérsus Christum sese habuíssent. Id intuéri licébit, si inítium lectiónis dé-

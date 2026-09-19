@@ -29138,3 +29138,48 @@ NICOLÁUS, illústri loco Pátaræ in Lýcia natus, quarta et sexta féria ab in
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+
+###### Oratio
+
+DEUS, qui beátum Nicoláum Pontíficem innúmeris decorásti miráculis: tríbue, quǽsumus; ut ejus méritis et précibus a gehénnæ incéndiis liberémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis ac Fériæ.}
+
+---
+
+### Die 7 Decembris
+
+#### S. Ambrosii
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex (m. t. v.) [69]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Ambrósi, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+**Oratio** C 3
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Ambrósium minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus qui beátum, ut supra.}
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+{RUBRIC: In I Nocturno, si dicéndæ non sint de Scriptúra occurrénti, Lectiónes Fidélis sermo, de Communi Conf. Pont. 1 loco.} [73]
+
+##### In II Nocturno
+
+#### Lectio iv
+
+AMBRÓSIUS epíscopus Mediolanénsis, Ambrósii civis Románi fílius, patre Gálliæ præfécto natus est. In hujus infántis ore exámen apum consedísse dícitur: quæ res divínam viri eloquéntiam præmonstrábat. Romæ liberálibus disciplínis erudítus est. Post a Probo præfécto Ligúriæ et Æmíliæ præpósitus: unde póstea ejúsdem Probi jussu cum potestáte Mediolánum venit; ubi, mórtuo Auxéntio Ariáno epíscopo, pópulus de successóre deligéndo dissidébat. Quare Ambrósius, pro offícii sui múnere ecclésiam ingréssus, ut commótam seditiónem sedáret, cum multa de quiéte et tranquillitáte reipúblicæ præcláre dixísset, derepénte púero Ambrósium epíscopum exclamánte, univérsi pópuli vox erúpit, Ambrósium epíscopum deposcéntis.

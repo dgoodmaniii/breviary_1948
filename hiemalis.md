@@ -32690,3 +32690,45 @@ Per univérsa æternitátis
     sǽcula. Amen.
 
 ℣. Tu es vas electiónis, sancte Paule Apóstole.
+
+℟. Prædicátor veritátis in univérso mundo.
+
+**Ad Magnif. Ant.** Sancte Paule Apóstole, \* prædicátor veritátis et doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+{RUBRIC: Et fit Commem. S. Petri Ap. ut supra ad Laudes.}
+
+{RUBRIC: Deinde Commem. sequéntis ut infra.}
+
+---
+
+## Die 26 Januarii
+
+### S. Polycarpi
+
+{RUBRIC: Episcopi et Martyris}
+
+{RUBRIC: Duplex} [29]
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+**Oratio** C 2
+
+DEUS, qui nos beáti Polycárpi Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes A Miléto.} [32]
+
+### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato, pro Lectione ix, dicitur sequens Lectio iv.}
+
+{RUBRIC: Ex libro sancti Hierónymi Presbýteri de Scriptóribus ecclesiásticis}
+
+#### Lectio iv
+
+*Cap. 17*
+
+POLYCÁRPUS, Joánnis Apóstoli discípulus et ab eo Smyrnæ epíscopus ordinátus, totíus Asiæ princeps fuit, quippe qui nonnúllos Apostolórum et eórum qui víderant Dóminum, magístros habúerit et víderit. Hic propter quasdam super die Paschæ quæstiónes, sub imperatóre Antoníno Pio, Ecclésiam in Urbe regénte Anicéto, Romam venit; ubi plúrimos credéntium, Marciónis et Valentíni persuasióne decéptos, redúxit ad fidem. Cumque ei fortúito óbviam fuísset Márcion et díceret: Cognóscis nos? respóndit: Cognósco primogénitum diáboli. Póstea vero, regnánte Marco Antoníno et Lúcio Aurélio Cómmodo, quarta post Nerónem persecutióne, Smyrnæ, sedénte procónsule et univérso pópulo in amphitheátro advérsus eum personánte, igni tráditus est. Scripsit ad Philippénses valde útilem epístolam, quæ usque hódie in Asiæ convéntu légitur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a sedu-

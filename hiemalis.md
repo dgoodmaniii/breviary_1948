@@ -18979,3 +18979,29 @@ Véritas de terra orta est: \* et justítia de cælo prospéxit.
 Etenim Dóminus dabit benignitátem: \* et terra nostra dabit fructum suum.
 
 Justítia ante eum ambulábit: \* et ponet in via gressus suos.
+
+**Ant.** Véritas de terra orta est, et justítia de cælo prospéxit.
+
+℣. Speciósus forma præ fíliis hóminum. ℟. Diffúsa est grátia in lábiis tuis.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 1 de Nativitate Dómini}
+
+#### Lectio iv
+
+SALVÁTOR noster, dilectíssimi, hódie natus est: gaudeámus. Neque enim fas est locum esse tristítiæ, ubi natális est vitæ: quæ, consúmpto mortalitátis timóre, nobis íngerit de promíssa æternitáte lætítiam. Nemo ab hujus alacritátis participatióne secérnitur. Una cunctis lætítiæ commúnis est rátio: quia Dóminus noster, peccáti mortísque destrúctor, sicut nullum a reátu líberum réperit, ita liberándis ómnibus venit. Exsúltet sanctus, quia appropínquat ad palmam: gáudeat peccátor, quia invitátur ad véniam: animétur gentílis, quia vocátur ad vitam. Dei namque Fílius secúndum plenitúdinem témporis, quam divíni consílii inscrutábilis altitúdo dispósuit, reconciliándam auctóri suo natúram géneris assúmpsit
+
+humáni, ut invéntor mortis diábolus, per ipsam, quam vícerat, vincerétur.
+
+℟. O magnum mystérium, et admirábile sacraméntum, ut animália vidérent Dóminum natum, jacéntem in præsépio: \* Beáta Virgo, cujus víscera meruérunt portáre Dóminum Christum. ℣. Ave, María, grátia plena; Dóminus tecum. — Beáta.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+IN quo conflíctu pro nobis ínito, magno et mirábili æquitátis jure certátum est, dum omnípotens Dóminus cum sævíssimo hoste non in sua majestáte, sed in nostra congréditur humilitáte: objíciens ei eámdem formam, eamdémque natúram, mortalitátis quidem nostræ partícipem, sed peccáti totíus expértem. Aliénum quippe ab hac nativitáte est, quod de ómnibus légitur: Nemo mundus a sorde, nec infans, cujus est uníus diéi vita super terram. Nihil ergo in istam singulárem nativitátem de carnis concupiscéntia transívit, nihil de peccáti lege manávit. Virgo régia Davídicæ stirpis elígitur, quæ sacro gravidánda fœtu, divínam humanámque prolem prius concíperet mente,

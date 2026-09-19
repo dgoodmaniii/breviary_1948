@@ -30130,3 +30130,11 @@ QUIBUS te láudibus cumulábimus, María? O puélla immaculáta; o virgo impoll�
 #### Lectio viii
 
 TU es prophetárum spéculum et rerum ab illis prænuntiatárum éxitus. Te eníxe Ezéchiel vaticínans appellávit portam clausam, per quam nemo hóminum úmquam trans-
+íbit nisi Dóminus Deus solus, et portam clausam conservábit. Te Isaías ille in primis grandíloquus prænúntiat virgam Jesse, ex qua flos Christus oriétur, et fruticíbus vitiórum exstirpátis radícitus, plantas divínæ cognitiónis in agro ínseret. Te Jeremías præmonstrávit ínquiens: Ecce dies vénient, dicit Dóminus, et fériam dómui Israël et dómui Judæ fœdus novum, quod constítui cum pátribus eórum, ita significans advéntum ortúmque Fílii tui, et pópulum géntium vocans ad Deum adorándum inde usque a fínibus terræ. Te étiam Dániel vir desideriórum proclamávit montem ingéntem, e quo Christus lapis anguláris abscindétur, et simulácrum multifórmis serpéntis ruína atque exítio dissipábit. Te honóro agnam immaculátam, et prǽdico grátia plenam, te cano Dei habitatiónem puram et immaculátam. Et sane ubi abundávit delíctum, superabundávit grátia. Per mulíerem mortem lucráti sumus, per mulíerem univérsa ipse rursus instaurábit. Per serpéntem cibum accépimus amári sapóris, per ipsum vero rursum vescémur cibo immortalitátis. Prima parens Heva Caí-
+num in lucem édidit invídiæ et nequítiæ príncipem; unigénitus Fílius tuus erit primogénitus vitæ et resurrectiónis. O inaudítum prodígium! O admirándam novitátem! O sapiéntiam nullis verbis coæquándam!
+
+℟. Magníficat ánima mea Dóminum: \* Quia fecit mihi magna qui potens est, et sanctum nomen ejus. ℣. Ecce enim ex hoc beátam me dicent omnes generatiónes. — Quia. Glória Patri. Quia.
+
+#### Lectio ix
+
+NOS autem pópulus Dei, gens sancta, congregátio acceptábilis, fílii colúmbæ, sóboles grátiæ, in hac Vírginis celebritáte puris ánimis, impollútis lábiis, multísonis linguis hymnos suavídicos extollámus. Illústre hoc festum, príncipem solemnitátem Angelis lætam et hóminum prædicatióne digníssimam, próuti par est, venerántes, illud Ave Gabriélis cum reveréntia et gáudio sancto conclamémus. Ave, delícium Patris, per quam ad últimos terræ fines Dei cognítio manávit. Ave, Fílii domicílium, de qua ille carne indútus prodívit. Ave, Sancti Spíritus habitáculum ineffábile. Ave, sán-

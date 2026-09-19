@@ -22197,3 +22197,31 @@ Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
+
+### Ad Nocturnum
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 5, 1-9*
+
+JUSTIFICÁTI ergo ex fide, pacem habeámus ad Deum per Dóminum nostrum Jesum Christum: per quem et habémus accéssum per fidem in grátiam istam, in qua stamus, et gloriámur in spe glóriæ filiórum Dei. Non solum autem, sed et gloriámur in tribulatiónibus: sciéntes quod tribulátio patiéntiam operátur: patiéntia autem probatiónem, probátio vero spem, spes autem non confúndit: quia cáritas Dei diffúsa est in córdibus nostris per Spíritum Sanctum, qui datus est nobis.
+
+℟. Ecce Agnus Dei, ecce qui tollit peccáta mundi, ecce de quo dicébam vobis: Qui post me venit, ante me factus est: \* Cujus non sum dignus corrígiam calceaménti sólvere. ℣. Qui de terra est, de terra lóquitur: qui de cælo venit, super omnes est. — Cujus.
+
+#### Lectio ii
+
+UT quid enim Christus, cum adhuc infírmi essémus, secúndum tempus pro ímpiis mórtuus est? Vix enim pro justo quis móritur: nam pro bono fórsitan quis áudeat mori. Comméndat autem caritátem suam Deus in nobis: quóniam cum adhuc peccatóres essémus, secúndum tempus Christus pro nobis mórtuus est: multo ígitur magis nunc justificáti in sánguine ipsíus, salvi érimus ab ira per ipsum.
+
+℟. Dies sanctificátus illúxit nobis: veníte, gentes, et adoráte Dóminum: \* Quia hódie descéndit lux magna in terris. ℣. Hæc dies quam fecit Dóminus, exsultémus et lætémur in ea. — Quia. (Glória Patri. Quia.)
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 2 de S. Stéphano}
+
+#### Lectio iii
+
+CHRISTUS caput Mártyrum prior passus est pro nobis, relínquens vobis exémplum, ut sequámini vestígia ejus. Cujus passiónis vestígia prosecútus beatíssimus Stéphanus, confiténdo Christum lapidátus a Judǽis, corónam méruit tamquam suo sibi nómine pósitam. Stéphanus enim Græce, Latíne coróna appellátur. Jam corónæ nomen habébat, et ídeo palmam martýrii suo nómine præferébat. Qui cum lapidarétur, non solum non exspectábat de persecutóribus reportáre vindíctam, sed eis pótius a Deo véniam postulábat.
+
+Te Deum laudámus.

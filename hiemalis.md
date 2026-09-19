@@ -23747,3 +23747,28 @@ DEUS, cujus Unigénitus in substántia nostræ carnis appáruit: præsta, quǽsu
 {RUBRIC: Infra Octávam Offícium dícitur ut in Festo, ut supra notátur, prǽter ea quæ pro síngulis diébus assignántur própria.}
 
 {RUBRIC: De Domínica infra Octávam non dícitur Offícium, sed fit tantúmmodo Commemorátio
+ in Festo Sanctæ Famíliæ, tum si hoc in ipsa celebrétur Domínica, tum si ob occúrsum diéi Octávæ ipsum in diem Sábbati vel in proximiórem antecedéntem Fériam anticipétur, ut infra notábitur.
+
+Post Domínicam vero, prima Féria, in qua fiat Offícium de die infra Octávam, vel, si Domínica in diem 13 Januárii incíderit, in ipsíus diéi Octávæ Offício, Lectiónes I Noctúrni, omíssis iis quæ supersint de Epístola ad Romános, sumúntur de Epístola prima ad Corínthios, quæ inférius post diem Octávam apponúntur; et de ipsa légitur réliquis tum intra tum extra Octávam Fériis usque ad Sábbatum ante Domínicam sequéntem inclusíve.
+
+---
+
+## Dominica infra Octavam Epiphaniæ
+
+# Sanctæ Familiæ Jesu, Mariæ, Joseph
+
+{RUBRIC: Duplex Majus}
+
+{RUBRIC: ¶ Quando dies Octáva Epiphaníæ in Domínicam incíderit, Sábbato præcedénti fit Offícium de Sancta Família, et Féria VI dicúntur I Vésperæ de ipsa Sancta Família, cum Commemoratióne præcedéntis diéi infra Octávam ac Domínicæ infra Octávam, ut infra.}
+
+{RUBRIC: Sicubi tamen hoc Sábbato occúrrat Festum duplex I classis, Offícium de Sancta Família cum Commemoratióne ipsíus Domínicæ anticipátur in proximiórem Fériam in qua secus faciéndum esset Offícium de Octáva; et in Offício tam Festi dúplicis I classis quam Sanctæ Famíliæ fit Commemorátio curréntis diéi infra Octávam.}
+
+{RUBRIC: Dénique, a die 7 ad 12 Januárii inclusíve, ubi occúrrerit Domínica simul et Festum duplex I classis, Officio tam Festi duplicis I classis quam Sanctæ Famíliæ prius Sanctæ Famíliæ, cujus Offícium cum ómnibus et síngulis júribus in perpétuum Offício Domínicæ subrogátum exstítit, deínde Domínicæ et Octávæ; atque ad Matutínum dícitur Lectio ix de Homilía ipsíus Domínicæ, ut infra post Offícium ejúsdem Sanctæ Famíliæ assignátur.}
+
+### In I Vesperis
+
+**Ant. 1** Jacob autem \* génuit Joseph virum Maríæ; de qua natus est Jesus, qui vocátur Christus.
+
+{RUBRIC: Psalmi ut in Communi Festórum B. Maríæ V.}
+
+**2** Angelus Dómini \* appáruit in somnis Joseph, dicens: Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est.

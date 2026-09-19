@@ -24399,3 +24399,53 @@ DESCÉNDIT Jesus cum María et Joseph, et venit Názareth, et erat súbditus ill
 #### Oratio
 
 DÓMINE Jesu Christe, qui Maríæ et Joseph súbditus, doméstiam vitam ineffabílibus virtútibus consecrásti: fac nos, utriúsque auxílio, Famíliæ sanctæ tuæ exémplis ínstrui; et consórtium cónsequi sempitérnum: Qui vivis.
+
+### Ad Sextam
+
+**Ant.** Descéndit Jesus \* cum eis, et venit Názareth, et erat súbditus illis.
+
+#### Capitulum
+
+*Rom. 5, 19*
+
+SICUT per inobediéntiam uníus hóminis peccatóres constitúti sunt multi, ita et per uníus obeditiónem justi constituéntur multi.
+
+℟. br. Dóminus vias suas \* Docébit nos. Dóminus. ℣. Et ambulábimus in sémitis ejus. Docébit nos. Glória Patri. Dóminus. ℣. Pauper sum ego, et in labóribus a juventúte mea. ℟. Exaltátus autem humiliátus sum, et conturbátus.
+
+### Ad Nonam
+
+**Ant.** Et dicébant: \* Unde huic sapiéntia hæc et virtútes? Nonne hic est fabri fílius?
+
+#### Capitulum
+
+*Philipp. 2, 7*
+
+SEMETÍPSUM exinanívit formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+℟. br. Pauper sum ego, et in labóribus \* A juventúte mea. Pauper. ℣. Exaltátus autem, humiliátus sum et conturbátus. A juventúte mea. Glória Patri. Pauper. ℣. Ponam univérsos fílios tuos doctos a Dómino. ℟. Et multitúdinem pacis fíliis tuis.
+
+### In II Vesperis
+
+{RUBRIC: Antíphonæ de Laudibus [REF: p. 524], vel de I Vésperis [REF: p. 511], quóties in eis de hoc Festo facta tantum fúerit Commemorátio; Psalmi, Capítulum et Hymnus ut in I Vésperis. [REF: p. 511]}
+
+℣. Ponam univérsos fílios tuos doctos a Dómino. ℟. Et multitúdinem pacis fíliis tuis.
+
+**Ad Magnif. Ant.** María autem \* conservábat ómnia verba hæc, cónferens in corde suo.
+
+{RUBRIC: Et fit Commemoratio sequéntis diéi infra Octávam: Antíphona diéi curréntis própria.}
+
+℣. Reges Tharsis et ínsulæ múnera ófferent. ℟. Reges Arabum et Saba dona addúcent.
+
+**Oratio** Deus, ut supra.
+
+{RUBRIC: Deinde Commemoratio Dominicæ:}
+
+**Ant.** Fili, quid fecísti nobis sic? Ego et pater tuus doléntes quærebámus te. Quid est quod me quærebátis? nesciebátis quia in iis, quæ Patris mei sunt, opórtet me esse?
+
+℣. Omnes de Saba vénient, allelúja. ℟. Aurum et thus deferéntes, allelúja.
+
+**Oratio** Vota, ut supra.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: ¶ Si dies Octáva Epiphaníæ incíderit in Domínicam, nihil fit de Domínica in ipsa die Octáva, sed tantum in I Ve-

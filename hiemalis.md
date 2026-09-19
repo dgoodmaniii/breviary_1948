@@ -13898,4 +13898,54 @@ Anticipavérunt vigílias óculi mei: \* turbátus sum, et non sum locútus.
 
 Cogitávi dies antíquos: \* et annos ætérnos in mente hábui.
 
-Et meditátus sum nocte cum corde meo, \* et exer-
+Et meditátus sum nocte cum corde meo, \* et exercitábar, et scopébam spíritum meum.
+
+Numquid in ætérnum projíciet Deus: \* aut non appónet ut complacítior sit adhuc?
+
+Aut in finem misericórdiam suam abscíndet, \* a generatióne in generatiónem?
+
+Aut obliviscétur misseréri Deus? \* aut continébit in ira sua misericórdias suas?
+
+Et dixi: Nunc cœpi: \* hæc mutátio déxteræ Excélsi.
+
+Memor fui óperum Dómini: \* quia memor ero ab inítio mirabílium tuórum.
+
+Et meditábor in ómnibus opéribus tuis: \* et in adinventiónibus tuis exercébor.
+
+#### Psalmus 76, ii
+
+DEUS, in sancto via tua: \* quis Deus magnus sicut Deus noster?
+
+Tu es Deus qui facis mirabília.
+
+Notam fecísti in pópulis virtútem tuam: \* redemísti in bráchio tuo pópulum tuum, fílios Jacob et Joseph.
+
+Vidérunt te aquæ, Deus, vidérunt te aquæ: \* et timuérunt, et turbátæ sunt abýssi.
+
+Multitúdo sónitus aquárum: \* vocem dedérunt nubes.
+
+Eténim sagíttæ tuæ tránseunt: \* vox tonítrui tui in rota.
+
+Illuxérunt coruscatiónes tuæ orbi terræ: \* commóta est, et contrémuit terra.
+
+In mari via tua, et sémitæ tuæ in aquis multis: \* et vestígia tua non cognoscéntur.
+
+Deduxísti sicut oves pópulum tuum, \* in manu Móysi et Aaron.
+
+#### Psalmus 85
+
+INCLÍNA, Dómine, aurem tuam, et exáudi me: \* quóniam inops, et pauper sum ego.
+
+Custódi ánimam meam, quóniam sanctus sum: \* salvum fac servum tuum, Deus meus, sperántem in te.
+
+Miserére mei, Dómine, quóniam ad te clamávi tota die: \* lætífica ánimam servi tui, quóniam ad te, Dómine, ánimam meam levávi.
+
+Quóniam tu, Dómine, suávis, et mitis: \* et multæ misericórdiæ ómnibus invocántibus te.
+
+Áuribus pércipe, Dómine, oratiónem meam: \* et inténde voci deprecatiónis meæ.
+
+In die tribulatiónis meæ clamávi ad te: \* quia exaudísti me.
+
+Non est símilis tui in diis, Dómine: \* et non est secúndum ópera tua.
+
+Omnes gentes quascúmque fecísti, vénient, et

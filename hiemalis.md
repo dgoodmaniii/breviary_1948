@@ -28909,3 +28909,28 @@ HUNC dilatándi Evangélii ardórem multitúdine et excelléntia miraculórum D�
 #### Lectio ix
 
 FRANCÍSCUS, in Xavério diœcésis Pampelonénsis nobílibus paréntibus natus, Parísiis sancto Ignátio sese cómitem et discípulum junxit, et brevi mira vitæ austeritáte et rerum divinárum assídua contemplatióne cláruit. A Paulo tértio apostólicus núntius pro Indiis creátus, próvincias innúmeras pédibus semper, et sæpe nudis, peragrávit. Fidem Japóniæ et sex áliis regióni-
+bus invéxit. Multa centéna hóminum míllia ad Christum in Indiis convértit; magnósque príncipes regésque compúres sacro fonte expiávit. Ea tamen erat humilitáte, ut sancto Ignátio, præpósito suo, flexis génibus scríberet. Ejus dilatándi Evangélii ardórem multitúdine et excelléntia miraculórum Dóminus roborávit. Demum in Sanciáno Sinárum ínsula, die secúnda Decémbris, óbiit plenus méritis laboribúsque conféctus. Eum Gregórius décimus quintus inter Sanctos rétulit, Pius autem décimus sodalitáti et óperi Propagándæ Fídei cæléstem patrónum constítuit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 15-18*
+
+IN illo témpore: Dixit Jesus discípulis suis: Eúntes in mundum univérsum prædicáte Evangélium omni creatúræ. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Hom. 29 in Evang. post init.}
+
+POTEST omnis creatúræ nómine omnis natío géntium desígnari. Ante enim dictum fúerat: In viam géntium ne abiéritis; nunc autem dícitur: Prædicáte omni creatúræ: ut scílicet prius a Judǽa Apostolórum repúlsa prædicátio tunc nobis in adjutórium fíeret, cum hanc illa ad damnatiónis suæ testimónium supérba repulísset. Sed cum discípulos ad prædicándum Véritas mittit, quid áliud in mundo facit, nisi grana séminis spargit? Et pauca grana mittit in sémine, ut multárum méssium fruges recípiat ex nostra fide.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+NEQUE étenim in univérso mundo tanta fidélium messis exsúrgeret, si de manu Dómini super ratiónálem terram illa elécta grana prædicántium non veníssent. Séquitur: Qui credíderit et baptizátus fúerit, salvus erit: qui vero non credíderit, condemnábitur. Fortásse unusquísque apud semetípsum di-

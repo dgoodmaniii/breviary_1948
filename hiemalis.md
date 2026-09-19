@@ -22281,3 +22281,50 @@ OMNÍPOTENS sempitérne Deus, qui primítias Mártyrum in beáti Levítæ Stéph
 {RUBRIC: Capit. ut ad Laudes.}
 
 ℟. br. Glória et honóre \* Coronásti eum, Dómine, Glória et. ℣. Et constituísti eum super ópera má-
+nuum tuárum. Coronásti. Glória Patri. Glória et. ℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Act. 6, 9-10*
+
+SURREXÉRUNT autem quidam de synagóga, quæ appellátur Libertinórum, et Cyrenénsium, et Alexandrinórum, et eórum qui erant a Cilícia, et Asia, disputántes cum Stéphano: et non póterant resístere sapiéntiæ, et Spirítui qui loquebátur.
+
+℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. Glória Patri. Posuísti. ℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Act. 7, 60*
+
+POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+℟. br. Magna est glória ejus \* In salutári tuo. Magna. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna. ℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+## Die 3 Januarii
+
+# In Octava S. Joannis Apostoli et Evangelistae
+
+{RUBRIC: Simplex}
+
+{RUBRIC: ¶ Antiphonæ et Psalmi ad omnes Horas et Versus únici Noctúrni dicúntur de Féria occurrénti, ut in Psaltério; réliqua ut infra.}
+
+### In I Vesperis
+
+{RUBRIC: Capit. et Hymnus ut ad Laudes.}
+
+℣. Valde honorándus est beátus Joánnes. ℟. Qui supra pectus Dómini in cœna recúbuit.
+
+**Ad Magnif. Ant.** Iste est Joánnes, \* qui supra pectus Dómini in cœna recúbuit: beátus Apóstolus, cui reveláta sunt secréta cæléstia.
+
+#### Oratio
+
+ECCLÉSIAM tuam, Dómine, benígnus illústra: ut beáti Joánnis Apóstoli tui et Evangelístæ illumináta doctrínis, ad dona pervéniat sempitérna. Per Dóminum.
+
+### Ad Matutinum
+
+**Invitat.** Regem Apostolórum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*

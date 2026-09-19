@@ -29816,3 +29816,33 @@ Spirítui Sancto,
 Tribus honor unus. Amen.
 
 ℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+**Ad Magnif. Ant.** Hódie egréssa est \* virga de radíce Jesse: hódie sine ulla peccáti labe concépta est María: hódie contrítum est ab ea caput serpéntis antíqui, allelúja.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+---
+
+{RUBRIC: Infra Octávam et in die Octáva Antiphónæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua ut in Festo prǽter Lectiónes, quæ in I Noctúrno dicúntur de Scriptúra occurrénti cum suis Responsóriis de Témpore, in II et III pro síngulis diébus assignántur própriæ.}
+
+---
+
+## Die 9 Decembris
+
+### De II die infra Octavam Conceptionis Immaculatæ B. Mariæ V.
+
+{RUBRIC: Semiduplex} [REF: p. 702]
+
+### In II Nocturno
+
+#### Lectio iv
+
+{RUBRIC: Ex Bulla dogmática Pii Papæ noni}
+
+INEFFÁBILIS Deus, cujus viæ misericórdia et véritas, cujus volúntas omnipoténtia, et cujus sapiéntia attíngit a fine usque ad finem fórtiter, et díspónit ómnia suáviter, cum ab omni æternitáte prævíderit luctuosíssimam totíus humáni géneris ruínam ex Adámi transgressióne derivándam, atque in mystério a sǽculis abscóndito primum suæ bonitátis opus decréverit per Verbi incarnatiónem sacraménto occultióre complére, ut contra misericors suum propósitum homo diabólicæ iniquitátis versútia actus in culpam non períret, et quod in primo Adámo casúrum erat, in secúndo felícius erigerétur; ab inítio et ante sǽcula unigénito Fílio suo Matrem, ex qua caro factus in beáta témporum plenitúdine nascerétur, elégit atque ordinávit, tantóque præ creatúris univérsis est prosecútus amóre, ut in illa una sibi propensíssima voluntáte complacúerit.
+
+℟. Ego ex ore Altíssimi pródivi, primogénita ante omnem creatúram: ego feci in cælis, ut orirétur lumen indefíciens: \* Nondum erant abýssi, et ego jam concépta eram. ℣. Deus enim creávit me in justítia, et apprehéndit manum meam, et servávit me. — Nondum.
+
+#### Lectio v
+
+QUAPRÓPTER illam, longe ante omnes angélicos spíritus cunctósque Sanctos, cæléstium ómnium charísmatum cópia de the-

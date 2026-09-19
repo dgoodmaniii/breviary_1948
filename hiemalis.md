@@ -13404,3 +13404,55 @@ Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Alt�
 Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
 
 Sicut lætántium ómnium \* habitátio est in te.
+
+**Per Annum: Ant.** Beáti, qui hábitant in domo tua, Dómine.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria VI post Dominicam I:} **Ant.** Ecce Dóminus véniet, et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Veni, Dómine, et noli tardáre: reláxa facínora plebi tuæ Israël.
+
+**Capitulum** *Jer. 23, 6*
+
+IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc est nomen, quod vocábunt eum, Dóminus justus noster.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 24}
+
+#### Per Annum
+
+**Capitulum** *Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In omni. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: Feria VI post Cineres et in Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 24}
+
+---
+
+### Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,

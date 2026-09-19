@@ -23097,3 +23097,30 @@ OMNES sitiéntes, veníte ad aquas: et qui non habétis argéntum, properáte, �
 *Cap. 60, 1-6*
 
 SURGE, illumináre, Jerúsalem: quia venit lumen tuum, et glória Dómini super te orta est. Quia ecce ténebræ opérient terram, et calígo pópulos: super te autem oriétur Dómi-
+nus, et glória ejus in te vidébitur. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. Leva in circúitu óculos tuos, et vide: omnes isti congregáti sunt, venérunt tibi: fílii tui de longe vénient, et fíliæ tuæ de látere surgent. Tunc vidébis, et áffluos, mirábitur, et dilatábitur cor tuum, quando convérsa fúerit ad te multitúdo maris, fortitúdo géntium vénerit tibi. Inundátio camelórum opériet te, dromedárii Mádian et Epha: omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes.
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+#### Lectio iii
+
+*Cap. 61, 10-11; 62, 1*
+
+GAUDENS gaudébo in Dómino, et exsultábit ánima mea in Deo meo: quia índuit me vestiméntis salútis: et induménto justítiæ circúmdedit me, quasi sponsum decorátum coróna, et quasi sponsam ornátam monílibus suis. Sicut enim terra profert germen suum, et sicut hortus semen suum gérminat, sic Dóminus Deus germinábit justítiam et laudem coram univérsis géntibus. Propter Sion non tacébo, et propter Jerúsalem non quiéscam, donec egrediátur ut splendor justus ejus, et salvátor ejus ut lampas accendátur.
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+### In II Nocturno
+
+**Ant.** Omnis terra adóret te, \* et psallat tibi: psalmum dicat nómini tuo, Dómine.
+
+#### Psalmus 65
+
+JUBILÁTE Deo, omnis terra, psalmum dícite nómini ejus: \* date glóriam laudi ejus.
+
+Dícite Deo: Quam terribília sunt ópera tua, Dómine! \* in multitúdine virtútis tuæ mentiéntur tibi inimíci tui.
+
+Omnis terra adóret te, et psallat tibi: \* psalmum dicat nómini tuo.
+
+Veníte, et vidéte ópera Dei: \* terríbilis in consíliis super fílios hóminum.
+
+Qui convértit mare in áridam, in flúmine pertrans-

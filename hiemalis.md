@@ -16965,3 +16965,55 @@ In sæculórum sæcula. Amen.
 ℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
 
 **Ad Bened. Ant.** Joánnes autem \* cum audísset in vínculis ópera Christi, mittens duos ex discípulis suis, ait illi: Tu es qui ventúrus es, an álium exspectámus?
+
+#### Oratio
+
+EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus advéntum purificátis tibi méntibus servíre mereámur: Qui tecum.
+
+### Ad Primam
+
+**Ant.** Ecce in núbibus cæli \* Dóminus véniet cum potestáte magna, allelúja.
+
+### Ad Tertiam
+
+**Ant.** Urbs fortitúdinis \* nostræ Sion, Salvátor ponétur in ea murus et antemurále: aperíte portas, quia nobíscum Deus, allelúja.
+
+#### Capitulum
+
+*Rom. 15, 4*
+
+FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam, et consolatiónem Scriptu-rárum spem habeámus.
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni.
+
+℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+### Ad Sextam
+
+**Ant.** Ecce apparébit \* Dóminus, et non mentiétur: si moram fécerit, exspécta eum, quia véniet, et non tardábit, allelúja.
+
+#### Capitulum
+
+*Rom. 15, 5-6*
+
+DEUS autem patiéntiæ, et solátii det vobis idípsum sápere in altérutrum secúndum Jesum Christum: ut unánimes uno ore honorificétis Deum, et Patrem Dómini nostri Jesu Christi.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+### Ad Nonam
+
+**Ant.** Ecce Dóminus \* noster cum virtúte véniet, et illuminábit óculos servórum suórum, allelúja.
+
+#### Capitulum
+
+*Rom. 15, 13*
+
+DEUS autem spei répleat vos omni gáudio et pace in credéndo: ut abundétis in spe, et in virtúte Spíritus Sancti.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+### Ad Vesperas
+
+{RUBRIC: Omnia ut in Vésperis Sábbati præc. 334, prǽter seq.:}
+
+{RUBRIC: Psalmi de Dominica, ut in Psaltério. 71}

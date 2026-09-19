@@ -31110,7 +31110,7 @@ DE qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in 
 
 CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, princeps apostólici órdinis, ad arcem Románi destinátur impérii, ut lux veritátis, quæ in ómnium géntium revelabátur salútem, efficácius se ab ipso cápite per totum mundi corpus effúnderet. Cujus autem natiónis hómines in hac tunc urbe non essent? aut quæ usquam gentes ignorárent quod Roma didicísset?
 
-℟. Tu es pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris superterram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et ídeo tibi tráditæ sunt claves regni cælórum.
+℟. Tu es pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et ídeo tibi tráditæ sunt claves regni cælórum.
 
 #### Lectio v
 
@@ -32148,3 +32148,79 @@ Sit Trinitáti sempitérna
     glória,
 Honor, potéstas atque
     jubilátio,
+In unitáte, quæ gubérnat
+    ómnia,
+Per univérsa æternitátis
+    sǽcula. Amen.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+**Ad Magnif. Ant.** Vade, Anánia, \* et quǽre Saulum: ecce enim orat: quia vas electiónis est mihi, ut portet nomen meum coram géntibus et régibus et fíliis Israël.
+
+#### Oratio
+
+DEUS, qui univérsum mundum beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, qui ejus hódie Conversiónem cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Petri Ap. ante omnes álias Commemoratiónes:}
+
+**Ant.** Tu es pastor óvium, Princeps Apostolórum, tibi tráditæ sunt claves regni cælórum.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+#### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur. (Qui vivis.)
+
+{RUBRIC: Deinde Com. præcedéntis:}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+#### Oratio
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti Timóthei Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+### Ad Matutinum
+
+**Invit.** Laudémus Deum nostrum, \* In conversióne Doctóris géntium. **Ps. 94** Veníte. 3
+
+**Hymnus** Egrégie Doctor, Paule, ut supra. 798
+
+### In I Nocturno
+
+**Ant.** Qui operátus est \* Petro in apostolátum, operátus est et mihi inter gentes: et cognovérunt grátiam, quæ data est mihi a Christo Dómino.
+
+###### Psalmus 18
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sǽculum sǽculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.

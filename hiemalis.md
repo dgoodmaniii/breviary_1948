@@ -19514,3 +19514,55 @@ Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificá
 *Hebr. 1, 1-2*
 
 MULTIFÁRIAM, multísque modis olim Deus loquens pátribus in prophé-
+tis: novíssime diébus istis locútus est nobis in Fílio, quem constítuit herédem universórum, per quem fecit et sécula.
+
+#### Hymnus
+
+JESU, Redémptor ómnium,
+Quem lucis ante oríginem
+Parem Patérnæ glóriæ
+Pater suprémus édidit.
+
+Tu lumen, et splendor Patris,
+Tu spes perénnis ómnium,
+Inténde quas fundunt preces
+Tui per orbem sérvuli.
+
+Meménto, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+Testátur hoc præsens dies,
+Currens per anni círculum,
+Quod solus e sinu Patris
+Mundi salus advéneris.
+
+Hunc astra, tellus, ǽquora,
+Hunc omne, quod cælo subest,
+Salútis auctórem novæ
+Novo salútat cántico.
+
+Et nos, beáta quos sacri
+Rigávit unda sánguinis,
+Natális ob diem tui
+Hymni tribútum sólvimus.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+**Ad Magnif. Ant.** Hódie \* Christus natus est: hódie Salvátor appáruit: hódie in terra canunt Angeli, lætántur Archángeli: hódie exsúltant justi, dicéntes: Glória in excélsis Deo, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemorátio sequéntis, ut infra.}
+
+{RUBRIC: Completórium de Dominica.}
+
+---

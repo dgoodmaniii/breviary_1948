@@ -15649,3 +15649,53 @@ Super ea volúcres cæli habitábunt: \* de médio petrárum dabunt voces.
 RIGANS montes de superióribus suis: \* de fructu óperum tuórum satiábitur terra:
 
 Prodúcens fœnum juméntis, \* et herbam servitúti hóminum:
+
+Ut edúcas panem de terra: \* et vinum lætíficet cor hóminis:
+
+Ut exhílaret fáciem in óleo: \* et panis cor hóminis confírmet.
+
+Saturabúntur ligna campi, et cedri Líbani, quas plantávit: \* illic pásseres nidificábunt.
+
+Heródii domus dux est eórum: \* montes excélsi cervis: petra refúgium herináciis.
+
+Fecit lunam in témpora: \* sol cognóvit occásum suum.
+
+Posuísti ténebras, et facta est nox: \* in ipsa pertransíbunt omnes béstiæ silvæ.
+
+Cátuli leónum rugiéntes, ut rápiant, \* et quǽrant a Deo escam sibi.
+
+Ortus est sol, et congregáti sunt: \* et in cubílibus suis collocabúntur.
+
+Exíbit homo ad opus suum: \* et ad operatiónem suam usque ad véspenum.
+
+#### Psalmus 103, iii
+
+QUAM magnificáta sunt ópera tua, Dómine! \* ómnia in sapiéntia fecísti: impléta est terra possessióne tua.
+
+Hoc mare magnum, et spatiósum mánibus: \* illic reptília, quorum non est númerus.
+
+Animália pusílla cum magnis: \* illic naves pertransíbunt.
+
+Draco iste, quem formásti ad illudéndum ei: \* ómnia a te exspéctant ut des illis escam in témpore.
+
+Dante te illis, cólligent: \* aperiénte te manum tuam, ómnia implebúntur bonitáte.
+
+Avertánte autem te fáciem, turbabúntur: \* áuferes spíritum eórum, et defícient, et in púlverem suum reverténtur.
+
+Emíttes spíritum tuum, et creabúntur: \* et renovábis fáciem terræ.
+
+Sit glória Dómini in séculum: \* lætábitur Dóminus in opéribus suis:
+
+Qui réspicit terram, et facit eam trémere: \* qui tangit montes, et fúmigant.
+
+Cantábo Dómino in vita mea: \* psallam Deo meo, quámdiu sum.
+
+Jucúndum sit ei elóquium meum: \* ego vero delectábor in Dómino.
+
+Defíciant peccatóres a terra, et iníqui ita ut non sint: \* benedíc, ánima mea, Dómino.
+
+{RUBRIC: Per Annum:} **Ant.** Dómine, Deus meus, magnificátus es vehementer.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Sabbato post Dominicam I:} **Ant.** Ecce Dóminus véniet, et omnes Sancti ejus

@@ -19923,3 +19923,66 @@ UNA súbvenit indigénti; áltera ibi est, ubi nullum ínvenit indigéntem. Una 
 #### Lectio ix
 
 ÉRGO una bona est, sed adhuc mísera; áltera mélior, et beáta. Ista signifícáta est per Apóstolum Petrum, illa per Joánnem. Tota hic ágitur ista usque in hujus séculi finem, et illic ínvenit finem; differtur illa complénda post hujus séculi finem, sed in futúro século non habet finem. Ideo dícitur huic: Séquere me. De illo autem: Sic eum volo manére, donec véniam: quid ad te? tu me séquere. Quid
+enim est hoc? Quantum sápio, quantum cápio, quid est hoc? nisi tu me séquere per imitatiónem perferéndi temporália mala: ille máneat, donec sempitérna vénio redditúrus bona.
+
+{RUBRIC: Deinde dícitur} Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Valde honorándus est \* beátus Joánnes, qui supra pectus Dómini in cœna recúbuit.
+
+**2** Hic est discípulus ille, \* qui testimónium pérhibet de his: et scimus quia verum est testimónium ejus.
+
+**3** Hic est discípulus \* meus: sic eum volo manére, donec véniam.
+
+**4** Sunt de hic stántibus, \* qui non gustábunt mortem, donec vídeant Fílium hóminis in regno suo.
+
+**5** Ecce puer meus \* eléctus, quem elégi, pósui super eum Spíritum meum.
+
+#### Capitulum
+
+*Eccli. 15, 1-2*
+
+QUI timet Deum, fáciet bona: et qui cóntinens est justítiæ, apprehéndet illam, et obviábit illi quasi mater honorificáta.
+
+#### Hymnus
+
+EXSÚLTET orbis gáudiis,
+Cælum resúltet láudibus:
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices,
+Et vera mundi lúmina,
+Votis precámur córdium:
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter
+In fine Christus séculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Hic est discípulus ille, qui testimónium pérhibet de his. ℟. Et scimus quia verum est testimónium ejus.
+
+**Ad Bened. Ant.** Iste est Joánnes, \* qui supra pectus Dómini in cœna recúbuit: beátus Apóstolus, cui reveláta sunt secréta cæléstia.
+
+#### Oratio
+
+ECCLÉSIAM tuam, Dómine, benígnus illústra: ut beáti Joánnis Apóstoli tui et Evangelístæ illumináta doctrínis, ad dona

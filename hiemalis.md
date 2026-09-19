@@ -18852,3 +18852,30 @@ rum ejus: et vocábitur nomen ejus, Admirábilis, Consiliárius, Deus, Fortis, P
 *Cap. 40, 1-8*
 
 CONSOLÁMINI, consolámini, pópule meus, dicit Deus vester. Loquímini ad cor Jerúsalem, et advocáte eam: quóniam compléta est malítia ejus, dimíssa est iníquitas illíus: suscépit de manu Dómini duplícia pro ómnibus peccátis suis. Vox clamántis in desérto: Paráte viam Dómini, rectas fácite in solitúdine sémitas Dei nostri. Omnis vallis exaltábitur, et omnis mons et collis humiliábitur: et erunt prava in directa, et áspera in vias planas. Et revelábitur glória Dómini: et
+vidébit omnis caro páriter quod os Dómini locútum est. Vox dicéntis: Clama. Et dixi: Quid clamábo? Omnis caro fœnum, et omnis glória ejus quasi flos agri. Exsiccátum est fœnum, et cécidit flos: quia spíritus Dómini sufflávit in eo. Vere fœnum est pópulus: exsiccátum est fœnum, et cécidit flos: Verbum autem Dómini nostri manet in ætérnum.
+
+℟. Hódie nobis de cælo pax vera descéndit: \* Hódie per totum mundum mellíflui facti sunt cæli. ℣. Hódie illúxit nobis dies redemptiónis novæ, reparatiónis antíquæ, felicitátis ætérnæ. — Hódie per.
+
+**Bened.** Spíritus Sancti grátia.
+
+#### Lectio iii
+
+*Cap. 52, 1-6*
+
+CONSÚRGE, consúrge, indúere fortitúdine tua, Sion, indúere vestiméntis glóriæ tuæ, Jerúsalem, cívitas sancti: quia non adjíciet ultra ut pertránseat per te incircumcísus et immúndus. Excútere de púlvere, consúrge, sede, Jerúsalem: solve víncula colli tui, captíva fília Sion. Quia hæc dicit Dóminus: Gratis venúmdáti estis, et sine argénto redimémini. Quia hæc dicit Dóminus Deus: In Ægýptum descéndit pópulus meus in
+
+princípio, ut cólonus esset ibi: et Assur absque ulla causa calumniátus est eum. Et nunc quid mihi est hic, dicit Dóminus, quóniam ablátus est pópulus meus gratis? Dominatóres ejus iníque agunt, dicit Dóminus: et júgiter tota die nomen meum blasphemátur. Propter hoc sciet pópulus meus nomen meum, in die illa: quia ego ipse qui loquébar, ecce adsum.
+
+℟. Quem vidístis, pastóres? dícite, annuntiáte nobis, in terris quis appáruit? \* Natum vídimus, et choros Angelórum collaudántes Dóminum. ℣. Dícite, quidnam vidístis? et annuntiáte Christi nativitátem. — Natum. Glória Patri. Natum.
+
+#### In II Nocturno
+
+**Ant.** Suscépimus, \* Deus, misericórdiam tuam in médio templi tui.
+
+#### Psalmus 47
+
+MAGNUS Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sancto ejus.
+
+Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, civitas Regis magni.
+
+Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.

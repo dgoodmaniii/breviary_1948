@@ -26388,3 +26388,30 @@ FAMÍLIAM tuam, quǽsumus, Dómine, contínua pietáte custódi: ut, quæ in sol
 *Cap. 3, 1-16; 4, 1*
 
 FIDÉLIS sermo: Si quis episcopátum desíderat, bonum opus desíderat. Opórtet ergo epíscopum irreprehensíbilem esse, uníus uxóris virum, sóbrium, prudéntem, ornátum, pudícum, hospitálem, doctórem, non vinoléntum, non percussórem, sed modéstum: non litigiósum, non cúpidum, sed suæ dómui bene præpósitum: fílios habéntem súbditos cum omni castitáte. Si quis autem dómui suæ præésse nescit, quómodo Ecclésiæ Dei diligéntiam habébit? Non neóphytum: ne in supérbiam elátus, in judícium íncidat diáboli. Opórtet autem illum et testimónium habére bonum ab iis, qui foris sunt, ut non in oppró-
+brium íncidat, et in láqueum diáboli.
+
+℟. Quam magna multitúdo dulcédinis tuæ, Dómine, \* Quam abscondísti timéntibus te! ℣. Et perfecísti eis qui sperant in te, Dómine, in conspéctu filiórum hóminum. — Quam abscondísti.
+
+#### Lectio ii
+
+DIÁCONOS simíliter púdicos, non bilíngues, non multo vino déditos, non turpe lucrum sectántes: habéntes mystérium fídei in consciéntia pura. Et hi autem probéntur primum: et sic minístrent, nullum crimen habéntes. Mulíeres simíliter pudícas, non detrahéntes, sóbrias, fidéles in ómnibus. Diáconi sint uníus uxóris viri: qui fíliis suis bene præsint, et suis dómibus. Qui enim bene ministráverint, gradum bonum sibi acquírent, et multam fidúciam in fide, quæ est in Christo Jesu.
+
+℟. Adjútor meus esto, Deus: \* Ne derelínquas me. ℣. Neque despícias me, Deus, salutáris meus. — Ne.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ne.}
+
+#### Lectio iii
+
+HÆC tibi scribo, sperans me ad te veníre cito. Si autem tardávero, ut scias quómodo opórteat te in domo Dei conversári, quæ est Ecclésia Dei vivi, colúmna et firmaméntum veritátis. Et maniféste magnum est pietátis sacraméntum, quod manifestátum est in carne, justificátum est in spíritu, appáruit Angelis, prædicátum est Géntibus, créditum est in mundo, assúmptum est in glória. Spíritus autem maniféste dicit, quia in novíssimis tempóribus discédent quidam a fide, attendéntes spirítibus erróris, et doctrínis dæmoniórum.
+
+℟. Benedícam Dóminum in omni témpore: \* Semper laus ejus in ore meo. ℣. In Dómino laudábitur ánima mea, áudiant mansuéti, et læténtur. — Semper. Glória Patri. Semper.
+
+### Feria Tertia
+
+### Incipit Epistola secunda beati Pauli Apostoli ad Timotheum
+
+#### Lectio i
+
+*Cap. 1, 1-13*
+
+PAULUS Apóstolus Jesu Christi per voluntátem Dei, secúndum promissiónem vitæ, quæ est in Christo Jesu: Timótheo caríssimo fílio, grátia, misericórdia, pax a Deo Patre, et Christo Jesu Dómino nostro. Grátias ago Deo, cui sérvio a progenitóribus in consciéntia pura, quod si-

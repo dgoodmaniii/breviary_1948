@@ -21539,3 +21539,96 @@ IPSI períbunt, tu autem permanébis; et omnes sicut vestiméntum veteráscent: 
 ℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
 
 **Ad Magnif. Ant.** Magnum \* hereditátis mystérium: templum Dei fa-
+ctus est úterus nesciéntis virum: non est pollútus ex ea carnem assúmens; omnes gentes vénient, dicéntes: Glória tibi, Dómine.
+
+{RUBRIC: Et non fit Commemoratio sequentis.}
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: ¶ Officium Dominicæ quæ vel a die 1 ad 6 Januarii occúrrit, vel die 7 a supervenienti Dominica infra Octavam Epiphaniæ impeditur, fit in Vigília ipsíus Epiphaníæ, ut infra suo loco dícitur: ipsa vero die Dominica fit Offícium Sanctíssimi Nóminis Jesu, ut infra, nisi vénerit in die 1, vel 6 aut 7 Januárii, quo in casu de Ssmo Nómine Jesu fit die 2 Januárii cum Commemoratióne diéi Octávæ S. Stéphani, juxta Rubricas. Sicubi tamen in ipsa Domínica, quæ die 2, 3 aut 4 occúrrat, celebrétur Festum, quod Ssmo Nómini Jesu præférri débeat et non sit Dómini, in eo, dummodo nulla facienda sit Commemorátio de ipso Dómino, fit Commemorátio Domínicæ in utrísque Vésperis et Laudibus, per Antiphonas, Versus et Oratiónem de Domínica infra Octávam Nativitátis [REF: p. 426], de qua tamen non legitur ix Lectio: et de Ssmo Nómine Jesu, in casu, fit páriter Offícium die 2 Januárii, vel sequénti, juxta Rubricas.}
+
+## Dominica inter Circumcisionem et Epiphaniam
+
+# Sanctissimi Nominis Jesu
+
+{RUBRIC: Duplex II classis}
+
+### In I Vesperis
+
+{RUBRIC: ¶ Quando hoc Festum die 2 Januárii celebrátur, in II Vésperis præcedéntis nil fit de Ssmo Nómine.}
+
+**Ant. 1** Omnis \* qui invocáverit nomen Dómini, salvus erit.
+
+{RUBRIC: Psalmi de Dominica [REF: p. 71], sed loco últimi, dícitur Ps. 115 Crédidi, ut infra.}
+
+**2** Sanctum et terríbile \* nomen ejus, inítium sapiéntiæ timor Dómini.
+
+**3** Ego autem \* in Dómino gaudébo, et exsultábo in Deo Jesu meo.
+
+**4** A solis ortu \* usque ad occásum laudábile nomen Dómini.
+
+**5** Sacrificábo \* hóstiam laudis, et nomen Dómini invocábo.
+
+#### Psalmus 115
+
+CRÉDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+#### Capitulum
+
+*Philipp. 2, 8-10*
+
+FRATRES: Christus humiliávit semetípsum, factus obédiens usque ad mortem, mortem autem crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen, quod est super omne nomen, ut in nómine Jesu omne genu flectátur.
+
+#### Hymnus
+
+JESU, dulcis memória,
+Dans vera cordis gáudia:
+Sed super mel, et ómnia,
+Ejus dulcis præséntia.
+
+Nil cánitur suávius,
+Nil audítur jucúndius,
+Nil cogitátur dúlcius,
+Quam Jesus Dei Fílius.
+
+Jesu, spes pœniténtibus,
+Quam pius es peténtibus!
+Quam bonus te quæréntibus!
+Sed quid inveniéntibus?
+
+Nec lingua valet dícere,
+Nec líttera exprímere:
+Expértus potest crédere,
+Quid sit Jesum dilígere.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Sis, Jesu, nostrum gáudium,
+Qui es futúrus prǽmium:
+Sit nostra in te glória,
+Per cuncta semper sǽcula.
+Amen.
+
+℣. Sit nomen Dómini benedíctum, allelúja. ℟. Ex hoc nunc, et usque in sǽculum, allelúja.
+
+**Ad Magnif. Ant.** Fecit \* mihi magna qui potens est, et sanctum nomen ejus, allelúja.
+
+### In II Vesperis
+
+**Ad Magnif. Ant.** Vocábis \* nomen ejus Jesum; ipse enim salvum fáciet

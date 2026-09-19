@@ -29685,3 +29685,16 @@ riósior, et Séraphim honorabílior, et super omnem creatúram venerabílior. A
 #### Lectio viii
 
 AVE, Dei mons præpínguis et umbrósus, in quo enutrítus Agnus ratiónális peccáta atque infirmitátes nostras portávit: mons, e quo devolútus ille nulla manu præcísus lapis, contrívit aras idolórum, et factus est in caput ánguli, mirábilis in óculis nostris. Ave, sanctus Dei thronus, divínum donárium, domus glóriæ, perpúlchrum ornaméntum, cimélium eléctum, et totíus orbis propitiatórium, cælúmque Dei glóriam enárrans. Ave, urna ex puro auro confláta, et suavíssimam animárum nostrárum dulcédinem, Christum scílicet qui manna est, cóntinens. O puríssima et omni laude et obséquio digníssima Virgo, Deo dicátum donárium omni creaturárum condi-
+tióni præcéllens, terra non secta, inarátus ager, vitis floridíssima, fons aquas effúndens, virgo génerans, et mater viri néscia, innocéntiæ thesáurus abscónditus, et sanctimóniæ decus: acceptíssimis tuis ac matérna auctoritáte válidis précibus ad Dóminum ac Deum ómnium Conditórem, Fílium tuum ex te sine patre génitum, ecclesiástici órdinis gubernácula fac dírigas, et ad portum tranquíllum perdúcas.
+
+℟. Magníficat ánima mea Dóminum: \* Quia fecit mihi magna qui potens est, et sanctum nomen ejus. ℣. Ecce enim ex hoc beátam me dicent omnes generatiónes. — Quia. Glória Patri. Quia.
+
+#### Lectio ix
+
+SACERDÓTES justítia, et probátæ, immaculátæ ac sincéræ fídei exsultatióne splendidíssime indúito. Orthodóxis princípibus, qui præ omni púrpuræ aut auri splendóre, et præ margarítis ac lapídibus pretiósis, te nacti sunt diadéma et induméntum ac firmíssimum regni sui ornaméntum, in tranquíllo ac próspero statu sceptra dírige. Male fidas natiónes in te ac Deum ex te génitum blasphemántes, eórum pédibus stérnens subjícito; subjectúmque pópulum, ut secúndum Dei præcéptum in suávi obediéntiæ obséquio persevéret, confirmáto. Tuam hanc civitátem, quæ te tamquam turrim ac fundaméntum habet, victóriæ triúmphis coronáto, et fortitúdine circumcíngens custodíto Dei habitatiónem, templi decórem semper conserváto; laudatóres tuos ab omni discrímine et ánimi angóre éxime; captívis redemptiónem tribúito; peregrínis tecto et quovis præsídio destitútis, solámen te exhíbe. Univérso mundo auxiliatrícem manum tuam pórrige, ut in lætítia et exsultatióne solemnitátes tuas simul cum ista, quam modo celebrámus, festivitáte splendidíssimo éxitu transigámus, in Christo Jesu universórum Rege ac vero Deo nostro, cui glória et fortitúdo una cum sancto vitǽque princípio Patre, et coætérno et consubstantiáli et conregnánti Spíritu, nunc et semper et in sǽcula sæculórum. Amen.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+**Ant. 1** Tota pulchra \* es, María, et mácula originális non est in te.

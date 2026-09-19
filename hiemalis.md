@@ -17859,3 +17859,48 @@ gentes. Et congregabúntur spólia vestra sicut collígitur bruchus, velut cum f
 *Cap. 33, 14-17*
 
 CONTÉRRITI sunt in Sion peccatóres, possédit tremor hypócritas. Quis póterit habitáre de vobis cum igne devoránte? quis habitábit ex vobis cum ardóribus sempitérnis? Qui ámbulat in justítiis, et lóquitur veritátem, qui prójicit avarítiam ex calúmnia, et éxcutit manus suas ab omni múnere, qui obtúrat aures suas ne áudiat sánguinem, et claudit óculos suos ne vídeat malum. Iste in excélsis habitábit, muniménta saxórum sublímitas ejus: panis ei datus est, aquæ ejus fidéles sunt. Regem in decóre suo
+vidébunt óculi ejus, cernent terram de longe.
+
+℟. Vidébunt gentes justum tuum, et cuncti reges ínclytum tuum: \* Et vocábitur tibi nomen novum, quod os Dómini nominávit. ℣. Et eris corónа glóriæ in manu Dómini, et diadéma regni in manu Dei tui. — Et vocábitur. Glória Patri. Et vocábitur.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Vigiláte, \* ánimo, in próximo est Dóminus Deus noster.
+
+{RUBRIC: Nisi hæc Féria occúrrat die 21 Dec., quia tunc, præcedénti Antíphona prætermíssa, dícitur}
+
+**Ant.** Nolíte timére: \* quinta enim die véniet ad vos Dóminus noster.
+
+{RUBRIC: Quod étiam servátur in sequénti Féria vel Domínica, quæ eádem die 21 occúrrerit.}
+
+#### Oratio
+
+AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et mentis nostræ ténebras grátia tuæ visitatiónis illústra: Qui vivis et regnas.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Lætámini \* cum Jerúsalem, et
+
+exsultáte in ea, omnes qui dilígitis eam, in ætérnum.
+
+{RUBRIC: Nisi dicénda sit Ant. O. 355}
+
+---
+
+### Feria Sexta
+
+#### Quatuor Temporum
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 1, 39-47*
+
+IN illo témpore: Exsúrgens María ábiit in montána cum festinatióne in civitátem Juda: et intrávit in domum Zacharíæ, et salutávit Elísabeth. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 2 in Luc. cap. 1 post init.}
+
+MORÁLE est ómnibus, qui fidem éxigunt, fidem ástruant. Et ídeo Ángelus, cum abscóndita nuntiáret, ut fidem astrúeret exémplo, senióris féminæ sterilísque concéptum Vírgini Maríæ nuntiávit: ut possíbile Deo omne quod ei placúerit, asséreret. Ubi audívit hoc María, non quasi incrédula de oráculo, nec quasi incérta de núntio, nec quasi dúbitans de exémplo, sed quasi læta pro voto, religiósa pro offício, festína pro gáudio, in montána perréxit. Quo enim jam Deo

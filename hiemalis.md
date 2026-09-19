@@ -28660,3 +28660,30 @@ Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
 Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
 
 Exaltáte Dóminum Deum nostrum, et adoráte in
+monte sancto ejus: \* quóniam sanctus Dóminus Deus noster.
+
+**Ant.** Accipe me ab homínibus et redde me magístro meo: ut per te me recípiat, qui per te me redémit, allelúja.
+
+℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 4, 18-22*
+
+IN illo témpore: Ambulans Jesus juxta mare Galilǽæ, vidit duos fratres, Simónem, qui vocátur Petrus, et Andréam fratrem ejus, mitténtes rete in mare. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 5 in Evangelia}
+
+AUDÍSTIS, fratres caríssimi, quia ad uníus jussiónis vocem Petrus et Andréas relíctis rétibus secúti sunt Redemptórem. Nulla vero hunc fácere adhuc mirácula víderant, nihil ab eo de prǽmio ætérnæ retributiónis audíerant: et tamen ad unum Dómini præcéptum, hoc quod possidére videbántur, oblíti sunt. Quanta nos ejus mirácula vidémus, quot flagéllis afflígimur, quantis minárum asperitátibus deterrémur, et tamen vocántem sequi contémnimus?
+
+℟. Orávit sanctus Andréas, dum respíceret in cælum, et voce magna clamávit et dixit: Tu es Deus meus, quem vidi: ne me patiáris ab ímpio júdice depóni: \* Quia virtútem sanctæ crucis agnóvi. ℣. Tu es magíster meus Christus, quem diléxi, quem cognóvi, quem conféssus sum: tantúmmodo in ista voce exáudi me. — Quia.
+
+#### Lectio viii
+
+IN cælo jam sedet, qui de conversióne nos ádmonet; jam jugo fídei colla géntium súbdidit, jam mundi glóriam stravit, jam ruínis ejus crebrescéntibus, distrícti sui judícii diem propinquántem denúntiat: et tamen supérba mens nostra adhuc non vult hoc sponte desérere, quod quotídie perdit invíta. Quid ergo, fratres caríssimi, quid in ejus judício dictúri sumus, qui ab amóre præséntis sǽculi nec præcéptis fléctimur, nec verbéribus emendámur?
+
+℟. Videns crucem Andréas exclamávit, dicens: O crux admirábilis, o crux desiderábilis, o crux quæ per totum mundum rúti-

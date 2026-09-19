@@ -32020,4 +32020,58 @@ RAYMÚNDUS Barcinonénsis, ex nóbili família de Péñafort, Bonóniæ pietáti
 
 EMERENTIÁNA virgo Romána, collactánea beátæ Agnétis, adhuc catechúmena, fide et caritáte flagrans, furéntes in Christiános idolórum cultóres cum veheméntius accusáret, a concitáta multitúdine lapídibus óbruta est. Quæ in cruciátibus orans ad sepúlcrum sanctæ Agnétis, próprio sánguine, quem pro Christo constánter effúdit, baptizáta, ánimam Deo réddidit.
 
-{RUBRIC: Te Deum laudámus.}
+{RUBRIC: Te Deum laudámus.}### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEUS, qui beátum Raymúndum pœniténtiæ sacraménti insígnem minístrum elegísti, et per maris undas mirabíliter traduxísti: concéde, ut ejus intercessióne dignos pœniténtiæ fructus fácere, et ad ætérnæ salútis portum perveníre valeámus. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Emerentiánæ:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+#### Oratio
+
+INDULGÉNTIAM nobis, quǽsumus, Dómine, beáta Emerentiána Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis, et tuæ professióne virtútis. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 24 Januarii
+
+### S. Timothei
+
+{RUBRIC: Episcopi et Martyris}
+
+{RUBRIC: Duplex} [29]
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+**Oratio** C 1
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti Timóthei Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui, ut supra.}
+
+### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato si Lectio ix sit dicénda, sumúntur Lectiónes iv et v in unam junctæ.}
+
+#### Lectio iv
+
+TIMÓTHEUS, Lystris in Lycaónia natus ex patre Gentíli et matre Judǽa, christiánam

@@ -18747,7 +18747,7 @@ Lingua mea cálamus scribæ: \* velóciter scribéntis.
 
 Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
 
-Accíngere gládio tuo super femur tuum, \* poténtíssime,
+Accíngere gládio tuo super femur tuum, \* potentíssime,
 
 Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
 
@@ -21153,7 +21153,7 @@ Lingua mea cálamus scribæ: \* velóciter scribéntis.
 
 Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
 
-Accíngere gládio tuo super femur tuum, \* poténtíssime.
+Accíngere gládio tuo super femur tuum, \* potentíssime.
 
 Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
 
@@ -21760,7 +21760,7 @@ Lingua mea cálamus scribæ: \* velóciter scribéntis.
 
 Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
 
-Accíngere gládio tuo super femur tuum, \* poténtíssime.
+Accíngere gládio tuo super femur tuum, \* potentíssime.
 
 Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
 
@@ -23976,7 +23976,7 @@ Lingua mea cálamus scribæ: \* velóciter scribéntis.
 
 Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
 
-Accíngere gládio tuo super femur tuum, \* poténtíssime.
+Accíngere gládio tuo super femur tuum, \* potentíssime.
 
 Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
 
@@ -28376,3 +28376,54 @@ Gustáte, et vidéte quóniam suávis est Dóminus: \* beátus vir, qui sperat i
 Timéte Dóminum, omnes sancti ejus: \* quóniam non est inópia timéntibus eum.
 
 Dívites eguérunt et esuriérunt: \* inquiréntes au
+tem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me: \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam: \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo: \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum: \* inquíre pacem, et perséquere eam.
+
+Oculi Dómini super justos: \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala: \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos: \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde: \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum: \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
+
+Mors peccatórum péssima: \* et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Veníte post me, \* dicit Dóminus, fáciam vos fíeri piscatóres hóminum.
+
+**Ant.** Relíctis rétibus suis, \* secúti sunt Dóminum Redemptórem.
+
+###### Psalmus 44
+
+ERUCTÁVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime,
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent: \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in séculum séculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a

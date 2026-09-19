@@ -26084,3 +26084,40 @@ IPSE vero dormiébat: et accessérunt ad eum, et suscitavérunt eum, dicéntes: 
 #### Lectio ix
 
 PORRO hómines miráti sunt, dicéntes: Qualis est hic, quia venti et mare obédiunt ei? Non discípuli, sed nautæ, et céteri, qui in navi erant, mirabántur. Sin autem quis contentióse volúerit, eos, qui mirabántur, fuísse discípulos: respondémus, recte hómines appellátos, qui necdum
+nóverant poténtiam Salvatóris.
+
+Te Deum.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Ascendénte Jesu \* in navículam, ecce motus magnus factus est in mari: et suscitavérunt eum discípuli ejus, dicéntes: Dómine, salva nos, perímus.
+
+#### Oratio
+
+DEUS, qui nos in tantis perículis constitútos, pro humána scis fragilitáte non posse subsístere: da nobis salútem mentis et córporis; ut ea, quæ pro peccátis nostris pátimur, te adjuvánte, vincámus. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Dómine, \* salva nos, perímus: ímpera, et fac, Deus, tranquillitátem.
+
+### Feria Secunda
+
+{RUBRIC: De Epístola ad Philippénses}
+
+#### Lectio i
+
+*Cap. 4, 1-10*
+
+ITAQUE, fratres mei caríssimi et desideratíssimi, gáudium meum, et coróna mea: sic state in Dómino, caríssimi: Evódiam rogo, et Sýntychen déprecor idípsum sápere in Dómino. Étiam rogo et te, germáne compar, ádjuva illas, quæ mecum laboravérunt in Evangélio cum Cleménte, et céteris adjutóribus meis, quorum nómina sunt in libro vitæ.
+
+℟. Quam magna multitúdo dulcédinis tuæ, Dómine, \* Quam abscondísti timéntibus te! ℣. Et perfecísti eis qui sperant in te, Dómine, in conspéctu filiórum hóminum. — Quam abscondísti.
+
+#### Lectio ii
+
+GAUDÉTE in Dómino semper: íterum dico, gaudéte. Modéstia vestra nota sit ómnibus homínibus: Dóminus prope est. Nihil sollíciti sitis: sed in omni oratióne, et obsecratióne, cum gratiárum actióne petitiónes vestræ innotéscant apud Deum. Et pax Dei, quæ exsúperat omnem sensum, custódiat corda vestra, et intelligéntias vestras in Christo Jesu.
+
+℟. Adjútor meus esto, Deus: \* Ne derelínquas me. ℣. Neque despícias me, Deus, salutáris meus. — Ne.

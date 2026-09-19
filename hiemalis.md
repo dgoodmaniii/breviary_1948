@@ -28466,3 +28466,20 @@ FINIS legis, Christus, ad justítiam omni credénti. Móyses enim scripsit, quó
 #### Lectio ii
 
 CORDE enim créditur ad justítiam, ore autem conféssio fit ad salútem.
+ Dicit enim Scriptúra: Omnis, qui credit in illum, non confundétur. Non enim est distínctio Judǽi et Grǽci: nam idem Dóminus ómnium, dives in omnes qui ínvocant illum. Omnis enim, quicúmque invocáverit nomen Dómini, salvus erit. Quómodo ergo invocábunt, in quem non credidérunt? Aut quómodo credent ei, quem non audiérunt? Quómodo autem áudient sine prædicánte? Quómodo vero prædicábunt nisi mittántur? sicut scriptum est: Quam speciósi pedes evangelizántium pacem, evangelizántium bona!
+
+℟. Mox ut vocem Dómini prædicántis audívit beátus Andréas, relíctis rétibus, quorum usu actúque vivébat, \* Ætérnæ vitæ secútus est prǽmia largiéntem. ℣. Hic est qui pro amóre Christi pepéndit in cruce, et pro lege ejus sustínuit passiónem. — Ætérnæ.
+
+#### Lectio iii
+
+SED non omnes obédiunt Evangélio. Isaías enim dicit: Dómine, quis crédidit audítui nostro? Ergo fides ex audítu, audítus autem per verbum Christi. Sed dico: Numquid non audiérunt? Et quidem in omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. Sed dico: Numquid Israël non cognóvit? Primus Móyses dicit: Ego ad æmulatiónem vos addúcam in non gentem: in gentem insipiéntem, in iram vos mittam. Isaías autem audet, et dicit: Invéntus sum a non quæréntibus me: palam appárui iis, qui me non interrogábant. Ad Israël autem dicit: Tota die expándi manus meas ad pópulum non credéntem, et contradicéntem.
+
+℟. Doctor bonus et amícus Dei Andréas dúcitur ad crucem, quam a longe aspíciens dixit: Salve, crux, \* Súscipe discípulum ejus, qui pepéndit in te magíster meus Christus. ℣. Salve, crux, quæ in córpore Christi dedicáta es, et ex membris ejus tamquam margarítis ornáta. — Súscipe. Glória Patri. Súscipe.
+
+### In II Nocturno
+
+**Ant.** Dignum sibi Dóminus \* computávit Mártyrem, quem vocávit Apóstolum, dum esset in mari, allelúja.
+
+###### Psalmus 46
+
+OMNES gentes, plaúdite mánibus: \* jubiláte Deo in voce exsultatiónis.

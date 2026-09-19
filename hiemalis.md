@@ -28871,3 +28871,26 @@ DEUS, ómnium largítor bonórum, qui in fámula tua Bibiána cum virginitátis 
 ###### Oratio
 
 DEUS, qui Indiárum gentes beáti Francísci prædicatióne et miráculis Ecclésiæ tuæ aggregáre voluísti: concéde propítius; ut, cujus gloriósa
+mérita venerámur, virtútum quoque imitémur exémpla. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+{RUBRIC: Oratio Deus ómnium, ut supra.} [REF: p. 686]
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+FRANCÍSCUS, in Xavério diœcésis Pampelonénsis nobílibus paréntibus natus, Parísiis sancto Ignátio sese cómitem et discípulum junxit. Ipso magístro eo brevi devénit, ut in rerum divinárum contemplatióne defíxus, a terra aliquándo sublímis elevarétur: quod illi sacrificánti coram pópuli multitúdine aliquóties evénit. Has ánimi delícias magnis sui córporis cruciátibus merebátur. Nam interdícto sibi, non carnis solum et vini, sed panis quoque tritícei usu, vílibus cibis vesci sólitus, per bíduum subínde triduúmque omni prorsus aliménto abstínuit. Férreis in se flagéllis ita sæviit, ut sæpe copióso cruóre diffluéret; somnum brevíssimum humi jacens carpébat.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+VITÆ austeritáte ac sanctitáte apostólico múneri jam matúrus, cum Joánnes tértius Lusitániæ rex áliquot nascéntis societátis viros a Paulo tértio pro Indiis postulásset, sancti Ignátii hortátu, ab eódem Pontífice ad tantum opus cum apostólici núntii potestáte delígitur. Eo appúlsus, íllico variárum géntium difficíllimis et váriis linguis divínitus instrúctus appáruit. Quin eum quandóque único idiómate ad divérsas gentes concionántem, unaquǽque sua lingua loquéntem audívit. Províncias innúmeras pédibus semper, et sæpe nudis, peragrávit. Fidem Japóniæ et sex áliis regiónibus invéxit. Multa centéna hóminum míllia ad Christum in Indiis convértit; magnósque príncipes, regésque complúres sacro fonte expiávit. Et cum tam magna pro Deo ágeret, ea erat humilitáte, ut sancto Igná-

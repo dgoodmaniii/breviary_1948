@@ -20764,3 +20764,28 @@ semetípsum, et tollat crucem suam, et sequátur me.
 *Cap. 2, 1-13*
 
 PROPTER quod inexcusábilis es, o homo omnis, qui júdicas. In quo enim júdicas álterum, teípsum condémnas: éadem enim agis quæ júdicas. Scimus enim quóniam judícium Dei est secúndum veritátem in eos, qui tália agunt. Exístimas autem hoc, o homo, qui júdicas eos, qui tália agunt, et facis ea, quia tu effúgies judícium Dei? An divítias bonitátis ejus, et patién-
+tiæ, et longanimitátis contémnis? Ignóras quóniam benígnitas Dei ad pœniténtiam te addúcit?
+
+℟. Hódie nobis de cælo pax vera descéndit: \* Hódie per totum mundum mellíflui facti sunt cæli. ℣. Hódie illúxit nobis dies redemptiónis novæ, reparatiónis antíquæ, felicitátis ætérnæ. — Hódie per.
+
+#### Lectio ii
+
+SECÚNDUM autem durítiam tuam, et impœniténs cor, thesaurízas tibi iram in die iræ, et revelatiónis justi judícii Dei, qui reddet unicuíque secúndum ópera ejus: iis quidem, qui secúndum patiéntiam boni óperis, glóriam, et honórem, et incorruptiónem quǽrunt, vitam ætérnam: iis autem, qui sunt ex contentióne, et qui non acquiéscunt veritáti, credunt autem iniquitáti, ira et indignátio.
+
+℟. Quem vidístis, pastóres? dícite, annuntiáte nobis, in terris quis appáruit? \* Natum vídimus, et choros Angelórum collaudántes Dóminum. ℣. Dícite, quidnam vidístis? et annuntiáte Christi nativitátem. — Natum.
+
+#### Lectio iii
+
+TRIBULÁTIO et angústia in omnem ánimam hóminis operántis malum, Judǽi primum et Græci: glória autem, et honor, et pax omni operánti bonum, Judǽo primum et Græco: non enim est accéptio personárum apud Deum. Quicúmque enim sine lege peccavérunt, sine lege períbunt: et quicúmque in lege peccavérunt, per legem judicabúntur. Non enim audítóres legis justi sunt apud Deum, sed factóres legis justificabúntur.
+
+℟. O magnum mystérium, et admirábile sacraméntum, ut animália vidérent Dóminum natum, jacéntem in præsépio: \* Beáta Virgo, cujus víscera meruérunt portáre Dóminum Christum. ℣. Ave, María, grátia plena; Dóminus tecum. — Beáta. Glória Patri. Beáta.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 6 de Nativit. Domini}
+
+#### Lectio iv
+
+OMNIBUS quidem diébus, dilectíssimi, atque tempóribus, ánimis fidélium divína meditántium Dómini et Salvatóris nostri ex Matre Vírgine ortus occúrrit, ut mens, ad confessiónem sui auctóris erécta, sive in gémitu supplicatiónis, sive in exsultatióne laudis, sive in sacrifícii oblatióne versé-

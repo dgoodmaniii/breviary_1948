@@ -26121,3 +26121,27 @@ ITAQUE, fratres mei caríssimi et desideratíssimi, gáudium meum, et coróna me
 GAUDÉTE in Dómino semper: íterum dico, gaudéte. Modéstia vestra nota sit ómnibus homínibus: Dóminus prope est. Nihil sollíciti sitis: sed in omni oratióne, et obsecratióne, cum gratiárum actióne petitiónes vestræ innotéscant apud Deum. Et pax Dei, quæ exsúperat omnem sensum, custódiat corda vestra, et intelligéntias vestras in Christo Jesu.
 
 ℟. Adjútor meus esto, Deus: \* Ne derelínquas me. ℣. Neque despícias me, Deus, salutáris meus. — Ne.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ne.}
+
+#### Lectio iii
+
+DE cétero, fratres, quæcúmque sunt vera, quæcúmque pudíca, quæcúmque justa, quæcúmque amabília, quæcúmque bonæ famæ, si qua virtus, si qua laus discíplinæ, hæc cogitáte. Quæ et didicístis, et accepístis, et audístis, et vidístis in me, hæc ágite: et Deus pacis erit vobíscum. Gavísus sum autem in Dómino vehementer, quóniam tandem aliquándo refloruístis pro me sentíre, sicut et sentiebátis: occupáti autem erátis.
+
+℟. Benedícam Dóminum in omni témpore: \* Semper laus ejus in ore meo. ℣. In Dómino laudábitur ánima mea, áudiant mansuéti, et læténtur. — Semper. Glória Patri. Semper.
+
+### Feria Tertia
+
+### Incipit Epistola beati Pauli Apostoli ad Colossenses
+
+#### Lectio i
+
+*Cap. 1, 1-18*
+
+PAULUS Apóstolus Jesu Christi per voluntátem Dei, et Timótheus frater: eis, qui sunt Colóssis, sanctis et fidélibus frátribus in Christo Jesu. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo. Grátias ágimus Deo, et Patri Dómini nostri Jesu Christi, semper pro vobis orántes: audiéntes fidem vestram in Christo Jesu, et dilectiónem, quam habétis in sanctos omnes propter spem, quæ repósita est vobis in cælis: quam audístis in verbo veritátis Evangélii: quod pervénit ad vos, sicut et in univérso mundo est, et fructíficat, et crescit sicut in vobis, ex ea die, qua audístis et cognovístis grátiam Dei in veritáte, sicut didicístis ab Epáphra caríssimo consérvo nostro, qui est fidélis pro vobis miníster Christi Jesu, qui étiam manifestávit nobis dilectiónem vestram in spíritu.
+
+℟. Auribus pércipe, Deus, lácrimas meas: ne síleas a me, remítte mihi: \* Quóniam íncola ego sum apud te, et peregrínus. ℣. Compláceat tibi, ut erípias me: Dómine, ad adjuvándum me festína. — Quóniam.
+
+#### Lectio ii
+
+IDEO et nos, ex qua die audívimus, non cessámus pro vobis orántes, et postulántes ut impleámini agnitióne voluntátis ejus in omni sapiéntia et intelléctu spiritáli: ut ambulétis digne Deo per ómnia placéntes: in omni ópere bono fructificántes, et cre-

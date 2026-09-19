@@ -25963,3 +25963,30 @@ AUT scurrílitas, quæ ad rem non pértinet: sed magis gratiárum áctio. Hoc en
 #### Lectio iii
 
 FRUCTUS enim lucis est in omni bonitáte, et justítia, et veritáte: probán-
+tes quid sit beneplácitum Deo: et nolíte communicáre opéribus infructuósis tenebrárum, magis autem redargúite. Quæ enim in occúlto fiunt ab ipsis, turpe est et dícere. Omnia autem, quæ arguúntur, a lúmine manifestántur: omne enim, quod manifestátur, lumen est. Propter quod dicit: Surge, qui dormis, et exsúrge a mórtuis, et illuminábit te Christus.
+
+℟. Factus est mihi Dóminus in refúgium: \* Et Deus meus in auxílium spei meæ. ℣. Erípuit me de inimícis meis fortíssimis, et factus est Dóminus protéctor meus. — Et. Glória Patri. Et.
+
+### Sabbato
+
+{RUBRIC: De Epístola ad Ephésios}
+
+#### Lectio i
+
+*Cap. 6, 1-13*
+
+FÍLII, obedíte paréntibus vestris in Dómino: hoc enim justum est. Honóra patrem tuum, et matrem tuam. Quod est mandátum primum in promissióne: ut bene sit tibi, et sis longǽvus super terram. Et vos, patres, nolíte ad iracúndiam provocáre fílios vestros: sed educáte illos in disciplína, et correptióne Dómini.
+
+℟. Misericórdiam et judícium cantábo tibi, Dómine: \* Psallam et intélligam in via immaculáta, quando vénies ad me. ℣. Perambulábam in innocéntia cordis mei, in médio domus meæ. — Psallam.
+
+#### Lectio ii
+
+SERVI, obedíte dóminis carnálibus cum timóre et tremóre, in simplicitáte cordis vestri, sicut Christo: non ad óculum serviéntes, quasi homínibus placéntes, sed ut servi Christi, faciéntes voluntátem Dei ex ánimo, cum bona voluntáte serviéntes, sicut Dómino, et non homínibus: sciéntes quóniam unusquísque quodcúmque fécerit bonum, hoc recípiet a Dómino, sive servus, sive liber. Et vos, dómini, éadem fácite illis, remitténtes minas: sciéntes quia et illórum, et vester Dóminus est in cælis: et personárum accéptio non est apud eum.
+
+℟. Dómine, exáudi oratiónem meam, et clamor meus ad te pervéniat: \* Quia non spernis, Deus, preces páuperum. ℣. Fiant aures tuæ intendéntes in oratiónem servi tui. — Quia.
+
+{RUBRIC: In Octávis simplícibus et in Officio sanctæ Maríæ in Sábbato: Glória Patri. Quia.}
+
+#### Lectio iii
+
+DE cétero, fratres, confortámini in Dómino, et in poténtia virtútis ejus.

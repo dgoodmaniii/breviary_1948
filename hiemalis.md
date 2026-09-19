@@ -4178,3 +4178,180 @@ Et tibi laus: \* cuncta enim quæ in cælo sunt, et in terra, tua sunt:
 Tuum, Dómine, regnum, \* et tu es super omnes príncipes.
 
 Tuæ divítiæ, et tua est glória: \* tu domináris ómnium.
+
+In manu tua virtus et poténtia: \* in manu tua magnitúdo, et impérium ómnium.
+
+Nunc ígitur, Deus noster, confitémur tibi, \* et laudámus nomen tuum ínclitum.
+
+**Ant.** Laudámus nomen tuum ínclitum, Deus noster.
+
+**Ant.** Laudáte † Dóminum, omnes gentes. ‡
+
+### Psalmus 116
+
+LAUDATE † Dóminum, omnes gentes: \*‡ laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+**Ant.** Laudáte Dóminum, omnes gentes.
+
+#### In Officio feriali
+
+{RUBRIC: Per Annum: Capitulum, Hymnus et Versus dicuntur quotidie de Feria currenti, ut in Psalterio hic et alibi apponuntur; et inde sumitur etiam Ant. ad Benedictus, præter quam in Dominica post Octavam Epiphaniæ anticipata, in qua dicitur Antiphona, ut in Proprio de Tempore.}
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+SPLENDOR Patérnæ glóriæ,
+De luce lucem próferens,
+Lux lucis, et fons lúminis,
+Diem dies illúminans:
+
+Verúsque sol illábere,
+Micans nitóre pérpeti:
+Jubárque Sancti Spíritus
+Infúnde nostris sénsibus.
+
+Votis vocémus et Patrem,
+Patrem poténtis grátiæ,
+Patrem perénnis glóriæ:
+Culpam reléget lúbricam.
+
+Confírmet actus strénuos:
+Dentes retúndat ínvidi:
+Casus secúndet ásperos:
+Agénda recte dírigat.
+
+Mentem gubérnet et regat:
+Sit pura nobis cástitas:
+Fides calóre férveat,
+Fraudis venéna nésciat.
+
+Christúsque nobis sit cibus,
+Potúsque noster sit fides:
+Læti bibámus sóbriam
+Profusiónem Spíritus.
+
+Lætus dies hic tránseat:
+Pudor sit ut dilúculum:
+Fides velut merídies:
+Crepúsculum mens nésciat.
+
+Auróra lucem próvehit,
+Cum luce nobis pródeat
+In Patre totus Fílius,
+Et totus in Verbo Pater.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum. Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Benedíctus † Dóminus, Deus Israël, quia visitávit et liberávit nos.
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+### Ad Laudes II
+
+*In Feriis Adventus, et in Feriis II post Dominicas Septuagesimæ, Sexagesimæ et Quinquagesimæ, necnon in Vigiliis communibus, quando fit Officium de Feria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Miserére. †
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Ecce véniet.
+
+### Psalmus 50
+
+MISERERE † mei, Deus: \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim, in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim, veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis: \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus: \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua: \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui: \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.
+
+Dómine, lábia mea apéries: \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem útique: \* holocáustis non delectáberis.
+
+Sacrifícium Deo spíritus contribulátus: \* cor contrítum, et humiliátum, Deus, non despícies.
+
+Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jerúsalem.
+
+Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
+
+**Ant.** Miserére mei, Deus, secúndum magnam misericórdiam tuam.
+
+**Ant.** Deduc me.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Ecce véniet Dóminus princeps regum terræ: beáti, qui paráti sunt occúrrere illi.
+
+**Ant.** Cum vénerit.
+
+### Psalmus 5
+
+VERBA mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo: \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus: \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem: \* perdes omnes, qui loquúntur mendácium.
+
+Virum sánguinum et dolósum abominábitur Dóminus: \* ego autem in multitúdine misericórdiæ tuæ.
+
+Introíbo in domum tuam: \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua: \* propter inimícos meos dírige in conspéctu tuo viam meam.
+
+Quóniam non est in ore eórum véritas: \* cor eórum vanum est.
+
+Sepúlcrum patens est guttur eórum, linguis suis dolóse agébant, \* júdica illos, Deus.
+
+Décidant a cogitatiónibus suis, secúndum multitúdinem impietátum eórum expélle eos, \* quóniam irritavérunt te, Dómine.
+
+Et lætántur omnes, qui sperant in te, \* in ætérnum exsultábunt: et habitábis in eis.
+
+Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíces justo.
+
+Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
+
+**Ant.** Deduc me in justítia tua, Dómine.
+
+**Ant.** Dóminus dabit virtútem.

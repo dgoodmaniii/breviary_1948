@@ -8756,3 +8756,57 @@ DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
 Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
 
 Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+{RUBRIC: Secus vero, tribus Psalmis explétis, statim dícitur Ant.}
+
+**Per Annum: Ant.** Misericórdia tua, Dómine, ante óculos meos: et complácui in veritáte tua.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria IV post Dominicam I:} **Ant.** In illa die stillábunt montes dulcédinem, et colles fluent lac et mel, allelúja.
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Prophétæ prædicavérunt nasci Salvatórem de Vírgine María.
+
+{RUBRIC: In Officio Festi vel Octavæ:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In omnibus autem Feriis et in Vigiliis communibus:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: In Adventu, nisi alius in Festis fuerit assumendus:} ℣. Qui ventúrus es in mundum.
+
+#### Preces dominicales et feriales
+
+*(si dicendæ sint)*
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indú-

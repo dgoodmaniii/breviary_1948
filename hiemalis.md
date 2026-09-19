@@ -25726,3 +25726,34 @@ DEO hæc absens scribo, ut non præsens dúrius agam secúndum potestátem, quam
 ℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
 
 **Ad Magnif. Ant.** Suscépit Deus \* Israël, púerum
+suum: sicut locútus est ad Abraham, et semen ejus usque in sǽculum.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, infirmitátem nostram propítius réspice: atque ad protegéndum nos déxteram tuæ majestátis exténde. Per Dóminum.
+
+## Dominica III post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+### Incipit Epistola beati Pauli Apostoli ad Galatas
+
+#### Lectio i
+
+*Cap. 1, 1-14*
+
+PAULUS Apóstolus non ab homínibus, neque per hóminem, sed per Jesum Christum, et Deum Patrem, qui suscitávit eum a mórtuis: et qui mecum sunt omnes fratres, ecclésiis Galátiæ. Grátia vobis, et pax a Deo Patre, et Dómino nostro Jesu Christo, qui dedit semetípsum pro peccátis nostris, ut eríperet nos de præsénti sǽculo nequam, secúndum voluntátem Dei et Patris nostri, cui est glória in sǽcula sæculórum. Amen.
+
+℟. Dómine, ne in ira tua árguas me, neque in furóre tuo corrípias me: \* Miserére mei, Dómine, quóniam infírmus sum. ℣. Timor et tremor venérunt super me, et contexérunt me ténebræ. — Miserére.
+
+#### Lectio ii
+
+MIROR quod sic tam cito transferímini ab eo, qui vos vocávit in grátiam Christi in áliud Evangélium: quod non est áliud, nisi sunt áliqui, qui vos contúrbant, et volunt convértere Evangélium Christi. Sed licet nos, aut Ángelus de cælo evangelízet vobis prætérquam quod evangelizávimus vobis, anáthema sit. Sicut prædíximus, et nunc íterum dico: Si quis vobis evangelizáverit præter id quod accepístis, anáthema sit. Modo enim homínibus suádeo, an Deo? An quǽro homínibus placére? Si adhuc homínibus placérem, Christi servus non essem.
+
+℟. Deus, qui sedes super thronum, et júdicas æquitátem, esto refúgium páuperum in tribulatióne: \* Quia tu solus labórem et dolórem consíderas. ℣. Tibi enim derelíctus est pauper, pupíllo tu eris adjútor. — Quia.
+
+#### Lectio iii
+
+NOTUM enim vobis fácio, fratres, Evangélium, quod evangelizátum est a me, quia non est secúndum hóminem: neque enim ego ab hómine accépi illud, ne-

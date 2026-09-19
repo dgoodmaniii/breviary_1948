@@ -30860,4 +30860,36 @@ CUMQUE ad ejus cellam pervenísset, invénit génibus complicátis, erécta cerv
 
 #### Lectio ix
 
-PAULUS, eremitárum auctor et magíster, apud inferiórem Thebáidem natus, persecutióne Décii et Valeriáni sæviénte, in erémi spelúncam se cóntulit; ubi, palma ei victum et vestítum præbénte, sanctíssime vixit ad centésimum et décimum tértium annum, quo témpore ab António nonagenário invísitur. Hunc Paulus humaníssime excépit, mox, sanctis sermónibus in multam noctem prodúctis, admónuit de morte, quæ sibi instáret, simúlque hortátus est, ut pállium, quod ab Athanásio accéperat, ad involvéndum suum corpus afférret. Quod dum António præstábat, rédiens ex itínere, vidit Pauli ánimam in cælum ascéndere; corpus vero in cella réperit, similitúdinem orántis reddens. Quod cum mæstíssimus, hymnis de more decantátis, pállio obvolvísset, nec, quo terram fóderet, habéret; duo leónes, ex interióri parte solitúdinis veniéntes, uníus hóminis capácem locum effodérunt.
+PAULUS, eremitárum auctor et magíster, apud inferiórem Thebáidem natus, persecutióne Décii et Valeriáni sæviénte, in erémi spelúncam se cóntulit; ubi, palma ei victum et vestítum præbénte, sanctíssime vixit ad centésimum et décimum tértium annum, quo témpore ab António nonagenário invísitur. Hunc Paulus humaníssime excépit, mox, sanctis sermónibus in multam noctem prodúctis, admónuit de morte, quæ sibi instáret, simúlque hortátus est, ut pállium, quod ab Athanásio accéperat, ad involvéndum suum corpus afférret. Quod dum António præstábat, rédiens ex itínere, vidit Pauli ánimam in cælum ascéndere; corpus vero in cella réperit, similitúdinem orántis reddens. Quod cum mæstíssimus, hymnis de more decantátis, pállio obvolvísset, nec, quo terram fóderet, habéret; duo leónes, ex interióri parte solitúdinis veniéntes, uníus hóminis capácem locum effodérunt.Tum Antónius, humáto córpore ac túmulo compósito, ábiit, túnicam Pauli ex palmárum fóliis contéxtam secum déferens; quo vestítu diébus solemnióribus Paschæ et Pentecóstes, quoad vixit, usus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Evangélium} Confíteor tibi, {RUBRIC: de Comm. Abbátum 2 loco.} [108]
+
+{RUBRIC: Pro S. Mauro Abbáte}
+
+#### Lectio ix
+
+MAURUS nóbilis Románus, puer a patre Eutýchio Deo sub sancti Benedícti disciplína oblátus, brevi tantum divína grátia profécit, ut ipsi magístro admiratióni esset; qui illum sæpe, véluti reguláris observántiæ et virtútum ómnium spécimen, céteris discípulis ad imitándum proponébat. Cujus adhuc adolescéntis illud admirábilis obediéntiæ exémplum a sancto Gregório Papa commemorátur: nam, cum Plácidus mónachus in lacum prolápsus, aquárum ímpetu raperétur, sancti Patris jussu accúrrens Maurus, et super aquas incédens, sócium capíllis apprehénsum, ad terram attráxit. Missus in Gálliam ab eódem sancto Benedícto, célebri monastério exstrúcto, cui annos quadragínta prǽfuit, monásticam discíplinam mirífice propagávit. Dénique sanctitáte et miráculis clarus, septuagenário major migrávit in cælum, anno salútis quingentésimo sexagésimo quinto.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio** C 1
+
+DEUS, qui nos beáti Pauli Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Mauri Abbátis:}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+#### Oratio
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Mauri Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.

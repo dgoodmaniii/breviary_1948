@@ -29878,3 +29878,28 @@ QUID missus beátus ille Angelus ad Vírginem integérrimam dicit? aut quómodo 
 #### Lectio viii
 
 ET sane par omníno erat, ut divína gáudii denuntiátio a sermónibus verbísque gáudium elicientibus súmeret inítium. Proptérea enim et Angelus gáudium ante ómnia renúntiat, quia faustæ legatiónis suæ non ignórat éxitum, ac probe novit collóquium quod habebátur, in totíus mundi gáudium maniféste esse cessúrum. Et profécto quodnam gáudium, aut quænam reperíri potest jucúnditas,
+quam non longe excédat allóquium ad Vírginem illam beátam ac gáudii paréntem hábitum? Gaude, o supercæléstis gáudii génitrix. Gaude, o sublimíssimi gáudii nutrix. Gaude, o salutáris gáudii sedes princeps. Gaude, o immortális gáudii auctrix. Gaude, o ineffábilis gáudii mýsticum diversórium. Gaude, o indeficiéntis gáudii fons beatíssime. Gaude, o gáudii ætérni Deíferum cimélium. Gaude, o vivificántis gáudii arbor virentíssima. Gaude, o innúpta Dei Mater. Gaude, o Virgo post partum integérrima. Gaude, o spectáculum præ mirabílibus ómnibus summe admirándum.
+
+℟. Magníficat ánima mea Dóminum: \* Quia fecit mihi magna qui potens est, et sanctum nomen ejus. ℣. Ecce enim ex hoc beátam me dicent omnes generatiónes. — Quia. Glória. Quia.
+
+#### Lectio ix
+
+QUISNAM tuum éloqui splendórem póterit? Quisnam porténtum, quod ipsa es, enarráre verbis áudeat? Quisnam magnificéntiam tuam effári se posse confídet? Tu hóminum exornásti natúram; tu Angelórum órdines superásti; tu fulgóres Archangelórum obtenebrásti; tu sublímes Thronórum sedes infra te ostendísti; tu altitúdinem Dominatiónum depressísti; tu Principátuum ducátibus præcucurrísti; tu enervásti fortitúdinem Potestátum; tu ipsis Virtútibus poténtior virtus prodiísti; tu Chérubim oculatíssimum visum terréstribus óculis vicísti; tu Séraphim sex alas habéntium volátus ánimæ pennis divínitus agitátis transvolásti; tu dénique omnem creatúram longe transgréssa es: quippe quæ præ omni creatúra enituísti puritáte; et ómnium creaturárum Conditórem in te excepísti; ipsúmque et sinu tuo gestásti, et genuísti; et sola ex ómnibus creatúris Dei Mater effécta es.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: Ad Laudes fit Com. Fériæ.}
+
+{RUBRIC: In Vésperis fit Commemoratio Fériæ et S. Melchíadis Papæ et Mártyris, ut infra.}
+
+---
+
+## Die 10 Decembris
+
+### De III die infra Octav. Conceptionis Immaculatæ B. Mariæ V.
+
+{RUBRIC: Semiduplex} [REF: p. 702]
+
+{RUBRIC: Pro Commem. S. Melchíadis in II Vésperis præcedéntis:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fun-

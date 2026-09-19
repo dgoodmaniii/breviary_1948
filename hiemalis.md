@@ -17331,3 +17331,25 @@ AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et mentis nostræ 
 {RUBRIC: Invitatórium} Prope est {RUBRIC: et}
 
 {RUBRIC: Hymnus} Verbum supérnum
+
+{RUBRIC: ut in Psaltério 36, quæ dicúntur quotídie in Offício de Témpore usque ad diem 23 Decémbris inclusíve.}
+
+#### In I Nocturno
+
+{RUBRIC: Si Lectiónes de Scriptúra hujus Domínicæ vel Fériæ II aut III sequéntis, sua die dici non potuérint, et in Fériis Quátuor Témporum fíeri contíngat Offícium, in quo Lectiónes própriæ vel specialíter assignátæ non habéntur, Lectiónes ut supra impedítæ, et, si opus sit, étiam Lectiónes insequéntium Feriárum, serváto tamen eárum órdine, ultérius transferúntur, ita ut in Offício in Quátuor Tempóribus occurrénti, Lectiónes de Scriptúra váleant adhibéri. Quod item servátur de Lectiónibus Fériæ V ut supra impedítis, quæ simíliter, in casu, vel ultérius transferúntur, vel étiam anticipántur. Responsória vero quæ síngulis Fériis assignántur, neque anticipántur neque transferúntur, sed, si sua die dici non potuérint, omittúntur juxta Rúbricas.}
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 26, 1-14*
+
+IN die illa cantábitur cánticum istud in terra Juda: Urbs fortitúdinis nostræ Sion Salvátor, ponétur in ea murus et antemurále. Aperíte portas, et ingrediátur gens justa, custódiens veritátem. Vetus error ábiit: servábis pacem: pacem,
+
+quia in te sperávimus. Sperástis in Dómino in sǽculis ætérnis, in Dómino Deo forti in perpétuum. Quia incurvábit habitántes in excélso, civitátem sublímem humiliábit. Humiliábit eam usque ad terram, détrahet eam usque ad púlverem. Conculcábit eam pes, pedes páuperis, gressus egenórum.
+
+℟. Ecce apparébit Dóminus super nubem cándidam, \* Et cum eo Sanctórum míllia: et habébit in vestiménto, et in fémore suo scriptum: Rex regum, et Dóminus dominántium. ℣. Apparébit in finem, et non mentiétur; si moram fécerit, exspécta eum, quia véniens véniet. — Et.
+
+#### Lectio ii
+
+SÉMITA justi recta est, rectus callis justi ad ambulándum. Et in sémita judiciórum tuórum, Dómine, sustinúimus te: nomen tuum, et memoriále tuum in desidério ánimæ. Anima mea desiderávit te in nocte, sed et spíritu meo in præcórdiis meis de mane vigilábo ad te. Cum féceris judícia tua in terra, justítiam discent habitatóres orbis. Misereámur ímpio, et non discet justítiam: in terra sanctórum

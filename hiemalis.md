@@ -30021,3 +30021,10 @@ DAMASUS Hispánus, vir egrégius et erudítus in Scriptúris, indícto primo Con
 #### Lectio v
 
 BASÍLICAS duas ædificávit, álteram sancti Lauréntii nómine ad theátrum Pompéji, quam máximis munéribus auxit, eíque domos et prǽdia attríbuit; álteram via Ardeatína ad Catacúmbas. Platóniam étiam, ubi córpora sanctórum Petri et Pauli aliquámdiu jacuérunt, dedicávit et exornávit elegántibus vérsibus. Idém-
+que prosa et versu scripsit de virginitáte, múltaque ália metro édidit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+PŒNAM taliónis constítuit iis, qui álterum falsi críminis accusássent. Státuit, ut, quod plúribus jam locis erat in usu, Psalmi per omnes ecclésias die noctúque ab altérnis caneréntur; et in fine cujúsque Psalmi dicerétur: Glória Patri, et Fílio, et Spirítui Sancto. Ejus jussu sanctus Hierónymus novum testaméntum Grǽcæ fídei réddidit. Cum Ecclésiam rexísset annos decem et septem, menses duos, dies vigínti sex, et habuísset ordinatiónes quinque mense Decémbri, quibus creávit presbýteros trigínta unum, diáconos úndecim, epíscopos per divérsa loca sexagínta duos; virtúte, doctrína ac prudéntia clarus, prope octogenárius, Theodósio senióre imperánte, obdormívit in Dómino, et via Ardeatína una cum matre et soróre sepúltus est in basílica, quam

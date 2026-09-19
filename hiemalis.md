@@ -22909,3 +22909,48 @@ ITAQUE jam non est servus, sed fílius: quod si fílius, et heres per Deum.
 ℟. br. Vidérunt omnes fines terræ, \* Allelúja, allelúja. Vidérunt. ℣. Salutáre Dei nostri. Allelúja, allelúja. Glória Patri. Vidérunt. ℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
 
 {RUBRIC: Vésperæ de Epiphánia, sine Commemoratióne.}
+
+[IMAGE]
+
+## Die 6 Januarii
+
+# In Epiphania Domini
+
+{RUBRIC: Duplex I classis}
+
+{RUBRIC: Cum Octava privilegiata II ordinis}
+
+### In I Vesperis
+
+**Ant. 1** Ante lucíferum génitus, \* et ante sǽcula, Dóminus Salvátor noster hódie mundo appáruit.
+
+{RUBRIC: Psalmi de Dominica [REF: p. 71], sed loco últimi Ps. 116 Laudáte Dóminum, omnes gentes. [REF: p. 89]}
+
+**2** Venit lumen tuum, \* Jerúsalem, et glória Dómini super te orta est, et ambulábunt gentes in lúmine tuo, allelúja.
+
+**3** Apértis thesáuris suis, \* obtulérunt Magi Dómino aurum, thus et myrrham, allelúja.
+
+**4** María et flúmina, \* benedícite Dómino: hymnum dícite, fontes, Dómino, allelúja.
+
+**5** Stella ista \* sicut flamma corúscat, et Regem regum Deum demónstrat: Magi eam vidérunt, et magno Regi múnera obtulérunt.
+
+#### Capitulum
+
+*Is. 60, 1*
+
+SURGE, illumináre, Jerúsalem, quia venit lumen tuum, et glória Dómini super te orta est.
+
+#### Hymnus
+
+CRUDÉLIS Heródes, Deum
+Regem veníre quid times?
+Non éripit mortália,
+Qui regna dat cæléstia.
+
+Ibant Magi, quam víderant,
+Stellam sequéntes prǽviam:
+Lumen requírunt lúmine:
+Deum faténtur múnere.
+
+Lavácra puri gúrgitis
+Cæléstis Agnus áttigit:

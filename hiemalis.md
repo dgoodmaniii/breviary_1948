@@ -16327,3 +16327,26 @@ EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccat
 VISIO Isaíæ, fílii Amos, quam vidit super Judam et Jerúsalem, in diébus Ozíæ, Jóathan, Achaz, et Ezechíæ, regum Juda. Audíte, cæli, et áuribus pércipe, terra, quóniam Dóminus locútus est: Fílios enutrívi, et exaltávi: ipsi autem sprevérunt me. Cognóvit bos possessórem suum, et ásinus præsépe dómini sui: Israël autem me non cognóvit, et pópulus meus non intelléxit.
 
 ℟. Aspíciens a longe, ecce vídeo Dei poténtiam veniéntem, et nébulam totam terram tegéntem. \* Ite óbviam ei, et dícite: \* Núntia nobis, si tu es ipse, \* Qui regnatúrus es in pópulo Israël. ℣. Quique terrígenæ, et fílii hóminum, simul in unum dives et pauper. — Ite
+óbviam ei, et dícite. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Núntia nobis, si tu es ipse. ℣. Tóllite portas, príncipes, vestras, et elevámini, portæ æternáles, et introíbit Rex glóriæ. — Qui regnatúrus es in pópulo Israël. ℣. Glória Patri, et Fílio, et Spirítui Sancto. {RUBRIC: Deinde repetitur} ℟. Aspíciens a longe, {RUBRIC: usque ad} ℣. Quique terrígenæ.
+
+#### Lectio ii
+
+VÆ genti peccatríci, pópulo gravi iniquitáte, sémini nequam, fíliis scelerátis: dereliquérunt Dóminum, blasphemavérunt Sanctum Israël, abalienáti sunt retrórsum. Super quo percútiam vos ultra, addéntes prævaricatiónem? omne caput lánguidum, et omne cor mœrens. A planta pedis usque ad vérticem non est in eo sánitas: vulnus, et livor, et plaga tumens non est circumligáta, nec curáta medicámine, neque fota óleo.
+
+℟. Aspiciébam in visu noctis, et ecce in núbibus cæli Fílius hóminis veniébat: et datum est ei regnum, et honor: \* Et omnis pópulus, tribus, et línguæ sérvient ei. ℣. Potéstas ejus, potéstas ætérna, quæ non auferétur: et regnum ejus, quod non corrumpétur. — Et.
+
+#### Lectio iii
+
+TERRA vestra desérta, civitátes vestræ succénsæ igni: regiónem vestram coram vobis aliéni dévorant, et desolábitur sicut in vastitáte hostíli. Et derelinquétur fília Sion ut umbráculum in vínea, et sicut tugúrium in cucumerário, et sicut cívitas, quæ vastátur. Nisi Dóminus exercítuum reliquísset nobis semen, quasi Sódoma fuissémus, et quasi Gomórrha símiles essémus.
+
+℟. Missus est Gábriel Angelus ad Maríam Vírginem despónsatam Joseph, núntians ei verbum; et expavéscit Virgo de lúmine: ne tímeas, María, invenísti grátiam apud Dóminum: \* Ecce concípies et páries, et vocábitur Altíssimi Fílius. ℣. Dabit ei Dóminus Deus sedem David, patris ejus, et regnábit in domo Jacob in ætérnum. — Ecce. Glória Patri. Ecce concípies.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 8 de jejúnio dècimi ménsis et eleemósynis}
+
+#### Lectio iv
+
+CUM de advéntu regni Dei, et de mundi fine ac témporum, discípulos suos Sal-

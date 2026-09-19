@@ -17177,3 +17177,27 @@ STULTI príncipes Táneos, sapiéntes consiliárii Pharaónis dedérunt consíli
 ℣. Roráte, {RUBRIC: ut supra.}
 
 **Ad Magnif. Ant.** Qui post me véniet, \* ante me factus est: cujus non sum dignus calceaménta sólvere.
+
+### Feria Sexta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 24, 1-16*
+
+ECCE Dóminus dissipábit terram, et nudábit eam, et afflíget fáciem ejus, et dispérget habitatóres ejus. Et erit sicut pópulus, sic sacérdos: et sicut servus, sic dóminus ejus: sicut ancílla, sic dómina ejus: sicut emens, sic ille qui vendit: sicut fœnerátor, sic is qui mútuum áccipit: sicut qui répetit, sic qui debet. Dissipatióne dissipábitur terra, et direptióne prædábitur. Dóminus enim locútus est verbum hoc.
+
+℟. Ecce véniet Dóminus, protéctor noster, Sanctus Israël, \* Corónam regni habens in cápite suo. ℣. Et dominábitur a mari usque ad mare, et a flúmine usque ad términos orbis terrárum. — Corónam.
+
+#### Lectio ii
+
+LUXIT, et deflúxit terra, et infirmáta est: deflúxit orbis, infirmáta est altitúdo pópuli terræ. Et terra infécta est ab habitatóribus suis: quia transgréssi sunt leges, mutavérunt jus, dissipavérunt fœdus sempitérnum. Propter hoc maledíctio vorábit terram, et peccábunt habitatóres ejus: ideóque insá-
+
+nient cultóres ejus, et relinquéntur hómines pauci.
+
+℟. Sicut mater consolátur fílios suos, ita consolábor vos, dicit Dóminus: et de Jerúsalem civitáte quam elégi, véniet vobis auxílium: \* Et vidébitis, et gaudébit cor vestrum. ℣. Dabo in Sion salútem, et in Jerúsalem glóriam meam. — Et.
+
+#### Lectio iii
+
+LUXIT vindémia, infirmáta est vitis, ingemuérunt omnes qui lætabántur corde. Cessávit gáudium tympanórum, quiévit sónitus lætántium, contícuit dulcédo cítharæ. Cum cántico non bibent vinum: amára erit pótio bibéntibus illam. Attríta est cívitas vanitátis, clausa est omnis domus, nullo introeúnte. Clamor erit super vino in platéis: desérta est omnis lætítia: translátum est gáudium terræ. Relícta est in urbe solitúdo, et calamítas ópprimet portas. Quia hæc erunt in médio terræ, in médio populórum: quómodo si paucæ olívæ, quæ remansérunt, excutiántur ex ólea: et racémi, cum fúerit finíta vindémia. Hi levábunt vocem suam, atque laudábunt: cum glorificátus fúerit Dóminus, hínnient de mari. Propter hoc in

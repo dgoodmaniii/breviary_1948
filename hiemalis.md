@@ -20983,3 +20983,61 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 {RUBRIC: Psalmi ut in Communi Festorum B. M. V. [174]}
 
 **2** Quando natus es \* ineffabíliter ex Vírgine,
+tunc implétæ sunt Scriptúræ: sicut plúvia in vellus descendísti, ut salvum fáceres genus humánum: te laudámus, Deus noster.
+
+**3** Rubum, quem víderat Móyses \* incombústum, conservátam agnóvimus tuam laudábilem virginitátem: Dei Génitrix, intercéde pro nobis.
+
+**4** Germinávit radix Jesse, \* orta est stella ex Jacob: Virgo péperit Salvatórem: te laudámus, Deus noster.
+
+**5** Ecce María génuit \* nobis Salvatórem, quem Joánnes videns exclamávit, dicens: Ecce Agnus Dei, ecce qui tollit peccáta mundi, allelúja.
+
+#### Capitulum
+
+*Tit. 2, 11-12*
+
+APPÁRUIT grátia Dei Salvatóris nostri ómnibus homínibus, erúdiens nos, ut, abnegántes impietátem, et sæculária desidéria, sóbrie, et juste, et pie vivámus in hoc século.
+
+#### Hymnus
+
+JESU, Redémptor ómnium,
+Quem lucis ante oríginem
+Parem Patérnæ glóriæ
+Pater suprémus édidit.
+
+Tu lumen, et splendor Patris,
+Tu spes perénnis ómnium,
+Inténde quas fundunt preces
+Tui per orbem sérvuli.
+
+Meménto, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+Testátur hoc præsens dies,
+Currens per anni círculum,
+Quod solus e sinu Patris
+Mundi salus advéneris.
+
+Hunc astra, tellus, ǽquora,
+Hunc omne, quod cælo subest,
+Salútis auctórem novæ
+Novo salútat cántico.
+
+Et nos, beáta quos sacri
+Rigávit unda sánguinis,
+Natális ob diem tui
+Hymni tribútum sólvimus.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+**Ad Magnif. Ant.** Propter nímiam \* caritátem suam, qua diléxit nos Deus, Fílium suum misit in similitúdinem carnis peccáti, allelúja.
+
+### In II Vesperis
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.

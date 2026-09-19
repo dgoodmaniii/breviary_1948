@@ -7081,3 +7081,45 @@ Hæc recordátus sum, et effúdi in me ánimam meam: \* quóniam transíbo in lo
 In voce exsultatiónis, et confessiónis: \* sonus epulántis.
 
 Quare tristis es, ánima mea? \* et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+### Psalmus 41, ii
+
+AD meípsum ánima mea conturbáta est: \* proptérea memor ero tui de terra Jordánis, et Hermóniim a monte módico.
+
+Abýssus abýssum ínvocat, \* in voce cataractárum tuárum.
+
+Omnia excélsa tua, et fluctus tui \* super me transiérunt.
+
+In die mandávit Dóminus misericórdiam suam: \* et nocte cánticum ejus.
+
+Apud me orátio Deo vitæ meæ, \* dicam Deo: Suscéptor meus es.
+
+Quare oblítus es mei? \* et quare contristátus incédo, dum afflígit me inimícus?
+
+Dum confringúntur ossa mea, \* exprobravérunt mihi qui tríbulant me inimíci mei.
+
+Dum dicunt mihi per síngulos dies: Ubi est Deus tuus? \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Per Annum: Ant.** Suscepísti me, Dómine: et confirmásti me in conspéctu tuo.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria III post Dominicam I:} **Ant.** Ecce Dóminus véniet, et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Ut cognoscámus, Dómine, in terra viam tuam, in ómnibus géntibus salutáre tuum.
+
+**Capitulum** *Jer. 23, 6*
+
+IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc est nomen, quod vocábunt eum, Dóminus justus noster.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.

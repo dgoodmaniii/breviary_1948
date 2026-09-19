@@ -16127,3 +16127,60 @@ Fáciens misericórdias Dóminus: \* et judícium ómnibus injúriam patiéntibu
 Notas fecit vias suas Móysi, \* fíliis Israël voluntátes suas.
 
 Miserátor, et miséricors Dóminus: \* longánimis, et multum miséricors.
+
+Non in perpétuum irascétur: \* neque in ætérnum comminábitur.
+
+Non secúndum peccáta nostra fecit nobis: \* neque secúndum iniquitátes nostras retríbuit nobis.
+
+Quóniam secúndum altitúdinem cæli a terra: \* corroborávit misericórdiam suam super timéntes se.
+
+Quantum distat ortus ab occidénte: \* longe fecit a nobis iniquitátes nostras.
+
+#### Psalmus 102, ii
+
+QUÓMODO miserétur pater filiórum, misértus est Dóminus timéntibus se: \* quóniam ipse cognóvit figméntum nostrum.
+
+Recordátus est quóniam pulvis sumus: \* homo, sicut fœnum dies ejus, tamquam flos agri sic efflorébit.
+
+Quóniam spíritus pertransíbit in illo, et non subsístet: \* et non cognóscet ámplius locum suum.
+
+Misericórdia autem Dómini ab ætérno, \* et usque in ætérnum super timéntes eum.
+
+Et justítia illíus in fílios filiórum, \* his qui servant testaméntum ejus:
+
+Et mémores sunt mandatórum ipsíus, \* ad faciéndum ea.
+
+Dóminus in cælo parávit sedem suam: \* et regnum ipsíus ómnibus dominábitur.
+
+Benedícite Dómino, omnes Ángeli ejus: \* poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+Benedícite Dómino, omnes virtútes ejus: \* minístri ejus, qui fácitis voluntátem ejus.
+
+Benedícite Dómino, ómnia ópera ejus: \* in omni loco dominatiónis ejus, benedíc, ánima mea, Dómino.
+
+**Ant.** Intret orátio mea in conspéctu tuo, Dómine.
+
+#### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum. Amen.
+
+#### Capitulum
+
+*Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Gló-

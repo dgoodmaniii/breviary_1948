@@ -15963,3 +15963,53 @@ Memóriam abundántiæ suavitátis tuæ eructábunt: \* et justítia tua exsult�
 #### Psalmus 144, ii
 
 MISERÁTOR, et miséricors Dóminus: \* pátiens, et multum miséricors.
+
+Suávis Dóminus univérsis: \* et miseratiónes ejus super ómnia ópera ejus.
+
+Confiteántur tibi, Dómine, ómnia ópera tua: \* et sancti tui benedícant tibi.
+
+Glóriam regni tui dicent: \* et poténtiam tuam loquéntur:
+
+Ut notam fáciant fíliis hóminum poténtiam tuam: \* et glóriam magnificéntiæ regni tui.
+
+Regnum tuum regnum ómnium sæculórum: \* et dominátio tua in omni generatióne et generatiónem.
+
+**Ant.** Suávis Dóminus univérsis: et miseratiónes ejus super ómnia ópera ejus.
+
+**Ant.** Fidélis Dóminus. †
+
+#### Psalmus 144, iii
+
+FIDÉLIS Dóminus † in ómnibus verbis suis: \* et sanctus in ómnibus opéribus suis.
+
+Allevat Dóminus omnes qui córruunt: \* et érigit omnes elísos.
+
+Óculi ómnium in te sperant, Dómine: \* et tu das escam illórum in témpore opportúno.
+
+Áperis tu manum tuam: \* et imples omne ánimal benedictióne.
+
+Justus Dóminus in ómnibus viis suis: \* et sanctus in ómnibus opéribus suis.
+
+Prope est Dóminus ómnibus invocántibus eum: \* ómnibus invocántibus eum in veritáte.
+
+Voluntátem timéntium se fáciet: \* et deprecatiónem eórum exáudiet: et salvos fáciet eos.
+
+Custódit Dóminus omnes diligéntes se: \* et omnes peccatóres dispérdet.
+
+Laudatiónem Dómini loquétur os meum: \* et benedícat omnis caro nómini sancto ejus in séculum, et in séculum séculi.
+
+**Ant.** Fidélis Dóminus in ómnibus verbis suis: et sanctus in ómnibus opéribus suis.
+
+#### In Adventu
+
+{RUBRIC: Capitulum, Hymnus Creátor alme et Versus Roráte, ut in Próprio de Témpore.}
+
+#### Per Annum
+
+{RUBRIC: In Sabbatis ante Domínicas Septuagésimæ, Sexagésimæ et Quinquagésimæ, Capítulum ut in Próprio de Témpore; in relíquis autem Sabbatis, extra Octávas Nativitátis et Epiphániæ, dícitur}
+
+#### Capitulum
+
+*Rom. 11, 33*
+
+O ALTITÚDO divitiárum sapiéntiæ et sciéntiæ Dei: quam incomprehensíbilia sunt judícia ejus, et investigábiles viæ ejus!

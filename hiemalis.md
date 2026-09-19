@@ -17150,3 +17150,30 @@ EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus 
 *Cap. 19, 1-6*
 
 ONUS Ægýpti. Ecce Dóminus ascéndet super nubem levem, et ingrediétur Ægýptum, et commovebúntur simulácra Ægýpti a fácie ejus, et cor Ægýpti tabéscet in médio ejus. Et concúrrere fáciam Ægýptios advérsus Ægýptios: et pugnábit vir contra fratrem suum, et vir contra amícum suum, cívitas advérsus civitá-
+tem, regnum advérsus regnum.
+
+℟. Jerúsalem, cito véniet salus tua: quare mœróre consúmeris? numquid consiliárius non est tibi, quia innovávit te dolor? \* Salvábo te, et liberábo te, noli timére. ℣. Ego enim sum Dóminus Deus tuus, Sanctus Israël, Redémptor tuus. — Salvábo.
+
+#### Lectio ii
+
+ET dirumpétur spíritus Ægýpti in viscéribus ejus, et consílium ejus præcipitábo: et interrogábunt simulácra sua, et divínos suos, et pythónes, et aríolos. Et tradam Ægýptum in manu dominórum crudélium, et rex fortis dominábitur eórum, ait Dóminus Deus exercítuum. Et aréscet aqua de mari, et flúvius desolábitur, atque siccábitur. Et defícient flúmina: attenuabúntur, et siccabúntur rivi ággerum.
+
+℟. Ecce Dóminus véniet, et omnes Sancti ejus cum eo, et erit in die illa lux magna: et exíbunt de Jerúsalem sicut aqua munda: et regnábit Dóminus in ætérnum \* Super omnes gentes. ℣. Ecce Dóminus cum virtúte véniet: et regnum in manu ejus, et potéstas, et impérium. — Super.
+
+#### Lectio iii
+
+*Cap. 19, 11-13*
+
+STULTI príncipes Táneos, sapiéntes consiliárii Pharaónis dedérunt consílium insípiens. Quómodo dicétis Pharaóni: Fílius sapiéntium ego, fílius regum antiquórum? Ubi nunc sunt sapiéntes tui? annúntient tibi, et índicent quid cogitáverit Dóminus exercítuum super Ægýptum. Stulti facti sunt príncipes Táneos, emarcuérunt príncipes Mémpheos, decepérunt Ægýptum, ángulum populórum ejus.
+
+℟. Cívitas Jerúsalem, noli flere: quóniam dóluit Dóminus super te: \* Et áuferet a te omnem tribulatiónem. ℣. Ecce Dóminus in fortitúdine véniet: et bráchium ejus dominábitur. — Et. Glória Patri. Et.
+
+℣. Vox clamántis.
+
+**Ad Bened. Ant.** Tu es qui ventúrus es, \* Dómine, quem exspectámus, ut salvum fácias pópulum tuum.
+
+**Oratio** Excita, {RUBRIC: ut supra.}
+
+℣. Roráte, {RUBRIC: ut supra.}
+
+**Ad Magnif. Ant.** Qui post me véniet, \* ante me factus est: cujus non sum dignus calceaménta sólvere.

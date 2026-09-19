@@ -23890,3 +23890,55 @@ Arte, qua Joseph, húmili excoléndus
 Abdíto, Jesus juvenéscit ævo,
 Seque fabrílis sócium labóris
 Adjícit ultro.
+
+Irríget sudor mea membra, dixit,
+Antequam sparso mádeant cruóre:
+Hæc quoque humáno géneri expiándo
+Pœna luátur.
+
+Assídet Nato pia Mater almo,
+Assídet Sponso bona nupta, felix
+Si potest curas releváre fessis
+Múnere amíco.
+
+O neque expértes óperæ et labóris,
+Nec mali ignári, míseros juváte,
+Quos reluctántes per acúta rerum
+Urget egéstas.
+
+Démite his fastus, quibus ampla splendet
+Fáustitas, mentem date rebus æquam:
+Quotquot implórant cólumen, benígno
+Cérnite vultu.
+
+Sit tibi, Jesu, decus atque virtus,
+Sancta qui vitæ documénta præbes,
+Quique cum summo Genitóre et almo
+Flámine regnas.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Cum indúcerent \* púerum Jesum paréntes ejus, accépit eum Símeon in ulnas suas, et benedíxit Deum.
+
+#### Psalmus 8
+
+DÓMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Cum indúcerent púerum Jesum paréntes ejus, accépit eum Símeon in ulnas suas, et benedíxit Deum.

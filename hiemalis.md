@@ -31766,4 +31766,56 @@ SED prius quæréndum nobis est quid sit regnum cælórum, aut cur decem virgín
 
 #### Lectio ix
 
-IN quinque autem córporis sénsibus unusquísque subsístit; geminátus autem quinárius denárium pérficit. Et, quia ex utróque sexu fidélium multitúdo collígitur, sancta Ecclésia decem virgínibus símilis esse denuntiátur. In qua quia mali cum bonis et réprobi cum eléctis admíxti sunt, recte símilis virgínibus prudéntibus et fátuis esse perhibétur. Sunt namque plerique continéntes, qui ab appetítu se exterióri custódiunt et spe ad interióra rapiúntur, carnem mácerant, et toto desidério ad
+IN quinque autem córporis sénsibus unusquísque subsístit; geminátus autem quinárius denárium pérficit. Et, quia ex utróque sexu fidélium multitúdo collígitur, sancta Ecclésia decem virgínibus símilis esse denuntiátur. In qua quia mali cum bonis et réprobi cum eléctis admíxti sunt, recte símilis virgínibus prudéntibus et fátuis esse perhibétur. Sunt namque plerique continéntes, qui ab appetítu se exterióri custódiunt et spe ad interióra rapiúntur, carnem mácerant, et toto desidério adsupérnam pátriam anhélant, ætérna prǽmia éxpetunt, pro labóribus suis recípere laudes humánas nolunt. Hi nimírum glóriam suam non in ore hóminum ponunt, sed intra consciéntiam cóntegunt. Et sunt plerique, qui corpus per abstinéntiam afflígunt, sed de ipsa sua abstinéntia humános favóres éxpetunt.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: Ant. 1} Ingréssa Agnes \* turpitúdinis locum, Angelum Dómini præparátum invénit.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 44}
+
+{RUBRIC: 2} Mecum enim hábeo \* custódem córporis mei, Angelum Dómini.
+
+{RUBRIC: 3} Annulo suo \* subarrhávit me Dóminus meus Jesus Christus, et tamquam sponsam decorávit me coróna.
+
+{RUBRIC: 4} Benedíco te, \* Pater Dómini mei Jesu Christi, quia per Fílium tuum ignis exstínctus est a látere meo.
+
+{RUBRIC: 5} Congaudéte mecum, \* et congratulámini, quia cum his ómnibus lúcidas sedes accépi.
+
+{RUBRIC: Capitulum} *Eccli. 51, 1-3*
+
+CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+#### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia;
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant;
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+\* Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Ecce quod concupívi, \* jam vídeo: quod sperávi, jam téneo: ipsi sum juncta in cælis, quem in terris pósita, tota devotióne diléxi.

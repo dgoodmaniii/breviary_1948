@@ -17017,3 +17017,31 @@ DEUS autem spei répleat vos omni gáudio et pace in credéndo: ut abundétis in
 {RUBRIC: Omnia ut in Vésperis Sábbati præc. 334, prǽter seq.:}
 
 {RUBRIC: Psalmi de Dominica, ut in Psaltério. 71}
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Tu es qui ventúrus es, \* an álium exspectámus? Dícite Joánni quæ vidístis: Ad lumen rédeunt cæci, mórtui resúrgunt, páuperes evangelizántur, allelúja.
+
+---
+
+### Feria Secunda
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 13, 1-11*
+
+ONUS Babylónis, quod vidit Isaías fílius Amos. Super montem calignósum leváte signum, exaltáte vocem, leváte manum, et ingrediántur portas duces. Ego mandávi sanctificátis meis, et vocávi fortes meos in ira mea, exsultántes in glória mea. Vox multitúdinis in móntibus, quasi populórum frequéntium: vox sónitus regum, géntium congregatárum.
+
+℟. Súscipe verbum, Virgo María, quod tibi a Dómino per Ángelum transmíssum est: concípies et páries Deum páriter et hóminem, \* Ut benedícta dicáris inter omnes mulíeres. ℣. Páries quidem fílium, et virginitátis non patiéris detriméntum: efficiéris grávida, et eris mater semper intácta. — Ut.
+
+#### Lectio ii
+
+DÓMINUS exercítuum præcépit milítiæ belli, veniéntibus de terra procul a summitáte cæli: Dóminus, et vasa furóris ejus, ut dispérdat omnem terram. Ululáte, quia prope est dies Dómini: quasi vástitas a Dómino véniet. Propter hoc omnes manus dissolvéntur, et omne cor hóminis contabéscet, et conterétur. Torsiónes et dolóres tenébunt; quasi partúriens dolébunt: unusquísque ad próximum suum stupébit, fácies combústæ vultus eórum.
+
+℟. Læténtur cæli, et exsúltet terra, jubiláte, montes, laudem: quia Dóminus noster véniet, \* Et páuperum suórum miserébitur. ℣. Oriétur in diébus ejus justítia, et abundántia pacis. — Et páuperum.
+
+#### Lectio iii
+
+ECCE dies Dómini véniet, crudélis, et indignatiónis plenus, et iræ, furorísque ad ponéndam terram in solitúdinem, et peccatóres ejus conteréndos de ea. Quóniam stellæ cæli, et splendor eárum non expándent lumen suum: obtenebrátus est sol in ortu suo, et luna non splen-

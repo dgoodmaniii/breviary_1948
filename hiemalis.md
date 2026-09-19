@@ -25909,3 +25909,30 @@ QUI prædestinávit nos in adoptiónem filiórum per Jesum Christum in ipsum: se
 #### Lectio iii
 
 IN quo étiam et nos sorte vocáti sumus, prædestináti secúndum propósitum ejus, qui operátur ómnia secúndum consílium voluntátis suæ: ut simus
+in laudem glóriæ ejus nos, qui ante sperávimus in Christo: In quo et vos, cum audissétis verbum veritátis (Evangélium salútis vestræ) in quo et credéntes signáti estis Spíritu promissiónis Sancto, qui est pignus hereditátis nostræ, in redemptiónem acquisitiónis, in laudem glóriæ ipsíus.
+
+℟. Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea. ℣. Lætábor, et exsultábo in te, psallam nómini tuo, Altíssime. — Deus. Glória Patri. Deus.
+
+### Feria Quinta
+
+{RUBRIC: De Epístola ad Ephésios}
+
+#### Lectio i
+
+*Cap. 4, 1-15*
+
+OBSECRO ítaque vos ego vinctus in Dómino, ut digne ambulétis vocatióne, qua vocáti estis, cum omni humilitáte, et mansuetúdine, cum patiéntia, supportántes ínvicem in caritáte, sollíciti serváre unitátem spíritus in vínculo pacis. Unum corpus, et unus spíritus, sicut vocáti estis in una spe vocatiónis vestræ. Unus Dóminus, una fides, unum baptísma. Unus Deus et Pater ómnium, qui est super omnes, et per ómnia, et in ómnibus nobis.
+
+℟. Deus, in te sperávi, Dómine, non confúndar in ætérnum: in justítia tua líbera me, \* Et éripe me. ℣. Inclína ad me aurem tuam, et salva me. — Et.
+
+#### Lectio ii
+
+UNICUÍQUE autem nostrum data est grátia secúndum mensúram donatiónis Christi. Propter quod dicit: Ascéndens in altum captívam duxit captivitátem: dedit dona homínibus. Quod autem ascéndit, quid est, nisi quia et descéndit primum in inferióres partes terræ? Qui descéndit, ipse est et qui ascéndit super omnes cælos, ut implérét ómnia.
+
+℟. Repleátur os meum laude tua, ut hymnum dicam glóriæ tuæ, tota die magnitúdinem tuam: noli me projícere in témpore senectútis: \* Dum defécerit in me virtus mea, ne derelínquas me. ℣. Gaudébunt lábia mea cum cantávero tibi. — Dum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dum.}
+
+#### Lectio iii
+
+ET ipse dedit quosdam quidem apóstolos, quosdam autem prophétas, álios vero evangelístas, álios autem pastóres et doctóres, ad consummatiónem sanctórum in opus ministérii, in ædifica-

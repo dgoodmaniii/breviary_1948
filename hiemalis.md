@@ -31144,4 +31144,18 @@ IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat d
 
 DOMINUS a discípulis requírit quem se hómines esse dícerent; et adjécit, hóminis fílium. Hæc enim confessiónis tenénda rátio est, ut sicut Dei Fílium, ita et fílium hóminis meminérimus: quia álterum sine áltero nihil spei tríbuit ad salútem. Editis ítaque, quæ divérsæ de eo erant, hóminum opiniónibus, quid de se ipsi séntiant quærit. Petrus respóndit: Tu es Christus Fílius Dei vivi. Sed Petrus conditiónes propositiónis expénderat. Dóminus enim díxerat: Quem me hómines esse dicunt, fílium hóminis? Et certe fílium hóminis contemplátio córporis præferébat. Sed addéndo, Quem me esse dicunt, significávit, præter id quod in se videbátur, esse áliud sentiéndum; erat enim hóminis fílius. Quod ígitur de se opinándi judícium desiderábat? Non illud arbitrámur, quod de se ipse conféssus est: sed occúltum erat de quo quærebátur, in quod se credéntium fides debébat exténdere.
 
-℟. Quem dicunt hómines esse fílium hóminis? dixit
+℟. Quem dicunt hómines esse fílium hóminis? dixitJesus discípulis suis. Respóndens Petrus dixit: Tu es Christus Fílius Dei vivi. \* Et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. ℣. Beátus es, Simon Bar-Jona, quia caro et sánguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et.
+
+{RUBRIC: Si ix Lectio alicújus Offícii commemoráti dicénda non sit, tunc ex viii Lectióne fiunt duæ, quarum prior desínit ad signum ¶.}
+
+#### Lectio viii
+
+ET dignum plane conféssio Petri prǽmium consecúta est, quia Dei Fílium in hómine vidísset. Beátus hic est, qui ultra humánum óculos intendísse et vidísse laudátus est: non id quod ex carne et sánguine erat cóntuens, sed Dei Fílium cæléstis Patris revelatióne conspíciens; dignúsque judicátus, qui quod in Christo Dei esset, primus agnósceret. ¶ O in nuncupatióne novi nóminis felix Ecclésiæ fundaméntum, dignáque ædificatióne illíus petra, quæ inférnas leges, et tártari portas, et ómnia mortis claustra dissólveret! O beátus cæli jánitor, cujus arbítrio claves ætérni áditus tradúntur, cujus terréstre judícium præjudicáta auctóritas sit in cælo; ut quæ in terris aut ligáta sint aut solúta, statúti ejúsdem conditiónem obtíneant et in cælo.
+
+℟. Elégit te Dóminus sacerdótem sibi, ad sacrificándum ei \* Hóstiam laudis. ℣. Immola Deo sacrifícium laudis, et redde Altíssimo vota tua. — Hóstiam laudis. Glória Patri. Hóstiam laudis.
+
+{RUBRIC: Pro S. Prisca Virg. et Mart.}
+
+#### Lectio ix
+
+PRISCA, nóbilis virgo Romána, trédecim annos nata, Cláudio imperatóre, christiánæ fídei accusáta, ejúsdem jussu ducta ad Appóllinis templum, ut idólis immoláret, cum rem detestarétur, cólaphis cæsa, in cárcerem tráditur: atque inde emíssa, cum in fídei constántia perseveráret, afflícta verbéribus, ferventíque ádipe delibúta, rursus in cárcerem inclúditur. Post tríduum in amphitheátrum prodúcta, leóni objícitur; qui suæ feritátis oblítus, humíliter se ad ejus pedes abjécit. Quæ póstea in ergástulo tríduum inédia afflícta, in equúleo suspénditur, et úngulis férreis excarnificáta in rogum injícitur, unde étiam mirabíliter evásit incólumis. Dénique extra Urbem cápite abscísso, virginitátis palmam mar-

@@ -25021,3 +25021,35 @@ Te Deum.
 {RUBRIC: Duplex majus}
 
 {RUBRIC: In I Vésperis ómnia dicúntur sicut in I Vésperis Epiphaníæ, [REF: p. 492] excépta Oratióne, quæ dícitur ut sequitur:}
+
+#### Oratio
+
+DEUS, cujus Unigénitus in substántia nostræ carnis appáruit: præsta, quǽsumus; ut per eum, quem símilem nobis foris agnóvimus, intus reformári mereámur: Qui tecum vivit.
+
+### Ad Matutinum
+
+{RUBRIC: Invitatorium, Hymnus et Psalmi ut infra Octávam: cétera dicúntur sicut in die Epiphaníæ [REF: p. 493], prǽter Lectiónes.}
+
+{RUBRIC: In I Nocturno dicúntur Lectiónes de Epístola I ad Corínthios, quæ occúrrunt secúndum superiórem Rubricam. [REF: p. 511]}
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Gregórii Nazianzéni}
+
+{RUBRIC: Oratio in sancta Lumina}
+
+#### Lectio iv
+
+NON possum cohibére lætítiæ voluptátem, sed mente extóllor, et afficior: et própriæ pusillitátis oblítus, offícium magni Joánnis, immo pótius famulátum subíre conténdo, ac géstio: et licet non sim præcúrsor, de erémo tamen vénio. Christus ergo illuminátur, immo pótius fulgóre suo nos illúminat: Christus baptizátur, simul et nos descendámus, ut cum ipso páriter ascendámus.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+JOÁNNES baptízat, et accédit Jesus, sanctíficans quidem et ipsum, qui baptízat, præcípue tamen ut et véterem Adam sepéliat in aquis, et ante ómnia, ut per hæc sanctificéntur aquæ Jordánis: ut sicut erat spíritus et caro, ita et his, qui baptizándi erant, in spíritu et aqua sanctificatiónis succéssio traderétur. Non súscipit Baptísta, conténdit Jesus. Ego, inquit, opus hábeo a te baptizári. Lucérna dicit ad Solem, et vox lóquitur ad Verbum.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja.
+
+#### Lectio vi
+
+ASCÉNDIT Jesus de aqua, secum quodámmodo demérsum edúcens et élevans mundum: et vidit non dívidi cælum, sed ape-

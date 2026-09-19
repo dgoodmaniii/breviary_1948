@@ -25152,3 +25152,36 @@ ET ego, cum veníssem ad vos, fratres, veni non in sublimitáte sermónis aut sa
 #### Lectio ii
 
 SAPIÉNTIAM autem lóquimur inter perféctos: sapiéntiam vero non hujus sǽculi, neque prín-
+cipum hujus sǽculi, qui destruúntur: sed lóquimur Dei sapiéntiam in mystério, quæ abscóndita est, quam prædestinávit Deus ante sǽcula in glóriam nostram, quam nemo príncipum hujus sǽculi cognóvit: si enim cognovíssent, numquam Dóminum glóriæ crucifixíssent. Sed sicut scriptum est: Quod óculus non vidit, nec auris audívit, nec in cor hóminis ascéndit, quæ præparávit Deus iis, qui díligunt illum.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Deus, qui sedes super thronum, et júdicas æquitátem, esto refúgium páuperum in tribulatióne: \* Quia tu solus labórem et dolórem consíderas. ℣. Tibi enim derelíctus est pauper, pupíllo tu eris adjútor. — Quia.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Quia.}
+
+#### Lectio iii
+
+NOBIS autem revelávit Deus per Spíritum suum: Spíritus enim ómnia scrutátur, étiam profúnda Dei. Quis enim hóminum scit quæ sunt hóminis, nisi spíritus hóminis, qui in ipso est? ita et quæ Dei sunt, nemo cognóvit, nisi Spíritus Dei. Nos autem non spíritum hujus mundi accépimus, sed Spíritum, qui ex Deo est, ut sciámus quæ a Deo donáta sunt nobis: quæ et lóquimur non in doctis humánæ sapiéntiæ verbis, sed in doctrína Spíritus, spirituálibus spirituália comparántes.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. A dextris est mihi Dóminus, ne commóvear: \* Propter hoc dilatátum est cor meum, et exsultávit lingua mea. ℣. Dóminus pars hereditátis meæ, et cálicis mei. — Propter. Glória Patri. Propter.
+
+### Feria Tertia
+
+{RUBRIC: De Epístola prima ad Corínthios}
+
+#### Lectio i
+
+*Cap. 5, 1-11*
+
+OMNINO audítur inter vos fornicátio, et talis fornicátio, qualis nec inter

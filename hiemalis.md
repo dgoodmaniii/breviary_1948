@@ -33376,3 +33376,58 @@ INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ acti
 ##### In I Vesperis
 
 {RUBRIC: Ant. 1} O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est: et procédens homo sine sémine, largítus est nobis suam Deitátem.
+
+{RUBRIC: 2} Quando natus es \* ineffabíliter ex Vírgine, tunc implétæ sunt Scriptúræ: sicut plúvia in vellus descendísti, ut salvum fáceres genus humánum: te laudámus, Deus noster.
+
+{RUBRIC: 3} Rubum, quem víderat \* Móyses incombústum, conservátam agnóvimus tuam laudábilem virginitátem: Dei Génitrix, intercéde pro nobis.
+
+{RUBRIC: 4} Germinávit radix Jesse, \* orta est stella ex Jacob, Virgo péperit Salvatórem: te laudámus, Deus noster.
+
+{RUBRIC: 5} Ecce María génuit \* nobis Salvatórem, quem Joánnes videns exclamávit, dicens: Ecce Agnus Dei, ecce qui tollit peccáta mundi, allelúja.
+
+{RUBRIC: Capitulum} *Malach. 3, 1*
+
+ECCE ego mitto Angelum meum, et præparábit viam ante fáciem meam. Et statim véniet ad templum sanctum suum Dominátor, quem vos quǽritis, et Angelus Testaménti, quem vos vultis.
+
+{RUBRIC: Prima stropha sequéntis Hymni dícitur flexis génibus.}
+
+#### Hymnus
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus. Amen.
+
+℣. Respónsum accépit Símeon a Spíritu Sancto. ℟. Non visúrum se mortem, nisi vidéret Christum Dómini.
+
+**Ad Magnif. Ant.** Senex \* Púerum portábat, Puer autem senem regébat: quem virgo péperit, et post partum virgo mánsit: ipsum quem génuit, adorávit.

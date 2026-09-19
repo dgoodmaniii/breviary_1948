@@ -12404,3 +12404,55 @@ Et super sanctos suos: \* et in eos, qui convertúntur ad cor.
 Verúmtamen prope timéntibus eum salutáre ipsíus: \* ut inhábitet glória in terra nostra.
 
 Misericórdia, et véritas obviavérunt sibi: \* justítia, et pax osculátæ sunt.
+
+Véritas de terra orta est: \* et justítia de cælo prospéxit.
+
+Etenim Dóminus dabit benignitátem: \* et terra nostra dabit fructum suum.
+
+Justítia ante eum ambulábit: \* et ponet in via gressus suos.
+
+**Ant.** Benedixísti, Dómine, terram tuam: remisísti iniquitátem plebis tuæ.
+
+**Ant.** In Dómino justificábitur, \* et laudábitur omne semen Israël.
+
+#### Canticum Isaiæ
+
+*Is. 45, 15-16*
+
+VERE tu es Deus abscónditus, \* Deus Israël, Salvátor.
+
+Confúsi sunt, et erubuérunt omnes: \* simul abiérunt in confusiónem fabricatóres errórum.
+
+Israël salvátus est in Dómino salúte ætérna: \* non confundémini, et non erubescétis usque in séculum séculi.
+
+Quia hæc dicit Dóminus creans cælos, \* ipse Deus formans terram, et fáciens eam, ipse plastes ejus:
+
+Non in vanum creávit eam, ut habitarétur formávit eam: \* Ego Dóminus, et non est álius.
+
+Non in abscóndito locútus sum, \* in loco terræ tenebróso:
+
+Non dixi sémini Jacob frustra: \* Quærite me:
+
+Ego Dóminus loquens justítiam, \* annúntians recta.
+
+Congregámini, et veníte, et accédite simul \* qui salváti estis ex géntibus:
+
+Nesciérunt qui levant lignum sculptúræ suæ, \* et rogant deum non salvántem.
+
+Annuntiáte, et veníte, et consiliámini simul: \* Quis audítum fecit hoc ab inítio, ex tunc prædíxit illud?
+
+Numquid non ego Dóminus, et non est ultra Deus absque me? \* Deus justus, et salvans non est præter me.
+
+Convertímini ad me, et salvi éritis, omnes fines terræ: \* quia ego Deus, et non est álius.
+
+In memetípso jurávi, egrediétur de ore meo justítiæ verbum, \* et non revertétur:
+
+Quia mihi curvábitur omne genu, \* et jurábit omnis lingua.
+
+Ergo in Dómino, dicet, meæ sunt justítiæ et impérium: \* ad eum vénient, et confundéntur omnes qui repúgnant ei.
+
+In Dómino justificábitur, et laudábitur \* omne semen Israël.
+
+**Ant.** In Dómino justificábitur, et laudábitur omne semen Israël.
+
+**Ant.** Lauda, \* † Jerúsalem, Dóminum. ‡

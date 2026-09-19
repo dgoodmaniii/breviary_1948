@@ -17904,3 +17904,28 @@ IN illo témpore: Exsúrgens María ábiit in montána cum festinatióne in civi
 {RUBRIC: Liber 2 in Luc. cap. 1 post init.}
 
 MORÁLE est ómnibus, qui fidem éxigunt, fidem ástruant. Et ídeo Ángelus, cum abscóndita nuntiáret, ut fidem astrúeret exémplo, senióris féminæ sterilísque concéptum Vírgini Maríæ nuntiávit: ut possíbile Deo omne quod ei placúerit, asséreret. Ubi audívit hoc María, non quasi incrédula de oráculo, nec quasi incérta de núntio, nec quasi dúbitans de exémplo, sed quasi læta pro voto, religiósa pro offício, festína pro gáudio, in montána perréxit. Quo enim jam Deo
+plena, nisi ad superióra cum festinatióne conténderet? Nescit tarda molímina Sancti Spíritus grátia.
+
+℟. Emítte Agnum, Dómine, Dominatórem terræ, \* De Petra desérti ad montem fíliæ Sion. ℣. Osténde nobis, Dómine, misericórdiam tuam, et salutáre tuum da nobis. — De.
+
+#### Lectio ii
+
+DÍSCITE et vos, sanctæ mulíeres, sedulitátem, quam prægnántibus debéatis exhibére cognátis. Maríam, quæ ante sola in íntimis penetrálibus versabátur, non a público virginitátis pudor, non ab stúdio aspéritas móntium, non ab offício prolíxitas itíneris retardávit. In montána Virgo cum festinatióne, Virgo offícii memor, injúriæ ímmemor, afféctu urgénte, non sexu, relícta perréxit domo. Díscite, vírgines, non circumcursáre per aliénas ædes, non demorári in platéis, non áliquos in público miscére sermónes. María in domo sera, festína in público, mansit apud cognátam suam tribus ménsibus.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum: \* Aperiátur terra, et gérminet Salvatórem. ℣. Emítte Agnum, Dómi-
+
+ne, Dominatórem terræ, de Petra desérti ad montem fíliæ Sion. — Aperiátur.
+
+#### Lectio iii
+
+DIDICÍSTIS, vírgines, pudórem Maríæ: díscite humilitátem. Venit propínqua ad próximam, júnior ad seniórem: nec solum venit, sed étiam prior salutávit. Decet enim, ut quanto cástior virgo, tanto humílior sit. Nóverit deférre senióribus. Sit magístra humilitátis, in qua est professio castitátis. Est et causa pietátis, est étiam norma doctrínæ. Contuéndum est enim, quia supérior venit ad inferiórem, ut inférior adjuvétur: María ad Elísabeth, Christus ad Joánnem.
+
+℟. Germinavérunt campi erémi germen odóris Israël: quia ecce Deus noster cum virtúte véniet, \* Et splendor ejus cum eo. ℣. Ex Sion spécies decóris ejus: Deus noster manifésté véniet. — Et. Glória Patri. Et.
+
+℣. Vox clamántis.
+
+**Ad Bened. Ant.** Ex quo facta est \* vox salutatiónis tuæ in áuribus meis, exsultávit in gáudio infans in útero meo, allelúja.
+
+{RUBRIC: Nisi (die 21 Dec.) dicénda sit}
+
+**Ant.** Nolíte timére: \* quinta enim die véniet ad vos Dóminus noster.

@@ -25517,3 +25517,29 @@ QUAPRÓPTER si et vos quoque lectióni diligénter atténdere voluéritis, nihil
 *Cap. 2, 1-11*
 
 IN illo témpore: Núptiæ factæ sunt in Cana Galilǽæ, et erat Mater Jesu ibi. Vocátus est autem et Jesus, et discípuli ejus ad núptias. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 9 in Joann., post init.}
+
+QUOD Dóminus invitátus venit ad núptias, étiam excépta mýstica significatióne, confirmáre vóluit, quod ipse fecit núptias. Futúri enim erant, de quibus dixit Apóstolus, prohibéntes núbere, et dicéntes quod malum essent núptiæ, et quod diábolus eas fecísset: cum idem Dóminus dicat in Evangélio interrogátus, utrum líceat hómini dimíttere uxórem suam ex quálibet causa, non licére, excépta causa fornicatiónis. In qua responsióne, si meminístis, hoc ait: Quod Deus conjúnxit, homo non séparet.
+
+℟. Ad te, Dómine, levávi ánimam meam: \* Deus meus, in te confído, non erubéscam. ℣. Custódi ánimam meam, et éripe me. — Deus.
+
+#### Lectio viii
+
+ET qui bene erudíti sunt in fide cathólica novérunt, quod Deus fécerit núptias: et sicut conjúnctio a Deo, ita divórtium a diábolo sit. Sed proptérea in causa fornicatiónis licet uxórem dimíttere: quia ipsa esse uxor prior nóluit, quæ fidem conjugálem marito non serváverit. Nec illæ, quæ virginitátem Deo vovent, quamquam ampliórem gradum honóris et sanctitátis in Ecclésia téneant, sine núptiis sunt: nam et ipsæ pértinent ad núptias cum tota Ecclésia, in quibus núptiis sponsus est Christus.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum et Spíritus Sanctus: et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+#### Lectio ix
+
+AC per hoc ergo Dóminus invitátus venit ad núptias, ut conjugális cástitas firmarétur, et ostenderétur sacraméntum nuptiárum: quia et illárum nuptiárum sponsus persónam Dómini figurábat, cui dictum est: Servásti vinum bonum usque adhuc. Bonum enim vinum Christus servávit usque adhuc, id est, Evangélium suum.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: Hymnus Ætérne rerum [REF: p. 47], étiam in réliquis Domínicis post Epiphaníam.}
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit

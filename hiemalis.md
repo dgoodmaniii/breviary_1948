@@ -29625,3 +29625,54 @@ Adoráte eum, omnes Ángeli ejus: \* audívit, et lætáta est Sion.
 Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
 
 Quóniam tu Dóminus Altíssimus super omnem ter-
+ram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Lætámini, omnes, in Dómino: et confitémini memóriæ sanctitátis ejus.
+
+**Ant.** Notum fecit \* Dóminus opus suum: in conspéctu géntium revelávit glóriam Genitrícis suæ.
+
+###### Psalmus 97
+
+CANTÁTE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Notum fecit Dóminus opus suum: in conspéctu géntium revelávit glóriam Genitrícis suæ.
+
+℣. Exaltábo te, Dómine, quóniam suscepísti me. ℟. Nec delectásti inimícos meos super me.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 1, 26-28*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Gérmani Epíscopi}
+
+{RUBRIC: In Præsentatione Deíparæ}
+
+AVE, María, grátia plena, Sanctis sánctior, et cælis excélsior, et Chérubim glo-

@@ -22747,3 +22747,18 @@ SI quis autem Spíritum Christi non habet: hic non est ejus. Si autem Christus i
 #### Lectio iv
 
 DÓMINUS noster Jesus Christus, fratres caríssimi, qui in ætérnum est cunctórum Creátor, hódie de matre
+nascéndo factus est nobis Salvátor. Natus est nobis hódie in témpore per voluntátem, ut nos perdúcat ad Patris æternitátem. Factus est Deus homo, ut homo fíeret Deus: ut panem Angelórum manducáret homo, Dóminus Angelórum hódie factus est homo.
+
+℟. Congratulámini mihi, omnes qui dilígitis Dóminum: \* Quia cum essem párvula, plácui Altíssimo, et de meis viscéribus génui Deum et hóminem. ℣. Beátam me dicent omnes generatiónes, quia ancíllam húmilem respéxit Deus. — Quia.
+
+#### Lectio v
+
+HÓDIE impléta est prophétia illa, quæ dicit: Roráte, cæli, désuper, et nubes pluant justum: aperiátur terra, et gérminet Salvatórem. Factus est ígitur qui fécerat, ut invenirétur qui períerat. Sic enim in Psalmis homo confitétur: Priúsquam humiliárer, ego peccávi. Peccávit homo, et factus est reus: natus est homo Deus, ut liberarétur reus. Homo ígitur cécidit, sed Deus descéndit. Cécidit homo miserabíliter, descéndit Deus misericórditer; cécidit homo per supérbiam, descéndit Deus cum grátia.
+
+℟. Confirmátum est cor Vírginis, in quo divína mystéria, Angelo nuntiánte, concépit: tunc speciósum forma præ fíliis hóminum castis suscépit viscéribus: \* Et benedícta in ætérnum, Deum nobis prótulit et hóminem. ℣. Domus pudíci péctoris templum repénte fit Dei: intácta nésciens virum, verbo concépit Fílium. — Et benedícta.
+
+#### Lectio vi
+
+O MIRÁCULA, o prodígia, fratres mei! Natúræ jura mutántur in hómine; Deus náscitur, virgo sine viro gravidátur, viri nésciam sermo Dei marítat: simul facta est mater et virgo; mater facta, sed incorrúpta; virgo habens fílium, nésciens virum; semper clausa, sed non infœcúnda. Solus enim sine peccáto est natus, quem sine viríli compléxu non concupiscéntia carnis, sed obediéntia génuit mentis.
+
+℟. Benedícta et venerábilis es, Virgo María, quæ sine tactu pudóris invénta es Mater Salvatóris: \* Jacébat in præsépio, et fulgébat in cælo. ℣. Dómine, audívi audítum tuum, et tímui: considerávi ópera tua, et expávi: in médio duórum animálium. — Ja-

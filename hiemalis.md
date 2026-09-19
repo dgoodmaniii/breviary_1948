@@ -7660,3 +7660,77 @@ Pater, Ave et Credo.
 ##### In Vig. Nativitatis Domini:
 
 **Invit.** Hódie sciétis, quia véniet Dóminus: \* Et mane vidébitis glóriam ejus.
+
+#### Hymnus
+
+VERBUM supérnum, pródiens
+E Patris ætérni sinu,
+Qui natus orbi súbvenis,
+Labénte cursu témporis:
+
+Illúmina nunc péctora,
+Tuóque amóre cóncrema;
+Ut cor cadúca déserens
+Cæli volúptas ímpleat.
+
+Ut, cum tribúnal Júdicis
+Damnábit igni nóxios,
+Et vox amíca débitum
+Vocábit ad cælum pios;
+
+Non esca flammárum nigros
+Volvámur inter túrbines,
+Vultu Dei sed cómpotes
+Cæli fruámur gáudiis.
+
+Patri simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Séclum per omne glória.
+Amen.
+
+#### Per Annum
+
+**Invitat.** Deum magnum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte.
+
+#### Hymnus
+
+RERUM Creátor óptime,
+Rectórque noster, áspice:
+Nos a quiéte nóxia
+Mersos sopóre líbera.
+
+Te, sancte Christe, póscimus,
+Ignósce culpis ómnibus:
+Ad confiténdum súrgimus,
+Morásque noctis rúmpimus.
+
+Mentes manúsque tóllimus,
+Prophéta sicut nóctibus
+Nobis geréndum præcipit,
+Paulúsque gestis cénsuit.
+
+Vides malum, quod fécimus:
+Occúlta nostra pándimus:
+Preces geméntes fúndimus,
+Dimítte quod peccávimus.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: ¶ In Feria IV Cinerum et in sequéntibus Fériis usque ad Nonam Sábbati ante Domínicam I Quadragésimæ inclusíve, ad Matutínum et ad álias Horas, ómnia dicúntur ut per Annum; excéptis Antiphónis cum Psalmis et Cántico Laudum, e posteriori schémate suméndis, et Antiphóna ad Benedíctus et Magníficat, in Próprio de Témpore exstántibus.}
+
+#### In I Nocturno
+
+**Ant.** Speciósus forma \* præ fíliis hóminum, diffúsa est grátia in lábiis tuis.
+
+### Psalmus 44, i
+
+ERUCTAVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est

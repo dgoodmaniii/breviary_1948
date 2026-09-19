@@ -27745,3 +27745,18 @@ DESCÉNDIT autem Dóminus ut vidéret civitátem et turrim, quam ædificábant f
 *Cap. 11, 10-30*
 
 HÆ sunt generatiónes Sem: Sem erat centum annórum, quando génuit Arpháxad, biénnio post dilúvium. Vixítque Sem, postquam génuit Ar-
+pháxad, quingéntis annis: et génuit fílios et fílias. Porro Arpháxad vixit trigínta quinque annis, et génuit Sale. Vixítque Arpháxad, postquam génuit Sale, trecéntis tribus annis: et génuit fílios et fílias. Sale quoque vixit trigínta annis, et génuit Heber. Vixítque Sale, postquam génuit Heber, quadringéntis tribus annis: et génuit fílios et fílias.
+
+℟. Benedíxit Deus Noë, et fíliis ejus, et dixit ad eos: \* Créscite, et multiplicámini, et repléte terram. ℣. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos. — Créscite.
+
+#### Lectio ii
+
+VIXIT autem Heber trigínta quátuor annis, et génuit Phaleg. Et vixit Heber, postquam génuit Phaleg, quadringéntis trigínta annis: et génuit fílios et fílias. Vixit quoque Phaleg trigínta annis, et génuit Reu. Vixítque Phaleg, postquam génuit Reu, ducéntis novem annis: et génuit fílios et fílias. Vixit autem Reu trigínta duóbus annis, et génuit Sarug. Vixit quoque Reu, postquam génuit Sarug, ducéntis septem annis: et génuit fílios et fílias. Vixit vero Sarug trigínta annis, et génuit Nachor. Vixítque Sarug, postquam génuit Nachor, ducéntis annis: et génuit fílios et fílias.
+
+℟. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos: \* Neque erit deínceps dilúvium díssipans terram. ℣. Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. — Neque.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Neque.}
+
+#### Lectio iii
+
+VIXIT autem Nachor vigínti novem annis, et génuit Thare. Vixítque Nachor, postquam génuit Thare, centum decem et novem annis: et génuit fílios et fílias. Vixítque Thare septuagínta annis, et génuit Abram, et Nachor, et Aran. Hæ sunt autem generatiónes Thare: Thare génuit Abram, Nachor, et Aran. Porro Aran génuit Lot. Mortuúsque est Aran ante Thare patrem suum, in terra nativitátis suæ in Ur Chaldæórum. Duxérunt autem Abram et Nachor uxóres: nomen uxóris Abram, Sárai: et nomen uxóris Nachor, Melcha, fília Aran patris Melchæ et patris Jeschæ. Erat autem Sárai

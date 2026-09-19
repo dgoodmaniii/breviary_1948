@@ -9346,3 +9346,43 @@ Deus locútus est in sancto suo: \* Lætábor, et partíbor Síchimam: et convá
 Meus est Gálaad, et meus est Manásses: \* et Ephraïm fortitúdo cápitis mei.
 
 Juda rex meus: \* Moab olla spei meæ.
+
+In Idumǽam exténdam calceaméntum meum: \* mihi aliénigenæ súbditi sunt.
+
+Quis dedúcet me in civitátem munítam? \* quis dedúcet me usque in Idumǽam?
+
+Nonne tu, Deus, qui repulísti nos, \* et non egrediéris, Deus, in virtútibus nostris?
+
+Da nobis auxílium de tribulatióne: \* quia vana salus hóminis.
+
+In Deo faciémus virtútem: \* et ipse ad níhilum dedúcet tribulántes nos.
+
+**Per Annum: Ant.** Deus meus, misericórdia tua prævéniet me.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria IV post Dominicam I:} **Ant.** Ecce, véniet Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Annuntiáte pópulis, et dícite: Ecce, Deus Salvátor noster véniet.
+
+**Capitulum** *Is. 14, 1*
+
+PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur: miserébitur enim Dóminus Jacob, et Israël salvábitur.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super te. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super te. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+#### Per Annum
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.

@@ -20097,7 +20097,7 @@ Qui nomen Israël regat
 Teneátque David régiam.
 
 Exclámat amens núntio:
-Successor instat, péllimur:
+Succéssor instat, péllimur:
 Satélles, i, ferrum rape,
 Perfúnde cunas sánguine.
 
@@ -20106,10 +20106,11 @@ Quid crimen Heródem juvat?
 Unus tot inter fúnera
 Impúne Christus tóllitur.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ### In I Nocturno
 
@@ -22459,3 +22460,57 @@ ECCLÉSIAM tuam, Dómine, benígnus illústra: ut, beáti Joánnis Apóstoli tui
 *Eccli. 15, 3*
 
 CIBÁVIT illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potá-
+vit illum Dóminus Deus noster.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. Glória Patri. Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Eccli. 15, 5*
+
+IN médio Ecclésiæ apéruit os ejus, et implévit illum Dóminus spíritu sapiéntiæ et intelléctus, et stolam glóriæ índuit eum.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+## Die 4 Januarii
+
+# In Octava Ss. Innocentium Mm.
+
+{RUBRIC: Simplex}
+
+{RUBRIC: ¶ Antiphonæ et Psalmi ad omnes Horas et Versus únici Noctúrni dicúntur de Féria occurrénti, ut in Psaltério; réliqua ut infra.}
+
+### In I Vesperis
+
+{RUBRIC: Capit. et Hymnus ut ad Laudes.}
+
+℣. Heródes irátus occídit multos púeros. ℟. In Béthlehem Judæ civitáte David.
+
+**Ad Magnif. Ant.** Hi sunt, \* qui cum muliéribus non sunt coinquináti: vírgines enim sunt, et sequúntur Agnum quocúmque íerit.
+
+#### Oratio
+
+DEUS, cujus hodiérna die præcónium Innocéntes Mártyres non loquéndo, sed moriéndo conféssi sunt: ómnia in nobis vitiórum mala mortífica; ut fidem tuam, quam lingua nostra lóquitur, étiam móribus vita fateátur. Per Dóminum.
+
+### Ad Matutinum
+
+**Invitat.** Regem Mártyrum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+#### Hymnus
+
+AUDIT tyránnus ánxius
+Adésse regum Príncipem,
+Qui nomen Israël regat
+Teneátque David régiam.
+
+Exclámat amens núntio:
+Succéssor instat, péllimur:
+Satélles, i, ferrum rape,
+Perfúnde cunas sánguine.
+
+Quid próficit tantum nefas?
+Quid crimen Heródem juvat?

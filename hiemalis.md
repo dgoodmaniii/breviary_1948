@@ -30450,3 +30450,16 @@ QUAPRÓPTER enarrántes verba, quibus Deus præparáta renovándis mortálibus s
 *Cap. 1, 26-28*
 
 IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+
+{RUBRIC: Homilía sancti Sophrónii Epíscopi}
+
+{RUBRIC: Homilía in Deíparæ Annunt.}
+
+VERE benedícta tu in muliéribus, quóniam Hevæ maledictiónem in benedictiónem commutásti; quóniam Adam, qui prius jacébat exsecratióne percúlsus, ut per te benedicerétur effecísti. Vere benedícta tu in muliéribus, quóniam benedíctio Patris per te affúlsit homínibus, eósque a véteri maledícto liberávit. Vere benedícta tu in muliéribus, quia per te progenitóres tui salútem invéniunt; tu síquidem genitúra es Servatórem, qui divínam ipsis salútem comparábit. Vere benedícta tu in muliéribus, quóniam sine sémine eum protulísti fructum, qui benedictiónem terrárum orbi elargítur, ipsúmque a maledictióne spinas germinánti rédimit. Vere benedícta tu in muliéribus, quia múlier naturáli conditióne cum sis, Dei tamen Génitrix reípsa fies. Etenim si, qui ex te nascitúrus est, secúndum veritátem Deus est incarnátus, ipsa jure meritóque díceris Deípara, quippe quæ Deum veríssime paris.
+
+℟. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons signátus: \* Emissiónes tuæ paradísus, o María. ℣. Aperi mihi, soror mea, amíca mea, colúmba mea, immaculáta mea. — Emissiónes.
+
+#### Lectio viii
+
+NE tímeas, María, invenísti enim apud Deum grátiam períre nésciam; invenísti apud Deum grátiam præ quálibet exímiam; invenísti apud Deum grátiam ómnibus votis expeténdam; invenísti apud Deum grátiam ómnium gratiárum splendidíssimam; invenísti apud Deum grátiam numquam elanguéntem; invenísti apud Deum grátiam, quæ te salvam prǽstet; invenísti apud Deum grátiam, quæ nullo ímpetu quatiátur; invenísti apud Deum grátiam plane invíctam; invenísti apud Deum grátiam perénniter duratúram. Et álii quidem, iíque plures, ante te exímia sanctitáte floruérunt. Sed némini, quemádmodum tibi, plena grátia impertíta est: nemo sicut tu, ad tantum magnificéntiæ est evéctus; nemo sicut tu, purificánte grátia præoccupátus est; nemo sicut tu, cælésti lúmine refúlsit; nemo sicut tu, præ omni celsitúdine exaltátus est.

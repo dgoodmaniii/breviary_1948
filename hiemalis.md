@@ -23252,3 +23252,20 @@ Fac mecum signum in bonum, ut vídeant qui odérunt me, et confundántur: \* qu�
 GAUDÉTE in Dómino, dilectíssimi, íterum dico, gaudéte: quóniam brevi intervállo témporis, post solemnitátem Nativitátis Christi, festívitas declaratiónis ejus illúxit: et quem in illo die Virgo péperit, in hoc mundus agnóvit. Verbum enim caro factum, sic susceptiónis nostræ temperávit exórdia, ut natus Jesus et credéntibus maniféstus, et persequéntibus esset occúltus. Jam tunc ergo cæli enarravérunt glóriam Dei, et in omnem terram sonus veritátis exívit, quando et pastóribus exércitus Angelórum Salvatóris éditi annuntiátor appáruit, et Magos ad eum adorándum prǽvia stella perdúxit; ut a solis ortu usque ad occásum veri Regis generátio coruscáret, cum rerum fidem et regna Oriéntis per Magos díscerent, et Románum impérium non latéret.
 
 ℟. Illumináre, illumináre, Jerúsalem, quia venit lux
+tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+NAM et sævítia Heródis, volens primórdia suspécti sibi Regis exstínguere, huic dispensatióni nésciens serviébat; ut dum atróci inténtus facínori, ignótum sibi púerum indiscréta infántium cæde perséquitur, annuntiátum cǽlitus dominatóris ortum insígnior ubíque fama loquerétur: quam promptiórem ad narrándum, diligentiorémque faciébat et supérnæ significatiónis nóvitas, et cruentíssimi persecutóris impíetas. Tunc autem étiam Ægýpto Salvátor illátus est, ut gens antíquis erróribus dédita, jam ad vicínam salútem per occúltam grátiam signarétur; et quæ nondum ejécerat ab ánimo superstitiónem, jam hospítio recíperet veritátem.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja.
+
+#### Lectio vi
+
+AGNOSCÁMUS ergo, dilectíssimi, in Magis adoratóribus Christi, vocatiónis nostræ fideíque primítias; et exsultántibus ánimis beátæ spei inítia celebrémus. Exínde enim in ætérnam hereditátem cœpimus introíre: exínde nobis Christum loquéntia Scripturárum arcána patuérunt; et véritas, quam Judæórum obcæcátio non récipit, ómnibus natiónibus lumen suum invéxit. Honorétur ítaque a nobis sacratíssimus dies, in quo salútis nostræ Auctor appáruit: et quem Magi infántem veneráti sunt in cunábulis, nos omnipoténtem adorémus in cælis. Ac sicut illi de thesáuris suis mýsticas Dómino múnerum spécies obtulérunt, ita et nos de córdibus nostris, quæ Deo sunt digna, promámus.
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+**Ant.** Veníte, adorémus eum: quia ipse est Dóminus Deus noster.

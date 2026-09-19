@@ -18929,3 +18929,53 @@ Reges Tharsis, et ínsulæ múnera ófferent: \* reges Árabum et Saba dona add�
 Et adorábunt eum omnes reges terræ: \* omnes gentes sérvient ei:
 
 Quia liberábit páuperem a poténte: \* et páuperem, cui non erat adjútor.
+
+Parcet páuperi et ínopi: \* et ánimas páuperum salvas fáciet.
+
+Ex usúris et iniquitáte rédimet ánimas eórum: \* et honorábile nomen eórum coram illo.
+
+Et vivet, et dábitur ei de auro Arábiæ, et adorábunt de ipso semper: \* tota die benedícent ei.
+
+Et erit firmaméntum in terra in summis móntium, superextollétur super Líbanum fructus ejus: \* et florébunt de civitáte sicut fœnum terræ.
+
+Sit nomen ejus benedíctum in sécula: \* ante solem pérmanet nomen ejus.
+
+Et benedicéntur in ipso omnes tribus terræ: \* omnes gentes magnificábunt eum.
+
+Benedíctus Dóminus, Deus Israël, \* qui facit mirabília solus:
+
+Et benedíctum nomen majestátis ejus in ætérnum: \* et replébitur majestáte ejus omnis terra: fiat, fiat.
+
+**Ant.** Oriétur in diébus Dómini abundántia pacis, et dominábitur.
+
+**Ant.** Véritas de terra \* orta est, et justítia de cælo prospéxit.
+
+#### Psalmus 84
+
+BENEDIXÍSTI, Dómine, terram tuam: \* avertísti captivitátem Jacob.
+
+Remisísti iniquitátem plebis tuæ: \* operuísti ómnia peccáta eórum.
+
+Mitigásti omnem iram tuam: \* avertísti ab ira indignatiónis tuæ.
+
+Convérte nos, Deus, salutáris noster: \* et avérte iram tuam a nobis.
+
+Numquid in ætérnum irascéris nobis? \* aut exténdes iram tuam a generatióne in generatiónem?
+
+Deus, tu convérsus vivificábis nos: \* et plebs tua lætábitur in te.
+
+Osténde nobis, Dómine, misericórdiam tuam: \* et salutáre tuum da nobis.
+
+Audiam quid loquátur in me Dóminus Deus: \* quóniam loquétur pacem in plebem suam.
+
+Et super sanctos suos: \* et in eos, qui convertúntur ad cor.
+
+Verúmtamen prope timéntes eum salutáre ipsíus: \* ut inhábitet glória in terra nostra.
+
+Misericórdia, et véritas obviavérunt sibi: \* justítia, et pax osculátæ sunt.
+
+Véritas de terra orta est: \* et justítia de cælo prospéxit.
+
+Etenim Dóminus dabit benignitátem: \* et terra nostra dabit fructum suum.
+
+Justítia ante eum ambulábit: \* et ponet in via gressus suos.

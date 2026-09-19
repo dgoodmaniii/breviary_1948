@@ -24769,3 +24769,27 @@ INFÍRMUM autem in fide assúmite, non in disceptatiónibus cogitatiónum. Áliu
 NAM álius júdicat diem inter diem: álius autem júdicat omnem diem: unusquísque in suo sensu abúndet. Qui sapit diem, Dómino sapit: Et qui mandúcat, Dómino mandúcat: grátias enim agit Deo. Et qui non mandúcat, Dómino non mandúcat, et grátias agit Deo. Nemo enim nostrum sibi vivit, et nemo sibi móritur. Sive enim vívimus, Dómino vívimus: sive mórimur, Dómino mórimur. Sive ergo vívimus, sive mórimur, Dómini sumus.
 
 ℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+#### Lectio iii
+
+IN hoc enim Christus mórtuus est, et resurréxit: ut et mortuórum et vivórum dominétur. Tu autem quid júdicas fratrem tuum? aut tu quare spernis fratrem tuum? Omnes enim stábimus ante tribúnal Christi. Scriptum est enim: Vivo ego, dicit Dóminus, quóniam mihi flectétur omne genu: et omnis lingua confitébitur Deo. Itaque unusquísque nostrum pro se ratiónem reddet Deo. Non ergo ámplius ínvicem judicémus.
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Máximi Epíscopi}
+
+{RUBRIC: Homilia 1 de Epiphania}
+
+#### Lectio iv
+
+IN hac, dilectíssimi, celebritáte, sicut relátu patérnæ traditiónis instrúimur, multíplici nobis est festivitáte lætándum. Ferunt enim, hódie Christum Dóminum nostrum vel stella duce a géntibus adorátum; vel invitátum ad núptias, aquas in vina vertísse; vel suscépto a Joánne baptísmate, consecrásse fluénta Jordánis, suúmque simul purificásse Baptístam.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+SED quid potíssimum præsénti hoc factum sit die, nóverit ipse qui fecit: nos tamen crédere, nec dubitáre debémus, quidquid illud est, factum esse pro nobis. Nam quod eum fulgentióris stellæ rádiis incitáti adoravére Chaldǽi, Deum verum géntibus spes data est adorándi. Quod aquæ novo sunt órdine in vina mutátæ, novi nobis póculi prælibátum est sacraméntum. Quod autem baptizátus est Agnus Dei, regenerántis baptísmi salutáre nobis munus est dedicátum.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja, allelúja, allelúja.

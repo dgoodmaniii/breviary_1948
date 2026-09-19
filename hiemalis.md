@@ -17405,3 +17405,20 @@ IN illo témpore: Misérunt Judǽi ab Jerosólymis sacerdótes et levítas ad Jo
 {RUBRIC: Homilia 7 in Evang.}
 
 EX hujus nobis lectiónis verbis, fratres caríssimi, Joánnis humílitas commendátur: qui cum tantæ virtútis esset, ut Christus credi potuísset, elégit sólide subsístere in se, ne humána opinióne raperétur inániter super se. Nam conféssus est, et non negávit: et conféssus est, Quia non sum ego Christus. Sed qui dixit, Non sum; negávit plane quod non erat, sed non negávit
+quod erat: ut veritátem loquens, ejus membrum fíeret, cujus sibi nomen falláciter non usurpáret. Cum ergo non vult appétere nomen Christi, factus est membrum Christi: quia dum infirmitátem suam stúduit humíliter agnóscere, illíus celsitúdinem méruit veráciter obtinére.
+
+℟. Veni, Dómine, et noli tardáre: reláxa facínora plebi tuæ, \* Et révoca dispérsos in terram suam. ℣. Excita, Dómine, poténtiam tuam, et veni, ut salvos fácias nos. — Et.
+
+#### Lectio viii
+
+SED cum ex lectióne ália, Redemptóris nostri senténtia ad mentem redúcitur, ex hujus lectiónis verbis nobis quæstio valde impléxa generátur. Alio quippe in loco inquisítus a discípulis Dóminus de Elíæ advéntu, respóndit: Elías jam venit, et non cognovérunt eum, sed fecérunt in eum quæcúmque voluérunt: et, si vultis scire, Joánnes ipse est Elías. Requisítus autem Joánnes dicit: Non sum Elías. Quid est hoc, fratres caríssimi, quia quod Véritas affírmat, hoc prophéta veritátis negat? Valde namque inter se divérsa sunt: Ipse est: et, Non
+
+sum. Quómodo ergo prophéta veritátis est, si ejúsdem Veritátis sermónibus concors non est?
+
+℟. Ecce radix Jesse descéndet in salútem populórum, ipsum gentes deprecabúntur: \* Et erit nomen ejus gloriósum. ℣. Dabit ei Dóminus Deus sedem David, patris ejus, et regnábit in domo Jacob in ætérnum. — Et.
+
+#### Lectio ix
+
+SED si subtíliter véritas ipsa requirátur, hoc quod inter se contrárium sonat, quómodo contrárium non sit, invenítur. Ad Zacharíam namque de Joánne Ángelus dicit: Ipse præcédet ante illum in spíritu et virtúte Elíæ. Qui idcírco ventúrus in spíritu et virtúte Elíæ dícitur, quia sicut Elías secúndum Dómini advéntum prævéniet, ita Joánnes prævénit primum. Sicut ille præcúrsor ventúrus est Júdicis, ita iste præcúrsor est factus Redemptóris. Joánnes ígitur in spíritu Elías erat, in persóna Elías non erat. Quod ergo Dóminus fatétur de spíritu, hoc Joánnes dénegat de persóna.
+
+℟. Docébit nos Dóminus vias suas, et ambulábimus in sémitis ejus: \* Quia de Sion exíbit lex, et ver-

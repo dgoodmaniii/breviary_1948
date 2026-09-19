@@ -19288,7 +19288,7 @@ Ad usque terræ límitem,
 Christum canámus Príncipem,
 Natum María Vírgine.
 
-Beátus auctor séculi
+Beátus auctor sæculi
 Servíle corpus índuit:
 Ut carne carnem líberans,
 Ne pérderet quos cóndidit.
@@ -20478,7 +20478,7 @@ Ad usque terræ límitem,
 Christum canámus Príncipem,
 Natum María Vírgine.
 
-Beátus auctor séculi
+Beátus auctor sæculi
 Servíle corpus índuit:
 Ut carne carnem líberans,
 Ne pérderet quos cóndidit.
@@ -21469,7 +21469,7 @@ Ad usque terræ límitem,
 Christum canámus Príncipem,
 Natum María Vírgine.
 
-Beátus auctor séculi
+Beátus auctor sæculi
 Servíle corpus índuit:
 Ut carne carnem líberans,
 Ne pérderet quos cóndidit.
@@ -22793,3 +22793,69 @@ AUDIENS autem quod Archeláus regnáret in Judǽa pro Heróde patre suo, tímuit
 #### Lectio ix
 
 QUÓNIAM Nazarǽus vocábitur. Si fixum de Scriptúris posuísset exémplum, numquam díceret: Quod dictum est per prophétas; sed simplíciter: Quod dictum est per prophétam. Nunc autem plúraliter prophétas vocans, osténdit se non verba de Scriptúris sumpsísse, sed sensum. Nazarǽus sanctus interpretátur; sanctum autem Dóminum futúrum
+omnis Scriptúra commémorat. Te Deum.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ}
+
+**1** O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est; et procédens homo sine sémine, largítus est nobis suam Deitátem.
+
+{RUBRIC: Psalmi de Dominica, I loco, [REF: p. 44]}
+
+**2** Quando natus es \* ineffábiliter ex Vírgine, tunc implétæ sunt Scriptúræ: sicut plúvia in vellus descendísti, ut salvum fáceres genus humánum: te laudámus, Deus noster.
+
+**3** Rubum, quem víderat Móyses \* incombústum, conservátam agnóvimus tuam laudábilem virginitátem: Dei Génitrix, intercéde pro nobis.
+
+**4** Germinávit radix Jesse, \* orta est stella ex Jacob: Virgo péperit Salvatórem: te laudámus, Deus noster.
+
+**5** Ecce María génuit \* nobis Salvatórem, quem Joánnes videns exclamávit, dicens: Ecce Agnus Dei, ecce qui tollit peccáta mundi, allelúja.
+
+#### Capitulum
+
+*Gal. 4, 1-2*
+
+FRATRES: Quanto témpore heres párvulus est, nihil differt a servo, cum sit dóminus ómnium: sed sub tutóribus et actóribus est usque ad præfinítum tempus a patre.
+
+#### Hymnus
+
+A SOLIS ortus cárdine
+Ad usque terræ límitem,
+Christum canámus Príncipem,
+Natum María Vírgine.
+
+Beátus auctor sæculi
+Servíle corpus índuit:
+Ut carne carnem líberans,
+Ne pérderet quos cóndidit.
+
+Castæ Paréntis víscera
+Cæléstis intrat grátia:
+Venter Puéllæ bájulat
+Secréta, quæ non nóverat.
+
+Domus pudíci péctoris
+Templum repénte fit Dei:
+Intácta nésciens virum,
+Concépit alvo Fílium.
+
+Enítitur puérpera,
+Quem Gábriel prædíxerat,
+Quem ventre Matris géstiens,
+Baptísta clausum sénserat.
+
+Fœno jacére pértulit:
+Præsépe non abhórruit:
+Et lacte módico pastus est,
+Per quem nec ales ésurit.
+
+Gaudet chorus cæléstium,
+Et Angeli canunt Deo;
+Palámque fit pastóribus
+Pastor, Creátor ómnium.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.

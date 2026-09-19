@@ -14555,3 +14555,51 @@ Ut fáciant in eis judícium conscríptum: \* glória hæc est ómnibus sanctis 
 **Ant.** Fílii Sion exsúltent in Rege suo.
 
 **Ant.** Quam magnificáta \* sunt ópera tua, Dómine!
+
+#### Psalmus 91
+
+BONUM est confitéri Dómino: \* et psállere nómini tuo, Altíssime.
+
+Ad annuntiándum mane misericórdiam tuam: \* et veritátem tuam per noctem.
+
+In decachórdo, psaltério: \* cum cántico, in cíthara.
+
+Quia delectásti me, Dómine, in factúra tua: \* et in opéribus mánuum tuárum exsultábo.
+
+Quam magnificáta sunt ópera tua, Dómine! \* nimis profúndæ factæ sunt cogitatiónes tuæ.
+
+Vir insípiens non cognóscet: \* et stultus non intélliget hæc.
+
+Cum exórti fúerint peccatóres sicut fœnum: \* et apparúerint omnes, qui operántur iniquitátem:
+
+Ut intéreant in séculum séculi: \* tu autem Altíssimus in ætérnum, Dómine.
+
+Quóniam ecce inimíci tui, Dómine, quóniam ecce inimíci tui períbunt: \* et dispergéntur omnes, qui operántur iniquitátem.
+
+Et exaltábitur sicut unicórnis cornu meum: \* et senéctus mea in misericórdia úberi.
+
+Et despéxit óculus meus inimícos meos: \* et in insurgéntibus in me malignántibus áudiet auris mea.
+
+Justus ut palma florébit: \* sicut cedrus Líbani multiplicábitur.
+
+Plantáti in domo Dómini, \* in átriis domus Dei nostri florébunt.
+
+Adhuc multiplicabúntur in senécta úberi: \* et patiéntes erunt, ut annúntient:
+
+Quóniam rectus Dóminus Deus noster: \* et non est iníquitas in eo.
+
+**Ant.** Quam magnificáta sunt ópera tua, Dómine!
+
+**Ant.** Lætábitur justus \* in Dómino, et sperábit in eo.
+
+#### Psalmus 63
+
+EXÁUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?

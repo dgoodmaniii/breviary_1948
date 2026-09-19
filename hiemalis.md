@@ -30686,4 +30686,44 @@ QUID, fratres caríssimi, quid inter hæc animadvértitis? Numquid casu gestum c
 
 #### Lectio viii
 
-SIC quippe discípulum Dóminus post resurrectiónem suam dubitáre permísit, nec tamen in dubitatióne deséruit; sicut ante nativitátem suam habére Maríam sponsum vóluit, qui tamen ad ejus núptias non pervénit. Nam ita factus est discípulus dúbitans et palpans, testis veræ resurrectiónis, sicut sponsus matris fúerat custos integérrimæ virginitátis. Palpávit autem, et exclamávit: Dóminus meus, et Deus meus. Dicit ei Jesus: Quia vidísti me, credidísti. Cum Paulus Apóstolus dicat, Est au-
+SIC quippe discípulum Dóminus post resurrectiónem suam dubitáre permísit, nec tamen in dubitatióne deséruit; sicut ante nativitátem suam habére Maríam sponsum vóluit, qui tamen ad ejus núptias non pervénit. Nam ita factus est discípulus dúbitans et palpans, testis veræ resurrectiónis, sicut sponsus matris fúerat custos integérrimæ virginitátis. Palpávit autem, et exclamávit: Dóminus meus, et Deus meus. Dicit ei Jesus: Quia vidísti me, credidísti. Cum Paulus Apóstolus dicat, Est au-tem fides sperandárum substántia rerum, arguméntum non apparéntium; profécto liquet quia fides illárum rerum arguméntum est, quæ apparére non possunt. Quæ étenim appárent, jam fidem non habent, sed agnitiónem.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+{RUBRIC: In Quátuor Tempóribus ix Lectio de Homilía Fériæ; álias}
+
+#### Lectio ix
+
+DUM ergo vidit Thomas, dum palpávit, cur ei dícitur: Quia vidísti me, credidísti? Sed áliud vidit, áliud crédidit. A mortáli quippe hómine divínitas vidéri non pótuit. Hóminem ergo vidit, et Deum conféssus est, dicens: Dóminus meus, et Deus meus. Vidéndo ergo crédidit, qui considerándo verum hóminem, hunc Deum, quem vidére non póterat, exclamávit. Lætíficat valde quod séquitur: Beáti qui non vidérunt, et credidérunt: qui eum, quem carne non vídimus, mente retinémus. Nos signáti sumus; sed si fidem nostram opéribus séquimur. Ille étenim vere credit, qui exércet operándo quod credit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+**Ad Bened. Ant.** Quia vidísti me, \* Thoma, credidísti: beáti qui non vidérunt, et credidérunt, allelúja.
+
+#### Oratio
+
+DA nobis, quǽsumus, Dómine, beáti Apóstoli tui Thomæ solemnitátibus gloriári: ut ejus semper et patrocíniis sublevémur; et fidem cóngrua devotióne sectémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: In II Vesperis Ant. ad Magnif. Quia vidísti me, ut ad Laudes.}
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+---
+
+## Festa Januarii
+
+{RUBRIC: post Octávam Epiphaníæ occurréntia}
+
+### Die 14 Januarii
+
+#### S. Hilarii
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex} [69]
+
+{RUBRIC: (m. t. v.), nisi tamen alícubi I Vésperas hábeat.}

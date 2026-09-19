@@ -28145,3 +28145,37 @@ CUM enim cœperint alíquibus tentatiónibus ea ipsa scílicet illis súbtrahi, 
 ### Ad Laudes
 
 **Ad Bened. Ant.** Cum jejunátis, \* nolíte fíeri sicut hypócritæ, tristes.
+
+#### Oratio
+
+PRÆSTA, Dómine, fidélibus tuis: ut jejuniórum veneránda solémnia, et cóngrua pietáte suscípiant, et secúra devotióne percúrrant. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Thesaurizáte vobis \* thesáuros in cælo, ubi nec ærúgo, nec tínea demolítur.
+
+#### Oratio
+
+INCLINÁNTES se, Dómine, majestáti tuæ, propitiátus inténde: ut, qui divíno múnere sunt refécti, cæléstibus semper nutriántur auxíliis. Per Dóminum.
+
+---
+
+## Feria Quinta post Cineres
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 8, 5-13*
+
+IN illo témpore: Cum introísset Jesus Caphárnaum, accéssit ad eum centúrio, rogans eum, et dicens: Dómine, puer meus jacet in domo paralýticus, et male torquétur. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Liber 2 de Consénsu Evang., cap. 20, tom. 4}
+
+VIDEÁMUS, utrum sibi de hoc servo centuriónis Matthǽus Lucásque conséntiant. Matthǽus enim dicit: Accéssit ad eum centúrio, rogans eum, et dicens: Puer meus jacet in domo paralýticus. Cui vidétur repugnáre quod ait Lucas: Et cum audísset de Jesu, misit ad eum senióres Judæórum, rogans eum ut veníret, et sanáret servum ejus. At illi cum veníssent ad Jesum, rogábant eum sollícite, dicéntes ei: Quia dignus est ut hoc illi præstes: díligit enim gentem nostram, et synagógam ipse ædificávit nobis. Jesus autem ibat cum illis: et cum jam non longe esset a domo, misit ad eum centúrio amícos, dicens: Dómine, noli vexári: non enim dignus sum ut sub tectum meum intres.
+
+℟. Dómine, puer meus jacet paralýticus in domo, et male torquétur: \* Amen dico tibi, ego véniam, et curábo eum. ℣. Dómine, non sum dignus ut intres sub tectum meum: sed tantum dic verbo, et sanábitur puer meus. — Amen dico.

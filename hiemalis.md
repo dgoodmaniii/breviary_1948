@@ -12456,3 +12456,70 @@ In Dómino justificábitur, et laudábitur \* omne semen Israël.
 **Ant.** In Dómino justificábitur, et laudábitur omne semen Israël.
 
 **Ant.** Lauda, \* † Jerúsalem, Dóminum. ‡
+
+### Psalmus 147
+
+LAUDA, † Jerúsalem, Dóminum: \* ‡ lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Lauda, Jerúsalem, Dóminum.
+
+#### In Officio feriali
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+ÆTERNA cæli glória,
+Beáta spes mortálium,
+Summi Tonántis Únice,
+Castǽque proles Vírginis:
+
+Da déxteram surgéntibus,
+Exsúrgat et mens sóbria,
+Flagrans et in laudem Dei
+Grates rependat débitas.
+
+Ortus refúlget Lúcifer,
+Præítque solem núntius:
+Cadunt ténebræ nóctium:
+Lux sancta nos illúminet.
+
+Manénsque nostris sénsibus,
+Noctem repéllat séculi,
+Omníque fine témporis
+Purgáta servet péctora.
+
+Quæsíta jam primum fides
+In corde radíces agat:
+Secúnda spes congáudeat,
+Qua major exstat cáritas.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Per víscera misericórdiæ \* Dei nostri visitávit nos Oriens ex alto.
+
+{RUBRIC: Reliqua ut in Ordinario. 11}

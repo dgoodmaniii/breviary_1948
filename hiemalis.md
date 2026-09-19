@@ -12195,3 +12195,54 @@ Nos autem pópulus tuus, et oves páscuæ tuæ, \* confitébimur tibi in séculu
 In generatiónem et generatiónem \* annuntiábimus laudem tuam.
 
 **Ant.** Adjuva nos, Deus, salutáris noster: et pro-
+pítius esto peccátis nostris.
+
+**Ant.** Ego sum Dóminus, \* Deus tuus, Israël, qui edúxi te de terra Ægýpti.
+
+### Psalmus 80
+
+EXSULTATE Deo, adjutóri nostro: \* jubiláte Deo Jacob.
+
+Súmite psalmum, et date týmpanum: \* psaltérium jucúndum cum cíthara.
+
+Buccináte in Noeménia tuba, \* in insígni die solemnitátis vestræ.
+
+Quia præcéptum in Israël est: \* et judícium Deo Jacob.
+
+Testimónium in Joseph pósuit illud, cum exíret de terra Ægýpti: \* linguam, quam non nóverat, audívit.
+
+Divértit ab onéribus dorsum ejus: \* manus ejus in cóphino serviérunt.
+
+In tribulatióne invocásti me, et liberávi te: \* exaudívi te in abscóndito tempestátis: probávi te apud aquam contradictiónis.
+
+Audi, pópulus meus, et contestábor te: \* Israël, si audíeris me, non erit in te deus recens, neque adorábis deum aliénum.
+
+Ego enim sum Dóminus, Deus tuus, qui edúxi te de terra Ægýpti: \* diláta os tuum, et implébo illud.
+
+Et non audívit pópulus meus vocem meam: \* et Israël non inténdit mihi.
+
+Et dimísi eos secúndum desidéria cordis eórum, \* ibunt in adinventiónibus suis.
+
+Si pópulus meus audísset me: \* Israël si in viis meis ambulásset:
+
+Pro níhilo fórsitan inimícos eórum humiliássem: \* et super tribulántes eos misíssem manum meam.
+
+Inimíci Dómini mentíti sunt ei: \* et erit tempus eórum in sécula.
+
+Et cibávit eos ex ádipe fruménti: \* et de petra, melle saturávit eos.
+
+**Ant.** Ego sum Dóminus, Deus tuus, Israël, qui edúxi te de terra Ægýpti.
+
+**Ant.** Ne táceas, Deus, \* quóniam inimíci tui extulérunt caput.
+
+### Psalmus 82
+
+DEUS, quis símilis erit tibi? \* ne táceas, neque compescáris, Deus:
+
+Quóniam ecce inimíci tui sonuérunt: \* et qui odérunt te, extulérunt caput.
+
+Super pópulum tuum malignavérunt consílium: \* et cogitavérunt advérsus sanctos tuos.
+
+Dixérunt: Veníte, et disperdámus eos de gente: \* et non memorétur nomen Israël ultra.
+
+Quóniam cogitavérunt unanímiter: \* simul ad-

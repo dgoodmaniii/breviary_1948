@@ -26897,3 +26897,22 @@ DIXIT vero Deus: Congregéntur aquæ, quæ sub cælo sunt, in locum unum: et app
 #### Lectio iii
 
 DIXIT étiam Deus: Prodúcant aquæ réptile ánimæ vivéntis, et volátile super terram sub firmaménto cæli. Creavítque Deus cete grándia, et omnem ánimam vivéntem atque motábilem, quam prodúxerant aquæ in spécies suas, et omne volátile secúndum genus suum. Et vidit Deus quod esset bonum. Benedixítque eis, dicens: Créscite, et multi-
+plicámini, et repléte aquas maris: avésque multiplicéntur super terram. Et factum est véspere et mane, dies quintus. Dixit quoque Deus: Prodúcat terra ánimam vivéntem in génere suo, juménta, et reptília, et béstias terræ secúndum spécies suas. Factúmque est ita. Et fecit Deus béstias terræ juxta spécies suas, et juménta, et omne réptile terræ in génere suo. Et vidit Deus quod esset bonum, et ait: Faciámus hóminem ad imáginem et similitúdinem nostram: et præsit píscibus maris, et volatílibus cæli, et béstiis, universǽque terræ, omníque réptili, quod movétur in terra.
+
+℟. Formávit Dóminus hóminem de limo terræ, \* Et inspirávit in fáciem ejus spiráculum vitæ, et factus est homo in ánimam vivéntem. ℣. In princípio fecit Deus cælum et terram, et plasmávit in ea hóminem. — Et. Glória Patri. Et.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Enchirídii sancti Augustíni Epíscopi}
+
+{RUBRIC: Cap. 25, 26 et 27 tom. 3}
+
+#### Lectio iv
+
+MORTIS supplícium Dóminus hómini comminátus fúerat, si peccáret: sic eum múnerans líbero arbítrio, ut tamen régeret império, terréret exítio: atque in paradísi felicitáte, tamquam in umbra vitæ, unde justítia custodíta in melióra conscénderet, collocávit. Hinc post peccátum exsul efféctus, stirpem quoque suam, quam peccándo in se tamquam in radíce vitiáverat, pœna mortis et damnatióne obstrínxit: ut quidquid prolis ex illo, et simul damnáta, per quam peccáverat, cónjuge, per carnálem concupiscéntiam, in qua inobediéntiæ pœna símilis retribúta est, nascerétur, tráheret originále peccátum, quo traherétur per erróres dolorésque divérsos ad illud extrémum cum desertóribus ángelis, vitiatóribus et possessóribus et consórtibus suis, sine fine supplícium.
+
+℟. Tulit Dóminus hóminem, et pósuit eum in paradíso voluptátis: \* Ut operarétur et custodíret illum. ℣. Plantáverat autem Dóminus Deus paradísum voluptátis a princípio, in quo pósuit hóminem, quem formáverat. — Ut.
+
+#### Lectio v
+
+SIC per unum hóminem peccátum intrávit in mundum, et per peccátum mors: et ita in omnes hó-

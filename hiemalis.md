@@ -17823,3 +17823,39 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut redemptiónis nostræ ventúra solémni
 {RUBRIC: Et dícitur ad omnes Horas, prǽterquam in Vésperis.}
 
 ℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum.
+
+{RUBRIC: Nisi dicénda sit Ant. O. 355}
+
+#### Oratio
+
+AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et mentis nostræ ténebras grátia tuæ visitatiónis illústra: Qui vivis et regnas.
+
+---
+
+### Feria Quinta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 33, 1-6*
+
+VÆ qui prædáris, nonne et ipse prædáberis? et qui spernis, nonne et ipse spernéris? cum consummáveris depredatiónem, deprædáberis: cum fatigátus desíeris contémnere, contemnéris. Dómine, miserére nostri: te enim exspectávimus: esto bráchium nostrum in mane, et salus nostra in témpore tribulatiónis.
+
+℟. Egrediétur Dóminus, et præliábitur contra gentes: \* Et stabunt pedes ejus supra montes olivárum ad Oriéntem. ℣. Et elevábitur supra omnes colles, et fluent ad eum omnes gentes. — Et stabunt.
+
+#### Lectio ii
+
+A voce Ángeli fugérunt pópuli, et ab exaltatióne tua dispérsæ sunt
+
+gentes. Et congregabúntur spólia vestra sicut collígitur bruchus, velut cum fossæ plenæ fúerint de eo. Magnificátus est Dóminus, quóniam habitávit in excélso: implévit Sion judício et justítia. Et erit fides in tempóribus tuis: divítiæ salútis, sapiéntia et sciéntia: timor Dómini ipse est thesáurus ejus.
+
+℟. Præcúrsor pro nobis ingréditur Agnus sine mácula, \* Secúndum órdinem Melchísedech Póntifex factus in ætérnum et in séculum séculi. ℣. Ipse est rex justítiæ, cujus generátio non habet finem. — Secúndum.
+
+#### Lectio iii
+
+*Cap. 33, 14-17*
+
+CONTÉRRITI sunt in Sion peccatóres, possédit tremor hypócritas. Quis póterit habitáre de vobis cum igne devoránte? quis habitábit ex vobis cum ardóribus sempitérnis? Qui ámbulat in justítiis, et lóquitur veritátem, qui prójicit avarítiam ex calúmnia, et éxcutit manus suas ab omni múnere, qui obtúrat aures suas ne áudiat sánguinem, et claudit óculos suos ne vídeat malum. Iste in excélsis habitábit, muniménta saxórum sublímitas ejus: panis ei datus est, aquæ ejus fidéles sunt. Regem in decóre suo

@@ -32898,4 +32898,16 @@ DEUS, qui nos ánnua beátæ Agnétis Vírginis et Mártyris tuæ solemnitáte l
 
 #### Lectio iv
 
-PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, singulári erga próximum caritáte excélluit. Cujus vir-
+PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, singulári erga próximum caritáte excélluit. Cujus vir-tútis præságium, fuit, quod, cum adhuc in cunábulis vagíret infans, exámen apum ad eum convolávit et favum mellis in ejus déxtera constrúxit. Adoléscens paréntibus orbátus, Albigénsium hǽresim, quæ tunc in Gállia grassabátur, exsecráns, divéndito património, in Hispániam secéssit; et apud beátam Vírginem montis Serráti votum, quo pridem se obstrínxerat, exsólvit. Tum Barcinónam pergens, cum Christi fidélibus ab hóstium servitúte rediméndis omnem pecúniam consumpsísset, seípsum pro iis liberándis venum ire, aut in illórum víncula súffici cúpere dictitábat.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+QUAM gratum Deo fúerit hoc sancti viri desidérium, súbsequens declarávit evéntus; nam noctu oránti, et de Christianórum in captivitáte degéntium subsídio multa ánimo volvénti beáta Virgo appárens, Fílio suo sibíque acceptíssimum fore suggéssit, si ad sui honórem religiosórum ordo instituerétur, quibus præcípue esset cura captívos ab infidélium tyránnide liberáre. Huic cælésti mónito íllico obtémperans, una cum sancto Raymúndo de Péñafort, et Jacóbo primo, rege Aragóniæ, de eádem re a Dei Genítrice ipsa nocte præmónitis, religiónem beátæ Maríæ de Mercéde redemptiónis captivórum instítuit; sodálibus suis quarto voto obstríctis, manéndi in pignus sub paganórum potestáte, si pro Christianórum liberatióne opus fúerit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+EDITO virginitátis voto, illibátam perpétuo castitátem servávit. Patiéntia, humilitáte, abstinéntia, ceterísque virtútibus mirabíliter enítuit. Prophetíæ dono illústris, futúra prædíxit; inter quæ máxime celebrátur, quod Jacóbus rex Valéntiam a Mauris occupátam expugnáverit, accépta prius ab

@@ -24103,3 +24103,37 @@ Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
 Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
 
 Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+**Ant.** Angelus Dómini appáruit in somnis Joseph in Ægýpto, dicens: Surge et áccipe púerum et matrem ejus, et vade in terram Israël.
+
+**Ant.** Et véniens \* habitávit Názareth, ut adimplerétur quod dictum est per Prophétas: Quóniam Nazarǽus vocábitur.
+
+#### Psalmus 86
+
+FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Et véniens habitávit Názareth, ut adimplerétur quod dictum est per Prophétas: Quóniam Nazarǽus vocábitur.
+
+℣. Dóminus vias suas docébit nos. ℟. Et ambulábimus in sémitis ejus.
+
+{RUBRIC: Ex Lítteris Apostólicis Leónis Papæ décimi tértii}
+
+{RUBRIC: Breve Néminem fugit}
+
+{RUBRIC: 14 Junii 1892}
+
+#### Lectio iv
+
+MISÉRICORS Deus cum humánæ reparatiónis opus, quod diu sǽcula exspectábant, perfícere decrevísset, ita ejúsdem óperis ratiónem ordinémque dispósuit, ut prima ipsa ejúsdem inítia augústam mundo exhibérent spéciem Famíliæ divínitus constitútæ, in qua omnes hómines absolutíssimum doméstiæ societátis, omnísque virtútis ac sanctitátis intueréntur exémplar. Talis quidem Família éxstitit Nazarethána illa, in qua, ántequam géntibus univérsis pleno lúmine emicuísset, Sol justítiæ erat abscónditus: nimírum Christus Deus, Servátor noster, cum Vírgine Matre et Joseph, viro sanctíssimo, qui erga Jesum patérno fungebátur múnere. Mínime dúbium est quin ex iis láudibus, quæ in societáte et consuetúdine doméstica ex mútuis caritátis offíciis, ex sanctitáte morum, ex pietátis exercitatióne proficiscúntur, máxima quæque enitúerit in sacra illa Família, quæ síquidem eárum futúra erat céteris documénto.

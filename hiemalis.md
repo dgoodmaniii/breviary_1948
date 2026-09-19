@@ -27014,3 +27014,46 @@ Jesu, labántes réspice,
 Et nos vidéndo córrige:
 Si réspicis, labes cadunt,
 Fletúque culpa sólvitur.
+Tu, lux, refúlge sénsibus,
+Mentísque somnum díscute:
+Te nostra vox primum sonet,
+Et vota solvámus tibi.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum. Amen.
+
+℣. Dómine, refúgium factus es nobis. ℟. A generatióne et progénie.
+
+**Ad Bened. Ant.** Símile est \* regnum cælórum hómini patrifamílias, qui éxiit primo mane condúcere operários in víneam suam, dicit Dóminus.
+
+#### Oratio
+
+PRECES pópuli tui, quǽsumus, Dómine, cleménter exáudi: ut, qui juste pro peccátis nostris afflígimur, pro tui nóminis glória misericórditer liberémur. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Conventióne autem \* facta cum operáriis ex denário diúrno, misit eos in víneam suam.
+
+{RUBRIC: Psalmi 92 Dóminus regnávit et 99 Jubiláte 54, deínde 118 Beáti immaculáti et Retríbue, ut in Psaltério 55; qui dicúntur étiam in duábus Domínicis sequéntibus. Ad absolutiónem vero Capítuli Lectio brevis Dóminus autem, ut item in Psaltério. 60}
+
+### Ad Tertiam
+
+**Ant.** Ite et vos \* in víneam meam, et quod justum fúerit, dabo vobis.
+
+**Capitulum** *1 Cor. 9, 24*
+
+FRATRES: Nescítis quod ii, qui in stádio currunt, omnes quidem currunt, sed unus áccipit bravíum? Sic cúrrite ut comprehendátis.
+
+℟. br. Inclína cor meum, Deus, \* In testimónia tua. Inclína. ℣. Avérte óculos meos, ne vídeant vanitátem: in via tua vivífica me. In testimónia tua. Glória Patri. Inclína. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi.
+
+### Ad Sextam
+
+**Ant.** Quid hic statis \* tota die otiósi? respondérunt, et dixérunt: Quia nemo nos condúxit.
+
+**Capitulum** *1 Cor. 9, 25*
+
+OMNIS autem, qui in agóne conténdit, ab ómnibus se ábstinet: et illi quidem ut corruptíbilem corónam accípiant, nos autem incorrúptam.
+
+℟. br. In ætérnum, Dómine, \* Pérmanet verbum

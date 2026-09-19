@@ -28894,3 +28894,18 @@ FRANCÍSCUS, in Xavério diœcésis Pampelonénsis nobílibus paréntibus natus,
 #### Lectio v
 
 VITÆ austeritáte ac sanctitáte apostólico múneri jam matúrus, cum Joánnes tértius Lusitániæ rex áliquot nascéntis societátis viros a Paulo tértio pro Indiis postulásset, sancti Ignátii hortátu, ab eódem Pontífice ad tantum opus cum apostólici núntii potestáte delígitur. Eo appúlsus, íllico variárum géntium difficíllimis et váriis linguis divínitus instrúctus appáruit. Quin eum quandóque único idiómate ad divérsas gentes concionántem, unaquǽque sua lingua loquéntem audívit. Províncias innúmeras pédibus semper, et sæpe nudis, peragrávit. Fidem Japóniæ et sex áliis regiónibus invéxit. Multa centéna hóminum míllia ad Christum in Indiis convértit; magnósque príncipes, regésque complúres sacro fonte expiávit. Et cum tam magna pro Deo ágeret, ea erat humilitáte, ut sancto Igná-
+tio, tunc præpósito suo, flexis génibus scríberet.
+
+℣. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+HUNC dilatándi Evangélii ardórem multitúdine et excelléntia miraculórum Dóminus roborávit. Cæco visum réddidit. Tantum marínæ aquæ signo crucis convértit in dulcem, quantum quingéntis vectóribus, qui siti adigebántur ad mortem, diu suffécit: qua in várias quoque regiónes asportáta, ægri plúrimi súbito curáti sunt. Plures mórtuos revocávit ad vitam, inter quos prídie sepúltum érui jussum e túmulo suscitávit, duósque álios, dum efferréntur, apprehénsa eórum manu, paréntibus e féretro vivos restítuit. Prophetíæ spíritu passim afflátus, plúrima et loco et témpore remotíssima enuntiávit. Demum in Sanciáno Sinárum ínsula, die secúnda Decémbris, óbiit plenus méritis, laboribúsque conféctus. Demórtui cadáver viva calce per multos menses bis óbrutum, sed pénitus incorrúptum, odóre et sánguine manávit; et ubi Málacam delátum est, pestem sævíssimam conféstim exstínxit. Dénique ubíque terrárum novis maximísque fulgéntem miráculis Gregórius décimus quintus Sanctis adscrípsit. Pius autem décimus ipsum sodalitáti et óperi Propagándæ Fídei cæléstem patrónum elégit atque constítuit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+FRANCÍSCUS, in Xavério diœcésis Pampelonénsis nobílibus paréntibus natus, Parísiis sancto Ignátio sese cómitem et discípulum junxit, et brevi mira vitæ austeritáte et rerum divinárum assídua contemplatióne cláruit. A Paulo tértio apostólicus núntius pro Indiis creátus, próvincias innúmeras pédibus semper, et sæpe nudis, peragrávit. Fidem Japóniæ et sex áliis regióni-

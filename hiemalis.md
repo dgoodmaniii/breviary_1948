@@ -29498,3 +29498,51 @@ DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenér
 Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
 
 Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Adjúvit eam Deus mane dilúculo; sanctificávit tabernáculum suum Altíssimus.
+
+**Ant.** Gloriósa \* dicta sunt de te, cívitas Dei: fundávit te Dóminus in móntibus sanctis.
+
+###### Psalmus 86
+
+FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Gloriósa dicta sunt de te, cívitas Dei: fundávit te Dóminus in móntibus sanctis.
+
+℣. In hoc cognóvi quóniam voluísti me. ℟. Quóniam non gaudébit inimícus meus super me.
+
+{RUBRIC: Sermo sancti Hierónymi Presbýteri}
+
+{RUBRIC: De Assumptione B. M. V.}
+
+#### Lectio iv
+
+QUALIS et quanta esset beáta et gloriósa semper Virgo María, ab Angelo divínitus declarátur, cum dícitur: Ave, grátia plena; Dóminus tecum: benedícta tu in muliéribus. Tálibus namque decébat Vírginem oppignorári munéribus, ut esset grátia

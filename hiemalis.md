@@ -19640,3 +19640,28 @@ lútus: hódie Stéphanus stola est ab eo immortalitátis indútus. Heri prǽsé
 #### Lectio vi
 
 NECESSÁRIUM tamen nobis est, fratres, agnóscere, quibus armis præcínctus Stéphanus sævítiam Judæórum pótuit superáre, ut ita meruísset felíciter triumpháre. Stéphanus ergo, ut nóminis sui corónam meruísset accípere, caritátem pro armis habébat, et per ipsam ubíque vincébat. Per caritátem Dei sæviéntibus Judǽis non cessit: per caritátem próximi pro lapidántibus intercéssit. Per
+caritátem arguébat errántes, ut corrigeréntur: per caritátem pro lapidántibus orábat, ne puniréntur. Caritátis virtúte subníxus, vicit Saulum crudéliter sæviéntem; et quem hábuit in terra persecutórem, in cælo méruit habére consórtem.
+
+℟. Impii super justum jactúram fecérunt, ut eum morti tráderent: \* At ille gaudens suscépit lápides, ut mererétur accípere corónam glóriæ. ℣. Continuérunt aures suas, et ímpetum fecérunt unanímiter in eum. — At. Glória Patri. At.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 23, 34-39*
+
+IN illo témpore: Dicébat Jesus scribis et pharisǽis: Ecce ego mitto ad vos prophétas, et sapiéntes, et scribas: et ex illis occidétis, et crucifigétis. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 4 Com. in c. 23 Matth.}
+
+HOC quod ántea díxerámus, Impléte mensúram patrum vestrórum; ad persónam Dómini pertinére, eo quod occidéndus esset ab eis, potest et ad discípulos ejus reférri, de quibus nunc dicit: Ecce ego mitto ad vos prophétas, et sapiéntes, et scribas. Simúlque obsérva, juxta Apóstolum scribéntem ad Corínthios, vária esse dona discipulórum Christi; álios prophétas, qui ventúra prædícent; álios sapiéntes, qui novérunt quando débeant proférre sermónem; álios scribas in lege doctíssimos, ex quibus lapidátus est Stéphanus, Paulus occísus, crucifíxus Petrus, flagelláti in Áctibus Apostolórum discípuli.
+
+℟. Stéphanus servus Dei, quem lapidábant Judǽi, vidit cælos apértos: vidit, et introívit: \* Beátus homo, cui cæli patébant. ℣. Cum ígitur saxórum crepitántium túrbine quaterétur, inter æthéreos aulæ cæléstis sinus divína ei cláritas fulsit. — Beátus.
+
+#### Lectio viii
+
+QUǼRIMUS, quis iste sit Zacharías fílius Baráchiæ: quia multos légimus Zacharías. Et ne líbera nobis tribuerétur erróris facúltas, ádditum est: Quem occidístis inter templum et altáre. In divérsis divérsa legi: et débeo singulórum opiniónes pónere. Álii Zacharíam fílium Baráchiæ dicunt, qui in duódecim prophétis undécimus est, patrísque in eo

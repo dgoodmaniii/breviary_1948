@@ -29119,3 +29119,22 @@ CUM vero se totum Deo dedísset, in Palæstínam proféctus est, ut loca sancta 
 #### Lectio vi
 
 VIDUIS et órphanis pecúnia, consílio, ópera non défuit; oppréssos ádeo sublevávit, ut étiam tres tribúnos, per calúmniam a Constantíno Augústo condemnátos, qui se propter famam ejus miraculórum oratiónibus longíssime absénti commendárant, adhuc vivens, cum imperatóri, mináciter eum terrens, apparuísset, liberáverit. Cum vero contra edíctum Dioclétiáni et Maximiáni christiánæ fídei veritátem Myræ prædicáret, ab imperatórum satellítibus comprehénsus, et longíssime abdúctus, in cárcerem conjéctus est; ubi fuit usque ad Constantínum imperatórem, cujus jussu ex custódia eréptus, Myram rédiit. Mox ad
+Nicǽnum Concílium se cóntulit; ubi cum trecéntis illis decem et octo Pátribus Ariánam hǽresim condemnávit. Inde revérsus ad episcopátum, non ita multo post, instánte morte, suspíciens in cælum, cum Angelos sibi occurréntes intuerétur, illo Psalmo pronuntiáto, In te, Dómine, sperávi; usque ad eum locum, In manus tuas comméndo spíritum meum; in cæléstem pátriam migrávit. Ejus corpus Bárium in Apúlia translátum, ibídem summa celebritáte ac veneratióne cólitur.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+NICOLÁUS, illústri loco Pátaræ in Lýcia natus, quarta et sexta féria ab infántia jejunávit; quam quidem consuetúdinem réliqua vita semper ténuit. Adoléscens paréntibus orbátus, facultátes suas paupéribus distríbuit. Cujus illud insígne est caritátis exémplum, quod tribus puéllis periclitántibus, congruénti pecúniæ vi in dotem constitúta, succúrrerit. In Palæstínam peregrinátus, Dei admónitu Myram, Lýciæ metrópolim, venit; ubi a provinciálibus epíscopis, Myrénsi epíscopo vita functo, prǽter ómnium opiniónem, miro consénsu, sufféctus est. Eo in múnere ómnium virtútum se exémplar præbuit. Cum autem contra Dioclétiáni et Maximiáni edíctum christiánæ fídei veritátem prædicáret, in cárcerem conjéctus est, ubi fuit usque ad Constantínum imperatórem. Nicǽno Concílio intérfuit, in quo Ariána hǽresis damnáta est. Ad suos revérsus, Myræ sanctíssime óbiit. Ejus corpus Bárium in Apúlia translátum, ibídem summa celebritáte cólitur.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Communi Conf. Pont. 1 loco.} [80]
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.

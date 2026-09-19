@@ -27274,3 +27274,26 @@ DIXÍTQUE Lamech uxóribus suis Adæ et Sellæ: Audíte vocem meam, uxóres Lame
 HIC est liber generatiónis Adam. In die, qua creávit Deus hóminem, ad similitúdinem Dei fecit illum. Másculum et féminam creávit eos, et benedíxit illis: et vocávit nomen eórum Adam, in die quo creáti sunt. Vixit autem Adam centum trigínta annis: et génuit ad imáginem et similitúdinem suam, vocavítque nomen ejus Seth. Et facti sunt dies Adam, postquam génuit Seth, octingénti anni: genuítque fílios et fílias. Et factum est omne tempus quod vixit Adam, anni nongénti trigínta, et mórtuus est.
 
 ℟. Immísit Dóminus sopórem in Adam, et tulit unam de cóstis ejus: \* Et ædificávit costam, quam
+túlerat Dóminus de Adam, in mulíerem, et addúxit eam ad Adam, ut vidéret quid vocáret eam: \* Et vocávit nomen ejus Virágo, quia de viro sumpta est. ℣. Cumque obdormísset, tulit unam de cóstis ejus, et replévit carnem pro ea. — Et ædificávit. Glória Patri. Et vocávit.
+
+{RUBRIC: Si Vésperæ sint de Féria, ad Magníficat dícitur última Antíphona ex præcedéntibus Fériis prætermíssa; alióquin, si omnes recitátæ fúerint, súmitur de Psaltério.}
+
+---
+
+### Sabbato
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 5, 15-31*
+
+VIXIT autem Maláleel sexagínta quinque annis, et génuit Jared. Et vixit Maláleel postquam génuit Jared, octingéntis trigínta annis: et génuit fílios et fílias. Et facti sunt omnes dies Maláleel octingénti nonagínta quinque anni, et mórtuus est. Vixítque Jared centum sexagínta duóbus annis, et génuit Henoch. Et vixit Jared, postquam génuit Henoch, octingéntis annis: et génuit fílios et fílias. Et facti sunt omnes dies Jared nongénti sexagínta duo anni, et mórtuus est. Porro Henoch vixit sexagínta quinque annis, et génuit Mathúsalam.
+
+℟. Plantáverat autem Dóminus Deus paradísum voluptátis a princípio: \* In quo pósuit hóminem, quem formáverat. ℣. Produxítque Dóminus Deus de humo omne lignum pulchrum visu, et ad vescéndum suáve; lignum étiam vitæ in médio paradísi. — In.
+
+#### Lectio ii
+
+ET ambulávit Henoch cum Deo: et vixit, postquam génuit Mathúsalam, trecéntis annis: et génuit fílios et fílias. Et facti sunt omnes dies Henoch trecénti sexagínta quinque anni. Ambulavítque cum Deo, et non appáruit: quia tulit eum Deus. Vixit quoque Mathúsala centum octogínta septem annis, et génuit Lamech. Et vixit Mathúsala, postquam génuit Lamech, septingéntis octogínta duóbus annis: et génuit fílios et fílias. Et facti sunt omnes dies Mathúsala, nongénti sexagínta novem anni, et mórtuus est.
+
+℟. Ecce Adam quasi unus ex nobis factus est, sciens bonum et malum: \* Vidéte, ne forte sumat de ligno vitæ, et vivat in ætérnum. ℣. Fecit quoque Dóminus Deus Adæ túnicam pellí-

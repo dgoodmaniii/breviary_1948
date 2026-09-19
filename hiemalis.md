@@ -9080,3 +9080,66 @@ Viri sánguinum, et dolósi non dimidiábunt dies suos: \* ego autem sperábo in
 ECCE, dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit: et fáciet judícium et justítiam in terra.
 
 ℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt
+ gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 22}
+
+#### Per Annum
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+{RUBRIC: Feria IV Cinerum et in Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 22}
+
+---
+
+### Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** In Deo sperávi.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria IV post Dominicam I:} **Ant.** Ecce Dóminus véniet.
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Propter Sion.
+
+### Psalmus 55
+
+MISERERE mei, Deus, quóniam conculcávit me homo: \* tota die impúgnans tribulávit me.
+
+Conculcavérunt me inimíci mei tota die: \* quóniam multi bellántes advérsum me.
+
+Ab altitúdine diéi timébo: \* ego vero in te sperábo.

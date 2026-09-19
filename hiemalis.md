@@ -27875,3 +27875,20 @@ IN illo témpore: Assúmpsit Jesus duódecim, et ait illis: Ecce ascéndimus Jer
 REDÉMPTOR noster, prævídens ex passióne sua discipulórum ánimos perturbándos, eis longe ante et ejúsdem passiónis pœnam, et resurrectiónis suæ glóriam prædíxit: ut cum eum moriéntem, sicut prædíctum est, cérnerent; étiam resurrectúrum non dubitárent. Sed quia carnáles adhuc discípuli nullo modo valébant cápere verba mystérii, venítur ad miráculum. Ante eórum óculos cæcus lumen recépit: ut qui cæléstis mystérii verba non cáperent, eos ad fidem cæléstia facta solidárent.
 
 ℟. Veni hódie ad fontem aquæ, et orávi Dóminum, dicens: \* Dómine, Deus Abraham, tu prósperum fecísti desidérium meum. ℣. Igitur puélla, cui díxero, Da mihi aquam de hý-
+dria tua, ut bibam: et illa díxerit, Bibe, dómine, et camélis tuis potum tríbuam: ipsa est, quam præparávit Dóminus fílio dómini mei. — Dómine.
+
+#### Lectio viii
+
+SED mirácula Dómini et Salvatóris nostri sic accipiénda sunt, fratres caríssimi, ut et in veritáte credántur facta, et tamen per significatiónem nobis áliquid ínnuant. Opera quippe ejus et per poténtiam áliud osténdunt, et per mystérium áliud loquúntur. Ecce enim, quis juxta históriam cæcus iste fúerit, ignorámus: sed tamen quid per mystérium significet, nóvimus. Cæcum quippe est genus humánum, quod in parénte primo a paradísi gáudiis expúlsum, claritátem supérnæ lucis ignórans, damnatiónis suæ ténebras pátitur. Sed tamen per Redemptóris sui præséntiam illumínátur: ut intérnæ lucis gáudia jam per desidérium vídeat, atque in via vitæ boni óperis gressus ponat.
+
+℟. Factus est sermo Dómini ad Abram, dicens: \* Noli timére, Abram: ego protéctor tuus sum, et merces tua magna nimis. ℣. Ego enim sum Dóminus Deus tuus, qui edúxi te de Ur Chaldæórum. — Noli.
+
+#### Lectio ix
+
+NOTÁNDUM vero est, quod cum Jesus Jéricho propinquáre dícitur, cæcus illumínátur. Jéricho quippe luna interpretátur: luna autem in sacro elóquio pro deféctu carnis pónitur: quia dum ménstruis moméntis decréscit, deféctum nostræ mortalitátis desígnat. Dum ígitur Cónditor noster appropínquat Jéricho, cæcus ad lumen redit: quia dum divínitas deféctum nostræ carnis suscépit, humánum genus lumen, quod amíserat, recépit. Unde enim Deus humána pátitur, inde homo ad divína sublevátur. Qui vidélicet cæcus recte et juxta viam sedére, et mendícans esse descríbitur. Ipsa enim Véritas dicit: Ego sum via.
+
+℟. Cæcus sedébat secus viam, transeúnte Dómino, et clamávit ad eum: et ait illi Dóminus: \* Quid vis ut fáciam tibi? \* Dómine, ut vídeam lumen. ℣. Stans autem Jesus, jussit illum duci ad se, et cum appropinquásset, interrogávit eum, dicens. — Quid. Glória Patri. Dómine.
+
+### Ad Laudes
+
+**Ant. 1** Secúndum multitúdinem \* miseratiónum

@@ -32320,4 +32320,20 @@ Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.*
 
 *Cap. 9, 1-16*
 
-SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem. Et cum iter fáceret, cóntigit ut appropinquáret Damásco; et súbito circumfúlsit eum lux de cælo. Et cadens in terram audívit vocem dicéntem sibi: Saule, Saule, quid me perséqueris? Qui dixit: Quis es, Dómine? Et ille: Ego sum Jesus, quem tu perséqueris. Durum est tibi contra stímulum calcitráre.
+SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem. Et cum iter fáceret, cóntigit ut appropinquáret Damásco; et súbito circumfúlsit eum lux de cælo. Et cadens in terram audívit vocem dicéntem sibi: Saule, Saule, quid me perséqueris? Qui dixit: Quis es, Dómine? Et ille: Ego sum Jesus, quem tu perséqueris. Durum est tibi contra stímulum calcitráre.℟. Qui operátus est Petro in apostolátum, operátus est et mihi inter gentes: \* Et cognovérunt grátiam Dei, quæ data est mihi. ℣. Grátia Dei in me vácua non fuit, sed grátia ejus semper in me manet. — Et.
+
+#### Lectio ii
+
+ET tremens ac stupens dixit: Dómine, quid me vis fácere? Et Dóminus ad eum: Surge, et ingrédere civitátem, et ibi dicétur tibi quid te opórteat fácere. Viri autem illi, qui comitabántur cum eo, stabant stupefácti, audiéntes quidem vocem, néminem autem vidéntes. Surréxit autem Saulus de terra, apertísque óculis nihil vidébat. Ad manus autem illum trahéntes, introduxérunt Damáscum. Et erat ibi tribus diébus non videns, et non manducávit neque bibit.
+
+℟. Bonum certámen certávi, cursum consummávi, fidem servávi: \* Ideóque repósita est mihi coróna justítiæ. ℣. Scio cui crédidi, et certus sum quia potens est depósitum meum serváre in illum diem. — Ideóque.
+
+#### Lectio iii
+
+ERAT autem quidam discípulus Damásci, nómine Ananías: et dixit ad illum in visu Dóminus: Ananía. At ille ait: Ecce ego, Dómine. Et Dóminus ad eum: Surge, et vade in vicum, qui vocátur Rectus; et quǽre in domo Judǽ Saulum nómine Tarsénsem: ecce enim orat. (Et vidit virum Ananíam nómine, introeúntem et imponéntem sibi manus ut visum recípiat.) Respóndit autem Ananías: Dómine, audívi a multis de viro hoc, quanta mala fécerit sanctis tuis in Jerúsalem; et hic habet potestátem a princípibus sacerdótum alligándi omnes, qui ínvocant nomen tuum. Dixit autem ad eum Dóminus: Vade, quóniam vas electiónis est mihi iste, ut portet nomen meum coram géntibus et régibus et fíliis Israël. Ego enim osténdam illi quanta opórteat eum pro nómine meo pati.
+
+℟. Repósita est mihi coróna justítiæ, \* Quam reddet mihi Dóminus in illum diem justus judex. ℣. Scio cui crédidi, et certus sum quia potens est depósitum meum serváre in illum diem. — Quam. Glória Patri. Quam.
+
+### In II Nocturno
+
+**Ant.** Tu es vas electiónis, \* sancte Paule Apóstole, prædicátor veritátis in univérso mundo.

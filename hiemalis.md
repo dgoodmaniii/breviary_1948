@@ -17117,3 +17117,36 @@ EMITTE Agnum, Dómine, Dominatórem terræ de Petra desérti ad montem fíliæ S
 #### Lectio ii
 
 FINÍTUS est enim pulvis, consummátus est míser, defécit qui conculcábat terram. Et præparábitur in misericórdia sólium, et sedébit super illud in veritáte in tabernáculo
+David, júdicans et quǽrens judícium, et velóciter reddens quod justum est. Audívimus supérbiam Moab, supérbus est valde: supérbia ejus et arrogántia ejus, et indignátio ejus, plus quam fortitúdo ejus.
+
+℟. Ante multum tempus prophetávit Ezéchiel: Vidi portam clausam; ecce Deus ante sécula ex ea procedébat pro salúte mundi: \* Et erat íterum clausa, demónstrans Vírginem, quia post partum permánsit virgo. ℣. Porta quam vidísti, Dóminus solus transíbit per illam. — Et.
+
+#### Lectio iii
+
+IDCÍRCO ululábit Moab ad Moab, univérsus ululábit: his, qui lætántur super muros cocti láteris, loquímini plagas suas. Quóniam suburbána Hésebon desérta sunt, et víneam Sábama dómini géntium excidérunt: flagélla ejus usque ad Jazer pervenérunt: erravérunt in desérto, propágines ejus relíctæ sunt, transiérunt mare.
+
+℟. Ecce Dóminus véniet cum splendóre descéndens, et virtus ejus cum eo, \* Visitáre pópulum suum in pace, et constitúere super eum vitam sempitérnam. ℣. Ecce Dóminus noster cum virtúte véniet. — Visitáre. Glória. Visitáre.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Ecce ego mitto \* Angelum meum, qui præparábit viam meam ante fáciem tuam.
+
+#### Oratio
+
+EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus advéntum purificátis tibi méntibus servíre mereámur: Qui tecum.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Sion, renováberis, \* et vidébis justum tuum, qui ventúrus est in te.
+
+---
+
+### Feria Quinta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 19, 1-6*
+
+ONUS Ægýpti. Ecce Dóminus ascéndet super nubem levem, et ingrediétur Ægýptum, et commovebúntur simulácra Ægýpti a fácie ejus, et cor Ægýpti tabéscet in médio ejus. Et concúrrere fáciam Ægýptios advérsus Ægýptios: et pugnábit vir contra fratrem suum, et vir contra amícum suum, cívitas advérsus civitá-

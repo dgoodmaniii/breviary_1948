@@ -31712,4 +31712,46 @@ Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
 
 Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.
 
-**Ant.** Christus circúmdedit me vernántibus atque coruscántibus gemmis pretiósis.
+**Ant.** Christus circúmdedit me vernántibus atque coruscántibus gemmis pretiósis.**Ant.** Ipsi sum desponsáta, \* cui Angeli sérviunt, cujus pulchritúdinem sol et luna mirántur.
+
+###### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Ipsi sum desponsáta, cui Angeli sérviunt, cujus pulchritúdinem sol et luna mirántur.
+
+℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 25, 1-13*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile erit regnum cælórum decem virgínibus, quæ accipiéntes lámpades suas, exiérunt óbviam sponso et sponsæ. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 12 in Evangelia}
+
+SÆPE vos, fratres caríssimi, admóneo prava ópera fúgere, mundi hujus inquinaménta devitáre, sed hodiérna sancti Evangélii lectióne compéllor dícere,

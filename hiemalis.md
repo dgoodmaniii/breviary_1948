@@ -3171,7 +3171,7 @@ Pax multa diligéntibus legem tuam: \* et non est illis scándalum.
 
 Exspectábam salutáre tuum, Dómine: \* et mandáta tua diléxi.
 
-Custodívit ánima mea testimónia tua: \* et diléxit ea vehemánter.
+Custodívit ánima mea testimónia tua: \* et diléxit ea veheménter.
 
 Serváte mandáta tua, et testimónia tua: \* quia omnes viæ meæ in conspéctu tuo.
 
@@ -23011,7 +23011,7 @@ Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
 
 Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
 
-Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ vehemánter eleváti sunt.
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
 
 **Ant.** Psállite Deo nostro, psállite: psállite Regi nostro, psállite sapiénter.
 
@@ -29903,3 +29903,24 @@ QUISNAM tuum éloqui splendórem póterit? Quisnam porténtum, quod ipsa es, ena
 {RUBRIC: Pro Commem. S. Melchíadis in II Vésperis præcedéntis:}
 
 **Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fun-
+piórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Melchíadem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+{RUBRIC: Ex Bulla dogmática Pii Papæ noni}
+
+IPSÍSSIMA verba, quibus divínæ Scriptúræ de increáta Sapiéntia loquúntur, ejúsque sempitérnas orígines repræséntant, consuévit (Ecclésia), tum in ecclesiásticis offíciis, tum in sacrosáncta litúrgia adhibére et ad illíus Vírginis primórdia transférre, quæ uno eodémque decréto cum divínæ Sapiéntiæ incarnatióne fúerant præstitúta. Quamvis autem hæc ómnia penes fidéles ubíque prope recépta osténdant, quo stúdio ejúsmodi de immaculáta Vírginis Conceptióne doctrínam ipsa quoque Romána Ecclésia ómnium ecclesiárum mater et magístra fúerit prosecúta, tamen illústria hujus Ecclésiæ facta digna plane sunt, quæ nominátim recenseántur, cum tanta sit ejúsdem Ecclésiæ dígnitas atque auctóritas, quanta illi omníno debétur, quæ est cathólicæ veritátis et unitátis centrum, in qua solum inviolabíliter fuit custodíta relígio, et ex qua tráducem fídei réliquæ omnes ecclésiæ mutuéntur opórtet.
+
+℟. Ego ex ore Altíssimi pródivi, primogénita ante omnem creatúram: ego feci in cælis, ut orirétur lumen indefíciens: \* Nondum erant abýssi, et ego jam concépta eram. ℣. Deus enim creávit me in justítia, et apprehéndit manum meam, et servávit me. — Nondum.
+
+#### Lectio v
+
+ITAQUE éadem Romána Ecclésia nihil pótius hábuit, quam eloquentíssimis quibúsque modis immaculátam Vírginis Conceptiónem, ejúsque cultum et doctrínam assérere, tuéri, promovére et vindicáre. Enim vero prædecessóres nostri veheménter gloriáti sunt, apostólica sua auctoritáte festum Conceptiónis in Romána Ecclésia institúere, ac próprio Offício, propriáque Missa, quibus prærogatíva immunitátis ab hereditária labe manifestíssime asserebátur, au-

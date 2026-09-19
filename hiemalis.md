@@ -32842,4 +32842,60 @@ DICÉNDO enim, Vos estis sal terræ, osténdit univérsam hóminum infatuátam e
 
 #### Lectio ix
 
-NE ígitur putétis, inquit, ad lévia vos ducéndos esse certámina, neque exíguarum rerum vobis ineúndam esse ratiónem, Vos estis sal terræ. Quid ígitur? Ipsíne putrefácta medicáti sunt? Nequáquam: neque enim fíeri potest, ut ea, quæ jam corrúpta sunt, salis perfricatióne reparéntur. Non ergo hoc fecérunt; sed ante renováta sibíque trádita atque ab illa jam putrédine liberáta aspergébant sale et in ea novitáte conservábant, quam a Dómino suscéperant. Liberáre quippe a putrédine peccatórum, Christi virtútis est; ut autem ad illa íte-
+NE ígitur putétis, inquit, ad lévia vos ducéndos esse certámina, neque exíguarum rerum vobis ineúndam esse ratiónem, Vos estis sal terræ. Quid ígitur? Ipsíne putrefácta medicáti sunt? Nequáquam: neque enim fíeri potest, ut ea, quæ jam corrúpta sunt, salis perfricatióne reparéntur. Non ergo hoc fecérunt; sed ante renováta sibíque trádita atque ab illa jam putrédine liberáta aspergébant sale et in ea novitáte conservábant, quam a Dómino suscéperant. Liberáre quippe a putrédine peccatórum, Christi virtútis est; ut autem ad illa íte-rum non revertántur, Apostolórum curæ est ac labóris.
+
+{RUBRIC: Te Deum.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+#### Oratio
+
+ECCLÉSIAM tuam, quǽsumus, Dómine, grátia cæléstis amplíficet: quam beáti Joánnis Chrysóstomi Confessóris tui atque Pontíficis illustráre voluísti gloriósis méritis, et doctrínis. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Com. præcedéntis et S. Agnetis Virg. et Mart. secúndo.}
+
+---
+
+## Die 28 Januarii
+
+### S. Petri Nolasci
+
+{RUBRIC: Conf.}
+
+{RUBRIC: Duplex} (m. t. v.) [94]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+#### Oratio
+
+DEUS, qui in tuæ caritátis exémplum, ad fidélium redemptiónem sanctum Petrum Ecclésiam tuam nova prole fecundáre divínitus docuísti: ipsíus nobis intercessióne concéde; a peccáti servitúte solútis, in cælésti pátria perpétua libertáte gaudére: Qui vivis.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Joánnes Chrysóstome, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Ecclésiam tuam, ut supra.}
+
+{RUBRIC: Deinde Com. S. Agnetis:}
+
+**Ant.** Stans a dextris ejus Agnus nive candídior, Christus sibi sponsam et Mártyrem consecrávit.
+
+℣. Spécie tua et.
+
+#### Oratio
+
+DEUS, qui nos ánnua beátæ Agnétis Vírginis et Mártyris tuæ solemnitáte lætíficas: da, quǽsumus; ut, quam venerámur offício, étiam piæ conversatiónis sequámur exémplo. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, singulári erga próximum caritáte excélluit. Cujus vir-

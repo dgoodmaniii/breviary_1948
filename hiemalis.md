@@ -23411,3 +23411,20 @@ CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab
 {RUBRIC: Homilia 10 in Evangelia}
 
 SICUT in lectióne evangélica, fratres caríssimi, audístis, cæli Rege nato, rex terræ turbátus est: quia nimírum terréna altitúdo confúnditur, cum celsitúdo cæléstis aperítur. Sed quæréndum nobis est, quidnam sit, quod, Redemptóre nato, pastóribus in Judǽa Ángelus appáruit, atque ad adorándum hunc ab Oriénte Magos non Ángelus, sed stella perdúxit? Quia vidélicet Judǽis, tamquam ratióne uténtibus, rationále ánimal, id est, Ángelus prædicáre débuit: gentíles vero, quia uti ratióne nesciébant, ad cognoscéndum Dóminum non per vocem, sed per signa perducúntur. Unde étiam per Paulum dícitur: Prophetíæ fidélibus datæ sunt, non infidélibus; signa autem infidélibus, non fidélibus. Quia et illis prophetíæ
+tamquam fidélibus, non infidélibus; et istis signa tamquam infidélibus, non fidélibus data sunt.
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+ET notándum, quod Redemptórem nostrum, cum jam perféctæ esset ætátis, eísdem gentílibus Apóstoli prǽdicant, eúmque párvulum, et necdum per humáni córporis offícium loquéntem, stella géntibus denúntiat: quia nimírum ratiónis ordo poscébat, ut et loquéntem jam Dóminum loquéntes nobis prædicatóres innotéscerent, et necdum loquéntem eleménta muta prǽdicárent. Sed in ómnibus signis, quæ vel nascénte Dómino vel moriénte eo monstráta sunt, considerándum nobis est, quanta fúerit in quorúmdam Judæórum corde durítia, qui hunc nec per prophetíæ donum, nec per mirácula agnovérunt.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio magno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra ubi erat puer. — Et intrántes. Glória Patri. Et, apértis.
+
+#### Lectio ix
+
+OMNIA quippe eleménta auctórem suum venísse testáta sunt. Ut enim de eis quiddam usu humáno loquar: Deum hunc cæli esse cognovérunt, quia prótinus stellam misérunt. Mare cognóvit, quia sub plantis ejus se calcábile prǽbuit. Terra cognóvit, quia eo moriénte contrémuit. Sol cognóvit, quia lucis suæ rádios abscóndit. Saxa et paríetes cognovérunt, quia témpore mortis ejus scissa sunt. Inférnus agnóvit, quia hos, quos tenébat mórtuos, réddidit. Et tamen hunc, quem Dóminum ómnia insensibília eleménta sensérunt, adhuc infidélium Judæórum corda Deum esse mínime cognóscunt, et durióra saxis, scindi ad pœniténdum nolunt.
+
+Te Deum.

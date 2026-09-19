@@ -8040,3 +8040,71 @@ Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc i
 **Absolutio.** A vínculis.
 
 **Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absolutio.** A vínculis.
+
+##### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis sine Homilia:
+
+**Bened.** 1 Ille nos benedícat. 2 Divínum. 3 Ad societátem.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+### In III Nocturno
+
+**II**
+
+*In Feriis Adventus, et in Feriis IV post Dominicas Septuagesimæ, Sexagesimæ et Quinquagesimæ, et in Vigiliis communibus, cum ad Laudes dícitur Ps. 50 Miserére.*
+
+**Ant.** Deus deórum. †
+
+### Psalmus 49, i
+
+DEUS deórum, † Dóminus locútus est: \* et vocávit terram.
+
+A solis ortu usque ad occásum: \* ex Sion spécies decóris ejus.
+
+Deus maniféste véniet: \* Deus noster et non silébit.
+
+Ignis in conspéctu ejus exardéscet: \* et in circúitu ejus tempéstas válida.
+
+Advocábit cælum desúrsum: \* et terram discérnere pópulum suum.
+
+Congregáte illi sanctos ejus: \* qui órdinant testaméntum ejus super sacrifícia.
+
+Et annuntiábunt cæli justítiam ejus: \* quóniam Deus judex est.
+
+**Ant.** Deus deórum, Dóminus locútus est.
+
+**Ant.** Immola Deo.
+
+### Psalmus 49, ii
+
+AUDI, pópulus meus, et loquar: Israël, et testificábor tibi: \* Deus, Deus tuus ego sum.
+
+Non in sacrifíciis tuis árguam te: \* holocáusta autem tua in conspéctu meo sunt semper.
+
+Non accípiam de domo tua vítulos: \* neque de grégibus tuis hircos.
+
+Quóniam meæ sunt omnes feræ silvárum, \* juménta in móntibus et boves.
+
+Cognóvi ómnia volatília cæli: \* et pulchritúdo agri mecum est.
+
+Si esuríero, non dicam tibi: \* meus est enim orbis terræ, et plenitúdo ejus.
+
+Numquid manducábo carnes taurórum? \* aut sánguinem hircórum potábo?
+
+Immola Deo sacrifícium laudis: \* et redde Altíssimo vota tua.
+
+Et ínvoca me in die tribulatiónis: \* éruam te, et honorificábis me.
+
+**Ant.** Immola Deo sacrifícium laudis.

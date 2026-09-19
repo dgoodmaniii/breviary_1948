@@ -27208,3 +27208,22 @@ CUMQUE cognovíssent se esse nudos, consuérunt fólia ficus, et fecérunt sibi 
 #### Lectio iii
 
 ET ait Dóminus Deus ad serpéntem: Quia fecísti hoc, maledíctus es inter ómnia animántia et béstias terræ: super pectus tuum gradiéris, et terram cómedes cunctis diébus vitæ tuæ. Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus: ipsa cónteret caput tuum, et tu insidiáberis calcáneo ejus. Mulíeri quoque dixit: Multiplicábo ærúmnas tuas, et concéptus tuos:
+in dolóre páries fílios, et sub viri potestáte eris, et ipse dominábitur tui. Adæ vero dixit: Quia audísti vocem uxóris tuæ, et comedísti de ligno, ex quo præcéperam tibi ne coméderes, maledícta terra in ópere tuo: in labóribus cómedes ex ea cunctis diébus vitæ tuæ. Spinas et tríbulos germinábit tibi, et cómedes herbam terræ. In sudóre vultus tui vescéris pane, donec revertáris in terram de qua sumptus es: quia pulvis es, et in púlverem revertéris. Et vocávit Adam nomen uxóris suæ, Heva: eo quod mater esset cunctórum vivéntium.
+
+℟. Ubi est Abel frater tuus? dixit Dóminus ad Cain. Néscio, Dómine, numquid custos fratris mei sum ego? Et dixit ad eum: Quid fecísti? \* Ecce vox sánguinis fratris tui Abel clamat ad me de terra. ℣. Maledíctus eris super terram, quæ apéruit os suum, et suscépit sánguinem fratris tui de manu tua. — Ecce. Glória Patri. Ecce.
+
+**Ad Magnif. Ant.** Tolle quod tuum est, \* et vade; quia ego bonus sum, dicit Dóminus.
+
+---
+
+### Feria Quinta
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 4, 1-16*
+
+ADAM vero cognóvit uxórem suam Hevam: quæ concépit et péperit Cain, dicens: Possédi hóminem per Deum. Rursúmque péperit fratrem ejus Abel. Fuit autem Abel pastor óvium, et Cain agrícola. Factum est autem post multos dies ut offérret Cain de frúctibus terræ múnera Dómino. Abel quoque óbtulit de primogénitis gregis sui, et de adípibus eórum: et respéxit Dóminus ad Abel, et ad múnera ejus. Ad Cain vero, et ad múnera illíus non respéxit: iratúsque est Cain veheménter, et cóncidit vultus ejus. Dixítque Dóminus ad eum: Quare irátus es? et cur cóncidit fácies tua? Nonne si bene égeris, recípies: sin autem male, statim in fóribus peccátum áderit? sed sub te erit appetítus ejus, et tu domináberis illíus.
+
+℟. In princípio creávit Deus cælum et terram, et fecit in ea hóminem, \* Ad imáginem et similitúdinem suam. ℣. Formávit ígitur Deus hóminem de limo terræ, et inspirávit in fáciem ejus spiráculum vitæ. — Ad imáginem.

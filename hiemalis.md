@@ -27689,3 +27689,31 @@ BENEDIXÍTQUE Deus Noë et fíliis ejus. Et dixit ad eos: Créscite, et multipli
 DIXÍTQUE Deus: Hoc signum fœderis quod do inter me et vos, et ad omnem ánimam vivéntem, quæ est vobíscum in generatiónes sempitérnas: Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. Cumque obdúxero núbibus cælum, apparébit arcus meus in núbibus: et recordábor fœderis mei vobíscum, et cum omni ánima vivénte, quæ carnem végetat: et non erunt ultra aquæ dilúvii ad deléndum univérsam carnem.
 
 ℟. Dixit Dóminus ad Noë: Finis univérsæ carnis venit coram me: repléta est terra iniquitáte eórum, \* Et ego dispérdam eos cum terra. ℣. Fac tibi arcam de lignis lævigátis, mansiúnculas in ea fácies. — Et.
+
+#### Lectio ii
+
+*Cap. 9, 20-29*
+
+CŒPÍTQUE Noë vir agrícola exercére terram, et plantávit víneam. Bibénsque vinum inebriátus est, et nudátus in tabernáculo suo. Quod cum vidísset Cham pater Chánaan, verénda scílicet patris sui esse nudáta, nuntiávit duóbus frátribus suis foras. At vero Sem et Japheth pállium imposuérunt húmeris suis, et incedéntes retrórsum, operuérunt verénda patris sui: faciésque eórum avérsæ erant, et patris virília non vidérunt.
+
+℟. Noë, vir justus atque perféctus, cum Deo ambulávit: \* Et fecit ómnia quæcúmque præcépit ei Deus. ℣. Fecit sibi arcam, ut salvarétur univérsum semen. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+EVÍGILANS autem Noë ex vino, cum didicísset quæ fécerat ei fílius suus minor, ait: Maledíctus Chánaan, servus servórum erit frátribus suis. Dixítque: Benedíctus Dóminus Deus Sem, sit Chánaan servus ejus. Dilátet Deus Japheth, et hábitet in tabernáculis Sem, sitque Chánaan servus ejus. Vixit autem Noë post dilúvium trecéntis quinquagínta annis. Et impléti sunt omnes dies ejus nongentórum quinquagínta annórum: et mórtuus est.
+
+℟. Quadragínta dies et noctes apérti sunt cæli, et ex omni carne habénte spíritum vitæ ingréssa sunt in arcam: \* Et clausit a foris óstium Dóminus. ℣. In artículo diéi illíus ingréssus est Noë in arcam et fílii ejus, et uxor illíus et uxóres filiórum ejus. — Et. Glória Patri. Et.
+
+---
+
+### Feria Sexta
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 10, 1-6*
+
+HÆ sunt generatiónes filiórum Noë, Sem, Cham, et Japheth: natíque sunt eis fílii post dilúvium. Fílii Japheth: Gomer, et Magog, et Mádai, et Javan, et Thubal, et Mosoch, et Thiras. Porro fílii Gomer: Ascénez, et Ríphath, et Thogórma. Fílii autem Javan: Elísa, et Tharsis, Cetthim, et Dódanim. Ab his divísæ sunt ínsulæ géntium in regiónibus suis, unusquísque secúndum linguam suam et famílias suas in natiónibus suis. Fílii autem Cham: Chus, et Mésraim, et Phuth, et Chánaan.

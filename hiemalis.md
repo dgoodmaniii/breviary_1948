@@ -16861,3 +16861,30 @@ ET delectábitur infans ab úbere super forámine áspidis: et in cavérna régu
 #### Lectio iv
 
 ET egrediétur virga de radíce Jesse. Usque ad princípium visiónis, vel pónderis Ba-
+bylónis, quod vidit Isaías, fílius Amos, omnis hæc prophetía de Christo est: quam per partes vólumus explanáre, ne simul propósita atque disérta lectóris confúndat memóriam. Virgam et florem de radíce Jesse ipsum Dóminum Judǽi interpretántur: quod scílicet in virga regnántis poténtia, in flore pulchritúdo monstrétur.
+
+℟. Ecce véniet Dóminus, protéctor noster, Sanctus Israël, \* Corónam regni habens in cápite suo. ℣. Et dominábitur a mari usque ad mare, et a flúmine usque ad términos orbis terrárum. — Corónam.
+
+#### Lectio v
+
+NOS autem virgam de radíce Jesse sanctam Maríam Vírginem intelligámus, quæ nullum hábuit sibi fúticem cohæréntem, de qua et supra légimus: Ecce virgo concípiet et páriet fílium. Et florem, Dóminum Salvatórem, qui dicit in Cántico canticórum: Ego flos campi, et lílium convállium.
+
+℟. Sicut mater consolátur fílios suos, ita consolábor vos, dicit Dóminus: et de Jerúsalem civitáte quam elégi, véniet vobis auxílium: \* Et vidébitis, et gaudébit cor vestrum. ℣. Dabo in Sion salútem,
+
+et in Jerúsalem glóriam meam. — Et.
+
+#### Lectio vi
+
+SUPER hunc ígitur flórem, qui de trunco et radíce Jesse per Maríam Vírginem repénte consúrget, requiéscet Spíritus Dómini: quia in ipso complácuit omnem plenitúdinem divinitátis habitáre corporáliter: nequáquam per partes, ut in céteris Sanctis: sed juxta Evangélium eórum, quod Hebrǽo sermóne conscríptum legunt Nazarǽi: Descéndet super eum omnis fons Spíritus Sancti. Dóminus autem Spíritus est; et ubi Spíritus Dómini, ibi libértas.
+
+℟. Jerúsalem, plantábis víneam in móntibus tuis: exsultábis, quóniam dies Dómini véniet: surge, Sion, convértere ad Dóminum, Deum tuum: gaude et lætáre, Jacob: \* Quia de médio géntium Salvátor tuus véniet. ℣. Exsúlta satis, fília Sion: júbila, fília Jerúsalem. — Quia. Glória Patri. Quia.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 11, 2-10*
+
+IN illo témpore: Cum audísset Joánnes in vínculis ópera Christi, mittens duos de discípulis

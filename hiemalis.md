@@ -29221,3 +29221,66 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum Ambrósium minístrum tribuíst
 {RUBRIC: Vésperæ de sequénti, Commemoratio Fériæ tantum.}
 
 ---
+
+## Die 8 Decembris
+
+### In Conceptione Immaculata B. Mariæ Virginis
+
+{RUBRIC: Duplex I classis cum Octava communi}
+
+{RUBRIC: Omnia de Communi Festórum B. Maríæ Vírginis, prǽter ea quæ hic habéntur própria.}
+
+##### In I Vesperis
+
+**Ant. 1** Tota pulchra \* es, María, et mácula originális non est in te.
+
+**2** Vestiméntum tuum \* cándidum quasi nix, et fácies tua sicut sol.
+
+**3** Tu glória Jerúsalem, \* tu lætítia Israël, tu honorificéntia pópuli nostri.
+
+**4** Benedícta es tu, \* Virgo María, a Dómino Deo excélso præ ómnibus muliéribus super terram.
+
+**5** Trahe nos, \* Virgo immaculáta, post te currémus in odórem unguentórum tuórum.
+
+**Capit.** *Prov. 8, 22-24*
+
+DOMINUS possédit me in inítio viárum suárum, ántequam quidquam fáceret a princípio. Ab ætérno ordináta sum, et ex antíquis ántequam terra fíeret. Nondum erant abýssi, et ego jam concépta eram.
+
+{RUBRIC: Prima strópha sequéntis Hymni dícitur flexis génibus.}
+
+#### Hymnus
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus. Amen.

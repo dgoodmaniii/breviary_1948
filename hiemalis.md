@@ -25678,3 +25678,28 @@ NAM, et si ámplius áliquid gloriátus fúero de potestáte nostra, quam dedit 
 SI gloriári opórtet (non éxpedit quidem) véniam autem ad visiónes, et revelatiónes Dómini. Scio hóminem in Christo ante annos quatuórdecim (sive in córpore néscio, sive extra corpus, néscio, Deus scit:) raptum hujúsmodi usque ad tértium cælum. Et scio hujúsmodi hóminem, (sive in córpore, sive extra corpus, néscio, Deus scit:) quóniam raptus est in paradísum: et audívit arcána verba, quæ non licet hómini loqui.
 
 ℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum: \* Quia misericórdia tua,
+Dómine, magna est super me. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — Quia.
+
+#### Lectio ii
+
+PRO hujúsmodi gloriábor: pro me autem nihil gloriábor nisi in infirmitátibus meis. Nam, et si volúero gloriári, non ero insípiens: veritátem enim dicam: parco autem, ne quis me exístimet supra id, quod videt in me, aut áliquid audit ex me. Et ne magnitúdo revelatiónum extóllat me, datus est mihi stímulus carnis meæ ángelus sátanæ, qui me colaphízet. Propter quod ter Dóminum rogávi, ut discéderet a me: et dixit mihi: Súfficit tibi grátia mea: nam virtus in infirmitáte perficitur.
+
+℟. Misericórdia tua, Dómine, magna est super me: \* Et liberásti ánimam meam ex inférno inferióri. ℣. In die tribulatiónis meæ clamávi ad te, quia exaudísti me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+LIBÉNTER ígitur gloriábor in infirmitátibus meis, ut inhábitet in me virtus Christi. Propter quod pláceo mihi in infirmitátibus meis, in contuméliis, in necessitátibus, in persecutiónibus, in angústiis pro Christo: Cum enim infírmor, tunc potens sum. Factus sum insípiens, vos me coëgístis. Ego enim a vobis débui commendári: nihil enim minus fui ab iis, qui sunt supra modum Apóstoli: tametsi nihil sum.
+
+℟. Factus est mihi Dóminus in refúgium: \* Et Deus meus in auxílium spei meæ. ℣. Erípuit me de inimícis meis fortíssimis, et factus est Dóminus protéctor meus. — Et. Glória Patri. Et.
+
+### Sabbato
+
+{RUBRIC: De Epístola secúnda ad Corínthios}
+
+#### Lectio i
+
+*Cap. 13, 1-13*
+
+ECCE tértio hoc vénio ad vos: In ore duórum vel trium téstium stabit omne verbum. Prædíxi, et prædíco, ut præsens, et nunc absens iis, qui ante peccavérunt, et céteris ómnibus, quóniam si vénero íterum, non parcam. An experiméntum quǽritis ejus, qui in me lóquitur Christus, qui in vobis non infirmátur, sed potens est in vobis? Nam etsi crucifíxus est ex infirmitáte: sed vivit ex virtúte Dei. Nam et nos infírmi sumus

@@ -6866,3 +6866,68 @@ MULTÆ fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax 
 ##### Pro Dedicatione Ecclesiæ
 
 ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra
+ non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+##### In Officiis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+---
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+---
+
+### Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Respéxit me.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria III post Dominicam I:} **Ant.** Jucundáre.
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Emítte Agnum, Dómine.
+
+### Psalmus 39, i
+
+EXSPECTANS exspectávi Dóminum, \* et inténdit mihi.
+
+Et exaudívit preces meas: \* et edúxit me de lacu misériæ, et de luto fæcis.
+
+Et státuit super petram pedes meos: \* et diréxit gressus meos.
+
+Et immísit in os meum cánticum novum, \* carmen Deo nostro.
+
+Vidébunt multi, et timébunt: \* et sperábunt in Dómino.
+
+Beátus vir, cujus est nomen Dómini spes ejus: \* et non respéxit in vanitátes et insánias falsas.
+
+Multa fecísti tu, Dómine, Deus meus, mirabília tua: \* et cogitatiónibus tuis non est qui símilis sit tibi.

@@ -32992,4 +32992,18 @@ FRANCISCUS in óppido Salésio, unde famíliæ cognómen, piis et nobílibus par
 
 #### Lectio v
 
-RECUSÁTA in Sabáudiæ senátu amplíssima dignitáte, clericáli milítiæ nomen dedit. Tum sacerdótio initiátus et Genevénsis ecclésiæ præpositúram adéptus, ejus múneris partes ádeo perfécte explévit, ut eum Granérius epíscopus vindicándis ab hǽresi Calviniána Chabalicénsibus aliísque Genévæ finítimis pópulis, divíni verbi præcónem destinárit. Quam expeditiónem álacri ánimo suscípiens, aspérrima quæque perpéssus est, sæpe ab hæréticis conquisítus ad necem, variísque calúmniis et insídiis vexátus. Sed inter tot discrímina et agónes, insuperábilis ejus constántia semper enítuit; Deíque ope protéctus, septuagínta
+RECUSÁTA in Sabáudiæ senátu amplíssima dignitáte, clericáli milítiæ nomen dedit. Tum sacerdótio initiátus et Genevénsis ecclésiæ præpositúram adéptus, ejus múneris partes ádeo perfécte explévit, ut eum Granérius epíscopus vindicándis ab hǽresi Calviniána Chabalicénsibus aliísque Genévæ finítimis pópulis, divíni verbi præcónem destinárit. Quam expeditiónem álacri ánimo suscípiens, aspérrima quæque perpéssus est, sæpe ab hæréticis conquisítus ad necem, variísque calúmniis et insídiis vexátus. Sed inter tot discrímina et agónes, insuperábilis ejus constántia semper enítuit; Deíque ope protéctus, septuagíntaduo míllia hæreticórum ad cathólicam fidem redúxisse dícitur, inter quos multi nobilitáte et doctrína insígnes numerántur.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+MORTUO Granério, qui eum sibi coadjutórem decérni curáverat, epíscopus consecrátus, sanctitátis suæ rádios circumquáque diffúdit, zelo ecclesiásticæ discíplinæ, pacis stúdio, misericórdia in páuperes, omníque virtúte conspícuus. Ad divíni cultus augméntum novum órdinem sanctimoniálium instítuit, a Visitatióne beátæ Vírginis nuncupátum, sub régula sancti Augustíni; cui áddidit constitutiónes sapiéntia, discretióne et suavitáte mirábiles. Suis étiam scriptis cælésti doctrína refértis Ecclésiam illustrávit, quibus iter ad christiánam perfectiónem tutum et planum demónstrat. Annum dénique agens quinquagésimum quintum, dum e Gállia Annésium regréditur, post Sacrum in die sancti Joánnis Evangelístæ Lugdúni celebrátum, gravi morbo corréptus, sequénti die migrávit in cælum, anno Dómini millésimo sexcentésimo vigésimo secúndo. Ejus corpus Annésium delátum, in ecclésia moniálium dicti órdinis honorífice cónditum fuit, cœpítque statim miráculis claréscere. Quibus rite probátis, ab Alexándro séptimo Pontífice máximo in Sanctórum númerum relátus est, assignáta ejus festivitáti die vigésima nona Januárii; et a summo Pontífice Pio nono, ex sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctor fuit declarátus.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+FRANCISCUS in óppido Salésio, unde famíliæ cognómen, piis et nobílibus paréntibus natus et liberálibus disciplínis eru-

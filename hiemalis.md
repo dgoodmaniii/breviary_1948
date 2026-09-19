@@ -33431,3 +33431,41 @@ Tribus honor unus. Amen.
 ℣. Respónsum accépit Símeon a Spíritu Sancto. ℟. Non visúrum se mortem, nisi vidéret Christum Dómini.
 
 **Ad Magnif. Ant.** Senex \* Púerum portábat, Puer autem senem regébat: quem virgo péperit, et post partum virgo mánsit: ipsum quem génuit, adorávit.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, majestátem tuam súpplices exorámus: ut, sicut unigénitus Fílius tuus hodiérna die cum nostræ carnis substántia templo est præsentátus; ita nos fácias purificátis tibi méntibus præsentári. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+**Oratio** C 1
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti Ignátii Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+### Ad Matutinum
+
+**Invitat.** Ecce venit ad templum sanctum suum Dominátor Dóminus: \* Gaude et lætáre, Sion, occúrrens Deo tuo. **Ps. 94** Veníte, exsultémus. 3
+
+### In I Nocturno
+
+{RUBRIC: De libro Exodi}
+
+#### Lectio i
+
+*Cap. 13, 1-3, 11-13*
+
+LOCÚTUS est Dóminus ad Móysen, dicens: Sanctífica mihi omne primogénitum quod áperit vulvam in fíliis Israël, tam de homínibus quam de juméntis; mea sunt enim ómnia. Et ait Móyses ad pópulum: Cum introdúxerit te Dóminus in terram Chananǽi, sicut jurávit tibi et pátribus tuis, et déderit tibi eam; separábis omne quod áperit vulvam Dómino, et quod primitívum est in pecóribus tuis; quidquid habúeris masculíni sexus, consecrábis Dómino. Primogénitum ásini mutábis ove; quod, si non redémeris, interfícies. Omne autem primogénitum hóminis de fíliis tuis, prétio rédimes.
+
+℟. Adórna thálamum tuum, Sion, et súscipe Regem Christum: \* Quem virgo concépit, virgo péperit, virgo post partum, quem génuit, adorávit. ℣. Accípiens Símeon púerum in mánibus, grátias agens benedíxit Dóminum. — Quem.
+
+{RUBRIC: De libro Levítici}
+
+#### Lectio ii
+
+*Cap. 12, 1-8*
+
+LOCÚTUS est Dóminus ad Móysen, dicens: Lóquere fíliis Israël, et dices ad eos: Múlier, si suscépto sémine pepérerit másculum, immúnda erit septem diébus juxta dies separatiónis ménstruæ. Et die octávo circumcidétur

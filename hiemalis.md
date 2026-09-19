@@ -26306,3 +26306,26 @@ FINIS autem præcépti est cáritas de corde puro, et consciéntia bona, et fide
 GRÁTIAS ago ei, qui me confortávit Christo Jesu Dómino nostro, quia fidélem me existimávit, ponens in ministério: qui prius blasphémus fui, et persecútor, et contumeliósus: sed misericórdiam Dei consecútus sum, quia ignórans feci in incredulitáte. Superabundávit autem grátia Dómini nostri cum fide et dilectióne, quæ est in Christo Jesu. Fidélis sermo, et omni acceptióne dignus: quod Christus Jesus venit in hunc mundum peccatóres salvos fácere, quorum primus ego sum. Sed ídeo misericórdiam consecútus sum: ut in me primo osténderet Christus Jesus omnem patiéntiam ad informatiónem eórum, qui creditúri sunt illi, in vitam ætérnam.
 
 ℟. A dextris est mihi Dóminus, ne commóvear: \* Propter hoc dilatátum est cor meum, et exsultávit lingua mea. ℣. Dóminus pars hereditátis meæ,
+et cálicis mei. — Propter hoc dilatátum est cor meum, et exsultávit lingua mea. Glória. Propter.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: De verbis Apostoli, Sermo 8 sub initio}
+
+#### Lectio iv
+
+HUMÁNUS sermo, et omni acceptióne dignus, quia Christus Jesus venit in hunc mundum peccatóres salvos fácere. Atténde Evangélium: venit enim Fílius hóminis quǽrere, et salváre, quod períerat. Si homo non periísset, Fílius hóminis non venísset. Ergo períerat homo: venit Deus homo, et invéntus est homo. Períerat homo per líberam voluntátem: venit Deus homo per grátiam liberatrícem.
+
+℟. Notas mihi fecísti, Dómine, vias vitæ: \* Adimplébis me lætítia cum vultu tuo: delectatiónes in déxtera tua usque in finem. ℣. Tu es qui restítues hereditátem meam mihi. — Adimplébis.
+
+#### Lectio v
+
+QUÆRIS, quid váleat ad malum líberum arbítrium? Récole hóminem peccántem. Quæris, quid váleat ad auxílium Deus et homo? Atténde in eo grátiam liberántem. Nusquam pótuit sic osténdi, quantum váleat volúntas hóminis usurpáta per supérbiam, ad uténdum sine adjutório Dei: malum non pótuit plus, et maniféstius éxprimi, quam in hómine primo. Ecce perit primus homo, et ubi esset, nisi venísset secúndus homo? quia et ille homo, ídeo et iste homo; et ídeo humánus sermo.
+
+℟. Díligam te, Dómine, virtus mea: Dóminus firmaméntum meum, \* Et refúgium meum. ℣. Liberátor meus, Deus meus, adjútor meus. — Et.
+
+#### Lectio vi
+
+PRORSUS nusquam sic appáret benígnitas grátiæ, et liberálitas omnipoténtiæ Dei, quam in hómine mediatóre Dei et hóminum, hómine Christo Jesu. Quid enim dícimus, fratres mei? In fide cathólica nutrítis loquor, vel in pacem cathólicam lucrátis. Nóvimus et tenémus, mediatórem Dei et hóminum, hóminem Christum Jesum, in quantum homo erat, ejus esse natúræ, cujus et nos sumus. Non enim altérius natúræ caro nostra, et caro illíus: nec altérius natúræ ánima nostra, et ánima illíus. Hanc suscépit

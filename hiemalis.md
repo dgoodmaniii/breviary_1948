@@ -24975,3 +24975,28 @@ IN quo fídei nostræ magnum præsídium providéntia divína constítuit: ut, d
 #### Lectio vi
 
 AD roborándam ergo hanc fidem, quæ contra omnes præmuniebátur erróres, ex magna gestum est divíni pietáte consílii ut gens in longínqua Oriéntális plagæ regióne con-
+sístens, quæ spectandórum síderum arte pollébat, signum nati púeri, qui supra omnem Israël esset regnatúrus, accíperet. Nova étenim cláritas apud Magos stellæ illustrióris appáruit, et intuéntium ánimos ita admiratióne sui splendóris implévit, ut nequáquam sibi créderent negligéndum, quod tanto nuntiabátur indício.
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 1-12*
+
+CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab Oriénte venérunt Jerosólymam, dicéntes: Ubi est qui natus est Rex Judæórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilia 8, in Matth., n. 1}
+
+MAGI, intrántes domum, vidérunt púerum cum María, matre ejus. Et procidéntes adoravérunt eum; et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. Verum quid illos ad púerum adorándum indúxit? Neque enim Virgo insígne quídpiam præ se ferébat, neque domus magnífica erat, neque istic áliquid áliud erat quod posset illos vel percéllere vel allícere. Illi vero non modo adórant, sed, apértis thesáuris suis, múnera ófferunt, múnera, inquam, non quasi hómini, sed quasi Deo. Thus enim et myrrha máxime Dei symbolum erat. Quid ígitur hoc illis suásit? Idípsum quod excitávit illos, ut, relícta domo, tantum iter suscíperent; nimírum stella et illustrátio mentis a Deo ipsis índita, quæ paulátim illos ad perfectiórem notítiam dedúxit.
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+#### Lectio viii
+
+NISI enim res ita se habéret, cum ómnia quæ istic videbántur, vília essent, non ei tantum exhi-

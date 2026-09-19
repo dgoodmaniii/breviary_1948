@@ -32222,7 +32222,9 @@ Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delíct
 
 Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
 
-Dómine, adjútor meus, \* et redémptor meus.**Ant.** Scio cui crédidi, \* et certus sum quia potens est depósitum meum serváre in illum diem justus judex.
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** Scio cui crédidi, \* et certus sum quia potens est depósitum meum serváre in illum diem justus judex.
 
 ###### Psalmus 33
 
@@ -32268,7 +32270,9 @@ Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
 
 Mors peccatórum péssima: \* et qui odérunt justum, delínquent.
 
-Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.**Ant.** Mihi vívere Christus est, \* et mori lucrum: gloriári me opórtet in cruce Dómini nostri Jesu Christi.
+Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Mihi vívere Christus est, \* et mori lucrum: gloriári me opórtet in cruce Dómini nostri Jesu Christi.
 
 ###### Psalmus 44
 
@@ -32310,7 +32314,9 @@ Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super om
 
 Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
 
-Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.**Ant.** Mihi vívere Christus est, et mori lucrum: gloriári me opórtet in cruce Dómini nostri Jesu Christi.
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.
+
+**Ant.** Mihi vívere Christus est, et mori lucrum: gloriári me opórtet in cruce Dómini nostri Jesu Christi.
 
 ℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
 
@@ -32338,7 +32344,9 @@ ERAT autem quidam discípulus Damásci, nómine Ananías: et dixit ad illum in v
 
 ### In II Nocturno
 
-**Ant.** Tu es vas electiónis, \* sancte Paule Apóstole, prædicátor veritátis in univérso mundo.###### Psalmus 46
+**Ant.** Tu es vas electiónis, \* sancte Paule Apóstole, prædicátor veritátis in univérso mundo.
+
+###### Psalmus 46
 
 OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
 
@@ -32382,7 +32390,9 @@ Sic psalmum dicam nómini tuo in séculum séculi: \* ut reddam vota mea de die 
 
 **Ant.** Magnus sanctus Paulus vas electiónis, vere digne est glorificándus, qui et méruit thronum duodécimum possidére.
 
-**Ant.** Bonum certámen \* certávi, cursum consummávi, fidem servávi.###### Psalmus 63
+**Ant.** Bonum certámen \* certávi, cursum consummávi, fidem servávi.
+
+###### Psalmus 63
 
 EXÁUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
 

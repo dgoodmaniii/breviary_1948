@@ -17562,3 +17562,72 @@ EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte su
 #### Sequentes Antiphonæ ad Laudes et per Horas
 
 {RUBRIC: dicúntur in sex Fériis ante Vigíliam Nativitátis, et incipiúntur die 17 Decémbris ab Antiphónis quæ Fériæ illíus diéi assignántur. Simíliter et áliæ dicúntur in própriis Fériis. Quod si dies 17 fúerit Domínica, Antíphonæ inchoántur sequénti Féria II, quæ erit dies 18. Quæ autem dicéndæ essent diébus, in}
+quibus occúrrat Festum novem Lectiónum, eo anno omittúntur.
+
+### Feria Secunda
+
+#### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Ecce véniet \* Dóminus princeps regum terræ: beáti, qui paráti sunt occúrrere illi.
+
+{RUBRIC: Psalmi de Féria 2 loco. 90}
+
+**2** Cum vénerit \* Fílius hóminis, putas, invéniet fidem super terram?
+
+**3** Ecce jam venit \* plenitúdo témporis, in quo misit Deus Fílium suum in terras.
+
+**4** Hauriétis aquas \* in gáudio de fóntibus Salvatóris.
+
+**5** Egrediétur \* Dóminus de loco sancto suo: véniet ut salvet pópulum suum.
+
+### Feria Tertia
+
+#### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Roráte, cæli, désuper, \* et nubes pluant justum: aperiátur terra, et gérminet Salvatórem.
+
+{RUBRIC: Psalmi de Féria 2 loco. 128}
+
+**2** Emítte Agnum, Dómine, \* Dominatórem terræ, de Petra desérti, ad montem fíliæ Sion.
+
+**3** Ut cognoscámus, Dómine, \* in terra viam tuam, in ómnibus géntibus salutáre tuum.
+
+**4** Da mercédem, Dómine, \* sustinéntibus te, ut prophétæ tui fidéles inveniántur.
+
+**5** Lex per Móysen data est, \* grátia et véritas per Jesum Christum facta est.
+
+### Feria Quarta
+
+#### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Prophétæ prædicavérunt \* nasci Salvatórem de Vírgine María.
+
+{RUBRIC: Psalmi de Féria 2 loco. 168}
+
+**2** Spíritus \* Dómini super me, evangelizáre paupéribus misit me.
+
+**3** Propter Sion \* non tacébo, donec egrediátur ut splendor justus ejus.
+
+**4** Ecce véniet Dóminus, \* ut sédeat cum princípibus, et sólium glóriæ téneat.
+
+**5** Annuntiáte \* pópulis, et dícite: Ecce Deus Salvátor noster véniet.
+
+### Feria Quinta
+
+#### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** De Sion \* véniet Dóminus omnípotens, ut salvum fáciat pópulum suum.
+
+{RUBRIC: Psalmi de Féria 2 loco. 207}
+
+**2** Convértere, Dómine, \* aliquántulum, et ne tardes veníre ad servos tuos.
+
+**3** De Sion \* véniet, qui regnatúrus est Dóminus, Emmánuel magnum nomen ejus.

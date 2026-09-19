@@ -32477,3 +32477,47 @@ Et inclinávit ex hoc in hoc: verúmtamen fæx ejus non est exinaníta: \* biben
 Ego autem annuntiábo in sǽculum: \* cantábo Deo Jacob.
 
 Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.
+
+**Ant.** Saulus, qui et Paulus, magnus prædicátor, a Deo confortátus convalescébat, et confundébat Judǽos.
+
+**Ant.** Ne magnitúdo \* revelatiónum extóllat me, datus est mihi stímulus carnis meæ, ángelus sátanæ, qui me colaphízet: propter quod ter Dóminum rogávi, ut auferrétur a me, et dixit mihi Dóminus: Súfficit tibi, Paule, grátia mea.
+
+###### Psalmus 96
+
+DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Ne magnitúdo revelatiónum extóllat me, datus est mihi stímulus carnis meæ, ángelus sátanæ, qui me colaphízet: propter quod ter Dóminum rogávi, ut auferrétur a me, et dixit mihi Dóminus: Súfficit tibi, Paule, grátia mea.
+
+**Ant.** Repósita est mihi \* corona justítiæ, quam reddet mihi Dóminus in illa die justus judex.
+
+###### Psalmus 98
+
+DOMINUS regnávit, iráscántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.

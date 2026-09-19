@@ -31959,7 +31959,7 @@ ANNUM círciter quintum supra quadragésimum agens, in órdine fratrum Prædicat
 
 AB eódem Gregório Romam accersítus, et capelláni ac pœnitentiárii et confessárii sui múnere decorátus, ejúsdem jussu Romanórum Pontíficum decréta, in divérsis concíliis et epístolis sparsa, in unum Decretálium volúmen redégit. Archiepiscopátum Tarraconénsem ab ipso Pontífice sibi oblátum constantíssime recusávit, et totíus órdinis Prædicatórum generále magistérium, quod per biénnium sanctíssime administráverat, sponte dimísit. Jacóbo Aragóniæ regi sacræ Inquisitiónis offícii suis in regnis instituéndi auctor fuit. Multa patrávit mirácula, inter quæ illud claríssimum, quod ex ínsula Baleári Majóri Barcinónem reversúrus, strato super aquas pállio centum sexagínta milliária sex horis confécerit et suum cœnóbium jánuis clausis fúerit ingréssus. Tandem prope centenárius, virtútibus et méritis cumulátus, obdormívit in Dómino, anno salútis millésimo ducentésimo septuagésimo quinto. Quem Clemens octávus in Sanctórum númerum rétulit.
 
-℟. Iste homo perfécit ómnia quæ locútus est eiDeus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
 
 {RUBRIC: Pro hoc Festo simplificato}
 
@@ -34322,4 +34322,18 @@ ROMUÁLDUS, Ravénnæ, Sérgio patre, nóbili génere natus, adoléscens in prop
 
 #### Lectio v
 
-MULTIS sátanæ insídiis et hóminum invídia oppugnátus, tanto humílior se assídue jejúniis et oratiónibus exercébat, et
+MULTIS sátanæ insídiis et hóminum invídia oppugnátus, tanto humílior se assídue jejúniis et oratiónibus exercébat, et rerum cæléstium meditatióne, vim lacrimárum profúndens, fruebátur: vultu tamen ádeo læto semper erat, ut intuéntes exhiláraret. Magno apud príncipes et reges in honóre fuit; multíque ejus consílio, mundi illécebris abjéctis, solitúdinem petiérunt. Martýrii quoque cupiditáte flagrávit, cujus causa dum in Pannóniam proficíscitur, morbo, quo afflictabátur cum progrederétur, levabátur cum recéderet, revérti cógitur.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+IN vita et post mortem miráculis clarus, spíritu étiam prophetíæ non cáruit. Scalam a terra cælum pertingéntem, in similitúdinem Jacob Patriárchæ, per quam hómines in veste cándida ascendébant et descendébant, per visum conspéxit; eóque Camaldulénses mónachos, quorum institúti auctor fuit, designári mirabíliter agnóvit. Dénique cum annos centum et vigínti ágeret, et centum ipsos in summa vitæ asperitáte
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ROMUÁLDUS, Ravénnæ, Sérgio patre, nóbili génere natus, adoléscens in propínquum monastérium Classénse pœniténtiæ causa secéssit; ubi ad pietátis stúdium veheméntius incénsus et beáti Apollináris apparitióne recreátus, mónachus effícitur. Jejúniis et oratiónibus assídue se exércuit, vultu tamen ádeo lætus, ut intuéntes exhiláraret. Martýrii cupiditáte flagrans, dum in Pannóniam proficíscitur, morbo corréptus, revérti cógitur. Institúti monachórum Camaldulén-

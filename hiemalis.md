@@ -27717,3 +27717,31 @@ EVÍGILANS autem Noë ex vino, cum didicísset quæ fécerat ei fílius suus min
 *Cap. 10, 1-6*
 
 HÆ sunt generatiónes filiórum Noë, Sem, Cham, et Japheth: natíque sunt eis fílii post dilúvium. Fílii Japheth: Gomer, et Magog, et Mádai, et Javan, et Thubal, et Mosoch, et Thiras. Porro fílii Gomer: Ascénez, et Ríphath, et Thogórma. Fílii autem Javan: Elísa, et Tharsis, Cetthim, et Dódanim. Ab his divísæ sunt ínsulæ géntium in regiónibus suis, unusquísque secúndum linguam suam et famílias suas in natiónibus suis. Fílii autem Cham: Chus, et Mésraim, et Phuth, et Chánaan.
+
+℟. Ædificávit Noë altáre Dómino, ófferens super illud holocáustum: odoratúsque est Dóminus odórem suavitátis, et benedíxit ei, dicens: \* Créscite, et multiplicámini, et repléte terram. ℣. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos. — Créscite.
+
+#### Lectio ii
+
+*Cap. 11, 1-8*
+
+ERAT autem terra lábii uníus, et sermónum eorúmdem. Cumque proficisceréntur de Oriénte, invenérunt campum in terra Sénnaar, et habitavérunt in eo. Dixítque alter ad próximum suum: Veníte, faciámus láteres, et coquámus eos igni. Habuerúntque láteres pro saxis, et bitúmen pro cæménto: et dixérunt: Veníte, faciámus nobis civitátem, et turrim, cujus culmen pertíngat ad cælum: et celebrémus nomen nostrum ántequam dividámur in univérsas terras.
+
+℟. Ponam arcum meum in núbibus cæli, dixit Dóminus ad Noë: \* Et recordábor fœderis mei, quod pépigi tecum. ℣. Cumque obdúxero núbibus cælum, apparébit arcus meus in núbibus. — Et.
+
+#### Lectio iii
+
+DESCÉNDIT autem Dóminus ut vidéret civitátem et turrim, quam ædificábant fílii Adam, et dixit: Ecce unus est pópulus, et unum lábium ómnibus: cœperúntque hoc fácere, nec desístent a cogitatiónibus suis, donec eas ópere cómpleant. Veníte ígitur, descendámus, et confundámus ibi linguam eórum, ut non áudiat unusquísque vocem próximi sui. Atque ita divísit eos Dóminus ex illo loco in univérsas terras, et cessavérunt ædificáre civitátem.
+
+℟. Per memetípsum jurávi, dicit Dóminus, non adjíciam ultra aquas dilúvii super terram: pacti mei recordábor, \* Ut non perdam aquis dilúvii omnem carnem. ℣. Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. — Ut. Glória Patri. Ut.
+
+---
+
+### Sabbato
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 11, 10-30*
+
+HÆ sunt generatiónes Sem: Sem erat centum annórum, quando génuit Arpháxad, biénnio post dilúvium. Vixítque Sem, postquam génuit Ar-

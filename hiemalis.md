@@ -7782,9 +7782,7 @@ Proptérea pópuli confitebúntur tibi in ætérnum: \* et in séculum séculi.
 
 DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
 
-Proptérea non timébimus dum turbábitur terra: \*
-
-et transferéntur montes in cor maris.
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
 
 Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
 
@@ -21790,3 +21788,94 @@ ET vidit omnis pópulus eum ambulántem, et laudántem Deum. Cognoscébant autem
 *Cap. 4, 5-12*
 
 FACTUM est autem in crástinum, ut congregaréntur príncipes eórum, et senióres, et scribæ in Jerúsalem: et Annas princeps sacerdótum, et Cáiphas, et Joánnes, et Alexánder, et quotquot erant de génere sacerdotáli. Et statuéntes eos in médio, interrogábant: In qua virtúte, aut in quo nómine fecístis hoc vos? Tunc replétus Spíritu Sancto Petrus, dixit ad eos: Príncipes pópuli et senióres, audíte: Si nos hódie dijudicámur in benefácto hóminis infírmi, in quo iste salvus factus est, notum sit ómnibus vobis, et omni plebi Israël: quia in nómine Dó-
+mini nostri Jesu Christi Nazaréni, quem vos crucifixístis, quem Deus suscitávit a mórtuis, in hoc iste adstat coram vobis sanus. Hic est lapis, qui reprobátus est a vobis ædificántibus, qui factus est in caput ánguli: et non est in álio áliquo salus. Nec enim áliud nomen est sub cælo datum homínibus, in quo opórteat nos salvos fíeri.
+
+℟. Laudábo nomen tuum assídue, \* Et collaudábo illud in confessióne. ℣. Lætábor et exsultábo in te: psallam nómini tuo, Altíssime. — Et. Glória Patri. Et.
+
+### In II Nocturno
+
+**Ant.** Mémores erunt \* nóminis tui, Dómine, in omni generatióne et generatiónem.
+
+#### Psalmus 44
+
+ERUCTÁVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* poténtíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent: \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in séculum séculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto: \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam: \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sæculum sæculi.
+
+**Ant.** Mémores erunt nóminis tui, Dómine, in omni generatióne et generatiónem.
+
+**Ant.** Magnificáte \* Dóminum mecum, et exaltémus nomen ejus in idípsum.
+
+#### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Magnificáte Dóminum mecum, et exaltémus nomen ejus in idípsum.
+
+**Ant.** Omnes gentes, \* quascúmque fecísti, vénient, et adorábunt coram te, Dómine, et glorificábunt nomen tuum.
+
+#### Psalmus 86
+
+FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.

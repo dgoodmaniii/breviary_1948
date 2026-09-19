@@ -18332,3 +18332,30 @@ habitatóres eárum. Sublevétur desértum, et civitátes ejus; in dómibus habi
 #### Oratio
 
 EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis
+virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpédiunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.
+
+**Ad Magnif. Ant.** O. {RUBRIC: 355}
+
+---
+
+### Feria Quarta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 51, 1-8*
+
+AUDÍTE me, qui sequímini quod justum est, et quǽritis Dóminum: attén­dite ad petram unde excísi estis, et ad cavérnam laci, de qua præcísi estis. Atténdite ad Abraham patrem vestrum, et ad Saram, quæ péperit vos: quia unum vocávi eum, et benedíxi ei, et multiplicávi eum. Consolábitur ergo Dóminus Sion, et consolábitur omnes ruínas ejus: et ponet desértum ejus quasi delícias, et solitúdinem ejus quasi hortum Dómini. Gáudium et lætítia inveniétur in ea, gratiárum áctio, et vox laudis.
+
+℟. Jurávi, dicit Dóminus, ut ultra jam non iráscar super terram: montes enim et colles suscípient justítiam meam, \* Et testaméntum pacis erit in Jerúsalem. ℣. Juxta est salus mea, ut véniat: et justítia mea, ut revelétur. — Et.
+
+#### Lectio ii
+
+ATTÉNDITE ad me, pópule meus, et tribus mea, me audíte: quia lex a me éxiet, et judícium meum in lucem populórum requiéscet. Prope est justus meus, egréssus est salvátor meus, et bráchia mea pópulos judicábunt: me ínsulæ exspectábunt, et bráchium meum sustinébunt. Leváte in cælum óculos vestros, et vidéte sub terra deórsum: quia cæli sicut fumus liquéscent, et terra sicut vestiméntum atterétur, et habitatóres ejus sicut hæc interíbunt: Salus autem mea in sempitérnum erit, et justítia mea non defíciet.
+
+℟. Non discédimus a te, vivificábis nos, Dómine, et nomen tuum invocábimus: \* Osténde nobis fáciem tuam, et salvi érimus. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui: vísita nos in salutári tuo. — Osténde.
+
+#### Lectio iii
+
+AUDÍTE me, qui scitis justum, pópulus meus, lex mea in corde eórum: nolíte timére oppróbrium hóminum, et blasphémias eórum ne metuátis. Sicut enim vestiméntum, sic cómedet eos vermis: et sicut lanam, sic devorábit eos tínea: Salus autem

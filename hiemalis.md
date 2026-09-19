@@ -25408,3 +25408,30 @@ DE colléctis autem, quæ fiunt in sanctos, sicut ordinávi ecclésiis Galátiæ
 {RUBRIC: Nisi resuménda sint Responsória de Fería II. [REF: p. 555]}
 
 ℟. Misericórdiam et judícium cantábo tibi, Dómi-
+ne: \* Psallam et intélligam in via immaculáta, quando vénies ad me. ℣. Perambulábam in innocéntia cordis mei, in médio domus meæ. — Psallam.
+
+#### Lectio ii
+
+VENIAM autem ad vos, cum Macedóniam pertransíero: nam Macedóniam pertransíbo. Apud vos autem fórsitan manébo, vel étiam hiemábo: ut vos me deducátis quocúmque íero. Nolo enim vos modo in tránsitu vidére: spero enim me aliquántulum témporis manére apud vos, si Dóminus permíserit. Permanébo autem Ephesi usque ad Pentecósten. Óstium enim mihi apértum est magnum, et évidens: et adversárii multi.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Dómine, exáudi oratiónem meam, et clamor meus ad te pervéniat: \* Quia non spernis, Deus, preces páuperum. ℣. Fiant aures tuæ intendéntes in oratiónem servi tui. — Quia.
+
+{RUBRIC: In Octávis simplícibus et in Officio sanctæ Maríæ in Sábbato: Glória Patri. Quia.}
+
+#### Lectio iii
+
+SI autem vénerit Timótheus, vidéte ut sine timóre sit apud vos: opus enim Dómini operátur, sicut et ego. Ne quis ergo illum spernat: dedúcite autem illum in pace, ut véniat ad me: exspécto enim illum cum frátribus. De Apóllo autem fratre vobis notum fácio, quóniam multum rogávi eum ut veníret ad vos cum frátribus: et útique non fuit volúntas ut nunc veníret: véniet autem, cum ei vácuum fúerit. Vigiláte, state in fide, viríliter ágite, et confortámini. Omnia vestra in caritáte fiant.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Velóciter exáudi me, Deus, \* Quia defecérunt sicut fumus dies mei: \* Tu autem idem ipse es, et anni tui non defícient. ℣. Dies mei sicut umbra declinavérunt, et ego sicut fœnum árui. — Quia. Glória. Tu.

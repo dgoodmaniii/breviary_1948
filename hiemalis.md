@@ -4918,3 +4918,104 @@ EXAUDI, Dómine, vocem meam, qua clamávi ad te: \* miserére mei, et exáudi me
 Tibi dixit cor meum, exquisívit te fácies mea: \* fáciem tuam, Dómine, requíram.
 
 Ne avértas fáciem tuam a me: \* ne declínes in ira a servo tuo.
+
+Adjútor meus esto: \* ne derelínquas me, neque despícias me, Deus, salutáris meus.
+
+Quóniam pater meus, et mater mea dereliquérunt me: \* Dóminus autem assúmpsit me.
+
+Legem pone mihi, Dómine, in via tua: \* et dírige me in sémitam rectam propter inimícos meos.
+
+Ne tradíderis me in ánimas tribulántium me: \* quóniam insurrexérunt in me testes iníqui, et mentíta est iníquitas sibi.
+
+Credo vidére bona Dómini \* in terra vivéntium.
+
+Exspécta Dóminum, viríliter age: \* et confortétur cor tuum, et sústine Dóminum.
+
+### Psalmus 27
+
+AD te, Dómine, clamábo, Deus meus, ne síleas a me: \* nequándo táceas a me, et assimilábor descendéntibus in lacum.
+
+Exáudi, Dómine, vocem deprecatiónis meæ dum oro ad te: \* dum extóllo manus meas ad templum sanctum tuum.
+
+Ne simul trahas me cum peccatóribus: \* et cum operántibus iniquitátem ne perdas me.
+
+Qui loquúntur pacem cum próximo suo: \* mala autem in córdibus eórum.
+
+Da illis secúndum ópera eórum, \* et secúndum nequítiam adinventiónum ipsórum.
+
+Secúndum ópera mánuum eórum tríbue illis: \* redde retributiónem eórum ipsis.
+
+Quóniam non intellexérunt ópera Dómini, et in ópera mánuum ejus \* déstrues illos, et non ædificábis eos.
+
+Benedíctus Dóminus: \* quóniam exaudívit vocem deprecatiónis meæ.
+
+Dóminus adjútor meus, et protéctor meus: \* in ipso sperávit cor meum, et adjútus sum.
+
+Et reflóruit caro mea: \* ex voluntáte mea confitébor ei.
+
+Dóminus fortitúdo plebis suæ: \* et protéctor salvatiónum Christi sui est.
+
+Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ: \* et rege eos, et extólle illos usque in ætérnum.
+
+{RUBRIC: Per Annum:} **Ant.** Illuminátio mea, et salus mea Dóminus.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria II post Dominicam I:} **Ant.** Jucundáre, fília Sion, et exsúlta satis, fília Jerúsalem, allelúja.
+
+{RUBRIC: Feria II post Dominicam II:} **Ant.** Urbs fortitúdinis nostræ Sion, Salvátor po-
+nétur in ea murus et antemurále: aperíte portas, quia nobíscum Deus, allelúja.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Cum vénerit Fílius hóminis, putas invéniet fidem super terram?
+
+**Capitulum** *Jer. 23, 5*
+
+ECCE, dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit: et fáciet judícium et justítiam in terra.
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+#### Per Annum
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+{RUBRIC: In Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 22}
+
+---
+
+### Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: Per Annum:} **Ant.** In tua justítia.

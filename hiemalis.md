@@ -30028,3 +30028,48 @@ que prosa et versu scripsit de virginitáte, múltaque ália metro édidit.
 #### Lectio vi
 
 PŒNAM taliónis constítuit iis, qui álterum falsi críminis accusássent. Státuit, ut, quod plúribus jam locis erat in usu, Psalmi per omnes ecclésias die noctúque ab altérnis caneréntur; et in fine cujúsque Psalmi dicerétur: Glória Patri, et Fílio, et Spirítui Sancto. Ejus jussu sanctus Hierónymus novum testaméntum Grǽcæ fídei réddidit. Cum Ecclésiam rexísset annos decem et septem, menses duos, dies vigínti sex, et habuísset ordinatiónes quinque mense Decémbri, quibus creávit presbýteros trigínta unum, diáconos úndecim, epíscopos per divérsa loca sexagínta duos; virtúte, doctrína ac prudéntia clarus, prope octogenárius, Theodósio senióre imperánte, obdormívit in Dómino, et via Ardeatína una cum matre et soróre sepúltus est in basílica, quam
+Psalmi dicerétur: Glória Patri, et Fílio, et Spirítui Sancto. Ejus jussu sanctus Hierónymus novum testaméntum Grǽcæ fídei réddidit. Multa étiam sanctórum Mártyrum córpora invénit, eorúmque memórias vérsibus exornávit. Virtúte, doctrína et prudéntia clarus, prope octogenárius, Theodósio senióre imperánte, obdormívit in Dómino. Te Deum.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Venit Jesus, de Communi únius aut plúrium Summórum Pontíficum.} [281]
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Dámasum Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Octávæ:}
+
+**Ant.** Ait Dóminus Deus ad serpéntem: Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus: ipsa cónteret caput tuum, allelúja.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: quǽsumus; ut, qui ex morte ejúsdem Fílii tui prævísa, eam ab omni labe præservásti, nos quoque mundos ejus intercessióne ad te perveníre concédas. (Per eúmdem Dóminum.)
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Dum esset summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+{RUBRIC: Et fit Commemoratio seq. diéi infra Octávam et Fériæ.}
+
+---
+
+## Die 12 Decembris
+
+### De V die infra Octavam Conceptionis Immaculatæ B. Mariæ V.
+
+{RUBRIC: Semiduplex} [REF: p. 702]
+
+**Ant.** Beátam me dicent omnes generatiónes, quia fecit mihi magna qui potens est, allelúja.

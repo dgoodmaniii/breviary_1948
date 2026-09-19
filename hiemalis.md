@@ -25778,3 +25778,31 @@ CAUSA, propter quam scribit Apóstolus ad Gálatas, hæc est: ut intélligant gr
 SUB hac ergo grátia jam Gálatas constitútos illi volébant constitúere sub onéribus legis, asseverántes nihil eis prodésse Evangélium, nisi circumciderétur, et céteras carnáles Judáici ritus observatiónes subírent. Et ídeo Paulum Apóstolum suspéctum habére cœpérant, a quo illis Evangélium prædicátum erat, tamquam non tenéntem disciplínam ceterórum Apostolórum, qui gentes cogébant judaizáre.
 
 ℟. Díligam te, Dómine, virtus mea: Dóminus firmaméntum meum, \* Et refúgium meum. ℣. Liberátor meus, Deus meus, adjútor meus. — Et.
+
+#### Lectio vi
+
+TALIS quidem quæstio est et in Epístola ad Romános: verúmtamen vidétur áliquid interésse, quod ibi contentiónem ipsam dírimit, litémque compónit, quæ inter eos, qui ex Judǽis, et eos, qui ex géntibus credíderant, orta erat: cum illi tamquam ex méritis óperum legis, sibi rédditum Evangélii præmium arbitrarétur, quod præmium incircumcísis tamquam imméritis nolébant dari: illi contra Judǽis se præférre gestírent, tamquam interfectóribus Dómini. In hac vero epístola ad eos scribit, qui jam commóti erant auctoritáte illórum, qui ex Judǽis erant, et ad observatiónes legis cogébant.
+
+℟. Dómini est terra, et plenitúdo ejus: \* Orbis terrárum, et univérsi qui hábitant in eo. ℣. Ipse super mária fundávit eam, et super flúmina præparávit illam. — Orbis. Glória Patri. Orbis.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 8, 1-13*
+
+IN illo témpore: Cum descendísset Jesus de monte, secútæ sunt eum turbæ multæ: et ecce leprósus véniens adorábat eum. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 1 Comment. in cap. 8 Matthæi}
+
+DE monte Dómino descendénte, occúrrunt turbæ, quia ad altióra ascéndere non valuérunt. Et primus ei occúrrit leprósus: necdum enim póterat cum lepra tam multíplicem in monte Salvatóris audíre sermónem. Et notándum, quod hic primus speciáliter curátus sit: secúndo, puer centuriónis: tértio, socrus Petri fébriens in Caphárnaum: quarto loco, qui obláti sunt ei a dæmónio vexáti: quorum spíritus verbo ejiciébat, quando et omnes male habéntes curávit.
+
+℟. Ad te, Dómine, levávi ánimam meam: \* Deus meus, in te confído, non erubéscam. ℣. Custódi ánimam meam, et éripe me. — Deus.
+
+#### Lectio viii
+
+ET ecce leprósus véniens adorábat eum, dicens. Recte post prædicatiónem atque doctrínam, signi offértur occásio, ut per virtútem miráculi, prætéritus apud audiéntes sermo firmétur. Dómine, si vis, po-

@@ -25543,3 +25543,36 @@ Te Deum laudámus.
 {RUBRIC: Hymnus Ætérne rerum [REF: p. 47], étiam in réliquis Domínicis post Epiphaníam.}
 
 ℣. Dóminus regnávit, decórem índuit. ℟. Induit
+Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Núptiæ factæ sunt \* in Cana Galilǽæ, et erat ibi Jesus cum María matre sua.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, qui cæléstia simul et terréna moderáris: supplicatiónes pópuli tui cleménter exáudi; et pacem tuam nostris concéde tempóribus. Per Dóminum.
+
+### Ad Vesperas
+
+{RUBRIC: Ómnia ut in Psaltério de Dominica. [REF: p. 70]}
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Defíciente vino, \* jussit Jesus impléri hýdrias aqua, quæ in vinum convérsa est, allelúja.
+
+### Feria Secunda
+
+{RUBRIC: De Epístola secúnda ad Corínthios}
+
+#### Lectio i
+
+*Cap. 3, 1-14*
+
+INCÍPIMUS íterum nosmetípsos commendáre? aut numquid egémus (sicut quidam) commendatíciis epístolis ad vos, aut ex vobis? Epístola nostra vos estis, scripta in córdibus nostris, quæ scitur, et légitur ab ómnibus homínibus: manifestáti quod epístola estis Christi, ministráta a nobis, et scripta non atraménto, sed Spíritu Dei vivi: non in tábulis lapídeis, sed in tábulis cordis carnálibus.
+
+℟. Quam magna multitúdo dulcédinis tuæ, Dómine, \* Quam abscondísti timéntibus te! ℣. Et perfecísti eis qui sperant in te, Dómine, in conspéctu filiórum hóminum. — Quam abscondísti.
+
+#### Lectio ii
+
+FIDÚCIAM autem talem habémus per Christum ad Deum: non quod sufficiéntes simus cogitáre áliquid a nobis, quasi ex nobis: sed sufficiéntia nostra ex Deo est: qui et idóneos nos fecit minístros novi Testaménti, non líttera, sed Spíritu: líttera enim occídit, Spíritus autem vivíficat. Quod si ministrátio mortis lítteris deformáta in lapídibus, fuit in glória, ita ut non possent inténdere fílii Israël in fáciem Móysi propter glóriam vultus ejus, quæ evacuátur: quómodo non magis ministrátio Spíritus erit in glória?
+
+℟. Adjútor meus esto, Deus: \* Ne derelínquas me. ℣. Neque despícias me, Deus, salutáris meus. — Ne.

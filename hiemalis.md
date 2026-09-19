@@ -28067,3 +28067,27 @@ UNDE et facta est rixa inter pastóres gregum Abram et Lot. Eo autem témpore Ch
 DIVISÍQUE sunt altérutrum a fratre suo. Abram habitávit in terra Chánaan: Lot vero morátus est in óppidis, quæ erant circa Jordánem, et habitávit in Sódomis. Hómines autem Sodomítæ péssimi erant, et peccatóres coram Dómino nimis. Dixítque Dóminus ad Abram, postquam divísus est ab eo Lot: Leva óculos tuos, et vide a loco, in quo nunc es, ad Aquilónem et Merídiem, ad Oriéntem et Occidéntem. Omnem terram, quam cónspicis, tibi dabo, et sémini tuo usque in sempitérnum. Faciámque semen tuum sicut púlverem terræ.
 
 ℟. Tentávit Dóminus Abraham, et dixit ad eum: \* Tolle fílium tuum, quem díligis, Isaac, et offer illum ibi in holocáustum super unum móntium, quem díxero tibi. ℣. Vocátus quoque a Dómino, respóndit, Adsum: et ait ei Dóminus. — Tolle. Glória. Tolle.
+
+**Ad Magnif. Ant.** Et qui præíbant, \* increpábant eum ut tacéret: ipse vero multo magis clamábat: Miserére mei, Fili David.
+
+---
+
+### Feria Tertia
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 14, 8-20*
+
+ET egréssi sunt rex Sodomórum, et rex Gomórrhæ, rexque Adamæ, et rex Séboim, necnon et rex Balæ, quæ est Segor: et direxérunt áciem contra eos in valle Silvéstri: scílicet advérsus Chodorláhomor regem Elamitárum, et Thadal regem Géntium, et Amraphel regem Sénnaar, et Arioch regem Ponti: quátuor reges advérsus quinque. Vallis autem Silvéstris habébat púteos multos bitúminis. Itaque rex Sodomórum, et Gomórrhæ terga vertérunt, ceciderúntque ibi: et qui remánserant, fugérunt ad montem. Tulérunt autem omnem substántiam Sodomórum et Gomórrhæ, et univérsa quæ ad cibum pértinent, et abiérunt: necnon et Lot et substántiam ejus, fílium fratris Abram, qui habitábat in Sódomis.
+
+℟. Angelus Dómini vocávit Abraham, dicens: \* Ne exténdas manum tuam super púerum, eo quod tímeas Dóminum. ℣. Cumque extendísset manum ut immoláret fílium, ecce Angelus Dómini de cælo clamávit, dicens. — Ne.
+
+#### Lectio ii
+
+ET ecce unus, qui eváserat, nuntiávit Abram Hebrǽo, qui habitábat in conválle Mambre Amorrhǽi, fratris Eschol, et fratris Aner: hi enim pepígerant fœdus cum Abram. Quod cum audísset Abram, captum vidélicet Lot fratrem suum, numerávit expedítos vernáculos suos trecéntos decem et octo: et persecútus est usque Dan. Et divísis sóciis, írruit super eos nocte: percussítque eos, et persecútus est eos usque Hoba, quæ est ad lævam Damásci. Reduxítque omnem substántiam, et Lot fratrem suum cum substántia illíus, mulíeres quoque et pópulum.
+
+℟. Vocávit Angelus Dómini Abraham de cælo, secúndo, dicens: Benedícam tibi, \* Et multiplicábo te sicut stellas cæli. ℣. Possidébit semen tuum portas inimicórum tuórum, et benedicéntur in sémine tuo omnes tribus terræ. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}

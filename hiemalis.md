@@ -28611,3 +28611,52 @@ Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.
 DÓMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
 
 Nubes, et calígo in circúitu ejus: \* justítia, et
+judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Ángeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Andréas vero rogábat pópulum, ut non impedíret passiónem ipsíus.
+
+**Ant.** Accípe me ab homínibus \* et redde me magístro meo: ut per te me recípiat, qui per te me redémit, allelúja.
+
+###### Psalmus 98
+
+DÓMINUS regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum Deum nostrum, et adoráte in

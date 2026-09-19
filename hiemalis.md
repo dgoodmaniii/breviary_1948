@@ -27431,3 +27431,59 @@ EXPONÉNDO ergo quod dixit, figuráte se loqui innótuit: quátenus certos nos r
 #### Lectio ix
 
 FALLÁCES enim sunt, quæ nobíscum diu permanére non possunt: falláces sunt, quæ mentis nostræ inópiam non expéllunt. Solæ autem divítiæ veræ sunt, quæ nos dívites virtútibus fáciunt. Si ergo, fratres caríssimi, esse dívites cúpitis, veras diví-
+tias amáte. Si culmen veri honóris quǽritis, ad cæléste regnum téndite. Si glóriam dignitátum dilígitis, in illa supérna Angelórum cúria adscríbi festináte. Verba Dómini, quæ aure percípitis, mente retinéte. Cibus enim mentis est sermo Dei: et quasi accéptus cibus stómacho languénte rejícitur, quando audítus sermo in ventre memóriæ non tenétur. Sed quisquis aliménta non rétinet, hujus profécto vita desperátur.
+
+℟. Cum turba plúrima convenírent ad Jesum, et de civitátibus properárent ad eum, dixit per similitúdinem: \* Exiit qui séminat, semináre semen suum. ℣. Et dum séminat, áliud cécidit in terram bonam, et ortum fecit fructum céntuplum. — Exiit. Glória Patri. Exiit.
+
+### Ad Laudes
+
+**Ant. 1** Secúndum magnam misericórdiam \* tuam miserére mei, Deus.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 48}
+
+**2** Si mihi Dóminus \* salvátor fúerit, non timébo quid fáciat mihi homo.
+
+**3** In velaménto \* clamávi valde dilúculo: Deus, Deus meus, ad te de luce vígilo.
+
+**4** Hymnum dicámus \* Dómino, Deo nostro.
+
+**5** In excélsis \* laudáte Deum.
+
+**Capit.** *2 Cor. 11, 19-20*
+
+FRATRES: Libénter suffértis insipiéntes, cum sitis ipsi sapiéntes: sustinétis enim si quis vos in servitútem rédigit, si quis dévorat, si quis áccipit, si quis extóllitur, si quis in fáciem vos cædit.
+
+#### Hymnus
+
+ÆTÉRNE rerum Cónditor,
+Noctem diémque qui regis,
+Et témporum das témpora,
+Ut álleves fastídium.
+
+Noctúrna lux viántibus
+A nocte noctem ségregans,
+Præco diéi jam sonat,
+Jubárque solis évocat.
+
+Hoc excitátus Lúcifer
+Solvit polum calígine:
+Hoc omnis errónum cohors
+Viam nocéndi déserit.
+
+Hoc nauta vires cólligit,
+Pontíque mitéscunt freta:
+Hoc, ipsa petra Ecclésiæ,
+Canénte, culpam díluit.
+
+Surgámus ergo strénue:
+Gallus jacéntes éxcitat,
+Et somnoléntos íncrepat,
+Gallus negántes árguit.
+
+Gallo canénte, spes redit,
+Ægris salus refúnditur,
+Mucro latrónis cónditur,
+Lapsis fides revértitur.
+
+Jesu, labántes réspice,
+Et nos vidéndo córrige:

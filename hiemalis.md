@@ -30264,3 +30264,24 @@ IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile est regn
 {RUBRIC: Homilía 11 in Evangelia}
 
 CÆLÓRUM regnum, fratres caríssimi, idcírco terrénis rebus símile dícitur, ut, ex his quæ ánimus novit, surgat ad incógnita, quæ non novit: quátenus exémplo visibílium se ad invisibília rápiat, et per ea quæ usu dídicit quasi confricátus incaléscat; ut per hoc, quod scit notum dilígere, discat et incógnita
+amáre. Ecce enim cælórum regnum thesáuro abscóndito in agro comparátur; quem, qui invénit homo, abscóndit, et præ gáudio illíus vadit, et vendit univérsa quæ habet, et emit agrum illum.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio viii
+
+QUA in re hoc quoque notándum est, quod invéntus thesáurus abscónditur, ut servétur: quia stúdium cæléstis desidérii a malígnis spirítibus custodíre non súfficit, qui hoc ab humánis láudibus non abscóndit. In præsénti étenim vita, quasi in via sumus, qua ad pátriam pérgimus. Malígni autem spíritus iter nostrum quasi quidam latrúnculi óbsident. Deprædári ergo desíderat, qui thesáurum públice portat in via. Hoc autem dico, non ut próximi ópera nostra bona non vídeant, cum scriptum sit: Vídeant ópera vestra bona, et gloríficent Patrem vestrum, qui in cælis est; sed, ut per hoc quod ágimus, laudes extérius non quærámus. Sic autem sit opus in público, quátenus inténtio máneat in occúlto; ut, et de bono ópere próximis præbeámus exémplum, et tamen per intentiónem, qua Deo soli placére quærimus, semper optémus secrétum.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea. Glória Patri. Proptérea.
+
+#### Lectio ix
+
+THESÁURUS autem cæléste est desidérium; ager vero, in quo thesáurus abscónditur, disciplína stúdii cæléstis. Quem profécto agrum, vénditis ómnibus, cómparat, qui, voluptátibus carnis renúntians, cuncta sua terréna desidéria per disciplínæ cæléstis custódiam calcat: ut nihil jam quod caro blandítur, líbeat; nihil quod carnálem vitam trúcidat, spíritus perhorréscat.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+**Ant. 1** Oránte sancta Lúcia, \* appáruit ei beáta Agatha, et consolabátur ancíllam Christi.
+
+{RUBRIC: Psalmi de Domin. 1 loco.} [44]

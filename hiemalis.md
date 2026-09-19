@@ -9597,3 +9597,66 @@ Ut nóctibus, vel lúmini
 Diremptiónis términum,
 Primórdiis et ménsium
 Signum dares notíssimum;
+
+Expélle noctem córdium:
+Abstérge sordes méntium:
+Resólve culpæ vínculum:
+Evérte moles críminum.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+{RUBRIC: Feria IV post Dominicam Septuagesimæ et Sexagesimæ ac Feria IV Cinerum Antiphona ad Magnificat ut in Proprio de Tempore, alias}
+
+**Ad Magnif. Ant.** Respéxit Dóminus \* humilitátem meam, et fecit in me magna, qui potens est.
+
+{RUBRIC: Preces feriales, si dicendæ, ut supra.} [REF: p. 191]
+
+{RUBRIC: Reliqua ut in Ordinario. 28}
+
+---
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Immíttet Angelus Dómini.
+
+### Psalmus 33, i
+
+BENEDICAM Dóminum in omni témpore: \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea: \* áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum: \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me: \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini: \* et fácies vestræ non confundéntur.
+
+Ipse pauper clamávit, et Dóminus exaudívit eum: \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum: \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dómi-

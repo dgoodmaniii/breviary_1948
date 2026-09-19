@@ -31381,4 +31381,53 @@ Deo Patri cum Fílio,
 Sancto simul Paráclito,
 In sæculórum sǽcula. Amen.
 
-℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.**Ad Magnif. Ant.** Beáta Agnes \* in médio flammárum expánsis mánibus orábat: Te déprecor, omnípotens, adoránde, coléende, Pater metuénde, quia per sanctum Fílium tuum evási minas sacrílegi tyránni, et carnis spurcítias immaculáto calle transívi: et ecce vénio ad te, quem amávi, quem quæsívi, quem semper optávi.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, qui infírma mundi éligis, ut fórtia quæque confúndas: concéde propítius; ut, qui beátæ Agnétis Vírginis et Mártyris tuæ solémnia cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Gaudent in cælis ánimæ Sanctórum, qui Christi vestígia sunt secúti, et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+℣. Exsultábunt Sancti.
+
+{RUBRIC: Oratio Infirmitátem, ut supra. 776}
+
+{RUBRIC: Completorium de Feria.}
+
+### Ad Matutinum
+
+**Invitat.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+VIRGINIS Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis partos cánimus decóra
+    Morte triúmphos.
+
+Hæc enim palmæ dúplicis beáta
+Sorte, dum gestit frágilem domáre
+Córporis sexum, dómuit cruéntum
+    Cæde tyránnum.
+
+Unde nec mortem, nec amíca mortis
+Mille pœnárum génera expavéscens,
+Sánguine effúso méruit serénum
+    Scándere cælum.
+
+Hujus orátu, Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+    Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+    Témporis ævo. Amen.
+
+### In I Nocturno
+
+**Ant.** Discéde a me, \* pábulum mortis, quia jam ab álio amatóre prævénta sum.

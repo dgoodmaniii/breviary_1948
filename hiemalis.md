@@ -30754,7 +30754,9 @@ HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia ex-cél
 
 FELIX Nolánus présbyter, cum in idóla vehiméntius inveherétur, ab infidélibus várie vexátus, in cárcerem conjícitur. Unde ab Angelo nocte edúctus, quærere jussus est Maximiánum Nolæ epíscopum: qui, cum sénio conféctus desperáret se ferre posse supplícia persequéntium, se abdíderat in silvam. Quo cum Felix Deo duce pervenísset, sanctum epíscopum humi jacéntem pene mórtuum videt; quem recreátum ac sublátum in húmeros, apud fidélem víduam reficiéndum curávit. Sed cum is íterum idolórum cultóres impietátis argúeret, facto in ipsum ímpetu, fúgiens in angústo duórum paríetum intervállo se occultávit; qui áditus cum repénte araneárum telis pertéxtus visus esset, némini recéntis látebræ suspiciónem relíquit. Inde ígitur evádens Felix in ædibus piæ mulíeris tres menses látuit. Cum vero Dei Ecclésia requiéscere cœpísset, Nolam rédiens, multísque ibi vitæ exémplis, et doctrínæ præcéptis, miraculísque ad Christi fidem convérsis, constánter étiam recusáto ejus urbis episcopátu, obdormívit in Dómino, sepultúsque est prope Nolam in loco, quem in Píncis appellábant.
 
-{RUBRIC: Te Deum laudámus.}### Ad Laudes
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
 
 ℣. Justum dedúxit.
 
@@ -32018,7 +32020,9 @@ RAYMÚNDUS Barcinonénsis, ex nóbili família de Péñafort, Bonóniæ pietáti
 
 EMERENTIÁNA virgo Romána, collactánea beátæ Agnétis, adhuc catechúmena, fide et caritáte flagrans, furéntes in Christiános idolórum cultóres cum veheméntius accusáret, a concitáta multitúdine lapídibus óbruta est. Quæ in cruciátibus orans ad sepúlcrum sanctæ Agnétis, próprio sánguine, quem pro Christo constánter effúdit, baptizáta, ánimam Deo réddidit.
 
-{RUBRIC: Te Deum laudámus.}### Ad Laudes
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
 
 ℣. Justum dedúxit.
 
@@ -33531,3 +33535,52 @@ ET ecce homo erat in Jerúsalem, cui nomen Símeon, et homo iste justus et timor
 ET bene justus, qui non suam, sed pópuli grátiam requirébat, cúpiens ipse corpóreæ vínculis fragilitátis exsólvi, sed exspéctans vidére promíssum: sciébat enim quia beáti óculi, qui eum vidérent. Et ipse accépit eum in ulnas suas, et benedíxit Deum, et dixit: Nunc dimítte servum tuum, Dómine, secúndum verbum tuum in pace. Vide justum, velut corpóreæ cárcere molis inclúsum, velle dissólvi, ut incípiat esse cum Christo. Dissólvi enim, et cum Christo esse, multo mélius est.
 
 ℟. Senex Púerum portábat, Puer autem senem regébat: \* Quem virgo concépit, virgo péperit, virgo post partum, quem génuit, adorávit. ℣. Accípiens Símeon Púerum in mánibus, grátias agens benedíxit Dóminum. — Quem. Glória Patri. Quem.
+
+#### Lectio ix
+
+SED qui vult dimítti, véniat in templum, véniat in Jerúsalem, exspéctet Christum Dómini, accípiat in mánibus Verbum Dei, complectátur opéribus velut quibúsdam suæ fídei bráchiis: tunc dimittétur, ut non vídeat mortem, qui víderit Vitam. Vides úberem in omnes grátiam, Dómini generatiónem diffúsam, et prophetíam incrédulis negátam esse, non justis. Ecce et Símeon prophétat, in ruínam et resurrectiónem plurimórum venísse Dóminum Jesum Christum, ut justórum iniquorúmque mérita discérnat; et pro nostrórum qualitáte factórum, judex verus et justus aut supplícia decérnat aut prǽmia.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+{RUBRIC: 1} Símeon justus \* et timorátus exspectábat redemptiónem Israël, et Spíritus Sanctus erat in eo.
+
+{RUBRIC: 2} Respónsum accépit Símeon \* a Spíritu Sancto, non visúrum se mortem, nisi vidéret Dóminum.
+
+{RUBRIC: 3} Accípiens Símeon \* Púerum in mánibus, grátias agens benedíxit Dóminum.
+
+{RUBRIC: 4} Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+{RUBRIC: 5} Obtulérunt \* pro eo Dómino par túrturum aut duos pullos columbárum.
+
+{RUBRIC: Capitulum} *Malach. 3, 1*
+
+ECCE ego mitto Angelum meum, et præparábit viam ante fáciem meam. Et statim véniet ad templum sanctum suum Dominátor, quem vos quǽritis, et Angelus Testaménti, quem vos vultis.
+
+#### Hymnus
+
+O Gloriósa vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine:
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida:
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea

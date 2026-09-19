@@ -20908,3 +20908,14 @@ UBI est ergo gloriátio tua? Exclúsa est. Per quam legem? Factórum? Non: sed p
 #### Lectio iv
 
 SILVÉSTER Románus, patre Rufíno, a prima ætáte óperam dedit Cyríno presbýtero; cujus doctrínam et mores egrégie imitátus est. Hic, sæviénte persecutióne, in
+Sorácte monte latitáverat; et trigésimum annum agens, présbyter sanctæ Románæ Ecclésiæ a Marcellíno Pontífice creátur. Quo in múnere cum omni laude cléricis áliis antecélleret, in Melchíadis póstea locum succéssit, imperatóre Constantíno, qui ántea pacem Ecclésiæ Christi lege pública déderat. Vix Ecclésiæ gubernácula tractánda suscéperat, Constantínum, jam Crucis signo cǽlitus illustrátum, et de hoste Maxéntio victórem, ad tuéndam propagandámque christiánam religiónem impénse fovit. Quem étiam, uti vetus Ecclésiæ Románæ refert tradítio, Apostolórum imágines recognóscere fecit, sacro baptísmate tinxit, et ab infidelitátis lepra mundávit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+ITAQUE, auctóre Silvéstro, pius imperátor quam christifidélibus públice templa exstruéndi tribúerat facultátem, eam exémplo suo confirmávit. Multas enim eréxit basí-
+
+licas, scílicet Lateranénsem Christo Servatóri, Vaticánam sancto Petro, Ostiénsem sancto Paulo, sancto Lauréntio in Agro Veráno, sanctæ Cruci in Átrio Sessoriáno, sancto Petro et Marcellíno ac sanctæ Agnéti in viis Lavicána et Nomentána, et álias; quas sacris imagínibus spléndide exornávit, et, munéribus prædiísque attribútis, magnificentíssime locupletávit. Hoc Pontífice hábitum est Concílium Nicǽnum primum, ubi præsidéntibus ejus legátis, præsénteque Constantíno et trecéntis decem et octo epíscopis, sancta et cathólica fides explicáta est, Ário ejúsque sectatóribus condemnátis; quod étiam Concílium, peténtibus Pátribus, confirmávit in sýnodo Romæ hábita, ubi íterum Aríus condemnátus est. Multa idem decréta fecit Ecclésiæ Dei utília, quæ sub ejus nómine recenséntur: id est, ut a solo epíscopo chrisma conficerétur; ut présbyter chrísmate baptizáti summum liníret vérticem; ut diáconi dalmáticis in ecclésia, et palla linóstima ad lævam uteréntur; ut in líneo tantum velo sacrifícium altáris conficerétur.
+
+℟. Pósui adjutórium super poténtem, et exaltávi

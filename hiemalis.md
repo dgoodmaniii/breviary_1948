@@ -32730,7 +32730,7 @@ DEUS, qui nos beáti Polycárpi Mártyris tui atque Pontíficis ánnua solemnit�
 
 POLYCÁRPUS, Joánnis Apóstoli discípulus et ab eo Smyrnæ epíscopus ordinátus, totíus Asiæ princeps fuit, quippe qui nonnúllos Apostolórum et eórum qui víderant Dóminum, magístros habúerit et víderit. Hic propter quasdam super die Paschæ quæstiónes, sub imperatóre Antoníno Pio, Ecclésiam in Urbe regénte Anicéto, Romam venit; ubi plúrimos credéntium, Marciónis et Valentíni persuasióne decéptos, redúxit ad fidem. Cumque ei fortúito óbviam fuísset Márcion et díceret: Cognóscis nos? respóndit: Cognósco primogénitum diáboli. Póstea vero, regnánte Marco Antoníno et Lúcio Aurélio Cómmodo, quarta post Nerónem persecutióne, Smyrnæ, sedénte procónsule et univérso pópulo in amphitheátro advérsus eum personánte, igni tráditus est. Scripsit ad Philippénses valde útilem epístolam, quæ usque hódie in Asiæ convéntu légitur.
 
-℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a sedu-ctóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
 
 {RUBRIC: De Expositióne sancti Ambrósii Epíscopi in Psalmum centésimum décimum octávum}
 
@@ -33278,3 +33278,29 @@ DEUS, qui sanctum Joánnem Confessórem tuum adolescéntium patrem et magístrum
 **Oratio** C 1
 
 INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ
+
+actiónis gravat, beáti Ignátii Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus qui, ut supra.} 834
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Hierónymi Presbýteri de Scriptóribus ecclesiásticis}
+
+#### Lectio iv
+
+*Cap. 16*
+
+IGNÁTIUS, Antiochénæ ecclésiæ tértius post Petrum Apóstolum epíscopus, commovénte persecutiónem Trajáno, damnátus ad béstias, Romam vinctus míttitur. Cumque návigans Smyrnam venísset, ubi Polycárpus, audítor Joánnis, epíscopus erat, scripsit unam epístolam ad Ephésios, álteram ad Magnesiános, tértiam ad Trailénses, quartam ad Romános. Et inde egrédiens scripsit ad Philadélphios, et ad Smyrnǽos, et própriam ad Polycárpum, comméndans illi Antiochénsem ecclésiam; in qua et de Evangélio, quod nuper a me translátum est, super persóna Christi ponit testimónium.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+#### Lectio v
+
+DIGNUM autem vidétur, quia tanti viri fécimus mentiónem, et de epístola ejus, quam ad Romános scribit, pauca pónere: De Sýria usque ad Romam pugno ad béstias in mari et in terra, nocte diéque ligátus cum decem leopárdis, hoc est milítibus, qui me custódiunt; quibus et cum benefáceris, pejóres fiunt. Iniquitas autem eórum mea doctrína est; sed non idcírco justificátus sum. Utinam fruar béstiis, quæ mihi sunt præparátæ; quas et oro mihi velóces esse ad intéritum et ad supplícia, et állici ad comedéndum me, ne, sicut et aliórum Mártyrum, non áudeant corpus attíngere. Quod si veníre nolúerint, ego vim fáciam, ego me urgébo, ut dévorer. Ignóscite mihi, filíoli; quid mihi prosit, ego scio.

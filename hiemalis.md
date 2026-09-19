@@ -22095,3 +22095,49 @@ Amen.
 ℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
 
 **Ad Bened. Ant.** Dedit se, \* ut liberáret pópulum, et acquíreret sibi nomen ætérnum, allelúja.
+
+#### Oratio
+
+DEUS, qui unigénitum Fílium tuum constituísti humáni géneris Salvatórem, et Jesum vocári jussísti: concéde propítius; ut, cujus sanctum nomen venerámur in terris, ejus quoque aspéctu perfruámur in cælis. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Primam
+
+**Ant.** Oleum effúsum \* nomen tuum, ídeo adolescéntulæ dilexérunt te.
+
+### Ad Tertiam
+
+**Ant.** Scitóte, \* quia Dóminus ipse est Deus, cujus nomen in ætérnum.
+
+#### Capit.
+
+*Philipp. 2, 8-10*
+
+FRATRES: Christus humiliávit semetípsum, factus obédiens usque ad mortem, mortem autem crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen, quod est super omne nomen, ut in nómine Jesu omne genu flectátur.
+
+℟. br. Sit nomen Dómini benedíctum, \* Allelúja, allelúja. Sit. ℣. Ex hoc nunc et usque in sæculum. Allelúja, allelúja. Glória Patri. Sit. ℣. Afférte Dómino glóriam et honórem, allelúja. ℟. Afférte Dómino glóriam nómini ejus, allelúja.
+
+### Ad Sextam
+
+**Ant.** Sitívit \* ánima mea ad nomen sanctum tuum, Dómine.
+
+#### Capit.
+
+*Philipp. 2, 10-11*
+
+IN nómine Jesu omne genu flectátur cæléstium, terréstrium, et infernórum: et omnis lingua confiteátur, quia Dóminus Jesus Christus in glória est Dei Patris.
+
+℟. br. Afférte Dómino glóriam et honórem, \* Allelúja, allelúja. Afférte. ℣. Afférte Dómino glóriam nómini ejus. Allelúja, allelúja. Glória Patri. Afférte. ℣. Magnificáte Dóminum mecum, allelúja. ℟. Et exaltémus nomen ejus in idípsum, allelúja.
+
+### Ad Nonam
+
+**Ant.** Júvenes et vírgines, \* senes cum junióribus, laudáte nomen Dómini: quia exaltátum est nomen ejus solíus.
+
+#### Capitulum
+
+*Coloss. 3, 17*
+
+OMNE quodcúmque fácitis in verbo, aut in ópere: ómnia in nómine Dómini Jesu Christi fácite, grátias agéntes Deo et Patri per ipsum.
+
+℟. br. Magnificáte Dóminum mecum, \* Allelúja,

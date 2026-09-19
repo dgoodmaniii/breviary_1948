@@ -24918,3 +24918,28 @@ CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab
 QUÆ sunt ista veræ fídei múnera? Aurum Regi, thus Deo, myrrha defúncto. Áliud enim Regis insígne, áliud divínæ sacraméntum potestátis, áliud honor est sepultúræ, quæ non corrúmpat corpus mórtui, sed servet. Nos quoque, qui hæc audímus et légimus, de thesáuris nostris tália, fratres, múnera proferámus. Habémus enim thesáurum in vasis fictílibus. Si ígitur in teípso quod es, non ex te debes æstimáre, sed ex Christo: quanto magis in Christo non tua debes æstimáre, sed Christi?
 
 ℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad
+locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+#### Lectio viii
+
+ERGO Magi de thesáuris suis ófferunt múnera. Vultis scire quam bonum méritum hábeant? Stella ab his vidétur: ubi Heródes est, non vidétur; ubi Christus est, rursus vidétur, et viam demónstrat. Ergo stella hæc via est, et via Christus: quia secúndum incarnatiónis mystérium Christus est stella. Oriétur enim stella ex Jacob, et exsúrget homo ex Israël. Dénique ubi Christus, et stella est. Ipse enim est stella spléndida et matutína. Sua ígitur ipse luce se signat.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio magno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra, ubi erat Puer. — Et intrántes. Glória Patri. Et, apértis.
+
+#### Lectio ix
+
+ACCIPE áliud documéntum. Alia venérunt via Magi, ália rédeunt. Qui enim Christum víderant, Christum intelléxerant; melióres útique, quam vénerant, revertúntur. Duæ quippe sunt viæ: una, quæ ducit ad intéritum; ália, quæ ducit ad regnum. Illa peccatórum est, quæ ducit ad Heródem: hæc Christus est, qua redítur ad pátriam. Hic enim temporális est incolátus, sicut scriptum est: Multum íncola facta est ánima mea.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Vénient ad te, \* qui detrahébant tibi, et adorábunt vestígia pedum tuórum.
+
+{RUBRIC: Et fit Commemoratio S. Hygíni Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Hygínum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.

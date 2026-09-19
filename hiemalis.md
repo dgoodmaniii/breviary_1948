@@ -26587,3 +26587,18 @@ ET: Tu in princípio, Dómine, terram fundásti: et ópera mánuum tuárum sunt 
 #### Lectio iv
 
 SI persónam, rem, tempus apostólici dicti cognóscerent hærétici, numquam humána in Deitátem transferéntes, tam ímpie et stulte advérsus Christum sese habuíssent. Id intuéri licébit, si inítium lectiónis dé-
+nuo repetítum prope excípias. Dicit enim Apóstolus: Multifáriam, multísque modis olim Deus locútus est pátribus nostris per Prophétas: últimis autem diébus locútus est nobis in Fílio. Atque ita paulo post dicit: Perfécta ab eo nostrórum peccatórum purificatióne, ipsum sedére ad déxteram majestátis in excélsis, tanto meliórem Angelis factum, quanto præstántius nomen præ illis sortítus est. De eo ígitur témpore, quo nobis per Fílium locútus est, cum peccatórum purgátio fíeret, apostólicum dictum mentiónem facit. Quando autem nobis locútus est in Fílio, aut quando purgátio peccatórum facta, aut quando natus est homo, nisi post Prophétas, ídque in últimis diébus?
+
+℟. Notas mihi fecísti, Dómine, vias vitæ: \* Adimplébis me lætítia cum vultu tuo: delectatiónes in déxtera tua usque in finem. ℣. Tu es qui restítues hereditátem meam mihi. — Adimplébis.
+
+#### Lectio v
+
+DEÍNDE cum narrátio institúta esset de humána Verbi dispensatióne, deque últimis tempóribus: consequénter commemorávit, Deum neque superióribus ætátibus tacuísse, sed locútum esse per Prophétas: et postquam Prophétæ suo offício perfúncti sunt, et lex per Angelos pronuntiáta est, et Fílius étiam ad nos descéndit, et ad ministrándum accéssit; tunc demum necessário subíntulit: Tanto mélior Angelis factus: osténdere volens, quanto Fílius præ servo excéllit, tanto functióne officióque servórum, Fílii administratiónem meliórem fuísse.
+
+℟. Díligam te, Dómine, virtus mea: Dóminus firmaméntum meum, \* Et refúgium meum. ℣. Liberátor meus, Deus meus, adjútor meus. — Et.
+
+#### Lectio vi
+
+FUNCTIÓNEM ígitur discérnens Apóstolus, tum véterem, tum novam, magna dicéndi libertáte útitur, ad Judǽos scribens et loquens. Propter hoc ígitur non in univérsum ex própria comparatiónis ratióne dixit, quod major aut honorátior esset: ne quis quasi de ejúsdem géneris, et cum eo commúnibus rebus hæc verba intellígeret: sed ídeo meliórem illum dixit, ut discrímen natúræ Fílii ad res creátas indicáret.
+
+℟. Dómini est terra, et plenitúdo ejus: \* Orbis

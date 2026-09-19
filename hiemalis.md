@@ -30892,4 +30892,40 @@ DEUS, qui nos beáti Pauli Confessóris tui ánnua solemnitáte lætíficas: con
 
 #### Oratio
 
-INTERCÉSSIO nos, quǽsumus, Dómine, beáti Mauri Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Mauri Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir, despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commem. sequéntis.}
+
+---
+
+## Die 16 Januarii
+
+### S. Marcelli I
+
+{RUBRIC: Papæ et Mártyris}
+
+{RUBRIC: Semiduplex} [29]
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+#### Oratio
+
+PRECES pópuli tui, quǽsumus, Dómine, cleménter exáudi: ut beáti Marcélli Mártyris tui atque Pontíficis méritis adjuvémur, cujus passióne lætámur. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+MARCÉLLUS Románus, a Constántio et Galério usque ad Maxéntium pontificátum gessit. Cujus hortátu Lucína matróna Romána, bonórum suórum Dei Ecclésiam fecit herédem. Aucto in Urbe fidélium número, ad eórum utilitátem, ad baptísmum pœnitentiámque dandam eis, qui christiánam religiónem suscíperent, et ad Mártyrum sepultúram, novos títulos instítuit, et quasi álteras diœcéses distríbuit. Quibus rebus ira incénsus Maxéntius, Marcéllo grávia supplícia minátur, nisi, depósito pontificátu, idólis immoláret.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+#### Lectio v
+
+QUI cum insánas hóminis voces neglígeret, misit eum in catábulum, ut bestiárum, quæ públice alebántur, curam sustinéret: ubi Marcéllus assíduis jejúniis et précibus novem menses vitam duxit, paróchias, quas præsens non póterat, vísitans per epístolas. Inde eréptus a cléricis, hospítio recípitur a beáta Lucína, in cujus ǽdibus ecclésiam dedicávit, quæ hódie título sancti Marcélli nominátur: in qua et Christiáni orábant, et ipse beátus Marcéllus prædicábat.

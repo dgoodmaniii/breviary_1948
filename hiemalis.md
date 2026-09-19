@@ -17973,3 +17973,32 @@ céperit, memoráto Románæ reipúblicæ príncipe, et Judǽæ régibus, design
 #### Lectio ii
 
 VOCE étenim nostri Redemptóris dícitur: Omne regnum in seípsum divísum desolábitur. Liquet ergo, quod ad finem regni Judǽa pervénerat, quæ tot régibus divísa subjacébat. Apte quoque non solum quibus régibus, sed étiam
+quibus sacerdótibus actum sit, demonstrátur: et quia illum Joánnes Baptísta prædicáret, qui simul Rex et Sacérdos exsísteret, Lucas Evangelísta prædicatiónis ejus témpora per regnum et sacerdótium designávit.
+
+℟. Radix Jesse, qui exsúrget judicáre gentes, in eum gentes sperábunt: \* Et erit nomen ejus benedíctum in sécula. ℣. Super ipsum continébunt reges os suum, ipsum gentes deprecabúntur. — Et.
+
+#### Lectio iii
+
+ET venit in omnem regiónem Jordánis, prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum. Cunctis legéntibus liquet, quia Joánnes non solum baptísmum pœniténtiæ prædicávit, verum étiam quibúsdam dedit: sed tamen baptísmum suum in remissiónem peccatórum dare non pótuit. Remíssio éte­nim peccatórum in solo nobis baptísmo Christi tribúitur. Notándum itaque, quod dícitur: Prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum: quóniam baptísmum, quod sólveret, peccáta quia da-
+
+bat verbo prædicatiónis, ita baptísmum pœniténtiæ, quo peccáta solvúntur, præcúrreret suo baptísmate, quo peccáta solvi non possunt.
+
+℟. Veni, Dómine, et noli tardáre: reláxa facínora plebi tuæ, \* Et révoca dispérsos in terram suam. ℣. Excita, Dómine, poténtiam tuam, et veni, ut salvos fácias nos. — Et. Glória Patri. Et.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Quómodo fiet istud, \* Ángele Dei, quóniam virum non cognósco? Audi, María Virgo: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi.
+
+{RUBRIC: Nisi (die 21 Dec.) dicénda sit}
+
+**Ant.** Nolíte timére: \* quinta enim die véniet ad vos Dóminus noster.
+
+{RUBRIC: Et nisi hæc fúerit dies ante Vigíliam Nativitátis: quia tunc ea prætermíssa, dícitur}
+
+**Ant.** Ecce compléta sunt \* ómnia, quæ dicta sunt per Ángelum de Vírgine María.
+
+{RUBRIC: Quod étiam servátur (si idem contíngat) in sequéntibus diébus.}
+
+#### Oratio
+
+DEUS, qui cónspicis, quia ex nostra pravitáte afflígimur: concéde propí-

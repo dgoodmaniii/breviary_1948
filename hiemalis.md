@@ -10373,3 +10373,71 @@ Non in fortitúdine equi voluntátem habébit: \* nec in tíbiis viri benepláci
 Beneplácitum est Dómino super timéntes eum: \* et in eis, qui sperant super misericórdia ejus.
 
 **Ant.** Deo nostro jucúnda sit laudátio.
+
+#### In Officio feriali
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+LUX ecce surgit áurea,
+Pallens facéssat cæcitas,
+Quæ nosmet in præceps diu
+Erróre traxit dévio.
+
+Hæc lux serénum cónferat,
+Purósque nos præstet sibi:
+Nihil loquámur súbdolum:
+Volvámus obscúrum nihil.
+
+Sic tota decúrrat dies,
+Ne lingua mendax, ne manus
+Oculíve peccent lúbrici,
+Ne noxa corpus ínquinet.
+
+Speculátor astat désuper,
+Qui nos diébus ómnibus,
+Actúsque nostros próspicit
+A luce prima in vésperum.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** In sanctitáte \* serviámus Dómino, et liberábit nos ab inimícis nostris.
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+#### Ad Laudes II
+
+*In Feriis Adventus, et in Feriis V post Dominicas Septuagesimæ, Sexagesimæ et Quinquagesimæ, necnon in Vigiliis communibus, quando fit Officium de Feria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Tibi soli peccávi.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** De Sion.
+
+### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim, in iniquitátibus concéptus sum: \* et

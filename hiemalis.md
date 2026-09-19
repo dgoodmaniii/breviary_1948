@@ -12146,3 +12146,52 @@ Et elégit David, servum suum, et sústulit eum de grégibus óvium: \* de post 
 Páscere Jacob, servum suum, \* et Israël, hereditátem suam:
 
 Et pavit eos in innocéntia cordis sui: \* et in intel-
+léctibus mánuum suárum dedúxit eos.
+
+**Ant.** Ædificávit Deus sanctifícium suum in terra.
+
+#### In Festis novem Lectionum:
+
+℣. Elégit Dóminus tribum Juda. ℟. Montem Sion quem diléxit.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+#### In III Nocturno
+
+**Ant.** Adjuva nos, \* Deus, salutáris noster: et propítius esto peccátis nostris.
+
+### Psalmus 78
+
+DEUS, venérunt gentes in hereditátem tuam, polluérunt templum sanctum tuum: \* posuérunt Jerúsalem in pomórum custódiam.
+
+Posuérunt morticína servórum tuórum, escas volatílibus cæli: \* carnes sanctórum tuórum béstiis terræ.
+
+Effudérunt sánguinem eórum tamquam aquam in circúitu Jerúsalem: \* et non erat qui sepelíret.
+
+Facti sumus oppróbrium vicínis nostris: \* subsannátio et illúsio his, qui in circúitu nostro sunt.
+
+Usquequo, Dómine, irascéris in finem: \* accendétur velut ignis zelus tuus?
+
+Effúnde iram tuam in gentes, quæ te non novérunt: \* et in regna, quæ nomen tuum non invocavérunt:
+
+Quia comedérunt Jacob: \* et locum ejus desolavérunt.
+
+Ne memíneris iniquitátum nostrárum antiquárum, cito antícipent nos misericórdiæ tuæ: \* quia páuperes facti sumus nimis.
+
+Adjuva nos, Deus, salutáris noster: et propter glóriam nóminis tui, Dómine, líbera nos: \* et propítius esto peccátis nostris, propter nomen tuum:
+
+Ne forte dicant in géntibus: Ubi est Deus eórum? \* et innotéscat in natiónibus coram óculis nostris.
+
+Ultio sánguinis servórum tuórum, qui effúsus est: \* intróeat in conspéctu tuo gémitus compeditórum.
+
+Secúndum magnitúdinem bráchii tui, \* pósside fílios mortificatórum.
+
+Et redde vicínis nostris séptuplum in sinu eórum: \* impropérium ipsórum, quod exprobravérunt tibi, Dómine.
+
+Nos autem pópulus tuus, et oves páscuæ tuæ, \* confitébimur tibi in séculum.
+
+In generatiónem et generatiónem \* annuntiábimus laudem tuam.
+
+**Ant.** Adjuva nos, Deus, salutáris noster: et pro-

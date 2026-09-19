@@ -27829,3 +27829,22 @@ APPÁRUIT autem Dóminus Abram, et dixit ei: Sémini tuo dabo terram hanc. Qui �
 #### Lectio iii
 
 CUM ítaque ingréssus esset Abram Ægýptum, vidérunt Ægýptii mulíerem quod esset pulchra nimis. Et nuntiavérunt príncipes Pharaóni, et laudavérunt eam apud illum: et subláta est múlier in domum Pharaónis. Abram vero bene usi sunt propter illam: fuerúntque ei oves et boves et ásini, et servi et fámulæ, et ásinæ et ca-
+méli. Flagellávit autem Dóminus Pharaónem plagis máximis, et domum ejus propter Sárai uxórem Abram. Vocavítque Phárao Abram, et dixit ei: Quidnam est hoc quod fecísti mihi? quare non indicásti quod uxor tua esset? Quam ob causam dixísti esse sorórem tuam, ut tóllerem eam mihi in uxórem? Nunc ígitur ecce conjux tua, áccipe eam, et vade.
+
+℟. Tentávit Dóminus Abraham, et dixit ad eum: \* Tolle fílium tuum, quem díligis, Isaac, et offer illum ibi in holocáustum super unum móntium, quem díxero tibi. ℣. Vocátus quoque a Dómino, respóndit, Adsum: et ait ei Dóminus. — Tolle. Glória Patri. Tolle.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Abraham Patriárcha}
+
+{RUBRIC: Liber 1, cap. 2}
+
+#### Lectio iv
+
+MAGNUS plane vir Abraham, et multárum virtútum clarus insígnibus, quem votis suis philosóphia non pótuit æquáre. Dénique minus est quod illa finxit, quam quod iste gessit: majórque ambitióso eloquéntiæ mendácio simplex veritátis fides. Itaque, cujúsmodi fúerit in eo viro devótio, considerémus. Ea enim virtus órdine prima est, quæ est fundaméntum ceterárum: meritóque hanc ab eo primam exégit Deus, dicens: Exi de terra tua, et de cognatióne tua, et de domo patris tui. Satis fúerat dixísse, De terra tua. Ibi enim erat exíre de cognatióne, exíre de patérna domo.
+
+℟. Angelus Dómini vocávit Abraham, dicens: \* Ne exténdas manum tuam super púerum, eo quod tímeas Dóminum. ℣. Cumque extendísset manum ut immoláret fílium, ecce Angelus Dómini de cælo clamávit, dicens. — Ne.
+
+#### Lectio v
+
+SED ídeo áddidit síngula, ut ejus afféctum probáret: ne forte aut imprudénter cœpísse viderétur, aut fraus áliqua mandátis cæléstibus pararétur. Sed sicut coacervánda fuérunt præcépta, ne quid latéret; ita étiam proponénda prǽmia, ne forte desperáret. Tentátur ut fortis, incitátur ut fidélis, provocátur ut justus: meritóque exívit, quemádmodum locútus est illi Dóminus. Et exívit cum eo Lot. Hoc autem, quod pro magno inter

@@ -19625,3 +19625,18 @@ a dextris Dei. Exclamántes autem voce magna continuérunt aures suas, et ímpet
 #### Lectio iv
 
 HERI celebrávimus temporálem sempitérni Regis nostri natálem: hódie celebrámus triumphálem mílitis passiónem. Heri enim Rex
+noster trábea carnis indútus, de aula úteri virginális egrédiens, visitáre dignátus est mundum: hódie miles de tabernáculo córporis éxiens, triumphátor migrávit ad cælum. Ille, sempitérnæ Deitátis majestáte serváta, servíle cinctórium carnis assúmens, in hujus séculi campum pugnatúrus intrávit; iste, depósitis corruptibílibus córporis induméntis, ad cæli palátium perénniter regnatúrus ascéndit. Ille descéndit carne velátus, iste ascéndit sánguine laureátus.
+
+℟. Lapidábant Stéphanum invocántem et dicéntem: \* Dómine Jesu Christe, áccipe spíritum meum: et ne státuas illis hoc peccátum. ℣. Pósitis autem génibus clamávit voce magna, dicens. — Dómine.
+
+#### Lectio v
+
+ASCÉNDIT iste lapidántibus Judǽis, quia ille descéndit lætántibus Angelis. Glória in excélsis Deo, heri sancti Angeli exsultántes cantavérunt: hódie Stéphanum lætántes in suum consórtium suscepérunt. Heri Dóminus exívit de útero Vírginis: hódie miles egréssus est de ergástulo carnis. Heri Christus pro nobis pannis est invo-
+
+lútus: hódie Stéphanus stola est ab eo immortalitátis indútus. Heri prǽsépis angústia Christum portávit infántem: hódie imménsitas cæli suscépit Stéphanum triumphántem. Solus Dóminus descéndit, ut multos eleváret: humiliávit se Rex noster, ut suos mílites exaltáret.
+
+℟. Impetum fecérunt unanímiter in eum, et ejecérunt eum extra civitátem, invocántem et dicéntem: \* Dómine Jesu, áccipe spíritum meum. ℣. Et testes deposuérunt vestiménta sua secus pedes adolescéntis, qui vocabátur Saulus: et lapidábant Stéphanum invocántem et dicéntem. — Dómine.
+
+#### Lectio vi
+
+NECESSÁRIUM tamen nobis est, fratres, agnóscere, quibus armis præcínctus Stéphanus sævítiam Judæórum pótuit superáre, ut ita meruísset felíciter triumpháre. Stéphanus ergo, ut nóminis sui corónam meruísset accípere, caritátem pro armis habébat, et per ipsam ubíque vincébat. Per caritátem Dei sæviéntibus Judǽis non cessit: per caritátem próximi pro lapidántibus intercéssit. Per

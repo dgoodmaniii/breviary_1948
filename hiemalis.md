@@ -17697,3 +17697,24 @@ quibus occúrrat Festum novem Lectiónum, eo anno omittúntur.
 *Cap. 28, 1-7*
 
 VÆ corónæ supérbiæ, ébriis Ephraim, et flori decidénti, glóriæ exsultatiónis ejus, qui erant in vér-
+tice vallis pinguíssimæ, errántes a vino. Ecce válidus et fortis Dóminus, sicut ímpetus grándinis: turbo confríngens, sicut ímpetus aquárum multárum inundántium, et emissárum super terram spatiósam. Pédibus conculcábitur corónа supérbiæ ebriórum Ephraim.
+
+℟. Ecce apparébit Dóminus super nubem cándidam, \* Et cum eo Sanctórum míllia: et habébit in vestiménto, et in fémore suo scriptum: Rex regum, et Dóminus dominántium. ℣. Apparébit in finem, et non mentiétur; si moram fécerit, exspécta eum, quia véniens véniet. — Et.
+
+#### Lectio ii
+
+ET erit flos decídens glóriæ exsultatiónis ejus, qui est super vérticem vallis pínguium, quasi temporáneum ante maturitátem autúmni: quod cum aspéxerit videns, statim ut manu tenúerit, devorábit illud. In die illa erit Dóminus exercítuum corónа glóriæ, et sertum exsultatiónis resíduo pópuli sui; et spíritus judícii sedénti super judícium, et fortitúdo reverténtibus de bello ad portam. Verum hi
+
+quoque præ vino nesciérunt, et præ ebrietáte errávérunt: sacérdos et pro-
+
+phéta nesciérunt præ ebrietáte, absórpti sunt a vino.
+
+℟. Béthlehem, cívitas Dei summi, ex te éxiet Dominátor Israël, et egréssus ejus sicut a princípio diérum æternitátis, et magnificábitur in médio univérsæ terræ: \* Et pax erit in terra nostra, dum vénerit. ℣. Loquétur pacem in géntibus, et potéstas ejus a mari usque ad mare. — Et.
+
+#### Lectio iii
+
+*Cap. 28, 16-18*
+
+IDCÍRCO hæc dicit Dóminus Deus: Ecce ego mittam in fundaméntis Sion lápidem, lápidem probátum, angulárem, pretiósum, in fundaménto fundátum. Qui credíderit, non festínet. Et ponam in póndere judícium, et justítiam in mensúra: et subvértet grando spem mendácii: et protectiónem aquæ inundábunt. Et delébitur fœdus vestrum cum morte, et pactum vestrum cum inférno non stabit.
+
+℟. Qui ventúrus est, véniet, et non tardábit: et jam non erit timor in fínibus nostris: \* Quóniam ipse est Salvátor noster. ℣. Depónet omnes iniquitátes nostras, et projíciet in profúndum maris ómnia peccáta nostra. — Quóniam. Glória Patri. Quóniam.

@@ -21411,3 +21411,20 @@ IN illo témpore: Postquam consummáti sunt dies octo, ut circumciderétur Puer:
 {RUBRIC: Liber 2, in cap. 2 Lucæ, circa médium}
 
 CIRCUMCÍDITUR ítaque Puer. Quis est iste puer, nisi ille, de quo dictum est: Puer natus est nobis, Fílius datus est nobis? Factus est enim
+sub lege, ut eos, qui sub lege essent, lucrifáceret. Ut sísterent eum Dómino. Quid sit autem in Jerúsalem sisti Dómino, dícerem, nisi in Isaíæ comméntis ante dixíssem. Circumcísus enim vítiis, Domínico dignus judicátur obtútu; quia, Óculi Dómini super justos. Vides omnem legis véteris sériem fuísse typum futúri; nam et circumcísio purgatiónem signíficat delictórum.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+SED quóniam prona quadam cupiditáte peccándi, humánæ carnis et mentis fragílitas inextricábilibus vítiis implicátur, eo per octávum circumcisiónis diem culpæ totíus futúra purgátio, resurrectiónis præfigurabátur ætáte. Hoc est enim illud: Quia omne masculínum adapériens vulvam, sanctum Dómino vocábitur. Verbis enim legis promittebátur Vírginis partus. Et vere sanctus, quia immaculá-
+
+tus. Dénique ipsum esse, qui lege signétur, in eúmdem modum ab Ángelo repetíta verba declárant: Quod nascétur, inquit, Sanctum, vocábitur Fílius Dei.
+
+℟. Nésciens mater Virgo virum, péperit sine dolóre: \* Salvatórem sæculórum, ipsum Regem Angelórum, sola Virgo lactábat úbere de cælo pleno. ℣. Domus pudíci péctoris templum repénte fit Dei: intácta nésciens virum, verbo concépit Fílium. — Salvatórem. Glória Patri. Salvatórem.
+
+#### Lectio ix
+
+SOLUS enim per ómnia ex natis de fémina sanctus Dóminus Jesus, qui terrénæ contágia corruptélæ, immaculáti partus novitáte non sénserit, et cæléstí majestáte depúlerit. Nam si líttéram sequámur: quómodo sanctus omnis másculus, cum multos sceleratíssimos fuísse non láteat? Numquid sanctus Achab? numquid sancti pseudo-prophétæ, quos ad Elíæ preces ultor cæléstis injúriæ ignis absúmpsit? Sed ille sanctus, quem in figúra futúri mystérii pia legis divínæ præscrípta signábant; eo quod solus sanctæ Ecclésiæ vírginis ad generándos pópulos Dei, immaculátæ fœ-

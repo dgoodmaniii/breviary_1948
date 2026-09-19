@@ -24550,3 +24550,32 @@ NATIVITÁTE Regis nostri cógnita, Heródes ad cállida arguménta convértitur;
 #### Lectio viii
 
 SED inter hæc sciéndum, quod Priscillianístæ hærétici nasci unumquémque hóminem sub constitutiónibus stellárum putant: et hoc in adjutórium sui erróris assúmunt, quod nova stella éxiit cum Dóminus in carne appáruit; cujus fuísse fatum eámdem, quæ appáruit, stellam putant. Sed si Evan-
+gélii verba pensámus, quibus de eádem stella dícitur: Usque dum véniens staret supra, ubi erat puer: dum non puer ad stellam, sed stella ad púerum cucúrrit, si dici líceat, non stella fatum púeri; sed fatum stellæ is, qui appáruit, puer fuit.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio magno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra, ubi erat puer. — Et intrántes. Glória. Et, apértis.
+
+#### Lectio ix
+
+SED a fidélium córdibus absit, ut áliquid esse fatum dicant. Vitam quippe hóminum solus hic Cónditor, qui creávit, adminístrat. Neque enim propter stellas homo, sed stellæ propter hóminem factæ sunt: et si stella fatum hóminis dícitur, ipsis suis ministériis subésse homo perhibétur. Certe cum Jacob de útero egrédiens, prióris fratris plantam tenéret manu, prior perfécte nequáquam égredi pótuit, nisi súbsequens inchoásset: et tamen cum uno témpore, eodémque moménto utrúmque mater fúderit, non una utriúsque vitæ quálitas fuit.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Ab Oriénte \* venérunt Magi in Béthlehem adoráre Dóminum: et apértis thesáuris suis, pretiósa múnera obtulérunt: aurum, sicut Regi magno; thus, sicut Deo vero; myrrham, sepultúræ ejus, allelúja.
+
+**Ad Magnif. Ant.** Vidéntes stellam Magi, \* gavísi sunt gáudio magno: et intrántes domum, obtulérunt Dómino aurum, thus, et myrrham, allelúja.
+
+## Die 8 Januarii
+
+# De III die infra Octavam Epiphaniæ
+
+{RUBRIC: Semiduplex [REF: p. 492]}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 12, 1-16*
+
+OBSECRO ítaque vos, fratres, per misericórdiam Dei, ut exhibeátis córpora vestra hóstiam vivéntem, sanctam, Deo placéntem, rationábile obséquium vestrum. Et nolíte conformári huic sǽculo, sed reformámini in novitáte sensus

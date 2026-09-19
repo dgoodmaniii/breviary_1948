@@ -25078,3 +25078,32 @@ ANTEQUAM veníret Dóminus ut baptizarétur a Joánne in Jordáne, nóverat eum 
 #### Lectio viii
 
 QUID ergo per colúmbam dídicit, ne mendax póstea inveniátur, (quod avértat a nobis Deus opinári) nisi quamdam proprietátem in Christo talem futúram, ut quamvis multi minístri baptizatúri essent, sive justi sive injústi, non tribuerétur sánctitas baptísmi nisi illi, super quem descéndit colúmba, de quo dictum est: Hic est qui baptízat in Spíritu Sancto? Petrus ba-
+ptízet, hic est qui baptízat: Paulus baptízet, hic est qui baptízat: Judas baptízet, hic est qui baptízat. Nam si pro diversitáte meritórum baptísma sanctum est: quia divérsa sunt mérita, divérsa erunt baptísmata: et tanto quisque áliud mélius putátur accípere, quanto a melióre vidétur accepísse.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio magno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra ubi erat puer. — Et intrántes. Glória Patri. Et, apértis.
+
+#### Lectio ix
+
+AB illo, verbi grátia, justo, sancto baptizétur, álius ab álio inferióris mériti apud Deum, inferióris gradus, inferióris continéntiæ, inferióris vitæ; unum tamen et par et æquále est quod accepérunt, nisi quia hic est, qui baptízat?
+
+Te Deum laudámus.
+
+{RUBRIC: Ad Laudes, per Horas, et ad Vesperas ómnia dicúntur sicut in die Epiphaníæ [REF: p. 505], excépta Oratióne, quæ est Deus, cujus Unigénitus, ut ibídem habétur.}
+
+{RUBRIC: Quando Octáva Epiphaníæ vénerit in Sábbato, in II Vésperis Octávæ fit Commemoratio Domínicæ II post Epiphaníam, ut infra. [REF: p. 566]}
+
+## Dominica I post Epiphaniam
+
+### quæ est infra Octavam
+
+{RUBRIC: Semiduplex}
+
+{RUBRIC: Officium fit de S. Família, ut supra [REF: p. 511]; sed si Domínica in diem 13 Jan. incíderit, agitur Officium de die Octáva Epiphaníæ, et in I Nocturno legitur Inítium Epístolæ I ad Corínthios, juxta superiórem Rubricam. [REF: p. 511]}
+
+### Incipit Epistola prima beati Pauli Apostoli ad Corinthios
+
+#### Lectio i
+
+*Cap. 1, 1-13*
+
+PAULUS vocátus Apóstolus Jesu Christi per voluntátem Dei, et Sósthenes frater, Ecclésiæ Dei

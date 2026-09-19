@@ -4845,9 +4845,7 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 
 ℣. Benedícite. ℟. Deus.
 
-**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam.
-
-delíum ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
 
 {RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
 

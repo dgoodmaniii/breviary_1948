@@ -30422,3 +30422,12 @@ DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculu
 {RUBRIC: Ex Bulla dogmática Pii Papæ noni}
 
 OMNES norunt quanto stúdio hæc de immaculáta Deíparæ Vírginis Conceptióne doctrína a spectatíssimis religiósis famíliis et celebrióribus theológicis academíis, ac præstantíssimis divinárum rerum sciéntia doctóribus fúerit tradíta, assérta ac propugnáta.
+
+
+OMNES páriter norunt quantópere sollíciti fúerint Sacrórum antístites vel in ipsis ecclesiásticis convéntibus palam publicéque profitéri, sanctíssimam Dei Genitrícem Vírginem Maríam, ob prævísa Christi Dómini Redemptóris mérita, numquam originali subjacuísse peccáto, sed præservátam omníno fuísse ab oríginis labe, et idcírco sublimióri modo redémptam. Quibus illud profécto gravíssimum et omníno máximum accédit, ipsam quoque Tridentínam sýnodum, cum dogmáticum de peccáto originali éderet decrétum, quo juxta sacrárum Scripturárum sanctórumque Patrum ac probatissimórum conciliórum testimónia státuit ac definívit: Omnes hómines nasci originali culpa inféctos; tamen solémniter declarásse: Non esse suæ intentiónis, in decréto ipso tantáque definitiónis amplitúdine comprehéndere beátam et immaculátam Vírginem Dei Genitrícem Maríam. Hac enim declaratióne Tridentíni Patres, ipsam beatíssimam Vírginem ab originali labe solútam, pro rerum temporúmque adjúnctis, satis innuérunt, atque ádeo perspícue significárunt, nihil ex divínis lítteris, nihil ex traditióne, Patrúmque auctoritáte rite afférri posse, quod tantæ Vírginis prærogatívæ quovis modo refragétur.
+
+℟. Ego ex ore Altíssimi pródivi, primogénita ante omnem creatúram: ego feci in cælis, ut orirétur lumen indefíciens: \* Nondum erant abýssi, et ego jam concépta eram. ℣. Deus enim creávit me in justítia, et apprehéndit manum meam, et servávit me. — Nondum.
+
+#### Lectio v
+
+ET re quidem vera hanc de immaculáta beatíssimæ Vírginis Conceptióne doctrínam quotídie magis gravíssimo Ecclésiæ sensu, magistério, stúdio, sciéntia ac sapiéntia tam spléndide explicátam, declarátam, confirmátam, et apud omnes cathólici orbis pópulos ac natiónes mirándum in modum propagátam, in ipsa Ecclésia semper exstitísse véluti a majóribus accéptam, ac revelátæ doctrínæ charáctere insignítam, illústria venerándæ antiquitátis Ecclésiæ orientális et occidentális monuménta validíssime testántur. Equidem Patres Ecclesiǽque scriptóres, cæléstibus edócti elóquiis, nihil antíquius

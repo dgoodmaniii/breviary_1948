@@ -16892,7 +16892,7 @@ suis, ait illi: Tu es qui ventúrus es, an álium exspectámus? Et réliqua.
 
 {RUBRIC: Homília 6 in Evang. post init.}
 
-VISIS tot signis tantísque virtútibus, non scandalizári quisque pótuit, sed admirári. Sed infidélium mens grave in illo scándalum pértulit, cum eum post tot miácula moriéntem vidit. Unde et Paulus dicit: Nos autem prædicámus Christum crucifíxum, Judǽis quidem scándalum, géntibus autem stultítiam. Stultum quippe homínibus visum est, ut pro homínibus auctor vitæ morerétur: et inde contra eum homo scándalum sumpsit, unde ei ámplius débitor fíeri débuit. Nam tanto Deus ab homínibus dígnius honorándus est, quanto pro homínibus et indígna suscépit.
+VISIS tot signis tantísque virtútibus, non scandalizári quisque pótuit, sed admirári. Sed infidélium mens grave in illo scándalum pértulit, cum eum post tot mirácula moriéntem vidit. Unde et Paulus dicit: Nos autem prædicámus Christum crucifíxum, Judǽis quidem scándalum, géntibus autem stultítiam. Stultum quippe homínibus visum est, ut pro homínibus auctor vitæ morerétur: et inde contra eum homo scándalum sumpsit, unde ei ámplius débitor fíeri débuit. Nam tanto Deus ab homínibus dígnius honorándus est, quanto pro homínibus et indígna suscépit.
 
 ℟. Egrediétur Dóminus de Samaría ad portam, quæ réspicit ad Oriéntem: et véniet in Béthlehem, ámbulans super aquas redemptiónis Judæ: \* Tunc salvus erit omnis homo: quia ecce véniet. ℣. Et præparábitur in misericórdia sólium ejus, et sedébit super illud in veritáte. — Tunc.
 
@@ -24594,3 +24594,25 @@ SICUT enim in uno córpore multa membra habémus, ómnia autem membra non eúmde
 DILÉCTIO sine simulatióne. Odiéntes malum, adhæréntes bono: Caritáte fraternitátis ínvicem diligéntes: Honóre ínvicem prævenióntes: Sollicitúdine non pigri: Spíritu ferventes: Dómino serviéntes: Spe gaudéntes: In tribulatióne patiéntes: Oratióni instántes: Necessitátibus sanctórum communicántes: Hospitalitátem sectántes. Benedícite persequéntibus vos: benedícite, et nolíte maledícere. Gaudére cum gaudéntibus, flere cum fléntibus: Idípsum ínvicem sentiéntes: Non alta sapiéntes, sed humílibus consentiéntes.
 
 ℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+### In II Nocturno
+
+{RUBRIC: De Sermóne sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 2 de Epiphania}
+
+#### Lectio iv
+
+CUM tam multi jam nati, atque defúncti essent reges Judæórum, numquid quemquam eórum adorándum Magi quæsiérunt? Non, quia nec quemquam eórum cælo loquénte didicérunt. Verúmtamen, quod prætereúndum non est, hæc Magórum illuminátio magnum testimónium cæcitátis éxstitit Judæórum. In terra eórum isti requirébant, quem illi in sua non agnoscébant.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+APUD eos isti infántem invenérunt, quem illi apud se negavérunt. In his terris de longínquo isti et peregríni púerum Christum nondum verba proméntem adoravérunt, ubi cives illi júvenem mirácula faciéntem crucifixérunt. Isti in membris parvis Deum adoravérunt, illi in magnis factis nec tamquam hómini pepercérunt: quasi plus fúerit vidére novam stellam in ejus nativitáte fulgéntem, quam solem ejus in morte lugéntem.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja.
+
+#### Lectio vi
+
+JAM vero quod éadem stella, quæ Magos perdúxit ad locum, ubi erat cum matre Vírgine Deus infans, quæ útique póterat eos ad ipsam perdúcere civitátem, se tamen subtráxit, nec eis prorsus appáruit, donec de civitáte, in qua Christus nasceréetur, iídem ipsi interrogaréntur Judǽi, et ipsi eam secúndum divínæ Scriptúræ testimónium nominárent, ipsi dícerent: In Béthlehem Judæ. Sic enim scriptum est: Et tu Béthlehem terra Juda, non es mínima in princípibus Juda: ex te enim éxiet Dux, qui regat pópulum meum Israël. Quid áliud hic significávit divína providéntia, nisi apud Judǽos solas divínas lítteras remansúras, qui-

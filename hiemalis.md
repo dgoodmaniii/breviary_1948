@@ -17977,7 +17977,7 @@ quibus sacerdótibus actum sit, demonstrátur: et quia illum Joánnes Baptísta 
 
 #### Lectio iii
 
-ET venit in omnem regiónem Jordánis, prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum. Cunctis legéntibus liquet, quia Joánnes non solum baptísmum pœniténtiæ prædicávit, verum étiam quibúsdam dedit: sed tamen baptísmum suum in remissiónem peccatórum dare non pótuit. Remíssio éte­nim peccatórum in solo nobis baptísmo Christi tribúitur. Notándum itaque, quod dícitur: Prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum: quóniam baptísmum, quod sólveret, peccáta quia da-
+ET venit in omnem regiónem Jordánis, prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum. Cunctis legéntibus liquet, quia Joánnes non solum baptísmum pœniténtiæ prædicávit, verum étiam quibúsdam dedit: sed tamen baptísmum suum in remissiónem peccatórum dare non pótuit. Remíssio étenim peccatórum in solo nobis baptísmo Christi tribúitur. Notándum itaque, quod dícitur: Prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum: quóniam baptísmum, quod sólveret, peccáta quia da-
 
 bat verbo prædicatiónis, ita baptísmum pœniténtiæ, quo peccáta solvúntur, præcúrreret suo baptísmate, quo peccáta solvi non possunt.
 
@@ -18344,7 +18344,7 @@ virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpé
 
 *Cap. 51, 1-8*
 
-AUDÍTE me, qui sequímini quod justum est, et quǽritis Dóminum: attén­dite ad petram unde excísi estis, et ad cavérnam laci, de qua præcísi estis. Atténdite ad Abraham patrem vestrum, et ad Saram, quæ péperit vos: quia unum vocávi eum, et benedíxi ei, et multiplicávi eum. Consolábitur ergo Dóminus Sion, et consolábitur omnes ruínas ejus: et ponet desértum ejus quasi delícias, et solitúdinem ejus quasi hortum Dómini. Gáudium et lætítia inveniétur in ea, gratiárum áctio, et vox laudis.
+AUDÍTE me, qui sequímini quod justum est, et quǽritis Dóminum: atténdite ad petram unde excísi estis, et ad cavérnam laci, de qua præcísi estis. Atténdite ad Abraham patrem vestrum, et ad Saram, quæ péperit vos: quia unum vocávi eum, et benedíxi ei, et multiplicávi eum. Consolábitur ergo Dóminus Sion, et consolábitur omnes ruínas ejus: et ponet desértum ejus quasi delícias, et solitúdinem ejus quasi hortum Dómini. Gáudium et lætítia inveniétur in ea, gratiárum áctio, et vox laudis.
 
 ℟. Jurávi, dicit Dóminus, ut ultra jam non iráscar super terram: montes enim et colles suscípient justítiam meam, \* Et testaméntum pacis erit in Jerúsalem. ℣. Juxta est salus mea, ut véniat: et justítia mea, ut revelétur. — Et.
 
@@ -18731,7 +18731,7 @@ Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
 
 Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
 
-Serví­te Dómino in timóre: \* et exsultáte ei cum tremóre.
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
 
 Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
 
@@ -18769,7 +18769,7 @@ Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
 
 Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
 
-Si mei non fúerint dominá­ti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
 
 Et erunt ut compláceant elóquia oris mei: \* et me-
 ditátio cordis mei in conspéctu tuo semper.
@@ -19447,7 +19447,7 @@ Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desid�
 
 DE profúndis clamávi ad te, Dómine: \* Dómine, exáudi vocem meam:
 
-Fiant aures tuæ inten­déntes, \* in vocem deprecatiónis meæ.
+Fiant aures tuæ intendéntes, \* in vocem deprecatiónis meæ.
 
 Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
 
@@ -20134,7 +20134,7 @@ et noléntis consolári super eis, quia non sunt. Hæc dicit Dóminus: Quiéscat
 
 AUDIENS audívi Ephraim transmigrántem: Castigásti me, et erudítus sum, quasi juvénculus indómitus: convérte me, et convértar: quia tu Dóminus Deus meus. Postquam enim convertísti me, egi pœniténtiam: et postquam ostendísti mihi, percússi femur meum. Confúsus sum, et erúbui: quóniam sustínui oppróbrium adolescéntiæ meæ. Si fílius honorábilis mihi Ephraim, si puer delicátus: quia ex quo locútus sum de eo, adhuc recordábor ejus.
 
-℟. Sub altáre Dei audívi voces occisórum dicéntium: \* Quare non defén­dis sánguinem nostrum? Et accepérunt divínum respónsum: Adhuc sustinéte módicum tempus, donec impleátur númerus fratrum vestrórum. ℣. Vidi sub altáre Dei ánimas interfectórum propter verbum Dei, et propter testimónium quod habébant, et clamábant voce magna, dicéntes. — Quare.
+℟. Sub altáre Dei audívi voces occisórum dicéntium: \* Quare non deféndis sánguinem nostrum? Et accepérunt divínum respónsum: Adhuc sustinéte módicum tempus, donec impleátur númerus fratrum vestrórum. ℣. Vidi sub altáre Dei ánimas interfectórum propter verbum Dei, et propter testimónium quod habébant, et clamábant voce magna, dicéntes. — Quare.
 
 #### Lectio iii
 
@@ -20370,7 +20370,7 @@ Amen.
 
 #### Oratio
 
-OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléc­ti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine dilécti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
 
 {RUBRIC: Et fit Com. Oct. Nativitatis:}
 
@@ -20520,7 +20520,7 @@ Amen.
 
 #### Oratio
 
-OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléc­ti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine dilécti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
 
 {RUBRIC: Et fit Commemoratio Octávæ Nativitátis:}
 
@@ -20585,7 +20585,7 @@ ITAQUE jam non est servus, sed fílius: quod si fílius, et heres per Deum.
 
 #### Oratio
 
-OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléc­ti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine dilécti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
 
 {RUBRIC: Et fit Com. Oct. Nativitatis:}
 
@@ -20670,7 +20670,7 @@ pite ejus corónam de lápide pretióso. — Et.
 
 #### Lectio vi
 
-EX qua regis voce nefárii satéllites sperántes gratum se regi factúros, si Thomam e médio tóllerent, clam convenientes Cantuáriam, epíscopum in templo vesper­tínis horis óperam dantem aggrediúntur. Qui cléricis templi áditus præclúdere conántibus accúrrens, óstium apéruit, illis usus verbis ad suos: Non est Dei Ecclésia custodiénda more castrórum; et ego pro Ecclésia Dei libénter mortem subíbo. Tum ad mílites: Vos Dei jussu cavéte, ne cuípiam meórum noceátis. Deínde flexis génibus, Deo, beátæ Maríæ, sancto Dionýsio et réliquis Sanctis ejus ecclésiæ patrónis, Ecclésiam et seípsum comméndans, sacrum caput éadem constántia, qua iniquíssimi regis légibus restíterat, ímpio ferro præcidéndum óbtulit, quarto Kaléndas Januárii, anno Dómini millésimo centésimo septuagésimo primo: cujus cérebro respérsum est totíus templi paviméntum. Quem multis póstea illústrem miráculis idem Alexánder Póntifex rétulit in Sanctórum númerum.
+EX qua regis voce nefárii satéllites sperántes gratum se regi factúros, si Thomam e médio tóllerent, clam convenientes Cantuáriam, epíscopum in templo vespertínis horis óperam dantem aggrediúntur. Qui cléricis templi áditus præclúdere conántibus accúrrens, óstium apéruit, illis usus verbis ad suos: Non est Dei Ecclésia custodiénda more castrórum; et ego pro Ecclésia Dei libénter mortem subíbo. Tum ad mílites: Vos Dei jussu cavéte, ne cuípiam meórum noceátis. Deínde flexis génibus, Deo, beátæ Maríæ, sancto Dionýsio et réliquis Sanctis ejus ecclésiæ patrónis, Ecclésiam et seípsum comméndans, sacrum caput éadem constántia, qua iniquíssimi regis légibus restíterat, ímpio ferro præcidéndum óbtulit, quarto Kaléndas Januárii, anno Dómini millésimo centésimo septuagésimo primo: cujus cérebro respérsum est totíus templi paviméntum. Quem multis póstea illústrem miráculis idem Alexánder Póntifex rétulit in Sanctórum númerum.
 
 ℟. Stola jucunditátis índuit eum Dóminus: \* Et
 corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et corónam. Glória Patri. Et.
@@ -21131,7 +21131,7 @@ Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
 
 Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
 
-Si mei non fúerint dominá­ti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
 
 Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
 
@@ -26415,3 +26415,20 @@ HÆC tibi scribo, sperans me ad te veníre cito. Si autem tardávero, ut scias q
 *Cap. 1, 1-13*
 
 PAULUS Apóstolus Jesu Christi per voluntátem Dei, secúndum promissiónem vitæ, quæ est in Christo Jesu: Timótheo caríssimo fílio, grátia, misericórdia, pax a Deo Patre, et Christo Jesu Dómino nostro. Grátias ago Deo, cui sérvio a progenitóribus in consciéntia pura, quod si-
+ne intermissióne hábeam tui memóriam in oratiónibus meis, nocte ac die desíderans te vidére, memor lacrimárum tuárum, ut gáudio ímplear, recordatiónem accípiens ejus fídei, quæ est in te non ficta, quæ et habitávit primum in ávia tua Lóide, et matre tua Euníce, certus sum autem quod et in te.
+
+℟. Auribus pércipe, Deus, lácrimas meas: ne síleas a me, remítte mihi: \* Quóniam íncola ego sum apud te, et peregrínus. ℣. Compláceat tibi, ut erípias me: Dómine, ad adjuvándum me festína. — Quóniam.
+
+#### Lectio ii
+
+PROPTER quam causam admóneo te ut resúscites grátiam Dei, quæ est in te per impositiónem mánuum meárum. Non enim dedit nobis Deus spíritum timóris: sed virtútis, et dilectiónis, et sobrietátis. Noli ítaque erubéscere testimónium Dómini nostri, neque me vinctum ejus: sed collabóra Evangélio secúndum virtútem Dei: qui nos liberávit, et vocávit vocatióne sua sancta, non secúndum ópera nostra, sed secúndum propósitum suum, et grátiam, quæ data est nobis in Christo Jesu ante témpora sæculária.
+
+℟. Státuit Dóminus supra petram pedes meos, et diréxit gressus meos Deus: \* Et misit in os meum cánticum novum. ℣. Exaudívit preces meas: et edúxit me de lacu misériæ. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+MANIFESTÁTA est autem nunc per illuminatiónem Salvatóris nostri Jesu Christi, qui destrúxit quidem mortem, illuminávit autem vitam, et incorruptiónem per Evangélium: in quo pósitus sum ego prædicátor, et Apóstolus, et magíster géntium. Ob quam causam étiam hæc pátior, sed non confúndor. Scio enim cui crédidi, et certus sum quia potens est depósitum meum serváre in illum diem. Formam habe sanórum verbórum, quæ a me audísti in fide, et in dilectióne in Christo Jesu.
+
+℟. Ego dixi, Dómine, miserére mei: \* Sana ánimam meam, quia peccávi tibi. ℣. Ab ómnibus iniquitátibus meis éripe me, Dómine. — Sana. Glória Patri. Sana.

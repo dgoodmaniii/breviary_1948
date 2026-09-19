@@ -22374,3 +22374,24 @@ QUID ergo dicémus? permanébimus in peccáto, ut grátia abúndet? Absit. Qui e
 HOC sciéntes, quia vetus homo noster simul crucifíxus est, ut destruátur corpus peccáti, et ultra non serviámus peccáto. Qui enim mórtuus est, justificátus est a peccáto. Si autem mórtui sumus cum Christo: crédimus quia simul étiam vivémus cum Christo: sciéntes quod Christus resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo. Ita et vos existimáte, vos mórtuos quidem esse peccáto, vivéntes autem Deo, in Christo Jesu Dómino nostro.
 
 ℟. Confirmátum est cor Vírginis, in quo divína mystéria, Angelo nuntiánte,
+concépit: tunc speciósum forma præ fíliis hóminum castis suscépit viscéribus: \* Et benedícta in ætérnum, Deum nobis prótulit et hóminem. ℣. Domus pudíci péctoris templum repénte fit Dei: intácta nésciens virum, verbo concépit Fílium. — Et. (Glória Patri. Et.)
+
+{RUBRIC: Ex Tractátu sancti Augustíni Epíscopi in Joánnem}
+
+#### Lectio iii
+
+*Tract. 36*
+
+IN quátuor Evangéliis, vel pótius quátuor libris uníus Evangélii, sanctus Joánnes Apóstolus non immérito secúndum intelligéntiam spiritálem áquilæ comparátus, áltius multóque sublímius áliis tribus eréxit prædicatiónem suam; et in ejus erectióne étiam corda nostra érigi vóluit. Nam céteri tres Evangelístæ tamquam cum hómine Dómino in terra ámbulant, et de divinitáte ejus pauca dixérunt: istum autem quasi piguérit in terra ambuláre, sicut ipso exórdio sui sermónis intónuit, eréxit se non solum super terram, et super omnem ámbitum áëris et cæli, sed super omnem étiam exércitum Angelórum, omnémque constitutiónem invisibílium Potestátum: et pervénit ad eum, per quem facta sunt ómnia, dicéndo: In princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum.
+
+Te Deum laudámus.
+
+{RUBRIC: In Officiis vero novem Lectiónum, omísso Glória Patri in II Responsório, dícitur}
+
+#### Lectio iii
+
+*Rom. 6, 12-18*
+
+NON ergo regnet peccátum in vestro mortáli córpore, ut obediátis concupiscéntiis ejus. Sed neque exhibeátis membra vestra arma iniquitátis peccáto: sed exhibéte vos Deo tamquam ex mórtuis vivéntes: et membra vestra arma justítiæ Deo. Peccátum enim vobis non dominábitur: non enim sub lege estis, sed sub grátia. Quid ergo? peccábimus, quóniam non sumus sub lege, sed sub grátia? Absit. Nescítis quóniam cui exhibétis vos servos ad obediéndum, servi estis ejus, cui obedítis, sive peccáti ad mortem, sive obeditiónis ad justítiam? Grátias autem Deo, quod fuístis servi peccáti, obedístis autem ex corde in eam formam doctrínæ, in quam tráditi estis. Liberáti autem a peccáto, servi facti estis justítiæ.
+
+℟. Benedícta et venerábilis es, Virgo María, quæ sine tactu pudóris invénta es mater Salvatóris: \* Ja-

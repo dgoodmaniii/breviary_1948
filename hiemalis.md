@@ -19600,3 +19600,28 @@ DA nobis, quǽsumus, Dómine, imitári quod cólimus: ut discámus et inimícos 
 IN diébus illis, crescénte número discipulórum, factum est murmur Græcórum advérsus Hebrǽos, eo quod despiceréntur in ministério quotidiáno víduæ eórum. Convocántes autem duódecim multitúdinem discipulórum, dixérunt: Non est æquum nos derelínquere verbum Dei et ministráre mensis. Considerate ergo, fratres, viros ex vobis boni testimónii septem, plenos Spíritu Sancto et sapiéntia, quos constituámus super hoc opus. Nos vero oratióni et ministério verbi instántes érimus. Et plácuit sermo coram omni multitúdine. Et elegérunt Stéphanum, virum plenum fide et Spíritu Sancto, et Philíppum, et Próchorum, et Nicánorem, et Timónem, et Pármenam, et Nicoláum ádvenam Antiochénum. Hos statuérunt ante conspéctum Apostolórum: et orántes imposuérunt eis manus.
 
 ℟. Stéphanus autem plenus grátia et fortitúdine, \* Faciébat prodígia et signa magna in pópulo. ℣. Surrexérunt quidam de synagóga disputántes cum Stéphano: et non póterant resístere sapién-
+tiæ, et Spirítui qui loquebátur. — Faciébat.
+
+#### Lectio ii
+
+ET verbum Dómini crescébat, et multiplicabátur númerus discipulórum in Jerúsalem valde: multa étiam turba sacerdótum obediébat fídei. Stéphanus autem plenus grátia et fortitúdine, faciébat prodígia et signa magna in pópulo. Surrexérunt autem quidam de synagóga, quæ appellátur Libertinórum, et Cyrenénsium, et Alexandrinórum, et eórum qui erant a Cilícia, et Asia, disputántes cum Stéphano: et non póterant resístere sapiéntiæ, et Spirítui qui loquebátur. Audiéntes autem hæc, dissecabántur córdibus suis, et stridébant déntibus in eum.
+
+℟. Vidébant omnes Stéphanum, qui erant in concílio: \* Et intuebántur vultum ejus tamquam vultum Angeli stantis inter illos. ℣. Plenus grátia et fortitúdine, faciébat prodígia et signa magna in pópulo. — Et.
+
+#### Lectio iii
+
+CUM autem esset plenus Spíritu Sancto, inténdens in cælum, vidit glóriam Dei, et Jesum stantem a dextris Dei. Et ait: Ecce vídeo cælos apértos, et Fílium hóminis stantem
+
+a dextris Dei. Exclamántes autem voce magna continuérunt aures suas, et ímpetum fecérunt unanímiter in eum. Et ejiciéntes eum extra civitátem lapidábant: et testes deposuérunt vestiménta sua secus pedes adolescéntis, qui vocabátur Saulus. Et lapidábant Stéphanum invocántem et dicéntem: Dómine Jesu, súscipe spíritum meum. Pósitis autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+℟. Intuens in cælum beátus Stéphanus, vidit glóriam Dei, et ait: \* Ecce vídeo cælos apértos, et Fílium hóminis stantem a dextris virtútis Dei. ℣. Cum autem esset Stéphanus plenus Spíritu Sancto, inténdens in cælum, vidit glóriam Dei, et ait. — Ecce. Glória Patri. Ecce.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Fulgéntii Epíscopi}
+
+{RUBRIC: S. 3, de S. Stéphano, circa init.}
+
+#### Lectio iv
+
+HERI celebrávimus temporálem sempitérni Regis nostri natálem: hódie celebrámus triumphálem mílitis passiónem. Heri enim Rex

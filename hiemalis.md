@@ -27412,3 +27412,22 @@ AD condemnatiónem autem ceterórum, et ad expressiónem pietátis divínæ, dí
 *Cap. 8, 4-15*
 
 IN illo témpore: Cum turba plúrima convenírent, et de civitátibus
+properárent ad Jesum, dixit per similitúdinem: Exiit qui séminat, semináre semen suum. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 15 in Evangelia}
+
+LECTIO sancti Evangélii, quam modo, fratres caríssimi, audístis, expositióne non índiget, sed admonitióne. Quam enim per semetípsam Véritas expósuit, hanc discútere humána fragílitas non præsúmat. Sed est quod sollícite in hac ipsa expositióne Domínica pensáre debeámus: quia si nos vobis semen verbum, agrum mundum, vólucres dæmónia, spinas divítias significáre diceremus; ad credéndum nobis mens fórsitan vestra dubitáret. Unde et idem Dóminus per semetípsum dignátus est expónere quod dicébat, ut sciátis rerum significatiónes quǽrere in iis étiam, quæ per semetípsum nóluit explanáre.
+
+℟. Benedíxit Deus Noë, et fíliis ejus, et dixit ad eos: \* Créscite, et multiplicámini, et repléte terram. ℣. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos. — Créscite.
+
+#### Lectio viii
+
+EXPONÉNDO ergo quod dixit, figuráte se loqui innótuit: quátenus certos nos rédderet, cum vobis nostra fragílitas verbórum illíus figúras aperíret. Quis enim mihi umquam créderet, si spinas divítias interpretári voluíssem? máxime cum illæ pungant, istæ deléctent. Et tamen spinæ sunt, quia cogitatiónum suárum punctiónibus mentem lácerant: et cum usque ad peccátum pértrahunt, quasi inflícto vúlnere cruéntant. Quas bene hoc in loco, álio Evangelísta testánte, nequáquam Dóminus divítias, sed falláces divítias appéllat.
+
+℟. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos: \* Neque erit deínceps dilúvium dissípans terram. ℣. Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. — Neque.
+
+#### Lectio ix
+
+FALLÁCES enim sunt, quæ nobíscum diu permanére non possunt: falláces sunt, quæ mentis nostræ inópiam non expéllunt. Solæ autem divítiæ veræ sunt, quæ nos dívites virtútibus fáciunt. Si ergo, fratres caríssimi, esse dívites cúpitis, veras diví-

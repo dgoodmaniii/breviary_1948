@@ -15201,3 +15201,55 @@ Captábunt in ánimam justi: \* et sánguinem innocéntem condemnábunt.
 Et factus est mihi Dóminus in refúgium: \* et Deus meus in adjutórium spei meæ.
 
 Et reddet illis iniquitátem ipsórum: et in malítia eórum dispérdet eos: \* dispérdet illos Dóminus, Deus noster.
+
+#### Psalmus 107
+
+PARÁTUM cor meum, Deus, parátum cor meum: \* cantábo, et psallam in glória mea.
+
+Exsúrge, glória mea, exsúrge, psaltérium et cíthara: \* exsúrgam dilúculo.
+
+Confitébor tibi in pópulis, Dómine: \* et psallam tibi in natiónibus.
+
+Quia magna est super cælos misericórdia tua: \* et usque ad nubes véritas tua:
+
+Exaltáre super cælos, Deus, et super omnem terram glória tua: \* ut liberéntur dilécti tui.
+
+Salvum fac déxtera tua, et exáudi me: \* Deus locútus est in sancto suo:
+
+Exsultábo, et dívidam Síchimam, \* et convállem tabernaculórum dimétiar.
+
+Meus est Gálaad, et meus est Manásses: \* et Ephraïm suscéptio cápitis mei.
+
+Juda rex meus: \* Moab lebes spei meæ.
+
+In Idumǽam exténdam calceaméntum meum: \* mihi alienígenæ amíci facti sunt.
+
+Quis dedúcet me in civitátem munítam? \* quis dedúcet me usque in Idumǽam?
+
+Nonne tu, Deus, qui repulísti nos, \* et non exíbis, Deus, in virtútibus nostris?
+
+Da nobis auxílium de tribulatióne: \* quia vana salus hóminis.
+
+In Deo faciémus virtútem: \* et ipse ad níhilum dedúcet inimícos nostros.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fúerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 149, qui in Laudíbus locum non hábuit.}
+
+#### Psalmus 149
+
+CANTÁTE Dómino cánticum novum: \* laus ejus in ecclésia sanctórum.
+
+Lætétur Israël in eo, qui fecit eum: \* et fílii Sion exsúltent in rege suo.
+
+Laudent nomen ejus in choro: \* in týmpano, et psaltério psallant ei:
+
+Quia beneplácitum est Dómino in pópulo suo: \* et exaltábit mansuétos in salútem.
+
+Exsultábunt sancti in glória: \* lætabúntur in cubílibus suis.
+
+Exaltatiónes Dei in gútture eórum: \* et gládii ancípites in mánibus eórum.
+
+Ad faciéndam vindíctam in natiónibus: \* increpatiónes in pópulis.
+
+Ad alligándos reges eórum in compédibus: \* et nóbiles eórum in mánicis férreis.
+
+Ut fáciant in eis judícium conscríptum: \* glória hæc est ómnibus sanctis ejus.

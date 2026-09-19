@@ -20833,3 +20833,57 @@ Sancto, Angelis, Prophétis et Apóstolis crédere non vis? Vide, quam signánte
 NON mediócre fídei tibi hoc videátur exémplum, quod vilis sit persóna pastórum. Certe quo vílior ad prudéntiam, eo pretiósior ad fidem. Non gymnásia choris referta sapiéntum, sed plebem Dóminus símplicem requisívit, quæ phaleráre audíta et fucáre nescíret. Simplícitas enim quǽritur, non ambítio desiderátur.
 
 ℟. O Regem cæli, cui tália famulántur obséquia: stábulo pónitur, qui cóntinet mundum: \* Jacet in præsépio, et in cælis regnat. ℣. Natus est nobis hódie Salvátor, qui est Christus Dóminus, in civitáte David. — Jacet. Glória Patri. Jacet.
+
+#### Lectio ix
+
+NEC contemnénda putes quasi vília verba pastórum. A pastóribus enim María fidem cólligit, a pastóribus pópulus ad Dei reveréntiam congregátur. Miráti étiam sunt omnes qui audiérunt, de iis, quæ dicebántur a pastóribus ad ipsos. María autem conservábat ómnia verba hæc, cónferens in corde suo. Discámus sanctæ Vírginis in ómnibus castitátem, quæ non minus ore pudíca quam córpore, arguménta fídei conferébat in corde.
+
+{RUBRIC: Deinde dícitur} Te Deum laudámus.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 31 Decembris
+
+# S. Silvestri I
+
+## Papæ et Confessoris
+
+{RUBRIC: Duplex}
+
+{RUBRIC: In I Vésperis Antiphónæ et Psalmi de Nativitáte 402; Capit. et réliqua de Comm. Conf. Pont. [70]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+#### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Silvéstrum Summum Pontí-
+
+ficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis diei infra Octavam:}
+
+**Ant.** Hódie Christus natus est: hódie Salvátor appáruit: hódie in terra canunt Angeli, lætántur Archángeli: hódie exsúltant justi, dicéntes: Glória in excélsis Deo, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Completorium de Feria currénti.}
+
+{RUBRIC: Ad réliquas Horas Antiphónæ et Psalmi, et ad Matutínum étiam Versus, de Féria; réliqua de Communi, prǽter Lectiónes.}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 3, 19-21*
+
+SCIMUS autem quóniam quæcúmque lex lóquitur, iis, qui in lege sunt, lóquitur: ut omne os obstruátur, et súbditus fiat omnis mundus Deo: quia ex opéribus

@@ -27487,3 +27487,49 @@ Lapsis fides revértitur.
 
 Jesu, labántes réspice,
 Et nos vidéndo córrige:
+Si réspicis, labes cadunt,
+Fletúque culpa sólvitur.
+
+Tu, lux, refúlge sénsibus,
+Mentísque somnum díscute:
+Te nostra vox primum sonet,
+Et vota solvámus tibi.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum. Amen.
+
+℣. Dómine, refúgium factus es nobis. ℟. A generatióne et progénie.
+
+**Ad Bened. Ant.** Cum turba \* plúrima convenírent ad Jesum, et de civitátibus properárent ad eum, dixit per similitúdinem: Exiit qui séminat, semináre semen suum.
+
+#### Oratio
+
+DEUS, qui cónspicis quia ex nulla nostra actióne confídimus: concéde propítius; ut contra advérsa ómnia Doctóris géntium protectióne muniámur. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Semen cécidit \* in terram bonam, et áttulit fructum in patiéntia.
+
+{RUBRIC: Psalmi 92 Dóminus regnávit et 99 Jubiláte 54, deínde 118 Beáti immaculáti et Retríbue, ut in Psaltério 55. Ad absolutiónem vero Capítuli Lectio brevis Dóminus autem, ut item in Psaltério. 60}
+
+### Ad Tertiam
+
+**Ant.** Qui verbum Dei \* rétinent corde perfécto et óptimo, fructum áfferunt in patiéntia.
+
+**Capit.** *2 Cor. 11, 19-20*
+
+FRATRES: Libénter suffértis insipiéntes, cum sitis ipsi sapiéntes: sustinétis enim si quis vos in servitútem rédigit, si quis dévorat, si quis áccipit, si quis extóllitur, si quis in fáciem vos cædit.
+
+℟. br. Inclína cor meum, Deus, \* In testimónia tua. Inclína. ℣. Avérte óculos meos, ne vídeant vanitátem: in via tua vivífica me. In. Glória Patri. Inclína. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi.
+
+### Ad Sextam
+
+**Ant.** Semen cécidit \* in terram bonam, et áttulit fructum, áliud centésimum, et áliud sexagésimum.
+
+**Capitulum** *2 Cor. 11, 25*
+
+TER virgis cæsus sum, semel lapidátus sum, ter naufrágium feci, nocte et die in profúndo maris fui.
+
+℟. br. In ætérnum, Dómine, \* Pérmanet verbum tuum. In ætérnum. ℣. In

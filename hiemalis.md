@@ -29553,3 +29553,14 @@ plena, quæ dedit cælis glóriam, terris Dóminum, pacémque refúdit, fidem g�
 #### Lectio v
 
 NON immérito ígitur veníre de Líbano jubétur, quia Líbanus candidátio interpretátur. Erat enim candidáta multis meritórum virtútibus, et dealbáta nive candídior, Spíritus Sancti munéribus, simplicitátem colúmbæ in ómnibus repræséntans: quóniam, quidquid in ea gestum est, totum púritas et simplícitas, totum véritas et grátia fuit; totum misericórdia et justítia, quæ de cælo prospéxit: et ídeo immaculáta, quia in nullo corrúpta. Circúmdedit enim virum in útero, sicut Jeremías sanctus testátur, et non aliúnde accépit. Fáciet, inquit, Dóminus novum super terram, et múlier circúmdabit virum. Vere novum, et ómnium novitátum superéminens nóvitas virtútum, quando Deus (quem ferre non potest mundus, neque vidére áliquis, ut vívere possit) sic ingréssus est hospítium ventris, ut córporis claustrum nescíret; sicque gestátus, ut totus Deus in eo esset; et sic exívit inde, ut esset (sicut Ezéchiel fatétur) porta omníno clausa. Unde cánitur in eísdem Cánticis de ea: Hortus conclúsus, fons signátus, emissiónes tuæ paradísus.
+
+
+VERE hortus deliciárum, in quo cónsita sunt univérsa florum génera, et odoraménta virtútum; sicque conclúsus, ut nésciat violári, neque corrúmpi ullis insidiárum fráudibus. Fons ítaque signátus sigíllo totíus Trinitátis.
+
+℟. Nihil inquinátum in eam incúrrit: \* Candor est lucis ætérnæ et spéculum sine mácula. ℣. Est enim hæc speciósior sole, et luci comparáta invenítur púrior. — Candor.
+
+#### Lectio vi
+
+{RUBRIC: Ex Actis Pii Papæ noni}
+
+DEÍPARÆ autem Vírginis in sua Conceptióne de tetérrimo humáni géneris hoste victóriam, quam divína elóquia, veneránda tradítio, perpétuus Ecclésiæ sensus, singuláris epíscopórum ac fidélium conspirátio, insígnia quoque summórum Pontíficum acta atque constitutiónes mirífice jam illustrábant, Pius nonus Póntifex máximus totíus Ecclésiæ votis ánnuens státuit suprémo suo atque infallíbili oráculo solémniter proclamáre. Itaque sexto Idus Decémbris anni millésimi octingentésimi quinquagésimi quarti in basílica Vaticána, ingénti sanctæ Románæ Ecclésiæ patrum cardinálium et episcopó-

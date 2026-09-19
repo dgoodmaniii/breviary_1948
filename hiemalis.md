@@ -18616,3 +18616,50 @@ PER quem accépimus grátiam, et apostolátum ad obediéndum fídei in ómnibus 
 ---
 
 {RUBRIC: ¶ Si Dominica a die 25 ad 28 Decémbris inclusíve occúrrerit, ipsa die de ea nihil fit, sed ejus Offícium post diem 28 transfértur, ut infra suo loco notátur.}
+
+---
+
+## Die 25 Decembris
+
+# In Nativitate Domini
+
+[IMAGE]
+
+{RUBRIC: Duplex I classis}
+
+{RUBRIC: Cum Octava privilegiáta III órdinis}
+
+### In I Vesperis
+
+**Ant. 1** Rex pacíficus \* magnificátus est, cujus vultum desíderat univérsa terra.
+
+{RUBRIC: Psalmi de Dominica 70, sed loco últimi dícitur Ps. 116 Laudáte Dóminum, omnes gentes. 89}
+
+**2** Magnificátus est \* Rex pacíficus super omnes reges univérsæ terræ.
+
+**3** Compléti sunt \* dies Maríæ, ut páreret Fílium suum primogénitum.
+
+**4** Scitóte \* quia prope est regnum Dei: amen dico vobis, quia non tardábit.
+
+**5** Leváte cápita vestra: \* ecce appropínquat redémptio vestra.
+
+#### Capitulum
+
+*Tit. 3, 4-5*
+
+APPÁRUIT benígnitas, et humánitas Salvatóris nostri Dei: non ex opéribus justítiæ, quæ fécimus nos, sed secúndum suam misericórdiam salvos nos fecit.
+
+#### Hymnus
+
+JESU, Redémptor ómnium,
+Quem lucis ante oríginem
+Parem Patérnæ glóriæ
+Pater suprémus édidit.
+
+Tu lumen, et splendor Patris,
+Tu spes perénnis ómnium,
+Inténde quas fundunt preces
+Tui per orbem sérvuli.
+
+Meménto, rerum Cónditor,
+Nostri quod olim córporis,

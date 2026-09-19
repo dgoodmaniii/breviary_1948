@@ -27193,3 +27193,18 @@ IMMÍSIT ergo Dóminus Deus sopórem in Adam: cumque obdormísset, tulit unam de
 *Cap. 3, 1-20*
 
 SED et serpens erat callídior cunctis animántibus terræ quæ fécerat Dóminus Deus. Qui dixit ad mulíerem: Cur præcépit vobis Deus ut non comederétis de omni ligno paradísi? Cui respóndit múlier: De fructu lignórum, quæ sunt in paradíso, véscimur: de fructu vero ligni, quod est in médio paradísi, præcépit nobis Deus ne comederémus: et ne tangerémus illud, ne forte moriámur. Dixit autem
+serpens ad mulíerem: Nequáquam morte moriémini. Scit enim Deus quod in quocúmque die comedéritis ex eo, aperiéntur óculi vestri: et éritis sicut dii, sciéntes bonum et malum. Vidit ígitur múlier quod bonum esset lignum ad vescéndum, et pulchrum óculis, aspectúque delectábile: et tulit de fructu illíus, et comédit: dedítque viro suo, qui comédit. Et apérti sunt óculi ambórum.
+
+℟. Plantáverat autem Dóminus Deus paradísum voluptátis a princípio: \* In quo pósuit hóminem, quem formáverat. ℣. Produxítque Dóminus Deus de humo omne lignum pulchrum visu, et ad vescéndum suáve; lignum étiam vitæ in médio paradísi. — In.
+
+#### Lectio ii
+
+CUMQUE cognovíssent se esse nudos, consuérunt fólia ficus, et fecérunt sibi perizómata. Et, cum audíssent vocem Dómini Dei deambulántis in paradíso ad auram post merídiem, abscóndit se Adam et uxor ejus a fácie Dómini Dei in médio ligni paradísi. Vocavítque Dóminus Deus Adam, et dixit ei: Ubi es? Qui ait: Vocem tuam audívi in paradíso: et tímui, eo quod nudus essem, et abscóndi me. Cui dixit: Quis enim indicávit tibi quod nudus esses, nisi quod ex ligno, de quo præcéperam tibi ne coméderes, comedísti? Dixítque Adam: Múlier, quam dedísti mihi sóciam, dedit mihi de ligno, et comédi. Et dixit Dóminus Deus ad mulíerem: Quare hoc fecísti? Quæ respóndit: Serpens decépit me, et comédi.
+
+℟. Ecce Adam quasi unus ex nobis factus est, sciens bonum et malum: \* Vidéte, ne forte sumat de ligno vitæ, et vivat in ætérnum. ℣. Fecit quoque Dóminus Deus Adæ túnicam pellíceam, et índuit eum, et dixit. — Vidéte.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Vidéte.}
+
+#### Lectio iii
+
+ET ait Dóminus Deus ad serpéntem: Quia fecísti hoc, maledíctus es inter ómnia animántia et béstias terræ: super pectus tuum gradiéris, et terram cómedes cunctis diébus vitæ tuæ. Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus: ipsa cónteret caput tuum, et tu insidiáberis calcáneo ejus. Mulíeri quoque dixit: Multiplicábo ærúmnas tuas, et concéptus tuos:

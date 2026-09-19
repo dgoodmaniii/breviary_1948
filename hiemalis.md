@@ -33277,9 +33277,7 @@ DEUS, qui sanctum Joánnem Confessórem tuum adolescéntium patrem et magístrum
 
 **Oratio** C 1
 
-INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ
-
-actiónis gravat, beáti Ignátii Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti Ignátii Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
 
 {RUBRIC: Et fit Commemoratio præcedéntis:}
 
@@ -33344,3 +33342,37 @@ IPSE Dóminus Jesus erat granum mortificándum et multiplicándum; mortificándu
 HOC autem, quod postérius dixi, magis habére vidétur evangélicus sensus; séquitur enim: Et qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam. Ergo, quod supra dictum est, Qui amat, subintellígitur in hoc mundo, ipse útique perdet; qui autem odit, útique in hoc mundo, in vitam ætérnam ipse custódit eam. Magna et mira senténtia, quemádmodum sit hóminis in ánimam suam amor ut péreat, ódium ne péreat. Si male amáveris, tunc odísti; si bene óderis, tunc amásti. Felíces, qui odérunt custodiéndo, ne perdant amándo.
 
 ℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit:
+
+\* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória. Qui.
+
+#### Lectio ix
+
+SED vide ne tibi subrépat ut teípsum velis interímere, sic intelligéndo, quod debes odísse in hoc mundo ánimam tuam. Hinc enim quidam malígni atque pervérsi hómines, et in seípsis crudelióres et sceleratióres homicídæ, flammis se donant, aquis se præfócant, præcipítio se collídunt et péreunt. Hoc Christus non dócuit; immo étiam diábolo præcipítium suggerénti respóndit: Redi retro, sátana: scriptum est, Non tentábis Dóminum, Deum tuum. Petro autem dixit, sígnificans qua morte clarificatúrus erat Deum: Cum esses júnior, cingébas te, et ambulábas quo volébas; cum autem senúeris, alter te cinget et feret quo tu non vis. Ubi satis expréssit, non a seípso, sed ab álio debére occídi, qui vestígia séquitur Christi.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio** C 1
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti Ignátii Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 2 Februarii
+
+### In Purificatione Beatæ Mariæ Virginis
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Communi Festórum B. Maríæ Virg., præter ea quæ hic habéntur própria.}
+
+##### In I Vesperis
+
+{RUBRIC: Ant. 1} O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est: et procédens homo sine sémine, largítus est nobis suam Deitátem.

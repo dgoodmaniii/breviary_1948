@@ -26884,3 +26884,16 @@ PRECES pópuli tui, quǽsumus, Dómine, cleménter exáudi: ut, qui juste pro pe
 *Cap. 1, 1-26*
 
 IN princípio creávit Deus cælum, et terram. Terra autem erat inánis et vácua, et ténebræ erant super fáciem abýssi: et Spíritus Dei ferebátur super aquas. Dixítque Deus: Fiat lux. Et facta est lux. Et vidit Deus lucem quod esset bona: et divísit lucem a ténebris. Appellavítque lucem Diem, et ténebras Noctem: factúmque est véspere et mane, dies unus. Dixit quoque Deus: Fiat firmaméntum in médio aquárum: et dívidat aquas ab aquis. Et fecit Deus firmaméntum, divisítque aquas, quæ erant sub firmaménto, ab his, quæ erant super firmaméntum. Et factum est ita. Vocavítque Deus firma-
+méntum, Cælum: et factum est véspere et mane, dies secúndus.
+
+℟. In princípio creávit Deus cælum et terram, et fecit in ea hóminem, \* Ad imáginem et similitúdinem suam. ℣. Formávit ígitur Deus hóminem de limo terræ, et inspirávit in fáciem ejus spiráculum vitæ. — Ad imáginem.
+
+#### Lectio ii
+
+DIXIT vero Deus: Congregéntur aquæ, quæ sub cælo sunt, in locum unum: et appáreat árida. Et factum est ita. Et vocávit Deus áridam, Terram, congregationésque aquárum appellávit Mária. Et vidit Deus quod esset bonum. Et ait: Gérminet terra herbam viréntem et faciéntem semen, et lignum pomíferum fáciens fructum juxta genus suum, cujus semen in semetípso sit super terram. Et factum est ita. Et prótulit terra herbam viréntem, et faciéntem semen juxta genus suum, lignúmque fáciens fructum, et habens unumquódque seméntem secúndum spéciem suam. Et vidit Deus quod esset bonum. Et factum est véspere et mane, dies tértius. Dixit autem Deus: Fiant luminária in firmaménto cæli, et dívidant diem ac noctem, et sint in signa et témpora, et dies et annos: ut lúceant in firmaménto cæli, et illúminent terram. Et factum est ita. Fecítque Deus duo luminária magna: lumináre majus, ut præésset diéi: et lumináre minus, ut præésset nocti: et stellas. Et pósuit eas in firmaménto cæli, ut lucérent super terram, et præéssent diéi ac nocti, et divíderent lucem ac ténebras. Et vidit Deus quod esset bonum. Et factum est véspere et mane, dies quartus.
+
+℟. In princípio creávit Deus cælum et terram, et Spíritus Dei ferebátur super aquas: \* Et vidit Deus cuncta quæ fécerat, et erant valde bona. ℣. Ígitur perfécti sunt cæli et terra, et omnis ornátus eórum. — Et.
+
+#### Lectio iii
+
+DIXIT étiam Deus: Prodúcant aquæ réptile ánimæ vivéntis, et volátile super terram sub firmaménto cæli. Creavítque Deus cete grándia, et omnem ánimam vivéntem atque motábilem, quam prodúxerant aquæ in spécies suas, et omne volátile secúndum genus suum. Et vidit Deus quod esset bonum. Benedixítque eis, dicens: Créscite, et multi-

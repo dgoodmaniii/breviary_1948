@@ -29956,3 +29956,39 @@ LÆTÁRE, pater Adam, sed magis tu, o Heva mater, exsúlta, qui, sicut ómnium p
 #### Lectio viii
 
 QUID dicébas, o Adam? Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Verba malítiæ sunt hæc, quibus magis áugeas quam déleas culpam. Verúmtamen Sapiéntia vicit malítiam, cum occasiónem véniæ, quam a te Deus interrogándo elícere tentávit, sed non pótuit, in thesáuro indeficiéntis suæ pietátis invénit. Rédditur nempe fémina pro fémina, prudens pro fátua, húmilis pro supérba; quæ pro ligno mortis gustum tibi pórrigat vitæ, et pro venenóso cibo illo amaritúdinis, dulcédinem páriat fructus ætérni. Muta ergo iníquæ excusatiónis verbum in vocem gratiárum actiónis, et dic: Dómine, múlier quam dedísti mihi, dedit mihi de ligno vitæ, et comédi; et dulce factum est super mel ori meo, quia in ipso vivificásti me. Ecce enim ad hoc missus est Angelus ad Vírginem. O admirándam et omni honóre digníssimam Vír-
+ginem! O féminam singuláriter venerándam, super omnes féminas admirábilem, paréntum reparatrícem, posterórum vivificatrícem!
+
+℟. Magníficat ánima mea Dóminum: \* Quia fecit mihi magna qui potens est, et sanctum nomen ejus. ℣. Ecce enim ex hoc beátam me dicent omnes generatiónes. — Quia. Glória Patri. Quia.
+
+#### Lectio ix
+
+QUAM tibi áliam prædixísse Deus vidétur, quando ad serpéntem ait: Inimicítias ponam inter te et mulíerem? Et si adhuc dúbitas quod de María díxerit, audi quod séquitur: Ipsa cónteret caput tuum. Cui hæc serváta victória est, nisi Maríæ? Ipsa procul dúbio caput contrívit venenátum, quæ omnímodam malígni suggestiónem tam de carnis illécebra, quam de mentis supérbia dedúxit ad níhilum. Quam vero áliam Sálomon requirébat, cum dicébat: Mulíerem fortem quis invéniet? Nóverat quippe vir sápiens hujus sexus infirmitátem, frágile corpus, lúbricam mentem. Quia tamen et Deum légerat promisísse, et ita vidébat congrúere, ut qui vícerat per féminam, vinceré-
+tur per ipsam, veheménter admírans ajébat: Mulíerem fortem quis invéniet? Quod est dícere: Si ita de manu féminæ pendet et nostra ómnium salus, et innocéntiæ restitútio, et de hoste victória; fortis omníno necésse est ut provideátur, quæ ad tantum opus possit esse idónea.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: Ad Laudes, post Commemoratiónem Fériæ, fit Commemoratio S. Melchíadis Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Melchíadem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis diéi infra Octávam ac Fériæ.}
+
+---
+
+## Die 11 Decembris
+
+### S. Damasi I
+
+{RUBRIC: Papæ et Confessoris}
+
+{RUBRIC: Semiduplex} [69]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtú-

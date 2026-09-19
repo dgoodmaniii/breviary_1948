@@ -31316,4 +31316,69 @@ QUEM ómnium opinióne mórtuum noctu sancta múlier Iréne sepeliéndi grátia 
 
 #### Lectio ix
 
-FABIÁNUS Románus, a Maximíno usque ad Décium regens Ecclésiam, septem diáconis regiónes divísit, qui páuperum curam habérent. Tótidem subdiáconos creávit, qui res gestas Mártyrum a septem notáriis scriptas collígerent. Idem státuit, ut quotánnis féria quinta in Cœna Dómini, vétere combústo, chrisma renovarétur. Dénique, décimo tértio Kaléndas Februárii martýrio coronátus, in cœmetério Callísti via Áppia sepelítur. Sebastiánus, ob géneris nobilitátem et virtútem Diocletiáno carus, dux primæ cohórtis, Christiános, quorum fidem clam colébat, ópera et facultátibus adjuvábat, et in Christi confessióne confirmábat. Quibus Diocletiáno delátis, Sebastiánum ómnibus artifíciis a Christi fide conátur avértere. Sed cum nihil nec pollicéndo, nec terréndo profíceret, ad palum alligátum sagíttis confígi jubet. Verum Dei servus, ómnium opinióne mórtuus judicátus, cum paulo post,
+FABIÁNUS Románus, a Maximíno usque ad Décium regens Ecclésiam, septem diáconis regiónes divísit, qui páuperum curam habérent. Tótidem subdiáconos creávit, qui res gestas Mártyrum a septem notáriis scriptas collígerent. Idem státuit, ut quotánnis féria quinta in Cœna Dómini, vétere combústo, chrisma renovarétur. Dénique, décimo tértio Kaléndas Februárii martýrio coronátus, in cœmetério Callísti via Áppia sepelítur. Sebastiánus, ob géneris nobilitátem et virtútem Diocletiáno carus, dux primæ cohórtis, Christiános, quorum fidem clam colébat, ópera et facultátibus adjuvábat, et in Christi confessióne confirmábat. Quibus Diocletiáno delátis, Sebastiánum ómnibus artifíciis a Christi fide conátur avértere. Sed cum nihil nec pollicéndo, nec terréndo profíceret, ad palum alligátum sagíttis confígi jubet. Verum Dei servus, ómnium opinióne mórtuus judicátus, cum paulo post,sanus Diocletiáno óbviam factus, ejus impietátem libérius accusáret, jussu tyránni tamdiu virgis cæsus est, donec spíritum rédderet.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Descéndens Jesus, {RUBRIC: de Communi plurimórum Mártyrum 2 loco.} [66]
+
+### Ad Laudes
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+#### Oratio
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beatórum Mártyrum tuórum Fabiáni et Sebastiáni intercéssio gloriósa nos prótegat. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 21 Januarii
+
+### S. Agnetis
+
+{RUBRIC: Vírginis et Mártyris}
+
+{RUBRIC: Duplex}
+
+##### In I Vesperis
+
+{RUBRIC: Sicúbi I Vésperæ dicéndæ sint íntegræ, Antiphónæ de Laudibus 788; Psalmi ut in I Vesp. de Communi App.} [3]
+
+#### Capitulum
+
+*Eccli. 51, 1-3*
+
+CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+#### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia.
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant.
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+\* Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sǽcula. Amen.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.

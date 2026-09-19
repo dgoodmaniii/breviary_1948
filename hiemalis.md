@@ -11129,3 +11129,49 @@ Et fui flagellátus tota die, \* et castigátio mea in matutínis.
 Si dicébam: Narrábo sic: \* ecce, natiónem filiórum tuórum reprobávi.
 
 Existimábam ut cognóscerem hoc, \* labor est ante me:
+
+Donec intrem in Sanctuárium Dei: \* et intélligam in novíssimis eórum.
+
+### Psalmus 72, iii
+
+VERUMTAMEN propter dolos posuísti eis: \* dejecísti eos dum allevaréntur.
+
+Quómodo facti sunt in desolatiónem, súbito defecérunt: \* periérunt propter iniquitátem suam.
+
+Velut sómnium surgéntium, Dómine, \* in civitáte tua imáginem ipsórum ad níhilum rédiges.
+
+Quia inflammátum est cor meum, et renes mei commutáti sunt: \* et ego ad níhilum redáctus sum, et nescívi.
+
+Ut juméntum factus sum apud te: \* et ego semper tecum.
+
+Tenuísti manum déxteram meam: et in voluntáte tua deduxísti me, \* et cum glória suscepísti me.
+
+Quid enim mihi est in cælo? \* et a te quid vólui super terram?
+
+Defécit caro mea, et cor meum: \* Deus cordis mei, et pars mea Deus in ætérnum.
+
+Quia ecce, qui elóngant se a te, períbunt: \* perdidísti omnes, qui fornicántur abs te.
+
+Mihi autem adhærére Deo bonum est: \* pónere in Dómino Deo spem meam:
+
+Ut annúntiem omnes prædicatiónes tuas, \* in portis fíliæ Sion.
+
+**Per Annum: Ant.** Quam bonus Israël Deus, his, qui recto sunt corde?
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria V post Dominicam I:} **Ant.** Jucundáre, fília Sion, et exsúlta satis, fília Jerúsalem, allelúja.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** Convértere, Dómine, aliquántulum, et ne tardes veníre ad servos tuos.
+
+**Capitulum** *Jer. 23, 5*
+
+ECCE, dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit: et fáciet judícium et justítiam in terra.
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, con-

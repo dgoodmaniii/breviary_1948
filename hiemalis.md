@@ -11396,3 +11396,50 @@ Cum exsúrgeret in judícium Deus, \* ut salvos fáceret omnes mansuétos terræ
 Quóniam cogitátio hóminis confitébitur tibi: \* et relíquiæ cogitatiónis diem festum agent tibi.
 
 Vovéte, et réddite Dómino, Deo vestro: \* omnes,
+ qui in circúitu ejus afférts múnera.
+
+Terríbili et ei qui aufert spíritum príncipum, \* terríbili apud reges terræ.
+
+**Per Annum: Ant.** Invocábimus nomen tuum, Dómine: narrábimus mirabília tua.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria V post Dominicam I:} **Ant.** Ecce, véniet Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** Dóminus légifer noster, Dóminus Rex noster, ipse véniet, et salvábit nos.
+
+**Capitulum** *Is. 14, 1*
+
+PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur: miserébitur enim Dóminus Jacob, et Israël salvábitur.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super te. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super te. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+#### Per Annum
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: Feria V post Cineres et in Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+### Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Ecce, quam bonum \* † et quam jucúndum, habitáre fratres in unum. ‡

@@ -28227,3 +28227,27 @@ IN illo témpore: Dixit Jesus discípulis suis: Audístis quia dictum est: Díli
 EGO autem dico vobis: Dilígite inimícos vestros; benefácite his qui odérunt vos. Multi præcépta Dei, imbecillitáte sua, non Sanctórum víribus æstimántes, putant esse impossibília quæ præcépta sunt: et dicunt sufficere virtútibus, non odísse inimícos: céterum dilígere, plus præcípi, quam humána natúra patiátur. Sciéndum est ergo, Christum non impossibília præcípere, sed perfécta. Quæ fecit David in Saul, et in Absalom: Stéphanus quoque Martyr pro inimícis lapidántibus deprecátus est: et Paulus anáthema cupit esse pro persecutóribus suis. Hæc autem Jesus et dócuit et fecit, dicens: Pater, ignósce illis: quod enim fáciunt, nésciunt.
 
 ℟. Angelus Dómini vocávit Abraham, dicens: \* Ne exténdas manum tuam super púerum, eo quod tímeas Dóminum. ℣. Cumque extendísset manum ut immoláret fílium, ecce Angelus Dómini de cælo clamávit, dicens. — Ne.
+
+#### Lectio ii
+
+UT sitis fílii Patris vestri, qui in cælis est. Si Dei præcépta custódiens, fílius quis effícitur Dei: ergo non est natúra fílius, sed arbítrio suo. Cum ergo facis eleemósynam, noli tuba cánere ante te, sicut hypócritæ fáciunt in synagógis et in vicis, ut honorificéntur ab homínibus. Qui tuba canit, eleemósynam fáciens, hypócrita est. Qui jejúnans demolítur fáciem suam, ut ventris inanitátem monstret in vultu, et hic hypócrita est. Qui in synagógis et in ángulis plateárum orat, ut videátur ab homínibus, hypócrita est.
+
+℟. Vocávit Angelus Dómini Abraham de cælo, secúndo, dicens: Benedícam tibi, \* Et multiplicábo te sicut stellas cæli. ℣. Possidébit semen tuum portas inimicórum tuórum, et benedicéntur in sémine tuo omnes tribus terræ. — Et.
+
+#### Lectio iii
+
+EX quibus ómnibus collígitur hypócritas esse, qui quódlibet fáciunt ut ab homínibus glorificéntur. Mihi vidétur et ille, qui dicit fratri suo: Dimítte ut tollam festúcam de óculo tuo: nam propter glóriam hoc fácere vidétur, ut ipse justus esse videátur. Unde dícitur ei a Dómino: Hypócrita, éjice primum trabem de óculo tuo. Non ítaque virtus, sed causa virtútis apud Deum mercédem habet. Et si a recta via páululum declináveris, non ínterest, utrum ad déxteram vadas, an ad sinístram, cum verum iter amíseris.
+
+℟. Deus dómini mei Abraham, dírige viam meam: \* Ut cum salúte revértar in domum dómini mei. ℣. Obsecro, Dómine, fac misericórdiam cum servo tuo. — Ut. Glória Patri. Ut.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Cum facis \* eleemósynam, nésciat sinístra tua, quid fáciat déxtera tua.
+
+#### Oratio
+
+INCHOÁTA jejúnia, quǽsumus, Dómine, benígno favóre proséquere: ut observántiam, quam corporáliter exhibémus, méntibus étiam sincéris exercére valeámus. Per Dóminum.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Tu autem cum oráveris, \* intra in cubículum tuum: et,

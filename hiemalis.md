@@ -15856,3 +15856,54 @@ PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur: miserébitur e
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
 Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde
+fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+#### Per Annum
+
+{RUBRIC: (et in Officio Dominicæ post Oct. Epiph. anticipátæ)}
+
+#### Capit.
+
+*1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: Sabbato post Cineres et in Vigíliis commúnibus Preces feriáles, ut supra. 311}
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+### Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: In Adventu: In Sabbatis, incluso étiam Sabbato ante Dominicam IV in Vigília Nativitátis Dómini occurréntem, Antiphonæ e Laudibus Dominicæ sequéntis ut in Próprio de Témpore.}
+
+{RUBRIC: Per Annum:} **Ant.** Benedíctus Dóminus. †
+
+{RUBRIC: ¶ Antiphónæ cum Psalmis assignátæ semper in Sabbato dicúntur pro I Vésperis Dominicæ sequéntis, quando agéndum est Offícium de ipsa Domínica, tam in Domínicis minóribus, extra Octávas Nativitátis et Epiphániæ, quam in Domínicis majóribus, extra Advéntum.}
+
+#### Psalmus 143, i
+
+BENEDÍCTUS Dóminus, † Deus meus, qui docet manus meas ad prǽlium, \* et dígitos meos ad bellum.
+
+Misericórdia mea, et refúgium meum: \* suscéptor meus, et liberátor meus:
+
+Protéctor meus, et in ipso sperávi: \* qui subdit pópulum meum sub me.
+
+Dómine, quid est homo, quia innotuísti ei? \* aut fílius hóminis, quia réputas eum?
+
+Homo vanitáti símilis factus est: \* dies ejus sicut umbra prætéreunt.
+
+Dómine, inclína cælos tuos, et descénde: \* tange montes, et fumigábunt.
+
+Fúlgura coruscatiónem, et dissipábis eos: \* emítte sagíttas tuas, et conturbábis eos.
+
+Emítte manum tuam de alto, éripe me, et líbera me

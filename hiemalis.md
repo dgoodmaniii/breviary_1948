@@ -11548,3 +11548,63 @@ Memor esto, Dómine, filiórum Edom, \* in die Jerúsalem:
 Qui dicunt: Exinaníte, exinaníte: \* usque ad fundaméntum in ea.
 
 Fília Babylónis mísera: \* beátus, qui retríbuet tibi
+ retributiónem tuam, quam retribuísti nobis.
+
+Beátus, qui tenébit, \* et allídet párvulos tuos ad petram.
+
+**Ant.** Adhǽreat lingua mea fáucibus meis, si non memínero tui, Jerúsalem.
+
+**Ant.** Confitébor \* † nómini tuo, Dómine, super misericórdia et veritáte tua.
+
+### Psalmus 137
+
+CONFITEBOR † tibi, Dómine, in toto corde meo: \* quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi: \* adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua: \* quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me: \* multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ: \* quia audiérunt ómnia verba oris tui:
+
+Et cantent in viis Dómini: \* quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit: \* et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me: \* et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me: \* Dómine, misericórdia tua in séculum: ópera mánuum tuárum ne despícias.
+
+**Ant.** Confitébor nómini tuo, Dómine, super misericórdia et veritáte tua.
+
+#### In Officio feriali Adventus
+
+**Capitulum** *Gen. 49, 10*
+
+NON auferétur sceptrum de Juda, et dux de fémore ejus, donec véniat qui mitténdus est: et ipse erit exspectátio géntium.
+
+#### Hymnus
+
+CREATOR alme síderum,
+Ætérna lux credéntium,
+Jesu, Redémptor ómnium,
+Inténde votis súpplicum.
+
+Qui dæmonis ne fráudibus
+Períret orbis, ímpetu
+Amóris actus, lánguidi
+Mundi medéla factus es.
+
+Commúne qui mundi nefas
+Ut expiáres, ad Crucem
+E Vírginis sacrário
+Intácta prodis víctima.
+
+Cujus potéstas glóriæ,
+Noménque cum primum sonat,
+Et Cælites et ínferi
+Treménte curvántur genu.
+
+Te deprecámur última
+Magnum diéi Júdicem,

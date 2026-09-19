@@ -18272,3 +18272,36 @@ ET tu, Israël, serve meus, Jacob quem elégi, semen Abraham amíci mei: in quo 
 #### Lectio ii
 
 ECCE confundéntur et erubéscent omnes, qui pugnant advérsum te: erunt quasi non sint, et períbunt viri, qui contra-
+dícunt tibi. Quǽres eos, et non invénies, viros rebélles tuos: erunt quasi non sint, et véluti consúmptio hómines bellántes advérsum te. Quia ego Dóminus Deus tuus appréhendens manum tuam, dicénsque tibi: Ne tímeas, ego adjúvi te.
+
+℟. Non auferétur sceptrum de Juda, et dux de fémore ejus, donec véniat qui mitténdus est: \* Et ipse erit exspectátio géntium. ℣. Pulchrióres sunt óculi ejus vino, et dentes ejus lacte candidióres. — Et.
+
+#### Lectio iii
+
+NOLI timére, vermis Jacob, qui mórtui estis ex Israël: ego auxiliátus sum tibi, dicit Dóminus: et redémptor tuus Sanctus Israël. Ego pósui te quasi plaustrum tritúrans novum, habens róstra serrántia: triturábis montes, et commínues: et colles quasi púlverem pones. Ventilábis eos, et ventus tollet, et turbo dispérget eos: et tu exsultábis in Dómino, in Sancto Israël lætáberis.
+
+℟. Me opórtet mínui, illum autem créscere: qui autem post me venit, ante me factus est: \* Cujus non sum dignus corrígiam calceamentórum sólvere. ℣. Ego baptizávi vos aqua: ille autem baptizábit vos Spíritu Sancto. — Cujus. Glória Patri. Cujus.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Dicit Dóminus: \* Pœniténtiam ágite: appropinquávit enim regnum cælórum, allelúja.
+
+{RUBRIC: Nisi (21 Dec.) dicénda sit Ant. Nolíte timére, vel (23 Dec.) Ant. Ecce compléta. 367}
+
+**Oratio** Excita {RUBRIC: ut supra.}
+
+**Ad Magnif. Ant.** O. {RUBRIC: 355}
+
+---
+
+### Feria Tertia
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 42, 1-7*
+
+ECCE servus meus, suscípiam eum: eléctus meus, complácuit sibi in illo ánima mea: dedi spíritum meum super eum, judícium géntibus próferet. Non clamábit neque accípiet persónam nec audiétur vox ejus foris. Cálamum quassátum non cónteret, et linum fúmigans non exstínguet: in veritáte edúcet judícium. Non erit tristis, neque turbuléntus, donec ponat in terra judícium: et legem ejus ínsulæ exspectábunt.
+
+℟. Nascétur nobis párvulus, et vocábitur Deus,

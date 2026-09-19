@@ -10046,3 +10046,58 @@ Manda, Deus, virtúti tuæ: \* confírma hoc, Deus, quod operátus es in nobis.
 A templo tuo in Jerúsalem, \* tibi ófferent reges múnera.
 
 Íncrepa feras arúndinis, congregátio taurórum in vaccis populórum: \* ut
+ exclúdant eos, qui probáti sunt argénto.
+
+Díssipa gentes, quæ bella volunt: vénient legáti ex Ægýpto: \* Æthiópia prævéniet manus ejus Deo.
+
+Regna terræ, cantáte Deo: \* psállite Dómino.
+
+Psállite Deo, qui ascéndit super cælum cæli, \* ad Oriéntem.
+
+Ecce, dabit voci suæ vocem virtútis, date glóriam Deo super Israël, \* magnificéntia ejus, et virtus ejus in núbibus.
+
+Mirábilis Deus in sanctis suis, Deus Israël ipse dabit virtútem, et fortitúdinem plebi suæ, \* benedíctus Deus.
+
+**Ant.** In ecclésiis benedícite Dómino Deo.
+
+#### In Festis novem Lectionum:
+
+℣. Mirábilis Deus in sanctis suis. ℟. Deus Israël dabit virtútem plebi tuæ.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+#### In III Nocturno
+
+**Ant.** Salvum me fac, \* † Deus: quóniam intravérunt aquæ usque ad ánimam meam. ‡
+
+### Psalmus 68, i
+
+SALVUM me fac, † Deus: \* ‡ quóniam intravérunt aquæ usque ad ánimam meam.
+
+Infíxus sum in limo profúndi: \* et non est substántia.
+
+Veni in altitúdinem maris: \* et tempéstas demérsit me.
+
+Laborávi clamans, raucæ factæ sunt fauces meæ: \* defecérunt óculi mei, dum spero in Deum meum.
+
+Multiplicáti sunt super capíllos cápitis mei, \* qui odérunt me gratis.
+
+Confortáti sunt qui persecúti sunt me inimíci mei injúste: \* quæ non rápui, tunc exsolvébam.
+
+Deus, tu scis insipiéntiam meam: \* et delícta mea a te non sunt abscóndita.
+
+Non erubéscant in me qui exspéctant te, Dómine, \* Dómine virtútum.
+
+Non confundántur super me \* qui quærunt te, Deus Israël.
+
+Quóniam propter te sustínui oppróbrium: \* opéruit confúsio fáciem meam.
+
+Extráneus factus sum frátribus meis, \* et peregrínus fíliis matris meæ.
+
+Quóniam zelus domus tuæ comédit me: \* et oppróbria exprobrántium tibi cecidérunt super me.
+
+Et opérui in jejúnio ánimam meam: \* et factum est in oppróbrium mihi.
+
+Et pósui vestiméntum meum cilícium: \* et factus sum illis in parábolam.

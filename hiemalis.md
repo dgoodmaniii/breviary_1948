@@ -23772,3 +23772,69 @@ Post Domínicam vero, prima Féria, in qua fiat Offícium de die infra Octávam,
 {RUBRIC: Psalmi ut in Communi Festórum B. Maríæ V.}
 
 **2** Angelus Dómini \* appáruit in somnis Joseph, dicens: Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est.
+
+**3** Pastóres venérunt \* festinántes, et invenérunt Maríam et Joseph, et Infántem pósitum in præsépio.
+
+**4** Magi, intrántes domum, \* invenérunt Púerum cum María, matre ejus.
+
+**5** Erat pater ejus \* et Mater mirántes super his, quæ dicebántur de illo.
+
+#### Capitulum
+
+*Luc. 2, 51*
+
+DESCÉNDIT Jesus cum María et Joseph, et venit Názareth: et erat súbditus illis.
+
+#### Hymnus
+
+O LUX beáta cælitum
+Et summa spes mortálium,
+Jesu, o cui doméstica
+Arrísit orto cáritas:
+
+María, dives grátia,
+O sola quæ casto potes
+Fovére Jesum péctore,
+Cum lacte donans óscula:
+
+Tuque ex vetústis pátribus
+Delécte custos Vírginis
+Dulci patris quem nómine
+Divína Proles ínvocat:
+
+De stirpe Jesse nóbili
+Nati in salútem géntium,
+Audíte nos qui súpplices
+Vestras ad aras sístimus.
+
+Dum sol redux ad vésperum
+Rebus nitórem détrahit,
+Nos hic manéntes íntimo
+Ex corde vota fúndimus.
+
+Qua vestra sedes flóruit
+Virtútis omnis grátia,
+Hanc detur in domésticis
+Reffére posse móribus.
+
+Jesu, tuis obédiens
+Qui factus es paréntibus,
+Cum Patre summo ac Spíritu
+Semper tibi sit glória.
+Amen.
+
+{RUBRIC: Sic termínantur Hymni ad Completórium et per Horas.}
+
+℣. Beáti qui hábitant in domo tua, Dómine. ℟. In sǽcula sæculórum laudábunt te.
+
+**Ad Magnif. Ant.** Verbum caro \* factum est, et habitávit in nobis, plenum grátiæ et veritátis; de cujus plenitúdine omnes nos accépimus, et grátiam pro grátia, allelúja.
+
+### In II Vesperis
+
+℣. Ponam univérsos fílios tuos doctos a Dómino. ℟. Et multitúdinem pacis fíliis tuis.
+
+**Ad Magnif. Ant.** María autem \* conservábat ómnia verba hæc, cónferens in corde suo.
+
+#### Oratio
+
+DÓMINE Jesu Christe, qui Maríæ et Joseph súbditus, doméstiam vitam ineffabílibus virtútibus consecrásti: fac nos, utriúsque auxílio, Famíliæ sanctæ tuæ exémplis ín-

@@ -30431,3 +30431,22 @@ OMNES páriter norunt quantópere sollíciti fúerint Sacrórum antístites vel 
 #### Lectio v
 
 ET re quidem vera hanc de immaculáta beatíssimæ Vírginis Conceptióne doctrínam quotídie magis gravíssimo Ecclésiæ sensu, magistério, stúdio, sciéntia ac sapiéntia tam spléndide explicátam, declarátam, confirmátam, et apud omnes cathólici orbis pópulos ac natiónes mirándum in modum propagátam, in ipsa Ecclésia semper exstitísse véluti a majóribus accéptam, ac revelátæ doctrínæ charáctere insignítam, illústria venerándæ antiquitátis Ecclésiæ orientális et occidentális monuménta validíssime testántur. Equidem Patres Ecclesiǽque scriptóres, cæléstibus edócti elóquiis, nihil antíquius
+habuére, quam in libris ad explicándas Scriptúras, vindicánda dógmata, erudiendósque fidéles elucubrátis, summam Vírginis sanctitátem, dignitátem, atque ab omni peccáti labe integritátem, ejúsque præcláram de tetérrimo humáni géneris hoste victóriam, multis mirísque modis certátim prædicáre atque efférre.
+
+℟. Nihil inquinátum in eam incúrrit: \* Candor est lucis ætérnæ et spéculum sine mácula. ℣. Est enim hæc speciósior sole, et luci comparáta invenítur púrior. — Candor.
+
+#### Lectio vi
+
+QUAPRÓPTER enarrántes verba, quibus Deus præparáta renovándis mortálibus suæ pietátis remédia inter ipsa mundi primórdia prænúntians, deceptóris serpéntis rétudit audáciam et nostri géneris spem mirífice eréxit, ínquiens: Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus; docuére, divíno hoc oráculo clare apertéque demonstrátum fuísse misericórdem humáni géneris Redemptórem, scílicet unigénitum Dei Fílium Christum Jesum, ac designátam beatíssimam ejus Matrem Vírginem Maríam, simul ipsíssimas utriúsque contra diábolum inimicítias insígniter expréssas. Quocírca sicut Christus Dei hominúmque mediátor, humána assúmpta natúra, delens quod advérsus nos erat chirógraphum decréti, illud cruci triumphátor affíxit; sic sanctíssima Virgo, arctíssimo et indissolúbili vínculo cum eo conjúncta, una cum illo et per illum, sempitérnas contra venenósum serpéntem inimicítias exércens ac de ipso pleníssime triúmphans, illíus caput immaculáto pede contrívit.
+
+℟. Signum magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, \* Et in cápite ejus coróna stellárum duódecim. ℣. Induit eam Dóminus vestiméntis salútis, induménto justítiæ, et quasi sponsam ornávit eam monílibus suis. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 1, 26-28*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.

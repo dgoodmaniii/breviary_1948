@@ -33231,4 +33231,12 @@ IN illo témpore: Accessérunt discípuli ad Jesum, dicéntes: Quis, putas, majo
 
 {RUBRIC: Homilía 60 in Matth., cap. 18}
 
-QUIDEN quot modis nos indúcat Dóminus ad curam vel minórum fratrum? Ne íta-
+QUIDEN quot modis nos indúcat Dóminus ad curam vel minórum fratrum? Ne ítaque díxeris: Ærárius est ille, aut calceórum sutor, agrícola, insípiens, ut ídeo despícias illum. Ne enim in illud mali íncidas, perpénde quot modis te indúcat, ut modéste agas et eórum curam geras. Púerum in médio státuit et ait: Efficiámini ut párvuli, et: Quicúmque suscéperit párvulum talem, me súscipit, et: Qui scandalizáverit, extréma patiétur. Si ergo Deus ita gaudet de párvulo qui repértus est, cur tu despícias eos quos Deus tam sollícite curat, cum oportéret ánimam ipsam trádere pro uno ex párvulis istis? Tanta quippe est Deo cura de ánima, ut ne Fílio quidem suo pepércerit. Quare, óbsecro, primo dilúculo cum a domo exiérimus, hunc unum scopum habeámus et hanc præcípue sollicitúdinem, ut periclitántem eripiámus. Non loquor hic de sensíbili perículo; hoc enim ne perículum quidem est; sed de perículo ánimæ, quod homínibus parat diábolus.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse intercédat.
+
+#### Lectio viii
+
+IMPROBUS, inquis, difícile tolerátur. Atque ídeo debes illi amóre jungi, ut eum a vítio remóveas, ut convértas et ad virtútem redúcas. At non obtémperat, inquis, neque consílium admíttit. Unde hoc nosti? An exhortátus es et emendáre studuísti? Hortátus sæpe sum, inquies. Quóties? Sæpius: semel et íterum. Idne sæpius vocas? Etiámsi per totam vitam id fecísses, nec deficere, nec desperáre oportébat. Non vides quómodo nos Deus semper hortátur per Prophétas, per Apóstolos, per Evangelístas? Quid ígitur? Num recte operámur? Num in ómnibus obtemperámus? Mínime. Num ídeo finem fecit admonéndi?
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et vos símiles. Glória Patri. Et vos símiles.

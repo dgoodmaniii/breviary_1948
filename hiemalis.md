@@ -31968,4 +31968,30 @@ DEUS, qui beátum Raymúndum pœniténtiæ sacraménti insígnem minístrum eleg
 
 {RUBRIC: Et fit Com. præcedéntis:}
 
-**Ant.** Gaudent in cælis ánimæ Sanctórum, qui
+**Ant.** Gaudent in cælis ánimæ Sanctórum, quiChristi vestígia sunt secúti; et, quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+℣. Exsultábunt Sancti.
+
+{RUBRIC: Oratio Adésto, ut supra.} 792
+
+{RUBRIC: Deinde Commem. S. Emerentiánæ Virg. et Mart.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+#### Oratio
+
+INDULGÉNTIAM nobis, quǽsumus, Dómine, beáta Emerentiána Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis, et tuæ professióne virtútis. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+BEÁTUS Raymúndus Barcinonénsis, ex nóbili família de Peñafort, christiánæ religiónis rudiméntis imbútus, adhuc párvulus exímia ánimi et córporis índole magnum áliquid porténdere visus est. Nam adoléscens humanióres lítteras in pátria proféssus, Bonóniam se cóntulit, ubi pietátis offíciis ac pontifício civilíque juri sédulo incúmbens, et doctóris láurea insignítus, ibídem sacros cánones magna cum hóminum admiratióne est interpretátus. Ejus virtútum fama percrebrescénte, Berengárius Barcinonénsis epíscopus, cum Roma suam ad ecclésiam redíret, eum conveniéndi causa Bonóniam iter instítuit, et tandem summis précibus, ut secum in pátriam reverterétur, obtínuit. Mox ejúsdem ecclésiæ canonicátu et præpositúra ornátus, univérso clero et pópulo, integritáte, modéstia, doctrína et morum suavitáte præfúlsit, ac Deíparæ Vírginis, quam singulári pietátis afféctu venerabátur, honórem et cultum semper pro víribus auxit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+ANNUM círciter quintum supra quadragésimum agens, in órdine fratrum Prædicatórum solémni emíssa professióne, ut novus miles, in omni virtútum génere, sed præcípue

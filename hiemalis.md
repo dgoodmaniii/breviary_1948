@@ -26356,3 +26356,35 @@ CUM negligéntius ágerent præpósiti Ecclésiæ, aut cum dormitiónem mortis a
 SED quod dicit eos in médio trítici seminátos, quasi vidéntur illi significári, qui uníus communiónis sunt. Verúmtamen quóniam Dóminus agrum ipsum, non Ecclésiam, sed hunc mundum interpretátus est: bene intelligúntur hærétici, quia non societáte uníus Ecclésiæ, vel uníus fídei, sed societáte solíus nóminis christiáni in hoc mundo permiscéntur bonis. At illi, qui in eádem fide mali sunt, pálea pótius quam zizánia reputántur: quia pálea étiam fundaméntum ipsum habet cum frumento, radicémque commúnem.
 
 ℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus: et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+#### Lectio ix
+
+IN illa plane sagéna, qua concludúntur et mali et boni pisces, non absúrde mali cathólici intelligúntur. Aliud est enim mare, quod magis mundum istum signíficat: áliud sagéna, quæ uníus fídei, vel uníus Ecclésiæ communiónem vidétur osténdere. Inter hæréticos et malos cathólicos hoc ínterest, quod hærétici falsa credunt: illi autem, vera credéntes, non vivunt ita ut credunt.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Dómine, \* nonne bonum semen seminásti in agro tuo? unde ergo habet zizánia? et ait illis: Hoc fecit inimícus homo.
+
+#### Oratio
+
+FAMÍLIAM tuam, quǽsumus, Dómine, contínua pietáte custódi: ut, quæ in sola spe grátiæ cæléstis innítitur, tua semper protectióne muniátur. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Collígite \* primum zizánia, et alligáte ea in fascículos ad comburéndum: tríticum autem congregáte in hórreum meum, dicit Dóminus.
+
+### Feria Secunda
+
+{RUBRIC: De Epístola prima ad Timótheum}
+
+#### Lectio i
+
+*Cap. 3, 1-16; 4, 1*
+
+FIDÉLIS sermo: Si quis episcopátum desíderat, bonum opus desíderat. Opórtet ergo epíscopum irreprehensíbilem esse, uníus uxóris virum, sóbrium, prudéntem, ornátum, pudícum, hospitálem, doctórem, non vinoléntum, non percussórem, sed modéstum: non litigiósum, non cúpidum, sed suæ dómui bene præpósitum: fílios habéntem súbditos cum omni castitáte. Si quis autem dómui suæ præésse nescit, quómodo Ecclésiæ Dei diligéntiam habébit? Non neóphytum: ne in supérbiam elátus, in judícium íncidat diáboli. Opórtet autem illum et testimónium habére bonum ab iis, qui foris sunt, ut non in oppró-

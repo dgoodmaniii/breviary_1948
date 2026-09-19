@@ -4579,3 +4579,103 @@ Amen.
 **Per Annum:** **Ant.** Innocens mánibus.
 
 {RUBRIC: ¶ Antiphonæ, in hac et aliis Feriis ad Primam, Tertiam, Sextam et Nonam appositæ, dicuntur semper in Officio feriali et in Festis sive trium sive novem Lectionum, quando juxta Rubricas sumendi sint Psalmi de Feria; atque adhibéntur étiam in Festis, quæ Témpore Advéntus celebrántur.}
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria II post Dominicam I:} **Ant.** In illa die.
+
+{RUBRIC: Feria II post Dominicam II:} **Ant.** Ecce in núbibus cæli.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Ecce véniet.
+
+### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prœlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+### Psalmus 18, i
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+### Psalmus 18, ii
+
+LEX Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+{RUBRIC: Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjungitur sequens Ps. 46, qui in Laudibus locum non habuit.}
+
+### Psalmus 46
+
+OMNES gentes, plaúdite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+{RUBRIC: Secus vero, tribus Psalmis expletis, statim dicitur Ant.}
+
+**Per Annum: Ant.** Innocens mánibus et mundo corde ascéndet in montem Dómini.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria II post Dominicam I:} **Ant.** In illa die stillábunt montes dulcédinem, et colles fluent lac et mel, allelúja.
+
+{RUBRIC: Feria II post Dominicam II:} **Ant.** Ecce in núbibus cæli Dóminus véniet cum potestáte magna, allelúja.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Ecce véniet Dóminus princeps regum terræ: beáti, qui paráti sunt occúrrere illi.

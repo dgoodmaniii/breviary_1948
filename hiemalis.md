@@ -27227,3 +27227,31 @@ in dolóre páries fílios, et sub viri potestáte eris, et ipse dominábitur tu
 ADAM vero cognóvit uxórem suam Hevam: quæ concépit et péperit Cain, dicens: Possédi hóminem per Deum. Rursúmque péperit fratrem ejus Abel. Fuit autem Abel pastor óvium, et Cain agrícola. Factum est autem post multos dies ut offérret Cain de frúctibus terræ múnera Dómino. Abel quoque óbtulit de primogénitis gregis sui, et de adípibus eórum: et respéxit Dóminus ad Abel, et ad múnera ejus. Ad Cain vero, et ad múnera illíus non respéxit: iratúsque est Cain veheménter, et cóncidit vultus ejus. Dixítque Dóminus ad eum: Quare irátus es? et cur cóncidit fácies tua? Nonne si bene égeris, recípies: sin autem male, statim in fóribus peccátum áderit? sed sub te erit appetítus ejus, et tu domináberis illíus.
 
 ℟. In princípio creávit Deus cælum et terram, et fecit in ea hóminem, \* Ad imáginem et similitúdinem suam. ℣. Formávit ígitur Deus hóminem de limo terræ, et inspirávit in fáciem ejus spiráculum vitæ. — Ad imáginem.
+
+#### Lectio ii
+
+DIXÍTQUE Cain ad Abel fratrem suum: Egrediámur foras. Cumque essent in agro, consurréxit Cain advérsus fratrem suum Abel, et interfécit eum. Et ait Dóminus ad Cain: Ubi est Abel frater tuus? Qui respóndit: Néscio. Num custos fratris mei sum ego? Dixítque ad eum: Quid fecísti? vox sánguinis fratris tui clamat ad me de terra. Nunc ígitur maledíctus eris super terram, quæ apéruit os suum, et suscépit sánguinem fratris tui de manu tua. Cum operátus fúeris eam, non dabit tibi fructus suos: vagus et prófugus eris super terram.
+
+℟. In princípio creávit Deus cælum et terram, et Spíritus Dei ferebátur super aquas: \* Et vidit Deus cuncta quæ fécerat, et erant valde bona. ℣. Ígitur perfécti sunt cæli et terra, et omnis ornátus eórum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+DIXÍTQUE Cain ad Dóminum: Major est iníquitas mea, quam ut véniam mérear. Ecce éjicis me hódie a fácie terræ, et a fácie tua abscóndar, et ero vagus et prófugus in terra: omnis ígitur qui invénerit me, occídet me. Dixítque ei Dóminus: Nequáquam ita fiet: sed omnis qui occíderit Cain, séptuplum puniétur. Posuítque Dóminus Cain signum, ut non interfíceret eum omnis qui invenísset eum. Egressúsque Cain a fácie Dómini, habitávit prófugus in terra ad orientálem plagam Eden.
+
+℟. Formávit Dóminus hóminem de limo terræ, \* Et inspirávit in fáciem ejus spiráculum vitæ, et factus est homo in ánimam vivéntem. ℣. In princípio fecit Deus cælum et terram, et plasmávit in ea hóminem. — Et. Glória Patri. Et.
+
+**Ad Magnif. Ant.** Non licet mihi, \* quod volo, fácere? an óculus tuus nequam est? quia ego bonus sum, dicit Dóminus.
+
+---
+
+### Feria Sexta
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 4, 17-26*
+
+COGNÓVIT autem Cain uxórem suam, quæ concépit, et péperit Henoch: et ædificávit civitátem, vocavítque nomen ejus ex nómine fílii sui, Henoch. Porro Henoch génuit Irad, et Irad génuit Mavíael, et Mavíael génuit Mathúsael, et Mathú-

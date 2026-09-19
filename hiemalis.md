@@ -16360,7 +16360,7 @@ AD cujus advéntum omnem hóminem convénit præparári: ne quem aut ventri déd
 
 #### Lectio vi
 
-QUAMVIS enim sine ánima nihil caro desíderet, et inde accípiat sensus, unde sumit et motus: ejúsdem tamen est ánimæ, quædam sibi súbditæ negáre substántiæ, et interióri judício ab inconveniéntibus exterióra frenáre: ut a corpóreis cupiditátibus sæpius líbera, in aula mentis possit divínæ vacáre sapiéntiæ: ubi omni strépitu terrenárum siléntе curárum, in meditatiónibus sanctis, et in delíciis lætétur ætérnis.
+QUAMVIS enim sine ánima nihil caro desíderet, et inde accípiat sensus, unde sumit et motus: ejúsdem tamen est ánimæ, quædam sibi súbditæ negáre substántiæ, et interióri judício ab inconveniéntibus exterióra frenáre: ut a corpóreis cupiditátibus sæpius líbera, in aula mentis possit divínæ vacáre sapiéntiæ: ubi omni strépitu terrenárum silénte curárum, in meditatiónibus sanctis, et in delíciis lætétur ætérnis.
 
 ℟. Obsecro, Dómine, mitte quem missúrus es: vide afflictiónem pópuli tui: \* Sicut locútus es, veni, \* Et líbera nos. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Sicut. Glória Patri. Et líbera nos.
 
@@ -17695,13 +17695,13 @@ quibus occúrrat Festum novem Lectiónum, eo anno omittúntur.
 *Cap. 28, 1-7*
 
 VÆ corónæ supérbiæ, ébriis Ephraim, et flori decidénti, glóriæ exsultatiónis ejus, qui erant in vér-
-tice vallis pinguíssimæ, errántes a vino. Ecce válidus et fortis Dóminus, sicut ímpetus grándinis: turbo confríngens, sicut ímpetus aquárum multárum inundántium, et emissárum super terram spatiósam. Pédibus conculcábitur corónа supérbiæ ebriórum Ephraim.
+tice vallis pinguíssimæ, errántes a vino. Ecce válidus et fortis Dóminus, sicut ímpetus grándinis: turbo confríngens, sicut ímpetus aquárum multárum inundántium, et emissárum super terram spatiósam. Pédibus conculcábitur coróna supérbiæ ebriórum Ephraim.
 
 ℟. Ecce apparébit Dóminus super nubem cándidam, \* Et cum eo Sanctórum míllia: et habébit in vestiménto, et in fémore suo scriptum: Rex regum, et Dóminus dominántium. ℣. Apparébit in finem, et non mentiétur; si moram fécerit, exspécta eum, quia véniens véniet. — Et.
 
 #### Lectio ii
 
-ET erit flos decídens glóriæ exsultatiónis ejus, qui est super vérticem vallis pínguium, quasi temporáneum ante maturitátem autúmni: quod cum aspéxerit videns, statim ut manu tenúerit, devorábit illud. In die illa erit Dóminus exercítuum corónа glóriæ, et sertum exsultatiónis resíduo pópuli sui; et spíritus judícii sedénti super judícium, et fortitúdo reverténtibus de bello ad portam. Verum hi
+ET erit flos decídens glóriæ exsultatiónis ejus, qui est super vérticem vallis pínguium, quasi temporáneum ante maturitátem autúmni: quod cum aspéxerit videns, statim ut manu tenúerit, devorábit illud. In die illa erit Dóminus exercítuum coróna glóriæ, et sertum exsultatiónis resíduo pópuli sui; et spíritus judícii sedénti super judícium, et fortitúdo reverténtibus de bello ad portam. Verum hi
 
 quoque præ vino nesciérunt, et præ ebrietáte errávérunt: sacérdos et pro-
 
@@ -17859,7 +17859,7 @@ gentes. Et congregabúntur spólia vestra sicut collígitur bruchus, velut cum f
 CONTÉRRITI sunt in Sion peccatóres, possédit tremor hypócritas. Quis póterit habitáre de vobis cum igne devoránte? quis habitábit ex vobis cum ardóribus sempitérnis? Qui ámbulat in justítiis, et lóquitur veritátem, qui prójicit avarítiam ex calúmnia, et éxcutit manus suas ab omni múnere, qui obtúrat aures suas ne áudiat sánguinem, et claudit óculos suos ne vídeat malum. Iste in excélsis habitábit, muniménta saxórum sublímitas ejus: panis ei datus est, aquæ ejus fidéles sunt. Regem in decóre suo
 vidébunt óculi ejus, cernent terram de longe.
 
-℟. Vidébunt gentes justum tuum, et cuncti reges ínclytum tuum: \* Et vocábitur tibi nomen novum, quod os Dómini nominávit. ℣. Et eris corónа glóriæ in manu Dómini, et diadéma regni in manu Dei tui. — Et vocábitur. Glória Patri. Et vocábitur.
+℟. Vidébunt gentes justum tuum, et cuncti reges ínclytum tuum: \* Et vocábitur tibi nomen novum, quod os Dómini nominávit. ℣. Et eris coróna glóriæ in manu Dómini, et diadéma regni in manu Dei tui. — Et vocábitur. Glória Patri. Et vocábitur.
 
 ℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
 
@@ -20705,7 +20705,7 @@ IN illo témpore: Dixit Jesus pharisǽis: Ego sum pastor bonus. Bonus pastor án
 MAGNUM quiddam, dilectíssimi, magnum, inquam, est Ecclésiæ prælátio, et quæ multa índiget sapiéntia et fortitúdine, qualem Christus propósuit: ut ánimam pro óvibus ponámus, et numquam illas deserámus; ut lupo generóse resistámus. Hæc enim inter pastórem et mercenárium est differéntia: alter própriæ,
 contémptis óvibus; alter, sua contémpta, óvium semper salúti invígilat. Pastóris ergo exémplo demonstráto, deceptóres duos méminit: furem mactántem et rapiéntem oves; et mercenárium permitténtem, neque defendéntem commíssas.
 
-℟. Corónа áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
 
 #### Lectio viii
 
@@ -23871,7 +23871,7 @@ Templa, jam sertis redimítur ara,
 Et pio fumant redoléntque acérræ
 Thuris honóre.
 
-Num juvet Summo Géniti Paréntе
+Num juvet Summo Géniti Parénte
 Régios ortus celebráre cantu?
 Num domus David, décora et vetústæ
 Nómina gentis?
@@ -24672,3 +24672,28 @@ Te Deum laudámus.
 OMNIS ánima potestátibus sublimióribus súbdita sit: non est enim potéstas nisi a Deo: quæ autem sunt, a Deo ordinátæ sunt. Itaque qui resístit potestáti, Dei ordinatióni resístit. Qui autem resístunt, ipsi sibi damnatiónem acquírunt: nam príncipes non sunt timóri boni óperis, sed mali. Vis autem non timére potestátem? Bonum fac: et habébis laudem ex illa: Dei enim miníster est tibi in bonum.
 
 ℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris
+suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+#### Lectio ii
+
+SI autem malum féceris, time: non enim sine causa gládium portat. Dei enim miníster est: vindex in iram ei, qui malum agit. Ideo necessitáte súbditi estóte non solum propter iram, sed étiam propter consciéntiam. Ideo enim et tribúta præstátis: minístri enim Dei sunt, in hoc ipsum serviéntes. Réddite ergo ómnibus débita: cui tribútum, tribútum: cui vectígal, vectígal: cui timórem, timórem: cui honórem, honórem.
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+#### Lectio iii
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit. Nam, Non adulterábis, Non occídes, Non furáberis, Non falsum testimónium dices, Non concupísces: et si quod est áliud mandátum, in hoc verbo instaurátur: Díliges próximum tuum sicut teípsum. Diléctio próximi malum non operátur. Plenitúdo ergo legis est diléctio.
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 1 de Epiphania}
+
+#### Lectio iv
+
+CELEBRÁTO próximo die, quo intemeráta virgínitas humáni géneris édidit Salvatórem, Epiphaníæ nobis, dilectíssimi, veneránda festívitas dat perseverántiam gaudiórum: ut inter cognatárum solemnitátum vicína sacraménta, exsultatiónis vigor et fervor fídei non tepéscat. Ad ómnium enim hóminum spectat salútem, quod infántia mediatóris Dei et hóminum, jam univérso declarabátur mundo, cum adhuc exíguo detinerétur oppídulo.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.

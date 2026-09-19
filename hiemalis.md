@@ -19566,3 +19566,37 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 {RUBRIC: Completórium de Dominica.}
 
 ---
+
+## Die 26 Decembris
+
+# S. Stephani Protomartyris
+
+{RUBRIC: Duplex II classis cum Octava simplici}
+
+{RUBRIC: Omnia de Communi unius Mártyris [29] prǽter ea quæ hic habéntur própria.}
+
+{RUBRIC: Pro Commem. S. Stéphani in II Vésperis Nativitátis:}
+
+**Ant.** Stéphanus autem plenus grátia et fortitúdine, faciébat signa magna in pópulo.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+#### Oratio
+
+DA nobis, quǽsumus, Dómine, imitári quod cólimus: ut discámus et inimícos dilígere; quia ejus natalítia celebrámus, qui novit étiam pro persecutóribus exoráre Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum.
+
+### Ad Matutinum
+
+**Invit.** Christum natum, qui beátum hódie coronávit Stéphanum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+#### In I Nocturno
+
+{RUBRIC: De Áctibus Apostolórum}
+
+#### Lectio i
+
+*Cap. 6, 1-10 et 7, 54-60*
+
+IN diébus illis, crescénte número discipulórum, factum est murmur Græcórum advérsus Hebrǽos, eo quod despiceréntur in ministério quotidiáno víduæ eórum. Convocántes autem duódecim multitúdinem discipulórum, dixérunt: Non est æquum nos derelínquere verbum Dei et ministráre mensis. Considerate ergo, fratres, viros ex vobis boni testimónii septem, plenos Spíritu Sancto et sapiéntia, quos constituámus super hoc opus. Nos vero oratióni et ministério verbi instántes érimus. Et plácuit sermo coram omni multitúdine. Et elegérunt Stéphanum, virum plenum fide et Spíritu Sancto, et Philíppum, et Próchorum, et Nicánorem, et Timónem, et Pármenam, et Nicoláum ádvenam Antiochénum. Hos statuérunt ante conspéctum Apostolórum: et orántes imposuérunt eis manus.
+
+℟. Stéphanus autem plenus grátia et fortitúdine, \* Faciébat prodígia et signa magna in pópulo. ℣. Surrexérunt quidam de synagóga disputántes cum Stéphano: et non póterant resístere sapién-

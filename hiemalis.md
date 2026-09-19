@@ -19986,3 +19986,56 @@ In sempitérna sécula. Amen.
 #### Oratio
 
 ECCLÉSIAM tuam, Dómine, benígnus illústra: ut beáti Joánnis Apóstoli tui et Evangelístæ illumináta doctrínis, ad dona
+pervéniat sempitérna. Per Dóminum.
+
+{RUBRIC: Et fit Com. Oct. Nativitatis:}
+
+**Ant.** Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+### Ad Primam
+
+**Ant.** Valde honorándus est \* beátus Joánnes, qui supra pectus Dómini in cœna recúbuit.
+
+### Ad Tertiam
+
+**Ant.** Hic est discípulus ille, \* qui testimónium pérhibet de his: et scimus quia verum est testimónium ejus.
+
+#### Capitulum
+
+*Eccli. 15, 1-2*
+
+QUI timet Deum, fáciet bona: et qui cóntinens est justítiæ, apprehéndet illam, et obviábit illi quasi mater honorificáta.
+
+℟. br. In omnem terram \* Exívit sonus eórum. In omnem. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In omnem. ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+#### Oratio
+
+ECCLÉSIAM tuam, Dómine, benígnus illústra: ut beáti Joánnis Apóstoli tui et Evangelístæ illumináta doctrínis, ad dona pervéniat sempitérna. Per Dóminum.
+
+### Ad Sextam
+
+**Ant.** Hic est discípulus meus: \* sic eum volo manére, donec véniam.
+
+#### Capitulum
+
+*Eccli. 15, 3*
+
+CIBÁVIT illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potávit illum Dóminus, Deus noster.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. Glória Patri. Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+### Ad Nonam
+
+**Ant.** Ecce puer meus \* eléctus, quem elégi, pósui super eum Spíritum meum.
+
+#### Capitulum
+
+*Eccli. 15, 5*
+
+IN médio Ecclésiæ apéruit os ejus, et implévit illum Dóminus spíritu sapiéntiæ et intelléctus, et stolam glóriæ índuit eum.

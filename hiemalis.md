@@ -31158,4 +31158,48 @@ ET dignum plane conféssio Petri prǽmium consecúta est, quia Dei Fílium in h�
 
 #### Lectio ix
 
-PRISCA, nóbilis virgo Romána, trédecim annos nata, Cláudio imperatóre, christiánæ fídei accusáta, ejúsdem jussu ducta ad Appóllinis templum, ut idólis immoláret, cum rem detestarétur, cólaphis cæsa, in cárcerem tráditur: atque inde emíssa, cum in fídei constántia perseveráret, afflícta verbéribus, ferventíque ádipe delibúta, rursus in cárcerem inclúditur. Post tríduum in amphitheátrum prodúcta, leóni objícitur; qui suæ feritátis oblítus, humíliter se ad ejus pedes abjécit. Quæ póstea in ergástulo tríduum inédia afflícta, in equúleo suspénditur, et úngulis férreis excarnificáta in rogum injícitur, unde étiam mirabíliter evásit incólumis. Dénique extra Urbem cápite abscísso, virginitátis palmam mar-
+PRISCA, nóbilis virgo Romána, trédecim annos nata, Cláudio imperatóre, christiánæ fídei accusáta, ejúsdem jussu ducta ad Appóllinis templum, ut idólis immoláret, cum rem detestarétur, cólaphis cæsa, in cárcerem tráditur: atque inde emíssa, cum in fídei constántia perseveráret, afflícta verbéribus, ferventíque ádipe delibúta, rursus in cárcerem inclúditur. Post tríduum in amphitheátrum prodúcta, leóni objícitur; qui suæ feritátis oblítus, humíliter se ad ejus pedes abjécit. Quæ póstea in ergástulo tríduum inédia afflícta, in equúleo suspénditur, et úngulis férreis excarnificáta in rogum injícitur, unde étiam mirabíliter evásit incólumis. Dénique extra Urbem cápite abscísso, virginitátis palmam mar-týrii corónam cumulávit. Cujus corpus via Ostiénsi, décimo ab Urbe milliário, a Christiánis décimo quinto Kaléndas Februárii sepelítur.
+
+{RUBRIC: Te Deum.}
+
+### Ad Laudes
+
+#### Hymnus
+
+BEÁTE pastor, Petre, clemens áccipe
+Voces precántum, criminúmque víncula
+Verbo resólve, cui potéstas trádita
+Aperíre terris cælum, apértum cláudere.
+
+Sit Trinitáti sempitérna glória,
+Honor, potéstas atque jubilátio,
+In unitáte, quæ gubérnat ómnia,
+Per univérsa æternitátis sǽcula. Amen.
+
+℣. Exáltent eum in ecclésia plebis. ℟. Et in cáthedra seniórum laudent eum.
+
+**Ad Bened. Ant.** Quodcúmque \* ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis: dicit Dóminus Simóni Petro.
+
+#### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur. Qui vivis.
+
+{RUBRIC: Et fit Commem. S. Pauli Apóstoli:}
+
+**Ant.** Sancte Paule Apóstole, prædicátor veritátis et doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+#### Oratio
+
+DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Deinde S. Priscæ Virg. et Mart.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+#### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut, qui beátæ Priscæ Vírginis et Mártyris tuæ natalítia cólimus, et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.

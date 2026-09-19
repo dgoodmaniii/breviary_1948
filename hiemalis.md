@@ -22328,3 +22328,49 @@ ECCLÉSIAM tuam, Dómine, benígnus illústra: ut beáti Joánnis Apóstoli tui 
 ### Ad Matutinum
 
 **Invitat.** Regem Apostolórum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+#### Hymnus
+
+ÆTÉRNA Christi múnera,
+Apostolórum glóriam,
+Palmas et hymnos débitos
+Lætis canámus méntibus.
+
+Ecclesiárum Príncipes,
+Belli triumpháles duces,
+Cæléstis aulæ mílites
+Et vera mundi lúmina.
+
+Devóta Sanctórum fides,
+Invícta spes credéntium,
+Perfécta Christi cáritas
+Mundi tyránnum cónterit.
+
+In his Patérna glória,
+In his triúmphat Fílius,
+In his volúntas Spíritus,
+Cælum replétur gáudio.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### Ad Nocturnum
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 6, 1-11*
+
+QUID ergo dicémus? permanébimus in peccáto, ut grátia abúndet? Absit. Qui enim mórtui sumus peccáto, quómodo adhuc vivémus in illo? An ignorátis quia quicúmque baptizáti sumus in Christo Jesu, in morte ipsíus baptizáti sumus? Consepúlti enim sumus cum illo per baptísmum in mortem: ut quómodo Christus surréxit a mórtuis per glóriam Patris, ita et nos in novitáte vitæ ambulémus. Si enim complantáti facti sumus similitúdini mortis ejus, simul et resurrectiónis érimus.
+
+℟. Congratulámini mihi, omnes qui dilígitis Dóminum: \* Quia cum essem párvula, plácui Altíssimo, et de meis viscéribus génui Deum et hóminem. ℣. Beátam me dicent omnes generatiónes, quia ancíllam húmilem respéxit Deus. — Quia.
+
+#### Lectio ii
+
+HOC sciéntes, quia vetus homo noster simul crucifíxus est, ut destruátur corpus peccáti, et ultra non serviámus peccáto. Qui enim mórtuus est, justificátus est a peccáto. Si autem mórtui sumus cum Christo: crédimus quia simul étiam vivémus cum Christo: sciéntes quod Christus resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo. Ita et vos existimáte, vos mórtuos quidem esse peccáto, vivéntes autem Deo, in Christo Jesu Dómino nostro.
+
+℟. Confirmátum est cor Vírginis, in quo divína mystéria, Angelo nuntiánte,

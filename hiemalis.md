@@ -28734,3 +28734,44 @@ Præcépta quorum prótinus
 Languor salúsque séntiunt,
 Sanáte mentes lánguidas,
 Augéte nos virtútibus:
+Ut, cum redíbit árbiter
+In fine Christus sǽculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sǽclum per omne glória. Amen.
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Bened. Ant.** Concéde nobis \* hóminem justum, redde nobis hóminem sanctum: ne interfícias hóminem Deo carum, justum, mansuétum et pium.
+
+#### Oratio
+
+MAJESTÁTEM tuam, Dómine, supplíciter exorámus: ut, sicut Ecclésiæ tuæ beátus Andréas Apóstolus éxstitit prædicátor et rector; ita apud te sit pro nobis perpétuus intercéssor. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+### Ad Tertiam
+
+{RUBRIC: Capitulum Fratres, ut supra.} [REF: p. 682]
+
+℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In. ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+### Ad Sextam
+
+**Capit.** *Rom. 10, 12-13*
+
+NON enim est distínctio Judǽi et Grǽci: nam idem Dóminus ómnium, dives in omnes qui ínvocant illum. Omnis enim, quicúmque invocáverit nomen Dómini, salvus erit.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. Glória Patri. Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+### Ad Nonam
+
+**Capit.** *Rom. 10, 10-18*
+
+ISAÍAS enim dicit: Dómine, quis crédidit audítui nostro? Ergo fides ex audítu, audítus autem per verbum Christi. Sed dico: Numquid non audiérunt? Et quidem in omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.

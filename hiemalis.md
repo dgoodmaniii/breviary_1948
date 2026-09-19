@@ -15809,3 +15809,50 @@ Et índuit maledictiónem sicut vestiméntum, \* et intrávit sicut aqua in inte
 Fiat ei sicut vestiméntum, quo operítur: \* et sicut zona, qua semper præcíngitur.
 
 Hoc opus eórum, qui détrahunt mihi apud Dómi-
+num: \* et qui loquúntur mala advérsum ánimam meam.
+
+Et tu, Dómine, Dómine, fac mecum propter nomen tuum: \* quia suávis est misericórdia tua.
+
+#### Psalmus 108, iii
+
+LÍBERA me quia egénus, et pauper ego sum: \* et cor meum conturbátum est intra me.
+
+Sicut umbra cum declínat, ablátus sum: \* et excússus sum sicut locústæ.
+
+Génua mea infirmáta sunt a jejúnio: \* et caro mea immutáta est propter óleum.
+
+Et ego factus sum oppróbrium illis: \* vidérunt me, et movérunt cápita sua.
+
+Adjuva me, Dómine, Deus meus: \* salvum me fac secúndum misericórdiam tuam.
+
+Et sciant quia manus tua hæc: \* et tu, Dómine, fecísti eam.
+
+Maledícent illi, et tu benedíces: \* qui insúrgunt in me, confundántur: servus autem tuus lætábitur.
+
+Induántur qui détrahunt mihi, pudóre: \* et operiántur sicut diplóide confusióne sua.
+
+Confitébor Dómino nimis in ore meo: \* et in médio multórum laudábo eum.
+
+Quia ástitit a dextris páuperis, \* ut salvam fá-
+
+{RUBRIC: Per Annum:} **Ant.** Ne tacúeris, Deus, quia sermónibus ódii circumdedérunt me.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Sabbato post Dominicam I:} **Ant.** Ecce véniet Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:} **Ant.** Parátus esto, Israël, in occúrsum Dómini, quóniam venit.
+
+#### Capitulum
+
+*Is. 14, 1*
+
+PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur: miserébitur enim Dóminus Jacob, et Israël salvábitur.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super te. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super te. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde

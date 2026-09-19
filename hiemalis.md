@@ -20456,3 +20456,70 @@ et móribus talis indúcitur, ut digna plane fuísse credátur, quæ Redemptóre
 **4** Facta est cum Angelo \* multitúdo cæléstis exércitus laudántium Deum, et dicéntium: Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja.
 
 **5** Párvulus fílius \* hódie natus est nobis: et vocá-
+bitur Deus, Fortis, allelúja, allelúja.
+
+#### Capitulum
+
+*Galat. 4, 1-2*
+
+FRATRES: Quanto témpore heres párvulus est, nihil differt a servo, cum sit dóminus ómnium: sed sub tutóribus et actóribus est usque ad præfinítum tempus a patre.
+
+#### Hymnus
+
+A SOLIS ortus cárdine
+Ad usque terræ límitem,
+Christum canámus Príncipem,
+Natum María Vírgine.
+
+Beátus auctor séculi
+Servíle corpus índuit:
+Ut carne carnem líberans,
+Ne pérderet quos cóndidit.
+
+Castæ Paréntis víscera
+Cæléstis intrat grátia:
+Venter Puéllæ bájulat
+Secréta, quæ non nóverat.
+
+Domus pudíci péctoris
+Templum repénte fit Dei:
+Intácta nésciens virum,
+Concépit alvo Fílium.
+
+Enítitur puérpera,
+Quem Gábriel prædíxerat,
+Quem ventre Matris géstiens,
+Baptísta clausum sénserat.
+
+Fœno jacére pértulit:
+Præsépe non abhórruit:
+Et lacte módico pastus est,
+Per quem nec ales ésurit.
+
+Gaudet chorus cæléstium,
+Et Ángeli canunt Deo;
+Palámque fit pastóribus
+Pastor, Creátor ómnium.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+**Ad Bened. Ant.** Dum médium siléntium \* tenérent ómnia, et nox in suo cursu médium iter perágeret, omnípotens Sermo tuus, Dómine, a regálibus sédibus venit, allelúja.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléc­ti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+
+{RUBRIC: Et fit Commemoratio Octávæ Nativitátis:}
+
+**Ant.** Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo ve-

@@ -19665,3 +19665,39 @@ HOC quod ántea díxerámus, Impléte mensúram patrum vestrórum; ad persónam 
 #### Lectio viii
 
 QUǼRIMUS, quis iste sit Zacharías fílius Baráchiæ: quia multos légimus Zacharías. Et ne líbera nobis tribuerétur erróris facúltas, ádditum est: Quem occidístis inter templum et altáre. In divérsis divérsa legi: et débeo singulórum opiniónes pónere. Álii Zacharíam fílium Baráchiæ dicunt, qui in duódecim prophétis undécimus est, patrísque in eo
+nomen conséntit: sed ubi occísus sit inter templum et altáre, Scriptúra non lóquitur; máxime cum tempóribus ejus vix ruínæ templi fúerint. Álii Zacharíam patrem Joánnis intélligi volunt, ex quibúsdam apócryphórum sómniis probántes, quod proptérea occísus sit, quia Salvatóris prædicáverit advéntum.
+
+℟. Patefáctæ sunt jánuæ cæli Christi Mártyri beáto Stéphano, qui in número Mártyrum invéntus est primus: \* Et ídeo triúmphat in cælis coronátus. ℣. Mortem enim, quam Salvátor noster dignátus est pro nobis pati, hanc ille primus réddidit Salvatóri. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+ÁLII istum volunt esse Zacharíam, qui occísus est a Joas rege Judæ inter templum et altáre, sicut Regum narrat história. Sed observándum, quod ille Zacharías non sit fílius Baráchiæ, sed fílius Jójadæ sacerdótis: unde et Scriptúra refert: Non fuit recordátus Joas patris ejus Jójadæ, quia sibi fecísset bona. Cum ergo et Zacharíam teneámus et occisiónis conséntiat locus: quǽrimus, quare Baráchiæ dicátur fílius, et non Jójadæ? Barachía lingua nostra Benedíctus Dómini dícitur, et sacerdótis Jójadæ justítia Hebrǽo nómine demonstrátur. In Evangélio, quo utúntur Nazaréni, pro fílio Baráchiæ fílium Jójadæ reperímus scriptum.
+
+{RUBRIC: Deinde dícitur} Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Lapidavérunt Stéphanum, \* et ipse invocábat Dóminum, dicens: Ne státuas illis hoc peccátum.
+
+**2** Lápides torréntis \* illi dulces fuérunt: ipsum sequúntur omnes ánimæ justæ.
+
+**3** Adhǽsit ánima mea \* post te, quia caro mea lapidáta est pro te, Deus meus.
+
+**4** Stéphanus vidit \* cælos apértos, vidit, et introívit: beátus homo, cui cæli patébant.
+
+**5** Ecce vídeo \* cælos apértos, et Jesum stantem a dextris virtútis Dei.
+
+#### Capitulum
+
+*Act. 6, 8*
+
+STÉPHANUS autem plenus grátia et fortitúdine, faciébat prodígia et signa magna in pópulo.
+
+#### Hymnus
+
+INVÍCTE Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.

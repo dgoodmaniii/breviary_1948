@@ -21741,3 +21741,52 @@ Dómine, adjútor meus, \* et redémptor meus.
 **Ant.** In nómine Jesu omne genu flectátur cæléstium, terréstrium, et infernórum.
 
 **Ant.** Confitémini \* Dómino, et invocáte nomen ejus: mementóte, quóniam excélsum est nomen ejus.
+
+#### Psalmus 23
+
+DÓMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Confitémini Dómino, et invocáte nomen ejus: mementóte, quóniam excélsum est nomen ejus.
+
+℣. Propter nomen tuum, Dómine, propitiáberis peccáto meo. ℟. Multum est enim.
+
+{RUBRIC: De Actibus Apostolórum}
+
+#### Lectio i
+
+*Cap. 3, 1-16*
+
+PETRUS autem et Joánnes ascendébant in templum ad horam oratiónis nonam. Et quidam vir, qui erat claudus ex útero matris suæ, bajulabátur; quem ponébant quotídie ad portam templi, quæ dícitur Speciósa, ut péteret eleemósynam ab introeúntibus in templum. Is cum vidísset Petrum et Joánnem incipiéntes introíre in templum, rogábat ut eleemósynam accíperet. Intuens autem in eum Petrus cum Joánne, dixit: Réspice in nos. At ille intendébat in eos, sperans se áliquid acceptúrum ab eis. Petrus autem dixit: Argéntum et aurum non est mihi: quod autem hábeo, hoc tibi do: In nómine Jesu Christi Nazaréni surge et ámbula. Et, apprehénsa manu ejus déxtera, allevávit eum, et prótinus consolidátæ sunt bases ejus, et plantæ. Et exsíliens stetit, et ambulábat; et intrávit cum illis in templum ámbulans, et exsíliens, et laudans Deum.
+
+℟. Ecce concípies, et páries fílium, et vocábis no-
+men ejus Jesum: \* Ipse enim salvum fáciet pópulum suum a peccátis eórum. ℣. Vocátum est nomen ejus Jesus, quod vocátum est ab Angelo, priúsquam in útero conciperétur. — Ipse.
+
+#### Lectio ii
+
+ET vidit omnis pópulus eum ambulántem, et laudántem Deum. Cognoscébant autem illum, quod ipse erat qui ad eleemósynam sedébat ad Speciósam portam templi: et impléti sunt stupóre et éxstasi in eo, quod contígerat illi. Cum tenéret autem Petrum et Joánnem, cucúrrit omnis pópulus ad eos ad pórticum, quæ appellátur Salomónis, stupéntes. Videns autem Petrus, respóndit ad pópulum: Viri Israëlítæ, quid mirámini in hoc, aut nos quid intuémini, quasi nostra virtúte aut potestáte fecérimus hunc ambuláre? Deus Abraham, et Deus Isaac, et Deus Jacob, Deus patrum nostrórum glorificávit Fílium suum Jesum, quem vos quidem tradidístis, et negástis ante fáciem Piláti, judicánte illo dimítti. Vos autem sanctum et justum negástis, et petístis virum homicídam donári vobis: auctórem vero vitæ interfecístis, quem Deus suscitávit a mórtuis, cujus nos testes sumus. Et in fide nóminis ejus, hunc, quem vos vidístis et nostis, confirmávit nomen ejus: et fides, quæ per eum est, dedit íntegram sanitátem istam in conspéctu ómnium vestrum.
+
+℟. Benedíctum est nomen tuum, Deus patrum nostrórum, qui cum irátus fúeris, misericórdiæ recordáberis, \* Et in témpore tribulatiónis peccáta dimíttis. ℣. Et benedíctum nomen majestátis tuæ in ætérnum, qui facis mirabília solus. — Et.
+
+#### Lectio iii
+
+*Cap. 4, 5-12*
+
+FACTUM est autem in crástinum, ut congregaréntur príncipes eórum, et senióres, et scribæ in Jerúsalem: et Annas princeps sacerdótum, et Cáiphas, et Joánnes, et Alexánder, et quotquot erant de génere sacerdotáli. Et statuéntes eos in médio, interrogábant: In qua virtúte, aut in quo nómine fecístis hoc vos? Tunc replétus Spíritu Sancto Petrus, dixit ad eos: Príncipes pópuli et senióres, audíte: Si nos hódie dijudicámur in benefácto hóminis infírmi, in quo iste salvus factus est, notum sit ómnibus vobis, et omni plebi Israël: quia in nómine Dó-

@@ -29284,3 +29284,61 @@ Sit laus Deo Patri,
 Summo Christo decus,
 Spirítui Sancto,
 Tribus honor unus. Amen.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia fecit mihi magna qui potens est, allelúja.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: quǽsumus; ut, qui ex morte ejúsdem Fílii tui prævísa, eam ab omni labe præservásti, nos quoque mundos ejus intercessióne ad te perveníre concédas. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+##### Ad Matutinum
+
+**Invit.** Immaculátam Conceptiónem Vírginis Maríæ celebrémus: \* Christum ejus Fílium adorémus Dóminum. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+PRÆCLÁRA custos Vírginum,
+Intácta mater Núminis,
+Cæléstis aulæ jánua,
+Spes nostra, cæli gáudium,
+
+Inter rubéta lílium,
+Colúmba formosíssima,
+Virga e radíce gérminans
+Nostro medélam vúlneri,
+
+Turris dracóni impérvia,
+Amíca stella náufragis,
+Tuére nos a fráudibus,
+Tuáque luce dírige.
+
+Erróris umbras díscute,
+Syrtes dolósas ámove,
+Fluctus tot inter, déviis
+Tutam reclúde sémitam.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Admirábile est \* nomen tuum, Dómine, in univérsa terra, quia in Vírgine María dignum tibi habitáculum præparásti.
+
+###### Psalmus 8
+
+DÓMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?

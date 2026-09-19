@@ -20039,3 +20039,47 @@ CIBÁVIT illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potáv
 *Eccli. 15, 5*
 
 IN médio Ecclésiæ apéruit os ejus, et implévit illum Dóminus spíritu sapiéntiæ et intelléctus, et stolam glóriæ índuit eum.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ et Psalmi de Nativitáte. 402}
+
+**Capit.** Qui timet Deum {RUBRIC: et Hymnus} Exsúltet, {RUBRIC: ut supra. 417}
+
+℣. Valde honorándus est beátus Joánnes. ℟. Qui supra pectus Dómini in cœna recúbuit.
+
+**Ad Magnif. Ant.** Exiit \* sermo inter fratres, quod discípulus ille non móritur; et non dixit Jesus, Non móritur: sed, Sic eum volo manére, donec véniam.
+
+{RUBRIC: Et fit Commemorátio sequéntis et Octávæ Nativitátis, ut infra.}
+
+---
+
+## Die 28 Decembris
+
+# Ss. Innocentium Martyrum
+
+{RUBRIC: Duplex II classis cum Octava simplici}
+
+{RUBRIC: Omnia de Communi plurimórum Mártyrum [49], prǽter ea quæ hic habéntur própria.}
+
+{RUBRIC: Pro Commem. Ss. Innocéntium in II Vésperis S. Joánnis:}
+
+**Ant.** Hi sunt, \* qui cum muliéribus non sunt coinquináti: vírgines enim sunt, et sequúntur Agnum quocúmque íerit.
+
+℣. Heródes irátus occídit multos púeros. ℟. In Béthlehem Judæ civitáte David.
+
+#### Oratio
+
+DEUS, cujus hodiérna die præcónium Innocéntes Mártyres non loquéndo, sed moriéndo conféssi sunt: ómnia in nobis vitiórum mala mortífica; ut fidem tuam, quam lingua nostra lóquitur, étiam móribus vita fateátur. (Per Dóminum.)
+
+{RUBRIC: Pro Octava Nativitatis:}
+
+**Ant.** Hódie Christus natus est: hódie Salvátor appáruit: hódie in terra canunt Angeli, lætántur Archángeli: hódie exsúltant justi, dicéntes: Glória in excélsis Deo, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per

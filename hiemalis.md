@@ -6174,3 +6174,51 @@ Confitémini Dómino, fílii Israël, \* et in conspéctu géntium laudáte eum:
 Quóniam ídeo dispérsit vos inter gentes, quæ ignórant eum, \* ut vos enarrétis mirabília ejus.
 
 Et faciátis scire eos, \* quia non est álius Deus omnípotens præter eum.
+
+Ipse castigávit nos propter iniquitátes nostras: \* et ipse salvábit nos propter misericórdiam suam.
+
+Aspícite ergo quæ fecit nobíscum, et cum timóre et tremóre confitémini illi: \* Regémque sæculórum exaltáte in opéribus vestris.
+
+Ego autem in terra captivitátis meæ confitébor illi: \* quóniam osténdit majestátem suam in gentem peccatrícem.
+
+Convertímini ítaque, peccatóres, et fácite justítiam coram Deo, \* credéntes quod fáciat vobíscum misericórdiam suam:
+
+Ego autem, et ánima mea \* in eo lætábimur.
+
+Benedícite Dóminum, omnes elécti ejus: \* ágite dies lætítiæ, et confitémini illi.
+
+**Ant.** Exaltáte Regem sæculórum in opéribus vestris.
+
+**Ant.** Laudáte \* † nomen Dómini, qui statis in domo Dómini.
+
+### Psalmus 134
+
+LAUDATE † nomen Dómini, \* laudáte, servi, Dóminum.
+
+Qui statis in domo Dómini, \* in átriis domus Dei nostri.
+
+Laudáte Dóminum, quia bonus Dóminus: \* psállite nómini ejus, quóniam suáve.
+
+Quóniam Jacob elégit sibi Dóminus, \* Israël in possessiónem sibi.
+
+Quia ego cognóvi quod magnus est Dóminus, \* et Deus noster præ ómnibus diis.
+
+Omnia quæcúmque vóluit, Dóminus fecit in cælo, et in terra, \* in mari, et in ómnibus abýssis.
+
+Edúcens nubes ab extrémo terræ: \* fúlgura in plúviam fecit.
+
+Qui prodúcit ventos de thesáuris suis: \* qui percússit primogénita Ægýpti ab hómine usque ad pecus.
+
+Et misit signa, et prodígia in médio tui, Ægýpte: \* in Pharaónem, et in omnes servos ejus.
+
+Qui percússit gentes multas: \* et occídit reges fortes:
+
+Sehon, regem Amorrhæórum, et Og, regem Basan, \* et ómnia regna Chánaan.
+
+Et dedit terram eórum hereditátem, \* hereditátem Israël, pópulo suo.
+
+Dómine, nomen tuum in ætérnum: \* Dómine, memoriále tuum in generatiónem et generatiónem.
+
+Quia judicábit Dóminus pópulum suum: \* et in servis suis deprecábitur.
+
+Simulácra géntium argéntum, et aurum, \* ópera mánuum hóminum.

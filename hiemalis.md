@@ -10719,3 +10719,85 @@ Erróre traxit dévio.
 
 Hæc lux serénum cónferat,
 Purósque nos præstet sibi:
+
+Nihil loquámur súbdolum: \* Volvámus obscúrum nihil.
+
+Sic tota decúrrat dies,
+Ne lingua mendax, ne manus
+Oculíve peccent lúbrici,
+Ne noxa corpus ínquinet.
+
+Speculátor astat désuper,
+Qui nos diébus ómnibus,
+Actúsque nostros próspicit
+A luce prima in vésperum.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+{RUBRIC: Feria V post Cineres Ant. ad Benedictus ut in Proprio de Tempore; alias}
+
+**Ad Bened. Ant.** In sanctitáte \* serviámus Dómino, et liberábit nos ab inimícis nostris.
+
+{RUBRIC: Feria V post Cineres et in Vigiliis communibus Preces feriales ut supra.} [REF: p. 212]
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+### Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+**Per Annum: Ant.** In loco páscuæ.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria V post Dominicam I:} **Ant.** In illa die.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** De Sion.
+
+### Psalmus 22
+
+DOMINUS regit me, et nihil mihi déerit: \* in loco páscuæ ibi me collocávit.
+
+Super aquam refectiónis educávit me: \* ánimam meam convértit.
+
+Dedúxit me super sémitas justítiæ, \* propter nomen suum.
+
+Nam, et si ambulávero in médio umbræ mortis, non

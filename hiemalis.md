@@ -13296,3 +13296,59 @@ Surge, Deus, júdica terram: \* quóniam tu hereditábis in ómnibus géntibus.
 #### In Officio feriali Adventus
 
 {RUBRIC: Feria VI post Dominicam I:} **Ant.** Jucundáre, fília Sion, et exsúlta satis, fília Jerúsalem, allelúja.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Ad te, Dómine, levávi ánimam meam: veni, et éripe me, Dómine, ad te confúgi.
+
+**Capitulum** *Jer. 23, 5*
+
+ECCE, dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit: et fáciet judícium et justítiam in terra.
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 21}
+
+#### Per Annum
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+{RUBRIC: Feria VI post Cineres et in Vigiliis communibus Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 22}
+
+---
+
+### Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Beáti, qui hábitant.

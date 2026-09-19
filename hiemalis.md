@@ -19412,3 +19412,55 @@ Fidélia ómnia mandáta ejus: confirmáta in séculum séculi, \* facta in veri
 Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
 
 Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in séculum séculi.
+
+**Ant.** Redemptiónem misit Dóminus pópulo suo: mandávit in ætérnum testaméntum suum.
+
+**Ant.** Exórtum est \* in ténebris lumen rectis corde: miséricors, et miserátor, et justus Dóminus.
+
+#### Psalmus 111
+
+BEÁTUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in séculum séculi.
+
+Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício: \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus: \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus: justítia ejus manet in séculum séculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
+
+**Ant.** Exórtum est in ténebris lumen rectis corde: miséricors, et miserátor, et justus Dóminus.
+
+**Ant.** Apud Dóminum \* misericórdia, et copiósa apud eum redémptio.
+
+#### Psalmus 129
+
+DE profúndis clamávi ad te, Dómine: \* Dómine, exáudi vocem meam:
+
+Fiant aures tuæ inten­déntes, \* in vocem deprecatiónis meæ.
+
+Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
+
+Quia apud te propitiátio est: \* et propter legem tuam sustínui te, Dómine.
+
+Sustínuit ánima mea in verbo ejus: \* sperávit ánima mea in Dómino.
+
+A custódia matutína usque ad noctem: \* speret Israël in Dómino.
+
+Quia apud Dóminum misericórdia: \* et copiósa apud eum redémptio.
+
+Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
+
+**Ant.** Apud Dóminum misericórdia, et copiósa apud eum redémptio.
+
+**Ant.** De fructu \* ventris tui ponam super sedem tuam.

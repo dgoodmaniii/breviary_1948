@@ -20368,3 +20368,36 @@ OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in n
 {RUBRIC: Et fit Com. Oct. Nativitatis:}
 
 **Ant.** Hódie Christus natus est: hódie Salvátor appáruit: hódie in terra
+canunt Angeli, lætántur Archángeli: hódie exsúltant justi, dicéntes: Glória in excélsis Deo, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Ad Matutinum, Laudes et Horas ómnia dicúntur ut in Nativitáte Dómini 386, prǽter sequéntia.}
+
+{RUBRIC: In I Nocturno Lectiónes de Scriptúra diéi curréntis, ut infra 433, cum Responsóriis ibídem assignátis.}
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 9 de Nativit. Domini}
+
+#### Lectio iv
+
+EXCÉDIT quidem, dilectíssimi, multúmque superéminet humáni elóquii facultátem divíni óperis magnitúdo: et inde óritur difficúltas fandi, unde adest rátio non tacéndi. Quia in Christo Jesu Fílio Dei non solum ad divínam esséntiam, sed étiam ad humánam spectat natúram quod dictum est per prophétam: Generatiónem ejus quis enarrá-
+
+bit? Utrámque enim substántiam in unam convenísse persónam, nisi fides credat, sermo non explicat. Et ídeo numquam matéria déficit laudis, quia numquam súfficit cópia laudatóris.
+
+℟. Beáta Dei Génitrix María, cujus víscera intácta pérmanent: \* Hódie génuit Salvatórem séculi. ℣. Beáta, quæ crédidit: quóniam perfécta sunt ómnia, quæ dicta sunt ei a Dómino. — Hódie.
+
+#### Lectio v
+
+GAUDEÁMUS ígitur, quod ad eloquéndum tantæ misericórdiæ sacraméntum ímpares sumus; et cum salútis nostræ altitúdinem prómere non valeámus, sentiámus nobis bonum esse, quod víncimur. Nemo enim ad cognitiónem veritátis magis propínquat, quam qui intélligit in rebus divínis, étiam si multum profíciat, semper sibi superésse quod quǽrat. Nam qui se ad id, in quod tendit, pervenísse præsúmit, non quæsíta réperit, sed in inquisitióne déficit.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta

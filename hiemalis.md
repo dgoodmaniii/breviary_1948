@@ -16279,3 +16279,51 @@ Intácta prodis víctima.
 
 Cujus potéstas glóriæ,
 Noménque cum primum sonat,
+Et cælites et ínferi
+Treménte curvántur genu.
+
+Te deprecámur últimæ
+Magnum diéi Júdicem,
+Armis supérnæ grátiæ
+Defénde nos ab hóstibus.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sécula. Amen.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Ecce nomen Dómini \* venit de longínquo, et cláritas ejus replet orbem terrárum.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Ne tímeas, María, \* invenísti enim grátiam apud Dóminum: ecce concípies et páries fílium, allelúja.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccatórum nostrórum perículis, te mereámur protegénte éripi, te liberánte salvári: Qui vivis.
+
+{RUBRIC: Suffragium de ómnibus Sanctis omíttitur per totum Advéntum, étiam in Festis.}
+
+---
+
+## Dominica I Adventus
+
+{RUBRIC: I classis} Semiduplex
+
+### Ad Matutinum
+
+{RUBRIC: Invitat. Regem ventúrum, Hymnus Verbum supérnum, et Psalmi de Domínica, sub Antiphónis et cum Versíbus Nocturnórum de Témpore Advéntus, ut in Psaltério. 36}
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber Isaíæ Prophétæ}
+
+#### Lectio i
+
+*Cap. 1, 1-9*
+
+VISIO Isaíæ, fílii Amos, quam vidit super Judam et Jerúsalem, in diébus Ozíæ, Jóathan, Achaz, et Ezechíæ, regum Juda. Audíte, cæli, et áuribus pércipe, terra, quóniam Dóminus locútus est: Fílios enutrívi, et exaltávi: ipsi autem sprevérunt me. Cognóvit bos possessórem suum, et ásinus præsépe dómini sui: Israël autem me non cognóvit, et pópulus meus non intelléxit.
+
+℟. Aspíciens a longe, ecce vídeo Dei poténtiam veniéntem, et nébulam totam terram tegéntem. \* Ite óbviam ei, et dícite: \* Núntia nobis, si tu es ipse, \* Qui regnatúrus es in pópulo Israël. ℣. Quique terrígenæ, et fílii hóminum, simul in unum dives et pauper. — Ite

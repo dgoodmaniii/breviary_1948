@@ -30222,3 +30222,14 @@ Témporis ævo. Amen.
 LUCIA virgo Syracúsana, génere et christiána fide ab infántia nóbilis, una cum matre Eutýchia, quæ sánguinis fluxu laborábat, Cátanam ad venerándum corpus beátæ Agathæ venit: quæ ad ejus sepúlcrum cum supplíciter orásset, Agathæ intercessióne matri sanitátem impetrávit. Statim vero matrem exorávit, ut quam dotem sibi datúra esset, Christi paupéribus tríbui paterétur. Ut ígitur Syracúsas rédiit, omnem pecúniam, quam ex facultátibus vénditis redégerat, paupéribus distríbuit.
 
 ℟. Lúcia virgo, quid a me petis quod ipsa póteris præstáre contínuo matri tuæ? nam et fides tua illi
+ subvénit, et ecce salváta est: \* Quia jucúndum Deo in tua virginitáte habitáculum præparásti. ℣. Sicut per me cívitas Catanénsium sublimátur a Christo, ita per te Syracúsana cívitas decorábitur. — Quia.
+
+#### Lectio v
+
+QUOD ubi rescivísset is, cui eam paréntes contra vírginis voluntátem despónderant, apud Paschásium præféctum Lúciam, quod christiána esset, accusávit. Quam ille cum nec précibus, nec minis ad cultum idolórum posset perdúcere; immo tanto magis incénsam vidéret ad celebrándas christiánæ fídei laudes, quanto magis ipse eam a senténtia avértere conabátur: Cessábunt, inquit, verba, cum ventum erit ad vérbera. Cui virgo: Dei servis verba deésse non possunt, quibus a Christo Dómino dictum est: Cum stetéritis ante reges et prǽsides, nolíte cogitáre quómodo aut quid loquámini; dábitur enim vobis in illa hora quid loquámini: non enim vos estis qui loquímini, sed Spíritus Sanctus, qui lóquitur in vobis.
+
+℟. Rogávi Dóminum meum Jesum Christum, ut ignis iste non dominétur mei: \* Et impetrávi a Dómino indúcias martýrii mei. ℣. Pro eo ut me dilígerent, detrahébant mihi: ego autem orábam. — Et.
+
+#### Lectio vi
+
+QUAM cum Paschásius interrogásset, Estne in te Spíritus Sanctus? respóndit: Caste et pie vivéntes templum sunt Spíritus Sancti. At ille: Jubébo te ad lupánar duci, ut te Spíritus Sanctus déserat. Cui virgo: Si invítam jússeris violári, cástitas mihi duplicábitur ad corónam. Quare Paschásius ira inflammátus, Lúciam eo trahi jussit, ubi ejus virgínitas violarétur: sed divínitus factum est, ut firma virgo ita consísteret, ut nulla vi de loco dimovéri posset. Quam ob rem præféctus circum ipsam, pice, resína, ac fervénti óleo perfúsam, ignem accéndi imperávit: sed cum ne flamma quidem eam lǽderet, multis torméntis excruciátæ guttur gládio transfígitur. Quo vúlnere accépto, Lúcia prædícens Ecclésiæ tranquillitátem, quæ futúra erat Diocletiáno et Maximiáno mórtuis, Idibus Decémbris spíritum Deo réddidit. Cujus corpus Syracúsis sepúltum, deínde Constantinópolim, postrémo Venétias translátum est.

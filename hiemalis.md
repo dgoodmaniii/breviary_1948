@@ -29855,3 +29855,26 @@ sáuro divinitátis deprómpta ita mirífice cumulávit, ut ipsa ab omni prorsus
 QUAM originálem augústæ Vírginis innocéntiam cum admirábili ejúsdem sanctitáte præcelsáque Dei Matris dignitáte omníno cohæréntem cathólica Ecclésia, quæ a Sancto semper edócta Spíritu colúmna est ac firmaméntum veritátis, tamquam doctrínam póssidens divínitus accéptam, et cæléstis revelatiónis depósito comprehénsam multíplici continénter ratióne, splendidísque factis magis in dies explicáre, propónere ac fovére numquam déstitit. Hanc enim doctrínam ab antiquíssimis témporibus vigéntem, ac fidélium ánimis pénitus ínsitam, et sacrórum antístitum curis studiísque per cathólicum orbem mirífice propagátam, ipsa Ecclésia luculentíssime significávit, cum ejúsdem Vírginis Conceptiónem público fidélium cúltui ac venerationi propónere non dubitávit. Quo illústri quidem facto ipsíus Vírginis Conceptiónem véluti singulárem, miram et a relíquórum hóminum primórdiis longíssime secrétam, et omníno sanctam coléndam exhíbuit, cum Ecclésia nónnisi de Sanctis dies festos concélebret.
 
 ℟. Signum magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, \* Et in cápite ejus coróna stellárum duódecim. ℣. Induit eam Dóminus vestiméntis salútis, induménto justítiæ, et quasi sponsam ornávit
+eam monílibus suis. — Et in cápite ejus coróna stellárum duódecim. Glória. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 1, 26-28*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Sophrónii Epíscopi}
+
+{RUBRIC: Homilía in Deíparæ Annunt.}
+
+QUID missus beátus ille Angelus ad Vírginem integérrimam dicit? aut quómodo faustíssimum hoc núntium ipsi defert? Ave, grátia plena; Dóminus tecum. A gáudio íncipit eam álloqui ille gáudii núntius. Nóverat enim et plane sciébat, núntium illud suum univérsis homínibus atque ómnibus páriter creatúris gáudium paráre, et quóslibet a quibuscúmque dolóres expéllere; nóverat, ex divína hujus mystérii cognitióne mundum lúmine collustrári; nóverat, erróris dísjici calíginem; nóverat, retúndi mortis acúleum; nóverat, vim corruptiónis infríngi; nóverat, ab inférno victóriam auférri; nóverat, salútem pérdito affulgére hómini, qui horum malórum jugo jámdiu premebátur, ex quo scílicet a paradísi delíciis expúlsus, et a beáto illo domicílio ejéctus fúerat. Proptérea legatiónis suæ exórdium a gáudio ducit; proptérea sermónibus suis gáudii voces præmíttit; proptérea faustis hisce núntiis gáudium antecédit, útpote quæ ómnibus credéntibus gáudio futúra erant.
+
+℟. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons signátus: \* Emissiónes tuæ paradísus, o María. ℣. Aperi mihi, soror mea, amíca mea, colúmba mea, immaculáta mea. — Emissiónes.
+
+#### Lectio viii
+
+ET sane par omníno erat, ut divína gáudii denuntiátio a sermónibus verbísque gáudium elicientibus súmeret inítium. Proptérea enim et Angelus gáudium ante ómnia renúntiat, quia faustæ legatiónis suæ non ignórat éxitum, ac probe novit collóquium quod habebátur, in totíus mundi gáudium maniféste esse cessúrum. Et profécto quodnam gáudium, aut quænam reperíri potest jucúnditas,

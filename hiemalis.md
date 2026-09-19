@@ -16909,3 +16909,59 @@ QUID est ergo dícere: Beátus qui non fúerit scandalizátus in me; nisi apért
 SED dimíssis Joánnis discípulis, quid de eódem Joánne turbis dicat, audiámus. Quid exístis in desértum vidére? Arúndinem vento agitátam? Quod vidélicet non asseréndo, sed negándo íntulit. Arúndinem quippe mox ut aura contígerit, in partem álteram infléctit. Et quid per arúndinem, nisi carnális ánimus designátur? Qui mox ut favóre vel detractióne tángitur, statim in partem quámlibet inclinátur.
 
 ℟. Ecce Dóminus véniet cum splendóre descéndens, et virtus ejus cum
+eo, \* Visitáre pópulum suum in pace, et constitúere super eum vitam sempitérnam. ℣. Ecce Dóminus noster cum virtúte véniet. — Visitáre. Glória Patri. Visitáre.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Ecce in núbibus cæli \* Dóminus véniet cum potestáte magna, allelúja.
+
+{RUBRIC: Psalmi de Dominica 1 loco. 40}
+
+**2** Urbs fortitúdinis \* nostræ Sion, Salvátor ponétur in ea murus et antemurále: aperíte portas, quia nobíscum Deus, allelúja.
+
+**3** Ecce apparébit \* Dóminus, et non mentiétur: si moram fécerit, exspécta eum, quia véniet, et non tardábit, allelúja.
+
+**4** Montes et colles \* cantábunt coram Deo laudem, et ómnia ligna silvárum pláudent mánibus: quóniam véniet Dominátor Dóminus in regnum ætérnum, allelúja, allelúja.
+
+**5** Ecce Dóminus \* noster cum virtúte véniet, et illuminábit óculos servórum suórum, allelúja.
+
+#### Capitulum
+
+*Rom. 15, 4*
+
+FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam,
+
+et consolatiónem Scriptu-rárum spem habeámus.
+
+#### Hymnus
+
+EN clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit,
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Joánnes autem \* cum audísset in vínculis ópera Christi, mittens duos ex discípulis suis, ait illi: Tu es qui ventúrus es, an álium exspectámus?

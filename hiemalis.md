@@ -24725,3 +24725,16 @@ CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab
 {RUBRIC: Homilia 10 in Evang.}
 
 MAGNUM vero nobis áliquid Magi ínnuunt, quod in regiónem suam per áliam viam revertúntur. In eo
+namque quod admóniti fáciunt, nobis profécto insínuant quid faciámus. Régio quippe nostra paradísus est: ad quam, Jesu cógnito, redíre per viam, qua vénimus, prohibémur. A regióne étenim nostra superbiéndo, inobediéndo, visibília sequéndo, cibum vétitum gustándo discéssimus: sed ad eam necésse est, ut flendo, obediéndo, visibília contemnéndo, atque appetítum carnis refrenándo redeámus.
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+#### Lectio viii
+
+PER áliam ergo viam ad regiónem nostram regrédimur: quóniam qui a paradísi gáudiis per delectaménta discéssimus, ad hæc per laménta revocámur. Unde necésse est, fratres caríssimi, ut semper pávidi, semperque suspécti, ponámus ante óculos cordis, hinc culpas óperis, illinc judícium extrémæ districtiónis. Pensémus, quam districtus judex véniat, qui judícium minátur, et latet: terróres peccatóribus inténtat, et tamen adhuc sústinet: et idcírco veníre cítius differt, ut minus invéniat quod condémnet.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio magno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus, et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra ubi erat puer. — Et intrántes. Glória Patri. Et, apértis.
+
+#### Lectio ix
+
+PUNIÁMUS flétibus culpas, et cum Psalmístæ voce, præveniámus fáciem ejus in confessióne. Voluptátum nos ergo fallácia nulla decípiat, nulla vana lætítia sedúcat. In próximo namque est judex, qui dixit: Væ vobis, qui ridétis nunc; quia lugébitis et flébitis. Hinc enim Sálomon ait: Risus dolóri miscébitur: et, Extréma gáudii luctus óccupat. Hinc íterum dicit: Risum deputávi errórem, et gáudio dixi, Quid frustra decíperis? Hinc rursus ait: Cor sapiéntium

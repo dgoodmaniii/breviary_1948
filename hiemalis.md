@@ -32731,4 +32731,22 @@ DEUS, qui nos beáti Polycárpi Mártyris tui atque Pontíficis ánnua solemnit�
 
 POLYCÁRPUS, Joánnis Apóstoli discípulus et ab eo Smyrnæ epíscopus ordinátus, totíus Asiæ princeps fuit, quippe qui nonnúllos Apostolórum et eórum qui víderant Dóminum, magístros habúerit et víderit. Hic propter quasdam super die Paschæ quæstiónes, sub imperatóre Antoníno Pio, Ecclésiam in Urbe regénte Anicéto, Romam venit; ubi plúrimos credéntium, Marciónis et Valentíni persuasióne decéptos, redúxit ad fidem. Cumque ei fortúito óbviam fuísset Márcion et díceret: Cognóscis nos? respóndit: Cognósco primogénitum diáboli. Póstea vero, regnánte Marco Antoníno et Lúcio Aurélio Cómmodo, quarta post Nerónem persecutióne, Smyrnæ, sedénte procónsule et univérso pópulo in amphitheátro advérsus eum personánte, igni tráditus est. Scripsit ad Philippénses valde útilem epístolam, quæ usque hódie in Asiæ convéntu légitur.
 
-℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a sedu-
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a sedu-ctóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+{RUBRIC: De Expositióne sancti Ambrósii Epíscopi in Psalmum centésimum décimum octávum}
+
+#### Lectio v
+
+{RUBRIC: Sermo 21}
+
+PRÍNCIPES persecúti sunt me gratis: et a verbis tuis trepidávit cor meum. Bene hoc Martyr dicit, quod injúste persecutiónum torménta sustíneat; qui nihil rapúerit, nullum violéntus opprésserit, nullíus sánguinem fúderit, nullíus torum putáverit esse violándum; qui nihil légibus débeat, et graviora latrónum sustinére cogátur supplícia; qui loquátur juste, et non audiátur; qui loquátur plena salútis, et impugnétur, ut possit dícere: Cum loquébar illis, impugnábant me gratis. Gratis ígitur persecutiónem pátitur, qui impugnátur sine crímine, impugnátur ut nóxius, cum sit in tali confessióne laudábilis; impugnátur quasi venéficus, qui in nómine Dómini gloriátur, cum pietas virtútum ómnium fundaméntum sit.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+#### Lectio vi
+
+VERE frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, cum fídei sit magíster. Verum, qui gratis impugnátur, fortis debet esse et constans; quómodo ergo subtéxuit: Et a verbis tuis trepidávit cor meum? Trepidáre infirmitátis est, timóris atque formídinis. Sed est étiam infírmitas ad salútem, est étiam timor sanctórum. Timéte Dóminum, omnes sancti ejus: et, Beátus vir, qui timet Dóminum. Qua ratióne beátus? Quia in mandátis ejus cupit nimis.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et corónam.
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Nihil est opértum, {RUBRIC: de Communi unius Martyris 4 loco.} [47]

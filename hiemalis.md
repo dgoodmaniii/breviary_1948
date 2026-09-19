@@ -16013,3 +16013,68 @@ Laudatiónem Dómini loquétur os meum: \* et benedícat omnis caro nómini sanc
 *Rom. 11, 33*
 
 O ALTITÚDO divitiárum sapiéntiæ et sciéntiæ Dei: quam incomprehensíbilia sunt judícia ejus, et investigábiles viæ ejus!
+
+{RUBRIC: In ómnibus vero Sabbatis supérius indicátis dícitur séquens Hymnus et Versus:}
+
+#### Hymnus
+
+JAM sol recédit ígneus:
+Tu, lux perénnis, Unitas,
+Nostris, beáta Trínitas,
+Infúnde lumen córdibus.
+
+Te mane laudum cármine,
+Te deprecámur véspere;
+Dignéris ut te súpplices
+Laudémus inter Cælites.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Séclum per omne glória. Amen.
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+{RUBRIC: Ad Magnificat Antiphona ut in Proprio de Tempore, prǽterquam in Sabbatis ante Dominicam II et relíquas Dominicas post Epiphániam occurréntibus, in quibus dícitur}
+
+**Ant.** Suscépit Deus \* Israël, púerum suum: sicut locútus est ad Abraham, et semen ejus usque in séculum.
+
+{RUBRIC: Expléto Cántico ac repetíta Antíphona, dícitur Orátio Dominícæ sequéntis própria, quæ per totam hebdómadam suam in feriáli Offício adhibétur, nisi speciális Orátio habeátur.}
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+#### Lectio br.
+
+*1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dícitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Intret orátio mea.
+
+#### Psalmus 87
+
+DÓMINE, Deus salútis meæ: \* in die clamávi, et nocte coram te.
+
+Intret in conspéctu tuo orátio mea: \* inclína aurem tuam ad precem meam:
+
+Quia repléta est malis ánima mea: \* et vita mea inférno appropinquávit.
+
+Æstimátus sum cum descendéntibus in lacum: \*

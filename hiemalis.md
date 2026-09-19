@@ -20302,3 +20302,69 @@ HI empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est i
 {RUBRIC: Si vero Dominica incídat in Festum S. Thomæ aut S. Silvéstri, ipsa die Offícium fit de Domínica, cum Commemoratióne Festi occurréntis et Octávæ Nativitátis: et die 30 Decémbris fit Offícium de VI die infra eámdem Octávam, ut suo loco notátur. 438}
 
 {RUBRIC: Sicúbi tamen die 30 Decémbris celebrétur Festum áliquod novem Lectiónum, tunc Offícium Domínicæ, ut supra transferéndæ, ea die pónitur, qua Festum minus nóbile in occurréntia a die 29 usque ad 31 Decémbris secus peragéndum foret, salvis Domínicæ júribus in concurréntia. Quod si ómnia Festa, a die 29 usque}
+ad 31 Decémbris occurréntia, ritum Duplicem I aut II classis hábeant, Commemoratio Domínicæ fiat in Festo ut supra minus nóbili. In paritáte nobilitátis Offícium aut Commemoratio Domínicæ fiat in Festo prius occurrénti.}
+
+---
+
+## Dominica infra Octavam Nativitatis
+
+{RUBRIC: Semiduplex}
+
+### In I Vesperis
+
+{RUBRIC: Antiphónæ et Psalmi de Nativitáte. 402.}
+
+#### Capitulum
+
+*Galat. 4, 1-2*
+
+FRATRES: Quanto témpore heres párvulus est, nihil differt a servo, cum sit dóminus ómnium: sed sub tutóribus et actóribus est usque ad præfinítum tempus a patre.
+
+#### Hymnus
+
+JESU, Redémptor ómnium,
+Quem lucis ante oríginem
+Parem Patérnæ glóriæ
+Pater suprémus édidit.
+
+Tu lumen, et splendor Patris,
+Tu spes perénnis ómnium,
+Inténde quas fundunt preces
+Tui per orbem sérvuli.
+
+Meménto, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+Testátur hoc præsens dies,
+Currens per anni círculum,
+Quod solus e sinu Patris
+Mundi salus advéneris.
+
+Hunc astra, tellus, ǽquora,
+Hunc omne, quod cælo subest,
+Salútis auctórem novæ
+Novo salútat cántico.
+
+Et nos, beáta quos sacri
+Rigávit unda sánguinis,
+Natális ob diem tui
+Hymni tribútum sólvimus.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+**Ad Magnif. Ant.** Dum médium siléntium \* tenérent ómnia, et nox in suo cursu médium iter perágeret, omnípotens Sermo tuus, Dómine, a regálibus sédibus venit, allelúja.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléc­ti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+
+{RUBRIC: Et fit Com. Oct. Nativitatis:}
+
+**Ant.** Hódie Christus natus est: hódie Salvátor appáruit: hódie in terra

@@ -30285,3 +30285,58 @@ THESÁURUS autem cæléste est desidérium; ager vero, in quo thesáurus abscón
 **Ant. 1** Oránte sancta Lúcia, \* appáruit ei beáta Agatha, et consolabátur ancíllam Christi.
 
 {RUBRIC: Psalmi de Domin. 1 loco.} [44]
+
+
+**2** Lúcia virgo, \* quid a me petis, quod ipsa póteris præstáre contínuo matri tuæ?
+
+**3** Per te, Lúcia virgo, \* cívitas Syracúsana decorábitur a Dómino Jesu Christo.
+
+**4** Benedíco te, \* Pater Dómini mei Jesu Christi, quia per Fílium tuum ignis exstínctus est a látere meo.
+
+**5** Soror mea Lúcia, \* virgo Deo devóta, quid a me petis, quod ipsa póteris præstáre contínuo matri tuæ?
+
+**Capit.** *2 Cor. 10, 17-18*
+
+FRATRES: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+#### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia.
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant.
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Colúmna es \* immóbilis, Lúcia, sponsa Christi: quia omnis plebs te exspéctat, ut accípias corónam vitæ, allelúja.
+
+###### Oratio
+
+EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ Lúciæ Vírginis et Mártyris tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Octávæ:}
+
+**Ant.** Ait Dóminus Deus ad serpéntem: Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus: ipsa cónteret caput tuum, allelúja.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ ser-

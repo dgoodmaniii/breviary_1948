@@ -12968,3 +12968,46 @@ Narrábo nomen tuum frátribus meis: \* in médio ecclésiæ laudábo te.
 QUI timétis Dóminum, laudáte eum: \* univérsum semen Jacob, glorificáte eum.
 
 Tímeat eum omne semen Israël: \* quóniam non
+ sprevit, neque despéxit deprecatiónem páuperis:
+
+Nec avértit fáciem suam a me: \* et cum clamárem ad eum, exaudívit me.
+
+Apud te laus mea in ecclésia magna: \* vota mea reddam in conspéctu timéntium eum.
+
+Edent páuperes, et saturabúntur: et laudábunt Dóminum qui requírunt eum: \* vivent corda eórum in séculum séculi.
+
+Reminiscéntur et converténtur ad Dóminum \* univérsi fines terræ:
+
+Et adorábunt in conspéctu ejus \* univérsæ famíliæ géntium.
+
+Quóniam Dómini est regnum: \* et ipse dominábitur géntium.
+
+Manducavérunt et adoravérunt omnes pingues terræ: \* in conspéctu ejus cadent omnes qui descéndunt in terram.
+
+Et ánima mea illi vivet: \* et semen meum sérviet ipsi.
+
+Annuntiábitur Dómino generátio ventúra: \* et annuntiábunt cæli justítiam ejus pópulo qui nascétur, quem fecit Dóminus.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 98, qui in Laudibus locum non habuit.}
+
+### Psalmus 98
+
+DOMINUS regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte in

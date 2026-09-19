@@ -25296,3 +25296,28 @@ DE quibus autem scripsístis mihi: Bonum est hómini mulíerem non tángere: pro
 {RUBRIC: In die Octáva Epiphaníæ}
 
 ℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit:
+ \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum, et vox de cælo facta est. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+{RUBRIC: Nisi resuménda sint Responsória de Fería II. [REF: p. 555]}
+
+℟. Deus, in te sperávi, Dómine, non confúndar in ætérnum: in justítia tua líbera me, \* Et éripe me. ℣. Inclína ad me aurem tuam, et salva me. — Et.
+
+#### Lectio ii
+
+NOLÍTE fraudáre ínvicem, nisi forte ex consénsu ad tempus, ut vacétis oratióni: et íterum revertímini in idípsum, ne tentet vos sátanas propter incontinéntiam vestram. Hoc autem dico secúndum indulgéntiam, non secúndum impérium. Volo enim omnes vos esse sicut meípsum: sed unusquísque próprium donum habet ex Deo: álius quidem sic, álius vero sic. Dico autem non nuptis, et víduis: bonum est illis si sic pérmaneant, sicut et ego. Quod si non se cóntinent, nubant. Mélius est enim núbere, quam uri.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Repleátur os meum laude tua, ut hymnum dicam glóriæ tuæ, tota die magnitúdinem tuam: noli me projícere in témpore senectútis: \* Dum defécerit in me virtus mea, ne derelínquas me. ℣. Gaudébunt lábia mea cum cantávero tibi. — Dum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dum.}
+
+#### Lectio iii
+
+HIS autem, qui matrimónio juncti sunt, præcípio non ego, sed Dóminus, uxórem a viro non discédere: quod si discésserit, manére innúptam, aut viro suo reconciliári. Et vir uxórem non dimíttat. Nam céteris ego dico, non Dóminus: Si quis frater uxórem habet infidélem, et hæc conséntit habitáre cum illo, non dimíttat illam. Et si qua múlier fidélis habet virum infidélem, et hic conséntit habitáre cum illa, non dimíttat virum: sanctificátus est enim vir infidélis per mulíerem fidélem, et sanctificáta est múlier infidélis per virum fidélem: alió-

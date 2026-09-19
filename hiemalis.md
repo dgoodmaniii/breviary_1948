@@ -34080,4 +34080,39 @@ DOMINUS noster, quia ad virginitátem hortári grave esse videbátur, a necessit
 
 #### Lectio viii
 
-ID autem hoc fere modo confírmat: Cógita tecum, si aut a natúra talis esses, aut ab homínibus eam injúriam passus, quid fáceres, cum et ejúsmodi voluptáte caréres, et nullam, caréndo, mercédem consequeréris? Grátias ígitur nunc Deo agas, quod cum mercéde atque corónis idem sústines, quod illi sine corónis ac prǽmio tólerant. Immo vero non
+ID autem hoc fere modo confírmat: Cógita tecum, si aut a natúra talis esses, aut ab homínibus eam injúriam passus, quid fáceres, cum et ejúsmodi voluptáte caréres, et nullam, caréndo, mercédem consequeréris? Grátias ígitur nunc Deo agas, quod cum mercéde atque corónis idem sústines, quod illi sine corónis ac prǽmio tólerant. Immo vero non idem, sed multo lévius; tum quia spe erígeris et consciéntia recte facti, tum quia non ita ingéntibus concupiscéntiæ flúctibus jactáris.
+
+℟. Medicínam carnálem córpori meo numquam exhíbui, sed hábeo Dóminum Jesum Christum, \* Qui solo sermóne restáurat univérsa. ℣. Qui me dignátus est ab omni plaga curáre, et mamíllam meam meo péctori restitúere, ipsum ínvoco Deum vivum. — Qui solo. Glória. Qui solo.
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ, alias}
+
+#### Lectio ix
+
+CUM ergo de illis eunúchis díxerit, qui, nisi étiam ipsi mente se contíneant, frustra et inutíliter tales sunt, ac de illis, qui, ut regnum cælórum consequántur, se contínent; subjúnxit rursus, dicens: Qui potest cápere, cápiat; ut alacrióres effíciat eo ipso quod grave esse opus osténdit, et ineffábili benignitáte sua nóluit eam rem intra necessitátem legis conclúdere. Idque dicéndo, adhuc magis possíbilem esse demónstrat, ut voluntátis stúdium plus augeátur.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: 1} Quis es tu, \* qui venísti ad me curáre vúlnera mea? Ego sum Apóstolus Christi: nihil in me dúbites, fília.
+
+{RUBRIC: Ps. de Dominica 1 loco.} [44]
+
+{RUBRIC: 2} Medicínam carnálem \* córpori meo numquam exhíbui, sed hábeo Dóminum Jesum Christum, qui solo sermóne restáurat univérsa.
+
+{RUBRIC: 3} Grátias tibi ago, \* Dómine Jesu Christe, quia memor es mei, et misísti ad me Apóstolum tuum curáre vúlnera mea.
+
+{RUBRIC: 4} Benedíco te, \* Pater Dómini mei Jesu Christi, quia per Apóstolum tuum mamíllam meam meo péctori restituísti.
+
+{RUBRIC: 5} Qui me dignátus est \* ab omni plaga curáre, et mamíllam meam meo péctori restitúere, ipsum ínvoco Deum vivum.
+
+{RUBRIC: Capitulum} *Eccli. 51, 1-3*
+
+CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+#### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:

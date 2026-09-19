@@ -24449,3 +24449,42 @@ SEMETÍPSUM exinanívit formam servi accípiens, in similitúdinem hóminum fact
 {RUBRIC: Completorium de Dominica.}
 
 {RUBRIC: ¶ Si dies Octáva Epiphaníæ incíderit in Domínicam, nihil fit de Domínica in ipsa die Octáva, sed tantum in I Ve-
+speris diéi Octávæ fit Commemoratio pro II Vésperis Domínicæ, si die 12 Januárii, ut supra, celebrátum fúerit Offícium de Sancta Família.}
+
+## Eadem Dominica
+
+### infra Octavam Epiphaniæ
+
+{RUBRIC: ¶ Sicubi, a die 7 ad 12 Januárii inclusíve, simul occúrrerint Dominica et Festum duplex I classis, Offícium fit de ipso Festo, cum Commemoratióne Sanctæ Famíliæ, Domínicæ et Octávæ in utrísque Vésperis et ad Laudes ejúsdem Festi; atque ad Matutínum dícitur sequens}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio ix
+
+*Cap. 2, 42-52*
+
+CUM factus esset Jesus annórum duódecim, ascendéntibus illis Jerosólymam secúndum consuetúdinem diéi festi, consummatísque diébus, cum redírent, remánsit puer Jesus in Jerúsalem. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Expositio in Lucam lib. 2, num. 63-65}
+
+DUODÉCIMO anno, ut légimus, Domínicæ súmitur disputatiónis exórdium. Hic enim prædicándæ fídei evangelizántium númerus debebátur. Nec otióse ímmemor suórum secúndum carnem paréntum, qui secúndum carnem útique sapiéntia Dei implebátur et grátia, post tríduum reperítur in templo: ut esset indício quia post tríduum triumphális illíus passiónis, in sede cælésti et honóre divíno, fídei nostræ se resurrectúrus offérret qui mórtuus credebátur. Quid est quod me quærebátis? Duæ sunt in Christo generatiónes: una est patérna, matérna áltera; patérna illa divínior; matérna vero, quæ in nostrum labórem usúmque descéndit. Et venit Názareth, et erat súbditus illis. Quid enim magíster virtútis, nisi offícium pietátis implérat? Et mirámur si Patri defert qui súbditur Matri? Non útique infirmitátis, sed pietátis ista subjéctio est.
+
+Te Deum laudámus.
+
+## Die 7 Januarii
+
+# De II die infra Octavam Epiphaniæ
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 9, 1-16*
+
+VERITÁTEM dico in Christo, non méntior: testimónium mihi perhibénte consciéntia mea in Spíritu Sancto: quóniam tristítia mihi ma-

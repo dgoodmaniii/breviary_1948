@@ -19222,3 +19222,34 @@ cítur: Deleántur de libro vivéntium, et cum justis non scribántur. Qui bene 
 *Cap. 2, 15-20*
 
 IN illo témpore: Pastóres loquebántur ad ínvicem: Transeámus usque
+Béthlehem, et videámus hoc verbum, quod factum est, quod Dóminus osténdit nobis. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Lib. 2 in cap. Lucæ, circa médium}
+
+VIDÉTE Ecclésiæ surgéntis exórdium: Christus náscitur, et pastóres vigiláre cœpérunt; qui géntium greges, pécudum modo ante vivéntes, in caulam Dómini congregárent, ne quos spiritálium bestiárum per offúsas nóctium ténebras pateréntur incúrsus. Et bene pastóres vígilant, quos bonus pastor infórmat. Grex ígitur pópulus, nox séculum, pastóres sunt sacerdótes. Aut fortásse étiam ille sit pastor, cui dícitur: Esto vígilans, et confírma. Quia non solum epíscopos ad tuéndum gregem Dóminus ordinávit, sed étiam Angelos destinávit.
+
+℟. Verbum caro factum est, et habitávit in nobis: \* Et vídimus glóriam ejus, glóriam quasi Unigéniti a Patre, plenum grátiæ et veritátis. ℣. Omnia per ipsum facta sunt, et sine ipso factum est nihil. — Et. Glória Patri. Et.
+
+**Benedictio.** Verba sancti Evangélii dóceat nos Christus, Fílius Dei. ℟. Amen.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio ix
+
+*Cap. 1, 1-14*
+
+IN princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 1 in Joann., circa med.}
+
+NE vile áliquid putáres, quale consuevísti cogitáre, cum verba humána soléres audíre, audi quid cógites: Deus erat Verbum. Exeat nunc néscio quis infidélis Ariánus, et dicat quia Verbum Dei factum est. Quómodo potest fíeri, ut Verbum Dei factum sit, quando Deus per Verbum fecit ómnia? Si et Verbum Dei ipsum factum est; per quod áliud verbum factum est? Si hoc dicis, quia hoc est verbum Verbi, per quod factum est illud; ipsum dico ego únicum Fílium Dei. Si autem non dicis verbum Verbi, concéde non factum, per quod facta sunt ómnia. Non enim per seípsum fíeri pótuit, per quod facta sunt ómnia. Crede ergo Evangelístæ.
+
+{RUBRIC: Deinde dícitur Hymnus} Te Deum. *8*
+
+{RUBRIC: quo finíto dícitur}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.

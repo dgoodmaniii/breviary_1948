@@ -7888,3 +7888,55 @@ Et homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis ins
 HÆC via illórum scándalum ipsis: \* et póstea in ore suo complacébunt.
 
 Sicut oves in inférno pósiti sunt: \* mors depáscet eos.
+
+Et dominabúntur eórum justi in matutíno: \* et auxílium eórum veteráscet in inférno a glória eórum.
+
+Verúmtamen Deus rédimet ánimam meam de manu ínferi, \* cum accéperit me.
+
+Ne timúeris, cum dives factus fúerit homo: \* et cum multiplicáta fúerit glória domus ejus.
+
+Quóniam cum interíerit, non sumet ómnia: \* neque descéndet cum eo glória ejus.
+
+Quia ánima ejus in vita ipsíus benedicétur: \* confitébitur tibi cum beneféceris ei.
+
+Introíbit usque in progénies patrum suórum: \* et usque in ætérnum non vidébit lumen.
+
+Homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis insipiéntibus, et símilis factus est illis.
+
+**Ant.** Ne timúeris: cum dives non descéndet in sepúlcrum glória ejus.
+
+#### In Festis novem Lectionum:
+
+℣. Deus rédimet ánimam meam de manu ínferi. ℟. Cum accéperit me.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+#### In III Nocturno
+
+**I**
+
+*In Feriis per Annum, extra hebdómadas Septuagésimæ, Sexagésimæ et Quinquagésimæ ac Vigílias commúnes occurréntibus, in Vigília Nativitátis Dómini, et in Festis quólibet anni témpore celebrándis, cum ad Laudes non dícitur Ps. 50 Miserére.*
+
+**Ant.** Deus deórum, \* † Dóminus locútus est. ‡
+
+### Psalmus 49, i
+
+DEUS deórum, † Dóminus locútus est: \* ‡ et vocávit terram.
+
+A solis ortu usque ad occásum: \* ex Sion spécies decóris ejus.
+
+Deus maniféste véniet: \* Deus noster et non silébit.
+
+Ignis in conspéctu ejus exardéscet: \* et in circúitu ejus tempéstas válida.
+
+Advocábit cælum desúrsum: \* et terram discérnere pópulum suum.
+
+Congregáte illi sanctos ejus: \* qui órdinant testaméntum ejus super sacrifícia.
+
+Et annuntiábunt cæli justítiam ejus: \* quóniam Deus judex est.
+
+Audi, pópulus meus, et loquar: Israël, et testificábor tibi: \* Deus, Deus tuus ego sum.
+
+Non in sacrifíciis tuis árguam te: \* holocáusta au-

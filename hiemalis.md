@@ -17045,3 +17045,36 @@ DÓMINUS exercítuum præcépit milítiæ belli, veniéntibus de terra procul a 
 #### Lectio iii
 
 ECCE dies Dómini véniet, crudélis, et indignatiónis plenus, et iræ, furorísque ad ponéndam terram in solitúdinem, et peccatóres ejus conteréndos de ea. Quóniam stellæ cæli, et splendor eárum non expándent lumen suum: obtenebrátus est sol in ortu suo, et luna non splen-
+débit in lúmine suo. Et visitábo super orbis mala, et contra ímpios iniquitátem eórum, et quiéscere fáciam supérbiam infidélium, et arrogántiam fórtium humiliábo.
+
+℟. Aliéni non transíbunt per Jerúsalem ámplius: \* Nam in illa die stillábunt montes dulcédinem, et colles fluent lac et mel, dicit Dóminus. ℣. Deus a Líbano véniet, et Sanctus de monte umbróso et condénso. — Nam. Glória Patri. Nam.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** De cælo véniet \* Dominátor Dóminus, et in manu ejus honor et impérium.
+
+#### Oratio
+
+EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus advéntum purificátis tibi méntibus servíre mereámur: Qui tecum.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Ecce véniet Rex \* Dóminus terræ, et ipse áuferet jugum captivitátis nostræ.
+
+---
+
+### Feria Tertia
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 14, 1-6*
+
+PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur. Miserébitur enim Dóminus Jacob, et éliget adhuc de Israël, et requiéscere eos fáciet super humum suam: adjungétur ádvena ad eos, et adhærébit dómui Jacob. Et tenébunt eos pópuli, et addúcent eos in locum suum: et possidébit eos domus Israël super terram Dómini in servos et ancíllas: et erunt capiéntes eos, qui se céperant, et subjícient exactóres suos.
+
+℟. Montes Israël, ramos vestros expándite, et floréte, et fructus fácite: \* Prope est ut véniat dies Dómini. ℣. Roráte, cæli, désuper, et nubes pluant justum: aperiátur terra, et gérminet Salvatórem. — Prope.
+
+#### Lectio ii
+
+ET erit in die illa, cum réquiem déderit tibi Deus a labóre tuo, et a concussióne tua, et a servitúte dura, qua ante servísti: sumes parábolam istam contra regem Babylónis, et dices: Quómodo cessávit exáctor, quiévit tribútum? Contrívit Dóminus báculum impiórum,

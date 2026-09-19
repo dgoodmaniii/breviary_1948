@@ -21973,3 +21973,49 @@ Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es supe
 Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
 
 Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Secúndum nomen tuum, Deus, sic et laus tua in fines terræ: justítia plena est déxtera tua.
+
+**Ant.** Cantáte Deo, \* psalmum dícite nómini ejus: iter fácite ei, qui ascéndit super occásum, Dóminus nomen illi.
+
+#### Psalmus 97
+
+CANTÁTE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Cantáte Deo, psalmum dícite nómini ejus: iter fácite ei, qui ascéndit super occásum, Dóminus nomen illi.
+
+℣. Afférte Dómino glóriam et honórem. ℟. Afférte Dómino glóriam nómini ejus.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 2, 21*
+
+IN illo témpore: Postquam consummáti sunt dies octo, ut circumciderétur Puer, vocátum est nomen ejus Jesus. Et réliqua.
+
+{RUBRIC: Homilía sancti Bernárdi Abbátis}
+
+{RUBRIC: Sermo 1 de Circumcisióne}
+
+MAGNUM et mirábile sacraméntum! Circumcíditur Puer, et vocátur Jesus. Quid sibi vult ista connéxio? Circumcísio nempe magis salvándi, quam Salvatóris esse vidétur; et Salvatórem circumcídere pótius decet, quam circumcídi. Sed agnósce mediatórem Dei et hóminum, qui ab ipso nativitátis suæ exórdio

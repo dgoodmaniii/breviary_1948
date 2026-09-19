@@ -30808,7 +30808,9 @@ DEUS, qui nos beáti Pauli Confessóris tui ánnua solemnitáte lætíficas: con
 
 **Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
 
-℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.**Oratio** C 1
+℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.
+
+**Oratio** C 1
 
 INTERCÉSSIO nos, quǽsumus, Dómine, beáti Mauri Abbátis comméndet: ut quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
 
@@ -30868,7 +30870,9 @@ DEUS, qui nos beáti Pauli Confessóris tui ánnua solemnitáte lætíficas: con
 
 #### Oratio
 
-INTERCÉSSIO nos, quǽsumus, Dómine, beáti Mauri Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.### In II Vesperis
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Mauri Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+### In II Vesperis
 
 ℣. Justum dedúxit.
 
@@ -30904,7 +30908,9 @@ MARCÉLLUS Románus, a Constántio et Galério usque ad Maxéntium pontificátum
 
 #### Lectio v
 
-QUI cum insánas hóminis voces neglígeret, misit eum in catábulum, ut bestiárum, quæ públice alebántur, curam sustinéret: ubi Marcéllus assíduis jejúniis et précibus novem menses vitam duxit, paróchias, quas præsens non póterat, vísitans per epístolas. Inde eréptus a cléricis, hospítio recípitur a beáta Lucína, in cujus ǽdibus ecclésiam dedicávit, quæ hódie título sancti Marcélli nominátur: in qua et Christiáni orábant, et ipse beátus Marcéllus prædicábat.℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+QUI cum insánas hóminis voces neglígeret, misit eum in catábulum, ut bestiárum, quæ públice alebántur, curam sustinéret: ubi Marcéllus assíduis jejúniis et précibus novem menses vitam duxit, paróchias, quas præsens non póterat, vísitans per epístolas. Inde eréptus a cléricis, hospítio recípitur a beáta Lucína, in cujus ǽdibus ecclésiam dedicávit, quæ hódie título sancti Marcélli nominátur: in qua et Christiáni orábant, et ipse beátus Marcéllus prædicábat.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
 
 #### Lectio vi
 
@@ -30962,7 +30968,9 @@ INTERCÉSSIO nos, quǽsumus, Dómine, beáti Antónii Abbátis comméndet: ut, q
 
 #### Lectio iv
 
-ANTÓNIUS Ægýptius, nobílibus et christiánis paréntibus natus, quibus adoléscens orbátus est, cum ingréssus ecclésiam ex Evangélio audivísset: Si vis perféctus esse, vade, et vende ómnia quæ habes, et da paupéribus; tamquam ea sibi dicta essent, sic Christo Dómino obtemperándum existimávit. Itaque, véndita re familiári, pecúniam omnem paupéribus distríbuit. Quibus solútus impediméntis, cæléstis vitæ genus in terris cólere instítuit. Sed cum in periculósum illud certámen descénderet, ad fídei præsídium, quo erat armátus, adhibéndum sibi putávit subsídium relíquárum virtútum; quarum tanto stúdio incénsus fuit, ut, quemcúmque vidéret áliqua virtútis laude excelléntem, illum imitári studéret.℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+ANTÓNIUS Ægýptius, nobílibus et christiánis paréntibus natus, quibus adoléscens orbátus est, cum ingréssus ecclésiam ex Evangélio audivísset: Si vis perféctus esse, vade, et vende ómnia quæ habes, et da paupéribus; tamquam ea sibi dicta essent, sic Christo Dómino obtemperándum existimávit. Itaque, véndita re familiári, pecúniam omnem paupéribus distríbuit. Quibus solútus impediméntis, cæléstis vitæ genus in terris cólere instítuit. Sed cum in periculósum illud certámen descénderet, ad fídei præsídium, quo erat armátus, adhibéndum sibi putávit subsídium relíquárum virtútum; quarum tanto stúdio incénsus fuit, ut, quemcúmque vidéret áliqua virtútis laude excelléntem, illum imitári studéret.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
 
 #### Lectio v
 
@@ -31046,7 +31054,9 @@ DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti
 
 **Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
 
-℣. Justum dedúxit.**Oratio** C 4
+℣. Justum dedúxit.
+
+**Oratio** C 4
 
 INTERCÉSSIO nos, quǽsumus, Dómine, beáti Antónii Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
 
@@ -31202,7 +31212,9 @@ DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti
 
 #### Oratio
 
-DA, quǽsumus, omnípotens Deus: ut, qui beátæ Priscæ Vírginis et Mártyris tuæ natalítia cólimus, et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.### In II Vesperis
+DA, quǽsumus, omnípotens Deus: ut, qui beátæ Priscæ Vírginis et Mártyris tuæ natalítia cólimus, et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.
+
+### In II Vesperis
 
 #### Hymnus
 
@@ -31288,7 +31300,9 @@ MARIUS Persa, nóbili loco natus, cum Martha cónjuge pari nobilitáte, et duób
 
 ℣. Lætámini in Dómino.
 
-**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.#### Oratio
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+#### Oratio
 
 INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beatórum Mártyrum tuórum Fabiáni et Sebastiáni intercéssio gloriósa nos prótegat. Per Dóminum.
 
@@ -31304,7 +31318,7 @@ FABIÁNUS Románus, a Maximíno usque ad Décium regens Ecclésiam, septem diác
 
 SEBASTIÁNUS ex patre Narbonénsi, matre Mediolanénsi natus, ob géneris nobilitátem et virtútem Diocletiáno carus fuit. Dux primæ cohórtis, Christiános, quorum fidem clam colébat, ópera et facultátibus adjuvábat; et qui ex eis tormentórum vim reformidáre videbántur, cohortatióne sic confirmábat, ut pro Jesu Christo multi se ultro tortóribus offérrent. In illis fuére Marcus et Marcelliánus fratres, qui Romæ in custódia erant apud Nicóstratum: cujus uxor Zoe vocem, quam amíserat, Sebastiáni oratióne recuperávit. Quibus Diocletiáno delátis, Sebastiánum accérsit, et veheméntius objurgátum ómnibus artifíciis a Christi fide conátur avértere. Sed cum nihil nec pollicéndo, nec terréndo profíceret, ad palum alligátum sagíttis confígi jubet.
 
-℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nó-mine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
 
 #### Lectio vi
 
@@ -31432,7 +31446,9 @@ Spíritus semper, Deus unus, omni
 
 ### In I Nocturno
 
-**Ant.** Discéde a me, \* pábulum mortis, quia jam ab álio amatóre prævénta sum.###### Psalmus 1
+**Ant.** Discéde a me, \* pábulum mortis, quia jam ab álio amatóre prævénta sum.
+
+###### Psalmus 1
 
 BEÁTUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
 
@@ -31514,7 +31530,9 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 
 CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
 
-℟. Diem festum sacratíssimæ Vírginis celebrémus, quáliter passa sit beáta Agnes ad memóriam revocémus: tertiodécimo ætátis suæ anno mortem pérdidit, et vitam invénit: \* Quia solum vitæ diléxit auctórem. ℣. Infántia quidem computabátur in annis, sed erat senéctus mentis imménsa. — Quia.#### Lectio ii
+℟. Diem festum sacratíssimæ Vírginis celebrémus, quáliter passa sit beáta Agnes ad memóriam revocémus: tertiodécimo ætátis suæ anno mortem pérdidit, et vitam invénit: \* Quia solum vitæ diléxit auctórem. ℣. Infántia quidem computabátur in annis, sed erat senéctus mentis imménsa. — Quia.
+
+#### Lectio ii
 
 LAUDÁBIT usque ad mortem ánima mea Dóminum, et vita mea appropínquans erat in inférno deórsum. Circumdedérunt me úndique, et non erat qui adjuváret. Respíciens eram ad adjutórium hóminum, et non erat. Memoráta sum misericórdiæ tuæ, Dómine, et operatiónis tuæ, quæ a sǽculo sunt: quóniam éruis sustinéntes te, Dómine, et líberas eos de mánibus géntium.
 
@@ -31712,7 +31730,9 @@ Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
 
 Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.
 
-**Ant.** Christus circúmdedit me vernántibus atque coruscántibus gemmis pretiósis.**Ant.** Ipsi sum desponsáta, \* cui Angeli sérviunt, cujus pulchritúdinem sol et luna mirántur.
+**Ant.** Christus circúmdedit me vernántibus atque coruscántibus gemmis pretiósis.
+
+**Ant.** Ipsi sum desponsáta, \* cui Angeli sérviunt, cujus pulchritúdinem sol et luna mirántur.
 
 ###### Psalmus 45
 
@@ -31818,7 +31838,9 @@ Amen.
 
 ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
 
-**Ad Bened. Ant.** Ecce quod concupívi, \* jam vídeo: quod sperávi, jam téneo: ipsi sum juncta in cælis, quem in terris pósita, tota devotióne diléxi.#### Oratio
+**Ad Bened. Ant.** Ecce quod concupívi, \* jam vídeo: quod sperávi, jam téneo: ipsi sum juncta in cælis, quem in terris pósita, tota devotióne diléxi.
+
+#### Oratio
 
 OMNÍPOTENS sempitérne Deus, qui infírma mundi éligis, ut fórtia quæque confúndas: concéde propítius; ut, qui beátæ Agnétis Vírginis et Mártyris tuæ solémnia cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
 
@@ -31894,4 +31916,18 @@ VINCÉNTIUS, Oscæ in Hispánia citerióre natus, a prima ætáte stúdiis dédi
 
 #### Lectio v
 
-VERUM, illo in tenebricósa inclúso custódia, claríssimus splendor obórtus totum cárcerem illustrávit; quæ lux cum
+VERUM, illo in tenebricósa inclúso custódia, claríssimus splendor obórtus totum cárcerem illustrávit; quæ lux cumsumma admiratióne omnes, qui áderant, affecísset, res a custóde cárceris ad Daciánum defértur. Qui edúctum in molli cúlcitra cóllocat; et quem cruciátibus in suam senténtiam tráhere non póterat, delíciis perdúcere conátur. Sed invíctus Vincéntii ánimus, Jesu Christi fide speque munítus, vicit ómnia; et ignis, ferri, tortórum immanitáte superáta, victor ad cæléstem martýrii corónam advolávit, undécimo Kaléndas Februárii. Cujus corpus, cum projéctum esset inhumátum, corvus et a volúcribus et a lupo únguibus, rostro, alis mirabíliter deféndit. Qua re cógnita, Daciánus illud in altum mare demérgi jubet: sed inde étiam divínitus ejéctum ad littus, Christiáni sepéliunt.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+#### Lectio vi
+
+ANASTÁSIUS Persa, mónachus, Heráclio imperatóre, cum sanctam Jerosolymórum terram visitásset, ad Cæsaréam Palæstínæ pro Christi religióne víncula et vérbera constánter perpéssus est. Mox a Persis ob eámdem causam váriis cruciátibus afféctus, a rege Chósroa una cum septuagínta áliis Christiánis, secúri percútitur. Cujus relíquiæ primum Jerosólymam ad monastérium, in quo monásticam vitam proféssus erat, deínde Romam delátæ, collocátæ sunt in monastério ad Aquas Sálvias.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum: \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+VINCÉNTIUS, Oscæ in Hispánia citerióre natus, a prima ætáte stúdiis déditus, sacras lítteras a Valério Cæsaraugustáno epíscopo dídicit; cujus étiam partes suscépit prædicándi Evangélium, quod epíscopus, propter linguæ impediméntum, prædicatiónis offício fungi non

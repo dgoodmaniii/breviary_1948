@@ -33621,4 +33621,46 @@ ET placébit Dómino sacrifícium Juda et Jerúsalem sicut dies sǽculi et sicut
 
 ℣. Respónsum accépit Símeon a Spíritu Sancto. ℟. Non visúrum se mortem, nisi vidéret Christum Dómini.
 
-**Ad Magnif. Ant.** Hódie \* beáta Virgo María púerum Jesum præsentávit in templo, et Símeon replétus Spíritu Sancto accépit eum
+**Ad Magnif. Ant.** Hódie \* beáta Virgo María púerum Jesum præsentávit in templo, et Símeon replétus Spíritu Sancto accépit eum in ulnas suas, et benedíxit Deum in ætérnum.
+
+{RUBRIC: Et non fit Commemoratio sequentis.}
+
+## Die 3 Februarii
+
+### S. Blasii
+
+{RUBRIC: Episcopi et Mártyris}
+
+{RUBRIC: Simplex} [29]
+
+#### Lectio iii
+
+BLÁSIUS, Sebáste in Arménia cum virtútum laude floréret, ejúsdem civitátis epíscopus elígitur. Qui, quo témpore Diocletiánus insatiábilem crudelitátem in Christiános exercébat, se in spelúncam ábdidit montis Argǽi; ubi támdiu látuit, dum ab Agricolái prǽsidis milítibus venántibus deprehénsus et ad prǽsidem ductus, ejus jussu conjéctus est in víncula. Quo in loco multos ægrótos sanávit, qui ad Blásium, ejus fama sanctitátis addúcti, deferebántur. In illis puer fuit, qui, desperáta a médicis salúte, transvérsa spina fáucibus inhærénte, ánimam agébat. Prodúctus autem ad prǽsidem Blásius semel et íterum, cum nec blandítiis nec minis addúci posset, ut diis sacrificáret, primum virgis cæsus, deínde in equúleo férreis pectínibus dilaniátus est; postrémo, dempto cápite, illústre fídei testimónium Christo Dómino dedit, tértio Nonas Februárii.
+
+{RUBRIC: Te Deum laudámus.}
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio** C 2
+
+DEUS, qui nos beáti Blásii Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti.}
+
+## Die 4 Februarii
+
+### S. Andreæ Corsini
+
+{RUBRIC: Episcopi et Confessóris}
+
+{RUBRIC: Duplex} (m. t. v.) [69]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+#### Oratio
+
+DEUS, qui in Ecclésia tua, nova semper instáuras exémpla virtútum: da pópulo tuo beáti Andréæ Confessóris tui atque Pontíficis ita sequi

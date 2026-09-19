@@ -16350,3 +16350,18 @@ TERRA vestra desérta, civitátes vestræ succénsæ igni: regiónem vestram cor
 #### Lectio iv
 
 CUM de advéntu regni Dei, et de mundi fine ac témporum, discípulos suos Sal-
+vátor instrúeret, totámque Ecclésiam suam in Apóstolis erudíret: Cavéte, inquit, ne forte gravéntur corda vestra in crápula, et ebrietáte, et cogitatiónibus sæculáribus. Quod útique præcéptum, dilectíssimi, ad nos speciálius pertinére cognóscimus, quibus denuntiátus dies, etiámsi est occúltus, non dubitátur esse vicínus.
+
+℟. Ave, María, grátia plena, Dóminus tecum: \* Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi: quod enim ex te nascétur Sanctum, vocábitur Fílius Dei. ℣. Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Ángelus, dixit ei. — Spíritus.
+
+#### Lectio v
+
+AD cujus advéntum omnem hóminem convénit præparári: ne quem aut ventri déditum, aut curis sæculáribus invéniat implicátum. Quotidiáno enim, dilectíssimi, experiménto probátur, potus satietáte áciem mentis obtúndi, et cibórum nimietáte vigórem cordis hebetári; ita ut delectátio edéndi étiam córporum contrária sit salúti, nisi rátio temperántiæ obsístat illécebræ, et quod futúrum est óneri, subtrahat voluptáti.
+
+℟. Salvatórem exspectámus Dóminum Jesum Christum, \* Qui reformábit corpus humilitátis nostræ configurátum córpori claritátis suæ. ℣. Sóbrie, et juste, et pie vivámus in hoc século, exspectántes beátam spem, et advéntum glóriæ magni Dei. — Qui.
+
+#### Lectio vi
+
+QUAMVIS enim sine ánima nihil caro desíderet, et inde accípiat sensus, unde sumit et motus: ejúsdem tamen est ánimæ, quædam sibi súbditæ negáre substántiæ, et interióri judício ab inconveniéntibus exterióra frenáre: ut a corpóreis cupiditátibus sæpius líbera, in aula mentis possit divínæ vacáre sapiéntiæ: ubi omni strépitu terrenárum siléntе curárum, in meditatiónibus sanctis, et in delíciis lætétur ætérnis.
+
+℟. Obsecro, Dómine, mitte quem missúrus es: vide afflictiónem pópuli tui: \* Sicut locútus es, veni, \* Et líbera nos. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Sicut. Glória Patri. Et líbera nos.

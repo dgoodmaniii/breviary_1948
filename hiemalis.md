@@ -7342,3 +7342,70 @@ Tunc replétum est gáudio os nostrum: \* et lingua nostra exsultatióne.
 Tunc dicent inter gentes: \* Magnificávit Dóminus fácere cum eis.
 
 Magnificávit Dóminus fácere nobíscum: \* facti sumus lætántes.
+
+Convérte, Dómine, captivitátem nostram, \* sicut torrens in Austro.
+
+Qui séminant in lácrimis, \* in exsultatióne metent.
+
+Eúntes ibant et flebant, \* mitténtes sémina sua.
+
+Veniéntes autem vénient cum exsultatióne, \* portántes manípulos suos.
+
+**Ant.** Magnificávit Dóminus fácere nobíscum: facti sumus lætántes.
+
+**Ant.** Dóminus ædíficet \* nobis domum, et custódiat civitátem.
+
+### Psalmus 126
+
+NISI Dóminus ædificáverit domum, \* in vanum laboravérunt qui ædíficant eam.
+
+Nisi Dóminus custodíerit civitátem, \* frustra vígilat qui custódit eam.
+
+Vanum est vobis ante lucem súrgere: \* súrgite postquam sedéritis, qui manducátis panem dolóris.
+
+Cum déderit diléctis suis somnum: \* ecce heréditas Dómini fílii: merces, fructus ventris.
+
+Sicut sagíttæ in manu poténtis: \* ita fílii excussórum.
+
+Beátus vir, qui implévit desidérium suum ex ipsis: \* non confundétur cum loquétur inimícis suis in porta.
+
+**Ant.** Dóminus ædíficet nobis domum, et custódiat civitátem.
+
+#### In Officio feriali Adventus
+
+**Capitulum** *Gen. 49, 10*
+
+NON auferétur sceptrum de Juda, et dux de fémore ejus, donec véniat qui mitténdus est: et ipse erit exspectátio géntium.
+
+#### Hymnus
+
+CREATOR alme síderum,
+Ætérna lux credéntium,
+Jesu, Redémptor ómnium,
+Inténde votis súpplicum.
+
+Qui dæmonis ne fráudibus
+Períret orbis, ímpetu
+Amóris actus, lánguidi
+Mundi medéla factus es.
+
+Commúne qui mundi nefas
+Ut expiáres, ad Crucem
+E Vírginis sacrário
+Intácta prodis víctima.
+
+Cujus potéstas glóriæ,
+Noménque cum primum sonat,
+Et Cælites et ínferi
+Treménte curvántur genu.
+
+Te deprecámur última
+Magnum diéi Júdicem,
+Armis supérnæ grátiæ
+Defénde nos ab hóstibus.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula.
+Amen.

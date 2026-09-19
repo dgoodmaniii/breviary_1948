@@ -27371,3 +27371,21 @@ NOE vero cum quingentórum esset annórum, génuit Sem, Cham, et Japheth. Cumque
 VIDENS autem Deus quod multa malítia hóminum esset in terra, et cuncta cogitátio cordis inténta esset ad malum omni témpore, pœnítuit eum quod hóminem fecísset in terra. Et tactus dolóre cordis intrínsecus, Delébo, inquit, hóminem, quem creávi, a fácie terræ, ab hómine usque ad animántia, a réptili usque ad vólucres cæli. Pœnítet enim me fecísse eos. Noë vero invénit grátiam coram Dómino.
 
 ℟. Noë, vir justus atque perféctus, cum Deo ambulávit: \* Et fecit ómnia quæcúmque præcépit ei Deus. ℣. Fecit sibi arcam, ut salvarétur univérsum semen. — Et.
+
+#### Lectio iii
+
+HÆ sunt generatiónes Noë: Noë vir justus atque perféctus fuit in generatiónibus suis, cum Deo ambulávit. Et génuit tres fílios, Sem, Cham et Japheth. Corrúpta est autem terra coram Deo, et repléta est iniquitáte. Cumque vidísset Deus terram esse corrúptam, (omnis quippe caro corrúperat viam suam super terram) dixit ad Noë: Finis univérsæ carnis venit coram me: repléta est terra iniquitáte a fácie eórum, et ego dispérdam eos cum terra. Fac tibi arcam de lignis lævigátis: mansiúnculas in arca fácies, et bitúmine línies intrínsecus et extrínsecus. Et sic fácies eam: Trecentórum cubitórum erit longitúdo arcæ, quinquagínta cubitórum latitúdo, et trigínta cubitórum altitúdo illíus.
+
+℟. Quadragínta dies et noctes apérti sunt cæli, et ex omni carne habénte spíritum vitæ ingréssa sunt in arcam: \* Et clausit a foris óstium Dóminus. ℣. In artículo diéi illíus ingréssus est Noë in arcam et fílii ejus, et uxor illíus et uxóres filiórum ejus. — Et. Glória Patri. Et clausit a foris.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Noë et arca}
+
+{RUBRIC: Cap. 4 circa médium}
+
+#### Lectio iv
+
+HABES, quia irátus Dóminus est: quóniam quamvis cogitáret, hoc est scíret, quia homo pósitus in terræ regióne, carnem portans, sine peccáto esse non possit, (terra enim velut quidam tentatiónum locus est, caróque corruptélæ illécebra) tamen cum habérent mentem ratiónis capácem, virtutémque ánimæ infúsam córpori, sine consideratióne áliqua in lapsum ruérunt, ex quo revocáre se nollent. Neque enim Deus cógitat sicut hómines, ut áliqua ei nova succédat senténtia, neque iráscitur quasi mutábilis: sed ídeo hæc legúntur, ut exprimátur peccatórum nostrórum acérbitas, quæ divínam merúerit offénsam: tamquam eoúsque increvérit culpa, ut étiam Deus, qui naturáliter non movétur aut ira, aut ódio, aut passióne ulla, provocátus videátur ad iracúndiam.
+
+℟. Ædificávit Noë altáre Dómino, ófferens super illud holocáustum: odoratúsque est Dóminus odó-

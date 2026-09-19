@@ -9191,3 +9191,47 @@ Exsúrge, glória mea, exsúrge, psaltérium et cíthara: \* exsúrgam dilúculo
 Confitébor tibi in pópulis, Dómine: \* et psalmum dicam tibi in géntibus:
 
 Quóniam magnificáta est usque ad cælos misericórdia tua, \* et usque ad nubes véritas tua.
+
+### Psalmus 57
+
+SI vere útique justítiam loquímini: \* recta judicáte, fílii hóminum.
+
+Etenim in corde iniquitátes operámini: \* in terra injustítias manus vestræ concínnant.
+
+Alienáti sunt peccatóres a vulva, erravérunt ab útero: \* locúti sunt falsa.
+
+Furor illis secúndum similitúdinem serpéntis: \* sicut áspidis surdæ, et obturántis aures suas.
+
+Quæ non exáudiet vocem incantántium: \* et venéfici incantántis sapiénter.
+
+Deus cónteret dentes eórum in ore ipsórum: \* molas leónum confrínget Dóminus.
+
+Ad níhilum devénient tamquam aqua decúrrens: \* inténdit arcum suum donec infirméntur.
+
+Sicut cera, quæ fluit, auferéntur: \* supercécidit ignis, et non vidérunt solem.
+
+Priúsquam intellígerent spinæ vestræ rhamnum: \* sicut vivéntes, sic in ira absórbet eos.
+
+Lætábitur justus cum víderit vindíctam: \* manus suas lavábit in sánguine peccatóris.
+
+Et dicet homo: Si útique est fructus justo: \* útique est Deus júdicans eos in terra.
+
+**Per Annum: Ant.** In Deo sperávi, non timébo quid fáciat mihi homo.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria IV post Dominicam I:} **Ant.** Ecce, Dóminus véniet, et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
+
+{RUBRIC: Fer. IV ante Vig. Nat. Dom.:} **Ant.** Propter Sion non tacébo, donec egrediátur ut splendor justus ejus.
+
+**Capitulum** *Jer. 23, 6*
+
+IN diébus illis salvábitur Juda, et Israël habitábit confidénter: et hoc est nomen, quod vocábunt eum, Dóminus justus noster.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed

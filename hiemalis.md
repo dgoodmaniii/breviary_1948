@@ -15379,3 +15379,47 @@ IN médio ecclésiæ apéruit os ejus, et implévit illum Dóminus spíritu sapi
 ##### Pro Oct. Ss. Innocentium
 
 HI empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est invéntum mendácium: \* sine mácula enim sunt ante thronum Dei.
+
+#### E Proprio Sanctorum
+
+##### Pro Conceptione immac. B. Mariæ V.
+
+SIGNUM magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, et in cápite ejus coróna stellárum duódecim.
+
+##### Pro S. Agnete et S. Agatha
+
+LAUDÁBIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+#### E Communi Sanctorum
+
+##### Pro Apostolis
+
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contuméliam pati.
+
+##### Pro Martyre
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+##### Pro pluribus Martyribus
+
+FULGÉBUNT justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt natiónes, et dominabúntur pópulis: et regnábit Dóminus illórum in perpétuum.
+
+##### Pro Conf. Pont.
+
+FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+##### Pro Conf. non Pont.
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum: honestávit illum in labóribus, et complévit labóres illíus.
+
+##### Pro Virgine Martyre
+
+DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+##### Pro Virgine non Martyre
+
+O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam apud Deum nota est, et apud hómines.
+
+##### Pro Martyre tantum
+
+LAUDÁBIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.

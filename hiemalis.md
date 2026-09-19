@@ -20152,3 +20152,33 @@ HÓDIE, fratres caríssimi, natálem illórum infántium cólimus, quos ab Heró
 #### Lectio v
 
 BEÁTA es, o Béthlehem terra Juda, quæ Heródis regis immanitátem in
+puerórum exstinctióne perpéssa es: quæ sub uno témpore candidátam plebem imbéllis infántiæ Deo offérre meruísti. Digne tamen natálem illórum cólimus, quos beátius ætérnæ vitæ mundus édidit, quam quos maternórum víscerum partus effúdit. Síquidem ante vitæ perpétuæ adépti sunt dignitátem, quam usúram præséntis accéperint.
+
+℟. Isti sunt Sancti, qui passi sunt propter te, Dómine: víndica eos, \* Quia clamant ad te quotídie. ℣. Víndica, Dómine, sánguinem Sanctórum tuórum, qui effúsus est. — Quia.
+
+#### Lectio vi
+
+ALIÓRUM quidem pretiósa mors Mártyrum laudem in confessióne proméruit, horum in consummatióne complácuit; quia incipiéntis vitæ primórdiis, ipse eis occásus inítium glóriæ dedit, qui præséntis términum impósuit. Quos Heródis impíetas lactántes matrum ubéribus abstráxit; qui jure dicúntur Mártyrum flores, quos in médio frígore infidelitátis exórtos, velut primas erumpéntes Ecclésiæ gemmas, quǽdam persecutiónis pruína decóxit.
+
+℟. Isti sunt, qui non inquinavérunt vestiménta
+sua: \* Ambulábunt mecum in albis, quia digni sunt. ℣. Hi sunt, qui cum muliéribus non sunt coinquináti: vírgines enim sunt. — Ambulábunt. Glória Patri. Ambulábunt.
+
+### In III Nocturno
+
+{RUBRIC: Loco 2 Antiphónæ Tradidérunt dícitur}
+
+**Ant.** Isti sunt qui venérunt \* ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 13-18*
+
+IN illo témpore: Ángelus Dómini appáruit in somnis Joseph, dicens: Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum, et esto ibi usque dum dicam tibi. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 1 Comment. in cap. 2 Matth. et apud Gloss. ord.}
+
+QUANDO tulit Púerum et Matrem ejus, ut in Ægýptum tránseat, nocte tulit, et in ténebris: quia noctem ignorántiæ his, a quibus ipse recéssit, relíquit incrédulis. Quando vero revértitur in Judǽam, nec nox, nec ténebræ ponúntur in Evangélio: quia in fine mundi

@@ -27760,3 +27760,59 @@ VIXIT autem Heber trigínta quátuor annis, et génuit Phaleg. Et vixit Heber, p
 #### Lectio iii
 
 VIXIT autem Nachor vigínti novem annis, et génuit Thare. Vixítque Nachor, postquam génuit Thare, centum decem et novem annis: et génuit fílios et fílias. Vixítque Thare septuagínta annis, et génuit Abram, et Nachor, et Aran. Hæ sunt autem generatiónes Thare: Thare génuit Abram, Nachor, et Aran. Porro Aran génuit Lot. Mortuúsque est Aran ante Thare patrem suum, in terra nativitátis suæ in Ur Chaldæórum. Duxérunt autem Abram et Nachor uxóres: nomen uxóris Abram, Sárai: et nomen uxóris Nachor, Melcha, fília Aran patris Melchæ et patris Jeschæ. Erat autem Sárai
+stérilis, nec habébat líberos.
+
+℟. In artículo diéi illíus ingréssus est Noë in arcam et fílii ejus, \* Uxor illíus et uxóres filiórum ejus. ℣. Deléta sunt univérsa de terra, remánsit autem solus Noë, et qui cum eo erant in arca. — Uxor. Glória Patri. Uxor.
+
+---
+
+## Sabbato ante Quinquagesimam
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sábbato.} [REF: p. 312]
+
+**Capitulum** *1 Cor. 13, 1*
+
+FRATRES: Si linguis hóminum loquar et Angelórum, caritátem autem non hábeam, factus sum velut æs sonans, aut cýmbalum tínniens.
+
+#### Hymnus
+
+JAM sol recédit ígneus:
+Tu, lux perénnis, Únitas,
+Nostris, beáta Trínitas,
+Infúnde lumen córdibus.
+
+Te mane laudum cármine,
+Te deprecámur véspere;
+Dignéris ut te súpplices
+Laudémus inter cǽlites.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sǽclum per omne glória. Amen.
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Pater fídei nostræ \* Abraham summus, óbtulit holocáustum super altáre pro fílio.
+
+#### Oratio
+
+PRECES nostras, quǽsumus, Dómine, cleménter exáudi: atque a peccatórum vínculis absolútos, ab omni nos adversitáte custódi. Per Dóminum.
+
+---
+
+## Dominica in Quinquagesima
+
+{RUBRIC: II classis Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 12, 1-19*
+
+DIXIT autem Dóminus ad Abram: Egrédere de terra tua, et de cognatióne tua, et de domo patris tui, et veni in terram, quam monstrábo tibi. Faciámque te in gentem magnam, et benedícam tibi, et magnificábo nomen tuum, erísque benedíctus. Benedícam benedicéntibus tibi, et maledícam maledicéntibus tibi, atque in te benedicéntur univérsæ cognatiónes terræ. Egréssus est ítaque Abram sicut præcéperat ei

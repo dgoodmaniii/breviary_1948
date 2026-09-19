@@ -24793,3 +24793,31 @@ IN hac, dilectíssimi, celebritáte, sicut relátu patérnæ traditiónis instr�
 SED quid potíssimum præsénti hoc factum sit die, nóverit ipse qui fecit: nos tamen crédere, nec dubitáre debémus, quidquid illud est, factum esse pro nobis. Nam quod eum fulgentióris stellæ rádiis incitáti adoravére Chaldǽi, Deum verum géntibus spes data est adorándi. Quod aquæ novo sunt órdine in vina mutátæ, novi nobis póculi prælibátum est sacraméntum. Quod autem baptizátus est Agnus Dei, regenerántis baptísmi salutáre nobis munus est dedicátum.
 
 ℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja, allelúja, allelúja.
+
+#### Lectio vi
+
+OPÓRTET ítaque nos, fratres, ad honórem Salvatóris nostri, cujus nativitátem débita nuper cum exsultatióne transégimus, omni cum devotióne étiam hunc virtútum ejus celebráre natálem. Et quam recte tria hæc nobis uno acta in die mystéria prædicántur, qui ineffábilis Trinitátis arcánum uno Dei sub nómine confitémur! Per hæc ergo mirácula Christus Dóminus Redémptor noster óculis se vóluit reveláre mortálium, quátenus invisíbilis ejus divínitas, quæ latébat in hómine, in ópere non latéret.
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 1-12*
+
+CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab Oriénte venérunt Jerosólymam, dicéntes: Ubi est qui natus est Rex Judæórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 1 Comment. in cap. 2 Matthæi}
+
+VIDIMUS enim stellam ejus in Oriénte. Ad confusiónem Judæórum, ut nativitátem Christi a géntibus díscerent, óritur in Oriénte stella; quam futúram, Bálaam, cujus successóres erant, vaticínio nóverant. Lege Numerórum librum. Deferúntur autem Magi stellæ indício in Judǽam, ut sacerdótes a Magis interrogáti, ubi Christus nascerétur, inexcusábiles fíerent de advéntu ejus.
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+#### Lectio viii
+
+AT illi dixérunt ei: In Béthlehem Judǽæ. Librariórum hic error est. Putámus enim ab Evangelísta primum éditum, sicut in ipso Hebráico légimus, Judæ, non Judǽæ. Quæ est enim aliárum géntium Béthlehem, ut ad distinctiónem ejus, hic Judǽæ

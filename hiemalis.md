@@ -4846,3 +4846,75 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 ℣. Benedícite. ℟. Deus.
 
 **Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam.
+
+delíum ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+---
+
+### Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: Per Annum:} **Ant.** Illuminátio mea.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria II post Dominicam I:} **Ant.** Jucundáre.
+
+{RUBRIC: Feria II post Dominicam II:} **Ant.** Urbs fortitúdinis.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Cum vénerit.
+
+### Psalmus 26, i
+
+DOMINUS illuminátio mea, et salus mea, \* quem timébo?
+
+Dóminus protéctor vitæ meæ, \* a quo trepidábo?
+
+Dum apprópiant super me nocéntes, \* ut edant carnes meas:
+
+Qui tríbulant me inimíci mei, \* ipsi infirmáti sunt, et cecidérunt.
+
+Si consístant advérsum me castra, \* non timébit cor meum.
+
+Si exsúrgat advérsum me prǽlium, \* in hoc ego sperábo.
+
+Unam pétii a Dómino, hanc requíram, \* ut inhábitem in domo Dómini ómnibus diébus vitæ meæ:
+
+Ut vídeam voluptátem Dómini, \* et vísitem templum ejus.
+
+Quóniam abscóndit me in tabernáculo suo: \* in die malórum protéxit me in abscóndito tabernáculi sui.
+
+In petra exaltávit me: \* et nunc exaltávit caput meum super inimícos meos.
+
+Circuívi, et immolávi in tabernáculo ejus hóstiam vociferatiónis: \* cantábo, et psalmum dicam Dómino.
+
+### Psalmus 26, ii
+
+EXAUDI, Dómine, vocem meam, qua clamávi ad te: \* miserére mei, et exáudi me.
+
+Tibi dixit cor meum, exquisívit te fácies mea: \* fáciem tuam, Dómine, requíram.
+
+Ne avértas fáciem tuam a me: \* ne declínes in ira a servo tuo.

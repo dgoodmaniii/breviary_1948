@@ -24267,3 +24267,23 @@ ET erat súbditus illis. Quis, quibus? Deus homínibus; Deus, inquam, cui Ángel
 ℟. Vere tu es Rex abscónditus, \* Deus Israël Salvátor. ℣. Tu doces hóminem sciéntiam. — Deus.
 
 **Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+DISCE, homo, obedíre; disce, terra, subdi; disce, pulvis, obtemperáre. De auctóre tuo loquens Evangelísta, Et erat, inquit, súbditus illis; haud dúbium, quin Maríæ et Joseph. Erubésce, supérbe cinis! Deus se humíliat, et tu te exáltas? Deus se homínibus subdit, et tu, dominári géstiens homínibus, tuo te præpónis auctóri? Utinam mihi, aliquándo tale áliquid cogitánti Deus respondére dignétur quod et suo increpándo respóndit Apóstolo: Vade, inquit, post me, sátana, quia non sapis ea quæ Dei sunt. Quóties enim homínibus præésse desídero, tóties Deum præíre conténdo; et tunc vere non sápio ea quæ Dei sunt. De ipso namque dictum est: Et erat súbditus illis. Si hóminis, o homo, imitári dedignáris exémplum, certe non erit tibi indígnum sequi auctórem tuum. Si non potes fórsitan sequi eum quocúmque íerit, dignáre vel sequi quo tibi condescéndit.
+
+℟. Sicut per inobediéntiam uníus hóminis peccatóres constitúti sunt multi: \* Ita et per uníus obeditiónem justi constituéntur multi. ℣. Venit Názareth et erat súbditus illis. — Ita. Glória. Ita.
+
+{RUBRIC: ¶ Non dícitur ix Lectio Domínicæ cum idem sit Evangélium.}
+
+#### Lectio ix
+
+SI non potes sublímem incédere sémitam virginitátis, séquere vel Deum per tutíssimam viam humilitátis; a cujus rectitúdine si qui étiam de virgínibus deviáverint, ut verum fátear, nec ipsi sequúntur Agnum quocúmque íerit. Séquitur quidem Agnum coinquinátus húmilis, séquitur et virgo supérbus, sed néuter quocúmque íerit: quia nec ille ascéndere potest ad mundítiam Agni, qui sine mácula est; nec is ad ejúsdem mansuetúdinem descéndere dignátur, qua scílicet non coram tondénte, sed coram occidénte se obmútuit. Attamen salubriórem elégit sequéndi partem in humilitáte peccátor, quam in virginitáte supérbus; cum et illíus immundítiam sua húmilis satisfáctio purget, et hujus pudicítiam supérbia ínquinet.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ}
+
+**1** Post tríduum \* invenérunt Jesum in templo sedéntem in médio doctó-

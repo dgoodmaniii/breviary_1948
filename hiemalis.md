@@ -32638,4 +32638,55 @@ DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, lig�
 
 {RUBRIC: Capitulum Saulus, ut supra.} 810
 
-℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terræ
+℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terrætues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+#### Oratio
+
+DEUS, qui univérsum mundum beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, qui ejus hódie Conversiónem cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+### Ad Sextam
+
+**Ant.** Grátia Dei \* in me vácua non fuit, sed grátia ejus semper in me manet.
+
+{RUBRIC: Capitulum} *Act. 9, 8-9*
+
+SURRÉXIT autem Saulus de terra, apertísque óculis nihil vidébat. Ad manus autem illum trahéntes, introduxérunt Damáscum. Et erat ibi tribus diébus non videns, et non manducávit neque bibit.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. Glória Patri. Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+### Ad Nonam
+
+**Ant.** Ter virgis cæsus sum, \* semel lapidátus sum, ter naufrágium pértuli pro Christi nómine.
+
+{RUBRIC: Capitulum} *Act. 9, 22*
+
+SAULUS autem multo magis convalescébat, et confundébat Judǽos qui habitábant Damásci, affírmans quóniam hic est Christus.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis honoráti. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+### In II Vesperis
+
+{RUBRIC: Antiphonæ et Capitulum de Laudibus.} 810
+
+#### Hymnus
+
+EGRÉGIE Doctor, Paule,
+    mores ínstrue,
+Et nostra tecum péctora
+    in cælum trahe:
+
+Veláta dum merídiem
+    cernat fides,
+Et solis instar sola
+    regnet cáritas.
+
+Sit Trinitáti sempitérna
+    glória,
+Honor, potéstas atque
+    jubilátio,
+In unitáte, quæ gubérnat
+    ómnia,
+Per univérsa æternitátis
+    sǽcula. Amen.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole.

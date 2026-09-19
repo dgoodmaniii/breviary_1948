@@ -24943,3 +24943,35 @@ Te Deum laudámus.
 #### Oratio
 
 GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Hygínum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+**Ad Magnif. Ant.** Admóniti Magi \* in somnis, per áliam viam revérsi sunt in regiónem suam.
+
+## Die 12 Januarii
+
+# De VII die infra Octavam Epiphaniæ
+
+{RUBRIC: Semiduplex [REF: p. 492]}
+
+{RUBRIC: In I Nocturno dicúntur Lectiónes de Epístola I ad Corínthios, quæ occúrrunt juxta superiórem Rubricam. [REF: p. 511]}
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 4 de Epiphania cap. 1}
+
+#### Lectio iv
+
+JUSTUM et rationábile, dilectíssimi, veræ pietátis obséquium est in diébus, qui divínæ ópera misericórdiæ protestántur, toto corde gaudére, et honorífice ea, quæ ad salútem nostram gesta sunt, celebráre, vocánte nos ad hanc devotiónem ipsa recurréntium témporum lege, quæ nobis post diem, in quo coætérnus Patri Fílius Dei natus ex Vírgine est, brevi intervállo Epiphaníæ íntulit festum, ex apparitióne Dómini consecrátum.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+IN quo fídei nostræ magnum præsídium providéntia divína constítuit: ut, dum solémni veneratióne recólitur adoráta in exórdiis suis Salvatóris infántia, per ipsa originália documénta probarétur veri hóminis in ipso orta natúra. Hoc enim est quod justíficat ímpios; hoc est quod ex peccatóribus facit sanctos, si in uno eodémque Dómino nostro Jesu Christo et vera Déitas, et vera credátur humánitas: Déitas, qua ante ómnia sǽcula in forma Dei æquális est Patri; humánitas, qua novíssimis diébus in forma servi unítus est hómini.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja, allelúja, allelúja.
+
+#### Lectio vi
+
+AD roborándam ergo hanc fidem, quæ contra omnes præmuniebátur erróres, ex magna gestum est divíni pietáte consílii ut gens in longínqua Oriéntális plagæ regióne con-

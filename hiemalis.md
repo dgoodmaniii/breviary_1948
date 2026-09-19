@@ -20182,3 +20182,22 @@ IN illo témpore: Ángelus Dómini appáruit in somnis Joseph, dicens: Surge, et
 {RUBRIC: Liber 1 Comment. in cap. 2 Matth. et apud Gloss. ord.}
 
 QUANDO tulit Púerum et Matrem ejus, ut in Ægýptum tránseat, nocte tulit, et in ténebris: quia noctem ignorántiæ his, a quibus ipse recéssit, relíquit incrédulis. Quando vero revértitur in Judǽam, nec nox, nec ténebræ ponúntur in Evangélio: quia in fine mundi
+Judǽi fidem, tamquam Christum ab Ægýpto revertentem suscipiéntes, illuminabúntur.
+
+℟. Cantábant Sancti cánticum novum ante sedem Dei et Agni: \* Et resonábat terra in voces eórum. ℣. Hi empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est invéntum mendácium. — Et.
+
+#### Lectio viii
+
+UT adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. Respóndeant, qui Hebræórum volúminum dénegant veritátem, ubi hoc in Septuagínta legátur interprétibus. Quod cum non invénerint, nos eis dicémus, in Osée prophéta scriptum, sicut et exemplária probáre possunt, quæ nuper edídimus.
+
+℟. Vidi sub altáre Dei ánimas interfectórum propter verbum Dei quod habébant, et clara voce dicébant: \* Víndica, Dómine, sánguinem Sanctórum tuórum, qui effúsus est. ℣. Sub throno Dei omnes Sancti clamant. — Víndica.
+
+{RUBRIC: Si hoc Festum vénerit in Dominica, aut celebrétur sub ritu duplici I classis, tunc in fine prædícti ℟. viii additur:}
+
+Glória Patri. Víndica, {RUBRIC: et post ix Lectiónem dícitur Hymnus} Te Deum. {RUBRIC: Secus autem dícitur ix ℟. ut infra.}
+
+#### Lectio ix
+
+TUNC adimplétum est, quod dictum est per Jeremíam prophétam dicéntem: Vox in Rama audíta est, plorátus et ululátus multus, Rachel plorans fílios suos. De Rachel natus est Bénjamin, in cujus tribu non est Béthlehem. Quǽritur ergo, quómodo Rachel fílios Judæ, id est Béthlehem, quasi suos ploret. Respondébimus bréviter, quia sepúlta sit juxta Béthlehem in Ephrata; et ex matérno corpúsculi hospítio matris nomen accéperit; sive quóniam Juda et Bénjamin duæ tribus junctæ erant, et Heródes præcéperat non solum in Béthlehem intérfici púeros, sed et in ómnibus fínibus ejus.
+
+℟. Isti, qui amícti sunt stolis albis, qui sunt, et unde venérunt? Et dixit mihi: \* Hi sunt, qui venérunt de tribulatióne magna, et lavérunt stolas suas, et dealbavérunt eas in sánguine Agni. ℣. Vidi sub altáre Dei ánimas interfectórum propter verbum Dei, et propter testimónium quod habébant. — Hi. Glória Patri. Hi.

@@ -16676,3 +16676,29 @@ pres et spinæ: et núbibus mandábo ne pluant super eam imbrem. Vínea enim Dó
 ℣. Roráte, cæli.
 
 **Ad Magnif. Ant.** Exspectábo \* Dóminum Salvatórem meum, et præstolábor eum, dum prope est, allelúja.
+
+### Feria Sexta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 6, 1-10*
+
+IN anno, quo mórtuus est rex Ozías, vidi Dóminum sedéntem super sólium excélsum et elevátum: et ea, quæ sub ipso erant, replébant templum. Séraphim stabant super illud: sex alæ uni, et sex alæ álteri: duábus velábant fáciem ejus, et duábus velábant pedes ejus, et duábus volábant. Et clamábant alter ad álterum, et dicébant: Sanctus, sanctus, sanctus, Dóminus Deus exercítuum, plena est omnis terra glória ejus.
+
+℟. Ave, María, grátia plena, Dóminus tecum: \* Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi: quod enim ex te nascétur Sanctum, vocábitur Fílius Dei. ℣. Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Ángelus, dixit ei. — Spíritus.
+
+#### Lectio ii
+
+ET commóta sunt superliminária cárdinum a voce clamántis, et domus repléta est fumo. Et dixi: Væ mihi, quia tácui, quia vir pollútus lábiis ego sum, et in médio pópuli pollúta lábia habéntis ego hábito,
+
+et Regem Dóminum exercítuum vidi óculis meis. Et volávit ad me unus de Séraphim, et in manu ejus cálculus, quem fórcipe túlerat de altári. Et tétigit os meum, et dixit: Ecce tétigit hoc lábia tua, et auferétur iníquitas tua, et peccátum tuum mundábitur.
+
+℟. Salvatórem exspectámus Dóminum Jesum Christum, \* Qui reformábit corpus humilitátis nostræ configurátum córpori claritátis suæ. ℣. Sóbrie, et juste, et pie vivámus in hoc século, exspectántes beátam spem, et advéntum glóriæ magni Dei. — Qui.
+
+#### Lectio iii
+
+ET audívi vocem Dómini dicéntis: Quem mittam? et quis ibit nobis? Et dixi: Ecce ego, mitte me. Et dixit: Vade, et dices pópulo huic: Audíte audiéntes, et nolíte intellígere: et vidéte visiónem, et nolíte cognóscere. Excǽca cor pópuli hujus, et aures ejus ággrava, et óculos ejus claude, ne forte vídeat óculis suis, et áuribus suis áudiat, et corde suo intélligat, et convertátur, et sanem eum.
+
+℟. Obsecro, Dómine, mitte quem missúrus es: vide afflictiónem pópuli tui: \* Sicut locútus es, veni,

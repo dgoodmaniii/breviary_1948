@@ -20083,3 +20083,48 @@ DEUS, cujus hodiérna die præcónium Innocéntes Mártyres non loquéndo, sed m
 #### Oratio
 
 CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per
+carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+### Ad Matutinum
+
+**Invit.** Regem Mártyrum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+#### Hymnus
+
+AUDIT tyránnus ánxius
+Adésse regum Príncipem,
+Qui nomen Israël regat
+Teneátque David régiam.
+
+Exclámat amens núntio:
+Successor instat, péllimur:
+Satélles, i, ferrum rape,
+Perfúnde cunas sánguine.
+
+Quid próficit tantum nefas?
+Quid crimen Heródem juvat?
+Unus tot inter fúnera
+Impúne Christus tóllitur.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+### In I Nocturno
+
+{RUBRIC: De Jeremía Prophéta}
+
+#### Lectio i
+
+*Cap. 34, 15-29*
+
+HÆC dicit Dóminus: Vox in excélso audíta est lamentatiónis, luctus, et fletus Rachel plorántis fílios suos,
+
+et noléntis consolári super eis, quia non sunt. Hæc dicit Dóminus: Quiéscat vox tua a plorátu, et óculi tui a lácrimis: quia est merces óperi tuo, ait Dóminus: et reverténtur de terra inimíci. Et est spes novíssimis tuis, ait Dóminus: et reverténtur fílii ad términos suos.
+
+℟. Centum quadragínta quátuor míllia, qui empti sunt de terra, hi sunt qui cum muliéribus non sunt coinquináti: \* Vírgines enim permansérunt, ídeo regnant cum Deo, et Agnus Dei cum illis. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Vírgines.
+
+#### Lectio ii
+
+AUDIENS audívi Ephraim transmigrántem: Castigásti me, et erudítus sum, quasi juvénculus indómitus: convérte me, et convértar: quia tu Dóminus Deus meus. Postquam enim convertísti me, egi pœniténtiam: et postquam ostendísti mihi, percússi femur meum. Confúsus sum, et erúbui: quóniam sustínui oppróbrium adolescéntiæ meæ. Si fílius honorábilis mihi Ephraim, si puer delicátus: quia ex quo locútus sum de eo, adhuc recordábor ejus.

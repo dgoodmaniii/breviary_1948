@@ -6339,3 +6339,53 @@ Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc i
 **Ant.** Discérne causam meam.
 
 {RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Roráte, cæli, désuper, et nubes pluant justum.
+
+**Ant.** Emítte Agnum, Dómine.
+
+### Psalmus 42
+
+JUDICA me, Deus, et discérne causam meam de gente non sancta, \* ab hómine iníquo, et dolóso érue me.
+
+Quia tu es, Deus, fortitúdo mea: \* quare me repulísti? et quare tristis incédo, dum afflígit me inimícus?
+
+Emítte lucem tuam et veritátem tuam: \* ipsa me deduxérunt, et adduxérunt in montem sanctum tuum, et in tabernácula tua.
+
+Et introíbo ad altáre Dei: \* ad Deum, qui lætíficat juventútem meam.
+
+Confitébor tibi in cíthara, Deus, Deus meus: \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Ant.** Discérne causam meam, Deus, de gente non sancta.
+
+**Ant.** Deus misereátur. †
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Emítte Agnum, Dómine, Dominatórem terræ, de Petra desérti, ad montem fíliæ Sion.
+
+### Psalmus 66
+
+DEUS misereátur \* † nostri, et benedícat nobis: \* illúminet vultum suum super nos, et misereátur nostri.
+
+Ut cognoscámus in terra viam tuam: \* in ómnibus géntibus salutáre tuum.
+
+Confiteántur tibi pópuli, Deus: \* confiteántur tibi pópuli omnes.
+
+Læténtur et exsúltent gentes: \* quóniam júdicas pópulos in æquitáte, et gentes in terra dírigis.
+
+Confiteántur tibi pópuli, Deus, confiteántur tibi pópuli omnes: \* terra dedit fructum suum.
+
+Benedícat nos Deus, Deus noster, benedícat nos Deus: \* et métuant eum omnes fines terræ.
+
+**Ant.** Deus misereátur nostri, et benedícat nos.
+
+**Ant.** Corrípies me, Dómine.
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Ut cognoscámus, Dómine, in terra viam tuam, in ómnibus géntibus salutáre tuum.
+
+**Ant.** Da mercédem, Dómine.
+
+#### Canticum Ezechiæ
+
+*Is. 38, 10-20*
+
+EGO dixi: In dimídio diérum meórum \* vadam ad portas ínferi.

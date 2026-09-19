@@ -11443,3 +11443,55 @@ Pater noster et Ave.
 ℣. Deus, in adjutórium.
 
 **Ant.** Ecce, quam bonum \* † et quam jucúndum, habitáre fratres in unum. ‡
+
+### Psalmus 132
+
+ECCE, quam bonum † et quam jucúndum, \* habitáre fratres in unum: ‡
+
+Sicut unguéntum in cápite, \* quod descéndit in barbam, barbam Aaron.
+
+Quod descéndit in oram vestiménti ejus: \* sicut ros Hermon, qui descéndit in montem Sion.
+
+Quóniam illic mandávit Dóminus benedictiónem, \* et vitam usque in séculum.
+
+**Ant.** Ecce, quam bonum et quam jucúndum, habitáre fratres in unum!
+
+**Ant.** Confitémini Dómino \* † quóniam in ætérnum misericórdia ejus.
+
+### Psalmus 135, i
+
+CONFITEMINI Dómino † quóniam bonus: \* quóniam in ætérnum misericórdia ejus.
+
+Confitémini Deo deórum: \* quóniam in ætérnum misericórdia ejus.
+
+Confitémini Dómino dominórum: \* quóniam in ætérnum misericórdia ejus.
+
+Qui facit mirabília magna solus: \* quóniam in ætérnum misericórdia ejus.
+
+Qui fecit cælos in intelléctu: \* quóniam in ætérnum misericórdia ejus.
+
+Qui firmávit terram super aquas: \* quóniam in ætérnum misericórdia ejus.
+
+Qui fecit luminária magna: \* quóniam in ætérnum misericórdia ejus.
+
+Solem in potestátem diéi: \* quóniam in ætérnum misericórdia ejus.
+
+Lunam, et stellas in potestátem noctis: \* quóniam in ætérnum misericórdia ejus.
+
+**Ant.** Confitémini Dómino quóniam in ætérnum misericórdia ejus.
+
+**Ant.** Confitémini Dómino, \* quia in humilitáte nostra memor fuit nostri.
+
+### Psalmus 135, ii
+
+QUI percússit Ægýptum cum primogénitis eórum: \* quóniam in ætérnum misericórdia ejus.
+
+Qui edúxit Israël de médio eórum: \* quóniam in ætérnum misericórdia ejus.
+
+In manu poténti, et bráchio excélso: \* quóniam in ætérnum misericórdia ejus.
+
+Qui divísit Mare Rubrum in divisiónes: \* quóniam in ætérnum misericórdia ejus.
+
+Et edúxit Israël per médium ejus: \* quóniam in ætérnum misericórdia ejus.
+
+Et excússit Pharaónem, et virtútem ejus in Mari

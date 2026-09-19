@@ -24503,3 +24503,25 @@ NON autem quod excíderit verbum Dei. Non enim omnes qui ex Israël sunt, ii sun
 CUM enim nondum nati fuíssent, aut áliquid boni egíssent, aut mali, (ut secúndum electiónem propósitum Dei manéret) non ex opéribus, sed ex vocánte dictum est ei: Quia major sérviet minóri, sicut scriptum est: Jacob diléxi, Esau autem ódio hábui. Quid ergo dicémus? numquid iníquitas apud Deum? Absit. Móysi enim dicit: Miserébor cujus miséreor: et misericórdiam præstábo cujus miserébor. Igitur non voléntis, neque curréntis, sed miseréntis est Dei.
 
 ℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 2 de Epiphania, qui est 30 de Tempore}
+
+#### Lectio iv
+
+AD partum Vírginis adorándum Magi ab Oriénte venérunt. Hunc diem hódie celebrámus: huic débitum solemnitáti sermónem persólvimus. Illis dies iste primus illúxit, anniversária nobis festivitáte rédiit. Illi erant primítiæ géntium, nos pópulus géntium. Nobis hoc lingua nuntiávit Apostolórum, stella illis tamquam lingua cælórum; et nobis iídem Apóstoli, tamquam álii cæli, enarravérunt glóriam Dei.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+MAGNUM sacraméntum: in præsépi jacébat, et Magos ab Oriénte ducébat. Abscondebátur in stábulo, et agnoscebátur in cælo; ut ágnitus in cælo manifestarétur in stábulo, et appellarétur Epiphanía dies iste, quod Latíne manifestátio dici potest; simul ejus celsitúdinem humilitatémque comméndans, ut, qui in apérto cælo signis sidéreis monstrabátur magnus, in angústo diversório quæsítus inveniétur inválidus, infantílibus in membris natus, infantilibúsque pannis involútus, adoraretur a Magis, timerétur a malis.
+
+℟. Omnes de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes, \* Allelúja, allelúja, allelúja. ℣. Reges Tharsis et ínsulæ múnera ófferent, reges Arabum et Saba dona addúcent. — Allelúja.
+
+#### Lectio vi
+
+TIMUIT enim eum rex Heródes, eísdem sibi Magis nuntiántibus, cum adhuc quærerent párvulum, quem cognóverant cælo teste jam natum. Quid erit tribúnal judicántis, quando supérbos reges cunábula terrébant infántis? Quanto consúltius reges, non sicut Heródes interfícere quærant, sed sicut Magi pótius adoráre delecténtur; jam præsértim eum, qui et ipsam mortem, quam cupiébat inimícus inférre, étiam pro ipsis inimícis ab inimícis sustínuit, eámque in suo córpore oc-

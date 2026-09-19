@@ -18095,3 +18095,24 @@ IN cubílibus, in quibus prius dracónes habitábant, oriétur viror cálami et 
 *Cap. 41, 1-4*
 
 TÁCEANT ad me ínsulæ, et gentes mutent fortitúdinem: accédant, et tunc loquántur, simul ad judícium propinquémus. Quis suscitávit ab Oriénte justum, vocávit eum ut sequerétur se? dabit in conspéctu ejus gentes et reges obtinébit: dabit quasi púlverem gládio ejus,
+sicut stípulam vento raptam árcui ejus. Persequétur eos, transíbit in pace, sémita in pédibus ejus non apparébit. Quis hæc operátus est, et fecit, vocans generatiónes ab exórdio? Ego Dóminus, primus et novíssimus ego sum.
+
+℟. Me oportet mínui, illum autem créscere: qui autem post me venit, ante me factus est: \* Cujus non sum dignus corrígiam calceamentórum sólvere. ℣. Ego baptizávi vos aqua: ille autem baptizábit vos Spíritu Sancto. — Cujus. Glória Patri. Cujus.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 1 de jejúnio décimi mensis, et collectis}
+
+#### Lectio iv
+
+SI fidéliter, dilectíssimi, atque sapiénter creatiónis nostræ intelligámus exórdium, inveniémus hóminem ídeo ad imáginem Dei cónditum, ut imitátor sui esset auctóris: et hanc esse naturálem nostri géneris dignitátem, si in nobis, quasi in quodam spéculo, divínæ benignitátis forma respléndeat. Ad quam quotídie nos útique réparat grátia Salvatóris, dum quod cécidit in Adam primo, erígitur in secúndo.
+
+℟. Nascétur nobis párvulus, et vocábitur Deus, Fortis: \* Ipse sedébit super thronum David patris sui, et imperábit: cujus potéstas super húmerum ejus. ℣. In ipso benedicéntur omnes tribus terræ, omnes gentes sérvient ei. — Ipse.
+
+#### Lectio v
+
+CAUSA autem reparatiónis nostræ non est nisi misericórdia Dei: quem non diligerémus, nisi prius nos ipse dilígeret, et ténebras ignorántiæ nostræ suæ veritátis luce discúteret. Quod per sanctum Isaíam Dóminus denúntians, ait: Addúcam cæcos in viam quam ignorábant, et sémitas quas nesciébant, fáciam illos calcáre: fáciam illis ténebras in lucem, et prava in directa. Hæc verba fáciam illis, et non relínquam eos. Et íterum: Invéntus sum, inquit, a non quæréntibus me, et palam appárui iis qui me non interrogábant.
+
+℟. Ecce jam venit plenitúdo témporis, in quo misit Deus Fílium suum in terras, natum de Vírgine, factum sub lege: \* Ut eos, qui sub lege erant, redímeret. ℣. Propter nímiam caritátem suam, qua diléxit nos Deus, Fílium suum misit in similitúdinem carnis peccáti. — Ut.

@@ -27533,3 +27533,65 @@ FRATRES: Libénter suffértis insipiéntes, cum sitis ipsi sapiéntes: sustinét
 TER virgis cæsus sum, semel lapidátus sum, ter naufrágium feci, nocte et die in profúndo maris fui.
 
 ℟. br. In ætérnum, Dómine, \* Pérmanet verbum tuum. In ætérnum. ℣. In
+sǽculum sǽculi véritas tua. Pérmanet. Glória Patri. In ætérnum. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: Oratio Deus, ut supra.} [REF: p. 642]
+
+### Ad Nonam
+
+**Ant.** Si vere, fratres, \* dívites esse cúpitis, veras divítias amáte.
+
+**Capitulum** *2 Cor. 12, 9*
+
+LIBÉNTER ígitur gloriábor in infirmitátibus meis, ut inhábitet in me virtus Christi.
+
+℟. br. Clamávi in toto corde meo: \* Exáudi me, Dómine. Clamávi. ℣. Justificatiónes tuas requíram. Exáudi. Glória Patri. Clamávi. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica.} [REF: p. 70]
+
+{RUBRIC: Capit. Fratres.} [REF: p. 642]
+
+#### Hymnus
+
+LUCIS Creátor óptime,
+Lucem diérum próferens,
+Primórdiis lucis novæ,
+Mundi parans oríginem:
+
+Qui mane junctum vésperi
+Diem vocári præcipis:
+Illábitur tetrum chaos,
+Audi preces cum flétibus.
+
+Ne mens graváta crímine,
+Vitæ sit exsul múnere,
+Dum nil perénne cógitat,
+Seséque culpis illigat.
+
+Cæléste pulset óstium:
+Vitále tollat prǽmium:
+Vitémus omne nóxium:
+Purgémus omne péssimum.
+
+\* Præsta, Pater piíssime,
+Patríque compar Únice,
+Cum Spíritu Paráclito
+Regnans per omne sǽculum. Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Vobis datum est \* nosse mystérium regni Dei, céteris autem in parábolis, dixit Jesus discípulis suis.
+
+---
+
+### Feria Secunda
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 7, 1-5, 10-14, 17*
+
+DIXIT Dóminus ad Noë: Ingrédere tu, et omnis domus tua in arcam: te enim vidi justum coram me in generatióne hac. Ex ómnibus animántibus mundis tolles septéna et septéna, másculum et féminam: de animántibus vero immúndis duo et duo, másculum et féminam. Sed et de volatílibus cæli septéna et se-

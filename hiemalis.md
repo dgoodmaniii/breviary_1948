@@ -29060,3 +29060,49 @@ DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victó
 {RUBRIC: Et fit Commemoratio Fériæ ac S. Sabbæ Abbátis.}
 
 ---
+
+### Die 5 Decembris
+
+#### S. Sabbæ Abbatis
+
+{RUBRIC: Commemoratio}
+
+{RUBRIC: In Vésperis præcedéntis diéi:}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+**Oratio** C 4
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Sabbæ Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+**Ad Laudes: Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+℣. Justum dedúxit.
+
+---
+
+### Die 6 Decembris
+
+#### S. Nicolai
+
+{RUBRIC: Episcopi et Confessoris}
+
+{RUBRIC: Duplex [69]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+###### Oratio
+
+DEUS, qui beátum Nicoláum Pontíficem innúmeris decorásti miráculis: tríbue, quǽsumus; ut ejus méritis et précibus, a gehénnæ incéndiis liberémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+NICOLÁUM, illústri loco Pátaræ in Lýcia natum, paréntes a Deo précibus impetrárunt. Cujus viri sánctitas quanta futúra esset, jam ab incunábulis appáruit. Nam infans, cum réliquos dies lac nutrícis frequens súgeret, quarta et sexta féria semel dumtáxat, idque vésperi sugébat: quam jejúnii consuetúdinem in réliqua vita semper ténuit. Adoléscens paréntibus orbátus, facultátes suas paupéribus distríbuit. Cujus illud insígne est christiánæ benignitátis exémplum, quod cum ejus civis egens tres fílias jam núbiles in matrimónio collocáre non posset, earúmque pudicítiam prostitúere cogitáret; re cógnita, Nicoláus noctu per fenéstram tantum pecúniæ in ejus domum injécit, quantum uníus vírginis doti satis esset: quod cum íterum et tértio fecísset, tres illæ vírgines honéstis viris in matrimónium datæ sunt.

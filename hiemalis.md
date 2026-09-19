@@ -34206,4 +34206,26 @@ DEUS, qui beátum Titum Confessórem tuum atque Pontíficem apostólicis virtút
 
 #### Oratio
 
-DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Agathæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dómi-
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Agathæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dómi-num.
+
+{RUBRIC: Deinde, post Commemoratiónem Fériæ in Quadragésima, Commemoratio S. Dorótheæ Virg. et Mart.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+#### Oratio
+
+INDULGÉNTIAM nobis, quǽsumus, Dómine, beáta Doróthea Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis, et tuæ professióne virtútis. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+TITUM Creténsium epíscopum, vix Páuli Apóstoli verbo christiánæ fídei sacraméntis mysteriísque excúltum, ea sanctitátis luce Ecclésiæ tunc vagiénti effulsísse compértum est, ut inter ejúsdem Doctóris géntium discípulos merúerit cooptári. Ascítus in partem óneris prædicatiónis, ádeo evangelizándi ardóre, et fidelitáte Paulo exstitit carus, ut ipse, cum venísset Tróadem propter Evangélium Christi, testátus sit non habuísse réquiem spirítui suo, eo quod Titum fratrem suum ibi non invénerit. Et paulo post Macedóniam petens, rursus
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+QUAM ob rem Corínthum ab Apóstolo missus, ea sapiéntia et lenitáte legatiónis hujus múnere functus est, quæ prǽsertim de fidélium pietáte eleemósynas colligéndas ad sublevándam Ecclésiæ Hebrǽórum inópiam spectábat, ut Corínthios non solum in Christi fide continúerit, sed étiam desidérium, fletum, æmulatiónem inter eos pro Paulo, qui illos primus institúit, excitáverit. Ad effundéndum ínterim inter gentes linguis locísque distínctas divíni verbi semen, plúribus terra maríque itinéribus reléctis, magnáque ánimi firmitáte pro crucis tropháeo curis laboribúsque exantlátis, una cum duce Paulo Cretæ ínsulam áppulit. Cum porro huic ecclésiæ epíscopus ab ipso Apóstolo deléctus esset, dubitándum non est

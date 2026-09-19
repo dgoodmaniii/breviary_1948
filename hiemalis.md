@@ -30914,4 +30914,50 @@ QUIBUS cógnitis, Maxéntius in eam ecclésiam catábuli béstias transférri et
 
 #### Lectio ix
 
-MARCÉLLUS Románus, a Constántio et Galério usque ad Maxéntium pontificátum gessit. Ejus hortátu Lucína, matróna Romána, bonórum suórum Dei Ecclésiam fecit herédem. Aucto in Urbe fidélium número, novos títulos instítuit, et quasi álteras diœcéses distríbuit. Quare irátus Maxéntius, grávia supplícia minátur, nisi, depósito pontificátu, idólis immoláret. Acríter réstitit póntifex, ideóque missus fuit in catábulum, ut bestiárum, quæ públice alebántur, curam sustinéret. Novem menses ibi tradúxit, paróchias, quas præsens non póterat, vísitans per epístolas. Inde eréptus a cléricis, hospítio recípitur a beáta Lucína, in cujus ǽdibus ecclésiam dedicávit, ubi fidélibus prædicábat. Tunc Maxéntius in eam ecclésiam béstias catábuli transférri et a Marcéllo custodíri jubet; qui, loci fœditáte et ærúmnis afflíctus, obdormívit
+MARCÉLLUS Románus, a Constántio et Galério usque ad Maxéntium pontificátum gessit. Ejus hortátu Lucína, matróna Romána, bonórum suórum Dei Ecclésiam fecit herédem. Aucto in Urbe fidélium número, novos títulos instítuit, et quasi álteras diœcéses distríbuit. Quare irátus Maxéntius, grávia supplícia minátur, nisi, depósito pontificátu, idólis immoláret. Acríter réstitit póntifex, ideóque missus fuit in catábulum, ut bestiárum, quæ públice alebántur, curam sustinéret. Novem menses ibi tradúxit, paróchias, quas præsens non póterat, vísitans per epístolas. Inde eréptus a cléricis, hospítio recípitur a beáta Lucína, in cujus ǽdibus ecclésiam dedicávit, ubi fidélibus prædicábat. Tunc Maxéntius in eam ecclésiam béstias catábuli transférri et a Marcéllo custodíri jubet; qui, loci fœditáte et ærúmnis afflíctus, obdormívitin Dómino. Ejus corpus in cœmetério Priscíllæ via Salária a beáta Lucína sepúltum est, die décima sexta Januárii.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Venit Jesus, {RUBRIC: de Communi unius aut plúrium Summórum Pontíficum.} [28¹]
+
+{RUBRIC: ℟. viii Dómine, prævenísti.} [28³]
+
+### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+#### Oratio
+
+PRECES pópuli tui, quǽsumus, Dómine, cleménter exáudi: ut beáti Marcélli Mártyris tui atque Pontíficis méritis adjuvémur, cujus passióne lætámur. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 17 Januarii
+
+### S. Antonii
+
+{RUBRIC: Abbátis}
+
+{RUBRIC: Duplex} [94]
+
+**Oratio** C 4
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Antónii Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedéntis:}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+{RUBRIC: Oratio Preces, ut supra.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+ANTÓNIUS Ægýptius, nobílibus et christiánis paréntibus natus, quibus adoléscens orbátus est, cum ingréssus ecclésiam ex Evangélio audivísset: Si vis perféctus esse, vade, et vende ómnia quæ habes, et da paupéribus; tamquam ea sibi dicta essent, sic Christo Dómino obtemperándum existimávit. Itaque, véndita re familiári, pecúniam omnem paupéribus distríbuit. Quibus solútus impediméntis, cæléstis vitæ genus in terris cólere instítuit. Sed cum in periculósum illud certámen descénderet, ad fídei præsídium, quo erat armátus, adhibéndum sibi putávit subsídium relíquárum virtútum; quarum tanto stúdio incénsus fuit, ut, quemcúmque vidéret áliqua virtútis laude excelléntem, illum imitári studéret.

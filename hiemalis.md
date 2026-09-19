@@ -20789,3 +20789,18 @@ TRIBULÁTIO et angústia in omnem ánimam hóminis operántis malum, Judǽi prim
 #### Lectio iv
 
 OMNIBUS quidem diébus, dilectíssimi, atque tempóribus, ánimis fidélium divína meditántium Dómini et Salvatóris nostri ex Matre Vírgine ortus occúrrit, ut mens, ad confessiónem sui auctóris erécta, sive in gémitu supplicatiónis, sive in exsultatióne laudis, sive in sacrifícii oblatióne versé-
+tur, nihil crébrius nihílque fidéntius spiritáli attíngat intúitu, quam quod Deus, Dei Fílius, génitus de Patre coætérno, idem étiam partu est natus humáno. Sed hanc adorándam in cælo et in terra nativitátem nullus nobis dies magis quam hodiérnus insínuat, et nova étiam in eleméntis luce radiánte, coram sénsibus nostris mirábilis sacraménti íngerit claritátem. Non solum enim in memóriam, sed in conspéctum quodámmodo redit Ángeli Gabriélis cum María stupénte collóquium, et concéptio de Spíritu Sancto tam mire promíssa quam crédita.
+
+℟. Beáta Dei Génitrix María, cujus víscera intácta pérmanent: \* Hódie génuit Salvatórem séculi. ℣. Beáta, quæ crédidit: quóniam perfécta sunt ómnia, quæ dicta sunt ei a Dómino. — Hódie.
+
+#### Lectio v
+
+HÓDIE enim auctor mundi éditus est útero virgináli, et qui omnes natúras cóndidit, ejus est factus fílius, quam creávit. Hódie Verbum Dei carne appáruit vestítum, et quod numquam fuit humánis óculis visíbile, cœpit étiam mánibus esse tractábile. Hódie génitum in nostræ carnis animǽque substán-
+
+tia Salvatórem angélicis vócibus didicére pastóres, et apud Dominicórum prǽsules gregum hódie evangelizándi forma præcóndita est; ut nos quoque cum cæléstis milítiæ dicámus exércitu: Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+#### Lectio vi
+
+UNDE ipsa colláti múneris magnitúdo dignam a nobis éxigit suo splendóre reveréntiam. Ideo enim, sicut beátus Apóstolus docet, non spíritum hujus mundi accépimus, sed spíritum qui ex Deo est, ut sciámus quæ a Deo donáta sunt nobis; qui non áliter pie cólitur, nisi id ei, quod ipse tríbuit, offerátur. Quid autem in thesáuro Domínicæ largitátis ad honórem præséntis festi tam cóngruum póssumus inveníre, quam pacem, quæ in nativitáte Dómini prima est angélico prædicáta concéntu? Ipsa enim est quæ parit fílios Dei,

@@ -20618,3 +20618,24 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 ### In I Nocturno
 
 {RUBRIC: Lectiónes de Epístola B. Pauli ad Romános hoc tríduo apposítæ, semper legúntur, in sua quǽque die, cum Responsóriis de Dominica infra Octávam, sive fiat Offícium de Sancto, sive de Dominica, sive de Octáva Nativitátis; nisi tamen legéndæ sint Lectiónes própriæ aut de Communi cujúsvis Festi occurréntis, juxta Rúbricas, quo in casu Lectiónes de Epístola ad
+Romános ea die omittúntur. Lectiónes tamen de Inítio ejúsdem Epístolæ hódie assignátæ, si impediántur ut supra, transferúntur in sequéntem diem in qua primo de éadem Epístola secus legi debéret, non exclúso ipso Festo Circumcisiónis Dómini, reténtis tamen, hoc in casu, Responsóriis eídem Circumcisiónis Festo assignátis.}
+
+{RUBRIC: Incipit Epístola beáti Pauli Apóstoli ad Romános}
+
+#### Lectio i
+
+*Cap. 1, 1-10*
+
+PAULUS, servus Jesu Christi, vocátus Apóstolus, segregátus in Evangélium Dei, quod ante promíserat per prophétas suos in Scriptúris sanctis de Fílio suo, qui factus est ei ex sémine David secúndum carnem, qui prædestinátus est Fílius Dei in virtúte secúndum spíritum sanctificatiónis, ex resurrectióne mortuórum Jesu Christi Dómini nostri: per quem accépimus grátiam, et apostolátum ad obediéndum fídei in ómnibus géntibus pro nómine ejus, in quibus estis et vos vocáti Jesu Christi: ómnibus qui sunt Romæ, diléctis Dei, vocátis sanctis. Grátia vobis, et pax a Deo Patre nostro et Dómino Jesu Christo.
+
+℟. Hódie nobis de cælo pax vera descéndit: \* Hódie per totum mundum mellíflui facti sunt cæli. ℣. Hódie illúxit nobis dies redemptiónis novæ, reparatiónis antíquæ, felicitátis ætérnæ. — Hódie per.
+
+#### Lectio ii
+
+PRIMUM quidem grátias ago Deo meo per Jesum Christum pro ómnibus vobis: quia fides vestra annuntiátur in univérso mundo. Testis enim mihi est Deus, cui sérvio in spíritu meo in Evangélio Fílii ejus, quod sine intermissióne memóriam vestri fácio semper in oratiónibus meis: óbsecrans, si quómodo tandem aliquándo prósperum iter hábeam in voluntáte Dei veniéndi ad vos. Desídero enim vidére vos: ut áliquid impértiar vobis grátiæ spirituális ad confirmándos vos: id est, simul consolári in vobis per eam, quæ ínvicem est, fidem vestram atque meam.
+
+℟. Quem vidístis, pastóres? dícite, annuntiáte nobis, in terris quis appáruit? \* Natum vídimus, et choros Angelórum collaudántes Dóminum. ℣. Dícite, quidnam vidístis? et annuntiáte Christi nativitátem. — Natum.
+
+#### Lectio iii
+
+NOLO autem vos ignoráre, fratres: quia sæpe propósui veníre ad vos (et

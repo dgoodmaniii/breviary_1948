@@ -25628,3 +25628,30 @@ HAS ergo habéntes promissiónes, caríssimi, mundémus nos ab omni inquinamént
 #### Lectio ii
 
 MULTA mihi fidúcia est apud vos, multa mihi gloriátio pro vobis, replétus sum consolatióne, superabúndo gáudio in omni tribulatióne nostra. Nam et cum venissémus in Macedóniam, nullam réquiem hábuit caro nostra, sed omnem tribulatiónem passi sumus: foris pugnæ, intus timóres. Sed qui consolátur húmiles, consolátus est nos Deus in advéntu Titi. Non solum
+autem in advéntu ejus, sed étiam in consolatióne, qua consolátus est in vobis, réferens nobis vestrum desidérium, vestrum fletum, vestram æmulatiónem pro me, ita ut magis gaudérem.
+
+℟. Parátum cor meum, Deus, parátum cor meum: \* Cantábo, et psalmum dicam Dómino. ℣. Exsúrge, glória mea, exsúrge, psaltérium et cíthara, exsúrgam dilúculo. — Cantábo.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Cantábo.}
+
+#### Lectio iii
+
+QUÓNIAM etsi contristávi vos in epístola, non me pœnitet: et si pœniteret, videns quod epístola illa (etsi ad horam) vos contristávit; nunc gáudeo: non quia contristáti estis, sed quia contristáti estis ad pœniténtiam. Contristáti enim estis secúndum Deum, ut in nullo detriméntum patiámini ex nobis. Quæ enim secúndum Deum tristítia est, pœniténtiam in salútem stábilem operátur: sǽculi autem tristítia mortem operátur.
+
+℟. Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea. ℣. Lætábor, et exsultábo in te, psallam nómini tuo, Altíssime. — Deus. Glória Patri. Deus.
+
+### Feria Quinta
+
+{RUBRIC: De Epístola secúnda ad Corínthios}
+
+#### Lectio i
+
+*Cap. 10, 1-12*
+
+IPSE autem ego Paulus óbsecro vos per mansuetúdinem et modéstiam Christi, qui in fácie quidem húmilis sum inter vos, absens autem confído in vobis. Rogo autem vos, ne præsens áudeam per eam confidéntiam, qua exístimor audére in quosdam, qui arbitrántur nos tamquam secúndum carnem ambulémus. In carne enim ambulántes, non secúndum carnem militámus.
+
+℟. Deus, in te sperávi, Dómine, non confúndar in ætérnum: in justítia tua líbera me, \* Et éripe me. ℣. Inclína ad me aurem tuam, et salva me. — Et.
+
+#### Lectio ii
+
+NAM arma milítiæ nostræ non carnália sunt, sed poténtia Deo ad destructiónem munitiónum, consília destruéntes, et omnem altitúdinem extolléntem se advérsus sciéntiam Dei, et in captivitátem redigéntes omnem intelléctum in obséquium

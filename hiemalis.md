@@ -16702,3 +16702,38 @@ et Regem Dóminum exercítuum vidi óculis meis. Et volávit ad me unus de Séra
 ET audívi vocem Dómini dicéntis: Quem mittam? et quis ibit nobis? Et dixi: Ecce ego, mitte me. Et dixit: Vade, et dices pópulo huic: Audíte audiéntes, et nolíte intellígere: et vidéte visiónem, et nolíte cognóscere. Excǽca cor pópuli hujus, et aures ejus ággrava, et óculos ejus claude, ne forte vídeat óculis suis, et áuribus suis áudiat, et corde suo intélligat, et convertátur, et sanem eum.
 
 ℟. Obsecro, Dómine, mitte quem missúrus es: vide afflictiónem pópuli tui: \* Sicut locútus es, veni,
+\* Et líbera nos. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Sicut. Glória Patri. Et.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Ecce véniet \* Deus et homo de domo David sedére in throno, allelúja.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccatórum nostrórum perículis, te mereámur protegénte éripi, te liberánte salvári: Qui vivis.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Ex Ægýpto \* vocávi Fílium meum: véniet, ut salvet pópulum suum.
+
+---
+
+### Sabbato
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 7, 1-15*
+
+ET factum est in diébus Achaz fílii Jóathan, fílii Ozíæ regis Juda, ascéndit Rasin rex Sýriæ, et Phácee fílius Romelíæ rex Israël, in Jerúsalem, ad præliándum contra eam:
+
+et non potuérunt debelláre eam. Et nuntiavérunt dómui David, dicéntes: Requiévit Sýria super Ephraim, et commótum est cor ejus, et cor pópuli ejus, sicut movéntur ligna silvárum a fácie venti. Et dixit Dóminus ad Isaíam: Egrédere in occúrsum Achaz tu, et qui derelíctus est Jasub fílius tuus, ad extrémum aquæductus piscínæ superióris in via Agri fullónis.
+
+℟. Ecce virgo concípiet, et páriet fílium, dicit Dóminus: \* Et vocábitur nomen ejus Admirábilis, Deus, Fortis. ℣. Super sólium David, et super regnum ejus sedébit in ætérnum. — Et.
+
+#### Lectio ii
+
+ET dices ad eum: Vide ut síleas: noli timére, et cor tuum ne formídet a duábus caudis titiónum fumigántium istórum in ira furóris Rasin regis Sýriæ, et fílii Romelíæ: eo quod consílium iníerit contra te Sýria in malum Ephraim, et fílius Romelíæ, dicéntes: Ascendámus ad Judam, et suscitémus eum, et avellámus eum ad nos, et ponámus regem in médio ejus fílium Tábeel.
+
+℟. Audíte verbum Dómini, gentes, et annuntiáte

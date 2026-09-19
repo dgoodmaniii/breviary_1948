@@ -25122,3 +25122,33 @@ GRÁTIAS ago Deo meo semper pro vobis in grátia Dei, quæ data est vobis in Chr
 OBSECRO autem vos, fratres, per nomen Dómini nostri Jesu Christi: ut idípsum dicátis omnes, et non sint in vobis schísmata: sitis autem perfécti in eódem sensu, et in eádem senténtia. Significátum est enim mihi de vobis, fratres mei, ab iis, qui sunt Chloës, quia contentiónes sunt inter vos. Hoc autem dico, quod unusquísque vestrum dicit: Ego quidem sum Pauli: ego autem Apóllo: ego vero Cephæ: ego autem Christi. Divísus est Christus? Numquid Paulus crucifíxus est pro vobis? aut in nómine Pauli baptizáti estis?
 
 ℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+## Infra Hebdomadam I post Epiphaniam
+
+### Feria Secunda
+
+{RUBRIC: De Epístola prima ad Corínthios}
+
+#### Lectio i
+
+*Cap. 2, 1-13*
+
+ET ego, cum veníssem ad vos, fratres, veni non in sublimitáte sermónis aut sapiéntiæ, annúntians vobis testimónium Christi. Non enim judicávi me scire áliquid inter vos, nisi Jesum Christum, et hunc crucifíxum. Et ego in infirmitáte, et timóre, et tremóre multo fui apud vos: et sermo meus, et prædicátio mea non in persuasibílibus humánæ sapiéntiæ verbis, sed in ostensióne spíritus et virtútis: ut fides vestra non sit in sapiéntia hóminum, sed in virtúte Dei.
+
+{RUBRIC: In hac et sequéntibus Fériis, si infra Octávam Epiphaníæ occúrrant, Offícium fit de Octáva et de ea dicúntur Responsória, ut supra: si vero extra eam incídant, Offícium fit íntegrum ut in Ordinário et Psaltério, et súmuntur Responsória singulis Fériis assignáta, ut infra: quæ étiam dicúntur in Festis tam trium quam novem Lectiónum in quibus súmuntur Lectiónes de Scriptúra occurrénti. Prima tamen die, qua hujúsmodi Lectiónes dicúntur, omíssis áliis Responsóriis ea die secus recitándis, súmuntur ea quæ huic Fériæ II sunt assignáta.}
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum et vox de cælo facta est. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Dómine, ne in ira tua árguas me, neque in furóre tuo corrípias me: \* Miserére mei, Dómine, quóniam infírmus sum. ℣. Timor et tremor venérunt super me, et contexérunt me ténebræ. — Miserére.
+
+#### Lectio ii
+
+SAPIÉNTIAM autem lóquimur inter perféctos: sapiéntiam vero non hujus sǽculi, neque prín-

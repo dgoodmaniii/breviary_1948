@@ -31288,4 +31288,20 @@ MARIUS Persa, nóbili loco natus, cum Martha cónjuge pari nobilitáte, et duób
 
 ℣. Lætámini in Dómino.
 
-**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.#### Oratio
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beatórum Mártyrum tuórum Fabiáni et Sebastiáni intercéssio gloriósa nos prótegat. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+FABIÁNUS Románus, a Maximíno usque ad Décium regens Ecclésiam, septem diáconis regiónes divísit, qui páuperum curam habérent. Tótidem subdiáconos creávit, qui res gestas Mártyrum a septem notáriis scriptas collígerent. Idem státuit, ut quotánnis féria quinta in Cœna Dómini, vétere combústo, chrisma renovarétur. Dénique décimo tértio Kaléndas Februárii in persecutióne Décii martýrio coronátus, in cœmetério Callísti via Áppia sepelítur, cum sedísset annos quíndecim, dies quátuor. Hic fecit ordinatiónes quinque mense Decémbri, quibus creávit presbýteros vigínti duos, diáconos septem, epíscopos per divérsa loca úndecim.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+#### Lectio v
+
+SEBASTIÁNUS ex patre Narbonénsi, matre Mediolanénsi natus, ob géneris nobilitátem et virtútem Diocletiáno carus fuit. Dux primæ cohórtis, Christiános, quorum fidem clam colébat, ópera et facultátibus adjuvábat; et qui ex eis tormentórum vim reformidáre videbántur, cohortatióne sic confirmábat, ut pro Jesu Christo multi se ultro tortóribus offérrent. In illis fuére Marcus et Marcelliánus fratres, qui Romæ in custódia erant apud Nicóstratum: cujus uxor Zoe vocem, quam amíserat, Sebastiáni oratióne recuperávit. Quibus Diocletiáno delátis, Sebastiánum accérsit, et veheméntius objurgátum ómnibus artifíciis a Christi fide conátur avértere. Sed cum nihil nec pollicéndo, nec terréndo profíceret, ad palum alligátum sagíttis confígi jubet.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nó-

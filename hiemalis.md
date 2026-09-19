@@ -4252,7 +4252,7 @@ Nunc et per omne séculum. Amen.
 
 ℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
 
-**Ad Bened. Ant.** Benedíctus † Dóminus, Deus Israël, quia visitávit et liberávit nos.
+**Ad Bened. Ant.** Benedíctus \* † Dóminus, Deus Israël, quia visitávit et liberávit nos.
 
 {RUBRIC: Reliqua ut in Ordinario. 11}
 
@@ -4355,3 +4355,227 @@ Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
 **Ant.** Deduc me in justítia tua, Dómine.
 
 **Ant.** Dóminus dabit virtútem.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Cum vénerit Fílius hóminis, putas invéniet fidem super terram?
+
+**Ant.** Ecce jam venit.
+
+### Psalmus 28
+
+AFFERTE Dómino, fílii Dei: \* afférte Dómino fílios aríetum.
+
+Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Vox Dómini super aquas, Deus majestátis intónuit: \* Dóminus super aquas multas.
+
+Vox Dómini in virtúte: \* vox Dómini in magnificéntia.
+
+Vox Dómini confringéntis cedros: \* et confrínget Dóminus cedros Líbani:
+
+Et commínuet eas tamquam vítulum Líbani: \* et diléctus quemádmodum fílius unicórnium.
+
+Vox Dómini intercidéntis flammam ignis: \* vox Dómini concutiéntis desértum: et commovébit Dóminus desértum Cades.
+
+Vox Dómini præparántis cervos, et revelábit condénsa: \* et in templo ejus omnes dicent glóriam.
+
+Dóminus dilúvium inhabitáre facit: \* et sedébit Dóminus Rex in ætérnum.
+
+Dóminus virtútem pópulo suo dabit: \* Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Dóminus dabit virtútem et benedícet pópulo suo in pace.
+
+**Ant.** Convérsus est furor tuus.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Ecce jam venit plenitúdo témporis, in quo misit Deus Fílium suum in terras.
+
+**Ant.** Hauriétis aquas.
+
+### Canticum Isaiæ
+
+*Is. 12, 1-6*
+
+CONFITEBOR tibi, Dómine, quóniam irátus es mihi: \* convérsus est furor tuus, et consolátus es me.
+
+Ecce Deus salvátor meus, \* fiduciáliter agam, et non timébo:
+
+Quia fortitúdo mea, et laus mea Dóminus, \* et factus est mihi in salútem.
+
+Hauriétis aquas in gáudio de fóntibus Salvatóris: \* et dicétis in die illa: Confitémini Dómino, et invocáte nomen ejus:
+
+Notas fácite in pópulis adinventiónes ejus: \* mementóte quóniam excélsum est nomen ejus.
+
+Cantáte Dómino quóniam magnífice fecit: \* annuntiáte hoc in univérsa terra.
+
+Exsúlta, et lauda, habitátio Sion: \* quia magnus in médio tui Sanctus Israël.
+
+**Ant.** Convérsus est furor tuus, Dómine, et consolátus es me.
+
+**Ant.** Laudáte. †
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Hauriétis aquas in gáudio de fóntibus Salvatóris.
+
+**Ant.** Egrediétur.
+
+### Psalmus 116
+
+LAUDATE † Dóminum, omnes gentes: \*‡ laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+**Ant.** Laudáte Dóminum, quóniam confirmáta est super nos misericórdia ejus.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Egrediétur Dóminus de loco sancto suo: véniet ut salvet pópulum suum.
+
+#### In Adventu
+
+**Capitulum** *Is. 2, 3*
+
+VENITE, et ascendámus ad montem Dómini, et ad domum Dei Jacob, et docébit nos vias suas, et ambulábimus in sémitis ejus: quia de Sion exíbit lex, et verbum Dómini de Jerúsalem.
+
+#### Hymnus
+
+EN, clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En, Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam:
+
+Ut, cum secúndo fúlserit
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula.
+Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicuntur sequentes}
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Pater noster, quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsquequo? ℟. Et deprecábilis esto super servos tuos. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Sacerdótes tui induántur justítiam. ℟. Et sancti tui exsúltent.
+
+℣. Orémus pro beatíssimo Papa nostro N. ℟. Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra, et non tradat eum in ánimam inimicórum ejus.
+
+℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui.
+
+℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+#### Per Annum
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+SPLENDOR Patérnæ glóriæ,
+De luce lucem próferens,
+Lux lucis, et fons lúminis,
+Diem dies illúminans:
+
+Verúsque sol illábere,
+Micans nitóre pérpeti:
+Jubárque Sancti Spíritus
+Infúnde nostris sénsibus.
+
+Votis vocémus et Patrem,
+Patrem poténtis grátiæ,
+Patrem perénnis glóriæ:
+Culpam reléget lúbricam.
+
+Confírmet actus strénuos:
+Dentes retúndat ínvidi:
+Casus secúndet ásperos:
+Agénda recte dírigat.
+
+Mentem gubérnet et regat:
+Sit pura nobis cástitas:
+Fides calóre férveat,
+Fraudis venéna nésciat.
+
+Christúsque nobis sit cibus,
+Potúsque noster sit fides:
+Læti bibámus sóbriam
+Profusiónem Spíritus.
+
+Lætus dies hic tránseat:
+Pudor sit ut dilúculum:
+Fides velut merídies:
+Crepúsculum mens nésciat.
+
+Auróra lucem próvehit,
+Cum luce nobis pródeat
+In Patre totus Fílius,
+Et totus in Verbo Pater.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Benedíctus \* † Dóminus, Deus Israël, quia visitávit et liberávit nos.
+
+{RUBRIC: In Vigiliis communibus Preces feriales, ut supra.} [REF: p. 93]
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+### Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+**Per Annum:** **Ant.** Innocens mánibus.
+
+{RUBRIC: ¶ Antiphonæ, in hac et aliis Feriis ad Primam, Tertiam, Sextam et Nonam appositæ, dicuntur semper in Officio feriali et in Festis sive trium sive novem Lectionum, quando juxta Rubricas sumendi sint Psalmi de Feria; atque adhibéntur étiam in Festis, quæ Témpore Advéntus celebrántur.}

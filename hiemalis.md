@@ -25053,3 +25053,28 @@ JOÁNNES baptízat, et accédit Jesus, sanctíficans quidem et ipsum, qui baptí
 #### Lectio vi
 
 ASCÉNDIT Jesus de aqua, secum quodámmodo demérsum edúcens et élevans mundum: et vidit non dívidi cælum, sed ape-
+ríri, quod sibi ac nobis post se aliquándo Adam ille conclúserat; sicut et ígneo gládio paradísus fúerat conclúsus. Spíritus Sanctus testimónium pérhibet: simília namque sibi ipsa concúrrunt. De cælo testimónium defértur: inde enim erat ille, cui testimónium perhibétur.
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 1, 29-34*
+
+IN illo témpore: Vidit Joánnes Jesum veniéntem ad se, et ait: Ecce Agnus Dei, ecce qui tollit peccátum mundi. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 6 in Joann. ante med.}
+
+ANTEQUAM veníret Dóminus ut baptizarétur a Joánne in Jordáne, nóverat eum illis vócibus, ubi ait: Tu ad me venis baptizári? ego a te débeo baptizári. Sed ecce Dóminum nóverat, nóverat Fílium Dei. Unde probámus quod jam nóverat, quia ipse baptizáret in Spíritu Sancto? Antequam veníret ad flúvium, cum multi ad Joánnem cúrrerent baptizári, ait illis: Ego quidem baptízo vos in aqua: qui autem post me venit, major me est: cujus non sum dignus corrígiam calceaménti sólvere: ipse vos baptizábit in Spíritu Sancto, et igni. Jam et hoc nóverat.
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+#### Lectio viii
+
+QUID ergo per colúmbam dídicit, ne mendax póstea inveniátur, (quod avértat a nobis Deus opinári) nisi quamdam proprietátem in Christo talem futúram, ut quamvis multi minístri baptizatúri essent, sive justi sive injústi, non tribuerétur sánctitas baptísmi nisi illi, super quem descéndit colúmba, de quo dictum est: Hic est qui baptízat in Spíritu Sancto? Petrus ba-

@@ -31754,4 +31754,16 @@ IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile erit reg
 
 {RUBRIC: Homilia 12 in Evangelia}
 
-SÆPE vos, fratres caríssimi, admóneo prava ópera fúgere, mundi hujus inquinaménta devitáre, sed hodiérna sancti Evangélii lectióne compéllor dícere,
+SÆPE vos, fratres caríssimi, admóneo prava ópera fúgere, mundi hujus inquinaménta devitáre, sed hodiérna sancti Evangélii lectióne compéllor dícere,bis rectum géritur, favor aut grátia humána requirátur; ne appetítus laudis subrépat, et quod foris osténditur, intus a mercéde vacuétur. Ecce enim Redemptóris voce decem vírgines, et omnes dicúntur vírgines, et tamen intra beatitúdinis jánuam non omnes sunt recéptæ; quia eárum quædam, dum de virginitáte sua glóriam foris éxpetunt, in vasis suis óleum habére noluérunt.
+
+℟. Ipsi sum desponsáta, cui Angeli sérviunt, cujus pulchritúdinem sol et luna mirántur: \* Ipsi soli servo fidem, ipsi me tota devotióne commítto. ℣. Déxteram meam et collum meum cinxit lapídibus pretiósis, trádidit áuribus meis inæstimábiles margarítas. — Ipsi soli.
+
+#### Lectio viii
+
+SED prius quæréndum nobis est quid sit regnum cælórum, aut cur decem virgínibus comparétur, quæ étiam vírgines prudéntes et fátuæ dicántur. Dum enim cælórum regnum constat quia reprobórum nullus ingréditur, étiam fátuis virgínibus cur símile esse perhibétur? Sed sciéndum nobis est quod sæpe in sacro elóquio regnum cælórum præséntis témporis Ecclésia dícitur. De quo álio in loco Dóminus dicit: Mittet Fílius hóminis Angelos suos, et cólligent de regno ejus ómnia scándala. Neque enim in illo regno beatitúdinis, in quo pax summa est, inveníri scándala póterunt, quæ colligántur.
+
+℟. Omnípotens, adoránde, coléende, treménde, benedíco te, \* Quia per Fílium tuum unigénitum evási minas hóminum impiórum, et spurcítias diáboli impollúto calle transívi. ℣. Te confíteor lábiis, te corde, te totis viscéribus concupísco. — Quia. Glória Patri. Quia.
+
+#### Lectio ix
+
+IN quinque autem córporis sénsibus unusquísque subsístit; geminátus autem quinárius denárium pérficit. Et, quia ex utróque sexu fidélium multitúdo collígitur, sancta Ecclésia decem virgínibus símilis esse denuntiátur. In qua quia mali cum bonis et réprobi cum eléctis admíxti sunt, recte símilis virgínibus prudéntibus et fátuis esse perhibétur. Sunt namque plerique continéntes, qui ab appetítu se exterióri custódiunt et spe ad interióra rapiúntur, carnem mácerant, et toto desidério ad

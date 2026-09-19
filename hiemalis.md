@@ -13603,3 +13603,43 @@ KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
 
 {RUBRIC: Reliqua ut in Ordinario. 25}
+
+**Per Annum**
+
+#### Capitulum
+
+*1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: Feria VI post Cineres et in Vigiliis communibus Preces feriales, ut supra. 268}
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+### Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Dómine, † probásti me, et cognovísti me. ‡
+
+#### Psalmus 138, i
+
+DÓMINE, † probásti me, et cognovísti me: \* ‡ tu cognovísti sessiónem meam, et resurrectiónem meam.
+
+Intellexísti cogitatiónes meas de longe: \* sémitam meam, et funículum meum investigásti.
+
+Et omnes vias meas prævidísti: \* quia non est sermo in lingua mea.
+
+**Ant.** Dómine, probásti me, et cognovísti me.
+
+**Ant.** Mirabília ópera tua, \* Dómine, et ánima mea cognóscit nimis.
+
+#### Psalmus 138, ii
+
+CONFITÉBOR tibi quia terribíliter magnificátus es: \* mirabília ópera tua, et ánima mea cognóscit nimis.

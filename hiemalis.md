@@ -11175,3 +11175,68 @@ ECCE, dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regn�
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
 Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, con-
+vérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 22}
+
+#### Per Annum
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+{RUBRIC: Feria V post Cineres et in Vigiliis communibus Preces feriales, ut supra.} [REF: p. 222]
+
+{RUBRIC: Reliqua ut in Ordinario. 21}
+
+---
+
+### Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Memor esto.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria V post Dominicam I:} **Ant.** Ecce Dóminus véniet.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** De Sion.
+
+### Psalmus 73, i
+
+UT quid, Deus, repulísti in finem: \* irátus est furor tuus super oves páscuæ tuæ?
+
+Memor esto congregatiónis tuæ, \* quam possedísti ab inítio.
+
+Redemísti virgam hereditátis tuæ: \* mons Sion, in quo habitásti in eo.
+
+Leva manus tuas in supérbias eórum in finem: \* quanta malignátus est inimícus in sancto!
+
+Et gloriáti sunt qui odérunt te: \* in médio solemnitátis tuæ.
+
+Posuérunt signa sua, signa: \* et non cognovérunt sicut in éxitu super summum.
+
+Quasi in silva lignórum secúribus excidérunt já-

@@ -19701,3 +19701,52 @@ INVÍCTE Martyr, únicum
 Patris secútus Fílium,
 Victis triúmphas hóstibus,
 Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tǽdium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vinclis séculi
+Dono supérni Núminis.
+
+\* Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sécula. Amen.
+
+℣. Sepeliérunt Stéphanum viri timoráti. ℟. Et fecérunt planctum magnum super eum.
+
+**Ad Bened. Ant.** Stéphanus autem \* plenus grátia et fortitúdine, faciébat signa magna in pópulo.
+
+#### Oratio
+
+DA nobis, quǽsumus, Dómine, imitári quod cólimus: ut discámus et inimícos dilígere; quia ejus natalítia celebrámus, qui novit étiam pro persecutóribus exoráre Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum.
+
+{RUBRIC: Et fit Commemorátio Octávæ Nativitátis:}
+
+**Ant.** Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+### Ad Tertiam
+
+**Capit.** Stéphanus. *410*
+
+℟. br. Glória et honóre \* Coronásti eum, Dómine. Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Coronásti. Glória Patri. Glória et. ℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Act. 6, 9-10*
+
+SURREXÉRUNT autem quidam de synagóga, quæ appellátur Libertinórum, et Cyrenénsium, et Alexandrinórum, et eórum qui erant a Cilícia, et Asia, disputántes cum Stéphano: et non póterant resístere sapiéntiæ, et Spirítui qui loquebátur.
+
+℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. Glória Patri. Posuísti. ℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.

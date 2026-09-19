@@ -6389,3 +6389,51 @@ Benedícat nos Deus, Deus noster, benedícat nos Deus: \* et métuant eum omnes 
 *Is. 38, 10-20*
 
 EGO dixi: In dimídio diérum meórum \* vadam ad portas ínferi.
+
+Quæsívi resíduum annórum meórum. \* Dixi: Non vidébo Dóminum Deum in terra vivéntium.
+
+Non aspíciam hóminem ultra, \* et habitatórem quiétis.
+
+Generátio mea abláta est, et convolúta est a me, \* quasi tabernáculum pastórum.
+
+Præcísa est, velut a texénte, vita mea: dum adhuc ordírer, succídit me: \* de mane usque ad vésperam fínies me.
+
+Sperábam usque ad mane, \* quasi leo sic contrívit ómnia ossa mea:
+
+De mane usque ad vésperam fínies me: \* sicut pullus hirúndinis sic clamábo, meditábor ut colúmba:
+
+Attenuáti sunt óculi mei, \* suspiciéntes in excélsum:
+
+Dómine, vim pátior, respónde pro me. \* Quid dicam, aut quid respondébit mihi, cum ipse fécerit?
+
+Recogitábo tibi omnes annos meos \* in amaritúdine ánimæ meæ.
+
+Dómine, si sic vívitur, et in tálibus vita spíritus mei, corrípies me, et vivificábis me. \* Ecce, in pace amaritúdo mea amaríssima:
+
+Tu autem eruísti ánimam meam ut non períret: \* projecísti post tergum tuum ómnia peccáta mea.
+
+Quia non inférnus confitébitur tibi, neque mors laudábit te: \* non exspectábunt qui descéndunt in lacum, veritátem tuam.
+
+Vivens vivens ipse confitébitur tibi, sicut et ego hódie: \* pater fíliis notam fáciet veritátem tuam.
+
+Dómine, salvum me fac, \* et psalmos nostros cantábimus cunctis diébus vitæ nostræ in domo Dómini.
+
+**Ant.** Corrípies me, Dómine, et vivificábis me.
+
+**Ant.** Laudáte. †
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Da mercédem, Dómine, sustinéntibus te, ut prophétæ tui fidéles inveniántur.
+
+**Ant.** Lex per Móysen data est.
+
+### Psalmus 134
+
+LAUDATE † nomen Dómini, \* laudáte, servi, Dóminum.
+
+Qui statis in domo Dómini, \* in átriis domus Dei nostri.
+
+Laudáte Dóminum, quia bonus Dóminus: \* psállite nómini ejus, quóniam suáve.
+
+Quóniam Jacob elégit sibi Dóminus, \* Israël in possessiónem sibi.
+
+Quia ego cognóvi quod magnus est Dóminus: \*

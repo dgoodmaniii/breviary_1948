@@ -9558,8 +9558,7 @@ Amen.
 
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
-Pater noster {RUBRIC: quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsquequo? ℟. Et deprecábilis esto super servos tuos. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Sacerdó-
- tes tui induántur justítiam. ℟. Et sancti tui exsúltent. ℣. Orémus pro beatíssimo Papa nostro N. ℟. Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra, et non tradat eum in ánimam inimicórum ejus. ℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui. ℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+Pater noster {RUBRIC: quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsquequo? ℟. Et deprecábilis esto super servos tuos. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Sacerdótes tui induántur justítiam. ℟. Et sancti tui exsúltent. ℣. Orémus pro beatíssimo Papa nostro N. ℟. Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra, et non tradat eum in ánimam inimicórum ejus. ℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui. ℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
 
 {RUBRIC: Reliqua ut in Ordinario. 27}
 
@@ -15809,7 +15808,7 @@ Induántur qui détrahunt mihi, pudóre: \* et operiántur sicut diplóide confu
 
 Confitébor Dómino nimis in ore meo: \* et in médio multórum laudábo eum.
 
-Quia ástitit a dextris páuperis, \* ut salvam fá-
+Quia ástitit a dextris páuperis, \* ut salvam fáciat a persequéntibus ánimam meam.
 
 {RUBRIC: Per Annum:} **Ant.** Ne tacúeris, Deus, quia sermónibus ódii circumdedérunt me.
 
@@ -16510,9 +16509,7 @@ SI voluéritis, et audiéritis me, bona terræ comedétis. Quod si noluéritis, 
 
 #### Lectio iii
 
-PROPTER hoc ait Dóminus Deus exercítuum fortis Israël: Heu, consolábor super hóstibus meis, et vindicábor de inimícis meis. Et convértam manum meam ad te, et éxcoquam ad purum scóriam tuam, et áuferam omne stannum tuum. Et restítuam júdices tuos ut fuérunt prius, et consiliários tuos sicut antíquitus: post hæc vocáberis cívitas justi, urbs fidélis. Sion in judício redimétur, et redúcent eam in justítia: et cónteret sceléstos, et pec-
-
-catóres simul: et qui dereliquérunt Dóminum, consuméntur.
+PROPTER hoc ait Dóminus Deus exercítuum fortis Israël: Heu, consolábor super hóstibus meis, et vindicábor de inimícis meis. Et convértam manum meam ad te, et éxcoquam ad purum scóriam tuam, et áuferam omne stannum tuum. Et restítuam júdices tuos ut fuérunt prius, et consiliários tuos sicut antíquitus: post hæc vocáberis cívitas justi, urbs fidélis. Sion in judício redimétur, et redúcent eam in justítia: et cónteret sceléstos, et peccatóres simul: et qui dereliquérunt Dóminum, consuméntur.
 
 ℟. Aliéni non transíbunt per Jerúsalem ámplius: \* Nam in illa die stillábunt montes dulcédinem, et colles fluent lac et mel, dicit Dóminus. ℣. Deus a Líbano véniet, et Sanctus de monte umbróso et condénso. — Nam. Glória Patri. Nam.
 
@@ -16544,9 +16541,7 @@ VERBUM, quod vidit Isaías, fílius Amos, super Judam et Jerúsalem. Et erit in 
 
 #### Lectio ii
 
-ET judicábit gentes, et árguet pópulos multos: et conflábunt gládios suos in vómeres, et lánceas suas in falces: non levábit gens contra gentem gládium, nec exercebúntur ultra ad prǽlium. Domus Jacob, veníte, et ambulé-
-
-mus in lúmine Dómini. Projecísti enim pópulum tuum, domum Jacob: quia repléti sunt ut olim, et áugures habuérunt ut Philísthiim, et púeris aliénis adhæsérunt.
+ET judicábit gentes, et árguet pópulos multos: et conflábunt gládios suos in vómeres, et lánceas suas in falces: non levábit gens contra gentem gládium, nec exercebúntur ultra ad prǽlium. Domus Jacob, veníte, et ambulémus in lúmine Dómini. Projecísti enim pópulum tuum, domum Jacob: quia repléti sunt ut olim, et áugures habuérunt ut Philísthiim, et púeris aliénis adhæsérunt.
 
 ℟. Erúmpant montes jucunditátem, et colles justítiam: \* Quia lux mundi Dóminus cum poténtia venit. ℣. De Sion exíbit lex, et verbum Dómini de Jerúsalem. — Quia.
 
@@ -16633,9 +16628,7 @@ CANTÁBO dilécto meo cánticum patruélis mei víneæ suæ: Vínea facta est di
 
 #### Lectio iii
 
-ET nunc osténdam vobis quid ego fáciam víneæ meæ: áuferam sepem ejus, et erit in direptiónem: díruam macériam ejus, et erit in conculcatiónem. Et ponam eam desértam: non putábitur, et non fodiétur: et ascéndent ve-
-
-pres et spinæ: et núbibus mandábo ne pluant super eam imbrem. Vínea enim Dómini exercítuum domus Israël est: et vir Juda germen ejus delectábile: et exspectávi ut fáceret judícium, et ecce iníquitas: et justítiam, et ecce clamor.
+ET nunc osténdam vobis quid ego fáciam víneæ meæ: áuferam sepem ejus, et erit in direptiónem: díruam macériam ejus, et erit in conculcatiónem. Et ponam eam desértam: non putábitur, et non fodiétur: et ascéndent vepres et spinæ: et núbibus mandábo ne pluant super eam imbrem. Vínea enim Dómini exercítuum domus Israël est: et vir Juda germen ejus delectábile: et exspectávi ut fáceret judícium, et ecce iníquitas: et justítiam, et ecce clamor.
 
 ℟. Missus est Gábriel Angelus ad Maríam Vírginem despónsatam Joseph, núntians ei verbum; et expavéscit Virgo de lúmine: ne tímeas, María, invenísti grátiam apud Dóminum: \* Ecce concípies et páries, et vocábitur Altíssimi Fílius. ℣. Dabit ei Dóminus Deus sedem David, patris ejus, et regnábit in domo Jacob in ætérnum. — Ecce. Glória Patri. Ecce.
 
@@ -16813,9 +16806,7 @@ ET egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet. Et req
 
 ET percútiet terram virga oris sui, et spíritu labiórum suórum interfíciet ímpium. Et erit justítia cíngulum lumbórum ejus: et fides cinctórium renum ejus. Habitábit lupus cum agno, et pardus cum hædo accubábit: vítulus, et leo, et ovis simul morabúntur, et puer párvulus minábit eos. Vítulus et ursus pascéntur: simul requiéscent cátuli eórum: et leo, quasi bos, cómedet páleas.
 
-℟. Ecce Dóminus véniet, et omnes Sancti ejus cum eo, et erit in die illa lux magna: et exíbunt de Je-
-
-rúsalem sicut aqua munda: et regnábit Dóminus in ætérnum \* Super omnes gentes. ℣. Ecce Dóminus cum virtúte véniet: et regnum in manu ejus, et potéstas, et impérium. — Super.
+℟. Ecce Dóminus véniet, et omnes Sancti ejus cum eo, et erit in die illa lux magna: et exíbunt de Jerúsalem sicut aqua munda: et regnábit Dóminus in ætérnum \* Super omnes gentes. ℣. Ecce Dóminus cum virtúte véniet: et regnum in manu ejus, et potéstas, et impérium. — Super.
 
 #### Lectio iii
 
@@ -17160,9 +17151,7 @@ ECCE Dóminus dissipábit terram, et nudábit eam, et afflíget fáciem ejus, et
 
 #### Lectio ii
 
-LUXIT, et deflúxit terra, et infirmáta est: deflúxit orbis, infirmáta est altitúdo pópuli terræ. Et terra infécta est ab habitatóribus suis: quia transgréssi sunt leges, mutavérunt jus, dissipavérunt fœdus sempitérnum. Propter hoc maledíctio vorábit terram, et peccábunt habitatóres ejus: ideóque insá-
-
-nient cultóres ejus, et relinquéntur hómines pauci.
+LUXIT, et deflúxit terra, et infirmáta est: deflúxit orbis, infirmáta est altitúdo pópuli terræ. Et terra infécta est ab habitatóribus suis: quia transgréssi sunt leges, mutavérunt jus, dissipavérunt fœdus sempitérnum. Propter hoc maledíctio vorábit terram, et peccábunt habitatóres ejus: ideóque insánient cultóres ejus, et relinquéntur hómines pauci.
 
 ℟. Sicut mater consolátur fílios suos, ita consolábor vos, dicit Dóminus: et de Jerúsalem civitáte quam elégi, véniet vobis auxílium: \* Et vidébitis, et gaudébit cor vestrum. ℣. Dabo in Sion salútem, et in Jerúsalem glóriam meam. — Et.
 
@@ -17183,9 +17172,7 @@ EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus 
 
 ℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
 
-**Ad Magnif. Ant.** Cantáte Dómino \* cánticum novum: laus ejus ab extré-
-
-mis terræ.
+**Ad Magnif. Ant.** Cantáte Dómino \* cánticum novum: laus ejus ab extrémis terræ.
 
 ---
 
@@ -17210,9 +17197,7 @@ marcéscere fácies. Et fáciet Dóminus exercítuum ómnibus pópulis in monte 
 
 #### Lectio iii
 
-PRÆCIPITÁBIT mortem in sempitérnum: et áuferet Dóminus Deus lácrimam ab omni fácie, et oppróbrium pópuli sui áuferet de univérsa terra: quia Dóminus locútus est. Et dicet in die illa: Ecce Deus noster iste, exspectávimus eum, et salvábit nos: iste Dóminus, sustinúimus eum, exsultábimus, et lætábimur in salutári ejus. Quia requiéscet manus Dómini in monte isto: et triturábitur Moab sub eo, sícuti terúntur páleæ in plaustro. Et exténdet manus suas sub eo, sicut exténdit natans ad natándum: et humiliábit glóriam ejus cum allisióne mánuum ejus. Et mu-
-
-niménta sublímium murórum tuórum cóncident, et humiliabúntur, et detrahéntur in terram usque ad púlverem.
+PRÆCIPITÁBIT mortem in sempitérnum: et áuferet Dóminus Deus lácrimam ab omni fácie, et oppróbrium pópuli sui áuferet de univérsa terra: quia Dóminus locútus est. Et dicet in die illa: Ecce Deus noster iste, exspectávimus eum, et salvábit nos: iste Dóminus, sustinúimus eum, exsultábimus, et lætábimur in salutári ejus. Quia requiéscet manus Dómini in monte isto: et triturábitur Moab sub eo, sícuti terúntur páleæ in plaustro. Et exténdet manus suas sub eo, sicut exténdit natans ad natándum: et humiliábit glóriam ejus cum allisióne mánuum ejus. Et muniménta sublímium murórum tuórum cóncident, et humiliabúntur, et detrahéntur in terram usque ad púlverem.
 
 ℟. Ecce Dóminus véniet cum splendóre descéndens, et virtus ejus cum eo, \* Visitáre pópulum suum in pace, et constitúere super eum vitam sempitérnam. ℣. Ecce Dóminus noster cum virtúte véniet. — Visitáre. Glória Patri. Visitáre.
 
@@ -17351,9 +17336,7 @@ SEMPER enim virtúti cibus jejúnium fuit. De abstinéntia dénique pródeunt ca
 
 #### Lectio vi
 
-STUDEÁMUS viduárum defensióni, pupillórum utilitáti, lugéntium consolatióni, dissidéntium paci. Suscipiátur peregrínus, adjuvétur oppréssus, vestiátur nudus, foveátur ægrótus: ut quicúmque nostrum de justis labóribus auctóri bonórum ómnium Deo sacrifícium hujus pietátis obtúlerit, ab eódem regni cæléstis prǽmium percípere mereátur. Quarta ígitur et sexta féria jejunémus; sábbato autem apud beátum Petrum Apóstolum páriter vigilémus: cujus suffragántibus méritis, quæ póscimus, impetráre possímus per Dóminum nostrum Je-
-
-sum Christum, qui cum Patre et Sancto Spíritu vivit et regnat in sǽcula sæculórum. Amen.
+STUDEÁMUS viduárum defensióni, pupillórum utilitáti, lugéntium consolatióni, dissidéntium paci. Suscipiátur peregrínus, adjuvétur oppréssus, vestiátur nudus, foveátur ægrótus: ut quicúmque nostrum de justis labóribus auctóri bonórum ómnium Deo sacrifícium hujus pietátis obtúlerit, ab eódem regni cæléstis prǽmium percípere mereátur. Quarta ígitur et sexta féria jejunémus; sábbato autem apud beátum Petrum Apóstolum páriter vigilémus: cujus suffragántibus méritis, quæ póscimus, impetráre possímus per Dóminum nostrum Jesum Christum, qui cum Patre et Sancto Spíritu vivit et regnat in sǽcula sæculórum. Amen.
 
 ℟. Descéndet Dóminus sicut plúvia in vellus: \* Oriétur in diébus ejus justítia, et abundántia pacis. ℣. Et adorábunt eum omnes reges, omnes gentes sérvient ei. — Oriétur. Glória Patri. Oriétur.
 
@@ -17669,9 +17652,7 @@ VÆ corónæ supérbiæ, ébriis Ephraim, et flori decidénti, glóriæ exsultat
 
 ET erit flos decídens glóriæ exsultatiónis ejus, qui est super vérticem vallis pínguium, quasi temporáneum ante maturitátem autúmni: quod cum aspéxerit videns, statim ut manu tenúerit, devorábit illud. In die illa erit Dóminus exercítuum coróna glóriæ, et sertum exsultatiónis resíduo pópuli sui; et spíritus judícii sedénti super judícium, et fortitúdo reverténtibus de bello ad portam. Verum hi
 
-quoque præ vino nesciérunt, et præ ebrietáte errávérunt: sacérdos et pro-
-
-phéta nesciérunt præ ebrietáte, absórpti sunt a vino.
+quoque præ vino nesciérunt, et præ ebrietáte errávérunt: sacérdos et prophéta nesciérunt præ ebrietáte, absórpti sunt a vino.
 
 ℟. Béthlehem, cívitas Dei summi, ex te éxiet Dominátor Israël, et egréssus ejus sicut a princípio diérum æternitátis, et magnificábitur in médio univérsæ terræ: \* Et pax erit in terra nostra, dum vénerit. ℣. Loquétur pacem in géntibus, et potéstas ejus a mari usque ad mare. — Et.
 
@@ -17875,9 +17856,7 @@ plena, nisi ad superióra cum festinatióne conténderet? Nescit tarda molímina
 
 DÍSCITE et vos, sanctæ mulíeres, sedulitátem, quam prægnántibus debéatis exhibére cognátis. Maríam, quæ ante sola in íntimis penetrálibus versabátur, non a público virginitátis pudor, non ab stúdio aspéritas móntium, non ab offício prolíxitas itíneris retardávit. In montána Virgo cum festinatióne, Virgo offícii memor, injúriæ ímmemor, afféctu urgénte, non sexu, relícta perréxit domo. Díscite, vírgines, non circumcursáre per aliénas ædes, non demorári in platéis, non áliquos in público miscére sermónes. María in domo sera, festína in público, mansit apud cognátam suam tribus ménsibus.
 
-℣. Roráte, cæli, désuper, et nubes pluant justum: \* Aperiátur terra, et gérminet Salvatórem. ℣. Emítte Agnum, Dómi-
-
-ne, Dominatórem terræ, de Petra desérti ad montem fíliæ Sion. — Aperiátur.
+℣. Roráte, cæli, désuper, et nubes pluant justum: \* Aperiátur terra, et gérminet Salvatórem. ℣. Emítte Agnum, Dómine, Dominatórem terræ, de Petra desérti ad montem fíliæ Sion. — Aperiátur.
 
 #### Lectio iii
 
@@ -17927,9 +17906,7 @@ ANNO quintodécimo impérii Tibérii Cǽsaris, procuránte Póntio Piláto Judǽ
 
 {RUBRIC: Homilia 20 in Evang.}
 
-REDEMPTÓRIS nostri Præcúrsor, quo témpore prædicatiónis offícium ac-
-
-céperit, memoráto Románæ reipúblicæ príncipe, et Judǽæ régibus, designátur. Quia enim illum prædicáre veniébat, qui et ex Judǽa quosdam, et multos ex géntibus redemptúrus erat: per regem géntium et príncipes Judæórum prædicatiónis ejus témpora designántur. Quia autem gentílitas colligénda erat, et Judǽa pro culpa perfídiæ dispergénda, ipsa quoque descríptio terréni principátus osténdit: quóniam et in Romána república unus præfuísse descríbitur, et in Judǽæ regno per quartam partem plúrimi principabántur.
+REDEMPTÓRIS nostri Præcúrsor, quo témpore prædicatiónis offícium accéperit, memoráto Románæ reipúblicæ príncipe, et Judǽæ régibus, designátur. Quia enim illum prædicáre veniébat, qui et ex Judǽa quosdam, et multos ex géntibus redemptúrus erat: per regem géntium et príncipes Judæórum prædicatiónis ejus témpora designántur. Quia autem gentílitas colligénda erat, et Judǽa pro culpa perfídiæ dispergénda, ipsa quoque descríptio terréni principátus osténdit: quóniam et in Romána república unus præfuísse descríbitur, et in Judǽæ regno per quartam partem plúrimi principabántur.
 
 ℟. Egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet: \* Et erit justítia cíngulum lumbórum ejus, et fides cinctórium renum ejus. ℣. Et requiéscet super eum spíritus Dómini: spíritus sapiéntiæ, et intelléctus: spíritus consílii, et fortitúdinis. — Et erit.
 
@@ -17942,9 +17919,7 @@ quibus sacerdótibus actum sit, demonstrátur: et quia illum Joánnes Baptísta 
 
 #### Lectio iii
 
-ET venit in omnem regiónem Jordánis, prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum. Cunctis legéntibus liquet, quia Joánnes non solum baptísmum pœniténtiæ prædicávit, verum étiam quibúsdam dedit: sed tamen baptísmum suum in remissiónem peccatórum dare non pótuit. Remíssio étenim peccatórum in solo nobis baptísmo Christi tribúitur. Notándum itaque, quod dícitur: Prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum: quóniam baptísmum, quod sólveret, peccáta quia da-
-
-bat verbo prædicatiónis, ita baptísmum pœniténtiæ, quo peccáta solvúntur, præcúrreret suo baptísmate, quo peccáta solvi non possunt.
+ET venit in omnem regiónem Jordánis, prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum. Cunctis legéntibus liquet, quia Joánnes non solum baptísmum pœniténtiæ prædicávit, verum étiam quibúsdam dedit: sed tamen baptísmum suum in remissiónem peccatórum dare non pótuit. Remíssio étenim peccatórum in solo nobis baptísmo Christi tribúitur. Notándum itaque, quod dícitur: Prǽdicans baptísmum pœniténtiæ in remissiónem peccatórum: quóniam baptísmum, quod sólveret, peccáta quia dabat verbo prædicatiónis, ita baptísmum pœniténtiæ, quo peccáta solvúntur, præcúrreret suo baptísmate, quo peccáta solvi non possunt.
 
 ℟. Veni, Dómine, et noli tardáre: reláxa facínora plebi tuæ, \* Et révoca dispérsos in terram suam. ℣. Excita, Dómine, poténtiam tuam, et veni, ut salvos fácias nos. — Et. Glória Patri. Et.
 
@@ -18111,9 +18086,7 @@ SED quia jam peccávimus, quia usu malæ consuetúdinis involúti sumus: dicat q
 
 #### Lectio ix
 
-AT si quis in fornicatiónis culpam, vel fortásse, quod est grávius, in adultérium lapsus est: tanto a se lícita debet abscíndere, quanto se mémi-
-
-nit et illícita perpetrásse. Neque enim par fructus boni óperis esse debet, ejus qui minus, et ejus qui ámplius delíquit: aut ejus qui in nullis, et ejus qui in quibúsdam facinóribus cécidit, et ejus qui in multis est lapsus. Per hoc ergo quod dícitur: Fácite fructus dignos pœniténtiæ: uniuscujúsque consciéntia convenítur, ut tanto majóra acquírat bonórum ópérum lucra per pœniténtiam, quanto gravióra sibi íntulit damna per culpam.
+AT si quis in fornicatiónis culpam, vel fortásse, quod est grávius, in adultérium lapsus est: tanto a se lícita debet abscíndere, quanto se méminit et illícita perpetrásse. Neque enim par fructus boni óperis esse debet, ejus qui minus, et ejus qui ámplius delíquit: aut ejus qui in nullis, et ejus qui in quibúsdam facinóribus cécidit, et ejus qui in multis est lapsus. Per hoc ergo quod dícitur: Fácite fructus dignos pœniténtiæ: uniuscujúsque consciéntia convenítur, ut tanto majóra acquírat bonórum ópérum lucra per pœniténtiam, quanto gravióra sibi íntulit damna per culpam.
 
 ℟. Intuémini, quantus sit iste, qui ingréditur ad salvándas gentes: ipse est Rex justítiæ, \* Cujus generátio non habet finem. ℣. Præcúrsor pro nobis ingréditur, secúndum órdinem Melchísedech Póntifex factus in ætérnum. — Cujus. Glória Patri. Cujus.
 
@@ -18795,9 +18768,7 @@ Proptérea pópuli confitebúntur tibi in ætérnum: \* et in séculum séculi.
 
 *Cap. 9, 1-6*
 
-PRIMO témpore alleviáta est terra Zábulon, et terra Néphthali: et novíssimo aggraváta est via maris trans Jordánem Galilǽæ géntium. Pópulus qui ambulábat in ténebris, vidit lucem magnam: habitántibus in regióne umbræ mortis, lux orta est eis. Multiplicásti gentem, et non magnificásti lætítiam. Lætabúntur coram te, sicut qui lætántur in messe, sicut exsúltant victóres, capta prǽda, quando dívidunt spólia. Jugum enim óneris ejus, et virgam húmeri ejus, et sceptrum exactóris ejus superásti sicut in die Mádian. Quia omnis violénta prædátio cum tumúltu, et vestiméntum mistum sánguine, erit in combustiónem, et cibus ignis. Párvulus enim natus est nobis, et fílius datus est nobis, et factus est principátus super húme-
-
-rum ejus: et vocábitur nomen ejus, Admirábilis, Consiliárius, Deus, Fortis, Pater futúri séculi, Princeps pacis.
+PRIMO témpore alleviáta est terra Zábulon, et terra Néphthali: et novíssimo aggraváta est via maris trans Jordánem Galilǽæ géntium. Pópulus qui ambulábat in ténebris, vidit lucem magnam: habitántibus in regióne umbræ mortis, lux orta est eis. Multiplicásti gentem, et non magnificásti lætítiam. Lætabúntur coram te, sicut qui lætántur in messe, sicut exsúltant victóres, capta prǽda, quando dívidunt spólia. Jugum enim óneris ejus, et virgam húmeri ejus, et sceptrum exactóris ejus superásti sicut in die Mádian. Quia omnis violénta prædátio cum tumúltu, et vestiméntum mistum sánguine, erit in combustiónem, et cibus ignis. Párvulus enim natus est nobis, et fílius datus est nobis, et factus est principátus super húmerum ejus: et vocábitur nomen ejus, Admirábilis, Consiliárius, Deus, Fortis, Pater futúri séculi, Princeps pacis.
 
 ℟. Hódie nobis cælórum Rex de Vírgine nasci dignátus est, ut hóminem pérditum ad cæléstia regna revocáret: \* Gaudet exércitus Angelórum: quia salus ætérna humáno géneri appáruit. ℣. Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis. — Gaudet. Glória Patri.
 
@@ -19165,9 +19136,7 @@ IN illo témpore: Exiit edíctum a Cǽsare Augústo, ut describerétur univérsu
 
 {RUBRIC: Homilia 8 in Evang.}
 
-QUIA, largiénte Dómino, Missárum solémnia ter hódie celebratúri sumus, loqui diu de evangélica lectióne non póssumus; sed nos áliquid vel bréviter dícere, Redemptóris nostri Natívitas ipsa compéllit. Quid est enim, quod nascitúro Dómino mundus descríbitur, nisi hoc, quod apérte monstrátur, quia ille apparébat in carne, qui eléctos suos adscríberet in æternitáte? Quo contra de réprobis per prophétam dí-
-
-cítur: Deleántur de libro vivéntium, et cum justis non scribántur. Qui bene étiam in Béthlehem náscitur: Béthlehem quippe domus panis interpretátur. Ipse namque est, qui ait: Ego sum panis vivus, qui de cælo descéndi. Locus ergo, in quo Dóminus náscitur, domus panis ántea vocátus est; quia futúrum profécto erat, ut ille ibi per matériam carnis apparéret, qui electórum mentes intérna satietáte refíceret. Qui non in paréntum domo, sed in via náscitur: ut profécto osténderet, quia per humanitátem suam, quam assúmpserat, quasi in aliéno nascebátur.
+QUIA, largiénte Dómino, Missárum solémnia ter hódie celebratúri sumus, loqui diu de evangélica lectióne non póssumus; sed nos áliquid vel bréviter dícere, Redemptóris nostri Natívitas ipsa compéllit. Quid est enim, quod nascitúro Dómino mundus descríbitur, nisi hoc, quod apérte monstrátur, quia ille apparébat in carne, qui eléctos suos adscríberet in æternitáte? Quo contra de réprobis per prophétam dícítur: Deleántur de libro vivéntium, et cum justis non scribántur. Qui bene étiam in Béthlehem náscitur: Béthlehem quippe domus panis interpretátur. Ipse namque est, qui ait: Ego sum panis vivus, qui de cælo descéndi. Locus ergo, in quo Dóminus náscitur, domus panis ántea vocátus est; quia futúrum profécto erat, ut ille ibi per matériam carnis apparéret, qui electórum mentes intérna satietáte refíceret. Qui non in paréntum domo, sed in via náscitur: ut profécto osténderet, quia per humanitátem suam, quam assúmpserat, quasi in aliéno nascebátur.
 
 ℟. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium: et beáta úbera, quæ lactavérunt Christum Dóminum: \* Qui hódie pro salúte mundi de Vírgine nasci dignátus est. ℣. Dies sanctificátus illúxit nobis: veníte, gentes, et adoráte Dóminum. — Qui.
 
@@ -19589,9 +19558,7 @@ noster trábea carnis indútus, de aula úteri virginális egrédiens, visitáre
 
 #### Lectio v
 
-ASCÉNDIT iste lapidántibus Judǽis, quia ille descéndit lætántibus Angelis. Glória in excélsis Deo, heri sancti Angeli exsultántes cantavérunt: hódie Stéphanum lætántes in suum consórtium suscepérunt. Heri Dóminus exívit de útero Vírginis: hódie miles egréssus est de ergástulo carnis. Heri Christus pro nobis pannis est invo-
-
-lútus: hódie Stéphanus stola est ab eo immortalitátis indútus. Heri prǽsépis angústia Christum portávit infántem: hódie imménsitas cæli suscépit Stéphanum triumphántem. Solus Dóminus descéndit, ut multos eleváret: humiliávit se Rex noster, ut suos mílites exaltáret.
+ASCÉNDIT iste lapidántibus Judǽis, quia ille descéndit lætántibus Angelis. Glória in excélsis Deo, heri sancti Angeli exsultántes cantavérunt: hódie Stéphanum lætántes in suum consórtium suscepérunt. Heri Dóminus exívit de útero Vírginis: hódie miles egréssus est de ergástulo carnis. Heri Christus pro nobis pannis est involútus: hódie Stéphanus stola est ab eo immortalitátis indútus. Heri prǽsépis angústia Christum portávit infántem: hódie imménsitas cæli suscépit Stéphanum triumphántem. Solus Dóminus descéndit, ut multos eleváret: humiliávit se Rex noster, ut suos mílites exaltáret.
 
 ℟. Impetum fecérunt unanímiter in eum, et ejecérunt eum extra civitátem, invocántem et dicéntem: \* Dómine Jesu, áccipe spíritum meum. ℣. Et testes deposuérunt vestiménta sua secus pedes adolescéntis, qui vocabátur Saulus: et lapidábant Stéphanum invocántem et dicéntem. — Dómine.
 
@@ -20353,9 +20320,7 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 
 #### Lectio iv
 
-EXCÉDIT quidem, dilectíssimi, multúmque superéminet humáni elóquii facultátem divíni óperis magnitúdo: et inde óritur difficúltas fandi, unde adest rátio non tacéndi. Quia in Christo Jesu Fílio Dei non solum ad divínam esséntiam, sed étiam ad humánam spectat natúram quod dictum est per prophétam: Generatiónem ejus quis enarrá-
-
-bit? Utrámque enim substántiam in unam convenísse persónam, nisi fides credat, sermo non explicat. Et ídeo numquam matéria déficit laudis, quia numquam súfficit cópia laudatóris.
+EXCÉDIT quidem, dilectíssimi, multúmque superéminet humáni elóquii facultátem divíni óperis magnitúdo: et inde óritur difficúltas fandi, unde adest rátio non tacéndi. Quia in Christo Jesu Fílio Dei non solum ad divínam esséntiam, sed étiam ad humánam spectat natúram quod dictum est per prophétam: Generatiónem ejus quis enarrábit? Utrámque enim substántiam in unam convenísse persónam, nisi fides credat, sermo non explicat. Et ídeo numquam matéria déficit laudis, quia numquam súfficit cópia laudatóris.
 
 ℟. Beáta Dei Génitrix María, cujus víscera intácta pérmanent: \* Hódie génuit Salvatórem séculi. ℣. Beáta, quæ crédidit: quóniam perfécta sunt ómnia, quæ dicta sunt ei a Dómino. — Hódie.
 
@@ -20751,9 +20716,7 @@ OMNIBUS quidem diébus, dilectíssimi, atque tempóribus, ánimis fidélium div�
 
 #### Lectio v
 
-HÓDIE enim auctor mundi éditus est útero virgináli, et qui omnes natúras cóndidit, ejus est factus fílius, quam creávit. Hódie Verbum Dei carne appáruit vestítum, et quod numquam fuit humánis óculis visíbile, cœpit étiam mánibus esse tractábile. Hódie génitum in nostræ carnis animǽque substán-
-
-tia Salvatórem angélicis vócibus didicére pastóres, et apud Dominicórum prǽsules gregum hódie evangelizándi forma præcóndita est; ut nos quoque cum cæléstis milítiæ dicámus exércitu: Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis.
+HÓDIE enim auctor mundi éditus est útero virgináli, et qui omnes natúras cóndidit, ejus est factus fílius, quam creávit. Hódie Verbum Dei carne appáruit vestítum, et quod numquam fuit humánis óculis visíbile, cœpit étiam mánibus esse tractábile. Hódie génitum in nostræ carnis animǽque substántia Salvatórem angélicis vócibus didicére pastóres, et apud Dominicórum prǽsules gregum hódie evangelizándi forma præcóndita est; ut nos quoque cum cæléstis milítiæ dicámus exércitu: Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis.
 
 ℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
 
@@ -20816,9 +20779,7 @@ NEC contemnénda putes quasi vília verba pastórum. A pastóribus enim María f
 
 #### Oratio
 
-REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Silvéstrum Summum Pontí-
-
-ficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Silvéstrum Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
 
 {RUBRIC: Et fit Commemoratio præcedéntis diei infra Octavam:}
 
@@ -20870,9 +20831,7 @@ Sorácte monte latitáverat; et trigésimum annum agens, présbyter sanctæ Rom�
 
 #### Lectio v
 
-ITAQUE, auctóre Silvéstro, pius imperátor quam christifidélibus públice templa exstruéndi tribúerat facultátem, eam exémplo suo confirmávit. Multas enim eréxit basí-
-
-licas, scílicet Lateranénsem Christo Servatóri, Vaticánam sancto Petro, Ostiénsem sancto Paulo, sancto Lauréntio in Agro Veráno, sanctæ Cruci in Átrio Sessoriáno, sancto Petro et Marcellíno ac sanctæ Agnéti in viis Lavicána et Nomentána, et álias; quas sacris imagínibus spléndide exornávit, et, munéribus prædiísque attribútis, magnificentíssime locupletávit. Hoc Pontífice hábitum est Concílium Nicǽnum primum, ubi præsidéntibus ejus legátis, præsénteque Constantíno et trecéntis decem et octo epíscopis, sancta et cathólica fides explicáta est, Ário ejúsque sectatóribus condemnátis; quod étiam Concílium, peténtibus Pátribus, confirmávit in sýnodo Romæ hábita, ubi íterum Aríus condemnátus est. Multa idem decréta fecit Ecclésiæ Dei utília, quæ sub ejus nómine recenséntur: id est, ut a solo epíscopo chrisma conficerétur; ut présbyter chrísmate baptizáti summum liníret vérticem; ut diáconi dalmáticis in ecclésia, et palla linóstima ad lævam uteréntur; ut in líneo tantum velo sacrifícium altáris conficerétur.
+ITAQUE, auctóre Silvéstro, pius imperátor quam christifidélibus públice templa exstruéndi tribúerat facultátem, eam exémplo suo confirmávit. Multas enim eréxit basílicas, scílicet Lateranénsem Christo Servatóri, Vaticánam sancto Petro, Ostiénsem sancto Paulo, sancto Lauréntio in Agro Veráno, sanctæ Cruci in Átrio Sessoriáno, sancto Petro et Marcellíno ac sanctæ Agnéti in viis Lavicána et Nomentána, et álias; quas sacris imagínibus spléndide exornávit, et, munéribus prædiísque attribútis, magnificentíssime locupletávit. Hoc Pontífice hábitum est Concílium Nicǽnum primum, ubi præsidéntibus ejus legátis, præsénteque Constantíno et trecéntis decem et octo epíscopis, sancta et cathólica fides explicáta est, Ário ejúsque sectatóribus condemnátis; quod étiam Concílium, peténtibus Pátribus, confirmávit in sýnodo Romæ hábita, ubi íterum Aríus condemnátus est. Multa idem decréta fecit Ecclésiæ Dei utília, quæ sub ejus nómine recenséntur: id est, ut a solo epíscopo chrisma conficerétur; ut présbyter chrísmate baptizáti summum liníret vérticem; ut diáconi dalmáticis in ecclésia, et palla linóstima ad lævam uteréntur; ut in líneo tantum velo sacrifícium altáris conficerétur.
 
 ℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
 
@@ -21132,9 +21091,7 @@ BEATITÚDO ergo hæc in circumcisióne tantum manet, an étiam in præpútio? D�
 
 #### Lectio iii
 
-NON enim per legem promíssio Abrahæ, aut sémini ejus ut heres esset mundi: sed per justítiam fídei. Si enim qui ex lege, herédes sunt: exinaníta est fides, abolíta est promíssio. Lex enim iram operátur. Ubi enim non est lex: nec prævaricátio. Ideo ex fide, ut secúndum grátiam firma sit promíssio omni sémini, non ei, qui ex lege est solum, sed et ei, qui ex fide est Abrahæ, qui pater est ómnium nostrum (sicut scriptum est: Quia patrem multárum géntium pósui te) ante Deum, cui crédidit, qui vivíficat mórtuos, et vo-
-
-cat ea quæ non sunt, tamquam ea quæ sunt.
+NON enim per legem promíssio Abrahæ, aut sémini ejus ut heres esset mundi: sed per justítiam fídei. Si enim qui ex lege, herédes sunt: exinaníta est fides, abolíta est promíssio. Lex enim iram operátur. Ubi enim non est lex: nec prævaricátio. Ideo ex fide, ut secúndum grátiam firma sit promíssio omni sémini, non ei, qui ex lege est solum, sed et ei, qui ex fide est Abrahæ, qui pater est ómnium nostrum (sicut scriptum est: Quia patrem multárum géntium pósui te) ante Deum, cui crédidit, qui vivíficat mórtuos, et vocat ea quæ non sunt, tamquam ea quæ sunt.
 
 ℟. Benedíctus qui venit in nómine Dómini, Deus Dóminus, et illúxit nobis: \* Allelúja, allelúja. ℣. Hæc dies quam fecit Dóminus, exsultémus et lætémur in ea. — Allelúja, allelúja. Glória Patri. Allelúja, allelúja.
 
@@ -21372,9 +21329,7 @@ sub lege, ut eos, qui sub lege essent, lucrifáceret. Ut sísterent eum Dómino.
 
 #### Lectio viii
 
-SED quóniam prona quadam cupiditáte peccándi, humánæ carnis et mentis fragílitas inextricábilibus vítiis implicátur, eo per octávum circumcisiónis diem culpæ totíus futúra purgátio, resurrectiónis præfigurabátur ætáte. Hoc est enim illud: Quia omne masculínum adapériens vulvam, sanctum Dómino vocábitur. Verbis enim legis promittebátur Vírginis partus. Et vere sanctus, quia immaculá-
-
-tus. Dénique ipsum esse, qui lege signétur, in eúmdem modum ab Ángelo repetíta verba declárant: Quod nascétur, inquit, Sanctum, vocábitur Fílius Dei.
+SED quóniam prona quadam cupiditáte peccándi, humánæ carnis et mentis fragílitas inextricábilibus vítiis implicátur, eo per octávum circumcisiónis diem culpæ totíus futúra purgátio, resurrectiónis præfigurabátur ætáte. Hoc est enim illud: Quia omne masculínum adapériens vulvam, sanctum Dómino vocábitur. Verbis enim legis promittebátur Vírginis partus. Et vere sanctus, quia immaculátus. Dénique ipsum esse, qui lege signétur, in eúmdem modum ab Ángelo repetíta verba declárant: Quod nascétur, inquit, Sanctum, vocábitur Fílius Dei.
 
 ℟. Nésciens mater Virgo virum, péperit sine dolóre: \* Salvatórem sæculórum, ipsum Regem Angelórum, sola Virgo lactábat úbere de cælo pleno. ℣. Domus pudíci péctoris templum repénte fit Dei: intácta nésciens virum, verbo concépit Fílium. — Salvatórem. Glória Patri. Salvatórem.
 
@@ -31496,7 +31451,7 @@ Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de vi
 
 Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
 
-**Ant.** Déxteram meam et collum meum cinxit lapí-díbus pretiósis, trádidit áuribus meis inæstimábiles margarítas.
+**Ant.** Déxteram meam et collum meum cinxit lapídibus pretiósis, trádidit áuribus meis inæstimábiles margarítas.
 
 **Ant.** Pósuit signum \* in fáciem meam, ut nullum præter eum amatórem admíttam.
 
@@ -33808,3 +33763,51 @@ Spíritus semper, Deus unus, omni
 ### In I Nocturno
 
 **Ant.** Ingénua sum, \* et ex spectábili génere, ut omnis parentéla mea testátur.
+
+###### Psalmus 1
+
+BEÁTUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** Ingénua sum, et ex spectábili génere, ut omnis parentéla mea testátur.
+
+**Ant.** Summa ingenúitas, \* ista est, in qua sérvitus Christi comprobátur.
+
+###### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.

@@ -4012,3 +4012,69 @@ Quóniam ira in indignatióne ejus: \* et vita in voluntáte ejus.
 Ad vésperum demorábitur fletus: \* et ad matutínum lætítia.
 
 Ego autem dixi in abundántia mea: \* Non movébor in ætérnum.
+
+Dómine, in voluntáte tua, \* præstitísti decóri meo virtútem.
+
+Avertísti fáciem tuam a me, \* et factus sum conturbátus.
+
+Ad te, Dómine, clamábo: \* et ad Deum meum deprecábor.
+
+Quæ utílitas in sánguine meo, \* dum descéndo in corruptiónem?
+
+Numquid confitébitur tibi pulvis, \* aut annuntiábit veritátem tuam?
+
+Audívit Dóminus, et misértus est mei: \* Dóminus factus est adjútor meus.
+
+Convertísti planctum meum in gáudium mihi: \* conscidísti saccum meum, et circumdedísti me lætítia:
+
+Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérnum confitébor tibi.
+
+**Ant.** Exaltábo te, Dómine, quóniam suscepísti me.
+
+#### In feriali Officio per Annum et in Festis:
+
+℣. Psállite Dómino, sancti ejus. ℟. Et confitémini memóriæ sanctitátis ejus.
+
+#### In feriali Officio Adventus:
+
+℣. Ex Sion spécies decóris ejus. ℟. Deus noster maniféste véniet.
+
+#### In Vigilia Nativitatis Dom.:
+
+℣. Hódie sciétis quia véniet Dóminus. ℟. Et mane vidébitis glóriam ejus.
+
+#### In Officio novem Lectionum
+
+**Absolutio** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absol.** Exáudi, Dómine.
+
+##### In Feriis, cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis, sine Homilia:
+
+**Bened.** 1 Benedictióne. 2 Unigénitus. 3 Spíritus Sancti.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+### Ad Laudes I
+
+*In Feriis per Annum, extra hebdomádas Septuagésimæ, Sexagésimæ et Quinquagésimæ ac Vigílias commúnes occurréntibus, atque in Festis quólibet anni témpore celebrándis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Jubiláte \* Deo in voce exsultatiónis.
+
+{RUBRIC: Antíphonæ, in hac et áliis Fériis apposítæ, dicúntur

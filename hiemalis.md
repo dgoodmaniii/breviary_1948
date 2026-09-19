@@ -23011,3 +23011,51 @@ Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus: \
 Vox Dómini super aquas, Deus majestátis intónuit: \* Dóminus super aquas multas.
 
 Vox Dómini in virtúte: \* vox Dómini in magnificéntia.
+
+Vox Dómini confringéntis cedros: \* et confrínget Dóminus cedros Líbani:
+
+Et commínuet eas tamquam vítulum Líbani: \* et diléctus quemádmodum fílius unicórnium.
+
+Vox Dómini intercidéntis flammam ignis: \* vox Dómini concutiéntis desértum: et commovébit Dóminus desértum Cades.
+
+Vox Dómini præparántis cervos, et revelábit condénsa: \* et in templo ejus omnes dicent glóriam.
+
+Dóminus dilúvium inhabitáre facit: \* et sedébit Dóminus Rex in ætérnum.
+
+Dóminus virtútem pópulo suo dabit: \* Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Afférte Dómino, fílii Dei, adoráte Dóminum in aula sancta ejus.
+
+**Ant.** Flúminis ímpetus \* lætíficat, allelúja, civitátem Dei, allelúja.
+
+#### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Flúminis ímpetus lætíficat, allelúja, civitátem Dei, allelúja.
+
+**Ant.** Psállite Deo nostro, \* psállite: psállite Regi nostro, psállite sapiénter.
+
+#### Psalmus 46
+
+OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.

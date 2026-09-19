@@ -18116,3 +18116,27 @@ SI fidéliter, dilectíssimi, atque sapiénter creatiónis nostræ intelligámus
 CAUSA autem reparatiónis nostræ non est nisi misericórdia Dei: quem non diligerémus, nisi prius nos ipse dilígeret, et ténebras ignorántiæ nostræ suæ veritátis luce discúteret. Quod per sanctum Isaíam Dóminus denúntians, ait: Addúcam cæcos in viam quam ignorábant, et sémitas quas nesciébant, fáciam illos calcáre: fáciam illis ténebras in lucem, et prava in directa. Hæc verba fáciam illis, et non relínquam eos. Et íterum: Invéntus sum, inquit, a non quæréntibus me, et palam appárui iis qui me non interrogábant.
 
 ℟. Ecce jam venit plenitúdo témporis, in quo misit Deus Fílium suum in terras, natum de Vírgine, factum sub lege: \* Ut eos, qui sub lege erant, redímeret. ℣. Propter nímiam caritátem suam, qua diléxit nos Deus, Fílium suum misit in similitúdinem carnis peccáti. — Ut.
+
+#### Lectio vi
+
+QUOD quómodo implétum sit, Joánnes Apóstolus docet, dicens: Scimus quóniam Fílius Dei venit, et dedit nobis sensum, ut cognoscámus verum, et simus in vero Fílio ejus. Et íterum: Nos ergo diligámus Deum, quóniam ipse prior diléxit nos. Diligéndo ítaque nos Deus, ad imáginem suam nos réparat: et ut in nobis formam suæ bonitátis invéniat, dat unde ipsi quoque quod operátur operémur, accéndens scílicet méntium nostrárum lucérnas, et igne nos suæ caritátis inflámmans, ut non solum ipsum, sed étiam quidquid díligit, diligámus.
+
+℟. Virgo Israël, revértere ad civitátes tuas: \* Usquequo dolens avertéris? generábis Dóminum Salvatórem, oblatiónem novam in terra: \* Ambulábunt hómines in salvatiónem. ℣. In caritáte perpétua diléxi te: ídeo attráxi te míserans tui. — Usquequo. Glória. Ambulábunt.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 3, 1-6*
+
+ANNO quintodécimo impérii Tibérii Cǽsaris, procuránte Póntio Piláto Judǽam. Et réliqua.
+
+{RUBRIC: De Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 20 in Evang. ante médium}
+
+DICÉBAT Joánnes ad turbas, quæ exíbant ut baptizaréntur ab eo: Genímina viperárum, quis osténdit vobis fúgere a ventúra ira? Ventúra enim ira est animadvérsio ultiónis extrémæ: quam tunc fúgere peccátor non valet, qui nunc ad laménta pœniténtiæ non recúrrit. Et notándum, quod malæ sóboles, malórum paréntum actiónem imitántes, genímina viperárum vocántur: quia per hoc quod bonis ínvident, eósque persequúntur, quod quibúsdam mala retríbuunt, quod læsiónes próximis exquírunt: quóniam in his ómnibus patrum suórum carnálium vias sequúntur, quasi venenáti fílii de venenátis paréntibus nati sunt.
+
+℟. Jurávi, dicit Dóminus, ut ultra jam non iráscar super terram: montes enim et colles suscípient justítiam meam, \* Et testaméntum pacis erit in Jerúsalem. ℣. Juxta est salus mea, ut véniat: et justítia mea, ut revelétur. — Et testaméntum.

@@ -21295,3 +21295,20 @@ Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
 FESTIVITÁTIS hodiérnæ, dilectíssimi, verus venerátor est, et pius cultor, qui nec de Incarnatióne Dómini áliquid falsum, nec de Deitáte áliquid sentit indígnum. Parit enim perículi malum est, si illi aut natúræ nostræ véritas, aut Patérnæ glóriæ negátur æquálitas. Cum ergo ad intelligéndum sacraméntum nativitátis Christi, qua de Matre vírgine est ortus, accédimus, abigátur procul terrenárum calígo ratiónum, et ab illumináta fídei óculo mundánæ sapiéntiæ fumus abscédat.
 
 ℟. Congratulámini mihi, omnes qui dilígitis Dóminum: \* Quia cum essem párvula, plácui Altíssimo, et de meis víscéribus génui Deum et hóminem. ℣. Beátam me dicent omnes ge-
+neratiónes, quia ancíllam húmilem respéxit Deus. — Quia cum essem párvula, plácui Altíssimo, et de meis víscéribus génui Deum et hóminem.
+
+#### Lectio v
+
+DIVÍNA est enim auctóritas, cui crédimus: divína est doctrína, quam séquimur. Quóniam sive legis testificatióni, sive oráculis prophetárum, sive evangélicæ tubæ interiórem admoveámus audítum; verum est, quod Joánnes plenus Spíritu Sancto intónuit: In princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum. Hoc erat in princípio apud Deum. Omnia per ipsum facta sunt, et sine ipso factum est nihil. Et simíliter verum est, quod idem prædicátor adjécit: Verbum caro factum est, et habitávit in nobis: et vídimus glóriam ejus, glóriam quasi Unigéniti a Patre.
+
+℟. Confirmátum est cor Vírginis, in quo divína mystéria, Ángelo nuntiánte, concépit: tunc speciósum forma præ fíliis hóminum castis suscépit viscéribus: \* Et benedícta in ætérnum, Deum nobis prótulit et hóminem. ℣. Domus pudíci péctoris templum repénte fit Dei: intácta nésciens virum, verbo concépit Fílium. — Et benedícta.
+
+#### Lectio vi
+
+IN utráque ergo natúra idem est Dei Fílius, nostra suscípiens, et própria non amíttens: in hómine hóminem rénovans, in se incommutábilis persevérans. Déitas enim, quæ illi cum Patre commúnis est, nullum detriméntum omnipoténtiæ súbiit, nec Dei formam servi forma violávit: quia summa et sempitérna esséntia, quæ se ad humáni géneris inclinávit salútem, nos quidem in suam glóriam tránstulit, sed quod erat, esse non déstitit. Unde cum Unigénitus Dei minórem se Patre confitétur, cui se dicit æquálem, veritátem in se formæ utriúsque demónstrat: ut et humánam probet imparílitas, et divínam declárat æquálitas.
+
+℟. Benedícta et venerábilis es, Virgo María, quæ sine tactu pudóris invénta es mater Salvatóris: \* Jacébat in præsépio, et fulgébat in cælo. ℣. Dómine, audívi audítum tuum, et tímui: considerávi ópera tua, et expávi: in médio duórum animálium. — Jacébat. Glória. Jacébat.
+
+### In III Nocturno
+
+**Ant.** In princípio, \* et ante sécula Deus erat

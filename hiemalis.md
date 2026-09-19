@@ -9941,3 +9941,56 @@ INTROIBO in domum tuam in holocáustis: \* reddam tibi vota mea, quæ distinxér
 Et locútum est os meum, \* in tribulatióne mea.
 
 Holocáusta medulláta ófferam tibi cum incénso
+ aríetum: \* ófferam tibi boves cum hircis.
+
+Veníte, audíte, et narrábo, omnes, qui timétis Deum, \* quanta fecit ánimæ meæ.
+
+Ad ipsum ore meo clamávi, \* et exaltávi sub lingua mea.
+
+Iniquitátem si aspéxi in corde meo, \* non exáudiet Dóminus.
+
+Proptérea exaudívit Deus, \* et atténdit voci deprecatiónis meæ.
+
+Benedíctus Deus, \* qui non amóvit oratiónem meam, et misericórdiam suam a me.
+
+**Ant.** Audíte, omnes, qui timétis Deum, quanta fecit ánimæ meæ.
+
+#### In Festis novem Lectionum:
+
+℣. Non amóvit Dóminus oratiónem meam. ℟. Et misericórdiam suam a me.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+#### In II Nocturno
+
+**Ant.** Exsúrgat Deus, \* † et dissipéntur inimíci ejus. ‡
+
+### Psalmus 67, i
+
+EXSURGAT Deus, † et dissipéntur inimíci ejus, \* ‡ et fúgiant qui odérunt eum, a fácie ejus.
+
+Sicut déficit fumus, defíciant: \* sicut fluit cera a fácie ignis, sic péreant peccatóres a fácie Dei.
+
+Et justi epuléntur, et exsúltent in conspéctu Dei: \* et delecténtur in lætítia.
+
+Cantáte Deo, psalmum dícite nómini ejus: \* iter fácite ei, qui ascéndit super occásum: Dóminus nomen illi.
+
+Exsultáte in conspéctu ejus: \* turbabúntur a fácie ejus, patris orphanórum, et júdicis viduárum.
+
+Deus in loco sancto suo: \* Deus qui inhabitáre facit uníus moris in domo:
+
+Qui edúcit vinctos in fortitúdine, \* simíliter eos, qui exásperant, qui hábitant in sepúlcris.
+
+Deus, cum egrederéris in conspéctu pópuli tui, \* cum pertransíres in desérto:
+
+Terra mota est, étenim cæli distillavérunt a fácie Dei Sínaï, \* a fácie Dei Israël.
+
+Plúviam voluntáriam segregábis, Deus, hereditáti tuæ: \* et infirmáta est, tu vero perfecísti eam.
+
+Animália tua habitábunt in ea: \* parásti in dulcédine tua páuperi, Deus.
+
+**Ant.** Exsúrgat Deus, et dissipéntur inimíci ejus.
+
+**Ant.** Deus noster, \* Deus salvos faciéndi: et Dómini sunt éxitus mortis.

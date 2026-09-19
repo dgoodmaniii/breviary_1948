@@ -25269,3 +25269,30 @@ JAM quidem omníno delíctum est in vobis, quod judícia habétis inter vos. Qua
 #### Lectio iii
 
 OMNIA mihi licent, sed non ómnia expédiunt. Omnia mihi licent, sed ego sub nullíus rédigar pote-
+státe. Esca ventri, et venter escis: Deus autem et hunc, et has déstruet: corpus autem non fornicatióni, sed Dómino: et Dóminus córpori. Deus vero et Dóminum suscitávit: et nos suscitábit per virtútem suam. Nescítis quóniam córpora vestra membra sunt Christi? Tollens ergo membra Christi, fáciam membra meretrícis? Absit. An nescítis quóniam qui adhǽret meretríci, unum corpus effícitur? Erunt enim (inquit) duo in carne una. Qui autem adhǽret Dómino, unus spíritus est. Fúgite fornicatiónem.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea. ℣. Lætábor, et exsultábo in te, psallam nómini tuo, Altíssime. — Deus. Glória Patri. Deus.
+
+### Feria Quinta
+
+{RUBRIC: De Epístola prima ad Corínthios}
+
+#### Lectio i
+
+*Cap. 7, 1-14*
+
+DE quibus autem scripsístis mihi: Bonum est hómini mulíerem non tángere: propter fornicatiónem autem unusquísque suam uxórem hábeat, et unaquǽque suum virum hábeat. Uxóri vir débitum reddat: simíliter autem et uxor viro. Múlier sui córporis potestátem non habet, sed vir. Simíliter autem et vir sui córporis potestátem non habet, sed múlier.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit:

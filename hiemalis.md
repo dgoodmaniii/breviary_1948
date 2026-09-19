@@ -16832,3 +16832,32 @@ EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus 
 *Cap. 11, 1-10*
 
 ET egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum spíritus Dómini: spíritus sapiéntiæ et intelléctus, spíritus consílii et fortitúdinis, spíritus sciéntiæ et pietátis; et replébit eum spíritus timóris Dómini; non secúndum visiónem oculórum judicábit, neque secúndum audítum áurium árguet: sed judicábit in justítia páu-
+peres, et árguet in æquitáte pro mansuétis terræ.
+
+{RUBRIC: Responsória hujus Noctúrni, si hac nocte dici non potuérint, ponúntur prima die infra hebdómadam in qua Lectiónes de Scriptúra dici contíngat, omíssis áliis Responsóriis in eádem Féria secus recitándis. Quod fit étiam in relíquis hebdómadis Advéntus.}
+
+℟. Jerúsalem, cito véniet salus tua: quare mœróre consúmeris? numquid consiliárius non est tibi, quia innovávit te dolor? \* Salvábo te, et liberábo te, noli timére. ℣. Ego enim sum Dóminus Deus tuus, Sanctus Israël, Redémptor tuus. — Salvábo.
+
+#### Lectio ii
+
+ET percútiet terram virga oris sui, et spíritu labiórum suórum interfíciet ímpium. Et erit justítia cíngulum lumbórum ejus: et fides cinctórium renum ejus. Habitábit lupus cum agno, et pardus cum hædo accubábit: vítulus, et leo, et ovis simul morabúntur, et puer párvulus minábit eos. Vítulus et ursus pascéntur: simul requiéscent cátuli eórum: et leo, quasi bos, cómedet páleas.
+
+℟. Ecce Dóminus véniet, et omnes Sancti ejus cum eo, et erit in die illa lux magna: et exíbunt de Je-
+
+rúsalem sicut aqua munda: et regnábit Dóminus in ætérnum \* Super omnes gentes. ℣. Ecce Dóminus cum virtúte véniet: et regnum in manu ejus, et potéstas, et impérium. — Super.
+
+#### Lectio iii
+
+ET delectábitur infans ab úbere super forámine áspidis: et in cavérna réguli, qui ablactátus fúerit, manum suam mittet. Non nocébunt, et non occídent in univérso monte sancto meo: quia repléta est terra sciéntia Dómini, sicut aquæ maris operiéntes. In die illa radix Jesse, qui stat in signum populórum, ipsum gentes deprecabúntur, et erit sepúlcrum ejus gloriósum.
+
+℟. Cívitas Jerúsalem, noli flere: quóniam dóluit Dóminus super te: \* Et áuferet a te omnem tribulatiónem. ℣. Ecce Dóminus in fortitúdine véniet: et bráchium ejus dominábitur. — Et. Glória. Et.
+
+#### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Hierónymi Presbýteri in Isaíam Prophétam}
+
+{RUBRIC: Lib. 4 in cap. 11 Isaíæ}
+
+#### Lectio iv
+
+ET egrediétur virga de radíce Jesse. Usque ad princípium visiónis, vel pónderis Ba-

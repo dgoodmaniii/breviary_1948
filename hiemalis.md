@@ -24738,3 +24738,34 @@ PER áliam ergo viam ad regiónem nostram regrédimur: quóniam qui a paradísi 
 #### Lectio ix
 
 PUNIÁMUS flétibus culpas, et cum Psalmístæ voce, præveniámus fáciem ejus in confessióne. Voluptátum nos ergo fallácia nulla decípiat, nulla vana lætítia sedúcat. In próximo namque est judex, qui dixit: Væ vobis, qui ridétis nunc; quia lugébitis et flébitis. Hinc enim Sálomon ait: Risus dolóri miscébitur: et, Extréma gáudii luctus óccupat. Hinc íterum dicit: Risum deputávi errórem, et gáudio dixi, Quid frustra decíperis? Hinc rursus ait: Cor sapiéntium
+ubi tristítia est: et cor stultórum ubi lætítia.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Vídimus stellam ejus \* in Oriénte, et vénimus cum munéribus adoráre Dóminum.
+
+**Ad Magnif. Ant.** Interrogábat \* Magos Heródes: Quod signum vidístis super natum Regem? Stellam vídimus fulgéntem, cujus splendor illúminat mundum.
+
+## Die 10 Januarii
+
+# De V die infra Octavam Epiphaniæ
+
+{RUBRIC: Semiduplex [REF: p. 492]}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 14, 1-13*
+
+INFÍRMUM autem in fide assúmite, non in disceptatiónibus cogitatiónum. Álius enim credit se mandúcáre ómnia: qui autem infírmus est, olus mandúcet. Is qui mandúcat, non mandúcántem non spernat: et qui non mandúcat mandúcántem non júdicet: Deus enim illum assúmpsit. Tu quis es, qui júdicas aliénum servum? Dómino suo stat, aut cadit: stábit autem: potens est enim Deus statúere illum.
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+#### Lectio ii
+
+NAM álius júdicat diem inter diem: álius autem júdicat omnem diem: unusquísque in suo sensu abúndet. Qui sapit diem, Dómino sapit: Et qui mandúcat, Dómino mandúcat: grátias enim agit Deo. Et qui non mandúcat, Dómino non mandúcat, et grátias agit Deo. Nemo enim nostrum sibi vivit, et nemo sibi móritur. Sive enim vívimus, Dómino vívimus: sive mórimur, Dómino mórimur. Sive ergo vívimus, sive mórimur, Dómini sumus.
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.

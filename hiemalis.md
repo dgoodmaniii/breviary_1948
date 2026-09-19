@@ -17078,3 +17078,42 @@ PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur. Miserébitur e
 #### Lectio ii
 
 ET erit in die illa, cum réquiem déderit tibi Deus a labóre tuo, et a concussióne tua, et a servitúte dura, qua ante servísti: sumes parábolam istam contra regem Babylónis, et dices: Quómodo cessávit exáctor, quiévit tribútum? Contrívit Dóminus báculum impiórum,
+virgam dominántium, cædéntem pópulos in indignatióne, plaga insanábili, subjiciéntem in furóre gentes, persequéntem crudéliter.
+
+℟. Erúmpant montes jucunditátem, et colles justítiam: \* Quia lux mundi Dóminus cum poténtia venit. ℣. De Sion exíbit lex, et verbum Dómini de Jerúsalem. — Quia.
+
+#### Lectio iii
+
+*Cap. 14, 12-15*
+
+QUÓMODO cecidísti de cælo, lúcifer, qui mane oriebáris? corruísti in terram, qui vulnerábas gentes? qui dicébas in corde tuo: In cælum conscéndam, super astra Dei exaltábo sólium meum, sedébo in monte testaménti, in latéribus Aquilónis. Ascéndam super altitúdinem núbium, símilis ero Altíssimo. Verúmtamen ad inférnum detrahéris in profúndum laci.
+
+℟. Ecce ab Austro vénio, ego Dóminus, Deus vester, \* Visitáre vos in pace. ℣. Aspíciam vos, et créscere fáciam: multiplicabímini, et firmábo pactum meum vobíscum. — Visitáre. Glória Patri. Visitáre.
+
+℣. Vox, {RUBRIC: ut supra.}
+
+**Ad Bened. Ant.** Super te, \* Jerúsalem, oriétur Dóminus, et glória ejus in te vidébitur.
+
+**Oratio** Excita, {RUBRIC: ut supra.}
+
+℣. Roráte, cæli.
+
+**Ad Magnif. Ant.** Vox clamántis \* in desérto, Paráte viam Dómini, rectas fácite sémitas Dei nostri.
+
+---
+
+### Feria Quarta
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 16, 1-8*
+
+EMITTE Agnum, Dómine, Dominatórem terræ de Petra desérti ad montem fíliæ Sion. Et erit: Sicut avis fúgiens, et pulli de nido avolántes, sic erunt fíliæ Moab in transcénsu Arnon. Ini consílium, coge concílium: pone quasi noctem umbram tuam in merídie: abscónde fugiéntes, et vagos ne prodas. Habitábunt apud te prófugi mei: Moab esto latíbulum eórum a fácie vastatóris.
+
+℟. Rex noster advéniet Christus, \* Quem Joánnes prædicávit Agnum esse ventúrum. ℣. Super ipsum continébunt reges os suum, ipsum gentes deprecabúntur. — Quem.
+
+#### Lectio ii
+
+FINÍTUS est enim pulvis, consummátus est míser, defécit qui conculcábat terram. Et præparábitur in misericórdia sólium, et sedébit super illud in veritáte in tabernáculo

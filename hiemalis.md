@@ -30494,3 +30494,12 @@ ET mérito quidem; nemo enim sicut tu, ad Deum tam prope accéssit; nemo sicut t
 {RUBRIC: Ex Bulla dogmática Pii Papæ noni}
 
 AB antíquis tempóribus Sacrórum antístites, ecclesiástici viri, reguláres órdines ac vel ipsi imperatóres et reges ab hac apostólica Sede eníxe efflagitárunt, ut immaculáta sanctíssimæ Dei Genitrícis Concéptio véluti cathólicæ fídei dogma definirétur. Quæ postulatiónes hac nostra quoque ætáte iterátæ fué-
+runt, ac potíssimum felícis recordatiónis Gregório decimoséxto prædecessóri nostro, ac nobis ipsis oblátæ sunt tum ab epíscopis, tum a clero sæculári, tum a religiósis famíliis, ac summis princípibus et fidélibus pópulis. Nos ítaque singulári ánimi nostri gáudio hæc ómnia probe noscéntes ac sério considerántes, vix dum, licet immériti, arcáno divínæ providéntiæ consílio ad hanc sublímem Petri Cáthedram evécti, totíus Ecclésiæ gubernácula tractánda suscépimus, nihil certe antíquius habúimus, quam pro summa nostra vel a téneris annis erga sanctíssimam Dei Genitrícem Vírginem Maríam veneratióne, pietáte et afféctu, ea ómnia perágere, quæ adhuc in Ecclésiæ votis esse póterant, ut beatíssimæ Vírginis honor augerétur, ejúsque prærogatívæ uberióri luce nitérent.
+
+℟. Ego ex ore Altíssimi pródivi, primogénita ante omnem creatúram: ego feci in cælis, ut orirétur lumen indefíciens: \* Nondum erant abýssi, et ego jam concépta eram. ℣. Deus enim creávit me in justítia, et apprehéndit manum meam, et servávit me. — Nondum erant.
+
+#### Lectio v
+
+ITAQUE plúrimum in Dómino confísi advenísse témporum opportunitátem pro immaculáta sanctíssimæ Dei Genitrícis Vírginis Maríæ Conceptióne definiénda, quam divína elóquia, veneránda tradítio, perpétuus Ecclésiæ sensus, singuláris cathólicórum antístitum ac fidélium conspirátio, et insígnia prædecessórum nostrórum acta et constitutiónes mirífice illústrant atque declárant; rebus ómnibus diligentíssime perpénsis et assíduis fervidísque ad Deum précibus effúsis, mínime cunctándum nobis esse censúimus, suprémo nostro judício immaculátam ipsíus Vírginis Conceptiónem sancíre, definíre, atque ita pientíssimis cathólici orbis desidériis, nostrǽque in ipsam sanctíssimam Vírginem pietáti satisfácere, ac simul in ipsa unigénitum Fílium suum Dóminum nostrum Jesum Christum magis atque magis honorificáre, cum in Fílium redúndet quidquid honóris et laudis in Matrem impénditur.
+
+℟. Nihil inquinátum in eam incúrrit: \* Candor est lucis ætérnæ et spéculum sine mácula. ℣. Est enim hæc speciósior sole, et luci comparáta invenítur pú-

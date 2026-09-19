@@ -20523,3 +20523,50 @@ OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in n
 #### Oratio
 
 CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo ve-
+tústa sérvitus tenet. Per eúmdem Dóminum.
+
+### Ad Primam
+
+**Ant.** Quem vidístis, \* pastóres? dícite, annuntiáte nobis, in terris quis appáruit? Natum vídimus, et choros Angelórum collaudántes Dóminum, allelúja, allelúja.
+
+{RUBRIC: Psalmi ut in Festis, et ad absolutiónem Capítuli Léctio brevis Itaque, ut infra ad Nonam.}
+
+### Ad Tertiam
+
+**Ant.** Génuit puérpera \* Regem, cui nomen ætérnum, et gáudia matris habens cum virginitátis honóre: nec primam símilem visa est, nec habére sequéntem, allelúja.
+
+**Capit.** Fratres. *430*
+
+℟. br. Verbum caro factum est, \* Allelúja, allelúja. Verbum. ℣. Et habitávit in nobis. Allelúja, allelúja. Glória Patri. Verbum. ℣. Ipse invocábit me, allelúja. ℟. Pater meus es tu, allelúja.
+
+**Oratio** Omnípotens, {RUBRIC: ut supra. 430.}
+
+### Ad Sextam
+
+**Ant.** Angelus ad pastóres \* ait: Annúntio vobis gáudium magnum: quia natus est vobis hódie Salvátor mundi, allelúja.
+
+#### Capitulum
+
+*Galat. 4, 4-5*
+
+AT ubi venit plenitúdo témporis, misit Deus Fílium suum factum ex mulíere, factum sub lege, ut eos, qui sub lege erant, redímeret, ut adoptiónem filiórum reciperémus.
+
+℟. br. Notum fecit Dóminus, \* Allelúja, allelúja. Notum. ℣. Salutáre suum. Allelúja, allelúja. Glória Patri. Notum. ℣. Vidérunt omnes fines terræ, allelúja. ℟. Salutáre Dei nostri, allelúja.
+
+### Ad Nonam
+
+**Ant.** Párvulus fílius \* hódie natus est nobis: et vocábitur Deus, Fortis, allelúja, allelúja.
+
+#### Capitulum
+
+*Galat. 4, 7*
+
+ITAQUE jam non est servus, sed fílius: quod si fílius, et heres per Deum.
+
+℟. br. Vidérunt omnes fines terræ, \* Allelúja, allelúja. Vidérunt. ℣. Salutáre Dei nostri. Allelúja, allelúja. Glória Patri. Vidérunt. ℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ et Psalmi de Nativitáte. 402}
+
+**Capit.** Fratres: Quanto, {RUBRIC: et Hymnus} Jesu, Redémptor, {RUBRIC: ut in I Vésperis. 426}

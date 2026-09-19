@@ -18822,3 +18822,33 @@ Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super om
 Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
 
 Proptérea pópuli confitebúntur tibi in ætérnum: \* et in séculum séculi.
+
+**Ant.** Diffúsa est grátia in lábiis tuis, proptérea benedíxit te Deus in ætérnum.
+
+℣. Tamquam sponsus. ℟. Dóminus procédens de thálamo suo.
+
+**Absol.** Exáudi, Dómine.
+
+**Benedictio** Benedictióne.
+
+{RUBRIC: Tres sequéntes Lectiónes Isaíæ legúntur sine título.}
+
+#### Lectio i
+
+*Cap. 9, 1-6*
+
+PRIMO témpore alleviáta est terra Zábulon, et terra Néphthali: et novíssimo aggraváta est via maris trans Jordánem Galilǽæ géntium. Pópulus qui ambulábat in ténebris, vidit lucem magnam: habitántibus in regióne umbræ mortis, lux orta est eis. Multiplicásti gentem, et non magnificásti lætítiam. Lætabúntur coram te, sicut qui lætántur in messe, sicut exsúltant victóres, capta prǽda, quando dívidunt spólia. Jugum enim óneris ejus, et virgam húmeri ejus, et sceptrum exactóris ejus superásti sicut in die Mádian. Quia omnis violénta prædátio cum tumúltu, et vestiméntum mistum sánguine, erit in combustiónem, et cibus ignis. Párvulus enim natus est nobis, et fílius datus est nobis, et factus est principátus super húme-
+
+rum ejus: et vocábitur nomen ejus, Admirábilis, Consiliárius, Deus, Fortis, Pater futúri séculi, Princeps pacis.
+
+℟. Hódie nobis cælórum Rex de Vírgine nasci dignátus est, ut hóminem pérditum ad cæléstia regna revocáret: \* Gaudet exércitus Angelórum: quia salus ætérna humáno géneri appáruit. ℣. Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis. — Gaudet. Glória Patri.
+
+{RUBRIC: Et repetitur} ℟. Hódie nobis {RUBRIC: usque ad} ℣. Glória in excélsis.
+
+**Benedictio** Unigénitus Dei Fílius.
+
+#### Lectio ii
+
+*Cap. 40, 1-8*
+
+CONSOLÁMINI, consolámini, pópule meus, dicit Deus vester. Loquímini ad cor Jerúsalem, et advocáte eam: quóniam compléta est malítia ejus, dimíssa est iníquitas illíus: suscépit de manu Dómini duplícia pro ómnibus peccátis suis. Vox clamántis in desérto: Paráte viam Dómini, rectas fácite in solitúdine sémitas Dei nostri. Omnis vallis exaltábitur, et omnis mons et collis humiliábitur: et erunt prava in directa, et áspera in vias planas. Et revelábitur glória Dómini: et

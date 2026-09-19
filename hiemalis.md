@@ -19038,3 +19038,49 @@ Usque in ætérnum præparábo semen tuum. \* Et ædificábo in generatiónem et
 Confitebúntur cæli mirabília tua, Dómine: \* étenim veritátem tuam in ecclésia sanctórum.
 
 Quóniam quis in núbibus æquábitur Dómino: \* símilis erit Deo in fíliis Dei?
+
+Deus, qui glorificátur in consílio sanctórum: \* magnus et terríbilis super omnes qui in circúitu ejus sunt.
+
+Dómine, Deus virtútum, quis símilis tibi? \* potens es, Dómine, et véritas tua in circúitu tuo.
+
+Tu domináris potestáti maris: \* motum autem flúctuum ejus tu mítigas.
+
+Tu humiliásti sicut vulnerátum, supérbum: \* in bráchio virtútis tuæ dispersísti inimícos tuos.
+
+Tui sunt cæli, et tua est terra, orbem terræ et plenitúdinem ejus tu fundásti: \* aquilónem, et mare tu creásti.
+
+Thabor et Hermon in nómine tuo exsultábunt: \* tuum bráchium cum poténtia.
+
+Firmétur manus tua, et exaltétur déxtera tua: \* justítia et judícium præparátio sedis tuæ.
+
+Misericórdia et véritas præcédent fáciem tuam: \* beátus pópulus, qui scit jubilatiónem.
+
+Dómine, in lúmine vultus tui ambulábunt, et in nómine tuo exsultábunt tota die: \* et in justítia tua exaltabúntur.
+
+Quóniam glória virtútis eórum tu es: \* et in beneplácito tuo exaltábitur cornu nostrum.
+
+Quia Dómini est assúmptio nostra, \* et Sancti Israël, regis nostri.
+
+Tunc locútus es in visióne sanctis tuis, et dixísti: \* Pósui adjutórium in poténte: et exaltávi eléctum de plebe mea.
+
+Invéni David, servum meum: \* óleo sancto meo unxi eum.
+
+Manus enim mea auxiliábitur ei: \* et bráchium meum confortábit eum.
+
+Nihil profíciet inimícus in eo, \* et fílius iniquitátis non appónet nocére ei.
+
+Et concídam a fácie ipsíus inimícos ejus: \* et odiéntes eum in fugam convértam.
+
+Et véritas mea, et misericórdia mea cum ipso: \* et in nómine meo exaltábitur cornu ejus.
+
+Et ponam in mari manum ejus: \* et in flumínibus déxteram ejus.
+
+Ipse invocábit me: Pater meus es tu: \* Deus meus, et suscéptor salútis meæ.
+
+Et ego primogénitum ponam illum \* excélsum præ régibus terræ.
+
+In ætérnum servábo illi misericórdiam meam: \* et testaméntum meum fidéle ipsi.
+
+Et ponam in séculum séculi semen ejus: \* et thronum ejus sicut dies cæli.
+
+Si autem derelíquerint fílii ejus legem meam: \*

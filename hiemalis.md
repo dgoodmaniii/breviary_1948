@@ -25936,3 +25936,30 @@ UNICUÍQUE autem nostrum data est grátia secúndum mensúram donatiónis Christ
 #### Lectio iii
 
 ET ipse dedit quosdam quidem apóstolos, quosdam autem prophétas, álios vero evangelístas, álios autem pastóres et doctóres, ad consummatiónem sanctórum in opus ministérii, in ædifica-
+tiónem córporis Christi: donec occurrámus omnes in unitátem fídei, et agnitiónis Fílii Dei, in virum perféctum, in mensúram ætátis plenitúdinis Christi: ut jam non simus párvuli fluctuántes, et circumferámur omni vento doctrínæ in nequítia hóminum, in astútia ad circumventiónem erróris. Veritátem autem faciéntes in caritáte, crescámus in illo per ómnia, qui est caput Christus.
+
+℟. Gaudébunt lábia mea cum cantávero tibi: \* Et ánima mea, quam redemísti, Dómine. ℣. Sed et lingua mea meditábitur justítiam tuam, tota die laudem tuam. — Et. Glória Patri. Et.
+
+### Feria Sexta
+
+{RUBRIC: De Epístola ad Ephésios}
+
+#### Lectio i
+
+*Cap. 5, 1-14*
+
+ESTÓTE ergo imitatóres Dei, sicut fílii caríssimi: et ambuláte in dilectióne, sicut et Christus diléxit nos, et trádidit semetípsum pro nobis oblatiónem, et hóstiam Deo in odórem suavitátis. Fornicátio autem, et omnis immundítia, aut avarítia nec nominétur in vobis, sicut decet sanctos: aut turpitúdo, aut stultilóquium,
+
+℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum: \* Quia misericórdia tua, Dómine, magna est super me. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — Quia.
+
+#### Lectio ii
+
+AUT scurrílitas, quæ ad rem non pértinet: sed magis gratiárum áctio. Hoc enim scitóte intelligéntes: quod omnis fornicátor, aut immúndus, aut avárus, quod est idolórum sérvitus, non habet hereditátem in regno Christi, et Dei. Nemo vos sedúcat inánibus verbis: propter hæc enim venit ira Dei in fílios diffidéntiæ. Nolíte ergo éffici partícipes eórum. Erátis enim aliquándo ténebræ: nunc autem lux in Dómino. Ut fílii lucis ambuláte.
+
+℟. Misericórdia tua, Dómine, magna est super me: \* Et liberásti ánimam meam ex inférno inferióri. ℣. In die tribulatiónis meæ clamávi ad te, quia exaudísti me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+FRUCTUS enim lucis est in omni bonitáte, et justítia, et veritáte: probán-

@@ -9763,3 +9763,72 @@ KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
 Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sécula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sécula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sécula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére
+ nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+---
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum. ℟. Amen.
+
+℣. Dóminus vobíscum.
+
+℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+**Antiphona finalis B. M. V.**
+
+℣. Divínum auxílium.
+
+Pater noster, Ave María et Credo.
+
+---
+
+## Feria Quinta
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+#### In Officio feriali Adventus
+
+##### Infra hebdomadam I et II:
+
+**Invit.** Regem ventúrum Dóminum, \* Veníte, adorémus.
+
+##### Infra hebdomadam III et IV:
+
+**Invit.** Prope est jam Dóminus: \* Veníte, adorémus.
+
+##### In Vig. Nativitatis Domini:
+
+**Invit.** Hódie sciétis, quia véniet Dóminus: \* Et mane vidébitis glóriam ejus.
+
+#### Hymnus
+
+VERBUM supérnum, pródiens
+E Patris ætérni sinu,
+Qui natus orbi súbvenis,
+Labénte cursu témporis:
+
+Illúmina nunc péctora,
+Tuóque amóre cóncrema;
+Ut cor cadúca déserens
+Cæli volúptas ímpleat.
+
+Ut, cum tribúnal Júdicis
+Damnábit igni nóxios,
+Et vos amíca débitum
+Vocábit ad cælum pios;
+
+Non esca flammárum nigros
+Volvámur inter túrbines,
+Vultu Dei sed cómpotes
+Cæli fruátur gáudiis.

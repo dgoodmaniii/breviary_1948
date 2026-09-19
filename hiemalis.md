@@ -6222,3 +6222,71 @@ Dómine, nomen tuum in ætérnum: \* Dómine, memoriále tuum in generatiónem e
 Quia judicábit Dóminus pópulum suum: \* et in servis suis deprecábitur.
 
 Simulácra géntium argéntum, et aurum, \* ópera mánuum hóminum.
+
+Os habent, et non loquéntur: \* óculos habent, et non vidébunt.
+
+Aures habent, et non áudient: \* neque enim est spíritus in ore ipsórum.
+
+Símiles illis fiant qui fáciunt ea: \* et omnes qui confídunt in eis.
+
+Domus Israël, benedícite Dómino: \* domus Aaron, benedícite Dómino.
+
+Domus Levi, benedícite Dómino: \* qui timétis Dóminum, benedícite Dómino.
+
+Benedíctus Dóminus ex Sion, \* qui hábitat in Jerúsalem.
+
+**Ant.** Laudáte nomen Dómini, qui statis in domo Dómini.
+
+#### In Officio feriali
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+ALES diéi núntius
+Lucem propínquam præcínit:
+Nos excitátor méntium
+Jam Christus ad vitam vocat.
+
+Auférte, clamat, léctulos,
+Ægro sopóre desídes:
+Castíque, recti, ac sóbrii
+Vigiláte, jam sum próximus.
+
+Jesum ciámus vócibus,
+Flentes, precántes, sóbrii:
+Inténta supplicátio
+Dormíre cor mundum vetat.
+
+Tu, Christe, somnum díscute:
+Tu rumpe noctis víncula:
+Tu solve peccátum vetus,
+Novúmque lumen íngere.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Eréxit nobis \* Dóminus cornu salútis in domo David, púeri sui.
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+### Ad Laudes II
+
+*In Feriis Adventus, et in Feriis III post Dominicas Septuagesimæ, Sexagesimæ et Quinquagesimæ, necnon in Vigiliis communibus, quando fit Officium de Feria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Dele iniquitátem meam.
+
+{RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Roráte, cæli, désuper.

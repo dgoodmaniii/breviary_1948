@@ -30726,4 +30726,34 @@ DA nobis, quǽsumus, Dómine, beáti Apóstoli tui Thomæ solemnitátibus glori�
 
 {RUBRIC: Duplex} [69]
 
-{RUBRIC: (m. t. v.), nisi tamen alícubi I Vésperas hábeat.}
+{RUBRIC: (m. t. v.), nisi tamen alícubi I Vésperas hábeat.}amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Amávit eum Dóminus.
+
+**Oratio** C 3
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Hilárium minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio S. Felícis Presbýteri et Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut ad meliórem vitam Sanctórum tuórum exémpla nos próvocent; quátenus, quorum solémnia ágimus, étiam actus imitémur. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam} [87]; {RUBRIC: quod servátur et in áliis Festis Doctórum, nisi áliter suis locis notétur.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia excélluit. Qui primum in matrimónio quasi mónachi vitam egit: deínde propter singuláres virtútes Pictavórum epíscopus creátur: quod munus episcopále sic gessit, ut a fidélibus summam laudem consequerétur. Quo témpore, cum terróribus, bonórum spoliatióne, exsílio, et omni crudelitáte Constántius imperátor Cathólicos vexáret, nisi ad Ariánas partes transírent; Hilárius tamquam firmíssimum murum se Ariánis oppónens, illórum furórem in se concitávit. Itaque multis petítus insídiis, tandem dolo Saturníni Arelaténsis epíscopi, de sýnodo Biterrénsi in Phrýgiam relegátus est: ubi et mórtuum suscitávit, et libros duódecim scripsit de Trinitáte contra Ariános.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+QUADRIÉNNIO post coácto concílio ad Seleucíam, Isáuriæ urbem, Hilárius adésse compúlsus est: ac deínde Constantinópolim proféctus, ubi extrémum fídei perículum animadvértit, tribus libéllis pú-

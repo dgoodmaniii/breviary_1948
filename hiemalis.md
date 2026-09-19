@@ -29698,3 +29698,59 @@ SACERDÓTES justítia, et probátæ, immaculátæ ac sincéræ fídei exsultati�
 ### Ad Laudes
 
 **Ant. 1** Tota pulchra \* es, María, et mácula originális non est in te.
+
+
+**2** Vestiméntum tuum \* cándidum quasi nix, et fácies tua sicut sol.
+
+**3** Tu glória Jerúsalem, \* tu lætítia Israël, tu honorificéntia pópuli nostri.
+
+**4** Benedícta es tu, \* Virgo María, a Dómino Deo excélso præ ómnibus muliéribus super terram.
+
+**5** Trahe nos, \* Virgo immaculáta, post te currémus in odórem unguentórum tuórum.
+
+**Capit.** *Prov. 8, 22-24*
+
+DOMINUS possédit me in inítio viárum suárum, ántequam quidquam fáceret a princípio. Ab ætérno ordináta sum, et ex antíquis ántequam terra fíeret. Nondum erant abýssi, et ego jam concépta eram.
+
+#### Hymnus
+
+O GLORIÓSA vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine:
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida:
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+**Ad Bened. Ant.** Ait Dóminus Deus \* ad serpéntem: Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus: ipsa cónteret caput tuum, allelúja.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: quǽsumus; ut, qui ex morte ejúsdem Fílii tui prævísa, eam ab omni labe præservásti, nos quoque mundos ejus intercessióne ad te perveníre concédas. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+### Ad Primam
+
+**Ant.** Tota pulchra \* es, María, et mácula originális non est in te.
+
+### Ad Tertiam
+
+**Capitulum** Dóminus possédit, ut supra.
+
+℟. br. Deus omnípotens \* Præcínxit me virtúte. Deus. ℣. Et pósuit immaculátam viam meam. — Præ-

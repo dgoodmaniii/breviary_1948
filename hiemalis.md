@@ -16496,3 +16496,39 @@ SICUT in die honéste ambulémus, non in comessatiónibus et ebrietátibus, non 
 **Ad Magnif. Ant.** Ne tímeas, María, \* invenísti enim grátiam apud Dóminum: ecce concípies et páries fílium, allelúja.
 
 {RUBRIC: Hymni, Antíphonæ ad Matutínum, Versus, étiam Nocturnórum, Responsória brévia et Léctio brevis supérius indicáta dicúntur étiam in relíquis Domínicis Advéntus.}
+
+{RUBRIC: ¶ Fériæ omnes per Advéntum, usque ad diem ante Vigíliam Nativitátis Dómini inclusíve, sunt majóres non privilegiátæ.}
+
+---
+
+## In Officio feriali per Adventum
+
+*{RUBRIC: usque ad diem 23 Decémbris inclusive}*
+
+{RUBRIC: Ad Matutínum Invitatórium et Hymnus de Témpore Advéntus, ut in Ordinário; Antíphonæ et Psalmi cum Versu Noctúrni item de Témpore Advéntus, ut in Psaltério: sumptis quidem in Féria IV tribus últimis Antíphonis et Psalmis de 2 loco.}
+
+{RUBRIC: Ad Laudes Psalmi de Féria 2 loco, usque ad diem 16 Decémbris inclusíve sub suis Antíphonis ut in Psaltério, a die autem 17 ad 23 sub Antíphonis própriis ut infra; Capítulum, Hymnus et Versus de Témpore Advéntus, ut in Ordinário.}
+
+{RUBRIC: Ad Horas Antíphonæ de própriis Laudibus, si habeántur, secus de Laudibus Domínicæ præcedéntis; Psalmi ut in Psaltério, addíto ad Primam quarto Psalmo, ut ibídem notátur. Et ad Primam in Responsório brevi Versus et Léctio brevis, ad Tértiam, Sextam et Nonam Capítulum et Responsórium breve de Témpore Advéntus, ut in Ordinário.}
+
+{RUBRIC: Ad Vésperas Antíphonæ et Psalmi ut in Psaltério; Capítulum, Hymnus et Versus de Témpore Advéntus, ut in Ordinário.}
+
+{RUBRIC: Et ad omnes Horas dicúntur Preces feriáles, páriter ut in Ordinário.}
+
+---
+
+### Feria Secunda
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 1, 16-28*
+
+LAVÁMINI, mundi estóte, auférte malum cogitatiónum vestrárum ab óculis meis: quiéscite ágere pervérse, díscite benefácere: quǽrite judícium, subveníte opprésso, judicáte pupíllo, defén dite víduam. Et veníte, et argúite me, dicit Dóminus: si fúerint peccáta vestra ut cóccinum, quasi nix dealbabúntur: et si fúerint rubra quasi vermículus, velut lana alba erunt.
+
+℟. Súscipe verbum, Virgo María, quod tibi a Dómino per Ángelum transmíssum est: concípies et páries Deum páriter et hóminem, \* Ut benedícta dicáris inter omnes mulíeres. ℣. Páries quidem fílium, et virginitátis non patiéris detriméntum: effíciéris grávida, et eris mater semper intácta. — Ut.
+
+#### Lectio ii
+
+SI voluéritis, et audiéritis me, bona terræ comedétis. Quod si noluéritis, et me ad iracúndiam provocavéritis, gládius de-

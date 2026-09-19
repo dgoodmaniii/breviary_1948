@@ -27638,3 +27638,28 @@ AT vero aquæ ibant, et decrescébant usque ad décimum mensem: décimo enim men
 #### Lectio iii
 
 EXSPECTÁTIS autem ultra septem diébus áliis, rursum dimísit colúmbam ex arca. At illa venit ad eum ad vésperam, portans ramum olívæ viréntibus fóliis in ore suo. Intelléxit ergo Noë, quod cessássent aquæ super terram. Exspectavítque nihilóminus septem álios dies: et emísit colúmbam, quæ non est revérsa ultra ad eum. Igitur sexcentésimo primo anno, primo mense, prima die mensis imminútæ sunt aquæ super terram.
+℟. Per memetípsum jurávi, dicit Dóminus, non adjíciam ultra aquas dilúvii super terram: pacti mei recordábor, \* Ut non perdam aquis dilúvii omnem carnem. ℣. Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. — Ut. Glória Patri. Ut.
+
+**Ad Magnif. Ant.** Semen est \* verbum Dei, sator autem Christus: omnis qui invénit eum, manébit in ætérnum.
+
+---
+
+### Feria Quarta
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 8, 15-22*
+
+LOCÚTUS est autem Deus ad Noë, dicens: Egrédere de arca, tu et uxor tua, fílii tui et uxóres filiórum tuórum tecum. Cuncta animántia, quæ sunt apud te, ex omni carne, tam in volatílibus quam in béstiis et univérsis reptílibus, quæ reptant super terram, educ tecum, et ingredímini super terram: créscite et multiplicámini super eam. Egréssus est ergo Noë et fílii ejus, uxor illíus et uxóres filiórum ejus cum eo. Sed et ómnia animántia, juménta, et reptília quæ reptant super terram secúndum genus suum, egréssa sunt de arca.
+
+℟. Benedíxit Deus Noë, et fíliis ejus, et dixit ad eos: \* Créscite, et multiplicámini, et repléte terram. ℣. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos. — Créscite.
+
+#### Lectio ii
+
+ÆDIFICÁVIT autem Noë altáre Dómino: et tollens de cunctis pecóribus et volúcribus mundis, óbtulit holocáusta super altáre. Odoratúsque est Dóminus odórem suavitátis, et ait: Nequáquam ultra maledícam terræ propter hómines: sensus enim et cogitátio humáni cordis in malum prona sunt ab adolescéntia sua: non ígitur ultra percútiam omnem ánimam vivéntem, sicut feci. Cunctis diébus terræ, seméntis et messis, frigus et ǽstus, ǽstas et hiems, nox et dies non requiéscent.
+
+℟. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos: \* Neque erit deínceps dilúvium díssipans terram. ℣. Arcum meum ponam in núbibus, et erit signum fœderis inter me et inter terram. — Neque erit.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Neque.}

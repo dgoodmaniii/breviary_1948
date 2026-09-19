@@ -25435,3 +25435,41 @@ SI autem vénerit Timótheus, vidéte ut sine timóre sit apud vos: opus enim D�
 {RUBRIC: Extra Octávam Epiphaníæ}
 
 ℟. Velóciter exáudi me, Deus, \* Quia defecérunt sicut fumus dies mei: \* Tu autem idem ipse es, et anni tui non defícient. ℣. Dies mei sicut umbra declinavérunt, et ego sicut fœnum árui. — Quia. Glória. Tu.
+
+## Sabbato I post Octavam Epiphaniæ
+
+### Ad Vesperas
+
+{RUBRIC: Ómnia præter Oratiónem, ut in Psaltério [REF: p. 312], quod servátur in áliis Sábbatis usque ad Septuagésimam.}
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Suscépit Deus \* Israël, púerum suum: sicut locútus est ad Abraham, et sémen ejus usque in sǽculum.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, qui cæléstia simul et terréna moderáris: supplicatiónes pópuli tui cleménter exáudi; et pacem tuam nostris concéde tempóribus. Per Dóminum.
+
+## Dominica II post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+### Ad Matutinum
+
+{RUBRIC: Invitatorium Adorémus Dóminum et Hymnus Primo die [REF: p. 37], quæ dicúntur étiam in réliquis Domínicis post Epiphaníam.}
+
+### In I Nocturno
+
+### Incipit Epistola secunda beati Pauli Apostoli ad Corinthios
+
+#### Lectio i
+
+*Cap. 1, 1-11*
+
+PAULUS, Apóstolus Jesu Christi per voluntátem Dei, et Timótheus frater, Ecclésiæ Dei, quæ est Corínthi cum ómnibus sanctis, qui sunt in univérsa Achája. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo. Benedíctus Deus et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra: ut possímus et ipsi consolári eos qui in omni pressúra sunt, per exhortatiónem, qua exhortámur et ipsi a Deo. Quóniam sicut abúndant passiónes Christi in nobis: ita et per Christum abúndat consolátio nostra.
+
+℟. Dómine, ne in ira tua árguas me, neque in furóre tuo corrípias me: \* Miserére mei, Dómine, quóniam infírmus sum. ℣. Timor et tremor venérunt super me, et contexérunt me ténebræ. — Miserére.
+
+#### Lectio ii
+
+SIVE autem tribulámur pro vestra exhortatióne et salúte, sive consolá-

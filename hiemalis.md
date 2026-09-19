@@ -20665,3 +20665,33 @@ pite ejus corónam de lápide pretióso. — Et.
 EX qua regis voce nefárii satéllites sperántes gratum se regi factúros, si Thomam e médio tóllerent, clam convenientes Cantuáriam, epíscopum in templo vesper­tínis horis óperam dantem aggrediúntur. Qui cléricis templi áditus præclúdere conántibus accúrrens, óstium apéruit, illis usus verbis ad suos: Non est Dei Ecclésia custodiénda more castrórum; et ego pro Ecclésia Dei libénter mortem subíbo. Tum ad mílites: Vos Dei jussu cavéte, ne cuípiam meórum noceátis. Deínde flexis génibus, Deo, beátæ Maríæ, sancto Dionýsio et réliquis Sanctis ejus ecclésiæ patrónis, Ecclésiam et seípsum comméndans, sacrum caput éadem constántia, qua iniquíssimi regis légibus restíterat, ímpio ferro præcidéndum óbtulit, quarto Kaléndas Januárii, anno Dómini millésimo centésimo septuagésimo primo: cujus cérebro respérsum est totíus templi paviméntum. Quem multis póstea illústrem miráculis idem Alexánder Póntifex rétulit in Sanctórum númerum.
 
 ℟. Stola jucunditátis índuit eum Dóminus: \* Et
+corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et corónam. Glória Patri. Et.
+
+---
+
+#### Pro hoc Festo commemorato
+
+#### Lectio ix
+
+THOMAS, Londíni in Anglia natus, ántea regni cancellárius, Theobáldo succéssit Cantuariénsi epíscopo. In episcopáli offício fortis et invíctus, leges utilitáti ac dignitáti ecclesiásticæ repugnántes, ab Henríco secúndo rege latas, nullis fractus suis ac suórum incómmodis, acceptáre rénuit. Quare próxime conjiciéndus in cárcerem, clam recéssit; et primo Pontiniáci apud mónachos Cisterciénses, deínde apud Ludovícum regem Gálliæ se cóntulit. Ab exsílio revocátus, paulo post per calúmniam apud regem ita impétitur, ut sǽpius conquererétur rex, se in suo regno cum uno sacerdóte pacem habére non posse. Hinc nefárii hómines, sperántes se gratum regi factúros, Thomam in Cantuariénsi templo vespertínis horis óperam dantem aggrediúntur. Qui cléricis templi áditus præclúdere conántibus óbsti-
+tit, dicens: Non est Dei Ecclésia custodiénda more castrórum; et ego pro Ecclésia Dei libénter mortem subíbo. Tum ad mílites ait: Vos Dei jussu cavéte, ne cuípiam meórum noceátis. Deínde, flexis génibus, ecclésiam et seípsum Deo comméndans, cápite pléctitur, quarto Kaléndas Januárii, anno Dómini millésimo centésimo septuagésimo primo.
+
+Te Deum laudámus.
+
+---
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 10, 11-16*
+
+IN illo témpore: Dixit Jesus pharisǽis: Ego sum pastor bonus. Bonus pastor ánimam suam dat pro óvibus suis. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilia 59 in Joannem}
+
+MAGNUM quiddam, dilectíssimi, magnum, inquam, est Ecclésiæ prælátio, et quæ multa índiget sapiéntia et fortitúdine, qualem Christus propósuit: ut ánimam pro óvibus ponámus, et numquam illas deserámus; ut lupo generóse resistámus. Hæc enim inter pastórem et mercenárium est differéntia: alter própriæ,

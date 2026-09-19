@@ -16766,3 +16766,69 @@ EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccat
 **4** Montes et colles \* cantábunt coram Deo laudem, et ómnia ligna silvárum pláudent mánibus: quóniam véniet Dominátor Dóminus in regnum ætérnum, allelúja, allelúja.
 
 **5** Ecce Dóminus \* noster cum virtúte véniet, et illuminábit óculos servórum suórum, allelúja.
+
+#### Capitulum
+
+*Rom. 15, 4*
+
+FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam, et consolatiónem Scriptu-rárum spem habeámus.
+
+#### Hymnus
+
+CREÁTOR alme síderum,
+Ætérna lux credéntium,
+Jesu, Redémptor ómnium,
+Inténde votis súpplicum.
+
+Qui dæmonis ne fráudibus
+Períret orbis, ímpetu
+Amóris actus, lánguidi
+Mundi medéla factus es.
+
+Commúne qui mundi nefas
+Ut expiáres, ad crucem
+E Vírginis sacrário
+Intácta prodis víctima.
+
+Cujus potéstas glóriæ,
+Noménque cum primum sonat,
+Et cælites et ínferi
+Treménte curvántur genu.
+
+Te deprecámur últimæ
+Magnum diéi Júdicem,
+Armis supérnæ grátiæ
+Defénde nos ab hóstibus.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Veni, Dómine, \* visitáre nos in pace, ut lætémur coram te corde perfécto.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Tu es qui ventúrus es, \* an álium exspectámus? Dícite Joánni quæ vidístis: Ad lumen rédeunt cæci, mórtui resúrgunt, páuperes evangelizántur, allelúja.
+
+#### Oratio
+
+EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus advéntum purificátis tibi méntibus servíre mereámur: Qui tecum vivit.
+
+---
+
+## Dominica II Adventus
+
+{RUBRIC: II classis} Semiduplex
+
+#### In I Nocturno
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 11, 1-10*
+
+ET egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum spíritus Dómini: spíritus sapiéntiæ et intelléctus, spíritus consílii et fortitúdinis, spíritus sciéntiæ et pietátis; et replébit eum spíritus timóris Dómini; non secúndum visiónem oculórum judicábit, neque secúndum audítum áurium árguet: sed judicábit in justítia páu-

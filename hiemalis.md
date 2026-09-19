@@ -20235,10 +20235,11 @@ Grex immolatórum tener,
 Aram sub ipsam símplices
 Palma et corónis lúditis.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Heródes irátus occídit multos púeros. ℟. In Béthlehem Judæ civitáte David.
 
@@ -22548,3 +22549,50 @@ ITAQUE, fratres mei, et vos mortificáti estis legi per corpus Christi: ut sitis
 {RUBRIC: Sermo 1 de Innocentibus}
 
 NASCÉNTE Dómino, luctus cœpit, non cælo, sed mundo: indícitur mátribus lamentátio, Angelis exsultátio, infántibus transmigrátio. Deus est, qui natus est: Innocéntes illi debéntur víctima, qui venit damnáre mundi malítiam. Agnélli debent immolári, quia Agnus futúrus est crucifígi, qui tollit peccáta mundi. Sed oves úlulant matres, quia agnos perdunt sine voce balán-
+tes. Grande martýrium, crudéle spectáculum! Exímitur machǽra, et nulla intérvenit causa: sola stridet invídia, cum qui natus est, nulli fáciat violéntiam. Sed oves cérnimus matres, quæ super agnos lugent: Vox in Rama audíta est, plorátus et ululátus magnus. Pígnora sunt, non crédita, sed creáta; non depósita, sed expósita.
+
+Te Deum laudámus.
+
+{RUBRIC: In Officiis vero novem Lectiónum, omísso Glória Patri in II Responsório, dícitur}
+
+#### Lectio iii
+
+*Rom. 7, 7-9*
+
+QUID ergo dicémus? lex peccátum est? Absit. Sed peccátum non cognóvi, nisi per legem: nam concupiscéntiam nesciébam, nisi lex díceret: Non concupísces. Occasióne autem accépta, peccátum per mandátum operátum est in me omnem concupiscéntiam. Sine lege enim peccátum mórtuum erat. Ego autem vivébam sine lege aliquándo. Sed cum venísset mandátum, peccátum revíxit.
+
+℟. Benedíctus qui venit in nómine Dómini, Deus Dóminus, et illúxit nobis: \* Allelúja, allelúja. ℣. Hæc dies quam fecit Dóminus, exsultémus et lætémur in ea. — Allelúja, allelúja. Glória. Allelúja, allelúja.
+
+### Ad Laudes
+
+#### Capitulum
+
+*Apoc. 14, 1*
+
+VIDI supra montem Sion Agnum stantem, et cum eo centum quadragínta quátuor míllia, habéntes nomen ejus, et nomen Patris ejus scriptum in fróntibus suis.
+
+#### Hymnus
+
+SALVÉTE, flores Mártyrum,
+Quos lucis ipso in límine
+Christi insecútor sústulit,
+Ceu turbo nascéntes rosas.
+
+Vos prima Christi víctima,
+Grex immolatórum tener,
+Aram sub ipsam símplices
+Palma et corónis lúditis.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Heródes irátus occídit multos púeros. ℟. In Béthlehem Judæ civitáte David.
+
+**Ad Bened. Ant.** Hi sunt, \* qui cum muliéribus non sunt coinquináti: vírgines enim sunt, et sequúntur Agnum quocúmque íerit.
+
+#### Oratio
+
+DEUS, cujus hodiérna die præcónium Innocéntes Mártyres non loquéndo, sed moriéndo conféssi

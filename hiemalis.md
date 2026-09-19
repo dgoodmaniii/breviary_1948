@@ -24616,3 +24616,30 @@ APUD eos isti infántem invenérunt, quem illi apud se negavérunt. In his terri
 #### Lectio vi
 
 JAM vero quod éadem stella, quæ Magos perdúxit ad locum, ubi erat cum matre Vírgine Deus infans, quæ útique póterat eos ad ipsam perdúcere civitátem, se tamen subtráxit, nec eis prorsus appáruit, donec de civitáte, in qua Christus nasceréetur, iídem ipsi interrogaréntur Judǽi, et ipsi eam secúndum divínæ Scriptúræ testimónium nominárent, ipsi dícerent: In Béthlehem Judæ. Sic enim scriptum est: Et tu Béthlehem terra Juda, non es mínima in princípibus Juda: ex te enim éxiet Dux, qui regat pópulum meum Israël. Quid áliud hic significávit divína providéntia, nisi apud Judǽos solas divínas lítteras remansúras, qui-
+bus gentes instrueréntur, illi excæcaréntur?
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 1-12*
+
+CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab Oriénte venérunt Jerosólymam, dicéntes: Ubi est qui natus est Rex Judæórum? Et réliqua.
+
+{RUBRIC: De Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 10 de Evangelia}
+
+MAGI vero aurum, thus et myrrham déferunt. Aurum quippe Regi cóngruit, thus vero in Dei sacrifícium pónitur, myrrha autem mortuórum córpora condiúntur. Eum ergo Magi, quem adórant, étiam mýsticis munéribus prǽdicant: auro Regem, thure Deum, myrrha mortálem. Sunt vero nonnúlli hærétici, qui hunc Deum credunt, sed ubíque regnáre nequáquam credunt. Hi profécto ei thus ófferunt, sed offérre étiam aurum nolunt. Et sunt nonnúlli, qui hunc Regem exístimant, sed Deum negant. Hi vidélicet ei aurum ófferunt, sed offérre thus nolunt.
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+#### Lectio viii
+
+ET sunt nonnúlli, qui hunc et Deum et Regem faténtur, sed assumpsísse carnem mortálem negant. Hi nimírum ei aurum et thus ófferunt, sed offérre myrrham assúmptæ mortalitátis nolunt. Nos ítaque nato Dómino offerámus aurum, ut hunc ubíque regnáre fateámur: offerámus thus, ut credámus, quod is, qui in témpore appáruit, Deus ante témpora exstítit: offerámus myrrham, ut eum, quem crédimus in sua divinitáte impassíbilem, credámus étiam in nostra fuísse carne mortálem.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio ma-

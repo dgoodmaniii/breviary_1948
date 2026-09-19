@@ -12832,3 +12832,87 @@ NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum
 Beáta spes mortálium,
 Summi Tonántis Únice,
 Castǽque proles Vírginis:
+
+Da déxteram surgéntibus,
+Exsúrgat et mens sóbria,
+Flagrans et in laudem Dei
+Grates rependat débitas.
+
+Ortus refúlget Lúcifer,
+Præítque solem núntius:
+Cadunt ténebræ nóctium:
+Lux sancta nos illúminet.
+
+Manénsque nostris sénsibus,
+Noctem repéllat séculi,
+Omníque fine témporis
+Purgáta servet péctora.
+
+Quæsíta jam primum fides
+In corde radíces agat:
+Secúnda spes congáudeat,
+Qua major exstat cáritas.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+{RUBRIC: Feria VI post Cineres Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+**Ad Bened. Ant.** Per víscera misericórdiæ \* Dei nostri visitávit nos Oriens ex alto.
+
+{RUBRIC: Feria VI post Cineres et in Vigiliis communibus Preces feriales, ut supra.} [REF: p. 252]
+
+{RUBRIC: Reliqua ut in Ordinario. 11}
+
+---
+
+### Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne séculum.
+Amen.
+
+**Per Annum: Ant.** Ne discédas a me.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria VI post Dominicam I:} **Ant.** In illa die.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Constántes estóte.
+
+### Psalmus 21, i
+
+DEUS, Deus meus, réspice in me: quare me dereliquísti? \* longe a salúte mea verba delictórum meórum.

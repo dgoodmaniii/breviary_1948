@@ -31994,4 +31994,12 @@ BEÁTUS Raymúndus Barcinonénsis, ex nóbili família de Peñafort, christián�
 
 #### Lectio v
 
-ANNUM círciter quintum supra quadragésimum agens, in órdine fratrum Prædicatórum solémni emíssa professióne, ut novus miles, in omni virtútum génere, sed præcípue
+ANNUM círciter quintum supra quadragésimum agens, in órdine fratrum Prædicatórum solémni emíssa professióne, ut novus miles, in omni virtútum génere, sed præcípuein caritáte erga egénos, et máxime captívos ab infidélibus deténtos, se exércuit. Unde cum ejus hortátu sanctus Petrus Noláscus (cujus ipse confessiónes audiébat) suas opes piíssimo huic óperi conférret, tum eídem, tum beáto Raymúndo, et Jacóbo primo Aragóniæ regi appárens beatíssima Virgo, gratíssimum sibi et unigénito Fílio suo fore dixit, si in suum honórem instituerétur ordo religiosórum, quibus captívos ex infidélium tyránnide liberándi cura incúmberet. Quare collátis inter se consíliis, órdinem beátæ Maríæ de mercéde redemptiónis captivórum fundavérunt: cui beátus Raymúndus certas vivéndi leges præscrípsit ad ejúsdem órdinis vocatiónem accommodatíssimas, quarum approbatiónem áliquot post annos a Gregório nono impetrávit, et dictum sanctum Petrum primum generálem órdinis magístrum suis ipse mánibus hábitu eódem indútum creávit.
+
+℟. Amávit eum Dóminus et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+#### Lectio vi
+
+AB eódem Gregório Romam accersítus, et capelláni ac pœnitentiárii et confessárii sui múnere decorátus, ejúsdem jussu Romanórum Pontíficum decréta, in divérsis concíliis et epístolis sparsa, in unum Decretálium volúmen redégit. Archiepiscopátum Tarraconénsem ab ipso Pontífice sibi oblátum constantíssime recusávit, et totíus órdinis Prædicatórum generále magistérium, quod per biénnium sanctíssime administráverat, sponte dimísit. Jacóbo Aragóniæ regi sacræ Inquisitiónis offícii suis in regnis instituéndi auctor fuit. Multa patrávit mirácula, inter quæ illud claríssimum, quod ex ínsula Baleári Majóri Barcinónem reversúrus, strato super aquas pállio centum sexagínta milliária sex horis confécerit et suum cœnóbium jánuis clausis fúerit ingréssus. Tandem prope centenárius, virtútibus et méritis cumulátus, obdormívit in Dómino, anno salútis millésimo ducentésimo septuagésimo quinto. Quem Clemens octávus in Sanctórum númerum rétulit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei

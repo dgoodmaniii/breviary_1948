@@ -17353,3 +17353,28 @@ quia in te sperávimus. Sperástis in Dómino in sǽculis ætérnis, in Dómino 
 #### Lectio ii
 
 SÉMITA justi recta est, rectus callis justi ad ambulándum. Et in sémita judiciórum tuórum, Dómine, sustinúimus te: nomen tuum, et memoriále tuum in desidério ánimæ. Anima mea desiderávit te in nocte, sed et spíritu meo in præcórdiis meis de mane vigilábo ad te. Cum féceris judícia tua in terra, justítiam discent habitatóres orbis. Misereámur ímpio, et non discet justítiam: in terra sanctórum
+iníqua gessit, et non vidébit glóriam Dómini.
+
+℟. Béthlehem cívitas Dei summi, ex te éxiet Dominátor Israël, et egréssus ejus sicut a princípio diérum æternitátis, et magnificábitur in médio univérsæ terræ: \* Et pax erit in terra nostra, dum vénerit. ℣. Loquétur pacem in géntibus, et potéstas ejus a mari usque ad mare. — Et.
+
+#### Lectio iii
+
+DÓMINE, exaltétur manus tua, et non vídeant: vídeant, et confundántur zelántes pópuli: et ignis hostes tuos dévoret. Dómine, dabis pacem nobis: ómnia enim ópera nostra operátus es nobis. Dómine Deus noster, possedérunt nos dómini absque te, tantum in te recordémur nóminis tui. Moriéntes non vivant, gigántes non resúrgant: proptérea visitásti et contrivísti eos, et perdidísti omnem memóriam eórum.
+
+℟. Qui ventúrus est, véniet, et non tardábit: et jam non erit timor in fínibus nostris: \* Quóniam ipse est Salvátor noster. ℣. Depónet omnes iniquitátes nostras, et projíciet in profúndum maris ómnia peccáta nostra. — Quóniam. Glória Patri. Quóniam.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 2 de jejúnio décimi mensis et collectis}
+
+#### Lectio iv
+
+QUOD témporis rátio, et devotiónis nostræ ádmonet consuetúdo, pastoráli vobis, dilectíssimi, sollicitúdine prædicámus, décimi mensis celebrándum esse jejúnium, quo pro consummáta perceptióne ómnium frúctuum, digníssime largitóri eórum Deo continéntiæ libámen offértur. Quid enim potest efficácius esse jejúnio? cujus observántia appropinquámus Deo, et resisténtes diábolo, vítia blanda superámus.
+
+℟. Ægýpte, noli flere, quia Dominátor tuus véniet tibi, ante cujus conspéctum movebúntur abýssi, \* Liberáre pópulum suum de manu poténtiæ. ℣. Ecce véniet Dóminus exercítuum, Deus tuus cum potestáte magna. — Liberáre.
+
+#### Lectio v
+
+SEMPER enim virtúti cibus jejúnium fuit. De abstinéntia dénique pródeunt castæ cogitatiónes, rationábiles voluntátes, salubrióra consília: et per voluntárias afflictiónes ca-

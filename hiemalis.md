@@ -18679,10 +18679,11 @@ Rigávit unda sánguinis,
 Natális ob diem tui
 Hymni tribútum sólvimus.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 {RUBRIC: Sic termínantur omnes Hymni ejúsdem metri usque ad Vigíliam Epiphániæ inclusíve.}
 
@@ -19320,7 +19321,8 @@ Pastor, Creátor ómnium.
 Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
 
@@ -19546,10 +19548,11 @@ Rigávit unda sánguinis,
 Natális ob diem tui
 Hymni tribútum sólvimus.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
 
@@ -19974,10 +19977,11 @@ In fine Christus séculi,
 Nos sempitérni gáudii
 Concédat esse cómpotes.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Hic est discípulus ille, qui testimónium pérhibet de his. ℟. Et scimus quia verum est testimónium ejus.
 
@@ -20354,10 +20358,11 @@ Rigávit unda sánguinis,
 Natális ob diem tui
 Hymni tribútum sólvimus.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
 
@@ -20503,10 +20508,11 @@ Et Ángeli canunt Deo;
 Palámque fit pastóribus
 Pastor, Creátor ómnium.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
 
@@ -21031,10 +21037,11 @@ Rigávit unda sánguinis,
 Natális ob diem tui
 Hymni tribútum sólvimus.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
 
@@ -21495,7 +21502,8 @@ Pastor, Creátor ómnium.
 Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
 
@@ -22643,3 +22651,74 @@ HI empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est i
 *Gal. 4, 1-2*
 
 FRATRES: Quanto témpore heres párvulus est, nihil differt a servo, cum sit dóminus ómnium: sed sub tutóribus et actó-
+res et actóribus est usque ad præfinítum tempus a patre.
+
+#### Hymnus
+
+JESU, Redémptor ómnium,
+Quem lucis ante oríginem
+Parem Patérnæ glóriæ
+Pater suprémus édidit.
+
+Tu lumen, et splendor Patris,
+Tu spes perénnis ómnium,
+Inténde quas fundunt preces
+Tui per orbem sérvuli.
+
+Meménto, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+Testátur hoc præsens dies,
+Currens per anni círculum,
+Quod solus e sinu Patris
+Mundi salus advéneris.
+
+Hunc astra, tellus, ǽquora,
+Hunc omne, quod cælo subest,
+Salútis auctórem novæ
+Novo salútat cántico.
+
+Et nos, beáta quos sacri
+Rigávit unda sánguinis,
+Natális ob diem tui
+Hymni tribútum sólvimus.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: Sic termínantur omnes Hymni ejúsdem metri usque ad Vigíliam Epiphaníæ inclusíve.}
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+**Ad Magnif. Ant.** Puer Jesus \* proficiébat ætáte et sapiéntia coram Deo et homínibus.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+
+{RUBRIC: Et fit Commemorátio S. Telésphori Papæ et Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Telésphorum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 8, 1-11*
+
+NIHIL ergo nunc damnatiónis est iis, qui sunt in Christo Jesu, qui non secúndum carnem ámbulant. Lex enim spíritus vitæ in Christo Jesu liberávit me a lege pec-

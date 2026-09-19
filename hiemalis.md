@@ -26210,3 +26210,29 @@ ET vos imitatóres nostri facti estis, et Dómini, excipiéntes verbum in tribul
 *Cap. 2, 1-6*
 
 NAM ipsi scitis, fratres, intróitum nostrum ad vos, quia non inánis fuit: sed ante passi, et contuméliis afflícti (sicut scitis) in Philíppis, fidúciam habúimus in Deo nostro loqui ad vos Evangélium Dei in multa sollicitúdine. Exhortátio enim nostra non de erróre, neque de immundítia, neque in dolo, sed sicut probáti sumus a Deo, ut crederétur nobis Evangélium: ita lóquimur, non quasi homínibus placéntes, sed Deo, qui probat corda nostra. Neque enim aliquándo fúimus in sermóne adulatiónis, sicut scitis: neque in occasióne avarítiæ: Deus testis est: nec quæréntes ab homínibus glóriam, neque a vobis, neque ab áliis.
+
+℟. Gaudébunt lábia mea cum cantávero tibi: \* Et ánima mea, quam redemísti, Dómine. ℣. Sed et lingua mea meditábitur justítiam tuam, tota die laudem tuam. — Et. Glória Patri. Et.
+
+### Feria Sexta
+
+{RUBRIC: De Epístola prima ad Thessalonicénses}
+
+#### Lectio i
+
+*Cap. 4, 1-11*
+
+DE cétero ergo, fratres, rogámus vos et obsecrámus in Dómino Jesu, ut, quemádmodum accepístis a nobis, quómodo opórteat vos ambuláre, et placére Deo, sic et ambulétis, ut abundétis magis. Scitis enim quæ præcépta déderim vobis per Dóminum Jesum. Hæc est enim volúntas Dei, sanctificátio vestra: ut abstineátis vos a fornicatióne, ut sciat unusquísque vestrum vas suum possidére in sanctificatióne et honóre: non in passióne desidérii, sicut et gentes, quæ ignórant Deum.
+
+℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum: \* Quia misericórdia tua, Dómine, magna est super me. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — Quia.
+
+#### Lectio ii
+
+ET ne quis supergrediátur, neque circumvéniat in negótio fratrem suum: quóniam vindex est Dóminus de his ómnibus, sicut prædíximus vobis, et testificáti sumus. Non enim vocávit nos Deus in immundítiam, sed in sanctificatiónem. Itaque qui hæc spernit, non hóminem spernit, sed Deum: qui étiam dedit Spíritum suum Sanctum in nobis.
+
+℟. Misericórdia tua, Dómine, magna est super me: \* Et liberásti ánimam meam ex inférno inferióri. ℣. In die tribulatiónis meæ clamávi ad te, quia exaudísti me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+DE caritáte autem fraternitátis non necésse habémus scríbere vobis: ipsi enim vos a Deo didicístis, ut diligátis ínvicem. Etenim illud fácitis in omnes fratres in univérsa Macedónia. Rogámus autem vos, fratres, ut abundétis magis, et óperam detis, ut quiéti sitis, et ut vestrum negótium agátis, et operémini mánibus vestris, sicut præcépimus vobis: et

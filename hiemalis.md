@@ -26432,3 +26432,103 @@ PROPTER quam causam admóneo te ut resúscites grátiam Dei, quæ est in te per 
 MANIFESTÁTA est autem nunc per illuminatiónem Salvatóris nostri Jesu Christi, qui destrúxit quidem mortem, illuminávit autem vitam, et incorruptiónem per Evangélium: in quo pósitus sum ego prædicátor, et Apóstolus, et magíster géntium. Ob quam causam étiam hæc pátior, sed non confúndor. Scio enim cui crédidi, et certus sum quia potens est depósitum meum serváre in illum diem. Formam habe sanórum verbórum, quæ a me audísti in fide, et in dilectióne in Christo Jesu.
 
 ℟. Ego dixi, Dómine, miserére mei: \* Sana ánimam meam, quia peccávi tibi. ℣. Ab ómnibus iniquitátibus meis éripe me, Dómine. — Sana. Glória Patri. Sana.
+
+### Feria Quarta
+
+{RUBRIC: De Epístola secúnda ad Timótheum}
+
+#### Lectio i
+
+*Cap. 3, 1-13*
+
+HOC autem scito, quod in novíssimis diébus instábunt témpora periculósa: erunt hómines seípsos amántes, cúpidi, eláti, supérbi, blasphémi, paréntibus non obediéntes, ingráti, scelésti, sine affectióne, sine pace, criminatóres, incontinéntes, immítes, sine benignitáte, proditóres, protérvi, túmidi, et voluptátum amatóres magis quam Dei: habéntes spéciem quidem pietátis, virtútem autem ejus abnegántes. Et hos devíta.
+
+℟. Ne perdíderis me cum iniquitátibus meis: \* Neque in finem irátus resérves mala mea. ℣. Non intres in judícium cum servo tuo, Dómine. — Neque.
+
+#### Lectio ii
+
+EX his enim sunt, qui pénetrant domos, et captívas ducunt muliércŭlas onerátas peccátis, quæ ducúntur váriis desidériis: semper discéntes, et numquam ad sciéntiam veritátis perveniéntes. Quemádmodum autem Jannes, et Mambres restitérunt Móysi: ita et hi resístunt veritáti, hómines corrúpti mente, réprobi circa fidem, sed ultra non profícient: insipiéntia enim eórum manifésta erit ómnibus, sicut et illórum fuit.
+
+℟. Parátum cor meum, Deus, parátum cor meum: \* Cantábo, et psalmum dicam Dómino. ℣. Exsúrge, glória mea, exsúrge, psaltérium et cíthara, exsúrgam dilúculo. — Cantábo.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Cantábo.}
+
+#### Lectio iii
+
+TU autem assecútus es meam doctrínam, institutiónem, propósitum, fidem, longanimitátem, dilectiónem, patiéntiam, persecutiónes, passiónes: quália mihi facta sunt Antiochíæ, Icónii, et Lystris: quales persecutiónes sustínui, et ex ómnibus erípuit me Dóminus. Et omnes, qui pie volunt vívere in Christo Jesu, persecutiónem patiéntur. Mali autem hómines et seductóres profícient in pejus, errántes, et in errórem mitténtes.
+
+℟. Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea. ℣. Lætábor, et exsultábo in te, psallam nómini tuo, Altíssime. — Deus. Glória Patri. Deus.
+
+### Feria Quinta
+
+{RUBRIC: Incipit Epístola beáti Pauli Apóstoli ad Titum}
+
+#### Lectio i
+
+*Cap. 1, 1-15*
+
+PAULUS servus Dei, Apóstolus autem Jesu Christi secúndum fidem electórum Dei, et agnitiónem veritátis, quæ secúndum pietátem est in spem vitæ ætérnæ, quam promísit qui non mentítur, Deus, ante témpora sæculária: manifestávit autem tempóribus suis verbum suum in prædicatióne, quæ crédita est mihi secúndum præcéptum Salvatóris nostri Dei: Tito dilécto fílio secúndum commúnem fidem, grátia, et pax a Deo Patre, et Christo Jesu Salvatóre nostro.
+
+℟. Deus, in te sperávi, Dómine, non confúndar in ætérnum: in justítia tua líbera me, \* Et éripe me. ℣. Inclína ad me aurem tuam, et salva me. — Et.
+
+#### Lectio ii
+
+HUJUS rei grátia relíqui te Cretæ, ut ea quæ desunt córrigas, et constítuas per civitátes presbýteros, sicut et ego dispósui tibi. Si quis sine crímine est, uníus uxóris vir, fílios habens fidéles, non in accusatióne luxúriæ, aut non súbditos. Opórtet enim epíscopum sine crímine esse, sicut Dei dispensatórem: non supérbum, non iracúndum, non vinoléntum, non percussórem, non turpis lucri cúpidum; sed hospitálem, benígnum, sóbrium, justum, sanctum, continéntem, amplecténtem eum, qui secúndum doctrínam est, fidélem sermónem: ut potens sit exhortári in doctrína sana, et eos, qui contradícunt, argúere.
+
+℟. Repleátur os meum laude tua, ut hymnum dicam glóriæ tuæ, tota die magnitúdinem tuam: noli me projícere in témpore senectútis: \* Dum defécerit in me virtus mea, ne derelínquas me. ℣. Gaudébunt lábia mea, cum cantávero tibi. — Dum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dum.}
+
+#### Lectio iii
+
+SUNT enim multi étiam inobediéntes, vanílóqui, et seductóres: máxime qui de circumcisióne sunt: quos opórtet redárgui: qui univérsas domos subvértunt, docéntes quæ non opórtet, turpis lucri grátia. Dixit quidam ex illis, próprius ipsórum prophéta: Creténses semper mendáces, malæ béstiæ, ventres pigri. Testimónium hoc verum est. Quam ob causam íncrepa illos
+dure, ut sani sint in fide, non intendéntes Judáicis fábulis, et mandátis hóminum aversántium se a veritáte. Omnia munda mundis: coinquinátis autem et infidélibus nihil est mundum.
+
+℟. Gaudébunt lábia mea cum cantávero tibi: \* Et ánima mea, quam redemísti, Dómine. ℣. Sed et lingua mea meditábitur justítiam tuam, tota die laudem tuam. — Et. Glória Patri. Et.
+
+### Feria Sexta
+
+{RUBRIC: De Epístola ad Titum}
+
+*Cap. 2, 15; 3, 1-11*
+
+#### Lectio i
+
+HÆC lóquere, et exhortáre, et árgue cum omni império. Nemo te contémnat. Admóne illos princípibus et potestátibus súbditos esse, dicto obedíre, ad omne opus bonum parátos esse: néminem blasphemáre, non litigiósos esse, sed modéstos, omnem ostendéntes mansuetúdinem ad omnes hómines.
+
+℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum: \* Quia misericórdia tua, Dómine, magna est super me. ℣. Deus meus es tu, et exaltábo te. — Quia.
+
+#### Lectio ii
+
+ERÁMUS enim aliquándo et nos insipiéntes, incréduli, errántes, serviéntes desidériis et voluptátibus váriis, in malítia et invídia agéntes, odíbiles, odiéntes ínvicem. Cum autem benígnitas, et humánitas appáruit Salvatóris nostri Dei: non ex opéribus justítiæ, quæ fécimus nos, sed secúndum suam misericórdiam salvos nos fecit per lavácrum regeneratiónis, et renovatiónis Spíritus Sancti, quem effúdit in nos abúnde per Jesum Christum Salvatórem nostrum: ut justificáti grátia ipsíus, herédes simus secúndum spem vitæ ætérnæ.
+
+℟. Misericórdia tua, Dómine, magna est super me: \* Et liberásti ánimam meam ex inférno inferióri. ℣. In die tribulatiónis meæ clamávi ad te, quia exaudísti me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+FIDÉLIS sermo est: et de his volo te confirmáre: ut curent bonis opéribus præésse qui credunt Deo. Hæc sunt bona, et utília homínibus. Stultas autem
+quæstiónes, et genealógias, et contentiónes, et pugnas legis devíta. Sunt enim inútiles et vanæ. Hæréticum hóminem post unam, et secúndam correptiónem devíta: sciens quia subvérsus est, qui ejúsmodi est, et delínquit, cum sit próprio judício condemnátus.
+
+℟. Factus est mihi Dóminus in refúgium: \* Et Deus meus in auxílium spei meæ. ℣. Erípuit me de inimícis meis fortíssimis, et factus est Dóminus protéctor meus. — Et. Glória Patri. Et.
+
+### Sabbato
+
+{RUBRIC: Incipit Epístola beáti Pauli Apóstoli ad Philémonem}
+
+#### Lectio i
+
+*Vers. 1-19*
+
+PAULUS vinctus Christi Jesu, et Timótheus frater: Philémoni dilécto, et adjutóri nostro, et Appiæ soróri caríssimæ, et Archíppo commilitóni nostro, et Ecclésiæ quæ in domo tua est. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo. Grátias ago Deo meo, semper memóriam tui fáciens in oratiónibus meis, áudiens caritátem tuam, et fidem, quam habes in Dómino Jesu, et in omnes sanctos: ut communicátio fídei tuæ évidens fiat in agnitióne omnis óperis boni, quod est in vobis in Christo Jesu.
+
+℟. Misericórdiam et judícium cantábo tibi, Dómine: \* Psallam et intélligam in via immaculáta, quando vénies ad me. ℣. Perambulábam in innocéntia cordis mei, in médio domus meæ. — Psallam.
+
+#### Lectio ii
+
+GAUDIUM enim magnum hábui, et consolatiónem in caritáte tua: quia víscera sanctórum requievérunt per te, frater. Própter quod multam fidúciam habens in Christo Jesu imperándi tibi quod ad rem pértinet: própter caritátem magis óbsecro, cum sis talis, ut Paulus senex, nunc autem et vinctus Jesu Christi: Obsecro te pro meo fílio, quem génui in vínculis, Onésimo, qui tibi aliquándo inútilis fuit, nunc autem et mihi, et tibi útilis, quem remísi tibi.
+
+℟. Dómine, exáudi oratiónem meam, et clamor meus ad te pervéniat: \* Quia non spernis, Deus, preces páuperum. ℣. Fiant aures tuæ intendéntes in oratiónem servi tui. — Quia.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Quia.}

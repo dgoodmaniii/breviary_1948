@@ -17236,3 +17236,30 @@ DOMINE, Deus meus es tu, exaltábo te, et confitébor nómini tuo: quóniam fec�
 #### Lectio ii
 
 SPÍRITUS enim robustórum quasi turbo impéllens paríetem. Sicut æstus in siti, tumúltum alienórum humiliábis: et quasi calóre sub nube torrénte, propáginem fórtium
+marcéscere fácies. Et fáciet Dóminus exercítuum ómnibus pópulis in monte hoc convívium pínguium, convívium vindémiæ, pínguium medullatórum, vindémiæ defæcátæ. Et præcipitábit in monte isto fáciem vínculi colligáti super omnes pópulos, et telam quam ordítus est super omnes natiónes.
+
+℟. Festína, ne tardáveris, Dómine: \* Et líbera pópulum tuum. ℣. Veni, Dómine, et noli tardáre: reláxa facínora plebi tuæ. — Et.
+
+#### Lectio iii
+
+PRÆCIPITÁBIT mortem in sempitérnum: et áuferet Dóminus Deus lácrimam ab omni fácie, et oppróbrium pópuli sui áuferet de univérsa terra: quia Dóminus locútus est. Et dicet in die illa: Ecce Deus noster iste, exspectávimus eum, et salvábit nos: iste Dóminus, sustinúimus eum, exsultábimus, et lætábimur in salutári ejus. Quia requiéscet manus Dómini in monte isto: et triturábitur Moab sub eo, sícuti terúntur páleæ in plaustro. Et exténdet manus suas sub eo, sicut exténdit natans ad natándum: et humiliábit glóriam ejus cum allisióne mánuum ejus. Et mu-
+
+niménta sublímium murórum tuórum cóncident, et humiliabúntur, et detrahéntur in terram usque ad púlverem.
+
+℟. Ecce Dóminus véniet cum splendóre descéndens, et virtus ejus cum eo, \* Visitáre pópulum suum in pace, et constitúere super eum vitam sempitérnam. ℣. Ecce Dóminus noster cum virtúte véniet. — Visitáre. Glória Patri. Visitáre.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Levábit Dóminus signum \* in natiónibus, et congregábit dispérsos Israël.
+
+#### Oratio
+
+EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus advéntum purificátis tibi méntibus servíre mereámur: Qui tecum.
+
+### Ad Vesperas
+
+**Ant. 1** Véniet Dóminus, \* et non tardábit, et illuminábit abscóndita tenebrárum, et manifestábit se ad omnes gentes, allelúja.
+
+{RUBRIC: Psalmi de Sabbato, ut in Psaltério. 312}
+
+**2** Jerúsalem, gaude \* gáudio magno, quia véniet tibi Salvátor, allelúja.

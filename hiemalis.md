@@ -13832,4 +13832,70 @@ Reptántis et feræ genus:
 
 Et magna rerum córpora,
 Dictu jubéntis vívida,
-Per témporum certas vi-
+Per témporum certas vices
+Obtemperáre sérvulis:
+
+Repélle, quod cupídinis
+Ciénte vi nos ímpetit,
+Aut móribus se súggerit,
+Aut áctibus se intérserit.
+
+Da gaudiórum prǽmia,
+Da gratiárum múnera:
+Dissólve litis víncula:
+Astrínge pacis fœdera.
+
+Præsta, Pater piíssime,
+Patríque compar Únice,
+Cum Spíritu Paráclito
+Regnans per omne séculum. Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+{RUBRIC: Feria VI post Dominicam Septuagesimæ et Sexagesimæ ac Feria VI post Cineres Antiphona ad Magnificat ut in Proprio de Tempore; alias}
+
+**Ad Magnif. Ant.** Depósuit Dóminus \* poténtes de sede, et exaltávit húmiles.
+
+{RUBRIC: Preces feriales, si dicendæ, ut supra. 272}
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+#### Lectio br.
+
+*1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dicitur totum secreto.}
+
+{RUBRIC: Confíteor. Misereátur. Indulgéntiam.}
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Voce mea. †
+
+#### Psalmus 76, i
+
+VOCE mea † ad Dóminum clamávi: \* voce mea ad Deum, et inténdit mihi.
+
+In die tribulatiónis meæ Deum exquisívi, mánibus meis nocte contra eum: \* et non sum decéptus.
+
+Rénuit consolári ánima mea, \* memor fui Dei, et delectátus sum, et exercitátus sum: et defécit spíritus meus.
+
+Anticipavérunt vigílias óculi mei: \* turbátus sum, et non sum locútus.
+
+Cogitávi dies antíquos: \* et annos ætérnos in mente hábui.
+
+Et meditátus sum nocte cum corde meo, \* et exer-

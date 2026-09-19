@@ -19365,3 +19365,50 @@ ET: Tu in princípio, Dómine, terram fundásti: et ópera mánuum tuárum sunt 
 IPSI períbunt, tu autem permanébis; et omnes sicut vestiméntum veteráscent: et velut amíctum mutábis eos, et mutabúntur: tu autem idem ipse es, et anni tui non defícient.
 
 ℟. br. Vidérunt omnes fines terræ, \* Allelúja, allelúja. Vidérunt. ℣. Salutáre Dei nostri. Allelúja, allelúja. Glória Patri. Vidérunt. ℣. Verbum caro
+factum est, allelúja. ℟. Et habitávit in nobis, allelúja, allelúja.
+
+### In II Vesperis
+
+**Ant.** Tecum princípium \* in die virtútis tuæ, in splendóribus sanctórum, ex útero ante lucíferum génui te.
+
+#### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Tecum princípium in die virtútis tuæ, in splendóribus sanctórum, ex útero ante lucíferum génui te.
+
+**Ant.** Redemptiónem \* misit Dóminus pópulo suo: mandávit in ætérnum testaméntum suum.
+
+#### Psalmus 110
+
+CONFITÉBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in séculum séculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in séculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in séculum séculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.

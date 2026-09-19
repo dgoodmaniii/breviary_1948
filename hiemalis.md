@@ -25240,3 +25240,32 @@ AUDET áliquis vestrum habens negótium advérsus álterum, judicári apud iníq
 {RUBRIC: Infra Octávam Epiphaníæ}
 
 ℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendá-
+tur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum, et vox de cælo facta est. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+{RUBRIC: Nisi resuménda sint Responsória de Fería II. [REF: p. 555]}
+
+℟. Ne perdíderis me cum iniquitátibus meis: \* Neque in finem irátus resérves mala mea. ℣. Non intres in judícium cum servo tuo, Dómine. — Neque.
+
+#### Lectio ii
+
+JAM quidem omníno delíctum est in vobis, quod judícia habétis inter vos. Quare non magis injúriam accípitis? quare non magis fraudem patímini? Sed vos injúriam fácitis, et fraudátis: et hoc frátribus. An nescítis quia iníqui regnum Dei non possidébunt? Nolíte erráre: neque fornicárii, neque idólis serviéntes, neque adúlteri, neque molles, neque masculórum concubitóres, neque fures, neque avári, neque ebriósi, neque maledíci, neque rapáces, regnum Dei possidébunt. Et hæc quidam fuístis: sed ablúti estis, sed sanctificáti estis, sed justificáti estis in nómine Dómini nostri Jesu Christi, et in Spíritu Dei nostri.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Parátum cor meum, Deus, parátum cor meum: \* Cantábo, et psalmum dicam Dómino. ℣. Exsúrge, glória mea, exsúrge, psaltérium et cíthara, exsúrgam dilúculo. — Cantábo.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Cantábo.}
+
+#### Lectio iii
+
+OMNIA mihi licent, sed non ómnia expédiunt. Omnia mihi licent, sed ego sub nullíus rédigar pote-

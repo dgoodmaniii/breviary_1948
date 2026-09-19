@@ -20695,9 +20695,7 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 
 ℣. Justus ut palma.
 
-**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget
-
-semetípsum, et tollat crucem suam, et sequátur me.
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget semetípsum, et tollat crucem suam, et sequátur me.
 
 {RUBRIC: Et fit Commemoratio sequentis diei infra Octavam.}
 
@@ -30586,3 +30584,66 @@ enses obstríctos, exsílium véluti sui ministérii offícium accépit; missús
 #### Lectio vi
 
 QUANTA in eum tunc Ariánórum crudélitas fúerit ac effrons inverecúndia, osténdunt graves lítteræ plenæ róboris, pietátis ac religiónis, quas e Scythópoli scripsit ad Vercellénsem clerum et pópulum, aliósque finítimos; e quibus étiam est explorátum, ipsórum nec minis, inhumanáque sævítia potuísse umquam eum deterréri, nec serpentína blanda subtilitáte ad eórum societátem perdúci. Hinc in Cappadóciam, postremóque ad superióres Ægýpti Thebáidas pro constántia sua deportátus, exsílii rigóres tulit ad mortem usque Constántii:
+post quam ad gregem suum revérti permíssus, non prius rediré vóluit, quam reparándis fídei jactúris ad Alexandrínam sýnodum sese conférret, postque médici præstántis instar, péragrans Oriéntis províncias, in fide infírmos ad íntegram valetúdinem restitúeret, eos instítuens in Ecclésiæ doctrína. Inde salubritáte pari digrésso in Illýricum, tandémque in Itáliam deláto, ad ejus réditum lúgubres vestes Itália mutávit: ubi postquam Psalmórum ómnium expurgátos a se commentários Orígenis édidit, Eusebíique Cæsareénsis, quos vérterat de Græco in Latínum; demum tot egrégie factis illústris ad immarcescíbilem glóriæ corónam tantis ærúmnis proméritam, sub Valentiniáno et Valénte Vercéllis migrávit.
+
+℟. Stola jucunditátis induit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+EUSÉBIUS, natióne Sardus, Románæ urbis lector, post Vercellénsis epíscopus, advérsus Arianísmum sic víriliter dimicávit, ut ejus invícta fides Libérium summum Pontíficem ad vitæ solátium erígeret. Pro ejúsdem fídei cathólicæ confessióne a Constántio príncipe Scythópolim missus fuit, ubi famem, sitim, vérbera divérsaque supplícia est perpéssus. Inde in Cappadóciam relegátus, exsílii rigóres tulit usque ad mortem ipsíus Constántii, post quam ad ecclésiam suam revérti permíssus est. Tunc lúgubres vestes Itália mutávit; ubi postquam Psalmórum ómnium expurgátos a se commentários Orígenis édidit, Eusebíique Cæsareénsis, quos vérterat de Græco in Latínum; ad immarcescíbilem glóriæ corónam tantis ærúmnis proméritam, sub Valentiniáno et Valénte Vercéllis migrávit ad Dóminum.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Si quis vult, de Communi unius Mart. 2 loco.} [44]
+
+℟. viii Dómine, prævenísti.
+
+### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio** C 2
+
+DEUS, qui nos beáti Eusébii Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+### In II Vesperis
+
+℣. Justus ut palma.
+
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: De Vigília S. Thomæ Apóstoli nihil fit in Offício.}
+
+---
+
+## Die 21 Decembris
+
+### S. Thomæ Apostoli
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Communi Apostolórum} [3] {RUBRIC: præter ea quæ hic habéntur própria.}
+
+**Ad Magnif. Ant.** Quia vidísti me, \* Thoma, credidísti: beáti qui non vidérunt et credidérunt, allelúja.
+
+#### Oratio
+
+DA nobis, quǽsumus, Dómine, beáti Apóstoli tui Thomæ solemnitátibus gloriári: ut ejus semper et patrocíniis sublevémur; et fidem cóngrua devotióne sectémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones} Sic nos exístimet, {RUBRIC: de eódem Communi.} [9]
+
+### In II Nocturno
+
+#### Lectio iv
+
+THOMAS Apóstolus, qui et Dídymus, Galilǽus, post accéptum Spíritum Sanctum in multas províncias proféctus est ad prædicándum Christi Evangélium: Parthis, Medis, Persis, Hyrcánis et Bactris christiánæ fídei et vitæ præcépta trádidit. Postrémo ad Indos se cónferens, eos in christiána religióne erudívit. Qui ad extrémum, vitæ doctrinǽque sanctitáte et miraculórum magnitúdine, cum céteris ómnibus suis admiratiónem et Jesu Christi amórem commo-

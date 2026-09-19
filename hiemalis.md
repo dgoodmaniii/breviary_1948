@@ -17378,3 +17378,30 @@ QUOD témporis rátio, et devotiónis nostræ ádmonet consuetúdo, pastoráli v
 #### Lectio v
 
 SEMPER enim virtúti cibus jejúnium fuit. De abstinéntia dénique pródeunt castæ cogitatiónes, rationábiles voluntátes, salubrióra consília: et per voluntárias afflictiónes ca-
+ro concupiscéntiis móritur, virtútibus spíritus innovátur. Sed quia non solo jejúnio animárum nostrárum salus acquíritur: jejúnium nostrum misericórdiis páuperum suppleámus. Impendámus virtúti, quod subtráhimus voluptáti. Fiat reféctio páuperis abstinéntia jejunántis.
+
+℟. Prope est ut véniat tempus ejus, et dies ejus non elongabúntur: \* Miserébitur Dóminus Jacob, et Israël salvábitur. ℣. Revértere, virgo Israël, revértere ad civitátes tuas. — Miserébitur.
+
+#### Lectio vi
+
+STUDEÁMUS viduárum defensióni, pupillórum utilitáti, lugéntium consolatióni, dissidéntium paci. Suscipiátur peregrínus, adjuvétur oppréssus, vestiátur nudus, foveátur ægrótus: ut quicúmque nostrum de justis labóribus auctóri bonórum ómnium Deo sacrifícium hujus pietátis obtúlerit, ab eódem regni cæléstis prǽmium percípere mereátur. Quarta ígitur et sexta féria jejunémus; sábbato autem apud beátum Petrum Apóstolum páriter vigilémus: cujus suffragántibus méritis, quæ póscimus, impetráre possímus per Dóminum nostrum Je-
+
+sum Christum, qui cum Patre et Sancto Spíritu vivit et regnat in sǽcula sæculórum. Amen.
+
+℟. Descéndet Dóminus sicut plúvia in vellus: \* Oriétur in diébus ejus justítia, et abundántia pacis. ℣. Et adorábunt eum omnes reges, omnes gentes sérvient ei. — Oriétur. Glória Patri. Oriétur.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 1, 19-28*
+
+IN illo témpore: Misérunt Judǽi ab Jerosólymis sacerdótes et levítas ad Joánnem, ut interrogárent eum: Tu quis es? Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 7 in Evang.}
+
+EX hujus nobis lectiónis verbis, fratres caríssimi, Joánnis humílitas commendátur: qui cum tantæ virtútis esset, ut Christus credi potuísset, elégit sólide subsístere in se, ne humána opinióne raperétur inániter super se. Nam conféssus est, et non negávit: et conféssus est, Quia non sum ego Christus. Sed qui dixit, Non sum; negávit plane quod non erat, sed non negávit

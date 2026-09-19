@@ -25321,3 +25321,36 @@ NOLÍTE fraudáre ínvicem, nisi forte ex consénsu ad tempus, ut vacétis orati
 #### Lectio iii
 
 HIS autem, qui matrimónio juncti sunt, præcípio non ego, sed Dóminus, uxórem a viro non discédere: quod si discésserit, manére innúptam, aut viro suo reconciliári. Et vir uxórem non dimíttat. Nam céteris ego dico, non Dóminus: Si quis frater uxórem habet infidélem, et hæc conséntit habitáre cum illo, non dimíttat illam. Et si qua múlier fidélis habet virum infidélem, et hic conséntit habitáre cum illa, non dimíttat virum: sanctificátus est enim vir infidélis per mulíerem fidélem, et sanctificáta est múlier infidélis per virum fidélem: alió-
+quin fílii vestri immúndi essent, nunc autem sancti sunt.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Gaudébunt lábia mea cum cantávero tibi: \* Et ánima mea, quam redemísti, Dómine. ℣. Sed et lingua mea meditábitur justítiam tuam, tota die laudem tuam. — Et. Glória Patri. Et.
+
+### Feria Sexta
+
+{RUBRIC: De Epístola prima ad Corínthios}
+
+#### Lectio i
+
+*Cap. 13, 1-13*
+
+SI linguis hóminum loquar et Angelórum, caritátem autem non hábeam, factus sum velut æs sonans, aut cýmbalum tínniens. Et si habúero prophetíam, et nóverim mystéria ómnia, et omnem sciéntiam: et si habúero omnem fidem, ita ut montes tránsferam, caritátem autem non habúero, nihil sum. Et si distribúero in cibos páuperum omnes facultátes meas, et si tradídero corpus meum, ita ut árdeam, caritátem autem non habúero, nihil mihi prodest.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum, et vox de cælo facta est. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+{RUBRIC: Nisi resuménda sint Responsória de Fería II. [REF: p. 555]}
+
+℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum: \* Quia misericórdia tua, Dómine,

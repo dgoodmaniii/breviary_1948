@@ -28427,3 +28427,42 @@ Sedes tua, Deus, in séculum séculi: \* virga directiónis virga regni tui.
 Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
 
 Myrrha, et gutta, et cásia a vestiméntis tuis, a
+dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto: \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam: \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in séculum séculi.
+
+**Ant.** Relíctis rétibus suis, secúti sunt Dóminum Redemptórem.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+{RUBRIC: De Epístola beáti Pauli Apóstoli ad Romános}
+
+#### Lectio i
+
+*Cap. 10, 4-21*
+
+FINIS legis, Christus, ad justítiam omni credénti. Móyses enim scripsit, quóniam justítiam, quæ ex lege est, qui fécerit homo, vivet in ea. Quæ autem ex fide est justítia, sic dicit: Ne díxeris in corde tuo: Quis ascéndet in cælum? id est, Christum dedúcere: aut quis descéndet in abýssum? hoc est, Christum a mórtuis revocáre. Sed quid dicit Scriptúra? Prope est verbum in ore tuo et in corde tuo: hoc est verbum fídei, quod prædicámus. Quia si confiteáris in ore tuo Dóminum Jesum, et in corde tuo credíderis quod Deus illum suscitávit a mórtuis, salvus eris.
+
+℟. Cum perambuláret Dóminus juxta mare Galilǽæ, vidit Petrum et Andréam rétia mitténtes in mare, et vocávit eos, dicens: \* Veníte post me, fáciam vos fíeri piscatóres hóminum. ℣. Erant enim piscatóres, et ait illis. — Veníte.
+
+#### Lectio ii
+
+CORDE enim créditur ad justítiam, ore autem conféssio fit ad salútem.

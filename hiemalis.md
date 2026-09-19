@@ -33663,4 +33663,22 @@ DEUS, qui nos beáti Blásii Mártyris tui atque Pontíficis ánnua solemnitáte
 
 #### Oratio
 
-DEUS, qui in Ecclésia tua, nova semper instáuras exémpla virtútum: da pópulo tuo beáti Andréæ Confessóris tui atque Pontíficis ita sequi
+DEUS, qui in Ecclésia tua, nova semper instáuras exémpla virtútum: da pópulo tuo beáti Andréæ Confessóris tui atque Pontíficis ita sequi vestígia; ut assequátur et prǽmia. Per Dóminum.
+
+### In II Nocturno
+
+#### Lectio iv
+
+ANDRÉAM, Floréntiæ ex nóbili Corsinórum família natum, paréntes précibus a Deo impetrárunt et beátæ Vírgini spopondérunt. Qualis autem futúrus esset, divíno præságio, ántequam nascerétur, osténsum est: nam mater grávida sibi visa est per quiétem lupum edidísse, qui ad Carmelitárum ædem pergens, in ipso templi vestíbulo statim in agnum convérsus est. Adoléscens pie et ingénue educátus, cum sensim ad vítia declináret, sæpe a matre increpátus fuit. Ubi autem cognóvit se paréntum voto Deíparæ Vírgini dicátum fuísse, Dei amóre succénsus, deque visu matris admónitus, Carmelitárum institútum ampléxus est; in quo váriis tentatiónibus a dæmone vexátus, numquam tamen pótuit a religiónis propósito dimovéri. Mox Lutétiam missus, eménso studiórum currículo, et láurea donátus, in pátriam revocátur, suíque órdinis regímini in Etrúria præfícitur.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+INTÉREA Fesulána ecclésia, suo viduáta pastóre, eum sibi epíscopum elégit: quo múnere se indígnum æstimans, diu látuit ignótus, donec púeri voce mirabíliter loquéntis próditus et extra urbem invéntus, ne divínæ contradíceret voluntáti, epíscopátum suscépit. Ea dignitáte auctus, humilitáti, quam semper colúerat, impénsius incúbuit; et pastoráli sollicitúdini misericórdiam in páuperes, liberalitátem, oratiónis assiduitátem, vigílias, aliásque virtútes adjúnxit, et spíritu étiam prophético clarus fuit; ádeo ut ejus sánctitas ab ómnibus celebrarétur.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+HIS permótus Urbánus quintus, ad sedándas Bonóniæ turbas, Andréam legátum misit. Quo in mú-

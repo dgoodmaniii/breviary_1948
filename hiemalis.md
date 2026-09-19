@@ -5227,3 +5227,47 @@ BEATA gens, cujus est Dóminus, Deus ejus: \* pópulus, quem elégit in heredit�
 De cælo respéxit Dóminus: \* vidit omnes fílios hóminum.
 
 De præparáto habitáculo suo \* respéxit super omnes, qui hábitant terram.
+
+Qui finxit sigillátim corda eórum: \* qui intélligit ómnia ópera eórum.
+
+Non salvábitur rex per multam virtútem: \* et gigas non salvábitur in multitúdine virtútis suæ.
+
+Fallax equus ad salútem: \* in abundántia autem virtútis suæ non salvábitur.
+
+Ecce óculi Dómini super metuéntes eum: \* et in eis, qui sperant super misericórdia ejus:
+
+Ut éruat a morte ánimas eórum: \* et alat eos in fame.
+
+Anima nostra sústinet Dóminum: \* quóniam adjútor et protéctor noster est.
+
+Quia in eo lætábitur cor nostrum: \* et in nómine sancto ejus sperávimus.
+
+Fiat misericórdia tua, Dómine, super nos: \* quemádmodum sperávimus in te.
+
+{RUBRIC: Per Annum:} **Ant.** Exsultáte, justi, et gloriámini, omnes recti corde.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria II post Dominicam I:} **Ant.** Ecce véniet Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+{RUBRIC: Feria II post Dominicam II:} **Ant.** Ecce Dóminus noster cum virtúte véniet, et illuminábit óculos servórum suórum, allelúja.
+
+{RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Egrediétur Dóminus de loco sancto suo: véniet, ut salvet pópulum suum.
+
+**Capitulum** *Is. 14, 1*
+
+PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur: miserébitur enim Dóminus Jacob, et Israël salvábitur.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super te. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super te. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+#### Per Annum
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.

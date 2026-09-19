@@ -19851,3 +19851,28 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 QUOD fuit ab inítio, quod audívimus, quod vídimus óculis nostris, quod perspéximus, et manus nostræ contrectavérunt de verbo vitæ: et vita manifestáta est, et vídimus, et testámur, et annuntiámus vobis vitam ætérnam, quæ erat apud Patrem, et appáruit nobis: quod vídimus et audívimus, annuntiámus vobis, ut et vos societátem habeátis nobíscum, et societas nostra sit cum Patre et cum Fílio ejus Jesu Christo. Et hæc scríbimus vobis ut gaudeátis, et gáudium vestrum sit plenum. Et hæc est annuntiátio, quam audívimus ab eo, et annuntiámus vobis: Quóniam Deus lux est, et ténebræ in eo non sunt ullæ.
 
 ℟. Valde honorándus est beátus Joánnes, qui supra
+pectus Dómini in cœna recúbuit: \* Cui Christus in cruce Matrem vírginem vírgini commendávit. ℣. Virgo est eléctus a Dómino, atque inter céteros magis diléctus. — Cui.
+
+#### Lectio ii
+
+SI dixérimus quóniam societátem habémus cum eo, et in ténebris ambulámus, mentímur, et veritátem non fácimus. Si autem in luce ambulámus sicut et ipse est in luce, societátem habémus ad ínvicem, et sánguis Jesu Christi, Fílii ejus, emúndat nos ab omni peccáto. Si dixérimus quóniam peccátum non habémus, ipsi nos sedúcimus, et véritas in nobis non est. Si confiteámur peccáta nostra, fidélis est et justus, ut remíttat nobis peccáta nostra, et emúndet nos ab omni iniquitáte. Si dixérimus quóniam non peccávimus, mendácem fácimus eum, et verbum ejus non est in nobis.
+
+℟. Hic est discípulus ille, qui testimónium pérhibet de his, et scripsit hæc: \* Et scimus quia verum est testimónium ejus. ℣. Fluénta Evangélii de ipso sacro Domínici péctoris fonte potávit. — Et scimus.
+
+#### Lectio iii
+
+*Cap. 2, 1-5*
+
+FILÍOLI mei, hæc scribo vobis, ut non peccétis. Sed et si quis peccáverit, advocátum habémus apud Patrem, Jesum Christum justum: et ipse est propitiátio pro peccátis nostris: non pro nostris autem tantum, sed étiam pro totíus mundi. Et in hoc scimus quóniam cognóvimus eum, si mandáta ejus observémus. Qui dicit se nosse eum, et mandáta ejus non custódit, mendax est, et in hoc véritas non est. Qui autem servat verbum ejus, vere in hoc cáritas Dei perfécta est.
+
+℟. Hic est beatíssimus Evangelísta et Apóstolus Joánnes, \* Qui privilégio amóris præcípui, céteris áltius a Dómino méruit honorári. ℣. Hic est discípulus ille, quem diligébat Jesus, qui supra pectus Dómini in cœna recúbuit. — Qui. Glória Patri. Qui.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Hierónymi Presbýteri de Scriptóribus ecclesiásticis}
+
+#### Lectio iv
+
+*Cap. 9*
+
+JOÁNNES Apóstolus, quem Jesus amávit plúrimum, fílius Zebedǽi, frater Jacóbi Apóstoli, quem Heródes post passiónem Dómini de-

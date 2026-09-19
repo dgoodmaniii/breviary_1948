@@ -19778,7 +19778,7 @@ STÉPHANUS autem plenus grátia et fortitúdine, faciébat prodígia et signa ma
 #### Hymnus
 
 DEUS, tuórum mílitum
-Sors, et corónа, prǽmium,
+Sors, et coróna, prǽmium,
 Laudes canéntes Mártyris
 Absólve nexu críminis.
 
@@ -19797,10 +19797,11 @@ Te póscimus, piíssime:
 In hoc triúmpho Mártyris
 Dimítte noxam sérvulis.
 
-\* Jesu, tibi sit glória,
+Jesu, tibi sit glória,
 Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
-In sempitérna sécula. Amen.
+In sempitérna sǽcula.
+Amen.
 
 ℣. Stéphanus vidit cælos apértos. ℟. Vidit, et introívit: beátus homo, cui cæli patébant.
 
@@ -22141,3 +22142,58 @@ IN nómine Jesu omne genu flectátur cæléstium, terréstrium, et infernórum: 
 OMNE quodcúmque fácitis in verbo, aut in ópere: ómnia in nómine Dómini Jesu Christi fácite, grátias agéntes Deo et Patri per ipsum.
 
 ℟. br. Magnificáte Dóminum mecum, \* Allelúja,
+allelúja. Magnificáte. ℣. Et exaltémus nomen ejus in idípsum. Allelúja, allelúja. Glória Patri. Magnificáte. ℣. Adjutórium nostrum in nómine Dómini, allelúja. ℟. Qui fecit cælum et terram, allelúja.
+
+### In II Vesperis
+
+{RUBRIC: ¶ Quando hoc Festum celebrátur die 5 Januárii, Vésperæ dicúntur de sequénti Festo Epiphaníæ, cum Commemoratióne præcedéntis.}
+
+{RUBRIC: Omnia ut in I Vésperis [REF: p. 460], præter}
+
+℣. Sit nomen Dómini benedíctum, allelúja. ℟. Ex hoc nunc, et usque in sæculum, allelúja.
+
+**Ad Magnif. Ant.** Vocábis \* nomen ejus Jesum; ipse enim salvum fáciet pópulum suum a peccátis eórum, allelúja.
+
+{RUBRIC: Completorium de Dominica.}
+
+## Die 2 Januarii
+
+# In Octava S. Stephani Protomartyris
+
+{RUBRIC: Simplex}
+
+{RUBRIC: ¶ Antiphonæ et Psalmi ad omnes Horas et Versus únici Noctúrni dicúntur de Féria occurrénti, ut in Psaltério; réliqua ut infra.}
+
+{RUBRIC: ¶ Lectiónes de Epístola beáti Pauli ad Romános hoc tríduo assignátæ semper legúntur, sua quǽque die, cum suis Responsóriis, in quocúmque Offício novem Lectiónum occurrénti quod Lectiónes próprias aut de Communi non hábeat, juxta Rubricas. In iis tamen in II Responsório omittítur Glória Patri, et III Lectio cum suo Responsório dícitur, ut suis locis notátur.}
+
+### Ad Matutinum
+
+**Invitat.** Christum natum, qui beátum hódie coronávit Stéphanum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+#### Hymnus
+
+DEUS, tuórum mílitum
+Sors, et coróna, prǽmium,
+Laudes canéntes Mártyris
+Absólve nexu críminis.
+
+Hic nempe mundi gáudia,
+Et blanda fraudum pábula
+Imbúta felle députans,
+Pervénit ad cæléstia.
+
+Pœnas cucúrrit fórtiter,
+Et sústulit viríliter,
+Fundénsque pro te sánguinem,
+Ætérna dona póssidet.
+
+Ob hoc precátu súpplici
+Te póscimus, piíssime:
+In hoc triúmpho Mártyris
+Dimítte noxam sérvulis.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.

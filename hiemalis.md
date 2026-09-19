@@ -28813,3 +28813,22 @@ DEUS, ómnium largítor bonórum, qui in fámula tua Bibiána cum virginitátis 
 BIBIÁNA, virgo Romána, nóbili génere nata, christiána fide nobílior fuit. Ejus enim pater Flaviánus sub Juliáno Apóstata impiíssimo tyránno expræféctus, servilibúsque notis compúnctus, ad aquas Taurínas deportátus, Martyr occúbuit. Mater Dafrósa et fíliæ, primum conclúsæ domi, ut inédia conficeréntur; mox relegáta mater extra Urbem cápite plexa est. Mórtuis autem piis paréntibus, Bibiána cum soróre sua Demétria bonis ómnibus exspoliátur; Aproniánus Urbis prǽtor, pecúniis ínhians, soróres perséquitur; quas humána prorsus ope destitútas, Deo mirabíliter, qui dat escam esuriéntibus, enutriénte, cum vivacióres vegetiorésque conspexísset, veheménter est admirátus.
 
 ℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+
+#### Lectio v
+
+SUÁDET nihilóminus Aproniánus, ut veneréntur deos géntium, amíssas ídeo opes, imperatóris grátiam, præclaríssimas núptias consecutúræ. Si secus fécerint, minátur cárceres, virgas, secúres. At illæ, neque blandítiis, neque minis a recta fide declinántes, parátæ pótius mori, quam fœdári móribus ethnicórum, prætóris impietátem constantíssime detestántur. Quare Demétria, ob óculos Bibiánæ repénte córruens, óbiit in Dómino: Bibiána Rufínæ mulíeri vaférrimæ seducénda tráditur; quæ ab incunábulis edócta christiánas leges et illibátum serváre virginitátis florem, se ipsa fórtior féminæ superávit insídias, et prætóris astus delúsit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+NIHIL autem proficiénte Rufína, quæ, prǽter dolósa verba, illam quotídie verbéribus affligébat, ut de sancto propósito dimovéret, spe sua frustrátus prǽtor, accénsus ira quod in Bibiána perdidísset óperam, a lictóribus eam denudári, vinctísque mánibus colúmnæ alligári, eámque plumbátis cædi jubet, donec effláret ánimam. Cujus sacrum corpus objéctum cánibus bíduo jácuit in foro Tauri, illǽsum tamen, et divínitus servátum; quod deínde Joánnes présbyter sepelívit noctu juxta sepúlcrum soróris et matris ad palátium Liciniánum, ubi usque in prǽsens exstat ecclésia Deo, sanctæ Bibiánæ nómine, dicáta, quam Urbánus octávus instaurávit, sanctárum Bibiánæ, Demétriæ et Dafrósæ corpóribus in ea repértis, et sub ara máxima collocátis.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+BIBIÁNA virgo Romána, nóbili génere nata, christiána fide nobílior fuit. Ejus enim paréntes, Flaviánus et Dafrósa, sub Juliáno Apóstata martýrium

@@ -17201,3 +17201,38 @@ nient cultóres ejus, et relinquéntur hómines pauci.
 #### Lectio iii
 
 LUXIT vindémia, infirmáta est vitis, ingemuérunt omnes qui lætabántur corde. Cessávit gáudium tympanórum, quiévit sónitus lætántium, contícuit dulcédo cítharæ. Cum cántico non bibent vinum: amára erit pótio bibéntibus illam. Attríta est cívitas vanitátis, clausa est omnis domus, nullo introeúnte. Clamor erit super vino in platéis: desérta est omnis lætítia: translátum est gáudium terræ. Relícta est in urbe solitúdo, et calamítas ópprimet portas. Quia hæc erunt in médio terræ, in médio populórum: quómodo si paucæ olívæ, quæ remansérunt, excutiántur ex ólea: et racémi, cum fúerit finíta vindémia. Hi levábunt vocem suam, atque laudábunt: cum glorificátus fúerit Dóminus, hínnient de mari. Propter hoc in
+doctrínis glorificáte Dóminum, in ínsulis maris nomen Dómini, Dei Israël. A fínibus terræ laudes audívimus, glóriam justi.
+
+℟. Jerúsalem, plantábis víneam in móntibus tuis: exsultábis, quóniam dies Dómini véniet: surge, Sion, convértere ad Dóminum, Deum tuum: gaude et lætáre, Jacob: \* Quia de médio géntium Salvátor tuus véniet. ℣. Exsúlta satis, fília Sion: júbila, fília Jerúsalem. — Quia. Glória Patri. Quia.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Dícite: \* Pusillánimes, confortámini: ecce Dóminus Deus noster véniet.
+
+#### Oratio
+
+EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus advéntum purificátis tibi méntibus servíre mereámur: Qui tecum.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Cantáte Dómino \* cánticum novum: laus ejus ab extré-
+
+mis terræ.
+
+---
+
+### Sabbato
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 25, 1-12*
+
+DOMINE, Deus meus es tu, exaltábo te, et confitébor nómini tuo: quóniam fecísti mirabília, cogitatiónes antíquas fidéles, amen. Quia posuísti civitátem in túmulum, urbem fortem in ruínam, domum alienórum: ut non sit cívitas, et in sempitérnum non ædificétur. Super hoc laudábit te pópulus fortis, cívitas géntium robustárum timébit te. Quia factus es fortitúdo páuperi, fortitúdo egéno in tribulatióne sua: spes a túrbine, umbráculum ab æstu.
+
+℟. Egrediétur Dóminus de Samaría ad portam, quæ réspicit ad Oriéntem: et véniet in Béthlehem, ámbulans super aquas redemptiónis Judæ: \* Tunc salvus erit omnis homo: quia ecce véniet. ℣. Et præparábitur in misericórdia sólium ejus, et sedébit super illud in veritáte. — Tunc.
+
+#### Lectio ii
+
+SPÍRITUS enim robustórum quasi turbo impéllens paríetem. Sicut æstus in siti, tumúltum alienórum humiliábis: et quasi calóre sub nube torrénte, propáginem fórtium

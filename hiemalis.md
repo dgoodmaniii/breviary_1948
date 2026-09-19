@@ -29754,3 +29754,65 @@ DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculu
 **Capitulum** Dóminus possédit, ut supra.
 
 ℟. br. Deus omnípotens \* Præcínxit me virtúte. Deus. ℣. Et pósuit immaculátam viam meam. — Præ-
+cínxit. Glória Patri. Deus. ℣. In hoc cognóvi quóniam voluísti me. ℟. Quóniam non gaudébit inimícus meus super me.
+
+### Ad Sextam
+
+**Capit.** *Ezech. 44, 2-3*
+
+PORTA hæc clausa erit, non aperiétur, et vir non intrábit per eam, quóniam Dóminus Deus Israël ingréssus est per eam: erítque clausa príncipi. Princeps ipse sedébit in ea.
+
+℟. br. In hoc cognóvi, \* Quóniam voluísti me. In. ℣. Quóniam non gaudébit inimícus meus super me. Quóniam voluísti me. Glória Patri. In. ℣. Exaltábo te, Dómine, quóniam suscepísti me. ℟. Nec delectásti inimícos meos super me.
+
+### Ad Nonam
+
+**Capitulum** *Apoc. 12, 1*
+
+SIGNUM magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, et in cápite ejus coróna stellárum duódecim.
+
+℟. br. Exaltábo te, Dómine, \* Quóniam suscepísti me. Exaltábo. ℣. Nec delectásti inimícos meos super me. Quóniam. Glória Patri. Exaltábo. ℣. Immaculáta Concéptio tua, Dei Génitrix Virgo. ℟. Gáudium annuntiávit univérso mundo.
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ de Laudibus.} [REF: p. 713]
+
+{RUBRIC: Capitulum Dóminus.} [REF: p. 714]
+
+#### Hymnus
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus. Amen.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.

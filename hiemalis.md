@@ -18227,3 +18227,48 @@ EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte su
 *1 Cor. 4, 3*
 
 MIHI autem pro mínimo est, ut a vobis júdicer, aut ab humáno die:
+ sed neque meípsum júdico.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpédiunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.
+
+### Ad Nonam
+
+**Ant.** Omnípotens Sermo tuus, \* Dómine, a regálibus sédibus véniet, allelúja.
+
+#### Capitulum
+
+*1 Cor. 4, 5*
+
+ITAQUE nolíte ante tempus judicáre, quoadúsque véniat Dóminus: qui et illuminábit abscóndita tenebrárum, et manifestábit consília córdium: et tunc laus erit unicuíque a Deo.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+### Ad Vesperas
+
+{RUBRIC: Ómnia ut in Vésperis Sábbati præc. 368, prǽter seq.:}
+
+{RUBRIC: Psalmi de Dominica, ut in Psaltério. 70}
+
+{RUBRIC: Ad Magnif. Ant.} O. {RUBRIC: 355}
+
+---
+
+### Feria Secunda
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 41, 8-16*
+
+ET tu, Israël, serve meus, Jacob quem elégi, semen Abraham amíci mei: in quo apprehéndi te ab extrémis terræ, et a longínquis ejus vocávi te, et dixi tibi: Servus meus es tu, elégi te, et non abjéci te. Ne tímeas, quia ego tecum sum: ne declínes, quia ego Deus tuus: confortávi te, et auxiliátus sum tibi, et suscépit te déxtera justi mei.
+
+℟. Cánite tuba in Sion, vocáte gentes, annuntiáte pópulis, et dícite: \* Ecce Deus, Salvátor noster, advéniet. ℣. Annuntiáte, et audítum fácite: loquímini, et clamáte. — Ecce.
+
+#### Lectio ii
+
+ECCE confundéntur et erubéscent omnes, qui pugnant advérsum te: erunt quasi non sint, et períbunt viri, qui contra-

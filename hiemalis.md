@@ -33681,4 +33681,22 @@ INTÉREA Fesulána ecclésia, suo viduáta pastóre, eum sibi epíscopum elégit
 
 #### Lectio vi
 
-HIS permótus Urbánus quintus, ad sedándas Bonóniæ turbas, Andréam legátum misit. Quo in mú-
+HIS permótus Urbánus quintus, ad sedándas Bonóniæ turbas, Andréam legátum misit. Quo in mú-nere multa perpéssus, cívium ódia, quæ ad internecionem exárserant, summa prudéntia restínxit; tum restitúta tranquillitáte, ad própria revérsus est. Nec multo post assíduis labóribus et voluntária carnis maceratióne conféctus, óbitus die a beáta Vírgine sibi prǽdicto, ad cæléstia regna migrávit, anno Dómini millésimo tercentésimo septuagésimo tértio, ætátis suæ septuagésimo primo. Quem Urbánus octávus, multis magnísque miráculis clarum, Sanctórum número adscrípsit. Ejus corpus Floréntiæ in ecclésia sui órdinis quiéscit, et máxima cívium veneratióne cólitur, quibus non semel in præsénti discrímine præsídio fuit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ANDRÉAM, Floréntiæ ex nóbili Corsinórum família natum, paréntes précibus a Deo impetrárunt et Deíparæ spopondérunt. Adoléscens pie educátus, sensim ad vítia proclívis, sæpe a matre increpátus fuit. Ubi autem cognóvit se paréntum voto beátæ Vírgini dicátum fuísse, Dei amóre succénsus, Carmelitárum institútum ampléxus est, cujus regímini in Etrúria præféctus fuit. Intéréa Fesulána ecclésia, suo viduáta pastóre, eum sibi epíscopum elégit: quod munus, ne divínæ contradíceret voluntáti, tandem suscépit, et summo cum animárum zelo et pastoráli sollicitúdine adimplévit. Ab Urbáno quinto ad sedándas Bonóniæ turbas legátus missus, mortália cívium ódia summa prudéntia restínxit. Assíduis labóribus ac pœnis conféctus, quiévit in pace, anno millésimo tercentésimo septuagésimo tértio, ætátis suæ septuagésimo primo. Quem Urbánus octávus Sanctórum número adscrípsit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Communi Conf. Pont. 1 loco.} [80]
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia

@@ -28179,3 +28179,17 @@ IN illo témpore: Cum introísset Jesus Caphárnaum, accéssit ad eum centúrio,
 VIDEÁMUS, utrum sibi de hoc servo centuriónis Matthǽus Lucásque conséntiant. Matthǽus enim dicit: Accéssit ad eum centúrio, rogans eum, et dicens: Puer meus jacet in domo paralýticus. Cui vidétur repugnáre quod ait Lucas: Et cum audísset de Jesu, misit ad eum senióres Judæórum, rogans eum ut veníret, et sanáret servum ejus. At illi cum veníssent ad Jesum, rogábant eum sollícite, dicéntes ei: Quia dignus est ut hoc illi præstes: díligit enim gentem nostram, et synagógam ipse ædificávit nobis. Jesus autem ibat cum illis: et cum jam non longe esset a domo, misit ad eum centúrio amícos, dicens: Dómine, noli vexári: non enim dignus sum ut sub tectum meum intres.
 
 ℟. Dómine, puer meus jacet paralýticus in domo, et male torquétur: \* Amen dico tibi, ego véniam, et curábo eum. ℣. Dómine, non sum dignus ut intres sub tectum meum: sed tantum dic verbo, et sanábitur puer meus. — Amen dico.
+
+#### Lectio ii
+
+SI enim hoc ita gestum est, quómodo erit verum, quod Matthǽus narrat, Accéssit ad eum quidam centúrio, cum ipse non accésserit, sed amícos míserit: nisi diligénter adverténtes intelligámus Matthǽum non omnímodo deseruísse usitátum morem loquéndi? Non solum enim dícere solémus, accessísse áliquem étiam ántequam pervéniat illuc, quo dícitur accessísse: unde étiam dícimus, Parum accéssit, vel multum accéssit eo, quo áppetit perveníre: verum étiam ipsam perventiónem, cujus adipiscéndi causa accéditur, dícimus plerúmque factam, etsi eum, ad quem pérvenit, non vídeat ille qui pérvenit, cum per amícum pérvenit ad áliquem, cujus ei favor est necessárius. Quod ita ténuit consuetúdo, ut jam étiam vulgo perventóres appelléntur, qui poténtium quorúmlibet tamquam inaccessíbiles ánimos, per conveniéntium personárum interpositiónem, ambitiónis arte pertíngunt.
+
+℟. Dum staret Abraham ad ílicem Mambre, vidit tres viros ascendéntes per viam: \* Tres vidit, et unum adorávit. ℣. Ecce Sara uxor tua páriet tibi fílium, et vocábis nomen ejus Isaac. — Tres.
+
+#### Lectio iii
+
+NON ergo absúrde Matthǽus, étiam quod vulgo possit intélligi, per álios facto accéssu centuriónis ad Dóminum, compéndio dícere vóluit: Accéssit ad eum centúrio. Verúmtamen non negligénter intuénda est étiam sancti Evangelístæ altitúdo mýsticæ locutiónis, secúndum quam scriptum est in Psalmo: Accédite ad eum, et, illuminámini. Proínde quia fidem centuriónis, qua vere accéditur ad Jesum, ipse ita laudávit, ut díceret: Non invéni tantam fidem in Israël: ipsum pótius accessísse ad Christum dícere vóluit prudens Evangelísta, quam illos, per quos verba sua míserat.
+
+℟. Tentávit Dóminus Abraham, et dixit ad eum: \* Tolle fílium tuum, quem díligis, Isaac, et offer illum ibi in holocáustum super unum móntium, quem díxero tibi. ℣. Vocátus quoque a Dómino, respóndit, Adsum: et ait ei Dóminus. — Tolle. Glória. Tolle.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.

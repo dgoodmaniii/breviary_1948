@@ -18447,3 +18447,54 @@ vestrum, et ossa vestra quasi herba germinábunt, et cognoscétur manus Dómini 
 #### Oratio
 
 EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpé-
+diunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** O Emmánuel, \* Rex et légifer noster, exspectátio géntium, et Salvátor eárum: veni ad salvándum nos, Dómine, Deus noster.
+
+{RUBRIC: Si Vigília Nativitátis Dómini vénerit in Dominica, Offícium fit hoc modo:}
+
+{RUBRIC: Ad Vésperas ómnia ut in Sábbato ante Domínicam IV Advéntus. 368}
+
+{RUBRIC: Ad Matutínum Invitatórium de Vigília Hódie sciétis, ut infra.}
+
+{RUBRIC: Hymnus de Advéntu Verbum supérnum, ut in Psaltério. 36}
+
+{RUBRIC: Antíphonæ, Psalmi, VV., Lectiónes et RR. in I et II Nocturno dicúntur de Domínica IV Advéntus. 369}
+
+{RUBRIC: In III Nocturno Antíphonæ et Psalmi de Dominica 42, ℣. de Vigília, tres Lectiónes de Homilía Vigíliæ cum suis RR.: et non légitur Homília Domínicæ pro última Lectióne. Laudes de Vigília cum Commemoratióne de Dominica. Simíliter et per Horaságitur Offícium de Vigília, de qua tamen, sicut et de Dominica, nihil post Nonam.}
+
+---
+
+## Die 24 Decembris
+
+### In Vigilia Nativitatis Domini
+
+{RUBRIC: I classis}
+
+### Ad Matutinum
+
+{RUBRIC: Simplex}
+
+**Invitat.** Hódie sciétis quia véniet Dóminus: \* Et mane vidébitis glóriam ejus. *Ps. 94* Veníte. *3*
+
+**Hymnus** Verbum supérnum, {RUBRIC: ut in Psaltério. 36}
+
+{RUBRIC: Antiphónæ et Psalmi de Féria occurrénti.}
+
+℣. Hódie sciétis quia véniet Dóminus. ℟. Et mane vidébitis glóriam ejus.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 1, 18-21*
+
+CUM esset desponsáta Mater Jesu María Joseph, ántequam convenírent, invénta est in útero habens de Spíritu Sancto. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 1 Comment. in c. 1 Matth.}
+
+QUARE non de símplici vírgine, sed de desponsáta concípitur? Primum, ut per generatiónem Joseph, orígo Maríæ monstrarétur: secúndo, ne lapidarétur a Judǽis ut adúltera: tértio, ut in Ægýptum fúgiens habéret

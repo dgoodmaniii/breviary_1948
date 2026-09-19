@@ -26748,3 +26748,58 @@ HIC enim Melchísedech, rex Salem, sacérdos Dei summi, qui obviávit Abrahǽ re
 #### Lectio ii
 
 INTUÉMINI autem quantus sit hic, cui et décimas dedit de præcípuis
+Abraham patriárcha. Et quidem de fíliis Levi sacerdótium accipiéntes, mandátum habent décimas súmere a pópulo secúndum legem, id est a frátribus suis: quamquam et ipsi exíerint de lumbis Abrahæ. Cujus autem generátio non annumerátur in eis, décimas sumpsit ab Abraham, et hunc, qui habébat repromissiónes, benedíxit.
+
+℟. Repleátur os meum laude tua, ut hymnum dicam glóriæ tuæ, tota die magnitúdinem tuam: noli me projícere in témpore senectútis: \* Dum defécerit in me virtus mea, ne derelínquas me. ℣. Gaudébunt lábia mea cum cantávero tibi. — Dum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dum.}
+
+#### Lectio iii
+
+SINE ulla autem contradictióne, quod minus est, a melióre benedícitur. Et hic quidem décimas moriéntes hómines accípiunt: ibi autem contestátur, quia vivit. Et (ut ita dictum sit) per Abraham, et Levi, qui décimas accépit, decimátus est: adhuc enim in lumbis patris erat, quando obviávit ei Melchísedech. Si ergo consummátio per sacerdótium Levíticum erat (pópulus enim sub ipso legem accé-
+pit), quid adhuc necessárium fuit secúndum órdinem Melchísedech álium súrgere sacerdótem, et non secúndum órdinem Aaron dici? Transláto enim sacerdótio, necésse est ut et legis translátio fiat.
+
+℟. Gaudébunt lábia mea cum cantávero tibi: \* Et ánima mea, quam redemísti, Dómine. ℣. Sed et lingua mea meditábitur justítiam tuam, tota die laudem tuam. — Et. Glória Patri. Et.
+
+---
+
+### Feria Sexta
+
+{RUBRIC: De Epístola ad Hebrǽos}
+
+#### Lectio i
+
+*Cap. 11, 1-10*
+
+EST autem fides sperandárum substántia rerum, arguméntum non apparéntium. In hac enim testimónium consecúti sunt senes. Fide intellígimus aptáta esse sǽcula verbo Dei: ut ex invisibílibus visibília fíerent. Fide plúrimam hóstiam Abel, quam Cain, óbtulit Deo, per quam testimónium consecútus est esse justus, testimónium perhibénte munéribus ejus Deo, et per illam defúnctus adhuc lóquitur.
+
+℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum:
+\* Quia misericórdia tua, Dómine, magna est super me. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — Quia.
+
+#### Lectio ii
+
+FIDE Henoch translátus est ne vidéret mortem, et non inveniebátur: quia tránstulit illum Deus: ante translatiónem enim testimónium hábuit placuísse Deo. Sine fide autem impossíbile est placére Deo. Crédere enim opórtet accedéntem ad Deum quia est, et inquiréntibus se remunerátor sit. Fide Noë, respónso accépto de iis, quæ adhuc non videbántur, métuens aptávit arcam in salútem domus suæ, per quam damnávit mundum: et justítiæ, quæ per fidem est, heres est institútus.
+
+℟. Misericórdia tua, Dómine, magna est super me: \* Et liberásti ánimam meam ex inférno inferióri. ℣. In die tribulatiónis meæ clamávi ad te, quia exaudísti me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+FIDE qui vocátur Abraham obedívit in locum exíre, quem acceptúrus erat in hereditátem: et éxiit, nésciens quo iret. Fide demorátus est in terra repromissiónis, tamquam in aliéna, in cásulis habitándo cum Isaac et Jacob, coherédibus repromissiónis ejúsdem. Exspectábat enim fundaménta habéntem civitátem: cujus ártifex et cónditor Deus.
+
+℟. Factus est mihi Dóminus in refúgium: \* Et Deus meus in auxílium spei meæ. ℣. Erípuit me de inimícis meis fortíssimis, et factus est Dóminus protéctor meus. — Et. Glória Patri. Et.
+
+---
+
+### Sabbato
+
+{RUBRIC: De Epístola ad Hebrǽos}
+
+#### Lectio i
+
+*Cap. 13, 1-12*
+
+CÁRITAS fraternitátis máneat in vobis. Et hospitalitátem nolíte oblivísci: per hanc enim latuérunt quidam, Angelis hospítio recéptis. Mementóte vinctórum, tamquam simul vincti: et laborántium, tamquam et ipsi in córpore morántes. Honorábile connúbium in ómnibus, et thorus immaculátus. Fornicatóres enim, et adúlteros judicábit Deus.
+
+℟. Misericórdiam et judícium cantábo tibi, Dómine: \* Psallam et intélligam in via immaculáta, quando vénies ad me.

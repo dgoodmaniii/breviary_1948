@@ -22762,3 +22762,34 @@ HÓDIE impléta est prophétia illa, quæ dicit: Roráte, cæli, désuper, et nu
 O MIRÁCULA, o prodígia, fratres mei! Natúræ jura mutántur in hómine; Deus náscitur, virgo sine viro gravidátur, viri nésciam sermo Dei marítat: simul facta est mater et virgo; mater facta, sed incorrúpta; virgo habens fílium, nésciens virum; semper clausa, sed non infœcúnda. Solus enim sine peccáto est natus, quem sine viríli compléxu non concupiscéntia carnis, sed obediéntia génuit mentis.
 
 ℟. Benedícta et venerábilis es, Virgo María, quæ sine tactu pudóris invénta es Mater Salvatóris: \* Jacébat in præsépio, et fulgébat in cælo. ℣. Dómine, audívi audítum tuum, et tímui: considerávi ópera tua, et expávi: in médio duórum animálium. — Ja-
+cébat Glória Patri. Jacébat.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 19-23*
+
+IN illo témpore: Defúncto Heróde, ecce Angelus Dómini appáruit in somnis Joseph in Ægýpto, dicens: Surge, et áccipe Púerum et Matrem ejus, et vade in terram Israël. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Lib. 1 Com. in c. 2 Matthæi}
+
+EX hoc loco intellígimus non solum Heródem, sed et sacerdótes et scribas eódem témpore necem Dómini fuísse meditátos. Qui surgens accépit púerum, et matrem ejus. Non dixit: Accépit fílium suum et uxórem suam, sed Púerum et Matrem ejus; quasi nutrícius, non marítus.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+AUDIENS autem quod Archeláus regnáret in Judǽa pro Heróde patre suo, tímuit illo ire. Multi labúntur erróre propter ignorántiam históriæ, putántes eúmdem esse Heródem, a quo in passióne sua Dóminus irridétur, et qui nunc mórtuus esse referátur. Ergo Heródes ille qui cum Piláto póstea amicítias fecit, hujus Heródis fílius est, frater Archelái.
+
+℟. Nésciens mater virgo virum, péperit sine dolóre: \* Salvatórem sæculórum, ipsum Regem Angelórum, sola Virgo lactábat úbere de cælo pleno. ℣. Domus pudíci péctoris templum repénte fit Dei: intácta nésciens virum, verbo concépit Fílium. — Salvatórem. Glória Patri. Salvatórem.
+
+#### Lectio ix
+
+QUÓNIAM Nazarǽus vocábitur. Si fixum de Scriptúris posuísset exémplum, numquam díceret: Quod dictum est per prophétas; sed simplíciter: Quod dictum est per prophétam. Nunc autem plúraliter prophétas vocans, osténdit se non verba de Scriptúris sumpsísse, sed sensum. Nazarǽus sanctus interpretátur; sanctum autem Dóminum futúrum

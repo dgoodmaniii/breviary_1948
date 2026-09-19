@@ -31513,7 +31513,9 @@ Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et qu�
 
 Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
 
-Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
 
 Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
 
@@ -33845,3 +33847,41 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
 
 ℟. Dum torquerétur beáta Agatha in mamílla gráviter, dixit ad júdicem: \* Impie, crudélis et dire tyránne, non es confúsus amputáre in fémina, quod ipse in matre suxísti? ℣. Ego enim hábeo mamíllas íntegras intus in ánima mea, quas ab infántia Dómino consecrávi. — Impie.
+
+#### Lectio ii
+
+LAUDÁBIT usque ad mortem ánima mea Dóminum, et vita mea appropínquans erat in inférno deórsum. Circumdedérunt me úndique, et non erat qui adjuváret. Respíciens eram ad adjutórium hóminum, et non erat. Memoráta sum misericórdiæ tuæ, Dómine, et operatiónis tuæ, quæ a sæculo sunt: quóniam éruis sustinéntes te, Dómine, et líberas eos de mánibus géntium.
+
+℟. Agatha lætíssime et gloriánter ibat ad cárcerem, \* Quasi ad épulas invitáta; et agónem suum Dómino précibus commendábat. ℣. Nobilíssimis orta natálibus, ab ignóbili gaudens trahebátur a cárcerem. — Quasi.
+
+#### Lectio iii
+
+EXALTÁSTI super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório. Laudábo nomen tuum assídue, et collaudábo illud in confessióne, et exaudíta est orátio mea. Et liberásti me de perditióne, et eripuísti me de témpore iníquo. Proptérea confitébor, et laudem dicam tibi, et benedícam nómini Dómini.
+
+℟. Quis es tu, qui venísti ad me curáre vúlnera mea! Ego sum Apóstolus Christi: nihil in me dúbites, fília: ipse me misit ad te, \* Quem dilexísti mente et puro corde. ℣. Nam et ego Apóstolus ejus sum, et in nómine ejus scias te esse curándam. — Quem. Glória Patri. Quem.
+
+### In II Nocturno
+
+**Ant.** Agatha sancta \* dixit: Si feras mihi promíttis, audíto Christi nómine mansuéscunt.
+
+###### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.

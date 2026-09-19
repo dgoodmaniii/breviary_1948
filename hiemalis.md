@@ -15907,3 +15907,59 @@ Dómine, inclína cælos tuos, et descénde: \* tange montes, et fumigábunt.
 Fúlgura coruscatiónem, et dissipábis eos: \* emítte sagíttas tuas, et conturbábis eos.
 
 Emítte manum tuam de alto, éripe me, et líbera me
+
+de aquis multis: \* de manu filiórum alienórum.
+
+Quorum os locútum est vanitátem: \* et déxtera eórum, déxtera iniquitátis.
+
+**Ant.** Benedíctus Dóminus, suscéptor meus, et liberátor meus.
+
+**Ant.** Beátus pópulus.
+
+#### Psalmus 143, ii
+
+DEUS, cánticum novum cantábo tibi: \* in psaltério decachórdo psallam tibi.
+
+Qui das salútem régibus: \* qui redemísti David, servum tuum, de gládio malígno: éripe me.
+
+Et érue me de manu filiórum alienórum, quorum os locútum est vanitátem: \* et déxtera eórum, déxtera iniquitátis:
+
+Quorum fílii, sicut novéllæ plantatiónes \* in juventúte sua.
+
+Fíliæ eórum compósitæ: \* circumornátæ ut similitúdo templi.
+
+Promptuária eórum plena, \* eructántia ex hoc in illud.
+
+Oves eórum fetósæ, abundántes in egréssibus suis: \* boves eórum crassæ.
+
+Non est ruína macériæ, neque tránsitus: \* neque clamor in platéis eórum.
+
+Beátum dixérunt pópulum, cui hæc sunt: \* beátus pópulus, cujus Dóminus Deus ejus.
+
+**Ant.** Beátus pópulus, cujus Dóminus Deus ejus.
+
+**Ant.** Magnus Dóminus.
+
+#### Psalmus 144, i
+
+EXALTÁBO te, Deus meus, rex: \* et benedícam nómini tuo in séculum, et in séculum séculi.
+
+Per síngulos dies benedícam tibi: \* et laudábo nomen tuum in séculum, et in séculum séculi.
+
+Magnus Dóminus, et laudábilis nimis: \* et magnitúdinis ejus non est finis.
+
+Generátio et generátio laudábit ópera tua: \* et poténtiam tuam pronuntiábunt.
+
+Magnificéntiam glóriæ sanctitátis tuæ loquéntur: \* et mirabília tua narrábunt.
+
+Et virtútem terribílium tuórum dicent: \* et magnitúdinem tuam narrábunt.
+
+Memóriam abundántiæ suavitátis tuæ eructábunt: \* et justítia tua exsultábunt.
+
+**Ant.** Magnus Dóminus, et laudábilis nimis: et magnitúdinis ejus non est finis.
+
+**Ant.** Suávis Dóminus.
+
+#### Psalmus 144, ii
+
+MISERÁTOR, et miséricors Dóminus: \* pátiens, et multum miséricors.

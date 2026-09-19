@@ -25208,3 +25208,35 @@ NON est bona gloriátio vestra. Nescítis quia módicum ferméntum totam massam 
 {RUBRIC: Infra Octávam Epiphaníæ}
 
 ℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Státuit Dóminus supra petram pedes meos, et diréxit gressus meos Deus: \* Et misit in os meum cánticum novum. ℣. Exaudívit preces meas: et edúxit me de lacu misériæ. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+SCRIPSI vobis in epístola: Ne commisceámini fornicáriis. Non útique fornicáriis hujus mundi, aut aváris, aut rapácibus, aut idólis serviéntibus: alióquin debuerátis de hoc mundo exiísse. Nunc autem scripsi vobis non commiscéri: si is, qui frater nominátur, est fornicátor, aut avárus, aut idólis sérviens, aut maledícus, aut ebriósus, aut rapax: cum hujúsmodi nec cibum súmere.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+℟. Ego dixi, Dómine, miserére mei: \* Sana ánimam meam, quia peccávi tibi. ℣. Ab ómnibus iniquitátibus meis éripe me, Dómine. — Sana. Glória Patri. Sana.
+
+### Feria Quarta
+
+{RUBRIC: De Epístola prima ad Corínthios}
+
+#### Lectio i
+
+*Cap. 6, 1-18*
+
+AUDET áliquis vestrum habens negótium advérsus álterum, judicári apud iníquos, et non apud sanctos? An nescítis quóniam sancti de hoc mundo judicábunt? Et si in vobis judicábitur mundus, indígni estis qui de mínimis judicétis? Nescítis quóniam ángelos judicábimus? quanto magis sæculária? Sæculária ígitur judícia si habuéritis: contemptíbiles, qui sunt in Ecclésia, illos constitúite ad judicándum. Ad verecúndiam vestram dico. Sic non est inter vos sápiens quisquam, qui possit judicáre inter fratrem suum? Sed frater cum fratre judício conténdit: et hoc apud infidéles?
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendá-

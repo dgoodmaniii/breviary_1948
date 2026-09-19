@@ -32310,4 +32310,14 @@ Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super om
 
 Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
 
-Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.**Ant.** Mihi vívere Christus est, et mori lucrum: gloriári me opórtet in cruce Dómini nostri Jesu Christi.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+{RUBRIC: De Actibus Apostolórum}
+
+#### Lectio i
+
+*Cap. 9, 1-16*
+
+SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem. Et cum iter fáceret, cóntigit ut appropinquáret Damásco; et súbito circumfúlsit eum lux de cælo. Et cadens in terram audívit vocem dicéntem sibi: Saule, Saule, quid me perséqueris? Qui dixit: Quis es, Dómine? Et ille: Ego sum Jesus, quem tu perséqueris. Durum est tibi contra stímulum calcitráre.

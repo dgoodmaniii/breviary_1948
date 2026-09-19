@@ -2701,7 +2701,7 @@ SIGNUM magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus eju
 
 #### S. Agnetis et S. Agathæ
 
-LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis susténtes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
 
 #### In Conversione S. Pauli
 
@@ -2721,7 +2721,7 @@ IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Tra
 
 #### Pro Apostolis
 
-IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni habíti sunt pro nómine Jesu contumélias pati.
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni habíti sunt pro nómine Jesu contuméliam pati.
 
 #### Pro Martyre
 
@@ -4679,3 +4679,126 @@ Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes t
 {RUBRIC: Feria II post Dominicam II:} **Ant.** Ecce in núbibus cæli Dóminus véniet cum potestáte magna, allelúja.
 
 {RUBRIC: Fer. II ante Vig. Nat. Dom.:} **Ant.** Ecce véniet Dóminus princeps regum terræ: beáti, qui paráti sunt occúrrere illi.
+
+
+{RUBRIC: In Officio Festi vel Octavæ:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In omnibus autem Feriis et in Vigiliis communibus:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: In Adventu, nisi alius in Festis fuerit assumendus:} ℣. Qui ventúrus es in mundum.
+
+#### Preces dominicales et feriales
+
+*(si dicendæ sint).*
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me.
+
+#### In Precibus ferialibus tantum
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me. ℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me. ℣. Eripe me de operántibus iniquitátem. ℟. Et de viris sánguinum salva me. ℣. Sic psalmum dicam nómini tuo in séculum séculi. ℟. Ut reddam vota mea de die in diem. ℣. Exáudi nos, Deus, salutáris noster. ℟. Spes ómnium fínium terræ, et in mari longe. ℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína. ℣. Sanctus Deus, Sanctus fortis, Sanctus immortális. ℟. Miserére nobis. ℣. Bénedic, ánima mea, Dómino. ℟. Et ómnia, quæ intra me sunt, nómini sancto ejus. ℣. Bénedic, ánima mea, Dómino. ℟. Et noli oblivísci omnes retributiónes ejus.
+
+℣. Qui propitiátur ómnibus iniquitátibus tuis. ℟. Qui sanat omnes infirmitátes tuas. ℣. Qui rédimit de intéritu vitam tuam. ℟. Qui corónat te in misericórdia et miseratiónibus. ℣. Qui replet in bonis desidérium tuum. ℟. Renovábitur ut áquilæ juvéntus tua.
+
+#### In utrisque Precibus
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Dignáre, Dómine, die isto. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+---
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+DOMINE, Deus omnípotens, qui ad princípium hujus diéi nos perveníre fecísti: tua nos hódie salva virtúte; ut in hac die ad nullum declinémus peccátum, sed semper ad tuam justítiam faciéndam nostra procédant elóquia, dirigántur cogitatiónes et ópera. Per Dóminum. ℟. Amen.
+
+℣. Dóminus vobíscum. ℣. Benedicámus Dómino.
+
+{RUBRIC: Deinde in Choro legitur Martyrologium. Postea Hebdomadarius dicit:}
+
+℣. Pretiósa in conspéctu Dómini. ℟. Mors Sanctórum ejus.
+
+{RUBRIC: Et absolute, sine Orémus:}
+
+**Oratio**
+
+SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári et salvári, qui vivit et regnat in sécula sæculórum. ℟. Amen.
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína.
+
+{RUBRIC: Et dicitur ter; ultimo additur:} Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos, et opus mánuum nostrárum dírige. ℣. Glória Patri. ℟. Sicut erat.
+
+Orémus. **Oratio**
+
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sécula sæculórum. ℟. Amen.
+
+℣. Jube, domne.
+
+**Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+#### In Officio feriali
+
+##### Tempore Adventus
+
+DOMINE, miserére nostri: te enim exspectávimus: esto bráchium nostrum in mane, et salus nostra in témpore tribulatiónis. Tu autem.
+
+##### Per Annum
+
+DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia Christi.
+
+#### E Proprio de Tempore
+
+##### Pro Octava S. Stephani
+
+POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+##### Pro Octava S. Joannis
+
+IN médio ecclésiæ apéruit os ejus, et implévit illum Dóminus spíritu sapiéntiæ et intelléctus, et stolam glóriæ índuit eum.
+
+##### Pro Oct. Ss. Innocentium
+
+HI empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est invéntum mendácium: sine mácula enim sunt ante thronum Dei.
+
+#### E Proprio Sanctorum
+
+##### Pro Conceptione Immac. B. M. V.
+
+SIGNUM magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, et in cápite ejus coróna stellárum duódecim.
+
+##### Pro S. Agnete et S. Agatha
+
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+#### E Communi Sanctorum
+
+##### Pro Apostolis
+
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contuméliam pati.
+
+##### Pro Martyre
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.

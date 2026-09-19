@@ -17263,3 +17263,71 @@ EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus 
 {RUBRIC: Psalmi de Sabbato, ut in Psaltério. 312}
 
 **2** Jerúsalem, gaude \* gáudio magno, quia véniet tibi Salvátor, allelúja.
+
+**3** Dabo in Sion \* salútem, et in Jerúsalem glóriam meam, allelúja.
+
+**4** Montes et omnes colles \* humiliabúntur: et erunt prava in directa, et áspera in vias planas: veni, Dómine, et noli tardáre, allelúja.
+
+**5** Juste et pie \* vivámus, exspectántes beátam spem, et advéntum Dómini.
+
+#### Capitulum
+
+*Philipp. 4, 4-5*
+
+FRATRES: Gaudéte in Dómino semper: íterum dico, gaudéte. Modéstia vestra nota sit ómnibus homínibus: Dóminus enim prope est.
+
+#### Hymnus
+
+CREÁTOR alme síderum,
+Ætérna lux credéntium,
+Jesu, Redémptor ómnium,
+Inténde votis súpplicum.
+
+Qui dæmonis ne fráudibus
+Períret orbis, ímpetu
+Amóris actus, lánguidi
+Mundi medéla factus es.
+
+Commúne qui mundi nefas
+Ut expiáres, ad crucem
+E Vírginis sacrário
+Intácta prodis víctima.
+
+Cujus potéstas glóriæ,
+Noménque cum primum sonat,
+Et cælites et ínferi
+Treménte curvántur genu.
+
+Te deprecámur últimæ
+Magnum diéi Júdicem,
+Armis supérnæ grátiæ
+Defénde nos ab hóstibus.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Ante me \* non est formátus Deus, et post me non erit: quia mihi curvábitur omne genu, et confitébitur omnis lingua.
+
+{RUBRIC: Ad Vesperas Dominicæ, nisi dicénda sit Ant. O:}
+
+**Ad Magnif. Ant.** Beáta es, María, \* quæ credidísti Dómino: perficiéntur in te, quæ dicta sunt tibi a Dómino, allelúja.
+
+#### Oratio
+
+AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et mentis nostræ ténebras grátia tuæ visitatiónis illústra: Qui vivis et regnas.
+
+---
+
+## Dominica III Adventus
+
+{RUBRIC: II classis} Semiduplex
+
+### Ad Matutinum
+
+{RUBRIC: Invitatórium} Prope est {RUBRIC: et}
+
+{RUBRIC: Hymnus} Verbum supérnum

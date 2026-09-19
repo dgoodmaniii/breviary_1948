@@ -28934,3 +28934,34 @@ POTEST omnis creatúræ nómine omnis natío géntium desígnari. Ante enim dict
 #### Lectio viii
 
 NEQUE étenim in univérso mundo tanta fidélium messis exsúrgeret, si de manu Dómini super ratiónálem terram illa elécta grana prædicántium non veníssent. Séquitur: Qui credíderit et baptizátus fúerit, salvus erit: qui vero non credíderit, condemnábitur. Fortásse unusquísque apud semetípsum di-
+cat: Ego jam crédidi, salvus ero. Verum dicit, si fidem opéribus tenet. Vera étenim fides est, quæ in hoc, quod verbis dicit, móribus non contradícit. Hinc est enim quod de quibúsdam falsis fidélibus Paulus dicit: Qui confiténtur se nosse Deum, factis autem negant.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et vos. Glória Patri. Et vos.
+
+#### Lectio ix
+
+SIGNA autem eos qui creditúri sunt, hæc sequéntur: In nómine meo dæmónia ejícient, linguis loquéntur novis, serpéntes tollent: et si mortíferum quid bíberint, non eis nocébit: super ægros manus impónent, et bene habébunt. Numquídnam, fratres mei, quia ista signa non fácitis, mínime créditis? Sed hæc necessária in exórdio Ecclésiæ fuérunt. Ut enim ad fidem crésceret multitúdo credéntium miráculis fúerat nutriénda; quia et nos, cum arbústa plantámus, támdiu eis aquam infúndimus, quoúsque ea in terra jam coaluísse videámus: et si semel radícem fíxerint, irrigátio cessábit. Hinc est enim quod Paulus dicit: Linguæ in signum sunt non fidélibus, sed infidélibus.
+
+{RUBRIC: Te Deum laudámus.}
+
+###### Oratio
+
+DEUS, qui Indiárum gentes beáti Francísci prædicatióne et miráculis Ecclésiæ tuæ aggregáre voluísti: concéde propítius; ut, cujus gloriósa mérita venerámur, virtútum quoque imitémur exémpla. Per Dóminum.
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir, despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Com. sequéntis, Fériæ ac S. Barbáræ Virg. et Mart.}
+
+---

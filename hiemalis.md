@@ -26145,3 +26145,30 @@ PAULUS Apóstolus Jesu Christi per voluntátem Dei, et Timótheus frater: eis, q
 #### Lectio ii
 
 IDEO et nos, ex qua die audívimus, non cessámus pro vobis orántes, et postulántes ut impleámini agnitióne voluntátis ejus in omni sapiéntia et intelléctu spiritáli: ut ambulétis digne Deo per ómnia placéntes: in omni ópere bono fructificántes, et cre-
+scéntes in sciéntia Dei: in omni virtúte confortáti secúndum poténtiam claritátis ejus in omni patiéntia, et longanimitáte cum gáudio grátias agéntes Deo Patri, qui dignos nos fecit in partem sortis sanctórum in lúmine.
+
+℟. Státuit Dóminus supra petram pedes meos, et diréxit gressus meos Deus: \* Et misit in os meum cánticum novum. ℣. Exaudívit preces meas: et edúxit me de lacu misériæ. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+QUI erípuit nos de potestáte tenebrárum, et tránstulit in regnum Fílii dilectiónis suæ, in quo habémus redemptiónem per sánguinem ejus, remissiónem peccatórum: qui est imágo Dei invisíbilis, primogénitus omnis creatúræ: quóniam in ipso cóndita sunt univérsa in cælis et in terra, visibília, et invisibília, sive Throni, sive Dominatiónes, sive Principátus, sive Potestátes: ómnia per ipsum, et in ipso creáta sunt: et ipse est ante omnes, et ómnia in ipso constant. Et ipse est caput córporis Ecclésiæ, qui est princípium, primogénitus ex mórtuis.
+
+℟. Ego dixi, Dómine, miserére mei: \* Sana ánimam meam, quia peccávi tibi. ℣. Ab ómnibus iniquitátibus meis éripe me, Dómine. — Sana. Glória Patri. Sana.
+
+### Feria Quarta
+
+{RUBRIC: De Epístola ad Colossénses}
+
+#### Lectio i
+
+*Cap. 3, 12-25; 4, 1-2*
+
+INDÚITE vos ergo sicut elécti Dei, sancti et dilécti, víscera misericórdiæ, benignitátem, humilitátem, modéstiam, patiéntiam: supportántes ínvicem, et donántes vobismetípsis si quis advérsus áliquem habet querélam: sicut et Dóminus donávit vobis, ita et vos. Super ómnia autem hæc, caritátem habéte, quod est vínculum perfectiónis: et pax Christi exsúltet in córdibus vestris, in qua et vocáti estis in uno córpore: et grati estóte.
+
+℟. Ne perdíderis me cum iniquitátibus meis: \* Neque in finem irátus resérves mala mea. ℣. Non intres in judícium cum servo tuo, Dómine. — Neque.
+
+#### Lectio ii
+
+VERBUM Christi hábitet in vobis abundánter, in omni sapiéntia, docén-

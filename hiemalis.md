@@ -3718,3 +3718,101 @@ Dóminus de cælo prospéxit super fílios hóminum, \* ut vídeat si est intél
 Omnes declinavérunt, simul inútiles facti sunt: \* non est qui fáciat bonum, non est usque ad unum.
 
 Sepúlcrum patens est guttur eórum: linguis suis dolóse agébant, \* venénum áspidum sub lábiis eórum.
+
+Quorum os maledictióne et amaritúdine plenum est: \* velóces pedes eórum ad effundéndum sánguinem.
+
+Contrítio et infelícitas in viis eórum, et viam pacis non cognovérunt: \* non est timor Dei ante óculos eórum.
+
+Nonne cognóscent omnes qui operántur iniquitátem, \* qui dévorant plebem meam sicut escam panis?
+
+Dóminum non invocavérunt, \* illic trepidavérunt timóre, ubi non erat timor.
+
+Quóniam Dóminus in generatióne justa est, consílium ínopis confudístis: \* quóniam Dóminus spes ejus est.
+
+Quis dabit ex Sion salutáre Israël? \* cum avérterit Dóminus captivitátem plebis suæ, exsultábit Jacob, et lætábitur Israël.
+
+**Ant.** Dóminus de cælo prospéxit super fílios hóminum.
+
+**Ant.** Qui operátur justítiam, \* requiéscet in monte sancto tuo, Dómine.
+
+### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Qui operátur justítiam, requiéscet in monte sancto tuo, Dómine.
+
+**Ant.** Inclína, Dómine, \* aurem tuam mihi, et exáudi verba mea.
+
+### Psalmus 16
+
+EXAUDI, Dómine, justítiam meam: \* inténde deprecatiónem meam.
+
+Áuribus pércipe oratiónem meam, \* non in lábiis dolósis.
+
+De vultu tuo judícium meum pródeat: \* óculi tui vídeant æquitátes.
+
+Probásti cor meum, et visitásti nocte: \* igne me examinásti, et non est invénta in me iníquitas.
+
+Ut non loquátur os meum ópera hóminum: \* propter verba labiórum tuórum ego custodívi vias duras.
+
+Pérfice gressus meos in sémitis tuis: \* ut non moveántur vestígia mea.
+
+Ego clamávi, quóniam exaudísti me, Deus: \* inclína aurem tuam mihi, et exáudi verba mea.
+
+Mirífica misericórdias tuas, \* qui salvos facis sperántes in te.
+
+A resisténtibus déxteræ tuæ custódi me, \* ut pupíllam óculi.
+
+Sub umbra alárum tuárum prótege me: \* a fácie impiórum qui me afflixérunt.
+
+Inimíci mei ánimam meam circumdedérunt, ádipem suum conclusérunt: \* os eórum locútum est supérbiam.
+
+Projiciéntes me nunc circumdedérunt me: \* óculos suos statuérunt declináre in terram.
+
+Suscepérunt me sicut leo parátus ad prǽdam: \* et sicut cátulus leónis hábitans in abdítis.
+
+Exsúrge, Dómine, prǽveni eum, et supplánta eum: \* éripe ánimam meam ab ímpio, fráméam tuam ab inimícis manus tuæ.
+
+Dómine, a paucis de terra dívide eos in vita eórum: \* de abscónditis tuis adimplétus est venter eórum.
+
+Saturáti sunt fíliis: \* et dimisérunt relíquias suas párvulis suis.
+
+Ego autem in justítia apparébo conspéctui tuo: \* satiábor cum apparúerit glória tua.
+
+**Ant.** Inclína, Dómine, aurem tuam mihi, et exáudi verba mea.
+
+#### In Festis novem Lectionum:
+
+℣. Mirífica, Dómine, misericórdias tuas. ℟. Qui salvos facis sperántes in te.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+**Ant.** Díligam te, \* † Dómine, virtus mea.
+
+### Psalmus 17, i
+
+DILIGAM te, † Dómine, fortitúdo mea: \* Dóminus firmaméntum meum, et refúgium meum, et liberátor meus.
+
+Deus meus adjútor meus, \* et sperábo in eum.
+
+Protéctor meus, et cornu salútis meæ, \* et suscéptor meus.
+
+Laudans invocábo Dóminum: \* et ab inimícis meis salvus ero.
+
+Circumdedérunt me dolóres mortis: \* et torréntes iniquitátis conturbavérunt me.

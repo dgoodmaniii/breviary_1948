@@ -26041,3 +26041,18 @@ QUIDAM quidem et propter invídiam et contentiónem: quidam autem et propter bon
 *Lib. 4, cap. 30*
 
 REPLÉMUS refectiónibus corpus, ne extenuátum defíciat; extenuámus abstinéntia, ne nos replétum premat: vegetámus hoc mótibus, ne situ immobilitátis intéreat; sed cítius hoc col-
+locándo sístimus, ne ipsa sua vegetatióne succúmbat: adjuméntis hoc véstium tégimus, ne frigus intérimat; et quæsíta adjuménta projícimus, ne calor exúrat. Tot ígitur diversitátibus occurréntes, quid ágimus, nisi corruptibilitáti servímus, ut saltem multiplícitas impénsi obséquii corpus sustíneat, quod anxíetas infírmæ mutabilitátis gravat?
+
+℟. Notas mihi fecísti, Dómine, vias vitæ: \* Adimplébis me lætítia cum vultu tuo: delectatiónes in déxtera tua usque in finem. ℣. Tu es qui restítues hereditátem meam mihi. — Adimplébis.
+
+#### Lectio v
+
+UNDE bene per Paulum dícitur: Vanitáti enim subjécta est creatúra non volens, sed propter eum qui subjécit eam in spe: quia et ipsa creatúra liberábitur a servitúte corruptiónis, in libertátem glóriæ filiórum Dei. Vanitáti quippe creatúra non volens súbditur: quia homo, qui ingénitæ constántiæ statum volens deséruit, pressus justæ mortalitátis póndere, nolens mutabilitátis suæ corruptióni servit. Sed creatúra hæc tunc a servitúte corruptiónis erípitur, cum ad filiórum Dei glóriam incorrúpta resurgéndo sublevátur.
+
+℟. Díligam te, Dómine, virtus mea: Dóminus firmaméntum meum, \* Et refúgium meum. ℣. Liberátor meus, Deus meus, adjútor meus. — Et.
+
+#### Lectio vi
+
+HIC ítaque elécti moléstia vincti sunt, quia adhuc corruptiónis suæ pœna deprimúntur: sed cum corruptíbili carne exúimur, quasi ab his, quibus nunc astríngimur, moléstiæ vínculis relaxámur. Præsentári namque jam Deo cúpimus, sed adhuc mortális córporis obligatióne præpedímur. Jure ergo vincti dícimur, quia adhuc incéssum nostri desidérii ad Deum líberum non habémus. Unde bene Paulus, ætérna desíderans, sed tamen adhuc corruptiónis suæ sárcinam portans, vinctus clamat: Cúpio dissólvi, et esse cum Christo. Dissólvi enim non quǽreret, nisi se proculdúbio vinctum vidéret.
+
+℟. Dómini est terra, et plenitúdo ejus: \* Orbis terrárum, et univérsi qui hábitant in eo. ℣. Ipse super mária fundávit eam, et super flúmina præparávit illam. — Orbis. Glória Patri. Orbis.

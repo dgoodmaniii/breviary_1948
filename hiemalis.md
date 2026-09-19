@@ -11635,3 +11635,68 @@ Pater noster {RUBRIC: quod dicitur a solo Hebdomadario totum clara voce, usque a
 ℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui.
 
 ℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte
+ nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+#### Per Annum
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BENEDICTUS Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+#### Hymnus
+
+MAGNÆ Deus poténtiæ,
+Qui fértili natos aqua
+Partim relínquis gúrgiti,
+Partim levas in áëra:
+
+Demérsa lymphis ímprimens,
+Subvécta cælis érigens:
+Ut stirpe ab una pródita,
+Divérsa répleant loca:
+
+Largíre cunctis sérvulis,
+Quos mundat unda Sánguinis,
+Nescíre lapsus críminum,
+Nec ferre mortis tædium.
+
+Ut culpa nullum déprimat:
+Nullum éfferat jactántia:
+Elísa mens ne cóncidat:
+Eláta mens ne córruat.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+{RUBRIC: Feria V post Dominicam Septuagesimæ et Sexagesimæ ac Feria V post Cineres Antiphona ad Magnificat ut in Proprio de Tempore; alias}
+
+**Ad Magnif. Ant.** Fecit Deus \* poténtiam in bráchio suo: dispérsit supérbos mente cordis sui.
+
+{RUBRIC: Preces feriales, si dicendæ, ut supra.} [REF: p. 231]
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.

@@ -21632,3 +21632,112 @@ Amen.
 ### In II Vesperis
 
 **Ad Magnif. Ant.** Vocábis \* nomen ejus Jesum; ipse enim salvum fáciet
+pópulum suum a peccátis eórum, allelúja.
+
+#### Oratio
+
+DEUS, qui unigénitum Fílium tuum constituísti humáni géneris Salvatórem, et Jesum vocári jussísti: concéde propítius; ut, cujus sanctum nomen venerámur in terris, ejus quoque aspéctu perfruámur in cælis. Per eúmdem Dóminum.
+
+{RUBRIC: Et non fit Commemoratio Dominicæ.}
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invit.** Admirábile nomen Jesu, quod est super omne nomen, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus. *3*
+
+#### Hymnus
+
+JESU, Rex admirábilis,
+Et triumphátor nóbilis,
+Dulcédo ineffábilis,
+Totus desiderábilis.
+
+Quando cor nostrum vísitas,
+Tunc lucet ei véritas,
+Mundi viléscit vánitas,
+Et intus fervet cáritas.
+
+Jesu, dulcédo córdium,
+Fons vivus, lumen méntium,
+Excédens omne gáudium,
+Et omne desidérium.
+
+Jesum omnes agnóscite,
+Amórem ejus póscite:
+Jesum ardénter quǽrite,
+Quæréndo inardéscite.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Te nostra, Jesu, vox sonet,
+Nostri te mores éxprimant,
+Te corda nostra díligant,
+Et nunc, et in perpétuum.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+#### Psalmus 8
+
+DÓMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+**Ant.** Dómine, Dóminus noster, quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** In nómine Jesu \* omne genu flectátur cæléstium, terréstrium, et infernórum.
+
+#### Psalmus 18, i
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+#### Psalmus 18, ii
+
+LEX Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** In nómine Jesu omne genu flectátur cæléstium, terréstrium, et infernórum.
+
+**Ant.** Confitémini \* Dómino, et invocáte nomen ejus: mementóte, quóniam excélsum est nomen ejus.

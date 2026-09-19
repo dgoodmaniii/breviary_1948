@@ -23486,3 +23486,51 @@ Amen.
 #### Oratio
 
 DEUS, qui hodiérna die Unigénitum tuum géntibus stella duce revelásti: concéde propítius; ut, qui jam te ex fide cognóvimus, usque ad contemplándam spéciem tuæ celsitúdinis perducámur. Per eúmdem Dóminum.
+
+{RUBRIC: In die Octava}
+
+#### Oratio
+
+DEUS, cujus Unigénitus in substántia nostræ carnis appáruit: præsta, quǽsumus; ut per eum, quem símilem nobis foris agnóvimus, intus reformári mereámur: Qui tecum vivit.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis; et ad eam in ℟. br. ℣. Qui apparuísti hódie, qui dícitur per totam Octávam, nisi álius Versus adhibéndus sit, juxta Rubricas.}
+
+### Ad Primam
+
+**Ant.** Ante lucíferum génitus, \* et ante sǽcula, Dóminus Salvátor noster hódie mundo appáruit.
+
+### Ad Tertiam
+
+**Ant.** Venit lumen tuum, \* Jerúsalem, et glória Dómini super te orta est, et ambulábunt gentes in lúmine tuo, allelúja.
+
+#### Capitulum
+
+*Is. 60, 1*
+
+SURGE, illumináre, Jerúsalem, quia venit lumen tuum, et glória Dómini super te orta est.
+
+℟. br. Reges Tharsis et ínsulæ múnera ófferent, \* Allelúja, allelúja. Reges. ℣. Reges Arabum et Saba dona addúcent. Allelúja, allelúja. Glória Patri. Reges Tharsis. ℣. Omnes de Saba vénient, allelúja.
+
+### Ad Sextam
+
+**Ant.** Apértis thesáuris suis, \* obtulérunt Magi Dómino aurum, thus et myrrham, allelúja.
+
+#### Capitulum
+
+*Is. 60, 4*
+
+LEVA in circúitu óculos tuos, et vide: omnes isti congregáti sunt, venérunt tibi: fílii tui de longe vénient, et fíliæ tuæ de látere surgent.
+
+℟. br. Omnes de Saba vénient, \* Allelúja, allelúja. Omnes. ℣. Aurum et thus deferéntes. Allelúja, allelúja. Glória Patri. Omnes. ℣. Adoráte Dóminum, allelúja. ℟. In aula sancta ejus, allelúja.
+
+### Ad Nonam
+
+**Ant.** Stella ista \* sicut flamma corúscat, et Regem regum Deum demónstrat: Magi eam vidérunt, et magno Regi múnera obtulérunt.
+
+#### Capitulum
+
+*Is. 60, 6*
+
+OMNES de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes.
+
+℟. br. Adoráte Dóminum, \* Allelúja, allelúja. Adoráte. ℣. In aula sancta ejus. Allelúja, allelúja. Glória Patri. Adoráte. ℣. Adoráte Deum, allelúja. ℟. Omnes Angeli ejus, allelúja.

@@ -19811,3 +19811,43 @@ In sempitérna sécula. Amen.
 {RUBRIC: Et fit Commemorátio sequéntis et Octávæ Nativitátis, ut infra.}
 
 {RUBRIC: ¶ De Octáva S. Stéphani, sicut et de Octávis S. Joánnis
+
+## Die 27 Decembris
+
+# S. Joannis Apostoli et Evangelistæ
+
+{RUBRIC: Duplex II classis cum Octava simplici}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], prǽter ea quæ hic habéntur própria.}
+
+{RUBRIC: Pro Commem. S. Joánnis in II Vésperis S. Stéphani.}
+
+**Ant.** Iste est Joánnes, \* qui supra pectus Dómini in cœna recúbuit: beátus Apóstolus, cui reveláta sunt secréta cæléstia.
+
+℣. Valde honorándus est beátus Joánnes. ℟. Qui supra pectus Dómini in cœna recúbuit.
+
+#### Oratio
+
+ECCLÉSIAM tuam, Dómine, benígnus illústra: ut beáti Joánnis Apóstoli tui et Evangelístæ illumináta doctrínis, ad dona pervéniat sempitérna. (Per Dóminum.)
+
+{RUBRIC: Pro Octava Nativitatis:}
+
+**Ant.** Hódie Christus natus est: hódie Salvátor appáruit: hódie in terra canunt Angeli, lætántur Archángeli: hódie exsúltant justi, dicéntes: Glória in excélsis Deo, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+### In I Nocturno
+
+{RUBRIC: Incipit Epístola prima beáti Joánnis Apóstoli}
+
+#### Lectio i
+
+*Cap. 1, 1-10*
+
+QUOD fuit ab inítio, quod audívimus, quod vídimus óculis nostris, quod perspéximus, et manus nostræ contrectavérunt de verbo vitæ: et vita manifestáta est, et vídimus, et testámur, et annuntiámus vobis vitam ætérnam, quæ erat apud Patrem, et appáruit nobis: quod vídimus et audívimus, annuntiámus vobis, ut et vos societátem habeátis nobíscum, et societas nostra sit cum Patre et cum Fílio ejus Jesu Christo. Et hæc scríbimus vobis ut gaudeátis, et gáudium vestrum sit plenum. Et hæc est annuntiátio, quam audívimus ab eo, et annuntiámus vobis: Quóniam Deus lux est, et ténebræ in eo non sunt ullæ.
+
+℟. Valde honorándus est beátus Joánnes, qui supra

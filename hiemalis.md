@@ -5913,3 +5913,54 @@ Justi autem hereditábunt terram: \* et inhabitábunt in séculum séculi super 
 ### Psalmus 36, iii
 
 OS justi meditábitur sapiéntiam, \* et lingua ejus loquétur judícium.
+ et lingua ejus loquétur judícium.
+
+Lex Dei ejus in corde ipsíus: \* et non supplantabúntur gressus ejus.
+
+Consíderat peccátor justum: \* et quærit mortificáre eum.
+
+Dóminus autem non derelínquet eum in mánibus ejus: \* nec damnábit eum, cum judicábitur illi.
+
+Exspécta Dóminum, et custódi viam ejus: et exaltábit te ut hereditáte cápias terram: \* cum períerint peccatóres vidébis.
+
+Vidi ímpium superexaltátum, \* et elevátum sicut cedros Líbani.
+
+Et transívi, et ecce non erat: \* et quæsívi eum, et non est invéntus locus ejus.
+
+Custódi innocéntiam, et vide æquitátem: \* quóniam sunt relíquiæ hómini pacífico.
+
+Injústi autem disperíbunt simul: \* relíquiæ impiórum interíbunt.
+
+Salus autem justórum a Dómino: \* et protéctor eórum in témpore tribulatiónis.
+
+Et adjuvábit eos Dóminus et liberábit eos: \* et éruet eos a peccatóribus, et salvábit eos: quia speravérunt in eo.
+
+**Ant.** Custódi innocéntiam, et vide æquitátem.
+
+#### In Festis novem Lectionum:
+
+℣. Exspécta Dóminum, et custódi viam ejus. ℟. Exaltábit te ut hereditáte cápias terram.
+
+**Absolutio** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+#### In III Nocturno
+
+**Ant.** Ne in ira tua \* corrípias me, Dómine.
+
+### Psalmus 37, i
+
+DOMINE, ne in furóre tuo árguas me, \* neque in ira tua corrípias me.
+
+Quóniam sagíttæ tuæ infíxæ sunt mihi: \* et confirmásti super me manum tuam.
+
+Non est sánitas in carne mea a fácie iræ tuæ: \* non est pax óssibus meis a fácie peccatórum meórum.
+
+Quóniam iniquitátes meæ supergréssæ sunt caput meum: \* et sicut onus grave gravátæ sunt super me.
+
+Putruérunt et corrúptæ sunt cicatríces meæ, \* a fácie insipiéntiæ meæ.
+
+Miser factus sum, et curvátus sum usque in finem: \* tota die contristátus ingrediébar.
+
+Quóniam lumbi mei impléti sunt illusiónibus: \* et non est sánitas in carne mea.

@@ -32320,7 +32320,9 @@ Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.*
 
 *Cap. 9, 1-16*
 
-SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem. Et cum iter fáceret, cóntigit ut appropinquáret Damásco; et súbito circumfúlsit eum lux de cælo. Et cadens in terram audívit vocem dicéntem sibi: Saule, Saule, quid me perséqueris? Qui dixit: Quis es, Dómine? Et ille: Ego sum Jesus, quem tu perséqueris. Durum est tibi contra stímulum calcitráre.℟. Qui operátus est Petro in apostolátum, operátus est et mihi inter gentes: \* Et cognovérunt grátiam Dei, quæ data est mihi. ℣. Grátia Dei in me vácua non fuit, sed grátia ejus semper in me manet. — Et.
+SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem. Et cum iter fáceret, cóntigit ut appropinquáret Damásco; et súbito circumfúlsit eum lux de cælo. Et cadens in terram audívit vocem dicéntem sibi: Saule, Saule, quid me perséqueris? Qui dixit: Quis es, Dómine? Et ille: Ego sum Jesus, quem tu perséqueris. Durum est tibi contra stímulum calcitráre.
+
+℟. Qui operátus est Petro in apostolátum, operátus est et mihi inter gentes: \* Et cognovérunt grátiam Dei, quæ data est mihi. ℣. Grátia Dei in me vácua non fuit, sed grátia ejus semper in me manet. — Et.
 
 #### Lectio ii
 
@@ -32416,4 +32418,22 @@ Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes rect
 
 HODIE de Actibus Apostolórum léctio hæc pronuntiáta est, ubi Paulus Apóstolus, ex persecutóre Christianórum, annuntiátor factus est Christi. Prostrávit enim Christus persecutórem, ut fáceret Ecclésiæ doctórem: percútiens eum, et sanans; occídens, et vivíficans: occísus agnus a lupis, et fáciens agnos de lupis. Ita enim in præclára prophetía cum Jacob Patriárcha benedíceret fíliis suis (præséntes tangens, futúra prospíciens), prædíctum erat quod in Paulo cóntigit. Erat autem Paulus, sicut ipse testátur, de tribu Bénjamin. Cum autem Jacob, benedícens fílios suos, venísset ad benedicéndum Bénjamin, ait de illo: Bénjamin lupus rapax.
 
-℟. Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis in
+℟. Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis inunivérso mundo: \* Per quem omnes gentes cognovérunt grátiam Dei. ℣. Intercéde pro nobis ad Deum, qui te elégit. — Per.
+
+#### Lectio v
+
+QUID ergo? lupus rapax semper? Absit; sed qui mane rapit prædam, ad vésperam dívidit escas. Hoc in Apóstolo Paulo implétum est, quia et de illo dictum erat. Jam, si placet, audiámus illum mane rapiéntem, ad vésperam escas dividéntem. Mane et véspere pósita sunt pro eo, ac si dicerétur, prius et póstea. Sic ergo accipiámus: Prius rápiet, póstea dívidet escas. Atténdite raptórem: Saulus, inquit, accéptis epístolis a princípibus sacerdótum, ibat, ut ubicúmque inveníret Christiános, ad sacerdótes attráheret et addúceret, útique puniéndos.
+
+℟. Grátia Dei sum id quod sum: \* Et grátia ejus in me vácua non fuit, sed semper in me manet. ℣. Qui operátus est Petro in apostolátum, operátus est et mihi inter gentes. — Et.
+
+#### Lectio vi
+
+IBAT spirans et anhélans cædes: hoc est, mane rápiens. Nam et quando lapidátus est Stéphanus primus Martyr pro nómine Christi, evidéntius áderat et Saulus; et sic áderat lapidántibus, ut non ei sufficéret, si tantum suis mánibus lapidáret. Ut enim esset in ómnium lapidántium mánibus, ipse ómnium vestiménta servábat; magis sǽviens omnes adjuvándo, quam suis mánibus lapidándo. Audívimus, mane rápiet: videámus ad vésperam quáliter dívidat escas. Voce Christi prostrátus de cælo, et accípiens désuper interdíctum jam sæviéndi, cécidit in fáciem suam, prius prosternéndus, póstea erigéndus; prius percutiéndus, póstea sanándus.
+
+℟. Saulus, qui et Paulus, magnus prædicátor, \* A Deo confortátus convaléscebat, et confundébat Judǽos. ℣. Osténdens quia hic est Christus, Fílius Dei. — A Deo. Glória Patri. A Deo.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+PAULUS Tarsénsis, qui ántea Saulus, Judǽus ex tribu Bénjamin, pharisæórum sectæ addíctus, Jerosólymis óperam dedit Gamaliéli, Mosáicæ legis peritíssimo. Paternárum

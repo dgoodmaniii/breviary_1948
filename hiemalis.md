@@ -25806,3 +25806,26 @@ DE monte Dómino descendénte, occúrrunt turbæ, quia ad altióra ascéndere no
 #### Lectio viii
 
 ET ecce leprósus véniens adorábat eum, dicens. Recte post prædicatiónem atque doctrínam, signi offértur occásio, ut per virtútem miráculi, prætéritus apud audiéntes sermo firmétur. Dómine, si vis, po-
+tes me mundáre. Qui voluntátem rogat, de virtúte non dúbitat. Et exténdens Jesus manum tétigit eum, dicens: Volo, mundáre. Extendénte manum Dómino, statim lepra fugit. Simúlque consídera, quam húmilis, et sine jactántia respónsio. Ille díxerat, Si vis: Dóminus respóndit, Volo. Ille præmíserat, Potes me mundáre: Dóminus jungit, et dicit, Mundáre. Non ergo, ut plerique Latinórum putant, jungéndum est, et legéndum, Volo mundáre: sed separátim, ut primum dicat, Volo; deínde ímperet, Mundáre.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus: et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+#### Lectio ix
+
+ET ait illi Jesus: Vide, némini díxeris. Et revéra quid erat necésse ut sermóne jactáret, quod córpore præferébat? Sed vade, osténde te sacerdóti. Várias ob causas mittit eum ad sacerdótem: primum propter humilitátem, ut sacerdótibus deférre honórem videátur. Erat enim lege præcéptum, ut, qui mundáti fúerant a lepra, offérrent múnera sacerdótibus. Deínde, ut mundátum vidéntes leprósum, aut créderent Salvatóri, aut non créderent: si créderent, salvaréntur; si non créderent, inexcusábiles forent. Et simul, ne, quod in eo sæpíssime criminabántur, legem vidérétur infríngere.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum descendísset Jesus \* de monte, ecce leprósus véniens adorábat eum, dicens: Dómine, si vis, potes me mundáre: et exténdens manum, tétigit eum, dicens: Volo, mundáre.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, infirmitátem nostram propítius réspice: atque ad protegéndum nos déxteram tuæ majestátis exténde. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.

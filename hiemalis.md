@@ -25602,3 +25602,29 @@ SCIMUS enim quóniam, si terréstris domus nostra hujus habitatiónis dissolvát
 *Cap. 5, 6-15*
 
 AUDÉNTES ígitur semper, sciéntes quóniam dum sumus in córpore, peregrinámur a Dómino: (per fidem enim ambulámus, et non per spéciem) audémus autem, et bonam voluntátem habémus magis peregrinári a córpore, et præséntes esse ad Dóminum. Et ídeo conténdimus sive abséntes, sive præséntes, placére illi. Omnes enim nos manifestári opórtet ante tribúnal Christi, ut réferat unusquísque própria córporis, prout gessit, sive bonum, sive malum.
+
+℟. Státuit Dóminus supra petram pedes meos, et diréxit gressus meos Deus: \* Et misit in os meum cánticum novum. ℣. Exaudívit preces meas: et edúxit me de lacu misériæ. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+SCIÉNTES ergo timórem Dómini homínibus suadémus, Deo autem manifésti sumus. Spero autem et in consciéntiis vestris manifésto nos esse. Non íterum commendámus nos vobis, sed occasiónem damus vobis gloriándi pro nobis: ut habeátis ad eos qui in fácie gloriántur, et non in corde. Sive enim mente excédimus, Deo: sive sóbrii sumus, vobis. Cáritas enim Christi urget nos: æstimántes hoc, quóniam si unus pro ómnibus mórtuus est, ergo omnes mórtui sunt: et pro ómnibus mórtuus est Christus: ut et qui vivunt, jam non sibi vivant, sed ei qui pro ipsis mórtuus est et resurréxit.
+
+℟. Ego dixi, Dómine, miserére mei: \* Sana ánimam meam, quia peccávi tibi. ℣. Ab ómnibus iniquitátibus meis éripe me, Dómine. — Sana. Glória Patri. Sana.
+
+### Feria Quarta
+
+{RUBRIC: De Epístola secúnda ad Corínthios}
+
+#### Lectio i
+
+*Cap. 7, 1-10*
+
+HAS ergo habéntes promissiónes, caríssimi, mundémus nos ab omni inquinaménto carnis et spíritus, perficiéntes sanctificatiónem in timóre Dei. Cápite nos. Néminem læsimus, néminem corrúpimus, néminem circumvénimus. Non ad condemnatiónem vestram dico. Prædíximus enim, quod in córdibus nostris estis ad commoriéndum, et ad convivéndum.
+
+℟. Ne perdíderis me cum iniquitátibus meis: \* Neque in finem irátus resérves mala mea. ℣. Non intres in judícium cum servo tuo, Dómine. — Neque.
+
+#### Lectio ii
+
+MULTA mihi fidúcia est apud vos, multa mihi gloriátio pro vobis, replétus sum consolatióne, superabúndo gáudio in omni tribulatióne nostra. Nam et cum venissémus in Macedóniam, nullam réquiem hábuit caro nostra, sed omnem tribulatiónem passi sumus: foris pugnæ, intus timóres. Sed qui consolátur húmiles, consolátus est nos Deus in advéntu Titi. Non solum

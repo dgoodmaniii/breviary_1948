@@ -24287,3 +24287,71 @@ Te Deum laudámus.
 {RUBRIC: et per Horas, Antiphonæ}
 
 **1** Post tríduum \* invenérunt Jesum in templo sedéntem in médio doctó-
+rum, audiéntem illos, et interrogántem eos.
+
+{RUBRIC: Psalmi de Dominica, I loco, [REF: p. 44]}
+
+**2** Dixit mater Jesu \* ad illum: Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te.
+
+**3** Descéndit Jesus \* cum eis, et venit Názareth, et erat súbditus illis.
+
+**4** Et Jesus proficiébat \* sapiéntia, et ætáte, et grátia apud Deum et hómines.
+
+**5** Et dicébant: \* Unde huic sapiéntia hæc, et virtútes? Nonne hic est fabri fílius?
+
+#### Capitulum
+
+*Luc. 2, 51*
+
+DESCÉNDIT Jesus cum María et Joseph, et venit Názareth, et erat súbditus illis.
+
+#### Hymnus
+
+O GENTE felix hóspita,
+Augústa sedes Názaræ,
+Quæ fovit alma Ecclésiæ
+Et prótulit primórdia.
+
+Sol, qui perérrat áureo
+Terras jacéntes lúmine,
+Nil grátius per sǽcula
+Hac vidit æde, aut sánctius.
+
+Ad hanc frequéntes cónvolant
+Cæléstis aulæ núntii,
+Virtútis hoc sacrárium
+Vísunt, revísunt, éxcolunt.
+
+Qua mente Jesus, qua manu,
+Optáta patris pérficit!
+Quo Virgo gestit gáudio
+Matérna obíre múnera!
+
+Adest amóris párticeps
+Curǽque Joseph cónjugi,
+Quos mille jungit néxibus
+Virtútis auctor grátia.
+
+Hi diligéntes ínvicem
+In Jesu amórem cónfluunt,
+Utríque Jesus mútuæ
+Dat caritátis prǽmia.
+
+Sic fiat, ut nos cáritas
+Jungat perénni fœdere,
+Pacémque alens domésticam
+Amára vitæ témperet!
+
+Jesu, tuis obédiens
+Qui factus es paréntibus,
+Cum Patre summo ac Spíritu
+Semper tibi sit glória.
+Amen.
+
+℣. Ponam univérsos fílios tuos doctos a Dómino. ℟. Et multitúdinem pacis fíliis tuis.
+
+**Ad Bened. Ant.** Illúmina nos, Dómine, \* exémplis famíliæ tuæ, et dírige pedes nostros in viam pacis.
+
+#### Oratio
+
+DÓMINE Jesu Christe, qui Maríæ et Joseph súbditus, doméstiam vitam ineffabílibus virtútibus consecrásti: fac nos, utriúsque auxílio, Famíliæ sanctæ tuæ exémplis ínstrui; et consórtium cónsequi sempitérnum: Qui vivis.

@@ -20874,8 +20874,7 @@ ITAQUE, auctóre Silvéstro, pius imperátor quam christifidélibus públice tem
 
 licas, scílicet Lateranénsem Christo Servatóri, Vaticánam sancto Petro, Ostiénsem sancto Paulo, sancto Lauréntio in Agro Veráno, sanctæ Cruci in Átrio Sessoriáno, sancto Petro et Marcellíno ac sanctæ Agnéti in viis Lavicána et Nomentána, et álias; quas sacris imagínibus spléndide exornávit, et, munéribus prædiísque attribútis, magnificentíssime locupletávit. Hoc Pontífice hábitum est Concílium Nicǽnum primum, ubi præsidéntibus ejus legátis, præsénteque Constantíno et trecéntis decem et octo epíscopis, sancta et cathólica fides explicáta est, Ário ejúsque sectatóribus condemnátis; quod étiam Concílium, peténtibus Pátribus, confirmávit in sýnodo Romæ hábita, ubi íterum Aríus condemnátus est. Multa idem decréta fecit Ecclésiæ Dei utília, quæ sub ejus nómine recenséntur: id est, ut a solo epíscopo chrisma conficerétur; ut présbyter chrísmate baptizáti summum liníret vérticem; ut diáconi dalmáticis in ecclésia, et palla linóstima ad lævam uteréntur; ut in líneo tantum velo sacrifícium altáris conficerétur.
 
-℟. Pósui adjutórium super poténtem, et exaltávi
-eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
 
 #### Lectio vi
 
@@ -32793,4 +32792,16 @@ ECCLÉSIAM tuam, quǽsumus, Dómine, grátia cæléstis amplíficet: quam beáti
 
 #### Lectio iv
 
-JOÁNNES Antiochénus, propter áureum eloquéntiæ flumen cognoménto Chrysóstomus, a forénsibus et sæculáribus stúdiis ad divínas lítteras summa cum ingénii et indústriæ laude se cóntulit. Itaque sacris initiátus ac présbyter Antiochénæ ecclésiæ factus, mórtuo Nectário, Arcádii imperatóris ópera, invítus Constantinopolitánæ ecclésiæ præfícitur. Quo suscépto pastoráli múnere, depravátos mores, et nobiliórum hóminum vivéndi licéntiam veheméntius objurgáre cœpit: qua ex libertáte magnam multórum súbiit invídiam. Apud Eudóxiam étiam, quod eam propter Callítropæ víduæ pecúniam, et altérius
+JOÁNNES Antiochénus, propter áureum eloquéntiæ flumen cognoménto Chrysóstomus, a forénsibus et sæculáribus stúdiis ad divínas lítteras summa cum ingénii et indústriæ laude se cóntulit. Itaque sacris initiátus ac présbyter Antiochénæ ecclésiæ factus, mórtuo Nectário, Arcádii imperatóris ópera, invítus Constantinopolitánæ ecclésiæ præfícitur. Quo suscépto pastoráli múnere, depravátos mores, et nobiliórum hóminum vivéndi licéntiam veheméntius objurgáre cœpit: qua ex libertáte magnam multórum súbiit invídiam. Apud Eudóxiam étiam, quod eam propter Callítropæ víduæ pecúniam, et altériusvíduæ agrum reprehendísset, gráviter offéndit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+QUARE áliquot episcopórum acto Chalcédone convéntu, quo ipse vocátus ire nóluit, quod nec legítimum concílium nec públicum esse díceret, niténte in primis ipsa contra Chrysóstomum Eudóxia, ejícitur in exsílium: sed paulo post propter ejus desidérium seditióne pópuli facta, admirábili civitátis plausu ab exsílio revocátur. Verum cum pérditos mores increpáre non desísteret, et ad argénteam Eudóxiæ státuam in foro sanctæ Sóphiæ ludos fíeri prohibéret; conspiratióne inimicórum episcopórum íterum exsuláre cógitur, víduis et egéntibus ómnibus commúnis paréntis ejectiónem lugéntibus. In exsílio Chrysóstomus incredíbile est et quanta mala perpéssus sit, et quam multos ad Jesu Christi fidem convérterit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+VERUM dum, concílio Románæ hábito, decréto Innocéntii primi Pontíficis restitúitur, a milítibus, qui eum custodiébant, miris in itínere malis et calamitátibus afficítur. Cumque per Arméniam ducerétur, sanctus Basilíscus Martyr, in cujus templo ántea oráverat, noctu sic eum affátus est: Joánnes frater, crástinus dies nos loco conjúnget. Quare postrídie sumpto Eucharístiæ sacraménto seque crucis signo múniens, ánimam Deo réddidit, décimo octávo Kaléndas Octóbris. Quo mórtuo, horríbilis grando Constantinópoli cécidit, et quatríduo Augústa cessit e vita. Ejus corpus insígni pompa et hóminum multitúdine celebrátum, Theodósius Arcádii fílius Constantinópolim portándum, et honorífice sepeliéndum curávit sexto Kaléndas Februárii: cujus étiam relíquias venerátus, paréntum suórum véniam pétiit: quod deínde Romam translátum in basílica Vaticána cónditum est. Multitúdinem, pietátem, ac

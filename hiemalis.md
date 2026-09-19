@@ -33699,4 +33699,59 @@ ANDRÉAM, Floréntiæ ex nóbili Corsinórum família natum, paréntes précibus
 
 ℣. Justum dedúxit.
 
-**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+#### Oratio
+
+DEUS, qui in Ecclésia tua, nova semper instáuras exémpla virtútum: da pópulo tuo beáti Andréæ Confessóris tui atque Pontíficis ita sequi vestígia; ut assequátur et prǽmia. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis.}
+
+{RUBRIC: In Festis novem Lectiónum a Féria V post Cíneres usque ad Sábbatum sequens occurréntibus dícitur ix Léctio de Homilía Fériæ curréntis et de ea fit Commemorátio ad Laudes et in Vésperis, ante Commemoratiónem Festi simplícis forte occurréntis.}
+
+## Die 5 Februarii
+
+### S. Agathæ
+
+{RUBRIC: Vírginis et Mártyris}
+
+{RUBRIC: Duplex}
+
+### In I Vesperis
+
+{RUBRIC: Quando I Vésperæ dicéndæ sint íntegræ, Añæ de Laud.} [REF: p. 860]; {RUBRIC: Psalmi ut in I Vésperis de Communi Ap.} [3]
+
+{RUBRIC: Capitulum} *Eccli. 51, 1-3*
+
+CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+#### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia.
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant.
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+\* Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sǽcula. Amen.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+**Ad Magnif. Ant.** Stans beáta Agatha \* in médio cárceris, expánsis mánibus orábat ad Dóminum: Dómine Jesu Christe, magíster bone, grátias tibi

@@ -8222,3 +8222,54 @@ Benedíces corónæ anni benignitátis tuæ: \* et campi tui replebúntur ubert�
 Pinguéscent speciósa desérti: \* et exsultatióne colles accingéntur.
 
 Indúti sunt aríetes óvium, et valles abundábunt
+ fruménto: \* clamábunt, étenim hymnum dicent.
+
+**Ant.** Te decet hymnus, Deus, in Sion.
+
+**Ant.** Tibi, Dómine, psallam, \* et intélligam in via immaculáta.
+
+### Psalmus 100
+
+MISERICORDIAM, et judícium \* cantábo tibi, Dómine:
+
+Psallam, et intélligam in via immaculáta, \* quando vénies ad me.
+
+Perambulábam in innocéntia cordis mei, \* in médio domus meæ.
+
+Non proponébam ante óculos meos rem injústam: \* faciéntes prævaricatiónes odívi.
+
+Non adhæsit mihi cor pravum: \* declinántem a me malígnum non cognoscébam.
+
+Detrahéntem secréto próximo suo, \* hunc persequébar.
+
+Supérbo óculo, et insatiábili corde, \* cum hoc non edébam.
+
+Oculi mei ad fidéles terræ ut sédeant mecum: \* ámbulans in via immaculáta, hic mihi ministrábat.
+
+Non habitábit in médio domus meæ qui facit supérbiam: \* qui lóquitur iníqua, non diréxit in conspéctu oculórum meórum.
+
+In matutíno interficiébam omnes peccatóres terræ: \* ut dispérderem de civitáte Dómini omnes operántes iniquitátem.
+
+**Ant.** Tibi, Dómine, psallam, et intélligam in via immaculáta.
+
+**Ant.** Dómine, magnus es tu, \* et præclárus in virtúte tua.
+
+#### Canticum Judith
+
+*Judith. 16, 15-21*
+
+HYMNUM cantémus Dómino, \* hymnum novum cantémus Deo nostro.
+
+Adonái, Dómine, magnus es tu, et præclárus in virtúte tua, \* et quem superáre nemo potest.
+
+Tibi sérviat omnis creatúra tua: \* quia dixísti, et facta sunt:
+
+Misísti spíritum tuum, et creáta sunt: \* et non est qui resístat voci tuæ.
+
+Montes a fundaméntis movebúntur cum aquis: \* petræ, sicut cera, liquéscent ante fáciem tuam.
+
+Qui autem timent te, \* magni erunt apud te per ómnia.
+
+Væ genti insurgénti super genus meum: Dóminus enim omnípotens vindicábit in eis, \* in die judícii visitábit illos.
+
+Dabit enim ignem, et vermes in carnes eórum, \* ut urántur, et séntiant usque in sempitérnum.

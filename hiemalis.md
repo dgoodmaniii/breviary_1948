@@ -3911,4 +3911,104 @@ Clamavérunt, nec erat qui salvos fáceret, ad Dóminum: \* nec exaudívit eos.
 
 Et commínuam eos, ut púlverem ante fáciem venti: \* ut lutum plateárum delébo eos.
 
-Erípies me de contradictiónibus pópuli: \* constí-
+Erípies me de contradictiónibus pópuli: \* constítues me in caput géntium.
+
+Pópulus, quem non cognóvi, servívit mihi: \* in audítu auris obedívit mihi.
+
+Fílii aliéni mentíti sunt mihi: \* fílii aliéni inveteráti sunt, et claudicavérunt a sémitis suis.
+
+Vivit Dóminus, et benedíctus Deus meus, \* et exaltétur Deus salútis meæ.
+
+Deus, qui das vindíctas mihi, et subdis pópulos sub me, \* liberátor meus de inimícis meis iracúndis.
+
+Et ab insurgéntibus in me exaltábis me: \* a viro iníquo éripies me.
+
+Proptérea confitébor tibi in natiónibus, Dómine: \* et nómini tuo psalmum dicam.
+
+Magníficans salútes Regis ejus, et fáciens misericórdiam Christo suo David, \* et sémini ejus usque in séculum.
+
+**Ant.** Vivit Dóminus, et benedíctus Deus salútis meæ.
+
+#### In Festis novem Lectionum:
+
+℣. Confitébor tibi in natiónibus, Dómine. ℟. Et nómini tuo psalmum dicam.
+
+**Absol.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+**Ant.** Exáudiat te \* † Dóminus in die tribulatiónis. †
+
+### Psalmus 19
+
+EXAUDIAT te † Dóminus in die tribulatiónis: \* † prótegat te nomen Dei Jacob.
+
+Mittat tibi auxílium de sancto: \* et de Sion tueátur te.
+
+Memor sit omnis sacrifícii tui: \* et holocáustum tuum pingue fiat.
+
+Tríbuat tibi secúndum cor tuum: \* et omne consílium tuum confírmet.
+
+Lætábimur in salutári tuo: \* et in nómine Dei nostri magnificábimur.
+
+Ímpleat Dóminus omnes petitiónes tuas: \* nunc cognóvi quóniam salvum fecit Dóminus Christum suum.
+
+Exáudiet illum de cælo sancto suo: \* in potentátibus salus déxteræ ejus.
+
+Hi in cúrribus, et hi in equis: \* nos autem in nómine Dómini, Dei nostri, invocábimus.
+
+Ipsi obligáti sunt, et cecidérunt: \* nos autem surréximus et erécti sumus.
+
+Dómine, salvum fac regem: \* et exáudi nos in die, qua invocavérimus te.
+
+**Ant.** Dómine, \* † in virtúte tua lætábitur rex. ‡
+
+### Psalmus 20
+
+DOMINE, † in virtúte tua lætábitur rex: \* ‡ et super salutáre tuum exsultábit vehementer.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in séculum, et in séculum séculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in séculum séculi: \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis: \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui: \* Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes: \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala: \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum: \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Dómine, in virtúte tua lætábitur rex.
+
+**Ant.** Exaltábo te, \* † Dómine, quóniam suscepísti me. ‡
+
+### Psalmus 29
+
+EXALTABO te, † Dómine, quóniam suscepísti me: \* ‡ nec delectásti inimícos meos super me.
+
+Dómine, Deus meus, clamávi ad te, \* et sanásti me.
+
+Dómine, eduxísti ab inférno ánimam meam: \* salvásti me a descendéntibus in lacum.
+
+Psállite Dómino, sancti ejus: \* et confitémini memóriæ sanctitátis ejus.
+
+Quóniam ira in indignatióne ejus: \* et vita in voluntáte ejus.
+
+Ad vésperum demorábitur fletus: \* et ad matutínum lætítia.
+
+Ego autem dixi in abundántia mea: \* Non movébor in ætérnum.

@@ -17525,3 +17525,40 @@ ET pax Dei, quæ exsúperat omnem sensum, custódiat corda vestra, et intelligé
 {RUBRIC: inchoántur die 17 Decémbris, et síngulæ ante et post Magníficat íntegræ sicut in Duplícibus dicúntur per órdinem, usque ad diem ante Vigíliam Nativitátis. Si vero Festum fúerit, dicúntur post Oratiónem Festi, pro Commemoratióne Advéntus.}
 
 {RUBRIC: Die 17 Decémbris} **Ant.** O Sapiéntia, \* quæ ex ore
+Altíssimi prodiísti, attíngens a fine usque ad finem, fórtiter suavitérque dispónens ómnia: veni ad docéndum nos viam prudéntiæ.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+{RUBRIC: Oratio ut infra.}
+
+{RUBRIC: 18} **Ant.** O Adonái, \* et Dux domus Israël, qui Móysi in igne flammæ rubi apparuísti, et ei in Sina legem dedísti: veni ad rediméndum nos in bráchio exténto.
+
+{RUBRIC: 19} **Ant.** O radix Jesse, \* qui stas in signum populórum, super quem continébunt reges os suum, quem gentes deprecabúntur: veni ad liberándum nos, jam noli tardáre.
+
+{RUBRIC: 20} **Ant.** O clavis David, \* et scéptrum domus Israël, qui áperis, et nemo claudit; claudis, et nemo áperit: veni, et educ vinctum de domo cárceris, sedéntem in ténebris, et umbra mortis.
+
+{RUBRIC: 21} **Ant.** O Oriens, \* splendor lucis ætérnæ, et sol justítiæ: veni, et illúmina sedéntes in ténebris, et umbra mortis.
+
+{RUBRIC: 22} **Ant.** O Rex géntium, \* et desiderátus eárum, lapísque anguláris, qui facis útraque unum: veni, et
+
+salva hóminem, quem de limo formásti.
+
+{RUBRIC: 23} **Ant.** O Emmánuel, \* Rex et légifer noster, exspectátio géntium, et Salvátor eárum: veni ad salvándum nos, Dómine, Deus noster.
+
+℣. Roráte, cæli, désuper.
+
+#### Infra hebd. III Adventus
+
+#### Oratio
+
+AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et mentis nostræ ténebras grátia tuæ visitatiónis illústra: Qui vivis.
+
+#### Infra hebd. IV Adventus
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpédiunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.
+
+#### Sequentes Antiphonæ ad Laudes et per Horas
+
+{RUBRIC: dicúntur in sex Fériis ante Vigíliam Nativitátis, et incipiúntur die 17 Decémbris ab Antiphónis quæ Fériæ illíus diéi assignántur. Simíliter et áliæ dicúntur in própriis Fériis. Quod si dies 17 fúerit Domínica, Antíphonæ inchoántur sequénti Féria II, quæ erit dies 18. Quæ autem dicéndæ essent diébus, in}

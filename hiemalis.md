@@ -31620,7 +31620,9 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 
 {RUBRIC: Liber I post initium}
 
-ODIE natális est Vírginis, integritátem sequámur. Natális est Mártyris, hóstias immolémus. Natális est sanctæ Agnétis, miréntur viri, non despérent párvuli, stúpeant nuptæ, imiténtur innúptæ. Sed quid dignum ea loqui póssumus, cujus ne nomen quidem vácuum laudis est? Devótio supra ætátem, virtus supra natúram: ut mihi videátur non hóminis habuísse nomen, sed oráculum Mártyris, quod indicávit quid esset futúra. Nomen Vírginis títulus est pudóris. Appellábo Mártyrem: prædicávi satis. Prolíxa laudátio est, quæ non quæritur, sed tenétur. Nemo est laudabílior, quam qui ab ómnibus laudári potest. Quot hómines, tot præcónes, qui Mártyrem prædicant, dum loquúntur.℟. Induit me Dóminus vestiménto salútis, et indumento lætítiæ circúmdedit me: \* Et tamquam sponsam decorávit me coróna. ℣. Trádidit áuribus meis inæstimábiles margarítas, circúmdedit me vernántibus atque coruscántibus gemmis. — Et.
+ODIE natális est Vírginis, integritátem sequámur. Natális est Mártyris, hóstias immolémus. Natális est sanctæ Agnétis, miréntur viri, non despérent párvuli, stúpeant nuptæ, imiténtur innúptæ. Sed quid dignum ea loqui póssumus, cujus ne nomen quidem vácuum laudis est? Devótio supra ætátem, virtus supra natúram: ut mihi videátur non hóminis habuísse nomen, sed oráculum Mártyris, quod indicávit quid esset futúra. Nomen Vírginis títulus est pudóris. Appellábo Mártyrem: prædicávi satis. Prolíxa laudátio est, quæ non quæritur, sed tenétur. Nemo est laudabílior, quam qui ab ómnibus laudári potest. Quot hómines, tot præcónes, qui Mártyrem prædicant, dum loquúntur.
+
+℟. Induit me Dóminus vestiménto salútis, et indumento lætítiæ circúmdedit me: \* Et tamquam sponsam decorávit me coróna. ℣. Trádidit áuribus meis inæstimábiles margarítas, circúmdedit me vernántibus atque coruscántibus gemmis. — Et.
 
 #### Lectio v
 
@@ -31630,4 +31632,34 @@ HÆC trédecim annórum martýrium fecísse tráditur. Quo detestabílior crudé
 
 #### Lectio vi
 
-NON sic ad thálamum nupta properáret, ut ad supplícii locum, læta successu, gradu festína Virgo procéssit. Flere omnes, ipsa sine fletu. Mirári plerique, quod tam fácile vitæ suæ pródiga, quam nondum háuserat, jam quasi perfúncta donáret. Stupére univérsi, quod jam divinitátis testis exsísteret, quæ adhuc árbitra sui per ætátem esse non posset. Quanto terróre egit carnifex ut timerétur, quantis blandítiis ut suadéret, quantórum vota, ut sibi ad núptias proveníret! At illa: Et hæc Sponsi injúria est, inquit, exspectáre placitúram. Qui me sibi prior elégit, accípiet: quid, percússor, moráris? Péreat corpus, quod amári potest óculis, quibus nolo. Stetit, orávit, cervícem infléxit. Cérneres trepidáre carníficem, quasi ipse addíctus fuísset, trémere percussóris
+NON sic ad thálamum nupta properáret, ut ad supplícii locum, læta successu, gradu festína Virgo procéssit. Flere omnes, ipsa sine fletu. Mirári plerique, quod tam fácile vitæ suæ pródiga, quam nondum háuserat, jam quasi perfúncta donáret. Stupére univérsi, quod jam divinitátis testis exsísteret, quæ adhuc árbitra sui per ætátem esse non posset. Quanto terróre egit carnifex ut timerétur, quantis blandítiis ut suadéret, quantórum vota, ut sibi ad núptias proveníret! At illa: Et hæc Sponsi injúria est, inquit, exspectáre placitúram. Qui me sibi prior elégit, accípiet: quid, percússor, moráris? Péreat corpus, quod amári potest óculis, quibus nolo. Stetit, orávit, cervícem infléxit. Cérneres trepidáre carníficem, quasi ipse addíctus fuísset, trémere percussórisdéxteram, pallére ora aliéno timéntis perículo, cum puélla non timéret suo. Habétis ígitur in una hóstia duplex martýrium, pudóris et religiónis. Et virgo permánsit, et martýrium obtínuit.
+
+℟. Jam corpus ejus córpori meo sociátum est, et sanguis ejus ornávit genas meas: \* Cujus mater virgo est, cujus Pater féminam nescit. ℣. Ipsi sum desponsáta, cui Angeli sérviunt, cujus pulchritúdinem sol et luna mirántur. — Cujus. Glória Patri. Cujus.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ODIE natális est Vírginis, integritátem sequámur. Natális est Mártyris, hóstias immolémus. Natális est sanctæ Agnétis, miréntur viri, non despérent párvuli, stúpeant nuptæ, imiténtur innúptæ. Sed quid dignum ea loqui póssumus, cujus ne nomen quidem vácuum laudis est? Devótio supra ætátem, virtus supra natúram: ut mihi videátur non hóminis habuísse nomen, sed oráculum Mártyris, quod indicávit quid esset futúra. Nomen Vírginis títulus est pudóris. Appellábo Mártyrem: prædicávi satis. Prolíxa laudátio est, quæ non quæritur, sed tenétur. Nemo est laudabílior, quam qui ab ómnibus laudári potest. Quot hómines, tot præcónes, qui Mártyrem prædicant, dum loquúntur. Hæc trédecim annórum martýrium fecísse tráditur. Quo detestabílior crudélitas quæ nec minúsculæ pepércit ætáti; immo magna vis fídei, quæ étiam ab illa testimónium invénit ætáte.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+### In III Nocturno
+
+**Ant.** Cujus pulchritúdinem \* sol et luna mirántur, ipsi soli servo fidem.
+
+###### Psalmus 14
+
+DÓMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pe-

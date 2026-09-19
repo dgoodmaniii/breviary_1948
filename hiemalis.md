@@ -18723,3 +18723,53 @@ Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
 Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
 
 Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Serví­te Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Dóminus dixit ad me: Fílius meus es tu, ego hódie génui te.
+
+**Ant.** Tamquam sponsus \* Dóminus procédens de thálamo suo.
+
+#### Psalmus 18
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in séculum séculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint dominá­ti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et me-

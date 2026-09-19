@@ -25655,3 +25655,26 @@ IPSE autem ego Paulus óbsecro vos per mansuetúdinem et modéstiam Christi, qui
 #### Lectio ii
 
 NAM arma milítiæ nostræ non carnália sunt, sed poténtia Deo ad destructiónem munitiónum, consília destruéntes, et omnem altitúdinem extolléntem se advérsus sciéntiam Dei, et in captivitátem redigéntes omnem intelléctum in obséquium
+Christi, et in promptu habéntes ulcísci omnem inobediéntiam, cum impléta fúerit vestra obediéntia. Quæ secúndum fáciem sunt, vidéte. Si quis confídit sibi Christi se esse, hoc cógitet íterum apud se: quia sicut ipse Christi est, ita et nos.
+
+℟. Repleátur os meum laude tua, ut hymnum dicam glóriæ tuæ, tota die magnitúdinem tuam: noli me projícere in témpore senectútis: \* Dum defécerit in me virtus mea, ne derelínquas me. ℣. Gaudébunt lábia mea, cum cantávero tibi. — Dum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dum.}
+
+#### Lectio iii
+
+NAM, et si ámplius áliquid gloriátus fúero de potestáte nostra, quam dedit nobis Dóminus in ædificatiónem, et non in destructiónem vestram: non erubéscam. Ut autem non exístimer tamquam terrére vos per epístolas: quóniam quidem epístolæ, ínquiunt, graves sunt et fortes: præséntia autem córporis infírma, et sermo contemptíbilis: hoc cógitet qui ejúsmodi est, quia quales sumus verbo per epístolas abséntes, tales et præséntes in facto. Non enim audémus insérere, aut comparáre nos quibúsdam, qui seípsos comméndant: sed ipsi in nobis nosmetípsos metiéntes, et comparántes nosmetípsos nobis.
+
+℟. Gaudébunt lábia mea cum cantávero tibi: \* Et ánima mea, quam redemísti, Dómine. ℣. Sed et lingua mea meditábitur justítiam tuam, tota die laudem tuam. — Et. Glória Patri. Et.
+
+### Feria Sexta
+
+{RUBRIC: De Epístola secúnda ad Corínthios}
+
+#### Lectio i
+
+*Cap. 12, 1-11*
+
+SI gloriári opórtet (non éxpedit quidem) véniam autem ad visiónes, et revelatiónes Dómini. Scio hóminem in Christo ante annos quatuórdecim (sive in córpore néscio, sive extra corpus, néscio, Deus scit:) raptum hujúsmodi usque ad tértium cælum. Et scio hujúsmodi hóminem, (sive in córpore, sive extra corpus, néscio, Deus scit:) quóniam raptus est in paradísum: et audívit arcána verba, quæ non licet hómini loqui.
+
+℟. Confitébor tibi, Dómine Deus, in toto corde meo, et honorificábo nomen tuum in ætérnum: \* Quia misericórdia tua,

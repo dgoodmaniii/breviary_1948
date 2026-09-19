@@ -25576,3 +25576,29 @@ INCÍPIMUS íterum nosmetípsos commendáre? aut numquid egémus (sicut quidam) 
 FIDÚCIAM autem talem habémus per Christum ad Deum: non quod sufficiéntes simus cogitáre áliquid a nobis, quasi ex nobis: sed sufficiéntia nostra ex Deo est: qui et idóneos nos fecit minístros novi Testaménti, non líttera, sed Spíritu: líttera enim occídit, Spíritus autem vivíficat. Quod si ministrátio mortis lítteris deformáta in lapídibus, fuit in glória, ita ut non possent inténdere fílii Israël in fáciem Móysi propter glóriam vultus ejus, quæ evacuátur: quómodo non magis ministrátio Spíritus erit in glória?
 
 ℟. Adjútor meus esto, Deus: \* Ne derelínquas me. ℣. Neque despícias me, Deus, salutáris meus. — Ne.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ne.}
+
+#### Lectio iii
+
+NAM si ministrátio damnatiónis glória est: multo magis abúndat ministérium justítiæ in glória. Nam nec glorificátum est, quod cláruit in hac parte, propter excelléntem glóriam. Si enim quod evacuátur, per glóriam est: multo magis quod manet, in glória est. Habéntes ígitur talem spem, multa fidúcia útimur: et non sicut Móyses ponébat velámen super fáciem suam, ut non inténderent fílii Israël in fáciem ejus, quod evacuátur, sed obtúsi sunt sensus eórum. Usque in hodiérnum enim diem idípsum velámen in lectióne véteris Testaménti manet non revelátum, quóniam in Christo evacuátur.
+
+℟. Benedícam Dóminum in omni témpore: \* Semper laus ejus in ore meo. ℣. In Dómino laudábitur ánima mea, áudiant mansuéti, et læténtur. — Semper. Glória Patri. Semper.
+
+### Feria Tertia
+
+{RUBRIC: De Epístola secúnda ad Corínthios}
+
+#### Lectio i
+
+*Cap. 5, 1-4*
+
+SCIMUS enim quóniam, si terréstris domus nostra hujus habitatiónis dissolvátur, quod ædificatiónem ex Deo habémus, domum non manufáctam, ætérnam in cælis. Nam et in hoc ingemíscimus, habitatiónem nostram, quæ de cælo est, superíndui cupiéntes: si tamen vestíti, non nudi inveniámur. Nam et qui sumus in hoc tabernáculo, ingemíscimus graváti: eo quod nólumus exspoliári, sed supervestíri, ut absorbeátur quod mortále est, a vita.
+
+℟. Auribus pércipe, Deus, lácrimas meas: ne síleas a me, remítte mihi: \* Quóniam íncola ego sum apud te, et peregrínus. ℣. Compláceat tibi, ut erípias me: Dómine, ad adjuvándum me festína. — Quóniam.
+
+#### Lectio ii
+
+*Cap. 5, 6-15*
+
+AUDÉNTES ígitur semper, sciéntes quóniam dum sumus in córpore, peregrinámur a Dómino: (per fidem enim ambulámus, et non per spéciem) audémus autem, et bonam voluntátem habémus magis peregrinári a córpore, et præséntes esse ad Dóminum. Et ídeo conténdimus sive abséntes, sive præséntes, placére illi. Omnes enim nos manifestári opórtet ante tribúnal Christi, ut réferat unusquísque própria córporis, prout gessit, sive bonum, sive malum.

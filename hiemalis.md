@@ -32749,4 +32749,48 @@ VERE frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, 
 
 ℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et corónam.
 
-{RUBRIC: In III Nocturno Homilía in Ev.} Nihil est opértum, {RUBRIC: de Communi unius Martyris 4 loco.} [47]
+{RUBRIC: In III Nocturno Homilía in Ev.} Nihil est opértum, {RUBRIC: de Communi unius Martyris 4 loco.} [47]### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+#### Oratio
+
+DEUS, qui nos beáti Polycárpi Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commem. præced.}
+
+---
+
+## Die 27 Januarii
+
+### S. Joannis Chrysostomi
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex} (m. t. v.) [69]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Joánnes Chrysóstome, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+#### Oratio
+
+ECCLÉSIAM tuam, quǽsumus, Dómine, grátia cæléstis amplíficet: quam beáti Joánnis Chrysóstomi Confessóris tui atque Pontíficis illustráre voluísti gloriósis méritis, et doctrínis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+{RUBRIC: Oratio Deus qui, ut supra.}
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam.} [87]
+
+### In II Nocturno
+
+#### Lectio iv
+
+JOÁNNES Antiochénus, propter áureum eloquéntiæ flumen cognoménto Chrysóstomus, a forénsibus et sæculáribus stúdiis ad divínas lítteras summa cum ingénii et indústriæ laude se cóntulit. Itaque sacris initiátus ac présbyter Antiochénæ ecclésiæ factus, mórtuo Nectário, Arcádii imperatóris ópera, invítus Constantinopolitánæ ecclésiæ præfícitur. Quo suscépto pastoráli múnere, depravátos mores, et nobiliórum hóminum vivéndi licéntiam veheméntius objurgáre cœpit: qua ex libertáte magnam multórum súbiit invídiam. Apud Eudóxiam étiam, quod eam propter Callítropæ víduæ pecúniam, et altérius

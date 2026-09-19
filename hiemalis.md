@@ -31202,4 +31202,52 @@ DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti
 
 #### Oratio
 
-DA, quǽsumus, omnípotens Deus: ut, qui beátæ Priscæ Vírginis et Mártyris tuæ natalítia cólimus, et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.
+DA, quǽsumus, omnípotens Deus: ut, qui beátæ Priscæ Vírginis et Mártyris tuæ natalítia cólimus, et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.### In II Vesperis
+
+#### Hymnus
+
+QUODCÚMQUE in orbe néxibus revínxeris,
+Erit revínctum, Petre, in arce síderum:
+Et quod resólvit hic potéstas trádita,
+Erit solútum cæli in alto vértice:
+In fine mundi judicábis sæculum.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,
+Honor tibi decúsque: sancta júgiter
+Laudétur omne Trínitas per sæculum. Amen.
+
+℣. Elégit te Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+**Ad Magnif. Ant.** Dum esset summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+{RUBRIC: Et fit Commem. S. Pauli Ap., ut ad Laudes.}
+
+{RUBRIC: Deinde Com. sequéntis ac S. Canúti Regis, Mart., ut infra.}
+
+---
+
+## Die 19 Januarii
+
+### Ss. Marii, Marthæ, Audifacis et Abachum
+
+{RUBRIC: Mm.} {RUBRIC: Simplex} [49]
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+#### Oratio
+
+EXÁUDI, Dómine, pópulum tuum cum Sanctórum tuórum patrocínio supplicántem: ut et temporális vitæ nos tríbuas pace gaudére; et ætérnæ reperíre subsídium. Per Dóminum.
+
+{RUBRIC: Pro Commem. S. Canúti Regis Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+#### Oratio
+
+DEUS, qui ad illustrándam Ecclésiam tuam beátum Canútum regem martýrii palma et gloriósis miráculis decoráre dignátus es: concéde propítius; ut, sicut ipse Domínicæ passiónis imitátor fuit, ita nos, per ejus vestígia gra-

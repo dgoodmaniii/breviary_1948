@@ -29564,3 +29564,64 @@ VERE hortus deliciárum, in quo cónsita sunt univérsa florum génera, et odora
 {RUBRIC: Ex Actis Pii Papæ noni}
 
 DEÍPARÆ autem Vírginis in sua Conceptióne de tetérrimo humáni géneris hoste victóriam, quam divína elóquia, veneránda tradítio, perpétuus Ecclésiæ sensus, singuláris epíscopórum ac fidélium conspirátio, insígnia quoque summórum Pontíficum acta atque constitutiónes mirífice jam illustrábant, Pius nonus Póntifex máximus totíus Ecclésiæ votis ánnuens státuit suprémo suo atque infallíbili oráculo solémniter proclamáre. Itaque sexto Idus Decémbris anni millésimi octingentésimi quinquagésimi quarti in basílica Vaticána, ingénti sanctæ Románæ Ecclésiæ patrum cardinálium et episcopó-
+rum ex díssitis étiam regiónibus astánte cœtu, universóque plaudénte orbe, solémniter pronuntiávit ac definívit: Doctrínam, quæ tenet beatíssimam Vírginem Maríam in primo instánti suæ Conceptiónis fuísse, singulári Dei privilégio, ab omni originális culpæ labe præservátam immúnem, esse a Deo revelátam, ac proínde ab ómnibus fidélibus fírmiter constantérque credéndam.
+
+℟. Signum magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, \* Et in cápite ejus coróna stellárum duódecim. ℣. Induit eam Dóminus vestiméntis salútis, induménto justítiæ, et quasi sponsam ornávit eam monílibus suis. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+**Ant.** Sanctimónia et magnificéntia \* in Conceptióne ejus: annuntiáte in ómnibus pópulis glóriam ejus.
+
+###### Psalmus 95
+
+CANTÁTE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+**Ant.** Sanctimónia et magnificéntia in Conceptióne ejus: annuntiáte in ómnibus pópulis glóriam ejus.
+
+**Ant.** Lætámini, omnes, \* in Dómino: et confitémini memóriæ sanctitátis ejus.
+
+###### Psalmus 96
+
+DÓMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Ángeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem ter-

@@ -30850,4 +30850,14 @@ PAULUS, eremitárum auctor et magíster, apud inferiórem Thebáidem natus, cum 
 
 POST corvi discéssum, Eja, inquit Paulus, Dóminus nobis prándium misit, vere pius, vere miséricors. Sexagínta jam anni sunt, cum accípio quotídie dimídii panis fragméntum, nunc ad advéntum tuum milítibus suis Christus duplicávit annónam. Quare cum gratiárum actióne ad fontem capiéntes cibum, ubi tantísper recreáti sunt, íterum grátiis de more Deo actis, noctem in divínis láudibus consumpsérunt. Dilúculo Paulus de morte, quæ sibi instáret, admónens Antónium, hortátur, ut pállium, quod ab Athanásio accéperat, ad involvéndum suum corpus afférret. Quo ex itínere rédiens ille, vidit inter Angelórum choros, inter Prophetárum et Apostolórum cœtus Pauli ánimam in cælum ascéndere.
 
-℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.#### Lectio vi
+
+CUMQUE ad ejus cellam pervenísset, invénit génibus complicátis, erécta cervíce, extensísque in altum mánibus corpus exánime: quod pállio obvólvens, hymnósque et psalmos ex christiána traditióne decántans, cum sárculum, quo terram fóderet, non habéret, duo leónes ex interióre erémo rápido cursu ad beáti senis corpus ferúntur; ut fácile intelligerétur, eos, quo modo póterant, plorátum édere: qui certátim terram pédibus effodiéntes, fóveam, quæ hóminem cómmode cáperet, effecérunt. Qui cum abiíssent, Antónius sanctum corpus in eum locum íntulit; et injécta humo, túmulum ex christiáno more compósuit: túnicam vero Pauli, quam in sportæ modum ex palmæ fóliis ille sibi contexúerat, secum áuferens, eo vestítu diébus solémnibus Paschæ et Pentecóstes, quoad vixit, usus est.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+PAULUS, eremitárum auctor et magíster, apud inferiórem Thebáidem natus, persecutióne Décii et Valeriáni sæviénte, in erémi spelúncam se cóntulit; ubi, palma ei victum et vestítum præbénte, sanctíssime vixit ad centésimum et décimum tértium annum, quo témpore ab António nonagenário invísitur. Hunc Paulus humaníssime excépit, mox, sanctis sermónibus in multam noctem prodúctis, admónuit de morte, quæ sibi instáret, simúlque hortátus est, ut pállium, quod ab Athanásio accéperat, ad involvéndum suum corpus afférret. Quod dum António præstábat, rédiens ex itínere, vidit Pauli ánimam in cælum ascéndere; corpus vero in cella réperit, similitúdinem orántis reddens. Quod cum mæstíssimus, hymnis de more decantátis, pállio obvolvísset, nec, quo terram fóderet, habéret; duo leónes, ex interióri parte solitúdinis veniéntes, uníus hóminis capácem locum effodérunt.

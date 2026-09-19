@@ -17422,3 +17422,61 @@ sum. Quómodo ergo prophéta veritátis est, si ejúsdem Veritátis sermónibus 
 SED si subtíliter véritas ipsa requirátur, hoc quod inter se contrárium sonat, quómodo contrárium non sit, invenítur. Ad Zacharíam namque de Joánne Ángelus dicit: Ipse præcédet ante illum in spíritu et virtúte Elíæ. Qui idcírco ventúrus in spíritu et virtúte Elíæ dícitur, quia sicut Elías secúndum Dómini advéntum prævéniet, ita Joánnes prævénit primum. Sicut ille præcúrsor ventúrus est Júdicis, ita iste præcúrsor est factus Redemptóris. Joánnes ígitur in spíritu Elías erat, in persóna Elías non erat. Quod ergo Dóminus fatétur de spíritu, hoc Joánnes dénegat de persóna.
 
 ℟. Docébit nos Dóminus vias suas, et ambulábimus in sémitis ejus: \* Quia de Sion exíbit lex, et ver-
+bum Dómini de Jerúsalem. ℣. Veníte, ascendámus ad montem Dómini, et ad domum Dei Jacob. — Quia de Sion exíbit lex, et verbum Dómini de Jerúsalem. Glória Patri. Quia.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Véniet Dóminus, \* et non tardábit, et illuminábit abscóndita tenebrárum, et manifestábit se ad omnes gentes, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 44}
+
+**2** Jerúsalem, gaude \* gáudio magno, quia véniet tibi Salvátor, allelúja.
+
+**3** Dabo in Sion \* salútem, et in Jerúsalem glóriam meam, allelúja.
+
+**4** Montes et omnes colles \* humiliabúntur: et erunt prava in directa, et áspera in vias planas: veni, Dómine, et noli tardáre, allelúja.
+
+**5** Juste et pie \* vivámus, exspectántes beátam spem, et advéntum Dómini.
+
+#### Capitulum
+
+*Philipp. 4, 4-5*
+
+FRATRES: Gaudéte in Dómino semper: íterum dico, gaudéte. Modéstia vestra nota sit ómnibus homínibus: Dóminus enim prope est.
+
+#### Hymnus
+
+EN clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit,
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Super sólium \* David, et super regnum ejus sedébit in ætérnum, allelúja.
+
+#### Oratio
+
+AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et men-

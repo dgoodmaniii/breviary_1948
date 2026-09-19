@@ -30572,3 +30572,17 @@ DEUS, qui nos beáti Eusébii Mártyris tui atque Pontíficis ánnua solemnitát
 #### Lectio iv
 
 EUSÉBIUS, natióne Sardus, Románæ urbis lector, post Vercellénsis epíscopus, ad hanc regéndam ecclésiam mérito est créditus divíno eléctus judício: nam quem numquam ante constitúti electóres cognóverant, posthábitis cívibus, simul ut vidérunt, et probavérunt; tantúmque intérfuit, ut probarétur, quantum ut viderétur. Primus in Occidéntis pártibus in eádem ecclésia eósdem mónachos instítuit esse quos cléricos, ut esset in ipsis viris et contémptus rerum, et accurátio levitárum. Ariánis impietátibus ea tempestáte per Occidéntem longe latéque tradúctis, advérsus eas viríliter sic dimicávit, ut ejus invícta fides Libérium summum Pontíficem ad vitæ solátium erígeret. Quare hic sciens in ipso fervére Spíritum Dei, cum ei significásset ut penes imperatórem una cum suis legátis patrocínium fídei suscíperet, mox cum illis proféctus est ad Constántium; apud quem eníxius agens, quidquid legatióne petebátur, obtínuit, ut episcopórum nempe cœtus celebrarétur.
+
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+#### Lectio v
+
+COLLÉCTUM est Medioláni anno sequénti concílium, ad quod a Constántio invitátum Eusébium concupitúmque, ac vocátum a Libérii legátis, tantum abest, ut malignántium synagóga Ariánórum contra sanctum Athanásium furéntium in suas partes addúceret, ut pótius disérte statim ipse declárans, e præséntibus quosdam sibi compértos hærética labe pollútos, Nicǽnam immo fidem proposúerit iis subscribéndam, ántequam cétera tractaréntur. Quod Ariánis acérbe irátis negántibus, nedum in Athanásium recusávit ipse subscríbere, quin sancti Dionýsii Mártyris, qui decéptus ab ipsis subscrípserat, captivátam simplicitátem ingeniosíssime liberávit. Quam ob rem illi gráviter indignántes, post multas illátas injúrias, exsílio illum mulctárunt: sed sanctus vir, excússo púlvere, nec cǽsaris minas véritus, nec
+enses obstríctos, exsílium véluti sui ministérii offícium accépit; missúsque Scythópolim, famem, sitim, vérbera, divérsaque supplícia perpéssus, pro fide strénue vitam contémpsit, mortem non métuit, corpus carnifícibus trádidit.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+#### Lectio vi
+
+QUANTA in eum tunc Ariánórum crudélitas fúerit ac effrons inverecúndia, osténdunt graves lítteræ plenæ róboris, pietátis ac religiónis, quas e Scythópoli scripsit ad Vercellénsem clerum et pópulum, aliósque finítimos; e quibus étiam est explorátum, ipsórum nec minis, inhumanáque sævítia potuísse umquam eum deterréri, nec serpentína blanda subtilitáte ad eórum societátem perdúci. Hinc in Cappadóciam, postremóque ad superióres Ægýpti Thebáidas pro constántia sua deportátus, exsílii rigóres tulit ad mortem usque Constántii:

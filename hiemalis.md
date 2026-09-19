@@ -11935,3 +11935,57 @@ Ob hoc, Redémptor, quǽsumus,
 Reple tuo nos lúmine,
 Per quod diérum círculis
 Nullis ruámus áctibus.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: ¶ In Feria VI post Cineres, ad Matutinum et ad álias Horas, ómnia dicúntur ut per Annum; excéptis Antiphónis cum Psalmis et Cántico Laudum, e posteriori schémate suméndis, et Antiphónis ad Benedíctus et Magníficat, in Próprio de Témpore exstántibus.}
+
+#### In I Nocturno
+
+**Ant.** Suscitávit Dóminus \* testimónium in Jacob: et legem pósuit in Israël.
+
+### Psalmus 77, i
+
+ATTENDITE, pópule meus, legem meam: \* inclináte aurem vestram in verba oris mei.
+
+Apériam in parábolis os meum: \* loquar propositiónes ab inítio.
+
+Quanta audívimus et cognóvimus ea: \* et patres nostri narravérunt nobis.
+
+Non sunt occultáta a fíliis eórum, \* in generatióne áltera.
+
+Narrántes laudes Dómini, et virtútes ejus, \* et mirabília ejus, quæ fecit.
+
+Et suscitávit testimónium in Jacob: \* et legem pósuit in Israël.
+
+Quanta mandávit pátribus nostris nota fácere ea fíliis suis: \* ut cognóscat generátio áltera.
+
+Fílii qui nascéntur, et exsúrgent, \* et narrábunt fíliis suis,
+
+Ut ponant in Deo spem suam, et non obliviscántur óperum Dei: \* et mandáta ejus exquírant.
+
+Ne fiant sicut patres eórum: \* generátio prava et exásperans.
+
+Generátio, quæ non diréxit cor suum: \* et non est créditus cum Deo spíritus ejus.
+
+**Ant.** Suscitávit Dóminus testimónium in Jacob: et legem pósuit in Israël.
+
+**Ant.** Coram pátribus eórum \* fecit Deus mirabília.
+
+### Psalmus 77, ii
+
+FILII Ephrem intendéntes et mitténtes arcum: \* convérsi sunt in die belli.
+
+Non custodiérunt testaméntum Dei: \* et in lege ejus noluérunt ambuláre.
+
+Et oblíti sunt benefactórum ejus, \* et mirabílium ejus quæ osténdit eis.
+
+Coram pátribus eórum fecit mirabília in terra Ægýpti, \* in campo Táneos.
+
+Interrúpit mare, et perdúxit eos: \* et státuit aquas quasi in utre.
+
+Et dedúxit eos in nube diéi: \* et tota nocte in illuminatióne ignis.

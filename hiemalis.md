@@ -28251,3 +28251,34 @@ INCHOÁTA jejúnia, quǽsumus, Dómine, benígno favóre proséquere: ut observ�
 ℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
 
 **Ad Magnif. Ant.** Tu autem cum oráveris, \* intra in cubículum tuum: et,
+clauso óstio, ora Patrem tuum.
+
+#### Oratio
+
+TUÉRE, Dómine, pópulum tuum, et ab ómnibus peccátis cleménter emúnda: quia nulla ei nocébit advérsitas, si nulla ei dominétur iníquitas. Per Dóminum.
+
+---
+
+## Sabbato post Cineres
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio i
+
+*Cap. 6, 47-56*
+
+IN illo témpore: Cum sero esset, erat navis in médio mari, et Jesus solus in terra. Et réliqua.
+
+{RUBRIC: Homilía sancti Bédæ Venerábilis Presbýteri}
+
+{RUBRIC: Liber 2 cap. 28 in cap. 6 Marci, tom. 4}
+
+LABOR discipulórum in remigándo, et contrárius eis ventus, labóres sanctæ Ecclésiæ vários desígnat: quæ inter undas sǽculi adversántis, et immundórum flatus spirítuum, ad quiétem pátriæ cæléstis, quasi ad fidam líttoris statiónem, perveníre conátur. Ubi bene dícitur, quia navis erat in médio mari, et ipse solus in terra: quia nonnúmquam Ecclésia tantis Géntilium pressúris non solum afflícta, sed et fœdáta est, ut, si fíeri posset, Redémptor ipsíus eam prorsus deseruísse ad tempus vidérétur.
+
+℟. Veni hódie ad fontem aquæ, et orávi Dóminum, dicens: \* Dómine, Deus Abraham, tu prósperum fecísti desidérium meum. ℣. Igitur puélla, cui díxero, Da mihi aquam de hýdria tua, ut bibam: et illa díxerit, Bibe, dómine, et camélis tuis potum tríbuam: ipsa est, quam præparávit Dóminus fílio dómini mei. — Dómine.
+
+#### Lectio ii
+
+UNDE est illa vox ejus inter undas procellásque tentatiónum irruéntium deprehénsæ, atque auxílium protectiónis illíus gemebúndo clamóre quæréntis: Ut quid, Dómine, recessísti longe, déspicis in opportunitátibus, in tribulatióne? Quæ páriter vocem inimíci persequéntis expónit, in sequéntibus Psalmi subjíciens: Dixit enim in corde suo, Oblítus est Deus, avértit fáciem suam, ne vídeat usque in finem.
+
+℟. Factus est sermo Dómini ad Abram, dicens: \* Noli timére, Abram: ego protéctor tuus sum, et merces tua magna nimis. ℣. Ego enim sum Dóminus Deus tuus, qui edúxi

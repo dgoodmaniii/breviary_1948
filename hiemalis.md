@@ -11240,3 +11240,50 @@ Et gloriáti sunt qui odérunt te: \* in médio solemnitátis tuæ.
 Posuérunt signa sua, signa: \* et non cognovérunt sicut in éxitu super summum.
 
 Quasi in silva lignórum secúribus excidérunt já-
+nuas ejus in idípsum: \* in secúri et áscia dejecérunt eam.
+
+Incendérunt igni Sanctuárium tuum: \* in terra polluérunt tabernáculum nóminis tui.
+
+Dixérunt in corde suo cognátio eórum simul: \* Quiéscere faciámus omnes dies festos Dei a terra.
+
+Signa nostra non vídimus, jam non est prophéta: \* et nos non cognóscet ámplius.
+
+### Psalmus 73, ii
+
+USQUEQUO, Deus, improperábit inimícus: \* irrítat adversárius nomen tuum in finem?
+
+Ut quid avértis manum tuam, et déxteram tuam, \* de médio sinu tuo in finem?
+
+Deus autem Rex noster ante sécula: \* operátus est salútem in médio terræ.
+
+Tu confirmásti in virtúte tua mare: \* contribulásti cápita dracónum in aquis.
+
+Tu confregísti cápita dracónis: \* dedísti eum escam pópulis Æthíopum.
+
+Tu dirupísti fontes, et torréntes: \* tu siccásti flúvios Ethan.
+
+Tuus est dies, et tua est nox: \* tu fabricátus es auróram et solem.
+
+Tu fecísti omnes términos terræ: \* æstátem et ver tu plasmásti ea.
+
+### Psalmus 73, iii
+
+MEMOR esto hujus, inimícus improperávit Dómino: \* et pópulus insípiens incitávit nomen tuum.
+
+Ne tradas béstiis ánimas confiténtes tibi, \* et ánimas páuperum tuórum ne oblivíscáris in finem.
+
+Réspice in testaméntum tuum: \* quia repléti sunt, qui obscuráti sunt terræ dómibus iniquitátum.
+
+Ne avertátur húmilis factus confúsus: \* pauper et inops laudábunt nomen tuum.
+
+Exsúrge, Deus, júdica causam tuam: \* memor esto improperiórum tuórum, eórum quæ ab insipiénte sunt tota die.
+
+Ne obliviscáris voces inimicórum tuórum: \* supérbia eórum, qui te odérunt, ascéndit semper.
+
+**Per Annum: Ant.** Memor esto congregatiónis tuæ, Dómine, quam possedísti ab inítio.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria V post Dominicam I:} **Ant.** Ecce Dóminus véniet, et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
+
+{RUBRIC: Fer. V ante Vig. Nat. Dom.:} **Ant.** De Sion véniet, qui regnatúrus est Dóminus,

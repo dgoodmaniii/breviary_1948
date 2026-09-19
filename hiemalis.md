@@ -30073,3 +30073,28 @@ DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculu
 {RUBRIC: Semiduplex} [REF: p. 702]
 
 **Ant.** Beátam me dicent omnes generatiónes, quia fecit mihi magna qui potens est, allelúja.
+
+
+{RUBRIC: Si vero hac die faciéndum non sit Offícium de Octáva, dícitur:}
+
+**Ant.** Hódie egréssa est virga de radíce Jesse: hódie sine ulla peccáti labe concépta est María: hódie contrítum est ab ea caput serpéntis antíqui, allelúja.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+{RUBRIC: Oratio Deus qui per.} [REF: p. 726]
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+{RUBRIC: Ex Bulla dogmática Pii Papæ noni}
+
+QUÓNIAM quæ ad cultum pértinent, íntimo plane vínculo cum ejúsdem objécto consérta sunt, neque rata et fixa manére possunt, si illud anceps sit et in ambíguo versétur, idcírco decessóres nostri Románi Pontífices omni cura Conceptiónis cultum amplificántes, illíus étiam objéctum ac doctrínam declaráre et inculcáre impensíssime studuérunt. Etenim clare apertéque docuére, festum agi de Vírginis Conceptióne, atque uti falsam et ab Ecclésiæ mente alieníssimam proscripsérunt illórum opiniónem qui non Conceptiónem ipsam, sed sanctificatiónem ab Ecclésia coli arbitraréntur et affirmárent.
+
+℟. Ego ex ore Altíssimi pródivi, primogénita ante omnem creatúram: ego feci in cælis, ut orirétur lumen indefíciens: \* Nondum erant abýssi, et ego jam concépta eram. ℣. Deus enim creávit me in justítia, et apprehéndit manum meam, et servávit me. — Nondum.
+
+#### Lectio v
+
+NEQUE mítius cum iis agéndum esse existimárunt, qui ad labefactándam de immaculáta Vírginis Conceptióne doctrínam, excogitáto inter prímum atque álterum Conceptiónis instans et moméntum discrímine, asserébant, celebrári quidem Conceptiónem, sed non pro primo instánti atque moménto. Ipsi namque prædecessóres nostri suárum pártium esse duxérunt, et beatíssimæ Vírginis Conceptiónis festum, et Conceptiónem pro primo instánti tamquam verum cultus objéctum omni stúdio tuéri ac propugnáre. Hinc decretória plane verba, quibus Alexánder séptimus decéssor noster sincéram Ecclésiæ mentem declarávit, ínquiens: Sane

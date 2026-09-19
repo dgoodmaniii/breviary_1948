@@ -30340,3 +30340,44 @@ EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ Lúciæ Vírginis et 
 **Ant.** Ait Dóminus Deus ad serpéntem: Inimicítias ponam inter te et mulíerem, et semen tuum et semen illíus: ipsa cónteret caput tuum, allelúja.
 
 ℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ ser-
+péntis caput virgíneo pede contrívit.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: quǽsumus; ut, qui ex morte ejúsdem Fílii tui prævísa, eam ab omni labe præservásti, nos quoque mundos ejus intercessióne ad te perveníre concédas. (Per eúmdem Dóminum.)
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+{RUBRIC: Ad Horas Antiphóna et Psalmi de Féria; ad Primam Léctio brevis Dómine, Deus, ut infra ad Nonam.}
+
+{RUBRIC: Sicubi autem hoc Festum sub ritu dúplici I vel II classis recolátur, Antiphónæ de Laudibus ut supra} [735] {RUBRIC: , cum Psalmis de Dominica ut in Festis.}
+
+### Ad Tertiam
+
+{RUBRIC: Capitulum Fratres, ut supra.} [736]
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+### Ad Sextam
+
+**Capitulum** *2 Cor. 11, 2*
+
+ÆMULOR enim vos Dei æmulatióne. Despóndi enim vos uni viro vírginem castam exhibére Christo.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+### Ad Nonam
+
+**Capit.** *Eccli. 51, 13-14*
+
+DOMINE, Deus meus, exaltásti super terras habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Oratio Exáudi.} [736]
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ, Capitulum et Hymnus ut in Laudibus} [735] {RUBRIC: , Psalmi ut in Communi Festórum B. Maríæ Virg.}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea

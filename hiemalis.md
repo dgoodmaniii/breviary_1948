@@ -25473,3 +25473,24 @@ PAULUS, Apóstolus Jesu Christi per voluntátem Dei, et Timótheus frater, Eccl�
 #### Lectio ii
 
 SIVE autem tribulámur pro vestra exhortatióne et salúte, sive consolá-
+mur pro vestra consolatióne, sive exhortámur pro vestra exhortatióne et salúte, quæ operátur tolerántiam earúmdem passiónum, quas et nos pátimur: ut spes nostra firma sit pro vobis: sciéntes quod sicut sócii passiónum estis, sic éritis et consolatiónis.
+
+℟. Deus, qui sedes super thronum, et júdicas æquitátem, esto refúgium páuperum in tribulatióne: \* Quia tu solus labórem et dolórem consíderas. ℣. Tibi enim derelíctus est pauper, pupíllo tu eris adjútor. — Quia.
+
+#### Lectio iii
+
+NON enim vólumus ignoráre vos, fratres, de tribulatióne nostra, quæ facta est in Asia, quóniam supra modum graváti sumus supra virtútem, ita ut tædéret nos étiam vívere. Sed ipsi in nobismetípsis respónsum mortis habúimus, ut non simus fidéntes in nobis, sed in Deo, qui súscitat mórtuos: qui de tantis perículis nos erípuit, et éruit: in quem sperámus, quóniam et adhuc erípiet, adjuvántibus et vobis in oratióne pro nobis: ut ex multórum persónis, ejus quæ in nobis est donatiónis, per multos grátiæ agántur pro nobis.
+
+℟. A dextris est mihi Dóminus, ne commóvear: \* Propter hoc dilatátum est cor meum, et exsultávit lingua mea. ℣. Dóminus pars hereditátis meæ, et cálicis mei. — Propter. Glória Patri. Propter.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Præfatio in Epístolas B. Pauli}
+
+#### Lectio iv
+
+BEÁTI Pauli Epistolárum lectiónem dum assídue auscúlto, perque hebdómadas síngulas bis sæpe, et ter et quater, quotiescúmque sanctórum Mártyrum memórias celebrámus, gáudio exsúlto, tuba illa spiritáli pérfruens, et éxcitor, ac desidério incalésco, vocem mihi amícam agnóscens, et fere præséntem ipsum intuéri, et disseréntem audíre vídeor. Sed tamen dóleo et moléste fero, quod virum hunc non omnes, sicut par est, cognóscunt: verum ita illum nonnúlli ignórant, ut ne Epistolárum quidem ejus númerum plane sciant. Hoc vero non imperítia facit: sed quod nolint beáti hujus viri scripta assídue in mánibus habére.
+
+℟. Notas mihi fecísti, Dómine, vias vitæ:

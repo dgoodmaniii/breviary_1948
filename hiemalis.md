@@ -22859,3 +22859,53 @@ Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
+
+℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+**Ad Bened. Ant.** Dum médium siléntium \* tenérent ómnia, et nox in suo cursu médium iter perágeret, omnípotens Sermo tuus, Dómine, a regálibus sédibus venit, allelúja.
+
+#### Oratio
+
+OMNÍPOTENS sempitérne Deus, dírige actus nostros in beneplácito tuo: ut in nómine diléti Fílii tui mereámur bonis opéribus abundáre: Qui tecum.
+
+{RUBRIC: Et fit Commemorátio S. Telésphori Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Telésphorum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et non fit Suffrágium de ómnibus Sanctis.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis: et in ea omittúntur Preces, et ad absolutiónem Capítuli dícitur Lectio brevis Itaque, ut infra ad Nonam.}
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. Verbum caro factum est, \* Allelúja, allelúja. Verbum. ℣. Et habitávit in nobis. Allelúja, allelúja. Glória Patri. Verbum. ℣. Ipse invocábit me, allelúja. ℟. Pater meus es tu, allelúja.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Gal. 4, 4-5*
+
+AT ubi venit plenitúdo témporis, misit Deus Fílium suum factum ex muliére, factum sub lege: ut eos, qui sub lege erant, redímeret: ut adoptiónem filiórum reciperémus.
+
+℟. br. Notum fecit Dóminus, \* Allelúja, allelúja. Notum. ℣. Salutáre suum. Allelúja, allelúja. Glória Patri. Notum. ℣. Vidérunt omnes fines terræ, allelúja. ℟. Salutáre Dei nostri, allelúja.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Gal. 4, 7*
+
+ITAQUE jam non est servus, sed fílius: quod si fílius, et heres per Deum.
+
+℟. br. Vidérunt omnes fines terræ, \* Allelúja, allelúja. Vidérunt. ℣. Salutáre Dei nostri. Allelúja, allelúja. Glória Patri. Vidérunt. ℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+{RUBRIC: Vésperæ de Epiphánia, sine Commemoratióne.}

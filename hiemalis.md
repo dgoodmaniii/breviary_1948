@@ -29992,3 +29992,32 @@ REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Melchíadem Már
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtú-
+tum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Dámasum Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. diéi infra Octávam:}
+
+**Ant.** Hódie egréssa est virga de radíce Jesse: hódie sine ulla peccáti labe concépta est María: hódie contrítum est ab ea caput serpéntis antíqui, allelúja.
+
+℣. Immaculáta Concéptio est hódie sanctæ Maríæ Vírginis. ℟. Quæ serpéntis caput virgíneo pede contrívit.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: quǽsumus; ut, qui ex morte ejúsdem Fílii tui prævísa, eam ab omni labe præservásti, nos quoque mundos ejus intercessióne ad te perveníre concédas. (Per eúmdem Dóminum.)
+
+{RUBRIC: Deinde Commem. Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+DAMASUS Hispánus, vir egrégius et erudítus in Scriptúris, indícto primo Constantinopolitáno concílio, nefáriam Eunómii et Macedónii hǽresim exstínxit. Idem Ariminénsem convéntum, a Libério jam ante rejéctum, íterum condemnávit; in quo, ut scribit sanctus Hierónymus, Valéntis potíssimum et Ursácii fráudibus damnátio Nicǽnæ fídei conclamáta fuit, et ingemíscens orbis terrárum se Ariánum esse mirátus est.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+BASÍLICAS duas ædificávit, álteram sancti Lauréntii nómine ad theátrum Pompéji, quam máximis munéribus auxit, eíque domos et prǽdia attríbuit; álteram via Ardeatína ad Catacúmbas. Platóniam étiam, ubi córpora sanctórum Petri et Pauli aliquámdiu jacuérunt, dedicávit et exornávit elegántibus vérsibus. Idém-

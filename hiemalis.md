@@ -5576,3 +5576,68 @@ Consumétur nequítia peccatórum, et díriges justum, \* scrutans corda et rene
 JUSTUM adjutórium meum a Dómino, \* qui salvos facit rectos corde.
 
 Deus judex justus, fortis, et pátiens: \* num-
+quid iráscitur per síngulos dies?
+
+Nisi convérsi fuéritis, gládium suum vibrábit: \* arcum suum teténdit, et parávit illum.
+
+Et in eo parávit vasa mortis: \* sagíttas suas ardéntibus effécit.
+
+Ecce, partúriit injustítiam: \* concépit dolórem, et péperit iniquitátem.
+
+Lacum apéruit, et effódit eum: \* et íncidit in fóveam quam fecit.
+
+Convertétur dolor ejus in caput ejus: \* et in vérticem ipsíus iníquitas ejus descéndet.
+
+Confitébor Dómino secúndum justítiam ejus: \* et psallam nómini Dómini altíssimi.
+
+**Ant.** Salvum me fac, Dómine, propter misericórdiam tuam.
+
+#### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata,
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus. ℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+**Ant.** Salva nos.
+
+#### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace.
+
+#### Preces
+
+*(si dicendæ sint)*
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indú-

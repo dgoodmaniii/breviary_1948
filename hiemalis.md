@@ -26193,3 +26193,20 @@ SERVI, obedíte per ómnia dóminis carnálibus, non ad óculum serviéntes, qua
 *Cap. 1, 1-10*
 
 PAULUS, et Silvánus, et Timótheus Ecclésiæ Thessalonicénsium in Deo Patre, et Dómino Jesu Christo. Grátia vobis et pax. Grátias ágimus Deo semper pro ómnibus vobis, memóriam vestri faciéntes in oratiónibus nostris sine intermissióne, mémores óperis fídei ve-
+stræ, et labóris, et caritátis, et sustinéntiæ spei Dómini nostri Jesu Christi, ante Deum et Patrem nostrum: sciéntes, fratres, dilécti a Deo, electiónem vestram: quia Evangélium nostrum non fuit ad vos in sermóne tantum, sed et in virtúte, et in Spíritu Sancto, et in plenitúdine multa, sicut scitis quales fuérimus in vobis propter vos.
+
+℟. Deus, in te sperávi, Dómine, non confúndar in ætérnum: in justítia tua líbera me, \* Et éripe me. ℣. Inclína ad me aurem tuam, et salva me. — Et éripe.
+
+#### Lectio ii
+
+ET vos imitatóres nostri facti estis, et Dómini, excipiéntes verbum in tribulatióne multa, cum gáudio Spíritus Sancti: ita ut facti sitis forma ómnibus credéntibus in Macedónia, et in Achája. A vobis enim diffamátus est sermo Dómini, non solum in Macedónia, et in Achája, sed et in omni loco fides vestra, quæ est ad Deum, proféctá est, ita ut non sit nobis necésse quidquam loqui. Ipsi enim de nobis annúntiant, qualem intróitum habuérimus ad vos: et quómodo convérsi estis ad Deum a simulácris, servíre Deo vivo et vero, et exspectáre Fílium ejus de cælis (quem suscitávit ex mórtuis) Jesum, qui erípuit nos ab ira ventúra.
+
+℟. Repleátur os meum laude tua, ut hymnum dicam glóriæ tuæ, tota die magnitúdinem tuam: noli me projícere in témpore senectútis: \* Dum defécerit in me virtus mea, ne derelínquas me. ℣. Gaudébunt lábia mea, cum cantávero tibi. — Dum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dum.}
+
+#### Lectio iii
+
+*Cap. 2, 1-6*
+
+NAM ipsi scitis, fratres, intróitum nostrum ad vos, quia non inánis fuit: sed ante passi, et contuméliis afflícti (sicut scitis) in Philíppis, fidúciam habúimus in Deo nostro loqui ad vos Evangélium Dei in multa sollicitúdine. Exhortátio enim nostra non de erróre, neque de immundítia, neque in dolo, sed sicut probáti sumus a Deo, ut crederétur nobis Evangélium: ita lóquimur, non quasi homínibus placéntes, sed Deo, qui probat corda nostra. Neque enim aliquándo fúimus in sermóne adulatiónis, sicut scitis: neque in occasióne avarítiæ: Deus testis est: nec quæréntes ab homínibus glóriam, neque a vobis, neque ab áliis.

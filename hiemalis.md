@@ -26017,3 +26017,27 @@ DEUS, qui nos in tantis perículis constitútos, pro humána scis fragilitáte n
 *Cap. 1, 1-18*
 
 PAULUS, et Timótheus servi Jesu Christi, ómnibus sanctis in Christo Jesu, qui sunt Philíppis, cum epíscopis et diacónibus. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo. Grátias ago Deo meo in omni memória vestri, semper in cunctis oratiónibus meis pro ómnibus vobis cum gáudio deprecatiónem fáciens, super communicatióne vestra in Evangélio Christi a prima die usque nunc. Confídens hoc ipsum, quia qui cœpit in vobis opus bonum, perfíciet usque in diem Christi Jesu. Sicut est mihi justum hoc sentíre pro ómnibus vobis: eo quod hábeam vos in corde, et in vínculis meis, et in defensióne, et confirmatióne Evangélii, sócios gáudii mei omnes vos esse.
+
+℟. Dómine, ne in ira tua árguas me, neque in furóre tuo corrípias me: \* Miserére mei, Dómine, quóniam infírmus sum. ℣. Timor et tremor venérunt super me, et contexérunt me ténebræ. — Miserére.
+
+#### Lectio ii
+
+TESTIS enim mihi est Deus, quómodo cúpiam omnes vos in viscéribus Jesu Christi. Et hoc oro ut cáritas vestra magis ac magis abúndet in sciéntia, et in omni sensu: ut probétis potióra, ut sitis sincéri, et sine offénsa in diem Christi, repléti fructu justítiæ per Jesum Christum, in glóriam et laudem Dei. Scire autem vos volo, fratres, quia quæ circa me sunt, magis ad proféctum venérunt Evangélii: ita ut víncula mea manifésta fíerent in Christo in omni prætório, et in céteris ómnibus, et plures e frátribus in Dómino confidéntes vínculis meis, abundántius audérent sine timóre verbum Dei loqui.
+
+℟. Deus, qui sedes super thronum, et júdicas æquitátem, esto refúgium páuperum in tribulatióne: \* Quia tu solus labórem et dolórem consíderas. ℣. Tibi enim derelíctus est pauper, pupíllo tu eris adjútor. — Quia.
+
+#### Lectio iii
+
+QUIDAM quidem et propter invídiam et contentiónem: quidam autem et propter bonam voluntátem Christum prǽdicant: quidam ex caritáte, sciéntes quóniam in defensiónem Evangélii pósitus sum. Quidam autem ex contentióne Christum annúntiant non sincére, existimántes pressúram se suscitáre vínculis meis. Quid enim? Dum omni modo, sive per occasiónem, sive per veritátem, Christus annuntiétur: et in hoc gáudeo, sed et gaudébo.
+
+℟. A dextris est mihi Dóminus, ne commóvear: \* Propter hoc dilatátum est cor meum, et exsultávit lingua mea. ℣. Dóminus pars hereditátis meæ, et cálicis mei. — Propter. Glória Patri. Propter.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Morálium sancti Gregórii Papæ}
+
+#### Lectio iv
+
+*Lib. 4, cap. 30*
+
+REPLÉMUS refectiónibus corpus, ne extenuátum defíciat; extenuámus abstinéntia, ne nos replétum premat: vegetámus hoc mótibus, ne situ immobilitátis intéreat; sed cítius hoc col-

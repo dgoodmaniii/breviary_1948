@@ -15582,3 +15582,70 @@ SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea t
 {RUBRIC: Sabbato post Cineres et in Vigíliis commúnibus Preces feriáles, ut supra.}
 
 {RUBRIC: Reliqua ut in Ordinario. 22}
+
+---
+
+### Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum. Amen.
+
+{RUBRIC: Per Annum:} **Ant.** Dómine, Deus meus.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Sabbato post Dominicam I:} **Ant.** Ecce Dóminus véniet.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:} **Ant.** Ego Dóminus.
+
+#### Psalmus 103, i
+
+BENEDIC, ánima mea, Dómino: \* Dómine, Deus meus, magnificátus es vehementer.
+
+Confessiónem, et decórem induísti: \* amíctus lúmine sicut vestiménto:
+
+Exténdens cælum sicut pellem: \* qui tegis aquis superióra ejus.
+
+Qui ponis nubem ascénsum tuum: \* qui ámbulas super pennas ventórum.
+
+Qui facis ángelos tuos, spíritus: \* et minístros tuos ignem uréntem.
+
+Qui fundásti terram super stabilitátem suam: \* non inclinábitur in séculum séculi.
+
+Abýssus, sicut vestiméntum, amíctus ejus: \* super montes stabunt aquæ.
+
+Ab increpatióne tua fúgient: \* a voce tonítrui tui formidábunt.
+
+Ascéndunt montes: et descéndunt campi \* in locum, quem fundásti eis.
+
+Términum posuísti, quem non transgrediéntur: \* neque converténtur operíre terram.
+
+Qui emíttis fontes in convállibus: \* inter médium móntium pertransíbunt aquæ.
+
+Potábunt omnes béstiæ agri: \* exspectábunt ónagri in siti sua.
+
+Super ea volúcres cæli habitábunt: \* de médio petrárum dabunt voces.
+
+#### Psalmus 103, ii
+
+RIGANS montes de superióribus suis: \* de fructu óperum tuórum satiábitur terra:
+
+Prodúcens fœnum juméntis, \* et herbam servitúti hóminum:

@@ -18425,3 +18425,25 @@ ET nunc, Dómine, pater noster es tu, nos vero lutum: et fictor noster tu, et ó
 AUDÍTE verbum Dómini, qui trémitis ad verbum ejus: dixérunt fratres vestri odiéntes vos, et abjiciéntes propter nomen meum: glorificétur Dóminus, et vidébimus in lætítia vestra: ipsi autem confundéntur. Vox pópuli de civitáte, vox de templo, vox Dómini reddéntis retributiónem inimícis suis. Antequam parturíret, péperit: antequam veníret partus ejus, péperit másculum. Quis audívit umquam tale? et quis vidit huic símile? Numquid partúriet terra in die una? aut pariétur gens simul, quia parturívit et péperit Sion fílios suos?
 
 ℟. Nascétur nobis párvulus, et vocábitur Deus, Fortis: \* Ipse sedébit super thronum David patris sui, et imperábit: cujus potéstas super húmerum ejus. ℣. In ipso benedicéntur omnes tribus terræ, omnes gentes sérvient ei. — Ipse.
+
+#### Lectio ii
+
+NUMQUID ego, qui álios párere fácio, ipse non páriam, dicit Dóminus? si ego, qui generatiónem céteris tríbuo, stérilis ero, ait Dóminus Deus tuus? Lætámini cum Jerúsalem, et exsultáte in ea, omnes qui dilígitis eam: gaudéte cum ea gáudio, univérsi qui lugétis super eam, ut sugátis, et repleámini ab úbere consolatiónis ejus: ut mulgeátis, et delíciis affluátis ab omnímoda glória ejus. Quia hæc dicit Dóminus: Ecce ego declinábo super eam quasi flúvium pacis, et quasi torréntem inundántem glóriam Géntium, quam sugétis: ad úbera portabímini, et super génua blandiéntur vobis.
+
+℟. Ecce jam venit plenitúdo témporis, in quo misit Deus Fílium suum in terras, natum de Vírgine, factum sub lege: \* Ut eos, qui sub lege erant, redímeret. ℣. Propter nímiam caritátem suam, qua diléxit nos Deus, Fílium suum misit in similitúdinem carnis peccáti. — Ut.
+
+#### Lectio iii
+
+QUÓMODO si cui mater blandiátur, ita ego consolábor vos, et in Jerúsalem consolabímini. Vidébitis, et gaudébit cor
+
+vestrum, et ossa vestra quasi herba germinábunt, et cognoscétur manus Dómini servis ejus, et indignábitur inimícis suis. Quia ecce Dóminus in igne véniet, et quasi turbo quadrígæ ejus: réddere in indignatióne furórem suum, et increpatiónem suam in flamma ignis: quia in igne Dóminus dijudicábit, et in gládio suo ad omnem carnem, et multiplicabúntur interfécti a Dómino.
+
+℟. Virgo Israël, revértere ad civitátes tuas: \* Usquequo dolens avertéris? generábis Dóminum Salvatórem, oblatiónem novam in terra: \* Ambulábunt hómines in salvatiónem. ℣. In caritáte perpétua diléxi te: ídeo attráxi te míserans tui. — Usquequo. Glória Patri. Ambulábunt.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Ecce compléta sunt \* ómnia, quæ dicta sunt per Ángelum de Vírgine María.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpé-

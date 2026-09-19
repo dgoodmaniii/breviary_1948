@@ -32002,4 +32002,22 @@ ANNUM círciter quintum supra quadragésimum agens, in órdine fratrum Prædicat
 
 AB eódem Gregório Romam accersítus, et capelláni ac pœnitentiárii et confessárii sui múnere decorátus, ejúsdem jussu Romanórum Pontíficum decréta, in divérsis concíliis et epístolis sparsa, in unum Decretálium volúmen redégit. Archiepiscopátum Tarraconénsem ab ipso Pontífice sibi oblátum constantíssime recusávit, et totíus órdinis Prædicatórum generále magistérium, quod per biénnium sanctíssime administráverat, sponte dimísit. Jacóbo Aragóniæ regi sacræ Inquisitiónis offícii suis in regnis instituéndi auctor fuit. Multa patrávit mirácula, inter quæ illud claríssimum, quod ex ínsula Baleári Majóri Barcinónem reversúrus, strato super aquas pállio centum sexagínta milliária sex horis confécerit et suum cœnóbium jánuis clausis fúerit ingréssus. Tandem prope centenárius, virtútibus et méritis cumulátus, obdormívit in Dómino, anno salútis millésimo ducentésimo septuagésimo quinto. Quem Clemens octávus in Sanctórum númerum rétulit.
 
-℟. Iste homo perfécit ómnia quæ locútus est ei
+℟. Iste homo perfécit ómnia quæ locútus est eiDeus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+RAYMÚNDUS Barcinonénsis, ex nóbili família de Péñafort, Bonóniæ pietátis offíciis ac pontifício civilíque juri sédulo incúmbens ac doctóris láurea insignítus, ibídem sacros cánones magna cum laude est interpretátus. Mox Barcinonénsis ecclésiæ canonicátu et præpositúra ab antístite Berengário ornátus, virtúte, doctrína et morum suavitáte præfúlsit, ac Deíparæ Vírginis cultum pro víribus auxit. Annum agens quadragésimum quintum inter fratres Prædicatóres adscítus, auctor fuit, ut sanctus Petrus Noláscus, cujus ipse confessiónes audiébat, una cum Jacóbo primo Aragóniæ rege, órdinem beátæ Maríæ de mercéde redemptiónis captivórum fundáverit, cui ipse Raymúndus probatíssimas vivéndi leges præscrípsit. Jussu Gregórii noni Romæ summórum Pontíficum decréta in unum Decretálium volúmen redégit. Tarraconénsi archiepiscopátu constantíssime recusáto, et magistério generáli órdinis Prædicatórum, quod per biénnium sanctíssime administráverat, dimísso, prope centenárius obdormívit in Dómino, anno salútis millésimo ducentésimo septuagésimo quinto. Quem Clemens octávus in Sanctórum númerum rétulit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Sint lumbi, {RUBRIC: de Communi Conf. non Pont. 1 loco.} [98]
+
+{RUBRIC: Pro S. Emerentiana Virg. et Mart.}
+
+#### Lectio ix
+
+EMERENTIÁNA virgo Romána, collactánea beátæ Agnétis, adhuc catechúmena, fide et caritáte flagrans, furéntes in Christiános idolórum cultóres cum veheméntius accusáret, a concitáta multitúdine lapídibus óbruta est. Quæ in cruciátibus orans ad sepúlcrum sanctæ Agnétis, próprio sánguine, quem pro Christo constánter effúdit, baptizáta, ánimam Deo réddidit.
+
+{RUBRIC: Te Deum laudámus.}

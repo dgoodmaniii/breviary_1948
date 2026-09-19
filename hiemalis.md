@@ -28572,3 +28572,42 @@ TUM Ægéas irátus, Désine, inquit, Christum jactáre, cui similía verba nihi
 #### Lectio vi
 
 IGITUR paulo post in tribúnal prodúctum, cum Ægéas crucis extolléntem mystéria sibíque suam impietátem exprobrántem diútius ferre non posset, in crucem tolli, et Christi mortem imitári jussit. Addúctus Andréas ad locum martýrii, cum crucem vidísset, longe exclamáre cœpit: O bona crux, quæ decórem ex membris Dómini suscepísti, diu desideráta, sollícite amáta, sine intermissióne quæsíta, et aliquándo cupiénti ánimo præparáta: áccipe me ab homínibus, et redde me magístro meo; ut per te me recípiat, qui per te me redémit. Itaque cruci affíxus est: in qua bíduum vivus pendens, et Christi fidem prædicáre numquam intermíttens, ad eum migrávit, cujus mortis similitúdinem concupíerat. Quæ ómnia presbýteri et diáco-
+ni Achájæ, qui ejus passiónem scripsérunt, se ita ut commemoráta sunt, audísse et vidísse testántur. Ejus ossa primum Constantíno imperatóre Constantinópolim, deínde Amálphim transláta sunt. Caput, Pio secúndo Pontífice, Romam allátum, in basílica sancti Petri collocátum est.
+
+℟. Expándi manus meas tota die in cruce ad pópulum non credéntem, sed contradicéntem mihi: \* Qui ámbulant vias non bonas, sed post peccáta sua. ℣. Deus ultiónum Dóminus, Deus ultiónum líbere egit: exaltáre, qui júdicas terram, redde retributiónem supérbis. — Qui. Glória Patri. Qui.
+
+### In III Nocturno
+
+**Ant.** Non me permíttas, Dómine, \* fámulum tuum a te separári: tempus est ut commendétur terræ corpus meum, et me ad te veníre júbeas.
+
+###### Psalmus 74
+
+CONFITÉBIMUR tibi, Deus: \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua: \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea: \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis: Nolíte iníque ágere: \* et delinquéntibus: Nolíte exaltáre cornu:
+
+Nolíte extóllere in altum cornu vestrum: \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus: \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat: \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc: verúmtamen fæx ejus non est exinaníta: \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sǽculum: \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.
+
+**Ant.** Non me permíttas, Dómine, fámulum tuum a te separári: tempus est ut commendétur terræ corpus meum, et me ad te veníre júbeas.
+
+**Ant.** Andréas vero rogábat pópulum, \* ut non impedíret passiónem ipsíus.
+
+###### Psalmus 96
+
+DÓMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et

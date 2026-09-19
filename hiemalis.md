@@ -25703,3 +25703,26 @@ LIBÉNTER ígitur gloriábor in infirmitátibus meis, ut inhábitet in me virtus
 *Cap. 13, 1-13*
 
 ECCE tértio hoc vénio ad vos: In ore duórum vel trium téstium stabit omne verbum. Prædíxi, et prædíco, ut præsens, et nunc absens iis, qui ante peccavérunt, et céteris ómnibus, quóniam si vénero íterum, non parcam. An experiméntum quǽritis ejus, qui in me lóquitur Christus, qui in vobis non infirmátur, sed potens est in vobis? Nam etsi crucifíxus est ex infirmitáte: sed vivit ex virtúte Dei. Nam et nos infírmi sumus
+in illo: sed vivémus cum eo ex virtúte Dei in vobis.
+
+℟. Misericórdiam et judícium cantábo tibi, Dómine: \* Psallam et intélligam in via immaculáta, quando vénies ad me. ℣. Perambulábam in innocéntia cordis mei, in médio domus meæ. — Psallam.
+
+#### Lectio ii
+
+VOSMETÍPSOS tentáte si estis in fide: ipsi vos probáte. An non cognóscitis vosmetípsos, quia Christus Jesus in vobis est? nisi forte réprobi estis. Spero autem quod cognoscétis, quia nos non sumus réprobi. Orámus autem Deum ut nihil mali faciátis, non ut nos probáti appareámus, sed ut vos quod bonum est faciátis: nos autem ut réprobi simus. Non enim póssumus áliquid advérsus veritátem, sed pro veritáte. Gaudémus enim, quóniam nos infírmi sumus, vos autem poténtes estis. Hoc et orámus vestram consummatiónem.
+
+℟. Dómine, exáudi oratiónem meam, et clamor meus ad te pervéniat: \* Quia non spernis, Deus, preces páuperum. ℣. Fiant aures tuæ intendéntes in oratiónem servi tui. — Quia.
+
+{RUBRIC: In Octávis simplícibus et in Officio sanctæ Maríæ in Sábbato: Glória Patri. Quia.}
+
+#### Lectio iii
+
+DEO hæc absens scribo, ut non præsens dúrius agam secúndum potestátem, quam Dóminus dedit mihi in ædificatiónem, et non in destructiónem. De cétero, fratres, gaudéte, perfécti estóte, exhortámini, idem sápite, pacem habéte, et Deus pacis et dilectiónis erit vobíscum. Salutáte ínvicem in ósculo sancto. Salútant vos omnes sancti. Grátia Dómini nostri Jesu Christi, et cáritas Dei, et communicátio Sancti Spíritus sit cum ómnibus vobis. Amen.
+
+℟. Velóciter exáudi me, Deus, \* Quia defecérunt sicut fumus dies mei: \* Tu autem idem ipse es, et anni tui non defícient. ℣. Dies mei sicut umbra declinavérunt, et ego sicut fœnum árui. — Quia. Glória Patri. Tu.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Suscépit Deus \* Israël, púerum

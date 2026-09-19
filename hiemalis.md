@@ -27614,3 +27614,27 @@ IN artículo diéi illíus ingréssus est Noë, et Sem, et Cham, et Japheth, fí
 ℟. Quadragínta dies et noctes apérti sunt cæli, et ex omni carne habénte spíritum vitæ ingréssa sunt in arcam: \* Et clausit a foris óstium Dóminus. ℣. In artículo diéi illíus ingréssus est Noë in arcam et fílii ejus, et uxor illíus et uxóres filiórum ejus. — Et. Glória Patri. Et.
 
 **Ad Magnif. Ant.** Si culmen \* veri honóris quǽritis, ad illam cæléstem pátriam quantócius properáte.
+
+### Feria Tertia
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 8, 1-13*
+
+RECORDÁTUS autem Deus Noë, cunctorúmque animántium, et ómnium jumentórum, quæ erant cum eo in arca, addúxit spíritum super terram, et imminútæ sunt aquæ. Et clausi sunt fontes abýssi, et cataráctæ cæli: et prohíbitæ sunt plúviæ de cælo. Reversǽque sunt aquæ de terra eúntes et redeúntes: et cœpérunt mínui post centum quinquagínta dies. Requievítque arca mense séptimo, vigésimo séptimo die mensis super montes Arméniæ.
+
+℟. Ædificávit Noë altáre Dómino, ófferens super illud holocáustum: odoratúsque est Dóminus odórem suavitátis, et benedíxit ei, dicens: \* Créscite, et multiplicámini, et repléte terram. ℣. Ecce ego státuam pactum meum vobíscum, et cum sémine vestro post vos. — Créscite.
+
+#### Lectio ii
+
+AT vero aquæ ibant, et decrescébant usque ad décimum mensem: décimo enim mense, prima die mensis, apparuérunt cacúmina móntium. Cumque transíssent quadragínta dies, apériens Noë fenéstram arcæ, quam fécerat, dimísit corvum: qui egrediebátur, et non revertebátur, donec siccaréntur aquæ super terram. Emísit quoque colúmbam post eum, ut vidéret si jam cessássent aquæ super fáciem terræ. Quæ cum non invenísset ubi requiésceret pes ejus, revérsa est ad eum in arcam.
+
+℟. Ponam arcum meum in núbibus cæli, dixit Dóminus ad Noë: \* Et recordábor fœderis mei, quod pépigi tecum. ℣. Cumque obdúxero núbibus cælum, apparébit arcus meus in núbibus. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+EXSPECTÁTIS autem ultra septem diébus áliis, rursum dimísit colúmbam ex arca. At illa venit ad eum ad vésperam, portans ramum olívæ viréntibus fóliis in ore suo. Intelléxit ergo Noë, quod cessássent aquæ super terram. Exspectavítque nihilóminus septem álios dies: et emísit colúmbam, quæ non est revérsa ultra ad eum. Igitur sexcentésimo primo anno, primo mense, prima die mensis imminútæ sunt aquæ super terram.

@@ -31818,4 +31818,46 @@ Amen.
 
 ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
 
-**Ad Bened. Ant.** Ecce quod concupívi, \* jam vídeo: quod sperávi, jam téneo: ipsi sum juncta in cælis, quem in terris pósita, tota devotióne diléxi.
+**Ad Bened. Ant.** Ecce quod concupívi, \* jam vídeo: quod sperávi, jam téneo: ipsi sum juncta in cælis, quem in terris pósita, tota devotióne diléxi.#### Oratio
+
+OMNÍPOTENS sempitérne Deus, qui infírma mundi éligis, ut fórtia quæque confúndas: concéde propítius; ut, qui beátæ Agnétis Vírginis et Mártyris tuæ solémnia cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Ad Horas Antiphona et Psalmi de Feria; ad Primam Lectio brevis Laudábit, ut infra ad Nonam.}
+
+{RUBRIC: Sicúbi autem hoc Festum sub ritu Duplíci I vel II classis recolátur, Antiphónæ de Laudibus ut supra 788, cum Psalmis de Dominica ut in Festis.}
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut supra ad Laudes. 788}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+### Ad Sextam
+
+{RUBRIC: Capitulum} *Eccli. 51, 4-5*
+
+LIBERÁSTI me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de multis tribulatiónibus quæ circumdedérunt me.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Oratio Omnípotens, ut supra.}
+
+### Ad Nonam
+
+{RUBRIC: P}
+
+{RUBRIC: Capit.} *Eccli. 51, 8 et 12*
+
+LAUDÁBIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ, Capitulum et Hymnus de Laudibus. 788}
+
+{RUBRIC: Psalmi de Dominica 70, sed loco últimi Ps. 147 Lauda, Jerúsalem} 247; {RUBRIC: (vel omnes Psalmi de Communi Dedicatiónis Ecclésiæ.)} [140]
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Stans beáta Agnes \* in médio flammæ, expánsis mánibus orábat ad Dóminum: Omnípotens, adoránde,

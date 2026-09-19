@@ -14120,3 +14120,60 @@ Luxu remóto péssimo.
 
 Quicúmque ut horas nóctium
 Nunc concinéndo rúmpimus,
+Ditémur omnes áffatim
+Donis beátæ pátriæ.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum. Amen.
+
+{RUBRIC: ¶ In Sabbato post Cineres, ad Matutinum et ad alias Horas, ómnia dicúntur ut per Annum; excéptis Antiphónis cum Psalmis et Cántico Laudum, e posterióri schémate suméndis, et Antiphónis ad Benedíctus et Magníficat, in Próprio de Témpore exstántibus.}
+
+#### In I Nocturno
+
+**Ant.** Memor fuit in séculum \* testaménti sui Dóminus, Deus noster.
+
+#### Psalmus 104, i
+
+CONFITÉMINI Dómino, et invocáte nomen ejus: \* annuntiáte inter gentes ópera ejus.
+
+Cantáte ei, et psállite ei: \* narráte ómnia mirabília ejus.
+
+Laudámini in nómine sancto ejus: \* lætétur cor quæréntium Dóminum.
+
+Quǽrite Dóminum, et confirmámini: \* quǽrite fáciem ejus semper.
+
+Mementóte mirabílium ejus, quæ fecit: \* prodígia ejus, et judícia oris ejus.
+
+Semen Abraham, servi ejus: \* fílii Jacob, elécti ejus.
+
+Ipse Dóminus Deus noster: \* in univérsa terra judícia ejus.
+
+Memor fuit in séculum testaménti sui: \* verbi, quod mandávit in mille generatiónes:
+
+Quod dispósuit ad Abraham: \* et juraménti sui ad Isaac:
+
+Et státuit illud Jacob in præcéptum: \* et Israël in testaméntum ætérnum:
+
+Dicens: Tibi dabo terram Chánaan, \* funículum hereditátis vestræ.
+
+Cum essent número brevi, \* paucíssimi et íncolæ ejus:
+
+Et pertransiérunt de gente in gentem, \* et de regno ad pópulum álterum.
+
+Non relíquit hóminem nocére eis: \* et corrípuit pro eis reges.
+
+Nolíte tángere christos meos: \* et in prophétis meis nolíte malignári.
+
+**Ant.** Memor fuit in séculum testaménti sui Dóminus, Deus noster.
+
+**Ant.** Auxit Dóminus \* pópulum suum: et firmávit eum super inimícos ejus.
+
+#### Psalmus 104, ii
+
+ET vocávit famem super terram: \* et omne firmaméntum panis contrívit.
+
+Misit ante eos virum: \* in servum venúmdatus est Joseph.
+
+Humiliavérunt in compédibus pedes ejus, ferrum

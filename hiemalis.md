@@ -24821,3 +24821,26 @@ VIDIMUS enim stellam ejus in Oriénte. Ad confusiónem Judæórum, ut nativitát
 #### Lectio viii
 
 AT illi dixérunt ei: In Béthlehem Judǽæ. Librariórum hic error est. Putámus enim ab Evangelísta primum éditum, sicut in ipso Hebráico légimus, Judæ, non Judǽæ. Quæ est enim aliárum géntium Béthlehem, ut ad distinctiónem ejus, hic Judǽæ
+ponerétur? Judæ autem idcírco scríbitur, quia est et ália Béthlehem in Galilǽa. Lege librum Jesu fílii Nave. Dénique et in ipso testimónio, quod de Michǽæ prophetía sumptum est, ita habétur: Et tu Béthlehem terra Juda.
+
+℟. Vidéntes stellam Magi, gavísi sunt gáudio magno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra ubi erat puer. — Et intrántes. Glória Patri. Et, apértis.
+
+#### Lectio ix
+
+ET apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. Pulchérrime múnerum sacraménta Juvéncus Présbyter uno versículo comprehéndit: Thus, aurum, myrrham, Regíque, hominíque, Deóque dona ferunt. Et respónso accépto in somnis, ne redírent ad Heródem, per áliam viam revérsi sunt in regiónem suam. Qui múnera obtúlerant Dómino, consequénter respónsum accípiunt, non per Angelum, sed per ipsum Dóminum: ut meritórum Joseph privilégium demonstrarétur. Revertúntur autem per áliam viam: quia infidelitáti miscéndi non erant Judæórum.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Omnes natiónes \* vénient a longe, portántes múnera sua, allelúja.
+
+**Ad Magnif. Ant.** Omnes de Saba \* vénient, aurum et thus deferéntes, allelúja, allelúja.
+
+{RUBRIC: Et fit Commemoratio S. Hygíni Papæ et Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Hygínum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.

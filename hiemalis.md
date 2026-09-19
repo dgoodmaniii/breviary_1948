@@ -29924,3 +29924,22 @@ IPSÍSSIMA verba, quibus divínæ Scriptúræ de increáta Sapiéntia loquúntur
 #### Lectio v
 
 ITAQUE éadem Romána Ecclésia nihil pótius hábuit, quam eloquentíssimis quibúsque modis immaculátam Vírginis Conceptiónem, ejúsque cultum et doctrínam assérere, tuéri, promovére et vindicáre. Enim vero prædecessóres nostri veheménter gloriáti sunt, apostólica sua auctoritáte festum Conceptiónis in Romána Ecclésia institúere, ac próprio Offício, propriáque Missa, quibus prærogatíva immunitátis ab hereditária labe manifestíssime asserebátur, au-
+gére, honestáre et cultum jam institútum omni ope promovére, amplificáre, sive erogátis indulgéntiis, sive facultáte tribúta civitátibus, províncis regnísque, ut Deíparam sub título immaculátæ Conceptiónis patrónam sibi delígerent, sive comprobátis sodalitátibus, congregatiónibus, religiosísque famíliis ad immaculátæ Conceptiónis honórem institútis, sive láudibus eórum pietáti delátis, qui monastéria, xenodochía, altária, templa sub immaculáti Concéptus título eréxerint, aut sacraménti religióne interpósita immaculátam Deíparæ Conceptiónem strénue propugnáre spopónderint.
+
+℟. Nihil inquinátum in eam incúrrit: \* Candor est lucis ætérnæ et spéculum sine mácula. ℣. Est enim hæc speciósior sole, et luci comparáta invenítur púrior. — Candor.
+
+#### Lectio vi
+
+INSUPER summópere lætáti sunt decérnere Conceptiónis festum ab omni Ecclésia esse habéndum eódem censu ac número quo festum Nativitátis, idémque Conceptiónis festum cum octáva ab univérsa Ecclésia celebrándum et ab ómnibus, inter ea quæ præcépta sunt, sancte coléndum, ac pontifíciam capéllam in patriarcháli nostra Liberiána basílica die Vírginis Conceptiónis sacro quotánnis esse peragéndam. Atque exoptántes in fidélium ánimis quotídie magis fovére hanc de immaculáta Deíparæ Conceptióne doctrínam, eorúmque pietátem excitáre ad ipsam Vírginem sine labe originali concéptam coléndam et venerándam, gavísi sunt quam libentíssime facultátem tribúere, ut in Lauretánis litaníis, et in ipsa Missæ Præfatióne immaculátus ejúsdem Vírginis proclamarétur Concéptus, atque ádeo lex credéndi ipsa supplicándi lege statuerétur.
+
+℟. Signum magnum appáruit in cælo: Múlier amícta sole, et luna sub pédibus ejus, \* Et in cápite ejus coróna stellárum duódecim. ℣. Induit eam Dóminus vestiméntis salútis, induménto justítiæ, et quasi sponsam ornávit eam monílibus suis. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 1, 26-28*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ,

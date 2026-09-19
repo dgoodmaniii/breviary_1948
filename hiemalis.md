@@ -31122,4 +31122,26 @@ JAM pópulos, qui ex circumcisióne credíderant, erudíeras: jam Antiochénam e
 
 {RUBRIC: Sermo 1 de Ss. App. Petro et Paulo, ante médium}
 
-CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, Princeps apostólici órdinis, ad arcem Románi de-
+CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, Princeps apostólici órdinis, ad arcem Románi de-corpus effúnderet. Ad hanc ergo urbem tu, beatíssime Petre Apóstole, veníre non métuis. Jam pópulos, qui ex circumcisióne credíderant, erudíeras: jam Antiochénam ecclésiam, ubi primum christiáni nóminis dígnitas est orta, fundáveras: jam Pontum, Galátiam, Cappadóciam, Asíam atque Bithýniam légibus evangélicæ prædicatiónis impléveras; nec aut dúbius de provéctu óperis, aut de spátio tuæ ignárus ætátis, trophǽum crucis Christi Románis árcibus inferébas, quo te divínis præordinatiónibus anteíbant, et honor potestátis, et glória passiónis.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+
+{RUBRIC: Comment. in Matth. can. 16 post initium}
+
+DOMINUS a discípulis requírit quem se hómines esse dícerent; et adjécit, hóminis fílium. Hæc enim confessiónis tenénda rátio est, ut sicut Dei Fílium, ita et fílium hóminis meminérimus: quia álterum sine áltero nihil spei tríbuit ad salútem. Editis ítaque, quæ divérsæ de eo erant, hóminum opiniónibus, quid de se ipsi séntiant quærit. Petrus respóndit: Tu es Christus Fílius Dei vivi. Sed Petrus conditiónes propositiónis expénderat. Dóminus enim díxerat: Quem me hómines esse dicunt, fílium hóminis? Et certe fílium hóminis contemplátio córporis præferébat. Sed addéndo, Quem me esse dicunt, significávit, præter id quod in se videbátur, esse áliud sentiéndum; erat enim hóminis fílius. Quod ígitur de se opinándi judícium desiderábat? Non illud arbitrámur, quod de se ipse conféssus est: sed occúltum erat de quo quærebátur, in quod se credéntium fides debébat exténdere.
+
+℟. Quem dicunt hómines esse fílium hóminis? dixit

@@ -27339,3 +27339,35 @@ Sǽclum per omne glória. Amen.
 ℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
 
 **Ad Magnif. Ant.** Dixit Dóminus \* ad Noë: Finis univérsæ carnis venit coram me: fac tibi arcam de lignis lævigátis, ut salvétur univérsum semen in ea.
+
+#### Oratio
+
+DEUS, qui cónspicis quia ex nulla nostra actióne confídimus: concéde propítius; ut contra advérsa ómnia Doctóris géntium protectióne muniámur. Per Dóminum.
+
+---
+
+## Dominica in Sexagesima
+
+{RUBRIC: II classis Semiduplex}
+
+### Ad Matutinum
+
+### In I Nocturno
+
+{RUBRIC: Sequéntes Lectiónes I Noctúrni, si hac nocte dici non potuérint, ponúntur cum suis Responsóriis prima die infra hebdómadam, in qua dicéndæ sint Lectiónes de Scriptúra occurrénti; quod servátur de Lectiónibus et Responsóriis I Noctúrni sequéntis Domínicæ Quinquagésimæ.}
+
+{RUBRIC: De libro Génesis}
+
+*Cap. 5, 31; 6, 1-15*
+
+#### Lectio i
+
+NOE vero cum quingentórum esset annórum, génuit Sem, Cham, et Japheth. Cumque cœpíssent hómines multiplicári super terram, et fílias procreássent, vidéntes fílii Dei fílias hóminum quod essent pulchræ, accepérunt sibi uxóres ex ómnibus, quas elégerant. Dixítque Deus: Non permanébit spíritus meus in hómine in ætérnum, quia caro est: erúntque dies illíus centum vigínti annórum. Gigántes autem erant super terram in diébus illis. Postquam enim ingréssi sunt fílii Dei ad fílias hóminum, illæque genuérunt, isti sunt poténtes a sǽculo viri famósi.
+
+℟. Dixit Dóminus ad Noë: Finis univérsæ carnis venit coram me: repléta est terra iniquitáte eórum, \* Et ego dispérdam eos cum terra. ℣. Fac tibi arcam de lignis lævigátis, mansiúnculas in ea fácies. — Et.
+
+#### Lectio ii
+
+VIDENS autem Deus quod multa malítia hóminum esset in terra, et cuncta cogitátio cordis inténta esset ad malum omni témpore, pœnítuit eum quod hóminem fecísset in terra. Et tactus dolóre cordis intrínsecus, Delébo, inquit, hóminem, quem creávi, a fácie terræ, ab hómine usque ad animántia, a réptili usque ad vólucres cæli. Pœnítet enim me fecísse eos. Noë vero invénit grátiam coram Dómino.
+
+℟. Noë, vir justus atque perféctus, cum Deo ambulávit: \* Et fecit ómnia quæcúmque præcépit ei Deus. ℣. Fecit sibi arcam, ut salvarétur univérsum semen. — Et.

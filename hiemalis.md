@@ -33964,4 +33964,18 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 
 {RUBRIC: Liber I post initium}
 
-AGATHA virgo, in Sicília nobílibus paréntibus nata, quam Panormitáni et Catanénses cívem suam esse dicunt, in persecutióne Décii imperatóris Cátanæ gloriósi martýrii corónam consecúta est. Nam cum pari pulchritúdinis et castitátis laude commendarétur, Quintiánus Sicíliæ prǽtor ejus amóre captus est. Sed cum, tentáta modis ómnibus ejus pudicítia, Agatham in suam senténtiam perdúcere non posset, christiánæ superstitiónis nómine comprehénsam, Aphrodísiæ cuidam mulíeri depravándam tradit. Quæ Aphrodísiæ consuetúdine cum de constántia coléndæ christiánæ fídei et servándæ virginitátis removéri non posset, núntiat illa Quintiáno se in Agatha óperam pérdere. Quare ille ad se Vírginem addúci jubet; et, Nonne, inquit, te pudet nóbili génere natam, húmilem et servílem Christianórum vitam ágere? Cui Aga-
+AGATHA virgo, in Sicília nobílibus paréntibus nata, quam Panormitáni et Catanénses cívem suam esse dicunt, in persecutióne Décii imperatóris Cátanæ gloriósi martýrii corónam consecúta est. Nam cum pari pulchritúdinis et castitátis laude commendarétur, Quintiánus Sicíliæ prǽtor ejus amóre captus est. Sed cum, tentáta modis ómnibus ejus pudicítia, Agatham in suam senténtiam perdúcere non posset, christiánæ superstitiónis nómine comprehénsam, Aphrodísiæ cuidam mulíeri depravándam tradit. Quæ Aphrodísiæ consuetúdine cum de constántia coléndæ christiánæ fídei et servándæ virginitátis removéri non posset, núntiat illa Quintiáno se in Agatha óperam pérdere. Quare ille ad se Vírginem addúci jubet; et, Nonne, inquit, te pudet nóbili génere natam, húmilem et servílem Christianórum vitam ágere? Cui Aga-tha: Multo prǽstántior est christiána humílitas et sérvitus, regum ópibus ac supérbia.
+
+℟. Ego autem adjúta a Dómino, perseverábo in confessióne ejus, qui me salvam fecit, \* Et consolátus est me. ℣. Grátias tibi ago, Dómine Jesu Christe, qui misísti ad me Apóstolum tuum curáre vúlnera mea. — Et.
+
+#### Lectio v
+
+QUAM ob rem irátus prǽtor hanc ei optiónem dat, velítne pótius venerári deos, an vim tormentórum subíre. At illa constans in fide, primum cólaphis cæsa míttitur in cárcerem; unde postrídie edúcta, cum in senténtia permanéret, admótis candéntibus láminis in equúleo torquétur. Tum ei mamílla abscínditur; quo in vúlnere Quintiánum appéllans Virgo, Crudélis, inquit, tyránne, non te pudet amputáre in fémina, quod ipse in matre suxísti? Mox conjécta in víncula, sequénti nocte a sene quodam, qui se Christi Apóstolum esse dicébat, sanáta est. Rursum evocáta a prǽtóre, et in Christi confessióne persevérans, in acútis téstulis et candéntibus carbónibus ei subjéctis volutátur.
+
+℟. Ipse me curávit, qui per Apóstolum Petrum in custódia me confortávit, pro eo quod jussa sum suspéndi in equúleo: \* Propter fidem castitátis ádjuva me, Dómine, Deus meus, in tortúra mamillárum meárum. ℣. Ipse me dignátus est ab omni plaga curáre, et mamíllam meam meo péctori restitúere. — Propter.
+
+#### Lectio vi
+
+QUO témpore, ingénti terrǽmótu urbs tota contrémuit, ac duo paríetes, corruéntes, Silvínum et Falcónium íntimos prætóris familiáres oppressérunt. Quare veheménter commóta civitáte, véritus pópuli tumúltum Quintiánus, Agatham semimórtuam clam redúci ímperat in cárcerem. Quæ sic Deum precáta: Dómine, qui me custodísti ab infántia, qui abstulísti a me amórem sǽculi, qui me carníficum torméntis superiórem præstitísti, áccipe ánimam meam. Ea in oratióne migrávit in cælum, Nonis Februárii: cujus corpus a Christiánis sepelítur.
+
+℟. Vidísti, Dómine, et spectásti agónem meum, quómodo pugnávi in stádio; sed quia nólui obedíre mandátis príncipum,

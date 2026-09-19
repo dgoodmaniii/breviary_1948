@@ -3271,7 +3271,7 @@ BEATUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
 
 Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
 
-Glória, et divítiæ in domo ejus: \* et justítia ejus manet in séculum séculi.
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in sæculum sæculi.
 
 Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
 
@@ -3281,7 +3281,7 @@ In memória ætérna erit justus: \* ab auditióne mala non timébit.
 
 Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
 
-Dispérsit, dedit paupéribus: justítia ejus manet in séculum séculi, \* cornu ejus exaltábitur in glória.
+Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
 
 Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
 
@@ -19425,7 +19425,7 @@ BEÁTUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
 
 Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
 
-Glória, et divítiæ in domo ejus: \* et justítia ejus manet in séculum séculi.
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in sæculum sæculi.
 
 Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
 
@@ -19435,7 +19435,7 @@ In memória ætérna erit justus: \* ab auditióne mala non timébit.
 
 Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
 
-Dispérsit, dedit paupéribus: justítia ejus manet in séculum séculi, \* cornu ejus exaltábitur in glória.
+Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
 
 Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
 
@@ -23584,3 +23584,52 @@ Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
 Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
 
 **Ant.** Venit lumen tuum, Jerúsalem, et glória Dó-
+mini super te orta est, et ambulábunt gentes in lúmine tuo, allelúja.
+
+**Ant.** Apértis thesáuris suis, \* obtulérunt Magi Dómino aurum, thus et myrrham, allelúja.
+
+#### Psalmus 111
+
+BEÁTUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício: \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus: \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
+
+**Ant.** Apértis thesáuris suis, obtulérunt Magi Dómino aurum, thus et myrrham, allelúja.
+
+**Ant.** María et flúmina, \* benedícite Dómino: hymnum dícite, fontes, Dómino, allelúja.
+
+#### Psalmus 112
+
+LAUDÁTE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sǽculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** María et flúmina, benedícite Dómino: hymnum dícite, fontes, Dómino, allelúja.
+
+**Ant.** Stella ista \* sicut flamma corúscat, et Regem regum Deum demón-

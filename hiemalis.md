@@ -12303,3 +12303,55 @@ Et cognóscant quia nomen tibi Dóminus: \* tu solus Altíssimus in omni terra.
 ##### In Feriis sine Homilia:
 
 **Bened.** 1 Deus Pater. 2 Christus perpétuæ. 3 Ignem sui amóris.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+#### Ad Laudes I
+
+*In Feriis per Annum, extra hebdomadas Septuagesimæ, Sexagesimæ et Quinquagesimæ ac Vigilias communes occurrentibus, atque in Festis quolibet anni tempore celebrandis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Exaltáte \* Dóminum, Deum nostrum, et adoráte in monte sancto ejus.
+
+### Psalmus 98
+
+DOMINUS regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus: \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus.
+
+**Ant.** Eripe me \* de inimícis meis, Dómine, ad te confúgi.
+
+### Psalmus 142
+
+DOMINE, exáudi oratiónem meam: áuribus pércipe obsecratiónem meam in veritáte tua: \* exáudi me in tua justítia.
+
+Et non intres in judícium cum servo tuo: \* quia non justificábitur in conspéctu tuo omnis vivens.
+
+Quia persecútus est inimícus ánimam meam: \* humiliávit in terra vitam meam.
+
+Collocávit me in obscúris sicut mórtuos séculi: \* et anxiátus est super me spí-

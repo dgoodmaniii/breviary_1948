@@ -18065,3 +18065,33 @@ In sæculórum sæcula. Amen.
 #### Oratio
 
 EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: et magna nobis virtúte succúrre; ut per auxílium grátiæ tuæ, quod nostra peccáta præpédiunt, indulgéntia tuæ propitiatiónis accéleret: Qui vivis.
+
+---
+
+## Dominica IV Adventus
+
+{RUBRIC: II classis} Semiduplex
+
+#### In I Nocturno
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 35, 1-10*
+
+LÆTÁBITUR desérta et ínvia, et exsultábit solitúdo, et florébit quasi lílium. Gérminans germinábit, et exsultábit lætabúnda et laudans: glória Líbani data est ei: decor Carméli et Saron, ipsi vidébunt glóriam Dómini, et decórem Dei nostri. Confortáte manus dissolútas, et génua debília roboráte. Dícite pusillánimis: Confortámini, et nolíte timére: ecce Deus vester ultiónem addúcet retributiónis: Deus ipse véniet, et salvábit vos. Tunc aperiéntur óculi cæcórum, et aures surdórum patébunt. Tunc sáliet sicut cervus claudus, et apérta erit lingua mutórum: quia scissæ sunt in desérto aquæ, et torréntes in solitúdine. Et quæ erat árida, erit in stagnum, et sítiens in fontes aquárum.
+
+℟. Cánite tuba in Sion, vocáte gentes, annuntiáte pópulis, et dícite: \* Ecce Deus, Salvátor noster, advéniet. ℣. Annuntiáte, et audítum fácite: loquímini, et clamáte. — Ecce.
+
+#### Lectio ii
+
+IN cubílibus, in quibus prius dracónes habitábant, oriétur viror cálami et junci. Et erit ibi sémita et via, et via sancta vocábitur: non transíbit per eam pollútus, et hæc erit vobis direáta via, ita ut stulti non errent per eam. Non erit ibi leo, et mala béstia non ascéndet per eam, nec inveniétur ibi: et ambulábunt, qui liberáti fúerint. Et redémpti a Dómino converténtur, et vénient in Sion cum laude: et lætítia sempitérna super caput eórum: gáudium et lætítiam obtinébunt et fúgiet dolor et gémitus.
+
+℟. Non auferétur sceptrum de Juda, et dux de fémore ejus, donec véniat qui mitténdus est: \* Et ipse erit exspectátio géntium. ℣. Pulchrióres sunt óculi ejus vino, et dentes ejus lacte candidióres. — Et.
+
+#### Lectio iii
+
+*Cap. 41, 1-4*
+
+TÁCEANT ad me ínsulæ, et gentes mutent fortitúdinem: accédant, et tunc loquántur, simul ad judícium propinquémus. Quis suscitávit ab Oriénte justum, vocávit eum ut sequerétur se? dabit in conspéctu ejus gentes et reges obtinébit: dabit quasi púlverem gládio ejus,

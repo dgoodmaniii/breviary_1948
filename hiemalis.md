@@ -17756,3 +17756,42 @@ clamóris tui statim ut audíerit, respondébit tibi. Et dabit vobis Dóminus pa
 EGRÉDERE, dices ei: Et dábitur plúvia sémini tuo, ubicúmque semináveris in terra: et panis frugum terræ erit ubérrimus et pinguis. Pascétur in possessióne tua in die illo agnus spatióse: et tauri tui, et pulli asinórum, qui operántur terram, commístum migma cómedent, sicut in área ventilátum est. Et erunt super omnem montem excélsum, et super omnem collem elevátum rivi curréntium aquárum, in die interfectiónis multórum, cum cecíderint turres.
 
 ℟. Prope est ut véniat tempus ejus, et dies ejus non elongabúntur: \* Mi-
+serébitur Dóminus Jacob, et Israël salvábitur. ℣. Revértere, virgo Israël, revértere ad civitátes tuas. — Miserébitur.
+
+#### Lectio iii
+
+ET erit lux lunæ sicut lux solis, et lux solis erit septemplíciter sicut lux septem diérum in die, qua alligáverit Dóminus vulnus pópuli sui, et percussúram plagæ ejus sanáverit. Ecce nomen Dómini venit de longínquo, ardens furor ejus, et gravis ad portándum: lábia ejus repléta sunt indignatióne, et lingua ejus quasi ignis dévorans. Spíritus ejus velut torrens inúndans usque ad médium colli ad perdéndas gentes in níhilum, et frenum erróris, quod erat in maxíllis populórum.
+
+℟. Descéndet Dóminus sicut plúvia in vellus: \* Oriétur in diébus ejus justítia, et abundántia pacis. ℣. Et adorábunt eum omnes reges, omnes gentes sérvient ei. — Oriétur. Glória Patri. Oriétur.
+
+℣. Vox clamántis.
+
+**Ad Bened. Ant.** Tu Béthlehem \* terra Juda, non eris mínima: ex te enim éxiet Dux, qui regat pópulum meum Israël.
+
+**Oratio** Aurem tuam. {RUBRIC: 360}
+
+℣. Roráte, cæli.
+
+**Ad Magnif. Ant.** Eleváre, eleváre, \* consúrge, Jerúsalem: solve víncula colli tui, captíva fília Sion.
+
+{RUBRIC: Nisi dicénda sit Ant. O. 355}
+
+---
+
+### Feria Quarta
+
+#### Quatuor Temporum
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 1, 26-38*
+
+IN illo témpore: Missus est Ángelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 2 in Lucam}
+
+LATENT quidem divína mystéria, nec fácile, juxta prophéticum dictum, quisquam hóminum potest scire consílium Dei. Sed tamen ex céteris factis, atque præcéptis Dómini Salvatóris póssumus intellígere, et hoc propensióris fuísse consílii, quod ea potíssimum elécta est, ut Dóminum páreret, quæ erat desponsáta viro. Cur autem non ántequam desponsarétur, impléta est? Fortásse ne dicerétur, quod concéperat ex adultério.

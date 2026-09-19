@@ -20262,3 +20262,43 @@ CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Nat
 **Capit.** Vidi, {RUBRIC: ut supra.}
 
 ℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde. Et.
+
+Glória Patri. Lætámini. ℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Apoc. 14, 4*
+
+HI sunt, qui cum muliéribus non sunt coinquináti: vírgines enim sunt. Hi sequúntur Agnum quocúmque íerit.
+
+℟. br. Exsúltent justi \* In conspéctu Dei. Exsúltent. ℣. Et delecténtur in lætítia. In. Glória Patri. Exsúltent. ℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Apoc. 14, 4-5*
+
+HI empti sunt ex homínibus primítiæ Deo et Agno, et in ore ipsórum non est invéntum mendácium: sine mácula enim sunt ante thronum Dei.
+
+℟. br. Justi autem \* In perpétuum vivent. Justi. ℣. Et apud Dóminum est merces eórum. In. Glória Patri. Justi. ℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ et Psalmi de Nativitáte. 402}
+
+**Capit.** Vidi supra montem {RUBRIC: et Hymnus} Salvéte, flores, {RUBRIC: ut supra. 424}
+
+℣. Sub throno Dei omnes Sancti clamant. ℟. Víndica sánguinem nostrum, Deus noster.
+
+**Ad Magnif. Ant.** Innocéntes pro Christo \* infántes occísi sunt, ab iníquo rege lacténtes interfécti sunt; ipsum sequúntur Agnum sine mácula, et dicunt semper: Glória tibi, Dómine.
+
+{RUBRIC: Et fit Commemoratio sequentis Festi S. Thomæ Ep. et Mart., ut infra post Officium Dominicæ 432; et Octavæ Nativitatis ibidem.}
+
+{RUBRIC: ¶ Si in Festo Nativitátis Dómini, S. Stéphani, S. Joánnis Evangelístæ et Ss. Innocéntium occúrrat Domínica, ipsa die nihil fit de ea; sed íntegrum ejus Offícium transférttur in diem 30, cum ómnibus privilégiis étiam in concurréntia, ac si ipsa die 30 occúrreret.}
+
+{RUBRIC: Si vero Dominica incídat in Festum S. Thomæ aut S. Silvéstri, ipsa die Offícium fit de Domínica, cum Commemoratióne Festi occurréntis et Octávæ Nativitátis: et die 30 Decémbris fit Offícium de VI die infra eámdem Octávam, ut suo loco notátur. 438}
+
+{RUBRIC: Sicúbi tamen die 30 Decémbris celebrétur Festum áliquod novem Lectiónum, tunc Offícium Domínicæ, ut supra transferéndæ, ea die pónitur, qua Festum minus nóbile in occurréntia a die 29 usque ad 31 Decémbris secus peragéndum foret, salvis Domínicæ júribus in concurréntia. Quod si ómnia Festa, a die 29 usque}

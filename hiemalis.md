@@ -9894,3 +9894,50 @@ Quia ipse Deus meus, et salvátor meus: \* adjútor meus, non emigrábo.
 In Deo salutáre meum, et glória mea: \* Deus auxílii mei, et spes mea in Deo est.
 
 Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra: \*
+ Deus adjútor noster in ætérnum.
+
+Verúmtamen vani fílii hóminum, mendáces fílii hóminum in statéris: \* ut decípiant ipsi de vanitáte in idípsum.
+
+Nolíte speráre in iniquitáte, et rapínas nolíte concupíscere: \* divítiæ si áffluant, nolíte cor appónere.
+
+Semel locútus est Deus, duo hæc audívi, quia potéstas Dei est, et tibi, Dómine, misericórdia: \* quia tu reddes unicuíque juxta ópera sua.
+
+**Ant.** In Deo salutáre meum, et glória mea: et spes mea in Deo est.
+
+**Ant.** Vidéte ópera Dómini, \* et audítam fácite vocem laudis ejus.
+
+### Psalmus 65, i
+
+JUBILATE Deo, omnis terra, psalmum dícite nómini ejus: \* date glóriam laudi ejus.
+
+Dícite Deo: Quam terribília sunt ópera tua, Dómine! \* in multitúdine virtútis tuæ mentiéntur tibi inimíci tui.
+
+Omnis terra adóret te, et psallat tibi: \* psalmum dicat nómini tuo.
+
+Veníte, et vidéte ópera Dei: \* terríbilis in consíliis super fílios hóminum.
+
+Qui convértit mare in áridam, in flúmine pertransíbunt pede: \* ibi lætábimur in ipso.
+
+Qui dominátur in virtúte sua in ætérnum, óculi ejus super gentes respíciunt: \* qui exásperant non exalténtur in semetípsis.
+
+Benedícite, gentes, Deum nostrum: \* et audítam fácite vocem laudis ejus,
+
+Qui pósuit ánimam meam ad vitam: \* et non dedit in commotiónem pedes meos.
+
+Quóniam probásti nos, Deus: \* igne nos examinásti, sicut examinátur argéntum.
+
+Induxísti nos in láqueum, posuísti tribulatiónes in dorso nostro: \* imposuísti hómines super cápita nostra.
+
+Transívimus per ignem et aquam: \* et eduxísti nos in refrigérium.
+
+**Ant.** Vidéte ópera Dómini, et audítam fácite vocem laudis ejus.
+
+**Ant.** Audíte, omnes, \* qui timétis Deum, quanta fecit ánimæ meæ.
+
+### Psalmus 65, ii
+
+INTROIBO in domum tuam in holocáustis: \* reddam tibi vota mea, quæ distinxérunt lábia mea.
+
+Et locútum est os meum, \* in tribulatióne mea.
+
+Holocáusta medulláta ófferam tibi cum incénso

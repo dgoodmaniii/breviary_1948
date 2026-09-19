@@ -23175,3 +23175,48 @@ Descéndet sicut plúvia in vellus: \* et sicut stillicídia stillántia super t
 Oriétur in diébus ejus justítia, et abundántia pacis: \* donec auferátur luna.
 
 Et dominábitur a mari usque ad mare: \* et a flú-
+mine usque ad términos orbis terrárum.
+
+Coram illo prócident Æthíopes: \* et inimíci ejus terram lingent.
+
+Reges Tharsis, et ínsulæ múnera ófferent: \* reges Arabum et Saba dona addúcent.
+
+Et adorábunt eum omnes reges terræ: \* omnes gentes sérvient ei:
+
+Quia liberábit páuperem a poténte: \* et páuperem, cui non erat adjútor.
+
+Parcet páuperi et ínopi: \* et ánimas páuperum salvas fáciet.
+
+Ex usúris et iniquitáte rédimet ánimas eórum: \* et honorábile nomen eórum coram illo.
+
+Et vivet, et dábitur ei de auro Arábiæ, et adorábunt de ipso semper: \* tota die benedícent ei.
+
+Et erit firmaméntum in terra in summis móntium, superextollétur super Líbanum fructus ejus: \* et florébunt de civitáte sicut fœnum terræ.
+
+Sit nomen ejus benedíctum in sǽcula: \* ante solem pérmanet nomen ejus.
+
+Et benedicéntur in ipso omnes tribus terræ: \* omnes gentes magnificábunt eum.
+
+Benedíctus Dóminus, Deus Israël, \* qui facit mirabília solus:
+
+Et benedíctum nomen majestátis ejus in ætérnum: \* et replébitur majestáte ejus omnis terra: fiat, fiat.
+
+**Ant.** Reges Tharsis et ínsulæ múnera ófferent Regi Dómino.
+
+**Ant.** Omnes gentes \* quascúmque fecísti, vénient, et adorábunt coram te, Dómine.
+
+#### Psalmus 85
+
+INCLÍNA, Dómine, aurem tuam, et exáudi me: \* quóniam inops, et pauper sum ego.
+
+Custódi ánimam meam, quóniam sanctus sum: \* salvum fac servum tuum, Deus meus, sperántem in te.
+
+Miserére mei, Dómine, quóniam ad te clamávi tota die: \* lætífica ánimam servi tui, quóniam ad te, Dómine, ánimam meam levávi.
+
+Quóniam tu, Dómine, suávis, et mitis: \* et multæ misericórdiæ ómnibus invocántibus te.
+
+Auribus pércipe, Dómine, oratiónem meam: \* et inténde voci deprecatiónis meæ.
+
+In die tribulatiónis meæ clamávi ad te: \* quia exaudísti me.
+
+Non est símilis tui in diis, Dómine: \* et non est secúndum ópera tua.

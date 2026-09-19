@@ -12744,3 +12744,69 @@ Et super excélsa mea dedúcet me victor \* in psalmis canéntem.
 ### Psalmus 147
 
 LAUDA, † Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Lauda Deum tuum, Sion, qui annúntiat judícia sua Israël.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Ego autem ad Dóminum aspíciam, et exspectábo Deum Salvatórem meum.
+
+#### In Adventu
+
+**Capitulum** *Is. 58, 1*
+
+VENITE, et ascendámus ad montem Dómini, et ad domum Dei Jacob, et docébit nos vias suas, et ambulábimus in sémitis ejus: quia de Sion exíbit lex, et verbum Dómini de Jerúsalem.
+
+#### Hymnus
+
+EN, clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En, Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula.
+Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicuntur sequentes}
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: quod dicitur a solo Hebdomadario totum clara voce, usque

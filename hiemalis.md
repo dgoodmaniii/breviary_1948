@@ -14282,3 +14282,53 @@ Et credidérunt verbis ejus: \* et laudavérunt laudem ejus.
 Cito fecérunt, oblíti sunt óperum ejus: \* et non sustinuérunt consílium ejus.
 
 Et concupiérunt concupiscéntiam in desérto: \* et tentavérunt Deum in inaquóso.
+
+Et dedit eis petitiónem ipsórum: \* et misit saturitátem in ánimas eórum.
+
+**Ant.** Salvávit eos Dóminus propter nomen suum.
+
+**Ant.** Oblíti sunt Deum, \* qui salvávit eos.
+
+#### Psalmus 105, ii
+
+ET irritavérunt Móysen in castris: \* Aaron, sanctum Dómini.
+
+Apérta est terra, et deglutívit Dathan: \* et opéruit super congregatiónem Abíron.
+
+Et exársit ignis in synagóga eórum: \* flamma combússit peccatóres.
+
+Et fecérunt vítulum in Horeb: \* et adoravérunt scúlptile.
+
+Et mutavérunt glóriam suam \* in similitúdinem vítuli comedéntis fœnum.
+
+Oblíti sunt Deum, qui salvávit eos, \* qui fecit magnália in Ægýpto, mirabília in terra Cham: terribília in Mari Rubro.
+
+Et dixit ut dispérderet eos: \* si non Móyses, eléctus ejus, stetísset in confractióne in conspéctu ejus:
+
+Ut avérteret iram ejus ne dispérderet eos: \* et pro níhilo habuérunt terram desiderábilem:
+
+Non credidérunt verbo ejus, et murmuravérunt in tabernáculis suis: \* non exaudiérunt vocem Dómini.
+
+Et elevávit manum suam super eos: \* ut prostérneret eos in desérto:
+
+Et ut dejíceret semen eórum in natiónibus: \* et dispérgeret eos in regiónibus.
+
+Et initiáti sunt Beélphegor: \* et comedérunt sacrifícia mortuórum.
+
+Et irritavérunt eum in adinventiónibus suis: \* et multiplicáta est in eis ruína.
+
+Et stetit Phínees, et placávit: \* et cessávit quassátio.
+
+Et reputátum est ei in justítiam, \* in generatiónem et generatiónem usque in sempitérnum.
+
+**Ant.** Oblíti sunt Deum, qui salvávit eos.
+
+**Ant.** Cum tribularéntur, \* vidit Dóminus: et audívit oratiónem eórum.
+
+#### Psalmus 105, iii
+
+ET irritavérunt eum ad Aquas contradictiónis: \* et vexátus est Móyses propter eos: quia exacerbavérunt spíritum ejus.
+
+Et distínxit in lábiis suis: \* non disperdidérunt gentes, quas dixit Dóminus illis.
+
+Et commísti sunt inter gentes, et didicérunt ópera eórum: et serviérunt scul-

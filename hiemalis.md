@@ -27057,3 +27057,59 @@ FRATRES: Nescítis quod ii, qui in stádio currunt, omnes quidem currunt, sed un
 OMNIS autem, qui in agóne conténdit, ab ómnibus se ábstinet: et illi quidem ut corruptíbilem corónam accípiant, nos autem incorrúptam.
 
 ℟. br. In ætérnum, Dómine, \* Pérmanet verbum
+tuum. In ætérnum. ℣. In sǽculum sǽculi véritas tua. Pérmanet. Glória Patri. In ætérnum.
+
+℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+### Ad Nonam
+
+**Ant.** Voca operários, \* et redde illis mercédem suam, dicit Dóminus.
+
+**Capitulum** *1 Cor. 10, 4-5*
+
+BIBÉBANT autem de spiritáli, consequénte eos, petra: petra autem erat Christus: sed non in plúribus eórum beneplácitum est Deo.
+
+℟. br. Clamávi in toto corde meo: \* Exáudi me, Dómine. Clamávi. ℣. Justificatiónes tuas requíram. Exáudi. Glória Patri. Clamávi. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica.} [REF: p. 70]
+
+**Capitulum** Fratres, ut supra. [REF: p. 626]
+
+#### Hymnus
+
+LUCIS Creátor óptime,
+Lucem diérum próferens,
+Primórdiis lucis novæ,
+Mundi parans oríginem:
+
+Qui mane junctum vésperi
+Diem vocári præcipis:
+Illábitur tetrum chaos,
+Audi preces cum flétibus.
+
+Ne mens graváta crímine,
+Vitæ sit exsul múnere,
+Dum nil perénne cógitat,
+Seséque culpis illigat.
+
+Cæléste pulset óstium:
+Vitále tollat prǽmium:
+Vitémus omne nóxium:
+Purgémus omne péssimum.
+
+\* Præsta, Pater piíssime,
+Patríque compar Únice,
+Cum Spíritu Paráclito
+Regnans per omne sǽculum. Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Dixit paterfamílias \* operáriis suis: Quid hic statis tota die otiósi? At illi respondéntes dixérunt: Quia nemo nos condúxit. Ite et vos in víneam meam: et quod justum fúerit, dabo vobis.
+
+#### Oratio
+
+PRECES pópuli tui, quǽsumus, Dómine, cleménter exáudi: ut, qui juste pro peccátis nostris afflígimur, pro tui nóminis glória misericórditer liberémur. Per Dóminum.
+
+---

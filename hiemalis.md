@@ -26941,3 +26941,16 @@ IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile est regn
 {RUBRIC: Homilía 19 in Evang. post princ.}
 
 REGNUM cælórum hómini patrifamílias símile dícitur, qui ad excoléndam víneam
+suam operários condúcit. Quis vero patrisfamílias similitúdinem réctius tenet, quam Cónditor noster, qui regit quos cóndidit, et eléctos suos sic in hoc mundo póssidet, quasi subjéctos dóminus in domo? Qui habet víneam, universálem scílicet Ecclésiam, quæ ab Abel justo usque ad últimum eléctum, qui in fine mundi nascitúrus est, quot Sanctos prótulit, quasi tot pálmites misit.
+
+℟. Plantáverat autem Dóminus Deus paradísum voluptátis a princípio: \* In quo pósuit hóminem, quem formáverat. ℣. Produxítque Dóminus Deus de humo omne lignum pulchrum visu, et ad vescéndum suáve; lignum étiam vitæ in médio paradísi. — In.
+
+#### Lectio viii
+
+HIC ítaque paterfamílias ad excoléndam víneam suam, mane, hora tértia, sexta, nona, et undécima operários condúcit: quia a mundi hujus inítio usque in finem ad erudiéndam plebem fidélium, prædicatóres congregáre non desístit. Mane étenim mundi fuit ab Adam usque ad Noë: hora vero tértia a Noë usque ad Abraham: sexta quoque ad Abraham usque ad Móysen: nona autem a Móyse usque ad advéntum Dómini: undécima vero ab advéntu Dómini usque ad finem mundi. In qua prædicatóres sancti Apóstoli missi sunt, qui mercédem plenam et tarde veniéntes accepérunt.
+
+℟. Ecce Adam quasi unus ex nobis factus est, sciens bonum et malum: \* Vidéte, ne forte sumat de ligno vitæ, et vivat in ætérnum. ℣. Fecit quoque Dóminus Deus Adæ túnicam pellíceam, et índuit eum, et dixit. — Vidéte.
+
+#### Lectio ix
+
+AD erudiéndam ergo Dóminus plebem suam, quasi ad excoléndam víneam suam, nullo témpore déstitit operários míttere: quia et prius per Patres, et póstmodum per legis Doctóres et Prophétas, ad extrémum vero per Apóstolos, dum plebis suæ mores excóluit, quasi per operários in víneæ cultúra laborávit: quamvis in quólibet módulo vel mensúra, quisquis cum fide recta bonæ prædicátor actiónis éxstitit, hujus víneæ operárius fuit. Operátor ergo mane, hora tértia, sexta, et nona, antíquus ille et Hebráicus pópulus designátur: qui in eléctis suis ab ipso mundi

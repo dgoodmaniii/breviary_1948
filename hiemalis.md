@@ -9994,3 +9994,55 @@ Animália tua habitábunt in ea: \* parásti in dulcédine tua páuperi, Deus.
 **Ant.** Exsúrgat Deus, et dissipéntur inimíci ejus.
 
 **Ant.** Deus noster, \* Deus salvos faciéndi: et Dómini sunt éxitus mortis.
+
+### Psalmus 67, ii
+
+DOMINUS dabit verbum evangelizántibus, \* virtúte multa.
+
+Rex virtútum dilécti dilécti: \* et speciéi domus divídere spólia.
+
+Si dormiátis inter médios cleros, pennæ colúmbæ deargentátæ, \* et posterióra dorsi ejus in pallóre auri.
+
+Dum discérnit cæléstis reges super eam, nive dealbabúntur in Selmon: \* mons Dei, mons pinguis.
+
+Mons coagulátus, mons pinguis: \* ut quid suspicámini montes coagulátos?
+
+Mons, in quo beneplácitum est Deo habitáre in eo: \* étenim Dóminus habitábit in finem.
+
+Currus Dei decem míllibus múltiplex, míllia lætántium: \* Dóminus in eis in Sina in sancto.
+
+Ascendísti in altum, cepísti captivitátem: \* accepísti dona in homínibus:
+
+Etenim non credéntes, \* inhabitáre Dóminum Deum.
+
+Benedíctus Dóminus die quotídie: \* prósperum iter fáciet nobis Deus salutárium nostrórum.
+
+Deus noster, Deus salvos faciéndi: \* et Dómini Dómini éxitus mortis.
+
+Verúmtamen Deus confrínget cápita inimicórum suórum: \* vérticem capílli perambulántium in delíctis suis.
+
+Dixit Dóminus: Ex Basan convértam, \* convértam in profúndum maris:
+
+Ut intingátur pes tuus in sánguine: \* lingua canum tuórum ex inimícis, ab ipso.
+
+**Ant.** Deus noster, Deus salvos faciéndi: et Dómini sunt éxitus mortis.
+
+**Ant.** In ecclésiis \* benedícite Dómino Deo.
+
+### Psalmus 67, iii
+
+VIDERUNT ingréssus tuos, Deus, \* ingréssus Dei mei: regis mei qui est in sancto.
+
+Prævenérunt príncipes conjúncti psalléntibus, \* in médio juvenculárum tympanistriárum.
+
+In ecclésiis benedícite Deo Dómino, \* de fóntibus Israël.
+
+Ibi Bénjamin adolescéntulus, \* in mentis excéssu.
+
+Príncipes Juda, duces eórum: \* príncipes Zábulon, príncipes Néphthali.
+
+Manda, Deus, virtúti tuæ: \* confírma hoc, Deus, quod operátus es in nobis.
+
+A templo tuo in Jerúsalem, \* tibi ófferent reges múnera.
+
+Íncrepa feras arúndinis, congregátio taurórum in vaccis populórum: \* ut

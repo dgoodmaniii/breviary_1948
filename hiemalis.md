@@ -24643,3 +24643,32 @@ MAGI vero aurum, thus et myrrham déferunt. Aurum quippe Regi cóngruit, thus ve
 ET sunt nonnúlli, qui hunc et Deum et Regem faténtur, sed assumpsísse carnem mortálem negant. Hi nimírum ei aurum et thus ófferunt, sed offérre myrrham assúmptæ mortalitátis nolunt. Nos ítaque nato Dómino offerámus aurum, ut hunc ubíque regnáre fateámur: offerámus thus, ut credámus, quod is, qui in témpore appáruit, Deus ante témpora exstítit: offerámus myrrham, ut eum, quem crédimus in sua divinitáte impassíbilem, credámus étiam in nostra fuísse carne mortálem.
 
 ℟. Vidéntes stellam Magi, gavísi sunt gáudio ma-
+gno: \* Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum: \* Et, apértis thesáuris suis, obtulérunt ei múnera, aurum, thus et myrrham. ℣. Stella, quam víderant Magi in Oriénte, antecedébat eos, usque dum véniens staret supra ubi erat puer. — Et intrántes. Glória Patri. Et, apértis.
+
+#### Lectio ix
+
+QUAMVIS in auro, thure et myrrha intélligi et áliud potest. Auro namque sapiéntia designátur, Salomóne attestánte, qui ait: Thesáurus desiderábilis requiéscit in ore sapiéntis. Thure autem, quod Deo incénditur, virtus oratiónis exprímitur, Psalmísta testánte, qui dicit: Dirigátur orátio mea sicut incénsum in conspéctu tuo. Per myrrham vero carnis nostræ mortificátio figurátur. Unde sancta Ecclésia de suis operáriis usque ad mortem pro Deo certántibus dicit: Manus meæ distillavérunt myrrham.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Tria sunt múnera, \* quæ obtulérunt Magi Dómino, aurum, thus et myrrham, Fílio Dei, Regi magno, allelúja.
+
+**Ad Magnif. Ant.** Lux de luce \* apparuísti, Christe, cui Magi múnera ófferunt, allelúja, allelúja, allelúja.
+
+## Die 9 Januarii
+
+# De IV die infra Octavam Epiphaniæ
+
+{RUBRIC: Semiduplex [REF: p. 492]}
+
+### In I Nocturno
+
+{RUBRIC: De Epístola ad Romános}
+
+#### Lectio i
+
+*Cap. 13, 1-10*
+
+OMNIS ánima potestátibus sublimióribus súbdita sit: non est enim potéstas nisi a Deo: quæ autem sunt, a Deo ordinátæ sunt. Itaque qui resístit potestáti, Dei ordinatióni resístit. Qui autem resístunt, ipsi sibi damnatiónem acquírunt: nam príncipes non sunt timóri boni óperis, sed mali. Vis autem non timére potestátem? Bonum fac: et habébis laudem ex illa: Dei enim miníster est tibi in bonum.
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris

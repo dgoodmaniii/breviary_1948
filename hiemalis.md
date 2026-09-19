@@ -24872,3 +24872,22 @@ DEUS autem patiéntiæ et solátii det vobis idípsum sápere in altérutrum sec
 #### Lectio iii
 
 ET rursus Isaías ait: Erit radix Jesse, et qui exsúrget régere gentes, in eum gentes sperábunt. Deus autem spei répleat
+vos omni gáudio et pace in credéndo: ut abundétis in spe, et virtúte Spíritus Sancti. Certus sum autem, fratres mei, et ego ipse de vobis, quóniam et ipsi pleni estis dilectióne, repléti omni sciéntia, ita ut possítis altérutrum monére. Audácius autem scripsi vobis, fratres, ex parte, tamquam in memóriam vos redúcens: propter grátiam, quæ data est mihi a Deo, ut sim miníster Christi Jesu in géntibus: sanctíficans Evangélium Dei, ut fiat oblátio géntium accépta, et sanctificáta in Spíritu Sancto.
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Fulgéntii Epíscopi}
+
+{RUBRIC: Sermo 5 qui est de Epiphania, sub initium.}
+
+#### Lectio iv
+
+IPSE Deus, qui sibi in véteri testaménto primítias offérri mandávit, homo natus géntium primítias suo cúltui dedicávit. Pastóres fuérunt primítiæ Judæórum: Magi facti sunt primítiæ géntium. Illi de próximo addúcti, isti de longínquo redúcti. Ubi est, ínquiunt, qui natus est Rex Judæórum? De Heróde rege Judæórum fílii jam fúerant nati. Archeláus natus est in palátio, Christus in diversório. Archeláus natus, est in lecto argénteo pósitus, Christus autem natus, in præsépio est brevíssimo collocátus: et tamen ille natus in palátio contémnitur, iste natus in diversório quǽritur: ille a Magis nullátenus nominátur, iste invéntus supplíciter adorátur.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux tua: \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio v
+
+QUIS est iste Rex Judæórum? Pauper et dives, húmilis et sublímis. Quis est iste Rex Judæórum, qui portátur ut párvulus, adorátur ut Deus? Parvus in præsépio, imménsus in cælo: vilis in pannis, pretiósus in stellis. Quid est quod sic turbáris, Heródes? Rex iste, qui natus est, non venit reges pugnándo superáre, sed moriéndo mirabíliter subjugáre. Nec ídeo

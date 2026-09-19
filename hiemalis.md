@@ -30539,3 +30539,36 @@ VIRGO est lílium immaculátum, quæ rosam immarcescíbilem génuit Christum. O 
 #### Lectio ix
 
 GRÁTIA sanctæ Vírginis est imménsa. Hinc Gábriel in primis salútat Vírginem, dicens: Ave, grátia plena, quæ es spléndidum cælum. Ave, grátia plena, multis virtútibus exornáta Virgo. Ave, grátia plena, quæ es urna áurea cóntinens manna cæléste. Ave, grátia plena,
+quæ sitiéntes perénnis fontis dulcédine sátias. Ave, sanctíssima Mater immaculáta, quæ genuísti Christum, qui est ante te. Ave, púrpura régia, quæ cæli terrǽque Regem induísti. Ave, liber incomprehénsus, quæ Verbum et Fílium Patris mundo legéndum exhibuísti.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: Ad Laudes fit Commemoratio Fériæ.}
+
+{RUBRIC: In Vésperis Commemoratio sequéntis ac Fériæ.}
+
+---
+
+## Die 16 Decembris
+
+### S. Eusebii
+
+{RUBRIC: Episcopi et Martyris}
+
+{RUBRIC: Semiduplex} [29]
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+**Oratio** C 2
+
+DEUS, qui nos beáti Eusébii Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. (Per Dóminum.)
+
+{RUBRIC: Deinde fit Commemoratio Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+EUSÉBIUS, natióne Sardus, Románæ urbis lector, post Vercellénsis epíscopus, ad hanc regéndam ecclésiam mérito est créditus divíno eléctus judício: nam quem numquam ante constitúti electóres cognóverant, posthábitis cívibus, simul ut vidérunt, et probavérunt; tantúmque intérfuit, ut probarétur, quantum ut viderétur. Primus in Occidéntis pártibus in eádem ecclésia eósdem mónachos instítuit esse quos cléricos, ut esset in ipsis viris et contémptus rerum, et accurátio levitárum. Ariánis impietátibus ea tempestáte per Occidéntem longe latéque tradúctis, advérsus eas viríliter sic dimicávit, ut ejus invícta fides Libérium summum Pontíficem ad vitæ solátium erígeret. Quare hic sciens in ipso fervére Spíritum Dei, cum ei significásset ut penes imperatórem una cum suis legátis patrocínium fídei suscíperet, mox cum illis proféctus est ad Constántium; apud quem eníxius agens, quidquid legatióne petebátur, obtínuit, ut episcopórum nempe cœtus celebrarétur.

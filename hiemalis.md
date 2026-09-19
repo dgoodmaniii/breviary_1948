@@ -24137,3 +24137,16 @@ Sicut lætántium ómnium \* habitátio est in te.
 #### Lectio iv
 
 MISÉRICORS Deus cum humánæ reparatiónis opus, quod diu sǽcula exspectábant, perfícere decrevísset, ita ejúsdem óperis ratiónem ordinémque dispósuit, ut prima ipsa ejúsdem inítia augústam mundo exhibérent spéciem Famíliæ divínitus constitútæ, in qua omnes hómines absolutíssimum doméstiæ societátis, omnísque virtútis ac sanctitátis intueréntur exémplar. Talis quidem Família éxstitit Nazarethána illa, in qua, ántequam géntibus univérsis pleno lúmine emicuísset, Sol justítiæ erat abscónditus: nimírum Christus Deus, Servátor noster, cum Vírgine Matre et Joseph, viro sanctíssimo, qui erga Jesum patérno fungebátur múnere. Mínime dúbium est quin ex iis láudibus, quæ in societáte et consuetúdine doméstica ex mútuis caritátis offíciis, ex sanctitáte morum, ex pietátis exercitatióne proficiscúntur, máxima quæque enitúerit in sacra illa Família, quæ síquidem eárum futúra erat céteris documénto.
+ Ac proptérea benígno Providéntiæ consílio sic illa cónstitit, ut sínguli christiáni, qualicúmque conditióne vel loco, si ad eam ánimum advértant, fácile possint cujuscúmque virtútis exercéndæ habére causam et invitaméntum.
+
+℟. Ego autem mendícus sum et pauper: \* Dóminus sollícitus est mei. ℣. Labóres mánuum tuárum quia manducábis, beátus es, et bene tibi erit. — Dóminus.
+
+#### Lectio v
+
+HABENT revéra patresfamílias in Joseph vigilántiæ providentiǽque patérnæ præclaríssimam normam: habent matres in sanctíssima Vírgine Deípara amóris, verecúndiæ, submissiónis ánimi perféctæque fídei insígne spécimen: fílii vero famílias in Jesu, qui erat súbditus illis, habent divínum obediéntiæ exémplar quod admiréntur, colant, imiténtur. Qui nóbiles nati sunt, discent a Família régii sánguinis quómodo et in édita fortúna se témperent, et in afflícta retíneant dignitátem: qui dites, noscent ab ea quantum sint virtútibus posthabéndæ divítiæ. Operárii autem et ii omnes, qui familiárium angústiis ac tenuióre conditióne tam ácriter irritántur, si ad sanctíssimos illíus doméstiæ societátis consórtes respéctent, non déerit eis causa cur loco, qui sibi óbtigit, delecténtur pótius quam dóleant. Commúnes enim cum Sacra Família sunt illis labóres; commúnes curæ de vita quotidiána: débuit et Joseph de mercéde sua vitæ ratiónibus consúlere; imo ipsæ divínæ manus se fabrílibus exercuérunt. Nec mirum sane est si sapientíssimi hómines divítiis affluéntes, eas abjícere volúerint, sociámque cum Jesu, María et Joseph sibi elígere paupertátem.
+
+℟. Vulpes fóveas habent, et vólucres cæli nidos, \* Fílius autem hóminis non habet ubi caput reclínet. ℣. Pauper sum ego, et in labóribus a juventúte mea. — Fílius.
+
+#### Lectio vi
+
+QUIBUS e rebus jure meritóque apud cathólicos Sacræ Famíliæ cultus matúre invéctus, majus in dies síngulos increméntum capit. Id quidem probant tum christianórum sodalitátes sub invocatióne Sacræ Famíliæ institútæ, tum singuláres honóres ei réddíti, tum potíssimum a decessóribus Nostris ad excitándum erga eam pietá-

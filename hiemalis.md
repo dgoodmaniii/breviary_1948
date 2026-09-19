@@ -25185,3 +25185,26 @@ NOBIS autem revelávit Deus per Spíritum suum: Spíritus enim ómnia scrutátur
 *Cap. 5, 1-11*
 
 OMNINO audítur inter vos fornicátio, et talis fornicátio, qualis nec inter
+gentes, ita ut uxórem patris sui áliquis hábeat. Et vos infláti estis: et non magis luctum habuístis, ut tollátur de médio vestrum qui hoc opus fecit. Ego quidem absens córpore, præsens autem spíritu, jam judicávi ut præsens, eum, qui sic operátus est, in nómine Dómini nostri Jesu Christi, congregátis vobis et meo spíritu, cum virtúte Dómini nostri Jesu, trádere hujúsmodi sátanæ in intéritum carnis, ut spíritus salvus sit in die Dómini nostri Jesu Christi.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. Tria sunt múnera pretiósa, quæ obtulérunt Magi Dómino in die ista, et habent in se divína mystéria: \* In auro, ut ostendátur Regis poténtia: in thure, Sacerdótem magnum consídera: et in myrrha, Domínicam sepultúram. ℣. Salútis nostræ auctórem Magi veneráti sunt in cunábulis, et de thesáuris suis mýsticas ei múnerum spécies obtulérunt. — In.
+
+{RUBRIC: In die Octáva Epiphaníæ}
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum, et vox de cælo facta est. — Hic.
+
+{RUBRIC: Extra Octávam Epiphaníæ}
+
+{RUBRIC: Nisi resuménda sint Responsória de Fería II. [REF: p. 555]}
+
+℟. Auribus pércipe, Deus, lácrimas meas: ne síleas a me, remítte mihi: \* Quóniam íncola ego sum apud te, et peregrínus. ℣. Compláceat tibi, ut erípias me: Dómine, ad adjuvándum me festína. — Quóniam.
+
+#### Lectio ii
+
+NON est bona gloriátio vestra. Nescítis quia módicum ferméntum totam massam corrúmpit? Expurgáte vetus ferméntum, ut sitis nova conspérsio, sicut estis ázymi. Etenim Pascha nostrum immolátus est Christus. Itaque epulémur: non in ferménto véteri, neque in ferménto malítiæ, et nequítiæ: sed in ázymis sinceritátis et veritátis.
+
+{RUBRIC: Infra Octávam Epiphaníæ}
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.

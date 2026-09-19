@@ -7037,3 +7037,47 @@ Amen.
 {RUBRIC: Feria III post Dominicam I:} **Ant.** Ecce Dóminus véniet.
 
 {RUBRIC: Fer. III ante Vig. Nat. Dom.:} **Ant.** Ut cognoscámus, Dómine.
+
+### Psalmus 40
+
+BEATUS qui intélligit super egénum, et páuperem: \* in die mala liberábit eum Dóminus.
+
+Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra: \* et non tradat eum in ánimam inimicórum ejus.
+
+Dóminus opem ferat illi super lectum dolóris ejus: \* univérsum stratum ejus versásti in infirmitáte ejus.
+
+Ego dixi: Dómine, miserére mei: \* sana ánimam meam, quia peccávi tibi.
+
+Inimíci mei dixérunt mala mihi: \* Quando moriétur, et períbit nomen ejus?
+
+Et si ingrediebátur ut vidéret, vana loquebátur: \* cor ejus congregávit iniquitátem sibi.
+
+Egrediebátur foras, \* et loquebátur in idípsum.
+
+Advérsum me susurrábant omnes inimíci mei: \* advérsum me cogitábant mala mihi.
+
+Verbum iníquum constituérunt advérsum me: \* Numquid qui dormit non adjíciet ut resúrgat?
+
+Etenim homo pacis meæ, in quo sperávi: \* qui edébat panes meos, magnificávit super me supplantatiónem.
+
+Tu autem, Dómine, miserére mei, et resúscita me: \* et retríbuam eis.
+
+In hoc cognóvi quóniam voluísti me: \* quóniam non gaudébit inimícus meus super me.
+
+Me autem propter innocéntiam suscepísti: \* et confirmásti me in conspéctu tuo in ætérnum.
+
+Benedíctus Dóminus, Deus Israël, a século et usque in séculum: \* fiat, fiat.
+
+### Psalmus 41, i
+
+QUEMADMODUM desíderat cervus ad fontes aquárum: \* ita desíderat ánima mea ad te, Deus.
+
+Sitívit ánima mea ad Deum fortem vivum: \* quando véniam, et apparébo ante fáciem Dei?
+
+Fuérunt mihi lácrimæ meæ panes die ac nocte: \* dum dícitur mihi quotídie: Ubi est Deus tuus?
+
+Hæc recordátus sum, et effúdi in me ánimam meam: \* quóniam transíbo in locum tabernáculi admirábilis, usque ad domum Dei.
+
+In voce exsultatiónis, et confessiónis: \* sonus epulántis.
+
+Quare tristis es, ánima mea? \* et quare contúrbas me?

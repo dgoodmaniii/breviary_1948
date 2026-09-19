@@ -18498,3 +18498,32 @@ CUM esset desponsáta Mater Jesu María Joseph, ántequam convenírent, invénta
 {RUBRIC: Liber 1 Comment. in c. 1 Matth.}
 
 QUARE non de símplici vírgine, sed de desponsáta concípitur? Primum, ut per generatiónem Joseph, orígo Maríæ monstrarétur: secúndo, ne lapidarétur a Judǽis ut adúltera: tértio, ut in Ægýptum fúgiens habéret
+solátium. Mártyr Ignátius étiam quartam áddidit causam, cur a desponsáta concéptus sit: Ut partus, inquiens, ejus celarétur diábolo, dum eum putat non de vírgine, sed de uxóre generátum.
+
+℟. Sanctificámini hódie, et estóte paráti: quia die crástina vidébitis \* Majestátem Dei in vobis. ℣. Hódie sciétis quia véniet Dóminus, et mane vidébitis. — Majestátem.
+
+#### Lectio ii
+
+ANTEQUAM convenírent, invénta est in útero habens de Spíritu Sancto. Non ab álio invénta est, nisi a Joseph, qui pene licéntia maritáli futúræ uxóris ómnia nóverat. Quod autem dícitur, Antequam convenírent: non séquitur, ut póstea convénerint: sed Scriptúra quod factum non sit, osténdit.
+
+℟. Constántes estóte, vidébitis auxílium Dómini super vos: Judǽa et Jerúsalem, nolíte timére: \* Cras egrediémini, et Dóminus erit vobíscum. ℣. Sanctificámini, fílii Israël, et estóte paráti. — Cras.
+
+#### Lectio iii
+
+JOSEPH autem vir ejus, cum esset justus, et nollet eam tradúcere, vóluit occúlte dimíttere eam. Si quis fornicáriæ conjúngitur, unum corpus effícitur, et in lege præcéptum est, non solum reos, sed et cónscios críminum obnóxios esse peccáti: quómodo Joseph, cum crimen celáret uxóris, justus scríbitur? Sed hoc testimónium Maríæ est, quod Joseph sciens illíus castitátem, et admírans quod evénerat, celat siléntio, cujus mystérium nesciébat.
+
+℟. Sanctificámini, fílii Israël, dicit Dóminus: die enim crástina descéndet Dóminus, \* Et áuferet a vobis omnem languórem. ℣. Crástina die delébitur iníquitas terræ, et regnábit super nos Salvátor mundi. — Et. Glória Patri. — Et.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ} {RUBRIC: Duplex}
+
+**1** Judǽa et Jerúsalem, \* nolíte timére: cras egrediémini, et Dóminus erit vobíscum, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 44}
+
+**2** Hódie sciétis \* quia véniet Dóminus: et mane vidébitis glóriam ejus.
+
+**3** Crástina die \* delébitur iníquitas terræ: et regnábit super nos Salvátor mundi.
+
+**4** Dóminus véniet, \* occúrrite illi, dicéntes: Ma-

@@ -21879,3 +21879,27 @@ Gloriósa dicta sunt de te, \* cívitas Dei.
 Memor ero Rahab, et Babylónis \* sciéntium me.
 
 Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Omnes gentes, quascúmque fecísti, vénient, et adorábunt coram te, Dómine, et glorificábunt nomen tuum.
+
+℣. Propter glóriam nóminis tui, Dómine, líbera nos. ℟. Et propítius esto peccátis nostris propter nomen tuum.
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis}
+
+{RUBRIC: Sermo 15 super Cantica, circa médium}
+
+#### Lectio iv
+
+NON otióse Spíritus Sanctus nomen Sponsi óleo cómparat, cum ita dóceat sponsam ad Sponsum clamáre: Oleum effúsum nomen tuum. Oleum enim lucet, pascit et ungit. Fovet ignem, nutrit carnem, lenit dolórem: lux, cibus, medicína. Vide idem nunc et de Sponsi nómine: Lucet prædicátum, pascit recogitátum, invocátum lenit et ungit. Et percurrámus síngula. Unde putas in toto orbe tanta et tam súbita fídei lux, nisi de prædicáto nómine Jesu? Nonne in hujus nóminis luce Deus nos vocávit in admirábile lumen suum; quibus illuminátis, et in lúmine isto vidéntibus lumen, dicat mérito Paulus: Fuístis aliquándo ténebræ, nunc autem lux in Dómino?
+
+℟. Sperent in te, qui novérunt nomen tuum: \* Quóniam non dereliquísti quæréntes te, Dómine. ℣. Exsúrge, Dómine, ádjuva nos, et líbera nos propter nomen tuum. — Quóniam.
+
+#### Lectio v
+
+HOC dénique nomen coram régibus, et géntibus, et fíliis Israël portáre jussus est idem Apóstolus; et portábat nomen tamquam lumen, et illuminábat pátriam, et clamábat ubíque: Nox præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis, sicut in die honéste ambulémus. Et monstrábat ómnibus lucérnam super candelábrum, annúntians in omni loco Jesum, et hunc crucifíxum. Quómodo lux ista resplénduit ac perstrínxit cunctórum intuéntium óculos, quando de ore Petri, tamquam fulgur egrédiens,

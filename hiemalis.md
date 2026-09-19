@@ -16451,3 +16451,48 @@ In sæculórum sæcula. Amen.
 ℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
 
 **Ad Bened. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habé-
+bis in útero Fílium Dei, allelúja.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccatórum nostrórum perículis, te mereámur protegénte éripi, te liberánte salvári: Qui vivis.
+
+{RUBRIC: Ad Primam in ℟. br. ℣. Qui ventúrus es in mundum; et ad absolutiónem Capítuli Léctio brevis Dómine, miserére, de Témpore Advéntus, ut in Psaltério. 60}
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt Gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Rom. 13, 12*
+
+NOX præcéssit, dies autem appropinquávit: abjiciámus ergo ópera tenebrárum, et induámur arma lucis.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in bene-plácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+### Ad Nonam
+
+#### Capit.
+
+*Rom. 13, 13-14*
+
+SICUT in die honéste ambulémus, non in comessatiónibus et ebrietátibus, non in cubílibus et impudicítiis, non in contentióne et æmulatióne; sed induímini Dóminum Jesum Christum.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super te. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super te. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+### Ad Vesperas
+
+{RUBRIC: Omnia ut in Vésperis Sábbati præc. 319, prǽter sequéntia:}
+
+{RUBRIC: Psalmi de Dominica, ut in Psaltério. 70}
+
+℣. Roráte, cæli, désuper et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Ne tímeas, María, \* invenísti enim grátiam apud Dóminum: ecce concípies et páries fílium, allelúja.
+
+{RUBRIC: Hymni, Antíphonæ ad Matutínum, Versus, étiam Nocturnórum, Responsória brévia et Léctio brevis supérius indicáta dicúntur étiam in relíquis Domínicis Advéntus.}

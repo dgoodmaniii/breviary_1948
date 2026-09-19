@@ -28193,3 +28193,37 @@ NON ergo absúrde Matthǽus, étiam quod vulgo possit intélligi, per álios fac
 ℟. Tentávit Dóminus Abraham, et dixit ad eum: \* Tolle fílium tuum, quem díligis, Isaac, et offer illum ibi in holocáustum super unum móntium, quem díxero tibi. ℣. Vocátus quoque a Dómino, respóndit, Adsum: et ait ei Dóminus. — Tolle. Glória. Tolle.
 
 ℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Dómine, \* puer meus jacet paralýticus in domo, et male torquétur: Amen dico tibi, ego véniam, et curábo eum.
+
+#### Oratio
+
+DEUS, qui culpa offénderis, pœniténtia placáris: preces pópuli tui supplicántis propítius réspice; et flagélla tuæ iracúndiæ, quæ pro peccátis nostris merémur, avérte. Per Dóminum.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Dómine, \* non sum dignus ut intres sub tectum meum: sed tantum dic verbo, et sanábitur puer meus.
+
+#### Oratio
+
+PARCE, Dómine, parce pópulo tuo: ut dignis flagellatiónibus castigátus, in tua miseratióne respíret. Per Dóminum.
+
+---
+
+## Feria Sexta post Cineres
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+*Cap. 5, 43-48; 6, 1-4*
+
+#### Lectio i
+
+IN illo témpore: Dixit Jesus discípulis suis: Audístis quia dictum est: Díliges próximum tuum, et ódio habébis inimícum tuum. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 1 Comment. in cap. 5 et 6 Matthǽi}
+
+EGO autem dico vobis: Dilígite inimícos vestros; benefácite his qui odérunt vos. Multi præcépta Dei, imbecillitáte sua, non Sanctórum víribus æstimántes, putant esse impossibília quæ præcépta sunt: et dicunt sufficere virtútibus, non odísse inimícos: céterum dilígere, plus præcípi, quam humána natúra patiátur. Sciéndum est ergo, Christum non impossibília præcípere, sed perfécta. Quæ fecit David in Saul, et in Absalom: Stéphanus quoque Martyr pro inimícis lapidántibus deprecátus est: et Paulus anáthema cupit esse pro persecutóribus suis. Hæc autem Jesus et dócuit et fecit, dicens: Pater, ignósce illis: quod enim fáciunt, nésciunt.
+
+℟. Angelus Dómini vocávit Abraham, dicens: \* Ne exténdas manum tuam super púerum, eo quod tímeas Dóminum. ℣. Cumque extendísset manum ut immoláret fílium, ecce Angelus Dómini de cælo clamávit, dicens. — Ne.

@@ -26236,3 +26236,22 @@ ET ne quis supergrediátur, neque circumvéniat in negótio fratrem suum: quóni
 #### Lectio iii
 
 DE caritáte autem fraternitátis non necésse habémus scríbere vobis: ipsi enim vos a Deo didicístis, ut diligátis ínvicem. Etenim illud fácitis in omnes fratres in univérsa Macedónia. Rogámus autem vos, fratres, ut abundétis magis, et óperam detis, ut quiéti sitis, et ut vestrum negótium agátis, et operémini mánibus vestris, sicut præcépimus vobis: et
+ut honéste ambulétis ad eos qui foris sunt: et nullíus áliquid desiderétis.
+
+℟. Factus est mihi Dóminus in refúgium: \* Et Deus meus in auxílium spei meæ. ℣. Erípuit me de inimícis meis fortíssimis, et factus est Dóminus protéctor meus. — Et. Glória Patri. Et.
+
+### Sabbato
+
+### Incipit Epistola secunda beati Pauli Apostoli ad Thessalonicenses
+
+#### Lectio i
+
+*Cap. 1, 1-12*
+
+PAULUS, et Silvánus, et Timótheus Ecclésiæ Thessalonicénsium in Deo Patre nostro, et Dómino Jesu Christo. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo. Grátias ágere debémus semper Deo pro vobis, fratres, ita ut dignum est, quóniam supercréscit fides vestra, et abúndat cáritas uniuscujúsque vestrum in ínvicem: ita ut et nos ipsi in vobis gloriémur in Ecclésiis Dei, pro patiéntia vestra, et fide, et in ómnibus persecutiónibus vestris, et tribulatiónibus, quas sustinétis in exémplum justi judícii Dei, ut digni habeámini in regno Dei, pro quo et patímini.
+
+℟. Misericórdiam et judícium cantábo tibi, Dómine: \* Psallam et intélligam in via immaculáta, quando vénies ad me. ℣. Perambulábam in innocéntia cordis mei, in médio domus meæ. — Psallam.
+
+#### Lectio ii
+
+SI tamen justum est apud Deum retribúere tribulatiónem iis, qui vos tríbulant: et vobis, qui tribulámini, réquiem nobíscum in revelatióne Dómini Jesu de cælo cum Angelis virtútis ejus, in flamma ignis dantis vindíctam iis, qui non novérunt Deum, et qui non obédiunt Evangélio Dómini nostri Jesu Christi. Qui pœnas dabunt in intéritu ætérnas a fácie Dómini, et a glória virtútis ejus: cum vénerit glorificári in sanctis suis, et admirábilis fíeri in ómnibus, qui credidérunt, quia créditum est testimónium nostrum super vos in die illo. In quo étiam orámus semper pro vobis: ut dignétur vos vocatióne sua Deus noster, et ímpleat omnem voluntátem bonitátis, et opus fídei in virtúte, ut clarificétur nomen Dómini nostri Jesu Christi in vobis, et vos in illo, secúndum grátiam Dei nostri, et Dómini Jesu Christi.

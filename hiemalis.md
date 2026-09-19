@@ -28775,3 +28775,41 @@ NON enim est distínctio Judǽi et Grǽci: nam idem Dóminus ómnium, dives in o
 ISAÍAS enim dicit: Dómine, quis crédidit audítui nostro? Ergo fides ex audítu, audítus autem per verbum Christi. Sed dico: Numquid non audiérunt? Et quidem in omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum.
 
 ℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+##### In II Vesperis
+
+{RUBRIC: Antiphónæ, Capítulum et Hymnus de Laudibus.} [REF: p. 682]
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Magnif. Ant.** Cum pervenísset \* beátus Andréas ad locum, ubi crux paráta erat, exclamávit et dixit: O bona crux, diu desideráta, et jam concupiscénti ánimo præparáta: secúrus et gaudens vénio ad te, ita et tu exsúltans suscípias me discípulum ejus, qui pepéndit in te.
+
+---
+
+## Festa Decembris
+
+### Die 2 Decembris
+
+#### S. Bibianæ
+
+{RUBRIC: Virginis et Mártyris}
+
+{RUBRIC: Semiduplex [111]}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+###### Oratio
+
+DEUS, ómnium largítor bonórum, qui in fámula tua Bibiána cum virginitátis flore martýrii palmam conjunxísti: mentes nostras ejus intercessióne tibi caritáte conjúnge; ut, amótis perículis, prǽmia consequámur ætérna. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+BIBIÁNA, virgo Romána, nóbili génere nata, christiána fide nobílior fuit. Ejus enim pater Flaviánus sub Juliáno Apóstata impiíssimo tyránno expræféctus, servilibúsque notis compúnctus, ad aquas Taurínas deportátus, Martyr occúbuit. Mater Dafrósa et fíliæ, primum conclúsæ domi, ut inédia conficeréntur; mox relegáta mater extra Urbem cápite plexa est. Mórtuis autem piis paréntibus, Bibiána cum soróre sua Demétria bonis ómnibus exspoliátur; Aproniánus Urbis prǽtor, pecúniis ínhians, soróres perséquitur; quas humána prorsus ope destitútas, Deo mirabíliter, qui dat escam esuriéntibus, enutriénte, cum vivacióres vegetiorésque conspexísset, veheménter est admirátus.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.

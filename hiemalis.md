@@ -6064,3 +6064,61 @@ Remítte mihi, ut refrígerer priúsquam ábeam, \* et ámplius non ero.
 **Absolutio.** A vínculis.
 
 **Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absolutio.** Ipsíus píetas et.
+
+##### In Feriis, cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis, sine Homilia:
+
+**Bened.** 1 Deus Pater. 2 Christus perpétuæ. 3 Ignem sui amóris.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+### Ad Laudes I
+
+*In Feriis per Annum, extra hebdomadas Septuagesimæ, Sexagesimæ et Quinquagesimæ ac Vigilias communes occurrentibus, atque in Festis quolibet anni tempore celebrandis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Cantáte \* † Dómino, et benedícite nómini ejus.
+
+### Psalmus 95
+
+CANTATE † Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte tua.
+
+**Ant.** Cantáte Dómino, et benedícite nómini ejus.

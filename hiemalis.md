@@ -27595,3 +27595,22 @@ Regnans per omne sǽculum. Amen.
 *Cap. 7, 1-5, 10-14, 17*
 
 DIXIT Dóminus ad Noë: Ingrédere tu, et omnis domus tua in arcam: te enim vidi justum coram me in generatióne hac. Ex ómnibus animántibus mundis tolles septéna et septéna, másculum et féminam: de animántibus vero immúndis duo et duo, másculum et féminam. Sed et de volatílibus cæli septéna et se-
+ptena, másculum et féminam: ut salvétur semen super fáciem univérsæ terræ. Adhuc enim, et post dies septem ego pluam super terram quadragínta diébus et quadragínta nóctibus, et delébo omnem substántiam, quam feci, de superfície terræ.
+
+℟. In artículo diéi illíus ingréssus est Noë in arcam et fílii ejus, \* Uxor illíus et uxóres filiórum ejus. ℣. Deléta sunt univérsa de terra, remánsit autem solus Noë, et qui cum eo erant in arca. — Uxor.
+
+#### Lectio ii
+
+FECIT ergo Noë ómnia, quæ mandáverat ei Dóminus. Cumque transíssent septem dies, aquæ dilúvii inundavérunt super terram. Anno sexcentésimo vitæ Noë, mense secúndo, séptimo décimo die mensis, rupti sunt omnes fontes abýssi magnæ, et cataráctæ cæli apértæ sunt: et facta est plúvia super terram quadragínta diébus et quadragínta nóctibus.
+
+℟. Recordátus Dóminus Noë, addúxit spíritum super terram, et imminútæ sunt aquæ: \* Et prohíbitæ sunt plúviæ de cælis. ℣. Reversǽque sunt aquæ de terra eúntes et redeúntes, et cœpérunt mínui post centum quinquagínta dies. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+#### Lectio iii
+
+IN artículo diéi illíus ingréssus est Noë, et Sem, et Cham, et Japheth, fílii ejus: uxor illíus et tres uxóres filiórum ejus cum eis in arcam: ipsi et omne ánimal secúndum genus suum, universáque juménta in génere suo, et omne quod movétur super terram in génere suo, cunctúmque volátile secúndum genus suum. Factúmque est dilúvium quadragínta diébus super terram: et multiplicátæ sunt aquæ, et elevavérunt arcam in sublíme a terra.
+
+℟. Quadragínta dies et noctes apérti sunt cæli, et ex omni carne habénte spíritum vitæ ingréssa sunt in arcam: \* Et clausit a foris óstium Dóminus. ℣. In artículo diéi illíus ingréssus est Noë in arcam et fílii ejus, et uxor illíus et uxóres filiórum ejus. — Et. Glória Patri. Et.
+
+**Ad Magnif. Ant.** Si culmen \* veri honóris quǽritis, ad illam cæléstem pátriam quantócius properáte.

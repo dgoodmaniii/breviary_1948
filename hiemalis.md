@@ -33043,3 +33043,48 @@ DEUS, qui ad animárum salútem beátum Francíscum Confessórem tuum atque Pont
 **Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
 
 ℣. Spécie tua et.
+
+**Oratio** C 1
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Martínæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: In I vel II Vesperis, quando dicéndæ sunt, dícitur Hymnus Martínæ célebri usque ad Quærit præmia; et in fine A nobis ábigas. Ad Matutínum autem incípitur a Non illam usque in finem; si autem dicéndæ sunt tantum II Vésperæ, ad Matutínum dícitur Hymnus Martínæ ut supra; ad Laudes Hymnus Non illam; ad Vésperas Tu natále de Laudibus; secus vero dicúntur ut infra.}
+
+### Ad Matutinum
+
+**Invit.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+MARTÍNÆ célebri pláudite nómini,
+Cives Romúlei, pláudite glóriæ:
+Insígnem méritis dícite Vírginem,
+Christi dícite Mártyrem.
+
+Hæc dum conspícuis orta paréntibus
+Luxus illécebras, dítibus áffluit
+Faustæ munéribus domus,
+Vitæ despíciens cómmoda, dédicat
+Se rerum Dómino, et munífica manu
+Christi paupéribus distríbuens opes,
+Quærit præmia cælitum.
+
+NON illam crúcians úngula, non feræ,
+Non virgæ horríbili vúlnere cómmovent;
+Hinc lapsi e Súperum sédibus, Angeli
+Cælésti dape récreant.
+
+Quin et depósita sævítie leo
+Se rictu plácido prójicit ad pedes:
+Te, Martína, tamen dans gládius neci
+Cæli cœtibus ínserit.
+
+Te, thuris rédolens ara vapóribus,
+Quæ fumat, précibus júgiter ínvocat,
+Et falsum périmens auspícium, tui
+Delet nóminis ómine.
+
+A nobis ábigas lúbrica gáudia,
+Tu, qui Martýribus dexter ades, Deus
+Une et Trine: tuis da fámulis jubar,
+Quo clemens ánimos beas. Amen.

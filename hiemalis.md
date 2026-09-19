@@ -24150,3 +24150,30 @@ HABENT revéra patresfamílias in Joseph vigilántiæ providentiǽque patérnæ 
 #### Lectio vi
 
 QUIBUS e rebus jure meritóque apud cathólicos Sacræ Famíliæ cultus matúre invéctus, majus in dies síngulos increméntum capit. Id quidem probant tum christianórum sodalitátes sub invocatióne Sacræ Famíliæ institútæ, tum singuláres honóres ei réddíti, tum potíssimum a decessóribus Nostris ad excitándum erga eam pietá-
+tis stúdium impertíta privilégia et grátiæ. Hujúsmodi cultus magno in honóre hábitus est jam inde a sǽculo décimo séptimo, latéque per Itáliam, Gálliam et Bélgium propagátus, totam fere Európam pervásit: deínde prætergréssus vastos Océani tractus, in América per Canadénsem regiónem sese exténdit, faustísque efflóruit auspíciis. Síquidem nihil magis salutáre aut éfficax famíliis christiánis cogitári potest exémplo Sacræ Famíliæ, quæ perfectiónem absolutionémque compléctitur ómnium virtútum domesticárum. Sic implorátí inter doméscios paríetes adsint propítii Jesus, María et Joseph, caritátem alant, mores regant, ad virtútem próvocent imitatióne sui, et quæ úndique instant mortáles ærúmnæ, eas leniéndo fáciant tolerabilióres. — Ad cultum vero Sacræ Famíliæ augéndum Leo Papa décimus tértius christiánas famílias éidem Sacræ Famíliæ consecrári præscrípsit: Benedíctus autem décimus quintus Offícium et Missam ad univérsam Ecclésiam exténdit.
+
+℟. Cum in forma Dei esset, semetípsum exinanívit, \* Formam servi accípiens. ℣. Humiliávit semetípsum, factus obédiens usque ad mortem. — Formam. Glória. Formam.
+
+### In III Nocturno
+
+**Ant.** Ibant paréntes Jesu \* per omnes annos in Jerúsalem in die solémni Paschæ.
+
+#### Psalmus 95
+
+CANTÁTE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in

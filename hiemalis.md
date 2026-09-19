@@ -14994,3 +14994,68 @@ Et vindíctam retríbuet in hostes eórum, \* et propítius erit terræ pópuli 
 **Ant.** In servis suis miserébitur Dóminus: \* et propítius erit terræ pópuli sui.
 
 **Ant.** Laudáte. †
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:}
+
+**Ant.** Exspectétur, sicut plúvia, elóquium Dómini: et descéndat, sicut ros, super nos Deus noster.
+
+**Ant.** Parátus esto.
+
+#### Psalmus 150
+
+LAUDÁTE † Dóminum in sanctis ejus: \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus: \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ: \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro: \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus: laudáte eum in cýmbalis jubilatiónis: \* omnis spíritus laudet Dóminum.
+
+**Ant.** Laudáte Dóminum secúndum multitúdinem magnitúdinis ejus.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:}
+
+**Ant.** Parátus esto, Israël, in occúrsum Dómini, quóniam venit.
+
+#### In Adventu
+
+#### Capitulum
+
+*Is. 2, 3*
+
+VENÍTE, et ascendámus ad montem Dómini, et ad domum Dei Jacob, et docébit nos vias suas, et ambulábimus in sémitis ejus: quia de Sion exíbit lex, et verbum Dómini de Jerúsalem.
+
+#### Hymnus
+
+EN clara vox redárguit
+Obscúra quæque, pérsonans:
+Procul fugéntur sómnia:
+Ab alto Jesus prómicat.
+
+Mens jam resúrgat, tórpida
+Non ámplius jacens humi:
+Sidus refúlget jam novum,
+Ut tollat omne nóxium.
+
+En Agnus ad nos míttitur
+Laxáre gratis débitum:
+Omnes simul cum lácrimis
+Precémur indulgéntiam;
+
+Ut, cum secúndo fúlserit,
+Metúque mundum cínxerit,
+Non pro reátu púniat,
+Sed nos pius tunc prótegat.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In séculórum sécula. Amen.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicúntur sequéntes}

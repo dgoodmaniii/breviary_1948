@@ -19005,3 +19005,36 @@ humáni, ut invéntor mortis diábolus, per ipsam, quam vícerat, vincerétur.
 #### Lectio v
 
 IN quo conflíctu pro nobis ínito, magno et mirábili æquitátis jure certátum est, dum omnípotens Dóminus cum sævíssimo hoste non in sua majestáte, sed in nostra congréditur humilitáte: objíciens ei eámdem formam, eamdémque natúram, mortalitátis quidem nostræ partícipem, sed peccáti totíus expértem. Aliénum quippe ab hac nativitáte est, quod de ómnibus légitur: Nemo mundus a sorde, nec infans, cujus est uníus diéi vita super terram. Nihil ergo in istam singulárem nativitátem de carnis concupiscéntia transívit, nihil de peccáti lege manávit. Virgo régia Davídicæ stirpis elígitur, quæ sacro gravidánda fœtu, divínam humanámque prolem prius concíperet mente,
+quam córpore. Et ne supérni ignára consílii ad inusitátos pavéret affátus, quod in ea operándum erat a Spíritu Sancto, collóquio discit angélico: nec damnum credit pudóris, Dei Génitrix mox futúra.
+
+℟. Beáta Dei Génitrix María, cujus víscera intácta pérmanent: \* Hódie génuit Salvatórem séculi. ℣. Beáta, quæ crédidit: quóniam perfécta sunt ómnia, quæ dicta sunt ei a Dómino. — Hódie.
+
+**Bened.** Ignem sui amóris.
+
+#### Lectio vi
+
+AGÁMUS ergo, dilectíssimi, grátias Deo Patri, per Fílium ejus in Spíritu Sancto: qui propter multam caritátem suam, qua diléxit nos, misértus est nostri: et cum essémus mórtui peccátis, convivificávit nos Christo, ut essémus in ipso nova creatúra novúmque figméntum. Deponámus ergo véterem hóminem cum áctibus suis: et adépti participatiónem generatiónis Christi, carnis renuntiémus opéribus. Agnósce, o Christiáne, dignitátem tuam: et divínæ consors factus natúræ, noli in véterem vilitátem degéneri conversatióne redíre. Meménto, cujus cápitis et cujus córporis sis membrum. Remíníscere, quia
+
+erútus de potestáte tenebrárum, translátus es in Dei lumen et regnum.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia. Glória Patri. Quia.
+
+#### In III Nocturno
+
+**Ant.** Ipse invocábit \* me, allelúja: Pater meus es tu, allelúja.
+
+#### Psalmus 88
+
+MISERICÓRDIAS Dómini in ætérnum cantábo.
+
+In generatiónem et generatiónem \* annuntiábo veritátem tuam in ore meo.
+
+Quóniam dixísti: In ætérnum misericórdia ædificábitur in cælis: \* præparábitur véritas tua in eis.
+
+Dispósui testaméntum eléctis meis, \* jurávi David, servo meo:
+
+Usque in ætérnum præparábo semen tuum. \* Et ædificábo in generatiónem et generatiónem sedem tuam.
+
+Confitebúntur cæli mirabília tua, Dómine: \* étenim veritátem tuam in ecclésia sanctórum.
+
+Quóniam quis in núbibus æquábitur Dómino: \* símilis erit Deo in fíliis Dei?

@@ -13507,3 +13507,99 @@ Misericórdia et véritas præcédent fáciem tuam: \* beátus pópulus, qui sci
 Dómine, in lúmine vultus tui ambulábunt, et in nómine tuo exsultábunt tota die: \* et in justítia tua exaltabúntur.
 
 Quóniam glória virtútis eórum tu es: \* et in beneplácito tuo exaltábitur cornu nostrum.
+
+Quia Dómini est assúmptio nostra, \* et Sancti Israël, regis nostri.
+
+#### Psalmus 88, ii
+
+TUNC locútus es in visióne sanctis tuis, et dixísti: \* Pósui adjutórium in poténte: et exaltávi eléctum de plebe mea.
+
+Invéni David, servum meum: \* óleo sancto meo unxi eum.
+
+Manus enim mea auxiliábitur ei: \* et bráchium meum confortábit eum.
+
+Nihil profíciet inimícus in eo, \* et fílius iniquitátis non appónet nocére ei.
+
+Et concídam a fácie ipsíus inimícos ejus: \* et odiéntes eum in fugam convértam.
+
+Et véritas mea, et misericórdia mea cum ipso: \* et in nómine meo exaltábitur cornu ejus.
+
+Et ponam in mari manum ejus: \* et in flumínibus déxteram ejus.
+
+Ipse invocábit me: Pater meus es tu: \* Deus meus, et suscéptor salútis meæ.
+
+Et ego primogénitum ponam illum \* excélsum præ régibus terræ.
+
+In ætérnum servábo illi misericórdiam meam: \* et testaméntum meum fidéle ipsi.
+
+Et ponam in séculum séculi semen ejus: \* et thronum ejus sicut dies cæli.
+
+Si autem derelíquerint fílii ejus legem meam: \* et in judíciis meis non ambuláverint:
+
+Si justítias meas profanáverint: \* et mandáta mea non custodíerint:
+
+Visitábo in virga iniquitátes eórum: \* et in verbéribus peccáta eórum.
+
+Misericórdiam autem meam non dispérgam ab eo: \* neque nocébo in veritáte mea:
+
+Neque profanábo testaméntum meum: \* et quæ procédunt de lábiis meis, non fáciam írrita.
+
+Semel jurávi in sancto meo: Si David méntiar: \* semen ejus in ætérnum manébit.
+
+Et thronus ejus sicut sol in conspéctu meo, \* et sicut luna perfécta in ætérnum: et testis in cælo fidélis.
+
+#### Psalmus 88, iii
+
+TU vero repulísti et despexísti: \* distulísti Christum tuum.
+
+Evertísti testaméntum servi tui: \* profanásti in terra Sanctuárium ejus.
+
+Destruxísti omnes sepes ejus: \* posuísti firmaméntum ejus formídinem.
+
+Diripuérunt eum omnes transeúntes viam: \* factus est oppróbrium vicínis suis.
+
+Exaltásti déxteram deprimméntium eum: \* lætificásti omnes inimícos ejus.
+
+Avertísti adjutórium gládii ejus: \* et non es auxiliátus ei in bello.
+
+Destruxísti eum ab emundatióne: \* et sedem ejus in terram collisísti.
+
+Minorásti dies témporis ejus: \* perfudísti eum confusióne.
+
+Usquequo, Dómine, avértis in finem: \* exardéscet sicut ignis ira tua?
+
+Memoráre quæ mea substántia: \* numquid enim vane constituísti omnes fílios hóminum?
+
+Quis est homo, qui vivet, et non vidébit mortem: \* éruet ánimam suam de manu ínferi?
+
+Ubi sunt misericórdiæ tuæ antíquæ, Dómine, \* sicut jurásti David in veritáte tua?
+
+Memor esto, Dómine, oppróbrii servórum tuórum \* (quod contínui in sinu meo) multárum géntium.
+
+Quod exprobravérunt inimíci tui, Dómine, \* quod exprobravérunt commutatiónem Christi tui.
+
+Benedíctus Dóminus in ætérnum: \* fiat, fiat.
+
+**Per Annum:** **Ant.** Misericórdia et véritas præcédent fáciem tuam, Dómine.
+
+{RUBRIC: In Officio feriali Adventus}
+
+{RUBRIC: Feria VI post Dominicam I:} **Ant.** Ecce véniet Prophéta magnus, et ipse renovábit Jerúsalem, allelúja.
+
+{RUBRIC: Fer. VI ante Vig. Nat. Dom.:} **Ant.** Ego autem ad Dóminum aspíciam, et exspectábo Deum Salvatórem meum.
+
+#### Capitulum
+
+*Is. 14, 1*
+
+PROPE est ut véniat tempus ejus, et dies ejus non elongabúntur: miserébitur enim Dóminus Jacob, et Israël salvábitur.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super te. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super te. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}

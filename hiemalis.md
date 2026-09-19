@@ -30117,3 +30117,16 @@ ATQUE illud in primis solémne quoque fuit iísdem decessóribus nostris, doctr�
 *Cap. 1, 26-28*
 
 IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad
+Vírginem desponsátam viro cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Tharásii Epíscopi}
+
+{RUBRIC: De Præsentatione Deíparæ}
+
+QUIBUS te láudibus cumulábimus, María? O puélla immaculáta; o virgo impollúta; o mulíerum ornaméntum, filiárum nitor! O mater Virgo sancta, tu benedícta inter mulíeres; tu celebráta propter innocéntiam; tu obsignáta virginitáte. Tu Adámi maledícti expiátio; tu débiti Hevæ solútio. Tu Abélis puríssima oblátio; primogenitórum deléctus; immaculátum sacrifícium. Tu Enos in Deum spes non pudóre suffúsa; tu Enoch ínita grátia et in secúram vitam migrátio. Tu Noë arca, et secúndæ regeneratiónis apud Deum conciliátio. Tu regni et sacerdótii Melchísedech perillústris splendor; tu Abrahámi firma fidúcia et promissiónis futúræ posteritátis óbsequens fides. Tu Isaac novum sacrifícium et rationále holocáustum; tu Jacob in scalam ascénsus causa et fecunditátis in duódecim tribus permanéntis expréssio nobilíssima. Tu Judæ apparuísti secúndum stirpem fília; tu Joséphi pudicítia et véteris Ægýpti, nimírum synagógæ Judæórum, evérsio, o Immaculáta! Tu Móyses ejusdémque legislatóris liber divínitus concinnátus, in quo scriptum est sacraméntum regeneratiónis, et divínis dígitis inscúlpta in tábulis lex est tamquam in monte Sina, ubi novus Israël ab intelligibílium Ægyptiórum servitúte vindicábitur, quemádmodum antíquus pópulus in solitúdine manna et aqua de petra satiátus est, petra autem erat Christus e tuo grémio proditúrus tamquam sponsus de thálamo. Tu Aarónis virga floréscens; tu es Davídis fília fímbriis áureis circumvestíta vário ornátu nitéscens.
+
+℟. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons signátus: \* Emissiónes tuæ paradísus, o María. ℣. Aperi mihi, soror mea, amíca mea, colúmba mea, immaculáta mea. — Emissiónes.
+
+#### Lectio viii
+
+TU es prophetárum spéculum et rerum ab illis prænuntiatárum éxitus. Te eníxe Ezéchiel vaticínans appellávit portam clausam, per quam nemo hóminum úmquam trans-

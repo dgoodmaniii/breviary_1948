@@ -24525,3 +24525,28 @@ MAGNUM sacraméntum: in præsépi jacébat, et Magos ab Oriénte ducébat. Absco
 #### Lectio vi
 
 TIMUIT enim eum rex Heródes, eísdem sibi Magis nuntiántibus, cum adhuc quærerent párvulum, quem cognóverant cælo teste jam natum. Quid erit tribúnal judicántis, quando supérbos reges cunábula terrébant infántis? Quanto consúltius reges, non sicut Heródes interfícere quærant, sed sicut Magi pótius adoráre delecténtur; jam præsértim eum, qui et ipsam mortem, quam cupiébat inimícus inférre, étiam pro ipsis inimícis ab inimícis sustínuit, eámque in suo córpore oc-
+císus occídit. Pie tímeant reges ad Patris déxteram jam sedéntem, quem rex ímpius tímuit adhuc matris úbera lambéntem.
+
+℟. Magi véniunt ab Oriénte Jerosólymam, quæréntes, et dicéntes: Ubi est qui natus est, cujus stellam vídimus? \* Et vénimus adoráre Dóminum. ℣. Vídimus stellam ejus in Oriénte. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 2, 1-12*
+
+CUM natus esset Jesus in Béthlehem Juda in diébus Heródis regis, ecce Magi ab Oriénte venérunt Jerosólymam, dicéntes: Ubi est qui natus est Rex Judæórum? Et réliqua.
+
+{RUBRIC: De Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 10 in Evang.}
+
+NATIVITÁTE Regis nostri cógnita, Heródes ad cállida arguménta convértitur; et ne terréno regno privarétur, renuntiári sibi, ubi puer inveniátur, póstulat. Adoráre eum velle se símulat, ut hunc, si inveníri possit, exstínguat. Sed quanta est humána malítia contra consílium divinitátis? Scriptum quippe est: Non est sapiéntia, non est prudéntia, non est consílium contra Dóminum. Nam ea, quæ appáruit stella, Magos perdúcit: natum Regem repériunt, múnera déferunt; et ne redíre ad Heródem débeant, in somnis admonéntur. Sicque fit, ut Jesum, quem quærit Heródes, inveníre non possit. Cujus persóna qui álii, quam hypócritæ designántur, qui dum ficte quærunt, inveníre Dóminum numquam meréntur?
+
+℟. Stella, quam víderant Magi in Oriénte, antecedébat eos, donec venírent ad locum, ubi puer erat: \* Vidéntes autem eam, gavísi sunt gáudio magno. ℣. Et intrántes domum, invenérunt púerum cum María matre ejus, et procidéntes adoravérunt eum. — Vidéntes.
+
+#### Lectio viii
+
+SED inter hæc sciéndum, quod Priscillianístæ hærétici nasci unumquémque hóminem sub constitutiónibus stellárum putant: et hoc in adjutórium sui erróris assúmunt, quod nova stella éxiit cum Dóminus in carne appáruit; cujus fuísse fatum eámdem, quæ appáruit, stellam putant. Sed si Evan-

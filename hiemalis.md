@@ -27168,3 +27168,28 @@ TULIT ergo Dóminus Deus hóminem, et pósuit eum in paradíso voluptátis, ut o
 #### Lectio ii
 
 FORMÁTIS ígitur, Dóminus Deus, de humo cunctis animántibus ter-
+ræ, et univérsis volatílibus cæli, addúxit ea ad Adam, ut vidéret quid vocáret ea: omne enim quod vocávit Adam ánimæ vivéntis, ipsum est nomen ejus. Appellavítque Adam nomínibus suis cuncta animántia, et univérsa volatília cæli, et omnes béstias terræ: Adæ vero non inveniebátur adjútor símilis ejus.
+
+℟. Dixit Dóminus Deus: Non est bonum hóminem esse solum: \* Faciámus ei adjutórium símile sibi. ℣. Adæ vero non inveniebátur adjútor símilis sibi: dixit vero Deus. — Faciámus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Faciámus.}
+
+#### Lectio iii
+
+IMMÍSIT ergo Dóminus Deus sopórem in Adam: cumque obdormísset, tulit unam de costis ejus, et replévit carnem pro ea. Et ædificávit Dóminus Deus costam, quam túlerat de Adam, in mulíerem: et addúxit eam ad Adam. Dixítque Adam: Hoc nunc, os ex óssibus meis, et caro de carne mea: hæc vocábitur Virágo, quóniam de viro sumpta est. Quam ob rem relínquet homo patrem suum, et matrem, et adhærébit uxóri suæ: et erunt duo in carne una.
+
+℟. Immísit Dóminus sopórem in Adam, et tulit unam de cóstis ejus: \* Et ædificávit costam, quam túlerat Dóminus de Adam, in mulíerem, et addúxit eam ad Adam, ut vidéret quid vocáret eam: \* Et vocávit nomen ejus Virágo, quia de viro sumpta est. ℣. Cumque obdormísset, tulit unam de cóstis ejus, et replévit carnem pro ea. — Et ædificávit. Glória Patri. Et vocávit.
+
+**Ad Magnif. Ant.** Dixit autem paterfamílias: \* Amíce, non fácio tibi injúriam: nonne ex denário convenísti mecum? tolle quod tuum est, et vade.
+
+---
+
+### Feria Quarta
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 3, 1-20*
+
+SED et serpens erat callídior cunctis animántibus terræ quæ fécerat Dóminus Deus. Qui dixit ad mulíerem: Cur præcépit vobis Deus ut non comederétis de omni ligno paradísi? Cui respóndit múlier: De fructu lignórum, quæ sunt in paradíso, véscimur: de fructu vero ligni, quod est in médio paradísi, præcépit nobis Deus ne comederémus: et ne tangerémus illud, ne forte moriámur. Dixit autem

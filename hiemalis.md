@@ -31381,7 +31381,9 @@ Deo Patri cum Fílio,
 Sancto simul Paráclito,
 In sæculórum sǽcula. Amen.
 
-℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.**Ad Magnif. Ant.** Beáta Agnes \* in médio flammárum expánsis mánibus orábat: Te déprecor, omnípotens, adoránde, coléende, Pater metuénde, quia per sanctum Fílium tuum evási minas sacrílegi tyránni, et carnis spurcítias immaculáto calle transívi: et ecce vénio ad te, quem amávi, quem quæsívi, quem semper optávi.
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+**Ad Magnif. Ant.** Beáta Agnes \* in médio flammárum expánsis mánibus orábat: Te déprecor, omnípotens, adoránde, coléende, Pater metuénde, quia per sanctum Fílium tuum evási minas sacrílegi tyránni, et carnis spurcítias immaculáto calle transívi: et ecce vénio ad te, quem amávi, quem quæsívi, quem semper optávi.
 
 #### Oratio
 
@@ -31478,4 +31480,38 @@ Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de vi
 
 Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
 
-**Ant.** Déxteram meam et collum meum cinxit lapí-
+**Ant.** Déxteram meam et collum meum cinxit lapí-díbus pretiósis, trádidit áuribus meis inæstimábiles margarítas.
+
+**Ant.** Pósuit signum \* in fáciem meam, ut nullum præter eum amatórem admíttam.
+
+###### Psalmus 3
+
+DÓMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto tuo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Pósuit signum in fáciem meam, ut nullum præter eum amatórem admíttam.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+
+*Cap. 51, 1-17*
+
+CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
+
+℟. Diem festum sacratíssimæ Vírginis celebrémus, quáliter passa sit beáta Agnes ad memóriam revocémus: tertiodécimo ætátis suæ anno mortem pérdidit, et vitam invénit: \* Quia solum vitæ diléxit auctórem. ℣. Infántia quidem computabátur in annis, sed erat senéctus mentis imménsa. — Quia.

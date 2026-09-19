@@ -13949,3 +13949,53 @@ In die tribulatiónis meæ clamávi ad te: \* quia exaudísti me.
 Non est símilis tui in diis, Dómine: \* et non est secúndum ópera tua.
 
 Omnes gentes quascúmque fecísti, vénient, et
+adorábunt coram te, Dómine: \* et glorificábunt nomen tuum.
+
+Quóniam magnus es tu, et fáciens mirabília: \* tu es Deus solus.
+
+Deduc me, Dómine, in via tua, et ingrédiar in veritáte tua: \* lætétur cor meum ut tímeat nomen tuum.
+
+Confitébor tibi, Dómine, Deus meus, in toto corde meo, \* et glorificábo nomen tuum in ætérnum:
+
+Quia misericórdia tua magna est super me: \* et eruísti ánimam meam ex inférno inferióri.
+
+Deus, iníqui insurrexérunt super me, et synagóga poténtium quæsiérunt ánimam meam: \* et non proposuérunt te in conspéctu suo.
+
+Et tu, Dómine, Deus miserátor et miséricors, \* pátiens, et multæ misericórdiæ, et verax.
+
+Réspice in me, et miserére mei, \* da impérium tuum púero tuo: et salvum fac fílium ancíllæ tuæ.
+
+Fac mecum signum in bonum, ut vídeant qui odérunt me, et confundántur: \* quóniam tu, Dómine, adjuvísti me, et consolátus es me.
+
+#### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum. Amen.
+
+#### Capitulum
+
+*Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus. ℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+**Ant.** Salva nos.
+
+#### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secún-

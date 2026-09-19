@@ -16365,3 +16365,31 @@ AD cujus advéntum omnem hóminem convénit præparári: ne quem aut ventri déd
 QUAMVIS enim sine ánima nihil caro desíderet, et inde accípiat sensus, unde sumit et motus: ejúsdem tamen est ánimæ, quædam sibi súbditæ negáre substántiæ, et interióri judício ab inconveniéntibus exterióra frenáre: ut a corpóreis cupiditátibus sæpius líbera, in aula mentis possit divínæ vacáre sapiéntiæ: ubi omni strépitu terrenárum siléntе curárum, in meditatiónibus sanctis, et in delíciis lætétur ætérnis.
 
 ℟. Obsecro, Dómine, mitte quem missúrus es: vide afflictiónem pópuli tui: \* Sicut locútus es, veni, \* Et líbera nos. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Sicut. Glória Patri. Et líbera nos.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 21, 25-33*
+
+IN illo témpore: Dixit Jesus discípulis suis: Erunt signa in sole, et luna, et stellis, et in terris pressúra géntium. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homília 1 in Evangélia}
+
+DÓMINUS ac Redémptor noster parátos nos inveníre desíderans, senescéntem mundum quæ mala sequántur denúntiat, ut nos ab ejus amóre compéscat. Appropinquántem ejus términum quantæ percussiónes prævéniant, innotéscit: ut, si Deum metúere in tranquillitáte nólumus, saltem vicínum ejus judícium vel percussiónibus attríti timeámur.
+
+℟. Ecce virgo concípiet, et páriet fílium, dicit Dóminus: \* Et vocábitur nomen ejus Admirábilis, Deus, Fortis. ℣. Super sólium David, et super regnum ejus sedébit in ætérnum. — Et.
+
+#### Lectio viii
+
+HUIC étenim lectióni sancti Evangélii, quam modo vestra fratérnitas audívit, paulo supérius Dóminus præmísit, dicens: Exsúrget gens contra gentem, et regnum advérsus regnum: et erunt terræmótus magni per loca, et pestiléntiæ, et fames. Et quibúsdam interpósitis, hoc, quod modo audístis, adjúnxit: Erunt signa in sole, et luna, et stellis, et in terris pressúra géntium præ confusióne sónitus maris, et flúctuum. Ex quibus profécto ómnibus ália jam facta cérnimus, ália in próximo ventúra formidámus.
+
+℟. Audíte verbum Dómini, gentes, et annuntiáte illud in fínibus terræ: \* Et ínsulis, quæ procul sunt, dícite: Salvátor noster advéniet. ℣. Annuntiáte, et audítum fácite: loquímini, et clamáte. — Et.
+
+#### Lectio ix
+
+NAM gentem contra gentem exsúrgere, earúmque pressúram terris insístere, plus jam in nostris tempóribus cérnimus, quam in codícibus légimus. Quod terræmótus urbes innúmeras óbruat, ex áliis mundi pártibus scitis quam frequénter audívimus. Pestiléntias sine cessatióne pátimur. Signa vero in sole, et luna, et stellis, adhuc apérte mínime vídimus: sed quia et

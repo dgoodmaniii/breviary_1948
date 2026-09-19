@@ -20934,3 +20934,52 @@ IDEM præscripsísse tráditur tempus ómnibus, qui ordínibus initiáti essent,
 #### Lectio ix
 
 SILVÉSTER Románus, patre Rufíno, sæviénte persecutióne, in Sorácte monte látuit; et, trigésimum annum agens, présbyter sanctæ Románæ Ecclésiæ est creátus. Melchíade Pontífice vita functo, in ejus locum succéssit, imperatóre Constantíno, qui ántea pacem Ecclésiæ Christi lege pública déderat. Quem Silvéster ad tuéndam propagandámque religiónem ita fovit, ut imperátor multas eréxerit Basílicas, easque munificentíssime locupletárit. Hoc Pontífice hábitum est Concílium Nicǽnum primum ab ipso Silvéstro confirmátum, quo Árius condemnátus fuit. Vitæ sanctitáte
+et in páuperes benignitáte insígnis, óbiit in pace et sepúltus est in cœmetério Priscíllæ.
+
+{RUBRIC: Deinde dícitur} Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Evang. Venit Jesus, de Comm. uníus aut plúrium Summórum Pontíficum. [28¹]}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+#### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Silvéstrum Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Octávæ Nativitátis:}
+
+**Ant.** Glória in excélsis Deo, et in terra pax homínibus bonæ voluntátis, allelúja, allelúja.
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+#### Oratio
+
+CONCÉDE, quǽsumus, omnípotens Deus: ut nos Unigéniti tui nova per carnem Natívitas líberet; quos sub peccáti jugo vetústa sérvitus tenet. Per eúmdem Dóminum.
+
+{RUBRIC: Vésperæ dicúntur de sequénti, sine Commemoratióne.}
+
+{RUBRIC: ¶ Ubi tamen hoc vel áliud Festum sub ritu dúplici I classis hac die recolátur, in II Vésperis Antiphónæ et Psalmi dicúntur de Nativitáte Dómini 402, et a Capítulo fit de Festo occurrénti, cum Commemoratióne tantum sequéntis Festi Circumcisiónis.}
+
+---
+
+## Die 1 Januarii
+
+# In Circumcisione Domini
+
+## et Octava Nativitatis
+
+### Duplex II classis
+
+### In I Vesperis
+
+**Ant. 1** O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est: et procédens homo sine sémine, largítus est nobis suam Deitátem.
+
+{RUBRIC: Psalmi ut in Communi Festorum B. M. V. [174]}
+
+**2** Quando natus es \* ineffabíliter ex Vírgine,

@@ -32521,3 +32521,39 @@ DOMINUS regnávit, iráscántur pópuli: \* qui sedet super Chérubim, moveátur
 Dóminus in Sion magnus \* et excélsus super omnes pópulos.
 
 Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum Deum nostrum, et adoráte in monte sancto ejus: \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Repósita est mihi corona justítiæ, quam reddet mihi Dóminus in illa die justus judex.
+
+℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 19, 27-29*
+
+IN illo témpore: Dixit Petrus ad Jesum: Ecce nos relíquimus ómnia, et secúti sumus te: quid ergo erit nobis? Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+
+{RUBRIC: Homilia in Natali S. Benedicti Ep.}
+
+PERFÉCTUS ille est, qui ábiens vendit ómnia quæ habet, et dat paupéribus, ac véniens séquitur Christum; habébit enim thesáurum non deficiéntem in cælis. Unde bene, interrogánte Petro, dixit tálibus Jesus: Amen dico vobis, quod vos qui secúti estis me, in regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ, sedébitis et vos super sedes duódecim, judicántes duódecim tribus Israël. In hac quippe vita pro ejus nómine laborántes, in ália præmium speráre dócuit, id est, in regeneratióne; cum vidélicet in vitam immortálem fuérimus resurgéndo regeneráti, qui in vitam cadúcam mortáliter erámus géniti.
+
+℟. Sancte Paule Apóstole, prædicátor veritátis et Doctor géntium, \* Intercéde pro nobis ad Deum, qui te elégit, ut digni efficiámur grátia Dei. ℣. Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis. — Intercéde.
+
+{RUBRIC: Si dicenda sit ix Lectio alicújus Offícii commemoráti, ex viii et ix Lectióne fit una.}

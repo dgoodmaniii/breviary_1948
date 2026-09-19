@@ -15536,3 +15536,49 @@ Ne révoces me in dimídio diérum meórum: \* in generatiónem et generatiónem
 Inítio tu, Dómine, terram fundásti: \* et ópera mánuum tuárum sunt cæli.
 
 Ipsi períbunt, tu autem pérmanes: \* et omnes sicut vestiméntum veteráscent.
+
+Et sicut opertórium mutábis eos, et mutabúntur: \* tu autem idem ipse es, et anni tui non defícient.
+
+Fílii servórum tuórum habitábunt: \* et semen eórum in séculum dirigétur.
+
+{RUBRIC: Per Annum:} **Ant.** Clamor meus, Dómine, ad te pervéniat: non avértas fáciem tuam a me.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Sabbato post Dominicam I:} **Ant.** Jucundáre, fília Sion, et exsúlta satis, fília Jerúsalem, allelúja.
+
+{RUBRIC: Sabb. ante Vig. Nat. Dom.:} **Ant.** Multiplicábitur ejus impérium, et pacis non erit finis.
+
+#### Capitulum
+
+*Jer. 23, 5*
+
+ECCE dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit: et fáciet judícium et justítiam in terra.
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 21}
+
+#### Per Annum
+
+{RUBRIC: (et in Officio Dominicæ post Oct. Epiph. anticipátæ)}
+
+#### Capitulum
+
+*Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana.
+
+℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+{RUBRIC: Sabbato post Cineres et in Vigíliis commúnibus Preces feriáles, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 22}

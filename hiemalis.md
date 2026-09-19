@@ -13241,3 +13241,58 @@ Deus, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
 Dómine, Deus virtútum, \* quoúsque irascéris super oratiónem servi tui?
 
 Cibábis nos pane lacrimárum: \* et potum dabis
+ nobis in lácrimis in ménsura?
+
+Posuísti nos in contradictiónem vicínis nostris: \* et inimíci nostri subsannavérunt nos.
+
+Deus virtútum, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
+
+### Psalmus 79, ii
+
+VINEAM de Ægýpto transtulísti: \* ejecísti gentes, et plantásti eam.
+
+Dux itíneris fuísti in conspéctu ejus: \* plantásti radíces ejus, et implévit terram.
+
+Opéruit montes umbra ejus: \* et arbústa ejus cedros Dei.
+
+Exténdit pálmites suos usque ad mare: \* et usque ad flumen propágines ejus.
+
+Ut quid destruxísti macériam ejus: \* et vindémiant eam omnes, qui prætergrediúntur viam?
+
+Exterminávit eam aper de silva: \* et singuláris ferus depástus est eam.
+
+Deus virtútum, convértere: \* réspice de cælo, et vide, et vísita víneam istam.
+
+Et pérfice eam, quam plantávit déxtera tua: \* et super fílium hóminis, quem confirmásti tibi.
+
+Incénsa igni, et suffóssa \* ab increpatióne vultus tui períbunt.
+
+Fiat manus tua super virum déxteræ tuæ: \* et super fílium hóminis, quem confirmásti tibi.
+
+Et non discédimus a te, vivificábis nos: \* et nomen tuum invocábimus.
+
+Dómine, Deus virtútum, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
+
+### Psalmus 81
+
+DEUS stetit in synagóga deórum: \* in médio autem deos dijúdicat.
+
+Usquequo judicátis iniquitátem: \* et fácies peccatórum súmitis?
+
+Judicáte egéno, et pupíllo: \* húmilem, et páuperem justificáte.
+
+Erípite páuperem: \* et egénum de manu peccatóris liberáte.
+
+Nesciérunt, neque intellexérunt, in ténebris ámbulant: \* movebúntur ómnia fundaménta terræ.
+
+Ego dixi: Dii estis, \* et fílii Excélsi omnes.
+
+Vos autem sicut hómines moriémini: \* et sicut unus de princípibus cadétis.
+
+Surge, Deus, júdica terram: \* quóniam tu hereditábis in ómnibus géntibus.
+
+**Per Annum: Ant.** Excita, Dómine, poténtiam tuam, ut salvos fácias nos.
+
+#### In Officio feriali Adventus
+
+{RUBRIC: Feria VI post Dominicam I:} **Ant.** Jucundáre, fília Sion, et exsúlta satis, fília Jerúsalem, allelúja.

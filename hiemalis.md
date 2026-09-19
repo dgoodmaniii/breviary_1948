@@ -33304,3 +33304,17 @@ IGNÁTIUS, Antiochénæ ecclésiæ tértius post Petrum Apóstolum epíscopus, c
 #### Lectio v
 
 DIGNUM autem vidétur, quia tanti viri fécimus mentiónem, et de epístola ejus, quam ad Romános scribit, pauca pónere: De Sýria usque ad Romam pugno ad béstias in mari et in terra, nocte diéque ligátus cum decem leopárdis, hoc est milítibus, qui me custódiunt; quibus et cum benefáceris, pejóres fiunt. Iniquitas autem eórum mea doctrína est; sed non idcírco justificátus sum. Utinam fruar béstiis, quæ mihi sunt præparátæ; quas et oro mihi velóces esse ad intéritum et ad supplícia, et állici ad comedéndum me, ne, sicut et aliórum Mártyrum, non áudeant corpus attíngere. Quod si veníre nolúerint, ego vim fáciam, ego me urgébo, ut dévorer. Ignóscite mihi, filíoli; quid mihi prosit, ego scio.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+#### Lectio vi
+
+NUNC incípio Christi esse discípulus, nihil de his quæ vidéntur, desíderans, ut Jesum Christum invéniam. Ignis, crux, béstiæ, confráctio óssium, membrórum divísio, et totíus córporis contrítio, et tota torménta diáboli in me véniant; tantum ut Christo fruar. Cumque jam damnátus esset ad béstias, et ardóre patiéndi rugiéntes audíret leónes, ait: Fruméntum Christi sum; déntibus bestiárum molar, ut panis mundus invéniar. Passus est anno undécimo Trajáni. Relíquiæ córporis ejus Antiochíæ jacent extra portam Daphníticam in cœmetério.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+IGNÁTIUS, Antiochíæ post Petrum secúnda successióne episcopátum sortítus est, et Trajáni témpore accusátus, quod Christiánus esset, ad béstias damnátur Romam mitténdus. Quo cum a Sýria vinctus deportarétur, omnes Asíæ civitátes, ad quas appulísset, evangélicis cohortatiónibus edocébat, remotióres étiam epístolis erúdiens. In quarum una, quam Smyrnæ, dum apud Polycárpum diversarétur, ad Romános scripsit, inter cétera hæc de sua damnatióne refert: O salutáres béstias, quæ præparántur mihi! Quando vénient? Quando emitténtur? Quando eis frui licébit cárnibus meis? Quas et ego opto acrióres paráre, ne forte, ut in nonnúllis fecérunt, tímeant contíngere corpus meum. Nunc incípio discípulus esse Christi. Ignes, cruces, béstiæ, discerptiónes membrórum, ac totíus córporis pœnæ, et ómnia in me unum supplícia diáboli arte quæsíta cuméntur, dúmmodo Jesum Christum mérear adipísci. Romam ígitur perdúctus, cum rugiéntes audíret leónes, ardóre martýrii incénsus, in hæc verba pro-

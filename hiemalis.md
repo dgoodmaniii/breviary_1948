@@ -17480,3 +17480,48 @@ In sæculórum sæcula. Amen.
 #### Oratio
 
 AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et men-
+tis nostræ ténebras grátia tuæ visitatiónis illústra: Qui vivis.
+
+### Ad Tertiam
+
+**Capit.** Fratres. {RUBRIC: 354}
+
+℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni. ℣. Timébunt gentes nomen tuum, Dómine. ℟. Et omnes reges terræ glóriam tuam.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Philipp. 4, 6*
+
+NIHIL sollíciti sitis: sed in omni oratióne, et obsecratióne cum gratiárum actióne, petitiónes vestræ innotéscant apud Deum.
+
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Philipp. 4, 7*
+
+ET pax Dei, quæ exsúperat omnem sensum, custódiat corda vestra, et intelligéntias vestras in Christo Jesu Dómino nostro.
+
+℟. br. Super te, Jerúsalem, \* Oriétur Dóminus. Super. ℣. Et glória ejus in te vidébitur. Oriétur Dóminus. Glória Patri. Super. ℣. Veni, Dómine, et noli tardáre. ℟. Reláxa facínora plebi tuæ.
+
+### Ad Vesperas
+
+{RUBRIC: Omnia ut in Vésperis Sábbati præc. 348, prǽter seq.:}
+
+{RUBRIC: Psalmi de Dominica, ut in Psaltério. 70}
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Beáta es, María, \* quæ credidísti Dómino: perficiéntur in te, quæ dicta sunt tibi a Dómino, allelúja.
+
+{RUBRIC: Ant. Beáta es prætermíttitur, si hódie ejus loco ponénda sit una ex Antiphónis majóribus, ut infra: quibus semper cedunt Antiphónæ própriæ áliis diébus ad Magníficat assignátæ.}
+
+#### Sequentes Antiphonæ majores ad Magnificat
+
+{RUBRIC: inchoántur die 17 Decémbris, et síngulæ ante et post Magníficat íntegræ sicut in Duplícibus dicúntur per órdinem, usque ad diem ante Vigíliam Nativitátis. Si vero Festum fúerit, dicúntur post Oratiónem Festi, pro Commemoratióne Advéntus.}
+
+{RUBRIC: Die 17 Decémbris} **Ant.** O Sapiéntia, \* quæ ex ore

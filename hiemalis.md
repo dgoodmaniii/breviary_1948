@@ -30972,4 +30972,26 @@ NIHIL ígitur eo continéntius, nihil vigilántius erat. Patiéntia, mansuetúdi
 
 #### Lectio vi
 
-ITAQUE cóntulit se in vastíssimam Ægýpti solitúdinem: ubi quotídie ad christiánam perfectiónem profíciens, dæmones (quorum tanto erant acrióres ímpetus, quanto Antónius ad resisténdum fórtior evadébat) ita contémpsit, ut illis exprobráret imbecillitátem; ac sæpe discípulos suos éxcitans ad pugnándum contra diábolum, docénsque quibus armis vincerétur: Mihi crédite, dicébat, fratres, pertiméscit sátanas piórum vigílias, oratiónes, jejúnia, voluntáriam paupertátem, misericórdiam et humilitátem, máxime vero ardéntem amórem in Christum Dóminum, cujus único sanctíssimæ crucis signo debilitátus áufugit. Sic autem dæmónibus erat formidolósus, ut multi per Ægýptum ab illis agitáti, invocáto nómine Antónii liberaréntur: tántaque
+ITAQUE cóntulit se in vastíssimam Ægýpti solitúdinem: ubi quotídie ad christiánam perfectiónem profíciens, dæmones (quorum tanto erant acrióres ímpetus, quanto Antónius ad resisténdum fórtior evadébat) ita contémpsit, ut illis exprobráret imbecillitátem; ac sæpe discípulos suos éxcitans ad pugnándum contra diábolum, docénsque quibus armis vincerétur: Mihi crédite, dicébat, fratres, pertiméscit sátanas piórum vigílias, oratiónes, jejúnia, voluntáriam paupertátem, misericórdiam et humilitátem, máxime vero ardéntem amórem in Christum Dóminum, cujus único sanctíssimæ crucis signo debilitátus áufugit. Sic autem dæmónibus erat formidolósus, ut multi per Ægýptum ab illis agitáti, invocáto nómine Antónii liberaréntur: tántaqueerat ejus fama sanctitátis, ut per lítteras se ejus oratiónibus Constantínus Magnus et fílii commendárent. Qui aliquándo quintum et centésimum annum agens, cum innumerábiles sui institúti imitatóres habéret, convocátis mónachis et ad perféctam christiánæ vitæ régulam instrúctis, sanctitáte et miráculis clarus migrávit in cælum, décimo sexto Kaléndas Februárii.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ANTÓNIUS Ægýptius, cum ingréssus ecclésiam ex Evangélio audivísset: Si vis perféctus esse, vade, et vende ómnia quæ habes, et da paupéribus; tamquam ea sibi dicta essent, sic Christo Dómino obtemperándum existimávit. Itaque, véndita re familiári, prétium distríbuit paupéribus, ípseque in vastam Ægýpti solitúdinem recéssit. Virtútum ómnium stúdio ita incénsus fuit, ut, quemcúmque vidéret áliqua virtútis laude excelléntem, illum imitári studéret. Nihil ígitur eo continéntius, nihil vigilántius. Tanto terróri dæmónibus erat, ut multi per Ægýptum ab illis agitáti, nómine Antónii super ipsos invocáto liberaréntur. Ita, sanctitáte et miráculis clarus, cum innumerábiles sui institúti imitatóres habéret, annum agens quintum ultra centésimum, e vita migrávit décimo sexto Kaléndas Februárias.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev.} Sint lumbi vestri præcíncti, {RUBRIC: de Communi Conf. non Pont. 1 loco.} [98]
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio** C 4
+
+INTERCÉSSIO nos, quǽsumus, Dómine, beáti Antónii Abbátis comméndet: ut, quod nostris méritis non valémus, ejus

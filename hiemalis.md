@@ -34429,3 +34429,49 @@ DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum
 {RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
 
 {RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis, in Quadragésima Fériæ, ac S. Apollóniæ Virg. et Mart.}
+
+## Die 9 Februarii
+
+### S. Cyrilli
+
+{RUBRIC: Epíscopi Alexandríni,}
+
+{RUBRIC: Conf. et Ecclésiæ Doctor.}
+
+{RUBRIC: Duplex} (m. t. v.) [69]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Cyrílle, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+#### Oratio
+
+DEUS, qui beátum Cyríllum Confessórem tuum atque Pontíficem divínæ maternitátis beatíssimæ Vírginis Maríæ assertórem invíctum effecísti: concéde, ipso intercedénte; ut, qui vere eam Genitrícem Dei crédimus, matérna ejúsdem protectióne salvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Com., præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+#### Oratio
+
+DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum de potestáte Saracenórum captívos cǽlitus institúere dignátus es: præsta, quǽsumus; ut, ejus suffragántibus méritis, a captivitáte córporis et ánimæ, te adjuvánte, liberémur. Per Dóminum.
+
+{RUBRIC: Deinde, post Commemoratiónem Fériæ in Quadragésima, Commem. S. Apollóniæ Virg. et Mart.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+#### Oratio
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Apollóniæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam.} [87]
+
+### In II Nocturno
+
+#### Lectio iv
+
+CYRILLUS Alexandrínus, cujus præcónia non uníus tantum vel altérius sunt comprobáta testimónio, sed étiam œcumenicórum conciliórum Ephesíni et Chalcedonénsis actis celebráta, claris ortus paréntibus, ac Theóphili epíscopi Alexandríni nepos, adhuc adoléscens præcelléntis ingé-

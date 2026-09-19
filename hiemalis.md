@@ -25107,3 +25107,18 @@ Te Deum laudámus.
 *Cap. 1, 1-13*
 
 PAULUS vocátus Apóstolus Jesu Christi per voluntátem Dei, et Sósthenes frater, Ecclésiæ Dei
+quæ est Corínthi, sanctificátis in Christo Jesu, vocátis sanctis, cum ómnibus qui ínvocant nomen Dómini nostri Jesu Christi, in omni loco ipsórum, et nostro. Grátia vobis, et pax a Deo Patre nostro, et Dómino Jesu Christo.
+
+℟. Hódie in Jordáne baptizáto Dómino apérti sunt cæli, et sicut colúmba super eum Spíritus mansit, et vox Patris intónuit: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Descéndit Spíritus Sanctus corporáli spécie sicut colúmba in ipsum, et vox de cælo facta est. — Hic.
+
+#### Lectio ii
+
+GRÁTIAS ago Deo meo semper pro vobis in grátia Dei, quæ data est vobis in Christo Jesu: quod in ómnibus dívites facti estis in illo, in omni verbo, et in omni sciéntia: sicut testimónium Christi confirmátum est in vobis: ita ut nihil vobis desit in ulla grátia, exspectántibus revelatiónem Dómini nostri Jesu Christi, qui et confirmábit vos usque in finem sine crímine, in die advéntus Dómini nostri Jesu Christi. Fidélis Deus: per quem vocáti estis in societátem Fílii ejus Jesu Christi Dómini nostri.
+
+℟. In colúmbæ spécie Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui. ℣. Cæli apérti sunt super eum, et vox Patris intónuit. — Hic.
+
+#### Lectio iii
+
+OBSECRO autem vos, fratres, per nomen Dómini nostri Jesu Christi: ut idípsum dicátis omnes, et non sint in vobis schísmata: sitis autem perfécti in eódem sensu, et in eádem senténtia. Significátum est enim mihi de vobis, fratres mei, ab iis, qui sunt Chloës, quia contentiónes sunt inter vos. Hoc autem dico, quod unusquísque vestrum dicit: Ego quidem sum Pauli: ego autem Apóllo: ego vero Cephæ: ego autem Christi. Divísus est Christus? Numquid Paulus crucifíxus est pro vobis? aut in nómine Pauli baptizáti estis?
+
+℟. Reges Tharsis et ínsulæ múnera ófferent: \* Reges Arabum et Saba dona Dómino Deo addúcent. ℣. Omnes de Saba vénient, aurum et thus deferéntes. — Reges Arabum. Glória Patri. Reges Arabum.

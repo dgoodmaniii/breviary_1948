@@ -3247,21 +3247,21 @@ CONFITEBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congr
 
 Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
 
-Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in séculum séculi.
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
 
 Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
 
-Memor erit in séculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
 
 Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
 
-Fidélia ómnia mandáta ejus: confirmáta in séculum séculi, \* facta in veritáte et æquitáte.
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
 
 Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
 
 Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
 
-Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in séculum séculi.
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
 
 **Ant.** Magna ópera Dómini: exquisíta in omnes voluntátes ejus.
 
@@ -19399,21 +19399,21 @@ CONFITÉBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et cong
 
 Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
 
-Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in séculum séculi.
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
 
 Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
 
-Memor erit in séculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
 
 Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
 
-Fidélia ómnia mandáta ejus: confirmáta in séculum séculi, \* facta in veritáte et æquitáte.
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
 
 Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
 
 Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
 
-Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in séculum séculi.
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
 
 **Ant.** Redemptiónem misit Dóminus pópulo suo: mandávit in ætérnum testaméntum suum.
 
@@ -23534,3 +23534,53 @@ LEVA in circúitu óculos tuos, et vide: omnes isti congregáti sunt, venérunt 
 OMNES de Saba vénient, aurum et thus deferéntes, et laudem Dómino annuntiántes.
 
 ℟. br. Adoráte Dóminum, \* Allelúja, allelúja. Adoráte. ℣. In aula sancta ejus. Allelúja, allelúja. Glória Patri. Adoráte. ℣. Adoráte Deum, allelúja. ℟. Omnes Angeli ejus, allelúja.
+
+### In II Vesperis
+
+**Ant.** Ante lucíferum génitus, \* et ante sǽcula, Dóminus Salvátor noster hódie mundo appáruit.
+
+#### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Ante lucíferum génitus, et ante sǽcula, Dóminus Salvátor noster hódie mundo appáruit.
+
+**Ant.** Venit lumen tuum, \* Jerúsalem, et glória Dómini super te orta est, et ambulábunt gentes in lúmine tuo, allelúja.
+
+#### Psalmus 110
+
+CONFITÉBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Venit lumen tuum, Jerúsalem, et glória Dó-

@@ -29388,3 +29388,41 @@ Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in consp
 Dómine, adjútor meus, \* et redémptor meus.
 
 **Ant.** In sole pósuit Deus tabernáculum suum.
+
+**Ant.** In Conceptióne sua \* accépit María benedictiónem a Dómino, et misericórdiam a Deo, salutári suo.
+
+###### Psalmus 23
+
+DÓMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** In Conceptióne sua accépit María benedictiónem a Dómino, et misericórdiam a Deo, salutári suo.
+
+℣. Deus omnípotens præcínxit me virtúte. ℟. Et pósuit immaculátam viam meam.
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 3, 1-15*
+
+SERPENS erat callídior cunctis animántibus terræ quæ fécerat Dóminus Deus. Qui dixit ad mulíerem: Cur præcépit vobis Deus ut non comederétis de omni ligno paradísi? Cui respóndit múlier: De fructu lignórum, quæ sunt in paradíso, véscimur: de fructu vero ligni, quod est in médio paradísi, præcépit nobis Deus ne comederémus: et ne tangerémus illud, ne forte moriámur. Dixit autem serpens ad mulíerem: Nequáquam morte moriémini. Scit enim Deus quod in quocúmque die comedéritis ex eo, aperiéntur óculi vestri: et éritis sicut dii, sciéntes bonum et malum.
+
+℟. Per unum hóminem peccátum in hunc mundum intrávit, in quo omnes peccavérunt: \* Ne tímeas, María, invenísti grátiam apud Deum. ℣. Erípuit Dóminus ánimam

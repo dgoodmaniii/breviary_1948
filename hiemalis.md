@@ -17718,3 +17718,41 @@ phéta nesciérunt præ ebrietáte, absórpti sunt a vino.
 IDCÍRCO hæc dicit Dóminus Deus: Ecce ego mittam in fundaméntis Sion lápidem, lápidem probátum, angulárem, pretiósum, in fundaménto fundátum. Qui credíderit, non festínet. Et ponam in póndere judícium, et justítiam in mensúra: et subvértet grando spem mendácii: et protectiónem aquæ inundábunt. Et delébitur fœdus vestrum cum morte, et pactum vestrum cum inférno non stabit.
 
 ℟. Qui ventúrus est, véniet, et non tardábit: et jam non erit timor in fínibus nostris: \* Quóniam ipse est Salvátor noster. ℣. Depónet omnes iniquitátes nostras, et projíciet in profúndum maris ómnia peccáta nostra. — Quóniam. Glória Patri. Quóniam.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Egrediétur \* virga de radíce Jesse, et replébitur omnis terra glória Dómini: et vidébit omnis caro salutáre Dei.
+
+#### Oratio
+
+AUREM tuam, quǽsumus, Dómine, précibus nostris accómmoda: et mentis nostræ ténebras grátia tuæ visitatiónis illústra: Qui vivis et regnas.
+
+℣. Roráte, cæli, désuper, et nubes pluant justum. ℟. Aperiátur terra, et gérminet Salvatórem.
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus.
+
+{RUBRIC: Nisi dicénda sit Ant. O. 355}
+
+---
+
+### Feria Tertia
+
+{RUBRIC: De Isaía Prophéta}
+
+#### Lectio i
+
+*Cap. 30, 18-20*
+
+EXSPÉCTAT Dóminus ut misereátur vestri, et ídeo exaltábitur parcens vobis: quia Deus judícii Dóminus: beáti omnes qui exspéctant eum. Pópulus enim Sion habitábit in Jerúsalem: plorans nequáquam plorábis, míserans miserébitur tui: ad vocem
+
+clamóris tui statim ut audíerit, respondébit tibi. Et dabit vobis Dóminus panem arctum, et aquam brevem: et non fáciet avoláre a te ultra doctórem tuum: et erunt óculi tui vidéntes præceptórem tuum.
+
+℟. Ægýpte, noli flere, quia Dominátor tuus véniet tibi, ante cujus conspéctum movebúntur abýssi, \* Liberáre pópulum suum de manu poténtiæ. ℣. Ecce véniet Dóminus exercítuum, Deus tuus cum potestáte magna. — Liberáre.
+
+#### Lectio ii
+
+*Cap. 30, 22-28*
+
+EGRÉDERE, dices ei: Et dábitur plúvia sémini tuo, ubicúmque semináveris in terra: et panis frugum terræ erit ubérrimus et pinguis. Pascétur in possessióne tua in die illo agnus spatióse: et tauri tui, et pulli asinórum, qui operántur terram, commístum migma cómedent, sicut in área ventilátum est. Et erunt super omnem montem excélsum, et super omnem collem elevátum rivi curréntium aquárum, in die interfectiónis multórum, cum cecíderint turres.
+
+℟. Prope est ut véniat tempus ejus, et dies ejus non elongabúntur: \* Mi-

@@ -23220,3 +23220,35 @@ Auribus pércipe, Dómine, oratiónem meam: \* et inténde voci deprecatiónis m
 In die tribulatiónis meæ clamávi ad te: \* quia exaudísti me.
 
 Non est símilis tui in diis, Dómine: \* et non est secúndum ópera tua.
+
+Omnes gentes quascúmque fecísti, vénient, et adorábunt coram te, Dómine: \* et glorificábunt nomen tuum.
+
+Quóniam magnus es tu, et fáciens mirabília: \* tu es Deus solus.
+
+Deduc me, Dómine, in via tua, et ingrédiar in veritáte tua: \* lætétur cor meum ut tímeat nomen tuum.
+
+Confitébor tibi, Dómine, Deus meus, in toto corde meo, \* et glorificábo nomen tuum in ætérnum:
+
+Quia misericórdia tua magna est super me: \* et eruísti ánimam meam ex inférno inferióri.
+
+Deus, iníqui insurrexérunt super me, et synagóga poténtium quæsiérunt ánimam meam: \* et non proposuérunt te in conspéctu suo.
+
+Et tu, Dómine, Deus miserátor et miséricors, \* pátiens, et multæ misericórdiæ, et verax,
+
+Réspice in me, et miserére mei, \* da impérium tuum púero tuo: et salvum fac fílium ancíllæ tuæ.
+
+Fac mecum signum in bonum, ut vídeant qui odérunt me, et confundántur: \* quóniam tu, Dómine, adjuvísti me, et consolátus es me.
+
+**Ant.** Omnes gentes quascúmque fecísti, vénient, et adorábunt coram te, Dómine.
+
+℣. Reges Tharsis et ínsulæ múnera ófferent. ℟. Reges Arabum et Saba dona addúcent.
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 2 de Epiphania}
+
+#### Lectio iv
+
+GAUDÉTE in Dómino, dilectíssimi, íterum dico, gaudéte: quóniam brevi intervállo témporis, post solemnitátem Nativitátis Christi, festívitas declaratiónis ejus illúxit: et quem in illo die Virgo péperit, in hoc mundus agnóvit. Verbum enim caro factum, sic susceptiónis nostræ temperávit exórdia, ut natus Jesus et credéntibus maniféstus, et persequéntibus esset occúltus. Jam tunc ergo cæli enarravérunt glóriam Dei, et in omnem terram sonus veritátis exívit, quando et pastóribus exércitus Angelórum Salvatóris éditi annuntiátor appáruit, et Magos ad eum adorándum prǽvia stella perdúxit; ut a solis ortu usque ad occásum veri Regis generátio coruscáret, cum rerum fidem et regna Oriéntis per Magos díscerent, et Románum impérium non latéret.
+
+℟. Illumináre, illumináre, Jerúsalem, quia venit lux

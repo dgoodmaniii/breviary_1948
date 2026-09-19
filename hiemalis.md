@@ -33006,4 +33006,40 @@ MORTUO Granério, qui eum sibi coadjutórem decérni curáverat, epíscopus cons
 
 #### Lectio ix
 
-FRANCISCUS in óppido Salésio, unde famíliæ cognómen, piis et nobílibus paréntibus natus et liberálibus disciplínis eru-
+FRANCISCUS in óppido Salésio, unde famíliæ cognómen, piis et nobílibus paréntibus natus et liberálibus disciplínis eru-dítus, philosóphiæ ac theológiæ Parísiis óperam dedit, et láuream in utróque jure Patávii obtínuit. Sacerdótio initiátus et Genevénsis ecclésiæ præpositúram adéptus, ejus múneris partes tam bene explévit, ut eum Granérius epíscopus vindicándis ab hǽresi Calviniána Chaballicénsibus divíni verbi præcónem destináverit. Quam expeditiónem álacri ánimo suscípiens, tot difficultátibus ac perículis, Dei ope, superátis, septuagínta duo míllia hæreticórum ad cathólicam fidem reduxísse dícitur. Mórtuo Granério, epíscopus consecrátus, novum órdinem sanctimoniálium instítuit, a Visitatióne beátæ Vírginis nuncupátum. Suis scriptis cælésti doctrína refértis Ecclésiam illustrávit. Lugdúni, gravi morbo corréptus, migrávit in cælum, anno millésimo sexcentésimo vigésimo secúndo, et a summo Pontífice Pio nono universális Ecclésiæ Doctor fuit declarátus.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Vos estis sal terræ, {RUBRIC: de Communi Doct. 1 loco.} [90]
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+#### Oratio
+
+DEUS, qui ad animárum salútem beátum Francíscum Confessórem tuum atque Pontíficem ómnibus ómnia factum esse voluísti: concéde propítius; ut caritátis tuæ dulcédine perfúsi, ejus dirigéntibus mónitis ac suffragántibus méritis, ætérna gáudia consequámur. Per Dóminum.
+
+### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Francísce, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+{RUBRIC: Et fit Commemoratio sequéntis, ut infra.}
+
+---
+
+## Die 30 Januarii
+
+### S. Martinæ
+
+{RUBRIC: Virginis et Martyris}
+
+{RUBRIC: Semiduplex} [111]
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.

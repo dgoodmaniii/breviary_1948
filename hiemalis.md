@@ -32380,4 +32380,40 @@ Sic psalmum dicam nómini tuo in séculum séculi: \* ut reddam vota mea de die 
 
 **Ant.** Magnus sanctus Paulus vas electiónis, vere digne est glorificándus, qui et méruit thronum duodécimum possidére.
 
-**Ant.** Bonum certámen \* certávi, cursum consummávi, fidem servávi.
+**Ant.** Bonum certámen \* certávi, cursum consummávi, fidem servávi.###### Psalmus 63
+
+EXÁUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Bonum certámen certávi, cursum consummávi, fidem servávi.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 14 de Sanctis}
+
+#### Lectio iv
+
+HODIE de Actibus Apostolórum léctio hæc pronuntiáta est, ubi Paulus Apóstolus, ex persecutóre Christianórum, annuntiátor factus est Christi. Prostrávit enim Christus persecutórem, ut fáceret Ecclésiæ doctórem: percútiens eum, et sanans; occídens, et vivíficans: occísus agnus a lupis, et fáciens agnos de lupis. Ita enim in præclára prophetía cum Jacob Patriárcha benedíceret fíliis suis (præséntes tangens, futúra prospíciens), prædíctum erat quod in Paulo cóntigit. Erat autem Paulus, sicut ipse testátur, de tribu Bénjamin. Cum autem Jacob, benedícens fílios suos, venísset ad benedicéndum Bénjamin, ait de illo: Bénjamin lupus rapax.
+
+℟. Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis in

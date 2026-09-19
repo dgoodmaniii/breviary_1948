@@ -9832,3 +9832,65 @@ Non esca flammárum nigros
 Volvámur inter túrbines,
 Vultu Dei sed cómpotes
 Cæli fruátur gáudiis.
+
+Patri simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+#### Per Annum
+
+**Invit.** Regem magnum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte.
+
+#### Hymnus
+
+NOX atra rerum cóntegit
+Terræ colóres ómnium:
+Nos confiténtes póscimus
+Te, juste judex córdium:
+
+Ut áuferas piácula,
+Sordésque mentis ábluas:
+Donésque, Christe, grátiam,
+Ut arceántur crímina.
+
+Mens ecce torpet ímpia,
+Quam culpa mordet nóxia:
+Obscúra gestit tóllere,
+Et te, Redémptor, quærere.
+
+Repélle tu calíginem
+Intrínsecus quam máxime,
+Ut in beáto gáudeat
+Se collocári lúmine.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne séculum.
+Amen.
+
+{RUBRIC: ¶ In Feria V post Cineres, ad Matutinum et ad alias Horas, ómnia dicúntur ut per Annum; excéptis Antiphónis cum Psalmis et Cántico Laudum, e posteriori schémate suméndis, et Antiphónis ad Benedíctus et Magníficat, in Próprio de Témpore exstántibus.}
+
+#### In I Nocturno
+
+**Ant.** In Deo salutáre meum, \* et glória mea: et spes mea in Deo est.
+
+### Psalmus 61
+
+NONNE Deo subjécta erit ánima mea? \* ab ipso enim salutáre meum.
+
+Nam et ipse Deus meus, et salutáris meus: \* suscéptor meus, non movébor ámplius.
+
+Quoúsque irrúitis in hóminem? \* interfícitis univérsi vos: tamquam paríeti inclináto et macériæ depúlsæ?
+
+Verúmtamen prétium meum cogitavérunt repéllere, cucúrri in siti: \* ore suo benedicébant, et corde suo maledicébant.
+
+Verúmtamen Deo subjécta esto, ánima mea: \* quóniam ab ipso patiéntia mea.
+
+Quia ipse Deus meus, et salvátor meus: \* adjútor meus, non emigrábo.
+
+In Deo salutáre meum, et glória mea: \* Deus auxílii mei, et spes mea in Deo est.
+
+Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra: \*

@@ -16737,3 +16737,32 @@ et non potuérunt debelláre eam. Et nuntiavérunt dómui David, dicéntes: Requ
 ET dices ad eum: Vide ut síleas: noli timére, et cor tuum ne formídet a duábus caudis titiónum fumigántium istórum in ira furóris Rasin regis Sýriæ, et fílii Romelíæ: eo quod consílium iníerit contra te Sýria in malum Ephraim, et fílius Romelíæ, dicéntes: Ascendámus ad Judam, et suscitémus eum, et avellámus eum ad nos, et ponámus regem in médio ejus fílium Tábeel.
 
 ℟. Audíte verbum Dómini, gentes, et annuntiáte
+illud in fínibus terræ: \* Et ínsulis, quæ procul sunt, dícite: Salvátor noster advéniet. ℣. Annuntiáte, et audítum fácite: loquímini, et clamáte. — Et.
+
+#### Lectio iii
+
+ET adjécit Dóminus loqui ad Achaz, dicens: Pete tibi signum a Dómino, Deo tuo, in profúndum inférni, sive in excélsum supra. Et dixit Achaz: Non petam, et non tentábo Dóminum. Et dixit: Audíte ergo, domus David: Numquid parum vobis est, moléstos esse homínibus, quia molésti estis et Deo meo? Propter hoc dabit Dóminus ipse vobis signum. Ecce virgo concípiet, et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum.
+
+℟. Ecce dies véniunt, dicit Dóminus, et suscitábo David germen justum: et regnábit rex, et sápiens erit, et fáciet judícium et justítiam in terra: \* Et hoc est nomen quod vocábunt eum: \* Dóminus justus noster. ℣. In diébus illis salvábitur Juda, et Israël habitábit confidénter. — Et. Glória Patri. Dóminus.
+
+℣. Vox clamántis in desérto: Paráte viam Dómini. ℟. Rectas fácite sémitas ejus.
+
+**Ad Bened. Ant.** Sion, noli timére, \* ecce Deus tuus véniet, allelúja.
+
+#### Oratio
+
+EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccatórum nostrórum perículis, te mereámur protegénte éripi, te liberánte salvári: Qui vivis.
+
+### Ad Vesperas
+
+**Ant. 1** Ecce in núbibus cæli \* Dóminus véniet cum potestáte magna, allelúja.
+
+{RUBRIC: Psalmi de Sabbato, ut in Psaltério. 312}
+
+**2** Urbs fortitúdinis \* nostræ Sion, Salvátor ponétur in ea murus et antemurále: aperíte portas, quia nobíscum Deus, allelúja.
+
+**3** Ecce apparébit \* Dóminus, et non mentiétur: si moram fécerit, exspécta eum, quia véniet, et non tardábit, allelúja.
+
+**4** Montes et colles \* cantábunt coram Deo laudem, et ómnia ligna silvárum pláudent mánibus: quóniam véniet Dominátor Dóminus in regnum ætérnum, allelúja, allelúja.
+
+**5** Ecce Dóminus \* noster cum virtúte véniet, et illuminábit óculos servórum suórum, allelúja.

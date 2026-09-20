@@ -4303,3 +4303,63 @@ Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas
 **Ant.** Dómine, in virtúte tua lætábitur rex.
 
 **Ant.** Exaltábo te, \* † Dómine, quóniam suscepísti me. ‡
+
+###### Psalmus 29
+
+EXALTABO te, † Dómine, quóniam suscepísti me: \* ‡ nec delectásti inimícos meos super me.
+
+Dómine, Deus meus, clamávi ad te, \* et sanásti me.
+
+Dómine, eduxísti ab inférno ánimam meam: \* salvásti me a descendéntibus in lacum.
+
+Psállite Dómino, sancti ejus: \* et confitémini memóriæ sanctitátis ejus.
+
+Quóniam ira in indignatióne ejus: \* et vita in voluntáte ejus.
+
+Ad vésperum demorábitur fletus: \* et ad matutínum lætítia.
+
+Ego autem dixi in abundántia mea: \* Non movébor in ætérnum.
+
+Dómine, in voluntáte tua, \* præstitísti decóri meo virtútem.
+
+Avertísti fáciem tuam a me, \* et factus sum conturbátus.
+
+Ad te, Dómine, clamábo: \* et ad Deum meum deprecábor.
+
+Quæ utílitas in sánguine meo, \* dum descéndo in corruptiónem?
+
+Numquid confitébitur tibi pulvis, \* aut annuntiábit veritátem tuam?
+
+Audívit Dóminus, et misértus est mei: \* Dóminus factus est adjútor meus.
+
+Convertísti planctum meum in gáudium mihi: \* conscidísti saccum meum, et circumdedísti me lætítia:
+
+Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérnum confitébor tibi.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Exaltábo te, Dómine, quóniam suscepísti me.
+
+#### In Festis extra Tempus Paschale
+
+℣. Psállite Dómino, sancti ejus. ℟. Et confitémini memóriæ sanctitátis ejus.
+
+#### In feriali Officio Quadragesimæ
+
+℣. Ipse liberávit me de láqueo venántium. ℟. Et a verbo áspero.
+
+#### In feriali Officio Tempore Passionis
+
+℣. Erue a fráméa, Deus, ánimam meam. ℟. Et de manu canis únicam meam.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+#### In Festis novem Lectionum
+
+℣. Deus et Dóminum suscitávit, allelúja. ℟. Et nos suscitábit per virtútem suam, allelúja.
+
+#### In Officio trium Lectionum
+
+℣. Surréxit Dóminus de sepúlcro, allelúja. ℟. Qui pro nobis pepéndit in ligno, allelúja.

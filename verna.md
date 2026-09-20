@@ -4000,4 +4000,50 @@ Omnes declinavérunt, simul inútiles facti sunt: \* non est qui fáciat bonum, 
 
 Sepúlcrum patens est guttur eórum: linguis suis dolóse agébant, \* venénum áspidum sub lábiis eórum.
 
-Quorum os maledictióne et amaritúdine plenum
+Quorum os maledictióne et amaritúdine plenum est: \* velóces pedes eórum ad effundéndum sánguinem.
+
+Contrítio et infelícitas in viis eórum, et viam pacis non cognovérunt: \* non est timor Dei ante óculos eórum.
+
+Nonne cognóscent omnes qui operántur iniquitátem, \* qui dévorant plebem meam sicut escam panis?
+
+Dóminum non invocavérunt, \* illic trepidavérunt timóre, ubi non erat timor.
+
+Quóniam Dóminus in generatióne justa est, consílium ínopis confudístis: \* quóniam Dóminus spes ejus est.
+
+Quis dabit ex Sion salutáre Israël? \* cum avérterit Dóminus captivitátem plebis suæ, exsultábit Jacob, et lætábitur Israël.
+
+**Ant.** Dóminus de cælo prospéxit super fílios hóminum.
+
+**Ant.** Qui operátur justítiam, \* requiéscet in monte sancto tuo, Dómine.
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Qui operátur justítiam, requiéscet in monte sancto tuo, Dómine.
+
+**Ant.** Inclína, Dómine, \* aurem tuam mihi, et exáudi verba mea.
+
+###### Psalmus 16
+
+EXAUDI, Dómine, justítiam meam: \* inténde deprecatiónem meam.
+
+Áuribus pércipe oratiónem meam, \* non in lábiis dolósis.
+
+De vultu tuo judícium meum pródeat: \* óculi tui vídeant æquitátes.
+
+Probásti cor meum, et visitásti nocte: \* igne me examinásti, et non est invénta in me iníquitas.
+
+Ut non loquátur os meum ópera hóminum: \* propter verba labiórum tuórum ego custodívi vias duras.

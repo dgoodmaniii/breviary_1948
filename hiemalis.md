@@ -36759,4 +36759,54 @@ Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super 
 
 Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
 
-Delícta quis intélligit? ab occúltis meis munda me: \*
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum.
+
+**Ant.** Clamavérunt justi, \* et Dóminus exaudívit eos.
+
+###### Psalmus 33
+
+BENEDÍCAM Dóminum in omni témpore: \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea: \* áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum: \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me: \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini: \* et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum: \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum: \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus: \* beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus: \* quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt: \* inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me: \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam: \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo: \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum: \* inquíre pacem, et perséquere eam.
+
+Oculi Dómini super justos: \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala: \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos: \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde: \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum: \* et de ómnibus his liberábit eos Dóminus.

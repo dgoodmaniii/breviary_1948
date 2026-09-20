@@ -7046,3 +7046,55 @@ De mane usque ad vésperam fínies me: \* sicut pullus hirúndinis sic clamábo,
 Attenuáti sunt óculi mei, \* suspiciéntes in excélsum:
 
 Dómine, vim pátior, respónde pro me. \* Quid dicam, aut quid respondébit mihi, cum ipse fécerit?
+
+Recogitábo tibi omnes annos meos \* in amaritúdine ánimæ meæ.
+
+Dómine, si sic vívitur, et in tálibus vita spíritus mei, corrípies me, et vivificábis me. \* Ecce, in pace amaritúdo mea amaríssima:
+
+Tu autem eruísti ánimam meam ut non períret: \* projecísti post tergum tuum ómnia peccáta mea.
+
+Quia non inférnus confitébitur tibi, neque mors laudábit te: \* non exspectábunt qui descéndunt in lacum, veritátem tuam.
+
+Vivens vivens ipse confitébitur tibi, sicut et ego hódie: \* pater fíliis notam fáciet veritátem tuam.
+
+Dómine, salvum me fac, \* et psalmos nostros cantábimus cunctis diébus vitæ nostræ in domo Dómini.
+
+**Ant.** Corrípies me, Dómine, et vivificábis me.
+
+**Ant.** Laudáte. †
+
+### Fer. III Majoris Hebdomadæ
+
+**Ant.** Dómine, vim pátior, respónde pro me: quia néscio quid dicam inimícis meis.
+
+**Ant.** Dixérunt ímpii.
+
+###### Psalmus 134
+
+LAUDATE † nomen Dómini, \* laudáte, servi, Dóminum.
+
+Qui statis in domo Dómini, \* in átriis domus Dei nostri.
+
+Laudáte Dóminum, quia bonus Dóminus: \* psállite nómini ejus, quóniam suáve.
+
+Quóniam Jacob elégit sibi Dóminus, \* Israël in possessiónem sibi.
+
+Quia ego cognóvi quod magnus est Dóminus: \* et Deus noster præ ómnibus diis.
+
+Omnia quæcúmque vóluit, Dóminus fecit in cælo, et in terra, \* in mari, et in ómnibus abýssis.
+
+Edúcens nubes ab extrémo terræ: \* fúlgura in plúviam fecit.
+
+Qui prodúcit ventos de thesáuris suis: \* qui percússit primogénita Ægýpti ab hómine usque ad pecus.
+
+Et misit signa, et prodígia in médio tui, Ægýpte: \* in Pharaónem, et in omnes servos ejus.
+
+Qui percússit gentes multas: \* et occídit reges fortes:
+
+Sehon, regem Amorrhæórum, et Og, regem Basan, \* et ómnia regna Chánaan.
+
+Et dedit terram eórum hereditátem, \* hereditátem Israël, pópulo suo.
+
+Dómine, nomen tuum in ætérnum: \* Dómine, memoriále tuum in generatiónem et generatiónem.
+
+Quia judicábit Dóminus pópulum suum: \* et in servis suis deprecábitur.

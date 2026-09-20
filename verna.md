@@ -7098,3 +7098,68 @@ Et dedit terram eórum hereditátem, \* hereditátem Israël, pópulo suo.
 Dómine, nomen tuum in ætérnum: \* Dómine, memoriále tuum in generatiónem et generatiónem.
 
 Quia judicábit Dóminus pópulum suum: \* et in servis suis deprecábitur.
+
+Simulácra géntium argéntum, et aurum, \* ópera mánuum hóminum.
+
+Os habent, et non loquéntur: \* óculos habent, et non vidébunt.
+
+Aures habent, et non áudient: \* neque enim est spíritus in ore ipsórum.
+
+Símiles illis fiant qui fáciunt ea: \* et omnes qui confídunt in eis.
+
+Domus Israël, benedícite Dómino: \* domus Aaron, benedícite Dómino.
+
+Domus Levi, benedícite Dómino: \* qui timétis Dóminum, benedícite Dómino.
+
+Benedíctus Dóminus ex Sion, \* qui hábitat in Jerúsalem.
+
+**Ant.** Laudáte Dóminum, quia benígnus est, et in servis suis deprecábitur.
+
+### Fer. III Majoris Hebdomadæ
+
+**Ant.** Dixérunt ímpii: Opprimámus virum justum, quóniam contrárius est opéribus nostris.
+
+### Tempore Quadragesimæ
+
+**Capitulum** *Is. 58, 1*
+
+CLAMA, ne cesses, quasi tuba exálta vocem tuam, et annúntia pópulo meo scélera eórum, et dómui Jacob peccáta eórum.
+
+#### Hymnus
+
+O SOL salútis, íntimis
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ,
+Si virga pæniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.
+
+Te prona mundi máchina,
+Clemens, adóret, Trínitas,
+Et nos novi per grátiam
+Novum canámus cánticum. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicuntur sequentes}
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Pater noster, quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsque-

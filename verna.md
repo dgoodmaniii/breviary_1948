@@ -2720,3 +2720,47 @@ A Dómino factum est istud: \* et est mirábile in óculis nostris.
 Hæc est dies, quam fecit Dóminus: \* exsultémus, et lætémur in ea.
 
 O Dómine, salvum me fac, o Dómine, bene prosperáre: \* benedíctus qui venit in nómine Dómini.
+
+Benedíximus vobis de domo Dómini: \* Deus Dóminus, et illúxit nobis.
+
+Constitúite diem solémnem in condénsis, \* usque ad cornu altáris.
+
+Deus meus es tu, et confitébor tibi: \* Deus meus es tu, et exaltábo te.
+
+Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
+
+Confitémini Dómino quóniam bonus: \* quóniam in sæculum misericórdia ejus.
+
+{RUBRIC: ¶ In ultimo triduo Majoris Hebdomadæ, in Dominica infra Octavam Ascensionis, in Feria VI post Octavam Ascensionis, in Vigilia Pentecostes, in Duplicibus I vel II classis, in Festis novem Lectionum Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum, et per Octavas privilegiatas; si de eis fiat Officium, ad Primam, Tertiam, Sextam et Nonam dicuntur Psalmi de Dominica, sub Antiphonis Officio diei congruentibus, nisi aliter suo loco notetur; sed ad Primam, loco Psalmi 117 Confitémini, in ipsa etiam die Dominica, semper dicitur}
+
+###### Psalmus 53
+
+DEUS, in nómine tuo salvum me fac: \* et in virtúte tua júdica me.
+
+Deus, exáudi oratiónem meam: \* áuribus pércipe verba oris mei.
+
+Quóniam aliéni insurrexérunt advérsum me, et fortes quæsiérunt ánimam meam: \* et non proposuérunt Deum ante conspéctum suum.
+
+Ecce enim, Deus ádjuvat me: \* et Dóminus suscéptor est ánimæ meæ.
+
+Avérte mala inimícis meis: \* et in veritáte tua dispérde illos.
+
+Voluntárie sacrificábo tibi, \* et confitébor nómini tuo, Dómine: quóniam bonum est:
+
+Quóniam ex omni tribulatióne eripuísti me: \* et super inimícos meos despéxit óculus meus.
+
+###### Psalmus 118, i
+
+BEATI immaculáti in via: \* qui ámbulant in lege Dómini.
+
+Beáti, qui scrutántur testimónia ejus: \* in toto corde exquírunt eum.
+
+Non enim qui operántur iniquitátem: \* in viis ejus ambulavérunt.
+
+Tu mandásti \* mandáta tua custodíri nimis.
+
+Utinam dirigántur viæ meæ, \* ad custodiéndas justificatiónes tuas!
+
+Tunc non confúndar, \* cum perspéxero in ómnibus mandátis tuis.
+
+Confitébor tibi in directióne cordis: \* in eo quod dídici judícia justítiæ tuæ.

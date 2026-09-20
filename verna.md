@@ -626,3 +626,68 @@ AURORA cælum púrpurat,
 Æther resúltat láudibus,
 Mundus triúmphans júbilat,
 Horrens avérnus ínfremit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+{RUBRIC: Recitato Versu, dicitur cum Antiphona convenienti sequens}
+
+##### Canticum Zachariæ
+
+*Luc. 1, 68-69*
+
+BENEDICTUS † Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a século sunt, Prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+Glória Patri, et Fílio, \* et Spirítui Sancto.
+
+Sicut erat in princípio, et nunc, et semper, \* et in sécula seculórum. Amen.
+
+{RUBRIC: ¶ Hic Versus Glória Patri dicitur in fine omnium Canticorum, nisi aliter adnotetur.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, si Preces non fue-

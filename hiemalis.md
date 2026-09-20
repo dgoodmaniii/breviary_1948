@@ -46263,3 +46263,39 @@ Jesu, María, Joseph, in pace vobíscum dórmiam et requiéscam.
 {RUBRIC: Deinde} Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 
 {RUBRIC: Postea} Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Réquiem ætérnam dona ei, Dómine. ℟. Et lux perpétua lúceat ei.
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimam ejus.
+
+℣. Requiéscat in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+TIBI, Dómine, comméndamus ánimam fámuli tui N. (fámulæ tuæ N.), ut defúnctus (-a) sæculo tibi vivat: et quæ per fragilitátem humánæ conversatiónis peccáta commísit, tu vénia misericordíssimæ pietátis abstérge. Per Christum Dóminum nostrum. ℟. Amen.
+
+# Formula
+
+## Ad Impertiendam Indulgentiam Plenariam in Articulo Mortis
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+**Ant.** Ne reminiscáris, Dómine, delícta fámuli tui (ancíllæ tuæ), neque vindíctam sumas de peccátis ejus.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Salvum (-am) fac servum tuum (ancíllam tuam). ℟. Deus meus, sperántem in te.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+CLEMENTISSIME Deus, Pater misericordiárum et Deus totíus consolatiónis, qui néminem vis períre in te credéntem atque sperántem: secúndum multitúdinem miseratiónum tuárum réspice propítius fámulum tuum N., quem (fámulam tuam N., quam) tibi vera fides et spes christiána comméndant. Vísita eum (eam) in salutári tuo, et, per Unigéniti tui passiónem et mortem, ómnium ei delictórum suórum remissiónem et véniam cleménter indúlge; ut ejus ánima in hora éxitus sui te júdicem propitiátum invéniat, et, in sánguine ejúsdem Fílii tui

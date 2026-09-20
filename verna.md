@@ -33,3 +33,39 @@ In princípio autem Matutíni ac Primæ additur secréto Symbolum Apostolórum:
 CREDO in Deum, Patrem omnipoténtem, Creatórem cæli et terræ. Et in Jesum Christum Fílium ejus únicum, Dóminum nostrum: qui concéptus est de Spíritu Sancto, natus ex María Vírgine, passus sub Póntio Piláto, crucifíxus, mórtuus, et sepúltus: descéndit ad ínferos; tértia die resurréxit a mórtuis; ascéndit ad cælos; sedet ad déxteram Dei Patris omnipoténtis: inde ventúrus est judicáre vivos et mórtuos. Credo in Spíritum Sanctum, sanctam Ecclésiam cathólicam, Sanctórum communiónem, remissiónem peccatórum, carnis resurrectiónem, vitam ætérnam. Amen.
 
 {RUBRIC: Offícium ad Matutínum et ad réliquas Horas, nisi áliter suo loco indicétur, per totum annum persólvitur juxta formam, quæ in Rúbricis hujus Ordinárii exhibétur.}
+
+## Ad Matutinum
+
+Pater noster, Ave María et Credo.
+
+{RUBRIC: Deinde, clara voce, dicitur Versus:}
+
+℣. DOMINE, lábia mea apéries. ℟. Et os meum annuntiábit laudem tuam. ℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína.
+
+Glória Patri, et Fílio, et Spirítui Sancto. Sicut erat in princípio, et nunc, et semper, et in sæcula sæculórum. Amen. Allelúja.
+
+{RUBRIC: Sic dicitur Allelúja ad omnes Horas, præter quam a Vesperis Sabbati ante Dominicam I Quadragesimæ usque ad Completorium Feriæ IV Majoris Hebdomadæ inclusive; tunc enim dicitur:}
+
+Laus tibi, Dómine, Rex ætérnæ glóriæ.
+
+{RUBRIC: Postea dicitur conveniens Invitatorium, quod ante Psalmum bis integrum recitatur, et ad singulos ejusdem Psalmi versus vel integrum vel dimidiatum ab Asterisco \* alternis vicibus, ut infra, repetitur.}
+
+### Psalmus 94
+
+VENITE, exsultémus Dómino, jubilémus Deo, salutári nostro: præoccupémus fáciem ejus in confessióne, et in psalmis jubilémus ei.
+
+{RUBRIC: Repetitur integrum Invitatorium.}
+
+Quóniam Deus magnus Dóminus, et Rex magnus super omnes deos: quóniam non repéllet Dóminus plebem suam: quia in manu ejus sunt omnes fines terræ, et altitúdines móntium ipse cónspicit.
+
+{RUBRIC: Repetitur altera pars Invitatorii.}
+
+{RUBRIC: In sequenti Psalmi versu, ad verba veníte, adorémus, et procidámus ante Deum, genuflectitur.}
+
+Quóniam ipsíus est mare, et ipse fecit illud, et áridam fundavérunt manus ejus: veníte, adorémus, et procidámus ante Deum: plorémus coram Dómino, qui fecit nos, quia ipse est Dóminus, Deus noster; nos autem pópulus ejus, et oves páscuæ ejus.
+
+{RUBRIC: Repetitur integrum Invitatorium.}
+
+Hódie, si vocem ejus audíeritis, nolíte obduráre corda vestra, sicut in exacerbatióne secúndum diem tentatiónis in desérto: ubi tentavérunt me patres vestri, probavérunt et vidérunt ópera mea.
+
+{RUBRIC: Repetitur altera pars Invitatorii.}

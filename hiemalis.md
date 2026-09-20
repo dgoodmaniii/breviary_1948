@@ -36086,4 +36086,24 @@ DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum Perpétu
 
 #### Lectio iv
 
-PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum cárcerem detrúsæ; quibus ultra adjúnctus est Sátyrus. Erant adhuc catechúmenæ, sed paulo post baptizátæ sunt. Paucis diébus interjéctis, e cárcere ad forum dedúctæ cum sóciis, post gloriósam confessiónem, ab Hilarió-
+PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum cárcerem detrúsæ; quibus ultra adjúnctus est Sátyrus. Erant adhuc catechúmenæ, sed paulo post baptizátæ sunt. Paucis diébus interjéctis, e cárcere ad forum dedúctæ cum sóciis, post gloriósam confessiónem, ab Hilarió-ne procuratóre damnántur ad béstias. Inde hílares descéndunt ad cárcerem, ubi váriis visiónibus recreántur et ad martýrii palmam accendúntur. Perpétuam, nec patris sénio conféctí iterátæ preces et lácrimæ, nec erga fílium infántem pendéntem ad úbera matérnus amor, nec supplícii atrócitas, a Christi fide dimovére umquam potuérunt.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+FELÍCITAS vero, instánte spectáculi die, cum octo jam menses prægnans esset, in magno erat luctu, ne differrétur; leges quippe vetábant prægnántes supplício affíci. At précibus commártyrum acceleráto partu, eníxa est fíliam. Cumque in partu labórans doléret, ait illi quidam de custódibus: Quæ sic modo doles, quid fácies objécta béstiis? Cui illa: Modo ego pátior; illic autem álius erit in me, qui patiétur pro me, quia et ego pro illo passúra sum.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea. Glória Patri. Proptérea.
+
+#### Lectio vi
+
+IN amphitheátrum, toto inspectánte pópulo, producúntur tandem generósæ mulíeres, Nonis Mártii, ac primum flagéllis cædúntur. Tunc a ferocíssima vacca aliquámdiu jactátæ, plagis concísæ et in terram elísæ sunt. Demum cum sóciis, qui a váriis béstiis vexáti fúerant, gladiórum íctibus conficiúntur. Harum sanctárum Mártyrum festum Pius décimus Póntifex máximus ad ritum dúplicem pro univérsa Ecclésia evéxit ac diéi sextæ Mártii assignári mandávit.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum

@@ -18556,3 +18556,37 @@ HÆC est enim volúntas Dei, sanctificátio vestra: ut abstineátis vos a fornic
 **Capitulum** *1 Thess. 4, 7*
 
 NON enim vocávit nos Deus in immundítiam, sed in sanctificatiónem, in Christo Jesu Dómino nostro.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto. ℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica, ut in Psalterio 72; Capitulum, Hymnus et Versus, ut in Vesperis Sabbati præcedentis. 359}
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Visiónem quam vidístis, \* némini dixéritis, donec a mórtuis resúrgat Fílius hóminis.
+
+---
+
+## Feria Secunda
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 8, 21-29*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Ego vado, et quærétis me, et in peccáto vestro moriémini. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractatus 38 in Joánnem, post initium}
+
+LOCUTUS est Dóminus Judǽis, dicens: Ego vado. Christo enim Dómino mors proféctio fuit illo, unde vénerat, et unde non discésserat. Ego, inquit, vado, et quærétis me, non desidério, sed ódio. Nam illum posteáquam abscéssit ab óculis hóminum, inquisiérunt et qui óderant, et qui amábant: illi persequéndo, isti habére cupiéndo. In Psalmis ait ipse Dóminus per Prophétam: Périit fuga a me, et non est qui requírat ánimam meam. Et íterum ait álio loco in Psalmo: Confundántur et revereántur requiréntes ánimam meam.
+
+℟. Dum iret Jacob de Bersabée, et pérgeret Haran, locútus est ei Dóminus, dicens: \* Terram, in qua dormis, tibi dabo, et sémini tuo. ℣. Ædificávit ex lapídibus altáre in honórem Dómini, fundens óleum désuper: et benedíxit eum Deus, dicens. — Terram.
+
+#### Lectio ii
+
+CULPAVIT, qui non requírerent: damnávit requiréntes. Bonum est enim quærere ánimam Christi, sed quo modo eam quæsiérunt discípuli: et malum est quærere ánimam Christi, sed quo modo eam Judǽi quæsiérunt: illi enim ut habérent, isti ut pérderent. Dénique istis, quia sic quærébant more malo, corde pervérso, quid secútus adjúnxit? Quærétis me; et, ne putétis, quia

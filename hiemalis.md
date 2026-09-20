@@ -46521,3 +46521,45 @@ ADESTO, quæsumus, Dómine, supplicatiónibus nostris: et viam famulórum tuóru
 PRÆSTA, quæsumus, omnípotens Deus: ut família tua per viam salútis incédat; et, beáti Joánnis Præcursóris hortaménta sectándo, ad eum, quem prædíxit, secúra pervéniat, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
 
 ℣. Procedámus in pace. ℟. In nómine Dómini. Amen.
+
+# Appendix
+
+## Die 10 Decembris
+
+*(Pro Italia et insulis adjacentibus)*
+
+# In Translatione almae Domus B. M. V.
+
+{RUBRIC: Duplex Majus}
+
+{RUBRIC: Omnia de Communi Festórum Beátæ Maríæ Virg., [174] præter ea, quæ hic habéntur própria.}
+
+### In I Vesperis
+
+{RUBRIC: Antíphonæ et Capítulum de Laudibus. [262]}
+
+℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram.
+
+**Ad Magnif. Ant.** Sanctificávit Dóminus tabernáculum suum: quia hæc est domus Dei, in qua invocábitur nomen ejus, de quo scriptum est: Et erit nomen meum ibi, dicit Dóminus.
+
+#### Oratio
+
+DEUS, qui beátæ Maríæ Vírginis domum per incarnáti Verbi mystérium misericórditer consecrásti, eámque in sinu Ecclésiæ tuæ mirabíliter collocásti: concéde; ut, segregáti a tabernáculis peccatórum, digni efficiámur habitatóres domus sanctæ tuæ. Per eúmdem Dñum.
+
+{RUBRIC: Et fit Commemorátio Fériæ.}
+
+{RUBRIC: Deinde S. Melchíadis Papæ et Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde, et per beátum Melchíadem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et nihil fit de Octáva Conceptiónis, neque in crastínum.}
+
+### Ad Matutinum
+
+**Invit.** Salvatórem mundi in domo Vírginis de Spíritu Sancto concéptum, \* Veníte, adorémus.

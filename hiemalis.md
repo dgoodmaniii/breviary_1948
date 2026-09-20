@@ -46563,3 +46563,61 @@ GREGEM tuum, Pastor ætérne, placátus inténde, et per beátum Melchíadem Má
 ### Ad Matutinum
 
 **Invit.** Salvatórem mundi in domo Vírginis de Spíritu Sancto concéptum, \* Veníte, adorémus.
+
+{RUBRIC: Ps. 94 Veníte, exsultémus 3.}
+
+#### Hymnus
+
+CÆLESTIS urbs Jerúsalem,
+Beáta pacis vísio,
+Quæ celsa de vivéntibus
+Saxis ad astra tólleris,
+Sponsǽque ritu cíngeris
+Mille Angelórum míllibus.
+
+O sorte nupta próspera,
+Dotáta Patris glória,
+Respérsa Sponsi grátia,
+Regína formosíssima,
+Christo jugáta Príncipi,
+Cæli corúsca cívitas.
+
+Hic margarítis émicant
+Paténtque cunctis óstia;
+Virtúte namque prǽvia
+Mortális illuc dúcitur,
+Amóre Christi pércitus
+Torménta quisquis sústinet.
+
+Scalpri salúbris íctibus
+Et tunsióne plúrima,
+Fabri políta málleo
+Hanc saxa molem cónstruunt,
+Aptísque juncta néxibus
+Locántur in fastígio.
+
+Decus Paránti débitum
+Sit usquequáque Altíssimo,
+Natóque Patris único,
+Et ínclyto Paráclito,
+Cui laus, potéstas, glória
+Ætérna sit per sæcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Eleváta est magnificéntia tua super cælos.
+
+**Ant.** In sole pósuit tabernáculum suum: et ipse tamquam sponsus procédens de thálamo suo.
+
+**Ant.** Quis ascéndet in montem Dómini? aut quis stabit in loco sancto ejus? Innocens mánibus et mundo corde.
+
+℣. Hic domus Dei est et porta cæli. ℟. Et vocábitur aula Dei.
+
+{RUBRIC: De libro tértio Regum}
+
+#### Lectio i
+
+*Cap. 8, 22 et 27-30*
+
+STETIT autem Sálomon ante altáre Dómini in conspéctu ecclésiæ Israël, et expándit manus suas in cælum, et ait: Ergóne putándum est quod vere Deus hábitet super terram? si enim cælum, et cæli cælórum te cápere non possunt, quanto magis domus hæc, quam ædificávi? Sed réspice ad oratiónem servi tui, et ad preces ejus, Dómine, Deus meus: audi hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti super domum hanc nocte ac die: super domum, de qua dixísti: Erit nomen meum ibi: ut exáudias oratiónem, quam orat in loco isto ad te servus tuus. Ut exáudias deprecatiónem servi tui et pópuli tui Israël, quod-

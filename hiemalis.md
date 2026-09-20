@@ -41627,3 +41627,59 @@ DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum N. et N.
 ##### Pro nec Virgine nec Mart.
 
 {RUBRIC: Capit. Mulíerem. [136]}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+### Ad Sextam
+
+##### Pro Martyre tantum
+
+#### Capitulum
+
+*Eccli. 51, 4-5*
+
+LIBERASTI me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de multis tribulatiónibus quæ circumdedérunt me.
+
+##### Pro nec Virgine nec Mart.
+
+#### Capitulum
+
+*Prov. 31, 20-21*
+
+MANUM suam apéruit ínopi, et palmas suas exténdit ad páuperem. Non timébit dómui suæ a frigóribus nivis.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+### Ad Nonam
+
+##### Pro Martyre tantum
+
+#### Capitulum
+
+*Eccli. 51, 8 et 12*
+
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+##### Pro nec Virgine nec Mart.
+
+#### Capitulum
+
+*Prov. 31, 29-30*
+
+MULTÆ fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo: múlier timens Dóminum, ipsa laudábitur.
+
+℟. br. Elégit eam Deus, \* Et præelégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [130], prǽter}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Manum suam \* apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+{RUBRIC: Si fuerint plures Martyres non Virgines, Versus, Antíphona ad Magníficat et Orátio ut supra. [131] vel [137]}
+
+{RUBRIC: Completorium de Dominica.}
+
+---

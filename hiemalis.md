@@ -35246,3 +35246,17 @@ Sit decus Patri, genitǽque Proli,
 Et tibi, compar utriúsque virtus
 Spíritus semper, Deus unus omni
     Témporis ævo. Amen.
+
+{RUBRIC: In I Nocturno, si dicéndæ non sint de Scriptúra occurrénti, Lectiónes Laudémus viros, ut in Communi Confessóris Pontíficis 2 loco, cum Responsóriis de Communi Conf. non Pont. ibi notátis.} [83]
+
+### In II Nocturno
+
+#### Lectio iv
+
+SÆCULO tértio décimo cum Friderícis secúndi diro schísmate cruentísque factiónibus cultióres Itáliæ pópuli scinderéntur, próvidens Dei misericórdia, præter álios sanctitáte illústres, septem a Florentína nobilitáte viros suscitávit, qui in caritáte conjúncti, præclárum fratérnæ dilectiónis præbérent exémplum. Hi, nimírum Bonfílius Monáldius, Bonajúncta Manéttus, Manéttus Antellénsis, Amidéus de Amidéis, Ugúccio Ugucciónum, Sostenéus de Sostenéis et Aléxius Falconérius, cum, anno trigésimo tértio ejus sǽculi, die sacra Vírgini cælo recéptæ, in quodam piórum hóminum convéntu, Laudéntium nuncupáto, ferventíus orárent; ab eádem Deípara síngulis apparénte sunt admóniti, ut sánctius perfectiúsque vitæ genus amplecteréntur. Re ítaque prius cum Florentíno prǽsule colláta, hi septem viri, géneris nobilitáte divitiísque posthábitis, sub vilíssimis detritísque véstibus cilício indúti, octáva die Septémbris in rurálem quamdam ædículam secessére, ut ea die primórdia vitæ sanctióris auspicaréntur, qua ipsa Dei Génitrix mortálibus orta sanctíssimam vitam incéperat.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+HOC vitæ institútum quam sibi foret accéptum Deus miráculo osténdit. Nam cum paulo deínceps hi septem viri per Florentínam urbem ostiátim eleemósynam emendicárent, áccidit, ut repénte infántium voce, quos inter fuit sanctus Philíppus Benítius quintum ætátis mensem vix ingréssus, beátæ Maríæ Servi acclamaréntur: quo deínde nómine semper appelláti sunt. Quare, vitándi pópuli occúrsus ac solitúdinis amóre ducti, in Senárii montis recéssu omnes convenére, ibíque cæléste

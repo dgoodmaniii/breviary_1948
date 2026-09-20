@@ -18616,3 +18616,27 @@ PRÆSTA, quæsumus, omnípotens Deus: ut família tua, quæ se, affligéndo carn
 ADESTO supplicatiónibus nostris, omnípotens Deus: et, quibus fidúciam sperándæ pietátis indúlges; consuétæ misericórdiæ tríbue benígnus efféctum. Per Dóminum.
 
 ---
+
+## Feria Tertia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 23, 1-12*
+
+IN illo témpore: Locútus est Jesus ad turbas, et ad discípulos suos, dicens: Super cáthedram Móysi sedérunt scribæ et pharisǽi. Omnia ergo quæcúmque díxerint vobis, serváte, et fácite: secúndum ópera vero eórum nolíte fácere. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 4 Comment. in cap. 23 Matthǽi}
+
+QUID mansuétius, quid benígnius Dómino? Tentátur a pharisǽis, confringúntur insídiæ eórum, et secúndum Psalmístam: Sagíttæ parvulórum factæ sunt plagæ eórum: et nihilóminus propter sacerdótii et nóminis dignitátem hortátur pópulos, ut subjiciántur eis, non ópera, sed doctrínam considerántes. Quod autem ait, Super cáthedram Móysi sedérunt scribæ et pharisǽi: per cáthedram, doctrínam legis osténdit. Ergo et illud quod dícitur in Psalmo: In cáthedra pestiléntiæ non sedit: et, Cáthedras vendéntium colúmbas evértit: doctrínam debémus accípere.
+
+℟. Dum exíret Jacob de terra sua, vidit glóriam Dei, et ait: Quam terríbilis est locus iste! \* Non est hic áliud, nisi domus Dei, et porta cæli. ℣. Vere Deus est in loco isto, et ego nesciébam. — Non.
+
+#### Lectio ii
+
+ALLIGANT enim ónera grávia et importabília, et impónunt in húmeros hóminum, dígito autem suo nolunt ea movére. Hoc generáliter advérsus omnes magístros, qui grávia jubent, et minóra non fáciunt. Notándum autem, quod et húmeri, et dígitus, et ónera, et víncula quibus alligántur ónera, spirituáliter intelligénda sunt. Omnia vero ópera sua fáciunt, ut videántur ab homínibus. Quicúmque ígitur ita facit quódlibet, ut videátur ab homínibus, scriba et pharisǽus est.
+
+℟. Si Dóminus Deus meus fúerit mecum in via ista, per quam ego ámbulo, et custodíerit me, et déderit mihi panem ad edéndum, et vestiméntum quo opériar, et revocáverit me cum salúte: \* Erit mihi Dóminus in refúgium, et lapis iste in signum. ℣. Surgens ergo mane Jacob, tulit lápidem

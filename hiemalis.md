@@ -39349,3 +39349,53 @@ OPÓRTET enim epíscopum sine crímine esse, sicut Dei dispensatórem: non supé
 TU autem lóquere quæ decent sanam doctrínam: Senes ut sóbrii sint, pudíci, prudéntes, sani in fide, in dilectióne, in patiéntia: Anus simíliter in hábitu sancto, non criminatríces, non multo vino serviéntes, bene docéntes: ut prudéntiam dóceant adolescéntulas, ut viros suos ament, fílios suos díligant, prudéntes, castas, sóbrias, domus curam habéntes, benígnas, súbditas viris suis, ut non blasphemétur verbum Dei. Júvenes simíliter hortáre ut sóbrii sint. In ómnibus teípsum prǽbe exémplum bonórum óperum, in doctrína, in integritáte, in gravitáte, verbum sanum, irreprehensíbile: ut is, qui ex advérso est, vereátur, nihil habens malum dícere de nobis.
 
 ℟. Jurávit Dóminus, et non pænitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. ℣. Dixit Dóminus Dómino meo: Sede a dextris meis. — Tu. Glória Patri. Tu.
+
+#### In II Nocturno
+
+**Ant.** Invocántem \* exaudívit Dóminus Sanctum suum; Dóminus exaudívit eum, et constítuit eum in pace.
+
+###### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** Invocántem exaudívit Dóminus Sanctum suum; Dóminus exaudívit eum, et constítuit eum in pace.
+
+**Ant.** Lætántur omnes, \* qui sperant in te, Dómine: quóniam tu benedixísti justo, scuto bonæ voluntátis tuæ coronásti eum.
+
+###### Psalmus 5
+
+VERBA mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo: \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus: \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem: \* perdes omnes, qui loquúntur mendácium.
+
+Virum sánguinum et dolósum abominábitur Dóminus: \* ego autem in multitúdine misericórdiæ tuæ.
+
+Introíbo in domum tuam: \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua: \* propter inimícos meos dírige in conspéctu tuo viam meam.

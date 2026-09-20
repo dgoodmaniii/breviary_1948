@@ -45277,3 +45277,57 @@ Dómine, si sic vívitur, et in tálibus vita spíritus mei, corrípies me, et v
 Tu autem eruísti ánimam meam ut non períret: \* projecísti post tergum tuum ómnia peccáta mea.
 
 Quia non inférnus confitébitur tibi, neque mors laudábit te: \* non exspectábunt qui descéndunt in lacum, veritátem tuam.
+
+Vivens vivens ipse confitébitur tibi, sicut et ego hódie: \* pater fíliis notam fáciet veritátem tuam.
+
+Dómine, salvum me fac, \* et psalmos nostros cantábimus cunctis diébus vitæ nostræ in domo Dómini.
+
+Réquiem ætérnam.
+
+**Ant.** A porta ínferi érue, Dómine, ánimam meam.
+
+**Ant.** Omnis spíritus \* laudet Dóminum.
+
+###### Psalmus 150
+
+LAUDATE Dóminum in sanctis ejus: \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus: \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ: \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro: \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus: laudáte eum in cýmbalis jubilatiónis: \* omnis spíritus laudet Dóminum.
+
+Réquiem ætérnam.
+
+**Ant.** Omnis spíritus laudet Dóminum.
+
+℣. Audívi vocem de cælo dicéntem mihi. ℟. Beáti mórtui qui in Dómino moriúntur.
+
+**Ad Bened. Ant.** Ego sum \* resurréctio et vita: qui credit in me, étiam si mórtuus fúerit, vivet; et omnis qui vivit et credit in me, non moriétur in ætérnum.
+
+#### Canticum Zachariæ
+
+*Luc. 1, 68-79*
+
+BENEDICTUS Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a sæculo sunt, Prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:

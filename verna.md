@@ -13596,3 +13596,63 @@ Et excitátus est tamquam dórmiens Dóminus, \* tamquam potens crapulátus a vi
 Et percússit inimícos suos in posterióra: \* oppróbrium sempitérnum dedit illis.
 
 Et répulit tabernáculum Joseph: \* et tribum Ephraim non elégit:
+
+Sed elégit tribum Juda, \* montem Sion quem diléxit.
+
+Et ædificávit sicut unicórnium sanctifícium suum in terra, \* quam fundávit in sæcula.
+
+Et elégit David, servum suum, et sústulit eum de grégibus óvium: \* de post fetántes accépit eum.
+
+Páscere Jacob, servum suum, \* et Israël, hereditátem suam:
+
+Et pavit eos in innocéntia cordis sui: \* et in intelléctibus mánuum suárum dedúxit eos.
+
+**Ant.** Ædificávit Deus sanctifícium suum in terra.
+
+---
+
+### In Festis novem Lectionum:
+
+#### Extra Tempus Paschale
+
+℣. Elégit Dóminus tribum Juda. ℟. Montem Sion quem diléxit.
+
+### In Festis novem Lectionum:
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+℣. Deus sucitávit Christum a mórtuis, allelúja. ℟. Ut fides nostra et spes esset in Deo, allelúja.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+#### Extra Tempus Paschale
+
+**Ant.** Adjuva nos, \* Deus, salutáris noster: et propítius esto peccátis nostris.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 78
+
+DEUS, venérunt gentes in hereditátem tuam, polluérunt templum sanctum tuum: \* posuérunt Jerúsalem in pomórum custódiam.
+
+Posuérunt morticína servórum tuórum, escas volatílibus cæli: \* carnes sanctórum tuórum béstiis terræ.
+
+Effudérunt sánguinem eórum tamquam aquam in circúitu Jerúsalem: \* et non erat qui sepelíret.
+
+Facti sumus oppróbrium vicínis nostris: \* subsannátio et illúsio his, qui in circúitu nostro sunt.
+
+Usquequo, Dómine, irascéris in finem: \* accendétur velut ignis zelus tuus?
+
+Effúnde iram tuam in gentes, quæ te non novérunt: \* et in regna, quæ nomen tuum non invocavérunt:
+
+Quia comedérunt Jacob: \* et locum ejus desolavérunt.
+
+Ne memíneris iniquitátum nostrárum antiquárum, cito antícipent nos misericórdiæ tuæ: \* quia páuperes facti sumus nimis.

@@ -11430,3 +11430,67 @@ Deleántur de libro vivéntium: \* et cum justis non scribántur.
 EGO sum pauper et dolens: \* salus tua, Deus, suscépit me.
 
 Laudábo nomen Dei cum cántico: \* et magnificábo eum in laude:
+
+Et placébit Deo super vítulum novéllum: \* córnua producéntem et úngulas.
+
+Vídeant páuperes et læténtur: \* quærite Deum, et vivet ánima vestra.
+
+Quóniam exaudívit páuperes Dóminus: \* et vinctos suos non despéxit.
+
+Laudent illum cæli et terra, \* mare, et ómnia reptília in eis.
+
+Quóniam Deus salvam fáciet Sion: \* et ædificabúntur civitátes Juda.
+
+Et inhabitábunt ibi, \* et hereditáte acquírent eam.
+
+Et semen servórum ejus possidébit eam, \* et qui díligunt nomen ejus, habitábunt in ea.
+
+#### Extra Tempus Paschale
+
+**Ant.** Quærite Dóminum, et vivet ánima vestra.
+
+#### In Festis extra Tempus Paschale
+
+℣. Laudábo nomen Dei cum cántico. ℟. Et magnificábo eum in laude.
+
+#### In feriali Officio Quadragesimæ
+
+℣. Ipse liberávit me de láqueo venántium. ℟. Et a verbo áspero.
+
+#### In feriali Officio Tempore Passionis
+
+℣. Erue a fráméa, Deus, ánimam meam. ℟. Et de manu canis únicam meam.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+#### In Festis novem Lectionum
+
+℣. Deus et Dóminum suscitávit, allelúja. ℟. Et nos suscitábit per virtútem suam, allelúja.
+
+#### In Officiis trium Lectionum
+
+℣. Surréxit Dóminus de sepúlcro, allelúja. ℟. Qui pro nobis pepéndit in ligno, allelúja.
+
+### In Officio novem Lectionum
+
+**Absolutio.** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+### In Officio trium Lectionum
+
+**Absolutio.** Exáudi, Dómine.
+
+#### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+#### In Feriis sine Homilia:
+
+**Bened.** 1 Benedictióne. 2 Unigénitus. 3 Spíritus Sancti.
+
+#### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.

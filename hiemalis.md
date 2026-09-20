@@ -35626,4 +35626,20 @@ APÓSTOLOS Dóminus, quid de se hómines opinéntur, intérrogat: et támdiu ser
 
 #### Lectio viii
 
-ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excel-
+ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excel-léntiam tuam. Quia tu es Petrus: id est, Cum ego sim inviolábilis petra, ego lapis anguláris, qui fácio útraque unum, ego fundaméntum præter quod nemo potest áliud pónere; tamen tu quoque petra es, quia mea virtúte solidáris, ut quæ mihi potestáte sunt própria, sint tibi mecum participatióne commúnia. Et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: Super hanc, inquit, fortitúdinem ætérnum exstrúam templum; et Ecclésiæ meæ cælo inserénda sublímitas, in hujus fídei firmitáte consúrget.
+
+℟. Elégit te Dóminus sacerdótem sibi, ad sacrificándum ei \* Hóstiam laudis. ℣. Immóla Deo sacrifícium laudis, et redde Altíssimo vota tua. — Hóstiam. Glória Patri. Hóstiam.
+
+{RUBRIC: Si hoc Festum ante Quadragésimam occúrrerit in Sábbato, et annus non sit bissextílis, légitur ix Lectio de Homilía Vigíliæ anticipátæ S. Matthíæ ut in Vigíliis Apostolórum} [1], {RUBRIC: et de ea fit Commem. ad Laudes post Commemoratiónem S. Pauli. In Quadragésima autem ix Lectio erit de Homilía Fériæ occurréntis cum Commemoratióne de ea, et in Offício nihil fit de Vigília. Alias}
+
+#### Lectio ix
+
+HANC confessiónem portæ ínferi non tenébunt, mortis víncula non ligábunt; vox enim ista vox vitæ est. Et sicut confessóres suos in cæléstia próvehit, ita negatóres ad inférna demérgit. Propter quod dicit beatíssimo Petro: Tibi dabo claves regni cælórum: et quæcúmque ligáveris super terram, erunt ligáta et in cælis; et quæcúmque sólveris super terram, erunt solúta et in cælis. Transívit quidem étiam in álios Apóstolos vis potestátis istíus, et ad omnes Ecclésiæ príncipes decréti hujus constitútio commeávit; sed non frustra uni commendátur, quod ómnibus intimátur. Petro enim ídeo hoc singuláriter créditur, quia cunctis Ecclésiæ rectóribus Petri forma præpónitur. Manet ergo Petri privilégium, ubicúmque ex ipsíus fertur æquitáte judícium. Nec nímia est vel sevéritas vel remíssio, ubi nihil erit ligátum, nihil solútum, nisi quod beátus Petrus aut sólverit aut ligáverit.
+
+{RUBRIC: Te Deum.}
+
+### Ad Laudes
+
+{RUBRIC: Capit.} *Eccli. 44, 16-17*
+
+ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est

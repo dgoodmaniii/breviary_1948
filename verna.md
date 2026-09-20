@@ -1686,3 +1686,45 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 ℣. Dóminus det nobis suam pacem. ℟. Et vitam ætérnam. Amen.
 
 {RUBRIC: Atque statim dicitur Antiphona finalis, ut infra.}
+
+{RUBRIC: II Post Completorium vero, recitata Benedictione} Benedícat et custódiat nos, {RUBRIC: immediate subjungitur Antiphona finalis, ut infra.}
+
+### Antiphonæ finales Beatæ Mariæ Virginis
+
+{RUBRIC: 1 A Vesperis Sabbati ante Dominicam I Quadragesimæ usque ad Completorium Feriæ IV Majoris Hebdomadæ inclusive:}
+
+#### Antiphona
+
+AVE, Regína cælórum,
+Ave, Dómina Angelórum:
+Salve, radix, salve, porta,
+Ex qua mundo lux est orta:
+Gaude, Virgo gloriósa,
+Super omnes speciósa,
+Vale, o valde decóra,
+Et pro nobis Christum exóra.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+Orémus. **Oratio**
+
+CONCEDE, miséricors Deus, fragilitáti nostræ præsídium: ut, qui sanctæ Dei Genitrícis memóriam ágimus; intercessiónis ejus auxílio, a nostris iniquitátibus resurgámus. Per eúmdem Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: 2 A Completorio Sabbati sancti usque ad Nonam Sabbati infra Octavam Pentecostes inclusive:}
+
+#### Antiphona
+
+REGINA cæli, lætáre, allelúja;
+Quia quem meruísti portáre, allelúja,
+Resurréxit, sicut dixit, allelúja:
+Ora pro nobis Deum, allelúja.
+
+℣. Gaude et lætáre, Virgo María, allelúja. ℟. Quia surréxit Dóminus vere, allelúja.
+
+Orémus. **Oratio**
+
+DEUS, qui per resurrectiónem Fílii tui, Dómini nostri Jesu Christi, mundum lætificáre dignátus es: præsta, quæsumus; ut, per ejus Genitrícem Vírginem Maríam, perpétuæ capiámus gáudia vitæ. Per eúmdem Christum, Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Absoluta vero Antiphona finali cum suis Versu et Oratione, concluditur:}
+
+℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.

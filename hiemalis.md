@@ -42008,4 +42008,20 @@ Quóniam hic est Deus, Deus noster in ætérnum, et in sæculum sæculi: \* ipse
 #### Lectio i
 *Cap. 7, 1-16*
 
-CUM complésset Sálomon fundens preces, ignis descéndit de cælo, et devorávit holocáusta et víctimas: et majéstas Dómini implévit domum. Nec póterant sacerdótes íngredi templum Dómini, eo quod implésset majéstas Dómini templum Dómini. Sed et omnes fílii Israël vidébant descendéntem ignem, et glóriam Dómini super domum: et corruéntes proni in terram super paviméntum stratum lápide, adoravérunt et laudavérunt Dóminum: Quóniam bonus, quóniam in sæculum misericórdia ejus. Rex autem et omnis pópulus immolábant víctimas coram Dómino. Mactávit ígitur rex Sálomon hóstias, boum vigínti
+CUM complésset Sálomon fundens preces, ignis descéndit de cælo, et devorávit holocáusta et víctimas: et majéstas Dómini implévit domum. Nec póterant sacerdótes íngredi templum Dómini, eo quod implésset majéstas Dómini templum Dómini. Sed et omnes fílii Israël vidébant descendéntem ignem, et glóriam Dómini super domum: et corruéntes proni in terram super paviméntum stratum lápide, adoravérunt et laudavérunt Dóminum: Quóniam bonus, quóniam in sæculum misericórdia ejus. Rex autem et omnis pópulus immolábant víctimas coram Dómino. Mactávit ígitur rex Sálomon hóstias, boum vigínti duo míllia, aríetum centum vigínti míllia: et dedicávit domum Dei rex et univérsus pópulus.
+
+℟. In dedicatióne templi decantábat pópulus laudem: \* Et in ore eórum dulcis resonábat sonus. ℣. Fundáta est domus Dómini supra vérticem móntium, et vénient ad eam omnes gentes. — Et.
+
+**Benedictio.** Unigénitus Dei.
+
+#### Lectio ii
+
+SACERDÓTES autem stabant in offíciis suis, et Levítæ in órganis cárminum Dómini, quæ fecit David rex ad laudándum Dóminum: Quóniam in ætérnum misericórdia ejus; hymnos David canéntes per manus suas: porro sacerdótes canébant tubis ante eos, cunctúsque Israël stabat. Sanctificávit quoque Sálomon médium átrii ante templum Dómini; obtúlerat enim ibi holocáusta, et ádipes pacificórum: quia altáre ǽneum, quod fécerat, non póterat sustinére holocáusta et sacrifícia et ádipes. Fecit ergo Sálomon solemnitátem in témpore illo septem diébus, et omnis Israël cum eo, ecclésia magna valde ab intróitu Emath usque ad Torréntem Ægýpti. Fecítque die octávo colléctam, eo quod dedicásset altáre septem diébus, et solemnitátem celebrásset diébus septem.
+
+℟. Fundáta est domus Dómini supra vérticem móntium, et exaltáta est super omnes colles: \* Et vénient ad eam omnes gentes, et dicent: Glória tibi, Dómine. ℣. Veniéntes autem vénient cum exsultatióne, portántes manípulos suos. — Et.
+
+**Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+
+COMPLEVÍTQUE Sálomon domum Dómini, et domum regis, et ómnia quæ disposúerat in corde suo, ut fáceret in domo Dómini et in domo sua, et prosperátus est. Appáruit autem ei Dóminus nocte, et ait: Audívi oratiónem tuam, et elégi locum istum mihi in domum sacrifícii. Si cláusero cælum, et plúvia non flúxerit, et mandávero et præcépero locústæ, ut dévoret terram, et mísero pestiléntiam in pópulum meum: convérsus autem pópulus meus, super quos invocátum est nomen meum, deprecátus me fúerit, et exquisíerit fáciem meam, et égerit pæniténtiam a viis suis péssimis: et ego exáudiam de cælo, et propítius ero peccátis eórum, et sanábo terram eórum. Óculi quoque mei

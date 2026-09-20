@@ -43965,3 +43965,60 @@ QUASI cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion: quasi 
 **Ant. 1** Assúmpta est María in cælum: \* gaudent Angeli, laudántes benedícunt Dóminum.
 
 {RUBRIC: Psalmi de Domínica 1 loco.}
+
+**2** María Virgo assúmpta est \* ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
+
+**3** In odórem \* unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis.
+
+**4** Benedícta \* fília tu a Dómino: quia per te fructum vitæ communicávimus.
+
+**5** Pulchra es \* et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+#### Capitulum
+*Cant. 6, 8*
+
+VIDÉRUNT eam fíliæ Sion, et beatíssimam prædicavérunt, et regínæ laudavérunt eam. ℟. Deo grátias.
+
+{RUBRIC: Hymnus} O gloriósa. [192]
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Bened. Ant.** Beáta Dei Génitrix, María, \* Virgo perpétua, templum Dómini, sacrárium Spíritus Sancti, sola sine exémplo placuísti Dómino nostro Jesu Christo: ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemorátio de Sanctis, ut supra ad Vésperas. [196]}
+
+##### AD PRIMAM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+MEMENTO, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+María, Mater grátiæ,
+Dulcis Parens cleméntiæ,
+Tu nos ab hoste prótege
+Et mortis hora súscipe.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+**Ant.** Assúmpta est María in cælum.
+
+{RUBRIC: Ps. 53} Deus in nómine tuo 181; {RUBRIC: Ps. 84} Benedixísti 245; {RUBRIC: Ps. 116} Laudáte

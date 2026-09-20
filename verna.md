@@ -13297,3 +13297,84 @@ Ducto quater notíssimo.
 
 Lex et prophétæ prímitus
 Hoc prætulérunt, póstmodum
+Christus sacrávit, ómnium
+Rex atque factor témporum.
+
+Utámur ergo párcius
+Verbis, cibis et pótibus,
+Somno, jocis, et árctius
+Perstémus in custódia.
+
+Vitémus autem nóxia,
+Quæ súbruunt mentes vagas:
+Nullúmque demus cállidi
+Hostis locum tyránnidi.
+
+Flectámus iram víndicem,
+Plorémus ante Júdicem,
+Clamémus ore súpplici,
+Dicámus omnes cérnui:
+
+Nostris malis offéndimus
+Tuam, Deus, cleméntiam:
+Effúnde nobis désuper,
+Remíssor, indulgéntiam.
+
+Meménto quod sumus tui,
+Licet cadúci, plásmatis:
+Ne des honórem nóminis
+Tui, precámur, álteri.
+
+Laxa malum, quod fécimus,
+Auge bonum, quod póscimus:
+Placére quo tandem tibi
+Possímus hic, et pérpetim.
+
+Præsta, beáta Trínitas,
+Concéde, simplex Unitas,
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+### Tempore Paschali
+
+**Invit.** Surréxit Dóminus vere, \* Allelúja. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+REX sempitérne cælitum,
+Rerum Creátor ómnium,
+Æquális ante sæcula
+Semper Parénti Fílius:
+
+Nascénte qui mundo faber
+Imáginem vultus tui
+Tradens Adámo, nóbilem
+Limo jugásti spíritum.
+
+Cum livor et fraus dæmonis
+Fœdásset humánum genus:
+Tu, carne amíctus, pérditam
+Formam refórmas ártifex.
+
+Qui, natus olim e Vírgine,
+Nunc e sepúlcro násceris,
+Tecúmque nos a mórtuis
+Jubes sepúltos súrgere.
+
+Qui, pastor ætérnus, gregem
+Aqua lavas baptísmatis:
+Hæc est lavácrum méntium:
+Hæc est sepúlcrum críminum.
+
+Nobis diu qui débitæ
+Redémptor affíxus Cruci,
+Nostræ dedísti pródigus
+Prétium salútis sánguinem.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis

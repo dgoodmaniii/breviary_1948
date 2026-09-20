@@ -6017,4 +6017,56 @@ Erubéscant, et conturbéntur veheménter omnes inimíci mei: \* convertántur e
 
 ###### Psalmus 7, i
 
-DOMINE, Deus meus, in te sperávi: \* salvum me fac ex ómnibus perse-
+DOMINE, Deus meus, in te sperávi: \* salvum me fac ex ómnibus persequéntibus me, et líbera me.
+
+Nequándo rápiat ut leo ánimam meam, \* dum non est qui rédimat, neque qui salvum fáciat.
+
+Dómine, Deus meus, si feci istud, \* si est iníquitas in mánibus meis:
+
+Si réddidi retribuéntibus mihi mala, \* décidam mérito ab inimícis meis inánis.
+
+Persequátur inimícus ánimam meam, et comprehéndat, et concúlcet in terra vitam meam, \* et glóriam meam in púlverem dedúcat.
+
+Exsúrge, Dómine, in ira tua: \* et exaltáre in fínibus inimicórum meórum.
+
+Et exsúrge, Dómine, Deus meus, in præcépto quod mandásti: \* et synagóga populórum circúmdabit te.
+
+Et propter hanc in altum regrédere: \* Dóminus júdicat pópulos.
+
+Júdica me, Dómine, secúndum justítiam meam, \* et secúndum innocéntiam meam super me.
+
+Consumétur nequítia peccatórum, et díriges justum, \* scrutans corda et renes, Deus.
+
+###### Psalmus 7, ii
+
+JUSTUM adjutórium meum a Dómino, \* qui salvos facit rectos corde.
+
+Deus judex justus, fortis, et pátiens: \* numquid iráscitur per síngulos dies?
+
+Nisi convérsi fuéritis, gládium suum vibrábit: \* arcum suum teténdit, et parávit illum.
+
+Et in eo parávit vasa mortis: \* sagíttas suas ardéntibus effécit.
+
+Ecce, partúriit injustítiam: \* concépit dolórem, et péperit iniquitátem.
+
+Lacum apéruit, et effódit eum: \* et íncidit in fóveam quam fecit.
+
+Convertétur dolor ejus in caput ejus: \* et in vérticem ipsíus iníquitas ejus descéndet.
+
+Confitébor Dómino secúndum justítiam ejus: \* et psallam nómini Dómini altíssimi.
+
+{RUBRIC: Extra Tempus Paschale:} **Ant.** Salvum me fac, Dómine, propter misericórdiam tuam.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata,

@@ -3079,3 +3079,55 @@ Deféctio ténuit me, \* pro peccatóribus derelinquéntibus legem tuam.
 Cantábiles mihi erant justificatiónes tuæ, \* in loco peregrinatiónis meæ.
 
 Memor fui nocte nóminis tui, Dómine: \* et custodívi legem tuam.
+
+Hæc facta est mihi: \* quia justificatiónes tuas exquisívi.
+
+Pórtio mea, Dómine, \* dixi custodíre legem tuam.
+
+Deprecátus sum fáciem tuam in toto corde meo: \* miserére mei secúndum elóquium tuum.
+
+Cogitávi vias meas: \* et convérti pedes meos in testimónia tua.
+
+Parátus sum, et non sum turbátus: \* ut custódiam mandáta tua.
+
+Funes peccatórum circumpléxi sunt me: \* et legem tuam non sum oblítus.
+
+Média nocte surgébam ad confiténdum tibi, \* super judícia justificatiónis tuæ.
+
+Párticeps ego sum ómnium timéntium te: \* et custodiéntium mandáta tua.
+
+Misericórdia tua, Dómine, plena est terra: \* justificatiónes tuas doce me.
+
+###### Psalmus 118, v
+
+BONITATEM fecísti cum servo tuo, Dómine, \* secúndum verbum tuum.
+
+Bonitátem, et disciplínam, et sciéntiam doce me: \* quia mandátis tuis crédidi.
+
+Priúsquam humiliárer ego delíqui: \* proptérea elóquium tuum custodívi.
+
+Bonus es tu: \* et in bonitáte tua doce me justificatiónes tuas.
+
+Multiplicáta est super me iníquitas superbórum: \* ego autem in toto corde meo scrutábor mandáta tua.
+
+Coagulátum est sicut lac cor eórum: \* ego vero legem tuam meditátus sum.
+
+Bonum mihi quia humiliásti me: \* ut discam justificatiónes tuas.
+
+Bonum mihi lex oris tui, \* super míllia auri et argénti.
+
+Manus tuæ fecérunt me, et plasmavérunt me: \* da mihi intelléctum, et discam mandáta tua.
+
+Qui timent te vidébunt me, et lætabúntur: \* quia in verba tua supersperávi.
+
+Cognóvi, Dómine, quia æquitas judícia tua: \* et in veritáte tua humiliásti me.
+
+Fiat misericórdia tua ut consolétur me, \* secúndum elóquium tuum servo tuo.
+
+Véniant mihi miseratiónes tuæ, et vivam: \* quia lex tua meditátio mea est.
+
+Confundántur supérbi, quia injúste iniquitátem fecérunt in me: \* ego autem exercébor in mandátis tuis.
+
+Convertántur mihi timéntes te: \* et qui novérunt testimónia tua.
+
+Fiat cor meum immaculátum in justificatióni-

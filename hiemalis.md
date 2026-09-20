@@ -40561,4 +40561,50 @@ SED et reprobórum duos sibi futúros órdines, Dómino narránte, comperímus: 
 
 #### Lectio ix
 
-VERUM, his cum timóre et pavóre débito paulísper commemorátis, ad
+VERUM, his cum timóre et pavóre débito paulísper commemorátis, ad lætíssima pótius Dómini et Salvatóris nostri promíssa convertámus audítum. Vidéamus quæ tantæ grátia pietátis: non ætérnæ tantúmmodo vitæ prǽmia suis sequácibus, sed et præséntis múnera pollicétur exímia. Et omnis, inquit, qui relíquerit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum accípiet, et vitam ætérnam possidébit. Qui enim terrénis afféctibus sive possessiónibus pro Christi discipulátu renuntiáverit; quo plus in ejus amórem profécerit, eo plures invéniet, qui se intérno suscípere afféctu et suis gáudeant sustentáre substántiis.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+# Commune Virginum
+
+### In I Vesperis
+
+**Ant. 1** Hæc est Virgo sápiens, \* et una de número prudéntum.
+
+{RUBRIC: Psalmi ut in Communi Festórum B. Maríæ Virg. [174]}
+
+**2** Hæc est Virgo sápiens, \* quam Dóminus vigilántem invénit.
+
+**3** Hæc est quæ nescívit \* torum in delícto: habébit fructum in respectióne animárum sanctárum.
+
+**4** Veni, elécta mea, \* et ponam in te thronum meum, allelúja.
+
+**5** Ista est speciósa \* inter fílias Jerúsalem.
+
+#### Capitulum
+
+*2 Cor. 10, 17-18*
+
+FRATRES: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+#### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit,
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília,
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia.
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant.
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus

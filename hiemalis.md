@@ -39076,4 +39076,20 @@ IN illo témpore: Dixit Jesus discípulis suis: Atténdite a ferménto pharisæ�
 
 {RUBRIC: Lib. 4 in Luc. cap. 12}
 
-DE hoc ferménto Apóstolus prǽcipit: Itaque epulémur, non in ferménto véteri, neque in ferménto malítiæ, et nequítiæ, sed in ázymis sinceritátis et veritátis. Nam sicut módicum ferméntum totam farínæ, cui injícitur, massam corrúmpit, universámque mox conspersiónem suo sapóre commáculat: sic nimírum simulátio, cujus semel ánimum imbúerit, tota virtútum sinceritáte et veritáte fraudábit. Est ergo sensus: Atténdite, ne ǽmulémini simulatóres, quia
+DE hoc ferménto Apóstolus prǽcipit: Itaque epulémur, non in ferménto véteri, neque in ferménto malítiæ, et nequítiæ, sed in ázymis sinceritátis et veritátis. Nam sicut módicum ferméntum totam farínæ, cui injícitur, massam corrúmpit, universámque mox conspersiónem suo sapóre commáculat: sic nimírum simulátio, cujus semel ánimum imbúerit, tota virtútum sinceritáte et veritáte fraudábit. Est ergo sensus: Atténdite, ne ǽmulémini simulatóres, quia véniet profécto tempus, in quo et vestra virtus ómnibus et eórum revelétur hypócrisis.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+#### Lectio viii
+
+VERUM quod séquitur: Quóniam quæ in ténebris dixístis, in lúmine dicéntur; non solum in futúro, quando cuncta córdium abscóndita proferéntur ad lucem, sed et in præsénti témpore potest congruénter áccipi. Quóniam quæ inter ténebras quondam pressurárum, carcerúmque umbras vel locúti, vel passi sunt Apóstoli, nunc, clarificáta per orbem Ecclésia, lectis eórum áctibus, públice prǽdicántur. Ne terreámini ab his, qui occídunt corpus. Si persecutóres Sanctórum, occísis corpóribus, non habent ámplius quid contra illos agant; ergo supervácua furunt insánia, qui mórtua Mártyrum membra feris avibúsque discerpénda projíciunt, cum nequáquam omnipoténtiæ Dei, quin ea resuscitándo vivíficet, obsístere possint.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis: \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória Patri. Mercédem.
+
+{RUBRIC: Vel ℟. Hæc est vera. [67]}
+
+#### Lectio ix
+
+DUO autem sunt génera persecutórum: unum palam sæviéntium, álterum ficte fraudulentérque blandiéntium. Contra utrúmque nos muníre atque institúere volens Salvátor, et supra ab hypócrisi pharisæórum atténdere, et hic a carníficum cæde prǽcipit non timére; quia vidélicet post mortem nec horum crudélitas, nec illórum váleat simulátio duráre. Nonne quinque pásseres véneunt dipóndio? Si minutíssima, inquit, animália, et quæ quólibet per áëra ferúntur volatília, Deus oblivísci non potest; vos, qui ad imáginem facti estis Creatóris, non debétis terréri ab his, qui occídunt corpus; quia, qui irrationabília animália gubérnat, rationabília curáre non désinit.
+
+{RUBRIC: Te Deum laudámus.}

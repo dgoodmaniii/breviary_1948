@@ -35996,4 +35996,24 @@ DEUS, qui inter regáles delícias et mundi illécebras, sanctum Casimírum virt
 
 #### Oratio
 
-REGEM tuum, Pastor ætérne, placátus inténde: et per beátum
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Lúcium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Justus si morte,} 2 loco. [102]
+
+### In II Nocturno
+
+#### Lectio iv
+
+CASIMÍRUS, patre Casimíro, matre Elisabétha Austríaca, Polóniæ régibus ortus, a pueritía sub óptimis magístris pietáte et bonis ártibus instrúctus, juvéniles artus áspero domábat cilício et assíduis extenuábat jejúniis. Régii spreta lecti mollítie, dura cubábat humo, et clam intempésta nocte præ fóribus templórum pronus in terra divínam exorábat cleméntiam. In Christi contemplánda passióne assíduus, Missárum solémniis ádeo erécta in Deum mente solébat adésse, ut extra se rapi viderétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+CATHÓLICAM promovére fidem summópere stúduit, et Ruthenórum schísma abolére; quaprópter Casimírum patrem indúxit, ut legem ferret, ne schismátici nova templa constrúerent, nec vétera collabéntia restaurárent. Erga páuperes et calamitátibus opréssos benéficus et miséricors, patris et defensóris egenórum nomen obtínuit. Virginitátem, quam ab incunábulis servávit illǽsam, sub extrémo vitæ término fórtiter asséruit, dum gravi pressus infirmitáte, mori pótius quam castitátis jactúram ex medicórum consílio subíre, constánter decrévit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+CONSUMMÁTUS in brevi, virtútibus et méritis plenus, prænuntiáto mortis die, inter sacerdótum et religiosórum choros spíritum Deo réddidit, anno ætátis vigésimo quinto. Corpus, Vilnam delátum, multis claret miráculis. Etenim prætérquam quod

@@ -2409,3 +2409,47 @@ Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos 
 {RUBRIC: Oratio conveniens.}
 
 {RUBRIC: Reliqua ut in Ordinario. 13}
+
+{RUBRIC: Psalmi cum Cantico de Dominica superius appositi dicuntur etiam, sub Antiphonis Officio diei congruentibus, in Dominica infra Octavam Ascensionis, in feria VI post Octavam Ascensionis, in Vigilia Pentecostes, in Duplicibus I vel II classis, in Festis novem Lectionum Domini, B. Mariæ Virginis, Angelorum, S. Joannis Baptistæ, S. Joseph, Apostolorum, Evangelistarum, itemque in quolibet Festo novem Lectionum proprias Antiphonas ad Laudes habenti, quando de eis persolvitur Officium.}
+
+## Ad Laudes II
+
+*A Dominica I Quadragesimæ usque ad Dominicam Palmarum inclusive.*
+
+(Pater noster {RUBRIC: et} Ave.)
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Antiphonæ de Laudibus Dominicæ currentis, ut in Proprio de Tempore}
+
+###### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim, in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim, veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis: \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus: \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua: \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui: \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.

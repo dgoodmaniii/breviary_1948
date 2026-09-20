@@ -925,4 +925,42 @@ DOMINE, Deus omnípotens, qui ad princípium hujus diéi nos perveníre fecísti
 
 **Oratio**
 
-SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári
+SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári et salvári, qui vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína. {RUBRIC: Et dicitur ter; ultimo additur:} Glória Patri, et Fílio, et Spirítui Sancto. Sicut erat in princípio, et nunc, et semper, et in sæcula sæculórum. Amen.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos, et opus mánuum nostrárum dírige. ℣. Glória Patri. ℟. Sicut erat.
+
+Orémus. **Oratio**
+
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+{RUBRIC: Deinde dicitur Lectio brevis, ad absolutionem Capituli, prouti Officium occurrens requirit.}
+
+℣. Jube, domne, benedícere. **Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+#### In Officio dominicali et feriali
+
+{RUBRIC: A Dominica I Quadragesimæ usque ad Sabbatum ante Dominicam Passionis inclusive:}
+
+**Lectio brevis** *Is. 55, 6*
+
+QUÆRITE Dóminum, dum inveníri potest: invocáte eum, dum prope est. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+{RUBRIC: ¶ Ita semper concluduntur Lectiones breves ad Primam, et ita in earum fine respondetur.}
+
+{RUBRIC: A Dominica Passionis usque ad Feriam IV Majoris Hebdomadæ inclusive:}
+
+**Lectio brevis** *Is. 50, 6-7*
+
+FACIEM meam non avérti ab increpántibus, et conspuéntibus in me. Dóminus Deus auxiliátor meus, et ídeo non sum confúsus. Tu autem.
+
+{RUBRIC: A Dominica Resurrectionis usque ad Vigiliam Ascensionis inclusive:}
+
+**Lectio brevis** *Col. 3, 1-2*
+
+SI consurrexístis cum

@@ -16123,4 +16123,56 @@ EXAUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánima
 
 Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
 
-Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amá-
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Lætábitur justus in Dómino, et sperábit in eo.
+
+**Ant.** Osténde nobis, Dómine, \* lumen miseratiónum tuárum.
+
+### Canticum Ecclesiastici
+
+###### Eccli. 36, 1-16
+
+MISERERE nostri, Deus ómnium, et réspice nos, \* et osténde nobis lucem miseratiónum tuárum:
+
+Et immítte timórem tuum super gentes, \* quæ non exquisiérunt te,
+
+Ut cognóscant quia non est Deus nisi tu, \* et enárrent magnália tua.
+
+Álleva manum tuam super gentes aliénas, \* ut vídeant poténtiam tuam.
+
+Sicut enim in conspéctu eórum sanctificátus es in nobis, \* sic in conspéctu nostro magnificáberis in eis,
+
+Ut cognóscant te, sicut et nos cognóvimus, \* quóniam non est Deus præter te, Dómine.
+
+Innova signa, et immúta mirabília. \* Glorífica manum, et bráchium déxtrum.
+
+Excita furórem, et effúnde iram. \* Tolle adversárium, et afflíge inimícum.
+
+Festína tempus, et meménto finis, \* ut enárrent mirabília tua.
+
+In ira flammæ devorétur qui salvátur: \* et qui péssimant plebem tuam, invéniant perditiónem.
+
+Cóntere caput príncipum inimicórum, \* dicéntium: Non est álius præter nos.
+
+Cóngrega omnes tribus Jacob: ut cognóscant quia non est Deus nisi tu, \* et enárrent magnália tua:
+
+Et hereditábis eos, \* sicut ab inítio.
+
+Miserére plebi tuæ, super quam invocátum est nomen tuum: \* et Israël,

@@ -15387,4 +15387,65 @@ Quia misericórdia tua magna est super me: \* et eruísti ánimam meam ex infér
 
 Deus, iníqui insurrexérunt super me, et synagóga poténtium quæsiérunt ánimam meam: \* et non proposuérunt te in conspéctu suo.
 
-Et tu, Dómine, Deus miserátor et miséricors,
+Et tu, Dómine, Deus miserátor et miséricors, pátiens, et multæ misericórdiæ, et verax.
+
+Réspice in me, et miserére mei, \* da impérium tuum púero tuo: et salvum fac fílium ancíllæ tuæ.
+
+Fac mecum signum in bonum, ut vídeant qui odérunt me, et confundántur: \* quóniam tu, Dómine, adjuvísti me, et consolátus es me.
+
+### Extra Tempus Paschale
+
+**Ant.** Voce mea ad Dóminum clamávi: neque obliviscétur miseréri Deus.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+#### Tempore Paschali
+
+℟. br. In manus tuas, Dómine, comméndo spíritum meum, \* Allelúja, allelúja. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Allelúja, allelúja. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi, allelúja. ℟. Sub umbra alárum tuárum prótege nos, allelúja.
+
+**Ant.** Salva nos.
+
+## Canticum Simeonis
+
+###### Luc. 2, 29-32
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum

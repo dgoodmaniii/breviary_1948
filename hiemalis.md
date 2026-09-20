@@ -44201,4 +44201,52 @@ QUÆ cum audísset, turbáta est in sermóne ejus, et cogitábat qualis esset is
 
 **Lectio iii**
 
-DIXIT autem María ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Angelus dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi. Ideóque et quod nascétur ex te Sanctum, vocábitur Fílius Dei. Et ecce Elísabeth, cognáta tua, et ipsa concépit fílium in senectúte sua, et hic mensis sextus est illi, quæ vocátur stérilis; quia non erit impossíbile apud Deum omne verbum. Dixit autem María: Ecce
+DIXIT autem María ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Angelus dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi. Ideóque et quod nascétur ex te Sanctum, vocábitur Fílius Dei. Et ecce Elísabeth, cognáta tua, et ipsa concépit fílium in senectúte sua, et hic mensis sextus est illi, quæ vocátur stérilis; quia non erit impossíbile apud Deum omne verbum. Dixit autem María: Ecce ancílla Dómini: fiat mihi secúndum verbum tuum. Tu autem.
+
+{RUBRIC: In Festis B. Maríæ Virg., omísso Responsório sequénti, dícitur} Te Deum.
+
+℟. Súscipe verbum, Virgo María, quod tibi a Dómino per Angelum transmíssum est: concípies et páries Deum páriter et hóminem, \* Ut benedícta dicáris inter omnes mulíeres. ℣. Páries quidem fílium, et virginitátis non patiéris detriméntum: efficiéris grávida, et eris mater semper intácta. — Ut. Glória Patri. Ut.
+
+##### AD LAUDES
+
+**Ant. 1** Missus est \* Gábriel Angelus ad Maríam Vírginem desponsátam Joseph.
+
+**2** Ave, María, \* grátia plena; Dóminus tecum: benedícta tu in muliéribus, allelúja.
+
+**3** Ne tímeas, María, \* invenísti grátiam apud Dóminum: ecce concípies et páries fílium, allelúja.
+
+**4** Dabit ei Dóminus \* sedem David, patris ejus; et regnábit in ætérnum.
+
+**5** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum.
+
+#### Capitulum
+*Is. 11, 1-2*
+
+EGREDIÉTUR virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum Spíritus Dómini. ℟. Deo grátias.
+
+**Ad Bened. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei, allelúja.
+
+{RUBRIC: Oratio et Commemoratio de Sanctis, ut notátur supra ad Vésperas. [202]}
+
+##### AD PRIMAM
+
+**Ant.** Missus est \* Gábriel Angelus ad Maríam Vírginem desponsátam Joseph.
+
+#### Capitulum
+*Is. 7, 14-15*
+
+ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+##### AD TERTIAM
+
+**Ant.** Ave María, \* grátia plena; Dóminus tecum: benedícta tu in muliéribus, allelúja.
+
+**Capit.** Egrediétur, ut supra.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+##### AD SEXTAM
+
+**Ant.** Ne tímeas, María, \* invenísti grátiam apud

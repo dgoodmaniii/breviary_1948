@@ -35838,4 +35838,24 @@ ET statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Jus
 
 *Cap. 11, 25-30*
 
-IN illo témpore: Respóndens Jesus dixit: Confíteor tibi, Pater, Dómine cæli et terræ, quia abscon-
+IN illo témpore: Respóndens Jesus dixit: Confíteor tibi, Pater, Dómine cæli et terræ, quia abscon-dísti hæc a sapiéntibus et prudéntibus, et revelásti ea párvulis. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 10 de verbis Dómini}
+
+VENÍTE ad me, omnes qui laborátis. Quare enim omnes laborámus, nisi quia sumus hómines mortáles, frágiles, infírmi, lútea vasa portántes, quæ fáciunt ínvicem angústias? Sed, si angustiántur vasa carnis, dilaténtur spátia caritátis. Quid ergo dicit, Veníte ad me, omnes qui laborátis, nisi ut non laborétis? Dénique promíssio ejus in promptu est; quóniam laborántes vocávit, quǽrent forte qua mercéde vocáti sunt. Et ego vos, inquit, refíciam. Tóllite jugum meum super vos, et díscite a me, non mundum fabricáre, non cuncta visibília et invisibília creáre, non in ipso mundo mirabília fácere et mórtuos suscitáre; sed, Quóniam mitis sum et húmilis corde.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+MAGNUS esse vis? a mínimo íncipe. Cógitas magnam fábricam constrúere celsitúdinis? de fundaménto prius cógita humilitátis. Et quantam quisque vult et dispónit superimpónere molem ædifícii, quanto erit majus ædifícium, tanto áltius fodit fundaméntum. Et fábrica quidem cum constrúitur, in supérna consúrgit; qui autem fodit fundaméntum, ad ima deprímitur. Ergo et fábrica ante celsitúdinem humiliátur, et fastígium post humiliatiónem erígitur.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ et fit ejus Commemoratio ad Laudes et in II Vésperis, alias}
+
+#### Lectio ix
+
+QUOD est fastígium construéndæ fábricæ, quam molímur? quo perventúrum est cacúmen ædifícii? Cito dico, usque ad conspéctum Dei. Vidétis quam excélsum est,

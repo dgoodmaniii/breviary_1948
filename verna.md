@@ -15201,3 +15201,68 @@ Cadent in retiáculo ejus peccatóres: \* singuláriter sum ego donec tránseam.
 **Ant.** Dómine, clamávi ad te, exáudi me.
 
 **Ant.** Educ de custódia \* ánimam meam, Dómine, ad confiténdum nómini tuo.
+
+###### Psalmus 141
+
+VOCE mea ad Dóminum clamávi: \* voce mea ad Dóminum deprecátus sum:
+
+Effúndo in conspéctu ejus oratiónem meam, \* et tribulatiónem meam ante ipsum pronúntio.
+
+In deficiéndo ex me spíritum meum, \* et tu cognovísti sémitas meas.
+
+In via hac, qua ambulábam, \* abscondérunt láqueum mihi.
+
+Considerábam ad déxteram, et vidébam: \* et non erat qui cognósceret me.
+
+Périit fuga a me, \* et non est qui requírat ánimam meam.
+
+Clamávi ad te, Dómine, \* dixi: Tu es spes mea, pórtio mea in terra vivéntium.
+
+Inténde ad deprecatiónem meam: \* quia humiliátus sum nimis.
+
+Líbera me a persequéntibus me: \* quia confortáti sunt super me.
+
+Educ de custódia ánimam meam ad confiténdum nómini tuo: \* me exspéctant justi, donec retríbuas mihi.
+
+### Extra Tempus Paschale
+
+**Ant.** Educ de custódia ánimam meam, Dómine, ad confiténdum nómini tuo.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Capitulum** *Joel 2, 17*
+
+INTER vestíbulum et altáre plorábunt sacerdótes, minístri Dómini, et dicent: Parce, Dómine, parce pópulo tuo: et ne des hereditátem tuam in oppróbrium, ut dominéntur eis natiónes.
+
+#### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus,
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te revérsis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+Præsta, beáta Trínitas,
+Concéde, simplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.

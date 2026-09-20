@@ -5262,3 +5262,51 @@ Legem pone mihi, Dómine, in via tua: \* et dírige me in sémitam rectam propte
 Ne tradíderis me in ánimas tribulántium me: \* quóniam insurrexérunt in me testes iníqui, et mentíta est iníquitas sibi.
 
 Credo vidére bona Dómini \* in terra vivéntium.
+
+Exspécta Dóminum, viríliter age: \* et confortétur cor tuum, et sústine Dóminum.
+
+###### Psalmus 27
+
+AD te, Dómine, clamábo, Deus meus, ne síleas a me: \* nequándo táceas a me, et assimilábor descendéntibus in lacum.
+
+Exáudi, Dómine, vocem deprecatiónis meæ dum oro ad te: \* dum extóllo manus meas ad templum sanctum tuum.
+
+Ne simul trahas me cum peccatóribus: \* et cum operántibus iniquitátem ne perdas me.
+
+Qui loquúntur pacem cum próximo suo: \* mala autem in córdibus eórum.
+
+Da illis secúndum ópera eórum, \* et secúndum nequítiam adinventiónum ipsórum.
+
+Secúndum ópera mánuum eórum tríbue illis: \* redde retributiónem eórum ipsis.
+
+Quóniam non intellexérunt ópera Dómini, et in ópera mánuum ejus \* déstrues illos, et non ædificábis eos.
+
+Benedíctus Dóminus: \* quóniam exaudívit vocem deprecatiónis meæ.
+
+Dóminus adjútor meus, et protéctor meus: \* in ipso sperávit cor meum, et adjútus sum.
+
+Et reflóruit caro mea: \* ex voluntáte mea confitébor ei.
+
+Dóminus fortitúdo plebis suæ: \* et protéctor salvatiónum Christi sui est.
+
+Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ: \* et rege eos, et extólle illos usque in ætérnum.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Illuminátio mea, et salus mea Dóminus.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Advenérunt nobis dies pæniténtiæ, ad rediménda peccáta, ad salvándas ánimas.
+
+**Capitulum** *Joel 2, 12-13*
+
+CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et scíndite corda vestra, et non vestiménta vestra, ait Dóminus omnípotens.
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse. ℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.

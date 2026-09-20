@@ -37346,3 +37346,59 @@ EXSÚLTET orbis gáudiis, Cælum resúltet láudibus: Apostolórum glóriam Tell
 Vos, sæculórum júdices, Et vera mundi lúmina, Votis precámur córdium: Audíte voces súpplicum.
 
 Qui templa cæli cláuditis Serásque verbo sólvitis, Nos a reátu nóxios Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus Languor salúsque séntiunt, Sanáte mentes lánguidas, Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter In fine Christus sæculi, Nos sempitérni gáudii Concédat esse cómpotes.
+
+\* Patri, simúlque Fílio, Tibíque, Sancte Spíritus, Sicut fuit, sit júgiter Sæclum per omne glória. Amen.
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Magnif. Ant.** Estóte fortes \* in bello, et pugnáte cum antíquo serpénte: et accipiétis regnum ætérnum, allelúja.
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+### II Aliæ Lectiones
+
+#### pro Apostolis
+
+### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Augustíni Epíscopi super Psalmum octogésimum sextum. Ante médium.}
+
+#### Lectio iv
+
+FUNDAMENTA ejus in móntibus sanctis: díligit Dóminus portas Sion. Quare sunt fundaménta Apóstoli et Prophétæ? Quia eórum auctóritas portat infirmitátem nostram. Quare sunt portæ? Quia per ipsos intrámus ad regnum Dei. Prǽdicant enim nobis: et, cum per ipsos intrámus, per Christum intrámus; ipse est enim jánua. Et cum dicúntur duódecim portæ Jerúsalem, et una porta Christus et duódecim portæ Christus, quia in duódecim portis Christus; et ídeo duodenárius númerus Apostolórum. Sacraméntum magnum hujus duodenárii significátio est númeri. Sedébitis, inquit, super duódecim sedes, judicántes duódecim tribus Israël.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio v
+
+SI duódecim sellæ ibi sunt, non est ubi sédeat tértius décimus Paulus Apóstolus, et non erit quómodo júdicet; et ipse se judicatúrum dixit, non hómines tantum, sed et ángelos. Quos ángelos, nisi apóstatas ángelos? Nescítis, inquit, quia ángelos judicábimus? Respondéret ergo turba: Quid te jactas judicatúrum? Ubi sedébis? Duódecim sedes dixit Dóminus duódecim Apóstolis, unus cécidit Judas, in locum ipsíus sanctus Matthías ordinátus est; implétus est duodenárius númerus sédium. Primo locum invéni, ubi sédeas, et sic te mináre judicatúrum. Duódecim ergo sedes quid sibi velint, videámus. Sacraméntum est cujúsdam universitátis; quia per totum orbem terrárum futúra erat Ecclésia, unde vocátur hoc ædifícium ad Christi compágem.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+ET ídeo, quia úndique venítur ad judicándum, duódecim sedes sunt; sicut, quia úndique intrátur in illam civitátem, duódecim portæ sunt. Non solum ergo illi duódecim et Apóstolus Paulus, sed quotquot judicatúri sunt, propter significatiónem universitátis ad sedes duódecim pértinent; quemádmodum quotquot intrábunt, ad duódecim portas pértinent. Partes enim mundi quátuor sunt, Oriens, Occídens, Aquilo et Merídies. Istæ quátuor partes assídue nominántur in Scriptúris. Ab istis quátuor ventis, sicut dicit Dóminus in Evangélio, a quátuor ventis se collectúrum eléctos suos; ab ómnibus ergo istis quátuor ventis vocátur Ecclésia. Quómodo vocátur? Úndique in Trinitáte vocátur. Non vocátur nisi per baptísmum in nómine Patris, et Fílii, et Spíritus Sancti. Quátuor ergo ter ducta duódecim inveniúntur.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo coronántur.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 19, 27-29*
+
+IN illo témpore: Dixit Petrus ad Jesum: Ecce nos relíquimus ómnia, et secúti sumus te: quid ergo erit nobis? Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+
+{RUBRIC: Homilía in Natáli S. Benedícti Epísc.}
+
+PERFÉCTUS ille est, qui ábiens vendit ómnia quæ habet, et dat paupéribus, ac véniens séquitur Christum; habébit enim thesáurum non deficiéntem in cælis. Unde bene, interrogánte Petro, dixit tálibus Jesus: Amen dico vobis, quod vos, qui secúti estis me, in regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ, sedébitis et vos super sedes duódecim, judicántes duódecim tribus Israël. In hac quippe vita pro ejus nómine laborántes in ália prǽmium speráre dócuit, id est, in regeneratióne; cum vidélicet in vitam immortálem fúerimus resurgéndo regeneráti, qui in vitam cadúcam mortáliter erámus géniti.

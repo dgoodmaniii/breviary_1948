@@ -2612,3 +2612,61 @@ JAM lucis orto sídere,
 Deum precémur súpplices,
 Ut in diúrnis áctibus
 Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+**Ant.** Allelúja.
+
+{RUBRIC: A Dominica I Quadragesimæ usque ad Dominicam Palmarum inclusive: Ant. ut in Proprio de Tempore; atque loco sequentis Ps. 117 Confitémini, dicuntur sequ. Ps. 92 et 99, qui in Laudibus locum non habuerunt.}
+
+###### Psalmus 92
+
+DOMINUS regnávit, decórem indútus est: \* indútus est Dóminus fortitúdinem, et præcínxit se.
+
+Etenim firmávit orbem terræ, \* qui non commovébitur.
+
+Paráta sedes tua ex tunc: \* a sæculo tu es.
+
+Elevavérunt flúmina, Dómine: \* elevavérunt flúmina vocem suam.
+
+Elevavérunt flúmina fluctus suos, \* a vócibus aquárum multárum.
+
+Mirábiles elatiónes maris: \* mirábilis in altis Dóminus.
+
+Testimónia tua credibília facta sunt nimis: \* domum tuam decet sanctitúdo, Dómine, in longitúdinem diérum.
+
+###### Psalmus 99
+
+JUBILATE Deo, omnis terra: \* servíte Dómino in lætítia.
+
+Introíte in conspéctu ejus, \* in exsultatióne.
+
+Scitóte quóniam Dóminus ipse est Deus: \* ipse fecit nos, et non ipsi nos.
+
+Pópulus ejus, et oves páscuæ ejus: \* introíte portas ejus in confessióne, átria ejus in hymnis: confitémini illi.
+
+Laudáte nomen ejus: quóniam suávis est Dóminus, in ætérnum misericórdia ejus, \* et usque in generatiónem et generatiónem véritas ejus.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja.
+
+{RUBRIC: ¶ Antiphona cum Psalmis Tempore Paschali ad Horas minores assignata, adhibetur semper, extra Octavam Ascensionis, quando fit Officium de qualibet Dominica minori ac de majori Dominica in Albis.}

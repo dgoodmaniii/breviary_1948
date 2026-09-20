@@ -37762,3 +37762,69 @@ Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdica
 Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
 
 Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Prǽdicans præcéptum Dómini constitútus est in monte sancto ejus.
+
+**Ant.** Voce mea \* ad Dóminum clamávi: et exaudívit me de monte sancto suo.
+
+###### Psalmus 3
+
+DOMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Voce mea ad Dóminum clamávi: et exaudívit me de monte sancto suo.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Benedictio.** Benedictióne.
+
+{RUBRIC: Lectiónes sequéntes I Noctúrni dicúntur in Festo Mártyris Pontíficis. In Festo autem Mártyris non Pontíficis adhibéntur Lectiónes Fratres: Debitóres, quæ pósitæ sunt in Communi plurimórum Mártyrum [52] cum Responsóriis tamen pro uno Mártyre non Pontífice ibi notátis.}
+
+{RUBRIC: De Actibus Apostolórum}
+
+#### Lectio i
+
+*Cap. 20, 17-38*
+
+A MILÉTO Paulus mittens Ephésum, vocávit majóres natu Ecclésiæ. Qui cum veníssent ad eum, et simul essent, dixit eis: Vos scitis a prima die, qua ingréssus sum in Asiam, quáliter vobíscum per omne tempus fúerim, sérviens Dómino cum omni humilitáte, et lácrimis, et tentatiónibus, quæ mihi accidérunt ex insídiis Judæórum: quómodo nihil subtráxerim utílium, quóminus annuntiárem vobis, et docérent vos públice, et per domos, testíficans Judǽis, atque gentílibus in Deum pæniténtiam, et fidem in Dóminum nostrum Jesum Christum. Et nunc ecce alligátus ego spíritu, vado in Jerúsalem: quæ in ea ventúra sint mihi, ignórans: nisi quod Spíritus Sanctus per omnes civitátes mihi protestátur, dicens: Quóniam víncula et tribulatiónes Jerosólymis me manent. Sed nihil horum véreor: nec fácio ánimam meam pretiosiórem quam me, dúmmodo consúmmem cursum meum, et ministérium verbi, quod accépi a Dómino Jesu, testificári Evangélium grátiæ Dei.
+
+℟. Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit: \* Fundátus enim erat supra firmam petram. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Fundátus.
+
+**Benedictio.** Unigénitus Dei.
+
+#### Lectio ii
+
+ET nunc ecce ego scio quia ámplius non vidébitis fáciem meam vos omnes, per quos transívi prǽdicans regnum Dei. Quaproptér contéstor vos hodiérna die, quia mundus sum a sánguine ómnium. Non enim subterfúgi quóminus annuntiárem omne consílium Dei vobis. Atténdite vobis, et univérso gregi, in quo vos Spíritus Sanctus pósuit epíscopos régere Ecclésiam Dei, quam acquisívit sánguine suo. Ego scio quóniam intrábunt post discessiónem meam lupi rapáces in vos, non parcéntes gregi. Et ex vobis ipsis exsúrgent viri loquéntes pervérsa, ut abdúcant discípulos post se. Propter quod vigiláte, memória reténtes: quóniam per triénnium nocte et die non cessávi, cum lácrimis monens unumquémque vestrum.
+
+℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+**Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+
+ET nunc comméndo vos Deo, et verbo grátiæ ipsíus, qui potens est ædificáre, et dare hereditátem in sanctificátis ómnibus.

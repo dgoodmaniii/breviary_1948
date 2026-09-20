@@ -17782,3 +17782,52 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 Pater, Ave María et Credo.
 
 ---
+
+# Proprium de Tempore
+
+[IMAGE]
+
+## Sabbato I in Quadragesima
+
+{RUBRIC: ¶ Usque ad Sabbatum sanctum non celebrantur Octavæ. Hodie et deinceps usque ad Sabbatum sanctum, exceptis diebus Dominicis, Vesperæ dicuntur ante comestionem, etiam in Festis.}
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sabbato, ut in Psalterio. 332}
+
+#### Capitulum
+
+*2 Cor. 6, 1-2*
+
+FRATRES: Hortámur vos, ne in vácuum grátiam Dei recipiátis. Ait enim: Témpore accépto exaudívi te, et in die salútis adjúvi te.
+
+#### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus,
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te revérsis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Præsta, beáta Trínitas,
+Concéde, simplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+℣. Angelis suis Deus

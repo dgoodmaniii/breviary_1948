@@ -3321,3 +3321,59 @@ Os meum apérui, et attráxi spíritum: \* quia mandáta tua desiderábam.
 Aspice in me, et miserére mei, \* secúndum judícium diligéntium nomen tuum.
 
 Gressus meos dírige secúndum elóquium tuum: \* et non dominétur mei omnis injustítia.
+
+Rédime me a calúmniis hóminum: \* ut custódiam mandáta tua.
+
+Fáciem tuam illúmina super servum tuum: \* et doce me justificatiónes tuas.
+
+Exitus aquárum deduxérunt óculi mei: \* quia non custodiérunt legem tuam.
+
+Justus es, Dómine: \* et rectum judícium tuum.
+
+Mandásti justítiam testimónia tua: \* et veritátem tuam nimis.
+
+Tabéscere me fecit zelus meus: \* quia oblíti sunt verba tua inimíci mei.
+
+Ignítum elóquium tuum veheménter: \* et servus tuus diléxit illud.
+
+Adolescéntulus sum ego et contémptus: \* justificatiónes tuas non sum oblítus.
+
+Justítia tua, justítia in ætérnum: \* et lex tua véritas.
+
+Tribulátio, et angústia invenérunt me: \* mandáta tua meditátio mea est.
+
+Æquitas testimónia tua in ætérnum: \* intelléctum da mihi, et vivam.
+
+###### Psalmus 118, x
+
+CLAMAVI in toto corde meo, exáudi me, Dómine: \* justificatiónes tuas requíram.
+
+Clamávi ad te, salvum me fac: \* ut custódiam mandáta tua.
+
+Prævéni in maturitáte, et clamávi: \* quia in verba tua supersperávi.
+
+Prævenérunt óculi mei ad te dilúculo: \* ut meditárer elóquia tua.
+
+Vocem meam audi secúndum misericórdiam tuam, Dómine: \* et secúndum judícium tuum vivífica me.
+
+Appropinquavérunt persequéntes me iniquitáti: \* a lege autem tua longe facti sunt.
+
+Prope es tu, Dómine: \* et omnes viæ tuæ véritas.
+
+Inítio cognóvi de testimóniis tuis: \* quia in ætérnum fundásti ea.
+
+Vide humilitátem meam, et éripe me: \* quia legem tuam non sum oblítus.
+
+Júdica judícium meum, et rédime me: \* propter elóquium tuum vivífica me.
+
+Longe a peccatóribus salus: \* quia justificatiónes tuas non exquisiérunt.
+
+Misericórdiæ tuæ multæ, Dómine: \* secúndum judícium tuum vivífica me.
+
+Multi qui persequúntur me, et tríbulant me: \* a testimóniis tuis non declinávi.
+
+Vidi prævaricántes, et tabescébam: \* quia elóquia tua non custodiérunt.
+
+Vide quóniam mandáta tua diléxi, Dómine: \* in misericórdia tua vivífica me.
+
+Princípium verbórum tuórum, véritas: \* in

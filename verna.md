@@ -5422,4 +5422,54 @@ Factus sum tamquam vas pérditum: \* quóniam audívi vituperatiónem multórum 
 
 In eo dum convenírent simul advérsum me, \* accípere ánimam meam consiliáti sunt.
 
-Ego autem in te sperávi, Dómine: \* dixi: Deus
+Ego autem in te sperávi, Dómine: \* dixi: Deus meus es tu: in mánibus tuis sortes meæ.
+
+Eripe me de manu inimicórum meórum, \* et a persequéntibus me.
+
+Illústra fáciem tuam super servum tuum, salvum me fac in misericórdia tua: \* Dómine, non confúndar, quóniam invocávi te.
+
+Erubéscant ímpii, et deducántur in inférnum: \* muta fiant lábia dolósa.
+
+Quæ loquúntur advérsus justum iniquitátem, \* in supérbia, et in abusióne.
+
+###### Psalmus 30, iii
+
+QUAM magna multitúdo dulcédinis tuæ, Dómine, \* quam abscondísti timéntibus te.
+
+Perfecísti eis, qui sperant in te, \* in conspéctu filiórum hóminum.
+
+Abscóndes eos in abscóndito faciéi tuæ, \* a conturbatióne hóminum.
+
+Próteges eos in tabernáculo tuo \* a contradictióne linguárum.
+
+Benedíctus Dóminus: \* quóniam mirificávit misericórdiam suam mihi in civitáte muníta.
+
+Ego autem dixi in excéssu mentis meæ: \* Projéctus sum a fácie oculórum tuórum.
+
+Ideo exaudísti vocem oratiónis meæ, \* dum clamárem ad te.
+
+Dilígite Dóminum, omnes sancti ejus: \* quóniam veritátem requíret Dóminus, et retríbuet abundánter faciéntibus supérbiam.
+
+Viríliter ágite, et confortétur cor vestrum, \* omnes, qui sperátis in Dómino.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** In tua justítia líbera me, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos in multa patiéntia, in jejúniis multis, per arma justítiæ.
+
+**Capitulum** *Is. 55, 7*
+
+DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus, et ad Deum nostrum, quóniam multus est ad ignoscéndum.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis. ℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indú-

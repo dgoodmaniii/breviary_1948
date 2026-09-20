@@ -10023,4 +10023,56 @@ Ecce, elongávi fúgiens: \* et mansi in solitúdine.
 
 Exspectábam eum, qui salvum me fecit \* a pusillanimitáte spíritus et tempestáte.
 
-Præcípita, Dómine, dívide linguas eórum: \* quó-
+Præcípita, Dómine, dívide linguas eórum: \* quóniam vidi iniquitátem, et contradictiónem in civitáte.
+
+Die ac nocte circúmdabit eam super muros ejus iníquitas: \* et labor in médio ejus, et injustítia.
+
+Et non defécit de platéis ejus \* usúra, et dolus.
+
+Quóniam si inimícus meus maledixísset mihi, \* sustinuíssem útique.
+
+Et si is, qui óderat me, super me magna locútus fuísset, \* abscondíssem me fórsitan ab eo.
+
+Tu vero, homo unánimis: \* dux meus, et notus meus:
+
+Qui simul mecum dulces capiébas cibos: \* in domo Dei ambulávimus cum consénsu.
+
+Véniat mors super illos: \* et descéndant in inférnum vivéntes:
+
+Quóniam nequítiæ in habitáculis eórum: \* in médio eórum.
+
+###### Psalmus 54, ii
+
+EGO autem ad Deum clamávi: \* et Dóminus salvábit me.
+
+Véspere, et mane, et merídie narrábo et annuntiábo: \* et exáudiet vocem meam.
+
+Rédimet in pace ánimam meam ab his, qui appropínquant mihi: \* quóniam inter multos erant mecum.
+
+Exáudiet Deus, et humiliábit illos, \* qui est ante sæcula.
+
+Non enim est illis commutátio, et non timuérunt Deum: \* exténdit manum suam in retribuéndo.
+
+Contaminavérunt testaméntum ejus, divísi sunt ab ira vultus ejus: \* et appropinquávit cor illíus.
+
+Mollíti sunt sermónes ejus super óleum: \* et ipsi sunt jácula.
+
+Jacta super Dóminum curam tuam, et ipse te enútriet: \* non dabit in ætérnum fluctuatiónem justo.
+
+Tu vero, Deus, dedúces eos, \* in púteum intéritus.
+
+Viri sánguinum, et dolósi non dimidiábunt dies suos: \* ego autem sperábo in te, Dómine.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Deus ádjuvat me: et Dóminus suscéptor est ánimæ meæ.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Advenérunt nobis dies pæniténtiæ, ad rediménda peccáta, ad salvándas ánimas.
+
+**Capitulum** *Joel 2, 12-13*
+
+CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu.

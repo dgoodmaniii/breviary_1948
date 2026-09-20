@@ -1510,4 +1510,34 @@ Orémus. **Oratio**
 
 A CUNCTIS nos, quæsumus, Dómine, mentis et córporis defénde perículis: et, intercedénte beáta et gloriósa semper Vírgine Dei Genitríce María, cum beáto Joseph, beátis Apóstolis tuis Petro et Paulo, atque beáto N. et ómnibus Sanctis, salútem nobis tríbue benígnus et pacem; ut, destrúctis adversitátibus et erróribus univérsis, Ecclésia tua secúra tibi sérviat libertáte. Per eúmdem Dóminum nostrum. ℟. Amen.
 
-{RUBRIC: ¶ In hac Oratione, ad litteram N., exprimitur nomen
+{RUBRIC: ¶ In hac Oratione, ad litteram N., exprimitur nomen Titularis propriæ Ecclesiæ, dummodo Titulus non sit Persona divina vel Mysterium Domini, aut de ipso ratione Festi factum non fuerit Officium vel Commemoratio, aut illius nomen non sit in eadem Suffragii Oratione expressum; ac nomina sanctorum Angelorum et sancti Joannis Baptistæ, si Titulares fuerint, præponuntur nomini sancti Joseph. In hisce autem omnibus casibus omittuntur verba atque beáto N.}
+
+{RUBRIC: Tempore autem Paschali, a Feria II post Dominicam in Albis usque ad Feriam III Rogationum inclusive, in Officio semiduplici aut simplici tam de Tempore quam de Sanctis, nisi habita sit Commemoratio Duplicis, etiam concurrentis, vel factum fuerit Officium aut Commemoratio cujusvis Octavæ, loco Suffragii, fit sequens}
+
+##### Commemoratio de Cruce
+
+**Ant.** Crucifíxus surréxit a mórtuis, et redémit nos, allelúja, allelúja.
+
+℣. Dícite in natiónibus, allelúja. ℟. Quia Dóminus regnávit a ligno, allelúja.
+
+Orémus. **Oratio**
+
+DEUS, qui pro nobis Fílium tuum Crucis patíbulum subíre voluísti, ut inimíci a nobis expélleres potestátem: concéde nobis, fámulis tuis; ut resurrectiónis grátiam consequámur. Per eúmdem Dóminum. ℟. Amen.
+
+{RUBRIC: Post ultimam Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias. ℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Si post Vesperas immediate sequatur Completorium, dicto Versu} Fidélium ánimæ, {RUBRIC: statim incipitur Versus} Jube, domne, benedícere, {RUBRIC: ut infra ad Completorium; secus autem, si tunc terminetur Officium, dicitur tantum} Pater noster {RUBRIC: secreto.}
+
+## Ad Completorium
+
+{RUBRIC: Ante Completorium non dicitur} Pater noster et Ave María, {RUBRIC: sicut in aliis Horis, sed absolute Lector incipit:}
+
+℣. Jube, domne, benedícere. **Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+### Lectio brevis
+
+*1 Petr. 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.

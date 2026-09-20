@@ -17878,4 +17878,22 @@ OS nostrum patet ad vos, o Corínthii, cor nostrum dilatátum est. Non angustiá
 
 REPLETUS sum consolatióne, superabúndo gáudio in omni tribulatióne nostra. Nam et, cum venissémus in Macedóniam, nullam réquiem hábuit caro nostra, sed omnem tribulatiónem passi sumus: foris pugnæ, intus timóres. Sed qui consolátur húmiles, consolátus est nos Deus in advéntu Titi. Non solum autem in advéntu ejus, sed étiam in consolatióne, qua consolátus est in vobis, réferens nobis vestrum desidérium, vestrum fletum, vestram æmulatiónem pro me, ita ut magis gaudérem. Quóniam etsi contristávi vos in epístola, non me pœnitet: et si pœnitéret, videns quod epístola illa (etsi ad horam) vos contristávit; nunc gáudeo: non quia contristáti estis, sed quia contristáti estis ad pœniténtiam.
 
-℟. In jejúnio et fletu orábunt sacerdótes, dicéntes:
+℟. In jejúnio et fletu orábunt sacerdótes, dicéntes: \* Parce, Dómine, parce pópulo tuo; et ne des hereditátem tuam in perditiónem. ℣. Inter vestíbulum et altáre plorábunt sacerdótes, dicéntes. — Parce. Glória Patri. Parce.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 4 de Quadrag.}
+
+#### Lectio iv
+
+PRÆDICATURUS vobis, dilectíssimi, sacratíssimum maxímumque jejúnium, quo áptius utar exórdio, quam ut verbis Apóstoli, in quo Christus loquebátur, incípiam, dicámque quod lectum est: Ecce nunc tempus acceptábile: ecce nunc dies salútis? Quamvis enim nulla sint témpora, quæ divínis non sint plena munéribus, et semper nobis ad misericórdiam Dei per ipsíus grátiam præstétur accéssus: nunc tamen ómnium mentes majóri stúdio ad spiritáles proféctus movéri, et amplióri fidúcia opórtet animári, quando ad univérsa pietátis offícia, illíus nos diéi, in quo redémpti sumus, recúrsus invítat: ut excéllens super ómnia passiónis Domínicæ sacraméntum, purificátis et corpóribus et ánimis celebrémus.
+
+℟. Emendémus in mélius, quæ ignoránter peccávimus: ne súbito præoccupáti die mortis, quærámus spátium pœniténtiæ, et inveníre non possímus: \* Atténde, Dómine, et miserére, quia peccávimus tibi. ℣. Adjuva nos, Deus, salutáris noster, et propter honórem nóminis tui, Dómine, líbera nos. — Atténde.
+
+#### Lectio v
+
+DEBEBATUR quidem tantis mystériis ita incessábilis devótio, et continuáta reveréntia, ut tales permanerémus in conspéctu Dei, quales nos in ipso Pascháli festo dignum est inveníri. Sed quia hæc fortitúdo paucórum est: et dum carnis fragilitáte austérior observántia relaxátur, dumque per várias actiónes vitæ hujus sollicitúdo disténditur, necésse est de mundáno púlvere étiam religiósa corda sordéscere: magna divínæ institutiónis salubritáte provísum est, ut ad reparándam méntium puritátem quadragínta nobis diérum exercitátio mederétur, in quibus aliórum témporum culpas, et pia ópera redímerent, et jejúnia casta decóquerent.
+
+℟. Derelínquat ímpius viam suam, et vir iníquus cogitatiónes suas, et re-

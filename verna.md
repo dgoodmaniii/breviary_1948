@@ -17432,4 +17432,60 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 
 RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis.
 
-℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+{RUBRIC: Preces feriales, ut supra. 331}
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Benedíctus Dóminus. †
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+*¶ Antiphonæ cum Psalmis tam intra quam extra Tempus Paschale assignátæ semper in Sabbato dicúntur pro I Vésperis Dominícæ sequéntis, quando agéndum est Offícium de ipsa Domínica, tam in Domínicis minóribus, extra Octávam Ascensiónis, quam in Domínicis majóribus, non exclúsa ipsa Domínica in Albis.*
+
+###### Psalmus 143, i
+
+BENEDICTUS Dóminus, † Deus meus, qui docet manus meas ad prœlium, \* et dígitos meos ad bellum.
+
+Misericórdia mea, et refúgium meum: \* suscéptor meus, et liberátor meus:
+
+Protéctor meus, et in ipso sperávi: \* qui subdit pópulum meum sub me.
+
+Dómine, quid est homo, quia innotuísti ei? \* aut fílius hóminis, quia réputas eum?
+
+Homo vanitáti símilis factus est: \* dies ejus sicut umbra prætéreunt.
+
+Dómine, inclína cælos tuos, et descénde: \* tange montes, et fumigábunt.
+
+Fúlgura coruscatiónem, et dissipábis eos: \* emítte sagíttas tuas, et conturbábis eos.
+
+Emítte manum tuam de alto, éripe me, et líbera me de aquis multis: \* de manu filiórum alienórum.
+
+Quorum os locútum est vanitátem: \* et déxtera eórum, déxtera iniquitátis.
+
+**Ant.** Benedíctus Dóminus, suscéptor meus, et liberátor meus.
+
+**Ant.** Beátus pópulus.
+
+###### Psalmus 143, ii
+
+DEUS, cánticum novum cantábo tibi: \* in psaltério decachórdo psallam tibi.
+
+Qui das salútem régibus: \* qui redemísti David, servum tuum, de gládio malígno: éripe me.
+
+Et érue me de manu filiórum alienórum, quorum os locútum est vanitátem: \* et déxtera eórum, déxtera iniquitátis:
+
+Quorum fílii, sicut novéllæ plantatiónes \* in juventúte sua.

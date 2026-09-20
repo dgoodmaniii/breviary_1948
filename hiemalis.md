@@ -16445,7 +16445,7 @@ EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccat
 
 NOX præcéssit, dies autem appropinquávit: abjiciámus ergo ópera tenebrárum, et induámur arma lucis.
 
-℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in bene-plácito pópuli tui. ℟. Vísita nos in salutári tuo.
+℟. br. Osténde nobis, Dómine, \* Misericórdiam tuam. Osténde. ℣. Et salutáre tuum da nobis. Misericórdiam tuam. Glória Patri. Osténde. ℣. Meménto nostri, Dómine, in beneplácito pópuli tui. ℟. Vísita nos in salutári tuo.
 
 ### Ad Nonam
 
@@ -16736,7 +16736,7 @@ EXCITA, quǽsumus, Dómine, poténtiam tuam, et veni: ut ab imminéntibus peccat
 
 *Rom. 15, 4*
 
-FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam, et consolatiónem Scriptu-rárum spem habeámus.
+FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam, et consolatiónem Scripturárum spem habeámus.
 
 #### Hymnus
 
@@ -16894,7 +16894,7 @@ eo, \* Visitáre pópulum suum in pace, et constitúere super eum vitam sempité
 
 FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam,
 
-et consolatiónem Scriptu-rárum spem habeámus.
+et consolatiónem Scripturárum spem habeámus.
 
 #### Hymnus
 
@@ -16943,7 +16943,7 @@ EXCITA, Dómine, corda nostra ad præparándas Unigéniti tui vias: ut per ejus 
 
 *Rom. 15, 4*
 
-FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam, et consolatiónem Scriptu-rárum spem habeámus.
+FRATRES: Quæcúmque scripta sunt, ad nostram doctrínam scripta sunt: ut per patiéntiam, et consolatiónem Scripturárum spem habeámus.
 
 ℟. br. Veni ad liberándum nos, \* Dómine, Deus virtútum. Veni. ℣. Osténde fáciem tuam, et salvi érimus. Dómine. Glória Patri. Veni.
 
@@ -21335,7 +21335,7 @@ SED quóniam prona quadam cupiditáte peccándi, humánæ carnis et mentis frag�
 
 #### Lectio ix
 
-SOLUS enim per ómnia ex natis de fémina sanctus Dóminus Jesus, qui terrénæ contágia corruptélæ, immaculáti partus novitáte non sénserit, et cæléstí majestáte depúlerit. Nam si líttéram sequámur: quómodo sanctus omnis másculus, cum multos sceleratíssimos fuísse non láteat? Numquid sanctus Achab? numquid sancti pseudo-prophétæ, quos ad Elíæ preces ultor cæléstis injúriæ ignis absúmpsit? Sed ille sanctus, quem in figúra futúri mystérii pia legis divínæ præscrípta signábant; eo quod solus sanctæ Ecclésiæ vírginis ad generándos pópulos Dei, immaculátæ fœ-
+SOLUS enim per ómnia ex natis de fémina sanctus Dóminus Jesus, qui terrénæ contágia corruptélæ, immaculáti partus novitáte non sénserit, et cæléstí majestáte depúlerit. Nam si líttéram sequámur: quómodo sanctus omnis másculus, cum multos sceleratíssimos fuísse non láteat? Numquid sanctus Achab? numquid sancti pseudoprophétæ, quos ad Elíæ preces ultor cæléstis injúriæ ignis absúmpsit? Sed ille sanctus, quem in figúra futúri mystérii pia legis divínæ præscrípta signábant; eo quod solus sanctæ Ecclésiæ vírginis ad generándos pópulos Dei, immaculátæ fœ-
 cunditátis aperíret genitále secrétum.
 
 {RUBRIC: Deinde dícitur} Te Deum laudámus.
@@ -30573,7 +30573,7 @@ DA nobis, quǽsumus, Dómine, beáti Apóstoli tui Thomæ solemnitátibus glori�
 
 #### Lectio iv
 
-THOMAS Apóstolus, qui et Dídymus, Galilǽus, post accéptum Spíritum Sanctum in multas províncias proféctus est ad prædicándum Christi Evangélium: Parthis, Medis, Persis, Hyrcánis et Bactris christiánæ fídei et vitæ præcépta trádidit. Postrémo ad Indos se cónferens, eos in christiána religióne erudívit. Qui ad extrémum, vitæ doctrinǽque sanctitáte et miraculórum magnitúdine, cum céteris ómnibus suis admiratiónem et Jesu Christi amórem commo-vísset; illíus gentis regem, idolórum cultórem, magis ad iram accéndit: cujus senténtia condemnátus, telísque confóssus, Calamínæ apostolátus honórem martýrii coróna decorávit.
+THOMAS Apóstolus, qui et Dídymus, Galilǽus, post accéptum Spíritum Sanctum in multas províncias proféctus est ad prædicándum Christi Evangélium: Parthis, Medis, Persis, Hyrcánis et Bactris christiánæ fídei et vitæ præcépta trádidit. Postrémo ad Indos se cónferens, eos in christiána religióne erudívit. Qui ad extrémum, vitæ doctrinǽque sanctitáte et miraculórum magnitúdine, cum céteris ómnibus suis admiratiónem et Jesu Christi amórem commovísset; illíus gentis regem, idolórum cultórem, magis ad iram accéndit: cujus senténtia condemnátus, telísque confóssus, Calamínæ apostolátus honórem martýrii coróna decorávit.
 
 ℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
 
@@ -30613,7 +30613,7 @@ QUID, fratres caríssimi, quid inter hæc animadvértitis? Numquid casu gestum c
 
 #### Lectio viii
 
-SIC quippe discípulum Dóminus post resurrectiónem suam dubitáre permísit, nec tamen in dubitatióne deséruit; sicut ante nativitátem suam habére Maríam sponsum vóluit, qui tamen ad ejus núptias non pervénit. Nam ita factus est discípulus dúbitans et palpans, testis veræ resurrectiónis, sicut sponsus matris fúerat custos integérrimæ virginitátis. Palpávit autem, et exclamávit: Dóminus meus, et Deus meus. Dicit ei Jesus: Quia vidísti me, credidísti. Cum Paulus Apóstolus dicat, Est au-tem fides sperandárum substántia rerum, arguméntum non apparéntium; profécto liquet quia fides illárum rerum arguméntum est, quæ apparére non possunt. Quæ étenim appárent, jam fidem non habent, sed agnitiónem.
+SIC quippe discípulum Dóminus post resurrectiónem suam dubitáre permísit, nec tamen in dubitatióne deséruit; sicut ante nativitátem suam habére Maríam sponsum vóluit, qui tamen ad ejus núptias non pervénit. Nam ita factus est discípulus dúbitans et palpans, testis veræ resurrectiónis, sicut sponsus matris fúerat custos integérrimæ virginitátis. Palpávit autem, et exclamávit: Dóminus meus, et Deus meus. Dicit ei Jesus: Quia vidísti me, credidísti. Cum Paulus Apóstolus dicat, Est autem fides sperandárum substántia rerum, arguméntum non apparéntium; profécto liquet quia fides illárum rerum arguméntum est, quæ apparére non possunt. Quæ étenim appárent, jam fidem non habent, sed agnitiónem.
 
 ℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
 
@@ -30683,7 +30683,7 @@ HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia excéll
 
 #### Lectio v
 
-QUADRIÉNNIO post coácto concílio ad Seleucíam, Isáuriæ urbem, Hilárius adésse compúlsus est: ac deínde Constantinópolim proféctus, ubi extrémum fídei perículum animadvértit, tribus libéllis pú-blice datis, audiéntiam imperatóris popóscit, ut de fide cum adversáriis coram disputáret. Verum cum Ursácius et Valens, Ariáni epíscopi, quos Hilárius scriptis confutárat, præséntis eruditiónem pertiméscerent, Constántio persuasérunt, ut spécie honóris eum in suum episcopátum restitúeret. Tunc Hilárium e prǽlio hæreticórum reverténtem, ut inquit sanctus Hierónymus, Gálliárum ecclésia compléxa est: quem ad episcopátum secútus est Martínus, qui póstea Turonénsi prǽfuit ecclésiæ; tantúmque illo doctóre profécit, quantum ejus póstea sánctitas declarávit.
+QUADRIÉNNIO post coácto concílio ad Seleucíam, Isáuriæ urbem, Hilárius adésse compúlsus est: ac deínde Constantinópolim proféctus, ubi extrémum fídei perículum animadvértit, tribus libéllis públice datis, audiéntiam imperatóris popóscit, ut de fide cum adversáriis coram disputáret. Verum cum Ursácius et Valens, Ariáni epíscopi, quos Hilárius scriptis confutárat, præséntis eruditiónem pertiméscerent, Constántio persuasérunt, ut spécie honóris eum in suum episcopátum restitúeret. Tunc Hilárium e prǽlio hæreticórum reverténtem, ut inquit sanctus Hierónymus, Gálliárum ecclésia compléxa est: quem ad episcopátum secútus est Martínus, qui póstea Turonénsi prǽfuit ecclésiæ; tantúmque illo doctóre profécit, quantum ejus póstea sánctitas declarávit.
 
 ℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
 
@@ -30697,7 +30697,7 @@ MAGNA deínceps tranquillitáte Pictavórum ecclésiam administrávit: Galliámq
 
 #### Lectio ix
 
-HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia ex-célluit. Pictavórum epíscopus creátus, tale munus sic gessit, ut a fidélibus summam laudem consequerétur. Ob cathólicam fidem, quam strénue propugnávit, quadriénnio apud Phrýgiam relegátus, inter ália miracula, mórtuum suscitávit. Duódecim libros scripsit de Trinitáte contra Ariános, et Gálliam univérsam addúxit, ut Ariánórum impietátem condemnáret. Multos libros scripsit mira eruditióne; quos omnes sanctus Hierónymus ad Lætam, sine ulla erróris suspicióne legi posse testátur illis verbis: Hilárii libros inoffénso decúrrat pede. Migrávit in cælum Idibus Januárii, anno trecentésimo sexagésimo nono. Eum Pius nonus Póntifex máximus, instánte sýnodo Burdigalénsi, Doctórem universális Ecclésiæ declarávit et confirmávit.
+HILÁRIUS, in Aquitánia nóbili génere natus, doctrína et eloquéntia excélluit. Pictavórum epíscopus creátus, tale munus sic gessit, ut a fidélibus summam laudem consequerétur. Ob cathólicam fidem, quam strénue propugnávit, quadriénnio apud Phrýgiam relegátus, inter ália miracula, mórtuum suscitávit. Duódecim libros scripsit de Trinitáte contra Ariános, et Gálliam univérsam addúxit, ut Ariánórum impietátem condemnáret. Multos libros scripsit mira eruditióne; quos omnes sanctus Hierónymus ad Lætam, sine ulla erróris suspicióne legi posse testátur illis verbis: Hilárii libros inoffénso decúrrat pede. Migrávit in cælum Idibus Januárii, anno trecentésimo sexagésimo nono. Eum Pius nonus Póntifex máximus, instánte sýnodo Burdigalénsi, Doctórem universális Ecclésiæ declarávit et confirmávit.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -31045,7 +31045,7 @@ PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ
 
 #### Lectio ii
 
-IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in lau-dem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum.
+IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in laudem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum.
 
 ℟. Si díligis me, Simon Petre, pasce oves meas. Dómine, tu nosti quia amo te, \* Et ánimam meam pono pro te. ℣. Si oportúerit me mori tecum, non te negábo. — Et.
 
@@ -31087,7 +31087,7 @@ JAM pópulos, qui ex circumcisióne credíderant, erudíeras: jam Antiochénam e
 
 {RUBRIC: Sermo 1 de Ss. App. Petro et Paulo, ante médium}
 
-CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, Princeps apostólici órdinis, ad arcem Románi de-corpus effúnderet. Ad hanc ergo urbem tu, beatíssime Petre Apóstole, veníre non métuis. Jam pópulos, qui ex circumcisióne credíderant, erudíeras: jam Antiochénam ecclésiam, ubi primum christiáni nóminis dígnitas est orta, fundáveras: jam Pontum, Galátiam, Cappadóciam, Asíam atque Bithýniam légibus evangélicæ prædicatiónis impléveras; nec aut dúbius de provéctu óperis, aut de spátio tuæ ignárus ætátis, trophǽum crucis Christi Románis árcibus inferébas, quo te divínis præordinatiónibus anteíbant, et honor potestátis, et glória passiónis.
+CUM duódecim Apóstoli, accépta per Spíritum Sanctum ómnium locutióne linguárum, imbuéndum Evangélio mundum, distribútis sibi terrárum pártibus, suscepíssent, beatíssimus Petrus, Princeps apostólici órdinis, ad arcem Románi destinátur impérii, ut lux veritátis, quæ in ómnium géntium revelabátur salútem, efficácius se ab ipso cápite per totum mundi corpus effúnderet. Ad hanc ergo urbem tu, beatíssime Petre Apóstole, veníre non métuis. Jam pópulos, qui ex circumcisióne credíderant, erudíeras: jam Antiochénam ecclésiam, ubi primum christiáni nóminis dígnitas est orta, fundáveras: jam Pontum, Galátiam, Cappadóciam, Asíam atque Bithýniam légibus evangélicæ prædicatiónis impléveras; nec aut dúbius de provéctu óperis, aut de spátio tuæ ignárus ætátis, trophǽum crucis Christi Románis árcibus inferébas, quo te divínis præordinatiónibus anteíbant, et honor potestátis, et glória passiónis.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -31123,7 +31123,7 @@ ET dignum plane conféssio Petri prǽmium consecúta est, quia Dei Fílium in h�
 
 #### Lectio ix
 
-PRISCA, nóbilis virgo Romána, trédecim annos nata, Cláudio imperatóre, christiánæ fídei accusáta, ejúsdem jussu ducta ad Appóllinis templum, ut idólis immoláret, cum rem detestarétur, cólaphis cæsa, in cárcerem tráditur: atque inde emíssa, cum in fídei constántia perseveráret, afflícta verbéribus, ferventíque ádipe delibúta, rursus in cárcerem inclúditur. Post tríduum in amphitheátrum prodúcta, leóni objícitur; qui suæ feritátis oblítus, humíliter se ad ejus pedes abjécit. Quæ póstea in ergástulo tríduum inédia afflícta, in equúleo suspénditur, et úngulis férreis excarnificáta in rogum injícitur, unde étiam mirabíliter evásit incólumis. Dénique extra Urbem cápite abscísso, virginitátis palmam mar-týrii corónam cumulávit. Cujus corpus via Ostiénsi, décimo ab Urbe milliário, a Christiánis décimo quinto Kaléndas Februárii sepelítur.
+PRISCA, nóbilis virgo Romána, trédecim annos nata, Cláudio imperatóre, christiánæ fídei accusáta, ejúsdem jussu ducta ad Appóllinis templum, ut idólis immoláret, cum rem detestarétur, cólaphis cæsa, in cárcerem tráditur: atque inde emíssa, cum in fídei constántia perseveráret, afflícta verbéribus, ferventíque ádipe delibúta, rursus in cárcerem inclúditur. Post tríduum in amphitheátrum prodúcta, leóni objícitur; qui suæ feritátis oblítus, humíliter se ad ejus pedes abjécit. Quæ póstea in ergástulo tríduum inédia afflícta, in equúleo suspénditur, et úngulis férreis excarnificáta in rogum injícitur, unde étiam mirabíliter evásit incólumis. Dénique extra Urbem cápite abscísso, virginitátis palmam martýrii corónam cumulávit. Cujus corpus via Ostiénsi, décimo ab Urbe milliário, a Christiánis décimo quinto Kaléndas Februárii sepelítur.
 
 {RUBRIC: Te Deum.}
 
@@ -31217,7 +31217,7 @@ EXÁUDI, Dómine, pópulum tuum cum Sanctórum tuórum patrocínio supplicántem
 
 #### Oratio
 
-DEUS, qui ad illustrándam Ecclésiam tuam beátum Canútum regem martýrii palma et gloriósis miráculis decoráre dignátus es: concéde propítius; ut, sicut ipse Domínicæ passiónis imitátor fuit, ita nos, per ejus vestígia gra-diéntes, ad gáudia sempitérna pervenire mereámur. Per eúmdem Dóminum.
+DEUS, qui ad illustrándam Ecclésiam tuam beátum Canútum regem martýrii palma et gloriósis miráculis decoráre dignátus es: concéde propítius; ut, sicut ipse Domínicæ passiónis imitátor fuit, ita nos, per ejus vestígia gradiéntes, ad gáudia sempitérna pervenire mereámur. Per eúmdem Dóminum.
 
 #### Lectio iii
 
@@ -32773,7 +32773,7 @@ VERUM dum, concílio Románæ hábito, decréto Innocéntii primi Pontíficis re
 
 #### Lectio ix
 
-JOÁNNES Antiochénus, propter áureum eloquéntiæ flumen cognoménto Chrysóstomus, présbyter Antiochénæ ecclésiæ factus, mórtuo Nectário, Arcádii imperatóris ópera, invítus Constantinopolitánæ ecclésiæ præfícitur. Quo in múnere, cum de-pravátos mores et nobílium hóminum vivéndi licéntiam veheméntius objurgáret, magnam multórum súbiit invídiam. Apud Eudóxiam étiam, quod eam propter Callítropæ víduæ pecúniam, et altérius víduæ agrum reprehendísset, gráviter offéndit. Quare exsuláre cógitur, víduis et egéntibus ómnibus commúnis paréntis ejectiónem lugéntibus. Incredíbile dictu est quanta mala in exsílio perpéssus sit, et quam multos ad Jesu Christi fidem convérterit. Multitúdinem, pietátem ac splendórem conciónum ceterorúmque ejus scriptórum, omnes admirántur. Animam Deo réddidit décimo octávo Kaléndas Octóbris, ejúsque corpus in basílica Vaticána cónditum est. Hunc præclárum totíus Ecclésiæ Doctórem Pius Papa décimus cæléstem prædicatórum patrónum constítuit.
+JOÁNNES Antiochénus, propter áureum eloquéntiæ flumen cognoménto Chrysóstomus, présbyter Antiochénæ ecclésiæ factus, mórtuo Nectário, Arcádii imperatóris ópera, invítus Constantinopolitánæ ecclésiæ præfícitur. Quo in múnere, cum depravátos mores et nobílium hóminum vivéndi licéntiam veheméntius objurgáret, magnam multórum súbiit invídiam. Apud Eudóxiam étiam, quod eam propter Callítropæ víduæ pecúniam, et altérius víduæ agrum reprehendísset, gráviter offéndit. Quare exsuláre cógitur, víduis et egéntibus ómnibus commúnis paréntis ejectiónem lugéntibus. Incredíbile dictu est quanta mala in exsílio perpéssus sit, et quam multos ad Jesu Christi fidem convérterit. Multitúdinem, pietátem ac splendórem conciónum ceterorúmque ejus scriptórum, omnes admirántur. Animam Deo réddidit décimo octávo Kaléndas Octóbris, ejúsque corpus in basílica Vaticána cónditum est. Hunc præclárum totíus Ecclésiæ Doctórem Pius Papa décimus cæléstem prædicatórum patrónum constítuit.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -32803,7 +32803,7 @@ DICÉNDO enim, Vos estis sal terræ, osténdit univérsam hóminum infatuátam e
 
 #### Lectio ix
 
-NE ígitur putétis, inquit, ad lévia vos ducéndos esse certámina, neque exíguarum rerum vobis ineúndam esse ratiónem, Vos estis sal terræ. Quid ígitur? Ipsíne putrefácta medicáti sunt? Nequáquam: neque enim fíeri potest, ut ea, quæ jam corrúpta sunt, salis perfricatióne reparéntur. Non ergo hoc fecérunt; sed ante renováta sibíque trádita atque ab illa jam putrédine liberáta aspergébant sale et in ea novitáte conservábant, quam a Dómino suscéperant. Liberáre quippe a putrédine peccatórum, Christi virtútis est; ut autem ad illa íte-rum non revertántur, Apostolórum curæ est ac labóris.
+NE ígitur putétis, inquit, ad lévia vos ducéndos esse certámina, neque exíguarum rerum vobis ineúndam esse ratiónem, Vos estis sal terræ. Quid ígitur? Ipsíne putrefácta medicáti sunt? Nequáquam: neque enim fíeri potest, ut ea, quæ jam corrúpta sunt, salis perfricatióne reparéntur. Non ergo hoc fecérunt; sed ante renováta sibíque trádita atque ab illa jam putrédine liberáta aspergébant sale et in ea novitáte conservábant, quam a Dómino suscéperant. Liberáre quippe a putrédine peccatórum, Christi virtútis est; ut autem ad illa íterum non revertántur, Apostolórum curæ est ac labóris.
 
 {RUBRIC: Te Deum.}
 
@@ -32859,7 +32859,7 @@ DEUS, qui nos ánnua beátæ Agnétis Vírginis et Mártyris tuæ solemnitáte l
 
 #### Lectio iv
 
-PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, singulári erga próximum caritáte excélluit. Cujus vir-tútis præságium, fuit, quod, cum adhuc in cunábulis vagíret infans, exámen apum ad eum convolávit et favum mellis in ejus déxtera constrúxit. Adoléscens paréntibus orbátus, Albigénsium hǽresim, quæ tunc in Gállia grassabátur, exsecráns, divéndito património, in Hispániam secéssit; et apud beátam Vírginem montis Serráti votum, quo pridem se obstrínxerat, exsólvit. Tum Barcinónam pergens, cum Christi fidélibus ab hóstium servitúte rediméndis omnem pecúniam consumpsísset, seípsum pro iis liberándis venum ire, aut in illórum víncula súffici cúpere dictitábat.
+PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, singulári erga próximum caritáte excélluit. Cujus virtútis præságium, fuit, quod, cum adhuc in cunábulis vagíret infans, exámen apum ad eum convolávit et favum mellis in ejus déxtera constrúxit. Adoléscens paréntibus orbátus, Albigénsium hǽresim, quæ tunc in Gállia grassabátur, exsecráns, divéndito património, in Hispániam secéssit; et apud beátam Vírginem montis Serráti votum, quo pridem se obstrínxerat, exsólvit. Tum Barcinónam pergens, cum Christi fidélibus ab hóstium servitúte rediméndis omnem pecúniam consumpsísset, seípsum pro iis liberándis venum ire, aut in illórum víncula súffici cúpere dictitábat.
 
 ℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
 
@@ -32889,7 +32889,7 @@ PETRUS Noláscus, Recáudi prope Carcasónam in Gállia nóbili génere natus, a
 
 #### Lectio ix
 
-BEÁTA Agnes, paréntibus ad ejus sepúlcrum assídue vigilántibus, qua-dam nocte choro vírginum comitáta cum apparuísset, sic ad eos locúta dícitur: Ne me, paréntes, mórtuam lugeátis; nam una cum his virgínibus vivo apud illum in cælis, quem in terris tota mente diléxi. Cum áliquot post annos Constántia, Constantíni imperatóris fília, insanábili úlceri medicínam quǽrens, nondum christiána ad idem sepúlcrum accessísset; obdormíscens sibi audíre visa est vocem hanc Agnétis: Constánter age, Constántia: crede in Jesum Christum Fílium Dei, qui te sanam fáciet. Quæ sanáta, paulo post una cum multis ex família imperatóris baptísmum suscípiens, ibi ecclésiam nómine beátæ Agnétis ædificávit.
+BEÁTA Agnes, paréntibus ad ejus sepúlcrum assídue vigilántibus, quadam nocte choro vírginum comitáta cum apparuísset, sic ad eos locúta dícitur: Ne me, paréntes, mórtuam lugeátis; nam una cum his virgínibus vivo apud illum in cælis, quem in terris tota mente diléxi. Cum áliquot post annos Constántia, Constantíni imperatóris fília, insanábili úlceri medicínam quǽrens, nondum christiána ad idem sepúlcrum accessísset; obdormíscens sibi audíre visa est vocem hanc Agnétis: Constánter age, Constántia: crede in Jesum Christum Fílium Dei, qui te sanam fáciet. Quæ sanáta, paulo post una cum multis ex família imperatóris baptísmum suscípiens, ibi ecclésiam nómine beátæ Agnétis ædificávit.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -32967,7 +32967,7 @@ MORTUO Granério, qui eum sibi coadjutórem decérni curáverat, epíscopus cons
 
 #### Lectio ix
 
-FRANCISCUS in óppido Salésio, unde famíliæ cognómen, piis et nobílibus paréntibus natus et liberálibus disciplínis eru-dítus, philosóphiæ ac theológiæ Parísiis óperam dedit, et láuream in utróque jure Patávii obtínuit. Sacerdótio initiátus et Genevénsis ecclésiæ præpositúram adéptus, ejus múneris partes tam bene explévit, ut eum Granérius epíscopus vindicándis ab hǽresi Calviniána Chaballicénsibus divíni verbi præcónem destináverit. Quam expeditiónem álacri ánimo suscípiens, tot difficultátibus ac perículis, Dei ope, superátis, septuagínta duo míllia hæreticórum ad cathólicam fidem reduxísse dícitur. Mórtuo Granério, epíscopus consecrátus, novum órdinem sanctimoniálium instítuit, a Visitatióne beátæ Vírginis nuncupátum. Suis scriptis cælésti doctrína refértis Ecclésiam illustrávit. Lugdúni, gravi morbo corréptus, migrávit in cælum, anno millésimo sexcentésimo vigésimo secúndo, et a summo Pontífice Pio nono universális Ecclésiæ Doctor fuit declarátus.
+FRANCISCUS in óppido Salésio, unde famíliæ cognómen, piis et nobílibus paréntibus natus et liberálibus disciplínis erudítus, philosóphiæ ac theológiæ Parísiis óperam dedit, et láuream in utróque jure Patávii obtínuit. Sacerdótio initiátus et Genevénsis ecclésiæ præpositúram adéptus, ejus múneris partes tam bene explévit, ut eum Granérius epíscopus vindicándis ab hǽresi Calviniána Chaballicénsibus divíni verbi præcónem destináverit. Quam expeditiónem álacri ánimo suscípiens, tot difficultátibus ac perículis, Dei ope, superátis, septuagínta duo míllia hæreticórum ad cathólicam fidem reduxísse dícitur. Mórtuo Granério, epíscopus consecrátus, novum órdinem sanctimoniálium instítuit, a Visitatióne beátæ Vírginis nuncupátum. Suis scriptis cælésti doctrína refértis Ecclésiam illustrávit. Lugdúni, gravi morbo corréptus, migrávit in cælum, anno millésimo sexcentésimo vigésimo secúndo, et a summo Pontífice Pio nono universális Ecclésiæ Doctor fuit declarátus.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -33638,7 +33638,7 @@ INTÉREA Fesulána ecclésia, suo viduáta pastóre, eum sibi epíscopum elégit
 
 #### Lectio vi
 
-HIS permótus Urbánus quintus, ad sedándas Bonóniæ turbas, Andréam legátum misit. Quo in mú-nere multa perpéssus, cívium ódia, quæ ad internecionem exárserant, summa prudéntia restínxit; tum restitúta tranquillitáte, ad própria revérsus est. Nec multo post assíduis labóribus et voluntária carnis maceratióne conféctus, óbitus die a beáta Vírgine sibi prǽdicto, ad cæléstia regna migrávit, anno Dómini millésimo tercentésimo septuagésimo tértio, ætátis suæ septuagésimo primo. Quem Urbánus octávus, multis magnísque miráculis clarum, Sanctórum número adscrípsit. Ejus corpus Floréntiæ in ecclésia sui órdinis quiéscit, et máxima cívium veneratióne cólitur, quibus non semel in præsénti discrímine præsídio fuit.
+HIS permótus Urbánus quintus, ad sedándas Bonóniæ turbas, Andréam legátum misit. Quo in múnere multa perpéssus, cívium ódia, quæ ad internecionem exárserant, summa prudéntia restínxit; tum restitúta tranquillitáte, ad própria revérsus est. Nec multo post assíduis labóribus et voluntária carnis maceratióne conféctus, óbitus die a beáta Vírgine sibi prǽdicto, ad cæléstia regna migrávit, anno Dómini millésimo tercentésimo septuagésimo tértio, ætátis suæ septuagésimo primo. Quem Urbánus octávus, multis magnísque miráculis clarum, Sanctórum número adscrípsit. Ejus corpus Floréntiæ in ecclésia sui órdinis quiéscit, et máxima cívium veneratióne cólitur, quibus non semel in præsénti discrímine præsídio fuit.
 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
 
@@ -33932,7 +33932,7 @@ Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
 
 **Ant.** Si ignem adhíbeas, rorem mihi salvíficum de cælo Angeli ministrábunt.
 
-**Ant.** Agatha \* lætíssime et gloriánter ibat ad cárcerem, quasi ad épulas in-vitáta; et agónem suum Dómino précibus commendábat.
+**Ant.** Agatha \* lætíssime et gloriánter ibat ad cárcerem, quasi ad épulas invitáta; et agónem suum Dómino précibus commendábat.
 
 ###### Psalmus 8
 
@@ -33964,7 +33964,7 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 
 {RUBRIC: Liber I post initium}
 
-AGATHA virgo, in Sicília nobílibus paréntibus nata, quam Panormitáni et Catanénses cívem suam esse dicunt, in persecutióne Décii imperatóris Cátanæ gloriósi martýrii corónam consecúta est. Nam cum pari pulchritúdinis et castitátis laude commendarétur, Quintiánus Sicíliæ prǽtor ejus amóre captus est. Sed cum, tentáta modis ómnibus ejus pudicítia, Agatham in suam senténtiam perdúcere non posset, christiánæ superstitiónis nómine comprehénsam, Aphrodísiæ cuidam mulíeri depravándam tradit. Quæ Aphrodísiæ consuetúdine cum de constántia coléndæ christiánæ fídei et servándæ virginitátis removéri non posset, núntiat illa Quintiáno se in Agatha óperam pérdere. Quare ille ad se Vírginem addúci jubet; et, Nonne, inquit, te pudet nóbili génere natam, húmilem et servílem Christianórum vitam ágere? Cui Aga-tha: Multo prǽstántior est christiána humílitas et sérvitus, regum ópibus ac supérbia.
+AGATHA virgo, in Sicília nobílibus paréntibus nata, quam Panormitáni et Catanénses cívem suam esse dicunt, in persecutióne Décii imperatóris Cátanæ gloriósi martýrii corónam consecúta est. Nam cum pari pulchritúdinis et castitátis laude commendarétur, Quintiánus Sicíliæ prǽtor ejus amóre captus est. Sed cum, tentáta modis ómnibus ejus pudicítia, Agatham in suam senténtiam perdúcere non posset, christiánæ superstitiónis nómine comprehénsam, Aphrodísiæ cuidam mulíeri depravándam tradit. Quæ Aphrodísiæ consuetúdine cum de constántia coléndæ christiánæ fídei et servándæ virginitátis removéri non posset, núntiat illa Quintiáno se in Agatha óperam pérdere. Quare ille ad se Vírginem addúci jubet; et, Nonne, inquit, te pudet nóbili génere natam, húmilem et servílem Christianórum vitam ágere? Cui Agatha: Multo prǽstántior est christiána humílitas et sérvitus, regum ópibus ac supérbia.
 
 ℟. Ego autem adjúta a Dómino, perseverábo in confessióne ejus, qui me salvam fecit, \* Et consolátus est me. ℣. Grátias tibi ago, Dómine Jesu Christe, qui misísti ad me Apóstolum tuum curáre vúlnera mea. — Et.
 
@@ -34010,7 +34010,7 @@ Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procelláru
 
 Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
 
-**Ant.** Nisi diligénter perféceris corpus meum a car-nifícibus attrectári, non potest ánima mea in paradísum Dómini cum palma intráre martýrii.
+**Ant.** Nisi diligénter perféceris corpus meum a carnifícibus attrectári, non potest ánima mea in paradísum Dómini cum palma intráre martýrii.
 
 **Ant.** Vidísti, Dómine, \* agónem meum, quómodo pugnávi in stádio; sed, quia nólui obedíre mandátis príncipum, jussa sum in mamílla torquéri.
 
@@ -34164,7 +34164,7 @@ DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victó
 
 LIBERÁSTI me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de multis tribulatiónibus, quæ circumdedérunt me.
 
-℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elé-git eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
 
 ### Ad Nonam
 
@@ -34206,7 +34206,7 @@ DEUS, qui beátum Titum Confessórem tuum atque Pontíficem apostólicis virtút
 
 #### Oratio
 
-DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Agathæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dómi-num.
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Agathæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
 
 {RUBRIC: Deinde, post Commemoratiónem Fériæ in Quadragésima, Commemoratio S. Dorótheæ Virg. et Mart.:}
 
@@ -34336,7 +34336,7 @@ IN vita et post mortem miráculis clarus, spíritu étiam prophetíæ non cárui
 
 #### Lectio ix
 
-ROMUÁLDUS, Ravénnæ, Sérgio patre, nóbili génere natus, adoléscens in propínquum monastérium Classénse pœniténtiæ causa secéssit; ubi ad pietátis stúdium veheméntius incénsus et beáti Apollináris apparitióne recreátus, mónachus effícitur. Jejúniis et oratiónibus assídue se exércuit, vultu tamen ádeo lætus, ut intuéntes exhiláraret. Martýrii cupiditáte flagrans, dum in Pannóniam proficíscitur, morbo corréptus, revérti cógitur. Institúti monachórum Camaldulén-sium auctor fuit, quos tamquam Angelos scalam cælum pertingéntem ascéndere per visum conspéxit. Dénique cum annos centum et vigínti ágeret, et centum ipsos in summa vitæ asperitáte Deo servísset, ad eum migrávit, anno salútis millésimo vigésimo séptimo, et Fabriáni in ecclésia sui órdinis honorífice cónditus est.
+ROMUÁLDUS, Ravénnæ, Sérgio patre, nóbili génere natus, adoléscens in propínquum monastérium Classénse pœniténtiæ causa secéssit; ubi ad pietátis stúdium veheméntius incénsus et beáti Apollináris apparitióne recreátus, mónachus effícitur. Jejúniis et oratiónibus assídue se exércuit, vultu tamen ádeo lætus, ut intuéntes exhiláraret. Martýrii cupiditáte flagrans, dum in Pannóniam proficíscitur, morbo corréptus, revérti cógitur. Institúti monachórum Camaldulénsium auctor fuit, quos tamquam Angelos scalam cælum pertingéntem ascéndere per visum conspéxit. Dénique cum annos centum et vigínti ágeret, et centum ipsos in summa vitæ asperitáte Deo servísset, ad eum migrávit, anno salútis millésimo vigésimo séptimo, et Fabriáni in ecclésia sui órdinis honorífice cónditus est.
 
 {RUBRIC: Te Deum.}
 
@@ -34388,7 +34388,7 @@ DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum
 
 #### Lectio iv
 
-JOÁNNES de Matha, órdinis sanctíssimæ Trinitátis redemptiónis captivórum insti-tútor, Falcóne in Província natus est paréntibus pietáte et nobilitáte conspícuis. Studiórum causa Aquas Séxtias, mox Parísios proféctus, confectóque theológiæ currículo, magistérii láuream adéptus, doctrínæ et virtútum splendóre enítuit. Quibus motus Parisiénsis antístes, ad sacrum presbyterátus órdinem præ humilitáte reluctántem promóvit, eo consílio, ut in ea civitáte cómmorans, sapiéntia et móribus studiósæ juventúti prælucéret. Cum autem in sacéllo ejúsdem epíscopi, ipso cum áliis astánte, primum Deo Sacrum offérret, cælésti favóre méruit recreári. Nam Angelus cándida et fulgénti veste indútus, cui in péctore crux rúbei et cærúlei colóris assúta erat, bráchiis cancellátis et super duos captívos ad látera pósitos, Christiánum unum, álterum Maurum, exténsis appáruit. Qua visióne in éxtasim raptus, intelléxit prótinus vir Dei, se ad rediméndos ab infidélibus captívos destinári.
+JOÁNNES de Matha, órdinis sanctíssimæ Trinitátis redemptiónis captivórum institútor, Falcóne in Província natus est paréntibus pietáte et nobilitáte conspícuis. Studiórum causa Aquas Séxtias, mox Parísios proféctus, confectóque theológiæ currículo, magistérii láuream adéptus, doctrínæ et virtútum splendóre enítuit. Quibus motus Parisiénsis antístes, ad sacrum presbyterátus órdinem præ humilitáte reluctántem promóvit, eo consílio, ut in ea civitáte cómmorans, sapiéntia et móribus studiósæ juventúti prælucéret. Cum autem in sacéllo ejúsdem epíscopi, ipso cum áliis astánte, primum Deo Sacrum offérret, cælésti favóre méruit recreári. Nam Angelus cándida et fulgénti veste indútus, cui in péctore crux rúbei et cærúlei colóris assúta erat, bráchiis cancellátis et super duos captívos ad látera pósitos, Christiánum unum, álterum Maurum, exténsis appáruit. Qua visióne in éxtasim raptus, intelléxit prótinus vir Dei, se ad rediméndos ab infidélibus captívos destinári.
 
 ℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
 
@@ -34474,7 +34474,7 @@ DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victó
 
 #### Lectio iv
 
-CYRILLUS Alexandrínus, cujus præcónia non uníus tantum vel altérius sunt comprobáta testimónio, sed étiam œcumenicórum conciliórum Ephesíni et Chalcedonénsis actis celebráta, claris ortus paréntibus, ac Theóphili epíscopi Alexandríni nepos, adhuc adoléscens præcelléntis ingé-nii clara specímina dedit. Lítteris ac sciéntiis egrégie imbútus, ad Joánnem epíscopum Jerosolymitánum se cóntulit, ut in christiána fide perficerétur. Alexandríam deínde cum rediísset, Theóphilo vita functo ad illíus sedem evéctus est: quo in múnere ita óptimi pastóris formam ab Apóstolo definítam constánter præ se tulit, ut sanctíssimi prǽsulis glóriam mérito sit adéptus.
+CYRILLUS Alexandrínus, cujus præcónia non uníus tantum vel altérius sunt comprobáta testimónio, sed étiam œcumenicórum conciliórum Ephesíni et Chalcedonénsis actis celebráta, claris ortus paréntibus, ac Theóphili epíscopi Alexandríni nepos, adhuc adoléscens præcelléntis ingénii clara specímina dedit. Lítteris ac sciéntiis egrégie imbútus, ad Joánnem epíscopum Jerosolymitánum se cóntulit, ut in christiána fide perficerétur. Alexandríam deínde cum rediísset, Theóphilo vita functo ad illíus sedem evéctus est: quo in múnere ita óptimi pastóris formam ab Apóstolo definítam constánter præ se tulit, ut sanctíssimi prǽsulis glóriam mérito sit adéptus.
 
 ℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
 
@@ -35342,7 +35342,7 @@ DÓMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitr
 
 JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
 
-℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judí-cium. Meditábitur sapiéntiam. Glória Patri. Os. ℣. Lex Dei ejus in corde ipsíus. ℟. Et non supplantabúntur gressus ejus.
+℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judícium. Meditábitur sapiéntiam. Glória Patri. Os. ℣. Lex Dei ejus in corde ipsíus. ℟. Et non supplantabúntur gressus ejus.
 
 #### Oratio
 
@@ -35480,7 +35480,7 @@ INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ acti
 
 #### Lectio iii
 
-SIMEON, fílius Cléophæ, post Jacóbum próximus Jerosólymis ordiná-tus epíscopus, Trajáno imperatóre apud Atticum consulárem est accusátus, quod Christiánus esset et Christi propínquus. Comprehendebántur enim omnes eo témpore, quicúmque ex génere David orti essent. Quare multis cruciátus torméntis eódem passiónis génere, quod Salvátor noster subíerat, afficitur: mirántibus ómnibus, quod homo ætáte conféctus (erat enim centum et vigínti annórum) acerbíssimos crucis dolóres fórtiter constantérque paterétur.
+SIMEON, fílius Cléophæ, post Jacóbum próximus Jerosólymis ordinátus epíscopus, Trajáno imperatóre apud Atticum consulárem est accusátus, quod Christiánus esset et Christi propínquus. Comprehendebántur enim omnes eo témpore, quicúmque ex génere David orti essent. Quare multis cruciátus torméntis eódem passiónis génere, quod Salvátor noster subíerat, afficitur: mirántibus ómnibus, quod homo ætáte conféctus (erat enim centum et vigínti annórum) acerbíssimos crucis dolóres fórtiter constantérque paterétur.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -35602,7 +35602,7 @@ QUOD natális ergo Cáthedræ hódie cólitur, sacerdotále honorátur offícium
 
 {RUBRIC: Sermo 15 de Sanctis}
 
-INSTITÚTIO solemnitátis hodiérnæ a senióribus nostris Cáthedræ nomen accépit, ídeo quod primus Apostolórum Petrus hódie episcopátus cáthedram suscepísse referátur. Recte ergo ecclésiæ natálem Sedis illíus colunt, quam Apóstolus pro ecclesiárum salúte suscépit, dicénte Dómino: Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. Petrum ítaque fundaméntum Ecclésiæ Dóminus nominávit: et ídeo digne fundaméntum hoc Ecclésia colit, supra quod ecclesiástici ædifícii altitúdo consúrgit. Unde conve-niénter Psalmus, qui lectus est, dicit: Exáltent eum in ecclésia plebis, et in cáthedra seniórum laudent eum. Benedíctus Deus, qui beátum Petrum Apóstolum in Ecclésia exaltári præcépit: quia dignum est, ut fundaméntum hoc in Ecclésia honorétur, per quod ad cælum conscénditur. Quod natális ergo Cáthedræ hódie cólitur, sacerdotále honorátur offícium. Sibi hoc ecclésiæ ínvicem præstant, quia tanto necésse plus habet Ecclésia dignitátis, quanto sacerdotále offícium plus honóris.
+INSTITÚTIO solemnitátis hodiérnæ a senióribus nostris Cáthedræ nomen accépit, ídeo quod primus Apostolórum Petrus hódie episcopátus cáthedram suscepísse referátur. Recte ergo ecclésiæ natálem Sedis illíus colunt, quam Apóstolus pro ecclesiárum salúte suscépit, dicénte Dómino: Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. Petrum ítaque fundaméntum Ecclésiæ Dóminus nominávit: et ídeo digne fundaméntum hoc Ecclésia colit, supra quod ecclesiástici ædifícii altitúdo consúrgit. Unde convenienter Psalmus, qui lectus est, dicit: Exáltent eum in ecclésia plebis, et in cáthedra seniórum laudent eum. Benedíctus Deus, qui beátum Petrum Apóstolum in Ecclésia exaltári præcépit: quia dignum est, ut fundaméntum hoc in Ecclésia honorétur, per quod ad cælum conscénditur. Quod natális ergo Cáthedræ hódie cólitur, sacerdotále honorátur offícium. Sibi hoc ecclésiæ ínvicem præstant, quia tanto necésse plus habet Ecclésia dignitátis, quanto sacerdotále offícium plus honóris.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -35626,7 +35626,7 @@ APÓSTOLOS Dóminus, quid de se hómines opinéntur, intérrogat: et támdiu ser
 
 #### Lectio viii
 
-ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excel-léntiam tuam. Quia tu es Petrus: id est, Cum ego sim inviolábilis petra, ego lapis anguláris, qui fácio útraque unum, ego fundaméntum præter quod nemo potest áliud pónere; tamen tu quoque petra es, quia mea virtúte solidáris, ut quæ mihi potestáte sunt própria, sint tibi mecum participatióne commúnia. Et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: Super hanc, inquit, fortitúdinem ætérnum exstrúam templum; et Ecclésiæ meæ cælo inserénda sublímitas, in hujus fídei firmitáte consúrget.
+ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excelléntiam tuam. Quia tu es Petrus: id est, Cum ego sim inviolábilis petra, ego lapis anguláris, qui fácio útraque unum, ego fundaméntum præter quod nemo potest áliud pónere; tamen tu quoque petra es, quia mea virtúte solidáris, ut quæ mihi potestáte sunt própria, sint tibi mecum participatióne commúnia. Et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: Super hanc, inquit, fortitúdinem ætérnum exstrúam templum; et Ecclésiæ meæ cælo inserénda sublímitas, in hujus fídei firmitáte consúrget.
 
 ℟. Elégit te Dóminus sacerdótem sibi, ad sacrificándum ei \* Hóstiam laudis. ℣. Immóla Deo sacrifícium laudis, et redde Altíssimo vota tua. — Hóstiam. Glória Patri. Hóstiam.
 
@@ -35812,7 +35812,7 @@ CONCÉDE nos, quǽsumus, omnípotens Deus: beáti Petri Confessóris tui atque P
 
 *Cap. 1, 15-26*
 
-IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus cré-puit médius: et diffúsa sunt ómnia víscera ejus.
+IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus crépuit médius: et diffúsa sunt ómnia víscera ejus.
 
 ℟. Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus: \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte.
 
@@ -35838,7 +35838,7 @@ ET statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Jus
 
 *Cap. 11, 25-30*
 
-IN illo témpore: Respóndens Jesus dixit: Confíteor tibi, Pater, Dómine cæli et terræ, quia abscon-dísti hæc a sapiéntibus et prudéntibus, et revelásti ea párvulis. Et réliqua.
+IN illo témpore: Respóndens Jesus dixit: Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus, et revelásti ea párvulis. Et réliqua.
 
 {RUBRIC: Homilía sancti Augustíni Epíscopi}
 
@@ -35894,7 +35894,7 @@ DEUS, qui beátum Gabriélem dulcíssimæ Matris tuæ dolóres assídue recóler
 
 #### Lectio iv
 
-GABRIEL, Assísii in Úmbria, honésto génere natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem a púero osténdit. Adoléscens, cum Spoléti lítteris óperam daret, ináni sæculi spécie et pompa aliquántulum állici visus est. Sed miseréntis Dei múnere, qui eum ad perfectiónem christiánæ vitæ jamdúdum invitábat, cum in morbum incidísset, sæculi vanitátem fastidíre cœpit, atque immortália dumtáxat bona appétere. Quo autem cítius Deo vocánti obtemperáret, factum est, ut insígnem illam beatíssimæ Vírginis Icónem, solémni pompa extra Spoletínæ ecclésiæ septa delátam intúitus, divíni amó-ris flammam concíperet, simúlque Institútum Clericórum a Passióne Jesu amplécti statúeret. Itaque non exíguas difficultátes eluctátus, in recéssu Morrovallénsi, lúgubrem vestem lætus índuit, et Gábriel a Vírgine perdolénte máluit appellári; ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam.
+GABRIEL, Assísii in Úmbria, honésto génere natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem a púero osténdit. Adoléscens, cum Spoléti lítteris óperam daret, ináni sæculi spécie et pompa aliquántulum állici visus est. Sed miseréntis Dei múnere, qui eum ad perfectiónem christiánæ vitæ jamdúdum invitábat, cum in morbum incidísset, sæculi vanitátem fastidíre cœpit, atque immortália dumtáxat bona appétere. Quo autem cítius Deo vocánti obtemperáret, factum est, ut insígnem illam beatíssimæ Vírginis Icónem, solémni pompa extra Spoletínæ ecclésiæ septa delátam intúitus, divíni amóris flammam concíperet, simúlque Institútum Clericórum a Passióne Jesu amplécti statúeret. Itaque non exíguas difficultátes eluctátus, in recéssu Morrovallénsi, lúgubrem vestem lætus índuit, et Gábriel a Vírgine perdolénte máluit appellári; ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam.
 
 ℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
 
@@ -35914,7 +35914,7 @@ INTER céteras virtútes christiánam humilitátem et obediéntiam máxime dilé
 
 #### Lectio ix
 
-GABRIEL, Assísii in Úmbria natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem osténdit. Adoléscens, cum miseréntis Dei múnere, eum ad perfectiórem vitam jamdúdum invitántis, in morbum incidísset, sǽculi vanitátem fastidíre cœpit. Institútum Clericórum a Passióne ampléctens, Gábriel a Vírgine perdolénte máluit appellári ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam. Ipsam omni obséquii génere percólere, prǽsertim conféctam afflictámque Jesu cruciátibus tam dolénter contemplári solébat, ut vim lacrimárum profúnderet. Illibátum virginitátis flórem retínuit, et suæ sodalitátis asperitáte usus, plane mundo crucifíxus, únice Deo vixit. Ita brevem vitæ cursum ómnium virtútum exercitatióne confíciens, caritátis incéndio vérius quam vi morbi consúmptus, divinǽque Matris ope recreátus, ad Súperos evolávit anno mil-lésimo octingentésimo sexagésimo secúndo. Eum deínceps Pius Papa décimus Beatórum, Benedíctus vero décimus quintus Sanctórum número accénsuit, et Pius undécimus ejus Offícium et Missam ad univérsam Ecclésiam exténdere dignátus est.
+GABRIEL, Assísii in Úmbria natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem osténdit. Adoléscens, cum miseréntis Dei múnere, eum ad perfectiórem vitam jamdúdum invitántis, in morbum incidísset, sǽculi vanitátem fastidíre cœpit. Institútum Clericórum a Passióne ampléctens, Gábriel a Vírgine perdolénte máluit appellári ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam. Ipsam omni obséquii génere percólere, prǽsertim conféctam afflictámque Jesu cruciátibus tam dolénter contemplári solébat, ut vim lacrimárum profúnderet. Illibátum virginitátis flórem retínuit, et suæ sodalitátis asperitáte usus, plane mundo crucifíxus, únice Deo vixit. Ita brevem vitæ cursum ómnium virtútum exercitatióne confíciens, caritátis incéndio vérius quam vi morbi consúmptus, divinǽque Matris ope recreátus, ad Súperos evolávit anno millésimo octingentésimo sexagésimo secúndo. Eum deínceps Pius Papa décimus Beatórum, Benedíctus vero décimus quintus Sanctórum número accénsuit, et Pius undécimus ejus Offícium et Missam ad univérsam Ecclésiam exténdere dignátus est.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -36086,7 +36086,7 @@ DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum Perpétu
 
 #### Lectio iv
 
-PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum cárcerem detrúsæ; quibus ultra adjúnctus est Sátyrus. Erant adhuc catechúmenæ, sed paulo post baptizátæ sunt. Paucis diébus interjéctis, e cárcere ad forum dedúctæ cum sóciis, post gloriósam confessiónem, ab Hilarió-ne procuratóre damnántur ad béstias. Inde hílares descéndunt ad cárcerem, ubi váriis visiónibus recreántur et ad martýrii palmam accendúntur. Perpétuam, nec patris sénio conféctí iterátæ preces et lácrimæ, nec erga fílium infántem pendéntem ad úbera matérnus amor, nec supplícii atrócitas, a Christi fide dimovére umquam potuérunt.
+PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum cárcerem detrúsæ; quibus ultra adjúnctus est Sátyrus. Erant adhuc catechúmenæ, sed paulo post baptizátæ sunt. Paucis diébus interjéctis, e cárcere ad forum dedúctæ cum sóciis, post gloriósam confessiónem, ab Hilarióne procuratóre damnántur ad béstias. Inde hílares descéndunt ad cárcerem, ubi váriis visiónibus recreántur et ad martýrii palmam accendúntur. Perpétuam, nec patris sénio conféctí iterátæ preces et lácrimæ, nec erga fílium infántem pendéntem ad úbera matérnus amor, nec supplícii atrócitas, a Christi fide dimovére umquam potuérunt.
 
 ℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
 
@@ -36438,7 +36438,7 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua
 
 ℣. Exsultábunt Sancti.
 
-**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctó-rum, qui Christi vestígia sunt secúti: et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctórum, qui Christi vestígia sunt secúti: et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
 
 {RUBRIC: Et fit Commemoratio Fériæ.}
 
@@ -36474,7 +36474,7 @@ GREGÓRIUS Magnus, Románus, Gordiáni senatóris fílius, adoléscens philosoph
 
 #### Lectio v
 
-ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium con-sensu Póntifex elígitur. Quem honórem ne accíperet, quámdiu pótuit, recusávit; nam aliéno vestítu in spelúnca delítuit; ubi deprehénsus indício ígneæ colúmnæ, ad sanctum Petrum consecrátur. In pontificátu multa successóribus doctrínæ ac sanctitátis exémpla relíquit. Peregrínos quotídie ad mensam adhibébat; in quibus et Angelum, et Dóminum Angelórum peregríni fácie accépit. Páuperes et urbános et extérnos, quorum númerum descríptum habébat, benígne sustentábat. Cathólicam fidem multis locis labefactátam restítuit; nam Donatístas in África, Ariános in Hispánia représsit, Agnoítas Alexandría ejécit. Pállium Syágrio Augustodunénsi epíscopo dare nóluit, nisi neóphytos hæréticos expélleret ex Gállia. Gothos hæresim Ariánam relínquere coégit. Missis in Británniam doctis et sanctis viris Augustíno et áliis mónachis, ínsulam ad Jesu Christi fidem convértit, vere a Beda presbýtero Angliæ vocátus Apóstolus. Joánnis patriárchæ Constantinopolitáni audáciam fregit, qui sibi universális Ecclésiæ epíscopi nomen arrogábat. Maurítium imperatórem, eos qui mílites fuíssent mónachos fíeri prohibéntem, a senténtia detérruit.
+ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium consensu Póntifex elígitur. Quem honórem ne accíperet, quámdiu pótuit, recusávit; nam aliéno vestítu in spelúnca delítuit; ubi deprehénsus indício ígneæ colúmnæ, ad sanctum Petrum consecrátur. In pontificátu multa successóribus doctrínæ ac sanctitátis exémpla relíquit. Peregrínos quotídie ad mensam adhibébat; in quibus et Angelum, et Dóminum Angelórum peregríni fácie accépit. Páuperes et urbános et extérnos, quorum númerum descríptum habébat, benígne sustentábat. Cathólicam fidem multis locis labefactátam restítuit; nam Donatístas in África, Ariános in Hispánia représsit, Agnoítas Alexandría ejécit. Pállium Syágrio Augustodunénsi epíscopo dare nóluit, nisi neóphytos hæréticos expélleret ex Gállia. Gothos hæresim Ariánam relínquere coégit. Missis in Británniam doctis et sanctis viris Augustíno et áliis mónachis, ínsulam ad Jesu Christi fidem convértit, vere a Beda presbýtero Angliæ vocátus Apóstolus. Joánnis patriárchæ Constantinopolitáni audáciam fregit, qui sibi universális Ecclésiæ epíscopi nomen arrogábat. Maurítium imperatórem, eos qui mílites fuíssent mónachos fíeri prohibéntem, a senténtia detérruit.
 
 ℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
 
@@ -37437,7 +37437,7 @@ ET factum est in trigésimo anno, in quarto, in quinta mensis, cum essem in méd
 
 #### Lectio ii
 
-ET in médio ejus similitúdo quátuor animálium: et hic aspéctus eórum, similitúdo hóminis in eis. Quátuor fácies uni, et quátuor pennæ uni. Pedes eórum pedes recti, et planta pedis eórum, quasi planta pedis vítuli, et scintíllæ quasi aspéctus æris candéntis. Et manus hó-minis sub pennis eórum in quátuor pártibus: et fácies, et pennas per quátuor partes habébant, junctǽque erant pennæ eórum altérius ad álterum. Non revertebántur cum incéderent: sed unumquódque ante fáciem suam gradiebátur.
+ET in médio ejus similitúdo quátuor animálium: et hic aspéctus eórum, similitúdo hóminis in eis. Quátuor fácies uni, et quátuor pennæ uni. Pedes eórum pedes recti, et planta pedis eórum, quasi planta pedis vítuli, et scintíllæ quasi aspéctus æris candéntis. Et manus hóminis sub pennis eórum in quátuor pártibus: et fácies, et pennas per quátuor partes habébant, junctǽque erant pennæ eórum altérius ad álterum. Non revertebántur cum incéderent: sed unumquódque ante fáciem suam gradiebátur.
 
 ℟. Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde: \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum enim meum.
 
@@ -37501,7 +37501,7 @@ DOMINUS et Salvátor noster, fratres caríssimi, aliquándo nos sermónibus, ali
 
 #### Lectio viii
 
-ECCE enim, binos ad prædicándum discípulos Dóminus mittit: quátenus hoc nobis tácitus ínnuat, quia qui caritátem erga álterum non habet, prædicatiónis offícium suscípere nullátenus de-bet. Bene autem dícitur, quia misit eos ante fáciem suam in omnem civitátem et locum, quo erat ipse ventúrus. Prædicatóres enim suos Dóminus séquitur: quia prædicátio prǽvenit, et tunc ad mentis nostræ habitáculum Dóminus venit, quando verba exhortatiónis præcúrrunt: atque per hoc véritas in mente suscípitur.
+ECCE enim, binos ad prædicándum discípulos Dóminus mittit: quátenus hoc nobis tácitus ínnuat, quia qui caritátem erga álterum non habet, prædicatiónis offícium suscípere nullátenus debet. Bene autem dícitur, quia misit eos ante fáciem suam in omnem civitátem et locum, quo erat ipse ventúrus. Prædicatóres enim suos Dóminus séquitur: quia prædicátio prǽvenit, et tunc ad mentis nostræ habitáculum Dóminus venit, quando verba exhortatiónis præcúrrunt: atque per hoc véritas in mente suscípitur.
 
 ##### Pro Evangelistis
 
@@ -37551,7 +37551,7 @@ DEUS, qui Ecclésiam tuam in apostólicæ petræ soliditáte fundátam, ab infer
 
 *Cap. 16, 13-19*
 
-IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hó-mines esse Fílium hóminis? Et réliqua.
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
 
 {RUBRIC: Homilía sancti Leónis Papæ}
 
@@ -37601,7 +37601,7 @@ IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus
 
 ##### Pro pluribus Pontif. Conf.
 
-℟. Vigiláte ergo, nescítis enim quando Dóminus do-mus véniat: \* Ne cum vénerit repénte, invéniat vos dormiéntes. ℣. Quod autem vobis dico, ómnibus dico: Vigiláte. — Ne. Glória Patri. Ne.
+℟. Vigiláte ergo, nescítis enim quando Dóminus domus véniat: \* Ne cum vénerit repénte, invéniat vos dormiéntes. ℣. Quod autem vobis dico, ómnibus dico: Vigiláte. — Ne. Glória Patri. Ne.
 
 #### Lectio ix
 
@@ -37711,7 +37711,7 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti N. Mártyris tui natalítia
 
 **4 — Alia Oratio**
 
-PRÆSTA, quǽsumus, om-nípotens Deus: ut, intercedénte beáto N. Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+PRÆSTA, quǽsumus, omnípotens Deus: ut, intercedénte beáto N. Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
 
 {RUBRIC: Completorium de Dominica.}
 
@@ -37939,7 +37939,7 @@ TRIUMPHÁLIS beáti Mártyris N. dies hódie nobis anniversária celebritáte re
 
 #### Lectio v
 
-CORONÁTA ítaque est beáti Mártyris patiéntia: mancipáta est ætérnis cruciátibus tortóris incorrécta malítia. Hoc atténdens in agóne suo gloriósus Christi Athléta, non exhórruit cárcerem. Ad imitatiónem cápitis sui tolerávit probra, sustínuit irrisiónes, flagélla non tímuit, et quot ante mortem pro Christo pértulit supplícia, tot ei de se óbtulit sacrifícia. Quod enim propinánte Apóstolo bíberat, alte retinébat: Quia non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ re-velábitur in nobis; et Quia momentáneum hoc et leve nostræ tribulatiónis, ætérnum glóriæ pondus operátur in cælis. Hujus promissiónis amóre a terrénis suspénsus, et prægustáta supérnæ suavitátis dulcédine ineffabíliter afféctus, dicébat cum Psalmísta: Quid mihi est in cælo, et a te quid vólui super terram? Defécit caro mea et cor meum: Deus cordis mei, et pars mea Deus in ætérnum.
+CORONÁTA ítaque est beáti Mártyris patiéntia: mancipáta est ætérnis cruciátibus tortóris incorrécta malítia. Hoc atténdens in agóne suo gloriósus Christi Athléta, non exhórruit cárcerem. Ad imitatiónem cápitis sui tolerávit probra, sustínuit irrisiónes, flagélla non tímuit, et quot ante mortem pro Christo pértulit supplícia, tot ei de se óbtulit sacrifícia. Quod enim propinánte Apóstolo bíberat, alte retinébat: Quia non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis; et Quia momentáneum hoc et leve nostræ tribulatiónis, ætérnum glóriæ pondus operátur in cælis. Hujus promissiónis amóre a terrénis suspénsus, et prægustáta supérnæ suavitátis dulcédine ineffabíliter afféctus, dicébat cum Psalmísta: Quid mihi est in cælo, et a te quid vólui super terram? Defécit caro mea et cor meum: Deus cordis mei, et pars mea Deus in ætérnum.
 
 ℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
 
@@ -38065,7 +38065,7 @@ SED ad hæc audíta inardéscit ánimus, jamque illic cupit assístere, ubi se s
 
 #### Lectio ix
 
-SED percontári libet, quómodo paréntes et carnáliter propínquos præcípimur odísse, qui jubémur et inimícos dilígere? Et certe Véritas de uxóre dicit: Quod Deus conjúnxit, homo non séparet. Et Paulus ait: Viri, dilígite uxóres vestras, sicut et Christus Ecclésiam. Ecce discípulus uxórem diligéndam prǽdicat, cum magíster dicat: Qui uxórem non odit, non potest meus esse discípulus. Numquid áliud judex núntiat, áliud præco clamat? An simul et odísse póssumus, et dilígere? Sed si vim præcépti perpéndimus, utrúmque ágere per discretiónem valémus: ut uxórem et eos, qui nobis carnis co-gnatióne conjúncti sunt, et quos próximos nóvimus, diligámus; et quos adversários in via Dei pátimur, odiéndo et fugiéndo nesciámus.
+SED percontári libet, quómodo paréntes et carnáliter propínquos præcípimur odísse, qui jubémur et inimícos dilígere? Et certe Véritas de uxóre dicit: Quod Deus conjúnxit, homo non séparet. Et Paulus ait: Viri, dilígite uxóres vestras, sicut et Christus Ecclésiam. Ecce discípulus uxórem diligéndam prǽdicat, cum magíster dicat: Qui uxórem non odit, non potest meus esse discípulus. Numquid áliud judex núntiat, áliud præco clamat? An simul et odísse póssumus, et dilígere? Sed si vim præcépti perpéndimus, utrúmque ágere per discretiónem valémus: ut uxórem et eos, qui nobis carnis cognatióne conjúncti sunt, et quos próximos nóvimus, diligámus; et quos adversários in via Dei pátimur, odiéndo et fugiéndo nesciámus.
 
 {RUBRIC: Te Deum laudámus.}
 
@@ -38266,7 +38266,7 @@ QUÆ ista divísio est? Inter prima enim legis præcépta accépimus: Honóra pa
 
 #### Lectio viii
 
-GLÁDIUS telórum ómnium telum acutíssimum est, in quo sit jus potestátis, et judícii sevéritas, et animadvérsio pec-catórum. Et hujus quidem teli nómine novi Evangélii prædicatiónem appellátam frequens in Prophétis auctóritas est. Dei ígitur verbum nuncupátum meminérimus in gládio; qui gládius missus in terram est, idest, prædicátio ejus hóminum córdibus infúsa. Fitque gravis in domo una dissénsio, et doméstica novo hómini erunt inimíca; quia ille per verbum Dei divísus ab illis, manére et intérior et extérior, id est, et corpus et ánima, in spíritus novitáte gaudébit.
+GLÁDIUS telórum ómnium telum acutíssimum est, in quo sit jus potestátis, et judícii sevéritas, et animadvérsio peccatórum. Et hujus quidem teli nómine novi Evangélii prædicatiónem appellátam frequens in Prophétis auctóritas est. Dei ígitur verbum nuncupátum meminérimus in gládio; qui gládius missus in terram est, idest, prædicátio ejus hóminum córdibus infúsa. Fitque gravis in domo una dissénsio, et doméstica novo hómini erunt inimíca; quia ille per verbum Dei divísus ab illis, manére et intérior et extérior, id est, et corpus et ánima, in spíritus novitáte gaudébit.
 
 ℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória. Qui.
 
@@ -38512,7 +38512,7 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 
 *Cap. 8, 12-19*
 
-FRATRES: Debitóres sumus non carni, ut secúndum carnem vivámus. Si enim secúndum carnem vixéritis, moriémini: si autem spíritu facta carnis mortificavéritis, vivétis. Quicúmque enim spíritu Dei agúntur, ii sunt fílii Dei. Non enim accepístis spíritum servi-tútis íterum in timóre, sed accepístis spíritum adoptiónis filiórum, in quo clamámus: Abba (Pater). Ipse enim Spíritus testimónium reddit spirítui nostro, quod sumus fílii Dei. Si autem fílii, et herédes: herédes quidem Dei, cohérédes autem Christi; si tamen compátimur, ut et conglorificémur. Existímo enim quod non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis. Nam exspectátio creatúræ revelatiónem filiórum Dei exspéctat.
+FRATRES: Debitóres sumus non carni, ut secúndum carnem vivámus. Si enim secúndum carnem vixéritis, moriémini: si autem spíritu facta carnis mortificavéritis, vivétis. Quicúmque enim spíritu Dei agúntur, ii sunt fílii Dei. Non enim accepístis spíritum servitútis íterum in timóre, sed accepístis spíritum adoptiónis filiórum, in quo clamámus: Abba (Pater). Ipse enim Spíritus testimónium reddit spirítui nostro, quod sumus fílii Dei. Si autem fílii, et herédes: herédes quidem Dei, cohérédes autem Christi; si tamen compátimur, ut et conglorificémur. Existímo enim quod non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis. Nam exspectátio creatúræ revelatiónem filiórum Dei exspéctat.
 
 ##### Pro pluribus Martyribus
 
@@ -38832,7 +38832,7 @@ SED cum tot signa perturbatiónis dicta sint, opórtet, ut eórum consideratión
 
 {RUBRIC: Psalmi de Dominica.}
 
-**2** Cum palma \* ad regna pervenérunt Sancti, coró-nas decóris meruérunt de manu Dei.
+**2** Cum palma \* ad regna pervenérunt Sancti, corónas decóris meruérunt de manu Dei.
 
 **3** Córpora Sanctórum \* in pace sepúlta sunt: et vivent nómina eórum in ætérnum.
 
@@ -38943,7 +38943,7 @@ Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
 
 Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
 
-Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspé-ctu Dómini mors sanctórum ejus:
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
 
 O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
 

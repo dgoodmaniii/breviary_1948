@@ -45383,3 +45383,61 @@ Réquiem ætérnam.
 ℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
 
 ℣. Requiéscant in pace. ℟. Amen.
+
+# Psalmi Graduales
+
+{RUBRIC: Sicubi recitentur in Choro, congrue dicuntur ante Matutinum diei; extra Chorum vero pro temporis opportunitate.}
+
+{RUBRIC: Primi quinque Psalmi dicuntur sine Glória Patri; sed in fine ultimi dicitur Réquiem ætérnam.}
+
+{RUBRIC: Incipiuntur absolute sine Antiphona.}
+
+{RUBRIC: Ps. 119 Ad Dóminum cum tribulárer, 111;}
+
+{RUBRIC: Ps. 120 Levávi, ibid.;}
+
+{RUBRIC: Ps. 121 Lætátus sum, ibid.;}
+
+{RUBRIC: Ps. 122 Ad te levávi, 148;}
+
+{RUBRIC: Ps. 123 Nisi quia, 149.}
+
+Réquiem ætérnam \* dona eis, Dómine.
+
+Et lux perpétua \* lúceat eis.
+
+{RUBRIC: Deinde dicitur flexis génibus:}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+ABSOLVE, quǽsumus, Dómine, ánimas famulórum famularúmque tuárum et ómnium fidélium defunctórum, ab omni vínculo delictórum: ut in resurrectiónis glória inter Sanctos et Eléctos tuos resuscitáti respírent. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Post Oratiónem statim dicuntur alii Psalmi Graduáles qui sequúntur; et in fine cujuslíbet Psalmi dícitur Glória Patri.}
+
+{RUBRIC: Psalmus 124 Qui confídunt, 149;}
+
+{RUBRIC: Ps. 125 In converténdo, ibid.;}
+
+{RUBRIC: Ps. 126 Nisi Dóminus, 150;}
+
+{RUBRIC: Ps. 127 Beáti omnes, 189;}
+
+{RUBRIC: Ps. 128 Sæpe expugnavérunt. ibid.}
+
+{RUBRIC: Postea dícitur flexis génibus:}
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio.

@@ -38779,3 +38779,57 @@ Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
 Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
 
 Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Ecce, merces Sanctórum copiósa est apud Deum: ipsi vero mórtui sunt pro Christo, et vivent in ætérnum.
+
+℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+**Absolutio.** A vínculis.
+
+**Benedictio.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 21, 9-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum audiéritis prǽlia, et seditiónes, nolíte terréri: opórtet primum hæc fíeri, sed nondum statim finis. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 35 in Evangelia}
+
+DOMINUS ac Redémptor noster peritúri mundi præcurréntia mala denúntiat, ut eo minus pertúrbent veniéntia, quo fúerint præscíta. Minus enim jácula fériunt, quæ prævidéntur; et nos tolerabílius mundi mala suscípimus, si contra hæc per præsciéntiæ clýpeum munímur. Ecce enim dicit: Cum audiéritis prǽlia et seditiónes, nolíte terréri; opórtet enim primum hæc fíeri, sed nondum statim finis. Pensánda sunt verba Redemptóris nostri, per quæ nos áliud intérius, áliud extérius passúros esse denúntiat. Bella quippe ad hostes pértinent, seditiónes ad cives. Ut ergo nos índicet intérius exteriúsque turbári, áliud nos fatétur ab hóstibus, áliud a frátribus pérpeti.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+**Benedictio.** Quorum festum cólimus.
+
+#### Lectio viii
+
+SED, his malis præveniéntibus, quia non statim finis sequátur, adjúngit: Surget gens contra gentem, et regnum advérsus regnum; et terrǽmótus magni erunt per loca, et pestiléntiæ, et fames, terrorésque de cælo et signa magna erunt. Ultima tribulátio multis tribulatiónibus prævenítur; et per crebra mala, quæ prævéniunt, indicántur mala perpétua, quæ subsequéntur. Et ídeo post bella et seditiónes non statim finis; quia multa debent mala præcúrrere, ut malum váleant sine fine nuntiáre.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis: \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória Patri. Mercédem.
+
+{RUBRIC: Sequens Responsórium dícitur, loco præcedéntis, in Offício plurimórum Mártyrum Fratrum, étiam si ii recolántur cum Sóciis; dúmmodo tamen Fratres vel número sint plures, vel, si pares, primo loco nominéntur.}
+
+℟. Hæc est vera fratérnitas, quæ numquam pótuit violári certámine: qui effúso sánguine secúti sunt Dóminum: \* Contemnéntes aulam régiam, pervenérunt ad regna cæléstia. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Contemnéntes. Glória Patri. Contemnéntes.
+
+**Benedictio.** Ad societátem.
+
+#### Lectio ix
+
+SED cum tot signa perturbatiónis dicta sint, opórtet, ut eórum consideratiónem bréviter per síngula perstringámus; quia necésse est, ut ália e cælo, ália e terra, ália ab eleméntis, ália ab homínibus patiámur. Ait enim: Surget gens contra gentem, ecce perturbátio hóminum; erunt terrǽmótus magni per loca, ecce respéctus iræ désuper; erunt pestiléntiæ, ecce inæquálitas córporum; erit fames, ecce sterílitas terræ; terrorésque de cælo et tempestátes, ecce inæquálitas áëris. Quia ergo ómnia consummánda sunt, ante consummatiónem ómnia perturbántur; et qui in cunctis delíquimus, in cunctis ferímur, ut impleátur quod dícitur: Et pugnábit pro eo orbis terrárum contra insensátos.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Omnes Sancti, \* quanta passi sunt torménta, ut secúri pervenírent ad palmam martýrii!
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Cum palma \* ad regna pervenérunt Sancti, coró-nas decóris meruérunt de manu Dei.

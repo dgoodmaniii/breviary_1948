@@ -43832,3 +43832,53 @@ Glória Patri. Sicut erat. Allelúja.
 {RUBRIC: Antíphonæ, quæ in toto Offício parvo non duplicántur, Psalmi, Capítulum et Hymnus, ut supra in Commúni Festórum B. Maríæ Vírginis. [174]}
 
 ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Beáta Mater \* et intácta Virgo, gloriósa Regína mundi, intercéde pro nobis ad Dóminum.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+CONCÉDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Et fit Commemorátio de Sanctis:}
+
+**Ant.** Sancti Dei omnes, intercédere dignémini pro nostra ómniumque salúte.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Oratio**
+
+PROTÉGE, Dómine, pópulum tuum, et, Apostolórum tuórum Petri et Pauli et aliórum Apostolórum patrocínio confidéntem, perpétua defensióne consérva.
+
+OMNES Sancti tui, quǽsumus, Dómine, nos ubíque ádjuvent: ut, dum eórum mérita recólimus, patrocínia sentiámus: et pacem tuam nostris concéde tempóribus, et ab Ecclésia tua cunctam repélle nequítiam; iter, actus et voluntátes nostras, et ómnium famulórum tuórum, in salútis tuæ prosperitáte dispóne, benefactóribus nostris sempitérna bona retríbue, et ómnibus fidélibus defúnctis réquiem ætérnam concéde. Per Dóminum.
+
+##### AD COMPLETORIUM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Ps. 128} Sæpe expugnavérunt, {RUBRIC: Ps. 129} De profúndis, {RUBRIC: et Ps. 130} Dómine, non est exaltátum, {RUBRIC: ut in Vésperis Fériæ IV. 189}
+
+### Hymnus
+
+MEMENTO, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+María, Mater grátiæ,
+Dulcis Parens cleméntiæ,
+Tu nos ab hoste prótege
+Et mortis hora súscipe.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.

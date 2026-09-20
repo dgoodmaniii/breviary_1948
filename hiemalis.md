@@ -46435,3 +46435,59 @@ Glória Patri. Sicut erat.
 BENEDICTUS Deus in donis suis, et sanctus in ómnibus opéribus suis: Qui vivit et regnat in sæcula sæculórum. ℟. Amen.
 
 {RUBRIC: Deinde alternátim dícitur Ps. 116 Laudáte Dóminum, omnes gentes, et relíqua ut supra. [252]}
+
+{RUBRIC: Quando semel comedítur, ómnia dicúntur ut in Cœna.}
+
+{RUBRIC: Prædíctus modus benedicéndi mensam, et agéndi grátias, servátur omni témpore hujus Partis Hiemális, præterquam diébus infrascríptis, quibus Versus et Psalmi tantum variántur.}
+
+## In Nativitate Domini
+
+{RUBRIC: usque ad Cœnam Vigíliæ Epiphaníæ exclusíve dícitur:}
+
+℣. Verbum caro factum est, allelúja. ℟. Et habitávit in nobis, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: In fine dícitur:}
+
+℣. Notum fecit Dóminus, allelúja. ℟. Salutáre suum, allelúja.
+
+{RUBRIC: Ália ut supra.}
+
+{RUBRIC: Ps. 97 Cantáte Dómino ... quia 204, vel Ps. 116 Laudáte Dóminum, omnes gentes. [252]}
+
+{RUBRIC: Qui Psalmus semper ad beneplácitum dici potest étiam in áliis Solemnitátibus.}
+
+## In Epiphania
+
+{RUBRIC: et per totam Octávam}
+
+℣. Reges Tharsis et ínsulæ múnera ófferent, allelúja. ℟. Reges Arabum et Saba dona addúcent, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: In fine dícitur:}
+
+℣. Omnes de Saba vénient, allelúja. ℟. Aurum et thus deferéntes, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: Ps. 71 Deus, judícium tuum regi da 215, vel Ps. 116 Laudáte Dóminum, omnes gentes. [252]}
+
+# Itinerarium
+
+{RUBRIC: Cléricus in ipso itíneris ingréssu, si solus fúerit, dicat quæ sequúntur in singulári; si cum sóciis, in plurali.}
+
+**Ant.** In viam pacis.
+
+{RUBRIC: Canticum Zacháriæ} Benedíctus Dóminus, Deus Israël. [230]
+
+**Ant.** In viam pacis et prosperitátis dírigat nos omnípotens et miséricors Dóminus, et Ángelus Ráphaël comitétur nobíscum in via; ut cum pace, salúte et gáudio revertámur ad própria.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Salvos fac servos tuos. ℟. Deus meus, sperántes in te.
+
+℣. Mitte nobis, Dómine, auxílium de sancto. ℟. Et de Sion tuére nos.

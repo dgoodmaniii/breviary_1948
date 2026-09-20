@@ -17932,4 +17932,61 @@ CERTE iniquórum ómnium caput diábolus est: et hujus cápitis membra sunt omne
 
 SED sciéndum nobis est, quia tribus modis tentátio ágitur: suggestióne, delectatióne, et consénsu. Et nos cum tentámur, plerúmque in delectatiónem, aut étiam in consénsum lábimur: quia de carnis peccáto propagáti, in nobis ipsis étiam gérimus, unde certámina tolerámus. Deus vero, qui in útero Vírginis incarnátus, in mundum sine peccáto vénerat, nihil contradictiónis in semetípso tolerábat. Tentári ergo per suggestiónem pótuit: sed ejus mentem peccáti delectátio non momórdit. Atque ídeo omnis diabólica illa tentátio foris, non intus fuit.
 
-℟. Angelis suis Deus mandávit de te, ut custódiant te in ómnibus viis tuis: \* In mánibus portábunt te, ne umquam offéndas ad lápidem pedem tuum. ℣. Super áspi-
+℟. Angelis suis Deus mandávit de te, ut custódiant te in ómnibus viis tuis: \* In mánibus portábunt te, ne umquam offéndas ad lápidem pedem tuum. ℣. Super áspidem et basilíscum ambulábis, et conculcábis leónem et dracónem. — In. Glória Patri. In.
+
+{RUBRIC: Et non dícitur Hymnus Te Deum in Officio de Tempore, usque ad Sabbatum sanctum inclusive.}
+
+### Ad Laudes
+
+**Ant. 1** Cor mundum \* crea in me, Deus, et spíritum rectum ínnova in viscéribus meis.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 53}
+
+**2** O Dómine, \* salvum me fac: o Dómine, bene prosperáre.
+
+**3** Sic benedícam \* te in vita mea, Dómine: et in nómine tuo levábo manus meas.
+
+**4** In spíritu \* humilitátis et in ánimo contríto suscipiámur, Dómine, a te: et sic fiat sacrifícium nostrum, ut a te suscipiátur hódie, et pláceat tibi, Dómine Deus.
+
+**5** Laudáte Deum, \* cæli cælórum, et aquæ omnes.
+
+**Capitulum** *2 Cor. 6, 1-2*
+
+FRATRES: Hortámur vos, ne in vácuum grátiam Dei recipiátis. Ait enim: Témpore accépto exaudívi te, et in die salútis adjúvi te.
+
+#### Hymnus
+
+O Sol salútis, íntimis,
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ,
+Si virga pœniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Te prona mundi máchina,
+Clemens, adóret, Trínitas,
+Et nos novi per grátiam
+Novum canámus cánticum. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Ductus est Jesus \* in desértum a Spíritu, ut tentarétur a diábolo: et cum jejunásset quadragínta diébus et quadragínta nóctibus, póstea esúriit.
+
+#### Oratio
+
+DEUS, qui Ecclésiam tuam ánnua Quadragesimáli observatióne puríficas: præsta famíliæ tuæ; ut, quod a te obtinére abstinéndo nítitur, hoc bonis opéribus exsequátur. Per Dóminum.

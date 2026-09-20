@@ -44138,4 +44138,49 @@ FAMULÓRUM tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placér
 
 {RUBRIC: Antíphonæ et Capítulum de Láudibus. [204]}
 
-**Ad Magnif. Ant.** Spíritus Sanctus \* in te descéndet,
+**Ad Magnif. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei, allelúja.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Quæ Orátio dícitur ad omnes Horas.}
+
+{RUBRIC: Et fit Commemorátio de Sanctis:}
+
+**Ant.** Ecce Dóminus véniet, et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
+
+℣. Ecce apparébit Dóminus super nubem cándidam. ℟. Et cum eo Sanctórum míllia.
+
+**Oratio**
+
+CONSCIÉNTIAS nostras, quǽsumus, Dómine, visitándo purífica: ut, véniens Jesus Christus, Fílius tuus, Dóminus noster, cum ómnibus Sanctis, parátam sibi in nobis invéniat mansiónem: Qui tecum vivit.
+
+##### AD COMPLETORIUM
+
+#### Capitulum
+*Is. 7, 14-15*
+
+ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
+
+℣. Angelus Dómini nuntiávit Maríæ. ℟. Et concépit de Spíritu Sancto.
+
+{RUBRIC: Ad Nunc dimíttis Ant.} Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei, allelúja.
+
+##### AD MATUTINUM
+
+{RUBRIC: Féria IV et Sábbato, loco 3. Antíphonæ} Post partum, {RUBRIC: dícitur sequens}
+
+**Ant.** Angelus Dómini \* nuntiávit Maríæ, et concépit de Spíritu Sancto, allelúja.
+
+**Absolutio.** PRÉCIBUS et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne, benedícere. — **Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+**Lectio i** *Luc. 1, 26-38*
+
+MISSUS est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen

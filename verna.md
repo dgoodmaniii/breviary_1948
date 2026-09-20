@@ -5365,3 +5365,61 @@ Verámque pacem córdium.
 Patríque compar Unice,
 Cum Spíritu Paráclito
 Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** In tua justítia.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos.
+
+{RUBRIC: Feria II post Dom. Passionis}
+
+**Ant.** Pópule meus.
+
+{RUBRIC: Feria II Majoris Hebdomadæ}
+
+**Ant.** Appendérunt.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 30, i
+
+IN te, Dómine, sperávi, non confúndar in ætérnum: \* in justítia tua líbera me.
+
+Inclína ad me aurem tuam, \* accélera ut éruas me.
+
+Esto mihi in Deum protectórem, et in domum refúgii: \* ut salvum me fácias.
+
+Quóniam fortitúdo mea, et refúgium meum es tu: \* et propter nomen tuum dedúces me, et enútries me.
+
+Edúces me de láqueo hoc, quem abscondérunt mihi: \* quóniam tu es protéctor meus.
+
+In manus tuas comméndo spíritum meum: \* redemísti me, Dómine, Deus veritátis.
+
+Odísti observántes vanitátes, \* supervácue.
+
+Ego autem in Dómino sperávi: \* exsultábo, et lætábor in misericórdia tua.
+
+Quóniam respexísti humilitátem meam, \* salvásti de necessitátibus ánimam meam.
+
+Nec conclusísti me in mánibus inimíci: \* statuísti in loco spatióso pedes meos.
+
+###### Psalmus 30, ii
+
+MISERERE mei, Dómine, quóniam tríbulor: \* conturbátus est in ira óculus meus, ánima mea, et venter meus:
+
+Quóniam defécit in dolóre vita mea: \* et anni mei in gemítibus.
+
+Infirmáta est in paupertáte virtus mea: \* et ossa mea conturbáta sunt.
+
+Super omnes inimícos meos factus sum oppróbrium et vicínis meis valde: \* et timor notis meis.
+
+Qui vidébant me, foras fugérunt a me: \* oblivióni datus sum, tamquam mórtuus a corde.
+
+Factus sum tamquam vas pérditum: \* quóniam audívi vituperatiónem multórum commorántium in circúitu.
+
+In eo dum convenírent simul advérsum me, \* accípere ánimam meam consiliáti sunt.
+
+Ego autem in te sperávi, Dómine: \* dixi: Deus

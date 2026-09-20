@@ -5966,3 +5966,55 @@ In sempitérna sæcula. Amen.
 ℣. Jube, domne.
 
 **Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Salvum me fac.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja.
+
+**Ant.** Allelúja, in hac et aliis Feriis, dicitur a Sabbato in Albis usque ad Feriam VI post Octavam Ascensionis inclusive.
+
+{RUBRIC: ¶ Antiphonæ, tam intra quam extra Tempus Paschale appositæ, dicuntur semper ad Completorium tum de Tempore tum de Sanctis, quando juxta Rubricas sumendi sint Psalmi de Feria.}
+
+###### Psalmus 6
+
+DOMINE, ne in furóre tuo árguas me, \* neque in ira tua corrípias me.
+
+Miserére mei, Dómine, quóniam infírmus sum: \* sana me, Dómine, quóniam conturbáta sunt ossa mea.
+
+Et ánima mea turbáta est valde: \* sed tu, Dómine, úsquequo?
+
+Convértere, Dómine, et éripe ánimam meam: \* salvum me fac propter misericórdiam tuam.
+
+Quóniam non est in morte qui memor sit tui: \* in inférno autem quis confitébitur tibi?
+
+Laborávi in gémitu meo, lavábo per síngulas noctes lectum meum: \* lácrimis meis stratum meum rigábo.
+
+Turbátus est a furóre óculus meus: \* inveterávi inter omnes inimícos meos.
+
+Discédite a me, omnes, qui operámini iniquitátem: \* quóniam exaudívit Dóminus vocem fletus mei.
+
+Exaudívit Dóminus deprecatiónem meam, \* Dóminus oratiónem meam suscépit.
+
+Erubéscant, et conturbéntur veheménter omnes inimíci mei: \* convertántur et erubéscant valde velóciter.
+
+###### Psalmus 7, i
+
+DOMINE, Deus meus, in te sperávi: \* salvum me fac ex ómnibus perse-

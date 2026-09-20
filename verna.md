@@ -10947,3 +10947,76 @@ VISITA, quǽsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 ℣. Divínum auxílium.
 
 Pater noster, Ave María et Credo.
+
+---
+
+## Feria Quinta
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Invit.** Non sit vobis vanum mane súrgere ante lucem: \* Quia promísit Dóminus corónam vigilántibus. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+EX more docti mýstico
+Servémus hoc jejúnium,
+Deno diérum círculo
+Ducto quater notíssimo.
+
+Lex et prophétæ prímitus
+Hoc prætulérunt, póstmodum
+Christus sacrávit, ómnium
+Rex atque factor témporum.
+
+Utámur ergo párcius
+Verbis, cibis et pótibus,
+Somno, jocis, et árctius
+Perstémus in custódia.
+
+Vitémus autem nóxia,
+Quæ súbruunt mentes vagas:
+Nullúmque demus cállidi
+Hostis locum tyránnidi.
+
+Flectámus iram víndicem,
+Plorémus ante Júdicem,
+Clamémus ore súpplici,
+Dicámus omnes cérnui:
+
+Nostris malis offéndimus
+Tuam, Deus, cleméntiam:
+Effúnde nobis désuper,
+Remíssor, indulgéntiam.
+
+Meménto quod sumus tui,
+Licet cadúci, plásmatis:
+Ne des honórem nóminis
+Tui, precámur, álteri.
+
+Laxa malum, quod fécimus,
+Auge bonum, quod póscimus:
+Placére quo tandem tibi
+Possímus hic, et pérpetim.
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas,
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+#### Tempore Passionis
+
+**Invit.** Hódie, si vocem Dómini audiéritis, \* Nolíte obduráre corda vestra. **Ps. 94** Veníte. [3]
+
+{RUBRIC: In quarto Ps. versu non dicitur: Hódie, si vocem; sed, post repetitum Invitatorium, statim subjungitur: Sicut in exacerbatióne.}
+
+{RUBRIC: In fine autem hujus Ps. non dicitur} Glória Patri; {RUBRIC: sed repetitur Invitatorium.}

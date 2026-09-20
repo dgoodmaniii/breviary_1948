@@ -40173,4 +40173,30 @@ BEÁTI N. dies, cujus festivitátem celebrámus, ad ipsíus recte factórum enar
 
 #### Lectio v
 
-QUOD si hic, ubi morbi, ubi insectatiónes, ubi præmatúræ mortes, ubi calúmniæ, ubi invídiæ, ubi perturbatiónes, ubi iræ,
+QUOD si hic, ubi morbi, ubi insectatiónes, ubi præmatúræ mortes, ubi calúmniæ, ubi invídiæ, ubi perturbatiónes, ubi iræ, ubi cupiditátes, ubi innumerábiles insídiæ, ubi quotidiánæ sollicitúdines, ubi perpétua sibíque succedéntia mala sunt, innúmeros ex omni parte dolóres afferéntia, Paulus dixit fíeri posse, ut semper gaudeámus, si quis páululum ex rerum mundanárum flúctibus eréxerit caput vitámque suam recte composúerit; multo magis, postquam hinc demigravérimus, fácile cómpotes érimus ejus boni, cum hæc ómnia subláta fúerint, advérsa valetúdo, morbi, peccándi matéria; ubi non est meum ac tuum, frígidum illud verbum, et quidquid est malórum in vitam nostram ínvehens, innúmeraque gignens bella.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+**Bened.** Ignem sui amóris.
+
+#### Lectio vi
+
+QUAM ob rem maximópere grátulor hujus Sancti felicitáti, quod, quamquam translátus est atque hanc, quæ apud nos est, civitátem relíquit, tamen in álteram adscríptus est civitátem, nempe Dei. Et, digréssus ab hac Ecclésia, ad illam pervénit, quæ est primogenitórum descriptórum in cælis; ac, relíctis hisce festis, tránsiit ad celebritátem Angelórum. Etenim, quod et cívitas sursum sit, et Ecclésia, et celébritas, audi Paulum dicéntem: Accessístis ad civitátem Dei vivéntis, Jerúsalem cæléstem, et Ecclésiam primitivórum, qui conscrípti sunt in cælis, et ad multórum míllium Angelórum frequéntiam.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+### In III Nocturno
+
+℣. Lex Dei ejus in corde ipsíus. ℟. Et non supplantabúntur gressus ejus.
+
+**Absolutio.** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 12, 35-40*
+
+IN illo témpore: Dixit Jesus discípulis suis: Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris. Et réliqua.

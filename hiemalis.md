@@ -35642,4 +35642,50 @@ HANC confessiónem portæ ínferi non tenébunt, mortis víncula non ligábunt; 
 
 {RUBRIC: Capit.} *Eccli. 44, 16-17*
 
-ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est
+ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+#### Hymnus
+
+BEÁTE pastor Petre, clemens áccipe
+Voces precántum, criminúmque víncula
+Verbo resólve, cui potéstas trádita
+Aperíre terris cælum, apértum cláudere.
+
+Sit Trinitáti sempitérna glória,
+Honor, potéstas atque jubilátio,
+In unitáte, quæ gubérnat ómnia,
+Per univérsa æternitátis sǽcula. Amen.
+
+℣. Exáltent eum in ecclésia plebis. ℟. Et in cáthedra seniórum laudent eum.
+
+**Ad Bened. Ant.** Quodcúmque \* ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis: dicit Dóminus Simóni Petro.
+
+#### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commem. S. Pauli Apóstoli:}
+
+**Ant.** Sancte Paule Apóstole, prædicátor veritátis et Doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+#### Oratio
+
+DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. (Per Dóminum.)
+
+{RUBRIC: Deinde, in Quadrag., Commemoratio Fériæ.}
+
+### In II Vesperis
+
+#### Hymnus
+
+QUODCÚMQUE in orbe néxibus revínxeris,
+Erit revínctum, Petre, in arce síderum:
+Et quod resólvit hic potéstas trádita,
+Erit solútum cæli in alto vértice:
+In fine mundi judicábis sǽculum.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,

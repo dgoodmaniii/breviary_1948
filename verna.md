@@ -18275,4 +18275,40 @@ SIVE ergo in Lege, sive in Prophétis, sive in Evangélio, quadragenárius núme
 
 #### Lectio iii
 
-MEMENTOTE quod propósuerim númerum trigintaócto annórum in illo lánguido. Volo expónere, quare númerus ille trigésimus et octávus, languóris sit pótius quam sanitátis. Ergo, ut dicébam, cáritas implet Legem: ad plenitúdinem Legis in ómnibus opéribus pértinet quadragenárius númerus. In caritáte autem duo præcépta nobis commendántur: Díliges Dóminum Deum tuum ex toto corde tuo, et ex tota ánima tua, et ex tota mente tua: et díliges próximum tuum sicut teípsum. In his duóbus præcéptis tota Lex pendet, et Prophétæ. Mérito et illa vídua omnes facultátes suas, duo minúta misit in dona Dei:
+MEMENTOTE quod propósuerim númerum trigintaócto annórum in illo lánguido. Volo expónere, quare númerus ille trigésimus et octávus, languóris sit pótius quam sanitátis. Ergo, ut dicébam, cáritas implet Legem: ad plenitúdinem Legis in ómnibus opéribus pértinet quadragenárius númerus. In caritáte autem duo præcépta nobis commendántur: Díliges Dóminum Deum tuum ex toto corde tuo, et ex tota ánima tua, et ex tota mente tua: et díliges próximum tuum sicut teípsum. In his duóbus præcéptis tota Lex pendet, et Prophétæ. Mérito et illa vídua omnes facultátes suas, duo minúta misit in dona Dei: mérito et pro illo lánguido a latrónibus sauciáto stabulárius duos nummos accépit, unde sanarétur: mérito apud Samaritános bíduum fecit Jesus, ut eos caritáte firmáret. Binário ergo isto número cum áliquid boni significátur, máxime bipertíta cáritas commendátur. Si ergo quadragenárius númerus habet perfectiónem Legis, et Lex non implétur nisi in gémino præcépto caritátis: quid miráris, quia languébat, qui ad quadragínta, duo minus habébat?
+
+℟. Paradísi portas apéruit nobis jejúnii tempus: suscipiámus illud orántes, et deprecántes: \* Ut in die resurrectiónis cum Dómino gloriémur. ℣. In ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia. — Ut. Glória Patri. Ut.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Angelus Dómini \* descendébat de cælo, et movebátur aqua, et sanabátur unus.
+
+#### Oratio
+
+ESTO, Dómine, propítius plebi tuæ: et, quam tibi facis esse devótam, benígno réfove miserátus auxílio. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Qui me sanum fecit, \* ille mihi præcépit: Tolle grabátum tuum, et ámbula in pace.
+
+#### Oratio
+
+EXAUDI nos, miséricors Deus: et méntibus nostris grátiæ tuæ lumen osténde. Per Dóminum.
+
+---
+
+## Sabbato Quatuor Temporum
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 17, 1-9*
+
+IN illo témpore: Assúmpsit Jesus Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit illos in montem excélsum seórsum: et transfigurátus est ante eos. Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ}
+
+{RUBRIC: Homilía de Transfigurat. Domini}
+
+EVANGELICA léctio, dilectíssimi, quæ per aures córporis interiórem méntium nostrárum pulsávit audítum, ad magni sacraménti nos intelligéntiam vocat: quam, aspiránte grátia Dei, facílius assequémur, si consideratiónem nostram ad ea, quæ paulo supérius sunt narráta, referámus. Salvátor

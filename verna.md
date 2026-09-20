@@ -13238,6 +13238,8 @@ Quod parásti \* ante fáciem ómnium populórum,
 
 Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
 
+Glória Patri.
+
 **Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace. (T. P. Allelúja.)
 
 ---

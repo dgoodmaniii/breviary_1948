@@ -36928,3 +36928,53 @@ Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes t
 ###### Psalmus 60
 
 EXÁUDI, Deus, deprecatiónem meam: \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi: \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea: \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sécula: \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam: \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in séculum séculi: \* ut reddam vota mea de die in diem.
+
+**Ant.** Dedísti hereditátem timéntibus nomen tuum, Dómine.
+
+**Ant.** Annuntiavérunt \* ópera Dei, et facta ejus intellexérunt.
+
+###### Psalmus 63
+
+EXÁUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Annuntiavérunt ópera Dei, et facta ejus intellexérunt.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.

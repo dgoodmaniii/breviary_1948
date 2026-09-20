@@ -1117,4 +1117,46 @@ Regnans per omne sæculum. Amen.
 
 **Capitulum** *Is. 55, 7*
 
-DERELINQUAT ímpius vi-
+DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus, et ad Deum nostrum, quóniam multus est ad ignoscéndum.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis.
+
+℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+#### Tempore Passionis
+
+{RUBRIC: In Officio dominicali, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali: In omnibus Feriis infra hebdomadam Passionis dicitur sequens}
+
+**Ant.** Pópule meus, \* quid feci tibi, aut quid moléstus fui? Respónde mihi.
+
+{RUBRIC: In Feria II, III et IV Majoris Hebdomadæ Antiphona tertia ex Laudibus Feriæ currentis ut in Proprio de Tempore.}
+
+{RUBRIC: In ipsis autem Feriis, infra utramque hebdomadam, dicitur quotidie sequens}
+
+**Capitulum** *Jer. 17, 18*
+
+CONFUNDANTUR qui me persequúntur, et non confúndar ego: páveant illi, et non páveam ego: induc super eos diem afflictiónis, et dúplici contritióne cóntere eos, Dómine, Deus noster.
+
+{RUBRIC: In Dominicis vero et in ómnibus Fériis, supérius indicátis, dicitur sequens}
+
+℟. br. De ore leónis \* Líbera me, Dómine. De. ℣. Et a córnibus unicórnium humilitátem meam. Líbera. De. ℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+#### Tempore Paschali
+
+{RUBRIC: In Officio dominicali, a Dominica in Albis usque ad Dominicam V post Pascha inclusive, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali: a Feria II post Dominicam in Albis usque ad Vigiliam Ascensionis inclusive dicitur quotidie sequens}
+
+**Capit.** *1 Cor. 15, 20-22*
+
+CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam quidem per hóminem mors, et per hóminem resurréctio mortuórum. Et sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.

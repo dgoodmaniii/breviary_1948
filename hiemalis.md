@@ -34514,4 +34514,60 @@ APOLLÓNIA virgo Alexandrína, sub Décio imperatóre, cum ingravescénte jam æ
 
 ℣. Justum dedúxit.
 
-**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, su-
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+#### Oratio
+
+DEUS, qui beátum Cyríllum Confessórem tuum atque Pontíficem divínæ maternitátis beatíssimæ Vírginis Maríæ assertórem invíctum effecísti: concéde, ipso intercedénte; ut, qui vere eam Genitrícem Dei crédimus, matérna ejúsdem protectióne salvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: Deinde Commem. S. Apollóniæ Virg. et Mart.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+#### Oratio
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Apollóniæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis et, in Quadragésima, Fériæ.}
+
+## Die 10 Februarii
+
+### S. Scholasticæ
+
+{RUBRIC: Vírginis}
+
+{RUBRIC: Duplex} [111]
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+#### Oratio
+
+DEUS, qui ánimam beátæ Vírginis tuæ Scholásticæ ad ostendéndam innocéntiæ viam in colúmbæ spécie cælum penetráre fecísti: da nobis ejus méritis et précibus ita innocénter vívere; ut ætérna mereámur gáudia perveníre. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Cyrílle, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+#### Oratio
+
+DEUS, qui beátum Cyríllum Confessórem tuum atque Pontíficem divínæ maternitátis beatíssimæ Vírginis Maríæ assertórem invíctum effecísti: concéde, ipso intercedénte; ut, qui vere eam Genitrícem Dei crédimus, matérna ejúsdem protectióne salvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Deinde, in Quadragésima, Commemoratio Fériæ.}
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Dialogórum sancti Gregórii Papæ}
+
+#### Lectio iv
+
+*Lib. 2 cap. 33*
+
+SCHOLÁSTICA, venerábilis patris Benedícti soror, omnipoténti Dómino ab ipso infántiæ témpore dedicáta, ad eum semel per annum veníre consuéverat; ad quam vir Dei non longe extra jánuam in possessióne monastérii descendébat. Quadam vero die venit ex more, atque ad eam cum discípulis venerábilis ejus descéndit frater; qui totum diem in Dei láudibus sacrísque collóquiis ducéntes, incumbéntibus jam noctis ténebris, simul accepérunt cibum. Cumque adhuc ad mensam sedérent, et inter sacra collóquia tárdior se hora protráheret, éadem sanctimoniális fémina soror ejus eum rogávit, dicens: Quæso te, ut ista nocte me non déseras, ut usque mane de cæléstis vitæ gáudiis loquámur. Cui ille respóndit: Quid est quod lóqueris, soror? manére extra cellam nulátenus possum. Tanta

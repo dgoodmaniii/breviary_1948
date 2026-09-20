@@ -18466,4 +18466,46 @@ DICENTE Patre: Hic est Fílius meus diléctus, in quo mihi bene complácui, ipsu
 
 #### Lectio ix
 
-HIC est Fílius meus, per quem ómnia facta sunt, et sine quo factum est nihil: qui ómnia quæ fácio, símiliter facit; et quidquid óperor, inseparábiliter mecum atque indifferénter operátur. Hic est Fílius meus, qui eam,
+HIC est Fílius meus, per quem ómnia facta sunt, et sine quo factum est nihil: qui ómnia quæ fácio, símiliter facit; et quidquid óperor, inseparábiliter mecum atque indifferénter operátur. Hic est Fílius meus, qui eam, quam mecum habet æqualitátem, non rapína appétiit, nec usurpatióne præsúmpsit: sed manens in forma glóriæ meæ, ut ad reparándum genus humánum exsequerétur commúne consílium, usque ad formam servílem inclinávit incommutábilem Deitátem. Hunc ergo, in quo mihi per ómnia bene compláceo, et cujus prædicatióne maniféstor, cujus humilitáte clarífícor, incunctánter audíte: quia ipse est véritas et vita, ipse virtus mea atque sapiéntia.
+
+℟. Cum audísset Jacob, quod Esau veníret contra eum, divísit fílios suos et uxóres, dicens: Si percússerit Esau unam turmam, salvábitur áltera. \* Líbera me, Dómine, qui dixísti mihi: \* Multiplicábo semen tuum sicut stellas cæli, et sicut arénam maris, quæ præ multitúdine numerári non potest. ℣. Dómine, qui dixísti mihi, Revértere in terram nativitátis tuæ: Dómine, qui pascis me a juventúte mea. — Líbera. Glória Patri. Multiplicábo.
+
+### Ad Laudes
+
+**Ant. 1** Dómine, \* lábia mea apéries, et os meum annuntiábit laudem tuam.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 53}
+
+**2** Déxtera Dómini \* fecit virtútem: déxtera Dómini exaltávit me.
+
+**3** Factus est \* adjútor meus Deus meus.
+
+**4** Trium puerórum \* cantémus hymnum, quem cantábant in camíno ignis, benedicéntes Dóminum.
+
+**5** Státuit ea \* in ætérnum, et in sæculum sæculi: præcéptum pósuit, et non præteríbit.
+
+**Capitulum** *1 Thess. 4, 1*
+
+FRATRES: Rogámus vos, et obsecrámus in Dómino Jesu: ut, quemádmodum accepístis a nobis, quómodo vos opórteat ambuláre, et placére Deo, sic et ambulétis, ut abundétis magis.
+
+#### Hymnus
+
+O Sol salútis, íntimis,
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ,
+Si virga pœniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.

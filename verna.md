@@ -9066,4 +9066,70 @@ Os tuum abundávit malítia: \* et lingua tua concinnábat dolos.
 
 Sedens advérsus fratrem tuum loquebáris, et advérsus fílium matris tuæ ponébas scándalum: \* hæc fecísti, et tácui.
 
-Existimásti, iníque, quod ero tui símilis: \* árguam
+Existimásti, iníque, quod ero tui símilis: \* árguam te, et státuam contra fáciem tuam.
+
+Intellígite hæc, qui obliviscímini Deum: \* nequándo rápiat, et non sit qui erípiat.
+
+Sacrifícium laudis honorificábit me: \* et illic iter, quo osténdam illi salutáre Dei.
+
+**Ant.** Intellígite, qui obliviscímini Deum.
+
+#### In feriali Officio Quadrages.
+
+℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+#### In feriali Officio Tempore Passionis:
+
+℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+**Absolutio** A vínculis.
+
+#### In Feriis cum Homilia
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+#### In Feriis sine Homilia
+
+**Bened.** 1 Ille nos benedícat. 2 Divínum. 3 Ad societátem.
+
+---
+
+## Ad Laudes I
+
+*In Feriis Temporis Paschalis, atque in Festis extra et intra Tempus Paschale celebrándis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Dóminus regnávit, \* † exsúltet terra. ‡
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 96
+
+DOMINUS regnávit, † exsúltet terra: \* ‡ læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.

@@ -44311,3 +44311,33 @@ DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno gé
 {RUBRIC: Oratio ut supra ad Vésperas.}
 
 {RUBRIC: Commemorátio de Sanctis ut per Annum. [196]}
+
+---
+
+[IMAGE]
+
+*Sancta... et salúbris est cogitátio pro defúnctis exoráre, ut a peccátis solvántur. II Mach. XII 46*
+
+# Officium Defunctorum
+
+{RUBRIC: Dícitur in Choro in die depositiónis et áliis diébus pro témporis opportunitáte et ecclesiárum consuetúdine: Vésperæ post Vésperas diéi; Matutínum cum Láudibus post Laudes diéi, immediáte post ℣. Benedicámus Dómino et Deo grátias. Et non duplicántur Antíphonæ præterquam in die depositiónis, in die post accéptum mortis núntium, et tértio, séptimo, trigésimo, et anniversário, étiam late sumpto; et quóties solémniter celebrátur Offícium. In fine vero ómnium Psalmórum semper dícitur: Réquiem ætérnam \* dona eis, Dómine. Et lux perpétua \* lúceat eis, étiam si pro uno tantum fiat Offícium.}
+
+### Ad Vesperas
+
+{RUBRIC: Quóties Vésperæ vel delatiónem cadáveris ad ecclésiam ac Responsórium Subveníte vel Offícium diéi curréntis immediáte non sequántur, dícitur secréto Pater noster et Ave María; secus absoluté incípitur ab}
+
+**Ant.** Placébo Dómino \* in regióne vivórum.
+
+###### Psalmus 114
+
+DILÉXI, quóniam exáudiet Dóminus \* vocem oratiónis meæ.
+
+Quia inclinávit aurem suam mihi: \* et in diébus meis invocábo.
+
+Circumdedérunt me dolóres mortis: \* et perícula inférni invenérunt me.
+
+Tribulatiónem et dolórem invéni: \* et nomen Dómini invocávi.
+
+O Dómine, líbera ánimam meam: \* miséricors Dóminus, et justus, et Deus noster miserétur.
+
+Custódiens párvulos Dóminus: \* humiliátus sum, et liberávit me.

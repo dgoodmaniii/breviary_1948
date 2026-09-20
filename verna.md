@@ -18412,4 +18412,22 @@ CUI ille respóndit: Nosti quod Esau frater meus homo pilósus sit, et ego lenis
 
 #### Lectio iii
 
-DIXITQUE Isaac: Accéde huc, ut tangam te, fili mi, et probem utrum tu sis fílius meus Esau, an non. Accéssit ille ad patrem, et, palpáto eo, dixit Isaac: Vox quidem, vox Jacob est: sed manus, manus sunt Esau. Et non cognóvit eum, quia pilósæ manus similitúdinem majóris expresserant. Benedícens ergo illi, ait: Tu es fílius meus Esau? Respóndit: Ego sum. At ille: Affer mihi, inquit, cibos de venatióne tua, fili mi, ut benedícat tibi ánima mea.
+DIXITQUE Isaac: Accéde huc, ut tangam te, fili mi, et probem utrum tu sis fílius meus Esau, an non. Accéssit ille ad patrem, et, palpáto eo, dixit Isaac: Vox quidem, vox Jacob est: sed manus, manus sunt Esau. Et non cognóvit eum, quia pilósæ manus similitúdinem majóris expresserant. Benedícens ergo illi, ait: Tu es fílius meus Esau? Respóndit: Ego sum. At ille: Affer mihi, inquit, cibos de venatióne tua, fili mi, ut benedícat tibi ánima mea. Quos cum oblátos comedísset, óbtulit ei étiam vinum. Quo hausto, dixit ad eum: Accéde ad me, et da mihi ósculum, fili mi. Accéssit, et osculátus est eum. Statímque ut sensit vestimentórum illíus fragrántiam, benedícens illi, ait: Ecce odor fílii mei sicut odor agri pleni, cui benedíxit Dóminus. Det tibi Deus de rore cæli, et de pinguédine terræ abundántiam fruménti et vini. Et sérviant tibi pópuli, et adórent te tribus: esto dóminus fratrum tuórum, et incurvéntur ante te fílii matris tuæ. Qui maledíxerit tibi, sit ille maledíctus: et qui benedíxerit tibi, benedictiónibus repleátur.
+
+℟. Det tibi Deus de rore cæli et de pinguédine terræ abundántiam: sérviant tibi tribus et pópuli: \* Esto dóminus fratrum tuórum. ℣. Et incurvéntur ante te fílii matris tuæ. — Esto. Glória Patri. Esto.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro sancti Augustíni Epíscopi contra mendácium}
+
+{RUBRIC: Cap. 10 tom. 4, post initium}
+
+#### Lectio iv
+
+JACOB quod matre fecit auctóre, ut patrem fállere vidérétur, si diligénter et fidéliter attendátur, non est mendácium, sed mystérium. Quæ si mendácia dixérimus, omnes étiam parábolæ ac figúræ significandárum quarumcúmque rerum, quæ non ad proprietátem accipiéndæ sunt, sed in eis áliud ex álio est intelligéndum, dicéntur esse mendácia: quod absit omníno. Nam qui hoc putat, trópicis étiam tam multis locutiónibus ómnibus potest hanc importáre calúmniam: ita ut hæc ipsa, quæ appellátur metáphora, hoc est, de re própria ad rem non própriam verbi alicújus usurpáta translátio, possit ista ratióne mendácium nuncupári.
+
+℟. Dum exíret Jacob de terra sua, vidit glóriam Dei, et ait: Quam terríbilis est locus iste! \* Non est hic áliud, nisi domus Dei et porta cæli. ℣. Vere Deus est in loco isto, et ego nesciébam. — Non.
+
+#### Lectio v
+
+QUÆ significántur enim, útique ipsa dicúntur: putántur autem mendácia, quóniam non ea, quæ vere significántur, dicta intelligúntur; sed ea, quæ falsa sunt, dicta esse credúntur. Hoc ut exémplis fiat plánius, idípsum quod Jacob fecit, atténde. Hædínis

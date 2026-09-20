@@ -35195,3 +35195,54 @@ DEUS, qui per immaculátam Vírginis Concéptiónem dignum Fílio tuo habitácul
 ### In I Vesperis
 
 {RUBRIC: Quando I Vésperæ dicéndæ sint íntegræ vel saltem a Capítulo, Capítulum} Caríssimi, {RUBRIC: de Laudibus} 898; {RUBRIC: Hymnus} Matris sub almæ, {RUBRIC: e II Vésperis} 900; {RUBRIC: Versus et réliqua ut infra.}
+
+**Ant.** Non recédat laus tua, Virgo María, de ore hóminum, qui mémores fúerint virtútis Dómini in ætérnum, pro quibus non pepercísti ánimæ tuæ.
+
+℣. Hi viri misericórdiæ sunt, quorum pietátes non defuérunt. ℟. Semen eórum et glória eórum non derelinquétur.
+
+#### Oratio
+
+DÓMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitrícis tuæ, per septem beátos Patres nova Servórum ejus família Ecclésiam tuam fœcundásti: concéde propítius; ita nos eórum consociári flétibus, ut perfruámur et gáudiis. (Qui vivis.)
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+### Ad Matutinum
+
+**Invit.** Regem Confessórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+BELLA dum late fúrerent, et urbes
+Cæde fratérna gémerent cruéntæ,
+Adfuit Virgo, nova semper edens
+    Múnera Matris.
+
+En vocat septem fámulos, fidéles
+Ut sibi in luctu récolant dolóres,
+Quos tulit Jesus, tulit ipsa consors
+    Sub cruce Nati.
+
+Illico parent Dóminæ vocánti:
+Spléndidis tectis opibúsque spretis,
+Urbe secédunt procul in Senári
+    Abdita montis.
+
+Córpora hic pœnis crúciant acérbis,
+Sóntium labes hóminum piántes;
+Hic prece avértunt lacrimísque fusis
+    Núminis iram.
+
+Pérdolens Mater fovet, atque amíctum
+Ipsa lugúbrem monet induéndum:
+Agminis sancti pia cœpta surgunt,
+    Mira patéscunt.
+
+Palmes in bruma víridans honóres
+Núntiat patrum: próprios Maríæ
+Ore lacténti vocítant puélli
+    Nómine Servos.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus
+Spíritus semper, Deus unus omni
+    Témporis ævo. Amen.

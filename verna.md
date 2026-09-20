@@ -13082,3 +13082,65 @@ In sempitérna sæcula. Amen.
 {RUBRIC: Antiphona ad Magnificat ut in Proprio de Tempore.}
 
 {RUBRIC: Reliqua ut in Ordinario. 33}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Adjútor meus.
+
+### Tempore Paschali
+
+**Ant.** Allelúja.
+
+###### Psalmus 69
+
+DEUS, in adjutórium meum inténde: \* Dómine, ad adjuvándum me festína.
+
+Confundántur et revereántur, \* qui quærunt ánimam meam.
+
+Avertántur retrórsum, et erubéscant, \* qui volunt mihi mala.
+
+Avertántur statim erubescéntes, \* qui dicunt mihi: Euge, euge.
+
+Exsúltent et læténtur in te omnes qui quærunt te, \* et dicant semper: Magnificétur Dóminus: qui díligunt salutáre tuum.
+
+Ego vero egénus, et pauper sum: \* Deus, ádjuva me.
+
+Adjútor meus, et liberátor meus es tu: \* Dómine, ne moréris.
+
+###### Psalmus 70, i
+
+IN te, Dómine, sperávi, non confúndar in ætérnum: \* in justítia tua líbera me, et éripe me.
+
+Inclína ad me aurem tuam, \* et salva me.
+
+Esto mihi in Deum protectórem, et in locum munítum: \* ut salvum me fácias.
+
+Quóniam firmaméntum meum, \* et refúgium meum es tu.
+
+Deus meus, éripe me de manu peccatóris, \* et de manu contra legem agéntis et iníqui:
+
+Quóniam tu es patiéntia mea, Dómine: \* Dómine, spes mea a juventúte mea.
+
+In te confirmátus sum ex útero: \* de ventre matris meæ tu es protéctor meus.

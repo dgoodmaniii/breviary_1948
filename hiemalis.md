@@ -46982,3 +46982,59 @@ Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
 Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
 
 O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+Glória Patri.
+
+###### Psalmus 129
+
+DE profúndis clamávi ad te, Dómine: \* Dómine, exáudi vocem meam:
+
+Fiant aures tuæ inténdentes, \* in vocem deprecatiónis meæ.
+
+Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
+
+Quia apud te propitiátio est: \* et propter legem tuam sustínui te, Dómine.
+
+Sustínuit ánima mea in verbo ejus: \* sperávit ánima mea in Dómino.
+
+A custódia matutína usque ad noctem: \* speret Israël in Dómino.
+
+Quia apud Dóminum misericórdia: \* et copiósa apud eum redémptio.
+
+Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
+
+Glória Patri.
+
+{RUBRIC: Deinde repétitur:}
+
+**Ant.** Ne reminiscáris, Dómine, delícta nostra vel paréntum nostrórum, neque vindíctam sumas de peccátis nostris.
+
+{RUBRIC: Postea Sacérdos dicit:}
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster.
+
+℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi.
+
+℣. Convértere, Dómine, aliquántulum. ℟. Et deprecáre super servos tuos.
+
+℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te.
+
+℣. Sacerdótes tui induántur justítiam. ℟. Et Sancti tui exsúltent.
+
+℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+AURES tuæ pietátis, mitíssime Deus, inclína précibus nostris, et grátia Sancti Spíritus illúmina cor nostrum: ut tuis mystériis digne ministráre, teque ætérna caritáte dilígere mereámur.

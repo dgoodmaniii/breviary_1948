@@ -38895,4 +38895,52 @@ DEUS, qui nos ánnua sanctórum Mártyrum tuórum N. et N. solemnitáte lætífi
 
 {RUBRIC: Capitulum Justórum, ut supra.}
 
-℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde.
+℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde. Et exsultáte. Glória Patri. Lætámini.
+
+℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Sap. 10, 17*
+
+REDDIDIT Deus mercédem labórum sanctórum suórum, et dedúxit illos in via mirábili: et fuit illis in velaménto diéi, et in luce stellárum nocte.
+
+℟. br. Exsúltent justi \* In conspéctu Dei. Exsúltent. ℣. Et delecténtur in lætítia. In. Glória Patri. Exsúltent. ℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Sap. 3, 7-8*
+
+FULGÉBUNT justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt natiónes, et dominabúntur pópulis: et regnábit Dóminus illórum in perpétuum.
+
+℟. br. Justi autem \* In perpétuum vivent. Justi. ℣. Et apud Dóminum est merces eórum. In. Glória Patri. Justi. ℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+### In II Vesperis
+
+{RUBRIC: Psalmi ut in I Vésperis de Communi Apostolórum [3], sed loco últimi Ps. 115 Crédidi, ut infra.}
+
+**1** Isti sunt Sancti, \* qui pro testaménto Dei sua córpora tradidérunt, et in sánguine Agni lavérunt stolas suas.
+
+**2** Sancti per fidem \* vicérunt regna, operáti sunt justítiam, adépti sunt promissiónes.
+
+**3** Sanctórum velut áquilæ \* juvéntus renovábitur: florébunt sicut lílium in civitáte Dómini.
+
+**4** Abstérget Deus \* omnem lácrimam ab óculis Sanctórum: et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor: quóniam prióra transiérunt.
+
+**5** In cæléstibus regnis \* Sanctórum habitátio est, et in ætérnum réquies eórum.
+
+###### Psalmus 115
+
+CRÉDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspé-

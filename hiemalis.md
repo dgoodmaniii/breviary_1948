@@ -40445,4 +40445,18 @@ IN illo témpore: Dixit Jesus discípulis suis: Nolíte timére, pusíllus grex,
 
 {RUBRIC: Liber 4 cap. 54 in Luc. 12}
 
-PUSÍLLUM gregem electórum, vel ob comparatiónem majóris número reprobórum, vel
+PUSÍLLUM gregem electórum, vel ob comparatiónem majóris número reprobórum, vel pótius ob humilitátis devotiónem nóminat; quia vidélicet Ecclésiam suam, quantálibet numerositáte jam dilatátam, tamen usque ad finem mundi humilitáte vult créscere, et ad promíssum regnum humilitáte perveníre. Ideóque ejus labóres blande consolátus, quam regnum Dei tantum quǽrere prǽcipit, eídem regnum a Patre dandum complácita benignitáte promíttit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+VENDITE quæ possidétis, et date eleemósynam. Nolíte, inquit, timére, ne propter regnum Dei militántibus, hujus vitæ necessária desint; quin étiam posséssa propter eleemósynam véndite. Quod tunc digne fit, quando quis, semel pro Dómino suis ómnibus sprétis, nihilóminus post hæc labóre mánuum, unde et victum transígere et eleemósynam dare queat, operátur. Unde gloriátur Apóstolus, dicens: Argéntum aut aurum aut vestem nullíus concupívi; ipsi scitis quóniam ad ea quæ mihi opus erant, et his qui mecum sunt, ministravérunt manus istæ. Omnia osténdi vobis, quóniam sic laborántes opórtet suscípere infírmos.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et vos símiles. Glória Patri. Et.
+
+#### Lectio ix
+
+FACITE vobis sácculos, qui non veteráscunt; eleemósynas vidélicet operándo, quarum merces in ætérnum máneat. Ubi non hoc præcéptum esse putándum est, ut nil pecúniæ reservétur a sanctis, vel suis scílicet vel páuperum úsibus suggeréndæ; cum et ipse Dóminus, cui ministrábant Angeli, tamen ad informándam Ecclésiam suam lóculos habuísse legátur, et a fidélibus obláta consérvans, et suórum necessitátibus aliísque indigéntibus tríbuens; sed, ne Deo propter ista serviátur, et ob inópiæ timórem justítia deserátur.
+
+{RUBRIC: Te Deum.}

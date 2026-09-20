@@ -38613,3 +38613,65 @@ Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
 Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
 
 Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prœlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Sancti, qui sperant in Dómino, habébunt fortitúdinem, assúment pennas ut áquilæ, volábunt, et non defícient.
+
+℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 47 de Sanctis}
+
+#### Lectio iv
+
+QUOTIESCÚMQUE, fratres caríssimi, sanctórum Mártyrum solémnia celebrámus, ita, in Evangélio: Si mundus vos odit, scitóte, quia me priórem vobis ódio hábuit. Recúsat esse in córpore, qui ódium non vult sustinére cum cápite.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+**Benedictio.** Ignem sui amóris.
+
+#### Lectio vi
+
+SED dicit áliquis: Et quis est qui possit beatórum Mártyrum vestígia sequi? Huic ego respóndeo, quia non solum Mártyres, sed étiam ipsum Dóminum cum ipsíus adjutório, si vólumus, póssumus imitári. Audi non me, sed ipsum Dóminum géneri humáno clamántem: Díscite a me, quia mitis sum et húmilis corde. Audi et Petrum Apóstolum admonéntem: Christus passus est pro nobis, relínquens nobis exémplum, ut sequámur vestígia ejus.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum: \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+### In III Nocturno
+
+**Ant.** Justi autem \* in perpétuum vivent, et apud Dóminum est merces eórum.
+
+###### Psalmus 32
+
+EXSULTÁTE, justi, in Dómino: \* rectos decet collaudátio.
+
+Confitémini Dómino in cíthara: \* in psaltério decem chordárum psállite illi.
+
+Cantáte ei cánticum novum: \* bene psállite ei in vociferatióne.
+
+Quia rectum est verbum Dómini, \* et ómnia ópera ejus in fide.
+
+Díligit misericórdiam et judícium: \* misericórdia Dómini plena est terra.
+
+Verbo Dómini cæli firmáti sunt: \* et spíritu oris ejus omnis virtus eórum.
+
+Cóngregans sicut in utre aquas maris: \* ponens in thesáuris abýssos.
+
+Tímeat Dóminum omnis terra: \* ab eo autem commoveántur omnes inhabitántes orbem.
+
+Quóniam ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.

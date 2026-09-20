@@ -10861,4 +10861,63 @@ Quóniam tu, Deus meus, exaudísti oratiónem meam: \* dedísti hereditátem tim
 
 Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et generatiónis.
 
-Pérmanet in ætérnum in conspéctu Dei: \* miseri-
+Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in sæculum sæculi: \* ut reddam vota mea de die in diem.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Immíttet Angelus Dómini in circúitu timéntium eum: et erípiet eos.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+#### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+{RUBRIC: In feriali Officio Tempore Passionis omittitur Glória Patri.}
+
+#### Tempore Paschali
+
+℟. br. In manus tuas, Dómine, comméndo spíritum meum, \* Allelúja, allelúja. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Allelúja, allelúja. Glória Patri. In manus. ℣. Custódi nos, Dómine, ut pupíllam óculi, allelúja. ℟. Sub umbra alárum tuárum prótege nos, allelúja.
+
+**Ant.** Salva nos.
+
+## Canticum Simeonis
+
+###### Luc. 2, 29-32
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace. (T. P. Allelúja.)

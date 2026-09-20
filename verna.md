@@ -18691,4 +18691,34 @@ HÆC ígitur, stúdio matérnæ sedulitátis indulgéntior, obsecrábat Salvató
 
 #### Lectio iii
 
-CONSIDERABAT Christus matris dilectiónem, quæ filiórum mercéde
+CONSIDERABAT Christus matris dilectiónem, quæ filiórum mercéde grandǽvam solabátur senéctam: et desidériis licet fessa matérnis, carissimórum pígnorum tolerábat abséntiam. Consideráte étiam féminam, hoc est, sexum fragiliórem, quem Dóminus própria nondum confirmáverat passióne. Consideráte, inquam, Hevæ illíus primæ mulíeris herédem, transfúsa in omnes immoderátæ cupiditátis successióne labéntem: quam Dóminus adhuc próprio sánguine non redémerat, nondum inólitam afféctibus ómnium immódici contra fas honóris appeténtiam suo Christus cruóre dilúerat. Hereditário ígitur múlier delinquébat erróre.
+
+℟. Cum audísset Jacob quod Esau veníret contra eum, divísit fílios suos et uxóres, dicens: Si percússerit Esau unam turmam, salvábitur áltera. \* Líbera me, Dómine, qui dixísti mihi: \* Multiplicábo semen tuum sicut stellas cæli, et sicut arénam maris, quæ præ multitúdine numerári non potest. ℣. Dómine, qui dixísti mihi, Revértere in terram nativitátis tuæ: Dómine, qui pascis me a juventúte mea. — Líbera. Glória Patri. Multiplicábo.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Ecce ascéndimus \* Jerosólymam: et Fílius hóminis tradétur ad crucifigéndum.
+
+#### Oratio
+
+POPULUM tuum, quæsumus, Dómine, propítius réspice: et quos ab escis carnálibus præcipis abstinére, a nóxiis quoque vítiis cessáre concéde. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Tradétur enim Géntibus \* ad illudéndum, et flagellándum, et crucifigéndum.
+
+#### Oratio
+
+DEUS, innocéntiæ restitútor et amátor, dírige ad te tuórum corda servórum: ut, spíritus tui fervóre concépto, et in fide inveniántur stábiles, et in ópere efficáces. Per Dóminum.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 16, 19-31*
+
+IN illo témpore: Dixit Jesus pharisǽis: Homo quidam erat dives, qui induebátur púrpura et bysso: et epulabátur quotídie spléndide. Et réliqua.

@@ -35858,4 +35858,40 @@ MAGNUS esse vis? a mínimo íncipe. Cógitas magnam fábricam constrúere celsit
 
 #### Lectio ix
 
-QUOD est fastígium construéndæ fábricæ, quam molímur? quo perventúrum est cacúmen ædifícii? Cito dico, usque ad conspéctum Dei. Vidétis quam excélsum est,
+QUOD est fastígium construéndæ fábricæ, quam molímur? quo perventúrum est cacúmen ædifícii? Cito dico, usque ad conspéctum Dei. Vidétis quam excélsum est, quanta res est conspícere Deum. Qui desíderat, et quod dico et quod audit intélligit. Promíttitur nobis conspéctus Dei, veri Dei, summi Dei. Hoc enim bonum est, vidéntem vidére. Nam, qui colunt falsos deos, fácile illos vident; sed eos vident, qui óculos habent et non vident. Nobis autem promíttitur vísio Dei vivéntis et vidéntis.
+
+{RUBRIC: Te Deum laudámus.}
+
+#### Oratio
+
+DEUS, qui beátum Matthíam Apostolórum tuórum collégio sociásti: tríbue, quǽsumus; ut ejus interventióne, tuæ circa nos pietátis semper víscera sentiámus. Per Dóminum.
+
+---
+
+## Die 27 vel 28 Februarii
+
+### S. Gabrielis a Virgine Perdolente
+
+{RUBRIC: Confessoris}
+
+{RUBRIC: Duplex} [94]
+
+### In I Vesperis
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+#### Oratio
+
+DEUS, qui beátum Gabriélem dulcíssimæ Matris tuæ dolóres assídue recólere docuísti, ac per illam sanctitátis et miraculórum glória sublimásti: da nobis, ejus intercessióne et exémplo, ita Genitrícis tuæ consociári flétibus; ut matérna ejúsdem protectióne salvémur: Qui vivis.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Justus si morte,} 2 loco. [102]
+
+### In II Nocturno
+
+#### Lectio iv
+
+GABRIEL, Assísii in Úmbria, honésto génere natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem a púero osténdit. Adoléscens, cum Spoléti lítteris óperam daret, ináni sæculi spécie et pompa aliquántulum állici visus est. Sed miseréntis Dei múnere, qui eum ad perfectiónem christiánæ vitæ jamdúdum invitábat, cum in morbum incidísset, sæculi vanitátem fastidíre cœpit, atque immortália dumtáxat bona appétere. Quo autem cítius Deo vocánti obtemperáret, factum est, ut insígnem illam beatíssimæ Vírginis Icónem, solémni pompa extra Spoletínæ ecclésiæ septa delátam intúitus, divíni amó-

@@ -46491,3 +46491,33 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 ℣. Salvos fac servos tuos. ℟. Deus meus, sperántes in te.
 
 ℣. Mitte nobis, Dómine, auxílium de sancto. ℟. Et de Sion tuére nos.
+
+℣. Esto nobis, Dómine, turris fortitúdinis. ℟. A fácie inimíci.
+
+℣. Nihil profíciat inimícus in nobis. ℟. Et fílius iniquitátis non appónat nocére nobis.
+
+℣. Benedíctus Dóminus die quotídie. ℟. Próspérum iter fáciat nobis Deus salutárium nostrórum.
+
+℣. Vias tuas, Dómine, demónstra nobis. ℟. Et sémitas tuas édoce nos.
+
+℣. Utinam dirigántur viæ nostræ. ℟. Ad custodiéndas justificatiónes tuas.
+
+℣. Erunt prava in dirécta. ℟. Et áspera in vias planas.
+
+℣. Ángelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+DEUS, qui fílios Israël per maris médium sicco vestígio ire fecísti, quique tribus Magis iter ad te stella duce pandísti: tríbue nobis, quæsumus, iter prósperum tempúsque tranquíllum; ut, Ángelo tuo sancto cómite, ad eum quo pérgimus locum, ac demum ad ætérnæ salútis portum perveníre felíciter valeámus.
+
+DEUS, qui Abraham púerum tuum, de Ur Chaldæórum edúctum, per omnes suæ peregrinatiónis vias illæsum custodísti; quæsumus, ut nos fámulos tuos custodíre dignéris: esto nobis, Dómine, in procínctu suffrágium, in via solátium, in æstu umbráculum, in plúvia et frígore tegméntum, in lassitúdine vehículum, in adversitáte præsídium, in lúbrico báculus, in naufrágio portus; ut, te duce, quo téndimus, próspere perveniámus, et demum incólumes ad própria redeámus.
+
+ADESTO, quæsumus, Dómine, supplicatiónibus nostris: et viam famulórum tuórum in salútis tuæ prosperitáte dispóne; ut inter omnes viæ et vitæ hujus varietátes tuo semper protegámur auxílio.
+
+PRÆSTA, quæsumus, omnípotens Deus: ut família tua per viam salútis incédat; et, beáti Joánnis Præcursóris hortaménta sectándo, ad eum, quem prædíxit, secúra pervéniat, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
+
+℣. Procedámus in pace. ℟. In nómine Dómini. Amen.

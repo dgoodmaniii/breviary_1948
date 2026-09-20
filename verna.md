@@ -1392,4 +1392,70 @@ Largíris, adde præmium. Amen.
 
 #### Tempore Paschali
 
-{RUBRIC: In Officio dominicali a Dominica in Albis usque ad Do-
+{RUBRIC: In Officio dominicali a Dominica in Albis usque ad Dominicam V post Pascha inclusive, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali a Feria II post Dominicam in Albis usque ad Feriam III Rogationum inclusive dicitur quotidie sequens}
+
+**Capitulum** *Rom. 6, 9-10*
+
+CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens Hymnus et Versus:}
+
+#### Hymnus
+
+AD régias Agni dapes,
+Stolis amícti cándidis,
+Post tránsitum Maris Rubri,
+Christo canámus Príncipi:
+
+Divína cujus cáritas
+Sacrum propínat sánguinem,
+Almíque membra córporis
+Amor sacérdos immolat.
+
+Sparsum cruórem póstibus
+Vastátor horret Angelus:
+Fugítque divísum mare;
+Mergúntur hostes flúctibus.
+
+Jam Pascha nostrum Christus est,
+Paschális idem víctima,
+Et pura puris méntibus
+Sinceritátis ázyma.
+
+O vera cæli víctima,
+Subjécta cui sunt tártara,
+Solúta mortis víncula,
+Recépta vitæ præmia.
+
+Victor, subáctis ínferis,
+Trophæa Christus éxplicat;
+Cælóque apérto, súbditum
+Regem tenebrárum trahit.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum,
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Recitato Versu, dicitur cum Antiphona convenienti sequens}
+
+##### Canticum beatæ Mariæ Virginis
+
+*Luc. 1, 46-55*
+
+MAGNIFICAT † ánima mea Dóminum:
+
+Et exsultávit spíritus meus \* in Deo, salutári meo.
+
+Quia respéxit humilitátem ancíllæ suæ: \* ecce enim, ex hoc beátam me dicent omnes generatiónes.
+
+Quia fecit mihi magna qui potens est: \* et sanctum nomen ejus.

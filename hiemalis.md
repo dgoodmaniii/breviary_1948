@@ -35045,4 +35045,57 @@ QUID dicébas, o Adam? Múlier quam dedísti mihi, dedit mihi de ligno, et comé
 
 #### Lectio ix
 
-QUAM tibi áliam prædixísse Deus vidétur, quando ad serpéntem ait: Inimicítias ponam inter te et mulíerem? Et si adhuc dúbitas quod de María díxerit, audi quod séquitur: Ipsa cónteret caput tuum. Cui hæc serváta victória est, nisi Maríæ? Ipsa procul dúbio caput contrívit venenátum, quæ omnímodam malígni suggestiónem tam de carnis illécebra, quam de mentis
+QUAM tibi áliam prædixísse Deus vidétur, quando ad serpéntem ait: Inimicítias ponam inter te et mulíerem? Et si adhuc dúbitas quod de María díxerit, audi quod séquitur: Ipsa cónteret caput tuum. Cui hæc serváta victória est, nisi Maríæ? Ipsa procul dúbio caput contrívit venenátum, quæ omnímodam malígni suggestiónem tam de carnis illécebra, quam de mentis supérbia dedúxit ad níhilum. Quam vero áliam Sálomon requirébat, cum dicébat: Múlierem fortem quis invéniet? Nóverat quippe vir sápiens hujus sexus infirmitátem, frágile corpus, lúbricam mentem. Quia tamen et Deum légerat promisísse, et ita vidébat congrúere, ut qui vícerat per féminam, vincerétur per ipsam, veheménter admírans ajébat: Múlierem fortem quis invéniet? Quod est dícere: Si ita de manu féminæ pendet et nostra ómnium salus, et innocéntiæ restitútio, et de hoste victória; fortis omníno necésse est ut provideátur, quæ ad tantum opus possit esse idónea.
+
+{RUBRIC: Te Deum.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas}
+
+{RUBRIC: 1} Candor est \* lucis ætérnæ, et spéculum sine mácula.
+
+{RUBRIC: 2} Múlier \* amícta sole, et luna sub pédibus ejus, et in cápite ejus coróna stellárum duódecim.
+
+{RUBRIC: 3} Tu glória Jerúsalem, \* tu lætítia Israël, tu honorificéntia pópuli nostri.
+
+{RUBRIC: 4} Benedícta es tu, \* Virgo María, a Dómino Deo excélso, præ ómnibus muliéribus super terram.
+
+{RUBRIC: 5} Hódie nomen tuum \* ita magnificávit Dóminus, ut non recédat laus tua de ore hóminum.
+
+{RUBRIC: Capitulum} *Cant. 2, 13-14*
+
+SURGE, amíca mea, speciósa mea, et veni, colúmba mea, in foramínibus petræ, in cavérna macériæ, osténde mihi fáciem tuam, sonet vox tua in áuribus meis.
+
+#### Hymnus
+
+AURÓRA soli prǽvia,
+Felix salútis núntia,
+In noctis umbra plebs tua
+Te, Virgo, supplex ínvocat.
+
+Torrens nefástis flúctibus
+Cunctos trahens vorágine,
+Leni resídit ǽquore,
+Cum transit Arca fœderis.
+
+Dum torret aréscens humus,
+Tu rore sola spárgeris;
+Tellúre circum rórida,
+Intácta sola pérmanes.
+
+Fatále virus évomens
+Attóllit anguis vérticem;
+At tu dracónis túrgidum
+Invícta cónteris caput.
+
+Mater benígna, réspice
+Fletus precésque súpplicum,
+Et dimicántes, tártari
+Victrix, tuére ab hóstibus.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.

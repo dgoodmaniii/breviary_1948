@@ -43762,3 +43762,37 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
 
 {RUBRIC: Post Nonam terminátur Officium sanctæ Mariæ in Sábbato.}
+
+---
+
+## Lectiones pro Officio Sanctæ Mariæ in Sabbato
+
+{RUBRIC: Lectiónes sequéntes dicúntur síngulis ménsibus in Offício sanctæ Maríæ in Sábbato, órdine subscrípto:}
+
+### Mense Januario
+
+{RUBRIC: Ex Epístola sancti Ambrósii Epíscopi ad Sirícium Papam}
+
+{RUBRIC: Epist. 81, alias 7, post inítium}
+
+#### Lectio iii
+
+DE via perversitátis prodúntur dícere: Virgo concépit, sed non virgo generávit. Pótuit ergo virgo concípere, non pótuit virgo generáre, cum semper concéptus præcédat, partus sequátur? Sed si doctrínis non créditur sacerdótum, credátur oráculis Christi; credátur mónitis Angelórum dicéntium: Quia non est impossíbile Deo omne verbum; credátur Sýmbolo Apostolórum, quod Ecclésia Romána intemerátum semper custódit et servat. Audívit María vocem Angeli, et, quæ ante díxerat: Quómodo fiet istud? non de fide generatiónis intérrogans, respóndit póstea: Ecce ancílla Dómini, contíngat mihi secúndum verbum tuum.
+
+Te Deum laudámus.
+
+---
+
+### Mense Februario
+
+{RUBRIC: Ex libro sancti Hierónymi Presbýteri advérsus Joviniánum}
+
+{RUBRIC: Apología ad Pammách. pro lib. advérsus Joviniánum, in fine}
+
+#### Lectio iii
+
+CHRISTUS virgo, Mater vírginis nostri virgo perpétua, mater et virgo. Jesus enim clausis ingréssus est óstiis; et in sepúlcro ejus, quod novum et in petra duríssima fúerat excísum, nec ántea quis nec póstea pósitus est. Hortus conclúsus, fons signátus. De quo fonte ille flúvius manat, juxta Joël, qui írrigat torréntem vel fúnium vel spinárum: fúnium, peccatórum, quibus ante alligabámur; spinárum, quæ suffócant seméntem patrisfamílias. Hæc est porta orientális, ut ait Ezéchiel, semper clausa et lúcida, opériens in se vel ex se próferens Sancta sanctórum; per quam Sol justítiæ et Póntifex noster secúndum órdinem Melchísedech ingréditur et egréditur.
+
+Te Deum laudámus.
+
+---

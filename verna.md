@@ -2871,4 +2871,60 @@ SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereá
 
 Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 
-Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos, et opus mánuum nostrárum dírige. ℣. Glória Patri. ℟. Sicut erat.
+
+Orémus. **Oratio**
+
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+℣. Jube, domne, benedícere. **Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+#### Tempore Quadragesimæ
+
+QUÆRITE Dóminum, dum inveníri potest: invocáte eum, dum prope est. Tu autem.
+
+#### Tempore Passionis
+
+FACIEM meam non avérti ab increpántibus, et conspuéntibus in me. Dóminus Deus auxiliátor meus, et ídeo non sum confúsus. Tu autem.
+
+#### Tempore Paschali
+
+SI consurrexístis cum Christo, quæ sursum sunt quærite, ubi Christus est in déxtera Dei sedens: quæ sursum sunt sápite, non quæ super terram.
+
+##### E Proprio de Tempore
+
+{RUBRIC: In Paschate et per Octavam:} Si consurrexístis, ut supra Tempore Paschali.
+
+**In Ascensione Domini et per Octavam**
+
+VIRI Galilǽi, quid statis aspiciéntes in cælum? Hic Jesus, qui assúmptus est a vobis in cælum, sic véniet, quemádmodum vidístis eum eúntem in cælum.
+
+**Dom. infra Oct. Ascens., Feria VI post Octavam et in Vigilia Pentecostes**
+
+SI quis lóquitur, quasi sermónes Dei; si quis minístrat, tamquam ex virtúte, quam admínistrat Deus: ut in ómnibus honorificétur Deus per Jesum Christum, Dóminum nostrum.
+
+**In Dominica Pentecostes et per Octavam**
+
+JUDÆI quoque et Prosélyti, Cretes et Arabes: audívimus eos loquéntes nostris linguis magnália Dei.
+
+##### E Proprio Sanctorum
+
+**In Apparitione B. M. V.**
+
+IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis implémini.
+
+**S. Joseph 19 Mart.**
+
+PROFUGUM justum dedúxit Sapiéntia per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum: honestávit illum in labóribus, et complévit labóres illíus.
+
+**S. Gabrielis Archangeli**
+
+SCITO ergo et animadvérte: Ab éxitu sermónis, ut íterum ædificétur Jerúsalem, usque ad Christum ducem, hebdómades septem et hebdómades sexagínta duæ erunt.
+
+**In Annuntiatione B. M. V.**
+
+EGREDIETUR virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum Spíritus Dómini.
+
+**Septem Dolorum B. M. V.**
+
+GENERATIONEM ejus quis enarrábit? quia abscíssus est de terra vivéntium: propter scelus pópuli mei percússi eum.

@@ -12771,3 +12771,53 @@ Cum exsúrgeret in judícium Deus, \* ut salvos fáceret omnes mansuétos terræ
 Quóniam cogitátio hóminis confitébitur tibi: \* et relíquiæ cogitatiónis diem festum agent tibi.
 
 Vovéte, et réddite Dómino, Deo vestro: \* omnes, qui in circúitu ejus affértis múnera.
+
+Terríbili et ei qui aufert spíritum príncipum: \* terríbili apud reges terræ.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Invocábimus nomen tuum, Dómine: narrábimus mirabília tua.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Per arma justítiæ virtútis Dei commendémus nosmetípsos in multa patiéntia.
+
+**Capitulum** *Is. 58, 7*
+
+FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nudum, óperi eum, et carnem tuam ne despéxeris.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+### Tempore Passionis
+
+{RUBRIC: Feria V post Dom. Passionis}
+
+**Ant.** Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ?
+
+**Capitulum** *Jer. 18, 20*
+
+RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis.
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+{RUBRIC: Preces feriales, ut supra.}
+
+#### Tempore Paschali
+
+**Capitulum** *1 Petri 3, 18*
+
+CHRISTUS semel pro peccátis nostris mórtuus est, justus pro injústis, ut nos offérret Deo, mortificátus quidem carne, vivificátus autem spíritu.
+
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória

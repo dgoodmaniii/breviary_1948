@@ -14840,3 +14840,49 @@ FUNDAMENTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super óm
 Gloriósa dicta sunt de te, \* cívitas Dei.
 
 Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce, alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Beáti, qui hábitant in domo tua, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos in multa patiéntia, in jejúniis multis, per arma justítiæ.
+
+**Capitulum** *Is. 45, 7*
+
+DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus, et ad Deum nostrum, quóniam multus est ad ignoscéndum.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis. ℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+#### Tempore Paschali
+
+**Capit.** *1 Cor. 15, 20-22*
+
+CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam quidem per hóminem mors, et per hóminem resurréctio mortuórum. Et sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur.
+
+℟. br. Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---

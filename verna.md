@@ -3956,3 +3956,48 @@ Qui, pastor ætérnus, gregem
 Aqua lavas baptísmatis:
 Hæc est lavácrum méntium:
 Hæc est sepúlcrum críminum.
+
+Nobis diu qui débitæ
+Redémptor affíxus cruci,
+Nostræ dedísti pródigus
+Prétium salútis sánguinem.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+### In I Nocturno
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Dóminus de cælo \* prospéxit super fílios hóminum.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+{RUBRIC: Sub una tantum Antiphona Allelúja, in hac et aliis Feriis, dicuntur tres Psalmi in unoquoque Nocturno a Feria II post Dominicam in Albis usque ad Feriam VI post Octavam Ascensionis, si Festum de Sanctis novem Lectionum celebretur; et novem continuatim recitantur Psalmi in unico Nocturno usque ad Vigiliam Ascensionis, si Officium trium Lectionum de Tempore vel de Sanctis agatur.}
+
+{RUBRIC: ¶ Antiphonæ, tam intra quam extra Tempus Paschale appositæ, dicuntur semper in Officio feriali et in Festis sive trium sive novem Lectionum, quando juxta Rubricas sumendi sint Psalmi de Feria, ut in Psalterio; Versus autem, extra Tempus Paschale in singulis Nocturnis assignati, adhibentur etiam in Festis, quæ Tempore Quadragesimæ ac Passionis celebrantur.}
+
+{RUBRIC: In Officio autem trium Lectionum, tam de Tempore quam de Sanctis, omittuntur Versus et reliqua omnia, quæ in Officio novem Lectionum solent recitari in fine I et II Nocturni, et continuantur Psalmi (cum suis Antiphonis extra Tempus Paschale) usque ad Versum III Nocturni.}
+
+###### Psalmus 13
+
+DIXIT insípiens in corde suo: \* Non est Deus.
+
+Corrúpti sunt, et abominábiles facti sunt in stúdiis suis: \* non est qui fáciat bonum, non est usque ad unum.
+
+Dóminus de cælo prospéxit super fílios hóminum, \* ut vídeat si est intélligens, aut requírens Deum.
+
+Omnes declinavérunt, simul inútiles facti sunt: \* non est qui fáciat bonum, non est usque ad unum.
+
+Sepúlcrum patens est guttur eórum: linguis suis dolóse agébant, \* venénum áspidum sub lábiis eórum.
+
+Quorum os maledictióne et amaritúdine plenum

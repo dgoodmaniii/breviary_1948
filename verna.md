@@ -3023,3 +3023,59 @@ Cum Spíritu Paráclito
 Regnans per omne sæculum. Amen.
 
 {RUBRIC: ¶ In Festo et per Octavam Pentecostes, loco præcedentis, dicitur Hymnus} Veni Creátor, {RUBRIC: ut in Proprio de Tempore.}
+
+{RUBRIC: Extra Tempus Paschale: Antiphona ut in Proprio de Tempore.}
+
+#### Tempore Paschali
+
+**Ant.** Allelúja.
+
+###### Psalmus 118, iii
+
+LEGEM pone mihi, Dómine, viam justificatiónum tuárum: \* et exquíram eam semper.
+
+Da mihi intelléctum, et scrutábor legem tuam: \* et custódiam illam in toto corde meo.
+
+Deduc me in sémitam mandatórum tuórum: \* quia ipsam vólui.
+
+Inclína cor meum in testimónia tua: \* et non in avarítiam.
+
+Avérte óculos meos ne vídeant vanitátem: \* in via tua vivífica me.
+
+Státue servo tuo elóquium tuum, \* in timóre tuo.
+
+Amputa oppróbrium meum quod suspicátus sum: \* quia judícia tua jucúnda.
+
+Ecce, concupívi mandáta tua: \* in æquitáte tua vivífica me.
+
+Et véniat super me misericórdia tua, Dómine: \* salutáre tuum secúndum elóquium tuum.
+
+Et respondébo exprobrántibus mihi verbum: \* quia sperávi in sermónibus tuis.
+
+Et ne áuferas de ore meo verbum veritátis usquequáque: \* quia in judíciis tuis supersperávi.
+
+Et custódiam legem tuam semper: \* in sæculum et in sæculum sæculi.
+
+Et ambulábam in latitúdine: \* quia mandáta tua exquisívi.
+
+Et loquébar in testimóniis tuis in conspéctu regum: \* et non confundébar.
+
+Et meditábar in mandátis tuis, \* quæ diléxi.
+
+Et levávi manus meas ad mandáta tua, quæ diléxi: \* et exercébar in justificatiónibus tuis.
+
+###### Psalmus 118, iv
+
+MEMOR esto verbi tui servo tuo, \* in quo mihi spem dedísti.
+
+Hæc me consoláta est in humilitáte mea: \* quia elóquium tuum vivificábit me.
+
+Supérbi iníque agébant usquequáque: \* a lege autem tua non declinávi.
+
+Memor fui judiciórum tuórum a sæculo, Dómine: \* et consolátus sum.
+
+Deféctio ténuit me, \* pro peccatóribus derelinquéntibus legem tuam.
+
+Cantábiles mihi erant justificatiónes tuæ, \* in loco peregrinatiónis meæ.
+
+Memor fui nocte nóminis tui, Dómine: \* et custodívi legem tuam.

@@ -16500,3 +16500,53 @@ Quæsívi resíduum annórum meórum. \* Dixi: Non vidébo Dóminum Deum in terr
 Non aspíciam hóminem ultra, \* et habitatórem quiétis.
 
 Generátio mea abláta est, et convolúta est a me, \* quasi tabernáculum pastórum.
+
+Præcísa est velut a texénte, vita mea: dum adhuc ordírer, succídit me: \* de mane usque ad vésperam fínies me.
+
+Sperábam usque ad mane, \* quasi leo sic contrívit ómnia ossa mea:
+
+De mane usque ad vésperam fínies me: \* sicut pullus hirúndinis sic clamábo, meditábor ut colúmba:
+
+Attenuáti sunt óculi mei, \* suspiciéntes in excélsum:
+
+Dómine, vim pátior, respónde pro me. \* Quid dicam, aut quid respondébit mihi, cum ipse fécerit?
+
+Recogitábo tibi omnes annos meos \* in amaritúdine ánimæ meæ.
+
+Dómine, si sic vívitur, et in tálibus vita spíritus mei, corrípies me, et vivificábis me. \* Ecce, in pace amaritúdo mea amaríssima:
+
+Tu autem eruísti ánimam meam ut non períret: \* projecísti post tergum tuum ómnia peccáta mea.
+
+Quia non inférnus confitébitur tibi, neque mors laudábit te: \* non exspectábunt qui descéndunt in lacum, veritátem tuam.
+
+Vivens vivens ipse confitébitur tibi, sicut et ego hódie: \* pater fíliis notam fáciet veritátem tuam.
+
+Dómine, salvum me fac, \* et psalmos nostros cantábimus cunctis diébus vitæ nostræ in domo Dómini.
+
+{RUBRIC: Glória Patri omittitur.}
+
+**Ant.** A porta ínferi érue, Dómine, ánimam meam.
+
+**Ant.** O vos omnes, \* qui transítis per viam, atténdite et vidéte, si est dolor sicut dolor meus.
+
+---
+
+###### Psalmus 150
+
+LAUDATE † Dóminum in sanctis ejus: \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus: \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ: \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro: \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus: laudáte eum in cýmbalis jubilatiónis: \* omnis spíritus laudet Dóminum.
+
+**Ant.** Laudáte Dóminum secúndum multitúdinem magnitúdinis ejus.
+
+### Sabbato sancto
+
+**Ant.** O vos omnes, qui transítis per viam, atténdite et vidéte, si est dolor sicut dolor meus.
+
+{RUBRIC: Reliqua ut infra in Sabbato sancto.}

@@ -36268,4 +36268,26 @@ IN illo témpore: Accessérunt ad Jesum pharisǽi, et interrogávit eum unus ex 
 
 {RUBRIC: Homilía 72 in Matthǽum}
 
-SADDUCÆIS confúsis, pharisǽi rursus aggrediúntur; cumque quiéscere oportéret, decertáre voluérunt: et legis perítiam profiténtem præmíttunt, non díscere, sed tentáre cupiéntes; ac ita intérrogant: Quodnam primum mandátum in lege sit. Nam cum primum illud sit, Díliges Dóminum Deum tuum: putántes causas sibi allatúrum ad mandátum hoc corrigéndum, áliquid addéndo, quóniam Deum se faciébat, hoc modo intérrogant. Quid ígitur Christus? Ut osténdat idcírco ad hæc eos devenísse, quia nulla in eis esset cáritas, sed invídiæ livóre tabéscerent: Díliges, inquit, Dóminum Deum tuum: hoc primum et magnum mandátum est. Secúndum
+SADDUCÆIS confúsis, pharisǽi rursus aggrediúntur; cumque quiéscere oportéret, decertáre voluérunt: et legis perítiam profiténtem præmíttunt, non díscere, sed tentáre cupiéntes; ac ita intérrogant: Quodnam primum mandátum in lege sit. Nam cum primum illud sit, Díliges Dóminum Deum tuum: putántes causas sibi allatúrum ad mandátum hoc corrigéndum, áliquid addéndo, quóniam Deum se faciébat, hoc modo intérrogant. Quid ígitur Christus? Ut osténdat idcírco ad hæc eos devenísse, quia nulla in eis esset cáritas, sed invídiæ livóre tabéscerent: Díliges, inquit, Dóminum Deum tuum: hoc primum et magnum mandátum est. Secúndum autem símile huic: Díliges próximum tuum sicut teípsum.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+QUAM ob rem símile est huic? Quóniam hoc illud indúcit, et ab illo rursus munítur. Quicúmque enim male agit, ódio habet lucem, et non venit ad lucem. Et rursus: Dixit insípiens in corde suo, Non est Deus. Deínde séquitur: Corrúpti sunt, et abominábiles facti sunt in stúdiis suis. Et íterum: Radix ómnium malórum avarítia est; quam quidam appeténtes, erravérunt a fide. Et, Qui díligit me, mandáta mea servábit: quorum caput et radix est: Díliges Dóminum Deum tuum, et próximum tuum sicut teípsum.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ, alias}
+
+#### Lectio ix
+
+SI ergo dilígere Deum, dilígere próximum est: (nam si díligis me, o Petre, inquit, pasce oves meas) si étiam diléctio próximi facit ut mandáta custódias: mérito ait in his totam legem et prophétas pendére. Et quemádmodum in superióribus, cum de resurrectióne interrogarétur, plus dócuit quam tentántes petébant; sic in hoc loco de primo interrogátus mandáto, secúndum étiam non valde quam primum inférius, sponte áttulit; secúndum enim est primo símile. Ita occúlte insinuávit, ódio illos ad quæréndum incitári. Cáritas enim, inquit, non æmulátur.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.

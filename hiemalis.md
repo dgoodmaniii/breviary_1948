@@ -35894,4 +35894,16 @@ DEUS, qui beátum Gabriélem dulcíssimæ Matris tuæ dolóres assídue recóler
 
 #### Lectio iv
 
-GABRIEL, Assísii in Úmbria, honésto génere natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem a púero osténdit. Adoléscens, cum Spoléti lítteris óperam daret, ináni sæculi spécie et pompa aliquántulum állici visus est. Sed miseréntis Dei múnere, qui eum ad perfectiónem christiánæ vitæ jamdúdum invitábat, cum in morbum incidísset, sæculi vanitátem fastidíre cœpit, atque immortália dumtáxat bona appétere. Quo autem cítius Deo vocánti obtemperáret, factum est, ut insígnem illam beatíssimæ Vírginis Icónem, solémni pompa extra Spoletínæ ecclésiæ septa delátam intúitus, divíni amó-
+GABRIEL, Assísii in Úmbria, honésto génere natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem a púero osténdit. Adoléscens, cum Spoléti lítteris óperam daret, ináni sæculi spécie et pompa aliquántulum állici visus est. Sed miseréntis Dei múnere, qui eum ad perfectiónem christiánæ vitæ jamdúdum invitábat, cum in morbum incidísset, sæculi vanitátem fastidíre cœpit, atque immortália dumtáxat bona appétere. Quo autem cítius Deo vocánti obtemperáret, factum est, ut insígnem illam beatíssimæ Vírginis Icónem, solémni pompa extra Spoletínæ ecclésiæ septa delátam intúitus, divíni amó-ris flammam concíperet, simúlque Institútum Clericórum a Passióne Jesu amplécti statúeret. Itaque non exíguas difficultátes eluctátus, in recéssu Morrovallénsi, lúgubrem vestem lætus índuit, et Gábriel a Vírgine perdolénte máluit appellári; ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+IN tirocínio, cum regulári observántia et ómnium exercitatióne virtútum quotídie magis emineret, brevi eo pervénit, ut absolútæ sanctimóniæ exémplar haberétur non modo a sodálibus, vel provéctis, sed étiam ultra cœnóbii septa, factus bonus odor Christi in omni loco. Domínicæ passiónis cultor assíduus, in ea meditánda dies noctésque insumébat. In divínam Eucharístiam, quæ ejúsdem Passiónis memóriam prodit, incredíbili quodam stúdio ferebátur; qua cum se refíceret, seráphico ardóre flagrábat. Nihil autem insígnius quam ejus erga magnam Dei Paréntem pietas fuit. Ipsam omni obséquii génere percólere consuévit; sed prǽsertim conféctam afflictámque cruciátibus Jesu tam dolénter contemplári, ut vim lacrimárum profúnderet. Pérdolens Virgo quasi tota ei vitæ rátio fuit, adeptǽque ab eo sanctitátis magístra; ita ut inter æquáles una fúerit senténtia, ídeo excitátum Dei fámulum divínitus fuísse, ut cultus Maríæ perdoléntis magnum exémplo ejus cáperet increméntum.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+INTER céteras virtútes christiánam humilitátem et obediéntiam máxime diléxit: nam inter omnes se mínimum exístimans, abjectíssima quæque ministéria domus cúpide affectábat, et antístitum suórum non modo jussa, sed et optáta diligentíssime perficiébat. Idem, refrenátis sénsibus

@@ -38833,3 +38833,66 @@ SED cum tot signa perturbatiónis dicta sint, opórtet, ut eórum consideratión
 {RUBRIC: Psalmi de Dominica.}
 
 **2** Cum palma \* ad regna pervenérunt Sancti, coró-nas decóris meruérunt de manu Dei.
+
+**3** Córpora Sanctórum \* in pace sepúlta sunt: et vivent nómina eórum in ætérnum.
+
+**4** Mártyres Dómini, \* Dóminum benedícite in ætérnum.
+
+**5** Mártyrum chorus, \* laudáte Dóminum de cælis, allelúja.
+
+#### Capitulum
+
+*Sap. 3, 1-3*
+
+JUSTÓRUM ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+#### Hymnus
+
+REX glorióse Mártyrum,
+Coróna confiténtium,
+Qui respuéntes térrea
+Perdúcis ad cæléstia:
+
+Aurem benígnam prótinus
+Inténde nostris vócibus:
+Trophǽa sacra pángimus:
+Ignósce quod delíquimus.
+
+Tu vincis inter Mártyres
+Parcísque Confessóribus:
+Tu vince nostra crímina,
+Largítor indulgéntiæ.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum.
+Amen.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+##### Pro pluribus Martyribus Pontificibus
+
+**1 — Oratio**
+
+BEATÓRUM Mártyrum páritérque Pontíficum N. et N. nos, quǽsumus, Dómine, festa tueántur: et eórum comméndet orátio veneránda. Per Dóminum.
+
+{RUBRIC: Si non fuerint Pontífices}
+
+**2 — Oratio**
+
+DEUS, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+**3 — Alia Oratio**
+
+DEUS, qui nos ánnua sanctórum Mártyrum tuórum N. et N. solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Tertiam
+
+{RUBRIC: Capitulum Justórum, ut supra.}
+
+℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde.

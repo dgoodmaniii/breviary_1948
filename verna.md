@@ -10407,4 +10407,54 @@ In Idumæam exténdam calceaméntum meum: \* mihi alienígenæ súbditi sunt.
 
 Quis dedúcet me in civitátem munítam? \* quis dedúcet me usque in Idumæam?
 
-Nonne tu, Deus, qui repulísti nos, \* et non egre-
+Nonne tu, Deus, qui repulísti nos, \* et non egrediéris, Deus, in virtútibus nostris?
+
+Da nobis auxílium de tribulatióne: \* quia vana salus hóminis.
+
+In Deo faciémus virtútem: \* et ipse ad níhilum dedúcet tribulántes nos.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Deus meus, misericórdia tua prævéniet me.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Per arma justítiæ virtútis Dei commendémus nosmetípsos in multa patiéntia.
+
+**Capitulum** *Is. 58, 7*
+
+FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nudum, óperi eum, et carnem tuam ne despéxeris.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+### Tempore Passionis
+
+{RUBRIC: Feria IV post Dom. Passionis}
+
+**Ant.** Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ?
+
+{RUBRIC: Fer. IV Majoris Hebdomadæ}
+
+**Ant.** Fac, Dómine, judícium injúriam patiéntibus: et vias peccatórum dispérde.
+
+**Capitulum** *Jer. 18, 20*
+
+RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis.
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+{RUBRIC: Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 29}

@@ -35689,3 +35689,41 @@ In fine mundi judicábis sǽculum.
 Patri perénne sit per ævum glória;
 Tibíque laudes concinámus ínclytas,
 Ætérne Nate; sit, supérne Spíritus,
+Honor tibi decúsque: sancta júgiter
+Laudétur omne Trínitas per sǽculum. Amen.
+
+℣. Elégit te Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+**Ad Magnif. Ant.** Dum esset summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+{RUBRIC: Et fit Commem. S. Pauli Ap., ut supra ad Laudes, sequéntis et, in Quadragésima, Fériæ.}
+
+---
+
+## Die 23 Februarii
+
+### S. Petri Damiani
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex} [69]
+
+{RUBRIC: m. t. v., nisi tamen I Vésperas habeat, saltem a Capítulo}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Petre, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Amávit eum Dóminus.
+
+#### Oratio
+
+CONCÉDE nos, quǽsumus, omnípotens Deus: beáti Petri Confessóris tui atque Pontíficis mónita et exémpla sectári; ut per terréstrium rerum contémptum ætérna gáudia consequámur. Per Dóminum.
+
+{RUBRIC: Deinde, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam.} [87]
+
+### In II Nocturno
+
+#### Lectio iv
+
+PETRUS, Ravénnæ honéstis paréntibus natus, adhuc lactens a matre, numerósæ prolis pertǽsa, abjícitur; sed domésticæ mulíeris ópera semivívus excéptus ac recreátus, genitríci ad humanitátis sensum revocátæ rédditur. Utróque orbátus parénte, tamquam vile mancípium sub áspera fratris tutéla duram servitútem exércuit. Religiónis in Deum ac pietátis erga patrem, egrégium tunc spécimen dedit; invéntum síquidem forte nummum, non própriæ inédiæ sublevándæ, sed sacerdóti, qui divínum sacrifícium ad illíus expiatiónem offérret, erogávit. A Damiáno fratre, a quo, uti fertur, cognoméntum accépit, benígne recéptus, ejus cura lítteris erudítur, in quibus brevi tantum profécit, ut magístris admiratióni esset. Cum autem liberálibus sciéntiis floréret et nómine, eas cum laude dócuit. Intérim

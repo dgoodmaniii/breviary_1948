@@ -69,3 +69,72 @@ Quóniam ipsíus est mare, et ipse fecit illud, et áridam fundavérunt manus ej
 Hódie, si vocem ejus audíeritis, nolíte obduráre corda vestra, sicut in exacerbatióne secúndum diem tentatiónis in desérto: ubi tentavérunt me patres vestri, probavérunt et vidérunt ópera mea.
 
 {RUBRIC: Repetitur altera pars Invitatorii.}
+
+Quadragínta annis próximus fui generatióni huic, et dixi: Semper hi errant corde; ipsi vero non cognovérunt vias meas: quibus jurávi in ira mea: Si introíbunt in réquiem meam.
+
+{RUBRIC: Repetitur integrum Invitatorium.}
+
+Glória Patri, et Fílio, et Spirítui Sancto. Sicut erat in princípio, et nunc, et semper, et in sæcula sæculórum. Amen.
+
+{RUBRIC: Repetitur altera pars Invitatorii.}
+
+{RUBRIC: Denique repetitur integrum Invitatorium.}
+
+{RUBRIC: Expleto Psalmo, dicitur Hymnus Invitatorio respondens.}
+
+#### Tempore Quadragesimæ
+
+{RUBRIC: A Dominica I usque ad Sabbatum ante Dominicam Passionis inclusive, tam in dominicali quam in feriali Officio, dicitur quotidie sequens}
+
+**Invitat.** Non sit vobis vanum mane súrgere ante lucem: \* Quia promísit Dóminus corónam vigilántibus. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+EX more docti mýstico
+Servémus hoc jejúnium,
+Deno diérum círculo
+Ducto quater notíssimo.
+
+Lex et prophétæ prímitus
+Hoc prætulérunt, póstmodum
+Christus sacrávit, ómnium
+Rex atque factor témporum.
+
+Utámur ergo párcius
+Verbis, cibis et pótibus,
+Somno, jocis, et árctius
+Perstémus in custódia.
+
+Vitémus autem nóxia,
+Quæ súbruunt mentes vagas:
+Nullúmque demus cállidi
+Hostis locum tyránnidi.
+
+Flectámus iram víndicem,
+Plorémus ante Júdicem,
+Clamémus ore súpplici,
+Dicámus omnes cérnui:
+
+Nostris malis offéndimus
+Tuam, Deus, cleméntiam:
+Effúnde nobis désuper,
+Remíssor, indulgéntiam.
+
+Meménto quod sumus tui,
+Licet cadúci, plásmatis:
+Ne des honórem nóminis
+Tui, precámur, álteri.
+
+Laxa malum, quod fécimus,
+Auge bonum, quod póscimus:
+Placére quo tandem tibi
+Possímus hic, et pérpetim.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas,
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+#### Tempore Passionis

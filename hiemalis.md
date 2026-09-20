@@ -34604,4 +34604,55 @@ SCHOLÁSTICA, venerábilis patris Benedícti soror, ut scribit sanctus Gregóriu
 
 ℣. Diffúsa est.
 
-**Ad Bened. Ant.** Símile est regnum cælórum \*
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+#### Oratio
+
+DEUS, qui ánimam beátæ Vírginis tuæ Scholásticæ ad ostendéndam innocéntiæ viam in colúmbæ spécie cælum penetráre fecísti: da nobis ejus méritis et précibus ita innocénter vívere; ut ad ætérna mereámur gáudia perveníre. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ de sequénti, Commemorátio præcedéntis et, in Quadragésima, Fériæ.}
+
+## Die 11 Februarii
+
+### In Apparitione B. Mariæ Virginis Immaculatæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Festórum B. Maríæ Vírginis, præter ea quæ hic habéntur própria.}
+
+### In I Vesperis
+
+{RUBRIC: Antiphónæ et Capítulum de Laudibus.} [892] {RUBRIC: Hymnus} Ave, maris stella. [176]
+
+{RUBRIC: Si hoc Festum careat II Vésperis, tunc súmitur Hymnus próprius Omnis expértem, iísdem II Vésperis assignátus.} [893]
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Ista est \* colúmba mea, perfécta mea, immaculáta mea.
+
+#### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: súpplices a te quǽsumus; ut, ejúsdem Vírginis Apparitiónem celebrántes, salútem mentis et córporis consequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Deus, qui ánimam, ut supra.
+
+{RUBRIC: Deinde, in Quadragésima, Commemoratio Fériæ.}
+
+### Ad Matutinum
+
+**Invit.** Immaculátam Conceptiónem Vírginis Maríæ celebrémus, \* Christum ejus Fílium adorémus Dóminum. **Ps. 94** Veníte. 3
+
+#### Hymnus
+
+TE dícimus præcónio,
+Intácta Mater Núminis,
+Nostris benígna láudibus
+Tuam repénde grátiam.

@@ -18185,4 +18185,40 @@ CETERUM Jonæ signum, ut typus Domínicæ passiónis, ita étiam grávium, quæ 
 
 ℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
 
-**Ad Bened. Ant.** Generátio \* hæc prava et pervérsa signum quærit; et signum non dábitur ei,
+**Ad Bened. Ant.** Generátio \* hæc prava et pervérsa signum quærit; et signum non dábitur ei, nisi signum Jonæ Prophétæ.
+
+#### Oratio
+
+PRECES nostras, quæsumus, Dómine, cleménter exáudi: et contra cuncta nobis adversántia déxteram tuæ majestátis exténde. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Sicut fuit Jonas \* in ventre ceti tribus diébus et tribus nóctibus, ita erit Fílius hóminis in corde terræ.
+
+#### Oratio
+
+MENTES nostras, quæsumus, Dómine, lúmine tuæ claritátis illústra: ut vidére possímus quæ agénda sunt; et, quæ recta sunt, ágere valeámus. Per Dóminum.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 15, 21-28*
+
+IN illo témpore: Egréssus Jesus secéssit in partes Tyri et Sidónis. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 2 Comment. in cap. 15 Matthǽi}
+
+SCRIBIS et pharisǽis calumniatóribus derelíctis, transgréditur in partes Tyri et Sidónis, ut Týrios Sidoniósque curáret. Múlier autem Chananǽa egréditur de fínibus prístinis, et clamans fíliæ ímpetret sanitátem. Obsérva quod in quintodécimo loco fília Chananǽæ sanétur. Miserére mei, Dómine, Fili David. Inde novit vocáre Fílium David, quia egréssa jam fúerat de fínibus suis, et errórem Tyriórum ac Sidoniórum loci ac fídei commutatióne dimíserat.
+
+℟. Tribulárer, si nescírem misericórdias tuas, Dómine: tu dixísti, Nolo mortem peccatóris, sed ut magis convertátur et vivat: \* Qui Chananǽam et publicánum vocásti ad pœniténtiam. ℣. Secúndum multitúdinem dolórum meórum in corde meo, consolatiónes tuæ lætificavérunt ánimam meam. — Qui.
+
+#### Lectio ii
+
+FILIA mea male a dæmónio vexátur. Ego fíliam Chananǽæ puto ánimas esse credéntium, quæ male a dæmónio vexabántur, ignorántes Creatórem, et adorántes lápidem. Qui non respóndit ei verbum: non de supérbia pharisáica nec de scribárum supercílio: sed ne ipse senténtiæ suæ vidérétur esse contrárius, per

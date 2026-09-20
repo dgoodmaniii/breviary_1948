@@ -36352,4 +36352,48 @@ DIVÍNA mystéria, præsértim vero Christi Dómini passiónem tanto mentis ard�
 
 #### Lectio ix
 
-FRANCÍSCA, nóbilis matróna Romána, úndecim annos nata, virginitátem suam Deo consecráre et monastérium íngredi státuit; sed paréntum voluntáti obédiens, Laurentio de Pontiánis, júveni díviti æque ac nóbili, nupsit. In matrimónio arctióris vitæ propósitum, quantum lícuit, semper retínuit, patiéntia in advérsis semper mirábilis. Ut vero matrónas Románas a pompis sǽculi et ornátus vanitáte revocáret, domum Oblatárum, sub régula sancti Benedícti congregatiónis Montis Olivéti, in Urbe instítuit;
+FRANCÍSCA, nóbilis matróna Romána, úndecim annos nata, virginitátem suam Deo consecráre et monastérium íngredi státuit; sed paréntum voluntáti obédiens, Laurentio de Pontiánis, júveni díviti æque ac nóbili, nupsit. In matrimónio arctióris vitæ propósitum, quantum lícuit, semper retínuit, patiéntia in advérsis semper mirábilis. Ut vero matrónas Románas a pompis sǽculi et ornátus vanitáte revocáret, domum Oblatárum, sub régula sancti Benedícti congregatiónis Montis Olivéti, in Urbe instítuit; eóque, defúncto viro, cónvolans, suppliciter eárum número adscríbi postulávit. Voti compos facta, licet esset ómnium mater, título ancíllæ et vilíssimæ féminæ gloriabátur. Diáboli astus numquam quiescéntis semper elúsit et, sui Angeli præsídio, gloriósum de eo triúmphum rétulit. Méritis et miráculis insígnis, migrávit ad Dóminum, anno ætátis suæ quinquagésimo sexto: quam Paulus quintus Póntifex máximus cátalogo Sanctórum adscrípsit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est regnum cælórum, de Communi non Virginum.} [134]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ.}
+
+### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+#### Oratio
+
+DEUS, qui beátam Franciscam fámulam tuam, inter cétera grátiæ tuæ dona, familiári Angeli consuetúdine decorásti: concéde, quǽsumus; ut, intercessiónis ejus auxílio, Angelórum consórtium cónsequi mereámur. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Manum suam \* apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+{RUBRIC: Et fit Commemoratio sequéntis, ut infra; deinde, in Quadragésima, Fériæ.}
+
+---
+
+## Die 10 Martii
+
+### Sanctorum Quadraginta Martyrum
+
+{RUBRIC: Semiduplex} [49]
+
+**Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}

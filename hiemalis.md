@@ -41404,3 +41404,43 @@ DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum N. et N.
 ### Ad Matutinum
 
 **Invitat.** Laudémus Deum nostrum \* In confessióne beátæ N.
+
+{RUBRIC: Si fuerint plures non Virg.:}
+
+**Invitat.** Laudémus Deum nostrum \* In confessióne beatárum N. et N. **Ps. 94** Veníte, exsultémus.
+
+#### Hymnus
+
+HUJUS orátu, Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+Témporis ævo. Amen.
+
+{RUBRIC: Añæ Psalmi et Versus trium Nocturnórum dicúntur ut in Communi Virginum [113] excépta secúnda Ant. I Nocturni cujus loco dícitur Ant. Læva ejus, ut ibi notátur.}
+
+### In I Nocturno
+
+{RUBRIC: Pro Martyre tantum Lectiónes Confitébor, ut in Communi Virginum 2 loco cum suis Responsóriis. [126]}
+
+{RUBRIC: Pro nec Virgine nec Mart. ut sequúntur:}
+
+{RUBRIC: De Parábolis Salomónis}
+
+#### Lectio i
+
+*Cap. 31, 10-31*
+
+MULIEREM fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit. Reddet ei bonum, et non malum, ómnibus diébus vitæ suæ. Quæsívit lanam et linum, et operáta est consílio mánuum suárum. Facta est quasi navis institóris, de longe portans panem suum. Et de nocte surréxit, dedítque prædam doméstícis suis, et cibária ancíllis suis. Considerávit agrum, et emit eum; de fructu mánuum suárum plantávit víneam. Accínxit fortitúdine lumbos suos, et roborávit bráchium suum.
+
+℟. Veni, elécta mea, et ponam in te thronum meum; \* Quia concupívit Rex spéciem tuam. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Quia.
+
+**Benedictio.** Unigénitus Dei.
+
+#### Lectio ii
+
+GUSTAVIT, et vidit quia bona est negotiátio ejus: non exstinguétur in nocte lucérna ejus. Manum suam misit ad fórtia, et dígiti ejus apprehendérunt fusum. Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem. Non timébit dómui suæ a frigóribus nivis: omnes enim doméstici ejus vestíti sunt duplícibus. Stragulátam vestem fecit sibi: byssus et púrpura induméntum ejus. Nóbilis in portis vir

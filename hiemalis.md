@@ -43558,3 +43558,57 @@ AVE, maris stella,
 Dei Mater alma,
 Atque semper Virgo,
 Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus. Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Si tamen præcédens Versus dictus jam fúerit in Offício de Communi Vírginum vel non Vírginum, tunc dicátur sequens}
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+{RUBRIC: Antíphonæ ad Magníficat et étiam infra ad Benedíctus atque Orátio dicúntur juxta témporis diversitátem, nempe}
+
+{RUBRIC: A Sabbato post Octávam Epiphániæ usque ad Sabbatum ante Purificatiónem inclusíve:}
+
+**Ad Magnif. Ant.** Magnum \* hereditátis mystérium: templum Dei factus est úterus nesciéntis virum: non est pollútus ex ea carnem assúmens; omnes gentes vénient, dicéntes: Glória tibi, Dómine.
+
+**Oratio**
+
+DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti: tríbue, quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
+
+{RUBRIC: A Sabbato post Purificatiónem usque ad Sabbátum ante Quinquagésimam inclusíve:}
+
+**Ad Magnif. Ant.** Beáta Mater \* et intácta Virgo, gloriósa Regína mundi, intercéde pro nobis ad Dóminum.
+
+**Oratio**
+
+CONCÉDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et

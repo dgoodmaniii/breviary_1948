@@ -36553,3 +36553,49 @@ HI nimírum et próximum díligunt, et tamen illa sublímia dilectiónis prǽmia
 #### Oratio
 
 DA, quǽsumus, omnípotens Deus: ut beáti N., Apóstoli tui, quam prævenímus, venerándá solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+{RUBRIC: Si tamen præcédens Orátio dicta jam fúerit in Offício vel Commemoratióne de Commúni Conf. Pont., tunc dicátur sequens}
+
+#### Oratio
+
+QUÆSUMUS, omnípotens Deus: ut beátus N. Apóstolus, cujus prævenímus festivitátem, tuum pro nobis implóret auxílium; ut, a nostris reátibus absolúti, a cunctis étiam perículis eruámur. Per Dóminum.
+
+---
+
+# Commune Apostolorum
+
+### In I Vesperis
+
+**Ant.** Hoc est præcéptum meum, \* ut diligátis ínvicem, sicut diléxi vos.
+
+###### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Hoc est præcéptum meum, ut diligátis ínvicem, sicut diléxi vos.
+
+**Ant.** Majórem caritátem \* nemo habet, ut ánimam suam ponat quis pro amícis suis.
+
+###### Psalmus 110
+
+CONFITÉBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors

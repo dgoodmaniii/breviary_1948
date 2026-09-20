@@ -14453,4 +14453,56 @@ Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et hono
 
 Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
 
-Exaltáte Dóminum, Deum nostrum, et adoráte sca-
+Exaltáte Dóminum, Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus: \* quóniam sanctus Dóminus, Deus noster.
+
+{RUBRIC: Secus vero, tribus Psalmis expletis, statim dicitur Ant.}
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Ne discédas a me, Dómine: quóniam tribulátio próxima est: quóniam non est qui ádjuvet.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego, dicit Dóminus: nolo mortem peccatóris, sed ut magis convertátur, et vivat.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: In Officio Festi vel Octavæ et in Feriis Temporis Paschalis:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In omnibus autem Feriis extra Tempus Paschale:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+#### Tempore Paschali
+
+℟. br. Christe, Fili Dei vivi, miserére nobis, \* Allelúja, allelúja. Christe. ℣. *Qui surrexísti a mórtuis.* Allelúja, allelúja. Glória Patri. Christe.
+
+℣. Exsúrge, Christe, ádjuva nos, allelúja. ℟. Et líbera nos propter nomen tuum, allelúja.
+
+---
+
+#### Preces dominicales et feriales
+
+*(si dicendæ sint).*
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indú-

@@ -47297,3 +47297,23 @@ ANIMA Christi, sanctífica me. Corpus Christi, salva me. Sanguis Christi, inébr
 {RUBRIC: Indulgéntia trium annórum; plenária suetis conditiónibus, si quotídie per íntegrum mensem actus oblatiónis devóte recitátus fúerit. Pius Pp. XI, 4 Decémbris 1932.}
 
 SUSCIPE, Dómine, univérsam meam libertátem. Accipe memóriam, intelléctum atque voluntátem omnem. Quidquid hábeo vel possídeo, mihi largítus es: id tibi totum restítuo, ac tuæ prorsus voluntáti trado gubernándum. Amórem tui solum cum grátia tua mihi dones, et dives sum satis, nec áliud quidquam ultra posco.
+
+## Oratio ad D. N. J. C. Crucifixum
+
+{RUBRIC: Indulgéntia decem annórum; plenária recitántibus post Missam et orántibus ad mentem Summi Pontíficis. Pius Pp. XI, 2 Februárii 1934.}
+
+[IMAGE]
+
+EN ego, o bone et dulcíssime Jesu, ante conspéctum tuum génibus me provólvo ac máximo ánimi ardóre te oro atque obtéstor, ut meum in cor vívidos fídei, spei et caritátis sensus, atque veram peccatórum meórum pæniténtiam, éaque emendándi firmíssimam voluntátem velis imprímere; dum magno ánimi afféctu et dolóre tua quinque vúlnera mecum ipse consídero ac mente contémplor, illud præ óculis habens, quod jam in ore ponébat tuo David Prophéta de te, o bone Jesu: Fodérunt manus meas et pedes meos; dinumeravérunt ómnia ossa mea. *Ps. 21, 17-18*
+
+## Alia Oratio
+
+{RUBRIC: Indulgéntia trium annórum. Pius Pp. IX, 11 Decémbris 1846. Insuper hanc oratiónem recitánti flexis génibus, nisi impediátur, concéditur remíssio defectuum et culpárum in celebratióne Missæ ex humána fragilitáte contráctarum. Pius Pp. X, 29 Augústi 1912.}
+
+OBSECRO te, dulcíssime Dómine Jesu Christe, ut passio tua sit mihi virtus, qua múniar, prótegar atque deféndar; vúlnera tua sint mihi cibus potúsque, quibus pascar, inébrier atque delécter; aspérsio Sánguinis tui sit mihi ablútio ómnium delictórum meórum; mors tua sit mihi vita indefíciens, Crux tua sit mihi glória sempitérna. In his sit mihi reféctio, exsultátio, sánitas et dulcédo cordis mei: Qui vivis et regnas in sæcula sæculórum. Amen.
+
+## Oratio ad B. Mariam V.
+
+{RUBRIC: Indulgéntia trium annórum. Pius Pp. XI, 3 Octóbris 1936}
+
+O María, Virgo et Mater sanctíssima, ecce suscépi dilectíssimum Fílium tuum, quem immaculáto útero tuo concepísti, genuísti, lactásti, atque sua-

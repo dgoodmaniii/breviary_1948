@@ -4197,3 +4197,59 @@ Pérsequar inimícos meos, et comprehéndam illos: \* et non convértar, donec d
 Confríngam illos, nec póterunt stare: \* cadent subtus pedes meos.
 
 Et præcinxísti me virtúte ad bellum: \* et supplantásti insurgéntes in me subtus me.
+
+Et inimícos meos dedísti mihi dorsum, \* et odiéntes me disperdidísti.
+
+Clamavérunt, nec erat qui salvos fáceret, ad Dóminum: \* nec exaudívit eos.
+
+Et commínuam eos, ut púlverem ante fáciem venti: \* ut lutum plateárum delébo eos.
+
+Erípies me de contradictiónibus pópuli: \* constítues me in caput géntium.
+
+Pópulus, quem non cognóvi, servívit mihi: \* in audítu auris obedívit mihi.
+
+Fílii aliéni mentíti sunt mihi: \* fílii aliéni inveteráti sunt, et claudicavérunt a sémitis suis.
+
+Vivit Dóminus, et benedíctus Deus meus, \* et exaltétur Deus salútis meæ.
+
+Deus, qui das vindíctas mihi, et subdis pópulos sub me, \* liberátor meus de inimícis meis iracúndis.
+
+Et ab insurgéntibus in me exaltábis me: \* a viro iníquo éripies me.
+
+Proptérea confitébor tibi in natiónibus, Dómine: \* et nómini tuo psalmum dicam.
+
+Magníficans salútes Regis ejus, et fáciens misericórdiam Christo suo David, \* et sémini ejus usque in sæculum.
+
+**Ant.** Vivit Dóminus, et benedíctus Deus salútis meæ.
+
+#### In Festis novem Lectionum: Extra Tempus Paschale
+
+℣. Confitébor tibi in natiónibus, Dómine. ℟. Et nómini tuo psalmum dicam.
+
+#### In Festis novem Lectionum: Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+℣. Deus suscitávit Christum a mórtuis, allelúja. ℟. Ut fides nostra et spes esset in Deo, allelúja.
+
+**Absol.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Exáudiat te \* † Dóminus in die tribulatiónis. †
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 19
+
+EXAUDIAT te † Dóminus in die tribulatiónis: \* † prótegat te nomen Dei Jacob.
+
+Mittat tibi auxílium de sancto: \* et de Sion tueátur te.
+
+Memor sit omnis sacrifícii tui: \* et holocáustum tuum pingue fiat.

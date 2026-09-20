@@ -14995,3 +14995,53 @@ Neque profanábo testaméntum meum: \* et quæ procédunt de lábiis meis, non f
 Semel jurávi in sancto meo: Si David méntiar: \* semen ejus in ætérnum manébit.
 
 Et thronus ejus sicut sol in conspéctu meo, \* et sicut luna perfécta in ætérnum: et testis in cælo fidélis. Gl.
+
+###### Psalmus 88, iii
+
+TU vero repulísti et despexísti: \* distulísti Christum tuum.
+
+Evertísti testaméntum servi tui: \* profanásti in terra Sanctuárium ejus.
+
+Destruxísti omnes sepes ejus: \* posuísti firmaméntum ejus formídinem.
+
+Diripuérunt eum omnes transeúntes viam: \* factus est oppróbrium vicínis suis.
+
+Exaltásti déxteram deprimántium eum: \* lætificásti omnes inimícos ejus.
+
+Avertísti adjutórium gládii ejus: \* et non es auxiliátus ei in bello.
+
+Destruxísti eum ab emundatióne: \* et sedem ejus in terram collisísti.
+
+Minorásti dies témporis ejus: \* perfudísti eum confusióne.
+
+Usquequo, Dómine, avértis in finem: \* exardéscet sicut ignis ira tua?
+
+Memoráre quæ mea substántia: \* numquid enim vane constituísti omnes fílios hóminum?
+
+Quis est homo, qui vivet, et non vidébit mortem: \* éruet ánimam suam de manu ínferi?
+
+Ubi sunt misericórdiæ tuæ antíquæ, Dómine, \* sicut jurásti David in veritáte tua?
+
+Memor esto, Dómine, oppróbrii servórum tuórum \* (quod contínui in sinu meo) multárum géntium.
+
+Quod exprobravérunt inimíci tui, Dómine, \* quod exprobravérunt commutatiónem Christi tui.
+
+Benedíctus Dóminus in ætérnum: \* fiat, fiat.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Misericórdia et véritas præcédent fáciem tuam, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Per arma justítiæ virtútis Dei commendémus nosmetípsos in multa patiéntia.
+
+**Capitulum** *Is. 58, 7*
+
+FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nudum, óperi eum, et carnem tuam ne despéxeris.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.

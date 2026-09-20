@@ -17896,4 +17896,26 @@ PRÆDICATURUS vobis, dilectíssimi, sacratíssimum maxímumque jejúnium, quo á
 
 DEBEBATUR quidem tantis mystériis ita incessábilis devótio, et continuáta reveréntia, ut tales permanerémus in conspéctu Dei, quales nos in ipso Pascháli festo dignum est inveníri. Sed quia hæc fortitúdo paucórum est: et dum carnis fragilitáte austérior observántia relaxátur, dumque per várias actiónes vitæ hujus sollicitúdo disténditur, necésse est de mundáno púlvere étiam religiósa corda sordéscere: magna divínæ institutiónis salubritáte provísum est, ut ad reparándam méntium puritátem quadragínta nobis diérum exercitátio mederétur, in quibus aliórum témporum culpas, et pia ópera redímerent, et jejúnia casta decóquerent.
 
-℟. Derelínquat ímpius viam suam, et vir iníquus cogitatiónes suas, et re-
+℟. Derelínquat ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus: \* Quia benígnus et miséricors est, et præstábilis super malítia Dóminus, Deus noster. ℣. Non vult Dóminus mortem peccatóris, sed ut convertátur et vivat. — Quia.
+
+#### Lectio vi
+
+INGRESSURI ígitur, dilectíssimi, dies mýsticos, et purificándis ánimis atque corpóribus sacrátius institútos, præcéptis apostólicis obedíre curémus, emundántes nos ab omni inquinaménto carnis ac spíritus: ut castigátis colluctatiónibus, quæ sunt inter utrámque substántiam, ánimus, quem sub Dei gubernáculis constitútum, córporis sui decet esse rectórem, dominatiónis suæ obtíneat dignitátem: ut némini dantes ullam offensiónem, vituperatiónibus obloquéntium non simus obnóxii. Digna enim ab infidélibus reprehensióne carpémur, et nostro vítio linguæ ímpiæ in injúriam se religiónis armábunt, si jejunántium mores a puritáte perféctæ continéntiæ discrepárint. Non enim in sola abstinéntia cibi stat nostri summa jejúnii: aut fructuóse córpori esca subtráhitur, nisi mens ab iniquitáte revocétur.
+
+℟. Paradísi portas apéruit nobis jejúnii tempus: suscipiámus illud orántes, et deprecántes: \* Ut in die resurrectiónis cum Dómino gloriémur. ℣. In ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia. — Ut. Glória Patri. Ut.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 4, 1-11*
+
+IN illo témpore: Ductus est Jesus in desértum a Spíritu, ut tentarétur a diábolo. Et cum jejunásset quadragínta diébus et quadragínta nóctibus, póstea esúriit. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 16 in Evangelia}
+
+DUBITARI a quibúsdam solet, a quo spíritu sit Jesus ductus in desértum, propter hoc quod súbditur: Assúmpsit eum diábolus in sanctam civitátem: et rursum: Assúmpsit eum in montem excélsum valde. Sed vere et absque ulla quæstióne conveniénter accípitur, ut a Sancto Spíritu in desértum ductus credátur: ut illuc eum suus Spíritus dúceret, ubi hunc ad tentándum malígnus spíritus

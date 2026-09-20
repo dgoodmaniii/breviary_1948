@@ -34486,4 +34486,16 @@ SALÚTIS animárum zelo incénsus curas omnes inténdit, ut sibi commíssum greg
 
 #### Lectio vi
 
-CÆLESTINI delegáta auctoritáte, concílio Ephesíno prǽfuit, in quo hǽresis Nestoriána pénitus proscrípta est, damnátus Nestórius et a sua Sede dejéctus, ac dogma cathólicum de una in Christo, eáque divína persóna, et divína gloriósæ Vírginis Maríæ maternitáte assértum; plaudénte pópulo univérso, qui incredíbili gáudio géstiens, collucéntibus fácibus domum dedúxit epíscopos. Sed hac de causa Cyríllus calúmniis, injúriis et persecutiónibus plúrimis a Nestório ejúsque fautóribus impetítus fuit; quas ipse patientíssime tulit, ita ut, de sola fide sollícitus, quidquid advérsus eum effutiébant ac moliebántur
+CÆLESTINI delegáta auctoritáte, concílio Ephesíno prǽfuit, in quo hǽresis Nestoriána pénitus proscrípta est, damnátus Nestórius et a sua Sede dejéctus, ac dogma cathólicum de una in Christo, eáque divína persóna, et divína gloriósæ Vírginis Maríæ maternitáte assértum; plaudénte pópulo univérso, qui incredíbili gáudio géstiens, collucéntibus fácibus domum dedúxit epíscopos. Sed hac de causa Cyríllus calúmniis, injúriis et persecutiónibus plúrimis a Nestório ejúsque fautóribus impetítus fuit; quas ipse patientíssime tulit, ita ut, de sola fide sollícitus, quidquid advérsus eum effutiébant ac moliebántur hærétici, pro níhilo habéret. Tandem pro Ecclésia Dei máximis perfúnctus labóribus, plurimísque scriptis éditis tum ad éthnicos et hæréticos confutándos, tum ad sacras Scriptúras et cathólica explanánda dógmata, sancto fine quiévit anno quadringentésimo quadragésimo quarto, episcopátus trigésimo secúndo. Leo décimus tértius Póntifex máximus Offícium et Missam præclaríssimi hujus fídei cathólicæ propugnatóris et Orientális ecclésiæ lúminis, ad Ecclésiam univérsam exténdit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+CYRILLUS Alexandrínus, Theóphili epíscopi Alexandríni nepos, étiam adoléscens præcelléntis ingénii specímina dedit. Theóphilo vita functo, ad illíus Sedem evéctus, et factus forma gregis ex ánimo, óptimi pastóris glóriam adéptus est. Singuláre ejus pro cathólicæ fídei incolumitáte stúdium enítuit contra Nestórium Constantinopolitánum epíscopum, asseréntem Jesum Christum ex María Vírgine hóminem tantum et non Deum natum, eíque divinitátem pro méritis esse collátam; cujus emendatiónem cum frustra tentásset, eum sancto Cælestíno Papæ denuntiávit. Hujus Pontíficis delegáta auctoritáte, nonnúllis sessiónibus prǽfuit concílii Ephesíni, in quo hǽresis Nestoriána pénitus proscrípta est, damnátus Nestórius et a sua Sede dejéctus, ac dogma cathólicum de una in Christo eáque divína persóna, et divína gloriósæ Vírginis Maríæ maternitáte assértum. De sola fide sollícitus, et proptérea plura perpéssus, máximis pro Ecclésia Dei perfúnctus labóribus, plurimísque scriptis éditis, sancto fine quiévit, anno quadringentésimo quadragésimo quarto, episcopátus trigésimo secúndo.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Communi Doct. 1 loco.} [90]

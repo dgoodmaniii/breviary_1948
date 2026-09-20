@@ -9862,4 +9862,52 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 
 Orémus. **Oratio**
 
-DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætér-
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+℣. Jube, domne. **Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+QUÆRITE Dóminum, dum inveníri potest: invocáte eum, dum prope est. Tu autem.
+
+#### Tempore Passionis
+
+FACIEM meam non avérti ab increpántibus et conspuéntibus in me. Dóminus Deus auxiliátor meus, et ídeo non sum confúsus.
+
+#### Tempore Paschali
+
+SI consurrexístis cum Christo, quæ sursum sunt quærite, ubi Christus est in déxtera Dei sedens: quæ sursum sunt sápite, non quæ super terram.
+
+##### E Proprio Sanctorum
+
+**Pro Octava S. Joseph**
+
+FILIUS accréscens Joseph, fílius accréscens, et decórus aspéctu: fíliæ discurrérunt super murum.
+
+##### E Communi Sanctorum
+
+**Pro Ap. et Ev. extra T. P.**
+
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contuméliam pati.
+
+**Pro Ap. et Ev., uno et plur. Mm. T. P.**
+
+SCIMUS quóniam diligéntibus Deum ómnia cooperántur in bonum, iis qui secúndum propósitum vocáti sunt sancti.
+
+**Pro uno Mart. extra T. P.**
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+**Pro plur. Mart. extra T. P.**
+
+FULGEBUNT justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt natiónes, et dominabúntur pópulis: et regnábit Dóminus illórum in perpétuum.
+
+**Pro Conf. Pont.**
+
+FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+**Pro Conf. non Pont.**
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei,

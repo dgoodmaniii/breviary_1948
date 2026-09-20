@@ -41189,3 +41189,45 @@ DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tu�
 *Eccli. 51, 13-14*
 
 DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+##### Pro Virgine non Martyre
+
+#### Capitulum
+
+*Sap. 4, 1*
+
+O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam apud Deum nota est, et apud hómines.
+
+℟. br. Elégit eam Deus \* Et præelégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [111], prǽter}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Si fuerint plures Virgines Martyres, Versus, Antíphona ad Magníficat et Orátio ut supra. [112] vel [124]}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+### II Aliæ Lectiones
+
+#### pro Virginibus
+
+{RUBRIC: Pro Virgine Martyre, Lectiónes I Nocturni dicúntur étiam ut infra:}
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+
+*Cap. 51, 1-17*
+
+CONFITEBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
+
+℟. Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum; pro cujus amóre sánguinem tuum fudísti, \* Et cum Angelis in paradísum introísti. ℣. Veni, elécta mea, et ponam in te thronum meum; quia concupívit Rex spéciem tuam. — Et.

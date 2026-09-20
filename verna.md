@@ -17385,3 +17385,51 @@ Génua mea infirmáta sunt a jejúnio: \* et caro mea immutáta est propter óle
 Et ego factus sum oppróbrium illis: \* vidérunt me, et movérunt cápita sua.
 
 Adjuva me, Dómine, Deus meus: \* salvum me fac secúndum misericórdiam tuam.
+
+Et sciant quia manus tua hæc: \* et tu, Dómine, fecísti eam.
+
+Maledícent illi, et tu benedíces: \* qui insúrgunt in me, confundántur: servus autem tuus lætábitur.
+
+Induántur qui détrahunt mihi, pudóre: \* et operiántur sicut diplóide confusióne sua.
+
+Confitébor Dómino nimis in ore meo: \* et in médio multórum laudábo eum.
+
+Quia ástitit a dextris páuperis, \* ut salvam fáceret a persequéntibus ánimam meam.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Ne tacúeris, Deus, quia sermónibus ódii circumdedérunt me.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Per arma justítiæ virtútis Dei commendémus nosmetípsos in multa patiéntia.
+
+**Capitulum** *Is. 58, 7*
+
+FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nudum, óperi eum, et carnem tuam ne despéxeris.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+### Tempore Passionis
+
+{RUBRIC: Sabbato post Dom. Passionis}
+
+**Ant.** Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ?
+
+**Capitulum** *Jer. 18, 20*
+
+RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis.
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine

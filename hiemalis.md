@@ -36858,3 +36858,35 @@ Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
 Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
 
 Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sæculum sæculi.
+
+**Ant.** Constítues eos príncipes super omnem terram: mémores erunt nóminis tui, Dómine.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Benedictio.** Benedictióne.
+
+{RUBRIC: De Epístola prima beáti Pauli Apóstoli ad Corínthios}
+
+#### Lectio i
+
+*Cap. 4, 1-15*
+
+SIC nos existímet homo ut minístros Christi, et dispensatóres mysteriórum Dei. Hic jam quǽritur inter dispensatóres, ut fidélis quis inveniátur. Mihi autem pro mínimo est, ut a vobis júdicer aut ab humáno die: sed neque meípsum júdico. Nihil enim mihi cónscius sum: sed non in hoc justificátus sum: qui autem júdicat me, Dóminus est. Itaque nolíte ante tempus judicáre, quoadúsque véniat Dóminus: qui et illumínabit abscóndita tenebrárum, et manifestábit consília córdium; et tunc laus erit unicuíque a Deo.
+
+℟. Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus: \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte.
+
+**Benedictio.** Unigénitus Dei.
+
+#### Lectio ii
+
+HÆC autem, fratres, transfigurávi in me et Apóllo, propter vos, ut in nobis discátis; ne, supra quam scriptum est, unus advérsus álterum inflétur pro álio. Quis enim te discérnit? Quid autem habes, quod non accepísti? Si autem accepísti, quid gloriáris quasi non accéperis? Jam saturáti estis, jam dívites facti estis: sine nobis regnátis: et útinam regnétis, ut et nos vobíscum regnémus! Puto enim quod Deus nos Apóstolos novíssimos osténdit, tamquam morti destinátos: quia spectáculum facti sumus mundo, et Angelis, et homínibus.
+
+℟. Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde: \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum.
+
+**Benedictio.** Spíritus Sancti.

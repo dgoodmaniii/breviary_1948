@@ -46698,4 +46698,34 @@ QUÆ est hæc virgo tam venerábilis, ut salutétur ab Ángelo; tam húmilis, ut
 
 {RUBRIC: Homilía 2 super eódem loco}
 
-MISSUS est, inquit, Ángelus ad Vírginem: vírginem carne, vírginem
+MISSUS est, inquit, Ángelus ad Vírginem: vírginem carne, vírginem mente, vírginem professióne, vírginem dénique, quálem descríbit Apóstolus, mente et córpore sanctam; nec nóviter nec fortúito invéntam, sed a sæculo eléctam, ab Altíssimo præcógnitam et sibi præparátam, ab Ángelis servátam, a Pátribus præsignátam, a Prophétis promíssam. Ut pauca loquar de plúribus, quam tibi áliam prædixísse Deus vidétur, quando ad serpéntem ait: Inimicítias ponam inter te et mulíerem? Et, si adhuc dúbitas an de María díxerit, audi quod séquitur: Ipsa cónteret caput tuum. Cui hæc serváta victória est, nisi Maríæ?
+
+℟. Beáta es, Virgo María, Dei Génitrix, quæ credidísti Dómino: perfécta sunt in te quæ dicta sunt tibi; ecce exaltáta es super choros Angelórum: \* Intercéde pro nobis ad Dóminum, Deum nostrum. ℣. Ave, María, grátia plena; Dóminus tecum. — Intercéde. Glória Patri. Intercéde.
+
+#### Lectio ix
+
+{RUBRIC: Homilía 3 super eódem loco}
+
+ET ingréssus Ángelus ad eam, dixit: Ave, grátia plena; Dóminus tecum. Quo ingréssus ad eam? Puto in secretárium pudíci cubículi, ubi illa fortássis, clauso super se óstio, orábat Patrem suum in abscóndito. Solent Ángeli astáre orántibus, et delectári in his, quos vident leváre puras manus in oratióne: holocáustum sanctæ devotiónis gaudent se offérre Deo in odórem suavitátis. Maríæ autem oratiónes quantum placúerint in conspéctu Altíssimi, Ángelus indicávit, qui, ingréssus ad eam, tam reverénter salutávit.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Ant.}
+
+**1** Domum tuam, \* Dómine, decet sanctitúdo in longitúdinem diérum.
+
+**2** Domus mea \* domus oratiónis vocábitur: in ea omnis qui petit, áccipit; et qui quærit, ínvenit; et pulsánti aperiétur.
+
+**3** Propter domum Dómini \* Dei nostri quæsívi bona tibi.
+
+**4** Dómine, Deus, \* exaltásti super terram habitatiónem meam.
+
+**5** Domum majestátis meæ, \* et locum pedum meórum glorificábo.
+
+#### Capitulum
+
+*Eccli. 24, 11-12*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo.

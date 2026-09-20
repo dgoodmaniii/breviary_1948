@@ -370,3 +370,49 @@ Exáudi, Dómine, {RUBRIC: ut in I Nocturno.}
 {RUBRIC: Feria III et VI}
 
 Ipsíus píetas, {RUBRIC: ut in II Nocturno.}
+
+{RUBRIC: Feria IV et Sabbato}
+
+A vínculis, {RUBRIC: ut in III Nocturno Officii novem Lectionum.}
+
+{RUBRIC: Deinde leguntur Lectiones cum Responsoriis, prouti Officium occurrens requirit; et ante eas dicuntur sequentes}
+
+##### Benedictiones
+
+{RUBRIC: In Feriis, quando legitur Homilia cum Evangelio, erit:}
+
+**1 Bened.** Evangélica léctio sit nobis salus et protéctio. ℟. Amen.
+
+**2 Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Feriis, quando non legitur Homilia cum Evangelio, Feria II et V Benedictiones ut in I Nocturno, Feria III et VI ut in II Nocturno Officii novem Lectionum; Feria autem IV et Sabbato erit:}
+
+**1 Bened.** Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen.
+
+**2 Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Festis Sanctorum erit:}
+
+**1 Bened.** Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen.
+
+**2 Bened.** Cujus (*vel* Quorum *aut* Quarum) festum cólimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercédat (*vel* intercédant) pro nobis ad Dóminum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Officio de sancta María in Sabbato Absolutio et Benedictiones, quæ ibidem ponuntur.}
+
+{RUBRIC: Post ultimam Lectionem, in omnibus Dominicis Temporis Paschalis, in Festis cujusvis ritus, per omnes Octavas, et in Officio sanctæ Mariæ in Sabbato, dicitur Hymnus Ambrosianus. A Dominica autem I Quadragesimæ usque ad Sabbatum sanctum inclusive, non dicitur nisi in Festis; a Paschate vero usque ad Pentecosten inclusive, dicitur etiam in feriali Officio, excepta Feria II Rogationum. Quando vero Hymnus prædictus omittitur, ejus loco dicitur IX aut III Responsorium.}
+
+##### Hymnus Ambrosianus
+
+TE Deum laudámus: \* te Dóminum confitémur.
+
+Te ætérnum Patrem \* omnis terra venerátur.
+
+Tibi omnes Angeli, \* tibi Cæli, et univérsæ Potestátes:
+
+Tibi Chérubim et Séraphim \* incessábili voce proclámant:

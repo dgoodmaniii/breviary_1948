@@ -18221,4 +18221,28 @@ SCRIBIS et pharisǽis calumniatóribus derelíctis, transgréditur in partes Tyr
 
 #### Lectio ii
 
-FILIA mea male a dæmónio vexátur. Ego fíliam Chananǽæ puto ánimas esse credéntium, quæ male a dæmónio vexabántur, ignorántes Creatórem, et adorántes lápidem. Qui non respóndit ei verbum: non de supérbia pharisáica nec de scribárum supercílio: sed ne ipse senténtiæ suæ vidérétur esse contrárius, per
+FILIA mea male a dæmónio vexátur. Ego fíliam Chananǽæ puto ánimas esse credéntium, quæ male a dæmónio vexabántur, ignorántes Creatórem, et adorántes lápidem. Qui non respóndit ei verbum: non de supérbia pharisáica nec de scribárum supercílio: sed ne ipse senténtiæ suæ vidérétur esse contrárius, per quam jússerat: In viam géntium ne abiéritis, et in civitátes Samaritanórum ne intravéritis. Nolébat enim occasiónem calumniatóribus dare: perfectámque salútem géntium passiónis et resurrectiónis témpori reservábat.
+
+℟. In ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia: \* Ut non vituperétur ministérium nostrum. ℣. Ecce nunc tempus acceptábile, ecce nunc dies salútis: commendémus nosmetípsos in multa patiéntia. — Ut.
+
+#### Lectio iii
+
+ET accedéntes discípuli ejus, rogábant eum, dicéntes: Dimítte eam, quia clamat post nos. Discípuli illo adhuc témpore mystéria Dómini nesciéntes, vel misericórdia commóti, rogábant pro Chananǽa muliere, quam alter Evangelísta Syrophœníssam appéllat: vel importunitáte ejus caréte cupiéntes, quia non ut cleméntem, sed ut durum médicum crébrius inclamáret. Ipse autem respóndens ait: Non sum missus, nisi ad oves quæ periérunt domus Israël. Non quo et ad gentes non missus sit, sed quo primum missus sit ad Israël: ut illis non recipiéntibus Evangélium, justa fíeret ad gentes transmigrátio.
+
+℟. In jejúnio et fletu orábunt sacerdótes, dicéntes: \* Parce, Dómine, parce pópulo tuo; et ne des hereditátem tuam in perditiónem. ℣. Inter vestíbulum et altáre plorábunt sacerdótes, dicéntes. — Parce. Glória Patri. Parce.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Egréssus Jesus \* secéssit in partes Tyri et Sidónis: et ecce múlier Chananǽa a fínibus illis egréssa, clamábat dicens: Miserére mei, Fili David.
+
+#### Oratio
+
+DEVOTIONEM pópuli tui, quæsumus, Dómine, benígnus inténde: ut, qui per abstinéntiam macerántur in córpore, per fructum boni óperis reficiántur in mente. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** O múlier, \* magna est fides tua: fiat tibi sicut petísti.
+
+#### Oratio
+
+DA, quæsumus, Dómine, pópulis christiánis: et, quæ profiténtur, agnóscere, et cæléste mu-

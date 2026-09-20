@@ -4701,3 +4701,63 @@ Et commínuet eas tamquam vítulum Líbani: \* et diléctus quemádmodum fílius
 Vox Dómini intercidéntis flammam ignis: \* vox Dómini concutiéntis desértum: et commovébit Dóminus desértum Cades.
 
 Vox Dómini præparántis cervos, et revelábit condénsa: \* et in templo ejus omnes dicent glóriam.
+
+Dóminus dilúvium inhabitáre facit: \* et sedébit Dóminus Rex in ætérnum.
+
+Dóminus virtútem pópulo suo dabit: \* Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Dóminus dabit virtútem et benedícet pópulo suo in pace.
+
+**Ant.** Convérsus est furor tuus.
+
+### Feria II Majoris Hebdomadæ
+
+**Ant.** Appendérunt mercédem meam trigínta argénteis: quibus appretiátus sum ab eis.
+
+**Ant.** Inundavérunt.
+
+## Canticum Isaiæ
+
+###### Is. 12, 1-6
+
+CONFITEBOR tibi, Dómine, quóniam irátus es mihi: \* convérsus est furor tuus, et consolátus es me.
+
+Ecce Deus salvátor meus, \* fiduciáliter agam, et non timébo:
+
+Quia fortitúdo mea, et laus mea Dóminus, \* et factus est mihi in salútem.
+
+Hauriétis aquas in gáudio de fóntibus Salvatóris: \* et dicétis in die illa: Confitémini Dómino, et invocáte nomen ejus:
+
+Notas fácite in pópulis adinventiónes ejus: \* mementóte quóniam excélsum est nomen ejus.
+
+Cantáte Dómino quóniam magnífice fecit: \* annuntiáte hoc in univérsa terra.
+
+Exsúlta, et lauda, habitátio Sion: \* quia magnus in médio tui Sanctus Israël.
+
+**Ant.** Convérsus est furor tuus, Dómine, et consolátus es me.
+
+**Ant.** Laudáte. †
+
+### Feria II Majoris Hebdomadæ
+
+**Ant.** Inundavérunt aquæ super caput meum; dixi, Périi: invocábo nomen tuum, Dómine Deus.
+
+**Ant.** Lábia insurgéntium.
+
+###### Psalmus 116
+
+LAUDATE † Dóminum, omnes gentes: \* laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+**Ant.** Laudáte Dóminum, quóniam confirmáta est super nos misericórdia ejus.
+
+### Feria II Majoris Hebdomadæ
+
+**Ant.** Lábia insurgéntium, et cogitatiónes eórum vide, Dómine.
+
+### Tempore Quadragesimæ
+
+**Capitulum** *Is. 58, 1*
+
+CLAMA, ne cesses, quasi tuba exálta vocem tuam, et annúntia pópulo meo scélera eórum, et dómui Jacob peccáta eórum.

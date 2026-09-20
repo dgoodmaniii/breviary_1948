@@ -38352,3 +38352,60 @@ Hi pro te fúrias atque minas truces
 Calcárunt hóminum, sǽvaque vérbera:
 His cessit lácerans fórtiter úngula,
 Nec carpsit penetrália.
+
+Cǽduntur gládiis more bidéntium:
+Non murmur résonat, non querimónia;
+Sed corde impávido mens bene cónscia
+Consérvat patiéntiam.
+
+Quæ vox, quæ póterit lingua retéxere,
+Quæ tu Martýribus múnera prǽparas?
+Rubri nam flúido sánguine, fúlgidis
+Cingunt témpora láureis.
+
+Te, summa o Déitas, únaque póscimus:
+Ut culpas ábigas, nóxia súbtrahas,
+Des pacem fámulis; ut tibi glóriam,
+Annórum in sériem, canant.
+Amen.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+##### Pro pluribus Martyribus Pontificibus
+
+**1 — Oratio**
+
+BEATÓRUM Mártyrum páritérque Pontíficum N. et N. nos, quǽsumus, Dómine, festa tueántur: et eórum comméndet orátio veneránda. Per Dóminum.
+
+{RUBRIC: Si non fuerint Pontífices}
+
+**2 — Oratio**
+
+DEUS, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+**3 — Alia Oratio**
+
+DEUS, qui nos ánnua sanctórum Mártyrum tuórum N. et N. solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invit.** Regem Mártyrum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+#### Hymnus
+
+CHRISTO profúsum sánguinem
+Et Mártyrum victórias
+Dignámque cælo láuream
+Lætis sequámur vócibus.
+
+Terróre victo sǽculi
+Pœnísque spretis córporis,
+Mortis sacræ compéndio
+Vitam beátam póssident.
+
+Tradúntur igni Mártyres
+Et bestiárum déntibus;

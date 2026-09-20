@@ -35291,3 +35291,55 @@ CARÍSSIMI: Communicántes Christi passiónibus gaudéte, ut in revelatióne gl�
 
 SIC patres vitam péragunt in umbra,
 Lília ut septem nívei decóris,
+Vírgini excélsæ bene grata, Petro
+    Visa nitére.
+
+Jamque divína rapiénte flamma,
+Cúrsitant urbes, loca quæque obérrant,
+Si queant cunctis ánimis dolóres
+    Fígere Matris.
+
+Hinc valent iras domuísse cæcas,
+Néscia et pacis fera corda jungunt,
+Erigunt mæstos, révocant nocéntes
+    Dicta piórum.
+
+At suos Virgo comitáta Servos
+Evéhit tandem súperas ad oras;
+Gémmeis sertis decórat per ævum
+    Omne beátos.
+
+Eja nunc cœtus gémitum precántis
+Audiant, duros vídeant labóres:
+Semper et nostris fáveant benígno
+    Lúmine votis.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus
+Spíritus semper, Deus unus omni
+    Témporis ævo.
+Amen.
+
+℣. Sit memória illórum in benedictióne. ℟. Et ossa eórum púllulent de loco suo.
+
+**Ad Bened. Ant.** Ecce quam bonum \* et quam jucúndum habitáre fratres in unum.
+
+#### Oratio
+
+DÓMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitrícis tuæ, per septem beátos Patres nova Servórum ejus família Ecclésiam tuam fecundásti: concéde propítius; ita nos eórum consociári flétibus, ut perfruámur et gáudiis: Qui vivis.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+### Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. Amávit eum Dóminus, \* Et ornávit eum. Amávit. ℣. Stolam glóriæ índuit eum. Et. Glória Patri. Amávit. ℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.
+
+### Ad Sextam
+
+{RUBRIC: Capitulum} *Eccli. 39, 6*
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judí-

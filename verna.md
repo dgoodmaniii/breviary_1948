@@ -2554,4 +2554,61 @@ BENEDICTUS es, Dómine, Deus patrum nostrórum: \* et laudábilis, et gloriósus
 
 Et benedíctum nomen glóriæ tuæ sanctum: \* et laudábile, et superexaltátum in ómnibus sæculis.
 
-Benedíctus es in templo sancto glóriæ tuæ: \* et
+Benedíctus es in templo sancto glóriæ tuæ: \* et superlaudábilis, et supergloriósus in sæcula.
+
+Benedíctus es in throno regni tui: \* et superlaudábilis, et superexaltátus in sæcula.
+
+Benedíctus es, qui intuéris abýssos, et sedes super Chérubim: \* et laudábilis, et superexaltátus in sæcula.
+
+Benedíctus es in firmaménto cæli: \* et laudábilis, et gloriósus in sæcula.
+
+Benedícite, ómnia ópera Dómini, Dómino: \* laudáte, et superexaltáte eum in sæcula.
+
+Glória Patri.
+
+###### Psalmus 148
+
+LAUDATE Dóminum de cælis: \* laudáte eum in excélsis.
+
+Laudáte eum, omnes Angeli ejus: \* laudáte eum, omnes virtútes ejus.
+
+Laudáte eum, sol et luna: \* laudáte eum, omnes stellæ et lumen.
+
+Laudáte eum, cæli cælórum: \* et aquæ omnes, quæ super cælos sunt, laudent nomen Dómini.
+
+Quia ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Státuit ea in ætérnum, et in sæculum sæculi: \* præcéptum pósuit, et non præteríbit.
+
+Laudáte Dóminum de terra, \* dracónes, et omnes abýssi.
+
+Ignis, grando, nix, glácies, spíritus procellárum: \* quæ fáciunt verbum ejus:
+
+Montes, et omnes colles: \* ligna fructífera, et omnes cedri.
+
+Béstiæ, et univérsa pécora: \* serpéntes, et vólucres pennátæ:
+
+Reges terræ, et omnes pópuli: \* príncipes, et omnes júdices terræ.
+
+Júvenes, et vírgines: senes cum junióribus laudent nomen Dómini: \* quia exaltátum est nomen ejus solíus.
+
+Conféssio ejus super cælum, et terram: \* et exaltávit cornu pópuli sui.
+
+Hymnus ómnibus sanctis ejus: \* fíliis Israël, pópulo appropinquánti sibi.
+
+{RUBRIC: Capitulum, Hymnus, Versus, Antiphona ad Benedictus et Oratio ut in Proprio de Tempore.}
+
+{RUBRIC: Reliqua ut in Ordinario. 13}
+
+## Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.

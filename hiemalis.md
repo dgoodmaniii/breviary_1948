@@ -36511,3 +36511,25 @@ DEUS, qui ánimæ fámuli tui Gregórii ætérnæ beatitúdinis prǽmia contulí
 {RUBRIC: Et fit Commemoratio Fériæ.}
 
 ---
+
+[IMAGE]
+
+# Commune Sanctorum
+
+In ómnibus Festis novem Lectiónum Apostolórum vel Evangelistárum, in Duplícibus I et II classis aliórum Sanctórum, in Dedicatióne Ecclésiæ, in Festis beátæ Maríæ Vírginis, non autem per eórum Octávas, Offícium íntegrum, præter ea quæ suis locis própria assignántur, dícitur de respectívo Communi, ut infra.
+
+In réliquis Sanctórum Festis, in Octávis non privilegiátis quibúslibet et in Offício sanctæ Maríæ in Sábbato, præter ea quæ páriter suis locis assignántur própria, Antiphónæ et Psalmi ad omnes Horas et Versus Nocturnórum sumúntur de occurrénti hebdómadæ die; Lectiónes I Noctúrni aut Lectio I et II cum suis Responsóriis dicúntur de Scriptúra occurrénti, juxta Rúbricas; réliqua ómnia de respectívo Communi, ut infra, vel, in Octávis, ut in die Festo.
+
+## In Vigiliis Apostolorum
+
+{RUBRIC: Offícium fit de Fería, ut in Ordinário et Psaltério, præter Lectiónes et Oratiónem, quæ, nisi própria suis locis assignéntur, dicúntur ut infra, cum Responsóriis tamen de Fería currénti, ut in Próprio de Témpore.}
+
+{RUBRIC: Ad Noctúrnum vero in Fería IV tres última Antiphónæ cum suis Psalmis, et ad Laudes in quálibet Fería Antiphónæ omnes et Psalmi sumúntur de 2 loco; ad Primam additur quartus Psalmus, ut in Psaltério notátur, et ad omnes Horas dicúntur Preces feriáles, ut in Ordinário.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 15, 12-16*
+
+IN illo témpore: Dixit Jesus discípulis suis: Hoc est præcéptum meum, ut diligátis ínvicem, sicut diléxi vos. Et réliqua.

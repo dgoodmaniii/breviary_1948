@@ -554,4 +554,75 @@ Novum canámus cánticum. Amen.
 
 {RUBRIC: In Officio dominicali, Capitulum ut in Proprio de Tempore.}
 
-{RUBRIC: In Officio autem feriali,
+{RUBRIC: In Officio autem feriali, usque ad Feriam IV Majoris Hebdomadæ inclusive, dicitur quotidie sequens}
+
+**Capitulum** *Jer. 11, 19*
+
+VENITE, mittámus lignum in panem ejus, et eradámus eum de terra vivéntium, et nomen ejus non memorétur ámplius.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens Hymnus et Versus:}
+
+#### Hymnus
+
+LUSTRA sex qui jam perégit,
+Tempus implens córporis,
+Sponte líbera Redémptor
+Passióni déditus,
+Agnus in Crucis levátur
+Immolándus stípite.
+
+Felle potus ecce languet:
+Spina, clavi, láncea
+Mite corpus perforárunt:
+Unda manat, et cruor:
+Terra, pontus, astra, mundus,
+Quo lavántur flúmine!
+
+Crux fidélis, inter omnes
+Arbor una nóbilis:
+Silva talem nulla profert
+Fronde, flore, gérmine:
+Dulce ferrum, dulce lignum,
+Dulce pondus sústinent.
+
+Flecte ramos, arbor alta,
+Tensa laxa víscera,
+Et rigor lentéscat ille,
+Quem dedit natívitas;
+Et supérni membra Regis
+Tende miti stípite.
+
+Sola digna tu fuísti
+Ferre mundi víctimam,
+Atque portum præparáre
+Arca mundo náufrago,
+Quam sacer cruor perúnxit,
+Fusus Agni córpore.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+#### Tempore Paschali
+
+{RUBRIC: In Officio dominicali, a Dominica in Albis usque ad Dominicam V post Pascha inclusive, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio autem feriali, a Feria II post Dominicam in Albis usque ad Vigiliam Ascensionis inclusive, dicitur quotidie sequens}
+
+**Capitulum** *Rom. 6, 9-10*
+
+CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens Hymnus et Versus:}
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus ínfremit:

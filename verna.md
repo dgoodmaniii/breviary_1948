@@ -12607,4 +12607,52 @@ USQUEQUO, Deus, improperábit inimícus: \* irrítat adversárius nomen tuum in 
 
 Ut quid avértis manum tuam, et déxteram tuam, \* de médio sinu tuo in finem?
 
-Deus autem Rex noster ante sæcula: \* operá-
+Deus autem Rex noster ante sæcula: \* operátus est salútem in médio terræ.
+
+Tu confirmásti in virtúte tua mare: \* contribulásti cápita dracónum in aquis.
+
+Tu confregísti cápita dracónis: \* dedísti eum escam pópulis Æthíopum.
+
+Tu dirupísti fontes, et torréntes: \* tu siccásti flúvios Ethan.
+
+Tuus est dies, et tua est nox: \* tu fabricátus es auróram et solem.
+
+Tu fecísti omnes términos terræ: \* æstátem et ver tu plasmásti ea.
+
+###### Psalmus 73, iii
+
+MEMOR esto hujus, inimícus improperávit Dómino: \* et pópulus insípiens incitávit nomen tuum.
+
+Ne tradas béstiis ánimas confiténtes tibi, \* et ánimas páuperum tuórum ne obliviscáris in finem.
+
+Réspice in testaméntum tuum: \* quia repléti sunt, qui obscuráti sunt terræ dómibus iniquitátum.
+
+Ne avertátur húmilis factus confúsus: \* pauper et inops laudábunt nomen tuum.
+
+Exsúrge, Deus, júdica causam tuam: \* memor esto improperiórum tuórum, eórum quæ ab insipiénte sunt tota die.
+
+Ne obliviscáris voces inimicórum tuórum: \* supérbia eórum, qui te odérunt, ascéndit semper.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Memor esto congregatiónis tuæ, Dómine, quam possedísti ab inítio.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos in multa patiéntia, in jejúniis multis, per arma justítiæ.
+
+**Capitulum** *Is. 55, 7*
+
+DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus, et ad Deum nostrum, quóniam multus est ad ignoscéndum.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis.
+
+℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde

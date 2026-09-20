@@ -13492,3 +13492,59 @@ Et occídit pingues eórum, \* et eléctos Israël impedívit.
 **Ant.** Allelúja, allelúja, allelúja.
 
 ℣. Deus regenerávit nos in spem vivam, allelúja. ℟. Per resurrectiónem Jesu Christi ex mórtuis, allelúja.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+#### Extra Tempus Paschale
+
+**Ant.** Deus adjútor \* est eórum: et Excélsus redémptor eórum est.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 77, iv
+
+IN ómnibus his peccavérunt adhuc: \* et non credidérunt in mirabílibus ejus.
+
+Et defecérunt in vanitáte dies eórum: \* et anni eórum cum festinatióne.
+
+Cum occíderet eos, quærébant eum: \* et revertebántur, et dilúculo veniébant ad eum.
+
+Et rememoráti sunt quia Deus adjútor est eórum: \* et Deus excélsus redémptor eórum est.
+
+Et dilexérunt eum in ore suo, \* et lingua sua mentíti sunt ei:
+
+Cor autem eórum non erat rectum cum eo: \* nec fidéles habíti sunt in testaménto ejus.
+
+Ipse autem est miséricors, et propítius fiet peccátis eórum: \* et non dispérdet eos.
+
+Et abundávit ut avérteret iram suam: \* et non accéndit omnem iram suam:
+
+Et recordátus est quia caro sunt: \* spíritus vadens, et non rédiens.
+
+Quóties exacerbavérunt eum in desérto, \* in iram concitavérunt eum in inaquóso?
+
+Et convérsi sunt, et tentavérunt Deum: \* et Sanctum Israël exacerbavérunt.
+
+**Ant.** Deus adjútor est eórum: et Excélsus redémptor eórum est.
+
+**Ant.** Redémit eos \* Dóminus de manu tribulántis.
+
+###### Psalmus 77, v
+
+NON sunt recordáti manus ejus, \* die qua redémit eos de manu tribulántis.
+
+Sicut pósuit in Ægýpto signa sua, \* et prodígia sua in campo Táneos.
+
+Et convértit in sánguinem flúmina eórum, \* et imbres eórum, ne bíberent.
+
+Misit in eos cœnomýiam, et comédit eos: \* et ranam, et dispérdidit eos.
+
+Et dedit ærúgini fructus eórum, \* et labóres eórum locústæ.
+
+Et occídit in grándine víneas eórum, \* et moros eórum in pruína.

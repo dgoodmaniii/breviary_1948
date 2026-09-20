@@ -4149,3 +4149,51 @@ Erípuit me de inimícis meis fortíssimis, et ab his qui odérunt me: \* quóni
 Prævenérunt me in die afflictiónis meæ: \* et factus est Dóminus protéctor meus.
 
 Et edúxit me in latitúdinem: \* salvum me fecit, quóniam vóluit me.
+
+Et retríbuet mihi Dóminus secúndum justítiam meam, \* et secúndum puritátem mánuum meárum retríbuet mihi:
+
+Quia custodívi vias Dómini, \* nec ímpie gessi a Deo meo.
+
+Quóniam ómnia judícia ejus in conspéctu meo: \* et justítias ejus non répuli a me.
+
+Et ero immaculátus cum eo: \* et observábo me ab iniquitáte mea.
+
+Et retríbuet mihi Dóminus secúndum justítiam meam: \* et secúndum puritátem mánuum meárum in conspéctu oculórum ejus.
+
+Cum sancto sanctus eris, \* et cum viro innocénte ínnocens eris:
+
+Et cum elécto eléctus eris: \* et cum pervérso pervertéris.
+
+Quóniam tu pópulum húmilem salvum fácies: \* et óculos superbórum humiliábis.
+
+Quóniam tu illúminas lucérnam meam, Dómine: \* Deus meus, illúmina ténebras meas.
+
+Quóniam in te erípiar a tentatióne, \* et in Deo meo transgrédiar murum.
+
+Deus meus, impollúta via ejus: elóquia Dómini igne examináta: \* protéctor est ómnium sperántium in se.
+
+Quóniam quis Deus præter Dóminum? \* aut quis Deus præter Deum nostrum?
+
+Deus, qui præcínxit me virtúte: \* et pósuit immaculátam viam meam.
+
+Qui perfécit pedes meos tamquam cervórum, \* et super excélsa státuens me.
+
+Qui docet manus meas ad prǽlium: \* et posuísti, ut arcum áëreum, bráchia mea.
+
+**Ant.** Retríbuet mihi Dóminus secúndum justítiam meam.
+
+**Ant.** Vivit Dóminus, \* et benedíctus Deus salútis meæ.
+
+###### Psalmus 17, iii
+
+ET dedísti mihi protectiónem salútis tuæ: \* et déxtera tua suscépit me:
+
+Et disciplína tua corréxit me in finem: \* et disciplína tua ipsa me docébit.
+
+Dilatásti gressus meos subtus me: \* et non sunt infirmáta vestígia mea:
+
+Pérsequar inimícos meos, et comprehéndam illos: \* et non convértar, donec defíciant.
+
+Confríngam illos, nec póterunt stare: \* cadent subtus pedes meos.
+
+Et præcinxísti me virtúte ad bellum: \* et supplantásti insurgéntes in me subtus me.

@@ -1215,3 +1215,51 @@ Regnans per omne sæculum. Amen.
 {RUBRIC: In Officio feriali: dicitur quotidie sequens}
 
 **Ant.** Per arma justítiæ \* virtútis Dei commendémus nosmetípsos in multa patiéntia.
+
+**Capitulum** *Is. 58, 7*
+
+FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nudum, óperi eum, et carnem tuam ne despéxeris.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Tempore Passionis
+
+{RUBRIC: In Officio dominicali, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali: In omnibus Feriis infra hebdomadam Passionis dicitur sequens}
+
+**Ant.** Numquid rédditur \* pro bono malum, quia fodérunt fóveam ánimæ meæ?
+
+{RUBRIC: In Feria vero II, III et IV Majoris Hebdomadæ Antiphona quinta ex Laudibus Feriæ currentis ut in Proprio de Tempore.}
+
+{RUBRIC: In ipsis autem Feriis, infra utramque hebdomadam, dicitur quotidie sequens}
+
+**Capitulum** *Jer. 18, 20*
+
+RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis.
+
+{RUBRIC: In Dominicis vero et in ómnibus Fériis, supérius indicátis, dicitur sequens}
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+#### Tempore Paschali
+
+{RUBRIC: In Officio dominicali, a Dominica in Albis usque ad Dominicam V post Pascha inclusive, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali: a Feria II post Dominicam in Albis usque ad Vigiliam Ascensionis inclusive dicitur quotidie sequens}
+
+**Capitulum** *1 Petri 3, 18*
+
+CHRISTUS semel pro peccátis nostris mórtuus est, justus pro injústis, ut nos offérret Deo, mortificátus quidem carne, vivificátus autem spíritu.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus} Dóminus vobíscum {RUBRIC: cum Ora-

@@ -9234,4 +9234,82 @@ Nolíte confídere in princípibus: \* in fíliis hóminum, in quibus non est sa
 
 Exíbit spíritus ejus, et revertétur in terram suam: \* in illa die períbunt omnes cogitatiónes eórum.
 
-Beátus, cujus Deus Jacob adjútor ejus, spes ejus in Dómino, Deo ipsíus: \* qui fecit cælum et terram,
+Beátus, cujus Deus Jacob adjútor ejus, spes ejus in Dómino, Deo ipsíus: \* qui fecit cælum et terram, mare, et ómnia, quæ in eis sunt.
+
+Qui custódit veritátem in sæculum, facit judícium injúriam patiéntibus: \* dat escam esuriéntibus.
+
+Dóminus solvit compedítos: \* Dóminus illúminat cæcos.
+
+Dóminus érigit elísos, \* Dóminus díligit justos.
+
+Dóminus custódit ádvenas, pupíllum et víduam suscípiet: \* et vias peccatórum dispérdet.
+
+Regnábit Dóminus in sæcula, Deus tuus, Sion, \* in generatiónem et generatiónem.
+
+### Extra Tempus Paschale
+
+**Ant.** Laudábo Deum meum in vita mea.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali T. P.
+
+**Capitulum** *Rom. 6, 9-10*
+
+CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo.
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus ínfremit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Reliqua ut in Ordinario. 13}
+
+---
+
+## Ad Laudes II
+
+*In Feriis IV post Dominicam I Quadragesimæ usque ad Feriam IV Majoris Hebdomadæ inclusive, quando fit Officium de Feria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Amplius lava me.
+
+### Fer. IV Majoris Hebdomadæ
+
+**Ant.** Líbera me.

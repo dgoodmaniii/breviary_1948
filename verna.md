@@ -13818,3 +13818,49 @@ Et cognóscant quia nomen tibi Dóminus: \* tu solus Altíssimus in omni terra.
 ###### Psalmus 98
 
 DOMINUS regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus: \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus.
+
+**Ant.** Eripe me \* de inimícis meis, Dómine, ad te confúgi.
+
+###### Psalmus 142
+
+DOMINE, exáudi oratiónem meam: áuribus pércipe obsecratiónem meam in veritáte tua: \* exáudi me in tua justítia.
+
+Et non intres in judícium cum servo tuo: \* quia non justificábitur in conspéctu tuo omnis vivens.
+
+Quia persecútus est inimícus ánimam meam: \* humiliávit in terra vitam meam.
+
+Collocávit me in obscúris sicut mórtuos sæculi: \* et anxiátus est super me spíritus meus, in me turbátum est cor meum.
+
+Memor fui diérum antiquórum, meditátus sum in ómnibus opéribus tuis: \* in factis mánuum tuárum meditábar.
+
+Expándi manus meas ad te: \* ánima mea sicut terra sine aqua tibi.
+
+Velóciter exáudi me, Dómine: \* defécit spíritus meus.
+
+Non avértas fáciem tuam a me: \* et símilis ero descendéntibus in lacum.
+
+Audítam fac mihi mane misericórdiam tuam: \* quia in te sperávi.
+
+Notam fac mihi viam, in qua ámbulem: \* quia ad te levávi ánimam meam.
+
+Eripe me de inimícis meis,

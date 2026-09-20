@@ -41496,3 +41496,23 @@ SIMILIS huic vídua, velut eméritis veterána stipéndiis castitátis, et si co
 *Cap. 13, 44-52*
 
 IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile est regnum cælórum thesáuro abscóndito in agro. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 11 in Evang.}
+
+CÆLORUM regnum, fratres caríssimi, idcírco terrénis rebus símile dícitur, ut ex his, quæ ánimus novit, surgat ad incógnita, quæ non novit: quátenus exémplo visibílium se ad invisibília rápiat, et per ea, quæ usu dídicit, quasi confricátus incaléscat; ut per hoc, quod scit notum dilígere, discat et incógnita amáre. Ecce enim cælórum regnum thesáuro abscóndito in agro comparátur; quem, qui invénit homo, abscóndit, et præ gáudio illíus vadit, et vendit univérsa quæ habet, et emit agrum illum.
+
+##### Pro non Virgine
+
+℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ in lingua ejus: considerávit sémitas domus suæ, \* Et panem otiósa non comédit. ℣. Gustávit et vidit quia bona est negotiátio ejus: non exstinguétur in nocte lucérna ejus. — Et.
+
+##### Pro Virgine
+
+℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum: \* Et veniénte Dómino, introívit cum eo ad núptias. ℣. Média nocte clamor factus est: Ecce sponsus venit, exíte óbviam ei. — Et.
+
+**Benedictio.** Cujus vel Quarum festum cólimus.
+
+#### Lectio viii
+
+QUA in re hoc quoque notándum est, quod invéntus thesáurus abscónditur, ut servétur: quia stúdium cæléstis desidérii a malígnis spirítibus custodíre non súfficit, qui hoc ab humánis láudibus non abscóndit. In præsénti étenim vita quasi in via sumus, qua ad pátriam pérgimus. Malígni autem spíritus iter nostrum quasi quidam latrúnculi óbsident. Deprædári ergo desíderat, qui thesáurum públice portat in via. Hoc autem dico, non ut próximi ópera nostra bona non vídeant, cum scriptum sit: Vídeant ópera vestra bona, et gloríficent Patrem vestrum, qui in cælis est; sed ut per hoc, quod ágimus, laudes extérius non quærámus. Sic autem sit opus in público, quátenus inténtio máneat in occúlto: ut et de bono ópere próximis præbeámus exémplum, et tamen per intentiónem, qua Deo soli placére quǽrimus, semper optémus secrétum.

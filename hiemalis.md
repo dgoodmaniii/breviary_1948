@@ -34656,3 +34656,67 @@ TE dícimus præcónio,
 Intácta Mater Núminis,
 Nostris benígna láudibus
 Tuam repénde grátiam.
+
+Sontes Adámi pósteri,
+Infécta proles gígnimur;
+Labis paternæ néscia
+Tu sola, Virgo, créderis.
+
+Caput dracónis ínvidi
+Tu cónteris vestígio,
+Et sola glóriam refers
+Intaminátæ oríginis.
+
+O gentis humánæ decus,
+Quæ tollis Hevæ oppróbrium,
+Tu nos tuére súpplices,
+Tu nos labántes érige.
+
+Serpéntis antíqui potens
+Astus retúnde et ímpetus,
+Ut cǽlitum perénnibus
+Per te fruámur gáudiis.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Ave, grátia plena; \* Dóminus tecum.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Ave, grátia plena; Dóminus tecum.
+
+**Ant.** Benedícta tu inter mulíeres \* et benedíctus fructus ventris tui.
+
+###### Psalmus 18
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.

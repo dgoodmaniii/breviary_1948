@@ -1016,4 +1016,48 @@ Regnans per omne sæculum. Amen.
 
 **Capitulum** *Joel 2, 12-13*
 
-CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et scíndite corda vestra,
+CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et scíndite corda vestra, et non vestiménta vestra, ait Dóminus omnípotens.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse.
+
+℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+#### Tempore Passionis
+
+{RUBRIC: In Officio dominicali, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali: In omnibus Feriis infra hebdomadam Passionis dicitur sequens}
+
+**Ant.** Judicásti, Dómine, \* causam ánimæ meæ, defénsor vitæ meæ, Dómine, Deus meus.
+
+{RUBRIC: In Feria vero II, III et IV Majoris Hebdomadæ Antiphona secunda ex Laudibus Feriæ currentis ut in Proprio de Tempore.}
+
+{RUBRIC: In ipsis autem Feriis, infra utramque hebdomadam, dicitur quotidie sequens}
+
+**Capitulum** *Jer. 17, 13*
+
+DOMINE, omnes qui te derelínquunt, confundéntur: recedéntes a te, in terra scribéntur: quóniam dereliquérunt venam aquárum vivéntium Dóminum.
+
+{RUBRIC: In Dominicis vero et in ómnibus Fériis, supérius indicátis, dicitur sequens}
+
+℟. br. Erue a frámea, \* Deus, ánimam meam. Erue. ℣. Et de manu canis únicam meam. Deus. Erue. ℣. De ore leónis líbera me, Dómine. ℟. Et a córnibus unicórnium humilitátem meam.
+
+#### Tempore Paschali
+
+{RUBRIC: In Officio dominicali, a Dominica in Albis usque ad Dominicam V post Pascha inclusive, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali, a Feria II post Dominicam in Albis usque ad Vigiliam Ascensionis inclusive dicitur quotidie sequens}
+
+**Capitulum** *Rom. 6, 9-10*
+
+CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens}
+
+℟. br. Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+{RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus} Dóminus vobíscum {RUBRIC: cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}

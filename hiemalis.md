@@ -37520,3 +37520,91 @@ ECCE enim, binos ad prædicándum discípulos Dóminus mittit: quátenus hoc nob
 HINC namque eísdem prædicatóribus Isaías dicit: Paráte viam Dómini, rectas fácite sémitas Dei nostri. Hinc fíliis Psalmísta ait: Iter fácite ei, qui ascéndit super occásum. Super occásum namque Dóminus ascéndit: quia unde in passióne occúbuit, inde majórem suam glóriam resurgéndo manifestávit. Super occásum vidélicet ascéndit; quia mortem quam pértulit, resurgéndo calcávit. Ei ergo qui ascéndit super occásum, iter fácimus, cum nos ejus glóriam vestris méntibus prædicámus, ut eas et ipse post véniens, per amóris sui præséntiam illústret.
 
 {RUBRIC: Te Deum laudámus.}
+
+[IMAGE]
+
+# Commune unius aut plurium Summorum Pontificum
+
+{RUBRIC: Omnia de Communi unius aut plurimórum Mártyrum vel Confessóris Pontíficis, juxta qualitátem festi, prǽter sequéntia:}
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum N. (Mártyrem tuum atque) Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Pro pluribus Sum. Pontif.:}
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátos N. et N. (Mártyres tuos atque) Summos Pontífices, perpétua protectióne custódi; quos totíus Ecclésiæ præstitísti esse pastóres. Per Dóminum.
+
+{RUBRIC: Si vero agénda sit commemorátio altérius Summi Pontíficis, dícitur sequens}
+
+#### Oratio
+
+DEUS, qui Ecclésiam tuam in apostólicæ petræ soliditáte fundátam, ab infernárum éruis terróre portárum: præsta, quǽsumus, ut intercedénte beáto N. (Mártyre tuo atque) Summo Pontífice, in tua veritáte persístens, contínua securitáte muniátur. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hó-mines esse Fílium hóminis? Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ}
+
+{RUBRIC: Sermo 2 in anniversário assúmpt. suæ, ante médium}
+
+CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens: Tu es Christus Fílius Dei vivi; Dóminus ait: Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui in cælis est: et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam. Et tibi dabo claves regni cælórum: et quodcúmque ligáveris super terram, erit ligátum et in cælis: et quodcúmque sólveris super terram, erit solútum et in cælis. Manet ergo dispositio veritátis, et beátus Petrus, in accépta fortitúdine petræ persevérans, suscépta Ecclésiæ gubernácula non relíquit.
+
+##### Pro Pontifice Martyre
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+##### Pro pluribus Pont. Mart.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+##### Pro Pontifice Conf.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Pro pluribus Pontif. Conf.
+
+℟. Beáti, qui custódiunt judícium, \* Et fáciunt justítiam in omni témpore. ℣. Deus judícii Dóminus: beáti omnes, qui exspéctant eum. — Et.
+
+#### Lectio viii
+
+IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis língua, quæ confitétur Dóminum, magistério hujus vocis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc éruit mundo, ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte muníta est, ut eam neque hærética umquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, rationábili obséquio celebrétur hodiérna festívitas: ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendatárum sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.
+
+##### Pro Pontifice Martyre
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+{RUBRIC: Sequens Responsórium dícitur, loco præcedéntis, in Offício uníus Mártyris, qui non effúso sánguine occúbuerit.}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sǽculum sǽculi. — Posuísti. Glória Patri. Posuísti.
+
+##### Pro pluribus Pont. Mart.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis: \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória Patri. Mercédem.
+
+##### Pro Pontifice Confessore
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+##### Pro Pontifice Doctore
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et implévit. Glória Patri. Et implévit.
+
+##### Pro pluribus Pontif. Conf.
+
+℟. Vigiláte ergo, nescítis enim quando Dóminus do-mus véniat: \* Ne cum vénerit repénte, invéniat vos dormiéntes. ℣. Quod autem vobis dico, ómnibus dico: Vigiláte. — Ne. Glória Patri. Ne.
+
+#### Lectio ix
+
+CUM ergo cohortatiónes nostras áuribus vestræ sanctitátis adhibémus, ipsum vobis, cujus vice fúngimur, loqui crédite: quia et illíus vos afféctu monémus, et non áliud vobis, quam quod dócuit, prædicámus; obsecrántes, ut succíncti lumbos mentis vestræ, castam et sóbriam vitam in Dei timóre ducátis. Coróna mea, sicut Apóstolus ait, et gáudium vos estis, si fides vestra, quæ ab inítio Evangélii in univérso mundo prædicáta est, in dilectióne et sanctitáte permánserit. Nam licet omnem Ecclésiam, quæ in toto est orbe terrárum, cunctis opórteat florére virtútibus; vos tamen præcípue inter céteros pópulos decet méritis pietátis excéllere, quos in ipsa apostólicæ petræ arce fundátos, et Dóminus noster Jesus Christus cum ómnibus redémit, et beátus Apóstolus Petrus præ ómnibus erudívit.
+
+{RUBRIC: Te Deum laudámus.}

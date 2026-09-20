@@ -47826,4 +47826,42 @@ DOMINE Jesu, Redémptor noster amantíssime et Sacérdos in ætérnum, nos súpp
 
 Orémus. **Oratio**
 
-OMNIPOTENS sempitérne Deus, qui Sanctórum tuórum imágines (sive effígies) sculpi aut pingi non réprobas, ut, quóties illas óculis córporis intuémur, tóties eórum actus et sanctitátem ad imitándum memóriæ óculis medité-
+OMNIPOTENS sempitérne Deus, qui Sanctórum tuórum imágines (sive effígies) sculpi aut pingi non réprobas, ut, quóties illas óculis córporis intuémur, tóties eórum actus et sanctitátem ad imitándum memóriæ óculis meditémur: hanc, quǽsumus, imáginem {RUBRIC: (seu sculptúram)} in honórem et memóriam unigéniti Fílii tui, Dómini nostri Jesu Christi {RUBRIC: (vel beatíssimæ Vírginis Maríæ, Matris Dómini nostri Jesu Christi, vel beáti} N. {RUBRIC: Apóstoli tui, vel Mártyris, vel Pontíficis, vel Confessóris, vel beátæ} N. {RUBRIC: Vírginis, vel Mártyris)} adaptátam bene ✠ dícere et sanctifi ✠ cáre dignéris: et præsta; ut, quicúmque coram illa unigénitum Fílium tuum {RUBRIC: (vel beatíssimam Vírginem, vel gloriósum Apóstolum, sive Mártyrem, sive Pontíficem, vel Confessórem, vel gloriósam Vírginem, vel Mártyrem)} suppliciter cólere et honoráre studúerit, illíus méritis et obténtu a te grátiam in præsénti, et ætérnam glóriam óbtineat in futúrum. Per {RUBRIC: (eúmdem)} Christum, Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Ultimo aspérgat aqua benedícta.}
+
+## Benedictio Domorum
+
+### Extra Sabbatum Sanctum
+
+{RUBRIC: Párochus seu alii Sacerdótes voléntes áliquam particulárem domum, vel generáliter domos fidélium infra annum aspérgere aqua benedícta, ingrediéntes domum dicant:}
+
+Pax huic dómui et ómnibus habitántibus in ea.
+
+{RUBRIC: Deinde, loca aspergéndo, dicat:}
+
+**Ant.** Aspérges me, Dómine, hyssópo, et mundábor: lavábis me, et super nivem dealbábor.
+
+{RUBRIC: Ps. 50} Miserére mei, Deus, secúndum magnam misericórdiam tuam.
+
+℣. Glória Patri, {RUBRIC: etc.}
+
+{RUBRIC: Et repetitur Antiphona} Aspérges me, {RUBRIC: etc.}
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+EXAUDI nos, Dómine sancte, Pater omnípotens, ætérne Deus: et míttere dignéris sanctum Angelum tuum de cælis, qui custódiat, fóveat, prótegat, vísitet atque deféndat omnes habitántes in hoc habitáculo. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Deinde aspérgat aqua benedícta.}
+
+## Benedictio Rosariorum B. Mariæ V.
+
+### Formula Brevior
+
+{RUBRIC: (approbáta a S. R. C. die 23 Nov. 1918)}
+
+AD laudem et glóriam Deíparæ Vírginis Maríæ, in memóriam mysteriórum vitæ, mortis et re-

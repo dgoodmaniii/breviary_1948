@@ -43508,4 +43508,53 @@ AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désin
 
 {RUBRIC: Capit.} *Eccli. 24, 15-16*
 
-ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi,
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit.
+
+℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+##### AD NONAM
+
+**Ant.** Speciósa \* facta es et suávis in delíciis tuis, sancta Dei Génitrix.
+
+{RUBRIC: Capit.} *Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+##### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vesperis [174], præter}
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus.
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## Officium Sanctæ Mariæ in Sabbato
+
+{RUBRIC: Simplex}
+
+{RUBRIC: Omnibus Sabbátis, extra Tempus Advéntus, usque ad Sabbátum post Sexagésimam inclusíve, nisi agéndum fúerit de áliquo Festo dúplici, étiam transláto, aut semidúplici, vel de Octáva aut Vigília occurrénti, aut de Domínica anticipáta juxta Rúbricas, fit Offícium de sancta María, in quo, sumptis Antiphónis et Psalmis de Feria VI et Sábbato occurrentibus, réliqua dicúntur ut infra.}
+
+##### IN VESPERIS
+
+{RUBRIC: Anæ et Psalmi ut supra. 269}
+
+{RUBRIC: Capit.} Ab inítio. [188]
+
+{RUBRIC: Prima stropha sequéntis Hymni dícitur flexis génibus.}
+
+### Hymnus
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.

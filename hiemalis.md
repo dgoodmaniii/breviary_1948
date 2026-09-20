@@ -38675,3 +38675,107 @@ Cóngregans sicut in utre aquas maris: \* ponens in thesáuris abýssos.
 Tímeat Dóminum omnis terra: \* ab eo autem commoveántur omnes inhabitántes orbem.
 
 Quóniam ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Dóminus díssipat consília géntium: \* réprobat autem cogitatiónes populórum, et réprobat consília príncipum.
+
+Consílium autem Dómini in ætérnum manet: \* cogitatiónes cordis ejus in generatióne et generatiónem.
+
+Beáta gens, cujus est Dóminus, Deus ejus: \* pópulus, quem elégit in hereditátem sibi.
+
+De cælo respéxit Dóminus: \* vidit omnes fílios hóminum.
+
+De præparáto habitáculo suo \* respéxit super omnes, qui hábitant terram.
+
+Qui finxit sigillátim corda eórum: \* qui intélligit ómnia ópera eórum.
+
+Non salvátur rex per multam virtútem: \* et gigas non salvábitur in multitúdine virtútis suæ.
+
+Fallax equus ad salútem: \* in abundántia autem virtútis suæ non salvábitur.
+
+Ecce, óculi Dómini super metuéntes eum: \* et in eis, qui sperant super misericórdia ejus:
+
+Ut éruat a morte ánimas eórum: \* et alat eos in fame.
+
+Anima nostra sústinet Dóminum: \* quóniam adjútor et protéctor noster est.
+
+Quia in eo lætábitur cor nostrum: \* et in nómine sancto ejus sperávimus.
+
+Fiat misericórdia tua, Dómine, super nos: \* quemádmodum sperávimus in te.
+
+**Ant.** Justi autem in perpétuum vivent, et apud Dóminum est merces eórum.
+
+**Ant.** Tradidérunt \* córpora sua in mortem, ne servírent idólis: ídeo coronáti póssident palmam.
+
+###### Psalmus 33
+
+BENEDÍCAM Dóminum in omni témpore: \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea: \* áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum: \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me: \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini: \* et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum: \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum: \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus: \* beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus: \* quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt: \* inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me: \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam: \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo: \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum: \* inquíre pacem, et perséquere eam.
+
+Oculi Dómini super justos: \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala: \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos: \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde: \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum: \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
+
+Mors peccatórum péssima: \* et qui odérunt justum delínquent.
+
+Rédimet Dóminus ánimas servórum suórum: et non delínquent omnes qui sperant in eo.
+
+**Ant.** Tradidérunt córpora sua in mortem, ne servírent idólis: ídeo coronáti póssident palmam.
+
+**Ant.** Ecce, merces \* Sanctórum copiósa est apud Deum: ipsi vero mórtui sunt pro Christo, et vivent in ætérnum.
+
+###### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.

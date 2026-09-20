@@ -34994,3 +34994,39 @@ Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ej
 ###### Psalmus 97
 
 CANTÁTE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Benedíxit te Dóminus in virtúte sua, quia per te ad níhilum redégit inimícos nostros.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 1, 26-31*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Bernárdi Abbátis}
+
+{RUBRIC: Homilía 2 super} Missus est
+
+ÆTÁRE, pater Adam, sed magis tu, o Heva mater, exsúlta, qui, sicut ómnium paréntes, ita ómnium fuístis peremptóres; et, quod infelícius est, prius peremptóres quam paréntes. Ambo, inquam, consolámini super fília, et tali fília; sed illa ámplius de qua malum ortum est prius, cujus oppróbrium in omnes pertransívit mulíeres. Instat namque tempus, quo jam tollátur oppróbrium, nec hábeat vir quid causétur advérsus féminam: qui útique, dum se imprudénter excusáre conarétur, crudéliter illam accusáre non cunctátus est, dicens: Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Proptérea curre, Heva, ad Maríam, curre, mater, ad

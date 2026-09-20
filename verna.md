@@ -11105,3 +11105,54 @@ Ut sis perénne méntibus
 Paschále, Jesu, gáudium,
 A morte dira críminum
 Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+### In I Nocturno
+
+#### Extra Tempus Paschale
+
+**Ant.** In Deo salutáre meum, \* et glória mea: et spes mea in Deo est.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 61
+
+NONNE Deo subjécta erit ánima mea? \* ab ipso enim salutáre meum.
+
+Nam et ipse Deus meus, et salutáris meus: \* suscéptor meus, non movébor ámplius.
+
+Quoúsque irrúitis in hóminem? \* interfícitis univérsi vos: tamquam paríeti inclináto et macériæ depúlsæ?
+
+Verúmtamen prétium meum cogitavérunt repéllere, cucúrri in siti: \* ore suo benedicébant, et corde suo maledicébant.
+
+Verúmtamen Deo subjécta esto, ánima mea: \* quóniam ab ipso patiéntia mea.
+
+Quia ipse Deus meus, et salvátor meus: \* adjútor meus, non emigrábo.
+
+In Deo salutáre meum, et glória mea: \* Deus auxílii mei, et spes mea in Deo est.
+
+Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra: \* Deus adjútor noster in ætérnum.
+
+Verúmtamen vani fílii hóminum, mendáces fílii hóminum in statéris: \* ut decípiant ipsi de vanitáte in idípsum.
+
+Nolíte speráre in iniquitáte, et rapínas nolíte concupíscere: \* divítiæ si áffluant, nolíte cor appónere.
+
+Semel locútus est Deus, duo hæc audívi, quia potéstas Dei est, et tibi, Dómine, misericórdia: \* quia tu reddes unicuíque juxta ópera sua.
+
+**Ant.** In Deo salutáre meum, et glória mea: et spes mea in Deo est.
+
+**Ant.** Vidéte ópera Dómini, \* et audítam fácite vocem laudis ejus.
+
+###### Psalmus 65, i
+
+JUBILATE Deo, omnis terra, psalmum dícite nómini ejus: \* date glóriam laudi ejus.
+
+Dícite Deo: Quam terribília sunt ópera tua, Dómine! \* in multitúdine virtútis tuæ mentiéntur tibi inimíci tui.
+
+Omnis terra adóret te, et psallat tibi: \* psalmum dicat nómini tuo.

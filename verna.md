@@ -16944,3 +16944,45 @@ JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum,
 **Pro plur. Mart. extra T. P.**
 
 FULGEBUNT justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt natiónes, et dominabúntur pópulis: et regnábit Dóminus illórum in perpétuum.
+
+**Pro Conf. Pont.**
+
+FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+**Pro Conf. non Pont.**
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
+
+**Pro Virgine Martyre**
+
+DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+**Pro Virgine non Martyre**
+
+O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam apud Deum nota est, et apud hómines.
+
+**Pro Martyre tantum**
+
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+**Pro nec Virg. nec Mart.**
+
+MULTAE fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo: múlier timens Dóminum, ipsa laudábitur.
+
+**Pro Dedicatione Ecclesiæ**
+
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+##### In Officiis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+---
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum} Pater noster {RUBRIC: secreto, nisi sequatur alia Hora.}

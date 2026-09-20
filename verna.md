@@ -16643,3 +16643,84 @@ Fusus Agni córpore.
 
 Sempitérna sit beátæ
 Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Preces feriales, ut supra. 315}
+
+{RUBRIC: Reliqua ut in Ordinario. 13}
+
+---
+
+## Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Exaltáre, Dómine.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego.
+
+{RUBRIC: Sabbato post Dom. Passionis}
+
+**Ant.** Líbera me, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 93, i
+
+DEUS ultiónum Dóminus: \* Deus ultiónum líbere egit.
+
+Exaltáre, qui júdicas terram: \* redde retributiónem supérbis.
+
+Usquequo peccatóres, Dómine, \* úsquequo peccatóres gloriabúntur:
+
+Effabúntur, et loquéntur iniquitátem: \* loquéntur omnes, qui operántur injustítiam?
+
+Pópulum tuum, Dómine, humiliavérunt: \* et hereditátem tuam vexavérunt.
+
+Víduam, et ádvenam interfecérunt: \* et pupíllos occidérunt.
+
+Et dixérunt: Non vidébit Dóminus, \* nec intélliget Deus Jacob.
+
+Intellígite, insipiéntes in pópulo: \* et stulti, áliquándo sápite.
+
+Qui plantávit aurem, non áudiet? \* aut qui finxit óculum, non consíderat?

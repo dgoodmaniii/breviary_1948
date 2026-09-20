@@ -5202,3 +5202,63 @@ Accéndat ardor próximos.
 Patríque compar Unice,
 Cum Spíritu Paráclito
 Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Illuminátio mea.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Advenérunt nobis.
+
+{RUBRIC: Feria II post Dom. Passionis}
+
+**Ant.** Judicásti, Dómine.
+
+{RUBRIC: Feria II Majoris Hebdomadæ}
+
+**Ant.** Fráméa, suscitáre.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 26, i
+
+DOMINUS illuminátio mea, et salus mea, \* quem timébo?
+
+Dóminus protéctor vitæ meæ, \* a quo trepidábo?
+
+Dum apprópiant super me nocéntes, \* ut edant carnes meas:
+
+Qui tríbulant me inimíci mei, \* ipsi infirmáti sunt, et cecidérunt.
+
+Si consístant advérsum me castra, \* non timébit cor meum.
+
+Si exsúrgat advérsum me prælium, \* in hoc ego sperábo.
+
+Unam pétii a Dómino, hanc requíram, \* ut inhábitem in domo Dómini ómnibus diébus vitæ meæ:
+
+Ut vídeam voluptátem Dómini, \* et vísitem templum ejus.
+
+Quóniam abscóndit me in tabernáculo suo: \* in die malórum protéxit me in abscóndito tabernáculi sui.
+
+In petra exaltávit me: \* et nunc exaltávit caput meum super inimícos meos.
+
+Circuívi, et immolávi in tabernáculo ejus hóstiam vociferatiónis: \* cantábo, et psalmum dicam Dómino.
+
+###### Psalmus 26, ii
+
+EXAUDI, Dómine, vocem meam, qua clamávi ad te: \* miserére mei, et exáudi me.
+
+Tibi dixit cor meum, exquisívit te fácies mea: \* fáciem tuam, Dómine, requíram.
+
+Ne avértas fáciem tuam a me: \* ne declínes in ira a servo tuo.
+
+Adjútor meus esto: \* ne derelínquas me, neque despícias me, Deus, salutáris meus.
+
+Quóniam pater meus, et mater mea dereliquérunt me: \* Dóminus autem assúmpsit me.
+
+Legem pone mihi, Dómine, in via tua: \* et dírige me in sémitam rectam propter inimícos meos.
+
+Ne tradíderis me in ánimas tribulántium me: \* quóniam insurrexérunt in me testes iníqui, et mentíta est iníquitas sibi.
+
+Credo vidére bona Dómini \* in terra vivéntium.

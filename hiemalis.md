@@ -37194,3 +37194,57 @@ PER manus autem Apostolórum fiébant signa et prodígia multa in plebe.
 IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contuméliam pati.
 
 ℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+### In II Vesperis
+
+**Ant.** Jurávit Dóminus, \* et non pænitébit eum: Tu es sacérdos in ætérnum.
+
+###### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Jurávit Dóminus, et non pænitébit eum: Tu es sacérdos in ætérnum.
+
+###### Psalmus 112
+
+LAUDÁTE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sǽculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Cóllocet eum Dóminus cum princípibus pópuli sui.
+
+**Ant.** Dirupísti, Dómine, \* víncula mea: tibi sacrificábo hóstiam laudis.
+
+###### Psalmus 115
+
+CRÉDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?

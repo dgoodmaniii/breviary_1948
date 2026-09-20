@@ -9703,3 +9703,47 @@ QUID gloriáris in malítia, \* qui potens es in iniquitáte?
 Tota die injustítiam cogitávit lingua tua: \* sicut novácula acúta fecísti dolum.
 
 Dilexísti malítiam super benignitátem: \* iniquitátem magis quam loqui æquitátem.
+
+Dilexísti ómnia verba præcipitatiónis, \* lingua dolósa.
+
+Proptérea Deus déstruet te in finem, \* evéllet te, et emigrábit te de tabernáculo tuo: et radícem tuam de terra vivéntium.
+
+Vidébunt justi, et timébunt, et super eum ridébunt, et dicent: \* Ecce homo, qui non pósuit Deum adjutórem suum:
+
+Sed sperávit in multitúdine divitiárum suárum: \* et prævalúit in vanitáte sua.
+
+Ego autem, sicut olíva fructífera in domo Dei, \* sperávi in misericórdia Dei in ætérnum: et in sæculum sæculi.
+
+Confitébor tibi in sæculum, quia fecísti: \* et exspectábo nomen tuum, quóniam bonum est in conspéctu sanctórum tuórum.
+
+###### Psalmus 52
+
+DIXIT insípiens in corde suo: \* Non est Deus.
+
+Corrúpti sunt, et abominábiles facti sunt in iniquitátibus: \* non est qui fáciat bonum.
+
+Deus de cælo prospéxit super fílios hóminum: \* ut vídeas si est intélligens, aut requírens Deum.
+
+Omnes declinavérunt, simul inútiles facti sunt: \* non est qui fáciat bonum, non est usque ad unum.
+
+Nonne scient omnes qui operántur iniquitátem, \* qui dévorant plebem meam ut cibum panis?
+
+Deum non invocavérunt: \* illic trepidavérunt timóre, ubi non erat timor.
+
+Quóniam Deus dissipávit ossa eórum qui homínibus placent: \* confúsi sunt, quóniam Deus sprevit eos.
+
+Quis dabit ex Sion salutáre Israël? \* cum convérterit Deus captivitátem plebis suæ, exsultábit Jacob, et lætábitur Israël.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 96, qui in Laudibus locum non habuit.}
+
+###### Psalmus 96
+
+DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.

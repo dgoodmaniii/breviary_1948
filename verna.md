@@ -18167,4 +18167,22 @@ IN illo témpore: Respondérunt Jesu quidam de scribis et pharisǽis, dicéntes:
 
 {RUBRIC: Liber 7 in Lucæ cap. 11}
 
-JUDÆORUM plebe damnáta, Ecclésiæ mystérium evidénter exprími-
+JUDÆORUM plebe damnáta, Ecclésiæ mystérium evidénter exprímitur, quæ in Ninivítis per pœniténtiam, et in regína Austri per stúdium percipiéndæ sapiéntiæ, de totíus orbis fínibus congregátur, ut pacífici Salomónis verba cognóscat. Regína plane, cujus regnum est indivísum, de divérsis et distántibus pópulis in unum corpus assúrgens.
+
+℟. Scíndite corda vestra, et non vestiménta vestra: et convertímini ad Dóminum Deum vestrum: \* Quia benígnus et miséricors est. ℣. Derelínquat ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus. — Quia.
+
+#### Lectio ii
+
+ITAQUE sacraméntum illud magnum est de Christo et Ecclésia. Sed tamen hoc majus est, quia illud in figúra ante præcéssit, nunc autem plenum in veritáte mystérium est. Illic enim Sálomon typus, hic autem Christus in suo córpore est. Ex duóbus ígitur constat Ecclésia: ut aut peccáre nésciat, aut peccáre désinat. Pœniténtia enim delíctum ábolet, sapiéntia cavet.
+
+℟. Frange esuriénti panem tuum, et egénos vagósque induc in domum tuam: \* Tunc erúmpet quasi mane lumen tuum, et anteíbit fáciem tuam justítia tua. ℣. Cum víderis nudum, óperi eum, et carnem tuam ne despéxeris. — Tunc.
+
+#### Lectio iii
+
+CETERUM Jonæ signum, ut typus Domínicæ passiónis, ita étiam grávium, quæ Judǽi commíserint, testificátio peccatórum est. Simul advértere licet et majestátis oráculum, et pietátis indícium. Namque Ninivitárum exémplo et denuntiátur supplícium, et remédium demonstrátur. Unde étiam Judǽi debent non desperáre indulgéntiam, si velint ágere pœniténtiam.
+
+℟. Abscóndite eleemósynam in sinu páuperum, et ipsa orábit pro vobis ad Dóminum: \* Quia sicut aqua exstínguit ignem, ita eleemósyna exstínguit peccátum. ℣. Date eleemósynam, et ecce ómnia munda sunt vobis. — Quia. Glória Patri. Quia.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Generátio \* hæc prava et pervérsa signum quærit; et signum non dábitur ei,

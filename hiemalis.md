@@ -44249,4 +44249,53 @@ ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Bu
 
 ##### AD SEXTAM
 
-**Ant.** Ne tímeas, María, \* invenísti grátiam apud
+**Ant.** Ne tímeas, María, \* invenísti grátiam apud Dóminum: ecce concípies et páries fílium, allelúja.
+
+#### Capitulum
+*Luc. 1, 32-33*
+
+DABIT illi Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum, et regni ejus non erit finis. ℟. Deo grátias.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+##### AD NONAM
+
+**Ant.** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum.
+
+#### Capitulum
+*Is. 7, 14-15*
+
+ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
+
+℣. Angelus Dómini nuntiávit Maríæ. ℟. Et concépit de Spíritu Sancto.
+
+---
+
+## III Post Nativitatem
+
+{RUBRIC: Quod dícitur a Vésperis diéi 24 Decémbris usque ad Complétorium diéi 2 Februárii inclusíve.}
+
+{RUBRIC: Omnia dicúntur ut supra per Annum notátur [195], præter sequéntia:}
+
+### In Vesperis
+
+{RUBRIC: Antíphonæ de Láudibus, ut infra.}
+
+**Ad Magnif. Ant.** Magnum \* hereditátis mystérium: templum Dei factus est úterus nesciéntis virum: non est pollútus ex ea carnem assúmens; omnes gentes vénient, dicéntes: Glória tibi, Dómine.
+
+**Oratio**
+
+DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti: tríbue, quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit et regnat.
+
+{RUBRIC: Quæ Orátio dícitur ad omnes Horas.}
+
+{RUBRIC: Commemorátio de Sanctis ut supra per Annum. [196]}
+
+{RUBRIC: Ad Complétorium ad Nunc dimíttis Antíphona} Magnum hereditátis, {RUBRIC: ut supra ad Vésperas.}
+
+##### AD LAUDES
+{RUBRIC: et per Horas, Anæ}
+
+**1** O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est; et procédens homo sine sémine, largítus est nobis suam Deitátem.
+
+**2** Quando natus es \* ineffabíliter ex Vírgine, tunc implétæ sunt Scriptúræ: sicut plúvia in vellus de-

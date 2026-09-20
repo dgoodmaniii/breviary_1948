@@ -5689,4 +5689,48 @@ Pater noster et Ave.
 
 **Ant.** Allelúja, \* allelúja, allelúja.
 
-{RUBRIC: Sub qua sola Ant. Allelúja, in hac et aliis Feriis, dicuntur
+{RUBRIC: Sub qua sola Ant. Allelúja, in hac et aliis Feriis, dicuntur omnes Psalmi usque ad Capitulum a Feria II post Dominicam in Albis, in omnibus trium Lectionum Officiis usque ad Feriam III Rogationum inclusive, et in Festis novem Lectionum de Sanctis usque ad Feriam VI post Octavam Ascensionis inclusive.}
+
+{RUBRIC: ¶ Antiphonæ, tam intra quam extra Tempus Paschale appositæ, dicuntur semper in Officio feriali et in Festis sive trium sive novem Lectionum, quando juxta Rubricas sumendi sint Psalmi de Feria, ut in Psalterio.}
+
+###### Psalmus 114
+
+DILEXI, quóniam exáudiet Dóminus \* vocem oratiónis meæ.
+
+Quia inclinávit aurem suam mihi: \* et in diébus meis invocábo.
+
+Circumdedérunt me dolóres mortis: \* et perícula inférni invenérunt me.
+
+Tribulatiónem et dolórem invéni: \* et nomen Dómini invocávi.
+
+O Dómine, líbera ánimam meam: \* miséricors Dóminus, et justus, et Deus noster miserétur.
+
+Custódiens párvulos Dóminus: \* humiliátus sum, et liberávit me.
+
+Convértere, ánima mea, in réquiem tuam: \* quia Dóminus benefécit tibi.
+
+Quia erípuit ánimam meam de morte: \* óculos meos a lácrimis, pedes meos a lapsu.
+
+Placébo Dómino \* in regióne vivórum.
+
+**Ant.** Inclinávit Dóminus aurem suam mihi.
+
+**Ant.** Vota mea \* Dómino reddam coram omni pópulo ejus.
+
+###### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.

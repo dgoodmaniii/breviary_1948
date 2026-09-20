@@ -46379,3 +46379,59 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
 ℣. Dispérsit, dedit páuperibus. ℟. Justítia ejus manet in sæculum sæculi.
+
+℣. Benedícam Dóminum in omni témpore. ℟. Semper laus ejus in ore meo.
+
+℣. In Dómino laudábitur ánima mea. ℟. Áudiant mansuéti, et læténtur.
+
+℣. Magnificáte Dóminum mecum. ℟. Et exaltémus nomen ejus in idípsum.
+
+℣. Sit nomen Dómini benedíctum. ℟. Ex hoc nunc et usque in sæculum.
+
+{RUBRIC: Deinde Sacérdos absolúte dicat:}
+
+RETRIBUERE dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. ℟. Amen.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Pater noster, totum secreto.}
+
+{RUBRIC: Quo finito, Sacérdos dicit:}
+
+℣. Deus det nobis suam pacem. ℟. Amen.
+
+## Ante Cœnam
+
+{RUBRIC: Sacérdos benedictúrus mensam incípit:} Benedícite, {RUBRIC: et alii repétunt:} Benedícite.
+
+{RUBRIC: Deinde Sacérdos incípit Versum:}
+
+EDENT páuperes, {RUBRIC: et alii prosequúntur:} Et saturabúntur, et laudábunt Dóminum, qui requírunt eum: vivent corda eórum in sæculum sæculi.
+
+Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Orémus.
+
+BENEDIC, Dómine, nos, et hæc tua dona, quæ de tua largitáte sumus sumptúri. Per Christum Dóminum nostrum. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+{RUBRIC: Bened.} Ad cœnam vitæ ætérnæ perdúcat nos Rex ætérnæ glóriæ. ℟. Amen.
+
+## Post Cœnam
+
+{RUBRIC: aguntur grátiæ ut post Prándium, sed dícitur:}
+
+℣. Memóriam fecit mirabílium suórum miséricors et miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+Glória Patri. Sicut erat.
+
+BENEDICTUS Deus in donis suis, et sanctus in ómnibus opéribus suis: Qui vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+{RUBRIC: Deinde alternátim dícitur Ps. 116 Laudáte Dóminum, omnes gentes, et relíqua ut supra. [252]}

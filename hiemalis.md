@@ -44079,4 +44079,63 @@ DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno gé
 
 **Ant.** In odórem.
 
-{RUBRIC: Ps. 122} Ad te levávi 148; {RUBRIC: Ps. 123} Nisi quia Dóminus
+{RUBRIC: Ps. 122} Ad te levávi 148; {RUBRIC: Ps. 123} Nisi quia Dóminus 149; {RUBRIC: Ps. 124} Qui confídunt in Dómino {RUBRIC: ibid.}
+
+**Ant.** In odórem unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis.
+
+#### Capitulum
+*Eccli. 24, 16*
+
+ET radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea. ℟. Deo grátias.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+CONCÉDE, miséricors Deus, fragilitáti nostræ præsídium: ut, qui sanctæ Dei Genitrícis memóriam ágimus; intercessiónis ejus auxílio, a nostris iniquitátibus resurgámus. Per eúmdem Dóminum.
+
+##### AD NONAM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Hymnus} Meménto. [199]
+
+**Ant.** Pulchra es.
+
+{RUBRIC: Ps. 125} In converténdo 149; {RUBRIC: Ps. 126} Nisi Dóminus 150; {RUBRIC: Ps. 127} Beáti omnes. 189
+
+**Ant.** Pulchra es et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+{RUBRIC: Capit.} *Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris. ℟. Deo grátias.
+
+℣. Post partum, Virgo, invioláta permansísti. ℟. Dei Génitrix, intercéde pro nobis.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+FAMULÓRUM tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui, Dómini nostri, intercessióne salvémur: Qui tecum vivit.
+
+---
+
+## II In Adventu
+
+{RUBRIC: Quod dícitur a Vésperis Sábbati ante Dominícam I Advéntus usque ad Nonam Vigíliæ Nativitátis Dómini inclusíve.}
+
+{RUBRIC: Omnia dicúntur ut supra per Annum notátur [195], præter sequéntia:}
+
+### In Vesperis
+
+{RUBRIC: Antíphonæ et Capítulum de Láudibus. [204]}
+
+**Ad Magnif. Ant.** Spíritus Sanctus \* in te descéndet,

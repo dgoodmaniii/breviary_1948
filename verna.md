@@ -14727,3 +14727,58 @@ Erípite páuperem: \* et egénum de manu peccatóris liberáte.
 Nesciérunt, neque intellexérunt, in ténebris ámbulant: \* movebúntur ómnia fundaménta terræ.
 
 Ego dixi: Dii estis, \* et fílii Excélsi omnes.
+
+Vos autem sicut hómines moriémini: \* et sicut unus de princípibus cadétis.
+
+Surge, Deus, júdica terram: \* quóniam tu hereditábis in ómnibus géntibus.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Excita, Dómine, poténtiam tuam, ut salvos fácias nos.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Advenérunt nobis dies pæniténtiæ, ad rediménda peccáta, ad salvándas ánimas.
+
+**Capitulum** *Joel 2, 12-13*
+
+CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et scíndite corda vestra, et non vestiménta vestra, ait Dóminus omnípotens.
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse.
+
+℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+#### Tempore Paschali
+
+**Capitulum** *Rom. 6, 9-10*
+
+CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo.
+
+℟. br. Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit. ℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:

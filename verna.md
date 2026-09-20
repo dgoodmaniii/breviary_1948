@@ -5524,3 +5524,63 @@ Perénnis instet glória.
 
 \* Præsta, Pater piíssime,
 Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Exsultáte, justi.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Per arma justítiæ.
+
+{RUBRIC: Feria II post Dom. Passionis}
+
+**Ant.** Numquid rédditur.
+
+{RUBRIC: Feria II Majoris Hebdomadæ}
+
+**Ant.** Lábia insurgéntium.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 31
+
+BEATI quorum remíssæ sunt iniquitátes: \* et quorum tecta sunt peccáta.
+
+Beátus vir, cui non imputávit Dóminus peccátum, \* nec est in spíritu ejus dolus.
+
+Quóniam tácui, inveteravérunt ossa mea, \* dum clamárem tota die.
+
+Quóniam die ac nocte graváta est super me manus tua: \* convérsus sum in ærúmna mea, dum confígitur spina.
+
+Delíctum meum cógnitum tibi feci: \* et injustítiam meam non abscóndi.
+
+Dixi: Confitébor advérsum me injustítiam meam Dómino: \* et tu remisísti impietátem peccáti mei.
+
+Pro hac orábit ad te omnis sanctus, \* in témpore opportúno.
+
+Verúmtamen in dilúvio aquárum multárum, \* ad eum non approximábunt.
+
+Tu es refúgium meum a tribulatióne, quæ circúmdedit me: \* exsultátio mea, érue me a circumdántibus me.
+
+Intelléctum tibi dabo, et ínstruam te in via hac, qua gradiéris: \* firmábo super te óculos meos.
+
+Nolíte fíeri sicut equus et mulus, \* quibus non est intelléctus.
+
+In camo et freno maxíllas eórum constrínge, \* qui non appróximant ad te.
+
+Multa flagélla peccatóris, \* sperántem autem in Dómino misericórdia circúmdabit.
+
+Lætámini in Dómino et exsultáte, justi, \* et gloriámini, omnes recti corde.
+
+###### Psalmus 32, i
+
+EXSULTATE, justi, in Dómino: \* rectos decet collaudátio.
+
+Confitémini Dómino in cíthara: \* in psaltério decem chordárum psállite illi.
+
+Cantáte ei cánticum novum: \* bene psállite ei in vociferatióne.
+
+Quia rectum est verbum Dómini, \* et ómnia ópera ejus in fide.

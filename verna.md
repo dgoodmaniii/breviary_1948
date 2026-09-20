@@ -3805,4 +3805,75 @@ VISITA, quǽsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 
 Pater, Ave et Credo.
 
-{RUBRIC: ¶ Psalmi de Dominica superius appositi dicuntur ad Completorium, etiam in ultimo triduo Majoris Hebdomadæ atque in Festo et per Octavam Paschatis usque ad Feriam VI inclusive, servato quidem ritu, qui in Proprio de Tempore indicatur: itemque dicuntur, adhibita simul Antiphona juxta diversitatem Temporis assignata, post utrasque Vesperas in Dominica infra Octavam Ascensionis, in Feria VI post Octavam Ascensionis, in Duplicibus I vel II classis, in Festis novem Lectionem Domini, beatæ
+{RUBRIC: ¶ Psalmi de Dominica superius appositi dicuntur ad Completorium, etiam in ultimo triduo Majoris Hebdomadæ atque in Festo et per Octavam Paschatis usque ad Feriam VI inclusive, servato quidem ritu, qui in Proprio de Tempore indicatur: itemque dicuntur, adhibita simul Antiphona juxta diversitatem Temporis assignata, post utrasque Vesperas in Dominica infra Octavam Ascensionis, in Feria VI post Octavam Ascensionis, in Duplicibus I vel II classis, in Festis novem Lectionem Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum, et per Octavas privilegiatas; si tamen præcedentes I Vesperæ de eis integræ vel saltem a Capitulo sint celebratæ, ac II Vesperæ de ipsis integræ fuerint persolutæ.}
+
+---
+
+## Feria Secunda
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Invit.** Non sit vobis vanum mane súrgere ante lucem: \* Quia promísit Dóminus corónam vigilántibus. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+EX more docti mýstico
+Servémus hoc jejúnium,
+Deno diérum círculo
+Ducto quater notíssimo.
+
+Lex et prophétæ prímitus
+Hoc prætulérunt, póstmodum
+Christus sacrávit, ómnium
+Rex atque factor témporum.
+
+Utámur ergo párcius
+Verbis, cibis et pótibus,
+Somno, jocis, et árctius
+Perstémus in custódia.
+
+Vitémus autem nóxia,
+Quæ súbruunt mentes vagas:
+Nullúmque demus cállidi
+Hostis locum tyránnidi.
+
+Flectámus iram víndicem,
+Plorémus ante Júdicem,
+Clamémus ore súpplici,
+Dicámus omnes cérnui:
+
+Nostris malis offéndimus
+Tuam, Deus, cleméntiam:
+Effúnde nobis désuper,
+Remíssor, indulgéntiam.
+
+Meménto quod sumus tui,
+Licet cadúci, plásmatis:
+Ne des honórem nóminis
+Tui, precámur, álteri.
+
+Laxa malum, quod fécimus,
+Auge bonum, quod póscimus:
+Placére quo tandem tibi
+Possímus hic, et pérpetim.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas,
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+#### Tempore Passionis
+
+**Invit.** Hódie, si vocem Dómini audiéritis, \* Nolíte

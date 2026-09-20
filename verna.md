@@ -10582,3 +10582,68 @@ Ecce, audívimus eam in Ephrata: \* invénimus eam in campis silvæ.
 Introíbimus in tabernáculum ejus: \* adorábimus in loco, ubi stetérunt pedes ejus.
 
 Surge, Dómine, in réquiem tuam, \* tu et arca sanctificatiónis tuæ.
+
+Sacerdótes tui induántur justítiam: \* et sancti tui exsúltent.
+
+Propter David, servum tuum: \* non avértas fáciem Christi tui.
+
+Jurávit Dóminus David veritátem, et non frustrábitur eam: \* De fructu ventris tui ponam super sedem tuam.
+
+Si custodíerint fílii tui testaméntum meum, \* et testimónia mea hæc, quæ docébo eos:
+
+Et fílii eórum usque in sæculum, \* sedébunt super sedem tuam.
+
+Quóniam elégit Dóminus Sion: \* elégit eam in habitatiónem sibi.
+
+Hæc réquies mea in sæculum sæculi: \* hic habitábo quóniam elégi eam.
+
+Víduam ejus benedícens benedícam: \* páuperes ejus saturábo pánibus.
+
+Sacerdótes ejus índuam salutári: \* et sancti ejus exsultatióne exsultábunt.
+
+Illuc prodúcam cornu David, \* parávi lucérnam Christo meo.
+
+Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificátio mea.
+
+### Extra Tempus Paschale
+
+**Ant.** Elégit Dóminus Sion in habitatiónem sibi.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Capitulum** *Joel 2, 17*
+
+INTER vestíbulum et altáre plorábunt sacerdótes, minístri Dómini, et dicent: Parce, Dómine, parce pópulo tuo: et ne des hereditátem tuam in oppróbrium, ut dominéntur eis natiónes.
+
+### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus,
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te revérsis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+Præsta, beáta Trínitas,
+Concéde, simplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.

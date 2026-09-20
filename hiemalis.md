@@ -46620,4 +46620,16 @@ Amen.
 
 *Cap. 8, 22 et 27-30*
 
-STETIT autem Sálomon ante altáre Dómini in conspéctu ecclésiæ Israël, et expándit manus suas in cælum, et ait: Ergóne putándum est quod vere Deus hábitet super terram? si enim cælum, et cæli cælórum te cápere non possunt, quanto magis domus hæc, quam ædificávi? Sed réspice ad oratiónem servi tui, et ad preces ejus, Dómine, Deus meus: audi hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti super domum hanc nocte ac die: super domum, de qua dixísti: Erit nomen meum ibi: ut exáudias oratiónem, quam orat in loco isto ad te servus tuus. Ut exáudias deprecatiónem servi tui et pópuli tui Israël, quod-
+STETIT autem Sálomon ante altáre Dómini in conspéctu ecclésiæ Israël, et expándit manus suas in cælum, et ait: Ergóne putándum est quod vere Deus hábitet super terram? si enim cælum, et cæli cælórum te cápere non possunt, quanto magis domus hæc, quam ædificávi? Sed réspice ad oratiónem servi tui, et ad preces ejus, Dómine, Deus meus: audi hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti super domum hanc nocte ac die: super domum, de qua dixísti: Erit nomen meum ibi: ut exáudias oratiónem, quam orat in loco isto ad te servus tuus. Ut exáudias deprecatiónem servi tui et pópuli tui Israël, quodcúmque oráverint in loco isto, et exáudies in loco habitáculi tui in cælo, et, cum exaudíeris, propítius eris.
+
+℟. Vidi speciósam sicut colúmbam ascendéntem désuper rivos aquárum, cujus inæstimábilis odor erat nimis in vestiméntis ejus; \* Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. ℣. Quæ est ista, quæ ascéndit per desértum sicut vírgula fumi ex aromátibus myrrhæ et thuris? — Et.
+
+**Lectio ii** *Ibid., 33-36*
+
+SI fúgerit pópulus tuus Israël inimícos suos (quia peccatúrus est tibi), et agéntes pæniténtiam, et confiténtes nómini tuo, vénerint, et oráverint, et deprecáti te fúerint in domo hac; exáudi in cælo, et dimítte peccátum pópuli tui Israël, et redúces eos in terram, quam dedísti pátribus eórum. Si clausum fúerit cælum, et non plúerit propter peccáta eórum, et, orántes in loco isto, pæniténtiam égerint nómini tuo, et a peccátis suis convérsi fúerint propter afflictiónem suam: exáudi eos in cælo, et dimítte peccáta servórum tuórum, et pópuli tui Israël: et osténde eis viam bonam, per quam ámbulent, et da plúviam super terram tuam, quam dedísti pópulo tuo in possessiónem.
+
+℟. Quæ est ista, quæ ascéndit sicut auróra consúrgens, pulchra ut luna, elécta ut sol, \* Terríbilis ut castrórum ácies ordináta? ℣. Fília Sion, tota formósa et suávis es, pulchra ut luna, elécta ut sol. — Terríbilis.
+
+**Lectio iii** *Ibid., 38-43*
+
+SI quis cognóverit plagam cordis sui, et expánderit manus suas in domo hac, tu exáudies in cælo in loco habitatiónis tuæ, et repropitiáberis, et fácies ut des unicuíque secúndum omnes vias suas, sicut víderis cor ejus (quia tu nosti solus cor ómnium filiórum hóminum), ut tímeant te cunctis diébus, quibus vivunt super fáciem terræ, quam dedísti pátribus nostris. Insuper et alienígena, qui non est de pópulo tuo Israël, cum vénerit de terra longínqua propter nomen tuum (audiétur enim nomen tuum magnum, et manus tua fortis, et bráchium tuum exténtum ubíque), cum vénerit ergo, et oráverit in hoc loco, tu exáudies in cælo, in firmaménto habitáculi tui et fácies ómnia, pro quibus invocáverit

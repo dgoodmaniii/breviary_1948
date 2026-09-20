@@ -6989,4 +6989,60 @@ Et introíbo ad altáre Dei: \* ad Deum, qui lætíficat juventútem meam.
 
 Confitébor tibi in cíthara, Deus, Deus meus: \* quare tristis es, ánima mea? et quare contúrbas me?
 
-Spera in Deo, quóniam adhuc confitébor illi: \*
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Ant.** Discérne causam meam, Deus, de gente non sancta.
+
+**Ant.** Deus misereátur. †
+
+### Fer. III Majoris Hebdomadæ
+
+**Ant.** Discérne causam meam, Dómine: ab hómine iníquo et dolóso éripe me.
+
+**Ant.** Dum tribulárer.
+
+###### Psalmus 66
+
+DEUS misereátur nostri, et benedícat nobis: \* illúminet vultum suum super nos, et misereátur nostri.
+
+Ut cognoscámus in terra viam tuam: \* in ómnibus géntibus salutáre tuum.
+
+Confiteántur tibi pópuli, Deus: \* confiteántur tibi pópuli omnes.
+
+Læténtur et exsúltent gentes: \* quóniam júdicas pópulos in æquitáte, et gentes in terra dírigis.
+
+Confiteántur tibi pópuli, Deus, confiteántur tibi pópuli omnes: \* terra dedit fructum suum.
+
+Benedícat nos Deus, Deus noster, benedícat nos Deus: \* et métuant eum omnes fines terræ.
+
+**Ant.** Deus misereátur nostri, et benedícat nos.
+
+**Ant.** Corrípies me, Dómine.
+
+### Fer. III Majoris Hebdomadæ
+
+**Ant.** Dum tribulárer, clamávi ad Dóminum de ventre ínferi, et exaudívit me.
+
+**Ant.** Dómine, vim pátior.
+
+## Canticum Ezechiæ
+
+###### Is. 38, 10-20
+
+EGO dixi: In dimídio diérum meórum \* vadam ad portas ínferi.
+
+Quæsívi resíduum annórum meórum. \* Dixi: Non vidébo Dóminum Deum in terra vivéntium.
+
+Non aspíciam hóminem ultra, \* et habitatórem quiétis.
+
+Generátio mea abláta est, et convolúta est a me, \* quasi tabernáculum pastórum.
+
+Præcísa est, velut a texénte, vita mea: dum adhuc ordírer, succídit me: \* de mane usque ad vésperam fínies me.
+
+Sperábam usque ad mane, \* quasi leo sic contrívit ómnia ossa mea:
+
+De mane usque ad vésperam fínies me: \* sicut pullus hirúndinis sic clamábo, meditábor ut colúmba:
+
+Attenuáti sunt óculi mei, \* suspiciéntes in excélsum:
+
+Dómine, vim pátior, respónde pro me. \* Quid dicam, aut quid respondébit mihi, cum ipse fécerit?

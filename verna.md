@@ -706,4 +706,28 @@ KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
 {RUBRIC: ¶ Romæ præcedens Versus cum suo Responsorio omittitur; alibi vero, ad litteram N., ab omnibus nomen diœcesani Episcopi exprimatur. Vacante Apostolica vel Episcopali Sede, alteruter vel uterque respectivus Versus cum suo Responsorio prætéritur.}
 
-℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos
+℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolutis Precibus, vel, si Preces locum non habeant, repetita Antiphona post Benedictus, statim dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+{RUBRIC: Et dicitur Oratio conveniens. Postea fiunt Commemorationes, si occurrant.}
+
+{RUBRIC: Deinde, extra Tempus Paschale, in Officio semiduplici aut simplici tam de Tempore quam de Sanctis, præter quam a Dominica Passionis usque ad Feriam IV Majoris Hebdomadæ inclusive, ac præter omnes dies, in quibus habita sit Commemoratio Duplicis, fit sequens}
+
+##### Suffragium de omnibus Sanctis
+
+**Ant.** Beáta Dei Génitrix Virgo María, Sanctíque omnes intercédant pro nobis ad Dóminum.
+
+℣. Mirificávit Dóminus Sanctos suos. ℟. Et exaudívit eos clamántes ad se.
+
+Orémus. **Oratio**
+
+A CUNCTIS nos, quæsumus, Dómine, mentis et córporis defénde perículis: et, intercedénte beáta et gloriósa semper Vírgine Dei Genitríce María, cum beáto Joseph, beátis Apóstolis tuis Petro et Paulo, atque beáto N. et ómnibus Sanctis, salútem nobis tríbue benígnus et pacem; ut, destrúctis adversitátibus et erróribus univérsis, Ecclésia tua secúra tibi sérviat libertáte. Per eúmdem Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: ¶ In hac Oratione, ad litteram N., exprimitur nomen Titularis propriæ Ecclesiæ, dummodo Titulus non sit Persona divina vel Mysterium Domini, aut de ipso ratione Vigiliæ vel Festi factum non fuerit Officium vel Commemoratio, aut illius nomen non sit in eadem Suffragii Oratione expressum; ac nomina sanctorum Angelorum et sancti Joannis Baptistæ, si Titulares fuerint, præponuntur nomini sancti Joseph. In hisce autem omnibus casibus omittuntur verba atque beáto N.}
+
+{RUBRIC: Tempore autem Paschali, a Feria II post Dominicam in Albis usque ad Vigiliam Ascensionis inclusive, in Officio Semiduplici aut Simplici tam de Tempore quam de

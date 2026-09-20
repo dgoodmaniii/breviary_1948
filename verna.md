@@ -4047,3 +4047,57 @@ De vultu tuo judícium meum pródeat: \* óculi tui vídeant æquitátes.
 Probásti cor meum, et visitásti nocte: \* igne me examinásti, et non est invénta in me iníquitas.
 
 Ut non loquátur os meum ópera hóminum: \* propter verba labiórum tuórum ego custodívi vias duras.
+
+Pérfice gressus meos in sémitis tuis: \* ut non moveántur vestígia mea.
+
+Ego clamávi, quóniam exaudísti me, Deus: \* inclína aurem tuam mihi, et exáudi verba mea.
+
+Mirífica misericórdias tuas, \* qui salvos facis sperántes in te.
+
+A resisténtibus déxteræ tuæ custódi me, \* ut pupíllam óculi.
+
+Sub umbra alárum tuárum prótege me: \* a fácie impiórum qui me afflixérunt.
+
+Inimíci mei ánimam meam circumdedérunt, ádipem suum conclusérunt: \* os eórum locútum est supérbiam.
+
+Projiciéntes me nunc circumdedérunt me: \* óculos suos statuérunt declináre in terram.
+
+Suscepérunt me sicut leo parátus ad prædam: \* et sicut cátulus leónis hábitans in abdítis.
+
+Exsúrge, Dómine, prǽveni eum, et supplánta eum: \* éripe ánimam meam ab ímpio, fráméam tuam ab inimícis manus tuæ.
+
+Dómine, a paucis de terra dívide eos in vita eórum: \* de abscónditis tuis adimplétus est venter eórum.
+
+Saturáti sunt fíliis: \* et dimisérunt relíquias suas párvulis suis.
+
+Ego autem in justítia apparébo conspéctui tuo: \* satiábor cum apparúerit glória tua.
+
+**Ant.** Inclína, Dómine, aurem tuam mihi, et exáudi verba mea.
+
+#### In Festis novem Lectionum: Extra Tempus Paschale
+
+℣. Mirífica, Dómine, misericórdias tuas. ℟. Qui salvos facis sperántes in te.
+
+#### In Festis novem Lectionum: Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+℣. Deus regenerávit nos in spem vivam, allelúja. ℟. Per resurrectiónem Jesu Christi ex mórtuis, allelúja.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+{RUBRIC: Extra Tempus Paschale:}
+
+**Ant.** Díligam te, \* † Dómine, virtus mea.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 17, i
+
+DILIGAM te, † Dómine, fortitúdo mea: \* Dóminus firmaméntum meum, et refú-

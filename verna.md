@@ -7330,3 +7330,57 @@ Réspice inimícos meos quóniam multiplicáti sunt, \* et ódio iníquo odérun
 Custódi ánimam meam, et érue me: \* non erubéscam quóniam sperávi in te.
 
 Innocéntes et recti adhæsérunt mihi: \* quia sustínui te.
+
+Líbera, Deus, Israël, \* ex ómnibus tribulatiónibus suis.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjúngitur seq. Ps. 95, qui in Laudibus locum non habuit.}
+
+###### Psalmus 95
+
+CANTATE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+{RUBRIC: Secus vero, tribus Psalmis expletis, statim dicitur Ant.}
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Deus meus, in te confído, non erubéscam.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego, dicit Dóminus: nolo mortem peccatóris, sed ut magis convertátur, et vivat.
+
+### Fer. III post Dom. Passionis
+
+**Ant.** Líbera me, Dómine, et pone me juxta te: et cujúsvis manus pugnet contra me.
+
+### Fer. III Majoris Hebdomadæ
+
+**Ant.** Vide, Dómine, et consídera, quóniam tríbulor: velóciter exáudi me.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.

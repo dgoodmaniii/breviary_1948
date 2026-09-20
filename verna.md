@@ -2259,3 +2259,51 @@ Paráta sedes tua ex tunc: \* a sæculo tu es.
 Elevavérunt flúmina, Dómine: \* elevavérunt flúmina vocem suam.
 
 Elevavérunt flúmina fluctus suos, \* a vócibus aquárum multárum.
+
+Mirábiles elatiónes maris: \* mirábilis in altis Dóminus.
+
+Testimónia tua credibília facta sunt nimis: \* domum tuam decet sanctitúdo, Dómine, in longitúdinem diérum.
+
+###### Psalmus 99 [2]
+
+JUBILATE Deo, omnis terra: \* servíte Dómino in lætítia.
+
+Introíte in conspéctu ejus, \* in exsultatióne.
+
+Scitóte quóniam Dóminus ipse est Deus: \* ipse fecit nos, et non ipsi nos.
+
+Pópulus ejus, et oves páscuæ ejus: \* introíte portas ejus in confessióne, átria ejus in hymnis: confitémini illi.
+
+Laudáte nomen ejus: quóniam suávis est Dóminus, in ætérnum misericórdia ejus, \* et usque in generatiónem et generatiónem véritas ejus.
+
+###### Psalmus 62 [3]
+
+DEUS, Deus meus, \* ad te de luce vígilo.
+
+Sitívit in te ánima mea, \* quam multipliciter tibi caro mea.
+
+In terra desérta, et ínvia, et inaquósa: \* sic in sancto appárui tibi, ut vidérem virtútem tuam, et glóriam tuam.
+
+Quóniam mélior est misericórdia tua super vitas: \* lábia mea laudábunt te.
+
+Sic benedícam te in vita mea: \* et in nómine tuo levábo manus meas.
+
+Sicut ádipe et pinguédine repleátur ánima mea: \* et lábiis exsultatiónis laudábit os meum.
+
+Si memor fui tui super stratum meum, in matutínis meditábor in te: \* quia fuísti adjútor meus.
+
+Et in velaménto alárum tuárum exsultábo, adhǽsit ánima mea post te: \* me suscépit déxtera tua.
+
+Ipsi vero in vanum quæsiérunt ánimam meam, introíbunt in inferióra terræ: \* tradéntur in manus gládii, partes vúlpium erunt.
+
+Rex vero lætábitur in Deo, laudabúntur omnes qui jurant in eo: \* quia obstrúctum est os loquéntium iníqua.
+
+###### Canticum trium Puerorum [4]
+
+*Dan. 3, 37-38 et 56*
+
+BENEDICITE, ómnia ópera Dómini, Dómino: \* laudáte et superexaltáte eum in sæcula.
+
+Benedícite, Angeli Dómini, Dómino: \* benedícite, cæli, Dómino.
+
+Benedícite, aquæ omnes, quæ super cælos sunt, Dómino: \* benedícite,

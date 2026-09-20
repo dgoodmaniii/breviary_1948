@@ -35946,4 +35946,54 @@ ET, cum egréssus esset in viam, procúrrens quidam, genu flexo ante eum, rogáb
 
 #### Lectio ix
 
-DILIGIT enim Dóminus eos, qui mandáta legis, quamvis minóra, custódiunt: sed nihilóminus, quod in lege minus fúerat, iis qui perfécti esse desíderant, osténdit, quia non venit sólvere legem aut Prophétas, sed adimplére. Ad quam profécto adimpletiónem pértinet, quod hic consequénter adjúngitur: Vade, quæcúmque habes vende et da paupéribus, et habébis thesáurum in cælo, et veni, séquere me. Quicúmque perféctus esse volúerit, debet véndere quæ habet; et non ex parte véndere, sicut Ananías et Saphíra, sed totum véndere: et cum vendíderit, dare omne paupéribus, et sic sibi præparáre thesáurum in regno cælórum. Nec hoc
+DILIGIT enim Dóminus eos, qui mandáta legis, quamvis minóra, custódiunt: sed nihilóminus, quod in lege minus fúerat, iis qui perfécti esse desíderant, osténdit, quia non venit sólvere legem aut Prophétas, sed adimplére. Ad quam profécto adimpletiónem pértinet, quod hic consequénter adjúngitur: Vade, quæcúmque habes vende et da paupéribus, et habébis thesáurum in cælo, et veni, séquere me. Quicúmque perféctus esse volúerit, debet véndere quæ habet; et non ex parte véndere, sicut Ananías et Saphíra, sed totum véndere: et cum vendíderit, dare omne paupéribus, et sic sibi præparáre thesáurum in regno cælórum. Nec hoc ad perfectiónem súfficit, nisi, post contémptas divítias, Salvatórem sequátur; id est relíctis malis, fáciat bona. Facílius enim sæculum contémnitur quam volúntas. Multi divítias relinquéntes, Dóminum non sequúntur. Séquitur autem Dóminum, qui imitátor ejus est et per vestígia illíus gráditur. Qui enim dicit se in Christo crédere, debet, quómodo ille ambulávit, et ipse ambuláre.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEUS, qui beátum Gabriélem dulcíssimæ Matris tuæ dolóres assídue recólere docuísti, ac per illam sanctitátis et miraculórum glória sublimásti: da nobis, ejus intercessióne et exémplo, ita Genitrícis tuæ consociári flétibus; ut matérna ejúsdem protectióne salvémur: Qui vivis.
+
+### In II Vesperis
+
+**Ant.** Hic vir despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+---
+
+## Festa Martii
+
+## Die 4 Martii
+
+### S. Casimiri
+
+{RUBRIC: Confessoris}
+
+{RUBRIC: Semiduplex} [94]
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+#### Oratio
+
+DEUS, qui inter regáles delícias et mundi illécebras, sanctum Casimírum virtúte constántiæ roborásti: quǽsumus; ut ejus intercessióne fidéles tui terréna despíciant, et ad cæléstia semper aspírent. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: Deinde Com. S. Lucii I Papæ et Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+#### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum

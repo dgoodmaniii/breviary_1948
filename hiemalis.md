@@ -35775,3 +35775,41 @@ CONCÉDE nos, quǽsumus, omnípotens Deus: beáti Petri Confessóris tui atque P
 ### In Vigilia S. Matthiæ Apostoli
 
 {RUBRIC: Omnia dicúntur ut pro Vigíliis Apostolórum in Communi.} [1]
+
+DA, quǽsumus, omnípotens Deus: ut beáti Matthíæ, Apóstoli tui, quam prævenímus, venerándá solémnitas, et devotiónem nobis áugeat, et salútem. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti. Quod si sequénti die occúrrat Féria IV Cínerum, Vésperæ dicúntur de Fería III post Quadragésimam et tum in eis tum ad Complétorium adhibéntur Preces feriáles, ut in Ordinário.}
+
+## Die 24 Februarii vel 25 in anno bissextili
+
+### S. Matthiæ Apostoli
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Communi Apostolórum} [3], {RUBRIC: præter ea quæ hic habéntur própria.}
+
+#### Oratio
+
+DEUS, qui beátum Matthíam Apostolórum tuórum collégio sociásti: tríbue, quǽsumus; ut ejus interventióne, tuæ circa nos pietátis semper víscera sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis, quóties annus non est bissextílis:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Petre, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+#### Oratio
+
+CONCÉDE nos, quǽsumus, omnípotens Deus: beáti Petri Confessóris tui atque Pontíficis mónita et exémpla sectári; ut per terréstrium rerum contémptum ætérna gáudia consequámur. Per Dóminum.
+
+{RUBRIC: Deinde, in Quadragésima, Commemoratio Fériæ.}
+
+### In I Nocturno
+
+{RUBRIC: De Actibus Apostolórum}
+
+#### Lectio i
+
+*Cap. 1, 15-26*
+
+IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus cré-

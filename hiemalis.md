@@ -40012,3 +40012,47 @@ DICÉNDO enim, Vos estis sal terræ, osténdit univérsam hóminum infatuátam e
 NE ígitur putétis, inquit, ad lévia vos ducéndos esse certámina, neque exiguárum rerum vobis ineúndam esse ratiónem, Vos estis sal terræ. Quid ígitur? Ipsíne putrefácta medicáti sunt? Nequáquam: neque enim fíeri potest, ut ea, quæ jam corrúpta sunt, salis perfricatióne reparéntur. Non ergo hoc fecérunt; sed ante renováta sibíque trádita atque ab illa jam putrédine liberáta aspergébant sale et in ea novitáte conservábant, quam a Dómino suscéperant. Liberáre quippe a putrédine peccatórum, Christi virtútis est; ut autem ad illa íterum non revertántur, Apostolórum curæ est ac labóris.
 
 {RUBRIC: Te Deum laudámus.}
+
+[IMAGE]
+
+# Commune Confessoris non Pont.
+
+### In I Vesperis
+
+**Ant. 1** Dómine, quinque talénta \* tradidísti mihi, ecce ália quinque superlucrátus sum.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolórum. [3]}
+
+**2** Euge, serve bone, \* in módico fidélis, intra in gáudium Dómini tui.
+
+**3** Fidélis servus \* et prudens, quem constítuit Dóminus super famíliam suam.
+
+**4** Beátus ille servus, \* quem, cum vénerit Dóminus ejus et pulsáverit jánuam, invénerit vigilántem.
+
+**5** Serve bone \* et fidélis, intra in gáudium Dómini tui.
+
+#### Capitulum
+
+*Eccli. 31, 8-9*
+
+BEÁTUS vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.
+
+#### Hymnus
+
+ISTE Conféssor Dómini coléntes
+Quem pie laudant pópuli per orbem,
+Hac die lætus méruit beátas
+Scándere sedes.
+
+{RUBRIC: Si non est dies obitus (quod indicant in Proprio litteræ m. t. v.) dicátur}
+
+Hac die lætus méruit suprémos
+Laudis honóres.
+
+Qui pius, prudens, húmilis, pudícus,
+Sóbriam duxit sine labe vitam,
+Donec humános animávit auræ
+Spíritus artus.
+
+Cujus ob prǽstans méritum frequénter,
+Ægra quæ passim jacuére membra,

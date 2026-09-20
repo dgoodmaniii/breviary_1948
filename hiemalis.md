@@ -45578,4 +45578,54 @@ Et factus sum sicut homo non áudiens: \* et non habens in ore suo redargutióne
 
 Quóniam in te, Dómine, sperávi: \* tu exáudies me, Dómine, Deus meus.
 
-Quia dixi: Nequándo supergáudeant mihi inimíci mei: \* et dum commovén-
+Quia dixi: Nequándo supergáudeant mihi inimíci mei: \* et dum commovéntur pedes mei, super me magna locúti sunt.
+
+Quóniam ego in flagélla parátus sum: \* et dolor meus in conspéctu meo semper.
+
+Quóniam iniquitátem meam annuntiábo: \* et cogitábo pro peccáto meo.
+
+Inimíci autem mei vivunt, et confirmáti sunt super me: \* et multiplicáti sunt qui odérunt me iníque.
+
+Qui retríbuunt mala pro bonis, detrahébant mihi: \* quóniam sequébar bonitátem.
+
+Ne derelínquas me, Dómine, Deus meus: \* ne discésseris a me.
+
+Inténde in adjutórium meum, \* Dómine, Deus salútis meæ.
+
+Glória Patri.
+
+###### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis: \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus: \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua: \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui: \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.
+
+Dómine, lábia mea apéries: \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem úti-

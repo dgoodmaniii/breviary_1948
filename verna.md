@@ -7384,3 +7384,39 @@ Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
 ### Tempore Paschali
 
 **Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: In Officio Festi vel Octavæ et in Feriis Temporis Paschalis:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In omnibus autem Feriis extra Tempus Paschale:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: In feriali Officio Tempore Passionis omittitur Glória Patri.}
+
+#### Tempore Paschali
+
+℟. br. Christe, Fili Dei vivi, miserére nobis, \* Allelúja, allelúja. Christe. ℣. *Qui surrexísti a mórtuis.* Allelúja, allelúja. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos, allelúja. ℟. Et líbera nos propter nomen tuum, allelúja.
+
+---
+
+#### Preces dominicales et feriales
+
+*(si dicendæ sint).*
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me.
+
+#### In Precibus ferialibus tantum
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me. ℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me. ℣. Eripe me de operántibus iniquitátem. ℟. Et de viris sánguinum salva me. ℣. Sic psalmum dicam nómini tuo in sæculum sæculi. ℟. Ut reddam vota mea de die in diem. ℣. Exáudi nos, Deus, sa-

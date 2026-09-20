@@ -730,4 +730,61 @@ A CUNCTIS nos, quæsumus, Dómine, mentis et córporis defénde perículis: et, 
 
 {RUBRIC: ¶ In hac Oratione, ad litteram N., exprimitur nomen Titularis propriæ Ecclesiæ, dummodo Titulus non sit Persona divina vel Mysterium Domini, aut de ipso ratione Vigiliæ vel Festi factum non fuerit Officium vel Commemoratio, aut illius nomen non sit in eadem Suffragii Oratione expressum; ac nomina sanctorum Angelorum et sancti Joannis Baptistæ, si Titulares fuerint, præponuntur nomini sancti Joseph. In hisce autem omnibus casibus omittuntur verba atque beáto N.}
 
-{RUBRIC: Tempore autem Paschali, a Feria II post Dominicam in Albis usque ad Vigiliam Ascensionis inclusive, in Officio Semiduplici aut Simplici tam de Tempore quam de
+{RUBRIC: Tempore autem Paschali, a Feria II post Dominicam in Albis usque ad Vigiliam Ascensionis inclusive, in Officio Semiduplici aut Simplici tam de Tempore quam de Sanctis, nisi habita sit Commemoratio Duplicis, vel factum fuerit Officium aut Commemoratio cujusvis Octavæ, loco Suffragii, fit sequens}
+
+##### Commemoratio de Cruce
+
+**Ant.** Crucifíxus surréxit a mórtuis, et redémit nos, allelúja, allelúja.
+
+℣. Dícite in natiónibus, allelúja. ℟. Quia Dóminus regnávit a ligno, allelúja.
+
+Orémus. **Oratio**
+
+DEUS, qui pro nobis Fílium tuum Crucis patíbulum subíre voluísti, ut inimíci a nobis expélleres potestátem: concéde nobis, fámulis tuis; ut resurrectiónis grátiam consequámur. Per eúmdem Dóminum. ℟. Amen.
+
+{RUBRIC: Post ultimam Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias. ℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde, in publica Officii recitatione, si discedendum sit a Choro, itemque in recitatione privata, si tunc terminetur Officium; alioquin, in fine ultimæ Horæ dicitur Pater noster, totum secreto; eoque recitato, subjungitur:}
+
+℣. Dóminus det nobis suam pacem. ℟. Et vitam ætérnam. Amen.
+
+{RUBRIC: Et immediate dicitur, cum suis Versu et Oratione, una ex finalibus beatæ Mariæ Virginis Antiphonis, quæ inferius post Completorium pro diversitate Temporis assignantur.}
+
+{RUBRIC: Postea concluditur:}
+
+℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+## Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.

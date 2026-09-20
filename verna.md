@@ -11834,3 +11834,57 @@ Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dí
 ### Feria V in Cœna Domini
 
 **Ant.** Dóminus tamquam ovis ad víctimam ductus est, et non apéruit os suum.
+
+**Ant.** Contrítum est \* cor meum in médio mei, contremuérunt ómnia ossa mea.
+
+###### Psalmus 35
+
+DIXIT injústus ut delínquat in semetípso: \* non est timor Dei ante óculos ejus.
+
+Quóniam dolóse egit in conspéctu ejus: \* ut inveniátur iníquitas ejus ad ódium.
+
+Verba oris ejus iníquitas, et dolus: \* nóluit intellígere ut bene ágeret.
+
+Iniquitátem meditátus est in cubíli suo: \* ástitit omni viæ non bonæ, malítiam autem non odívit.
+
+Dómine, in cælo misericórdia tua: \* et véritas tua usque ad nubes.
+
+Justítia tua sicut montes Dei: \* judícia tua abýssus multa.
+
+Hómines, et juménta salvábis, Dómine: \* quemádmodum multiplicásti misericórdiam tuam, Deus.
+
+Fílii autem hóminum, \* in tégmine alárum tuárum sperábunt.
+
+Inebriabúntur ab ubertáte domus tuæ: \* et torrénte voluptátis tuæ potábis eos.
+
+Quóniam apud te est fons vitæ: \* et in lúmine tuo vidébimus lumen.
+
+Prætende misericórdiam tuam sciéntibus te, \* et justítiam tuam his, qui recto sunt corde.
+
+Non véniat mihi pes supérbiæ: \* et manus peccatóris non móveat me.
+
+Ibi cecidérunt qui operántur iniquitátem: \* expúlsi sunt, nec potuérunt stare.
+
+**Ant.** Multiplicásti, Deus, misericórdiam tuam.
+
+**Ant.** Fortitúdo mea.
+
+### Feria V in Cœna Domini
+
+**Ant.** Contrítum est cor meum in médio mei, contremuérunt ómnia ossa mea.
+
+**Ant.** Exhortátus es \* in virtúte tua, et in refectióne sancta tua, Dómine.
+
+### Canticum Moysis
+
+###### Exodi 15, 1-19
+
+CANTEMUS Dómino: glorióse enim magnificátus est, \* equum et ascensórem dejécit in mare.
+
+Fortitúdo mea, et laus mea Dóminus, \* et factus est mihi in salútem:
+
+Iste Deus meus, et glorificábo eum: \* Deus patris mei, et exaltábo eum.
+
+Dóminus quasi vir pugnátor, Omnípotens nomen ejus. \* Currus Pharaónis et exércitum ejus projécit in mare.
+
+Elécti príncipes ejus submérsi sunt in Mari Rubro: \* abýssi operuérunt

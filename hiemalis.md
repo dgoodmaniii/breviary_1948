@@ -40656,4 +40656,62 @@ DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tu�
 
 ### Ad Matutinum
 
-**Invitat.** Regem Vírginum Dóminum, \* Veníte,
+**Invitat.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+#### Hymnus
+
+##### Pro Virgine Martyre
+
+VIRGINIS Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis partos cánimus decóra
+Morte triúmphos.
+
+Hæc enim palmæ dúplicis beáta
+Sorte, dum gestit frágilem domáre
+Córporis sexum, dómuit cruéntum
+Cæde tyránnum.
+
+Unde nec mortem, nec amíca mortis
+Mille pœnárum génera expavéscens,
+Sánguine effúso méruit serénum
+Scándere cælum.
+
+Hujus orátu Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+Témporis ævo. Amen.
+
+##### Pro Virgine non Martyre
+
+VIRGINIS Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis festum cánimus beátæ,
+Accipe votum.
+
+Hujus orátu, Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+Témporis ævo. Amen.
+
+### In I Nocturno
+
+**Ant.** O quam pulchra \* est casta generátio cum claritáte!
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.

@@ -46658,4 +46658,10 @@ SAPIENTIA, quæ Dei erat, et Deus erat, de sinu Patris ad nos véniens, ædific�
 
 **Lectio v**
 
-UTRUM autem et quátuor principáles virtútes, tamquam quátuor co-
+UTRUM autem et quátuor principáles virtútes, tamquam quátuor colúmnas, posséderit, inquisitióne dignum vidétur. Primum ergo videámus, an fortitúdinem habúerit. Quæ nimírum virtus quómodo illi abésse pótuit, quæ, abjéctis sæculáribus pompis spretísque voluptátibus carnis, soli Deo in virginitáte vívere pósuit? Nisi fallor, hæc Virgo est, quæ apud Salomónem légitur: Mulíerem fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Porro quod témperans, prudens et justa fúerit, ex Ángeli collocutióne et sua ipsíus responsióne, luce clárius comprobámus. Salutáta quippe tam venerabíliter ab Ángelo: Ave, grátia plena; Dóminus tecum: non se éxtulit, quasi quæ ex singulári grátiæ privilégio benedicerétur, sed síluit, et quális esset insólita hæc salutátio, secum cogitávit. Qua in re, quid nisi témperans fuit? At vero cum de cæléstibus mystériis ab eódem Ángelo docerétur, diligénter quæsívit, quómodo cónciperet ac páreret, quæ virum útique non cognósceret. Et in hoc, sine dúbio, prudens éxstitit.
+
+℟. Fundáta est domus Dómini supra vérticem móntium, et exaltáta est super omnes colles: \* Et vénient ad eam omnes gentes, et dicent: Glória tibi, Dómine. ℣. Veniéntes autem vénient cum exsultatióne, portántes manípulos suos. — Et vénient.
+
+**Lectio vi**
+
+JUSTITIÆ autem præfert insígne, ubi se ancíllam Dómini confitétur. Nam quod justórum sit confessio, testátur qui ait: Verúmtamen justi confitebúntur nómini tuo. Fuit ígitur beáta Virgo María fortis in propósito, témperans in siléntio, prudens in interrogatióne, justa in confessióne. His ítaque quátuor morum colúmnis, et tribus fídei supradíctis, exstrúxit in ea sibi domum Sapiéntia cæléstis; quæ ádeo mentem ejus replévit, ut de plenitúdine mentis fecundarétur et caro. Ipsíus autem Vírginis natális domus, divínis mystériis consecráta, Angelórum ministério ab infidélium potestáte in Dalmátiam prius, deinde in agrum Laurétanum Picénæ provínciæ transláta fuit, sedénte sancto Cælestíno quinto: eamdémque ipsam esse, in qua Verbum caro factum est, et habitávit in nobis, tum pontifíciis diplomátibus, et celebérrima totíus orbis veneratióne, tum contínua miraculórum virtúte et cæ-

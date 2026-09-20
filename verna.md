@@ -4866,3 +4866,68 @@ Laudet univérsitas. Amen.
 {RUBRIC: Oratio conveniens.}
 
 {RUBRIC: Reliqua ut in Ordinario. 13}
+
+---
+
+## Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Innocens mánibus.
+
+{RUBRIC: ¶ Antiphonæ extra Tempus Paschale, in hac et aliis Feriis ad Primam, Tertiam, Sextam et Nonam appositæ, dicuntur semper in Festis novem Lectionum, quæ Tempore Quadragesimæ et Passionis celebrantur, quando juxta Rubricas sumendi sint Psalmi de Feria.}
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego.
+
+{RUBRIC: Fer. II post Dom. Passionis:} **Ant.** Líbera me, Dómine.
+
+{RUBRIC: Fer. II Majoris Hebdomadæ:} **Ant.** Fáciem meam.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+{RUBRIC: Antiphona Allelúja, in hac et aliis Feriis, dicitur ad Primam, Tertiam, Sextam et Nonam a Feria II post Dominicam in Albis, in omnibus Officiis trium Lectionum usque ad Vigiliam Ascensionis, et in Festis novem Lectionum de Sanctis usque ad Feriam VI post Octavam Ascensionis inclusive.}
+
+###### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.

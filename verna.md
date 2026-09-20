@@ -18449,3 +18449,21 @@ VERAX ergo significátio nullo modo mendácium recte dici potest: ut autem in fa
 *Cap. 17, 1-9*
 
 IN illo témpore: Assúmpsit Jesus Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit illos in montem excélsum seórsum: et transfigurátus est ante eos. Et réliqua.
+
+{RUBRIC: De Homilía sancti Leónis Papæ}
+
+{RUBRIC: Homilía de Transfigurat. Domini}
+
+ASSUMPSIT Jesus Petrum et Jacóbum, et fratrem ejus Joánnem, et conscénso cum eis seórsum monte præcélso, claritátem suæ glóriæ demonstrávit: quia licet intellexíssent in eo majestátem Dei, ipsíus tamen córporis, quo divínitas tegebátur, poténtiam nesciébant. Et ídeo próprie signantérque promíserat, quosdam de astántibus discípulis non prius gustáre mortem, quam vidérent Fílium hóminis veniéntem in regno suo, id est, in régia claritáte, quam spiritáliter ad natúram suscépti hóminis pertinéntem, his tribus viris vóluit esse conspícuam. Nam illam ipsíus Deitátis ineffábilem et inaccessíbilem visiónem, quæ in ætérnam vitam mundis corde servátur, nullo modo mortáli adhuc carne circúmdati intuéri póterant et vidére.
+
+℟. Dixit Angelus ad Jacob: \* Dimítte me, auróra est. Respóndit ei: Non dimíttam te, nisi benedíxeris mihi. Et benedíxit ei in eódem loco. ℣. Cumque surrexísset Jacob, ecce vir luctabátur cum eo usque mane: et cum vidéret quod eum superáre non posset, dixit ad eum. — Dimítte.
+
+#### Lectio viii
+
+DICENTE Patre: Hic est Fílius meus diléctus, in quo mihi bene complácui, ipsum audíte; nonne evidénter audítum est: Hic est Fílius meus, cui ex me et mecum esse sine témpore est? quia nec génitor génito prior, nec génitus est genitóre postérior. Hic est Fílius meus, quem a me non séparat Déitas, non dívidit potéstas, non discérnit æternitas. Hic est Fílius meus, non adoptívus, sed próprius: non aliúnde creátus, sed ex me génitus: nec de ália natúra mihi factus comparábilis, sed de mea esséntia mihi natus æquális.
+
+℟. Vidi Dóminum fácie ad fáciem: \* Et salva facta est ánima mea. ℣. Et dixit mihi: Nequáquam vocáberis Jacob, sed Israël erit nomen tuum. — Et salva.
+
+#### Lectio ix
+
+HIC est Fílius meus, per quem ómnia facta sunt, et sine quo factum est nihil: qui ómnia quæ fácio, símiliter facit; et quidquid óperor, inseparábiliter mecum atque indifferénter operátur. Hic est Fílius meus, qui eam,

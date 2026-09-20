@@ -17057,3 +17057,53 @@ Tu autem, Dómine, in ætérnum pérmanes: \* et memoriále tuum in generatióne
 ###### Psalmus 101, ii
 
 TU exsúrgens miseréberis Sion: \* quia tempus miseréndi ejus, quia venit tempus.
+
+Quóniam placuérunt servis tuis lápides ejus: \* et terræ ejus miserebúntur.
+
+Et timébunt gentes nomen tuum, Dómine, \* et omnes reges terræ glóriam tuam.
+
+Quia ædificávit Dóminus Sion: \* et vidébitur in glória sua.
+
+Respéxit in oratiónem humílium: \* et non sprevit precem eórum.
+
+Scribántur hæc in generatióne áltera: \* et pópulus, qui creábitur, laudábit Dóminum:
+
+Quia prospéxit de excélso sancto suo: \* Dóminus de cælo in terram aspéxit:
+
+Ut audíret gémitus compeditórum: \* ut sólveret fílios interemptórum:
+
+Ut annúntient in Sion nomen Dómini: \* et laudem ejus in Jerúsalem.
+
+In conveniéndo pópulos in unum, \* et reges ut sérviant Dómino.
+
+###### Psalmus 101, iii
+
+RESPONDIT ei in via virtútis suæ: \* Paucitátem diérum meórum núntia mihi.
+
+Ne révoces me in dimídio diérum meórum: \* in generatiónem et generatiónem anni tui.
+
+Inítio tu, Dómine, terram fundásti: \* et ópera mánuum tuárum sunt cæli.
+
+Ipsi períbunt, tu autem pérmanes: \* et omnes sicut vestiméntum veteráscent.
+
+Et sicut opertórium mutábis eos, et mutabúntur: \* tu autem idem ipse es, et anni tui non defícient.
+
+Fílii servórum tuórum habitábunt: \* et semen eórum in sæculum dirigétur.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Clamor meus, Dómine, ad te pervéniat: non avértas fáciem tuam a me.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Advenérunt nobis dies pæniténtiæ, ad rediménda peccáta, ad salvándas ánimas.
+
+**Capitulum** *Joel 2, 12-13*
+
+CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et scíndite corda vestra, et non vestiménta vestra, ait Dóminus omnípotens.
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse.
+
+℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.

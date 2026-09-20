@@ -44610,3 +44610,41 @@ DEUS, qui inter apostólicos sacerdótes fámulos tuos pontificáli seu sacerdot
 DEUS, véniæ largítor et humánæ salútis amátor: quǽsumus cleméntiam tuam; ut nostræ congregatiónis fratres, propínquos et benefactóres, qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium perveníre concédas.
 
 FIDÉLIUM, Deus, ómnium Cónditor et Redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum: ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur: Qui vivis et regnas cum Deo Patre in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
+
+{RUBRIC: Post Oratiónem dícitur (semper pluráli número):}
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+### Ad Matutinum
+
+{RUBRIC: Quóties Matutínum vel delatiónem cadáveris ad ecclésiam ac Responsórium Subveníte, vel Matutínum et Laudes diéi curréntis immediáte non sequátur, dícitur secréto Pater noster, Ave María et Credo; secus absoluté incípitur ab Invitatório, vel ab Antíphona Nocturni.}
+
+{RUBRIC: Sequens Invitatórium dícitur semper in Offício Defunctórum, quando persólvitur cum tribus Nocturnis, étiam sub ritu semidúplici, aut cum único quidem Nocturno, sed sub ritu dúplici. In réliquis vero casíbus omíttitur.}
+
+{RUBRIC: Nocturni enim inférius pósiti omnes dici possunt vel étiam unus tantum, ita tamen, ut extra diem depositiónis, in qua semper dícitur primus Nocturnus, Domínica, Féria II et V dicátur primus, Féria III et VI secúndus, et Féria IV et Sábbato tértius Nocturnus.}
+
+**Invitat.** Regem, cui ómnia vivunt, \* Veníte, adorémus.
+
+**Repet.** Regem, cui ómnia vivunt, veníte, adorémus.
+
+###### Psalmus 94
+
+VENÍTE, exsultémus Dómino, jubilémus Deo, salutári nostro: præoccupémus fáciem ejus in confessióne, et in psalmis jubilémus ei.
+
+Regem, cui ómnia vivunt, veníte, adorémus.
+
+Quóniam Deus magnus Dóminus, et Rex magnus super omnes deos: quóniam non repéllet Dóminus plebem suam: quia in manu ejus sunt omnes fines terræ, et altitúdines móntium ipse cónspicit.
+
+Veníte, adorémus.
+
+Quóniam ipsíus est mare, et ipse fecit illud, et áridam fundavérunt manus ejus: veníte, adorémus, et procidámus ante Deum: plorémus coram Dómino, qui fecit nos, quia ipse est Dóminus, Deus noster; nos autem pópulus ejus, et oves páscuæ ejus.
+
+Regem, cui ómnia vivunt, veníte, adorémus.
+
+Hódie, si vocem ejus audiéritis, nolíte obduráre corda vestra, sicut in exacerbatióne secúndum diem tentatiónis in desérto: ubi tentavérunt me patres vestri, probavérunt et vidérunt ópera mea.
+
+Veníte, adorémus.
+
+Quadragínta annis próximus fui generatióni huic, et dixi: Semper hi errant

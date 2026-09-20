@@ -36223,3 +36223,17 @@ DEUS, qui beátum Joánnem, tuo amóre succénsum, inter flammas innóxium incé
 ℣. Justum dedúxit.
 
 **Oratio** Deus, qui Ecclésiam, ut supra.
+
+{RUBRIC: Deinde, in Quadrag., Commemoratio Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+JOÁNNES de Deo, ex cathólicis piísque paréntibus in óppido Montis Majóris Junióris, regni Lusitániæ, natus, quam sublímiter in sortem Dómini fúerit eléctus, insuétus splendor super ejus domo refúlgens, sonitúsque æris campáni sua sponte emíssus, ab ipso ejus nativitátis témpore non obscúre prænuntiárunt. A laxióri vivéndi ratióne, divína operánte virtúte, revocátus, magnæ sanctitátis exhibére spécimen cœpit, et ob audítam prædicatiónem verbi Dei sic ad melióra se excitátum sensit, ut jam ab ipso sanctióris vitæ rudiménto consummátum áliquid perfectúmque visus sit attigísse. Bonis ómnibus in páuperes carcéribus inclúsos erogátis, admirábilis pœniténtiæ suíque ipsíus contémptus cuncto pópulo spectáculum factus, a plerísque, ceu demens, gráviter afflíctus, in cárcerem améntibus destinátum conjícitur. At Joánnes cælésti caritáte magis incénsus, gémino atque amplo valetudinário ex piórum eleemósynis in civitáte Granaténsi exstrúcto, jactóque novi órdinis fundaménto, Ecclésiam nova prole fecundávit fratrum Hospitalitátis, infírmis præcláro animárum corporúmque proféctu inserviéntium, et longe latéque per orbem diffusórum.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+PÁUPERIBUS ægrótis, quos própriis quandóque húmeris domum deferébat, nulla re ad ánimæ corporísque salútem profícua déerat. Effúsa quoque extra nosocómium caritáte indigéntibus muliéribus víduis, et præcípue virgínibus periclitántibus clam aliménta subministrábat, curámque indeféssam adhibébat, ut carnis concupiscéntiam a próximis hujúsmodi vítio inquinátis extermináret. Cum autem máximum in régio Granaténsi valetudinário excitátum fuísset incéndium, Joánnes impávidus prosíliit in ignem, huc illuc discúrrens, quo

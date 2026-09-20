@@ -9417,3 +9417,57 @@ Perambulábam in innocéntia cordis mei, \* in médio domus meæ.
 Non proponébam ante óculos meos rem injústam: \* faciéntes prævaricatiónes odívi.
 
 Non adhæsit mihi cor pravum: \* declinántem a me malígnum non cognoscébam.
+
+Detrahéntem secréto próximo suo, \* hunc persequébar.
+
+Supérbo óculo, et insatiábili corde, \* cum hoc non edébam.
+
+Oculi mei ad fidéles terræ ut sédeant mecum: \* ámbulans in via immaculáta, hic mihi ministrábat.
+
+Non habitábit in médio domus meæ qui facit supérbiam: \* qui lóquitur iníqua, non diréxit in conspéctu oculórum meórum.
+
+In matutíno interficiébam omnes peccatóres terræ: \* ut dispérderem de civitáte Dómini omnes operántes iniquitátem.
+
+**Ant.** In innocéntia cordis mei perambulábo, Dómine.
+
+**Ant.** Exsultávit cor meum. †
+
+### Fer. IV Majoris Hebdomadæ
+
+**Ant.** Tu autem, Dómine, scis omne consílium eórum advérsum me in mortem.
+
+**Ant.** Omnes inimíci mei.
+
+## Canticum Annæ
+
+###### 1 Reg. 2, 1-10
+
+EXSULTAVIT cor meum † in Dómino, \* et exaltátum est cornu meum in Deo meo.
+
+Dilatátum est os meum super inimícos meos: \* quia lætáta sum in salutári tuo.
+
+Non est sanctus, ut est Dóminus: neque enim est álius extra te, \* et non est fortis sicut Deus noster.
+
+Nolíte multiplicáre loqui sublímia, \* gloriántes:
+
+Recédant vétera de ore vestro: quia Deus sciéntiárum, Dóminus est, \* et ipsi præparántur cogitatiónes.
+
+Arcus fórtium superátus est, \* et infírmi accíncti sunt róbore.
+
+Repléti prius, pro pánibus se locavérunt: \* et famélici saturáti sunt.
+
+Donec stérilis péperit plúrimos: \* et quæ multos habébat fílios, infirmáta est.
+
+Dóminus mortíficat et vivíficat, \* dedúcit ad ínferos et redúcit.
+
+Dóminus páuperem facit et ditat, \* humíliat et súblevat.
+
+Súscitat de púlvere egénum, \* et de stércore élevat páuperem:
+
+Ut sédeat cum princípibus, \* et sólium glóriæ téneat.
+
+Dómini enim sunt cárdines terræ, \* et pósuit super eos orbem.
+
+Pedes sanctórum suórum servábit, et ímpii in ténebris conticéscent: \* quia non in fortitúdine sua roborábitur vir.
+
+Dóminum formidábunt adversárii ejus: \* et super ipsos in cælis tonábit:

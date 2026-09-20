@@ -18245,4 +18245,28 @@ DEVOTIONEM pópuli tui, quæsumus, Dómine, benígnus inténde: ut, qui per abst
 
 #### Oratio
 
-DA, quæsumus, Dómine, pópulis christiánis: et, quæ profiténtur, agnóscere, et cæléste mu-
+DA, quæsumus, Dómine, pópulis christiánis: et, quæ profiténtur, agnóscere, et cæléste munus dilígere, quod frequéntant. Per Dóminum nostrum.
+
+---
+
+## Feria Sexta Quatuor Temporum
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 5, 1-15*
+
+IN illo témpore: Erat dies festus Judǽórum, et ascéndit Jesus Jerosólymam. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractatus 17 in Joánnem, post initium}
+
+VIDEAMUS quid volúerit significáre in illo uno, quem étiam ipse servans unitátis mystérium, de tot languéntibus unum sanáre dignátus est. Invénit in annis ejus númerum quemdam languóris: trigínta et octo annos habébat in infirmitáte. Hic númerus quómodo magis ad languórem pertíneat, quam ad sanitátem, paulo diligéntius exponéndum est. Inténtos vos volo: áderit Dóminus, ut cóngrue loquar, et sufficiénter audiátis. Quadragenárius númerus sacrátus nobis in quadam perfectióne commendátur: notum esse árbitror caritáti vestræ: testántur sæpíssime divínæ Scriptúræ: jejúnium hoc número consecrátum esse, bene nostis. Nam et Móyses quadragínta diébus jejunávit, et Elías tótidem: et ipse Dóminus noster et Salvátor Jesus Christus hunc jejúnii númerum implévit. Per Móysen significátur Lex, per Elíam significántur Prophétæ, per Dóminum significátur Evangélium. Ideo in illo monte tres apparuérunt, ubi se discípulis osténdit in claritáte vultus et vestis suæ: appáruit enim médius inter Móysen et Elíam, tamquam Evangélium testimónium habéret a Lege et Prophétis.
+
+℟. Emendémus in mélius, quæ ignoránter peccávimus: ne súbito præoccupáti die mortis, quærámus spátium pœniténtiæ, et inveníre non possímus: \* Atténde, Dómine, et miserére, quia peccávimus tibi. ℣. Adjuva nos, Deus, salutáris noster, et propter honórem nóminis tui, Dómine, líbera nos. — Atténde.
+
+#### Lectio ii
+
+SIVE ergo in Lege, sive in Prophétis, sive in Evangélio, quadragenárius númerus nobis in jejúnio commendátur. Jejúnium autem magnum et

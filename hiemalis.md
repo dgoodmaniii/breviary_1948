@@ -47065,4 +47065,12 @@ REX vírginum et amátor castitátis et integritátis, cælésti rore benedicti�
 
 ### Feria Tertia
 
-QUIS digne hoc sacrifícium celebráre póterit, nisi tu, Deus omnípotens, offeréntem féceris dignum? Scio, Dómine, et vere scio,
+QUIS digne hoc sacrifícium celebráre póterit, nisi tu, Deus omnípotens, offeréntem féceris dignum? Scio, Dómine, et vere scio, et idípsum pietáti tuæ confíteor, quia non sum dignus accédere ad tantum mystérium propter nímia peccáta mea et infinítas negligéntias meas. Sed scio, et veráciter ex toto corde meo credo et ore confíteor, quia tu potes me fácere dignum, qui solus potes fácere mundum de immúndo concéptum sémine, et de peccatóribus justos et sanctos. Per hanc omnipoténtiam tuam te rogo, Deus meus, ut concédas mihi peccatóri hoc sacrifícium celebráre cum timóre et tremóre, cum cordis puritáte et lacrimárum fonte, cum lætítia spiritáli et cælésti gáudio. Séntiat mens mea dulcédinem beatíssimæ præséntiæ tuæ, et excúbias sanctórum Angelórum tuórum in circúitu meo.
+
+### Feria Quarta
+
+EGO enim, Dómine, memor venerándæ passiónis tuæ, accédo ad altáre tuum, licet peccátor, ut ófferam tibi sacrifícium, quod tu instituísti et offérri præcepísti in commemoratiónem tui, pro salúte nostra. Súscipe illud, quæso, summe Deus, pro Ecclésia sancta tua et pro pópulo, quem acquisivísti Sánguine tuo. Et quóniam me peccatórem inter te et eúmdem pópulum tuum médium esse voluísti, licet in me áliquod boni óperis testimónium non agnóscas, offícium saltem dispensatiónis créditæ non recúses; nec per me indígnum eórum salútis péreat prétium, pro quibus víctima salutáris dignátus es esse et redémptio. Prófero étiam, Dómine (si dignéris propítius intuéri), tribulatiónes plébium, perícula populórum, captivórum gémitus, misérias orphanórum, necessitátes peregrinórum, inópiam debílium, desperatiónes languéntium, deféctus senum, suspíria júvenum, vota vírginum, laménta viduárum.
+
+### Feria Quinta
+
+TU enim miseréris ómnium, Dómine, et nihil odísti eórum quæ fecísti. Memoráre, quæ sit nostra substántia; quia tu Pater noster es, quia tu Deus noster es, ne irascáris satis, neque multitúdinem víscerum tuórum super nos contíneas. Non enim in justificatiónibus nostris prostérnimus preces ante fáciem tuam, sed in miseratiónibus tuis multis. Aufer a nobis iniquitátes nostras, et ignem Sancti Spíritus in nobis cleménter accénde. Aufer cor lapí-

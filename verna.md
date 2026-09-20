@@ -1615,4 +1615,40 @@ TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: n
 
 {RUBRIC: A Sabbato ante Dominicam in Albis usque ad Feriam VI infra Octavam Pentecostes inclusive, dicitur sequens}
 
-℟. br. In manus tuas, Dómine, comméndo spíritum meum, \* Allelúja, allelúja. In manus. ℣. Redemísti nos, Dómine, Deus
+℟. br. In manus tuas, Dómine, comméndo spíritum meum, \* Allelúja, allelúja. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Allelúja, allelúja. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi, allelúja. ℟. Sub umbra alárum tuárum prótege nos, allelúja.
+
+{RUBRIC: Postea ad Canticum dicitur sequens}
+
+**Ant.** Salva nos.
+
+### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum.
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace.
+
+{RUBRIC: Tempore Paschali in fine Antiphonæ additur} Allelúja.
+
+{RUBRIC: Deinde, si Preces non fuerint recitandæ, statim dicitur Versus} Dóminus vobíscum {RUBRIC: cum subsequenti Oratione et reliquis omnibus usque ad finem Completorii, ut infra.}
+
+{RUBRIC: In quolibet Officio semiduplici, in Officio sanctæ Mariæ in Sabbato, in Festis simplicibus, atque in Feriis intra Hebdomadam communibus, post repetitam ad Nunc dimíttis Antiphonam dicuntur sequentes Preces; quæ tamen omittuntur in Feria VI post Octavam Ascensionis et omnibus insuper diebus, in quibus ad Vesperas habita sit Commemoratio Duplicis, vel factum fuerit Officium aut Commemoratio cujusvis Octavæ. Semper autem recitari debent, et flexis quidem genibus, in iis Feriis, in quibus ad Vesperas dictæ sint Preces feriales.}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére no-

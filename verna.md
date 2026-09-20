@@ -1976,4 +1976,68 @@ Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
 
 Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
 
-Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Servíte Dómino in timóre: et exsultáte ei cum tremóre.
+
+**Ant.** Exsúrge.
+
+###### Psalmus 3
+
+DOMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Exsúrge, Dómine, salvum me fac, Deus meus.
+
+{RUBRIC: In Quadragesima}
+
+℣. Ipse liberávit me de láqueo venántium. ℟. Et a verbo áspero.
+
+{RUBRIC: Tempore Passionis}
+
+℣. Erue a frámea, Deus, ánimam meam. ℟. Et de manu canis únicam meam.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Allelúja, \* lapis revolútus est, allelúja: ab óstio monuménti, allelúja, allelúja.
+
+℣. Surréxit Dóminus de sepúlcro, allelúja. ℟. Qui pro nobis pepéndit in ligno, allelúja.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Quam admirábile.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Allelúja, \* quem quæris, múlier? allelúja: vivéntem cum mórtuis, allelúja, allelúja.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem

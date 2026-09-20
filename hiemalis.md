@@ -40875,3 +40875,53 @@ Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus, Deus tuus, et 
 Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.
 
 Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sæculum sæculi.
+
+**Ant.** Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna.
+
+**Ant.** Adjuvábit eam \* Deus vultu suo: Deus in médio ejus, non commovébitur.
+
+###### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit pródigia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Adjuvábit eam Deus vultu suo: Deus in médio ejus, non commovébitur.
+
+**Ant.** Aquæ multæ \* non potuérunt exstínguere caritátem.
+
+###### Psalmus 47
+
+MAGNUS Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sancto ejus.
+
+Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
+
+Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.

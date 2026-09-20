@@ -35934,4 +35934,16 @@ IN illo témpore: Offerébant Jesu párvulos, ut tángeret illos: discípuli aut
 
 AIT discípulis Jesus: Sínite párvulos veníre ad me, et ne prohibuéritis eos; tálium enim est regnum Dei. Significánter dixit: Tálium est; non: Istórum; ut osténderet, non ætátem regnáre, sed mores; et his, qui símilem habérent innocéntiam et simplicitátem, prǽmium repromítti: Apóstolo quoque in eámdem senténtiam congruénte: Fratres, nolíte fíeri púeri sénsibus; sed malítia párvuli estóte, sensu autem ut perfécti sitis.
 
-℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+ET, cum egréssus esset in viam, procúrrens quidam, genu flexo ante eum, rogábat eum: Magíster bone, quid fáciam, ut vitam ætérnam percípiam? Audíerat, credo, iste quæsítor vitæ ætérnæ a Dómino, tantum eos, qui parvulórum velint esse símiles, dignos esse intróitu regni cæléstis: atque ídeo curam gerens tractátus certióris, poscit sibi non per parábolas, sed apérte, quibus óperum méritis vitam ætérnam cónsequi possit, expóni. Jesus autem dixit ei: Præcépta nosti. Hæc est puerílis innocéntiæ cástitas, quæ nobis imitánda propónitur, si regnum Dei vólumus intráre. At ille respóndens, ait illi: Magíster, hæc ómnia observávi a juventúte mea. Non est putándus homo iste vel voto tentántis (ut quidam putavére) Dóminum interrogásse, vel de sua esse vita mentítus, cum se legis mandáta custodísse dicébat; sed, simplíciter, ut víxerit esse conféssus. Quia si mendácii aut simulatiónis noxa reus tenerétur, nequáquam intúitus arcána cordis ejus, eum dilígere dicerétur Jesus.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ, alias:}
+
+#### Lectio ix
+
+DILIGIT enim Dóminus eos, qui mandáta legis, quamvis minóra, custódiunt: sed nihilóminus, quod in lege minus fúerat, iis qui perfécti esse desíderant, osténdit, quia non venit sólvere legem aut Prophétas, sed adimplére. Ad quam profécto adimpletiónem pértinet, quod hic consequénter adjúngitur: Vade, quæcúmque habes vende et da paupéribus, et habébis thesáurum in cælo, et veni, séquere me. Quicúmque perféctus esse volúerit, debet véndere quæ habet; et non ex parte véndere, sicut Ananías et Saphíra, sed totum véndere: et cum vendíderit, dare omne paupéribus, et sic sibi præparáre thesáurum in regno cælórum. Nec hoc

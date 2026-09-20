@@ -151,7 +151,7 @@ Jejuniórum múnera. Amen.
 
 PANGE, lingua, gloriósi
 Láuream certáminis,
-Et super Crucis tropháo
+Et super Crucis trophǽo
 Dic triúmphum nóbilem:
 Quáliter Redémptor orbis
 Immolátus vícerit.
@@ -1822,7 +1822,7 @@ Jejuniórum múnera. Amen.
 
 PANGE, lingua, gloriósi
 Láuream certáminis,
-Et super Crucis tropháo
+Et super Crucis trophǽo
 Dic triúmphum nóbilem:
 Quáliter Redémptor orbis
 Immolátus vícerit.
@@ -3886,7 +3886,7 @@ Jejuniórum múnera. Amen.
 
 PANGE, lingua, gloriósi
 Láuream certáminis,
-Et super Crucis tropháo
+Et super Crucis trophǽo
 Dic triúmphum nóbilem:
 Quáliter Redémptor orbis
 Immolátus vícerit.
@@ -6163,3 +6163,88 @@ Lex et prophétæ prímitus
 Hoc prætulérunt, póstmodum
 Christus sacrávit, ómnium
 Rex atque factor témporum.
+
+Utámur ergo párcius
+Verbis, cibis et pótibus,
+Somno, jocis, et árctius
+Perstémus in custódia.
+
+Vitémus autem nóxia,
+Quæ súbruunt mentes vagas:
+Nullúmque demus cállidi
+Hostis locum tyránnidi.
+
+Flectámus iram víndicem,
+Plorémus ante Júdicem,
+Clamémus ore súpplici,
+Dicámus omnes cérnui:
+
+Nostris malis offéndimus
+Tuam, Deus, cleméntiam:
+Effúnde nobis désuper,
+Remíssor, indulgéntiam.
+
+Meménto quod sumus tui,
+Licet cadúci, plásmatis:
+Ne des honórem nóminis
+Tui, precámur, álteri.
+
+Laxa malum, quod fécimus,
+Auge bonum, quod póscimus:
+Placére quo tandem tibi
+Possímus hic, et pérpetim.
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas,
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+#### Tempore Passionis
+
+**Invit.** Hódie, si vocem Dómini audiéritis, \* Nolíte obduráre corda vestra. **Ps. 94** Veníte, exsultémus. [3]
+
+{RUBRIC: In quarto Ps. versu non dicitur: Hódie, si vocem; sed post repetitum Invitatorium, statim subjungitur: Sicut in exacerbatióne.}
+
+{RUBRIC: In fine autem hujus Ps. non dicitur} Glória Patri; {RUBRIC: sed repetitur Invitatorium.}
+
+#### Hymnus
+
+PANGE, lingua, gloriósi
+Láuream certáminis,
+Et super Crucis trophǽo
+Dic triúmphum nóbilem:
+Quáliter Redémptor orbis
+Immolátus vícerit.
+
+De paréntis protoplásti
+Fraude Factor condolens,
+Quando pomi noxiális
+In necem morsu ruit:
+Ipse lignum tunc notávit,
+Damna ligni ut sólveret.
+
+Hoc opus nostræ salútis
+Ordo depopóscerat;
+Multifórmis proditóris
+Ars ut artem fálleret,
+Et medélam ferret inde,
+Hostis unde læserat.
+
+Quando venit ergo sacri
+Plenitúdo témporis,
+Missus est ab arce Patris
+Natus, orbis Cónditor;
+Atque ventre virgináli
+Carne amíctus pródiit.
+
+Vagit infans inter arcta
+Cónditus præsépia:
+Membra pannis involúta
+Virgo Mater álligat:
+Et Dei manus pedésque
+Stricta cingit fáscia.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:

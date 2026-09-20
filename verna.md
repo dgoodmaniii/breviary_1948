@@ -18311,4 +18311,16 @@ IN illo témpore: Assúmpsit Jesus Petrum, et Jacóbum, et Joánnem fratrem ejus
 
 {RUBRIC: Homilía de Transfigurat. Domini}
 
-EVANGELICA léctio, dilectíssimi, quæ per aures córporis interiórem méntium nostrárum pulsávit audítum, ad magni sacraménti nos intelligéntiam vocat: quam, aspiránte grátia Dei, facílius assequémur, si consideratiónem nostram ad ea, quæ paulo supérius sunt narráta, referámus. Salvátor
+EVANGELICA léctio, dilectíssimi, quæ per aures córporis interiórem méntium nostrárum pulsávit audítum, ad magni sacraménti nos intelligéntiam vocat: quam, aspiránte grátia Dei, facílius assequémur, si consideratiónem nostram ad ea, quæ paulo supérius sunt narráta, referámus. Salvátor enim humáni géneris Jesus Christus, condens eam fidem, quæ et ímpios ad justítiam, et mórtuos révocat ad vitam, ad hoc discípulos suos doctrínæ mónitis, et óperum miráculis imbuébat, ut idem Christus et Unigénitus Dei, et hóminis Fílius crederétur. Nam unum horum sine áltero non próderat ad salútem: et æquális erat perículi, Dóminum Jesum Christum aut Deum tantúmmodo sine hómine, aut sine Deo solum hóminem credidísse: cum utrúmque esset páriter confiténdum: quia sicut Deo vera humánitas, ita hómini ínerat vera divínitas.
+
+℟. Scíndite corda vestra, et non vestiménta vestra: et convertímini ad Dóminum Deum vestrum: \* Quia benígnus et miséricors est. ℣. Derelínquat ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus. — Quia.
+
+#### Lectio ii
+
+AD confirmándam ergo hujus fídei salubérrimam cognitiónem interrogáverat discípulos suos Dóminus, inter divérsas aliórum opiniónes quid ipsi de eo créderent, quidve sentírent. Ubi Petrus Apóstolus, per revelatiónem summi Patris corpórea súperans, et humána transcéndens, vidit mentis óculis Fílium Dei vivi, et conféssus est glóriam Deitátis; quia non ad solam respéxit substántiam carnis et sánguinis: tantúmque in hac fídei sublimitáte complácuit, ut beatitúdinis felicitáte donátus, sacram inviolábilis petræ accíperet firmitátem: super quam fundáta Ecclésia, portis ínferi et mortis légibus prævaléret; nec in solvéndis aut ligándis quorumcúmque causis áliud ratum esset in cælis, quam quod Petri sedísset arbítrio.
+
+℟. Frange esuriénti panem tuum, et egénos vagósque induc in domum tuam: \* Tunc erúmpet quasi mane lumen tuum, et anteíbit fáciem tuam justítia tua. ℣. Cum víderis nudum, óperi eum, et carnem tuam ne despéxeris. — Tunc.
+
+#### Lectio iii
+
+HÆC autem, dilectíssimi, laudátæ intelligéntiæ celsitúdo instruénda erat de inferióris substántiæ sacraménto: ne apostólica fides ad glóriam confiténdæ in Christo Deitátis evécta, infirmitátis

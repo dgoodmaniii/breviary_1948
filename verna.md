@@ -12655,4 +12655,65 @@ DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátu
 
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
-Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+### Tempore Passionis
+
+{RUBRIC: Feria V post Dom. Passionis}
+
+**Ant.** Pópule meus, quid feci tibi? aut quid moléstus fui? Respónde mihi.
+
+**Capitulum** *Jer. 17, 18*
+
+CONFUNDANTUR qui me persequúntur, et non confúndar ego: páveant illi, et non páveam ego: induc super eos diem afflictiónis, et dúplici contritióne cóntere eos, Dómine, Deus noster.
+
+℟. br. De ore leónis \* Líbera me, Dómine. De. ℣. Et a córnibus unicórnium humilitátem meam. Líbera. De. ℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+{RUBRIC: Preces feriales, ut supra. 241}
+
+### Tempore Paschali
+
+**Capit.** *1 Cor. 15, 20-22*
+
+CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam quidem per hóminem mors, et per hóminem resurréctio mortuórum. Et sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur.
+
+℟. br. Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Invocábimus.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Per arma justítiæ.

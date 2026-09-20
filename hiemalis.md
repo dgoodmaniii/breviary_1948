@@ -41139,3 +41139,53 @@ In sæculórum sǽcula. Amen.
 **1 — Oratio**
 
 DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ N. Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+**2 — Alia Oratio**
+
+INDULGÉNTIAM nobis, quǽsumus, Dómine, beáta N. Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis et tuæ professióne virtútis. Per Dóminum.
+
+##### Pro Virgine non Martyre
+
+**3 — Oratio**
+
+EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Si fuerint plures Virgines Martyres:}
+
+℣. Adducéntur Regi Vírgines post eam. ℟. Próximæ ejus afferéntur tibi.
+
+**Ad Bened. Ant.** Prudéntes Vírgines, \* aptáte vestras lámpades: ecce Sponsus venit, exíte óbviam ei.
+
+**4 — Oratio**
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tuárum N. et N. palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Tertiam
+
+#### Capitulum
+
+{RUBRIC: Fratres, ut supra. [124]}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+### Ad Sextam
+
+#### Capitulum
+
+*2 Cor. 11, 2*
+
+ÆMULOR enim vos Dei æmulatióne. Despóndi enim vos uni viro vírginem castam exhibére Christo.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+### Ad Nonam
+
+##### Pro Virgine Martyre
+
+#### Capitulum
+
+*Eccli. 51, 13-14*
+
+DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.

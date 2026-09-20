@@ -18589,4 +18589,30 @@ LOCUTUS est Dóminus Judǽis, dicens: Ego vado. Christo enim Dómino mors profé
 
 #### Lectio ii
 
-CULPAVIT, qui non requírerent: damnávit requiréntes. Bonum est enim quærere ánimam Christi, sed quo modo eam quæsiérunt discípuli: et malum est quærere ánimam Christi, sed quo modo eam Judǽi quæsiérunt: illi enim ut habérent, isti ut pérderent. Dénique istis, quia sic quærébant more malo, corde pervérso, quid secútus adjúnxit? Quærétis me; et, ne putétis, quia
+CULPAVIT, qui non requírerent: damnávit requiréntes. Bonum est enim quærere ánimam Christi, sed quo modo eam quæsiérunt discípuli: et malum est quærere ánimam Christi, sed quo modo eam Judǽi quæsiérunt: illi enim ut habérent, isti ut pérderent. Dénique istis, quia sic quærébant more malo, corde pervérso, quid secútus adjúnxit? Quærétis me; et, ne putétis, quia bene me quærétis, in peccáto vestro moriémini. Hoc est Christum male quærere, in peccáto suo mori: hoc est illum odísse, per quem possit solum salvus esse.
+
+℟. Appáruit Deus Jacob, et benedíxit eum, et dixit: Ego sum Deus Bethel, ubi unxísti lápidem, et votum vovísti mihi: \* Créscere te fáciam, et multiplicábo te. ℣. Vere Dóminus est in loco isto, et ego nesciébam. — Créscere.
+
+#### Lectio iii
+
+CUM enim hómines, quorum spes in Deo est, non débeant mala réddere nec pro malis; reddébant isti mala pro bonis. Prænuntiávit ergo illis Dóminus, dixítque senténtiam præscius, quod in suo peccáto moreréntur. Deínde adjúnxit: Quo ego vado, vos non potéstis veníre. Hoc et discípulis suis álio loco dixit: nec tamen eis dixit, In peccáto vestro moriémini. Quid autem dixit? quod et istis: Quo ego vado, vos non potéstis veníre. Non ábstulit spem, sed prædíxit dilatiónem. Quando enim hoc discípulis Dóminus loquebátur, tunc non póterant veníre, quo ille ibat, sed póstea ventúri erant: isti autem numquam, quibus præscius dixit, In peccáto vestro moriémini.
+
+℟. Det tibi Deus de rore cæli et de pinguédine terræ abundántiam: sérviant tibi tribus et pópuli: \* Esto dóminus fratrum tuórum. ℣. Et incurvéntur ante te fílii matris tuæ. — Esto. Glória Patri. Esto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Ego princípium, \* qui et loquor vobis.
+
+#### Oratio
+
+PRÆSTA, quæsumus, omnípotens Deus: ut família tua, quæ se, affligéndo carnem, ab aliméntis ábstinet, sectándo justítiam, a culpa jejúnet. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Qui me misit, \* mecum est, et non relíquit me solum: quia quæ plácita sunt ei, fácio semper.
+
+#### Oratio
+
+ADESTO supplicatiónibus nostris, omnípotens Deus: et, quibus fidúciam sperándæ pietátis indúlges; consuétæ misericórdiæ tríbue benígnus efféctum. Per Dóminum.
+
+---

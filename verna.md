@@ -3130,4 +3130,69 @@ Confundántur supérbi, quia injúste iniquitátem fecérunt in me: \* ego autem
 
 Convertántur mihi timéntes te: \* et qui novérunt testimónia tua.
 
-Fiat cor meum immaculátum in justificatióni-
+Fiat cor meum immaculátum in justificatiónibus tuis, \* ut non confúndar.
+
+{RUBRIC: Extra Tempus Paschale: Antiphona ut in Proprio de Tempore.}
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: Reliqua ut in Proprio de Tempore et in Ordinario. 23}
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Extra Tempus Paschale: Antiphona ut in Proprio de Tempore.}
+
+#### Tempore Paschali
+
+**Ant.** Allelúja.
+
+###### Psalmus 118, vi
+
+DEFECIT in salutáre tuum ánima mea: \* et in verbum tuum supersperávi.
+
+Defecérunt óculi mei in elóquium tuum, \* dicéntes: Quando consoláberis me?
+
+Quia factus sum sicut uter in pruína: \* justificatiónes tuas non sum oblítus.
+
+Quot sunt dies servi tui? \* quando fácies de persequéntibus me judícium?
+
+Narravérunt mihi iníqui fabulatiónes: \* sed non ut lex tua.
+
+Omnia mandáta tua véritas: \* iníque persecúti sunt me, ádjuva me.
+
+Paulo minus consummavérunt me in terra: \* ego autem non derelíqui mandáta tua.
+
+Secúndum misericórdiam tuam vivífica me: \* et custódiam testimónia oris tui.
+
+In ætérnum, Dómine, \* verbum tuum pérmanet in cælo.
+
+In generatiónem et generatiónem véritas tua: \* fundásti terram, et pérmanet.
+
+Ordinatióne tua persevérat dies: \* quóniam ómnia sérviunt tibi.
+
+Nisi quod lex tua meditátio mea est: \* tunc forte periíssem in humilitáte mea.
+
+In ætérnum non oblivíscar justificatiónes tuas: \* quia in ipsis vivificásti me.

@@ -1870,3 +1870,58 @@ Laudet univérsitas. Amen.
 
 REX sempitérne cælitum,
 Rerum Creátor ómnium,
+Æquális ante sæcula
+Semper Parénti Fílius:
+
+Nascénte qui mundo faber
+Imáginem vultus tui
+Tradens Adámo, nóbilem
+Limo jugásti spíritum.
+
+Cum livor et fraus dæmonis
+Fœdásset humánum genus:
+Tu, carne amíctus, pérditam
+Formam refórmas ártifex.
+
+Qui, natus olim e Vírgine,
+Nunc e sepúlcro násceris,
+Tecúmque nos a mórtuis
+Jubes sepúltos súrgere.
+
+Qui, pastor ætérnus, gregem
+Aqua lavas baptísmatis:
+Hæc est lavácrum méntium:
+Hæc est sepúlcrum críminum.
+
+Nobis diu qui débitæ
+Redémptor affíxus cruci,
+Nostræ dedísti pródigus
+Prétium salútis sánguinem.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+### In I Nocturno
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Beátus vir. †
+
+{RUBRIC: ¶ Et non repetitur in Psalmo; quod semper fit, quando Antiphona incipit a primis Psalmi vel Cantici verbis. Et Psalmus vel Canticum tunc incipitur ab eo verbo, ante quod vel inchoata vel integra desinit Antiphona; si tamen eadem sint verba, et continuetur Antiphona cum Psalmo vel Cantico, neque additur in fine ipsius Antiphonæ Allelúja.}
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* lapis revolútus est, allelúja: ab óstio monuménti, allelúja, allelúja.
+
+{RUBRIC: Sub una tantum Antiphona dicuntur tres Psalmi in unoquoque Nocturno, etiam in Feriis.}
+
+{RUBRIC: Antiphonæ autem cum Psalmis et Versibus, tam intra quam extra Tempus Paschale assignatæ, adhibentur semper, extra Octavam Ascensionis, quando fit Officium de Dominica seu minori seu majori.}
+
+{RUBRIC: ¶ Asteriscus \*, in Psalmorum versibus et in aliis Officii partibus insertus, denotat pausam cantus et recitationis in Choro; præter quam in Antiphonis, in quibus nempe significat tum præintonationem Antiphonæ, tum Antiphonam ipsam ante Psalmum seu Canticum eousque producendam esse ad omnes et singulas Horas in Officio ritus semiduplicis ac simplicis, atque ad Horas tantum minores in Officio ritus du-

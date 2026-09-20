@@ -37910,3 +37910,103 @@ Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, qu
 Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
 
 Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** In univérsa terra glória et honóre coronásti eum.
+
+℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 44 de Sanctis}
+
+#### Lectio iv
+
+TRIUMPHÁLIS beáti Mártyris N. dies hódie nobis anniversária celebritáte recúrrit; cujus glorificatióni sicut congáudet Ecclésia, sic ejus propónit sequénda vestígia. Si enim compátimur, et conglorificábimur. In cujus glorióso agóne duo nobis præcípue consideránda sunt: induráta vidélicet tortóris sævítia, et Mártyris invícta patiéntia. Sævítia tortóris, ut eam detestémur; patiéntia Mártyris, ut eam imitémur. Audi Psalmístam advérsus malítiam increpántem: Noli æmulári in malignántibus, quóniam tamquam fœnum velóciter aréscent. Quod autem advérsus malignántes patiéntia exhibénda sit, audi Apóstolum suadéntem: Patiéntia vobis necessária est, ut reportétis promissiónes.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+**Benedictio.** Christus perpétuæ.
+
+#### Lectio v
+
+CORONÁTA ítaque est beáti Mártyris patiéntia: mancipáta est ætérnis cruciátibus tortóris incorrécta malítia. Hoc atténdens in agóne suo gloriósus Christi Athléta, non exhórruit cárcerem. Ad imitatiónem cápitis sui tolerávit probra, sustínuit irrisiónes, flagélla non tímuit, et quot ante mortem pro Christo pértulit supplícia, tot ei de se óbtulit sacrifícia. Quod enim propinánte Apóstolo bíberat, alte retinébat: Quia non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ re-velábitur in nobis; et Quia momentáneum hoc et leve nostræ tribulatiónis, ætérnum glóriæ pondus operátur in cælis. Hujus promissiónis amóre a terrénis suspénsus, et prægustáta supérnæ suavitátis dulcédine ineffabíliter afféctus, dicébat cum Psalmísta: Quid mihi est in cælo, et a te quid vólui super terram? Defécit caro mea et cor meum: Deus cordis mei, et pars mea Deus in ætérnum.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+**Benedictio.** Ignem sui amóris.
+
+#### Lectio vi
+
+CONTEMPLABÁTUR enim quantum in ænígmate infírmitas humána óculum mentis in æternitáte fígere potest, quanta sint supérnæ civitátis gáudia: et ea enarráre non sufficiens, admirándo clamábat: Quid mihi est in cælo? Quasi díceret: Excédit vires meas, excédit facultátem eloquéntiæ meæ, transcéndit capacitátem intelligéntiæ meæ illud decus, illa glória, illa celsitúdo, qua nobis, a conturbatióne hóminum remótis, in abscóndito faciéi suæ Jesus Christus Dóminus noster reformábit corpus humilitátis nostræ, configurátum córpori claritátis suæ. Hujus perféctæ libertátis contemplatióne nullum vitábat perículum, nullum horrébat supplícium: et si míllies posset mori, non putábat se hanc digne posse áliqua ratióne promeréri.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+**Ant.** Justus Dóminus, \* et justítiam diléxit: æquitátem vidit vultus ejus.
+
+###### Psalmus 10
+
+IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Óculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+**Ant.** Justus Dóminus, et justítiam diléxit: æquitátem vidit vultus ejus.
+
+**Ant.** Habitábit \* in tabernáculo tuo: requiéscet in monte sancto tuo.
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Habitábit in tabernáculo tuo: requiéscet in monte sancto tuo.
+
+**Ant.** Posuísti, Dómine, \* super caput ejus corónam de lápide pretióso.
+
+###### Psalmus 20
+
+DOMINE, in virtúte tua lætábitur rex: \* et super salutáre tuum exsultábit vehementer.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sæculum, et in sæculum sæculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sæculum sæculi: \* lætificábis eum in gáudio cum vultu tuo.

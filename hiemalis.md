@@ -34919,4 +34919,28 @@ PEREGRINATIÓNES hujúsmodi fidem, frigescénte sæculo, excitásse, ánimum ad 
 
 #### Lectio ix
 
-ANNO quarto a dogmática definitióne de immaculáto beátæ Vírginis Concéptu, ad Gavi flúminis oram prope óppidum
+ANNO quarto a dogmática definitióne de immaculáto beátæ Vírginis Concéptu, ad Gavi flúminis oram prope óppidum Lourdes diœcésis Tarbiénsis in Gállia, cum puélla quædam, nómine Bernadétte, in rupis sinu plúries se immaculátam Dei Genitrícem conspexísse asséreret, tot et tanta mirabília facta sunt, ut dígitum Dei ibi esse prudens quisque et pius Christifidélis fácile intellígeret. Quæ inter illud est célebre, quod ægri hauriéntes aquam e fonte in specu tunc primo mirabíliter scaténte, sæpe sǽpius sanitátem recípiant. Percrebrescénte ítaque fama beneficiórum, quæ in sacro specu recepísse fidéles dicebántur, et aucto in dies hóminum concúrsu, Tarbiénsis epíscopus, post jurídicam factórum inquisitiónem, cultum ejúsdem Vírginis immaculátæ in eódem specu permísit. Mox ædificáto templo, innúmeræ fidélium turbæ quovis anno illuc advéniunt, noménque Deíparæ immaculátæ ubíque terrárum in dies inclaréscit; eo magis, quod síngulis annis, duránte processióne sanctíssimi Sacraménti, infírmis úndique eo delátis, nonnúlli, sanatiónem a Dómino per intercessiónem immaculátæ Matris peténtes, íllico convaléscunt. Quibus jure commótus summus Póntifex Pius décimus festum, a Leóne décimo tértio áliquibus locis concéssum, ad univérsam exténdit Ecclésiam.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+**Ant.** Manus Dómini \* confortávit te, et ídeo eris benedícta in ætérnum.
+
+###### Psalmus 95
+
+CANTÁTE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.

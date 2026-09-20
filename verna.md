@@ -1651,4 +1651,38 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 
 Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
 
-℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére no-
+℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolutis Precibus, vel, si Preces locum non habeant, repetita Antiphona post Magnificat, statim dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: Et non dicitur Versus} Fidélium ánimæ, {RUBRIC: sed immediate subjungitur una ex finalibus beátæ Mariæ Virginis Antiphonis, quæ infra pro diversitate Temporis assignantur.}
+
+{RUBRIC: Postea subjungitur:}
+
+℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+{RUBRIC: Deinde dicitur secreto} Pater noster, Ave María et Credo.
+
+{RUBRIC: Si post Completorium immediate sequatur Matutinum, tunc bis dicitur} Pater noster, Ave María et Credo, {RUBRIC: pro fine videlicet Officii diei præcedentis, et pro initio Officii diei sequentis.}
+
+## Post singulas Horas
+
+{RUBRIC: In fine Laudum, vel, si post Laudes immediate subsequatur alia Hora, in fine ultimæ Horæ, sicuti et semper in fine Completorii, quamvis immediate sequatur Matutinum diei sequentis, tam in publica quam in privata divini Officii recitatione; atque in publica insuper recitatione post alias quascumque Horas, si tunc terminetur Officium et discedatur a Choro, dicitur sequens Antiphona finalis beátæ Mariæ Virginis.}
+
+{RUBRIC: I Post Laudes ac ceteras Horas, præter Completorium, dicto Versu} Fidélium ánimæ {RUBRIC: et Oratione Dominica secreto recitata, subjungitur:}
+
+℣. Dóminus det nobis suam pacem. ℟. Et vitam ætérnam. Amen.
+
+{RUBRIC: Atque statim dicitur Antiphona finalis, ut infra.}

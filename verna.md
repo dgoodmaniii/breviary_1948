@@ -8841,3 +8841,63 @@ Homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis insipi
 **Absolutio.** Ipsíus píetas et.
 
 **Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+**I**
+
+*In Feriis Temporis Paschalis, atque in Festis extra et intra Tempus Paschale celebrándis, cum ad Laudes non dícitur Psalmus 50 Miserére.*
+
+#### Extra Tempus Paschale
+
+**Ant.** Deus deórum, \* † Dóminus locútus est. ‡
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 49, i
+
+DEUS deórum, † Dóminus locútus est: \* ‡ et vocávit terram.
+
+A solis ortu usque ad occásum: \* ex Sion spécies decóris ejus.
+
+Deus maniféste véniet: \* Deus noster et non silébit.
+
+Ignis in conspéctu ejus exardéscet: \* et in circúitu ejus tempéstas válida.
+
+Advocábit cælum desúrsum: \* et terram discérnere pópulum suum.
+
+Congregáte illi sanctos ejus: \* qui órdinant testaméntum ejus super sacrifícia.
+
+Et annuntiábunt cæli justítiam ejus: \* quóniam Deus judex est.
+
+Audi, pópulus meus, et loquar: Israël, et testificábor tibi: \* Deus, Deus tuus ego sum.
+
+Non in sacrifíciis tuis árguam te: \* holocáusta autem tua in conspéctu meo sunt semper.
+
+Non accípiam de domo tua vítulos: \* neque de grégibus tuis hircos.
+
+Quóniam meæ sunt omnes feræ silvárum, \* juménta in móntibus et boves.
+
+Cognóvi ómnia volatília cæli: \* et pulchritúdo agri mecum est.
+
+Si esuríero, non dicam tibi: \* meus est enim orbis terræ, et plenitúdo ejus.
+
+Numquid manducábo carnes taurórum? \* aut sánguinem hircórum potábo?
+
+Immola Deo sacrifícium laudis: \* et redde Altíssimo vota tua.
+
+Et ínvoca me in die tribulatiónis: \* éruam te, et honorificábis me.
+
+**Ant.** Deus deórum, Dóminus locútus est.
+
+**Ant.** Intellígite, \* qui obliviscímini Deum.
+
+###### Psalmus 49, ii
+
+PECCATORI autem dixit Deus: \* Quare tu enárras justítias meas, et assúmis testaméntum meum per os tuum?
+
+Tu vero odísti disciplínam: \* et projecísti sermónes meos retrórsum:
+
+Si vidébas furem, currébas cum eo: \* et cum

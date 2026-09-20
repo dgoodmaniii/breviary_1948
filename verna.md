@@ -12093,3 +12093,70 @@ Linguam refrénans témperet,
 Ne litis horror ínsonet:
 Visum fovéndo cóntegat,
 Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** In loco páscuæ.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego.
+
+{RUBRIC: Feria V post Dom. Passionis}
+
+**Ant.** Líbera me, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 22
+
+DOMINUS regit me, et nihil mihi déerit: \* in loco páscuæ ibi me collocávit.
+
+Super aquam refectiónis educávit me: \* ánimam meam convértit.
+
+Dedúxit me super sémitas justítiæ, \* propter nomen suum.
+
+Nam, et si ambulávero in médio umbræ mortis, non timébo mala: \* quóniam tu mecum es.
+
+Virga tua, et báculus tuus: \* ipsa me consoláta sunt.
+
+Parásti in conspéctu meo mensam: \* advérsus eos, qui tríbulant me.
+
+Impinguásti in óleo caput meum: \* et calix meus inébrians quam præclárus est!
+
+Et misericórdia tua subsequétur me: \* ómnibus diébus vitæ meæ:
+
+Et ut inhábitem in domo Dómini, \* in longitúdinem diérum.
+
+###### Psalmus 71, i
+
+DEUS, judícium tuum regi da: \* et justítiam tuam fílio regis:
+
+Judicáre pópulum tuum in justítia, \* et páuperes tuos in judício.
+
+Suscípiant montes pacem pópulo: \* et colles justítiam.
+
+Judicábit páuperes pópuli, et salvos fáciet fílios páuperum: \* et humiliábit calumniatórem.
+
+Et permanébit cum sole, et ante lunam, \* in generatióne et generatiónem.
+
+Descéndet sicut plúvia in vellus: \* et sicut stillicídia stillántia super terram.
+
+Oriétur in diébus ejus justítia, et abundántia pacis: \* donec auferátur luna.
+
+Et dominábitur a mari usque ad mare: \* et a flúmine usque ad términos orbis terrárum. Gl.

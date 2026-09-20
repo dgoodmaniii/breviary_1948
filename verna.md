@@ -2198,4 +2198,64 @@ Judicáre pupíllo et húmili, \* ut non appónat ultra magnificáre se homo sup
 
 IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?
 
-Quóniam ecce peccatóres intendérunt arcum, para-
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Oculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Justus Dóminus, et justítiam diléxit.
+
+{RUBRIC: In Quadragesima}
+
+℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+{RUBRIC: Tempore Passionis}
+
+℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Allelúja, noli flere, María, allelúja: resurréxit Dóminus, allelúja, allelúja.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+**Absolutio** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 Divínum auxílium. 9 Ad societátem cívium.
+
+## Ad Laudes I
+
+*In Dominicis Temporis Paschalis*
+
+(Pater noster {RUBRIC: et} Ave).
+
+℣. Deus, in adjutórium.
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+{RUBRIC: Sub quæ sola Antiphona Allelúja dicuntur omnes Psalmi cum Cantico usque ad Capitulum, etiam in Feriis.}
+
+{RUBRIC: ¶ Antiphona cum Psalmis assignata adhibetur semper extra Octavam Ascensionis quando fit Officium de qualibet Dominica minori ac de majori Dominica in Albis.}
+
+###### Psalmus 92 [1]
+
+DOMINUS regnávit, decórem indútus est: \* indútus est Dóminus fortitúdinem, et præcínxit se.
+
+Etenim firmávit orbem terræ, \* qui non commovébitur.
+
+Paráta sedes tua ex tunc: \* a sæculo tu es.
+
+Elevavérunt flúmina, Dómine: \* elevavérunt flúmina vocem suam.
+
+Elevavérunt flúmina fluctus suos, \* a vócibus aquárum multárum.

@@ -41021,3 +41021,49 @@ Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
 DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
 
 Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+**Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+###### Psalmus 97
+
+CANTATE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+**Absolutio.** A vínculis.
+
+**Benedictio.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 25, 1-13*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile erit regnum cælórum decem virgínibus, quæ accipiéntes lámpades suas, exiérunt óbviam sponso et sponsæ. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 12 in Evang.}
+
+SÆPE vos, fratres caríssimi, admóneo prava ópera fúgere, mundi hujus inquinaménta devitáre, sed hodiérna sancti Evangélii lectióne compéllor dícere, ut et bona, quæ ágitis, cum magna cautéla teneátis; ne per hoc, quod a vobis rectum géritur, favor aut grátia humána requirátur; ne appetítus laudis subrépat, et quod foris osténditur, intus a mercéde vacuétur. Ecce enim Redemptóris voce decem vírgines, et omnes dicúntur vírgines, et tamen intra beatitúdinis já-

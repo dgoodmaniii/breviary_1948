@@ -1061,3 +1061,60 @@ CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábit
 ℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
 
 {RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus} Dóminus vobíscum {RUBRIC: cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}
+
+{RUBRIC: Quando vero ad Laudes recitatæ sunt Preces, post Responsorium breve dicuntur sequentes flexis genibus:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolutis Precibus, vel, si Preces locum non habeant, post Responsorium breve statim dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+{RUBRIC: Et dicitur Oratio conveniens.}
+
+{RUBRIC: Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias. ℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Expleto Hymno, convéniens dicitur Antiphona usque ad Asteriscum \*, et tres Psalmi, prouti Officium occurrens requirit; atque, Psalmis absolutis, integra repetitur Antiphona.}
+
+#### Tempore Quadragesimæ
+
+{RUBRIC: In Officio dominicali, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio autem feriali, dicitur quotidie sequens}
+
+**Ant.** Commendémus nosmetípsos \* in multa patiéntia, in jejúniis multis, per arma justítiæ.
+
+**Capitulum** *Is. 55, 7*
+
+DERELINQUAT ímpius vi-

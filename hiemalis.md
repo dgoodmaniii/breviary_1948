@@ -38229,3 +38229,75 @@ IN illo témpore: Dixit Jesus discípulis suis: Si quis vult post me veníre, á
 QUIA Dóminus ac Redémptor noster novus homo venit in mundum, nova præcépta dedit mundo. Vitæ étenim nostræ véteri in vítiis enutrítæ contrarietátem oppósuit novitátis suæ. Quid enim vetus, quid carnális homo nóverat, nisi sua retinére, aliéna rápere, si posset; concupíscere, si non posset? Sed cæléstis médicus síngulis quibúsque vítiis obviántia ádhibet medicaménta. Nam sicut arte medicínæ cálida frígidis, frígida cálidis curántur: ita Dóminus noster contrária oppósuit medicaménta peccátis, ut lúbricis continéntiam, tenácibus largitátem, iracúndis mansuetúdinem, elátis præcíperet humilitátem.
 
 ℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+**Vel** ℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. Glória Patri. Posuísti.
+
+#### Lectio viii
+
+CERTE, cum se sequéntibus nova mandáta propóneret, dixit: Nisi quis renuntiáverit ómnibus quæ póssidet, non potest meus esse discípulus. Ac si apérte dicat: Qui per vitam véterem aliéna concupíscitis, per novæ conversatiónis stúdium et vestra largímini. Quid vero in hac lectióne dicat, audiámus: Qui vult post me veníre, ábneget semetípsum. Ibi dícitur, ut abnegémus nostra: hic dícitur, ut abnegémus nos. Et fortásse laboriósum non est hómini relínquere sua; sed valde laboriósum est relínquere semetípsum. Minus quippe est abnegáre quod habet; valde autem multum est abnegáre quod est.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+AD se autem nobis veniéntibus Dóminus præcépit, ut renuntiémus nostris: quia, quicúmque ad fídei agónem vénimus, luctámen contra malígnos spíritus súmimus. Nihil autem malígni spíritus in hoc mundo próprium póssident: nudi ergo cum nudis luctári debémus. Nam si vestítus quisque cum nudo luctátur, cítius ad terram dejícitur, quia habet unde teneátur. Quid enim sunt terréna ómnia nisi quǽdam córporis induménta? Qui ergo contra diábolum ad certámen próperat, vestiménta abjíciat, ne succúmbat.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+### III Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 10, 34-42*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nolíte arbitrári, quia pacem vénerim míttere interram: non veni pacem míttere, sed gládium. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+
+{RUBRIC: Comment. in Matth., can. 10}
+
+QUÆ ista divísio est? Inter prima enim legis præcépta accépimus: Honóra patrem tuum et matrem tuam; et ipse Dóminus ait: Pacem meam do vobis, pacem meam relínquo vobis. Quid sibi vult missus pótius gládius in terram, et separátus a patre fílius, et fília a matre, et nurus advérsus socrum, et hóminis doméstici ejus inimíci? Igitur exínde pública auctóritas impietáti proferétur. Ubíque ódia, ubíque bella, et gládius Dómini inter patrem et fílium, et inter fíliam matrémque desǽviens.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+GLÁDIUS telórum ómnium telum acutíssimum est, in quo sit jus potestátis, et judícii sevéritas, et animadvérsio pec-catórum. Et hujus quidem teli nómine novi Evangélii prædicatiónem appellátam frequens in Prophétis auctóritas est. Dei ígitur verbum nuncupátum meminérimus in gládio; qui gládius missus in terram est, idest, prædicátio ejus hóminum córdibus infúsa. Fitque gravis in domo una dissénsio, et doméstica novo hómini erunt inimíca; quia ille per verbum Dei divísus ab illis, manére et intérior et extérior, id est, et corpus et ánima, in spíritus novitáte gaudébit.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória. Qui.
+
+**Vel** ℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sǽculum sǽculi. — Posuísti. Glória Patri. Posuísti.
+
+#### Lectio ix
+
+PERGIT deínde eódem præceptórum et intelligéntiæ decúrsu. Nam, posteáquam relinquénda ómnia, quæ in sǽculo caríssima sunt, imperáverat, adjécit: Qui non áccipit crucem suam, et séquitur me, non est me dignus; quia Qui Christi sunt, crucifixérunt corpus cum vítiis et concupiscéntia. Et indígnus est Christo, qui non crucem suam, in qua compátimur, commórimur, consepelímur, conresúrgimus, accípiens, Dóminum sit secútus, in hoc sacraménto fídei spíritus novitáte victúrus.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+### IV Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 10, 26-32*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nihil est opértum, quod non revelábitur; et occúltum, quod non sciétur. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+
+{RUBRIC: Comment. in Matth., can. 10, post médium}
+
+DOMINUS diem judícii osténdit, quæ abstrúsam voluntátis nostræ consciéntiam pródet; et ea quæ nunc occúlta existimántur, luce cognitiónis públicæ déteget. Igitur non minas, non consília, non potestátes insectántium monet esse metuéndas; quia dies judícii nulla hæc fuísse, atque inánia revelábit. Et quod dico vobis in ténebris, dícite in lúmine; et quod in aure audítis, prædicáte super tecta. Non légimus Dóminum sólitum fuísse nóctibus sermocinári, et doctrínam in ténebris tradídisse: sed quia omnis sermo ejus carnálibus ténebræ sunt, et verbum ejus infidélibus nox est.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+ITAQUE id quod a se díctum est, cum libertáte fídei et confessiónis vult esse loquéndum. Idcírco, quæ in ténebris dicta sunt, prædicári jussit in lúmine; ut, quæ secréto áurium commíssa sunt, super tecta, id est, excélso loquéntium præcónio audiántur. Constánter enim Dei ingerénda cognítio est, et profúndum doctrínæ evangélicæ secrétum in lúmine prædicatiónis apostólicæ

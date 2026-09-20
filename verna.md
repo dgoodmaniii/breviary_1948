@@ -12820,4 +12820,64 @@ RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avér
 
 CHRISTUS semel pro peccátis nostris mórtuus est, justus pro injústis, ut nos offérret Deo, mortificátus quidem carne, vivificátus autem spíritu.
 
-℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi. ℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Ecce, quam bonum \* †et quam jucúndum, habitáre fratres in unum! ‡
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 132
+
+ECCE, quam bonum † et quam jucúndum, \* habitáre fratres in unum: ‡
+
+Sicut unguéntum in cápite, \* quod descéndit in barbam, barbam Aaron.
+
+Quod descéndit in oram vestiménti ejus: \* sicut ros Hermon, qui descéndit in montem Sion.
+
+Quóniam illic mandávit Dóminus benedictiónem, \* et vitam usque in sæculum.
+
+**Ant.** Ecce, quam bonum et quam jucúndum, habitáre fratres in unum!
+
+**Ant.** Confitémini Dómino.
+
+###### Psalmus 135, i
+
+CONFITEMINI Dómino † quóniam bonus: \* quóniam in ætérnum misericórdia ejus.
+
+Confitémini Deo deórum: \* quóniam in ætérnum misericórdia ejus.
+
+Confitémini Dómino dominórum: \* quóniam in ætérnum misericórdia ejus.
+
+Qui facit mirabília magna solus: \* quóniam in ætérnum misericórdia ejus.
+
+Qui fecit cælos in intelléctu: \* quóniam in ætérnum misericórdia ejus.
+
+Qui firmávit terram super aquas: \* quóniam in ætérnum misericórdia ejus.
+
+Qui fecit luminária magna: \* quóniam in ætérnum misericórdia ejus.
+
+Solem in potestátem diéi: \* quóniam in ætérnum misericórdia ejus.
+
+Lunam, et stellas in potestátem noctis: \* quóniam in ætérnum misericórdia ejus.
+
+**Ant.** Confitémini Dómino quóniam in ætérnum misericórdia ejus.
+
+**Ant.** Confitémini Dómino, \* quia in humilitáte nostra memor fuit nostri.
+
+###### Psalmus 135, ii
+
+QUI percússit Ægýptum cum primogénitis eórum: \* quóniam in ætérnum misericórdia ejus.

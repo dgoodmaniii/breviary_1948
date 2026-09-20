@@ -18131,4 +18131,40 @@ VERUM quia non intellexérunt, in ipsos consequénter districtiónem méritæ ul
 
 #### Lectio iii
 
-SI ergo Dóminus nec ea volébat venúmdari in templo, quæ in templo volébat offérri, vidélicet propter stúdium avarítiæ, sive fraudis, quod próprium solet esse negotiántium fácinus: quanta putas animadversióne puníret, si invenísset ibi áliquos rísui vel vanilóquio vacántes, aut álii cuílibet
+SI ergo Dóminus nec ea volébat venúmdari in templo, quæ in templo volébat offérri, vidélicet propter stúdium avarítiæ, sive fraudis, quod próprium solet esse negotiántium fácinus: quanta putas animadversióne puníret, si invenísset ibi áliquos rísui vel vanilóquio vacántes, aut álii cuílibet vítio mancipátos? Si enim ea quæ álibi líbere geri póterant, Dóminus in domo sua temporália negótia geri non pátitur: quanto magis ea quæ nusquam fíeri licet, plus cæléstis iræ meréntur, si in ædibus Deo sacrátis agúntur? Verum quia Spíritus Sanctus in colúmba super Dóminum appáruit, recte per colúmbas Sancti Spíritus charísmata signántur. Qui autem sunt in templo Dei hódie, qui colúmbas vendunt, nisi qui in Ecclésia prétium de impositióne manus accípiunt, per quam vidélicet impositiónem Spíritus Sanctus cælitus datur?
+
+℟. Paradísi portas apéruit nobis jejúnii tempus: suscipiámus illud orántes, et deprecántes: \* Ut in die resurrectiónis cum Dómino gloriémur. ℣. In ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia. — Ut. Glória Patri. Ut.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Intrávit Jesus \* in templum Dei, et ejiciébat omnes vendéntes et eméntes: et mensas nummulariórum, et cáthedras vendéntium colúmbas evértit.
+
+#### Oratio
+
+RESPICE, Dómine, famíliam tuam, et præsta: ut apud te mens nostra tuo desidério fúlgeat, quæ se carnis maceratióne castígat. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Scriptum est enim, \* quia domus mea, domus oratiónis est cunctis géntibus: vos autem fecístis illam spelúncam latrónum: et erat quotídie docens in templo.
+
+#### Oratio
+
+ASCENDANT ad te, Dómine, preces nostræ: et ab Ecclésia tua cunctam repélle nequítiam. Per Dóminum nostrum.
+
+---
+
+## Feria Quarta Quatuor Temporum
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 12, 38-50*
+
+IN illo témpore: Respondérunt Jesu quidam de scribis et pharisǽis, dicéntes: Magíster, vólumus a te signum vidére. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 7 in Lucæ cap. 11}
+
+JUDÆORUM plebe damnáta, Ecclésiæ mystérium evidénter exprími-

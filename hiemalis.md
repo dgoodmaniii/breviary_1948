@@ -34584,4 +34584,24 @@ SANCTIMONIÁLIS quippe fémina caput in mánibus declínans, lacrimárum flúviu
 
 *Ibid. cap. 34*
 
-CUMQUE die áltero éadem venerábilis fémina ad cellam própriam recessísset, vir Dei ad monastérium rédiit. Cum ecce post tríduum, in cella consístens, elevátis in áëra óculis vidit ejúsdem soróris suæ ánimam de córpore
+CUMQUE die áltero éadem venerábilis fémina ad cellam própriam recessísset, vir Dei ad monastérium rédiit. Cum ecce post tríduum, in cella consístens, elevátis in áëra óculis vidit ejúsdem soróris suæ ánimam de córpore egréssam in colúmbæ spécie cæli secréta penetráre. Qui, tantæ ejus glóriæ congáudens, omnipoténti Deo in hymnis et láudibus grátias réddidit, ejúsque óbitum frátribus denuntiávit. Quos étiam prótinus misit, ut ejus corpus ad monastérium deférrent, atque in sepúlcro, quod sibi ipsi paráverat, pónerent. Quo facto contígit, ut, quorum mens una semper in Deo fúerat, eórum quoque córpora nec sepultúra separáret.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+SCHOLÁSTICA, venerábilis patris Benedícti soror, ut scribit sanctus Gregórius Papa in libro secúndo Dialogórum, omnipoténti Dómino ab ipso infántiæ témpore dedicáta, ad eum semel per annum veníre consuéverat; ad quam vir Dei non longe extra jánuam in possessióne monastérii descendébat. Quadam vero die, cum ob repentínam plúviæ inundatiónem, quam a Deo Scholástica obtínuit, incumbéntibus jam noctis ténebris, venerábilis frater extra tectum exíre non posset, factum est, ut totam noctem pervígilem dúcerent atque per sacra spiritális vitæ collóquia sese vicária relatióne satiárent. Cumque die áltero éadem venerábilis fémina ad cellam própriam recessísset, vir Dei ad monastérium rédiit. Cum ecce post tríduum, in cella consístens, elevátis in áëra óculis vidit ejúsdem soróris suæ ánimam de córpore egréssam in colúmbæ spécie cæli secréta penetráre. Tum Benedíctus fratres misit, ut ejus corpus in sepúlcro, quod sibi ipsi paráverat, pónerent. Quo facto contígit, ut, quorum mens una semper in Deo fúerat, eórum quoque córpora nec sepultúra separáret.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum, de Communi Virginum 1 loco.} [122]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ.}
+
+### Ad Laudes
+
+℣. Diffúsa est.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \*

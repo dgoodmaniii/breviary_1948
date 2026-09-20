@@ -11020,3 +11020,88 @@ Jejuniórum múnera. Amen.
 {RUBRIC: In quarto Ps. versu non dicitur: Hódie, si vocem; sed, post repetitum Invitatorium, statim subjungitur: Sicut in exacerbatióne.}
 
 {RUBRIC: In fine autem hujus Ps. non dicitur} Glória Patri; {RUBRIC: sed repetitur Invitatorium.}
+
+#### Hymnus
+
+PANGE, lingua, gloriósi
+Láuream certáminis,
+Et super Crucis trophǽo
+Dic triúmphum nóbilem:
+Quáliter Redémptor orbis
+Immolátus vícerit.
+
+De paréntis protoplásti
+Fraude Factor condolens,
+Quando pomi noxiális
+In necem morsu ruit:
+Ipse lignum tunc notávit,
+Damna ligni ut sólveret.
+
+Hoc opus nostræ salútis
+Ordo depopóscerat;
+Multifórmis proditóris
+Ars ut artem fálleret,
+Et medélam ferret inde,
+Hostis unde læserat.
+
+Quando venit ergo sacri
+Plenitúdo témporis,
+Missus est ab arce Patris
+Natus, orbis Cónditor;
+Atque ventre virgináli
+Carne amíctus pródiit.
+
+Vagit infans inter arcta
+Cónditus præsépia:
+Membra pannis involúta
+Virgo Mater álligat:
+Et Dei manus pedésque
+Stricta cingit fáscia.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+#### Tempore Paschali
+
+**Invit.** Surréxit Dóminus vere, \* Allelúja. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+REX sempitérne cælitum,
+Rerum Creátor ómnium,
+Æquális ante sæcula
+Semper Parénti Fílius:
+
+Nascénte qui mundo faber
+Imáginem vultus tui
+Tradens Adámo, nóbilem
+Limo jugásti spíritum.
+
+Cum livor et fraus dæmonis
+Fœdásset humánum genus:
+Tu, carne amíctus, pérditam
+Formam refórmas ártifex.
+
+Qui, natus olim e Vírgine,
+Nunc e sepúlcro násceris,
+Tecúmque nos a mórtuis
+Jubes sepúltos súrgere.
+
+Qui, pastor ætérnus, gregem
+Aqua lavas baptísmatis:
+Hæc est lavácrum méntium:
+Hæc est sepúlcrum críminum.
+
+Nobis diu qui débitæ
+Redémptor affíxus cruci,
+Nostræ dedísti pródigus
+Prétium salútis sánguinem.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.

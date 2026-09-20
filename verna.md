@@ -17542,7 +17542,9 @@ Regnum tuum regnum ómnium sæculórum: \* et dominátio tua in omni generatión
 
 **Ant.** Fidélis Dóminus. †
 
-Fidélis Dóminus † in ómnibus verbis suis: \* et sanctus in ómnibus opéribus suis.
+###### Psalmus 144, iii
+
+FIDELIS Dóminus † in ómnibus verbis suis: \* et sanctus in ómnibus opéribus suis.
 
 Allevat Dóminus omnes qui córruunt: \* et érigit omnes elísos.
 

@@ -35914,4 +35914,24 @@ INTER céteras virtútes christiánam humilitátem et obediéntiam máxime dilé
 
 #### Lectio ix
 
-GABRIEL, Assísii in Úmbria natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem osténdit. Adoléscens, cum miseréntis Dei múnere, eum ad perfectiórem vitam jamdúdum invitántis, in morbum incidísset, sǽculi vanitátem fastidíre cœpit. Institútum Clericórum a Passióne ampléctens, Gábriel a Vírgine perdolénte máluit appellári ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam. Ipsam omni obséquii génere percólere, prǽsertim conféctam afflictámque Jesu cruciátibus tam dolénter contemplári solébat, ut vim lacrimárum profúnderet. Illibátum virginitátis flórem retínuit, et suæ sodalitátis asperitáte usus, plane mundo crucifíxus, únice Deo vixit. Ita brevem vitæ cursum ómnium virtútum exercitatióne confíciens, caritátis incéndio vérius quam vi morbi consúmptus, divinǽque Matris ope recreátus, ad Súperos evolávit anno mil-
+GABRIEL, Assísii in Úmbria natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem osténdit. Adoléscens, cum miseréntis Dei múnere, eum ad perfectiórem vitam jamdúdum invitántis, in morbum incidísset, sǽculi vanitátem fastidíre cœpit. Institútum Clericórum a Passióne ampléctens, Gábriel a Vírgine perdolénte máluit appellári ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam. Ipsam omni obséquii génere percólere, prǽsertim conféctam afflictámque Jesu cruciátibus tam dolénter contemplári solébat, ut vim lacrimárum profúnderet. Illibátum virginitátis flórem retínuit, et suæ sodalitátis asperitáte usus, plane mundo crucifíxus, únice Deo vixit. Ita brevem vitæ cursum ómnium virtútum exercitatióne confíciens, caritátis incéndio vérius quam vi morbi consúmptus, divinǽque Matris ope recreátus, ad Súperos evolávit anno mil-lésimo octingentésimo sexagésimo secúndo. Eum deínceps Pius Papa décimus Beatórum, Benedíctus vero décimus quintus Sanctórum número accénsuit, et Pius undécimus ejus Offícium et Missam ad univérsam Ecclésiam exténdere dignátus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 10, 13-21*
+
+IN illo témpore: Offerébant Jesu párvulos, ut tángeret illos: discípuli autem comminabántur offeréntibus. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+
+{RUBRIC: Com. in Marc., cap. 10, 13-21}
+
+AIT discípulis Jesus: Sínite párvulos veníre ad me, et ne prohibuéritis eos; tálium enim est regnum Dei. Significánter dixit: Tálium est; non: Istórum; ut osténderet, non ætátem regnáre, sed mores; et his, qui símilem habérent innocéntiam et simplicitátem, prǽmium repromítti: Apóstolo quoque in eámdem senténtiam congruénte: Fratres, nolíte fíeri púeri sénsibus; sed malítia párvuli estóte, sensu autem ut perfécti sitis.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei

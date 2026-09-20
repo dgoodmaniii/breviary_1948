@@ -10240,4 +10240,54 @@ Priúsquam intellígerent spinæ vestræ rhamnum: \* sicut vivéntes, sic in ira
 
 Lætábitur justus cum víderit vindíctam: \* manus suas lavábit in sánguine peccatóris.
 
-Et dicet homo: Si útique est fructus justo: \* útique
+Et dicet homo: Si útique est fructus justo: \* útique est Deus júdicans eos in terra.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** In Deo sperávi, non timébo quid fáciat mihi homo.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos in multa patiéntia, in jejúniis multis, per arma justítiæ.
+
+**Capitulum** *Is. 55, 7*
+
+DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus, et ad Deum nostrum, quóniam multus est ad ignoscéndum.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis.
+
+℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+### Tempore Passionis
+
+{RUBRIC: Fer. IV post Dom. Passionis}
+
+**Ant.** Pópule meus, quid feci tibi, aut quid moléstus fui? Respónde mihi.
+
+{RUBRIC: Fer. IV Majoris Hebdomadæ}
+
+**Ant.** Tu autem, Dómine, scis omne consílium eórum advérsum me in mortem.
+
+**Capitulum** *Jer. 17, 18*
+
+CONFUNDANTUR qui me persequúntur, et non confúndar ego: páveant illi, et non páveam ego: induc super eos diem afflictiónis, et dúplici contritióne cóntere eos, Dómine, Deus noster.
+
+℟. br. De ore leónis \* Líbera me, Dómine. De. ℣. Et a córnibus unicórnium humilitátem meam. Líbera. De. ℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+{RUBRIC: Preces feriales, ut supra.}
+
+#### Tempore Paschali
+
+**Capit.** *1 Cor. 16, 20-22*
+
+CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam qui-

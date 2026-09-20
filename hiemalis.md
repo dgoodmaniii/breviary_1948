@@ -39678,3 +39678,47 @@ NON est invéntus símilis illi, qui conserváret legem Excélsi: ídeo jurejur�
 ℟. br. Elégit eum Dóminus \* Sacerdótem sibi. Elégit. ℣. Ad sacrificándum ei hóstiam laudis. Sacerdótem. Glória Patri. Elégit.
 
 ℣. Tu es sacérdos in ætérnum. ℟. Secúndum órdinem Melchísedech.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Eccli. 45, 19-20*
+
+FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+℟. br. Tu es sacérdos \* In ætérnum. Tu. ℣. Secúndum órdinem Melchísedech. In. Glória Patri. Tu.
+
+℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [69], sed loco ultimi dicitur Psalmus 131 Meménto, ut ibidem pro II Vesperis notátur.}
+
+℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+{RUBRIC: Sequens Antiphona dicitur ad Magnificat in II Vesperis pro solis Summis Pontificibus. Si vero agénda sit Commemoratio alterius Summi Pontificis, sumitur Antiphona Amávit, ut supra.}
+
+**Ant.** Dum esset Summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Si occúrrat celebrári Festum plúrium Pontíficum et Confessórum, Offícium fit ut supra: sed in Oratióne et Sermóne ea, quæ habéntur in singulári dicántur in plurali; et in I Nocturno legántur sequéntes Lectiónes de Scriptúra.}
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+
+*Cap. 44, 1-15*
+
+LAUDÉMUS viros gloriósos et paréntes nostros in generatióne sua. Multam glóriam fecit Dóminus magnificéntia sua a sǽculo. Dominántes in potestátibus suis hómines magni virtúte, et prudéntia sua prǽditi, nuntiántes in prophétis dignitátem prophetárum, et imperántes in præsénti pópulo, et virtúte prudéntiæ pópulis sanctíssima verba. In perítia sua requiréntes modos músicos, et narrántes cármina scripturárum.
+
+##### Pro Conf. Pont. et non Pont.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. ℣. Dómine, quinque talénta tradidísti mihi, ecce, ália quinque superlucrátus sum. — Intra.
+
+#### Lectio ii
+
+HOMINES dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes in dómibus suis. Omnes isti in generatióni-

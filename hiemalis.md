@@ -38997,3 +38997,83 @@ Amen.
 **Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctórum, qui Christi vestígia sunt secúti: et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
 
 {RUBRIC: Completorium de Dominica.}
+
+---
+
+### II Aliæ Lectiones
+
+#### pro plur. Martyribus
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Sermo 1 de Martyribus, tom. 3}
+
+#### Lectio iv
+
+NEMO est qui nésciat, Mártyrum glórias ad hoc divíno consílio a Dei pópulis frequentári, ut et illis débitus honor dicétur, et nobis virtútis exémpla, favénte Christo monstréntur: ut, dum hæc ita celebrári perspícimus, cognoscámus, quanta eos glória máneat in cælis, quorum natalítia táliter celebrántur in terris; quo possímus étiam ipsi tálibus provocári exémplis, virtúte pari, devotióne consímili ac fide; ut, Christo præstánte, dimicáre et víncere hostem possímus, ut, parta victória, cum iísdem Sanctis in regnis cæléstibus triumphémus.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+#### Lectio v
+
+QUIS est enim, qui, eórum volens mérito copulári, nisi prius constántiam eórum téneat, sectétur fidem, imitétur virtútem passiónis; eórum glóriam páribus vitæ lineaméntis aut invéniat aut exquírat? Qui etsi martýrio par esse non possit, tamen múneris tanti dignitáte se quisque bonis áctibus dignum prǽbeat. Adest enim clementíssimus Deus, qui desiderántibus suis aut martýrium prǽbeat, aut, sine martýrio, cum Sanctis prǽmia divína retríbuat.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+#### Lectio vi
+
+UT enim infirmátur peccátor advérsis, ita justus tentatiónibus roborátur. Sic dimicárunt advérsus peccátum Sancti; sic et laborándo fortióres, et moriéndo victóres efféctí sunt. Nullus athlétes sine certámine fórtior dici, nullus sine victória póterit coronári. Nemo miles sine prǽlio hostem subjécit; nemo sine bello imperatórem proméruit. Habes, christiáne, competéntia arma, quibus hostem expúgnes; habes fortíssima tela, quibus inimícum debélles.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum: \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 6, 17-23*
+
+IN illo témpore: Descéndens Jesus de monte, stetit in loco campéstri, et turba discipulórum ejus, et multitúdo copiósa plebis ab omni Judǽa, et Jerúsalem, et marítima, et Tyri, et Sidónis. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Lib. 5 in Luc. cap. 6, post init.}
+
+ADVÉRTE ómnia diligénter, quómodo et cum Apóstolis ascéndat, et descéndat ad turbas. Quómodo enim turba nisi in húmili Christum vidéret? Non séquitur ad excélsa, non ascéndit ad sublímia. Dénique ubi descéndit, invénit infírmos; in excélsis enim infírmi esse non possunt. Hinc étiam Matthǽus docet in inferióribus débiles esse sanátos. Prius enim unusquísque sanándus est, ut paulátim virtútibus procedéntibus ascéndere possit ad montem. Et ídeo quemque in inferióribus sanat, hoc est, a libídine révocat, injúriam cæcitátis avértit. Ad vúlnera nostra descéndit; ut usu quodam et cópia suæ natúræ, compartícipes nos fáciat esse regni cæléstis.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+#### Lectio viii
+
+BEÁTI páuperes, quia vestrum est regnum Dei. Quátuor tantum beatitúdines sanctus Lucas Dóminicas pósuit, octo vero sanctus Matthǽus; sed in illis octo istæ quátuor sunt, et in quátuor istis illæ octo. Hic enim quátuor velut virtútes ampléxus est cardináles; ille in illis octo mýsticum númerum reserávit. Pro octáva enim multi inscribúntur Psalmi, et mandátum áccipis octo illis partem dare, fortásse benedictiónibus. Sicut enim spei nostræ octáva perféctio est, ita octáva summa virtútum est.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis: \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória Patri. Mercédem.
+
+**Vel** ℟. Hæc est vera fratérnitas, quæ numquam pótuit violári certámine: qui effúso sánguine secúti sunt Dóminum: \* Contemnéntes aulam régiam, pervenérunt ad regna cæléstia. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Contemnéntes. Glória Patri. Contemnéntes.
+
+#### Lectio ix
+
+SED prius quæ sunt ampliora videámus. Beáti, inquit, páuperes, quóniam vestrum est regnum Dei. Primam benedictiónem hanc utérque Evangelísta pósuit. Ordine enim prima est, et parens quǽdam generatióque virtútum; quia qui contémpserit sæculária, ipse merébitur sempitérna, nec potest quisquam méritum regni cæléstis adipísci, qui, mundi cupiditáte pressus, emergéndi non habet facultátem.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+### III Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 12, 1-8*
+
+IN illo témpore: Dixit Jesus discípulis suis: Atténdite a ferménto pharisæórum, quod est hypócrisis. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+
+{RUBRIC: Lib. 4 in Luc. cap. 12}
+
+DE hoc ferménto Apóstolus prǽcipit: Itaque epulémur, non in ferménto véteri, neque in ferménto malítiæ, et nequítiæ, sed in ázymis sinceritátis et veritátis. Nam sicut módicum ferméntum totam farínæ, cui injícitur, massam corrúmpit, universámque mox conspersiónem suo sapóre commáculat: sic nimírum simulátio, cujus semel ánimum imbúerit, tota virtútum sinceritáte et veritáte fraudábit. Est ergo sensus: Atténdite, ne ǽmulémini simulatóres, quia

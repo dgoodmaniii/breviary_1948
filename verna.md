@@ -11494,3 +11494,63 @@ Et semen servórum ejus possidébit eam, \* et qui díligunt nomen ejus, habitá
 #### In Festis Sanctorum:
 
 **Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+## Ad Laudes I
+
+*In Feriis Temporis Paschalis, atque in Festis extra et intra Tempus Paschale celebrandis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Jubiláte \* in conspéctu regis Dómini.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 97
+
+CANTATE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Jubiláte in conspéctu regis Dómini.
+
+**Ant.** Dómine, \* †refúgium factus es nobis. ‡
+
+###### Psalmus 89
+
+DOMINE, † refúgium factus es nobis: \* ‡ a generatióne in generatiónem.
+
+Priúsquam montes fíerent, aut formarétur terra et orbis: \* a sæculo et usque in sæculum tu es, Deus.
+
+Ne avértas hóminem in humilitátem: \* et dixísti: Convertímini, fílii hóminum.
+
+Quóniam mille anni ante óculos tuos, \* tamquam dies hestérna, quæ præteríit.
+
+Et custódia in nocte, \* quæ pro níhilo habéntur, eórum anni erunt.
+
+Mane sicut herba tránseat, mane flóreat, et tránseat: \* véspere décidat, indúret et aréscat.
+
+Quia defécimus in ira tua, \* et in furóre tuo turbáti sumus.

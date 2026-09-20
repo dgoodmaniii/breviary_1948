@@ -44298,4 +44298,16 @@ DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno gé
 
 **1** O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est; et procédens homo sine sémine, largítus est nobis suam Deitátem.
 
-**2** Quando natus es \* ineffabíliter ex Vírgine, tunc implétæ sunt Scriptúræ: sicut plúvia in vellus de-
+**2** Quando natus es \* ineffabíliter ex Vírgine, tunc implétæ sunt Scriptúræ: sicut plúvia in vellus descendísti, ut salvum fáceres genus humánum: te laudámus, Deus noster.
+
+**3** Rubum, quem víderat Móyses \* incombústum, conservátam agnóvimus tuam laudábilem virginitátem: Dei Génitrix, intercéde pro nobis.
+
+**4** Germinávit radix Jesse, \* orta est stella ex Jacob: Virgo péperit Salvatórem: te laudámus, Deus noster.
+
+**5** Ecce María génuit \* nobis Salvatórem, quem Joánnes videns exclamávit, dicens: Ecce Agnus Dei, ecce qui tollit peccáta mundi, allelúja.
+
+**Ad Bened. Ant.** Mirábile mystérium \* declarátur hódie: innovántur natúræ, Deus homo factus est: id quod fuit permánsit; et quod non erat assúmpsit; non commixtiónem passus, neque divisiónem.
+
+{RUBRIC: Oratio ut supra ad Vésperas.}
+
+{RUBRIC: Commemorátio de Sanctis ut per Annum. [196]}

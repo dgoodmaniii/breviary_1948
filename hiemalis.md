@@ -35480,4 +35480,48 @@ INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ acti
 
 #### Lectio iii
 
-SIMEON, fílius Cléophæ, post Jacóbum próximus Jerosólymis ordiná-
+SIMEON, fílius Cléophæ, post Jacóbum próximus Jerosólymis ordiná-tus epíscopus, Trajáno imperatóre apud Atticum consulárem est accusátus, quod Christiánus esset et Christi propínquus. Comprehendebántur enim omnes eo témpore, quicúmque ex génere David orti essent. Quare multis cruciátus torméntis eódem passiónis génere, quod Salvátor noster subíerat, afficitur: mirántibus ómnibus, quod homo ætáte conféctus (erat enim centum et vigínti annórum) acerbíssimos crucis dolóres fórtiter constantérque paterétur.
+
+{RUBRIC: Te Deum laudámus.}
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+---
+
+## Die 22 Februarii
+
+### In Cathedra S. Petri Ap. Antiochiæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia ut in Communi Confessóris Pontíficis} [69], {RUBRIC: præter ea quæ hic habéntur própria.}
+
+### In I Vesperis
+
+{RUBRIC: Capit.} *Eccli. 44, 16-17*
+
+ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+#### Hymnus
+
+QUODCÚMQUE in orbe néxibus revínxeris,
+Erit revínctum, Petre, in arce síderum:
+Et quod resólvit hic potéstas trádita,
+Erit solútum cæli in alto vértice:
+In fine mundi judicábis sæculum.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,
+Honor tibi decúsque: sancta júgiter
+Laudétur omne Trínitas per sæculum. Amen.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+**Ad Magnif. Ant.** Tu es pastor óvium, \* Princeps Apostolórum, tibi tráditæ sunt claves regni cælórum.
+
+#### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur. Qui vivis et regnas.

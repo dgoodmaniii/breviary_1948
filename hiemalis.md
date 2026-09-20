@@ -43611,4 +43611,64 @@ DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno gé
 
 **Oratio**
 
-CONCÉDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et
+CONCÉDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Suffrágium de ómnibus Sanctis, ut infra ad Laudes. [193]}
+
+{RUBRIC: Ad Completórium et ad omnes Horas usque ad Nonam inclusíve, in fine Hymnórum dícitur:}
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+##### AD MATUTINUM
+
+{RUBRIC: Invit.} Ave, María, grátia plena; \* Dóminus tecum. {RUBRIC: Ps. 94} Veníte, exsultémus.
+
+### Hymnus
+
+QUEM terra, pontus, sídera
+Colunt, adórant, prǽdicant,
+Trinam regéntem máchinam,
+Claustrum Maríæ bájulat.
+
+Cui luna, sol et ómnia
+Desérviunt per témpora,
+Perfúsa cæli grátia,
+Gestant puéllæ víscera.
+
+Beáta Mater múnere,
+Cujus, supérnus Artifex
+Mundum pugíllo cóntinens,
+Ventris sub arca clausus est.
+
+Beáta cæli núntio,
+Fecúnda Sancto Spíritu,
+Desiderátus géntibus
+Cujus per alvum fusus est.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: In Nocturno Antíphonæ, Psalmi et Versus de Sábbato. 279}
+
+{RUBRIC: Deinde} Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+**Absolutio.** PRÉCIBUS et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne.
+
+**Pro I Lect. Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+{RUBRIC: Léctio I et II dicúntur de Scriptúra occurrénti, cum suis Responsóriis de Témpore; Léctio vero III erit una ex inférius [193]-[194] pósitis, juxta órdinem ménsium.}
+
+**Pro II Lect. Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+**Pro III Lect. Bened.** Per Vírginem matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
+
+{RUBRIC: Post III Lectiónem dícitur Hymnus} Te Deum.

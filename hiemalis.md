@@ -35906,4 +35906,12 @@ IN tirocínio, cum regulári observántia et ómnium exercitatióne virtútum qu
 
 #### Lectio vi
 
-INTER céteras virtútes christiánam humilitátem et obediéntiam máxime diléxit: nam inter omnes se mínimum exístimans, abjectíssima quæque ministéria domus cúpide affectábat, et antístitum suórum non modo jussa, sed et optáta diligentíssime perficiébat. Idem, refrenátis sénsibus
+INTER céteras virtútes christiánam humilitátem et obediéntiam máxime diléxit: nam inter omnes se mínimum exístimans, abjectíssima quæque ministéria domus cúpide affectábat, et antístitum suórum non modo jussa, sed et optáta diligentíssime perficiébat. Idem, refrenátis sénsibus et vitæ asperitáte usus, illibátum retínuit florem virginitátis ac plane mundo crucifíxus únice Deo vixit, íntima Dómini sui fruítus consuetúdine. Ita brevem vitæ cursum, tot virtútibus nobilitátum confíciens, Ínsulæ in Aprútio, caritátis incéndio vérius quam vi morbi consúmptus, divinǽque Matris ope recreátus, placidíssimo éxitu ad Súperos evolávit, anno millésimo octingentésimo sexagésimo secúndo, ætátis suæ vigésimo quarto. Eum deínceps, a Deo miráculis illustrátum, Pius Papa décimus Cǽlitum beatórum número accénsuit. Benedíctus vero décimus quintus, Póntifex Máximus, anno millésimo nongentésimo vigésimo, post cónditum Institútum a Passióne ducentésimo, in solemnitáte Ascensiónis Dómini, beáto júveni Sanctórum honóres decrévit; et Pius undécimus ejus Offícium et Missam ad univérsam Ecclésiam exténdit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+GABRIEL, Assísii in Úmbria natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem osténdit. Adoléscens, cum miseréntis Dei múnere, eum ad perfectiórem vitam jamdúdum invitántis, in morbum incidísset, sǽculi vanitátem fastidíre cœpit. Institútum Clericórum a Passióne ampléctens, Gábriel a Vírgine perdolénte máluit appellári ad ejúsdem gaudiórum et dolórum memóriam perpétuo recoléndam. Ipsam omni obséquii génere percólere, prǽsertim conféctam afflictámque Jesu cruciátibus tam dolénter contemplári solébat, ut vim lacrimárum profúnderet. Illibátum virginitátis flórem retínuit, et suæ sodalitátis asperitáte usus, plane mundo crucifíxus, únice Deo vixit. Ita brevem vitæ cursum ómnium virtútum exercitatióne confíciens, caritátis incéndio vérius quam vi morbi consúmptus, divinǽque Matris ope recreátus, ad Súperos evolávit anno mil-

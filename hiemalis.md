@@ -35445,3 +35445,39 @@ TRIUMPHÁLIS beáti Mártyris Valentíni dies hódie nobis anniversária celebri
 ℣. Lætámini in Dómino.
 
 **Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+#### Oratio C 3
+
+DEUS, qui nos ánnua sanctórum Mártyrum tuórum Faustíni et Jovítæ solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+#### Lectio iii
+
+FAUSTÍNUS et Jovíta fratres, nóbiles Brixiáni, in multis Itáliæ úrbibus, quo vincti sæviénte Trajáni persecutióne ducebántur, acerbíssima supplícia perpéssi, fortes in christiánæ fídei confessióne perstitérunt. Nam Bríxiæ diu vínculis constrícti, feris étiam objécti in ignémque conjécti, et a béstiis et a flamma íntegri et incólumes serváti sunt. Inde vero eísdem caténis colligáti Mediolánum venérunt; ubi eórum fides tentáta exquisitíssimis torméntis, tamquam igne aurum, in cruciátibus magis enítuit. Póstea Romam missi, ab Evarísto Pontífice confirmáti, ibi quoque crudelíssime torquéntur. Dénique perdúcti Neápolim, in ea étiam urbe várie cruciáti, vinctis mánibus pedibúsque in mare demergúntur; unde per Angelos mirabíliter erépti sunt. Quare multos et constántia in torméntis et miraculórum virtúte ad Christi fidem convertérunt. Postrémo redúcti Bríxiam, inítio suscépti ab Hadriáno impérii, secúri percússi, illústrem martýrii corónam accepérunt.
+
+{RUBRIC: Te Deum laudámus.}
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+---
+
+## Die 18 Februarii
+
+### S. Simeonis
+
+{RUBRIC: Episcopi et Martyris}
+
+{RUBRIC: Simplex} [29]
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+#### Oratio C 1
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti Simeónis Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+#### Lectio iii
+
+SIMEON, fílius Cléophæ, post Jacóbum próximus Jerosólymis ordiná-

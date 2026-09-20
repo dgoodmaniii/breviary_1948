@@ -17541,3 +17541,63 @@ Regnum tuum regnum ómnium sæculórum: \* et dominátio tua in omni generatión
 **Ant.** Suávis Dóminus univérsis: et miseratiónes ejus super ómnia ópera ejus.
 
 **Ant.** Fidélis Dóminus. †
+
+Fidélis Dóminus † in ómnibus verbis suis: \* et sanctus in ómnibus opéribus suis.
+
+Allevat Dóminus omnes qui córruunt: \* et érigit omnes elísos.
+
+Oculi ómnium in te sperant, Dómine: \* et tu das escam illórum in témpore opportúno.
+
+Aperis tu manum tuam: \* et imples omne ánimal benedictióne.
+
+Justus Dóminus in ómnibus viis suis: \* et sanctus in ómnibus opéribus suis.
+
+Prope est Dóminus ómnibus invocántibus eum: \* ómnibus invocántibus eum in veritáte.
+
+Voluntátem timéntium se fáciet: \* et deprecatiónem eórum exáudiet: et salvos fáciet eos.
+
+Custódit Dóminus omnes diligéntes se: \* et omnes peccatóres dispérdet.
+
+Laudatiónem Dómini loquétur os meum: \* et benedícat omnis caro nómini sancto ejus in sæculum, et in sæculum sæculi.
+
+### Extra Tempus Paschale
+
+**Ant.** Fidélis Dóminus in ómnibus verbis suis: et sanctus in ómnibus opéribus suis.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: Capitulum, Hymnus, Versus, et Antiphona ad Magnificat ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicitur Oratio Dominicæ sequentis propria, quæ per totam hebdomadam suam in feriali Officio adhibetur, nisi specialis Oratio habeatur.}
+
+{RUBRIC: Reliqua ut in Ordinario. 33}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem.
+
+℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Intret orátio mea.

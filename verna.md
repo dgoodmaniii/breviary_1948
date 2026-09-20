@@ -2089,3 +2089,61 @@ Et sperent in te qui novérunt nomen tuum: \* quóniam non dereliquísti quæré
 PSALLITE Dómino, qui hábitat in Sion: \* annuntiáte inter gentes stúdia ejus:
 
 Quóniam requírens sánguinem eórum recordátus est: \* non est oblítus clamórem páuperum.
+
+Miserére mei, Dómine: \* vide humilitátem meam de inimícis meis.
+
+Qui exáltas me de portis mortis, \* ut annúntiem omnes laudatiónes tuas in portis fíliæ Sion.
+
+Exsultábo in salutári tuo: \* infíxæ sunt gentes in intéritu, quem fecérunt.
+
+In láqueo isto, quem abscondérunt, \* comprehénsus est pes eórum.
+
+Cognoscétur Dóminus judícia fáciens: \* in opéribus mánuum suárum comprehénsus est peccátor.
+
+Convertántur peccatóres in inférnum, \* omnes gentes quæ obliviscúntur Deum.
+
+Quóniam non in finem oblívio erit páuperis: \* patiéntia páuperum non períbit in finem.
+
+Exsúrge, Dómine, non confortétur homo: \* judicéntur gentes in conspéctu tuo.
+
+Constítue, Dómine, legislatórem super eos: \* ut sciant gentes quóniam hómines sunt.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Exsúrge, Dómine, non prævaleat homo.
+
+{RUBRIC: In Quadragesima}
+
+℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+{RUBRIC: Tempore Passionis}
+
+℣. De ore leónis líbera me, Dómine. ℟. Et a córnibus unicórnium humilitátem meam.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Allelúja, quem quæris, múlier? allelúja: vivéntem cum mórtuis, allelúja, allelúja.
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+**Absol.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Ut quid, Dómine. †
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Allelúja, \* noli flere, María, allelúja: resurréxit Dóminus, allelúja, allelúja.
+
+###### Psalmus 9, iii
+
+UT quid, Dómine, † recessísti longe, \* déspicis in opportunitátibus, in tribulatióne?
+
+Dum supérbit ímpius, incénditur pauper: \* comprehendúntur in consíliis quibus cógitant.
+
+Quóniam laudátur peccátor in desidériis ánimæ

@@ -46856,3 +46856,33 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 GREGEM tuum, Pastor ætérne, placátus inténde, et per beátum Dámasum Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. {RUBRIC: (Per Dóminum.)}
 
 {RUBRIC: Deinde Commem. Fériæ.}
+
+# Preces ante et post Missam
+
+[IMAGE]
+
+## Præparatio ad Missam
+
+### Pro Opportunitate Sacerdotis Facienda
+
+{RUBRIC: Quílibet Sacérdos, ex concessióne Pii Pp. XI, sub die 3 Octóbris 1936, lucrári potest: Indulgéntiam quinque annórum si, ante Missæ celebratiónem, recítet Psalmos 83, 84, 85, 115 et 129 cum adnéxa antíphona, versículis et} Orémus {RUBRIC: ut infra; plenáriam, si per intégrum mensem prædíctas preces quotídie recitáverit, addítis confessióne sacraméntali et oratióne ad Summi Pontíficis mentem.}
+
+**Ant.** Ne reminiscáris, \* Dómine, delícta nostra vel paréntum nostrórum, neque vindíctam sumas de peccátis nostris.
+
+{RUBRIC: Quæ Antíphona in Duplícibus tantum duplicátur.}
+
+###### Psalmus 83
+
+QUAM dilécta tabernácula tua, Dómine virtútum: \* concupíscit, et déficit ánima mea in átria Dómini.
+
+Cor meum, et caro mea \* exsultavérunt in Deum vivum.
+
+Etenim passer invénit sibi domum: \* et turtur nidum sibi, ubi ponat pullos suos.
+
+Altária tua, Dómine virtútum: \* Rex meus, et Deus meus.
+
+Beáti, qui hábitant in domo tua, Dómine: \* in sæcula sæculórum laudábunt te.
+
+Beátus vir, cujus est auxílium abs te: \* ascensiónes in corde suo dispósuit, in valle lacrimárum in loco, quem pósuit.
+
+Etenim benedictiónem dabit legislátor, ibunt de

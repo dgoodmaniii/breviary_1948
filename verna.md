@@ -2764,3 +2764,57 @@ Utinam dirigántur viæ meæ, \* ad custodiéndas justificatiónes tuas!
 Tunc non confúndar, \* cum perspéxero in ómnibus mandátis tuis.
 
 Confitébor tibi in directióne cordis: \* in eo quod dídici judícia justítiæ tuæ.
+
+Justificatiónes tuas custódiam: \* non me derelínquas usquequáque.
+
+In quo córrigit adolescéntior viam suam? \* in custodiéndo sermónes tuos.
+
+In toto corde meo exquisívi te: \* ne repéllas me a mandátis tuis.
+
+In corde meo abscóndi elóquia tua: \* ut non peccem tibi.
+
+Benedíctus es, Dómine: \* doce me justificatiónes tuas.
+
+In lábiis meis, \* pronuntiávi ómnia judícia oris tui.
+
+In via testimoniórum tuórum delectátus sum, \* sicut in ómnibus divítiis.
+
+In mandátis tuis exercébor: \* et considerábo vias tuas.
+
+In justificatiónibus tuis meditábor: \* non oblivíscar sermónes tuos.
+
+###### Psalmus 118, ii
+
+RETRIBUE servo tuo, vivífica me: \* et custódiam sermónes tuos.
+
+Revéla óculos meos: \* et considerábo mirabília de lege tua.
+
+Íncola ego sum in terra: \* non abscóndas a me mandáta tua.
+
+Concupívit ánima mea desideráre justificatiónes tuas, \* in omni témpore.
+
+Increpásti supérbos: \* maledícti qui declínant a mandátis tuis.
+
+Aufer a me oppróbrium, et contémptum: \* quia testimónia tua exquisívi.
+
+Etenim sedérunt príncipes, et advérsum me loquebántur: \* servus autem tuus exercebátur in justificatiónibus tuis.
+
+Nam et testimónia tua meditátio mea est: \* et consílium meum justificatiónes tuæ.
+
+Adhǽsit paviménto ánima mea: \* vivífica me secúndum verbum tuum.
+
+Vias meas enuntiávi, et exaudísti me: \* doce me justificatiónes tuas.
+
+Viam justificatiónum tuárum ínstrue me: \* et exercébor in mirabílibus tuis.
+
+Dormitávit ánima mea præ tædio: \* confírma me in verbis tuis.
+
+Viam iniquitátis ámove a me: \* et de lege tua miserére mei.
+
+Viam veritátis elégi: \* judícia tua non sum oblítus.
+
+Adhǽsi testimóniis tuis, Dómine: \* noli me confúndere.
+
+Viam mandatórum tuórum cucúrri, \* cum dilatásti cor meum.
+
+{RUBRIC: Extra Tempus Paschale: Antiphona ut in Proprio de Tempore.}

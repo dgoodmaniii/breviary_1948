@@ -38300,4 +38300,14 @@ DOMINUS diem judícii osténdit, quæ abstrúsam voluntátis nostræ consciénti
 
 #### Lectio viii
 
-ITAQUE id quod a se díctum est, cum libertáte fídei et confessiónis vult esse loquéndum. Idcírco, quæ in ténebris dicta sunt, prædicári jussit in lúmine; ut, quæ secréto áurium commíssa sunt, super tecta, id est, excélso loquéntium præcónio audiántur. Constánter enim Dei ingerénda cognítio est, et profúndum doctrínæ evangélicæ secrétum in lúmine prædicatiónis apostólicæ
+ITAQUE id quod a se díctum est, cum libertáte fídei et confessiónis vult esse loquéndum. Idcírco, quæ in ténebris dicta sunt, prædicári jussit in lúmine; ut, quæ secréto áurium commíssa sunt, super tecta, id est, excélso loquéntium præcónio audiántur. Constánter enim Dei ingerénda cognítio est, et profúndum doctrínæ evangélicæ secrétum in lúmine prædicatiónis apostólicæ revelándum, non timéntes eos, quibus, cum sit licéntia in córpora, tamen in ánimam jus nullum est; sed timéntes pótius Deum, cui perdéndæ in gehénna et ánimæ et córporis sit potéstas.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui minas. Glória Patri. Qui minas.
+
+**Vel** ℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sǽculum sǽculi. — Posuísti. Glória Patri. Posuísti.
+
+#### Lectio ix
+
+NOLITE timére eos, qui occídunt corpus. Nullus ígitur córporum nostrórum casus est pertiméscendus, neque ullus interiméndæ carnis admitténdus est dolor; quando pro natúræ suæ atque orígnis conditióne resolúta, in substántiam spirituális ánimæ refundátur. Et quia doctrínis tálibus confirmátos opórtet líberam confiténdi Dei habére constántiam, étiam conditiónem, qua tenerémur, adjécit, negatúrum se eum Patri in cælis, qui se homínibus in terra negásset; eum porro, qui conféssus coram homínibus se fuísset, a se in cælis confiténdum; qualésque nos nóminis sui testes homínibus fuissémus, tali nos apud Deum Patrem testimónio ejus usúros.
+
+{RUBRIC: Te Deum laudámus.}

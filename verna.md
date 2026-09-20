@@ -9133,3 +9133,57 @@ Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
 Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
 
 Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Dóminus regnávit, exsúltet terra.
+
+**Ant.** Te decet hymnus, \* † Deus, in Sion. ‡
+
+###### Psalmus 64
+
+TE decet hymnus, † Deus, in Sion: \* ‡ et tibi reddétur votum in Jerúsalem.
+
+Exáudi oratiónem meam: \* ad te omnis caro véniet.
+
+Verba iniquórum prævaluérunt super nos: \* et impietátibus nostris tu propitiáberis.
+
+Beátus, quem elegísti, et assumpsísti: \* inhabitábit in átriis tuis.
+
+Replébimur in bonis domus tuæ: \* sanctum est templum tuum, mirábile in æquitáte.
+
+Exáudi nos, Deus, salutáris noster, \* spes ómnium fínium terræ, et in mari longe.
+
+Præparans montes in virtúte tua, accínctus poténtia: \* qui contúrbas profúndum maris sonum flúctuum ejus.
+
+Turbabúntur gentes, et timébunt qui hábitant términos a signis tuis: \* éxitus matutíni, et véspere delectábis.
+
+Visitásti terram, et inebriásti eam: \* multiplicásti locupletáre eam.
+
+Flumen Dei replétum est aquis, parásti cibum illórum: \* quóniam ita est præparátio ejus.
+
+Rivos ejus inébria, multíplica genímina ejus: \* in stillicídiis ejus lætábitur gérminans.
+
+Benedíces corónæ anni benignitátis tuæ: \* et campi tui replebúntur ubertáte.
+
+Pinguéscent speciósa desérti: \* et exsultatióne colles accingéntur.
+
+Indúti sunt aríetes óvium, et valles abundábunt fruménto: \* clamábunt, étenim hymnum dicent.
+
+**Ant.** Te decet hymnus, Deus, in Sion.
+
+**Ant.** Tibi, Dómine, psallam, \* et intélligam in via immaculáta.
+
+###### Psalmus 100
+
+MISERICORDIAM, et judícium \* cantábo tibi, Dómine:
+
+Psallam, et intélligam in via immaculáta, \* quando vénies ad me.
+
+Perambulábam in innocéntia cordis mei, \* in médio domus meæ.
+
+Non proponébam ante óculos meos rem injústam: \* faciéntes prævaricatiónes odívi.
+
+Non adhæsit mihi cor pravum: \* declinántem

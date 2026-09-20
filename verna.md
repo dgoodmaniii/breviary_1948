@@ -13548,3 +13548,51 @@ Misit in eos cœnomýiam, et comédit eos: \* et ranam, et dispérdidit eos.
 Et dedit ærúgini fructus eórum, \* et labóres eórum locústæ.
 
 Et occídit in grándine víneas eórum, \* et moros eórum in pruína.
+
+Et trádidit grándini juménta eórum: \* et possessiónem eórum igni.
+
+Misit in eos iram indignatiónis suæ: \* indignatiónem, et iram, et tribulatiónem: immissiónes per ángelos malos.
+
+Viam fecit sémitæ iræ suæ, non pepércit a morte animábus eórum: \* et juménta eórum in morte conclúsit.
+
+Et percússit omne primogénitum in terra Ægýpti: \* primítias omnis labóris eórum in tabernáculis Cham.
+
+Et ábstulit sicut oves pópulum suum: \* et perdúxit eos tamquam gregem in desérto.
+
+Et dedúxit eos in spe, et non timuérunt: \* et inimícos eórum opéruit mare.
+
+Et indúxit eos in montem sanctificatiónis suæ, \* montem, quem acquisívit déxtera ejus.
+
+Et ejécit a fácie eórum gentes: \* et sorte divísit eis terram in funículo distributiónis.
+
+Et habitáre fecit in tabernáculis eórum \* tribus Israël.
+
+Et tentavérunt, et exacerbavérunt Deum excélsum: \* et testimónia ejus non custodiérunt.
+
+Et avertérunt se, et non servavérunt pactum: \* quemádmodum patres eórum, convérsi sunt in arcum pravum.
+
+In iram concitavérunt eum in cóllibus suis: \* et in sculptílibus suis ad æmulatiónem eum provocavérunt.
+
+**Ant.** Redémit eos Dóminus de manu tribulántis.
+
+**Ant.** Ædificávit \* Deus sanctifícium suum in terra.
+
+###### Psalmus 77, vi
+
+AUDIVIT Deus, et sprevit: \* et ad níhilum redégit valde Israël.
+
+Et répulit tabernáculum Silo, \* tabernáculum suum, ubi habitávit in homínibus.
+
+Et trádidit in captivitátem virtútem eórum: \* et pulchritúdinem eórum in manus inimíci.
+
+Et conclúsit in gládio pópulum suum: \* et hereditátem suam sprevit.
+
+Júvenes eórum comédit ignis: \* et vírgines eórum non sunt lamentátæ.
+
+Sacerdótes eórum in gládio cecidérunt: \* et víduæ eórum non plorabántur.
+
+Et excitátus est tamquam dórmiens Dóminus, \* tamquam potens crapulátus a vino.
+
+Et percússit inimícos suos in posterióra: \* oppróbrium sempitérnum dedit illis.
+
+Et répulit tabernáculum Joseph: \* et tribum Ephraim non elégit:

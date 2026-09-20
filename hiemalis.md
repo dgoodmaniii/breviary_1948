@@ -42583,3 +42583,31 @@ IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Z
 APERUIT Zachǽus divítibus quibúsque cæléstem jánuam, dum eos dócuit hoc ipso perveníre ad regnum, quo arcebátur a regno; scílicet ut substántia, quæ eis exprobrabátur ad perníciem, profíceret ad salútem. Multum ergo Zachǽus divítibus cóntulit, ut eos fáceret in ætérnum suas divítias possidére, ut qui hic numquam páuperes fuérunt, nec essent in futúro mendíci, sed quadam lucratíva commutatióne recíperent pro parvis magna, pro terrénis cæléstia, pro temporálibus sempitérna. Lucratíva plane commutátio est nolle habére quod póssides, ut possis obtinére quod non habes, et jactúram fácere quamdam relinquéndæ pecúniæ, ut quæstum cápias semper grátiæ possidéndæ.
 
 ℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et.
+
+#### Lectio viii
+
+ZACHǼUS ergo, cum esset publicánus, et pecúnias fænerándo magnas divítias usurárum fraude quæsísset, súbito videns Christum, ita convérsus est, ut majóri concupiscéntia grátiam spirituálem quǽreret, quam quæsíerat pecúniam sæculárem. Ita, inquam, convérsus est, ut anteácta sua respíciens, fraudes suas ipse damnáret, et emúndans concupiscéntiam, emundáret et prímitus consciéntiam. Ait enim: Ecce dimídium bonórum meórum do paupéribus, et si cui quid tuli, quádruplum reddo.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+DICET fortásse áliquis, cur vir sanctus et Salvatórem præséntem videns, non totum paupéribus, sed dimídium sit largítus; quia scriptum est: Si vis perféctus esse, vende ómnia tua, et da paupéribus, et veni, séquere me. Verum, si diligénter atténdas, iste persecútus est, quia non dimídium, sed totum dedit. Nam tolle aliéna de médio, et Zachǽo nihil rémanet. Dénique vir justus, ut accépta esset ejus liberálitas, scivit juste dispónere, scílicet aliéna restituéndo. Hæc est enim apud Dóminum grata eleemósyna, quæ ex vernácula exhibétur substántia, non quæ fraudulénta præda tribúitur.
+
+Te Deum laudámus.
+
+---
+
+## Die V infra Octavam
+
+{RUBRIC: Semiduplex}
+
+### In II Nocturno
+
+{RUBRIC: De Sermóne sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 256 de Témpore}
+
+#### Lectio iv
+
+MODO, quando impléntur ecclésiæ, quid putámus jucundári Judǽos? Ecclésiæ ædificántur, dedicántur, impléntur; quómodo illi jucundántur? Non solum non jucundántur, sed étiam confundúntur, et implétur vox exsultántis: Exaltábo te, Dómine, quóniam suscepísti me: et non jucundásti inimícos meos super me. Non jucundásti super me: si mihi credant, jucundábis in me. Ne multa dicámus, ad illa, quæ cantávimus, aliquándo veniámus. Quómodo dicit Chri-

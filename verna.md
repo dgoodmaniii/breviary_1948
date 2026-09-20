@@ -18430,4 +18430,22 @@ JACOB quod matre fecit auctóre, ut patrem fállere vidérétur, si diligénter 
 
 #### Lectio v
 
-QUÆ significántur enim, útique ipsa dicúntur: putántur autem mendácia, quóniam non ea, quæ vere significántur, dicta intelligúntur; sed ea, quæ falsa sunt, dicta esse credúntur. Hoc ut exémplis fiat plánius, idípsum quod Jacob fecit, atténde. Hædínis
+QUÆ significántur enim, útique ipsa dicúntur: putántur autem mendácia, quóniam non ea, quæ vere significántur, dicta intelligúntur; sed ea, quæ falsa sunt, dicta esse credúntur. Hoc ut exémplis fiat plánius, idípsum quod Jacob fecit, atténde. Hædínis certe péllibus membra contéxit. Si causam próximam requirámus, mentítum putábimus: hoc enim fecit, ut putarétur esse qui non erat. Si autem hoc factum ad illud, propter quod significándum revéra factum est, referátur: per hædínas pelles, peccáta; per eum vero, qui eis se opéruit, ille significátus est, qui non sua, sed aliéna peccáta portávit.
+
+℟. Si Dóminus Deus meus fúerit mecum in via ista, per quam ego ámbulo, et custodíerit me, et déderit mihi panem ad edéndum, et vestiméntum quo opériar, et revocáverit me cum salúte: \* Erit mihi Dóminus in refúgium, et lapis iste in signum. ℣. Surgens ergo mane Jacob, tulit lápidem quem supposúerat cápiti suo, et eréxit in títulum, fundénsque óleum désuper, dixit. — Erit.
+
+#### Lectio vi
+
+VERAX ergo significátio nullo modo mendácium recte dici potest: ut autem in facto, ita et in verbo. Nam cum ei pater dixísset: Quis es tu, fili? ille respóndit: Ego sum Esau primogénitus tuus. Hoc si referátur ad duos illos géminos, mendácium vidébitur: si autem ad illud, propter quod significándum ista gesta díctaque conscrípta sunt; ille est hic intelligéndus in córpore suo, quod est ejus Ecclésia, qui de hac re loquens, ait: Cum vidéritis Abraham et Isaac et Jacob et omnes Prophétas in regno Dei, vos autem expélli foras. Et, Vénient ab Oriénte et Occidénte, et Aquilóne et Austro, et accúmbent in regno Dei. Et, Ecce sunt novíssimi, qui erant primi: et sunt primi, qui erant novíssimi. Sic enim quodámmodo minor majóris primátum frater ábstulit, atque in se tránstulit fratris.
+
+℟. Erit mihi Dóminus in Deum, et lapis iste quem eréxi in títulum, vocábitur domus Dei: et de univérsis quæ déderis mihi, \* Décimas et hóstias pacíficas ófferam tibi. ℣. Si revérsus fúero próspere ad domum patris mei. — Décimas. Glória Patri. Décimas.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 17, 1-9*
+
+IN illo témpore: Assúmpsit Jesus Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit illos in montem excélsum seórsum: et transfigurátus est ante eos. Et réliqua.

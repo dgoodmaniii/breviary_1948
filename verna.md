@@ -12160,3 +12160,51 @@ Descéndet sicut plúvia in vellus: \* et sicut stillicídia stillántia super t
 Oriétur in diébus ejus justítia, et abundántia pacis: \* donec auferátur luna.
 
 Et dominábitur a mari usque ad mare: \* et a flúmine usque ad términos orbis terrárum. Gl.
+
+###### Psalmus 71, ii
+
+CORAM illo prócident Æthíopes: \* et inimíci ejus terram lingent.
+
+Reges Tharsis, et ínsulæ múnera ófferent: \* reges Arabum et Saba dona addúcent.
+
+Et adorábunt eum omnes reges terræ: \* omnes gentes sérvient ei:
+
+Quia liberábit páuperem a poténte: \* et páuperem, cui non erat adjútor.
+
+Parcet páuperi et ínopi: \* et ánimas páuperum salvas fáciet.
+
+Ex usúris et iniquitáte rédimet ánimas eórum: \* et honorábile nomen eórum coram illo.
+
+Et vivet, et dábitur ei de auro Arábiæ, et adorábunt de ipso semper: \* tota die benedícent ei.
+
+Et erit firmaméntum in terra in summis móntium, superextollétur super Líbanum fructus ejus: \* et florébunt de civitáte sicut fœnum terræ.
+
+Sit nomen ejus benedíctum in sæcula: \* ante solem pérmanet nomen ejus.
+
+Et benedicéntur in ipso omnes tribus terræ: \* omnes gentes magnificábunt eum.
+
+Benedíctus Dóminus, Deus Israël, \* qui facit mirabília solus:
+
+Et benedíctum nomen majestátis ejus in ætérnum: \* et replébitur majestáte ejus omnis terra: fiat, fiat.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 97, qui in Laudibus locum non habuit.}
+
+###### Psalmus 97
+
+CANTATE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.

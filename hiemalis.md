@@ -46790,3 +46790,53 @@ GREGEM tuum, Pastor ætérne, placátus inténde, et per beátum Melchíadem Má
 ##### Ad Primam
 
 **Ant.** Domum tuam, \* Dómine, decet sanctitúdo in longitúdinem diérum.
+
+##### Ad Tertiam
+
+**Ant.** Domus mea \* domus oratiónis vocábitur: in ea omnis qui petit, áccipit; et qui quærit, ínvenit; et pulsánti aperiétur.
+
+#### Capitulum
+
+*Eccli. 24, 11-12*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo.
+
+℟. br. Hic domus Dei est \* Et porta cæli. Hic. ℣. Et vocábitur aula Dei. Et porta. Glória Patri. Hic.
+
+℣. Dómine, diléxi decórem domus tuæ. ℟. Et locum habitatiónis glóriæ tuæ.
+
+#### Oratio
+
+DEUS, qui beátæ Maríæ Vírginis domum per incarnáti Verbi mystérium misericórditer consecrásti, eámque in sinu Ecclésiæ tuæ mirabíliter collocásti: concéde; ut, segregáti a tabernáculis peccatórum, digni efficiámur habitatóres domus sanctæ tuæ. Per eúmdem Dóminum.
+
+##### Ad Sextam
+
+**Ant.** Propter domum Dómini \* Dei nostri, quæsívi bona tibi.
+
+#### Capitulum
+
+*Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Dómine, \* Diléxi decórem domus tuæ. Dómine. ℣. Et locum habitatiónis glóriæ tuæ. Diléxi. Glória Patri. Dómine.
+
+℣. Domum tuam, Dómine, decet sanctitúdo. ℟. In longitúdinem diérum.
+
+##### Ad Nonam
+
+**Ant.** Domum majestátis meæ, \* et locum pedum meórum glorificábo.
+
+#### Capitulum
+
+*Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℟. br. Domum tuam, Dómine, \* Decet sanctitúdo. Domum. ℣. In longitúdinem diérum. Decet. Glória Patri. Domum.
+
+℣. Hic domus Dei est et porta cæli. ℟. Et vocábitur aula Dei.
+
+### In II Vesperis
+
+{RUBRIC: Antíphonæ et Capítulum de Laudibus. [262]}

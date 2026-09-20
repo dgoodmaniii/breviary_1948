@@ -46321,3 +46321,61 @@ Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et r
 Ego facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo, et benedíco te. In nómine Patris et Fílii, ✠ et Spíritus Sancti. ℟. Amen.
 
 {RUBRIC: Quando hujúsmodi Benedíctio Apostólica plúribus simul infírmis impertítur, ómnia dicántur semel ut supra, singulári tantum número in plurálem immutáto.}
+
+# Benedictio Mensæ
+
+## Ante Prandium
+
+{RUBRIC: Sacérdos benedictúrus mensam incípit:} Benedícite, {RUBRIC: et alii repétunt:} Benedícite.
+
+{RUBRIC: Deinde Sacérdos incípit Versum:}
+
+OCULI ómnium, {RUBRIC: et alii prosequúntur:} In te sperant, Dómine, et tu das escam illórum in témpore opportúno. Áperis tu manum tuam, et imples omne ánimal benedictióne.
+
+Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+{RUBRIC: Postea Sacérdos dicit:}
+
+Orémus.
+
+BENEDIC, Dómine, nos, et hæc tua dona, quæ de tua largitáte sumus sumptúri. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Deinde Lector:} Jube, domne, benedícere.
+
+{RUBRIC: Bened.} Mensæ cæléstis partícipes fáciat nos Rex ætérnæ glóriæ. ℟. Amen.
+
+## Post Prandium
+
+{RUBRIC: aguntur grátiæ hoc modo:}
+
+{RUBRIC: Dicto a Lectore} Tu autem, Dómine, miserére nobis. ℟. Deo grátias, {RUBRIC: omnes surgunt.}
+
+{RUBRIC: Sacérdos incípit:} ℣. Confiteántur tibi, Dómine, ómnia ópera tua. ℟. Et Sancti tui benedícant tibi.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: Postea Sacérdos absolúte dicat:}
+
+AGIMUS tibi grátias, omnípotens Deus, pro univérsis benefíciis tuis: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+{RUBRIC: Deinde alternátim dícitur Ps. 50 Miserére mei, Deus 48 vel [236].}
+
+### Vel Psalmus 116
+
+LAUDATE Dóminum, omnes gentes: \* laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Sacérdos dicit} Pater noster, {RUBRIC: quod cum áliis secreto proséquitur usque ad}
+
+℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Dispérsit, dedit páuperibus. ℟. Justítia ejus manet in sæculum sæculi.

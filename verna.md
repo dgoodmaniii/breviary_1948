@@ -17862,4 +17862,20 @@ DEUS, qui Ecclésiam tuam ánnua Quadragesimáli observatióne puríficas: præs
 
 *Cap. 6, 1-16*
 
-ADJUVANTES autem exhortámur, ne in vácuum grátiam Dei recipiátis. Ait enim: Témpore accépto exaudívi te, et in die salútis adjúvi te. Ecce nunc tempus acceptábile, ecce nunc dies salútis. Némini dantes ullam offensiónem, ut non vituperétur ministérium nostrum: sed in ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia, in tribulatiónibus, in necessitátibus, in angústiis, in plagis, in carcéribus, in seditiónibus, in labóribus, in vigíliis, in jejúniis, in castitáte, in sciéntia, in longanimitáte, in suavitáte, in Spíritu Sancto, in caritáte non ficta, in verbo veritátis, in virtúte Dei, per arma justítiæ a dextris, et a sinístris, per glóriam, et ignobilitátem, per infámiam, et bonam famam; ut seductóres, et veráces, sicut qui ignóti, et cógniti: quasi moriéntes, et ecce vívimus: ut castigáti, et non mortificáti: quasi tristes, semper autem gaudéntes: sicut
+ADJUVANTES autem exhortámur, ne in vácuum grátiam Dei recipiátis. Ait enim: Témpore accépto exaudívi te, et in die salútis adjúvi te. Ecce nunc tempus acceptábile, ecce nunc dies salútis. Némini dantes ullam offensiónem, ut non vituperétur ministérium nostrum: sed in ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia, in tribulatiónibus, in necessitátibus, in angústiis, in plagis, in carcéribus, in seditiónibus, in labóribus, in vigíliis, in jejúniis, in castitáte, in sciéntia, in longanimitáte, in suavitáte, in Spíritu Sancto, in caritáte non ficta, in verbo veritátis, in virtúte Dei, per arma justítiæ a dextris, et a sinístris, per glóriam, et ignobilitátem, per infámiam, et bonam famam; ut seductóres, et veráces, sicut qui ignóti, et cógniti: quasi moriéntes, et ecce vívimus: ut castigáti, et non mortificáti: quasi tristes, semper autem gaudéntes: sicut egéntes, multos autem locupletántes: tamquam nihil habéntes, et ómnia possidéntes.
+
+℟. Ecce nunc tempus acceptábile, ecce nunc dies salútis: commendémus nosmetípsos in multa patiéntia, in jejúniis multis, \* Per arma justítiæ virtútis Dei. ℣. In ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia, in jejúniis multis. — Per Dóminum.
+
+#### Lectio ii
+
+OS nostrum patet ad vos, o Corínthii, cor nostrum dilatátum est. Non angustiámini in nobis: angustiámini autem in viscéribus vestris: eámdem autem habéntes remuneratiónem, tamquam fíliis dico, dilatámini et vos. Nolíte jugum dúcere cum infidélibus. Quæ enim participátio justítiæ cum iniquitáte? Aut quæ societas luci ad ténebras? Quæ autem convéntio Christi ad Bélial? Aut quæ pars fidéli cum infidéli? Qui autem consénsus templo Dei cum idólis? Vos enim estis templum Dei vivi, sicut dicit Deus: Quóniam inhabitábo in illis, et inambulábo inter eos, et ero illórum Deus, et ipsi erunt mihi pópulus.
+
+℟. In ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia: \* Ut non vituperétur ministérium nostrum. ℣. Ecce nunc tempus acceptábile, ecce nunc dies salútis: commendémus nosmetípsos in multa patiéntia. — Ut.
+
+#### Lectio iii
+
+*Cap. 7, 4-9*
+
+REPLETUS sum consolatióne, superabúndo gáudio in omni tribulatióne nostra. Nam et, cum venissémus in Macedóniam, nullam réquiem hábuit caro nostra, sed omnem tribulatiónem passi sumus: foris pugnæ, intus timóres. Sed qui consolátur húmiles, consolátus est nos Deus in advéntu Titi. Non solum autem in advéntu ejus, sed étiam in consolatióne, qua consolátus est in vobis, réferens nobis vestrum desidérium, vestrum fletum, vestram æmulatiónem pro me, ita ut magis gaudérem. Quóniam etsi contristávi vos in epístola, non me pœnitet: et si pœnitéret, videns quod epístola illa (etsi ad horam) vos contristávit; nunc gáudeo: non quia contristáti estis, sed quia contristáti estis ad pœniténtiam.
+
+℟. In jejúnio et fletu orábunt sacerdótes, dicéntes:

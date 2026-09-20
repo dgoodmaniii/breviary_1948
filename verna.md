@@ -3376,4 +3376,64 @@ Vidi prævaricántes, et tabescébam: \* quia elóquia tua non custodiérunt.
 
 Vide quóniam mandáta tua diléxi, Dómine: \* in misericórdia tua vivífica me.
 
-Princípium verbórum tuórum, véritas: \* in
+Princípium verbórum tuórum, véritas: \* in ætérnum ómnia judícia justítiæ tuæ.
+
+###### Psalmus 118, xi
+
+PRINCIPES persecúti sunt me gratis: \* et a verbis tuis formidávit cor meum.
+
+Lætábor ego super elóquia tua: \* sicut qui invénit spólia multa.
+
+Iniquitátem ódio hábui, et abominátus sum: \* legem autem tuam diléxi.
+
+Sépties in die laudem dixi tibi, \* super judícia justítiæ tuæ.
+
+Pax multa diligéntibus legem tuam: \* et non est illis scándalum.
+
+Exspectábam salutáre tuum, Dómine: \* et mandáta tua diléxi.
+
+Custodívit ánima mea testimónia tua: \* et diléxit ea veheménter.
+
+Servávi mandáta tua, et testimónia tua: \* quia omnes viæ meæ in conspéctu tuo.
+
+Appropínquet deprecátio mea in conspéctu tuo, Dómine: \* juxta elóquium tuum da mihi intelléctum.
+
+Intret postulátio mea in conspéctu tuo: \* secúndum elóquium tuum éripe me.
+
+Eructábunt lábia mea hymnum, \* cum docúeris me justificatiónes tuas.
+
+Pronuntiábit lingua mea elóquium tuum: \* quia ómnia mandáta tua æquitas.
+
+Fiat manus tua ut salvet me: \* quóniam mandáta tua elégi.
+
+Concupívi salutáre tuum, Dómine: \* et lex tua meditátio mea est.
+
+Vivet ánima mea, et laudábit te: \* et judícia tua adjuvábunt me.
+
+Errávi, sicut ovis, quæ périit: \* quære servum tuum, quia mandáta tua non sum oblítus.
+
+{RUBRIC: Extra Tempus Paschale: Ant. ut in Proprio de Tempore.}
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: Reliqua ut in Proprio de Tempore et in Ordinario. 27}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Extra Tempus Paschale:} **Ant.** Dixit Dóminus. †
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+{RUBRIC: Sub qua sola Ant. Allelúja dicúntur omnes Psalmi usque ad Capítulum, etiam in Fériis.}
+
+{RUBRIC: ¶ Antiphonæ cum Psalmis tam intra quam extra Tempus Paschale assignatæ, adhibéntur semper, quando fit Officium de Dominica, tam in Dominicis minóribus, extra

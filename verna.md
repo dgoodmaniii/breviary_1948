@@ -14886,3 +14886,66 @@ CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam quidem per hó
 {RUBRIC: Reliqua ut in Ordinario. 27}
 
 ---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Misericórdia et véritas.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Per arma justítiæ.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 88, i
+
+MISERICORDIAS Dómini \* in ætérnum cantábo.
+
+In generatiónem et generatiónem \* annuntiábo veritátem tuam in ore meo.
+
+Quóniam dixísti: In ætérnum misericórdia ædificábitur in cælis: \* præparábitur véritas tua in eis.
+
+Dispósui testaméntum eléctis meis, jurávi David, servo meo: \* Usque in ætérnum præparábo semen tuum.
+
+Et ædificábo in generatiónem et generatiónem \* sedem tuam.
+
+Confitebúntur cæli mirabília tua, Dómine: \* étenim veritátem tuam in ecclésia sanctórum.
+
+Quóniam quis in núbibus æquábitur Dómino: \* símilis erit Deo in fíliis Dei?
+
+Deus, qui glorificátur in consílio sanctórum: \* magnus et terríbilis super omnes qui in circúitu ejus sunt.
+
+Dómine, Deus virtútum, quis símilis tibi? \* potens es, Dómine, et véritas tua in circúitu tuo.
+
+Tu domináris potestáti maris: \* motum autem flúctuum ejus tu mítigas.
+
+Tu humiliásti sicut vulnerátum, supérbum: \* in bráchio virtútis tuæ dispersísti inimícos tuos.
+
+Tui sunt cæli, et tua est terra, orbem terræ et plenitúdinem ejus tu fundásti: \* aquilónem, et mare tu creásti.
+
+Thabor et Hermon in nómine tuo exsultábunt: \* tuum bráchium cum poténtia.
+
+Firmétur manus tua, et exaltétur déxtera tua: \*

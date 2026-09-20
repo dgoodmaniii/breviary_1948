@@ -7544,3 +7544,74 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 ℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
 
 ℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum} Pater noster {RUBRIC: secreto, nisi sequatur alia Hora.}
+
+---
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Respéxit me.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Advenérunt nobis.
+
+{RUBRIC: Fer. III post Dom. Passionis}
+
+**Ant.** Judicásti, Dómine.
+
+{RUBRIC: Fer. III Majoris Hebdomadæ}
+
+**Ant.** Discérne causam meam.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 39, i
+
+EXSPECTANS exspectávi Dóminum, \* et inténdit mihi.
+
+Et exaudívit preces meas: \* et edúxit me de lacu misériæ, et de luto fæcis.
+
+Et státuit super petram pedes meos: \* et diréxit gressus meos.
+
+Et immísit in os meum cánticum novum, \* carmen Deo nostro.
+
+Vidébunt multi, et timébunt: \* et sperábunt in Dómino.
+
+Beátus vir, cujus est nomen Dómini spes ejus: \* et non respéxit in vanitátes et insánias falsas.
+
+Multa fecísti tu, Dómine, Deus meus, mirabília tua: \* et cogitatiónibus tuis non est qui símilis sit tibi.
+
+Annuntiávi et locútus sum: \* multiplicáti sunt super númerum.
+
+Sacrifícium et oblatiónem noluísti: \* aures autem perfecísti mihi.
+
+Holocáustum et pro peccáto non postulásti: \* tunc dixi: Ecce, vénio.
+
+In cápite libri scriptum est de me ut fácerem voluntátem tuam: \* Deus

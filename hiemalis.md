@@ -39439,3 +39439,65 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 **Ant.** Dómine, Dóminus noster, quam admirábile est nomen tuum in univérsa terra! quia glória et honóre coronásti Sanctum tuum, et constituísti eum super ópera mánuum tuárum.
 
 ℣. Elégit eum Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+##### Pro Conf. non Pont.
+
+℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Máximi Epíscopi}
+
+{RUBRIC: Homilía 59, quæ est 2 de S. Eusébio Vercellénsi}
+
+#### Lectio iv
+
+AD sancti ac beatíssimi Patris nostri N., cujus hódie festa celebrámus, laudes addidísse áliquid, decerpsísse est; síquidem virtútum ejus grátia non sermónibus exponénda est, sed opéribus comprobánda. Cum enim dicat Scriptúra: Glória patris est fílius sápiens; quantæ hujus sunt glóriæ, qui tantórum filiórum sapiéntia et devotióne lætátur? In Christo enim Jesu per Evangélium ipse nos génuit; hoc, quasi quodam fonte lucidíssimo, ómnium rivulórum púritas emanávit. Etenim, quia castitátis pollébat vigóre, quia abstinéntiæ gloriabátur angústiis, quia blandiméntis erat prǽditus lenitátis, ómnium cívium in Deum provocávit afféctum; quia Pontíficis administratióne fulgébat, plures e discípulis relíquit sui sacerdótii successóres.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus enim.
+
+**Benedictio.** Christus perpétuæ.
+
+#### Lectio v
+
+QUIDQUID ígitur in hac sancta plebe potest esse virtútis et grátiæ, de magis memóriæ laudem dare, quam vitæ; ut illo potíssimum témpore mérita sanctitátis extóllas, quando nec laudántem adulátio movet, nec laudátum tentat elátio.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+### In III Nocturno
+
+**Ant.** Dómine, \* iste Sanctus habitábit in tabernáculo tuo, operátus est justítiam, requiéscet in monte sancto tuo.
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Dómine, iste Sanctus habitábit in tabernáculo tuo, operátus est justítiam, requiéscet in monte sancto tuo.
+
+**Ant.** Vitam pétiit \* a te, et tribuísti ei, Dómine: glóriam et magnum decórem imposuísti super eum: posuísti in cápite ejus corónam de lápide pretióso.
+
+###### Psalmus 20
+
+DOMINE, in virtúte tua lætábitur rex: \* et super salutáre tuum exsultábit vehementer.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sǽculum, et in sǽculum sǽculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.

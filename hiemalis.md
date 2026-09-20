@@ -36041,3 +36041,49 @@ CASIMÍRUS, Polóniæ regis fílius, a pueritía pietáte et bonis ártibus inst
 #### Oratio
 
 DEUS, qui inter regáles delícias et mundi illécebras, sanctum Casimírum virtúte constántiæ roborásti: quǽsumus; ut, ejus intercessióne, fidéles tui terréna despíciant, et ad cæléstia semper aspírent. Per Dóminum.
+
+{RUBRIC: Pro Commem. S. Lucii I Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+#### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Lúcium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir, despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+---
+
+## Die 6 Martii
+
+### Ss. Perpetuæ et Felicitatis
+
+{RUBRIC: Martyrum}
+
+{RUBRIC: Duplex} [130]
+
+℣. Glória et honóre coronásti eas, Dómine. ℟. Et constituísti eas super ópera mánuum tuárum.
+
+**Ad Magnif. Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio** C 3
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum Perpétuæ et Felicitátis palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre, humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: In I Nocturno, si dicéndæ non sint de Scriptúra occurrénti, Lectiónes Confitébor cum suis Responsóriis, ut in Comm. Virginum 2 loco.} [126]
+
+### In II Nocturno
+
+#### Lectio iv
+
+PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum cárcerem detrúsæ; quibus ultra adjúnctus est Sátyrus. Erant adhuc catechúmenæ, sed paulo post baptizátæ sunt. Paucis diébus interjéctis, e cárcere ad forum dedúctæ cum sóciis, post gloriósam confessiónem, ab Hilarió-

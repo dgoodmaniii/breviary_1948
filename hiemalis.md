@@ -44183,4 +44183,22 @@ ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Bu
 
 **Lectio i** *Luc. 1, 26-38*
 
-MISSUS est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen
+MISSUS est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et, ingréssus Angelus ad eam, dixit: Ave, grátia plena; Dóminus tecum: benedícta tu in muliéribus. Tu autem, Dómine.
+
+℟. Missus est Gábriel Angelus ad Maríam Vírginem desponsátam Joseph, núntians ei verbum; et expavéscit Virgo de lúmine: ne tímeas, María, invenísti grátiam apud Dóminum: \* Ecce concípies et páries, et vocábitur Altíssimi Fílius. ℣. Dabit ei Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum. — Ecce.
+
+℣. Jube, domne, benedícere. — **Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+**Lectio ii**
+
+QUÆ cum audísset, turbáta est in sermóne ejus, et cogitábat qualis esset ista salutátio. Et ait Angelus ei: Ne tímeas, María; invenísti enim grátiam apud Deum: ecce concípies in útero et páries fílium, et vocábis nomen ejus Jesum. Hic erit magnus, et Fílius Altíssimi vocábitur; et dabit illi Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum, et regni ejus non erit finis. Tu autem.
+
+℟. Ave, María, grátia plena; Dóminus tecum: \* Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi: quod enim ex te nascétur Sanctum, vocábitur Fílius Dei. ℣. Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Angelus, dixit ei. — Spíritus.
+
+{RUBRIC: In Festis B. Maríæ V.:} Glória Patri. Spíritus.
+
+℣. Jube, domne, benedícere. — **Bened.** Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
+
+**Lectio iii**
+
+DIXIT autem María ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Angelus dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi. Ideóque et quod nascétur ex te Sanctum, vocábitur Fílius Dei. Et ecce Elísabeth, cognáta tua, et ipsa concépit fílium in senectúte sua, et hic mensis sextus est illi, quæ vocátur stérilis; quia non erit impossíbile apud Deum omne verbum. Dixit autem María: Ecce

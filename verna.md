@@ -13964,3 +13964,81 @@ Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
 Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
 
 Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+### Extra Tempus Paschale
+
+**Ant.** Lauda, Jerúsalem, Dóminum.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+### In Officio feriali T. P.
+
+**Capitulum** *Rom. 6, 9-10*
+
+CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábitur. Quod enim mórtuus est peccáto, mórtuus est semel: quod autem vivit, vivit Deo.
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus ínfremit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Reliqua ut in Ordinario. 13}
+
+---
+
+## Ad Laudes II
+
+*In Feriis VI post Dominicam I Quadragesimæ usque ad Feriam VI in Parasceve inclusive, quando fit Officium de Feria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Cor contrítum.
+
+### Feria VI in Parasceve
+
+**Ant.** Próprio \* Fílio suo non pepércit Deus, sed pro nobis ómnibus trádidit illum.
+
+###### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuá-

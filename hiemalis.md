@@ -36474,4 +36474,10 @@ GREGÓRIUS Magnus, Románus, Gordiáni senatóris fílius, adoléscens philosoph
 
 #### Lectio v
 
-ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium con-
+ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium con-sensu Póntifex elígitur. Quem honórem ne accíperet, quámdiu pótuit, recusávit; nam aliéno vestítu in spelúnca delítuit; ubi deprehénsus indício ígneæ colúmnæ, ad sanctum Petrum consecrátur. In pontificátu multa successóribus doctrínæ ac sanctitátis exémpla relíquit. Peregrínos quotídie ad mensam adhibébat; in quibus et Angelum, et Dóminum Angelórum peregríni fácie accépit. Páuperes et urbános et extérnos, quorum númerum descríptum habébat, benígne sustentábat. Cathólicam fidem multis locis labefactátam restítuit; nam Donatístas in África, Ariános in Hispánia représsit, Agnoítas Alexandría ejécit. Pállium Syágrio Augustodunénsi epíscopo dare nóluit, nisi neóphytos hæréticos expélleret ex Gállia. Gothos hæresim Ariánam relínquere coégit. Missis in Británniam doctis et sanctis viris Augustíno et áliis mónachis, ínsulam ad Jesu Christi fidem convértit, vere a Beda presbýtero Angliæ vocátus Apóstolus. Joánnis patriárchæ Constantinopolitáni audáciam fregit, qui sibi universális Ecclésiæ epíscopi nomen arrogábat. Maurítium imperatórem, eos qui mílites fuíssent mónachos fíeri prohibéntem, a senténtia detérruit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+ECCLÉSIAM ornávit sanctíssimis institútis et légibus. Apud sanctum Petrum coácta sýnodo, multa constítuit: in iis, Ut in Missa Kýrie eléison novies repeterétur: ut extra id tempus, quod continétur Septuagésima et Pascha, Allelúja dicerétur: ut adderétur in Cánone, Diésque nostros in tua pace dispónas. Litanías, Statiónes, et ecclesiásticum offícium auxit. Quátuor concíliis, Nicǽno, Constantinopolitáno, Ephesíno, Chalcedonénsi, tamquam quátuor Evangéliis honórem habéri vóluit. Epíscopis Sicíliæ, qui ex antíqua ecclesiárum consuetúdine Romam síngulis triénniis conveniébant, quinto quoque anno semel veníre indúlsit. Multos libros confécit; quos cum dictáret, testátus est Petrus diáconus, se Spíritum Sanctum colúmbæ

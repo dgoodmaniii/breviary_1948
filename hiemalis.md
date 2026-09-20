@@ -36291,3 +36291,45 @@ SI ergo dilígere Deum, dilígere próximum est: (nam si díligis me, o Petre, i
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEUS, qui beátum Joánnem, tuo amóre succénsum, inter flammas innóxium incédere fecísti, et per eum Ecclésiam tuam nova prole fecundásti: præsta, ipsíus suffragántibus méritis; ut igne caritátis tuæ vítia nostra curéntur, et remédia nobis ætérna provéniant. Per Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis et, in Quadragésima, Fériæ.}
+
+---
+
+## Die 9 Martii
+
+### S. Franciscæ Romanæ
+
+{RUBRIC: Viduæ}
+
+{RUBRIC: Duplex} [130]
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Símile est regnum cælórum \* hómini negotiatóri, quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+#### Oratio
+
+DEUS, qui beátam Franciscam fámulam tuam, inter cétera grátiæ tuæ dona, familiári Angeli consuetúdine decorásti: concéde, quǽsumus; ut, intercessiónis ejus auxílio, Angelórum consórtium cónsequi mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+**Oratio** Deus, qui beátum, ut supra.
+
+{RUBRIC: Deinde, in Quadrag., Commemoratio Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+FRANCÍSCA, nóbilis matróna Romána, ab ineúnte ætáte illústria dedit virtútum exémpla; étenim pueríles ludos et illécebras mundi réspuens, solitúdine et oratióne magnópere delectabátur. Undecim annos nata, virginitátem suam Deo consecráre et monastérium íngredi propósuit: paréntum tamen voluntáti humíliter obtémperans, Laurentio de Pontiánis, júveni æque díviti ac nóbili, nupsit. In matrimónio arctióris vitæ propósitum, quantum lícuit, semper retínuit; a spectáculis, convíviis alíisque hujúsmodi oblectaméntis abhórrens, lánea

@@ -855,4 +855,24 @@ Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Christe, Fili De
 
 {RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus} Dóminus vobíscum {RUBRIC: cum subsequenti Oratione et reliquis omnibus usque ad finem Horæ ut infra.}
 
-{RUBRIC: In quolibet Officio semiduplici, in Officio sanctæ Mariæ in Sabbato, in Festis simplicibus, atque in Feriis Temporis Paschalis post Responsorium breve dicuntur sequentes Preces dominicales; quæ tamen omittuntur in Vi-
+{RUBRIC: In quolibet Officio semiduplici, in Officio sanctæ Mariæ in Sabbato, in Festis simplicibus, atque in Feriis Temporis Paschalis post Responsorium breve dicuntur sequentes Preces dominicales; quæ tamen omittuntur in Vigília Pentecóstes et ómnibus ínsuper diébus, in quibus ad Laudes habita sit Commemoratio Duplicis, vel factum fuerit Officium aut Commemoratio cujusvis Octavæ vel Feriæ VI post Octavam Ascensionis:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me. ℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+{RUBRIC: Deinde Hebdomadarius facit Confessionem cum Absolutione, eamque Chorus repetit, ut infra post feriales Preces.}
+
+{RUBRIC: In Feriis vero Quadragesimæ, et Passionis usque ad Feriam IV Majoris Hebdomadæ inclusive, si ad Laudes recitatæ fuerint Preces, post Responsorium breve dicuntur flexis genibus sequentes Preces feriales:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me. ℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in

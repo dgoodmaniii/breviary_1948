@@ -12286,3 +12286,45 @@ DOMINE, Deus omnípotens, qui ad princípium hujus diéi nos perveníre fecísti
 ℣. Dóminus vobíscum.
 
 ℣. Benedicámus Dómino.
+
+{RUBRIC: Deinde in Choro legitur Martyrologium. Postea Hebdomadarius dicit:}
+
+℣. Pretiósa in conspéctu Dómini. ℟. Mors Sanctórum ejus.
+
+{RUBRIC: Et absolute, sine} Orémus:
+
+**Oratio**
+
+SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári et salvári, qui vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína. {RUBRIC: Et dicitur ter; ultimo additur:} Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos, et opus mánuum nostrárum dírige. ℣. Glória Patri. ℟. Sicut erat.
+
+Orémus. **Oratio**
+
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+℣. Jube, domne. **Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+QUÆRITE Dóminum, dum inveníri potest: invocáte eum, dum prope est. Tu autem.
+
+#### Tempore Passionis
+
+FACIEM meam non avérti ab increpántibus et conspuéntibus in me. Dóminus Deus auxiliátor meus, et ídeo non sum confúsus.
+
+#### Tempore Paschali
+
+SI consurrexístis cum Christo, quæ sursum sunt quærite, ubi Christus est in déxtera Dei sedens: quæ sursum sunt sápite, non quæ super terram.
+
+##### E Proprio Sanctorum
+
+**Pro Octava S. Joseph**
+
+FILIUS accréscens Joseph, fílius accréscens, et decórus aspéctu: fíliæ discurrérunt super murum.

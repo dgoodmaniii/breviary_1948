@@ -37248,3 +37248,53 @@ CRÉDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
 Ego dixi in excéssu meo: \* Omnis homo mendax.
 
 Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Dirupísti, Dómine, víncula mea: tibi sacrificábo hóstiam laudis.
+
+**Ant.** Eúntes ibant \* et flebant, mitténtes sémina sua.
+
+###### Psalmus 125
+
+IN converténdo Dóminus captivitátem Sion: \* facti sumus sicut consoláti:
+
+Tunc replétum est gáudio os nostrum: \* et lingua nostra exsultatióne.
+
+Tunc dicent inter gentes: \* Magnificávit Dóminus fácere cum eis.
+
+Magnificávit Dóminus fácere nobíscum: \* facti sumus lætántes.
+
+Convérte, Dómine, captivitátem nostram, \* sicut torrens in Austro.
+
+Qui séminant in lácrimis, \* in exsultatióne metent.
+
+Eúntes ibant et flebant, \* mitténtes sémina sua.
+
+Veniéntes autem vénient cum exsultatióne, \* portántes manípulos suos.
+
+**Ant.** Eúntes ibant et flebant, mitténtes sémina sua.
+
+**Ant.** Confortátus est \* principátus eórum, et honoráti sunt amíci tui, Deus.
+
+###### Psalmus 138
+
+DÓMINE, probásti me, et cognovísti me: \* tu cognovísti sessiónem meam, et resurrectiónem meam.
+
+Intellexísti cogitatiónes meas de longe: \* sémitam meam, et funículum meum investigásti.
+
+Et omnes vias meas prævidísti: \* quia non est sermo in lingua mea.
+
+Ecce, Dómine, tu cognovísti ómnia novíssima, et antíqua: \* tu formásti me, et posuísti super me manum tuam.
+
+Mirábilis facta est sciéntia tua ex me: \* confortáta est, et non pótero ad eam.
+
+Quo ibo a spíritu tuo? \* et quo a fácie tua fúgiam?
+
+Si ascéndero in cælum, tu illic es: \* si descéndero in inférnum, ades.

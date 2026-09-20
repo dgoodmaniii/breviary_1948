@@ -42492,4 +42492,16 @@ Te Deum laudámus.
 
 #### Lectio iv
 
-CELÉBRITAS hujus congregatiónis, dedicátio est domus oratiónis. Domus ergo nostrárum oratiónum ista, domus autem Dei nos ipsi. Si domus Dei nos ipsi, nos in hoc sǽculo ædificámur, ut in fine sǽculi dedicémur. Ædifícium, immo ædificátio habet labórem; dedicátio exsultatiónem. Quod hic fiébat, quando
+CELÉBRITAS hujus congregatiónis, dedicátio est domus oratiónis. Domus ergo nostrárum oratiónum ista, domus autem Dei nos ipsi. Si domus Dei nos ipsi, nos in hoc sǽculo ædificámur, ut in fine sǽculi dedicémur. Ædifícium, immo ædificátio habet labórem; dedicátio exsultatiónem. Quod hic fiébat, quando ista surgébant; hoc fit modo, cum congregántur credéntes in Christum. Credéndo enim, quasi de silvis et móntibus ligna et lápides præcidúntur; cum vero catechizántur, baptizántur, formántur, tamquam inter manus fabrórum et opíficum dolántur, collineántur, complanántur. Verúmtamen domum Dómini non fáciunt, nisi quando caritáte compaginántur.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+#### Lectio v
+
+LIGNA ista et lápides si non sibi certo órdine cohærérent, si non se pacífice innécterent, si non se ínvicem, cohæréndo sibi, quodámmodo amárent, nemo huc intráret. Dénique quando vides in áliqua fábrica lápides et ligna bene sibi cohærére, secúrus intras, ruínam non times. Volens ergo Dóminus Christus intráre, et in nobis habitáre, tamquam ædificándo dicébat: Mandátum novum do vobis, ut vos ínvicem diligátis. Mandátum, inquit, novum do vobis. Véteres enim erátis, domum mihi nondum faciebátis, in vestra ruína jacebátis. Ergo, ut eruámini a vestræ ruínæ vetustáte, vos ínvicem amáte.
+
+℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+#### Lectio vi
+
+CONSÍDERET ergo cáritas vestra, ædificári adhuc istam domum toto, sicut prædíctum est et promíssum, orbe terrárum. Cum enim ædificátur domus post captivitátem, sicut habet álius Psálmus, dícitur: Cantáte Dómino cánticum novum: cantáte Dómino, omnis terra. Quod ibi dixit, Cánticum novum; hoc Dóminus dixit, Mandátum novum. Quid enim habet cánticum novum, nisi amórem novum? Cantáre amántis est. Vox hujus cantóris, fervor est sancti amóris. Amémus, gratis amémus; Dóminum enim amámus, quo nihil mélius invenímus: ipsum amémus propter ipsum, et nos in ipso, tamen propter ipsum.

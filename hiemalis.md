@@ -43934,4 +43934,34 @@ BEÁTÆ et gloriósæ semper Vírginis Maríæ, quǽsumus, Dómine, intercéssio
 
 **Lectio i** *Eccli. 24, 11-13*
 
-IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo, et dixit mihi: In Jacob inhábita, et in Israël hereditáre, et in eléctis meis mitte ra-
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo, et dixit mihi: In Jacob inhábita, et in Israël hereditáre, et in eléctis meis mitte radíces. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+℣. Jube, domne, benedícere. **Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+**Lectio ii** *Eccli. 24, 15-20*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea. Tu autem.
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti.
+
+{RUBRIC: Ante Septuagésimam et in Festis B. Maríæ Virg.:} Glória Patri. Genuísti.
+
+℣. Jube, domne, benedícere. **Bened.** Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
+
+**Lectio iii**
+
+QUASI cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion: quasi palma exaltáta sum in Cades, et quasi plantátio rosæ in Jéricho: quasi olíva speciósa in campis, et quasi plátanus exaltáta sum juxta aquam in platéis. Sicut cinnamómum et bálsamum aromatízans odórem dedi; quasi myrrha elécta dedi suavitátem odóris. Tu autem.
+
+{RUBRIC: Ante Septuagésimam et in Festis B. Maríæ Virg., omísso sequénti Responsório, dícitur} Te Deum.
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima: \* Quia ex te ortus est sol justítiæ, \* Christus, Deus noster. ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam commemoratiónem. — Quia. Glória Patri. Christus.
+
+##### AD LAUDES
+
+℣. Deus, in adjutórium.
+
+**Ant. 1** Assúmpta est María in cælum: \* gaudent Angeli, laudántes benedícunt Dóminum.
+
+{RUBRIC: Psalmi de Domínica 1 loco.}

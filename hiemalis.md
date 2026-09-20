@@ -45229,3 +45229,51 @@ Sitívit in te ánima mea, \* quam multiplíciter tibi caro mea.
 In terra desérta, et ínvia, et inaquósa: \* sic in sancto appárui tibi, ut vidérem virtútem tuam, et glóriam tuam.
 
 Quóniam mélior est misericórdia tua super vitas: \* lábia mea laudábunt te.
+
+Sic benedícam te in vita mea: \* et in nómine tuo levábo manus meas.
+
+Sicut ádipe et pinguédine repleátur ánima mea: \* et lábiis exsultatiónis laudábit os meum.
+
+Si memor fui tui super stratum meum, in matutínis meditábor in te: \* quia fuísti adjútor meus.
+
+Et in velaménto alárum tuárum exsultábo, adhæsit ánima mea post te: \* me suscépit déxtera tua.
+
+Ipsi vero in vanum quæsiérunt ánimam meam, introíbunt in inferióra terræ: \* tradéntur in manus gládii, partes vúlpium erunt.
+
+Rex vero lætábitur in Deo, laudabúntur omnes qui jurant in eo: \* quia obstrúctum est os loquéntium iníqua.
+
+Réquiem ætérnam.
+
+**Ant.** Me suscépit déxtera tua, Dómine.
+
+**Ant.** A porta ínferi \* érue, Dómine, ánimam meam.
+
+#### Canticum Ezechiæ
+
+*Is. 38, 10-20*
+
+EGO dixi: In dimídio diérum meórum \* vadam ad portas ínferi.
+
+Quæsívi resíduum annórum meórum. \* Dixi: Non vidébo Dóminum Deum in terra vivéntium.
+
+Non aspíciam hóminem ultra, \* et habitatórem quiétis.
+
+Generátio mea abláta est, et convolúta est a me, \* quasi tabernáculum pastórum.
+
+Præcísa est velut a texénte vita mea: dum adhuc ordírer, succídit me: \* de mane usque ad vésperam fínies me.
+
+Sperábam usque ad mane, \* quasi leo sic contrívit ómnia ossa mea:
+
+De mane usque ad vésperam fínies me: \* sicut pullus hirúndinis sic clamábo, meditábor ut colúmba:
+
+Attenuáti sunt óculi mei, \* suspiciéntes in excélsum:
+
+Dómine, vim pátior, respónde pro me. \* Quid dicam, aut quid respondébit mihi, cum ipse fécerit?
+
+Recogitábo tibi omnes annos meos \* in amaritúdine ánimæ meæ.
+
+Dómine, si sic vívitur, et in tálibus vita spíritus mei, corrípies me, et vivificábis me. \* Ecce in pace amaritúdo mea amaríssima:
+
+Tu autem eruísti ánimam meam ut non períret: \* projecísti post tergum tuum ómnia peccáta mea.
+
+Quia non inférnus confitébitur tibi, neque mors laudábit te: \* non exspectábunt qui descéndunt in lacum, veritátem tuam.

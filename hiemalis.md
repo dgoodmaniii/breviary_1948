@@ -35265,4 +35265,29 @@ HOC vitæ institútum quam sibi foret accéptum Deus miráculo osténdit. Nam cu
 
 #### Lectio vi
 
-PORRO sancti illi viri, cum plures sibi sócios adjunxíssent, Itáliæ civitátes atque óppida, prǽsertim Etrúriæ, excúrrere cœpérunt, prædicántes ubíque Christum crucifíxum, civíles discórdias compescéntes et innúmeros fere dévios ad virtútis sémitam revocántes. Neque Itáliam modo, sed et Gálliam, Germániam ac Polóniam suis evangélicis labóribus excoluérunt. Dénique cum bonum Christi odórem longe lateque diffudíssent, portentórum quoque glória illústres, migrárunt ad Dóminum. Sed quos unus veræ fraternitátis ac religiónis amor in vita sociáverat, unum páriter demórtuos contéxit sepúlcrum, únaque pópuli venerátio prosecúta est. Quaprópter Clemens undécimus et Benedíctus décimus tértius Pontífices máximi delátum iísdem a plúribus sǽculis indivíduum cultum confirmárunt; ac Leo décimus tértius, approbátis ántea miráculis, post indúltam venerationem ad collectívam eorúmdem invocatiónem a Deo patrátis, eósdem anno quinquagésimo sacerdótii sui Sanctórum honóribus cumulávit.
+PORRO sancti illi viri, cum plures sibi sócios adjunxíssent, Itáliæ civitátes atque óppida, prǽsertim Etrúriæ, excúrrere cœpérunt, prædicántes ubíque Christum crucifíxum, civíles discórdias compescéntes et innúmeros fere dévios ad virtútis sémitam revocántes. Neque Itáliam modo, sed et Gálliam, Germániam ac Polóniam suis evangélicis labóribus excoluérunt. Dénique cum bonum Christi odórem longe lateque diffudíssent, portentórum quoque glória illústres, migrárunt ad Dóminum. Sed quos unus veræ fraternitátis ac religiónis amor in vita sociáverat, unum páriter demórtuos contéxit sepúlcrum, únaque pópuli venerátio prosecúta est. Quaprópter Clemens undécimus et Benedíctus décimus tértius Pontífices máximi delátum iísdem a plúribus sǽculis indivíduum cultum confirmárunt; ac Leo décimus tértius, approbátis ántea miráculis, post indúltam venerationem ad collectívam eorúmdem invocatiónem a Deo patrátis, eósdem anno quinquagésimo sacerdótii sui Sanctórum honóribus cumulávit. lávit, eorúmque memóriam Offício ac Missa in univérsa Ecclésia quotánnis recoléndam instítuit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+SÆCULO tértio décimo, septem e Florentína nobilitáte viri, nimírum Bonfílius Monáldius, Bonajúncta Manéttus, Manéttus Antellénsis, Amidéus de Amidéis, Ugúccio Ugucciónum, Sostenéus de Sostenéis et Aléxius Falconérius, in rurálem quamdam ædículam secessére, Christi passiónem ac mæstíssimæ ejúsdem Matris dolóres assídue recoléntes. Illis beáta Virgo, sacra Parascéves die appárens, lúgubrem vestem, quam indúerent, osténdit; sibíque acceptíssimum fore significávit, ut novum regulárem órdinem excitárent, qui jugem recóleret ac promovéret memóriam dolórum, quos ipsa pértulit sub cruce Dómini. Tunc sancti illi viri, beáto Petro, órdinis Prædicatórum Mártyre, adjutóre, órdinem Servórum beátæ Vírginis instituérunt, et cum sóciis civitátes et óppida excúrrere cœpérunt, ubíque Christum crucifíxum verbo et exémplo prædicántes. Quos vero unus veræ fraternitátis amor in vita sociáverat, unum páriter demórtuos contéxit sepúlcrum, únaque pópuli venerátio prosecúta est. Quare Clemens undécimus et Benedíctus décimus tértius delátum iísdem indivíduum cultum confirmavérunt; Leo autem décimus tértius eos albo Sanctórum accénsuit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ecce nos relíquimus, de Comm. Abbátum 1 loco.} [107]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ.}
+
+### Ad Laudes
+
+{RUBRIC: Capitulum} *1 Petri 4, 13*
+
+CARÍSSIMI: Communicántes Christi passiónibus gaudéte, ut in revelatióne glóriæ ejus gaudeátis exsultántes.
+
+#### Hymnus
+
+SIC patres vitam péragunt in umbra,
+Lília ut septem nívei decóris,

@@ -18509,3 +18509,50 @@ Dies venit, dies tua,
 In qua reflórent ómnia:
 Lætémur et nos, in viam
 Tua redúcti déxtera.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Te prona mundi máchina,
+Clemens, adóret, Trínitas,
+Et nos novi per grátiam
+Novum canámus cánticum. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Assúmpsit Jesus \* discípulos suos, et ascéndit in montem, et transfigurátus est ante eos.
+
+#### Oratio
+
+DEUS, qui cónspicis omni nos virtúte destítui: intérius exteriúsque custódi; ut ab ómnibus adversitátibus muniámur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Dómine, \* bonum est nos hic esse: si vis, faciámus hic tria tabernácula; tibi unum, Móysi unum, et Elíæ unum.
+
+### Ad Tertiam
+
+**Ant.** Dómine, ut supra.
+
+**Capitulum** *1 Thess. 4, 1*
+
+FRATRES: Rogámus vos, et obsecrámus in Dómino Jesu: ut, quemádmodum accepístis a nobis, quómodo vos opórteat ambuláre, et placére Deo, sic et ambulétis ut abundétis magis.
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse. ℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+### Ad Sextam
+
+**Ant.** Faciámus hic \* tria tabernácula; tibi unum, Móysi unum, et Elíæ unum.
+
+**Capit.** *1 Thess. 4, 3-4*
+
+HÆC est enim volúntas Dei, sanctificátio vestra: ut abstineátis vos a fornicatióne, ut sciat unusquísque vestrum vas suum possidére in sanctificatióne et honóre.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis. ℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+### Ad Nonam
+
+**Ant.** Visiónem quam vidístis, \* némini dixéritis, donec a mórtuis resúrgat Fílius hóminis.
+
+**Capitulum** *1 Thess. 4, 7*
+
+NON enim vocávit nos Deus in immundítiam, sed in sanctificatiónem, in Christo Jesu Dómino nostro.

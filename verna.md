@@ -1903,7 +1903,7 @@ Paschále, Jesu, gáudium,
 A morte dira críminum
 Vitæ renátos líbera.
 
-\* Deo Patri sit glória,
+Deo Patri sit glória,
 Et Fílio, qui a mórtuis
 Surréxit, ac Paráclito,
 In sempitérna sæcula. Amen.
@@ -3967,7 +3967,7 @@ Paschále, Jesu, gáudium,
 A morte dira críminum
 Vitæ renátos líbera.
 
-\* Deo Patri sit glória,
+Deo Patri sit glória,
 Et Fílio, qui a mórtuis
 Surréxit, ac Paráclito,
 In sempitérna sæcula. Amen.
@@ -6248,3 +6248,75 @@ Sempitérna sit beátæ
 Trinitáti glória,
 Æqua Patri, Filióque;
 Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+#### Tempore Paschali
+
+**Invit.** Surréxit Dóminus vere, \* Allelúja. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+REX sempitérne cælitum,
+Rerum Creátor ómnium,
+Æquális ante sæcula
+Semper Parénti Fílius:
+
+Nascénte qui mundo faber
+Imáginem vultus tui
+Tradens Adámo, nóbilem
+Limo jugásti spíritum.
+
+Cum livor et fraus dæmonis
+Fœdásset humánum genus:
+Tu, carne amíctus, pérditam
+Formam refórmas ártifex.
+
+Qui, natus olim e Vírgine,
+Nunc e sepúlcro násceris,
+Tecúmque nos a mórtuis
+Jubes sepúltos súrgere.
+
+Qui, pastor ætérnus, gregem
+Aqua lavas baptísmatis:
+Hæc est lavácrum méntium:
+Hæc est sepúlcrum críminum.
+
+Nobis diu qui débitæ
+Redémptor affíxus cruci,
+Nostræ dedísti pródigus
+Prétium salútis sánguinem.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+### In I Nocturno
+
+#### Extra Tempus Paschale
+
+**Ant.** Expúgna, Dómine, \* impugnántes me.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 34, i
+
+JUDICA, Dómine, nocéntes me, \* expúgna impugnántes me.
+
+Apprehénde arma et scutum: \* exsúrge in adjutórium mihi.
+
+Effúnde frámeam, et conclúde advérsus eos, qui persequúntur me: \* dic ánimæ meæ: Salus tua ego sum.
+
+Confundántur et revereántur, \* quæréntes ánimam meam.
+
+Avertántur retrórsum, et confundántur \* cogitántes mihi mala.
+
+Fiant tamquam pulvis ante fáciem venti: \* et Angelus Dómini coárctans eos.

@@ -13916,3 +13916,51 @@ Justítia ante eum ambulábit: \* et ponet in via gressus suos.
 VERE tu es Deus abscónditus, \* Deus Israël, Salvátor.
 
 Confúsi sunt, et erubuérunt omnes: \* simul abiérunt in confusiónem fabricatóres errórum.
+
+Israël salvátus est in Dómino salúte ætérna: \* non confundémini, et non erubescétis usque in sæculum sæculi.
+
+Quia hæc dicit Dóminus creans cælos, \* ipse Deus formans terram, et fáciens eam, ipse plastes ejus:
+
+Non in vanum creávit eam, ut habitarétur formávit eam: \* Ego Dóminus, et non est álius.
+
+Non in abscóndito locútus sum, \* in loco terræ tenebróso:
+
+Non dixi sémini Jacob frustra: Quǽrite me: \* ego Dóminus loquens justítiam, annúntians recta.
+
+Congregámini, et veníte, et accédite simul \* qui salváti estis ex géntibus:
+
+Nesciérunt qui levant lignum sculptúræ suæ, \* et rogant deum non salvántem.
+
+Annuntiáte, et veníte, et consiliámini simul: \* Quis audítum fecit hoc ab inítio, ex tunc prædíxit illud?
+
+Numquid non ego Dóminus, et non est ultra Deus absque me? \* Deus justus, et salvans non est præter me.
+
+Convertímini ad me, et salvi éritis, omnes fines terræ: \* quia ego Deus, et non est álius.
+
+In memetípso jurávi, egrediétur de ore meo justítiæ verbum, \* et non revertétur:
+
+Quia mihi curvábitur omne genu, \* et jurábit omnis lingua.
+
+Ergo in Dómino, dicet, meæ sunt justítiæ et impérium: \* ad eum vénient, et confundéntur omnes qui repúgnant ei.
+
+In Dómino justificábitur, et laudábitur \* omne semen Israël.
+
+**Ant.** In Dómino justificábitur, et laudábitur omne semen Israël.
+
+**Ant.** Lauda, \* †Jerúsalem, Dóminum. ‡
+
+###### Psalmus 147
+
+LAUDA, †Jerúsalem, Dóminum: \* ‡ lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.

@@ -39193,3 +39193,63 @@ Sit salus illi, decus atque virtus,
 Qui, super cæli sólio corúscans,
 Tótius mundi sériem gubérnat
 Trinus et unus. Amen.
+
+℣. Amávit eum Dóminus, et ornávit eum. ℟. Stolam glóriæ índuit eum.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo ora pro nobis Dóminum.
+
+### In II Vesperis
+
+℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+##### Pro Summis Pontificibus
+
+**Ant.** Dum esset Summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+**1 — Oratio**
+
+DA, quǽsumus, omnípotens Deus: ut beáti N. Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+**2 — Alia Oratio**
+
+EXÁUDI, quǽsumus, Dómine, preces nostras, quas in beáti N. Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+##### Pro Doctoribus
+
+###### In utrisque Vesperis
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte N., divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+**3 — Oratio**
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Regem Confessórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+{RUBRIC: Hymnus Iste Conféssor, ut supra. [70]}
+
+#### In I Nocturno
+
+**Ant.** Beátus vir, \* qui in lege Dómini meditátur: volúntas ejus pérmanet die ac nocte, et ómnia quæcúmque fáciet, semper prosperabúntur.
+
+###### Psalmus 1
+
+BEÁTUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.

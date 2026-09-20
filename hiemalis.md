@@ -36106,4 +36106,40 @@ IN amphitheátrum, toto inspectánte pópulo, producúntur tandem generósæ mul
 
 #### Lectio ix
 
-PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum
+PERPÉTUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum cárcerem detrúsæ, quibus ultra adjúnctus est Sátyrus. Ibi, cum adhuc catechúmenæ essent, baptizátæ sunt. Tum ad béstias damnántur; cumque a Felicitáte, in partus labóribus dolénti, quæreret quidam e custódibus, quid in amphitheátro esset factúra, illa respóndit: Modo ego pátior; illic autem álius erit in me, qui patiétur pro me, quia et ego pro illo passúra sum. Itaque in amphitheátrum, toto inspectánte pópulo, prodúctæ, primum flagéllis cædúntur; tum a ferocíssima vacca aliquámdiu jactátæ, plagis concísæ et in terram elísæ sunt; demum cum sóciis, qui a váriis béstiis vexáti fúerant, die séptima Mártii, gladiórum íctibus conficiúntur.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est, de Communi non Virginum.} [134]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ et fit ejus Commemoratio ad Laudes.}
+
+### Ad Laudes
+
+℣. Glória et honóre coronásti eas, Dómine. ℟. Et constituísti eas super ópera mánuum tuárum.
+
+**Ad Bened. Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio** C 3
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum Perpétuæ et Felicitátis palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre, humílibus saltem frequentémus obséquiis. Per Dñum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commem. præcedéntis et, in Quadragésima, Fériæ.}
+
+---
+
+## Die 7 Martii
+
+### S. Thomæ de Aquino
+
+{RUBRIC: Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex} [94]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Thoma, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+#### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Thomæ Confessóris tui mira eruditióne claríficas, et sancta operatióne fecúndas: da nobis, quǽsumus; et quæ dócuit, intelléctu conspícere, et quæ egit, imitatióne complére. Per Dóminum.

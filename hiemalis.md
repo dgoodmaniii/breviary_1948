@@ -42728,4 +42728,18 @@ Te Deum laudámus.
 
 #### Lectio iv
 
-COMMÚNIS ómnium domus est ecclésia, in quam, vobis prius ingréssis, nos intrámus, discipulórum formam retinéntes. Ideóque commúniter ómnibus statim atque ingréssi fuérimus, ut illis datam legem sequámur, pacem offérimus. Nemo ígitur socórdia tórpeat, nemo sæculáribus
+COMMÚNIS ómnium domus est ecclésia, in quam, vobis prius ingréssis, nos intrámus, discipulórum formam retinéntes. Ideóque commúniter ómnibus statim atque ingréssi fuérimus, ut illis datam legem sequámur, pacem offérimus. Nemo ígitur socórdia tórpeat, nemo sæculáribus rebus suspénsum ánimum hábeat, cum jam ad prædicándum sacerdótes intráverint; non enim parva huic rei ímminet pœna. Equidem míllies pótius malim in domum alicújus vestrum ingréssus destítui, quam hic prædicans non audíri. Hoc mihi moléstius esset quam illud, quandóquidem magis própria hæc est quam illa.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+#### Lectio v
+
+NAM hic magnæ illæ nostræ opes pósitæ sunt, hic spes nostra omnis. Quid enim hoc loco non magnum est et admirándum? Nam hæc mensa longe pretiósior est atque jucúndior, et lucérna hæc quam illa; ut norunt qui, cum fide óleo perúncti, a morbis liberáti sunt. Arca étiam hæc multo mélior magísque necessária; non enim vestes, sed misericórdiam inclúsam cóntinet: quamvis pauci sint, qui eam possídeant. Hic et léctulus est valde illo præstántior; divinárum enim Scripturárum réquies quovis lecto suávior est.
+
+℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+#### Lectio vi
+
+ET quidem si concórdia perfécte servarétur a nobis, nullam áliam domum præter hanc haberémus. Hoc autem quod dixi, non esse durum, testántur illa tria míllia et quinque míllia hóminum, quibus et domus una, et mensa una, et ánima una erat. Multitúdinis enim credéntium, inquit, unum erat cor, et ánima una. Sed quia longe ab illórum virtúte ábsumus et per domos disjúncti sumus, saltem, quando huc convenímus, id omni stúdio faciámus. Nam etsi in áliis rebus páuperes et ínopes sumus, hoc loco saltem, cum huc ad vos intrámus, cum caritáte nos suscípite; cumque, Pax vobis, dico, Et cum spíritu tuo, non voce solum, sed ánimo quoque respondéte.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désu-

@@ -35812,4 +35812,30 @@ CONCÉDE nos, quǽsumus, omnípotens Deus: beáti Petri Confessóris tui atque P
 
 *Cap. 1, 15-26*
 
-IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus cré-
+IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus cré-puit médius: et diffúsa sunt ómnia víscera ejus.
+
+℟. Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus: \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte.
+
+#### Lectio ii
+
+ET notum factum est ómnibus habitántibus Jerúsalem, ita ut appellarétur ager ille, língua eórum, Hacéldama, hoc est, ager sánguinis. Scriptum est enim in libro Psalmórum: Fiat commorátio eórum desérta, et non sit qui inhábitet in ea: et episcopátum ejus accípiat alter. Opórtet ergo ex his viris, qui nobíscum sunt congregáti in omni témpore, quo intrávit et exívit inter nos Dóminus Jesus, incípiens a baptísmate Joánnis usque in diem, qua assúmptus est a nobis, testem resurrectiónis ejus nobíscum fíeri unum ex istis.
+
+℟. Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde: \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum.
+
+#### Lectio iii
+
+ET statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Justus: et Matthíam. Et orántes dixérunt: Tu, Dómine, qui corda nosti ómnium, osténde, quem elégeris ex his duóbus unum accípere locum ministérii hujus, et apostolátus, de quo prævaricátus est Judas, ut abíret in locum suum. Et dedérunt sortes eis, et cécidit sors super Matthíam, et annumerátus est cum úndecim Apóstolis.
+
+℟. Dum stetéritis ante reges et præsides, nolíte cogitáre quómodo aut quid loquámini: \* Dábitur enim vobis in illa hora quid loquámini. ℣. Non enim vos estis qui loquímini; sed Spíritus Patris vestri, qui lóquitur in vobis. — Dábitur. Glória Patri. Dábitur.
+
+{RUBRIC: In II Nocturno Lectiónes Fundaménta, de Communi Apostolórum 2 loco.} [21]
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 11, 25-30*
+
+IN illo témpore: Respóndens Jesus dixit: Confíteor tibi, Pater, Dómine cæli et terræ, quia abscon-

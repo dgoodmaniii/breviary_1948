@@ -13192,3 +13192,60 @@ Sed et lingua mea tota die meditábitur justítiam tuam: \* cum confúsi et rev�
 ### Tempore Paschali
 
 **Ant.** Allelúja, allelúja, allelúja.
+
+### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+#### Tempore Paschali
+
+℟. br. In manus tuas, Dómine, comméndo spíritum meum, \* Allelúja, allelúja. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Allelúja, allelúja. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi, allelúja. ℟. Sub umbra alárum tuárum prótege nos, allelúja.
+
+**Ant.** Salva nos.
+
+## Canticum Simeonis
+
+###### Luc. 2, 29-32
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace. (T. P. Allelúja.)
+
+---
+
+## Preces (si dicendæ sint)
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus

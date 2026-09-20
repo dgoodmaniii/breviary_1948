@@ -46632,4 +46632,30 @@ SI fúgerit pópulus tuus Israël inimícos suos (quia peccatúrus est tibi), et
 
 **Lectio iii** *Ibid., 38-43*
 
-SI quis cognóverit plagam cordis sui, et expánderit manus suas in domo hac, tu exáudies in cælo in loco habitatiónis tuæ, et repropitiáberis, et fácies ut des unicuíque secúndum omnes vias suas, sicut víderis cor ejus (quia tu nosti solus cor ómnium filiórum hóminum), ut tímeant te cunctis diébus, quibus vivunt super fáciem terræ, quam dedísti pátribus nostris. Insuper et alienígena, qui non est de pópulo tuo Israël, cum vénerit de terra longínqua propter nomen tuum (audiétur enim nomen tuum magnum, et manus tua fortis, et bráchium tuum exténtum ubíque), cum vénerit ergo, et oráverit in hoc loco, tu exáudies in cælo, in firmaménto habitáculi tui et fácies ómnia, pro quibus invocáverit
+SI quis cognóverit plagam cordis sui, et expánderit manus suas in domo hac, tu exáudies in cælo in loco habitatiónis tuæ, et repropitiáberis, et fácies ut des unicuíque secúndum omnes vias suas, sicut víderis cor ejus (quia tu nosti solus cor ómnium filiórum hóminum), ut tímeant te cunctis diébus, quibus vivunt super fáciem terræ, quam dedísti pátribus nostris. Insuper et alienígena, qui non est de pópulo tuo Israël, cum vénerit de terra longínqua propter nomen tuum (audiétur enim nomen tuum magnum, et manus tua fortis, et bráchium tuum exténtum ubíque), cum vénerit ergo, et oráverit in hoc loco, tu exáudies in cælo, in firmaménto habitáculi tui et fácies ómnia, pro quibus invocáverit te alienígena: ut discant univérsi pópuli terrárum nomen tuum timére, sicut pópulus tuus Israël, et probent quia nomen tuum invocátum est super domum hanc.
+
+℟. Quæ est ista, quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt. Glória Patri. Vidérunt.
+
+### In II Nocturno
+
+**Ant.** Diffúsa est grátia in lábiis tuis, proptérea benedíxit te Deus in ætérnum: et in sæculum sæculi.
+
+**Ant.** Sanctificávit tabernáculum suum Altíssimus.
+
+**Ant.** Homo natus est in ea, et ipse fundávit eam Altíssimus.
+
+℣. Dómine, diléxi decórem domus tuæ. ℟. Et locum habitatiónis glóriæ tuæ.
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis}
+
+{RUBRIC: Sermo 58 de divérsis}
+
+**Lectio iv**
+
+SAPIENTIA, quæ Dei erat, et Deus erat, de sinu Patris ad nos véniens, ædificávit sibi domum, ipsam scílicet Matrem suam, Vírginem Maríam, in qua septem colúmnas excídit. Quid est in ea septem colúmnas excídere, nisi ipsam dignum sibi habitáculum fide et opéribus præparáre? Nimírum ternárius númerus ad fidem propter sanctam Trinitátem; quaternárius pértinet ad mores propter quátuor principáles virtútes. Quod autem in beáta María sancta Trínitas fúerit; fúerit, dico, per præséntiam majestátis, ubi solus Fílius erat per susceptiónem humanitátis; testátur núntius cæléstis, qui, ei arcána mystéria réserans, ait: Ave, grátia plena; Dóminus tecum; et post pauca: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi. Ecce habes Dóminum, habes virtútem Altíssimi, habes Spíritum Sanctum, habes Patrem, Fílium et Spíritum Sanctum.
+
+℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+**Lectio v**
+
+UTRUM autem et quátuor principáles virtútes, tamquam quátuor co-

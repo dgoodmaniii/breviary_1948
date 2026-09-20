@@ -18853,4 +18853,63 @@ DA, quæsumus, Dómine, nostris efféctum jejúniis salutárem: ut castigátio c
 
 **Capitulum** *Ephes. 5, 1-2*
 
-FRATRES: Estóte imitatóres Dei, sicut fílii caríssimi: et ambuláte in
+FRATRES: Estóte imitatóres Dei, sicut fílii caríssimi: et ambuláte in dilectióne, sicut et Christus diléxit nos, et trádidit semetípsum pro nobis oblatiónem et hóstiam Dei in odórem suavitátis.
+
+#### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus,
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te revérsis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Præsta, beáta Trínitas,
+Concéde, simplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Magnif. Ant.** Dixit autem pater \* ad servos suos: Cito proférte stolam primam, et indúite illum, et date ánulum in manu ejus, et calceaménta in pédibus ejus.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Extóllens vocem \* quædam múlier de turba, dixit: Beátus venter qui te portávit, et úbera quæ suxísti. At Jesus ait illi: Quinímmo beáti, qui áudiunt verbum Dei, et custódiunt illud.
+
+#### Oratio
+
+QUÆSUMUS, omnípotens Deus, vota humílium réspice: atque ad defensiónem nostram, déxteram tuæ majestátis exténde. Per Dóminum.
+
+---
+
+## Dominica III in Quadragesima
+
+{RUBRIC: I classis} Semiduplex
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 37, 2-28*
+
+JOSEPH, cum sédecim esset annórum, pascébat gregem cum frátribus suis adhuc puer: et erat cum fíliis Balæ et Zelphæ uxórum patris sui, accusavítque fratres suos apud patrem crímine péssimo.

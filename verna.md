@@ -1728,3 +1728,15 @@ DEUS, qui per resurrectiónem Fílii tui, Dómini nostri Jesu Christi, mundum l�
 {RUBRIC: Absoluta vero Antiphona finali cum suis Versu et Oratione, concluditur:}
 
 ℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+## Post divinum Officium
+
+{RUBRIC: Cum expletum fuerit Officium, laudabiliter dicitur sequens Oratio; pro qua Summus Pontifex Pius Papa XI sub die 1 Decembris 1933 indulgentiam trium annorum concessit. Præterea Clericis in sacris constitutis et Sacerdotibus eam devote post Officium recitantibus Summus Pontifex Leo X defectus et culpas in eo persolvendo ex humana fragilitate contractas, indulsit. Dicitur autem flexis semper genibus in privata etiam recitatione, præter quam ab iis, qui ob certam infirmitatem vel gravioris impedimenti causam nequeant genuflectere.}
+
+### Oratio
+
+SACROSANCTAE et individuæ Trinitáti, crucifíxi Dómini nostri Jesu Christi humanitáti, beatíssimæ et gloriosíssimæ semperque Vírginis Maríæ fecúndæ integritáti, et ómnium Sanctórum universitáti sit sempitérna laus, honor, virtus et glória ab omni creatúra, nobísque remíssio ómnium peccatórum, per infiníta sæcula sæculórum. ℟. Amen.
+
+℣. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium. ℟. Et beáta úbera, quæ lactavérunt Christum Dóminum.
+
+{RUBRIC: Et dicitur secreto} Pater noster et Ave María.

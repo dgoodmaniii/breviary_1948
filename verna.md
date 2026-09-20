@@ -14140,3 +14140,59 @@ Mitigásti omnem iram tuam: \* avertísti ab ira indignatiónis tuæ.
 Convérte nos, Deus, salutáris noster: \* et avérte iram tuam a nobis.
 
 Numquid in ætérnum irascéris nobis? \* aut exténdes iram tuam a generatióne in generatiónem?
+
+Deus, tu convérsus vivificábis nos: \* et plebs tua lætábitur in te.
+
+Osténde nobis, Dómine, misericórdiam tuam: \* et salutáre tuum da nobis.
+
+Audiam quid loquátur in me Dóminus Deus: \* quóniam loquétur pacem in plebem suam.
+
+Et super sanctos suos: \* et in eos, qui convertúntur ad cor.
+
+Verúmtamen prope timéntibus eum salutáre ipsíus: \* ut inhábitet glória in terra nostra.
+
+Misericórdia, et véritas obviavérunt sibi: \* justítia, et pax osculátæ sunt.
+
+Véritas de terra orta est: \* et justítia de cælo prospéxit.
+
+Etenim Dóminus dabit benignitátem: \* et terra nostra dabit fructum suum.
+
+Justítia ante eum ambulábit: \* et ponet in via gressus suos.
+
+**Ant.** Deus, tu convérsus vivificábis nos: et plebs tua lætábitur in te.
+
+**Ant.** Cum irátus fúeris.
+
+### Feria VI in Parasceve
+
+**Ant.** Ait latro ad latrónem: Nos quidem digna factis recípimus, hic autem quid fecit? Meménto mei, Dómine, dum véneris in regnum tuum.
+
+**Ant.** Cum conturbáta fúerit \* ánima mea, Dómine, misericórdiæ memor eris.
+
+### Canticum Habacuc
+
+###### Hab. 3, 2-19
+
+DOMINE, audívi auditiónem tuam, \* et tímui.
+
+Dómine, opus tuum, \* in médio annórum vivífica illud:
+
+In médio annórum notum fácies: \* cum irátus fúeris, misericórdiæ recordáberis.
+
+Deus ab Austro véniet, \* et sanctus de monte Pharan:
+
+Opéruit cælos glória ejus: \* et laudis ejus plena est terra.
+
+Splendor ejus ut lux erit: \* córnua in mánibus ejus:
+
+Ibi abscóndita est fortitúdo ejus: \* ante fáciem ejus ibit mors.
+
+Et egrediétur diábolus ante pedes ejus. \* Stetit, et mensus est terram.
+
+Aspéxit, et dissólvit gentes: \* et contríti sunt montes sæculi.
+
+Incurváti sunt colles mundi, \* ab itinéribus æternitátis ejus.
+
+Pro iniquitáte vidi tentória Æthiópiæ, \* turbabúntur pelles terræ Mádian.
+
+Numquid in flumínibus irátus es, Dómine? \* aut in flumínibus furor tuus? vel in mari indignátio tua?

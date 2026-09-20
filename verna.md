@@ -1787,3 +1787,86 @@ Flectámus iram víndicem,
 Plorémus ante Júdicem,
 Clamémus ore súpplici,
 Dicámus omnes cérnui:
+
+Nostris malis offéndimus
+Tuam, Deus, cleméntiam:
+Effúnde nobis désuper,
+Remíssor, indulgéntiam.
+
+Meménto quod sumus tui,
+Licet cadúci, plásmatis:
+Ne des honórem nóminis
+Tui, precámur, álteri.
+
+Laxa malum, quod fécimus,
+Auge bonum, quod póscimus:
+Placére quo tandem tibi
+Possímus hic, et pérpetim.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas,
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+#### Tempore Passionis
+
+**Invit.** Hódie, si vocem Dómini audiéritis, \* Nolíte obduráre corda vestra. **Ps. 94** Veníte. [3]
+
+{RUBRIC: In quarto Psalmi versu non dicitur: Hódie, si vocem ejus audiéritis, nolíte obduráre corda vestra; sed, post repetitum a Choro Invitatorium, statim subjúngitur: Sicut in exacerbatióne.}
+
+{RUBRIC: In fine autem hujus Psalmi non dicitur} Glória Patri, {RUBRIC: quando fit Officium de Dominica; sed repetitur Invitatorium, ut alias, in fine.}
+
+#### Hymnus
+
+PANGE, lingua, gloriósi
+Láuream certáminis,
+Et super Crucis tropháo
+Dic triúmphum nóbilem:
+Quáliter Redémptor orbis
+Immolátus vícerit.
+
+De paréntis protoplásti
+Fraude Factor condolens,
+Quando pomi noxiális
+In necem morsu ruit:
+Ipse lignum tunc notávit,
+Damna ligni ut sólveret.
+
+Hoc opus nostræ salútis
+Ordo depopóscerat;
+Multifórmis proditóris
+Ars ut artem fálleret,
+Et medélam ferret inde,
+Hostis unde læserat.
+
+Quando venit ergo sacri
+Plenitúdo témporis,
+Missus est ab arce Patris
+Natus, orbis Cónditor;
+Atque ventre virgináli
+Carne amíctus pródiit.
+
+Vagit infans inter arcta
+Cónditus præsépia:
+Membra pannis involúta
+Virgo Mater álligat:
+Et Dei manus pedésque
+Stricta cingit fáscia.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+#### Tempore Paschali
+
+**Invit.** Surréxit Dóminus vere, \* Allelúja. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+REX sempitérne cælitum,
+Rerum Creátor ómnium,

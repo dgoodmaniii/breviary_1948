@@ -36438,4 +36438,40 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua
 
 ℣. Exsultábunt Sancti.
 
-**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctó-
+**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctó-rum, qui Christi vestígia sunt secúti: et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+---
+
+## Die 12 Martii
+
+### S. Gregorii I
+
+{RUBRIC: Papæ, Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex} [69]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Gregóri, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+#### Oratio
+
+DEUS, qui ánimæ fámuli tui Gregórii ætérnæ beatitúdinis prǽmia contulísti: concéde propítius; ut, qui peccatórum nostrórum póndere prémimur, ejus apud te précibus sublevémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+{RUBRIC: In I Nocturno Lectiónes Sapiéntiam, de Communi Doctórum.} [87]
+
+### In II Nocturno
+
+#### Lectio iv
+
+GREGÓRIUS Magnus, Románus, Gordiáni senatóris fílius, adoléscens philosophíæ óperam dedit; et prætório offício functus, patre mórtuo, sex monastéria in Sicília ædificávit, Romæ séptimum sancti Andréæ nómine in suis ǽdibus, prope basílicam sanctórum Joánnis et Pauli ad clivum Scauri, ubi Hilarióne ac Maximiáno magístris, mónachi vitam proféssus, póstea abbas fuit. Mox diáconus cardinális creátus, Constantinópolim a Pelágio Pontífice ad Tibérium Constantínum imperatórem legátus míttitur: apud quem memorábile étiam illud effécit, quod Eutýchium patriárcham, qui scrípserat contra veram ac tractábilem córporum resurrectiónem, ita convícit, ut ejus librum imperátor in ignem injíceret. Quare Eutýchius paulo post cum in morbum incidísset, instánte morte, pellem manus suæ tenébat, multis præséntibus, dicens: Confíteor quia omnes in hac carne resurgémus.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium con-

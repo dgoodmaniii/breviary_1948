@@ -10458,3 +10458,67 @@ RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avér
 {RUBRIC: Preces feriales, ut supra.}
 
 {RUBRIC: Reliqua ut in Ordinario. 29}
+
+### Tempore Paschali
+
+**Capitulum** *1 Petri 3, 18*
+
+CHRISTUS semel pro peccátis nostris mórtuus est, justus pro injústis, ut nos offérret Deo, mortificátus quidem carne, vivificátus autem spíritu.
+
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Beáti omnes, \* †qui timent Dóminum. ‡
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 127
+
+BEATI omnes, † qui timent Dóminum, \* ‡ qui ámbulant in viis ejus.
+
+Labóres mánuum tuárum quia manducábis: \* beátus es, et bene tibi erit.
+
+Uxor tua sicut vitis abúndans: \* in latéribus domus tuæ.
+
+Fílii tui sicut novéllæ olivárum, \* in circúitu mensæ tuæ.
+
+Ecce, sic benedicétur homo, \* qui timet Dóminum.
+
+Benedícat tibi Dóminus ex Sion: \* et vídeas bona Jerúsalem ómnibus diébus vitæ tuæ.
+
+Et vídeas fílios filiórum tuórum, \* pacem super Israël.
+
+**Ant.** Beáti omnes, qui timent Dóminum.
+
+**Ant.** Confundántur omnes, \* qui odérunt Sion.
+
+###### Psalmus 128
+
+SÆPE expugnavérunt me a juventúte mea, \* dicat nunc Israël:
+
+Sæpe expugnavérunt me a juventúte mea: \* étenim non potuérunt mihi.
+
+Supra dorsum meum fabricavérunt peccatóres: \* prolongavérunt iniquitátem suam.
+
+Dóminus justus concídit cervíces peccatórum: \* confundántur et convertántur retrórsum omnes, qui odérunt Sion.
+
+Fiant sicut fœnum tectórum: \* quod priúsquam evellátur, exáruit:
+
+De quo non implévit manum suam qui metit, \* et sinum suum qui manípulos cólligit.
+
+Et non dixérunt qui præteríbant: Benedíctio Dó-

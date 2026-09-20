@@ -38462,4 +38462,74 @@ Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
 
 Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
 
-Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus. Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Tamquam aurum in fornáce probávit eléctos Dóminus: et quasi holocáusta accépit eos in ætérnum.
+
+**Ant.** Si coram homínibus \* torménta passi sunt, spes electórum est immortális in ætérnum.
+
+###### Psalmus 3
+
+DOMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Si coram homínibus torménta passi sunt, spes electórum est immortális in ætérnum.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Absolutio.** Exáudi Dómine.
+
+**Benedictio.** Benedictióne.
+
+{RUBRIC: De Epístola beáti Pauli Apóstoli ad Romános}
+
+#### Lectio i
+
+*Cap. 8, 12-19*
+
+FRATRES: Debitóres sumus non carni, ut secúndum carnem vivámus. Si enim secúndum carnem vixéritis, moriémini: si autem spíritu facta carnis mortificavéritis, vivétis. Quicúmque enim spíritu Dei agúntur, ii sunt fílii Dei. Non enim accepístis spíritum servi-tútis íterum in timóre, sed accepístis spíritum adoptiónis filiórum, in quo clamámus: Abba (Pater). Ipse enim Spíritus testimónium reddit spirítui nostro, quod sumus fílii Dei. Si autem fílii, et herédes: herédes quidem Dei, cohérédes autem Christi; si tamen compátimur, ut et conglorificémur. Existímo enim quod non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis. Nam exspectátio creatúræ revelatiónem filiórum Dei exspéctat.
+
+##### Pro pluribus Martyribus
+
+℟. Abstérget Deus omnem lácrimam ab óculis Sanctórum: et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor: \* Quóniam prióra transiérunt. ℣. Non esúrient, neque sítient ámplius, neque cadet super illos sol, neque ullus ǽstus. — Quóniam prióra.
+
+##### Pro uno Mart. non Pont.
+
+℟. Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit: \* Fundátus enim erat supra firmam petram. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Fundátus.
+
+**Benedictio.** Unigénitus Dei.
+
+#### Lectio ii
+
+*Cap. 8, 28-39*
+
+SCIMUS autem quóniam diligéntibus Deum ómnia cooperántur in bonum, iis, qui secúndum propósitum vocáti sunt sancti. Nam quos præscívit, et prædestinávit confórmes fíeri imáginis Fílii sui, ut sit ipse primogénitus in multis frátribus. Quos autem prædestinávit, hos et vocávit: et quos vocávit, hos et justificávit: quos autem justificávit, illos et glorificávit. Quid ergo dicémus ad hæc? Si Deus pro nobis, quis contra nos? Qui étiam próprio Fílio suo non pepércit, sed pro nobis ómnibus trádidit illum: quómodo non étiam cum illo ómnia nobis donávit? Quis accusábit advérsus eléctos Dei? Deus qui justíficat, quis est qui condémnet? Christus Jesus, qui mórtuus est, immo qui et resurréxit, qui est ad déxteram Dei, qui étiam interpéllat pro nobis.
+
+##### Pro pluribus Martyribus
+
+℟. Viri sancti gloriósum sánguinem fudérunt pro Dómino, amavérunt Christum in vita sua, imitáti sunt eum in morte sua: \* Et ídeo corónas triumpháles meruérunt. ℣. Unus spíritus, et una fides erat in eis. — Et.

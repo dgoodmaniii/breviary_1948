@@ -482,3 +482,76 @@ In te, Dómine, sperávi: \* non confúndar in ætérnum.
 Orémus.
 
 {RUBRIC: Et dicitur Oratio ut ad Laudes.}
+
+{RUBRIC: Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur Pater noster totum secreto.}
+
+{RUBRIC: In publica vero recitatione Matutinum in Choro a Laudibus separari non potest.}
+
+## Ad Laudes
+
+{RUBRIC: Si Laudes extra Chorum separentur a Matutino, ante eas dicitur secreto Pater noster et Ave María; secus absolute incipiuntur, ut sequitur:}
+
+℣. Deus in adjutórium.
+
+{RUBRIC: Deinde, sub congruentibus Antiphonis, dicuntur Psalmi et Cánticum, prouti Officium occurrens requirit.}
+
+{RUBRIC: Repetita vero post ultimum Psalmum Antiphona, dicuntur Capitulum, Hymnus et Versus, prouti Officium occurrens exigit.}
+
+#### Tempore Quadragesimæ
+
+{RUBRIC: In Officio dominicali, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio autem feriali dicitur quotidie sequens}
+
+**Capitulum** *Is. 58, 1*
+
+CLAMA, ne cesses, quasi tuba exálta vocem tuam, et annúntia pópulo meo scélera eórum, et dómui Jacob peccáta eórum. ℟. Deo grátias.
+
+{RUBRIC: ¶ Sic respondetur in fine omnium Capitulorum.}
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens Hymnus et Versus:}
+
+#### Hymnus
+
+O Sol salútis, íntimis,
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ,
+Si virga pæniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Te prona mundi máchina,
+Clemens, adóret, Trínitas,
+Et nos novi per grátiam
+Novum canámus cánticum. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Tempore Passionis
+
+{RUBRIC: In Officio dominicali, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio autem feriali,

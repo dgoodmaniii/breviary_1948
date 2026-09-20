@@ -18639,4 +18639,28 @@ QUID mansuétius, quid benígnius Dómino? Tentátur a pharisǽis, confringúntu
 
 ALLIGANT enim ónera grávia et importabília, et impónunt in húmeros hóminum, dígito autem suo nolunt ea movére. Hoc generáliter advérsus omnes magístros, qui grávia jubent, et minóra non fáciunt. Notándum autem, quod et húmeri, et dígitus, et ónera, et víncula quibus alligántur ónera, spirituáliter intelligénda sunt. Omnia vero ópera sua fáciunt, ut videántur ab homínibus. Quicúmque ígitur ita facit quódlibet, ut videátur ab homínibus, scriba et pharisǽus est.
 
-℟. Si Dóminus Deus meus fúerit mecum in via ista, per quam ego ámbulo, et custodíerit me, et déderit mihi panem ad edéndum, et vestiméntum quo opériar, et revocáverit me cum salúte: \* Erit mihi Dóminus in refúgium, et lapis iste in signum. ℣. Surgens ergo mane Jacob, tulit lápidem
+℟. Si Dóminus Deus meus fúerit mecum in via ista, per quam ego ámbulo, et custodíerit me, et déderit mihi panem ad edéndum, et vestiméntum quo opériar, et revocáverit me cum salúte: \* Erit mihi Dóminus in refúgium, et lapis iste in signum. ℣. Surgens ergo mane Jacob, tulit lápidem quem supposúerat cápiti suo, et eréxit in títulum, fundénsque óleum désuper, dixit. — Erit mihi Dóminus in refúgium, et lapis iste in signum.
+
+#### Lectio iii
+
+DILATANT enim phylactéria sua, et magníficant fímbrias. Amant quoque primos recúbitus in cœnis, et primas cáthedras in synagógis, et salutatiónes in foro, et vocári ab homínibus Rabbi. Væ nobis míseris, ad quos pharisæórum vítia transiérunt. Dóminus cum dedísset mandáta legis per Móysen, ad extrémum íntulit: Ligábis ea in manu tua, et erunt immóta ante óculos tuos. Et est sensus: Præcépta mea sint in manu tua, ut ópere compleántur: sint ante óculos tuos, ut die ac nocte meditéris in eis. Hoc pharisǽi male interpretántes, scribébant in membránis decálogum Móysi, id est, decem verba legis, complicántes ea et ligántes in fronte, et quasi corónam cápiti faciéntes: ut semper ante óculos moveréntur.
+
+℟. Erit mihi Dóminus in Deum, et lapis iste quem eréxi in títulum, vocábitur domus Dei: et de univérsis quæ déderis mihi, \* Décimas et hóstias pacíficas ófferam tibi. ℣. Si revérsus fúero próspere ad domum patris mei. — Décimas. Glória Patri. Décimas.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Unus est \* enim magíster vester, qui in cælis est, Christus Dóminus.
+
+#### Oratio
+
+PERFICE, quæsumus, Dómine, benígnus in nobis observántiæ sanctæ subsídium: ut, quæ te auctóre faciénda cognóvimus, te operánte impleámus. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Omnes autem \* vos fratres estis; et patrem nolíte vocáre vobis super terram: unus est enim Pater vester, qui in cælis est: nec vocémini magístri, quia magíster vester unus est Christus.
+
+#### Oratio
+
+PROPITIARE, Dómine, supplicatiónibus nostris, et animárum nostrárum medére languóribus: ut, remissióne percépta, in tua semper benedictióne lætémur. Per Dóminum.
+
+---

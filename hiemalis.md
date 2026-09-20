@@ -34570,4 +34570,18 @@ DEUS, qui beátum Cyríllum Confessórem tuum atque Pontíficem divínæ materni
 
 *Lib. 2 cap. 33*
 
-SCHOLÁSTICA, venerábilis patris Benedícti soror, omnipoténti Dómino ab ipso infántiæ témpore dedicáta, ad eum semel per annum veníre consuéverat; ad quam vir Dei non longe extra jánuam in possessióne monastérii descendébat. Quadam vero die venit ex more, atque ad eam cum discípulis venerábilis ejus descéndit frater; qui totum diem in Dei láudibus sacrísque collóquiis ducéntes, incumbéntibus jam noctis ténebris, simul accepérunt cibum. Cumque adhuc ad mensam sedérent, et inter sacra collóquia tárdior se hora protráheret, éadem sanctimoniális fémina soror ejus eum rogávit, dicens: Quæso te, ut ista nocte me non déseras, ut usque mane de cæléstis vitæ gáudiis loquámur. Cui ille respóndit: Quid est quod lóqueris, soror? manére extra cellam nulátenus possum. Tanta
+SCHOLÁSTICA, venerábilis patris Benedícti soror, omnipoténti Dómino ab ipso infántiæ témpore dedicáta, ad eum semel per annum veníre consuéverat; ad quam vir Dei non longe extra jánuam in possessióne monastérii descendébat. Quadam vero die venit ex more, atque ad eam cum discípulis venerábilis ejus descéndit frater; qui totum diem in Dei láudibus sacrísque collóquiis ducéntes, incumbéntibus jam noctis ténebris, simul accepérunt cibum. Cumque adhuc ad mensam sedérent, et inter sacra collóquia tárdior se hora protráheret, éadem sanctimoniális fémina soror ejus eum rogávit, dicens: Quæso te, ut ista nocte me non déseras, ut usque mane de cæléstis vitæ gáudiis loquámur. Cui ille respóndit: Quid est quod lóqueris, soror? manére extra cellam nulátenus possum. Tanta vero erat cæli serénitas, ut nulla in aëre nubes apparéret. Sanctimoniális autem fémina, cum verba fratris negántis audivísset, insértas dígitis manus super mensam pósuit, et caput in mánibus omnipoténtem Dóminum rogatúra declinávit. Cumque leváret de mensa caput, tanta coruscatiónis et tonítrui virtus, tántaque inundátio plúviæ erúpit, ut neque venerábilis Benedíctus, neque fratres qui cum eo áderant, extra loci límen, quo consíderant, pedem movére potúerint.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+SANCTIMONIÁLIS quippe fémina caput in mánibus declínans, lacrimárum flúvium in mensam fúderat, per quas serenitátem áëris ad plúviam traxit. Nec paulo tárdius post oratiónem inundátio illa secúta est; sed tanta fuit conveniéntia oratiónis et inundatiónis, ut de mensa caput jam cum tonítruo leváret; quátenus unum idémque esset moméntum, et leváre caput, et plúviam depónere. Tunc vir Dei inter corúscos et tonítruos atque ingéntis plúviæ inundatiónem, videns se ad monastérium non posse remeáre, cœpit cónqueri contristátus, dicens: Parcat tibi omnípotens Deus, soror: quid est quod fecísti? Cui illa respóndit: Ecce rogávi te et audíre me noluísti; rogávi Deum meum, et audívit me: modo ergo, si potes, egrédere; et, me dimíssa, ad monastérium recéde. Ipse autem exíre extra tectum non valens, qui remanére sponte nóluit in loco, mansit invítus. Sicque factum est, ut totam noctem pervígilem dúcerent, atque per sacra spirituális vitæ collóquia, sese vicária relatióne satiárent.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+*Ibid. cap. 34*
+
+CUMQUE die áltero éadem venerábilis fémina ad cellam própriam recessísset, vir Dei ad monastérium rédiit. Cum ecce post tríduum, in cella consístens, elevátis in áëra óculis vidit ejúsdem soróris suæ ánimam de córpore

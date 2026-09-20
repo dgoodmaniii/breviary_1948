@@ -47812,4 +47812,18 @@ DEUS, qui ineffábili providéntia beátum Joseph sanctíssimæ Genitrícis tuæ
 
 {RUBRIC: Indulgéntia trium annórum; 7 annórum die quo menstrúus Secéssus habétur; plenária, suetis conditiónibus in fine cursus exercitiórum spirituálium. S. P. A. 24 Oct. 1935}
 
-DOMINE Jesu, Redémptor noster amantíssime et Sacérdos in ætérnum, nos súpplices tuos, quos appelláre amícos et sacerdótii tui partícipes fácere dignátus es, propítius réspice. Tui sumus, tui per-
+DOMINE Jesu, Redémptor noster amantíssime et Sacérdos in ætérnum, nos súpplices tuos, quos appelláre amícos et sacerdótii tui partícipes fácere dignátus es, propítius réspice. Tui sumus, tui perpétuo esse vólumus, ídeo sacratíssimo Cordi tuo, quod tamquam únicum salútis perfúgium laboránti humáno géneri ostendísti, dedicámus nos hódie totos et addícimus. Tu, qui sacerdótibus, Cordis tui cultóribus, úberes divíni ministérii fructus promisísti, fac nos, quǽsumus, idóneos in vínea tua operários, vere húmiles et mites, spíritu devotiónis et patiéntiæ plenos, ita flagrántes amóre tui, ut eúmdem caritátis ignem in ánimis fidélium excitáre et fovére non cessémus. Nostra ígitur corda incéndio tui Cordis ínnova, ut jam nihil áliud studeámus, quam tuam promovére glóriam et ánimas tibi lucrári, quas pretióso sánguine redemísti. Miserére, Pastor bone, præsértim sacerdótum, fratrum nostrórum, si qui ambulántes in vanitáte sensus sui te et diléctam Sponsam tuam, Ecclésiam, lacrimábili defectióne contristárunt. Concéde nobis ad tuum compléxum eos redúcere, aut certe ipsórum expiáre delícta, resarcíre damna et dolórem, quo te afficiunt, amóris nostri consolatióne minúere. Sine dénique, te quisque nostrum exóret his Augustíni verbis: O dulcis Jesu, vivas tu in me et concaléscat spíritu meo vivus carbo amóris tui, et excandéscat in ignem perféctum; árdeat júgiter in ara cordis mei, férveat in medúllis meis, flagret in abscónditis ánimæ meæ; in die consummatiónis meæ consummátus invéniar apud te, qui cum Patre et Spíritu Sancto vivis et regnas in sæcula sæculórum. Amen.
+
+# Benedictiones Variæ
+
+## Benedictio Imaginum
+
+### Jesu Christi Domini nostri, beatæ Mariæ Virginis et aliorum Sanctorum
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+OMNIPOTENS sempitérne Deus, qui Sanctórum tuórum imágines (sive effígies) sculpi aut pingi non réprobas, ut, quóties illas óculis córporis intuémur, tóties eórum actus et sanctitátem ad imitándum memóriæ óculis medité-

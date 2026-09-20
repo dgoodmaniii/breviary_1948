@@ -11265,4 +11265,52 @@ Dum discérnit cæléstis reges super eam, nive dealbabúntur in Selmon: \* mons
 
 Mons coagulátus, mons pínguis: \* ut quid suspicámini montes coagulátos?
 
-Mons, in quo beneplácitum est Deo habitáre in
+Mons, in quo beneplácitum est Deo habitáre in eo: \* étenim Dóminus habitábit in finem.
+
+Currus Dei decem míllibus múltiplex, míllia lætántium: \* Dóminus in eis in Sina in sancto.
+
+Ascendísti in altum, cepísti captivitátem: \* accepísti dona in homínibus:
+
+Etenim non credéntes, \* inhabitáre Dóminum Deum.
+
+Benedíctus Dóminus die quotídie: \* prósperum iter fáciet nobis Deus salutárium nostrórum.
+
+Deus noster, Deus salvos faciéndi: \* et Dómini Dómini éxitus mortis.
+
+Verúmtamen Deus confrínget cápita inimicórum suórum: \* vérticem capílli perambulántium in delíctis suis.
+
+Dixit Dóminus: Ex Basan convértam, \* convértam in profúndum maris:
+
+Ut intingátur pes tuus in sánguine: \* lingua canum tuórum ex inimícis, ab ipso.
+
+**Ant.** Deus noster, Deus salvos faciéndi: et Dómini sunt éxitus mortis.
+
+**Ant.** In ecclésiis \* benedícite Dómino Deo.
+
+###### Psalmus 67, iii
+
+VIDERUNT ingréssus tuos, Deus, \* ingréssus Dei mei: regis mei qui est in sancto.
+
+Prævenérunt príncipes conjúncti psalléntibus: \* in médio juvenculárum tympanistriárum.
+
+In ecclésiis benedícite Deo Dómino, \* de fóntibus Israël.
+
+Ibi Bénjamin adolescéntulus, \* in mentis excéssu.
+
+Príncipes Juda, duces eórum: \* príncipes Zábulon, príncipes Néphthali.
+
+Manda, Deus, virtúti tuæ: \* confírma hoc, Deus, quod operátus es in nobis.
+
+A templo tuo in Jerúsalem, \* tibi ófferent reges múnera.
+
+Increpa feras arúndinis, congregátio taurórum in vaccis populórum: \* ut exclúdant eos, qui probáti sunt argénto.
+
+Díssipa gentes, quæ bella volunt: vénient legáti ex Ægýpto: \* Æthiópia prævéniet manus ejus Deo.
+
+Regna terræ, cantáte Deo: \* psállite Dómino.
+
+Psállite Deo, qui ascéndit super cælum cæli, \* ad Oriéntem.
+
+Ecce, dabit voci suæ vocem virtútis, date glóriam Deo super Israël, \* magnificéntia ejus, et virtus ejus in núbibus.
+
+Mirábilis Deus in sanctis suis, Deus Israël ipse dabit virtútem, et fortitúdinem plebi suæ, \* benedíctus Deus.

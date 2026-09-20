@@ -18119,4 +18119,16 @@ IN illo témpore: Cum intrásset Jesus Jerosólymam, commóta est univérsa cív
 
 {RUBRIC: Homilía 7 in Quadrages. tom. 7}
 
-QUOD maledicéndo ficum infructuósam per figúram fecit Dóminus, hoc idem mox apértius osténdit, ejiciéndo ímprobos e templo. Neque enim áliquid peccávit arbor, quod esuriénte Dómino poma non hábuit, quorum nec-
+QUOD maledicéndo ficum infructuósam per figúram fecit Dóminus, hoc idem mox apértius osténdit, ejiciéndo ímprobos e templo. Neque enim áliquid peccávit arbor, quod esuriénte Dómino poma non hábuit, quorum necdum tempus advénerat: sed peccavére sacerdótes qui in domo Dómini negótia sæculária gerébant, et fructum pietátis, quem debúerant, quemque in eis Dóminus esuriébat, ferre superséderant. Arefécit Dóminus árborem maledícto, ut hómines hæc vidéntes, sive audiéntes, multo magis intellígerent sese divíno condemnándos esse judício, si absque óperum fructu, de plausu tantum sibi religiósi sermónis, velut de sónitu et teguménto blandiréntur viridántium foliórum.
+
+℟. Emendémus in mélius, quæ ignoránter peccávimus: ne súbito præoccupáti die mortis, quærámus spátium pœniténtiæ, et inveníre non possímus: \* Atténde, Dómine, et miserére, quia peccávimus tibi. ℣. Adjúva nos, Deus, salutáris noster, et propter honórem nóminis tui, Dómine, líbera nos. — Atténde.
+
+#### Lectio ii
+
+VERUM quia non intellexérunt, in ipsos consequénter districtiónem méritæ ultiónis exércuit: et ejécit commércia rerum humanárum de domo illa, in qua divínas tantum res agi, hóstias et oratiónes Deo offérri, verbum Dei legi, audíri, et decantári præcéptum erat. Et quidem credéndum est, quia ea tantum vendi vel emi repérerit in templo quæ ad ministérium necessária essent ejúsdem templi, juxta hoc quod álias factum légimus, cum idem templum ingrédiens, invénit in eo vendéntes et eméntes oves, et boves, et colúmbas: quia nimírum hæc ómnia non nisi ut offerréntur in domo Dómini, eos qui de longe vénerant, ab indígenis comparáre credéndum est.
+
+℟. Derelínquat ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus: \* Quia benígnus et miséricors est, et præstábilis super malítia Dóminus Deus noster. ℣. Non vult Dóminus mortem peccatóris, sed ut convertátur et vivat. — Quia.
+
+#### Lectio iii
+
+SI ergo Dóminus nec ea volébat venúmdari in templo, quæ in templo volébat offérri, vidélicet propter stúdium avarítiæ, sive fraudis, quod próprium solet esse negotiántium fácinus: quanta putas animadversióne puníret, si invenísset ibi áliquos rísui vel vanilóquio vacántes, aut álii cuílibet

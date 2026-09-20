@@ -35342,4 +35342,58 @@ DÓMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitr
 
 JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
 
-℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judí-
+℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judí-cium. Meditábitur sapiéntiam. Glória Patri. Os. ℣. Lex Dei ejus in corde ipsíus. ℟. Et non supplantabúntur gressus ejus.
+
+#### Oratio
+
+DÓMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitrícis tuæ, per septem beátos Patres nova Servórum ejus família Ecclésiam tuam fecundásti: concéde propítius; ita nos eórum consociári flétibus, ut perfruámur et gáudiis: Qui vivis.
+
+### Ad Nonam
+
+{RUBRIC: Capitulum} *Sap. 10, 10*
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
+
+℟. br. Lex Dei ejus \* In corde ipsíus. Lex. ℣. Et non supplantabúntur gressus ejus. In. Glória Patri. Lex. ℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+### In II Vesperis
+
+{RUBRIC: Capitulum} *1 Petri 4, 13*
+
+CARÍSSIMI: Communicántes Christi passiónibus gaudéte, ut et in revelatióne glóriæ ejus gaudeátis exsultántes.
+
+#### Hymnus
+
+MATRIS sub almæ númine
+Septéna proles náscitur:
+Ipsa vocánte, ad árduum
+Tendit Senári vérticem.
+
+Quos terra fructus próferet
+Dum sacra proles gérminat,
+Uvis repénte túrgidis
+Onústa vitis prǽmonet.
+
+Virtúte claros nóbili
+Mors sancta cælo cónsecrat:
+Tenent olýmpi límina
+Servi fidéles Vírginis.
+
+Cohors beáta, Núminis
+Regno potíta, réspice
+Quos hinc recédens fráudibus
+Cinctos relínquis hóstium.
+
+Ergo, per almæ vúlnera
+Matris rogámus súpplices,
+Mentis tenébras dísjice,
+Cordis procéllas cómprime.
+
+{RUBRIC: Sequens Conclúsio numquam mutátur.}
+
+Tu nos, beáta Trínitas,
+Perfúnde sancto róbore,
+Possímus ut felíciter
+Exémpla patrum súbsequi. Amen.
+
+℣. Hi viri misericórdiæ sunt, quorum pietátes non defuérunt. ℟. Semen eórum et glória eórum non derelinquétur.

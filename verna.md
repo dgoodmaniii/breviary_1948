@@ -15840,3 +15840,65 @@ Et vidit, cum tribularéntur: \* et audívit oratiónem eórum.
 ###### Psalmus 105, iii
 
 ET irritavérunt eum ad Aquas contradictiónis: \* et vexátus est Móyses propter eos: quia exacerbavérunt spíritum ejus.
+
+Et memor fuit testaménti sui: \* et pœnítuit eum secúndum multitúdinem misericórdiæ suæ.
+
+Et dedit eos in misericórdias \* in conspéctu ómnium qui céperant eos.
+
+Salvos nos fac, Dómine, Deus noster: \* et cóngrega nos de natiónibus:
+
+Ut confiteámur nómini sancto tuo: \* et gloriémur in laude tua.
+
+Benedíctus Dóminus Deus Israël, a sæculo et usque in sæculum: \* et dicet omnis pópulus: Fiat, fiat.
+
+**Ant.** Cum tribularéntur, vidit Dóminus: et audívit oratiónem eórum.
+
+---
+
+### In Festis novem Lectionum:
+
+#### Extra Tempus Paschale
+
+℣. Salvos nos fac, Dómine, Deus noster. ℟. Ut confiteámur nómini sancto tuo.
+
+### In Festis novem Lectionum:
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+℣. Deus suscitávit Christum a mórtuis, allelúja. ℟. Ut fides nostra et spes esset in Deo, allelúja.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+#### Extra Tempus Paschale
+
+**Ant.** Clamavérunt ad Dóminum: \* et de necessitátibus eórum liberávit eos.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 106, i
+
+CONFITEMINI Dómino quóniam bonus: \* quóniam in sæculum misericórdia ejus.
+
+Dicant qui redémpti sunt a Dómino, quos redémit de manu inimíci: \* et de regiónibus congregávit eos:
+
+A solis ortu, et occásu: \* ab aquilóne, et mari.
+
+Erravérunt in solitúdine in inaquóso: \* viam civitátis habitáculi non invenérunt.
+
+Esuriéntes, et sitiéntes: \* ánima eórum in ipsis defécit.
+
+Et clamavérunt ad Dóminum cum tribularéntur: \* et de necessitátibus eórum erípuit eos.
+
+Et dedúxit eos in viam rectam: \* ut irent in civitátem habitatiónis.
+
+Confiteántur Dómino misericórdiæ ejus: \* et mirabília ejus fíliis hóminum.
+
+Quia satiávit ánimam inánem: \* et ánimam esuriéntem satiávit bonis.

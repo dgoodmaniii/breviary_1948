@@ -4363,3 +4363,59 @@ Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérn
 #### In Officio trium Lectionum
 
 ℣. Surréxit Dóminus de sepúlcro, allelúja. ℟. Qui pro nobis pepéndit in ligno, allelúja.
+
+#### In Officio novem Lectionum
+
+**Absolutio** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V. Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absol.** Exáudi, Dómine.
+
+##### In Feriis, cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis, sine Homilia:
+
+**Bened.** 1 Benedictióne. 2 Unigénitus. 3 Spíritus Sancti.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+## Ad Laudes I
+
+*In Feriis Temporis Paschalis, atque in Festis extra et intra Tempus Paschale celebrandis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Jubiláte \* Deo in voce exsultatiónis.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+{RUBRIC: Sub qua sola Antiphona Allelúja, in hac et aliis Feriis, dicuntur omnes Psalmi et Canticum usque ad Capitulum a Feria II post Dominicam in Albis, in Officiis trium Lectionum usque ad Vigiliam Ascensionis et in Festis novem Lectionum de Sanctis usque ad Feriam VI post Octavam Ascensionis inclusive.}
+
+{RUBRIC: ¶ Antiphonæ, tam intra quam extra Tempus Paschale appositæ, dicuntur semper in Officio feriali et in Festis sive trium sive novem Lectionum, quando juxta Rubricas sumendi sint Psalmi de Feria; atque extra Tempus Paschale adhibentur etiam in Festis, quæ Tempore Quadragesimæ ac Passionis celebrantur.}
+
+###### Psalmus 46
+
+OMNES gentes, plaúdite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.

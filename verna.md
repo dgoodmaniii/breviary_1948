@@ -17918,4 +17918,18 @@ IN illo témpore: Ductus est Jesus in desértum a Spíritu, ut tentarétur a di�
 
 {RUBRIC: Homilía 16 in Evangelia}
 
-DUBITARI a quibúsdam solet, a quo spíritu sit Jesus ductus in desértum, propter hoc quod súbditur: Assúmpsit eum diábolus in sanctam civitátem: et rursum: Assúmpsit eum in montem excélsum valde. Sed vere et absque ulla quæstióne conveniénter accípitur, ut a Sancto Spíritu in desértum ductus credátur: ut illuc eum suus Spíritus dúceret, ubi hunc ad tentándum malígnus spíritus
+DUBITARI a quibúsdam solet, a quo spíritu sit Jesus ductus in desértum, propter hoc quod súbditur: Assúmpsit eum diábolus in sanctam civitátem: et rursum: Assúmpsit eum in montem excélsum valde. Sed vere et absque ulla quæstióne conveniénter accípitur, ut a Sancto Spíritu in desértum ductus credátur: ut illuc eum suus Spíritus dúceret, ubi hunc ad tentándum malígnus spíritus inveníret. Sed ecce, cum dícitur Deus homo vel in excélsum montem, vel in sanctam civitátem a diábolo assúmptus, mens réfugit crédere, humánæ hoc audíre aures expavéscunt. Qui tamen non esse incredibília ista cognóscimus, si in illo et ália facta pensámus.
+
+℟. Scíndite corda vestra, et non vestiménta vestra: et convertímini ad Dóminum Deum vestrum: \* Quia benígnus et miséricors est. ℣. Derelínquat ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus. — Quia.
+
+#### Lectio viii
+
+CERTE iniquórum ómnium caput diábolus est: et hujus cápitis membra sunt omnes iníqui. An non diáboli membrum fuit Pilátus? an non diáboli membra Judǽi persequéntes, et mílites crucifigéntes Christum fuérunt? Quid ergo mirum, si se ab illo permísit in montem duci, qui se pértulit étiam a membris illíus crucifígi? Non est ergo indígnum Redemptóri nostro quod tentári vóluit, qui vénerat occídi. Justum quippe erat, ut sic tentatiónes nostras suis tentatiónibus vínceret, sicut mortem nostram vénerat sua morte superáre.
+
+℟. Frange esuriénti panem tuum, et egénos vagósque induc in domum tuam: \* Tunc erúmpet quasi mane lumen tuum, et anteíbit fáciem tuam justítia tua. ℣. Cum víderis nudum, óperi eum, et carnem tuam ne despéxeris. — Tunc.
+
+#### Lectio ix
+
+SED sciéndum nobis est, quia tribus modis tentátio ágitur: suggestióne, delectatióne, et consénsu. Et nos cum tentámur, plerúmque in delectatiónem, aut étiam in consénsum lábimur: quia de carnis peccáto propagáti, in nobis ipsis étiam gérimus, unde certámina tolerámus. Deus vero, qui in útero Vírginis incarnátus, in mundum sine peccáto vénerat, nihil contradictiónis in semetípso tolerábat. Tentári ergo per suggestiónem pótuit: sed ejus mentem peccáti delectátio non momórdit. Atque ídeo omnis diabólica illa tentátio foris, non intus fuit.
+
+℟. Angelis suis Deus mandávit de te, ut custódiant te in ómnibus viis tuis: \* In mánibus portábunt te, ne umquam offéndas ad lápidem pedem tuum. ℣. Super áspi-

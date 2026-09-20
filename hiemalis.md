@@ -36182,4 +36182,44 @@ A Summo Pontífice Urbáno quarto Romam vocátus, ejus jussu ecclesiásticum luc
 
 #### Lectio ix
 
-THOMAS Aquínas, nobílibus paréntibus natus, jam adoléscens, invítis matre et frátribus, órdinem Prædicatórum suscépit et Lutétiam Parisiórum missus est. Verum fratres, in itínere eum aggréssi, in arcem castri sancti Joánnis perdúcunt, ubi angélicus júvenis mulíerem, quæ ad labefactándam ejus castitátem introdúcta fúerat, titióne fugávit. Parísiis philosophíæ ac theologíæ ita óperam dedit, ut vix vigínti quinque annos natus, públice philósophos ac theólogos summa cum laude interpretátus sit. Numquam se lectióni aut scriptióni dedit, nisi post oratiónem. Cum aliquándo hanc Jesu crucifíxi vocem audísset: Bene scripsísti de me, Thoma; quam ergo mer-
+THOMAS Aquínas, nobílibus paréntibus natus, jam adoléscens, invítis matre et frátribus, órdinem Prædicatórum suscépit et Lutétiam Parisiórum missus est. Verum fratres, in itínere eum aggréssi, in arcem castri sancti Joánnis perdúcunt, ubi angélicus júvenis mulíerem, quæ ad labefactándam ejus castitátem introdúcta fúerat, titióne fugávit. Parísiis philosophíæ ac theologíæ ita óperam dedit, ut vix vigínti quinque annos natus, públice philósophos ac theólogos summa cum laude interpretátus sit. Numquam se lectióni aut scriptióni dedit, nisi post oratiónem. Cum aliquándo hanc Jesu crucifíxi vocem audísset: Bene scripsísti de me, Thoma; quam ergo mercédem accípies? amantíssime respóndit: Non áliam, Dómine, nisi teípsum. Nullum fuit scriptórum genus, in quo non esset diligentíssime versátus. Ab Urbáno quarto Romam vocátus, ejus jussu lucubrávit Offícium pro solemnitáte Córporis Christi. Missus a beáto Gregório décimo ad Concílium Lugdunénse, in monastério Fóssæ Novæ in morbum íncidit, et ibi ægrótus Cántica canticórum explanávit. Ibídem óbiit quinquagenárius, anno millésimo ducentésimo septuagésimo quarto, Nonis Mártii. Ipsum Leo décimus tértius cæléstem patrónum scholárum ómnium cathólicárum declarávit et instítuit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Communi Doctórum 1 loco.} [90]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ.}
+
+#### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Thomæ Confessóris tui mira eruditióne claríficas, et sancta operatióne fecúndas: da nobis, quǽsumus; et quæ dócuit, intelléctu conspícere, et quæ egit, imitatióne complére. Per Dóminum.
+
+{RUBRIC: Et fit Com. Fériæ in Quadragésima.}
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis et, in Quadragésima, Fériæ.}
+
+---
+
+## Die 8 Martii
+
+### S. Joannis de Deo
+
+{RUBRIC: Conf.}
+
+{RUBRIC: Duplex} [94]
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+#### Oratio
+
+DEUS, qui beátum Joánnem, tuo amóre succénsum, inter flammas innóxium incédere fecísti, et per eum Ecclésiam tuam nova prole fecundásti: præsta, ipsíus suffragántibus méritis; ut igne caritátis tuæ vítia nostra curéntur, et remédia nobis ætérna provéniant. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Thoma, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui Ecclésiam, ut supra.

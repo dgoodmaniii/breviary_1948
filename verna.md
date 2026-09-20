@@ -3252,3 +3252,72 @@ Adjuva me, et salvus ero: \* et meditábor in justificatiónibus tuis semper.
 Sprevísti omnes discedéntes a judíciis tuis: \* quia injústa cogitátio eórum.
 
 Prævaricántes reputávi omnes peccatóres terræ: \* ídeo diléxi testimónia tua.
+
+Confíge timóre tuo carnes meas: \* a judíciis enim tuis tímui.
+
+Feci judícium et justítiam: \* non tradas me calumniántibus me.
+
+Súscipe servum tuum in bonum: \* non calumniéntur me supérbi.
+
+Óculi mei defecérunt in salutáre tuum: \* et in elóquium justítiæ tuæ.
+
+Fac cum servo tuo secúndum misericórdiam tuam: \* et justificatiónes tuas doce me.
+
+Servus tuus sum ego: \* da mihi intelléctum, ut sciam testimónia tua.
+
+Tempus faciéndi, Dómine: \* dissipavérunt legem tuam.
+
+Ideo diléxi mandáta tua, \* super aurum et topázion.
+
+Proptérea ad ómnia mandáta tua dirigébar: \* omnem viam iníquam ódio hábui.
+
+{RUBRIC: Extra Tempus Paschale: Ant. ut in Proprio de Tempore.}
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: Reliqua ut in Proprio de Tempore et in Ordinario. 25}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Extra Tempus Paschale: Ant. ut in Proprio de Tempore.}
+
+#### Tempore Paschali
+
+**Ant.** Allelúja.
+
+###### Psalmus 118, ix
+
+MIRABILIA testimónia tua: \* ídeo scrutáta est ea ánima mea.
+
+Declarátio sermónum tuórum illúminat: \* et intelléctum dat párvulis.
+
+Os meum apérui, et attráxi spíritum: \* quia mandáta tua desiderábam.
+
+Aspice in me, et miserére mei, \* secúndum judícium diligéntium nomen tuum.
+
+Gressus meos dírige secúndum elóquium tuum: \* et non dominétur mei omnis injustítia.

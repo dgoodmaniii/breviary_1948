@@ -18027,4 +18027,40 @@ ECCE nunc tempus acceptábile, ecce nunc dies salútis: némini dantes ullam off
 
 **Capitulum** *2 Cor. 6, 9-10*
 
-UT castigáti, et non mortificáti: quasi tristes, semper autem gaudéntes: sicut egéntes, multos autem locupletántes: tam-
+UT castigáti, et non mortificáti: quasi tristes, semper autem gaudéntes: sicut egéntes, multos autem locupletántes: tamquam nihil habéntes, et ómnia possidéntes.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória. Scuto. ℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica, ut in Psalterio 72; Capitulum, Hymnus et Versus, ut in Vesperis Sabbati præcedentis. 339}
+
+℣. Angelis, ut supra.
+
+**Ad Magnif. Ant.** Ecce nunc tempus \* acceptábile, ecce nunc dies salútis: in his ergo diébus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia, in jejúniis, in vigíliis, et in caritáte non ficta.
+
+{RUBRIC: Invitatorium, Hymni, Versus, Lectio brevis ad Primam et Responsoria brevia ad reliquas Horas, in Officio tam dominicali quam feriali usque ad Nonam Sabbati ante Dominicam Passionis inclusive, dicuntur quotidie, ut supra, de Tempore Quadragesimæ in Psalterio de Ordinario: et inde sumuntur in Officio feriali etiam Capitula ad omnes Horas, et Antiphona ad singulas Horas minores.}
+
+{RUBRIC: ¶ Sequentes Feriæ usque ad Sabbatum post Dominicam Passionis inclusive sunt majóres non privilegiátæ.}
+
+---
+
+## Feria Secunda
+
+### Ad Matutinum
+
+{RUBRIC: Antiphonæ et Psalmi de Feria, cum Versu de Tempore Quadragesimæ, ut in Psalterio: quod servatur etiam in Officio feriali usque ad Sabbatum ante Dominicam Passionis inclusive.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 25, 31-46*
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum vénerit Fílius hóminis in majestáte sua, et omnes Angeli cum eo, tunc sedébit super sedem majestátis suæ: et congregabúntur ante eum omnes gentes. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Liber de fide et opéribus, cap. 15 tom. 4, circa médium}
+
+SI mandátis non servátis, ad vitam veníri potest per solam fidem, quæ sine opéribus mórtua est: illud deínde quómodo verum erit, quod eis, quos ad sinístram positúrus est, dicet: Ite in ignem ætérnum, qui parátus est diábolo et ángelis ejus: nec íncrepat, quia in eum non credidérunt; sed quia bona ópera non fecérunt? Nam profécto, ne sibi quisquam de fide, quæ sine opéribus

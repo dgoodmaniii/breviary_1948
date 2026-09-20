@@ -18829,4 +18829,28 @@ VIDES, quod divínum patrimónium peténtibus datur. Nec putes culpam patris, qu
 
 #### Lectio ii
 
-PEREGRE proféctus est in regiónem longínquam. Quid longínquius, quam a se recédere; nec regiónibus, sed móribus separári: stúdiis discrétum esse, non terris; et quasi interfúso luxúriæ sæcu-
+PEREGRE proféctus est in regiónem longínquam. Quid longínquius, quam a se recédere; nec regiónibus, sed móribus separári: stúdiis discrétum esse, non terris; et quasi interfúso luxúriæ sæculáris æstu, divórtia habére Sanctórum? Etenim qui se a Christo séparat, exsul est pátriæ, civis est mundi. Sed nos non sumus ádvenæ atque peregríni, sed cives sumus Sanctórum, et doméstici Dei. Qui enim erámus longe, facti sumus prope in sánguine Christi. Non invideámus de longínqua regióne remeántibus: quia et nos fúimus in regióne longínqua, sicut Isaías docet. Sic enim habes: Qui sedébant in regióne umbræ mortis, lux orta est illis. Régio ergo longínqua, umbra est mortis.
+
+℟. Vidi Dóminum fácie ad fáciem: \* Et salva facta est ánima mea. ℣. Et dixit mihi: Nequáquam vocáberis Jacob, sed Israël erit nomen tuum. — Et salva.
+
+#### Lectio iii
+
+NOS autem, quibus spíritus ante fáciem Christus est Dóminus, in umbra vívimus Christi. Et ídeo dicit Ecclésia: In umbra ejus concupívi, et sedi. Ille ígitur vivéndo luxurióse, consúmpsit ómnia ornaménta natúræ. Unde tu, qui accepísti imáginem Dei, qui habes similitúdinem ejus, noli eam irrationábili fœditáte consúmere. Opus Dei es: noli ligno dícere, Pater meus es tu, ne accípias similitúdinem ligni, quia scriptum est: Símiles illis fiant qui fáciunt ea.
+
+℟. Cum audísset Jacob quod Esau veníret contra eum, divísit fílios suos et uxóres, dicens: Si percússerit Esau unam turmam, salvábitur áltera. \* Líbera me, Dómine, qui dixísti mihi: \* Multiplicábo semen tuum sicut stellas cæli, et sicut arénam maris, quæ præ multitúdine numerári non potest. ℣. Dómine, qui dixísti mihi, Revértere in terram nativitátis tuæ: Dómine, qui pascis me a juventúte mea. — Líbera. Glória Patri. Multiplicábo.
+
+℣. Angelis suis, ut supra.
+
+**Ad Bened. Ant.** Vadam ad patrem meum, \* et dicam ei: Pater, fac me sicut unum ex mercenáriis tuis.
+
+#### Oratio
+
+DA, quæsumus, Dómine, nostris efféctum jejúniis salutárem: ut castigátio carnis assúmpta ad nostrárum vegetatiónem tránseat animárum. Per Dóminum.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sabbato, ut in Psalterio. 332}
+
+**Capitulum** *Ephes. 5, 1-2*
+
+FRATRES: Estóte imitatóres Dei, sicut fílii caríssimi: et ambuláte in

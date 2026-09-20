@@ -18323,4 +18323,42 @@ AD confirmándam ergo hujus fídei salubérrimam cognitiónem interrogáverat di
 
 #### Lectio iii
 
-HÆC autem, dilectíssimi, laudátæ intelligéntiæ celsitúdo instruénda erat de inferióris substántiæ sacraménto: ne apostólica fides ad glóriam confiténdæ in Christo Deitátis evécta, infirmitátis
+HÆC autem, dilectíssimi, laudátæ intelligéntiæ celsitúdo instruénda erat de inferióris substántiæ sacraménto: ne apostólica fides ad glóriam confiténdæ in Christo Deitátis evécta, infirmitátis nostræ receptiónem indígnam impassíbili Deo atque incóngruam judicáret: et ita jam in Christo humánam créderet glorificátam esse natúram, ut nec supplício posset áffici, nec morte dissólvi. Et ídeo dicénte Dómino, quod oportéret eum ire Jerosólymam, et multa pati a senióribus et scribis, ac princípibus sacerdótum, et occídi, et tértia die resúrgere: cum beátus Petrus, qui supérno illustrátus lúmine, de ardentíssima Fílii Dei confessióne fervébat, contumélias illusiónum et crudelíssimæ mortis oppróbrium religióso, ut putábat, et líbero fastídio respuísset; benígna a Jesu increpatióne corréptus, et ad cupiditátem participándæ cum eo passiónis animátus est.
+
+℟. Abscóndite eleemósynam in sinu páuperum, et ipsa orábit pro vobis ad Dóminum: \* Quia sicut aqua exstínguit ignem, ita eleemósyna exstínguit peccátum. ℣. Date eleemósynam, et ecce ómnia munda sunt vobis. — Quia. Glória Patri. Quia.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Assúmpsit Jesus \* discípulos suos, et ascéndit in montem, et transfigurátus est ante eos.
+
+#### Oratio
+
+POPULUM tuum, quæsumus, Dómine, propítius réspice: atque ab eo flagélla tuæ iracúndiæ cleménter avérte. Per Dóminum.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sabbato, ut in Psalterio. 332}
+
+**Capitulum** *1 Thess. 4, 1*
+
+FRATRES: Rogámus vos, et obsecrámus in Dómino Jesu: ut, quemádmodum accepístis a nobis, quómodo vos opórteat ambuláre, et placére Deo, sic et ambulétis, ut abundétis magis.
+
+#### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus,
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te revérsis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;

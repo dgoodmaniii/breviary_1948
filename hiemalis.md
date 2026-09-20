@@ -34879,4 +34879,24 @@ Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
 
 ###### Psalmus 86
 
-FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas
+FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Dóminus possédit te in inítio viárum suárum, et in caritáte perpétua diléxit te.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+#### Lectio iv
+
+ANNO quarto a dogmática definitióne de immaculáto beátæ Vírginis Concéptu, ad Gavi flúminis oram prope óppidum Lourdes diœcésis Tarbiénsis in Gállia, ipsa Virgo in rupis sinu super specum Massabiélle puéllæ cuidam, vernácula língua Bernadétte nuncupátæ, paupérrimæ quidem sed ingénuæ ac piæ, plúries se conspiciéndam óbtulit. Immaculáta Virgo juveníli ac benígno videbátur aspéctu, nívea veste niveóque pállio contécta, ac zona cærúlea succíncta; nudos pedes áurea rosa ornábat. Primo apparitiónis die, qui fuit undécimus Februárii anno millésimo octingentésimo quinquagésimo octávo, puéllam signum crucis rite pieque faciéndum edócuit, atque ad sacri rosárii recitatiónem, exémplo suo, corónam, quæ prius ex bráchio demíssa pendébat, manu advólvens, excitávit: quod in céteris étiam apparitiónibus præstitit. Altero autem apparitiónis die, puélla in simplicitáte cordis sui, diabólicam fraudem timens, lustrálem aquam in Vírginem effúdit; sed beáta Virgo, léniter arrídens, benigniórem illi vultum osténdit. Cum vero tértio apparuísset, puéllam ad specum per quíndecim dies invitávit. Exínde eam sǽpius est alloquúta, ac pro peccatóribus oráre, terram deoscúlari, pœnitentiámque ágere est hortáta; deínde imperávit, ut sacerdótibus edíceret, ædificándum ibi esse sacéllum, solemnísque supplicatiónis more illo accedéndum. Mandávit ínsuper ut e fonte, qui sub aréna adhuc

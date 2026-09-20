@@ -5635,4 +5635,58 @@ Fiat misericórdia tua, Dómine, super nos: \* quemádmodum sperávimus in te.
 
 **Capitulum** *Is. 58, 7*
 
-FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nu-
+FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nudum, óperi eum, et carnem tuam ne despéxeris.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto. ℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+### Tempore Passionis
+
+{RUBRIC: Feria II post Dom. Passionis}
+
+**Ant.** Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ?
+
+{RUBRIC: Feria II Majoris Hebdomadæ}
+
+**Ant.** Lábia insurgéntium, et cogitatiónes eórum vide, Dómine.
+
+**Capitulum** *Jer. 18, 20*
+
+RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis.
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+{RUBRIC: Preces feriales, ut supra.}
+
+#### Tempore Paschali
+
+**Capitulum** *1 Petri 3, 18*
+
+CHRISTUS semel pro peccátis nostris mórtuus est, justus pro injústis, ut nos offérret Deo, mortificátus quidem carne, vivificátus autem spíritu.
+
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi. ℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Inclinávit Dóminus \* aurem suam mihi.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+{RUBRIC: Sub qua sola Ant. Allelúja, in hac et aliis Feriis, dicuntur

@@ -8111,3 +8111,68 @@ Convérte, Dómine, captivitátem nostram, \* sicut torrens in Austro.
 Qui séminant in lácrimis, \* in exsultatióne metent.
 
 Eúntes ibant et flebant, \* mitténtes sémina sua.
+
+Veniéntes autem vénient cum exsultatióne, \* portántes manípulos suos.
+
+**Ant.** Magnificávit Dóminus fácere nobíscum: facti sumus lætántes.
+
+**Ant.** Dóminus ædíficet \* nobis domum, et custódiat civitátem.
+
+###### Psalmus 126
+
+NISI Dóminus ædificáverit domum, \* in vanum laboravérunt qui ædíficant eam.
+
+Nisi Dóminus custodíerit civitátem, \* frustra vígilat qui custódit eam.
+
+Vanum est vobis ante lucem súrgere: \* súrgite postquam sedéritis, qui manducátis panem dolóris.
+
+Cum déderit diléctis suis somnum: \* ecce heréditas Dómini fílii: merces, fructus ventris.
+
+Sicut sagíttæ in manu poténtis: \* ita fílii excussórum.
+
+Beátus vir, qui implévit desidérium suum ex ipsis: \* non confundétur cum loquétur inimícis suis in porta.
+
+### Extra Tempus Paschale
+
+**Ant.** Dóminus ædíficet nobis domum, et custódiat civitátem.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Capitulum** *Joel 2, 17*
+
+INTER vestíbulum et altáre plorábunt sacerdótes, ministri Dómini, et dicent: Parce, Dómine, parce pópulo tuo: et ne des hereditátem tuam in oppróbrium, ut dominéntur eis natiónes.
+
+#### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus,
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te revérsis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut

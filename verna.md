@@ -7828,3 +7828,59 @@ DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátu
 ℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis.
 
 ℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+### Tempore Passionis
+
+{RUBRIC: Fer. III post Dom. Passionis}
+
+**Ant.** Pópule meus, quid feci tibi, aut quid moléstus fui? Respónde mihi.
+
+{RUBRIC: Fer. III Majoris Hebdomadæ}
+
+**Ant.** Dum tribulárer, clamávi ad Dóminum de ventre ínferi, et exaudívit me.
+
+**Capitulum** *Jer. 17, 18*
+
+CONFUNDANTUR qui me persequúntur, et non confúndar ego: páveant illi, et non páveam ego: induc super eos diem afflictiónis, et dúplici contritióne cóntere eos, Dómine, Deus noster.
+
+℟. br. De ore leónis \* Líbera me, Dómine. De. ℣. Et a córnibus unicórnium humilitátem meam. Líbera. De. ℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+{RUBRIC: Preces feriales, ut supra.}
+
+### Tempore Paschali
+
+**Capit.** *1 Cor. 15, 20-22*
+
+CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam quidem per hóminem mors, et per hóminem resurréctio mortuórum. Et sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur.
+
+℟. br. Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit Dóminus vere, allelúja, allelúja. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit. ℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.

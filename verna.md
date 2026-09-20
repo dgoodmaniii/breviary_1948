@@ -18794,3 +18794,39 @@ UNDE bene secúndum Matthǽum habes, quia et sepem circúmdedit: hoc est, divín
 ℣. Angelis suis, ut supra.
 
 **Ad Bened. Ant.** Malos male perdet, \* et víneam suam locábit áliis agrícolis, qui reddant ei fructum tempóribus suis.
+
+#### Oratio
+
+DA, quæsumus, omnípotens Deus: ut, sacro nos purificánte jejúnio, sincéris méntibus ad sancta ventúra fácias pervenire. Per Dóminum.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Magnif. Ant.** Quæréntes eum tenére, \* timuérunt turbam, quia sicut prophétam eum habébant.
+
+#### Oratio
+
+DA, quæsumus, Dómine, pópulo tuo salútem mentis et córporis: ut bonis opéribus inhæréndo, tuæ semper virtútis mereátur protectióne deféndi. Per Dóminum.
+
+---
+
+## Sabbato
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 15, 11-32*
+
+IN illo témpore: Dixit Jesus pharisǽis et scribis parábolam istam: Homo quidam hábuit duos fílios: et dixit adolescéntior ex illis patri: Pater, da mihi portiónem substántiæ, quæ me contíngit. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 8 Comment. in cap. 15 Lucæ, post initium}
+
+VIDES, quod divínum patrimónium peténtibus datur. Nec putes culpam patris, quod adolescentióri dedit. Nulla Dei regno infírma ætas: nec fides gravátur annis. Ipse certe se judicávit idóneum, qui popóscit. Atque útinam non recessísset a patre, impediméntum nescísset ætátis. Sed posteáquam domum pátriam derelínquens péregre proféctus est, cœpit egére. Mérito ergo prodégit patrimónium, qui recéssit ab Ecclésia.
+
+℟. Pater, peccávi in cælum, et coram te: jam non sum dignus vocári fílius tuus: \* Fac me sicut unum ex mercenáriis tuis. ℣. Quanti mercenárii in domo patris mei abúndant pánibus, ego autem hic fame péreo! Surgam, et ibo ad patrem meum, et dicam ei. — Fac.
+
+#### Lectio ii
+
+PEREGRE proféctus est in regiónem longínquam. Quid longínquius, quam a se recédere; nec regiónibus, sed móribus separári: stúdiis discrétum esse, non terris; et quasi interfúso luxúriæ sæcu-

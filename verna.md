@@ -1160,3 +1160,58 @@ CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam quidem per hó
 ℟. br. Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
 
 ℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+{RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus} Dóminus vobíscum {RUBRIC: cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}
+
+{RUBRIC: Quando vero ad Laudes recitatæ sunt Preces, post Responsorium breve dicuntur sequentes flexis genibus:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolutis Precibus, vel, si Preces locum non habeant, post Responsorium breve statim dicitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+{RUBRIC: Et dicitur Oratio conveniens.}
+
+{RUBRIC: Post Orationem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias. ℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Successíbus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Expleto Hymno, convéniens dicitur Antiphona usque ad Asteriscum \*, et tres Psalmi, prouti Officium occurrens requirit; atque, Psalmis absolutis, integra repetitur Antiphona.}
+
+#### Tempore Quadragesimæ
+
+{RUBRIC: In Officio dominicali, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali: dicitur quotidie sequens}
+
+**Ant.** Per arma justítiæ \* virtútis Dei commendémus nosmetípsos in multa patiéntia.

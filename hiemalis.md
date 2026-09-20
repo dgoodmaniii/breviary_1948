@@ -36397,3 +36397,17 @@ DEUS, qui beátam Franciscam fámulam tuam, inter cétera grátiæ tuæ dona, fa
 PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
 
 {RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+LICÍNIO imperatóre et Agricoláo prǽside, ad Sebásten Arméniæ urbem, quadragínta mílitum fides in Jesum Christum et fortitúdo in cruciátibus perferéndis enítuit. Qui sæpius in horríbilem cárcerem detrúsi, vinculísque constrícti, cum ora ipsórum lapídibus contúsa fuíssent, híemis témpore frigidíssimo, nudi sub apérto áëre supra stagnum rigens pernoctáre jussi sunt, ut frígore congeláti necaréntur. Una autem erat ómnium orátio: Quadragínta in stádium ingréssi sumus, quadragínta item, Dómine, coróna donémur, ne una quidem huic número desit. Est in honóre hic númerus, quem tu quadragínta diérum jejúnio decorásti, per quem divína lex ingréssa est in orbem terrárum; Elías quadragínta diérum jejúnio Deum quærens, ejus visiónem consecútus est. Et hæc quidem illórum erat orátio.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra appáruit.
+
+#### Lectio v
+
+CÉTERIS autem custódibus somno déditis, solus vigilábat jánitor, qui et illos orántes et luce circumfúsos, et quosdam e cælo descendéntes Angelos tamquam a Rege missos, qui corónas trigínta novem milítibus distribúerent, íntuens, ita secum loquebátur: Quadragínta hi sunt; quadragésimi coróna ubi est? Quæ dum cogitáret, unus ex illo número, cui ánimus ad frigus feréndum defécerat, in próximum tepefáctum bálneum desíliens, Sanctos illos summo dolóre afféctit. Verum Deus illórum preces írritas esse non est passus; nam rei evéntum admirátus jánitor, mox custódibus e somno excitátis, detractísque sibi véstibus, ac se christiánum esse clara voce proféssus, Mártyribus se adjúnxit. Cum vero prǽsidis satéllites janitórem quoque christiánum esse cognovíssent, bacíllis comminúta ómnium eórum crura fregérunt.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei,

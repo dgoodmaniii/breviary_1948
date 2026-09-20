@@ -38127,3 +38127,53 @@ INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ acti
 **2 — Alia Oratio**
 
 DEUS, qui nos beáti N. Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+##### Pro Martyre non Pontifice
+
+**3 — Oratio**
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti N. Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+**4 — Alia Oratio**
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, intercedénte beáto N. Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Tertiam
+
+#### Capitulum
+
+*Jac. 1, 12*
+
+BEÁTUS vir, qui suffert tentatiónem: quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+℟. br. Glória et honóre \* Coronásti eum, Dómine. Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Coronásti. Glória Patri. Glória et.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Eccli. 15, 3*
+
+CIBÁVIT illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potávit illum Dóminus, Deus noster.
+
+℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. Glória Patri. Posuísti.
+
+℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Eccli. 39, 6*
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna est.
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vésperis [29], sed loco últimi dícitur Psalmus 115 Crédidi ut ibídem pro II Vésperis notátur.}

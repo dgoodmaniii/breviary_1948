@@ -2355,3 +2355,57 @@ Laudáte eum, sol et luna: \* laudáte eum, omnes stellæ et lumen.
 Laudáte eum, cæli cælórum: \* et aquæ omnes, quæ super cælos sunt, laudent nomen Dómini.
 
 Quia ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Státuit ea in ætérnum, et in sæculum sæculi: \* præcéptum pósuit, et non præteríbit.
+
+Laudáte Dóminum de terra, \* dracónes, et omnes abýssi.
+
+Ignis, grando, nix, glácies, spíritus procellárum: \* quæ fáciunt verbum ejus:
+
+Montes, et omnes colles: \* ligna fructífera, et omnes cedri.
+
+Béstiæ, et univérsa pécora: \* serpéntes, et vólucres pennátæ:
+
+Reges terræ, et omnes pópuli: \* príncipes, et omnes júdices terræ.
+
+Júvenes, et vírgines: senes cum junióribus laudent nomen Dómini: \* quia exaltátum est nomen ejus solíus.
+
+Conféssio ejus super cælum et terram: \* et exaltávit cornu pópuli sui.
+
+Hymnus ómnibus sanctis ejus: \* fíliis Israël, pópulo appropinquánti sibi.
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: Capitulum, Hymnus et Versus, Ant. ad Benedictus et Oratio ut in Proprio de Tempore.}
+
+##### Canticum Zachariæ
+
+*Luc. 1, 68-79*
+
+BENEDICTUS † Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a século sunt, Prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+{RUBRIC: Oratio conveniens.}
+
+{RUBRIC: Reliqua ut in Ordinario. 13}

@@ -35099,3 +35099,49 @@ Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Præclára salútis auróra, \* ex te, Virgo María, exívit sol justítiæ, qui visitávit nos óriens ex alto.
+
+#### Oratio
+
+DEUS, qui per immaculátam Vírginis Concéptiónem dignum Fílio tuo habitáculum præparásti: súpplices a te quǽsumus; ut ejúsdem Vírginis Apparitiónem celebrántes, salútem mentis et córporis consequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+### Ad Tertiam
+
+{RUBRIC: Capit.} Surge. [892]
+
+℟. br. Quæ est ista, quæ ascéndit de desérto, \* Delíciis áffluens? Quæ. ℣. Inníxa super diléctum suum. Delíciis áffluens. Glória Patri. Quæ. ℣. Vidérunt eam fíliæ Sion. ℟. Et beatíssimam prædicavérunt.
+
+### Ad Sextam
+
+{RUBRIC: Capitulum} *Prov. 8, 18-19*
+
+MECUM sunt divítiæ et glória, opes supérbæ et justítia: mélior est enim fructus meus auro et lápide pretióso.
+
+℟. br. Ego Mater \* Pulchræ dilectiónis. Ego Mater. ℣. Et timóris et agnitiónis et sanctæ spei. Pulchræ dilectiónis. Glória Patri. Ego Mater. ℣. In me omnis grátia viæ et veritátis. ℟. In me omnis spes vitæ et virtútis.
+
+### Ad Nonam
+
+{RUBRIC: Capit.} *Eccli. 24, 25-26*
+
+IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis implémini.
+
+℟. br. Qui me invénerit \* Invéniet vitam. Qui. ℣. Et háuriet salútem a Dómino. Invéniet vitam. Glória Patri. Qui. ℣. Transíte ad me, omnes qui concupíscitis me. ℟. Et a generatiónibus meis implémini.
+
+### In II Vesperis
+
+{RUBRIC: Antiphónæ et Capítulum de Laudibus.} [892]
+
+#### Hymnus
+
+OMNIS expértem máculæ Maríam
+Edócet summus fídei magíster;
+Vírginis gaudens célebrat fidélis
+    Terra triúmphum.
+
+Ipsa se prǽbens húmili puéllæ
+Virgo spectándam, récreat pavéntem,

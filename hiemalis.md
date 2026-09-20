@@ -34832,3 +34832,51 @@ Audi, fília, et vide, et inclína aurem tuam: \* et oblivíscere pópulum tuum,
 Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
 
 Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.
+
+**Ant.** Fecit mihi magna qui potens est, et sanctum nomen ejus.
+
+**Ant.** Sanctificávit \* tabernáculum suum Altíssimus: Deus in médio ejus, non commovébitur.
+
+###### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Sanctificávit tabernáculum suum Altíssimus: Deus in médio ejus, non commovébitur.
+
+**Ant.** Dóminus possédit te \* in inítio viárum suárum, et in caritáte perpétua diléxit te.
+
+###### Psalmus 86
+
+FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas

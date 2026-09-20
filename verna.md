@@ -7992,4 +7992,68 @@ FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víd
 
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
-Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratió-
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+### Tempore Passionis
+
+{RUBRIC: Fer. III post Dom. Passionis}
+
+**Ant.** Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ?
+
+{RUBRIC: Fer. III Majoris Hebdomadæ}
+
+**Ant.** Dixérunt ímpii: Opprimámus virum justum, quóniam contrárius est opéribus nostris.
+
+**Capitulum** *Jer. 18, 20*
+
+RECORDARE quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis.
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+{RUBRIC: Preces feriales, ut supra. 156}
+
+### Tempore Paschali
+
+**Capitulum** *1 Petri 3, 18*
+
+CHRISTUS semel pro peccátis nostris mórtuus est, justus pro injústis, ut nos offérret Deo, mortificátus quidem carne, vivificátus autem spíritu.
+
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Qui hábitas in cælis, \* miserére nobis.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 122
+
+AD te levávi óculos meos, \* qui hábitas in cælis.
+
+Ecce, sicut óculi servórum \* in mánibus dominórum suórum.
+
+Sicut óculi ancíllæ in mánibus dóminæ suæ: \* ita óculi nostri ad Dóminum, Deum nostrum, donec misereátur nostri.
+
+Miserére nostri, Dómine, miserére nostri: \* quia multum repléti sumus despectióne:
+
+Quia multum repléta est ánima nostra: \* oppróbrium abundántibus, et despéctio supérbis.
+
+**Ant.** Qui hábitas in cælis, miserére nobis.
+
+**Ant.** Adjutórium nostrum \* in nómine Dómini.

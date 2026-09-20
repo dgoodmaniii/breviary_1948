@@ -15282,3 +15282,65 @@ KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 ℣. Orémus pro beatíssimo Papa nostro N. ℟. Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra, et non tradat eum in ánimam inimicórum ejus. ℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui. ℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
 
 {RUBRIC: Reliqua ut in Ordinario. 33}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Voce mea. †
+
+### Tempore Paschali
+
+**Ant.** Allelúja.
+
+###### Psalmus 76, i
+
+VOCE mea † ad Dóminum clamávi: \* voce mea ad Deum, et inténdit mihi.
+
+In die tribulatiónis meæ Deum exquisívi, mánibus meis nocte contra eum: \* et non sum decéptus.
+
+Rénuit consolári ánima mea, \* memor fui Dei, et delectátus sum, et exercitátus sum: et defécit spíritus meus.
+
+Anticipavérunt vigílias óculi mei: \* turbátus sum, et non sum locútus.
+
+Cogitávi dies antíquos: \* et annos ætérnos in mente hábui.
+
+Et meditátus sum nocte cum corde meo, \* et exercitábar, et scopébam spíritum meum.
+
+Numquid in ætérnum projíciet Deus: \* aut non appónet ut complacítior sit adhuc?
+
+Aut in finem misericórdiam suam abscíndet, \* a generatióne in generatiónem?
+
+Aut obliviscétur misceréri Deus? \* aut continébit in ira sua misericórdias suas?
+
+Et dixi: Nunc cœpi: \* hæc mutátio déxteræ Excélsi.
+
+Memor fui óperum Dómini: \* quia memor ero ab inítio mirabílium tuórum.
+
+Et meditábor in ómnibus opéribus tuis: \* et in adinventiónibus tuis exercébor.
+
+###### Psalmus 76, ii
+
+DEUS, in sancto via tua: \* quis Deus magnus sicut Deus noster?
+
+Tu es Deus qui facis mirabília.

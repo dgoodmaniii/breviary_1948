@@ -310,3 +310,63 @@ IPSIUS píetas et misericórdia nos ádjuvet, qui cum Patre et Spíritu Sancto v
 **Bened.** Ignem sui amóris accéndat Deus in córdibus nostris. ℟. Amen.
 
 ##### In III Nocturno
+
+{RUBRIC: Sub congruentibus denique Antiphonis dicuntur tres Psalmi et Versus, sicut in I et II Nocturno.}
+
+{RUBRIC: Post Versum dicitur}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+##### Absolutio
+
+A VINCULIS peccatórum nostrórum absólvat nos omnípotens et miséricors Dóminus. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+##### Pro vii Lectione
+
+**Bened.** Evangélica léctio sit nobis salus et protéctio. ℟. Amen.
+
+##### Pro viii Lectione
+
+{RUBRIC: In Festis Domini et in Dominicis:}
+
+**Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+{RUBRIC: In Festis beatæ Mariæ Virginis:}
+
+**Bened.** Cujus festum cólimus, ipsa Virgo virgínum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+{RUBRIC: In Festis Sanctorum:}
+
+**Bened.** Cujus (*vel* Quorum *aut* Quarum) festum cólimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercédat (*vel* intercédant) pro nobis ad Dóminum. ℟. Amen.
+
+##### Pro ix Lectione
+
+**Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: Si autem legenda sit Lectio ix de Homilia cum Evangelio Dominicæ, vel Feriæ, aut Vigiliæ:}
+
+**Bened.** Per evangélica dicta deleántur nostra delícta. ℟. Amen.
+
+#### In Officio trium Lectionum
+
+##### In Nocturno
+
+{RUBRIC: In Officiis trium Lectionum, post Hymnum dicuntur Antiphonæ convenientes, quæ initio Psalmi inchoantur tantum et usque ad Asteriscum \* perducuntur, ac deinde in fine integræ pronuntiantur.}
+
+{RUBRIC: Sub eisdem vero Antiphonis dicuntur novem Psalmi Feriæ currentis, quibus subjungitur Versus in III Nocturno positus, omissis Versibus pro I et II Nocturno assignatis.}
+
+{RUBRIC: Post Versum dicitur}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+##### Absolutio
+
+{RUBRIC: Feria II et V}
+
+Exáudi, Dómine, {RUBRIC: ut in I Nocturno.}
+
+{RUBRIC: Feria III et VI}
+
+Ipsíus píetas, {RUBRIC: ut in II Nocturno.}

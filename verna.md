@@ -963,4 +963,57 @@ FACIEM meam non avérti ab increpántibus, et conspuéntibus in me. Dóminus Deu
 
 **Lectio brevis** *Col. 3, 1-2*
 
-SI consurrexístis cum
+SI consurrexístis cum Christo, quæ sursum sunt quærite; ubi Christus est in déxtera Dei sedens: quæ sursum sunt sápite, non quæ super terram. Tu autem.
+
+{RUBRIC: In Officio autem cujuslibet Festi vel Octavæ, atque sanctæ Mariæ in Sabbato; itemque in Dominica infra Octavam Ascensionis, atque in Feria VI post Octavam Ascensionis, si de eis fiat Officium, et in Vigilia Pentecostes:}
+
+{RUBRIC: Pro Lectione brevi sumitur Capitulum, quod ad Nonam ponitur ipsius Officii currentis, et in fine dicitur: Tu autem, Dómine, ut supra.}
+
+{RUBRIC: Post Lectionem brevem dicitur:}
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Bened.** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum Pater noster secreto, nisi sequatur alia Hora.}
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor,
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: ¶ In Festo Pentecostes et per Octavam, loco præcedentis, dicitur Hymnus} Veni, Creátor Spíritus, {RUBRIC: ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Hymno, convéniens dicitur Antiphona usque ad Asteriscum \*, et tres Psalmi, prouti Officium occurrens requirit; atque Psalmis absolutis, integra repetitur Antiphona.}
+
+#### Tempore Quadragesimæ
+
+{RUBRIC: In Officio dominicali, Antiphona et Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio autem feriali, dicitur quotidie sequens}
+
+**Ant.** Advenérunt nobis \* dies pæniténtiæ, ad rediménda peccáta, ad salvándas ánimas.
+
+**Capitulum** *Joel 2, 12-13*
+
+CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et scíndite corda vestra,

@@ -43232,3 +43232,49 @@ Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum s
 Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
 
 Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit pródigia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Adjuvábit eam Deus vultu suo: Deus in médio ejus, non commovébitur.
+
+**Ant.** Sicut lætántium \* ómnium nostrum habitátio est in te, sancta Dei Génitrix.
+
+###### Psalmus 86
+
+FUNDAMÉNTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Sicut lætántium ómnium nostrum habitátio est in te, sancta Dei Génitrix.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Apud Metaphrásten}
+
+#### Lectio iv
+
+DEI Fílius non dívitem aut locuplétem áliquam féminam sibi matrem elégit, sed beátam Vírginem illam, cujus ánima virtútibus ornáta erat. Cum enim beáta María supra omnem humánam natúram castitátem serváret, proptérea Christum Dóminum in ventre concépit. Ad hanc ígitur sanctíssimam Vírginem et Dei Matrem accurréntes, ejus patrocínii utilitátem assequámur. Itaque, quæcúmque estis vírgines, ad Matrem Dómini confúgite; illa enim pulchérrimam, pretiosíssimam et incorruptíbilem

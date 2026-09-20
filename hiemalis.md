@@ -36245,3 +36245,27 @@ PÁUPERIBUS ægrótis, quos própriis quandóque húmeris domum deferébat, null
 MULTÍPLICI asperitátum génere, demissíssima obediéntia, extréma paupertáte, orándi stúdio, rerum divinárum contemplatióne, ac in beátam Vírginem pietáte mirífice excélluit, et lacrimárum dono enítuit. Dénique gravi morbo corréptus, ómnibus Ecclésiæ sacraméntis rite sanctéque reféctus, víribus licet destitútus, própriis indútus véstibus, e léctulo surgens ac provolútus in génua, manu et corde Christum Dóminum e cruce pendéntem perstríngens, octávo Idus Mártii anno millésimo quingentésimo quinquagésimo óbiit in ósculo Dómini; quem étiam mórtuus ténuit, nec dimísit, et in eádem córporis constitutióne sex círciter horas, quoúsque inde dimótus fuísset, tota civitáte inspectánte, mirabíliter mánsit, odórem mire fragrántem diffúndens. Quem ante et post óbitum plúrimis miráculis clarum, Alexánder octávus Póntifex máximus in Sanctórum número rétulit; et Leo décimus tértius, ex Sacrórum cathólici orbis antístitum voto ac Rítuum Congregatiónis consúlto, cæléstem ómnium hospitálium et infirmórum ubíque degéntium patrónum declarávit, ipsiúsque nomen in agonizántium litaníis invocári præcépit.
 
 ℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOÁNNES de Deo, cathólicis piísque paréntibus in óppido Montis Majóris Junióris, regni Lusitániæ, natus, in sortem Dómini fuit eléctus. A laxióri vivéndi ratióne divína ope revocátus, magnæ sanctitátis spécimen exhíbuit. Gémino atque amplo valetudinário ex piórum eleemósynis in civitáte Granaténsi exstrúcto, órdinem fratrum Hospitalitátis infírmis inserviéntium instítuit. Misericórdia in páuperes, et sui despiciéntia fuit célebris. In beátam Vírginem pietáte mirífice excélluit, et lacrimárum dono enítuit. Gravi morbo corréptus, manu et corde Christum Dóminum e cruce pendéntem perstríngens, octávo Idus Mártii anno millésimo quingentésimo quinquagésimo, óbiit in Dómino. Eum Alexánder octávus Póntifex máximus in Sanctórum número rétulit; Leo vero décimus tértius cæléstem ómnium hospitálium et infirmórum ubíque degéntium patrónum declarávit, ipsiúsque nomen in agonizántium litaníis invocári præcépit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 22, 34-36*
+
+IN illo témpore: Accessérunt ad Jesum pharisǽi, et interrogávit eum unus ex eis legis doctor tentans eum: Magíster, quod est mandátum magnum in lege? Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 72 in Matthǽum}
+
+SADDUCÆIS confúsis, pharisǽi rursus aggrediúntur; cumque quiéscere oportéret, decertáre voluérunt: et legis perítiam profiténtem præmíttunt, non díscere, sed tentáre cupiéntes; ac ita intérrogant: Quodnam primum mandátum in lege sit. Nam cum primum illud sit, Díliges Dóminum Deum tuum: putántes causas sibi allatúrum ad mandátum hoc corrigéndum, áliquid addéndo, quóniam Deum se faciébat, hoc modo intérrogant. Quid ígitur Christus? Ut osténdat idcírco ad hæc eos devenísse, quia nulla in eis esset cáritas, sed invídiæ livóre tabéscerent: Díliges, inquit, Dóminum Deum tuum: hoc primum et magnum mandátum est. Secúndum

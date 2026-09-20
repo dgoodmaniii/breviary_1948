@@ -39976,3 +39976,39 @@ SED natúra salis semper éadem est, nec immutári umquam potest. Verum quia con
 {RUBRIC: Te Deum laudámus.}
 
 ---
+
+### III Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilia 15 in Matth., sub medium}
+
+ATTÉNDITE, quid díxerit: Vos estis sal terræ; per quod osténdit, quam necessário ista præcípiat. Non enim de vestra, inquit, tantúmmodo vita, sed de univérso orbe vobis rátio reddénda est. Non ad duas quippe urbes aut decem aut vigínti, neque ad unam gentem vos mitto, sicut mittébam Prophétas; sed ad omnem terram prorsus ac mare totúmque mundum, et hunc váriis crimínibus oppréssum.
+
+##### Pro Doctore Pontifice
+
+℟. Amávit eum. [92]
+
+##### Pro Doctore non Pontifice
+
+℟. Iste est. [92]
+
+#### Lectio viii
+
+DICÉNDO enim, Vos estis sal terræ, osténdit univérsam hóminum infatuátam esse natúram et peccatórum vi corrúptam; et idcírco illas ab eis virtútes requírit, quæ máxime ad multórum salútem procurándam necessáriæ sunt atque útiles. Nam, qui mansuétus est ac modéstus et miséricors et justus, non intra se tantúmmodo hæc recte facta conclúdit, verum in aliórum quoque utilitátem præcláros hos fáciet efflúere fontes. Igitur qui corde mundo est atque pacíficus, et persecutiónem pro veritáte pátitur, nihilóminus in commúne cómmodum vitam instítuit.
+
+℟. In médio. [92]
+
+#### Lectio ix
+
+NE ígitur putétis, inquit, ad lévia vos ducéndos esse certámina, neque exiguárum rerum vobis ineúndam esse ratiónem, Vos estis sal terræ. Quid ígitur? Ipsíne putrefácta medicáti sunt? Nequáquam: neque enim fíeri potest, ut ea, quæ jam corrúpta sunt, salis perfricatióne reparéntur. Non ergo hoc fecérunt; sed ante renováta sibíque trádita atque ab illa jam putrédine liberáta aspergébant sale et in ea novitáte conservábant, quam a Dómino suscéperant. Liberáre quippe a putrédine peccatórum, Christi virtútis est; ut autem ad illa íterum non revertántur, Apostolórum curæ est ac labóris.
+
+{RUBRIC: Te Deum laudámus.}

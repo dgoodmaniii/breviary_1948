@@ -16175,4 +16175,64 @@ Cóngrega omnes tribus Jacob: ut cognóscant quia non est Deus nisi tu, \* et en
 
 Et hereditábis eos, \* sicut ab inítio.
 
-Miserére plebi tuæ, super quam invocátum est nomen tuum: \* et Israël,
+Miserére plebi tuæ, super quam invocátum est nomen tuum: \* et Israël, quem coæquásti primogénito tuo.
+
+Miserére civitáti sanctificatiónis tuæ Jerúsalem, \* civitáti requiéi tuæ.
+
+Reple Sion inenarrabílibus verbis tuis, \* et glória tua pópulum tuum.
+
+**Ant.** Osténde nobis, Dómine, lucem miseratiónum tuárum.
+
+**Ant.** Omnis spíritus \* laudet Dóminum.
+
+###### Psalmus 150
+
+LAUDATE Dóminum in sanctis ejus: \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus: \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ: \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro: \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus: laudáte eum in cýmbalis jubilatiónis: \* omnis spíritus laudet Dóminum.
+
+### Extra Tempus Paschale
+
+**Ant.** Omnis spíritus laudet Dóminum.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+---
+
+## Ad Laudes II
+
+*In Sabbatis post Dominicam I Quadragesimæ usque ad Sabbatum sanctum inclusive, quando fit Officium de Feria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Benígne fac, Dómine.
+
+### Sabbato sancto
+
+**Ant.** O mors, \* ero mors tua, morsus tuus ero, inférne.
+
+###### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim, in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim, veritátem dilexísti: \* incérta et oc-

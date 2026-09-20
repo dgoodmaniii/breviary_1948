@@ -42464,4 +42464,32 @@ IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Z
 
 ET conféstim, inquit, vidit, et sequebátur illum, magníficans Dóminum. Áliter enim non vidéret, nisi sequerétur Christum, nisi Dóminum prædicáret, nisi sæculum prætertíret. Cum divítibus quoque in grátiam revertámur. Nólumus enim offéndere dívites, qui vólumus, si fíeri potest, sanáre omnes; ne in caméli comparatióne præstrícti et in Zachǽo cítius quam opórtuit, derelícti, justæ hábeant commotiónis offénsam.
 
-℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. ℣. Pétite, et
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et pulsánti aperiétur.
+
+#### Lectio viii
+
+DISCANT dívites non in facultátibus crimen hærére, sed in iis, qui uti nésciant facultátibus. Nam divítiæ ut impedimenta ímprobis, ita bonis sunt adjuménta virtútis. Dives certe Zachǽus, et eléctus a Christo; sed dimídium bonórum suórum pauperíbus largiéndo, reddéndo étiam in quádruplum, quæ fraude sustúlerat (álterum enim non sat est nec habet grátiam liberálitas, si injúria persevérat; quia non spólia, sed bona quærúntur), uberiórem mercédem quam conferébat, accépit.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+ET bene princeps indúcitur publicanórum. Quis jam de se despéret, quando et iste, cui census ex fraude, ad salútem pervénit? Et ipse, inquit, dives. Ut scias non omnes dívites, aváros. Quia statúra pusíllus erat. Quid sibi vult, quod nullíus altérius statúram Scriptúra, nisi hujus expréssit? Vide, ne forte malítia pusíllus, aut adhuc pusíllus fide. Nondum enim réddere promíserat, nondum víderat Christum; mérito adhuc pusíllus. Joánnes autem magnus, quia et Christum vidit, et Spíritum sicut colúmbam super Christum manéntem, sicut ipse ait: Vidi Spíritum descendéntem sicut colúmbam, et manéntem super eum.
+
+Te Deum laudámus.
+
+---
+
+## Die III infra Octavam
+
+{RUBRIC: Semiduplex}
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 256 de Témpore}
+
+#### Lectio iv
+
+CELÉBRITAS hujus congregatiónis, dedicátio est domus oratiónis. Domus ergo nostrárum oratiónum ista, domus autem Dei nos ipsi. Si domus Dei nos ipsi, nos in hoc sǽculo ædificámur, ut in fine sǽculi dedicémur. Ædifícium, immo ædificátio habet labórem; dedicátio exsultatiónem. Quod hic fiébat, quando

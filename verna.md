@@ -6370,3 +6370,65 @@ Quóniam mihi quidem pacífice loquebántur: \* et in iracúndia terræ loquént
 Et dilatavérunt super me os suum: \* dixérunt: Euge, euge, vidérunt óculi nostri.
 
 Vidísti, Dómine, ne síleas: \* Dómine, ne discédas a me.
+
+Exsúrge et inténde judício meo: \* Deus meus, et Dóminus meus in causam meam.
+
+Júdica me secúndum justítiam tuam, Dómine, Deus meus, \* et non supergáudeant mihi.
+
+Non dicant in córdibus suis: Euge, euge, ánimæ nostræ: \* nec dicant: Devorávimus eum.
+
+Erubéscant et revereántur simul, \* qui gratulántur malis meis.
+
+Induántur confusióne et reveréntia \* qui magna loquúntur super me.
+
+Exsúltent et læténtur qui volunt justítiam meam: \* et dicant semper: Magnificétur Dóminus, qui volunt pacem servi ejus.
+
+Et lingua mea meditábitur justítiam tuam, \* tota die laudem tuam.
+
+**Ant.** Exsúrge, Dómine, et inténde judício meo.
+
+---
+
+#### In Festis novem Lectionum:
+
+##### Extra Tempus Paschale
+
+℣. Lingua mea meditábitur justítiam tuam. ℟. Tota die laudem tuam, Dómine.
+
+#### In Festis novem Lectionum
+
+##### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+℣. Deus regenerávit nos in spem vivam, allelúja. ℟. Per resurrectiónem Jesu Christi ex mórtuis, allelúja.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+#### Extra Tempus Paschale
+
+**Ant.** Noli æmulári \* † in eo, qui prosperátur, et facit iniquitátem.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 36, i
+
+NOLI æmulári † in malignántibus: \* neque zeláveris faciéntes iniquitátem.
+
+Quóniam tamquam fœnum velóciter aréscent: \* et quemádmodum ólera herbárum cito décident.
+
+Spera in Dómino, et fac bonitátem: \* et inhábita terram, et pascéris in divítiis ejus.
+
+Delectáre in Dómino: \* et dabit tibi petitiónes cordis tui.
+
+Revéla Dómino viam tuam, et spera in eo: \* et ipse fáciet.
+
+Et edúcet quasi lumen justítiam tuam: et judícium tuum tamquam merídiem: \* súbditus esto Dómino, et ora eum.
+
+Noli æmulári in eo, qui prosperátur in via sua: \*

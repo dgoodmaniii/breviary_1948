@@ -8949,3 +8949,63 @@ Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
 Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.
 
 Dómine, lábia mea apéries: \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem útique: \* holocáustis non delectáberis.
+
+Sacrifícium Deo spíritus contribulátus: \* cor contrítum, et humiliátum, Deus, non despícies.
+
+Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jerúsalem.
+
+Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
+
+#### Extra Tempus Paschale
+
+**Ant.** Acceptábis sacrifícium justítiæ super altáre tuum, Dómine.
+
+#### In Festis extra Tempus Paschale
+
+℣. Audítui meo dabis gáudium et lætítiam. ℟. Et exsultábunt ossa humiliáta.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+#### In Festis novem Lectionum
+
+℣. Deus et Dóminum suscitávit, allelúja. ℟. Et nos suscitábit per virtútem suam, allelúja.
+
+#### In Officiis trium Lectionum
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+### In Officio novem Lectionum
+
+**Absolutio.** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+### In Officio trium Lectionum
+
+**Absolutio.** A vínculis.
+
+#### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+#### In Feriis sine Homilia:
+
+**Bened.** 1 Ille nos benedícat. 2 Divínum. 3 Ad societátem.
+
+#### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+### In III Nocturno
+
+**II**
+
+*In Feriis IV post Dominicam I Quadragesimæ usque ad Feriam IV Majoris Hebdomadæ inclusive, cum ad Laudes dícitur Psalmus 50 Miserére.*
+
+**Ant.** Deus deórum. †

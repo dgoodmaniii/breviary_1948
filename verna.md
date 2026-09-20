@@ -7945,3 +7945,51 @@ Posuísti nos oppróbrium vicínis nostris, \* subsannatiónem et derísum his, 
 Posuísti nos in similitúdinem géntibus: \* commotiónem cápitis in pópulis.
 
 Tota die verecúndia mea contra me est, \* et confúsio faciéi meæ coopéruit me.
+
+A voce exprobrántis, et obloquéntis: \* a fácie inimíci, et persequéntis.
+
+Hæc ómnia venérunt super nos, nec oblíti sumus te: \* et iníque non égimus in testaménto tuo.
+
+Et non recéssit retro cor nostrum: \* et declinásti sémitas nostras a via tua:
+
+Quóniam humiliásti nos in loco afflictiónis, \* et coopéruit nos umbra mortis.
+
+###### Psalmus 43, iii
+
+SI oblíti sumus nomen Dei nostri, \* et si expándimus manus nostras ad deum aliénum:
+
+Nonne Deus requíret ista? \* ipse enim novit abscóndita cordis.
+
+Quóniam propter te mortificámur tota die: \* æstimáti sumus sicut oves occisiónis.
+
+Exsúrge, quare obdórmis, Dómine? \* exsúrge, et ne repéllas in finem.
+
+Quare fáciem tuam avértis, \* oblivísceris inópiæ nostræ, et tribulatiónis nostræ?
+
+Quóniam humiliáta est in púlvere ánima nostra: \* conglutinátus est in terra venter noster.
+
+Exsúrge, Dómine, ádjuva nos: \* et rédime nos propter nomen tuum.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Salvásti nos, Dómine: et in nómine tuo confitébimur in sæcula.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Per arma justítiæ virtútis Dei commendémus nosmetípsos in multa patiéntia.
+
+**Capitulum** *Is. 58, 7*
+
+FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víderis nudum, óperi eum, et carnem tuam ne despéxeris.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratió-

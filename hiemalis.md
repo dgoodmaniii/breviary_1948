@@ -35029,4 +35029,20 @@ IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui
 
 {RUBRIC: Homilía 2 super} Missus est
 
-ÆTÁRE, pater Adam, sed magis tu, o Heva mater, exsúlta, qui, sicut ómnium paréntes, ita ómnium fuístis peremptóres; et, quod infelícius est, prius peremptóres quam paréntes. Ambo, inquam, consolámini super fília, et tali fília; sed illa ámplius de qua malum ortum est prius, cujus oppróbrium in omnes pertransívit mulíeres. Instat namque tempus, quo jam tollátur oppróbrium, nec hábeat vir quid causétur advérsus féminam: qui útique, dum se imprudénter excusáre conarétur, crudéliter illam accusáre non cunctátus est, dicens: Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Proptérea curre, Heva, ad Maríam, curre, mater, ad
+ÆTÁRE, pater Adam, sed magis tu, o Heva mater, exsúlta, qui, sicut ómnium paréntes, ita ómnium fuístis peremptóres; et, quod infelícius est, prius peremptóres quam paréntes. Ambo, inquam, consolámini super fília, et tali fília; sed illa ámplius de qua malum ortum est prius, cujus oppróbrium in omnes pertransívit mulíeres. Instat namque tempus, quo jam tollátur oppróbrium, nec hábeat vir quid causétur advérsus féminam: qui útique, dum se imprudénter excusáre conarétur, crudéliter illam accusáre non cunctátus est, dicens: Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Proptérea curre, Heva, ad Maríam, curre, mater, ad fíliam; fília pro matre respóndeat: ipsa matris oppróbrium áuferat; ipsa patri pro matre satisfáciat: quia ecce si vir cécidit per féminam, jam non erígitur nisi per féminam.
+
+℟. Tu ergo ínvoca Dóminum, lóquere Regi pro nobis, \* Et líbera nos de morte. ℣. Omnes sitiéntes, veníte ad aquas, et hauriétis salútem a Dómino. — Et.
+
+{RUBRIC: Bened.} Cujus festum cólimus, ipsa Virgo vírginum.
+
+#### Lectio viii
+
+QUID dicébas, o Adam? Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Verba malítiæ sunt hæc, quibus magis áugeas quam déleas culpam. Verúmtamen Sapiéntia vicit malítiam, cum occasiónem véniæ, quam a te Deus interrogándo elícere tentávit, sed non pótuit, in thesáuro indeficiéntis suæ pietátis invénit. Rédditur nempe fémina pro fémina, prudens pro fátua, húmilis pro supérba; quæ pro ligno mortis gustum tibi pórrigat vitæ, et pro venenóso cibo illo amaritúdinis dulcédinem páriat fructus ætérni. Muta ergo iníquæ excusatiónis verbum in vocem gratiárum actiónis, et dic: Dómine, múlier, quam dedísti mihi, dedit mihi de ligno vitæ, et comédi; et dulce factum est super mel ori meo, quia in ipso vivificásti me. Ecce enim ad hoc missus est Angelus ad Vírginem. O admirándam et omni honóre digníssimam Vírginem! O féminam singuláriter venerándam, super omnes féminas admirábilem, paréntum reparatrícem, posterórum vivificatrícem!
+
+℟. Plantávit Dóminus Deus paradísum voluptátis, produxítque lignum vitæ in médio ejus: \* Et flúvius egrediebátur de loco voluptátis. ℣. Emissiónes tuæ paradísus, Virgo María. — Et. Glória Patri. Et.
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ, alias}
+
+#### Lectio ix
+
+QUAM tibi áliam prædixísse Deus vidétur, quando ad serpéntem ait: Inimicítias ponam inter te et mulíerem? Et si adhuc dúbitas quod de María díxerit, audi quod séquitur: Ipsa cónteret caput tuum. Cui hæc serváta victória est, nisi Maríæ? Ipsa procul dúbio caput contrívit venenátum, quæ omnímodam malígni suggestiónem tam de carnis illécebra, quam de mentis

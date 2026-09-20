@@ -11930,3 +11930,67 @@ Fílii autem Israël ambulavérunt per siccum \* in médio ejus.
 ### Feria V in Cœna Domini
 
 **Ant.** Exhortátus es in virtúte tua, et in refectióne sancta tua, Dómine.
+
+**Ant.** Oblátus est \* quia ipse vóluit, et peccáta nostra ipse portávit.
+
+###### Psalmus 146
+
+LAUDATE † Dóminum quóniam bonus est psalmus: \* Deo nostro sit jucúnda, decóraque laudátio.
+
+Ædíficans Jerúsalem Dóminus: \* dispersiónes Israélis congregábit.
+
+Qui sanat contrítos corde: \* et álligat contritiónes eórum.
+
+Qui númerat multitúdinem stellárum: \* et ómnibus eis nómina vocat.
+
+Magnus Dóminus noster, et magna virtus ejus: \* et sapiéntiæ ejus non est númerus.
+
+Suscípiens mansuétos Dóminus: \* humílians autem peccatóres usque ad terram.
+
+Præcínite Dómino in confessióne: \* psállite Deo nostro in cíthara.
+
+Qui óperit cælum núbibus: \* et parat terræ plúviam.
+
+Qui prodúcit in móntibus fœnum: \* et herbam servitúti hóminum.
+
+Qui dat juméntis escam ipsórum: \* et pullis corvórum invocántibus eum.
+
+Non in fortitúdine equi voluntátem habébit: \* nec in tíbiis viri beneplácitum erit ei.
+
+Beneplácitum est Dómino super timéntes eum: \* et in eis, qui sperant super misericórdia ejus.
+
+**Ant.** Laudáte Dóminum, qui sanat contrítos corde, et álligat contritiónes eórum.
+
+### Feria V in Cœna Domini
+
+**Ant.** Oblátus est quia ipse vóluit, et peccáta nostra ipse portávit.
+
+{RUBRIC: Reliqua ut infra in Feria V in Cœna Domini.}
+
+### Tempore Quadragesimæ
+
+**Capitulum** *Is. 58, 1*
+
+CLAMA, ne cesses, quasi tuba exálta vocem tuam, et annúntia pópulo meo scélera eórum, et dómui Jacob peccáta eórum.
+
+#### Hymnus
+
+O SOL salútis, íntimis
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ,
+Si virga pæniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.

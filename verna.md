@@ -17107,3 +17107,72 @@ CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et sc
 ℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse.
 
 ℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+### Tempore Passionis
+
+{RUBRIC: Sabbato post Dom. Passionis}
+
+**Ant.** Judicásti, Dómine, causam ánimæ meæ, defénsor vitæ meæ, Dómine, Deus meus.
+
+**Capitulum** *Jer. 17, 13*
+
+DOMINE, omnes qui te derelínquunt, confundéntur: recedéntes a te, in terra scribéntur: quóniam dereliquérunt venam aquárum vivéntium Dóminum.
+
+℟. br. Erue a fráméa, \* Deus, ánimam meam. Erue. ℣. Et de manu canis únicam meam. Deus. Erue. ℣. De ore leónis líbera me, Dómine. ℟. Et a córnibus unicórnium humilitátem meam.
+
+{RUBRIC: Preces feriales, ut supra.}
+
+{RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Dómine, Deus meus.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos.
+
+{RUBRIC: Sabbato post Dom. Passionis}
+
+**Ant.** Pópule meus.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 103, i
+
+BENEDIC, ánima mea, Dómino: \* Dómine, Deus meus, magnificátus es vehementer.
+
+Confessiónem, et decórem induísti: \* amíctus lúmine sicut vestiménto:

@@ -10191,3 +10191,53 @@ Quóniam eripuísti ánimam meam de morte, et pedes meos de lapsu: \* ut plácea
 ###### Psalmus 56
 
 MISERERE mei, Deus, miserére mei: \* quóniam in te confídit ánima mea.
+
+Et in umbra alárum tuárum sperábo, \* donec tránseat iníquitas.
+
+Clamábo ad Deum altíssimum: \* Deum qui benefécit mihi.
+
+Misit de cælo, et liberávit me: \* dedit in oppróbrium conculcántes me.
+
+Misit Deus misericórdiam suam, et veritátem suam, \* et erípuit ánimam meam de médio catulórum leónum: dormívi conturbátus.
+
+Fílii hóminum dentes eórum arma et sagíttæ: \* et lingua eórum gládius acútus.
+
+Exaltáre super cælos, Deus, \* et in omnem terram glória tua.
+
+Láqueum paravérunt pédibus meis: \* et incurvavérunt ánimam meam.
+
+Fodérunt ante fáciem meam fóveam: \* et incidérunt in eam.
+
+Parátum cor meum, Deus, parátum cor meum: \* cantábo, et psalmum dicam.
+
+Exsúrge, glória mea, exsúrge, psaltérium et cíthara: \* exsúrgam dilúculo.
+
+Confitébor tibi in pópulis, Dómine: \* et psalmum dicam tibi in géntibus:
+
+Quóniam magnificáta est usque ad cælos misericórdia tua, \* et usque ad nubes véritas tua.
+
+Exaltáre super cælos, Deus: \* et super omnem terram glória tua.
+
+###### Psalmus 57
+
+SI vere útique justítiam loquímini: \* recta judicáte, fílii hóminum.
+
+Etenim in corde iniquitátes operámini: \* in terra injustítias manus vestræ concínnant.
+
+Alienáti sunt peccatóres a vulva, erravérunt ab útero: \* locúti sunt falsa.
+
+Furor illis secúndum similitúdinem serpéntis: \* sicut áspidis surdæ, et obturántis aures suas.
+
+Quæ non exáudiet vocem incantántium: \* et venéfici incantántis sapiénter.
+
+Deus cónteret dentes eórum in ore ipsórum: \* molas leónum confrínget Dóminus.
+
+Ad níhilum devénient tamquam aqua decúrrens: \* inténdit arcum suum donec infirméntur.
+
+Sicut cera, quæ fluit, auferéntur: \* supercécidit ignis, et non vidérunt solem.
+
+Priúsquam intellígerent spinæ vestræ rhamnum: \* sicut vivéntes, sic in ira absórbet eos.
+
+Lætábitur justus cum víderit vindíctam: \* manus suas lavábit in sánguine peccatóris.
+
+Et dicet homo: Si útique est fructus justo: \* útique

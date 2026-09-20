@@ -43003,4 +43003,66 @@ Tribus honor unus. Amen.
 
 **Oratio**
 
-CONCÉDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vír-
+CONCÉDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Conclúsio Hymnórum ad omnes Horas, étiam per Octávas commúnes, præterquam in Offíciis de Témpore Advéntus, erit sequens:}
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+##### AD MATUTINUM
+
+{RUBRIC: Invitat.} Sancta María, Dei Génitrix Virgo, \* Intercéde pro nobis. {RUBRIC: Ps. 94} Veníte, exsultémus.
+
+### Hymnus
+
+QUEM terra, pontus, sídera
+Colunt, adórant, prǽdicant,
+Trinam regéntem máchinam,
+Claustrum Maríæ bájulat.
+
+Cui luna, sol et ómnia
+Desérviunt per témpora,
+Perfúsa cæli grátia,
+Gestant puéllæ víscera.
+
+Beáta Mater múnere,
+Cujus, supérnus Artifex
+Mundum pugíllo cóntinens,
+Ventris sub arca clausus est.
+
+Beáta cæli núntio,
+Fecúnda Sancto Spíritu,
+Desiderátus géntibus
+Cujus per alvum fusus est.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Benedícta tu \* in muliéribus, et benedíctus fructus ventris tui.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves

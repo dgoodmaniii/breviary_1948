@@ -9747,3 +9747,59 @@ Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
 Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
 
 Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+{RUBRIC: Secus vero, tribus Psalmis expletis, statim dicitur Ant.}
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Misericórdia tua, Dómine, ante óculos meos: et complácui in veritáte tua.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego, dicit Dóminus: nolo mortem peccatóris, sed ut magis convertátur, et vivat.
+
+{RUBRIC: Fer. IV post Dom. Passionis}
+
+**Ant.** Líbera me, Dómine, et pone me juxta te: et cujúsvis manus pugnet contra me.
+
+{RUBRIC: Fer. IV Majoris Hebdomadæ}
+
+**Ant.** Líbera me de sanguínibus, Deus, Deus meus: et exsultábit lingua mea justítiam tuam.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+{RUBRIC: In Officio Festi vel Octavæ et in Feriis Temporis Paschalis:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In omnibus autem Feriis extra Tempus Paschale:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: In feriali Officio Tempore Passionis omittitur Glória Patri.}
+
+#### Tempore Paschali
+
+℟. br. Christe, Fili Dei vivi, miserére nobis, \* Al-

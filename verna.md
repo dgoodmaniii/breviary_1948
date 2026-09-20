@@ -1570,4 +1570,49 @@ CONFITEOR Deo omnipoténti, beátæ Maríæ semper Vírgini, beáto Michaéli Ar
 
 MISEREATUR nostri omnípotens Deus, et, dimíssis peccátis nostris, perdúcat nos ad vitam ætérnam. Amen.
 
-INDULGENTIAM, absolutiónem, et remissiónem peccatórum nostrórum tríbuat nobis omnípotens
+INDULGENTIAM, absolutiónem, et remissiónem peccatórum nostrórum tríbuat nobis omnípotens et miséricors Dóminus. Amen.
+
+{RUBRIC: Facta Absolutione, dicitur:}
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis. ℣. Deus, in adjutórium.
+
+{RUBRIC: Deinde, inchoata convenienti Antiphona, dicuntur tres Psalmi, prouti Officium occurrens requirit.}
+
+{RUBRIC: Repetita integre post ultimum Psalmum Antiphona, dicitur sequens}
+
+### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Absoluto Hymno, dicitur sequens Capitulum et Responsorium breve:}
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus tuas, Dómine, comméndo spíritum meum. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo spíritum meum. Glória Patri, et Fílio, et Spirítui Sancto. In manus tuas, Dómine, comméndo spíritum meum.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+{RUBRIC: A Sabbato ante Dominicam Passionis usque ad Feriam IV Majoris Hebdomadæ inclusive, si præcedentes Vesperæ fuerint de Dominica vel de Feria, in Responsorio brevi omittitur Glória Patri, et hujus loco repetitur Responsorium, ut sequitur:}
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+{RUBRIC: A Sabbato ante Dominicam in Albis usque ad Feriam VI infra Octavam Pentecostes inclusive, dicitur sequens}
+
+℟. br. In manus tuas, Dómine, comméndo spíritum meum, \* Allelúja, allelúja. In manus. ℣. Redemísti nos, Dómine, Deus

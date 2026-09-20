@@ -9471,3 +9471,69 @@ Dómini enim sunt cárdines terræ, \* et pósuit super eos orbem.
 Pedes sanctórum suórum servábit, et ímpii in ténebris conticéscent: \* quia non in fortitúdine sua roborábitur vir.
 
 Dóminum formidábunt adversárii ejus: \* et super ipsos in cælis tonábit:
+
+Dóminus judicábit fines terræ, et dabit impérium regi suo, \* et sublimábit cornu Christi sui.
+
+**Ant.** Exsultávit cor meum in Dómino, qui humíliat et súblevat.
+
+**Ant.** Lauda. †
+
+### Fer. IV Majoris Hebdomadæ
+
+**Ant.** Omnes inimíci mei audiérunt malum meum: Dómine, lætáti sunt, quóniam tu fecísti.
+
+**Ant.** Fac, Dómine.
+
+###### Psalmus 145
+
+LAUDA, † ánima mea, Dóminum, laudábo Dóminum in vita mea: \* psallam Deo meo quámdiu fúero.
+
+Nolíte confídere in princípibus: \* in fíliis hóminum, in quibus non est salus.
+
+Exíbit spíritus ejus, et revertétur in terram suam: \* in illa die períbunt omnes cogitatiónes eórum.
+
+Beátus, cujus Deus Jacob adjútor ejus, spes ejus in Dómino, Deo ipsíus: \* qui fecit cælum et terram, mare, et ómnia, quæ in eis sunt.
+
+Qui custódit veritátem in sæculum, facit judícium injúriam patiéntibus: \* dat escam esuriéntibus.
+
+Dóminus solvit compedítos: \* Dóminus illúminat cæcos.
+
+Dóminus érigit elísos, \* Dóminus díligit justos.
+
+Dóminus custódit ádvenas, pupíllum et víduam suscípiet: \* et vias peccatórum dispérdet.
+
+Regnábit Dóminus in sæcula, Deus tuus, Sion, \* in generatiónem et generatiónem.
+
+**Ant.** Lauda, ánima mea, Dóminum, qui érigit elísos, et díligit justos.
+
+### Fer. IV Majoris Hebdomadæ
+
+**Ant.** Fac, Dómine, judícium injúriam patiéntibus: et vias peccatórum dispérde.
+
+### Tempore Quadragesimæ
+
+**Capitulum** *Is. 58, 1*
+
+CLAMA, ne cesses, quasi tuba exálta vocem tuam, et annúntia pópulo meo scélera eórum, et dómui Jacob peccáta eórum.
+
+#### Hymnus
+
+O SOL salútis, íntimis
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ,
+Si virga pæniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.

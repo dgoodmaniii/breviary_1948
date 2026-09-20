@@ -43882,3 +43882,56 @@ Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
+
+#### Capitulum
+*Eccli. 24, 24*
+
+EGO mater pulchræ dilectiónis, et timóris, et agnitiónis, et sanctæ spei.
+
+℟. Deo grátias.
+
+℣. Ora pro nobis, sancta Dei Génitrix. ℟. Ut digni efficiámur promissiónibus Christi.
+
+{RUBRIC: Ad Nunc dimíttis Ant.} Sub tuum præsídium \* confúgimus, sancta Dei Génitrix: nostras deprecatiónes ne despícias in necessitátibus, sed a perículis cunctis líbera nos semper, Virgo gloriósa et benedícta.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+BEÁTÆ et gloriósæ semper Vírginis Maríæ, quǽsumus, Dómine, intercéssio gloriósa nos prótegat: et ad vitam perdúcat ætérnam. Per Dóminum.
+
+##### AD MATUTINUM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Dómine, lábia mea apéries. ℟. Et os meum annuntiábit laudem tuam.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Invitat.} Ave, María, grátia plena; \* Dóminus tecum. {RUBRIC: Ps. 94} Veníte, exsultémus.
+
+{RUBRIC: Hymn.} Quem terra. [177]
+
+### In Nocturno
+
+{RUBRIC: Antíphonæ et Psalmi ut in Commúni Festórum beátæ Maríæ Vírginis, scílicet:}
+
+{RUBRIC: Domínica, Féria II et V: De I Nocturno. [177]}
+
+{RUBRIC: Féria III et VI: De II Nocturno. [180]}
+
+{RUBRIC: Féria IV et Sábbato: De III Nocturno. [184]}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Pater noster secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+**Absolutio.** PRÉCIBUS et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne, benedícere. **Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+**Lectio i** *Eccli. 24, 11-13*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo, et dixit mihi: In Jacob inhábita, et in Israël hereditáre, et in eléctis meis mitte ra-

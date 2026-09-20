@@ -17830,4 +17830,36 @@ Concéde, simplex Unitas;
 Ut fructuósa sint tuis
 Jejuniórum múnera. Amen.
 
-℣. Angelis suis Deus
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Magnif. Ant.** Tunc invocábis, \* et Dóminus exáudiet: clamábis, et dicet: Ecce adsum.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Ecce nunc tempus \* acceptábile, ecce nunc dies salútis: in his ergo diébus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia, in jejúniis, in vigíliis, et in caritáte non ficta.
+
+#### Oratio
+
+DEUS, qui Ecclésiam tuam ánnua Quadragesimáli observatióne puríficas: præsta famíliæ tuæ; ut, quod a te obtinére abstinéndo nítitur, hoc bonis opéribus exsequátur. Per Dóminum.
+
+---
+
+## Dominica I in Quadragesima
+
+{RUBRIC: I classis} Semiduplex
+
+### Ad Matutinum
+
+{RUBRIC: Invitat. Non sit vobis et Hymnus Ex more, ut in Psalterio. 41}
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica 43, cum Versibus Nocturnorum de Tempore Quadragesimæ, ut in Psalterio; quæ dicuntur etiam in relíquis Dominicis Quadragesimæ.}
+
+#### In I Nocturno
+
+{RUBRIC: De Epístola secúnda beáti Pauli Apóstoli ad Corínthios}
+
+#### Lectio i
+
+*Cap. 6, 1-16*
+
+ADJUVANTES autem exhortámur, ne in vácuum grátiam Dei recipiátis. Ait enim: Témpore accépto exaudívi te, et in die salútis adjúvi te. Ecce nunc tempus acceptábile, ecce nunc dies salútis. Némini dantes ullam offensiónem, ut non vituperétur ministérium nostrum: sed in ómnibus exhibeámus nosmetípsos sicut Dei minístros in multa patiéntia, in tribulatiónibus, in necessitátibus, in angústiis, in plagis, in carcéribus, in seditiónibus, in labóribus, in vigíliis, in jejúniis, in castitáte, in sciéntia, in longanimitáte, in suavitáte, in Spíritu Sancto, in caritáte non ficta, in verbo veritátis, in virtúte Dei, per arma justítiæ a dextris, et a sinístris, per glóriam, et ignobilitátem, per infámiam, et bonam famam; ut seductóres, et veráces, sicut qui ignóti, et cógniti: quasi moriéntes, et ecce vívimus: ut castigáti, et non mortificáti: quasi tristes, semper autem gaudéntes: sicut

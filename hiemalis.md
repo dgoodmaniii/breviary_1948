@@ -36344,4 +36344,12 @@ VIRO defúncto, ad prædíctum Oblatárum domum cónvolans, nudis pédibus, fune
 
 #### Lectio vi
 
-DIVÍNA mystéria, præsértim vero Christi Dómini passiónem tanto
+DIVÍNA mystéria, præsértim vero Christi Dómini passiónem tanto mentis ardóre tantáque lacrimárum vi contemplabátur, ut præ dolóris magnitúdine pene cónfici viderétur. Sæpe étiam cum oráret, máxime sumpto sanctíssimæ Eucharístiæ sacraménto, spíritu in Deum eleváta ac cæléstium contemplatióne rapta, immóbilis permanébat. Quaprópter humáni géneris hostis váriis eam contuméliis ac verbéribus a propósito dimovére conabátur: quem tamen illa impertérrita semper elúsit, Angeli præsértim præsídio, cujus familiári consuetúdine gloriósum de eo triúmphum reportávit. Grátia curatiónum et prophétiæ dono enítuit, quo et futúra prædíxit et córdium secréta penetrávit. Non semel aquæ, vel per rivum decurréntes vel e cælo labéntes, intáctam prorsus, dum Deo vacáret, reliquérunt. Módica panis fragménta, quæ vix tribus soróribus reficiéndis fuíssent satis, sic ejus précibus Dóminus multiplicávit, ut quíndecim inde exsaturátis, tantum superfúerit, ut canístrum impléverit; et aliquándo earúmdem sorórum, extra Urbem mense Januário ligna parántium, sitim recéntis uvæ racémis ex vite in árbore pendéntibus mirabíliter obténtis, abúnde expléverit. Dénique, méritis et miráculis clara, migrávit ad Dóminum, anno ætátis suæ quinquagésimo sexto. Quam Paulus quintus Póntifex máximus in Sanctórum número rétulit.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+FRANCÍSCA, nóbilis matróna Romána, úndecim annos nata, virginitátem suam Deo consecráre et monastérium íngredi státuit; sed paréntum voluntáti obédiens, Laurentio de Pontiánis, júveni díviti æque ac nóbili, nupsit. In matrimónio arctióris vitæ propósitum, quantum lícuit, semper retínuit, patiéntia in advérsis semper mirábilis. Ut vero matrónas Románas a pompis sǽculi et ornátus vanitáte revocáret, domum Oblatárum, sub régula sancti Benedícti congregatiónis Montis Olivéti, in Urbe instítuit;

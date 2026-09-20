@@ -788,3 +788,41 @@ Deo Patri sit glória,
 Ejúsque soli Fílio,
 Cum Spíritu Paráclito,
 Nunc et per omne sæculum. Amen.
+
+{RUBRIC: ¶ Conclusio communis, in Hymno præcedenti, et in aliis idem metrum habentibus, semper omittitur, quando specialis in omnibus Horis adhibenda præscribitur; et, si plures Conclusiones propriæ occurrant, sumitur Conclusio Officii currentis, aut secus Officii ipsa die et primo quidem loco inter cetera propriam Conclusionem habentia commemorandi, aut demum de occurrenti Octava communi vel de Tempore.}
+
+{RUBRIC: Expleto Hymno, convéniens dicitur Antiphona usque ad Asteriscum \* prouti occurrens Officium requirit.}
+
+#### Tempore Quadragesimæ
+
+{RUBRIC: In Officio dominicali, Antiphona ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio autem feriali, dicitur quotidie sequens}
+
+**Ant.** Vivo ego, \* dicit Dóminus: nolo mortem peccatóris, sed ut magis convertátur, et vivat.
+
+#### Tempore Passionis
+
+{RUBRIC: In Officio dominicali, Antiphona ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali: In omnibus Feriis infra hebdomadam Passionis dicitur sequens}
+
+**Ant.** Líbera me, Dómine, \* et pone me juxta te: et cujúsvis manus pugnet contra me.
+
+{RUBRIC: In Feria vero II, III et IV Majóris Hebdómadæ Antiphona prima ex Laudibus Feriæ currentis ut in Proprio de Tempore.}
+
+#### Tempore Paschali
+
+{RUBRIC: In Officio Dominicali et feriali, a Dominica in Albis usque ad Vigiliam Ascensionis, in Officio autem de Sanctis usque ad Feriam VI post Octavam Ascensionis inclusive, Antiphona} Allelúja, {RUBRIC: etiam ad Tertiam, Sextam, Nonam et Completorium, ut in Psalterio pro singulis Feriis apponitur.}
+
+{RUBRIC: Post enuntiatam Antiphonam dicuntur tres Psalmi Officio diei congruentes.}
+
+{RUBRIC: ¶ Quando autem adhibetur posterius Laudum schema, duo Psalmi, in priori Laudum dominicalium schemate omissi, resumuntur ad Primam Dominicæ ante alios Psalmos; et unus Psalmus, in priori pariter Laudum ferialium schemate omissus, item ad Primam Feriæ currentis post alios Psalmos resumitur.}
+
+{RUBRIC: Repetita post ultimum Psalmum integre Antiphona, conveniens dicitur Capitulum; nimirum:}
+
+{RUBRIC: In omnibus Dominicis, in Vigilia privilegiata Pentecostes, in Officio cujuslibet Festi vel Octavæ, ac sanctæ Mariæ in Sabbato, necnon in Feriis Temporis Paschalis:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.

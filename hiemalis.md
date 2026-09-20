@@ -36644,8 +36644,53 @@ Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desid�
 
 LAUDÁTE, púeri, Dóminum: \* laudáte nomen Dómini.
 
-Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sæculum.
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sǽculum.
 
 A solis ortu usque ad occásum, \* laudábile nomen Dómini.
 
 Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Beáti pacífici, beáti mundo corde: quóniam ipsi Deum vidébunt.
+
+**Ant.** In patiéntia vestra \* possidébitis ánimas vestras.
+
+###### Psalmus 116
+
+LAUDÁTE Dóminum, omnes gentes: \* laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+**Ant.** In patiéntia vestra possidébitis ánimas vestras.
+
+#### Capit.
+
+*Ephes. 2, 19-20*
+
+FRATRES: Jam non estis hóspites, et ádvenæ; sed estis cives Sanctórum, et doméstici Dei, superædificáti super fundaméntum Apostolórum et Prophetárum, ipso summo angulári lápide Christo Jesu.
+
+#### Hymnus
+
+EXSÚLTET orbis gáudiis, Cælum resúltet láudibus: Apostolórum glóriam Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices Et vera mundi lúmina, Votis precámur córdium: Audíte voces súpplicum.
+
+Qui templa cæli cláuditis Serásque verbo sólvitis, Nos a reátu nóxios Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus Languor salúsque séntiunt, Sanáte mentes lánguidas, Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter In fine Christus sæculi, Nos sempitérni gáudii Concédat esse cómpotes.
+
+\* Patri, simúlque Fílio, Tibíque, Sancte Spíritus, Sicut fuit, sit júgiter Sæclum per omne glória.
+Amen.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Tradent enim vos \* in concíliis, et in synagógis suis flagellábunt vos, et ante reges et præsides ducémini propter me in testimónium illis, et géntibus.

@@ -43796,3 +43796,39 @@ CHRISTUS virgo, Mater vírginis nostri virgo perpétua, mater et virgo. Jesus en
 Te Deum laudámus.
 
 ---
+
+### Mense Martio
+
+{RUBRIC: Ante Quadragésimam}
+
+{RUBRIC: Ex libro sancti Irenǽi Epíscopi et Mártyris advérsus hǽreses}
+
+{RUBRIC: Liber 5, c. 19}
+
+#### Lectio iii
+
+IN sua própria veniénte Dómino et sua própria eum bajulánte conditióne, quæ bajulátur ab ipso, et recapitulatiónem ejus quæ in ligno fuit inobediéntiæ, per eam quæ in ligno est obediéntiam, faciénte, et seductióne illa solúta, qua sedúcta est male illa, quæ jam viro destináta erat, virgo Heva; per veritátem evangelizáta est bene ab Angelo jam sub viro Virgo María. Quemádmodum enim illa per angélicum sermónem seducta est, ut effúgeret Deum, prævaricáta verbum ejus: ita et hæc per Angélicum sermónem evangelizáta est, ut portáret Deum, obédiens ejus verbo. Et sicut illa sedúcta est, ut effúgeret Deum; sic hæc suása est obedíre Deo, ut vírginis Hevæ Virgo María fíeret advocáta. Et quemádmodum adstríctum est morte genus humánum per vírginem, solvátur per Vírginem: ǽqua lance dispósita virginális inobediéntia per Virginálem obediéntiam.
+
+Te Deum laudámus.
+
+---
+
+# Officium Parvum B. Mariæ Virginis
+
+## I Per Annum
+
+{RUBRIC: Quod dícitur a Matutíno diéi 3 Februárii usque ad Nonam Sábbati post Cíneres inclusíve.}
+
+### In Vesperis
+
+{RUBRIC: Ave María secréto, quod dícitur semper in princípio ómnium Horárum.}
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína.
+
+Glória Patri. Sicut erat. Allelúja.
+
+{RUBRIC: Sic dícitur Allelúja ad omnes Horas per totum Annum, præterquam a Completório Sábbati ante Septuagésimam; tunc enim dícitur: Laus tibi, Dómine, Rex ætérnæ glóriæ.}
+
+{RUBRIC: Antíphonæ, quæ in toto Offício parvo non duplicántur, Psalmi, Capítulum et Hymnus, ut supra in Commúni Festórum B. Maríæ Vírginis. [174]}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.

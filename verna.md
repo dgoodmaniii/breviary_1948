@@ -5792,3 +5792,66 @@ Illuc enim ascendérunt tribus, tribus Dómini: \* testimónium Israël ad confi
 Quia illic sedérunt sedes in judício, \* sedes super domum David.
 
 Rogáte quæ ad pacem sunt Jerúsalem: \* et abundántia diligéntibus te:
+
+Fiat pax in virtúte tua: \* et abundántia in túrribus tuis.
+
+Propter fratres meos, et próximos meos, \* loquébar pacem de te:
+
+Propter domum Dómini, Dei nostri, \* quæsívi bona tibi.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Lætátus sum in his, quæ dicta sunt mihi.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Capitulum** *Joel 2, 17*
+
+INTER vestíbulum et altáre plorábunt sacerdótes, ministri Dómini, et dicent: Parce, Dómine, parce pópulo tuo: et ne des hereditátem tuam in oppróbrium, ut dominéntur eis natiónes.
+
+#### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus,
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te reversis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+{RUBRIC: Antiphona ad Magnificat ut in Proprio de Tempore.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, dicuntur sequentes}
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Pater noster, quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsquequo? ℟. Et deprecábilis esto super servos tuos. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Sacerdótes tui induántur justítiam. ℟. Et sancti tui exsúltent.
+
+℣. Orémus pro beatíssimo Papa nostro N. ℟. Dómi-

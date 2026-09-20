@@ -15344,3 +15344,47 @@ Et meditábor in ómnibus opéribus tuis: \* et in adinventiónibus tuis exercé
 DEUS, in sancto via tua: \* quis Deus magnus sicut Deus noster?
 
 Tu es Deus qui facis mirabília.
+
+Notam fecísti in pópulis virtútem tuam: \* redemísti in bráchio tuo pópulum tuum, fílios Jacob et Joseph.
+
+Vidérunt te aquæ, Deus, vidérunt te aquæ: \* et timuérunt, et turbátæ sunt abýssi.
+
+Multitúdo sónitus aquárum: \* vocem dedérunt nubes.
+
+Etenim sagíttæ tuæ tránseunt: \* vox tonítrui tui in rota.
+
+Illuxérunt coruscatiónes tuæ orbi terræ: \* commóta est, et contrémuit terra.
+
+In mari via tua, et sémitæ tuæ in aquis multis: \* et vestígia tua non cognoscéntur.
+
+Deduxísti sicut oves pópulum tuum, \* in manu Móysi et Aaron.
+
+###### Psalmus 85
+
+INCLINA, Dómine, aurem tuam, et exáudi me: \* quóniam inops, et pauper sum ego.
+
+Custódi ánimam meam, quóniam sanctus sum: \* salvum fac servum tuum, Deus meus, sperántem in te.
+
+Miserére mei, Dómine, quóniam ad te clamávi tota die: \* lætífica ánimam servi tui, quóniam ad te, Dómine, ánimam meam levávi.
+
+Quóniam tu, Dómine, suávis, et mitis: \* et multæ misericórdiæ ómnibus invocántibus te.
+
+Áuribus pércipe, Dómine, oratiónem meam: \* et inténde voci deprecatiónis meæ.
+
+In die tribulatiónis meæ clamávi ad te: \* quia exaudísti me.
+
+Non est símilis tui in diis, Dómine: \* et non est secúndum ópera tua.
+
+Omnes gentes quascúmque fecísti, vénient, et adorábunt coram te, Dómine: \* et glorificábunt nomen tuum.
+
+Quóniam magnus es tu, et fáciens mirabília: \* tu es Deus solus.
+
+Deduc me, Dómine, in via tua, et ingrédiar in veritáte tua: \* lætétur cor meum ut tímeat nomen tuum.
+
+Confitébor tibi, Dómine, Deus meus, in toto corde meo, \* et glorificábo nomen tuum in ætérnum:
+
+Quia misericórdia tua magna est super me: \* et eruísti ánimam meam ex inférno inferióri.
+
+Deus, iníqui insurrexérunt super me, et synagóga poténtium quæsiérunt ánimam meam: \* et non proposuérunt te in conspéctu suo.
+
+Et tu, Dómine, Deus miserátor et miséricors,

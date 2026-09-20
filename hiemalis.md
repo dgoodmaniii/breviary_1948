@@ -35558,4 +35558,24 @@ PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ
 
 #### Lectio ii
 
-IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in
+IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in laudem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum.
+
+℟. Si díligis me, Simon Petre, pasce oves meas. Dómine, tu nosti quia amo te, \* Et ánimam meam pono pro te. ℣. Si oportúerit me mori tecum, non te negábo. — Et.
+
+#### Lectio iii
+
+DE qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in vobis grátia prophetavérunt; scrutántes in quod vel quale tempus significáret in eis Spíritus Christi: prænúntians eas quæ in Christo sunt passiónes et posterióres glórias: quibus revelátum est, quia non sibimetípsis, vobis autem ministrábant ea, quæ nunc nuntiáta sunt vobis per eos, qui evangelizavérunt vobis, Spíritu Sancto misso de cælo, in quem desíderant Angeli prospícere.
+
+℟. Tu es Petrus, et super hanc Petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: \* Et tibi dabo claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et. Glória Patri. Et.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 15 de Sanctis}
+
+#### Lectio iv
+
+INSTITÚTIO solemnitátis hodiérnæ a senióribus nostris Cáthedræ nomen accépit, ídeo quod primus Apostolórum Petrus hódie episcopátus cáthedram suscepísse referátur. Recte ergo ecclésiæ natálem Sedis illíus colunt, quam Apóstolus pro ecclesiárum salúte suscépit, dicénte Dómino: Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam.
+
+℟. Tu es pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et.

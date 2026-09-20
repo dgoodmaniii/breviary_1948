@@ -14611,4 +14611,67 @@ O QUAM pulchra est casta generátio cum claritáte! immortális est enim memóri
 
 **Pro Martyre tantum**
 
-LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis susti-
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+**Pro nec Virg. nec Mart.**
+
+MULTAE fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo: múlier timens Dóminum, ipsa laudábitur.
+
+**Pro Dedicatione Ecclesiæ**
+
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+##### In Officiis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+---
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum} Pater noster {RUBRIC: secreto, nisi sequatur alia Hora.}
+
+---
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Excita, Dómine.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Advenérunt nobis.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 79, i
+
+QUI regis Israël, inténde: \* qui dedúcis velut ovem Joseph.
+
+Qui sedes super Chérubim, \* manifestáre coram

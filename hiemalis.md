@@ -39721,4 +39721,40 @@ LAUDÉMUS viros gloriósos et paréntes nostros in generatióne sua. Multam gló
 
 #### Lectio ii
 
-HOMINES dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes in dómibus suis. Omnes isti in generatióni-
+HOMINES dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes in dómibus suis. Omnes isti in generatiónibus gentis suæ glóriam adépti sunt, et in diébus suis habéntur in láudibus. Qui de illis nati sunt, reliquérunt nomen narrándi laudes eórum: et sunt quorum non est memória: periérunt quasi qui non fúerint: et nati sunt, quasi non nati, et fílii ipsórum cum ipsis.
+
+##### Pro Confessore Pontifice
+
+℟. Ecce sacérdos magnus, qui in diébus suis plácuit Deo: \* Ideo jurejurándo fecit illum Dóminus créscere in plebem suam. ℣. Benedictiónem ómnium géntium dedit illi, et testaméntum suum confirmávit super caput ejus. — Ideo.
+
+##### Pro Confessore non Pont.
+
+℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+#### Lectio iii
+
+SED illi viri misericórdiæ sunt, quorum pietátes non defuérunt: cum sémine eórum pérmanent bona, heréditas sancta nepótes eórum, et in testaméntis stetit semen eórum. Et fílii eórum propter illos usque in ætérnum manent: semen eórum et glória eórum non derelinquétur. Córpora ipsórum in pace sepúlta sunt, et nomen eórum vivit in generatiónem et generatiónem. Sapiéntiam ipsórum narrent pópuli, et laudem eórum núntiet Ecclésia.
+
+##### Pro Confessore Pontifice
+
+℟. Jurávit Dóminus, et non pænitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. ℣. Dixit Dóminus Dómino meo, Sede a dextris meis. — Tu. Glória. Tu.
+
+##### Pro Confessore non Pont.
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum: \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. Glória Patri. Et.
+
+---
+
+### II Aliæ Lectiones
+
+#### pro Confessore Pont.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Máximi Epíscopi}
+
+{RUBRIC: Homilia 59, de S. Eusebio 2}
+
+#### Lectio iv
+
+BEÁTI Patris N. mérita, jam in tuto pósita, secúri magnificémus; qui, gubernáculum fídei víriliter tenens, ánchoram spei tranquílla jam in statióne compósuit,

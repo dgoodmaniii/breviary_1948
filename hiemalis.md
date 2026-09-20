@@ -35145,3 +35145,53 @@ Vírginis gaudens célebrat fidélis
 
 Ipsa se prǽbens húmili puéllæ
 Virgo spectándam, récreat pavéntem,
+Seque concéptam sine labe, sancto
+    Prǽdicat ore.
+
+O specus felix, decoráte divæ
+Matris aspéctu! veneránda rupes,
+Unde vitáles scatuére pleno
+    Gúrgite lymphæ!
+
+Huc catervátim pia turba nostris,
+Huc ab extérnis peregrína terris
+Affluit supplex, et opem poténtis
+    Vírginis orat.
+
+Excipit Mater lácrimas precántum,
+Donat optátam míseris salútem;
+Compos hinc voti pátrias ad oras
+    Turba revértit.
+
+Súpplicum, Virgo, miseráta casus,
+Semper o nostros réfove labóres,
+Impetrans mæstis bona sempitérnæ
+    Gáudia vitæ.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus
+Spíritus semper, Deus unus omni
+    Témporis ævo.
+Amen.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Hódie gloriósa cæli Regína \* in terris appáruit: hódie pópulo suo verba salútis et pígnora pacis áttulit: hódie Angelórum et fidélium chori immaculátam Conceptiónem celebrántes gáudio exsúltant, allelúja.
+
+#### Oratio
+
+DEUS, qui per immaculátam Vírginis Concéptiónem dignum Fílio tuo habitáculum præparásti: súpplices a te quǽsumus; ut ejúsdem Vírginis Apparitiónem celebrántes, salútem mentis et córporis consequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commem. sequéntis et, in Quadragésima, Fériæ.}
+
+## Die 12 Februarii
+
+### Ss. septem Fundatorum Ord. Servorum B. M. V.
+
+{RUBRIC: Confessórum}
+
+{RUBRIC: Duplex} [94]
+
+### In I Vesperis
+
+{RUBRIC: Quando I Vésperæ dicéndæ sint íntegræ vel saltem a Capítulo, Capítulum} Caríssimi, {RUBRIC: de Laudibus} 898; {RUBRIC: Hymnus} Matris sub almæ, {RUBRIC: e II Vésperis} 900; {RUBRIC: Versus et réliqua ut infra.}

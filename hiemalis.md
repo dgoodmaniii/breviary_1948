@@ -34499,3 +34499,19 @@ CYRILLUS Alexandrínus, Theóphili epíscopi Alexandríni nepos, étiam adolésc
 {RUBRIC: Te Deum laudámus.}
 
 {RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Communi Doct. 1 loco.} [90]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ, alias}
+
+{RUBRIC: Pro S. Apollónia Virg. et Mart.}
+
+#### Lectio ix
+
+APOLLÓNIA virgo Alexandrína, sub Décio imperatóre, cum ingravescénte jam ætáte ad idóla sisterétur, ut eis veneratiónem adhibéret; illis contémptis, Jesum Christum verum Deum coléndum esse prædicábat. Quam ob rem omnes ei contúsi sunt et evúlsi dentes; ac, nisi Christum detestáta deos coléret, accénso rogo combustúros vivam mináti sunt ímpii carnífices. Quibus illa, se quamvis mortem pro Jesu Christi fide subitúram, respóndit. Itaque comprehénsa, ut comburerétur, cum paulísper, quasi delíberans quid agéndum esset, stetísset, ex illórum mánibus elápsa, álacris in ignem sibi parátum, majóri Spíritus Sancti flamma intus accénsa, se injécit. Unde brevi, consúmpto córpore, puríssimus spíritus in cælum ad sempitérnam martýrii corónam evolávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, su-

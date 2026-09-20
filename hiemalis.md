@@ -41256,4 +41256,18 @@ EXALTASTI super terram habitatiónem meam, et pro morte defluénte deprecáta su
 
 #### Lectio iv
 
-NUNC nobis ad vírgines sermo est; quarum quo sublímior glória est, major et cura est. Flos est ille ecclesiástici gérminis, decus atque ornaméntum grátiæ spiritális, læta índoles, laudis et honóris opus íntegrum atque incorrúptum, Dei imágo respóndens ad sanctimóniam Dómini, illústrior pórtio gregis Christi. Gaudet per illas atque in illis lárgiter floret Ecclésiæ matris gloriósa fecúnditas; quantóque plus copiósa virgínitas número suo addit, tanto plus gáudium matris augéscit. Ad has lóquimur, has adhortámur affectióne pótius quam potestáte; non quod extrémi et mínimi, et hu-
+NUNC nobis ad vírgines sermo est; quarum quo sublímior glória est, major et cura est. Flos est ille ecclesiástici gérminis, decus atque ornaméntum grátiæ spiritális, læta índoles, laudis et honóris opus íntegrum atque incorrúptum, Dei imágo respóndens ad sanctimóniam Dómini, illústrior pórtio gregis Christi. Gaudet per illas atque in illis lárgiter floret Ecclésiæ matris gloriósa fecúnditas; quantóque plus copiósa virgínitas número suo addit, tanto plus gáudium matris augéscit. Ad has lóquimur, has adhortámur affectióne pótius quam potestáte; non quod extrémi et mínimi, et humilitátis nostræ ádmodum cónscii, áliquid ad censúram licéntiæ vindicémus, sed quod ad sollicitúdinem magis cauti, plus de diáboli infestatióne timeámus.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+NEQUE inánis hæc cáutio est et vana formído, quæ ad salútis viam cónsulit, quæ Domínica et vitália præcépta custódit, ut, quæ se Christo dicáverint, et a carnáli concupiscéntia recedéntes, tam carne quam mente se Deo vóverint, consúmment opus suum magno prǽmio destinátum; nec ornári jam aut placére cuíquam, nisi Dómino suo, stúdeant, a quo et mercédem virginitátis exspéctant, dicénte ipso: Non omnes cápiunt verbum, sed illi quibus datum est. Sunt enim spadónes, qui ex útero matris sic nati sunt; et sunt spadónes, qui coácti sunt ab homínibus; et sunt spadónes, qui seípsos castravérunt propter regnum cælórum.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+DENUO quoque per hanc Angeli vocem continéntiæ munus osténditur, virgínitas prædicátur: Hi sunt, qui cum muliéribus se non coinquinavérunt; vírgines enim permansérunt: hi sunt qui sequúntur Agnum quocúmque íerit. Neque enim tantum másculis continéntiæ grátiam Dóminus repromíttit, et féminas prǽterit; sed, quóniam fémina viri pórtio est et ex eo sumpta atque formáta est, in Scriptúris fere ómnibus ad protoplástum Deus lóquitur, quia sunt duo in carne una, et in másculo simul significátur et fémina. Quod si Christum continéntia séquitur, et regno Dei virgínitas destinátur; quid est illis cum terréno cultu et cum ornaméntis, quibus, dum homínibus placére géstiunt, Deum offéndunt?
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.

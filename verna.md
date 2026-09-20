@@ -7187,3 +7187,92 @@ Felle potus ecce languet:
 Spina, clavi, láncea
 Mite corpus perforárunt:
 Unda manat, et cruor:
+Terra, pontus, astra, mundus,
+Quo lavántur flúmine!
+
+Crux fidélis, inter omnes
+Arbor una nóbilis:
+Silva talem nulla profert
+Fronde, flore, gérmine:
+Dulce ferrum, dulce lignum,
+Dulce pondus sústinent.
+
+Flecte ramos, arbor alta,
+Tensa laxa víscera,
+Et rigor lentéscat ille,
+Quem dedit natívitas;
+Et supérni membra Regis
+Tende miti stípite.
+
+Sola digna tu fuísti
+Ferre mundi víctimam,
+Atque portum præparáre
+Arca mundo náufrago,
+Quam sacer cruor perúnxit,
+Fusus Agni córpore.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+{RUBRIC: Antiphona ad Benedictus ut in Proprio de Tempore.}
+
+{RUBRIC: Preces feriales, ut supra. 140}
+
+{RUBRIC: Reliqua ut in Ordinario. 13}
+
+---
+
+## Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Deus meus.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego.
+
+### Feria III post Dom. Passionis
+
+**Ant.** Líbera me, Dómine.
+
+### Fer. III Majoris Hebdomadæ
+
+**Ant.** Vide, Dómine.

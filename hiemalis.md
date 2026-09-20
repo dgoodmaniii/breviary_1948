@@ -34795,4 +34795,40 @@ MECUM sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim f
 
 *Cap. 8, 34-36, et 9, 1-5*
 
-BEÁTUS homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei.
+BEÁTUS homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei. QUI me invénerit, invéniet vitam, et háuriet salútem a Dómino; qui autem in me peccáverit, lædet ánimam suam. Omnes, qui me odérunt, díligunt mortem. Sapiéntia ædificávit sibi domum, excídit colúmnas septem. Immolávit víctimas suas, míscuit vinum et propósuit mensam suam. Misit ancíllas suas ut vocárent ad arcem et ad mœnia civitátis: Si quis est párvulus, véniat ad me. Et insipiéntibus locúta est: Veníte, comédite panem meum, et bíbite vinum quod míscui vobis.
+
+℟. Surge, amíca mea, speciósa mea, et veni, colúmba mea: \* Osténde mihi fáciem tuam, sonet vox tua in áuribus meis. ℣. Vox túrturis audíta est in terra nostra. — Osténde. Glória Patri. Osténde.
+
+### In II Nocturno
+
+**Ant.** Fecit mihi magna \* qui potens est, et sanctum nomen ejus.
+
+###### Psalmus 44
+
+ERUCTÁVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime,
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sǽculum sǽculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto: \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam: \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.

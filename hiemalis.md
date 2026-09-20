@@ -46840,3 +46840,19 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 ### In II Vesperis
 
 {RUBRIC: Antíphonæ et Capítulum de Laudibus. [262]}
+
+℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram.
+
+**Ad Magnif. Ant.** O quam metuéndus est locus iste: vere non est hic áliud, nisi domus Dei et porta cæli.
+
+{RUBRIC: Et fit Commem. seq. Festi S. Damási I Papæ et Conf.}
+
+**Ant.** Sacérdos et Póntifex, et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+℣. Amávit eum Dóminus.
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde, et per beátum Dámasum Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. {RUBRIC: (Per Dóminum.)}
+
+{RUBRIC: Deinde Commem. Fériæ.}

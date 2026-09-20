@@ -18927,3 +18927,25 @@ INVIDEBANT ei ígitur fratres sui: pater vero rem tácitus considerábat. Cumque
 AUDIENS autem hoc Ruben, nitebátur liberáre eum de mánibus eórum, et dicébat: Non interficiátis ánimam ejus, nec effundátis sánguinem: sed projícite eum in cistérnam hanc, quæ est in solitúdine, manúsque vestras serváte innóxias. Hoc autem dicébat, volens erípere eum de mánibus eórum, et réddere patri suo. Conféstim ígitur ut pervénit ad fratres suos, nudavérunt eum túnica talári et polymíta: misérúntque eum in cistérnam véterem, quæ non habébat aquam. Et sedéntes ut comederent panem, vidérunt Ismaëlítas viatóres veníre de Gálaad, et camélos eórum portántes arómata, et resínam, et stacten in Ægýptum. Dixit ergo Judas frátribus suis: Quid nobis prodest, si occidérimus fratrem nostrum, et celavérimus sánguinem ipsíus? Mélius est ut venumdétur Ismaëlítis, et manus nostræ non polluántur: frater enim et caro nostra est. Acquievérunt fratres sermónibus illíus. Et prætereúntibus Madianítis negotiatóribus, extrahéntes eum de cistérna, vendidérunt eum Ismaëlítis vigínti argénteis: qui duxérunt eum in Ægýptum.
 
 ℟. Extrahéntes Joseph de lacu, vendidérunt Ismaëlítis vigínti argénteis: \* Reversúsque Ruben ad púteum, cum non invenísset eum, scidit vestiménta sua cum fletu, et dixit: \* Puer non compáret, et ego quo ibo? ℣. At illi, intíncta túnica Joseph in sánguine hædi, misérunt qui ferret eam ad patrem, et díceret: Vide, si túnica fílii tui sit, an non. — Reversúsque. Glória Patri. Puer.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de sancto Joseph}
+
+#### Lectio iv
+
+*Cap. 1*
+
+SANCTORUM vita céteris norma vivéndi est. Ideóque digéstam plénius accépimus sériem Scripturárum; ut dum Abraham, Isaac, et Jacob, ceterósque justos legéndo cognóscimus, velut quemdam nobis innocéntiæ trámitem, virtúte eórum reserátum, imitántibus vestígiis persequámur. De quibus mihi cum frequens tractátus fúerit, hódie sancti Joseph história occúrrit: in quo cum plúrima fúerint génera virtútum, præcípue tamen insígne effúlsit castimóniæ. Justum est ígitur, ut cum in Abraham didicéritis ímpigram fídei devotiónem, in Isaac sincéræ mentis puritátem, in Jacob singulárem ánimi laborúmque patiéntiam: ex illa generalitáte virtútum in ipsas spécies disciplinárum intendátis ánimum.
+
+℟. Videns Jacob vestiménta Joseph, scidit vestiménta sua cum fletu, et dixit: \* Fera péssima devorávit fílium meum Joseph. ℣. Tulérunt autem fratres ejus túnicam illíus, mitténtes ad patrem: quam cum cognovísset pater, ait. — Fera péssima.
+
+#### Lectio v
+
+SIT ígitur nobis propósitus sanctus Joseph tamquam spéculum castitátis. In ejus enim móribus, in ejus áctibus lucet pudicítia, et quidam splendet castimóniæ comes, nitor grátiæ. Unde étiam a paréntibus plus quam céteri fílii diligebátur. Sed ea res invídiæ fuit: quod siléntio prætereúndum non fuit: hinc enim arguméntum totíus históriæ procéssit: simul ut cognoscámus, perféctum virum non movéri ulciscéndi dolóris invídia, nec malórum repéndere vicem. Unde et David ait: Si réddidi retribuéntibus mihi mala.
+
+℟. Joseph dum intráret in terram Ægýpti, linguam quam non nóverat, audívit: manus ejus in labóribus serviérunt: \* Et lingua ejus inter príncipes loquebátur sapiéntiam. ℣. Humiliavérunt in compédibus pedes ejus: ferrum pertránsiit ánimam ejus, donec veníret verbum ejus. — Et.
+
+#### Lectio vi
+
+QUID autem esset, quod præférri Joseph mererétur céteris, si aut lædéntes læsísset, aut diligéntes dilexísset? Hoc enim plérique fáciunt. Sed illud mi-

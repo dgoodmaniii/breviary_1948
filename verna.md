@@ -3196,3 +3196,59 @@ Ordinatióne tua persevérat dies: \* quóniam ómnia sérviunt tibi.
 Nisi quod lex tua meditátio mea est: \* tunc forte periíssem in humilitáte mea.
 
 In ætérnum non oblivíscar justificatiónes tuas: \* quia in ipsis vivificásti me.
+
+Tuus sum ego, salvum me fac: \* quóniam justificatiónes tuas exquisívi.
+
+Me exspectavérunt peccatóres ut pérderent me: \* testimónia tua intelléxi.
+
+Omnis consummatiónis vidi finem: \* latum mandátum tuum nimis.
+
+###### Psalmus 118, vii
+
+QUOMODO diléxi legem tuam, Dómine? \* tota die meditátio mea est.
+
+Super inimícos meos prudéntem me fecísti mandáto tuo: \* quia in ætérnum mihi est.
+
+Super omnes docéntes me intelléxi: \* quia testimónia tua meditátio mea est.
+
+Super senes intelléxi: \* quia mandáta tua quæsívi.
+
+Ab omni via mala prohíbui pedes meos: \* ut custódiam verba tua.
+
+A judíciis tuis non declinávi: \* quia tu legem posuísti mihi.
+
+Quam dúlcia fáucibus meis elóquia tua, \* super mel ori meo!
+
+A mandátis tuis intelléxi: \* proptérea odívi omnem viam iniquitátis.
+
+Lucérna pédibus meis verbum tuum, \* et lumen sémitis meis.
+
+Jurávi, et státui \* custodíre judícia justítiæ tuæ.
+
+Humiliátus sum usquequáque, Dómine: \* vivífica me secúndum verbum tuum.
+
+Voluntária oris mei beneplácita fac, Dómine: \* et judícia tua doce me.
+
+Anima mea in mánibus meis semper: \* et legem tuam non sum oblítus.
+
+Posuérunt peccatóres láqueum mihi: \* et de mandátis tuis non errávi.
+
+Hereditáte acquisívi testimónia tua in ætérnum: \* quia exsultátio cordis mei sunt.
+
+Inclinávi cor meum ad faciéndas justificatiónes tuas in ætérnum, \* propter retributiónem.
+
+###### Psalmus 118, viii
+
+INIQUOS ódio hábui: \* et legem tuam diléxi.
+
+Adjútor et suscéptor meus es tu: \* et in verbum tuum supersperávi.
+
+Declináte a me, malígni: \* et scrutábor mandáta Dei mei.
+
+Súscipe me secúndum elóquium tuum, et vivam: \* et non confúndas me ab exspectatióne mea.
+
+Adjuva me, et salvus ero: \* et meditábor in justificatiónibus tuis semper.
+
+Sprevísti omnes discedéntes a judíciis tuis: \* quia injústa cogitátio eórum.
+
+Prævaricántes reputávi omnes peccatóres terræ: \* ídeo diléxi testimónia tua.

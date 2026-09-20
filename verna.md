@@ -10290,4 +10290,73 @@ CONFUNDANTUR qui me persequúntur, et non confúndar ego: páveant illi, et non 
 
 **Capit.** *1 Cor. 16, 20-22*
 
-CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam qui-
+CHRISTUS resurréxit a mórtuis primítiæ dormiéntium: quóniam quidem per hóminem mors, et per hóminem resurréctio mortuórum. Et sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur.
+
+℟. br. Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 27}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Deus meus.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Per arma justítiæ.
+
+{RUBRIC: Fer. IV post Dom. Passionis}
+
+**Ant.** Numquid rédditur.
+
+{RUBRIC: Fer. IV Majoris Hebdomadæ}
+
+**Ant.** Fac, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 58, i
+
+ERIPE me de inimícis meis, Deus meus: \* et ab insurgéntibus in me líbera me.
+
+Eripe me de operántibus iniquitátem: \* et de viris sánguinum salva me.
+
+Quia ecce cepérunt ánimam meam: \* irruérunt in me fortes.
+
+Neque iníquitas mea, neque peccátum meum, Dómine: \* sine iniquitáte cucúrri, et diréxi.
+
+Exsúrge in occúrsum meum, et vide: \* et tu, Dómine, Deus virtútum, Deus Israël,
+
+Inténde ad visitándas omnes gentes: \* non misereáris ómnibus, qui operántur iniquitátem.
+
+Converténtur ad vésperam: et famem patiéntur ut canes, \* et circuíbunt civitátem.
+
+Ecce, loquéntur in ore suo, et gládius in lábiis eórum: \* quóniam quis audívit?
+
+Et tu, Dómine, deridébis eos: \* ad níhilum dedúces omnes gentes.

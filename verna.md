@@ -16010,3 +16010,65 @@ Quis sápiens et custódiet hæc? \* et intélliget misericórdias Dómini?
 ### In Officiis trium Lectionum:
 
 ℣. Gavísi sunt discípuli allelúja. ℟. Viso Dómino, allelúja.
+
+### In Officio novem Lectionum
+
+**Absolutio.** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 {RUBRIC: In Festis Domini:} Divínum auxílium. {RUBRIC: In Festis B. M. V.:} Cujus festum cólimus, ipsa Virgo. {RUBRIC: In Festis Sanctorum:} Cujus (vel Quorum aut Quarum) festum cólimus. 9 Ad societátem. {RUBRIC: (Per evangélica dicta.)}
+
+### In Officio trium Lectionum
+
+**Absolutio.** A vínculis.
+
+{RUBRIC: In Feriis cum Homilia:}
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+### In Octava simplici:
+
+**Bened.** 1 Ille nos benedícat. 2 Cujus (vel Quorum aut Quarum). 3 Ad societátem.
+
+### In Officio sanctæ Mariæ in Sabbato
+
+**Absol.** Précibus et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. Amen.
+
+**Bened.** 1 Nos cum prole pia benedícat Virgo María. Amen.
+
+2 Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. Amen.
+
+3 Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. Amen.
+
+---
+
+## Ad Laudes I
+
+*In Festis novem Lectionum extra et intra Tempus Paschale celebrandis, in omnibus Officiis de Octava non privilegiata, atque in Officio sanctæ Mariæ in Sabbato.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Fílii Sion \* exsúltent in Rege suo.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 149
+
+CANTATE Dómino cánticum novum: \* laus ejus in ecclésia sanctórum.
+
+Lætétur Israël in eo, qui fecit eum: \* et fílii Sion exsúltent in rege suo.
+
+Laudent nomen ejus in choro: \* in týmpano, et psaltério psallant ei:
+
+Quia beneplácitum est Dómino in pópulo suo: \* et exaltábit mansuétos in salútem.
+
+Exsultábunt sancti in glória: \* lætabúntur in cubílibus suis.
+
+Exaltatiónes Dei in gútture eórum: \* et gládii ancípites in mánibus eórum.
+
+Ad faciéndam vindíctam in natiónibus: \* increpatiónes in pópulis.

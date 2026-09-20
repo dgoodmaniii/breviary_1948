@@ -2503,3 +2503,55 @@ Non móriar, sed vivam: \* et narrábo ópera Dómini.
 Castígans castigávit me Dóminus: \* et morti non trádidit me.
 
 Aperíte mihi portas justítiæ, ingréssus in eas confitébor Dómino: \* hæc porta Dómini, justi intrábunt in eam.
+
+Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
+
+Lápidem, quem reprobavérunt ædificántes: \* hic factus est in caput ánguli.
+
+A Dómino factum est istud: \* et est mirábile in óculis nostris.
+
+Hæc est dies, quam fecit Dóminus: \* exsultémus, et lætémur in ea.
+
+O Dómine, salvum me fac, o Dómine, bene prosperáre: \* benedíctus qui venit in nómine Dómini.
+
+Benedíximus vobis de domo Dómini: \* Deus Dóminus, et illúxit nobis.
+
+Constitúite diem solémnem in condénsis, \* usque ad cornu altáris.
+
+Deus meus es tu, et confitébor tibi: \* Deus meus es tu, et exaltábo te.
+
+Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
+
+Confitémini Dómino quóniam bonus: \* quóniam in sæculum misericórdia ejus.
+
+###### Psalmus 62
+
+DEUS, Deus meus, \* ad te de luce vígilo.
+
+Sitívit in te ánima mea, \* quam multipliciter tibi caro mea.
+
+In terra desérta, et ínvia, et inaquósa: \* sic in sancto appárui tibi, ut vidérem virtútem tuam, et glóriam tuam.
+
+Quóniam mélior est misericórdia tua super vitas: \* lábia mea laudábunt te.
+
+Sic benedícam te in vita mea: \* et in nómine tuo levábo manus meas.
+
+Sicut ádipe et pinguédine repleátur ánima mea: \* et lábiis exsultatiónis laudábit os meum.
+
+Si memor fui tui super stratum meum, in matutínis meditábor in te: \* quia fuísti adjútor meus.
+
+Et in velaménto alárum tuárum exsultábo, adhǽsit ánima mea post te: \* me suscépit déxtera tua.
+
+Ipsi vero in vanum quæsiérunt ánimam meam, introíbunt in inferióra terræ: \* tradéntur in manus gládii, partes vúlpium erunt.
+
+Rex vero lætábitur in Deo, laudabúntur omnes qui jurant in eo: \* quia obstrúctum est os loquéntium iníqua.
+
+###### Canticum trium Puerorum
+
+*Dan. 3, 53-57*
+
+BENEDICTUS es, Dómine, Deus patrum nostrórum: \* et laudábilis, et gloriósus, et superexaltátus in sæcula.
+
+Et benedíctum nomen glóriæ tuæ sanctum: \* et laudábile, et superexaltátum in ómnibus sæculis.
+
+Benedíctus es in templo sancto glóriæ tuæ: \* et

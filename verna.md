@@ -18664,3 +18664,31 @@ PERFICE, quæsumus, Dómine, benígnus in nobis observántiæ sanctæ subsídium
 PROPITIARE, Dómine, supplicatiónibus nostris, et animárum nostrárum medére languóribus: ut, remissióne percépta, in tua semper benedictióne lætémur. Per Dóminum.
 
 ---
+
+## Feria Quarta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 20, 17-28*
+
+IN illo témpore: Ascéndens Jesus Jerosólymam, assúmpsit duódecim discípulos secréto, et ait illis: Ecce ascéndimus Jerosólymam, et Fílius hóminis tradétur princípibus sacerdótum, et scribis, et condemnábunt eum morte. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 5 de fide ad Gratianum, cap. 2, post initium}
+
+CONSIDERATE, quæ mater filiórum Zebedǽi cum fíliis et pro fíliis petat: mater est útique, cui pro filiórum honóre sollícitæ, immoderátior quidem, sed tamen ignoscénda ménsura votórum est. Atque mater ætáte longǽva, stúdio religiósa, solátio destitúta, quæ tunc témporis, quando vel juvánda, vel alénda foret válidæ prolis auxílio, abésse sibi líberos patiebátur, et voluptáti suæ mercédem sequéntium Christum prætúlerat filiórum. Qui prima voce vocáti a Dómino (ut légimus) relíctis rétibus et patre, secúti sunt eum.
+
+℟. Dixit Angelus ad Jacob: \* Dimítte me, auróra est. Respóndit ei: Non dimíttam te, nisi benedíxeris mihi. Et benedíxit ei in eódem loco. ℣. Cumque surrexísset Jacob, ecce vir luctabátur cum eo usque mane: et cum vidéret, quod eum superáre non posset, dixit ad eum. — Dimítte.
+
+#### Lectio ii
+
+HÆC ígitur, stúdio matérnæ sedulitátis indulgéntior, obsecrábat Salvatórem, dicens: Ut sédeant hi duo fílii mei, unus ad déxteram tuam, et alter ad sinístram in regno tuo. Etsi error, pietátis tamen error est. Nésciunt enim matérna víscera patiéntiam: etsi voti avára, tamen veniábilis cupíditas, quæ non pecúniæ est ávida, sed grátiæ. Nec inverecúnda petítio, quæ non sibi, sed líberis consulébat. Matrem consideráte, matrem cogitáte.
+
+℟. Vidi Dóminum fácie ad fáciem: \* Et salva facta est ánima mea. ℣. Et dixit mihi: Nequáquam vocáberis Jacob, sed Israël erit nomen tuum. — Et.
+
+#### Lectio iii
+
+CONSIDERABAT Christus matris dilectiónem, quæ filiórum mercéde

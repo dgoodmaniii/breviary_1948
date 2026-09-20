@@ -18722,3 +18722,21 @@ DEUS, innocéntiæ restitútor et amátor, dírige ad te tuórum corda servórum
 *Cap. 16, 19-31*
 
 IN illo témpore: Dixit Jesus pharisǽis: Homo quidam erat dives, qui induebátur púrpura et bysso: et epulabátur quotídie spléndide. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 40 in Evangelia}
+
+QUEM, fratres caríssimi, quem dives iste, qui induebátur púrpura et bysso, et epulabátur quotídie spléndide, nisi Judáicum pópulum signat: qui cultum vitæ extérius hábuit, qui accéptæ legis delíciis ad nitórem usus est, non ad utilitátem? Quem vero Lázarus ulcéribus plenus, nisi gentílem pópulum figuráliter éxprimit? Qui dum convérsus ad Deum peccáta confitéri sua non erúbuit, huic vulnus in cute fuit. In cutis quippe vúlnere virus a víscéribus tráhitur, et foras erúmpit.
+
+℟. Tolle arma tua, pháretram et arcum, et affer de venatióne tua, ut cómedam: \* Et benedícat tibi ánima mea. ℣. Cumque venátu áliquid attúleris, fac mihi inde pulméntum, ut cómedam. — Et.
+
+#### Lectio ii
+
+QUID est ergo peccatórum conféssio, nisi quædam vúlnerum rúptio? Quia peccáti virus salúbriter aperítur in confessióne, quod pestífere latébat in mente. Vúlnera étenim cutis in superfíciem trahunt humórem putrédinis. Et confiténdo peccáta, quid áliud ágimus, nisi malum, quod in nobis latébat, aperímus? Sed Lázarus vulnerátus cupiébat saturári de micis, quæ cadébant de mensa dívitis, et nemo illi dabat: quia gentílium quemque ad cognitiónem legis admíttere supérbus ille pópulus despiciébat.
+
+℟. Ecce odor fílii mei sicut odor agri pleni, cui benedíxit Dóminus: créscere te fáciat Deus meus sicut arénam maris: \* Et donet tibi de rore cæli benedictiónem. ℣. Deus autem omnípotens benedícat tibi, atque multíplicet. — Et.
+
+#### Lectio iii
+
+QUI dum doctrínam legis non ad caritátem hábuit, sed ad elatiónem, quasi de accéptis ópibus túmuit: et quia ei verba defluébant de sciéntia, quasi micæ cadébant de mensa. At contra, jacéntis páuperis vúlnera lingébant canes. Nonnúmquam solent in sacro elóquio per canes prædicatóres intélligi. Canum étenim língua, vulnus dum lingit, curat: quia et doctóres sancti, dum in confessióne peccáti nostri nos ínstruunt, quasi vulnus mentis per linguam tangunt.

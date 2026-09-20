@@ -8741,3 +8741,53 @@ Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
 #### Extra Tempus Paschale
 
 **Ant.** Magnus Dóminus, \* † et laudábilis nimis in civitáte Dei nostri.
+
+###### Psalmus 47
+
+MAGNUS Dóminus, † et laudábilis nimis \* in civitáte Dei nostri, ‡ in monte sancto ejus.
+
+Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
+
+Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.
+
+Quóniam ecce reges terræ congregáti sunt: \* convenérunt in unum.
+
+Ipsi vidéntes sic admiráti sunt, conturbáti sunt, commóti sunt: \* tremor apprehéndit eos.
+
+Ibi dolóres ut parturiéntis: \* in spíritu vehemménti cónteres naves Tharsis.
+
+Sicut audívimus, sic vídimus in civitáte Dómini virtútum, in civitáte Dei nostri: \* Deus fundávit eam in ætérnum.
+
+Suscépimus, Deus, misericórdiam tuam, \* in médio templi tui.
+
+Secúndum nomen tuum, Deus, sic et laus tua in fines terræ: \* justítia plena est déxtera tua.
+
+Lætétur mons Sion, et exsúltent fíliæ Judæ \* propter judícia tua, Dómine.
+
+Circúmdate Sion, et complectímini eam: \* narráte in túrribus ejus.
+
+Pónite corda vestra in virtúte ejus: \* et distribúite domos ejus, ut enarrétis in progénie áltera.
+
+Quóniam hic est Deus, Deus noster in ætérnum, et in sæculum sæculi: \* ipse reget nos in sæcula.
+
+**Ant.** Magnus Dóminus, et laudábilis nimis in civitáte Dei nostri.
+
+**Ant.** Os meum loquétur \* sapiéntiam: et meditátio cordis mei prudéntiam.
+
+###### Psalmus 48, i
+
+AUDITE hæc, omnes gentes: \* áuribus percípite omnes, qui habitátis orbem:
+
+Quique terrígenæ, et fílii hóminum: \* simul in unum dives et pauper.
+
+Os meum loquétur sapiéntiam: \* et meditátio cordis mei prudéntiam.
+
+Inclinábo in parábolam aurem meam: \* apériam in psaltério propositiónem meam.
+
+Cur timébo in die mala? \* iníquitas calcánei mei circúmdabit me:
+
+Qui confídunt in virtúte sua: \* et in multitúdine divitiárum suárum gloriántur.
+
+Frater non rédimit, rédimet homo: \* non dabit Deo placatiónem suam.
+
+Et prétium redemptiónis ánimæ suæ: \* et laborábit in ætérnum, et vivet adhuc in finem.

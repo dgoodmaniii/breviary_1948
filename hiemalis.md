@@ -44813,4 +44813,56 @@ Super aquam refectiónis educávit me: \* ánimam meam convértit.
 
 Dedúxit me super sémitas justítiæ, \* propter nomen suum.
 
-Nam, et si ambulávero in médio umbræ mortis, non
+Nam, et si ambulávero in médio umbræ mortis, non timébo mala: \* quóniam tu mecum es.
+
+Virga tua, et báculus tuus: \* ipsa me consoláta sunt.
+
+Parásti in conspéctu meo mensam, \* advérsus eos, qui tríbulant me.
+
+Impinguásti in óleo caput meum: \* et calix meus inébrians quam præclárus est!
+
+Et misericórdia tua subsequétur me \* ómnibus diébus vitæ meæ:
+
+Et ut inhábitem in domo Dómini, \* in longitúdinem diérum.
+
+Réquiem ætérnam.
+
+**Ant.** In loco páscuæ ibi me collocávit.
+
+**Ant.** Delícta \* juventútis meæ, et ignorántias meas ne meminéris, Dómine.
+
+###### Psalmus 24
+
+AD te, Dómine, levávi ánimam meam: \* Deus meus, in te confído, non erubéscam.
+
+Neque irrídeant me inimíci mei: \* étenim univérsi, qui sústinent te, non confundéntur.
+
+Confundántur omnes iníqua agéntes \* supervácue.
+
+Vias tuas, Dómine, demónstra mihi: \* et sémitas tuas édoce me.
+
+Dírige me in veritáte tua, et doce me: \* quia tu es, Deus, salvátor meus, et te sustínui tota die.
+
+Reminíscere miseratiónum tuárum, Dómine, \* et misericordiárum tuárum, quæ a sǽculo sunt.
+
+Delícta juventútis meæ, \* et ignorántias meas ne memíneris.
+
+Secúndum misericórdiam tuam memento mei tu: \* propter bonitátem tuam, Dómine.
+
+Dulcis et rectus Dóminus: \* proptér hoc legem dabit delinquéntibus in via.
+
+Díriget mansuétos in judício: \* docébit mites vias suas.
+
+Univérsæ viæ Dómini, misericórdia et véritas, \* requiréntibus testaméntum ejus et testimónia ejus.
+
+Propter nomen tuum, Dómine, propitiáberis peccáto meo: \* multum est enim.
+
+Quis est homo qui timet Dóminum? \* legem státuit ei in via, quam elégit.
+
+Anima ejus in bonis demorábitur: \* et semen ejus hereditábit terram.
+
+Firmaméntum est Dóminus timéntibus eum: \* et testaméntum ipsíus ut manifestétur illis.
+
+Oculi mei semper ad Dóminum: \* quóniam ipse evéllet de láqueo pedes meos.
+
+Réspice in me, et miserére mei: \* quia únicus et pauper sum ego.

@@ -37648,3 +37648,117 @@ Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini 
 Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
 
 **Ant.** Volo, Pater, ut, ubi ego sum, illic sit et miníster meus.
+
+#### Capitulum
+
+*Jac. 1, 12*
+
+BEÁTUS vir, qui suffert tentatiónem: quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+#### Hymnus
+
+DEUS, tuórum mílitum
+Sors et coróna, prǽmium,
+Laudes canéntes Mártyris
+Absólve nexu críminis.
+
+Hic nempe mundi gáudia
+Et blanda fraudum pábula
+Imbúta felle députans,
+Pervénit ad cæléstia.
+
+Pœnas cucúrrit fórtiter
+Et sústulit viríliter,
+Fundénsque pro te sánguinem,
+Ætérna dona póssidet.
+
+Ob hoc precátu súpplici
+Te póscimus, piíssime:
+In hoc triúmpho Mártyris
+Dimítte noxam sérvulis.
+
+\* Laus et perénnis glória
+Patri sit, atque Fílio,
+Sancto simul Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+### In II Vesperis
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+##### Pro Martyre et Pontifice
+
+**1 — Oratio**
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti N. Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+**2 — Alia Oratio**
+
+DEUS, qui nos beáti N. Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+##### Pro Martyre non Pontifice
+
+**3 — Oratio**
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti N. Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+**4 — Alia Oratio**
+
+PRÆSTA, quǽsumus, om-nípotens Deus: ut, intercedénte beáto N. Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Regem Mártyrum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+{RUBRIC: Hymnus Deus, tuórum mílitum, ut supra. [30]}
+
+#### In I Nocturno
+
+**Ant.** In lege Dómini \* fuit volúntas ejus die ac nocte.
+
+###### Psalmus 1
+
+BEÁTUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** In lege Dómini fuit volúntas ejus die ac nocte.
+
+**Ant.** Prǽdicans \* præcéptum Dómini constitútus est in monte sancto ejus.
+
+###### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.

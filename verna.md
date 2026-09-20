@@ -15045,3 +15045,63 @@ FRANGE esuriénti panem tuum, et egénos vagósque induc in domum tuam: cum víd
 ℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto.
 
 ℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+#### Tempore Paschali
+
+**Capitulum** *1 Petri 3, 18*
+
+CHRISTUS semel pro peccátis nostris mórtuus est, justus pro injústis, ut nos offérret Deo, mortificátus quidem carne, vivificátus autem spíritu.
+
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Reliqua ut in Ordinario. 29}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Extra Tempus Paschale
+
+**Ant.** Dómine, \* †probásti me, et cognovísti me. ‡
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 138, i
+
+DOMINE, † probásti me, et cognovísti me: \* ‡ tu cognovísti sessiónem meam, et resurrectiónem meam.
+
+Intellexísti cogitatiónes meas de longe: \* sémitam meam, et funículum meum investigásti.
+
+Et omnes vias meas prævidísti: \* quia non est sermo in lingua mea.
+
+Ecce, Dómine, tu cognovísti ómnia novíssima, et antíqua: \* tu formásti me, et posuísti super me manum tuam.
+
+Mirábilis facta est sciéntia tua ex me: \* confortáta est, et non pótero ad eam.
+
+Quo ibo a spíritu tuo? \* et quo a fácie tua fúgiam?
+
+Si ascéndero in cælum, tu illic es: \* si descéndero in inférnum, ades.
+
+Si súmpsero pennas meas dilúculo, \* et habitávero in extrémis maris:
+
+Etenim illuc manus tua dedúcet me: \* et tenébit me déxtera tua.
+
+Et dixi: Fórsitan ténebræ conculcábunt me: \* et nox illuminátio mea in delíciis meis.
+
+Quia ténebræ non obscurabúntur a te, et nox sicut

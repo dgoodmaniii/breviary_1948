@@ -18076,3 +18076,47 @@ AN forte ibunt in ignem ætérnum, qui ópera misericórdiæ non fecérunt: et n
 #### Lectio iii
 
 NEQUE illud dici hic póterit, in quo nonnúlli seípsos sedúcunt, ignem ætérnum dictum, non ipsam combustiónem ætérnam. Per ignem quippe, qui ætérnus erit, transitúros arbitrántur eos, quibus propter fidem mórtuam per ignem promíttunt salútem: ut vidélicet ipse ignis ætérnus sit, combústio vero eórum, hoc est, operátio ignis, non sit in eos ætérna: cum et hoc prævidens Dóminus, senténtiam suam conclúsit ita dicens: Sic ibunt illi in combustiónem ætérnam, justi autem in vitam ætérnam. Erit ergo ætérna combústio, sicut ignis: et eos in illam itúros Véritas dicit, quorum non fidem, sed bona ópera defuísse declarávit.
+
+℟. In jejúnio et fletu orábunt sacerdótes, dicéntes: \* Parce, Dómine, parce pópulo tuo; et ne des hereditátem tuam in perditiónem. ℣. Inter vestíbulum et altáre plorábunt sacerdótes, dicéntes. — Parce. Glória Patri. Parce.
+
+{RUBRIC: ¶ In hac et sequentibus Feriis usque ad Feriam IV Majoris Hebdomadæ inclusive, Psalmi ad Laudes, et Feria IV etiam tres ultimi ad Matutinum, dicuntur de 2 loco, atque inde etiam sumuntur Antiphonæ, præterquam infra Hebdomadam majorem ad Laudes, in quibus habentur propriæ. Ad Primam autem additur quartus Psalmus, ut notatur in Psalterio.}
+
+{RUBRIC: Et quotidie in Officio feriali ad omnes Horas dicuntur Preces, usque ad Feriam IV Majoris Hebdomadæ inclusive, ut in Psalterio de Ordinario.}
+
+### Ad Laudes
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Veníte, benedícti \* Patris mei, percípite regnum, quod vobis parátum est ab orígine mundi.
+
+#### Oratio
+
+CONVERTE nos, Deus, salutáris noster: et, ut nobis jejúnium Quadragesimále profíciat, mentes nostras cæléstibus ínstrue disciplínis. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Quod uni \* ex mínimis meis fecístis, mihi fecístis, dicit Dóminus.
+
+#### Oratio
+
+ABSOLVE, quæsumus, Dómine, nostrórum víncula peccatórum: et, quidquid pro eis merémur, propitiátus avérte. Per Dóminum nostrum.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 21, 10-17*
+
+IN illo témpore: Cum intrásset Jesus Jerosólymam, commóta est univérsa cívitas, dicens: Quis est hic? Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis, Presbýteri}
+
+{RUBRIC: Homilía 7 in Quadrages. tom. 7}
+
+QUOD maledicéndo ficum infructuósam per figúram fecit Dóminus, hoc idem mox apértius osténdit, ejiciéndo ímprobos e templo. Neque enim áliquid peccávit arbor, quod esuriénte Dómino poma non hábuit, quorum nec-

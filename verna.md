@@ -3605,3 +3605,65 @@ Sed nos qui vívimus, benedícimus Dómino, \* ex hoc nunc et usque in sæculum.
 MAGNIFICAT \* ánima mea Dóminum:
 
 Et exsultávit spíritus meus \* in Deo, salutári meo.
+
+Quia respéxit humilitátem ancíllæ suæ: \* ecce enim ex hoc beátam me dicent omnes generatiónes.
+
+Quia fecit mihi magna qui potens est: \* et sanctum nomen ejus.
+
+Et misericórdia ejus a progénie in progénies \* timéntibus eum.
+
+Fecit poténtiam in bráchio suo: \* dispérsit supérbos mente cordis sui.
+
+Depósuit poténtes de sede \* et exaltávit húmiles.
+
+Esuriéntes implévit bonis: \* et dívites dimísit inánes.
+
+Suscépit Israël, púerum suum, \* recordátus misericórdiæ suæ.
+
+Sicut locútus est ad patres nostros, \* Abraham, et sémini ejus in sæcula.
+
+{RUBRIC: Oratio convéniens.}
+
+{RUBRIC: Reliqua ut in Ordinario. 32}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dícitur totum secreto.}
+
+**Confíteor. Misereátur. Indulgéntiam.**
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Miserére.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja.
+
+{RUBRIC: Antiphona Allelúja dicitur, tam in Dominicis quam in Feriis, a Sabbato in Albis usque ad Feriam VI infra Octavam Pentecostes inclusive.}
+
+###### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quæritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.

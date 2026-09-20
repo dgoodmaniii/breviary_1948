@@ -46058,4 +46058,96 @@ FIDELIUM, Deus, ómnium Cónditor et Redémptor, animábus famulórum famularúm
 
 ACTIONES nostras, quæsumus, Dómine, aspirándo prǽveni et adjuvándo proséquere: ut cuncta nostra orátio et operátio a te semper incípiat, et per te cœpta finiátur.
 
-OMNIPOTENS sempitérne Deus, qui vivórum domináris simul et mortuórum, omniúmque miseréris quos tuos fide et ópere futúros esse prænóscis: te súpplices exorámus; ut, pro quibus effúndere preces decrévimus, quosque vel præsens sæculum adhuc in carne rétinet vel futúrum jam exútos córpore suscépit, intercedéntibus ómnibus Sanctis tuis, pietátis tuæ cleméntia,
+OMNIPOTENS sempitérne Deus, qui vivórum domináris simul et mortuórum, omniúmque miseréris quos tuos fide et ópere futúros esse prænóscis: te súpplices exorámus; ut, pro quibus effúndere preces decrévimus, quosque vel præsens sæculum adhuc in carne rétinet vel futúrum jam exútos córpore suscépit, intercedéntibus ómnibus Sanctis tuis, pietátis tuæ cleméntia, ómnium delictórum suórum véniam consequántur. Per Dóminum nostrum.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Exáudiat nos omnípotens et miséricors Dóminus. ℟. Amen.
+
+℣. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+# Ordo Commendationis Animæ
+
+{RUBRIC: Primum dicuntur Litaniæ breves in hunc modum:}
+
+KYRIE, eléison.
+
+Christe, eléison.
+
+Kýrie, eléison.
+
+Sancta María, ora pro eo (ea).
+
+Omnes sancti Ángeli et Archángeli, oráte pro eo (ea).
+
+Sancte Abel, ora.
+
+Omnis chorus Justórum, ora.
+
+Sancte Abraham, ora.
+
+Sancte Joánnes Baptísta, ora.
+
+Sancte Joseph, ora.
+
+Omnes sancti Patriárchæ et Prophétæ, oráte.
+
+Sancte Petre, ora.
+
+Sancte Paule, ora.
+
+Sancte Andréa, ora.
+
+Sancte Joánnes, ora.
+
+Omnes sancti Apóstoli et Evangelístæ, oráte.
+
+Omnes sancti Discípuli Dómini, oráte.
+
+Omnes sancti Innocéntes, oráte.
+
+Sancte Stéphane, ora.
+
+Sancte Laurénti, ora.
+
+Omnes sancti Mártyres, oráte.
+
+Sancte Silvéster, ora.
+
+Sancte Gregóri, ora.
+
+Sancte Augustíne, ora.
+
+Omnes sancti Pontífices et Confessóres, oráte.
+
+Sancte Benedícte, ora.
+
+Sancte Francísce, ora.
+
+Sancte Camílle, ora.
+
+Sancte Joánnes de Deo, ora.
+
+Omnes sancti Mónachi et Eremítæ, oráte.
+
+Sancta María Magdaléna, ora.
+
+Sancta Lúcia, ora.
+
+Omnes sanctæ Vírgines et Víduæ, oráte.
+
+Omnes Sancti et Sanctæ Dei, intercédite pro eo (ea).
+
+Propítius esto, parce ei, Dómine.
+
+Propítius esto, líbera eum (eam), Dómine.
+
+Propítius esto, líbera.
+
+Ab ira tua, líbera.
+
+A perículo mortis, líbera.
+
+A mala morte, líbera.
+
+A pœnis inférni, líbera.

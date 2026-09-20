@@ -41082,4 +41082,60 @@ SED prius quærándum nobis est, quid sit regnum cælórum, aut cur decem virgí
 
 #### Lectio ix
 
-IN quinque autem córporis sénsibus unusquísque subsístit; geminátus autem quinárius denárium pérficit. Et quia ex utróque sexu fidélium multitúdo collígitur, sancta Ecclésia decem virgínibus símilis esse denuntiátur. In qua quia mali cum bonis et réprobi cum eléctis admíxti sunt, recte símilis virgínibus prudéntibus et fátuis esse perhibétur. Sunt namque plerique continéntes, qui ab appetítu se exterióri custódiunt et spe ad interióra rapiúntur, carnem mácerant, et toto desidério ad supérnam pátriam anhélant, ætérna prǽmia éxpetunt, pro labóribus suis recípere laudes humánas nolunt. Hi nimírum glóriam suam non in ore hóminum ponunt, sed intra consciéntiam cóntegunt. Et sunt plerique, qui corpus per abstinéntiam afflígunt, sed de ipsa sua abstinéntia
+IN quinque autem córporis sénsibus unusquísque subsístit; geminátus autem quinárius denárium pérficit. Et quia ex utróque sexu fidélium multitúdo collígitur, sancta Ecclésia decem virgínibus símilis esse denuntiátur. In qua quia mali cum bonis et réprobi cum eléctis admíxti sunt, recte símilis virgínibus prudéntibus et fátuis esse perhibétur. Sunt namque plerique continéntes, qui ab appetítu se exterióri custódiunt et spe ad interióra rapiúntur, carnem mácerant, et toto desidério ad supérnam pátriam anhélant, ætérna prǽmia éxpetunt, pro labóribus suis recípere laudes humánas nolunt. Hi nimírum glóriam suam non in ore hóminum ponunt, sed intra consciéntiam cóntegunt. Et sunt plerique, qui corpus per abstinéntiam afflígunt, sed de ipsa sua abstinéntia humános favóres éxpetunt.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Hæc est Virgo sápiens, \* et una de número prudéntum.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Hæc est Virgo sápiens, \* quam Dóminus vigilántem invénit.
+
+**3** Hæc est quæ nescívit \* torum in delícto: habébit fructum in respectióne animárum sanctárum.
+
+**4** Veni, elécta mea, \* et ponam in te thronum meum, allelúja.
+
+**5** Ista est speciósa \* inter fílias Jerúsalem.
+
+#### Capitulum
+
+*2 Cor. 10, 17-18*
+
+FRATRES: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+#### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit,
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília,
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia.
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+\* Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sǽcula. Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+##### Pro Virgine Martyre
+
+**1 — Oratio**
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ N. Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.

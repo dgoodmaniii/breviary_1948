@@ -8791,3 +8791,53 @@ Qui confídunt in virtúte sua: \* et in multitúdine divitiárum suárum glori�
 Frater non rédimit, rédimet homo: \* non dabit Deo placatiónem suam.
 
 Et prétium redemptiónis ánimæ suæ: \* et laborábit in ætérnum, et vivet adhuc in finem.
+
+Non vidébit intéritum, cum víderit sapiéntes moriéntes: \* simul insípiens, et stultus períbunt.
+
+Et relínquent aliénis divítias suas: \* et sepúlcra eórum domus illórum in ætérnum.
+
+Tabernácula eórum in progénie et progénie: \* vocavérunt nómina sua in terris suis.
+
+Et homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis insipiéntibus, et símilis factus est illis.
+
+**Ant.** Os meum loquétur sapiéntiam: et meditátio cordis mei prudéntiam.
+
+**Ant.** Ne timúeris: \* cum dívite non descéndet in sepúlcrum glória ejus.
+
+###### Psalmus 48, ii
+
+HÆC via illórum scándalum ipsis: \* et póstea in ore suo complacébunt.
+
+Sicut oves in inférno pósiti sunt: \* mors depáscet eos.
+
+Et dominabúntur eórum justi in matutíno: \* et auxílium eórum veteráscet in inférno a glória eórum.
+
+Verúmtamen Deus rédimet ánimam meam de manu ínferi, \* cum accéperit me.
+
+Ne timúeris, cum dives factus fúerit homo: \* et cum multiplicáta fúerit glória domus ejus.
+
+Quóniam cum interíerit, non sumet ómnia: \* neque descéndet cum eo glória ejus.
+
+Quia ánima ejus in vita ipsíus benedicétur: \* confitébitur tibi cum beneféceris ei.
+
+Introíbit usque in progénies patrum suórum: \* et usque in ætérnum non vidébit lumen.
+
+Homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis insipiéntibus, et símilis factus est illis.
+
+**Ant.** Ne timúeris: cum dívite non descéndet in sepúlcrum glória ejus.
+
+#### In Festis novem Lectionum: Extra Tempus Paschale
+
+℣. Deus rédimet ánimam meam de manu ínferi. ℟. Cum accéperit me.
+
+#### In Festis novem Lectionum:
+
+##### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+℣. Deus suscitávit Christum a mórtuis, allelúja. ℟. Ut fides nostra et spes esset in Deo, allelúja.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.

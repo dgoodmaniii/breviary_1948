@@ -138,3 +138,76 @@ Ut fructuósa sint tuis
 Jejuniórum múnera. Amen.
 
 #### Tempore Passionis
+
+{RUBRIC: A Dominica Passionis usque ad Feriam IV Majoris Hebdomadæ inclusive, tam in dominicali quam in feriali Officio, dicitur quotidie sequens}
+
+**Invitat.** Hódie, si vocem Dómini audiéritis, \* Nolíte obduráre corda vestra. **Ps. 94** Veníte. [3]
+
+{RUBRIC: In quarto Psalmi versu non dicitur: Hódie, si vocem ejus audiéritis, nolíte obduráre corda vestra; sed, post repetitum a Choro Invitatorium, statim subjúngitur: Sicut in exacerbatióne.}
+
+{RUBRIC: In fine autem hujus Psalmi non dicitur Glória Patri toto Passiónis Témpore, quando fit Offícium Domínicæ aut Fériæ; sed repetitur Invitatórium, ut alias, in fine. Quod étiam servátur in Responsóriis ad Matutínum et in Responsóriis brévibus ad Horas minóres.}
+
+#### Hymnus
+
+PANGE, lingua, gloriósi
+Láuream certáminis,
+Et super Crucis tropháo
+Dic triúmphum nóbilem:
+Quáliter Redémptor orbis
+Immolátus vícerit.
+
+De paréntis protoplásti
+Fraude Factor condolens,
+Quando pomi noxiális
+In necem morsu ruit:
+Ipse lignum tunc notávit,
+Damna ligni ut sólveret.
+
+Hoc opus nostræ salútis
+Ordo depopóscerat;
+Multifórmis proditóris
+Ars ut artem fálleret,
+Et medélam ferret inde,
+Hostis unde læserat.
+
+Quando venit ergo sacri
+Plenitúdo témporis,
+Missus est ab arce Patris
+Natus, orbis Cónditor;
+Atque ventre virgináli
+Carne amíctus pródiit.
+
+Vagit infans inter arcta
+Cónditus præsépia:
+Membra pannis involúta
+Virgo Mater álligat:
+Et Dei manus pedésque
+Stricta cingit fáscia.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+#### Tempore Paschali
+
+{RUBRIC: A Dominica in Albis usque ad Vigíliam Ascensiónis inclusive, tam in dominicáli quam in feriáli Officio, dícitur quotídie sequens}
+
+**Invitat.** Surréxit Dóminus vere, \* Allelúja. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+REX sempitérne cælitum,
+Rerum Creátor ómnium,
+Æquális ante sæcula
+Semper Parénti Fílius:
+
+Nascénte qui mundo faber
+Imáginem vultus tui
+Tradens Adámo, nóbilem
+Limo jugásti spíritum.
+
+Cum livor et fraus dæmonis
+Fœdásset humánum genus:

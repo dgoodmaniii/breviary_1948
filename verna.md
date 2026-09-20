@@ -12539,3 +12539,72 @@ CHRISTUS resúrgens ex mórtuis jam non móritur, mors illi ultra non dominábit
 ℟. br. Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit. ℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
 
 {RUBRIC: Reliqua ut in Ordinario. 25}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Memor esto.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos.
+
+{RUBRIC: Feria V post Dom. Passionis}
+
+**Ant.** Pópule meus.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 73, i
+
+UT quid, Deus, repulísti in finem: \* irátus est furor tuus super oves páscuæ tuæ?
+
+Memor esto congregatiónis tuæ, \* quam possedísti ab inítio.
+
+Redemísti virgam hereditátis tuæ: \* mons Sion, in quo habitásti in eo.
+
+Leva manus tuas in supérbias eórum in finem: \* quanta malignátus est inimícus in sancto!
+
+Et gloriáti sunt qui odérunt te: \* in médio solemnitátis tuæ.
+
+Posuérunt signa sua, signa: \* et non cognovérunt sicut in éxitu super summum.
+
+Quasi in silva lignórum secúribus excidérunt jánuas ejus in idípsum: \* in secúri et áscia dejecérunt eam.
+
+Incendérunt igni Sanctuárium tuum: \* in terra polluérunt tabernáculum nóminis tui.
+
+Dixérunt in corde suo cognátio eórum simul: \* Quiéscere faciámus omnes dies festos Dei a terra.
+
+Signa nostra non vídimus, jam non est prophéta: \* et nos non cognóscet ámplius.
+
+###### Psalmus 73, ii
+
+USQUEQUO, Deus, improperábit inimícus: \* irrítat adversárius nomen tuum in finem?
+
+Ut quid avértis manum tuam, et déxteram tuam, \* de médio sinu tuo in finem?
+
+Deus autem Rex noster ante sæcula: \* operá-

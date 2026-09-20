@@ -16444,3 +16444,59 @@ De vínea Sodomórum, vínea eórum, \* et de suburbánis Gomórrhæ:
 Uva eórum uva fellis, \* et botri amaríssimi.
 
 Fel dracónum vinum eórum, \* et venénum áspidum insanábile.
+
+Nonne hæc cóndita sunt apud me, \* et signáta in thesáuris meis?
+
+Mea est últio, et ego retríbuam in témpore, \* ut labátur pes eórum:
+
+Juxta est dies perditiónis, \* et adésse festínant témpora.
+
+Judicábit Dóminus pópulum suum, \* et in servis suis miserébitur:
+
+Vidébit quod infirmáta sit manus, \* et clausi quoque defecérunt, residuíque consúmpti sunt.
+
+Et dicet: Ubi sunt dii eórum, \* in quibus habébant fidúciam?
+
+De quorum víctimis comedébant ádipes, \* et bibébant vinum libáminum:
+
+Surgant, et opituléntur vobis, \* et in necessitáte vos prótegant.
+
+Vidéte quod ego sim solus, \* et non sit álius Deus præter me:
+
+Ego occídam, et ego vívere fáciam: percútiam, et ego sanábo, \* et non est qui de manu mea possit erúere.
+
+Levábo ad cælum manum meam, et dicam: \* Vivo ego in ætérnum.
+
+Si acúero ut fulgur gládium meum, \* et arripúerit judícium manus mea:
+
+Reddam ultiónem hóstibus meis, \* et his qui odérunt me retríbuam.
+
+Inebriábo sagíttas meas sánguine, \* et gládius meus devorábit carnes,
+
+De cruóre occisórum, \* et de captivitáte, nudáti inimicórum cápitis.
+
+Laudáte, gentes, pópulum ejus, \* quia sánguinem servórum suórum ulciscétur:
+
+Et vindíctam retríbuet in hostes eórum, \* et propítius erit terræ pópuli sui.
+
+**Ant.** In servis suis miserébitur Dóminus: \* et propítius erit terræ pópuli sui.
+
+**Ant.** Laudáte. †
+
+### Sabbato sancto
+
+**Ant.** Atténdite, univérsi pópuli, et vidéte dolórem meum.
+
+**Ant.** A porta ínferi \* érue, Dómine, ánimam meam.
+
+### Canticum Ezechiæ
+
+###### Is. 38, 10-20
+
+EGO dixi: In dimídio diérum meórum \* vadam ad portas ínferi.
+
+Quæsívi resíduum annórum meórum. \* Dixi: Non vidébo Dóminum Deum in terra vivéntium.
+
+Non aspíciam hóminem ultra, \* et habitatórem quiétis.
+
+Generátio mea abláta est, et convolúta est a me, \* quasi tabernáculum pastórum.

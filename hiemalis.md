@@ -35397,3 +35397,51 @@ Possímus ut felíciter
 Exémpla patrum súbsequi. Amen.
 
 ℣. Hi viri misericórdiæ sunt, quorum pietátes non defuérunt. ℟. Semen eórum et glória eórum non derelinquétur.
+
+**Ad Magnif. Ant.** Nomen eórum \* pérmanet in ætérnum, pérmanens ad fílios eórum, sanctórum virórum glória.
+
+{RUBRIC: Et, in Quadragésima, fit Commemoratio Fériæ.}
+
+## Die 14 Februarii
+
+### S. Valentini
+
+{RUBRIC: Presbyteri et Martyris}
+
+{RUBRIC: Simplex} [29]
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti Valentíni Mártyris tui natalítia cólimus, a cunctis malis imminéntibus, ejus intercessióne, liberémur. Per Dóminum.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 44 de Sanctis}
+
+#### Lectio iii
+
+TRIUMPHÁLIS beáti Mártyris Valentíni dies hódie nobis anniversária celebritáte recúrrit; cujus glorificatióni sicut congáudet Ecclésia, sic ejus propónit sequénda vestígia. Si enim compátimur, et conglorificábimur. In cujus gloriósó agóne duo nobis præcípue consideránda sunt: induráta vidélicet tortóris sævítia, et Mártyris invícta patiéntia. Sævítia tortóris, ut eam detestémur; patiéntia Mártyris, ut eam imitémur. Audi Psalmístam advérsus malítiam increpántem: Noli æmulári in malignántibus, quóniam tamquam fœnum velóciter aréscent. Quod autem advérsus malignántes patiéntia exhibénda sit, audi Apóstolum suadéntem: Patiéntia vobis necessária est, ut reportétis promissiónes.
+
+{RUBRIC: Te Deum laudámus.}
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+## Die 15 Februarii
+
+### Ss. Faustini et Jovitæ
+
+{RUBRIC: Martyrum}
+
+{RUBRIC: Simplex} [49]
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.

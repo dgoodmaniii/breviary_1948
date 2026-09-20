@@ -44745,3 +44745,45 @@ Exsúrge, Dómine, in ira tua: \* et exaltáre in fínibus inimicórum meórum.
 Et exsúrge, Dómine, Deus meus, in præcépto quod mandásti: \* et synagóga populórum circúmdabit te.
 
 Et propter hanc in altum regrédere: \* Dóminus júdicat pópulos.
+
+Júdica me, Dómine, secúndum justítiam meam, \* et secúndum innocéntiam meam super me.
+
+Consumétur nequítia peccatórum, et díriges justum, \* scrutans corda et renes, Deus.
+
+Justum adjutórium meum a Dómino, \* qui salvos facit rectos corde.
+
+Deus judex justus, fortis, et pátiens: \* numquid iráscitur per síngulos dies?
+
+Nisi convérsi fuéritis, gládium suum vibrábit: \* arcum suum teténdit, et parávit illum.
+
+Et in eo parávit vasa mortis: \* sagíttas suas ardéntibus effécit.
+
+Ecce partúriit injustítiam: \* concépit dolórem, et péperit iniquitátem.
+
+Lacum apéruit, et effódit eum: \* et íncidit in fóveam quam fecit.
+
+Convertétur dolor ejus in caput ejus: \* et in vérticem ipsíus iníquitas ejus descéndet.
+
+Confitébor Dómino secúndum justítiam ejus: \* et psallam nómini Dómini altíssimi.
+
+Réquiem ætérnam.
+
+**Ant.** Nequándo rápiat ut leo ánimam meam, dum non est qui rédimat, neque qui salvum fáciat.
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+Pater noster, {RUBRIC: totum secréto.}
+
+{RUBRIC: Lectiónes legúntur sine Absolutióne, Benedictiónibus et Título.}
+
+**Lectio i** *Job 7, 16-21*
+
+PARCE mihi, Dómine; nihil enim sunt dies mei. Quid est homo, quia magníficas eum? aut quid appónis erga eum cor tuum? Vísitas eum dilúculo, et súbito probas illum. Usquequo non parcis mihi, nec dimíttis me, ut glútiam salívam meam? Peccávi, quid fáciam tibi, o custos hóminum? quare posuísti me contrárium tibi, et factus sum mihimetípsi gravis? Cur non tollis peccátum meum, et quare non aufers iniquitátem meam? Ecce nunc in púlvere dórmiam: et si mane me quæsíeris, non subsístam.
+
+{RUBRIC: Lectiónes termínantur sine Tu autem, vel alia conclusióne.}
+
+℟. Credo quod Redémptor meus vivit, et in novíssimo die de terra surrectúrus sum, \* Et in carne mea vidébo Deum, Salvatórem meum. ℣. Quem visúrus sum ego ipse, et non álius; et óculi mei conspectúri sunt. — Et.
+
+**Lectio ii** *Job 10, 1-12*
+
+TǼDET ánimam meam vitæ meæ, dimíttam advérsum me elóquium

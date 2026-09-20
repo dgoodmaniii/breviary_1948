@@ -9186,4 +9186,52 @@ Perambulábam in innocéntia cordis mei, \* in médio domus meæ.
 
 Non proponébam ante óculos meos rem injústam: \* faciéntes prævaricatiónes odívi.
 
-Non adhæsit mihi cor pravum: \* declinántem
+Non adhæsit mihi cor pravum: \* declinántem a me malígnum non cognoscébam.
+
+Detrahéntem secréto próximo suo, \* hunc persequébar.
+
+Supérbo óculo, et insatiábili corde, \* cum hoc non edébam.
+
+Oculi mei ad fidéles terræ ut sédeant mecum: \* ámbulans in via immaculáta, hic mihi ministrábat.
+
+Non habitábit in médio domus meæ qui facit supérbiam: \* qui lóquitur iníqua, non diréxit in conspéctu oculórum meórum.
+
+In matutíno interficiébam omnes peccatóres terræ: \* ut dispérderem de civitáte Dómini omnes operántes iniquitátem.
+
+**Ant.** Tibi, Dómine, psallam, et intélligam in via immaculáta.
+
+**Ant.** Dómine, magnus es tu, \* et præclárus in virtúte tua.
+
+## Canticum Judith
+
+###### Judith 16, 15-21
+
+HYMNUM cantémus Dómino, \* hymnum novum cantémus Deo nostro.
+
+Adonái, Dómine, magnus es tu, et præclárus in virtúte tua, \* et quem superáre nemo potest.
+
+Tibi sérviat omnis creatúra tua: \* quia dixísti, et facta sunt:
+
+Misísti spíritum tuum, et creáta sunt: \* et non est qui resístat voci tuæ.
+
+Montes a fundaméntis movebúntur cum aquis: \* petræ, sicut cera, liquéscent ante fáciem tuam.
+
+Qui autem timent te, \* magni erunt apud te per ómnia.
+
+Væ genti insurgénti super genus meum: Dóminus enim omnípotens vindicábit in eis, \* in die judícii visitábit illos.
+
+Dabit enim ignem, et vermes in carnes eórum, \* ut urántur, et séntiant usque in sempitérnum.
+
+**Ant.** Dómine, magnus es tu, et præclárus in virtúte tua.
+
+**Ant.** Laudábo Deum meum \* in vita mea.
+
+###### Psalmus 145
+
+LAUDA, ánima mea, Dóminum, laudábo Dóminum in vita mea: \* psallam Deo meo quámdiu fúero.
+
+Nolíte confídere in princípibus: \* in fíliis hóminum, in quibus non est salus.
+
+Exíbit spíritus ejus, et revertétur in terram suam: \* in illa die períbunt omnes cogitatiónes eórum.
+
+Beátus, cujus Deus Jacob adjútor ejus, spes ejus in Dómino, Deo ipsíus: \* qui fecit cælum et terram,

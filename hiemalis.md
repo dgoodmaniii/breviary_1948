@@ -36016,4 +36016,28 @@ CATHÓLICAM promovére fidem summópere stúduit, et Ruthenórum schísma abolé
 
 #### Lectio vi
 
-CONSUMMÁTUS in brevi, virtútibus et méritis plenus, prænuntiáto mortis die, inter sacerdótum et religiosórum choros spíritum Deo réddidit, anno ætátis vigésimo quinto. Corpus, Vilnam delátum, multis claret miráculis. Etenim prætérquam quod
+CONSUMMÁTUS in brevi, virtútibus et méritis plenus, prænuntiáto mortis die, inter sacerdótum et religiosórum choros spíritum Deo réddidit, anno ætátis vigésimo quinto. Corpus, Vilnam delátum, multis claret miráculis. Etenim prætérquam quod puélla defúncta vitam, cæci visum, claudi gressum et várii infírmi sanitátem ad ejus sepúlcrum recuperárunt; Lithuánis exíguo número ad potentíssimi hostis insperátam irruptiónem trepidántibus in áëre appárens, insígnem tríbuit victóriam. Quibus permótus Leo décimus eúmdem Sanctórum catálogo adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+CASIMÍRUS, Polóniæ regis fílius, a pueritía pietáte et bonis ártibus instrúctus, juveníles artus áspero domábat cilício, et assíduis extenuábat jejúniis. In Christi contemplánda passióne assíduus, oratiónis spíritum non relaxábat. Cathólicam fidem promovére, et Ruthenórum schisma abolére summópere stúduit. Erga páuperes et calamitátibus opréssos benéficus et miséricors, patris et defensóris egenórum nomen obtínuit. Virginitátem usque ad extrémum vitæ términum constánter servávit illǽsam. Consummátus in brevi, virtútibus et méritis plenus, prænuntiáto mortis die, spíritum Deo réddidit, anno ætátis vigésimo quinto. Eum, miráculis clarum, Leo décimus in Sanctórum número rétulit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi vestri, de Communi Conf. non Pont. 1 loco.} [98]
+
+{RUBRIC: In Quadragésima ix Lectio de Homilía Fériæ et fit ejus Commemoratio ad Laudes et in II Vésperis.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEUS, qui inter regáles delícias et mundi illécebras, sanctum Casimírum virtúte constántiæ roborásti: quǽsumus; ut, ejus intercessióne, fidéles tui terréna despíciant, et ad cæléstia semper aspírent. Per Dóminum.

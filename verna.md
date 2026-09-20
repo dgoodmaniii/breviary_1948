@@ -826,3 +826,33 @@ Nunc et per omne sæculum. Amen.
 **Capitulum** *1 Tim. 1, 17*
 
 REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In omnibus autem Feriis extra Tempus Paschale:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+{RUBRIC: Dicto Capitulo, subjungitur Responsorium breve, ut sequitur. Versus tamen Qui sedes ad déxteram Patris semper omittitur, quando specialis Versus adhibendus præscribitur, Officii nempe currentis, aut secus Officii ad Laudes et primo quidem loco inter cetera specialem Versum habentia commemorati, aut demum de occurrenti Octava communi vel de Tempore proprius.}
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. {RUBRIC: Et repetitur:} Christe, Fili Dei vivi, miserére nobis. ℣. Qui sedes ad déxteram Patris. ℟. Miserére nobis. ℣. Glória Patri, et Fílio, et Spirítui Sancto. ℟. Christe, Fili Dei vivi, miserére nobis. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: ¶ Ita dicuntur semper Responsoria brevia, etiam ad Tertiam, Sextam, Nonam et Completorium.}
+
+{RUBRIC: Tempore Passionis, in Officio dominicali et feriali, omittitur in Responsorio brevi Glória Patri, et hujus loco repetitur Responsorium, ut sequitur:}
+
+Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Christe, Fili Dei vivi. Miserére nobis.
+
+℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: Tempore Paschali dicitur sequens}
+
+℟. br. Christe, Fili Dei vivi, miserére nobis, \* Allelúja, allelúja. Christe. ℣. *Qui surrexísti a mórtuis.* Allelúja, allelúja. Glória Patri. Christe.
+
+℣. Exsúrge, Christe, ádjuva nos, allelúja. ℟. Et líbera nos propter nomen tuum, allelúja.
+
+{RUBRIC: Et sic dicitur Responsorium breve a Dominica in Albis usque ad Sabbatum infra Octavam Pentecostes inclusive, etiam in Festis; excepto Versu} Qui surrexísti a mórtuis, {RUBRIC: si alter Versus in Proprio de Tempore vel de Sanctis assignetur.}
+
+{RUBRIC: Expleto Responsorio brevi, si Preces non fuerint recitandæ, statim dicitur Versus} Dóminus vobíscum {RUBRIC: cum subsequenti Oratione et reliquis omnibus usque ad finem Horæ ut infra.}
+
+{RUBRIC: In quolibet Officio semiduplici, in Officio sanctæ Mariæ in Sabbato, in Festis simplicibus, atque in Feriis Temporis Paschalis post Responsorium breve dicuntur sequentes Preces dominicales; quæ tamen omittuntur in Vi-

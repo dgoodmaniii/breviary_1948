@@ -260,3 +260,53 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 ##### Absolutio
 
 EXÁUDI, Dómine Jesu Christe, preces servórum tuórum, et miserére nobis: Qui cum Patre et Spíritu Sancto vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+{RUBRIC: ¶ Extra Chorum, quando ab uno tantum recitatur Officium, ante singulas Lectiones Matutini atque ad Lectionem brevem Primæ et Completorii, dicitur: Jube, Dómine, benedícere; et subjungitur congruens Benedictio. Ab Episcopo autem, ultimam Matutini Lectionem cantaturo, item dicitur: Jube, Dómine, benedícere; et respondetur a Choro: Amen.}
+
+##### Pro i Lectione
+
+**Bened.** Benedictióne perpétua benedícat nos Pater ætérnus. ℟. Amen.
+
+{RUBRIC: Deinde dicuntur in unoquoque Nocturno Lectiones, prouti Officium occurrens requirit, et in fine cujuslibet Lectionis additur:}
+
+℣. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+{RUBRIC: Post quamlibet vero Lectionem, quæ Hymnum Te Deum immediate non præcedat, congruens dicitur Responsorium, et in fine ultimi Responsorii cujusque Nocturni additur Versus: Glória Patri, et Fílio, et Spirítui Sancto, et Responsorium ab Asterisco \*, et quidem a secundo, si duo fuerint, repetitur.}
+
+##### Pro ii Lectione
+
+**Bened.** Unigénitus Dei Fílius nos benedícere et adjuváre dignétur. ℟. Amen.
+
+##### Pro iii Lectione
+
+**Bened.** Spíritus Sancti grátia illúminet sensus et corda nostra. ℟. Amen.
+
+##### In II Nocturno
+
+{RUBRIC: Sub congruentibus item Antiphonis dicuntur tres Psalmi et Versus, sicut in I Nocturno.}
+
+{RUBRIC: Post Versum dicitur.}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+##### Absolutio
+
+IPSIUS píetas et misericórdia nos ádjuvet, qui cum Patre et Spíritu Sancto vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+##### Pro iv Lectione
+
+**Bened.** Deus Pater omnípotens sit nobis propítius et clemens. ℟. Amen.
+
+##### Pro v Lectione
+
+**Bened.** Christus perpétuæ det nobis gáudia vitæ. ℟. Amen.
+
+##### Pro vi Lectione
+
+**Bened.** Ignem sui amóris accéndat Deus in córdibus nostris. ℟. Amen.
+
+##### In III Nocturno

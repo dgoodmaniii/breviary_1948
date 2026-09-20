@@ -7721,3 +7721,62 @@ Exstíngue flammas lítium,
 Aufer calórem nóxium,
 Confer salútem córporum,
 Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Suscepísti me, Dómine.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos.
+
+{RUBRIC: Fer. III post Dom. Passionis}
+
+**Ant.** Pópule meus.
+
+{RUBRIC: Fer. III Majoris Hebdomadæ}
+
+**Ant.** Dum tribulárer.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 40
+
+BEATUS qui intélligit super egénum, et páuperem: \* in die mala liberábit eum Dóminus.
+
+Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra: \* et non tradat eum in ánimam inimicórum ejus.
+
+Dóminus opem ferat illi super lectum dolóris ejus: \* univérsum stratum ejus versásti in infirmitáte ejus.
+
+Ego dixi: Dómine, miserére mei: \* sana ánimam meam, quia peccávi tibi.
+
+Inimíci mei dixérunt mala mihi: \* Quando moriétur, et períbit nomen ejus?
+
+Et si ingrediebátur ut vidéret, vana loquebátur: \* cor ejus congregávit iniquitátem sibi.
+
+Egrediebátur foras, \* et loquebátur in idípsum.
+
+Advérsum me susurrábant omnes inimíci mei: \* advérsum me cogitábant mala mihi.
+
+Verbum iníquum constituérunt advérsum me: \* Numquid qui dormit non adjíciet ut resúrgat?
+
+Etenim homo pacis meæ, in quo sperávi: \* qui edébat panes meos, magnificávit super me supplantatiónem.
+
+Tu autem, Dómine, miserére mei, et resúscita me: \* et retríbuam eis.
+
+In hoc cognóvi quóniam voluísti me: \* quóniam non gaudébit inimícus meus super me.
+
+Me autem propter innocéntiam suscepísti: \* et confirmásti me in conspéctu tuo in ætérnum.
+
+Benedíctus Dóminus, Deus Israël, a sæculo et usque in sæculum: \* fiat, fiat.
+
+###### Psalmus 41, i
+
+QUEMADMODUM desíderat cervus ad fontes aquárum: \* ita desíderat ánima mea ad te, Deus.
+
+Sitívit ánima mea ad Deum fortem vivum: \* quando véniam, et apparébo ante fáciem Dei?

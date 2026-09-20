@@ -39093,3 +39093,103 @@ VERUM quod séquitur: Quóniam quæ in ténebris dixístis, in lúmine dicéntur
 DUO autem sunt génera persecutórum: unum palam sæviéntium, álterum ficte fraudulentérque blandiéntium. Contra utrúmque nos muníre atque institúere volens Salvátor, et supra ab hypócrisi pharisæórum atténdere, et hic a carníficum cæde prǽcipit non timére; quia vidélicet post mortem nec horum crudélitas, nec illórum váleat simulátio duráre. Nonne quinque pásseres véneunt dipóndio? Si minutíssima, inquit, animália, et quæ quólibet per áëra ferúntur volatília, Deus oblivísci non potest; vos, qui ad imáginem facti estis Creatóris, non debétis terréri ab his, qui occídunt corpus; quia, qui irrationabília animália gubérnat, rationabília curáre non désinit.
 
 {RUBRIC: Te Deum laudámus.}
+
+[IMAGE]
+
+# Commune Confessoris Pontificis
+
+### In I Vesperis
+
+**1** Ecce sacérdos magnus, \* qui in diébus suis plácuit Deo, et invéntus est justus.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolórum. [3]}
+
+**2** Non est invéntus \* símilis illi, qui conserváret legem Excélsi.
+
+**3** Ideo jurejurándo \* fecit illum Dóminus créscere in plebem suam.
+
+**4** Sacerdótes Dei, \* benedícite Dóminum: servi Dómini, hymnum dícite Deo, allelúja.
+
+**5** Serve bone \* et fidélis, intra in gáudium Dómini tui.
+
+### In II Vesperis
+
+###### Psalmus 131
+
+MEMÉNTO, Dómine, David, \* et omnis mansuetúdinis ejus:
+
+Sicut jurávit Dómino, \* votum vovit Deo Jacob:
+
+Si introíero in tabernáculum domus meæ, \* si ascéndero in lectum strati mei:
+
+Si dédero somnum óculis meis, \* et pálpebris meis dormitatiónem:
+
+Et réquiem tempóribus meis: donec invéniam locum Dómino, \* tabernáculum Deo Jacob.
+
+Ecce audívimus eam in Ephrata: \* invénimus eam in campis silvæ.
+
+Introíbimus in tabernáculum ejus: \* adorábimus in loco, ubi steterúnt pedes ejus.
+
+Surge, Dómine, in réquiem tuam, \* tu et arca sanctificatiónis tuæ.
+
+Sacerdótes tui induántur justítiam: \* et sancti tui exsúltent.
+
+Propter David, servum tuum, \* non avértas fáciem Christi tui.
+
+Jurávit Dóminus David veritátem, et non frustrábitur eam:bitur eam: \* De fructu ventris tui ponam super sedem tuam.
+
+Si custodíerint fílii tui testaméntum meum, \* et testimónia mea hæc, quæ docébo eos:
+
+Et fílii eórum usque in sǽculum, \* sedébunt super sedem tuam.
+
+Quóniam elégit Dóminus Sion: \* elégit eam in habitatiónem sibi.
+
+Hæc réquies mea in sǽculum sǽculi: \* hic habitábo quóniam elégi eam.
+
+Víduam ejus benedícens benedícam: \* páuperes ejus saturábo pánibus.
+
+Sacerdótes ejus índuam salutári: \* et sancti ejus exsultatióne exsultábunt.
+
+Illuc prodúcam cornu David, \* parávi lucérnam Christo meo.
+
+Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificátio mea.
+
+**Ant.** Serve bone et fidélis, intra in gáudium Dómini tui.
+
+#### Capit.
+
+*Eccli. 44, 16-17*
+
+ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+#### Hymnus
+
+ISTE Conféssor Dómini coléntes
+Quem pie laudant pópuli per orbem,
+Hac die lætus méruit beátas
+Scándere sedes.
+
+{RUBRIC: Si non est dies obitus (quod litteræ m. t. v. indicant in Proprio), dicátur:}
+
+Hac die lætus méruit suprémos
+Laudis honóres.
+
+Qui pius, prudens, húmilis, pudícus,
+Sóbriam duxit sine labe vitam,
+Donec humános animávit auræ
+Spíritus artus.
+
+Cujus ob prǽstans méritum frequénter,
+Ægra quæ passim jacuére membra,
+Víribus morbi dómitis, salúti
+Restituúntur.
+
+Noster hinc illi chorus obsequéntem
+Cóncinit laudem celebrésque palmas,
+Ut piis ejus précibus juvémur
+Omne per ævum.
+
+Sit salus illi, decus atque virtus,
+Qui, super cæli sólio corúscans,
+Tótius mundi sériem gubérnat
+Trinus et unus. Amen.

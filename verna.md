@@ -8269,3 +8269,73 @@ Mergúntur hostes flúctibus.
 
 Jam Pascha nostrum Christus est,
 Paschális idem víctima,
+Et pura puris méntibus
+Sinceritátis ázyma.
+
+O vera cæli víctima,
+Subjécta cui sunt tártara,
+Solúta mortis víncula,
+Recépta vitæ præmia.
+
+Victor, subáctis ínferis,
+Trophæa Christus éxplicat;
+Cælóque apérto, súbditum
+Regem tenebrárum trahit.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+{RUBRIC: Antiphona ad Magnificat ut in Proprio de Tempore.}
+
+{RUBRIC: Reliqua ut in Ordinario. 33}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dicitur totum secreto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Tu, Dómine.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja.
+
+###### Psalmus 11
+
+SALVUM me fac, Dómine, quóniam defécit sanctus: \* quóniam diminútæ sunt veritátes a fíliis hóminum.
+
+Vana locúti sunt unusquísque ad próximum suum: \* lábia dolósa, in corde et corde locúti sunt.
+
+Dispérdat Dóminus univérsa lábia dolósa, \* et linguam magníloquam.
+
+Qui dixérunt: Linguam nostram magnificábimus, lábia nostra a nobis sunt, \* quis noster Dóminus est?
+
+Propter misériam ínopum, et gémitum páuperum, \* nunc exsúrgam, dicit Dóminus.

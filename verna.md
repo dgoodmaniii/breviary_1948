@@ -12373,4 +12373,73 @@ MULTAE fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax 
 
 **Pro Dedicatione Ecclesiæ**
 
-ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+##### In Officiis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+---
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur tantum} Pater noster {RUBRIC: secreto, nisi sequatur alia Hora.}
+
+---
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Quam bonus. †
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Advenérunt nobis.
+
+{RUBRIC: Feria V post Dom. Passionis}
+
+**Ant.** Judicásti, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 72, i
+
+QUAM bonus † Israël Deus, \* his qui recto sunt corde!
+
+Mei autem pæne moti sunt pedes: \* pæne effúsi sunt gressus mei.
+
+Quia zelávi super iníquos, \* pacem peccatórum videns.
+
+Quia non est respéctus morti eórum: \* et firmaméntum in plaga eórum.
+
+In labóre hóminum non sunt, \* et cum homínibus non flagellabúntur:
+
+Ideo ténuit eos supérbia, \* opérti sunt iniquitáte et impietáte sua.
+
+Pródiit quasi ex ádipe iníquitas eórum: \* transiérunt in afféctum cordis.

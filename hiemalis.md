@@ -35602,4 +35602,28 @@ QUOD natális ergo Cáthedræ hódie cólitur, sacerdotále honorátur offícium
 
 {RUBRIC: Sermo 15 de Sanctis}
 
-INSTITÚTIO solemnitátis hodiérnæ a senióribus nostris Cáthedræ nomen accépit, ídeo quod primus Apostolórum Petrus hódie episcopátus cáthedram suscepísse referátur. Recte ergo ecclésiæ natálem Sedis illíus colunt, quam Apóstolus pro ecclesiárum salúte suscépit, dicénte Dómino: Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. Petrum ítaque fundaméntum Ecclésiæ Dóminus nominávit: et ídeo digne fundaméntum hoc Ecclésia colit, supra quod ecclesiástici ædifícii altitúdo consúrgit. Unde conve-
+INSTITÚTIO solemnitátis hodiérnæ a senióribus nostris Cáthedræ nomen accépit, ídeo quod primus Apostolórum Petrus hódie episcopátus cáthedram suscepísse referátur. Recte ergo ecclésiæ natálem Sedis illíus colunt, quam Apóstolus pro ecclesiárum salúte suscépit, dicénte Dómino: Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. Petrum ítaque fundaméntum Ecclésiæ Dóminus nominávit: et ídeo digne fundaméntum hoc Ecclésia colit, supra quod ecclesiástici ædifícii altitúdo consúrgit. Unde conve-niénter Psalmus, qui lectus est, dicit: Exáltent eum in ecclésia plebis, et in cáthedra seniórum laudent eum. Benedíctus Deus, qui beátum Petrum Apóstolum in Ecclésia exaltári præcépit: quia dignum est, ut fundaméntum hoc in Ecclésia honorétur, per quod ad cælum conscénditur. Quod natális ergo Cáthedræ hódie cólitur, sacerdotále honorátur offícium. Sibi hoc ecclésiæ ínvicem præstant, quia tanto necésse plus habet Ecclésia dignitátis, quanto sacerdotále offícium plus honóris.
+
+{RUBRIC: Te Deum laudámus.}
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ}
+
+{RUBRIC: Sermo 3 in annivers. assumpt. suæ, post init.}
+
+APÓSTOLOS Dóminus, quid de se hómines opinéntur, intérrogat: et támdiu sermo respondéntium commúnis est, quámdiu humánæ intelligéntiæ ambigúitas explicátur. At ubi quid hábeat sensus discipulórum exígitur, primus est in Dómini confessióne, qui primus est in apostólica dignitáte. Qui cum dixísset: Tu es Christus Fílius Dei vivi; respóndit ei Jesus: Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui in cælis est. Id est, Ideo beátus es, quia Pater meus te dócuit; nec terréna opínio te feféllit, sed inspirátio cæléstis instrúxit: et non caro et sanguis, sed ille me tibi, cujus sum unigénitus Fílius, indicávit.
+
+℟. Quem dicunt hómines esse Fílium hóminis? dixit Jesus discípulis suis. Respóndens Petrus dixit: Tu es Christus Fílius Dei vivi. \* Et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. ℣. Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et.
+
+#### Lectio viii
+
+ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excel-

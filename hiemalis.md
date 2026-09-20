@@ -37455,4 +37455,50 @@ SIMILITÚDO autem vultus eórum: fácies hóminis, et fácies leónis a dextris 
 
 #### Lectio iv
 
-SANCTA quátuor animália, quæ prophetíæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum dícitur: Quátuor fácies uni, et quátuor pennæ uni. Quid per fáciem, nisi notítia; et quid per pennas, nisi volátus exprimítur? Per fáciem quippe unusquísque cognóscitur: per pennas vero in altum ávium córpora sublevántur. Fácies ítaque ad fidem pértinet, penna ad contemplatiónem. Per fidem namque ab omnipoténti Deo cognóscimur, sicut ipse de suis óvibus dicit: Ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ. Qui rursus ait: Ego scio quos elégerim. Per
+SANCTA quátuor animália, quæ prophetíæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum dícitur: Quátuor fácies uni, et quátuor pennæ uni. Quid per fáciem, nisi notítia; et quid per pennas, nisi volátus exprimítur? Per fáciem quippe unusquísque cognóscitur: per pennas vero in altum ávium córpora sublevántur. Fácies ítaque ad fidem pértinet, penna ad contemplatiónem. Per fidem namque ab omnipoténti Deo cognóscimur, sicut ipse de suis óvibus dicit: Ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ. Qui rursus ait: Ego scio quos elégerim. Per contemplatiónem vero, qua super nosmetípsos tóllimur, quasi in áëra levámur.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio v
+
+QUÁTUOR ergo fácies uni sunt: quia si requíras, quid Matthǽus de incarnatióne Dómini séntiat: hoc nimírum sentit, quod Marcus, Lucas et Joánnes. Si quǽras, quid Joánnes séntiat; hoc prócul dúbio, quod Lucas, Marcus et Matthǽus. Si quǽras, quid Marcus; hoc quod Matthǽus, Joánnes et Lucas. Si quǽras, quid Lucas; hoc quod Joánnes, Matthǽus et Marcus sentit. Quátuor ergo fácies uni sunt: quia notítia fídei, qua cognoscúntur a Deo, ipsa est in uno, quæ est simul in quátuor. Quidquid enim in uno invéneris, hoc in ómnibus simul quátuor cognósces.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+ET quátuor pennæ uni: quia Dei omnipoténtis Fílium, Dóminum nostrum Jesum Christum, simul omnes concórditer prǽdicant: et ad divinitátem ejus mentis óculos levántes, penna contemplatiónis volant. Evangelistárum ergo fácies ad humanitátem Dómini pértinet, penna ad divinitátem: quia in eum, quem corpóreum aspíciunt, quasi fácies inténdunt; sed, dum hunc esse incircumscríptum atque incorpóreum ex divinitáte annúntiant, per contemplatiónis pennam quasi in áëra levántur. Quia ítaque una est fides incarnatiónis ejus in ómnibus, et par contemplátio divinitátis ejus in síngulis, recte nunc dícitur: Quátuor fácies uni, et quátuor pennæ uni.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 10, 1-9*
+
+IN illo témpore: Designávit Dóminus et álios septuagínta duos: et misit illos binos ante fáciem suam, in omnem civitátem et locum, quo erat ipse ventúrus. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 17 in Evang.}
+
+DOMINUS et Salvátor noster, fratres caríssimi, aliquándo nos sermónibus, aliquándo vero opéribus ádmonet. Ipsa étenim facta ejus præcépta sunt: quia, dum áliquid tácitus facit, quid ágere debeámus innotéscit. Ecce enim, binos in prædicatiónem discípulos mittit: quia duo sunt præcépta caritátis, Dei vidélicet amor, et próximi: et minus quam inter duos cáritas habéri non potest. Nemo enim próprie ad semetípsum habére caritátem dícitur: sed diléctio in álterum tendit, ut cáritas esse possit.
+
+##### Pro Evangelistis
+
+℟. Isti sunt, qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+##### Pro Confessore Pontifice
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Pro Conf. non Pontifice
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+ECCE enim, binos ad prædicándum discípulos Dóminus mittit: quátenus hoc nobis tácitus ínnuat, quia qui caritátem erga álterum non habet, prædicatiónis offícium suscípere nullátenus de-

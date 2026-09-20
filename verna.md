@@ -18777,4 +18777,20 @@ IN illo témpore: Dixit Jesus turbis Judæórum, et princípibus sacerdótum par
 
 PLERIQUE várias significatiónes de víneæ appellatióne derívant: sed evidénter Isaías víneam Dómini Sábaoth, domum Israël esse memorávit. Hanc víneam quis álius, nisi Deus, cóndidit? Hic est ergo qui eam locávit colónis, et ipse péregre fuit: non quia ex loco ad locum proféctus est Dóminus, qui ubíque semper præsens est: sed quia est præséntior diligéntibus, negligéntibus abest. Multis tempóribus ábfuit, ne præprópera vidérétur exáctio. Nam quo indulgéntior liberálitas, eo inexcusabílior pervicácia.
 
-℟. Dum exíret Jacob de terra sua, vidit glóriam Dei, et ait: Quam terrí-
+℟. Dum exíret Jacob de terra sua, vidit glóriam Dei, et ait: Quam terríbilis est locus iste! \* Non est hic áliud, nisi domus Dei, et porta cæli. ℣. Vere Deus est in loco isto, et ego nesciébam. — Non.
+
+#### Lectio ii
+
+UNDE bene secúndum Matthǽum habes, quia et sepem circúmdedit: hoc est, divínæ custódiæ munitióne vallávit, ne fácile spiritálium paréret incúrsibus bestiárum. Et fodit in ea tórcular. Quómodo intellígimus quid sit tórcular, nisi forte quia Psalmi pro torculáribus inscribúntur; eo quod in his mystéria Domínicæ passiónis, modo musti Sancto ferveéntis Spíritu, redundántius æstuáverint? Unde ébrii putabántur, quibus Spíritus Sanctus inundábat. Ergo et hic fodit tórcular, in quod uvæ ratinábilis fructus intérior spiritáli infusióne deflúeret.
+
+℟. Si Dóminus Deus meus fúerit mecum in via ista, per quam ego ámbulo, et custodíerit me, et déderit mihi panem ad edéndum, et vestiméntum quo opériar, et revocáverit me cum salúte: \* Erit mihi Dóminus in refúgium, et lapis iste in signum. ℣. Surgens ergo mane Jacob, tulit lápidem quem supposúerat cápiti suo, et eréxit in títulum, fundénsque óleum désuper, dixit. — Erit.
+
+#### Lectio iii
+
+ÆDIFICAVIT turrim, vérticem scílicet legis attóllens: atque ita hanc víneam munítam, instrúctam, ornátam, locávit Judǽis. Et témpore frúctuum sérvulos misit. Bene tempus frúctuum pósuit, non provéntuum. Nullus enim fructus éxstitit Judæórum, nullus víneæ hujus provéntus, de qua Dóminus ait: Exspectávi ut fáceret uvas, fecit autem spinas. Itaque non lætítiæ vino, non spiritáli musto, sed cruénto Prophetárum sánguine torculária redundárunt.
+
+℟. Erit mihi Dóminus in Deum, et lapis iste quem eréxi in títulum, vocábitur domus Dei: et de univérsis quæ déderis mihi, \* Décimas et hóstias pacíficas ófferam tibi. ℣. Si revérsus fúero próspere ad domum patris mei. — Décimas. Glória Patri. Décimas.
+
+℣. Angelis suis, ut supra.
+
+**Ad Bened. Ant.** Malos male perdet, \* et víneam suam locábit áliis agrícolis, qui reddant ei fructum tempóribus suis.

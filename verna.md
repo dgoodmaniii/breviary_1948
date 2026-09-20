@@ -6646,3 +6646,75 @@ Ne síleas: quóniam ádvena ego sum apud te, et peregrínus, \* sicut omnes pat
 Remítte mihi, ut refrígerer priúsquam ábeam, \* et ámplius non ero.
 
 {RUBRIC: Gl.}
+
+#### Extra Tempus Paschale
+
+**Ant.** Amove, Dómine, a me plagas tuas.
+
+#### In Festis extra Tempus Paschale
+
+℣. Deus, ne síleas a me, remítte mihi. ℟. Quóniam íncola ego sum apud te, et peregrínus.
+
+#### In feriali Officio Quadragesimæ
+
+℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+#### In feriali Officio Tempore Passionis
+
+℣. De ore leónis líbera me, Dómine. ℟. Et a córnibus unicórnium humilitátem meam.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+#### In Festis novem Lectionum:
+
+℣. Deus et Dóminum suscitávit, allelúja. ℟. Et nos suscitábit per virtútem suam, allelúja.
+
+#### In Officiis trium Lectionum
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+#### In Officio novem Lectionum
+
+**Absolutio** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absolutio.** Ipsíus píetas et.
+
+##### In Feriis, cum Homilia:
+
+**Bened.** 1 Evangélica léctio. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis, sine Homilia:
+
+**Bened.** 1 Deus Pater. 2 Christus perpétuæ. 3 Ignem sui amóris.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+## Ad Laudes I
+
+*In Feriis Temporis Paschalis, atque in Festis extra et intra Tempus Paschale celebrandis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+#### Extra Tempus Paschale
+
+**Ant.** Cantáte \* † Dómino, et benedícite nómini ejus.
+
+#### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 95
+
+CANTATE † Dómino cánticum novum: \* cantáte Dómino, omnis terra.

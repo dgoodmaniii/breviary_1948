@@ -14346,3 +14346,63 @@ Sint pura cordis íntima,
 Absístat et vecórdia:
 Carnis terat supérbiam
 Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Ne discédas a me.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Vivo ego.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 21, i
+
+DEUS, Deus meus, réspice in me: quare me dereliquísti? \* longe a salúte mea verba delictórum meórum.
+
+Deus meus, clamábo per diem, et non exáudies: \* et nocte, et non ad insipiéntiam mihi.
+
+Tu autem in sancto hábitas, \* laus Israël.
+
+In te speravérunt patres nostri: \* speravérunt, et liberásti eos.
+
+Ad te clamavérunt, et salvi facti sunt: \* in te speravérunt, et non sunt confúsi.
+
+Ego autem sum vermis, et non homo: \* oppróbrium hóminum, et abjéctio plebis.
+
+Omnes vidéntes me, derisérunt me: \* locúti sunt lábiis, et movérunt caput.
+
+Sperávit in Dómino, éripiat eum: \* salvum fáciat eum, quóniam vult eum.
+
+Quóniam tu es, qui extraxísti me de ventre: \* spes mea ab ubéribus matris meæ. In te projéctus sum ex útero:
+
+De ventre matris meæ Deus meus es tu, \* ne discésseris a me.
+
+Quóniam tribulátio próxima est: \* quóniam non est qui ádjuvet.
+
+###### Psalmus 21, ii
+
+CIRCUMDEDERUNT me vítuli multi: \* tauri pingues obsedérunt me.
+
+Aperuérunt super me os suum, \* sicut leo rápiens et rúgiens.
+
+Sicut aqua effúsus sum: \* et dispérsa sunt ómnia ossa mea.
+
+Factum est cor meum tamquam cera liquéscens \* in médio ventris mei.
+
+Aruit tamquam testa virtus mea, et lingua mea adhæsit fáucibus meis: \* et in púlverem mortis deduxísti me.
+
+Quóniam circumdedérunt me canes multi: \* concílium malignántium obsédit me.
+
+Fodérunt manus meas et pedes meos: \* dinumeravérunt ómnia ossa mea.

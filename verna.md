@@ -7780,3 +7780,51 @@ Benedíctus Dóminus, Deus Israël, a sæculo et usque in sæculum: \* fiat, fia
 QUEMADMODUM desíderat cervus ad fontes aquárum: \* ita desíderat ánima mea ad te, Deus.
 
 Sitívit ánima mea ad Deum fortem vivum: \* quando véniam, et apparébo ante fáciem Dei?
+
+Fuérunt mihi lácrimæ meæ panes die ac nocte: \* dum dícitur mihi quotídie: Ubi est Deus tuus?
+
+Hæc recordátus sum, et effúdi in me ánimam meam: \* quóniam transíbo in locum tabernáculi admirábilis, usque ad domum Dei.
+
+In voce exsultatiónis, et confessiónis: \* sonus epulántis.
+
+Quare tristis es, ánima mea? \* et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+###### Psalmus 41, ii
+
+AD meípsum ánima mea conturbáta est: \* proptérea memor ero tui de terra Jordánis, et Hermóniim a monte módico.
+
+Abýssus abýssum ínvocat, \* in voce cataractárum tuárum.
+
+Omnia excélsa tua, et fluctus tui \* super me transiérunt.
+
+In die mandávit Dóminus misericórdiam suam: \* et nocte cánticum ejus.
+
+Apud me orátio Deo vitæ meæ, \* dicam Deo: Suscéptor meus es.
+
+Quare oblítus es mei? \* et quare contristátus incédo, dum afflígit me inimícus?
+
+Dum confringúntur ossa mea, \* exprobravérunt mihi qui tríbulant me inimíci mei.
+
+Dum dicunt mihi per síngulos dies: Ubi est Deus tuus? \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Suscepísti me, Dómine: et confirmásti me in conspéctu tuo.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos in multa patiéntia, in jejúniis multis, per arma justítiæ.
+
+**Capitulum** *Is. 55, 7*
+
+DERELINQUAT ímpius viam suam, et vir iníquus cogitatiónes suas, et revertátur ad Dóminum, et miserébitur ejus, et ad Deum nostrum, quóniam multus est ad ignoscéndum.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis.
+
+℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.

@@ -12931,3 +12931,57 @@ Quia illic interrogavérunt nos, qui captívos duxérunt nos, \* verba cantiónu
 Et qui abduxérunt nos: \* Hymnum cantáte nobis de cánticis Sion.
 
 Quómodo cantábimus cánticum Dómini: \* in terra aliéna?
+
+Si oblítus fúero tui, Jerúsalem, \* oblivióni detur déxtera mea.
+
+Adhǽreat lingua mea fáucibus meis, \* si non memínero tui:
+
+Si non proposúero Jerúsalem, \* in princípio lætítiæ meæ.
+
+Memor esto, Dómine, filiórum Edom, \* in die Jerúsalem:
+
+Qui dicunt: Exinaníte, exinaníte: \* usque ad fundaméntum in ea.
+
+Fília Babylónis mísera: \* beátus, qui retríbuet tibi retributiónem tuam, quam retribuísti nobis.
+
+Beátus, qui tenébit, \* et allídet párvulos tuos ad petram.
+
+**Ant.** Adhǽreat lingua mea fáucibus meis, si non memínero tui, Jerúsalem.
+
+**Ant.** Confitébor \* †nómini tuo, Dómine, super misericórdia et veritáte tua.
+
+###### Psalmus 137
+
+CONFITEBOR † tibi, Dómine, in toto corde meo: \* quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi: \* adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua: \* quóniam magnificásti super omne nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me: \* multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ: \* quia audiérunt ómnia verba oris tui:
+
+Et cantent in viis Dómini: \* quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit: \* et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me: \* et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me: \* Dómine, misericórdia tua in sæculum: ópera mánuum tuárum ne despícias.
+
+### Extra Tempus Paschale
+
+**Ant.** Confitébor nómini tuo, Dómine, super misericórdia et veritáte tua.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Capitulum** *Joel 2, 17*
+
+INTER vestíbulum et altáre plorábunt sacerdótes, minístri Dómini, et dicent: Parce, Dómine, parce pópulo tuo: et ne des hereditátem tuam in

@@ -43388,3 +43388,34 @@ Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: or
 Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
 
 Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte. Glória Patri.
+
+**Ant.** Post partum, Virgo, invioláta permansísti: Dei Génitrix, intercéde pro nobis.
+
+{RUBRIC: In Advéntu Ant.} Ángelus Dómini nuntiávit Maríæ, et concépit de Spíritu Sancto.
+
+℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+**Absolutio.** A vínculis.
+
+**Benedictio.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+*Cap. 11, 27-28*
+
+IN illo témpore: Loquénte Jesu ad turbas, extóllens vocem quǽdam múlier de turba dixit illi: Beátus venter qui te portávit. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+
+{RUBRIC: Liber 4, cap. 49 in Luc. 11}
+
+AGNÆ devotiónis et fídei hæc múlier osténditur, quæ, scribis et pharisǽis Dóminum tentántibus simul et blasphemántibus, tanta ejus incarnatiónem præ ómnibus sinceritáte cognóscit, tanta fidúcia confitétur, ut et præséntium prócerum calúmniam, et futurórum confúndat hæreticórum perfídiam. Nam, sicut tunc Judǽi, Sancti Spíritus ópera blasphemándo, verum consubstantialémque Patri Dei Fílium negábant: sic hærétici póstea, negándo Maríam semper Vírginem, Sancti Spíritus operánte virtúte, nascitúro cum humánis membris Unigénito Dei, carnis suæ matériam ministrásse, verum consubstantialémque matri Fílium hóminis fatéri non debére dixérunt.
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima: \* Quia ex te ortus est sol justítiæ, Christus, Deus noster. ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam festivitátem. — Quia.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+#### Lectio viii
+
+SED, si caro Verbi Dei secúndum carnem nascéntis a carne Vírginis matris pronuntiátur extránea, sine causa venter qui eam portásset, úbera quæ lactássent, beatificántur. Dicit autem Apóstolus: Quia misit Deus Fílium suum factum ex muliére, factum sub lege. Neque audiéndi sunt, qui legéndum putant: Natum ex muliere, factum sub

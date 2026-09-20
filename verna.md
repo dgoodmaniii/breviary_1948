@@ -17990,3 +17990,41 @@ Novum canámus cánticum. Amen.
 #### Oratio
 
 DEUS, qui Ecclésiam tuam ánnua Quadragesimáli observatióne puríficas: præsta famíliæ tuæ; ut, quod a te obtinére abstinéndo nítitur, hoc bonis opéribus exsequátur. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Jesus autem \* cum jejunásset quadragínta diébus et quadragínta nóctibus, póstea esúriit.
+
+{RUBRIC: Psalmi 92 Dóminus regnávit et 99 Jubiláte (e Laudibus 1 loco) 49, deinde 118 Beáti immaculáti et Retríbue ut in Psalterio 59: qui dicuntur etiam in Dominicis sequentibus, usque ad Dominicam Palmarum inclusive. Ad absolutionem vero Capituli in Officio de Tempore, ab hac Dominica usque ad Sabbatum ante Dominicam Passionis inclusive Lectio brevis Quærite Dóminum, de Tempore Quadragesimæ, ut in Psalterio. 62}
+
+### Ad Tertiam
+
+**Ant.** Tunc assúmpsit \* eum diábolus in sanctam civitátem, et státuit eum supra pinnáculum templi, et dixit ei: Si Fílius Dei es, mitte te deórsum.
+
+**Capitulum** *2 Cor. 6, 1-2*
+
+FRATRES: Hortámur vos, ne in vácuum grátiam Dei recipiátis. Ait enim: Témpore accépto exaudívi te, et in die salútis adjúvi te.
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse. ℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+#### Oratio
+
+DEUS, qui Ecclésiam tuam ánnua Quadragesimáli observatióne puríficas: præsta famíliæ tuæ; ut, quod a te obtinére abstinéndo nítitur, hoc bonis opéribus exsequátur. Per Dóminum.
+
+### Ad Sextam
+
+**Ant.** Non in solo pane \* vivit homo, sed in omni verbo, quod procédit de ore Dei.
+
+**Capitulum** *2 Cor. 6, 2-3*
+
+ECCE nunc tempus acceptábile, ecce nunc dies salútis: némini dantes ullam offensiónem, ut non vituperétur ministérium nostrum.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis. ℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+### Ad Nonam
+
+**Ant.** Dóminum Deum tuum \* adorábis, et illi soli sérvies.
+
+**Capitulum** *2 Cor. 6, 9-10*
+
+UT castigáti, et non mortificáti: quasi tristes, semper autem gaudéntes: sicut egéntes, multos autem locupletántes: tam-

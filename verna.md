@@ -15554,3 +15554,79 @@ Jejuniórum múnera. Amen.
 {RUBRIC: In quarto Ps. versu non dicitur: Hódie, si vocem; sed, post repetitum Invitatorium, statim subjungitur: Sicut in exacerbatióne.}
 
 {RUBRIC: In fine autem hujus Ps. non dicitur} Glória Patri; {RUBRIC: sed repetitur Invitatorium.}
+
+#### Hymnus
+
+PANGE, lingua, gloriósi
+Láuream certáminis,
+Et super Crucis trophǽo
+Dic triúmphum nóbilem:
+Quáliter Redémptor orbis
+Immolátus vícerit.
+
+De paréntis protoplásti
+Fraude Factor cóndolens,
+Quando pomi noxiális
+In necem morsu ruit:
+Ipse lignum tunc notávit,
+Damna ligni ut sólveret.
+
+Hoc opus nostræ salútis
+Ordo depopóscerat;
+Multifórmis proditóris
+Ars ut artem fálleret,
+Et medélam ferret inde,
+Hostis unde læserat.
+
+Quando venit ergo sacri
+Plenitúdo témporis,
+Missus est ab arce Patris
+Natus, orbis Cónditor;
+Atque ventre virgináli
+Carne amíctus pródiit.
+
+Vagit infans inter arcta
+Cónditus præsépia:
+Membra pannis involúta
+Virgo Mater álligat:
+Et Dei manus pedésque
+Stricta cingit fáscia.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas. Amen.
+
+### In I Nocturno
+
+### Extra Tempus Paschale
+
+**Ant.** Memor fuit in sæculum \* testaménti sui Dóminus, Deus noster.
+
+### Tempore Paschali
+
+**Ant.** Allelúja, \* allelúja, allelúja.
+
+###### Psalmus 104, i
+
+CONFITEMINI Dómino, et invocáte nomen ejus: \* annuntiáte inter gentes ópera ejus.
+
+Cantáte ei, et psállite ei: \* narráte ómnia mirabília ejus.
+
+Laudámini in nómine sancto ejus: \* lætétur cor quæréntium Dóminum.
+
+Quærite Dóminum, et confirmámini: \* quærite fáciem ejus semper.
+
+Mementóte mirabílium ejus, quæ fecit: \* prodígia ejus, et judícia oris ejus.
+
+Semen Abraham, servi ejus: \* fílii Jacob, elécti ejus.
+
+Ipse Dóminus Deus noster: \* in univérsa terra judícia ejus.
+
+Memor fuit in sæculum testaménti sui: \* verbi, quod mandávit in mille generatiónes:
+
+Quod dispósuit ad Abraham: \* et jurámenti sui ad Isaac:
+
+Et státuit illud Jacob in præcéptum: \* et Israël in testaméntum ætérnum:

@@ -211,3 +211,52 @@ Limo jugásti spíritum.
 
 Cum livor et fraus dæmonis
 Fœdásset humánum genus:
+Tu, carne amíctus, pérditam
+Formam refórmas ártifex.
+
+Qui, natus olim e Vírgine,
+Nunc e sepúlcro násceris,
+Tecúmque nos a mórtuis
+Jubes sepúltos súrgere.
+
+Qui, pastor ætérnus, gregem
+Aqua lavas baptísmatis:
+Hæc est lavácrum méntium:
+Hæc est sepúlcrum críminum.
+
+Nobis diu qui débitæ
+Redémptor affíxus cruci,
+Nostræ dedísti pródigus
+Prétium salútis sánguinem.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+{RUBRIC: ¶ Sic terminantur omnes Hymni ejusdem metri usque ad Vigiliam Ascensionis inclusive, etiam in Officiis Sanctorum, nisi Conclusio magis propria sit in eis adhibenda.}
+
+#### In Festis
+
+{RUBRIC: In Officio cujuslibet Festi vel Octavæ, ac sanctæ Mariæ in Sabbato, Invitatorium et Hymnus ut in Proprio vel Communi; in Dominica autem infra Octavam Ascensionis et in Feria VI post Octavam Ascensionis, si de eis fiat Officium, atque in Vigilia Pentecostes, Invitatorium et Hymnus ut in Proprio de Tempore. Quæ norma ad reliquas item Horas erit observanda pro illis Officii partibus, quæ juxta Rubricas ex Ordinario vel Psalterio non fuerint in Festis desumendæ.}
+
+#### In Officio novem Lectionum
+
+{RUBRIC: Expleto Hymno, dicuntur Antiphonæ convenientes, quæ in Officiis ritus duplicis ante et post Psalmos integræ recitantur; in Officiis autem ritus semiduplicis initio Psalmi inchoantur tantum et usque ad Asteriscum \* perducuntur, atque in fine integræ pronuntiantur; servata alterutra norma etiam in omnibus Antiphonis, quæ ad Laudes ac Vesperas adhibentur.}
+
+##### In I Nocturno
+
+{RUBRIC: Sub congruentibus Antiphonis dicuntur tres Psalmi, ac deinde subjungitur Versus, prouti Officium occurrens requirit.}
+
+{RUBRIC: Post Versum cujuslibet Nocturni dicitur}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+##### Absolutio
+
+EXÁUDI, Dómine Jesu Christe, preces servórum tuórum, et miserére nobis: Qui cum Patre et Spíritu Sancto vivis et regnas in sæcula sæculórum. ℟. Amen.

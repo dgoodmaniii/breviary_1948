@@ -38048,3 +38048,82 @@ IN illo témpore: Dixit Jesus turbis: Si quis venit ad me, et non odit patrem su
 SI considerémus, fratres caríssimi, quæ et quanta sunt, quæ nobis promittúntur in cælis, viléscunt ánimo ómnia quæ habéntur in terris. Terréna namque substántia, supérnæ felicitáti comparáta, pondus est, non subsídium. Temporális vita, ætérnæ vitæ comparáta, mors est pótius dicénda quam vita. Ipse enim quotidiánus deféctus corruptiónis quid est áliud quam quǽdam prolíxitas mortis? Quæ autem lingua dícere, vel quis intelléctus cápere súfficit, illa supérnæ civitátis quanta sint gáudia; Angelórum chóris interésse, cum beatíssimis spirítibus glóriæ Conditóris assístere, præséntem Dei vultum cérnere, incircumscríptum lumen vidére, nullo mortis metu áffici, incorruptiónis perpétuæ múnere lætári?
 
 ℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+**Benedictio.** Cujus festum cólimus.
+
+#### Lectio viii
+
+SED ad hæc audíta inardéscit ánimus, jamque illic cupit assístere, ubi se sperat sine fine gaudére. Sed ad magna prǽmia perveníri non potest, nisi per magnos labóres. Unde et Paulus egrégius prædicátor dicit: Non coronábitur, nisi qui legítime certáverit. Deléctet ergo mentem magnitúdo prǽmiórum, sed non detérreat certámen labórum. Unde ad se veniéntibus Véritas dicit: Si quis venit ad me, et non odit patrem suum, et matrem, et uxórem, et fílios, et fratres, et soróres, adhuc autem et ánimam suam, non potest meus esse discípulus.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+{RUBRIC: Sequens Responsórium dícitur, loco præcedéntis, in Offício uníus Mártyris, qui non effúso sánguine occúbuerit.}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sǽculum sǽculi. — Posuísti. Glória Patri. Posuísti.
+
+**Benedictio.** Ad societátem.
+
+#### Lectio ix
+
+SED percontári libet, quómodo paréntes et carnáliter propínquos præcípimur odísse, qui jubémur et inimícos dilígere? Et certe Véritas de uxóre dicit: Quod Deus conjúnxit, homo non séparet. Et Paulus ait: Viri, dilígite uxóres vestras, sicut et Christus Ecclésiam. Ecce discípulus uxórem diligéndam prǽdicat, cum magíster dicat: Qui uxórem non odit, non potest meus esse discípulus. Numquid áliud judex núntiat, áliud præco clamat? An simul et odísse póssumus, et dilígere? Sed si vim præcépti perpéndimus, utrúmque ágere per discretiónem valémus: ut uxórem et eos, qui nobis carnis co-gnatióne conjúncti sunt, et quos próximos nóvimus, diligámus; et quos adversários in via Dei pátimur, odiéndo et fugiéndo nesciámus.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**1** Qui me conféssus fúerit \* coram homínibus, confitébor et ego eum coram Patre meo.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Qui séquitur me, \* non ámbulat in ténebris, sed habébit lumen vitæ, dicit Dóminus.
+
+**3** Qui mihi minístrat, \* me sequátur: et ubi ego sum, illic sit et miníster meus.
+
+**4** Si quis mihi ministráverit, \* honorificábit eum Pater meus, qui est in cælis, dicit Dóminus.
+
+**5** Volo, Pater, \* ut, ubi ego sum, illic sit et miníster meus.
+
+#### Capitulum
+
+*Jac. 1, 12*
+
+BEÁTUS vir, qui suffert tentatiónem: quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+#### Hymnus
+
+INVÍCTE Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tædium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vínclis sæculi,
+Dono supérni Núminis.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+##### Pro Martyre et Pontifice
+
+**1 — Oratio**
+
+INFIRMITÁTEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti N. Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+**2 — Alia Oratio**
+
+DEUS, qui nos beáti N. Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.

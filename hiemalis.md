@@ -41356,3 +41356,51 @@ Carnem domans jejúniis,
 Dulcíque mentem pábulo
 Oratiónis nútriens,
 Cæli potítur gáudiis.
+
+REX Christe, virtus fórtium,
+Qui magna solus éfficis,
+Hujus precátu, quǽsumus,
+Audi benígnus súpplices.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+**Ad Magnif. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+### In II Vesperis
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Manum suam \* apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+##### Pro Martyre tantum
+
+**1 — Oratio**
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ N. Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+##### Pro nec Virgine nec Mart.
+
+**2 — Oratio**
+
+EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Si fuerint plures Martyres non Virgines, in utrisque Vesperis Versus, Ant. ad Magníficat et Orátio, ut sequitur:}
+
+℣. Glória et honóre coronásti eas, Dómine. ℟. Et constituísti eas super ópera mánuum tuárum.
+
+**Ad Magnif. Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**3 — Oratio**
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum N. et N. palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Laudémus Deum nostrum \* In confessióne beátæ N.

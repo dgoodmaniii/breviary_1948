@@ -38010,3 +38010,41 @@ Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sæculum, et in
 Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
 
 Quóniam dabis eum in benedictiónem in sæculum sæculi: \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis: \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui: \* Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes: \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala: \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum: \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Posuísti, Dómine, super caput ejus corónam de lápide pretióso.
+
+℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+**Absolutio.** A vínculis.
+
+**Benedictio.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 14, 26-33*
+
+IN illo témpore: Dixit Jesus turbis: Si quis venit ad me, et non odit patrem suum, et matrem, et uxórem, et fílios, et fratres, et soróres, adhuc autem et ánimam suam, non potest meus esse discípulus. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 37 in Evang.}
+
+SI considerémus, fratres caríssimi, quæ et quanta sunt, quæ nobis promittúntur in cælis, viléscunt ánimo ómnia quæ habéntur in terris. Terréna namque substántia, supérnæ felicitáti comparáta, pondus est, non subsídium. Temporális vita, ætérnæ vitæ comparáta, mors est pótius dicénda quam vita. Ipse enim quotidiánus deféctus corruptiónis quid est áliud quam quǽdam prolíxitas mortis? Quæ autem lingua dícere, vel quis intelléctus cápere súfficit, illa supérnæ civitátis quanta sint gáudia; Angelórum chóris interésse, cum beatíssimis spirítibus glóriæ Conditóris assístere, præséntem Dei vultum cérnere, incircumscríptum lumen vidére, nullo mortis metu áffici, incorruptiónis perpétuæ múnere lætári?
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.

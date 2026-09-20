@@ -32542,7 +32542,7 @@ ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur? c
 
 {RUBRIC: Capitulum} *Act. 9, 1-2*
 
-SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.sit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.
+SAULUS adhuc spirans minárum et cædis in discípulos Dómini, accéssit ad príncipem sacerdótum, et pétiit ab eo epístolas in Damáscum ad synagógas; ut, si quos invenísset hujus viæ viros ac mulíeres, vinctos perdúceret in Jerúsalem.
 
 #### Hymnus
 
@@ -36680,7 +36680,7 @@ FRATRES: Jam non estis hóspites, et ádvenæ; sed estis cives Sanctórum, et do
 
 EXSÚLTET orbis gáudiis, Cælum resúltet láudibus: Apostolórum glóriam Tellus et astra cóncinunt.
 
-Vos, sæculórum júdices Et vera mundi lúmina, Votis precámur córdium: Audíte voces súpplicum.
+Vos, sæculórum júdices, Et vera mundi lúmina, Votis precámur córdium: Audíte voces súpplicum.
 
 Qui templa cæli cláuditis Serásque verbo sólvitis, Nos a reátu nóxios Solvi jubéte, quǽsumus.
 
@@ -36688,9 +36688,75 @@ Præcépta quorum prótinus Languor salúsque séntiunt, Sanáte mentes lánguid
 
 Ut, cum redíbit árbiter In fine Christus sæculi, Nos sempitérni gáudii Concédat esse cómpotes.
 
-\* Patri, simúlque Fílio, Tibíque, Sancte Spíritus, Sicut fuit, sit júgiter Sæclum per omne glória.
-Amen.
+\* Patri, simúlque Fílio, Tibíque, Sancte Spíritus, Sicut fuit, sit júgiter Sæclum per omne glória. Amen.
 
 ℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
 
 **Ad Magnif. Ant.** Tradent enim vos \* in concíliis, et in synagógis suis flagellábunt vos, et ante reges et præsides ducémini propter me in testimónium illis, et géntibus.
+
+{RUBRIC: Oratio propria.}
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Regem Apostolórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+#### Hymnus
+
+ÆTÉRNA Christi múnera,
+Apostolórum glóriam,
+Palmas et hymnos débitos
+Lætis canámus méntibus.
+
+Ecclesiárum Príncipes,
+Belli triumpháles duces,
+Cæléstis aulæ mílites
+Et vera mundi lúmina.
+
+Devóta Sanctórum fides,
+Invícta spes credéntium,
+Perfécta Christi cáritas
+Mundi tyránnum cónterit.
+
+In his Patérna glória,
+In his triúmphat Fílius,
+In his volúntas Spíritus,
+Cælum replétur gáudio.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sǽclum per omne glória. Amen.
+
+#### In I Nocturno
+
+**Ant.** In omnem terram \* exívit sonus eórum, et in fines orbis terræ verba eórum.
+
+###### Psalmus 18
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \*

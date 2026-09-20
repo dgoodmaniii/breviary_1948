@@ -1317,3 +1317,79 @@ Scrutátor alme córdium,
 Infírma tu scis vírium:
 Ad te reversis éxhibe
 Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur:}
+
+Præsta, beáta Trínitas,
+Concéde, símplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+#### Tempore Passionis
+
+{RUBRIC: In Officio dominicali, Capitulum ut in Proprio de Tempore.}
+
+{RUBRIC: In Officio feriali usque ad Feriam IV Majoris Hebdomadæ inclusive dicitur quotidie sequens}
+
+**Capitulum** *Jer. 11, 20*
+
+TU autem, Dómine Sábaoth, qui júdicas juste, et probas renes et corda, vídeam ultiónem tuam ex eis: tibi enim revelávi causam meam, Dómine, Deus meus.
+
+{RUBRIC: In Officio tamen dominicali et feriali dicitur sequens Hymnus et Versus:}
+
+#### Hymnus
+
+VEXILLA Regis pródeunt:
+Fulget Crucis mystérium,
+Qua vita mortem pértulit,
+Et morte vitam prótulit.
+
+Quæ, vulneráta lánceæ
+Mucróne diro, críminum
+Ut nos laváret sórdibus,
+Manávit unda et sánguine.
+
+Impléta sunt quæ cóncinit
+David fidéli cármine,
+Dicéndo natiónibus:
+Regnávit a ligno Deus.
+
+Arbor decóra et fúlgida,
+Ornáta Regis púrpura,
+Elécta digno stípite
+Tam sancta membra tángere.
+
+Beáta, cujus bráchiis
+Prétium pepéndit sæculi,
+Statéra facta córporis,
+Tulítque prædam tártari.
+
+{RUBRIC: ¶ Sequens stropha dicitur flexis genibus; et última numquam mutátur.}
+
+O Crux, ave, spes única,
+Hoc Passiónis témpore
+Piis adáuge grátiam,
+Reísque dele crímina.
+
+Te, fons salútis, Trínitas,
+Collaúdet omnis spíritus:
+Quibus Crucis victóriam
+Largíris, adde præmium. Amen.
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+#### Tempore Paschali
+
+{RUBRIC: In Officio dominicali a Dominica in Albis usque ad Do-

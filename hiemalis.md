@@ -36480,4 +36480,34 @@ ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium con-sensu Póntife
 
 #### Lectio vi
 
-ECCLÉSIAM ornávit sanctíssimis institútis et légibus. Apud sanctum Petrum coácta sýnodo, multa constítuit: in iis, Ut in Missa Kýrie eléison novies repeterétur: ut extra id tempus, quod continétur Septuagésima et Pascha, Allelúja dicerétur: ut adderétur in Cánone, Diésque nostros in tua pace dispónas. Litanías, Statiónes, et ecclesiásticum offícium auxit. Quátuor concíliis, Nicǽno, Constantinopolitáno, Ephesíno, Chalcedonénsi, tamquam quátuor Evangéliis honórem habéri vóluit. Epíscopis Sicíliæ, qui ex antíqua ecclesiárum consuetúdine Romam síngulis triénniis conveniébant, quinto quoque anno semel veníre indúlsit. Multos libros confécit; quos cum dictáret, testátus est Petrus diáconus, se Spíritum Sanctum colúmbæ
+ECCLÉSIAM ornávit sanctíssimis institútis et légibus. Apud sanctum Petrum coácta sýnodo, multa constítuit: in iis, Ut in Missa Kýrie eléison novies repeterétur: ut extra id tempus, quod continétur Septuagésima et Pascha, Allelúja dicerétur: ut adderétur in Cánone, Diésque nostros in tua pace dispónas. Litanías, Statiónes, et ecclesiásticum offícium auxit. Quátuor concíliis, Nicǽno, Constantinopolitáno, Ephesíno, Chalcedonénsi, tamquam quátuor Evangéliis honórem habéri vóluit. Epíscopis Sicíliæ, qui ex antíqua ecclesiárum consuetúdine Romam síngulis triénniis conveniébant, quinto quoque anno semel veníre indúlsit. Multos libros confécit; quos cum dictáret, testátus est Petrus diáconus, se Spíritum Sanctum colúmbæ spécie in ejus cápite sæpe vidísse. Admirabília sunt quæ dixit, fecit, scripsit, decrévit, præsértim infírma semper et ægra valetúdine. Qui dénique multis éditis miráculis, pontificátus anno décimo tértio, mense sexto, die décimo, quarto Idus Mártii, qui dies festus a Grǽcis étiam propter insígnem hujus Pontíficis sapiéntiam ac sanctitátem præcípuo honóre celebrátur, ad cæléstem beatitúdinem evocátus est. Cujus corpus sepúltum est in basílica sancti Petri, prope Secretárium.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: In III Nocturno Homilía in Evang. Venit Jesus de Communi unius aut plúrium Summórum Pontíficum.} [28¹]
+
+{RUBRIC: viii In médio.} [28³]
+
+{RUBRIC: IX Lectio de Homilía Fériæ.}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Gregóri, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+#### Oratio
+
+DEUS, qui ánimæ fámuli tui Gregórii ætérnæ beatitúdinis prǽmia contulísti: concéde propítius; ut, qui peccatórum nostrórum póndere prémimur, ejus apud te précibus sublevémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Fériæ.}
+
+---

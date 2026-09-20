@@ -46729,3 +46729,64 @@ Te Deum laudámus.
 *Eccli. 24, 11-12*
 
 IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo.
+
+#### Hymnus
+
+ALTO ex Olýmpi vértice Summi Paréntis Fílius,
+Ceu monte deséctus lapis
+Terras in imas décidens,
+Domus supérnæ et ínfimæ
+Utrúmque junxit ángulum.
+
+Sed illa sedes cælitum
+Semper resúltat láudibus,
+Deúmque trinum et únicum
+Jugi canóre prædicat:
+Illi canéntes júngimur
+Almæ Siónis æmuli.
+
+Hæc templa, Rex cæléstium,
+Imple benígno lúmine:
+Huc, o rogátus, ádveni,
+Plebísque vota súscipe,
+Et nostra corda júgiter
+Perfúnde cæli grátia.
+
+Hic ímpetrent fidélium
+Voces precésque súpplicum
+Domus beátæ múnera,
+Partísque donis gáudeant:
+Donec, solúti córpore,
+Sedes beátas ímpleant.
+
+Decus Parénti débitum
+Sit usquequáque Altíssimo,
+Natóque Patris único,
+Et ínclyto Paráclito,
+Cui laus, potéstas, glória
+Ætérna sit per sæcula.
+Amen.
+
+℣. Introíbimus in tabernáculum ejus. ℟. Adorábimus in loco, ubi stetérunt pedes ejus.
+
+**Ad Bened. Ant.** Ecce tabernáculum Dei cum homínibus, et habitábit cum eis: et ipsi pópulus ejus erunt, et ipse Deus cum eis erit eórum Deus.
+
+#### Oratio
+
+DEUS, qui beátæ Maríæ Vírginis domum per incarnáti Verbi mystérium misericórditer consecrásti, eámque in sinu Ecclésiæ tuæ mirabíliter collocásti: concéde; ut, segregáti a tabernáculis peccatórum, digni efficiámur habitatóres domus sanctæ tuæ. Per eúmdem Dñum.
+
+{RUBRIC: Et fit Commemorátio Fériæ.}
+
+{RUBRIC: Deinde S. Melchíadis Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+#### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde, et per beátum Melchíadem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### Ad Primam
+
+**Ant.** Domum tuam, \* Dómine, decet sanctitúdo in longitúdinem diérum.

@@ -10129,3 +10129,65 @@ Pater noster et Ave.
 
 RECTOR potens, verax Deus,
 Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** In Deo sperávi.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Commendémus nosmetípsos.
+
+{RUBRIC: Fer. IV post Dom. Passionis}
+
+**Ant.** Pópule meus.
+
+{RUBRIC: Fer. IV Majoris Hebdomadæ}
+
+**Ant.** Tu autem, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 55
+
+MISERERE mei, Deus, quóniam conculcávit me homo: \* tota die impúgnans tribulávit me.
+
+Conculcavérunt me inimíci mei tota die: \* quóniam multi bellántes advérsum me.
+
+Ab altitúdine diéi timébo: \* ego vero in te sperábo.
+
+In Deo laudábo sermónes meos, in Deo sperávi: \* non timébo quid fáciat mihi caro.
+
+Tota die verba mea exsecrabántur: \* advérsum me omnes cogitatiónes eórum in malum.
+
+Inhabitábunt et abscóndent: \* ipsi calcáneum meum observábunt.
+
+Sicut sustinuérunt ánimam meam, pro níhilo salvos fácies illos: \* in ira pópulos confrínges.
+
+Deus, vitam meam annuntiávi tibi: \* posuísti lácrimas meas in conspéctu tuo.
+
+Sicut et in promissióne tua: \* tunc converténtur inimíci mei retrórsum:
+
+In quacúmque die invocávero te: \* ecce, cognóvi, quóniam Deus meus es.
+
+In Deo laudábo verbum, in Dómino laudábo sermónem: \* in Deo sperávi, non timébo quid fáciat mihi homo.
+
+In me sunt, Deus, vota tua, \* quæ reddam, laudatiónes tibi.
+
+Quóniam eripuísti ánimam meam de morte, et pedes meos de lapsu: \* ut pláceam coram Deo in lúmine vivéntium.
+
+###### Psalmus 56
+
+MISERERE mei, Deus, miserére mei: \* quóniam in te confídit ánima mea.

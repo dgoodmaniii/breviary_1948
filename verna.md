@@ -18362,3 +18362,42 @@ Confer medélam lánguidis.
 
 Concéde nostrum cónteri
 Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Præsta, beáta Trínitas,
+Concéde, simplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Magnif. Ant.** Visiónem quam vidístis, \* némini dixéritis, donec a mórtuis resúrgat Fílius hóminis.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Visiónem quam vidístis, \* némini dixéritis, donec a mórtuis resúrgat Fílius hóminis.
+
+#### Oratio
+
+DEUS, qui cónspicis omni nos virtúte destítui: intérius exteriúsque custódi; ut ab ómnibus adversitátibus muniámur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+---
+
+## Dominica II in Quadragesima
+
+{RUBRIC: I classis} Semiduplex
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+{RUBRIC: De libro Génesis}
+
+#### Lectio i
+
+*Cap. 27, 1-29*
+
+SENUIT autem Isaac, et caligavérunt óculi ejus, et vidére non póterat: vocavítque Esau fílium suum majórem, et dixit ei: Fili mi! Qui respóndit: Adsum. Cui pater: Vides, inquit, quod senúerim et ignórem diem mortis meæ. Sume arma tua, pháretram et arcum, et egrédere foras: cumque venátu áliquid apprehénderis, fac mihi inde pulméntum sicut velle me nosti, et affer ut cómedam: et benedícat tibi ánima mea ántequam móriar. Quod cum audísset Rebécca, et ille abiísset in agrum ut jussiónem patris impléret, dixit fílio suo Jacob: Audívi patrem tuum loquéntem cum Esau fratre tuo, et dicéntem ei: Affer mihi de venatióne tua, et fac cibos ut cómedam, et benedícam tibi coram Dómino ántequam móriar. Nunc ergo, fili mi, acquiésce consíliis meis: et pergens ad gregem, affer mihi duos hædos

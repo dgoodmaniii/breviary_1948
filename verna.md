@@ -16986,3 +16986,74 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 **Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
 
 {RUBRIC: Deinde dicitur tantum} Pater noster {RUBRIC: secreto, nisi sequatur alia Hora.}
+
+---
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Clamor meus.
+
+### In Officio feriali
+
+#### Tempore Quadragesimæ
+
+**Ant.** Advenérunt nobis.
+
+{RUBRIC: Sabbato post Dom. Passionis}
+
+**Ant.** Judicásti, Dómine.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja.
+
+###### Psalmus 101, i
+
+DOMINE, exáudi oratiónem meam: \* et clamor meus ad te véniat.
+
+Non avértas fáciem tuam a me: \* in quacúmque die tríbulor, inclína ad me aurem tuam.
+
+In quacúmque die invocávero te, \* velóciter exáudi me.
+
+Quia defecérunt sicut fumus dies mei: \* et ossa mea sicut crémium aruérunt.
+
+Percússus sum ut fœnum, et áruit cor meum: \* quia oblítus sum comédere panem meum.
+
+A voce gémitus mei \* adhæsit os meum carni meæ.
+
+Símilis factus sum pellicáno solitúdinis: \* factus sum sicut nyctícorax in domicílio.
+
+Vigilávi, \* et factus sum sicut passer solitárius in tecto.
+
+Tota die exprobrábant mihi inimíci mei: \* et qui laudábant me, advérsum me jurábant.
+
+Quia cínerem tamquam panem manducábam, \* et potum meum cum fletu miscébam.
+
+A fácie iræ et indignatiónis tuæ: \* quia élevans allisísti me.
+
+Dies mei sicut umbra declinavérunt: \* et ego sicut fœnum árui.
+
+Tu autem, Dómine, in ætérnum pérmanes: \* et memoriále tuum in generatiónem et generatiónem.
+
+###### Psalmus 101, ii
+
+TU exsúrgens miseréberis Sion: \* quia tempus miseréndi ejus, quia venit tempus.

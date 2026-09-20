@@ -46664,4 +46664,38 @@ UTRUM autem et quátuor principáles virtútes, tamquam quátuor colúmnas, poss
 
 **Lectio vi**
 
-JUSTITIÆ autem præfert insígne, ubi se ancíllam Dómini confitétur. Nam quod justórum sit confessio, testátur qui ait: Verúmtamen justi confitebúntur nómini tuo. Fuit ígitur beáta Virgo María fortis in propósito, témperans in siléntio, prudens in interrogatióne, justa in confessióne. His ítaque quátuor morum colúmnis, et tribus fídei supradíctis, exstrúxit in ea sibi domum Sapiéntia cæléstis; quæ ádeo mentem ejus replévit, ut de plenitúdine mentis fecundarétur et caro. Ipsíus autem Vírginis natális domus, divínis mystériis consecráta, Angelórum ministério ab infidélium potestáte in Dalmátiam prius, deinde in agrum Laurétanum Picénæ provínciæ transláta fuit, sedénte sancto Cælestíno quinto: eamdémque ipsam esse, in qua Verbum caro factum est, et habitávit in nobis, tum pontifíciis diplomátibus, et celebérrima totíus orbis veneratióne, tum contínua miraculórum virtúte et cæ-
+JUSTITIÆ autem præfert insígne, ubi se ancíllam Dómini confitétur. Nam quod justórum sit confessio, testátur qui ait: Verúmtamen justi confitebúntur nómini tuo. Fuit ígitur beáta Virgo María fortis in propósito, témperans in siléntio, prudens in interrogatióne, justa in confessióne. His ítaque quátuor morum colúmnis, et tribus fídei supradíctis, exstrúxit in ea sibi domum Sapiéntia cæléstis; quæ ádeo mentem ejus replévit, ut de plenitúdine mentis fecundarétur et caro. Ipsíus autem Vírginis natális domus, divínis mystériis consecráta, Angelórum ministério ab infidélium potestáte in Dalmátiam prius, deinde in agrum Laurétanum Picénæ provínciæ transláta fuit, sedénte sancto Cælestíno quinto: eamdémque ipsam esse, in qua Verbum caro factum est, et habitávit in nobis, tum pontifíciis diplomátibus, et celebérrima totíus orbis veneratióne, tum contínua miraculórum virtúte et cæléstium beneficiórum grátia comprobátur. Quibus permótus Innocéntius duodécimus, quo ferventius erga Matris amantíssimæ cultum fidélium memória excitarétur, ejúsdem sanctæ Domus Translatiónem anniversária solemnitáte in tota Picéni província venerátam, Missa étiam et Offício próprio celebrári præcépit.
+
+℟. Domus mea, domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quærit ínvenit; \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quærite, et inveniétis. — Et. Glória. Et.
+
+### In III Nocturno
+
+**Ant.** Tóllite hóstias, et introíte in átria ejus: adoráte Dóminum in aula sancta ejus.
+
+**Ant.** Vidérunt omnes pópuli glóriam ejus.
+
+**Ant.** Cantáte Dómino cánticum novum, quia mirabília fecit Dóminus, allelúja.
+
+℣. Domum tuam, Dómine, decet sanctitúdo. ℟. In longitúdinem diérum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Luc. 1, 26-28*
+
+IN illo témpore: Missus est Ángelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Bernárdi Abbátis}
+
+{RUBRIC: Homilía 1 super} Missus est
+
+QUÆ est hæc virgo tam venerábilis, ut salutétur ab Ángelo; tam húmilis, ut desponsáta sit fabro? Pulchra permíxtio virginitátis et humilitátis: nec mediócriter placet Deo illa ánima, in qua et humílitas comméndat virginitátem, et virgínitas exórnat humilitátem. Sed quanta, putas, veneratióne digna est, in qua humilitátem exáltat fecúnditas, et partus cónsecrat virginitátem? Audis vírginem, audis húmilem. Laudábilis virtus virgínitas, sed magis necessária humílitas: illa consúlitur, ista præcípitur.
+
+℟. Diffúsa est grátia in lábiis tuis, \* Proptérea benedíxit te Deus in ætérnum. ℣. Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis; ex quibus te delectavérunt fíliæ regum in honóre tuo. — Proptérea.
+
+#### Lectio viii
+
+{RUBRIC: Homilía 2 super eódem loco}
+
+MISSUS est, inquit, Ángelus ad Vírginem: vírginem carne, vírginem

@@ -38311,3 +38311,44 @@ ITAQUE id quod a se díctum est, cum libertáte fídei et confessiónis vult ess
 NOLITE timére eos, qui occídunt corpus. Nullus ígitur córporum nostrórum casus est pertiméscendus, neque ullus interiméndæ carnis admitténdus est dolor; quando pro natúræ suæ atque orígnis conditióne resolúta, in substántiam spirituális ánimæ refundátur. Et quia doctrínis tálibus confirmátos opórtet líberam confiténdi Dei habére constántiam, étiam conditiónem, qua tenerémur, adjécit, negatúrum se eum Patri in cælis, qui se homínibus in terra negásset; eum porro, qui conféssus coram homínibus se fuísset, a se in cælis confiténdum; qualésque nos nóminis sui testes homínibus fuissémus, tali nos apud Deum Patrem testimónio ejus usúros.
 
 {RUBRIC: Te Deum laudámus.}
+
+[IMAGE]
+
+# Commune plurimorum Martyrum
+
+### In I Vesperis
+
+**1** Omnes Sancti, \* quanta passi sunt torménta, ut secúri pervenírent ad palmam martýrii!
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolórum. [3]}
+
+**2** Cum palma \* ad regna pervenérunt Sancti, corónas decóris meruérunt de manu Dei.
+
+**3** Córpora Sanctórum \* in pace sepúlta sunt: et vivent nómina eórum in ætérnum.
+
+**4** Mártyres Dómini, \* Dóminum benedícite in ætérnum.
+
+**5** Mártyrum chorus, \* laudáte Dóminum de cælis, allelúja.
+
+#### Capitulum
+
+*Sap. 3, 1-3*
+
+JUSTÓRUM ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+#### Hymnus
+
+SANCTÓRUM méritis ínclyta gáudia
+Pangámus, sócii, géstaque fórtia:
+Gliscens fert ánimus prómere cántibus
+Victórum genus óptimum.
+
+Hi sunt, quos fátue mundus abhórruit;
+Hunc fructu vácuum, flóribus áridum
+Contempsére tui nóminis ásseclæ,
+Jesu, Rex bone cælitum.
+
+Hi pro te fúrias atque minas truces
+Calcárunt hóminum, sǽvaque vérbera:
+His cessit lácerans fórtiter úngula,
+Nec carpsit penetrália.

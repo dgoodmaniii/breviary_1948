@@ -16235,4 +16235,56 @@ Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus t
 
 Ecce enim, in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
 
-Ecce enim, veritátem dilexísti: \* incérta et oc-
+Ecce enim, veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis: \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus: \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua: \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui: \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.
+
+Dómine, lábia mea apéries: \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem útique: \* holocáustis non delectáberis.
+
+Sacrifícium Deo spíritus contribulátus: \* cor contrítum, et humiliátum, Deus, non despícies.
+
+Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jerúsalem.
+
+Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
+
+**Ant.** Benígne fac, Dómine, in bona voluntáte tua Sion.
+
+**Ant.** Rectus Dóminus.
+
+### Sabbato sancto
+
+**Ant.** O mors, ero mors tua, morsus tuus ero, inférne.
+
+**Ant.** Plangent eum \* quasi unigénitum, quia ínnocens Dóminus occísus est.
+
+###### Psalmus 91
+
+BONUM est confitéri Dómino: \* et psállere nómini tuo, Altíssime.
+
+Ad annuntiándum mane misericórdiam tuam: \* et veritátem tuam per noctem.
+
+In decachórdo, psaltério: \* cum cántico, in cíthara.
+
+Quia delectásti me, Dómine, in factúra tua: \* et in opéribus mánuum tuárum exsultábo.
+
+Quam magnificáta sunt ópera tua, Dómine! \* nimis profúndæ factæ sunt cogitatiónes tuæ.
+
+Vir insípiens non cognóscet: \* et stultus non intélliget hæc.
+
+Cum exórti fúerint peccatóres sicut fœnum: \*

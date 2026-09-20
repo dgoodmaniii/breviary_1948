@@ -18740,3 +18740,41 @@ QUID est ergo peccatórum conféssio, nisi quædam vúlnerum rúptio? Quia pecc�
 #### Lectio iii
 
 QUI dum doctrínam legis non ad caritátem hábuit, sed ad elatiónem, quasi de accéptis ópibus túmuit: et quia ei verba defluébant de sciéntia, quasi micæ cadébant de mensa. At contra, jacéntis páuperis vúlnera lingébant canes. Nonnúmquam solent in sacro elóquio per canes prædicatóres intélligi. Canum étenim língua, vulnus dum lingit, curat: quia et doctóres sancti, dum in confessióne peccáti nostri nos ínstruunt, quasi vulnus mentis per linguam tangunt.
+
+℟. Det tibi Deus de rore cæli et de pinguédine terræ abundántiam: sérviant tibi tribus et pópuli: \* Esto dóminus fratrum tuórum. ℣. Et incurvéntur ante te fílii matris tuæ. — Esto. Glória Patri. Esto.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Fili, recordáre, \* quia recepísti bona in vita tua, et Lázarus simíliter mala.
+
+#### Oratio
+
+PRÆSTA nobis, quæsumus, Dómine, auxílium grátiæ tuæ: ut jejúniis et oratiónibus convenienter inténti, liberémur ab hóstibus mentis et córporis. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Dives ille \* guttam aquæ pétiit, qui micas panis Lázaro negávit.
+
+#### Oratio
+
+ADESTO, Dómine, fámulis tuis, et perpétuam benignitátem largíre poscéntibus: ut iis, qui te auctóre et gubernatóre gloriántur, et congregáta restáures, et restauráta consérves. Per Dóminum.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 21, 33-46*
+
+IN illo témpore: Dixit Jesus turbis Judæórum, et princípibus sacerdótum parábolam hanc: Homo erat paterfamílias, qui plantávit víneam, et sepem circúmdedit ei. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 9 in cap. 20 Lucæ}
+
+PLERIQUE várias significatiónes de víneæ appellatióne derívant: sed evidénter Isaías víneam Dómini Sábaoth, domum Israël esse memorávit. Hanc víneam quis álius, nisi Deus, cóndidit? Hic est ergo qui eam locávit colónis, et ipse péregre fuit: non quia ex loco ad locum proféctus est Dóminus, qui ubíque semper præsens est: sed quia est præséntior diligéntibus, negligéntibus abest. Multis tempóribus ábfuit, ne præprópera vidérétur exáctio. Nam quo indulgéntior liberálitas, eo inexcusabílior pervicácia.
+
+℟. Dum exíret Jacob de terra sua, vidit glóriam Dei, et ait: Quam terrí-

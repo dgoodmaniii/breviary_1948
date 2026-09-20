@@ -44581,4 +44581,32 @@ INCLÍNA, Dómine, aurem tuam ad preces nostras, quibus misericórdiam tuam súp
 
 **Oratio**
 
-QUǼSUMUS, Dómine, pro tua pietáte miserére ánimæ fámulæ tuæ N.: et a contágiis mortalitátis
+QUǼSUMUS, Dómine, pro tua pietáte miserére ánimæ fámulæ tuæ N.: et a contágiis mortalitátis exútam, in ætérnæ salvatiónis partem restítue. Per Dóminum.
+
+{RUBRIC: Pro defúnctis frátribus, propínquis et benefactóribus}
+
+**Oratio**
+
+DEUS, véniæ largítor et humánæ salútis amátor: quǽsumus cleméntiam tuam; ut nostræ congregatiónis fratres, propínquos et benefactóres, qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium perveníre concédas. Per Dóminum.
+
+{RUBRIC: Pro patre et matre}
+
+**Oratio**
+
+DEUS, qui nos patrem et matrem honoráre præcepísti: miserére cleménter animábus patris et matris meæ, eorúmque peccáta dimítte; meque eos in ætérnæ claritátis gáudio fac vidére. Per Dóminum.
+
+{RUBRIC: Si fit pro plúribus, dicátur:} animábus paréntum nostrórum, {RUBRIC: et, ubi dícitur} meque, {RUBRIC: dicátur} nosque.
+
+{RUBRIC: Si pro patre tantum, dicátur} ánimæ patris mei, {RUBRIC: vel} nostri.
+
+{RUBRIC: Si pro matre tantum, dicátur} ánimæ matris meæ, {RUBRIC: vel} nostræ.
+
+{RUBRIC: In Officio Defunctorum per Annum}
+
+**Oratio**
+
+DEUS, qui inter apostólicos sacerdótes fámulos tuos pontificáli seu sacerdotáli fecísti dignitáte vigére: præsta, quǽsumus; ut eórum quoque perpétuo aggregéntur consórtio.
+
+DEUS, véniæ largítor et humánæ salútis amátor: quǽsumus cleméntiam tuam; ut nostræ congregatiónis fratres, propínquos et benefactóres, qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium perveníre concédas.
+
+FIDÉLIUM, Deus, ómnium Cónditor et Redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum: ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur: Qui vivis et regnas cum Deo Patre in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.

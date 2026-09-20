@@ -40223,4 +40223,50 @@ DUO autem sunt, quæ jubéntur: et lumbos restríngere, et lucérnas tenére; ut
 
 ##### Pro Confessore non Pont.
 
-℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+##### Pro Conf. Pont. et non Pont.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et vos símiles. Glória Patri. Et vos símiles.
+
+**Benedictio.** Ad societátem.
+
+#### Lectio ix
+
+ET vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis; ut, cum vénerit et pulsáverit, conféstim apériant ei. Venit quippe Dóminus, cum ad judícium próperat; pulsat vero, cum jam per ægritúdinis moléstias esse mortem vicínam desígnat. Cui conféstim aperímus, si hunc cum amóre suscípimus. Aperíre enim júdici pulsánti non vult, qui exíre de córpore trépidat, et vidére eum, quem contempsísse se méminit, júdicem formídat. Qui autem de sua spe et operatióne secúrus est, pulsánti conféstim áperit, quia lætus júdicem sústinet; et, cum tempus propínquæ mortis advénerit, de glória retributiónis hiláréscit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Dómine, quinque talénta \* tradidísti mihi, ecce ália quinque superlucrátus sum.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Euge, serve bone, \* in módico fidélis, intra in gáudium Dómini tui.
+
+**3** Fidélis servus \* et prudens, quem constítuit Dóminus super famíliam suam.
+
+**4** Beátus ille servus, \* quem, cum vénerit Dóminus ejus et pulsáverit jánuam, invénerit vigilántem.
+
+**5** Serve bone \* et fidélis, intra in gáudium Dómini tui.
+
+#### Capitulum
+
+*Eccli. 31, 8-9*
+
+BEÁTUS vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.
+
+#### Hymnus
+
+JESU, coróna célsior,
+Et véritas sublímior,
+Qui confiténti sérvulo
+Reddis perénne prǽmium:
+
+Da supplicánti cœtui,
+Hujus rogátu, nóxii
+Remissiónem críminis,
+Rumpéndo nexum vínculi.

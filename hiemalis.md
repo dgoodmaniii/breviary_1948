@@ -40925,3 +40925,47 @@ MAGNUS Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sanct
 Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
 
 Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.
+
+Quóniam ecce reges terræ congregáti sunt: \* convenérunt in unum.
+
+Ipsi vidéntes sic admiráti sunt, conturbáti sunt, commóti sunt: \* tremor apprehéndit eos.
+
+Ibi dolóres ut parturiéntis: \* in spíritu veheménti cónteres naves Tharsis.
+
+Sicut audívimus, sic vídimus in civitáte Dómini virtútum, in civitáte Dei nostri: \* Deus fundávit eam in ætérnum.
+
+Suscépimus, Deus, misericórdiam tuam, \* in médio templi tui.
+
+Secúndum nomen tuum, Deus, sic et laus tua in fines terræ: \* justítia plena est déxtera tua.
+
+Lætétur mons Sion, et exsúltent fíliæ Juda, \* propter judícia tua, Dómine.
+
+Circúmdate Sion, et complectímini eam: \* narráte in túrribus ejus.
+
+Pónite corda vestra in virtúte ejus: \* et distribúite domos ejus, ut enarrétis in progénie áltera.
+
+Quóniam hic est Deus, Deus noster in ætérnum, et in sæculum sæculi: \* ipse reget nos in sæcula.
+
+**Ant.** Aquæ multæ non potuérunt exstínguere caritátem.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 1 de Virg., circa init.}
+
+#### Lectio iv
+
+QUÓNIAM hódie natális est Vírginis, invítat nunc integritátis amor, ut áliquid de virginitáte dicámus; ne véluti tránsitu quodam præstrícta videátur, quæ principális est virtus. Non enim ídeo laudábilis virgínitas, quia in Martýribus reperítur; sed quia ipsa Mártyres fáciat. Quis autem humáno eam possit ingénio comprehéndere, quam nec natúra suis inclúsit légibus? aut quis naturáli voce complécti, quod supra usum natúræ sit? E cælo accersívit, quod imitarétur in terris. Nec immérito vivéndi sibi usum quæsívit e cælo, quæ Sponsum sibi invénit in cælo.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+HÆC nubes, áëra, Angelos, sidéraque transgrédiens, Verbum Dei in ipso sinu Patris invénit, et

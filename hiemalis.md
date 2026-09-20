@@ -44401,3 +44401,58 @@ Réquiem ætérnam.
 ###### Psalmus 129
 
 DE profúndis clamávi ad te, Dómine: \* Dómine, exáudi vocem meam:
+
+Fiant aures tuæ intendéntes, \* in vocem deprecatiónis meæ.
+
+Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
+
+Quia apud te propitiátio est: \* et propter legem tuam sustínui te, Dómine.
+
+Sustínuit ánima mea in verbo ejus: \* sperávit ánima mea in Dómino.
+
+A custódia matutína usque ad noctem: \* speret Israël in Dómino.
+
+Quia apud Dóminum misericórdia: \* et copiósa apud eum redémptio.
+
+Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
+
+Réquiem ætérnam.
+
+**Ant.** Si iniquitátes observáveris, Dómine: Dómine, quis sustinébit?
+
+**Ant.** Opera \* mánuum tuárum, Dómine, ne despícias.
+
+###### Psalmus 137
+
+CONFITÉBOR tibi, Dómine, in toto corde meo: \* quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi: \* adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua: \* quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me: \* multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ: \* quia audiérunt ómnia verba oris tui:
+
+Et cantent in viis Dómini: \* quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit: \* et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me: \* et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me: \* Dómine, misericórdia tua in sǽculum: ópera mánuum tuárum ne despícias.
+
+Réquiem ætérnam.
+
+**Ant.** Opera mánuum tuárum, Dómine, ne despícias.
+
+℣. Audívi vocem de cælo dicéntem mihi. ℟. Beáti mórtui qui in Dómino moriúntur.
+
+**Ad Magnif. Ant.** Omne \* quod dat mihi Pater, ad me véniet; et eum qui venit ad me, non ejíciam foras.
+
+### Canticum B. Mariæ V.
+*Luc. 1, 46-55*
+
+MAGNÍFICAT \* ánima mea Dóminum:
+
+Et exsultávit spíritus meus \* in Deo, salutári meo.

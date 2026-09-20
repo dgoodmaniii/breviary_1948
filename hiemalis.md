@@ -39829,4 +39829,38 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽs
 
 SAPIÉNTIAM ómnium antiquórum exquíret sápiens, et in prophétis vacábit. Narratiónem virórum nominatórum conservábit, et in versútias parabolárum simul introíbit. Occúlta proverbiórum exquíret, et in abscónditis parabolárum conversábitur. In médio magnatórum ministrábit, et in conspéctu præsidis apparébit. In terram alienigenárum géntium pertránsiet; bona enim et mala in homínibus tentábit.
 
-℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. ℣. Dó-
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra in gáudium Domini tui.
+
+#### Lectio ii
+
+COR suum tradet ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur. Apériet os suum in oratióne, et pro delíctis suis deprecábitur. Si enim Dóminus magnus volúerit, spíritu intelligéntiæ replébit illum: et ipse tamquam imbres mittet elóquia sapiéntiæ suæ, et in oratióne confitébitur Dómino: et ipse díriget consílium ejus, et disciplínam, et in abscónditis suis consiliábitur.
+
+##### Pro Doctore Pontifice
+
+℟. Ecce sacérdos magnus, qui in diébus suis plácuit Deo: \* Ideo jurejurándo fecit illum Dóminus créscere in plebem suam. ℣. Benedictiónem ómnium géntium dedit illi, et testaméntum suum confirmávit super caput ejus. — Ideo.
+
+##### Pro Doctore non Pontifice
+
+℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+#### Lectio iii
+
+IPSE palam fáciet disciplínam doctrínæ suæ, et in lege testaménti Dómini gloriábitur. Collaudábunt multi sapiéntiam ejus, et usque in sǽculum non delébitur. Non recédet memória ejus, et nomen ejus requirétur a generatióne in generatiónem. Sapiéntiam ejus enarrábunt gentes, et laudem ejus enuntiábit Ecclésia.
+
+##### Pro Doctore Pontifice
+
+℟. Jurávit Dóminus, et non pænitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. ℣. Dixit Dóminus Dómino meo, Sede a dextris meis. — Tu. Glória. Tu.
+
+##### Pro Doctore non Pontifice
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum: \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. Glória Patri. Et.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Morálium sancti Gregórii Papæ}
+
+{RUBRIC: Lib. 9, cap. 6}
+
+#### Lectio iv
+
+QUI post Oríonas, Hýadum nómine, nisi Doctóres sanctæ Ecclésiæ designántur?

@@ -7614,4 +7614,52 @@ Sacrifícium et oblatiónem noluísti: \* aures autem perfecísti mihi.
 
 Holocáustum et pro peccáto non postulásti: \* tunc dixi: Ecce, vénio.
 
-In cápite libri scriptum est de me ut fácerem voluntátem tuam: \* Deus
+In cápite libri scriptum est de me ut fácerem voluntátem tuam: \* Deus meus, vólui, et legem tuam in médio cordis mei.
+
+###### Psalmus 39, ii
+
+ANNUNTIAVI justítiam tuam in ecclésia magna, \* ecce, lábia mea non prohibébo: Dómine, tu scisti.
+
+Justítiam tuam non abscóndi in corde meo: \* veritátem tuam et salutáre tuum dixi.
+
+Non abscóndi misericórdiam tuam et veritátem tuam \* a concílio multo.
+
+Tu autem, Dómine, ne longe fácias miseratiónes tuas a me: \* misericórdia tua et véritas tua semper suscepérunt me.
+
+Quóniam circumdedérunt me mala, quorum non est númerus: \* comprehendérunt me iniquitátes meæ, et non pótui ut vidérem.
+
+Multiplicátæ sunt super capíllos cápitis mei: \* et cor meum dereliquit me.
+
+Compláceat tibi, Dómine, ut éruas me: \* Dómine, ad adjuvándum me réspice.
+
+###### Psalmus 39, iii
+
+CONFUNDANTUR et revereántur simul, qui quærunt ánimam meam, \* ut áuferant eam.
+
+Convertántur retrórsum, et revereántur, \* qui volunt mihi mala.
+
+Ferant conféstim confusiónem suam, \* qui dicunt mihi: Euge, euge.
+
+Exsúltent et læténtur super te omnes quæréntes te: \* et dicant semper: Magnificétur Dóminus: qui díligunt salutáre tuum.
+
+Ego autem mendícus sum, et pauper: \* Dóminus sollícitus est mei.
+
+Adjútor meus, et protéctor meus tu es: \* Deus meus, ne tardáveris.
+
+{RUBRIC: In Festis extra Tempus Paschale:} **Ant.** Respéxit me, et exaudívit deprecatiónem meam Dóminus.
+
+{RUBRIC: Tempore Paschali:} **Ant.** Allelúja, allelúja, allelúja.
+
+### In Officio feriali
+
+#### Quadragesimæ
+
+**Ant.** Advenérunt nobis dies pæniténtiæ, ad rediménda peccáta, ad salvándas ánimas.
+
+**Capitulum** *Joel 2, 12-13*
+
+CONVERTIMINI ad me in toto corde vestro, in jejúnio et fletu, et planctu. Et scíndite corda vestra, et non vestiménta vestra, ait Dóminus omnípotens.
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse.
+
+℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.

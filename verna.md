@@ -8683,3 +8683,61 @@ Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
 Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
 
 Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sæculum sæculi.
+
+**Ant.** Confitebúntur tibi pópuli, Deus, in ætérnum.
+
+**Ant.** Adjútor in tribulatiónibus \* Deus noster.
+
+###### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram, \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Adjútor in tribulatiónibus Deus noster.
+
+---
+
+#### In Festis novem Lectionum: extra Tempus Paschale
+
+℣. Dóminus virtútum nobíscum. ℟. Suscéptor noster Deus Jacob.
+
+#### In Festis novem Lectionum:
+
+##### Tempore Paschali
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+℣. Deus regenerávit nos in spem vivam, allelúja. ℟. Per resurrectiónem Jesu Christi ex mórtuis, allelúja.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+#### Extra Tempus Paschale
+
+**Ant.** Magnus Dóminus, \* † et laudábilis nimis in civitáte Dei nostri.

@@ -37298,3 +37298,51 @@ Mirábilis facta est sciéntia tua ex me: \* confortáta est, et non pótero ad 
 Quo ibo a spíritu tuo? \* et quo a fácie tua fúgiam?
 
 Si ascéndero in cælum, tu illic es: \* si descéndero in inférnum, ades.
+
+Si súmpsero pennas meas dilúculo, \* et habitávero in extrémis maris:
+
+Etenim illuc manus tua dedúcet me: \* et tenébit me déxtera tua.
+
+Et dixi: Fórsitan ténebræ conculcábunt me: \* et nox illuminátio mea in delíciis meis.
+
+Quia ténebræ non obscurabúntur a te, et nox sicut dies illuminábitur: \* sicut ténebræ ejus, ita et lumen ejus.
+
+Quia tu possedísti renes meos: \* suscepísti me de útero matris meæ.
+
+Confitébor tibi quia terribíliter magnificátus es: \* mirabília ópera tua, et ánima mea cognóscit nimis.
+
+Non est occultátum os meum a te, quod fecísti in occúlto: \* et substántia mea in inferióribus terræ.
+
+Imperféctum meum vidérunt óculi tui, et in libro tuo omnes scribéntur: \* dies formabúntur, et nemo in eis.
+
+Mihi autem nimis honorificáti sunt amíci tui, Deus: \* nimis confortátus est principátus eórum.
+
+Dinumerábo eos, et super arénam multiplicabúntur: \* exsurréxi, et adhuc sum tecum.
+
+Si occíderis, Deus, peccatóres: viri sánguinum, declináte a me:
+
+Quia dícitis in cogitatióne: \* Accípient in vanitáte civitátes tuas.
+
+Nonne qui odérunt te, Dómine, óderam? \* et super inimícos tuos tabescébam?
+
+Perfécto ódio óderam illos: \* et inimíci facti sunt mihi.
+
+Proba me, Deus, et scito cor meum: \* intérroga me, et cognósce sémitas meas.
+
+Et vide, si via iniquitátis in me est: \* et deduc me in via ætérna.
+
+**Ant.** Confortátus est principátus eórum, et honoráti sunt amíci tui, Deus.
+
+#### Capit.
+
+*Ephes. 2, 19-20*
+
+FRATRES: Jam non estis hóspites, et ádvenæ; sed estis cives Sanctórum, et doméstici Dei, superædificáti super fundaméntum Apostolórum et Prophetárum, ipso summo angulári lápide Christo Jesu.
+
+#### Hymnus
+
+EXSÚLTET orbis gáudiis, Cælum resúltet láudibus: Apostolórum glóriam Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices, Et vera mundi lúmina, Votis precámur córdium: Audíte voces súpplicum.
+
+Qui templa cæli cláuditis Serásque verbo sólvitis, Nos a reátu nóxios Solvi jubéte, quǽsumus.

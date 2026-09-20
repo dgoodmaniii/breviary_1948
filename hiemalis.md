@@ -36810,3 +36810,51 @@ Clamavérunt justi, et Dóminus exaudívit eos: \* et ex ómnibus tribulatiónib
 Juxta est Dóminus iis, qui tribuláto sunt corde: \* et húmiles spíritu salvábit.
 
 Multæ tribulatiónes justórum: \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
+
+Mors peccatórum péssima: \* et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Clamavérunt justi, et Dóminus exaudívit eos.
+
+**Ant.** Constítues eos \* príncipes super omnem terram: mémores erunt nóminis tui, Dómine.
+
+###### Psalmus 44
+
+ERUCTÁVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent: \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sæculum sæculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto: \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam: \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.

@@ -6516,3 +6516,109 @@ Et homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis ins
 **Ant.** Os meum loquétur sapiéntiam: et meditátio cordis mei prudéntiam.
 
 **Ant.** Ne timúeris: \* cum dívite non descéndet in sepúlcrum glória ejus.
+
+### Psalmus 48, ii
+
+HÆC via illórum scándalum ipsis: \* et póstea in ore suo complacébunt.
+
+Sicut oves in inférno pósiti sunt: \* mors depáscet eos.
+
+Et dominabúntur eórum justi in matutíno: \* et auxílium eórum veteráscet in inférno a glória eórum.
+
+Verúmtamen Deus rédimet ánimam meam de manu ínferi, \* cum accéperit me.
+
+Ne timúeris, cum dives factus fúerit homo: \* et cum multiplicáta fúerit glória domus ejus.
+
+Quóniam cum interíerit, non sumet ómnia: \* neque descéndet cum eo glória ejus.
+
+Quia ánima ejus in vita ipsíus benedicétur: \* confitébitur tibi cum beneféceris ei.
+
+Introíbit usque in progénies patrum suórum: \* et usque in ætérnum non vidébit lumen.
+
+Homo, cum in honóre esset, non intelléxit: \* comparátus est juméntis insipiéntibus, et símilis factus est illis.
+
+**Ant.** Ne timúeris: cum dívite non descéndet in sepúlcrum glória ejus.
+
+#### In Festis novem Lectionum:
+
+℣. Deus rédimet ánimam meam de manu ínferi. ℟. Cum accéperit me.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+**I**
+
+*In Fériis extra Vigílias commúnes occurréntibus, et in Festis, cum ad Laudes non dícitur Psalmus 50 Miserére.*
+
+**Ant.** Deus deórum, \* † Dóminus locútus est. ‡
+
+### Psalmus 49, i
+
+DEUS deórum, † Dóminus locútus est: \* ‡ et vocávit terram.
+
+A solis ortu usque ad occásum: \* ex Sion spécies decóris ejus.
+
+Deus maniféste véniet: \* Deus noster et non silébit.
+
+Ignis in conspéctu ejus exardéscet: \* et in circúitu ejus tempéstas válida.
+
+Advocábit cælum desúrsum: \* et terram discérnere pópulum suum.
+
+Congregáte illi sanctos ejus: \* qui órdinant testaméntum ejus super sacrifícia.
+
+Et annuntiábunt cæli justítiam ejus: \* quóniam Deus judex est.
+
+Audi, pópulus meus, et loquar: Israël, et testificábor tibi: \* Deus, Deus tuus ego sum.
+
+Non in sacrifíciis tuis árguam te: \* holocáusta autem tua in conspéctu meo sunt semper.
+
+Non accípiam de domo tua vítulos: \* neque de grégibus tuis hircos.
+
+Quóniam meæ sunt omnes feræ silvárum, \* juménta in móntibus et boves.
+
+Cognóvi ómnia volatília cæli: \* et pulchritúdo agri mecum est.
+
+Si esuríero, non dicam tibi: \* meus est enim orbis terræ, et plenitúdo ejus.
+
+Numquid manducábo carnes taurórum? \* aut sánguinem hircórum potábo?
+
+Immola Deo sacrifícium laudis: \* et redde Altíssimo vota tua.
+
+Et ínvoca me in die tribulatiónis: \* éruam te, et honorificábis me.
+
+**Ant.** Deus deórum, Dóminus locútus est.
+
+**Ant.** Intellígite, \* qui obliviscímini Deum.
+
+### Psalmus 49, ii
+
+PECCATORI autem dixit Deus: \* Quare tu enárras justítias meas, et assúmis testaméntum meum per os tuum?
+
+Tu vero odísti disciplínam: \* et projecísti sermónes meos retrórsum:
+
+Si vidébas furem, currébas cum eo: \* et cum adúlteris portiónem tuam ponébas.
+
+Os tuum abundávit malítia: \* et lingua tua concinnábat dolos.
+
+Sedens advérsus fratrem tuum loquebáris, et advérsus fílium matris tuæ ponébas scándalum: \* hæc fecísti, et tácui.
+
+Existimásti, iníque, quod ero tui símilis: \* árguam te, et státuam contra fáciem tuam.
+
+Intellígite hæc, qui oblivíscimini Deum: \* nequándo rápiat, et non sit qui erípiat.
+
+Sacrifícium laudis honorificábit me: \* et illic iter, quo osténdam illi salutáre Dei.
+
+**Ant.** Intellígite, qui obliviscímini Deum.
+
+**Ant.** Acceptábis sacrifícium \* justítiæ super altáre tuum, Dómine.
+
+### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.

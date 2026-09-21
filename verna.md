@@ -44067,3 +44067,68 @@ ET vos símiles homínibus exspectántibus dóminum suum, quando revertátur a n
 **4** Beátus ille servus, \* quem, cum vénerit Dóminus ejus et pulsáverit jánuam, invénerit vigilántem. (T. P. Allelúja.)
 
 **5** Serve bone \* et fidélis, intra in gáudium Dómini tui. (T. P. Allelúja.)
+
+**Capitulum** *Eccli. 31, 8-9*
+
+BEATUS vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.
+
+###### Hymnus
+
+JESU, coróna célsior,
+Et véritas sublímior,
+Qui confiténti sérvulo
+Reddis perénne prǽmium:
+
+Da supplicánti cœtui,
+Hujus rogátu, nóxii
+Remissiónem críminis,
+Rumpéndo nexum vínculi.
+
+Anni revérso témpore,
+Dies refúlsit lúmine,
+Quo Sanctus hic de córpore
+Migrávit inter sídera.
+
+Hic, vana terræ gáudia
+Et luculénta prǽdia
+Pollúta sorde députans,
+Ovans tenet cæléstia.
+
+Te, Christe, Rex piíssime,
+Hic confiténdo júgiter,
+Calcávit artes dǽmonum
+Sævúmque avérni príncipem.
+
+Virtúte clarus et fide,
+Confessióne sédulus,
+Jejúna membra déferens,
+Dapes supérnas óbtinet.
+
+Proínde te, piíssime,
+Precámur omnes súpplices,
+Nobis ut hujus grátia
+Pœnas remíttas débitas.
+
+\* Patri perénnis glória,
+Natóque Patris único,
+Sanctóque sit Paráclito,
+Per omne semper sǽculum.
+Amen.
+
+℣. Justum dedúxit Dóminus per vias rectas. (T. P. Allelúja.) ℟. Et osténdit illi regnum Dei. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui. (T. P. Allelúja.)
+
+**1 — Oratio**
+
+DEUS, qui nos beáti N. Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+**2 — Alia Oratio**
+
+ADESTO, Dómine, supplicatiónibus nostris, quas in beáti N. Confessóris tui solemnitáte deférimus: ut, qui nostræ justítiæ fidúciam non habémus, ejus, qui tibi plácuit, précibus adjuvémur. Per Dóminum.
+
+##### Pro Doctore non Pontifice
+
+**3 — Oratio**
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuí-

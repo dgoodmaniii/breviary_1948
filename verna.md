@@ -20663,3 +20663,35 @@ OMNIPOTENS sempitérne Deus, qui humáno géneri, ad imitándum humilitátis ex�
 **Ant.** Púeri Hebræórum \* vestiménta prosternébant in via, et clamábant, dicéntes: Hosánna Fílio David: benedíctus qui venit in nómine Dómini.
 
 **Capitulum** Fratres, ut supra. 440
+
+℟. br. Erue a frámea, \* Deus, ánimam meam. Erue. ℣. Et de manu canis únicam meam. Deus. Erue. ℣. De ore leónis líbera me, Dómine. ℟. Et a córnibus unicórnium humilitátem meam.
+
+### Ad Sextam
+
+**Ant.** Tibi revelávi \* causam meam, defénsor vitæ meæ, Dómine, Deus meus.
+
+**Capitulum** *Philipp. 2, 8-9*
+
+HUMILIAVIT semetípsum factus obédiens usque ad mortem, mortem autem crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen, quod est super omne nomen.
+
+℟. br. De ore leónis \* Líbera me, Dómine. De. ℣. Et a córnibus unicórnium humilitátem meam. Líbera. De. ℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+### Ad Nonam
+
+**Ant.** Invocábo \* nomen tuum, Dómine: ne avértas fáciem tuam a clamóre meo.
+
+**Capitulum** *Philipp. 2, 10-11*
+
+IN nómine Jesu omne genu flectátur cæléstium, terréstrium, et infernórum: et omnis lingua confiteátur, quia Dóminus Jesus Christus in glória est Dei Patris.
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica, ut in Psalterio 72; Capitulum, Hymnus et Versus, ut in Vesperis præcedentis Sabbati. 434}
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Scriptum est enim: \* Percútiam pastórem, et dispergéntur oves gregis: postquam autem resurréxero, præcédam vos in Galilǽam: ibi me vidébitis, dicit Dóminus.
+
+{RUBRIC: ¶ Omnes Feriæ hujus Hebdomadæ sunt majóres privilegiátæ.}

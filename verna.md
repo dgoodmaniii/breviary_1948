@@ -38042,4 +38042,26 @@ Ex libro Morálium sancti Gregórii Papæ
 
 ###### Lectio v
 
-DERIDETUR justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus tégere, sensum verbis veláre: quæ falsa sunt, vera osténdere; quæ vera sunt, falsa demonstráre. Hæc nimírum prudéntia usu a juvénibus scitur, hæc a púeris prétio díscitur: hanc qui sciunt, céteros despiciéndo supérbiunt: hanc qui nésciunt, subjécti et tímidi in áliis mirántur; quia ab eis hæc éadem duplicitátis iníquitas, nómine palliáta, dilígitur, dum mentis pervérsitas urbánitas vocátur. Hæc sibi obsequéntibus præcípit honórum cúlmina quǽrere, adépta temporális glóriæ vanitáte gaudére, irrogáta ab áliis mala multiplícius réddere: cum vires súppetunt, nullis resisténtibus cédere; cum virtútis pos-
+DERIDETUR justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus tégere, sensum verbis veláre: quæ falsa sunt, vera osténdere; quæ vera sunt, falsa demonstráre. Hæc nimírum prudéntia usu a juvénibus scitur, hæc a púeris prétio díscitur: hanc qui sciunt, céteros despiciéndo supérbiunt: hanc qui nésciunt, subjécti et tímidi in áliis mirántur; quia ab eis hæc éadem duplicitátis iníquitas, nómine palliáta, dilígitur, dum mentis pervérsitas urbánitas vocátur. Hæc sibi obsequéntibus præcípit honórum cúlmina quǽrere, adépta temporális glóriæ vanitáte gaudére, irrogáta ab áliis mala multiplícius réddere: cum vires súppetunt, nullis resisténtibus cédere; cum virtútis possibílitas deest, quidquid explére per malítiam non valent, hoc in pacífica bonitáte simuláre.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+AT contra, sapiéntia justórum est: nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quǽrere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mundi sapiéntibus púritátis virtus fatúitas créditur. Omne enim quod innocénter ágitur, ab eis proculdúbio stultum putátur; et quidquid in ópere véritas ápprobat, carnáli sapiéntiæ fátuum sonat. Quid namque stúltius vidétur mundo quam mentem verbis osténdere, nil cállida machinatióne simuláre, nullas injúriis contumélias réddere, pro maledicéntibus oráre, paupertátem quǽrere, posséssa relínquere, rapiénti non resístere, percutiénti álteram maxíllam præbére?
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+Homilía sancti Leónis Papæ
+
+{RUBRIC: Sermo 2 in anivettario assumpt. suæ, ante medium}
+
+CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens: Tu es Christus Fílius Dei vivi; Dóminus ait: Beátus es, Simon Bar-Jona, quia caro

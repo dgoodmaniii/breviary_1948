@@ -34949,3 +34949,27 @@ HUNC morem plerúmque tenébat antíquitas, ut sponsæ in sponsórum dómibus ha
 #### Lectio v
 
 JOSEPH autem, cum esset justus et nollet eam tradúcere, vóluit occúlte dimíttere eam. Postquam dixit, quod esset ex Spíritu Sancto et absque ulla mixtióne séxuum, sermónem suum étiam aliúnde confírmat. Ne enim áliquis díceret: Et unde hoc potest esse manifestum? quis vidit? quis audívit aliquándo tale áliquid contigísse? neque putáres discípulum, quasi gratificátum magístro, ista confíngere; introdúcit Joseph ex his, quæ passus est, fidem dictis per cuncta faciéntem, ut plane hinc dícere Evangelísta videátur: Si non credis mihi et testimónium tibi meum forte suspéctum est, crede ígitur vel marito.
+
+℟. Státuet fílios suos sub tégmine illíus et sub ramis ejus morábitur; protegétur sub tégmine illíus a fervóre: \* Et in glória ejus requiéscet, allelúja. ℣. Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra. — Et.
+
+#### Lectio vi
+
+JOSEPH enim vir ejus, inquit, cum esset justus. Justum hic, in omni virtúte dicit esse perféctum. Cum ígitur esset justus, hoc est, frugi bonúsque vir, vóluit occúlte dimíttere eam. Proptérea vero Evangelísta dixit quid justo illi accíderit ante notítiam, ut nequáquam de his, quæ post notítiam rei sunt facta, dubitáres. Et certe, si María talis fuísset qualem illam suspício fingébat, non modo publicári meruérat, verum étiam ex legis auctoritáte puníri: sed Joseph non tantum eam damnáre nóluit, sed nec publicáre quidem. Vidísti nempe virum sublímiter philosophántem et tyránnicæ illíus passiónis immúnem. Quamquam hic quæ tandem dicerétur esse suspício, ubi ipse úteri tumor videbátur factum argúere? Sed tamen ita erat ille vir ab hujúsmodi passióne mundus ac liber, ut ne in mínimis quidem Vírgini vellet inférre mæstítiam; et adhuc sub lege vivens, supra legem philosophátur: síquidem adventánte jam grátia, multo sublimióris disciplínæ documénta fulgére oportébat.
+
+℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória Patri. Si exsúrgat.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 3, 21-23*
+
+IN illo témpore: Factum est autem cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Liber 23 contra Faust. cap. 7-8}
+
+SIC de cælo dictum est super aquam Jordánis: Hic est Fílius meus diléctus, in quo mihi bene complácui; quemádmodum dictum est et in monte. Neque enim

@@ -23388,4 +23388,62 @@ Benedícti vos a Dómino, \* qui fecit cælum, et terram.
 
 Cælum cæli Dómino: \* terram autem dedit fíliis hóminum.
 
-Non mórtui laudábunt te, Dómine: \* neque om-
+Non mórtui laudábunt te, Dómine: \* neque om-nes, qui descéndunt in inférnum.
+
+Sed nos qui vívimus, benedícimus Dómino, \* ex hoc nunc et usque in sæculum.
+
+**Ant.** Respóndens autem Angelus, dixit muliéribus: Nolíte timére: scio enim quod Jesum quǽritis, allelúja.
+
+**Ant.** Hæc dies, \* quam fecit Dóminus: exsultémus, et lætémur in ea.
+
+**Ad Magnif. Ant.** Et respiciéntes \* vidérunt revolútum lápidem: erat quippe magnus valde, allelúja.
+
+#### Oratio
+
+DEUS, qui hodiérna die per Unigénitum tuum, æternitátis nobis áditum devícta morte reserásti: vota nostra, quæ præveniéndo aspíras, étiam adjuvándo proséquere. Per eúmdem Dóminum.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Benedicámus Dómino, allelúja, allelúja. ℟. Deo grátias, allelúja, allelúja.
+
+℣. Fidélium ánimæ.
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Lectio brevis** Fratres: Sóbrii estóte.
+
+℣. Adjutórium nostrum.
+
+Pater noster.
+
+**Confíteor. Misereátur. Indulgéntiam.**
+
+℣. Convérte nos, Deus.
+
+℣. Deus, in adjutórium.
+
+Glória Patri. Allelúja.
+
+#### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.

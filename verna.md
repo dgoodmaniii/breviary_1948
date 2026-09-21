@@ -26654,3 +26654,31 @@ VIRI Galilǽi, quid statis aspiciéntes in cælum? Hic Jesus qui assúmptus est 
 ---
 
 {RUBRIC: Infra Octavam et in die Octava Officium fit ut in}
+
+{RUBRIC: Festo, præter Lectiones, quæ pro síngulis diébus assignántur própriæ.}
+
+{RUBRIC: Si infra Octávam aut Féria VI subsequénti celebrétur Officium, quod Lectiones I Nocturni sumat de Scriptúra occurrénti, hæ dicúntur cum Responsóriis de Ascensióne, ut infra.}
+
+---
+
+## Feria VI infra Octavam Ascensionis
+
+{RUBRIC: Semiduplex 601}
+
+#### In I Nocturno
+
+Incipit Epístola secúnda beáti Petri Apóstoli
+
+#### Lectio i
+
+*Cap. 1, 1-15*
+
+SIMON Petrus, servus et Apóstolus Jesu Christi, iis, qui coæquálem nobíscum sortíti sunt fidem in justítia Dei nostri et Salvatóris Jesu Christi. Grátia vobis et pax adimpleátur in cognitióne Dei et Christi Jesu Dómini nostri, quómodo ómnia nobis divínæ virtútis suæ, quæ ad vitam et pietátem donáta sunt per cognitiónem ejus, qui vocávit nos própria glória et virtúte, per quem máxima et pretiósa bonis promíssa donávit, ut per hæc efficiámini divínæ consórtes natúræ, fugiéntes ejus, quæ in mundo est, concupiscéntiæ corruptiónem.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+VOS autem curam omnem subinferéntes ministráte in fide vestra virtútem, in virtúte autem sciéntiam, in sciéntia autem abstinéntiam, in abstinéntia autem patiéntiam, in patiéntia autem pietátem, in pietáte autem amórem fraternitátis, in amóre autem fraternitátis caritátem. Hæc enim, si vobíscum adsint et súperent, non vácuos nec sine fructu vos constítuent in Dómini nostri Jesu Christi cognitióne; cui enim non præsto sunt hæc, cæcus est et manu tentans, oblivíónem accípiens purgatiónis véterum suórum delictórum.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in

@@ -19306,4 +19306,26 @@ DIxit ítaque Dóminus: Etiam Judam áuferam a fácie mea, sicut ábstuli Israë
 
 ##### Lectio iii
 
-TUlítque pópulus terræ Jóachaz fílium Josíæ, et unxérunt eum et con-
+TUlítque pópulus terræ Jóachaz fílium Josíæ, et unxérunt eum et constituérunt eum regem pro patre suo. Vigínti trium annórum erat Jóachaz, cum regnáre cœpísset, et tribus ménsibus regnávit in Jerúsalem. Nomen matris ejus Amítal fília Jeremíæ de Lobna. Et fecit malum coram Dómino, juxta ómnia quæ fécerant patres ejus. Vinxítque eum Phárao Néchao in Rebla, quæ est in terra Emath, ne regnáret in Jerúsalem; et impósuit mulctam terræ centum taléntis argénti et talénto auri. Regémque constítuit Phárao Néchao Elíacim fílium Josíæ pro Josía patre ejus, vertítque nomen ejus Jóakim. Porro Jóachaz tulit et duxit in Ægýptum, et mórtuus est ibi.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 23, 36-37*
+
+VIgínti quinque annórum erat Jóakim, cum regnáre cœpísset, et úndecim annis regnávit in Jerúsalem. Nomen matris ejus Zébida fília Phadaía de Ruma. Et fecit malum coram Dómino, juxta ómnia quæ fécerant patres ejus. In diébus ejus ascéndit Nabuchodónosor rex Babylónis, et factus est ei Jóakim servus tribus annis, et rursum rebellávit contra eum.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+*Cap. 24, 1-7*
+
+IMmisítque ei Dóminus latrúnculos Chaldæórum et latrúnculos Sýriæ et latrúnculos Moab et latrúnculos filiórum Ammon, et immísit eos in Judam ut dispérderent eum, juxta verbum Dómini quod locútus fúerat per servos suos prophétas. Factum est autem hoc per verbum Dómini contra Judam, ut auférret eum coram se propter peccáta Manásse univérsa quæ fecit, et propter sánguinem innóxium quem effúdit et implévit Jerúsalem cruóre innocéntium, et ob hanc rem nóluit Dóminus propitiári.

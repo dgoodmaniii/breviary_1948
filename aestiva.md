@@ -10305,3 +10305,65 @@ Deus meus, pone illos ut rotam: \* et sicut stípulam ante fáciem venti.
 Sicut ignis, qui combúrit silvam: \* et sicut flamma combúrens montes:
 
 Ita persequéris illos in tempestáte tua: \* et in ira tua turbábis eos.
+
+Imple fácies eórum ignomínia: \* et quærent nomen tuum, Dómine.
+
+Erubéscant, et conturbéntur in sæculum sæculi: \* et confundántur et péreant.
+
+Et cognóscant quia nomen tibi Dóminus: \* tu solus Altíssimus in omni terra.
+
+**Ant.** Ne táceas, Deus, quóniam inimíci tui extulérunt caput.
+
+#### In feriali Officio et in Festis:
+
+℣. Cognóscant quia nomen tibi Dóminus. ℟. Tu solus Altíssimus super omnem terram.
+
+#### In Officio novem Lectionum
+
+**Absolutio.** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Dómini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctórum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absolutio.** Ipsíus píetas et.
+
+##### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis sine Homilia:
+
+**Bened.** 1 Deus Pater. 2 Christus perpétuæ. 3 Ignem sui amóris.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum.) 3 Ad societátem.
+
+---
+
+## Ad Laudes I
+
+*In Fériis extra Vigílias commúnes occurréntibus, atque in Festis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Exaltáte \* Dóminum, Deum nostrum, et adoráte in monte sancto ejus.
+
+### Psalmus 98
+
+DOminus regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in

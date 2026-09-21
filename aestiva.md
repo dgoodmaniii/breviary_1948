@@ -17205,3 +17205,17 @@ ET Philísthiim congregáti sunt ad præliándum contra Israël, trigínta míll
 AIt ergo Saul: Afférte mihi holocáustum et pacífica. Et óbtulit holocáustum. Cumque complésset ófferens holocáustum, ecce Sámuel veniébat; et egréssus est Saul óbviam ei ut salutáret eum. Locutúsque est ad eum Sámuel: Quid fecísti? Respóndit Saul: Quia vidi quod pópulus dilaberétur a me, et tu non véneras juxta plácitos dies, porro Philísthiim congregáti fúerant in Machmas, dixi: Nunc descéndent Philísthiim ad me in Gálgala, et fáciem Dómini non placávi. Necessitáte compúlsus óbtuli holocáustum. Dixítque Sámuel ad Saul: Stulte egísti, nec custodísti mandáta Dómini Dei tui, quæ præcépit tibi. Quod si non fecísses, jam nunc præparásset Dóminus regnum tuum super Israël in sempitérnum; sed nequáquam regnum tuum ultra consúrget. Quæsívit Dóminus sibi virum juxta cor suum et præcépit ei Dóminus ut esset dux super pópulum suum, eo quod non serváveris quæ præcépit Dóminus.
 
 ℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória. Propter.
+
+#### In II Nocturno
+
+{RUBRIC: Ex lítteris Encýclicis Pii Papæ undécimi}
+
+##### Lectio iv
+
+ET enim beáte regnántem Christum in cælis qui piaculáres ritus consoláre queant? Scílicet «da amántem et sentit quod dico» repónimus, Augustíni verbis usi, quæ in hunc locum aptíssime cadunt. Dei enim amantíssimus quisque, si prætériti témporis spátium respíciat, videt meditándo intuetúrque Christum pro hómine laboránte, doléntem, duríssima quǽque perpetiéntem, «propter nos hómines et propter nostram salútem» tristítia, angóribus, oppróbriis pæne conféctum, immo «attrítum propter scélera nostra» ac suo nos livóre sanántem. Atque hæc ómnia eo vérius piórum meditántur ánimi, quod peccáta hóminum ac flagítia quovis témpore perpetráta in causa fúerunt cur Dei Fílius morti traderétur eadémque nunc étiam mortem ipsam per se essent Christo illatúra, iísdem cum dolóribus mæroribúsque conjúnctam, quippe síngula passiónem Dómini, suo quodam modo, renováre censeántur: «Rursus crucifigéntes sibimetípsis Fílium Dei et osténtui habéntes».
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dóminus, pátiens et multum miséricors. — Omnibus.
+
+##### Lectio v
+
+QUodsi propter peccáta quoque nostra, quæ futúra quidem erant at prævísa, ánima Christi tristis facta est usque ad mortem, haud dúbium quin solátii nonníhil jam tum céperit étiam e nostra item prævísa reparatióne, cum «appáruit illi Angelus de cælo» ut Cor ejus tædio et angóribus oppréssum consolarétur. Atque ita Cor illud sacratíssimum, quod ingratórum hóminum peccátis continénter sauciátur, étiam nunc mira quidem sed vera ratióne solári póssumus ac debémus, quandóquidem, ut in sacra quoque litúrgia légitur, ex ore Psaltis, Christus ipse se ab amícis suis derelíctum conquéritur: «Impropérium exspectávit Cor meum et misériam, et sustínui qui simul contristarétur et non fuit, et qui consolarétur et non invéni».

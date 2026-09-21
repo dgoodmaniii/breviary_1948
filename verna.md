@@ -43608,4 +43608,26 @@ BEATI Patris N. mérita, jam in tuto pósita, secúri magnificémus; qui, gubern
 
 ###### Lectio v
 
-QUANTIS hic cæcis, a via veritátis errántibus et de summa jam in profúndum rupe pendéntibus, amíssum réddidit visum; et illum, quo Christus vi-
+QUANTIS hic cæcis, a via veritátis errántibus et de summa jam in profúndum rupe pendéntibus, amíssum réddidit visum; et illum, quo Christus viderétur, reparávit intúitum? Quantórum áuribus surdis et infidelitátis obturatióne damnátis, ad percipiéndam vocem cæléstium mandatórum, pretiósum infúdit audítum; ut vocánti Deo ad misericórdiam respondérent per obediéntiam? Quantos intrínsecus vulnerátos, angélici oris arte et oratiónum, ab infirmitáte curávit?
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. (T. P. Allelúja.) ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+QUANTOS, per longam incúriam peccáti labe resolútos et quadam lepræ contagióne perfúsos, castigatiónibus et exhortatiónibus expiándo, Deo in se operánte, mundávit? Quantórum ánimas, vivéntes in córpore jam defúnctas et delictórum mole óbrutas ac sepúltas, ad emendatiónem tamquam ad lucem vocándo, Deo resuscitávit; ut, Dómini sui admirándus imitátor, jam mórtuas Deo, e contrário mortíficet, vitáli morte, peccáto?
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 24, 42-47*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vigiláte, quia nescítis qua hora Dóminus vester ventúrus sit. Et réliqua.
+
+Homilía sancti Hilárii Epíscopi
+
+{RUBRIC: Comment. in Matth. can. 26 in fine}
+
+UT ignorántiam illam diéi ómnibus táciti non sine útilis siléntii ratióne esse scirémus, vigiláre nos Dóminus propter advéntum furis admónuit, et, oratiónum assiduitáte deténtos, ómnibus præceptórum suórum opéribus inhærére. Furem enim esse osténdit zábulum, ad detrahénda ex nobis spólia pervígilem et córporum nostrórum dómibus insidiántem; ut ea, incuriósis nobis et somno déditis, consiliórum suórum atque illecebrárum jáculis perfódiat. Parátos

@@ -28874,3 +28874,66 @@ DEUS, qui ánimam beátæ Vírginis tuæ Scholásticæ, ad ostendéndam innocén
 ℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
 
 **Ad Magnif. Ant.** Ista est \* colúmba mea, perfécta mea, immaculáta mea.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: súpplices a te quǽsumus; ut, ejúsdem Vírginis Apparitiónem celebrántes, salútem mentis et córporis consequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+###### Oratio
+
+DEUS, qui ánimam beátæ Vírginis tuæ Scholásticæ ad ostendéndam innocéntiæ viam in colúmbæ spécie cælum penetráre fecísti: da nobis ejus méritis et précibus ita innocénter vívere; ut ad ætérna mereámur gáudia perveníre. (Per Dóminum.)
+
+{RUBRIC: Deinde Commem. Feriæ.}
+
+##### Ad Matutinum
+
+**Invitat.** Immaculátam Conceptiónem Vírginis Maríæ celebrémus, \* Christum ejus Fílium adorémus Dóminum. **Ps. 94** Veníte, exsultémus. 3
+
+###### Hymnus
+
+TE dícimus præcónio,
+Intácta Mater Núminis,
+Nostris benígna láudibus
+Tuam repénde grátiam.
+
+Sontes Adámi pósteri,
+Infécta proles gígnimur;
+Labis patérnæ néscia
+Tu sola, Virgo, créderis.
+
+Caput dracónis ínvidi
+Tu cónteris vestígio,
+Et sola glóriam refers
+Intaminátæ oríginis.
+
+O gentis humánæ decus,
+Quæ tollis Hevæ oppróbrium,
+Tu nos tuére súpplices,
+Tu nos labántes érige.
+
+Serpéntis antíqui potens
+Astus retúnde et ímpetus,
+Ut cælitum perénnibus
+Per te fruámur gáudiis.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+##### In I Nocturno
+
+**Ant.** Ave, grátia plena; \* Dóminus tecum.
+
+**Ant.** Benedícta tu inter mulíeres \* et benedíctus fructus ventris tui.
+
+**Ant.** Ne tímeas, María, \* invenísti grátiam apud Dóminum.
+
+℣. Deus omnípotens præcínxit me virtúte. ℟. Et pósuit immaculátam viam meam.

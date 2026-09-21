@@ -3610,3 +3610,71 @@ Dóminus dilúvium inhabitáre facit: \* et sedébit Dóminus Rex in ætérnum.
 Dóminus virtútem pópulo suo dabit: \* Dóminus benedícet pópulo suo in pace.
 
 **Ant.** Dóminus dabit virtútem et benedícet pópulo suo in pace.
+
+**Ant.** Convérsus est furor tuus.
+
+###### Canticum Isaiæ
+
+*Is. 12, 1-6*
+
+CONFITEBOR tibi, Dómine, quóniam irátus es mihi: \* convérsus est furor tuus, et consolátus es me.
+
+Ecce Deus salvátor meus, \* fiduciáliter agam, et non timébo:
+
+Quia fortitúdo mea, et laus mea Dóminus, \* et factus est mihi in salútem.
+
+Hauriétis aquas in gáudio de fóntibus Salvatóris: \* et dicétis in die illa: Confitémini Dómino, et invocáte nomen ejus:
+
+Notas fácite in pópulis adinventiónes ejus: \* mementóte quóniam excélsum est nomen ejus.
+
+Cantáte Dómino quóniam magnífice fecit: \* annuntiáte hoc in univérsa terra.
+
+Exsúlta, et lauda, habitátio Sion: \* quia magnus in médio tui Sanctus Israël.
+
+**Ant.** Convérsus est furor tuus, Dómine, et consolátus es me.
+
+**Ant.** Laudáte. †
+
+###### Psalmus 116
+
+LAUDATE † Dóminum, omnes gentes: \* ‡ laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+**Ant.** Laudáte Dóminum, quóniam confirmáta est super nos misericórdia ejus.
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+SPLENDOR Patérnæ glóriæ,
+De luce lucem próferens,
+Lux lucis, et fons lúminis,
+Diem dies illúminans:
+
+Verúsque sol illábere,
+Micans nitóre pérpeti:
+Jubárque Sancti Spíritus
+Infúnde nostris sénsibus.
+
+Votis vocémus et Patrem,
+Patrem poténtis grátiæ,
+Patrem perénnis glóriæ:
+Culpam reléget lúbricam.
+
+Confírmet actus strénuos:
+Dentes retúndat ínvidi:
+Casus secúndet ásperos:
+Agénda recte dírigat.
+
+Mentem gubérnet et regat:
+Sit pura nobis cástitas:
+Fides calóre férveat,
+Fraudis venéna nésciat.
+
+Christúsque nobis sit cibus,
+Potúsque noster sit fides:
+Læti bibámus sóbriam
+Profusiónem Spíritus.

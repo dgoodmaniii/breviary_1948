@@ -30046,3 +30046,19 @@ DEUS, qui Ecclésiam tuam beáti Thomæ Confessóris tui mira eruditióne clarí
 {RUBRIC: Et fit Commem. præced.:}
 
 **Ant.** Istárum est, {RUBRIC: ℣. Glória et} **Oratio** Da nobis, {RUBRIC: ut supra.}
+
+{RUBRIC: Deinde Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones} Sapiéntiam, {RUBRIC: de Communi Doctorum. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PRÆCLARUM christiáni orbis decus et Ecclésiæ lumen, beatíssimus vir Thomas, Landúlpho cómite Aquináte et Theodóra Neapolitána, nobílibus paréntibus natus, futúræ in Deíparam devotiónis afféctum adhuc infántulus osténdit. Nam chártulam ab eo invéntam, in qua salutátio angélica scripta erat, frustra adniténte nutríce, compréssa manu válide retínuit, et a matre per vim abréptam, plorátu et gestu repétiit, ac mox rédditam deglutívit. Quintum annum agens, mónachis sancti Benedícti Cassinátibus custodiéndus tráditur. Inde Neápolim studiórum causa missus, jam adoléscens fratrum Prædicatórum órdinem suscépit. Sed matre ac frátribus id indígne feréntibus, Lutétiam Parisiórum míttitur. Quem fratres in itínere per vim raptum, in arcem castri sancti Joánnis perdúcunt: ubi várie exagitátus, ut sanctum propósitum mutáret, mulíerem étiam, quæ ad labefactándam ejus constántiam introdúcta fúerat, titióne fugávit. Mox beátus júvenis, flexis génibus ante signum crucis orans, ibíque somno corréptus, per quiétem sentíre visus est sibi ab Angelis constríngi lumbos; quo ex témpore omni póstea libídinis sensu cáruit. Soróribus, quæ, ut eum a pio consílio removérent, in castrum vénerant, persuásit, ut, contémptis curis sæculáribus, ad exercitatiónem cæléstis vitæ se conférrent.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+EMISSUS e castro per fenéstram, Neápolim redúcitur; unde Romam, póstea Parísium a fratre Joánne Theutónico, órdinis Prædicatórum generáli magístro, ductus, Albérto Magno doctóre, philosophíæ ac theológiæ óperam dedit. Vigínti quinque annos natus, magíster est appellátus, publicéque philósophos ac theólogos

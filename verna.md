@@ -31825,3 +31825,31 @@ DEUS, qui inter céteros Angelos, ad annuntiándum incarnatiónis tuæ mystériu
 ℣. Ave, María, grátia plena. {RUBRIC: (T. P. Allelúja.)} ℟. Dóminus tecum. {RUBRIC: (T. P. Allelúja.)}
 
 **Ad Magnif. Ant.** Spíritus Sanctus \* in te descéndet, María, et virtus Altíssimi obumbrábit tibi. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### Ad Matutinum
+
+**Invit.** Ave, María, grátia plena: \* Dóminus tecum. {RUBRIC: (T. P. Allelúja.)} **Ps. 94** Veníte, exsultémus. [3]
+
+##### In I Nocturno
+
+De Isaía Prophéta
+
+###### Lectio i
+
+*Cap. 7, 10-15*
+
+ET adjécit Dóminus loqui ad Achaz, dicens: Pete tibi signum a Dómino Deo tuo in profúndum inférni, sive in excélsum supra. Et dixit Achaz: Non petam, et non tentábo Dóminum. Et dixit: Audíte ergo, domus David: Numquid parum vobis est, moléstos esse homínibus, quia molésti estis et Deo meo? Propter hoc dabit Dóminus ipse vobis signum. Ecce virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum et elígere bonum.
+
+℟. Missus est Gábriel Angelus ad Maríam Vírginem desponsátam Joseph, núntians ei verbum; et expavéscit Virgo de lúmine: ne tímeas, María, invenísti grátiam apud Dóminum; \* Ecce concípies et páries, et vocábitur Altíssimi Fílius. {RUBRIC: (T. P. Allelúja.)} ℣. Dabit ei Dóminus Deus sedem David, patris ejus, et regnábit in domo Jacob in ætérnum. — Ecce.
+
+###### Lectio ii
+
+*Cap. 11, 1-5*
+
+ET egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum Spíritus Dómini: spíritus sapiéntiæ et intelléctus, spíritus consílii et fortitúdinis, spíritus sciéntiæ et pietátis; et replébit eum spíritus timóris Dómini: non secúndum visiónem oculórum judicábit, neque secúndum audítum áurium árguet: sed judicábit in justítia páuperes, et árguet in æquitáte pro mansuétis terræ: et percútiet terram virga oris sui, et spíritu labiórum suórum interfíciet ímpium. Et erit justítia cíngulum lumbórum ejus: et fides cinctórium renum ejus.

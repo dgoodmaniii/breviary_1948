@@ -15659,3 +15659,21 @@ UT ergo in Génesi per Melchísedech sacerdótem benedíctio circa Abraham posse
 *Cap. 6, 56-59*
 
 IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et sanguis meus vere est potus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractatus 26 in Joánnem, circa médium}
+
+NOn sicut manducavérunt patres vestri manna, et mórtui sunt. Quare manducavérunt, et mórtui sunt? Quia quod vidébant, credébant; quod non vidébant, non intelligébant. Ideo patres vestri, quia símiles estis illórum. Nam quantum pértinet, fratres mei, ad mortem istam visíbilem et corporálem, numquid nos non mórimur, qui manducámus panem de cælo descendéntem? Sic sunt mórtui et illi, quemádmodum et nos sumus moritúri; quantum áttinet, ut dixi, ad mortem hujus córporis visíbilem atque carnálem.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In me manet.
+
+##### Lectio viii
+
+QUantum autem pértinet ad illam mortem, de qua terret Dóminus, qua mórtui sunt patres istórum; manducávit manna et Móyses, manducávit manna et Aaron, manducávit manna et Phínees, manducavérunt ibi multi, qui Dómino placuérunt, et mórtui non sunt. Quare? Quia visíbilem cibum spiritáliter intellexérunt, spiritáliter esuriérunt, spiritáliter gustavérunt, ut spiritáliter satiaréntur. Nam et nos hódie accípimus visíbilem cibum; sed áliud est sacraméntum, áliud virtus sacraménti.
+
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me. ℣. Cibávit illum Dóminus pane vitæ et intelléctus. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+QUam multi de altári accípiunt, et moriúntur, et accipiéndo moriúntur! Unde dicit Apóstolus: Judícium sibi mandúcat et bibit. Nonne buccélla Domínica venénum fuit Judæ? Et tamen accépit. Et cum accépit, in eum inimícus intrávit; non quia malum accépit, sed quia bonum male malus accépit. Vidéte ergo, fratres, panem cæléstem spiritáliter manducáte, innocéntiam ad altáre apportáte. Peccáta, etsi sunt quotidiána, vel non sint mortífera;

@@ -8779,4 +8779,52 @@ Ecce enim, veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manif
 
 Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
 
-Audítui meo dabis gáudium et lætítiam: \* et
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis: \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus: \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua: \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui: \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.
+
+Dómine, lábia mea apéries: \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem útique: \* holocáustis non delectáberis.
+
+Sacrifícium Deo spíritus contribulátus: \* cor contrítum, et humiliátum, Deus, non despícies.
+
+Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jerúsalem.
+
+Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
+
+**Ant.** Tibi soli peccávi, Dómine: miserére mei.
+
+**Ant.** Convértere, Dómine.
+
+### Psalmus 89
+
+DOmine, refúgium factus es nobis: \* a generatióne in generatiónem.
+
+Priúsquam montes fíerent, aut formarétur terra et orbis: \* a sæculo et usque in sæculum tu es, Deus.
+
+Ne avértas hóminem in humilitátem: \* et dixísti: Convertímini, fílii hóminum.
+
+Quóniam mille anni ante óculos tuos, \* tamquam dies hestérna, quæ prætériit,
+
+Et custódia in nocte, \* quæ pro níhilo habéntur, eórum anni erunt.
+
+Mane sicut herba tránseat, mane flóreat, et tránseat: \* véspere décidat, indúret et aréscat.
+
+Quia defécimus in ira tua, \* et in furóre tuo turbáti sumus.
+
+Posuísti iniquitátes nostras in conspéctu tuo: \* sæculum nostrum in illuminatióne vultus tui.
+
+Quóniam omnes dies nostri defecérunt: \* et in ira tua defécimus.
+
+Anni nostri sicut aránea meditabúntur: \* dies annórum nostrórum in ipsis, septuagínta anni.

@@ -31268,3 +31268,97 @@ Dóminus retríbuet pro me: \* Dómine, misericórdia tua in sǽculum: ópera m�
 *Dan. 9, 21-22*
 
 ECCE vir Gábriel, quem víderam in visióne a princípio, cito volans, tétigit me in témpore sacrifícii vespertíni. Et dócuit me, et locútus est mihi, dixítque: Dániel, nunc egréssus sum ut docérem te, et intellígeres.
+
+###### Hymnus
+
+CHRISTE, sanctórum decus Angelórum,
+Gentis humánæ Sator et Redémptor,
+Cælitum nobis tríbuas beátas
+Scándere sedes.
+
+Angelus fortis Gábriel, ut hostes
+Pellat antíquos, et amíca cælo,
+Quæ triumphátor státuit per orbem,
+Témpla revísat.
+
+Virgo dux pacis, Genitríxque ducis,
+Et sacer nobis chorus Angelórum
+Semper assístat, simul et micántis
+Régia cæli.
+
+Prǽstet hoc nobis Déitas beáta
+Patris, ac Nati, paritérque Sancti
+Spíritus, cujus résonat per omnem
+Glória mundum. Amen.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+**Ad Magnif. Ant.** Angelus Gábriel \* appáruit Daniéli, et dixit illi: Ab exórdio precum tuárum egréssus est sermo: ego autem veni ut indicárem tibi; tu ergo animadvérte sermónem, et intéllige visiónem.
+
+###### Oratio
+
+DEUS, qui inter céteros Angelos, ad annuntiándum incarnatiónis tuæ mystérium, Gabriélem Archángelum elegísti: concéde propítius; ut qui festum ejus celebrámus in terris, ipsíus patrocínium sentiámus in cælis: Qui vivis.
+
+{RUBRIC: Et fit Cpmmemoratio Feriæ.}
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invit.** Regem Archangelórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. [3]
+
+{RUBRIC: Hymnus Christe, sanctórum, ut supra.}
+
+##### In I Nocturno
+
+**Ant.** Dixit Angelus Gábriel \* ad Daniélem: Intéllige, fili hóminis, quóniam in témpore finis implébitur vísio.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Ómnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Dixit Angelus Gábriel ad Daniélem: Intéllige, fili hóminis, quóniam in témpore finis implébitur vísio.
+
+**Ant.** Ecce vir Gábriel, \* quem víderam in visióne, cito volans tétigit me in témpore sacrifícii vespertíni, et dócuit me.
+
+###### Psalmus 10
+
+IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Oculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+**Ant.** Ecce vir Gábriel, quem víderam in visióne, cito volans tétigit me in témpore sacrifícii vespertíni, et dócuit me.
+
+**Ant.** Cumque Gábriel \* loquerétur ad me, collápsus sum pronus in terram, et tétigit me, et státuit me in gradu meo.
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?

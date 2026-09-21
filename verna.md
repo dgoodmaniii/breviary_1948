@@ -20368,4 +20368,38 @@ PONTIFICES et pharisǽi sibi consulébant: nec tamen dicébant, Credámus. Plus 
 
 NAM et Románi post Dómini passiónem et glorificatiónem tulérunt eis et locum et gentem, expugnándo et transferéndo: et illud eos séquitur, quod álibi dictum est: Fílii autem regni hujus ibunt in ténebras exterióres. Hoc autem timuérunt, ne, si omnes in Christum créderent, nemo remanéret, qui advérsus Romános civitátem Dei templúmque defénderet: quóniam contra ipsum templum, et contra suas patérnas leges doctrínam Christi esse sentiébant.
 
-℟. In te jactátus sum ex útero, de ventre matris meæ Deus meus es tu, ne discédas a me: \* Quóniam tribulátio próxima est, et non est qui ádjuvet. ℣. Sal-
+℟. In te jactátus sum ex útero, de ventre matris meæ Deus meus es tu, ne discédas a me: \* Quóniam tribulátio próxima est, et non est qui ádjuvet. ℣. Salva me ex ore leónis, et a córnibus unicórnium humilitátem meam. — Quóniam.
+
+#### Lectio iii
+
+UNUS autem ex ipsis, Cáiphas, cum esset póntifex anni illíus, dixit eis: Vos nescítis quidquam, nec cogitátis, quia éxpedit vobis ut unus moriátur homo pro pópulo, et non tota gens péreat. Hoc autem a semetípso non dixit: sed cum esset póntifex anni illíus, prophetávit. Hic docémur, étiam hómines malos prophetíæ spíritu futúra prædícere: quod tamen Evangelísta divíno tríbuit sacraménto, quia póntifex fuit, id est summus sacérdos.
+
+℟. In próximo est tribulátio mea, Dómine, et non est qui ádjuvet; ut fódiant manus meas et pedes meos: líbera me de ore leónis, \* Ut enárrem nomen tuum frátribus meis. ℣. Erue a frámea, Deus, ánimam meam, et de manu canis únicam meam. — Ut. In.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+**Ad Bened. Ant.** Appropinquábat autem \* dies festus Judæórum: et quærébant príncipes sacerdótum quómodo Jesum interfícerent, sed timébant plebem.
+
+#### Oratio
+
+CORDIBUS nostris, quæsumus, Dómine, grátiam tuam benígnus infúnde: ut peccáta nostra castigatióne voluntária cohibéntes, temporáliter pótius macerémur, quam supplíciis deputémur ætérnis. Per Dóminum.
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Príncipes sacerdótum \* consílium fecérunt ut Jesum occíderent: dicébant autem: Non in die festo, ne forte tumúltus fíeret in pópulo.
+
+#### Oratio
+
+CONCEDE, quæsumus, omnípotens Deus: ut, qui protectiónis tuæ grátiam quǽrimus, liberáti a malis ómnibus, secúra tibi mente serviámus. Per Dóminum.
+
+---
+
+## Sabbato
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 12, 10-36*
+
+IN illo témpore: Cogitavérunt príncipes sacerdótum ut et Lázarum interfícerent: quia multi

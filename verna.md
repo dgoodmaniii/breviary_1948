@@ -23832,4 +23832,71 @@ Te Deum.
 
 #### Oratio
 
-CONCEDE, quǽsumus, omnípotens Deus: ut, qui festa paschália venerándo
+CONCEDE, quǽsumus, omnípotens Deus: ut, qui festa paschália venerándo égimus, per hæc contíngere ad gáudia ætérna mereámur. Per Dóminum.
+
+{RUBRIC: Post Nonam terminátur Officium de Octáva.}
+
+## Ad Vesperas
+
+{RUBRIC: Officium fit duplex.}
+
+{RUBRIC: Antiphona} Allelúja {RUBRIC: cum Psalmis de Sabbato, ut in Psaltério. 332}
+
+**Capit.** *1 Joann. 5, 4*
+
+CARISSIMI: Omne quod natum est ex Deo, vincit mundum: et hæc est victória, quæ vincit mundum, fides nostra.
+
+#### Hymnus
+
+AD régias Agni dapes,
+Stolis amícti cándidis,
+Post tránsitum Maris Rubri,
+Christo canámus Príncipi:
+
+Divína cujus cáritas
+Sacrum propínat sánguinem,
+Almíque membra córporis
+Amor sacérdos ímmolat.
+
+Sparsum cruórem póstibus
+Vastátor horret Angelus:
+Fugítque divísum mare;
+Mergúntur hostes flúctibus.
+
+Jam Pascha nostrum Christus est,
+Paschális idem víctima,
+Et pura puris méntibus
+Sinceritátis ázyma.
+
+O vera cæli víctima,
+Subjécta cui sunt tártara,
+Solúta mortis víncula,
+Recépta vitæ prǽmia.
+
+Víctor, subáctis ínferis,
+Trophǽa Christus éxplicat;
+Cælóque apérto, súbditum
+Regem tenebrárum trahit.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Cum esset sero \* die illa una sabbatórum, et fores essent clausæ, ubi erant discípuli congregáti in unum, stetit Jesus in médio, et dixit eis: Pax vobis, allelúja.
+
+{RUBRIC: Ad Vesperas Dominicæ}
+
+**Ad Magnif. Ant.** Post dies octo \* jánuis clausis ingréssus Dóminus dixit eis: Pax vobis, allelúja, allelúja.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui paschália festa perégimus, hæc, te largiénte, móribus et vita teneámus. Per Dóminum.

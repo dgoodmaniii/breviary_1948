@@ -17368,4 +17368,24 @@ ET dixit Sámuel ad Saul: Me misit Dóminus, ut úngerem te in regem super pópu
 
 ##### Lectio ii
 
-PRæcépit ítaque Saul pópulo, et recénsuit eos quasi agnos: ducénta míllia péditum et decem míllia virórum Juda. Cumque venísset Saul usque ad civitátem Amalec, teténdit insídias in torrénte. Dixítque Saul Cinæo: Abíte, recédite, atque descéndite ab Amalec: ne forte invólvam te cum eo; tu enim fecísti misericórdiam cum ómnibus fíliis Israël cum ascénderent de Ægýpto. Et recéssit Ci-
+PRæcépit ítaque Saul pópulo, et recénsuit eos quasi agnos: ducénta míllia péditum et decem míllia virórum Juda. Cumque venísset Saul usque ad civitátem Amalec, teténdit insídias in torrénte. Dixítque Saul Cinæo: Abíte, recédite, atque descéndite ab Amalec: ne forte invólvam te cum eo; tu enim fecísti misericórdiam cum ómnibus fíliis Israël cum ascénderent de Ægýpto. Et recéssit Cinæus de médio Amalec. Percussítque Saul Amalec ab Hévila donec vénias ad Sur, quæ est e regióne Ægýpti. Et apprehéndit Agag regem Amalec vivum; omne autem vulgus interfécit in ore gládii.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu vero.
+
+##### Lectio iii
+
+ET pepércit Saul et pópulus Agag et óptimis grégibus óvium et armentórum et véstibus, et ariétibus et univérsis, quæ pulchra erant, nec voluérunt dispérdere ea; quidquid vero vile fuit et réprobum, hoc demolíti sunt. Factum est autem verbum Dómini ad Sámuel dicens: Pœnitet me quod constitúerim Saul regem, quia derelíquit me et verba mea ópere non implévit. Contristatúsque est Sámuel et clamávit ad Dóminum tota nocte.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória Patri. Propter.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis}
+
+{RUBRIC: Sermo 61 in Cantica Canticórum, nn. 3-5}
+
+##### Lectio iv
+
+SEvéra ubi tuta fírmaque infírmis secúritas et réquies, nisi in vulnéribus Salvatóris? Tanto illic secúrior hábito, quanto ille poténtior est ad salvándum. Fremit mundus, premit corpus, diábolus insidiátur: non cado; fundátus enim sum supra firmam petram. Peccávi peccátum grande: turbábitur consciéntia, sed non perturbábitur, quóniam vúlnerum Dómini recordábor. Nempe vulnerátus est propter iniquitátes nostras. Quid tam ad mortem, quod non Christi morte solvátur? Si ergo in mentem vénerit tam potens tamque éfficax medicaméntum, nulla jam possum morbi malignitáte terréri.
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dómi-

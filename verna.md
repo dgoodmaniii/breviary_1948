@@ -27389,4 +27389,22 @@ IDEOQUE omnímodis detestánda sunt venéna Orientális erróris, qui ímpia nov
 
 *Cap. 16, 14-20*
 
-IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui víderant eum resurrexísse, non credidérunt. Et réliqua.
+
+De Homilía sancti Gregórii Papæ
+
+{RUBRIC: Eadem Homilia 29}
+
+DE hac ascensiónis ejus glória étiam Hábacuc ait: Elevátus est sol, et luna stetit in órdine suo. Quis enim solis nómine, nisi Dóminus; et quæ lunæ nómine, nisi Ecclésia desígnátur? Quoúsque enim Dóminus ascéndit ad cælos, sancta ejus Ecclésia advérsa mundi omnímodo formidávit; at postquam ejus ascensióne roboráta est, apérte prædicávit quod occúlte crédidit. Elevátus est ergo sol, et luna stetit in órdine suo: quia cum Dóminus cælum pétiit, sancta ejus Ecclésia in auctoritáte prædicatiónis excrévit.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut.
+
+#### Lectio viii
+
+HINC ejúsdem Ecclésiæ voce per Salomónem dícitur: Ecce iste venit sáliens in móntibus, et transíliens colles. Consíderávit namque tantórum óperum cúlmina, et ait: Ecce iste venit sáliens in móntibus. Veniéndo quippe ad redemptiónem nostram, quosdam, ut ita dicam, saltus dedit. Vultis, fratres caríssimi, ipsos ejus saltus agnóscere? De cælo venit in úterum, de útero venit in præsépe, de præsépe venit in crucem, de cruce venit in sepúlcrum, de sepúlcro rédiit in cælum. Ecce, ut nos post se cúrrere fáceret, quosdam pro nobis saltus manifestáta per carnem Véritas dedit: quia exsultávit ut gigas ad curréndam viam suam, ut nos ei dicerémus ex corde: Trahe nos: post te currémus in odórem unguentórum tuórum.
+
+℟. Ponis nubem ascénsum tuum, Dómine: \* Qui ámbulas super pennas ventórum, allelúja. ℣. Confessiónem et decórem indúisti, amíctus lumen sicut vestiméntum. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+UNDE, fratres caríssimi, opórtet, ut illuc sequámur corde, ubi eum córpore ascendísse crédimus. Desidéria terréna fugiámus: nihil nos jam deléctet in ínfimis, qui Patrem

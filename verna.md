@@ -24058,4 +24058,48 @@ Amen.
 
 PRÆSTA, quǽsumus, omnípotens Deus: ut, qui paschália festa perégimus, hæc, te largiénte, móribus et vita teneámus. Per Dóminum.
 
-{RUBRIC: Ad Horas Hymni ut in Psaltério de Ordinario, Antiphona} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério; Responsoria brevia et ad Primam etiam Lectio brevis} Si consurrexístis {RUBRIC: de Tempore}
+{RUBRIC: Ad Horas Hymni ut in Psaltério de Ordinario, Antiphona} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério; Responsoria brevia et ad Primam etiam Lectio brevis} Si consurrexístis {RUBRIC: de Tempore Paschali, ut in Psalterio de Ordinario.}
+
+## Ad Tertiam
+
+**Capit.** *1 Joann. 5, 4*
+
+CARISSIMI: Omne quod natum est ex Deo, vincit mundum: et hæc est victória, quæ vincit mundum, fides nostra.
+
+**℟. br.** Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui paschália festa perégimus, hæc, te largiénte, móribus et vita teneámus. Per Dóminum.
+
+## Ad Sextam
+
+**Capit.** *1 Joann. 5, 5-6*
+
+QUIS est autem qui vincit mundum, nisi qui credit quóniam Jesus est Fílius Dei? hic est, qui venit per aquam et sánguinem, Jesus Christus: non in aqua solum, sed in aqua et sánguine.
+
+**℟. br.** Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+## Ad Nonam
+
+**Capit.** *1 Joann. 5, 9-10*
+
+SI testimónium hóminum accípimus, testimónium Dei majus est: quóniam hoc est testimónium Dei, quod majus est, quóniam testificátus est de Fílio suo. Qui credit in Fílium Dei, habet testimónium Dei in se.
+
+**℟. br.** Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+## Ad Vesperas
+
+{RUBRIC: Antiphona} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério 72; Capitulum, Hymnus et Versus, ut in Vésperis præcedéntis Sábbati. 521}
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Post dies octo \* jánuis clausis ingréssus Dóminus dixit eis: Pax vobis, allelúja, allelúja.
+
+{RUBRIC: Ad Completorium Ant.} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério 76, et réliqua ut ibídem de Ordinário pro Témpore Paschali.}

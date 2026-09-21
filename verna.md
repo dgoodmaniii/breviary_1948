@@ -33465,4 +33465,24 @@ SUPERVENIENTE autem Paschális festivitátis die, intempéstæ noctis siléntio,
 
 ###### Lectio vi
 
-QUIDAM étiam ferunt, quod illic noctúrno témpore accénsæ lámpades apparébant; unde et factum est, quátenus corpus illíus, ut vidélicet Mártyris, jure a cunctis fidélibus venerári debuísset. Pater vero pérfidus et parricída, commótus pœniténtia, hoc fecísse se dóluit, nec tamen usque ad obtinéndam salútem pœnítuit. Nam quia vera esset cathólica fides agnóvit, sed gentis suæ timóre pertérritus, ad hanc perveníre non méruit. Qui, obórta ægritúdine, ad extréma perdúctus est, et Leándro epíscopo, quem prius veheménter afflíxerat, Reccarédum regem fílium suum, quem in sua hǽresi relinquébat, commendáre curávit, ut in ipso quoque tália fáceret, quália et in fratre suis exhortatiónibus fecísset. Qua commendatióne expléta, defúnctus est. Post ejus mortem Reccarédus rex non patrem pérfidum, sed fratrem Mártyrem sequens, ab Ariánæ hǽreseos pravitáte convérsus est, totámque Visigothórum gentem ita ad veram perdúxit fidem, ut nullum in suo regno militáre permítteret, qui regni Dei
+QUIDAM étiam ferunt, quod illic noctúrno témpore accénsæ lámpades apparébant; unde et factum est, quátenus corpus illíus, ut vidélicet Mártyris, jure a cunctis fidélibus venerári debuísset. Pater vero pérfidus et parricída, commótus pœniténtia, hoc fecísse se dóluit, nec tamen usque ad obtinéndam salútem pœnítuit. Nam quia vera esset cathólica fides agnóvit, sed gentis suæ timóre pertérritus, ad hanc perveníre non méruit. Qui, obórta ægritúdine, ad extréma perdúctus est, et Leándro epíscopo, quem prius veheménter afflíxerat, Reccarédum regem fílium suum, quem in sua hǽresi relinquébat, commendáre curávit, ut in ipso quoque tália fáceret, quália et in fratre suis exhortatiónibus fecísset. Qua commendatióne expléta, defúnctus est. Post ejus mortem Reccarédus rex non patrem pérfidum, sed fratrem Mártyrem sequens, ab Ariánæ hǽreseos pravitáte convérsus est, totámque Visigothórum gentem ita ad veram perdúxit fidem, ut nullum in suo regno militáre permítteret, qui regni Dei hostis exsístere per hæréticam pravitátem non timéret. Nec mirum quod veræ fídei prædicátor factus est, qui frater est Mártyris; cujus hunc quoque mérita ádjuvant, ut ad omnipoténtis Dei grémium tam multos redúcat.
+
+{RUBRIC: In Quadragesima}
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+---
+
+Pro hoc Festo simplificato
+
+Ex libro Dialogórum sancti Gregórii Papæ
+
+{RUBRIC: Liber 3, cap. 31}
+
+###### Lectio ix
+
+ERMENEGILDUS rex, Leovigíldi regis Visigothórum fílius, ab Ariána hǽresi ad fidem cathólicam viro reverendíssimo Leándro Hispalénsi epíscopo, dudum mihi in amicítiis familiáriter juncto, prædicánte, convérsus est. Quem pater Ariánus, ut ad eámdem hǽresim redíret, et præmiis suadére, et minis terrére conátus est. Cumque ille constantíssime respondéret, numquam se veram fidem posse relínquere, quam semel agnovísset: irátus pater eum privávit regno, rebúsque exspoliávit ómnibus; et in arcta illum custódia conclúdens, collum manúsque illíus ferro ligávit. Cœpit ítaque Hermenegíldus rex júvenis terrénum regnum despícere, et forti desidério cæléste quærens, in cilíciis vinculátus jacens, omnipoténti Deo ad confortándum se preces effúndere. Superveniénte autem Paschális festivitátis die, intempéstæ noctis siléntio ad eum pérfidus pater Ariánum epíscopum misit, ut ex ejus manu sacrílegæ consecratiónis communiónem percíperet, atque per hoc ad patris grátiam redíre mererétur. Sed vir Deo déditus, Ariáno epíscopo veniénti exprobrávit, ut débuit, ejúsque a se perfídiam dignis increpatiónibus répulit. Ad se

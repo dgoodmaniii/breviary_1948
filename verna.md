@@ -33485,4 +33485,60 @@ Ex libro Dialogórum sancti Gregórii Papæ
 
 ###### Lectio ix
 
-ERMENEGILDUS rex, Leovigíldi regis Visigothórum fílius, ab Ariána hǽresi ad fidem cathólicam viro reverendíssimo Leándro Hispalénsi epíscopo, dudum mihi in amicítiis familiáriter juncto, prædicánte, convérsus est. Quem pater Ariánus, ut ad eámdem hǽresim redíret, et præmiis suadére, et minis terrére conátus est. Cumque ille constantíssime respondéret, numquam se veram fidem posse relínquere, quam semel agnovísset: irátus pater eum privávit regno, rebúsque exspoliávit ómnibus; et in arcta illum custódia conclúdens, collum manúsque illíus ferro ligávit. Cœpit ítaque Hermenegíldus rex júvenis terrénum regnum despícere, et forti desidério cæléste quærens, in cilíciis vinculátus jacens, omnipoténti Deo ad confortándum se preces effúndere. Superveniénte autem Paschális festivitátis die, intempéstæ noctis siléntio ad eum pérfidus pater Ariánum epíscopum misit, ut ex ejus manu sacrílegæ consecratiónis communiónem percíperet, atque per hoc ad patris grátiam redíre mererétur. Sed vir Deo déditus, Ariáno epíscopo veniénti exprobrávit, ut débuit, ejúsque a se perfídiam dignis increpatiónibus répulit. Ad se
+ERMENEGILDUS rex, Leovigíldi regis Visigothórum fílius, ab Ariána hǽresi ad fidem cathólicam viro reverendíssimo Leándro Hispalénsi epíscopo, dudum mihi in amicítiis familiáriter juncto, prædicánte, convérsus est. Quem pater Ariánus, ut ad eámdem hǽresim redíret, et præmiis suadére, et minis terrére conátus est. Cumque ille constantíssime respondéret, numquam se veram fidem posse relínquere, quam semel agnovísset: irátus pater eum privávit regno, rebúsque exspoliávit ómnibus; et in arcta illum custódia conclúdens, collum manúsque illíus ferro ligávit. Cœpit ítaque Hermenegíldus rex júvenis terrénum regnum despícere, et forti desidério cæléste quærens, in cilíciis vinculátus jacens, omnipoténti Deo ad confortándum se preces effúndere. Superveniénte autem Paschális festivitátis die, intempéstæ noctis siléntio ad eum pérfidus pater Ariánum epíscopum misit, ut ex ejus manu sacrílegæ consecratiónis communiónem percíperet, atque per hoc ad patris grátiam redíre mererétur. Sed vir Deo déditus, Ariáno epíscopo veniénti exprobrávit, ut débuit, ejúsque a se perfídiam dignis increpatiónibus répulit. Ad se itaque revérso epíscopo, Ariánus pater infrémuit, statímque suos apparitóres misit, qui constantíssimum Confessórem Dei illic, ubi jacébat, occidérunt.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno, etiam Tempore Paschali, Homilia in Ev. Si quis venit de Communi unius Martyris extra Tempus Paschale 1 loco, cum Responsoriis pro temporis qualitate ibi notatis. [44]}
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Capitulum** *Jac. 1, 12*
+
+BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+{RUBRIC: Tempore Paschali}
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos qui se angustiavérunt, et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+NULLIS te génitor blandítiis trahit,
+Non vitæ cáperis dívitis ótio,
+Gemmarúmve nitóre,
+Regnandíve cupídine.
+
+Diris non ácies te gládii minis,
+Nec terret périmens carníficis furor:
+Nam mansúra cadúcis
+Præfers gáudia cælitum.
+
+Nunc nos e Súperum prótege sédibus
+Clemens, atque preces, dum cánimus tua
+Quæsítam nece palmam,
+Pronis áuribus éxcipe.
+
+Sit rerum Dómino jugis honor Patri,
+Et Natum célebrent ora precántium,
+Divinúmque suprémis
+Flamen láudibus éfferant. Amen.
+
+{RUBRIC: Extra Tempus Paschale}
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+{RUBRIC: Tempore Paschali}
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.

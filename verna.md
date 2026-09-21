@@ -35736,3 +35736,62 @@ Multifórmis proditóris
 Ars ut artem fálleret,
 Et medélam ferret inde,
 Hostis unde lǽserat.
+
+Quando venit ergo sacri
+Plenitúdo témporis,
+Missus est ab arce Patris
+Natus, orbis Cónditor;
+Atque ventre virgináli
+Carne amíctus pródiit.
+
+Vagit infans inter arcta
+Cónditus præsépia:
+Membra pannis involúta
+Virgo Mater álligat:
+Et Dei manus pedésque
+Stricta cingit fáscia.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Unius Triníque nomen
+Laudet univérsitas. Amen.
+
+###### In I Nocturno
+
+**Ant.** Invéntæ Crucis \* festa recólimus, cujus præcónium univérsum per orbem micánti lúmine fulget, allelúja.
+
+###### Psalmus 1
+
+BEATUS vir, † qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+###### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam,

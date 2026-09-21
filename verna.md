@@ -41305,4 +41305,32 @@ TRIUMPHALIS beáti Mártyris N. dies hódie nobis anniversária celebritáte rec
 
 ###### Lectio v
 
-CORONATA ítaque est beáti Mártyris patiéntia: mancipáta est ætérnis cruciátibus tortóris incorrécta malítia. Hoc atténdens in agóne suo gloriósus Christi Athléta, non exhórruit cárcerem. Ad imitatiónem cápitis sui tolerávit probra, sustínuit irrisiónes, flagélla non tímuit, et quot ante mortem pro Christo pértulit supplícia, tot ei de se óbtulit sacrifícia. Quod enim propinánte Apóstolo bíberat, alte retinébat: Quia non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis; et Quia momentáneum hoc et leve nostræ tribulatiónis, ætérnum glóriæ pondus operátur in cælis. Hujus promissiónis amóre a terrénis suspénsus, et prægustáta supérnæ suavitátis dulcédine ineffabíliter afféctus,
+CORONATA ítaque est beáti Mártyris patiéntia: mancipáta est ætérnis cruciátibus tortóris incorrécta malítia. Hoc atténdens in agóne suo gloriósus Christi Athléta, non exhórruit cárcerem. Ad imitatiónem cápitis sui tolerávit probra, sustínuit irrisiónes, flagélla non tímuit, et quot ante mortem pro Christo pértulit supplícia, tot ei de se óbtulit sacrifícia. Quod enim propinánte Apóstolo bíberat, alte retinébat: Quia non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis; et Quia momentáneum hoc et leve nostræ tribulatiónis, ætérnum glóriæ pondus operátur in cælis. Hujus promissiónis amóre a terrénis suspénsus, et prægustáta supérnæ suavitátis dulcédine ineffabíliter afféctus, dicébat cum Psalmísta: Quid mihi est in cælo, et a te quid vólui super terram? Defécit caro mea et cor meum: Deus cordis mei, et pars mea Deus in ætérnum.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis: posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+CONTEMPLABATUR enim quantum in ænígmate infírmitas humána óculum mentis in æternitáte fígere potest, quanta sint supérnæ civitátis gáudia: et ea enarráre non sufficiéns, admirándo clamábat: Quid mihi est in cælo? Quasi díceret: Excédit vires meas, excédit facultátem eloquéntiæ meæ, transcéndit capacitátem intelligéntiæ meæ illud decus, illa glória, illa celsitúdo, qua nobis, a conturbatióne hóminum remótis, in abscóndito faciéi suæ Jesus Christus Dóminus noster reformábit corpus humilitátis nostræ, configurátum córpori claritátis suæ. Hujus perféctæ libertátis contemplatióne nullum vitábat perículum, nullum horrébat supplícium: et si míllies posset mori, non putábat se hanc digne posse áliqua ratióne proméreri.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+##### In III Nocturno
+
+**Ant.** Justus Dóminus, \* et justítiam diléxit: æquitátem vidit vultus ejus.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Psalmus 10
+
+IN Dómino confído: quómodo dícitis ánimæ: \* Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:

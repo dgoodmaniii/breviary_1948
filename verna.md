@@ -35230,4 +35230,18 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Sermo 36 de temp. Bapt. Christi}
 
-NATALIS hódie alter est quodam modo Salvatóris. Nam eísdem eum signis, eísdem miráculis cognóscimus génitum, sed nunc majóri mystério baptizátum. Ait enim Deus: Hic est Fílius meus diléctus, in quo mihi complácui. Præclárior pla-
+NATALIS hódie alter est quodam modo Salvatóris. Nam eísdem eum signis, eísdem miráculis cognóscimus génitum, sed nunc majóri mystério baptizátum. Ait enim Deus: Hic est Fílius meus diléctus, in quo mihi complácui. Præclárior plane est secúnda, quam prima natívitas. Illa enim sine teste siléntio Christum génuit; ista cum divinitátis professióne Dóminum baptizávit. Ab illa se Joseph, qui pater putabátur, excúsat; in hac se Pater, qui non credebátur, insínuat. Ibi labórat suspiciónibus Mater, quia professióni déerat pater; hic honorátur Génitrix, quia Divínitas Fílium protestátur.
+
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis nomen ejus Jesum, allelúja. ℣. Ipse enim salvum fáciet pópulum suum a peccátis eórum. — Et.
+
+#### Lectio viii
+
+HONORATIOR, inquam, secúnda, quam prima natívitas. Síquidem Pater hic Deus majestátis inscríbitur; illic Joseph ártifex æstimátur. Et licet in utráque Dóminus per Spíritum Sanctum et natus sit et baptizátus, tamen honorátior est qui de cælis clamat, quam qui in terris labórat. Joseph ergo faber in terris pater putabátur esse Dómini Salvatóris, nec ab hoc ópere Deus, qui vere est Pater Dómini nostri Jesu Christi, exclúditur; nam est et ipse faber.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi, allelúja. ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+IPSE enim est ártifex, qui hujus mundi máchinam non solum mirábili, sed étiam ineffábili poténtia fabricávit; tamquam sápiens architéctus cælum sublimitáte suspéndit, terram mole fundávit, mária cálculis alligávit. Ipse est ártifex, qui ad mensúram quamdam supérbiæ depónit fastígia, humilitátis extréma sublímat. Ipse est ártifex, qui in nostris móribus præcídit supérflua ópera, utília quæque consérvat. Ipse est ártifex, cujus secúrim ad radícem nostram pósitam Joánnes Baptísta comminátur, ut omnis arbor, quæ normam justæ discretiónis excésserit, excísa radícitus tradátur incéndio; quæ autem mensúram veritátis habúerit, cælésti fábricæ deputétur.
+
+{RUBRIC: Te Deum laudámus.}

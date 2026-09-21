@@ -37282,4 +37282,30 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-ANTONINUS, Floréntiæ honéstis paréntibus natus, ab ipsa puerítia egrégium futúræ sanctitátis spécimen exhíbuit. Annum agens sextum décimum, religiónem Prædicatórum ampléxus, cœpit exínde máximis virtútibus clarére. Singulári fuit abstinéntia, et virginitá-
+ANTONINUS, Floréntiæ honéstis paréntibus natus, ab ipsa puerítia egrégium futúræ sanctitátis spécimen exhíbuit. Annum agens sextum décimum, religiónem Prædicatórum ampléxus, cœpit exínde máximis virtútibus clarére. Singulári fuit abstinéntia, et virginitátem integérrime semper cóluit. In explicándis consíliis tantæ fuit dexteritátis, ut Antonínus consiliórum dicerétur. Ab Eugénio quarto Florentínus archiepíscopus renuntiátus, ægérrime tamen, nec nisi apostólicis minis perterrefáctus, ut episcopátum accíperet, acquiévit. In eo múnere prudéntia, pietáte, caritáte, mansuetúdine et sacerdotáli zelo excélluit. Omnes fere sciéntias, nullo adhíbito præceptóre, absolutíssime dídicit, et multos insígnis doctrínæ libros scripsit. Obiit in Dómino sexto Nonas Maji, anno millésimo quadringentésimo quinquagésimo nono, et ab Hadriáno sexto in álbum Sanctórum fuit relátus.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Comm. Conf. Pont. 1 loco. [96]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Hom. Feriæ.}
+
+{RUBRIC: Pro Ss. Gordiano et Epimacho Martyribus:}
+
+###### Lectio ix
+
+GORDIANUS judex, cum ad eum Januárius presbýter, ut condemnarétur, sub Juliáno Apóstata, ductus esset, ab eódem in christiána fide instrúctus cum uxóre et quinquagínta tribus áliis ex eádem família Romæ baptizátur. Quare præféctus, relegáto Januário, Gordiánum a Clementiáno vicário inclúdi jubet in cárcerem; qui póstea eúmdem Gordiánum vinctum caténis ad se accersítum, cum a fídei propósito deterrére non posset, plumbátis diu cæsum, cápite plecti ímperat. Cujus corpus, ante Apóllinis templum cánibus objéctum, noctu a Christiánis via Latína sepelítur, in eádem crypta in quam relíquiæ beáti Epímachi Mártyris translátæ fúerant ab Alexandría: ubi is diu propter Christi confessiónem constríctus in cárcere, postrémo combústus, martýrio coronátus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+SANCTI Antoníni, Dómine, Confessóris tui atque Pontíficis méritis adjuvémur: ut, sicut te in illo mirábilem prædicámus, ita in nos misericór-

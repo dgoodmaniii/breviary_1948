@@ -34208,3 +34208,25 @@ GREGEM tuum, Pastor ætérne, placátus inténde, et per beátos Clétum et Marc
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Petre, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+###### Oratio
+
+DEUS, qui ad tuéndam cathólicam fidem beátum Petrum, Confessórem tuum, virtúte et doctrína roborásti: concéde propítius; ut ejus exémplis et mónitis errántes ad salútem resipíscant, et fidéles in veritátis confessióne persevérent. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis.}
+
+**Ant.** Sancti et justi in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Gregem tuum, {RUBRIC: ut supra. 856}
+
+{RUBRIC: In I Nocturno, si dicendæ sint de Communi, Lectiones Sapiéntiam. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PETRUS Canísius, Noviómagi in Gélria eo ipso anno natus est, quo Luthérus in Germánia apérta rebellióne ab Ecclésia descívit, et Ignátius de Loyóla, in Hispánia, terréstri milítia abdicáta, ad prœliánda prœlia Dómini se convértit; Deo nimírum portendénte, quos ille posthac adversários, quem sacræ milítiæ ducem esset habitúrus. Colóniæ Agrippínæ, quo studiórum causa concésserat, perpétuo castitátis voto se Deo obstrínxit, et paulo post Societáti Jesu nomen dedit. Sacerdótio auctus, cathólicam fidem contra novatórum insídias legatiónibus, sermónibus, scriptis libris statim defendéndam suscépit. Ob præcláram sapiéntiam et explorátum rerum usum a Cardináli Augustáno et a pontifíciis Legátis magnópere expetítus, semel atque íterum Concílio Tridentíno intérfuit; cujus étiam decréta ex auctoritáte Pii quarti Pontíficis máximi rite per Germániam promulgánda et in morem inducénda curávit. A Paulo quarto ad convéntum Petricoviénsem ire jussus, aliísque a Gregório décimo tértio legatiónibus obeúndis adhíbitus, álacri semper et numquam fracto difficultátibus ánimo, gravíssima religiónis negótia tractávit, ac vel inter præséntia vitæ discrímina ad felícem éxitum perdúxit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam, allelúja. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit

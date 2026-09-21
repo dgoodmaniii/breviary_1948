@@ -19723,4 +19723,36 @@ AUDISTIS grande mystérium. Intérroga hóminem: Christiánus es? Respóndet tib
 
 ℣. Angelis suis, ut supra.
 
-**Ad Bened. Ant.** Rabbi, quid peccávit \* homo iste,
+**Ad Bened. Ant.** Rabbi, quid peccávit \* homo iste, quod cæcus natus est? Respóndit Jesus, et dixit: Neque hic peccávit, neque paréntes ejus: sed ut manifesténtur ópera Dei in illo.
+
+#### Oratio
+
+DEUS, qui et justis præmia meritórum, et peccatóribus per jejúnium véniam præbes: miserére supplícibus tuis; ut reátus nostri conféssio indulgéntiam váleat percípere delictórum. Per Dóminum.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Magnif. Ant.** Ille homo \* qui dícitur Jesus, lutum fecit ex sputo, et linívit óculos meos, et modo vídeo.
+
+#### Oratio
+
+PATEANT aures misericórdiæ tuæ, Dómine, précibus supplicántium: et, ut peténtibus desideráta concédas, fac eos, quæ tibi sunt plácita, postuláre. Per Dóminum.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 7, 11-16*
+
+IN illo témpore: Ibat Jesus in civitátem, quæ vocátur Naim: et ibant cum eo discípuli ejus, et turba copiósa. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Lib. 5 Comment. in Luc. c. 7, post initium}
+
+ET hic locus ad utrámque redúndat grátiam; et ut cito flecti divínam misericórdiam matris víduæ lamentatióne crédamus, ejus præcípue, quæ únici fílii vel labóre, vel morte frangátur; cui tamen víduæ gravitátis méritum exsequiárum turba concíliet: et ut hanc víduam populórum turba septam, plus vidéri esse quam féminam, quæ resurrectiónem únici et adoléscéntis fílii suis lácrimis merúerit impetráre: eo quod sancta Ecclésia pópulum juniórem a pompa fúneris atque a suprémis sepúlcri, suárum révocet ad vitam contemplatióne lacrimárum: quæ flere prohibétur eum, cui resurréctio debebátur.
+
+℟. Locútus est Dóminus ad Móysen, dicens: Descénde in Ægýptum, et dic Pharaóni, \* Ut dimíttat pópulum meum: indurátum est cor Pharaónis: non vult dimíttere pópulum meum, nisi in manu forti. ℣. Clamor filiórum Israël venit ad me, vidíque afflictiónem

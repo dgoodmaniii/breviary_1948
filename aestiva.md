@@ -15100,4 +15100,26 @@ HOC autem erit tibi signum, quod ventúrum est duóbus fíliis tuis, Ophni et Ph
 
 COnvenit ítaque devotióni fidélium, solémniter recólere institutiónem tam salutíferi tamque mirábilis Sacraménti: ut ineffábilem modum divínæ præséntiæ in Sacraménto visíbili venerémur; et laudétur Dei poténtia, quæ in Sacraménto eódem tot mirabília operátur; nec non et de tam salúbri tamque suávi benefício exsolvántur Deo gratiárum débitæ actiónes. Verum etsi in die Cœnæ, quando Sacraméntum prædíctum nóscitur institútum, inter Missárum solémnia de institutióne ipsíus speciális méntio habeátur; totum tamen resíduum ejúsdem diéi offícium ad Christi passiónem pértinet, circa cujus veneratiónem Ecclésia illo témpore occupátur.
 
-℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri taberná-
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite et comédite; hoc est corpus meum.
+
+##### Lectio v
+
+UT autem íntegro celebritátis offício institutiónem tanti Sacraménti recóleret plebs fidélium, Románus Póntifex Urbánus quartus, hujus Sacraménti devotióne afféctus, pie státuit præfátæ institutiónis memóriam prima quinta féria post Octávam Pentecóstes a cunctis fidélibus celebrári; ut, qui per totum anni círculum hoc Sacraménto útimur ad salútem, ejus institutiónem illo témpore speciáliter recolámus, quo Spíritus Sanctus corda discipulórum edócuit ad plene cognoscénda hujus mystéria Sacraménti. Nam et in eódem témpore cœpit hoc Sacraméntum a fidélibus frequentári.
+
+℟. Accépit Jesus cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: \* Hoc fácite in meam commemoratiónem. ℣. Memória memor ero, et tabéscet in me ánima mea. — Hoc.
+
+##### Lectio vi
+
+UT autem prædícta quinta féria, et per Octávas sequéntes, ejus salutáris institutiónis honorificéntius agátur memória, et solémnitas de hoc celébrior habeátur: loco distributiónum materiálium, quæ in ecclésiis cathedrálibus largiúntur exsisténtibus Horis Canónicis, noctúrnis paritérque diúrnis, præfátus Románus Póntifex eis, qui hujúsmodi Horis in hac solemnitáte personáliter in ecclésiis interfúerint, stipéndia spirituália apostólica largitióne concéssit; quátenus per hæc fidéles ad tanti festi celebritátem avídius et copiósius convenírent.
+
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 6, 56-59*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus et sanguis meus vere est potus. Et réliqua.

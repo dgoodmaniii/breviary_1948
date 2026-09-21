@@ -35833,3 +35833,21 @@ De Epístola beáti Pauli Apóstoli ad Gálatas
 **Lectio i** *Cap. 3, 10-14*
 
 QUICUMQUE ex opéribus legis sunt, sub maledícto sunt. Scriptum est enim: Maledíctus omnis, qui non permánserit in ómnibus, quæ scripta sunt in libro legis ut fáciat ea. Quóniam autem in lege nemo justificátur apud Deum, maniféstum est: quia justus ex fide vivit. Lex autem non est ex fide, sed, Qui fécerit ea, vivet in illis. Christus nos redémit de maledícto legis, factus pro nobis maledíctum: quia scriptum est: Maledíctus omnis qui pendet in ligno: ut in géntibus benedíctio Abrahæ fíeret in Christo Jesu, ut pollicitatiónem Spíritus accipiámus per fidem.
+
+℟. Gloriósum diem sacra venerátur Ecclésia, dum triumpháli reserátur lignum: \* In quo Redémptor noster, mortis víncula rumpens, cállidum áspidem superávit, allelúja, allelúja, allelúja. ℣. In ligno pendens nostræ salútis sémitam Verbum Patris invénit. — In.
+
+De Epístola ad Philippénses
+
+**Lectio ii** *Cap. 2, 5-11*
+
+HOC enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo: sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo. Humiliávit semetípsum factus obédiens usque ad mortem, mortem autem crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen, quod est super omne nomen: ut in nómine Jesu omne genu flectátur cæléstium, terréstrium, et infernórum: et omnis lingua confiteátur, quia Dóminus Jesus Christus in glória est Dei Patris.
+
+℟. Crux fidélis, inter omnes arbor una nóbilis: nulla silva talem profert, fronde, flore, gérmine: \* Dulce lignum, dulces clavos, dulce pondus sustínuit, allelúja. ℣. Super ómnia ligna cedrórum tu sola excélsior. — Dulce.
+
+De Epístola ad Colossénses
+
+**Lectio iii** *Cap. 6, 9-15*
+
+IN Christo inhábitat omnis plenitúdo divinitátis corporáliter: et estis in illo repléti, qui est caput omnis principátus et potestátis; in quo et circumcísi estis circumcisióne non manu facta in exspoliatióne córporis carnis, sed in circumcisióne Christi; consepúlti ei in baptísmo, in quo et resurrexístis per fidem operatiónis Dei, qui suscitávit illum a mórtuis. Et vos, cum mórtui essétis in delíctis et præpútio carnis vestræ, convivificávit cum illo, donans vobis ómnia delícta: delens quod advérsus nos erat chirógraphum decréti, quod erat contrárium nobis, et ipsum tulit de médio, affígens illud cruci: et exspólians principátus, et potestátes tradúxit confidénter, palam triúmphans illos in semetípso.
+
+℟. Hæc est arbor digníssima, in paradísi médio situáta, \* In qua salútis auctor própria morte mortem ómnium superávit, allelúja, allelúja. ℣. Crux

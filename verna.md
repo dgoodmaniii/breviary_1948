@@ -34482,3 +34482,27 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut beáti Petri Mártyris tui fidem cóngr
 ℣. Spécie tua et.
 
 **Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut, qui beátæ Catharínæ Vírginis tuæ natalítia cólimus: ánnua solemnitáte lætémur, et tantæ virtútis proficiámus exémplo. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Sancti et justi, in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Præsta, quǽsumus, {RUBRIC: ut supra. 868}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+CATHARINA virgo Senénsis, piis orta paréntibus, beáti Domínici hábitum quem Soróres de Pœniténtia gestant, impetrávit. Summa ejus fuit abstinéntia et admirábilis vitæ austéritas. Invénta est aliquándo a die Cínerum usque ad Ascensiónem Dómini jejúnium perduxísse, sola Eucharístiæ communióne conténta. Luctabátur quam frequentíssime cum dæmónibus, multísque illórum moléstiis vexabátur; æstuábat fébribus, nec aliórum morbórum cruciátu carébat. Magnum et sanctum erat Catharínæ nomen, et úndique ad eam ægróti et malígnis vexáti spirítibus deducebántur. Languóribus et fébribus in Christi nómine imperábat, et dǽmones cogébat ab obséssis abíre corpóribus.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua, allelúja. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+###### Lectio v
+
+CUM Pisis immorarétur, die Domínico, refécta cibo cælésti et in éxtasim rapta, vidit Dóminum crucifíxum magno cum lúmine advenéntem, et ex ejus vúlnerum cicatrícibus quinque rádios ad quinque loca sui córporis descendéntes; ideóque, mystérium advértens, Dóminum precáta ne cicatríces apparérent, contínuo rádii colórem sanguíneum mutavérunt in spléndidum, et in formam puræ lucis pervenérunt ad manus, pedes et cor ejus; ac tantus erat dolor quem sensibíliter patiebátur, ut nisi Deus minuísset, brevi se créderet moritúram. Hanc ítaque grátiam amantíssi-

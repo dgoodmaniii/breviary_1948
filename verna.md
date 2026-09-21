@@ -25992,4 +25992,40 @@ ESTOTE ítaque prudéntes, et vigiláte in oratiónibus. Ante ómnia autem mútu
 
 #### Lectio iii
 
-CARISSIMI, nolíte peregrinári in fervóre, qui ad tentatiónem vobis fit, quasi novi áliquid vobis contíngat: sed communicántes Christi passiónibus gaudéte, ut et in revelatióne glóriæ ejus gaudeátis exsultántes. Si exprobrámini in nómine Christi, beáti éritis: quóniam quod est honóris, glóriæ, et virtútis Dei, et qui est ejus Spíritus, super vos requiéscit. Nemo autem vestrum patiátur ut homicída, aut fur, aut maledícus, aut alienórum appe-
+CARISSIMI, nolíte peregrinári in fervóre, qui ad tentatiónem vobis fit, quasi novi áliquid vobis contíngat: sed communicántes Christi passiónibus gaudéte, ut et in revelatióne glóriæ ejus gaudeátis exsultántes. Si exprobrámini in nómine Christi, beáti éritis: quóniam quod est honóris, glóriæ, et virtútis Dei, et qui est ejus Spíritus, super vos requiéscit. Nemo autem vestrum patiátur ut homicída, aut fur, aut maledícus, aut alienórum appe-títor. Si autem ut christiánus, non erubéscat: glorificet autem Deum in isto nómine. Quóniam tempus est, ut incípiat judícium a domo Dei.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Hymnum cantáte nobis, allelúja: \* Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. ℣. Illic interrogavérunt nos, qui captívos duxérunt nos, verba cantiónum. — Quómodo. Glória Patri. Quómodo.
+
+**Ad Bened. Ant.** Oportébat \* pati Christum, et resúrgere a mórtuis, allelúja.
+
+#### Oratio
+
+DEUS, a quo bona cuncta procédunt, largíre supplícibus tuis: ut cogitémus, te inspiránte, quæ recta sunt; et, te gubernánte, eádem faciámus. Per Dóminum.
+
+**Ad Magnif. Ant.** Exívi a Patre, \* et veni in mundum: íterum relínquo mundum, et vado ad Patrem, allelúja.
+
+---
+
+## Feria Quarta in Rogationibus
+
+### Vigilia Ascensionis
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 17, 1-11*
+
+IN illo témpore: Sublevátis Jesus óculis in cælum, dixit: Pater, venit hora, clarífica Fílium tuum. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractatus 104 in Joánnem, sub medium}
+
+POTERAT Dóminus noster, unigénitus et coætérnus Patri, in forma servi et ex forma servi, si hoc opus esset, oráre siléntio: sed ita se Patri exhibére vóluit precatórem, ut meminísset nostrum se esse doctórem. Proínde eam, quam fecit oratiónem pro nobis, notam fecit et nobis: quóniam tanti magístri non solum ad ipsos sermocinátio, sed étiam pro ipsis ad Patrem orátio, discipulórum est ædificátio: et si illórum, qui hæc dicta áderant auditúri, profécto et nostra, qui fuerámus conscrípta lectúri.
+
+℟. Deus, cánticum novum cantábo tibi, allelúja: \* In psaltério decem chordárum psallam tibi,

@@ -30376,3 +30376,113 @@ CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discíp
 ###### Lectio viii
 
 IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis lingua, quæ confitétur Dóminum, magistério hujus vocis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc érutos mundo, ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte muníta est, ut eam neque hærética umquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, rationábili obséquio celebrétur hodiérna festívitas: ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendatárum sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+###### Oratio
+
+DEus, qui ánimæ fámuli tui Gregórii ætérnæ beatitúdinis prǽmia contulísti: concéde propítius; ut, qui peccatórum nostrórum póndere prémimur, ejus apud te précibus sublevémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ant.** O Doctor. {RUBRIC: 737}
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+---
+
+### Die 17 Martii
+
+#### S. Patricii
+
+{RUBRIC: Episcopi et Confessoris}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+###### Oratio
+
+DEus, qui ad prædicándam géntibus glóriam tuam beátum Patrícium Confessórem atque Pontíficem míttere dignátus es: ejus méritis et intercessióne concéde; ut, quæ nobis agénda prǽcipis, te miseránte, adimplére possímus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PATRICIUS, Hibérniæ dictus Apóstolus, Calphúrnio patre, matre Conchéssa sancti Martíni Turonénsis epíscopi, ut pérhibent, consanguínea, majóri in Británnia natus, puer in barbarórum sǽpius íncidit captivitátem. Eo in statu pascéndis grégibus prǽpósitus, jam tum futúræ sanctitátis spécimen prǽbuit: fídei namque divíníque timóris et amóris spíritu replétus, antelucáno témpore per nives, gelu ac plúvias ad preces Deo fundéndas, ímpiger consurgébat; sólitus cénties intérdiu, centiésque noctu Deum oráre. A servitúte tértio exémptus et inter cléricos relátus, in divínis lectiónibus longo se témpore exércuit. Gálliis, Itália insulísque Tyrrhéni maris labóre summo peragrátis, divíno tandem mónitu ad Hibernórum salútem advocátur; et, facta a beáto Cælestíno Papa Evangélii nuntiándi potestáte, consecratúsque epíscopus, in Hibérniam perréxit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+EO in múnere mirum quot vir apostólicus mala, quot ærúmnas et labóres, quot pertúlerit adversários. Verum Dei afflánte benignitáte, terra illa, idolórum ántea cultrix, eum mox prædicánte Patrício fructum dedit, ut Sanctórum ínsula deínde fúerit appelláta. Frequentíssimi ab eo pópuli sacro sunt regeneráti lavácro: epíscopi, clericíque plúrimi ordináti: vírgines ac víduæ ad continéntiæ leges institútæ. Armachánam sedem, Románi Pontíficis auctoritáte, totíus ínsulæ príncipem metrópolim constítuit, Sanctorúmque relíquiis ab Urbe relátis decorávit. Supérnis visiónibus, prophetíæ dono, ingentibúsque signis et prodígiis a Deo exornátus ádeo refúlsit, ut longe latéque celébrior Patrícii se fama diffúderit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+PRÆTER quotidiánam ecclesiárum sollicitúdinem, invíctum ab oratióne spíritum numquam relaxábat. Ajunt enim, íntegrum quotídie Psaltérium, una cum Cánticis et Hymnis ducentísque oratiónibus, consuevísse recitáre, tercénties per dies síngulos flexis génibus Deum adoráre, ac in quálibet Hora díei canónica cénties se crucis signo muníre. Noctem tria in spátia distríbuens, primum in centum Psalmis percurréndis, et bis cénties genuflecténdo; álterum in réliquis quinquagínta Psalmis, álgidis aquis immérsus, ac corde, óculis manibúsque ad cælum eréctus, absolvéndis insumébat; tértium vero super nudum lápidem stratus ténui dabat quiéti. Humilitátis exímius cultor, apostólico more a mánuum suárum labóre non abstínuit. Assíduis tandem curis pro Ecclésia consúmptus, verbo et ópere clarus, in extréma senectúte divínis mystériis reféctus, obdormívit in Dómino, sepultúsque est apud Dunum in Ultónia, a christiána salúte sǽculo quinto.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Communi Conf. Pont. 1 loco. [96]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DEus, qui ad prædicándam géntibus glóriam tuam beátum Patrícium Confessórem atque Pontíficem míttere dignátus es: ejus méritis et intercessióne concéde; ut, quæ nobis agénda prǽcipis, te miseránte, adimplére possímus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commemoratio præcedéntis et Feriæ.}
+
+---
+
+### Die 18 Martii
+
+#### S. Cyrilli
+
+{RUBRIC: Ep. Hierosolymitani,}
+
+{RUBRIC: Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Cyrílle, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio
+
+DA nobis, quǽsumus, omnípotens Deus, beáto Cyríllo Pontífice intercedénte: te solum verum Deum, et quem misísti Jesum Christum ita cognóscere; ut inter oves, quæ vocem ejus áudiunt, perpétuo connumerári mereámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio prǽcedéntis:}
+
+**Ant.** Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui, {RUBRIC: ut supra.}
+
+{RUBRIC: Deinde Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones} **Sapiéntiam,** {RUBRIC: de Communi Doctorum. [104]}

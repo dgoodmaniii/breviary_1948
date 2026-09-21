@@ -25098,4 +25098,22 @@ De libro Apocalýpsis beáti Joánnis Apóstoli
 
 ET vidi in déxtera sedéntis supra thronum, librum scriptum intus et foris, signátum sigíllis septem. Et vidi Angelum fortem, prædicántem voce magna: Quis est dignus aperíre librum, et sólvere signácula ejus? Et nemo póterat neque in cælo, neque in terra, neque subtus terram aperíre librum, neque respícere illum. Et ego flebam multum, quóniam nemo dignus invéntus est aperíre librum, nec vidére eum. Et unus de senióribus dixit mihi: Ne fléveris: ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus. Et vidi: et ecce in médio throni et quátuor animálium, et in médio seniórum, Agnum stantem tamquam occísum, habéntem córnua septem, et óculos septem: qui sunt septem spíritus Dei, missi in omnem terram. Et venit, et accépit de déxtera sedéntis in throno librum.
 
-℟. Platéæ tuæ, Jerúsalem, sternéntur auro mundo, allelúja: et cantábitur in te cánticum lætítiæ,
+℟. Platéæ tuæ, Jerúsalem, sternéntur auro mundo, allelúja: et cantábitur in te cánticum lætítiæ, allelúja: \* Et per omnes vicos tuos ab univérsis dicétur, allelúja, allelúja. ℣. Luce spléndida fulgébis, et omnes fines terræ adorábunt te. — Et.
+
+#### Lectio ii
+
+ET, cum aperuísset librum, quátuor animália, et vigínti quátuor senióres cecidérunt coram Agno, habéntes sínguli cítharas, et phíalas áureas, plenas odoramentórum, quæ sunt oratiónes sanctórum: et cantábant cánticum novum, dicéntes: Dignus es, Dómine, accípere librum, et aperíre signácula ejus: quóniam occísus es, et redemísti nos Deo in sánguine tuo ex omni tribu, et lingua, et pópulo, et natióne, et fecísti nos Deo nostro regnum, et sacerdótes: et regnábimus super terram.
+
+℟. Decantábat pópulus Israël, allelúja, et univérsa multitúdo Jacob canébat legítime: \* Et David cum cantóribus cítharam percutiébat in domo Dómini, et laudes Deo canébat, allelúja, allelúja. ℣. Sanctificáti sunt ergo sacerdótes et levítæ: et univérsus Israël deducébat arcam fœderis Dómini in júbilo. — Et.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Et.
+
+#### Lectio iii
+
+ET vidi, et audívi vocem Angelórum multórum in circúitu throni, et animálium, et seniórum: et erat númerus eórum míllia míllium, dicéntium voce magna: Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. Et omnem creatúram, quæ in cælo est, et super terram, et sub terra, et quæ sunt in mari, et quæ in eo: omnes audívi dicéntes: Sedénti in throno et Agno benedíctio, et honor, et glória, et potéstas in sǽcula sæculórum. Et quátuor animália dicébant: Amen. Et vigínti quátuor senióres cecidérunt in fácies suas: et adoravérunt vivéntem in sǽcula sæculórum.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Vidi portam civitátis ad Oriéntem pósitam, et Apostolórum nómina et Agni super eam scripta: \* Et super muros ejus Angelórum custódiam, allelúja. ℣. Vidi cælum novum et terram novam, et civitátem novam descendéntem de cælo. — Et. Glória Patri. Et.

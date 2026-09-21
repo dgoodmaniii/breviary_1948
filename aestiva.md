@@ -14485,3 +14485,65 @@ Fílii tui sicut novéllæ olivárum, \* in circúitu mensæ tuæ.
 Ecce, sic benedicétur homo, \* qui timet Dóminum.
 
 Benedícat tibi Dóminus ex Sion: \* et vídeas bona Jerúsalem ómnibus diébus vitæ tuæ.
+
+Et vídeas fílios filiórum tuórum, \* pacem super Israël.
+
+**Ant.** Sicut novéllæ olivárum, Ecclésiæ fílii sint in circúitu mensæ Dómini.
+
+**Ant.** Qui pacem \* ponit fines Ecclésiæ, fruménti ádipe sátiat nos Dóminus.
+
+##### Psalmus 147
+
+LAuda, Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Qui pacem ponit fines Ecclésiæ, fruménti ádipe sátiat nos Dóminus.
+
+**Capit.** *1 Cor. 11, 23-24*
+
+FRatres: Ego enim accépi a Dómino, quod et trádidi vobis, quóniam Dóminus Jesus, in qua nocte tradebátur, accépit panem, et grátias agens fregit, et dixit: Accípite et manducáte; hoc est corpus meum, quod pro vobis tradétur: hoc fácite in meam commemoratiónem.
+
+##### Hymnus
+
+PAnge, lingua, gloriósi
+Córporis mystérium,
+Sanguinísque pretiósi,
+Quem in mundi prétium
+Fructus ventris generósi
+Rex effúdit géntium.
+
+Nobis datus, nobis natus
+Ex intácta Vírgine,
+Et in mundo conversátus,
+Sparso verbi sémine,
+Sui moras incolátus
+Miro clausit órdine.
+
+In suprémæ nocte cœnæ
+Recúmbens cum frátribus,
+Observáta lege plene
+Cibis in legálibus,
+Cibum turbæ duodénæ
+Se dat suis mánibus.
+
+Verbum caro, panem verum
+Verbo carnem éfficit;
+Fitque sanguis Christi merum;
+Et si sensus déficit,
+Ad firmándum cor sincérum
+Sola fides súfficit.

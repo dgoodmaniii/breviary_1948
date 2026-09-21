@@ -16581,3 +16581,51 @@ Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
 Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
 
 Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Stans Jesus clamábat dicens: Si quis sitit véniat ad me et bibat.
+
+**Ant.** In caritáte perpétua \* diléxit nos Deus, ídeo, exaltátus a terra, attráxit nos ad Cor suum, míserans.
+
+##### Psalmus 115
+
+CRédidi, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** In caritáte perpétua diléxit nos Deus, ídeo, exaltátus a terra, attráxit nos ad Cor suum, míserans.
+
+**Ant.** Veníte ad me, \* omnes qui laborátis et oneráti estis et ego refíciam vos.
+
+##### Psalmus 127
+
+BEáti omnes, qui timent Dóminum, \* qui ámbulant in viis ejus.
+
+Labóres mánuum tuárum quia manducábis: \* beátus es, et bene tibi erit.
+
+Uxor tua sicut vitis abúndans, \* in latéribus domus tuæ.
+
+Fílii tui sicut novéllæ olivárum, \* in circúitu mensæ tuæ.

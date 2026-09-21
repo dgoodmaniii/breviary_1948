@@ -33275,4 +33275,16 @@ PROPTER quod succíncti lumbos mentis vestræ, sóbrii perfécte speráte in eam
 
 ###### Lectio iv
 
-LEO primus, Etrúscus, eo témpore præfuit Ecclésiæ, cum rex Hunnórum Attíla, cognoménto Flagéllum Dei, in Itáliam invádens, Aquiléjam triénnii obsidióne captam dirípuit et incéndit. Unde cum Romam ardénti furóre raperétur, jamque cópias, ubi Míncius in Padum ínfluit, trajícere paráret, occúrrit ei Leo, malórum Itáliæ impendéntium mi-
+LEO primus, Etrúscus, eo témpore præfuit Ecclésiæ, cum rex Hunnórum Attíla, cognoménto Flagéllum Dei, in Itáliam invádens, Aquiléjam triénnii obsidióne captam dirípuit et incéndit. Unde cum Romam ardénti furóre raperétur, jamque cópias, ubi Míncius in Padum ínfluit, trajícere paráret, occúrrit ei Leo, malórum Itáliæ impendéntium misericórdia permótus; cujus divína eloquéntia persuásum est Attílæ, ut regrederétur. Qui interrogátus a suis, quid esset quod præter consuetúdinem tam humíliter Románi Pontíficis imperáta fáceret; respóndit, se astántem quemdam álium, illo loquénte, sacerdotáli hábitu véritum esse, sibi stricto gládio minitántem mortem, nisi Leóni obtemperáret. Quare in Pannóniam revérsus est.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. {RUBRIC: (T. P. Allelúja.)} ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+LEO autem Románi singulári ómnium lætítia excéptus, paulo post invadénti Urbem Gensérico, éadem eloquéntiæ vi et sanctitátis opinióne persuásit, ut ab incéndio, ignomíniis ac cǽdibus abstinéret. Sed cum Ecclésiam a multis hærésibus oppugnári, maximéque a Nestoriánis et Eutychiánis exagitári vidéret; ad eam purgándam et in fide cathólica confirmándam, concílium Chalcedonénse indíxit; ubi sexcéntis trigínta coáctis epíscopis, Eutyches et Dióscorus, et íterum Nestórius condemnáti sunt; ejúsdémque concílii decréta sua auctoritáte confirmávit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. {RUBRIC: (T. P. Allelúja.)} ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+HIS actis, sanctus Póntifex se ad reficiéndas et ædificándas ecclésias convértit. Cujus suásu Demétria, pia fémina, sancti Stéphani ecclésiam constrúxit in suo fundo via Latína tértio ab Urbe milliário: ipse via Áppia sub nómine sancti Cornélii álteram cóndidit. Multas prǽterea et sacras ædes, et sacra eárum vasa restítuit. In tribus basílicis, Petri, Pauli et Constantiniána, cámeras exstrúxit; ædificávit monastérium vicínum basílicæ sancti Petri; sepúlcris Apostolórum custódes adhíbuit, quos cubiculários appellávit. Státuit ut in actióne mystérii dicerétur: Sanctum sacrifícium, immaculátam hóstiam. Sanxit ne mónacha benedíctum cápitis velámen recíperet, nisi quadragínta

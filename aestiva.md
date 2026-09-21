@@ -14149,3 +14149,35 @@ QUis cathólicórum ignórat Patrem vere esse Patrem, Fílium vere esse Fílium,
 ##### Lectio viii
 
 NEC extensiónem partis alicújus ex parte, ut quidam putavérunt, Dei Fílium dícimus: nec verbum sine re, velut sonum vocis, accípimus: sed tria nómina et tres persónas uníus esse esséntiæ, uníus majestátis atque poténtiæ crédimus. Et ídeo unum Deum confitémur: quia únitas majestátis, plúrium vocábulo deos próhibet appelári. Dénique Patrem et Fílium cathólice nominámus; duos autem Deos dícere, nec póssumus, nec debémus. Non quod Fílius Dei Deus non sit, immo verus Deus de Deo vero; sed quia non aliúnde, quam de ipso uno Patre, Dei Fílium nóvimus, perínde unum Deum dícimus. Hoc enim Prophétæ, hoc Apóstoli tradidérunt; hoc ipse Dóminus dócuit, cum dicit: Ego et Pater unum sumus. Unum ad unitátem divinitátis, ut dixi, refert; Sumus autem, persónis assígnat.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+**Bened.** Per evangélica dicta.
+
+**Léctio sancti Evangélii secúndum Lucam**
+
+##### Lectio ix
+
+*Cap. 6, 36-42*
+
+IN illo témpore: Dixit Jesus discípulis suis: Estóte misericórdes, sicut et Pater vester miséricors est. Et réliqua.
+
+**Homilía sancti Augustíni Epíscopi**
+
+{RUBRIC: Sermo 15 in Ev. Matthæi de verbis Dómini, post initium}
+
+DUO sunt ópera misericórdiæ, quæ nos líberant, quæ bréviter ipse Dóminus pósuit in Evangélio: Dimíttite, et dimittétur vobis; date, et dábitur vobis. Dimíttite, et dimittétur vobis, ad ignoscéndum pértinet: Date, et dábitur vobis, ad præstándum benefícium pértinet. Quod ait de ignoscéndo, et tu vis tibi ignósci quod peccas, et habes álium, cui tu possis ignóscere. Rursus, quod pértinet ad tribuéndum benefícium, petit te mendícus, et tu es Dei mendícus. Omnes enim, quando orámus, mendíci Dei sumus: ante jánuam magni Patrisfamílias stamus, immo et prostérnimur, súpplices ingemíscimus, áliquid voléntes accípere; et ipsum áliquid, ipse Deus est. Quid a te petit mendícus? Panem. Et tu quid petis a Deo, nisi Christum, qui dicit: Ego sum panis vivus, qui de cælo descéndi? Ignósci vobis vultis? ignóscite: Remíttite, et remittétur vobis. Accípere vultis? date, et dábitur vobis.
+
+**Te Deum laudámus.** [7]
+
+### Ad Laudes
+
+**Ant. 1** Glória tibi, Trínitas \* æquális, una Déitas, et ante ómnia sæcula, et nunc et in perpétuum.
+
+{RUBRIC: Psalmi de Dominica. 36}
+
+**2** Laus et perénnis glória \* Deo Patri, et Fílio, Sancto simul Paráclito, in sæculórum sæcula.
+
+**3** Glória laudis \* résonet in ore ómnium, Patri, genitæque Proli, Spirítui Sancto páriter resúltet laude perénni.
+
+**4** Laus Deo Patri, \* parilíque Proli, et tibi, Sancte, stúdio perénni, Spíritus, nostro résonet ab ore, omne per ævum.

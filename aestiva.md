@@ -15393,3 +15393,63 @@ UNde nos quoque, nati in hujus peregrinatiónis ærúmna, huc fastidiósi jam v�
 **Ant. 1** Sapiéntia \* ædificávit sibi domum, míscuit vinum et pósuit mensam, allelúja.
 
 {RUBRIC: Psalmi de Dominica. 36}
+
+**Ant. 2** Angelórum esca \* nutrivísti pópulum tuum, et panem de cælo præstitísti eis, allelúja.
+
+**Ant. 3** Pinguis est panis \* Christi, et præbébit delícias régibus, allelúja.
+
+**Ant. 4** Sacerdótes sancti \* incénsum et panes ófferunt Deo, allelúja.
+
+**Ant. 5** Vincénti dabo \* manna abscónditum, et nomen novum, allelúja.
+
+**Capit.** *1 Joann. 3, 13-14*
+
+CArissimi: Nolíte mirári, si odit vos mundus. Nos scimus, quóniam translati sumus de morte ad vitam, quóniam dilígimus fratres.
+
+##### Hymnus
+
+VErbum supérnum pródiens,
+Nec Patris linquens déxteram,
+Ad opus suum éxiens,
+Venit ad vitæ vésperam.
+
+In mortem a discípulo
+Suis tradéndus æmulis,
+Prius in vitæ férculo
+Se trádidit discípulis.
+
+Quibus sub bina spécie
+Carnem dedit et sánguinem;
+Ut dúplicis substántiæ
+Totum cibáret hóminem.
+
+Se nascens dedit sócium,
+Convéscens in edúlium,
+Se móriens in prétium,
+Se regnans dat in prǽmium.
+
+O salutáris hóstia,
+Quæ cæli pandis óstium,
+Bella premunt hostília;
+Da robur, fer auxílium.
+
+{RUBRIC: Sequens Conclusio numquam mutátur}
+
+Uni trinóque Dómino
+Sit sempitérna glória:
+Qui vitam sine término
+Nobis donet in pátria. Amen.
+
+℣. Panem cæli dedit eis, allelúja. ℟. Panem Angelórum manducávit homo, allelúja.
+
+**Ad Bened. Ant.** Homo quidam \* fecit cœnam magnam, et vocávit multos: et misit servum suum hora cœnæ dícere invitátis, ut venírent, quia ómnia paráta sunt, allelúja.
+
+### Oratio
+
+SAncti nóminis tui, Dómine, timórem páriter et amórem fac nos habére perpétuum: quia numquam tua gubernatióne destítuis, quos in soliditáte tuæ dilectiónis instítuis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Octávæ:}
+
+**Ant.** Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum, allelúja.
+
+℣. Pósuit fines tuos pacem, allelúja. ℟. Et ádipe fruménti sátiat te, allelúja.

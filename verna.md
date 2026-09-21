@@ -21001,3 +21001,59 @@ Vídeant páuperes et læténtur: \* quǽrite Deum, et vivet ánima vestra.
 Quóniam exaudívit páuperes Dóminus: \* et vinctos suos non despéxit.
 
 Laudent illum cæli et terra, \* mare, et ómnia reptília in eis.
+
+Quóniam Deus salvam fáciet Sion: \* et ædificabúntur civitátes Juda.
+
+Et inhabitábunt ibi, \* et hereditáte acquírent eam.
+
+Et semen servórum ejus possidébit eam, \* et qui díligunt nomen ejus, habitábunt in ea.
+
+{RUBRIC: † Non dicitur Glória Patri.}
+
+**Ant.** Zelus domus tuæ comédit me, et oppróbria exprobrántium tibi cecidérunt super me.
+
+**Ant.** Avertántur retrórsum \* et erubéscant, qui cógitant mihi mala.
+
+#### Psalmus 69
+
+DEUS, in adjutórium meum inténde: \* Dómine, ad adjuvándum me festína.
+
+Confundántur et revereántur, \* qui quærunt ánimam meam.
+
+Avertántur retrórsum, et erubéscant, \* qui volunt mihi mala.
+
+Avertántur statim erubescéntes, \* qui dicunt mihi: Euge, euge.
+
+Exsúltent et læténtur in te omnes qui quærunt te, \* et dicant semper: Magnificétur Dóminus: qui díligunt salutáre tuum.
+
+Ego vero egénus, et pauper sum: \* Deus, ádjuva me.
+
+Adjútor meus, et liberátor meus es tu: \* Dómine, ne moréris.
+
+{RUBRIC: †}
+
+**Ant.** Avertántur retrórsum et erubéscant, qui cógitant mihi mala.
+
+**Ant.** Deus meus, \* éripe me de manu peccatóris.
+
+#### Psalmus 70
+
+IN te, Dómine, sperávi, non confúndar in ætérnum: \* in justítia tua líbera me, et éripe me.
+
+Inclína ad me aurem tuam, \* et salva me.
+
+Esto mihi in Deum protectórem, et in locum munítum: \* ut salvum me fácias,
+
+Quóniam firmaméntum meum, \* et refúgium meum es tu.
+
+Deus meus, éripe me de manu peccatóris, \* et de manu contra legem agéntis et iníqui:
+
+Quóniam tu es patiéntia mea, Dómine: \* Dómine, spes mea a juventúte mea.
+
+In te confirmátus sum ex útero: \* de ventre matris meæ tu es protéctor meus.
+
+In te cantátio mea semper: \* tamquam prodígium factus sum multis: et tu adjútor fortis.
+
+Repleátur os meum laude, ut cantem glóriam tuam: \* tota die magnitúdinem tuam.
+
+Ne projícias me in témpore senectútis: \* cum defécerit virtus mea, ne derelínquas me.

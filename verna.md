@@ -21899,3 +21899,53 @@ Qui timétis Dóminum, laudáte eum: \* univérsum semen Jacob, glorificáte eum
 Tímeat eum omne semen Israël: \* quóniam non sprevit, neque despéxit deprecatiónem páuperis:
 
 Nec avértit fáciem suam a me: \* et cum clamárem ad eum, exaudívit me.
+
+Apud te laus mea in ecclésia magna: \* vota mea reddam in conspéctu timéntium eum.
+
+Edent páuperes, et saturabúntur: et laudábunt Dóminum qui requírunt eum: \* vivent corda eórum in sǽculum sǽculi.
+
+Reminiscéntur et converténtur ad Dóminum \* univérsi fines terræ:
+
+Et adorábunt in conspéctu ejus \* univérsæ famíliæ géntium.
+
+Quóniam Dómini est regnum: \* et ipse dominábitur géntium.
+
+Manducavérunt et adoravérunt omnes pingues terræ: \* in conspéctu ejus cadent omnes qui descéndunt in terram.
+
+Et ánima mea illi vivet: \* et semen meum sérviet ipsi.
+
+Annuntiábitur Dómino generátio ventúra: \* et annuntiábunt cæli justítiam ejus pópulo qui nascétur, quem fecit Dóminus.
+
+{RUBRIC: †}
+
+**Ant.** Divisérunt sibi vestiménta mea, et super vestem meam misérunt sortem.
+
+**Ant.** Insurrexérunt in me \* testes iníqui, et mentíta est iníquitas sibi.
+
+#### Psalmus 26
+
+DOMINUS illuminátio mea, et salus mea, \* quem timébo?
+
+Dóminus protéctor vitæ meæ, \* a quo trepidábo?
+
+Dum apprópiant super me nocéntes, \* ut edant carnes meas:
+
+Qui tríbulant me inimíci mei, \* ipsi infirmáti sunt, et cecidérunt.
+
+Si consístant advérsum me castra, \* non timébit cor meum.
+
+Si exsúrgat advérsum me prǽlium, \* in hoc ego sperábo.
+
+Unam pétii a Dómino, hanc requíram, \* ut inhábitem in domo Dómini ómnibus diébus vitæ meæ:
+
+Ut vídeam voluptátem Dómini, \* et vísitem templum ejus.
+
+Quóniam abscóndit me in tabernáculo suo: \* in die malórum protéxit me in abscóndito tabernáculi sui.
+
+In petra exaltávit me: \* et nunc exaltávit caput meum super inimícos meos.
+
+Circuívi, et immolávi in tabernáculo ejus hóstiam vociferatiónis: \* cantábo, et psalmum dicam Dómino.
+
+Exáudi, Dómine, vocem meam, qua clamávi ad te: \* miserére mei, et exáudi me.
+
+Tibi dixit cor meum, exquisívit te fácies mea: \* fáciem tuam, Dómine, requíram.

@@ -18066,4 +18066,28 @@ CUM ingréssa fuísset múlier Thecuítis ad regem, cécidit coram eo super terr
 
 ET ait rex: Qui contradíxerit tibi, adduc eum ad me, et ultra non addet ut tangat te. Quæ ait: Recordétur rex Dómini, Dei sui, ut non multiplicéntur próximi sánguinis ad ulciscéndum, et nequáquam interfíciant fílium meum. Qui ait: Vivit Dóminus, quia non cadet de capíllis fílii tui super terram. Dixit ergo múlier: Loquátur ancílla tua ad dóminum meum regem verbum. Et ait: Lóquere. Dixítque múlier: Quare cogitásti hujuscémodi rem contra pópulum Dei et locútus est rex verbum istud, ut peccet et non redúcat ejéctum suum? Omnes mórimur et quasi aquæ dilábimur in terram, quæ non revertúntur, nec vult Deus períre ánimam, sed retráctat cógitans ne pénitus péreat qui abjéctus est.
 
-℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens:
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+*Cap. 14, 19-21*
+
+ET ait rex: Numquid manus Joab tecum est in ómnibus istis? Respóndit múlier et ait: Per salútem ánimæ tuæ, dómine mi rex, nec ad sinístram nec ad déxteram est ex ómnibus his quæ locútus est dóminus meus rex; servus enim tuus Joab ipse præcépit mihi et ipse pósuit in os ancíllæ tuæ ómnia verba hæc. Ut vérterem figúram sermónis hujus, servus tuus Joab præcépit istud; tu autem, dómine mi rex, sápiens es, sicut habet sapiéntiam Angelus Dei, ut intélligas ómnia super terram. Et ait rex ad Joab: Ecce placátus feci verbum tuum; vade ergo et révoca púerum Absalom.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 15, 1-10*
+
+IGitur post hæc fecit sibi Absalom currus et équites et quinquagínta viros, qui præcéderent eum. Et mane consúrgens Absalom stabat juxta intróitum portæ et omnem virum, qui habébat negótium ut veníret ad regis judícium, vocábat Absalom ad se et dicébat: De qua civitáte es tu? Qui respóndens ajébat: Ex una tribu Israël ego sum servus tuus. Respondebátque ei Absalom: Vidéntur mihi sermónes tui boni et justi; sed non est qui te áudiat constitútus a rege.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitá-

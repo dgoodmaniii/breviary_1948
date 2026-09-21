@@ -40755,4 +40755,20 @@ SIMILITUDO autem vultus eórum: fácies hóminis, et fácies leónis a dextris i
 
 ###### Lectio iv
 
-SANCTA quátuor animália, quæ prophétiæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum
+SANCTA quátuor animália, quæ prophétiæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum dícitur: Quátuor fácies uni, et quátuor pennæ uni. Quid per fáciem, nisi notítia; et quid per pennas, nisi volátus exprímitur? Per fáciem quippe unusquísque cognóscitur: per pennas vero in altum ávium córpora sublevántur. Fácies ítaque ad fidem pértinet, penna ad contemplatiónem. Per fidem namque ab omnipoténti Deo cognóscimur, sicut ipse de suis óvibus dicit: Ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ. Qui rursus ait: Ego scio quos elégerim. Per contemplatiónem vero, qua super nosmetípsos tóllimur, quasi in áëra levámur.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+QUATUOR ergo fácies uni sunt: quia si requíras, quid Matthǽus de incarnatióne Dómini séntiat: hoc nimírum sentit, quod Marcus, Lucas et Joánnes. Si quæras, quid Joánnes séntiat; hoc prócul dúbio, quod Lucas, Marcus et Matthǽus. Si quæras, quid Marcus; hoc quod Matthǽus, Joánnes et Lucas. Si quæras, quid Lucas; hoc quod Joánnes, Matthǽus et Marcus sentit. Quátuor ergo fácies uni sunt: quia notítia fídei, qua cognoscúntur a Deo, ipsa est in uno, quæ est simul in quátuor. Quidquid enim in uno invéneris, hoc in ómnibus simul quátuor cognósces.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi, Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+{RUBRIC: Feria II et V infra Hebdómadam I et II post Octávam Paschæ, quóties in I Nocturno Lectiónes fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præcedéntis Responsórii de Témpore dícitur sequens}
+
+℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors.
+
+###### Lectio vi
+
+ET quátuor pennæ uni: quia Dei omnipoténtis Fílium, Dóminum nostrum Jesum Christum,

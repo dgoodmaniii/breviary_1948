@@ -24830,3 +24830,35 @@ Amen.
 ℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
 
 **Ad Magnif. Ant.** Módicum, \* et non vidébitis me, dicit Dóminus: íterum módicum, et vidébitis me: quia vado ad Patrem, allelúja, allelúja.
+
+{RUBRIC: Ad Vésperas Dominicæ}
+
+**Ad Magnif. Ant.** Amen dico vobis, \* quia plorábitis et flébitis vos: mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra convertétur in gáudium, allelúja.
+
+#### Oratio
+
+DEUS, qui errántibus, ut in viam possint redíre justítiæ, veritátis tuæ lumen osténdis: da cunctis qui christiána professióne censéntur, et illa respúere, quæ huic inimíca sunt nómini; et ea quæ sunt apta, sectári. Per Dóminum.
+
+---
+
+## Dom. III post Pascha
+
+{RUBRIC: Semiduplex}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+Incipit liber Apocalýpsis beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 1, 1-19*
+
+APOCALYPSIS Jesu Christi, quam dedit illi Deus palam fácere servis suis, quæ opórtet fíeri cito: et significávit, mittens per Angelum suum servo suo Joánni, qui testimónium perhíbuit verbo Dei, et testimónium Jesu Christi, quæcúmque vidit. Beátus, qui legit et audit verba prophetíæ hujus: et servat ea, quæ in ea scripta sunt: tempus enim prope est. Joánnes septem ecclésiis, quæ sunt in Asia. Grátia vobis, et pax ab eo, qui est, et qui erat, et qui ventúrus est: et a septem spirítibus, qui in conspéctu throni ejus sunt: et a Jesu Christo, qui est testis fidélis, primogénitus mortuórum, et princeps regum terræ: qui diléxit nos, et lavit nos a peccátis nostris in sánguine suo, et fecit nos regnum, et sacerdótes Deo et Patri suo: ipsi glória et impérium in sǽcula sæculórum. Amen.
+
+℟. Dignus es, Dómine, accípere librum, et aperíre signácula ejus, allelúja: quóniam occísus es, et redemísti nos Deo \* In sánguine tuo, allelúja. ℣. Fecísti enim nos Deo nostro regnum et sacerdótium. — In.
+
+#### Lectio ii
+
+ECCE venit cum núbibus, et vidébit eum omnis óculus, et qui eum pupugérunt. Et plangent se super eum omnes tribus terræ. Etiam: Amen. Ego sum alpha et oméga: princípium et finis, dicit Dóminus Deus: qui est, et qui erat, et qui ventúrus est, Omnípotens. Ego Joánnes, frater vester, et párticeps in tribulatióne, et regno, et patiéntia in

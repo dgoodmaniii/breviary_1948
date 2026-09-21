@@ -18044,4 +18044,26 @@ ET ait Absalom: Si non vis veníre, véniat, óbsecro, nobíscum saltem Amnon, f
 
 CUmque adhuc pérgerent in itínere, fama pervénit ad David dicens: Percússit Absalom omnes fílios regis, et non remánsit ex eis saltem unus. Surréxit ítaque rex et scidit vestiménta sua et cécidit super terram, et omnes servi illíus, qui assistébant ei, sciderúnt vestiménta sua. Respóndens autem Jónadab, fílius Sémmaa, fratris David, dixit: Ne ǽstimet dóminus meus rex quod omnes púeri fílii regis occísi sint; Amnon solus mórtuus est, quóniam in ore Absalom erat pósitus ex die qua oppréssit Thamar sorórem ejus. Nunc ergo ne ponat dóminus meus rex super cor suum verbum istud dicens: Omnes fílii regis occísi sunt, quóniam Amnon solus mórtuus est. Fugit autem Absalom.
 
-℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ intén-
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 14, 4-7*
+
+CUM ingréssa fuísset múlier Thecuítis ad regem, cécidit coram eo super terram et adorávit et dixit: Serva me, rex. Et ait ad eam rex: Quid causæ habes? Quæ respóndit: Heu, múlier vídua ego sum; mórtuus est enim vir meus. Et ancíllæ tuæ erant duo fílii, qui rixáti sunt advérsum se in agro, nullúsque erat qui eos prohibére posset, et percússit alter álterum et interfécit eum. Et ecce consúrgens univérsa cognátio advérsum ancíllam tuam dicit: Trade eum qui percússit fratrem suum, ut occidámus eum pro ánima fratris sui quem interfécit, et deleámus herédem. Et quǽrunt exstínguere scintíllam meam quæ relícta est, ut non supérsit viro meo nomen et relíquiæ super terram.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pœniténtiam, veniénsque oráverit in isto loco. — Tu exáudies.
+
+##### Lectio ii
+
+*Cap. 14, 10-14*
+
+ET ait rex: Qui contradíxerit tibi, adduc eum ad me, et ultra non addet ut tangat te. Quæ ait: Recordétur rex Dómini, Dei sui, ut non multiplicéntur próximi sánguinis ad ulciscéndum, et nequáquam interfíciant fílium meum. Qui ait: Vivit Dóminus, quia non cadet de capíllis fílii tui super terram. Dixit ergo múlier: Loquátur ancílla tua ad dóminum meum regem verbum. Et ait: Lóquere. Dixítque múlier: Quare cogitásti hujuscémodi rem contra pópulum Dei et locútus est rex verbum istud, ut peccet et non redúcat ejéctum suum? Omnes mórimur et quasi aquæ dilábimur in terram, quæ non revertúntur, nec vult Deus períre ánimam, sed retráctat cógitans ne pénitus péreat qui abjéctus est.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens:

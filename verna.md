@@ -25117,3 +25117,29 @@ ET vidi, et audívi vocem Angelórum multórum in circúitu throni, et animáliu
 {RUBRIC: In Officiis novem Lectionum:}
 
 ℟. Vidi portam civitátis ad Oriéntem pósitam, et Apostolórum nómina et Agni super eam scripta: \* Et super muros ejus Angelórum custódiam, allelúja. ℣. Vidi cælum novum et terram novam, et civitátem novam descendéntem de cælo. — Et. Glória Patri. Et.
+
+**Ad Bened. Ant.** Mane nobíscum, \* quóniam advesperáscit, et inclináta est jam dies, allelúja.
+
+**Ad Magnif. Ant.** Tristítia vestra, \* allelúja, vertétur in gáudium, allelúja.
+
+---
+
+## Feria Quinta
+
+De libro Apocalýpsis beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 15, 1-8*
+
+ET vidi áliud signum in cælo magnum et mirábile, Angelos septem, habéntes plagas septem novíssimas: Quóniam in illis consummáta est ira Dei. Et vidi tamquam mare vítreum mistum igne, et eos, qui vicérunt béstiam, et imáginem ejus, et númerum nóminis ejus, stantes super mare vítreum, habéntes cítharas Dei: et cantántes cánticum Móysi servi Dei, et cánticum Agni, dicéntes: Magna et mirabília sunt ópera tua, Dómine, Deus omnípotens: justæ et veræ sunt viæ tuæ, Rex sæculórum. Quis non timébit te, Dómine, et magnificábit nomen tuum? quia solus pius es: quóniam omnes gentes vénient, et adorábunt in conspéctu tuo, quóniam judícia tua manifésta sunt.
+
+℟. Dignus es, Dómine, accípere librum, et aperíre signácula ejus, allelúja: quóniam occísus es, et redemísti nos Deo \* In sánguine tuo, allelúja. ℣. Fecísti enim nos Deo nostro regnum et sacerdótium. — In.
+
+#### Lectio ii
+
+ET post hæc vidi, et ecce apértum est templum tabernáculi testimónii in cælo: et exiérunt septem Angeli habéntes septem plagas de templo, vestíti lino mundo et cándido, et præcíncti circa péctora zonis áureis. Et unum de quátuor animálibus dedit septem Angelis septem phíalas áureas, plenas iracúndiæ Dei vivéntis in sǽcula sæculórum. Et implétum est templum fumo a majestáte Dei, et de virtúte ejus: et nemo póterat introíre in templum, donec consummaréntur septem plagæ septem Angelórum.
+
+℟. Ego sicut vitis fructificávi suavitátem odóris, allelúja: \* Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis adimplémini, allelúja, allelúja. ℣. In me omnis grátia viæ et veritátis: in me omnis spes vitæ et virtútis. — Transíte.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Transíte.

@@ -27072,3 +27072,25 @@ SI quis lóquitur, quasi sermónes Dei: si quis minístrat, tamquam ex virtúte,
 {RUBRIC: Completórium de Dominica.}
 
 ---
+
+## Feria II infra Octavam Ascensionis
+
+{RUBRIC: Semiduplex 601}
+
+#### In I Nocturno
+
+De Epístola prima beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 3, 1-18*
+
+VIDETE qualem caritátem dedit nobis Pater, ut fílii Dei nominémur et simus. Propter hoc mundus non novit nos: quia non novit eum. Caríssimi, nunc fílii Dei sumus: et nondum appáruit quid érimus. Scimus quóniam cum apparúerit, símiles ei érimus: quóniam vidébimus eum sícuti est. Et omnis, qui habet hanc spem in eo, sanctíficat se, sicut et ille sanctus est. Omnis, qui facit peccátum, et iniquitátem facit: et peccátum est iníquitas. Et scitis quia ille appáruit ut peccáta nostra tólleret: et peccátum in eo non est. Omnis, qui in eo manet, non peccat: et omnis, qui peccat, non vidit eum, nec cognóvit eum.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+FILIOLI, nemo vos sedúcat. Qui facit justítiam, justus est: sicut et ille justus est. Qui facit peccátum, ex diábolo est: quóniam ab inítio diábolus peccat. In hoc appáruit Fílius Dei, ut dissólvat ópera diáboli. Omnis, qui natus est ex Deo, peccátum non facit: quóniam semen ipsíus in eo manet, et non potest peccáre, quóniam ex Deo natus est. In hoc manifésti sunt fílii Dei, et fílii diáboli. Omnis, qui non est justus, non est ex Deo, et qui non díligit fratrem suum: quóniam hæc est annuntiátio, quam audístis ab inítio, ut diligátis altérutrum. Non sicut Cain, qui ex malígno erat, et occídit fratrem suum. Et propter quid occídit eum? Quóniam ópera ejus malígna erant; fratris autem ejus justa.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.

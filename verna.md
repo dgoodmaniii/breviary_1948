@@ -47173,4 +47173,34 @@ DEI Fílius non dívitem aut locuplétem áliquam féminam sibi matrem elégit, 
 
 MAGNUM revéra miráculum, fratres dilectíssimi, fuit beáta semper Virgo María. Quid namque illa majus aut illústrius ullo umquam témpore invéntum est, seu aliquándo inveníri póterit? Hæc sola cælum ac terram amplitúdine superávit. Quidnam illa sánctius? Non Prophétæ, non Apóstoli, non Mártyres, non Patriárchæ, non Angeli, non Throni, non Dominatiónes, non Séraphim, non Chérubim; non dénique áliud quídpiam inter creátas res visíbiles aut invisíbiles majus aut excelléntius inveníri potest. Eadem ancílla Dei est et mater; éadem Virgo et Génitrix.
 
-℟. Quæ est ista, quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. (T. P. Allelúja.) ℣. Et sicut dies verni circúmdabant eam flores
+℟. Quæ est ista, quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. (T. P. Allelúja.) ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+HÆC ejus mater est, qui a Patre ante omne princípium génitus fuit, quem Angeli et hómines agnóscunt Dóminum rerum ómnium. Visne cognóscere, quanto Virgo hæc præstántior sit cæléstibus Poténtiis? Illæ cum timóre et tremóre assístunt, fáciem velántes suam: hæc humánum genus illi offert, quem génuit. Per hanc et peccatórum véniam conséquimur. Ave ígitur, mater, cælum, puélla, virgo, thronus, Ecclésiæ nostræ decus, glória et firmaméntum: assídue pro nobis precáre Jesum, Fílium tuum et Dóminum nostrum, ut per te misericórdiam inveníre in die judícii, et quæ repósita sunt iis, qui díligunt Deum, bona cónsequi possímus, grátia et benignitáte Dómini nostri Jesu Christi: cum quo Patri simul et Sancto Spirítui glória, et honor, et impérium, nunc et semper in sǽcula sæculórum. Amen.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: \* Unguéntum effúsum nomen tuum. (T. P. Allelúja.) ℣. Astitit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt dicéntes. Glória Patri. Unguéntum.
+
+##### In III Nocturno
+
+**Ant.** Gaude, María Virgo: \* cunctas hǽreses sola interemísti in univérso mundo. (T. P. Allelúja.)
+
+##### In Annuntiatione T. P.:
+
+**Ant.** Angelus Dómini \* nuntiávit Maríæ, et concépit de Spíritu Sancto, allelúja.
+
+###### Psalmus 95
+
+CANTATE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.

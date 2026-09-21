@@ -16752,4 +16752,16 @@ ET ascendérunt in civitátem. Cumque illi ambulárent in médio urbis, appárui
 
 ##### Lectio iv
 
-INter cétera infinítæ Redemptóris nostri benignitátis documénta, illud potíssimum
+INter cétera infinítæ Redemptóris nostri benignitátis documénta, illud potíssimum elúcet, quod, defervescénte christifidélium caritáte, ipsa Dei cáritas ad honorándum peculiári cultu propósita est, ejúsque bonitátis divítiæ late patefáctæ sunt per eam religiónis formam qua Sacratíssimum Cor Jesu cólitur, «in quo sunt omnes thesáuri sapiéntiæ et sciéntiæ abscónditi». Nam, ut quondam humánæ genti e Noëtica arca exeúnti, amíci fœderis signum illucéscere Deus vóluit «arcum appapréntem in núbibus», sic turbulentíssimis recentióris ævi témporibus, cum vaférrima ómnium sérperet hæresis illa jansenniána, amóri in Deum pietatíque inimíca, quæ Deum non tam diligéndum ut patrem quam extimescéndum ut implacábilem júdicem prædicábat, benigníssimus Jesus Cor suum Sacratíssimum, quasi pacis et caritátis vexíllum elátum géntibus osténdit, haud dúbiam porténdens in certámine victóriam.
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dóminus, pátiens et multum miséricors. — Omnibus invocántibus eum in veritáte.
+
+##### Lectio v
+
+SIquidem appósite felícis recordatiónis decéssor noster Leo décimus tértius in Lítteris Encýclicis «Annum Sacrum», tantam cultus Sacratíssimi Cordis Jesu opportunitátem admirátus, edícere non dubitávit: «Cum Ecclésia per próxima oríginibus témpora cæsáreo jugo premerétur, conspécta sublíme adolescénti imperatóri crux, amplíssimæ victóriæ, quæ mox est consecúta, auspex simul atque efféctrix. En álterum hódie oblátum óculis auspicatíssimum divinissimúmque signum: vidélicet Cor Jesu Sacratíssimum, superimpósita cruce, splendidíssimo candóre inter flammas elúcens. In eo omnes collocándæ spes; ex eo hóminum peténda atque exspectánda salus».
+
+℟. Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus \* Et revelásti ea párvulis. ℣. Ita, Pater, quóniam sic fuit plácitum ante te. — Et.
+
+##### Lectio vi
+
+AC jure id quidem; in illo enim auspicatíssimo signo atque in ea, quæ exínde conséquitur, pietá-

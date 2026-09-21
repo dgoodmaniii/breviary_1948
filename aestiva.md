@@ -17061,3 +17061,27 @@ AT semper meminérimus opórtet, totam expiatiónis virtútem ab uno Christi cru
 ##### Lectio vi
 
 NEque enim arcáni hujus sacerdótii et satisfaciéndi sacrificandíque múneris participatióne ii soli fruúntur, quibus Póntifex noster Christus Jesus admínistris útitur ad oblatiónem mundam divíno Nómini ab ortu solis usque ad occásum omni loco offeréndam; sed étiam christianórum gens univérsa, ab Apostolórum Príncipe genus eléctum, regále sacerdótium jure appelláta, debet cum pro se, tum pro toto humáno génere offérre pro peccátis, haud áliter propémodum quam sacérdos omnis ac póntifex ex homínibus assúmptus, pro homínibus constitúitur in iis quæ sunt ad Deum.
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum quóniam magnus es tu, et fáciens mirabília. — Et. Glória Patri. Et.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 19, 31-37*
+
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce córpora sábbato, erat enim magnus dies ille sábbati, rogavérunt Pilátum ut frangeréntur eórum crura et tolleréntur. Et réliqua.
+
+{RUBRIC: Homilía sancti Lauréntii Justiniáni Epíscopi}
+
+{RUBRIC: De triumphali Christi agóne, cap. 21}
+
+AD Jesum ígitur cum veníssent, illúmque jam mórtuum conspexíssent, ipsíus mínime crura fregérunt, verum astántium unus, vibráta láncea, latus ejus apéruit, et contínuo exívit sanguis et aqua. Grande prorsus et inaudítum prodígium, ut de exanimáto córpore sanguis exíret et aqua. Verúmtamen, máximum, in re hac gesta, nobis vóluit Dei sapiéntia commendáre sacraméntum, sui vidélicet, et Ecclésiæ unitátem. Hujus enim spirituális cópulæ figúra præcéssit, quando de látere Adæ dormiéntis una ex costis ipsíus subtrácta narrátur, atque de eádem Eva cunctórum parens formáta est, quæ typum gerébat Ecclésiæ. Significábat tunc Spíritus Sanctus, verum et spirituálem Adam esse futúrum, qui Paracléti virtúte plasmátus, dum dormíret in cruce, de ipsíus látere, profluéntibus aqua et sánguine, speciósa sponsa sine ruga et mácula, formarétur Ecclésia.
+
+℟. Ego si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia.
+
+##### Lectio viii
+
+HÆC quippe sunt sacraménta ecclesiástica per quæ totum corpus Ecclésiæ ablúitur atque sanctificátur. In lavácro útique aquæ regeneratiónis, quod Christi morte sacrátur, ab origináli contagióne mundátur. In Redemptóris vero sánguine nedum ab omni culpa purgátur, verum étiam regni cæléstis illi aperítur intróitus. Ambo hæc in unum efféctum

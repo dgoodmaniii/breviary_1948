@@ -31468,3 +31468,53 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 **Ant.** Et dixit Zacharías ad Angelum: Unde hoc sciam? ego enim sum senex, et uxor mea procéssit in diébus suis.
 
 **Ant.** Respóndens autem Angelus, \* dixit ei: Ego sum Gábriel, qui asto ante Deum: et missus sum loqui ad te, et hæc tibi evangelizáre.
+
+###### Psalmus 33
+
+BENEDICAM Dóminum in omni témpore: \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea: \* áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum: \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me: \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini: \* et fácies vestræ non confundéntur.
+
+Iste pauper clamávit et Dóminus exaudívit eum: \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum: \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus: \* beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus: \* quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt: \* inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me: \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam: \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo: \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum: \* inquíre pacem, et perséquere eam.
+
+Oculi Dómini super justos: \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala: \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos: \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde: \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum: \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
+
+Mors peccatórum péssima: \* et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Respóndens autem Angelus, dixit ei: Ego sum Gábriel, qui asto ante Deum: et missus sum loqui ad te, et hæc tibi evangelizáre.
+
+℣. Ascéndit fumus arómatum in conspéctu Dómini. ℟. De manu Angeli.

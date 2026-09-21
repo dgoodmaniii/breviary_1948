@@ -17193,3 +17193,15 @@ NOtánter tamen adverténdum est quod latus Christi apértum dícitur, non vulne
 FIlius unius anni erat Saul cum regnáre cœpísset; duóbus autem annis regnávit super Israël. Et elégit sibi Saul tria míllia de Israël. Et erant cum Saul duo míllia in Machmas et in monte Bethel, mille autem cum Jónatha in Gábaa Bénjamin. Porro céterum pópulum remísit unumquémque in tabernácula sua. Et percússit Jónathas statiónem Philisthinórum, quæ erat in Gábaa. Quod cum audíssent Philísthiim, Saul cécinit búccina in omni terra, dicens: Audiant Hebrǽi. Et univérsus Israël audívit hujuscémodi famam: Percússit Saul statiónem Philisthinórum, et eréxit se Israël advérsus Philísthiim; clamávit ergo pópulus post Saul in Gálgala.
 
 ℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non.
+
+##### Lectio ii
+
+ET Philísthiim congregáti sunt ad præliándum contra Israël, trigínta míllia cúrruum et sex míllia équitum et réliquum vulgus sicut aréna, quæ est in líttore maris plúrima. Et ascendéntes castrametáti sunt in Machmas ad Oriéntem Betháven. Quod cum vidíssent viri Israël se in arcto pósitos, (afflíctus enim erat pópulus) abscondérunt se in spelúncis, et in ábditis, in petris quoque et in antris et in cistérnis. Hebrǽi autem transiérunt Jordánem in terram Gad et Gálaad. Cumque adhuc esset Saul in Gálgala, univérsus pópulus pertérritus est, qui sequebátur eum. Et exspectávit septem diébus juxta plácitum Samuélis; et non venit Sámuel in Gálgala, dilapsúsque est pópulus ab eo.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu.
+
+##### Lectio iii
+
+AIt ergo Saul: Afférte mihi holocáustum et pacífica. Et óbtulit holocáustum. Cumque complésset ófferens holocáustum, ecce Sámuel veniébat; et egréssus est Saul óbviam ei ut salutáret eum. Locutúsque est ad eum Sámuel: Quid fecísti? Respóndit Saul: Quia vidi quod pópulus dilaberétur a me, et tu non véneras juxta plácitos dies, porro Philísthiim congregáti fúerant in Machmas, dixi: Nunc descéndent Philísthiim ad me in Gálgala, et fáciem Dómini non placávi. Necessitáte compúlsus óbtuli holocáustum. Dixítque Sámuel ad Saul: Stulte egísti, nec custodísti mandáta Dómini Dei tui, quæ præcépit tibi. Quod si non fecísses, jam nunc præparásset Dóminus regnum tuum super Israël in sempitérnum; sed nequáquam regnum tuum ultra consúrget. Quæsívit Dóminus sibi virum juxta cor suum et præcépit ei Dóminus ut esset dux super pópulum suum, eo quod non serváveris quæ præcépit Dóminus.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória. Propter.

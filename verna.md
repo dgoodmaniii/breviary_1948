@@ -36412,3 +36412,25 @@ SI dixérimus quóniam societátem habémus cum eo, et in ténebris ambulámus, 
 FILIOLI mei, hæc scribo vobis, ut non peccétis. Sed, et si quis peccáverit, advocátum habémus apud Patrem, Jesum Christum justum: et ipse est propitiátio pro peccátis nostris: non pro nostris autem tantum, sed étiam pro totíus mundi. Et in hoc scimus quóniam cognóvimus eum, si mandáta ejus observémus. Qui dicit se nosse eum, et mandáta ejus non custódit, mendax est, et in hoc véritas non est. Qui autem servat verbum ejus, vere in hoc cáritas Dei perfécta est: et in hoc scimus quóniam in ipso sumus. Qui dicit se in ipso manére, debet, sicut ille ambulávit, et ipse ambuláre.
 
 ℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória Patri. Mors.
+
+##### In II Nocturno
+
+Ex libro sancti Hierónymi Presbýteri contra Joviniánum
+
+{RUBRIC: Liber 1, n. 26}
+
+###### Lectio iv
+
+JOANNES Apóstolus, unus ex discípulis Dómini, qui mínimus natu tráditur fuísse inter Apóstolos, et quem fides Christi vírginem repérerat, virgo permánsit; et ídeo plus amátur a Dómino, et recúmbit super pectus Jesu; et, quod Petrus, qui uxórem habúerat, interrogáre non audet, illum rogat ut intérroget; et post resurrectiónem, nuntiánte María Magdaléne quod Dóminus resurrexísset, utérque cucúrrit ad sepúlcrum, sed ille prævénit; cumque essent in navi, et piscaréntur in lacu Genésareth, Jesus stabat in líttore, nec sciébant Apóstoli quem vidérent; solus virgo vírginem agnóscit, et dicit Petro: Dóminus est.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+FUIT autem Joánnes et Apóstolus, et Evangelísta, et Prophéta: Apóstolus, quia scripsit ad ecclésias ut magíster; Evangelísta, quia librum Evangélii cóndidit, quod, excépto Matthǽo, álii ex duódecim Apóstoli non fecérunt; Prophéta, vidit enim in Patmos ínsula, in qua fúerat a Domitiáno príncipe ob Dómini martýrium relegátus, Apocalýpsim, infiníta futurórum mystéria continéntem. Refert autem Tertulliánus quod Romæ missus in fervéntis ólei dólium, púrior et vegétior exíverit, quam intráverit.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+###### Lectio vi
+
+SED et ipsum ejus Evangélium multum distat a céteris. Matthǽus quasi de hómine íncipit scríbere: Liber generatiónis Jesu Christi, fílii David, fílii Abraham; Lucas a sacerdótio Zacharíæ; Marcus a prophetía Malachíæ et Isaíæ. Primus habet fáciem hóminis, propter genealogíam; secúndus fáciem vítuli, propter sacerdótium; tértius fáciem leónis, propter vocem cla-

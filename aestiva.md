@@ -13215,3 +13215,59 @@ Hoc mare magnum, et spatiósum mánibus: \* illic reptília, quorum non est núm
 Animália pusílla cum magnis: \* illic naves pertransíbunt.
 
 Draco iste, quem formásti ad illudéndum ei: \* ómnia a te exspéctant ut des illis escam in témpore.
+
+Dante te illis, cólligent: \* aperiénte te manum tuam, ómnia implebúntur bonitáte.
+
+Avertánte autem te fáciem, turbabúntur: \* áuferes spíritum eórum, et defícient, et in púlverem suum reverténtur.
+
+Emíttes spíritum tuum, et creabúntur: \* et renovábis fáciem terræ.
+
+Sit glória Dómini in sæculum: \* lætábitur Dóminus in opéribus suis:
+
+Qui réspicit terram, et facit eam trémere: \* qui tangit montes, et fúmigant.
+
+Cantábo Dómino in vita mea: \* psallam Deo meo, quámdiu sum.
+
+Jucúndum sit ei elóquium meum: \* ego vero delectábor in Dómino.
+
+Defíciant peccatóres a terra, et iníqui ita ut non sint: \* bénedic, ánima mea, Dómino.
+
+**Ant.** Dómine, Deus meus, magnificátus es veheménter.
+
+### In Officio feriali
+
+**Capitulum** *Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 20}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.

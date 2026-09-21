@@ -1323,3 +1323,55 @@ Et sperent in te qui novérunt nomen tuum: \* quóniam non dereliquísti quæré
 **Ant.** Sedísti super thronum, qui júdicas justítiam.
 
 **Ant.** Exsúrge, Dómine.
+
+###### Psalmus 9, ii
+
+PSALLITE Dómino, qui hábitat in Sion: \* annuntiáte inter gentes stúdia ejus:
+
+Quóniam requírens sánguinem eórum recordátus est: \* non est oblítus clamórem páuperum.
+
+Miserére mei, Dómine: \* vide humilitátem meam de inimícis meis.
+
+Qui exáltas me de portis mortis, \* ut annúntiem omnes laudatiónes tuas in portis fíliæ Sion.
+
+Exsultábo in salutári tuo: \* infíxæ sunt gentes in intéritu, quem fecérunt.
+
+In láqueo isto, quem abscondérunt, \* comprehénsus est pes eórum.
+
+Cognoscétur Dóminus judícia fáciens: \* in opéribus mánuum suárum comprehénsus est peccátor.
+
+Convertántur peccatóres in inférnum, \* omnes gentes quæ obliviscúntur Deum.
+
+Quóniam non in finem oblívio erit páuperis: \* patiéntia páuperum non períbit in finem.
+
+Exsúrge, Dómine, non confortétur homo: \* judicéntur gentes in conspéctu tuo.
+
+Constítue, Dómine, legislatórem super eos: \* ut sciant gentes quóniam hómines sunt.
+
+**Ant.** Exsúrge, Dómine, non prævaleat homo.
+
+℣. Média nocte surgébam ad confiténdum tibi. ℟. Super judícia justificatiónis tuæ.
+
+**Absol.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+**Ant.** Ut quid, Dómine. †
+
+###### Psalmus 9, iii
+
+UT quid, Dómine, † recessísti longe, \* déspicis in opportunitátibus, in tribulatióne?
+
+Dum supérbit ímpius, incénditur pauper: \* comprehendúntur in consíliis quibus cógitant.
+
+Quóniam laudátur peccátor in desidériis ánimæ suæ: \* et iníquus benedícitur.
+
+Exacerbávit Dóminum peccátor, \* secúndum multitúdinem iræ suæ non quæret.
+
+Non est Deus in conspéctu ejus: \* inquinátæ sunt viæ illíus in omni témpore.
+
+Auferúntur judícia tua a fácie ejus: \* ómnium inimicórum suórum dominábitur.
+
+Dixit enim in corde suo: \* Non movébor a generatióne in generatiónem sine malo.

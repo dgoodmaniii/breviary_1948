@@ -33176,3 +33176,17 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum Isidórum minístrum tribuísti
 ###### Lectio iv
 
 VINCENTIUS, honésta stirpe Valéntiæ in Hispánia natus, ab ineúnte ætáte cor gessit seníle. Qui dum caliginósi hujus sǽculi lábilem cursum pro ingénii sui módulo consideráret, religiónis hábitum in órdine Prædicatórum décimo octávo ætátis suæ anno suscépit; et emíssa solémni professióne, sacris lítteris sédulo incúmbens, theologíæ láuream summa cum laude consecútus est. Mox obténta a superióribus licéntia, verbum Dei prædicáre, Judæórum perfídiam argúere, Saracenórum erróres confutáre tanta virtúte et efficácia cœpit, ut ingéntem ipsórum infidélium multitúdinem ad Christi fidem perdúxerit, et multa Christianórum míllia a peccátis ad pæniténtiam, a vítiis ad virtútem revocárit. Eléctus enim a Deo, ut mónita salútis in omnes gentes, tribus et linguas diffúnderet, et extrémi treméndique judícii diem appropinquáre osténderet, ómnium auditórum ánimos, terróre concússos atque a terrénis afféctibus avúlsos, ad Dei amórem excitábat.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. {RUBRIC: (T. P. Allelúja.)} ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+IN hoc autem apostólico múnere hic vitæ ejus tenor perpétuus fuit: quotídie Missam summo mane cum cantu celebrávit; quotídie ad pópulum conciónem hábuit; inviolábile semper jejúnium, nisi úrgens adésset necéssitas, servávit; sancta et recta consília nulli denegávit; carnes numquam comédit, nec vestem líneam índuit. Populórum júrgia sedávit, dissidéntia regna pace compósuit; et, cum vestis inconsútilis Ecclésiæ diro schísmate scinderétur, ut unirétur et uníta serváretur plúrimum laborávit. Virtútibus ómnibus cláruit, suósque detractóres et persecutóres, in simplicitáte et humilitáte ámbulans, cum mansuetúdine recépit et ampléxus est.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. {RUBRIC: (T. P. Allelúja.)} ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio vi
+
+PER ipsum divína virtus, in confirmatiónem vitæ et prædicatiónis ejus, multa signa et mirácula fecit. Nam frequentíssime super ægros manus impósuit, et sanitátem adépti sunt; spíritus immúndos e corpóribus expúlit; surdis audítum, mutis loquélam, cæcis visum restítuit; leprósos mundávit; mórtuos suscitávit. Sénio tandem et morbo conféctus infatigábilis Evangélii præco, plúrimis Európæ provínciis cum ingénti animárum fructu peragrátis, Venétiæ in Británnia minóri prædicatiónis et vitæ cursum felíciter consummávit anno salútis millésimo quadringentésimo décimo nono. Quem Callístus tértius Sanctórum número adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. {RUBRIC: (T. P. Allelúja.)} ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.

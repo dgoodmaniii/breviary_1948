@@ -25764,4 +25764,22 @@ IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentati�
 
 #### Lectio iii
 
-PROPTER quod succíncti lumbos mentis vestræ, sóbrii perfécte speráte in eam, quæ offértur vobis, grátiam, in revelatiónem Jesu Christi: quasi fílii obediéntiæ, non configuráti prióribus ignorántiæ vestræ desidériis: sed secúndum eum, qui vocávit vos, Sanctum; et ipsi in omni conversatióne sancti sitis: quóniam scriptum est: Sancti éritis, quóniam ego sanctus sum. Et si Patrem invocátis eum, qui sine acceptióne personárum júdicat secúndum uniuscujúsque opus, in timóre incolátus vestri témpore conversámini. Sciéntes quod non corruptibílibus auro vel argénto redémpti estis de vana vestra conversatióne patérnæ traditiónis: sed pretióso sánguine quasi agni immaculáti Christi, et incontamináti: præcógniti quidem ante mundi constitutiónem, manife-
+PROPTER quod succíncti lumbos mentis vestræ, sóbrii perfécte speráte in eam, quæ offértur vobis, grátiam, in revelatiónem Jesu Christi: quasi fílii obediéntiæ, non configuráti prióribus ignorántiæ vestræ desidériis: sed secúndum eum, qui vocávit vos, Sanctum; et ipsi in omni conversatióne sancti sitis: quóniam scriptum est: Sancti éritis, quóniam ego sanctus sum. Et si Patrem invocátis eum, qui sine acceptióne personárum júdicat secúndum uniuscujúsque opus, in timóre incolátus vestri témpore conversámini. Sciéntes quod non corruptibílibus auro vel argénto redémpti estis de vana vestra conversatióne patérnæ traditiónis: sed pretióso sánguine quasi agni immaculáti Christi, et incontamináti: præcógniti quidem ante mundi constitutiónem, manife-státi autem novíssimis tempóribus propter vos, qui per ipsum fidéles estis in Deo, qui suscitávit eum a mórtuis, et dedit ei glóriam, ut fides vestra et spes esset in Deo.
+
+℟. Narrábo nomen tuum frátribus meis, allelúja: \* In médio Ecclésiæ laudábo te, allelúja, allelúja. ℣. Confitébor tibi in pópulis, Dómine, et psalmum dicam tibi in géntibus. — In médio. Glória Patri. In médio.
+
+#### In II Nocturno
+
+Ex libro sancti Ambrósii Epíscopi de fide resurrectiónis
+
+#### Lectio iv
+
+{RUBRIC: Post medium}
+
+QUONIAM Dei mori non póterat Sapiéntia, resúrgere autem non póterat quod mórtuum non erat; assúmitur caro, quæ mori posset: ut dum móritur quod solet, quod mórtuum füerat, hoc resúrgeret. Neque enim póterat esse, nisi per hóminem, resurréctio: quóniam sicut per hóminem mors, ita et per hóminem resurréctio mortuórum. Ergo resurréxit homo, quóniam homo mórtuus est: resuscitátus homo, sed resúscitans Deus. Tunc secúndum carnem homo, nunc per ómnia Deus. Nunc enim secúndum carnem jam non nóvimus Christum, sed carnis grátiam tenémus, ut ipsum primítias quiescéntium, ipsum primogénitum ex mórtuis novérimus.
+
+℟. In ecclésiis benedícite Deo, allelúja, \* Dómino de fóntibus Israël, allelúja, allelúja. ℣. Psalmum dícite nómini ejus, date glóriam laudi ejus. — Dómino.
+
+#### Lectio v
+
+PRIMITIÆ útique ejúsdem sunt géneris atque natúræ, cujus et réliqui fructus: quorum pro lætióre provéntu primitíva Deo múnera deferúntur; sacrum munus pro ómnibus, et quasi reparátæ quædam liba natúræ. Primítiæ ergo quiescéntium Christus. Sed utrum suórum quiescéntium, qui quasi mortis exsórtes, dulci quodam sopóre tenéntur, an ómnium mortuórum? Sed sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur. Itaque sicut primítiæ mortis in Adam, ita étiam primítiæ resurrectiónis in Christo omnes resúrgent. Sed nemo despéret, neque justus dóleat commúne consórtium resurgéndi, cum præcí-

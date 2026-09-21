@@ -23953,4 +23953,22 @@ NUNC autem depónite et vos ómnia: iram, indignatiónem, malítiam, blasphémia
 
 SUPER ómnia autem hæc, caritátem habéte, quod est vínculum perfectiónis: et pax Christi exsúltet in córdibus vestris, in qua et vocáti estis in uno córpore: et grati estóte. Verbum Christi hábitet in vobis abundánter, in omni sapiéntia, docéntes, et commonéntes vosmetípsos, psalmis, hymnis, et cánticis spirituálibus, in grátia cantántes in córdibus vestris Deo. Omne, quodcúmque fácitis in verbo aut in ópere, ómnia in nómine Dómini Jesu Christi, grátias agéntes Deo et Patri per ipsum.
 
-℟. Cum transísset sábbatum, María Magdaléne, et María Jacóbi, et Salóme emérunt arómata, \* Ut veniéntes úngerent Jesum, allelúja, allelúja. ℣. Et valde mane una sabbató-
+℟. Cum transísset sábbatum, María Magdaléne, et María Jacóbi, et Salóme emérunt arómata, \* Ut veniéntes úngerent Jesum, allelúja, allelúja. ℣. Et valde mane una sabbató-rum véniunt ad monuméntum, orto jam sole. — Ut veniéntes úngerent Jesum, allelúja, allelúja. Glória Patri. Ut.
+
+#### In II Nocturno
+
+Sermo sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 1 in Octava Paschæ, qui est 157 de Tempore}
+
+#### Lectio iv
+
+PASCHALIS solémnitas hodiérna festivitáte conclúditur, et ídeo hódie Neophytórum hábitus commutátur: ita tamen, ut candor, qui de hábitu depónitur, semper in corde teneátur. In qua quidem primum nobis agéndum est, ut quia pascháles dies sunt, id est, indulgéntiæ ac remissiónis, ita a nobis sanctórum diérum festívitas agátur, ut relaxatióne córporum púritas non obfuscétur: sed pótius abstinéntes ab omni luxu, ebrietáte, lascívia, demus óperam sóbriæ remissióni, ac sanctæ sinceritáti: ut, quidquid modo corporáli abstinéntia non acquírimus, méntium puritáte quærámus.
+
+℟. María Magdaléne, et áltera María ibant dilúculo ad monuméntum: \* Jesum quem quǽritis, non est hic, surréxit sicut locútus est, præcédet vos in Galilǽam, ibi eum vidébitis, allelúja, allelúja. ℣. Et valde mane una sabbatórum véniunt ad monuméntum, orto jam sole: et introëúntes vidérunt júvenem sedéntem in dextris, qui dixit illis. — Jesum.
+
+#### Lectio v
+
+AD omnes quidem pértinet sermo, quos cura nostra compléctitur: verúmtamen hódie terminata sacramentórum solemnitáte, vos allóquimur, novélla gérmina sanctitátis, regeneráta ex aqua et Spíritu Sancto: germen pium, exámen novéllum, flos nostri honóris, et fructus labóris, gáudium et coróna mea, omnes qui statis in Dómino Apostólicis verbis vos álloquor: Ecce nox præcéssit, dies autem appropinquávit: abjícite ópera tenebrárum, et indúite vos arma lucis. Sicut in die honéste ambulémus: non in comessatiónibus et ebrietátibus, non in cubílibus et impudicítiis, non in contentióne et æmulatióne: sed induímini Dóminum Jesum Christum.
+
+℟. Surréxit pastor bonus, qui ánimam suam pósuit pro óvibus suis, et pro grege suo mori dignátus est: \* Allelúja,

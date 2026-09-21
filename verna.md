@@ -36555,4 +36555,50 @@ STANISLAUS, apud Cracóviam nóbili génere natus, quem pii paréntes, per trig�
 
 ℣. Pretiósa in conspéctu.
 
-**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vi-
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, pro cujus honóre gloriósus Póntifex Stanisláus gládiis impiórum occúbuit: præsta, quǽsumus; ut omnes, qui ejus implórant auxílium, petitiónis suæ salutárem consequántur efféctum. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+### Die 8 Maji
+
+#### In Apparitione S. Michaëlis Archangeli
+
+{RUBRIC: Duplex majus}
+
+##### In I Vesperis
+
+**Ant. 1** Stetit Angelus \* juxta aram templi, habens thuríbulum áureum in manu sua, allelúja.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi App. T. P. [4], vel, si II Vesperæ de hoc Festo non sint dicéndæ, loco últimi Ps. 116 Laudáte Dóminum, omnes gentes, Ps. 137 Confitébor tibi, Dómine, ut infra.}
+
+**2** Dum præliarétur \* Míchael Archángelus cum dracóne, audíta est vox dicéntium: Salus Deo nostro, allelúja.
+
+**3** Archángele Míchaël, \* constítui te príncipem super omnes ánimas suscipiéndas, allelúja.
+
+**4** Angeli Dómini, \* Dóminum benedícite in ætérnum, allelúja.
+
+**5** Angeli, Archángeli, \* Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+##### In II Vesperis
+
+###### Psalmus 137
+
+CONFITEBOR tibi, Dómine, in toto corde meo: \* quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi: \* adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua: \* quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me: \* multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ: \* quia audiérunt ómnia verba oris tui:
+
+Et cantent in viis Dómini: \* quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit: \* et alta a longe cognóscit.

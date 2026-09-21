@@ -24592,4 +24592,32 @@ ET, postquam tacuérunt, respóndit Jacóbus, dicens: Viri fratres, audíte me. 
 
 #### Lectio iii
 
-TUNC plácuit Apóstolis, et senióribus cum omni Ecclésia, elígere viros ex eis, et míttere Antiochíam cum Paulo et Bárnaba, Judam, qui cognominabátur Bársabas, et Silam, viros primos in frátribus, scribéntes per manus eórum: Apóstoli et senióres fratres, his qui sunt Antiochíæ, et Sýriæ, et Cilíciæ frátribus ex géntibus, salútem. Quóniam audívimus quia quidam ex nobis exeúntes, turbavérunt vos verbis, everténtes ánimas vestras, quibus non mandávimus: plácuit nobis colléctis in unum, elígere viros, et míttere ad vos cum caríssimis nostris Bárnaba et Paulo, homínibus, qui tradidérunt ánimas suas pro nómine Dómini nostri Jesu Christi. Mísimus ergo Judam et Silam, qui et ipsi vobis verbis réferent éadem. Visum est enim Spirítui
+TUNC plácuit Apóstolis, et senióribus cum omni Ecclésia, elígere viros ex eis, et míttere Antiochíam cum Paulo et Bárnaba, Judam, qui cognominabátur Bársabas, et Silam, viros primos in frátribus, scribéntes per manus eórum: Apóstoli et senióres fratres, his qui sunt Antiochíæ, et Sýriæ, et Cilíciæ frátribus ex géntibus, salútem. Quóniam audívimus quia quidam ex nobis exeúntes, turbavérunt vos verbis, everténtes ánimas vestras, quibus non mandávimus: plácuit nobis colléctis in unum, elígere viros, et míttere ad vos cum caríssimis nostris Bárnaba et Paulo, homínibus, qui tradidérunt ánimas suas pro nómine Dómini nostri Jesu Christi. Mísimus ergo Judam et Silam, qui et ipsi vobis verbis réferent éadem. Visum est enim Spirítui Sancto, et nobis, nihil ultra impónere vobis óneris, quam hæc necessária: ut abstineátis vos ab immolátis simulacrórum, et sánguine, et suffocáto, et fornicatióne; a quibus custodiéntes vos, bene agétis. Valéte.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+**Ad Bened. Ant.** Eúntes in mundum, \* allelúja: docéte omnes gentes, allelúja.
+
+**Ad Magnif. Ant.** Pastor bonus \* ánimam suam ponit pro óvibus suis, allelúja.
+
+---
+
+## Feria Tertia
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 17, 22-34*
+
+STANS autem Paulus in médio Areopági, ait: Viri Atheniénses, per ómnia quasi superstitiosióres vos vídeo. Prætériens enim, et videns simulácra vestra, invéni et aram, in qua scriptum erat: Ignóto Deo. Quod ergo ignorántes cólitis, hoc ego annúntio vobis. Deus, qui fecit mundum, et ómnia quæ in eo sunt, hic cæli et terræ cum sit Dóminus, non in manufáctis templis hábitat, nec mánibus humánis cólitur índigens áliquo, cum ipse det ómnibus vitam, et inspiratiónem, et ómnia: fecítque ex uno omne genus hóminum inhabitáre super univérsam fáciem terræ, defíniens statúta témpora, et términos habitatiónis eórum, quǽrere Deum si forte attréctent eum, aut invéniant, quamvis non longe sit ab unoquóque nostrum.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+#### Lectio ii
+
+IN ipso enim vívimus, et movémur, et sumus: sicut et quidam vestrórum poëtárum dixérunt: Ipsíus enim et genus sumus. Genus ergo cum simus Dei, non debémus æstimáre auro, aut argénto, aut lápidi,

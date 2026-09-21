@@ -24641,3 +24641,21 @@ QUIDAM vero viri adhæréntes ei, credidérunt: in quibus et Dionýsius areopag�
 **Ad Bened. Ant.** Eúntes in mundum, \* docéte omnes gentes, baptizántes eos in nómine Patris, et Fílii, et Spíritus Sancti, allelúja.
 
 **Ad Magnif. Ant.** Mercenárius autem, \* cujus non sunt oves própriæ, videt lupum veniéntem, et dimíttit oves, et fugit; et lupus rapit et dispérgit oves, allelúja.
+
+---
+
+## Feria Quarta
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 20, 17-38*
+
+A Miléto Paulus mittens Ephesum, vocávit majóres natu ecclésiæ. Qui cum veníssent ad eum, et simul essent, dixit eis: Vos scitis a prima die, qua ingréssus sum in Asiam, quáliter vobíscum per omne tempus fúerim, sérviens Dómino cum omni humilitáte, et lácrimis, et tentatiónibus, quæ mihi accidérunt ex insídiis Judæórum: quómodo nihil subtráxerim utílium, quóminus annuntiárem vobis, et docérem vos públice et per domos, testíficans Judǽis atque gentílibus in Deum pœniténtiam, et fidem in Dóminum nostrum Jesum Christum. Et nunc ecce alligátus ego Spíritu, vado in Jerúsalem: quæ in ea ventúra sint mihi, ignórans: nisi quod Spíritus Sanctus per omnes civitátes mihi protestátur, dicens: Quóniam víncula, et tribulatiónes Jerosólymis me manent. Sed nihil horum véreor: nec fácio ánimam meam pretiosiórem quam me, dúmmodo consúmmem cursum meum, et ministérium verbi, quod accépi a Dómino Jesu, testificári Evangélium grátiæ Dei.
+
+℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mórtuus est peccáto, mórtuus est semel: \* Quod autem vivit, vivit Deo, allelúja, allelúja. ℣. Mórtuus est semel propter delícta nostra, et resurréxit propter justificatiónem nostram. — Quod.
+
+#### Lectio ii
+
+ET nunc ecce ego scio quia ámplius non vidébitis fáciem meam vos omnes, per quos transívi prædicans regnum Dei. Quaprópter contéstor vos hodiérna die, quia mundus sum a sánguine ómnium. Non enim subterfúgi, quóminus annuntiárem omne consílium Dei vobis. Atténdite vobis, et univérso gregi, in quo vos Spíritus Sanctus pósuit epíscopos régere Ecclésiam Dei, quam acquisívit sánguine suo. Ego scio quóniam intrábunt post discessiónem meam lupi rapáces in vos, non parcéntes gregi. Et ex vobis ipsis exsúrgent viri loquéntes pervérsa, ut abdúcant discípulos post se. Propter quod vigiláte, memória retinéntes, quóniam per triénnium nocte et die non cessávi, cum lácrimis

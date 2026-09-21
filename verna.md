@@ -35554,3 +35554,19 @@ ATHANASIUS Alexandrínus, cathólicæ religiónis propugnátor acérrimus, ab Al
 **Lectio v**
 
 ARSENIUM quoque epíscopum ab Athanásio interféctum Ariáni pervulgárunt; quem dum occúlte détinent, manum mórtui déferunt in judícium, ab Athanásio ad usum mágicæ artis Arsénio amputátam criminántes. At Arsénius noctu aufúgiens, cum se in conspéctu totíus concílii statuísset, Athanásii inimicórum impudentíssimum scelus apéruit. Quod illi nihilóminus mágicis ártibus Athanásii tribuéntes, vitæ ejus insidiári non desistébant. Quam ob rem in exsílium actus, in Gállia apud Tréviros exsulávit. Grávibus deínceps ac diutúrnis sub Constántio imperatóre, Arianórum fautóre, tempestátibus jactátus et incredíbiles calamitátes perpéssus, magnam orbis terræ partem peragrávit; ac sæpe e sua ecclésia ejéctus, sæpe étiam in eámdem et Júlii, Románi Pontíficis, auctoritáte, et Constántis imperatóris, Constántii fratris, patrocínio, decrétis quoque concílii Sardicénsis ac Jerosolymitáni, restitútus est, Ariánis intérea illi semper inféstis; quorum pertinácem iram, et summum vitæ discrímen fúgiens, in sicca cistérna quinque annis se ábdidit, ejus rei tantum cónscio quodam Athanásii amíco, qui eum clam sustentábat.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+**Lectio vi**
+
+CONSTANTIO mórtuo, cum Juliánus Apóstata, qui ei in império succéssit, éxsules epíscopos ad suas ecclésias redíre permisísset, Athanásius Alexandríam revérsus, summo honóre excéptus est. Sed non multo post, iísdem Ariánis impelléntibus, a Juliáno exagitátus, rursus discédere cógitur. Cumque ab ejus satellítibus ad necem conquirerétur, qua fugiébat navícula convérsa in contráriam flúminis partem, iis qui se insequebántur, ex indústria occúrrit; et quæréntibus quantum inde abésset Athanásius, respóndit eum non longe abésse: ítaque illos contrárium tenéntes cursum effúgit, atque Alexandríam rédiens, ibídem usque ad Juliáni óbitum occúltus permánsit. Qui paulo post, Alexandríæ ália exórta tempestáte, quátuor menses in patérno sepúlcro delítuit. Ac dénique ex tot tantísque perículis divínitus eréptus, Alexandríæ mórtuus est in suo léctulo, sub Valénte: cujus vita et mors magnis nobilitáta est miráculis. Multa pie et ad illustrándam cathólicam fidem præcláre scripsit, sexque et quadragínta annos in summa témporum varietáte Alexandrínam ecclésiam sanctíssime gubernávit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+ATHANASIUS, epíscopus Alexandrínus, cathólicæ religiónis propugnátor acérrimus, cum, adhuc diáconus, in Concílio Nicǽno Arii impietátem repressísset, tantum ódium Arianórum suscépit, ut ex eo témpore ei insídias molíri numquam destíterint. In exsílium actus, in Gállia apud Tréviros exsulávit. Incredíbiles dein calamitátes perpéssus, magnam orbis partem peragrávit; ac sæpe e sua

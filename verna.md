@@ -46806,4 +46806,69 @@ LAUDA, Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
 
 Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
 
-Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te. Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Speciósa facta es et suávis in delíciis tuis, sancta Dei Génitrix. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
+
+{RUBRIC: Prima stropha sequentis Hymni dicitur flexis genibus.}
+
+###### Hymnus
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus. Amen.
+
+℣. Dignáre me laudáre te, Virgo sacráta. (T. P. Allelúja.) ℟. Da mihi virtútem contra hostes tuos. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Sancta María, \* succúrre míseris, juva pusillánimes, réfove flébiles, ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam festivitátem. (T. P. Allelúja.)
+
+##### In II Vesperis
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam

@@ -31230,3 +31230,41 @@ INTERCESSIO nos, quǽsumus, Dómine, beáti Benedícti Abbátis comméndet: ut, 
 ##### In I Vesperis
 
 **Ant. 1** Ingrésso Zacharía \* templum Dómini, appáruit ei Gábriel Angelus, stans a dextris altáris incénsi.
+
+{RUBRIC: Psalmi de Dominica 72, sed loco últimi Ps. 137, ut infra, vel, sicubi de hoc Festo íntegræ II Vésperæ sint dicéndæ, Ps. 116 Laudáte Dóminum omnes gentes. 92}
+
+**2** Ait autem Angelus: \* Ne tímeas, Zacharía, quóniam exaudíta est deprecátio tua.
+
+**3** Ego sum Gábriel \* Angelus, qui asto ante Deum, et missus sum loqui ad te.
+
+**4** Gábriel Angelus \* locútus est Maríæ, dicens: Ecce concípies in útero, et páries fílium, et vocábis nomen ejus Jesum.
+
+**5** Dixit autem María \* ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Gábriel Angelus, dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi.
+
+###### Psalmus 137
+
+CONFITEBOR tibi, Dómine, in toto corde meo: \* quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi: \* adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua: \* quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me: \* multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ: \* quia audiérunt ómnia verba oris tui:
+
+Et cantent in viis Dómini: \* quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit: \* et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me: \* et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me: \* Dómine, misericórdia tua in sǽculum: ópera mánuum tuárum ne despícias.
+
+**Ant.** Dixit autem María ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Gábriel Angelus, dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi.
+
+###### Capitulum
+
+*Dan. 9, 21-22*
+
+ECCE vir Gábriel, quem víderam in visióne a princípio, cito volans, tétigit me in témpore sacrifícii vespertíni. Et dócuit me, et locútus est mihi, dixítque: Dániel, nunc egréssus sum ut docérem te, et intellígeres.

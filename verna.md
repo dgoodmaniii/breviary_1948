@@ -35618,3 +35618,63 @@ AT vero sancti hómines cum hanc quoque formam a Salvatóre didicíssent, (ab ip
 EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti Athanásii Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
 
 {RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 3 Maji
+
+#### In Inventione S. Crucis
+
+{RUBRIC: Duplex II classis}
+
+##### In I Vesperis
+
+**Ant. 1** O magnum pietátis opus: \* mors mórtua tunc est, in ligno quando mórtua Vita fuit, allelúja.
+
+{RUBRIC: Psalmi de Dominica 72, sed loco ultimi Ps. 116 Laudáte Dóminum, omnes gentes. 92}
+
+**2** Salva nos, \* Christe Salvátor, per virtútem Crucis: qui salvásti Petrum in mari, miserére nobis, allelúja.
+
+**3** Ecce Crucem Dómini, \* fúgite, partes advérsæ, vicit leo de tribu Juda, radix David, allelúja.
+
+**4** Nos autem gloriári \* opórtet in Cruce Dómini nostri Jesu Christi, allelúja.
+
+**5** Per signum Crucis \* de inimícis nostris líbera nos, Deus noster, allelúja.
+
+**Capitulum** *Philipp. 2, 5-7*
+
+FRATRES: Hoc enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo: sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+###### Hymnus
+
+VEXILLA Regis pródeunt:
+Fulget Crucis mystérium,
+Qua vita mortem pértulit,
+Et morte vitam prótulit.
+
+Quæ, vulneráta lánceæ
+Mucróne diro, críminum
+Ut nos laváret sórdibus,
+Manávit unda et sánguine.
+
+Impléta sunt quæ cóncinit
+David fidéli cármine,
+Dicéndo natiónibus:
+Regnávit a ligno Deus.
+
+Arbor decóra et fúlgida,
+Ornáta Regis púrpura,
+Elécta digno stípite
+Tam sancta membra tángere.
+
+Beáta, cujus bráchiis
+Prétium pepéndit sǽculi,
+Statéra facta córporis,
+Tulítque prǽdam tártari.
+
+{RUBRIC: ¶ Sequens stropha dícitur flexis génibus; et última numquam mutátur.}
+
+O Crux, ave, spes única,
+Paschále quæ fers gáudium,
+Piis adáuge grátiam,
+Reísque dele crímina.

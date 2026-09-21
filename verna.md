@@ -22935,3 +22935,69 @@ Fecit poténtiam in bráchio suo: \* dispérsit supérbos mente cordis sui.
 Depósuit poténtes de sede, \* et exaltávit húmiles.
 
 Esuriéntes implévit bonis: \* et dívites dimísit inánes.
+
+Suscépit Israël, púerum suum, \* recordátus misericórdiæ suæ.
+
+Sicut locútus est ad patres nostros, \* Abraham, et sémini ejus in sǽcula.
+
+{RUBRIC: Glória Patri.}
+
+**Ant.** Véspere autem sábbati, quæ lucéscit in prima sábbati, venit María Magdaléne, et áltera María, vidére sepúlcrum, allelúja.
+
+{RUBRIC: Deinde Sacerdos dicit:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+{RUBRIC: Orémus.}
+
+#### Oratio
+
+SPIRITUM nobis, Dómine, tuæ caritátis infúnde: ut, quos sacraméntis paschálibus satiásti, tua fácias pietáte concórdes. Per Dóminum nostrum... in unitáte ejúsdem Spíritus Sancti Deus.
+
+{RUBRIC: Deinde ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.}
+
+{RUBRIC: Postea Diaconus dicit:}
+
+Ite, missa est, allelúja, allelúja. ℟. Deo grátias, allelúja, allelúja.
+
+---
+
+#### Extra Chorum,
+
+{RUBRIC: dictis} Pater noster et Ave María, {RUBRIC: Vésperæ inchoántur absolúte ab Ant.} Allelúja, {RUBRIC: cum relíquis, ut supra: et loco} Ite, missa est, allelúja, allelúja, {RUBRIC: dícitur}
+
+℣. Benedicámus Dómino, allelúja, allelúja. ℟. Deo grátias, allelúja, allelúja.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dicitur secreto Pater noster et nihil áliud.}
+
+---
+
+### Ad Completorium
+
+℣. Jube, domne.
+
+**Lectio brevis** Fratres: Sóbrii estóte.
+
+℣. Adjutórium nostrum. Pater noster.
+
+{RUBRIC: Et facta Confessióne et Absolutióne, dícitur:}
+
+℣. Convérte nos, Deus. ℣. Deus, in adjutórium. Glória Patri. Sicut erat.
+
+{RUBRIC: Et amplius non dícitur} Laus tibi, Dómine, Rex ætérnæ glóriæ, {RUBRIC: sed ejus loco deínceps dícitur} Allelúja.
+
+{RUBRIC: Deinde sine Antiphona dicúntur Psalmi de Dominica.}
+
+{RUBRIC: Hymnus, Capitulum et Responsórium breve non dicúntur.}
+
+**Ant.** Véspere autem sábbati.
+
+##### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,

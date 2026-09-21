@@ -47250,3 +47250,61 @@ Lux orta est justo, \* et rectis corde lætítia.
 Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
 
 **Ant.** Dignáre me laudáre te, Virgo sacráta: da mihi virtútem contra hostes tuos. (T. P. Allelúja.)
+
+**Ant.** Post partum, \* Virgo, invioláta permansísti: Dei Génitrix, intercéde pro nobis.
+
+##### In Annuntiatione:
+
+**Ant.** Angelus Dómini \* nuntiávit Maríæ, et concépit de Spíritu Sancto.
+
+###### Psalmus 97
+
+CANTATE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Post partum, Virgo, invioláta permansísti: Dei Génitrix, intercéde pro nobis.
+
+##### In Annuntiatione:
+
+**Ant.** Angelus Dómini nuntiávit Maríæ, et concépit de Spíritu Sancto. (T. P. Allelúja.)
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Gaude, María Virgo: cunctas hǽreses sola interemísti in univérso mundo, allelúja.
+
+℣. Elégit eam Deus, et præelégit eam. (T. P. Allelúja.) ℟. In tabernáculo suo habitáre facit eam. (T. P. Allelúja.)
+
+**Absolutio.** A vínculis.
+
+**Benedictio.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 11, 27-28*
+
+IN illo témpore: Loquénte Jesu ad turbas, extóllens vocem quǽdam múlier de turba dixit illi: Beátus venter qui te portávit. Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Liber 4, cap. 49 in Luc. 11}
+
+AGNÆ devotiónis et fídei hæc múlier osténditur, quæ, scribis et pharisǽis Dóminum tentántibus simul

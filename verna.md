@@ -26449,4 +26449,50 @@ DOMINUS regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur 
 
 Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
 
-Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum Deum nostrum, et adoráte in monte sancto ejus: \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Dóminus in Sion, allelúja: magnus et excélsus, allelúja.
+
+**Ant.** Dóminus in cælo, \* allelúja: parávit sedem suam, allelúja.
+
+#### Psalmus 102
+
+BENEDIC, ánima mea, Dómino: \* et ómnia, quæ intra me sunt, nómini sancto ejus.
+
+Bénedic, ánima mea, Dómino: \* et noli oblivísci omnes retributiónes ejus.
+
+Qui propitiátur ómnibus iniquitátibus tuis: \* qui sanat omnes infirmitátes tuas.
+
+Qui rédimit de intéritu vitam tuam: \* qui corónat te in misericórdia et miseratiónibus.
+
+Qui replet in bonis desidérium tuum: \* renovábitur ut áquilæ juvéntus tua:
+
+Fáciens misericórdias Dóminus: \* et judícium ómnibus injúriam patiéntibus.
+
+Notas fecit vias suas Móysi, \* fíliis Israël voluntátes suas.
+
+Miserátor, et miséricors Dóminus: \* longánimis, et multum miséricors.
+
+Non in perpétuum irascétur: \* neque in ætérnum comminábitur.
+
+Non secúndum peccáta nostra fecit nobis: \* neque secúndum iniquitátes nostras retríbuit nobis.
+
+Quóniam secúndum altitúdinem cæli a terra: \* corroborávit misericórdiam suam super timéntes se.
+
+Quantum distat ortus ab occidénte: \* longe fecit a nobis iniquitátes nostras.
+
+Quómodo miserétur pater filiórum, misértus est Dóminus timéntibus se: \* quóniam ipse cognóvit figméntum nostrum.

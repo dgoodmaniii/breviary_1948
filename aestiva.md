@@ -18674,4 +18674,38 @@ DEntur nobis duo boves; et illi éligant sibi bovem unum, et in frustra cædént
 
 DIxit ergo Elías prophétis Baal: Elígite vobis bovem unum et fácite primi, quia vos plures estis, et invocáte nómina deórum vestrórum, ignémque non supponátis. Qui, cum tulíssent bovem quem déderat eis, fecérunt, et invocábant nomen Baal de mane usque ad merídiem dicéntes: Baal, exáudi nos. Et non erat vox, nec qui respondéret. Transiliebántque altáre quod fécerant. Cumque esset jam merídies, illudébat illis Elías dicens: Clamáte voce majóre.
 
-℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Dum tólleret Dóminus \* Elíam per túrbinem in cælum, Eliséus clamábat: Pater mi, currus Israël, et auríga ejus.
+
+### Oratio
+
+PAteant aures misericórdiæ tuæ, Dómine, précibus supplicántium: et, ut peténtibus desideráta concédas; fac eos, quæ tibi sunt plácita, postuláre. Per Dóminum.
+
+---
+
+## Dominica IX post Pentecosten
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber quartus Regum}
+
+##### Lectio i
+
+*Cap. 1, 1-10*
+
+PRævaricátus est autem Moab in Israël, postquam mórtuus est Achab. Cecidítque Ochozías per cancéllos cœnáculi sui, quod habébat in Samaría, et ægrotávit; misítque núntios dicens ad eos: Ite, consúlite Beélzebub deum Accaron, utrum vívere queam de infirmitáte mea hac. Angelus autem Dómini locútus est ad Elíam Thesbíten dicens: Surge et ascénde in occúrsum nuntiórum regis Samaríæ et dices ad eos: Numquid non est Deus in Israël, ut eátis ad consuléndum Beélzebub deum Accaron? Quam ob rem hæc dicit Dóminus: De léctulo, super quem ascendísti, non descéndes, sed morte moriéris.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+ET ábiit Elías. Reversíque sunt núntii ad Ochozíam. Qui dixit eis: Quare revérsi estis? At illi respondérunt ei: Vir occúrrit nobis et dixit ad nos: Ite et revertímini ad regem, qui misit vos, et dicétis ei: Hæc dicit Dóminus: Numquid quia non erat Deus in Israël, mittis ut consulátur Beélzebub deus Accaron? Idcírco de

@@ -21849,3 +21849,53 @@ Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
 #### Psalmus 21
 
 DEUS, Deus meus, réspice in me: quare me dereliquísti? \* longe a salúte mea verba delictórum meórum.
+
+Deus meus, clamábo per diem, \* et non exáudies: et nocte, et non ad insipiéntiam mihi.
+
+Tu autem in sancto hábitas, \* laus Israël.
+
+In te speravérunt patres nostri: \* speravérunt, et liberásti eos.
+
+Ad te clamavérunt, et salvi facti sunt: \* in te speravérunt, et non sunt confúsi.
+
+Ego autem sum vermis, et non homo: \* oppróbrium hóminum, et abjéctio plebis.
+
+Omnes vidéntes me, derisérunt me: \* locúti sunt lábiis, et movérunt caput.
+
+Sperávit in Dómino, éripiat eum: \* salvum fáciat eum, quóniam vult eum.
+
+Quóniam tu es, qui extraxísti me de ventre: \* spes mea ab ubéribus matris meæ. In te projéctus sum ex útero:
+
+De ventre matris meæ Deus meus es tu, \* ne discésseris a me:
+
+Quóniam tribulátio próxima est: \* quóniam non est qui ádjuvet.
+
+Circumdedérunt me vítuli multi: \* tauri pingues obsedérunt me.
+
+Aperuérunt super me os suum, \* sicut leo rápiens et rúgiens.
+
+Sicut aqua effúsus sum: \* et dispérsa sunt ómnia ossa mea.
+
+Factum est cor meum tamquam cera liquéscens \* in médio ventris mei.
+
+Aruit tamquam testa virtus mea, et lingua mea adhǽsit fáucibus meis: \* et in púlverem mortis deduxísti me.
+
+Quóniam circumdedérunt me canes multi: \* concílium malignántium obsédit me.
+
+Fodérunt manus meas et pedes meos: \* dinumeravérunt ómnia ossa mea.
+
+Ipsi vero consideravérunt et inspexérunt me: \* divisérunt sibi vestiménta mea, et super vestem meam misérunt sortem.
+
+Tu autem, Dómine, ne elongáveris auxílium tuum a me: \* ad defensiónem meam cónspice.
+
+Erue a frámea, Deus, ánimam meam: \* et de manu canis únicam meam:
+
+Salva me ex ore leónis: \* et a córnibus unicórnium humilitátem meam.
+
+Narrábo nomen tuum frátribus meis: \* in médio ecclésiæ laudábo te.
+
+Qui timétis Dóminum, laudáte eum: \* univérsum semen Jacob, glorificáte eum.
+
+Tímeat eum omne semen Israël: \* quóniam non sprevit, neque despéxit deprecatiónem páuperis:
+
+Nec avértit fáciem suam a me: \* et cum clamárem ad eum, exaudívit me.

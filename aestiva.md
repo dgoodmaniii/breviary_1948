@@ -10742,3 +10742,74 @@ Mentiétur opus olívæ: \* et arva non áfferent cibum.
 Abscindétur de ovíli pecus: \* et non erit arméntum in præsépibus.
 
 Ego autem in Dómino gaudébo: \* et exsultábo in Deo Jesu meo.
+
+Deus Dóminus fortitúdo mea: \* et ponet pedes meos quasi cervórum.
+
+Et super excélsa mea dedúcet me victor \* in psalmis canéntem.
+
+**Ant.** Cum irátus fúeris, Dómine, misericórdiæ recordáberis.
+
+**Ant.** Lauda. †
+
+### Psalmus 147
+
+LAuda, † Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Lauda Deum tuum, Sion, qui annúntiat judícia sua Israël.
+
+#### In Officio feriali
+
+**Capit.** *Rom. 13, 12-13*
+
+NOx præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+ÆTerna cæli glória,
+Beáta spes mortálium,
+Summi Tonántis Únice,
+Castǽque proles Vírginis:
+
+Da déxteram surgéntibus,
+Exsúrgat et mens sóbria,
+Flagrans et in laudem Dei
+Grates rependat débitas.
+
+Ortus refúlget Lúcifer,
+Præítque solem núntius:
+Cadunt tenébræ nóctium:
+Lux sancta nos illúminet.
+
+Manénsque nostris sénsibus,
+Noctem repéllat sæculi,
+Omníque fine témporis
+Purgáta servet péctora.
+
+Quæsíta jam primum fides
+In corde radíces agat:
+Secúnda spes congáudeat,
+Qua major exstat cáritas.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.

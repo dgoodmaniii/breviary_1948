@@ -23115,3 +23115,37 @@ Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
 Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
 
 Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Ego dormívi, et somnum cepi: et exsurréxi, quóniam Dóminus suscépit me, allelúja, allelúja.
+
+℣. Surréxit Dóminus de sepúlcro, allelúja. ℟. Qui pro nobis pepéndit in ligno, allelúja.
+
+Pater noster, {RUBRIC: secreto.}
+
+**Absolutio** Exáudi, Dómine.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio i
+
+*Cap. 16, 1-7*
+
+IN illo témpore: María Magdaléne, et María Jacóbi, et Salóme emérunt arómata, ut veniéntes úngerent Jesum. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 21 in Evangelia}
+
+AUDISTIS, fratres caríssimi, quod sanctæ mulíeres, quæ Dóminum fúerant secútæ, cum aromátibus ad monuméntum venérunt, et ei, quem vivéntem diléxerant, étiam mórtuo, stúdio humanitátis obsequúntur. Sed res gesta áliquid in sancta Ecclésia signat geréndum. Sic quippe necésse est ut audiámus quæ facta sunt, quátenus cogitémus étiam quæ nobis sint ex eórum imitatióne faciénda. Et nos ergo in eum, qui est mórtuus, credéntes, si odóre virtútum reférti, cum opinióne bonórum óperum Dóminum quǽrimus, ad monuméntum profécto illíus cum aromátibus venímus. Illæ autem mulíeres Angelos vident, quæ cum aromátibus venérunt: quia vidélicet illæ mentes supérnos cives aspíciunt, quæ cum virtútum odóribus ad Dóminum per sancta desidéria proficiscúntur.
+
+℟. Angelus Dómini descéndit de cælo, et accédens revólvit lápidem, et super eum sedit, et dixit muliéribus: \* Nolíte timére: scio enim quia crucifíxum quǽritis: jam surréxit: veníte, et vidéte locum, ubi pósitus erat Dóminus, allelúja. ℣. Et introëúntes in monuméntum, vidérunt júvenem sedéntem in dextris, coopértum stola cándida, et obstupuérunt: qui dixit illis. — Nolíte.
+
+{RUBRIC: Glória Patri et Fílio, et Spirítui Sancto; et repetitur} ℟. Angelus Dómini, {RUBRIC: usque ad} ℣.
+
+**Bened.** Divínum auxílium.

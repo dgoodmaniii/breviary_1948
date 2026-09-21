@@ -20222,4 +20222,30 @@ IN isto Evangélii capítulo, fratres, Dóminus noster Jesus Christus secúndum 
 
 #### Lectio ii
 
-QUANDO ergo látuit ut homo, non poténtiam perdidísse putándus est, sed exémplum infirmitáti præbuísse. Ille enim quando vóluit, deténtus est: quando vóluit, occísus est.
+QUANDO ergo látuit ut homo, non poténtiam perdidísse putándus est, sed exémplum infirmitáti præbuísse. Ille enim quando vóluit, deténtus est: quando vóluit, occísus est. Sed quóniam futúra erant membra ejus, id est, fidéles ejus, qui non habérent illam potestátem, quam habébat ipse Deus noster: quod latébat, quod se tamquam, ne occiderétur, occultábat, hoc indicábat factúra esse membra sua, in quibus útique membris suis ipse erat.
+
+℟. Docébo iníquos vias tuas: et ímpii ad te converténtur: \* Líbera me de sanguínibus, Deus, Deus salútis meæ. ℣. Dómine, lábia mea apéries: et os meum annuntiábit laudem tuam. — Líbera.
+
+#### Lectio iii
+
+NON enim Christus in cápite, et non in córpore: sed Christus totus in cápite, et in córpore. Quod ergo membra ejus, ipse: quod autem ipse, non contínuo membra ejus. Nam si non ipsi essent membra ejus, non díceret Saulo: Quid me perséqueris? Non enim Saulus ipsum, sed membra ejus, id est fidéles ejus, in terra persequebátur. Nóluit tamen dícere sanctos meos, servos meos, postrémo honorabílius, fratres meos: sed me, hoc est membra mea, quibus ego sum caput.
+
+℟. Ne perdas cum ímpiis, Deus, ánimam meam, et cum viris sánguinum vitam meam: \* Rédime me, Dómine. ℣. Eripe me, Dómine, ab hómine malo, a viro iníquo líbera me. — Rédime. Ne.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+**Ad Bened. Ant.** Tempus meum \* nondum advénit, tempus autem vestrum semper est parátum.
+
+#### Oratio
+
+NOSTRA tibi, Dómine, quæsumus, sint accépta jejúnia: quæ nos et expiándo, grátia tua dignos éfficiant, et ad remédia perdúcant ætérna. Per Dóminum.
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Vos ascéndite \* ad diem festum hunc: ego autem non ascéndam, quia tempus meum nondum advénit.
+
+#### Oratio
+
+DA nobis, quæsumus, Dómine, perseverántem in tua voluntáte famulátum: ut in diébus nostris et mérito et número pópulus tibi sérviens augeátur. Per Dóminum.
+
+---

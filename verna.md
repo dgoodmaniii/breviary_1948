@@ -27571,4 +27571,18 @@ HUIC vos renuntiáre proféssi estis: in qua professióne, non homínibus, sed D
 
 *Cap. 14, 15-21*
 
-IN illo témpore: Dixit Jesus discípulis suis: Si dilígitis me, mandáta mea serváte. Et ego ro-
+IN illo témpore: Dixit Jesus discípulis suis: Si dilígitis me, mandáta mea serváte. Et ego rogábo Patrem, et álium Paráclitum dabit vobis. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractatus 74 in Joánnem sub finem, et 75}
+
+QUOD ait, Rogábo Patrem, et álium Paráclitum dabit vobis: osténdit et seípsum esse Paráclitum. Paráclitus enim Latíne dícitur advocátus: et dictum est de Christo: Advocátum habémus ad Patrem, Jesum Christum justum. Sic autem mundum dixit non posse accípere Spíritum Sanctum, sicut étiam dictum est: Prudéntia carnis inimíca est Deo: legi enim Dei non est subjécta nec enim potest: velut si dicámus: Injustítia justítia esse non potest. Mundum quippe ait hoc loco, mundi signíficans dilectóres: quæ dilectio non est a Patre. Et ídeo dilectióni hujus mundi, de qua satágimus ut minuátur et consumátur in nobis, contrária est dilectio Dei, quæ diffúnditur in córdibus nostris per Spíritum Sanctum, qui datus est nobis.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut.
+
+#### Lectio viii
+
+MUNDUS ergo eum accípere non potest, quia non videt eum, neque scit eum. Non enim habet invisíbiles óculos mundána dilectio, per quos vidéri Spíritus Sanctus potest, qui vidéri nisi invisibíliter non potest. Vos autem, inquit, cognoscétis eum: quia apud vos manébit, et in vobis erit. Erit in eis, ut máneat: non manébit ut sit: prius est enim esse alícubi, quam manére. Sed ne putárent quod dictum est, Apud vos manébit; ita dictum, quemádmodum apud hóminem hospes visibíliter manére consuévit, expósuit quid díxerit, Apud vos manébit, cum adjúnxit et dixit, In vobis erit.
+
+℟. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. \* Cum autem vénerit ille, docébit vos omnem veritátem, allelúja. ℣. Non enim loquétur a semetípso: sed quæcúmque áudiet, loquétur: et quæ ventúra sunt, annuntiábit vobis. — Cum. Glória Patri. Cum.

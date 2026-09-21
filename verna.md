@@ -30067,4 +30067,42 @@ EMISSUS e castro per fenéstram, Neápolim redúcitur; unde Romam, póstea Parí
 
 ###### Lectio vi
 
-A Summo Pontífice Urbáno quarto Romam vocátus, ejus jussu ecclesiásticum lucubrávit Offícium in Córporis Christi solemnitáte celebrándum: oblátos vero honóres et Neapolitánum archiepiscopátum, étiam deferénte Cleménte quarto, recusávit. A prædicatióne divíni verbi non desistébat; quod cum fáceret per octávam Paschæ in basílica sancti Petri, mulíerem, quæ ejus fímbriam tetígerat, a fluxu sánguinis liberávit. Missus a beáto Gregório décimo ad concílium Lugdunénse, in monastério Fossæ Novæ in morbum íncidit, ubi ægrótus Cántica canticórum explanávit. Ibídem óbiit quinquagenárius, anno salútis millésimo ducentésimo septuagésimo quarto, Nonis Mártii. Miráculis étiam mórtuus cláruit; quibus probátis, a Joánne vigésimo secúndo in Sanctórum número relátus est, anno millésimo tercentésimo vigésimo tértio, transláto póstea ejus córpore Tolósam, ex mandáto beáti Urbáni quinti. Cum sanctis angélicis spirítibus non minus innocéntia quam ingénio comparátus, Doctóris Angélici no-
+A Summo Pontífice Urbáno quarto Romam vocátus, ejus jussu ecclesiásticum lucubrávit Offícium in Córporis Christi solemnitáte celebrándum: oblátos vero honóres et Neapolitánum archiepiscopátum, étiam deferénte Cleménte quarto, recusávit. A prædicatióne divíni verbi non desistébat; quod cum fáceret per octávam Paschæ in basílica sancti Petri, mulíerem, quæ ejus fímbriam tetígerat, a fluxu sánguinis liberávit. Missus a beáto Gregório décimo ad concílium Lugdunénse, in monastério Fossæ Novæ in morbum íncidit, ubi ægrótus Cántica canticórum explanávit. Ibídem óbiit quinquagenárius, anno salútis millésimo ducentésimo septuagésimo quarto, Nonis Mártii. Miráculis étiam mórtuus cláruit; quibus probátis, a Joánne vigésimo secúndo in Sanctórum número relátus est, anno millésimo tercentésimo vigésimo tértio, transláto póstea ejus córpore Tolósam, ex mandáto beáti Urbáni quinti. Cum sanctis angélicis spirítibus non minus innocéntia quam ingénio comparátus, Doctóris Angélici nomen jure est adéptus, eídem auctoritáte sancti Pii quinti confirmátum. Leo autem décimus tértius, libentíssime excípiens postulatiónes et vota ómnium pene Sacrórum antístitum orbis cathólici, ad tot præcípue philosophicórum systemátum a veritáte aberrántium luem propulsándam, ad increménta scientiárum, et commúnem humáni géneris utilitátem, eum, ex sacrórum Rítuum Congregatiónis consúlto, per apostólicas lítteras cæléstem patrónum scholárum ómnium catholicárum declarávit et instítuit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Vos estis sal terræ, {RUBRIC: de Communi Doct. 1 loco. [107]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Thomæ Confessóris tui mira eruditióne claríficas, et sancta operatióne fecúndas: da nobis, quǽsumus; et quæ dócuit, intelléctu conspícere, et quæ egit, imitatióne complére. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Vesperæ a Capitulo de sequenti, Commemoratio præcedentis et Feriæ.}
+
+---
+
+### Die 8 Martii
+
+#### S. Joannis de Deo
+
+{RUBRIC: Conf.}
+
+{RUBRIC: Duplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEUS, qui beátum Joánnem, tuo amóre succénsum, inter flammas innóxium incédere fecísti, et per eum Ecclésiam tuam nova prole fecundásti: præsta, ipsíus suffragántibus méritis; ut igne caritátis tuæ vítia nostra curéntur, et remédia nobis ætérna provéniant. Per Dóminum.

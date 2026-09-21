@@ -24702,4 +24702,32 @@ POST annos autem plures eleemósynas factúrus in gentem meam, veni, et oblatió
 
 #### Lectio iii
 
-DISTULIT autem illos Felix, certíssime sciens de via hac, dicens: Cum tribúnus Lýsias descénderit, áudiam vos. Jussítque centurióni custodíre eum, et habére réquiem, nec quemquam de suis prohibére ministráre ei. Post áliquot autem dies véniens Felix cum Drusílla uxóre sua, quæ erat Judǽa, vocávit Paulum, et audívit ab eo fidem quæ est in Christum Jesum. Disputánte autem illo de justítia, et castitáte, et de judício futúro, tremefáctus
+DISTULIT autem illos Felix, certíssime sciens de via hac, dicens: Cum tribúnus Lýsias descénderit, áudiam vos. Jussítque centurióni custodíre eum, et habére réquiem, nec quemquam de suis prohibére ministráre ei. Post áliquot autem dies véniens Felix cum Drusílla uxóre sua, quæ erat Judǽa, vocávit Paulum, et audívit ab eo fidem quæ est in Christum Jesum. Disputánte autem illo de justítia, et castitáte, et de judício futúro, tremefáctus Felix respóndit: Quod nunc áttinet, vade: témpore autem opportúno accérsam te: simul et sperans, quod pecúnia ei darétur a Paulo, propter quod et frequénter accérsens eum, loquebátur cum eo. Biénnio autem expléto, accépit successórem Felix Pórtium Festum. Volens autem grátiam præstáre Judǽis Felix, relíquit Paulum vinctum.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+**Ad Bened. Ant.** Tu solus peregrínus es, \* et non audísti de Jesu, quómodo tradidérunt eum in damnatiónem mortis? allelúja.
+
+**Ad Magnif. Ant.** Alias oves hábeo, \* quæ non sunt ex hoc ovíli: et illas opórtet me addúcere, et vocem meam áudient: et fiet unum ovíle, et unus pastor, allelúja.
+
+---
+
+## Feria Sexta
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 25, 1-12*
+
+FESTUS ergo cum venísset in provínciam, post tríduum ascéndit Jerosólymam a Cæsaréa. Adierúntque eum príncipes sacerdótum, et primi Judæórum advérsus Paulum: et rogábant eum, postulántes grátiam advérsus eum, ut jubéret perdúci eum in Jerúsalem, insídias tendéntes ut interfícerent eum in via. Festus autem respóndit servári Paulum in Cæsaréa: se autem matúrius profectúrum. Qui ergo in vobis (ait) poténtes sunt, descendéntes simul, si quod est in viro crimen, accúsent eum.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+#### Lectio ii
+
+DEMORATUS autem inter eos dies non ámplius quam octo, aut decem, descéndit Cæsaréam, et áltera die sedit pro tribunáli, et jussit Paulum addúci. Qui cum perdúctus esset, circumstetérunt

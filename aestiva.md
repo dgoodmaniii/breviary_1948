@@ -14231,3 +14231,57 @@ DEus, in te sperántium fortitúdo, adésto propítius invocatiónibus nostris: 
 **Capit.** O altitúdo, ut supra.
 
 ℟. br. Benedicámus Patrem et Fílium \* Cum Sancto Spíritu. Benedicámus. ℣. Laudémus et superexaltémus eum in sæcula. Cum. Glória Patri. Benedicámus.
+
+℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis et gloriósus in sæcula.
+
+### Ad Sextam
+
+**Ant.** Glória laudis \* résonet in ore ómnium, Patri, genitæque Proli, Spirítui Sancto páriter resúltet laude perénni.
+
+**Capitulum** *2 Cor. 13, 13*
+
+GRátia Dómini nostri Jesu Christi et cáritas Dei et communicátio Sancti Spíritus sit cum ómnibus vobis. Amen.
+
+℟. br. Benedíctus es, Dómine, \* In firmaménto cæli. Benedíctus. ℣. Et laudábilis et gloriósus in sæcula. In. Glória Patri. Benedíctus.
+
+℣. Verbo Dómini cæli firmáti sunt. ℟. Et Spíritu oris ejus omnis virtus eórum.
+
+### Ad Nonam
+
+**Ant.** Ex quo ómnia, \* per quem ómnia, in quo ómnia: ipsi glória in sæcula.
+
+**Capitulum** *1 Joann. 5, 7*
+
+TRes sunt, qui testimónium dant in cælo: Pater, Verbum et Spíritus Sanctus; et hi tres unum sunt.
+
+℟. br. Verbo Dómini \* Cæli firmáti sunt. Verbo. ℣. Et Spíritu oris ejus omnis virtus eórum. Cæli. Glória Patri. Verbo.
+
+### In II Vesperis
+
+{RUBRIC: Antíphonæ et Capítulum de Láudibus 286; Psalmi de Domínica. 57}
+
+#### Hymnus
+
+JAM sol recédit ígneus:
+Tu, lux perénnis, Únitas,
+Nostris, beáta Trínitas,
+Infúnde amórem córdibus.
+
+Te mane laudum cármine,
+Te deprecámur véspere;
+Dignéris ut te súpplices
+Laudémus inter cælites.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis et gloriósus in sæcula.
+
+**Ad Magnif. Ant.** Te Deum \* Patrem ingénitum, te Fílium unigénitum, te Spíritum Sanctum Paráclitum, sanctam et indivíduam Trinitátem, toto corde et ore confitémur, laudámus, atque benedícimus: tibi glória in sæcula.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui dedísti fámulis tuis in confessióne

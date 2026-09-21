@@ -33432,3 +33432,25 @@ DEUS, qui beátum Hermenegíldum Mártyrem tuum cælésti regno terrénum postp�
 {RUBRIC: Hymnus Regáli sólio, ut supra.}
 
 {RUBRIC: In I Nocturno Tempore Quadragesimæ, et si Tempore Paschali dicéndæ non sint de Scriptúra occurrénti, Lectiones Fratres: Debitóres, de Communi plurimórum Mártyrum extra Tempus Paschale, cum Responsóriis de Communi uníus Mártyris pro témporis qualitáte ibi notátis. [57]}
+
+##### In II Nocturno
+
+Ex libro Dialogórum sancti Gregórii Papæ
+
+{RUBRIC: Liber 3, cap. 31}
+
+###### Lectio iv
+
+ERMENEGILDUS rex, Leovigíldi regis Visigothórum fílius, ab Ariána hǽresi ad fidem cathólicam viro reverendíssimo Leándro Hispalénsi epíscopo, dudum mihi in amicítiis familiáriter juncto, prædicánte, convérsus est. Quem pater Ariánus, ut ad eámdem hǽresim redíret, et præmiis suadére et minis terrére conátus est. Cumque ille constantíssime respondéret, numquam se veram fidem posse relínquere, quam semel agnovísset; irátus pater eum privávit regno, rebúsque exspoliávit ómnibus. Cumque nec sic virtútem mentis illíus emollíre valuísset, in arcta illum custódia conclúdens, collum manúsque illíus ferro ligávit. Cœpit ítaque Hermenegíldus rex júvenis terrénum regnum despícere, et forti desidério cæléste quærens, in cilíciis vinculátus jacens, omnipoténti Deo ad confortándum se preces effúndere; tantóque sublímius glóriam transeúntis mundi despícere, quanto et religátus agnóverat nihil fuísse, quod potúerit auférri.
+
+{RUBRIC: In Quadragesima}
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non dereliquit eum. — Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+SUPERVENIENTE autem Paschális festivitátis die, intempéstæ noctis siléntio, ad eum pérfidus pater Ariánum epíscopum misit, ut ex ejus manu sacrílegæ consecratiónis communiónem percíperet, atque per hoc ad patris grátiam redíre mererétur. Sed vir Deo déditus, Ariáno epíscopo veniénti exprobrávit, ut débuit, ejúsque a se perfídiam dignis increpatiónibus répulit: quia, etsi extérius jacébat ligátus, apud se tamen in magno mentis cúlmine

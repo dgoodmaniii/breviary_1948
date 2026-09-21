@@ -47651,3 +47651,49 @@ DEUS, qui pro nobis Fílium tuum Crucis patíbulum subíre voluísti, ut inimíc
 AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
 
 ℟. br. Spécie tua et pulchritúdine tua, \* Allelúja, allelúja. Spécie. ℣. Inténde, próspere procéde, et regna. Allelúja, allelúja. Glória Patri. Spécie.
+
+℣. Adjuvábit eam Deus vultu suo, allelúja. ℟. Deus in médio ejus, non commovébitur, allelúja.
+
+**Oratio** Concéde. [214]
+
+##### Ad Sextam
+
+###### Capitulum
+
+*Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Adjuvábit eam Deus vultu suo, \* Allelúja, allelúja. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Allelúja, allelúja. Glória Patri. Adjuvábit.
+
+℣. Elégit eam Deus, et præelégit eam, allelúja. ℟. In tabernáculo suo habitáre facit eam, allelúja.
+
+##### Ad Nonam
+
+###### Capitulum
+
+*Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℟. br. Elégit eam Deus, et præelégit eam, \* Allelúja, allelúja. Elégit. ℣. In tabernáculo suo habitáre facit eam. Allelúja, allelúja. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis, allelúja. ℟. Proptérea benedíxit te Deus in ætérnum, allelúja.
+
+{RUBRIC: Post Nonam terminatur Officium sanctæ Mariæ in Sabbato.}
+
+---
+
+{RUBRIC: Lectiones sequentes dicuntur singulis mensibus in Officio sanctæ Mariæ in Sabbato, ordine subscripto.}
+
+##### Mense Aprilis
+
+{RUBRIC: De Expositione sancti Hieronymi Presbyteri in Ezechielem Prophetam}
+
+{RUBRIC: Liber 13, in cap. 44}
+
+###### Lectio iii
+
+PORTA hæc clausa erit, et non aperiétur. Pulchre quidam portam clausam, per quam solus Dóminus, Deus Israël, ingréditur, et dux cui porta clausa est, Maríam Vírginem intélligunt, quæ et ante partum et post partum virgo permánsit. Etenim témpore, quo Angelus loquebátur: Spíritus Sanctus véniet super te, et virtus Altíssimi obumbrábit te: quod autem nascétur ex te Sanctum, vocábitur Fílius Dei; et quando natus est, virgo permánsit ætérna; ad confundéndos eos, qui arbitrántur eam post nativitátem Salvatóris habuísse de Joseph fílios, ex occasióne fratrum ejus, qui vocántur in Evangélio.
+
+{RUBRIC: Te Deum laudámus.}

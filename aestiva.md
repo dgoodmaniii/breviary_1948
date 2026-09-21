@@ -15140,4 +15140,26 @@ HOC ergo nos dócuit et admónuit mýsticis verbis, ut simus in ejus córpore su
 
 ##### Lectio ix
 
-SI discípuli durum habuérunt istum sermónem, quid inimíci? Et tamen sic oportébat, ut dicerétur, quod non ab ómnibus intelligerétur. Secrétum Dei inténtos debet fácere, non advérsos: isti autem cito defecérunt, tália loquénte Dómino Jesu Christo. Non credidérunt
+SI discípuli durum habuérunt istum sermónem, quid inimíci? Et tamen sic oportébat, ut dicerétur, quod non ab ómnibus intelligerétur. Secrétum Dei inténtos debet fácere, non advérsos: isti autem cito defecérunt, tália loquénte Dómino Jesu Christo. Non credidérunt áliquid magnum dicéntem, et verbis illis áliquam grátiam cooperiéntem: sed prout voluérunt, ita intellexérunt, et more hóminum; quia póterat Jesus, aut hoc disponébat Jesus, carnem, qua indútum erat Verbum, véluti concísam, distribúere credéntibus in se. Durus est, ínquiunt, hic sermo: quis potest eum audíre?
+
+**Te Deum laudámus.** [7]
+
+## Sabbato infra Octavam Ssmi Corporis Christi
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 3, 1-12*
+
+PUer autem Sámuel ministrábat Dómino coram Heli, et sermo Dómini erat pretiósus in diébus illis: non erat vísio manifésta. Factum est ergo in die quadam, Heli jacébat in loco suo, et óculi ejus caligáverant, nec póterat vidére. Lucérna Dei antequam exstinguerétur, Sámuel dormiébat in témplo Dómini, ubi erat arca Dei. Et vocávit Dóminus Sámuel, qui respóndens ait: Ecce ego. Et cucúrrit ad Heli et dixit: Ecce ego; vocásti enim me. Qui dixit: Non vocávi; revértere et dormi. Et ábiit et dormívit. Et adjécit Dóminus rursum vocáre Samuélem. Consurgénsque Sámuel ábiit ad Heli, et dixit: Ecce ego, quia vocásti me. Qui respóndit: Non vocávi te, fili mi; revértere et dormi. Porro Sámuel necdum sciébat Dóminum, neque revelátus fúerat ei sermo Dómini.
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et.
+
+##### Lectio ii
+
+ET adjécit Dóminus et vocávit adhuc Samuélem tértio, qui consúrgens ábiit ad Heli et ait: Ecce ego, quia vocásti me. Intelléxit ergo Heli quia Dóminus vocáret púerum et ait ad Samuélem: Vade et dormi et, si deínceps vocáverit te, dices: Lóquere, Dómine, quia audit servus tuus. Ábiit ergo Sámuel et dormívit in loco suo. Et venit Dóminus et stetit et vocávit, sicut vocáverat secúndo: Sámuel, Sámuel. Et ait Sámuel: Lóquere, Dómine, quia audit servus tuus. Et dixit Dóminus ad Samué-

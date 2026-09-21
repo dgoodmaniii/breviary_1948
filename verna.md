@@ -29619,3 +29619,56 @@ DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, lig�
 DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. (Per Dóminum.)
 
 {RUBRIC: Deinde Commem. Feriæ.}
+
+##### In II Vesperis
+
+###### Hymnus
+
+QUODCUMQUE in orbe néxibus revínxeris,
+Erit revínctum, Petre, in arce síderum:
+Et quod resólvit hic potéstas tradíta,
+Erit solútum cæli in alto vértice:
+In fine mundi judicábis sǽculum.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,
+Honor tibi decúsque: sancta júgiter
+Laudétur omne Trínitas per sǽculum.
+Amen.
+
+℣. Elégit te Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+**Ad Magnif. Ant.** Dum esset summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+{RUBRIC: Et fit Commem. S. Pauli Ap. ut supra ad Laudes, sequentis et Feriæ.}
+
+---
+
+### Die 23 Februarii
+
+#### S. Petri Damiani
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [84]}
+
+{RUBRIC: m. t. v., nisi tamen I Vesperas habeat, saltem a Capitulo.}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Petre, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+CONCEDE nos, quǽsumus, omnípotens Deus: beáti Petri Confessóris tui atque Pontíficis mónita et exémpla sectári; ut per terréstrium rerum contémptum ætérna gáudia consequámur. (Per Dóminum.)
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones Sapiéntiam, de Communi Doctorum. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PETRUS, Ravénnæ honéstis paréntibus natus, adhuc lactens a matre, numerósæ prolis pertǽsa, abjícitur; sed domésticæ mulíeris ópera semivívus excéptus ac recreátus, genitríci ad humanitátis sensum revocátæ rédditur. Utróque orbátus parénte, tamquam

@@ -5050,3 +5050,55 @@ Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio s
 Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
 
 Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte tua.
+
+**Ant.** Cantáte Dómino, et benedícite nómini ejus.
+
+**Ant.** Salutáre vultus mei \* Deus meus.
+
+### Psalmus 42
+
+JUDICA me, Deus, et discérne causam meam de gente non sancta, \* ab hómine iníquo, et dolóso érue me.
+
+Quia tu es, Deus, fortitúdo mea: \* quare me repulísti? et quare tristis incédo, dum afflígit me inimícus?
+
+Emítte lucem tuam et veritátem tuam: \* ipsa me deduxérunt, et adduxérunt in montem sanctum tuum, et in tabernácula tua.
+
+Et introíbo ad altáre Dei: \* ad Deum, qui lætíficat juventútem meam.
+
+Confitébor tibi in cíthara, Deus, Deus meus: \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Ant.** Salutáre vultus mei Deus meus.
+
+**Ant.** Illúmina, Dómine, \* vultum tuum super nos.
+
+### Psalmus 66
+
+DEUS misereátur nostri, et benedícat nobis: \* illúminet vultum suum super nos, et misereátur nostri.
+
+Ut cognoscámus in terra viam tuam, \* in ómnibus géntibus salutáre tuum.
+
+Confiteántur tibi pópuli, Deus: \* confiteántur tibi pópuli omnes.
+
+Læténtur et exsúltent gentes: \* quóniam júdicas pópulos in æquitáte, et gentes in terra dírigis.
+
+Confiteántur tibi pópuli, Deus, confiteántur tibi pópuli omnes: \* terra dedit fructum suum.
+
+Benedícat nos Deus, Deus noster, benedícat nos Deus: \* et métuant eum omnes fines terræ.
+
+**Ant.** Illúmina, Dómine, vultum tuum super nos.
+
+**Ant.** Exaltáte \* Regem sæculórum in opéribus vestris.
+
+#### Canticum Tobiæ
+
+*Tob. 13, 1-10*
+
+MAGNUS es, Dómine, in ætérnum, \* et in ómnia sæcula regnum tuum:

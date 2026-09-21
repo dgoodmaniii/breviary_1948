@@ -1485,3 +1485,53 @@ Laudáte nomen ejus: quóniam suávis est Dóminus, in ætérnum misericórdia e
 **Ant.** Jubiláte Deo, omnis terra, allelúja.
 
 **Ant.** Benedícam te.
+
+###### Psalmus 62 [3]
+
+DEUS, Deus meus, \* ad te de luce vígilo.
+
+Sitívit in te ánima mea, \* quam multipliciter tibi caro mea.
+
+In terra desérta, et ínvia, et inaquósa: \* sic in sancto appárui tibi, ut vidérem virtútem tuam, et glóriam tuam.
+
+Quóniam mélior est misericórdia tua super vitas: \* lábia mea laudábunt te.
+
+Sic benedícam te in vita mea: \* et in nómine tuo levábo manus meas.
+
+Sicut ádipe et pinguédine repleátur ánima mea: \* et lábiis exsultatiónis laudábit os meum.
+
+Si memor fui tui super stratum meum, in matutínis meditábor in te: \* quia fuísti adjútor meus.
+
+Et in velaménto alárum tuárum exsultábo, adhǽsit ánima mea post te: \* me suscépit déxtera tua.
+
+Ipsi vero in vanum quæsiérunt ánimam meam, introíbunt in inferióra terræ: \* tradéntur in manus gládii, partes vúlpium erunt.
+
+Rex vero lætábitur in Deo, laudabúntur omnes qui jurant in eo: \* quia obstrúctum est os loquéntium iníqua.
+
+**Ant.** Benedícam te in vita mea, Dómine: et in nómine tuo levábo manus meas, allelúja.
+
+**Ant.** Tres púeri.
+
+###### Canticum trium Puerorum [4]
+
+*Dan. 57-88 et 56*
+
+BENEDICITE, ómnia ópera Dómini, Dómino: \* laudáte et superexaltáte eum in sæcula.
+
+Benedícite, Angeli Dómini, Dómino: \* benedícite, cæli, Dómino.
+
+Benedícite, aquæ omnes, quæ super cælos sunt, Dómino: \* benedícite, omnes virtútes Dómini, Dómino.
+
+Benedícite, sol et luna, Dómino: \* benedícite, stellæ cæli, Dómino.
+
+Benedícite, omnis imber et ros, Dómino: \* benedícite, omnes spíritus Dei, Dómino.
+
+Benedícite, ignis et æstus, Dómino: \* benedícite, frigus et æstus, Dómino.
+
+Benedícite, rores et pruína, Dómino: \* benedícite, gelu et frigus, Dómino.
+
+Benedícite, glácies et nives, Dómino: \* benedícite, noctes et dies, Dómino.
+
+Benedícite, lux et ténebræ, Dómino: \* benedícite, fúlgura et nubes, Dómino.
+
+Benedícat terra Dóminum: \* laudet et superexáltet eum in sæcula.

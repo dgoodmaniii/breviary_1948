@@ -5661,4 +5661,62 @@ FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incén
 
 ##### Pro Conf. non Pont.
 
-JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
+
+##### Pro Virgine Martyre
+
+DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+##### Pro Virgine non Martyre
+
+O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam apud Deum nota est, et apud hómines.
+
+##### Pro Martyre tantum
+
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+##### Pro nec Virg. nec Mart.
+
+MULTAE fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo: múlier timens Dóminum, ipsa laudábitur.
+
+##### Pro Dedicatione Ecclesiæ
+
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+##### In Officiis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dícitur tantum} Pater noster {RUBRIC: secréto, nisi sequátur ália Hora.}
+
+---
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.

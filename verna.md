@@ -39219,3 +39219,57 @@ JAM vero, ut intélligant novum hoc esse belli genus et insólitum præliándi m
 MAJUS certe atque admirabílius est mentem adversariórum commutáre, et ánimum in divérsum transférre, quam illos occídere; præsértim cum duódecim tantum essent, et lupis plenus esset orbis univérsus. Erubescámus ígitur, qui, longe divérsa faciéntes, tamquam lupi in adversários rúimus. Nam quámdiu oves fuérimus, víncimus; étiam si mille circúmstent lupi, superámus, et victóres sumus. Quod si lupi fuérimus, víncimur; tunc enim a nobis pastóris auxílium recédit, qui non lupos, sed oves pascit.
 
 {RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui nos beáti Bárnabæ Apóstoli tui méritis et intercessióne lætíficas: concéde propítius; ut, qui tua per eum benefícia póscimus, dono tuæ grátiæ consequámur. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Pretiósa in conspéctu.
+
+**Ad Magnif. Ant.** Sancti et justi, \* in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+{RUBRIC: Et fit Commemoratio sequentis ac Ss. Basilidis, Cyrini, Naboris et Nazarii Mm.}
+
+---
+
+### Die 12 Junii
+
+#### S. Joannis a S. Facundo
+
+{RUBRIC: Confessoris}
+
+{RUBRIC: Duplex, sed ad modum Simplicis recolendum}
+
+##### In I Vesperis
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram, allelúja.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEUS, auctor pacis et amátor caritátis, qui beátum Joánnem Confessórem tuum mirífica dissidéntes componéndi grátia decorásti: ejus méritis et intercessióne concéde; ut in tua caritáte firmáti, nullis a te tentatiónibus separémur. (Per Dóminum.)
+
+{RUBRIC: Pro Commem. Ss. Basilidis, Cyrini, Naboris et Nazarii Martyrum:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+SANCTORUM Mártyrum tuórum Basílidis, Cyríni, Náboris atque Nazárii, quǽsumus, Dómine, natalítia nobis votíva respléndeant: et, quod illis cóntulit excelléntia sempitérna, frúctibus nostræ devotiónis accréscat. Per Dóminum.
+
+##### Ad Laudes
+
+{RUBRIC: Pro Commemorat. S. Joannis Conf.:}
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te

@@ -19042,3 +19042,51 @@ QUÆSUMUS, omnípotens Deus, vota humílium réspice: atque ad defensiónem nost
 ### Ad Primam
 
 **Ant.** Et cum ejecísset Jesus \* dæmónium, locútus est mutus, et admirátæ sunt turbæ.
+
+### Ad Tertiam
+
+**Ant.** Si in dígito Dei \* ejício dæmónia, profécto pervénit in vos regnum Dei.
+
+**Capitulum** Fratres, ut supra. 384
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse. ℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+### Ad Sextam
+
+**Ant.** Qui non cólligit mecum, \* dispérgit: et qui non est mecum, contra me est.
+
+**Capitulum** *Ephes. 5, 5*
+
+HOC enim scitóte intelligéntes, quod omnis fornicátor, aut immúndus, aut avárus, quod est idolórum sérvitus, non habet hereditátem in regno Christi et Dei.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis. ℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+### Ad Nonam
+
+**Ant.** Cum immúndus spíritus \* exíerit ab hómine, ámbulat per loca inaquósa, quærens réquiem et non ínvenit.
+
+**Capitulum** *Ephes. 5, 8-9*
+
+FRATRES: Erátis enim aliquándo ténebræ, nunc autem lux in Dómino: ut fílii lucis ambuláte: fructus enim lucis est in omni bonitáte, et justítia, et veritáte.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória Patri. Scuto. ℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Ps. de Dominica, 72; Capit., Hymnus et ℣. ut in Vesperis Sabbati. 377}
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Extóllens vocem \* quædam múlier de turba, dixit: Beátus venter qui te portávit, et úbera quæ suxísti. At Jesus ait illi: Quinímmo beáti, qui áudiunt verbum Dei, et custódiunt illud.
+
+---
+
+## Feria Secunda
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 4, 23-30*
+
+IN illo témpore: Dixit Jesus pharisǽis: Utique dicétis mihi hanc similitúdinem: Médice, cura

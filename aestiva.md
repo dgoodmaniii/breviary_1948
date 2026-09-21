@@ -17852,4 +17852,14 @@ VEniéntes ígitur fílii Remmon Berothítæ, Rechab et Báana, ingréssi sunt, 
 
 *Cap. 5, 1-7*
 
-REspóndens autem David Rechab et Báana fratri ejus fíliis Remmon Berothítæ dixit ad eos: Vivit Dóminus, qui éruit ánimam meam de omni angústia, quóniam eum, qui annuntiáverat mihi et
+REspóndens autem David Rechab et Báana fratri ejus fíliis Remmon Berothítæ dixit ad eos: Vivit Dóminus, qui éruit ánimam meam de omni angústia, quóniam eum, qui annuntiáverat mihi et dixerat: Mórtuus est Saul; qui putábat se próspera nuntiáre, ténui et occídi eum in Síceleg, cui oportébat mercédem dare pro núntio: quanto magis nunc, cum hómines ímpii interfecérunt virum innóxium in domo sua super lectum suum, non quæram sánguinem ejus de manu vestra et áuferam vos de terra? Præcépit ítaque David púeris suis, et interfecérunt eos præcidentésque manus et pedes eórum suspendérunt eos super piscínam in Hebron; caput autem Isbóseth tulérunt et sepeliérunt in sepúlcro Abner in Hebron.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+ET venérunt univérsæ tribus Israël ad David in Hebron dicéntes: Ecce nos os tuum et caro tua sumus. Sed et heri et nudiustértius, cum esset Saul rex super nos, tu eras edúcens et redúcens Israël; dixit autem Dóminus ad te: Tu pasces pópulum meum Israël et tu eris dux super Israël. Venérunt quoque et senióres Israël ad regem in Hebron, et percússit cum eis rex David fœdus in Hebron coram Dómino, unxerúntque David in regem super Israël. Fílius trigínta annórum erat David, cum regnáre cœpísset, et quadragínta annis regnávit. In Hebron regnávit super Judam septem annis et sex ménsibus, in Jerúsalem autem regnávit trigínta tribus annis super omnem Israël et Judam. Et ábiit rex et omnes viri, qui erant cum eo, in Jerúsalem ad Jebusǽum habitatórem terræ, dictúmque est David ab eis: Non ingrediéris huc nisi abstúleris cæcos et claudos dicéntes: Non ingrediétur David huc. Cepit autem David arcem Sion, hæc est cívitas David.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.

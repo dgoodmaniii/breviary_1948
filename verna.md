@@ -38772,4 +38772,34 @@ DEUS, qui nos ánnua beatórum Mártyrum tuórum Marcellíni, Petri atque Erásm
 
 ###### Lectio iii
 
-PETRUS exorcísta, Diocletiáno imperatóre, Romæ a Seréno júdice propter christiánæ fídei confessiónem missus in cárcerem, Paulínam Artémii, qui cárceri præerat, fíliam a dæmone agitátam liberávit. Quo facto et paréntes puéllæ cum tota família, et vicínos qui ad rei novitátem concúrrerant, Jesu Christo conciliátos ad Marcellínum presbýterum addúxit, a quo omnes baptizáti sunt. Quod ubi rescívit Serénus, Petrum et Marcellínum ad se vocátos aspérius objúrgat, et ad verbórum acerbitátem minas ac terróres adjúngit, nisi Christo renúntient. Cui cum Marcellínus christiána libertáte respondéret, pugnis contúsum, et a Petro sejúnctum, nudum inclúdit in cárcerem stratum vitri fragméntis, sine cibo ac sine lúmine. Petrum item constríngi ímperat arctíssimis vínculis. Sed cum utríque ex torméntis fides et ánimus crésceret, constánti confessióne, et abscísso cápite, illústre testimónium Jesu Christo dedérunt. Erásmus epíscopus, imperatóribus Diocletiáno et Maximiáno, in Campánia plumbátis et
+PETRUS exorcísta, Diocletiáno imperatóre, Romæ a Seréno júdice propter christiánæ fídei confessiónem missus in cárcerem, Paulínam Artémii, qui cárceri præerat, fíliam a dæmone agitátam liberávit. Quo facto et paréntes puéllæ cum tota família, et vicínos qui ad rei novitátem concúrrerant, Jesu Christo conciliátos ad Marcellínum presbýterum addúxit, a quo omnes baptizáti sunt. Quod ubi rescívit Serénus, Petrum et Marcellínum ad se vocátos aspérius objúrgat, et ad verbórum acerbitátem minas ac terróres adjúngit, nisi Christo renúntient. Cui cum Marcellínus christiána libertáte respondéret, pugnis contúsum, et a Petro sejúnctum, nudum inclúdit in cárcerem stratum vitri fragméntis, sine cibo ac sine lúmine. Petrum item constríngi ímperat arctíssimis vínculis. Sed cum utríque ex torméntis fides et ánimus crésceret, constánti confessióne, et abscísso cápite, illústre testimónium Jesu Christo dedérunt. Erásmus epíscopus, imperatóribus Diocletiáno et Maximiáno, in Campánia plumbátis et fústibus cæsus, resína quoque, súlphure, plumbo liquefácto, et fervénti pice, cera, oleóque perfúsus, inde tamen ínteger et inviolátus evásit. Quo miráculo multi se ad Christi fidem convertérunt. Verum is, íterum detrúsus in cárcerem, constríctus férreis gravissimísque vínculis, inde ab Angelo mirabíliter eréptus est. Deínde Fórmiis a Maximiáno váriis afféctus supplíciis, tunicáque ærea candénti indútus, illa étiam torménta divína virtúte superávit. Dénique, plúrimis et in fide confirmátis, et ad fidem convérsis, insígnem martýrii palmam adéptus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+**Ad Laudes Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+---
+
+### Die 4 Junii
+
+#### S. Francisci Caracciolo
+
+{RUBRIC: Confessoris}
+
+{RUBRIC: Duplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Francíscum, novi órdinis institutórem, orándi stúdio et pœniténtiæ amóre decorásti: da fámulis tuis in ejus imitatióne ita profícere; ut semper orántes et corpus in servitútem redigéntes, ad cæléstem glóriam perveníre mereántur. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+FRANCISCUS, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido sanctæ Maríæ de Villa in Aprútio ortus, a primis annis exímio enítuit pietátis cultu. Adoléscens gráviter ægrótans státuit sese prorsus Dei próximíque mancipáre servítio. Neápolim proféctus, sacerdótio initiátus sacróque adscríptus sodalítio, contemplatióni lucrandísque animábus se totum devóvit, ac extrémo supplício damnátis hortatórem se præbuit assíduum. Cóntigit autem, ut epistólium álteri destinátum ei per errórem redderétur, quo a piíssimis viris Joánne Augustíno Adórno et Fabrício Ca-

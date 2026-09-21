@@ -23712,4 +23712,42 @@ MARIA Magdaléne, quæ fúerat in civitáte peccátrix, amándo veritátem, lavi
 
 #### Lectio ii
 
-QUA in re pensándum est, hujus mulíeris mentem quanta vis amóris accénderat, quæ a monuménto Dómini, étiam discípulis recedéntibus, non recedébat. Exquirébat quem non invénerat: flebat inquiréndo, et amóris sui igne succénsa, ejus, quem ablátum crédidit, ardébat desidério. Unde cóntigit, ut eum sola tunc
+QUA in re pensándum est, hujus mulíeris mentem quanta vis amóris accénderat, quæ a monuménto Dómini, étiam discípulis recedéntibus, non recedébat. Exquirébat quem non invénerat: flebat inquiréndo, et amóris sui igne succénsa, ejus, quem ablátum crédidit, ardébat desidério. Unde cóntigit, ut eum sola tunc vidéret, quæ remánserat ut quǽreret: quia nimírum virtus boni óperis, perseverántia est: et voce Veritátis dícitur: Qui autem perseveráverit usque in finem, hic salvus erit.
+
+℟. Congratulámini mihi, omnes qui dilígitis Dóminum, quia quem quærébam, appáruit mihi: \* Et dum flerem ad monuméntum, vidi Dóminum, allelúja, allelúja. ℣. Recedéntibus discípulis, non recedébam, et amóris ejus igne succénsa, ardébam desidério. — Et. Glória Patri. Et.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+MARIA ergo cum fleret, inclinávit se, et prospéxit in monuméntum. Certe jam monuméntum vácuum víderat, jam sublátum Dóminum nuntiáverat: quid est, quod se íterum inclínat, íterum vidére desíderat? Sed amánti semel aspexísse non súfficit: quia vis amóris inténtionem multíplicat inquisitiónis. Quæsívit ergo prius, et mínime invénit: perseverávit, ut quǽreret, unde et cóntigit ut invéniret: actúmque est, ut desidéria diláta créscerent, et crescéntia cáperent quod inveníssent.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** María stabat \* ad monuméntum plorans, et vidit duos Angelos in albis, sedéntes, et sudárium quod fúerat super caput Jesu, allelúja.
+
+#### Oratio
+
+DEUS, qui diversitátem géntium in confessióne tui nóminis adunásti: da, ut renátis fonte baptísmatis una sit fides méntium, et píetas actiónum. Per Dóminum.
+
+**Ad Magnif. Ant.** Tulérunt Dóminum meum, \* et néscio ubi posuérunt eum: si tu sustulísti eum, dícito mihi, allelúja: et ego eum tollam, allelúja.
+
+---
+
+## Feria Sexta infra Octavam Paschæ
+
+{RUBRIC: Semiduplex 500}
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+**Absolutio** Ipsíus píetas.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 28, 16-20*
+
+IN illo témpore: Úndecim discípuli abiérunt in Galilǽam in montem, ubi constitúerat illis Jesus. Et réliqua.

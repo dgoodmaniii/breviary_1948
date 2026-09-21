@@ -22186,4 +22186,22 @@ NOSTIS qui convéntus erat malignántium Judæórum, et quæ multitúdo erat ope
 
 #### Lectio vi
 
-EXACUERUNT tamquam gládium linguas suas. Non dicant Judǽi: Non occídimus Christum. Etenim proptérea eum dedérunt júdici Piláto, ut quasi ipsi a morte ejus videréntur immúnes. Nam cum
+EXACUERUNT tamquam gládium linguas suas. Non dicant Judǽi: Non occídimus Christum. Etenim proptérea eum dedérunt júdici Piláto, ut quasi ipsi a morte ejus videréntur immúnes. Nam cum dixísset eis Pilátus: Vos eum occídite, respondérunt: Nobis non licet occídere quemquam. Iniquitátem facínoris sui in júdicem hóminem refúndere volébant: sed numquid Deum júdicem fallébant? Quod fecit Pilátus, in eo ipso quod fecit, aliquántum párticeps fuit: sed in comparatióne illórum multo ipse innocéntior. Institit enim quantum pótuit, ut illum ex eórum mánibus liberáret: nam proptérea flagellátum prodúxit ad eos. Non persequéndo Dóminum flagellávit, sed eórum furóri satisfácere volens: ut vel sic jam mitéscerent, et desínerent velle occídere, cum flagellátum vidérent. Fecit et hoc. At ubi perseverávérunt, nostis illum lavísse manus, et dixísse, quod ipse non fecísset, mundum se esse a morte illíus. Fecit tamen. Sed si reus, quia fecit vel invítus: illi innocéntes, qui coegérunt ut fáceret? Nullo modo. Sed ille dixit in eum senténtiam, et jussit eum crucifígi, et quasi ipse occídit: et vos, o Judǽi, occidístis. Unde occidístis? Gládio línguæ: acuístis enim linguas vestras. Et quando percussístis, nisi quando clamástis: Crucifíge, crucifíge?
+
+℟. Animam meam diléctam trádidi in manus iniquórum, et facta est mihi heréditas mea sicut leo in silva: dedit contra me voces adversárius, dicens: Congregámini, et properáte ad devorándum illum: posuérunt me in desérto solitúdinis, et luxit super me omnis terra: \* Quia non est invéntus qui me agnósceret, et fáceret bene. ℣. Insurrexérunt in me viri absque misericórdia, et non pepercérunt ánimæ meæ. — Quia. Animam.
+
+#### In III Nocturno
+
+**Ant.** Ab insurgéntibus in me \* líbera me, Dómine, quia occupavérunt ánimam meam.
+
+#### Psalmus 58
+
+ERIPE me de inimícis meis, Deus meus: \* et ab insurgéntibus in me líbera me.
+
+Eripe me de operántibus iniquitátem: \* et de viris sánguinum salva me.
+
+Quia ecce cepérunt ánimam meam: \* irruérunt in me fortes.
+
+Neque iníquitas mea, neque peccátum meum, Dómine: \* sine iniquitáte cucúrri, et diréxi.
+
+Exsúrge in occúrsum meum, et vide: \* et tu, Dómine, Deus virtútum, Deus Israël,

@@ -14698,4 +14698,30 @@ Providébam Dóminum in conspéctu meo semper: \* quóniam a dextris est mihi, n
 
 Propter hoc lætátum est cor meum, et exsultávit lingua mea: \* ínsuper et caro mea requiéscet in spe.
 
-Quóniam non derelínques ánimam meam in inférno: \*
+Quóniam non derelínques ánimam meam in inférno: \* nec dabis sanctum tuum vidére corruptiónem.
+
+Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo: \* delectatiónes in déxtera tua usque in finem.
+
+**Ant.** Communióne cálicis, quo Deus ipse súmitur, non vitulórum sánguine, congregávit nos Dóminus.
+
+℣. Panem cæli dedit eis, allelúja. ℟. Panem Angelórum manducávit homo, allelúja.
+
+{RUBRIC: De Epístola prima beáti Pauli Apóstoli ad Corínthios}
+
+##### Lectio i
+
+*Cap. 11, 20-32*
+
+COnveniéntibus vobis in unum, jam non est Domínicam cœnam manducáre. Unusquísque enim suam cœnam præsúmit ad manducándum. Et álius quidem ésurit, álius autem ébrius est. Numquid domos non habétis ad manducándum et bibéndum? aut Ecclésiam Dei contémnitis, et confúnditis eos, qui non habent? Quid dicam vobis? Laudo vos? In hoc non laudo.
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et.
+
+##### Lectio ii
+
+EGO enim accépi a Dómino, quod et trádidi vobis, quóniam Dóminus Jesus, in qua nocte tradebátur, accépit panem, et grátias agens fregit, et dixit: Accípite, et manducáte; hoc est corpus meum, quod pro vobis tradétur: hoc fácite in meam commemoratiónem. Simíliter et cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine; hoc fácite, quotiescúmque bibétis, in meam commemoratiónem. Quotiescúmque enim manducábitis panem hunc, et cálicem bibétis, mortem Dómini annuntiábitis, donec véniat.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.
+
+##### Lectio iii
+
+ITaque quicúmque manducáverit panem hunc, vel bíberit cálicem Dómini indígne, reus erit córporis et sánguinis Dómini. Pro-

@@ -32665,4 +32665,16 @@ Sermo sancti Bernárdi Abbátis
 
 ###### Lectio iv
 
-MARTYRIUM Vírginis tam in Simeónis prophetía, quam in ipsa Domínicæ passiónis história commendátur. Pósitus est hic (ait sanctus senex de púero Jesu) in signum cui contradicétur; et tuam ipsíus ánimam (ad Maríam autem dicébat) pertransíbit gládius. Vere tuam, o beáta Mater, ánimam pertransívit. Alióquin non nisi eam pertránsiens, carnem Fílii tui penetráret. Et quidem posteáquam emísit spíri-
+MARTYRIUM Vírginis tam in Simeónis prophetía, quam in ipsa Domínicæ passiónis história commendátur. Pósitus est hic (ait sanctus senex de púero Jesu) in signum cui contradicétur; et tuam ipsíus ánimam (ad Maríam autem dicébat) pertransíbit gládius. Vere tuam, o beáta Mater, ánimam pertransívit. Alióquin non nisi eam pertránsiens, carnem Fílii tui penetráret. Et quidem posteáquam emísit spíritum tuus ille Jesus, ipsíus plane non áttigit ánimam crudélis láncea, quæ ipsíus apéruit latus, sed tuam útique ánimam pertransívit. Ipsíus nimírum ánima jam ibi non erat, sed tua plane inde nequíbat avélli.
+
+℟. Ténebræ factæ sunt, dum crucifixíssent Jesum Judǽi, et circa horam nonam exclamávit Jesus voce magna: Deus meus, ut quid dereliquísti me? \* Et inclináto cápite, emísit spíritum. ℣. Quis tibi nunc sensus, dum cernis tália, Virgo? — Et.
+
+###### Lectio v
+
+TUAM ergo pertransívit ánimam vis dolóris, ut plusquam Mártyrem non immérito prædicémus, in qua nimírum corpóreæ sensum passiónis excésserit compassiónis afféctus. An non tibi plusquam gládius fuit sermo ille, revéra pertránsiens ánimam, et pertíngens usque ad divisiónem ánimæ et spíritus: Múlier, ecce fílius tuus? O commutatiónem! Joánnes tibi pro Jesu tráditur, servus pro Dómino, discípulus pro Magístro, fílius Zebedǽi pro Fílio Dei, homo purus pro Deo vero. Quómodo non tuam affectuosíssimam ánimam pertransíret hæc audítio, quando et nostra, licet sáxea, licet férrea péctora, sola recordátio scindit?
+
+℟. Pássio Dómini \* Ipsam ejus Matrem, carnáli orbitáte gráviter percússam, vehementíssime contristávit. ℣. Ferrum láncæ militáris, latus quidem Salvatóris, ánimam vero transívit Vírginis Matris. — Ipsam.
+
+###### Lectio vi
+
+NON mirémini, fratres, quod María Martyr in ánima fuísse dicátur. Mirétur qui non memínerit se audivísse Paulum inter máxima géntium crímina memorántem, quod sine affectióne fuíssent. Longe id fuit a Maríæ viscéribus, longe sit a sérvulis ejus. Sed forte quis dicat: Numquid non eum præscíerat moritúrum? Et indubitánter. Numquid non sperábat contínuo resurrectúrum? Et fidéliter. Super hæc dóluit crucifíxum? Et veheménter. Alióquin quisnam tu, frater, aut unde tibi hæc sapiéntia, ut miréris plus Maríam compatiéntem quam Maríæ Fílium patiéntem? Ille étiam mori córpore pótuit; ista cómmori corde non pótuit? Fecit illud cáritas, qua majórem nemo hábuit; fecit et hoc cáritas,

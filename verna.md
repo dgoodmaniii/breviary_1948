@@ -23149,3 +23149,21 @@ AUDISTIS, fratres caríssimi, quod sanctæ mulíeres, quæ Dóminum fúerant sec
 {RUBRIC: Glória Patri et Fílio, et Spirítui Sancto; et repetitur} ℟. Angelus Dómini, {RUBRIC: usque ad} ℣.
 
 **Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+NOTANDUM vero nobis est, quidnam sit, quod in déxtris sedére Angelus cérnitur. Quid namque per sinístram, nisi vita præsens: quid vero per déxteram, nisi perpétua vita designátur? Unde in Cánticis canticórum scriptum est: Læva ejus sub cápite meo, et déxtera illíus amplexábitur me. Quia ergo Redémptor noster jam præséntis vitæ corruptiónem transíerat, recte Angelus, qui nuntiáre perénnem ejus vitam vénerat, in déxtera sedébat. Qui stola cándida coopértus appáruit: quia festivitátis nostræ gáudia nuntiávit. Candor étenim vestis, splendórem nostræ denúntiat solemnitátis. Nostræ dicámus, an suæ? Sed ut fateámur vérius, et suæ dicámus et nostræ. Illa quippe Redemptóris nostri resurréctio et nostra festívitas fuit, quia nos ad immortalitátem redúxit: et Angelórum festívitas éxstitit, quia nos revocándo ad cæléstia, eórum númerum implévit.
+
+℟. Cum transísset sábbatum, María Magdaléne, et María Jacóbi, et Salóme emérunt arómata, \* Ut veniéntes úngerent Jesum, allelúja, allelúja. ℣. Et valde mane una sabbatórum, véniunt ad monuméntum, orto jam sole. — Ut. Glória Patri. Ut.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+IN sua ergo ac nostra festivitáte Angelus in albis véstibus appáruit: quia dum nos per resurrectiónem Domínicam ad supérna redúcimur, cæléstis pátriæ damna reparántur. Sed quid adveniéntes féminas affátur, audiámus: Nolíte expavéscere. Ac si apérte dicat: Páveant illi, qui non amant advéntum supernórum cívium; pertiméscant, qui carnálibus desidériis pressi, ad eórum se societátem pertíngere posse despérant. Vos autem, cur pertiméscitis, quæ vestros concíves vidétis? Unde et Matthǽus Angelum apparuísse descríbens, ait: Erat aspéctus ejus sicut fulgur, et vestiménta ejus sicut nix. In fúlgure étenim terror timóris est, in nive autem blandiméntum candóris.
+
+{RUBRIC: Et toto Témpore Paschali dicitur Hymnus} Te Deum *9*, {RUBRIC: etiam in Officio feriáli, prǽterquam Feria II Rogatiónum.}
+
+## Ad Laudes
+
+**Ant. 1** Angelus autem Dómini \* descéndit de

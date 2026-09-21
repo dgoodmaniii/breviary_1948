@@ -17529,3 +17529,33 @@ SEd dicit áliquis: Si alligátus est, quare adhuc tantum prǽvalet? Verum est, 
 VEnit ergo David et invénit Judæórum pópulum contra diábolum prǽliántem; et cum nullus esset, qui præsúmeret ad singuláre certámen accédere, ille, qui figúram Christi gerébat, procéssit ad prǽlium, tulit báculum in manu sua et éxiit contra Góliath. Et in illo quidem tunc figurátum est, quod in Dómino Jesu Christo complétum est. Venit enim verus David Christus, qui contra diábolum pugnatúrus crucem suam ipse portávit. Vidéte, fratres, ubi David Góliath percússerit: in fronte útique, ubi crucis signáculum non habébat. Sicut enim báculus crucis typum hábuit, ita étiam et lapis ille, de quo percússus est, Christum Dóminum figurábat.
 
 ℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+{RUBRIC: Lectiónes III Nocturni de Homilía Domínicæ IV post Pentecosten habéntur ad finem hujus Partis de Témpore, in órdine aliárum Domínicárum usque ad Domínicam XV post Pentecósten. — Simíliter Antiphónæ ad Benedíctus et Magníficat, et Oratiónes.}
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+{RUBRIC: Ad Laudes, in hac et sequéntibus Domínicis témpore æstívo occurréntibus, dícitur Hymnus Ecce jam noctis, ut in Psaltério. 39}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 17, 25-26*
+
+ET dixit unus quíspiam de Israël: Num vidístis virum hunc qui ascéndit? Ad exprobrándum enim Israéli ascéndit. Virum ergo, qui percússerit eum, ditábit rex divítiis magnis et fíliam suam dabit ei et domum patris ejus fáciet absque tribúto in Israël. Et ait David ad viros, qui stabant secum, dicens: Quid dábitur viro, qui percússerit Philisthǽum hunc et túlerit oppróbrium de Israël? Quis enim est hic Philisthǽus incircumcísus, qui exprobrávit ácies Dei vivéntis?
+
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.
+
+##### Lectio ii
+
+*Cap. 17, 31-36*
+
+AUdíta sunt autem verba, quæ locútus est David, et annuntiáta in conspéctu Saul. Ad quem cum fuísset addúctus, locútus est ei: Non concídat cor cujúsquam in eo: ego servus tuus vadam et pugnábo advérsus Philisthǽum. Et ait Saul ad David: Non vales resístere Philisthǽo isti nec pugnáre advérsus eum, quia puer es, hic autem vir bellátor est ab adolescéntia sua.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}

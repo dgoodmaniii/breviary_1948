@@ -41921,4 +41921,38 @@ SCIMUS autem quóniam diligéntibus Deum ómnia cooperántur in bonum, iis, qui 
 
 ###### Lectio iii
 
-QUIS ergo nos separábit a caritáte Christi? tribulátio, an angústia, an fames, an núditas, an perículum, an persecútio, an gládius? (sicut scriptum est: Quia propter te mor-
+QUIS ergo nos separábit a caritáte Christi? tribulátio, an angústia, an fames, an núditas, an perículum, an persecútio, an gládius? (sicut scriptum est: Quia propter te mortificámur tota die: æstimáti sumus sicut oves occisiónis.) Sed in his ómnibus superámus propter eum, qui diléxit nos. Certus sum enim quia neque mors, neque vita, neque Angeli, neque Principátus, neque Virtútes, neque instántia, neque futúra, neque fortitúdo, neque altitúdo, neque profúndum, neque creatúra ália póterit nos separáre a caritáte Dei, quæ est in Christo Jesu, Dómino nostro.
+
+{RUBRIC: Pro pluribus Mm. extra T. P.}
+
+℟. Tradidérunt córpora sua propter Deum ad supplícia: \* Et meruérunt habére corónas perpétuas. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro uno Mart. extra T. P.}
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum: \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro uno et plur. Mm. T. P.}
+
+℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória Patri. Mors.
+
+##### In II Nocturno
+
+**Ant.** Dabo Sanctis meis \* locum nominátum in regno Patris mei, dicit Dóminus.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Ecce \* quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est, allelúja.
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.

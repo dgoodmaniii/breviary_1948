@@ -20460,3 +20460,38 @@ Dicéndo natiónibus:
 Regnávit a ligno Deus.
 
 Arbor decóra et fúlgida,
+Elécta digno stípite
+Tam sancta membra tángere.
+
+Beáta, cujus bráchiis
+Prétium pepéndit sæculi,
+Statéra facta córporis,
+Tulítque prædam tártari.
+
+{RUBRIC: ¶ Sequens stropha dicitur flexis genibus; et última numquam mutátur.}
+
+O Crux, ave, spes única,
+Hoc Passiónis témpore
+Piis adáuge grátiam,
+Reísque dele crímina.
+
+Te, fons salútis, Trínitas,
+Colláudet omnis spíritus:
+Quibus Crucis victóriam
+Largíris, adde prǽmium.
+
+Amen.
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Pater juste, \* mundus te non cognóvit: ego autem novi te, quia tu me misísti.
+
+### Ad Vesperas Dominicæ.
+
+**Ad Magnif. Ant.** Scriptum est enim: \* Percútiam pastórem, et dispergéntur oves gregis: postquam autem resurréxero, præcédam vos in Galilǽam: ibi me vidébitis, dicit Dóminus.
+
+#### Oratio
+
+OMNIPOTENS sempitérne Deus, qui humáno géneri, ad imitándum humilitátis exémplum, Salvatórem nostrum carnem súmere, et crucem subíre fecísti: concéde propítius; ut et patiéntiæ ipsíus habére documénta, et resurrectiónis consórtia mereámur. Per eúmdem Dóminum.
+
+---

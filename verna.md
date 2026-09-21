@@ -38064,4 +38064,20 @@ Homilía sancti Leónis Papæ
 
 {RUBRIC: Sermo 2 in anivettario assumpt. suæ, ante medium}
 
-CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens: Tu es Christus Fílius Dei vivi; Dóminus ait: Beátus es, Simon Bar-Jona, quia caro
+CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens: Tu es Christus Fílius Dei vivi; Dóminus ait: Beátus es, Simon Bar-Jona, quia caro et sánguis non revelávit tibi, sed Pater meus, qui in cælis est: et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam. Et tibi dabo claves regni cælórum: et quodcúmque ligáveris super terram, erit ligátum et in cælis: et quodcúmque sólveris super terram, erit solútum et in cælis. Manet ergo dispositio veritátis, et beátus Petrus, in accépta fortitúdine petræ persevérans, suscépta Ecclésiæ gubernácula non relíquit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum, allelúja. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio viii
+
+IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis lingua, quæ confitétur Dóminum, magistério hujus vobis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc érutos mundo ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte muníta est, ut eam neque hærética umquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, rationábili obséquio celebrétur hodiérna festívitas: ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendatárum sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis, allelúja. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ, alias}
+
+{RUBRIC: Pro S. Pudentiana Virg.}
+
+###### Lectio ix
+
+PUDENTIANA virgo, Pudéntis Románi fília, paréntibus orbáta, cum admirábili pietáte christiánam religiónem cóleret, una cum soróre Praxéde pecúniam ex véndito património redáctam paupéribus distríbuit, seque jejúniis et oratiónibus dedit.

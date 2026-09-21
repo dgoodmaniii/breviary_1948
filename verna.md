@@ -19672,3 +19672,39 @@ EX eórum quippe admiratióne et verbis, dixit Dóminus profúndum áliquid, et 
 SI ergo intueámur diligénter quod ipse in exórdio dicit sanctus Evangelísta: In princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum: inde pendet hujus solútio quæstiónis. Quæ est doctrína Patris, nisi Verbum Patris? Ipse ergo Christus doctrína Patris, si Verbum Patris. Sed quia Verbum non potest esse nullíus, sed alicújus: et suam doctrínam dixit seípsum, et non suam, quia Patris est Verbum. Quid enim tam tuum quam tu? et quid tam non tuum quam tu, si alicújus est, quod es?
 
 ℟. Móyses fámulus Dei jejunávit quadragínta diébus et quadragínta nóctibus: \* Ut legem Dómini mererétur accípere. ℣. Ascéndens Móyses in montem Sínai ad Dóminum, fuit ibi quadragínta diébus et quadragínta nóctibus. — Ut. Glória. Ut.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Quid me quǽritis \* interfícere, hóminem qui vera locútus sum vobis?
+
+#### Oratio
+
+SACRAE nobis, quæsumus, Dómine, observatiónis jejúnia: et piæ conversatiónis augméntum, et tuæ propitiatiónis contínuum præstent auxílium. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Nemo in eum misit manum: \* quia nondum vénerat hora ejus.
+
+#### Oratio
+
+MISERERE, Dómine, pópulo tuo: et contínuis tribulatiónibus laborántem propítius respiráre concéde. Per Dóminum.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 9, 1-38*
+
+IN illo témpore: Prætériens Jesus, vidit hóminem cæcum a nativitáte: et interrogavérunt eum discípuli ejus: Rabbi, quis peccávit, hic, aut paréntes ejus, ut cæcus nasceretur? Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 44 in Joánnem, circa initium}
+
+QUÆ fecit Dóminus noster Jesus Christus, stupénda atque miránda, et ópera, et verba sunt: ópera, quia facta sunt; verba, quia signa sunt. Si ergo quid signíficet hoc quod factum est, cogitémus: genus humánum est iste cæcus. Hæc enim cǽcitas cóntigit in primo hómine per peccátum, de quo omnes oríginem dúximus, non solum mortis, sed étiam iniquitátis. Si enim cǽcitas est infidélitas, et illuminátio fides: quem fidélem, quando venit Christus, invénit? Quandóquidem Apóstolus natus in gente prophetárum dicit: Fúimus et nos áliquándo natúra fílii iræ, sicut et céteri. Si fílii iræ, fílii vindíctæ, fílii pœnæ, fílii gehénnæ: quómodo natúra, nisi quia peccánte primo hómine vítium pro natúra inolévit? Si vítium pro natúra inolévit, secúndum mentem omnis homo cæcus natus est.
+
+℟. Spléndida facta est fácies Móysi, dum respíceret in eum Dóminus: \* Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde. ℣. Cum-

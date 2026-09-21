@@ -28100,3 +28100,53 @@ FACTA autem hac voce, convénit multitúdo, et mente confúsa est, quóniam audi
 JUDÆI quoque et Prosélyti, Cretes et Arabes: audívimus eos loquéntes nostris linguis magnália Dei.
 
 ℟. br. Repléti sunt omnes Spíritu Sancto, \* Allelúja, allelúja. Repléti. ℣. Et cœpérunt loqui. Allelúja, allelúja. Glória Patri. Repléti. ℣. Loquebántur váriis linguis Apóstoli, allelúja. ℟. Magnália Dei, allelúja.
+
+### In II Vesperis
+
+**Ant.** Cum compleréntur \* dies Pentecóstes, erant omnes páriter in eódem loco, allelúja.
+
+#### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Cum compleréntur dies Pentecóstes, erant omnes páriter in eódem loco, allelúja.
+
+**Ant.** Spíritus Dómini, \* replévit orbem terrárum, allelúja.
+
+#### Psalmus 110
+
+CONFITÉBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Spíritus Dómini replévit orbem terrárum, allelúja.

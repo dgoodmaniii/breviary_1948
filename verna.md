@@ -42229,4 +42229,59 @@ SED, his malis præveniéntibus, quia non statim finis sequátur, adjúngit: Sur
 
 ###### Lectio ix
 
-SED cum tot signa perturbatiónis dicta sint, opórtet, ut eórum consideratiónem bréviter per síngula perstringámus; quia necésse est, ut ália e cælo, ália e terra, ália ab eleméntis, ália ab homínibus patiámur. Ait enim: Surget gens contra gentem, ecce perturbátio hóminum; erunt terræmótus magni per loca, ecce respéctus iræ désuper; erunt pestiléntiæ, ecce inæquá-
+SED cum tot signa perturbatiónis dicta sint, opórtet, ut eórum consideratiónem bréviter per síngula perstringámus; quia necésse est, ut ália e cælo, ália e terra, ália ab eleméntis, ália ab homínibus patiámur. Ait enim: Surget gens contra gentem, ecce perturbátio hóminum; erunt terræmótus magni per loca, ecce respéctus iræ désuper; erunt pestiléntiæ, ecce inæquálitas córporum; erit fames, ecce sterílitas terræ; terrorésque de cælo et tempestátes, ecce inæquálitas áëris. Quia ergo ómnia consummánda sunt, ante consummatiónem ómnia perturbántur; et qui in cunctis delíquimus, in cunctis ferímur, ut impleátur quod dícitur: Et pugnábit pro eo orbis terrárum contra insensátos.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Omnes Sancti, \* quanta passi sunt torménta, ut secúri pervenírent ad palmam martýrii!
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** Cum palma \* ad regna pervenérunt Sancti, corónas decóris meruérunt de manu Dei.
+
+**3** Córpora Sanctórum \* in pace sepúlta sunt: et vivent nómina eórum in ætérnum.
+
+**4** Mártyres Dómini, \* Dóminum benedícite in ætérnum.
+
+**5** Mártyrum chorus, \* laudáte Dóminum de cælis, allelúja.
+
+**Capitulum** *Sap. 3, 1-3*
+
+JUSTORUM ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+###### Hymnus
+
+REX glorióse Mártyrum,
+Coróna confiténtium,
+Qui respuéntes térrea
+Perdúcis ad cæléstia:
+
+Aurem benígnam prótinus
+Inténde nostris vócibus:
+Trophǽa sacra pángimus:
+Ignósce quod delíquimus.
+
+Tu vincis inter Mártyres
+Parcísque Confessóribus:
+Tu vince nostra crímina,
+Largítor indulgéntiæ.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum.
+Amen.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+##### Pro pluribus Martyribus Pontificibus
+
+**1 — Oratio**
+
+BEATORUM Mártyrum páritérque Pontíficum N. et N. nos, quǽsumus, Dómine, festa tueántur: et eórum comméndet orátio veneránda. Per Dóminum.

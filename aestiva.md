@@ -245,3 +245,41 @@ A vínculis, {RUBRIC: ut in III Nocturno Officii novem Lectionum.}
 **1 Bened.** Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen.
 
 **2 Bened.** Cujus (*vel* Quorum *aut* Quarum) festum cólimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercédat (*vel* intercédant) pro nobis ad Dóminum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Officio de sancta María in Sábbato Absolútio et Benedictiónes, quæ ibídem ponúntur.}
+
+{RUBRIC: Post últimam Lectiónem, in ómnibus Domínicis per Annum minóribus, in Festis cujúsvis ritus, per omnes Octávas, et in Offício sanctæ Maríæ in Sábbato, dícitur Hymnus Ambrosiánus. Et numquam dícitur in feriáli Offício. Quando vero Hymnus prædíctus omíttitur, ejus loco dícitur IX aut III Responsórium.}
+
+##### Hymnus Ambrosianus
+
+TE Deum laudámus: \* te Dóminum confitémur.
+
+Te ætérnum Patrem \* omnis terra venerátur.
+
+Tibi omnes Angeli, \* tibi Cæli, et univérsæ Potestátes:
+
+Tibi Chérubim et Séraphim \* incessábili voce proclámant:
+
+Sanctus, \* Sanctus, \* Sanctus \* Dóminus, Deus Sábaoth.
+
+Pleni sunt cæli et terra \* majestátis glóriæ tuæ.
+
+Te gloriósus \* Apostolórum chorus,
+
+Te Prophetárum \* laudábilis númerus,
+
+Te Mártyrum candidátus \* laudat exércitus.
+
+Te per orbem terrárum \* sancta confitétur Ecclésia,
+
+Patrem \* imménsæ majestátis;
+
+Venerándum tuum verum \* et únicum Fílium;
+
+Sanctum quoque \* Paráclitum Spíritum.
+
+Tu Rex glóriæ, \* Christe.
+
+Tu Patris \* sempitérnus es Fílius.

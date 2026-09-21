@@ -37758,4 +37758,20 @@ QUI vero in sǽculo, terra nempe desérta et inaquósa, ádeo felíciter adolév
 
 ###### Lectio vi
 
-DEIPARAM Vírginem, cujus cliéntelæ se ab ineúnte ætáte dicáverat, tamquam matrem quotidiánis colébat obséquiis atque filiáli exorábat fidúcia. Porro erga sanctíssimum Eucharístiæ sacraméntum difícile dictu est quam ardénti tenerétur devotiónis afféctu; quem defúnctus étiam in cadávere retinére visus est, dum, jacens in féretro, ad sacræ Hóstiæ elevatiónem bis óculos reserávit et clausit, magna ómnium, qui áderant, admiratióne. Ejúsdem veritátem inter hæréticos públice palámque proféssus, multa et grávia ob eam causam perpéssus est; crebro étiam ad necem petítus, sed singulári Dei providéntia ab impiórum mánibus eréptus. Sæpe inter orándum ómnibus destituebátur sénsibus, dulcíque languébat amóris delíquio: quo témpore cæléstem illam sciéntiam hausísse créditus est, qua, homo rudis et illitterátus, de mystériis fídei difficíllimis respondére, atque áliquot étiam libros conscríbere pótuit. Dénique méritis plenus, eádem qua prædíxerat hora, felíciter migrávit ad Dóminum, anno salútis millésimo quingen-
+DEIPARAM Vírginem, cujus cliéntelæ se ab ineúnte ætáte dicáverat, tamquam matrem quotidiánis colébat obséquiis atque filiáli exorábat fidúcia. Porro erga sanctíssimum Eucharístiæ sacraméntum difícile dictu est quam ardénti tenerétur devotiónis afféctu; quem defúnctus étiam in cadávere retinére visus est, dum, jacens in féretro, ad sacræ Hóstiæ elevatiónem bis óculos reserávit et clausit, magna ómnium, qui áderant, admiratióne. Ejúsdem veritátem inter hæréticos públice palámque proféssus, multa et grávia ob eam causam perpéssus est; crebro étiam ad necem petítus, sed singulári Dei providéntia ab impiórum mánibus eréptus. Sæpe inter orándum ómnibus destituebátur sénsibus, dulcíque languébat amóris delíquio: quo témpore cæléstem illam sciéntiam hausísse créditus est, qua, homo rudis et illitterátus, de mystériis fídei difficíllimis respondére, atque áliquot étiam libros conscríbere pótuit. Dénique méritis plenus, eádem qua prædíxerat hora, felíciter migrávit ad Dóminum, anno salútis millésimo quingentésimo nonagésimo secúndo, sexto décimo Kaléndas Júnii, eódem quo natus fúerat, festo Pentecóstes recurrénte, annum agens secúndum supra quinquagésimum. Quibus alíisque virtútibus insígnem, ac miráculis tam in vita quam post mortem clarum, Paulus quintus Póntifex máximus illum Beátum appellávit; Alexánder autem octávus Sanctórum catálogo adscrípsit; tandem Leo décimus tértius peculiárem cœtum eucharísticórum, item societátum ómnium a sanctíssima Eucharístia, sive quæ háctenus institútæ sive quæ in pósterum futúræ sunt, patrónum cæléstem declarávit et constítuit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+PASCHALIS Baylon, paupéribus piísque paréntibus in óppido Turris Formósæ in Aragónia natus, puerítiam atque adolescéntiam in gregis custódia transégit. Póstea severióris vitæ institútum ampléxus, et órdini fratrum Minórum adscríptus, júgiter cogitábat, qua ratióne magis magísque Christo crucifíxo conformáret. Deíparam Vírginem, cujus cliéntelæ se ab ineúnte ætáte dicáverat, tamquam matrem filiálibus et quotidiánis obséquiis colébat. Erga Eucharístiam ténero et assíduo flagrávit devotiónis afféctu, quem defúnctus étiam retinére visus est, dum, jacens in féretro, ad sacræ Hóstiæ elevatiónem bis óculos reserávit et clausit, magna ómnium, qui áderant, admiratióne. Méritis plenus, migrávit ad Dóminum, anno millésimo quingentésimo nonagésimo secúndo. Eum Leo décimus tértius peculiárem cœtum eucharísticórum, societatúmque ómnium a sanctíssima Eucharístia patrónum cæléstem declarávit et constítuit.
+
+{RUBRIC: Te Deum.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [116]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes.}

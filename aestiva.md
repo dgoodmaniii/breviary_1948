@@ -18190,4 +18190,40 @@ ACcidit autem ut occúrreret Absalom servis David sedens mulo; cumque ingréssus
 
 ET ait Joab: Non sicut tu vis, sed aggrédiar eum coram te. Tulit ergo tres lánceas in manu sua et infíxit eas in corde Absalom: cumque adhuc palpitáret hærens in quercu, cucurrérunt decem júvenes armígeri Joab et percutiéntes interfecérunt eum. Cécinit autem Joab búccina et retínuit pópulum, ne persequerétur fugiéntem Israël, volens párcere multitúdini. Et tulérunt Absalom et projecérunt eum in saltu in fóveam grandem et comportavérunt super eum acérvum lápidum magnum nimis.
 
-℟. Audi, Dómine, hymnum et oratiónem, quam
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Unxérunt Salomónem \* Sadoc sacérdos et Nathan Prophéta regem in Gihon, et ascendéntes læti dixérunt: Vivat rex in ætérnum.
+
+### Oratio
+
+DEus, cujus providéntia in sui dispositióne non fállitur: te súpplices exorámus; ut nóxia cuncta submóveas, et ómnia nobis profutúra concédas. Per Dóminum.
+
+{RUBRIC: Si tamen Dominica sequens a die 29 Julii ad 4 Augusti occúrrat, sumúntur Antíphona et Lectiónes Domínicæ et hebdómadæ I Augústi 485, omíssis áliis de Libris Regum; quod item servátur in sequéntibus hebdómadis.}
+
+---
+
+## Dominica VII post Pentecosten
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber tértius Regum}
+
+##### Lectio i
+
+*Cap. 1, 1-8*
+
+ET rex David senúerat habebátque ætátis plúrimos dies: cumque operirétur véstibus, non calefiébat. Dixérunt ergo ei servi sui: Quærámus dómino nostro regi adolescéntulam vírginem, et stet coram rege et fóveat eum dormiátque in sinu suo et calefáciat dóminum nostrum regem. Quæsiérunt ígitur adolescéntulam speciósam in ómnibus fínibus Israël et invenérunt Abísag Sunamítidem et adduxérunt eam ad regem. Erat autem puélla pulchra nimis dormiebátque cum rege et ministrábat ei; rex vero non cognóvit eam.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+ADonías autem, fílius Haggith, elevabátur dicens: Ego regnábo. Fe-

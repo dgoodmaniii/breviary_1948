@@ -22411,3 +22411,55 @@ RESPICE, quæsumus, Dómine, super hanc famíliam tuam, pro qua Dóminus noster 
 {RUBRIC: Completórium dícitur ut in Cœna Dómini. 470}
 
 ---
+
+## Sabbato Sancto
+
+{RUBRIC: Duplex I classis}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+**Ant.** In pace \* in idípsum, dórmiam et requiéscam.
+
+#### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu frumenti, vini et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+{RUBRIC: † Non dicitur Glória Patri.}
+
+**Ant.** In pace in idípsum, dórmiam et requiéscam.
+
+**Ant.** Habitábit \* in tabernáculo tuo, requiéscet in monte sancto tuo.
+
+#### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecú-

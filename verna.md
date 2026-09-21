@@ -25806,4 +25806,18 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Tractatus 102 in Joánnem}
 
-HOMINI verba nunc ista tractánda sunt: Amen, amen, dico vobis: si quid petiéritis Patrem in nómine meo, dabit vobis. Jam dictum est in superióribus hujus Domínici sermónis pártibus, propter eos, qui nonnúlla petunt a Patre in Christi nómine, nec accípiunt: non peti in nómine
+HOMINI verba nunc ista tractánda sunt: Amen, amen, dico vobis: si quid petiéritis Patrem in nómine meo, dabit vobis. Jam dictum est in superióribus hujus Domínici sermónis pártibus, propter eos, qui nonnúlla petunt a Patre in Christi nómine, nec accípiunt: non peti in nómine Salvatóris, quidquid pétitur contra ratiónem salútis. Non enim sonum litterárum ac syllabárum, sed quod sonus ipse signíficat, et quod eo sono recte ac veráciter intellígitur, hoc accipiéndus est dícere, cum dicit: In nómine meo.
+
+℟. Deus, cánticum novum cantábo tibi, allelúja: \* In psaltério decem chordárum psallam tibi, allelúja, allelúja. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — In.
+
+#### Lectio viii
+
+UNDE qui hoc sentit de Christo, quod non est de único Dei Fílio sentiéndum, non petit in ejus nómine, etiámsi non táceat lítteris ac sýllabis Christum: quóniam in ejus nómine petit, quem cógitat cum petit. Qui vero quod est de illo sentiéndum, sentit, ipse in ejus nómine petit: et áccipit quod petit, si non contra suam salútem sempitérnam petit. Accípit autem quando debet accípere. Quædam enim non negántur: sed ut cóngruo déntur témpore, differúntur. Ita sane intelligéndum est quod ait: Dabit vobis: ut ea beneficia significáta sciántur his verbis, quæ ad eos, qui petunt, próprie pértinent. Exaudiúntur quippe omnes Sancti pro seípsis, non autem pro ómnibus exaudiúntur vel amícis, vel inimícis suis, vel quibúslibet áliis: quia non utcúmque dictum est, Dabit; sed, Dabit vobis.
+
+℟. Bonum est confitéri Dómino, allelúja: \* Et psállere, allelúja. ℣. In decachórdo psaltério, cum cántico et cíthara. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+USQUE modo, inquit, non petístis quidquam in nómine meo. Pétite, et accipiétis, ut gáudium vestrum sit plenum. Hoc quod dicit, gáudium plenum, profécto non carnále, sed spiritále gáudium est: et quando tantum erit, ut áliquid ei jam non sit addéndum, procul dúbio tunc erit plenum. Quidquid ergo pétitur, quod pertíneat ad hoc gáudium consequéndum, hoc est in nómine Christi peténdum, si divínam intellígimus grátiam, si vere beátam póscimus vitam. Quidquid autem áliud pétitur, nihil pétitur: non quia nulla omníno res est, sed quia in tantæ rei comparatióne quidquid áliud concupíscitur, nihil est.
+
+Te Deum laudámus.

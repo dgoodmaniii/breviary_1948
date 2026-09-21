@@ -36602,3 +36602,53 @@ Confiteántur tibi, Dómine, omnes reges terræ: \* quia audiérunt ómnia verba
 Et cantent in viis Dómini: \* quóniam magna est glória Dómini.
 
 Quóniam excélsus Dóminus, et humília réspicit: \* et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me: \* et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me: \* Dómine, misericórdia tua in sǽculum: ópera mánuum tuárum ne despícias.
+
+**Ant.** Angeli, Archángeli, Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+**Capitulum** *Apoc. 1, 1-2*
+
+SIGNIFICAVIT Deus quæ opórtet fíeri cito, loquens per Angelum suum servo suo Joánni, qui testimónium perhíbuit verbo Dei, et testimónium Jesu Christi, quæcúmque vidit.
+
+###### Hymnus
+
+TE, splendor et virtus Patris,
+Te vita, Jesu, córdium,
+Ab ore qui pendent tuo,
+Laudámus inter Angelos.
+
+Tibi mille densa míllium
+Ducum coróna mílitat;
+Sed explicat victor crucem
+Míchaël salútis signifer.
+
+Dracónis hic dirum caput
+In ima pellit tártara,
+Ducémque cum rebéllibus
+Cæléstí ab arce fúlminat.
+
+Contra ducem supérbiæ
+Sequámur hunc nos príncipem,
+Ut detur ex Agni throno
+Nobis coróna glóriæ.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Deo Patri sit glória,
+Qui, quos redémit Fílius,
+Et Sanctus unxit Spíritus,
+Per Angelos custódiat.
+Amen.
+
+℣. Stetit Angelus juxta aram templi, allelúja. ℟. Habens thuríbulum áureum in manu sua, allelúja.
+
+**Ad Magnif. Ant.** Dum sacrum mystérium \* cérneret Joánnes, Archángelus Míchaël tuba cécinit: Ignósce, Dómine, Deus noster, qui áperis librum, et solvis signácula ejus, allelúja.
+
+##### In II Vesperis
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus, allelúja. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo, allelúja.
+
+**Ad Magnif. Ant.** Princeps gloriosíssime, \* Míchaël Archángele, esto memor nostri: hic et ubíque semper precáre pro nobis Fílium Dei, allelúja, allelúja.

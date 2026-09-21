@@ -24342,3 +24342,69 @@ AD régias Agni dapes,
 Stolis amícti cándidis,
 Post tránsitum Maris Rubri,
 Christo canámus Príncipi:
+
+Divína cujus cáritas
+Sacrum propínat sánguinem,
+Almíque membra córporis
+Amor sacérdos ímmolat.
+
+Sparsum cruórem póstibus
+Vastátor horret Angelus:
+Fugítque divísum mare;
+Mergúntur hostes flúctibus.
+
+Jam Pascha nostrum Christus est,
+Paschális idem víctima,
+Et pura puris méntibus
+Sinceritátis ázyma.
+
+O vera cæli víctima,
+Subjécta cui sunt tártara,
+Solúta mortis víncula,
+Recépta vitæ prǽmia.
+
+Víctor, subáctis ínferis,
+Trophǽa Christus éxplicat;
+Cælóque apérto, súbditum
+Regem tenebrárum trahit.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Ego sum pastor óvium: \* ego sum via, véritas, et vita: ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ, allelúja, allelúja.
+
+{RUBRIC: Ad Vésperas Dominicæ}
+
+**Ad Magnif. Ant.** Ego sum pastor bonus, \* qui pasco oves meas, et pro óvibus meis pono ánimam meam, allelúja.
+
+#### Oratio
+
+DEUS, qui in Fílii tui humilitáte jacéntem mundum erexísti: fidélibus tuis perpétuam concéde lætítiam; ut, quos perpétuæ mortis eripuísti cásibus, gáudiis fácias pérfrui sempitérnis. Per eúmdem Dóminum.
+
+---
+
+## Dom. II post Pascha
+
+{RUBRIC: Semiduplex}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 13, 13-33*
+
+CUM a Papho navigássent Paulus et qui cum eo erant, venérunt Pergen Pamphýliæ. Joánnes autem discédens ab eis, revérsus est Jerosólymam. Illi vero pertranseúntes Pergen, venérunt Antiochíam Pisídiæ, et ingréssi synagógam die sabbatórum, sedérunt. Post lectiónem autem legis et prophetárum, misérunt príncipes

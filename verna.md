@@ -36433,4 +36433,34 @@ FUIT autem Joánnes et Apóstolus, et Evangelísta, et Prophéta: Apóstolus, qu
 
 ###### Lectio vi
 
-SED et ipsum ejus Evangélium multum distat a céteris. Matthǽus quasi de hómine íncipit scríbere: Liber generatiónis Jesu Christi, fílii David, fílii Abraham; Lucas a sacerdótio Zacharíæ; Marcus a prophetía Malachíæ et Isaíæ. Primus habet fáciem hóminis, propter genealogíam; secúndus fáciem vítuli, propter sacerdótium; tértius fáciem leónis, propter vocem cla-
+SED et ipsum ejus Evangélium multum distat a céteris. Matthǽus quasi de hómine íncipit scríbere: Liber generatiónis Jesu Christi, fílii David, fílii Abraham; Lucas a sacerdótio Zacharíæ; Marcus a prophetía Malachíæ et Isaíæ. Primus habet fáciem hóminis, propter genealogíam; secúndus fáciem vítuli, propter sacerdótium; tértius fáciem leónis, propter vocem clamántis in desérto, Paráte viam Dómini, rectas fácite sémitas ejus. Joánnes vero noster quasi áquila ad supérna volat, et ad ipsum Patrem pérvenit, dicens: In princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum.
+
+℟. Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti. Glória Patri. Repléti.
+
+Pro hoc Festo simplificato
+
+Ex libro sancti Hierónymi Presbýteri contra Joviniánum
+
+{RUBRIC: Liber 1, n. 26}
+
+###### Lectio ix
+
+JOANNES Apóstolus, unus ex discípulis Dómini, qui mínimus natu tráditur fuísse inter Apóstolos, et quem fides Christi vírginem repérerat, virgo permánsit; et ídeo plus amátur a Dómino, et recúmbit super pectus Jesu; et, quod Petrus, qui uxórem habúerat, interrogáre non audet, illum rogat ut intérroget; et post resurrectiónem, nuntiánte María Magdaléne quod Dóminus resurrexísset, utérque cucúrrit ad sepúlcrum, sed ille prævénit; cumque essent in navi, et piscaréntur in lacu Genésareth, Jesus stabat in líttore, nec sciébant Apóstoli quem vidérent; solus virgo vírginem agnóscit, et dicit Petro: Dóminus est. Fuit autem Joánnes et Apóstolus, et Evangelísta, et Prophéta. Refert autem Tertulliánus quod Romæ missus in fervéntis ólei dólium, púrior et vegétior exíverit, quam intráverit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 20, 20-23*
+
+IN illo témpore: Accéssit ad Jesum mater filiórum Zebedǽi cum fíliis suis, adórans et petens áliquid ab eo. Et réliqua.
+
+Homilía sancti Hierónymi Presbýteri
+
+{RUBRIC: Liber 3 Comm. in Matth., cap. 20}
+
+UNDE opiniónem regni habet mater filiórum Zebedǽi, ut cum Dóminus díxerit: Fílius hóminis tradétur princípibus sacerdótum et scribis, et condemnábunt eum morte, et tradent Géntibus ad illudéndum

@@ -45662,4 +45662,73 @@ Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
 
 **Ant.** Bene fundáta est domus Dómini supra firmam petram. (T. P. Allelúja.)
 
-**Ant.** Lápides pretiósi \* omnes muri tui, et turres
+**Ant.** Lápides pretiósi \* omnes muri tui, et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.)
+
+###### Psalmus 147
+
+LAUDA, Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Lápides pretiósi omnes muri tui, et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Apoc. 21, 2*
+
+VIDI civitátem sanctam, Jerúsalem novam, descendéntem de cælo a Deo, parátam sicut sponsam ornátam viro suo.
+
+###### Hymnus
+
+CÆLESTIS urbs Jerúsalem,
+Beáta pacis vísio,
+Quæ celsa de vivéntibus
+Saxis ad astra tólleris,
+Sponsæque ritu cíngeris
+Mille Angelórum míllibus.
+
+O sorte nupta próspera,
+Dotáta Patris glória,
+Respérsa Sponsi grátia,
+Regína formosíssima,
+Christo jugáta Príncipi,
+Cæli corúsca cívitas.
+
+Hic margarítis émicant
+Paténtque cunctis óstia;
+Virtúte namque prǽvia
+Mortális illuc dúcitur,
+Amóre Christi pércitus
+Torménta quisquis sústinet.
+
+Scalpri salúbris íctibus
+Et tunsióne plúrima,
+Fabri políta málleo
+Hanc saxa molem cónstruunt,
+Aptísque juncta néxibus
+Locántur in fastígio.
+
+Decus Parénti débitum
+Sit usquequáque Altíssimo,
+Natóque Patris único,
+Et ínclito Paráclito,
+Cui laus, potéstas, glória
+Ætérna sit per sæcula. Amen.
+
+℣. Hæc est domus Dómini fírmiter ædificáta. (T. P. Allelúja.) ℟. Bene fundáta est supra firmam petram. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Sancti-

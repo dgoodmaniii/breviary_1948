@@ -39777,3 +39777,87 @@ Servi necárant ímpii.
 
 Sermóne verax Angelus
 Muliéribus prædíxerat:
+
+Mox ore Christus gáudium
+Gregi feret fidélium.
+
+Ad ánxios Apóstolos
+Currunt statim dum núntiæ,
+Illæ micántis óbvia
+Christi tenent vestígia.
+
+Galilǽæ ad alta móntium
+Se cónferunt Apóstoli,
+Jesúque, voti cómpotes,
+Almo beántur lúmine.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+¶ Ab Ascensióne autem usque ad Fériam VI ante Vigíliam Pentecóstes inclusíve dícitur:
+
+Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+¶ Conclusiónes præcedéntes numquam mutántur.
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+{RUBRIC: Oratio propria.}
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invit.** Regem Apostolórum Dóminum, \* Veníte adorémus. (T. P. Allelúja.)
+
+{RUBRIC: Hymnus} Tristes erant, {RUBRIC: ut supra in I Vesperis.}
+
+{RUBRIC: Extra Tempus Paschale}
+
+###### Hymnus
+
+ÆTERNA Christi múnera,
+Apostolórum glóriam,
+Palmas et hymnos débitos
+Lætis canámus méntibus.
+
+Ecclesiárum Príncipes,
+Belli triumpháles duces,
+Cæléstis aulæ mílites
+Et vera mundi lúmina.
+
+Devóta Sanctórum fides,
+Invícta spes credéntium,
+Perfécta Christi cáritas
+Mundi tyránnum cónterit.
+
+In his Patérna glória,
+In his triúmphat Fílius,
+In his volúntas Spíritus,
+Cælum replétur gáudio.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+##### In I Nocturno
+
+**T. P. Ant.** Stabunt justi \* in magna constántia advérsus eos, qui se angustiavérunt, allelúja.
+
+{RUBRIC: Sub una tantum Antiphona in quolibet Nocturno dicuntur Psalmi.}

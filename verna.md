@@ -37384,4 +37384,24 @@ Homilía sancti Gregórii Papæ
 
 {RUBRIC: Homilia 28 habita in Basilica horum Ss. Martyrum, in die natali eorum}
 
-QUID est quod régulus Dóminum roget ut ad ejus fílium véniat, et tamen ire corporáliter recúset; ad servum vero centuriónis non invitátur, et tamen se corporáliter ire pollicétur? Réguli fílio per corporálem præséntiam non dignátur adésse, centuriónis servo non dedignátur occúrrere. Quid est hoc, nisi quod supérbia nostra retúnditur, qui in homínibus non natúram, qua ad imáginem Dei facti sunt, sed honóres et divítias venerámur? Redémptor vero noster, ut osténderet quia quæ alta sunt hóminum, despicíenda sunt, et quæ despécta sunt hóminum,
+QUID est quod régulus Dóminum roget ut ad ejus fílium véniat, et tamen ire corporáliter recúset; ad servum vero centuriónis non invitátur, et tamen se corporáliter ire pollicétur? Réguli fílio per corporálem præséntiam non dignátur adésse, centuriónis servo non dedignátur occúrrere. Quid est hoc, nisi quod supérbia nostra retúnditur, qui in homínibus non natúram, qua ad imáginem Dei facti sunt, sed honóres et divítias venerámur? Redémptor vero noster, ut osténderet quia quæ alta sunt hóminum, despicíenda sunt, et quæ despécta sunt hóminum, despiciénda non sunt; ad fílium réguli ire nóluit, ad servum centuriónis ire parátus fuit.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Feria III et VI infra hebdómadam I et II post Octavam Paschæ, quoties in I Nocturno Lectiones fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præcedéntis Responsórii dícitur sequens}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+{RUBRIC: Si dicénda sit ix Lectio alicújus Officii commemoráti, ex viii et ix Lectióne fit una.}
+
+###### Lectio viii
+
+INCREPATA est ergo supérbia nostra, quæ nescit pensáre hómines propter hómines. Sola, ut díximus, quæ circúmstant homínibus pensat, natúram non áspicit, honórem Dei in homínibus non agnóscit. Ecce ire non vult Fílius Dei ad fílium réguli; et tamen veníre parátus est ad salútem servi! Certe, si nos cujúspiam servus rogáret ut ad eum ire deberémus, prótinus nobis nostra supérbia in cogitatióne tácita respondéret dicens: Non eas, quia temetípsum degéneras, honor tuus despícitur, locus viléscit. Ecce de cælo venit, qui servo in terra occúrrere non déspicit; et tamen humiliári in terra contémnimus, qui de terra sumus!
+
+℟. Cándidi facti sunt Nazarǽi ejus, allelúja; splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Com. ad Laudes, alias}
+
+###### Lectio ix
+
+NOLITE ergo intra vosmetípsos pensáre quod habétis, sed quid estis. Ecce mundus, qui dilígitur, fugit. Sancti isti ad quorum tumbam consístimus, floréntem mundum mentis despéctu calcavérunt. Erat tunc vita longa, salus contínua, opuléntia in rebus, fecúnditas in propágine, tranquíllitas in diutúrna pace; et tamen, cum in seípso floréret, jam in eórum córdibus mundus

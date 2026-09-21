@@ -37515,3 +37515,37 @@ QUANTA, óbsecro, appáret in libris sanctórum patrum cum summa eruditióne con
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+DEUS, qui ad errórum insídias repelléndas et Apostólicæ Sedis jura propugnánda, beátum Robértum Pontíficem tuum atque Doctórem mira eruditióne et virtúte decorásti: ejus méritis et intercessióne concéde, ut nos in veritátis amóre crescámus et errántium corda ad Ecclésiæ tuæ rédeant unitátem. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Robérte, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+{RUBRIC: Et fit Commem. sequéntis.}
+
+---
+
+### Die 14 Maji
+
+#### S. Bonifatii Martyris
+
+{RUBRIC: Simplex [74]}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut qui beáti Bonifátii Mártyris tui solémnia cólimus, ejus apud te intercessiónibus adjuvémur. Per Dóminum.
+
+##### In III Nocturno
+
+###### Lectio iii
+
+BONIFATIUS, civis Románus, quod cum Aglaë nóbili matróna impudíce versátus esset, tanto illíus intemperántiæ dolóre captus est, ut pœniténtiæ causa se ad conquirénda et sepeliénda Mártyrum córpora contúlerit. Itaque, relíctis peregrinatiónis sóciis, cum Tarsi multos propter christiánæ fídei professiónem váriis torméntis cruciátos vidísset; illórum víncula osculátus, eos veheménter hortabátur, ut constánter supplícia perférrent, quod brevem labórem sempitérna réquies consecutúra sit. Comprehénsus ígitur, férreis úngulis excarnificátus est; cui étiam inter mánuum ungues et carnem acúti cálami sunt infíxi, plumbúmque liquefáctum in os ejus infúsum. Quibus in cruciátibus ea vox tantum Bonifátii audiebátur: Grátias tibi ago, Dómine Jesu Christe, Fili Dei. Mox in ollam ferventis picis demísso cápite conjéctus est; unde cum inviolátus exíisset, ira incénsus judex eum secúri pércuti jubet. Quo témpore magnus terræmótus factus est, ita ut multi infidéles ad Christi Dómini fidem converteréntur. Eum sequénti die

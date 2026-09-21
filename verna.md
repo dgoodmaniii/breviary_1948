@@ -25978,4 +25978,18 @@ De Epístola prima beáti Petri Apóstoli
 
 *Cap. 4, 1-17*
 
-CHRISTO ígitur passo in carne, et vos eádem cogitatióne armámini: quia qui passus est in carne, désiit a peccátis:
+CHRISTO ígitur passo in carne, et vos eádem cogitatióne armámini: quia qui passus est in carne, désiit a peccátis: ut jam non desidériis hóminum, sed voluntáti Dei, quod réliquum est in carne vivat témporis. Súfficit enim prætéritum tempus ad voluntátem géntium consummándam his, qui ambulavérunt in luxúriis, desidériis, vinoléntiis, comessatiónibus, potatiónibus, et illícitis idolórum cúltibus. In quo admirántur non concurréntibus vobis in eámdem luxúriæ confusiónem blasphemántes: qui reddent ratiónem ei, qui parátus est judicáre vivos et mórtuos. Propter hoc enim et mórtuis evangelizátum est: ut judicéntur quidem secúndum hómines in carne, vivant autem secúndum Deum in spíritu. Omnium autem finis appropinquávit.
+
+℟. In ecclésiis benedícite Deo, allelúja, \* Dómino de fóntibus Israël, allelúja, allelúja. ℣. Psalmum dícite nómini ejus, date glóriam laudi ejus. — Dómino.
+
+#### Lectio ii
+
+ESTOTE ítaque prudéntes, et vigiláte in oratiónibus. Ante ómnia autem mútuam in vobismetípsis caritátem contínuam habéntes, quia cáritas óperit multitúdinem peccatórum. Hospitáles ínvicem sine murmuratióne: unusquísque sicut accépit grátiam, in altérutrum illam administrántes, sicut boni dispensatóres multifórmis grátiæ Dei. Si quis lóquitur, quasi sermónes Dei: si quis minístrat, tamquam ex virtúte, quam administrat Deus: ut in ómnibus honorificétur Deus per Jesum Christum: cui est glória et impérium in sǽcula sæculórum. Amen.
+
+℟. In toto corde meo, allelúja, exquisívi te, allelúja: \* Ne repéllas me a mandátis tuis, allelúja, allelúja. ℣. Benedíctus es tu, Dómine, doce me justificatiónes tuas. — Ne.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Ne.
+
+#### Lectio iii
+
+CARISSIMI, nolíte peregrinári in fervóre, qui ad tentatiónem vobis fit, quasi novi áliquid vobis contíngat: sed communicántes Christi passiónibus gaudéte, ut et in revelatióne glóriæ ejus gaudeátis exsultántes. Si exprobrámini in nómine Christi, beáti éritis: quóniam quod est honóris, glóriæ, et virtútis Dei, et qui est ejus Spíritus, super vos requiéscit. Nemo autem vestrum patiátur ut homicída, aut fur, aut maledícus, aut alienórum appe-

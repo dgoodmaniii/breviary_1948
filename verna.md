@@ -33598,3 +33598,27 @@ DEUS, qui per stultítiam crucis eminéntem Jesu Christi sciéntiam beátum Just
 **Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
 
 ℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui sanctórum Mártyrum tuórum Tibúrtii, Valeriáni et Máximi solémnia cólimus; eórum étiam virtútes imitémur. Per Dóminum.
+
+{RUBRIC: In I Nocturno Tempore Quadragesimæ, et si Tempore Paschali dicéndæ non sint de Scriptúra occurrénti, Lectiones Fratres: Debitóres, de Communi plurimórum Mártyrum extra Tempus Paschale, cum Responsóriis de Communi uníus Mártyris pro témporis qualitáte ibi notátis. [57]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+JUSTINUS, Prisci fílius, ex Græco génere Fláviæ Neápolis in Sýria Palæstína natus, adolescéntiam in litterárum ómnium stúdiis transégit. Vir factus ádeo philosophíæ amóre corréptus est, ut ad veritátem assequéndam, quotquot áderant philosophórum séctis nomen déderit, eórumque præcépta scrutátus sit. Cum in his fallácem tantum sapiéntiam errorémque reperísset, supérna illustratióne per senem quemdam ignótum aspectúque venerábilem edúctus, veræ christiánæ fídei philosophíam ampléxus est. Hinc sacræ Scriptúræ libros diu noctúque præ mánibus habens, ita ex eórum meditatióne divínus ignis in ánima ejus exársit, ut ea qua pollébat eruditiónis vi, eminéntem Jesu Christi sciéntiam adéptus, plúrima conscrípserit volúmina ad christiánam fidem exponéndam magísque propagándam.
+
+{RUBRIC: In Quadragesima}
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non dereliquit eum. — Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+INTER præclaríssima Justíni ópera binæ éminent fídei christiánæ apológiæ, quas cum coram senátu, imperatóribus Antoníno Pio ejúsque fíliis nec non Marco Antoníno Vero et Lúcio Aurélio Cómmodo Christi ásseclas sævíssime

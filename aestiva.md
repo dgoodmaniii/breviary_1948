@@ -11898,4 +11898,58 @@ Ipse Dóminus Deus noster: \* in univérsa terra judícia ejus.
 
 Memor fuit in sæculum testaménti sui: \* verbi, quod mandávit in mille generatiónes:
 
-Quod dispósuit ad Abra-
+Quod dispósuit ad Abraham: \* et juraménti sui ad Isaac:
+
+Et státuit illud Jacob in præcéptum: \* et Israël in testaméntum ætérnum:
+
+Dicens: Tibi dabo terram Chánaan, \* funículum hereditátis vestræ.
+
+Cum essent número brevi, \* paucíssimi et íncolæ ejus:
+
+Et pertransiérunt de gente in gentem, \* et de regno ad pópulum álterum.
+
+Non relíquit hóminem nocére eis: \* et corrípuit pro eis reges.
+
+Nolíte tángere christos meos: \* et in prophétis meis nolíte malignári.
+
+**Ant.** Memor fuit in sæculum testaménti sui Dóminus, Deus noster.
+
+**Ant.** Auxit Dóminus \* pópulum suum: et firmávit eum super inimícos ejus.
+
+### Psalmus 104, ii
+
+ET vocávit famem super terram: \* et omne firmaméntum panis contrívit.
+
+Misit ante eos virum: \* in servum venúmdatus est Joseph.
+
+Humiliavérunt in compédibus pedes ejus, ferrum pertránsiit ánimam ejus, \* donec veníret verbum ejus.
+
+Elóquium Dómini inflammávit eum: \* misit rex, et solvit eum; princeps populórum, et dimísit eum.
+
+Constítuit eum dóminum domus suæ: \* et príncipem omnis possessiónis suæ:
+
+Ut erudíret príncipes ejus sicut semetípsum: \* et senes ejus prudéntiam docéret.
+
+Et intrávit Israël in Ægýptum: \* et Jacob áccola fuit in terra Cham.
+
+Et auxit pópulum suum veheménter: \* et firmávit eum super inimícos ejus.
+
+Convértit cor eórum ut odírent pópulum ejus: \* et dolum fácerent in servos ejus.
+
+Misit Móysen, servum suum: \* Aaron, quem elégit ipsum.
+
+Pósuit in eis verba signórum suórum, \* et prodigiórum in terra Cham.
+
+**Ant.** Auxit Dóminus pópulum suum: et firmávit eum super inimícos ejus.
+
+**Ant.** Edúxit Deus \* pópulum suum in exsultatióne, et eléctos suos in lætítia.
+
+### Psalmus 104, iii
+
+MIsit ténebras, et obscurávit: \* et non exacerbávit sermónes suos.
+
+Convértit aquas eórum in sánguinem: \* et occídit pisces eórum.
+
+Edidit terra eórum ranas \* in penetrálibus regum ipsórum.
+
+Dixit, et venit cœnomýia: \* et cínifes in ómnibus fínibus eórum.

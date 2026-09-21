@@ -46247,3 +46247,39 @@ DEUS, qui invisibíliter ómnia cóntines, et tamen pro salúte géneris humáni
 *Apoc. 21, 3*
 
 ET audívi vocem magnam de throno dicéntem: Ecce tabernáculum Dei cum homínibus, et habitábit cum eis; et ipsi pópulus ejus erunt, et ipse Deus cum eis erit eórum Deus.
+
+℟. br. Locus iste sanctus est, \* In quo orat sacérdos. Locus. ℣. Pro delíctis et peccátis pópuli. In. Glória Patri. Locus. ℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Locus iste sanctus est, in quo orat sacérdos, \* Allelúja, allelúja. Locus. ℣. Pro delíctis et peccátis pópuli. Allelúja, allelúja. Glória Patri. Locus. ℣. Hæc est domus Dómini fírmiter ædificáta, allelúja. ℟. Bene fundáta est supra firmam petram, allelúja.
+
+##### Ad Nonam
+
+**Ant.** Lápides pretiósi \* omnes muri tui, et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Apoc. 21, 4-5*
+
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce nova fácio ómnia.
+
+℟. br. Hæc est domus Dómini \* Fírmiter ædificáta. Hæc. ℣. Bene fundáta est domus Dómini. ℟. Supra firmam petram.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Hæc est domus Dómini fírmiter ædificáta, \* Allelúja, allelúja. Hæc. ℣. Bene fundáta est supra firmam petram. Allelúja, allelúja. Glória Patri. Hæc. ℣. Bene fundáta est domus Dómini, allelúja. ℟. Supra firmam petram, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [160], præter}
+
+℣. Domum tuam, Dómine, decet sanctitúdo. (T. P. Allelúja.) ℟. In longitúdinem diérum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** O quam metuéndus est \* locus iste: vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.)
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Infra Octávam et in die Octáva Antíphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua ut in Festo præter Lectiónes, quæ in I Nocturno dicúntur de Scriptúra occurrénti cum suis Responsóriis de Témpore, in II et III pro síngulis diébus assignántur própriæ.}
+
+---

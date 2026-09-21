@@ -37978,4 +37978,58 @@ STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui 
 
 ECCE quómodo computáti sunt inter fílios Dei, et inter sanctos sors illórum est.
 
-℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Lætítia sempitérna super
+℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+##### Ad Nonam
+
+**Capitulum** *Rom. 8, 28*
+
+SCIMUS quóniam diligéntibus Deum ómnia cooperántur in bonum, iis qui secúndum propósitum vocáti sunt sancti.
+
+℟. br. Lætítia sempitérna super cápita eórum, \* Allelúja, allelúja. Lætítia. ℣. Gáudium et exsultatiónem obtinébunt. Allelúja, allelúja. Glória Patri. Lætítia. ℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commemoratio præcedentis et S. Pudentianæ Virg.}
+
+---
+
+### Die 19 Maji
+
+#### S. Petri Cælestini
+
+{RUBRIC: Papæ et Confessoris}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Petrum Cælestínum ad summi pontificátus ápicem sublimásti, quique illum humilitáti postpónere docuísti: concéde propítius; ut ejus exémplo cuncta mundi despícere, et ad promíssa humílibus prǽmia perveníre felíciter mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Sancti et justi, in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Deus, qui hunc, ut supra. 988
+
+{RUBRIC: Deinde Commemoratio S. Pudentianæ Virg.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ Pudentiánæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Nocturno
+
+{RUBRIC: Pro hoc Festo simplificato, Lectio iv dicitur ut ix.}
+
+###### Lectio iv
+
+PETRUS, a nómine quo Póntifex est appellátus, Cælestínus dictus, honéstis

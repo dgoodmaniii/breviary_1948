@@ -34053,4 +34053,42 @@ FIDELIS, in óppido Suéviæ Sigmarínga ex honésta Reyórum família natus, c�
 
 ℣. Pretiósa in conspéctu.
 
-**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vi-
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Fidélem, seráphico spíritus ardóre succénsum, in veræ fídei propagatióne martýrii palma et gloriósis miráculis decoráre dignátus es: ejus, quǽsumus, méritis et intercessióne, ita nos per grátiam tuam in fide et caritáte confírma; ut in servítio tuo fidéles usque ad mortem inveníri mereámur. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 25 Aprilis
+
+#### Sancti Marci Evangelistæ
+
+{RUBRIC: Duplex II classis}
+
+{RUBRIC: Omnia de Communi Evangelistarum Tempore Paschali [28] et [4], præter ea quæ hic habentur propria.}
+
+###### Oratio
+
+DEUS, qui beátum Marcum Evangelístam tuum evangélicæ prædicatiónis grátia sublimásti: tríbue, quǽsumus; ejus nos semper et eruditióne profícere, et oratióne deféndi. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis}
+
+**Ant.** Sancti et justi, in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+{RUBRIC: In I Nocturno Lectiones Et factum est, de Communi Evangelistarum. [28]}
+
+##### In II Nocturno
+
+Ex libro sancti Hierónymi Presbýteri de Scriptóribus ecclesiásticis
+
+###### Lectio iv
+
+{RUBRIC: Cap. 8}
+
+MARCUS, discípulus et intérpres Petri, juxta quod Petrum referéntem audíerat, rogátus Romæ a frátribus, breve scripsit Evangélium. Quod cum Petrus audísset, et probávit, et Ecclésiæ legéndum sua auctoritáte dedit. Assúmpto ítaque Evangélio quod ipse con-

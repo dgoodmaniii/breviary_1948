@@ -23993,4 +23993,16 @@ Homilía sancti Gregórii Papæ
 
 {RUBRIC: Homilia 26 in Evangelia}
 
-PRIMA lectiónis hujus evangélicæ quæstio ánimum pulsat: quómodo post resurrectiónem corpus Domínicum verum fuit, quod clausis jánuis ad discípulos íngredi pótuit? Sed sciéndum nobis est, quod divína operátio, si ratióne comprehénditur, non est admirábilis: nec fides habet méritum, cui humána rátio præbet experiméntum. Sed hæc ipsa nostri Redemptóris ópera, quæ ex semetípsis comprehéndi nequáquam possunt, ex ália ejus operatióne pensánda sunt: ut rebus mirabílibus fidem præbeant facta mirabilióra. Illud enim corpus Dómini in-
+PRIMA lectiónis hujus evangélicæ quæstio ánimum pulsat: quómodo post resurrectiónem corpus Domínicum verum fuit, quod clausis jánuis ad discípulos íngredi pótuit? Sed sciéndum nobis est, quod divína operátio, si ratióne comprehénditur, non est admirábilis: nec fides habet méritum, cui humána rátio præbet experiméntum. Sed hæc ipsa nostri Redemptóris ópera, quæ ex semetípsis comprehéndi nequáquam possunt, ex ália ejus operatióne pensánda sunt: ut rebus mirabílibus fidem præbeant facta mirabilióra. Illud enim corpus Dómini in-trávit ad discípulos jánuis clausis, quod vidélicet ad humános óculos per nativitátem suam clauso exívit útero Vírginis. Quid ergo mirum, si clausis jánuis post resurrectiónem suam in ætérnum jam victúrus intrávit, qui moritúrus véniens, non apérto útero Vírginis exívit?
+
+℟. De ore prudéntis procédit mel, allelúja: dulcédo mellis est sub lingua ejus, allelúja: \* Favus distíllans lábia ejus, allelúja, allelúja. ℣. Sapiéntia requiéscit in corde ejus, et prudéntia in sermóne oris illíus. — Favus.
+
+#### Lectio viii
+
+SED quia ad illud corpus, quod vidéri póterat, fides intuéntium dubitábat: osténdit eis prótinus manus et latus: palpándam carnem præbuit, quam clausis jánuis introdúxit. Qua in re duo mira, et juxta humánam ratiónem sibi valde contrária osténdit: dum post resurrectiónem suam corpus suum incorruptíbile, et tamen palpábile demonstrávit. Nam et corrúmpi necésse est quod palpátur: et palpári non potest quod non corrúmpitur. Sed miro modo atque inæstimábili Redémptor noster et incorruptíbile post resurrectiónem, et palpábile corpus exhíbuit: ut monstrándo incorruptíbile, invitáret ad prǽmium; et præbéndo palpábile, firmáret ad fidem. Et incorruptíbilem se ergo, et palpábilem demonstrávit: ut profécto esse post resurrectiónem osténderet corpus suum et ejúsdem natúræ, et altérius glóriæ.
+
+℟. Surgens Jesus Dóminus noster, stans in médio discipulórum suórum, dixit: \* Pax vobis, allelúja: gavísi sunt discípuli viso Dómino, allelúja. ℣. Una ergo sabbatórum, cum fores essent clausæ, ubi erant discípuli congregáti, venit Jesus, et stetit in médio eórum, et dixit eis. — Pax. Glória Patri. Pax.
+
+#### Lectio ix
+
+DIXIT eis: Pax vobis. Sicut misit me Pater, et ego mitto vos: id est, sicut misit me Pater Deus Deum, et ego mitto vos homo hómines. Pater Fílium misit, qui hunc pro redemptióne géneris humáni incarnári constítuit. Quem vidélicet in mundum veníre ad passiónem vóluit: sed tamen amávit Fílium, quem ad passiónem misit. Eléctos vero Apóstolos Dóminus non ad mundi gáudia, sed sicut

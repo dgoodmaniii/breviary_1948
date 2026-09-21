@@ -45303,4 +45303,20 @@ FORTITUDO et decor induméntum ejus, et ridébit in die novíssimo. Os suum apé
 
 ###### Lectio iv
 
-AGRUM hunc Ecclésiæ fértilem cerno, nunc integritátis flore vernántem, nunc viduitátis gravitáte polléntem, nunc étiam conjúgii
+AGRUM hunc Ecclésiæ fértilem cerno, nunc integritátis flore vernántem, nunc viduitátis gravitáte polléntem, nunc étiam conjúgii frúctibus redundántem. Nam etsi divérsi, uníus tamen agri fructus sunt: nec tanta hortórum lília, quantæ áristæ ségetum, méssium spicæ; complúriúmque spátia campórum recipiéndis aptántur semínibus, quam réddítis nováles frúctibus feriántur. Bona ergo vidúitas, quæ tóties apostólico judício prædicátur. Hæc enim magístra fídei, magístra est castitátis.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+UNDE et illi, qui deórum suórum adultéria et probra venerántur, cælibátus et viduitátis statuére pœnas, ut ǽmuli críminum mulctárent stúdia virtútum, spécie quidem, qua fecunditátem quǽrerent, sed stúdio, quo propósitum castitátis abolérent. Nam conféctis et miles stipéndiis arma depónit, et relícto offício quod gerébat, ad própria veteránus rura dimíttitur, ut et ipse exércitæ labóribus vitæ réquiem consequátur et álios spes futúræ quiétis subeúndis fáciat opéribus promptióres. Agrícola quoque matúrior torquéndam áliis stivam commíttit, et, juveníli gravátus ópere, providéntiam curæ senílis explórat: vitem facílius tondére quam prémere, ut juvenescéntem luxúriam réprimat, et adolescéntem lascíviam falce succídat; parcórum quamdam pártuum castitátem docens étiam in vítibus expeténdam.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. (T. P. Allelúja.) ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+SIMILIS huic vídua, velut eméritis veterána stipéndiis castitátis, et si conjúgii arma depónat, domus tamen totíus pacem gubérnat; et si vehéndis onéribus otiósa, maritándis tamen junióribus próvida, ubi cultus utílior, ubi fructus ubérior sit, quarum cópulam aptiórem seníli gravitáte dispónit. Itaque si maturióribus quam junióribus commíttitur ager, cur putes utilíorem nuptam esse quam

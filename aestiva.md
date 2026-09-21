@@ -3117,3 +3117,53 @@ Cum sancto sanctus eris, \* et cum viro innocénte ínnocens eris:
 Et cum elécto eléctus eris: \* et cum pervérso pervertéris.
 
 Quóniam tu pópulum húmilem salvum fácies: \* et óculos superbórum humiliábis.
+
+Quóniam tu illúminas lucérnam meam, Dómine: \* Deus meus, illúmina ténebras meas.
+
+Quóniam in te erípiar a tentatióne, \* et in Deo meo transgrédiar murum.
+
+Deus meus, impollúta via ejus: elóquia Dómini igne examináta: \* protéctor est ómnium sperántium in se.
+
+Quóniam quis Deus præter Dóminum? \* aut quis Deus præter Deum nostrum?
+
+Deus, qui præcínxit me virtúte: \* et pósuit immaculátam viam meam.
+
+Qui perfécit pedes meos tamquam cervórum, \* et super excélsa státuens me.
+
+Qui docet manus meas ad prǽlium: \* et posuísti, ut arcum áëreum, bráchia mea.
+
+**Ant.** Retríbuet mihi Dóminus secúndum justítiam meam.
+
+**Ant.** Vivit Dóminus, \* et benedíctus Deus salútis meæ.
+
+### Psalmus 17, iii
+
+ET dedísti mihi protectiónem salútis tuæ: \* et déxtera tua suscépit me:
+
+Et disciplína tua corréxit me in finem: \* et disciplína tua ipsa me docébit.
+
+Dilatásti gressus meos subtus me: \* et non sunt infirmáta vestígia mea:
+
+Pérsequar inimícos meos, et comprehéndam illos: \* et non convértar, donec defíciant.
+
+Confríngam illos, nec póterunt stare: \* cadent subtus pedes meos.
+
+Et præcinxísti me virtúte ad bellum: \* et supplantásti insurgéntes in me subtus me.
+
+Et inimícos meos dedísti mihi dorsum, \* et odiéntes me disperdidísti.
+
+Clamavérunt, nec erat qui salvos fáceret, ad Dóminum: \* nec exaudívit eos.
+
+Et commínuam eos, ut púlverem ante fáciem venti: \* ut lutum plateárum delébo eos.
+
+Erípies me de contradictiónibus pópuli: \* constítues me in caput géntium.
+
+Pópulus, quem non cognóvi, servívit mihi: \* in audítu auris obedívit mihi.
+
+Fílii aliéni mentíti sunt mihi: \* fílii aliéni inveteráti sunt, et claudicavérunt a sémitis suis.
+
+Vivit Dóminus, et benedíctus Deus meus, \* et exaltétur Deus salútis meæ.
+
+Deus, qui das vindíctas mihi, et subdis pópulos sub me, \* liberátor meus de inimícis meis iracúndis.
+
+Et ab insurgéntibus in me exaltábis me: \* a viro iníquo éripies me.

@@ -40122,4 +40122,38 @@ Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
 
 Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
 
-Lætábitur justus in Dómino, et sperábit in eo, \*
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**T. P. Ant.** Ecce quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est, allelúja.
+
+℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Annuntiavérunt ópera Dei, et facta ejus intellexérunt.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+**Absolutio** Ipsíus pietas.
+
+**Benedictio** Deus Pater.
+
+{RUBRIC: Sermo sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 30 in Evang., post medium}
+
+###### Lectio iv
+
+SCRIPTUM est: Spíritus Dómini ornávit cælos. Ornaménta enim cælórum sunt virtútes prædicántium. Quæ vidélicet ornaménta Paulus enúmerat, dicens: Alii datur per Spíritum sermo sapiéntiæ, álii sermo sciéntiæ secúndum eúmdem Spíritum, álteri fides in eódem Spíritu, álii grátia sanitátum in uno Spíritu, álii operátio virtútum, álii prophetía, álii discrétio spirítuum, álii génera linguárum, álii interpretátio sermónum. Hæc autem ómnia operátur unus atque idem Spíritus, dívidens síngulis prout vult.
+
+**T. P. ℟.** Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et ætérnitas.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+QUOT ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est: Verbo Dómini cæli firmáti sunt. Verbum enim Dómini Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur: Et Spíritu oris ejus omnis virtus eórum. Cælórum

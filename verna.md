@@ -45355,4 +45355,30 @@ CÆLORUM regnum, fratres caríssimi, idcírco terrénis rebus símile dícitur, 
 
 ###### Lectio viii
 
-QUA in re hoc quoque notándum est, quod invéntus thesáurus abs-
+QUA in re hoc quoque notándum est, quod invéntus thesáurus abscónditur, ut servétur: quia stúdium cæléstis desidérii a malígnis spirítibus custodíre non súfficit, qui hoc ab humánis láudibus non abscóndit. In præsénti étenim vita quasi in via sumus, qua ad pátriam pérgimus. Malígni autem spíritus iter nostrum quasi quidam latrúnculi óbsident. Deprædári ergo desíderat, qui thesáurum públice portat in via. Hoc autem dico, non ut próximi ópera nostra bona non vídeant, cum scriptum sit: Vídeant ópera vestra bona, et gloríficent Patrem vestrum, qui in cælis est; sed ut per hoc, quod ágimus, laudes extérius non quærámus. Sic autem sit opus in público, quátenus inténtio máneat in occúlto: ut et de bono ópere próximis præbeámus exémplum, et tamen per intentiónem, qua Deo soli placére quǽrimus, semper optémus secrétum.
+
+##### Pro non Virgine
+
+℟. Regnum mundi et omnem ornátum sǽculi contémpsi, propter amórem Dómini mei Jesu Christi: \* Quem vidi, quem amávi, in quem crédidi, quem diléxi. (T. P. Allelúja.) ℣. Eructávit cor meum verbum bonum: dico ego ópera mea Regi. — Quem. Glória Patri. Quem.
+
+##### Pro Virgine
+
+℟. Média nocte clamor factus est: \* Ecce sponsus venit, exíte óbviam ei. (T. P. Allelúja.) ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. Glória Patri. Ecce.
+
+**Bened.** Ad societátem.
+
+###### Lectio ix
+
+THESAURUS autem cæléste est desidérium; ager vero, in quo thesáurus abscónditur, disciplína stúdii cæléstis. Quem profécto agrum, vénditis ómnibus, cómparat, qui, voluptátibus carnis renúntians, cuncta sua terréna desidéria per disciplínæ cæléstis custódiam calcat: ut nihil jam, quod caro blandítur, líbeat; nihil, quod carnálem vitam trucídat, spíritus perhorréscat.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+**Añæ 1** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis. (T. P. Allelúja.)
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** In odórem \* unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis. (T. P. Allelúja.)
+
+**3** Jam hiems tránsiit, \* imber ábiit et recéssit:

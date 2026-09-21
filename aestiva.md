@@ -575,4 +575,36 @@ INDULGENTIAM, absolutiónem, et remissiónem peccatórum nostrórum tríbuat nob
 
 {RUBRIC: Extra Chorum, si unus vel duo tantum recítent Offícium et in Choro Moniálium, semel tantum ac simul ab ómnibus ita fit Confessio:}
 
-CONFITEOR Deo omnipoténti, beátæ Maríæ semper Vírgini, beáto Mi-
+CONFITEOR Deo omnipoténti, beátæ Maríæ semper Vírgini, beáto Michaéli Archángelo, beáto Joánni Baptístæ, sanctis Apóstolis Petro et Paulo, et ómnibus Sanctis, quia peccávi nimis cogitatióne, verbo et ópere: mea culpa, mea culpa, mea máxima culpa. Ideo precor beátam Maríam semper Vírginem, beátum Michaélem Archángelum, beátum Joánnem Baptístam, sanctos Apóstolos Petrum et Paulum, et omnes Sanctos, oráre pro me ad Dóminum, Deum nostrum.
+
+{RUBRIC: Deinde dícitur:}
+
+MISEREATUR nostri omnípotens Deus, et, dimíssis peccátis nostris, perdúcat nos ad vitam ætérnam. Amen.
+
+INDULGENTIAM, absolutiónem, et remissiónem peccatórum nostrórum tríbuat nobis omnípotens et miséricors Dóminus. Amen.
+
+{RUBRIC: Facta Absolutióne, subjúngitur:}
+
+℣. Dignáre, Dómine, die isto. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolútis Précibus, vel, si Preces locum non hábeant, post Responsórium breve statim dícitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+DOMINE, Deus omnípotens, qui ad princípium hujus diéi nos perveníre fecísti: tua nos hódie salva virtúte; ut in hac die ad nullum declinémus peccátum, sed semper ad tuam justítiam faciéndam nostra procédant elóquia, dirigántur cogitatiónes et ópera. Per Dóminum. ℟. Amen.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo. ℣. Benedicámus Dómino. ℟. Deo grátias.
+
+{RUBRIC: Deinde in Choro legitur Martyrológium, quod laudabíliter fit étiam extra Chorum. Póstea Hebdomadárius dicit:}
+
+℣. Pretiósa in conspéctu Dómini. ℟. Mors Sanctórum ejus.
+
+{RUBRIC: Et absolute, sine} Orémus:
+
+**Oratio**
+
+SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári et salvári, qui vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me fe-

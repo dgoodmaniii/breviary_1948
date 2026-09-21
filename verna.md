@@ -43243,4 +43243,46 @@ Décidant a cogitatiónibus suis, secúndum multitúdinem impietátum eórum exp
 
 Et læténtur omnes, qui sperant in te, \* in ætérnum exsultábunt: et habitábis in eis.
 
-Et gloriabúntur in te omnes, qui díligunt nomen
+Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíces justo.
+
+Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
+
+**Ant.** Læténtur omnes, qui sperant in te, Dómine: quóniam tu benedixísti justo, scuto bonæ voluntátis tuæ coronásti eum.
+
+**Ant.** Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra! quia glória et honóre coronásti Sanctum tuum, et constituísti eum super ópera mánuum tuárum.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Dómine, Dóminus noster, quam admirábile est nomen tuum in univérsa terra! quia glória et honóre coronásti Sanctum tuum, et constituísti eum super ópera mánuum tuárum.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Invocántem exaudívit Dóminus Sanctum suum; Dóminus exaudívit eum, et constítuit eum in pace, allelúja.
+
+℣. Elégit eum Dóminus sacerdótem sibi. (T. P. Allelúja.) ℟. Ad sacrificándum ei hóstiam laudis. (T. P. Allelúja.)
+
+##### Pro Conf. non Pont.
+
+℣. Os justi meditábitur sapiéntiam. (T. P. Allelúja.) ℟. Et lingua ejus loquétur judícium. (T. P. Allelúja.)
+
+**Absolutio** Ipsíus píetas.
+
+**Benedictio** Deus Pater.

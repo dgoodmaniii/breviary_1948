@@ -19089,4 +19089,18 @@ FRATRES: Erátis enim aliquándo ténebræ, nunc autem lux in Dómino: ut fílii
 
 *Cap. 4, 23-30*
 
-IN illo témpore: Dixit Jesus pharisǽis: Utique dicétis mihi hanc similitúdinem: Médice, cura
+IN illo témpore: Dixit Jesus pharisǽis: Utique dicétis mihi hanc similitúdinem: Médice, cura te ipsum: quanta audívimus facta in Cápharnaum, fac et hic in pátria tua. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 4 in cap. 4 Lucæ, post medium}
+
+NON mediócris invídia próditur, quæ cívicæ caritátis oblíta, in acérba ódia causas amóris infléctit. Simul hoc exémplo páriter et oráculo declarátur, quod frustra opem misericórdiæ cæléstis exspéctes, si aliénæ frúctibus virtútis invídeas. Aspernátor enim Dóminus invidórum est: et ab iis qui divína benefícia in áliis persequúntur, miracula suæ potestátis avértit. Domínicæ quippe carnis actus, divinitátis exémplum est: et invisibília nobis ejus per ea, quæ sunt visibília, demonstrántur.
+
+℟. Tóllite hinc vobíscum múnera, et ite ad dóminum terræ: et cum invenéritis, adoráte eum super terram: \* Deus autem meus fáciat eum vobis placábilem: et remíttat et hunc fratrem vestrum vobíscum, et eum quem tenet in vínculis. ℣. Súmite de óptimis terræ frúgibus in vasis vestris, et deférte viro múnera. — Deus.
+
+#### Lectio ii
+
+NON otióse ítaque Salvátor excúsat, quod nulla in pátria sua miracula virtútis operátus sit: ne fortássis áliquis viliórem pátriæ nobis esse debére putáret afféctum. Neque enim cives póterat non amáre, qui amáret omnes: sed ipsi se caritáte pátriæ, dum ínvident, abdicárunt. In veritáte dico vobis: multæ víduæ fuérunt in diébus Elíæ. Non quia Elíæ dies fuérunt, sed in quibus Elías operátus est: aut quia Elías dies faciébat illis, qui in ejus opéribus lucem vidébant grátiæ spiritális, et convertebántur ad Dóminum. Et ídeo aperiebátur cælum vidéntibus ætérna et divína mystéria: claudebátur, et fames erat, quando nulla erat cognoscéndæ divinitátis ubértas. Sed de hoc plénius díximus, cum de víduis scriberémus.
+
+℟. Iste est frater vester mínimus, de quo dixerátis mihi? Deus misereátur tibi, fili mi. \* Festinavítque in domum, et plorávit: quia erumpébant lácrimæ, et non póterat se continére. ℣. Attóllens autem Joseph óculos, vidit Bénjamin stantem: et commóta sunt ómnia víscera

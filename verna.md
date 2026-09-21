@@ -23900,3 +23900,43 @@ Amen.
 #### Oratio
 
 PRÆSTA, quǽsumus, omnípotens Deus: ut, qui paschália festa perégimus, hæc, te largiénte, móribus et vita teneámus. Per Dóminum.
+
+℣. Benedicámus Dómino {RUBRIC: hódie et deínceps dícitur sine Allelúja.}
+
+{RUBRIC: Ad Complétorium dícitur Antíphona} Allelúja {RUBRIC: cum Psalmis de Sábbato ut in Psaltério 334, et réliqua ut ibídem de Ordinário pro Témpore Paschali.}
+
+{RUBRIC: Conclúsio Hymnórum ad omnes Horas usque ad Nonam in Vigília Ascensiónis inclusíve erit:}
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: ¶ Toto Témpore Paschali, usque ad Nonam Sábbati post Pentecósten inclusíve, in ómnibus Offíciis Invitatório, Antiphónis cum dicúntur íntegræ, Versíbus et Responsóriis, ubi deest, addítur Allelúja, prǽterquam versíbus post Responsória Matutíni, et Versíbus qui in Ordinário sine Allelúja ponúntur. Responsóriis tamen brévibus Horárum minórum et Complétorii duplex addítur Allelúja, prout in Ordinário et própriis locis notátur.}
+
+{RUBRIC: ¶ Itémque toto Témpore Paschali in Offício tam dominicáli quam feriáli, et in Festis Psalmos de Feria mutuántibus, omnes Psalmi ad Vésperas, ad síngulos Noctúrnos et ad Laudes, dicúntur sub única Antíphona de Témpore Paschali, ut in Psaltério.}
+
+---
+
+## Dominica in Albis
+
+In Octava Paschæ
+
+{RUBRIC: I classis Duplex majus}
+
+### Ad Matutinum
+
+{RUBRIC: Invitatorium} Surréxit Dóminus {RUBRIC: et Hymnus} Rex sempitérne, {RUBRIC: ut in Psaltério. 42}
+
+{RUBRIC: Psalmi de Domínica sub Antiphonis et cum Versibus de Tempore Paschali, ut in Psaltério 43; quæ dicuntur etiam in reliquis Dominicis ante Ascensionem.}
+
+#### In I Nocturno
+
+De Epístola beáti Pauli Apóstoli ad Colossénses
+
+#### Lectio i
+
+*Cap. 3, 1-17*
+
+SI consurrexístis cum Christo: quæ sursum sunt quǽrite, ubi Christus est in déxtera Dei sedens: quæ sursum sunt sápite, non quæ super terram. Mórtui enim estis, et vita vestra est abscóndita cum Christo in Deo. Cum Christus apparúerit, vita vestra: tunc et vos apparébitis cum ipso in glória. Mortificáte ergo membra vestra, quæ sunt super terram: fornicatiónem, immundítiam, libídinem, concupiscéntiam malam, et avarítiam, quæ est simulacrórum sérvitus: propter quæ venit ira Dei super fílios incredulitátis: in quibus et vos ambulá-

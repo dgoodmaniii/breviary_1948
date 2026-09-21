@@ -14600,3 +14600,54 @@ Corda, voces et ópera.
 
 Noctis recólitur cœna novíssima,
 Qua Christus créditur agnum et ázyma
+Dedísse frátribus, juxta legítima
+Priscis indúlta pátribus.
+
+Post agnum týpicum, explétis épulis,
+Corpus Domínicum datum discípulis,
+Sic totum ómnibus, quod totum síngulis,
+Ejus fatémur mánibus.
+
+Dedit fragílibus córporis férculum,
+Dedit et trístibus sánguinis póculum,
+Dicens: Accípite quod trado vásculum;
+Omnes ex eo bíbite.
+
+Sic sacrifícium istud instítuit,
+Cujus offícium commítti vóluit
+Solis presbýteris, quibus sic cóngruit,
+Ut sumant, et dent céteris.
+
+Panis angélicus fit panis hóminum;
+Dat panis cælicus figúris términum;
+O res mirábilis: mandúcat Dóminum
+Pauper, servus et húmilis.
+
+Te, trina Déitas únaque, póscimus:
+Sic nos tu vísita, sicut te cólimus;
+Per tuas sémitas duc nos quo téndimus,
+Ad lucem, quam inhábitas. Amen.
+
+#### In I Nocturno
+
+**Ant.** Fructum salutíferum \* gustándum dedit Dóminus mortis suæ témpore.
+
+##### Psalmus 1
+
+BEátus vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** Fructum salutíferum gustándum dedit Dóminus mortis suæ témpore.
+
+**Ant.** A fructu fruménti \* et vini multiplicáti fidéles

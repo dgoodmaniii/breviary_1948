@@ -42916,3 +42916,29 @@ NE quisquam putáret saltem parvum áliquem fructum posse a semetípso pálmitem
 {RUBRIC: Feria III et VI infra hebdomadam I et II post Octavam Paschæ quoties in I Nocturno Lectiones fuerint de Scriptura occurrenti cum suis Responsoriis de Tempore, loco præcedentis Responsorii dicitur sequens}
 
 ℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur in gáudium, allelúja, allelúja.
+
+###### Lectio viii
+
+VERUM, quia ita sine ista grátia non potest vívi, ut et mors in potestáte sit líberi arbítrii: Si quis in me, inquit, non mánserit, mittétur foras sicut palmes, et aréscet; et cólligent eum, et in ignem mittent, et ardet. Ligna ítaque vitis tanto sunt contemptibilióra, si in vite non mánserint, quanto gloriosióra, si mánserint. Dénique, sicut de his étiam per Ezechiélem Prophétam Dóminus dicit, præcísa nullis agricolárum úsibus prosunt, nullis fabrílibus opéribus deputántur. Unum de duóbus pálmiti cóngruit, aut vitis, aut ignis: si in vite non est, in igne erit. Ut ergo in igne non sit, in vite sit.
+
+℟. Cándidi facti sunt Nazarǽi ejus, allelúja; splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+SI manséritis in me, inquit, et verba mea in vobis mánserint, quodcúmque voluéritis petétis, et fiet vobis. Manéndo quippe in Christo, quid velle possunt, nisi quod cónvenit Christo? Quid velle possunt manéndo in Salvatóre, nisi quod non est aliénum a salúte? Aliud quippe vólumus quia sumus in Christo, et áliud vólumus quia sumus adhuc in hoc sǽculo. De mansióne namque hujus sǽculi nobis aliquándo subrépit, ut hoc petámus, quod nobis non expedíre nescímus. Sed absit ut fiat nobis, si manémus in Christo, qui non facit, quando pétimus, nisi quod éxpedit nobis.
+
+{RUBRIC: Te Deum.}
+
+---
+
+# Commune Confessoris Pontificis
+
+##### In I Vesperis
+
+**Ant. 1** Ecce sacérdos magnus, \* qui in diébus suis plácuit Deo, et invéntus est justus. (T. P. Allelúja.)
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolorum. [4]}
+
+**2** Non est invéntus \* símilis illi, qui conserváret legem Excélsi. (T. P. Allelúja.)
+
+**3** Ideo jurejurándo \* fecit illum Dóminus créscere in plebem suam. (T. P. Allelúja.)

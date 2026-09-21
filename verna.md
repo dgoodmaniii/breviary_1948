@@ -31072,4 +31072,38 @@ SANCTISSIMÆ Genitrícis tuæ Sponsi, quǽsumus, Dómine, méritis adjuvémur: u
 
 {RUBRIC: Tempore Paschali}
 
-℟. br. Constítuit eum dóminum domus suæ, \* Allelúja, allelúja. Constítuit. ℣. Et príncipem omnis possessiónis suæ. Allelúja, allelúja. Glória Patri.
+℟. br. Constítuit eum dóminum domus suæ, \* Allelúja, allelúja. Constítuit. ℣. Et príncipem omnis possessiónis suæ. Allelúja, allelúja. Glória Patri. Constítuit. ℣. Magna est glória ejus in salutári tuo, allelúja. ℟. Glóriam et magnum decórem impónes super eum, allelúja.
+
+###### Oratio
+
+SANCTISSIMÆ Genitrícis tuæ Sponsi, quǽsumus, Dómine, méritis adjuvémur: ut, quod possibílitas nostra non óbtinet, ejus nobis intercessióne donétur: Qui vivis.
+
+##### Ad Sextam
+
+**Ant.** Non inveniéntes \* Jesum, regréssi sunt in Jerúsalem requiréntes eum; et post tríduum invenérunt illum in templo sedéntem in médio doctórum, audiéntem et interrogántem eos. {RUBRIC: (T. P. Allelúja.)}
+
+**Capit.** *Eccli. 45, 1 et 4*
+
+DILECTUS Deo et homínibus, cujus memória in benedictióne est. In fide et lenitáte ipsíus sanctum fecit illum, et elégit eum ex omni carne.
+
+℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna. ℣. Justus germinábit sicut lílium. ℟. Et florébit in ætérnum ante Dóminum.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Magna est glória ejus in salutári tuo, \* Allelúja, allelúja. Magna. ℣. Glóriam et magnum decórem impónes super eum. Allelúja, allelúja. Glória Patri. Magna. ℣. Justus germinábit sicut lílium, allelúja. ℟. Et florébit in ætérnum ante Dóminum, allelúja.
+
+##### Ad Nonam
+
+**Ant.** Descéndit Jesus \* cum eis, et venit Názareth, et erat súbditus illis. {RUBRIC: (T. P. Allelúja.)}
+
+###### Capitulum
+
+*Sap. 10, 10*
+
+PROFUGUM justum dedúxit Sapiéntia per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum: honestávit illum in labóribus, et complévit labóres illíus.
+
+℟. br. Justus germinábit \* Sicut lílium. Justus. ℣. Et florébit in ætérnum ante Dóminum. Sicut. Glória. Justus. ℣. Plantátus in domo Dómini. ℟. In átriis domus Dei nostri.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Justus germinábit sicut lílium, \* Allelúja, allelúja. Justus. ℣. Et florébit in ætérnum ante Dóminum. Allelúja, allelúja. Glória Patri. Justus. ℣. Plantátus in domo Dómini.

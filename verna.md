@@ -40848,3 +40848,39 @@ GREGEM tuum, Pastor ætérne, placátus inténde: et per beátos N. et N. (Márt
 ###### Oratio
 
 DEUS, qui Ecclésiam tuam in apostólicæ petræ soliditáte fundátam, ab infernárum éruis terróre portárum: præsta, quǽsumus, ut, intercedénte beáto N. (Mártyre tuo atque) Summo Pontífice, in tua veritáte pérsistens, contínua securitáte muniátur. Per Dóminum.
+
+##### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+**Lectio vii** *Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ}
+
+{RUBRIC: Sermo 2 in anniversário}
+
+{RUBRIC: assumpt. suæ, ante médium}
+
+CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens: Tu es Christus Fílius Dei vivi; Dóminus ait: Beátus es, Simon Bar-Jona, quia caro et sánguis non revelávit tibi, sed Pater meus, qui in cælis est: et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam. Et tibi dabo claves regni cælórum: et quodcúmque ligáveris super terram, erit ligátum et in cælis: et quodcúmque sólveris super terram, erit solútum et in cælis. Manet ergo dispositío veritátis, et beátus Petrus, in accépta fortitúdine petræ persevérans, suscépta Ecclésiæ gubernácula non relíquit.
+
+{RUBRIC: Pro Pontifice Mart.}
+
+{RUBRIC: extra Tempus Paschale:}
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis.
+
+{RUBRIC: Pro pluribus Pont. Mart.}
+
+{RUBRIC: extra Tempus Paschale:}
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+{RUBRIC: Pro uno vel plúribus Pont.}
+
+{RUBRIC: Mart. Tempore Paschali:}
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Feria III et VI infra hebdómadam I et II post Octávam Paschæ quóties in I Nocturno Lectiónes fúerint de Scriptúra

@@ -29252,4 +29252,41 @@ HOC vitæ institútum quam sibi foret accéptum Deus miráculo osténdit. Nam cu
 
 ###### Lectio vi
 
-PORRO sancti illi viri, cum plures sibi sócios adjunxíssent, Itáliæ civitátes atque óppida, præsértim Etrúriæ, excúrrere cœpérunt, prædicántes ubíque Christum crucifíxum, civíles discórdias compescéntes et innúmeros fere dévios ad virtútis sémitam revocántes. Neque Itáliam modo, sed et Gálliam, Germániam ac Polóniam suis evangélicis labóribus excoluérunt. Dénique cum bonum Christi odórem longe latéque diffudíssent, portentórum quoque glória illústres,
+PORRO sancti illi viri, cum plures sibi sócios adjunxíssent, Itáliæ civitátes atque óppida, præsértim Etrúriæ, excúrrere cœpérunt, prædicántes ubíque Christum crucifíxum, civíles discórdias compescéntes et innúmeros fere dévios ad virtútis sémitam revocántes. Neque Itáliam modo, sed et Gálliam, Germániam ac Polóniam suis evangélicis labóribus excoluérunt. Dénique cum bonum Christi odórem longe latéque diffudíssent, portentórum quoque glória illústres, migrárunt ad Dóminum. Sed quos unus veræ fraternitátis ac religiónis amor in vita sociáverat, unum páriter demórtuos contéxit sepúlcrum, únaque pópuli venerátio prosecúta est. Quaprópter Clemens undécimus et Benedíctus décimus tértius Pontífices máximi delátum iísdem a plúribus sǽculis indivíduum cultum confirmárunt; ac Leo décimus tértius, approbátis ántea miráculis, post indúltam venerationem ad collectívam eorúmdem invocatiónem a Deo patrátis, eósdem anno quinquagésimo sacerdótii sui Sanctórum honóribus cumulávit, eorúmque memóriam Offício ac Missa in univérsa Ecclésia quotánnis recoléndam instítuit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: In III Nocturno Homilía in Evangélium Ecce nos relíquimus, de Communi Abbátum 1 loco. [125]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+**Capitulum** *1 Petri 4, 13*
+
+CARISSIMI: Communicántes Christi passiónibus gaudéte, ut et in revelatióne glóriæ ejus gaudeátis exsultántes.
+
+###### Hymnus
+
+SIC patres vitam pérágunt in umbra,
+Lília ut septem nívei decóris,
+Vírgini excélsæ bene grata, Petro
+    Visa nitére.
+
+Jamque divína rapiénte flamma,
+Cúrsitant urbes, loca quǽque obérrant,
+Si queant cunctis ánimis dolóres
+    Fígere Matris.
+
+Hinc valent iras domuísse cæcas,
+Néscia et pacis fera corda jungunt,
+Erigunt mæstos, révocant nocéntes
+    Dicta piórum.
+
+At suos Virgo comitáta Servos
+Evéhit tandem súperas ad oras;
+Gémmeis sertis décorat per ævum
+    Omne beátos.
+
+Eja nunc cœtus gémitum precántis
+Audiant, duros vídeant labóres:

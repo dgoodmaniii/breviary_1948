@@ -18603,3 +18603,31 @@ VOluit ergo Sálomon interfícere Jeróboam, qui surréxit et aufúgit in Ægýp
 VEnit autem Róboam in Sichem; illuc enim congregátus erat omnis Israël ad constituéndum eum regem. At vero Jeróboam fílius Nabat, cum adhuc esset in Ægýpto prófugus a fácie regis Salomónis, audíta morte ejus, revérsus est de Ægýpto. Miserúntque et vocavérunt eum. Venit ergo Jeróboam et omnis multitúdo Israël, et locúti sunt ad Róboam dicéntes: Pater tuus duríssimum jugum impósuit nobis; tu ítaque nunc immínue páululum de império patris tui duríssimo et de jugo gravíssimo, quod impósuit nobis, et serviémus tibi. Qui ait eis: Ite usque ad tértium diem, et revertímini ad me.
 
 ℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et liberábit.
+
+##### Lectio ii
+
+CUmque abiísset pópulus, íniit consílium rex Róboam cum senióribus, qui assistébant coram Salomóne patre ejus, cum adhuc víveret, et ait: Quod datis mihi consílium ut respóndeam pópulo huic? Qui dixérunt ei: Si hódie obedíeris pópulo huic et servíeris et petitióni eórum césseris locutúsque fúeris ad eos verba lénia, erunt tibi servi cunctis diébus. Qui derelíquit consílium senum, quod déderant ei, et adhíbuit adoléscéntes, qui nutríti fúerant cum eo et assistébant illi.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+*Cap. 12, 13-16*
+
+REspondítque rex pópulo dura, derelícto consílio seniórum quod ei déderant, et locútus est eis secúndum consílium júvenum dicens: Pater meus aggravávit jugum vestrum, ego autem addam jugo vestro; pater meus cecídit vos flagéllis, ego autem cædam vos scorpiónibus. Et non acquiévit rex pópulo, quóniam aversátus fúerat eum Dóminus, ut suscitáret verbum suum, quod locútus fúerat in manu Ahíæ Silonítæ ad Jeróboam fílium Nabat. Videns ítaque pópulus, quod noluísset eos audíre rex, respóndit ei dicens: Quæ nobis pars in David? vel quæ heréditas in fílio Isaï?
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 14, 5-12*
+
+DIxit autem Dóminus ad Ahíam: Ecce uxor Jeróboam ingréditur ut cónsulat te super fílio suo, qui ægrótat: hæc et hæc loquéris ei. Cum ergo illa intráret et dissimuláret se esse quæ erat, audívit Ahías sónitum pedum ejus introeúntis per óstium et ait: Ingrédere, uxor Jeróboam; quare áliam te esse

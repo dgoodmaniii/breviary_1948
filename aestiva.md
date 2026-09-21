@@ -17863,3 +17863,29 @@ REspóndens autem David Rechab et Báana fratri ejus fíliis Remmon Berothítæ 
 ET venérunt univérsæ tribus Israël ad David in Hebron dicéntes: Ecce nos os tuum et caro tua sumus. Sed et heri et nudiustértius, cum esset Saul rex super nos, tu eras edúcens et redúcens Israël; dixit autem Dóminus ad te: Tu pasces pópulum meum Israël et tu eris dux super Israël. Venérunt quoque et senióres Israël ad regem in Hebron, et percússit cum eis rex David fœdus in Hebron coram Dómino, unxerúntque David in regem super Israël. Fílius trigínta annórum erat David, cum regnáre cœpísset, et quadragínta annis regnávit. In Hebron regnávit super Judam septem annis et sex ménsibus, in Jerúsalem autem regnávit trigínta tribus annis super omnem Israël et Judam. Et ábiit rex et omnes viri, qui erant cum eo, in Jerúsalem ad Jebusǽum habitatórem terræ, dictúmque est David ab eis: Non ingrediéris huc nisi abstúleris cæcos et claudos dicéntes: Non ingrediétur David huc. Cepit autem David arcem Sion, hæc est cívitas David.
 
 ℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 6, 1-12*
+
+COngregávit autem rursum David omnes eléctos ex Israël trigínta míllia. Surrexítque David et ábiit et univérsus pópulus qui erat cum eo de viris Juda, ut addúcerent arcam Dei, super quam invocátum est nomen Dómini exercítuum, sedéntis in Chérubim super eam. Et imposuérunt arcam Dei super plaustrum novum tulerúntque eam de domo Abínadab, qui erat in Gábaa; Oza autem et Ahío fílii Abínadab minábant plaustrum novum.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+CUmque tulíssent eam de domo Abínadab, qui erat in Gábaa custódiens arcam Dei, Ahío præcedébat arcam. David autem et omnis Israël ludébant coram Dómino in ómnibus lignis fabrefáctis et cítharis et lyris et týmpanis et sistris et cýmbalis. Postquam autem venérunt ad áream Nachon, exténdit Oza manum ad arcam Dei et ténuit eam, quóniam calcitrábant boves et declinavérunt eam. Iratúsque est indignatióne Dóminus contra Ozam et percússit eum super temeritáte, qui mórtuus est ibi juxta arcam Dei.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+COntristátus est autem David eo quod percussísset Dóminus Ozam; et vocátum est nomen loci illíus: Percússio Ozæ, usque in diem hanc. Et extímuit David Dóminum in die illa dicens: Quómodo ingrediétur ad me arca Dómini? Et nóluit divértere ad se arcam Dómini in civitátem David; sed divértit eam in domum Obédedom Gethǽi. Et habitávit arca Dómini in domo Obédedom Gethǽi tribus ménsibus, et benedíxit Dóminus Obédedom et omnem domum ejus. Nuntiatúmque est regi

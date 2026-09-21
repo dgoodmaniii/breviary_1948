@@ -16872,4 +16872,28 @@ AT certe inter cétera illa, quæ próprie ad Sacratíssimi Cordis cultum pérti
 
 ##### Lectio v
 
-QUodsi ad utrámque rem iísdem prorsus ratiónibus impéllimur, reparándi tamen expiandíque offício ob validiórem quemdam justítiæ et amóris título tenémur: justítiæ quidem, ut irrogáta Deo nostris flagítiis expiétur offénsa et violátus ordo pæniténtia redintegrétur; amóris vero, ut Christo patiénti ac «saturáto oppróbriis» compatiámur eíque nonníhil solácii pro tenuitáte nostra afferámus. Peccatóres enim cum simus omnes, multísque oneráti culpis, non eo solo cultu Deus noster nobis est honorándus, quo vel ejus summam Majestátem débitis obséquiis adorémus, vel ejus suprémum domínium precándo agnoscámus, vel ejus infinítam largitátem gratiárum actiónibus laudémus; sed præ-
+QUodsi ad utrámque rem iísdem prorsus ratiónibus impéllimur, reparándi tamen expiandíque offício ob validiórem quemdam justítiæ et amóris título tenémur: justítiæ quidem, ut irrogáta Deo nostris flagítiis expiétur offénsa et violátus ordo pæniténtia redintegrétur; amóris vero, ut Christo patiénti ac «saturáto oppróbriis» compatiámur eíque nonníhil solácii pro tenuitáte nostra afferámus. Peccatóres enim cum simus omnes, multísque oneráti culpis, non eo solo cultu Deus noster nobis est honorándus, quo vel ejus summam Majestátem débitis obséquiis adorémus, vel ejus suprémum domínium precándo agnoscámus, vel ejus infinítam largitátem gratiárum actiónibus laudémus; sed prætérea Deo justo víndici satisfaciámus opórtet «pro innumerabílibus peccátis et offensiónibus et negligéntiis» nostris. Consecratióni ígitur, qua Deo devovémur et sancti Deo vocámur, ea sanctitáte ac firmitáte quæ, ut docet Angélicus, consecratiónis est própria, addénda est expiátio, qua pénitus peccáta exstinguántur, ne forte indignitátem nostram impudéntem revérberet summæ justítiæ sánctitas, munúsque nostrum pótius árceat invísum quam gratum suscípiat.
+
+℟. Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus \* Et revelásti ea párvulis. ℣. Ita, Pater, quóniam sic fuit plácitum ante te. — Et.
+
+##### Lectio vi
+
+HOC autem expiatiónis offícium humáno géneri univérso incúmbit, quippe quod, ut christiána docémur fide, post Adæ miserándum casum, hereditária labe infectum, concupiscéntiis obnóxium et misérrime depravátum, in perníciem detrudéndum fuísset sempitérnam. Id quidem supérbi hac nostra ætáte sapiéntes, véterem Pelágii errórem secúti, infíciántur, natívam quamdam virtútem humánæ natúræ jactántes quæ suápte vi ad altióra usque progrediátur; sed falsa hæc humánæ supérbiæ comménta réjicit Apóstolus, illud nos ádmonens: «natúra erámus fílii iræ». Et sane jam ab inítio commúnis illíus expiatiónis débitum quasi agnovére hómines et Deo sacrifíciis vel públicis placándo, naturáli quodam sensu ducti, óperam dare coepérunt.
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum, quóniam magnus es tu, et fáciens mirabília. — Et adorábunt. Glória Patri. Et.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio vii
+
+*Cap. 15, 1-10*
+
+IN illo témpore: Erant appropinquántes ad Jesum publicáni et peccatóres, ut audírent illum. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 34 in Evang., n. 2-3}
+
+AUdístis in lectióne evangélica, fratres mei, quia peccatóres et publicáni accés-

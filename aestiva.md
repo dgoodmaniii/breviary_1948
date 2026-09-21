@@ -1175,3 +1175,45 @@ Præstet hoc nobis Déitas beáta
 Patris, ac Nati, paritérque Sancti
 Spíritus, cujus résonat per omnem
 Glória mundum. Amen.
+
+### In I Nocturno
+
+**Ant.** Beátus vir. †
+
+{RUBRIC: ¶ Et non repetitur in Psalmo; quod semper fit, quando Antiphona incipit a primis Psalmi vel Cantici verbis. Et Psalmus vel Canticum tunc incipitur ab eo verbo, ante quod vel inchoata vel integra desinit Antiphona; si tamen eadem sint verba, et continuetur Antiphona cum Psalmo vel Cantico, neque additur in fine ipsius Antiphonæ Allelúja.}
+
+{RUBRIC: Antiphonæ autem cum Psalmis et Versibus assignátæ, adhibéntur semper, extra Octávas Ssmi Córporis Christi et Sacrat. Cordis Jesu, quando fit Offícium de Domínica.}
+
+{RUBRIC: ¶ Asteriscus \*, in Psalmorum versibus et in aliis Officii partibus insertus, denotat pausam cantus et recitationis in Choro; præter quam in Antiphonis, in quibus nempe significat tum præintonationem Antiphonæ, tum Antiphonam ipsam ante Psalmum seu Canticum eousque producendam esse ad omnes et singulas Horas in Officio ritus semiduplicis ac simplicis, atque ad Horas tantum minores in Officio ritus duplicis.}
+
+###### Psalmus 1
+
+BEATUS vir, † qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+Glória Patri, et Fílio, \* et Spirítui Sancto.
+
+Sicut erat in princípio, et nunc, et semper, \* et in sæcula sæculórum. Amen.
+
+{RUBRIC: ¶ Hic versus Glória Patri semper dícitur in fine ómnium Psalmórum et Canticórum, nisi áliter notétur.}
+
+**Ant.** Beátus vir, qui in lege Dómini meditátur.
+
+**Ant.** Servíte Dómino.
+
+###### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.

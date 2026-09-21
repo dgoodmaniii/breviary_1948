@@ -24206,4 +24206,34 @@ PETRUS autem et Joánnes ascendébant in templum ad horam oratiónis nonam. Et q
 
 #### Lectio ii
 
-ET, apprehénsa manu ejus déxtera, allevávit eum, et prótinus consolidátæ sunt bases ejus et plantæ. Et exsíliens stetit, et ambulábat; et intrávit cum illis in templum ambulans, et exsíliens, et laudans Deum. Et vidit omnis pópulus eum ambulántem, et laudántem Deum. Cognoscébant autem illum, quod ipse erat,
+ET, apprehénsa manu ejus déxtera, allevávit eum, et prótinus consolidátæ sunt bases ejus et plantæ. Et exsíliens stetit, et ambulábat; et intrávit cum illis in templum ambulans, et exsíliens, et laudans Deum. Et vidit omnis pópulus eum ambulántem, et laudántem Deum. Cognoscébant autem illum, quod ipse erat, qui ad eleemósynam sedébat ad Speciósam portam templi: et impléti sunt stupóre et éxtasi in eo, quod contígerat illi. Cum tenéret autem Petrum et Joánnem, cucúrrit omnis pópulus ad eos ad pórticum, quæ appellátur Salomónis, stupéntes.
+
+℟. Surréxit pastor bonus, qui ánimam suam pósuit pro óvibus suis, et pro grege suo mori dignátus est: \* Allelúja, allelúja, allelúja. ℣. Etenim Pascha nostrum immolátus est Christus. — Allelúja.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Allelúja.
+
+#### Lectio iii
+
+VIDENS autem Petrus, respóndit ad pópulum: Viri Israëlítæ, quid mirámini in hoc, aut nos quid intuémini, quasi nostra virtúte aut potestáte fecérimus hunc ambuláre? Deus Abraham, et Deus Isaac, et Deus Jacob, Deus patrum nostrórum glorificávit Fílium suum Jesum, quem vos quidem tradidístis, et negástis ante fáciem Piláti, judicánte illo dimítti. Vos autem Sanctum et Justum negástis, et petístis virum homicídam donári vobis: auctórem vero vitæ interfecístis, quem Deus suscitávit a mórtuis, cujus nos testes sumus. Et in fide nóminis ejus, hunc, quem vos vidístis et nostis, confirmávit nomen ejus: et fides, quæ per eum est, dedit íntegram sanitátem istam in conspéctu ómnium vestrum.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+**Ad Bened. Ant.** Ego sum vitis vera, \* allelúja: et vos pálmites veri, allelúja.
+
+**Ad Magnif. Ant.** Quia vidísti me, \* Thoma, credidísti: beáti qui non vidérunt, et credidérunt, allelúja.
+
+---
+
+## Feria Quinta
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 5, 1-16*
+
+VIR autem quidam, nómine Ananías, cum Saphíra uxóre sua vén-

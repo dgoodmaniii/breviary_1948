@@ -38927,3 +38927,47 @@ PACIFICI autem in semetípsis sunt, qui omnes ánimi sui motus componéntes, et 
 DE hujúsmodi regno pacatíssimo et ordinatíssimo missus est foras princeps hujus sæculi, qui pervérsis inordinatísque dominátur. Hac pace intrínsecus constitúta atque firmáta, quascúmque persecutiónes ille, qui foras missus est, forínsecus concitáverit, auget glóriam, quæ secúndum Deum est; non áliquid in illo ædifício labefáctans, sed deficiéntibus máchinis suis innotéscere fáciens, quanta firmitas intus exstrúcta sit. Ideo séquitur: Beáti, qui persecutiónem patiúntur propter justítiam; quóniam ipsórum est regnum cælórum.
 
 {RUBRIC: Te Deum.}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui multitúdinem populórum, beáti Bonifátii Mártyris tui atque Pontíficis zelo, ad agnitiónem tui nóminis vocáre dignátus es: concéde propítius; ut, cujus solémnia cólimus, étiam patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 6 Junii
+
+#### S. Norberti
+
+{RUBRIC: Episcopi et Confessoris}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Norbértum, Confessórem tuum atque Pontíficem, verbi tui præcónem exímium effecísti, et per eum Ecclésiam tuam nova prole fœcundásti: præsta, quǽsumus; ut, ejúsdem suffragántibus méritis, quod ore simul et ópere dócuit, te adjuvánte exercére valeámus. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedentis:}
+
+**Ant.** Sancti et justi, in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Deus, qui multitúdinem, ut supra.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+NORBERTUS, nobilíssimis paréntibus natus, adoléscens liberálibus disciplínis erudítus, in ipsa póstea imperatóris aula, spretis mundi illécebris, ecclesiásticæ milítiæ adscríbi vóluit. Sacris initiátus, rejéctis móllibus ac spléndidis véstibus, pellícea melóte indútus, prædicatióni verbi Dei se totum dedit. Abdicátis ecclesiásticis provéntibus satis amplis, et património in páuperes erogáto, semel in die sub vésperam solo cibo quadragesimáli utens, nudísque pédibus et lácera ve-

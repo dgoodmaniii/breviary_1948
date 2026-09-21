@@ -46452,4 +46452,30 @@ APERUIT Zachǽus divítibus quibúsque cæléstem jánuam, dum eos dócuit hoc i
 
 ###### Lectio viii
 
-ZACHÆUS ergo, cum esset publicánus, et pecúnias fænerándo magnas divítias usurárum fraude quæsísset, súbito videns Christum, ita convérsus est, ut majóri concupiscéntia grátiam spirituálem quǽreret, quam quæsíerat pecúniam sæculárem. Ita, inquam, convérsus est, ut anteácta sua respíciens, fraudes suas ipse damnáret, et emúndans concupiscéntiam, emundáret et prímitus consciéntiam. Ait enim: Ecce dimídium bo-
+ZACHÆUS ergo, cum esset publicánus, et pecúnias fænerándo magnas divítias usurárum fraude quæsísset, súbito videns Christum, ita convérsus est, ut majóri concupiscéntia grátiam spirituálem quǽreret, quam quæsíerat pecúniam sæculárem. Ita, inquam, convérsus est, ut anteácta sua respíciens, fraudes suas ipse damnáret, et emúndans concupiscéntiam, emundáret et prímitus consciéntiam. Ait enim: Ecce dimídium bonórum meórum do paupéribus, et si cui quid tuli, quádruplum reddo.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+DICET fortásse áliquis, cur vir sanctus et Salvatórem præséntem videns, non totum paupéribus, sed dimídium sit largítus; quia scriptum est: Si vis perféctus esse, vende ómnia tua, et da paupéribus, et veni, séquere me. Verum, si diligénter atténdas, iste persecútus est, quia non dimídium, sed totum dedit. Nam tolle aliéna de médio, et Zachǽo nihil rémanet. Dénique vir justus, ut accépta esset ejus liberálitas, scivit juste dispónere, scílicet aliéna restituéndo. Hæc est enim apud Dóminum grata eleemósyna, quæ ex vernácula exhibétur substántia, non quæ fraudulénta præda tribúitur.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## Die V infra Octavam Dedicationis Ecclesiæ
+
+{RUBRIC: Semiduplex}
+
+##### In II Nocturno
+
+De Sermóne sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 256 de Tempore}
+
+###### Lectio iv
+
+MODO, quando impléntur ecclésiæ, quid putámus jucundári Judǽos? Ecclésiæ ædificántur, dedicántur, impléntur; quómodo illi jucundántur? Non solum non jucundántur, sed étiam confundúntur, et implétur vox exsultántis: Exaltábo te, Dómine, quóniam suscepísti me: et non jucundásti inimícos meos super me. Non jucundásti super me: si mihi credant, jucundábis in me. Ne multa dicámus, ad illa, quæ cantávimus, aliquándo veniámus. Quómodo dicit Christus: Conscidísti saccum meum, et accinxísti me lætítia? Saccus ejus erat similitúdo carnis peccáti.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. (T. P. Allelúja.) ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.

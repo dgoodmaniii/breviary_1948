@@ -42169,4 +42169,44 @@ Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in 
 
 Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
 
-Flúminis ímpetus lætíficat civitátem Dei: \*
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Ecce, merces Sanctórum copiósa est apud Deum: ipsi vero mórtui sunt pro Christo, et vivent in ætérnum.
+
+℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Lucam
+
+**Lectio vii** *Cap. 21, 9-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum audiéritis prǽlia, et seditiónes, nolíte terréri: opórtet primum hæc fíeri, sed nondum statim finis. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilía 35 in Evangelia}
+
+DOMINUS ac Redémptor noster peritúri mundi præcurréntia mala denúntiat, ut eo minus pertúrbent veniéntia, quo fúerint præscíta. Minus enim jácula fériunt, quæ prævidéntur; et nos tolerabílius mundi mala suscípimus, si contra hæc per præsciéntiæ clýpeum munímur. Ecce enim dicit: Cum audiéritis prǽlia et seditiónes, nolíte terréri; opórtet enim primum hæc fíeri, sed nondum statim finis. Pensánda sunt verba Redemptóris nostri, per quæ nos áliud intérius, áliud extérius passúros esse denúntiat. Bella quip-

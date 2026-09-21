@@ -47874,4 +47874,62 @@ QUASI cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion: quasi 
 
 **4** Benedícta \* fília tu a Dómino: quia per te fructum vitæ communicávimus.
 
-**5** Pulchra es \* et decóra, fília Jerúsalem, terríbilis
+**5** Pulchra es \* et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+###### Capitulum
+
+*Cant. 6, 8*
+
+VIDERUNT eam fíliæ Sion, et beatíssimam prædicavérunt, et regínæ laudavérunt eam. ℟. Deo grátias.
+
+**Hymnus** O gloriósa. [214]
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Bened. Ant.** Beáta Dei Génitrix, María, \* Virgo perpétua, templum Dómini, sacrárium Spíritus Sancti, sola sine exémplo placuísti Dómino nostro Jesu Christo: ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio de Sanctis, ut supra ad Vesperas. [217]}
+
+##### Ad Primam
+
+Ave María, ut supra.
+
+℣. Deus, in adjutórium.
+
+###### Hymnus
+
+MEMENTO, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+María, Mater grátiæ,
+Dulcis Parens cleméntiæ,
+Tu nos ab hoste prótege
+Et mortis hora súscipe.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+**Ant.** Assúmpta est María in cælum.
+
+{RUBRIC: Ps. 53} Deus in nómine tuo 193; {RUBRIC: Ps. 84} Benedixísti 264; {RUBRIC: Ps. 116} Laudáte Dóminum, omnes gentes. 92
+
+**Ant.** Assúmpta est María in cælum: gaudent Angeli, laudántes benedícunt Dóminum.
+
+###### Capitulum
+
+*Cant. 6, 9*
+
+QUÆ est ista, quæ progréditur quasi auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta? ℟. Deo grátias.

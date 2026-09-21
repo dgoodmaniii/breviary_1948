@@ -38456,4 +38456,16 @@ NEQUE accéndunt lucérnam, et ponunt eam sub módio, sed super candelábrum. Su
 
 ###### Lectio ix
 
-JOANNES Etrúscus, Justíno senióre imperatóre, rexit Ecclésiam; ad quem proféctus est Constantinópolim auxílii causa, quod Theodorícus rex hæréticus divexábat Itáliam. Cujus étiam iter Deus miráculis illustrávit. Nam, cum ei nóbilis vir
+JOANNES Etrúscus, Justíno senióre imperatóre, rexit Ecclésiam; ad quem proféctus est Constantinópolim auxílii causa, quod Theodorícus rex hæréticus divexábat Itáliam. Cujus étiam iter Deus miráculis illustrávit. Nam, cum ei nóbilis vir ad Corínthum, equum, quo ejus uxor mansuéto utebátur, itíneris causa commodásset, factum est, ut dómino póstea remíssus equus ita ferox eváderet, ut frémitu et totíus córporis agitatióne semper deínceps dóminam expúlerit; tamquam indignarétur mulíerem recípere, ex quo sedísset in eo Jesu Christi Vicárius. Quam ob rem illi equum Pontífici donavérunt. Sed illud majus miráculum, quod Constantinópoli, in áditu portæ Aureæ, inspectánte frequentíssimo pópulo, qui una cum imperatóre Pontífici honóris causa occúrrerat, cæco lumen restítuit. Ad cujus pedes prostrátus étiam imperátor, eum venerátus est. Rebus cum imperatóre compósitis, in Itáliam rédiit, statímque epístolam scripsit ad omnes Itáliæ epíscopos, jubens eos Arianórum ecclésias ad cathólicum ritum consecráre, illud subjúngens: Quia et nos, quando fúimus Constantinópoli tam pro religióne cathólica quam pro regis Theodoríci causa, quascúmque illis in pártibus eórum ecclésias reperíre potúimus, cathólicas eas consecrávimus. Quod iniquíssimo ánimo ferens Theodorícus, dolo accersítum Pontíficem Ravénnam in cárcerem conjécit; ubi, squalóre inediáque afflíctus, paucis diébus cessit e vita, cum sedísset annos duos, menses novem, dies quatuórdecim, ordinátis eo témpore epíscopis quíndecim. Paulo post móritur Theodorícus: quem quidam eremíta, ut scribit sanctus Gregórius, vidit inter Joánnem Pontíficem et Sýmmachum patrícium, quem idem occíderat, demérgi in ignem Liparitánum; ut vidélicet illi, quibus mortem attúlerat, tamquam júdices essent ejus intéritus. Joánnis corpus Ravénna Romam portátum est, et in basílica sancti Petri sepúltum.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne clarificas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.

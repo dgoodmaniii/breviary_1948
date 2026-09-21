@@ -5984,3 +5984,55 @@ Hæc ómnia venérunt super nos, nec oblíti sumus te: \* et iníque non égimus
 Et non recéssit retro cor nostrum: \* et declinásti sémitas nostras a via tua:
 
 Quóniam humiliásti nos in loco afflictiónis, \* et coopéruit nos umbra mortis.
+
+### Psalmus 43, iii
+
+SI oblíti sumus nomen Dei nostri, \* et si expándimus manus nostras ad deum aliénum:
+
+Nonne Deus requíret ista? \* ipse enim novit abscóndita cordis.
+
+Quóniam propter te mortificámur tota die: \* æstimáti sumus sicut oves occisiónis.
+
+Exsúrge, quare obdórmis, Dómine? \* exsúrge, et ne repéllas in finem.
+
+Quare fáciem tuam avértis, \* oblivísceris inópiæ nostræ, et tribulatiónis nostræ?
+
+Quóniam humiliáta est in púlvere ánima nostra: \* conglutinátus est in terra venter noster.
+
+Exsúrge, Dómine, ádjuva nos: \* et rédime nos propter nomen tuum.
+
+**Ant.** Salvásti nos, Dómine: et in nómine tuo confitébimur in sæcula.
+
+#### In Officio feriali
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Qui hábitas in cælis, \* miserére nobis.
+
+### Psalmus 122
+
+AD te levávi óculos meos, \* qui hábitas in cælis.
+
+Ecce, sicut óculi servórum \* in mánibus dominórum suórum.

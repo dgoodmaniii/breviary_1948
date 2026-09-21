@@ -47029,4 +47029,24 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 
 *Cap. 8, 12-25*
 
-EGO sapiéntia hábito in consílio, et erudítis intérsum cogitatiónibus. Timor Dómini odit malum: arrogántiam, et supérbiam, et viam pravam, et os bilíngue detéstor. Meum est consílium et ǽquitas, mea est prudéntia, mea est fortitúdo. Per me reges regnant, et legum conditóres justa de-
+EGO sapiéntia hábito in consílio, et erudítis intérsum cogitatiónibus. Timor Dómini odit malum: arrogántiam, et supérbiam, et viam pravam, et os bilíngue detéstor. Meum est consílium et ǽquitas, mea est prudéntia, mea est fortitúdo. Per me reges regnant, et legum conditóres justa decérnunt; per me príncipes ímperant, et poténtes decérnunt justítiam. Ego diligéntes me díligo; et qui mane vígilant ad me, invénient me.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. (T. P. Allelúja.) ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+**Benedictio.** Unigénitus Dei.
+
+###### Lectio ii
+
+MECUM sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim fructus meus auro et lápide pretióso, et genímina mea argénto elécto. In viis justítiæ ámbulo, in médio semitárum judícii, ut ditem diligéntes me, et thesáuros eórum répleam. Dóminus possédit me in inítio viárum suárum, ántequam quidquam fáceret a princípio. Ab ætérno ordináta sum et ex antíquis, ántequam terra fíeret. Nondum erant abýssi, et ego jam concépta eram; necdum fontes aquárum erúperant; necdum montes gravi mole constíterant; ante colles ego parturiébar.
+
+℟. Congratulámini mihi, omnes, qui dilígitis Dóminum: quia, cum essem párvula, plácui Altíssimo, \* Et de meis viscéribus génui Deum et hóminem. (T. P. Allelúja.) ℣. Beátam me dicent omnes generatiónes, quia ancíllam húmilem respéxit Deus. — Et.
+
+**Benedictio.** Spíritus Sancti.
+
+###### Lectio iii
+
+*Cap. 8, 34-36 et 9, 1-5*
+
+BEATUS homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei. Qui me invénerit, invéniet vitam, et háuriet salútem a Dómino; qui autem in me peccáverit, lædet ánimam suam. Omnes, qui me odérunt, díligunt mortem. Sapiéntia ædificávit sibi domum, excídit colúmnas septem. Immolávit víctimas suas, míscuit vinum et propósuit mensam suam. Misit ancíllas suas, ut vocárent ad arcem et ad mœnia civitátis: Si quis est párvulus, véniat ad me. Et insipiéntibus locúta est: Veníte, comédite panem meum, et bíbite vinum quod míscui vobis.
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes Virgo. (T. P. Allelúja.) ℣. Ave, María, grátia plena; Dó-

@@ -12645,3 +12645,56 @@ Juxta est dies perditiónis, \* et adésse festínant témpora.
 Judicábit Dóminus pópulum suum, \* et in servis suis miserébitur:
 
 Vidébit quod infirmáta sit manus, \* et clausi quoque defecérunt, residuíque consúmpti sunt.
+
+Et dicet: Ubi sunt dii eórum, \* in quibus habébant fidúciam?
+
+De quorum víctimis comedébant ádipes, \* et bibébant vinum libáminum:
+
+Surgant, et opituléntur vobis, \* et in necessitáte vos prótegant.
+
+Vidéte quod ego sim solus, \* et non sit álius Deus præter me:
+
+Ego occídam, et ego vívere fáciam: percútiam, et ego sanábo, \* et non est qui de manu mea possit erúere.
+
+Levábo ad cælum manum meam, et dicam: \* Vivo ego in ætérnum.
+
+Si acúero ut fulgur gládium meum, \* et arripúerit judícium manus mea:
+
+Reddam ultiónem hóstibus meis, \* et his qui odérunt me retríbuam.
+
+Inebriábo sagíttas meas sánguine, \* et gládius meus devorábit carnes,
+
+De cruóre occisórum, \* et de captivitáte, nudáti inimicórum cápitis.
+
+Laudáte, gentes, pópulum ejus, \* quia sánguinem servórum suórum ulciscétur:
+
+Et vindíctam retríbuet in hostes eórum, \* et propítius erit terræ pópuli sui.
+
+**Ant.** In servis suis miserébitur Dóminus: \* et propítius erit terræ pópuli sui.
+
+**Ant.** Laudáte. †
+
+### Psalmus 150
+
+LAudáte † Dóminum in sanctis ejus: \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus: \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ: \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro: \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus: laudáte eum in cýmbalis jubilatiónis: \* omnis spíritus laudet Dóminum.
+
+**Ant.** Laudáte Dóminum secúndum multitúdinem magnitúdinis ejus.
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+AUróra jam spargit polum:
+Terris dies illábitur:
+Lucis resúltat spículum:
+Discédat omne lúbricum.

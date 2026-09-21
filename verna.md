@@ -42707,4 +42707,59 @@ QUID ergo est, Ego sum vitis vera? Numquid ut ádderet, vera, hoc ad eam vitem r
 
 ###### Lectio ix
 
-EGO sum, inquit, vitis vera, et Pater meus agrícola est. Numquid
+EGO sum, inquit, vitis vera, et Pater meus agrícola est. Numquid unum sunt agrícola et vitis? Secúndum hoc ergo vitis Christus, secúndum quod ait: Pater major me est. Secúndum autem id, quod ait: Ego et Pater unum sumus; et ipse agrícola est; nec talis, quales sunt, qui extrínsecus operándo éxhibent ministérium; sed talis, ut det étiam intrínsecus increméntum. Nam, neque qui plantat est áliquid, neque qui rigat; sed, qui increméntum dat, Deus. Sed útique Deus est Christus, quia Deus erat Verbum; unde ipse et Pater unum sunt. Et, si Verbum caro factum est, quod non erat, manet quod erat.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Sancti tui, \* Dómine, florébunt sicut lílium, allelúja: et sicut odor bálsami erunt ante te, allelúja.
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** In cæléstibus regnis \* Sanctórum habitátio est, allelúja: et in ætérnum réquies eórum, allelúja.
+
+**3** In velaménto \* clamábant Sancti tui, Dómine, allelúja, allelúja, allelúja.
+
+**4** Spíritus et ánimæ \* justórum, hymnum dícite Deo nostro, allelúja, allelúja.
+
+**5** Fulgébunt justi \* sicut sol in conspéctu Dei, allelúja.
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+##### Pro uno Martyre
+
+###### Hymnus
+
+INVICTE Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tædium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vínclis sǽculi
+Dono supérni Núminis.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: Ab Ascensione autem usque ad Feriam VI ante Vigiliam Pentecostes inclusive, etiam in aliis Hymnis ejusdem metri, nisi aliter notetur, dicitur:}
+
+\* Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.

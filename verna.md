@@ -21513,3 +21513,53 @@ ITAQUE quicúmque manducáverit panem hunc, vel bíberit cálicem Dómini indíg
 BENEDICTUS Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
 
 Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a sǽculo sunt, prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+{RUBRIC: †}
+
+**Ant.** Tráditor autem dedit eis signum, dicens: Quem osculátus fúero, ipse est, tenéte eum.
+
+{RUBRIC: Interim dum dícitur Cánticum Benedíctus, exstínctis prius ómnibus candélis in candelábro triangulári, præter unam, quæ pósita est in summitáte candelábri, exstínguuntur paulátim sex candélæ pósitæ a princípio supra altáre, ita ut in último versu exstinguátur última candéla; simíliter exstinguúntur lámpades et luminária per ecclésiam. Cum repétitur Antíphona Tráditor, accípitur suprema candéla ex candelábro et abscónditur sub altári in cornu Epístolæ.}
+
+{RUBRIC: Repetíta Antíphona post Benedíctus, dícitur:}
+
+**Ant.** Christus factus est \* pro nobis obédiens usque ad mortem.
+
+{RUBRIC: Secúnda nocte additur:}
+
+Mortem autem crucis.
+
+{RUBRIC: Tértia nocte additur:}
+
+Propter quod et Deus exaltávit illum, et dedit illi nomen, quod est super omne nomen.
+
+{RUBRIC: Et sic dícitur étiam per omnes Horas diéi.}
+
+{RUBRIC: Cum incípitur Antíphona Christus factus est, omnes genuflectunt: et ea finíta, dícitur Pater noster totum sub siléntio. Póstea aliquántulum áltius séquens}
+
+#### Psalmus 50
+
+MISERERE mei Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.

@@ -17888,4 +17888,26 @@ CUmque tulíssent eam de domo Abínadab, qui erat in Gábaa custódiens arcam De
 
 ##### Lectio iii
 
-COntristátus est autem David eo quod percussísset Dóminus Ozam; et vocátum est nomen loci illíus: Percússio Ozæ, usque in diem hanc. Et extímuit David Dóminum in die illa dicens: Quómodo ingrediétur ad me arca Dómini? Et nóluit divértere ad se arcam Dómini in civitátem David; sed divértit eam in domum Obédedom Gethǽi. Et habitávit arca Dómini in domo Obédedom Gethǽi tribus ménsibus, et benedíxit Dóminus Obédedom et omnem domum ejus. Nuntiatúmque est regi
+COntristátus est autem David eo quod percussísset Dóminus Ozam; et vocátum est nomen loci illíus: Percússio Ozæ, usque in diem hanc. Et extímuit David Dóminum in die illa dicens: Quómodo ingrediétur ad me arca Dómini? Et nóluit divértere ad se arcam Dómini in civitátem David; sed divértit eam in domum Obédedom Gethǽi. Et habitávit arca Dómini in domo Obédedom Gethǽi tribus ménsibus, et benedíxit Dóminus Obédedom et omnem domum ejus. Nuntiatúmque est regi David quod benedixísset Dóminus Obédedom et ómnia ejus propter arcam Dei. Abiit ergo David et addúxit arcam Dei de domo Obédedom in civitátem David cum gáudio.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 7, 4-17*
+
+ET ecce sermo Dómini ad Nathan dicens: Vade et lóquere ad servum meum David: Hæc dicit Dóminus: Numquid tu ædificábis mihi domum ad habitándum? Neque enim habitávi in domo ex die illa, qua edúxi fílios Israël de terra Ægýpti usque in diem hanc, sed ambulábam in tabernáculo et in tentório.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+PEr cuncta loca, quæ transívi cum ómnibus fíliis Israël, numquid loquens locútus sum ad unam de tríbubus Israël, cui præcépi ut pásceret pópulum meum Israël dicens: Quare non ædificástis mihi domum cédrinam? Et nunc hæc dices servo meo David: Hæc dicit Dóminus exercítuum: Ego tuli te de páscuis sequéntem greges, ut esses dux super pópulum meum Israël, et fui tecum in ómnibus, ubicúmque ambulásti et interféci univérsos inimícos tuos a fácie tua fecíque tibi nomen grande juxta nomen magnórum, qui sunt in terra. Et ponam locum pópulo meo Israël et plantábo eum, et habitábit sub eo et non turbábitur ámplius; nec addent fílii iniquitátis ut afflígant eum sicut prius, ex die qua constítui júdices super pópulum meum Israël. Et réquiem dabo tibi ab ómnibus inimícis tuis, prædicítque tibi Dóminus, quod domum fáciat tibi Dóminus.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant su-

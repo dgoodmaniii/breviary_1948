@@ -18516,4 +18516,18 @@ NOtum est enim, quibus términis regnum conclúsum fúerit Salomónis, et tamen 
 
 SEd et regína Saba, audíta fama Salomónis in nómine Dómini, venit tentáre eum in ænigmátibus. Et ingréssa Jerúsalem multo cum comitátu et divítiis, camélis portántibus arómata et aurum infinítum nimis et gemmas pretiósas, venit ad regem Salomónem et locúta est ei univérsa quæ habébat in corde suo. Et dócuit eam Sálomon ómnia verba quæ proposúerat; non fuit sermo qui regem posset latére, et non respondéret ei.
 
-℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui pec-
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut non desolétur terra, et ne perdas omnem ánimam vivam.
+
+##### Lectio ii
+
+VIdens autem regína Saba omnem sapiéntiam Salomónis et domum, quam ædificáverat, et cibos mensæ ejus et habitácula servórum et órdines ministrántium vestésque eórum et pincérnas et holocáusta, quæ offerébat in domo Dómini, non habébat ultra spíritum; dixítque ad regem: Verus est sermo, quem audívi in terra mea super sermónibus tuis et super sapiéntia tua, et non credébam narrántibus mihi, donec ipsa veni, et vidi óculis meis, et probávi quod média pars mihi nuntiáta non fúerit. Major est sapiéntia et ópera tua quam rumor quem audívi.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+BEáti viri tui et beáti servi tui, qui stant coram te semper et áudiunt sapiéntiam tuam. Sit Dóminus Deus tuus benedíctus, cui complacuísti, et pósuit te super thronum Israël, eo quod diléxerit Dóminus Israël in sempitérnum, et constítuit te regem ut fáceres judícium et justítiam. Dedit ergo regi centum vigínti talénta auri et arómata multa nimis et gemmas pretiósas. Non sunt alláta ultra arómata tam multa quam ea quæ dedit regína Saba regi Salomóni. Sed et classis Hiram, quæ portábat aurum de Ophir, áttulit ex Ophir ligna thyína multa nimis et gemmas pretiósas.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.

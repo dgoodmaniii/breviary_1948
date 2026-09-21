@@ -35110,4 +35110,30 @@ QUOD per Salomónem Matthǽus generatiónem derivándam putávit, Lucas vero per
 
 #### Lectio viii
 
-BENE ígitur utérque ténuit fidem, ut Matthǽus per reges ductam oríginem comprobáret, et Lucas per sacerdótes a Deo transmíssam in Christum sériem géneris deducéndo, sanctiórem ipsam oríginem declaráret. Simul in hoc quoque vítuli
+BENE ígitur utérque ténuit fidem, ut Matthǽus per reges ductam oríginem comprobáret, et Lucas per sacerdótes a Deo transmíssam in Christum sériem géneris deducéndo, sanctiórem ipsam oríginem declaráret. Simul in hoc quoque vítuli figúra signátur, quod ubíque sacerdotále mystérium putat esse servándum. Nec miréris, si ab Abraham plures secúndum Lucam successiónes usque ad Christum sunt, paucióres secúndum Matthǽum, cum per álias persónas generatiónem fateáris esse decúrsam. Potest enim fíeri, ut álii longǽvam transégerint vitam, altérius vero generatiónis viri immatúra ætáte decésserint; cum videámus complúres senes cum suis nepótibus vívere, álios vero viros statim fíliis obíre succéptis.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi, allelúja. ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+ILLUD quoque advértimus, quod sanctus Matthǽus Jacob, qui fuit pater Joseph, fílium Mathat esse memoráverit; Lucas vero Joseph, cui desponsáta erat María, fílium Heli, Heli autem fílium Melchi esse descrípserit. Quómodo uníus duo patres, id est, Heli et Jacob? Duórum fílius díctus est, quia altérius secúndum generatiónem, altérius secúndum legem factus est fílius. In quo præscrípto legis futúram perpetuitátem defunctórum séminis nobis esse promíssam non intelléxit pópulus Judæórum, sed secúndum lítteram accípiens, grátiam corrúpit oráculi. Alius enim erat frater, qui defunctórum fratrum semen suscitáret, non frater secúndum carnis germanitátem, sed secúndum grátiæ puritátem. Et ídeo fortásse Frater non redémit, redémit homo; quia non germánus frater ille, sed mediátor Dei et hóminum, homo Christus Jesus, resurrectiónis grátiam propagávit.
+
+{RUBRIC: Te Deum.}
+
+---
+
+## Feria III
+
+De VII die infra Octav. S. Joseph
+
+{RUBRIC: Semiduplex 873}
+
+### In II Nocturno
+
+De Sermóne sancti Bernárdi Abbátis
+
+{RUBRIC: Homilia 2 super Missus est}
+
+#### Lectio iv
+
+SCRIPTUM est: Joseph autem vir ejus, cum esset justus et nollet eam tradú-

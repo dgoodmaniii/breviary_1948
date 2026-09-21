@@ -22519,3 +22519,43 @@ Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo: \* delec
 {RUBRIC: Teth.} Bonus est Dóminus sperántibus in eum, ánimæ quærénti illum.
 
 {RUBRIC: Teth.} Bonum est præstolári cum siléntio salutáre Dei.
+
+{RUBRIC: Teth.} Bonum est viro, cum portáverit jugum ab adolescéntia sua.
+
+{RUBRIC: Jod.} Sedébit solitárius, et tacébit: quia levávit super se.
+
+{RUBRIC: Jod.} Ponet in púlvere os suum, si forte sit spes.
+
+{RUBRIC: Jod.} Dabit percutiénti se maxíllam, saturábitur oppróbriis.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Sicut ovis ad occisiónem ductus est, et dum male tractarétur, non apéruit os suum: tráditus est ad mortem, \* Ut vivificáret pópulum suum. ℣. Trádidit in mortem ánimam suam, et inter scelerátos reputátus est. — Ut.
+
+#### Lectio ii
+
+*Cap. 4, 1-6*
+
+{RUBRIC: Aleph.} Quómodo obscurátum est aurum, mutátus est color óptimus, dispérsi sunt lápides sanctuárii in cápite ómnium platearum?
+
+{RUBRIC: Beth.} Fílii Sion ínclyti, et amícti auro primo: quómodo reputáti sunt in vasa téstea, opus mánuum fíguli?
+
+{RUBRIC: Ghimel.} Sed et lámiæ nudavérunt mammam, lactavérunt cátulos suos: fília pópuli mei crudélis, quasi strúthio in desérto.
+
+{RUBRIC: Daleth.} Adhǽsit lingua lacténtis ad palátum ejus in siti: párvuli petiérunt panem, et non erat qui frángeret eis.
+
+{RUBRIC: He.} Qui vescebántur voluptuóse, interiérunt in viis: qui nutriebántur in cróceis, amplexáti sunt stércora.
+
+{RUBRIC: Vau.} Et major efécta est iníquitas fíliæ pópuli mei peccáto Sodomórum, quæ subvérsa est in moménto, et non cepérunt in ea manus.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Jerúsalem, surge, et éxue te véstibus jucunditátis: indúere cínere et cilício, \* Quia in te occísus est Salvátor Israël. ℣. Deduc quasi torréntem lácrimas per diem et noctem, et non táceat pupílla óculi tui. — Quia.
+
+#### Incipit Orátio Jeremíæ Prophétæ
+
+#### Lectio iii
+
+*Cap. 5, 1-11*
+
+RECORDARE, Dómine, quid accíderit nobis: intuére, et réspice oppróbrium nostrum. Heréditas nostra versa est ad aliénos: domus nostræ ad extráneos. Pupílli facti sumus absque patre, matres nostræ quasi víduæ. Aquam nostram pecúnia bíbimus: ligna nostra prétio comparávimus. Cervícibus nostris minabámur,

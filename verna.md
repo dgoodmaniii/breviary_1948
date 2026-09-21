@@ -44317,4 +44317,18 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Sermo 10 de verbis Domini}
 
-VENITE ad me, omnes qui laborátis. Quare enim omnes laborámus, nisi quia sumus hómines mortáles, frágiles, infírmi, lútea vasa portántes, quæ fáciunt ínvicem angústias? Sed, si
+VENITE ad me, omnes qui laborátis. Quare enim omnes laborámus, nisi quia sumus hómines mortáles, frágiles, infírmi, lútea vasa portántes, quæ fáciunt ínvicem angústias? Sed, si angustiántur vasa carnis, dilaténtur spátia caritátis. Quid ergo dicit, Veníte ad me, omnes qui laborátis, nisi ut non laborétis? Dénique promíssio ejus in promptu est; quóniam laborántes vocávit, quærent forte, qua mercéde vocáti sunt. Et ego vos, inquit, refíciam. Tóllite jugum meum super vos, et díscite a me, non mundum fabricáre, non cuncta visibília et invisibília creáre, non in ipso mundo mirabília fácere et mórtuos suscitáre; sed, Quóniam mitis sum et húmilis corde.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+###### Lectio viii
+
+MAGNUS esse vis? a mínimo íncipe. Cógitas magnam fábricam struére celsitúdinis? de fundaménto prius cógita humilitátis. Et quantam quisque vult et dispónit superimpónere molem ædifícii, quanto erit majus ædifícium, tanto áltius fodit fundaméntum. Et fábrica quidem cum strúitur, in supérna consúrgit; qui autem fodit fundaméntum, ad ima deprímitur. Ergo et fábrica ante celsitúdinem humiliátur, et fastígium post humiliatiónem erígitur.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. (T. P. Allelúja.) ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+QUOD est fastígium construéndæ fábricæ, quam molímur? quo ventúrum est cacúmen ædifícii? Cito dico, usque ad conspéctum Dei. Vidétis, quam excélsum est, quanta res est conspícere Deum. Qui desíderat, et quod dico et quod audit intélligit. Promíttitur nobis conspéctus Dei, veri Dei, summi Dei. Hoc enim bonum est, Vidéntem vidére. Nam, qui colunt falsos deos, fácile illos vident; sed eos vident, qui óculos habent et non vident. Nobis autem promíttitur vísio Dei vivéntis et vidéntis.
+
+{RUBRIC: Te Deum laudámus.}

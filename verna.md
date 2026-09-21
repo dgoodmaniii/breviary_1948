@@ -38212,4 +38212,26 @@ MORTUO Alexándro secúndo, invítus et mœrens, unánimi ómnium consénsu, dé
 
 ###### Lectio vi
 
-DUM Missárum solémnia perágeret, visa est viris piis colúmba e cælo delápsa, húmero ejus dextro ínsidens, alis exténsis caput ejus veláre; quo significátum est, Spíritus Sancti afflátu, non humánæ prudéntiæ ratiónibus ipsum duci in Ecclésiæ regímine. Cum ab iníqui Henríci exércitu Romæ gravi obsidióne premerétur, excitátum ab hóstibus incéndium signo crucis exstínxit. De ejus manu tandem a Robérto Guiscárdo duce Northmánno eréptus, Cassínum se cóntulit; atque inde Salérnum ad dedicándam ecclésiam sancti Matthǽi Apóstoli conténdit. Cum áliquándo in ea civitáte sermónem habuísset ad pópulum, ærúmnis conféctus in morbum íncidit, quo se interitúrum præscívit. Postréma moriéntis Gregórii verba fúere: Diléxi justítiam et odívi iniquitátem, proptérea mórior in exsílio. Innumerabília sunt, quæ vel fórtiter sustínuit, vel multis coáctis in Urbe sýnodis sapiénter constítuit; vir vere sanctus, críminum vindex, et acérrimus Ecclésiæ defénsor. Exáctis ítaque in pontificátu annis duódecim, migrávit in cælum anno salútis millésimo octogésimo quinto, plúribus in vita et post mortem miráculis clarus; ejúsque sacrum corpus in
+DUM Missárum solémnia perágeret, visa est viris piis colúmba e cælo delápsa, húmero ejus dextro ínsidens, alis exténsis caput ejus veláre; quo significátum est, Spíritus Sancti afflátu, non humánæ prudéntiæ ratiónibus ipsum duci in Ecclésiæ regímine. Cum ab iníqui Henríci exércitu Romæ gravi obsidióne premerétur, excitátum ab hóstibus incéndium signo crucis exstínxit. De ejus manu tandem a Robérto Guiscárdo duce Northmánno eréptus, Cassínum se cóntulit; atque inde Salérnum ad dedicándam ecclésiam sancti Matthǽi Apóstoli conténdit. Cum áliquándo in ea civitáte sermónem habuísset ad pópulum, ærúmnis conféctus in morbum íncidit, quo se interitúrum præscívit. Postréma moriéntis Gregórii verba fúere: Diléxi justítiam et odívi iniquitátem, proptérea mórior in exsílio. Innumerabília sunt, quæ vel fórtiter sustínuit, vel multis coáctis in Urbe sýnodis sapiénter constítuit; vir vere sanctus, críminum vindex, et acérrimus Ecclésiæ defénsor. Exáctis ítaque in pontificátu annis duódecim, migrávit in cælum anno salútis millésimo octogésimo quinto, plúribus in vita et post mortem miráculis clarus; ejúsque sacrum corpus in cathedráli basílica Salernitána est honorífice cónditum.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+GREGORIUS Papa séptimus, ántea Hildebrándus, Suánæ in Etrúria natus, doctrína, sanctitáte, omníque virtútum génere cum primis nóbilis, mirífice univérsam Dei Ecclésiam illustrávit. Adoléscens religiósi hábitum índuit in Cluniacénsi monastério, tantóque pietátis ardóre Deo desérviit, ut a sanctis ejúsdem cœnóbii pátribus prior fúerit eléctus. Póstea factus abbas monastérii sancti Pauli extra muros Urbis, ac deínde creátus Románæ Ecclésiæ cardinális, sub summis Pontifícibus Leóne nono, Victóre secúndo, Stéphano nono, Nicoláo secúndo et Alexándro secúndo, præcípuis munéribus et legatiónibus perfúnctus est. Mórtuo Alexándro secúndo, unanímiter summus Póntifex eléctus, ecclesiásticæ libertátis propugnátor ac defénsor acérrimus éxstitit; quaprópter multa passus, et Roma discédere coáctus est. Postréma ejus moriéntis verba fúere: Diléxi justítiam et odívi iniquitátem, proptérea mórior in exsílio. Migrávit in cælum, anno salútis millésimo octogésimo quinto, ejúsque corpus in cathedráli basílica Salernitána honorífice cónditum est.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Venit Jesus, de Communi unius vel plúrium Summórum Pontíficum. [33¹]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensionis ix Lectio de Homilía Feriæ, alias}
+
+{RUBRIC: Pro S. Urbano I Papa et Martyre}
+
+###### Lectio ix
+
+URBANUS Románus, Alexándro Sevéro imperatóre, doctrína et vitæ sanctitáte multos ad Christi fidem convértit; in illis Valeriánum, beátæ Cæcíliæ sponsum, et Tibúrtium, Valeriáni fratrem, qui póstea martýrium forti ánimo subiérunt. Hic de bonis Ecclésiæ attribútis scripsit his verbis: Ipsæ res fidélium, quæ Dómino

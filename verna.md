@@ -36189,4 +36189,40 @@ MIHI autem absit gloriári, nisi in Cruce Dómini nostri Jesu Christi; per quem 
 
 **Capitulum** *Philipp. 2, 8-9*
 
-HUMILIÁVIT semetípsum factus obédiens usque ad mortem, mortem autem Crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen,
+HUMILIÁVIT semetípsum factus obédiens usque ad mortem, mortem autem Crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen, quod est super omne nomen.
+
+℟. br. Omnis terra adóret te, et psallat tibi \* Allelúja, allelúja. Omnis. ℣. Psalmum dicat nómini tuo, Dómine. Allelúja, allelúja. Glória. Omnis. ℣. Hoc signum Crucis erit in cælo, allelúja. ℟. Cum Dóminus ad judicándum vénerit, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis 913, præter Ant. ad Magnificat:}
+
+℣. Hoc signum Crucis erit in cælo, allelúja. ℟. Cum Dóminus ad judicándum vénerit, allelúja.
+
+**Ad Magnif. Ant.** Crucem sanctam súbiit, \* qui inférnum confrégit: accínctus est poténtia, surréxit die tértia, allelúja.
+
+{RUBRIC: Et fit Commem. sequentis. Completorium de Dominica.}
+
+---
+
+### Die 4 Maji
+
+#### S. Monicæ Viduæ
+
+{RUBRIC: Duplex [149]}
+
+**Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam, allelúja.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+DEUS, mæréntium consolátor et in te sperántium salus, qui beátæ Mónicæ pias lácrimas in conversióne fílii sui Augustíni misericórditer suscepísti: da nobis utriúsque intervéntu; peccáta nostra deploráre, et grátiæ tuæ indulgéntiam inveníre. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+MONICA, sancti Augustíni dupliciter mater, quia eum et mundo et cælo péperit, maríto mórtuo, quem senectúte conféctum Jesu Christo conciliávit, castam et opéribus misericórdiæ exércitam viduitátem agébat; in assíduis vero ad Deum oratiónibus pro fílio, qui in Manichæórum sectam incíderat, lácrimas effundébat. Quem étiam Mediolánum secúta est; ubi ipsum frequénter hortabátur, ut ad epíscopum Ambrósium se conférret. Quod cum ille fecísset, ejus et públicis conciónibus et privátis collóquiis cathólicæ fídei veritátem edóctus, ab eódem baptizátus est.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te

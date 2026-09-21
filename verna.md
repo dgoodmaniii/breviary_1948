@@ -30796,3 +30796,75 @@ VERBA mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
 Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
 
 Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo: \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus: \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem: \* perdes omnes, qui loquúntur mendácium.
+
+Virum sánguinum et dolósum abominábitur Dóminus: \* ego autem in multitúdine misericórdiæ tuæ.
+
+Introíbo in domum tuam: \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua: \* propter inimícos meos dírige in conspéctu tuo viam meam.
+
+Quóniam non est in ore eórum véritas: \* cor eórum vanum est.
+
+Sepúlcrum patens est guttur eórum, linguis suis dolóse agébant, \* júdica illos, Deus.
+
+Décidant a cogitatiónibus suis, secúndum multitúdinem impietátum eórum expélle eos, \* quóniam irritavérunt te, Dómine.
+
+Et læténtur omnes, qui sperant in te, \* in ætérnum exsultábunt: et habitábis in eis.
+
+Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíces justo.
+
+Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
+
+**Ant.** Defúncto Heróde, Angelus Dómini appáruit in somnis Joseph in Ægýpto, dicens: Surge, et áccipe Púerum et Matrem ejus, et vade in terram Israël; defúncti sunt enim qui quærébant ánimam Púeri.
+
+**Ant.** Accépit Joseph \* Púerum et Matrem ejus, et venit in terram Israël.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Ómnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Accépit Joseph Púerum et Matrem ejus, et venit in terram Israël.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Consúrgens Joseph, accépit Púerum et Matrem ejus nocte, et secéssit in Ægýptum; et erat ibi usque ad óbitum Heródis, allelúja.
+
+℣. Magna est glória ejus in salutári tuo. {RUBRIC: (T. P. Allelúja.)} ℟. Glóriam et magnum decórem impónes super eum. {RUBRIC: (T. P. Allelúja.)}
+
+Sermo sancti Bernárdi Abbátis
+
+{RUBRIC: Homilia 2 super Missus est, prope finem}
+
+###### Lectio iv
+
+QUIS et qualis homo fúerit beátus Joseph, cónjice ex appellatióne, qua, licet dispensatória, méruit honorári ádeo, ut pater Dei et dictus et créditus sit; cónjice et ex próprio vocábulo, quod augméntum non dúbitas interpretári. Simul et meménto magni illíus quondam Patriárchæ vénditi in Ægýpto; et scito ipsíus istum non solum vocábulum fuísse sortítum, sed et castimóniam adéptum, innocéntiam assecútum et grátiam.
+
+℟. Ascéndit Joseph a Galilǽa de civitáte Názareth in Judǽam, in civitátem David, quæ vocátur Béthlehem: \* Eo quod esset de domo et família David. {RUBRIC: (T. P. Allelúja.)} ℣. Ut profiterétur cum María desponsáta sibi uxóre. — Eo.
+
+###### Lectio v
+
+SIQUIDEM ille Joseph, fratérna ex invídia vénditus et ductus in Ægýptum, Christi venditiónem præfigurávit: iste Joseph, Herodiánam invídiam fúgiens, Christum in Ægýptum portávit. Ille dómino suo fidem servans, dóminæ nóluit commiscéri: iste Dóminam suam Dómini sui matrem, vírginem agnóscens, et ipse cóntinens, fidéliter custodívit. Illi data est intelligéntia in mystériis somniórum; isti datum est cónscium fíeri atque partícipem cæléstium sacramentórum.

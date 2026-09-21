@@ -17830,4 +17830,26 @@ MIsit ergo Abner núntios ad David pro se dicéntes: Cujus est terra? et ut loqu
 
 ##### Lectio iii
 
-SErmónem quoque íntulit Abner ad senióres Israël dicens: Tam heri quam nudiustértius quærebátis David, ut regnáret super vos. Nunc ergo fácite, quóniam Dóminus locútus est ad David dicens: In manu servi mei David salvábo pópulum meum Israël de manu Philísthiim
+SErmónem quoque íntulit Abner ad senióres Israël dicens: Tam heri quam nudiustértius quærebátis David, ut regnáret super vos. Nunc ergo fácite, quóniam Dóminus locútus est ad David dicens: In manu servi mei David salvábo pópulum meum Israël de manu Philísthiim et ómnium inimicórum ejus. Locútus est autem Abner étiam ad Bénjamin. Et ábiit ut loquerétur ad David in Hebron ómnia quæ placúerant Israël et univérso Bénjamin. Venítque ad David in Hebron cum vigínti viris, et fecit David Abner et viris ejus, qui vénerant cum eo, convívium. Et dixit Abner ad David: Surgam ut cóngregem ad te, dóminum meum regem, omnem Israël.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 4, 5-12*
+
+VEniéntes ígitur fílii Remmon Berothítæ, Rechab et Báana, ingréssi sunt, fervénte die, domum Isbóseth; qui dormiébat super stratum suum merídie. Et ostiária domus purgans tríticum obdormívit. Ingréssi sunt autem domum laténter assuméntes spicas trítici, et percussérunt eum in ínguine Rechab et Báana frater ejus et fugérunt. Cum autem ingréssi fuíssent domum, ille dormiébat super lectum suum in conclávi, et percutiéntes interfecérunt eum; sublatóque cápite ejus abiérunt per viam desérti tota nocte. Et attulérunt caput Isbóseth ad David in Hebron dixerúntque ad regem: Ecce caput Isbóseth, fílii Saul inimíci tui, qui quærébat ánimam tuam.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+*Cap. 5, 1-7*
+
+REspóndens autem David Rechab et Báana fratri ejus fíliis Remmon Berothítæ dixit ad eos: Vivit Dóminus, qui éruit ánimam meam de omni angústia, quóniam eum, qui annuntiáverat mihi et

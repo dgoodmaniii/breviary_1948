@@ -12698,3 +12698,30 @@ AUróra jam spargit polum:
 Terris dies illábitur:
 Lucis resúltat spículum:
 Discédat omne lúbricum.
+
+Phantásma noctis éxsulet:
+Mentis reátus córruat:
+Quidquid tenébris hórridum
+Nox áttulit culpæ, cadat.
+
+Ut mane, quod nos últimum
+Hic deprecámur cérnui,
+Cum luce nobis éffluat,
+Hoc dum canóre cóncrepat.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Illúmina, Dómine, \* sedéntes in ténebris et umbra mortis, et dírige pedes nostros in viam pacis.
+
+{RUBRIC: Expléto Cántico ac repetíta Antíphona, dicúntur sequéntes}
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster, {RUBRIC: quod dícitur a solo Hebdomadário totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsquequo? ℟. Et deprecábilis esto super servos tuos. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Sacerdótes tui induántur justítiam. ℟. Et sancti tui exsúltent. ℣. Orémus pro beatíssimo Papa nostro N. ℟. Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra, et non tradat eum in ánimam inimicórum ejus. ℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui. ℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant

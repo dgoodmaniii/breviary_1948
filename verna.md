@@ -28468,3 +28468,35 @@ Te Deum laudámus.
 #### Oratio
 
 MENTES nostras, quǽsumus, Dómine, Paráclitus, qui a te procédit, illúminet: et indúcat in omnem, sicut tuus promísit Fílius, veritátem: Qui tecum vivit et regnat in unitáte ejúsdem Spíritus Sancti Deus.
+
+**Ad Magnif. Ant.** Ego sum panis vivus, \* qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum: et panis, quem ego dabo, caro mea est pro mundi vita, allelúja.
+
+---
+
+## Feria V infra Octavam Pentecostes
+
+{RUBRIC: Semiduplex 656}
+
+℣. Spíritus Dómini replévit orbem terrárum, allelúja. ℟. Et hoc quod cóntinet ómnia, sciéntiam habet vocis, allelúja.
+
+**Absolutio** Exáudi.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio i
+
+*Cap. 9, 1-6*
+
+IN illo témpore: Convocátis Jesus duódecim Apóstolis, dedit illis virtútem et potestátem super ómnia dæmónia, et ut languóres curárent. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 6 in cap. 9 Lucæ}
+
+QUALIS débeat esse qui evangelízat regnum Dei, præcéptis evangélicis designátur: ut sine virga, sine pera, sine calceaménto, sine pane, sine pecúnia, hoc est, subsídii sæculáris adminícula non requírens, fidéque tutus, putet sibi quo minus ea requírat, magis posse suppétere. Quæ possunt, qui volunt, ad eum deriváre tractátum, ut spiritálem tantúmmodo locus iste formáre videátur afféctum: qui velut induméntum quoddam videátur córporis exuísse, non solum potestáte rejécta contemptísque divítiis, sed étiam carnis ipsíus illécebris abdicátis. Quibus primo ómnium datur pacis atque constántiæ generále mandátum, ut pacem ferant, constántiam servent, hospitális necessitúdinis jura custódiant: aliénum a prædicatóre regni cæléstis ástruens cursitáre per domos, et inviolábilis hospítii jura mutáre.
+
+℟. Advénit ignis divínus, non combúrens sed illúminans, non consúmens sed lucens: et invénit corda discipulórum receptácula munda: \* Et tríbuit eis charísmatum dona, allelúja, allelúja. ℣. Invénit eos concórdes caritáte, et collustrávit eos inúndans grátia Deitátis. — Et.
+
+**Bened.** Divínum auxílium.

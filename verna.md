@@ -22205,3 +22205,51 @@ Quia ecce cepérunt ánimam meam: \* irruérunt in me fortes.
 Neque iníquitas mea, neque peccátum meum, Dómine: \* sine iniquitáte cucúrri, et diréxi.
 
 Exsúrge in occúrsum meum, et vide: \* et tu, Dómine, Deus virtútum, Deus Israël,
+
+Inténde ad visitándas omnes gentes: \* non misereáris ómnibus, qui operántur iniquitátem.
+
+Converténtur ad vésperam: et famem patiéntur ut canes, \* et circuíbunt civitátem.
+
+Ecce loquéntur in ore suo, et gládius in lábiis eórum: \* quóniam quis audívit?
+
+Et tu, Dómine, deridébis eos: \* ad níhilum dedúces omnes gentes.
+
+Fortitúdinem meam ad te custódiam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia ejus prævéniet me.
+
+Deus osténdet mihi super inimícos meos, ne occídas eos: \* nequándo obliviscántur pópuli mei.
+
+Dispérge illos in virtúte tua: \* et depóne eos, protéctor meus, Dómine:
+
+Delíctum oris eórum, sermónem labiórum ipsórum: \* et comprehendántur in supérbia sua.
+
+Et de exsecratióne, et mendácio annuntiabúntur in consummatióne: \* in ira consummatiónis, et non erunt.
+
+Et scient quia Deus minábitur Jacob: \* et fínium terræ.
+
+Converténtur ad vésperam, et famem patiéntur ut canes, \* et circuíbunt civitátem.
+
+Ipsi dispergéntur ad manducándum: \* si vero non fúerint saturáti, et murmurábunt.
+
+Ego autem cantábo fortitúdinem tuam: \* et exsultábo mane misericórdiam tuam.
+
+Quia factus es suscéptor meus, \* et refúgium meum, in die tribulatiónis meæ.
+
+Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea.
+
+{RUBRIC: †}
+
+**Ant.** Ab insurgéntibus in me líbera me, Dómine, quia occupavérunt ánimam meam.
+
+**Ant.** Longe fecísti \* notos meos a me: tráditus sum, et non egrediébar.
+
+#### Psalmus 87
+
+DOMINE, Deus salútis meæ: \* in die clamávi, et nocte coram te.
+
+Intret in conspéctu tuo orátio mea: \* inclína aurem tuam ad precem meam:
+
+Quia repléta est malis ánima mea: \* et vita mea inférno appropinquávit.
+
+Æstimátus sum cum descendéntibus in lacum: \* factus sum sicut homo sine adjutório, inter mórtuos liber.
+
+Sicut vulneráti dormiéntes in sepúlcris, quorum non es memor ámplius: \*

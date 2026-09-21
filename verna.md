@@ -32677,4 +32677,48 @@ TUAM ergo pertransívit ánimam vis dolóris, ut plusquam Mártyrem non immérit
 
 ###### Lectio vi
 
-NON mirémini, fratres, quod María Martyr in ánima fuísse dicátur. Mirétur qui non memínerit se audivísse Paulum inter máxima géntium crímina memorántem, quod sine affectióne fuíssent. Longe id fuit a Maríæ viscéribus, longe sit a sérvulis ejus. Sed forte quis dicat: Numquid non eum præscíerat moritúrum? Et indubitánter. Numquid non sperábat contínuo resurrectúrum? Et fidéliter. Super hæc dóluit crucifíxum? Et veheménter. Alióquin quisnam tu, frater, aut unde tibi hæc sapiéntia, ut miréris plus Maríam compatiéntem quam Maríæ Fílium patiéntem? Ille étiam mori córpore pótuit; ista cómmori corde non pótuit? Fecit illud cáritas, qua majórem nemo hábuit; fecit et hoc cáritas,
+NON mirémini, fratres, quod María Martyr in ánima fuísse dicátur. Mirétur qui non memínerit se audivísse Paulum inter máxima géntium crímina memorántem, quod sine affectióne fuíssent. Longe id fuit a Maríæ viscéribus, longe sit a sérvulis ejus. Sed forte quis dicat: Numquid non eum præscíerat moritúrum? Et indubitánter. Numquid non sperábat contínuo resurrectúrum? Et fidéliter. Super hæc dóluit crucifíxum? Et veheménter. Alióquin quisnam tu, frater, aut unde tibi hæc sapiéntia, ut miréris plus Maríam compatiéntem quam Maríæ Fílium patiéntem? Ille étiam mori córpore pótuit; ista cómmori corde non pótuit? Fecit illud cáritas, qua majórem nemo hábuit; fecit et hoc cáritas, cui post illam símilis áltera non fuit.
+
+℟. Quis mihi det te fratrem meum sugéntem úbera matris meæ, et inhæréndo láteri tuo, ut sanguis tuus sánguinem meum tangat et tergat: \* Ut fons aquæ tuæ de scaturígine recti cordis, per venas boni óperis, in finem ætérnæ felicitátis exsíliat? ℣. Fílii tui de longe vénient, et fíliæ tuæ de látere surgent. — Ut. Glória Patri. Ut.
+
+##### In III Nocturno
+
+**Ant.** Intendérunt arcum \* rem amáram, ut sagíttent in occúltis immaculátum.
+
+###### Psalmus 63
+
+EXAUDI, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+**Ant.** Factus sum \* sicut homo sine adjutório, inter mórtuos liber.
+
+###### Psalmus 87
+
+DOMINE, Deus salútis meæ: \* in die clamávi, et nocte coram te.
+
+Intret in conspéctu tuo orátio mea: \* inclína aurem tuam ad precem meam:
+
+Quia repléta est malis ánima mea: \* et vita mea inférno appropinquávit.
+
+Æstimátus sum cum descendéntibus in lacum: \* factus sum sicut homo sine adjutório, inter mórtuos liber.

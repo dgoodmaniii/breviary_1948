@@ -31749,3 +31749,41 @@ Per Angelos custódiat. Amen.
 DEUS, qui inter céteros Angelos, ad annuntiándum incarnatiónis tuæ mystérium, Gabriélem Archángelum elegísti: concéde propítius; ut qui festum ejus celebrámus in terris, ipsíus patrocínium sentiámus in cælis: Qui vivis.
 
 {RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Primam
+
+**Ant.** Ingrésso Zacharía \* templum Dómini, appáruit ei Gábriel Angelus, stans a dextris altáris incénsi.
+
+##### Ad Tertiam
+
+**Ant.** Ait autem Angelus: \* Ne tímeas, Zacharía, quóniam exaudíta est deprecátio tua.
+
+**Capitulum** *Dan. 9, 21-22*
+
+ECCE vir Gábriel, quem víderam in visióne a princípio, cito volans, tétigit me in témpore sacrifícii vespertíni. Et dócuit me, et locútus est mihi, dixítque: Dániel, nunc egréssus sum ut docérem te, et intellígeres.
+
+℟. br. Stetit Angelus \* Juxta aram templi. Stetit. ℣. Habens thuríbulum áureum in manu sua. Juxta. Glória Patri. Stetit. ℣. Ascéndit fumus arómatum in conspéctu Dómini. ℟. De manu Angeli.
+
+###### Oratio
+
+DEUS, qui inter céteros Angelos, ad annuntiándum incarnatiónis tuæ mystérium, Gabriélem Archángelum elegísti: concéde propítius; ut qui festum ejus celebrámus in terris, ipsíus patrocínium sentiámus in cælis: Qui vivis.
+
+##### Ad Sextam
+
+**Ant.** Ego sum Gábriel \* Angelus, qui asto ante Deum, et missus sum loqui ad te.
+
+**Capit.** *Dan. 9, 23 et 24*
+
+EGO autem veni ut indicárem tibi, quia vir desideriórum es. Septuagínta hebdómades abbreviátæ sunt, ut finem accípiat peccátum, et impleátur vísio et prophetía, et ungátur Sanctus sanctórum.
+
+℟. br. Ascéndit fumus arómatum \* In conspéctu Dómini. Ascéndit. ℣. De manu Angeli. In conspéctu. Glória Patri. Ascéndit. ℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+##### Ad Nonam
+
+**Ant.** Dixit autem María \* ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Gábriel Angelus, dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi.
+
+**Capitulum** *Dan. 9, 25*
+
+SCITO ergo et animadvérte: Ab éxitu sermónis ut íterum ædificétur

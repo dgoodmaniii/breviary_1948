@@ -17410,4 +17410,22 @@ FErrum pertránsiit ánimam ejus, et appropinquávit Cor illíus, ut non jam non
 
 *Cap. 19, 31-37*
 
-IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce córpora sábbato, erat enim magnus dies ille sábbati, rogavérunt Pilátum, ut frangeréntur eórum crura et tolleréntur. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractátus 120 in Joánnem, nn. 2-3}
+
+AD Jesum autem cum veníssent, ut vidérunt eam jam mórtuum, non fregérunt ejus crura, sed unus mílitum láncea latus ejus apéruit, et contínuo exívit sanguis et aqua. Vigilánti verbo Evangelísta usus est, ut non díceret: Latus ejus percússit, aut vulnerávit, aut quid áliud, sed apéruit, ut illic quodámmodo vitæ óstium panderétur, unde Sacraménta Ecclésiæ manavérunt, sine quibus ad vitam, quæ vera vita est, non intrátur. Ille sanguis in remissiónem fusus est peccatórum. Aqua illa salutáre témperat póculum, hæc et lavácrum præstat et potum. Hoc prænuntiábat quod Noë in látere arcæ óstium fácere jussus est, qua intrárent animália quæ non erant dilúvio peritúra, quibus præfigurabátur Ecclésia.
+
+℟. Ego si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia.
+
+##### Lectio viii
+
+PRopter hoc prima múlier facta est de látere viri dormiéntis, et appelláta est vita matérque vivórum. Magnum quippe significávit bonum, ante magnum prævaricatiónis malum. Hic secúndus Adam, inclináto cápite, in cruce dormívit, ut inde formarétur ejus conjux, quæ de látere dormiéntis efflúxit. O mors unde mórtui revivíscunt! Quid isto sánguine múndius? Quid vúlnere isto salúbrius? Et qui vidit, inquit, testimónium perhíbuit, et verum est testimónium ejus; et ille scit quia vera dicit, ut et vos credátis. Non dixit: Ut et vos sciátis, sed ut credátis. Scit enim qui vidit, cujus credat testimónio qui non vidit. Magis autem ad fidem pértinet crédere quam vidére.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+DUO testimónia de Scriptúris réddidit síngulis rebus quas factas fuísse narrávit. Nam quia dixe-

@@ -26028,4 +26028,30 @@ Homilía sancti Augustíni Epíscopi
 
 POTERAT Dóminus noster, unigénitus et coætérnus Patri, in forma servi et ex forma servi, si hoc opus esset, oráre siléntio: sed ita se Patri exhibére vóluit precatórem, ut meminísset nostrum se esse doctórem. Proínde eam, quam fecit oratiónem pro nobis, notam fecit et nobis: quóniam tanti magístri non solum ad ipsos sermocinátio, sed étiam pro ipsis ad Patrem orátio, discipulórum est ædificátio: et si illórum, qui hæc dicta áderant auditúri, profécto et nostra, qui fuerámus conscrípta lectúri.
 
-℟. Deus, cánticum novum cantábo tibi, allelúja: \* In psaltério decem chordárum psallam tibi,
+℟. Deus, cánticum novum cantábo tibi, allelúja: \* In psaltério decem chordárum psallam tibi, allelúja, allelúja. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — In.
+
+#### Lectio ii
+
+QUAPROPTER hoc quod ait: Pater, venit hora, clarífica Fílium tuum: osténdit, omne tempus, et quid, quando fáceret vel fíeri síneret, ab illo esse dispósitum, qui témpori súbditus non est: quóniam quæ futúra erant per síngula témpora, in Dei sapiéntia causas efficiéntes habent, in qua nulla sunt témpora. Non ergo credátur hæc hora fato urgénte venísse, sed Deo pótius ordinánte. Nec sidérea necéssitas Christi connéxuit passiónem: absit enim, ut sídera mori cógerent síderum Conditórem.
+
+℟. Bonum est confitéri Dómino, allelúja: \* Et psállere, allelúja. ℣. In decachórdo psaltério, cum cántico et cíthara. — Et.
+
+{RUBRIC: In Officio de Vigília:} Glória Patri. Et.
+
+#### Lectio iii
+
+CLARIFICATUM a Patre Fílium nonnúlli accípiunt in hoc, quod ei non pepércit, sed pro nobis ómnibus trádidit eum. Sed si passióne clarificátus dícitur, quanto magis resurrectióne? Nam in passióne magis ejus humílitas quam cláritas commendátur, Apóstolo teste, qui dicit: Humiliávit semetípsum, factus obédiens usque ad mortem, mortem autem crucis. Deínde séquitur, et de ejus clarificatióne jam dicit: Propter quod et Deus illum exaltávit, et donávit ei nomen, quod est super omne nomen: ut in nómine Jesu omne genu flectátur, cæléstium, terréstrium, et infernórum. Et omnis lingua confiteátur, quia Dóminus Jesus Christus in glória est Dei Patris. Hæc est clarificátio Dómini nostri Jesu Christi, quæ ab ejus resurrectióne sumpsit exórdium.
+
+{RUBRIC: In Officio de Vigília:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Dicant nunc, qui redémpti sunt, allelúja, \* A Dómino, allelúja, allelúja. ℣. Quos redémit de manu inimíci, et de regiónibus congregávit eos. — A Dómino. Glória. A Dómino.
+
+## Ad Laudes
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+**Ad Bened. Ant.** Pater, venit hora, \* clarífica Fílium tuum claritáte quam hábui, priúsquam mundus esset, apud te, allelúja.
+
+**Oratio** Deus, {RUBRIC: ut supra. 598}

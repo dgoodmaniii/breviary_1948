@@ -30332,3 +30332,17 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua
 DEUS, qui ánimæ fámuli tui Gregórii ætérnæ beatitúdinis prǽmia contulísti: concéde propítius; ut, qui peccatórum nostrórum póndere prémimur, ejus apud te précibus sublevémur. Per Dóminum.
 
 {RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones} Sapiéntiam, {RUBRIC: de Communi Doctorum. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+GREGORIUS Magnus, Románus, Gordiáni senatóris fílius, adoléscens philosophíæ óperam dedit; et prætório offício functus, patre mórtuo, sex monastéria in Sicília ædificávit, Romæ séptimum sancti Andréæ nómine in suis ǽdibus, prope basílicam sanctórum Joánnis et Pauli ad clivum Scauri, ubi Hilaríóne ac Maximiáno magístris, mónachi vitam proféssus, póstea abbas fuit. Mox diáconus cardinális creátus, Constantinópolim a Pelágio Pontífice ad Tibérium Constantínum imperatórem legátus míttitur: apud quem memorábile étiam illud effécit, quod Eutýchium patriárcham, qui scrípserat contra veram ac tractábilem córporum resurrectiónem, ita convícit, ut ejus librum impérator in ignem injíceret. Quare Eutýchius paulo post cum in morbum incidísset, instánte morte, pellem manus suæ tenébat, multis præséntibus, dicens: Confíteor quia omnes in hac carne resurgémus.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium consénsu Póntifex elígitur. Quem honórem ne accíperet, quámdiu pótuit, recusávit, nam aliéno vestítu in spelúnca delítuit; ubi deprehénsus indício ígneæ colúmnæ, ad sanctum Petrum consecrátur. In pontificátu multa successóribus doctrínæ ac sanctitátis exémpla relíquit. Peregrínos quotídie ad mensam adhibébat; in quibus et Angelum, et Dóminum Angelórum peregríni fácie accépit. Páuperes et urbános et extérnos, quorum númerum descríptum habébat, benígne sustentábat. Cathólicam fidem multis locis labefactátam restítuit; nam Donatístas in África, Ariános in Hispánia représsit, Agnoítas Alexandría ejécit. Pállium Syágrio Augustodunénsi epíscopo dare nóluit, nisi neóphytos hæréticos expélleret ex Gállia. Gothos hǽresim Ariánam relínquere coégit. Missis in

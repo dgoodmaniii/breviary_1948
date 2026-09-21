@@ -923,3 +923,71 @@ Glória Patri.
 ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
 
 Orémus.
+
+{RUBRIC: Et dícitur Orátio convéniens.}
+
+{RUBRIC: Póstea fiunt Commemoratiónes, si occúrrant.}
+
+{RUBRIC: Deinde, in Offício semidúplici aut símplici tam de Témpore quam de Sanctis, præter omnes dies, in quibus habíta sit Commemorátio Dúplicis, étiam concurréntis, vel factum fúerit Offícium aut Commemorátio cujúsvis Octávæ, fit sequens}
+
+##### Suffragium de omnibus Sanctis
+
+**Ant.** Beáta Dei Génitrix Virgo María, Sanctíque omnes intercédant pro nobis ad Dóminum.
+
+℣. Mirificávit Dóminus Sanctos suos. ℟. Et exaudívit eos clamántes ad se.
+
+Orémus. **Oratio**
+
+A CUNCTIS nos, quæsumus, Dómine, mentis et córporis defénde perículis: et, intercedénte beáta et gloriósa semper Vírgine Dei Genitríce María, cum beáto Joseph, beátis Apóstolis tuis Petro et Paulo, atque beáto N. et ómnibus Sanctis, salútem nobis tríbue benígnus et pacem; ut, destrúctis adversitátibus et erróribus univérsis, Ecclésia tua secúra tibi sérviat libertáte. Per eúmdem Dóminum. ℟. Amen.
+
+{RUBRIC: ¶ In hac Oratióne, ad lítteram N., exprímitur nomen Tituláris própriæ Ecclésiæ, dummodo Títulus non sit Persóna divína vel Mystérium Dómini, aut de ipso ratióne Festi factum non fúerit Offícium vel Commemorátio, aut illíus nomen non sit in eádem Suffrágii Oratióne expréssum; ac nómina sanctórum Angelórum et sancti Joánnis Baptístæ, si Tituláres fúerint, præponúntur nómini sancti Joseph. In hisce autem ómnibus cásibus omittúntur verba atque beáto N.}
+
+{RUBRIC: Si vero Offícium vel Commemorátio fúerit de beáta María Vírgine, tunc dícitur ut infra; atque ínsuper, sícubi Tituláris juxta superiórem Rúbricam ante omnes fúerit nominándus, ad Oratiónem partícula cum omittitur ante nomen sanctórum Petri et Pauli ac præpónitur nómini sancti Joseph.}
+
+**Ant.** Sancti omnes intercédant pro nobis ad Dóminum.
+
+℣. Mirificávit Dóminus Sanctos suos. ℟. Et exaudívit eos clamántes ad se.
+
+Orémus. **Oratio**
+
+A CUNCTIS nos, quæsumus, Dómine, mentis et córporis defénde perículis: et, intercedénte beáto Joseph, cum beátis Apóstolis tuis Petro et Paulo, atque beáto N. et ómnibus Sanctis, salútem nobis tríbue benígnus et pacem; ut, destrúctis adversitátibus et erróribus univérsis, Ecclésia tua secúra tibi sérviat libertáte. Per Dóminum.
+
+{RUBRIC: Post últimam Oratiónem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Si post Vésperas immediáte sequátur Completórium, dicto Versu Fidélium ánimæ, statim incípitur Versus Jube, domne, benedícere, ut infra ad Completórium; secus autem, si tunc terminétur Offícium, dícitur tantum Pater noster secréto.}
+
+## Ad Completorium
+
+{RUBRIC: Ante Completórium non dícitur Pater noster et Ave María, sicut in áliis Horis, sed absolúte Lector íncipit:}
+
+℣. Jube, domne, benedícere. **Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+### Lectio brevis
+
+*1 Petr. 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dícitur totum secréto.}
+
+{RUBRIC: Deinde Hebdomadárius facit Confessiónem:}
+
+CONFITEOR Deo omnipoténti, beátæ Maríæ semper Vírgini, beáto Michaéli Archángelo, beáto Joánni Baptístæ, sanctis Apóstolis Petro et Paulo, ómnibus Sanctis, et vobis, fratres, quia peccávi nimis cogitatióne, verbo et ópere: mea culpa, mea culpa, mea máxima culpa. Ideo precor beátam Maríam semper Vírginem, beátum Michaélem Archángelum, beátum Joánnem Baptístam, sanctos Apóstolos Petrum et Paulum, omnes Sanctos, et vos, fratres, oráre pro me ad Dóminum, Deum nostrum.
+
+{RUBRIC: Chorus respondet:}
+
+MISEREATUR tui omnípotens Deus, et, dimíssis peccátis tuis, perdúcat te ad vitam ætérnam. ℟. Amen.
+
+{RUBRIC: Deinde repétit Confessiónem, et ubi dícitur: vobis, fratres, et vos, fratres, dicat: tibi, pater, et te, pater.}
+
+{RUBRIC: Facta Confessióne a Choro, Hebdomadárius dicit:}
+
+MISEREATUR vestri omní-

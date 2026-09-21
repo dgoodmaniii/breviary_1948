@@ -27916,3 +27916,37 @@ Sit glória Dómini in sǽculum: \* lætábitur Dóminus in opéribus suis:
 Qui réspicit terram, et facit eam trémere: \* qui tangit montes, et fúmigant.
 
 Cantábo Dómino in vita mea: \* psallam Deo meo, quámdiu sum.
+
+Jucúndum sit ei elóquium meum: \* ego vero delectábor in Dómino.
+
+Defíciant peccatóres a terra, et iníqui ita ut non sint: \* bénedic, ánima mea, Dómino.
+
+**Ant.** Emítte Spíritum tuum, et creabúntur: et renovábis fáciem terræ, allelúja, allelúja.
+
+℣. Spíritus Dómini replévit orbem terrárum, allelúja. ℟. Et hoc quod cóntinet ómnia, sciéntiam habet vocis, allelúja.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio i
+
+*Cap. 14, 23-31*
+
+IN illo témpore: Dixit Jesus discípulis suis: Si quis díligit me, sermónem meum servábit, et Pater meus díliget eum, et ad eum veniémus, et mansiónem apud eum faciémus. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 30 in Evangelia}
+
+LIBET, fratres caríssimi, evangélicæ verba lectiónis sub brevitáte transcúrrere, ut post diútius líceat in contemplatióne tantæ solemnitátis immorári. Hódie namque Spíritus Sanctus repentíno sónitu super discípulos venit, mentésque carnálium in sui amórem permutávit, et foris apparéntibus linguis ígneis, intus facta sunt corda flammántia; quia dum Deum in ignis visióne suscepérunt, per amórem suáviter arsérunt. Ipse namque Spíritus Sanctus amor est: unde et Joánnes dicit: Deus cáritas est. Qui ergo mente íntegra Deum desíderat, profécto jam habet quem amat. Neque enim quisquam posset Deum dilígere, si eum quem díligit, non habéret.
+
+℟. Cum compleréntur dies Pentecóstes, erant omnes páriter in eódem loco, allelúja: et súbito factus est sonus de cælo, allelúja, \* Tamquam spíritus veheméntis, et replévit totam domum, allelúja, allelúja. ℣. Dum ergo essent in unum discípuli congregáti propter metum Judæórum, sonus repénte de cælo venit super eos. — Tamquam.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+SED ecce, si unusquísque vestrum requirátur an díligat Deum, tota fidúcia et secúra mente respóndet, Díligo. In ipso autem lectiónis exórdio audístis quid Véritas di-

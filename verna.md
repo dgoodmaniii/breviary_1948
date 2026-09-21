@@ -19964,4 +19964,22 @@ VERBA Jeremíæ fílii Helcíæ, de sacerdótibus, qui fuérunt in Anathoth, in 
 
 #### Lectio ii
 
-ET dixit Dóminus ad me: Noli dícere, Puer sum: quóniam ad ómnia, quæ mittam te, ibis: et univérsa, quæcúmque mandávero tibi, loquéris. Ne tímeas a fácie eórum: quia tecum ego sum, ut éruam te, dicit Dóminus. Et misit Dóminus manum suam, et tétigit os meum: et dixit Dóminus ad me: Ecce dedi verba mea in ore tuo: ecce constítui te hódie super gentes, et super regna, ut evéllas, et déstruas, et dispérdas, et díssipes, et ædífices, et plantes. Et factum est verbum Dómini ad me, dicens: Quid tu vides, Jeremía? Et dixi: Virgam vigilántem ego vídeo. Et dixit Dóminus ad me: Bene vidísti, quia vigilábo ego super verbo meo, ut fáciam illud. Et factum est verbum Dómini se-
+ET dixit Dóminus ad me: Noli dícere, Puer sum: quóniam ad ómnia, quæ mittam te, ibis: et univérsa, quæcúmque mandávero tibi, loquéris. Ne tímeas a fácie eórum: quia tecum ego sum, ut éruam te, dicit Dóminus. Et misit Dóminus manum suam, et tétigit os meum: et dixit Dóminus ad me: Ecce dedi verba mea in ore tuo: ecce constítui te hódie super gentes, et super regna, ut evéllas, et déstruas, et dispérdas, et díssipes, et ædífices, et plantes. Et factum est verbum Dómini ad me, dicens: Quid tu vides, Jeremía? Et dixi: Virgam vigilántem ego vídeo. Et dixit Dóminus ad me: Bene vidísti, quia vigilábo ego super verbo meo, ut fáciam illud. Et factum est verbum Dómini secúndo ad me, dicens: Quid tu vides? Et dixi: Ollam succénsam ego vídeo, et fáciem ejus a fácie Aquilónis.
+
+℟. Multiplicáti sunt qui tríbulant me, et dicunt: Non est salus illi in Deo ejus. \* Exsúrge, Dómine, salvum me fac, Deus meus. ℣. Nequándo dicat inimícus meus, Prævalui advérsus eum. — Exsúrge, Dómine.
+
+#### Lectio iii
+
+ET dixit Dóminus ad me: Ab Aquilóne pandétur malum super omnes habitatóres terræ. Quia ecce ego convocábo omnes cognatiónes regnórum Aquilónis, ait Dóminus: et vénient, et ponent unusquísque sólium suum in intróitu portárum Jerúsalem, et super omnes muros ejus in circúitu, et super univérsas urbes Juda. Et loquar judícia mea cum eis super omnem malítiam eórum, qui dereliquérunt me, et libavérunt diis aliénis, et adoravérunt opus mánuum suárum. Tu ergo accínge lumbos tuos, et surge, et lóquere ad eos ómnia quæ ego præcípio tibi. Ne formídes a fácie eórum: nec enim timére te fáciam vultum eórum. Ego quippe dedi te hódie in civitátem munítam, et in colúmnam férream, et in murum ǽreum, super omnem terram, régibus Juda, princípibus ejus, et sacerdótibus, et pópulo terræ. Et bellábunt advérsum te, et non prævalébunt: quia ego tecum sum, ait Dóminus, ut líberem te.
+
+℟. Usquequo exaltábitur inimícus meus super me? \* Réspice, et exáudi me, Dómine, Deus meus. ℣. Qui tríbulant me, exsultábunt si motus fúero: ego autem in misericórdia tua sperábo. — Réspice. Usquequo.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 9 de Quadragesima}
+
+#### Lectio iv
+
+IN ómnibus, dilectíssimi, solemnitátibus christiánis, non ignorámus paschále sacraméntum esse præcípuum: cui condígne et cóngrue suscipiéndo, totíus quidem nos témporis institúta reformant: sed devotiónem nostram præséntes vel máxime dies éxigunt, quos illi sublimíssimo divínæ misericórdiæ sacraménto scimus esse contíguos. In quibus mérito a sanctis Apóstolis per doctrínam Spíritus Sancti majóra sunt ordináta jejúnia: ut per commúne consórtium

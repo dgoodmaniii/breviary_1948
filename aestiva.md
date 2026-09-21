@@ -13165,3 +13165,53 @@ Exténdens cælum sicut pellem: \* qui tegis aquis superióra ejus.
 Qui ponis nubem ascénsum tuum: \* qui ámbulas super pennas ventórum.
 
 Qui facis ángelos tuos, spíritus: \* et minístros tuos ignem uréntem.
+
+Qui fundásti terram super stabilitátem suam: \* non inclinábitur in sæculum sæculi.
+
+Abýssus, sicut vestiméntum, amíctus ejus: \* super montes stabunt aquæ.
+
+Ab increpatióne tua fúgient: \* a voce tonítrui tui formidábunt.
+
+Ascéndunt montes: et descéndunt campi \* in locum, quem fundásti eis.
+
+Términum posuísti, quem non transgrediéntur: \* neque converténtur operíre terram.
+
+Qui emíttis fontes in convállibus: \* inter médium móntium pertransíbunt aquæ.
+
+Potábunt omnes béstiæ agri: \* exspectábunt ónagri in siti sua.
+
+Super ea volúcres cæli habitábunt: \* de médio petrárum dabunt voces.
+
+### Psalmus 103, ii
+
+RIgans montes de superióribus suis: \* de fructu óperum tuórum satiábitur terra:
+
+Prodúcens fœnum juméntis, \* et herbam servitúti hóminum:
+
+Ut edúcas panem de terra: \* et vinum lætíficet cor hóminis:
+
+Ut exhílaret fáciem in óleo: \* et panis cor hóminis confírmet.
+
+Saturabúntur ligna campi, et cedri Líbani, quas plantávit: \* illic pásseres nidificábunt.
+
+Heródii domus dux est eórum: \* montes excélsi cervis: petra refúgium herináciis.
+
+Fecit lunam in témpora: \* sol cognóvit occásum suum.
+
+Posuísti ténebras, et facta est nox: \* in ipsa pertransíbunt omnes béstiæ silvæ.
+
+Cátuli leónum rugiéntes, ut rápiant, \* et quærant a Deo escam sibi.
+
+Ortus est sol, et congregáti sunt: \* et in cubílibus suis collocabúntur.
+
+Exíbit homo ad opus suum: \* et ad operatiónem suam usque ad vésperum.
+
+### Psalmus 103, iii
+
+QUam magnificáta sunt ópera tua, Dómine! \* ómnia in sapiéntia fecísti: impléta est terra possessióne tua.
+
+Hoc mare magnum, et spatiósum mánibus: \* illic reptília, quorum non est númerus.
+
+Animália pusílla cum magnis: \* illic naves pertransíbunt.
+
+Draco iste, quem formásti ad illudéndum ei: \* ómnia a te exspéctant ut des illis escam in témpore.

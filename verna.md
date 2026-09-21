@@ -25315,4 +25315,22 @@ QUI enim hæsitat, símilis est flúctui maris, qui a vento movétur et circumf�
 
 #### Lectio iii
 
-BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se. Nemo, cum tentátur, dicat quóniam a Deo
+BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se. Nemo, cum tentátur, dicat quóniam a Deo tentátur: Deus enim intentátor malórum est: ipse autem néminem tentat. Unusquísque vero tentátur a concupiscéntia sua abstráctus et illéctus. Deínde concupiscéntia, cum concéperit, parit peccátum: peccátum vero, cum consummátum fúerit, génerat mortem. Nolíte ítaque erráre, fratres mei dilectíssimi.
+
+℟. Narrábo nomen tuum frátribus meis, allelúja: \* In médio Ecclésiæ laudábo te, allelúja, allelúja. ℣. Confitébor tibi in pópulis, Dómine, et psalmum dicam tibi in géntibus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+Ex Tractátu sancti Cypriáni Epíscopi et Mártyris de bono patiéntiæ
+
+{RUBRIC: Num. 1-3 et 20}
+
+#### Lectio iv
+
+DE patiéntia locutúrus, fratres dilectíssimi, et utilitátes ejus et cómmoda prædicatúrus, unde pótius incípiam, quam quod nunc quoque ad audiéntiam, vestram patiéntiam vídeo esse necessáriam: ut nec hoc ipsum, quod audítis et díscitis, sine patiéntia fácere possítis? Tunc enim demum sermo et rátio salutáris efficáciter díscitur, si patiénter, quod dícitur, audiátur. Nec invénio, fratres dilectíssimi, inter céteras cæléstis disciplínæ vias, quibus ad consequénda divínitus prǽmia spei ac fídei nostræ secta dirígitur, quid magis sit vel utílius ad vitam, vel majus ad glóriam, quam ut qui præcéptis Domínicis obséquio timóris ac devotiónis innítimur, patiéntiam máxime tota observatióne tueámur. Hanc se sectári philósophi quoque profiténtur: sed tam illic patiéntia falsa est, quam et falsa sapiéntia est. Unde enim vel sápiens esse vel pátiens possit, qui nec sapiéntiam nec patiéntiam Dei novit?
+
+℟. In ecclésiis benedícite Deo, allelúja: \* Dómino de fóntibus Israël, allelúja, allelúja. ℣. Psalmum dícite nómini ejus, date glóriam laudi ejus. — Dómino.
+
+#### Lectio v
+
+NOS autem, fratres dilectíssimi, qui philósophi non verbis, sed factis sumus; nec vestítu sapiéntiam, sed veritáte præférimus: qui virtútum consciéntiam magis quam jactántiam nóvimus: qui non lóquimur magna, sed vívimus quasi servi et cultóres Dei: patiéntiam, quam magistériis cæléstis-

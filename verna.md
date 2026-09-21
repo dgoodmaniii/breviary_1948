@@ -33453,4 +33453,16 @@ ERMENEGILDUS rex, Leovigíldi regis Visigothórum fílius, ab Ariána hǽresi ad
 
 ###### Lectio v
 
-SUPERVENIENTE autem Paschális festivitátis die, intempéstæ noctis siléntio, ad eum pérfidus pater Ariánum epíscopum misit, ut ex ejus manu sacrílegæ consecratiónis communiónem percíperet, atque per hoc ad patris grátiam redíre mererétur. Sed vir Deo déditus, Ariáno epíscopo veniénti exprobrávit, ut débuit, ejúsque a se perfídiam dignis increpatiónibus répulit: quia, etsi extérius jacébat ligátus, apud se tamen in magno mentis cúlmine
+SUPERVENIENTE autem Paschális festivitátis die, intempéstæ noctis siléntio, ad eum pérfidus pater Ariánum epíscopum misit, ut ex ejus manu sacrílegæ consecratiónis communiónem percíperet, atque per hoc ad patris grátiam redíre mererétur. Sed vir Deo déditus, Ariáno epíscopo veniénti exprobrávit, ut débuit, ejúsque a se perfídiam dignis increpatiónibus répulit: quia, etsi extérius jacébat ligátus, apud se tamen in magno mentis cúlmine stabat secúrus. Ad se itaque revérso epíscopo, Ariánus pater infrémuit, statímque suos apparitóres misit, qui constantíssimum Confessórem Dei illic, ubi jacébat, occíderent; quod et factum est. Nam mox ut ingréssi sunt, secúrim cérebro ejus infigéntes, vitam córporis abstulérunt; hocque in eo valuérunt perímere, quod ipsum quoque, qui perémptus est, in se constíterat despexísse. Sed pro ostendénda vera ejus glória, supérna quoque non defuére mirácula. Nam cœpit in noctúrno siléntio psalmódiæ cantus ad corpus ejúsdem Regis et Mártyris audíri: atque ídeo veráciter Regis, quia et Mártyris.
+
+{RUBRIC: In Quadragesima}
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. In servis suis, allelúja, \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+QUIDAM étiam ferunt, quod illic noctúrno témpore accénsæ lámpades apparébant; unde et factum est, quátenus corpus illíus, ut vidélicet Mártyris, jure a cunctis fidélibus venerári debuísset. Pater vero pérfidus et parricída, commótus pœniténtia, hoc fecísse se dóluit, nec tamen usque ad obtinéndam salútem pœnítuit. Nam quia vera esset cathólica fides agnóvit, sed gentis suæ timóre pertérritus, ad hanc perveníre non méruit. Qui, obórta ægritúdine, ad extréma perdúctus est, et Leándro epíscopo, quem prius veheménter afflíxerat, Reccarédum regem fílium suum, quem in sua hǽresi relinquébat, commendáre curávit, ut in ipso quoque tália fáceret, quália et in fratre suis exhortatiónibus fecísset. Qua commendatióne expléta, defúnctus est. Post ejus mortem Reccarédus rex non patrem pérfidum, sed fratrem Mártyrem sequens, ab Ariánæ hǽreseos pravitáte convérsus est, totámque Visigothórum gentem ita ad veram perdúxit fidem, ut nullum in suo regno militáre permítteret, qui regni Dei

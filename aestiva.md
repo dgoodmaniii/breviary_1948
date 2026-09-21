@@ -1070,3 +1070,39 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
 
 ℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolútis Précibus, vel, si Preces locum non hábeant, repetíta Antíphona post Nunc dimíttis, statim dícitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Post Oratiónem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: Et non dícitur Versus Fidélium ánimæ, sed immediáte subjúngitur finális beátæ Maríæ Vírginis Antíphona, quæ infra assignátur.}
+
+{RUBRIC: Postea subjúngitur:}
+
+℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+{RUBRIC: Deinde dícitur secréto Pater noster, Ave María et Credo.}
+
+{RUBRIC: Si post Completórium immediáte sequátur Matutínum, tunc bis dícitur Pater noster, Ave María et Credo, pro fine vidélicet Offícii diéi præcedéntis, et pro inítio Offícii diéi sequéntis.}
+
+## Post singulas Horas
+
+{RUBRIC: In fine Laudum, vel, si post Laudes immediáte subsequátur ália Hora, in fine últimæ Horæ, sicuti et semper in fine Completórii, quamvis immediáte sequátur Matutínum diéi sequéntis, tam in publica quam in priváta divíni Offícii recitatióne; atque in publica ínsuper recitatióne post álias quáscumque Horas, si tunc terminétur Offícium et discedátur a Choro, dícitur sequens Antíphona finális beátæ Maríæ Vírginis.}
+
+{RUBRIC: ¶ Post Laudes ac céteras Horas, præter Completórium, dicto Versu Fidélium ánimæ et Oratióne Domínica secréto recitáta, subjúngitur:}
+
+℣. Dóminus det nobis suam pacem. ℟. Et vitam ætérnam. Amen.
+
+{RUBRIC: Atque statim dícitur Antiphona finális, ut infra.}

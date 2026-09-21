@@ -22366,4 +22366,48 @@ ADEAMUS ergo cum fidúcia ad thronum grátiæ: ut misericórdiam consequámur, e
 
 NEC quisquam sumit sibi honórem, sed qui vocátur a Deo, tamquam Aaron. Sic et Christus non semetípsum clarificávit ut Póntifex fíeret: sed qui locútus est ad eum: Fílius meus es tu, ego hódie génui te. Quemádmodum et in álio loco dicit: Tu es sacérdos in ætérnum, secúndum órdinem Melchísedech. Qui in diébus carnis suæ preces, supplicatiónésque ad eum, qui possit illum salvum fácere a morte, cum clamóre válido et lácrimis ófferens, exaudítus est pro sua reveréntia. Et quidem cum esset Fílius Dei, dídicit ex iis, quæ passus est, obediéntiam: et consummátus, factus est ómnibus obtemperántibus sibi causa salútis ætérnæ, appellátus a Deo Póntifex juxta órdinem Melchísedech.
 
-℟. Caligavérunt óculi mei a fletu meo: quia elongátus est a me, qui consola-
+℟. Caligavérunt óculi mei a fletu meo: quia elongátus est a me, qui consolabátur me: Vidéte, omnes pópuli, \* Si est dolor símilis sicut dolor meus. ℣. O vos omnes, qui transítis per viam, atténdite et vidéte. — Si. Caligavérunt.
+
+## Ad Laudes
+
+**1** Próprio \* Fílio suo non pepércit Deus, sed pro nobis ómnibus trádidit illum.
+
+{RUBRIC: Psalmi de Feria 2 loco. 266}
+
+**2** Anxiátus est super me \* spíritus meus, in me turbátum est cor meum.
+
+**3** Ait latro ad latrónem: \* Nos quidem digna factis recípimus, hic autem quid fecit? Meménto mei, Dómine, dum véneris in regnum tuum.
+
+**4** Cum conturbáta fúerit \* ánima mea, Dómine, misericórdiæ memor eris.
+
+**5** Meménto mei, \* Dómine, dum véneris in regnum tuum.
+
+℣. Collocávit me in obscúris. ℟. Sicut mórtuos sǽculi.
+
+**Ad Bened. Ant.** Posuérunt \* super caput ejus causam ipsíus scriptam: Jesus Nazarénus, Rex Judæórum.
+
+{RUBRIC: Cantisum Benedíctus. 464}
+
+**Ant.** Christus factus est pro nobis obédiens usque ad mortem, mortem autem crucis.
+
+{RUBRIC: Pater noster secreto.}
+
+{RUBRIC: Postea dicitur aliquantulum altius Ps. Miserére 465, quo finíto sine Orémus dícitur símili voce}
+
+#### Oratio
+
+RESPICE, quæsumus, Dómine, super hanc famíliam tuam, pro qua Dóminus noster Jesus Christus non dubitávit mánibus tradi nocéntium, et crucis subíre torméntum: sed Qui tecum {RUBRIC: dícitur sub siléntio.}
+
+{RUBRIC: Ad Horas ómnia ut supra in Cœna Dómini 467 indicántur.}
+
+### Ad Vesperas
+
+{RUBRIC: Antíphonæ et Psalmi præcedéntis diéi 467, qui dicúntur páriter sine cantu.}
+
+**Ad Magnif. Ant.** Cum accepísset acétum, \* dixit: Consummátum est: et inclináto cápite, emísit spíritum.
+
+**Ant.** Christus factus est {RUBRIC: cum relíquis, ut supra ad Laudes.}
+
+{RUBRIC: Completórium dícitur ut in Cœna Dómini. 470}
+
+---

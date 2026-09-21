@@ -35029,3 +35029,15 @@ Léctio sancti Evangélii secúndum Lucam
 *Cap. 3, 21-23*
 
 IN illo témpore: Factum est autem cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Comment. in Luc. lib. 3}
+
+NEMINEM movére debet, quod ita scriptum est: Qui putabátur fílius Joseph. Bene enim putabátur, quia natúra non erat; sed ídeo putabátur, quia eum María, quæ Joseph viro suo erat desponsáta, genúerat. Sic enim habes: Nonne hic est fílius Joseph fabri? Díximus supra qua ratióne per Vírginem, díximus étiam qua ratióne per desponsátam, et quare census témpore nasci volúerit Dóminus salutáris; non aliénum étiam vidétur, ut qua ratióne fabrum patrem habúerit, declarémus. Hoc enim typo eum patrem sibi esse demónstrat, qui fabricátor ómnium cóndidit mundum. Nam etsi humána non sunt comparánda divínis, typus tamen ínteger est, quod Pater Christi igne operátur et spíritu, et tamquam bonus ánimæ faber vítia nostra circúmdolat; cito secúrim admóvens arbóribus infecúndis, secáre doctus exígua, culmínibus serváre sublímia, rígida méntium spíritus igne mollíre, et in vários usus omne humánum genus divérsa ministeriórum qualitáte formáre.
+
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis nomen ejus Jesum, allelúja. ℣. Ipse enim salvum fáciet pópulum suum a peccátis eórum. — Et.
+
+#### Lectio viii
+
+CUR autem Joseph magis quam Maríæ generátio describátur, cum María de Spíritu Sancto generávit Christum, et Joseph a generatióne Dómini videátur aliénus, dubitáre possémus, nisi consuetúdo nos instrúeret Scripturárum, quæ semper viri oríginem quærit. Viri enim persóna quæritur, qui étiam in senátu et réliquis cúriis civitátum géneris assérvat dignitátem. Quam defórme autem, si relícta viri orígine, orígo féminæ quærerétur, ut viderétur patrem non habuísse ille totíus mundi pópulis prædicándus! Vides ubíque famíliam per virórum generatiónes esse decúrsam. Noli mirári quod Joseph orígo descrípta est. Etenim secúndum carnem natus, usum débuit sequi carnis, et qui in sǽculum venit, sǽculi dé-

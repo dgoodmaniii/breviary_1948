@@ -2314,3 +2314,122 @@ Quam dúlcia fáucibus meis elóquia tua, \* super mel ori meo!
 A mandátis tuis intelléxi: \* proptérea odívi omnem viam iniquitátis.
 
 Lucérna pédibus meis verbum tuum, \* et lumen sémitis meis.
+
+Jurávi, et státui \* custodíre judícia justítiæ tuæ.
+
+Humiliátus sum usquequáque, Dómine: \* vivífica me secúndum verbum tuum.
+
+Voluntária oris mei beneplácita fac, Dómine: \* et judícia tua doce me.
+
+Anima mea in mánibus meis semper: \* et legem tuam non sum oblítus.
+
+Posuérunt peccatóres láqueum mihi: \* et de mandátis tuis non errávi.
+
+Hereditáte acquisívi testimónia tua in ætérnum: \* quia exsultátio cordis mei sunt.
+
+Inclinávi cor meum ad faciéndas justificatiónes tuas in ætérnum, \* propter retributiónem.
+
+###### Psalmus 118, viii
+
+INIQUOS ódio hábui: \* et legem tuam diléxi.
+
+Adjútor et suscéptor meus es tu: \* et in verbum tuum supersperávi.
+
+Declináte a me, malígni: \* et scrutábor mandáta Dei mei.
+
+Súscipe me secúndum elóquium tuum, et vivam: \* et non confúndas me ab exspectatióne mea.
+
+Adjuva me, et salvus ero: \* et meditábor in justificatiónibus tuis semper.
+
+Sprevísti omnes discedéntes a judíciis tuis: \* quia injústa cogitátio eórum.
+
+Prævaricántes reputávi omnes peccatóres terræ: \* ídeo diléxi testimónia tua.
+
+Confíge timóre tuo carnes meas: \* a judíciis enim tuis tímui.
+
+Feci judícium et justítiam: \* non tradas me calumniántibus me.
+
+Súscipe servum tuum in bonum: \* non calumniéntur me supérbi.
+
+Óculi mei defecérunt in salutáre tuum: \* et in elóquium justítiæ tuæ.
+
+Fac cum servo tuo secúndum misericórdiam tuam: \* et justificatiónes tuas doce me.
+
+Servus tuus sum ego: \* da mihi intelléctum, ut sciam testimónia tua.
+
+Tempus faciéndi, Dómine: \* dissipavérunt legem tuam.
+
+Ideo diléxi mandáta tua, \* super aurum et topázion.
+
+Proptérea ad ómnia mandáta tua dirigébar: \* omnem viam iníquam ódio hábui.
+
+**Ant.** Allelúja, tuus sum ego, salvum me fac, Dómine, allelúja, allelúja.
+
+**Capitulum** *Gal. 6, 2*
+
+ALTER altérius ónera portáte, et sic adimplébitis legem Christi.
+
+℟. br. In ætérnum, Dómine, \* Pérmanet verbum tuum. In ætérnum. ℣. In sæculum sæculi véritas tua. Pérmanet. Glória Patri. In ætérnum.
+
+℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+{RUBRIC: Oratio convéniens. Réliqua ut in Ordinário. 20}
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Successíbus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+**Ant.** Allelúja.
+
+###### Psalmus 118, ix
+
+MIRABILIA testimónia tua: \* ídeo scrutáta est ea ánima mea.
+
+Declarátio sermónum tuórum illúminat: \* et intelléctum dat párvulis.
+
+Os meum apérui, et attráxi spíritum: \* quia mandáta tua desiderábam.
+
+Aspice in me, et miserére mei, \* secúndum judícium diligéntium nomen tuum.
+
+Gressus meos dírige secúndum elóquium tuum: \* et non dominétur mei omnis injustítia.
+
+Rédime me a calúmniis hóminum: \* ut custódiam mandáta tua.
+
+Fáciem tuam illúmina super servum tuum: \* et doce me justificatiónes tuas.
+
+Exitus aquárum deduxérunt óculi mei: \* quia non custodiérunt legem tuam.
+
+Justus es, Dómine: \* et rectum judícium tuum.
+
+Mandásti justítiam testimónia tua: \* et veritátem tuam nimis.
+
+Tabéscere me fecit zelus meus: \* quia oblíti sunt verba tua inimíci mei.
+
+Ignítum elóquium tuum veheménter: \* et servus tuus diléxit illud.
+
+Adolescéntulus sum ego et contémptus: \* justificatiónes tuas non sum oblítus.
+
+Justítia tua, justítia in ætérnum: \* et lex tua véritas.
+
+Tribulátio, et angústia invenérunt me: \* mandáta tua meditátio mea est.
+
+Æquitas testimónia tua in ætérnum: \* intelléctum da mihi, et vivam. Glória Patri.

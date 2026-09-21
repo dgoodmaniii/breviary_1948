@@ -17219,3 +17219,27 @@ ET enim beáte regnántem Christum in cælis qui piaculáres ritus consoláre qu
 ##### Lectio v
 
 QUodsi propter peccáta quoque nostra, quæ futúra quidem erant at prævísa, ánima Christi tristis facta est usque ad mortem, haud dúbium quin solátii nonníhil jam tum céperit étiam e nostra item prævísa reparatióne, cum «appáruit illi Angelus de cælo» ut Cor ejus tædio et angóribus oppréssum consolarétur. Atque ita Cor illud sacratíssimum, quod ingratórum hóminum peccátis continénter sauciátur, étiam nunc mira quidem sed vera ratióne solári póssumus ac debémus, quandóquidem, ut in sacra quoque litúrgia légitur, ex ore Psaltis, Christus ipse se ab amícis suis derelíctum conquéritur: «Impropérium exspectávit Cor meum et misériam, et sustínui qui simul contristarétur et non fuit, et qui consolarétur et non invéni».
+
+℟. Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus \* Et revelásti ea párvulis. ℣. Ita, Pater, quóniam sic fuit plácitum ante te. — Et revelásti.
+
+##### Lectio vi
+
+ACcédit quod pássio Christi expiátrix renovátur et quodámmodo continuátur et adimplétur in córpore suo mýstico, quod est Ecclésia. Etenim, ut rursus sancti Augustíni verbis utámur, «passus est Christus quidquid pati debúerat; jam de mensúra passiónum nihil deest. Ergo implétæ sunt passiónes, sed in cápite; restábant adhuc Christi passiónes in córpore». Quod quidem Dóminus ipse Jesus declaráre dignátus est, cum ad Saulum «adhuc spirántem minárum et cædis in discípulos» loquens: «Ego sum, inquit, Jesus quem tu perséqueris», haud obscúre signíficans, commótis in Ecclésiam insectatiónibus, ipsum divínum oppugnári ac vexári Ecclésiæ Caput. Jure ígitur meritóque Christus in córpore suo mýstico adhuc pátiens, nos expiatiónis suæ sócios habére exóptat, idque, étiam ipsa nostra cum eo necessitúdo póstulat; nam cum simus «corpus Christi et membra de membro», quidquid pátitur caput, ómnia cum eo membra patiántur opórtet.
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum quóniam magnus es tu, et fáciens mirabília. — Et adorábunt. Glória Patri. Et adorábunt.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 19, 31-37*
+
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce córpora sábbato, erat enim magnus dies ille sábbati, rogavérunt Pilátum ut frangeréntur eórum crura et tolleréntur. Et réliqua.
+
+{RUBRIC: Homilía sancti Petri Canísii presbýteri}
+
+{RUBRIC: Exhortatiónes domésticæ. Med. 6-7}
+
+DIligénter tecum ánimo versa, quam ineffábilis fúerit illa cáritas qua Deus summus, in máximis Cordis angústiis et totíus mundi oppróbriis, pro te vilíssimo vermículo illam crucis acerbíssimam mortem per-

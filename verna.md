@@ -32997,4 +32997,72 @@ ERAT in eo mirífica loquéndi grátia: perpétuam virginitátem servávit: humi
 
 MULTIS miráculis servi sui sanctitátem Deus testári vóluit, quorum illud in primis célebre, quod a nautis rejéctus, Sicíliæ fretum strato super flúctibus pállio cum sócio transmísit. Multa étiam futúra prophético spíritu prædíxit. A Ludovíco undécimo Francórum rege expetítus, magnóque in honóre est hábitus. Dénique annum primum et nonagésimum agens, Turónis migrávit ad Dóminum, anno salútis millésimo quingentésimo séptimo: cujus corpus dies úndecim insepúltum, ita incorrúptum permánsit, ut suávem étiam odórem effláret. Eum Leo Papa décimus in Sanctórum númerum rétulit.
 
-℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. {RUBRIC: (T. P. Allelúja.)} ℣. Iste est, qui contémpsit
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. {RUBRIC: (T. P. Allelúja.)} ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia te vidi justum coram me ex ómnibus géntibus. {RUBRIC: (T. P. Allelúja.)} Glória Patri. Quia.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+FRANCISCUS Paulæ in Calábria natus est. Adoléscens, divíno ardóre succénsus, in erémum secéssit, ubi annis sex, victu ásperam sed meditatiónibus cæléstibus suávem vitam duxit. Cum autem virtútum ejus fama longe manáret, multíque ad eum pietátis stúdio concúrrerent, caritátis causa e solitúdine egréssus, ecclésiam prope Paulam ædificávit, ibíque prima sui órdinis fundaménta jecit. Perpétuam virginitátem servávit: humilitátem sic cóluit, ut se ómnium mínimum díceret, suósque alúmnos Mínimos appellári volúerit. Rudi amíctu, nudis pédibus incédens, humi cubábat. Caritáti ita addíctus fuit, ut sui órdinis tésseram esse jússerit. Multis miráculis servi sui sanctitátem Deus comprobávit, quorum illud in primis célebre, quod a nautis rejéctus, Sicíliæ fretum, strato super flúctibus pállio, cum sócio transmísit. Multa étiam prophético spíritu prædíxit. Turónis migrávit ad Dóminum, anno salútis millésimo quingentésimo séptimo, ætátis anno nonagésimo primo.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Nolíte timére, de Comm. Conf. non Pont. 2 loco. [123]}
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+DEUS, humílium celsitúdo, qui beátum Francíscum Confessórem Sanctórum tuórum glória sublimásti: tríbue, quǽsumus; ut, ejus méritis et imitatióne, promíssa humílibus prǽmia felíciter consequámur. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+---
+
+### Die 4 Aprilis
+
+#### S. Isidori
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Isidóre, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+*C 3*
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Isidórum minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+ISIDORUS, natióne Hispánus, Doctor egrégius, ex nova Carthágine Severiáno patre províncíæ duce, natus, a sanctis epíscopis Leándro Hispalénsi et Fulgéntio Carthaginénsi frátribus suis pie et liberáliter educátus, Latínis, Grǽcis et Hebráicis lítteris, divinísque et humánis légibus instrúctus, omni scientiárum atque christianárum virtútum génere præstantíssimus evásit. Adhuc adoléscens hǽresim Ariánam, quæ gentem Gothórum, Hispániæ latíssime dominántem, jamprídem invaserat, tanta constántia palam oppugnávit, ut parum abfúerit quin ab hæréticis necarétur. Leándro vita functo, ad Hispalénsem cáthedram invítus quidem, sed urgénte in primis Reccarédo rege, magnóque étiam cleri populíque consénsu assúmitur, ejúsque electiónem sanctus Gregórius Magnus, nedum auctoritáte apostólica confirmásse, sed et eléctum transmísso de more pállio decorásse, quin étiam suum et apostólicæ Sedis in univérsa Hispánia vicárium constituísse perhibétur.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. {RUBRIC: (T. P. Allelúja.)} ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.

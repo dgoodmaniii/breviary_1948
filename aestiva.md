@@ -3167,3 +3167,57 @@ Vivit Dóminus, et benedíctus Deus meus, \* et exaltétur Deus salútis meæ.
 Deus, qui das vindíctas mihi, et subdis pópulos sub me, \* liberátor meus de inimícis meis iracúndis.
 
 Et ab insurgéntibus in me exaltábis me: \* a viro iníquo éripies me.
+
+Proptérea confitébor tibi in natiónibus, Dómine: \* et nómini tuo psalmum dicam.
+
+Magníficans salútes Regis ejus, et fáciens misericórdiam Christo suo David, \* et sémini ejus usque in séculum.
+
+**Ant.** Vivit Dóminus, et benedíctus Deus salútis meæ.
+
+#### In Festis novem Lectionum:
+
+℣. Confitébor tibi in natiónibus, Dómine. ℟. Et nómini tuo psalmum dicam.
+
+**Absol.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+**Ant.** Exáudiat te \* † Dóminus in die tribulatiónis. †
+
+### Psalmus 19
+
+EXAUDIAT te † Dóminus in die tribulatiónis: \* † prótegat te nomen Dei Jacob.
+
+Mittat tibi auxílium de sancto: \* et de Sion tueátur te.
+
+Memor sit omnis sacrifícii tui: \* et holocáustum tuum pingue fiat.
+
+Tríbuat tibi secúndum cor tuum: \* et omne consílium tuum confírmet.
+
+Lætábimur in salutári tuo: \* et in nómine Dei nostri magnificábimur.
+
+Ímpleat Dóminus omnes petitiónes tuas: \* nunc cognóvi quóniam salvum fecit Dóminus Christum suum.
+
+Exáudiet illum de cælo sancto suo: \* in potentátibus salus déxteræ ejus.
+
+Hi in cúrribus, et hi in equis: \* nos autem in nómine Dómini, Dei nostri, invocábimus.
+
+Ipsi obligáti sunt, et cecidérunt: \* nos autem surréximus et erécti sumus.
+
+Dómine, salvum fac regem: \* et exáudi nos in die, qua invocavérimus te.
+
+**Ant.** Exáudiat te Dóminus in die tribulatiónis.
+
+**Ant.** Dómine, \* † in virtúte tua lætábitur rex. ‡
+
+### Psalmus 20
+
+DOMINE, † in virtúte tua lætábitur rex: \* ‡ et super salutáre tuum exsultábit veheménter.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem

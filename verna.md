@@ -24103,3 +24103,29 @@ SI testimónium hóminum accípimus, testimónium Dei majus est: quóniam hoc es
 **Ad Magnif. Ant.** Post dies octo \* jánuis clausis ingréssus Dóminus dixit eis: Pax vobis, allelúja, allelúja.
 
 {RUBRIC: Ad Completorium Ant.} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério 76, et réliqua ut ibídem de Ordinário pro Témpore Paschali.}
+
+{RUBRIC: ¶ Invitatorium, Hymni, Versus, Lectio brevis ad Primam et Responsoria brevia, in Officio tam dominicali quam feriali usque ad Nonam in Vigilia Ascensionis inclusive, dicuntur quotidie, ut supra, de Tempore Paschali in Psalterio de Ordinario: et inde in Officio feriali sumuntur etiam Capitula ad omnes Horas.}
+
+---
+
+# Infra Hebdomadam I post Octavam Paschæ
+
+## Feria Secunda
+
+### Ad Matutinum
+
+{RUBRIC: Psalmi de Feria sub Antiphona} Allelúja {RUBRIC: cum Versu pro Officio trium Lectionum de Tempore Paschali, ut in Psalterio. Quod item servatur in reliquis Feriis usque ad Vigiliam Ascensionis inclusive.}
+
+Incipit liber Actuum Apostolórum
+
+#### Lectio i
+
+*Cap. 1, 1-26*
+
+PRIMUM quidem sermónem feci de ómnibus, o Theóphile, quæ cœpit Jesus fácere, et docére usque in diem, qua præcípiens Apóstolis per Spíritum Sanctum, quos elégit, assúmptus est: quibus et præbuit seípsum vivum post passiónem suam in multis arguméntis, per dies quadragínta appárens eis, et loquens de regno Dei. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris, quam audístis (inquit) per os meum: quia Joánnes quidem baptizávit aqua, vos autem baptizabímini Spíritu Sancto non post multos hos dies. Igitur qui convénerant, interrogábant eum, dicéntes: Dómine, si in témpore hoc restítues regnum Israël? Dixit autem eis: Non est vestrum nosse témpora vel moménta, quæ Pater pósuit in sua potestáte: sed accipiétis virtútem superveniéntis Spíritus Sancti in vos, et éritis mihi testes in Jerúsalem, et in omni Judǽa, et Samaría, et usque ad últimum terræ.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+#### Lectio ii
+
+ET cum hæc dixísset, vidéntibus illis, elevátus est: et nubes suscépit eum ab óculis eórum. Cumque intueréntur in cælum eúntem illum, ecce duo viri astitérunt juxta illos in véstibus albis, qui et dixérunt: Viri Galilǽi, quid statis aspiciéntes in

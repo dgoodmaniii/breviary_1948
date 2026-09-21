@@ -33707,4 +33707,58 @@ VALERIANUS Románus, nóbili génere ortus, Alexándro Sevéro imperatóre, hort
 
 ###### Lectio ix
 
-DEINDE, postquam illórum eréxit ánimos, rursum perícula prædícit, illórum mentem érigens, omnibúsque sublimióres reddens. Quid enim ait? Nolíte timére eos qui occídunt corpus, ánimam autem non possunt occídere. Viden, quómodo illos ómnibus superióres reddat, non curas modo, non maledícta, perícula, insídias, sed étiam mortem ómnium terribilíssimam contémnere docens? Neque simplíciter mortem, sed étiam violéntam? Neque dixit, Occidémini; sed cum magnificéntia congruénte totum declarávit: Nolíte timére, dicens, ab iis qui occídunt corpus, ánimam autem non possunt occídere, sed pótius timéte eum qui potest et ánimam et corpus pérdere in gehénnam; in contrárium vertens sermónem, uti semper facit. Quid enim sibi vult? Timétis mortem, ideóque ad prædicándum segnióres estis? Sed hac de causa pótius prædicáte, quia mortem timétis; illud enim vere vos a morte erípiet. Nam etiámsi vos interemptúri sunt, meliórem tamen partem non superábunt, etiámsi id totis víribus conéntur. Ideo non dixit: Animam autem non occídunt: sed Non possunt occídere. Nam etiámsi velint, non superábunt. Ita-
+DEINDE, postquam illórum eréxit ánimos, rursum perícula prædícit, illórum mentem érigens, omnibúsque sublimióres reddens. Quid enim ait? Nolíte timére eos qui occídunt corpus, ánimam autem non possunt occídere. Viden, quómodo illos ómnibus superióres reddat, non curas modo, non maledícta, perícula, insídias, sed étiam mortem ómnium terribilíssimam contémnere docens? Neque simplíciter mortem, sed étiam violéntam? Neque dixit, Occidémini; sed cum magnificéntia congruénte totum declarávit: Nolíte timére, dicens, ab iis qui occídunt corpus, ánimam autem non possunt occídere, sed pótius timéte eum qui potest et ánimam et corpus pérdere in gehénnam; in contrárium vertens sermónem, uti semper facit. Quid enim sibi vult? Timétis mortem, ideóque ad prædicándum segnióres estis? Sed hac de causa pótius prædicáte, quia mortem timétis; illud enim vere vos a morte erípiet. Nam etiámsi vos interemptúri sunt, meliórem tamen partem non superábunt, etiámsi id totis víribus conéntur. Ideo non dixit: Animam autem non occídunt: sed Non possunt occídere. Nam etiámsi velint, non superábunt. Itaque si supplícium times, illud longe grávius time. Viden, quómodo non promíttat se illos a morte liberatúrum esse, sed mori permíttit, majóra largitúrus quam si id non permítteret? Longe enim majus est suadére ut mors spernátur, quam a morte erúere.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: Extra Tempus Paschale}
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+{RUBRIC: Tempore Paschali}
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui per stultítiam crucis eminéntem Jesu Christi sciéntiam beátum Justínum Mártyrem mirabíliter docuísti: ejus nobis intercessióne concéde; ut, errórum circumventióne depúlsa, fídei firmitátem consequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Post Commemorationem Feriæ in Quadragesima, fit Commemoratio Ss. Mm.:}
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui sanctórum Mártyrum tuórum Tibúrtii, Valeriáni et Máximi solémnia cólimus; eórum étiam virtútes imitémur. Per Dóminum.
+
+##### In II Vesperis
+
+{RUBRIC: Extra Tempus Paschale}
+
+℣. Justus ut palma.
+
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+{RUBRIC: Tempore Paschali}
+
+℣. Pretiósa in conspéctu.
+
+**Ad Magnif. Ant.** Sancti et justi, \* in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}

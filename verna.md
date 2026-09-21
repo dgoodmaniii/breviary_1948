@@ -39272,4 +39272,74 @@ SANCTORUM Mártyrum tuórum Basílidis, Cyríni, Náboris atque Nazárii, quǽsu
 
 {RUBRIC: Pro Commemorat. S. Joannis Conf.:}
 
-**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, auctor, ut supra. 1040
+
+{RUBRIC: Pro Ss. Basilide, Cyrino, Nabore et Nazario Martyribus:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Sanctórum Mártyrum, ut supra. 1040
+
+##### In II Vesperis
+
+{RUBRIC: Pro Commemorat. S. Joannis Conf.:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, auctor pacis, ut supra. 1040
+
+---
+
+### Die 13 Junii
+
+#### S. Antonii de Padua
+
+{RUBRIC: Confessoris}
+
+{RUBRIC: Duplex, sed ad modum Simplicis recolendum}
+
+##### In I Vesperis
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram, allelúja.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+ECCLESIAM tuam, Deus, beáti Antónii Confessóris tui solémnitas votíva lætíficet: ut spirituálibus semper muniátur auxíliis, et gáudiis pérfrui mereátur ætérnis. Per Dóminum.
+
+##### Ad Laudes
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+℣. Justum dedúxit.
+
+##### In II Vesperis
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+℣. Justum dedúxit.
+
+---
+
+### Die 14 Junii
+
+#### S. Basilii Magni
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex, sed ad modum Simplicis recolendum}
+
+##### In I Vesperis
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Basíli, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Amávit eum Dóminus.

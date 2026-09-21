@@ -16208,4 +16208,54 @@ HÆC dicit Dóminus: Ecce ego convértam conversiónem tabernaculórum Jacob, et
 
 IN témpore illo, dicit Dóminus, ero Deus univérsis cognatiónibus Israël, et ipsi erunt mihi in pópulum. Hæc dicit Dóminus: Invénit grátiam in desérto pópulus qui remánserat a gládio; vadet ad réquiem suam Israël. Longe Dóminus appáruit mihi. Et in caritáte perpétua diléxi te: ídeo attráxi te, míserans. Ecce dies vénient, dicit Dóminus: et fériam dómui Israël et dómui Juda fœdus novum: non secúndum pactum, quod pépigi cum pátribus eórum in die, qua apprehéndi manum eórum, ut edúcerem eos de Terra Ægýpti: pactum quod írritum fecérunt, et ego dominátus sum eórum, dicit Dóminus. Sed hoc erit pactum, quod fériam cum domo Israël: post dies illos dicit Dóminus: Dabo legem meam in viscéribus eórum, et in corde eórum scribam eam: et ero eis in Deum, et ipsi erunt mihi in pópulum.
 
-℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abun-
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória Patri. Propter.
+
+#### In II Nocturno
+
+**Ant.** Rex omnis terræ \* Deus; regnábit super Gentes.
+
+##### Psalmus 46
+
+OMnes gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et Gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super Gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+**Ant.** Rex omnis terræ Deus; regnábit super Gentes.
+
+**Ant.** Dum anxiarétur \* Cor meum, in petra exaltásti me.
+
+##### Psalmus 60
+
+EXáudi, Deus, deprecatiónem meam: \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi: \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea: \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sæcula: \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam: \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in sæculum sæculi: \* ut reddam vota mea de die in diem.
+
+**Ant.** Dum anxiarétur Cor meum, in petra exaltásti me.
+
+**Ant.** Secúndum multitúdinem \* dolórum meórum in Corde meo, consolatiónes tuæ lætificavérunt ánimam meam.

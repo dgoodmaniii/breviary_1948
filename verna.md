@@ -28781,4 +28781,42 @@ DEUS, qui beátum Cyríllum Confessórem tuum atque Pontíficem divínæ materni
 
 ###### Oratio
 
-DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Apollóniæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capitulo de sequenti, Commemoratio præcedentis et Feriæ.}
+
+---
+
+### Die 10 Februarii
+
+#### S. Scholasticæ {RUBRIC: Virg.}
+
+{RUBRIC: Duplex [129]}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+###### Oratio
+
+DEUS, qui ánimam beátæ Vírginis tuæ Scholásticæ ad ostendéndam innocéntiæ viam in colúmbæ spécie cælum penetráre fecísti: da nobis ejus méritis et précibus ita innocénter vívere; ut ad ætérna mereámur gáudia perveníre. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Cyrílle, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus qui beátum, {RUBRIC: ut supra. 686}
+
+{RUBRIC: Deinde Commem. Feriæ.}
+
+##### In II Nocturno
+
+Ex libro Dialogórum sancti Gregórii Papæ
+
+###### Lectio iv
+
+*Lib. 2, cap. 33*
+
+SCHOLASTICA, venerábilis patris Benedícti soror, omnipoténti Dómino ab ipso infántiæ témpore dedicáta, ad eum semel per annum veníre consuéverat; ad quam vir Dei non longe extra jánuam in possessióne monastérii descendébat. Quadam vero die venit ex more, atque ad eam cum discípulis venerábilis ejus descéndit frater; qui totum diem in Dei láudibus sacrísque collóquiis ducéntes, incumbéntibus jam noctis ténebris, simul accepérunt cibum. Cumque adhuc ad mensam sedérent, et inter sacra collóquia tárdior se hora protráheret, éadem sanctimoniális fémina soror ejus eum rogávit, dicens: Quǽso te, ut ista nocte me non déseras, ut usque mane de cæléstis vitæ gáudiis loquámur. Cui ille respóndit: Quid est quod lóqueris, soror? manére extra cellam nullátenus possum. Tanta vero erat cæli serénitas,

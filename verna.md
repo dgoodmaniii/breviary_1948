@@ -43988,4 +43988,24 @@ Sermo sancti Joánnis Chrysóstomi
 
 BEATI N. dies, cujus festivitátem celebrámus, ad ipsíus recte factórum enarratiónem linguam nostram evocávit. Síquidem hódie Beátus iste ad tranquíllam omnísque perturbatiónis expértem vitam tránsiit; eóque navígium áppulit, ubi deínceps non póterit metúere naufrágium, nec ullam ánimi perturbatiónem aut dolórem. Et quid mirum est, si locus ille purus est ab omni moléstia ánimi, cum Paulus, homínibus adhuc in hac vita degéntibus loquens, dicat: Semper gaudéte, sine intermissióne oráte?
 
-℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. (T. P. Allelúja.) ℣. Justum dedúxit Dóminus per vias rectas, et
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. (T. P. Allelúja.) ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+QUOD si hic, ubi morbi, ubi insectatiónes, ubi præmatúræ mortes, ubi calúmniæ, ubi invídiæ, ubi perturbatiónes, ubi iræ, ubi cupiditátes, ubi innumerábiles insídiæ, ubi quotidiánæ sollicitúdines, ubi perpétua sibíque succedéntia mala sunt, innúmeros ex omni parte dolóres afferéntia, Paulus dixit fíeri posse, ut semper gaudeámus, si quis páululum ex rerum mundanárum flúctibus eréxerit caput vitámque suam recte composúerit; multo magis, postquam hinc demigravérimus, fácile cómpotes érimus ejus boni, cum hæc ómnia subláta fúerint, advérsa valetúdo, morbi, peccándi matéria; ubi non est meum ac tuum, frígidum illud verbum, et quidquid est malórum in vitam nostram ínvehens, innúmeraque gignens bella.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+QUAM ob rem maximópere grátulor hujus Sancti felicitáti, quod, quamquam translátus est atque hanc, quæ apud nos est, civitátem relíquit, tamen in álteram adscríptus est civitátem, nempe Dei. Et, digréssus ab hac Ecclésia, ad illam pervénit, quæ est primogenitórum descriptórum in cælis; ac, relíctis hisce festis, tránsiit ad celebritátem Angelórum. Etenim, quod et cívitas sursum sit, et Ecclésia, et celébritas, audi Paulum dicéntem: Accessístis ad civitátem Dei vivéntis, Jerúsalem cæléstem, et Ecclésiam primitivórum, qui conscrípti sunt in cælis, et ad multórum míllium Angelórum frequéntiam.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. (T. P. Allelúja.) ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+##### In III Nocturno
+
+℣. Lex Dei ejus in corde ipsíus. (T. P. Allelúja.) ℟. Et non supplantabún-

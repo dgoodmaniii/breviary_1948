@@ -21315,3 +21315,27 @@ Réspice in testaméntum tuum: \* quia repléti sunt, qui obscuráti sunt terræ
 Ne avertátur húmilis factus confúsus: \* pauper et inops laudábunt nomen tuum.
 
 Exsúrge, Deus, júdica causam tuam: \* memor esto improperiórum tuórum, eórum quæ ab insipiénte sunt tota die.
+
+Ne obliviscáris voces inimicórum tuórum: \* supérbia eórum, qui te odérunt, ascéndit semper.
+
+{RUBRIC: †}
+
+**Ant.** Exsúrge, Dómine, et júdica causam meam.
+
+℣. Deus meus, éripe me de manu peccatóris. ℟. Et de manu contra legem agéntis et iníqui.
+
+{RUBRIC: Pater noster secreto.}
+
+#### Ex Tractátu sancti Augustíni Epíscopi super Psalmos
+
+{RUBRIC: In Psalm. 54 ad 1 vers.}
+
+#### Lectio iv
+
+EXAUDI, Deus, oratiónem meam, et ne despéxeris deprecatiónem meam: inténde mihi, et exáudi me. Satagéntis, sollíciti, in tribulatióne pósiti, verba sunt ista. Orat multa pátiens, de malo liberári desíderans. Súperest ut vidéamus in quo malo sit: et cum dícere cœperit, agnoscámus ibi nos esse: ut communicáta tribulatióne, conjungámus oratiónem. Contristátus sum, inquit, in exercitatióne mea, et conturbátus sum. Ubi contristátus? ubi conturbátus? In exercitatióne mea, inquit. Hómines malos, quos pátitur, commemorátus est: eamdémque passiónem malórum hóminum exercitatiónem suam dixit. Ne putétis gratis esse malos in hoc mundo, et nihil boni de illis ágere Deum. Omnis malus aut ídeo vivit, ut corrigátur; aut ídeo vivit, ut per illum bonus exerceátur.
+
+℟. Amícus meus ósculi me trádidit signo: Quem osculátus fúero, ipse est, tenéte eum: hoc malum fecit signum, qui per ósculum adimplévit homicídium. \* Infélix prætermísit prétium sánguinis, et in fine láqueo se suspéndit. ℣. Bonum erat ei, si natus non fuísset homo ille. — Infélix.
+
+#### Lectio v
+
+UTINAM ergo qui nos modo exércent, convertántur, et nobíscum exerceántur: tamen quámdiu ita sunt ut exérceant, non eos odérimus: quia in eo quod malus est quis eórum, utrum usque in finem perseveratúrus sit, ignorámus. Et plerúmque cum tibi vidéris odísse inimícum, fratrem odísti, et nescis. Diábolus, et ángeli ejus in Scriptúris sanctis manifestáti sunt nobis, quod ad ignem ætérnum sint destináti. Ipsórum tantum desperánda est corréctio, contra quos habémus occúltam luctam: ad quam luctam nos armat Apóstolus, di-

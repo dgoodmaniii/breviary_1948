@@ -44356,3 +44356,43 @@ QUO sunt órdines electórum in judício futúri: unus judicántium cum Dómino,
 SED et reprobórum duos sibi futúros órdines, Dómino narránte, compérimus: unum eórum, qui, fídei christiánæ mystériis initiáti, ópera fídei exercére contémnunt; quibus in judício testátur: Discédite a me, maledícti, in ignem ætérnum, qui præparátus est diábolo et ángelis ejus; esurívi enim, et non dedístis mihi manducáre. Alterum eórum, qui fidem et mystéria Christi vel numquam suscepére, vel suscéptam per apostásiam deseruére; de quibus dicit: Qui autem non credit, jam judicátus est, quia non credit in nómine unigéniti Fílii Dei.
 
 ℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. (T. P. Allelúja.) ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+VERUM, his cum timóre et pavóre débito paulísper commemorátis, ad lætíssima pótius Dómini et Salvatóris nostri promíssa convertámus audítum. Vidéamus quæ tantæ grátia pietátis: non ætérnæ tantúmmodo vitæ prǽmia suis sequácibus, sed et præséntis múnera pollicétur exímia. Et omnis, inquit, qui relíquerit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum accípiet, et vitam ætérnam possidébit. Qui enim terrénis afféctibus sive possessiónibus pro Christi discipulátu renuntiáverit; quo plus in ejus amórem profécerit, eo plures invéniet, qui se intérno suscípere afféctu et suis gáudeant sustentáre substántiis.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+# Commune Virginum
+
+##### In I Vesperis
+
+**Ant. 1** Hæc est Virgo sápiens, \* et una de número prudéntum. (T. P. Allelúja.)
+
+{RUBRIC: Psalmi ut in Communi Festórum B. Mariæ Virg.}
+
+**2** Hæc est Virgo sápiens, \* quam Dóminus vigilántem invénit. (T. P. Allelúja.)
+
+**3** Hæc est quæ nescívit \* torum in delícto: habébit fructum in respectióne animárum sanctárum. (T. P. Allelúja.)
+
+**4** Veni, elécta mea, \* et ponam in te thronum meum, allelúja. (T. P. Allelúja.)
+
+**5** Ista est speciósa \* inter fílias Jerúsalem. (T. P. Allelúja.)
+
+**Capit.** *2 Cor. 10, 17-18*
+
+FRATRES: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+###### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit,
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília,
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia.

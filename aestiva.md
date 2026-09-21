@@ -4731,4 +4731,58 @@ Humiliábam in jejúnio ánimam meam: \* et orátio mea in sinu meo convertétur
 
 Quasi próximum, et quasi fratrem nostrum, sic complacébam: \* quasi lugens et contristátus, sic humiliábar.
 
-Et advérsum me lætáti sunt, et convenérunt: \*
+Et advérsum me lætáti sunt, et convenérunt: \* congregáta sunt super me flagélla, et ignorávi.
+
+Dissipáti sunt, nec compúncti, tentavérunt me, subsannavérunt me subsannatióne: \* frenduérunt super me déntibus suis.
+
+Dómine, quando respícies? \* restítue ánimam meam a malignitáte eórum, a leónibus únicam meam.
+
+**Ant.** Restítue ánimam meam a malefáctis eórum, Dómine.
+
+**Ant.** Exsúrge, Dómine, \* et inténde judício meo.
+
+### Psalmus 34, iii
+
+CONFITEBOR tibi in ecclésia magna, \* in pópulo gravi laudábo te.
+
+Non supergáudeant mihi qui adversántur mihi iníque: \* qui odérunt me gratis et ánnuunt óculis.
+
+Quóniam mihi quidem pacífice loquebántur: \* et in iracúndia terræ loquéntes, dolos cogitábant.
+
+Et dilatavérunt super me os suum: \* dixérunt: Euge, euge, vidérunt óculi nostri.
+
+Vidísti, Dómine, ne síleas: \* Dómine, ne discédas a me.
+
+Exsúrge et inténde judício meo: \* Deus meus, et Dóminus meus in causam meam.
+
+Júdica me secúndum justítiam tuam, Dómine, Deus meus, \* et non supergáudeant mihi.
+
+Non dicant in córdibus suis: Euge, euge, ánimæ nostræ: \* nec dicant: Devorávimus eum.
+
+Erubéscant et revereántur simul, \* qui gratulántur malis meis.
+
+Induántur confusióne et reveréntia \* qui magna loquúntur super me.
+
+Exsúltent et læténtur qui volunt justítiam meam: \* et dicant semper: Magnificétur Dóminus, qui volunt pacem servi ejus.
+
+Et lingua mea meditábitur justítiam tuam, \* tota die laudem tuam.
+
+**Ant.** Exsúrge, Dómine, et inténde judício meo.
+
+#### In Festis novem Lectionum:
+
+℣. Lingua mea meditábitur justítiam tuam. ℟. Tota die laudem tuam, Dómine.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+#### In II Nocturno
+
+**Ant.** Noli æmulári \* † in eo, qui prosperátur, et facit iniquitátem.
+
+### Psalmus 36, i
+
+NOLI æmulári in malignántibus: \* neque zeláveris faciéntes iniquitátem.
+
+Quóniam tamquam fœnum velóciter aréscent: \*

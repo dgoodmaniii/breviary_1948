@@ -28630,3 +28630,21 @@ MENTIBUS nostris, quǽsumus, Dómine, Spíritum Sanctum benígnus infúnde: cuju
 {RUBRIC: Vesperæ de sequenti Festo sanctissimæ Trinitatis, Commemoratio Dominicæ I post Pentecosten.}
 
 ---
+
+[IMAGE]
+
+# Proprium Sanctorum
+
+{RUBRIC: In omnibus Festis novem Lectionum Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum, necnon in omnibus Duplicibus I vel II classis, integrum Officium dicitur ut in Proprio vel Communi, et Lectiones I Nocturni cum suis Responsoriis, nisi propriæ vel specialiter assignatæ habeantur, sumuntur de Communi 1 loco.}
+
+{RUBRIC: In reliquis vero Festis novem Lectionum, nisi propria suis locis assignentur, Antiphonæ et Psalmi ad omnes Horas, et ad Matutinum Versus Nocturnorum, dicuntur de occurrenti hebdomadæ die, ad Laudes quidem et Feria IV etiam in III Nocturno, 1 loco; Lectiones I Nocturni de Scriptura occurrenti, vel resumendæ aut anticipandæ juxta Rubricas, cum suis Responsoriis de Tempore; quæ si omnino desint, Lectiones et Responsoria de Communi 1 loco, nisi aliter propriis locis notetur; reliqua omnia item de Communi, nempe præter Orationem:}
+
+{RUBRIC: Ad utrasque Vesperas et Laudes Capitulum, Hymnus, Versus et Antiphona ad Magnificat vel Benedictus.}
+
+{RUBRIC: Ad Matutinum Invitatorium, Hymnus, Lectiones II et III Nocturni cum suis Responsoriis.}
+
+{RUBRIC: Ad Primam Lectio brevis, pro qua sumitur Capitulum Nonæ.}
+
+{RUBRIC: Ad Tertiam, Sextam et Nonam Capitulum et ℟. breve.}
+
+{RUBRIC: Per Octavas autem communes, similiter Antiphonæ et Psalmi dicuntur de occurrenti hebdomadæ die, reliqua, nisi aliter suis locis notetur, ut in Festo: sed Lectiones et Responsoria I Nocturni, nisi propria habeantur, sumuntur de Scriptura occurrenti, ut supra, et iis deficientibus, Lectiones in diebus infra Octavam dicuntur de Communi, in die Octava, et pro Festis Domini Commune non habentibus}

@@ -38647,3 +38647,49 @@ DEUS, virginitátis amátor, qui beátam Maríam Magdalénam Vírginem, tuo amó
 ###### Oratio
 
 GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Felícem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+###### Lectio iii
+
+FELIX Románus, patre Constántio, Aureliáno imperatóre præfuit Ecclésiæ. Constítuit ut Missa supra memórias et sepúlcra Mártyrum celebrarétur. Qui, cum mense Decémbri habuísset ordinatiónes duas, et creásset presbýteros novem, diáconos quinque, epíscopos per divérsa loca quinque; martýrio coronátus, via Aurélia sepelítur in basílica quam a se ædificátam dedicárat. Vixit in pontificátu annos duos, menses quátuor, dies vigínti novem.
+
+{RUBRIC: Te Deum laudámus.}
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio S. Petronillæ Virg.}
+
+---
+
+### Die 31 Maji
+
+#### S. Angelæ Mericiæ
+
+{RUBRIC: Virginis}
+
+{RUBRIC: Duplex [129]}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+###### Oratio
+
+DEUS, qui novum per beátam Angelam sacrárum Vírginum collégium in Ecclésia tua florescere voluísti: da nobis, ejus intercessióne, angélicis móribus vívere; ut, terrénis ómnibus abdicátis, gáudiis pérfrui mereámur ætérnis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio S. Petronillæ Virg.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam, allelúja.
+
+℣. Diffúsa est grátia.
+
+**Oratio** C 3
+
+EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ Petroníllæ Vírginis tuæ festivitáte gaudémus, ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+ANGELA Merícia, Decentiáni, Veronénsis diœcésis óppido ad lacum Benácum in dicióne Véneta, piis orta paréntibus, a prima ætáte virginitátis lílium, quod perpétuo serváre statúe-

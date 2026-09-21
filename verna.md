@@ -45492,4 +45492,54 @@ LIBERASTI me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus,
 
 MANUM suam apéruit ínopi, et palmas suas exténdit ad páuperem. Non timébit dómui suæ a frigóribus nivis.
 
-℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Adjuvábit eam Deus vultu suo, \* Allelúja, allelúja. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Allelúja, allelúja. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam, allelúja. ℟. In tabernáculo suo habitáre facit eam, allelúja.
+
+##### Ad Nonam
+
+##### Pro Martyre tantum
+
+###### Capitulum
+
+*Eccli. 51, 8 et 12*
+
+LAUDABIT usque ad mortem ánima mea Dóminum, quóniam éruis sustinéntes te, et líberas eos de manu angústiæ, Dómine, Deus noster.
+
+##### Pro nec Virgine nec Mart.
+
+###### Capitulum
+
+*Prov. 31, 29-30*
+
+MULTÆ fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo: múlier timens Dóminum, ipsa laudábitur.
+
+℟. br. Elégit eam Deus, \* Et præelégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Elégit eam Deus, et præelégit eam, \* Allelúja, allelúja. Elégit. ℣. In tabernáculo suo habitáre facit eam. Allelúja, allelúja. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis, allelúja. ℟. Proptérea benedíxit te Deus in ætérnum, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [149], præter}
+
+℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Manum suam \* apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit. (T. P. Allelúja.)
+
+{RUBRIC: Si fuerint plures Martyres non Virgines, Versus, Antiphona ad Magnificat et Oratio ut supra. [150] vel [157]}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## II Aliæ Lectiones pro Martyre tantum
+
+##### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+{RUBRIC: Sermo 67 de divérsis novi Testaménti locis}

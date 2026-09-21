@@ -28312,3 +28312,37 @@ DEus, qui hodiérna die corda fidélium Sancti Spíritus illustratióne docuíst
 {RUBRIC: Infra Octávam ómnia dicúntur ut in Festo, præter ea, quæ síngulis diébus assignántur própria.}
 
 ---
+
+[IMAGE]
+
+# Feria II infra Octavam Pentecostes
+
+Duplex I classis
+
+℣. Spíritus Dómini replévit orbem terrárum, allelúja. ℟. Et hoc quod cóntinet ómnia, sciéntiam habet vocis, allelúja.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio i
+
+*Cap. 3, 16-21*
+
+IN illo témpore: Dixit Jesus Nicodémo: Sic Deus diléxit mundum, ut Fílium suum unigénitum daret: ut omnis, qui credit in eum, non péreat, sed hábeat vitam ætérnam. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tract. 12 in Joann., sub finem}
+
+QUANTUM in médico est, sanáre venit ægrótum. Ipse se intérimit, qui præcépta médici observáre non vult. Venit Salvátor in mundum. Quare Salvátor dictus est mundi, nisi ut salvet mundum, non ut júdicet mundum? Salvári non vis ab ipso: ex te judicáberis. Et quid dicam, Judicáberis? Vide quid ait: Qui credit in eum, non judicátur. Qui autem non credit: quid dictúrum sperábas, nisi, Judicátur? Quod addit: Jam, inquit, judicátus est: nondum appáruit judícium, et jam factum est judícium.
+
+℟. Jam non dicam vos servos, sed amícos meos; quia ómnia cognovístis, quæ operátus sum in médio vestri, allelúja: \* Accípite Spíritum Sanctum in vobis Paráclitum: ille est, quem Pater mittet vobis, allelúja. ℣. Vos amíci mei estis, si fecéritis, quæ ego præcípio vobis. — Accípite.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+NOVIT enim Dóminus qui sunt ejus: novit qui permáneant ad corónam, qui permáneant ad flammam. Novit in área sua tríticum, novit et páleam; novit ségetem, novit et zizánia. Jam judicátus est, qui non credit. Quare judicátus? Quia non crédidit in nómine unigéniti Fílii Dei. Hoc est autem judícium: quia lux venit in

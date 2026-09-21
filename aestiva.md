@@ -13102,4 +13102,66 @@ Inítio tu, Dómine, terram fundásti: \* et ópera mánuum tuárum sunt cæli.
 
 Ipsi períbunt, tu autem pérmanes: \* et omnes sicut vestiméntum veteráscent.
 
-Et sicut opertórium mutábis eos, et mutabún-
+Et sicut opertórium mutábis eos, et mutabúntur: \* tu autem idem ipse es, et anni tui non defícient.
+
+Fílii servórum tuórum habitábunt: \* et semen eórum in sæculum dirigétur.
+
+**Ant.** Clamor meus, Dómine, ad te pervéniat: \* non avértas fáciem tuam a me.
+
+### In Officio feriali
+
+**Capitulum** *Jer. 17, 14*
+
+SAna me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 19}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Dómine, Deus meus.
+
+### Psalmus 103, i
+
+BEnedic, ánima mea, Dómino: \* Dómine, Deus meus, magnificátus es vehementer.
+
+Confessiónem, et decórem induísti: \* amíctus lúmine sicut vestiménto:
+
+Exténdens cælum sicut pellem: \* qui tegis aquis superióra ejus.
+
+Qui ponis nubem ascénsum tuum: \* qui ámbulas super pennas ventórum.
+
+Qui facis ángelos tuos, spíritus: \* et minístros tuos ignem uréntem.

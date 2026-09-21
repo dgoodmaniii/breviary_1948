@@ -18422,4 +18422,28 @@ ET perfécit omne opus, quod faciébat Sálomon in domo Dómini, et íntulit qu�
 
 ##### Lectio ii
 
-VEnerúntque cuncti senes de Israël, et tulérunt arcam sacerdótes et portavérunt arcam Dómi-
+VEnerúntque cuncti senes de Israël, et tulérunt arcam sacerdótes et portavérunt arcam Dómini et tabernáculum fœderis et ómnia vasa sanctuárii, quæ erant in tabernáculo, et ferébant ea sacerdótes et levítæ. Rex autem Sálomon et omnis multitúdo Israël, quæ convénerat ad eum, gradiebátur cum illo ante arcam, et immolábant oves et boves absque æstimatióne et número. Et intulérunt sacerdótes arcam fœderis Dómini in locum suum, in oráculum templi, in Sanctum sanctórum subter alas Chérubim; síquidem Chérubim expandébant alas super locum arcæ et protegébant arcam et vectes ejus désuper.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+*Cap. 8, 9-12*
+
+IN arca autem non erat áliud nisi duæ tábulæ lapídeæ, quas posúerat in ea Móyses in Horeb, quando pépigit Dóminus fœdus cum fíliis Israël, cum egrederéntur de terra Ægýpti. Factum est autem, cum exíssent sacerdótes de sanctuário, nébula implévit domum Dómini, et non póterant sacerdótes stare et ministráre propter nébulam; impléverat enim glória Dómini domum Dómini. Tunc ait Sálomon: Dóminus dixit ut habitáret in nébula.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Exaudísti, Dómine, \* oratiónem servi tui, ut ædificárem templum nómini tuo.
+
+### Oratio
+
+LArgíre nobis, quǽsumus, Dómine, semper spíritum cogitándi quæ recta sunt, propítius et agéndi: ut, qui sine te esse non póssumus, secúndum te vívere valeámus. Per Dóminum.

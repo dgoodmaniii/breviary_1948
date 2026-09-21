@@ -29683,4 +29683,44 @@ PERFICIENDÆ magis vitæ causa, in Avellanénsi Eugubínæ diœcésis cœnóbio,
 
 ###### Lectio vi
 
-DIFFICILLIMO témpore Románæ Ecclésiæ, summísque Pontifícibus doctrína, legatiónibus, alíisque sucéptis labóribus mirífice ádfuit. Advérsus Nicolaitárum et simoníacam hǽreses ad mortem usque strénue decertávit. Hujúsmodo depúlsis malis, Mediolanénsem Ecclésiæ Románæ conciliávit. Benedícto et Cadalóo falsis pontifícibus fórtiter réstitit: Henrícum quartum Germániæ regem ab iníquo uxóris divórtio detérruit: Ravennátes ad débita Románo Pontífici obséquia revocátos sacris restítuit: canónicos Velitérnos ad sanctióris vitæ leges compósuit. In província præsértim Urbináte vix ulla fuit episcopális ecclésia, de qua Petrus non sit bene méritus: Eugubínam, quam aliquándo créditam hábuit, multis levávit incómmodis; álias álibi, quando opórtuit, perínde curávit, ac suæ essent tutélæ commíssæ. Cardinálatu et episcopáli dignitáte depósitis, nihil de prístina juvándi próximos sedulitáte remísit. Jejúnium sextæ fériæ in honórem sanctæ Crucis Jesu Christi, horárias beátæ Dei Genitrícis preces, ejúsque die Sábbato cultum propagávit. Inferéndæ quoque sibi verberatiónis morem ad patratórum scélerum expiatiónem provéxit. Demum sanctitáte, doctrína, miráculis et præcláre actis illústris, dum e Ravennáte legatióne redíret, Faventíæ octávo Kaléndas Mártii migrávit ad Christum. Ejus corpus ibídem apud Cistercíénses, multis miráculis clarum, frequénti populórum veneratióne cólitur. Ipsum Faventíni, non semel in præsénti discrímine propítium expérti, patrónum apud Deum delegérunt. Leo vero duodécimus Póntifex
+DIFFICILLIMO témpore Románæ Ecclésiæ, summísque Pontifícibus doctrína, legatiónibus, alíisque sucéptis labóribus mirífice ádfuit. Advérsus Nicolaitárum et simoníacam hǽreses ad mortem usque strénue decertávit. Hujúsmodo depúlsis malis, Mediolanénsem Ecclésiæ Románæ conciliávit. Benedícto et Cadalóo falsis pontifícibus fórtiter réstitit: Henrícum quartum Germániæ regem ab iníquo uxóris divórtio detérruit: Ravennátes ad débita Románo Pontífici obséquia revocátos sacris restítuit: canónicos Velitérnos ad sanctióris vitæ leges compósuit. In província præsértim Urbináte vix ulla fuit episcopális ecclésia, de qua Petrus non sit bene méritus: Eugubínam, quam aliquándo créditam hábuit, multis levávit incómmodis; álias álibi, quando opórtuit, perínde curávit, ac suæ essent tutélæ commíssæ. Cardinálatu et episcopáli dignitáte depósitis, nihil de prístina juvándi próximos sedulitáte remísit. Jejúnium sextæ fériæ in honórem sanctæ Crucis Jesu Christi, horárias beátæ Dei Genitrícis preces, ejúsque die Sábbato cultum propagávit. Inferéndæ quoque sibi verberatiónis morem ad patratórum scélerum expiatiónem provéxit. Demum sanctitáte, doctrína, miráculis et præcláre actis illústris, dum e Ravennáte legatióne redíret, Faventíæ octávo Kaléndas Mártii migrávit ad Christum. Ejus corpus ibídem apud Cistercíénses, multis miráculis clarum, frequénti populórum veneratióne cólitur. Ipsum Faventíni, non semel in præsénti discrímine propítium expérti, patrónum apud Deum delegérunt. Leo vero duodécimus Póntifex máximus Offícium Missámque in ejus honórem tamquam Confessóris Pontíficis, quæ alíquibus in diœcésibus atque in órdine Camaldulénsium jam celebrabántur, ex sacrórum Rítuum Congregatiónis consúlto, áddita Doctóris qualitáte, ad univérsam exténdit Ecclésiam.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: In III Nocturno Homilía in Evangelium Vos estis sal terræ, de Communi Doctorum 1 loco. [107]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+CONCEDE nos, quǽsumus, omnípotens Deus: beáti Petri Confessóris tui atque Pontíficis mónita et exémpla sectári; ut per terréstrium rerum contémptum ætérna gáudia consequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Feriæ.}
+
+{RUBRIC: De Vigilia S. Matthiæ Apostoli nihil fit in Officio.}
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis et Feriæ; si vero annus sit bissextilis, in Vesperis fit tantum Commemoratio Feriæ.}
+
+---
+
+### Die 24 Februarii vel 25 in anno bissextili
+
+#### S. Matthiæ Apostoli
+
+{RUBRIC: Duplex II classis}
+
+{RUBRIC: Omnia de Communi Apostolorum [2], præter ea quæ hic habentur propria.}
+
+###### Oratio
+
+DEUS, qui beátum Matthíam Apostolórum tuórum collégio sociásti: tríbue, quǽsumus; ut ejus intervéntione, tuæ circa nos pietátis semper víscera sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis, quoties annus non est bissextilis:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Petre, divínæ legis

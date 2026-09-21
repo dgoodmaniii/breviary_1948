@@ -24580,4 +24580,16 @@ De Actibus Apostolórum
 
 SURREXERUNT autem quidam de hǽresi pharisæórum, qui credidérunt, dicéntes: Quia opórtet circumcídi eos, præcípere quoque serváre legem Móysi. Convenerúntque Apóstoli et senióres vidére de verbo hoc. Cum autem magna conquisítio fíeret, surgens Petrus dixit ad eos: Viri fratres, vos scitis quóniam ab antíquis diébus Deus in nobis elégit, per os meum audíre gentes verbum Evangélii, et crédere. Et qui novit corda Deus, testimónium perhíbuit, dans illis Spíritum Sanctum, sicut et nobis, et nihil discrévit inter nos et illos, fide puríficans corda eórum. Nunc ergo quid tentátis Deum, impónere jugum super cervíces discipulórum, quod neque patres nostri, neque nos portáre potúimus? Sed per grátiam Dómini Jesu Christi crédimus salvári, quemádmodum et illi. Tácuit autem omnis multitúdo: et audiébant Bárnabam et Paulum, narrántes quanta Deus fecísset signa et prodígia in géntibus per eos.
 
-℟. Virtúte magna reddébant Apóstoli \* Testimó-
+℟. Virtúte magna reddébant Apóstoli \* Testimó-nium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+#### Lectio ii
+
+ET, postquam tacuérunt, respóndit Jacóbus, dicens: Viri fratres, audíte me. Simon narrávit quemádmodum primum Deus visitávit súmere ex géntibus pópulum nómini suo. Et huic concórdant verba prophetárum, sicut scriptum est: Post hæc revértar, et reædificábo tabernáculum David, quod décidit: et díruta ejus reædificábo, et érigam illud: ut requírant céteri hóminum Dóminum, et omnes gentes, super quas invocátum est nomen meum, dicit Dóminus, fáciens hæc. Notum a sǽculo est Dómino opus suum. Propter quod ego júdico non inquietári eos, qui ex géntibus convertúntur ad Deum, sed scríbere ad eos ut abstíneant se a contaminatiónibus simulacrórum, et fornicatióne, et suffocátis, et sánguine. Móyses enim a témporibus antíquis habet in síngulis civitátibus, qui eum prǽdicent in synagógis, ubi per omne sábbatum légitur.
+
+℟. De ore prudéntis procédit mel, allelúja: dulcédo mellis est sub lingua ejus, allelúja: \* Favus distíllans lábia ejus, allelúja, allelúja. ℣. Sapiéntia requiéscit in corde ejus, et prudéntia in sermóne oris illíus. — Favus.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Favus.
+
+#### Lectio iii
+
+TUNC plácuit Apóstolis, et senióribus cum omni Ecclésia, elígere viros ex eis, et míttere Antiochíam cum Paulo et Bárnaba, Judam, qui cognominabátur Bársabas, et Silam, viros primos in frátribus, scribéntes per manus eórum: Apóstoli et senióres fratres, his qui sunt Antiochíæ, et Sýriæ, et Cilíciæ frátribus ex géntibus, salútem. Quóniam audívimus quia quidam ex nobis exeúntes, turbavérunt vos verbis, everténtes ánimas vestras, quibus non mandávimus: plácuit nobis colléctis in unum, elígere viros, et míttere ad vos cum caríssimis nostris Bárnaba et Paulo, homínibus, qui tradidérunt ánimas suas pro nómine Dómini nostri Jesu Christi. Mísimus ergo Judam et Silam, qui et ipsi vobis verbis réferent éadem. Visum est enim Spirítui

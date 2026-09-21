@@ -34382,3 +34382,49 @@ VITALIS miles, sanctórum Gervásii et Protásii pater, una cum Paulíno júdice
 ###### Oratio
 
 DOMINE Jesu Christe, qui ad mystérium crucis prædicándum, sanctum Paulum singulári caritáte donásti, et per eum novam in Ecclésia famíliam floréscere voluísti: ipsíus nobis intercessióne concéde; ut passiónem tuam júgiter recoléntes in terris, ejúsdem fructum cónsequi mereámur in cælis: Qui vivis.
+
+{RUBRIC: Post Com. Feriæ in II Rogationum, Com. S. Vitalis Martyris:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+###### Oratio
+
+{RUBRIC: C 3}
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti Vitális Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequenti, Commem. præcedentis.}
+
+---
+
+### Die 29 Aprilis
+
+#### S. Petri
+
+{RUBRIC: Martyris Duplex [74]}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut beáti Petri Mártyris tui fidem cóngrua devotióne sectémur; qui, pro ejúsdem fídei dilatatióne, martýrii palmam méruit obtinére. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DOMINE Jesu Christe, qui ad mystérium crucis prædicándum, sanctum Paulum singulári caritáte donásti, et per eum novam in Ecclésia famíliam floréscere voluísti: ipsíus nobis intercessióne concéde; ut passiónem tuam júgiter recoléntes in terris, ejúsdem fructum cónsequi mereámur in cælis: Qui vivis.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PETRUS, Verónæ paréntibus Manichæórum hǽresi inféctis natus, ab ipsa pene infántia contra hǽreses pugnávit. Puer annórum septem, cum scholas frequentáret, aliquándo a pátruo hærético interrogátus quid tandem in iis didicísset, christiánæ fídei symbolum se didicísse respóndit; neque ullis umquam patris patrúive blandítiis aut minis a fídei constántia dimovéri pótuit. Adoléscens Bonóniam studiórum causa venit; ubi, a Spíritu Sancto ad sublimióris vitæ

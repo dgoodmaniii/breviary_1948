@@ -21338,4 +21338,22 @@ EXAUDI, Deus, oratiónem meam, et ne despéxeris deprecatiónem meam: inténde m
 
 #### Lectio v
 
-UTINAM ergo qui nos modo exércent, convertántur, et nobíscum exerceántur: tamen quámdiu ita sunt ut exérceant, non eos odérimus: quia in eo quod malus est quis eórum, utrum usque in finem perseveratúrus sit, ignorámus. Et plerúmque cum tibi vidéris odísse inimícum, fratrem odísti, et nescis. Diábolus, et ángeli ejus in Scriptúris sanctis manifestáti sunt nobis, quod ad ignem ætérnum sint destináti. Ipsórum tantum desperánda est corréctio, contra quos habémus occúltam luctam: ad quam luctam nos armat Apóstolus, di-
+UTINAM ergo qui nos modo exércent, convertántur, et nobíscum exerceántur: tamen quámdiu ita sunt ut exérceant, non eos odérimus: quia in eo quod malus est quis eórum, utrum usque in finem perseveratúrus sit, ignorámus. Et plerúmque cum tibi vidéris odísse inimícum, fratrem odísti, et nescis. Diábolus, et ángeli ejus in Scriptúris sanctis manifestáti sunt nobis, quod ad ignem ætérnum sint destináti. Ipsórum tantum desperánda est corréctio, contra quos habémus occúltam luctam: ad quam luctam nos armat Apóstolus, dicens: Non est nobis colluctátio advérsus carnem et sánguinem: id est, non advérsus hómines, quos vidétis, sed advérsus príncipes, et potestátes, et rectóres mundi, tenebrárum harum. Ne forte cum dixísset, mundi, intellígeres dæmones esse rectóres cæli et terræ. Mundi dixit, tenebrárum harum: mundi dixit, amatórum mundi: mundi dixit, impiórum et iniquórum: mundi dixit, de quo dicit Evangélium: Et mundus eum non cognóvit.
+
+℟. Judas mercátor péssimus ósculo pétiit Dóminum: ille ut agnus ínnocens non negávit Judæ ósculum: \* Denariórum número Christum Judǽis trádidit. ℣. Mélius illi erat, si natus non fuísset. — Denariórum.
+
+#### Lectio vi
+
+QUONIAM vidi iniquitátem et contradictiónem in civitáte. Atténde glóriam crucis ipsíus. Jam in fronte regum crux illa fixa est, cui inimíci insultavérunt. Efféctus probávit virtútem: dómuit orbem non ferro, sed ligno. Lignum crucis contuméliis dignum visum est inimícis, et ante ipsum lignum stantes caput agitábant, et dicébant: Si Fílius Dei est, descéndat de cruce. Extendébat ille manus suas ad pópulum non credéntem, et contradicéntem. Si enim justus est, qui ex fide vivit; iníquus est, qui non habet fidem. Quod ergo hic ait, iniquitátem: perfídiam intéllige. Vidébat ergo Dóminus in civitáte iniquitátem et contradictiónem, et extendébat manus suas ad pópulum non credéntem, et contradicéntem: et tamen et ipsos exspéctans dicébat: Pater, ignósce illis, quia nésciunt quid fáciunt.
+
+℟. Unus ex discípulis meis tradet me hódie: Væ illi per quem tradar ego: \* Mélius illi erat, si natus non fuísset. ℣. Qui intíngit mecum manum in paropside, hic me traditúrus est in manus peccatórum. — Mélius. Unus.
+
+#### In III Nocturno
+
+**Ant.** Dixi iníquis: \* Nolíte loqui advérsus Deum iniquitátem.
+
+#### Psalmus 74
+
+CONFITEBIMUR tibi, Deus: \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua: \* cum accépero tempus, ego justítias judicábo.

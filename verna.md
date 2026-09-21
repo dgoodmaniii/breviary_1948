@@ -30285,4 +30285,50 @@ CETERIS autem custódibus somno déditis, solus vigilábat jánitor, qui et illo
 
 ###### Lectio vi
 
-IN eo supplício mórtui sunt omnes, præter Melithónem natu mínimum. Quem cum præsens mater ejus, fractis crúribus, adhuc vivéntem vidísset, sic cohortáta est: Fili, paulísper sústine; ecce Christus ad jánuam stat ádjuvans te. Cum vero relíquórum córpora plaustris impóni cérneret, ut in rogum inferréntur, ac fílium suum relínqui, quod speráret ímpia turba púerum, si vixísset, ad idolórum cultum revocári posse; ipso in húmeros subláto, sancta mater vehícula Mártyrum corpóribus onústa strénue prosequebátur. In
+IN eo supplício mórtui sunt omnes, præter Melithónem natu mínimum. Quem cum præsens mater ejus, fractis crúribus, adhuc vivéntem vidísset, sic cohortáta est: Fili, paulísper sústine; ecce Christus ad jánuam stat ádjuvans te. Cum vero relíquórum córpora plaustris impóni cérneret, ut in rogum inferréntur, ac fílium suum relínqui, quod speráret ímpia turba púerum, si vixísset, ad idolórum cultum revocári posse; ipso in húmeros subláto, sancta mater vehícula Mártyrum corpóribus onústa strénue prosequebátur. In cujus ampléxu Mélithon spíritum Deo réddidit, ejúsque corpus in eúmdem illum ceterórum Mártyrum rogum pia mater injécit; ut qui fide et virtúte conjunctíssimi fúerant, fúneris étiam societáte copuláti, una in cælum pervenírent. Combústis illis, eórum relíquiæ projéctæ in profluéntem, cum mirabíliter in unum confluxíssent locum, salvæ et íntegræ repértæ, honorífico sepúlcro cónditæ sunt.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Descéndens Jesus, {RUBRIC: de Communi plurimorum Martyrum extra Tempus Paschale 2 loco. [71]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Exsultábunt sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### In Vesperis
+
+℣. Exsultábunt sancti.
+
+**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctórum, qui Christi vestígia sunt secúti: et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+---
+
+### Die 12 Martii
+
+#### S. Gregorii I
+
+{RUBRIC: Papæ, Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Gregóri, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio
+
+DEUS, qui ánimæ fámuli tui Gregórii ætérnæ beatitúdinis prǽmia contulísti: concéde propítius; ut, qui peccatórum nostrórum póndere prémimur, ejus apud te précibus sublevémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}

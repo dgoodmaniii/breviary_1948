@@ -34984,4 +34984,30 @@ QUOD si nobis crédere non prodésset, non hoc tam atténte idem Apóstolus Tim�
 
 #### Lectio ix
 
-CUM vero unus idémque narrátor utrúmque dicat, utrúmque comméndet, et virum Maríæ Joseph et Christi Vírginem Matrem, et Christum ex sémine David et Joseph
+CUM vero unus idémque narrátor utrúmque dicat, utrúmque comméndet, et virum Maríæ Joseph et Christi Vírginem Matrem, et Christum ex sémine David et Joseph in série progeneratórum Christi ex David; quid restat, nisi et Maríam non fuísse extráneam a cognatióne David, et eam Joseph cónjugem non frustra appellátam propter órdinem sexus et animórum confœderatiónem; et Joseph pótius propter dignitátem virílem ab órdine generatiónum illárum non fuísse separándum, ne hoc ipso vidérétur ab illa fémina separátus, cui eum conjungébat mentis afféctus?
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## Sabbato
+
+De IV die infra Octav. S. Joseph
+
+{RUBRIC: Semiduplex 873}
+
+### In II Nocturno
+
+De Sermóne sancti Joánnis Chrysóstomi
+
+{RUBRIC: Homilia 4 in Matth.}
+
+#### Lectio iv
+
+JOSEPH, fili David, noli timére accípere Maríam cónjugem tuam. Quid autem est accípere? Domi profécto retinére; jam enim illam mente dimíserat: sed dimíssam, inquit, retíneas, quam Deus tibi cópulat, non paréntes; cópulat vero, non in fœdus solémne conjúgii, sed in consórtium commúnis habitáculi, et cópulat per meæ vocis offícium. Sicut enim illam póstea comméndat Christus ipse discípulo, ita étiam nunc Angelus Sponso; solátium tantúmmodo ejus habitúram absque fœdere nuptiárum. Deínde, honéstius multóque dígnius causa partus expósita, suspiciónem quoque prorsus restínxit. Non modo, inquit, illícito non est violáta compléxu, verum étiam supra natúram morémque fœcúnda est. Noli ígitur de tam felíci partu Sponsæ attráhere mærórem, immo vero in majórem prorúmpe lætítiam; quod enim in ea natum est, de Spíritu Sancto est.
+
+℟. Dedísti mihi protectiónem salútis tuæ et déxtera tua suscépit me: \* Protéctor meus et cornu salútis meæ et susceptor meus, allelúja. ℣. Ego protéctor tuus sum et merces tua magna nimis. — Protéctor.
+
+#### Lectio v
+
+PARIET autem Fílium, et vocábis nomen ejus Jesum; non enim quia ex Spíritu Sancto est, idcírco te a ministério tantæ exístimes dispensatiónis extráneum. Nam etsi nihil hábeas in hac generatióne commúne (Virgo quippe permánsit intácta), tamen

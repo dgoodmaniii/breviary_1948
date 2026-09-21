@@ -41419,4 +41419,28 @@ IN illo témpore: Dixit Jesus turbis: Si quis venit ad me, et non odit patrem su
 
 {RUBRIC: Homilía 37 in Evang.}
 
-SI considerémus, fratres caríssimi, quæ et quanta sunt, quæ nobis promittúntur in cælis, viléscunt ánimo ómnia quæ habéntur in terris. Terréna namque substántia, supérnæ felicitáti comparáta, pondus est, non subsídium. Temporális vita, ætérnæ vitæ comparáta, mors est pótius dicénda quam vita. Ipse enim quotidiánus deféctus corruptiónis quid est áliud quam quædam prolíxitas mortis? Quæ autem lingua dícere, vel quis intelléctus cápere súfficit, illa supérnæ civitátis quanta sint gáudia; Angelórum choris interésse, cum beatíssimis spirítibus glóriæ Conditóris assístere, præséntem Dei vultum cérne-
+SI considerémus, fratres caríssimi, quæ et quanta sunt, quæ nobis promittúntur in cælis, viléscunt ánimo ómnia quæ habéntur in terris. Terréna namque substántia, supérnæ felicitáti comparáta, pondus est, non subsídium. Temporális vita, ætérnæ vitæ comparáta, mors est pótius dicénda quam vita. Ipse enim quotidiánus deféctus corruptiónis quid est áliud quam quædam prolíxitas mortis? Quæ autem lingua dícere, vel quis intelléctus cápere súfficit, illa supérnæ civitátis quanta sint gáudia; Angelórum choris interésse, cum beatíssimis spirítibus glóriæ Conditóris assístere, præséntem Dei vultum cérnere, incircumscríptum lumen vidére, nullo mortis metu áffici, incorruptiónis perpétuæ múnere lætári?
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+**Bened.** Cujus festum cólimus.
+
+###### Lectio viii
+
+SED ad hæc audíta inardéscit ánimus, jamque illic cupit assístere, ubi se sperat sine fine gaudére. Sed ad magna prǽmia perveníri non potest, nisi per magnos labóres. Unde et Paulus egrégius prædicátor dicit: Non coronábitur, nisi qui legítime certáverit. Deléctet ergo mentem magnitúdo præmiórum, sed non detérreat certámen labórum. Unde ad se veniéntibus Véritas dicit: Si quis venit ad me, et non odit patrem suum, et matrem, et uxórem, et fílios, et fratres, et soróres, adhuc autem et ánimam suam, non potest meus esse discípulus.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+{RUBRIC: Sequens Responsorium dícitur, loco præcedéntis, in Offício unius Martyris, qui non effúso sánguine occúbuerit.}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. Glória Patri. Posuísti.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Cándidi facti sunt Nazaræi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+**Benedictio** Ad societátem.

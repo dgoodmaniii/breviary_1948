@@ -1842,3 +1842,53 @@ Viam mandatórum tuórum cucúrri, \* cum dilatásti cor meum.
 {RUBRIC: ¶ Si Athanasiánum Symbólum omittátur, explétis Psalmis præcedéntibus, statim dícitur Antíphona, ut infra. 45}
 
 {RUBRIC: Séquens Symbólum dícitur in Domínicis post Pentecósten, quando fit Offícium de Domínica ut in Psaltério, neque ulla Commemorátio Offícii dúplicis vel Octávæ recúrrit, et in Festo sanctíssimæ Trinitátis.}
+
+### Symbolum Athanasianum
+
+QUICUMQUE vult salvus esse, \* ante ómnia opus est, ut téneat cathólicam fidem:
+
+Quam nisi quisque íntegram inviolatámque serváverit, \* absque dúbio in ætérnum períbit.
+
+Fides autem cathólica hæc est: \* ut unum Deum in Trinitáte, et Trinitátem in unitáte venerémur.
+
+Neque confundéntes persónas, \* neque substántiam separántes.
+
+Ália est enim persóna Patris, ália Fílii, \* ália Spíritus Sancti:
+
+Sed Patris, et Fílii, et Spíritus Sancti una est divínitas, \* æquális glória, coætérna majéstas.
+
+Quális Pater, talis Fílius, \* talis Spíritus Sanctus.
+
+Increátus Pater, increátus Fílius, \* increátus Spíritus Sanctus.
+
+Imménsus Pater, imménsus Fílius, \* imménsus Spíritus Sanctus.
+
+Ætérnus Pater, ætérnus Fílius, \* ætérnus Spíritus Sanctus.
+
+Et tamen non tres ætérni, \* sed unus ætérnus.
+
+Sicut non tres increáti, nec tres imménsi, \* sed unus increátus, et unus imménsus.
+
+Simíliter omnípotens Pater, omnípotens Fílius, \* omnípotens Spíritus Sanctus.
+
+Et tamen non tres omnipoténtes, \* sed unus omnípotens.
+
+Ita Deus Pater, Deus Fílius, \* Deus Spíritus Sanctus.
+
+Et tamen non tres Dii, \* sed unus est Deus.
+
+Ita Dóminus Pater, Dóminus Fílius, \* Dóminus Spíritus Sanctus.
+
+Et tamen non tres Dómini, \* sed unus est Dóminus.
+
+Quia, sicut singillátim unamquámque persónam Deum ac Dóminum confitéri christiána veritáte compéllimur: \* ita tres Deos aut Dóminos dícere cathólica religióne prohibémur.
+
+Pater a nullo est factus: \* nec creátus, nec génitus.
+
+Fílius a Patre solo est: \* non factus, nec creátus, sed génitus.
+
+Spíritus Sanctus a Patre et Fílio: \* non factus, nec creátus, nec génitus, sed procédens.
+
+Unus ergo Pater, non tres Patres: unus Fílius, non tres Fílii: \* unus Spíritus Sanctus, non tres Spíritus Sancti.
+
+Et in hac Trinitáte nihil prius aut postérius, nihil majus aut minus: \* sed

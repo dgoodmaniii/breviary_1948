@@ -38304,4 +38304,18 @@ PHILIPPUS Nérius, piis honestísque paréntibus Floréntiæ natus, ab ipsa ine�
 
 ###### Lectio v
 
-CARITATE Dei vulnerátus languébat júgiter, tantóque cor ejus æstuábat ardóre, ut, cum intra fines suos continéri non posset, illíus sinum, confráctis atque elátis duábus cóstulis, mirabíliter Dóminus ampliáverit. Sacrum vero fáciens aut ferventius orans,
+CARITATE Dei vulnerátus languébat júgiter, tantóque cor ejus æstuábat ardóre, ut, cum intra fines suos continéri non posset, illíus sinum, confráctis atque elátis duábus cóstulis, mirabíliter Dóminus ampliáverit. Sacrum vero fáciens aut ferventius orans, in áëra quandóque sublátus, mira úndique luce fulgére visus fuit. Egénos et páuperes omni caritátis offício prosequebátur: dignus, qui et Angelo in spécie páuperis eleemósynam erogáret; et, dum egéntibus noctu panem deférret, in fóveam lapsus, inde páriter ab Angelo incólumis eriperétur. Humilitáti addíctus, ab honóribus semper abhórruit, atque ecclesiásticas dignitátes, étiam primárias, non semel ultro delátas, constantíssime recusávit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum, allelúja. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio vi
+
+PROPHETIÆ dono fuit illústris, et in animórum sénsibus penetrándis mirífice enítuit. Virginitátem perpétuo illibátam servávit; idque assecútus est, ut eos qui puritátem cólerent, ex odóre, qui vero secus, ex fœtóre dignósceret. Abséntibus intérdum appáruit, iísque periclitántibus opem tulit. Ægrótos plúrimos et morti próximos sanitáti restítuit. Mórtuum quoque ad vitam revocávit. Cæléstium spirítuum et ipsíus Deíparæ Vírginis frequénter fuit apparitióne dignátus, ac plurimórum ánimas splendóre circumfúsas in cælum conscéndere vidit. Dénique, anno salútis millésimo quingentésimo nonagésimo quinto, octávo Kaléndas Júnias, in quem diem incíderat festum Córporis Christi, Sacro máxima spíritus exsultatióne peráto, ceterísque functiónibus explétis, post médiam noctem, qua prædíxerat hora, octogenárius obdormívit in Dómino. Quem Gregórius décimus quintus, miráculis clarum, in Sanctórum númerum rétulit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+PHILIPPUS Nérius, piis honestísque paréntibus Floréntiæ natus, ampla pátrui hereditáte di-

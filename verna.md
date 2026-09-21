@@ -19128,3 +19128,27 @@ CORDIBUS nostris, quæsumus, Dómine, grátiam tuam benígnus infúnde: ut, sicu
 SUBVENIAT nobis, Dómine, misericórdia tua: ut ab imminéntibus peccatórum nostrórum perículis te mereámur protegénte éripi, te liberánte salvári. Per Dóminum.
 
 ---
+
+## Feria Tertia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 18, 15-22*
+
+IN illo témpore: Dixit Jesus discípulis suis: Si peccáverit in te frater tuus, vade, et córripe eum inter te et ipsum solum. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 16 de Verbis Dómini, tom. 10, post initium}
+
+QUARE illum córripis? Quia tu doles, quod peccáverit in te? Absit. Si amóre tui id facis, nihil facis: si amóre illíus facis, óptime facis. Dénique in ipsis verbis atténde, cujus amóre id fácere débeas, utrum tui, an illíus. Si te audíerit, inquit, lucrátus es fratrem tuum. Ergo propter illum fac, ut lucréris illum. Sic faciéndo lucráris: nisi fecísses, períerat. Quid est ergo, quod plerique hómines ista peccáta contémnunt, et dicunt: Quid magnum feci? in hóminem peccávi. Noli contémnere: in hóminem peccásti.
+
+℟. Nuntiavérunt Jacob dicéntes: Joseph fílius tuus vivit, et ipse dominátur in tota terra Ægýpti: quo audíto revíxit spíritus ejus, et dixit: \* Súfficit mihi, vadam et vidébo eum, ántequam móriar. ℣. Cumque audísset Jacob, quod fílius ejus víveret, quasi de gravi somno evígilans, ait. — Súfficit.
+
+#### Lectio ii
+
+VIS nosse, quia in hóminem peccándo, perísti? Si te ille, in quem peccásti, corripúerit inter te et ipsum solum, et audíeris illum, lucrátus est te. Quid est, Lucrátus est te; nisi quia períeras, si non lucrarétur te? Nam si non períeras, quómodo te lucrátus est? Nemo ergo contémnat, quando peccat in fratrem. Ait enim quodam loco Apóstolus: Sic autem peccántes in fratres, et percutiéntes consciéntiam eórum infírmam, in Christum peccátis: ídeo quia membra Christi omnes facti sumus. Quómodo non peccas in Christum, qui peccas in membrum Christi?
+
+℟. Joseph dum intráret in terram Ægýpti, linguam quam non nóverat, audívit: manus ejus in labóribus serviérunt: \* Et lingua ejus inter príncipes loquebátur sapiéntiam. ℣. Humiliavérunt in compédibus pedes ejus: ferrum pertránsiit ánimam

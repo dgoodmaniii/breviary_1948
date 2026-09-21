@@ -17764,4 +17764,28 @@ QUid est, quod David, qui retribuéntibus sibi mala non réddidit, cum Saul et J
 
 ##### Lectio v
 
-QUid ergo montes Gélboe, Saul moriénte, deliquérunt, quátenus in eos nec ros nec plúvia cáderet et ab omni eos viriditátis gérmine senténtiæ sermo siccáret? Sed quia Gélboe interpretátur decúrsus, per Saul autem unctum et mórtuum mors nostri Mediatóris exprímitur; non immérito per Gélboe montes supérba Judæórum corda signántur, quæ dum in hujus mundi desidériis
+QUid ergo montes Gélboe, Saul moriénte, deliquérunt, quátenus in eos nec ros nec plúvia cáderet et ab omni eos viriditátis gérmine senténtiæ sermo siccáret? Sed quia Gélboe interpretátur decúrsus, per Saul autem unctum et mórtuum mors nostri Mediatóris exprímitur; non immérito per Gélboe montes supérba Judæórum corda signántur, quæ dum in hujus mundi desidériis défluunt, in Christi, id est, uncti se morte miscuérunt: et quia in eis unctus rex corporáliter móritur, ipsi ab omni grátiæ rore siccántur.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+DE quibus et bene dícitur, ut agri primitiárum esse non possint. Supérbæ quippe Hebrærum mentes primitívos fructus non ferunt: quia in Redemptóris advéntu ex parte máxima in perfídia remanéntes, primórdia fídei sequi noluérunt. Sancta namque Ecclésia in primítiis suis multitúdine géntium fœcundáta, vix in mundi fine Judǽos quos invénerit, súscipit, et extréma cólligens, eos quasi relíquias frugum ponit.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 2, 1-11*
+
+IGitur post hæc consúluit David Dóminum dicens: Num ascéndam in unam de civitátibus Juda? Et ait Dóminus ad eum: Ascénde. Dixítque David: Quo ascéndam? Et respóndit ei: In Hebron. Ascéndit ergo David et duæ uxóres ejus Achínoam Jezrahelítes et Abígail uxor Nabal Carméli; sed et viros, qui erant cum eo, duxit David síngulos cum domo sua; et mansérunt in óppidis Hebron. Venerúntque viri Juda et unxérunt ibi David, ut regnáret super domum Juda.
+
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.

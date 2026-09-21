@@ -39572,3 +39572,52 @@ Ut, cum redíbit árbiter
 In fine Christus sǽculi,
 Nos sempitérni gáudii
 Concédat esse cómpotes.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória. Amen.
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Bened. Ant.** Vos qui reliquístis \* ómnia, et secúti estis me, céntuplum accipiétis, et vitam ætérnam possidébitis.
+
+{RUBRIC: Oratio propria.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, sed ad Primam loco Psalmi 117 Confitémini, dícitur Psalmus 53 Deus, in nómine tuo. Quod semper observátur, quando pónitur sequens Rubrica: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+{RUBRIC: Capitulum} Fratres: Jam non estis, {RUBRIC: ut supra.}
+
+℟. br. In omnem terram \* Exívit sonus eórum. In omnem. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In omnem. ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+##### Ad Sextam
+
+**Capitulum** *Act. 5, 12*
+
+PER manus autem Apostolórum fiébant signa et prodígia multa in plebe.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super omnem terram. Glória Patri. Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+##### Ad Nonam
+
+**Capitulum** *Act. 5, 41*
+
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni habíti sunt pro nómine Jesu contuméliam pati.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+##### In II Vesperis
+
+{RUBRIC: Añæ extra Tempus Paschale cum Psalmis ut infra pro Tempore Paschali notatur. [21]}
+
+{RUBRIC: Capitulum et Hymnus Exsúltet ut supra ad Laudes.}
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Magnif. Ant.** Estóte fortes \* in bello, et pugnáte cum antíquo serpénte: et accipiétis regnum ætérnum.
+
+{RUBRIC: Completorium de Dominica.}
+
+---

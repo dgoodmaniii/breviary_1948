@@ -3813,3 +3813,47 @@ OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
 Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
 
 Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+{RUBRIC: Secus vero, tribus Psalmis explétis, statim dícitur Ant.}
+
+**Ant.** Innocens mánibus et mundo corde ascéndet in montem Dómini.
+
+{RUBRIC: In Officio Festi vel Octávæ:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In ómnibus autem Fériis et in Vigíliis commúnibus:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+#### Preces dominicales et feriales
+
+*(si dicéndæ sint).*
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secréto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me.
+
+#### In Précibus feriálibus tantum
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me. ℣. Eripe me de inimícis meis, Deus

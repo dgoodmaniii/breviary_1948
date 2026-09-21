@@ -15280,3 +15280,42 @@ Et antíquum documéntum
 Novo cedat rítui;
 Præstet fides suppleméntum
 Sénsuum deféctui.
+
+Genitóri, Genitóque
+Laus et jubilátio,
+Salus, honor, virtus quoque
+Sit et benedíctio:
+Procedénti ab utróque
+Compar sit laudátio. Amen.
+
+℣. Cibávit illos ex ádipe fruménti, allelúja. ℟. Et de petra, melle saturávit eos, allelúja.
+
+**Ad Magnif. Ant.** Puer Sámuel \* ministrábat ante Deum coram Heli, et sermo Dómini erat pretiósus cum eo.
+
+### In II Vesperis
+
+**Ad Magnif. Ant.** Exi cito \* in platéas et vicos civitátis: et páuperes ac débiles, cæcos et claudos compélle intráre, ut impleátur domus mea, allelúja.
+
+### Oratio
+
+SAncti nóminis tui, Dómine, timórem páriter et amórem fac nos habére perpétuum: quia numquam tua gubernatióne destítuis, quos in soliditáte tuæ dilectiónis instítuis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis diéi infra Octávam:}
+
+**Ant.** O sacrum convívium, in quo Christus súmitur; recólitur memória passiónis ejus; mens implétur grátia; et futúræ glóriæ nobis pignus datur, allelúja.
+
+℣. Panem de cælo præstitísti eis, allelúja. ℟. Omne delectaméntum in se habéntem, allelúja.
+
+### Oratio
+
+DEus, qui nobis sub Sacraménto mirábili passiónis tuæ memóriam reliquísti: tríbue, quæsumus, ita nos córporis et sánguinis tui sacra mystéria venerári; ut redemptiónis tuæ fructum in nobis júgiter sentiámus: Qui vivis.
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 4, 1-11*
+
+ET factum est in diébus illis, convenérunt Philísthiim in pugnam; et egréssus est Israël óbviam Philísthiim in prǽlium, et castrametátus est juxta Lápidem adjutórii. Porro Philísthiim venérunt in Aphec et instruxérunt áciem contra Israël. Inito autem certámine, terga vertit Israël Philisthǽis, et cæsa sunt in illo certámine passim per agros quasi quátuor míllia virórum. Et revérsus est pópulus ad castra, dixerúntque majóres natu

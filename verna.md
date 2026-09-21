@@ -28451,4 +28451,20 @@ NOLI cogitáre te invítum trahi: tráhitur ánimus et amóre. Nec timére debé
 
 #### Lectio ii
 
-DA amántem, et sentit quod dico: da desiderántem, da esuriéntem, da in ista solitúdine peregrinántem, atque sitiéntem, et fontem ætérnæ pátriæ suspirántem: da talem, et scit quid dicam. Si autem frígido loquor, nescit quid loquor. Tales erant isti, qui ínvicem murmurábant. Pater, inquit, quem tráxerit, venit ad me. Quid est autem, Pater quem tráxerit, cum ipse Christus trahat? Quare vóluit dícere, Pater quem tráxerit? Si trahéndi sumus, ab illo trahámur, cui dicit quædam, quæ díli-
+DA amántem, et sentit quod dico: da desiderántem, da esuriéntem, da in ista solitúdine peregrinántem, atque sitiéntem, et fontem ætérnæ pátriæ suspirántem: da talem, et scit quid dicam. Si autem frígido loquor, nescit quid loquor. Tales erant isti, qui ínvicem murmurábant. Pater, inquit, quem tráxerit, venit ad me. Quid est autem, Pater quem tráxerit, cum ipse Christus trahat? Quare vóluit dícere, Pater quem tráxerit? Si trahéndi sumus, ab illo trahámur, cui dicit quædam, quæ díligit: Post odórem unguentórum tuórum currémus. Sed quid intélligi vóluit, advertámus, fratres, et, quantum póssumus, capiámus. Trahit Pater ad Fílium eos, qui proptérea credunt in Fílium, quia eum cógitant Patrem habére Deum. Deus enim Pater æquálem sibi génuit Fílium; et qui cógitat, atque in fide sua sentit et rúminat, æquálem esse Patri eum, in quem credit, ipsum trahit Pater ad Fílium.
+
+℟. Ite in univérsum orbem, et prædicáte Evangélium, allelúja: \* Qui credíderit et baptizátus fúerit, salvus erit, allelúja, allelúja, allelúja. ℣. In nómine meo dæmónia ejícient, linguis loquéntur novis, serpéntes tollent. — Qui. Glória Patri. Qui.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+ARIUS crédidit creatúram, non eum traxit Pater; quia non consíderat Patrem, qui Fílium non credit æquálem. Quid dicis, o Ari? quid dicis, hærétice? quid lóqueris? Quid est Christus? Non, inquit, Deus verus, sed quem fecit Deus verus. Non te traxit Pater; non enim intellexísti Patrem, cujus Fílium negas. Aliud cógitas, non est ipse Fílius: nec a Patre tráheris, nec ad Fílium tráheris. Aliud est enim Fílius, áliud quod tu dicis. Photínus dicit: Homo solum est Christus, non est et Deus. Qui sic credit, non Pater eum traxit. Quem traxit Pater? Illum qui dicit: Tu es Christus Fílius Dei vivi. Ramum víridem osténdis ovi, et trahis illam. Nuces púero demonstrántur, et tráhitur: et quod currit, tráhitur, amándo tráhitur, sine læsióne córporis tráhitur, cordis vínculo tráhitur. Si ergo ista, quæ inter delícias et voluptátes terrénas revelántur amántibus, trahunt, quóniam verum est, Trahit sua quemque volúptas; non trahit revelátus Christus a Patre? Quid enim fórtius desíderat ánima, quam veritátem?
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Ego sum panis vivus, \* dicit Dóminus, qui de cælo descéndi, allelúja, allelúja.
+
+#### Oratio
+
+MENTES nostras, quǽsumus, Dómine, Paráclitus, qui a te procédit, illúminet: et indúcat in omnem, sicut tuus promísit Fílius, veritátem: Qui tecum vivit et regnat in unitáte ejúsdem Spíritus Sancti Deus.

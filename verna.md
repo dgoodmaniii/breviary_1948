@@ -25372,3 +25372,66 @@ AN forte hinc ista sólvitur quæstio, quia et illi eum narrant passióni próxi
 QUID sibi ergo vult, quod hic ait: Hæc autem vobis ab inítio non dixi, quia vobíscum eram: nisi quia ea, quæ hic dicit de Spíritu Sancto, quod sit ventúrus ad eos, et testimónium perhibitúrus, quando mala illa passúri sunt, hæc ab inítio eis non dixit, quia cum ipsis erat? Consolátor ergo ille, vel advocátus, (utrúmque enim interpretátur, quod est Græce Paráclitus) Christo abscedénte, fúerat necessárius: et ídeo de illo non díxerat ab inítio, quando cum illis erat, quia ejus præséntia consolabántur.
 
 Te Deum laudámus.
+
+## Ad Laudes
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Dominica 1 loco. 49}
+
+**Capitulum** *Jac. 1, 17*
+
+CARISSIMI: Omne datum óptimum, et omne donum perféctum desúrsum est, descéndens a Patre lúminum, apud quem non est transmutátio, nec vicissitúdinis obumbrátio.
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus ínfremit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+**Ad Bened. Ant.** Vado ad eum \* qui misit me: et nemo ex vobis intérrogat me: Quo vadis? allelúja, allelúja.
+
+#### Oratio
+
+DEUS, qui fidélium mentes uníus éfficis voluntátis: da pópulis tuis id amáre quod prǽcipis, id desideráre quod promíttis; ut inter mundánas varietátes ibi nostra fixa sint corda, ubi vera sunt gáudia. Per Dóminum.
+
+## Ad Tertiam
+
+**Capitulum** Caríssimi, {RUBRIC: ut supra.}
+
+**℟. br.** Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+## Ad Sextam
+
+**Capitulum** *Jac. 1, 19-20*
+
+SCITIS, fratres mei dilectíssimi. Sit autem omnis homo velox ad audiéndum: tardus autem ad loquéndum, et tardus ad iram. Ira enim viri justítiam Dei non operátur.

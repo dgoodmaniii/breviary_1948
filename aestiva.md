@@ -19051,3 +19051,31 @@ IGitur usque ad vigésimum tértium annum regis Joas non instauravérunt sacerd�
 *Cap. 13, 14-21; 24-25*
 
 ELiséus autem ægrotábat infirmitáte, qua et mórtuus est; descendítque ad eum Jonas, rex Israël, et flebat coram eo dicebátque: Pater mi, pater mi, currus Israël et auríga ejus. Et ait illi Eliséus: Affer arcum et sagíttas. Cumque attulísset ad eum arcum et sagíttas, dixit ad regem Israël: Pone manum tuam super arcum. Et, cum posuísset ille manum suam, superpósuit Eliséus manus suas mánibus regis et ait: Aperi fenéstram orientálem. Cumque aperuísset, dixit Eliséus: Jace sagíttam. Et jecit. Et ait Eliséus: Sagítta salútis Dómini, et sagítta salútis contra Sýriam; percutiésque Sýriam in Aphec donec consúmas eam.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+ET ait: Tolle sagíttas. Qui cum tulísset, rursum dixit ei: Pércute jáculo terram. Et, cum percussísset tribus vícibus et stetísset, irátus est vir Dei contra eum et ait: Si percussísses quínquies aut séxies sive sépties, percussísses Sýriam usque ad consumptiónem; nunc autem tribus vícibus percúties eam. Mórtuus est ergo Eliséus, et sepeliérunt eum. Latrúnculi autem de Moab venérunt in terram in ipso anno.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic et sanctífica.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+QUidam autem sepeliéntes hóminem vidérunt latrúnculos et projecérunt cadáver in sepúlcro Eliséi. Quod cum tetigísset ossa Eliséi, revíxit homo et stetit super pedes suos. Mórtuus est autem Házael rex Sýriæ, et regnávit Bénadad fílius ejus pro eo. Porro Joas fílius Jóachaz tulit urbes de manu Bénadad fílii Házael, quas túlerat de manu Jóachaz patris sui jure prǽlii; tribus vícibus percússit eum Joas et réddidit civitátes Israël.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 17, 6-9*
+
+ANno autem nono Osée cepit rex Assyriórum Samaríam et tránstulit Israël in Assýrios posuítque eos in Hala et in Habor

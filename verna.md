@@ -36533,4 +36533,26 @@ ERAT tum Polóniæ rex Bolesláus, quem gráviter offéndit, quod illíus notam 
 
 ###### Lectio vi
 
-AT Bolesláum, frustra sæpe admónitum, Stanisláus tandem a fidélium communióne rémovet. Ille, iracúndia furens, mílites in ecclésiam immíttit, ut sanctum epíscopum confódiant; qui, ter conáti, occúlta vi, tértio divínitus sunt depúlsi. Postrémo ímpius rex sacerdótem Dei, Hóstiam immaculátam ad altáre offeréntem, sua manu obtrúncat. Corpus, membrátim concísum et per agros projéctum, áquilæ a feris mirabíliter deféndunt. Mox canónici Cracoviénses sparsa membra, noctúrni de cælo splendóris indício cólligunt, et suis locis apte dispónunt; quæ súbito ita inter se copuláta sunt, ut nulla vúlnerum vestígia exstárent. Multis prætérea
+AT Bolesláum, frustra sæpe admónitum, Stanisláus tandem a fidélium communióne rémovet. Ille, iracúndia furens, mílites in ecclésiam immíttit, ut sanctum epíscopum confódiant; qui, ter conáti, occúlta vi, tértio divínitus sunt depúlsi. Postrémo ímpius rex sacerdótem Dei, Hóstiam immaculátam ad altáre offeréntem, sua manu obtrúncat. Corpus, membrátim concísum et per agros projéctum, áquilæ a feris mirabíliter deféndunt. Mox canónici Cracoviénses sparsa membra, noctúrni de cælo splendóris indício cólligunt, et suis locis apte dispónunt; quæ súbito ita inter se copuláta sunt, ut nulla vúlnerum vestígia exstárent. Multis prætérea miráculis Servi sui sanctitátem Deus declarávit post ejus mortem: quibus permótus Innocéntius quartus, summus Póntifex, illum in Sanctórum númerum rétulit. Cleméns vero octávus, Póntifex máximus, sancti Stanislái festo die in Románum Breviárium reláto, gloriósi Mártyris memóriam dúplici Offício ubíque celebrári jussit.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+STANISLAUS, apud Cracóviam nóbili génere natus, quem pii paréntes, per trigínta annos stériles, a Deo précibus impetrárunt, ab ineúnte ætáte futúræ sanctitátis spécimen dedit. Adoléscens in sacra canónum ac theologíæ doctrína multum profécit. Paréntibus mórtuis, amplum patrimónium paupéribus distríbuit, vitæ monásticæ desidério. Sed, Deo áliter disponénte, canónicus Cracoviénsis et concionátor factus a Lampérto epíscopo, in ejus póstea locum, quamvis invítus, sufféctus est. Quo in múnere ómnium pastorálium virtútum laude, et præcípue misericórdia in páuperes enítuit. Bolesláum Polóniæ regem, sǽpius ob mores corrúptos frustra admónitum, a fidélium communióne remóvit. Qui idcírco iracúndia furens, mílites in ecclésiam immíttit, ut sanctum epíscopum confódiant; sed cum divínitus fuíssent depúlsi, ímpius rex sacerdótem Dei, Hóstiam immaculátam ad altáre offeréntem, sua manu obtrúncat. Multis miráculis Servi sui sanctitátem Deus declarávit post ejus mortem, quibus permótus Innocéntius quartus illum in Sanctórum númerum rétulit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ego sum vitis vera, de Communi Martyrum Tempore Paschali 1 loco. [77]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vi-

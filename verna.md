@@ -36004,4 +36004,48 @@ Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
 
 Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
 
-Quóniam tu Dóminus Altíssimus super omnem ter-
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+###### Psalmus 97
+
+CANTATE Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Adorámus te, Christe, et benedícimus tibi, quia per Crucem tuam redemísti mundum, allelúja.
+
+℣. Omnis terra adóret te, et psallat tibi, allelúja. ℟. Psalmum dicat nómini tuo, Dómine, allelúja.
+
+Léctio sancti Evangélii secúndum Joánnem
+
+**Lectio vii** *Cap. 3, 1-15*
+
+IN illo témpore: Erat homo ex pharisǽis, Nicodémus nómine, princeps Judæórum. Hic venit ad Jesum nocte, et dixit ei: Rabbi, scimus quia a Deo venísti magíster. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractat. 11 in Joann., post initium}
+
+NICODEMUS ex his erat, qui credíderant in nómine Jesu, vidéntes signa et prodígia quæ faciébat. Supérius enim hoc dixit: Cum autem esset Jerosólymis in Pascha in die festo, multi credidérunt in nómine ejus. Quare credidérunt in nómine ejus? Séquitur, et dicit: Vidéntes

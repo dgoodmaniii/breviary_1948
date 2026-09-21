@@ -32523,4 +32523,58 @@ Quámdiu ponam consília in ánima mea, \* dolórem in corde meo per diem?
 
 Usquequo exaltábitur inimícus meus super me? \* réspice, et exáudi me, Dómine, Deus meus.
 
-Illúmina óculos meos ne umquam obdórmiam in
+Illúmina óculos meos ne umquam obdórmiam in morte: \* nequándo dicat inimícus meus: Præválui advérsus eum.
+
+Qui tríbulant me, exsultábunt si motus fúero: \* ego autem in misericórdia tua sperávi.
+
+Exsultábit cor meum in salutári tuo: cantábo Dómino qui bona tríbuit mihi: \* et psallam nómini Dómini altíssimi.
+
+**Ant.** Factum est cor meum tamquam cera liquéscens in médio ventris mei.
+
+℣. Pósuit me desolátam. ℟. Tota die mæróre conféctam.
+
+De Isaía Prophéta
+
+###### Lectio i
+
+*Cap. 53, 1-12*
+
+QUIS crédidit audítui nostro? et bráchium Dómini cui revelátum est? Et ascéndet sicut virgúltum coram eo, et sicut radix de terra sitiénti. Non est spécies ei neque decor, et vídimus eum, et non erat aspéctus, et desiderávimus eum; despéctum, et novíssimum virórum, virum dolórum, et sciéntem infirmitátem: et quasi abscónditus vultus ejus et despéctus, unde nec reputávimus eum. Vere languóres nostros ipse tulit, et dolóres nostros ipse portávit: et nos putávimus eum quasi leprósum, et percússum a Deo et humiliátum. Ipse autem vulnerátus est propter iniquitátes nostras, attrítus est propter scélera nostra: disciplína pacis nostræ super eum, et livóre ejus sanáti sumus.
+
+℟. Diléctus meus cándidus et rubicúndus, et totus desiderábilis: \* Omnis enim figúra ejus amórem spirat, et ad redamándum próvocat caput inclinátum, manus expánsæ, pectus apértum. ℣. Piis, o Virgo, spectas eum óculis, contémplans in eo non tam vúlnerum livórem, quam mundi salútem. — Omnis enim.
+
+###### Lectio ii
+
+OMNES nos quasi oves errávimus, unusquísque in viam suam declinávit, et pósuit Dóminus in eo iniquitátem ómnium nostrum. Oblátus est quia ipse vóluit, et non apéruit os suum: sicut ovis ad occisiónem ducétur et, quasi agnus coram tondénte se, obmutéscet et non apériet os suum. De angústia et de judício sublátus est. Generatiónem ejus quis enarrábit? quia abscíssus est de terra vivéntium: propter scelus pópuli mei percússi eum. Et dabit ímpios pro sepultúra, et dívitem pro morte sua; eo quod iniquitátem non fécerit, neque dolus fúerit in ore ejus.
+
+℟. Manus ejus tornátiles, clavórum cúspide terebrátæ: \* Humánæ salútis prétio quasi hyacínthis refértæ. ℣. Córnua in mánibus ejus: ibi abscóndita est fortitúdo ejus: sunt enim manus ejus. — Humánæ.
+
+###### Lectio iii
+
+ET Dóminus vóluit contérere eum in infirmitáte. Si posúerit pro peccáto ánimam suam, vidébit semen longǽvum, et volúntas Dómini in manu ejus dirigétur. Pro eo quod laborávit ánima ejus, vidébit et saturábitur. In sciéntia sua justificábit ipse justus servus meus multos, et iniquitátes eórum ipse portábit. Ideo dispértiam ei plúrimos, et fórtium dívidet spólia, pro eo quod trádidit in mortem ánimam suam, et cum scelerátis reputátus est: et ipse peccáta multórum tulit, et pro transgressóribus rogávit.
+
+℟. Diligébat Jesus Joánnem, quóniam speciális prærogatíva castitátis amplióri dilectióne fécerat dignum: \* Quia virgo eléctus ab ipso, virgo in ævum permánsit. ℣. In cruce dénique moritúrus huic Matrem suam vírginem vírgini commendávit. — Quia. Glória Patri. Quia.
+
+##### In II Nocturno
+
+**Ant.** Inimíci mei \* dixérunt mala mihi: Quando moriétur, et períbit nomen ejus?
+
+###### Psalmus 40
+
+BEATUS qui intélligit super egénum, et páuperem: \* in die mala liberábit eum Dóminus.
+
+Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra: \* et non tradat eum in ánimam inimicórum ejus.
+
+Dóminus opem ferat illi super lectum dolóris ejus: \* univérsum stratum ejus versásti in infirmitáte ejus.
+
+Ego dixi: Dómine, miserére mei: \* sana ánimam meam, quia peccávi tibi.
+
+Inimíci mei dixérunt mala mihi: \* Quando moriétur, et períbit nomen ejus?
+
+Et si ingrediebátur ut vidéret, vana loquebátur: \* cor ejus congregávit iniquitátem sibi.
+
+Egrediebátur foras, \* et loquebátur in idípsum.
+
+Advérsum me susurrábant omnes inimíci mei: \* advérsum me cogitábant mala mihi.
+
+Verbum iníquum constituérunt advérsum me: \*

@@ -4297,3 +4297,53 @@ Fallax equus ad salútem: \* in abundántia autem virtútis suæ non salvábitur
 Ecce óculi Dómini super metuéntes eum: \* et in eis, qui sperant super misericórdia ejus:
 
 Ut éruat a morte ánimas eórum: \* et alat eos in fame.
+
+Anima nostra sústinet Dóminum: \* quóniam adjútor et protéctor noster est.
+
+Quia in eo lætábitur cor nostrum: \* et in nómine sancto ejus sperávimus.
+
+Fiat misericórdia tua, Dómine, super nos: \* quemádmodum sperávimus in te.
+
+**Ant.** Exsultáte, justi, et gloriámini, omnes recti corde.
+
+#### In Officio feriali
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Inclinávit Dóminus \* aurem suam mihi.
+
+{RUBRIC: ¶ Antíphonæ, in hac et áliis Fériis apposítæ, dicúntur semper in Officio feriáli et in Festis sive trium sive novem Lectiónum, quando juxta Rúbricas suméndi sint Psalmi de Féria, ut in Psaltério.}
+
+### Psalmus 114
+
+DILEXI, quóniam exáudiet Dóminus \* vocem oratiónis meæ.
+
+Quia inclinávit aurem suam mihi: \* et in diébus meis invocábo.
+
+Circumdedérunt me dolóres mortis: \* et perícula inférni invenérunt me.
+
+Tribulatiónem et dolórem invéni: \* et nomen Dómini invocávi.
+
+O Dómine, líbera ánimam meam: \* miséricors Dóminus, et justus, et Deus noster miserétur.

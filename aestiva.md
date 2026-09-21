@@ -2433,3 +2433,55 @@ Justítia tua, justítia in ætérnum: \* et lex tua véritas.
 Tribulátio, et angústia invenérunt me: \* mandáta tua meditátio mea est.
 
 Æquitas testimónia tua in ætérnum: \* intelléctum da mihi, et vivam. Glória Patri.
+
+###### Psalmus 118, x
+
+CLAMAVI in toto corde meo, exáudi me, Dómine: \* justificatiónes tuas requíram.
+
+Clamávi ad te, salvum me fac: \* ut custódiam mandáta tua.
+
+Prævéni in maturitáte, et clamávi: \* quia in verba tua supersperávi.
+
+Prævenérunt óculi mei ad te dilúculo: \* ut meditárer elóquia tua.
+
+Vocem meam audi secúndum misericórdiam tuam, Dómine: \* et secúndum judícium tuum vivífica me.
+
+Appropinquavérunt persequéntes me iniquitáti: \* a lege autem tua longe facti sunt.
+
+Prope es tu, Dómine: \* et omnes viæ tuæ véritas.
+
+Inítio cognóvi de testimóniis tuis: \* quia in ætérnum fundásti ea.
+
+Vide humilitátem meam, et éripe me: \* quia legem tuam non sum oblítus.
+
+Júdica judícium meum, et rédime me: \* propter elóquium tuum vivífica me.
+
+Longe a peccatóribus salus: \* quia justificatiónes tuas non exquisiérunt.
+
+Misericórdiæ tuæ multæ, Dómine: \* secúndum judícium tuum vivífica me.
+
+Multi qui persequúntur me, et tríbulant me: \* a testimóniis tuis non declinávi.
+
+Vidi prævaricántes, et tabescébam: \* quia elóquia tua non custodiérunt.
+
+Vide quóniam mandáta tua diléxi, Dómine: \* in misericórdia tua vivífica me.
+
+Princípium verbórum tuórum, véritas: \* in ætérnum ómnia judícia justítiæ tuæ.
+
+###### Psalmus 118, xi
+
+PRINCIPES persecúti sunt me gratis: \* et a verbis tuis formidávit cor meum.
+
+Lætábor ego super elóquia tua: \* sicut qui invénit spólia multa.
+
+Iniquitátem ódio hábui, et abominátus sum: \* legem autem tuam diléxi.
+
+Sépties in die laudem dixi tibi, \* super judícia justítiæ tuæ.
+
+Pax multa diligéntibus legem tuam: \* et non est illis scándalum.
+
+Exspectábam salutáre tuum, Dómine: \* et mandáta tua diléxi.
+
+Custodívit ánima mea testimónia tua: \* et diléxit ea veheménter.
+
+Servávi mandáta tua, et testimónia tua: \* quia omnes viæ meæ in conspéctu tuo.

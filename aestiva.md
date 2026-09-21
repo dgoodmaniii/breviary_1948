@@ -18840,4 +18840,18 @@ FActa est ergo dies quædam, et véniens divértit in cœnáculum et requiévit 
 
 *Cap. 6, 24-33; 7, 1*
 
-COngregávit Bénadad rex Sýriæ univérsum exércitum suum et ascén-
+COngregávit Bénadad rex Sýriæ univérsum exércitum suum et ascéndit et obsidébat Samaríam. Fáctaque est fames magna in Samaría, et támdiu obséssa est, donec venumdarétur caput ásini octogínta argénteis, et quarta pars cabi stércoris columbárum quinque argénteis. Cumque rex Israël transíret per murum, múlier quædam exclamávit ad eum dicens: Salva me, dómine mi rex. Qui ait: Non te salvat Dóminus, unde possum salváre? de área vel de torculári?
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+DIxítque ad eam rex: Quid tibi vis? Quæ respóndit: Múlier ista dixit mihi: Da fílium tuum ut comedámus eum hódie, et fílium meum comedémus cras. Cóximus ergo fílium meum et comédimus; dixíque ei die áltera: Da fílium tuum ut comedámus eum; quæ abscóndit fílium suum. Quod cum audísset rex, scidit vestiménta sua, et transíbat per murum; vidítque omnis pópulus cilícium, quo vestítus erat ad carnem intrínsecus. Et ait rex: Hæc mihi fáciat Deus et hæc addat, si stéterit caput Eliséi fílii Saphat super ipsum hódie. Eliséus autem sedébat in domo sua, et senes sedébant cum eo.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+PRæmísit ítaque virum; et ántequam veníret núntius ille, dixit ad senes: Numquid scitis quod míserit fílius homicídæ hic ut præcidátur caput meum? Vidéte ergo, cum vénerit núntius, cláudite óstium et non sinátis eum introíre; ecce enim sónitus pedum dómini ejus post eum est. Adhuc illo loquénte eis, appáruit núntius qui veniébat ad eum. Et ait: Ecce tantum malum a Dómino est; quid ámplius exspectábo a Dómino? Dixit autem Eliséus: Audíte verbum Dómini: hæc dicit Dóminus: In témpore hoc cras módius

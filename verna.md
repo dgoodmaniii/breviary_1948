@@ -42000,3 +42000,45 @@ Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
 Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
 
 Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Sancti, qui sperant in Dómino, habébunt fortitúdinem, assúment pennas ut áquilæ, volábunt, et non defícient.
+
+℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Ecce quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est, allelúja.
+
+℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+**Absolutio** Ipsíus píetas.
+
+**Benedictio** Deus Pater.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 47 de Sanctis}
+
+###### Lectio iv
+
+QUOTIESCUMQUE, fratres caríssimi, sanctórum Mártyrum solémnia celebrámus, ita, ipsis intercedéntibus, exspectémus a Dómino cónsequi temporália benefícia, ut ipsos Mártyres imitándo accípere mereámur ætérna. Ab ipsis enim sanctórum Mártyrum in veritáte festivitátum gáudia celebrántur, qui ipsórum Mártyrum exémpla sequúntur. Solemnitátes enim Mártyrum exhortatiónes sunt martyriórum; ut imitári non pígeat, quod celebráre deléctat.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra appáruit.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+SED nos vólumus gaudére cum Sanctis; et tribulatiónem mundi nólumus sustinére cum ipsis.

@@ -48449,3 +48449,41 @@ INCLINA, Dómine, aurem tuam ad preces nostras, quibus misericórdiam tuam súpp
 ###### Oratio
 
 QUÆSUMUS, Dómine, pro tua pietáte miserére ánimæ fámulæ tuæ N.: et a contágiis mortalitátis exútam, in ætérnæ salvatiónis partem restítue. Per Dóminum.
+
+##### Pro defunctis fratribus, propinquis et benefactoribus
+
+###### Oratio
+
+DEUS, véniæ largítor et humánæ salútis amátor: quǽsumus cleméntiam tuam; ut nostræ congregatiónis fratres, propínquos et benefactóres, qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium perveníre concédas. Per Dóminum.
+
+##### Pro patre et matre
+
+###### Oratio
+
+DEUS, qui nos patrem et matrem honoráre præcepísti: miserére cleménter animábus patris et matris meæ, eorúmque peccáta dimítte; meque eos in ætérnæ claritátis gáudio fac vidére. Per Dóminum.
+
+{RUBRIC: Si fit pro pluribus, dicatur:} animábus paréntum nostrórum, {RUBRIC: et, ubi dicitur} meque, {RUBRIC: dicatur} nosque.
+
+{RUBRIC: Si pro patre tantum, dicatur} ánimæ patris mei, {RUBRIC: vel} nostri.
+
+{RUBRIC: Si pro matre tantum, dicatur} ánimæ matris meæ, {RUBRIC: vel} nostræ.
+
+---
+
+##### In Officio Defunctorum per Annum
+
+###### Oratio
+
+DEUS, qui inter apostólicos sacerdótes fámulos tuos pontificáli seu sacerdotáli fecísti dignitáte vigére: præsta, quǽsumus; ut eórum quoque perpétuo aggregéntur consórtio.
+
+DEUS, véniæ largítor et humánæ salútis amátor: quǽsumus cleméntiam tuam; ut nostræ congregatiónis fratres, propínquos et benefactóres, qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium perveníre concédas.
+
+FIDELIUM, Deus, ómnium Cónditor et Redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum: ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur: Qui vivis et regnas cum Deo Patre in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
+
+---
+
+{RUBRIC: Post Orationem dicitur (semper plurali numero):}
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.

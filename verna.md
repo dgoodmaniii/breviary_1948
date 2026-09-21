@@ -33261,4 +33261,18 @@ PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ
 
 ###### Lectio ii
 
-IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in laudem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum. De qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in vobis grátia prophetavérunt; scrutántes in quod vel quale tempus significáret in eis Spíritus Christi: prænúntians eas quæ in Christo
+IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in laudem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum. De qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in vobis grátia prophetavérunt; scrutántes in quod vel quale tempus significáret in eis Spíritus Christi: prænúntians eas quæ in Christo sunt passiónes et posterióres glórias: quibus revelátum est, quia non sibimetípsis, vobis autem ministrábant ea, quæ nunc nuntiáta sunt vobis per eos, qui evangelizavérunt vobis, Spíritu Sancto misso de cælo, in quem desíderant Angeli prospícere.
+
+℟. Ecce sacérdos magnus, qui in diébus suis plácuit Deo: \* Ideo jureiurándo fecit illum Dóminus créscere in plebem suam. {RUBRIC: (T. P. Allelúja.)} ℣. Benedictiónem ómnium géntium dedit illi, et testaméntum suum confirmávit super caput ejus. — Ideo.
+
+###### Lectio iii
+
+PROPTER quod succíncti lumbos mentis vestræ, sóbrii perfécte speráte in eam, quæ offértur vobis, grátiam, in revelatiónem Jesu Christi: quasi fílii obediéntiæ, non configuráti prióribus ignorántiæ vestræ desidériis: sed secúndum eum, qui vocávit vos, Sanctum; et ipsi in omni conversatióne sancti sitis: quóniam scriptum est: Sancti éritis, quóniam ego sanctus sum. Et si Patrem invocátis eum, qui sine acceptióne personárum júdicat secúndum uniuscujúsque opus, in timóre incolátus vestri témpore conservámini. Sciéntes quod non corruptíbilibus auro vel argénto redémpti estis de vana vestra conversatióne patérnæ traditiónis: sed pretióso sánguine quasi agni immaculáti Christi, et incontamináti: præcógniti quidem ante mundi constitutiónem, manifestáti autem novíssimis tempóribus propter vos, qui per ipsum fidéles estis in Deo, qui suscitávit eum a mórtuis, et dedit ei glóriam, ut fides vestra et spes esset in Deo.
+
+℟. Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. {RUBRIC: (T. P. Allelúja.)} ℣. Dixit Dóminus Dómino meo, Sede a dextris meis. — Tu. Glória Patri. Tu.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+LEO primus, Etrúscus, eo témpore præfuit Ecclésiæ, cum rex Hunnórum Attíla, cognoménto Flagéllum Dei, in Itáliam invádens, Aquiléjam triénnii obsidióne captam dirípuit et incéndit. Unde cum Romam ardénti furóre raperétur, jamque cópias, ubi Míncius in Padum ínfluit, trajícere paráret, occúrrit ei Leo, malórum Itáliæ impendéntium mi-

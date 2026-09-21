@@ -17108,4 +17108,16 @@ PRofécto hæc facta sunt ut Scriptúra implerétur quæ ait: Os non comminuéti
 
 *Cap. 12, 1-14*
 
-DIxit autem Sámuel ad univérsum Israël: Ecce audívi vocem vestram, juxta ómnia quæ locúti estis ad me, et constítui super vos regem. Et nunc rex gráditur ante vos; ego autem sénui, et incánui: porro fílii mei vobíscum sunt. Itáque conversátus coram vobis ab adolescéntia mea
+DIxit autem Sámuel ad univérsum Israël: Ecce audívi vocem vestram, juxta ómnia quæ locúti estis ad me, et constítui super vos regem. Et nunc rex gráditur ante vos; ego autem sénui, et incánui: porro fílii mei vobíscum sunt. Itáque conversátus coram vobis ab adolescéntia mea usque ad hanc diem, ecce præsto sum. Loquímini de me coram Dómino, et coram Christo ejus, utrum bovem cujúsquam túlerim, aut ásinum, si quémpiam calumniátus sum, si oppréssi áliquem, si de manu cujúsquam munus accépi; et contémnam illud hódie, restituámque vobis. Et dixérunt: Non es calumniátus nos, neque oppressísti, neque tulísti de manu alicújus quíppiam. Dixítque ad eos: Testis est Dóminus advérsum vos, et testis Christus ejus in die hac, quia non invenéritis in manu mea quíppiam. Et dixérunt: Testis.
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non.
+
+##### Lectio ii
+
+ET ait Sámuel ad pópulum: Dóminus, qui fecit Móysen et Aaron et edúxit patres nostros de terra Ægýpti. Nunc ergo state, ut judício conténdam advérsum vos coram Dómino de ómnibus misericórdiis Dómini, quas fecit vobíscum et cum pátribus vestris; quómodo Jacob ingréssus est in Ægýptum, et clamavérunt patres vestri ad Dóminum, et misit Dóminus Móysen et Aaron, et edúxit patres vestros de Ægýpto et collocávit eos in loco hoc. Qui oblíti sunt Dómini Dei sui, et trádidit eos in manu Sísaræ magístri milítiæ Hasor et in manu Philisthinórum et in manu regis Moab, et pugnavérunt advérsum eos.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu vero.
+
+##### Lectio iii
+
+POstea autem clamavérunt ad Dóminum, et dixérunt: Peccávimus, quia derelíquimus Dóminum et servívimus Báalim et Astaroth, nunc ergo érue nos de manu inimicórum nostrórum, et serviémus tibi. Et misit Dóminus Jeróbaal et Badan et Jephte et Sámuel, et éruit vos de manu inimicórum vestrórum per circúitum, et habitástis confidénter. Vidéntes autem quod Naas rex filiórum Ammon venís-

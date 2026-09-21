@@ -29850,3 +29850,59 @@ AIT discípulis Jesus: Sínite párvulos veníre ad me, et ne prohibuéritis eos
 ###### Lectio viii
 
 ET, cum egréssus esset in viam, procúrrens quidam, genu flexo ante eum, rogábat eum: Magíster bone, quid fáciam, ut vitam ætérnam percípiam? Audíerat, credo, iste quæsítor vitæ ætérnæ a Dómino, tantum eos, qui parvulórum velint esse símiles, dignos esse intróitu regni cæléstis: atque ídeo curam gerens tractátus certióris, poscit sibi non per parábolas, sed apérte, quibus óperum méritis vitam ætérnam cónsequi possit, expóni. Jesus autem dixit ei: Præcépta nosti. Hæc est puerílis innocéntiæ cástitas, quæ nobis imitánda propónitur, si regnum Dei vólumus intráre. At ille respóndens, ait illi: Magíster, hæc ómnia observávi a juventúte mea. Non est putándus homo iste vel voto tentántis (ut quidam putavére) Dóminum interrogásse, vel de sua esse vita mentítus, cum se legis mandáta custodísse dicébat; sed, simplíciter, ut víxerit esse conféssus. Quia si mendácii aut simulatiónis noxa reus tenerétur, nequáquam intúitus arcána cordis ejus, eum dilígere dicerétur Jesus.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEUS, qui beátum Gabriélem dulcíssimæ Matris tuæ dolóres assídue recólere docuísti, ac per illam sanctitátis et miraculórum glória sublimásti: da nobis, ejus intercessióne et exémplo, ita Genitrícis tuæ consociári flétibus; ut matérna ejúsdem protectióne salvémur: Qui vivis.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ant.** Hic vir despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Deinde Commem. Feriæ.}
+
+---
+
+## Festa Martii
+
+### Die 4 Martii
+
+#### S. Casimiri
+
+{RUBRIC: Confessoris}
+
+{RUBRIC: Semiduplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEUS, qui inter regáles delícias et mundi illécebras sanctum Casimírum virtúte constántiæ roborásti: quǽsumus; ut ejus intercessióne fidéles tui terréna despíciant, et ad cæléstia semper aspírent. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Deinde Commem. S. Lucii I Papæ et Martyris:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Lúcium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ

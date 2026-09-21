@@ -28399,4 +28399,42 @@ DOMINUS de grege suo, et de óstio quo intrátur ad ovíle, similitúdinem prop�
 
 #### Lectio ii
 
-QUÆRUNT ergo plerúmque tales hómines étiam persuadére homínibus, ut bene vivant, et Christiáni non sint. Per áliam partem volunt ascéndere, rápere et occídere; non, ut bonus pastor, conserváre atque salváre. Fuérunt ergo quidam philósophi de virtútibus et vítiis subtília multa tractántes, dividéntes, definiéntes, ratiocinatiónes
+QUÆRUNT ergo plerúmque tales hómines étiam persuadére homínibus, ut bene vivant, et Christiáni non sint. Per áliam partem volunt ascéndere, rápere et occídere; non, ut bonus pastor, conserváre atque salváre. Fuérunt ergo quidam philósophi de virtútibus et vítiis subtília multa tractántes, dividéntes, definiéntes, ratiocinatiónes acutíssimas concludéntes, libros impléntes, suam sapiéntiam buccis crepántibus ventilántes, qui étiam dícere audérent homínibus: Nos sequímini, sectam nostram tenéte, si vultis beáte vívere. Sed non intrábant per óstium: pérdere volébant, mactáre et occídere.
+
+℟. Loquebántur váriis linguis Apóstoli magnália Dei, \* Prout Spíritus Sanctus dabat éloqui illis, allelúja. ℣. Repléti sunt omnes Spíritu Sancto, et cœpérunt loqui. — Prout. Glória Patri. Prout.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+QUID de istis dicam? Ecce ipsi pharisǽi legébant, et in eo quod legébant, Christum sonábant, ventúrum sperábant, et præséntem non agnoscébant. Jactábant se étiam ipsi inter Vidéntes, hoc est, inter sapiéntes, et negábant Christum, et non intrábant per óstium. Ergo et ipsi, si quos forte sedúcerent, mactándos et occidéndos, non liberándos sedúcerent. Et hos dimittámus. Videámus illos, si forte ipsi intrant per óstium, qui ipsíus Christi nómine gloriántur. Innumerábiles enim sunt, qui se Vidéntes non solum jactant, sed a Christo illumináti vidéri volunt: sunt autem hærétici.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Ego sum óstium, \* dicit Dóminus: per me si quis introíerit, salvábitur, et páscua invéniet, allelúja.
+
+#### Oratio
+
+ADsit nobis, quǽsumus, Dómine, virtus Spíritus Sancti: quæ et corda nostra cleménter expúrget, et ab ómnibus tueátur advérsis. Per Dóminum... in unitáte ejúsdem Spíritus Sancti.
+
+**Ad Magnif. Ant.** Pacem \* relínquo vobis, pacem meam do vobis: non quómodo mundus dat, ego do vobis, allelúja.
+
+---
+
+## Feria IV Quatuor Temporum Pentecostes
+
+{RUBRIC: Semiduplex 658}
+
+℣. Repléti sunt omnes Spíritu Sancto, allelúja. ℟. Et cœpérunt loqui, allelúja.
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio i
+
+*Cap. 6, 44-52*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Nemo potest veníre ad me,

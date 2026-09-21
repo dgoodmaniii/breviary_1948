@@ -17084,4 +17084,28 @@ AD Jesum ígitur cum veníssent, illúmque jam mórtuum conspexíssent, ipsíus 
 
 ##### Lectio viii
 
-HÆC quippe sunt sacraménta ecclesiástica per quæ totum corpus Ecclésiæ ablúitur atque sanctificátur. In lavácro útique aquæ regeneratiónis, quod Christi morte sacrátur, ab origináli contagióne mundátur. In Redemptóris vero sánguine nedum ab omni culpa purgátur, verum étiam regni cæléstis illi aperítur intróitus. Ambo hæc in unum efféctum
+HÆC quippe sunt sacraménta ecclesiástica per quæ totum corpus Ecclésiæ ablúitur atque sanctificátur. In lavácro útique aquæ regeneratiónis, quod Christi morte sacrátur, ab origináli contagióne mundátur. In Redemptóris vero sánguine nedum ab omni culpa purgátur, verum étiam regni cæléstis illi aperítur intróitus. Ambo hæc in unum efféctum convéniunt nec unum sine áltero valet ad salútem prodésse: non enim absque baptísmi sacraménto et peccatórum remissióne, potest quis futúræ beatitúdinis hereditátem percípere. Hoc ubíque in orbe terrárum sancta mater confitétur Ecclésia, et multiplícibus Scripturárum divinárum testimóniis roborátur. Insuper et qui vidit de Christo aquam emanáre et sánguinem, testimónium perhíbuit, et verum est testimónium ejus. Nempe iste est Joánnes Apóstolus et Evangelísta, qui præcípuo amóre diléctus est a Dómino.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+PRofécto hæc facta sunt ut Scriptúra implerétur quæ ait: Os non comminuétis ex eo. A Dómino quippe Móysi fúerat imperátum ne in sacrifícii phase, in celebratióne immolátiónis agni, ullum comminuerétur os. In Dómino autem Jesu innocentíssimo agno, figúræ véritas est compléta. Nequáquam crura illíus sunt fracta, quemádmodum duórum nequam cum eo pendéntium; sed tantum illíus latus apértum, quátenus ália Scriptúra perficerétur quæ dicit: Vidébunt in quem transfixérunt. Porro vúlnerum cicatríces in suo vóluit Dóminus córpore retinére, ut, sicut eléctis incentívum devotiónis, ita et réprobis irrefragábile fíeret testimónium damnatiónis. Ita ómnia consummáta in Christo, longe ante Prophetárum oráculis promulgáta fúere, quátenus cathólica fides tam pro se quam advérsus hæreticórum munirétur erróres.
+
+**Te Deum laudámus.**
+
+---
+
+## Feria III infra Octav. Ssmi Cordis Jesu
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 12, 1-14*
+
+DIxit autem Sámuel ad univérsum Israël: Ecce audívi vocem vestram, juxta ómnia quæ locúti estis ad me, et constítui super vos regem. Et nunc rex gráditur ante vos; ego autem sénui, et incánui: porro fílii mei vobíscum sunt. Itáque conversátus coram vobis ab adolescéntia mea

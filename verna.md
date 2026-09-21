@@ -34910,4 +34910,16 @@ De Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Liber 2 de Consensu Evang.}
 
-NEQUE proptérea non erat appellándus Joseph pater Christi, quia non eum concumbéndo genúerat; quandóquidem pater esset étiam ejus, quem non ex sua cónjuge procreátum aliúnde adoptásset. Putabátur quidem Christus étiam áliter fílius Joseph, tamquam ex ejus omníno carne progénitus; sed ab eis hoc putabátur, quos Maríæ latébat virgínitas: nam Lucas ait: Et ipse Jesus erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph. Qui tamen Lucas non ejus paréntem solam Maríam, sed ambos paréntes ejus appelláre mínime dubitávit, ubi ait: Puer autem crescébat et confortabátur plenus sapiéntia, et grátia Dei erat
+NEQUE proptérea non erat appellándus Joseph pater Christi, quia non eum concumbéndo genúerat; quandóquidem pater esset étiam ejus, quem non ex sua cónjuge procreátum aliúnde adoptásset. Putabátur quidem Christus étiam áliter fílius Joseph, tamquam ex ejus omníno carne progénitus; sed ab eis hoc putabátur, quos Maríæ latébat virgínitas: nam Lucas ait: Et ipse Jesus erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph. Qui tamen Lucas non ejus paréntem solam Maríam, sed ambos paréntes ejus appelláre mínime dubitávit, ubi ait: Puer autem crescébat et confortabátur plenus sapiéntia, et grátia Dei erat in illo; et ibant paréntes ejus per omnes annos in Jerúsalem, in die solémni Paschæ.
+
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis nomen ejus Jesum, allelúja. ℣. Ipse enim salvum fáciet pópulum suum a peccátis eórum. — Et.
+
+#### Lectio viii
+
+SED, ne quisnam hic paréntes consanguíneos pótius Maríæ cum ipsa Matre ejus intelligéndos putet, quid ad illud respondébit quod ipse item Lucas supérius dixit, Et erant Pater ejus et Mater mirántes super his, quæ dicebántur de illo? Cum ígitur ipse narret, non ex concúbitu Joseph, sed ex María Vírgine natum Christum; unde eum patrem ejus appéllat, nisi quia et virum Maríæ recte intellígimus sine commixtióne carnis, ipsa copulatióne conjúgii; et ob hoc étiam Christi patrem multo conjúnctius, qui ex ejus cónjuge natus sit, quam si esset aliúnde adoptátus? Ac per hoc, si demonstráre áliquis posset Maríam ex David nullam consanguinitátis oríginem dúcere, sat erat secúndum istam ratiónem, accípere Christum Fílium David; qua ratióne étiam Joseph pater ejus appellátus est.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi, allelúja. ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+LUCAS autem non ab inítio Evangélii sui, sed a baptísmo Christi generatiónes enárrat, nec descendéndo, sed ascendéndo, tamquam sacerdótem in expiándis peccátis magis assígnans; ubi eum vox de cælo declarávit, ubi testimónium Joánnes ipsi perhíbuit dicens: Ecce qui tollit peccáta mundi. Ascendéndo autem transit Abraham et pérvenit ad Deum, cui mundáti et expiáti reconciliámur. Mérito et adoptiónis oríginem ipse suscépit, quia per adoptiónem effícimur fílii Dei, credéndo in Fílium Dei. Satis autem demonstrávit, non se ídeo dixísse, Joseph fílium Heli, quod de illo génitus, sed quod ab illo fúerat adoptátus; cum et ipsum

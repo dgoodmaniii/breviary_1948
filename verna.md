@@ -45543,3 +45543,21 @@ MULTÆ fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax 
 Sermo sancti Joánnis Chrysóstomi
 
 {RUBRIC: Sermo 67 de divérsis novi Testaménti locis}
+
+###### Lectio iv
+
+EGO máxime commemoratiónes díligo Mártyrum, díligo et ampléctor; atque omnes quidem, sed tum præcípue, cum mulíerum certámina proponúntur. Quanto enim infírmius est vas, tanto major est grátia, tanto illústrius est trophǽum, tanto insígnior est victória, non ob imbecillitátem sexus athletárum, sed quod per ea, quibus vícerat inimícus, nunc étiam vincátur.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+###### Lectio v
+
+PER mulíerem vicit, per mulíerem superátus est. Hoc illíus ántea telum erat, hoc illíus nunc cædis factum est instruméntum, hoc vas appáruit insupérabile. Peccávit illa prior, et mórtua est: ista mórtua est, ne peccáret. Illa, tum fútilis promíssi spe infláta, Dei leges violávit: hæc vitam præséntem contémpsit, ne fidem in suum benefactórem ejuráret. Quam ígitur deínceps speráre póterunt excusatiónem viri, si molles sint et ignávi; quam vero véniam, cum fórtiter ac viríliter se gerant mulíeres, cum ádeo se generóse ad certámina pietátis accíngant?
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. (T. P. Allelúja.) ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+###### Lectio vi
+
+FUIT illi corpus imbecíllum, et obnóxius sexus injúriæ; verúmtamen ómnium horum imbecillitátem advéniens grátia occultávit. Nihil enim est, nihil plane poténtius est eo, qui magno cum stúdio Dei timórem hábeat in mente defíxum; sed quamvis ignes, quamvis ferrum, quamvis béstias, quamvis áliud quidvis minéntur hostes, ómnia nullo negótio contémnit; quod útique Beáta ista étiam fecit.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. (T. P. Allelúja.) ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier timens Deum, ipsa laudábitur.

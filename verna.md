@@ -38714,4 +38714,36 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-ANGELA Merícia, piis orta paréntibus, a prima ætáte magna virtútum specímina dedit, cilício ac
+ANGELA Merícia, piis orta paréntibus, a prima ætáte magna virtútum specímina dedit, cilício ac flagéllis frequénter usa, et oratióni indesinénter dédita. Patérnis bonis abdicátis, ac régulam tértii órdinis sancti Francísci ampléxa, evangélicam paupertátem virginitátis laudi conjúnxit, nullúmque pietátis offícium erga próximos omísit. Sacra Eucharístia frequentíssime refécta, tanta caritátis vi ferebátur in Deum, ut sæpius extra sensus raperétur. Bríxiæ novam vírginum societátem sub certa disciplína sanctísque vivéndi régulis constítuit, quam sanctæ Ursulæ patrocínio ac nómine insignívit. Tandem prope septuagenária evolávit in cælum, anno Dómini millésimo quingentésimo quadragésimo, sexto Kaléndas Februárii. Cultum illi jámdiu exhíbitum Clemens Papa décimus tértius solémni decréto ratum hábuit et confirmávit. Pius vero Papa séptimus sanctárum Vírginum catálogo eam adscrípsit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Símile erit regnum cælórum decem virgínibus, {RUBRIC: de Communi Virg. 1 loco. [141]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensionis ix Lectio de Homilia Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam, allelúja.
+
+###### Oratio
+
+DEUS, qui novum per beátam Angelam sacrárum Vírginum collégium in Ecclésia tua florescere voluísti: da nobis, ejus intercessióne, angélicis móribus vívere; ut, terrénis ómnibus abdicátis, gáudiis pérfrui mereámur ætérnis. Per Dóminum.
+
+{RUBRIC: Pro Commemor. S. Petronillæ Virg.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+℣. Spécie tua et.
+
+**Oratio** C 3
+
+EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ Petroníllæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe

@@ -50851,3 +50851,42 @@ Orémus.
 DEUS, qui tribus púeris mitigásti flammas ígnium: concéde propítius; ut nos fámulos tuos non exúrat flamma vitiórum.
 
 ACTIONES nostras, quæsumus, Dómine, aspirándo prǽveni et adjuvándo proséquere: ut cuncta nostra orátio et operátio a te semper incípiat, et per te cœpta finiátur.
+
+DA nobis, quǽsumus, Dómine, vitiórum nostrórum flammas exstínguere: qui beáto Lauréntio tribuísti tormentórum suórum incéndia superáre. Per Christum, Dóminum nostrum. ℟. Amen.
+
+---
+
+# Orationes
+
+## Pro Opportunitate Sacerdotis Dicendæ
+
+### Oratio S. Thomæ Aquinatis
+
+{RUBRIC: Indulgentia trium annorum; plenaria, oratione quotidie in integrum mensem pie reiterata et additis sacramentali confessione, alicujus ecclesiæ vel publici oratorii visitatione et precibus ad Summi Pontificis mentem. Pius Pp. XI, 22 Novembris 1934.}
+
+GRATIAS tibi ago, Dómine sancte, Pater omnípotens, ætérne Deus, qui me peccatórem, indígnum fámulum tuum, nullis meis méritis, sed sola dignatióne misericórdiæ tuæ satiáre dignátus es pretióso Córpore et Sánguine Fílii tui, Dómini nostri Jesu Christi. Et precor, ut hæc sancta commúnio non sit mihi reátus ad pœnam, sed intercéssio salutáris ad véniam. Sit mihi armatúra fídei et scutum bonæ voluntátis. Sit vitiórum meórum evacuátio, concupiscéntiæ et libídinis exterminátio, caritátis et patiéntiæ, humilitátis et obediéntiæ, omniúmque virtútum augmentátio; contra insídias inimicórum ómnium, tam visibílium quam invisibílium, firma defénsio; mótuum meórum, tam carnálium quam spirituálium, perfécta quietátio; in te uno ac vero Deo firma adhæsio; atque finis mei felix consummátio. Et precor te, ut ad illud ineffábile convívium me peccatórem perdúcere dignéris, ubi tu cum Fílio tuo et Spíritu Sancto Sanctis tuis es lux vera, satíetas plena, gáudium sempitérnum, jucúnditas consummáta et felícitas perfécta. Per eúmdem Christum, Dóminum nostrum. Amen.
+
+### Oratio S. Bonaventuræ
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+TRANSFIGE, dulcíssime Dómine Jesu, medúllas et víscera ánimæ meæ suavíssimo ac salubérrimo amóris tui vúlnere, vera serenáque et apostólica sanctíssima caritáte, ut lángueat et liquefíat ánima mea solo semper amóre et desidério tui; te concupíscat et defíciat in átria tua, cúpiat dissólvi et esse tecum. Da, ut ánima mea te esúriat, panem Angelórum, refectiónem animárum sanctárum, panem nostrum quotidiánum, supersubstantiálem, habéntem omnem dulcédinem et sapórem et omne delectaméntum suavitátis. Te, in quem desíderant Angeli prospícere, semper esúriat et cómedat cor meum, et dulcédine sapóris tui repleántur víscera ánimæ meæ; te semper sítiat fontem vitæ, fontem sapiéntiæ et sciéntiæ, fontem ætérni lúminis, torréntem voluptátis, ubertátem domus Dei. Te semper ámbiat, te quærat, te invéniat, ad te tendat, ad te pervéniat, te meditétur, te loquátur, et ómnia operétur in laudem et glóriam nóminis tui, cum humilitáte et discretióne, cum dilectióne et delectatióne, cum facilitáte et afféctu, cum perseverántia usque in finem; ut tu sis solus semper spes mea, tota fidúcia mea, divítiæ meæ, delectátio mea, jucúnditas mea, gáudium meum, quies et tranquíllitas mea, pax mea, suávitas mea, odor meus, dulcédo mea, cibus meus, refectio mea, refúgium meum, auxílium meum, sapiéntia mea, pórtio mea, posséssio mea, thesáurus meus, in quo fixa et firma et immobíliter semper sit radicáta mens mea et cor meum. Amen.
+
+## Rhythmus S. Thomæ Aquinatis
+
+{RUBRIC: Indulgentia quinque annorum; plenaria suetis conditionibus, quotidiana rhythmi recitatione in integrum mensem producta. Pius Pp. XI, 12 Martii 1936.}
+
+ADORO te devóte, latens Déitas,
+Quæ sub his figúris vere látitas:
+Tibi se cor meum totum súbjicit,
+Quia, te contémplans, totum déficit.
+
+Visus, tactus, gustus in te fállitur,
+Sed audítu solo tuto créditur:
+Credo quidquid dixit Dei Fílius,
+Nil hoc verbo Veritátis vérius.
+
+In Cruce latébat sola Déitas,
+At hic latet simul et humánitas;
+Ambo tamen credens atque cónfitens,
+Peto quod petívit latro pænitens.

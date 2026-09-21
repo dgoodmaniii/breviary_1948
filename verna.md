@@ -41382,3 +41382,41 @@ Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes
 Quóniam dabis eum in benedictiónem in sæculum sæculi: \* lætificábis eum in gáudio cum vultu tuo.
 
 Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis: \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui: \* Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes: \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala: \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum: \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Posuísti, Dómine, super caput ejus corónam de lápide pretióso.
+
+℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+**Lectio vii** *Cap. 14, 26-33*
+
+IN illo témpore: Dixit Jesus turbis: Si quis venit ad me, et non odit patrem suum, et matrem, et uxórem, et fílios, et fratres, et soróres, adhuc autem et ánimam suam, non potest meus esse discípulus. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 37 in Evang.}
+
+SI considerémus, fratres caríssimi, quæ et quanta sunt, quæ nobis promittúntur in cælis, viléscunt ánimo ómnia quæ habéntur in terris. Terréna namque substántia, supérnæ felicitáti comparáta, pondus est, non subsídium. Temporális vita, ætérnæ vitæ comparáta, mors est pótius dicénda quam vita. Ipse enim quotidiánus deféctus corruptiónis quid est áliud quam quædam prolíxitas mortis? Quæ autem lingua dícere, vel quis intelléctus cápere súfficit, illa supérnæ civitátis quanta sint gáudia; Angelórum choris interésse, cum beatíssimis spirítibus glóriæ Conditóris assístere, præséntem Dei vultum cérne-

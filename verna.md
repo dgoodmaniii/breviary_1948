@@ -19103,4 +19103,28 @@ NON mediócris invídia próditur, quæ cívicæ caritátis oblíta, in acérba 
 
 NON otióse ítaque Salvátor excúsat, quod nulla in pátria sua miracula virtútis operátus sit: ne fortássis áliquis viliórem pátriæ nobis esse debére putáret afféctum. Neque enim cives póterat non amáre, qui amáret omnes: sed ipsi se caritáte pátriæ, dum ínvident, abdicárunt. In veritáte dico vobis: multæ víduæ fuérunt in diébus Elíæ. Non quia Elíæ dies fuérunt, sed in quibus Elías operátus est: aut quia Elías dies faciébat illis, qui in ejus opéribus lucem vidébant grátiæ spiritális, et convertebántur ad Dóminum. Et ídeo aperiebátur cælum vidéntibus ætérna et divína mystéria: claudebátur, et fames erat, quando nulla erat cognoscéndæ divinitátis ubértas. Sed de hoc plénius díximus, cum de víduis scriberémus.
 
-℟. Iste est frater vester mínimus, de quo dixerátis mihi? Deus misereátur tibi, fili mi. \* Festinavítque in domum, et plorávit: quia erumpébant lácrimæ, et non póterat se continére. ℣. Attóllens autem Joseph óculos, vidit Bénjamin stantem: et commóta sunt ómnia víscera
+℟. Iste est frater vester mínimus, de quo dixerátis mihi? Deus misereátur tibi, fili mi. \* Festinavítque in domum, et plorávit: quia erumpébant lácrimæ, et non póterat se continére. ℣. Attóllens autem Joseph óculos, vidit Bénjamin stantem: et commóta sunt ómnia víscera ejus super fratre suo. — Festinavítque.
+
+#### Lectio iii
+
+ET multi leprósi erant in Judǽa tempóribus Eiséi prophétæ: et nemo eórum mundátus est, nisi Náaman Syrus. Evidénter hic sermo nos Dómini salutáris infórmat, et ad stúdium venerándæ divinitátis hortátur: quod nemo sanátus osténditur, et maculósi morbo córporis absolútus, nisi qui religióso offício stúduit sanitáti. Non enim dormiéntibus divína benefícia, sed observántibus deferúntur. Díximus in libro álio, in vídua illa, ad quam Elías diréctus est, typum Ecclésiæ præmíssum. Pópulus Ecclésiam congregávit, ut sequátur pópulus ille ex aliénígenis congregátus. Pópulus ille ante leprósus, pópulus ille ante maculósus, priúsquam mýstico baptizarétur in flúmine: idem post sacraménta baptísmatis máculis córporis et mentis ablútus, jam non lepra, sed immaculáta virgo cœpit esse sine ruga.
+
+℟. Dixit Joseph úndecim frátribus suis: Ego sum Joseph, quem vendidístis in Ægýptum: adhuc vivit pater noster sénior, de quo dixerátis mihi? \* Ite, addúcite eum ad me, ut possit vívere. ℣. Biénnium enim est quod cœpit esse fames in terra: et adhuc restant anni quinque, quibus nec arári póterit, nec meti. — Ite. Glória Patri. Ite.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Amen dico vobis, \* quia nemo prophéta accéptus est in pátria sua.
+
+#### Oratio
+
+CORDIBUS nostris, quæsumus, Dómine, grátiam tuam benígnus infúnde: ut, sicut ab escis carnálibus abstinémus; ita sensus quoque nostros a nóxiis retrahámus excéssibus. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Jesus autem, tránsiens \* per médium illórum, ibat.
+
+#### Oratio
+
+SUBVENIAT nobis, Dómine, misericórdia tua: ut ab imminéntibus peccatórum nostrórum perículis te mereámur protegénte éripi, te liberánte salvári. Per Dóminum.
+
+---

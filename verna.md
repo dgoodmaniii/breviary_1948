@@ -37233,3 +37233,39 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum Gregórium minístrum tribuíst
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.
+
+###### Oratio
+
+SANCTI Antoníni, Dómine, Confessóris tui atque Pontíficis méritis adjuvémur: ut, sicut te in illo mirábilem prædicámus, ita in nos misericórdem fuísse gloriémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Gregóri, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** C 3
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Gregórium minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Deinde Commem. Ss. Gordiani et Epimachi Mm.:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut, qui beatórum Mártyrum tuórum Gordiáni et Epímachi solémnia cólimus, eórum apud te intercessiónibus adjuvémur. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+ANTONINUS, Floréntiæ honéstis paréntibus natus, ab ipsa jam pueritia egrégium futúræ sanctitátis spécimen exhíbuit. Annum agens sextum décimum, religiónem Prædicatórum ampléxus, cœpit exínde máximis clarére virtútibus. Otio perpétuum bellum indíxit. Post noctúrnum brevem somnum primus matutínis précibus áderat, quibus persolútis, réliquum tempus noctis oratiónibus, aut certe lectióni et scriptióni librórum tribuébat; et, si quando importúnior fessis membris somnus obréperet, ad paríetem páululum declináto cápite ac tantísper discússo somno, mox sacras vigílias avídius repetébat.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+DISCIPLINÆ reguláris sui ipsíus severíssimus exáctor, carnes, nisi in

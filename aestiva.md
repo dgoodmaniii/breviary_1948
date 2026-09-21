@@ -18796,4 +18796,24 @@ DIxítque rex Israël: Heu, heu, heu: congregávit nos Dóminus tres reges, ut t
 
 ##### Lectio iii
 
-ET ait illi rex Israël: Quare congregávit Dóminus tres reges hos, ut tráderet eos in manus Moab? Dixítque ad eum Eliséus: Vivit Dóminus exercítuum, in cujus conspéctu sto, quod, si non vultum Jósaphat regis Judæ erubéscerem, non attendíssem quidem te, nec respexíssem. Nunc autem addúcite mihi psaltem. Cumque cáneret psaltes, facta est super eum manus Dómini, et ait: Hæc dicit
+ET ait illi rex Israël: Quare congregávit Dóminus tres reges hos, ut tráderet eos in manus Moab? Dixítque ad eum Eliséus: Vivit Dóminus exercítuum, in cujus conspéctu sto, quod, si non vultum Jósaphat regis Judæ erubéscerem, non attendíssem quidem te, nec respexíssem. Nunc autem addúcite mihi psaltem. Cumque cáneret psaltes, facta est super eum manus Dómini, et ait: Hæc dicit Dóminus: Fácite álveum torréntis hujus fossas et fossas; hæc enim dicit Dóminus: Non vidébitis ventum neque plúviam, et álveus iste replébitur aquis, et bibétis vos et famíliæ vestræ et juménta vestra. Parúmque est hoc in conspéctu Dómini; ínsuper tradet étiam Moab in manus vestras.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 4, 1-17*
+
+MUlier autem quædam de uxóribus prophetárum clamábat ad Eliséum dicens: Servus tuus vir meus mórtuus est, et tu nosti quia servus tuus fuit timens Dóminum; et ecce créditor venit ut tollat duos fílios meos ad serviéndum sibi. Cui dixit Eliséus: Quis vis ut fáciam tibi? Dic mihi, quid habes in domo tua? At illa respóndit: Non hábeo ancílla tua quidquam in domo mea nisi parum ólei, quo ungar. Cui ait: Vade, pete mútuo ab ómnibus vicínis tuis vasa vácua non pauca; et ingrédere et claude óstium tuum, cum intrínsecus fúeris tu et fílii tui, et mitte inde in ómnia vasa hæc; et, cum plena fúerint, tolles.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+IVit ítaque múlier et clausit óstium super se et super fílios suos; illi offerébant vasa, et illa infundébat. Cumque plena fuíssent vasa, dixit ad fílium suum: Affer mihi adhuc vas. Et ille respóndit: Non hábeo. Stetítque óleum. Venit autem illa et indicávit hómini Dei. Et ille, Vade, inquit, vende óleum et redde creditóri tuo; tu autem et fílii tui vívite de réliquo.

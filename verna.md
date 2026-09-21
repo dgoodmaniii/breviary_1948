@@ -36463,4 +36463,20 @@ Homilía sancti Hierónymi Presbýteri
 
 {RUBRIC: Liber 3 Comm. in Matth., cap. 20}
 
-UNDE opiniónem regni habet mater filiórum Zebedǽi, ut cum Dóminus díxerit: Fílius hóminis tradétur princípibus sacerdótum et scribis, et condemnábunt eum morte, et tradent Géntibus ad illudéndum
+UNDE opiniónem regni habet mater filiórum Zebedǽi, ut cum Dóminus díxerit: Fílius hóminis tradétur princípibus sacerdótum et scribis, et condemnábunt eum morte, et tradent Géntibus ad illudéndum et flagellándum et crucifigéndum; et ignomíniam passiónis timéntibus discípulis nuntiáret, illa glóriam póstulet triumphántis? Hac, ut reor, ex causa, quia post ómnia díxerat Dóminus, Et tértia die resúrget; putávit eum múlier post resurrectiónem íllico regnatúrum, et hoc quod in secúndo advéntu promíttitur, in primo esse compléndum; et, aviditáte femínea, præséntia cupit, ímmemor futurórum.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Si dicénda sit ix Lectio alicújus Officii commemoráti, ex viii et ix Lectióne fit una.}
+
+###### Lectio viii
+
+MATER póstulat, et Dóminus discípulis lóquitur, intélligens preces ejus ex filiórum descéndere voluntáte. Potéstis bíbere cálicem, quem ego bibitúrus sum? Cálicem in Scriptúris divínis passiónem intellígimus, juxta illud: Pater, si possíbile est, tránseat a me calix iste; et in Psalmo: Quid retríbuam Dómino pro ómnibus quæ retríbuit mihi? Cálicem salutáris accípiam, et nomen Dómini invocábo. Statímque infert quis iste sit calix: Pretiósa in conspéctu Dómini mors sanctórum ejus.
+
+℟. Cándidi facti sunt Nazarǽi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes, alias}
+
+###### Lectio ix
+
+QUÆRITUR quómodo cálicem martýrii fílii Zebedǽi, Jacóbus vidélicet et Joánnes, bíberint; cum Scriptúra narret Jacóbum tantum Apóstolum ab Heróde cápite truncátum, Joánnes autem própria morte vitam finíerit. Sed, si legámus ecclesiásticas histórias, in quibus fertur quod et ipse propter martýrium sit missus in fervéntis ólei dólium, et inde ad suscipiéndam corónam Christi athléta procésserit, statímque relegátus in Patmos ínsulam sit; vidébimus martýrio ánimum non defuísse, et bibísse Joánnem cálicem

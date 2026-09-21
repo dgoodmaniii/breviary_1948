@@ -804,3 +804,52 @@ Pater noster et Ave.
 ℣. Deus, in adjutórium.
 
 ### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Successíbus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed præmium mortis sacræ
+Perénnis instet glória.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Expléto Hymno, convéniens dícitur Antíphona usque ad Asteríscum \*, et tres Psalmi, prouti Offícium occúrrens réquirit; atque, Psalmis absolútis, íntegra repetítur Antíphona.}
+
+#### In Officio dominicali
+
+{RUBRIC: In ómnibus Domínicis, extra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, Aña ut in Psaltério, et dícitur sequens}
+
+**Capitulum** *1 Cor. 6, 20*
+
+EMPTI enim estis prétio magno. Glorificáte et portáte Deum in córpore vestro.
+
+℟. br. Clamávi in toto corde meo: \* Exáudi me, Dómine. Clamávi. ℣. Justificatiónes tuas requíram. Exáudi. Glória Patri. Clamávi.
+
+℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+#### In Officio feriali
+
+{RUBRIC: In ómnibus Fériis, Antíphona de Feria curránti, ut in Psaltério; et dícitur quotídie sequens}
+
+**Capitulum** *1 Petr. 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et. Glória Patri. Rédime.
+
+℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: Expléto Responsório brevi, si Preces non fúerint recitándæ, statim dícitur Versus Dóminus vobíscum cum Oratióne et réliquis ómnibus usque ad finem Horæ, ut infra.}
+
+{RUBRIC: Quando vero ad Laudes recitátæ sunt Preces, post Responsórium breve dicúntur sequéntes flexis génibus:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.

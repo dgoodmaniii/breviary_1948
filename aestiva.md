@@ -1375,3 +1375,55 @@ Non est Deus in conspéctu ejus: \* inquinátæ sunt viæ illíus in omni témpo
 Auferúntur judícia tua a fácie ejus: \* ómnium inimicórum suórum dominábitur.
 
 Dixit enim in corde suo: \* Non movébor a generatióne in generatiónem sine malo.
+
+Cujus maledictióne os plenum est, et amaritúdine, et dolo: \* sub lingua ejus labor et dolor.
+
+Sedet in insídiis cum divítibus in occúltis, \* ut interfíciat innocéntem.
+
+Oculi ejus in páuperem respíciunt: \* insidiátur in abscóndito, quasi leo in spelúnca sua.
+
+Insidiátur ut rápiat páuperem: \* rápere páuperem, dum áttrahit eum.
+
+In láqueo suo humiliábit eum: \* inclinábit se, et cadet, cum dominátus fúerit páuperum.
+
+Dixit enim in corde suo: \* Oblítus est Deus, avértit fáciem suam ne vídeat in finem.
+
+**Ant.** Ut quid, Dómine, recessísti longe?
+
+**Ant.** Exsúrge. †
+
+###### Psalmus 9, iv
+
+EXSURGE, † Dómine Deus, exaltétur manus tua: \* ne obliviscáris páuperum.
+
+Propter quid irritávit ímpius Deum? \* dixit enim in corde suo: Non requíret.
+
+Vides quóniam tu labórem et dolórem consíderas: \* ut tradas eos in manus tuas.
+
+Tibi derelíctus est pauper: \* órphano tu eris adjútor.
+
+Cóntere bráchium peccatóris et malígni: \* quærétur peccátum illíus, et non inveniétur.
+
+Dóminus regnábit in ætérnum, et in sæculum sæculi: \* períbitis, gentes, de terra illíus.
+
+Desidérium páuperum exaudívit Dóminus: \* præparatiónem cordis eórum audívit auris tua.
+
+Judicáre pupíllo et húmili, \* ut non appónat ultra magnificáre se homo super terram.
+
+**Ant.** Exsúrge, Dómine Deus, exaltétur manus tua.
+
+**Ant.** Justus Dóminus.
+
+###### Psalmus 10
+
+IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Oculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.

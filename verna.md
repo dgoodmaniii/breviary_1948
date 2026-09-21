@@ -35183,3 +35183,27 @@ QUOD quidem justítia præditus Joseph esset, ac vitam legi consentáneam dúcer
 {RUBRIC: Te Deum laudámus.}
 
 {RUBRIC: Vesperæ de seq. die Octava.}
+
+---
+
+## Feria IV
+
+In Octava S. Joseph
+
+{RUBRIC: Duplex majus 872}
+
+### In II Nocturno
+
+Sermo sancti Augustíni Epíscopi
+
+{RUBRIC: Lib. 1 de Nupt. et Concup. c. 11}
+
+#### Lectio iv
+
+NON falláciter ab Angelo dictum est ad Joseph: Noli timére accípere Maríam cónjugem tuam. Conjux vocátur ex prima fide desponsatiónis, quam concúbitu nec cognóverat nec fúerat cognitúrus; nec périerat nec mendax mánserat cónjugis appellátio, ubi nec fúerat nec futúra erat ulla carnis commíxtio. Erat quippe illa Virgo; ídeo et sánctius et mirabílius jucúnda suo viro, quia étiam fœcúnda sine viro, prole dispar, fide compar. Propter quod fidéle conjúgium paréntes Christi vocári ambo meruérunt, et non solum illa mater, verum étiam ille pater ejus, sicut conjux matris ejus, utrúmque mente, non carne. Sive autem ille pater sola mente, sive illa mater et carne, paréntes tamen ambo humilitátis ejus, non sublimitátis; infirmitátis, non divinitátis.
+
+℟. Dedísti mihi protectiónem salútis tuæ et déxtera tua suscépit me: \* Protéctor meus et cornu salútis meæ et susceptor meus, allelúja. ℣. Ego protéctor tuus sum et merces tua magna nimis. — Protéctor.
+
+#### Lectio v
+
+NEQUE enim mentítur Evangélium, ubi légitur: Et erat pater ejus et Mater mirántes super his, quæ dicebántur de illo. Et álio loco: Ibant paréntes ejus per omnes annos in Jerúsalem. Item paulo post: Et dixit Mater ejus ad illum: Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te. At ille, ut osténderet habére se præter illos Patrem, qui eum génuit præter matrem, respóndit eis: Quid est, quod me quærebátis? Nesciebátis quia in his, quæ Patris mei sunt, opórtet me esse? Et rursum, ne hoc dicto paréntes illos negásse putarétur, Evangelísta secútus adjúnxit: Et ipsi non intellexérunt verbum, quod locútus est ad illos; et descéndit cum eis, et venit Názareth, et erat súbditus illis. Quibus súbditus nisi paréntibus?

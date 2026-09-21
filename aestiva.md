@@ -16375,3 +16375,53 @@ Salvábit sibi déxtera ejus: \* et bráchium sanctum ejus.
 Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
 
 Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Vidérunt omnes términi terræ salutáre Dei nostri.
+
+**Ant.** Psallam tibi \* in natiónibus, quia magna est super cælos misericórdia tua.
+
+##### Psalmus 107
+
+PArátum cor meum, Deus, parátum cor meum: \* cantábo, et psallam in glória mea.
+
+Exsúrge, glória mea, exsúrge, psaltérium, et cíthara: \* exsúrgam dilúculo.
+
+Confitébor tibi in pópulis, Dómine: \* et psallam tibi in natiónibus.
+
+Quia magna est super cælos misericórdia tua, \* et usque ad nubes véritas tua:
+
+Exaltáre super cælos, Deus, et super omnem terram glória tua: \* ut liberéntur diléctí tui.
+
+Salvum fac déxtera tua, et exáudi me: \* Deus locútus est in sancto suo:
+
+Exsultábo, et dívidam Síchimam, \* et convállem tabernaculórum dimétiar.
+
+Meus est Gálaad, et meus est Manásses: \* et Ephraïm suscéptio cápitis mei.
+
+Juda rex meus: \* Moab lebes spei meæ.
+
+In Idumǽam exténdam calceaméntum meum: \* mihi alienígenæ amíci facti sunt.
+
+Quis dedúcet me in civitátem munítam? \* quis dedúcet me usque in Idumǽam?
+
+Nonne tu, Deus, qui repulísti nos, \* et non exíbis, Deus, in virtútibus nostris?
+
+Da nobis auxílium de tribulatióne: \* quia vana salus hóminis.
+
+In Deo faciémus virtútem: \* et ipse ad níhilum edúcet inimícos nostros.
+
+**Ant.** Psallam tibi in natiónibus, quia magna est super cælos misericórdia tua.
+
+℣. Memóriam fecit mirabílium suórum miserátor Dóminus. ℟. Escam dedit timéntibus se.

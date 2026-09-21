@@ -36521,4 +36521,16 @@ DEUS, pro cujus honóre gloriósus Póntifex Stanisláus gládiis impiórum occ�
 
 ###### Lectio iv
 
-STANISLAUS Polónus, apud Cracóviam nóbili génere natus et piis paréntibus, qui ántea per annos trigínta stériles, illum a Deo précibus impetrárunt, ab ineúnte ætáte futúræ sanctitátis spécimen dedit. Adoléscens bonis ártibus óperam navávit, multúmque in sacra canónum et theologíæ doctrína profécit. Paréntibus mórtuis, amplum patrimónium paupéribus distríbuit, vitæ monásticæ desidério. Sed Dei providéntia canónicus
+STANISLAUS Polónus, apud Cracóviam nóbili génere natus et piis paréntibus, qui ántea per annos trigínta stériles, illum a Deo précibus impetrárunt, ab ineúnte ætáte futúræ sanctitátis spécimen dedit. Adoléscens bonis ártibus óperam navávit, multúmque in sacra canónum et theologíæ doctrína profécit. Paréntibus mórtuis, amplum patrimónium paupéribus distríbuit, vitæ monásticæ desidério. Sed Dei providéntia canónicus Cracoviénsis et concionátor factus a Lampérto epíscopo, in ejus póstea locum, quamvis invítus, sufficitur. Quo in múnere, ómnium pastorálium virtútum laude, et præcípue misericórdia in páuperes enítuit.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+ERAT tum Polóniæ rex Bolesláus, quem gráviter offéndit, quod illíus notam libídinem públice arguébat. Quare in solémni regni convéntu Stanisláum per calúmniam in judícium coram se vocári curat, tamquam pagum occupáret, quem ecclésiæ suæ nómine coémerat. Quod cum neque tábulis probáre posset, et testes veritátem dícere timérent, spondet epíscopus, se Petrum pagi venditórem, qui triénnio ante obíerat, intra dies tres in judícium adductúrum. Conditióne cum risu accépta, vir Dei toto tríduo jejúniis et oratióni incúmbit; ipso sponsiónis die, post oblátum Missæ sacrifícium, Petrum e sepúlcro súrgere jubet; qui statim redivívus, epíscopum ad régium tribúnal eúntem séquitur, ibíque, rege et céteris stupóre attónitis, de agro a se véndito et prétio rite sibi ab epíscopo persolúto testimónium dicit, atque íterum in Dómino obdormívit.
+
+℟. In servis suis, allelúja, \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+AT Bolesláum, frustra sæpe admónitum, Stanisláus tandem a fidélium communióne rémovet. Ille, iracúndia furens, mílites in ecclésiam immíttit, ut sanctum epíscopum confódiant; qui, ter conáti, occúlta vi, tértio divínitus sunt depúlsi. Postrémo ímpius rex sacerdótem Dei, Hóstiam immaculátam ad altáre offeréntem, sua manu obtrúncat. Corpus, membrátim concísum et per agros projéctum, áquilæ a feris mirabíliter deféndunt. Mox canónici Cracoviénses sparsa membra, noctúrni de cælo splendóris indício cólligunt, et suis locis apte dispónunt; quæ súbito ita inter se copuláta sunt, ut nulla vúlnerum vestígia exstárent. Multis prætérea

@@ -42331,3 +42331,56 @@ FULGEBUNT justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt 
 **Añæ 1** Isti sunt Sancti, \* qui pro testaménto Dei sua córpora tradidérunt, et in sánguine Agni lavérunt stolas suas.
 
 **2** Sancti per fidem \* vicérunt regna, operáti sunt justítiam, adépti sunt repromissiónes.
+
+**3** Sanctórum velut áquilæ \* juvéntus renovábitur: florébunt sicut lílium in civitáte Dómini.
+
+**4** Abstérget Deus \* omnem lácrimam ab óculis Sanctórum: et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor: quóniam prióra transiérunt.
+
+**5** In cæléstibus regnis \* Sanctórum habitátio est, et in ætérnum réquies eórum.
+
+###### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** In cæléstibus regnis Sanctórum habitátio est, et in ætérnum réquies eórum.
+
+**Capitulum** Justórum, {RUBRIC: ut supra. [68]}
+
+###### Hymnus
+
+SANCTORUM méritis ínclyta gáudia
+Pangámus, sócii, géstaque fórtia:
+Gliscens fert ánimus prómere cántibus
+Victórum genus óptimum.
+
+Hi sunt, quos fátue mundus abhórruit;
+Hunc fructu vácuum, flóribus áridum
+Contempsére tui nóminis ásseclæ,
+Jesu, Rex bone cælitum.
+
+Hi pro te fúrias atque minas truces
+Calcárunt hóminum, sǽvaque vérbera:
+His cessit lácerans fórtiter úngula,
+Nec carpsit penetrália.
+
+Cædúntur gládiis more bidéntium:
+Non murmur résonat, non querimónia;
+Sed corde impávido mens bene cónscia
+Consérvat patiéntiam.
+
+Quæ vox, quæ póterit lingua retéxere,
+Quæ tu Martýribus múnera prǽparas?

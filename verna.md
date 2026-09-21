@@ -24915,4 +24915,40 @@ MODICUM est hoc totum spátium, quo præsens pérvolat sǽculum. Unde dicit idem
 
 #### Lectio viii
 
-ILLIS ergo ait: Módicum, et jam non vidébitis me; qui eum corporáliter tunc vidébant: quia itúrus erat ad Patrem, et
+ILLIS ergo ait: Módicum, et jam non vidébitis me; qui eum corporáliter tunc vidébant: quia itúrus erat ad Patrem, et eum deínceps mortálem visúri non erant, quálem, cum ista loquerétur, vidébant. Quod vero áddidit: Et íterum módicum, et vidébitis me: univérsæ promísit Ecclésiæ, sicut univérsæ promísit: Ecce ego vobíscum sum usque ad consummatiónem sǽculi. Non tardat Dóminus promíssum. Módicum, et vidébimus eum: ubi jam nihil rogémus, nihil interrogémus, quia nihil desiderándum remanébit, nihil quæréndum latébit.
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur. Glória Patri. Convertétur.
+
+#### Lectio ix
+
+HOC módicum longum nobis vidétur, quóniam adhuc ágitur; cum finítum fúerit, tunc sentiémus quam módicum fúerit. Non ergo sit gáudium nostrum, quale habet mundus, de quo dictum est: Mundus autem gaudébit. Nec tamen in hujus desidérii parturitióne sine gáudio tristes simus: sed, sicut ait Apóstolus: Spe gaudéntes: In tribulatióne patiéntes: quia et ipsa parturiens, cui comparáti sumus, plus gaudet de mox futúra prole, quam tristis est de præsénti dolóre. Sed hujus sermónis iste sit finis: habent enim quæstiónem molestíssimam, quæ sequúntur: nec brevitáte coarctánda sunt, ut possint commódius, si Dóminus volúerit, explicári.
+
+Te Deum laudámus.
+
+## Ad Laudes
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Dominica 1 loco. 49}
+
+**Capit.** *1 Petri 2, 11*
+
+CARISSIMI: Obsecro vos tamquam ádvenas et peregrínos abstinére vos a carnálibus desidériis, quæ mílitant advérsus ánimam.
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus ínfremit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:

@@ -46149,4 +46149,67 @@ ET bene ascéndit in árborem, ut arbor bona bonos fructus fáceret, ac, naturá
 
 ###### Lectio ix
 
-VERUM, ne cæcum illum, tamquam fastidiósi páuperum, cito reliquísse videámur et transísse ad dívitem, exspectémus eum, quia exspectávit et Dóminus; interrogémus eum, quia interrogávit et
+VERUM, ne cæcum illum, tamquam fastidiósi páuperum, cito reliquísse videámur et transísse ad dívitem, exspectémus eum, quia exspectávit et Dóminus; interrogémus eum, quia interrogávit et Christus. Nos interrogémus, quia nescímus: ille, quia nóverat. Nos interrogémus, ut sciámus unde iste curátus sit: ille interrogávit, ut in uno plures discerémus unde Dóminum vidére mereámur. Interrogávit enim, ut crederémus, néminem, nisi confiténtem, posse salvári.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Domum tuam, Dómine, \* decet sanctitúdo in longitúdinem diérum. (T. P. Allelúja.)
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** Domus mea \* domus oratiónis vocábitur. (T. P. Allelúja.)
+
+**3** Hæc est domus Dómini \* fírmiter ædificáta, bene fundáta est supra firmam petram. (T. P. Allelúja.)
+
+**4** Bene fundáta est \* domus Dómini supra firmam petram. (T. P. Allelúja.)
+
+**5** Lápides pretiósi \* omnes muri tui, et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Apoc. 21, 2*
+
+VIDI civitátem sanctam, Jerúsalem novam, descendéntem de cælo a Deo, parátam sicut sponsam ornátam viro suo.
+
+###### Hymnus
+
+ALTO ex Olýmpi vértice
+Summi Paréntis Fílius,
+Ceu monte deséctus lapis
+Terras in imas décidens,
+Domus supérnæ et ínfimæ
+Utrúmque junxit ángulum.
+
+Sed illa sedes cælitum
+Semper resúltat láudibus,
+Deúmque trinum et únicum
+Jugi canóre prædicat:
+Illi canéntes júngimur
+Almæ Siónis æmuli.
+
+Hæc templa, Rex cæléstium,
+Imple benígno lúmine:
+Huc, o rogátus, ádveni,
+Plebísque vota súscipe,
+Et nostra corda júgiter
+Perfúnde cæli grátia.
+
+Hic ímpetrent fidélium
+Voces precésque súpplicum
+Domus beátæ múnera,
+Partísque donis gáudeant:
+Donec, solúti córpore,
+Sedes beátas ímpleant.
+
+Decus Parénti débitum
+Sit usquequáque Altíssimo,
+Natóque Patris único,
+Et ínclyto Paráclito,
+Cui laus, potéstas, glória
+Ætérna sit per sæcula. Amen.
+
+℣. Hæc est domus Dómini fírmiter ædificáta.

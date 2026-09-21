@@ -20137,3 +20137,37 @@ ET ídeo novi testaménti mediátor est: ut, morte intercedénte, in redemptión
 ### Ad Vesperas
 
 {RUBRIC: Antiphonæ et Psalmi de Dominica, ut in Psalterio 72; Capitulum, Hymnus et Versus, ut in Vesperis præcedentis Sabbati. 415}
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Abraham pater vester \* exsultávit ut vidéret diem meum: vidit, et gavísus est.
+
+#### Oratio
+
+QUÆSUMUS, omnípotens Deus, famíliam tuam propítius réspice: ut, te largiénte, regátur in córpore; et, te servánte, custodiátur in mente. Per Dóminum.
+
+{RUBRIC: Invitatorium, Hymni, Versus, Lectio brevis ad Primam, et Responsoria brevia, in Officio tam dominicali quam feriali, usque ad Feriam IV Majoris Hebdomadæ inclusive, dicuntur quotidie, ut supra, de Tempore Passionis in Psalterio de Ordinario: et inde sumuntur in Officio feriali etiam Capitula ad omnes Horas, et usque ad Sabbatum sequens inclusive, Antiphona ad singulas Horas minores.}
+
+---
+
+## Feria Secunda
+
+### Ad Matutinum
+
+{RUBRIC: Antiphonæ et Psalmi de Feria, cum Versu de Tempore Passionis, ut in Psalterio; quod servatur in Officio feriali usque ad Feriam IV Majoris Hebdomadæ inclusive.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 7, 32-39*
+
+IN illo témpore: Misérunt príncipes et pharisǽi minístros, ut apprehénderent Jesum. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 31 in Joannem, circa medium}
+
+QUOMODO apprehénderent adhuc noléntem? Quia ergo non póterant apprehéndere noléntem, missi sunt ut audírent docéntem. Quid docéntem? Dicit ergo Jesus: Adhuc módicum tempus vobíscum sum. Quod modo vultis fácere, factúri estis; sed non modo, quia modo nolo. Quare adhuc modo nolo? Quia adhuc módicum tempus vobíscum sum, et tunc vado ad eum qui me misit. Implére débeo dispensatiónem meam, et sic perveníre ad passiónem meam.
+
+℟. Deus meus, éripe me de manu peccatóris: et de manu contra legem agéntis, et iníqui: \* Quóniam tu es patiéntia mea. ℣. Deus meus, ne elongéris a me: Deus meus, in auxílium meum réspice. — Quóniam.

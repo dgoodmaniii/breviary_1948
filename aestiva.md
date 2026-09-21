@@ -18531,3 +18531,29 @@ VIdens autem regína Saba omnem sapiéntiam Salomónis et domum, quam ædificáv
 BEáti viri tui et beáti servi tui, qui stant coram te semper et áudiunt sapiéntiam tuam. Sit Dóminus Deus tuus benedíctus, cui complacuísti, et pósuit te super thronum Israël, eo quod diléxerit Dóminus Israël in sempitérnum, et constítuit te regem ut fáceres judícium et justítiam. Dedit ergo regi centum vigínti talénta auri et arómata multa nimis et gemmas pretiósas. Non sunt alláta ultra arómata tam multa quam ea quæ dedit regína Saba regi Salomóni. Sed et classis Hiram, quæ portábat aurum de Ophir, áttulit ex Ophir ligna thyína multa nimis et gemmas pretiósas.
 
 ℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 11, 1-12*
+
+REX autem Sálomon adamávit mulíeres alienígenas multas, fíliam quoque Pharaónis et Moabítidas, et Ammonítidas Idumǽas et Sidónias et Hethǽas, de géntibus super quibus dixit Dóminus fíliis Israël: Non ingrediémini ad eas, neque de illis ingrediéntur ad vestras; certíssime enim avértent corda vestra ut sequámini deos eárum. His ítaque copulátus est Sálomon ardentíssimo amóre: fuerúntque ei uxóres quasi regínæ septingéntæ et concubínæ trecéntæ; et avertérunt mulíeres cor ejus. Cumque jam esset senex, depravátum est cor ejus per mulíeres ut sequerétur deos aliénos; nec erat cor ejus perféctum cum Dómino Deo suo sicut cor David patris ejus.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pœniténtiam, veniénsque oráverit in isto loco. — Tu.
+
+##### Lectio ii
+
+SEd colébat Sálomon Astárthen deam Sidoniórum et Moloch idólum Ammonitárum. Fecítque Sálomon quod non placúerat coram Dómino, et non adimplévit ut sequerétur Dóminum sicut David pater ejus. Tunc ædificávit Sálomon fanum Chamos idólo Moab in monte, qui est contra Jerúsalem, et Moloch idólo filiórum Ammon. Atque in hunc modum fecit univérsis uxóribus suis alienígenis, quæ adolébant thura et immolábant diis suis.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+IGitur irátus est Dóminus Salomóni, quod avérsa esset mens ejus a Dómino Deo Israël, qui apparúerat ei secúndo et præcéperat de verbo hoc

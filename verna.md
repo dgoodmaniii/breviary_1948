@@ -41745,4 +41745,64 @@ BEATORUM Mártyrum paritérque Pontíficum N. et N. nos, quǽsumus, Dómine, fes
 
 **2 — Oratio**
 
-DEUS, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere: da nobis in ætérna
+DEUS, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+**3 — Alia Oratio**
+
+DEUS, qui nos ánnua sanctórum Mártyrum tuórum N. et N. solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invit.** Regem Mártyrum Dóminum, \* Veníte, adorémus. {RUBRIC: Ps. 94 Veníte, exsultémus.}
+
+###### Hymnus
+
+CHRISTO profúsum sánguinem
+Et Mártyrum victórias
+Dignámque cælo láuream
+Lætis sequámur vócibus.
+
+Terróre victo sæculi
+Pœnísque spretis córporis,
+Mortis sacræ compéndio
+Vitam beátam póssident.
+
+Tradúntur igni Mártyres
+Et bestiárum déntibus;
+Armáta sævit úngulis
+Tortóris insáni manus.
+
+Nudáta pendent víscera,
+Sanguis sacrátus fúnditur;
+Sed pérmanent immóbiles
+Vitæ perénnis grátia.
+
+¶ Sequens Conclúsio numquam mutátur.
+
+Te nunc, Redémptor, quǽsumus,
+Ut Mártyrum consórtio
+Jungas precántes sérvulos
+In sempitérna sæcula.
+Amen.
+
+##### In I Nocturno
+
+**Ant.** Secus decúrsus aquárum \* plantávit víneam justórum, et in lege Dómini fuit volúntas eórum.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Stabunt justi \* in magna constántia advérsus eos, qui se angustiavérunt, allelúja.
+
+{RUBRIC: Sub una tantum Antiphona in quolibet Nocturno dicúntur Psalmi.}
+
+###### Psalmus 1
+
+BEATUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.

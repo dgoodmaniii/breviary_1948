@@ -19146,4 +19146,40 @@ ANno tértio Osée fílii Ela regis Israël regnávit Ezechías fílius Achaz re
 
 ITaque post eum non fuit símilis ei de cunctis régibus Juda, sed neque in his qui ante eum fuérunt. Et adhǽsit Dómino et non recéssit a vestígiis ejus fecítque mandáta ejus, quæ præcéperat Dóminus Móysi. Unde et erat Dóminus cum eo, et in cunctis ad quæ procedébat, sapiénter se agébat. Rebellávit quoque contra regem Assyriórum et non servívit ei. Ipse percússit Philisthǽos usque ad Gazam et omnes términos eórum, a turre custódum usque ad civitátem munítam.
 
-℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic et sanctífica domum.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+ANno quarto regis Ezechíæ, qui erat annus séptimus Osée fílii Ela regis Israël, ascéndit Salmánasar rex Assyriórum in Samaríam et oppugnávit eam et cepit; nam post annos tres, anno sexto Ezechíæ, id est nono anno Osée regis Israël, capta est Samaría. Et tránstulit rex Assyriórum Israël in Assýrios, collocavítque eos in Hala et in Habor flúviis Gozan, in civitátibus Medórum, quia non audiérunt vocem Dómini Dei sui, sed prætergréssi sunt pactum ejus; ómnia, quæ præcéperat Móyses servus Dómini, non audiérunt neque fecérunt.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Obsecro, Dómine: \* meménto, quǽso, quómodo ambuláverim coram te in veritáte et in corde perfécto et quod plácitum est coram te fécerim.
+
+### Oratio
+
+OMnípotens sempitérne Deus, qui abundántia pietátis tuæ, et mérita súpplicum excédis et vota: effúnde super nos misericórdiam tuam; ut dimíttas quæ consciéntia métuit, et adjícias quod orátio non præsúmit. Per Dóminum.
+
+---
+
+## Dominica XI post Pentecosten
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 20, 1-11*
+
+IN diébus illis ægrotávit Ezechías usque ad mortem, et venit ad eum Isaías fílius Amos Prophéta dixítque ei: Hæc dicit Dóminus Deus: Præcipe dómui tuæ, moriéris enim tu et non vi-

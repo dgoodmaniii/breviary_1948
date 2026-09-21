@@ -45319,4 +45319,40 @@ UNDE et illi, qui deórum suórum adultéria et probra venerántur, cælibátus 
 
 ###### Lectio vi
 
-SIMILIS huic vídua, velut eméritis veterána stipéndiis castitátis, et si conjúgii arma depónat, domus tamen totíus pacem gubérnat; et si vehéndis onéribus otiósa, maritándis tamen junióribus próvida, ubi cultus utílior, ubi fructus ubérior sit, quarum cópulam aptiórem seníli gravitáte dispónit. Itaque si maturióribus quam junióribus commíttitur ager, cur putes utilíorem nuptam esse quam
+SIMILIS huic vídua, velut eméritis veterána stipéndiis castitátis, et si conjúgii arma depónat, domus tamen totíus pacem gubérnat; et si vehéndis onéribus otiósa, maritándis tamen junióribus próvida, ubi cultus utílior, ubi fructus ubérior sit, quarum cópulam aptiórem seníli gravitáte dispónit. Itaque si maturióribus quam junióribus commíttitur ager, cur putes utilíorem nuptam esse quam víduam? Quod si persecutóres fídei persecutóres fuérunt étiam viduitátis, útique fidem sequéntibus vidúitas non pro supplício fugiénda est, sed tenénda pro prǽmio.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. (T. P. Allelúja.) ℣. Date ei de fructu mánuum suárum et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+##### In III Nocturno
+
+**Absolutio.** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+###### Lectio vii
+
+*Cap. 13, 44-52*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Símile est regnum cælórum thesáuro abscóndito in agro. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 11 in Evang.}
+
+CÆLORUM regnum, fratres caríssimi, idcírco terrénis rebus símile dícitur, ut ex his, quæ ánimus novit, surgat ad incógnita, quæ non novit: quátenus exémplo visibílium se ad invisibília rápiat, et per ea, quæ usu dídicit, quasi confricátus incaléscat; ut per hoc, quod scit notum dilígere, discat et incógnita amáre. Ecce enim cælórum regnum thesáuro abscóndito in agro comparátur; quem, qui invénit homo, abscóndit, et præ gáudio illíus vadit, et vendit univérsa quæ habet, et emit agrum illum.
+
+##### Pro non Virgine
+
+℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ in lingua ejus: considerávit sémitas domus suæ, \* Et panem otiósa non comédit. (T. P. Allelúja.) ℣. Gustávit et vidit quia bona est negotiátio ejus: non exstinguétur in nocte lucérna ejus. — Et.
+
+##### Pro Virgine
+
+℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum: \* Et veniénte Dómino, introívit cum eo ad núptias. (T. P. Allelúja.) ℣. Média nocte clamor factus est: Ecce sponsus venit, exíte óbviam ei. — Et.
+
+**Bened.** Cujus *vel* Quarum festum cólimus.
+
+###### Lectio viii
+
+QUA in re hoc quoque notándum est, quod invéntus thesáurus abs-

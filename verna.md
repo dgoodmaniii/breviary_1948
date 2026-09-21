@@ -35245,3 +35245,63 @@ HONORATIOR, inquam, secúnda, quam prima natívitas. Síquidem Pater hic Deus ma
 IPSE enim est ártifex, qui hujus mundi máchinam non solum mirábili, sed étiam ineffábili poténtia fabricávit; tamquam sápiens architéctus cælum sublimitáte suspéndit, terram mole fundávit, mária cálculis alligávit. Ipse est ártifex, qui ad mensúram quamdam supérbiæ depónit fastígia, humilitátis extréma sublímat. Ipse est ártifex, qui in nostris móribus præcídit supérflua ópera, utília quæque consérvat. Ipse est ártifex, cujus secúrim ad radícem nostram pósitam Joánnes Baptísta comminátur, ut omnis arbor, quæ normam justæ discretiónis excésserit, excísa radícitus tradátur incéndio; quæ autem mensúram veritátis habúerit, cælésti fábricæ deputétur.
 
 {RUBRIC: Te Deum laudámus.}
+
+---
+
+## Festa Maji
+
+### Die 1 Maji
+
+#### Ss. Philippi et Jacobi Apostolorum
+
+{RUBRIC: Duplex II classis}
+
+{RUBRIC: Omnia de Communi Apostolorum Tempore Paschali [4], præter ea quæ hic habentur propria.}
+
+##### In I Vesperis
+
+**Ant. 1** Dómine, \* osténde nobis Patrem, et súfficit nobis, allelúja.
+
+**2** Philíppe, \* qui videt me, videt et Patrem meum, allelúja.
+
+**3** Tanto témpore \* vobíscum sum, et non cognovístis me? Philíppe, qui videt me, videt et Patrem meum, allelúja.
+
+**4** Si cognovissétis me, \* et Patrem meum útique cognovissétis, et ámodo cognoscétis eum, et vidístis eum, allelúja, allelúja, allelúja.
+
+**5** Si dilígitis me, \* mandáta mea serváte, allelúja, allelúja, allelúja.
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt, et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+TRISTES erant Apóstoli
+De Christi acérbo fúnere,
+Quem morte crudelíssima
+Servi necárant ímpii.
+
+Sermóne verax Angelus
+Muliéribus prædíxerat:
+Mox ore Christus gáudium
+Gregi feret fidélium.
+
+Ad ánxios Apóstolos
+Currunt statim dum núntiæ,
+Illæ micántis óbvia
+Christi tenent vestígia.
+
+Galilǽæ ad alta móntium
+Se cónferunt Apóstoli,
+Jesúque, voti cómpotes,
+Almo beántur lúmine.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula. Amen.

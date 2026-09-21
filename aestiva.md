@@ -17910,4 +17910,26 @@ ET ecce sermo Dómini ad Nathan dicens: Vade et lóquere ad servum meum David: H
 
 PEr cuncta loca, quæ transívi cum ómnibus fíliis Israël, numquid loquens locútus sum ad unam de tríbubus Israël, cui præcépi ut pásceret pópulum meum Israël dicens: Quare non ædificástis mihi domum cédrinam? Et nunc hæc dices servo meo David: Hæc dicit Dóminus exercítuum: Ego tuli te de páscuis sequéntem greges, ut esses dux super pópulum meum Israël, et fui tecum in ómnibus, ubicúmque ambulásti et interféci univérsos inimícos tuos a fácie tua fecíque tibi nomen grande juxta nomen magnórum, qui sunt in terra. Et ponam locum pópulo meo Israël et plantábo eum, et habitábit sub eo et non turbábitur ámplius; nec addent fílii iniquitátis ut afflígant eum sicut prius, ex die qua constítui júdices super pópulum meum Israël. Et réquiem dabo tibi ab ómnibus inimícis tuis, prædicítque tibi Dóminus, quod domum fáciat tibi Dóminus.
 
-℟. Montes Gélboe, nec ros nec plúvia véniant su-
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+CUmque compléti fúerint dies tui, et dormíeris cum pátribus tuis, suscitábo semen tuum post te, quod egrediétur de útero tuo, et firmábo regnum ejus. Ipse ædificábit domum nómini meo, et stabíliam thronum regni ejus usque in sempitérnum. Ego ero ei in patrem, et ipse erit mihi in fílium. Qui si iníque áliquid gésserit, árguam eum in virga virórum et in plagis filiórum hóminum. Misericórdiam autem meam non áuferam ab eo, sicut ábstuli a Saul, quem amóvi a fácie mea. Et fidélis erit domus tua et regnum tuum usque in ætérnum ante fáciem tuam, et thronus tuus erit firmus júgiter. Secúndum ómnia verba hæc et juxta univérsam visiónem istam sic locútus est Nathan ad David.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 11, 1-17*
+
+FActum est autem verténte anno, eo témpore quo solent reges ad bella procédere, misit David Joab et servos suos cum eo et univérsum Israël, et vastavérunt fílios Ammon et obsedérunt Rabba; David autem remánsit in Jerúsalem. Dum hæc agerántur, áccidit ut súrgeret David de strato suo post merídiem et deambuláret in solário domus régiæ; vidítque mulíerem se lavántem ex advérso super solárium suum; erat autem múlier pulchra valde. Misit ergo rex, et requisívit quæ esset múlier; nuntiatúmque est ei, quod ipsa esset Bethsabée fília Elíam, uxor Uríæ Hethǽi. Missis ítaque David núntiis, tulit eam.
+
+℟. Peccávi super númerum arénæ maris, et multi-

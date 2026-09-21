@@ -15500,4 +15500,34 @@ FIlíoli mei, non diligámus verbo neque lingua, sed ópere et veritáte.
 
 {RUBRIC: Et fit Commemoratio sequéntis diéi infra Octávam:}
 
-**Ant.** O quam suávis est, Dómine, spíritus tuus,
+**Ant.** O quam suávis est, Dómine, spíritus tuus, qui, ut dulcédinem tuam in fílios demonstráres, pane suavíssimo de cælo præstito, esuriéntes reples bonis, fastidiósos dívites dimíttens inánes.
+
+℣. Panem de cælo præstitísti eis, allelúja. ℟. Omne delectaméntum in se habéntem, allelúja.
+
+### Oratio
+
+DEus, qui nobis sub Sacraménto mirábili passiónis tuæ memóriam reliquísti: tríbue, quæsumus, ita nos córporis et sánguinis tui sacra mystéria venerári; ut redemptiónis tuæ fructum in nobis júgiter sentiámus: Qui vivis.
+
+{RUBRIC: Si tamen sequénti die faciéndum non sit Offícium de Octáva, dícitur}
+
+**Ant.** O sacrum convívium, in quo Christus súmitur; recólitur memória passiónis ejus; mens implétur grátia; et futúræ glóriæ nobis pignus datur, allelúja.
+
+## Feria II infra Octavam Ssmi Corporis Christi
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 5, 1-12*
+
+PHilísthiim autem tulérunt arcam Dei et asportavérunt eam a Lápide adjutórii in Azótum. Tulerúntque Philísthiim arcam Dei et intulérunt eam in templum Dagon et statuérunt eam juxta Dagon. Cumque surrexíssent dilúculo Azótii áltera die, ecce Dagon jacébat pronus in terra ante arcam Dómini; et tulérunt Dagon et restituérunt eum in locum suum. Rursúmque mane die áltera consurgéntes invenérunt Dagon jacéntem super fáciem suam in terra coram arca Dómini, caput autem Dagon et duæ palmæ mánuum ejus abscíssæ erant super limen; porro Dagon solus truncus remánserat in loco suo.
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et edent.
+
+##### Lectio ii
+
+AGgraváta est autem manus Dómini super Azótios, et demolítus est eos. Et ebulliérunt villæ et agri in médio regiónis illíus, et nati sunt mures, et facta est confúsio mortis magnæ in civitáte. Vidéntes autem viri Azótii hujuscémodi plagam dixé-

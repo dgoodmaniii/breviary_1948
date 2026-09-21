@@ -37498,4 +37498,20 @@ QUEMADMODUM in Deo, quem unum in Trinitáte et Trinum in unitáte venerámur, tr
 
 ###### Lectio viii
 
-PRÆDICATORES ígitur nostræ legis, tam ii qui primi ad nos fidem detulérunt et evangélium, quam ii quos deínde síngulis sǽculis Deus excitávit ad fidem eámdemque confirmándam vel propagándam, quales fúerint, quam pii, quam justi, quam religiósi totus mundus novit. Aspícite primum Apóstolos. Quid sublímius atque excelléntius móribus Apo-
+PRÆDICATORES ígitur nostræ legis, tam ii qui primi ad nos fidem detulérunt et evangélium, quam ii quos deínde síngulis sǽculis Deus excitávit ad fidem eámdemque confirmándam vel propagándam, quales fúerint, quam pii, quam justi, quam religiósi totus mundus novit. Aspícite primum Apóstolos. Quid sublímius atque excelléntius móribus Apostólicis! Aspícite deínde sanctos illos hómines, quos patres et doctóres vocámus, lúmina illa claríssima, quæ Deus in firmaménto Ecclésiæ lucére vóluit, ut iis omnes hæreticórum ténebræ dissiparéntur, ut Irenǽum, Cypriánum, Hilárium, Athanásium, Basilíum, duos Gregórios, Ambrósium, Hierónymum, Augustínum, Chrysóstomum, Cyríllum. Vita et mores eórum nonne in iis monuméntis, quæ nobis reliquérunt, quasi in spéculis quibúsdam elúcent? Nam ex abundántia cordis os lóquitur.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus, allelúja. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis, ix Lectio de Homilía Feriæ aut Vigíliæ, et fit ejus Commemoratio in Laudibus; alias}
+
+###### Lectio ix
+
+QUANTA, óbsecro, appáret in libris sanctórum patrum cum summa eruditióne conjúncta humílitas? Quanta sobríetas? Nihil ibi obscénum, nihil turpe, nihil súbdolum, nihil árrogans, nihil inflátum. Quam multis modis Spíritus Sanctus, qui eórum péctora inhabitábat, in páginis eórum se prodit? Quis légere potest atténte Cypriánum, qui non statim árdeat amóre martýrii? Quis in Augustíno diligénter versátus est qui non profundíssimam didícerit humilitátem? Quis Hierónymum sæpe evólvit, qui non virginitátem et jejúnium adamáre incípiat? Spirant scripta sanctórum religiónem, castitátem, integritátem, caritátem. Isti sunt ígitur Epíscopi et pastóres (ut verbis utar divi Augustíni) docti, graves, sancti, veritátis acérrimi defensóres, qui cathólicam fidem in lacte suxérunt, in cibo sumpsérunt: cujus lac et cibum parvis magnísque ministravérunt. Tálibus post Apóstolos sancta Ecclésia plantatóribus, rigatóribus, ædificatóribus, pastóribus, nutritóribus crevit.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.

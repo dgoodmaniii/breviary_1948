@@ -24620,4 +24620,24 @@ STANS autem Paulus in médio Areopági, ait: Viri Atheniénses, per ómnia quasi
 
 #### Lectio ii
 
-IN ipso enim vívimus, et movémur, et sumus: sicut et quidam vestrórum poëtárum dixérunt: Ipsíus enim et genus sumus. Genus ergo cum simus Dei, non debémus æstimáre auro, aut argénto, aut lápidi,
+IN ipso enim vívimus, et movémur, et sumus: sicut et quidam vestrórum poëtárum dixérunt: Ipsíus enim et genus sumus. Genus ergo cum simus Dei, non debémus æstimáre auro, aut argénto, aut lápidi, sculptúræ artis, et cogitatiónis hóminis, Divínum esse símile. Et témpora quidem hujus ignorántiæ despíciens Deus, nunc annúntiat homínibus ut omnes ubíque pœniténtiam agant, eo quod státuit diem, in quo judicatúrus est orbem in æquitáte, in Viro, in quo státuit, fidem præbens ómnibus, súscitans eum a mórtuis. Cum audíssent autem resurrectiónem mortuórum, quidam quidem irridébant, quidam vero dixérunt: Audiémus te de hoc íterum. Sic Paulus exívit de médio eórum.
+
+℟. Surgens Jesus Dóminus noster, stans in médio discipulórum suórum, dixit: \* Pax vobis, allelúja: gavísi sunt discípuli viso Dómino, allelúja. ℣. Una ergo sabbatórum, cum fores essent clausæ, ubi erant discípuli congregáti, venit Jesus, et stetit in médio eórum, et dixit eis. — Pax.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Pax.
+
+#### Lectio iii
+
+*Cap. 18, 1-4*
+
+QUIDAM vero viri adhæréntes ei, credidérunt: in quibus et Dionýsius areopagíta, et múlier nómine Dámaris, et álii cum eis. Post hæc egréssus ab Athénis, venit Corínthum: et invéniens quemdam Judǽum, nómine Aquilam, Pónticum génere, qui nuper vénerat ab Itália, et Priscíllam uxórem ejus (eo quod præcepísset Cláudius discédere omnes Judǽos a Roma), accéssit ad eos. Et quia ejúsdem erat artis, manébat apud eos, et operabátur: (erant enim scenofactóriæ artis). Et disputábat in synagóga per omne sábbatum, interpónens nomen Dómini Jesu, suadebátque Judǽis et Grǽcis.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Expurgáte vetus ferméntum, ut sitis nova conspérsio: étenim Pascha nostrum immolátus est Christus: \* Itaque epulémur in Dómino, allelúja. ℣. Mórtuus est propter delícta nostra, et resurréxit propter justificatiónem nostram. — Itaque. Glória Patri. Itaque.
+
+**Ad Bened. Ant.** Eúntes in mundum, \* docéte omnes gentes, baptizántes eos in nómine Patris, et Fílii, et Spíritus Sancti, allelúja.
+
+**Ad Magnif. Ant.** Mercenárius autem, \* cujus non sunt oves própriæ, videt lupum veniéntem, et dimíttit oves, et fugit; et lupus rapit et dispérgit oves, allelúja.

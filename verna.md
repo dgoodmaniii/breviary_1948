@@ -29975,4 +29975,28 @@ REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Lúcium Mártyre
 
 ℣. Glória et honóre coronásti eas, Dómine. ℟. Et constituísti eas super ópera mánuum tuárum.
 
-**Ant.** Istárum est enim \* regnum cælórum, quæ con-
+**Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio** *C 3*
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum Perpétuæ et Felicitátis palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre, humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### Ad Matutinum
+
+**Invit.** Laudémus Deum nostrum \* In confessióne beatárum Perpétuæ et Felicitátis. **Ps. 94** Veníte, exsultémus. 3
+
+{RUBRIC: In I Nocturno Lectiones} Confitébor, {RUBRIC: de Communi Virg. 2 loco. [145]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PERPETUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una cum Revocáto, Saturníno et Secúndulo comprehénsæ sunt et in tenebricósum cárcerem detrúsæ; quibus ultra adjúnctus est Sátyrus. Erant adhuc catechúmenæ, sed paulo post baptizátæ sunt. Paucis diébus interjéctis, e cárcere ad forum deductæ cum sóciis, post gloriósam confessiónem, ab Hilarióne procuratóre damnántur ad béstias. Inde hílares descéndunt ad cárcerem, ubi váriis visiónibus recreántur et ad martýrii palmam accendúntur. Perpétuam, nec patris sénio confécti iterátæ preces et lácrimæ, nec erga fílium infántem pendéntem ad úbera matérnus amor, nec supplícii atrócitas, a Christi fide dimovére umquam potuérunt.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+###### Lectio v
+
+FELICITAS vero, instánte spectáculi die, cum octo jam menses prægnans esset, in magno erat luctu, ne differrétur; leges quippe vetábant prægnántes supplício afféci. At précibus commártyrum acceleráto partu, eníxa est fíliam. Cumque in partu labórans doléret, ait illi quidam de custódibus: Quæ sic modo doles, quid fácies objécta béstiis? Cui illa: Modo ego pátior; illic autem álius erit in me, qui patiétur pro me, quia et ego pro illo passúra sum.

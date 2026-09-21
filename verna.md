@@ -19855,4 +19855,32 @@ QUOD ait Dóminus, Ego sum lux mundi: clarum puto esse eis, qui habent óculos, 
 
 #### Lectio ii
 
-SED cathólicæ Ecclésiæ recta fides ímprobat tale comméntum, et diabólicam doctrínam esse cognóscit: nec solum agnóscit credéndo, sed in quibus potest convíncit étiam disputándo. Improbémus ítaque hujúsmodi errórem, quem sancta ab
+SED cathólicæ Ecclésiæ recta fides ímprobat tale comméntum, et diabólicam doctrínam esse cognóscit: nec solum agnóscit credéndo, sed in quibus potest convíncit étiam disputándo. Improbémus ítaque hujúsmodi errórem, quem sancta ab inítio anathematizávit Ecclésia. Non arbitrémur Dóminum Jesum Christum hunc esse solem, quem vidémus oríri ab Oriénte, occídere in Occidénte: cujus cúrsui nox succédit, cujus rádii nube obumbrántur: qui certa de loco in locum motióne cómmigrat. Non est hoc Dóminus Christus. Non est Dóminus Christus sol factus, sed per quem sol factus est. Omnia enim per ipsum facta sunt, et sine ipso factum est nihil.
+
+℟. Ecce mitto Angelum meum, qui præcédat te, et custódiat semper: \* Obsérva et audi vocem meam, et inimícus ero inimícis tuis, et affligéntes te affligam: et præcédet te Angelus meus. ℣. Israël, si me audíeris, non erit in te deus recens, neque adorábis deum aliénum: ego enim Dóminus. — Obsérva.
+
+#### Lectio iii
+
+EST ergo lux, quæ fecit hanc lucem. Hanc amémus, hanc intellígere cupiámus, ipsam sitiámus, ut ad ipsam duce ipsa aliquándo veniámus: et in illa ita vivámus, ut numquam omníno moriámur. Ista enim lux est, de qua prophetía olim præmíssa ita in Psalmo cécinit: Quóniam apud te est fons vitæ, et in lúmine tuo vidébimus lumen. Advértite quid de tali luce antíquus sanctórum hóminum Dei sermo præmíserit. Hómines, inquit, et juménta salvos fácies, Dómine: sicut multiplicáta est misericórdia tua, Deus.
+
+℟. Atténdite, pópule meus, legem meam: \* Inclináte aurem vestram in verba oris mei. ℣. Apériam in parábolis os meum: loquar propositiónes ab inítio sǽculi. — Inclináte. Glória Patri. Inclináte.
+
+℣. Angelis suis, ut supra.
+
+**Ad Bened. Ant.** Qui séquitur me, \* non ámbulat in ténebris: sed habébit lumen vitæ, dicit Dóminus.
+
+#### Oratio
+
+FIAT, Dómine, quæsumus, per grátiam tuam fructuósus nostræ devotiónis afféctus: quia tunc nobis próderunt suscépta jejúnia, si tuæ sint plácita pietáti. Per Dóminum.
+
+---
+
+## Sabbato ante Dominicam Passionis
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sabbato, ut in Psalterio. 332}
+
+**Capit.** *Hebr. 6, 11-12*
+
+FRATRES: Christus assístens Póntifex futurórum bonórum, per ámplius

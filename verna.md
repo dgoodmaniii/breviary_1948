@@ -20599,3 +20599,67 @@ NUNC considerémus qui fúerint illi, qui, erróre detécto, de paradíso ejéct
 **Capitulum** *Philipp. 2, 5-7*
 
 FRATRES: Hoc enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo: sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+#### Hymnus
+
+LUSTRA sex qui jam perégit,
+Tempus implens córporis,
+Sponte líbera Redémptor
+Passióni déditus,
+Agnus in Crucis levátur
+Immolándus stípite.
+
+Felle potus ecce languet:
+Spina, clavi, láncea
+Mite corpus perforárunt:
+Unda manat, et cruor:
+Terra, pontus, astra, mundus,
+Quo lavántur flúmine!
+
+Crux fidélis, inter omnes
+Arbor una nóbilis:
+Silva talem nulla profert
+Fronde, flore, gérmine:
+Dulce ferrum, dulce lignum,
+Dulce pondus sústinent.
+
+Flecte ramos, arbor alta,
+Tensa laxa víscera,
+Et rigor lentéscat ille,
+Quem dedit natívitas;
+Et supérni membra Regis
+Tende miti stípite.
+
+Sola digna tu fuísti
+Ferre mundi víctimam;
+Atque portum præparáre
+Arca mundo náufrago,
+Quam sacer cruor perúnxit,
+Fusus Agni córpore.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas.
+
+Amen.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+**Ad Bened. Ant.** Turba multa, \* quæ convénerat ad diem festum, clamábat Dómino: Benedíctus qui venit in nómine Dómini: Hosánna in excélsis.
+
+#### Oratio
+
+OMNIPOTENS sempitérne Deus, qui humáno géneri, ad imitándum humilitátis exémplum, Salvatórem nostrum carnem súmere, et crucem subíre fecísti: concéde propítius; ut et patiéntiæ ipsíus habére documénta, et resurrectiónis consórtia mereámur. Per eúmdem Dóminum.
+
+### Ad Primam
+
+**Ant.** Púeri Hebræórum \* tolléntes ramos olivárum, obviavérunt Dómino clamántes et dicéntes: Hosánna in excélsis.
+
+### Ad Tertiam
+
+**Ant.** Púeri Hebræórum \* vestiménta prosternébant in via, et clamábant, dicéntes: Hosánna Fílio David: benedíctus qui venit in nómine Dómini.
+
+**Capitulum** Fratres, ut supra. 440

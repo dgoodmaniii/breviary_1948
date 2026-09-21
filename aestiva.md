@@ -10897,3 +10897,49 @@ Aperuérunt super me os suum, \* sicut leo rápiens et rúgiens.
 Sicut aqua effúsus sum: \* et dispérsa sunt ómnia ossa mea.
 
 Factum est cor meum tamquam cera liquéscens \* in médio ventris mei.
+
+Aruit tamquam testa virtus mea, et lingua mea adhæsit fáucibus meis: \* et in púlverem mortis deduxísti me.
+
+Quóniam circumdedérunt me canes multi: \* concílium malignántium obsédit me.
+
+Fodérunt manus meas et pedes meos: \* dinumeravérunt ómnia ossa mea.
+
+Ipsi vero consideravérunt et inspexérunt me: \* divisérunt sibi vestiménta mea, et super vestem meam misérunt sortem.
+
+Tu autem, Dómine, ne elongáveris auxílium tuum a me: \* ad defensiónem meam cónspice.
+
+Erue a frámea, Deus, ánimam meam: \* et de manu canis únicam meam:
+
+Salva me ex ore leónis: \* et a córnibus unicórnium humilitátem meam.
+
+Narrábo nomen tuum frátribus meis: \* in médio ecclésiæ laudábo te.
+
+### Psalmus 21, iii
+
+QUi timétis Dóminum, laudáte eum: \* univérsum semen Jacob, glorificáte eum.
+
+Tímeat eum omne semen Israël: \* quóniam non sprevit, neque despéxit deprecatiónem páuperis:
+
+Nec avértit fáciem suam a me: \* et cum clamárem ad eum, exaudívit me.
+
+Apud te laus mea in ecclésia magna: \* vota mea reddam in conspéctu timéntium eum.
+
+Edent páuperes, et saturabúntur: et laudábunt Dóminum qui requírunt eum: \* vivent corda eórum in sæculum sæculi.
+
+Reminiscéntur et converténtur ad Dóminum \* univérsi fines terræ:
+
+Et adorábunt in conspéctu ejus \* univérsæ famíliæ géntium.
+
+Quóniam Dómini est regnum: \* et ipse dominábitur géntium.
+
+Manducavérunt et adoravérunt omnes pingues terræ: \* in conspéctu ejus cadent omnes qui descéndunt in terram.
+
+Et ánima mea illi vivet: \* et semen meum sérviet ipsi.
+
+Annuntiábitur Dómino generátio ventúra: \* et annuntiábunt cæli justítiam ejus pópulo qui nascétur, quem fecit Dóminus.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fúerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 98, qui in Laudibus locum non hábuit.}
+
+### Psalmus 98
+
+DOminus regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.

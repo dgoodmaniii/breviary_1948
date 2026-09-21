@@ -25074,4 +25074,28 @@ ET in conspéctu sedis tamquam mare vítreum símile crystállo: et in médio se
 
 #### Lectio iii
 
-ET, cum darent illa animália glóriam, et honórem, et benedictiónem
+ET, cum darent illa animália glóriam, et honórem, et benedictiónem sedénti super thronum, vivénti in sǽcula sæculórum, procidébant vigínti quátuor senióres ante sedéntem in throno, et adorábant vivéntem in sǽcula sæculórum, et mittébant corónas suas ante thronum dicéntes: Dignus es, Dómine, Deus noster, accípere glóriam, et honórem, et virtútem: quia tu creásti ómnia, et propter voluntátem tuam erant, et creáta sunt.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Véniens a Líbano quam pulchra facta est, allelúja: \* Et odor vestimentórum ejus super ómnia arómata, allelúja, allelúja. ℣. Favus distíllans lábia ejus, mel et lac sub lingua ejus. — Et. Glória Patri. Et.
+
+**Ad Bened. Ant.** Et coegérunt illum, \* dicéntes: Mane nobíscum, Dómine, quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Tristítia implévit \* cor vestrum: et gáudium vestrum nemo tollet a vobis, allelúja, allelúja.
+
+---
+
+## Feria Quarta
+
+De libro Apocalýpsis beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 5, 1-14*
+
+ET vidi in déxtera sedéntis supra thronum, librum scriptum intus et foris, signátum sigíllis septem. Et vidi Angelum fortem, prædicántem voce magna: Quis est dignus aperíre librum, et sólvere signácula ejus? Et nemo póterat neque in cælo, neque in terra, neque subtus terram aperíre librum, neque respícere illum. Et ego flebam multum, quóniam nemo dignus invéntus est aperíre librum, nec vidére eum. Et unus de senióribus dixit mihi: Ne fléveris: ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus. Et vidi: et ecce in médio throni et quátuor animálium, et in médio seniórum, Agnum stantem tamquam occísum, habéntem córnua septem, et óculos septem: qui sunt septem spíritus Dei, missi in omnem terram. Et venit, et accépit de déxtera sedéntis in throno librum.
+
+℟. Platéæ tuæ, Jerúsalem, sternéntur auro mundo, allelúja: et cantábitur in te cánticum lætítiæ,

@@ -345,3 +345,55 @@ Orémus.
 {RUBRIC: Si Laudes extra Chorum separéntur a Matutíno, ante eas dícitur secréto Pater noster et Ave María; secus absolúte incipiúntur, ut séquitur:}
 
 ℣. Deus, in adjutórium.
+
+{RUBRIC: Deinde, sub congruentibus Antiphonis, dicuntur Psalmi et Cánticum, prouti Officium occurrens requirit.}
+
+{RUBRIC: Repetita vero post ultimum Psalmum Antiphona, dicuntur Capitulum, Hymnus et Versus, prouti Officium occurrens exigit.}
+
+#### In Officio dominicali
+
+{RUBRIC: In ómnibus Domínicis, extra Octávas Ssmi Córporis Christi ac Sacratíssimi Cordis Jesu, Capítulum, Hymnus et Versus ut in Psaltério.}
+
+#### In Officio feriali
+
+{RUBRIC: In ómnibus Fériis, Capítulum, Hymnus et Versus de Feria curránti, ut in Psaltério.}
+
+{RUBRIC: Recitáto Versu, dícitur cum Antíphona convenienti sequens}
+
+##### Canticum Zachariæ
+
+*Luc. 1, 68-79*
+
+BENEDICTUS † Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a sæculo sunt, Prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+Glória Patri, et Fílio, \* et Spirítui Sancto.
+
+Sicut erat in princípio, et nunc, et semper, \* et in sæcula sæculórum. Amen.
+
+{RUBRIC: ¶ Hic Versus Glória Patri dicitur in fine omnium Canticorum, nisi aliter adnotetur.}
+
+{RUBRIC: Expleto Cantico ac repetita Antiphona, si Preces non fuerint recitandæ, statim dicitur Versus Dóminus vobíscum cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}
+
+{RUBRIC: In omnibus vero Vigiliis, si fiat Officium de Vigilia currenti, post repetitam ad Benedictus Antiphonam dicuntur flexis genibus sequentes Pre-

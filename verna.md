@@ -25941,3 +25941,41 @@ NAM si ille tam sanctus, et qui regni erat necessitátibus occupátus, sépties 
 ℟. Narrábo nomen tuum frátribus meis, allelúja: \* In médio Ecclésiæ laudábo te, allelúja, allelúja. ℣. Confitébor tibi in pópulis, Dómine, et psalmum dicam tibi in géntibus. — In. Glória Patri. In.
 
 {RUBRIC: Hac nocte non dicitur Hymnus} Te Deum laudámus.
+
+## Ad Laudes
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+**Ad Bened. Ant.** Pétite, et accipiétis: \* quǽrite, et inveniétis: pulsáte, et aperiétur vobis, allelúja.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui in afflictióne nostra de tua pietáte confídimus: contra advérsa ómnia, tua semper protectióne muniámur. Per Dóminum.
+
+{RUBRIC: Hæc Orátio dícitur, hódie tantum, ad Laudes et per Horas; ad Vésperas autem hujus Fériæ et ad omnes Horas in duábus Fériis sequéntibus, dícitur Orátio Domínicæ præcedéntis: Deus, a quo bona, ut infra.}
+
+{RUBRIC: Hoc tríduo qui non intersunt Processióni Rogatiónum, privátim post Laudes dicant Litánias cum suis Précibus et Oratiónibus [258] sine Psalmis Pœnitentiálibus.}
+
+## Ad Vesperas
+
+**Ad Magnif. Ant.** Ipse enim Pater amat \* vos, quia vos me amástis, et credidístis, allelúja.
+
+#### Oratio
+
+DEUS, a quo bona cuncta procédunt, largíre supplícibus tuis: ut cogitémus, te inspiránte, quæ recta sunt; et, te gubernánte, eádem faciámus. Per Dóminum.
+
+{RUBRIC: Si Vésperæ fúerint de áliquo Festo, non fit Commemorátio Fériæ.}
+
+---
+
+## Feria Tertia in Rogationibus
+
+{RUBRIC: Si Lectiónes hujus Fériæ sua die dici non potúerint, et in Féria II aut IV Rogatiónum fíeri contíngat Offícium, in quo Lectiónes de Scriptúra occurrénti sunt dicéndæ, neque in eo reponéndum fúerit Inítium Epístolæ in Domínica præcedénti assignátum aut anticipándum sit Inítium in Féria VI sequénti impedítum, Lectiónes ipsæ anticipántur vel transferúntur, ita ut in Offício in Rogatiónibus occurrénti Lectiónes de Scriptúra semper váleant adhibéri. Quod ítem servátur de Lectiónibus Sábbati ut supra impedítis, quæ simíliter in casu anticipántur, serváto órdine Lectiónum infra hebdómadam. Responsória tamen non anticipántur nec transferúntur, sed semper adhibéntur de Féria aut de die infra Octávam currenti.}
+
+De Epístola prima beáti Petri Apóstoli
+
+#### Lectio i
+
+*Cap. 4, 1-17*
+
+CHRISTO ígitur passo in carne, et vos eádem cogitatióne armámini: quia qui passus est in carne, désiit a peccátis:

@@ -14813,3 +14813,21 @@ Quare oblítus es mei? \* et quare contristátus incédo, dum afflígit me inim�
 Dum confringúntur ossa mea, \* exprobravérunt mihi qui tríbulant me inimíci mei.
 
 Dum dicunt mihi per síngulos dies: Ubi est Deus tuus? \* quare tristis es, ánima mea? et quare contúrbas me?
+
+**Ant.** In voce exsultatiónis résonent epulántes in mensa Dómini.
+
+℣. Cibávit illos ex ádipe fruménti, allelúja. ℟. Et de petra, melle saturávit eos, allelúja.
+
+{RUBRIC: Sermo sancti Thomæ Aquinátis}
+
+*Opusculum 57*
+
+##### Lectio iv
+
+IMménsa divínæ largitátis benefícia, exhíbita pópulo christiáno, inæstimábilem ei cónferunt dignitátem. Neque enim est, aut fuit aliquándo tam grandis nátio, quæ hábeat deos appropinquántes sibi, sicut adest nobis Deus noster. Unigénitus síquidem Dei Fílius, suæ divinitátis volens nos esse partícipes, natúram nostram assúmpsit, ut hómines deos fáceret factus homo. Et hoc ínsuper, quod de nostro assúmpsit, totum nobis cóntulit ad salútem. Corpus namque suum pro nostra reconciliatióne in ara crucis hóstiam óbtulit Deo Patri, sánguinem suum fudit in prétium simul et lavácrum; ut redémpti a miserábili servitúte, a peccátis ómnibus mandarémur. Ut autem tanti benefícii jugis in nobis manéret memória, corpus suum in cibum, et sánguinem suum in potum, sub spécie panis et vini suméndum fidélibus dereliquit.
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite.
+
+##### Lectio v
+
+O Pretiósum et admirándum convívium, salutíferum et omni suavitáte replétum! Quid enim hoc convívio pretiósius esse potest? in quo non carnes vitulórum et hircórum, ut olim in lege, sed nobis Christus suméndus propónitur verus Deus. Quid hoc Sacraménto mirabílius? In ipso namque panis et vinum in Christi corpus et sánguinem substantiáliter convertúntur; ideóque Christus, Deus et homo perféctus, sub módici panis et vini spécie continétur. Manducátur ítaque a fidélibus, sed mínime lacerátur; quinímmo, divíso Sacraménto, sub

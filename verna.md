@@ -31697,4 +31697,55 @@ CHRISTUS Dei virtus et dícitur et est, qui forti armáto, qui suum átrium in p
 
 {RUBRIC: Psalmi de Domin. 1 loco. 49}
 
-**2** Ait autem Angelus: \* Ne tímeas, Zacharía, quó-
+**2** Ait autem Angelus: \* Ne tímeas, Zacharía, quóniam exaudíta est deprecátio tua.
+
+**3** Ego sum Gábriel \* Angelus, qui asto ante Deum, et missus sum loqui ad te.
+
+**4** Gábriel Angelus \* locútus est Maríæ, dicens: Ecce concípies in útero, et páries fílium, et vocábis nomen ejus Jesum.
+
+**5** Dixit autem María \* ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Gábriel Angelus, dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi.
+
+###### Capitulum
+
+*Dan. 9, 21-22*
+
+ECCE vir Gábriel, quem víderam in visióne a princípio, cito volans, tétigit me in témpore sacrifícii vespertíni. Et dócuit me, et locútus est mihi, dixítque: Dániel, nunc egréssus sum ut docérem te, et intellígeres.
+
+###### Hymnus
+
+PLACARE, Christe, sérvulis,
+Quibus Patris cleméntiam
+Tuæ ad tribúnal grátiæ
+Patróna Virgo póstulat.
+
+Nobis adésto, Archángele,
+Robur Dei qui dénotas:
+Vires adáuge lánguidis,
+Confer levámen trístibus.
+
+Et vos, beáta per novem
+Distíncta gyros ágmina,
+Antíqua cum præséntibus,
+Futúra damna péllite.
+
+Auférte gentem pérfidam
+Credéntium de fínibus,
+Ut unus omnes únicum
+Ovíle nos pastor regat.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Deo Patri sit glória,
+Qui, quos redémit Fílius,
+Et Sanctus unxit Spíritus,
+Per Angelos custódiat. Amen.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+**Ad Bened. Ant.** Gábriel Angelus \* descéndit ad Zacharíam, et ait illi: Uxor tua páriet tibi fílium, et vocábis nomen ejus Joánnem, et multi in nativitáte ejus gaudébunt: ipse enim præíbit ante fáciem Dómini paráre vias ejus.
+
+###### Oratio
+
+DEUS, qui inter céteros Angelos, ad annuntiándum incarnatiónis tuæ mystérium, Gabriélem Archángelum elegísti: concéde propítius; ut qui festum ejus celebrámus in terris, ipsíus patrocínium sentiámus in cælis: Qui vivis.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}

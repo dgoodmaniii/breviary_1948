@@ -10411,3 +10411,55 @@ Et perdes omnes, qui tríbulant ánimam meam: \* quóniam ego servus tuus sum.
 **Ant.** Eripe me de inimícis meis, Dómine, ad te confúgi.
 
 **Ant.** Benedixísti, \* † Dómine, terram tuam: remisísti iniquitátem plebis tuæ.
+
+### Psalmus 84
+
+BEnedixísti, † Dómine, terram tuam: \* avertísti captivitátem Jacob.
+
+Remisísti iniquitátem plebis tuæ: \* operuísti ómnia peccáta eórum.
+
+Mitigásti omnem iram tuam: \* avertísti ab ira indignatiónis tuæ.
+
+Convérte nos, Deus, salutáris noster: \* et avérte iram tuam a nobis.
+
+Numquid in ætérnum irascéris nobis? \* aut exténdes iram tuam a generatióne in generatiónem?
+
+Deus, tu convérsus vivificábis nos: \* et plebs tua lætábitur in te.
+
+Osténde nobis, Dómine, misericórdiam tuam: \* et salutáre tuum da nobis.
+
+Audiam quid loquátur in me Dóminus Deus: \* quóniam loquétur pacem in plebem suam.
+
+Et super sanctos suos: \* et in eos, qui convertúntur ad cor.
+
+Verúmtamen prope timéntibus eum salutáre ipsíus: \* ut inhábitet glória in terra nostra.
+
+Misericórdia, et véritas obviavérunt sibi: \* justítia, et pax osculátæ sunt.
+
+Véritas de terra orta est: \* et justítia de cælo prospéxit.
+
+Etenim Dóminus dabit benignitátem: \* et terra nostra dabit fructum suum.
+
+Justítia ante eum ambulábit: \* et ponet in via gressus suos.
+
+**Ant.** Benedixísti, Dómine, terram tuam: remisísti iniquitátem plebis tuæ.
+
+**Ant.** In Dómino justificábitur, \* et laudábitur omne semen Israël.
+
+#### Canticum Isaiæ
+
+*Is. 45, 15-26*
+
+VEre tu es Deus abscónditus, \* Deus Israël, Salvátor.
+
+Confúsi sunt, et erubuérunt omnes: \* simul abiérunt in confusiónem fabricatóres errórum.
+
+Israël salvátus est in Dómino salúte ætérna: \* non confundémini, et non erubescétis usque in sæculum sæculi.
+
+Quia hæc dicit Dóminus creans cælos, \* ipse Deus formans terram, et fáciens eam, ipse plastes ejus:
+
+Non in vanum creávit eam, ut habitarétur formávit eam: \* Ego Dóminus, et non est álius.
+
+Non in abscóndito locútus sum, \* in loco terræ tenebróso:
+
+Non dixi sémini Jacob frustra: Quærite me: \*

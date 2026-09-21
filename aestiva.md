@@ -17388,4 +17388,26 @@ ET pepércit Saul et pópulus Agag et óptimis grégibus óvium et armentórum e
 
 SEvéra ubi tuta fírmaque infírmis secúritas et réquies, nisi in vulnéribus Salvatóris? Tanto illic secúrior hábito, quanto ille poténtior est ad salvándum. Fremit mundus, premit corpus, diábolus insidiátur: non cado; fundátus enim sum supra firmam petram. Peccávi peccátum grande: turbábitur consciéntia, sed non perturbábitur, quóniam vúlnerum Dómini recordábor. Nempe vulnerátus est propter iniquitátes nostras. Quid tam ad mortem, quod non Christi morte solvátur? Si ergo in mentem vénerit tam potens tamque éfficax medicaméntum, nulla jam possum morbi malignitáte terréri.
 
-℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dómi-
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dóminus, pátiens et multum miséricors. — Omnibus.
+
+##### Lectio v
+
+EGO vero fidénter quod ex me mihi deest, usúrpo mihi ex viscéribus Dómini, quóniam misericórdiæ áffluunt; nec desunt forámina, per quæ éffluant. Fodérunt manus ejus et pedes, latúsque láncea foravérunt; et per has rimas licet mihi súgere mel de petra, oleúmque de saxo duríssimo; id est gustáre et vidére quóniam suávis est Dóminus. Cogitábat cogitatiónes pacis, et ego nesciébam. Quis enim cognóvit sensum Dómini? aut quis consiliárius ejus fuit? At clavis réserans, clavus pénetrans factus est mihi ut vídeam voluntátem Dómini. Quidni vídeam per forámen? Clamat clavus, clamat vulnus, quod vere Deus sit in Christo mundum reconcílians sibi.
+
+℟. Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus \* Et revelásti ea párvulis. ℣. Ita, Pater, quóniam sic fuit plácitum ante te. — Et.
+
+##### Lectio vi
+
+FErrum pertránsiit ánimam ejus, et appropinquávit Cor illíus, ut non jam non sciat compáti infirmitátibus meis. Patet arcánum Cordis per forámina córporis; patet magnum illud pietátis sacraméntum, patent víscera misericórdiæ Dei nostri, in quibus visitávit nos Oriens ex alto. Quidni víscera per vúlnera páteant? In quo enim clárius quam in vulnéribus tuis eluxísset, quod tu, Dómine, suávis et mitis, et multæ misericórdiæ? Majórem enim miseratiónem nemo habet, quam ut ánimam suam ponat quis pro addíctis morti et damnátis. Meum proínde méritum, miserátio Dómini. Non plane sum mériti inops, quámdiu ille miseratiónum non fúerit. Et si misericórdiæ Dómini ab ætérno et usque in ætérnum, ego quoque misericórdias Dómini in ætérnum cantábo.
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum quóniam magnus es tu, et fáciens mirabília. — Et. Glória Patri. Et.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 19, 31-37*
+
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent

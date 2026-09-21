@@ -24178,4 +24178,32 @@ STANS autem Petrus cum úndecim, levávit vocem suam, et locútus est eis: Viri 
 
 #### Lectio iii
 
-VIRI Israëlítæ, audíte verba hæc: Jesum Nazarénum, virum approbátum a Deo in vobis, virtútibus, et prodígiis, et signis, quæ fecit Deus per illum in médio vestri, sicut et vos scitis: hunc definíto consílio et præsciéntia Dei tráditum, per manus iniquórum affligéntes interemístis: quem Deus suscitávit, solútis dolóribus inférni, juxta quod impossíbile erat tenéri illum ab eo. David enim dicit in eum: Providébam Dóminum in conspéctu meo semper: quóniam a dextris est mihi ne commóvear: Propter hoc lætátum est cor meum, et exsultávit lingua mea, ínsuper et caro mea requiéscet in spe: Quóniam
+VIRI Israëlítæ, audíte verba hæc: Jesum Nazarénum, virum approbátum a Deo in vobis, virtútibus, et prodígiis, et signis, quæ fecit Deus per illum in médio vestri, sicut et vos scitis: hunc definíto consílio et præsciéntia Dei tráditum, per manus iniquórum affligéntes interemístis: quem Deus suscitávit, solútis dolóribus inférni, juxta quod impossíbile erat tenéri illum ab eo. David enim dicit in eum: Providébam Dóminum in conspéctu meo semper: quóniam a dextris est mihi ne commóvear: Propter hoc lætátum est cor meum, et exsultávit lingua mea, ínsuper et caro mea requiéscet in spe: Quóniam non derelínques ánimam meam in inférno, nec dabis Sanctum tuum vidére corruptiónem.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Expurgáte vetus ferméntum, ut sitis nova conspérsio: étenim Pascha nostrum immolátus est Christus: \* Itaque epulémur in Dómino, allelúja. ℣. Mórtuus est propter delícta nostra, et resurréxit propter justificatiónem nostram. — Itaque. Glória Patri. Itaque.
+
+**Ad Bened. Ant.** Præcédam vos \* in Galilǽam, ibi me vidébitis, sicut dixi vobis, allelúja, allelúja.
+
+**Ad Magnif. Ant.** Mitte manum tuam, \* et cognósce loca clavórum, allelúja: et noli esse incrédulus, sed fidélis, allelúja.
+
+---
+
+## Feria Quarta
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 3, 1-16*
+
+PETRUS autem et Joánnes ascendébant in templum ad horam oratiónis nonam. Et quidam vir, qui erat claudus ex útero matris suæ, bajulabátur; quem ponébant quotídie ad portam templi, quæ dícitur Speciósa, ut péteret eleemósynam ab introeúntibus in templum. Is, cum vidísset Petrum et Joánnem incipiéntes introíre in templum, rogábat ut eleemósynam accíperet. Intuens autem in eum Petrus cum Joánne, dixit: Réspice in nos. At ille intendébat in eos, sperans se áliquid acceptúrum ab eis. Petrus autem dixit: Argéntum et aurum non est mihi: quod autem hábeo, hoc tibi do: In nómine Jesu Christi Nazaréni surge, et ámbula.
+
+℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mórtuus est peccáto, mórtuus est semel: \* Quod autem vivit, vivit Deo, allelúja, allelúja. ℣. Mórtuus est semel propter delícta nostra, et resurréxit propter justificatiónem nostram. — Quod.
+
+#### Lectio ii
+
+ET, apprehénsa manu ejus déxtera, allevávit eum, et prótinus consolidátæ sunt bases ejus et plantæ. Et exsíliens stetit, et ambulábat; et intrávit cum illis in templum ambulans, et exsíliens, et laudans Deum. Et vidit omnis pópulus eum ambulántem, et laudántem Deum. Cognoscébant autem illum, quod ipse erat,

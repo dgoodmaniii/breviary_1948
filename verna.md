@@ -36991,4 +36991,38 @@ Recordátus est quóniam pulvis sumus: \* homo, sicut fœnum dies ejus, tamquam 
 
 Quóniam spíritus pertransíbit in illo, et non subsístet: \* et non cognóscet ámplius locum suum.
 
-Misericórdia autem Dómini ab ætérno, \* et usque
+Misericórdia autem Dómini ab ætérno, \* et usque in ætérnum super timéntes eum.
+
+Et justítia illíus in fílios filiórum, \* his qui servant testaméntum ejus:
+
+Et mémores sunt mandatórum ipsíus, \* ad faciéndum ea.
+
+Dóminus in cælo parávit sedem suam: \* et regnum ipsíus ómnibus dominábitur.
+
+Benedícite Dómino, omnes Angeli ejus: \* poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+Benedícite Dómino, omnes virtútes ejus: \* minístri ejus, qui fácitis voluntátem ejus.
+
+Benedícite Dómino, ómnia ópera ejus: \* in omni loco dominatiónis ejus, bénedic, ánima mea, Dómino.
+
+**Ant.** Angelus Archángelus Míchaël, Dei núntius pro animábus justis, allelúja, allelúja.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus, allelúja. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo, allelúja.
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 18, 1-10*
+
+IN illo témpore: Accessérunt discípuli ad Jesum, dicéntes: Quis, putas, major est in regno cælórum? Et réliqua.
+
+Homilía sancti Hilárii Epíscopi
+
+{RUBRIC: Comment. in Matth. can. 18}
+
+NONNISI revérsos in natúram puerórum introíre regnum cælórum Dóminus docet: id est, per simplicitátem puerílem vítia córporum nostrórum animæque revocánda. Púeros autem, credéntes omnes per audiéntiæ fidem nuncupávit. Hi enim patrem sequúntur, matrem amant, próximo velle malum nésciunt, curam opum négligunt; non insoléscunt, non odérunt, non mentiúntur, dictis credunt, et quod áudiunt, verum habent. Reverténdum ígitur est ad simplicitátem infántium; quia, in ea collocáti, spéciem humilitátis Domínicæ circumferémus.
+
+℟. In conspéctu géntium nolíte timére; vos enim in córdibus vestris adoráte et timéte Dóminum; \* Angelus enim ejus vobíscum est, allelúja. ℣. Stetit Angelus juxta aram templi, habens thuríbulum áureum in manu sua. — Angelus.
+
+**Bened.** Quorum festum.
+
+{RUBRIC: Si dicénda sit ix Lectio alicújus Officii commemoráti, ex viii et ix Lectióne fit una.}

@@ -39621,3 +39621,51 @@ IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni habíti sunt p
 {RUBRIC: Completorium de Dominica.}
 
 ---
+
+## Tempore Paschali
+
+##### In I Vesperis
+
+**T. P. Ant.** Sancti tui, \* Dómine, florébunt sicut lílium, allelúja: et sicut odor bálsami erunt ante te, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Hoc est præcéptum meum, \* ut diligátis ínvicem, sicut diléxi vos.
+
+###### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**T. P. Ant.** Sancti tui, Dómine, florébunt sicut lílium, allelúja: et sicut odor bálsami erunt ante te, allelúja.
+
+**Ant.** In cæléstibus regnis \* Sanctórum habitátio est, allelúja: et in ætérnum réquies eórum, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Hoc est præcéptum meum, ut diligátis ínvicem, sicut diléxi vos.
+
+**Ant.** Majórem caritátem \* nemo habet, ut ánimam suam ponat quis pro amícis suis.
+
+###### Psalmus 110
+
+CONFITEBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.

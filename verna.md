@@ -25184,4 +25184,30 @@ ET audívi quasi vocem turbæ magnæ, et sicut vocem aquárum multárum, et sicu
 
 #### Lectio iii
 
-ET vidi cælum apértum, et ecce equus albus, et qui sedébat super eum, vocabátur Fidélis, et Verax, et cum justítia júdicat, et pugnat. Oculi autem ejus sicut flamma ignis, et in cápite ejus diadémata multa, habens nomen scriptum, quod nemo novit nisi ipse. Et vestítus erat veste aspérsa sánguine: et vocátur nomen ejus, Verbum Dei. Et exércitus qui sunt in cælo, sequebántur eum in equis albis, vestíti býssino albo et mundo. Et
+ET vidi cælum apértum, et ecce equus albus, et qui sedébat super eum, vocabátur Fidélis, et Verax, et cum justítia júdicat, et pugnat. Oculi autem ejus sicut flamma ignis, et in cápite ejus diadémata multa, habens nomen scriptum, quod nemo novit nisi ipse. Et vestítus erat veste aspérsa sánguine: et vocátur nomen ejus, Verbum Dei. Et exércitus qui sunt in cælo, sequebántur eum in equis albis, vestíti býssino albo et mundo. Et de ore ejus procédit gládius ex utráque parte acútus: ut in ipso percútiat gentes. Et ipse reget eas in virga férrea: et ipse calcat tórcular vini furóris iræ Dei omnipoténtis. Et habet in vestiménto et in fémore suo scriptum: Rex regum, et Dóminus dominántium.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Véniens a Líbano quam pulchra facta est, allelúja: \* Et odor vestimentórum ejus super ómnia arómata, allelúja, allelúja. ℣. Favus distíllans lábia ejus, mel et lac sub lingua ejus. — Et. Glória Patri. Et.
+
+**Ad Bened. Ant.** Cognovérunt \* Dóminum Jesum, allelúja, in fractióne panis, allelúja.
+
+---
+
+## Sabbato
+
+De libro Apocalýpsis beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 22, 1-21*
+
+ET osténdit mihi flúvium aquæ vitæ, spléndidum tamquam crystállum, procedéntem de sede Dei et Agni. In médio platéæ ejus, et ex utráque parte flúminis lignum vitæ, áfferens fructus duódecim, per menses síngulos reddens fructum suum, et fólia ligni ad sanitátem géntium. Et omne maledíctum non erit ámplius: sed sedes Dei et Agni in illa erunt, et servi ejus sérvient illi. Et vidébunt fáciem ejus: et nomen ejus in fróntibus eórum. Et nox ultra non erit: et non egébunt lúmine lucérnæ, neque lúmine solis, quóniam Dóminus Deus illuminábit illos, et regnábunt in sǽcula sæculórum. Et dixit mihi: Hæc verba fidelíssima sunt et vera. Et Dóminus Deus spirítuum prophetárum misit Angelum suum osténdere servis suis quæ opórtet fíeri cito: Et ecce vénio velóciter. Beátus, qui custódit verba prophetíæ libri hujus.
+
+℟. Decantábat pópulus Israël, allelúja, et univérsa multitúdo Jacob canébat legítime: \* Et David cum cantóribus cítharam percutiébat in domo Dómini, et laudes Deo canébat, allelúja, allelúja. ℣. Sanctificáti sunt ergo sacerdótes et levítæ: et univérsus Israël deducébat arcam fœderis Dómini in júbilo. — Et.
+
+#### Lectio ii
+
+ET ego Joánnes, qui audívi et vidi hæc. Et, postquam audíssem et vi-

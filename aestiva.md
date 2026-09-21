@@ -18226,4 +18226,24 @@ ET rex David senúerat habebátque ætátis plúrimos dies: cumque operirétur v
 
 ##### Lectio ii
 
-ADonías autem, fílius Haggith, elevabátur dicens: Ego regnábo. Fe-
+ADonías autem, fílius Haggith, elevabátur dicens: Ego regnábo. Fecitque sibi currus et équites et quinquagínta viros, qui cúrrerent ante eum. Nec corrípuit eum pater suus aliquándo dicens: Quare hoc fecísti? Erat autem et ipse pulcher valde, secúndus natu post Absalom. Et sermo ei cum Joab fílio Sárviæ et cum Abíathar sacerdóte, qui adjuvábant partes Adoníæ. Sadoc vero sacérdos et Banájas fílius Jójadæ et Nathan Prophéta et Sémei et Rei et robur exércitus David non erat cum Adonía.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+##### Lectio iii
+
+*Cap. 1, 11-15*
+
+DIxit ítaque Nathan ad Bethsabée, matrem Salomónis: Num audísti quod regnáverit Adonías, fílius Haggith, et dóminus noster David hoc ignórat? Nunc ergo veni, áccipe consílium a me et salva ánimam tuam filiíque tui Salomónis. Vade et ingrédere ad regem David et dic ei: Nonne tu, dómine mi rex, jurásti mihi ancíllæ tuæ dicens: Sálomon fílius tuus regnábit post me et ipse sedébit in sólio meo? Quare ergo regnat Adonías? Et, adhuc ibi te loquénte cum rege, ego véniam post te et complébo sermónes tuos. Ingréssa est ítaque Bethsabée ad regem in cubículum.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+#### In II Nocturno
+
+{RUBRIC: Ex Epístola sancti Hierónymi Presbýteri ad Nepotiánum}
+
+##### Lectio iv
+
+*Epist. 2 tom. 1*
+
+DAvid annos natus septuagínta, bellicósus quondam vir, senectúte frigescénte, non póterat calefíeri. Quǽritur ítaque puélla de univérsis fínibus Israël Abísag Sunamítis, quæ cum rege dormíret, et seníle corpus calefáceret. Quæ est ista Sunamítis, uxor et virgo, tam fervens, ut frígidum calefáceret; tam sancta, ut caléntem ad libídinem non provocáret? Expónat sapientíssimus Sálomon

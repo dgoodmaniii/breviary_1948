@@ -21761,3 +21761,43 @@ Educ de custódia ánimam meam ad confiténdum nómini tuo: \* me exspéctant ju
 ### Feria V in Cœna Domini
 
 **Ad Magnif. Ant.** Cœnántibus autem illis, \* accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis.
+
+### Feria VI in Parasceve
+
+**Ad Magnif. Ant.** Cum accepísset acétum, \* dixit: Consummátum est: et inclináto cápite, emísit spíritum.
+
+##### Canticum B. Mariæ Virg.
+
+*Luc. 1, 46-55*
+
+MAGNIFICAT \* ánima mea Dóminum:
+
+Et exsultávit spíritus meus \* in Deo, salutári meo.
+
+Quia respéxit humilitátem ancíllæ suæ: \* ecce enim ex hoc beátam me dicent omnes generatiónes.
+
+Quia fecit mihi magna qui potens est: \* et sanctum nomen ejus.
+
+Et misericórdia ejus a progénie in progénies \* timéntibus eum.
+
+Fecit poténtiam in bráchio suo: \* dispérsit supérbos mente cordis sui.
+
+Depósuit poténtes de sede, \* et exaltávit húmiles.
+
+Esuriéntes implévit bonis: \* et dívites dimísit inánes.
+
+Suscépit Israël, púerum suum, \* recordátus misericórdiæ suæ.
+
+Sicut locútus est ad patres nostros, \* Abraham, et sémini ejus in sǽcula.
+
+{RUBRIC: †}
+
+{RUBRIC: Repetitur Antiphona, ut supra.}
+
+**Ant.** Christus factus est {RUBRIC: cum relíquis, ut supra. 465}
+
+#### Ad Completorium
+
+{RUBRIC: Non dícitur Jube, domne, nec Lectio brevis, nec Adjutórium, neque Orátio Domínica: sed, facta Confessióne et Absolutióne, statim inchoántur Psalmi, qui erunt de Dominica ut in Psaltério 76, et post Psalmos immediáte dícitur Nunc dimíttis, deinde Antíphona Christus factus est cum relíquis, ut supra ad Laudes. 465}
+
+---

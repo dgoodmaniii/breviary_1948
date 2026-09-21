@@ -47096,3 +47096,53 @@ Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super om
 Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
 
 Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.
+
+**Ant.** Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. (T. P. Allelúja.)
+
+**Ant.** Adjuvábit eam \* Deus vultu suo: Deus in médio ejus, non commovébitur. (T. P. Allelúja.)
+
+###### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit pródigia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Adjuvábit eam Deus vultu suo: Deus in médio ejus, non commovébitur. (T. P. Allelúja.)
+
+**Ant.** Sicut lætántium \* ómnium nostrum habitátio est in te, sancta Dei Génitrix. (T. P. Allelúja.)
+
+###### Psalmus 86
+
+FUNDAMENTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Sicut lætántium ómnium nostrum habitátio est in te, sancta Dei Génitrix. (T. P. Allelúja.)

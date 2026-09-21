@@ -17450,4 +17450,26 @@ DIxítque Dóminus ad Samuélem: Usquequo tu luges Saul, cum ego projécerim eum
 
 ##### Lectio ii
 
-FEcit ergo Sámuel sicut locútus est ei Dóminus, venítque in Béthlehem, et admiráti sunt senióres civitátis occurréntes ei dixerúntque: Pacifícusne est ingréssus tuus? Et ait: Pacíficus: ad immolándum Dómino veni: sanctificámini et veníte
+FEcit ergo Sámuel sicut locútus est ei Dóminus, venítque in Béthlehem, et admiráti sunt senióres civitátis occurréntes ei dixerúntque: Pacifícusne est ingréssus tuus? Et ait: Pacíficus: ad immolándum Dómino veni: sanctificámini et veníte mecum ut immolem. Sanctificávit ergo Isai et fílios ejus et vocávit eos ad sacrifícium. Cumque ingréssi essent, vidit Elíab et ait: Num coram Dómino est Christus ejus? Et dixit Dóminus ad Samuélem: Ne respícias vultum ejus neque altitúdinem statúræ ejus, quóniam abjéci eum, nec juxta intúitum hóminis ego júdico; homo enim videt ea quæ parent, Dóminus autem intuétur cor.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+ET vocávit Isai Abínadab et addúxit eum coram Samuéle. Qui dixit: Nec hunc elégit Dóminus. Addúxit autem Isai Samma, de quo ait: Etiam hunc non elégit Dóminus. Addúxit ítaque Isai septem fílios suos coram Samuéle, et ait Sámuel ad Isai: Non elégit Dóminus ex istis. Dixítque Sámuel ad Isai: Numquid jam compléti sunt fílii? Qui respóndit: Adhuc réliquus est párvulus et pascit oves. Et ait Sámuel ad Isai: Mitte et adhuc eum.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Prævaluit David \* in Philisthǽum in funda et lápide in nómine Dómini.
+
+### Oratio
+
+DA nobis, quǽsumus, Dómine: ut et mundi cursus pacífice nobis tuo órdine dirigátur; et Ecclésia tua tranquílla devotióne lætétur. Per Dóminum.

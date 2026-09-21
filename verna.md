@@ -39090,4 +39090,50 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-MARGARITA, ex régia Anglórum stirpe in Hungária nata, post exáctam summa cum pietáte puerítiam, una cum genitóre, qui a sancto Eduárdo pátruo, Anglórum rege, ad patérni regni fastígium vocabátur, in Angliam, dein in Scótiam venit. Ibi,
+MARGARITA, ex régia Anglórum stirpe in Hungária nata, post exáctam summa cum pietáte puerítiam, una cum genitóre, qui a sancto Eduárdo pátruo, Anglórum rege, ad patérni regni fastígium vocabátur, in Angliam, dein in Scótiam venit. Ibi, cum ex matris império Scotórum regi Malchólmo tértio nupsísset, sanctimóniæ et pietátis opéribus annis trigínta toti regno prófuit. Máxima erat in ea vitæ austéritas et flagrantíssimum erga próximos caritátis stúdium, præsértim in egénos; pro quibus aléndis non semel exháusit ærárium. Demum acérbis dolóribus et diutúrno morbo patientíssime tolerátis, ánimam Deo réddidit sexto décimo Kaléndas Decémbris. Quo témporis moménto fácies ejus, mácie ac pallóre fœdáta, insólita quadam venustáte reflóruit. Cleméntis décimi auctoritáte in Scótiæ patrónam accépta, ubíque terrárum religiosíssime cólitur.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Símile est regnum cælórum, {RUBRIC: de Communi non Virg. [154]}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus, allelúja.
+
+###### Oratio
+
+DEUS, qui beátam Margarítam regínam exímia in páuperes caritáte mirábilem effecísti: da; ut ejus intercessióne et exémplo, tua in córdibus nostris cáritas júgiter augeátur. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 11 Junii
+
+#### S. Barnabæ
+
+{RUBRIC: Apostoli}
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Apostolorum Tempore Paschali [4], præter Orationem et Lectiones, ut infra.}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+DEUS, qui nos beáti Bárnabæ Apóstoli tui méritis et intercessióne lætíficas: concéde propítius; ut, qui tua per eum benefícia póscimus, dono tuæ grátiæ consequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit, allelúja.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Deus qui beátam, ut supra.

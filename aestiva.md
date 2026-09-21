@@ -15844,4 +15844,44 @@ QUI mandúcat, inquit, carnem meam et bibit sánguinem meum, in me manet, et ego
 
 NOs vero, si vitam ætérnam cónsequi vólumus, si largitórem immortalitátis habére in nobis desiderámus, ad recipiéndam benedictiónem libénter concurrámus; caveamúsque, ne loco láquei damnósam religiónem diábolus nobis præténdat. Recte (inquit) dicis; scriptum tamen esse non ignorámus, judícium sibi comédere atque bíbere illum, qui de pane cómedit et de cálice bibit indígne. Ego ígitur probo meípsum, et indígnum invénio. Quando ígitur, quicúmque tu es qui ista dicis, dignus eris? quando Christo teípsum ófferes? Nam si peccándo indígnus es, et peccáre non désinis, (quis enim delícta intélligit? secúndum Psalmístam), expers omníno eris vivíficæ hujus sanctificatiónis.
 
-℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me.
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me. ℣. Cibávit illum Dóminus pane vitæ et intelléctus. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+QUare pias, quæso, cogitatiónes suscípias, studióse sanctéque vivas, et benedictiónem partícipes: quæ (mihi crede) non mortem solum, verum étiam morbos omnes depéllit. Sedat enim, cum in nobis máneat Christus, sæviéntem membrórum nostrórum legem; pietátem corróborat, perturbatiónes ánimi exstínguit, ægrótos curat, collísos redíntegrat; et sicut pastor bonus, qui ánimam suam pro óvibus pósuit, ab omni nos érigit casu.
+
+**Te Deum laudámus.** [7]
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Sacratíssimi Cordis Jesu
+
+*Feria VI — Duplex I classis, cum Octava privilegiata III ordinis*
+
+### In I Vesperis
+
+**Ant.** Suávi jugo tuo \* domináre, Dómine, in médio inimicórum tuórum.
+
+##### Psalmus 109
+
+DIxit Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* quassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Suávi jugo tuo domináre, Dómine, in médio inimicórum tuórum.
+
+**Ant.** Miséricors \* et miserátor Dóminus: escam dedit timéntibus se.

@@ -30583,3 +30583,104 @@ TE, Joseph, célebrent ágmina cælitum,
 Te cuncti résonent christíadum chori,
 Qui clarus méritis, junctus es ínclytæ
 Casto fœdere Vírgini.
+
+Almo cum túmidam gérmine cónjugem
+Admírans, dúbio tángeris ánxius,
+Afflátu súperi Fláminis Angelus
+Concéptum Púerum docet.
+
+Tu natum Dóminum stringis, ad éxteras
+Ægýpti prófugum tu séqueris plagas;
+Amíssum Sólymis quæris, et ínvenis,
+Miscens gáudia flétibus.
+
+Post mortem réliquos sors pia cónsecrat,
+Palmámque emérítos glória súscipit:
+Tu vivens, Súperis par, frúeris Deo,
+Mira sorte beátior.
+
+Nobis, summa Trias, parce precántibus,
+Da Joseph méritis sídera scándere;
+Ut tandem líceat nos tibi pérpetim
+Gratum prómere cánticum. Amen.
+
+℣. Constítuit eum dóminum domus suæ. {RUBRIC: (T. P. Allelúja.)} ℟. Et príncipem omnis possessiónis suæ. {RUBRIC: (T. P. Allelúja.)}
+
+**Ad Magnif. Ant.** Exsúrgens Joseph a somno, \* fecit sicut præcépit ei Angelus Dómini, et accépit cónjugem suam. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+SANCTISSIMÆ Genitrícis tuæ Sponsi, quǽsumus, Dómine, méritis adjuvémur: ut, quod possibílitas nostra non óbtinet, ejus nobis intercessióne donétur: Qui vivis et regnas.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invit.** Christum Dei Fílium, qui putári dignátus est fílius Joseph, \* Veníte, adorémus. {RUBRIC: (T. P. Allelúja.)} **Ps. 94** Veníte, exsultémus. [3]
+
+###### Hymnus
+
+CÆLITUM, Joseph, decus atque nostræ
+Certa spes vitæ, columénque mundi,
+Quas tibi læti cánimus, benígnus
+Súscipe laudes.
+
+Te Sator rerum státuit pudícæ
+Vírginis sponsum, voluítque Verbi
+Te patrem dici, dedit et minístrum
+Esse salútis.
+
+Tu Redemptórem stábulo jacéntem,
+Quem chorus Vatum cécinit futúrum,
+Aspicis gaudens, humilísque natum
+Numen adóras.
+
+Rex Deus regum, Dominátor orbis,
+Cujus ad nutum tremit inferórum
+Turba, cui pronus famulátur æther,
+Se tibi subdit.
+
+Laus sit excélsæ Tríadi perénnis,
+Quæ tibi prǽbens súperos honóres,
+Det tuis nobis méritis beátæ
+Gáudia vitæ. Amen.
+
+##### In I Nocturno
+
+**Ant.** Ascéndit Joseph \* a Galilǽa de civitáte Názareth in Judǽam, in civitátem David, quæ vocátur Béthlehem, ut profiterétur cum María. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: ¶ Sub qua sola Antiphona dicuntur Tempore Paschali Psalmi hujus Nocturni.}
+
+###### Psalmus 1
+
+BEATUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** Ascéndit Joseph a Galilǽa de civitáte Názareth in Judǽam, in civitátem David, quæ vocátur Béthlehem, ut profiterétur cum María.
+
+**Ant.** Venérunt pastóres \* festinántes; et invenérunt Maríam, et Joseph, et Infántem pósitum in præsépio.
+
+###### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.

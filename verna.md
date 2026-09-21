@@ -22878,4 +22878,60 @@ Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
 
 Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
 
-Illumináre his, qui in ténebris, et in umbra mortis sedent
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+{RUBRIC: †}
+
+**Ant.** Mulíeres sedéntes ad monuméntum lamentabántur, flentes Dóminum.
+
+**Ant.** Christus factus est pro nobis obédiens usque ad mortem, mortem autem crucis: propter quod et Deus exaltávit illum, et dedit illi nomen, quod est super omne nomen.
+
+{RUBRIC: Pater noster secreto.}
+
+{RUBRIC: Postea dicitur aliquantulum altius Ps. 50 Miserére 465, quo finíto sine Orémus dícitur símili voce}
+
+#### Oratio
+
+RESPICE, quæsumus, Dómine, super hanc famíliam tuam, pro qua Dóminus noster Jesus Christus non dubitávit mánibus tradi nocéntium, et crucis subíre torméntum: sed Qui tecum {RUBRIC: dícitur sub siléntio.}
+
+{RUBRIC: Et sic dícitur usque ad Nonam.}
+
+{RUBRIC: Dictis Horis, ut supra in Cœna Dómini 467, celebrátur Missa; et, facta Communióne, statim dícitur}
+
+### Pro Vésperis
+
+**Ant.** Allelúja, allelúja, allelúja.
+
+#### Psalmus 116
+
+LAUDATE Dóminum, omnes gentes: \* laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+{RUBRIC: Glória Patri. Sicut erat.}
+
+{RUBRIC: Repetitur Ant.} Allelúja, allelúja, allelúja.
+
+{RUBRIC: Capitulum, Hymnus et Versus non dicúntur.}
+
+**Ad Magnif. Ant.** Véspere autem sábbati, \* quæ lucéscit in prima sábbati, venit María Magdaléne, et áltera María, vidére sepúlcrum, allelúja.
+
+##### Canticum B. Mariæ Virg.
+
+*Luc. 1, 46-55*
+
+MAGNIFICAT \* ánima mea Dóminum:
+
+Et exsultávit spíritus meus \* in Deo, salutári meo.
+
+Quia rexpéxit humilitátem ancíllæ suæ: \* ecce enim ex hoc beátam me dicent omnes generatiónes.
+
+Quia fecit mihi magna qui potens est: \* et sanctum nomen ejus.
+
+Et misericórdia ejus a progénie in progénies \* timéntibus eum.
+
+Fecit poténtiam in bráchio suo: \* dispérsit supérbos mente cordis sui.
+
+Depósuit poténtes de sede, \* et exaltávit húmiles.
+
+Esuriéntes implévit bonis: \* et dívites dimísit inánes.

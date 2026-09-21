@@ -42041,4 +42041,34 @@ QUOTIESCUMQUE, fratres caríssimi, sanctórum Mártyrum solémnia celebrámus, i
 
 ###### Lectio v
 
-SED nos vólumus gaudére cum Sanctis; et tribulatiónem mundi nólumus sustinére cum ipsis.
+SED nos vólumus gaudére cum Sanctis; et tribulatiónem mundi nólumus sustinére cum ipsis. Qui enim sanctos Mártyres, in quantum potúerit, imitári nolúerit, ad eórum beatitúdinem non póterit perveníre. Sed et Paulus Apóstolus prǽdicat, dicens: Si fuérimus sócii passiónum, érimus et consolatiónum. Et Dóminus in Evangélio: Si mundus vos odit, scitóte, quia me priórem vobis ódio hábuit. Recúsat esse in córpore, qui ódium non vult sustinére cum cápite.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+SED dicit áliquis: Et quis est qui possit beatórum Mártyrum vestígia sequi? Huic ego respóndeo, quia non solum Mártyres, sed étiam ipsum Dóminum cum ipsíus adjutório, si vólumus, póssumus imitári. Audi non me, sed ipsum Dóminum géneri humáno clamántem: Díscite a me, quia mitis sum et húmilis corde. Audi et Petrum Apóstolum admonéntem: Christus passus est pro nobis, relínquens nobis exémplum, ut sequámur vestígia ejus.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum: \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+##### In III Nocturno
+
+**Ant.** Justi autem \* in perpétuum vivent, et apud Dóminum est merces eórum.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Psalmus 32
+
+EXSULTATE, justi, in Dómino: \* rectos decet collaudátio.
+
+Confitémini Dómino in cíthara: \* in psaltério decem chordárum psállite illi.
+
+Cantáte ei cánticum novum: \* bene psállite ei in vociferatióne.
+
+Quia rectum est verbum Dómini: \* et ómnia ópera ejus in fide.
+
+Díligit misericórdiam et judícium: \* misericórdia Dómini plena est terra.

@@ -41444,3 +41444,54 @@ SED ad hæc audíta inardéscit ánimus, jamque illic cupit assístere, ubi se s
 ℟. Cándidi facti sunt Nazaræi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
 
 **Benedictio** Ad societátem.
+
+###### Lectio ix
+
+SED percontári libet, quómodo paréntes et carnáliter propínquos præcípimur odísse, qui jubémur et inimícos dilígere? Et certe Véritas de uxóre dicit: Quod Deus conjúnxit, homo non séparet. Et Paulus ait: Viri, dilígite uxóres vestras, sicut et Christus Ecclésiam. Ecce discípulus uxórem diligéndam prǽdicat, cum magíster dicat: Qui uxórem non odit, non potest meus esse discípulus. Numquid áliud judex núntiat, áliud præco clamat? An simul et odísse póssumus, et dilígere? Sed si vim præcépti perpéndimus, utrúmque ágere per discretiónem valémus: ut uxórem et eos, qui nobis carnis cognatióne conjúncti sunt, et quos próximos nóvimus, diligámus; et quos adversários in via Dei pátimur, odiéndo et fugiéndo nesciámus.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Qui me conféssus fúerit \* coram homínibus, confitébor et ego eum coram Patre meo.
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** Qui séquitur me, \* non ámbulat in ténebris, sed habébit lumen vitæ, dicit Dóminus.
+
+**3** Qui mihi minístrat, \* me sequátur: et ubi ego sum, illic sit et miníster meus.
+
+**4** Si quis mihi ministráverit, \* honorificábit eum Pater meus, qui est in cælis, dicit Dóminus.
+
+**5** Volo, Pater, \* ut, ubi ego sum, illic sit et miníster meus.
+
+**Capitulum** *Jac. 1, 12*
+
+BEATUS vir, qui suffert tentatiónem: quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+###### Hymnus
+
+INVICTE Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tædium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vinclis sæculi,
+Dono supérni Núminis.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.

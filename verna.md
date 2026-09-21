@@ -47464,4 +47464,72 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 
 {RUBRIC: Simplex}
 
-{RUBRIC: Omnibus Sabbatis, extra Tempus Quadragesimæ et Passionis, nisi agendum fuerit de aliquo Festo duplici, etiam translato, aut semiduplici, vel de Octava aut Vigilia occurrenti, fit Officium de sancta Maria, in quo, sumptis Antiphonis et Psalmis de Feria VI et Sabbato occur-
+{RUBRIC: Omnibus Sabbatis, extra Tempus Quadragesimæ et Passionis, nisi agendum fuerit de aliquo Festo duplici, etiam translato, aut semiduplici, vel de Octava aut Vigilia occurrenti, fit Officium de sancta Maria, in quo, sumptis Antiphonis et Psalmis de Feria VI et Sabbato occurrentibus, réliqua dicúntur ut infra.}
+
+##### In Vesperis
+
+{RUBRIC: Añæ et Psalmi ut supra. 287}
+
+###### Capitulum
+
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
+
+{RUBRIC: Prima stropha sequentis Hymni dicitur flexis genibus.}
+
+###### Hymnus
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve vincla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus. Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)
+
+{RUBRIC: Si tamen præcedens Versus dictus jam fuerit in Officio de Communi Virginum vel non Virginum, tunc dicatur sequens}
+
+℣. Benedícta tu in muliéribus. (T. P. Allelúja.) ℟. Et benedíctus fructus ventris tui. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Regína cæli, \* lætáre, allelúja; quia quem meruísti portáre, allelúja, resurréxit, sicut dixit, allelúja: ora pro nobis Deum, allelúja.
+
+###### Oratio
+
+CONCEDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Commemoratio de Cruce, ut infra ad Laudes. [214]}
+
+{RUBRIC: Ad Completorium et ad omnes Horas usque ad Nonam inclusive, in fine Hymnorum dicitur:}
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,

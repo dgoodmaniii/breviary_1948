@@ -1106,3 +1106,33 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 ℣. Dóminus det nobis suam pacem. ℟. Et vitam ætérnam. Amen.
 
 {RUBRIC: Atque statim dícitur Antiphona finális, ut infra.}
+
+##### Antiphona finalis beatæ Mariæ Virginis
+
+{RUBRIC: A I Vésperis Festi sanctíssimæ Trinitátis et deínceps:}
+
+**Antiphona**
+
+SALVE, Regína, mater misericórdiæ; vita, dulcédo et spes nostra, salve. Ad te clamámus éxsules fílii Hevæ. Ad te suspirámus geméntes et flentes in hac lacrimárum valle. Eja ergo, advocáta nostra, illos tuos misericórdes óculos ad nos convérte. Et Jesum, benedíctum fructum ventris tui, nobis post hoc exsílium osténde. O clemens, o pia, o dulcis Virgo María.
+
+℣. Ora pro nobis, sancta Dei Génitrix. ℟. Ut digni efficiámur promissiónibus Christi.
+
+Orémus. **Oratio**
+
+OMNIPOTENS sempitérne Deus, qui gloriósæ Vírginis Matris Maríæ corpus et ánimam, ut dignum Fílii tui habitáculum éffici mererétur, Spíritu Sancto cooperánte, præparásti: da, ut, cujus commemoratióne lætámur; ejus pia intercessióne, ab instántibus malis, et a morte perpétua liberémur. Per eúmdem Christum, Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Absolúta vero Antíphona finali cum suis Versu et Oratióne, conclúditur:}
+
+℣. Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+## Post divinum Officium
+
+{RUBRIC: Cum explétum fúerit Offícium, laudabíliter dícitur sequens Orátio; pro qua Summus Póntifex Pius Papa XI sub die 1 Decémbris 1933 indulgéntiam trium annórum concéssit. Prætérea Cléricis in sacris constitútis et Sacerdótibus eam devóte post Offícium recitántibus Summus Póntifex Leo X deféctus et culpas in eo persolvéndo ex humána fragilitáte contráctas, indúlsit. Dícitur autem flexis semper génibus in priváta étiam recitatióne, præter quam ab iis, qui ob certam infirmitátem vel gravióris impediménti causam néqueant genufléctere.}
+
+### Oratio
+
+SACROSANCTÆ et indivíduæ Trinitáti, crucifíxi Dómini nostri Jesu Christi humanitáti, beatíssimæ et gloriosíssimæ sempérque Vírginis Maríæ fecúndæ integritáti, et ómnium Sanctórum universitáti sit sempitérna laus, honor, virtus et glória ab omni creatúra, nobísque remíssio ómnium peccatórum, per infiníta sæcula sæculórum. ℟. Amen.
+
+℣. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium. ℟. Et beáta úbera, quæ lactavérunt Christum Dóminum.
+
+{RUBRIC: Et dícitur secréto} Pater noster et Ave María.

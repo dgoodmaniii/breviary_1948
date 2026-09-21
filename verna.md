@@ -20249,3 +20249,31 @@ NOSTRA tibi, Dómine, quæsumus, sint accépta jejúnia: quæ nos et expiándo, 
 DA nobis, quæsumus, Dómine, perseverántem in tua voluntáte famulátum: ut in diébus nostris et mérito et número pópulus tibi sérviens augeátur. Per Dóminum.
 
 ---
+
+## Feria Quarta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 10, 22-38*
+
+IN illo témpore: Facta sunt encǽnia in Jerosólymis: et hiems erat. Et ambulábat Jesus in templo, in pórticu Salomónis. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 48 in Joannem, circa initium}
+
+ENCÆNIA festívitas erat dedicatiónis templi. Græce enim cænon dícitur novum. Quandocúmque novum áliquid fúerit dedicátum, encǽnia vocántur. Jam et usus habet hoc verbum. Si quis nova túnica induátur, encæniáre dícitur. Illum enim diem, quo templum dedicátum est, Judǽi solémniter celebrábant: ipse dies festus agebátur, cum ea quæ lecta sunt, locútus est Dóminus.
+
+℟. Tota die contristátus ingrediébar, Dómine: quóniam ánima mea compléta est illusiónibus: \* Et vim faciébant, qui quærébant ánimam meam. ℣. Amíci mei et próximi mei advérsum me appropinquavérunt et stetérunt: et qui juxta me erant, de longe stetérunt. — Et vim.
+
+#### Lectio ii
+
+HIEMS erat, et ambulábat Jesus in templo, in pórticu Salomónis. Circumdedérunt ergo eum Judǽi, et dicébant ei: Quoúsque ánimam nostram tollis? Si tu es Christus, dic nobis palam. Non veritátem desiderábant, sed calúmniam præparábant. Hiems erat, et frígidi erant: ad illum enim divínum ignem accédere pigri erant. Si accédere est crédere: qui credit, accédit; qui negat, recédit. Non movétur ánima pédibus, sed afféctibus.
+
+℟. Ne avértas fáciem tuam a púero tuo, Dómine: \* Quóniam tríbulor, velóciter exáudi me. ℣. Inténde ánimæ meæ, et líbera eam: propter inimícos meos éripe me. — Quóniam.
+
+#### Lectio iii
+
+FRIGUERANT diligéndi caritáte, et ardébant nocéndi cupiditáte. Longe áberant, et ibi erant: non accedébant credéndo, et premébant persequéndo. Quærébant audíre a Dómino, Ego sum Christus: et fortásse de Christo secúndum hóminem sapiébant. Prædicavérunt enim prophétæ Christum: sed

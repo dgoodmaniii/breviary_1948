@@ -32898,3 +32898,45 @@ Paradísi glória. Amen.
 ℣. Ora pro nobis, Virgo dolorosíssima. ℟. Ut digni efficiámur promissiónibus Christi.
 
 **Ad Bened. Ant.** Cum vidísset Jesus \* Matrem stantem juxta crucem, et discípulum quem diligébat, dicit Matri suæ: Múlier, ecce fílius tuus. Deínde dicit discípulo: Ecce mater tua.
+
+###### Oratio
+
+DEUS, in cujus passióne, secúndum Simeónis prophetíam, dulcíssimam ánimam gloriósæ Vírginis et Matris Maríæ dolóris gládius pertransívit: concéde propítius; ut, qui transfixiónem ejus et passiónem venerándo recólimus, gloriósis méritis et précibus ómnium Sanctórum cruci fidéliter astántium intercedéntibus, passiónis tuæ efféctum felícem consequámur: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commemoratio Feriæ. 432}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Primam
+
+**Ant.** Vadam ad montem, {RUBRIC: ut supra. 810}
+
+{RUBRIC: In ℟. br. ℣. Qui passus es propter nostram salútem.}
+
+##### Ad Tertiam
+
+**Ant.** Diléctus meus, {RUBRIC: ut supra. 810}
+
+**Capit.** Quis crédidit, {RUBRIC: ut supra. 810}
+
+℟. br. Pósuit me \* Desolátam. Pósuit me. ℣. Tota die mæróre conféctam. Desolátam. Glória Patri. Pósuit me. ℣. Fácies mea intúmuit a fletu. ℟. Et pálpebræ meæ caligavérunt.
+
+##### Ad Sextam
+
+**Ant.** Quo ábiit, {RUBRIC: ut supra. 810}
+
+**Capitulum** *Is. 53, 5*
+
+IPSE vulnerátus est propter iniquitátes nostras, attrítus est propter scélera nostra: disciplína pacis nostræ super eum, et livóre ejus sanáti sumus.
+
+℟. br. Fácies mea \* Intúmuit a fletu. Fácies mea. ℣. Et pálpebræ meæ caligavérunt. Intúmuit. Glória Patri. Fácies mea. ℣. Deus, vitam meam annuntiávi tibi. ℟. Posuísti lácrimas meas in conspéctu tuo.
+
+##### Ad Nonam
+
+**Ant.** Fulcíte me flóribus, {RUBRIC: ut supra. 810}
+
+**Capitulum** *Is. 53, 8*
+
+GENERATIONEM ejus quis enarrábit? quia abscíssus est de terra vivéntium: propter scelus pópuli mei percússi eum.
+
+℟. br. Deus, vitam meam \* Annuntiávi tibi. Deus. ℣. Posuísti lácrimas meas in conspéctu tuo. Annuntiávi tibi. Glória Patri. Deus. ℣. Ora pro nobis, Virgo dolorosíssima. ℟. Ut digni efficiámur promissiónibus Christi.

@@ -43647,3 +43647,29 @@ QUOD si contuens longam Dei patiéntiam, quæ in proféctum humánæ salútis ex
 {RUBRIC: Te Deum laudámus.}
 
 ---
+
+# Commune Doctorum
+
+{RUBRIC: Omnia de Communi Confessoris aut Pontificis [84] aut non Pontificis [111], juxta qualitatem Festi, praeter sequentia:}
+
+**Ad Magnif. in utrisque Vesp. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte N., divínæ legis amátor, deprecáre pro nobis Fílium Dei. (T. P. Allelúja.)
+
+**Oratio**
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Si vero agenda sit Commemoratio alterius Doctoris, Antiphona in utrisque Vesperis et Oratio sumuntur de respectivo Communi Confessoris aut Pontificis aut non Pontificis, pro qualitate Festi.}
+
+##### In I Nocturno
+
+De libro Ecclesiástici
+
+**Lectio i** *Cap. 39, 1-14*
+
+SAPIENTIAM ómnium antiquórum exquíret sápiens, et in prophétis vacábit. Narratiónem virórum nominatórum conservábit, et in versútias parabolárum simul introíbit. Occúlta proverbiórum exquíret, et in abscónditis parabolárum conversábitur. In médio magnatórum ministrábit, et in conspéctu præsidis apparébit. In terram alienigenárum géntium pertránsiet; bona enim et mala in homínibus tentábit.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. (T. P. Allelúja.) ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.
+
+###### Lectio ii
+
+COR suum tradet ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur. Apériet os suum in oratióne, et pro delíctis suis deprecábitur. Si enim Dóminus magnus volúerit, spíritu intelligéntiæ replébit illum: et ipse tamquam imbres mittet elóquia sapiéntiæ suæ, et in oratióne confitébitur Dómino: et ipse díriget consílium ejus, et disciplínam, et in abscónditis suis consiliábitur.

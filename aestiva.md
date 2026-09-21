@@ -6088,3 +6088,65 @@ Declinántes autem in obligatiónes addúcet Dóminus cum operántibus iniquitá
 ### Psalmus 125
 
 IN converténdo Dóminus captivitátem Sion: \* facti sumus sicut consoláti:
+
+Tunc replétum est gáudio os nostrum: \* et lingua nostra exsultatióne.
+
+Tunc dicent inter gentes: \* Magnificávit Dóminus fácere cum eis.
+
+Magnificávit Dóminus fácere nobíscum: \* facti sumus lætántes.
+
+Convérte, Dómine, captivitátem nostram, \* sicut torrens in Austro.
+
+Qui séminant in lácrimis, \* in exsultatióne metent.
+
+Eúntes ibant et flebant, \* mitténtes sémina sua.
+
+Veniéntes autem vénient cum exsultatióne, \* portántes manípulos suos.
+
+**Ant.** Magnificávit Dóminus fácere nobíscum: facti sumus lætántes.
+
+**Ant.** Dóminus ædíficet \* nobis domum, et custódiat civitátem.
+
+### Psalmus 126
+
+NISI Dóminus ædificáverit domum, \* in vanum laboravérunt qui ædíficant eam.
+
+Nisi Dóminus custodíerit civitátem, \* frustra vígilat qui custódit eam.
+
+Vanum est vobis ante lucem súrgere: \* súrgite postquam sedéritis, qui manducátis panem dolóris.
+
+Cum déderit diléctis suis somnum: \* ecce heréditas Dómini fílii: merces, fructus ventris.
+
+Sicut sagíttæ in manu poténtis: \* ita fílii excussórum.
+
+Beátus vir, qui implévit desidérium suum ex ipsis: \* non confundétur cum loquétur inimícis suis in porta.
+
+**Ant.** Dóminus ædíficet nobis domum, et custódiat civitátem.
+
+#### In Officio feriali
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BENEDICTUS Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+#### Hymnus
+
+TELLURIS alme Cónditor
+Mundi solum qui séparans,
+Pulsis aquæ moléstiis,
+Terram dedísti immóbilem:
+
+Ut germen aptum próferens,
+Fulvis decóra flóribus,
+Fecúnda fructu sísteret,
+Pastúmque gratum rédderet.
+
+Mentis perústæ vúlnera
+Munda viróre grátiæ:
+Ut facta fletu díluat,
+Motúsque pravos átterat.
+
+Jussis tuis obtémperet:
+Nullis malis appróximet:
+Bonis repléri gáudeat,
+Et mortis ictum nésciat.

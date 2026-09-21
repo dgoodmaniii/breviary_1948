@@ -16896,4 +16896,30 @@ IN illo témpore: Erant appropinquántes ad Jesum publicáni et peccatóres, ut 
 
 {RUBRIC: Homilía 34 in Evang., n. 2-3}
 
-AUdístis in lectióne evangélica, fratres mei, quia peccatóres et publicáni accés-
+AUdístis in lectióne evangélica, fratres mei, quia peccatóres et publicáni accessérunt ad Redemptórem nostrum; et non solum ad colloquéndum, sed étiam ad convescéndum recépti sunt. Quod vidéntes pharisǽi dedignáti sunt. Ex qua re collígite quia vera justítia compassiónem habet, falsa justítia dedignatiónem. Quamvis et justi sóleant recte peccatóribus dedignári: sed áliud est quod ágitur typho supérbiæ, áliud quod zelo disciplínæ.
+
+℟. Ego si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia.
+
+##### Lectio viii
+
+DEdignántur étenim sed non dedignántes; despérant, sed non desperántes; persecutiónem cómmovent, sed amántes: quia etsi foris increpatiónes per disciplínam exággerant, intus tamen dulcédinem per caritátem servant. Præpónunt sibi in ánimo ipsos plerúmque quos córrigunt: melióres exístimant eos quoque quos júdicant. Quod vidélicet agéntes, et per disciplínam súbditos, et per humilitátem custódiunt semetípsos.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+AT contra, hi qui de falsa justítia superbíre solent, céteros quosque despíciunt, nulla infirmántibus misericórdia condescéndunt, et quo se peccatóres esse non credunt, eo detérius peccatóres fiunt. De quorum profécto número pharisǽi exstíterant, qui dijudicántes Dóminum quod peccatóres suscíperet, arénti corde ipsum fontem misericórdiæ reprehendébant. Sed quia ægri erant, ita ut ægros se esse nescírent, quátenus quod erant agnóscerent, cæléstis eos médicus blandis foméntis curat, benígnum paradígma óbjicit, et in eórum corde vúlneris tumórem premit.
+
+**Te Deum laudámus.**
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ:}
+
+**1** Unus mílitum \* láncea latus ejus apéruit et contínuo exívit sanguis et aqua.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Stans Jesus \* clamábat dicens: Si quis sitit véniat ad me et bibat.
+
+**3** In caritáte perpétua \* diléxit nos Deus, ídeo,

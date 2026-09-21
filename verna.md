@@ -22462,4 +22462,60 @@ Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos
 
 Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
 
-Qui jurat próximo suo, et non décipit, \* qui pecú-
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+{RUBRIC: †}
+
+**Ant.** Habitábit in tabernáculo tuo, requiéscet in monte sancto tuo.
+
+**Ant.** Caro mea \* requiéscet in spe.
+
+#### Psalmus 15
+
+CONSERVA me, Dómine, quóniam sperávi in te. \* Dixi Dómino: Deus meus es tu, quóniam bonórum meórum non eges.
+
+Sanctis, qui sunt in terra ejus, \* mirificávit omnes voluntátes meas in eis.
+
+Multiplicátæ sunt infirmitátes eórum: \* póstea acceleravérunt.
+
+Non congregábo conventícula eórum de sanguínibus, \* nec memor ero nóminum eórum per lábia mea.
+
+Dóminus pars hereditátis meæ, et cálicis mei: \* tu es, qui restítues hereditátem meam mihi.
+
+Funes cecidérunt mihi in præcláris: \* éténim heréditas mea præclára est mihi.
+
+Benedícam Dóminum, qui tríbuit mihi intelléctum: \* ínsuper et usque ad noctem increpuérunt me renes mei.
+
+Providébam Dóminum in conspéctu meo semper: \* quóniam a dextris est mihi, ne commóvear.
+
+Propter hoc lætátum est cor meum, et exsultávit lingua mea: \* ínsuper et caro mea requiéscet in spe.
+
+Quóniam non derelínques ánimam meam in inférno: \* nec dabis sanctum tuum vidére corruptiónem.
+
+Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo: \* delectatiónes in déxtera tua usque in finem.
+
+{RUBRIC: †}
+
+**Ant.** Caro mea requiéscet in spe.
+
+℣. In pace in idípsum. ℟. Dórmiam et requiéscam.
+
+{RUBRIC: Pater noster secreto.}
+
+#### De Lamentatióne Jeremíæ Prophétæ
+
+#### Lectio i
+
+*Cap. 3, 22-30*
+
+{RUBRIC: Heth.} Misericórdiæ Dómini quia non sumus consúmpti: quia non defecérunt miseratiónes ejus.
+
+{RUBRIC: Heth.} Novi dilúculo, multa est fides tua.
+
+{RUBRIC: Heth.} Pars mea Dóminus; dixit ánima mea: proptérea exspectábo eum.
+
+{RUBRIC: Teth.} Bonus est Dóminus sperántibus in eum, ánimæ quærénti illum.
+
+{RUBRIC: Teth.} Bonum est præstolári cum siléntio salutáre Dei.

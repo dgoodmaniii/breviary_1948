@@ -32722,3 +32722,55 @@ Intret in conspéctu tuo orátio mea: \* inclína aurem tuam ad precem meam:
 Quia repléta est malis ánima mea: \* et vita mea inférno appropinquávit.
 
 Æstimátus sum cum descendéntibus in lacum: \* factus sum sicut homo sine adjutório, inter mórtuos liber.
+
+Sicut vulneráti dormiéntes in sepúlcris, quorum non es memor ámplius: \* et ipsi de manu tua repúlsi sunt.
+
+Posuérunt me in lacu inferióri: \* in tenebrósis, et in umbra mortis.
+
+Super me confirmátus est furor tuus: \* et omnes fluctus tuos induxísti super me.
+
+Longe fecísti notos meos a me: \* posuérunt me abominatiónem sibi.
+
+Tráditus sum, et non egrediébar: \* óculi mei languérunt præ inópia.
+
+Clamávi ad te, Dómine, tota die: \* expándi ad te manus meas.
+
+Numquid mórtuis fácies mirabília: \* aut médici suscitábunt, et confitebúntur tibi?
+
+Numquid narrábit áliquis in sepúlcro misericórdiam tuam, \* et veritátem tuam in perditióne?
+
+Numquid cognoscéntur in ténebris mirabília tua, \* et justítia tua in terra obliviónis?
+
+Et ego ad te, Dómine, clamávi: \* et mane orátio mea prævéniet te.
+
+Ut quid, Dómine, repéllis oratiónem meam: \* avértis fáciem tuam a me?
+
+Pauper sum ego, et in labóribus a juventúte mea: \* exaltátus autem, humiliátus sum et conturbátus.
+
+In me transiérunt iræ tuæ: \* et terróres tui conturbavérunt me.
+
+Circumdedérunt me sicut aqua tota die: \* circumdedérunt me simul.
+
+Elongásti a me amícum et próximum: \* et notos meos a miséria.
+
+**Ant.** Factus sum sicut homo sine adjutório, inter mórtuos liber.
+
+**Ant.** Replévit me amaritúdine, \* inebriávit me absýnthio.
+
+###### Psalmus 108
+
+DEUS, laudem meam ne tacúeris: \* quia os peccatóris, et os dolósi super me apértum est.
+
+Locúti sunt advérsum me lingua dolósa, et sermónibus ódii circumdedérunt me: \* et expugnavérunt me gratis.
+
+Pro eo ut me dilígerent, detrahébant mihi: \* ego autem orábam.
+
+Et posuérunt advérsum me mala pro bonis: \* et ódium pro dilectióne mea.
+
+Constítue super eum peccatórem: \* et diábolus stet a dextris ejus.
+
+Cum judicátur, éxeat condemnátus: \* et orátio ejus fiat in peccátum.
+
+Fiant dies ejus pauci: \* et episcopátum ejus accípiat alter.
+
+Fiant fílii ejus órphani: \* et uxor ejus vídua.

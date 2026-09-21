@@ -35168,4 +35168,18 @@ Homilía sancti Joánnis Damascéni
 
 MATTHÆUS opus suum ínchoans, Liber generatiónis, inquit, Jesu Christi fílii David, fílii Abraham: verum hic non subsístit; étenim ipsíus sermo étiam usque ad Vírginis Sponsum progréssus est. Lucas autem post Salvatóris in baptísmo declaratiónem, oratiónem suam non nihil derívans, ad hunc modum scribit: Ipse Jesus erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph, qui fuit Heli, qui fuit Mathat; et sic deínceps in altum ascendéndo usque ad Seth, qui fuit Adæ, qui fuit Dei. Proínde cum Joséphi genus ad hunc modum censeátur, certe Virgo quoque ipsa ac Dei Génitrix María ejúsdem cum eo tribus esse simul demonstrátur. Síquidem Móysis lege non licébat ulli tríbui cum áltera tribu permiscéri, ne géneris heréditas ab una tribu ad áliam laberétur.
 
-℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis nomen ejus Jesum, allelúja. ℣. Ipse enim salvum fáciet pópulum suum a peccátis eórum. — Et.
+
+#### Lectio viii
+
+NON abs re Christi ex Spíritu Sancto natívitas apud vulgus silebátur, ac Joseph loco patris assumebátur; atque inde, ut vero consentáneum est, tamquam Púeri pater censebátur. Nam, nisi hoc exstitísset, patre carére Puer existimátus fuísset, quod a patérno látere genus ipsíus mínime recenserétur. Quam ob rem ab exímiis Evangelístis necessário tunc factum est, ut Joséphi genus recensérent. Nam si, hoc prætermísso, a matérno látere géneris ipsíus sériem texuíssent, prætérquam quod istud indecórum fuísset, a divinárum quoque Scripturárum consuetúdine abhorruísset. Cómmode ígitur Joséphi genus a Davíde, ob eam quam attúlimus causam, ducéntes, simul quoque Vírginem Maríam ex Davíde ortam esse confírmant, per Sponsum scílicet uxóris genus una inferéntes.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi, allelúja. ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+QUOD quidem justítia præditus Joseph esset, ac vitam legi consentáneam dúceret, némini obscúrum est. Ex legis porro præscrípto vivens, profécto non aliúnde quam ex sua tribu ortam uxórem despondébat. Quocírca, si Joseph ex tribu Juda atque ex Davídis sorte ac família erat, an non consentáneum est Maríam quoque ab iísdem proficísci? Ex quo factum est, ut Sponsi genus recenserétur. Nam, cum de Apóstoli senténtia caput mulíeris vir sit; quid tandem afférri potest, quin, cum cápitis genus recenserétur, corpus quoque una cum cápite recenséri consequátur? Maniféste ígitur osténsum esse árbitror, Joséphi genus apud Evangelístas non frustra recenséri, ex quo necessário Virgo quoque a Davíde oriúnda esse per consecutiónem intellígitur, et qui præcellénti miráculo ex ipsa génitus est Christus, ante sǽcula Dei Fílius.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: Vesperæ de seq. die Octava.}

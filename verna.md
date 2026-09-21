@@ -24297,3 +24297,21 @@ PETRUS autem dixit ad eum: Pecúnia tua tecum sit in perditiónem: quóniam donu
 **Ad Bened. Ant.** Venérunt ad monuméntum \* María Magdaléne, et áltera María, vidére sepúlcrum, allelúja.
 
 {RUBRIC: Ad Vésperas, nisi sequénti die persolvéndum sit Offícium de Festo novem Lectiónum, aut de quálibet Octáva, a Capítulo fit de sancta María, et de ea dícitur Offícium in Sábbato sequénti. Quod ítem servátur in réliquis Sábbatis simíliter non impedítis, usque ad Sábbatum infra Hebdómadam IV post Octávam Paschæ inclusíve.}
+
+---
+
+## Sabbato
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 10, 1-17*
+
+VIR autem quidam erat in Cæsaréa, nómine Cornélius, centúrio cohórtis, quæ dícitur Itálica, religiósus ac timens Deum cum omni domo sua, fáciens eleemósynas multas plebi, et déprecans Deum semper. Is vidit in visu manifésto, quasi hora diéi nona, Angelum Dei introeúntem ad se, et dicéntem sibi: Cornéli. At ille intuens eum, timóre corréptus, dixit: Quid est, Dómine? Dixit autem illi: Oratiónes tuæ, et eleemósynæ tuæ ascendérunt in memóriam in conspéctu Dei. Et nunc mitte viros in Joppen, et accérsi Simónem quemdam, qui cognominátur Petrus: hic hospitátur apud Simónem quemdam coriárium, cujus est domus juxta mare: hic dicet tibi quid te opórteat fácere. Et, cum discessísset Angelus, qui loquebátur illi, vocávit duos domésticos suos, et mílitem metuéntem Dóminum ex his, qui illi parébant. Quibus cum narrásset ómnia, misit illos in Joppen.
+
+℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mórtuus est peccáto, mórtuus est semel: \* Quod autem vivit, vivit Deo, allelúja, allelúja. ℣. Mórtuus est semel propter delícta nostra, et resurréxit propter justificatiónem nostram. — Quod.
+
+#### Lectio ii
+
+POSTERA autem die iter illis faciéntibus, et appropinquántibus civitáti, ascéndit Petrus in superióra ut oráret circa horam sextam. Et, cum esuríret, vóluit gustáre. Parántibus autem illis, cécidit super eum mentis excéssus: et vidit cælum apértum, et descéndens vas quoddam, velut línteum magnum, quátuor inítiis summítti de cælo in terram, in quo erant ómnia quadrupédia, et serpéntia terræ, et volatília cæli. Et facta est vox ad eum: Surge, Petre, occíde, et mandúca. Ait autem Petrus: Absit, Dómine, quia numquam manducávi omne commúne et immúndum. Et vox íterum secúndo ad eum: Quod Deus purificávit, tu commúne ne díxeris. Hoc autem factum est per ter: et statim recéptum est vas in cælum. Et dum intra se hæsitáret Petrus, quidnam esset vísio, quam vidís-

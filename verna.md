@@ -31518,3 +31518,37 @@ Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui spe
 **Ant.** Respóndens autem Angelus, dixit ei: Ego sum Gábriel, qui asto ante Deum: et missus sum loqui ad te, et hæc tibi evangelizáre.
 
 ℣. Ascéndit fumus arómatum in conspéctu Dómini. ℟. De manu Angeli.
+
+Sermo sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Expositio in Luc. 1, 11-20}
+
+###### Lectio iv
+
+APPARUIT Zacharíæ Angelus, stans a dextris altáris incénsi. Bene Angelus et in templo, et juxta altáre, et a dextris appáret; quia vidélicet et veri sacerdótis advéntum, et mystérium sacrifícii universális, et cæléstis doni gáudium prǽdicat. Nam, sicut per sinístram præséntia, sic per déxteram sæpe bona prænuntiántur ætérna. Juxta quod in sapiéntiæ laude cánitur: Longitúdo diérum in déxtera ejus; in sinístra illíus divítiæ et glória. Treméntem Zacharíam confórtat Angelus, quia, sicut humánæ fragilitátis est spiritális creatúræ visióne turbári, ita et angélicæ benignitátis est paventes de aspéctu suo mortáles mox blandiéndo solári. At contra dæmónicæ est ferocitátis, quos sui præséntia térritos sénserit, amplióri semper horróre concútere, quæ nulla mélius ratióne quam fide superátur intrépida.
+
+℟. Factum est, cum sacerdótio fungerétur Zacharías in órdine vicis suæ ante Deum, \* Appáruit ei Angelus Gábriel, stans a dextris altáris incénsi. ℣. Cumque ingréssus in templum Dómini, incénsum póneret secúndum consuetúdinem sacerdótii sui. — Appáruit.
+
+###### Lectio v
+
+ANGELUS, deprecatiónem dicens exaudítam, partum contínuo promíttit uxóris. Non quod ille qui pro pópulo oblatúrus intráverat, relíctis públicis votis, pro accipiéndis fíliis oráre potúerit, præsértim quia nemo orat quod se acceptúrum despérat. Adeo autem ille, jam suæ ætátis et infecúndæ cónjugis memor, nasci sibi fílios desperábat, ut nec Angelo hoc promitténti créderet. Sed quod dicit: Exaudíta est deprecátio tua, pro pópuli redemptióne signíficat; Et uxor tua páriet tibi fílium, ejúsdem redemptiónis órdinem pandit, quod vidélicet natus Zacharíæ fílius Redemptóri illíus pópuli præconándo sit iter factúrus. Quia enim Zacharíam, pro plebe supplicántem, díxerat exaudítum, docet quo órdine plebs éadem salvári et perfíci débeat, ad prædicatiónem vidélicet Joánnis pœniténdo et credéndo in Christum.
+
+℟. Descéndit Gábriel Angelus ad Zacharíam, dicens: \* Ne tímeas, quóniam exaudíta est deprecátio tua, et uxor tua Elísabeth páriet tibi fílium, et vocábis nomen ejus Joánnem. ℣. Et Zacharías turbátus est videns, et timor írruit super eum: ait autem ad illum Angelus. — Ne.
+
+###### Lectio vi
+
+ZACHARIAS, ob altitúdinem promissórum hæsitans, signum quo crédere váleat, inquírit, cui sola Angeli vísio vel allocútio pro signo sufficere debúerat. Unde méritam diffidéntiæ tacéndo pœnam luit, cui taciturnitas éadem et signum fídei quod quæsívit, et infidelitátis esset pœna quam méruit. Vult intélligi quod si homo tália promítteret, impúne signum flagitáre licéret; at, cum Angelus promíttat, jam dubitári non déceat. Datque signum quod rogátur, ut qui discrédendo locútus est, jam tacéndo crédere discat. Ubi notándum quod Angelus se et ante Deum adstáre, et ad evangelizándum Zacharíæ missum esse testátur; quia et cum ad nos véniunt Angeli, sic extérius implent ministérium, ut tamen numquam desint intérius per contemplatiónem. Et mittúntur ígitur et assístunt, quia, et si circumscríptus est angélicus spíritus, summus tamen spíritus ipse qui Deus est, circumscríptus non est. Angeli ítaque et missi ante ipsum sunt, quia, quólibet missi véniunt, intra ipsum currunt. — Festum sancti Gabriélis Archángeli Benedíctus Papa décimus quintus ad univérsam Ecclésiam exténdit.
+
+℟. Ego sum Gábriel, qui asto ante Deum: et missus sum loqui ad te, et hæc evangelizáre. \* Ecce eris tacens et non póteris loqui usque in diem quo hæc fiant. ℣. Pro eo quod non credidísti verbis meis, quæ implebúntur témpore suo. — Ecce. Glória Patri. Ecce.
+
+##### In III Nocturno
+
+**Ant.** Missus est \* Gábriel Angelus ad Maríam Vírginem desponsátam Joseph.
+
+###### Psalmus 95
+
+CANTATE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.

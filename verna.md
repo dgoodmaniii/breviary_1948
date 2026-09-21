@@ -33699,4 +33699,12 @@ DEINDE, postquam illos omni angóre, timóre et sollicitúdine liberávit, et pr
 
 ###### Lectio ix
 
-VALERIANUS Románus, nóbili génere ortus, Alexándro Sevéro imperatóre, hortátu beátæ Cæcíliæ Vírginis, quam sibi
+VALERIANUS Románus, nóbili génere ortus, Alexándro Sevéro imperatóre, hortátu beátæ Cæcíliæ Vírginis, quam sibi pari nobilitáte uxórem despónderat, una cum Tibúrtio fratre a sancto Urbáno Papa baptizátur. Quos ubi præféctus Urbis Almáchius christiános esse cognóvit, et, património paupéribus distribúto, Christianórum córpora sepelíre; accersítos gráviter reprehéndit: atque ubi Christum Deum constánter confiténtes, deos autem dæmoniórum inánia simulácra prædicántes videt, virgis cædi jubet. Sed cum verbéribus cogi non possent, ut Jovis simulácrum veneraréntur, immo fortes in fídei veritáte permanérent, ad quartum ab Urbe lápidem secúri feriúntur. Quorum virtútem admirátus Máximus præfécti cubiculárius, qui eos ad supplícium perdúxerat, christiánum se esse proféssus est, cum multis prætérea præfécti minístris: qui paulo post plumbátis contúsi, omnes ex diáboli minístris, Christi Dómini Mártyres evasérunt.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: Si autem ix Lectio alicujus Officii commemorati non sit dicenda, erit sequens:}
+
+###### Lectio ix
+
+DEINDE, postquam illórum eréxit ánimos, rursum perícula prædícit, illórum mentem érigens, omnibúsque sublimióres reddens. Quid enim ait? Nolíte timére eos qui occídunt corpus, ánimam autem non possunt occídere. Viden, quómodo illos ómnibus superióres reddat, non curas modo, non maledícta, perícula, insídias, sed étiam mortem ómnium terribilíssimam contémnere docens? Neque simplíciter mortem, sed étiam violéntam? Neque dixit, Occidémini; sed cum magnificéntia congruénte totum declarávit: Nolíte timére, dicens, ab iis qui occídunt corpus, ánimam autem non possunt occídere, sed pótius timéte eum qui potest et ánimam et corpus pérdere in gehénnam; in contrárium vertens sermónem, uti semper facit. Quid enim sibi vult? Timétis mortem, ideóque ad prædicándum segnióres estis? Sed hac de causa pótius prædicáte, quia mortem timétis; illud enim vere vos a morte erípiet. Nam etiámsi vos interemptúri sunt, meliórem tamen partem non superábunt, etiámsi id totis víribus conéntur. Ideo non dixit: Animam autem non occídunt: sed Non possunt occídere. Nam etiámsi velint, non superábunt. Ita-

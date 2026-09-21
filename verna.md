@@ -19460,4 +19460,24 @@ UNO témporis moménto ob gulam pópulus ille per máxima prodígia Dei cultum e
 
 #### Lectio vi
 
-JEJUNIUM legislatóres sapiéntes facit: ánimæ óptima custódia, córporis sócius secúrus, fórtibus viris muniméntum et arma, athlétis et certántibus exercitátio. Hoc prætérea tentatiónes propúlsat, ad pietátem armat, cum sobrietáte hábitat, temperántiæ ópifex est: in bellis fortitúdinem affert, in pace quiétem docet: nazarǽum sanctíficat, sacerdótem
+JEJUNIUM legislatóres sapiéntes facit: ánimæ óptima custódia, córporis sócius secúrus, fórtibus viris muniméntum et arma, athlétis et certántibus exercitátio. Hoc prætérea tentatiónes propúlsat, ad pietátem armat, cum sobrietáte hábitat, temperántiæ ópifex est: in bellis fortitúdinem affert, in pace quiétem docet: nazarǽum sanctíficat, sacerdótem pérficit: neque enim fas est sine jejúnio sacrifícium attíngere, non solum in mýstica nunc et vera Dei adoratióne, sed nec in illa, in qua sacrifícium secúndum legem in figúra offerebátur. Jejúnium Elíam magnæ visiónis spectatórem fecit: quadragínta namque diérum jejúnio cum ánimam purgásset, in spelúnca méruit, quantum fas est hómini, Deum vidére. Móyses íterum legem accípiens, íterum jejúnia secútus est. Ninivítæ, nisi cum illis et bruta jejunássent, ruínæ minas nequáquam evasíssent. In desérto autem quorúmnam membra cecidérunt? nonne illórum, qui carnes appetivére?
+
+℟. Móyses fámulus Dei jejunávit quadragínta diébus et quadragínta nóctibus: \* Ut legem Dómini mererétur accípere. ℣. Ascéndens Móyses in montem Sínai ad Dóminum, fuit ibi quadragínta diébus et quadragínta nóctibus. — Ut. Glória Patri. Ut.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 6, 1-15*
+
+IN illo témpore: Abiit Jesus trans mare Galilǽæ, quod est Tiberíadis: et sequebátur eum multitúdo magna, quia vidébant signa, quæ faciébat super his qui infirmabántur. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractatus 24 in Joánnem}
+
+MIRACULA, quæ fecit Dóminus noster Jesus Christus, sunt quidem divína ópera, et ad intelligéndum Deum de visibílibus ádmonent humánam mentem. Quia enim ille non est talis substántia, quæ vidéri óculis possit; et miracula ejus, quibus totum mundum regit, universámque creatúram admínistrat, assiduitáte viluérunt, ita ut pene nemo dignétur atténdere ópera Dei mira et stupénda in quólibet séminis grano: secúndum ipsam suam misericórdiam servávit sibi quædam, quæ fáceret opportúno témpore præter usitátum cursum ordinémque natúræ; ut non majóra, sed insólita vidéndo stupérent, quibus quotidiána vilúerant.
+
+℟. Spléndida facta est fácies Móysi, dum respíceret in eum Dóminus: \* Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde. ℣. Cumque descendísset

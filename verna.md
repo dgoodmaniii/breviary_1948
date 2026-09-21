@@ -23751,3 +23751,25 @@ DEUS, qui diversitátem géntium in confessióne tui nóminis adunásti: da, ut 
 *Cap. 28, 16-20*
 
 IN illo témpore: Úndecim discípuli abiérunt in Galilǽam in montem, ubi constitúerat illis Jesus. Et réliqua.
+
+Homilía sancti Hierónymi Presbýteri
+
+{RUBRIC: Liber 4 Comment. in Matth., in fine}
+
+POST resurrectiónem Jesus in monte Galilǽæ conspícitur, ibíque adorátur: licet quidam dúbitent, et dubitátio eórum nostram áugeat fidem. Tunc manifestíus osténditur Thomæ, et latus láncea vulnerátum, et manus fixas demónstrat clavis. Accédens Jesus locútus est eis, dicens: Data est mihi omnis potéstas in cælo et in terra. Illi potéstas data est, qui paulo ante crucifíxus, qui sepúltus in túmulo, qui mórtuus jacúerat, qui póstea resurréxit. In cælo autem et in terra potéstas data est: ut qui ante regnábat in cælo, per fidem credéntium regnet et in terris.
+
+℟. Surgens Jesus Dóminus noster, stans in médio discipulórum suórum, dixit: \* Pax vobis, allelúja; gavísi sunt discípuli viso Dómino, allelúja. ℣. Una ergo sabbatórum, cum fores essent clausæ, ubi erant discípuli congregáti, venit Jesus, et stetit in médio eórum, et dixit eis. — Pax.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+EUNTES autem docéte omnes gentes, baptizántes eos in nómine Patris, et Fílii, et Spíritus Sancti. Primum docent omnes gentes, deínde doctas intíngunt aqua. Non enim potest fíeri, ut corpus baptísmi recípiat sacraméntum, nisi ante ánima fídei suscéperit veritátem. Baptizántur autem in nómine Patris, et Fílii, et Spíritus Sancti: ut quorum una est divínitas, una sit largítio: noménque Trinitátis, unus Deus est.
+
+℟. Expurgáte vetus ferméntum, ut sitis nova conspérsio: étenim Pascha nostrum immolátus est Christus: \* Itaque epulémur in Dómino, allelúja. ℣. Mórtuus est propter delícta nostra, et resurréxit propter justificatiónem nostram. — Itaque. Glória Patri. Itaque.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+DOCENTES eos serváre ómnia, quæcúmque mandávi vobis. Ordo præcípuus: jussit Apóstolis, ut primum docérent univérsas gentes, deínde fídei intíngerent sacraménto, et post fidem ac baptísma, quæ essent observánda præcíperent. Ac ne putémus lévia esse, quæ jussa sunt, et pauca, áddidit: Omnia quæcúmque mandávi vobis: ut, quicúm-

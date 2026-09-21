@@ -46077,4 +46077,54 @@ Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio s
 
 Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
 
-Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte. Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+**Ant.** Templum Dómini sanctum est, Dei structúra est, Dei ædificátio est. (T. P. Allelúja.)
+
+**Ant.** Benedícta \* glória Dómini, de loco sancto suo, allelúja.
+
+###### Psalmus 98
+
+DOMINUS regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et honor regis judícium díligit.
+
+Tu parásti directiónes: \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum Deum nostrum, et adoráte scabéllum pedum ejus: \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus: \* et Sámuel inter eos, qui ínvocant nomen ejus:
+
+Invocábant Dóminum, et ipse exaudiébat eos: \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus: \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Benedícta glória Dómini, de loco sancto suo, allelúja.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Qui hábitat in adjutório Altíssimi, in protectióne Dei cæli commorábitur, allelúja.
+
+℣. Hæc est domus Dómini fírmiter ædificáta. (T. P. Allelúja.) ℟. Bene fundáta est supra firmam petram. (T. P. Allelúja.)
+
+**Absolutio.** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+###### Lectio vii
+
+*Cap. 19, 1-10*
+
+IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.

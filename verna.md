@@ -32940,3 +32940,47 @@ IPSE vulnerátus est propter iniquitátes nostras, attrítus est propter scéler
 GENERATIONEM ejus quis enarrábit? quia abscíssus est de terra vivéntium: propter scelus pópuli mei percússi eum.
 
 ℟. br. Deus, vitam meam \* Annuntiávi tibi. Deus. ℣. Posuísti lácrimas meas in conspéctu tuo. Annuntiávi tibi. Glória Patri. Deus. ℣. Ora pro nobis, Virgo dolorosíssima. ℟. Ut digni efficiámur promissiónibus Christi.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia dicuntur ut in I Vesperis 795, præter sequentia:}
+
+℣. Ora pro nobis, Virgo dolorosíssima. ℟. Ut digni efficiámur promissiónibus Christi.
+
+**Ad Magnif. Ant.** Cum vidísset Jesus \* Matrem stantem juxta crucem, et discípulum quem diligébat, dicit Matri suæ: Múlier, ecce fílius tuus. Deínde dicit discípulo: Ecce mater tua.
+
+###### Oratio
+
+DEUS, in cujus passióne, secúndum Simeónis prophetíam, dulcíssimam ánimam gloriósæ Vírginis et Matris Maríæ dolóris gládius pertransívit: concéde propítius; ut, qui transfixiónem ejus et passiónem venerándo recólimus, gloriósis méritis et précibus ómnium Sanctórum cruci fidéliter astántium intercedéntibus, passiónis tuæ efféctum felícem consequámur: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## Festa Aprilis
+
+### Die 2 Aprilis
+
+#### S. Francisci de Paula
+
+{RUBRIC: Conf.}
+
+{RUBRIC: Duplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+DEUS, humílium celsitúdo, qui beátum Francíscum Confessórem Sanctórum tuórum glória sublimásti: tríbue, quǽsumus; ut ejus méritis et imitatióne, promíssa humílibus prǽmia felíciter consequámur. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+FRANCISCUS Paulæ, quod est Calábriæ óppidum, loco húmili natus est; quem paréntes, cum diu prole caruíssent, voto facto, beáti Francísci précibus suscepérunt. Is adoléscens divíno ardóre succénsus, in erémum secéssit, ubi annis sex, victu ásperam sed meditatiónibus cæléstibus

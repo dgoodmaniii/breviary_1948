@@ -44556,4 +44556,58 @@ Lex Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, s
 
 Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
 
-Timor Dómini sanctus, pérmanens in sǽculum sǽ-
+Timor Dómini sanctus, pérmanens in sǽculum sǽculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint dominári, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** Ante torum hujus Vírginis frequentáte nobis dúlcia cántica drámatis.
+
+##### Pro non Virgine
+
+**Ant.** Læva ejus sub cápite meo, et déxtera illíus amplexábitur me.
+
+**Ant.** Revértere, \* revértere, Sunamítis; revértere, revértere, ut intueámur te.
+
+###### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Revértere, revértere, Sunamítis; revértere, revértere, ut intueámur te.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** O quam pulchra est casta generátio cum claritáte! allelúja.
+
+℣. Spécie tua et pulchritúdine tua. (T. P. Allelúja.) ℟. Inténde, próspere procéde, et regna. (T. P. Allelúja.)
+
+**Absolutio** Exáudi, Dómine.
+
+**Benedictio** Benedictióne.

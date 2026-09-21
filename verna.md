@@ -19480,4 +19480,22 @@ IN illo témpore: Abiit Jesus trans mare Galilǽæ, quod est Tiberíadis: et seq
 
 MIRACULA, quæ fecit Dóminus noster Jesus Christus, sunt quidem divína ópera, et ad intelligéndum Deum de visibílibus ádmonent humánam mentem. Quia enim ille non est talis substántia, quæ vidéri óculis possit; et miracula ejus, quibus totum mundum regit, universámque creatúram admínistrat, assiduitáte viluérunt, ita ut pene nemo dignétur atténdere ópera Dei mira et stupénda in quólibet séminis grano: secúndum ipsam suam misericórdiam servávit sibi quædam, quæ fáceret opportúno témpore præter usitátum cursum ordinémque natúræ; ut non majóra, sed insólita vidéndo stupérent, quibus quotidiána vilúerant.
 
-℟. Spléndida facta est fácies Móysi, dum respíceret in eum Dóminus: \* Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde. ℣. Cumque descendísset
+℟. Spléndida facta est fácies Móysi, dum respíceret in eum Dóminus: \* Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde. ℣. Cumque descendísset de monte Sínai, portábat duas tábulas testimónii, ignórans quod cornúta esset fácies ejus ex consórtio sermónis Dei. — Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde.
+
+#### Lectio viii
+
+MAJUS enim miráculum est gubernátio totíus mundi, quam saturátio quinque míllium hóminum de quinque pánibus. Et tamen hoc nemo mirátur: illud mirántur hómines, non quia majus est, sed quia rarum est. Quis enim et nunc pascit univérsum mundum, nisi ille, qui de paucis granis ségetes creat? Fecit ergo quo modo Deus. Unde enim multíplicat de paucis granis ségetes, inde in mánibus suis multiplicávit quinque panes: potéstas enim erat in mánibus Christi. Panes autem illi quinque, quasi sémina erant, non quidem terræ mandáta, sed ab eo, qui terram fecit, multiplicáta.
+
+℟. Ecce mitto Angelum meum, qui præcédat te, et custódiat semper: \* Obsérva et audi vocem meam, et inimícus ero inimícis tuis, et affligéntes te affligam: et præcédet te Angelus meus. ℣. Israël, si me audíeris, non erit in te deus recens, neque adorábis deum aliénum: ego enim Dóminus. — Obsérva.
+
+#### Lectio ix
+
+HOC ergo admótum est sénsibus, quo erigerétur mens: et exhíbitum óculis, ubi exercerétur intelléctus: ut invisíbilem Deum per visibília ópera mirarémur, et erécti ad fidem, et purgáti per fidem, étiam ipsum invisíbilem vidére cuperémus, quem de rebus visibílibus invisíbilem noscerémus. Nec tamen súfficit hæc intuéri in miráculis Christi. Interrogémus ipsa miracula, quid nobis loquántur de Christo: habent enim, si intelligántur, linguam suam. Nam quia ipse Christus Verbum Dei est: étiam factum Verbi, verbum nobis est.
+
+℟. Atténdite, pópule meus, legem meam: \* Inclináte aurem vestram in verba oris mei. ℣. Apériam in parábolis os meum: loquar propositiónes ab inítio sǽculi. — Inclináte. Glória Patri. Inclináte.
+
+### Ad Laudes
+
+**Ant. 1** Tunc acceptábis \* sacrifícium justítiæ, si avérteris fáciem tuam a peccátis meis.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 53}

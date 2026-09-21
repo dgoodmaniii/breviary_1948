@@ -24419,4 +24419,22 @@ ET exínde postulavérunt regem: et dedit illis Deus Saul fílium Cis, virum de 
 
 #### Lectio iii
 
-VIRI fratres, fílii géneris Abraham, et qui in vobis timent Deum, vobis verbum salútis hujus missum est. Qui enim habitábant Jerúsalem, et príncipes ejus hunc ignorántes, et voces prophetárum, quæ per omne sábbatum legúntur, judicántes implevérunt; et nullam causam mortis inveniéntes in eo, petiérunt a Piláto, ut interfícerent eum. Cumque consummássent óm-
+VIRI fratres, fílii géneris Abraham, et qui in vobis timent Deum, vobis verbum salútis hujus missum est. Qui enim habitábant Jerúsalem, et príncipes ejus hunc ignorántes, et voces prophetárum, quæ per omne sábbatum legúntur, judicántes implevérunt; et nullam causam mortis inveniéntes in eo, petiérunt a Piláto, ut interfícerent eum. Cumque consummássent óm-nia quæ de eo scripta erant, deponéntes eum de ligno, posuérunt eum in monuménto. Deus vero suscitávit eum a mórtuis tértia die: qui visus est per dies multos his, qui simul ascénderant cum eo de Galilǽa in Jerúsalem: qui usque nunc sunt testes ejus ad plebem. Et nos vobis annuntiámus eam, quæ ad patres nostros repromíssio facta est: quóniam hanc Deus adimplévit fíliis nostris resúscitans Jesum, sicut et in Psalmo secúndo scriptum est: Fílius meus es tu, ego hódie génui te.
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+#### In II Nocturno
+
+Sermo sancti Leónis Papæ
+
+{RUBRIC: Sermo 1 de Ascensione Dómini, post initium}
+
+#### Lectio iv
+
+HI dies, dilectíssimi, qui inter resurrectiónem Dómini ascensionémque fluxérunt, non otióso transiére decúrsu, sed magna in eis confirmáta sacraménta, magna sunt reveláta mystéria. In iis metus diræ mortis aufértur, et non solum ánimæ, sed étiam carnis immortálitas declarátur. In iis per insufflatiónem Dómini infúnditur Apóstolis ómnibus Spíritus Sanctus: et beáto Apóstolo Petro supra céteros, post regni claves, ovílis Domínici cura mandátur.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+#### Lectio v
+
+IN iis diébus, duóbus discípulis tértius in via Dóminus comes jungitur, et ad omnem nostræ ambiguitátis calíginem detergéndam, pavéntium ac trepidántium tárditas increpátur. Flammam fídei illumináta corda concípiunt: et quæ erant tépida, reseránte Scriptúras Dómino, efficiúntur ardéntia. In fractióne quoque panis, convescéntium aperiúntur obtútus: multo felícius eórum óculis patefáctis, quibus natúræ suæ manifestáta est glorificátio, quam illórum géneris no-

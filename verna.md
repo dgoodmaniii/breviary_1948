@@ -25357,4 +25357,18 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Tractat. 94 in Joann., initio}
 
-CUM Dóminus Jesus prædixísset discípulis suis persecutiónes, quas passúri erant
+CUM Dóminus Jesus prædixísset discípulis suis persecutiónes, quas passúri erant post ejus abscéssum, subjúnxit atque ait: Hæc autem vobis ab inítio non dixi, quia vobíscum eram: nunc autem vado ad eum, qui me misit. Ubi primum vidéndum est, utrum eis futúras non prædíxerit ante passiónes. Sed álii tres Evangelístæ satis eum prædixísse ista demónstrant, ántequam ventum esset ad cœnam: qua perácta, secúndum Joánnem ista locútus est, ubi ait: Hæc autem vobis ab inítio non dixi, quia vobíscum eram.
+
+℟. Deus, cánticum novum cantábo tibi, allelúja: \* In psaltério decem chordárum psallam tibi, allelúja, allelúja. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — In psaltério.
+
+#### Lectio viii
+
+AN forte hinc ista sólvitur quæstio, quia et illi eum narrant passióni próximum fuísse, cum hæc díceret? Non ergo ab inítio, quando cum illis erat: quia jam discessúrus, jamque ad Patrem perrectúrus hæc dixit. Et ídeo étiam secúndum illos Evangelístas verum est, quod hic dictum est: Hæc autem vobis ab inítio non dixi. Sed quid ágimus de fide Evangélii secúndum Matthǽum, qui hæc eis a Dómino non solum cum jam Pascha esset cum discípulis cœnatúrus, imminénte passióne, verum et ab inítio denuntiáta esse commémorat; ubi primum nominátim duódecim exprimúntur Apóstoli, et ad ópera divína mittúntur?
+
+℟. Bonum est confitéri Dómino, allelúja: \* Et psállere, allelúja. ℣. In decachórdo psaltério, cum cántico et cíthara. — Et psállere. Glória Patri. Et psállere.
+
+#### Lectio ix
+
+QUID sibi ergo vult, quod hic ait: Hæc autem vobis ab inítio non dixi, quia vobíscum eram: nisi quia ea, quæ hic dicit de Spíritu Sancto, quod sit ventúrus ad eos, et testimónium perhibitúrus, quando mala illa passúri sunt, hæc ab inítio eis non dixit, quia cum ipsis erat? Consolátor ergo ille, vel advocátus, (utrúmque enim interpretátur, quod est Græce Paráclitus) Christo abscedénte, fúerat necessárius: et ídeo de illo non díxerat ab inítio, quando cum illis erat, quia ejus præséntia consolabántur.
+
+Te Deum laudámus.

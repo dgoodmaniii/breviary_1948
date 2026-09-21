@@ -11531,3 +11531,53 @@ Et vide, si via iniquitátis in me est: \* et deduc me in via ætérna.
 **Ant.** Mirabília ópera tua, Dómine, et ánima mea cognóscit nimis.
 
 **Ant.** Ne derelínquas me, \* Dómine, virtus salútis meæ.
+
+### Psalmus 139
+
+ERipe me, Dómine, ab hómine malo: \* a viro iníquo éripe me.
+
+Qui cogitavérunt iniquitátes in corde: \* tota die constituébant prǽlia.
+
+Acuérunt línguas suas sicut serpéntis: \* venénum áspidum sub lábiis eórum.
+
+Custódi me, Dómine, de manu peccatóris: \* et ab homínibus iníquis éripe me.
+
+Qui cogitavérunt supplantáre gressus meos: \* absondérunt supérbi láqueum mihi:
+
+Et funes extendérunt in láqueum: \* juxta iter scándalum posuérunt mihi.
+
+Dixi Dómino: Deus meus es tu: \* exáudi, Dómine, vocem deprecatiónis meæ.
+
+Dómine, Dómine, virtus salútis meæ: \* obumbrásti super caput meum in die belli.
+
+Ne tradas me, Dómine, a desidério meo peccatóri: \* cogitavérunt contra me, ne derelínquas me, ne forte exalténtur.
+
+Caput circúitus eórum: \* labor labiórum ipsórum opériet eos.
+
+Cadent super eos carbónes, in ignem dejícies eos: \* in misériis non subsístent.
+
+Vir linguósus non dirigétur in terra: \* virum injústum mala cápient in intéritu.
+
+Cognóvi quia fáciet Dóminus judícium ínopis: \* et vindíctam páuperum.
+
+Verúmtamen justi confitebúntur nómini tuo: \* et habitábunt recti cum vultu tuo.
+
+**Ant.** Ne derelínquas me, Dómine, virtus salútis meæ.
+
+**Ant.** Dómine, \* † clamávi ad te, exáudi me. ‡
+
+### Psalmus 140
+
+DOmine, † clamávi ad te, exáudi me: \* ‡ inténde voci meæ, cum clamávero ad te.
+
+Dirigátur orátio mea sicut incénsum in conspéctu tuo: \* elevátio mánuum meárum sacrifícium vespertínum.
+
+Pone, Dómine, custódiam ori meo: \* et óstium circumstántiæ lábiis meis.
+
+Non declínes cor meum in verba malítiæ, \* ad excusándas excusatiónes in peccátis.
+
+Cum homínibus operántibus iniquitátem: \* et non communicábo cum eléctis eórum.
+
+Corrípiet me justus in misericórdia, et increpábit me: \* óleum autem peccatóris non impínguet caput meum.
+
+Quóniam adhuc et orátio mea in beneplácitis eó-

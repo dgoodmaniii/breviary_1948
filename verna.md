@@ -46283,3 +46283,29 @@ ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, ne
 {RUBRIC: Infra Octávam et in die Octáva Antíphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua ut in Festo præter Lectiónes, quæ in I Nocturno dicúntur de Scriptúra occurrénti cum suis Responsóriis de Témpore, in II et III pro síngulis diébus assignántur própriæ.}
 
 ---
+
+## Die II infra Octavam Dedicationis Ecclesiæ
+
+{RUBRIC: Semiduplex}
+
+##### In II Nocturno
+
+Ex Tractátu sancti Augustíni Epíscopi super Psalmos.
+
+{RUBRIC: In Psalm. 121}
+
+###### Lectio iv
+
+JERUSALEM, quæ ædificátur ut cívitas. Fratres, quando dicébat ista David, perfécta erat illa cívitas, non ædificabátur. Néscio quam ergo civitátem dicit, quæ modo ædificátur, ad quam currunt in fide lápides vivi; de quibus dicit Petrus: Et vos tamquam lápides vivi coædificámini in domum spiritálem, id est, templum Dei sanctum. Quid est, Lápides vivi coædificámini? Vivis, si credis: si autem credis, efficiéris templum Dei; quia dicit Apóstolus Paulus: Templum enim Dei sanctum est, quod estis vos.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. (T. P. Allelúja.) ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+###### Lectio v
+
+IPSA ergo modo cívitas ædificátur. Præcidúntur de móntibus lápides per manus prædicántium veritátem, conquadrántur, ut intrent in structúram sempitérnam. Adhuc multi lápides in mánibus artíficis sunt: non cadant de mánibus artíficis, ut possint perfécti coædificári in structúram templi. Est ergo ista Jerúsalem, quæ ædificátur ut cívitas; fundaméntum ipsíus Christus est. Dicit Apóstolus Paulus: Fundaméntum áliud nemo potest pónere præter id quod pósitum est, quod est Christus Jesus.
+
+℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.) ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+###### Lectio vi
+
+FUNDAMENTUM quando pónitur in terra, désuper ædificántur paríetes; et pondus paríetum ad ima tendit, quia in imo pósitum est fundaméntum. Si autem fundaméntum nostrum in cælo est, ad cælum ædificémur. Córpora ædificavérunt istam structúram, quam vidétis am-

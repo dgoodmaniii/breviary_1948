@@ -32011,3 +32011,65 @@ DABIT illi Dóminus Deus sedem David, patris ejus, et regnábit in domo Jacob in
 {RUBRIC: Tempore Paschali}
 
 ℟. br. Adjuvábit eam Deus vultu suo, \* Allelúja, allelúja. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Allelúja, allelúja. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam, allelúja. ℟. In tabernáculo suo habitáre facit eam, allelúja.
+
+##### Ad Nonam
+
+**Ant.** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum. {RUBRIC: (T. P. Allelúja.)}
+
+**Capitulum** *Is. 11, 1-2*
+
+EGREDIETUR virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum Spíritus Dómini.
+
+℟. br. Elégit eam Deus, \* Et præelégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et præelégit eam. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Elégit eam Deus, et præelégit eam, \* Allelúja, allelúja. Elégit. ℣. In tabernáculo suo habitáre facit eam. Allelúja, allelúja. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis, allelúja. ℟. Proptérea benedíxit te Deus in ætérnum, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Añæ et Capitulum de Laudibus 784; Hymnus Ave, maris stella, de Communi. [197]}
+
+℣. Ave, María, grátia plena. {RUBRIC: (T. P. Allelúja.)} ℟. Dóminus tecum. {RUBRIC: (T. P. Allelúja.)}
+
+**Ad Magnif. Ant.** Gábriel Angelus \* locútus est Maríæ dicens: Ave, grátia plena; Dóminus tecum: benedícta tu in muliéribus. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis: ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum nostrum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+---
+
+### Die 27 Martii
+
+#### S. Joannis Damasceni
+
+{RUBRIC: Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex (m. t. v.) [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Joánnes, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+OMNIPOTENS sempitérne Deus, qui ad cultum sacrárum imáginum asseréndum, beátum Joánnem cælésti doctrína et admirábili spíritus fortitúdine imbuísti: concéde nobis ejus intercessióne et exémplo; ut, quorum cólimus imágines, virtútes imitémur et patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones Sapiéntiam, de Communi Doctorum. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+JOANNES, a pátrio loco Damascénus dictus, nóbili génere natus, humánis divinísque lítteris a Cosma mónacho Constantinópoli fuit excúltus; cumque ea tempestáte imperátor Leo Isáuricus nefário bello sacrárum imáginum cultum insectarétur, Joánnes, hortátu Gregórii tértii Románi Pontíficis, et sermóne et scriptis sanctitátem illíus cultus sédulo propugnávit. Quo facto tantam Leónis advérsum se invídiam concitávit, ut hic confíctis lítteris ipsum tamquam proditórem accusárit apud Damásci cálipham, qui Joánne consiliário et adminístro utebátur. Crédulus fraudi princeps Joánni nequídquam calúmniam ejuránti præcídi déxteram jussit. Verum innocéntiæ vindex ádfuit cliénti suo sanctíssima Virgo, cujus opem précibus eníxe imploráverat, ejúsque benefício trunca manus restitúta ita bráchio coáluit, ac si divísa numquam fuísset. Quo máxime miráculo permótus Joánnes, quod pridem ánimo concéperat, éxsequi státuit. Itaque ægre a cálipha impetráto secéssu, suas omnes facultátes in egénos distríbuit, et servos libertáte donávit; tum sacra Palæstínæ loca peregrínus lustrávit, ac demum una cum Cosma institutóre suo in lauram sancti Sabbæ prope Hierosólymam concéssit, ibíque présbyter initiátus est.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+IN religiósæ vitæ palǽstra præclarióra virtútum exémpla mónachis prǽbuit, demissiónis potíssimum et obediéntiæ. Abjectíssima quæque cœnóbii múnia véluti sibi própria deposcébat, ac sédulo obíbat. Contéxtas a se spórtulas venditáre Damásci jussus, in ea nimírum civitáte ubi olim summis honóribus perfún-

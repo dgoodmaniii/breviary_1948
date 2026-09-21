@@ -18447,3 +18447,27 @@ IN arca autem non erat áliud nisi duæ tábulæ lapídeæ, quas posúerat in ea
 ### Oratio
 
 LArgíre nobis, quǽsumus, Dómine, semper spíritum cogitándi quæ recta sunt, propítius et agéndi: ut, qui sine te esse non póssumus, secúndum te vívere valeámus. Per Dóminum.
+
+---
+
+## Dominica VIII post Pentecosten
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 9, 1-14*
+
+FActum est autem cum perfecísset Sálomon ædifícium domus Dómini et ædifícium regis et omne quod optáverat et volúerat fácere, appáruit ei Dóminus secúndo, sicut apparúerat ei in Gábaon. Dixítque Dóminus ad eum: Exaudívi oratiónem tuam et deprecatiónem tuam, quam deprecátus es coram me; sanctificávi domum hanc, quam ædificásti, ut pónerem nomen meum ibi in sempitérnum; et erunt óculi mei et cor meum ibi cunctis diébus. Tu quoque, si ambuláveris coram me, sicut ambulávit pater tuus in simplicitáte cordis et in æquitáte, et féceris ómnia quæ præcépi tibi et legítima mea et judícia mea serváveris, ponam thronum regni tui super Israël in sempitérnum, sicut locútus sum David patri tuo dicens: Non auferétur vir de génere tuo de sólio Israël.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+SI autem aversióne avérsi fuéritis vos et fílii vestri non sequéntes me nec custodiéntes mandáta mea et cæremónias meas, quas propósui vobis, sed abiéritis et coluéritis deos aliénos et adoravéritis eos; áuferam Israël de superfície terræ quam dedi eis, et templum quod sanctificávi nómini meo projíciam a conspéctu meo, erítque Israël in provérbium et in fábulam cunctis pópulis, et domus hæc erit in exémplum: omnis qui transíerit per eam stupébit et sibilábit et dicet: Quare fecit Dóminus sic terræ huic et dómui huic? Et respondébunt: Quia dereliquérunt Dóminum, Deum suum, qui edúxit patres eórum de terra Ægýpti, et secúti sunt deos aliénos et adoravérunt eos et coluérunt eos; idcírco indúxit Dóminus super eos omne malum hoc.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne miseri-

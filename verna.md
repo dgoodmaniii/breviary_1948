@@ -48577,3 +48577,73 @@ Réquiem ætérnam.
 DOMINE, ne in furóre tuo árguas me, \* neque in ira tua corrípias me.
 
 Miserére mei, Dómine, quóniam infírmus sum: \* sana me, Dómine, quóniam conturbáta sunt ossa mea.
+
+Et ánima mea turbáta est valde: \* sed tu, Dómine, úsquequo?
+
+Convértere, Dómine, et éripe ánimam meam: \* salvum me fac propter misericórdiam tuam.
+
+Quóniam non est in morte qui memor sit tui: \* in inférno autem quis confitébitur tibi?
+
+Laborávi in gémitu meo, lavábo per síngulas noctes lectum meum: \* lácrimis meis stratum meum rigábo.
+
+Turbátus est a furóre óculus meus: \* inveterávi inter omnes inimícos meos.
+
+Discédite a me, omnes, qui operámini iniquitátem: \* quóniam exaudívit Dóminus vocem fletus mei.
+
+Exaudívit Dóminus deprecatiónem meam, \* Dóminus oratiónem meam suscépit.
+
+Erubéscant, et conturbéntur veheménter omnes inimíci mei: \* convertántur et erubéscant valde velóciter.
+
+Réquiem ætérnam.
+
+**Ant.** Convértere, Dómine, et éripe ánimam meam: quóniam non est in morte, qui memor sit tui.
+
+**Ant.** Nequándo rápiat \* ut leo ánimam meam, dum non est qui rédimat, neque qui salvum fáciat.
+
+###### Psalmus 7
+
+DOMINE, Deus meus, in te sperávi: \* salvum me fac ex ómnibus persequéntibus me, et líbera me.
+
+Nequándo rápiat ut leo ánimam meam, \* dum non est qui rédimat, neque qui salvum fáciat.
+
+Dómine, Deus meus, si feci istud, \* si est iníquitas in mánibus meis:
+
+Si réddidi retribuéntibus mihi mala, \* décidam mérito ab inimícis meis inánis.
+
+Persequátur inimícus ánimam meam, et comprehéndat, et concúlcet in terra vitam meam, \* et glóriam meam in púlverem dedúcat.
+
+Exsúrge, Dómine, in ira tua: \* et exaltáre in fínibus inimicórum meórum.
+
+Et exsúrge, Dómine, Deus meus, in præcépto quod mandásti: \* et synagóga populórum circúmdabit te.
+
+Et propter hanc in altum regrédere: \* Dóminus júdicat pópulos.
+
+Júdica me, Dómine, secúndum justítiam meam, \* et secúndum innocéntiam meam super me.
+
+Consumétur nequítia peccatórum, et díriges justum, \* scrutans corda et renes, Deus.
+
+Justum adjutórium meum a Dómino, \* qui salvos facit rectos corde.
+
+Deus judex justus, fortis, et pátiens: \* numquid iráscitur per síngulos dies?
+
+Nisi convérsi fuéritis, gládium suum vibrábit: \* arcum suum teténdit, et parávit illum.
+
+Et in eo parávit vasa mortis: \* sagíttas suas ardéntibus effécit.
+
+Ecce partúriit injustítiam: \* concépit dolórem, et péperit iniquitátem.
+
+Lacum apéruit, et effódit eum: \* et íncidit in fóveam quam fecit.
+
+Convertétur dolor ejus in caput ejus: \* et in vérticem ipsíus iníquitas ejus descéndet.
+
+Confitébor Dómino secúndum justítiam ejus: \* et psallam nómini Dómini altíssimi.
+
+Réquiem ætérnam.
+
+**Ant.** Nequándo rápiat ut leo ánimam meam, dum non est qui rédimat, neque qui salvum fáciat.
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+Pater noster, {RUBRIC: totum secreto.}
+
+{RUBRIC: Lectiones leguntur sine Absolutione, Benedictionibus et Titulo.}

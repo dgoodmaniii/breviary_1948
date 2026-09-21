@@ -27949,4 +27949,28 @@ LIBET, fratres caríssimi, evangélicæ verba lectiónis sub brevitáte transcú
 
 #### Lectio ii
 
-SED ecce, si unusquísque vestrum requirátur an díligat Deum, tota fidúcia et secúra mente respóndet, Díligo. In ipso autem lectiónis exórdio audístis quid Véritas di-
+SED ecce, si unusquísque vestrum requirátur an díligat Deum, tota fidúcia et secúra mente respóndet, Díligo. In ipso autem lectiónis exórdio audístis quid Véritas dicit: Si quis díligit me, sermónem meum servábit. Probátio ergo dilectiónis, exhibítio est óperis. Hinc in epístola sua idem Joánnes dicit: Qui dicit, Díligo Deum, et mandáta ejus non custódit, mendax est. Vere étenim Deum dilígimus et mandáta ejus custodímus, si nos a nostris voluptátibus coarctámus. Nam qui adhuc per illícita desidéria díffluit, profécto Deum non amat, quia ei in sua voluntáte contradícit.
+
+℟. Repléti sunt omnes Spíritu Sancto: et cœpérunt loqui, prout Spíritus Sanctus dabat éloqui illis: \* Et convénit multitúdo dicéntium, allelúja. ℣. Loquebántur váriis linguis Apóstoli magnália Dei. — Et convénit. Glória Patri. Et convénit.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+ET Pater meus díliget eum, et ad eum veniémus, et mansiónem apud eum faciémus. Pensáte, fratres caríssimi, quanta sit ista dígnitas, habére in cordis hospítio advéntum Dei. Certe, si domum nostram quisquam dives aut præpotens amícus intráret, omni festinántia domus tota mundarétur, ne quid fortásse esset quod óculos amíci intrántis offénderet. Tergat ergo sordes pravi óperis, qui Deo præparat domum mentis. Sed vidéte quid Véritas dicat: Veniémus, et mansiónem apud eum faciémus. In quorúmdam étenim corda venit, et mansiónem non facit: quia, per compunctiónem quidem, Dei respéctum percípiunt, sed tentatiónis témpore hoc ipsum quo compúncti fúerant, oblivíscúntur; sicque ad perpetránda peccáta rédeunt, ac si hæc mínime planxíssent.
+
+Te Deum laudámus.
+
+## Ad Laudes et per Horas, Antiphonæ
+
+**1** Cum compleréntur \* dies Pentecóstes, erant omnes páriter in eódem loco, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+**2** Spíritus Dómini \* replévit orbem terrárum, allelúja.
+
+**3** Repléti sunt omnes \* Spíritu Sancto, et cœpérunt loqui, allelúja, allelúja.
+
+**4** Fontes, et ómnia \* quæ movéntur in aquis, hymnum dícite Deo, allelúja.
+
+**5** Loquebántur \* váriis linguis Apóstoli magnália Dei, allelúja, allelúja, allelúja.

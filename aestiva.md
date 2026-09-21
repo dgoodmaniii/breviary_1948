@@ -7528,3 +7528,113 @@ Cor meum conturbátum est in me: \* et formído mortis cécidit super me.
 Timor et tremor venérunt super me: \* et contexérunt me ténebræ.
 
 Et dixi: Quis dabit mihi pennas sicut colúmbæ, \* et volábo, et requiéscam?
+
+Ecce, elongávi fúgiens: \* et mansi in solitúdine.
+
+Exspectábam eum, qui salvum me fecit \* a pusillanimitáte spíritus et tempestáte.
+
+Præcípita, Dómine, dívide linguas eórum: \* quóniam vidi iniquitátem, et contradictiónem in civitáte.
+
+Die ac nocte circúmdabit eam super muros ejus iníquitas: \* et labor in médio ejus, et injustítia.
+
+Et non defécit de platéis ejus \* usúra, et dolus.
+
+Quóniam si inimícus meus maledixísset mihi, \* sustinuíssem útique.
+
+Et si is, qui óderat me, super me magna locútus fuísset, \* abscondíssem me fórsitan ab eo.
+
+Tu vero, homo unánimis: \* dux meus, et notus meus:
+
+Qui simul mecum dulces capiébas cibos: \* in domo Dei ambulávimus cum consénsu.
+
+Véniat mors super illos: \* et descéndant in inférnum vivéntes:
+
+Quóniam nequítiæ in habitáculis eórum: \* in médio eórum.
+
+### Psalmus 54, ii
+
+EGo autem ad Deum clamávi: \* et Dóminus salvábit me.
+
+Véspere, et mane, et merídie narrábo et annuntiábo: \* et exáudiet vocem meam.
+
+Rédimet in pace ánimam meam ab his, qui appropínquant mihi: \* quóniam inter multos erant mecum.
+
+Exáudiet Deus, et humiliábit illos, \* qui est ante sæcula.
+
+Non enim est illis commutátio, et non timuérunt Deum: \* exténdit manum suam in retribuéndo.
+
+Contaminavérunt testaméntum ejus, divísi sunt ab ira vultus ejus: \* et appropinquávit cor illíus.
+
+Mollíti sunt sermónes ejus super óleum: \* et ipsi sunt jácula.
+
+Jacta super Dóminum curam tuam, et ipse te enútriet: \* non dabit in ætérnum fluctuatiónem justo.
+
+Tu vero, Deus, dedúces eos, \* in púteum intéritus.
+
+Viri sánguinum, et dolósi non dimidiábunt dies suos: \* ego autem sperábo in te, Dómine.
+
+**Ant.** Deus ádjuvat me: et Dóminus suscéptor est ánimæ meæ.
+
+#### In Officio feriali
+
+**Capitulum** *Jer. 17, 14*
+
+SAna me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 19}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** In Deo sperávi.
+
+### Psalmus 55
+
+MIserére mei, Deus, quóniam conculcávit me homo: \* tota die impúgnans tribulávit me.
+
+Conculcavérunt me inimíci mei tota die: \* quóniam multi bellántes advérsum me.
+
+Ab altitúdine diéi timébo: \* ego vero in te sperábo.
+
+In Deo laudábo sermónes meos, in Deo sperávi: \* non timébo quid fáciat mihi caro.
+
+Tota die verba mea exsecrabántur: \* advérsum me omnes cogitatiónes eórum in malum.
+
+Inhabitábunt et abscóndent: \* ipsi calcáneum meum observábunt.
+
+Sicut sustinuérunt ánimam meam, pro níhilo salvos fácies illos: \* in ira pópulos confrínges.
+
+Deus, vitam meam annuntiávi tibi: \* posuísti lácrimas meas in conspéctu tuo.

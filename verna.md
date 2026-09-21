@@ -37688,4 +37688,32 @@ AD suam ítaque revértens ecclésiam, cum de consuéta vivéndi ratióne nihil 
 
 ###### Lectio vi
 
-BIENNIO ántequam ex hac vita migráret, cum diutínis afflictarétur infirmitátibus, inter acerbíssimos córporis cruciátus velut aurum in fornáce purgátum, Deo grátias indesinénter agébat. Adveniénte autem sacro Pentecóstes die, cum multis annis ecclésiam sibi commíssam summa cum laude gubernásset, sanctis opéribus ac miráculis clarus quiévit in pace. Quem Cælestínus Papa tértius in Sanctórum númerum rétulit. Ejus virtus præcípue in effugándis spi-
+BIENNIO ántequam ex hac vita migráret, cum diutínis afflictarétur infirmitátibus, inter acerbíssimos córporis cruciátus velut aurum in fornáce purgátum, Deo grátias indesinénter agébat. Adveniénte autem sacro Pentecóstes die, cum multis annis ecclésiam sibi commíssam summa cum laude gubernásset, sanctis opéribus ac miráculis clarus quiévit in pace. Quem Cælestínus Papa tértius in Sanctórum númerum rétulit. Ejus virtus præcípue in effugándis spirítibus immúndis elúcet. Corpus vero, per tot sǽcula incorrúptum, magna fidélium veneratióne in pátria cólitur, quam non semel a præsénti discrímine liberávit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+UBALDUS Eugúbii in Úmbria nóbili génere natus, a primis annis pietáte et lítteris egrégie est institútus; jamque adoléscens, ut uxórem dúceret, sæpe tentátus, numquam tamen a propósito servándæ virginitátis recéssit. Sacérdos efféctus, patrimónium suum paupéribus et ecclésiis distríbuit. Canonicórum regulárium órdinis sancti Augustíni institútum suscípiens, illud in pátriam tránstulit. Ab Honório secúndo summo Pontífice ecclésiæ Eugubínæ invítus præfícitur, et episcopális consecratiónis múnere decorátur. Factus forma gregis ex ánimo, de consuéta vivéndi ratióne nihil ádmodum immutávit, et in omni virtútum génere enítuit. Diútius infirmitátibus afflíctus, Deo indesinénter grátias agébat. Cum multis annis ecclésiam sibi commíssam summa cum laude gubernásset, sanctis opéribus et miráculis clarus, quiévit in pace.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Communi Conf. Pont. 1 loco. [96]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+AUXILIUM tuum nobis, Dómine, quǽsumus, placátus impénde: et intercessióne beáti Ubáldi Confessóris tui atque Pontíficis, contra omnes diáboli nequítias déxteram super nos tuæ propitiatiónis exténde. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}

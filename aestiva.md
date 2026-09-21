@@ -16425,3 +16425,27 @@ In Deo faciémus virtútem: \* et ipse ad níhilum edúcet inimícos nostros.
 **Ant.** Psallam tibi in natiónibus, quia magna est super cælos misericórdia tua.
 
 ℣. Memóriam fecit mirabílium suórum miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 19, 31-37*
+
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce córpora sábbato, erat enim magnus dies ille sábbati, rogavérunt Pilátum ut frangeréntur eórum crura et tolleréntur. Et réliqua.
+
+{RUBRIC: Homilía sancti Bonaventúræ Epíscopi}
+
+{RUBRIC: Liber de ligno vitæ, num. 30}
+
+ET de látere Christi dormiéntis in cruce formarétur Ecclésia, et Scriptúra implerétur quæ dicit: Vidébunt in quem transfixérunt, divína est ordinatióne indúltum ut unus mílitum láncea latus illud sacrum aperiéndo perfóderet, quátenus, sánguine cum aqua manánte, prétium effundarétur nostræ salútis, quod a fonte, scílicet Cordis arcáno profúsum, vim daret sacraméntis Ecclésiæ ad vitam grátiæ conferéndam, essétque jam in Christo vivéntibus póculum fontis vivi, saliéntis in vitam ætérnam. Surge ígitur, ánima amíca Christi, vigiláre non cesses, ibi os appóne, ut háurias aquas de fóntibus salvatóris.
+
+℟. Ego si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia.
+
+##### Lectio viii
+
+{RUBRIC: De vite mystica Cap. 3}
+
+QUia semel vénimus ad Cor Dómini Jesu dulcíssimi, et bonum est nos hic esse, non fácile evellámur ab eo. O quam bonum et jucúndum habitáre in Corde hoc. Bonus thesáurus, pretiósa margaríta Cor tuum, óptime Jesu, quam fosso agro córporis tui invénimus. Quis hanc margarítam abjíciat? Quin pótius, dabo omnes margarítas, cogitatiónes et affectiónes meas commutábo et comparábo illam mihi, jactans omnem cogitátum meum in Cor boni Jesu, et sine fallácia illud me enútriet. Hoc ígitur tuo et meo Corde, dulcíssime Jesu, invénto, orábo te Deum meum: admítte in sacrárium exauditiónis preces meas: immo me totum trahe in Cor tuum.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et ambulémus. Glória Patri. Et ambulémus in dilectióne.

@@ -24758,4 +24758,18 @@ De Actibus Apostolórum
 
 *Cap. 28, 16-31*
 
-CUM autem venissémus Romam, permíssum est Paulo manére síbimet cum custodiénte se mílite. Post tértium autem diem convocávit primos Judæórum. Cumque conveníssent, dicébat eis: Ego, viri fratres, nihil advérsus plebem fáciens, aut morem patérnum, vinctus ab Jerosólymis tráditus sum in manus Romanórum, qui cum interrogatiónem de me habuíssent, volué-
+CUM autem venissémus Romam, permíssum est Paulo manére síbimet cum custodiénte se mílite. Post tértium autem diem convocávit primos Judæórum. Cumque conveníssent, dicébat eis: Ego, viri fratres, nihil advérsus plebem fáciens, aut morem patérnum, vinctus ab Jerosólymis tráditus sum in manus Romanórum, qui cum interrogatiónem de me habuíssent, volué-runt me dimíttere, eo quod nulla esset causa mortis in me. Contradicéntibus autem Judǽis, coáctus sum appelláre Cǽsarem, non quasi gentem meam habens áliquid accusáre. Propter hanc ígitur causam rogávi vos vidére et álloqui. Propter spem enim Israël caténa hac circúmdatus sum.
+
+℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mórtuus est peccáto, mórtuus est semel: \* Quod autem vivit, vivit Deo, allelúja, allelúja. ℣. Mórtuus est semel propter delícta nostra, et resurréxit propter justificatiónem nostram. — Quod.
+
+#### Lectio ii
+
+AT illi dixérunt ad eum: Nos neque lítteras accépimus de te a Judǽa, neque advéniens áliquis fratrum nuntiávit aut locútus est quid de te malum. Rogámus autem a te audíre quæ sentis: nam de secta hac notum est nobis quia ubíque ei contradícitur. Cum constituíssent autem illi diem, venérunt ad eum in hospítium plúrimi, quibus expónebat testíficans regnum Dei, suadénsque eis de Jesu ex lege Móysi et prophétis a mane usque ad vésperam. Et quidam credébant his, quæ dicebántur: quidam vero non credébant.
+
+℟. Surréxit pastor bonus, qui ánimam suam pósuit pro óvibus suis, et pro grege suo mori dignátus est: \* Allelúja, allelúja, allelúja. ℣. Etenim Pascha nostrum immolátus est Christus. — Allelúja.
+
+{RUBRIC: In Octavis simplicibus et in Officio sanctæ Maríæ in Sábbato:} Glória Patri. Allelúja.
+
+#### Lectio iii
+
+CUMQUE ínvicem non essent consentiéntes, discedébant, dicénte Paulo unum verbum: Quia bene Spíritus Sanctus locútus est per Isaíam prophétam ad patres nostros, dicens: Vade ad pópulum istum, et dic ad eos: Aure audiétis, et non intelligétis: et vidéntes vidébitis, et non perspiciétis. Incrassátum est enim cor pópuli hujus, et áuribus gráviter audiérunt, et óculos suos compressérunt: ne forte vídeant óculis, et áuribus áudiant, et corde intélligant, et convertántur, et sanem eos. Notum ergo sit vobis, quóniam géntibus missum est hoc salutáre Dei, et ipsi áudient. Et cum hæc dixísset, exiérunt ab eo Judǽi, multam

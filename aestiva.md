@@ -6150,3 +6150,63 @@ Jussis tuis obtémperet:
 Nullis malis appróximet:
 Bonis repléri gáudeat,
 Et mortis ictum nésciat.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Exsultávit \* spíritus meus in Deo, salutári meo.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dícitur totum secréto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Tu Dómine.
+
+### Psalmus 11
+
+SALVUM me fac, Dómine, quóniam defécit sanctus: \* quóniam diminútæ sunt veritátes a fíliis hóminum.
+
+Vana locúti sunt unusquísque ad próximum suum: \* lábia dolósa, in corde et corde locúti sunt.
+
+Dispérdat Dóminus univérsa lábia dolósa, \* et linguam magníloquam.
+
+Qui dixérunt: Linguam nostram magnificábimus, lábia nostra a nobis sunt, \* quis noster Dóminus est?
+
+Propter misériam ínopum, et gémitum páuperum, \* nunc exsúrgam, dicit Dóminus.
+
+Ponam in salutári: \* fiduciáliter agam in eo.
+
+Elóquia Dómini, elóquia casta: \* argéntum igne examinátum, probátum terræ purgátum séptuplum.
+
+Tu, Dómine, servábis nos: et custódies nos \* a generatióne hac in ætérnum.
+
+In circúitu ímpii ámbulant: \* secúndum altitúdinem tuam multiplicásti fílios hóminum.
+
+### Psalmus 12
+
+USQUEQUO, Dómine, oblivascéris me in finem? \* Usquequo avértis fáciem tuam a me?

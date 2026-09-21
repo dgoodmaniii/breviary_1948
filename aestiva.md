@@ -19470,4 +19470,32 @@ ET quid de Judǽis dico? Sunt étiam in nobis, qui habent timórem Dei, sed non 
 
 BAsis quædam verbi est timor sanctus. Sicut enim simulácrum áliquod in basi statúitur, et tunc majórem habet grátiam, cum in basi státua fúerit collocáta, standíque áccipit firmitátem: ita verbum Dei in timóre sancto mélius statúitur, fórtius radicátur in péctore timéntis Dóminum; ne labátur verbum de corde viri, ne véniant vólucres et áuferant illud de incuriósi et dissimulántis afféctu.
 
-℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déne-
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne dénegáveris mihi, ántequam móriar. — Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. Glória Patri. Divítias.
+
+{RUBRIC: ℟. vii Dómine et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De Parábolis Salomónis}
+
+##### Lectio i
+
+*Cap. 3, 1-15*
+
+FIli mi, ne obliviscáris legis meæ, et præcépta mea cor tuum custódiat; longitúdinem enim diérum et annos vitæ et pacem appónent tibi. Misericórdia et véritas te non déserant: circúmda eas gútturi tuo et descríbe in tábulis cordis tui, et invénies grátiam et disciplínam bonam coram Deo et homínibus. Habe fidúciam in Dómino ex toto corde tuo et ne innitáris prudéntiæ tuæ; in ómnibus viis tuis cógita illum, et ipse díriget gressus tuos.
+
+℟. Ne derelínquas me, Dómine, pater et dominátor vitæ meæ, ut non córruam in conspéctu adversariórum meórum: \* Ne gáudeat de me inimícus meus. ℣. Apprehénde arma et scutum et exsúrge in adjutórium mihi. — Ne gáudeat.
+
+##### Lectio ii
+
+NE sis sápiens apud temetípsum, time Deum et recéde a malo; sánitas quippe erit umbilíco tuo et irrigátio óssium tuórum. Honóra Dóminum de tua substántia et de primítiis ómnium frugum tuárum da ei; et implebúntur hórrea tua saturitáte, et vino torculária tua redundábunt.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+DIsciplínam Dómini, fili mi, ne abjícias, nec defícias, cum ab eo corríperis; quem enim díligit Dóminus, córripit, et quasi pater in fílio cómplacet sibi. Beátus homo qui invénit sapiéntiam et qui áffluit prudéntia. Mélior est acquisítio ejus negotiatióne argénti, et auri primi et puríssimi fructus ejus; pretiósior est cunctis ópibus, et ómnia, quæ desiderántur, huic non valent comparári.

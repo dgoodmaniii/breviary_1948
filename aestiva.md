@@ -15372,4 +15372,24 @@ IN illo témpore: Dixit Jesus pharisǽis parábolam hanc: Homo quidam fecit cœn
 
 {RUBRIC: Homilía 36 in Evangelia}
 
-HOC distáre, fratres caríssimi, inter delícias córporis et cordis solet: quod corporáles delíciæ, cum non habéntur, grave in se desidérium accéndunt; cum vero ávide edúntur, comedéntem prótinus in fastídium per satietátem vertunt. At contra, spiritáles delíciæ, cum non habéntur, in fastídio sunt; cum vero habéntur, in desidério: tantóque a comedénte ámplius esuriúntur, quanto et ab esuriénte ámplius come-
+HOC distáre, fratres caríssimi, inter delícias córporis et cordis solet: quod corporáles delíciæ, cum non habéntur, grave in se desidérium accéndunt; cum vero ávide edúntur, comedéntem prótinus in fastídium per satietátem vertunt. At contra, spiritáles delíciæ, cum non habéntur, in fastídio sunt; cum vero habéntur, in desidério: tantóque a comedénte ámplius esuriúntur, quanto et ab esuriénte ámplius comedúntur. In illis appetítus placet, experiéntia dísplicet: in istis appetítus vilis est, et experiéntia magis placet. In illis appetítus saturitátem, satúritas fastídium génerat; in istis autem appetítus saturitátem, satúritas appetítum parit.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In.
+
+##### Lectio viii
+
+AUgent enim spiritáles delíciæ desidérium in mente, dum sátiant: quia, quando magis eárum sapor percípitur, eo ámplius cognóscitur quod avídius amétur; et idcírco non hábitæ amári non possunt, quia eárum sapor ignorátur. Quis enim amáre váleat quod ignórat? Proínde Psalmísta nos admónet, dicens: Gustáte et vidéte, quóniam suávis est Dóminus. Ac si apérte dicat: Suavitátem ejus non cognóscitis, si hanc mínime gustátis; sed cibum vitæ ex paláto cordis tángite, ut probántes ejus dulcédinem, amáre valeátis. Has autem homo delícias tunc amísit, cum in paradíso peccávit; extra éxiit, cum os a cibo ætérnæ dulcédinis clausit.
+
+℟. Homo quidam fecit cœnam magnam, et misit servum suum hora cœnæ dícere invitátis, ut venírent, \* Quia paráta sunt ómnia. ℣. Veníte, comédite panem meum, et bíbite vinum, quod míscui vobis. — Quia. Glória Patri. Quia.
+
+##### Lectio ix
+
+UNde nos quoque, nati in hujus peregrinatiónis ærúmna, huc fastidiósi jam vénimus, nescímus quid desideráre debeámus. Tantóque se ámplius fastídii nostri morbus exággerat, quanto se magis ab esu illíus dulcédinis ánimus elóngat; et eo jam intérnas delícias non áppetit, quo eas comédere, diu longéque desuévit. Fastídio ergo nostro tabéscimus, et longa inédiæ peste fatigámur. Et quia gustáre intus nólumus parátam dulcédinem, amámus foris míseri famem nostram.
+
+**Te Deum laudámus.** [7]
+
+### Ad Laudes
+
+**Ant. 1** Sapiéntia \* ædificávit sibi domum, míscuit vinum et pósuit mensam, allelúja.
+
+{RUBRIC: Psalmi de Dominica. 36}

@@ -47307,4 +47307,16 @@ Homilía sancti Bedæ Venerábilis Presbýteri
 
 {RUBRIC: Liber 4, cap. 49 in Luc. 11}
 
-AGNÆ devotiónis et fídei hæc múlier osténditur, quæ, scribis et pharisǽis Dóminum tentántibus simul
+AGNÆ devotiónis et fídei hæc múlier osténditur, quæ, scribis et pharisǽis Dóminum tentántibus simul et blasphemántibus, tanta ejus incarnatiónem præ ómnibus sinceritáte cognóscit, tanta fidúcia confitétur, ut et præséntium prócerum calúmniam, et futurórum confúndat hæreticórum perfídiam. Nam, sicut tunc Judǽi, Sancti Spíritus ópera blasphemándo, verum consubstantialémque Patri Dei Fílium negábant: sic hærétici póstea, negándo Maríam semper Vírginem, Sancti Spíritus operánte virtúte, nascitúro cum humánis membris Unigénito Dei, carnis suæ matériam ministrásse, verum consubstantialémque matri Fílium hóminis fatéri non debére dixérunt.
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima: \* Quia ex te ortus est sol justítiæ, Christus, Deus noster. (T. P. Allelúja.) ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam festivitátem. — Quia.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+###### Lectio viii
+
+SED, si caro Verbi Dei secúndum carnem nascéntis a carne Vírginis matris pronuntiátur extránea, sine causa venter qui eam portásset, úbera quæ lactássent, beatificántur. Dicit autem Apóstolus: Quia misit Deus Fílium suum factum ex muliére, factum sub lege. Neque audiéndi sunt, qui legéndum putant: Natum ex muliere, factum sub lege, sed, Factum ex muliére: quia concéptus ex útero virgináli, carnem non de níhilo, non aliúnde, sed matérna traxit ex carne. Alióquin nec vere Fílius hóminis dicerétur, qui oríginem non habéret ex hómine. Et nos ígitur, his contra Eutýchen dictis, extollámus vocem cum Ecclésia cathólica, cujus hæc múlier typum gessit, extollámus et mentem de médio turbárum, dicamúsque Salvatóri: Beátus venter qui te portávit, et úbera quæ suxísti. Vere enim beáta parens, quæ, sicut quidam ait, Eníxa est puérpera Regem, qui cælum terrámque tenet per sǽcula.
+
+℟. Beátam me dicent omnes generatiónes: \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. (T. P. Allelúja.) ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia. Glória Patri. Quia.
+
+**Benedictio.** Ad societátem.

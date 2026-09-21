@@ -12103,3 +12103,61 @@ Salvos nos fac, Dómine, Deus noster: \* et cóngrega nos de natiónibus:
 Ut confiteámur nómini sancto tuo: \* et gloriémur in laude tua.
 
 Benedíctus Dóminus Deus Israël, a sæculo et usque in sæculum: \* et dicet omnis pópulus: Fiat, fiat.
+
+**Ant.** Cum tribularéntur, vidit Dóminus: et audívit oratiónem eórum.
+
+---
+
+#### In Officiis novem Lectionum:
+
+℣. Salvos nos fac, Dómine, Deus noster. ℟. Ut confiteámur nómini sancto tuo.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+### In III Nocturno
+
+**Ant.** Clamavérunt ad Dóminum: \* et de necessitátibus eórum liberávit eos.
+
+### Psalmus 106, i
+
+COnfitémini Dómino quóniam bonus: \* quóniam in sæculum misericórdia ejus.
+
+Dicant qui redémpti sunt a Dómino, quos redémit de manu inimíci: \* et de regiónibus congregávit eos:
+
+A solis ortu, et occásu: \* ab aquilóne, et mari.
+
+Erravérunt in solitúdine in inaquóso: \* viam civitátis habitáculi non invenérunt.
+
+Esuriéntes, et sitiéntes: \* ánima eórum in ipsis defécit.
+
+Et clamavérunt ad Dóminum cum tribularéntur: \* et de necessitátibus eórum erípuit eos.
+
+Et dedúxit eos in viam rectam: \* ut irent in civitátem habitatiónis.
+
+Confiteántur Dómino misericórdiæ ejus: \* et mirabília ejus fíliis hóminum.
+
+Quia satiávit ánimam inánem: \* et ánimam esuriéntem satiávit bonis.
+
+Sedéntes in ténebris, et umbra mortis: \* vinctos in mendicitáte et ferro.
+
+Quia exacerbavérunt elóquia Dei: \* et consílium Altíssimi irritavérunt.
+
+Et humiliátum est in labóribus cor eórum: \* infirmáti sunt, nec fuit qui adjuváret.
+
+Et clamavérunt ad Dóminum cum tribularéntur: \* et de necessitátibus eórum liberávit eos.
+
+Et edúxit eos de ténebris, et umbra mortis: \* et víncula eórum disrúpit.
+
+**Ant.** Clamavérunt ad Dóminum: et de necessitátibus eórum liberávit eos.
+
+**Ant.** Ipsi vidérunt \* ópera Dei, et mirabília ejus.
+
+### Psalmus 106, ii
+
+COnfiteántur Dómino misericórdiæ ejus: \* et mirabília ejus fíliis hóminum.
+
+Quia contrívit portas áereas: \* et vectes férreos confrégit.
+
+Suscépit eos de via iniquitátis eórum: \* propter injustítias enim suas humiliáti sunt.

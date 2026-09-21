@@ -34922,4 +34922,30 @@ SED, ne quisnam hic paréntes consanguíneos pótius Maríæ cum ipsa Matre ejus
 
 #### Lectio ix
 
-LUCAS autem non ab inítio Evangélii sui, sed a baptísmo Christi generatiónes enárrat, nec descendéndo, sed ascendéndo, tamquam sacerdótem in expiándis peccátis magis assígnans; ubi eum vox de cælo declarávit, ubi testimónium Joánnes ipsi perhíbuit dicens: Ecce qui tollit peccáta mundi. Ascendéndo autem transit Abraham et pérvenit ad Deum, cui mundáti et expiáti reconciliámur. Mérito et adoptiónis oríginem ipse suscépit, quia per adoptiónem effícimur fílii Dei, credéndo in Fílium Dei. Satis autem demonstrávit, non se ídeo dixísse, Joseph fílium Heli, quod de illo génitus, sed quod ab illo fúerat adoptátus; cum et ipsum
+LUCAS autem non ab inítio Evangélii sui, sed a baptísmo Christi generatiónes enárrat, nec descendéndo, sed ascendéndo, tamquam sacerdótem in expiándis peccátis magis assígnans; ubi eum vox de cælo declarávit, ubi testimónium Joánnes ipsi perhíbuit dicens: Ecce qui tollit peccáta mundi. Ascendéndo autem transit Abraham et pérvenit ad Deum, cui mundáti et expiáti reconciliámur. Mérito et adoptiónis oríginem ipse suscépit, quia per adoptiónem effícimur fílii Dei, credéndo in Fílium Dei. Satis autem demonstrávit, non se ídeo dixísse, Joseph fílium Heli, quod de illo génitus, sed quod ab illo fúerat adoptátus; cum et ipsum Adam fílium Dei dixit, cum sit factus a Deo, sed per grátiam, quam póstea peccándo amísit, tamquam fílius in paradíso constitútus sit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## Feria VI
+
+De III die infra Octav. S. Joseph
+
+{RUBRIC: Semiduplex 873}
+
+### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+{RUBRIC: Homilia 4 in Matth.}
+
+#### Lectio iv
+
+HUNC morem plerúmque tenébat antíquitas, ut sponsæ in sponsórum dómibus haberéntur: sic habitábat étiam María cum Sponso. Et cujus tandem rei grátia, non ántequam desponderétur, Virgo concépit? Ut vidélicet mystérium ínterim quasi obumbrátum latéret, et ut Virgo omnem prorsus occasiónem malígnæ suspiciónis effúgeret. Quando enim ille, qui præcípuo zelo posset ardére, cérnitur non solum non abjícere Sponsam, nec eam ignomínia notáre, sed étiam recípere in consórtium et inservíre post conceptiónem, profécto maniféstum est, quod nisi apérte nosset ex operatióne Sancti Spíritus illum exstitísse concéptum, numquam vel apud se illam retinuísset, vel ei in ómnibus, quorum indíguit, ministrásset.
+
+℟. Dedísti mihi protectiónem salútis tuæ et déxtera tua suscépit me: \* Protéctor meus et cornu salútis meæ et susceptor meus, allelúja. ℣. Ego protéctor tuus sum et merces tua magna nimis. — Protéctor.
+
+#### Lectio v
+
+JOSEPH autem, cum esset justus et nollet eam tradúcere, vóluit occúlte dimíttere eam. Postquam dixit, quod esset ex Spíritu Sancto et absque ulla mixtióne séxuum, sermónem suum étiam aliúnde confírmat. Ne enim áliquis díceret: Et unde hoc potest esse manifestum? quis vidit? quis audívit aliquándo tale áliquid contigísse? neque putáres discípulum, quasi gratificátum magístro, ista confíngere; introdúcit Joseph ex his, quæ passus est, fidem dictis per cuncta faciéntem, ut plane hinc dícere Evangelísta videátur: Si non credis mihi et testimónium tibi meum forte suspéctum est, crede ígitur vel marito.

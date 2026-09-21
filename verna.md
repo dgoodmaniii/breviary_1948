@@ -36704,3 +36704,43 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 ###### Psalmus 10
 
 IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Oculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Concússum est mare, et contrémuit terra, ubi Archángelus Míchaël descendébat de cælo, allelúja.
+
+℣. Stetit Angelus juxta aram templi, allelúja. ℟. Habens thuríbulum áureum in manu sua, allelúja.
+
+De Daniéle Prophéta
+
+**Lectio i** *Cap. 7, 9-11*
+
+ASPICIEBAM donec throni pósiti sunt, et antíquus diérum sedit. Vestiméntum ejus cándidum quasi nix, et capílli cápitis ejus quasi lana munda, thronus ejus flammæ ignis, rotæ ejus ignis accénsus. Flúvius ígneus rapidúsque egrediebátur a fácie ejus; míllia míllium ministrábant ei, et décies míllies centéna míllia assistébant ei. Judícium sedit, et libri apérti sunt. Aspiciébam propter vocem sermónum grándium, quos cornu illud loquebátur; et vidi quóniam interfécta esset

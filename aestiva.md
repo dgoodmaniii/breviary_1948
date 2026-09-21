@@ -18396,4 +18396,30 @@ MIsit quoque Hiram, rex Tyri, servos suos ad Salomónem; audívit enim quod ipsu
 
 QUam ob rem cógito ædificáre templum nómini Dómini Dei mei, sicut locútus est Dóminus David patri meo, dicens: Fílius tuus, quem dabo pro te super sólium tuum, ipse ædificábit domum nómini meo. Præcipe ígitur ut præcídant mihi servi tui cedros de Líbano, et servi mei sint cum servis tuis; mercédem autem servórum tuórum dabo tibi quamcúmque petíeris; scis enim quómodo non est in pópulo meo vir qui nóverit ligna cǽdere sicut Sidónii.
 
-℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dó-
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+CUM ergo audísset Hiram verba Salomónis, lætátus est valde et ait: Benedíctus Dóminus Deus hódie, qui dedit David fílium sapientíssimum super pópulum hunc plúrimum. Et misit Hiram ad Salomónem dicens: Audívi quæcúmque mandásti mihi: ego fáciam omnem voluntátem tuam in lignis cédrinis et abiégnis. Servi mei depónent ea de Líbano ad mare, et ego compónam ea in rátibus in mari usque ad locum quem significáveris mihi; et applicábo ea ibi, et tu tolles ea præbebísque necessária mihi ut detur cibus dómui meæ.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 7, 51; 8, 1-7*
+
+ET perfécit omne opus, quod faciébat Sálomon in domo Dómini, et íntulit quæ sanctificáverat David pater suus, argéntum et aurum et vasa, reposuítque in thesáuris domus Dómini. Tunc congregáti sunt omnes majóres natu Israël cum princípibus tríbuum et duces familiárum filiórum Israël ad regem Salomónem in Jerúsalem, ut deférrent arcam fœderis Dómini de civitáte David, id est de Sion. Convenítque ad regem Salomónem univérsus Israël in mense Ethánim in solémni die (ipse est mensis séptimus).
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+VEnerúntque cuncti senes de Israël, et tulérunt arcam sacerdótes et portavérunt arcam Dómi-

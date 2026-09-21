@@ -19078,4 +19078,22 @@ QUidam autem sepeliéntes hóminem vidérunt latrúnculos et projecérunt cadáv
 
 *Cap. 17, 6-9*
 
-ANno autem nono Osée cepit rex Assyriórum Samaríam et tránstulit Israël in Assýrios posuítque eos in Hala et in Habor
+ANno autem nono Osée cepit rex Assyriórum Samaríam et tránstulit Israël in Assýrios posuítque eos in Hala et in Habor juxta flúvium Gozan, in civitátibus Medórum. Factum est enim, cum peccássent fílii Israël Dómino Deo suo, qui edúxerat eos de terra Ægýpti, de manu Pharaónis regis Ægýpti, coluérunt deos aliénos. Et ambulavérunt juxta ritum géntium, quas consúmpserat Dóminus in conspéctu filiórum Israël et regum Israël, quia simíliter fécerant. Et offendérunt fílii Israël verbis non rectis Dóminum Deum suum, et ædificavérunt sibi excélsa in cunctis úrbibus suis.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+*Cap. 17, 13-15*
+
+ET testificátus est Dóminus in Israël et in Juda per manum ómnium prophetárum et vidéntium dicens: Revertímini a viis vestris péssimis et custodíte præcépta mea et cæremónias, juxta omnem legem, quam præcépi pátribus vestris, et sicut misi ad vos in manu servórum meórum prophetárum. Qui non audiérunt, sed induravérunt cervícem suam juxta cervícem patrum suórum, qui noluérunt obedíre Dómino, Deo suo; et abjecérunt legítima ejus et pactum, quod pépigit cum pátribus eórum, et testificatiónes, quibus contestátus est eos, secutíque sunt vanitátes et vane egérunt.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et unxit me.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+*Cap. 17, 18-21*
+
+IRatúsque est Dóminus veheménter Israéli et ábstulit eos a conspéctu suo; et non remánsit nisi tribus Juda tantúmmodo. Sed nec ipse Juda custodívit mandáta Dómini Dei sui, verum ambulávit in erróribus Israël, quos operátus fúerat. Projecítque Dóminus omne semen Israël et afflíxit eos et trádidit eos in manu diripiéntium, donec projíceret eos a fácie sua ex eo jam témpore, quo scissus est Israël a domo David, et constituérunt sibi regem Jeróboam fílium Nabat.

@@ -46664,4 +46664,30 @@ TABERNACULUM Móysen, Dómino præcipiénte, fecísse et sacrásse, cum mensa et
 
 ###### Lectio v
 
-QUALITER ergo David, regum piíssimus, amplificáverit cultum Dei, et templum Dómino ædificáre volúerit, sed propter multum sánguinem quem effúderat prohíbitus est, et ipse collégerat expénsas; Sálomon quoque, fílius ejus, idípsum, quod ipse
+QUALITER ergo David, regum piíssimus, amplificáverit cultum Dei, et templum Dómino ædificáre volúerit, sed propter multum sánguinem quem effúderat prohíbitus est, et ipse collégerat expénsas; Sálomon quoque, fílius ejus, idípsum, quod ipse fácere optáverat, jubénte et auxiliánte Deo, perfécit, et templum cum altári, et réliqua ad divínum cultum peragéndum consecrávit; in libro Regum légitur: Fecit ergo Sálomon in témpore illo festivitátem célebrem et omnis Israël cum eo, multitúdo magna ab intróitu Emath usque ad rivum Ægýpti, coram Dómino, Deo nostro, septem diébus et septem diébus, id est, quatuórdecim diébus, et in die octáva dimísit pópulos.
+
+℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.) ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+###### Lectio vi
+
+*De Consecr. dist. 1 cap. 17*
+
+SOLEMNITATES dedicatiónum ecclesiárum et sacerdótum, per síngulos annos solémniter sunt celebrándæ, ipso Dómino exémplum dante, qui ad festum dedicatiónis templi, ómnibus id faciéndi dans formam, cum réliquis pópulis, eámdem festivitátem celebratúrus, venit; sicut scriptum est: Facta sunt encǽnia in Jerosólymis, et hiems erat, et ambulábat Jesus in templo in pórticu Salomónis. Quod autem octo diébus encǽnia sint celebránda, in libro Regum, perácta dedicatióne templi, reperiétis.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino: \* Vere locus iste sanctus est, et ego nesciébam. (T. P. Allelúja.) ℣. Cumque evigilásset Jacob de somno, ait. — Vere. Glória Patri. Vere.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 19, 1-10*
+
+IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Liber 27 Moralium, cap. 27, post medium}
+
+SI veráciter sapiéntes esse atque ipsam sapiéntiam contemplári appétimus, stultos nos humíliter cognoscámus. Relinquámus nóxiam sapiéntiam, discámus laudábilem fatuitátem. Hinc quippe scriptum est: Stulta mundi elégit Deus, ut

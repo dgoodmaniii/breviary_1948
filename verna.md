@@ -25642,4 +25642,28 @@ NOLITE detráhere altérutrum, fratres. Qui détrahit fratri, aut qui júdicat f
 
 {RUBRIC: In Officiis novem Lectionum:}
 
-℟. Hymnum cantáte nobis, allelúja: \* Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. ℣. Illic in-
+℟. Hymnum cantáte nobis, allelúja: \* Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. ℣. Illic in-terrogavérunt nos, qui captívos duxérunt nos, verba cantiónum. — Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. Glória Patri. Quómodo.
+
+**Ad Bened. Ant.** Isti sunt sermónes, \* quos dicébam vobis, cum essem vobíscum, allelúja, allelúja.
+
+---
+
+## Sabbato
+
+De Epístola beáti Jacóbi Apóstoli
+
+#### Lectio i
+
+*Cap. 5, 1-16*
+
+AGITE nunc, dívites, ploráte ululántes in misériis vestris, quæ advénient vobis. Divítiæ vestræ putrefáctæ sunt: et vestiménta vestra a tíneis comésta sunt. Aurum et argéntum vestrum æruginávit: et ærúgo eórum in testimónium vobis erit, et manducábit carnes vestras sicut ignis. Thesaurizástis vobis iram in novíssimis diébus. Ecce merces operariórum, qui messuérunt regiónes vestras, quæ fraudáta est a vobis, clamat: et clamor eórum in aures Dómini Sábaoth introívit. Epuláti estis super terram, et in luxúriis enutrístis corda vestra in die occisiónis. Addixístis et occidístis justum, et non réstitit vobis.
+
+℟. Deus, cánticum novum cantábo tibi, allelúja: \* In psaltério decem chordárum psallam tibi, allelúja, allelúja. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — In.
+
+#### Lectio ii
+
+PATIENTES ígitur estóte, fratres, usque ad advéntum Dómini. Ecce agrícola exspéctat pretiósum fructum terræ, patiénter ferens donec accípiat temporáneum et serótinum. Patiéntes ígitur estóte et vos, et confirmáte corda vestra: quóniam advéntus Dómini appropinquávit. Nolíte ingemíscere, fratres, in altérutrum, ut non judicémini. Ecce judex ante jánuam assístit. Exémplum accípite, fratres, éxitus mali, labóris et patiéntiæ, prophétas: qui locúti sunt in nómine Dómini. Ecce beatificámus eos, qui sustinuérunt. Sufferéntiam Job audístis, et finem Dómini vidístis, quóniam miséricors Dóminus est et miserátor.
+
+℟. Bonum est confitéri Dómino, allelúja: \* Et psállere, allelúja. ℣. In decachórdo psaltério, cum cántico et cíthara. — Et.
+
+{RUBRIC: In Octavis simplicibus et in Officio sanctæ Mariæ in Sábbato:} Glória Patri. Et.

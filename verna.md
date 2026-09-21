@@ -32353,3 +32353,69 @@ In deficiéndo ex me spíritum meum: \* et tu cognovísti sémitas meas.
 In via hac, qua ambulábam: \* abscondérunt láqueum mihi.
 
 Considerábam ad déxteram, et vidébam: \* et non erat qui cognósceret me.
+
+Périit fuga a me, \* et non est qui requírat ánimam meam.
+
+Clamávi ad te, Dómine, \* dixi: Tu es spes mea, pórtio mea in terra vivéntium.
+
+Inténde ad deprecatiónem meam: \* quia humiliátus sum nimis.
+
+Líbera me a persequéntibus me: \* quia confortáti sunt super me.
+
+Educ de custódia ánimam meam ad confiténdum nómini tuo: \* me exspéctant justi, donec retríbuas mihi.
+
+**Ant.** Fulcíte me flóribus, stipáte me malis, quia amóre lángueo.
+
+**Capitulum** *Is. 53, 1-2*
+
+QUIS crédidit audítui nostro? et bráchium Dómini cui revelátum est? Et ascéndet sicut virgúltum coram eo, et sicut radix de terra sitiénti.
+
+###### Hymnus
+
+STABAT Mater dolorósa
+Juxta crucem lacrimósa,
+Dum pendébat Fílius.
+
+Cujus ánimam geméntem,
+Contristátam et doléntem,
+Pertransívit gládius.
+
+O quam tristis et afflícta
+Fuit illa benedícta
+Mater Unigéniti!
+
+Quæ mærébat et dolébat
+Pia Mater dum vidébat
+Nati pœnas ínclyti.
+
+Quis est homo, qui non fleret,
+Matrem Christi si vidéret
+In tanto supplício?
+
+Quis non posset contristári
+Christi Matrem contemplári
+Doléntem cum Fílio?
+
+Pro peccátis suæ gentis
+Vidit Jesum in torméntis,
+Et flagéllis súbditum.
+
+Vidit suum dulcem natum
+Moriéndo desolátum,
+Dum emísit spíritum.
+
+Eja, Mater, fons amóris,
+Me sentíre vim dolóris
+Fac ut tecum lúgeam.
+
+Fac ut árdeat cor meum
+In amándo Christum Deum,
+Ut sibi compláceam. Amen.
+
+℣. Ora pro nobis, Virgo dolorosíssima. ℟. Ut digni efficiámur promissiónibus Christi.
+
+**Ad Magnif. Ant.** Tuam ipsíus ánimam \* (ait ad Maríam Símeon) pertransíbit gládius.
+
+##### In II Vesperis
+
+**Ad Magnif. Ant.** Cum vidísset Jesus \* Matrem stantem juxta crucem, et discípulum quem diligé-

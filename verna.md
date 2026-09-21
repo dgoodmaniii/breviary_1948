@@ -28515,4 +28515,44 @@ SED hæc, ut secúndum lítteram de hospítii religióne venerábilis est forma 
 
 Te Deum laudámus.
 
-**Ad Bened. Ant.** Convocátis Jesus \* duódecim discípulis suis, dedit illis virtútem et potestátem super ómnia dæmónia, et ut languóres curárent: et
+**Ad Bened. Ant.** Convocátis Jesus \* duódecim discípulis suis, dedit illis virtútem et potestátem super ómnia dæmónia, et ut languóres curárent: et misit illos prædicáre regnum Dei, et sanáre infírmos, allelúja.
+
+#### Oratio
+
+DEus, qui hodiérna die corda fidélium Sancti Spíritus illustratióne docuísti: da nobis in eódem Spíritu recta sápere; et de ejus semper consolatióne gaudére. Per Dóminum... in unitáte ejúsdem Spíritus.
+
+**Ad Magnif. Ant.** Spíritus, \* qui a Patre procédit, allelúja: ille me clarificábit, allelúja, allelúja.
+
+---
+
+## Feria VI Quatuor Temporum Pentecostes
+
+{RUBRIC: Semiduplex 656}
+
+℣. Spíritus Paráclitus, allelúja. ℟. Docébit vos ómnia, allelúja.
+
+**Absolutio** Ipsíus píetas.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio i
+
+*Cap. 5, 17-26*
+
+IN illo témpore: Factum est in una diérum, et Jesus sedébat docens. Et erant pharisǽi sedéntes, et legis doctóres, qui vénerant ex omni castéllo Galilǽæ, et Judǽæ, et Jerúsalem: et virtus Dómini erat ad sanándum eos. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 5 in cap. 5 Lucæ, post initium}
+
+NON otiósa hujus paralýtici, nec angústa medicína est, quando Dóminus et oráre præmíttitur; non útique propter suffrágium, sed propter exémplum. Imitándi enim spécimen dedit, non precándi ámbitum requisívit. Et conveniéntibus ex omni Galilǽa, et Judǽa, et Jerúsalem legis doctóribus, inter ceterórum remédia debílium, paralýtici istíus medicína describítur. Primum ómnium, quod ante díximus, unusquísque æger peténdæ precatóres salútis debet adhibére, per quos nostræ vitæ compágo resolúta, actuúmque nostrórum clauda vestígia, verbi cæléstis remédio reforméntur.
+
+℟. Non vos me elegístis, sed ego elégi vos, et pósui vos: \* Ut eátis, et fructum afferátis, et fructus vester máneat, allelúja, allelúja. ℣. Sicut misit me Pater, et ego mitto vos. — Ut.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+SINT ígitur áliqui monitóres mentis qui ánimum hóminis, quamvis

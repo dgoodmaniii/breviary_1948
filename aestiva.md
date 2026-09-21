@@ -17276,4 +17276,16 @@ ET tu in omni tentatióne fuge diligénter in amábile Christi Cor, ejúsque bon
 
 *Cap. 14, 6-20*
 
-DIxit autem Jónathas ad adoléscentem armígerum suum: Veni, transeámus ad sta-
+DIxit autem Jónathas ad adoléscentem armígerum suum: Veni, transeámus ad statiónem incircumcisórum horum, si forte fáciat Dóminus pro nobis, quia non est Dómino difficíle salváre vel in multis vel in paucis. Dixítque ei ármiger suus: Fac ómnia, quæ placent ánimo tuo, perge quo cupis, et ero tecum ubicúmque volúeris. Et ait Jónathas: Ecce nos transímus ad viros istos. Cumque apparuérimus eis, si táliter locúti fúerint ad nos: manéte donec veniámus ad vos; stemus in loco nostro nec ascendámus ad eos. Si autem díxerint: Ascéndite ad nos; ascendámus, quia trádidit eos Dóminus in mánibus nostris: hoc erit nobis signum. Appáruit ígitur utérque statióni Philisthinórum. Dixerúntque Philísthiim: En Hebrǽi egrediúntur de cavérnis, in quibus abscónditi fúerant.
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut.
+
+##### Lectio ii
+
+ET locúti sunt viri de statióne ad Jónatham, et ad armígerum ejus, dixerúntque: Ascéndite ad nos, et ostendémus vobis rem. Et ait Jónathas ad armígerum suum: Ascendámus, séquere me; trádidit enim Dóminus eos in manus Israël. Ascéndit autem Jónathas mánibus et pédibus reptans et ármiger ejus post eum. Itaque álii cadébant ante Jónatham, álios ármiger ejus interficiébat sequens eum. Et facta est plaga prima, qua percússit Jónathas et ármiger ejus, quasi vigínti virórum, in média parte júgeri, quam par boum in die aráre consuévit. Et factum est miráculum in castris per agros; sed et omnis pópulus statiónis eórum, qui íerant ad prædándum, obstúpuit, et conturbáta est terra, et áccidit quasi miráculum a Deo.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu vero.
+
+##### Lectio iii
+
+ET respexérunt speculatóres Saul, qui erant Gábaa Bénjamin, et ecce multitúdo prostráta et huc illúcque diffúgiens. Et ait Saul pópulo, qui erat cum

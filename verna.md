@@ -20185,3 +20185,41 @@ VIDERUNT enim se ingénti crímine impietátis adstríctos, quando illum occidé
 ℟. Pacífice loquebántur mihi inimíci mei, et in ira molésti erant mihi: \* Vidísti, Dómine, ne síleas, ne discédas a me. ℣. Ego autem cum mihi molésti essent, induébam me cilício, et humiliábam in jejúnio ánimam meam. — Vidísti, Dómine. Pacífice.
 
 ℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+**Ad Bened. Ant.** In die magno \* festivitátis stabat Jesus, et clamábat dicens: Si quis sitit, véniat ad me, et bibat.
+
+#### Oratio
+
+SANCTIFICA, quæsumus, Dómine, nostra jejúnia: et cunctárum nobis indulgéntiam propítius largíre culpárum. Per Dóminum.
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Si quis sitit, \* véniat ad me, et bibat: et de ventre ejus fluent aquæ vivæ, dicit Dóminus.
+
+#### Oratio
+
+DA, quæsumus, Dómine, pópulo tuo salútem mentis et córporis: ut bonis opéribus inhæréndo, tua semper mereátur protectióne deféndi. Per Dóminum.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 7, 1-13*
+
+IN illo témpore: Ambulábat Jesus in Galilæam: non enim volébat in Judæam ambuláre, quia quærébant eum Judǽi interfícere. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractatus 28 in Joannem}
+
+IN isto Evangélii capítulo, fratres, Dóminus noster Jesus Christus secúndum hóminem se plúrimum commendávit fídei nostræ. Etenim semper hoc egit dictis et factis suis, ut Deus credátur et homo: Deus qui nos fecit, homo qui nos quæsívit: Deus cum Patre semper, homo nobíscum ex témpore. Non enim quæréret quem fécerat, nisi fíeret ipse quod fécerat. Verum hoc mementóte, et de córdibus vestris nolíte dimíttere: sic esse Christum hóminem factum, ut non destíterit Deus esse. Manens Deus accépit hóminem, qui fecit hóminem.
+
+℟. Adjútor et suscéptor meus es tu, Dómine: et in verbum tuum sperávi: \* Declináte a me, malígni: et scrutábor mandáta Dei mei. ℣. Iníquos ódio hábui: et legem tuam diléxi. — Declináte.
+
+#### Lectio ii
+
+QUANDO ergo látuit ut homo, non poténtiam perdidísse putándus est, sed exémplum infirmitáti præbuísse. Ille enim quando vóluit, deténtus est: quando vóluit, occísus est.

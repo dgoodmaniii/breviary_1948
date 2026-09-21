@@ -1585,3 +1585,29 @@ Montes, et omnes colles: \* ligna fructífera, et omnes cedri.
 Béstiæ, et univérsa pécora: \* serpéntes, et vólucres pennátæ:
 
 Reges terræ, et omnes pópuli: \* príncipes, et omnes júdices terræ.
+
+Júvenes, et vírgines: senes cum junióribus laudent nomen Dómini: \* quia exaltátum est nomen ejus solíus.
+
+Conféssio ejus super cælum et terram: \* et exaltávit cornu pópuli sui.
+
+Hymnus ómnibus sanctis ejus: \* fíliis Israël, pópulo appropinquánti sibi.
+
+**Ant.** Allelúja, laudáte Dóminum de cælis, allelúja, allelúja.
+
+{RUBRIC: In ómnibus Domínicis extra Octávas Ssmi Córporis Christi ac Sacratíssimi Cordis Jesu, dícitur:}
+
+**Capitulum** *Apoc. 7, 12*
+
+BENEDICTIO, et cláritas, et sapiéntia, et gratiárum áctio, honor, virtus, et fortitúdo Deo nostro in sæcula sæculórum. Amen. ℟. Deo grátias.
+
+{RUBRIC: In Domínica IV et réliquis Domínicis post Pentecósten occurréntibus, dícitur}
+
+##### Hymnus
+
+ECCE, jam noctis tenuátur umbra,
+Lux et auróræ rútilans corúscat:
+Súpplices rerum Dóminum canóra
+Voce precémur:
+
+Ut reos culpæ miserátus omnem
+Pellat angórem, tríbuat salútem,

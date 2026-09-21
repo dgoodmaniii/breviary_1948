@@ -36048,4 +36048,24 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Tractat. 11 in Joann., post initium}
 
-NICODEMUS ex his erat, qui credíderant in nómine Jesu, vidéntes signa et prodígia quæ faciébat. Supérius enim hoc dixit: Cum autem esset Jerosólymis in Pascha in die festo, multi credidérunt in nómine ejus. Quare credidérunt in nómine ejus? Séquitur, et dicit: Vidéntes
+NICODEMUS ex his erat, qui credíderant in nómine Jesu, vidéntes signa et prodígia quæ faciébat. Supérius enim hoc dixit: Cum autem esset Jerosólymis in Pascha in die festo, multi credidérunt in nómine ejus. Quare credidérunt in nómine ejus? Séquitur, et dicit: Vidéntes signa ejus, quæ faciébat. Et de Nicodémo quid dicit? Erat princeps Judæórum, nómine Nicodémus. Hic venit ad eum nocte, et ait illi: Rabbi, scimus quia a Deo venísti magíster. Et iste ergo credíderat in nómine ejus. Et ipse unde credíderat? Séquitur: Nemo enim potest hæc signa fácere, quæ tu facis, nisi fúerit Deus cum eo.
+
+℟. Dulce lignum, dulces clavos, dulce pondus sustínuit: \* Quæ sola digna fuit portáre prétium hujus sæculi, allelúja. ℣. Hoc signum Crucis erit in cælo, cum Dóminus ad judicándum vénerit. — Quæ sola.
+
+{RUBRIC: Si ix Lectio alicujus Officii commemorati dicenda non sit tunc ex viii Lectione fiunt duæ, quarum prior desinit ad signum ¶.}
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+SI ergo Nicodémus de illis multis erat, qui credíderant in nómine ejus, jam in isto Nicodémo attendámus quare Jesus non se credébat eis. Respóndit Jesus et dixit ei: Amen, amen dico tibi, nisi quis renátus fúerit dénuo, non potest vidére regnum Dei. Ipsis ergo se credit Jesus, qui nati fúerint dénuo. Ecce illi credíderant in eum, et Jesus non se credébat eis. Tales sunt omnes catechúmeni: ipsi jam credunt in nómine Christi, sed Jesus non se credit eis. ¶ Inténdat et intélligat cáritas vestra. Si dixérimus catechúmeno: Credis in Christum? respóndet, Credo, et signat se Cruce Christi: portat in fronte, et non erubéscit de Cruce Dómini sui. Ecce credit in nómine ejus. Interrogémus eum: Mandúcas carnem Fílii hóminis, et bibis sánguinem Fílii hóminis? nescit quid dícimus, quia Jesus non se crédidit ei.
+
+℟. Sicut Móyses exaltávit serpéntem in desérto, ita exaltári opórtet Fílium hóminis: \* Ut omnis qui credit in ipsum, non péreat, sed hábeat vitam ætérnam, allelúja. ℣. Non misit Deus Fílium suum in mundum ut júdicet mundum, sed ut salvétur mundus per ipsum. — Ut. Glória Patri. Ut.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ, alias}
+
+{RUBRIC: Pro Ss. Alexandro I Papa, Eventio et Theódulo Mm., ac Juvenale Ep. et Conf.}
+
+#### Lectio ix
+
+ALEXANDER Románus, Hadriáno imperatóre regens Ecclésiam, magnam partem Románæ no-

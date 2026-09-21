@@ -35010,4 +35010,22 @@ JOSEPH, fili David, noli timére accípere Maríam cónjugem tuam. Quid autem es
 
 #### Lectio v
 
-PARIET autem Fílium, et vocábis nomen ejus Jesum; non enim quia ex Spíritu Sancto est, idcírco te a ministério tantæ exístimes dispensatiónis extráneum. Nam etsi nihil hábeas in hac generatióne commúne (Virgo quippe permánsit intácta), tamen
+PARIET autem Fílium, et vocábis nomen ejus Jesum; non enim quia ex Spíritu Sancto est, idcírco te a ministério tantæ exístimes dispensatiónis extráneum. Nam etsi nihil hábeas in hac generatióne commúne (Virgo quippe permánsit intácta), tamen quod est próprium patris quodque nihil offúscat Vírginis dignitátem, hoc tibi fácile concédo, ut scílicet nato nomen impónas; tu enim illum primum vocábis. Quamquam enim non sit fílius tuus iste, qui náscitur, tu tamen curam erga illum et sollicitúdinem osténdes paréntis; et proptérea te illi ab ipsa statim nóminis impositióne conjúngo. Deínde, ne quis illum ex hoc patrem esse suspicarétur, Páriet, inquit, Fílium. Non dixit, Páriet tibi, sed pósuit illud indefinítum et suspénsum; non enim illi, sed univérso prorsus orbi péperit Christum.
+
+℟. Státuet fílios suos sub tégmine illíus et sub ramis ejus morábitur; protegétur sub tégmine illíus a fervóre: \* Et in glória ejus requiéscet, allelúja. ℣. Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra. — Et.
+
+#### Lectio vi
+
+PROPTEREA et nomen ejus de cælo Angelum detulísse Evangelísta memorávit, ut hinc quoque osténderet illum mirábilem esse partum, quo ejus nomen ad Joseph et per Angelum et a Deo missum docéret. Nam et ipsum vocábulum non inániter pósitum est, quod certe mille cóntinet thesáuros bonórum. Propter quod illud étiam Angelus interpretátur bonis mæréntem spebus animándo; et hoc quoque illum modo ad credéndum quod lóquitur, invítat. Fácile namque sollicitámur ad próspera, et prómptius fidem accommodámus secúndis. Ipse enim, inquit, salvum fáciet pópulum suum a peccátis eórum. Hinc quoque beneficii nóvitas indicátur. Non enim a bello visíbili neque a gládio barbarórum, sed, quod his longe majus est, a peccáto suo pópulum suum núntiat liberándum: quod præstáre nulli fuit hóminum aliquándo possíbile.
+
+℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória. Si exsúrgat.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 3, 21-23*
+
+IN illo témpore: Factum est autem cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.

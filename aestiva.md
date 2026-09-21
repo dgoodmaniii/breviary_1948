@@ -14956,4 +14956,60 @@ QUI mandúcat carnem meam et bibit meum sánguinem, in me manet, et ego in illo.
 
 ##### Lectio ix
 
-SIcut, inquit, misit me vivens Pater, et ego vivo propter Patrem: et qui mandúcat me, et ipse vivet propter me. Ac si díceret: Ut ego vivam propter Patrem, id est, ad illum tamquam ad majórem réferam vitam meam, exinanítio mea fecit, in qua me misit; ut autem quisquam vivat propter me, participátio facit, qua mandúcat me. Ego ítaque humiliátus vivo propter
+SIcut, inquit, misit me vivens Pater, et ego vivo propter Patrem: et qui mandúcat me, et ipse vivet propter me. Ac si díceret: Ut ego vivam propter Patrem, id est, ad illum tamquam ad majórem réferam vitam meam, exinanítio mea fecit, in qua me misit; ut autem quisquam vivat propter me, participátio facit, qua mandúcat me. Ego ítaque humiliátus vivo propter Patrem: ille eréctus vivit propter me. Si autem ita dictum est, Vivo propter Patrem, quia ipse de illo, non ille de ipso est; sine detriménto æqualitátis dictum est. Nec tamen dicéndo, Et qui mandúcat me, et ipse vivet propter me; eámdem suam et nostram æqualitátem significávit, sed grátiam mediatóris osténdit.
+
+**Te Deum laudámus.** [7]
+
+### Ad Laudes
+
+**Ant. 1** Sapiéntia \* ædificávit sibi domum, míscuit vinum et pósuit mensam, allelúja.
+
+{RUBRIC: Psalmi de Dominica. 36}
+
+**Ant. 2** Angelórum esca \* nutrivísti pópulum tuum, et panem de cælo præstitísti eis, allelúja.
+
+**Ant. 3** Pinguis est panis \* Christi, et præbébit delícias régibus, allelúja.
+
+**Ant. 4** Sacerdótes sancti \* incénsum et panes ófferunt Deo, allelúja.
+
+**Ant. 5** Vincénti dabo \* manna abscónditum, et nomen novum, allelúja.
+
+**Capit.** *1 Cor. 11, 23-24*
+
+FRatres: Ego enim accépi a Dómino, quod et trádidi vobis, quóniam Dóminus Jesus, in qua nocte tradebátur, accépit panem, et grátias agens fregit, et dixit: Accípite et manducáte; hoc est corpus meum, quod pro vobis tradétur: hoc fácite in meam commemoratiónem.
+
+##### Hymnus
+
+VErbum supérnum pródiens,
+Nec Patris linquens déxteram,
+Ad opus suum éxiens,
+Venit ad vitæ vésperam.
+
+In mortem a discípulo
+Suis tradéndus æmulis,
+Prius in vitæ férculo
+Se trádidit discípulis.
+
+Quibus sub bina spécie
+Carnem dedit et sánguinem;
+Ut dúplicis substántiæ
+Totum cibáret hóminem.
+
+Se nascens dedit sócium,
+Convéscens in edúlium,
+Se móriens in prétium,
+Se regnans dat in prǽmium.
+
+O salutáris hóstia,
+Quæ cæli pandis óstium,
+Bella premunt hostília;
+Da robur, fer auxílium.
+
+{RUBRIC: Sequens Conclusio numquam mutátur:}
+
+Uni trinóque Dómino
+Sit sempitérna glória:
+Qui vitam sine término
+Nobis donet in pátria. Amen.
+
+℣. Pósuit fines tuos pacem, allelúja. ℟. Et ádipe

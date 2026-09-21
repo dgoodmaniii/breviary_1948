@@ -17034,4 +17034,20 @@ ET convocávit Sámuel pópulum ad Dóminum in Maspha et ait ad fílios Israël:
 
 ET applícuit Sámuel omnes tribus Israël, et cécidit sors tribus Bénjamin; et applícuit tribum Bénjamin et cognatiónes ejus, et cécidit cognátio Metri, et pervénit usque ad Saul fílium Cis. Quæsiérunt ergo eum, et non est invéntus. Et consuluérunt post hæc Dóminum, utrúmnam ventúrus esset illuc. Respondítque Dóminus: Ecce abscónditus est domi. Cucurrérunt ítaque et tulérunt eum inde; stetítque in médio pópuli, et áltior fuit univérso pópulo ab húmero et sursum. Et ait Sámuel ad omnem pópulum: Certe vidétis quem elégit Dóminus, quóniam non sit símilis illi in omni pópulo. Et clamávit omnis pópulus et ait: Vivat rex.
 
-℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu vero homo unánimis qui simul mecum dulces capiébas cibos.
+
+##### Lectio iii
+
+LOcútus est autem Sámuel ad pópulum legem regni, et scripsit in libro et repósuit coram Dómino; et dimísit Sámuel omnem pópulum, síngulos in domum suam. Sed et Saul ábiit in domum suam in Gábaa; et ábiit cum eo pars exércitus, quorum tetígerat Deus corda. Fílii vero Bélial dixérunt: Num salváre nos póterit iste? Et despexérunt eum, et non attulérunt ei múnera; ille vero dissimulábat se audíre.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória. Propter.
+
+#### In II Nocturno
+
+{RUBRIC: Ex lítteris Encýclicis Pii Papæ undécimi}
+
+##### Lectio iv
+
+AT nulla creáta vis hóminum sceléribus expiándis erat satis, nisi humánam natúram Dei Fílius reparándam assumpsísset. Quod quidem ipse hóminum Salvátor sacri Psaltis ore nuntiávit: Hóstiam et oblatiónem noluísti, corpus autem aptásti mihi: holocautómata pro peccáto non tibi placuérunt: tunc dixi: Ecce vénio. Et reápse vere languóres nostros ipse tulit et dolóres nostros ipse portávit; vulnerátus est propter iniquitátes nostras et peccáta nostra ipse pértulit in córpore suo super lignum; delens quod advérsus nos erat chirógraphum decréti, quod erat contrárium nobis, et ipsum tulit de médio affígens illud cruci, ut peccátis mórtui justítiæ vivámus. Quamquam vero copiósa Christi redémptio abúnde nobis ómnia delícta donávit, ob miram tamen illam divínæ Sapiéntiæ dispensatiónem, qua in carne nostra adimplénda sunt quæ desunt passiónum Christi pro córpore ejus quod est Ecclésia, étiam láudibus et satisfactiónibus, quas Christus in nómine peccatórum Deo persólvit, nostras quoque laudes et satisfactiónes adjícere póssumus, immo étiam debémus.
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus

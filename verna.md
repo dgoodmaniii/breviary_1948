@@ -48487,3 +48487,41 @@ FIDELIUM, Deus, ómnium Cónditor et Redémptor, animábus famulórum famularúm
 ℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
 
 ℣. Requiéscant in pace. ℟. Amen.
+
+##### Ad Matutinum
+
+{RUBRIC: Quoties Matutinum vel delationem cadaveris ad ecclesiam ac Responsorium} Subveníte, {RUBRIC: vel Matutinum et Laudes diei currentis immediate non sequatur, dicitur secreto} Pater noster, Ave María et Credo; {RUBRIC: secus absolute incipitur ab Invitatorio, vel ab Antiphona Nocturni.}
+
+{RUBRIC: Sequens Invitatorium dicitur semper in Officio Defunctorum, quando persolvitur cum tribus Nocturnis, etiam sub ritu semiduplici, aut cum unico quidem Nocturno, sed sub ritu duplici. In reliquis vero casibus omittitur.}
+
+{RUBRIC: Nocturni enim inferius positi omnes dici possunt vel etiam unus tantum, ita tamen, ut extra diem depositionis, in qua semper dicitur primus Nocturnus, Dominica, Feria II et V dicatur primus, Feria III et VI secundus, et Feria IV et Sabbato tertius Nocturnus.}
+
+**Invitat.** Regem, cui ómnia vivunt, \* Veníte, adorémus.
+
+**Repet.** Regem, cui ómnia vivunt, veníte, adorémus.
+
+###### Psalmus 94
+
+VENÍTE, exsultémus Dómino, jubilémus Deo, salutári nostro: præoccupémus fáciem ejus in confessióne, et in psalmis jubilémus ei.
+
+Regem, cui ómnia vivunt, veníte, adorémus.
+
+Quóniam Deus magnus Dóminus, et Rex magnus super omnes deos: quóniam non repéllet Dóminus plebem suam: quia in manu ejus sunt omnes fines terræ, et altitúdines móntium ipse cónspicit.
+
+Veníte, adorémus.
+
+Quóniam ipsíus est mare, et ipse fecit illud, et áridam fundavérunt manus ejus: veníte, adorémus, et procidámus ante Deum: plorémus coram Dómino, qui fecit nos, quia ipse est Dóminus, Deus noster; nos autem pópulus ejus, et oves páscuæ ejus.
+
+Regem, cui ómnia vivunt, veníte, adorémus.
+
+Hódie, si vocem ejus audiéritis, nolíte obduráre corda vestra, sicut in exacerbatióne secúndum diem tentatiónis in desérto: ubi tentavérunt me patres vestri, probavérunt et vidérunt ópera mea.
+
+Veníte, adorémus.
+
+Quadragínta annis próximus fui generatióni huic, et dixi: Semper hi errant corde; ipsi vero non cognovérunt vias meas: quibus jurávi in ira mea: Si introíbunt in réquiem meam.
+
+Regem, cui ómnia vivunt, veníte, adorémus.
+
+Réquiem ætérnam dona eis, Dómine: et lux perpétua lúceat eis.
+
+Veníte, adorémus.

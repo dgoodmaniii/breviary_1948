@@ -42681,4 +42681,30 @@ Léctio sancti Evangélii secúndum Joánnem
 
 **Lectio vii** *Cap. 15, 1-7*
 
-IN illo témpore: Dixit Jesus discípulis suis: Ego sum vitis vera, et Pa-
+IN illo témpore: Dixit Jesus discípulis suis: Ego sum vitis vera, et Pater meus agrícola est. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tract. 80 in Joánnem}
+
+ISTE locus evangélicus, fratres, ubi se dicit Dóminus vitem et discípulos suos pálmites, secúndum hoc dicit, quod est caput Ecclésiæ nosque membra ejus, mediátor Dei et hóminum, homo Christus Jesus. Uníus quippe natúræ sunt vitis et pálmites. Propter quod cum esset Deus, cujus natúræ non sumus, factus est homo, ut in illo esset vitis humána natúra, cujus et nos hómines pálmites esse possémus.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Feria III et VI infra hebdomadam I et II post Octavam Paschæ, quoties in I Nocturno Lectiones fuerint de Scriptura occurrenti cum suis Responsoriis de Tempore, loco præcedentis Responsorii dicitur sequens}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+**Benedictio** Cujus (*vel* Quorum) festum cólimus.
+
+###### Lectio viii
+
+QUID ergo est, Ego sum vitis vera? Numquid ut ádderet, vera, hoc ad eam vitem rétulit, unde ista similitúdo transláta est? Sic enim dícitur vitis per similitúdinem, non per propriétatem, quemádmodum dícitur ovis, agnus, leo, petra, lapis anguláris, et cétera hujúsmodi; quæ magis ipsa sunt vera, ex quibus ducúntur istæ similitúdines, non propriétates. Sed cum dicit, Ego sum vitis vera, ab illa se útique discérnit, cui dícitur: Quómodo convérsa es in amaritúdinem, vitis aliéna? Nam quo pacto est vitis vera, quæ exspectáta est ut fáceret uvam, fecit autem spinas?
+
+℟. Cándidi facti sunt Nazarǽi ejus, allelúja; splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória. Et.
+
+**Benedictio** Ad societátem.
+
+###### Lectio ix
+
+EGO sum, inquit, vitis vera, et Pater meus agrícola est. Numquid

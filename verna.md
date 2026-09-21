@@ -35345,4 +35345,22 @@ Incípit Epístola cathólica beáti Jacóbi Apóstoli
 
 JACOBUS, Dei et Dómini nostri Jesu Christi servus, duódecim tríbubus, quæ sunt in dispersióne, salútem. Omne gáudium existimáte, fratres mei, cum in tentatiónes várias incidéritis: sciéntes quod probátio fídei vestræ patiéntiam operátur. Patiéntia autem opus perféctum habet: ut sitis perfécti et íntegri in nullo deficiéntes. Si quis autem vestrum índiget sapiéntia, póstulet a Deo, qui dat ómnibus affluénter, et non impróperat: et dábitur ei. Póstulet autem in fide nihil hæsitans.
 
-℟. Beátus vir, qui métuit Dóminum, allelúja: \* In
+℟. Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sǽculum sǽculi. — In.
+
+**Lectio ii**
+
+QUI enim hǽsitat, símilis est flúctui maris, qui a vento movétur et circumfértur. Non ergo ǽstimet homo ille quod accípiat áliquid a Dómino. Vir duplex ánimo incónstans est in ómnibus viis suis. Gloriétur autem frater húmilis in exaltatióne sua: dives autem in humilitáte sua, quóniam sicut flos fœni transíbit. Exórtus est enim sol cum ardóre, et arefécit fœnum, et flos ejus décidit, et decor vultus ejus depériit: ita et dives in itinéribus suis marcéscet.
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+**Lectio iii**
+
+BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se. Nemo, cum tentátur, dicat quóniam a Deo tentátur: Deus enim intentátor malórum est: ipse autem néminem tentat. Unusquísque vero tentátur a concupiscéntia sua abstráctus et illéctus. Deínde concupiscéntia, cum concéperit, parit peccátum: peccátum vero, cum consummátum fúerit, génerat mortem. Nolíte ítaque erráre, fratres mei dilectíssimi.
+
+℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória Patri. Mors.
+
+###### In II Nocturno
+
+**Lectio iv**
+
+PHILIPPUS Bethsáidæ natus, unus ex duódecim Apóstolis, qui primum a Christo Dómino vocáti sunt: a quo cum accepísset Nathánael, venísse Messíam in lege promíssum, ad Dóminum dedúctus est. Quam vero Christus eum familiáriter adhibéret, illud fácile declárat, quod gentíles Salvatórem vidére cupiéntes, ad Philíppum accessérunt; et Dóminus, cum in solitúdine hóminum multitúdinem páscere vellet, sic Philíppum affátus est: Unde emémus panes, ut mandúcent hi? Is, accépto

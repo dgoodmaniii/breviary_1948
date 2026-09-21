@@ -46707,3 +46707,53 @@ QUASI enim sycómorum nos ascéndere Dóminus præcípit, cum dicit: Qui aufert 
 {RUBRIC: Te Deum.}
 
 ---
+
+# Commune Festorum B. Mariæ Virg.
+
+##### In I Vesperis
+
+**Ant.** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis. (T. P. Allelúja.)
+
+###### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Dum esset Rex in accúbitu suo, nardus mea dedit odórem suavitátis. (T. P. Allelúja.)
+
+**Ant.** Læva ejus \* sub cápite meo, et déxtera illíus amplexábitur me. (T. P. Allelúja.)
+
+###### Psalmus 112
+
+LAUDATE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sǽculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Læva ejus sub cápite meo, et déxtera illíus amplexábitur me. (T. P. Allelúja.)
+
+**Ant.** Nigra sum, \* sed formósa, fíliæ Jerúsalem;

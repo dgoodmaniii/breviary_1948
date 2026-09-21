@@ -38122,4 +38122,16 @@ DOMINE Jesu, qui beáto Bernardíno Confessóri tuo exímium sancti nóminis tui
 
 ###### Lectio iv
 
-BERNARDINUS Albizésca, nóbili Senénsi família ortus, ab ineúnte ætáte non obscúra sanctitátis dedit indícia; nam a piis paréntibus honéste educátus, negléctis
+BERNARDINUS Albizésca, nóbili Senénsi família ortus, ab ineúnte ætáte non obscúra sanctitátis dedit indícia; nam a piis paréntibus honéste educátus, negléctis puerílibus ludis, inter prima grammáticæ stúdia pietátis opéribus ánimum inténdit, jejúniis, oratióni, et beatíssimæ Vírginis cultui præcípue addíctus. Misericórdia vero in páuperes fuit insígnis. Quæ quidem ómnia procedénte témpore quo mélius posset excólere, eórum número adscríbi vóluit, qui Senis in hospitáli domo beátæ Maríæ de Scala Deo insérviunt, unde complúres sanctitáte célebres viri prodiérunt. Ibi córporis afflictatióne et ægrotántium cura, dum atrox pestiléntia grassarétur, incredíbili caritáte sese exércuit. Inter céteras autem virtútes castitátem, egrégia forma repugnánte, sanctíssime custodívit, ádeo ut eo præsénte nemo umquam, ne impudentíssimus quidem, verbum minus honéstum proférre audéret.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam, allelúja. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+GRAVI morbo tentátus, eóque ad quátuor menses patientíssime toleráto, demum incólumis, de religiósæ vitæ institúto capesséndo deliberáre cœpit. Quo ut sibi viam muníret, ædículam in extréma urbe condúxit; in quam cum sese abdidísset, aspérrimam omni ex parte vitam trahébat, Deum assídue orans, ut, quid sibi sequéndum esset, osténderet. Quare divínitus factum est, ut beáti Francísci órdinem præ céteris optáret, in quo humilitáte, patiéntia alíisque religiósi hóminis virtútibus excélluit. Id cum cœnóbii rector animadvérteret, jamque ántea Bernardíni doctrínam et sacrárum litterárum perítiam perspéctam habéret, prædicándi onus eídem impósuit: quo humíllime suscépto, cum se minus idóneum agnósceret ob vocis exilitátem ac raucitátem, Dei ope implóráta, non sine miráculo ejúsmodi impediménto liberátus est.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum, allelúja. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio vi
+
+CUMQUE ea témpora vítiis criminibúsque redundárent, et cruéntis fa-

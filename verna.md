@@ -45160,4 +45160,75 @@ CUM ergo de illis eunúchis díxerit, qui, nisi étiam ipsi mente se contíneant
 
 **3** Jam hiems tránsiit, \* imber ábiit et recéssit: surge, amíca mea, et veni. (T. P. Allelúja.)
 
-**4** Veni, elécta mea, \* et ponam in te thronum
+**4** Veni, elécta mea, \* et ponam in te thronum meum. (T. P. Allelúja.)
+
+**5** Ista est speciósa \* inter fílias Jerúsalem. (T. P. Allelúja.)
+
+##### Pro Martyre tantum
+
+###### Capitulum
+
+*Eccli. 51, 1-3*
+
+CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+##### Pro nec Virg. nec Martyre
+
+###### Capitulum
+
+*Prov. 31, 10-11*
+
+MULIÉREM fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+
+##### Hymnus
+
+FORTEM viríli péctore
+Laudémus omnes féminam,
+Quæ sanctitátis glória
+Ubíque fulget ínclita.
+
+Hæc sancto amóre sáucia,
+Dum mundi amórem nóxium
+Horréscit, ad cæléstia
+Iter perégit árduum.
+
+Carnem domans jejúniis,
+Dulcíque mentem pábulo
+Oratiónis nútriens,
+Cæli potítur gáudiis.
+
+Rex Christe, virtus fórtium,
+Qui magna solus éfficis,
+Hujus precátu, quǽsumus,
+Audi benígnus súpplices.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+℣. Spécie tua et pulchritúdine tua. (T. P. Allelúja.) ℟. Inténde, próspere procéde, et regna. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam. (T. P. Allelúja.)
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Manum suam \* apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit. (T. P. Allelúja.)
+
+##### Pro Martyre tantum
+
+**1 — Oratio**
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ N. Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+##### Pro nec Virgine nec Mart.
+
+**2 — Oratio**
+
+EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Si fuerint plures Martyres non Virgines, in utrisque Vesperis Versus, Ant. ad Magnificat et Oratio, ut sequitur:}
+
+℣. Glória et honóre coronásti eas, Dómine. (T. P. Allelúja.) ℟. Et constituísti eas super ópera má-

@@ -396,4 +396,18 @@ Sicut erat in princípio, et nunc, et semper, \* et in sæcula sæculórum. Amen
 
 {RUBRIC: Expleto Cantico ac repetita Antiphona, si Preces non fuerint recitandæ, statim dicitur Versus Dóminus vobíscum cum Oratione et reliquis omnibus usque ad finem Horæ, ut infra.}
 
-{RUBRIC: In omnibus vero Vigiliis, si fiat Officium de Vigilia currenti, post repetitam ad Benedictus Antiphonam dicuntur flexis genibus sequentes Pre-
+{RUBRIC: In omnibus vero Vigiliis, si fiat Officium de Vigilia currenti, post repetitam ad Benedictus Antiphonam dicuntur flexis genibus sequentes Preces, quæ aliis temporibus omittuntur:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Pater noster, quod dicitur a solo Hebdomadario totum clara voce, usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi. ℣. Convértere, Dómine, úsquequo? ℟. Et deprecábilis esto super servos tuos. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Sacerdótes tui induántur justítiam. ℟. Et sancti tui exsúltent.
+
+℣. Orémus pro beatíssimo Papa nostro N. ℟. Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra, et non tradat eum in ánimam inimicórum ejus.
+
+℣. Orémus et pro Antístite nostro N. ℟. Stet et pascat in fortitúdine tua, Dómine, in sublimitáte nóminis tui.
+
+{RUBRIC: ¶ Romæ præcedens Versus cum suo Responsorio omittitur; alibi vero, ad litteram N., ab omnibus nomen diœcesani Episcopi exprimatur. Vacante Apostolica vel Episcopali Sede, alteruter vel uterque respectivus Versus cum suo Responsorio prætéritur.}
+
+℣. Dómine, salvum fac regem. ℟. Et exáudi nos in die, qua invocavérimus te. ℣. Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ. ℟. Et rege eos, et extólle illos usque in ætérnum. ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio. ℣. Fiat pax in virtúte tua. ℟. Et abundántia in túrribus tuis. ℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen. ℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis. ℣. Requiéscant in pace. ℟. Amen. ℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te. ℣. Pro afflíctis et captívis. ℟. Líbera eos, Deus Israël, ex ómnibus tribulatiónibus suis. ℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.

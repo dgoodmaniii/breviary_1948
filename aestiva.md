@@ -17976,4 +17976,14 @@ DEus virtútum, cujus est totum quod est óptimum: ínsere pectóribus nostris a
 
 MIsit ergo Dóminus Nathan ad David: qui, cum venísset ad eum, dixit ei: Duo viri erant in civitáte una, unus dives et alter pauper. Dives habébat oves et boves plúrimos valde; pauper autem nihil habébat omníno præter ovem unam párvulam, quam émerat et nutríerat, et quæ créverat apud eum cum fíliis ejus simul de pane illíus cómedens et de cálice ejus bibens et in sinu illíus dórmiens; erátque illi sicut fília. Cum autem peregrínus quidam venísset ad dívitem, parcens ille súmere de óvibus et de bobus suis, ut exhibéret convívium peregríno illi qui vénerat ad se, tulit ovem viri páuperis et præparávit cibos hómini qui vénerat ad se.
 
-℟. Præparáte corda vestra Dómino, et servíte illi
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+IRátus autem indignatióne David advérsus hóminem illum nimis, dixit ad Nathan: Vivit Dóminus, quóniam fílius mortis est vir qui fecit hoc: ovem reddet in quádruplum, eo quod fécerit verbum istud et non pepércerit. Dixit autem Nathan ad David: Tu es ille vir. Hæc dicit Dóminus, Deus Israël: Ego unxi te in regem super Israël et ego érui te de manu Saul et dedi tibi domum dómini tui, et uxóres dómini tui in sinu tuo dedíque tibi domum Israël et Juda; et, si parva sunt ista, adjíciam tibi multo majóra. Quare ergo contempsísti verbum Dómini, ut fáceres malum in conspéctu meo? Uríam Hethǽum percussísti gládio et uxórem illíus accepísti in uxórem tibi et interfecísti eum gládio filiórum Ammon.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+##### Lectio iii
+
+QUam ob rem non recédet gládius de domo tua usque in sempitérnum, eo quod despéxeris me et túleris uxórem Uríæ Hethǽi ut esset uxor tua. Itaque hæc dicit Dóminus: Ecce ego suscitábo super te malum de domo tua, et tollam uxóres tuas in óculis tuis et dabo próximo tuo, et dórmiet cum uxóribus tuis in óculis solis hujus. Tu enim fecísti abscóndite, ego autem fáciam verbum istud in conspéctu omnis Israël et in conspéctu solis. Et dixit David ad Nathan: Peccávi Dómino. Dixítque Nathan ad David: Dóminus quoque tránstulit peccátum tuum: non moriéris. Verúmtamen, quóniam blasphemáre fecísti inimícos Dómini propter verbum hoc, fílius qui natus est tibi, morte moriétur. Et revérsus est Nathan in domum suam. Percússit quoque Dóminus párvulum, quem pepérerat uxor Uríæ David, et desperátus est. Deprecatúsque est David Dóminum pro párvulo, et jejunávit David jejúnio et ingréssus seórsum jácuit super terram.

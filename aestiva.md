@@ -18999,3 +18999,33 @@ AThalía vero, mater Ochozíæ, videns mórtuum fílium suum surréxit et interf
 ##### Lectio ii
 
 ANno autem séptimo misit Jójada, et assúmens centuriónes et mílites introdúxit ad se in templum Dómini pepigítque cum eis fœdus; et adjúrans eos in domo Dómini osténdit eis fílium regis et præcépit illis dicens: Iste est sermo quem fácere debétis: tértia pars vestrum intróeat sábbato, et obsérvet excúbias domus regis; tértia autem pars sit ad portam Sur, et tértia pars sit ad portam, quæ est post habitáculum scutariórum, et custodiétis excúbias domus Messa. Duæ vero partes e vobis omnes egrediéntes sábbato custódiant excúbias domus Dómini circa regem.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+*Cap. 11, 9-12*
+
+ET assuméntes sínguli viros suos, qui ingrediebántur sábbatum, cum his qui egrediebántur sábbato, venérunt ad Jójadam sacerdótem, qui dedit eis hastas et arma regis David, quæ erant in domo Dómini. Et stetérunt sínguli habéntes arma in manu sua a parte templi déxtera usque ad partem sinístram altáris et ædis circum regem. Produxítque fílium regis et pósuit super eum diadéma et testimónium, fecerúntque eum regem et unxérunt et plaudéntes manu dixérunt: Vivat rex.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 12, 1-8*
+
+ANno séptimo Jehu regnávit Joas et quadragínta annis regnávit in Jerúsalem. Nomen matris ejus Sébia de Bersabée. Fecítque Joas rectum coram Dómino cunctis diébus, quibus dócuit eum Jójada sacérdos; verúmtamen excélsa non ábstulit; adhuc enim pópulus immolábat et adolébat in excélsis incénsum.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pæniténtiam, veniénsque oráverit in isto loco. — Tu.
+
+##### Lectio ii
+
+DIxítque Joas ad sacerdótes: Omnem pecúniam sanctórum, quæ illáta fúerit in templum Dómini a prætereúntibus, quæ offértur pro prétio ánimæ, et quam sponte et arbítrio cordis sui ínferunt

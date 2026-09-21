@@ -17136,4 +17136,22 @@ QUO autem perféctius oblátio nostra nostrúmque sacrifícium sacrifício domí
 
 ##### Lectio v
 
-QUemádmodum ígitur uniónem cum Christo profitétur ac firmat con-
+QUemádmodum ígitur uniónem cum Christo profitétur ac firmat consecrátio, ita expiátio eámdem uniónem, et culpas detergéndo ínchoat, et Christi passiónes participándo pérficit, et víctimas pro frátribus offeréndo consúmmat. Atque id sane miseréntis Jesu consílium fuit, cum Cor nobis suum, insígnia passiónis præférens ac flammas amóris osténtans, patére vóluit, scílicet ut hinc infinítam peccáti malítiam conjectántes, illinc Reparatóris caritátem infinítam admiráti, et peccátum vehemántius detestarémur et caritátis ardéntius vicem redderémus. Et vere expiatiónis potíssimum seu reparatiónis spíritus primas semper potiorésque partes hábuit in cultu Sacratíssimo Cordi Jesu exhibéndo, nihílque eo congruéntius orígini, índoli, virtúti, indústriis quæ huic religiónis formæ sunt própriæ, ut rerum memória et usus, sacra item litúrgia atque Summórum Pontíficum acta confírmant.
+
+℟. Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus \* Et revelásti ea párvulis. ℣. Ita, Pater, quóniam sic fuit plácitum ante te. — Et revelásti ea párvulis.
+
+##### Lectio vi
+
+SIquidem cum se conspiciéndum Margarítæ Maríæ exhibéret Christus, caritátis suæ infinitátem prædicans, simul, mæréntis instar, tot tantásque sibi inústas ab ingrátis homínibus injúrias in hæc verba conquéstus est, quæ útinam in piórum ánimis insidérent nulláque unquam oblivióne delerántur: «En Cor illud, inquit, quod tantópere hómines amávit beneficiísque ómnibus cumulávit, quodque amóri suo infiníto non tantum réddítam grátiam nullam invénit, at contra, obliviónem, negléctum, contumélias, easque ab iis étiam illátas nonnúmquam, qui amóris peculiáris débito offícióque tenerántur».
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum quóniam magnus es tu, et fáciens mirabília. — Et adorábunt. Glória. Et.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 19, 31-37*
+
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent

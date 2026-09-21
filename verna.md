@@ -28609,4 +28609,24 @@ VIDE cleméntiam Dómini Salvatóris: nec indignatióne commótus, nec scélere 
 
 SABBATO medicínæ Domínicæ ópera cœpta signíficat, ut inde nova creatúra cœperit, ubi vetus creatúra ante desívit: nec sub lege esse Dei Fílium, sed supra legem in ipso princípio designáret: nec solvi legem, sed impléri. Neque enim per legem, sed verbo factus est mundus, sicut légimus: Verbo Dómini cæli firmáti sunt. Non sólvitur ergo lex, sed implétur: ut fiat renovátio hóminis jam labéntis. Unde et Apóstolus ait: Exspoliántes vos véterem hóminem, indúite novum, qui secúndum Deum creátus est.
 
-℟. Jam non dicam vos servos, sed amícos meos: quia ómnia cognovístis, quæ operátus sum in médio vestri, allelúja: \* Ac-
+℟. Jam non dicam vos servos, sed amícos meos: quia ómnia cognovístis, quæ operátus sum in médio vestri, allelúja: \* Accípite Spíritum Sanctum in vobis Paráclitum: ille est, quem Pater mittet vobis, allelúja. ℣. Vos amíci mei estis, si fecéritis quæ ego præcípio vobis. — Accípite. Glória Patri. Accípite.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+ET bene sábbato cœpit, ut ipsum se osténderet Creatórem, qui ópera opéribus intéxeret, et prosequerétur opus, quod ipse jam cœperat: ut si domum faber renováre dispónat, non a fundaméntis, sed a culmínibus íncipit sólvere vetustátem. Itaque ibi prius manum ádmovet, ubi ante desíerat: deínde a minóribus íncipit, ut ad majóra pervéniat. Liberáre a dæmóne et hómines, sed in verbo Dei possunt: resurrectiónem mórtuis imperáre, divínæ solíus est potestátis. Fortássis étiam in typo mulíeris illíus socrus Simónis et Andréæ, váriis críminum fébribus caro nostra languébat, et diversárum cupiditátum immódicis æstuábat illécebris. Nec minórem febrem amóris esse díxerim, quam calóris. Itaque illa ánimum, hæc corpus inflámmat. Febris enim nostra, avarítia est: febris nostra, libído est: febris nostra, luxúria est: febris nostra, ambítio est: febris nostra, iracúndia est.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Cáritas Dei \* diffúsa est in córdibus nostris, per inhabitántem Spíritum ejus in nobis, allelúja.
+
+#### Oratio
+
+MENTIBUS nostris, quǽsumus, Dómine, Spíritum Sanctum benígnus infúnde: cujus et sapiéntia cónditi sumus, et providéntia gubernámur. Per Dóminum... in unitáte ejúsdem Spíritus Sancti Deus.
+
+{RUBRIC: Post Nonam terminatur Officium de Octava, et, celebrata Missa, explicit Tempus Paschale.}
+
+{RUBRIC: Vesperæ de sequenti Festo sanctissimæ Trinitatis, Commemoratio Dominicæ I post Pentecosten.}
+
+---

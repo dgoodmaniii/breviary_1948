@@ -43049,4 +43049,46 @@ DA, quǽsumus, omnípotens Deus: ut beáti N. Confessóris tui atque Pontíficis
 
 **2 — Alia Oratio**
 
-EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti N. Confes-
+EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti N. Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+##### Pro Doctoribus
+
+{RUBRIC: In utrisque Vesperis}
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte N., divínæ legis amátor, deprecáre pro nobis Fílium Dei. (T. P. Allelúja.)
+
+**3 — Oratio**
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invitat.** Regem Confessórum Dóminum, \* Veníte, adorémus. (T. P. Allelúja.) **Ps. 94** Veníte, exsultémus.
+
+**Hymnus** Iste Conféssor, {RUBRIC: ut supra. [86]}
+
+##### In I Nocturno
+
+**Ant.** Beátus vir, \* qui in lege Dómini meditátur: volúntas ejus pérmanet die ac nocte, et ómnia quæcúmque fáciet, semper prosperabúntur. (T. P. Allelúja.)
+
+{RUBRIC: Tempore Paschali, sub prima tantum Antiphona (cum Allelúja) in quolibet Nocturno dicuntur Psalmi.}
+
+###### Psalmus 1
+
+BEATUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** Beátus vir, qui in lege Dómini meditátur: volúntas ejus pérmanet die ac nocte, et ómnia quæcúmque fáciet, semper prosperabúntur.

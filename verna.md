@@ -34081,6 +34081,8 @@ DEUS, qui beátum Marcum Evangelístam tuum evangélicæ prædicatiónis grátia
 
 ℣. Pretiósa in conspéctu.
 
+**Oratio** Deus, qui beátum Fidélem, {RUBRIC: ut supra.}
+
 {RUBRIC: In I Nocturno Lectiones Et factum est, de Communi Evangelistarum. [28]}
 
 ##### In II Nocturno
@@ -34091,4 +34093,22 @@ Ex libro sancti Hierónymi Presbýteri de Scriptóribus ecclesiásticis
 
 {RUBRIC: Cap. 8}
 
-MARCUS, discípulus et intérpres Petri, juxta quod Petrum referéntem audíerat, rogátus Romæ a frátribus, breve scripsit Evangélium. Quod cum Petrus audísset, et probávit, et Ecclésiæ legéndum sua auctoritáte dedit. Assúmpto ítaque Evangélio quod ipse con-
+MARCUS, discípulus et intérpres Petri, juxta quod Petrum referéntem audíerat, rogátus Romæ a frátribus, breve scripsit Evangélium. Quod cum Petrus audísset, et probávit, et Ecclésiæ legéndum sua auctoritáte dedit. Assúmpto ítaque Evangélio quod ipse confécerat, perréxit in Ægýptum, et primus Alexandríæ Christum annúntians, constítuit ecclésiam tanta doctrína et vitæ continéntia, ut omnes sectatóres Christi ad exémplum sui cógeret.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+DENIQUE Philo, disertíssimus Judæórum, videns Alexandríæ primam ecclésiam adhuc judaizántem, quasi in laudem gentis suæ, librum super eórum conversatióne scripsit. Et quómodo Lucas narrat Jerosólymæ credéntes ómnia habuísse commúnia: sic et ille, quod Alexandríæ sub Marco fíeri doctóre cernébat, memóriæ trádidit. Mórtuus est autem octávo Nerónis anno, et sepúltus Alexandríæ, succedénte sibi Aniáno.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+De Expositióne sancti Gregórii Papæ super Ezechiélem Prophétam
+
+###### Lectio vi
+
+{RUBRIC: Hom. 3 Lib. 1}
+
+SANCTA quátuor animália, quæ prophétiæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum dícitur: Quátuor fácies uni, et quátuor pennæ uni. Quid per fáciem, nisi notítia; et quid per pennas, nisi volátus exprímitur? Per fáciem quippe unusquísque cognóscitur: per pennas vero in altum ávium córpora sublevántur. Fácies ítaque ad fidem pértinet, penna ad contemplatiónem. Per fidem namque ab omnipoténti Deo cognóscimur, sicut ipse de suis óvibus dicit: Ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ. Qui rursus ait: Ego scio quos elégerim. Per contemplatiónem vero, qua super nosmetípsos tóllimur, quasi si in áëra levámur.
+
+℟. Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti. Glória Patri. Repléti.

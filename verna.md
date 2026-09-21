@@ -42619,4 +42619,38 @@ Amen.
 
 ##### In I Nocturno
 
-**Ant.** Stabunt justi \* in magna constántia advér-
+**Ant.** Stabunt justi \* in magna constántia advérsus eos, qui se angustiavérunt, allelúja.
+
+{RUBRIC: Sub una tantum Antiphona in quolibet Nocturno, dicuntur Psalmi cum Ant. et Versu ut in Communi unius aut plurimorum Martyrum extra Tempus Paschale, pro qualitate Festi. [35] vel [55]}
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Absolutio** Exáudi Dómine.
+
+**Benedictio** Benedictióne.
+
+{RUBRIC: Lectiones et Responsoria I Nocturni de Communi unius aut plurimorum Martyrum extra Tempus Paschale, pro qualitate Festi, [37] vel [57] cum ℟℟. pro Tempore Paschali ibidem notatis.}
+
+##### In II Nocturno
+
+**Ant.** Ecce \* quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est, allelúja.
+
+℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+**Absolutio** Ipsíus píetas.
+
+**Benedictio** Deus Pater.
+
+Sermo sancti Ambrósii Epíscopi
+
+**Lectio iv** *Sermo 22*
+
+DIGNUM et cóngruum est, fratres, ut post lætítiam Paschæ, quam in Ecclésia celebrávimus, gáudia nostra cum sanctis Martýribus conferámus; et iis annuntiémus Domínicæ resurrectiónis glóriam, qui consórtes sunt Domínicæ passiónis. Qui enim sócii sunt contuméliæ, debent et partícipes esse lætítiæ. Ita enim dicit beátus Apóstolus: Sicut sócii passiónum estis, et resurrectiónis éritis; si tolerábimus, inquit, et conregnábimus. Qui ergo toleravérunt mala propter Christum, debent et glóriam habére cum Christo.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et ætérnitas.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+ANNUNTIEMUS, inquam, sanctis Martýribus Domínicæ Paschæ grátiam: ut, dum sepultúræ illíus prædicámus reseráta claustra, et horum sepúlcra reseréntur; dum corpus illíus mórtuum dícimus, tepéntibus venis, súbito viguísse, horum quoque membra jam frígida immortalitátis calóre foveántur. Eadem enim rátio Mártyres súscitat, quæ et Dóminum suscitávit. Nam, sicut viam passiónis

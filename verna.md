@@ -38276,4 +38276,32 @@ REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Urbánum Mártyr
 
 DEUS, qui beátum Philíppum Confessórem tuum Sanctórum tuórum glória sublimásti: concéde propítius; ut, cujus solemnitáte lætámur, ejus virtútum proficiámus exémplo. Per Dóminum.
 
-{RUBRIC: Post Commemorationem Feriæ in Feria II Rogationum et in Vigília Ascensionis,}
+{RUBRIC: Post Commemorationem Feriæ in Feria II Rogationum et in Vigília Ascensionis, fit Commemoratio prǽcedentis:}
+
+**Ant.** Dum esset summus Póntifex, terréna non métuit, sed ad cæléstia regna gloriósus migrávit, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, in te sperántium, ut supra. 1000
+
+{RUBRIC: Deinde Commem. S. Eleutherii Papæ et Mart.:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Eleuthérium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PHILIPPUS Nérius, piis honestísque paréntibus Floréntiæ natus, ab ipsa ineúnte ætáte non obscúra dedit futúræ sanctitátis indícia. Adoléscens, ampla pátrui hereditáte dimíssa, Romam se cóntulit; ubi philosophía ac sacris litteris erudítus, totum se Christo dicávit. Ea fuit abstinéntia, ut sæpe jejúnus tríduum permánserit. Vigíliis et oratiónibus inténtus, septem Urbis ecclésias frequénter vísitans, apud cœmetérium Callísti in cæléstium rerum contemplatióne pernoctáre consuévit. Sacérdos ex obediéntia factus, in animárum salúte procuránda totus fuit; et in confessiónibus audiéndis ad extrémum usque diem persevérans, innúmeros pene fílios Christo péperit; quos verbi Dei quotidiáno pábulo, sacramentórum frequéntia, oratiónis assiduitáte, alíisque piis exercitatiónibus enutríri cúpiens, Oratórii congregatiónem institúit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam, allelúja. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+CARITATE Dei vulnerátus languébat júgiter, tantóque cor ejus æstuábat ardóre, ut, cum intra fines suos continéri non posset, illíus sinum, confráctis atque elátis duábus cóstulis, mirabíliter Dóminus ampliáverit. Sacrum vero fáciens aut ferventius orans,

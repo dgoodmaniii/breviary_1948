@@ -3220,4 +3220,116 @@ Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraud
 
 Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
 
-Vitam pétiit a te: \* et tribuísti ei longitúdinem
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in séculum, et in séculum séculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in séculum séculi: \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis: \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui: \* Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes: \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala: \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum: \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Dómine, in virtúte tua lætábitur rex.
+
+**Ant.** Exaltábo te, \* † Dómine, quóniam suscepísti me. ‡
+
+### Psalmus 29
+
+EXALTABO te, † Dómine, quóniam suscepísti me: \* ‡ nec delectásti inimícos meos super me.
+
+Dómine, Deus meus, clamávi ad te, \* et sanásti me.
+
+Dómine, eduxísti ab inférno ánimam meam: \* salvásti me a descendéntibus in lacum.
+
+Psállite Dómino, sancti ejus: \* et confitémini memóriæ sanctitátis ejus.
+
+Quóniam ira in indignatióne ejus: \* et vita in voluntáte ejus.
+
+Ad vésperum demorábitur fletus: \* et ad matutínum lætítia.
+
+Ego autem dixi in abundántia mea: \* Non movébor in ætérnum.
+
+Dómine, in voluntáte tua, \* præstitísti decóri meo virtútem.
+
+Avertísti fáciem tuam a me, \* et factus sum conturbátus.
+
+Ad te, Dómine, clamábo: \* et ad Deum meum deprecábor.
+
+Quæ utílitas in sánguine meo, \* dum descéndo in corruptiónem?
+
+Numquid confitébitur tibi pulvis, \* aut annuntiábit veritátem tuam?
+
+Audívit Dóminus, et misértus est mei: \* Dóminus factus est adjútor meus.
+
+Convertísti planctum meum in gáudium mihi: \* conscidísti saccum meum, et circumdedísti me lætítia:
+
+Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérnum confitébor tibi.
+
+**Ant.** Exaltábo te, Dómine, quóniam suscepísti me.
+
+#### In feriali Officio et in Festis:
+
+℣. Psállite Dómino, sancti ejus. ℟. Et confitémini memóriæ sanctitátis ejus.
+
+#### In Officio novem Lectionum
+
+**Absolutio** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Domini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctorum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absol.** Exáudi, Dómine.
+
+##### In Feriis, cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis, sine Homilia:
+
+**Bened.** 1 Benedictióne. 2 Unigénitus. 3 Spíritus Sancti.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+## Ad Laudes I
+
+*In Feriis extra Vigilias commúnes occurréntibus, atque in Festis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Jubiláte \* Deo in voce exsultatiónis.
+
+{RUBRIC: ¶ Antíphonæ, in hac et áliis Fériis apposítæ, dicúntur semper in Officio feriáli et in Festis sive trium sive novem Lectiónum, quando juxta Rúbricas suméndi sint Psalmi de Féria.}
+
+###### Psalmus 46
+
+OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.

@@ -40883,4 +40883,28 @@ CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discíp
 
 ℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
 
-{RUBRIC: Feria III et VI infra hebdómadam I et II post Octávam Paschæ quóties in I Nocturno Lectiónes fúerint de Scriptúra
+{RUBRIC: Feria III et VI infra hebdómadam I et II post Octávam Paschæ quóties in I Nocturno Lectiónes fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præcedéntis Responsórii dícitur sequens}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur in gáudium, allelúja, allelúja.
+
+{RUBRIC: Pro Pontifice Confessore}
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+{RUBRIC: Pro pluribus Pont. Conf.:}
+
+℟. Beáti, qui custódiunt judícium, \* Et fáciunt justítiam in omni témpore. ℣. Deus judícii Dóminus: beáti omnes, qui exspéctant eum. — Et.
+
+###### Lectio viii
+
+IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis lingua, quæ confitétur Dóminum, magistério hujus vocis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc érutos mundo, ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte munita est, ut eam neque hærética umquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, ratiónábili obséquio celebrétur hodiérna festívitas: ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendatárum sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.
+
+{RUBRIC: Pro Pontifice Martyre}
+
+{RUBRIC: extra Tempus Paschale:}
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+{RUBRIC: Sequens Responsorium dícitur, loco præcedéntis, in Offício unius Martyris, qui non effúso sánguine occúbuerit.}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. Glória Patri. Posuísti.

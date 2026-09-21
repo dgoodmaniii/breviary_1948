@@ -1535,3 +1535,53 @@ Benedícite, glácies et nives, Dómino: \* benedícite, noctes et dies, Dómino
 Benedícite, lux et ténebræ, Dómino: \* benedícite, fúlgura et nubes, Dómino.
 
 Benedícat terra Dóminum: \* laudet et superexáltet eum in sæcula.
+
+Benedícite, montes et colles, Dómino: \* benedícite, univérsa germinántia in terra, Dómino.
+
+Benedícite, fontes, Dómino: \* benedícite, mária et flúmina, Dómino.
+
+Benedícite, cete, et ómnia, quæ movéntur in aquis, Dómino: \* benedícite, omnes vólucres cæli, Dómino.
+
+Benedícite, omnes béstiæ et pécora, Dómino: \* benedícite, fílii hóminum, Dómino.
+
+Benedícat Israël Dóminum: \* laudet et superexáltet eum in sæcula.
+
+Benedícite, sacerdótes Dómini, Dómino: \* benedícite, servi Dómini, Dómino.
+
+Benedícite, spíritus, et ánimæ justórum, Dómino: \* benedícite, sancti, et húmiles corde, Dómino.
+
+Benedícite, Ananía, Azaría, Mísaël, Dómino: \* laudáte et superexaltáte eum in sæcula.
+
+Benedicámus Patrem et Fílium cum Sancto Spíritu: \* laudémus et superexaltémus eum in sæcula.
+
+Benedíctus es, Dómine, in firmaménto cæli: \* et laudábilis, et gloriósus, et superexaltátus in sæcula.
+
+{RUBRIC: ¶ Hic non dícitur} Glória Patri, {RUBRIC: neque} Amen.
+
+**Ant.** Tres púeri jussu regis in fornácem missi sunt, non timéntes flammam ignis, dicéntes: Benedíctus Deus, allelúja.
+
+**Ant.** Allelúja.
+
+###### Psalmus 148 [5]
+
+LAUDATE Dóminum de cælis: \* laudáte eum in excélsis.
+
+Laudáte eum, omnes Angeli ejus: \* laudáte eum, omnes virtútes ejus.
+
+Laudáte eum, sol et luna: \* laudáte eum, omnes stellæ et lumen.
+
+Laudáte eum, cæli cælórum: \* et aquæ omnes, quæ super cælos sunt, laudent nomen Dómini.
+
+Quia ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Státuit ea in ætérnum, et in sæculum sæculi: \* præcéptum pósuit, et non præteríbit.
+
+Laudáte Dóminum de terra, \* dracónes, et omnes abýssi.
+
+Ignis, grando, nix, glácies, spíritus procellárum: \* quæ fáciunt verbum ejus:
+
+Montes, et omnes colles: \* ligna fructífera, et omnes cedri.
+
+Béstiæ, et univérsa pécora: \* serpéntes, et vólucres pennátæ:
+
+Reges terræ, et omnes pópuli: \* príncipes, et omnes júdices terræ.

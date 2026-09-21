@@ -27535,4 +27535,22 @@ COMMONERE autem vos volo, sciéntes semel ómnia, quóniam Jesus pópulum de ter
 
 #### Lectio iii
 
-CUM Michaël Archángelus cum diábolo dísputans altercarétur de Móysi córpore, non est ausus judícium inférre blasphémiæ, sed dixit: Imperet tibi Dóminus. Hi autem quæcúmque quidem ignórant, blasphémant: quæcúmque autem naturáliter, tamquam muta animália, norunt, in his corrumpúntur. Væ illis, quia in via Cain abiérunt, et erróre Bálaam mercéde effúsi sunt et in contradictióne Core periérunt! Hi sunt in épulis suis máculæ, convivántes sine
+CUM Michaël Archángelus cum diábolo dísputans altercarétur de Móysi córpore, non est ausus judícium inférre blasphémiæ, sed dixit: Imperet tibi Dóminus. Hi autem quæcúmque quidem ignórant, blasphémant: quæcúmque autem naturáliter, tamquam muta animália, norunt, in his corrumpúntur. Væ illis, quia in via Cain abiérunt, et erróre Bálaam mercéde effúsi sunt et in contradictióne Core periérunt! Hi sunt in épulis suis máculæ, convivántes sine timóre, semetípsos pascéntes, nubes sine aqua, quæ a ventis circumferúntur, árbores autumnáles, infructuósæ, bis mórtuæ, eradicátæ, fluctus feri maris despumántes suas confusiónes, sídera errántia: quibus procélla tenebrárum serváta est in ætérnum.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+Ex Tractátu sancti Augustíni Epíscopi de Sýmbolo ad Catechúmenos
+
+{RUBRIC: Liber 4 cap. 1 tom. 9}
+
+#### Lectio iv
+
+CUM per sacratíssimum crucis signum vos suscépit in útero sancta mater Ecclésia, quæ sicut et fratres vestros cum summa lætítia spiritáliter páriet, nova proles futúra tantæ matris, quoúsque per lavácrum sanctum regenerátos veræ luci restítuat, cóngruis aliméntis eos, quos portat, pascat in útero, et ad diem partus sui lætos læta perdúcat: quóniam non tenétur hæc senténtia Hevæ, quæ in tristítia et gémitu parit fílios; nec ipsos gaudéntes, sed pótius flentes. Hæc enim solvit, quod ulla ligáverat: ut prolem, quam per inobediéntiam sui, morti donávit, hæc per obediéntiam restítuat vitæ. Omnia sacraménta, quæ acta sunt et agúntur in vobis per ministérium servórum Dei, exorcísmis, oratiónibus, cánticis spirituálibus, insufflatiónibus, cilício, inclinatióne cervícum, humilitáte pedum, pavor ipse omni securitáte appeténdus: hæc ómnia, ut dixi, escæ sunt, quæ vos refíciunt in útero, ut renátos ex baptísmo hílares vos mater exhíbeat Christo.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo.
+
+#### Lectio v
+
+ACCEPISTIS et sýmbolum, protectiónem parturiéntis contra venéna serpéntis. In Apocalýpsi Joánnis Apóstoli scriptum est hoc, quod staret draco in conspéctu mulíeris, quæ paritúra erat, ut cum pe-

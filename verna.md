@@ -38885,3 +38885,31 @@ EX Anglia duóbus cum sóciis navem solvens, Dorestádium in Frísiæ óppidum v
 ###### Lectio vi
 
 A Sancto Willibrórdo ad episcopále munus expetítus, illud detrectávit ut prómptius infidélium salúti instáret. In Germániam proféctus, plura Hassórum míllia a dæmonis superstitióne avocávit. A Gregório Pontífice Romam evocátus, post insígnem fídei professiónem epíscopus consecrátur. Exínde ad Germános redux, Hássiam et Thuríngiam ab idololatríæ relíquiis pénitus expurgávit. Tanta propter mérita Bonifátius a Gregório tértio ad dignitátem archiepiscopálem evéhitur, et tértio Romam proféctus a summo Pontífice Sedis apostólicæ legátus constitúitur. Qua insignítus auctoritáte quátuor episcopátus instítuit, et várias sýnodos celebrávit, inter quas concílium Leptinénse memorábile est, apud Belgas in Cameracénsi diœcési celebrátum, quo quidem témpore ad fídem in Bélgio adaugéndam egrégie cóntulit. A Zacharía Papa creátus Moguntínus archiepíscopus, ipso Pontífice jubénte, Pipínum in regem Francórum unxit. Post mortem sancti Willibrórdi Ultrajecténsem ecclésiam gubernándam suscépit, primo per Eóbanum, deínde per seípsum, dum ab ecclésia Moguntína absolútus Ultrajécti resédit. Frisónibus ad idololatríam relápsis, Evangélium prædicáre rursus aggréditur, cumque offício pastoráli occuparétur, a bárbaris et ímpiis homínibus juxta Bornam flúvium cum Eóbano coëpíscopo multísque áliis cruénta cæde perémptus martýrii palma condecorátur. Corpus sancti Bonifátii Mogúntiam translátum, et, ut ipse vivens petíerat, in Fuldénsi monastério, quod exstrúxerat, recónditum fuit, ubi multis miráculis incláruit. Pius autem nonus, Póntifex máximus, ejus Offícium et Missam ad univérsam Ecclésiam exténdit.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+BONIFATIUS, ántea Winfrídus appellátus, apud Anglos natus est exeúnte século séptimo. Monastérium ingréssus et sacerdótio auctus, magno animárum lucro in prædicatóris múnere est versátus. Zelo augéndæ fídei accénsus, apud Frísones Evangélium prædicávit. In Angliam revérsus, cum per biénnium monastério sanctíssime præfuísset, superióris múnere abdicáto, Romam se cóntulit, ubi a Gregório secúndo Bonifátii nomen accépit, et in Germániam missus, Thuríngiæ Saxoniæque pópulis Christum annuntiávit. Ad Frísones revérsus, cum sancto Willibrórdo, magno fructu Evangélium prædicávit. Mox Romam accersítus, episcopáli dignitáte insignítur, et in Germániam íterum proféctus, Hássiam et Thuríngiam ab idololatríæ relíquiis pénitus expurgávit. Sedis apostólicæ legátus creátus et Moguntínus archiepíscopus, plures eréxit et, per se vel per discípulos, administrávit ecclésias. Frisónibus demum ad idololatríam relápsis Evangélium prædicáre rursus aggréssus, cum Eóbano coëpíscopo multísque áliis, juxta Bornam flúvium cruénta cæde perémptus, martýrii palmam accépit. Ejus corpus in Fuldénsi monastério cónditum est.
+
+{RUBRIC: Te Deum.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 5, 1-12*
+
+IN illo témpore: Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Liber 1 de Sermóne Dómini in monte, cap. 2}
+
+BEATI mundo corde; quóniam ipsi Deum vidébunt. Quam ergo stulti sunt, qui Deum istis exterióribus óculis quærunt, cum corde videátur, sicut álibi scriptum est: Et in simplicitáte cordis quærite illum.

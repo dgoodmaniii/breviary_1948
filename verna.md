@@ -50271,3 +50271,59 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
 ℣. Dispérsit, dedit páuperibus. ℟. Justítia ejus manet in sæculum sæculi.
+
+℣. Benedícam Dóminum in omni témpore. ℟. Semper laus ejus in ore meo.
+
+℣. In Dómino laudábitur ánima mea. ℟. Audiant mansuéti, et læténtur.
+
+℣. Magnificáte Dóminum mecum. ℟. Et exaltémus nomen ejus in idípsum.
+
+℣. Sit nomen Dómini benedíctum. ℟. Ex hoc nunc et usque in sæculum.
+
+{RUBRIC: Deinde Sacerdos absolute dicat:}
+
+RETRIBUERE dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. ℟. Amen.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Pater noster, totum secreto.}
+
+{RUBRIC: Quo finito, Sacerdos dicit:}
+
+℣. Deus det nobis suam pacem. ℟. Amen.
+
+## Ante Cœnam
+
+{RUBRIC: Sacerdos benedicturus mensam incipit:} Benedícite, {RUBRIC: et alii repetunt:} Benedícite.
+
+{RUBRIC: Deinde Sacerdos incipit Versum:}
+
+EDENT páuperes, {RUBRIC: et alii prosequuntur:} Et saturabúntur, et laudábunt Dóminum, qui requírunt eum: vivent corda eórum in sæculum sæculi.
+
+Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Orémus.
+
+BENEDIC, Dómine, nos, et hæc tua dona, quæ de tua largitáte sumus sumptúri. Per Christum Dóminum nostrum. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+{RUBRIC: Bened.} Ad cœnam vitæ ætérnæ perdúcat nos Rex ætérnæ glóriæ. ℟. Amen.
+
+## Post Cœnam
+
+{RUBRIC: aguntur gratiæ ut post Prandium, sed dicitur:}
+
+℣. Memóriam fecit mirabílium suórum miséricors et miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+Glória Patri. Sicut erat.
+
+BENEDICTUS Deus in donis suis, et sanctus in ómnibus opéribus suis: Qui vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+{RUBRIC: Deinde alternatim dicitur} Ps. 116 Laudáte Dóminum, omnes gentes, {RUBRIC: et réliqua ut supra. [271]}

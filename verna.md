@@ -32843,4 +32843,58 @@ HÆC nimírum est illa hora, de qua Jesus, aquam conversúrus in vinum, díxerat
 
 ###### Lectio viii
 
-EX hac sana doctrína didícerat Paulus Apóstolus quod docébat quando dicébat: Si quis autem suis, et máxime domésticis non próvidet, fidem negávit, et est infidéli detérior. Quid autem tam cuique dométicum quam paréntes fíliis, aut paréntibus fílii? Hujus ítaque salubérrimi præcépti ipse Magíster Sanctórum de seípso constituébat exémplum; quando non ut fámulæ Deus, quam creáverat et regébat, sed ut matri homo, de qua creátus fúerat et quam relinquébat, álterum pro se
+EX hac sana doctrína didícerat Paulus Apóstolus quod docébat quando dicébat: Si quis autem suis, et máxime domésticis non próvidet, fidem negávit, et est infidéli detérior. Quid autem tam cuique dométicum quam paréntes fíliis, aut paréntibus fílii? Hujus ítaque salubérrimi præcépti ipse Magíster Sanctórum de seípso constituébat exémplum; quando non ut fámulæ Deus, quam creáverat et regébat, sed ut matri homo, de qua creátus fúerat et quam relinquébat, álterum pro se quodámmodo fílium providébat.
+
+℟. Eja, Mater fons amóris, fac nos sentíre vim dolóris, ut tecum lugeámus, \* Et Domínicæ passiónis fructum sentiámus. ℣. Ut sicut Fílius tuus Jesus pro nobis mórtuus est, et resurréxit; ita et nos commórtui cum eódem resurgámus. — Et. Glória Patri. Et.
+
+{RUBRIC: IX Lectio de Homilia Feriæ. 431}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Vadam ad montem \* myrrhæ, et ad collem thuris.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+**2** Diléctus meus \* cándidus, et rubicúndus: comæ cápitis ejus sicut púrpura regis vincta canálibus.
+
+**3** Quo ábiit \* diléctus tuus, o pulchérrima muliérum? quo diléctus tuus declinávit?
+
+**4** Fascículus myrrhæ \* diléctus meus mihi, inter úbera mea commorábitur.
+
+**5** Fulcíte me flóribus, \* stipáte me malis, quia amóre lángueo.
+
+**Capitulum** *Is. 53, 1-2*
+
+QUIS crédidit audítui nostro? et bráchium Dómini cui revelátum est? Et ascéndet sicut virgúltum coram eo, et sicut radix de terra sitiénti.
+
+###### Hymnus
+
+VIRGO vírginum præclára,
+Mihi jam non sis amára,
+Fac me tecum plángere.
+
+Fac ut portem Christi mortem,
+Passiónis fac consórtem
+Et plagas recólere;
+
+Fac me plagis vulnerári,
+Fac me cruce inebriári
+Et cruóre Fílii.
+
+Flammis ne urar succénsus,
+Per te, Virgo, sim defénsus
+In die judícii.
+
+Christe, cum sit hinc exíre,
+Da per Matrem me veníre
+Ad palmam victóriæ.
+
+Quando corpus moriétur,
+Fac ut ánimæ donétur
+Paradísi glória. Amen.
+
+℣. Ora pro nobis, Virgo dolorosíssima. ℟. Ut digni efficiámur promissiónibus Christi.
+
+**Ad Bened. Ant.** Cum vidísset Jesus \* Matrem stantem juxta crucem, et discípulum quem diligébat, dicit Matri suæ: Múlier, ecce fílius tuus. Deínde dicit discípulo: Ecce mater tua.

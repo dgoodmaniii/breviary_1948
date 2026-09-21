@@ -16797,3 +16797,51 @@ HOC sciunt initiáti, qui per aquam regenerántur, ac per sánguinem et carnem n
 CUM sese testem áfferens ubíque non vidérétur fide dignum habéri, addúcit Móysen, ut ínnuat hoc non casu factum esse, sed jam olim scripto fuísse prænuntiátum. Hoc illud dictum est: Os ejus non comminuétur. Rursúmque ex seípso Prophétæ fidem facit. Hæc dixi, inquit, ut discátis magnam esse affinitátem inter figúram et veritátem. Viden' quantam curam adhíbeat, ut credátur illud quod turpe et ignominiósum vidétur? Nam corpus a mílite contumélia áffici, longe pejus erat quam crucifígi. Attamen et hæc dixi, inquit, et cum magna diligéntia dixi, ut credátis. Nemo ítaque fidem neget, neque præ pudóre nostris nóceat. Nam quæ máxime contumeliósa vidéntur, hæc sunt bonórum nostrórum honestíssima.
 
 **Te Deum laudámus.**
+
+## Dominica infra Oct. Ssmi Cordis Jesu
+
+*quæ est III post Pent. — Semiduplex*
+
+{RUBRIC: Omnia dicúntur ut in Festo Sacratíssimi Cordis Jesu, præter sequéntia:}
+
+### In I Vesperis
+
+{RUBRIC: Ánæ et Psalmi ut in I Vésperis. 343}
+
+**Capitulum** *1 Petri 5, 6-7*
+
+CArissimi, humiliámini sub poténti manu Dei, ut vos exáltet in témpore visitatiónis; omnem sollicitúdinem vestram projiciéntes in eum, quóniam ipsi cura est de vobis.
+
+**Hymnus** En ut supérba. 362
+
+℣. Memóriam fecit mirabílium suórum miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+**Ad Magnif. Ant.** Cognovérunt omnes \* a Dan usque Bersabée, quod fidélis Sámuel prophéta esset Dómini.
+
+### Oratio
+
+PRotéctor in te sperántium, Deus, sine quo nihil est válidum, nihil sanctum, multíplica super nos misericórdiam tuam; ut, te rectóre, te duce, sic transeámus per bona temporália, ut non amittámus ætérna. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis diéi infra Octávam:}
+
+**Ant.** Ad Jesum autem \* cum veníssent, ut vidérunt eum jam mórtuum, non fregérunt ejus crura, sed unus mílitum láncea latus ejus apéruit et contínuo exívit sanguis et aqua.
+
+℣. Hauriétis aquas in gáudio. ℟. De fóntibus Salvatóris.
+
+### Oratio
+
+DEus qui nobis, in Corde Fílii tui, nostris vulneráto peccátis, infinítos dilectiónis thesáuros misericórditer largíri dignáris; concéde, quæsumus, ut illi devótum pietátis nostræ præstántes obséquium, dignæ quoque satisfactiónis exhibeámus offícium. Per eúmdem Dóminum.
+
+{RUBRIC: Completórium de Domínica.}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 9, 18-27; 10, 1*
+
+ACcéssit autem Saul ad Samuélem in médio portæ, et ait: Indica, oro, mihi, ubi est domus Vidéntis. Et respóndit Sámuel Sauli dicens: Ego sum Videns; ascénde ante me in excél-

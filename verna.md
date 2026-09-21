@@ -37632,4 +37632,48 @@ DOMINUM ígitur étiam nos imitémur, et nihil pro frátribus omittámus, étiam
 
 ###### Lectio ix
 
-SI non est nobis satis ad salútem quod virtuóse ipsi vivámus, sed opórtet
+SI non est nobis satis ad salútem quod virtuóse ipsi vivámus, sed opórtet aliórum salútem re ipsa desideráre; cum neque nos recte vivámus neque álios hortémur, quid respondébimus? quæ nobis spes salútis réliqua erit? Quid majus quam ánimis moderári, quam adolescentulórum fíngere mores? Omni certe pictóre, omni certe statuário ceterísque hujúsmodi ómnibus excellentiórem hunc duco, qui júvenum ánimos fíngere non ignóret.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DEUS, qui ad christiánam páuperum eruditiónem et ad juvéntam in via veritátis firmándam, sanctum Joánnem Baptístam Confessórem excitásti, et novam per eum in Ecclésia famíliam collegísti: concéde propítius; ut, ejus intercessióne et exémplo, stúdio glóriæ tuæ in animárum salúte fervéntes, ejus in cælis corónæ partícipes fíeri valeámus. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+{RUBRIC: Et fit Commemoratio sequentis.}
+
+---
+
+### Die 16 Maji
+
+#### S. Ubaldi
+
+{RUBRIC: Episcopi et Confessoris}
+
+{RUBRIC: Semiduplex [84]}
+
+**Ant.** Sacérdos et Póntifex, et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+AUXILIUM tuum nobis, Dómine, quǽsumus, placátus impénde: et intercessióne beáti Ubáldi Confessóris tui atque Pontíficis, contra omnes diáboli nequítias déxteram super nos tuæ propitiatiónis exténde. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+UBALDUS Eugúbii in Úmbria nóbili génere natus, a primis annis pietáte et lítte-

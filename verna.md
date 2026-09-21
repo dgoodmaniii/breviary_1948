@@ -36094,3 +36094,61 @@ FRATRES: Hoc enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma 
 
 LUSTRA sex qui jam perégit,
 Tempus implens córporis,
+Sponte líbera Redémptor
+Passióni déditus,
+Agnus in Crucis levátur
+Immolándus stípite.
+
+Felle potus ecce languet:
+Spina, clavi, láncea
+Mite corpus perforárunt:
+Unda manat, et cruor:
+Terra, pontus, astra, mundus,
+Quo lavántur flúmine!
+
+Crux fidélis, inter omnes
+Arbor una nóbilis:
+Silva talem nulla profert
+Fronde, flore, gérmine:
+Dulce ferrum, dulce lignum,
+Dulce pondus sústinent.
+
+Flecte ramos, arbor alta,
+Tensa laxa víscera,
+Et rigor lentéscat ille,
+Quem dedit natívitas;
+Et supérni membra Regis
+Tende miti stípite.
+
+Sola digna tu fuísti
+Ferre mundi víctimam;
+Atque portum præparáre
+Arca mundo náufrago,
+Quam sacer cruor perúnxit,
+Fusus Agni córpore.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Unius Triníque nomen
+Laudet univérsitas.
+Amen.
+
+℣. Adorámus te, Christe, et benedícimus tibi, allelúja. ℟. Quia per Crucem tuam redemísti mundum, allelúja.
+
+**Ad Bened. Ant.** Super ómnia \* ligna cedrórum tu sola excélsior, in qua Vita mundi pepéndit, in qua Christus triumphávit, et mors mortem superávit in ætérnum, allelúja.
+
+###### Oratio
+
+DEUS, qui in præclára salutíferæ Crucis Inventióne, passiónis tuæ mirácula suscitásti: concéde; ut vitális ligni prétio, ætérnæ vitæ suffrágia consequámur: Qui vivis.
+
+{RUBRIC: Et, post Commemorationem Feriæ in Feria II Rogationum et in Vigília Ascensiónis, fit Commem. Ss. Alexandri I Papæ, Eventii et Theóduli Martyrum, ac Juvenalis Ep. et Conf. ad Laudes tantum:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui sanctórum tuórum Alexándri, Evéntii, Theodúli atque Juvenális natalítia cólimus; a cunctis malis imminéntibus, eórum intercessiónibus liberémur. Per Dóminum.

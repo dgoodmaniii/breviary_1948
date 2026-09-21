@@ -35086,4 +35086,28 @@ NON est dúbium quin bonus et fidélis homo fúerit iste Joseph, cui Mater despo
 
 #### Lectio vi
 
-CUI dénique datum est quod multi reges et prophétæ, cum vellent vidére, non vidérunt, audíre et non audiérunt; non solum vidére et audíre, sed étiam portáre, dedúcere, amplécti, deosculári, et nutríre et custodíre. Non tantum autem Joseph, sed
+CUI dénique datum est quod multi reges et prophétæ, cum vellent vidére, non vidérunt, audíre et non audiérunt; non solum vidére et audíre, sed étiam portáre, dedúcere, amplécti, deosculári, et nutríre et custodíre. Non tantum autem Joseph, sed et María descendísse credénda est de domo David; alióquin non esset desponsáta viro de domo David, si non esset et ipsa de domo David. Ambo ígitur erant de domo David; sed in áltera compléta est véritas, quam jurávit Dóminus David, áltero tamen cónscio et teste adimplétæ promissiónis.
+
+℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória Patri. Si exsúrgat.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 3, 21-23*
+
+IN illo témpore: Factum est autem cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Comment. in Luc. lib. 3 cap. 3}
+
+QUOD per Salomónem Matthǽus generatiónem derivándam putávit, Lucas vero per Nathan, álteram regálem, álteram sacerdotálem Christi famíliam vidétur osténdere. Quod non ita accípere debémus, quod álterum áltero vérius; sed alter álteri pari fide et veritáte concórdet. Fuit enim vere et secúndum carnem regális et sacerdotális famíliæ, Rex ex régibus, Sacérdos ex sacerdótibus; licet oráculum non de carnálibus, sed de cæléstibus exprimátur: quóniam et Rex in Dei virtúte lætátur, cui judícium a Patre Rege defértur, et Sacérdos est in ætérnum, secúndum quod scriptum est: Tu es Sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis nomen ejus Jesum, allelúja. ℣. Ipse enim salvum fáciet pópulum suum a peccátis eórum. — Et.
+
+#### Lectio viii
+
+BENE ígitur utérque ténuit fidem, ut Matthǽus per reges ductam oríginem comprobáret, et Lucas per sacerdótes a Deo transmíssam in Christum sériem géneris deducéndo, sanctiórem ipsam oríginem declaráret. Simul in hoc quoque vítuli

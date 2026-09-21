@@ -20695,3 +20695,35 @@ IN nómine Jesu omne genu flectátur cæléstium, terréstrium, et infernórum: 
 **Ad Magnif. Ant.** Scriptum est enim: \* Percútiam pastórem, et dispergéntur oves gregis: postquam autem resurréxero, præcédam vos in Galilǽam: ibi me vidébitis, dicit Dóminus.
 
 {RUBRIC: ¶ Omnes Feriæ hujus Hebdomadæ sunt majóres privilegiátæ.}
+
+---
+
+## Feria Secunda Majóris Hebdomadæ
+
+### Ad Matutinum
+
+**Absolutio** Exáudi.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 12, 1-9*
+
+ANTE sex dies Paschæ venit Jesus Bethániam, ubi Lázarus fúerat mórtuus, quem suscitávit Jesus. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 50 in Joannem, post inítium}
+
+NE putárent hómines phantásma esse factum, quia mórtuus resurréxit, Lázarus unus erat ex recumbéntibus: vivébat, loquebátur, epulabátur; véritas ostendebátur, infidélitas Judæórum confundebátur. Discumbébat ergo Jesus cum Lázaro et céteris: ministrábat Martha, una ex soróribus Lázari. María vero, áltera soror Lázari, accépit libram unguénti nardi pístici pretiósi, et unxit pedes Jesu, et extérsit capíllis suis pedes ejus, et domus impléta est ex odóre unguénti. Factum audívimus: mystérium requirámus.
+
+℟. Viri ímpii dixérunt: Opprimámus virum justum injúste, et deglutiámus eum tamquam inférnus vivum: auferámus memóriam illíus de terra: et de spóliis ejus sortem mittámus inter nos: ipsi enim homicídæ thesaurizavérunt sibi mala. \* Insipiéntes et malígni odérunt sapiéntiam: et rei facti sunt in cogitatiónibus suis. ℣. Hæc cogitavérunt, et erravérunt: et excæcávit illos malítia eórum. — Insipiéntes.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+QUÆCUMQUE ánima fidélis vis esse, cum María unge pedes Dómini pretióso unguénto. Unguéntum illud justítia fuit, ídeo libra fuit: erat autem unguéntum nardi pístici pretiósi. Quod ait, pístici, locum áliquem crédere debémus, unde hoc erat unguéntum pretiósum: nec tamen hoc vacat, et sacraménto óptime cónsonat. Pistis Græce, fides Latíne dícitur. Quærébas operári justítiam. Justus ex fide vivit. Unge pedes Jesu bene vivéndo: Domínica sectáre vestígia. Capíllis terge: si habes supérflua, da paupéribus, et Dómini pedes tersísti: capílli enim supérflua córporis vidéntur. Habes quod agas de supérfluis tuis: tibi su-

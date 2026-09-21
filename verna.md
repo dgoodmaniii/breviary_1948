@@ -37891,3 +37891,15 @@ Amen.
 ###### Lectio iv
 
 VENANTIUS Camers, quíndecim annos natus, cum christiánæ religiónis accusarétur apud Antíochum, qui sub Décio imperatóre Camerino præérat, in porta civitátis præsídi se óbtulit. Quem ille pollicitatiónibus ac terróribus diu tentátum, flagris cædi et vínculis astríngi jussit; sed is mirabíliter ab Angelo solútus, lampádibus póstea adúritur, atque invérso ore, fumo suppósito, suspénditur. Ejus constántiam in torméntis demirátus Anastásius Corniculárius, et quod eum ab Angelo íterum solútum cándida veste supra fumum ambulántem vidísset, in Christum crédidit; et a beáto Porphýrio presbýtero cum família baptizátus, paulo post martýrii palmam cum eódem proméruit.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+AT Venántius præsídi sístitur, et ab eo íterum frustra tentátus ut Christi fidem deséreret, in cárcerem conjícitur; quo Attalus præco míttitur, qui ei dicat se quoque christiánum fuísse, et ei nómini proptérea renuntiásse, quod cognovísset ináne esse fídei comméntum, quo Christiáni præséntibus se ábdicant ob vanam futurórum spem. Verum nóbilis Christi athléta, cállidi hostis insídias non ignórans, diáboli minístrum a se pénitus rejécit. Quare ad præsidem íterum addúcto omnes contúsi sunt dentes maxillǽque confráctæ; atque, ita cǽsus, in sterquilínium dejícitur. Sed inde ab Angelo quoque eréptus, rursus stetit ante júdicem; qui, Venántio adhuc loquénte, e tribunáli cécidit et in ea voce, Verus est Venántii Deus, nostros deos destrúite, exclámans exspirávit.
+
+℟. In servis suis, allelúja: \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+QUOD cum præsídi nuntiátum esset, extémplo Venántium leónibus objíci jussit; qui, naturáli feritáte omíssa, ad ejus pedes abjecérunt. Intérim ille pópulum Christi fidem edocébat. Quare inde amótus, íterum in cárcerem tráditur. Cumque postrídie præsídi referrét Porphýrius, se per visum noctu pópulos, quos Venántius aqua tingébat, claríssima luce fulgéntes, ipsum vero præsídem obscuríssima calígine opértum vidísse; præses, ira incénsus, eum íllico cápite plecti ímperat, deínde Venántium per loca vépribus et cárduis cónsita trahi usque ad vésperam. Is, cum semiánimis relíctus esset, mane se íterum præsídi præsentávit; cujus jussu statim e rupe præcipitátur. Sed inde étiam divínitus eréptus, dénuo per loca áspera ad mille passus tráhitur; ubi, milítibus siti æstuántibus, in próxima conválle, ex lápide, in quo et génuum formam relíquit, sicut étiam nunc in ejus ecclésia vidére licet, crucis signo a Venántio facto, aquæ

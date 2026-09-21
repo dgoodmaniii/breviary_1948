@@ -25051,3 +25051,27 @@ ET Angelo Pérgami ecclésiæ scribe: Hæc dicit qui habet rhomphǽam utráque p
 **Ad Magnif. Ant.** Tristítia vestra \* vertétur in gáudium, allelúja: et gáudium vestrum nemo tollet a vobis, allelúja, allelúja.
 
 ---
+
+## Feria Tertia
+
+De libro Apocalýpsis beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 4, 1-11*
+
+POST hæc vidi: et ecce óstium apértum in cælo, et vox prima, quam audívi tamquam tubæ loquéntis mecum, dicens: Ascénde huc, et osténdam tibi quæ opórtet fíeri post hæc. Et statim fui in spíritu: et ecce sedes pósita erat in cælo, et supra sedem sedens. Et qui sedébat, símilis erat aspéctui lápidis jáspidis, et sárdinis: et iris erat in circúitu sedis símilis visióni smarágdinæ. Et in circúitu sedis sedília vigínti quátuor: et super thronos vigínti quátuor senióres sedéntes, circumamícti vestiméntis albis, et in capítibus eórum corónæ áureæ. Et de throno procedébant fúlgura, et voces, et tonítrua: et septem lámpades ardéntes ante thronum, qui sunt septem spíritus Dei.
+
+℟. Vidi Jerúsalem descendéntem de cælo, ornátam auro mundo, et lapídibus pretiósis intéxtam: \* Allelúja, allelúja. ℣. Et erat structúra muri ejus ex lápide jáspide; ipsa vero aurum mundum, símile vitro mundo. — Allelúja, allelúja.
+
+#### Lectio ii
+
+ET in conspéctu sedis tamquam mare vítreum símile crystállo: et in médio sedis, et in circúitu sedis quátuor animália plena óculis ante et retro. Et ánimal primum símile leóni, et secúndum ánimal símile vítulo, et tértium ánimal habens fáciem quasi hóminis, et quartum ánimal símile áquilæ volánti. Et quátuor animália, síngula eórum habébant alas senas: et in circúitu et intus plena sunt óculis: et réquiem non habébant die ac nocte, dicéntia: Sanctus, sanctus, sanctus Dóminus Deus omnípotens, qui erat, et qui est, et qui ventúrus est.
+
+℟. In diadémate cápitis Aaron magnificéntia Dómini sculpta erat: \* Dum perficerétur opus Dei, allelúja, allelúja, allelúja. ℣. In veste enim podéris quam habébat, totus erat orbis terrárum, et paréntum magnália in quátuor ordínibus lápidum sculpta erant. — Dum.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Dum.
+
+#### Lectio iii
+
+ET, cum darent illa animália glóriam, et honórem, et benedictiónem

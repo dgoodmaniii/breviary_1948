@@ -18172,4 +18172,22 @@ ET ait rex Abísai et univérsis servis suis: Ecce fílius meus, qui egréssus e
 
 *Cap. 18, 6-12*
 
-EGréssus est pópulus in campum contra Israël, et factum est prǽlium in saltu Ephraïm. Et cæsus est ibi pópulus Israël ab exércitu David, factáque est plaga magna in die illa vigínti míllium. Fuit autem ibi prǽlium dispérsum super fáciem omnis
+EGréssus est pópulus in campum contra Israël, et factum est prǽlium in saltu Ephraïm. Et cæsus est ibi pópulus Israël ab exércitu David, factáque est plaga magna in die illa vigínti míllium. Fuit autem ibi prǽlium dispérsum super fáciem omnis terræ, et multo plures erant, quos saltus consúmpserat de pópulo, quam hi quos voráverat gládius in die illa.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+ACcidit autem ut occúrreret Absalom servis David sedens mulo; cumque ingréssus fuísset mulus subter condénsam quercum et magnam, adhǽsit caput ejus quércui et, illo suspénso inter cælum et terram, mulus cui inséderat pertransívit. Vidit autem hoc quíspiam, et nuntiávit Joab dicens: Vidi Absalom pendére de quercu. Et ait Joab viro qui nuntiáverat ei: Si vidísti, quare non confodísti eum cum terra et ego dedíssem tibi decem argénti siclos et unum bálteum? Qui dixit ad Joab: Si appénderes in mánibus meis mille argénteos, nequáquam mítterem manum meam in fílium regis; audiéntibus enim nobis, præcépit rex tibi et Abísai et Ethái dicens: Custodíte mihi púerum Absalom.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+*Cap. 18, 14-17*
+
+ET ait Joab: Non sicut tu vis, sed aggrédiar eum coram te. Tulit ergo tres lánceas in manu sua et infíxit eas in corde Absalom: cumque adhuc palpitáret hærens in quercu, cucurrérunt decem júvenes armígeri Joab et percutiéntes interfecérunt eum. Cécinit autem Joab búccina et retínuit pópulum, ne persequerétur fugiéntem Israël, volens párcere multitúdini. Et tulérunt Absalom et projecérunt eum in saltu in fóveam grandem et comportavérunt super eum acérvum lápidum magnum nimis.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam

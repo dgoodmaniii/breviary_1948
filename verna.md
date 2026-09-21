@@ -40323,3 +40323,75 @@ IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quand
 EX occasióne hujus senténtiæ quidam introdúcunt mille annos post resurrectiónem, dicéntes, tunc nobis céntuplum ómnium rerum quas dimísimus, et vitam ætérnam esse reddéndam; non intelligéntes, quod, si in céteris digna sit repromíssio, in uxóribus appáreat turpitúdo, ut, qui unam pro Dómino dimíserit, centum recípiat in futúro. Sensus ergo iste est: Qui carnália pro Salvatóre dimíserit, spirituália recípiet; quæ comparatióne et mérito sui ita erunt, quasi si parvo número centenárius númerus comparétur.
 
 {RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Sancti tui, \* Dómine, florébunt sicut lílium, allelúja: et sicut odor bálsami erunt ante te, allelúja.
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** In cæléstibus regnis \* Sanctórum habitátio est, allelúja: et in ætérnum réquies eórum, allelúja.
+
+**3** In velaménto \* clamábant Sancti tui, Dómine, allelúja, allelúja, allelúja.
+
+**4** Spíritus et ánimæ \* justórum, hymnum dícite Deo nostro, allelúja, allelúja.
+
+**5** Fulgébunt justi \* sicut sol in conspéctu Dei, allelúja.
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+PASCHALE mundo gáudium
+Sol núntiat formósior,
+Cum luce fulgéntem nova
+Jesum vident Apóstoli.
+
+In carne Christi vúlnera
+Micáre tamquam sídera
+Mirántur, et quidquid vident,
+Testes fidéles prǽdicant.
+
+Rex Christe cleméntíssime,
+Tu corda nostra pósside,
+Ut lingua grates débitas
+Tuo rependat nómini.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+¶ Ab Ascensióne autem usque ad Fériam VI ante Vigíliam Pentecóstes inclusíve, dícitur:
+
+Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+¶ Conclusiónes præcedéntes numquam mutántur.
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+{RUBRIC: Oratio propria.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+**Capit.** Stabunt, ut supra.
+
+℟. br. Sancti et justi, in Dómino gaudéte, \* Alle-

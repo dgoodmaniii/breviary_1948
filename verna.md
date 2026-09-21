@@ -43139,4 +43139,38 @@ Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
 
 Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
 
-Non timébo míllia pópuli circumdántis me: \* ex-
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Tu es glória mea, tu es suscéptor meus, Dómine: tu exáltans caput meum, et exaudísti me de monte sancto tuo.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Beátus vir, qui in lege Dómini meditátur: volúntas ejus pérmanet die ac nocte, et ómnia quæcúmque fáciet, semper prosperabúntur, allelúja.
+
+##### Pro Conf. Pont. et non Pont.
+
+℣. Amávit eum Dóminus, et ornávit eum. (T. P. Allelúja.) ℟. Stolam glóriæ índuit eum. (T. P. Allelúja.)
+
+**Absolutio** Exáudi, Dómine.
+
+**Benedictio** Benedictióne.
+
+De Epístola prima beáti Pauli Apóstoli ad Timótheum
+
+**Lectio i** *Cap. 3, 1-7*
+
+FIDELIS sermo: Si quis episcopátum desíderat, bonum opus desíderat. Opórtet ergo epíscopum irreprehensíbilem esse, uníus uxóris virum, sóbrium, prudéntem, ornátum, pudícum, hospitálem, doctórem, non vinoléntum, non percussórem, sed modéstum; non litigiósum, non cúpidum, sed suæ dómui bene præpósitum, fílios habéntem súbditos cum omni castitáte. Si quis autem dómui suæ prǽesse nescit, quómodo Ecclésiæ Dei diligéntiam habébit? Non neóphytum, ne, in supérbiam elátus, in judícium íncidat diáboli. Opórtet autem illum et testimónium habére bonum ab iis qui foris sunt, ut non in oppróbrium íncidat, et in láqueum diáboli.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. (T. P. Allelúja.) ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.
+
+**Benedictio** Unigénitus Dei.
+
+De Epístola ad Titum
+
+**Lectio ii** *Cap. 1, 7-11*
+
+OPORTET enim epíscopum sine crímine esse, sicut Dei dispensatórem: non supérbum, non iracúndum, non vinoléntum, non percussórem, non turpis lucri cúpidum; sed hospitálem, benígnum, sóbrium, justum, sanctum,

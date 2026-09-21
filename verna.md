@@ -19657,4 +19657,18 @@ IN illo témpore: Jam die festo mediánte, ascéndit Jesus in templum, et docéb
 
 {RUBRIC: Tract. 29 in Joánnem, sub initium}
 
-ILLE qui latébat, docébat, et palam loquebátur, et non tenebátur. Illud enim ut latéret, erat causa exémpli, hoc potestátis. Sed cum docéret, mirabántur Judǽi. Omnes quidem, quantum árbitror, mirabántur, sed non omnes convertebántur. Et unde admirátio? Quia multi nóverant ubi natus, quemádmodum fúerit educátus. Numquam eum víderant lítteras discéntem: audiébant autem de lege dispu-
+ILLE qui latébat, docébat, et palam loquebátur, et non tenebátur. Illud enim ut latéret, erat causa exémpli, hoc potestátis. Sed cum docéret, mirabántur Judǽi. Omnes quidem, quantum árbitror, mirabántur, sed non omnes convertebántur. Et unde admirátio? Quia multi nóverant ubi natus, quemádmodum fúerit educátus. Numquam eum víderant lítteras discéntem: audiébant autem de lege disputántem, legis testimónia proferéntem, quæ nemo posset proférre, nisi legísset, nemo légeret, nisi lítteras didicísset: et ídeo mirabántur. Eórum autem admirátio magístro facta est insinuándæ áltius veritátis occásio.
+
+℟. Quid me quǽritis interfícere, hóminem qui vera locútus sum vobis? \* Si male locútus sum, testimónium pérhibe de malo: si autem bene, cur me cædis? ℣. Multa bona ópera operátus sum vobis: propter quod opus vultis me occídere? — Si.
+
+#### Lectio ii
+
+EX eórum quippe admiratióne et verbis, dixit Dóminus profúndum áliquid, et diligéntius ínspici et díscuti dignum. Quid ergo Dóminus respóndit eis, admirántibus quómodo sciret lítteras, quas non didícerat? Mea, inquit, doctrína non est mea, sed ejus qui misit me. Hæc est profúnditas prima: vidétur enim paucis verbis quasi contrária locútus. Non enim ait: Ista doctrína non est mea: sed, Mea doctrína non est mea. Si non tua, quómodo tua? si tua, quómodo non tua? Tu enim dicis utrúmque: et mea doctrína, et non mea.
+
+℟. Addúxi vos per desértum quadragínta annis ego Dóminus, et non sunt attríta vestiménta vestra: \* Manna de cælo plui vobis, et oblíti estis me, dicit Dóminus. ℣. Ego edúxi vos de terra Ægýpti, et de domo servitútis liberávi vos. — Manna.
+
+#### Lectio iii
+
+SI ergo intueámur diligénter quod ipse in exórdio dicit sanctus Evangelísta: In princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum: inde pendet hujus solútio quæstiónis. Quæ est doctrína Patris, nisi Verbum Patris? Ipse ergo Christus doctrína Patris, si Verbum Patris. Sed quia Verbum non potest esse nullíus, sed alicújus: et suam doctrínam dixit seípsum, et non suam, quia Patris est Verbum. Quid enim tam tuum quam tu? et quid tam non tuum quam tu, si alicújus est, quod es?
+
+℟. Móyses fámulus Dei jejunávit quadragínta diébus et quadragínta nóctibus: \* Ut legem Dómini mererétur accípere. ℣. Ascéndens Móyses in montem Sínai ad Dóminum, fuit ibi quadragínta diébus et quadragínta nóctibus. — Ut. Glória. Ut.

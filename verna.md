@@ -33677,4 +33677,26 @@ NIHIL est opértum quod non revelábitur, nec occúltum quod non sciétur. Quod 
 
 ℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
 
-{RUBRIC: Feria III et VI infra hebdomadam I et II post Octavam
+{RUBRIC: Feria III et VI infra hebdomadam I et II post Octavam Paschæ, quoties in I Nocturno Lectiones fuerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præcedéntis Responsórii dícitur sequens:}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+###### Lectio viii
+
+DEINDE, postquam illos omni angóre, timóre et sollicitúdine liberávit, et probris ómnibus superióres réddidit, demum illos opportúne de libertáte prædicándi allóquitur; nam dicit: Quod dico vobis in ténebris, dícite in lúmine; et quod in aure audítis, prædicáte super tecta. Quamquam non erant ténebræ, cum hæc díceret neque ad aurem loquebátur: sed hæc hyperbólice dicta sunt. Quia enim solos alloquebátur, et in parvo Palæstínæ ángulo, ídeo dicit, In ténebris et In aure; hunc loquéndi modum compárans cum loquéndi fidúcia, qua illos póstea instructúrus erat. Ne in una, duábus tribúsque civitátibus, sed per totum orbem prædicáte, terram maréque peragrántes, habitátam, non habitátam; ac tyránnis, pópulis, philósophis, rhetóribus cum magna fidúcia ómnia dícite. Ideo dixit super tecta et in lúmine; sine ullo subterfúgio, et cum omni libertáte.
+
+{RUBRIC: In Quadragesima}
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Cándidi facti sunt Nazaréi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ; extra Quadragesimam:}
+
+{RUBRIC: Pro Ss. Tiburtio, Valeriano et Maximo Mm.}
+
+###### Lectio ix
+
+VALERIANUS Románus, nóbili génere ortus, Alexándro Sevéro imperatóre, hortátu beátæ Cæcíliæ Vírginis, quam sibi

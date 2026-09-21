@@ -39491,3 +39491,15 @@ DEUS, qui beátam Juliánam Vírginem tuam extrémo morbo laborántem pretióso 
 **Oratio** Deus, qui nos, ut supra.
 
 ---
+
+[IMAGE]
+
+# Commune Sanctorum
+
+In omnibus Festis novem Lectionum Apostolorum vel Evangelistarum, in Duplicibus I et II classis aliorum Sanctorum, in Dedicatione Ecclesiæ, in Festis beatæ Mariæ Virginis, non autem per eorum Octavas, Officium integrum, præter ea quæ suis locis propria assignantur, dicitur de respectivo Communi, ut infra.
+
+In reliquis Sanctorum Festis, in Octavis non privilegiatis quibuslibet et in Officio sanctæ Mariæ in Sabbato, præter ea quæ pariter suis locis assignantur propria, Antiphonæ et Psalmi ad omnes Horas et Versus Nocturnorum sumuntur de occurrenti hebdomadæ die; Lectiones I Nocturni aut Lectio I et II cum suis Responsoriis dicuntur de Scriptura occurrenti, juxta Rubricas; reliqua omnia de respectivo Communi, ut infra, vel, in Octavis, ut in die Festo.
+
+Tempore Paschali speciale habetur Commune pro Apostolis, Evangelistis et Martyribus, ut infra; in Communi autem Confessorum, Virginum et non Virginum, Dedicationis Ecclesiæ et Festorum beatæ Mariæ Virginis, necnon in Officio ejusdem in Sabbato, omnia dicuntur ut extra Tempus Paschale, sed additur unum **Allelúja** Invitatorio, Antiphonis, Versibus eorumque Responsoriis, necnon et Responsoriis post Lectiones Nocturnorum ante Versum; Psalmi dicuntur in quolibet Nocturno sub prima Antiphona, et Responsoria brevia Horarum dicuntur cum duplici **Allelúja**, ut infra suis locis ponitur.
+
+---

@@ -6036,3 +6036,55 @@ Pater noster et Ave.
 AD te levávi óculos meos, \* qui hábitas in cælis.
 
 Ecce, sicut óculi servórum \* in mánibus dominórum suórum.
+
+Sicut óculi ancíllæ in mánibus dóminæ suæ: \* ita óculi nostri ad Dóminum, Deum nostrum, donec misereátur nostri.
+
+Miserére nostri, Dómine, miserére nostri: \* quia multum repléti sumus despectióne:
+
+Quia multum repléta est ánima nostra: \* oppróbrium abundántibus, et despéctio supérbis.
+
+**Ant.** Qui hábitas in cælis, miserére nobis.
+
+**Ant.** Adjutórium nostrum \* in nómine Dómini.
+
+### Psalmus 123
+
+NISI quia Dóminus erat in nobis, dicat nunc Israël: \* nisi quia Dóminus erat in nobis.
+
+Cum exsúrgerent hómines in nos, \* forte vivos deglutíssent nos:
+
+Cum irascerétur furor eórum in nos, \* fórsitan aqua absorbuísset nos.
+
+Torréntem pertransívit ánima nostra: \* fórsitan pertransísset ánima nostra aquam intolerábilem.
+
+Benedíctus Dóminus \* qui non dedit nos in captiónem déntibus eórum.
+
+Anima nostra sicut passer erépta est \* de láqueo venántium:
+
+Láqueus contrítus est, \* et nos liberáti sumus.
+
+Adjutórium nostrum in nómine Dómini, \* qui fecit cælum et terram.
+
+**Ant.** Adjutórium nostrum in nómine Dómini.
+
+**Ant.** In circúitu pópuli sui \* Dóminus, ex hoc nunc et usque in sæculum.
+
+### Psalmus 124
+
+QUI confídunt in Dómino, sicut mons Sion: \* non commovébitur in ætérnum, qui hábitat in Jerúsalem.
+
+Montes in circúitu ejus: \* et Dóminus in circúitu pópuli sui, ex hoc nunc et usque in sæculum.
+
+Quia non relínquet Dóminus virgam peccatórum super sortem justórum: \* ut non exténdant justi ad iniquitátem manus suas.
+
+Bénefac, Dómine, bonis, \* et rectis corde.
+
+Declinántes autem in obligatiónes addúcet Dóminus cum operántibus iniquitátem: \* pax super Israël.
+
+**Ant.** In circúitu pópuli sui Dóminus, ex hoc nunc et usque in sæculum.
+
+**Ant.** Magnificávit Dóminus \* fácere nobíscum: facti sumus lætántes.
+
+### Psalmus 125
+
+IN converténdo Dóminus captivitátem Sion: \* facti sumus sicut consoláti:

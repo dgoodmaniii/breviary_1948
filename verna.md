@@ -43395,4 +43395,34 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 
 {RUBRIC: Tempore Paschali}
 
-**Ant.** Dómine, iste Sanctus habitábit in tabernáculo tuo, operátus est
+**Ant.** Dómine, iste Sanctus habitábit in tabernáculo tuo, operátus est justítiam, requiéscet in monte sancto tuo, allelúja.
+
+℣. Tu es sacérdos in ætérnum. (T. P. Allelúja.) ℟. Secúndum órdinem Melchísedech. (T. P. Allelúja.)
+
+##### Pro Conf. non Pont.
+
+℣. Lex Dei ejus in corde ipsíus. (T. P. Allelúja.) ℟. Et non supplantabúntur gressus ejus. (T. P. Allelúja.)
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 25, 14-23*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Homo péregre proficíscens, vocávit servos suos, et trádidit illis bona sua. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 9 in Evang.}
+
+LECTIO sancti Evangélii, fratres caríssimi, sollícite consideráre nos ádmonet, ne nos, qui plus céteris in hoc mundo accepísse áliquid cérnimur, ab Auctóre mundi grávius inde judicémur. Cum enim augéntur dona, ratiónes crescunt donórum. Tanto ergo esse humílior atque ad serviéndum Deo prómptior quisque debet ex múnere, quanto se obligatiórem esse cónspicit in reddénda ratióne. Ecce homo, qui péregre proficíscitur, servos suos vocat eísque ad negótium talénta partítur. Post multum vero témporis positúrus ratiónem revértitur. Bene operántes pro apportáto lucro remúnerat, servum vero a bono ópere torpéntem damnat.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+**Benedictio** Cujus festum.
+
+###### Lectio viii
+
+QUIS ítaque iste homo est, qui péregre proficíscitur, nisi Redémptor noster, qui in ea carne, quam assúmpserat, ábiit in cælum? Carnis enim locus próprius terra est; quæ quasi ad peregrína dúcitur, dum per Redemptórem nostrum in cælo collocátur. Sed homo iste, péregre proficíscens, servis suis bona sua trádidit, quia fidélibus suis spirituália dona concéssit. Et uni quidem quinque talénta, álii duo, álii vero commísit unum. Quinque eténim sunt córporis sensus, vidélicet: vi-

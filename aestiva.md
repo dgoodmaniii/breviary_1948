@@ -17304,4 +17304,12 @@ QUantópere autem hujúsmodi expiatiónis seu reparatiónis necéssitas hac nost
 
 ##### Lectio v
 
-HIsce vero malis véluti in cúmulum accédit cum eórum ignávia atque
+HIsce vero malis véluti in cúmulum accédit cum eórum ignávia atque socórdia, qui, dormitántium et fugiéntium instar discipulórum, nutántes in fide, Christum angóribus opréssum vel Sátanæ satellítibus circumvéntum mísere derelínquunt, tum eórum perfídia, qui, Judæ proditóris exémplum secúti, aut témere et sacrílege de altári libant, aut ad hóstium castra transfúgiunt. Atque ita vel invítum subit cogitátio ánimum, jam própius adventáre témpora de quibus Dóminus noster vaticinátus est: Et quóniam abundávit iníquitas, refrigéscet cáritas multórum. Quæ quidem ómnia quotquot pie commentáti erunt fidéles, fácere non póterunt, quin, Christi perdoléntis incénsi caritáte, vehementióre stúdio suas aliorúmque culpas éxpient, Christi honórem resárciant, æternámque próvehant animárum salútem.
+
+℟. Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus \* Et revelásti ea párvulis. ℣. Ita, Pater, quóniam sic fuit plácitum ante te. — Et.
+
+##### Lectio vi
+
+ET sane illud Apóstoli: Ubi abundávit delíctum, superabundávit grátia, áliquo pacto ad hanc quoque ætátem nostram describéndam accommodáre licet: nam, aucta ádmodum perversitáte hóminum, mirífice item, Spíritu Sancto afflánte, númerus fidélium utriúsque sexus augétur, qui alacrióre ánimo pro tot illátis injúriis divíno Cordi satisfácere student, immo étiam se ipsos Christo víctimas offérre non dúbitant. Etenim quæ usque adhuc memorávimus si quis secum ánimo réputet amánter eadémque véluti in medúllis defíxa hábeat, fíeri profécto non potest quin is non tam ab omni peccáto tamquam summo malo abhórreat atque abstíneat, quam se totum Dei voluntáti permíttat, et læsum divínæ Majestátis honórem, cum continénter orándo, tum afflictatiónibus sponte suscéptis ærumnísque, si quæ incíderint, patiénter tolerátis, tum tota demum vita hoc expiatiónis stúdio exigénda, resarcíre conténdat.
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum quóniam magnus es tu, et fáciens mirabília. — Et. Glória Patri. Et.

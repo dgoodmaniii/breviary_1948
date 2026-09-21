@@ -8828,3 +8828,53 @@ Posuísti iniquitátes nostras in conspéctu tuo: \* sæculum nostrum in illumin
 Quóniam omnes dies nostri defecérunt: \* et in ira tua defécimus.
 
 Anni nostri sicut aránea meditabúntur: \* dies annórum nostrórum in ipsis, septuagínta anni.
+
+Si autem in potentátibus, octogínta anni: \* et ámplius eórum, labor et dolor.
+
+Quóniam supervénit mansuetúdo: \* et corripiémur.
+
+Quis novit potestátem iræ tuæ: \* et præ timóre tuo iram tuam dinumeráre?
+
+Déxteram tuam sic notam fac: \* et erudítos corde in sapiéntia.
+
+Convértere, Dómine, úsquequo? \* et deprecábilis esto super servos tuos.
+
+Repléti sumus mane misericórdia tua: \* et exsultávimus, et delectáti sumus ómnibus diébus nostris.
+
+Lætáti sumus pro diébus, quibus nos humiliásti: \* annis, quibus vídimus mala.
+
+Réspice in servos tuos, et in ópera tua: \* et dírige fílios eórum.
+
+Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos: \* et opus mánuum nostrárum dírige.
+
+**Ant.** Convértere, Dómine, et deprecábilis esto super servos tuos.
+
+**Ant.** Multiplicásti, Deus.
+
+### Psalmus 35
+
+DIxit injústus ut delínquat in semetípso: \* non est timor Dei ante óculos ejus.
+
+Quóniam dolóse egit in conspéctu ejus: \* ut inveniátur iníquitas ejus ad ódium.
+
+Verba oris ejus iníquitas, et dolus: \* nóluit intellígere ut bene ágeret.
+
+Iniquitátem meditátus est in cubíli suo: \* ástitit omni viæ non bonæ, malítiam autem non odívit.
+
+Dómine, in cælo misericórdia tua: \* et véritas tua usque ad nubes.
+
+Justítia tua sicut montes Dei: \* judícia tua abýssus multa.
+
+Hómines, et juménta salvábis, Dómine: \* quemádmodum multiplicásti misericórdiam tuam, Deus.
+
+Fílii autem hóminum, \* in tégmine alárum tuárum sperábunt.
+
+Inebriabúntur ab ubertáte domus tuæ: \* et torrénte voluptátis tuæ potábis eos.
+
+Quóniam apud te est fons vitæ: \* et in lúmine tuo vidébimus lumen.
+
+Præténde misericórdiam tuam sciéntibus te, \* et justítiam tuam his, qui recto sunt corde.
+
+Non véniat mihi pes supérbiæ: \* et manus peccatóris non móveat me.
+
+Ibi cecidérunt qui operántur iniquitátem: \* expúlsi sunt, nec potuérunt stare.

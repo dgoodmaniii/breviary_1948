@@ -41182,3 +41182,55 @@ ET nunc ecce ego scio quia ámplius non vidébitis fáciem meam vos omnes, per q
 ET nunc comméndo vos Deo, et verbo grátiæ ipsíus, qui potens est ædificáre, et dare hereditátem in sanctificátis ómnibus. Argéntum et aurum, aut vestem nullíus concupívi, sicut ipsi scitis: quóniam ad ea, quæ mihi opus erant, et his, qui mecum sunt, ministravérunt manus istæ. Omnia osténdi vobis, quóniam sic laborántes, opórtet suscípere infírmos, ac meminísse verbi Dómini Jesu, quóniam ipse dixit: Beátius est magis dare, quam accípere. Et cum hæc dixísset, pósitis génibus suis, orávit cum ómnibus illis. Magnus autem fletus factus est ómnium: et procumbéntes super collum Pauli, osculabántur eum, doléntes máxime in verbo, quod díxerat, quóniam ámplius fáciem ejus non essent visúri. Et deducébant eum ad navem.
 
 ℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum: \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. Glória Patri. Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória Patri. Mors.
+
+##### In II Nocturno
+
+**Ant.** Fílii hóminum, \* scitóte quia Dóminus sanctum suum mirificávit.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Ecce, \* quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est, allelúja.
+
+###### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** Fílii hóminum, scitóte quia Dóminus sanctum suum mirificávit.
+
+**Ant.** Scuto bonæ voluntátis \* tuæ coronásti eum, Dómine.
+
+###### Psalmus 5
+
+VERBA mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo: \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus: \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem: \* perdes omnes, qui loquúntur mendácium.

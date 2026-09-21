@@ -41572,4 +41572,26 @@ PRINCIPES persecúti sunt me gratis: et a verbis tuis trepidávit cor meum. Bene
 
 ###### Lectio v
 
-VERE frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, cum fídei sit magíster. Verum, qui gratis impugnátur, fortis debet esse et constans. Quómodo ergo subtéxuit: Et a verbis tuis trepidávit cor
+VERE frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, cum fídei sit magíster. Verum, qui gratis impugnátur, fortis debet esse et constans. Quómodo ergo subtéxuit: Et a verbis tuis trepidávit cor meum? Trepidáre infirmitátis est, timóris atque formídinis. Sed est étiam infírmitas ad salútem, est étiam timor sanctórum. Timéte Dóminum, omnes sancti ejus: et, Beátus vir, qui timet Dóminum. Qua ratióne beátus? Quia in mandátis ejus cupit nimis.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis: posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+###### Lectio vi
+
+PONE ergo Mártyrem inter perícula constitútum, cum inde immánitas bestiárum ad incutiéndum terrórem infremat, aliúnde stridor candéntium laminárum et flamma fornácis ardéntis exǽstuet, ex parte ália pérsonent tractus grávium catenárum, hinc cárnifex cruéntus assístat: Pone, inquam, circumspectántem ómnia plena supplíciis, deínde cogitántem mandáta divína, illum ignem perpétuum, illud sine fine incéndium perfidórum, illam pœnæ recrudescéntis ærúmnam; trepidáre corde, ne, dum præséntibus cedat, perpétuis se dedat exítiis; perturbári ánimo, dum futúri judícii rhompháeam illam terríbilem quadam conspéctus spécie contuétur. Nonne ad hanc trepidatiónem fidúciæ viri constántis, æquális in eúmdem concúrrit efféctum confidéntia cupiéntis ætérna, et divína trepidántis?
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+##### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+**Lectio vii** *Cap. 16, 24-27*
+
+IN illo témpore: Dixit Jesus discípulis suis: Si quis vult post me veníre, ábneget semetípsum, et tollat crucem suam, et sequátur me. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 32 in Evang.}
+
+QUIA Dóminus ac Redémptor noster novus homo venit in mundum, nova præcépta dedit mundo. Vitæ étenim nostræ véteri in vítiis enutrítæ contrarietátem oppósuit novitátis suæ. Quid enim vetus, quid carnális

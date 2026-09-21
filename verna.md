@@ -41334,3 +41334,51 @@ Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in phá
 Quóniam quæ perfecísti, destruxérunt: \* justus autem quid fecit?
 
 Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
+
+Oculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+**Ant.** Justus Dóminus, et justítiam diléxit: æquitátem vidit vultus ejus.
+
+**Ant.** Habitábit \* in tabernáculo tuo: requiéscet in monte sancto tuo.
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Habitábit in tabernáculo tuo: requiéscet in monte sancto tuo.
+
+**Ant.** Posuísti, Dómine, \* super caput ejus corónam de lápide pretióso.
+
+###### Psalmus 20
+
+DOMINE, in virtúte tua lætábitur rex: \* et super salutáre tuum exsultábit vehementer.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sæculum, et in sæculum sæculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sæculum sæculi: \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.

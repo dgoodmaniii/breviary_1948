@@ -47533,3 +47533,66 @@ CONCEDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córpori
 
 Jesu, tibi sit glória,
 Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+##### Ad Matutinum
+
+**Invit.** Ave, María, grátia plena; \* Dóminus tecum, allelúja. **Ps. 94** Veníte, exsultémus.
+
+###### Hymnus
+
+QUEM terra, pontus, sídera
+Colunt, adórant, prǽdicant,
+Trinam regéntem máchinam,
+Claustrum Maríæ bájulat.
+
+Cui luna, sol et ómnia
+Desérviunt per témpora,
+Perfúsa cæli grátia,
+Gestant puéllæ víscera.
+
+Beáta Mater múnere,
+Cujus, supérnus Artifex
+Mundum pugíllo cóntinens,
+Ventris sub arca clausus est.
+
+Beáta cæli núntio,
+Fecúnda Sancto Spíritu,
+Desiderátus géntibus
+Cujus per alvum fusus est.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: In Nocturno Antiphonæ, Psalmi et Versus de Sabbato. 297}
+
+{RUBRIC: Deinde} Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+**Absolutio.** PRECIBUS et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne.
+
+**Pro I Lect. Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+{RUBRIC: Lectio I et II dicuntur de Scriptura occurrenti, cum suis Responsoriis de Tempore; Lectio vero III erit una ex inferius [215]-[216] positis, juxta ordinem mensium.}
+
+**Pro II Lect. Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+**Per III Lect. Bened.** Per Vírginem matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
+
+{RUBRIC: Post III Lectionem dicitur Hymnus Te Deum.}
+
+##### Ad Laudes
+
+{RUBRIC: Antiphonæ cum Psalmis de Sabbato 1 loco. 305}
+
+###### Capitulum
+
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.

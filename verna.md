@@ -28345,4 +28345,24 @@ QUANTUM in médico est, sanáre venit ægrótum. Ipse se intérimit, qui præcé
 
 #### Lectio ii
 
-NOVIT enim Dóminus qui sunt ejus: novit qui permáneant ad corónam, qui permáneant ad flammam. Novit in área sua tríticum, novit et páleam; novit ségetem, novit et zizánia. Jam judicátus est, qui non credit. Quare judicátus? Quia non crédidit in nómine unigéniti Fílii Dei. Hoc est autem judícium: quia lux venit in
+NOVIT enim Dóminus qui sunt ejus: novit qui permáneant ad corónam, qui permáneant ad flammam. Novit in área sua tríticum, novit et páleam; novit ségetem, novit et zizánia. Jam judicátus est, qui non credit. Quare judicátus? Quia non crédidit in nómine unigéniti Fílii Dei. Hoc est autem judícium: quia lux venit in mundum, et dilexérunt hómines magis ténebras quam lucem; erant enim mala ópera eórum. Fratres mei, quorum ópera bona invénit Dóminus? Nullórum. Omnia ópera mala invénit. Quómodo ergo quidam fecérunt veritátem, et venérunt ad lucem? Et hoc enim séquitur: Qui autem facit veritátem, venit ad lucem.
+
+℟. Spíritus Sanctus, procédens a throno, Apostolórum péctora invisibíliter penetrávit novo sanctificatiónis signo: \* Ut in ore eórum ómnium génera nasceréntur linguárum, allelúja. ℣. Advénit ignis divínus, non combúrens, sed illúminans, et tríbuit eis charísmatum dona. — Ut. Glória Patri. Ut.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+SED dilexérunt, inquit, ténebras magis quam lucem. Ibi pósuit vim. Multi enim dilexérunt peccáta sua, multi conféssi sunt peccáta sua: quia qui confitétur peccáta sua, et accúsat peccáta sua, jam cum Deo facit. Accúsat Deus peccáta tua: si et tu accúsas, conjúngeris Deo. Quasi duæ res sunt, homo et peccátor. Quod audis, homo, Deus fecit: quod audis, peccátor, ipse homo fecit. Dele, quod fecísti, ut Deus salvet, quod fecit. Opórtet ut óderis in te opus tuum, et ames in te opus Dei. Cum autem cœperit tibi displicére quod fecísti, inde incípiunt bona ópera tua, quia accúsas mala ópera tua. Inítium óperum bonórum conféssio est óperum malórum.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Sic Deus \* diléxit mundum, ut Fílium suum unigénitum daret: ut omnis, qui credit in ipsum, non péreat, sed hábeat vitam ætérnam, allelúja.
+
+#### Oratio
+
+DEus, qui Apóstolis tuis Sanctum dedísti Spíritum: concéde plebi tuæ piæ petitiónis efféctum; ut, quibus dedísti fidem, largiáris et pacem. Per Dóminum... in unitáte ejúsdem.
+
+**Ad Magnif. Ant.** Si quis díligit me, \* sermónem meum servábit: et Pater meus díliget eum, et ad eum veniémus, et mansiónem apud eum faciémus, allelúja.
+
+---

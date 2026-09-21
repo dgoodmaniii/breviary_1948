@@ -38134,4 +38134,12 @@ GRAVI morbo tentátus, eóque ad quátuor menses patientíssime toleráto, demum
 
 ###### Lectio vi
 
-CUMQUE ea témpora vítiis criminibúsque redundárent, et cruéntis fa-
+CUMQUE ea témpora vítiis criminibúsque redundárent, et cruéntis factiónibus in Itália, divína humánaque ómnia permíxta essent, Bernardínus urbes atque óppida concúrsans, in nómine Jesu, quem semper in ore et in péctore gerébat, collápsam pietátem morésque verbo et exémplo magna ex parte restítuit. Quo factum est, ut præcláræ civitátes eum sibi epíscopum a summo Pontífice postulárent; quod ille munus invícta humilitáte constantíssime rejécit. Dénique vir Dei imménsis labóribus exháustus, multis magnísque éditis miráculis, libris étiam pie doctéque conscríptis, cum vixísset annos sex ac sexagínta, in urbe Aquila in Vestínis beáto fine quiévit. Quem novis in dies coruscántem signis, anno post óbitum sexto, Nicoláus quintus Póntifex máximus in Sanctórum númerum rétulit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+BERNARDINUS Albizésca, nóbili Senénsi família ortus, inter prima grammáticæ stúdia, negléctis puerílibus ludis, pietátis opéribus ánimum inténdit, beátæ Vírginis cúltui præcípue addíctus. Caritáte et misericórdia in páuperes insígnis, eórum servítio Senis in hospitáli beátæ Maríæ de Scala se mancipávit. De capesséndo religiósæ vitæ institúto delíberans, Deo sic disponénte, beáti Francísci órdinem præ céteris optávit, in quo humilitáte, patiéntia, alíisque religiósi hóminis virtútibus excélluit. Prædicándi ónere a superióribus suscépto, cum se minus idóneum agnósceret ob vocis exilitátem et raucitátem, Dei ope implóráta, prodigióse ab hoc impediménto liberátus est. Urbes atque óppida concúrsans, in nómine Jesu, quem semper in ore et péctore gerébat, cívium ubíque discórdias exstínxit, et collápsam pietátem morésque verbo et exémplo magna ex parte restítuit. Libros pie doctéque conscrípsit. Plenus méritis et miráculis clarus, annos natus sex ac sexagínta, in urbe

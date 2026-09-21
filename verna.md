@@ -39343,3 +39343,67 @@ ECCLESIAM tuam, Deus, beáti Antónii Confessóris tui solémnitas votíva læt�
 **Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Basíli, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
 
 ℣. Amávit eum Dóminus.
+
+**Oratio** C 2
+
+EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti Basílii Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+##### Ad Laudes
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+℣. Justum dedúxit.
+
+##### In II Vesperis
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Basíli, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Justum dedúxit.
+
+---
+
+### Die 15 Junii
+
+#### Ss. Viti, Modesti atque Crescentiæ
+
+{RUBRIC: Martyrum}
+
+{RUBRIC: Commemoratio}
+
+##### Ad Vesperas
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+DA Ecclésiæ tuæ, quǽsumus, Dómine, sanctis Martýribus tuis Vito, Modésto atque Crescéntia intercedéntibus: supérbe non sápere, sed tibi plácita humilitáte profícere; ut, prava despíciens, quæcúmque recta sunt, líbera exérceat caritáte. Per Dóminum.
+
+##### Ad Laudes
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+---
+
+### Die 18 Junii
+
+#### S. Ephræm Syri
+
+{RUBRIC: Diaconi,}
+
+{RUBRIC: Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex, sed ad modum Simplicis recolendum}
+
+##### In I Vesperis
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Ephræm, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Ephræm Confessóris tui et Doctóris

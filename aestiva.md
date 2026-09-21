@@ -15055,3 +15055,29 @@ QUicúmque manducáverit panem hunc, vel bíberit cálicem Dómini indígne, reu
 {RUBRIC: Omnia ut in I Vesperis. 294, præter sequéntia:}
 
 ℣. Panem de cælo præstitísti eis, allelúja. ℟. Omne delectaméntum in se habéntem, allelúja.
+
+**Ad Magnif. Ant.** O sacrum convívium, \* in quo Christus súmitur; recólitur memória passiónis ejus; mens implétur grátia; et futúræ glóriæ nobis pignus datur, allelúja.
+
+{RUBRIC: Completórium de Domínica.}
+
+{RUBRIC: Infra Octávam et in die Octáva ómnia dicúntur ut in Festo, excéptis Lectiónibus, quæ pro síngulis diébus assignántur própriæ; et non dícitur ix Lectio alicújus Festi commemoráti.}
+
+## Feria VI infra Oct. Ssmi Corporis Christi
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 2, 27-36*
+
+VEnit autem vir Dei ad Heli et ait ad eum: Hæc dicit Dóminus: Numquid non apérte revelátus sum dómui patris tui, cum essent in Ægýpto in domo Pharaónis? Et elégi eum ex ómnibus tríbubus Israël mihi in sacerdótem, ut ascénderet ad altáre meum et adoléret mihi incénsum et portáret ephod coram me; et dedi dómui patris tui ómnia de sacrifíciis filiórum Israël. Quare calce abjecístis víctimam meam et múnera mea, quæ præcépi ut offerréntur in templo, et magis honorásti fílios tuos quam me, ut comederétis primítias omnis sacrifícii Israël pópuli mei?
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et.
+
+##### Lectio ii
+
+PRoptérea ait Dóminus, Deus Israël: Loquens locútus sum, ut domus tua et domus patris tui ministráret in conspéctu meo usque in sempitérnum; nunc autem dicit Dóminus: Absit hoc a me; sed quicúmque glorificáverit me, glorificábo eum; qui autem contémnunt me, erunt ignóbiles. Ecce dies véniunt, et præcídam bráchium tuum et bráchium domus patris tui, ut non sit senex in domo tua. Et vidébis æmulum tuum in templo, in univérsis prósperis Israël; et non erit senex in domo tua ómnibus diébus. Verúmtamen non áuferam pénitus virum ex te ab altári meo; sed ut defíciant óculi tui,

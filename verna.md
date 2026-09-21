@@ -27033,4 +27033,42 @@ CARISSIMI: Estóte prudéntes, et vigiláte in oratiónibus. Ante ómnia autem m
 
 **Capitulum** *1 Petri 4, 9-10*
 
-HOSPITALES ínvicem sine murmuratióne: unusquísque, sicut accépit grátiam, in altérutrum illam administrántes, sicut boni
+HOSPITALES ínvicem sine murmuratióne: unusquísque, sicut accépit grátiam, in altérutrum illam administrántes, sicut boni dispensatóres multifórmis grátiæ Dei.
+
+**℟. br.** Ascéndens Christus in altum, \* Allelúja, allelúja. Ascéndens. ℣. Captívam duxit captivitátem. Allelúja, allelúja. Glória Patri. Ascéndens. ℣. Ascéndo ad Patrem meum, et Patrem vestrum, allelúja. ℟. Deum meum, et Deum vestrum, allelúja.
+
+## Ad Nonam
+
+**Ant.** Vidéntibus illis, \* elevátus est, et nubes suscépit eum in cælo, allelúja.
+
+**Capitulum** *1 Petri 4, 11*
+
+SI quis lóquitur, quasi sermónes Dei: si quis minístrat, tamquam ex virtúte, quam administrat Deus: ut in ómnibus honorificétur Deus per Jesum Christum, Dóminum nostrum.
+
+**℟. br.** Ascéndo ad Patrem meum, et Patrem vestrum, \* Allelúja, allelúja. Ascéndo. ℣. Deum meum, et Deum vestrum. Allelúja, allelúja. Glória. Ascéndo. ℣. Dóminus in cælo, allelúja. ℟. Parávit sedem suam, allelúja.
+
+## In II Vesperis
+
+{RUBRIC: Antiphonæ, Cap. et Hymnus de Laudibus 627; Psalmi de Dominica 72, sed loco ultimi Ps. 116 Laudáte Dóminum, omnes gentes. 92}
+
+℣. Dóminus in cælo, allelúja. ℟. Parávit sedem suam, allelúja.
+
+**Ad Magnif. Ant.** Hæc locútus sum \* vobis, ut cum vénerit hora eórum, reminiscámini, quia ego dixi vobis, allelúja.
+
+**Oratio** Omnípotens sempitérne, {RUBRIC: ut supra. 628}
+
+{RUBRIC: Et fit Commemoratio sequéntis diéi infra Octavam:}
+
+**Ant.** Pater, manifestávi nomen tuum homínibus quos dedísti mihi: nunc autem pro eis rogo, non pro mundo, quia ad te vénio, allelúja.
+
+{RUBRIC: Si autem sequénti die faciéndum non sit Offícium de Octáva, dícitur}
+
+**Ant.** O Rex glóriæ, Dómine virtútum, qui triumphátor hódie super omnes cælos ascendísti, ne derelínquas nos órphanos; sed mitte promíssum Patris in nos, Spíritum veritátis, allelúja.
+
+℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.
+
+**Oratio** Concéde, {RUBRIC: ut supra. 628}
+
+{RUBRIC: Completórium de Dominica.}
+
+---

@@ -47146,3 +47146,31 @@ Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuér
 Sicut lætántium ómnium \* habitátio est in te.
 
 **Ant.** Sicut lætántium ómnium nostrum habitátio est in te, sancta Dei Génitrix. (T. P. Allelúja.)
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna, allelúja.
+
+℣. Adjuvábit eam Deus vultu suo. (T. P. Allelúja.) ℟. Deus in médio ejus, non commovébitur. (T. P. Allelúja.)
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+Sermo sancti Joánnis Chrysóstomi
+
+{RUBRIC: Apud Metaphrasten}
+
+###### Lectio iv
+
+DEI Fílius non dívitem aut locuplétem áliquam féminam sibi matrem elégit, sed beátam Vírginem illam, cujus ánima virtútibus ornáta erat. Cum enim beáta María supra omnem humánam natúram castitátem serváret, proptérea Christum Dóminum in ventre concépit. Ad hanc ígitur sanctíssimam Vírginem et Dei Matrem accurréntes, ejus patrocínii utilitátem assequámur. Itaque, quæcúmque estis vírgines, ad Matrem Dómini confúgite; illa enim pulchérrimam, pretiosíssimam et incorruptíbilem possessiónem, patrocínio suo, vobis conservábit.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion: quasi myrrha elécta, \* Dedi suavitátem odóris. (T. P. Allelúja.) ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+MAGNUM revéra miráculum, fratres dilectíssimi, fuit beáta semper Virgo María. Quid namque illa majus aut illústrius ullo umquam témpore invéntum est, seu aliquándo inveníri póterit? Hæc sola cælum ac terram amplitúdine superávit. Quidnam illa sánctius? Non Prophétæ, non Apóstoli, non Mártyres, non Patriárchæ, non Angeli, non Throni, non Dominatiónes, non Séraphim, non Chérubim; non dénique áliud quídpiam inter creátas res visíbiles aut invisíbiles majus aut excelléntius inveníri potest. Eadem ancílla Dei est et mater; éadem Virgo et Génitrix.
+
+℟. Quæ est ista, quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. (T. P. Allelúja.) ℣. Et sicut dies verni circúmdabant eam flores

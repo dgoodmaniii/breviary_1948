@@ -33841,4 +33841,20 @@ ANSELMUS, Augústæ Prætóriæ in fínibus Itáliæ, Gundúlpho et Ermembérga 
 
 ###### Lectio v
 
-ABSTINENTIÆ et continéntiæ tantæ fuit, ut assiduitáte jejúnii omnis pene cibórum sensus in eo viderétur exstínctus. Diúrno enim témpore in exercítiis monásticis docéndo, et respondéndo váriis de religióne quæsítis eménso; quod réliquum erat noctis, somno subtrahébat, ut divínis meditatiónibus, quas perénni lacrimárum imbre fovébat, mentem recreáret. Eléctus in priórem monastérii ínvidos fratres ita caritáte, humilitáte et prudéntia lenívit, ut quos æmulos accéperat, sibi et Deo amícos, máximo cum reguláris observántiæ emoluménto, rédderet. Mórtuo abbáte, et in ejus locum, licet invítus, sufféctus, tanta doctrínæ et sanctitátis fama ubíque refúlsit, ut non modo régibus et epíscopis veneratióni esset, sed sancto Gregório séptimo étiam
+ABSTINENTIÆ et continéntiæ tantæ fuit, ut assiduitáte jejúnii omnis pene cibórum sensus in eo viderétur exstínctus. Diúrno enim témpore in exercítiis monásticis docéndo, et respondéndo váriis de religióne quæsítis eménso; quod réliquum erat noctis, somno subtrahébat, ut divínis meditatiónibus, quas perénni lacrimárum imbre fovébat, mentem recreáret. Eléctus in priórem monastérii ínvidos fratres ita caritáte, humilitáte et prudéntia lenívit, ut quos æmulos accéperat, sibi et Deo amícos, máximo cum reguláris observántiæ emoluménto, rédderet. Mórtuo abbáte, et in ejus locum, licet invítus, sufféctus, tanta doctrínæ et sanctitátis fama ubíque refúlsit, ut non modo régibus et epíscopis veneratióni esset, sed sancto Gregório séptimo étiam accéptus, qui tunc magnis persecutiónibus agitátus, lítteras amóris plenas ad eum dedit, quibus se et Ecclésiam cathólicam ejus oratiónibus commendábat.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+DEFUNCTO Lanfránco archiepíscopo Cantuariénsi, ejus olim præceptóre, Ansélmus, urgénte Willélmo Angliæ rege et instántibus clero ac pópulo, ipso tamen repugnánte, ad ejúsdem ecclésiæ régimen vocátus, statim (ut corrúptos pópuli mores reformáret) verbo et exémplo prius, dein scriptis, et concíliis celebrátis, prístinam pietátem et ecclesiásticam discíplinam redúxit. Sed cum mox idem Willélmus rex vi et minis Ecclésiæ jura usurpáre tentásset, ipse sacerdotáli constántia réstitit; bonórumque direptiónem et exsílium passus, Romam ad Urbánum secúndum se cóntulit: a quo honorífice excéptus et summis láudibus ornátus est, cum in Barénsi concílio Spíritum Sanctum étiam a Fílio procedéntem contra Græcórum errórem innúmeris Scripturárum et sanctórum Patrum testimóniis propugnásset. E vivis Willélmo subláto, ab Henríco rege, ejus fratre, in Angliam revocátus, obdormívit in Dómino; famam non solum miraculórum et sanctitátis (præcípue ob insígnem devotiónem erga Dómini nostri passiónem et beátam Vírginem ejus Matrem) assecútus, sed étiam doctrínæ, quam ad defensiónem christiánæ religiónis, animárum proféctum, et ómnium theologórum, qui sacras lítteras scholástica méthodo tradidérunt, normam cǽlitus hausísse ex ejus libris ómnibus appáret.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+ANSELMUS, Augústæ Prætóriæ in fínibus Itáliæ, nobílibus et cathólicis pa-

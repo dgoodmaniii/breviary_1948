@@ -25170,4 +25170,18 @@ De libro Apocalýpsis beáti Joánnis Apóstoli
 
 *Cap. 19, 1-16*
 
-POST hæc audívi quasi vocem turbárum multárum in cælo dicéntium: Allelúja: Salus, et glória, et virtus Deo nostro est: quia vera et justa judícia sunt ejus, qui judicávit de meretríce magna, quæ corrúpit terram in prostitutióne sua, et vindicávit sánguinem servórum suórum de mánibus ejus. Et íterum dixérunt: Allelúja. Et fumus ejus ascéndit in sǽcula sæculórum. Et cecidérunt senióres vigínti
+POST hæc audívi quasi vocem turbárum multárum in cælo dicéntium: Allelúja: Salus, et glória, et virtus Deo nostro est: quia vera et justa judícia sunt ejus, qui judicávit de meretríce magna, quæ corrúpit terram in prostitutióne sua, et vindicávit sánguinem servórum suórum de mánibus ejus. Et íterum dixérunt: Allelúja. Et fumus ejus ascéndit in sǽcula sæculórum. Et cecidérunt senióres vigínti quátuor, et quátuor animália, et adoravérunt Deum sedéntem super thronum, dicéntes: Amen: Allelúja. Et vox de throno exívit, dicens: Laudem dícite Deo nostro, omnes servi ejus, et qui timétis eum, pusílli et magni.
+
+℟. Locútus est ad me unus ex septem Angelis, dicens: Veni, osténdam tibi novam nuptam, sponsam Agni: \* Et vidi Jerúsalem descendéntem de cælo, ornátam monílibus suis, allelúja, allelúja, allelúja. ℣. Et sústulit me in spíritu in montem magnum et altum. — Et vidi.
+
+#### Lectio ii
+
+ET audívi quasi vocem turbæ magnæ, et sicut vocem aquárum multárum, et sicut vocem tonitruórum magnórum, dicéntium: Allelúja: quóniam regnávit Dóminus Deus noster omnípotens. Gaudeámus, et exsultémus, et demus glóriam ei: quia venérunt núptiæ Agni, et uxor ejus præparávit se. Et datum est illi ut coopériat se býssino splendénti et cándido. Býssinum enim justificatiónes sunt sanctórum. Et dixit mihi: Scribe: Beáti qui ad cœnam nuptiárum Agni vocáti sunt. Et dixit mihi: Hæc verba Dei vera sunt. Et cécidi ante pedes ejus, ut adorárem eum. Et dicit mihi: Vide ne féceris: consérvus tuus sum, et fratrum tuórum habéntium testimónium Jesu. Deum adóra. Testimónium enim Jesu est spíritus prophetíæ.
+
+℟. Audívi vocem in cælo Angelórum multórum dicéntium: \* Timéte Dóminum, et date claritátem illi, et adoráte eum, qui fecit cælum et terram, mare et fontes aquárum, allelúja, allelúja. ℣. Vidi Angelum Dei fortem, volántem per médium cæli, voce magna clamántem et dicéntem. — Timéte.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Timéte.
+
+#### Lectio iii
+
+ET vidi cælum apértum, et ecce equus albus, et qui sedébat super eum, vocabátur Fidélis, et Verax, et cum justítia júdicat, et pugnat. Oculi autem ejus sicut flamma ignis, et in cápite ejus diadémata multa, habens nomen scriptum, quod nemo novit nisi ipse. Et vestítus erat veste aspérsa sánguine: et vocátur nomen ejus, Verbum Dei. Et exércitus qui sunt in cælo, sequebántur eum in equis albis, vestíti býssino albo et mundo. Et

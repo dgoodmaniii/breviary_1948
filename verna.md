@@ -34730,3 +34730,55 @@ BENEDICTIONES patris tui confortátæ sunt benedictiónibus patrum ejus, donec v
 
 CÆLITUM, Joseph, decus, atque nostræ
 Certa spes vitæ, columénque mundi,
+Quas tibi læti cánimus, benígnus
+Súscipe laudes.
+
+Te Sator rerum státuit pudícæ
+Vírginis sponsum, voluítque Verbi
+Te patrem dici, dedit et minístrum
+Esse salútis.
+
+Tu Redemptórem stábulo jacéntem,
+Quem chorus Vatum cécinit futúrum,
+Aspicis gaudens, humilísque natum
+Numen adóras.
+
+Rex Deus regum, Dominátor orbis,
+Cujus ad nutum tremit inferórum
+Turba, cui pronus famulátur æther,
+Se tibi subdit.
+
+Laus sit excélsæ Tríadi perénnis,
+Quæ tibi prǽbens súperos honóres,
+Det tuis nobis méritis beátæ
+Gáudia vitæ. Amen.
+
+℣. Dedísti mihi protectiónem salútis tuæ, allelúja. ℟. Et déxtera tua suscépit me, allelúja.
+
+**Ad Bened. Ant.** Joseph, fili David, \* noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est, allelúja.
+
+#### Oratio
+
+DEUS, qui ineffábili providéntia beátum Joseph sanctíssimæ Genitrícis tuæ sponsum elígere dignátus es: præsta, quǽsumus; ut, quem protectórem venerámur in terris, intercessórem habére mereámur in cælis: Qui vivis.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Primam
+
+**Ant.** Jacob autem, {RUBRIC: ut supra. 878}
+
+### Ad Tertiam
+
+**Ant.** Missus est, {RUBRIC: ut supra. 878}
+
+**Capit.** Benedictiónes, {RUBRIC: ut supra. 878}
+
+℟. br. Constítuit eum dóminum domus suæ, \* Allelúja, allelúja. Constítuit. ℣. Et príncipem omnis possessiónis suæ. Allelúja, allelúja. Glória Patri. Constítuit. ℣. Confitébor nómini tuo, allelúja. ℟. Quóniam adjútor et protéctor factus es mihi, allelúja.
+
+### Ad Sextam
+
+**Ant.** Ascéndit autem, {RUBRIC: ut supra. 878}
+
+**Capitulum** *Gen. 49, 25*
+
+DEUS patris tui erit adjútor tuus, et Omnípotens benedícet tibi benedictiónibus cæli désuper.

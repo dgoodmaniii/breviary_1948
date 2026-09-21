@@ -4347,3 +4347,59 @@ Circumdedérunt me dolóres mortis: \* et perícula inférni invenérunt me.
 Tribulatiónem et dolórem invéni: \* et nomen Dómini invocávi.
 
 O Dómine, líbera ánimam meam: \* miséricors Dóminus, et justus, et Deus noster miserétur.
+
+Custódiens párvulos Dóminus: \* humiliátus sum, et liberávit me.
+
+Convértere, ánima mea, in réquiem tuam: \* quia Dóminus benefécit tibi.
+
+Quia erípuit ánimam meam de morte: \* óculos meos a lácrimis, pedes meos a lapsu.
+
+Placébo Dómino \* in regióne vivórum.
+
+**Ant.** Inclinávit Dóminus aurem suam mihi.
+
+**Ant.** Vota mea \* Dómino reddam coram omni pópulo ejus.
+
+### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Vota mea Dómino reddam coram omni pópulo ejus.
+
+**Ant.** Clamávi, \* et Dóminus exaudívit me.
+
+### Psalmus 119
+
+AD Dóminum cum tribulárer clamávi: \* et exaudívit me.
+
+Dómine, líbera ánimam meam a lábiis iníquis, \* et a lingua dolósa.
+
+Quid detur tibi, aut quid apponátur tibi \* ad linguam dolósam?
+
+Sagíttæ poténtis acútæ, \* cum carbónibus desolatóriis.
+
+Heu mihi, quia incolátus meus prolongátus est: \* habitávi cum habitántibus Cedar: multum íncola fuit ánima mea.
+
+Cum his, qui odérunt pacem, eram pacíficus: \* cum loquébar illis, impugnábant me gratis.
+
+**Ant.** Clamávi, et Dóminus exaudívit me.
+
+**Ant.** Auxílium meum \* a Dómino qui fecit cælum et terram.
+
+### Psalmus 120
+
+LEVAVI óculos meos in montes, \* unde véniet auxílium mihi.

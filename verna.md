@@ -26055,3 +26055,63 @@ CLARIFICATUM a Patre Fílium nonnúlli accípiunt in hoc, quod ei non pepércit,
 **Ad Bened. Ant.** Pater, venit hora, \* clarífica Fílium tuum claritáte quam hábui, priúsquam mundus esset, apud te, allelúja.
 
 **Oratio** Deus, {RUBRIC: ut supra. 598}
+
+---
+
+[IMAGE]
+
+# In Ascensione Domini
+
+Duplex I classis
+
+Cum Octava privilegiáta III órdinis
+
+### In I Vesperis
+
+**Ant. 1** Viri Galilǽi, \* quid aspícitis in cælum? Hic Jesus, qui assúmptus est a vobis in cælum, sic véniet, allelúja.
+
+{RUBRIC: Psalmi de Dominica 72, sed loco ultimi Ps. 116 Laudáte Dóminum, omnes gentes. 92}
+
+**2** Cumque intueréntur \* in cælum eúntem illum, dixérunt, allelúja.
+
+**3** Elevátis mánibus, \* benedíxit eis, et ferebátur in cælum, allelúja.
+
+**4** Exaltáte Regem regum, \* et hymnum dícite Deo, allelúja.
+
+**5** Vidéntibus illis, \* elevátus est, et nubes suscépit eum in cælo, allelúja.
+
+**Capitulum** *Act. 1, 1-2*
+
+PRIMUM quidem sermónem feci de ómnibus, o Theóphile, quæ cœpit Jesus fácere et docére usque in diem, qua præcípiens Apóstolis per Spíritum Sanctum, quos elégit, assúmptus est.
+
+#### Hymnus
+
+SALUTIS humánæ Sator,
+Jesu, volúptas córdium,
+Orbis redémpti Cónditor,
+Et casta lux amántium:
+
+Qua victus es cleméntia,
+Ut nostra ferres crímina?
+Mortem subíres ínnocens,
+A morte nos ut tólleres?
+
+Perrúmpis inférnum chaos:
+Vinctis caténas détrahis;
+Victor triúmpho nóbili
+Ad déxteram Patris sedes.
+
+Te cogat indulgéntia,
+Ut damna nostra sárcias,
+Tuíque vultus cómpotes
+Dites beáto lúmine.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Tu, dux ad astra et sémita,
+Sis meta nostris córdibus,
+Sis lacrimárum gáudium,
+Sis dulce vitæ prǽmium.
+Amen.
+
+℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.

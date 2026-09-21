@@ -36356,3 +36356,45 @@ PIUS, Boschi in Insúbria natus, cum quatuórdecim esset annórum, órdinem Præ
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+DEUS, qui ad conteréndos Ecclésiæ tuæ hostes, et ad divínum cultum reparándum, beátum Pium Pontíficem Máximum elígere dignátus es: fac nos ipsíus deféndi præsídiis, et ita tuis inhærére obséquiis; ut, ómnium hóstium superátis insídiis, perpétua pace lætémur. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+### Die 6 Maji
+
+#### S. Joánnis Ap. et Ev. ante portam Latínam
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi App. Tempore Paschali [4], præter ea, quæ hic habéntur própria.}
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Ad Magnif. Ant.** In fervéntis \* ólei dólium missus beátus Joánnes Apóstolus, divína se protegénte grátia, illǽsus exívit, allelúja.
+
+###### Oratio
+
+DEUS, qui cónspicis quia nos úndique mala nostra pertúrbant: præsta, quǽsumus; ut beáti Joánnis Apóstoli tui et Evangelístæ intercéssio gloriósa nos prótegat. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Dum esset summus Póntifex, terréna non métuit, sed ad cæléstia regna gloriósus migrávit, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui ad conteréndos, ut supra.
+
+##### In I Nocturno
+
+{RUBRIC: legitur initium Epístolæ primæ beáti Joánnis, ut infra, nisi eo témpore legátur de libro Apocalýpsis vel de áliqua ejus Epístola; tunc enim ponúntur Lectiónes eo die occurréntes. Responsória tamen dicúntur semper de Communi, ut infra.}
+
+Incipit Epístola prima beáti Joánnis Apóstoli
+
+**Lectio i** *Cap. 1, 1-10*
+
+QUOD fuit ab inítio, quod audívimus, quod vídimus óculis nostris, quod perspéximus, et manus nostræ contrectavérunt de verbo vitæ: et vita manifestáta est, et vídimus, et testámur, et annuntiámus vobis vitam ætérnam, quæ erat apud Patrem, et appáruit nobis: quod vídimus, et audívimus, annuntiámus vobis, ut et vos societátem habeátis

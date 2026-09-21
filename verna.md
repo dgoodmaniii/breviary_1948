@@ -19234,3 +19234,21 @@ CONCEDE, quæsumus, omnípotens Deus: ut, qui protectiónis tuæ grátiam quǽri
 *Cap. 4, 38-44*
 
 IN illo témpore: Surgens Jesus de synagóga, introívit in domum Simónis. Socrus autem Simónis tenebátur magnis fébribus. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 4 in Lucæ cap. 4, circa finem}
+
+VIDE cleméntiam Dómini Salvatóris: nec indignatióne commótus, nec scélere offénsus, nec injúria violátus Judǽam déserit: quin étiam ímmemor injúriæ, memor cleméntiæ, nunc docéndo, nunc liberándo, nunc sanándo, infídæ plebis corda demúlcet. Et bene sanctus Lucas virum a spíritu nequítiæ liberátum ante præmísit, et subdit féminæ sanitátem. Utrúmque enim sexum Dóminus curatúrus advénerat: sed prior sanári débuit, qui prior creátus est; nec prætermítti illa, quæ mobilitáte magis ánimi, quam pravitáte peccáverat.
+
+℟. Vidéntes Joseph a longe, loquebántur mútuo fratres, dicéntes: Ecce somniátor venit; \* Veníte, occidámus eum, et videámus si prosint illi sómnia sua. ℣. Cumque vidíssent Joseph fratres sui, quod a patre cunctis frátribus plus amarétur, óderant eum, nec póterant ei quidquam pacífice loqui, unde et dicébant. — Veníte.
+
+#### Lectio ii
+
+SABBATO medicínæ Domínicæ ópera cœpta signíficat, ut inde nova creatúra cœperit, ubi vetus creatúra ante desívit: nec sub lege esse Dei Fílium, sed supra legem in ipso princípio designáret: nec solvi legem, sed impléri. Neque enim per legem, sed verbo factus est mundus, sicut légimus: Verbo Dómini cæli firmáti sunt. Non sólvitur ergo lex, sed implétur: ut fiat renovátio hóminis jam habéntis. Unde et Apóstolus ait: Exspoliántes vos véterem hóminem, indúite novum, qui secúndum Deum creátus est.
+
+℟. Dixit Judas frátribus suis: Ecce Ismaëlítæ tránseunt: veníte, venumdétur, et manus nostræ non polluántur: \* Caro enim et frater noster est. ℣. Quid enim prodest, si occidérimus fratrem nostrum, et celavérimus sánguinem ipsíus? mélius est ut venumdétur. — Caro.
+
+#### Lectio iii
+
+ET bene sábbato cœpit, ut ipsum se osténderet Creatórem, qui ópera opéribus intéxeret, et prosequerétur opus, quod ipse jam cœperat: ut si domum faber renováre dispónat, non a fundaméntis, sed a culmínibus íncipit sólvere vetustátem. Itaque ibi prius manum

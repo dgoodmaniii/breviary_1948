@@ -23678,4 +23678,38 @@ Te Deum laudámus.
 
 DEUS, qui nos resurrectiónis Domínicæ ánnua solemnitáte lætíficas: concéde propítius; ut per temporália festa quæ ágimus, pervenire ad gáudia ætérna mereámur. Per eúmdem Dóminum nostrum.
 
-**Ad Magnif. Ant.** Dixit Jesus \* discípulis suis: Afférte de píscibus, quos prendidístis nunc. Ascéndit autem Simon Petrus,
+**Ad Magnif. Ant.** Dixit Jesus \* discípulis suis: Afférte de píscibus, quos prendidístis nunc. Ascéndit autem Simon Petrus, et traxit rete in terram plenum magnis píscibus, allelúja.
+
+---
+
+## Feria Quinta infra Octavam Paschæ
+
+{RUBRIC: Semiduplex 500}
+
+℣. Surréxit Dóminus de sepúlcro, allelúja. ℟. Qui pro nobis pepéndit in ligno, allelúja.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 20, 11-18*
+
+IN illo témpore: María stabat ad monuméntum foris, plorans. Dum ergo fleret, inclinávit se, et prospéxit in monuméntum: et vidit duos Angelos in albis, sedéntes. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 26 in Evangelia}
+
+MARIA Magdaléne, quæ fúerat in civitáte peccátrix, amándo veritátem, lavit lácrimis máculas críminis: et vox Veritátis implétur, qua dícitur: Dimíssa sunt ei peccáta multa, quia diléxit multum. Quæ enim prius frígida peccándo remánserat, póstmodum amándo fórtiter ardébat. Nam postquam venit ad monuméntum, ibíque corpus Domínicum non invénit, sublátum crédidit, atque discípulis nuntiávit: qui veniéntes vidérunt, atque ita esse, ut múlier díxerat, credidérunt. Et de eis prótinus scriptum est: Abiérunt ergo discípuli ad semetípsos: ac deínde subjúngitur: María autem stabat ad monuméntum foris, plorans.
+
+℟. Tulérunt Dóminum meum, et néscio ubi posuérunt eum. Dicunt ei Angeli: Múlier, quid ploras? surréxit sicut dixit; \* Præcédet vos in Galilǽam: ibi eum vidébitis, allelúja, allelúja. ℣. Cum ergo fleret, inclinávit se, et prospéxit in monuméntum: et vidit duos Angelos in albis, sedéntes, qui dicunt ei. — Præcédet.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+QUA in re pensándum est, hujus mulíeris mentem quanta vis amóris accénderat, quæ a monuménto Dómini, étiam discípulis recedéntibus, non recedébat. Exquirébat quem non invénerat: flebat inquiréndo, et amóris sui igne succénsa, ejus, quem ablátum crédidit, ardébat desidério. Unde cóntigit, ut eum sola tunc

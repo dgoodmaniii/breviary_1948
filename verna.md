@@ -34031,4 +34031,26 @@ PIÆ petitiónis compos rédditus, mundi suíque contémptor insígnis, in ipso 
 
 ###### Lectio vi
 
-DEIPARÆ Vírginis et rosárii cultor exímius, illíus præcípue aliorúmque Sanctórum patrocínio a Deo postulávit, ut in cathólicæ fídei obséquium vitam sibi et sánguinem fúndere licéret. Cumque ardens hoc desidérium in quotidiána Sacri devóta celebratióne magis accenderétur, mira Dei providéntia factum est, ut fortis Christi athléta præses eligerétur illárum missiónum, quas Congregátio de Propagánda Fide pro Rhǽtia tunc témporis institúerat. Quod árduum munus prompto hilaríque ánimo suscípiens, tanto fervóre exsecútus est, ut plúribus hæréticis ad orthodóxam fidem convérsis, spes non módica effúlserit totíus illíus gentis Ecclésiæ et Christo reconciliándæ. Prophétiæ dono præditus, futúras Rhǽtiæ calamitátes, suíque necem ab hæréticis inferéndam sæpius prædíxit. Postquam vero insidiárum probe cónscius impendénti agóni se præparásset, die vigésima quarta Aprílis anno millésimo sexcentésimo vigésimo secúndo,
+DEIPARÆ Vírginis et rosárii cultor exímius, illíus præcípue aliorúmque Sanctórum patrocínio a Deo postulávit, ut in cathólicæ fídei obséquium vitam sibi et sánguinem fúndere licéret. Cumque ardens hoc desidérium in quotidiána Sacri devóta celebratióne magis accenderétur, mira Dei providéntia factum est, ut fortis Christi athléta præses eligerétur illárum missiónum, quas Congregátio de Propagánda Fide pro Rhǽtia tunc témporis institúerat. Quod árduum munus prompto hilaríque ánimo suscípiens, tanto fervóre exsecútus est, ut plúribus hæréticis ad orthodóxam fidem convérsis, spes non módica effúlserit totíus illíus gentis Ecclésiæ et Christo reconciliándæ. Prophétiæ dono præditus, futúras Rhǽtiæ calamitátes, suíque necem ab hæréticis inferéndam sæpius prædíxit. Postquam vero insidiárum probe cónscius impendénti agóni se præparásset, die vigésima quarta Aprílis anno millésimo sexcentésimo vigésimo secúndo, ad ecclésiam loci, Sevísium nuncupáti, se cóntulit; ubi ab hæréticis, qui prídie conversiónem simulántes, eum dolóse ad prædicándum invitáverant, concióne tumultuárie interrúpta, per vérbera ac vúlnera eídem crudéliter inflícta gloriósam mortem magno et álacri corde perpéssus, primítias Mártyrum memorátæ Congregatiónis próprio sánguine consecrávit; plúribus signis et miráculis exínde clarus, præsértim Cúriæ et Feldkírchii, ubi summa pópuli veneratióne illíus relíquiæ asservántur.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+FIDELIS, in óppido Suéviæ Sigmarínga ex honésta Reyórum família natus, célebre sibi nomen acquisívit in advocáti múnere; quo tamen, cum fori perícula esset expértus, déstitit, et, supérna vocatióne illustrátus, inter fratres Minóres Capuccínos adscríbi pétiit. Voti compos factus, regulári observántia ómnibus admiratióni fuit et exémplo. Deíparæ Vírginis et rosárii cultor exímius, a Deo postulávit, ut pro cathólica fide martyr occúmberet, quod et consecútus est. Eléctus enim præses missiónum, quas Congregátio de Propagánda Fide pro Rhǽtia tunc témporis institúerat, cum nulli labóri parcens plures hæréticos ad Christi fidem convertísset, malórum invídiam súbiit. Itaque die vigésima quarta Aprílis anno millésimo sexcentésimo vigésimo secúndo, ad ecclésiam loci, Sevísium nuncupáti, verbéribus ac vulnéribus cæsus ab hæréticis, qui conversiónem simulántes dolóse eum invitáverant, primítias Mártyrum memorátæ Congregatiónis próprio sánguine consecrávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Ego sum vitis vera, de Communi Martyrum Tempore Paschali 1 loco. [77]}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vi-

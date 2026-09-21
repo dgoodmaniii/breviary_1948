@@ -34880,4 +34880,16 @@ Sermo de S. Joseph
 
 #### Lectio iv
 
-CUM inter Maríam et Joseph fúerit veríssimum matrimónium per divínam inspiratiónem contráctum, et in matrimónio fiat únio animórum in tantum quod
+CUM inter Maríam et Joseph fúerit veríssimum matrimónium per divínam inspiratiónem contráctum, et in matrimónio fiat únio animórum in tantum quod una dicúntur persóna sponsus et sponsa, ut possit dici únitas quasi summa; quómodo cogitáre potest mens discréta quod Spíritus Sanctus tanta unióne uníret menti tantæ Vírginis áliquam ánimam, nisi ei virtútum operatióne simíllimam? Unde credo, istum virum sanctum Joseph fuísse mundíssimum in virginitáte, profundíssimum in humilitáte, ardentíssimum in Dei amóre et caritáte, altíssimum in contemplatióne. Et quia nóverat Virgo istum sibi a Spíritu Sancto datum in sponsum, et in suæ virginitátis fidum custódem, et ad participándum secum in caritátis amóre et obsequiósa sollicitúdine erga diviníssimam Prolem Dei; ídeo credo, quod totíus cordis afféctu hunc, sanctum Joseph, sinceríssime diligébat.
+
+℟. Dedísti mihi protectiónem salútis tuæ et déxtera tua suscépit me: \* Protéctor meus et cornu salútis meæ et susceptor meus, allelúja. ℣. Ego protéctor tuus sum et merces tua magna nimis. — Protéctor.
+
+#### Lectio v
+
+HABUIT Joseph erga Christum ardentíssimam caritátem. Quis déneget, óbsecro, quod ipsi tenénti Christum in bráchiis aut confabulánti cum ipso, Christus, sive infans sive adúltus, ingéreret et imprímeret ineffábiles sensus atque jucunditátes de semetípso, et hoc cooperánte extérius grátia Christi cum filiáli aspéctu, affátu atque compléxu? O quanta dúlcia óscula ab ipso recépit! o quanta dulcédine audiébat balbutiéntem Párvulum se patrem vocáre, et quanta suavitáte sentiébat se dúlciter amplexári! Consídera étiam, cum quanta compassióne in itinéribus, quæ fecérunt, párvulum Jesum ex labóre lassum, cum grandiúsculus esset, in suo grémio requiéscere faciébat: quia omni amóre transformatívo ferebátur in eum, ut in dulcíssimum Fílium sibi in cónjuge sua Vírgine per Spíritum Sanctum datum.
+
+℟. Státuet fílios suos sub tégmine illíus et sub ramis ejus morábitur; protegétur sub tégmine illíus a fervóre: \* Et in glória ejus requiéscet, allelúja. ℣. Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra. — Et.
+
+#### Lectio vi
+
+IDEO prudentíssima Mater, quæ expérta fúerat ejus afféctum, ad Fílium

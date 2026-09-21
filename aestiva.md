@@ -17005,3 +17005,33 @@ PRotéctor in te sperántium, Deus, sine quo nihil est válidum, nihil sanctum; 
 {RUBRIC: Si autem sequénti die faciéndum non sit Offícium de Octáva, dícitur}
 
 **Ant.** Ad Jesum autem cum veníssent, ut vidérunt eum jam mórtuum, non fregérunt ejus crura, sed unus mílitum láncea latus ejus apéruit et contínuo exívit sanguis et aqua.
+
+℣. Hauriétis aquas in gáudio. ℟. De fóntibus Salvatóris.
+
+### Oratio
+
+DEus qui nobis, in Corde Fílii tui, nostris vulneráto peccátis, infinítos dilectiónis thesáuros misericórditer largíri dignáris; concéde, quæsumus, ut illi devótum pietátis nostræ præstántes obséquium, dignæ quoque satisfactiónis exhibeámus offícium. Per eúmdem Dóminum.
+
+---
+
+## Feria II infra Octav. Ssmi Cordis Jesu
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 10, 17-27*
+
+ET convocávit Sámuel pópulum ad Dóminum in Maspha et ait ad fílios Israël: Hæc dicit Dóminus Deus Israël: Ego edúxi Israël de Ægýpto et érui vos de manu Ægyptiórum et de manu ómnium regum, qui affligébant vos. Vos autem hódie projecístis Deum vestrum, qui solus salvávit vos de univérsis malis et tribulatiónibus vestris et dixístis: Nequáquam, sed regem constítue super nos. Nunc ergo state coram Dómino per tribus vestras et per famílias.
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum: \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut.
+
+##### Lectio ii
+
+ET applícuit Sámuel omnes tribus Israël, et cécidit sors tribus Bénjamin; et applícuit tribum Bénjamin et cognatiónes ejus, et cécidit cognátio Metri, et pervénit usque ad Saul fílium Cis. Quæsiérunt ergo eum, et non est invéntus. Et consuluérunt post hæc Dóminum, utrúmnam ventúrus esset illuc. Respondítque Dóminus: Ecce abscónditus est domi. Cucurrérunt ítaque et tulérunt eum inde; stetítque in médio pópuli, et áltior fuit univérso pópulo ab húmero et sursum. Et ait Sámuel ad omnem pópulum: Certe vidétis quem elégit Dóminus, quóniam non sit símilis illi in omni pópulo. Et clamávit omnis pópulus et ait: Vivat rex.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me

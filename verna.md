@@ -38824,4 +38824,38 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-FRANCISCUS, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido sanctæ Maríæ de Villa in Aprútio ortus est. Adoléscens gráviter ægrótans státuit sese prorsus Dei proximíque mancipáre servítio. Neápolim proféctus et sacerdótio initiátus, contemplatióni lucrandísque animábus se totum devóvit, ac extrémo supplício damnátis hortatórem se præbuit assíduum. Joánni Augustíno Adórno et Fabrício Carác-
+FRANCISCUS, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido sanctæ Maríæ de Villa in Aprútio ortus est. Adoléscens gráviter ægrótans státuit sese prorsus Dei proximíque mancipáre servítio. Neápolim proféctus et sacerdótio initiátus, contemplatióni lucrandísque animábus se totum devóvit, ac extrémo supplício damnátis hortatórem se præbuit assíduum. Joánni Augustíno Adórno et Fabrício Carácciolo, mira Dei dispositióne, adjúnctus, Clericórum regulárium Minórum órdinem instítuit, áddito ad tria consuéta áltero de non ambiéndis dignitátibus voto; quem, post óbitum Adórni, sanctíssime rexit, et summo stúdio per Hispániam et Itáliam propagávit. Erga sanctíssimæ Eucharístiæ sacraméntum tanto æstuábat afféctu, ut noctes pene íntegras in ejus adoratióne impénderet: quod pium exercítium, véluti sui órdinis tésseram, perpétuo in eo servándum constítuit. Tandem prophetíæ dono et córdium scrutatióne ditátus, quadragésimum quartum annum agens, in óppido Agnóni in Aprútio letháli febre corréptus, in Dómino obdormívit prídie Nonas Júnii, anno millésimo sexcentésimo octávo. Sacrum ejus corpus, Neápolim delátum, in ecclésia sui órdinis cónditum est.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Sint lumbi, {RUBRIC: de Communi Conf. non Pont. 1 loco. [116]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Francíscum, novi órdinis institutórem, orándi stúdio et pœniténtiæ amóre decorásti: da fámulis tuis in ejus imitatióne ita profícere; ut, semper orántes et corpus in servitútem redigéntes, ad cæléstem glóriam perveníre mereántur. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capitulo de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 5 Junii
+
+#### S. Bonifatii
+
+{RUBRIC: Episcopi et Martyris}
+
+{RUBRIC: Duplex [74]}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+DEUS, qui multitúdinem populórum, beáti Bonifátii Mártyris tui atque Pontíficis zelo, ad agnitiónem tui nóminis vocáre dignátus es: concéde propítius; ut, cujus solémnia cólimus, étiam patrocínia sentiámus. Per Dóminum.

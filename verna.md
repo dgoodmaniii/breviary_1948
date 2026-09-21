@@ -29751,4 +29751,30 @@ ET notum factum est ómnibus habitántibus Jerúsalem, ita ut appellarétur ager
 
 ###### Lectio iii
 
-ET statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Justus: et Matthíam. Et orántes dixérunt: Tu, Dómine, qui corda nosti ómnium, osténde, quem elégeris ex his duóbus unum accípere locum ministérii hujus, et apostolátus, de quo prævaricátus est Judas, ut abíret in locum suum. Et
+ET statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Justus: et Matthíam. Et orántes dixérunt: Tu, Dómine, qui corda nosti ómnium, osténde, quem elégeris ex his duóbus unum accípere locum ministérii hujus, et apostolátus, de quo prævaricátus est Judas, ut abíret in locum suum. Et dedérunt sortes eis, et cécidit sors super Matthíam, et annumerátus est cum úndecim Apóstolis.
+
+℟. Dum stetéritis ante reges et præsides, nolíte cogitáre quómodo aut quid loquámini. \* Dábitur enim vobis in illa hora quid loquámini. ℣. Non enim vos estis qui loquímini; sed Spíritus Patris vestri, qui lóquitur in vobis. — Dábitur. Glória Patri. Dábitur.
+
+{RUBRIC: In II Nocturno Lectiones} Fundaménta. {RUBRIC: de Communi Apostolorum 2 loco, cum suis ℟℟. [25]}
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 11, 25-30*
+
+IN illo témpore: Respóndens Jesus dixit: Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus, et revelásti ea párvulis. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 10 de Verbis Domini}
+
+VENITE ad me, omnes qui laborátis. Quare enim omnes laborámus, nisi quia sumus hómines mortáles, frágiles, infírmi, lútea vasa portántes, quæ fáciunt ínvicem angústias? Sed, si angustiántur vasa carnis, dilaténtur spátia caritátis. Quid ergo dicit, Veníte ad me, omnes qui laborátis, nisi ut non laborétis? Dénique promíssio ejus in promptu est; quóniam laborántes vocávit, quærent forte qua mercéde vocáti sunt. Et ego vos, inquit, refíciam. Tóllite jugum meum super vos, et díscite a me, non mundum fabricáre, non cuncta visibília et invisibília creáre, non in ipso mundo mirabília fácere et mórtuos suscitáre; sed, Quóniam mitis sum et húmilis corde.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+###### Lectio viii
+
+MAGNUS esse vis? a mínimo íncipe. Cógitas magnam fábricam constrúere celsitúdinis? de fundaménto prius cógita humilitátis. Et quantam quisque vult et dispónit superimpónere molem ædifícii, quanto erit majus ædifícium, tanto áltius fodit fundaméntum. Et fábrica quidem cum con-

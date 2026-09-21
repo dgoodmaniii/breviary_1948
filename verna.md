@@ -43549,3 +43549,31 @@ FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incén
 **Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum. (T. P. Allelúja.)
 
 {RUBRIC: Sequens Antiphona dicitur ad Magnificat in II Vesperis pro solis Summis Pontificibus. Si vero agenda sit Commemoratio alterius Summi Pontificis, sumitur Antiphona Amavit, ut supra.}
+
+**Ant.** Dum esset Summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit. (T. P. Allelúja.)
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Si occurrat celebrari Festum plurium Pontificum et Confessorum, Officium fit ut supra: sed in Oratione et Sermone ea, quæ habentur in singulari dicantur in plurali; et in I Nocturno legantur sequentes Lectiones de Scriptura.}
+
+De libro Ecclesiástici
+
+**Lectio i** *Cap. 44, 1-15*
+
+LAUDEMUS viros gloriósos et paréntes nostros in generatióne sua. Multam glóriam fecit Dóminus magnificéntia sua a sǽculo. Dominántes in potestátibus suis hómines magni virtúte, et prudéntia sua prǽditi, nuntiántes in prophétis dignitátem prophetárum, et imperántes in præsénti pópulo, et virtúte prudéntiæ pópulis sanctíssima verba. In perítia sua requiréntes modos músicos, et narrántes cármina scripturárum.
+
+##### Pro Conf. Pont. et non Pont.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. (T. P. Allelúja.) ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.
+
+###### Lectio ii
+
+HOMINES dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes in dómibus suis. Omnes isti in generatiónibus gentis suæ glóriam adépti sunt, et in diébus suis habéntur in láudibus. Qui de illis nati sunt, reliquérunt nomen narrándi laudes eórum: et sunt quorum non est memória: periérunt quasi qui non fúerint: et nati sunt, quasi non nati, et fílii ipsórum cum ipsis.
+
+##### Pro Confessore Pontifice
+
+℟. Ecce sacérdos magnus, qui in diébus suis plácuit Deo: \* Ideo jurejurándo fecit illum Dóminus créscere in plebem suam. (T. P. Allelúja.) ℣. Benedictiónem ómnium géntium dedit illi, et testaméntum suum confirmávit super caput ejus. — Ideo.
+
+##### Pro Confessore non Pont.
+
+℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. (T. P. Allelúja.) ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.

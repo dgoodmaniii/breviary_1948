@@ -27407,4 +27407,32 @@ HINC ejúsdem Ecclésiæ voce per Salomónem dícitur: Ecce iste venit sáliens 
 
 #### Lectio ix
 
-UNDE, fratres caríssimi, opórtet, ut illuc sequámur corde, ubi eum córpore ascendísse crédimus. Desidéria terréna fugiámus: nihil nos jam deléctet in ínfimis, qui Patrem
+UNDE, fratres caríssimi, opórtet, ut illuc sequámur corde, ubi eum córpore ascendísse crédimus. Desidéria terréna fugiámus: nihil nos jam deléctet in ínfimis, qui Patrem habémus in cælis. Et hoc nobis est magnópere perpendéndum: quia is qui plácidus ascéndit, terríbilis redíbit; et quidquid nobis cum mansuetúdine præcépit, hoc a nobis cum districtióne éxiget. Nemo ergo indúlta pœniténtiæ témpora parvipéndat, nemo curam sui, dum valet, ágere négligat: quia Redémptor noster tanto tunc in judícium distríctior véniet, quanto nobis ante judícium magnam patiéntiam prærogávit.
+
+Te Deum laudámus.
+
+{RUBRIC: In II Vesperis non fit Commemoratio sequentis.}
+
+{RUBRIC: Duobus sequentibus diebus Officium fit sicut infra Octavam Ascensionis, exceptis Lectionibus, quæ habentur propriæ, et Responsorio viii, Capitulis, Antiphonis cum versibus ad Benedictus et Magnificat, et Oratione, quæ dicuntur de Dominica infra Octavam Ascensionis, ut supra. 626 Et non dicuntur Preces ad Primam et Completorium.}
+
+{RUBRIC: Feria tamen VI fit de quolibet Officio novem Lectionum occurrenti vel translato, cum Commemoratione Feriæ, quæ omittitur tantum in Duplicibus I vel II classis. Ad Vesperas autem, in omnibus Officiis quæ non sint Duplicia I vel II classis, fit Commemoratio Officii sequentis: Antiphona Cum vénerit, Versus Dóminus in cælo, ut supra. 622}
+
+---
+
+## Feria VI post Octavam Ascensionis
+
+{RUBRIC: Semiduplex}
+
+{RUBRIC: Ad Matutinum omnia ut in Festo Ascensionis 601, præter sequéntia:}
+
+#### In I Nocturno
+
+Incipit Epístola tértia beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Vers. 1-14*
+
+SENIOR Gajo caríssimo, quem ego díligo in veritáte. Caríssime, de ómnibus oratiónem fácio próspere te íngredi et valére, sicut próspere agit ánima tua. Gavísus sum valde veniéntibus frátribus, et testimónium perhibéntibus veritáti tuæ, sicut tu in veritáte ámbulas. Majórem horum non hábeo grátiam, quam ut áudiam fílios meos in veritáte ambuláre.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.

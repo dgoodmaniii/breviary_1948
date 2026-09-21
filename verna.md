@@ -34173,4 +34173,38 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-CLETUS Románus, imperatóribus Vespasiáno et Tito, Ecclésiam guber-
+CLETUS Románus, imperatóribus Vespasiáno et Tito, Ecclésiam gubernávit. Ex præcépto Príncipis Apostolórum in Urbe vigínti quinque presbýteros ordinávit. Primus in lítteris verbis illis usus est: Salútem et apostólicam benedictiónem. Ecclésia óptime constitúta, Domitiáno imperatóre, secúnda post Nerónem persecutióne, martýrio coronátus est et in Vaticáno juxta corpus beáti Petri sepúltus. Marcellínus Románus, in immáni imperatóris Diocletiáni persecutióne Ecclésiæ præfuit. Multas pértulit angústias ob ímprobam eórum severitátem, qui eum redarguébant de nímia indulgéntia erga lapsos in idololatríam, quæque causa fuit, ut per calúmniam infamátus fúerit, quasi thus idólis adhibuísset. Verum hic beátus Póntifex in confessióne fídei, una cum tribus áliis Christiánis, Cláudio, Cyríno et Antoníno, cápite plexus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Venit Jesus, de Communi unius vel plurium Summorum Pontificum. [33¹]}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde, et per beátos Clétum et Marcellínum Mártyres tuos atque Summos Pontífices, perpétua protectióne custódi; quos totíus Ecclésiæ præstitísti esse pastóres. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+{RUBRIC: ¶ In omnibus novem Lectionum Officiis in Feriam II Rogationum incidentibus, dicitur ix Lectio de Homilia Feriæ, et de ea fit Commemoratio ad Laudes tantum, ante Commemorationem Festi simplicis forte occurrentis. Idem servatur in Officiis in Vigilia Ascensionis occurrentibus, nisi fuerint Duplicia I classis, in quibus nulla fit Commemoratio de Vigilia.}
+
+---
+
+### Die 27 Aprilis
+
+#### S. Petri Canisii
+
+{RUBRIC: Confessoris et Ecclesiæ Doctoris}
+
+{RUBRIC: Duplex (m. t. v.) [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Petre, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.

@@ -18647,3 +18647,31 @@ VAde et dic Jeróboam: Hæc dicit Dóminus, Deus Israël: Quia exaltávi te de m
 IDcírco ecce ego indúcam mala super domum Jeróboam et percútiam de Jeróboam mingéntem ad paríetem et clausum et novíssimum in Israël; et mundábo relíquias domus Jeróboam, sicut mundári solet fimus usque ad purum. Qui mórtui fúerint de Jeróboam in civitáte, cómedent eos canes; qui autem mórtui fúerint in agro, vorábunt eos aves cæli: quia Dóminus locútus est. Tu ígitur surge et vade in domum tuam, et in ipso intróitu pedum tuórum in urbem moriétur puer.
 
 ℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 18, 21-27*
+
+ACcédens autem Elías ad omnem pópulum ait: Usquequo claudicátis in duas partes? Si Dóminus est Deus, sequímini eum; si autem Baal, sequímini illum. Et non respóndit ei pópulus verbum. Et ait rursus Elías ad pópulum: Ego remánsi Prophéta Dómini solus, prophétæ autem Baal quadringénti et quinquagínta viri sunt.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+DEntur nobis duo boves; et illi éligant sibi bovem unum, et in frustra cædéntes ponant super ligna, ignem autem non suppónant; et ego fáciam bovem álterum et impónam super ligna, ignem autem non suppónam. Invocáte nómina deórum vestrórum et ego invocábo nomen Dómini mei; et Deus, qui exaudíerit per ignem, ipse sit Deus. Respóndens omnis pópulus ait: Optima propósitio.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+DIxit ergo Elías prophétis Baal: Elígite vobis bovem unum et fácite primi, quia vos plures estis, et invocáte nómina deórum vestrórum, ignémque non supponátis. Qui, cum tulíssent bovem quem déderat eis, fecérunt, et invocábant nomen Baal de mane usque ad merídiem dicéntes: Baal, exáudi nos. Et non erat vox, nec qui respondéret. Transiliebántque altáre quod fécerant. Cumque esset jam merídies, illudébat illis Elías dicens: Clamáte voce majóre.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui

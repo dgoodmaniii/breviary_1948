@@ -18360,4 +18360,18 @@ PLácuit ergo sermo coram Dómino, quod Sálomon postulásset hujuscémodi rem. 
 
 *Cap. 4, 21-34*
 
-SAlomon autem erat in dicióne sua habens ómnia regna a flúmine terræ
+SAlomon autem erat in dicióne sua habens ómnia regna a flúmine terræ Philísthiim usque ad términum Ægýpti offeréntium sibi múnera et serviéntium ei cunctis diébus vitæ ejus. Erat autem cibus Salomónis per dies síngulos trigínta cori símilæ, et sexagínta cori farínæ, decem boves pingues et vigínti boves pascuáles et centum aríetes, excépta venatióne cervórum, capreárum atque bubalórum et ávium altílium. Ipse enim obtinébat omnem regiónem, quæ erat trans flumen, a Thaphsa usque ad Gazam et cunctos reges illárum regiónum, et habébat pacem ex omni parte in circúitu.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+HAbitabátque Juda et Israël absque timóre ullo unusquísque sub vite sua et sub ficu sua a Dan usque Bersabée cunctis diébus Salomónis. Et habébat Sálomon quadragínta míllia præsépia equórum currílium et duódecim míllia equéstrium. Nutriebántque eos supradícti regis præfécti; sed et necessária mensæ regis Salomónis cum ingénti cura præbébant in témpore suo. Hórdeum quoque et páleas equórum et jumentórum deferébant in locum, ubi erat rex, juxta constitútum sibi. Dedit quoque Deus sapiéntiam Salomóni et prudéntiam multam nimis in latitúdinem cordis, quasi arénam quæ est in líttore maris.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+ET præcedébat sapiéntia Salomónis sapiéntiam ómnium Orientálium et Ægyptiórum; et erat sapiéntior cunctis homínibus, sapiéntior Ethan Ezrahíta et Heman et Chalcol et Dorda fíliis Mahol, et erat nominátus in univérsis géntibus per circúitum. Locútus est quoque Sálomon tria míllia parábolas, et fuérunt cármina ejus quinque et mille. Et disputávit super lignis a cedro, quæ est in Líbano, usque ad hyssó-

@@ -30214,3 +30214,17 @@ FRANCISCA, nóbilis matróna Romána, ab ineúnte ætáte illústria dedit virt�
 ###### Lectio v
 
 VIRO defúncto, ad prædíctam Oblatárum domum cónvolans, nudis pédibus, fune ad collum alligáto, humi prostráta, multis cum lácrimis eárum número adscríbi supplíciter postulávit. Voti compos facta, licet esset ómnium mater, non álio tamen quam ancíllæ, vilíssimæque féminæ, et immundítiæ vásculi título gloriabátur. Quam vilem sui existimatiónem et verbo declarávit et exémplo; sæpe enim e suburbána vínea revértens, et lignórum fascem próprio cápiti impósitum déferens, vel eísdem onústum agens per Urbem aséllum, paupéribus subveniébat, in quos étiam largas eleemósynas erogábat; ægrotantésque in xenodochíis vísitans, non corporáli tantum cibo, sed salutáribus mónitis recreábat. Corpus suum vigíliis, jejúniis, cilício, férreo cíngulo, crebrísque flagéllis in servitútem redígere júgiter satagébat.
+
+Cibum illi semel in die herbæ et legúmina, aqua potum præbuit. Hos tamen córporis cruciátus aliquándo confessárii mandáto, a cujus ore nutúque pendébat, módice temperávit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+###### Lectio vi
+
+DIVINA mystéria, præsértim vero Christi Dómini passiónem, tanto mentis ardóre tantáque lacrimárum vi contemplabátur, ut præ dolóris magnitúdine pene cónfici viderétur. Sæpe étiam cum oráret, máxime sumpto sanctíssimæ Eucharístiæ sacraménto, spíritu in Deum eleváta ac cæléstium contemplatióne rapta, immóbilis permanébat. Quaprópter humáni géneris hostis váriis eam contuméliis ac verbéribus a propósito dimovére conabátur: quem tamen illa impertérrita semper elúsit, Angeli præsértim præsídio, cujus familiári consuetúdine gloriósum de eo triúmphum reportávit. Grátia curatiónum et prophetíæ dono enítuit, quo et futúra prædíxit et córdium secréta penetrávit. Non semel aquæ, vel per rivum decurréntes vel e cælo labéntes, intáctam prorsus, dum Deo vacáret, reliquérunt. Módica panis fragménta, quæ vix tribus soróribus reficiéndis fuíssent satis, sic ejus précibus Dóminus multiplicávit, ut quíndecim inde exsaturátis, tantum superfúerit, ut canístrum impléverit; et aliquándo earúmdem sorórum, extra Urbem mense Januário ligna parántium, sitim recéntis uvæ racémis ex vite in árbore pendéntibus mirabíliter obténtis, abúnde expléverit. Dénique, méritis et miráculis clara, migrávit ad Dóminum, anno ætátis suæ quinquagésimo sexto. Quam Paulus quintus Póntifex máximus in Sanctórum número rétulit.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: In III Nocturno Homilia in Evangelium} Símile est regnum cælórum, {RUBRIC: de Communi non Virginum. [154]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}

@@ -46634,4 +46634,34 @@ ET cum vidérent omnes, murmurábant, dicéntes, quod ad hóminem peccatórem di
 
 STANS autem Zachǽus, dixit ad Dóminum: Ecce dimídium bonórum meórum, Dómine, do paupéribus; et si quid áliquem defraudávi, reddo quádruplum. Aliis calumniántibus hóminem peccatórem, ipse Zachǽus stans, id est, in ea quam cœperat fídei veritáte persístens, non solum se ex peccatóre convérsum, sed étiam inter perféctos probat esse conversátum. Dicénte enim Dómino: Si vis perféctus esse, vade, vende ómnia quæ habes, et da paupéribus; quisquis ante conversiónem innocénter vixit, ómnia convérsus potest dare paupéribus.
 
-℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et turres Jerúsalem gemmis ædificabúntur. Glória Patri. Et.
+
+###### Lectio ix
+
+AT qui áliqua fraude sústulit, primo hæc juxta legem réddere, deínde quod sibi remánserit, debet dare paupéribus. Ac sic et ipse, quia sibi nil rétinet, ómnia sua dispérgit, dat paupéribus, justítia ejus manet in sǽculum sǽculi. Et hæc est sápiens illa stultítia, quam de sycómoro publicánus quasi fructum vitæ légerat; rapta vidélicet réddere, própria relínquere, visibília contémnere, pro invisibílibus étiam mori desideráre, seípsum abnegáre, et ejus, qui necdum videátur, Dómini vestígia sequi concupíscere.
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: Vesperæ de sequenti die Octava.}
+
+---
+
+## In Octava Dedicationis Ecclesiæ
+
+{RUBRIC: Duplex majus}
+
+##### In II Nocturno
+
+Ex Epístola prima sancti Felícis Papæ quarti
+
+{RUBRIC: De Consecr. dist. 1 cap. 2}
+
+###### Lectio iv
+
+TABERNACULUM Móysen, Dómino præcipiénte, fecísse et sacrásse, cum mensa et altári ejus, et céteris vasis et utensílibus ad divínum cultum expléndum, légimus; et non solum divínis précibus ea sacrásse, sed étiam sancti ólei unctióne, Dómino jubénte, perlinísse nóvimus. Quáliter autem hæc facta sint, et quómodo ipsa sacra non álii quam sacerdótes, sacra unctióne delibúti Dominóque cum véstibus sanctis sacráti, et Levítæ tractábant, ferébant, erigébant et deponébant; in ipsis institutiónibus, quæ, jubénte Dómino, conscríptæ sunt per Móysen, in lege Dómini reperítur.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. (T. P. Allelúja.) ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+###### Lectio v
+
+QUALITER ergo David, regum piíssimus, amplificáverit cultum Dei, et templum Dómino ædificáre volúerit, sed propter multum sánguinem quem effúderat prohíbitus est, et ipse collégerat expénsas; Sálomon quoque, fílius ejus, idípsum, quod ipse

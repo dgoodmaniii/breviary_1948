@@ -24483,4 +24483,63 @@ Te Deum laudámus.
 
 **Capit.** *1 Petri 2, 21-22*
 
-CARISSIMI: Christus passus est pro nobis, vobis relínquens exémplum,
+CARISSIMI: Christus passus est pro nobis, vobis relínquens exémplum, ut sequámini vestígia ejus. Qui peccátum non fecit, nec invéntus est dolus in ore ejus.
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus ínfremit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+**Ad Bened. Ant.** Ego sum pastor óvium: \* ego sum via, véritas, et vita: ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ, allelúja, allelúja.
+
+#### Oratio
+
+DEUS, qui in Fílii tui humilitáte jacéntem mundum erexísti: fidélibus tuis perpétuam concéde lætítiam; ut, quos perpétuæ mortis eripuísti cásibus, gáudiis fácias pérfrui sempitérnis. Per eúmdem Dóminum.
+
+## Ad Tertiam
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+**℟. br.** Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+## Ad Sextam
+
+**Capit.** *1 Petri 2, 23-24*
+
+TRADEBAT autem judicánti se injúste: qui peccáta nostra ipse pértulit in córpore suo super lignum: ut peccátis mórtui, justítiæ vivámus: cujus livóre sanáti sumus.
+
+**℟. br.** Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.

@@ -17336,4 +17336,36 @@ NOn hæc ait beátus Evangelísta, quasi pietátem ullam efferátis et crudélib
 
 MAgnum autem illíus præcípue sábbati diem cólere símulant, qui magnæ diéi Dóminum interemérunt, et grátiam se solis dignam flágitant, ut eórum nempe crura frangántur, intolerábili dolóre acerbiórem morte ipsa perníciem prope jam mórtuis moliéntes. Venérunt ergo mílites, et primi quidem fregérunt crura, et altérius qui crucifíxus est cum eo. Judæórum petitióni mílites obsecúti, qui símili crudelitátis furóre laborábant, duórum quidem latrónum, quippe qui vivi adhuc repérti essent, crura confríngunt. Sed, cum Jesum inclinásse caput comperíssent, et jam expirásse putárent, frustra ejus crura confríngi existimant, sed, cum adhuc mórtuum esse nonníhil diffidérent, láncea latus ejus perfódiunt, unde cruor aqua mixtus scatúriit, quod eulógiæ mýsticæ et sancti baptísmatis imágo quædam erat atque primítiæ.
 
-℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Chri-
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et ambulémus in dilectióne. Glória Patri et Fílio et Spirítui Sancto. Et ambulémus in dilectióne.
+
+##### Lectio ix
+
+EX iis autem quæ contigérunt, sapientíssimus Evangelísta confírmat auditóribus eum esse Christum, qui per sanctas olim prædíctus est Scriptúras, consentánea enim divínis de eo oráculis evenérunt. Nec enim os ejus confráctum est, et mílitum láncea transfíxus est, secúndum Scriptúras. Spectatórem vero ejus rei ait exstitísse discípulum ipsum qui testimónium pérhibet de his, et scire se vera testári, seípsum his verbis, non álium dénotans.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Vésperæ de sequénti die Oct.}
+
+---
+
+## Feria VI. In Octava Ssmi Cordis Jesu
+
+*Duplex majus*
+
+{RUBRIC: Omnia ut in die Festo, p. 343, præter sequéntia:}
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 15, 1-11*
+
+ET dixit Sámuel ad Saul: Me misit Dóminus, ut úngerem te in regem super pópulum ejus Israël: nunc ergo audi vocem Dómini. Hæc dicit Dóminus exercítuum: Recénsui quæcúmque fecit Amalec Israéli: quómodo réstitit ei in via cum ascénderet de Ægýpto. Nunc ergo vade et pércute Amalec et demolíre univérsa ejus: non parcas ei et non concupíscas ex rebus ipsíus áliquid; sed intérfice a viro usque ad mulíerem, et párvulum atque lacténtem, bovem et ovem, camélum et ásinum.
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non.
+
+##### Lectio ii
+
+PRæcépit ítaque Saul pópulo, et recénsuit eos quasi agnos: ducénta míllia péditum et decem míllia virórum Juda. Cumque venísset Saul usque ad civitátem Amalec, teténdit insídias in torrénte. Dixítque Saul Cinæo: Abíte, recédite, atque descéndite ab Amalec: ne forte invólvam te cum eo; tu enim fecísti misericórdiam cum ómnibus fíliis Israël cum ascénderent de Ægýpto. Et recéssit Ci-

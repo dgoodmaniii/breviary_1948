@@ -46544,4 +46544,28 @@ ERGO, dum novam constructiónem sanctæ hujus ecclésiæ libénter atténdimus, 
 
 PRINCIPALITER ergo grátias agámus Dómino, Deo nostro, a quo est omne datum óptimum et omne donum perféctum: et ejus bonitátem tota cordis alacritáte laudémus, quóniam ad construéndam istam domum oratiónis, fidélium suórum visitávit ánimum, excitávit afféctum, surrogávit auxílium, inspirávit necdum voléntibus ut vellent, adjúvit bonæ voluntátis conátus ut fácerent. Ac per hoc Deus, qui operátur in suis et velle et perfícere pro bona voluntáte, hæc ómnia ipse cœpit, ipse perfécit.
 
-℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.) ℣. Hæc
+℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.) ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.)
+
+###### Lectio vi
+
+ET quia ópera bona in conspéctu suo numquam esse permíttit inánia, fidélibus suis, quibus operántibus præbuit virtútis suæ favórem, tríbuet condígnam pro tanta operatióne mercédem. Adhuc ámplius agéndæ sunt grátiæ Deo nostro; hanc enim ecclésiam, quam fecit nómini suo cónstrui, fecit étiam sanctórum Mártyrum relíquiis ámplius honorári.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino: \* Vere locus iste sanctus est, et ego nesciébam. (T. P. Allelúja.) ℣. Cumque evigilásset Jacob de somno, ait. — Vere. Glória Patri. Vere.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 19, 1-10*
+
+IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+De Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Liber 5, cap. 77 in Luc. 19}
+
+ET cum venísset ad locum, suspíciens Jesus vidit illum. Perámbulans Jéricho Salvátor, venit ad locum, ubi præcúrrens Zachǽus sycómorum conscénderat: quia, missis per mundum sui verbi præcónibus, in quibus ipse nimírum et loquebátur et ibat, venit ad pópulum natiónum, qui passiónis ejus fide jam sublímis exsístens, étiam divinitátis ejus ardébat agníta fácie beári. Suspíciens vidit illum, quia per grátiam fídei a terrénis cupiditátibus elevátum, turbísque infidélibus præeminéntem elégit. Vidére enim Dei, elígere vel amáre est; unde est illud: Oculi Dómini super justos. Nam et nos quæ amámus, vidére; ab his, quæ exsecrámur, intúitum festinámus avértere.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. (T. P. Allelúja.) ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et.

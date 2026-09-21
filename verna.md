@@ -39176,4 +39176,32 @@ PROFECTUS inde Tarsum ut quǽreret Paulum, cum eo Antiochíam venit. In ejus urb
 
 ###### Lectio vi
 
-CUM autem Antiochíæ in Ecclésia, cum céteris prophétis et doctóribus, Paulus et Bárnabas in jejúnio et oratióne Dómino deservírent, dixit Spíritus Sanctus: Segregáte mihi Saulum et Bárnabam in opus, ad quod assúmpsi eos. Tunc jejunántes et orántes, imponentésque eis manus, dimisérunt illos. Itaque Seleucíam venérunt, inde in Cyprum; ac multas prætérea urbes regionésque,
+CUM autem Antiochíæ in Ecclésia, cum céteris prophétis et doctóribus, Paulus et Bárnabas in jejúnio et oratióne Dómino deservírent, dixit Spíritus Sanctus: Segregáte mihi Saulum et Bárnabam in opus, ad quod assúmpsi eos. Tunc jejunántes et orántes, imponentésque eis manus, dimisérunt illos. Itaque Seleucíam venérunt, inde in Cyprum; ac multas prætérea urbes regionésque, prædicántes Evangélium summa cum audiéntium utilitáte, peragrárunt. Postrémo Bárnabas digréssus a Paulo, una cum Joánne, qui cognominátus est Marcus, navigávit in Cyprum; ibíque círciter séptimum Nerónis annum, tértio Idus Júnii ad apostólici múneris laudem martýrii corónam adjúnxit. Ejus corpus, Zenóne imperatóre, repértum est in ínsula Cypro; ad cujus pectus erat Evangélium Matthǽi, Bárnabæ manu conscríptum.
+
+℟. Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti. Glória. Repléti.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+BARNABAS Levítes, Cýprius génere, cum Paulo Apóstolo ordinátus est ad prædicándum Jesu Christi Evangélium. Is, agro véndito quem habébat, redáctam ex eo pecúniam áttulit Apóstolis. Missus Antiochíam prædicatiónis causa, multos ibi ad Christi fidem convérsos suis hortatiónibus confirmávit. Inde proféctus cum eódem Paulo, multas urbes regionésque summa cum audiéntium utilitáte peragrávit. Postrémo, digréssus a Paulo, una cum Joánne qui, cognominátus est Marcus, navigávit in Cyprum, ibíque, séptimo Nerónis anno, ad apostólici múneris laudem martýrii corónam adjúnxit.
+
+{RUBRIC: Te Deum.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 10, 16-22*
+
+IN illo témpore: Dixit Jesus discípulis suis: Ecce ego mitto vos sicut oves in médio lupórum. Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+{RUBRIC: Hom. 34 in Matth. post init.}
+
+CUM Dóminus omnem sollicitúdinem a discipulórum córdibus ejécerit, et ostensióne signórum armáverit, atque, ab ómnibus negótiis sæculáribus alienátos et ab omni temporálium rerum cura liberátos, férreos quodámmodo atque adamántinos fécerit, tum dénique eventúra illis advérsa prædícit. Multa enim ex hac prædictióne futurárum rerum

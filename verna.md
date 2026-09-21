@@ -36893,4 +36893,54 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-BEATUM Michaélem Archángelum sæpius homínibus apparuísse, et sacrórum librórum auctoritáte, et véteri Sanctórum traditióne comprobátur. Quam ob rem multis in locis facti memória celebrátur. Eum, ut olim synagóga Judæórum, sic nunc custódem et patrónum Dei venerátur Ecclésia. Gelásio autem primo, Pontífice máximo, in Apúlia in vértice Gargáni montis, ad cujus radíces íncolunt Sipontíni, Archángeli Michaélis fuit illústris apparítio. Nec ita multo post Bonifátius Papa, Romæ in summo circo sancti Michaélis ecclésiam dedicávit tértio Kaléndas Octóbris: quo die étiam ómnium Angelórum memóriam Ecclésia célebrat. Hodiérnus autem dies
+BEATUM Michaélem Archángelum sæpius homínibus apparuísse, et sacrórum librórum auctoritáte, et véteri Sanctórum traditióne comprobátur. Quam ob rem multis in locis facti memória celebrátur. Eum, ut olim synagóga Judæórum, sic nunc custódem et patrónum Dei venerátur Ecclésia. Gelásio autem primo, Pontífice máximo, in Apúlia in vértice Gargáni montis, ad cujus radíces íncolunt Sipontíni, Archángeli Michaélis fuit illústris apparítio. Nec ita multo post Bonifátius Papa, Romæ in summo circo sancti Michaélis ecclésiam dedicávit tértio Kaléndas Octóbris: quo die étiam ómnium Angelórum memóriam Ecclésia célebrat. Hodiérnus autem dies Archángeli Michaélis apparitióne consecrátus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+**Ant.** Angelus \* Archángelus Míchaël, Dei núntius pro animábus justis, allelúja, allelúja.
+
+###### Psalmus 95
+
+CANTATE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+###### Psalmus 96
+
+DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.

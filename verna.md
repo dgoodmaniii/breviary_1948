@@ -39459,3 +39459,35 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut qui sanctórum Mártyrum tuórum Marci 
 ###### Oratio
 
 DEUS, qui beátam Juliánam Vírginem tuam extrémo morbo laborántem pretióso Fílii tui córpore mirabíliter recreáre dignátus es: concéde, quǽsumus; ut, ejus intercedéntibus méritis, nos quoque eódem in mortis agóne refécti ac roboráti, ad cæléstem pátriam perducámur. (Per eúmdem Dóminum.)
+
+{RUBRIC: Et fit Commem. Ss. Gervasii et Protasii Martyrum:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+DEUS, qui nos ánnua sanctórum Mártyrum tuórum Gervásii et Protásii solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+##### Ad Laudes
+
+{RUBRIC: Pro Commem. S. Julianæ Virg.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam, allelúja.
+
+℣. Diffúsa est grátia.
+
+###### Oratio
+
+DEUS, qui beátam Juliánam Vírginem tuam extrémo morbo laborántem pretióso Fílii tui córpore mirabíliter recreáre dignátus es: concéde, quǽsumus; ut, ejus intercedéntibus méritis, nos quoque eódem in mortis agóne refécti ac roboráti, ad cæléstem pátriam perducámur. (Per eúmdem Dóminum.)
+
+{RUBRIC: Pro Ss. Gervasio et Protasio Martyribus:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Deus, qui nos, ut supra.
+
+---

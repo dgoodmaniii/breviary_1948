@@ -10632,3 +10632,59 @@ Non avértas fáciem tuam a me: \* et símilis ero descendéntibus in lacum.
 Audítam fac mihi mane misericórdiam tuam: \* quia in te sperávi.
 
 Notam fac mihi viam, in qua ámbulem: \* quia ad te levávi ánimam meam.
+
+Eripe me de inimícis meis, Dómine, ad te confúgi: \* doce me fácere voluntátem tuam, quia Deus meus es tu.
+
+Spíritus tuus bonus dedúcet me in terram rectam: \* propter nomen tuum, Dómine, vivificábis me, in æquitáte tua.
+
+Edúces de tribulatióne ánimam meam: \* et in misericórdia tua dispérdes inimícos meos.
+
+Et perdes omnes, qui tríbulant ánimam meam: \* quóniam ego servus tuus sum.
+
+**Ant.** Propter nomen tuum, Dómine, vivificábis me, in æquitáte tua.
+
+**Ant.** Deus, tu convérsus.
+
+### Psalmus 84
+
+BEnedixísti, Dómine, terram tuam: \* avertísti captivitátem Jacob.
+
+Remisísti iniquitátem plebis tuæ: \* operuísti ómnia peccáta eórum.
+
+Mitigásti omnem iram tuam: \* avertísti ab ira indignatiónis tuæ.
+
+Convérte nos, Deus, salutáris noster: \* et avérte iram tuam a nobis.
+
+Numquid in ætérnum irascéris nobis? \* aut exténdes iram tuam a generatióne in generatiónem?
+
+Deus, tu convérsus vivificábis nos: \* et plebs tua lætábitur in te.
+
+Osténde nobis, Dómine, misericórdiam tuam: \* et salutáre tuum da nobis.
+
+Audiam quid loquátur in me Dóminus Deus: \* quóniam loquétur pacem in plebem suam.
+
+Et super sanctos suos: \* et in eos, qui convertúntur ad cor.
+
+Verúmtamen prope timéntibus eum salutáre ipsíus: \* ut inhábitet glória in terra nostra.
+
+Misericórdia, et véritas obviavérunt sibi: \* justítia, et pax osculátæ sunt.
+
+Véritas de terra orta est: \* et justítia de cælo prospéxit.
+
+Etenim Dóminus dabit benignitátem: \* et terra nostra dabit fructum suum.
+
+Justítia ante eum ambulábit: \* et ponet in via gressus suos.
+
+**Ant.** Deus, tu convérsus vivificábis nos: et plebs tua lætábitur in te.
+
+**Ant.** Cum irátus fúeris.
+
+#### Canticum Habacuc
+
+*Hab. 3, 2-19*
+
+DOmine, audívi auditiónem tuam, \* et tímui.
+
+Dómine, opus tuum, \* in médio annórum vivífica illud:
+
+In médio annórum notum fácies: \* cum irátus fúeris, misericórdiæ recordáberis.

@@ -51465,4 +51465,68 @@ DOMINE Jesu, Redémptor noster amantíssime et Sacérdos in ætérnum, nos súpp
 
 Orémus. **Oratio**
 
-OMNIPOTENS sempitérne Deus, qui Sanctórum tuórum imágines {RUBRIC: (sive effigies)} sculpi aut pingi non réprobas, ut, quóties illas óculis córporis intuémur, tóties eórum actus et sanctitátem ad imitándum memóriæ óculis medité-
+OMNIPOTENS sempitérne Deus, qui Sanctórum tuórum imágines {RUBRIC: (sive effigies)} sculpi aut pingi non réprobas, ut, quóties illas óculis córporis intuémur, tóties eórum actus et sanctitátem ad imitándum memóriæ óculis meditémur: hanc, quǽsumus, imáginem {RUBRIC: (seu sculptúram)} in honórem et memóriam unigéniti Fílii tui, Dómini nostri Jesu Christi {RUBRIC: (vel beatíssimæ Vírginis Maríæ, Matris Dómini nostri Jesu Christi, vel beáti} N. {RUBRIC: Apóstoli tui, vel Mártyris, vel Pontíficis, vel Confessóris, vel beátæ} N. {RUBRIC: Vírginis, vel Mártyris)} adaptátam bene ✠ dícere et sanctifi ✠ cáre dignéris: et præsta; ut, quicúmque coram illa unigénitum Fílium tuum {RUBRIC: (vel beatíssimam Vírginem, vel gloriósum Apóstolum, sive Mártyrem, sive Pontíficem, vel Confessórem, vel gloriósam Vírginem, vel Mártyrem)} supplíciter cólere et honoráre stúduerit, illíus méritis et obténtu a te grátiam in præsénti, et ætérnam glóriam obtíneat in futúrum. Per {RUBRIC: (eúmdem)} Christum, Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Ultimo aspergat aqua benedicta.}
+
+## Benedictio Domorum
+
+### Extra Sabbatum Sanctum
+
+{RUBRIC: Parochus seu alii Sacerdotes volentes aliquam particularem domum, vel generaliter domos fidelium infra annum aspergere aqua benedicta, ingredientes domum dicant:}
+
+Pax huic dómui et ómnibus habitántibus in ea.
+
+{RUBRIC: Deinde, loca aspergendo, dicat:}
+
+**Ant.** Aspérges me, Dómine, hyssópo, et mundábor: lavábis me, et super nivem dealbábor.
+
+{RUBRIC: Ps. 50} Miserére mei, Deus, secúndum magnam misericórdiam tuam.
+
+℣. Glória Patri, {RUBRIC: etc.}
+
+{RUBRIC: Et repetitur Antiphona} Aspérges me, {RUBRIC: etc.}
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+EXAUDI nos, Dómine sancte, Pater omnípotens, ætérne Deus: et míttere dignéris sanctum Angelum tuum de cælis, qui custódiat, fóveat, prótegat, vísitet atque deféndat omnes habitántes in hoc habitáculo. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Deinde aspergat aqua benedicta.}
+
+## Benedictio Rosariorum B. Mariæ V.
+
+### Formula Brevior
+
+{RUBRIC: (approbata a S. R. C. die 23 Nov. 1918)}
+
+AD laudem et glóriam Deíparæ Vírginis Maríæ, in memóriam mysteriórum vitæ, mortis et resurrectiónis ejúsdem Dómini nostri Jesu Christi, bene ✠ dicá(n)tur et sancti ✠ ficé(n)tur hæc (hæ) sacratíssimi Rosárii coróna (æ): in nómine Patris, et Fílii, ✠ et Spíritus Sancti. Amen.
+
+{RUBRIC: Stola et aqua benedicta adhiberi possunt ad libitum.}
+
+{RUBRIC: Si fuerint plures coronæ dicatur in plurali.}
+
+## Benedictio ad quodcumque comestibile
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram. ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+BEnedic, ✠ Dómine, creatúram istam N., ut sit remédium salutáre géneri humáno: et præsta per invocatiónem sancti nóminis tui; ut, quicúmque ex ea súmpserint, córporis sanitátem et ánimæ tutélam percípiant. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Aspergat aqua benedicta.}
+
+## Benedictio ad omnia
+
+{RUBRIC: Hæc benedictionis formula adhiberi potest a quovis Sacerdote pro omnibus rebus, de quibus specialis benedictio non habetur in Rituali Romano.}
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram. ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+DEus, cujus verbo sanctificántur ómnia, bene ✠ dictiónem tuam effúnde super creatúram istam (vel creatúras istas): et præsta; ut, quisquis ea (vel eis) secúndum legem et voluntátem tuam cum gratiárum actióne usus fúerit, per invocatiónem sanctíssimi Nóminis tui, córporis sanitátem et ánimæ tutélam, te auctóre, percípiat. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Deinde illam (vel illas) Sacerdos aspergit aqua benedicta.}

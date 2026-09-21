@@ -24278,4 +24278,22 @@ VIR autem quidam, nómine Simon, qui ante fúerat in civitáte magus, sedúcens 
 
 #### Lectio ii
 
-CUM autem audíssent Apóstoli, qui erant Jerosólymis, quod recepísset Samaría verbum Dei, misérunt ad eos Petrum et
+CUM autem audíssent Apóstoli, qui erant Jerosólymis, quod recepísset Samaría verbum Dei, misérunt ad eos Petrum et Joánnem. Qui, cum veníssent, oravérunt pro ipsis, ut accíperent Spíritum Sanctum: nondum enim in quemquam illórum vénerat, sed baptizáti tantum erant in nómine Dómini Jesu. Tunc imponébant manus super illos, et accipiébant Spíritum Sanctum. Cum vidísset autem Simon, quia per impositiónem manus Apostolórum darétur Spíritus Sanctus, óbtulit eis pecúniam, dicens: Date et mihi hanc potestátem, ut cuicúmque imposúero manus, accípiat Spíritum Sanctum.
+
+℟. Surgens Jesus Dóminus noster, stans in médio discipulórum suórum, dixit: \* Pax vobis, allelúja: gavísi sunt discípuli viso Dómino, allelúja. ℣. Una ergo sabbatórum, cum fores essent clausæ, ubi erant discípuli congregáti, venit Jesus, et stetit in médio eórum, et dixit eis. — Pax.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Pax.
+
+#### Lectio iii
+
+PETRUS autem dixit ad eum: Pecúnia tua tecum sit in perditiónem: quóniam donum Dei existimásti pecúnia possidéri. Non est tibi pars, neque sors in sermóne isto. Cor enim tuum non est rectum coram Deo. Pœniténtiam ítaque age ab hac nequítia tua: et roga Deum, si forte remittátur tibi hæc cogitátio cordis tui. In felle enim amaritúdinis, et obligatióne iniquitátis vídeo te esse. Respóndens autem Simon, dixit: Precámini vos pro me ad Dóminum, ut nihil véniat super me horum, quæ dixístis.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Expurgáte vetus ferméntum, ut sitis nova conspérsio: étenim Pascha nostrum immolátus est Christus: \* Itaque epulémur in Dómino, allelúja. ℣. Mórtuus est propter delícta nostra, et resurréxit propter justificatiónem nostram. — Itaque. Glória Patri. Itaque.
+
+**Ad Bened. Ant.** Venérunt ad monuméntum \* María Magdaléne, et áltera María, vidére sepúlcrum, allelúja.
+
+{RUBRIC: Ad Vésperas, nisi sequénti die persolvéndum sit Offícium de Festo novem Lectiónum, aut de quálibet Octáva, a Capítulo fit de sancta María, et de ea dícitur Offícium in Sábbato sequénti. Quod ítem servátur in réliquis Sábbatis simíliter non impedítis, usque ad Sábbatum infra Hebdómadam IV post Octávam Paschæ inclusíve.}

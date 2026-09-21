@@ -19499,3 +19499,62 @@ HOC ergo admótum est sénsibus, quo erigerétur mens: et exhíbitum óculis, ub
 **Ant. 1** Tunc acceptábis \* sacrifícium justítiæ, si avérteris fáciem tuam a peccátis meis.
 
 {RUBRIC: Psalmi de Domin. 2 loco. 53}
+
+**2** Bonum est \* speráre in Dómino, quam speráre in princípibus.
+
+**3** Me suscépit \* déxtera tua, Dómine.
+
+**4** Potens es, Dómine, \* erípere nos de manu forti: líbera nos, Deus noster.
+
+**5** Reges terræ \* et omnes pópuli, laudáte Deum.
+
+**Capitulum** *Gal. 4, 22-24*
+
+FRATRES: Scriptum est quóniam Abraham duos fílios hábuit: unum de ancílla, et unum de líbera: sed qui de ancílla, secúndum carnem natus est: qui autem de líbera, per repromissiónem: quæ sunt per allegoríam dicta.
+
+#### Hymnus
+
+O Sol salútis, íntimis,
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ
+Si virga pœniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Te prona mundi máchina,
+Clemens, adóret, Trínitas,
+Et nos novi per grátiam
+Novum canámus cánticum. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Cum sublevásset óculos \* Jesus, et vidísset máximam multitúdinem veniéntem ad se, dixit ad Philíppum: Unde emémus panes, ut mandúcent hi? Hoc autem dicébat téntans eum: ipse enim sciébat quid esset factúrus.
+
+#### Oratio
+
+CONCEDE, quæsumus, omnípotens Deus: ut, qui ex mérito nostræ actiónis afflígimur, tuæ grátiæ consolatióne respirémus. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Accépit ergo \* Jesus panes, et, cum grátias egísset, distríbuit discumbéntibus.
+
+### Ad Tertiam
+
+**Ant.** De quinque pánibus \* et duóbus píscibus satiávit Dóminus quinque míllia hóminum.
+
+**Capitulum** Fratres de Laudibus ut supra.

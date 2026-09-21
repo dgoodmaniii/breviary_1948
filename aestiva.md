@@ -19434,4 +19434,26 @@ MEnse quinto séptima die mensis, ipse est annus nonus décimus regis Babylónis
 
 PArábolæ Salomónis, fílii David regis Israël, ad sciéndam sapiéntiam et disciplínam, ad intelligénda verba prudéntiæ et suscipiéndam eruditiónem doctrínæ, justítiam et judícium et æquitátem, ut detur párvulis astútia, adoléscénti sciéntia et intelléctus. Audiens sápiens sapiéntior erit, et intélligens gubernácula possidébit: animadvértet parábolam et interpretatiónem, verba sapiéntum et ænígmata eórum.
 
-℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum,
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+TImor Dómini princípium sapiéntiæ. Sapiéntiam atque doctrínam stulti despíciunt. Audi, fili mi, disciplínam patris tui et ne dimíttas legem matris tuæ, ut addátur grátia cápiti tuo et torques collo tuo. Fili mi, si te lactáverint peccatóres, ne acquiéscas eis: si díxerint: Veni nobíscum, insidiémur sánguini, abscondámus tendículas contra insóntem frustra, deglutiámus eum sicut inférnus vivéntem et íntegrum quasi descendéntem in lacum; omnem pretiósam substántiam reperiémus, implébimus domos nostras spóliis: sortem mitte nobíscum, marsúpium unum sit ómnium nostrum.
+
+℟. Gyrum cæli circúivi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+##### Lectio iii
+
+FIli mi, ne ámbules cum eis: próhibe pedem tuum a sémitis eórum; pedes enim illórum ad malum currunt, et festínant ut effúndant sánguinem. Frustra autem jácitur rete ante óculos pennatórum. Ipsi quoque contra sánguinem suum insidiántur et moliúntur fraudes contra ánimas suas. Sic sémitæ omnis avári: ánimas possidéntium rápiunt.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut. Glória Patri. Ut.
+
+#### In II Nocturno
+
+Ex Tractátu sancti Ambrósii Epíscopi in Psalmum centésimum décimum octávum
+
+*Sermo 5, n. 36-37*
+
+##### Lectio iv
+
+INítium esse sapiéntiæ timórem Dómini, dicit Prophéta. Quid est autem inítium sapiéntiæ, nisi sæculo renuntiáre? Quia sápere sæculária, stultítia est. Dénique sapiéntiam hujus mundi, stultítiam esse

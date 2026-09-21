@@ -29471,3 +29471,50 @@ ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus
 
 QUODCUMQUE in orbe néxibus revínxeris,
 Erit revínctum, Petre, in arce síderum:
+
+Et quod resólvit hic potéstas tradíta,
+Erit solútum cæli in alto vértice:
+In fine mundi judicábis sǽculum.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,
+Honor tibi, decúsque: sancta júgiter
+Laudétur omne Trínitas per sǽculum.
+Amen.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+**Ad Magnif. Ant.** Tu es pastor óvium, \* Princeps Apostolórum, tibi tráditæ sunt claves regni cælórum.
+
+###### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commem. S. Pauli Apostoli ante omnes alias Commemorationes:}
+
+**Ant.** Sancte Paule Apóstole, prædicátor veritátis, et Doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+###### Oratio
+
+DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. (Per Dóminum.)
+
+{RUBRIC: Deinde Commem. Feriæ.}
+
+##### Ad Matutinum
+
+**Invitat.** Tu es pastor óvium, Princeps Apostolórum: \* Tibi trádidit Deus claves regni cælórum. **Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus** Quodcúmque, {RUBRIC: ut supra. 705}
+
+##### In I Nocturno
+
+Incipit Epístola prima beáti Petri Apóstoli
+
+###### Lectio i
+
+*Cap. 1, 1-12*
+
+PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ, Cappadóciæ, Asiæ et Bithýniæ secúndum præsciéntiam Dei Patris, in sanctificatiónem Spíritus, in obediéntiam, et aspersiónem sánguinis Jesu Chri-

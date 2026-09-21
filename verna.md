@@ -37142,4 +37142,42 @@ AUDIVI vocem Angelórum multórum in circúitu throni, et animálium et senióru
 
 FACTUM est prǽlium magnum in cælo: Míchaël et Angeli ejus præliabántur cum dracóne, et draco pugnábat et ángeli ejus; et non prævaluérunt, neque locus invéntus est eórum ámplius in cælo.
 
-℟. br. In conspéctu Angelórum psallam tibi, Deus meus, \* Allelúja, allelúja.
+℟. br. In conspéctu Angelórum psallam tibi, Deus meus, \* Allelúja, allelúja. In. ℣. Adorábo ad templum sanctum tuum, et confitébor nómini tuo. Allelúja, allelúja. Glória Patri. In. ℣. Adoráte Deum, allelúja. ℟. Omnes Angeli ejus, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis 942, sed loco ultimi Psalmi dícitur Ps. 137 Confitébor. 942}
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus, allelúja. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo, allelúja.
+
+**Ad Magnif. Ant.** Princeps gloriosíssime, \* Míchaël Archángele, esto memor nostri: hic et ubíque semper precáre pro nobis Fílium Dei, allelúja, allelúja.
+
+{RUBRIC: Et fit Commem. sequéntis. Completórium de Dominica.}
+
+---
+
+### Die 9 Maji
+
+#### S. Gregorii Nazianzeni
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [84]}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Gregóri, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Amávit eum Dóminus.
+
+**Oratio** C 3
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Gregórium minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si suméndæ sint de Communi, Lectiones Sapiéntiam. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+GREGORIUS, nóbilis Cáppadox, ex singulári divinárum Litterárum sciéntia Theólogi cognómen consecútus, Naziánzi in Cappadócia natus, Athénis in omni disciplinárum génere una cum sancto Basílio erudítus, ad stúdia sacrárum Litterárum se convértit; in quibus se in cœnóbio per áliquot annos exercuérunt, illárum senténtiam non ex próprio ingénio, sed ex majórum ratióne et auctoritáte interpretántes. Qui cum doctrína et vitæ sanctitáte florérent, vocáti ad munus prædicándæ evangélicæ veritátis, plúrimos Jesu Christo fílios peperérunt.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, alle-

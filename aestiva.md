@@ -1752,3 +1752,41 @@ Deus meus es tu, et confitébor tibi: \* Deus meus es tu, et exaltábo te.
 Confitébor tibi quóniam exaudísti me: \* et factus es mihi in salútem.
 
 Confitémini Dómino quóniam bonus: \* quóniam in sæculum misericórdia ejus.
+
+{RUBRIC: ¶ In Domínicis infra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, in Duplícibus I vel II classis, in Festis novem Lectiónum Dómini, B. Maríæ Vírginis, Angelórum, S. Joánnis Baptístæ, S. Joseph, Apostolórum, Evangelistárum, et per Octávas privilegiátas: si de eis fiat Offícium, ad Primam, Tértiam, Sextam et Nonam dicúntur Psalmi de Domínica, sub Antiphónis Offício diéi congruéntibus, nisi áliter suo loco notétur; sed ad Primam, loco Psalmi 117 Confitémini, in ipsa étiam die Domínica semper dícitur}
+
+###### Psalmus 53
+
+DEUS, in nómine tuo salvum me fac: \* et in virtúte tua júdica me.
+
+Deus, exáudi oratiónem meam: \* áuribus pércipe verba oris mei.
+
+Quóniam aliéni insurrexérunt advérsum me, et fortes quæsiérunt ánimam meam: \* et non proposuérunt Deum ante conspéctum suum.
+
+Ecce enim, Deus ádjuvat me: \* et Dóminus suscéptor est ánimæ meæ.
+
+Avérte mala inimícis meis: \* et in veritáte tua dispérde illos.
+
+Voluntárie sacrificábo tibi, \* et confitébor nómini tuo, Dómine: quóniam bonum est:
+
+Quóniam ex omni tribulatióne eripuísti me: \* et super inimícos meos despéxit óculus meus.
+
+###### Psalmus 118, i
+
+BEATI immaculáti in via: \* qui ámbulant in lege Dómini.
+
+Beáti, qui scrutántur testimónia ejus: \* in toto corde exquírunt eum.
+
+Non enim qui operántur iniquitátem: \* in viis ejus ambulavérunt.
+
+Tu mandásti \* mandáta tua custodíri nimis.
+
+Utinam dirigántur viæ meæ, \* ad custodiéndas justificatiónes tuas!
+
+Tunc non confúndar, \* cum perspéxero in ómnibus mandátis tuis.
+
+Confitébor tibi in directióne cordis: \* in eo quod dídici judícia justítiæ tuæ.
+
+Justificatiónes tuas custódiam: \* non me derelínquas usquequáque.
+
+In quo córrigit adolescéntior viam suam? \* in custodiéndo sermónes tuos.

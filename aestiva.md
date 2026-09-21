@@ -17789,3 +17789,29 @@ DE quibus et bene dícitur, ut agri primitiárum esse non possint. Supérbæ qui
 IGitur post hæc consúluit David Dóminum dicens: Num ascéndam in unam de civitátibus Juda? Et ait Dóminus ad eum: Ascénde. Dixítque David: Quo ascéndam? Et respóndit ei: In Hebron. Ascéndit ergo David et duæ uxóres ejus Achínoam Jezrahelítes et Abígail uxor Nabal Carméli; sed et viros, qui erant cum eo, duxit David síngulos cum domo sua; et mansérunt in óppidis Hebron. Venerúntque viri Juda et unxérunt ibi David, ut regnáret super domum Juda.
 
 ℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.
+
+##### Lectio ii
+
+ET nuntiátum est David, quod viri Jabes Gálaad sepelíssent Saul. Misit ergo David núntios ad viros Jabes Gálaad dixítque ad eos: Benedícti vos a Dómino, qui fecístis misericórdiam hanc cum dómino vestro Saul et sepelístis eum. Et nunc retríbuet vobis quidem Dóminus misericórdiam et veritátem, sed et ego reddam grátiam eo quod fecístis verbum istud. Conforténtur manus vestræ et estóte fílii fortitúdinis; licet enim mórtuus sit dóminus vester Saul, tamen me unxit domus Juda in regem sibi.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+ABner autem fílius Ner princeps exércitus Saul tulit Isbóseth fílium Saul, et circumdúxit eum per castra regémque constítuit super Gálaad et super Géssuri et super Jézrahel et super Éphraim et super Bénjamin et super Israël univérsum. Quadragínta annórum erat Isbóseth fílius Saul cum regnáre cœpísset super Israël, et duóbus annis regnávit. Sola autem domus Juda sequebátur David. Et fuit númerus diérum, quos commorátus est David ímperans in Hebron super domum Juda, septem annórum et sex ménsium.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 3, 6-10*
+
+CUM ergo esset prǽlium inter domum Saul et domum David, Abner fílius Ner regébat domum Saul. Fúerat autem Sauli concubína nómine Respha, fília Aja. Dixítque Isbóseth ad Abner: Quare ingréssus es ad concubínam patris mei? Qui irátus nimis propter verba Isbóseth ait: Numquid caput

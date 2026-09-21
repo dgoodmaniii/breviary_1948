@@ -33287,4 +33287,92 @@ LEO autem Románi singulári ómnium lætítia excéptus, paulo post invadénti 
 
 ###### Lectio vi
 
-HIS actis, sanctus Póntifex se ad reficiéndas et ædificándas ecclésias convértit. Cujus suásu Demétria, pia fémina, sancti Stéphani ecclésiam constrúxit in suo fundo via Latína tértio ab Urbe milliário: ipse via Áppia sub nómine sancti Cornélii álteram cóndidit. Multas prǽterea et sacras ædes, et sacra eárum vasa restítuit. In tribus basílicis, Petri, Pauli et Constantiniána, cámeras exstrúxit; ædificávit monastérium vicínum basílicæ sancti Petri; sepúlcris Apostolórum custódes adhíbuit, quos cubiculários appellávit. Státuit ut in actióne mystérii dicerétur: Sanctum sacrifícium, immaculátam hóstiam. Sanxit ne mónacha benedíctum cápitis velámen recíperet, nisi quadragínta
+HIS actis, sanctus Póntifex se ad reficiéndas et ædificándas ecclésias convértit. Cujus suásu Demétria, pia fémina, sancti Stéphani ecclésiam constrúxit in suo fundo via Latína tértio ab Urbe milliário: ipse via Áppia sub nómine sancti Cornélii álteram cóndidit. Multas prǽterea et sacras ædes, et sacra eárum vasa restítuit. In tribus basílicis, Petri, Pauli et Constantiniána, cámeras exstrúxit; ædificávit monastérium vicínum basílicæ sancti Petri; sepúlcris Apostolórum custódes adhíbuit, quos cubiculários appellávit. Státuit ut in actióne mystérii dicerétur: Sanctum sacrifícium, immaculátam hóstiam. Sanxit ne mónacha benedíctum cápitis velámen recíperet, nisi quadragínta annórum virginitátem probásset. His et áliis præcláre gestis, cum multa sancte et luculénter scripsísset, quarto Idus Novémbris obdormívit in Dómino. Sedit in pontificátu annos vigínti unum, mensem unum, dies trédecim.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. {RUBRIC: (T. P. Allelúja.)} ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+LEO primus, Etrúscus, eo témpore præfuit Ecclésiæ, cum rex Hunnórum Attíla, cognoménto Flagéllum Dei, in Itáliam invádens, post captam et incénsam Aquiléjam, Romam petitúrus cópias paráverat. Cui occúrrens Leo, divína persuásit eloquéntia, ut regrederétur. Tum Romæ singulári ómnium lætítia excéptus, paulo post, invadénti Urbem Gensérico eádem eloquéntiæ vi persuásit, ut ab incéndiis, ignomíniis et cǽdibus abstinéret. Cum autem Ecclésiam a multis hærésibus, maximéque a Nestoriánis et Eutychiánis exagitári vidéret, concílium Chalcedonénse indíxit; ubi sexcéntis trigínta coáctis epíscopis, Eutyches et Dióscorus, et íterum Nestórius condemnáti sunt; cujus concílii decréta auctoritáte sua firmávit. Multas sacras ædes exstrúxit, ac monastérium vicínum basílicæ sancti Petri ædificávit. His et áliis præcláre gestis, cum multa sancte et luculénter scripsísset, quarto Idus Novémbris obdormívit in Dómino, anno pontificátus sui vigésimo secúndo.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+Homilía sancti Leónis Papæ
+
+{RUBRIC: Sermo 2 in anniv. assumpt. suæ, ante medium}
+
+CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens: Tu es Christus Fílius Dei vivi; Dóminus ait: Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui in cælis est: et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam. Et tibi dabo claves regni cælórum: et quodcúmque ligáveris super terram, erit ligátum et in cælis: et quodcúmque sólveris super terram, erit solútum et in cælis. Manet ergo disposítio veritátis, et beátus Petrus, in accépta fortitúdine petræ persevérans, suscépta Ecclésiæ gubernácula non relíquit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. {RUBRIC: (T. P. Allelúja.)} ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio viii
+
+IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis lingua, quæ confitétur Dóminum, magistério hujus vocis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc érutos mundo, ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte muníta est, ut eam neque hærética umquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, rationábili obséquio celebrétur hodiérna festívitas: ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendatárum sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ, alias}
+
+###### Lectio ix
+
+CUM ergo cohortatiónes nostras áuribus vestræ sanctitátis adhibémus, ipsum vobis, cujus vice fúngimur, loqui crédite: quia et illíus vos afféctu monémus, et non áliud vobis, quam quod dócuit, prædicámus; obsecrántes, ut succíncti lumbos mentis vestræ, castam et sóbriam vitam in Dei timóre ducátis. Coróna mea, sicut Apóstolus ait, et gáudium vos estis, si fides vestra, quæ ab inítio Evangélii in univérso mundo prædicáta est, in dilectióne et sanctitáte permánserit. Nam licet omnem Ecclésiam, quæ in toto est orbe terrárum, cunctis opórteat florére virtútibus; vos tamen præcípue inter céteros pópulos decet méritis pietátis excéllere, quos ipsa apostólicæ petræ arce fundátos, et Dóminus noster Jesus Christus cum ómnibus redémit, et beátus Apóstolus Petrus præ ómnibus erudívit.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit Dóminus.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Leónem Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Leo, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+---
+
+### Die 13 Aprilis
+
+#### S. Hermenegildi
+
+{RUBRIC: Mart.}
+
+{RUBRIC: Semiduplex [33] vel [74]}
+
+##### In I Vesperis
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Capitulum** *Jac. 1, 12*
+
+BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+{RUBRIC: Tempore Paschali}
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos qui se angustiavérunt, et qui abstulérunt labóres eórum.

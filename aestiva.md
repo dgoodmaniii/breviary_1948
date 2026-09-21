@@ -11833,3 +11833,69 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 Pater noster, Ave María et Credo.
 
 ---
+
+# Sabbato
+
+## Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+### In Officio feriali
+
+**Invit.** Pópulus Dómini, et oves páscuæ ejus: \* Veníte, adorémus. **Ps. 94** Veníte.
+
+#### Hymnus
+
+SUmmæ Parens cleméntiæ,
+Mundi regis qui máchinam,
+Uníus et substántiæ,
+Trinúsque persónis Deus:
+
+Nostros pius cum cánticis
+Fletus benígne súscipe:
+Ut corde puro sórdium
+Te perfruámur lárgius.
+
+Lumbos jecúrque mórbidum
+Flammis adúre cóngruis,
+Accíncti ut artus éxcubent,
+Luxu remóto péssimo.
+
+Quicúmque ut horas nóctium
+Nunc concinéndo rúmpimus,
+Ditémur omnes áffatim
+Donis beátæ pátriæ.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Memor fuit in sæculum \* testaménti sui Dóminus, Deus noster.
+
+### Psalmus 104, i
+
+COnfitémini Dómino, et invocáte nomen ejus: \* annuntiáte inter gentes ópera ejus.
+
+Cantáte ei, et psállite ei: \* narráte ómnia mirabília ejus.
+
+Laudámini in nómine sancto ejus: \* lætétur cor quæréntium Dóminum.
+
+Quærite Dóminum, et confirmámini: \* quærite fáciem ejus semper.
+
+Mementóte mirabílium ejus, quæ fecit: \* prodígia ejus, et judícia oris ejus.
+
+Semen Abraham, servi ejus: \* fílii Jacob, elécti ejus.
+
+Ipse Dóminus Deus noster: \* in univérsa terra judícia ejus.
+
+Memor fuit in sæculum testaménti sui: \* verbi, quod mandávit in mille generatiónes:
+
+Quod dispósuit ad Abra-

@@ -33111,4 +33111,30 @@ QUI in erudiéndis atque instituéndis ad virtútem pópulis prǽerit, necésse 
 
 ###### Lectio viii
 
-HUJUS sermo debet esse purus, simplex, apértus, plenus gravitátis et honestátis, plenus suavitátis et grátiæ, tractans de mystério legis, de doctrína fídei, de virtúte continéntiæ, de disciplína justítiæ; unumquémque admónens divérsa exhortatióne, juxta professiónem morúmque qualitátem; scílicet ut prænóscat, quid, cui, quando, vel quómodo próferat. Cujus præ céteris speciále offícium est Scriptúras légere, percúrrere cánones, exémpla Sanctórum imitári, vigíliis, jejúniis, oratiónibus incúmbere, cum frátribus pacem habére, nec quemquam de membris suis discérpere; nullum damnáre, nisi comprobátum, nullum excommunicáre, nisi discússum. Quique ita humilitáte páriter et auctoritáte prǽesse debet, ut neque per nímiam humili-
+HUJUS sermo debet esse purus, simplex, apértus, plenus gravitátis et honestátis, plenus suavitátis et grátiæ, tractans de mystério legis, de doctrína fídei, de virtúte continéntiæ, de disciplína justítiæ; unumquémque admónens divérsa exhortatióne, juxta professiónem morúmque qualitátem; scílicet ut prænóscat, quid, cui, quando, vel quómodo próferat. Cujus præ céteris speciále offícium est Scriptúras légere, percúrrere cánones, exémpla Sanctórum imitári, vigíliis, jejúniis, oratiónibus incúmbere, cum frátribus pacem habére, nec quemquam de membris suis discérpere; nullum damnáre, nisi comprobátum, nullum excommunicáre, nisi discússum. Quique ita humilitáte páriter et auctoritáte prǽesse debet, ut neque per nímiam humilitátem suam subditórum vítia convaléscere fáciat, neque per immoderántiam severitátis potestátem exérceat; sed tanto cáutius erga commíssos sibi agat, quanto dúrius a Christo indagári formídat.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. {RUBRIC: (T. P. Allelúja.)} ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ, alias}
+
+###### Lectio ix
+
+TENEBIT quoque illam supereminéntem donis ómnibus caritátem, sine qua omnis virtus níhil est. Custos enim castitátis, cáritas; locus autem hujus custódis, humílitas. Habébit étiam inter hæc ómnia castitátis eminéntiam; ita ut mens Christo dédita, ab omni inquinaménto carnis sit munda et líbera. Inter hæc oportébit eum sollícita dispensatióne curam páuperum gérere, esuriéntes páscere, vestíre nudos, suscípere peregrínos, captívos redímere, víduas ac pupíllos tuéri, pervígilem in cunctis exhibére curam, providéntiam habére distributióne discréta. In quo étiam hospitálitas ita erit præcípua, ut omnes cum benignitáte et caritáte suscípiat. Si enim omnes fidéles illud Evangélium audíre desíderant: Hospes fui, et suscepístis me; quanto magis epíscopus, cujus diversórium cunctórum debet esse receptáculum!
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+*C 3*
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Isidórum minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et in Quadragesima Commemoratio Feriæ.}
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commem. præcedéntis et, in Quadragesima, Feriæ.}

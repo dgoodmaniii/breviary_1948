@@ -16692,3 +16692,40 @@ Turpe est redíre ad crímina,
 Quæ Cor beátum lácerent:
 Sed æmulémur córdibus
 Flammas amóris índices.
+
+Jesu, tibi sit glória,
+Qui Corde fundis grátiam,
+Cum Patre et almo Spíritu
+In sempitérna sæcula. Amen.
+
+℣. Hauriétis aquas in gáudio. ℟. De fóntibus Salvatóris.
+
+**Ad Magnif. Ant.** Ad Jesum autem \* cum veníssent, ut vidérunt eum jam mórtuum, non fregérunt ejus crura, sed unus mílitum láncea latus ejus apéruit et contínuo exívit sanguis et aqua.
+
+### Oratio
+
+DEus qui nobis, in Corde Fílii tui, nostris vulneráto peccátis, infinítos dilectiónis thesáuros misericórditer largíri dignáris; concéde, quæsumus, ut illi devótum pietátis nostræ præstántes obséquium, dignæ quoque satisfactiónis exhibeámus offícium. Per eúmdem Dóminum.
+
+{RUBRIC: Completórium de Domínica.}
+
+{RUBRIC: Infra Octávam et in die Octáva Offícium fit ut in Festo, præter Lectiónes, quæ pro síngulis diébus assignántur própriæ.}
+
+{RUBRIC: Si infra Octávam celebrétur Offícium, quod Lectiónes I Nocturni sumat de Scriptúra occurrénti, hæ dicúntur cum Responsóriis de Festo.}
+
+---
+
+## Sabbato infra Oct. Ssmi Cordis Jesu
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 9, 1-8*
+
+ET erat vir de Bénjamin nómine Cis, fílius Abiel, fílii Seror, fílii Béchorath, fílii Aphia, fílii viri Jémini, fortis róbore. Et erat ei fílius vocábulo Saul, eléctus et bonus, et non erat vir de fíliis Israël mélior illo: ab húmero et sursum eminébat super omnem pópulum. Períerant autem ásinæ Cis patris Saul, et dixit Cis ad Saul fílium suum: Tolle tecum unum de púeris et consúrgens vade et quære ásinas. Qui, cum transíssent per montem Ephraïm et per terram Salsim, et non inveníssent, transiérunt étiam per terram Salim, et non erant, sed et per terram Jémini, et mínime reperérunt.
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non recédant a me.

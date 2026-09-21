@@ -47697,3 +47697,49 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 PORTA hæc clausa erit, et non aperiétur. Pulchre quidam portam clausam, per quam solus Dóminus, Deus Israël, ingréditur, et dux cui porta clausa est, Maríam Vírginem intélligunt, quæ et ante partum et post partum virgo permánsit. Etenim témpore, quo Angelus loquebátur: Spíritus Sanctus véniet super te, et virtus Altíssimi obumbrábit te: quod autem nascétur ex te Sanctum, vocábitur Fílius Dei; et quando natus est, virgo permánsit ætérna; ad confundéndos eos, qui arbitrántur eam post nativitátem Salvatóris habuísse de Joseph fílios, ex occasióne fratrum ejus, qui vocántur in Evangélio.
 
 {RUBRIC: Te Deum laudámus.}
+
+---
+
+##### Mense Majo
+
+{RUBRIC: Ex Tractatu sancti Augustini Episcopi de Symbolo ad Catechumenos}
+
+{RUBRIC: Liber 3, cap. 4, in fine}
+
+###### Lectio iii
+
+PER féminam mors, per féminam vita: per Hevam intéritus, per Maríam salus. Illa, corrúpta, secúta est seductórem: hæc, íntegra, péperit Salvatórem. Illa póculum a serpénte propinátum libénter accépit et viro trádidit, ex quo simul mereréntur occídi: hæc, grátia cælésti désuper infúsa, vitam prótulit, per quam caro mórtua possit resuscitári. Quis est qui hæc operátus est, nisi Vírginis Fílius et vírginum Sponsus, qui áttulit Matri fecunditátem, sed non ábstulit integritátem?
+
+{RUBRIC: Te Deum.}
+
+---
+
+# Officium Parvum B. Mariæ Virginis
+
+## I Extra Temp. Pasch.
+
+{RUBRIC: Quod dicitur extra Festum Annuntiationis a Matutino Dominicæ I Quadragesimæ usque ad Nonam Sabbati sancti inclusive.}
+
+##### In Vesperis
+
+{RUBRIC: Ave María secreto, quod dicitur semper in principio omnium Horarum.}
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína.
+
+Glória Patri. Sicut erat.
+
+Laus tibi, Dómine, Rex ætérnæ glóriæ.
+
+{RUBRIC: Antiphonæ, quæ in toto Officio parvo non duplicantur, Psalmi, Capitulum et Hymnus, ut supra in Communi Festorum B. Mariæ Virginis. [195]}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Beáta Mater \* et intácta Virgo, gloriósa Regína mundi, intercéde pro nobis ad Dóminum.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+CONCEDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.

@@ -21801,3 +21801,51 @@ Sicut locútus est ad patres nostros, \* Abraham, et sémini ejus in sǽcula.
 {RUBRIC: Non dícitur Jube, domne, nec Lectio brevis, nec Adjutórium, neque Orátio Domínica: sed, facta Confessióne et Absolutióne, statim inchoántur Psalmi, qui erunt de Dominica ut in Psaltério 76, et post Psalmos immediáte dícitur Nunc dimíttis, deinde Antíphona Christus factus est cum relíquis, ut supra ad Laudes. 465}
 
 ---
+
+## Feria Sexta in Parasceve
+
+{RUBRIC: Duplex II classis}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+**Ant.** Astitérunt reges terræ, \* et príncipes convenérunt in unum advérsus Dóminum, et advérsus Christum ejus.
+
+#### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum treméore.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+{RUBRIC: † Omíttitur Glória Patri.}
+
+**Ant.** Astitérunt reges terræ, et príncipes convenérunt in unum advérsus Dóminum, et advérsus Christum ejus.
+
+**Ant.** Divisérunt sibi \* vestiménta mea, et super vestem meam misérunt sortem.
+
+#### Psalmus 21
+
+DEUS, Deus meus, réspice in me: quare me dereliquísti? \* longe a salúte mea verba delictórum meórum.

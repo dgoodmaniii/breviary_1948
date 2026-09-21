@@ -38374,7 +38374,7 @@ REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Eleuthérium Má
 
 ###### Oratio
 
-DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne clarificas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
+DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne claríficas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
 
 {RUBRIC: Et fit Commemoratio præcedentis:}
 
@@ -38468,4 +38468,50 @@ JOANNES Etrúscus, Justíno senióre imperatóre, rexit Ecclésiam; ad quem prof
 
 ###### Oratio
 
-DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne clarificas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
+DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne claríficas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
+
+{RUBRIC: Post Commemorationem Feriæ in Feria II Rogationum et in Vigília Ascensionis, fit Com. S. Joannis I Papæ et Mart.:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Joánnem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commemoratio præcedentis.}
+
+---
+
+### Die 28 Maji
+
+#### S. Augustini
+
+{RUBRIC: Episcopi et Confessoris}
+
+{RUBRIC: Duplex (m. t. v.) [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.
+
+###### Oratio
+
+DEUS, qui Anglórum gentes, prædicatióne et miráculis beáti Augustíni Confessóris tui atque Pontíficis, veræ fídei luce illustráre dignátus es: concéde; ut, ipso interveniénte, errántium corda ad veritátis tuæ rédeant unitátem, et nos in tua simus voluntáte concórdes. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Beda, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne claríficas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+AUGUSTINUS, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum sóciis mónachis fere quadragínta in Angliam missus est anno quingentésimo nonagésimo séptimo, ut gentes illas ad Christum convérteret. Erat eo témpore rex Ethelbértus, in Cántio potentíssimus, qui, audíta advéntus Augustíni causa, eum cum só-

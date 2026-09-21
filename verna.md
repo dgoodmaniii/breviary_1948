@@ -46756,4 +46756,54 @@ Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
 
 **Ant.** Læva ejus sub cápite meo, et déxtera illíus amplexábitur me. (T. P. Allelúja.)
 
-**Ant.** Nigra sum, \* sed formósa, fíliæ Jerúsalem;
+**Ant.** Nigra sum, \* sed formósa, fíliæ Jerúsalem; ídeo diléxit me Rex, et introdúxit me in cubículum suum. (T. P. Allelúja.)
+
+###### Psalmus 121
+
+LÆTATUS sum in his, quæ dicta sunt mihi: \* In domum Dómini íbimus.
+
+Stantes erant pedes nostri, \* in átriis tuis, Jerúsalem.
+
+Jerúsalem, quæ ædificátur ut cívitas: \* cujus participátio ejus in idípsum.
+
+Illuc enim ascendérunt tribus, tribus Dómini: \* testimónium Israël ad confiténdum nómini Dómini.
+
+Quia illic sedérunt sedes in judício, \* sedes super domum David.
+
+Rogáte quæ ad pacem sunt Jerúsalem: \* et abundántia diligéntibus te:
+
+Fiat pax in virtúte tua: \* et abundántia in túrribus tuis.
+
+Propter fratres meos, et próximos meos, \* loquébar pacem de te:
+
+Propter domum Dómini, Dei nostri, \* quæsívi bona tibi.
+
+**Ant.** Nigra sum, sed formósa, fíliæ Jerúsalem; ídeo diléxit me Rex, et introdúxit me in cubículum suum. (T. P. Allelúja.)
+
+**Ant.** Jam hiems tránsiit, \* imber ábiit et recéssit: surge, amíca mea, et veni. (T. P. Allelúja.)
+
+###### Psalmus 126
+
+NISI Dóminus ædificáverit domum, \* in vanum laboravérunt qui ædíficant eam.
+
+Nisi Dóminus custodíerit civitátem, \* frustra vígilat qui custódit eam.
+
+Vanum est vobis ante lucem súrgere: \* súrgite postquam sedéritis, qui manducátis panem dolóris.
+
+Cum déderit diléctis suis somnum: \* ecce heréditas Dómini fílii: merces, fructus ventris.
+
+Sicut sagíttæ in manu poténtis: \* ita fílii excussórum.
+
+Beátus vir, qui implévit desidérium suum ex ipsis: \* non confundétur cum loquétur inimícis suis in porta.
+
+**Ant.** Jam hiems tránsiit, imber ábiit et recéssit: surge, amíca mea, et veni. (T. P. Allelúja.)
+
+**Ant.** Speciósa \* facta es et suávis in delíciis tuis, sancta Dei Génitrix. (T. P. Allelúja.)
+
+###### Psalmus 147
+
+LAUDA, Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.

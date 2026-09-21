@@ -41691,3 +41691,58 @@ NOLITE timére eos, qui occídunt corpus. Nullus ígitur córporum nostrórum ca
 **3** Córpora Sanctórum \* in pace sepúlta sunt: et vivent nómina eórum in ætérnum.
 
 **4** Mártyres Dómini, \* Dóminum benedícite in ætérnum.
+
+**5** Mártyrum chorus, \* laudáte Dóminum de cælis.
+
+**Capitulum** *Sap. 3, 1-3*
+
+JUSTORUM ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+###### Hymnus
+
+SANCTORUM méritis inclyta gáudia
+Pangámus, sócii, géstaque fórtia:
+Gliscens fert ánimus prómere cántibus
+Victórum genus óptimum.
+
+Hi sunt, quos fátue mundus abhórruit;
+Hunc fructu vácuum, flóribus áridum
+Contempsére tui nóminis ásseclæ,
+Jesu, Rex bone cælitum.
+
+Hi pro te fúrias atque minas truces
+Calcárunt hóminum, sævaque vérbera:
+His cessit lácerans fórtiter úngula,
+Nec carpsit penetrália.
+
+Cæduntur gládiis more bidéntium:
+Non murmur résonat, non querimónia;
+Sed corde impávido mens bene cónscia
+Consérvat patiéntiam.
+
+Quæ vox, quæ póterit lingua retéxere,
+Quæ tu Martýribus múnera prǽparas?
+Rubri nam flúido sánguine, fúlgidis
+Cingunt témpora láureis.
+
+Te, summa o Déitas, únaque póscimus:
+Ut culpas ábigas, nóxia súbtrahas,
+Des pacem fámulis; ut tibi glóriam
+Annórum in sériem canant.
+Amen.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+{RUBRIC: Pro pluribus Martyribus Pontificibus}
+
+**1 — Oratio**
+
+BEATORUM Mártyrum paritérque Pontíficum N. et N. nos, quǽsumus, Dómine, festa tueántur: et eórum comméndet orátio veneránda. Per Dóminum.
+
+{RUBRIC: Si non fuerint Pontifices}
+
+**2 — Oratio**
+
+DEUS, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere: da nobis in ætérna

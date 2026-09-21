@@ -22174,4 +22174,16 @@ Quóniam ex omni tribulatióne eripuísti me: \* et super inimícos meos despéx
 
 #### Lectio iv
 
-PROTEXISTI me, Deus, a convéntu malignántium, a multitúdine operántium iniquitátem. Jam ipsum caput nostrum intueámur. Multi Mártyres tália passi sunt, sed nihil sic elúcet, quómodo caput Mártyrum: ibi mélius intuémur, quod illi expérti sunt. Protéctus est a multitúdine malignántium, protegénte se Deo, protegénte carnem suam ipso Fílio, et hómine, quem gerébat: quia fílius hómi-
+PROTEXISTI me, Deus, a convéntu malignántium, a multitúdine operántium iniquitátem. Jam ipsum caput nostrum intueámur. Multi Mártyres tália passi sunt, sed nihil sic elúcet, quómodo caput Mártyrum: ibi mélius intuémur, quod illi expérti sunt. Protéctus est a multitúdine malignántium, protegénte se Deo, protegénte carnem suam ipso Fílio, et hómine, quem gerébat: quia fílius hóminis est, et Fílius Dei est. Fílius Dei, propter formam Dei: fílius hóminis, propter formam servi, habens in potestáte pónere ánimam suam, et recípere eam. Quid ei potuérunt fácere inimíci? Occidérunt corpus, ánimam non occidérunt. Inténdite. Parum ergo erat, Dóminum hortári Mártyres verbo, nisi firmáret exémplo.
+
+℟. Tamquam ad latrónem exístis cum gládiis et fústibus comprehéndere me: \* Quotídie apud vos eram in templo docens, et non me tenuístis: et ecce flagellátum dúcitis ad crucifigéndum. ℣. Cumque injecíssent manus in Jesum, et tenuíssent eum, dixit ad eos. — Quotídie.
+
+#### Lectio v
+
+NOSTIS qui convéntus erat malignántium Judæórum, et quæ multitúdo erat operántium iniquitátem. Quam iniquitátem? Quia voluérunt occídere Dóminum Jesum Christum. Tanta ópera bona, inquit, osténdi vobis: propter quod horum me vultis occídere? Pértulit omnes infírmos eórum, curávit omnes lánguidos eórum, prædicávit regnum cælórum, non tácuit vítia eórum, ut ipsa pótius eis displicérent, non médicus, a quo sanabántur. His ómnibus curatiónibus ejus ingráti, tamquam multa febre phrenétici, insaniéntes in médicum, qui vénerat curáre eos, excogitavérunt consílium perdéndi eum: tamquam ibi voléntes probáre, utrum vere homo sit, qui mori possit, an áliquid super hómines sit, et mori se non permíttat. Verbum ipsórum agnóscimus in Sapiéntia Salomónis: Morte turpíssima, ínquiunt, condemnémus eum. Interrogémus eum: erit enim respéctus in sermónibus illíus. Si enim vere Fílius Dei est, líberet eum.
+
+℟. Ténebræ factæ sunt, dum crucifixíssent Jesum Judǽi: et circa horam nonam exclamávit Jesus voce magna: Deus meus, ut quid me dereliquísti? \* Et inclináto cápite, emísit spíritum. ℣. Exclámans Jesus voce magna, ait: Pater, in manus tuas comméndo spíritum meum. — Et inclináto.
+
+#### Lectio vi
+
+EXACUERUNT tamquam gládium linguas suas. Non dicant Judǽi: Non occídimus Christum. Etenim proptérea eum dedérunt júdici Piláto, ut quasi ipsi a morte ejus videréntur immúnes. Nam cum

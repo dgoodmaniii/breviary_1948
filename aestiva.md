@@ -16629,3 +16629,66 @@ Labóres mánuum tuárum quia manducábis: \* beátus es, et bene tibi erit.
 Uxor tua sicut vitis abúndans, \* in latéribus domus tuæ.
 
 Fílii tui sicut novéllæ olivárum, \* in circúitu mensæ tuæ.
+
+Ecce sic benedicétur homo, \* qui timet Dóminum.
+
+Benedícat tibi Dóminus ex Sion: \* et vídeas bona Jerúsalem ómnibus diébus vitæ tuæ.
+
+Et vídeas fílios filiórum tuórum, \* pacem super Israël.
+
+**Ant.** Veníte ad me, omnes qui laborátis et oneráti estis et ego refíciam vos.
+
+**Ant.** Fili, \* præbe mihi cor tuum et óculi tui custódiant vias meas.
+
+##### Psalmus 147
+
+LAuda, Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Fili, præbe mihi cor tuum et óculi tui custódiant vias meas.
+
+**Capitulum** *Ephes. 3, 8-9*
+
+FRatres, mihi ómnium sanctórum mínimo data est grátia hæc, in géntibus evangelizáre investigábiles divítias Christi; et illumináre omnes, quæ sit dispensátio sacraménti abscónditi a sæculis in Deo.
+
+##### Hymnus
+
+EN ut supérba críminum
+Et sæva nostrórum cohors
+Cor sauciávit ínnocens
+Meréntis haud tale Dei!
+
+Vibrántis hastam mílitis
+Peccáta nostra dírigunt,
+Ferrúmque diræ cúspidis
+Mortále crimen ácuit.
+
+Ex Corde scisso Ecclésia,
+Christo jugáta, náscitur:
+Hoc óstium arcæ in látere est
+Genti ad salútem pósitum.
+
+Ex hoc perénnis grátia,
+Ceu septifórmis flúvius,
+Stolas ut illic sórdidas
+Lavémus Agni in sánguine.
+
+Turpe est redíre ad crímina,
+Quæ Cor beátum lácerent:
+Sed æmulémur córdibus
+Flammas amóris índices.

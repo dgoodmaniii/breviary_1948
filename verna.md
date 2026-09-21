@@ -45444,4 +45444,52 @@ DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victó
 
 **2 — Oratio**
 
-EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. festivitáte gaudémus; ita piæ devo-
+EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Si fuerint plures Martyres non Virgines:}
+
+℣. Glória et honóre coronásti eas, Dómine. (T. P. Allelúja.) ℟. Et constituísti eas super ópera mánuum tuárum. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni. (T. P. Allelúja.)
+
+**3 — Oratio**
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum N. et N. palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+##### Pro Martyre tantum
+
+{RUBRIC: Capit. Confitébor. [156]}
+
+##### Pro nec Virgine nec Mart.
+
+{RUBRIC: Capit. Mulíerem. [156]}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Spécie tua et pulchritúdine tua, \* Allelúja, allelúja. Spécie. ℣. Inténde, próspere procéde, et regna. Allelúja, allelúja. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo, allelúja. ℟. Deus in médio ejus, non commovébitur, allelúja.
+
+##### Ad Sextam
+
+##### Pro Martyre tantum
+
+###### Capitulum
+
+*Eccli. 51, 4-5*
+
+LIBERASTI me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de multis tribulatiónibus quæ circumdedérunt me.
+
+##### Pro nec Virgine nec Mart.
+
+###### Capitulum
+
+*Prov. 31, 20-21*
+
+MANUM suam apéruit ínopi, et palmas suas exténdit ad páuperem. Non timébit dómui suæ a frigóribus nivis.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam

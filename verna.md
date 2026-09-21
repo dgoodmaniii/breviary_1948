@@ -26742,3 +26742,25 @@ QUOD cum ita sit, fídei nostræ veritátem in vitæ nostræ consideratióne deb
 SED ecce, si, quod promísit, mínime servávit, si ad exercénda prava ópera, ad concupiscéndas mundi pompas dilápsus est: videámus, si jam scit plángere, quod errávit. Apud misericórdem namque júdicem nec ille fallax habétur, qui ad veritátem revértitur, étiam postquam mentítur: quia omnípotens Deus, dum libénter nostram pœniténtiam súscipit, ipse suo judício hoc, quod errávimus, abscóndit.
 
 Te Deum.
+
+---
+
+## Sabbato infra Octavam Ascensionis
+
+{RUBRIC: Semiduplex 601}
+
+#### In I Nocturno
+
+De Epístola secúnda beáti Petri Apóstoli
+
+#### Lectio i
+
+*Cap. 3, 1-18*
+
+HANC ecce vobis, caríssimi, secúndam scribo epístolam, in quibus vestram éxcito in commonitióne sincéram mentem: ut mémores sitis eórum, quæ prædíxi, verbórum a sanctis Prophétis, et Apostolórum vestrórum, præceptórum Dómini et Salvatóris. Hoc primum sciéntes, quod vénient in novíssimis diébus in deceptióne illusóres, juxta próprias concupiscéntias ambulántes, dicéntes: Ubi est promíssio, aut advéntus ejus? ex quo enim patres dormiérunt, ómnia sic persevérant ab inítio creatúræ. Latet enim eos hoc voléntes, quod cæli erant prius, et terra, de aqua, et per aquam consístens Dei verbo: per quæ ille tunc mundus aqua inundátus périit. Cæli autem, qui nunc sunt, et terra eódem verbo repósiti sunt, igni reserváti in diem judícii et perditiónis impiórum hóminum.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+UNUM vero hoc non láteat vos, caríssimi, quia unus dies apud Dóminum sicut mille anni, et mille anni sicut dies unus. Non tardat Dóminus promissiónem suam, sicut quidam existimant: sed patiénter agit propter vos, nolens áliquos períre, sed omnes ad pœniténtiam revérti. Advéniet autem dies Dómini ut fur: in quo cæli magno ímpetu tránsiet, eleménta vero calóre solvéntur, terra autem, et quæ in ipsa sunt ópera, exuréntur. Cum ígitur hæc ómnia dissolvénda sint, quales opórtet vos esse in sanctis conversatiónibus et pietátibus, exspectántes et properántes in advéntum diéi Dómini, per quem cæli ardéntes solvéntur, et eleménta ignis ardóre tabéscent? Novos vero cælos et novam terram se-

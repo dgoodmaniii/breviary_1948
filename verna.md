@@ -21607,3 +21607,55 @@ Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc i
 RESPICE, quæsumus, Dómine, super hanc famíliam tuam, pro qua Dóminus noster Jesus Christus non dubitávit mánibus tradi nocéntium, et crucis subíre torméntum: sed Qui tecum {RUBRIC: dícitur sub siléntio.}
 
 {RUBRIC: Sic terminántur omnes Horæ in hoc tríduo, usque ad Nonam Sábbati sancti inclusíve. Ad Laudes tamen, finíta Oratióne, fit fragor et strépitus aliquántulum: mox profértur candéla accénsa de sub altári, et omnes surgunt, et cum siléntio discédunt.}
+
+#### Ad Horas
+
+{RUBRIC: Prima, Tertia, Sexta et Nona, hoc tríduo, dictis secréto Pater noster, Ave María et ad Primam Credo, absolúte inchoántur a Psalmis, qui erunt de Domínica, ad Primam tamen ut in Festis: quibus finítis, dícitur Antíphona Christus factus est, cum relíquis ut supra ad Laudes. 465}
+
+{RUBRIC: Et ad Primam non legítur Martyrológium, nec dicúntur cétera ómnia usque ad finem Horæ.}
+
+#### Ad Vesperas
+
+{RUBRIC: Hódie et die sequénti, dictis secréto Pater noster et Ave María, Vésperæ inchoántur absolúte a prima Antíphona sine cantu.}
+
+**Ant.** Cálicem \* salutáris accípiam, et nomen Dómini invocábo.
+
+#### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+{RUBRIC: †}
+
+**Ant.** Cálicem salutáris accípiam, et nomen Dómini invocábo.
+
+**Ant.** Cum his, \* qui odérunt pacem, eram pacíficus: dum loquébar illis, impugnábant me gratis.
+
+#### Psalmus 119
+
+AD Dóminum cum tribulárer clamávi: \* et exaudívit me.
+
+Dómine, líbera ánimam meam a lábiis iníquis, \* et a lingua dolósa.
+
+Quid detur tibi, aut quid apponátur tibi \* ad linguam dolósam?
+
+Sagíttæ poténtis acútæ, \* cum carbónibus desolatóriis.
+
+Heu mihi, quia incolátus meus prolongátus est: habitávi cum habitántibus Cedar: \* multum íncola fuit ánima mea.
+
+Cum his, qui odérunt pacem, eram pacíficus: \* cum loquébar illis, impugnábant me gratis.
+
+{RUBRIC: †}

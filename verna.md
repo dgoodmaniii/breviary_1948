@@ -30106,3 +30106,25 @@ DEUS, qui Ecclésiam tuam beáti Thomæ Confessóris tui mira eruditióne clarí
 ###### Oratio
 
 DEUS, qui beátum Joánnem, tuo amóre succénsum, inter flammas innóxium incédere fecísti, et per eum Ecclésiam tuam nova prole fecundásti: præsta, ipsíus suffragántibus méritis; ut igne caritátis tuæ vítia nostra curéntur, et remédia nobis ætérna provéniant. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Thoma, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui Ecclésiam, {RUBRIC: ut supra. 728}
+
+{RUBRIC: Deinde Commemoratio Feriæ.}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+JOANNES de Deo, ex cathólicis piísque paréntibus in óppido Montis Majóris Junióris, regni Lusitániæ, natus, quam sublímiter in sortem Dómini fúerit eléctus, insuétus splendor super ejus domo refúlgens, sonitúsque æris campáni sua sponte emíssus, ab ipso ejus nativitátis témpore non obscúre prænuntiárunt. A laxióri vivéndi ratióne, divína operánte virtúte, revocátus, magnæ sanctitátis exhibére spécimen cœpit, et ob audítam prædicatiónem verbi Dei sic ad melióra se excitátum sensit, ut jam ab ipso sanctióris vitæ rudiménto consummátum áliquid perfectúmque visus sit attigísse. Bonis ómnibus in páuperes carcéribus inclúsos erogátis, admirábilis pœniténtiæ suíque ipsíus contémptus cuncto pópulo spectáculum factus, a plerísque, ceu demens, gráviter afflíctus, in cárcerem améntibus destinátum conjícitur. At Joánnes cælésti caritáte magis incénsus, gémino atque amplo valetudinário ex piórum eleemósynis in civitáte Granaténsi exstrúcto, jactóque novi órdinis fundaménto, Ecclésiam nova prole fœcundávit fratrum Hospitalitátis, infírmis præcláro animárum corporúmque proféctu inserviéntium, et longe latéque per orbem diffusórum.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+PAUPERIBUS ægrótis, quos própriis quandóque húmeris domum deferébat, nulla re ad ánimæ corporísque salútem profícua déerat. Effúsa quoque extra nosocómium caritáte indigéntibus muliéribus víduis, et præcípue virgínibus periclitántibus clam aliménta subministrábat, curámque indeféssam adhibébat, ut

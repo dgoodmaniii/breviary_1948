@@ -36652,3 +36652,55 @@ Amen.
 ℣. In conspéctu Angelórum psallam tibi, Deus meus, allelúja. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo, allelúja.
 
 **Ad Magnif. Ant.** Princeps gloriosíssime, \* Míchaël Archángele, esto memor nostri: hic et ubíque semper precáre pro nobis Fílium Dei, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui, miro órdine, Angelórum ministéria hominúmque dispénsas: concéde propítius; ut, a quibus tibi ministrántibus in cælo semper assístitur, ab his in terra vita nostra muniátur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Sancti et justi, in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+###### Oratio
+
+DEUS, pro cujus honóre gloriósus Póntifex Stanisláus gládiis impiórum occúbuit: præsta, quǽsumus; ut omnes, qui ejus implórant auxílium, petitiónis suæ salutárem consequántur efféctum. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invitat.** Regem Archangelórum Dóminum, \* Veníte, adorémus, allelúja.
+
+{RUBRIC: Ps. 94 Veníte, exsultémus. [3]}
+
+{RUBRIC: Hymnus Te, splendor, ut supra. 943}
+
+##### In I Nocturno
+
+**Ant.** Concússum est mare, \* et contrémuit terra, ubi Archángelus Míchaël descendébat de cælo, allelúja.
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+###### Psalmus 10
+
+IN Dómino confído: quómodo dícitis ánimæ meæ: \* Tránsmigra in montem sicut passer?

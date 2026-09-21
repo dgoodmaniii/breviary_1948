@@ -34782,3 +34782,46 @@ DEUS, qui ineffábili providéntia beátum Joseph sanctíssimæ Genitrícis tuæ
 **Capitulum** *Gen. 49, 25*
 
 DEUS patris tui erit adjútor tuus, et Omnípotens benedícet tibi benedictiónibus cæli désuper.
+
+℟. br. Confitébor nómini tuo, \* Allelúja, allelúja. Confitébor. ℣. Quóniam adjútor et protéctor factus es mihi. Allelúja, allelúja. Glória Patri. Confitébor. ℣. Justus germinábit sicut lílium, allelúja. ℟. Et florébit in ætérnum ante Dóminum, allelúja.
+
+#### Oratio
+
+DEUS, qui ineffábili providéntia beátum Joseph sanctíssimæ Genitrícis tuæ sponsum elígere dignátus es: præsta, quǽsumus; ut, quem protectórem venerámur in terris, intercessórem habére mereámur in cælis: Qui vivis et regnas.
+
+### Ad Nonam
+
+**Ant.** Et ipse Jesus \* erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph, allelúja.
+
+**Capitulum** *Gen. 49, 22*
+
+FILIUS accréscens Joseph, fílius accréscens, et decórus aspéctu: fíliæ discurrérunt super murum.
+
+℟. br. Justus germinábit sicut lílium, \* Allelúja, allelúja. Justus. ℣. Et florébit in ætérnum ante Dóminum. Allelúja, allelúja. Glória. Justus. ℣. Plantátus in domo Dómini, allelúja. ℟. In átriis domus Dei nostri, allelúja.
+
+### In II Vesperis
+
+{RUBRIC: Antiphonæ de Laudibus 878; Psalmi ut in I Vesperis de Communi Apostolorum Tempore Paschali. [4]}
+
+**Capitulum** *Gen. 49, 26*
+
+BENEDICTIONES patris tui confortátæ sunt benedictiónibus patrum ejus, donec veníret Desidérium cóllium æternórum: fiant in cápite Joseph, et in vértice Nazarǽi inter fratres suos.
+
+#### Hymnus
+
+TE, Joseph, célebrent ágmina cælitum,
+Te cuncti résonent christíadum chori,
+Qui clarus méritis, junctus es ínclytæ
+Casto fœdere Vírgini.
+
+Almo cum túmidam gérmine cónjugem
+Admírans, dúbio tángeris ánxius,
+Afflátu súperi Fláminis Angelus
+Concéptum Púerum docet.
+
+Tu natum Dóminum stringis, ad éxteras
+Ægýpti prófugum tu séqueris plagas;
+Amíssum Sólymis quæris, et ínvenis,
+Miscens gáudia flétibus.
+
+Post mortem réliquos sors pia cónsecrat,

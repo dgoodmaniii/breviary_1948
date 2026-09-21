@@ -13891,3 +13891,29 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 *Cap. 6, 1-12*
 
 IN anno, quo mórtuus est rex Ozías, vidi Dóminum sedéntem super sólium excélsum et elevátum: et ea, quæ sub ipso erant, replébant templum. Séraphim stabant super illud: sex alæ uni, et sex alæ álteri: duábus velábant fáciem ejus, et duábus velábant pedes ejus, et duábus volábant. Et clamábant alter ad álterum, et dicébant: Sanctus, sanctus, sanctus, Dóminus Deus exercítuum, plena est omnis terra glória ejus. Et commóta sunt superliminária cárdinum a voce clamántis, et domus repléta est fumo.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum, et plena erat omnis terra majestáte ejus: \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud: sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+
+ET dixi: Væ mihi, quia tácui, quia vir pollútus lábiis ego sum, et in médio pópuli pollúta lábia habéntis ego hábito, et Regem Dóminum exercítuum vidi óculis meis. Et volávit ad me unus de Séraphim, et in manu ejus cálculus, quem fórcipe túlerat de altári. Et tétigit os meum, et dixit: Ecce, tétigit hoc lábia tua, et auferétur iníquitas tua, et peccátum tuum mundábitur. Et audívi vocem Dómini dicéntis: Quem mittam? et quis ibit nobis? Et dixi: Ecce ego, mitte me.
+
+℟. Benedíctus Dóminus, Deus Israël, qui facit mirabília magna solus: \* Et benedíctum nomen majestátis ejus in ætérnum. ℣. Replébitur majestáte ejus omnis terra: fiat, fiat. — Et.
+
+##### Lectio iii
+
+ET dixit: Vade, et dices pópulo huic: Audíte audiéntes, et nolíte intellígere: et vidéte visiónem, et nolíte cognóscere. Excæca cor pópuli hujus, et aures ejus aggráva, et óculos ejus claude: ne forte vídeat óculis suis, et áuribus suis áudiat, et corde suo intélligat, et convertátur, et sanem eum. Et dixi: Usquequo, Dómine? Et dixit: Donec desoléntur civitátes absque habitatóre, et domus sine hómine, et terra relinquétur desérta, et longe fáciet Dóminus hómines, et multiplicábitur quæ derelícta fúerat in médio terræ.
+
+℟. Benedícat nos Deus, Deus noster, benedícat nos Deus: \* Et métuant eum omnes fines terræ. ℣. Deus misereátur nostri, et benedícat nos Deus. — Et. Glória Patri. Et.
+
+#### In II Nocturno
+
+**Ant.** Te invocámus, \* te laudámus, te adorámus, o beáta Trínitas.
+
+##### Psalmus 46
+
+OMnes gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.

@@ -34002,3 +34002,27 @@ DEUS, qui nos beáti Geórgii Mártyris tui méritis et intercessióne lætífic
 ℣. Sancti et justi.
 
 **Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Fidélem, seráphico spíritus ardóre succénsum, in veræ fídei propagatióne martýrii palma et gloriósis miráculis decoráre dignátus es: ejus, quǽsumus, méritis et intercessióne, ita nos per grátiam tuam in fide et caritáte confírma; ut in servítio tuo fidéles usque ad mortem inveníri mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Sancti et justi
+
+℣. Pretiósa, {RUBRIC: ut supra. 848}
+
+**Oratio** Deus, qui nos, {RUBRIC: ut supra. 848}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+FIDELIS, in óppido Suéviæ Sigmarínga ex honésta Reyórum família natus, ab ineúnte ætáte singuláribus natúræ et grátiæ donis ornátus præfúlsit. Egrégiam quippe sortítus índolem, morúmque óptima imbútus discíplina, dum Fribúrgi philosophíæ et juris utriúsque láuream eméruit, in schola étiam Christi ad perfectiónis ápicem sédulo virtútum exercítio conténdere cœpit. Nobílium exínde virórum várias Európæ províncias lustrántium comes ascítus, eos ad christiánam pietátem sectándam, tam verbis quam opéribus, excitáre non déstitit. Quinímmo in eódem itínere crebris austeritátibus desidéria carnis mortificáre, ac ita seípsum régere stúduit, ut in tanta rerum vicissitúdine nullo umquam visus fúerit iræ motu perturbári. Juris prætérea et justítiæ strénuus propugnátor, post réditum in Germániam célebre sibi nomen acquisívit in advocáti múnere; in quo tamen cum fori perícula esset expértus, tutiórem ætérnæ salútis viam íngredi deliberávit, et supérna vocatióne illustrátus, paulo post órdini Seráphico inter fratres Minóres Capuccínos adscríbi pétiit.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+PIÆ petitiónis compos rédditus, mundi suíque contémptor insígnis, in ipso statim tirocínio, magísque cum solémnis professiónis vota in gáu-

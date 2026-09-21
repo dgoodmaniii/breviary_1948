@@ -26273,4 +26273,22 @@ Incipit liber Actuum Apostolórum
 
 *Cap. 1, 1-14*
 
-PRIMUM quidem sermónem feci de ómnibus, o Theóphile, quæ cœpit Jesus fácere et docére usque in diem, qua præcípiens Apóstolis per Spíritum Sanctum, quos elégit, assúmptus est: quibus et prǽbuit seípsum vivum post passiónem suam in multis arguméntis, per dies quadragínta appárens eis, et loquens de regno Dei. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris, quam audístis (inquit) per os meum: quia Joánnes quidem baptizávit aqua, vos autem baptizabímini Spíritu San-
+PRIMUM quidem sermónem feci de ómnibus, o Theóphile, quæ cœpit Jesus fácere et docére usque in diem, qua præcípiens Apóstolis per Spíritum Sanctum, quos elégit, assúmptus est: quibus et prǽbuit seípsum vivum post passiónem suam in multis arguméntis, per dies quadragínta appárens eis, et loquens de regno Dei. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris, quam audístis (inquit) per os meum: quia Joánnes quidem baptizávit aqua, vos autem baptizabímini Spíritu San-cto non post multos hos dies.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+IGITUR qui convénerant, interrogábant eum, dicéntes: Dómine, si in témpore hoc restítues regnum Israël? Dixit autem eis: Non est vestrum nosse témpora vel moménta, quæ Pater pósuit in sua potestáte: sed accipiétis virtútem superveniéntis Spíritus Sancti in vos, et éritis mihi testes in Jerúsalem, et in omni Judǽa, et Samaría, et usque ad últimum terræ. Et cum hæc dixísset, vidéntibus illis, elevátus est: et nubes suscépit eum ab óculis eórum.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.
+
+#### Lectio iii
+
+CUMQUE intueréntur in cælum eúntem illum, ecce duo viri astitérunt juxta illos in véstibus albis, qui et dixérunt: Viri Galilǽi, quid statis aspiciéntes in cælum? Hic Jesus qui assúmptus est a vobis in cælum, sic véniet, quemádmodum vidístis eum eúntem in cælum. Tunc revérsi sunt Jerosólymam a monte, qui vocátur Olivéti, qui est juxta Jerúsalem, sábbati habens iter. Et cum introíssent in cœnáculum, ascendérunt ubi manébant Petrus et Joánnes, Jacóbus et Andréas, Philíppus et Thomas, Bartholomǽus et Matthǽus, Jacóbus Alphǽi et Simon Zelótes, et Judas Jacóbi. Hi omnes erant perseverántes unanímiter in oratióne cum muliéribus, et María matre Jesu, et frátribus ejus.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+**Ant.** Exaltáre, Dómine, \* in virtúte tua: cantábimus et psallémus, allelúja.

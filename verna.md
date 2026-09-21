@@ -48049,3 +48049,39 @@ FAMULORUM tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére
 Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 
 ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Quæ Oratio dicitur ad omnes Horas.}
+
+{RUBRIC: Et fit Commemoratio de Sanctis, ut supra. [217]}
+
+##### Ad Completorium
+
+###### Capitulum
+
+*Is. 7, 14-15*
+
+ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
+
+℣. Angelus Dómini nuntiávit Maríæ. ℟. Et concépit de Spíritu Sancto.
+
+{RUBRIC: Ad Nunc dimittis Ant.} Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei. (T. P. Allelúja.)
+
+##### Ad Matutinum
+
+{RUBRIC: Feria IV et Sabbato, loco 3. Antiphonæ Post partum dicitur sequens}
+
+**Ant.** Angelus Dómini \* nuntiávit Maríæ, et concépit de Spíritu Sancto. (T. P. Allelúja.)
+
+**Absolutio.** PRECIBUS et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne, benedícere. **Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+**Lectio i** *Luc. 1, 26-38*
+
+MISSUS est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et, ingréssus Angelus ad eam, dixit: Ave, grátia plena; Dóminus tecum: benedícta tu in muliéribus. Tu autem, Dómine.
+
+℟. Missus est Gábriel Angelus ad Maríam Vírginem desponsátam Joseph, núntians ei verbum; et expavéscit Virgo de lúmine: ne tímeas, María, invenísti grátiam apud Dóminum: \* Ecce concípies et páries, et vocábitur Altíssimi Fílius. ℣. Dabit ei Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum. — Ecce.

@@ -22692,4 +22692,16 @@ Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérn
 
 ACCEDET homo ad cor altum, et exaltábitur Deus. Illi dixérunt: Quis nos vidébit? Defecérunt scrutántes scrutatiónes, consília mala. Accéssit homo ad ipsa consília, passus est se tenéri ut homo. Non enim tenerétur nisi homo, aut vidérétur nisi homo, aut cæderétur nisi homo, aut crucifigerétur aut morerétur nisi homo. Accéssit ergo homo ad illas omnes passiónes, quæ in illo nihil valérent, nisi esset homo. Sed si ille non esset homo, non liberarétur homo. Accéssit homo ad cor altum, id est, cor secrétum, objíciens aspéctibus humánis hóminem, servans intus Deum: celans formam Dei, in qua æquális est Patri, et ófferens formam servi, qua minor est Patre.
 
-℟. Recéssit pastor noster, fons aquæ vivæ, ad cujus tránsitum sol obscurátus est: \* Nam et ille captus est, qui captívum
+℟. Recéssit pastor noster, fons aquæ vivæ, ad cujus tránsitum sol obscurátus est: \* Nam et ille captus est, qui captívum tenébat primum hóminem: hódie portas mortis et seras páriter Salvátor noster disrúpit. ℣. Destrúxit quidem claustra inférni, et subvértit poténtias diáboli. — Nam et ille captus est, qui captívum tenébat primum hóminem: hódie portas mortis et seras páriter Salvátor noster disrúpit.
+
+#### Lectio v
+
+QUO perduxérunt illas scrutatiónes suas, quas perscrutántes defecérunt, ut étiam mórtuo Dómino et sepúlto, custódes pónerent ad sepúlcrum? Dixérunt enim Piláto: Sedúctor ille: hoc appellabátur nómine Dóminus Jesus Christus, ad solátium servórum suórum, quando dicúntur seductóres: ergo illi Piláto: Sedúctor ille, ínquiunt, dixit adhuc vivens: Post tres dies resúrgam. Jube ítaque custodíri sepúlcrum usque in diem tértium, ne forte véniant discípuli ejus, et furéntur eum, et dicant plebi, Surréxit a mórtuis: et erit novíssimus error pejor prióre. Ait illis Pilátus: Habétis custódiam, ite, custodíte sicut scitis. Illi autem abeúntes, muniérunt sepúlcrum, signántes lápidem cum custódibus.
+
+℟. O vos omnes, qui transítis per viam, atténdite et vidéte \* Si est dolor símilis sicut dolor meus. ℣. Atténdite, univérsi pópuli, et vidéte dolórem meum. — Si.
+
+#### Lectio vi
+
+POSUERUNT custódes mílites ad sepúlcrum. Concússa terra Dóminus resurréxit: mirácula facta sunt tália circa sepúlcrum, ut et ipsi mílites, qui custódes advénerant, testes fíerent, si vellent vera nuntiáre. Sed avarítia illa, quæ captivávit discípulum cómitem Christi, captivávit et mílitem custódem sepúlcri. Damus, ínquiunt, vobis pecúniam: et dícite quia vobis dormiéntibus venérunt discípuli ejus, et abstulérunt eum. Vere defecérunt scrutántes scrutatiónes. Quid est quod dixísti, o infélix astútia? Tantúmne déseris lucem consílii pietátis, et in profúnda versútiæ demérgeris, ut hoc dicas: Dícite quia vobis dormiéntibus venérunt discípuli ejus, et abstulérunt eum? Dormiéntes testes ádhibes: vere tu ipse obdormísti, qui scrutándo tália defecísti.
+
+℟. Ecce quómodo móritur justus, et nemo pérci-

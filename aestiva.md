@@ -2201,3 +2201,62 @@ Bonitátem, et disciplínam, et sciéntiam doce me: \* quia mandátis tuis créd
 Priúsquam humiliárer ego delíqui: \* proptérea elóquium tuum custodívi.
 
 Bonus es tu: \* et in bonitáte tua doce me justificatiónes tuas.
+
+Multiplicáta est super me iníquitas superbórum: \* ego autem in toto corde meo scrutábor mandáta tua.
+
+Coagulátum est sicut lac cor eórum: \* ego vero legem tuam meditátus sum.
+
+Bonum mihi quia humiliásti me: \* ut discam justificatiónes tuas.
+
+Bonum mihi lex oris tui, \* super míllia auri et argénti.
+
+Manus tuæ fecérunt me, et plasmavérunt me: \* da mihi intelléctum, et discam mandáta tua.
+
+Qui timent te vidébunt me, et lætabúntur: \* quia in verba tua supersperávi.
+
+Cognóvi, Dómine, quia æquitas judícia tua: \* et in veritáte tua humiliásti me.
+
+Fiat misericórdia tua ut consolétur me, \* secúndum elóquium tuum servo tuo.
+
+Véniant mihi miseratiónes tuæ, et vivam: \* quia lex tua meditátio mea est.
+
+Confundántur supérbi, quia injúste iniquitátem fecérunt in me: \* ego autem exercébor in mandátis tuis.
+
+Convertántur mihi timéntes te: \* et qui novérunt testimónia tua.
+
+Fiat cor meum immaculátum in justificatiónibus tuis, \* ut non confúndar.
+
+**Ant.** Allelúja, deduc me, Dómine, in sémitam mandatórum tuórum, allelúja, allelúja.
+
+**Capitulum** *1 Joann. 4, 16*
+
+DEUS cáritas est: et qui manet in caritáte, in Deo manet, et Deus in eo.
+
+℟. br. Inclína cor meum, Deus, \* In testimónia tua. Inclína. ℣. Avérte óculos meos, ne vídeant vanitátem: in via tua vivífica me. In testimónia tua. Glória Patri. Inclína. ℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi.
+
+{RUBRIC: Oratio convéniens. Réliqua ut in Ordinário. 18}
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+**Ant.** Allelúja.

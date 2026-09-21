@@ -1136,3 +1136,42 @@ SACROSANCTÆ et indivíduæ Trinitáti, crucifíxi Dómini nostri Jesu Christi h
 ℣. Beáta víscera Maríæ Vírginis, quæ portavérunt ætérni Patris Fílium. ℟. Et beáta úbera, quæ lactavérunt Christum Dóminum.
 
 {RUBRIC: Et dícitur secréto} Pater noster et Ave María.
+
+[IMAGE]
+
+# Psalterium Breviarii Romani
+
+### PER OMNES AC SINGULOS HEBDOMADÆ DIES DISPOSITUM
+
+## Dominica
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+Glória Patri. Sicut erat. Allelúja.
+
+{RUBRIC: In Domínica IV et réliquis Domínicis post Pentecósten occurréntibus dícitur:}
+
+**Invitat.** Dóminum, qui fecit nos, \* Veníte, adorémus. **Ps. 94** Veníte.
+
+#### Hymnus
+
+NOCTE surgéntes vigilémus omnes,
+Semper in psalmis meditémur, atque
+Voce concórdi Dómino canámus
+Dúlciter hymnos.
+
+Ut pio Regi páriter canéntes,
+Cum suis Sanctis mereámur aulam
+Ingredi cæli, simul et perénnem
+Dúcere vitam.
+
+Præstet hoc nobis Déitas beáta
+Patris, ac Nati, paritérque Sancti
+Spíritus, cujus résonat per omnem
+Glória mundum. Amen.

@@ -26783,4 +26783,14 @@ De Sermóne sancti Leónis Papæ
 
 QUOD itaque Redemptóris nostri conspícuum fuit, in sacraménta transívit: et ut fides excelléntior esset ac firmior, visióni doctrína succéssit, cujus auctoritátem supérnis illumináta rádiis credéntium corda sequeréntur. Hanc fidem ascensióne Dómini auctam, et Spíritus Sancti múnere roborátam, non víncula, non cárceres, non exsília, non fames, non ignis, non laniátus ferárum, nec exquisíta persequéntium crudelitátibus supplícia terruérunt. Pro hac fide per univérsum mundum non solum viri, sed étiam féminæ; nec tantum impúbes púeri, sed étiam téneræ vírgines usque ad effusiónem sui sánguinis decertárunt. Hæc fides dæmónia ejécit, ægritúdines depúlit, mórtuos suscitávit.
 
-℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte con-
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo.
+
+#### Lectio v
+
+UNDE et ipsi beáti Apóstoli, qui tot miráculis confirmáti, tot sermónibus erudíti, atrocitátem tamen Domínicæ passiónis expáverant, et veritátem resurrectiónis ejus non sine hæsitatióne suscéperant; tantum de ascensióne Dómini profecérunt, ut quidquid illis prius intúlerat metum, verterétur in gáudium. Totam enim contemplatiónem ánimi in divinitátem ad Patris déxteram considéntis eréxerant: nec jam corpóreæ visiónis tardabántur objéctu, quo minus in id áciem mentis inténderent, quod nec a Patre descendéndo abfúerat, nec a discípulis ascendéndo discésserat. Tunc ígitur, dilectíssimi, fílius hóminis, Dei Fílius excelléntius sacratiúsque innótuit, cum in patérnæ majestátis glóriam se recépit: et ineffábili modo cœpit esse divinitáte præséntior, qui factus est humanitáte longínquior.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum.
+
+#### Lectio vi
+
+TUNC ad æquálem Patri Fílium eruditior fides gressu mentis cœpit accédere, et contrectatióne in Christo corpóreæ substántiæ, qua Patre minor est, non egére: quóniam glorificáti córporis manénte natúra, eo fides credéntium vocabátur, ubi non carnáli manu, sed spiritáli intelléctu par Genitóri Unigénitus tangerétur. Hinc illud est, quod post resurrectiónem suam Dóminus Maríæ Magdalénæ persónam Ecclésiæ geránti, cum ad contáctum ipsíus properáret accédere, dicit: Noli me tángere, nondum enim ascéndi ad Patrem meum: hoc est, Nolo ut ad me corporáliter vénias, nec ut me sensu carnis agnóscas: ad sublimióra te díffero, majóra tibi prǽparo: cum ad Patrem ascéndero, tunc me perféctius veriúsque palpábis, apprehensúra quod non tangis, et creditúra quod non cernis.

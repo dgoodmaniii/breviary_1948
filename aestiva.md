@@ -7962,3 +7962,69 @@ Et fílii eórum usque in sæculum, \* sedébunt super sedem tuam.
 Quóniam elégit Dóminus Sion: \* elégit eam in habitatiónem sibi.
 
 Hæc réquies mea in sæculum sæculi: \* hic habitábo quóniam elégi eam.
+
+Víduam ejus benedícens benedícam: \* páuperes ejus saturábo pánibus.
+
+Sacerdótes ejus índuam salutári: \* et sancti ejus exsultatióne exsultábunt.
+
+Illuc prodúcam cornu David, \* parávi lucérnam Christo meo.
+
+Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificátio mea.
+
+**Ant.** Elégit Dóminus Sion in habitatiónem sibi.
+
+#### In Officio feriali
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BEnedictus Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+#### Hymnus
+
+CÆLI Deus sanctíssime,
+Qui lúcidas mundi plagas
+Candóre pingis ígneo,
+Augens decóro lúmine:
+
+Quarto die qui flámmeam
+Dum solis accéndis rotam,
+Lunæ minístras órdinem,
+Vagósque cursus síderum:
+
+Ut nóctibus, vel lúmini
+Diremptiónis términum,
+Primórdiis et ménsium
+Signum dares notíssimum;
+
+Expélle noctem córdium:
+Abstérge sordes méntium:
+Resólve culpæ vínculum:
+Evérte moles críminum.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Respéxit Dóminus \* humilitátem meam, et fecit in me magna, qui potens est.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dícitur totum secréto.}

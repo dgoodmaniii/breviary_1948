@@ -8878,3 +8878,105 @@ Præténde misericórdiam tuam sciéntibus te, \* et justítiam tuam his, qui re
 Non véniat mihi pes supérbiæ: \* et manus peccatóris non móveat me.
 
 Ibi cecidérunt qui operántur iniquitátem: \* expúlsi sunt, nec potuérunt stare.
+
+**Ant.** Multiplicásti, Deus, misericórdiam tuam.
+
+**Ant.** Fortitúdo mea.
+
+#### Canticum Moysis
+
+*Exodi 15, 1-19*
+
+CAntémus Dómino: glorióse enim magnificátus est, \* equum et ascensórem dejécit in mare.
+
+Fortitúdo mea, et laus mea Dóminus, \* et factus est mihi in salútem:
+
+Iste Deus meus, et glorificábo eum: \* Deus patris mei, et exaltábo eum.
+
+Dóminus quasi vir pugnátor, Omnípotens nomen ejus. \* Currus Pharaónis et exércitum ejus projécit in mare.
+
+Elécti príncipes ejus submérsi sunt in Mari Rubro: \* abýssi operuérunt eos, descendérunt in profúndum quasi lapis.
+
+Déxtera tua, Dómine, magnificáta est in fortitúdine: déxtera tua, Dómine, percússit inimícum. \* Et in multitúdine glóriæ tuæ deposuísti adversários tuos:
+
+Misísti iram tuam, quæ devorávit eos sicut stípulam. \* Et in spíritu furóris tui congregátæ sunt aquæ:
+
+Stetit unda fluens, \* congregátæ sunt abýssi in médio mari.
+
+Dixit inimícus: Pérsequar et comprehéndam, \* dívidam spólia, implébitur ánima mea:
+
+Evaginábo gládium meum, \* interfíciet eos manus mea.
+
+Flavit spíritus tuus, et opéruit eos mare: \* submérsi sunt quasi plumbum in aquis vehemméntibus.
+
+Quis símilis tui in fórtibus, Dómine? \* quis símilis tui, magníficus in sanctitáte, terríbilis atque laudábilis, fáciens mirabília?
+
+Extendísti manum tuam, et devorávit eos terra. \* Dux fuísti in misericórdia tua pópulo quem redemísti:
+
+Et portásti eum in fortitúdine tua, \* ad habitáculum sanctum tuum.
+
+Ascendérunt pópuli, et iráti sunt: \* dolóres obtinuérunt habitatóres Philísthiim.
+
+Tunc conturbáti sunt príncipes Edom, robústos Moab obtínuit tremor: \* obriguérunt omnes habitatóres Chánaan.
+
+Irruat super eos formído et pavor, \* in magnitúdine bráchii tui.
+
+Fiant immóbiles quasi lapis, donec pertránseat pópulus tuus, Dómine, \* donec pertránseat pópulus tuus iste, quem possedísti.
+
+Introdúces eos, et plantábis in monte hereditátis tuæ, \* firmíssimo habitáculo tuo quod operátus es, Dómine:
+
+Sanctuárium tuum, Dómine, quod firmavérunt manus tuæ. \* Dóminus regnábit in ætérnum et ultra.
+
+Ingréssus est enim eques Phárao cum cúrribus et equítibus ejus in mare: \* et redúxit super eos Dóminus aquas maris:
+
+Fílii autem Israël ambulavérunt per siccum \* in médio ejus.
+
+**Ant.** Fortitúdo mea, et laus mea Dóminus: et factus est mihi in salútem.
+
+**Ant.** Laudáte. †
+
+### Psalmus 146
+
+LAudáte † Dóminum quóniam bonus est psalmus: \* Deo nostro sit jucúnda, decóraque laudátio.
+
+Ædíficans Jerúsalem Dóminus: \* dispersiónes Israélis congregábit.
+
+Qui sanat contrítos corde: \* et álligat contritiónes eórum.
+
+Qui númerat multitúdinem stellárum: \* et ómnibus eis nómina vocat.
+
+Magnus Dóminus noster, et magna virtus ejus: \* et sapiéntiæ ejus non est númerus.
+
+Suscípiens mansuétos Dóminus: \* humílians autem peccatóres usque ad terram.
+
+Præcínite Dómino in confessióne: \* psállite Deo nostro in cíthara.
+
+Qui óperit cælum núbibus: \* et parat terræ plúviam.
+
+Qui prodúcit in móntibus fœnum: \* et herbam servitúti hóminum.
+
+Qui dat juméntis escam ipsórum: \* et pullis corvórum invocántibus eum.
+
+Non in fortitúdine equi voluntátem habébit: \* nec in tíbiis viri beneplácitum erit ei.
+
+Beneplácitum est Dómino super timéntes eum: \* et in eis, qui sperant super misericórdia ejus.
+
+**Ant.** Laudáte Dóminum, qui sanat contrítos corde, et álligat contritiónes eórum.
+
+#### In Officio feriali
+
+**Capit.** *Rom. 13, 12-13*
+
+NOx præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+LUX ecce surgit áurea,
+Pallens facéssat cæcitas,
+Quæ nosmet in præceps diu
+Erróre traxit dévio.
+
+Hæc lux serénum cónferat,
+Purósque nos præstet sibi:
+Nihil loquámur súbdolum:
+Volvámus obscúrum nihil.

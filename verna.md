@@ -40156,4 +40156,22 @@ SCRIPTUM est: Spíritus Dómini ornávit cælos. Ornaménta enim cælórum sunt 
 
 ###### Lectio v
 
-QUOT ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est: Verbo Dómini cæli firmáti sunt. Verbum enim Dómini Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur: Et Spíritu oris ejus omnis virtus eórum. Cælórum
+QUOT ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est: Verbo Dómini cæli firmáti sunt. Verbum enim Dómini Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur: Et Spíritu oris ejus omnis virtus eórum. Cælórum ergo virtus de Spíritu sumpta est: quia mundi hujus potestátibus contraíre non præsúmerent, nisi eos Sancti Spíritus fortitúdo solidásset. Quales namque doctóres sanctæ Ecclésiæ ante advéntum hujus Spíritus fúerint, scimus; et post advéntum illíus, cujus fortitúdinis facti sint, conspícimus.
+
+**T. P. ℟.** Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi, Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+{RUBRIC: Feria II et V infra Hebdómadam I et II post Octávam Paschæ, quóties in I Nocturno Lectiónes fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præcedéntis Responsórii de Témpore dícitur sequens}
+
+**℟.** Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+CERTE iste ipse pastor Ecclésiæ, ad cujus sacratíssimum corpus sedémus, quantæ debilitátis quantǽque formídinis ante advéntum Spíritus fúerit, ancílla ostiária requisíta dicat. Una enim mulíeris voce percúlsus, dum mori tímuit, Vitam negávit. Et pensándum, quia eum comprehénsum Petrus negávit in terra, quem suspénsum latro conféssus est in cruce. Sed vir iste tantæ formídinis qualis post advéntum Spíritus exsístat, audiámus. Fit convéntus magistrátus atque seniórum, cæsis denuntiátur Apóstolis, ne in nómine Jesu loqui débeant; Petrus magna auctoritáte respóndet: Obedíre opórtet Deo magis quam homínibus.
+
+**T. P. ℟.** Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, al-

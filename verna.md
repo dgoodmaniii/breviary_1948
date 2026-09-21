@@ -24005,4 +24005,57 @@ SED quia ad illud corpus, quod vidéri póterat, fides intuéntium dubitábat: o
 
 #### Lectio ix
 
-DIXIT eis: Pax vobis. Sicut misit me Pater, et ego mitto vos: id est, sicut misit me Pater Deus Deum, et ego mitto vos homo hómines. Pater Fílium misit, qui hunc pro redemptióne géneris humáni incarnári constítuit. Quem vidélicet in mundum veníre ad passiónem vóluit: sed tamen amávit Fílium, quem ad passiónem misit. Eléctos vero Apóstolos Dóminus non ad mundi gáudia, sed sicut
+DIXIT eis: Pax vobis. Sicut misit me Pater, et ego mitto vos: id est, sicut misit me Pater Deus Deum, et ego mitto vos homo hómines. Pater Fílium misit, qui hunc pro redemptióne géneris humáni incarnári constítuit. Quem vidélicet in mundum veníre ad passiónem vóluit: sed tamen amávit Fílium, quem ad passiónem misit. Eléctos vero Apóstolos Dóminus non ad mundi gáudia, sed sicut ipse missus est, ad passiónes in mundum mittit. Quia ergo et Fílius amátur a Patre, et tamen ad passiónem míttitur: ita et discípuli a Dómino amántur, qui tamen ad passiónem mittúntur in mundum. Itaque recte dícitur: Sicut misit me Pater, et ego mitto vos: id est, ea vos caritáte díligo, cum inter scándala persecutórum mitto, qua me caritáte Pater díligit, quem veníre ad tolerándas passiónes fecit.
+
+Te Deum laudámus.
+
+## Ad Laudes
+
+{RUBRIC: Antiphona} Allelúja {RUBRIC: cum Psalmis de Dominica 1 loco. 49}
+
+**Capit.** *1 Joann. 5, 4*
+
+CARISSIMI: Omne quod natum est ex Deo, vincit mundum: et hæc est victória, quæ vincit mundum, fides nostra.
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus ínfremit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+**Ad Bened. Ant.** Cum esset sero \* die illa una sabbatórum, et fores essent clausæ, ubi erant discípuli congregáti in unum, stetit Jesus in médio, et dixit eis: Pax vobis, allelúja.
+
+#### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui paschália festa perégimus, hæc, te largiénte, móribus et vita teneámus. Per Dóminum.
+
+{RUBRIC: Ad Horas Hymni ut in Psaltério de Ordinario, Antiphona} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério; Responsoria brevia et ad Primam etiam Lectio brevis} Si consurrexístis {RUBRIC: de Tempore}

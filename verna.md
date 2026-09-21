@@ -33940,3 +33940,65 @@ SOTER, Fundis in Campánia natus, sancívit ne sacræ vírgines vasa sacra et pa
 ---
 
 {RUBRIC: In III Nocturno Homilia in Ev. Venit Jesus, de Comm. unius vel plurium Summorum Pontificum. [33¹]}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátos Sotérem et Cajum Mártyres tuos atque Summos Pontífices, perpétua protectióne custódi; quos totíus Ecclésiæ præstitísti esse pastóres. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capit. de seq., Commem. præcedentis.}
+
+---
+
+### Die 23 Aprilis
+
+#### S. Georgii
+
+{RUBRIC: Mart. Semiduplex [74]}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+DEUS, qui nos beáti Geórgii Mártyris tui méritis et intercessióne lætíficas: concéde propítius; ut qui tua per eum benefícia póscimus, dono tuæ grátiæ consequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis}
+
+**Ant.** Sancti et justi, in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Gregem tuum, {RUBRIC: ut supra.}
+
+{RUBRIC: In III Nocturno Lectiones Quibus ego, de Communi Martyrum Tempore Paschali 2 loco. [82]}
+
+{RUBRIC: ¶ Pro hoc Festo simplificato non dicitur ix Lectio.}
+
+{RUBRIC: In III Nocturno Homilia in Ev. Ego sum vitis vera, de eodem Communi 1 loco. [77]}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 24 Aprilis
+
+#### S. Fidelis a Sigmaringa
+
+{RUBRIC: Martyris. Duplex [74]}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.

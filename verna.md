@@ -34662,4 +34662,12 @@ OMNIUM singulárium gratiárum álicui rationábili creatúræ communicatárum g
 
 #### Lectio v
 
-SI compáres eum ad totam Ecclésiam Christi, nonne iste est homo eléctus et speciális, per quem et sub quo Christus est ordináte et honéste intro-
+SI compáres eum ad totam Ecclésiam Christi, nonne iste est homo eléctus et speciális, per quem et sub quo Christus est ordináte et honéste introdúctus in mundum? Si ergo Vírgini Matri tota Ecclésia sancta débitrix est, quia per eam Christum suscípere digna facta est; sic profécto post eam huic debet grátiam et reveréntiam singulárem. Ipse enim est clavis véteris Testaménti, in qua patriarchális et prophetális dígnitas promíssum conséquitur fructum. Porro hic est solus, qui corporáliter possédit, quod eis divína dignátio repromísit. Mérito ígitur figurátur per illum patriárcham Joseph, qui pópulis fruménta servávit. Sed et hic illum præcéllit, quia non solum Ægýptiis panem corporális vitæ, sed ómnibus eléctis Panem de cælo, qui cæléstem vitam tríbuit, cum multa sollértia enutrívit.
+
+℟. Státuet fílios suos sub tégmine illíus et sub ramis ejus morábitur; protegétur sub tégmine illíus a fervóre: \* Et in glória ejus requiéscet, allelúja. ℣. Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra. — Et.
+
+#### Lectio vi
+
+PROFECTO dubitándum non est, quod Christus familiaritátem, reveréntiam atque sublimíssimam dignitátem, quam illi exhíbuit, dum ágeret in humánis, tamquam fílius patri suo, in cælis útique non negávit, quin pótius complévit et summávit. Unde non immérito in verbo propósito a Dómino subinfértur: Intra in gáudium Dómini tui. Unde, licet gáudium ætérnæ beatitúdinis in cor hóminis intret, máluit tamen Dóminus ei dícere, Intra in gáudium; ut mýstice innuátur, quod gáudium illud non solum in eo sit intra, sed úndique illum circúmdans et absórbens, et ipsum velut abýssus infiníta submérgens. Meménto ígitur nostri, beáte Joseph, et tuæ oratiónis suffrágio apud tuum putatívum Fílium intercéde; sed et beatíssimam Vírginem sponsam tuam nobis propítiam redde, quæ Mater est ejus, qui cum Patre et Spíritu Sancto vivit et regnat per infiníta sǽcula sæculórum. Amen.
+
+℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória Patri. Si exsúrgat.

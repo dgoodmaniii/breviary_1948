@@ -44947,3 +44947,51 @@ Hæc vota clemens áccipe:
 
 Qui pergis inter lília,
 Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia.
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant;
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+\* Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam. (T. P. Allelúja.)
+
+##### Pro Virgine Martyre
+
+**1 — Oratio**
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ N. Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+**2 — Alia Oratio**
+
+INDULGENTIAM nobis, quǽsumus, Dómine, beáta N. Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis et tuæ professióne virtútis. Per Dóminum.
+
+##### Pro Virgine non Martyre
+
+**3 — Oratio**
+
+EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Si fuerint plures Virgines Martyres:}
+
+℣. Adducéntur Regi Vírgines post eam. (T. P. Allelúja.) ℟. Próximæ ejus afferéntur tibi. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Prudéntes Vírgines, \* aptáte vestras lámpades: ecce Sponsus venit, exíte óbviam ei. (T. P. Allelúja.)
+
+**4 — Oratio**
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tuárum N. et N. palmas incessábili devotióne venerári: ut, quas digna mente non póssu-

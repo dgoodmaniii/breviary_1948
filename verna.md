@@ -37198,4 +37198,38 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-GREGORIUS Nazianzénus, nóbilis Cáppadox, ob singulárem divinárum Litterárum sciéntiam, Theó-
+GREGORIUS Nazianzénus, nóbilis Cáppadox, ob singulárem divinárum Litterárum sciéntiam, Theólogi cognómen consecútus, Athénis in omni disciplinárum génere una cum sancto Basílio erudítus, ad stúdia sacrárum Litterárum se convértit. Primum Sasimórum epíscopus creátus est, deínde Nazianzénam ecclésiam administrávit. Tum Constantinópolim ad eam regéndam ecclésiam accersítus, cum civitátem erróribus hǽresum purgátam ad cathólicam fidem reduxísset, quod ei ómnium amórem conciliáre debébat, multórum parávit invídiam. Itaque, cum inter epíscopos magna proptérea esset facta sedítio, sponte cedens episcopátu, illud prophétæ dictum usurpávit: Si propter me commóta est ista tempéstas, dejícite me in mare, ut vos jactári desinátis. Naziánzum revérsus, cum illi ecclésiæ Eulálium præficiéndum curásset, se totum ad oratiónem et stúdium rerum divinárum cóntulit. Egrégie multa scripsit solúta oratióne ac vérsibus, et consubstantialitátis Fílii fuit acérrimus propugnátor. Imperatóre Theodósio, ad cæléstem vitam sénio conféctus migrávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Communi Doctorum 1 loco. [107]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+**Oratio** C 3
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Gregórium minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commemor. præcedéntis ac Ss. Gordiáni et Epimáchi Mm.}
+
+---
+
+### Die 10 Maji
+
+#### S. Antonini
+
+{RUBRIC: Episcopi et Confessoris}
+
+{RUBRIC: Duplex (m. t. v.) [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.

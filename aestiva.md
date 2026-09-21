@@ -18976,4 +18976,26 @@ ITaque, si quando peccántes vidérimus, non solum non impellámus, sed et extra
 
 ##### Lectio vi
 
-SEd minátur ista tantúmmodo Deus? Útique, ínquies. Et unde, dic quǽso, tantam rem audes públice loqui, atque ex teípso ferre senténtiam? Ego quippe et ex iis quæ dixit Deus, et ex iis quæ fecit, contrárium probáre pótero. Quod si propter futúra non credis, vel saltem propter ea quæ jam facta sunt, crede. Non enim certe minæ sunt et verba tantúmmodo, quæ facta sunt et in opus ipsum exiérunt. Quis ígitur totum orbem indúcto dilúvio stagnávit, ac grave illud naufrágium, omnimodámque géneris nostri perditiónem effécit? Quis deínde fúlmina illa, télaque flammántia super terram So-
+SEd minátur ista tantúmmodo Deus? Útique, ínquies. Et unde, dic quǽso, tantam rem audes públice loqui, atque ex teípso ferre senténtiam? Ego quippe et ex iis quæ dixit Deus, et ex iis quæ fecit, contrárium probáre pótero. Quod si propter futúra non credis, vel saltem propter ea quæ jam facta sunt, crede. Non enim certe minæ sunt et verba tantúmmodo, quæ facta sunt et in opus ipsum exiérunt. Quis ígitur totum orbem indúcto dilúvio stagnávit, ac grave illud naufrágium, omnimodámque géneris nostri perditiónem effécit? Quis deínde fúlmina illa, télaque flammántia super terram Sodomórum demísit? Quis univérsum Ægýpti exércitum in mare demérsit? Quis synagógam Abíron combússit? Quis septuagínta illa míllia propter Davídis peccátum uno témporis moménto peste occídit? Nonne hæc ómnia et ália Deus illis íntulit?
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 11, 1-7*
+
+AThalía vero, mater Ochozíæ, videns mórtuum fílium suum surréxit et interfécit omne semen régium. Tollens autem Jósaba fília regis Joram, soror Ochozíæ, Joas fílium Ochozíæ, furáta est eum de médio filiórum regis qui interficiebántur, et nutrícem ejus de triclínio et abscóndit eum a fácie Athalíæ, ut non interficerétur. Erátque cum ea sex annis clam in domo Dómini; porro Athalía regnávit super terram.
+
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.
+
+##### Lectio ii
+
+ANno autem séptimo misit Jójada, et assúmens centuriónes et mílites introdúxit ad se in templum Dómini pepigítque cum eis fœdus; et adjúrans eos in domo Dómini osténdit eis fílium regis et præcépit illis dicens: Iste est sermo quem fácere debétis: tértia pars vestrum intróeat sábbato, et obsérvet excúbias domus regis; tértia autem pars sit ad portam Sur, et tértia pars sit ad portam, quæ est post habitáculum scutariórum, et custodiétis excúbias domus Messa. Duæ vero partes e vobis omnes egrediéntes sábbato custódiant excúbias domus Dómini circa regem.

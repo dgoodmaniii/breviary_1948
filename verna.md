@@ -47743,3 +47743,55 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 ###### Oratio
 
 CONCEDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio de Sanctis:}
+
+**Ant.** Sancti Dei omnes, intercédere dignémini pro nostra ómniumque salúte.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+###### Oratio
+
+PROTEGE, Dómine, pópulum tuum, et, Apostolórum tuórum Petri et Pauli et aliórum Apostolórum patrocínio confidéntem, perpétua defensióne consérva.
+
+OMNES Sancti tui, quǽsumus, Dómine, nos ubíque ádjuvent: ut, dum eórum mérita recólimus, patrocínia sentiámus: et pacem tuam nostris concéde tempóribus, et ab Ecclésia tua cunctam repélle nequítiam; iter, actus et voluntátes nostras, et ómnium famulórum tuórum, in salútis tuæ prosperitáte dispóne, benefactóribus nostris sempitérna bona retríbue, et ómnibus fidélibus defúnctis réquiem ætérnam concéde. Per Dóminum.
+
+##### Ad Completorium
+
+Ave María, ut supra.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Ps. 128} Sæpe expugnavérunt, {RUBRIC: Ps. 129} De profúndis, {RUBRIC: et Ps. 130} Dómine, non est exaltátum, {RUBRIC: ut in Vesperis Feriæ IV. 202}
+
+###### Hymnus
+
+MEMENTO, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+María, Mater grátiæ,
+Dulcis Parens cleméntiæ,
+Tu nos ab hoste prótege
+Et mortis hora súscipe.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+###### Capitulum
+
+*Eccli. 24, 24*
+
+EGO mater pulchræ dilectiónis, et timóris, et agnitiónis, et sanctæ spei.
+
+℟. Deo grátias.
+
+℣. Ora pro nobis, sancta Dei Génitrix. ℟. Ut digni efficiámur promissiónibus Christi.
+
+{RUBRIC: Ad Nunc dimittis Ant.} Sub tuum præsídium \* confúgimus, sancta Dei Génitrix: nostras deprecatiónes ne despícias in necessitátibus, sed a perículis cunctis líbera nos semper, Virgo gloriósa et benedícta.

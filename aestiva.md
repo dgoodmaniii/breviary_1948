@@ -17288,4 +17288,20 @@ ET locúti sunt viri de statióne ad Jónatham, et ad armígerum ejus, dixerúnt
 
 ##### Lectio iii
 
-ET respexérunt speculatóres Saul, qui erant Gábaa Bénjamin, et ecce multitúdo prostráta et huc illúcque diffúgiens. Et ait Saul pópulo, qui erat cum
+ET respexérunt speculatóres Saul, qui erant Gábaa Bénjamin, et ecce multitúdo prostráta et huc illúcque diffúgiens. Et ait Saul pópulo, qui erat cum eo: Requírite et vidéte quis abíerit ex nobis. Cumque requisíssent, repértum est non adésse Jónatham et armígerum ejus. Et ait Saul ad Achíam: Applica arcam Dei (erat enim ibi arca Dei in die illa cum fíliis Israël). Cumque loquerétur Saul ad sacerdótem, tumúltus magnus exórtus est in castris Philisthinórum, crescebátque paulátim et clárius resonábat. Et ait Saul ad sacerdótem: Cóntrahe manum tuam. Conclamávit ergo Saul et omnis pópulus, qui erat cum eo, et venérunt usque ad locum certáminis; et ecce versus fúerat gládius uniuscujúsque ad próximum suum, et cædes magna nimis.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória. Propter.
+
+#### In II Nocturno
+
+{RUBRIC: Ex lítteris Encýclicis Pii Papæ undécimi}
+
+##### Lectio iv
+
+QUantópere autem hujúsmodi expiatiónis seu reparatiónis necéssitas hac nostra potíssimum ætáte úrgeat, némini non maniféstum erit, qui, ut inítio díximus, hunc mundum in malígno pósitum, óculis animóque perlustráverit. Undique enim geméntium ad nos populórum clamor adscéndit, quorum príncipes vel rectóres vere adstitérunt et convenérunt in unum advérsus Dóminum et advérsus Ecclésiam ejus. At étiam doléndum, quod inter ipsos fidéles, sánguine Agni immaculáti in baptísmo ablútos, gratiáque locupletátos, tot inveniántur cujúsvis órdinis hómines, qui incredíbili rerum divinárum ignorántia laborántes et falsis doctrínis infécti, vítiis irretítam, procul a domo Patris, vitam tradúcant, quam nec veræ fídei lumen collústrat, nec futúræ spes beatitátis deléctat, nec ardor réficit fovétque caritátis, ut sedére in ténebris et in umbra mortis vere videántur.
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dóminus, pátiens et multum miséricors. — Omnibus.
+
+##### Lectio v
+
+HIsce vero malis véluti in cúmulum accédit cum eórum ignávia atque

@@ -14322,4 +14322,26 @@ FUit vir unus de Ramáthaim Sophim de monte Ephraim, et nomen ejus Elcana, fíli
 
 #### Lectio ii
 
-VEnit ergo dies, et immolávit Elcana, dedítque Phenénnæ uxóri suæ,
+VEnit ergo dies, et immolávit Elcana, dedítque Phenénnæ uxóri suæ, et cunctis fíliis ejus, et filiábus partes; Annæ autem dedit partem unam tristis, quia Annam diligébat; Dóminus autem conclúserat vulvam ejus. Affligébat quoque eam æmula ejus, et vehementer angébat, in tantum ut exprobráret quod Dóminus conclusísset vulvam ejus. Sicque faciébat per síngulos annos, cum, redeúnte témpore, ascénderent ad templum Dómini, et sic provocábat eam. Porro illa flebat, et non capiébat cibum. Dixit ergo ei Elcana vir suus: Anna, cur fles? et quare non cómedis? et quam ob rem afflígitur cor tuum? Numquid non ego mélior tibi sum quam decem fílii?
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et unxit.
+
+{RUBRIC: In Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+SUrréxit autem Anna, postquam coméderat et bíberat in Silo, et Heli sacerdóte sedénte super sellam ante postes templi Dómini. Cum esset Anna amáro ánimo, orávit ad Dóminum flens lárgiter, et votum vovit dicens: Dómine exercítuum, si respíciens víderis afflictiónem fámulæ tuæ, et recordátus mei fúeris, nec oblítus ancíllæ tuæ, dederísque servæ tuæ sexum virílem, dabo eum Dómino ómnibus diébus vitæ ejus, et novácula non ascéndet super caput ejus.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+# Feria Tertia
+
+### De libro primo Regum
+
+#### Lectio i
+
+*Cap. 1, 12-28*
+
+FActum est autem, cum illa multiplicáret preces coram Dómino, ut Heli observáret os ejus. Porro Anna loquebátur in corde suo, tantúmque lábia illíus movebántur, et vox pénitus non audiebátur. Æstimávit ergo eam Heli temuléntam dixítque ei: Usquequo ébria eris? Dígere paulísper vinum, quo mades. Respóndens Anna,

@@ -18630,4 +18630,20 @@ REspondítque rex pópulo dura, derelícto consílio seniórum quod ei déderant
 
 *Cap. 14, 5-12*
 
-DIxit autem Dóminus ad Ahíam: Ecce uxor Jeróboam ingréditur ut cónsulat te super fílio suo, qui ægrótat: hæc et hæc loquéris ei. Cum ergo illa intráret et dissimuláret se esse quæ erat, audívit Ahías sónitum pedum ejus introeúntis per óstium et ait: Ingrédere, uxor Jeróboam; quare áliam te esse
+DIxit autem Dóminus ad Ahíam: Ecce uxor Jeróboam ingréditur ut cónsulat te super fílio suo, qui ægrótat: hæc et hæc loquéris ei. Cum ergo illa intráret et dissimuláret se esse quæ erat, audívit Ahías sónitum pedum ejus introeúntis per óstium et ait: Ingrédere, uxor Jeróboam; quare áliam te esse símulas? Ego autem missus sum ad te durus núntius.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+VAde et dic Jeróboam: Hæc dicit Dóminus, Deus Israël: Quia exaltávi te de médio pópuli et dedi te ducem super pópulum meum Israël et scidi regnum domus David et dedi illud tibi, et non fuísti sicut servus meus David, qui custodívit mandáta mea et secútus est me in toto corde suo, fáciens quod plácitum esset in conspéctu meo; sed operátus es mala super omnes, qui fuérunt ante te, et fecísti tibi deos aliénos et conflátiles, ut me ad iracúndiam provocáres; me autem projecísti post corpus tuum.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+IDcírco ecce ego indúcam mala super domum Jeróboam et percútiam de Jeróboam mingéntem ad paríetem et clausum et novíssimum in Israël; et mundábo relíquias domus Jeróboam, sicut mundári solet fimus usque ad purum. Qui mórtui fúerint de Jeróboam in civitáte, cómedent eos canes; qui autem mórtui fúerint in agro, vorábunt eos aves cæli: quia Dóminus locútus est. Tu ígitur surge et vade in domum tuam, et in ipso intróitu pedum tuórum in urbem moriétur puer.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.

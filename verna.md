@@ -37717,3 +37717,39 @@ UBALDUS Eugúbii in Úmbria nóbili génere natus, a primis annis pietáte et l�
 AUXILIUM tuum nobis, Dómine, quǽsumus, placátus impénde: et intercessióne beáti Ubáldi Confessóris tui atque Pontíficis, contra omnes diáboli nequítias déxteram super nos tuæ propitiatiónis exténde. Per Dóminum.
 
 {RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 17 Maji
+
+#### S. Paschalis Baylon
+
+{RUBRIC: Conf. Duplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Paschálem Confessórem tuum mirífica erga córporis et sánguinis tui sacra mystéria dilectióne decorásti: concéde propítius; ut, quam ille ex hoc divíno convívio spíritus percépit pinguédinem, eámdem et nos percípere mereámur: Qui vivis.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Auxílium, ut supra. 980
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PASCHALIS Baylon, paupéribus piísque paréntibus in óppido Turris Formósæ, Seguntínæ diœcésis, in Aragónia natus, a téneris annis plura dedit futúræ sanctitátis indícia. Sortítus ánimam bonam ac rerum cæléstium apprime studiósam, pueritiam atque adolescéntiam in gregis custódia transégit: quam ille vivéndi ratiónem ídeo præcípue diligébat, quod humilitáti fovéndæ ac innocéntiæ conservándæ in primis útilem atque opportúnam judicáret. Erat in victu módicus, in oratióne assíduus, tantáque apud coǽvos et sócios florébat auctoritáte et grátia, ut eórum lites compónens, erróres córrigens, ignorántiam erúdiens ac desídiam éxcitans, velut ómnium parens et magíster máximo stúdio coleretur ac amarétur: beátus étiam tum a plerísque appellátus.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam, allelúja. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+QUI vero in sǽculo, terra nempe desérta et inaquósa, ádeo felíciter adoléverat, flos convállium, plantátus in domo Dómini, mirum ubíque sparsit sanctitátis odó-

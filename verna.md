@@ -20337,3 +20337,35 @@ SED ecce quia turpitúdinis suæ máculas aspéxit, lavánda ad fontem misericó
 PRÆSTA, quæsumus, omnípotens Deus: ut dígnitas conditiónis humánæ, per immoderántiam sauciáta, medicinális parsimóniæ stúdio reformétur. Per Dóminum.
 
 ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Desidério desiderávi \* hoc Pascha manducáre vobíscum, ántequam pátiar.
+
+#### Oratio
+
+ESTO, quæsumus, Dómine, propítius plebi tuæ: ut, quæ tibi non placent, respuéntes, tuórum pótius repleántur delectatiónibus mandatórum. Per Dóminum.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 11, 47-54*
+
+IN illo témpore: Collegérunt pontífices et pharisǽi concílium advérsus Jesum, et dicébant: Quid fácimus, quia hic homo multa signa facit? Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 49 in Joannem, sub finem}
+
+PONTIFICES et pharisǽi sibi consulébant: nec tamen dicébant, Credámus. Plus enim pérditi hómines cogitábant quómodo nocérent, ut pérderent, quam quómodo sibi consúlerent, ne perírent: et tamen timébant, et quasi consulébant. Dicébant enim: Quid fácimus, quia hic homo multa signa facit? Si dimíttimus eum sic, omnes credent in eum: et vénient Románi, et tollent nostrum locum et gentem. Temporália pérdere timuérunt, et vitam ætérnam non cogitavérunt, ac sic utrúmque amisérunt.
+
+℟. Deus meus es tu, ne discédas a me: \* Quóniam tribulátio próxima est, et non est qui ádjuvet. ℣. Tu autem, Dómine, elongáveris auxílium tuum a me: ad defensiónem meam áspice. — Quóniam.
+
+#### Lectio ii
+
+NAM et Románi post Dómini passiónem et glorificatiónem tulérunt eis et locum et gentem, expugnándo et transferéndo: et illud eos séquitur, quod álibi dictum est: Fílii autem regni hujus ibunt in ténebras exterióres. Hoc autem timuérunt, ne, si omnes in Christum créderent, nemo remanéret, qui advérsus Romános civitátem Dei templúmque defénderet: quóniam contra ipsum templum, et contra suas patérnas leges doctrínam Christi esse sentiébant.
+
+℟. In te jactátus sum ex útero, de ventre matris meæ Deus meus es tu, ne discédas a me: \* Quóniam tribulátio próxima est, et non est qui ádjuvet. ℣. Sal-

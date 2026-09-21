@@ -46212,4 +46212,38 @@ Et ínclyto Paráclito,
 Cui laus, potéstas, glória
 Ætérna sit per sæcula. Amen.
 
-℣. Hæc est domus Dómini fírmiter ædificáta.
+℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Zachǽe, \* festínans descénde, quia hódie in domo tua opórtet me manére. At ille festínans descéndit, et suscépit illum gaudens in domum suam. Hódie huic dómui salus a Deo facta est. (T. P. Allelúja.)
+
+{RUBRIC: In Anniversario Dedicationis Ecclesiæ:}
+
+###### Oratio
+
+DEUS, qui nobis per síngulos annos hujus sancti templi tui consecratiónis réparas diem, et sacris semper mystériis repræséntas incólumes: exáudi preces pópuli tui, et præsta; ut, quisquis hoc templum benefícia petitúrus ingréditur, cuncta se impetrásse lætétur. Per Dóminum.
+
+{RUBRIC: In ipso die Dedicationis Ecclesiæ et per Octavam, et quando varianda est Oratio, dicitur sequens}
+
+###### Oratio
+
+DEUS, qui invisibíliter ómnia cóntines, et tamen pro salúte géneris humáni signa tuæ poténtiæ visibíliter osténdis: templum hoc poténtia tuæ inhabitatiónis illústra, et concéde; ut omnes, qui huc deprecatúri convéniunt, ex quacúmque tribulatióne ad te clamáverint, consolatiónis tuæ benefícia consequántur. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+{RUBRIC: Capit. Vidi civitátem. [174]}
+
+℟. br. Domum tuam, Dómine, \* Decet sanctitúdo. Domum. ℣. In longitúdinem diérum. Decet. Glória Patri. Domum. ℣. Locus iste sanctus est, in quo orat sacérdos. ℟. Pro delíctis et peccátis pópuli.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Domum tuam, Dómine, decet sanctitúdo, \* Allelúja, allelúja. Domum. ℣. In longitúdinem diérum. Allelúja, allelúja. Glória Patri. Domum. ℣. Locus iste sanctus est, in quo orat sacérdos, allelúja. ℟. Pro delíctis et peccátis pópuli, allelúja.
+
+##### Ad Sextam
+
+###### Capitulum
+
+*Apoc. 21, 3*
+
+ET audívi vocem magnam de throno dicéntem: Ecce tabernáculum Dei cum homínibus, et habitábit cum eis; et ipsi pópulus ejus erunt, et ipse Deus cum eis erit eórum Deus.

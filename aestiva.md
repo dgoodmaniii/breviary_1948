@@ -15640,4 +15640,22 @@ IN sacerdóte Melchísedech sacrifícii Domínici sacraméntum præfigurátum vi
 
 ##### Lectio v
 
-NAM quis magis sacérdos Dei summi, quam Dóminus noster Jesus Christus? qui sacrifícium Deo Patri óbtulit; et óbtulit hoc idem, quod Melchísedech obtúlerat, id est, panem et vinum, suum scílicet corpus et sánguinem. Et circa Abraham benedíctio illa præcédens, ad nostrum pópulum pertinébat. Nam si Abraham Deo crédidit, et deputátum est ei ad justítiam; útique quisquis Deo cre-
+NAM quis magis sacérdos Dei summi, quam Dóminus noster Jesus Christus? qui sacrifícium Deo Patri óbtulit; et óbtulit hoc idem, quod Melchísedech obtúlerat, id est, panem et vinum, suum scílicet corpus et sánguinem. Et circa Abraham benedíctio illa præcédens, ad nostrum pópulum pertinébat. Nam si Abraham Deo crédidit, et deputátum est ei ad justítiam; útique quisquis Deo credit, et fide vivit, justus invenítur, et jam pridem in Abraham fidéli benedíctus et justificátus osténditur, sicut beátus Apóstolus Paulus probat, dicens: Crédidit Abraham Deo, et deputátum est ei ad justítiam. Cognóscitis ergo, quia qui ex fide sunt, hi sunt fílii Abrahæ. Próvidens autem Scriptúra, quia ex fide justíficat gentes Deus, prænuntiávit Abrahæ, quia benedicéntur in illo omnes gentes.
+
+℟. Accépit Jesus cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: \* Hoc fácite in meam commemoratiónem. ℣. Memória memor ero, et tabéscet in me ánima mea. — Hoc.
+
+##### Lectio vi
+
+UT ergo in Génesi per Melchísedech sacerdótem benedíctio circa Abraham posset rite celebrári, præcédit ante imágo sacrifícii, in pane et vino scílicet constitúta. Quam rem perfíciens et adímplens Dóminus, panem et cálicem mixtum vino óbtulit; et, qui est plenitúdo, veritátem præfigurátæ imáginis adimplévit. Sed et per Salomónem Spíritus Sanctus typum Domínici sacrifícii ante præmónstrat, immolátæ hóstiæ et panis et vini, sed et altáris et Apostolórum fáciens mentiónem: Sapiéntia, inquit, ædificávit sibi domum, et súbdidit colúmnas septem; mactávit suas hóstias, míscuit in cratére vinum suum, et parávit mensam suam. Et misit servos suos cónvocans cum excélsa prædicatióne ad cratérem, dicens: Qui est incípiens, declínet ad me. Et egéntibus sensu dixit: Veníte, édite de meis pánibus, et bíbite vinum, quod míscui vobis.
+
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 6, 56-59*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et sanguis meus vere est potus. Et réliqua.

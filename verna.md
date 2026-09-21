@@ -27267,4 +27267,24 @@ ET hæc est cáritas, ut ambulémus secúndum mandáta ejus. Hoc est enim mandá
 
 #### Lectio iii
 
-SI quis venit ad vos et hanc doctrínam non affert, nolíte recípere eum in domum, nec Ave ei dixéritis. Qui enim dicit illi Ave, commúnicat opéribus ejus malígnis. Plura habens vobis scríbere, nó-
+SI quis venit ad vos et hanc doctrínam non affert, nolíte recípere eum in domum, nec Ave ei dixéritis. Qui enim dicit illi Ave, commúnicat opéribus ejus malígnis. Plura habens vobis scríbere, nólui per chartam et atraméntum; spero enim me futúrum apud vos et os ad os loqui, ut gáudium vestrum plenum sit. Salútant te fílii soróris tuæ Eléctæ.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+Sermo sancti Gregórii Nysséni
+
+{RUBRIC: Oratio de Ascensione Domini}
+
+#### Lectio iv
+
+HODIERNAM celebritátem satis per se magnam, prophéta David majórem éfficit, dum illi gáudium e Psalmis adjúngit. Hic enim excélsus prophéta supra seípsum egrédiens, tamquam córporis ónere nihil prématur, infert se cæléstibus potestátibus, et voces eárum nobis expónit, cum in cælum redeúntem Dóminum ipsæ comitántes, Angelis, qui versántur in terris, quibúsque in humánam vitam ingréssus commíssus est, ímperant ad hunc modum: Tóllite portas, príncipes, vestras, et elevámini, portæ æternáles, et introíbit Rex glóriæ.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo.
+
+#### Lectio v
+
+ET quóniam ubicúmque fúerit ille, qui in seípso ómnia cóntinet, pro suscipiéntium captu seípsum dimetítur (neque enim solum inter hómines homo fit, verum étiam dum inter Angelos versátur, ad illórum vocem sese demíttit) idcírco janitóres intérrogant: Quis est iste Rex glóriæ? Respóndent ipsis, demonstrántque fortem et poténtem in prǽlio, qui pugnatúrus erat contra illum, qui natúram humánam in servitúte captívam detinébat, et eversúrus eum, qui mortis habébat impérium: ut gravíssimo hoste superáto, genus hóminum in libertátem et pacem vindicáret.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego

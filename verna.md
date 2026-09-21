@@ -38234,4 +38234,46 @@ GREGORIUS Papa séptimus, ántea Hildebrándus, Suánæ in Etrúria natus, doctr
 
 ###### Lectio ix
 
-URBANUS Románus, Alexándro Sevéro imperatóre, doctrína et vitæ sanctitáte multos ad Christi fidem convértit; in illis Valeriánum, beátæ Cæcíliæ sponsum, et Tibúrtium, Valeriáni fratrem, qui póstea martýrium forti ánimo subiérunt. Hic de bonis Ecclésiæ attribútis scripsit his verbis: Ipsæ res fidélium, quæ Dómino
+URBANUS Románus, Alexándro Sevéro imperatóre, doctrína et vitæ sanctitáte multos ad Christi fidem convértit; in illis Valeriánum, beátæ Cæcíliæ sponsum, et Tibúrtium, Valeriáni fratrem, qui póstea martýrium forti ánimo subiérunt. Hic de bonis Ecclésiæ attribútis scripsit his verbis: Ipsæ res fidélium, quæ Dómino offerúntur, non debent in álios usus quam ecclesiásticos et christianórum fratrum, vel indigéntium, convérti; quia vota sunt fidélium, et prétia peccatórum, ac patrimónia páuperum. Sedit annos sex, menses septem, dies quátuor: ac martýrio coronátus, sepúltus est in cœmetério Prætextáti, octávo Kaléndas Júnii. Ordinatiónibus quinque hábitis mense Decémbri, creávit presbýteros novem, diáconos quinque, epíscopos per divérsa loca octo.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+DEUS, in te sperántium fortitúdo, qui beátum Gregórium Confessórem tuum atque Pontíficem, pro tuénda Ecclésiæ libertáte, virtúte constántiæ roborásti: da nobis, ejus exémplo et intercessióne, ómnia adversántia fórtiter superáre. Per Dóminum.
+
+{RUBRIC: Post Commemorationem Feriæ in Feria II Rogationum et in Vigília Ascensionis, fit Commemoratio S. Urbani I Papæ et Mart.:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Urbánum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de seq., Commem. præc. ac S. Eleutherii Papæ et Mart.}
+
+---
+
+### Die 26 Maji
+
+#### S. Philippi Nerii
+
+{RUBRIC: Conf. Duplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Philíppum Confessórem tuum Sanctórum tuórum glória sublimásti: concéde propítius; ut, cujus solemnitáte lætámur, ejus virtútum proficiámus exémplo. Per Dóminum.
+
+{RUBRIC: Post Commemorationem Feriæ in Feria II Rogationum et in Vigília Ascensionis,}

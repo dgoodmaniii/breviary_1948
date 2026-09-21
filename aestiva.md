@@ -14032,4 +14032,48 @@ SI enim, sicut est Patris, et Fílii, et Spíritus Sancti una substántia, sic e
 
 PER hanc unitátem naturálem totus Pater in Fílio et Spíritu Sancto est, totus Fílius in Patre et Spíritu Sancto est, totus quoque Spíritus Sanctus in Patre et Fílio. Nullus horum extra quémlibet ipsórum est: quia nemo álium aut præcédit æternitáte, aut excédit magnitúdine, aut súperat potestáte: quia nec Fílio nec Spíritu Sancto, quantum ad natúræ divínæ unitátem pértinet, aut antérior aut major Pater est; nec Fílii æternitas atque imménsitas, velut antérior aut major, Spíritus Sancti immensitátem æternitátemque aut præcédere aut excédere naturáliter potest.
 
-℟. Magnus Dóminus, et laudábilis nimis: \* Et sa-
+℟. Magnus Dóminus, et laudábilis nimis: \* Et sapiéntiæ ejus non est númerus. ℣. Magnus Dóminus, et magna virtus ejus: et sapiéntiæ ejus non est finis. — Et sapiéntiæ. Glória Patri. Et sapiéntiæ.
+
+#### In III Nocturno
+
+**Ant.** Cáritas \* Pater est, grátia Fílius, communicátio Spíritus Sanctus, o beáta Trínitas.
+
+##### Psalmus 95
+
+CAntáte Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+**Ant.** Cáritas Pater est, grátia Fílius, communicátio Spíritus Sanctus, o beáta Trínitas.
+
+**Ant.** Verax est \* Pater, véritas Fílius, véritas Spíritus Sanctus, o beáta Trínitas.
+
+##### Psalmus 96
+
+DOminus regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.

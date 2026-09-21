@@ -32170,4 +32170,48 @@ PRÆDICATIONI verbi Dei sédulo incúmbens, Itáliam fere univérsam lustrávit;
 
 ###### Lectio vi
 
-CUM Callístus tértius, ipso potíssimum deprecánte, cruce signátos míttere decrevísset, Joánnes per Pannóniam aliásque províncias volitávit, qua verbo, qua lítteris príncipum ánimos ita ad bellum accéndit, ut brevi míllia Christianórum septuagínta conscrípta sint. Ejus consílio et virtúte potíssimum Taurunénsis victória reláta est, centum ac vigínti Turcárum míllibus partim cǽsis, partim fugátis. Cujus victóriæ cum Romam núntius venísset octávo Idus Augústi, idem Callístus ejus diéi memóriæ solémnia Transfiguratiónis Christi Dómini perpétuo consecrávit. Lethali morbo ægrótum et Villácum delátum viri príncipes plures visitárunt; quos ipse ad tuéndam religiónem hortátus, ánimam Deo sancte réddidit anno salútis millésimo quadringentésimo quinquagésimo sexto. Ejus
+CUM Callístus tértius, ipso potíssimum deprecánte, cruce signátos míttere decrevísset, Joánnes per Pannóniam aliásque províncias volitávit, qua verbo, qua lítteris príncipum ánimos ita ad bellum accéndit, ut brevi míllia Christianórum septuagínta conscrípta sint. Ejus consílio et virtúte potíssimum Taurunénsis victória reláta est, centum ac vigínti Turcárum míllibus partim cǽsis, partim fugátis. Cujus victóriæ cum Romam núntius venísset octávo Idus Augústi, idem Callístus ejus diéi memóriæ solémnia Transfiguratiónis Christi Dómini perpétuo consecrávit. Lethali morbo ægrótum et Villácum delátum viri príncipes plures visitárunt; quos ipse ad tuéndam religiónem hortátus, ánimam Deo sancte réddidit anno salútis millésimo quadringentésimo quinquagésimo sexto. Ejus glóriam post mortem Deus multis miráculis confirmávit: quibus rite probátis, Alexánder octávus anno millésimo sexcentésimo nonagésimo Joánnem in Sanctórum númerum rétulit; ejúsque Offícium ac Missam Leo décimus tértius, áltero ab ejus canonizatióne sǽculo, ad univérsam exténdit Ecclésiam.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia te vidi. Glória Patri. Quia te vidi.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 9, 1-6*
+
+IN illo témpore: Convocátis Jesus duódecim Apóstolis, dedit illis virtútem et potestátem super ómnia dæmónia, et ut languóres curárent. Et réliqua.
+
+Homilía sancti Bonaventúræ Epíscopi
+
+{RUBRIC: Expositio in cap. 9 Lucæ}
+
+APOSTOLI ídeo nomináti sunt, ut eórum commendarétur auctóritas. Apóstolus enim missus interpretátur: missi autem fuérunt ad prædicándum, secúndum illud: Non misit me Christus baptizáre, sed evangelizáre. Fuérunt ad prædicándum missi, non rem parvam, sed magnam, scílicet regnum Dei, per quod potest intélligi doctrína veritátis, juxta illud: Auferétur a vobis regnum Dei, et dábitur genti faciénti fructus ejus. Potest étiam dici grátia Spíritus Sancti, secúndum illud: Non est regnum Dei esca et potus, sed justítia, et pax, et gáudium in Spíritu Sancto; et infra: Ecce regnum Dei intra vos est. Potest étiam dici glória ætérna, juxta illud: Amen dico vobis, nisi quis renátus fúerit ex aqua et Spíritu Sancto, non potest introíre in regnum Dei.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+###### Lectio viii
+
+OMNIBUS his modis Apóstoli sunt missi prædicáre regnum Dei, scílicet veram doctrínam, divínam grátiam, et ætérnam glóriam. Et quia propter auctoritátem prædicatiónis concésserat potestátem curatiónis, ídeo subdit: Et sanáre infírmos; scílicet misit ad confirmatiónem veritátis prædicátæ secúndum illud: Illi autem proféctí, prædicavérunt ubíque, Dómino cooperánte et sermónem confirmánte sequéntibus signis. Unde signum missiónis spirituális ad prædicándum est sanátio audiéntium a morbis vitiórum.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et vos. Glória Patri. Et vos.
+
+{RUBRIC: IX Lectio de Homilia Feriæ. Sicubi vero extra Quadragesimam celebretur:}
+
+###### Lectio ix
+
+TRIA autem sunt signa evidéntia, quibus probátur utrum prædicátor a Dómino sit missus ad Evangélium prædicándum. Primum est auctóritas mitténtis, cujúsmodi est Pontíficis, et máxime Pontíficis summi, qui est loco Petri, immo Jesu Christi; unde qui ab eo míttitur, a Christo míttitur. Secúndum est zelus animárum in persóna quæ míttitur, quando scílicet principáliter quærit Dei honórem et animárum salútem. Tértium est fructificátio et convérsio audítórum. Per primum sunt núntii Patris, per secúndum Fílii, per tértium Spíritus Sancti. De primo: Pro pátribus tuis nati sunt tibi fílii. De secúndo: Non enim nosmetípsos prædicámus, sed Jesum Christum Dóminum nostrum. De tértio: Pósui vos ut eátis, et fructum afferátis, et fructus vester máneat. Et qui sic míttitur, potest dícere illud: Spíritus Dómini super me, eo quod únxerit me.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEUS, qui per beátum Joánnem fidéles tuos in virtúte sanctíssimi nóminis Jesu de crucis ini-

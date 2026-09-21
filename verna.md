@@ -19804,3 +19804,23 @@ IN illo témpore: Erat quidam languens Lázarus a Bethánia, de castéllo Marí�
 IN superióri lectióne memínistis, quod Dóminus éxiit de mánibus eórum, qui lapidáre illum volúerant, et discéssit trans Jordánem, ubi Joánnes baptizábat. Ibi ergo Dómino constitúto, infirmabátur in Bethánia Lázarus: quod castéllum erat próximum Jerosólymis. María autem erat, quæ unxit Dóminum unguénto, et extérsit pedes ejus capíllis suis, cujus frater Lázarus infirmabátur. Misérunt ergo soróres ejus ad eum. Jam intellígimus, quo misérunt, ubi erat Jesus: quóniam absens erat, trans Jordánem scílicet. Misérunt ad Dóminum, nuntiántes quod ægrotáret frater eárum, ut si dignarétur, veníret, et eum ab ægritúdine liberáret. Ille dístulit sanáre, ut posset resuscitáre.
 
 ℟. In mari viæ tuæ, et sémitæ tuæ in aquis multis: \* Deduxísti sicut oves pópulum tuum in manu Móysi et Aaron. ℣. Transtulísti illos per Mare Rubrum, et transvexísti eos per aquam nímiam. — Deduxísti.
+
+#### Lectio ii
+
+QUID ergo nuntiavérunt soróres ejus? Dómine, ecce quem amas, infirmátur. Non dixérunt, Veni: amánti enim tantúmmodo nuntiándum fuit. Non ausæ sunt dícere, Veni, et sana; non ausæ sunt dícere, Ibi jube, et hic fiet. Cur enim non et istæ, si fides illíus centurióni inde laudátur? Ait enim: Non sum dignus ut intres sub tectum meum; sed tantum dic verbo, et sanábitur puer meus. Nihil horum istæ, sed tantúmmodo: Dómine, ecce quem amas, infirmátur. Súfficit ut nóveris: non enim amas, et déseris.
+
+℟. Qui persequebántur pópulum tuum, Dómine, demersísti eos in profúndum: \* Et in colúmna nubis ductor eórum fuísti. ℣. Deduxísti sicut oves pópulum tuum in manu Móysi et Aaron. — Et.
+
+#### Lectio iii
+
+DICIT áliquis: Quómodo per Lázarum peccátor significabátur, et a Dómino sic amabátur? Audiat eum dicéntem: Non veni vocáre justos, sed peccatóres. Si enim peccatóres Deus non amáret, de cælo ad terram non descénderet. Audiens autem Jesus, dixit eis: Infírmitas hæc non est ad mortem, sed pro glória Dei, ut glorificétur Fílius Dei. Talis glorificátio ipsíus non ipsum auxit, sed nobis prófuit. Hoc est ergo quod ait, Non est ad mortem: quia et ipsa mors non erat ad mortem, sed pótius ad miráculum: quo facto créderent hómines in Christum, et vitárent veram mortem. Sane vidéte quemádmodum tamquam ex oblíquo Dóminus Deum se dixit: propter quosdam qui negant Fílium Dei Deum esse.
+
+℟. Móyses fámulus Dei jejunávit quadragínta diébus et quadragínta nóctibus: \* Ut legem Dómini mererétur accípere. ℣. Ascéndens Móyses in montem Sínai ad Dóminum, fuit ibi quadragínta diébus et quadragínta nóctibus. — Ut. Glória. Ut.
+
+℣. Angelis suis, ut supra.
+
+**Ad Bened. Ant.** Lázarus amícus noster \* dormit: eámus, et a somno excitémus eum.
+
+#### Oratio
+
+DEUS, qui ineffabílibus mundum rénovas sacraméntis: præsta, quæsumus; ut Ecclésia tua et ætérnis profíciat institútis, et temporálibus non destituátur auxíliis. Per Dóminum.

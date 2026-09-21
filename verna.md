@@ -40271,3 +40271,37 @@ Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus: \* quóniam 
 **T. P. Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
 
 ℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Custodiébant testimónia ejus, et præcépta ejus.
+
+℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+**Lectio vii** *Cap. 19, 27-29*
+
+IN illo témpore: Dixit Petrus ad Jesum: Ecce nos relíquimus ómnia, et secúti sumus te: quid ergo erit nobis? Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Lib. 3 in Matth. cap. 19}
+
+GRANDIS fidúcia! Petrus piscátor erat, dives non fúerat, cibos manu et arte quærébat; et tamen lóquitur confidénter: Relíquimus ómnia. Et quia non súfficit tantum relínquere, jungit quod perféctum est: Et secúti sumus te. Fécimus quod jussísti: quid ígitur nobis dabis præmii? Jesus autem dixit illis: Amen, dico vobis, quod vos, qui secúti estis me, in regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ, sedébitis et vos super sedes duódecim, judicántes duódecim tribus Israël. Non dixit: Qui reliquístis ómnia; hoc enim et Crates fecit philósophus, et multi álii divítias contempsérunt: sed, Qui secúti estis me; quod próprie Apostolórum est atque credéntium.
+
+**T. P. ℟.** Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Feria III et VI infra Hebdómadam I et II post Octávam Paschæ, quóties in I Nocturno Lectiónes fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præcedéntis Responsórii de Témpore dícitur sequens}
+
+**℟.** Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Isti sunt, qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+**Bened.** Cujus *vel* Quorum festum cólimus, ipse *vel* ipsi.

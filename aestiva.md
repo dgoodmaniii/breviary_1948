@@ -17696,4 +17696,26 @@ VEnit autem David in Nobe ad Achímelech sacerdótem. Et obstúpuit Achímelech 
 
 ##### Lectio ii
 
-ET respóndens sacérdos ad David ait illi: Non hábeo láicos panes ad manum, sed tantum panem sanctum; si mundi sunt púeri máxime a muliéribus? Et respóndit David sacerdóti et dixit ei: Equidem, si de muliéribus ágitur, continúimus nos ab heri et nudiustértius, quando egrediebámur, et fuérunt vasa puerórum sancta. Porro via hæc pollúta est, sed et ipsa hódie sanctificábitur in vasis. Dedit ergo ei sacérdos sanctificátum panem; neque enim erat ibi panis, nisi tantum panes propositiónis qui subláti fúerant
+ET respóndens sacérdos ad David ait illi: Non hábeo láicos panes ad manum, sed tantum panem sanctum; si mundi sunt púeri máxime a muliéribus? Et respóndit David sacerdóti et dixit ei: Equidem, si de muliéribus ágitur, continúimus nos ab heri et nudiustértius, quando egrediebámur, et fuérunt vasa puerórum sancta. Porro via hæc pollúta est, sed et ipsa hódie sanctificábitur in vasis. Dedit ergo ei sacérdos sanctificátum panem; neque enim erat ibi panis, nisi tantum panes propositiónis qui subláti fúerant a fácie Dómini, ut poneréntur panes cálidi.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+ERat autem ibi vir quidam de servis Saul in die illa intus in tabernáculo Dómini, et nomen ejus Doeg Idumǽus potentíssimus pastórum Saul. Dixit autem David ad Achímelech: Si habes hic ad manum hastam aut gládium? quia gládium meum et arma mea non tuli mecum; sermo enim regis urgébat. Et dixit sacérdos: Ecce hic gládius Góliath Philisthǽi, quem percussísti in Valle terebínthi: est involútus pállio post ephod. Si istum vis tóllere, tolle, neque enim hic est álius absque eo. Et ait David: Non est huic alter símilis, da mihi eum.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Montes Gélboe, \* nec ros nec plúvia véniant super vos: quia in te abjéctus est clýpeus fórtium, clýpeus Saul, quasi non esset unctus óleo. Quómodo cecidérunt fortes in bello? Jónathas in excélsis interféctus est: Saul et Jónathas, amábiles et decóri valde in vita sua, in morte quoque non sunt divísi.
+
+### Oratio
+
+DEus, qui diligéntibus te bona invisibília præparásti: infúnde córdibus nostris tui amóris afféctum; ut te in ómnibus et super ómnia diligéntes, promissiónes tuas, quæ omne desidérium súperant, consequámur. Per Dóminum.

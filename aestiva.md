@@ -15123,3 +15123,21 @@ UT autem prædícta quinta féria, et per Octávas sequéntes, ejus salutáris i
 *Cap. 6, 56-59*
 
 IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus et sanguis meus vere est potus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tractatus 27 in Joánnem}
+
+VErba Dómini ex Evangélio, quæ sermónem prístinum consequúntur, audívimus. Hinc sermo debétur áuribus et méntibus vestris, et hodiérna die non importúnus est: est enim de córpore Dómini, quod dicébat se dare ad manducándum propter ætérnam vitam. Expósuit autem modum attributiónis hujus et doni sui, quómodo daret carnem suam manducáre, dicens: Qui mandúcat carnem meam et bibit sánguinem meum, in me manet, et ego in illo. Signum, quia manducávit et bibit, hoc est: si manet, et manétur; si hábitat, et inhabitátur; si hæret, ut non deserátur.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In.
+
+##### Lectio viii
+
+HOC ergo nos dócuit et admónuit mýsticis verbis, ut simus in ejus córpore sub ipso cápite in membris ejus, edéntes carnem ejus, non relinquéntes unitátem ejus. Sed qui áderant, plures non intelligéndo scandalizáti sunt; non enim cogitábant, hæc audiéndo, nisi carnem, quod ipsi erant. Apóstolus autem dicit, et verum dicit: Sápere secúndum carnem, mors est. Carnem suam dat nobis Dóminus manducáre: et sápere secúndum carnem, mors est. Cum de carne sua dicat, quia ibi est vita ætérna; ergo nec carnem debémus sápere secúndum carnem, sicut in his verbis: Multi ítaque audiéntes, non ex inimícis, sed ex discípulis ejus, dixérunt: Durus est hic sermo, et quis potest eum audíre?
+
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me. ℣. Cibávit illum Dóminus pane vitæ et intelléctus. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+SI discípuli durum habuérunt istum sermónem, quid inimíci? Et tamen sic oportébat, ut dicerétur, quod non ab ómnibus intelligerétur. Secrétum Dei inténtos debet fácere, non advérsos: isti autem cito defecérunt, tália loquénte Dómino Jesu Christo. Non credidérunt

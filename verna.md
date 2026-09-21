@@ -40305,3 +40305,21 @@ GRANDIS fidúcia! Petrus piscátor erat, dives non fúerat, cibos manu et arte q
 **℟.** Isti sunt, qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
 
 **Bened.** Cujus *vel* Quorum festum cólimus, ipse *vel* ipsi.
+
+###### Lectio viii
+
+IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quando et mórtui de corruptióne resúrgent incorrúpti), sedébitis et vos in sóliis judicántium, condemnántes duódecim tribus Israël; quia, vobis credéntibus, illi crédere noluérunt. Et omnis, qui relíquerit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum, accípiet et vitam ætérnam possidébit. Locus iste cum illa senténtia cóngruit, in qua Salvátor lóquitur: Non veni pacem míttere, sed gládium. Veni enim separáre hóminem a patre suo, et matrem a fília, et nurum a socru: et inimíci hóminis doméstici ejus. Qui ergo, propter fidem Christi et prædicatiónem Evangélii, omnes afféctus contémpserint atque divítias et sæculi voluptátes: isti céntuplum recípient, et vitam ætérnam possidébunt.
+
+**T. P. ℟.** Cándidi facti sunt Nazaræi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+**Bened.** Ad societátem.
+
+###### Lectio ix
+
+EX occasióne hujus senténtiæ quidam introdúcunt mille annos post resurrectiónem, dicéntes, tunc nobis céntuplum ómnium rerum quas dimísimus, et vitam ætérnam esse reddéndam; non intelligéntes, quod, si in céteris digna sit repromíssio, in uxóribus appáreat turpitúdo, ut, qui unam pro Dómino dimíserit, centum recípiat in futúro. Sensus ergo iste est: Qui carnália pro Salvatóre dimíserit, spirituália recípiet; quæ comparatióne et mérito sui ita erunt, quasi si parvo número centenárius númerus comparétur.
+
+{RUBRIC: Te Deum laudámus.}

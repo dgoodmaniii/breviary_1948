@@ -18116,4 +18116,32 @@ POst quadragínta autem annos, dixit Absalom ad regem David: Vadam et reddam vot
 
 *Cap. 15, 13-20*
 
-VEnit ígitur núntius ad David dicens: Toto corde univérsus Israël séquitur Absalom. Et ait David servis suis qui erant cum eo in Jerúsalem: Súrgite, fugiámus; neque enim erit nobis effúgium a fácie Absalom. Festináte égredi, ne forte véniens óccupet nos et impéllat super nos ruínam et percútiat civitátem in ore gládii. Dixerúntque servi
+VEnit ígitur núntius ad David dicens: Toto corde univérsus Israël séquitur Absalom. Et ait David servis suis qui erant cum eo in Jerúsalem: Súrgite, fugiámus; neque enim erit nobis effúgium a fácie Absalom. Festináte égredi, ne forte véniens óccupet nos et impéllat super nos ruínam et percútiat civitátem in ore gládii. Dixerúntque servi regis ad eum: Omnia, quæcúmque præcéperit dóminus noster rex, libénter exsequémur servi tui.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+EGréssus est ergo rex et univérsa domus ejus pédibus suis; et derelíquit rex decem mulíeres concubínas ad custodiéndam domum. Egressúsque rex et omnis Israël pédibus suis stetit procul a domo. Et univérsi servi ejus ambulábant juxta eum; et legiónes Ceréthi et Phelethi et omnes Gethǽi pugnatóres válidi sexcénti viri, qui secúti eum fúerant de Geth, pédites præcedébant regem.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et unxit me.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+DIxit autem rex ad Ethái Gethǽum: Cur venis nobíscum? Revértere et hábita cum rege, quia peregrínus es et egréssus es de loco tuo. Heri venísti et hódie compelléris nobíscum égredi? Ego autem vadam quo itúrus sum; revértere et reduc tecum fratres tuos, et Dóminus fáciet tecum misericórdiam et veritátem, quia ostendísti grátiam et fidem.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 16, 5-12*
+
+VEnit ergo rex David usque Bahúrim, et ecce egrediebátur inde vir de cognatióne domus Saul nómine Sémei, fílius Gera; procedebátque egrédiens et maledicébat, mittebátque lápides contra David et contra univérsos servos regis David. Omnis autem pópulus et univérsi bellatóres a dextro et a sinístro

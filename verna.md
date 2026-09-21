@@ -19347,4 +19347,53 @@ ADDUCUNT autem illi scribæ et pharisǽi mulíerem in adultério deprehénsam, e
 
 #### Lectio iii
 
-INTELLIGAMUS, fratres, admirábilem mansuetúdinem in Dómino fuísse. Animadvertérunt eum nímium esse mitem, nímium esse mansuétum. De illo quippe fúerat ante prædíctum: Accíngere gládio tuo circa femur tuum, potentíssime. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna: propter veritátem, et mansuetúdinem, et justítiam. Ergo áttulit veritátem ut doctor, mansuetúdinem ut liberátor, justítiam ut cógnitor. Propter hæc eum esse regnatúrum in Spíritu Sancto prophéta prædíxerat. Cum loquerétur, véritas agnoscebátur: cum advérsus
+INTELLIGAMUS, fratres, admirábilem mansuetúdinem in Dómino fuísse. Animadvertérunt eum nímium esse mitem, nímium esse mansuétum. De illo quippe fúerat ante prædíctum: Accíngere gládio tuo circa femur tuum, potentíssime. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna: propter veritátem, et mansuetúdinem, et justítiam. Ergo áttulit veritátem ut doctor, mansuetúdinem ut liberátor, justítiam ut cógnitor. Propter hæc eum esse regnatúrum in Spíritu Sancto prophéta prædíxerat. Cum loquerétur, véritas agnoscebátur: cum advérsus inimícos non moverétur, mansuetúdo laudabátur. Cum ergo de duóbus istis, id est, de veritáte et mansuetúdine ejus, inimíci livóre et invídia torqueréntur; in tértio, id est justítia, scándalum posuérunt.
+
+℟. Lamentabátur Jacob de duóbus fíliis suis: Heu me, dolens sum de Joseph pérdito, et tristis nimis de Bénjamin ducto pro alimóniis: \* Precor cæléstem Regem, ut me doléntem nímium fáciat eos cérnere. ℣. Prostérnens se Jacob veheménter cum lácrimis pronus in terram, et adórans ait. — Precor. Glória Patri. Precor.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Inclinávit se Jesus, \* et scribébat in terra: Si quis sine peccáto est, mittat in eam lápidem.
+
+#### Oratio
+
+PRÆSTA, quæsumus, omnípotens Deus: ut, qui se, affligéndo carnem, ab aliméntis ábstinent; sectándo justítiam a culpa jejúnent. Per Dóminum.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sabbato, ut in Psalterio. 332}
+
+**Capitulum** *Gal. 4, 22-24*
+
+FRATRES: Scriptum est quóniam Abraham duos fílios hábuit: unum de ancílla, et unum de líbera: sed qui de ancílla, secúndum carnem natus est: qui autem de líbera, per repromissiónem: quæ sunt per allegoríam dicta.
+
+#### Hymnus
+
+AUDI, benígne Cónditor,
+Nostras preces cum flétibus
+In hoc sacro jejúnio
+Fusas quadragenário.
+
+Scrutátor alme córdium,
+Infírma tu scis vírium:
+Ad te revérsis éxhibe
+Remissiónis grátiam.
+
+Multum quidem peccávimus,
+Sed parce confiténtibus:
+Ad nóminis laudem tui
+Confer medélam lánguidis.
+
+Concéde nostrum cónteri
+Corpus per abstinéntiam;
+Culpæ ut relínquant pábulum
+Jejúna corda críminum.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Præsta, beáta Trínitas,
+Concéde, simplex Unitas;
+Ut fructuósa sint tuis
+Jejuniórum múnera. Amen.
+
+℣. Angelis suis Deus, ut supra.

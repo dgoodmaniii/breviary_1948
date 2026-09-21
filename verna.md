@@ -41608,4 +41608,34 @@ CERTE, cum se sequéntibus nova mandáta propóneret, dixit: Nisi quis renuntiá
 
 ###### Lectio ix
 
-AD se autem nobis veniéntibus Dóminus præcépit, ut renuntiémus nostris: quia, quicúmque ad fídei agónem venímus, luctámen contra malígnos spíritus súmimus. Nihil autem malígni spíritus in hoc mundo próprium póssident: nudi ergo cum nudis luctári debémus. Nam si vestítus quisque cum nudo luctátur, cítius ad
+AD se autem nobis veniéntibus Dóminus præcépit, ut renuntiémus nostris: quia, quicúmque ad fídei agónem venímus, luctámen contra malígnos spíritus súmimus. Nihil autem malígni spíritus in hoc mundo próprium póssident: nudi ergo cum nudis luctári debémus. Nam si vestítus quisque cum nudo luctátur, cítius ad terram dejícitur, quia habet unde teneátur. Quid enim sunt terréna ómnia nisi quædam córporis induménta? Qui ergo contra diábolum ad certámen próperat, vestiménta abjíciat, ne succúmbat.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## III Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+**Lectio vii** *Cap. 10, 34-42*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nolíte arbitrári, quia pacem vénerim míttere in terram: non veni pacem míttere, sed gládium. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+
+{RUBRIC: Comment. in Matth., can. 10}
+
+QUÆ ista divísio est? inter prima enim legis præcépta accépimus: Honóra patrem tuum et matrem tuam; et ipse Dóminus ait: Pacem meam do vobis, pacem meam relínquo vobis. Quid sibi vult missus pótius gládius in terram, et separátus a patre fílius, et fília a matre, et nurus advérsus socrum, et hóminis doméstici ejus inimíci? Igitur exínde pública auctóritas impietáti proferétur. Ubíque ódia, ubíque bella, et gládius Dómini inter patrem et fílium, et inter fíliam matrémque desǽviens.
+
+℟. Coróna. [50]
+
+###### Lectio viii
+
+GLADIUS telórum ómnium telum acutíssimum est, in quo sit jus potestátis, et judícii sevéritas, et animadvérsio peccatórum. Et hujus quidem teli nómine novi Evangélii prædicatiónem appellátam frequens in Prophétis auctóritas est. Dei ígitur verbum nuncupátum meminérimus in gládio; qui gládius missus in terram est, idest, prædicátio ejus hóminum córdibus infúsa. Fitque gravis in domo una dissénsio, et doméstica novo hómini erunt inimíca; quia ille per verbum Dei divísus ab illis, manére et intérior et extérior, id est, et corpus et ánima, in spíritus novitáte gaudébit.
+
+℟. Hic est, **vel** Dómine. [50]
+
+###### Lectio ix
+
+PERGIT deínde eódem præceptórum et intelligéntiæ decúrsu. Nam, posteáquam relinquénda ómnia, quæ in sæculo caríssima sunt, imperáverat, adjécit: Qui non áccipit crucem suam, et séquitur me, non est me dignus; quia Qui Christi sunt, cru-

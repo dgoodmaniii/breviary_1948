@@ -38746,4 +38746,30 @@ EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ Petroníllæ Vírginis
 
 ℣. Diffúsa est grátia.
 
-**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+###### Oratio
+
+DEUS, qui novum per beátam Angelam sacrárum Vírginum collégium in Ecclésia tua florescere voluísti: da nobis, ejus intercessióne, angélicis móribus vívere; ut, terrénis ómnibus abdicátis, gáudiis pérfrui mereámur ætérnis. Per Dóminum.
+
+---
+
+## Festa Junii
+
+### Die 2 Junii
+
+#### Ss. Marcellini, Petri atque Erasmi
+
+{RUBRIC: Ep., Mm.}
+
+{RUBRIC: Commemoratio}
+
+{RUBRIC: In I Vesp. Ant.} Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja. ℣. Sancti et justi.
+
+###### Oratio
+
+DEUS, qui nos ánnua beatórum Mártyrum tuórum Marcellíni, Petri atque Erásmi solemnitáte lætíficas: præsta, quæsumus; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+###### Lectio iii
+
+PETRUS exorcísta, Diocletiáno imperatóre, Romæ a Seréno júdice propter christiánæ fídei confessiónem missus in cárcerem, Paulínam Artémii, qui cárceri præerat, fíliam a dæmone agitátam liberávit. Quo facto et paréntes puéllæ cum tota família, et vicínos qui ad rei novitátem concúrrerant, Jesu Christo conciliátos ad Marcellínum presbýterum addúxit, a quo omnes baptizáti sunt. Quod ubi rescívit Serénus, Petrum et Marcellínum ad se vocátos aspérius objúrgat, et ad verbórum acerbitátem minas ac terróres adjúngit, nisi Christo renúntient. Cui cum Marcellínus christiána libertáte respondéret, pugnis contúsum, et a Petro sejúnctum, nudum inclúdit in cárcerem stratum vitri fragméntis, sine cibo ac sine lúmine. Petrum item constríngi ímperat arctíssimis vínculis. Sed cum utríque ex torméntis fides et ánimus crésceret, constánti confessióne, et abscísso cápite, illústre testimónium Jesu Christo dedérunt. Erásmus epíscopus, imperatóribus Diocletiáno et Maximiáno, in Campánia plumbátis et

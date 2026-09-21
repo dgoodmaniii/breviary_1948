@@ -40394,4 +40394,46 @@ Amen.
 
 **Capit.** Stabunt, ut supra.
 
-℟. br. Sancti et justi, in Dómino gaudéte, \* Alle-
+℟. br. Sancti et justi, in Dómino gaudéte, \* Allelúja, allelúja. Sancti. ℣. Vos elégit Deus in hereditátem sibi. Allelúja, allelúja. Glória Patri. Sancti. ℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+##### Ad Sextam
+
+**Capitulum** *Sap. 5, 5*
+
+ECCE quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est.
+
+℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+##### Ad Nonam
+
+**Capitulum** *Rom. 8, 28*
+
+SCIMUS quóniam diligéntibus Deum ómnia cooperántur in bonum, iis qui secúndum propósitum vocáti sunt sancti.
+
+℟. br. Lætítia sempitérna super cápita eórum, \* Allelúja, allelúja. Lætítia. ℣. Gáudium et exsultatiónem obtinébunt. Allelúja, allelúja. Glória Patri. Lætítia. ℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+##### In II Vesperis
+
+**T. P. Ant.** Sancti tui, \* Dómine, florébunt sicut lílium, allelúja: et sicut odor bálsami erunt ante te, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Jurávit Dóminus, \* et non pœnitébit eum: Tu es sacérdos in ætérnum.
+
+###### Psalmus 109
+
+DIXIT Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.

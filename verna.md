@@ -28956,4 +28956,20 @@ MECUM sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim f
 
 ###### Lectio iii
 
-BEÁTUS homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei. Qui me invénerit, invéniet vitam, et háuriet salútem a Dómino; qui autem in me peccáverit, lædet ánimam suam. Omnes, qui me odérunt, díligunt mortem. Sapiéntia ædificávit sibi domum, excídit colúmnas septem. Immolávit víctimas suas, míscuit vinum et propósuit mensam suam. Misit ancíllas suas ut vocárent ad arcem et ad mœnia
+BEÁTUS homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei. Qui me invénerit, invéniet vitam, et háuriet salútem a Dómino; qui autem in me peccáverit, lædet ánimam suam. Omnes, qui me odérunt, díligunt mortem. Sapiéntia ædificávit sibi domum, excídit colúmnas septem. Immolávit víctimas suas, míscuit vinum et propósuit mensam suam. Misit ancíllas suas ut vocárent ad arcem et ad mœnia civitátis: Si quis est párvulus, véniat ad me. Et insipiéntibus locúta est: Veníte, comédite panem meum, et bíbite vinum quod míscui vobis.
+
+℟. Surge, amíca mea, speciósa mea, et veni, colúmba mea: \* Osténde mihi fáciem tuam, sonet vox tua in áuribus meis. ℣. Vox túrturis audíta est in terra nostra. — Osténde. Glória Patri. Osténde.
+
+##### In II Nocturno
+
+**Ant.** Fecit mihi magna \* qui potens est, et sanctum nomen ejus.
+
+**Ant.** Sanctificávit \* tabernáculum suum Altíssimus: Deus in médio ejus, non commovébitur.
+
+**Ant.** Dóminus possédit te \* in inítio viárum suárum, et in caritáte perpétua diléxit te.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+###### Lectio iv
+
+ANNO quarto a dogmática definitióne de immaculáto beátæ Vírginis Concéptu, ad Gavi flúminis oram prope óppidum Lourdes diœcésis Tarbiénsis in Gállia, ipsa Virgo in rupis sinu super specum Massabiélle puéllæ cuídam, vernácula lingua Bernadétte nuncupátæ, paupérrimæ quidem sed ingénuæ ac piæ, plúries se conspiciéndam óbtulit. Immaculáta Virgo juveníli ac benígno videbátur aspéctu, nívea veste niveóque pállio contécta, ac zona cærúlea succíncta; nudos pedes áurea rosa ornábat. Primo apparitiónis die, qui fuit undécimus Februárii anno millésimo octingentésimo quinquagésimo octávo, puéllam signum crucis rite piéque faciéndum edócuit, atque ad sacri rosárii recitatiónem, exémplo suo, corónam, quæ prius ex bráchio demíssa pendébat, manu advólvens, excitávit: quod in céteris étiam apparitiónibus præstítit. Altero autem apparitiónis die, puélla in simplicitáte cordis sui, diabólicam fraudem timens, lustrálem aquam in Vírginem effúdit; sed beáta Virgo, léniter arrídens, benigniórem illi vultum osténdit. Cum vero tértio apparuísset, puéllam ad specum per quíndecim dies invitávit. Exínde eam sæpius est alloquúta, ac pro peccatóribus oráre, terram deosculári, pœnitentiámque ágere est hortáta; deínde imperávit, ut sacerdótibus edíceret, ædificándum ibi

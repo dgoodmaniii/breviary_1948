@@ -50755,3 +50755,47 @@ O Sancte N., ecce ego miser peccátor, de tuis méritis confísus, óffero nunc 
 EGO volo celebráre Missam, et confícere Corpus et Sánguinem Dómini nostri Jesu Christi, juxta ritum sanctæ Románæ Ecclésiæ, ad laudem omnipoténtis Dei totiúsque Cúriæ triumphántis, ad utilitátem meam totiúsque Cúriæ militántis, pro ómnibus, qui se commendavérunt oratiónibus meis in génere et in spécie, et pro felíci statu sanctæ Románæ Ecclésiæ. Amen.
 
 GAUDIUM cum pace, emendatiónem vitæ, spátium veræ pæniténtiæ, grátiam et consolatiónem Sancti Spíritus, perseverántiam in bonis opéribus, tríbuat nobis omnípotens et miséricors Dóminus. Amen.
+
+---
+
+# Gratiarum Actio post Missam
+
+{RUBRIC: Quilibet Sacerdos, ex concessione Pii XI sub die 3 Octobris 1936, lucrari potest: Indulgentiam quinque annorum, si post Missam celebratam recitet Canticum Trium puerorum et Psalmum 150 cum adnexa antiphona, versiculis et} Orémus {RUBRIC: ut infra; plenariam, si per integrum mensem prædictas preces recitaverit, accedente sacramentali confessione et oratione ad mentem Summi Pontificis.}
+
+**Ant.** Trium puerórum \* cantémus hymnum, quem cantábant Sancti in camíno ignis, benedicéntes Dóminum. (T. P. Allelúja.)
+
+{RUBRIC: Quæ Antiphona in Duplicibus tantum duplicatur.}
+
+###### Canticum trium Puerorum
+
+*Dan. 3, 57-88 et 56*
+
+BENEDICITE, ómnia ópera Dómini, Dómino: \* laudáte et superexaltáte eum in sǽcula.
+
+Benedícite, Angeli Dómini, Dómino: \* benedícite, cæli, Dómino.
+
+Benedícite, aquæ omnes, quæ super cælos sunt, Dómino: \* benedícite, omnes virtútes Dómini, Dómino.
+
+Benedícite, sol et luna, Dómino: \* benedícite, stellæ cæli, Dómino.
+
+Benedícite, omnis imber et ros, Dómino: \* benedícite, omnes spíritus Dei, Dómino.
+
+Benedícite, ignis et æstus, Dómino: \* benedícite, frigus et æstus, Dómino.
+
+Benedícite, rores et pruína, Dómino: \* benedícite, gelu et frigus, Dómino.
+
+Benedícite, glácies et nives, Dómino: \* benedícite, noctes et dies, Dómino.
+
+Benedícite, lux et ténebræ, Dómino: \* benedícite, fúlgura et nubes, Dómino.
+
+Benedícat terra Dóminum: \* laudet et superexáltet eum in sǽcula.
+
+Benedícite, montes et colles, Dómino: \* benedícite, univérsa germinántia in terra, Dómino.
+
+Benedícite, fontes, Dómino: \* benedícite, mária et flúmina, Dómino.
+
+Benedícite, cete, et ómnia, quæ movéntur in aquis, Dómino: \* benedícite, omnes vólucres cæli, Dómino.
+
+Benedícite, omnes béstiæ et pécora, Dómino: \* benedícite, fílii hóminum, Dómino.
+
+Benedícat Israël Dóminum: \* laudet et superexáltet eum in sǽcula.

@@ -33621,4 +33621,16 @@ JUSTINUS, Prisci fílius, ex Græco génere Fláviæ Neápolis in Sýria Palæst
 
 ###### Lectio v
 
-INTER præclaríssima Justíni ópera binæ éminent fídei christiánæ apológiæ, quas cum coram senátu, imperatóribus Antoníno Pio ejúsque fíliis nec non Marco Antoníno Vero et Lúcio Aurélio Cómmodo Christi ásseclas sævíssime
+INTER præclaríssima Justíni ópera binæ éminent fídei christiánæ apológiæ, quas cum coram senátu, imperatóribus Antoníno Pio ejúsque fíliis nec non Marco Antoníno Vero et Lúcio Aurélio Cómmodo Christi ásseclas sævíssime divexántibus, porrexísset, eamdémque fidem disputándo strénue propugnásset, obtínuit ut a Christianórum cæde público príncipum edícto temperátum fúerit. Verum Justíno haud párcitum est. Nam Crescéntis Cýnici, cujus vitam et mores nefários redargúerat, insídiis accusátus, a satellítibus comprehénsus est. Addúctus autem ad Romæ præsidem nómine Rústicum, cum hic ab eo quæsivísset quænam essent Christianórum præcépta, hanc bonam confessiónem coram multis téstibus conféssus est: Rectum dogma, quod nos christiáni hómines cum pietáte servámus, hoc est: ut Deum unum existimémus factórem atque creatórem ómnium quæ vidéntur, quæque corpóreis óculis non cernúntur; et Dóminum Jesum Christum Dei Fílium confiteámur, olim a prophétis prænuntiátum, qui et humáni géneris judex ventúrus est.
+
+{RUBRIC: In Quadragesima}
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine. \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. In servis suis, allelúja. \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+QUONIAM Justínus in prima sua apología palam exposúerat quómodo Christiáni convenírent ad sacra celebránda, et quænam fúerint sacri hujus convéntus mystéria, ad repelléndas ethnicórum calúmnias; exquisívit ab eo præses, in quonam loco conveníret ipse et céteri hujus Urbis Christifidéles. Justínus autem réticens convéntuum loca, ne sancta et fratres próderet cánibus, domicílium tantum suum indicávit, ubi manére et discípulos excólere solébat penes célebrem títulum Pastóris in ǽdibus Pudéntis. Demum præses optiónem ei dedit vel ut diis sacrificáret, vel per totum corpus flagéllis cædi perférret. Cum invíctus fídei vindex asséreret se in votis semper habuísse cruciátus pérpeti propter Dóminum Jesum Christum, a quo magnam in cælis mercédem cónsequi exspectábat, præses in

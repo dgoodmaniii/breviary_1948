@@ -37366,4 +37366,22 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-NEREUS et Achílleus fratres, eunúchi Fláviæ Domitíllæ, a beáto Petro
+NEREUS et Achílleus fratres, eunúchi Fláviæ Domitíllæ, a beáto Petro una cum ipsa ejúsque matre Plautílla baptizáti, cum Domitíllæ persuasíssent ut virginitátem suam Deo consecráret, ab ejus sponso Aureliáno, quod christiáni essent accusáti, in Póntiam ínsulam relegántur. Mox verbéribus cæsi, ut idólis immolárent, et Tarracínam perdúcti, equúlei et flammárum cruciátibus superáti, secúri percússi sunt; quorum córpora ab Auspício eórum discípulo Romam deláta, via Ardeatína sunt sepúlta. Flávia Domitílla vero, quæ sacrum virginitátis velámen a beáto Cleménte Papa accéperat, et ipsa in ínsulam Póntiam deportáta, et post diutúrna víncula Tarracínam dedúcta, júdicis jussu incénso ejus cubículo, una cum virgínibus Theodóra et Euphrósyna, collactáneis suis, gloriósam mortem oppétiit Nonis Maji, Trajáno imperatóre: quarum córpora Cæsárius diáconus sepelívit. Pancrátius, nóbili génere in Phrýgia natus, puer quatuórdecim annórum Romæ baptizátus, Diocletiáno et Maximiáno imperatóribus, comprehénditur, et, cum diis sacrificáre constánter renuísset, datis cervícibus, illústrem martýrii corónam consecútus est; cujus corpus ab Octavílla matróna clam via Aurélia sepúltum est.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+**Lectio vii** *Cap. 4, 46-53*
+
+IN illo témpore: Erat quidam régulus, cujus fílius infirmabátur Caphárnaum. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 28 habita in Basilica horum Ss. Martyrum, in die natali eorum}
+
+QUID est quod régulus Dóminum roget ut ad ejus fílium véniat, et tamen ire corporáliter recúset; ad servum vero centuriónis non invitátur, et tamen se corporáliter ire pollicétur? Réguli fílio per corporálem præséntiam non dignátur adésse, centuriónis servo non dedignátur occúrrere. Quid est hoc, nisi quod supérbia nostra retúnditur, qui in homínibus non natúram, qua ad imáginem Dei facti sunt, sed honóres et divítias venerámur? Redémptor vero noster, ut osténderet quia quæ alta sunt hóminum, despicíenda sunt, et quæ despécta sunt hóminum,

@@ -19824,3 +19824,35 @@ DICIT áliquis: Quómodo per Lázarum peccátor significabátur, et a Dómino si
 #### Oratio
 
 DEUS, qui ineffabílibus mundum rénovas sacraméntis: præsta, quæsumus; ut Ecclésia tua et ætérnis profíciat institútis, et temporálibus non destituátur auxíliis. Per Dóminum.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Magnif. Ant.** Dómine, \* si fuísses hic, Lázarus non esset mórtuus: ecce jam fœtet quatriduánus in monuménto.
+
+#### Oratio
+
+DA nobis, quæsumus, omnípotens Deus: ut, qui infirmitátis nostræ cónscii, de tua virtúte confídimus, sub tua semper pietáte gaudeámus. Per Dóminum.
+
+---
+
+## Sabbato
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 8, 12-20*
+
+IN illo témpore: Locútus est Jesus turbis Judæórum, dicens: Ego sum lux mundi: qui séquitur me, non ámbulat in ténebris, sed habébit lumen vitæ. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 34 in Joánnem, post initium}
+
+QUOD ait Dóminus, Ego sum lux mundi: clarum puto esse eis, qui habent óculos, unde hujus lucis partícipes fiant: qui autem non habent óculos, nisi in sola carne, mirántur quod dictum est a Dómino Jesu Christo: Ego sum lux mundi. Et forte non desit qui dicat apud semetípsum: Numquid forte Dóminus Christus est sol iste, qui ortu et occásu péragit diem? Non enim defuérunt hærétici, qui ista sensérunt. Manichǽi solem istum óculis cárneis visíbilem, expósitum et públicum non tantum homínibus, sed étiam pecóribus ad vidéndum, Christum Dóminum esse putavérunt.
+
+℟. Spléndida facta est fácies Móysi, dum respíceret in eum Dóminus: \* Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde. ℣. Cumque descendísset de monte Sínai, portábat duas tábulas testimónii, ignórans quod cornúta esset fácies ejus ex consórtio sermónis Dei. — Vidéntes.
+
+#### Lectio ii
+
+SED cathólicæ Ecclésiæ recta fides ímprobat tale comméntum, et diabólicam doctrínam esse cognóscit: nec solum agnóscit credéndo, sed in quibus potest convíncit étiam disputándo. Improbémus ítaque hujúsmodi errórem, quem sancta ab

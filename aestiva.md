@@ -4458,3 +4458,66 @@ IMMENSE cæli Cónditor,
 Qui mixta ne confúnderent,
 Aquæ fluénta dívidens,
 Cælum dedísti límitem.
+
+Firmans locum cæléstibus,
+Simúlque terræ rívulis;
+Ut unda flammas témperet,
+Terræ solum ne díssipent.
+
+Infúnde nunc, piíssime,
+Donum perénnis grátiæ:
+Fraudis novæ ne cásibus
+Nos error átterat vetus.
+
+Lucem fides adáugeat:
+Sic lúminis jubar ferat:
+Hæc vana cuncta próterat:
+Hanc falsa nulla cómprimant.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Magníficat \* † ánima mea Dóminum, quia respéxit Deus humilitátem meam.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster {RUBRIC: quod dícitur totum secréto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Salvum me fac.
+
+{RUBRIC: ¶ Antíphonæ, in hac et áliis Fériis apposítæ, dicúntur semper ad Completórium tum de Témpore tum de Sanctis, quando juxta Rúbricas suméndi sint Psalmi de Féria.}
+
+### Psalmus 6
+
+DOMINE, ne in furóre tuo árguas me, \* neque in ira tua corrípias me.
+
+Miserére mei, Dómine, quóniam infírmus sum: \* sana me, Dómine, quóniam conturbáta sunt ossa mea.
+
+Et ánima mea turbáta est valde: \* sed tu, Dómine, úsquequo?
+
+Convértere, Dómine, et éripe ánimam meam: \* salvum me fac propter misericórdiam tuam.

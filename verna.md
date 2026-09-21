@@ -28937,3 +28937,23 @@ Amen.
 **Ant.** Ne tímeas, María, \* invenísti grátiam apud Dóminum.
 
 ℣. Deus omnípotens præcínxit me virtúte. ℟. Et pósuit immaculátam viam meam.
+
+De Parábolis Salomónis
+
+*Cap. 8, 12-25 et 34-36; 9, 1-5*
+
+###### Lectio i
+
+EGO sapiéntia hábito in consílio et erudítis intérsum cogitatiónibus. Timor Dómini odit malum: arrogántiam, et supérbiam, et viam pravam, et os bilíngue detéstor. Meum est consílium et æquitas, mea est prudéntia, mea est fortitúdo. Per me reges regnant, et legum conditóres justa decérnunt; per me príncipes ímperant, et poténtes decérnunt justítiam. Ego diligéntes me díligo; et qui mane vígilant ad me, invénient me.
+
+℟. Sapiéntia quæ attíngit a fine usque ad finem fórtiter, et dispónit ómnia suáviter, ædificávit sibi domum: \* Ecce tabernáculum Dei cum homínibus. ℣. Vidi sanctam civitátem, Jerúsalem novam, parátam sicut sponsam ornátam viro suo. — Ecce.
+
+###### Lectio ii
+
+MECUM sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim fructus meus auro et lápide pretióso, et genímina mea argénto elécto. In viis justítiæ ámbulo, in médio semitárum judícii, ut ditem diligéntes me et thesáuros eórum répleam. Dóminus possédit me in inítio viárum suárum, ántequam quidquam fáceret a princípio. Ab ætérno ordináta sum et ex antíquis, ántequam terra fíeret. Nondum erant abýssi, et ego jam concépta eram; necdum fontes aquárum erúperant, necdum montes gravi mole constíterant; ante colles ego parturiébar.
+
+℟. Quasi arcus refúlgens inter nébulas, et quasi flos rosárum in diébus vernis, et quasi lília in tránsitu aquæ, \* Sic fulget Virgo immaculáta. ℣. Arcum meum ponam in núbibus, et erit signum fœderis mei vobíscum. — Sic.
+
+###### Lectio iii
+
+BEÁTUS homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei. Qui me invénerit, invéniet vitam, et háuriet salútem a Dómino; qui autem in me peccáverit, lædet ánimam suam. Omnes, qui me odérunt, díligunt mortem. Sapiéntia ædificávit sibi domum, excídit colúmnas septem. Immolávit víctimas suas, míscuit vinum et propósuit mensam suam. Misit ancíllas suas ut vocárent ad arcem et ad mœnia

@@ -21659,3 +21659,53 @@ Heu mihi, quia incolátus meus prolongátus est: habitávi cum habitántibus Ced
 Cum his, qui odérunt pacem, eram pacíficus: \* cum loquébar illis, impugnábant me gratis.
 
 {RUBRIC: †}
+
+**Ant.** Cum his, qui odérunt pacem, eram pacíficus: dum loquébar illis, impugnábant me gratis.
+
+**Ant.** Ab homínibus \* iníquis líbera me, Dómine.
+
+#### Psalmus 139
+
+ERIPE me, Dómine, ab hómine malo: \* a viro iníquo éripe me.
+
+Qui cogitavérunt iniquitátes in corde: \* tota die constituébant prǽlia.
+
+Acuérunt linguas suas sicut serpéntis: \* venénum áspidum sub lábiis eórum.
+
+Custódi me, Dómine, de manu peccatóris: \* et ab homínibus iníquis éripe me.
+
+Qui cogitavérunt supplantáre gressus meos: \* abscondérunt supérbi láqueum mihi:
+
+Et funes extendérunt in láqueum: \* juxta iter scándalum posuérunt mihi.
+
+Dixi Dómino: Deus meus es tu: \* exáudi, Dómine, vocem deprecatiónis meæ.
+
+Dómine, Dómine, virtus salútis meæ: \* obumbrásti super caput meum in die belli.
+
+Ne tradas me, Dómine, a desidério meo peccatóri: \* cogitavérunt contra me, ne derelínquas me, ne forte exalténtur.
+
+Caput circúitus eórum: \* labor labiórum ipsórum opériet eos.
+
+Cadent super eos carbónes, in ignem dejícies eos: \* in misériis non subsístent.
+
+Vir linguósus non dirigétur in terra: \* virum injústum mala cápient in intéritu.
+
+Cognóvi quia fáciet Dóminus judícium ínopis: \* et vindíctam páuperum.
+
+Verúmtamen justi confitebúntur nómini tuo: \* et habitábunt recti cum vultu tuo.
+
+{RUBRIC: †}
+
+**Ant.** Ab homínibus iníquis líbera me, Dómine.
+
+**Ant.** Custódi me \* a láqueo, quem statuérunt mihi, et a scándalis operántium iniquitátem.
+
+#### Psalmus 140
+
+DOMINE, clamávi ad te, exáudi me: \* inténde voci meæ, cum clamávero ad te.
+
+Dirigátur orátio mea sicut incénsum in conspéctu tuo: \* elevátio mánuum meárum sacrifícium vespertínum.
+
+Pone, Dómine, custódiam ori meo: \* et óstium circumstántiæ lábiis meis.
+
+Non declínes cor meum in verba malítiæ, \* ad excusándas excusatiónes in peccátis.

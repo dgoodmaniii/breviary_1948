@@ -34271,4 +34271,26 @@ MABO et colam missos a Christo Apóstolos horúmque successóres in Evangélii s
 
 ###### Lectio viii
 
-ETENIM evangélico Doctóri sat non est, verbo lucére pópulo, et vocem in desérto clamántem præstáre, multísque in pietáte juvándis lingua óperam dare, ne alióquin, si verbi ministérium prætermíttat, canis mutus non valens latráre a prophéta dicátur. Sed et ardére illum opórtet, ut, ópere atque caritáte instrúctus, munus suum ornet evangélicum, Paulúmque ducem sequátur. Is quippe non conténtus Ephesiórum epíscopo
+ETENIM evangélico Doctóri sat non est, verbo lucére pópulo, et vocem in desérto clamántem præstáre, multísque in pietáte juvándis lingua óperam dare, ne alióquin, si verbi ministérium prætermíttat, canis mutus non valens latráre a prophéta dicátur. Sed et ardére illum opórtet, ut, ópere atque caritáte instrúctus, munus suum ornet evangélicum, Paulúmque ducem sequátur. Is quippe non conténtus Ephesiórum epíscopo demandáre: Præcipe hoc et doce: labóra sicut bonus miles Christi Jesu: constánter étiam apud amícos et inimícos evangelizávit, ac epíscopis apud Ephesum colléctis bona dixit consciéntia: Vos scitis, quómodo nihil subtráxerim utílium, quóminus annuntiárem vobis, et docérem vos públice et per domos, testíficans Judǽis atque Gentílibus in Deum pœniténtiam et fidem in Dóminum nostrum Jesum Christum.
+
+℟. In médio Ecclésiæ apéruit os ejus \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus, allelúja. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: Feria II Rogationum, ix Lectio de Homilia Feriæ et fit ejus Commemoratio in Laudibus; alias}
+
+###### Lectio ix
+
+TALEM enim pastórem decet esse in Ecclésia, qui, more Pauli, ómnibus ómnia fiat, ut in illo repériat æger curatiónem, mœstus lætítiam, despérans fidúciam, impéritus doctrínam, dúbius consílium, pœnitens véniam atque solátium, et quidquid tandem ad salútem est cuíque necessárium. Quocírca pulchre Christus, cum primários mundi Ecclesiǽque doctóres constitúere vellet, non sat hábuit Discípulis dícere: Vos estis lux mundi: sed étiam illud subjécit: Non potest cívitas abscóndi supra montem pósita, neque accéndunt lucérnam et ponunt eam sub módio, sed super candelábrum, ut lúceat ómnibus qui in domo sunt. Errant enim opinántes ecclesiástæ, quod múneri suo doctrínæ splendóre magis quam vitæ integritáte et caritátis ardóre possint satisfácere.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DEUS, qui ad tuéndam cathólicam fidem beátum Petrum, Confessórem tuum, virtúte et doctrína roborásti: concéde propítius; ut ejus exémplis et mónitis errántes ad salútem resipíscant, et fidéles in veritátis confessióne persevérent. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequenti, Commemoratio præcedentis.}

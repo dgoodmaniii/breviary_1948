@@ -15933,3 +15933,51 @@ Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* corn
 Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
 
 **Ant.** Exórtum est in ténebris lumen rectis; miséricors et miserátor Dóminus.
+
+**Ant.** Quid retríbuam Dómino \* pro ómnibus quæ retríbuit mihi?
+
+##### Psalmus 115
+
+CRédidi, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Quid retríbuam Dómino pro ómnibus quæ retríbuit mihi?
+
+**Ant.** Apud Dóminum \* propitiátio est et copiósa apud eum redémptio.
+
+##### Psalmus 129
+
+DE profúndis clamávi ad te, Dómine: \* Dómine, exáudi vocem meam:
+
+Fiant aures tuæ inténdentes, \* in vocem deprecatiónis meæ.
+
+Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
+
+Quia apud te propitiátio est: \* et propter legem tuam sustínui te, Dómine.
+
+Sustínuit ánima mea in verbo ejus: \* sperávit ánima mea in Dómino.
+
+A custódia matutína usque ad noctem: \* speret Israël in Dómino.
+
+Quia apud Dóminum misericórdia: \* et copiósa apud eum redémptio.
+
+Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
+
+**Ant.** Apud Dóminum propitiátio est et copiósa apud eum redémptio.
+
+**Capitulum** *Ephes. 3, 8-9*
+
+FRatres: mihi ómnium sanctórum mínimo data est grátia hæc, in géntibus evangelizáre investigábiles divítias Christi; et illumináre omnes, quæ sit dispensátio sacraménti abscónditi a sæculis in Deo.

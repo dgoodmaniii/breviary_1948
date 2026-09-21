@@ -12325,3 +12325,55 @@ Quóniam rectus Dóminus Deus noster: \* et non est iníquitas in eo.
 **Ant.** Quam magnificáta sunt ópera tua, Dómine!
 
 **Ant.** Lætábitur justus \* in Dómino, et sperábit in eo.
+
+### Psalmus 63
+
+EXáudi, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Lætábitur justus in Dómino, et sperábit in eo.
+
+**Ant.** Osténde nobis, Dómine, \* lumen miseratiónum tuárum.
+
+### Canticum Ecclesiastici
+
+*Eccli. 36, 1-16*
+
+MIserére nostri, Deus ómnium, et réspice nos, \* et osténde nobis lucem miseratiónum tuárum:
+
+Et immítte timórem tuum super gentes, \* quæ non exquisiérunt te,
+
+Ut cognóscant quia non est Deus nisi tu, \* et enárrent magnália tua.
+
+Alleva manum tuam super gentes aliénas, \* ut vídeant poténtiam tuam.
+
+Sicut enim in conspéctu eórum sanctificátus es in nobis, \* sic in conspéctu nostro magnificáberis in eis,
+
+Ut cognóscant te, sicut et nos cognóvimus, \* quóniam non est Deus præter te, Dómine.
+
+Innova signa, et immúta mirabília. \* Glorífica manum, et bráchium déxtrum.
+
+Excita furórem, et effúnde iram. \* Tolle adversárium, et afflíge inimícum.
+
+Festína tempus, et meménto finis, \* ut enárrent mirabília tua.
+
+In ira flammæ devorétur qui salvátur: \* et qui péssimant plebem tuam, invéniant perditiónem.

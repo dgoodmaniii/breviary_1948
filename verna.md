@@ -45098,4 +45098,16 @@ Ex libro sancti Cypriáni, Epíscopi et Mártyris, de disciplína et hábitu Ví
 
 ###### Lectio iv
 
-NUNC nobis ad vírgines sermo est; quarum quo sublímior glória est, major et cura est. Flos est ille ecclesiástici gérminis, decus atque ornaméntum grátiæ spiritális, læta índoles, laudis et honóris opus íntegrum atque incorrúptum, Dei imágo respóndens ad sanctimóniam Dómini, illústrior pórtio gregis
+NUNC nobis ad vírgines sermo est; quarum quo sublímior glória est, major et cura est. Flos est ille ecclesiástici gérminis, decus atque ornaméntum grátiæ spiritális, læta índoles, laudis et honóris opus íntegrum atque incorrúptum, Dei imágo respóndens ad sanctimóniam Dómini, illústrior pórtio gregis Christi. Gaudet per illas atque in illis lárgiter floret Ecclésiæ matris gloriósa fecúnditas; quantóque plus copiósa virgínitas número suo addit, tanto plus gáudium matris augéscit. Ad has lóquimur, has adhortámur affectióne pótius quam potestáte; non quod extrémi et mínimi, et humilitátis nostræ ádmodum cónscii, áliquid ad censúram licéntiæ vindicémus, sed quod ad sollicitúdinem magis cauti, plus de diáboli infestatióne timeámus.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+###### Lectio v
+
+NEQUE inánis hæc cáutio est et vana formído, quæ ad salútis viam cónsulit, quæ Domínica et vitália præcépta custódit, ut, quæ se Christo dicáverint, et a carnáli concupiscéntia recedéntes, tam carne quam mente se Deo vóverint, consúmment opus suum magno prǽmio destinátum; nec ornári jam aut placére cuíquam, nisi Dómino suo, stúdeant, a quo et mercédem virginitátis exspéctant, dicénte ipso: Non omnes cápiunt verbum, sed illi quibus datum est. Sunt enim spadónes, qui ex útero matris sic nati sunt; et sunt spadónes, qui coácti sunt ab homínibus; et sunt spadónes, qui seípsos castravérunt propter regnum cælórum.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. (T. P. Allelúja.) ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+###### Lectio vi
+
+DENUO quoque per hanc Angeli vocem continéntiæ munus osténditur, virgínitas prædicátur: Hi sunt, qui cum muliéribus se non coinquinavérunt; vírgines enim permansérunt: hi sunt qui sequúntur Agnum quocúmque íerit. Neque enim tantum másculis continéntiæ grátiam Dóminus reprómittit, et féminas prǽterit; sed, quóniam fémina viri pórtio est et ex eo sumpta atque formáta est, in Scriptúris fere ómnibus ad protoplástum Deus lóquitur, quia sunt duo in carne una, et in másculo simul signíficátur et fémina. Quod si Christum continéntia séquitur, et regno Dei virgínitas destinátur; quid est

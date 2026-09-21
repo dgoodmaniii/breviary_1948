@@ -18708,4 +18708,24 @@ PRævaricátus est autem Moab in Israël, postquam mórtuus est Achab. Cecidítq
 
 ##### Lectio ii
 
-ET ábiit Elías. Reversíque sunt núntii ad Ochozíam. Qui dixit eis: Quare revérsi estis? At illi respondérunt ei: Vir occúrrit nobis et dixit ad nos: Ite et revertímini ad regem, qui misit vos, et dicétis ei: Hæc dicit Dóminus: Numquid quia non erat Deus in Israël, mittis ut consulátur Beélzebub deus Accaron? Idcírco de
+ET ábiit Elías. Reversíque sunt núntii ad Ochozíam. Qui dixit eis: Quare revérsi estis? At illi respondérunt ei: Vir occúrrit nobis et dixit ad nos: Ite et revertímini ad regem, qui misit vos, et dicétis ei: Hæc dicit Dóminus: Numquid quia non erat Deus in Israël, mittis ut consulátur Beélzebub deus Accaron? Idcírco de léctulo, super quem ascendísti, non descéndes, sed morte moriéris.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+##### Lectio iii
+
+QUI dixit eis: Cujus figúræ et hábitus est vir ille, qui occúrrit vobis et locútus est verba hæc? At illi dixérunt: Vir pilósus et zona pellícea accínctus rénibus. Qui ait: Elías Thesbítes est. Misítque ad eum quinquagenárium príncipem et quinquagínta qui erant sub eo. Qui ascéndit ad eum sedéntique in vértice montis ait: Homo Dei, rex præcépit ut descéndas. Respondénsque Elías dixit quinquagenário: Si homo Dei sum, descéndat ignis de cælo, et dévoret te et quinquagínta tuos. Descéndit ítaque ignis de cælo, et devorávit eum et quinquagínta qui erant cum eo.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 201 de Témpore}
+
+##### Lectio iv
+
+IN lectiónibus, quæ nobis diébus istis recitántur, fratres caríssimi, frequénter admónui, ut non sequámur lítteram occidéntem, et vivificántem spíritum relinquámus. Sic enim Apóstolus ait: Líttera enim occídit, spíritus vivíficat. Si enim hoc tantum vólumus intellígere, quod sonat in líttera, aut parvam, aut prope nullam ædificatiónem de divínis lectiónibus capiémus. Illa enim ómnia, quæ recitántur, typus erant et imágo futurórum. In Judǽis enim figuráta, in nobis, grátia Dei donánte, compléta sunt.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et

@@ -33857,4 +33857,30 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-ANSELMUS, Augústæ Prætóriæ in fínibus Itáliæ, nobílibus et cathólicis pa-
+ANSELMUS, Augústæ Prætóriæ in fínibus Itáliæ, nobílibus et cathólicis paréntibus natus, adoléscens, pátria et bonis ómnibus derelíctis, in monastério Beccénsi órdinis sancti Benedícti emíssa regulári professióne, in lítteris et virtútibus assequéndis mirum in modum profécit. Régibus, epíscopis veneratióni fuit, et sancto Gregório séptimo étiam accéptus, qui tunc, persecutiónibus agitátus, lítteras amóris plenas ad eum dedit, se et Ecclésiam ejus oratiónibus comméndans. Defúncto Lanfránco archiepíscopo Cantuariénsi, ejus olim præceptóre, ad ejúsdem ecclésiæ régimen vocátus, verbo et exémplo, scriptis et concíliis celebrátis, prístinam pietátem et ecclesiásticam discíplinam redúxit. Sed cum mox Willélmus rex vi et minis jura Ecclésiæ usurpáre tentásset, ípseque invícte restitísset, bonórum direptiónem et exsílium passus, Romam ad Urbánum secúndum se cóntulit. A quo honorífice excéptus et summis láudibus ornátus, in Barénsi concílio Spíritum Sanctum étiam a Fílio procedéntem, contra Græcórum errórem, innúmeris Scripturárum et sanctórum Patrum testimóniis propugnávit. Post mortem Willélmi, ab Henríco rege ejus fratre in Angliam revocátus, obdormívit in Dómino.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Vos estis sal terræ, de Comm. Doctor. 2 loco. [108]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+{RUBRIC: C 3}
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Ansélmum minístrum tribuísti: præsta, quǽsumus; ut quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Ansélme, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Et fit Commem. sequentis.}

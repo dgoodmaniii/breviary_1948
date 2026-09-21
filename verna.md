@@ -34671,3 +34671,29 @@ SI compáres eum ad totam Ecclésiam Christi, nonne iste est homo eléctus et sp
 PROFECTO dubitándum non est, quod Christus familiaritátem, reveréntiam atque sublimíssimam dignitátem, quam illi exhíbuit, dum ágeret in humánis, tamquam fílius patri suo, in cælis útique non negávit, quin pótius complévit et summávit. Unde non immérito in verbo propósito a Dómino subinfértur: Intra in gáudium Dómini tui. Unde, licet gáudium ætérnæ beatitúdinis in cor hóminis intret, máluit tamen Dóminus ei dícere, Intra in gáudium; ut mýstice innuátur, quod gáudium illud non solum in eo sit intra, sed úndique illum circúmdans et absórbens, et ipsum velut abýssus infiníta submérgens. Meménto ígitur nostri, beáte Joseph, et tuæ oratiónis suffrágio apud tuum putatívum Fílium intercéde; sed et beatíssimam Vírginem sponsam tuam nobis propítiam redde, quæ Mater est ejus, qui cum Patre et Spíritu Sancto vivit et regnat per infiníta sǽcula sæculórum. Amen.
 
 ℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória Patri. Si exsúrgat.
+
+#### In III Nocturno
+
+**Ant.** Consúrgens Joseph, \* accépit Púerum et Matrem ejus, et venit in terram Israël; et habitávit in civitáte, quæ vocátur Názareth, allelúja.
+
+℣. Invocávi Dóminum, Patrem Dómini mei, allelúja. ℟. Ut non derelínquat me in die tribulatiónis, allelúja.
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 3, 21-23*
+
+IN illo témpore: Factum est autem cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Liber 2 de Consensu Evang.}
+
+MANIFESTUM est illud quod ait, Ut putabátur fílius Joseph, propter illos dixísse, qui eum ex Joseph, sicut álii hómines nascúntur, natum arbitrántur. Quos autem movet, quod álios progenitóres Matthǽus enúmerat, descéndens a David usque ad Joseph, álios autem Lucas, ascéndens a Joseph usque ad David; fácile est, ut advértant duos patres habére potuísse Joseph: unum a quo génitus, álterum a quo fúerit adoptátus. Antíqua est enim consuetúdo adoptándi étiam in illo pópulo Dei, ut sibi fílios fácerent, quos non ipsi genuíssent. Unde intellígitur Lucas patrem Joseph, non a quo génitus, sed a quo fúerat adoptátus, suscepísse in Evangélio suo, cujus progenitóres sursum versus commémorat, donec exíret ad David.
+
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est; páriet autem fílium, \* Et vocábis nomen ejus Jesum, allelúja. ℣. Ipse enim salvum fáciet pópulum suum a peccátis eórum. — Et.
+
+#### Lectio viii
+
+CUM enim necésse sit, utróque Evangelísta vera narránte, et Matthǽo scílicet et Luca, ut unus eórum ejus patris oríginem tenéret qui genúerat, alter ejus qui adoptáverat Joseph; quem probabílius intellígimus adoptántis oríginem tenuísse quam eum, qui nóluit Joseph génitum dícere ab illo cujus eum fílium esse narrábat? Matthǽus autem dicens, Abraham génuit Isaac, Isaac génuit Jacob,

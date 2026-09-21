@@ -47419,3 +47419,49 @@ AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désin
 ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
 
 ℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Adjuvábit eam Deus vultu suo, \* Allelúja, allelúja. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Allelúja, allelúja. Glória Patri. Adjuvábit.
+
+℣. Elégit eam Deus, et præelégit eam, allelúja. ℟. In tabernáculo suo habitáre facit eam, allelúja.
+
+##### Ad Nonam
+
+**Ant.** Speciósa \* facta es et suávis in delíciis tuis, sancta Dei Génitrix. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℟. br. Elégit eam Deus, \* Et præelégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Elégit eam Deus, et præelégit eam, \* Allelúja, allelúja. Elégit. ℣. In tabernáculo suo habitáre facit eam. Allelúja, allelúja. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis, allelúja. ℟. Proptérea benedíxit te Deus in ætérnum, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [195], præter}
+
+℣. Dignáre me laudáre te, Virgo sacráta. (T. P. Allelúja.) ℟. Da mihi virtútem contra hostes tuos. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus. (T. P. Allelúja.)
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## Officium Sanctæ Mariæ in Sabbato
+
+{RUBRIC: Simplex}
+
+{RUBRIC: Omnibus Sabbatis, extra Tempus Quadragesimæ et Passionis, nisi agendum fuerit de aliquo Festo duplici, etiam translato, aut semiduplici, vel de Octava aut Vigilia occurrenti, fit Officium de sancta Maria, in quo, sumptis Antiphonis et Psalmis de Feria VI et Sabbato occur-

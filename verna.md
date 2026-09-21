@@ -44169,4 +44169,34 @@ JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum,
 
 JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
 
-℟. br. Lex Dei ejus \* In corde ipsíus. Lex. ℣. Et non supplantabúntur gressus ejus. In. Glória Patri. Lex. ℣. Justum dedúxit Dómi-
+℟. br. Lex Dei ejus \* In corde ipsíus. Lex. ℣. Et non supplantabúntur gressus ejus. In. Glória Patri. Lex. ℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Lex Dei ejus in corde ipsíus, \* Allelúja, allelúja. Lex. ℣. Et non supplantabúntur gressus ejus. Allelúja, allelúja. Glória Patri. Lex. ℣. Justum dedúxit Dóminus per vias rectas, allelúja. ℟. Et osténdit illi regnum Dei, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [111], praeter}
+
+℣. Justum dedúxit Dóminus per vias rectas. (T. P. Allelúja.) ℟. Et osténdit illi regnum Dei. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu. (T. P. Allelúja.)
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Si celebrari occurrat Festum plurium Confessorum non Pontificum, Officium fit ut supra: sed in Oratione et Sermone, ea quæ habentur in singulari, dicantur in plurali; et in I Nocturno sumantur Lectiones Laudémus viros gloriósos, quæ in Communi Confessoris Pontificis 2 loco pluribus Pontificibus sunt assignátæ [100], cum Responsoriis tamen de Communi Confessoris non Pontificis, ut ibidem.}
+
+---
+
+## II Aliæ Lectiones pro Conf. non Pontifice
+
+##### In I Nocturno
+
+De libro Sapiéntiæ
+
+**Lectio i** *Cap. 4, 7-20; 5, 1-5*
+
+JUSTUS si morte præoccupátus fúerit, in refrigério erit. Senéctus enim venerábilis est non diutúrna, neque annórum número computáta; cani autem sunt sensus hóminis, et ætas senectútis vita immaculáta. Placens Deo factus est diléctus, et vivens inter peccatóres translátus est. Raptus est, ne malítia mutáret intelléctum ejus aut ne fíctio decíperet ánimam illíus. Fascinátio enim nugacitátis obscúrat bona, et inconstántia concupiscéntiæ transvértit sensum sine malítia. Consummátus in brevi explévit témpora multa; plácita enim erat Deo ánima illíus, propter hoc properávit edúcere illum de médio iniquitátum.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. (T. P. Allelúja.) ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.

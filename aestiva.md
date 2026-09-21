@@ -16308,4 +16308,16 @@ Et factus est mihi Dóminus in refúgium: \* et Deus meus in adjutórium spei me
 
 Et reddet illis iniquitátem ipsórum: et in malítia eórum dispérdet eos: \* dispérdet illos Dóminus Deus noster.
 
-**Ant.** Secúndum multitúdinem dolórum meórum in Corde meo, consolatiónes
+**Ant.** Secúndum multitúdinem dolórum meórum in Corde meo, consolatiónes tuæ lætificavérunt ánimam meam.
+
+℣. Ego dixi, Dómine, miserére mei. ℟. Sana ánimam meam quia peccávi tibi.
+
+##### Lectio iv
+
+INter mira sacræ doctrínæ pietatísque increménta, quibus divínæ Sapiéntiæ consília clárius in dies Ecclésiæ manifestántur, vix áliud magis conspícuum est quam triumphális progréssio cultus Sacratíssimi Cordis Jesu. Sæpius quidem, priórum decúrsu témporum, Patres, Doctóres, Sancti, Redemptóris nostri amórem celebrárunt: vulnus in látere Christi apértum ómnium gratiárum arcánum dixérunt fontem. At inde a médio ævo, cum tenerióre quadam erga Sanctíssimam Salvatóris Humanitátem religióne fidéles áffici cœpti sunt, ánimæ contemplatívæ per plagam illam ad ipsum Cor, amóre hóminum vulnerátum, penetráre fere solébant. Atque ex eo témpore hæc contemplátio sanctíssimis quibúsque ita familiáris evásit, ut neque régio neque ordo religiósus sit, in quibus non insígnia, hac ætáte, ejus reperiántur testimónia. Próximis demum sæculis, eóque potíssimum témpore quo hærétici, sub falsæ pietátis título, a Sanctíssima Eucharístia Christiános deterrére conabántur, cultus Sacratíssimo Cordi públice exhibéri cœptus est, ópera imprímis sancti Joánnis Eudes, qui auctor litúrgici cultus Sacrórum Córdium Jesu et Maríæ haud immérito nuncupátur.
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dóminus, pátiens et multum miséricors. — Omnibus.
+
+##### Lectio v
+
+VErum, ad cultum Sacratíssimi Cordis Jesu plene perfectéque constituéndum eumdémque per totum orbem propagándum, Deus ipse sibi instruméntum elégit humíllimam ex órdine Visitatiónis vírginem, sanctam Margarítam Maríam Alacóque, cui, a prima quidem ætáte jam in Eucharístiæ Sacraméntum amóre flagránti, Christus Dóminus sæpenúmero appárens, divíni Cordis sui et divítias et optáta significáre dignátus est. Quarum apparitiónum celebérrima illa est, qua ei ante Eucharístiam oránti Jesus

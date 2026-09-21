@@ -14284,4 +14284,42 @@ Amen.
 
 **Oratio**
 
-OMnípotens sempitérne Deus, qui dedísti fámulis tuis in confessióne
+OMnípotens sempitérne Deus, qui dedísti fámulis tuis in confessióne veræ fídei, ætérnæ Trinitátis glóriam agnóscere, et in poténtia majestátis adoráre Unitátem: quæsumus; ut, ejúsdem fídei firmitáte, ab ómnibus semper muniámur advérsis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Domínicæ.}
+
+**Ant.** Nolíte judicáre, ut non judicémini: in quo enim judício judicavéritis, judicabímini, dicit Dóminus.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Oratio**
+
+DEus, in te sperántium fortitúdo, adésto propítius invocatiónibus nostris: et quia sine te nihil potest mortális infírmitas, præsta auxílium grátiæ tuæ; ut in exsequéndis mandátis tuis, et voluntáte tibi et actióne placeámus. Per Dóminum.
+
+{RUBRIC: Completórium de Domínica.}
+
+---
+
+# Feria Secunda
+
+{RUBRIC: Infra Hebdomadam I post Oct. Pentecostes}
+
+{RUBRIC: Omnia dicúntur ut in Ordinário et Psaltério cum Oratióne præcedéntis Domínicæ Deus, in te, ut supra.}
+
+{RUBRIC: Hac nocte ponúntur libri Regum, de quibus légitur usque ad Sábbatum ante Domínicam I Augústi inclusíve: si quid vero de his libris supérsit, advenienté dicta Domínica, omittitur.}
+
+### Incipit liber primus Regum
+
+#### Lectio i
+
+*Cap. 1, 1-11*
+
+FUit vir unus de Ramáthaim Sophim de monte Ephraim, et nomen ejus Elcana, fílius Jéroham, fílii Eliu, fílii Thohu, fílii Suph, Ephrathæus. Et hábuit duas uxóres, nomen uni Anna, et nomen secúndæ Phenénna. Fueruntque Phenénnæ fílii, Annæ autem non erant líberi. Et ascendébat vir ille de civitáte sua, statútis diébus, ut adoráret et sacrificáret Dómino exercítuum in Silo. Erant autem ibi duo fílii Heli, Ophni et Phínees, sacerdótes Dómini.
+
+{RUBRIC: Responsória hujus Fériæ, si hac nocte dici non potuérint, ponúntur cum suis Lectiónibus in Feria III aut IV, si hæ Lectiónes in alterútra resuméndæ sunt juxta Rúbricas; secus omittántur.}
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+#### Lectio ii
+
+VEnit ergo dies, et immolávit Elcana, dedítque Phenénnæ uxóri suæ,

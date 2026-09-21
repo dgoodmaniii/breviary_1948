@@ -17620,4 +17620,32 @@ NOn rectis ergo óculis Saul aspiciébat David a die illa et deínceps. Post die
 
 IN ómnibus quoque viis suis David prudénter agébat, et Dóminus erat cum eo. Vidit ítaque Saul quod prudens esset nimis et cœpit cavére eum. Omnis autem Israël et Juda diligébat David; ipse enim ingrediebátur et egrediebátur ante eos. Dixítque Saul ad David: Ecce fília mea major Merob, ipsam dabo tibi uxórem; tantúmmodo esto vir fortis et præliáre bella Dómini. Saul autem reputábat dicens: Non sit manus mea in eum, sed sit super eum manus Philisthinórum.
 
-℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 19, 1-6*
+
+LOcútus est autem Saul ad Jónathan fílium suum et ad omnes servos suos ut occíderent David. Porro Jónathas fílius Saul diligébat David valde. Et indicávit Jónathas David dicens: Quǽrit Saul pater meus occídere te; quaprópter obsérva te, quæso, mane, et manébis clam et abscondéris. Ego autem egrédiens stabo juxta patrem meum in agro ubicúmque fúeris; et ego loquar de te ad patrem meum et quodcúmque vídero nuntiábo tibi.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+LOcútus est ergo Jónathas de David bona ad Saul patrem suum dixítque ad eum: Ne pecces, rex, in servum tuum David, quia non peccávit tibi, et ópera ejus bona sunt tibi valde. Et pósuit ánimam suam in manu sua et percússit Philisthǽum, et fecit Dóminus salútem magnam univérso Israéli. Vidísti et lætátus es; quare ergo peccas in sánguine innóxio interfíciens David, qui est absque culpa? Quod cum audísset Saul, placátus voce Jónathæ jurávit: Vivit Dóminus, quia non occidétur.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+*Cap. 19, 8-10*
+
+MOtum est autem rursum bellum, et egréssus David pugnávit advérsum Philísthiim percussítque eos plaga magna, et fugérunt a fácie ejus. Et factus est spíritus Dómini malus in Saul. Sedébat autem in domo sua et tenébat lánceam; porro David psallébat manu sua. Nisúsque est Saul confígere David láncea in

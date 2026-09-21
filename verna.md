@@ -20037,3 +20037,65 @@ SED hoc quod de réprobis Véritas lóquitur, ipsi hoc de semetípsis réprobi i
 **2** In tribulatióne \* invocávi Dóminum, et exaudívit me in latitúdine.
 
 **3** Judicásti, Dómine, \* causam ánimæ meæ, defénsor vitæ meæ, Dómine, Deus meus.
+
+**4** Pópule meus, \* quid feci tibi, aut quid moléstus fui? Respónde mihi.
+
+**5** Numquid rédditur \* pro bono malum, quia fodérunt fóveam ánimæ meæ?
+
+**Capitulum** *Hebr. 9, 11-12*
+
+FRATRES: Christus assístens Póntifex futurórum bonórum, per ámplius et perféctius tabernáculum non manu factum, id est, non hujus creatiónis: neque per sánguinem hircórum aut vitulórum, sed per próprium sánguinem introívit semel in Sancta, ætérna redemptióne invénta.
+
+#### Hymnus
+
+LUSTRA sex qui jam perégit,
+Tempus implens córporis,
+Sponte líbera Redémptor
+Passióni déditus,
+Agnus in Crucis levátur
+Immolándus stípite.
+
+Felle potus ecce languet:
+Spina, clavi, láncea
+Mite corpus perforárunt:
+Unda manat, et cruor:
+Terra, pontus, astra, mundus,
+Quo lavántur flúmine!
+
+Crux fidélis, inter omnes
+Arbor una nóbilis:
+Silva talem nulla profert
+Fronde, flore, gérmine:
+Dulce ferrum, dulce lignum,
+Dulce pondus sústinent.
+
+Flecte ramos, arbor alta,
+Tensa laxa víscera,
+Et rigor lentéscat ille,
+Quem dedit natívitas;
+Et supérni membra Regis
+Tende miti stípite.
+
+Sola digna tu fuísti
+Ferre mundi víctimam;
+Atque portum præparáre
+Arca mundo náufrago,
+Quam sacer cruor perúnxit,
+Fusus Agni córpore.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Æqua Patri, Filióque;
+Par decus Paráclito:
+Uníus Triníque nomen
+Laudet univérsitas.
+
+Amen.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+**Ad Bened. Ant.** Dicébat Jesus \* turbis Judæórum, et princípibus sacerdótum: Qui ex Deo est, verba Dei audit: proptérea vos non audítis, quia ex Deo non estis.
+
+#### Oratio
+
+QUÆSUMUS, omnípotens Deus, famíliam tuam propítius réspice: ut, te largiénte, regátur in córpore; et, te servánte, custodiátur in mente. Per Dóminum.

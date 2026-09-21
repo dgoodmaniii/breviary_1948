@@ -29114,4 +29114,54 @@ MECUM sunt divítiæ et glória, opes supérbæ et justítia: mélior est enim f
 
 IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis implémini.
 
-℟. br. Qui me invénerit \* Invéniet vitam. Qui.
+℟. br. Qui me invénerit \* Invéniet vitam. Qui. ℣. Et háuriet salútem a Dómino. Invéniet vitam. Glória Patri. Qui me invénerit. ℣. Transíte ad me, omnes qui concupíscitis me. ℟. Et a generatiónibus meis implémini.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: súpplices a te quǽsumus; ut ejúsdem Vírginis Apparitiónem celebrántes, salútem mentis et córporis consequámur. Per eúmdem Dóminum.
+
+##### In II Vesperis
+
+{RUBRIC: Antiphonæ et Capitulum de Laudibus. 696}
+
+###### Hymnus
+
+OMNIS expértem máculæ Maríam
+Edocet summus fídei magíster;
+Vírginis gaudens célebrat fidélis
+    Terra triúmphum.
+
+Ipsa se præbens húmili puéllæ
+Virgo spectándam, récreat pavéntem,
+Seque concéptam sine labe, sancto
+    Prǽdicat ore.
+
+O specus felix, decoráte divæ
+Matris aspéctu! veneránda rupes,
+Unde vitáles scatuére pleno
+    Gúrgite lymphæ!
+
+Huc catervátim pia turba nostris,
+Huc ab extérnis peregrína terris
+Affluit supplex, et opem poténtis
+    Vírginis orat.
+
+Excipit Mater lácrimas precántum,
+Donat optátam míseris salútem;
+Compos hinc voti pátrias ad oras
+    Turba revértit.
+
+Súpplicum, Virgo, miseráta casus,
+Semper o nostros réfove labóres,
+Impetrans mæstis bona sempitérnæ
+    Gáudia vitæ.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus
+Spíritus semper, Deus unus, omni
+    Témporis ævo.
+Amen.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Hódie gloriósa cæli Regína \* in terris appáruit: hódie pópulo suo verba salútis et pígnora pacis áttulit: hódie Angelórum et fidé-

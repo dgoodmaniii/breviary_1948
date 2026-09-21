@@ -51058,3 +51058,65 @@ Jesu, púritas Vírginum, miserére nobis.
 Jesu, coróna Sanctórum ómnium, mis. nobis.
 
 Propítius esto, parce nobis, Jesu.
+
+Propítius esto, exáudi nos, Jesu.
+
+Ab omni malo, líbera nos, Jesu.
+
+Ab omni peccáto, líbera.
+
+Ab ira tua, líbera.
+
+Ab insídiis diáboli, líbera.
+
+A spíritu fornicatiónis, líbera.
+
+A morte perpétua, líbera.
+
+A negléctu inspiratiónum tuárum, líbera.
+
+Per mystérium sanctæ incarnatiónis tuæ, líbera.
+
+Per nativitátem tuam, líbera.
+
+Per infántiam tuam, líbera.
+
+Per diviníssimam vitam tuam, líbera.
+
+Per labóres tuos, líbera.
+
+Per agóniam et passiónem tuam, líbera.
+
+Per crucem et derelictiónem tuam, líbera.
+
+Per languóres tuos, líbera.
+
+Per mortem et sepultúram tuam, líbera.
+
+Per resurrectiónem tuam, líbera.
+
+Per ascensiónem tuam, líbera.
+
+Per sanctíssimæ Eucharístiæ institutiónem tuam, líbera.
+
+Per gáudia tua, líbera.
+
+Per glóriam tuam, líbera.
+
+Agnus Dei, qui tollis peccáta mundi, parce nobis, Jesu.
+
+Agnus Dei, qui tollis peccáta mundi, exáudi nos, Jesu.
+
+Agnus Dei, qui tollis peccáta mundi, miserére nobis, Jesu.
+
+Jesu, audi nos.
+
+Jesu, exáudi nos.
+
+Orémus. **Oratio**
+
+DOMINE Jesu Christe, qui dixísti: Pétite, et accipiétis; quǽrite, et inveniétis; pulsáte, et aperiétur vobis: quǽsumus, da nobis peténtibus diviníssimi tui amóris afféctum, ut te toto corde, ore et ópere diligámus, et a tua numquam laude cessémus.
+
+SANCTI Nóminis tui, Dómine, timórem páriter et amórem fac nos habére perpétuum: quia numquam tua gubernatióne destítuis, quos in soliditáte tuæ dilectiónis instítuis: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+---

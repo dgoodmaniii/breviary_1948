@@ -16192,4 +16192,20 @@ Benedíctus Dóminus, Deus Israël, a sæculo et usque in sæculum: \* fiat, fia
 
 HÆC dicit Dóminus, Deus Israël: Cognóscam transmigratiónem Juda, quam emísi de loco isto in terram Chaldæórum, in bonum. Et ponam óculos meos super eos ad placándum, et redúcam eos in terram hanc; et ædificábo eos, et non déstruam; et plantábo eos et non evéllam. Et dabo eis cor ut sciant me, quia ego sum Dóminus; et erunt mihi in pópulum, et ego ero eis in Deum, quia reverténtur ad me in toto corde suo.
 
-℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non recédant a me.
+
+##### Lectio ii
+
+*Cap. 30, 18-24*
+
+HÆC dicit Dóminus: Ecce ego convértam conversiónem tabernaculórum Jacob, et tectis ejus miserébor, et ædificábitur cívitas in excélso suo, et templum juxta órdinem suum fundábitur, et egrediétur de eis laus, voxque ludéntium. Et erit dux ejus ex eo, et princeps de médio ejus producétur; et applicábo eum et accédet ad me. Quis enim iste est qui applicet cor suum ut appropínquet mihi? ait Dóminus. Et éritis mihi in pópulum, et ego ero vobis in Deum. Ecce turbo Dómini, furor egrédiens, procélla ruens; in cápite impiórum conquiéscet. Non avértet iram indignatiónis Dóminus, donec fáciat et cómpleat cogitatiónem Cordis sui: in novíssimo diérum intelligétis ea.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu vero homo unánimis.
+
+##### Lectio iii
+
+*Cap. 31, 1-3, 31-33*
+
+IN témpore illo, dicit Dóminus, ero Deus univérsis cognatiónibus Israël, et ipsi erunt mihi in pópulum. Hæc dicit Dóminus: Invénit grátiam in desérto pópulus qui remánserat a gládio; vadet ad réquiem suam Israël. Longe Dóminus appáruit mihi. Et in caritáte perpétua diléxi te: ídeo attráxi te, míserans. Ecce dies vénient, dicit Dóminus: et fériam dómui Israël et dómui Juda fœdus novum: non secúndum pactum, quod pépigi cum pátribus eórum in die, qua apprehéndi manum eórum, ut edúcerem eos de Terra Ægýpti: pactum quod írritum fecérunt, et ego dominátus sum eórum, dicit Dóminus. Sed hoc erit pactum, quod fériam cum domo Israël: post dies illos dicit Dóminus: Dabo legem meam in viscéribus eórum, et in corde eórum scribam eam: et ero eis in Deum, et ipsi erunt mihi in pópulum.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abun-

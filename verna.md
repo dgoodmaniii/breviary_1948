@@ -39503,3 +39503,72 @@ In reliquis Sanctorum Festis, in Octavis non privilegiatis quibuslibet et in Off
 Tempore Paschali speciale habetur Commune pro Apostolis, Evangelistis et Martyribus, ut infra; in Communi autem Confessorum, Virginum et non Virginum, Dedicationis Ecclesiæ et Festorum beatæ Mariæ Virginis, necnon in Officio ejusdem in Sabbato, omnia dicuntur ut extra Tempus Paschale, sed additur unum **Allelúja** Invitatorio, Antiphonis, Versibus eorumque Responsoriis, necnon et Responsoriis post Lectiones Nocturnorum ante Versum; Psalmi dicuntur in quolibet Nocturno sub prima Antiphona, et Responsoria brevia Horarum dicuntur cum duplici **Allelúja**, ut infra suis locis ponitur.
 
 ---
+
+# Commune Apostolorum
+
+## Extra Tempus Paschale
+
+##### In I Vesperis
+
+{RUBRIC: Añæ extra tempus Paschale cum Psalmis ut infra pro Tempore Paschali notatur. [4]}
+
+{RUBRIC: Capitulum et Hymnus Exsúltet ut infra ad Laudes.}
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Tradent enim vos \* in concíliis, et in synagógis suis flagellábunt vos, et ante reges et præsides ducémini propter me in testimónium illis, et géntibus.
+
+{RUBRIC: Oratio propria.}
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+{RUBRIC: Omnia ut in Communi pro Tempore Paschali notatur. [7]}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Hoc est præcéptum meum, \* ut diligátis ínvicem, sicut diléxi vos.
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** Majórem caritátem \* nemo habet, ut ánimam suam ponat quis pro amícis suis.
+
+**3** Vos amíci mei estis, \* si fecéritis quæ præcípio vobis, dicit Dóminus.
+
+**4** Beáti pacífici, \* beáti mundo corde: quóniam ipsi Deum vidébunt.
+
+**5** In patiéntia vestra \* possidébitis ánimas vestras.
+
+**Capit.** *Ephes. 2, 19-20*
+
+FRATRES: Jam non estis hóspites, et ádvenæ; sed estis cives Sanctórum, et doméstici Dei, superædificáti super fundaméntum Apostolórum et Prophetárum, ipso summo angulári lápide Christo Jesu.
+
+###### Hymnus
+
+EXSULTET orbis gáudiis,
+Cælum resúltet láudibus:
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices
+Et vera mundi lúmina,
+Votis precámur córdium:
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter
+In fine Christus sǽculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.

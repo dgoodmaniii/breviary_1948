@@ -41036,3 +41036,57 @@ INFIRMITATEM nostram réspice, omnípotens Deus: et, quia pondus própriæ acti�
 **2 — Alia Oratio**
 
 DEUS, qui nos beáti N. Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+{RUBRIC: Pro Martyre non Pontifice}
+
+**3 — Oratio**
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti N Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+**4 — Alia Oratio**
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, intercedénte beáto N. Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invitat.** Regem Mártyrum Dóminum, \* Veníte, adorémus. {RUBRIC: Ps. 94 Veníte, exsultémus.}
+
+{RUBRIC: Hymnus} Deus, tuórum mílitum, {RUBRIC: ut supra. [34]}
+
+##### In I Nocturno
+
+**Ant.** In lege Dómini \* fuit volúntas ejus die ac nocte.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Stabunt justi \* in magna constántia advérsus eos, qui se angustiavérunt, allelúja.
+
+{RUBRIC: Sub una tantum Antiphona in quolibet Nocturno dicuntur Psalmi.}
+
+###### Psalmus 1
+
+BEATUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** In lege Dómini fuit volúntas ejus die ac nocte.
+
+**Ant.** Prædicans \* præcéptum Dómini constitútus est in monte sancto ejus.
+
+###### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt

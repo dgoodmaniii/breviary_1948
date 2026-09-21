@@ -45917,4 +45917,54 @@ Non privábit bonis eos, qui ámbulant in innocéntia: \* Dómine virtútum, be�
 
 **Ant.** Non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.)
 
-**Ant.** Vidit Jacob scalam, \* súmmitas ejus cælos
+**Ant.** Vidit Jacob scalam, \* súmmitas ejus cælos tangébat, et descendéntes Angelos, et dixit: Vere locus iste sanctus est.
+
+###### Psalmus 86
+
+FUNDAMENTA ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Vidit Jacob scalam, súmmitas ejus cælos tangébat, et descendéntes Angelos, et dixit: Vere locus iste sanctus est.
+
+**Ant.** Eréxit Jacob \* lápidem in títulum, fundens óleum désuper.
+
+###### Psalmus 87
+
+DOMINE, Deus salútis meæ: \* in die clamávi, et nocte coram te.
+
+Intret in conspéctu tuo orátio mea: \* inclína aurem tuam ad precem meam:
+
+Quia repléta est malis ánima mea: \* et vita mea inférno appropinquávit.
+
+Æstimátus sum cum descendéntibus in lacum: \* factus sum sicut homo sine adjutório, inter mórtuos liber.
+
+Sicut vulneráti dormiéntes in sepúlcris, quorum non es memor ámplius: \* et ipsi de manu tua repúlsi sunt.
+
+Posuérunt me in lacu inferióri: \* in tenebrósis, et in umbra mortis.
+
+Super me confirmátus est furor tuus: \* et omnes fluctus tuos induxísti super me.
+
+Longe fecísti notos meos a me: \* posuérunt me abominatiónem sibi.
+
+Tráditus sum, et non egrediébar: \* óculi mei languérunt præ inópia.
+
+Clamávi ad te, Dómine, tota die: \* expándi ad te manus meas.
+
+Numquid mórtuis fácies mirabília: \* aut médici suscitábunt, et confitebúntur tibi?
+
+Numquid narrábit áliquis in sepúlcro misericórdiam tuam, \* et veritátem tuam in perditióne?
+
+Numquid cognoscéntur in ténebris mirabília tua, \* et justítia tua in terra obliviónis?
+
+Et ego ad te, Dómine, clamávi: \* et mane orátio mea prævéniet te.

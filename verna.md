@@ -48111,3 +48111,67 @@ Te Deum laudámus.
 **3** Ne tímeas, María, \* invenísti grátiam apud Dóminum: ecce concípies et páries fílium. (T. P. Allelúja.)
 
 **4** Dabit ei Dóminus \* sedem David, patris ejus; et regnábit in ætérnum.
+
+**5** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum.
+
+###### Capitulum
+
+*Is. 11, 1-2*
+
+EGREDIÉTUR virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum Spíritus Dómini. ℟. Deo grátias.
+
+**Ad Bened. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei. (T. P. Allelúja.)
+
+{RUBRIC: Oratio et Commemoratio de Sanctis, ut notatur supra ad Vesperas. [217]}
+
+##### Ad Primam
+
+**Ant.** Missus est.
+
+###### Capitulum
+
+*Is. 7, 14-15*
+
+ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+##### Ad Tertiam
+
+**Ant.** Ave María.
+
+**Capit.** Egrediétur, ut supra.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+##### Ad Sextam
+
+**Ant.** Ne tímeas, María.
+
+###### Capitulum
+
+*Luc. 1, 32-33*
+
+DABIT illi Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum, et regni ejus non erit finis. ℟. Deo grátias.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+##### Ad Nonam
+
+**Ant.** Ecce ancílla Dómini.
+
+**Capit.** Ecce Virgo concípiet, ut ad Primam.
+
+℣. Angelus Dómini nuntiávit Maríæ. ℟. Et concépit de Spíritu Sancto.
+
+---
+
+## III Tempore Paschali
+
+{RUBRIC: Quod dicitur a Vesperis Sabbati sancti usque ad Nonam Sabbati Quatuor Temporum Pentecostes inclusive.}
+
+{RUBRIC: Omnia dicuntur ut supra I Extra Tempus Paschale [216], sed loco} Laus tibi, Dómine, {RUBRIC: dicitur} Allelúja. {RUBRIC: et ad Benedictus, Magnificat et Nunc dimittis dicitur sequens}
+
+**Ant.** Regína cæli, \* lætáre, allelúja; quia quem meruísti portáre, allelúja, resurréxit, sicut dixit, allelúja: ora pro nobis Deum, allelúja.
+
+{RUBRIC: Aliis autem Antiphonis, Invitatorio, Versibus et Responsoriis non additur} Allelúja.

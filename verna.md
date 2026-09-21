@@ -38032,4 +38032,14 @@ EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ Pudentiánæ Vírginis
 
 ###### Lectio iv
 
-PETRUS, a nómine quo Póntifex est appellátus, Cælestínus dictus, honéstis
+PETRUS, a nómine quo Póntifex est appellátus, Cælestínus dictus, honéstis catholicísque paréntibus Æsérniæ in Samnítibus natus, adolescéntiam vix ingréssus, ut ánimum a mundi illécebris custodíret, in solitúdinem secéssit. Ibi contemplatiónibus mentem nútriens, corpus in servitútem rédigens, férream caténam ad nudam carnem adhibébat. Congregatiónem, quæ póstea Cælestinórum dicta est, sub régula sancti Benedícti institúit. Hinc, quasi lucérna supra candelábrum pósita, cum abscóndi nequíret, (Romána Ecclésia diu viduáta pastóre) in Petri Cáthedram ignórans et absens adscítus, magna novitátis admiratióne non minus quam repentíno gáudio cunctos affécit. Cum autem in pontificátus sublimitáte collocátus, váriis disténtus curis, assuétis incúmbere meditatiónibus vix posse cognósceret, óneri páriter et honóri voluntárie céssit. Indeque priscam vitæ ratiónem répetens, obdormívit in Dómino, ejúsque pretiósam mortem crux præfúlgens in áëre ante cubículi óstium réddidit ámplius gloriósam. Miráculis multis tam vivens quam post óbitum cláruit; quibus rite examinátis, Cleméns quintus anno postquam decéssit undécimo, Sanctórum número adscrípsit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+Ex libro Morálium sancti Gregórii Papæ
+
+{RUBRIC: Lib. 10, cap. 16, in cap. 12 Job}
+
+###### Lectio v
+
+DERIDETUR justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus tégere, sensum verbis veláre: quæ falsa sunt, vera osténdere; quæ vera sunt, falsa demonstráre. Hæc nimírum prudéntia usu a juvénibus scitur, hæc a púeris prétio díscitur: hanc qui sciunt, céteros despiciéndo supérbiunt: hanc qui nésciunt, subjécti et tímidi in áliis mirántur; quia ab eis hæc éadem duplicitátis iníquitas, nómine palliáta, dilígitur, dum mentis pervérsitas urbánitas vocátur. Hæc sibi obsequéntibus præcípit honórum cúlmina quǽrere, adépta temporális glóriæ vanitáte gaudére, irrogáta ab áliis mala multiplícius réddere: cum vires súppetunt, nullis resisténtibus cédere; cum virtútis pos-

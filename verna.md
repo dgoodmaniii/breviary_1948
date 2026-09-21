@@ -23548,4 +23548,20 @@ Homilía sancti Gregórii Papæ
 
 {RUBRIC: Homilia 23 in Evangelia}
 
-AUDISTIS, fratres caríssimi, quia duóbus discípulis ambulántibus in via, non quidem credéntibus, sed tamen de se loquéntibus, Dóminus appáruit: sed eis spéciem, quam recognóscerent, non osténdit. Hoc ergo egit foris Dóminus in óculis córporis, quod apud ipsos agebátur intus in óculis cordis. Ipsi namque apud
+AUDISTIS, fratres caríssimi, quia duóbus discípulis ambulántibus in via, non quidem credéntibus, sed tamen de se loquéntibus, Dóminus appáruit: sed eis spéciem, quam recognóscerent, non osténdit. Hoc ergo egit foris Dóminus in óculis córporis, quod apud ipsos agebátur intus in óculis cordis. Ipsi namque apud semetípsos intus et amábant, et dubitábant: eis autem Dóminus foris et præsens áderat, et quis esset non ostendébat. De se ergo loquéntibus præséntiam exhíbuit: sed de se dubitántibus cognitiónis suæ spéciem abscóndit.
+
+℟. María Magdaléne, et áltera María ibant dilúculo ad monuméntum. \* Jesum quem quǽritis, non est hic, surréxit sicut locútus est, præcédet vos in Galilǽam, ibi eum vidébitis, allelúja, allelúja. ℣. Et valde mane una sabbatórum véniunt ad monuméntum, orto jam sole: et introëúntes vidérunt júvenem sedéntem in dextris, qui dixit illis. — Jesum.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+VERBA quidem cóntulit, duritiam intelléctus increpávit, sacræ Scriptúræ mystéria, quæ de seípso erant, apéruit: et tamen quia adhuc in eórum córdibus peregrínus erat a fide, se ire lóngius finxit. Fíngere namque, compónere dícimus: unde et compositóres luti, fígulos vocámus. Nihil ergo simplex Véritas per duplicitátem fecit: sed talem se eis exhíbuit in córpore, qualis apud illos erat in mente. Probándi autem erant, si hi, qui eum etsi necdum ut Deum dilígerent, saltem ut peregrínum amáre potuíssent.
+
+℟. Surréxit pastor bonus, qui ánimam suam pósuit pro óvibus suis, et pro grege suo mori dignátus est: \* Allelúja, allelúja, allelúja. ℣. Etenim Pascha nostrum immolátus est Christus. — Allelúja. Glória Patri. Allelúja.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+SED quia esse extránei a caritáte non póterant hi, cum quibus Véritas gradiebátur: eum ad hospítium quasi peregrínum vocant. Cur autem dícimus, vocant, cum illic scriptum sit: Et coëgérunt eum? Ex quo nimírum exémplo collígitur, quia peregríni ad hospítium non solum invitándi sunt, sed étiam trahéndi. Mensam ígitur ponunt, panes cibósque ófferunt: et Deum, quem in Scriptúræ sacræ expositióne non cognóverant, in panis fractióne cognóscunt. Audiéndo ergo præcépta Dei illumináti non sunt, faciéndo illumináti sunt: quia scriptum est: Non auditóres legis justi sunt

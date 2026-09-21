@@ -17497,3 +17497,23 @@ COngregántes autem Philísthiim ágmina sua in prǽlium convenérunt in Socho J
 ##### Lectio ii
 
 STansque clamábat advérsum phalángas Israël et dicébat eis: Quare venístis paráti ad prǽlium? Numquid ego non sum Philisthǽus, et vos servi Saul? Elígite ex vobis virum, et descéndat ad singuláre certámen: si quíverit pugnáre mecum et percússerit me, érimus vobis servi; si autem ego prævalúero et percússero eum, vos servi éritis et serviétis nobis. Et ajébat Philisthǽus: Ego exprobrávi agmínibus Israël hódie: Date mihi virum, et íneat mecum singuláre certámen. Audiens autem Saul et omnes Israelítæ sermónes Philistǽi hujuscémodi stupébant et metuébant nimis.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+##### Lectio iii
+
+DAvid autem erat fílius viri Ephrathǽi, de quo supra dictum est, de Béthlehem Juda, cui nomen erat Isai, qui habébat octo fílios, et erat vir in diébus Saul senex et grandǽvus inter viros. Abiérunt autem tres fílii ejus majóres post Saul in prǽlium; et nómina trium filiórum ejus, qui perrexérunt ad bellum, Eliáb primogénitus et secúndus Abínadab tertiúsque Samma; David autem erat mínimus. Tribus ergo majóribus secútis Saulem, ábiit David et revérsus est a Saul, ut pásceret gregem patris sui in Béthlehem. Procedébat vero Philisthǽus mane et véspere, et stabat quadragínta diébus.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 197 de Temp. circa med.}
+
+##### Lectio iv
+
+STabant fílii Israël contra adversários quadragínta diébus. Quadragínta dies, propter quátuor témpora et quátuor partes orbis terræ, vitam præséntem signíficant, in qua contra Góliath vel exércitum ejus, id est, contra diábolum et ángelos ejus, Christianórum pópulus pugnáre non désinit. Nec tamen víncere posset, nisi verus David Christus cum báculo, id est, cum crucis mystério descendísset. Ante advéntum enim Christi, fratres caríssimi, solútus erat diábolus; véniens Christus fecit de eo, quod in Evangélio dictum est: Nemo potest intráre in domum fortis et vasa ejus dirípere, nisi prius alligáverit fortem. Venit ergo Christus et alligávit diábolum.
+
+℟. Percússit Saul mille et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Phili-

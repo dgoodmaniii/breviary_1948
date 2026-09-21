@@ -29517,4 +29517,18 @@ Incipit Epístola prima beáti Petri Apóstoli
 
 *Cap. 1, 1-12*
 
-PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ, Cappadóciæ, Asiæ et Bithýniæ secúndum præsciéntiam Dei Patris, in sanctificatiónem Spíritus, in obediéntiam, et aspersiónem sánguinis Jesu Chri-
+PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ, Cappadóciæ, Asiæ et Bithýniæ secúndum præsciéntiam Dei Patris, in sanctificatiónem Spíritus, in obediéntiam, et aspersiónem sánguinis Jesu Christi: Grátia vobis, et pax multiplicétur. Benedíctus Deus et Pater Dómini nostri Jesu Christi, qui secúndum misericórdiam suam magnam regenerávit nos in spem vivam, per resurrectiónem Jesu Christi ex mórtuis, in hereditátem incorruptíbilem, et incontaminátam, et immarcescíbilem, conservátam in cælis in vobis, qui in virtúte Dei custodímini per fidem in salútem, parátam reveláre in témpore novíssimo.
+
+℟. Simon Petre, ántequam de navi vocárem te, novi te, et super plebem meam príncipem te constítui, \* Et claves regni cælórum trádidi tibi. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis: et quodcúmque sólveris super terram, erit solútum et in cælis. — Et.
+
+###### Lectio ii
+
+IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in laudem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum.
+
+℟. Si díligis me, Simon Petre, pasce oves meas. Dómine, tu nosti, quia amo te, \* Et ánimam meam pono pro te. ℣. Si oportúerit me mori tecum, non te negábo. — Et.
+
+###### Lectio iii
+
+DE qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in vobis grátia prophetavérunt; scrutántes in quod vel quale tempus significáret in eis Spíritus Christi: prænúntians eas quæ in Christo sunt passiónes et posterióres glórias: quibus revelátum est, quia non sibimetípsis, vobis autem ministrábant ea, quæ nunc nuntiáta sunt vobis per eos, qui evangelizavérunt vobis, Spíritu Sancto misso de cælo, in quem desíderant Angeli prospícere.
+
+℟. Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: \* Et tibi dabo claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram,

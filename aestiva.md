@@ -14378,4 +14378,18 @@ POrro fílii Heli, fílii Bélial, nesciéntes Dóminum neque offícium sacerdó
 
 ##### Lectio ii
 
-ETiam, ántequam adolérent ádipem, veniébat puer sacerdótis et dicébat immolánti: Da mihi carnem ut coquam sacerdóti; non enim accípiam a te carnem coctam sed crudam. Dicebátque illi immolans: Incendátur primum juxta morem hódie adeps, et tolle tibi quantumcúmque desíderat ánima tua. Qui respóndens aiébat ei: Nequáquam; nunc enim dabis, alióquin tollam vi. Erat ergo peccátum puerórum grande nimis coram Dómino, quia
+ETiam, ántequam adolérent ádipem, veniébat puer sacerdótis et dicébat immolánti: Da mihi carnem ut coquam sacerdóti; non enim accípiam a te carnem coctam sed crudam. Dicebátque illi immolans: Incendátur primum juxta morem hódie adeps, et tolle tibi quantumcúmque desíderat ánima tua. Qui respóndens aiébat ei: Nequáquam; nunc enim dabis, alióquin tollam vi. Erat ergo peccátum puerórum grande nimis coram Dómino, quia retrahébant hómines a sacrifício Dómini.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+SAmuel autem ministrábat ante fáciem Dómini, puer accínctus ephod líneo. Et túnicam parvam faciébat ei mater sua, quam afferébat statútis diébus ascéndens cum viro suo ut immoláret hóstiam solémnem. Et benedíxit Heli Elcanæ et uxóri ejus dixítque ei: Reddat tibi Dóminus semen de mulíere hac, pro fænore, quod commodásti Dómino. Et abiérunt in locum suum. Visitávit ergo Dóminus Annam, et concépit et péperit tres fílios et duas fílias. Et magnificátus est puer Sámuel apud Dóminum.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+{RUBRIC: Vesperæ de sequénti.}
+
+---

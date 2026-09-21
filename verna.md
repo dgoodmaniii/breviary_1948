@@ -26616,3 +26616,41 @@ CONCEDE, quǽsumus, omnípotens Deus: ut, qui hodiérna die Unigénitum tuum Red
 ## Ad Tertiam
 
 **Ant.** Cumque intueréntur, {RUBRIC: ut supra.}
+
+**Capitulum** Primum, {RUBRIC: ut supra. 612}
+
+**℟. br.** Ascéndit Deus in jubilatióne, \* Allelúja, allelúja. Ascéndit. ℣. Et Dóminus in voce tubæ. Allelúja, allelúja. Glória Patri. Ascéndit. ℣. Ascéndens Christus in altum, allelúja. ℟. Captívam duxit captivitátem, allelúja.
+
+## Ad Sextam
+
+**Ant.** Elevátis mánibus, {RUBRIC: ut supra. 612}
+
+**Capitulum** *Act. 1, 4-5*
+
+ET convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris, quam audístis (inquit) per os meum: quia Joánnes quidem baptizávit aqua, vos autem baptizabímini Spíritu Sancto non post multos hos dies.
+
+**℟. br.** Ascéndens Christus in altum, \* Allelúja, allelúja. Ascéndens. ℣. Captívam duxit captivitátem. Allelúja, allelúja. Glória Patri. Ascéndens. ℣. Ascéndo ad Patrem meum, et Patrem vestrum, allelúja. ℟. Deum meum, et Deum vestrum, allelúja.
+
+## Ad Nonam
+
+**Capitulum** *Act. 1, 11*
+
+VIRI Galilǽi, quid statis aspiciéntes in cælum? Hic Jesus qui assúmptus est a vobis in cælum, sic véniet, quemádmodum vidístis eum eúntem in cælum.
+
+**℟. br.** Ascéndo ad Patrem meum, et Patrem vestrum, \* Allelúja, allelúja. Ascéndo. ℣. Deum meum, et Deum vestrum. Allelúja, allelúja. Glória. Ascéndo. ℣. Dóminus in cælo, allelúja. ℟. Parávit sedem suam, allelúja.
+
+## In II Vesperis
+
+{RUBRIC: Antiphonæ, Capitulum et Hymnus de Laudibus. 611}
+
+{RUBRIC: Psalmi de Dominica 72, sed loco ultimi Ps. 116 Laudáte Dóminum, omnes gentes. 92}
+
+℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.
+
+**Ad Magnif. Ant.** O Rex glóriæ, \* Dómine virtútum, qui triumphátor hódie super omnes cælos ascendísti, ne derelínquas nos órphanos; sed mitte promíssum Patris in nos, Spíritum veritátis, allelúja.
+
+{RUBRIC: Completórium de Dominica.}
+
+---
+
+{RUBRIC: Infra Octavam et in die Octava Officium fit ut in}

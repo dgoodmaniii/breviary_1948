@@ -15593,3 +15593,33 @@ NOrunt fidéles corpus Christi, si corpus Christi non négligant esse. Fiant cor
 NUmquid enim corpus meum vivit de spíritu tuo? Meum vivit de spíritu meo, et tuum de spíritu tuo. Non potest vívere corpus Christi, nisi de Spíritu Christi. Inde est, quod expónens nobis Apóstolus Paulus hunc panem: Unus panis, inquit, unum corpus multi sumus. O sacraméntum pietátis, o signum unitátis, o vínculum caritátis! Qui vult vívere, habet ubi vivat, habet unde vivat. Accédat, credat, incorporétur, ut vivificétur. Non abhórreat a compáge membrórum, non sit putre membrum, quod resecári mereátur, non sit distórtum, de quo erubéscátur. Sit pulchrum, sit aptum, sit sanum: hæreat córpori, vivat Deo de Deo. Nunc labóret in terra, ut póstea regnet in cælo.
 
 **Te Deum laudámus.** [7]
+
+## Feria III infra Octavam Ssmi Corporis Christi
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 6, 1-3*
+
+FUit ergo arca Dómini in regióne Philisthinórum septem ménsibus, et vocavérunt Philísthiim sacerdótes et divínos, dicéntes: Quid faciémus de arca Dómini? Indicáte nobis, quómodo remittámus eam in locum suum. Qui dixérunt: Si remíttitis arcam Dei Israël, nolíte dimíttere eam vácuam, sed quod debétis, réddite ei pro peccáto: et tunc curabímini et sciétis quare non recédat manus ejus a vobis.
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et edent.
+
+##### Lectio ii
+
+*Cap. 6, 6-10*
+
+QUare aggravátis corda vestra, sicut aggravávit Ægýptus et Phárao cor suum? Nonne, postquam percússus est, tunc dimísit eos, et abiérunt? Nunc ergo arrípite et fácite plaustrum novum unum, et duas vaccas fœtas, quibus non est impósitum jugum, júngite in plaustro et reclúdite vítulos eárum domi. Tolletísque arcam Dómini et ponétis in plaustro et vasa áurea, quæ exsolvístis ei pro delícto, ponétis in capséllam ad latus ejus, et dimíttite eam ut vadat. Et aspiciétis, et, si quidem per viam fínium suórum ascénderit contra Béthsames, ipse fecit nobis hoc malum grande; sin autem mínime, sciémus quia nequáquam manus ejus tétigit nos, sed casu áccidit. Fecérunt ergo illi hoc modo.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.
+
+##### Lectio iii
+
+*Cap. 6, 12-15*
+
+IBant autem in diréctum vaccæ per viam, quæ ducit Béthsames, et itínere uno gradiebántur pergéntes et mugiéntes et non declinábant neque ad déxteram neque ad sinístram; sed et sátrapæ Philísthiim sequebántur usque ad términos Béth-

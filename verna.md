@@ -38987,3 +38987,43 @@ ANTVERPIAM accersítus, in ea urbe Tanchelíni nefáriam hæresim profligávit. 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
 
 ---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+NORBERTUS, nobilíssimis paréntibus natus, adoléscens liberálibus disciplínis erudítus, in ipsa póstea imperatóris aula, spretis mundi illécebris, ecclesiásticæ milítiæ adscríbi vóluit. Sacris initiátus, prædicatióni verbi Dei se totum dedit. Innúmeros hæréticos ad fidem, peccatóres ad pœniténtiam, dissidéntes ad pacem et concórdiam revocávit. Desértum locum, qui Præmonstrátus dicebátur, in Laudunénsi diœcési sibi delégit; ibíque, trédecim sóciis aggregátis, Præmonstraténsem órdinem instítuit, qui mirífice propagátus est. Archiepíscopus Magdeburgénsis, licet relúctans, creátus, ecclesiásticam disciplínam, cœlibátum præsértim, constánter propugnávit. Rhemis in concílio Innocéntium secúndum egrégie adjúvit, et Romam cum áliis epíscopis proféctus, schisma Petri Leónis compréssit. Magdebúrgi obdormívit in Dómino, anno salútis millésimo centésimo trigésimo quarto, die sexta Júnii.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Homo péregre, {RUBRIC: de Communi Conf. Pont. 1 loco. [96]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Norbértum, Confessórem tuum atque Pontíficem, verbi tui præcónem exímium effecísti, et per eum Ecclésiam tuam nova prole fœcundásti: præsta, quǽsumus; ut, ejúsdem suffragántibus méritis, quod ore simul et ópere dócuit, te adjuvánte exercére valeámus. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum, allelúja.
+
+---
+
+### Die 9 Junii
+
+#### Ss. Primi et Feliciani
+
+{RUBRIC: Martyrum}
+
+{RUBRIC: Commemoratio}
+
+{RUBRIC: In I Vesp. Ant.} Lux perpétua lucébit Sanctis tuis,

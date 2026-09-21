@@ -30127,4 +30127,12 @@ JOANNES de Deo, ex cathólicis piísque paréntibus in óppido Montis Majóris J
 
 ###### Lectio v
 
-PAUPERIBUS ægrótis, quos própriis quandóque húmeris domum deferébat, nulla re ad ánimæ corporísque salútem profícua déerat. Effúsa quoque extra nosocómium caritáte indigéntibus muliéribus víduis, et præcípue virgínibus periclitántibus clam aliménta subministrábat, curámque indeféssam adhibébat, ut
+PAUPERIBUS ægrótis, quos própriis quandóque húmeris domum deferébat, nulla re ad ánimæ corporísque salútem profícua déerat. Effúsa quoque extra nosocómium caritáte indigéntibus muliéribus víduis, et præcípue virgínibus periclitántibus clam aliménta subministrábat, curámque indeféssam adhibébat, ut carnis concupiscéntiam a próximis hujúsmodi vítio inquinátis extermináret. Cum autem máximum in régio Granaténsi valetudinário excitátum fuísset incéndium, Joánnes impávidus prosíliit in ignem, huc illuc discúrrens, quoúsque tum infírmos húmeris exportátos, tum léctulos e fenéstris projéctos ab igne vindicávit, ac per dimídiam horam inter flammas, jam in imménsum succrescéntes, versátus, exínde divínitus incólumis, univérsis cívibus admirántibus exívit, in schola caritátis édocens segniórem in eum fuísse ignem, qui foris ússerat, quam qui intus accénderat.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio vi
+
+MULTIPLICI asperitátum génere, demissíssima obediéntia, extréma paupertáte, orándi stúdio, rerum divinárum contemplatióne, ac in beátam Vírginem pietáte mirífice excélluit, et lacrimárum dono enítuit. Dénique gravi morbo corréptus, ómnibus Ecclésiæ sacraméntis rite sanctéque reféctus, víribus licet destitútus, própriis indútus véstibus, e léctulo surgens ac provolútus in génua, manu et corde Christum Dóminum e cruce pendéntem perstríngens, octávo Idus Mártii anno millésimo quingentésimo quinquagésimo óbiit in ósculo Dómini: quem étiam mórtuus ténuit, nec dimísit, et in eádem córporis constitutióne sex círciter horas, quoúsque inde dimótus fuísset, tota civitáte inspectánte, mirabíliter permánsit, odórem mire fragrántem diffúndens. Quem ante et post óbitum plúrimis miráculis clarum, Alexánder octávus Póntifex máximus in Sanctórum número rétulit; et Leo décimus tértius, ex Sacrórum cathólici orbis antístitum voto ac Rítuum Congregatiónis consúlto, cæléstem ómnium hospitálium et infirmórum ubíque degéntium patrónum declarávit, ipsiúsque nomen in agonizántium litaníis invocári præcépit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est,

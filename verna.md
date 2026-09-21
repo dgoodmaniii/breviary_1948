@@ -31873,3 +31873,17 @@ Sermo sancti Leónis Papæ
 ###### Lectio iv
 
 DEUS omnípotens et clemens, cujus natúra bónitas, cujus volúntas poténtia, cujus opus misericórdia est, statim ut nos diabólica malígnitas venéno suæ mortificávit invídiæ, prædestináta renovándis mortálibus suæ pietátis remédia, inter ipsa mundi primórdia præsignávit; denúntians serpénti futúrum semen mulíeris, quod nóxii cápitis elatiónem sua virtúte contéreret, Christum scílicet in carne ventúrum; Deum hominémque signans, qui natus ex Vírgine, violatórem humánæ propáginis incorrúpta nativitáte damnáret.
+
+℟. Ecce virgo concípiet et páriet fílium, dicit Dóminus: \* Et vocábitur nomen ejus Admirábilis, Deus, Fortis. {RUBRIC: (T. P. Allelúja.)} ℣. Super sólium David, et super regnum ejus sedébit in ætérnum. — Et.
+
+###### Lectio v
+
+NAM quia gloriabátur diábolus hóminem sua fraude decéptum divínis caruísse munéribus, et immortalitátis dote nudátum, duram mortis subiísse senténtiam, seque in malis suis quoddam de prævaricatóris consórtio invenísse solátium; Deum quoque, justæ severitátis exigénte ratióne, erga hóminem, quem in tanto honóre condíderat, antíquam mutásse senténtiam: opus fuit, dilectíssimi, secréti dispensatióne consílii ut incommutábilis Deus, cujus volúntas non potest sua benignitáte privári, primam pietátis suæ dispositiónem sacraménto occultióre compléret; et homo diabólicæ iniquitátis versútia actus in culpam, contra Dei propósitum non períret.
+
+℟. Egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet: \* Et erit justítia cíngulum lumbórum ejus, et fides cinctórium renum ejus. {RUBRIC: (T. P. Allelúja.)} ℣. Et requiéscet super eum Spíritus Dómini: spíritus sapiéntiæ et intelléctus, spíritus consílii et fortitúdinis. — Et.
+
+###### Lectio vi
+
+ADVENIENTIBUS ergo témporibus, dilectíssimi, quæ redemptióni hóminum fúerant præstitúta, ingréditur hæc ínfima Jesus Christus, Dóminus noster, de cælésti sede descéndens, et a patérna glória non recédens, novo órdine, nova nativitáte generátus: novo órdine, quia, invisíbilis in suis, visíbilis factus est in nostris; incomprehensíbilis, vóluit comprehéndi; ante témpora manens, esse cœpit ex témpore; universitátis Dóminus servílem formam, obumbráta majestátis suæ dignitáte, suscépit; impassíbilis Deus, non dedignátus est homo esse passíbilis; et immortális, mortis légibus subjacére.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. {RUBRIC: (T. P. Allelúja.)} ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia. Glória Patri. Quia.

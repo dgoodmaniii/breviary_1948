@@ -30945,4 +30945,83 @@ Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
 
 Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
 
-Hic accípiet benedictiónem a Dómino: \* et
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Erat pater Jesu et Mater mirántes super his, quæ dicebántur de illo; et benedíxit illis Símeon.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Audiens Joseph quod Archeláus regnáret in Judǽa pro Heróde patre suo, tímuit illo ire, allelúja.
+
+℣. Justus germinábit sicut lílium. {RUBRIC: (T. P. Allelúja.)} ℟. Et florébit in ætérnum ante Dóminum. {RUBRIC: (T. P. Allelúja.)}
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 1, 18-21*
+
+CUM esset desponsáta Mater Jesu María Joseph, ántequam convenírent, invénta est in útero habens de Spíritu Sancto. Et réliqua.
+
+Homilía sancti Hierónymi Presbýteri
+
+{RUBRIC: Lib. 1 Comment. in c. 1 Matth.}
+
+QUARE non de símplici vírgine, sed de desponsáta concípitur? Primum, ut per generatiónem Joseph, orígo Maríæ monstrarétur: secúndo, ne lapidarétur a Judǽis ut adúltera: tértio, ut in Ægýptum fúgiens habéret solátium. Martyr Ignátius étiam quartam áddidit causam, cur a desponsáta concéptus sit: Ut partus, ínquiens, ejus celarétur diábolo, dum eum putat non de vírgine, sed de uxóre generátum.
+
+℟. Dicit Mater Jesu ad illum: Fili, quid fecísti nobis sic? \* Ecce pater tuus et ego doléntes quærebámus te. {RUBRIC: (T. P. Allelúja.)} ℣. Et ait ad illos: Quid est quod me quærebátis? nesciebátis quia in his quæ Patris mei sunt, opórtet me esse? — Ecce.
+
+###### Lectio viii
+
+ANTEQUAM convenírent, invénta est in útero habens de Spíritu Sancto. Non ab álio invénta est, nisi a Joseph, qui pene licéntia maritáli futúræ uxóris ómnia nóverat. Quod autem dícitur, Antequam convenírent; non séquitur ut póstea convénerint: sed Scriptúra quod factum non sit, osténdit.
+
+℟. Descéndit Jesus cum eis, et venit Názareth: \* Et erat súbditus illis. {RUBRIC: (T. P. Allelúja.)} ℣. Proficiébat sapiéntia, et ætáte, et grátia apud Deum et hómines. — Et. Glória Patri. Et.
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ, alias}
+
+###### Lectio ix
+
+JOSEPH autem vir ejus, cum esset justus, et nollet eam tradúcere, vóluit occúlte dimíttere eam. Si quis fornicáriæ conjúngitur, unum corpus effícitur, et in lege præcéptum est, non solum reos, sed et cónscios críminum obnóxios esse peccáti: quómodo Joseph, cum crimen celáret uxóris, justus scríbitur? Sed hoc testimónium Maríæ est, quod Joseph sciens illíus castitátem, et admírans quod evénerat, celat siléntio, cujus mystérium nesciébat.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Ibant paréntes Jesu \* per omnes annos in Jerúsalem, in die solémni Paschæ. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Psalmi de Dominica 1 loco. 49}
+
+**2** Cum redírent, \* remánsit puer Jesus in Jerúsalem, et non cognovérunt paréntes ejus. {RUBRIC: (T. P. Allelúja.)}
+
+**3** Non inveniéntes \* Jesum, regréssi sunt in Jerúsalem requiréntes eum; et post tríduum invenérunt illum in templo sedéntem in médio doctórum, audiéntem et interrogántem eos. {RUBRIC: (T. P. Allelúja.)}
+
+**4** Dixit Mater ejus \* ad illum: Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te. {RUBRIC: (T. P. Allelúja.)}
+
+**5** Descéndit Jesus \* cum eis, et venit Názareth, et erat súbditus illis. {RUBRIC: (T. P. Allelúja.)}
+
+###### Capitulum
+
+*Prov. 28, 26 et 27, 18*
+
+VIR fidélis multum laudábitur. Et, qui custos est Dómini sui, glorificábitur.
+
+###### Hymnus
+
+ISTE, quem læti cólimus, fidéles,
+Cujus excélsos cánimus triúmphos,
+Hac die Joseph méruit perénnis
+Gáudia vitæ.

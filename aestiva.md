@@ -15762,4 +15762,32 @@ NUnc enim, et ipsíus Dómini professióne, et fide nostra, vere caro est, et ve
 
 ##### Lectio ix
 
-QUod autem in nobis naturális hæc únitas sit, ipse ita testátus est: qui edit carnem meam et bibit sánguinem meum, in me manet, et ego in eo. Non enim quis in eo erit, nisi
+QUod autem in nobis naturális hæc únitas sit, ipse ita testátus est: qui edit carnem meam et bibit sánguinem meum, in me manet, et ego in eo. Non enim quis in eo erit, nisi in quo ipse fúerit; ejus tantum in se assúmptam habens carnem, qui suam súmpserit. Perféctæ autem hujus unitátis sacraméntum supérius jam docúerat, dicens: Sicut me misit vivens Pater, et ego vivo per Patrem; et qui mandúcat meam carnem, et ipse vivet per me. Vivit ergo per Patrem: et quo modo per Patrem vivit, eódem modo nos per carnem ejus vivémus.
+
+**Te Deum laudámus.** [7]
+
+{RUBRIC: Vésperæ de sequénti die Octáva.}
+
+{RUBRIC: Si tamen sequénti die occúrrat Festum Nativitátis S. Joánnis Baptístæ vel Ss. App. Petri et Pauli, in I Vésperis pro Commemoratióne præcedéntis diéi infra Octávam sumítur Ant. O sacrum convívium, ut in II Vésperis Festi. 310}
+
+## Feria V. In Octava Ssmi Corporis Christi
+
+*Duplex majus*
+
+#### In I Nocturno
+
+{RUBRIC: De primo libro Regum}
+
+##### Lectio i
+
+*Cap. 8, 4-14*
+
+COngregáti ergo univérsi majóres natu Israël venérunt ad Samuélem in Rámatha dixerúntque ei: Ecce tu senuísti, et fílii tui non ámbulant in viis tuis: constítue nobis regem, ut júdicet nos, sicut et univérsæ habent natiónes. Displícuit sermo in óculis Samuélis, eo quod dixíssent: Da nobis regem, ut júdicet nos. Et orávit Sámuel ad Dóminum.
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et.
+
+##### Lectio ii
+
+DIxit autem Dóminus ad Samuélem: Audi vocem pópuli in ómnibus quæ loquúntur tibi: non enim te abjecérunt sed me, ne regnem super eos. Juxta ómnia ópera sua, quæ fecérunt a die qua edúxi eos de Ægýpto usque ad diem hanc, sicut derelinquérunt me et serviérunt diis aliénis, sic fáciunt étiam tibi. Nunc ergo vocem eórum audi; verúmtamen contestáre eos et prǽdic eis jus regis, qui regnatúrus est super eos.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.

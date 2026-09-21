@@ -27326,3 +27326,27 @@ AVIS enim recte appellátus est Dóminus, quia corpus cárneum ad æthera librá
 Te Deum laudámus.
 
 {RUBRIC: Vesperæ de seq. die Octava.}
+
+---
+
+## Feria V. In Octava Ascensionis
+
+{RUBRIC: Duplex majus 601}
+
+#### In I Nocturno
+
+De Epístola beáti Pauli Apóstoli ad Ephésios
+
+#### Lectio i
+
+*Cap. 4, 1-21*
+
+OBSECRO ítaque vos ego vinctus in Dómino, ut digne ambulétis vocatióne, qua vocáti estis, cum omni humilitáte et mansuetúdine, cum patiéntia, supportántes ínvicem in caritáte, sollíciti serváre unitátem spíritus in vínculo pacis. Unum corpus, et unus spíritus, sicut vocáti estis in una spe vocatiónis vestræ. Unus Dóminus, una fides, unum baptísma. Unus Deus et Pater ómnium, qui est super omnes, et per ómnia, et in ómnibus nobis. Unicuíque autem nostrum data est grátia secúndum mensúram donatiónis Christi. Propter quod dicit: Ascéndens in altum, captívam duxit captivitátem: dedit dona homínibus.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+QUOD autem ascéndit, quid est, nisi quia et descéndit primum in inferióres partes terræ? Qui descéndit, ipse est et qui ascéndit super omnes cælos, ut impléret ómnia. Et ipse dedit quosdam quidem Apóstolos, quosdam autem Prophétas, álios vero Evangelístas, álios autem pastóres, et doctóres ad consummatiónem sanctórum in opus ministérii, in ædificatiónem córporis Christi: donec occurrámus omnes in unitátem fídei, et agnitiónis Fílii Dei, in virum perféctum, in mensúram ætátis plenitúdinis Christi: ut jam non simus párvuli, fluctuántes, et circumferámur omni vento doctrínæ in nequítia hóminum, in astútia ad circumventiónem erróris.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et oc-

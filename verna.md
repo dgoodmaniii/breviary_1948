@@ -50890,3 +50890,35 @@ In Cruce latébat sola Déitas,
 At hic latet simul et humánitas;
 Ambo tamen credens atque cónfitens,
 Peto quod petívit latro pænitens.
+
+Plagas, sicut Thomas, non intúeor,
+Deum tamen meum te confíteor:
+Fac me tibi semper magis crédere,
+In te spem habére, te dilígere.
+
+O memoriále mortis Dómini,
+Panis vivus, vitam præstans hómini,
+Præsta meæ menti de te vívere,
+Et te illi semper dulce sápere.
+
+Pie pellicáne, Jesu Dómine,
+Me immúndum munda tuo Sánguine,
+Cujus una stilla salvum fácere
+Totum mundum quit ab omni scélere.
+
+Jesu, quem velátum nunc aspício,
+Oro, fiat illud quod tam sítio:
+Ut, te reveláta cernens fácie,
+Visu sim beátus tuæ glóriæ. Amen.
+
+## Aspirationes S. Ignatii ad Sanctissimum Redemptorem
+
+{RUBRIC: Indulgentia septem annorum, si Sacerdos post Missam invocationes pie recitaverit; trecentorum dierum toties quoties; plenaria suetis conditionibus, dummodo quotidie per integrum mensem invocationum recitatio devote peracta fuerit. Pius Pp. IX, 9 Januarii 1854.}
+
+ANIMA Christi, sanctífica me. Corpus Christi, salva me. Sanguis Christi, inébria me. Aqua láteris Christi, lava me. Passio Christi, confórta me. O bone Jesu, exáudi me. Intra tua vúlnera abscónde me. Ne permíttas me separári a te. Ab hoste malígno defénde me. In hora mortis meæ voca me. Et jube me veníre ad te, ut cum Sanctis tuis laudem te in sǽcula sæculórum. Amen.
+
+## Oblatio Sui
+
+{RUBRIC: Indulgentia trium annorum; plenaria suetis conditionibus, si quotidie per integrum mensem actus oblationis devote recitatus fuerit. Pius Pp. XI, 4 Decembris 1932.}
+
+SUSCIPE, Dómine, univérsam meam libertátem. Accipe memóriam, intelléctum atque voluntátem omnem. Quidquid hábeo vel possídeo, mihi largítus es: id tibi totum restítuo, ac tuæ prorsus voluntáti trado gubernándum. Amórem tui solum cum grátia tua mihi dones, et dives sum satis, nec áliud quidquam ultra posco.

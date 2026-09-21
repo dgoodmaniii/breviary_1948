@@ -28691,4 +28691,56 @@ INTERCÉSSIO nos, quǽsumus Dómine, beáti Romuáldi Abbátis comméndet: ut, q
 
 ###### Oratio
 
-DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum de potestáte Saracenórum captívos cælitus institúere dignátus es: præsta, quǽsumus; ut, ejus suffragántibus méritis, a captivitáte córporis et ánimæ, te adju-
+DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum de potestáte Saracenórum captívos cælitus institúere dignátus es: præsta, quǽsumus; ut, ejus suffragántibus méritis, a captivitáte córporis et ánimæ, te adjuvánte, liberémur. Per Dóminum.
+
+##### Ad Laudes
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+℣. Justum dedúxit.
+
+---
+
+### Die 9 Februarii
+
+#### S. Cyrilli
+
+{RUBRIC: Ep. Alexandrini, Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex (m. t. v.) [84]}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Cyrílle, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEUS, qui beátum Cyríllum Confessórem tuum atque Pontíficem divínæ maternitátis beatíssimæ Vírginis Maríæ assertórem invíctum effecísti: concéde, ipso intercedénte; ut, qui vere eam Genitrícem Dei crédimus, matérna ejúsdem protectióne salvémur. (Per eúmdem Dóminum.)
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum de potestáte Saracenórum captívos cælitus institúere dignátus es: præsta, quǽsumus; ut, ejus suffragántibus méritis, a captivitáte córporis et ánimæ, te adjuvánte, liberémur. Per Dóminum.
+
+{RUBRIC: Deinde Commem. S. Apollóniæ Virg. et Mart.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Apollóniæ Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: In I Nocturno Lectiones Sapiéntiam, de Communi Doctórum. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+CYRILLUS Alexandrínus, cujus præcónia non uníus tantum vel altérius sunt com-

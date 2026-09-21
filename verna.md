@@ -26817,4 +26817,40 @@ SIGNA autem eos qui creditúri sunt, hæc sequéntur: In nómine meo dæmónia e
 
 #### Lectio viii
 
-HABEMUS de his signis atque virtútibus, quæ adhuc subtílius consideráre debeámus. Sancta quippe Ecclésia quotídie spiritáliter facit, quod tunc per Apóstolos corporáliter faciébat. Nam sacerdótes ejus cum per exorcísmi grátiam manum credéntibus impónunt, et habitáre malígnos spíritus in eórum mente contradícunt, quid áliud fáciunt, nisi dæmónia ejíciunt? Et fidéles quique, qui jam vitæ véteris sæculária verba derelínquunt, sancta autem mystéria ínsonant, Conditóris sui laudes et
+HABEMUS de his signis atque virtútibus, quæ adhuc subtílius consideráre debeámus. Sancta quippe Ecclésia quotídie spiritáliter facit, quod tunc per Apóstolos corporáliter faciébat. Nam sacerdótes ejus cum per exorcísmi grátiam manum credéntibus impónunt, et habitáre malígnos spíritus in eórum mente contradícunt, quid áliud fáciunt, nisi dæmónia ejíciunt? Et fidéles quique, qui jam vitæ véteris sæculária verba derelínquunt, sancta autem mystéria ínsonant, Conditóris sui laudes et poténtiam, quantum prǽvalent, narrant: quid áliud fáciunt, nisi novis linguis loquúntur? Qui dum bonis suis exhortatiónibus malítiam de aliénis córdibus áuferunt, serpéntes tollunt.
+
+℟. Ponis nubem ascénsum tuum, Dómine: \* Qui ámbulas super pennas ventórum, allelúja. ℣. Confessiónem et decórem indúisti, amíctus lumen sicut vestiméntum. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+ET dum pestíferas suasiónes áudiunt, sed tamen ad operatiónem pravam mínime pertrahúntur, mortíferum quidem est quod bibunt, sed non eis nocébit. Qui quóties próximos suos in bono ópere infirmári conspíciunt, dum eis tota virtúte concúrrunt, et exémplo suæ operatiónis illórum vitam róborant, qui in própria actióne títubant: quid áliud fáciunt, nisi super ægros manus impónunt, ut bene hábeant? Quæ nimírum miracula tanto majóra sunt, quanto spiritália; tanto majóra sunt, quanto per hæc non córpora, sed ánimæ suscitántur.
+
+Te Deum.
+
+{RUBRIC: Vesperæ de sequénti Dominica, Commemoratio præcedéntis diei infra Octavam.}
+
+---
+
+## Dominica infra Octavam Ascensionis
+
+{RUBRIC: Semiduplex}
+
+{RUBRIC: Omnia dicúntur ut in Ascensióne 600, præter sequéntia.}
+
+### In I Vesperis
+
+{RUBRIC: Añæ, Capítulum et Hymnus de Laudibus 627; Psalmi de Dominica 72, sed loco últimi, Ps. 116 Laudáte Dóminum. 92}
+
+℣. Dóminus in cælo, allelúja. ℟. Parávit sedem suam, allelúja.
+
+**Ad Magnif. Ant.** Cum vénerit Paráclitus, \* quem ego mittam vobis Spíritum veritátis, qui a Patre procédit, ille testimónium perhibébit de me, allelúja.
+
+#### Oratio
+
+OMNIPOTENS sempitérne Deus: fac nos tibi semper et devótam gérere voluntátem; et majestáti tuæ sincéro corde servíre. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis diei infra Octavam:}
+
+**Ant.** O rex glóriæ, Dómine virtútum, qui triumphátor hódie super omnes cælos ascendísti, ne derelínquas nos órphanos; sed mitte promíssum Patris in nos, Spíritum veritátis, allelúja.
+
+℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.

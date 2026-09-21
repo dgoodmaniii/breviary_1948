@@ -45110,4 +45110,30 @@ NEQUE inánis hæc cáutio est et vana formído, quæ ad salútis viam cónsulit
 
 ###### Lectio vi
 
-DENUO quoque per hanc Angeli vocem continéntiæ munus osténditur, virgínitas prædicátur: Hi sunt, qui cum muliéribus se non coinquinavérunt; vírgines enim permansérunt: hi sunt qui sequúntur Agnum quocúmque íerit. Neque enim tantum másculis continéntiæ grátiam Dóminus reprómittit, et féminas prǽterit; sed, quóniam fémina viri pórtio est et ex eo sumpta atque formáta est, in Scriptúris fere ómnibus ad protoplástum Deus lóquitur, quia sunt duo in carne una, et in másculo simul signíficátur et fémina. Quod si Christum continéntia séquitur, et regno Dei virgínitas destinátur; quid est
+DENUO quoque per hanc Angeli vocem continéntiæ munus osténditur, virgínitas prædicátur: Hi sunt, qui cum muliéribus se non coinquinavérunt; vírgines enim permansérunt: hi sunt qui sequúntur Agnum quocúmque íerit. Neque enim tantum másculis continéntiæ grátiam Dóminus reprómittit, et féminas prǽterit; sed, quóniam fémina viri pórtio est et ex eo sumpta atque formáta est, in Scriptúris fere ómnibus ad protoplástum Deus lóquitur, quia sunt duo in carne una, et in másculo simul signíficátur et fémina. Quod si Christum continéntia séquitur, et regno Dei virgínitas destinátur; quid est illis cum terréno cultu et cum ornaméntis, quibus, dum homínibus placére géstiunt, Deum offéndunt?
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur. Glória Patri. Afferéntur.
+
+{RUBRIC: In III Nocturno Homilia in Evangelium Símile est regnum cælórum thesáuro, ut infra in Communi non Virginum [154], cum Responsoriis pro Virgine ibi notatis.}
+
+---
+
+## III Alia Homilia
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 19, 3-12*
+
+IN illo témpore: Accessérunt ad Jesum pharisǽi, tentántes eum et dicéntes: Si licet hómini dimíttere uxórem suam quacúmque ex causa? Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+{RUBRIC: Homilia 63 in Matth., sub medium}
+
+DOMINUS noster, quia ad virginitátem hortári grave esse videbátur, a necessitáte legis de non solvéndo matrimónio, eos ad cupiditátem illíus tráhere studet. Deínde, ut eam esse possíbilem osténdat, sic inquit: Sunt eunúchi qui ex ventre matris ita nati sunt, et sunt qui ab homínibus eunúchi facti sunt, et sunt qui seípsos castravérunt propter regnum cælórum. Quibus verbis laténter eos ad eligéndam virginitátem indúcit, dum eam virtútem esse possíbilem ástruit.
+
+℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum: \* Et veniénte Dómino, introívit cum eo ad núptias. (T. P. Allelúja.) ℣. Média nocte clamor factus est: Ecce sponsus venit, exíte óbviam ei. — Et.
+
+###### Lectio viii
+
+ID autem hoc fere modo confírmat: Cógita tecum, si aut a natúra talis esses, aut ab homínibus eam injúriam passus, quid fáceres, cum et ejúsmodi voluptáte caréres, et nullam, caréndo, mercédem consequeréris? Grátias ígitur nunc Deo agas, quod cum mercéde atque corónis idem sústines, quod illi sine corónis ac prǽmio tólerant. Immo vero non idem, sed multo lévius; tum quia

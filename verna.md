@@ -28041,3 +28041,62 @@ VENI, Creátor Spíritus,
 Mentes tuórum vísita,
 Imple supérna grátia,
 Quæ tu creásti péctora.
+
+Qui díceris Paráclitus,
+Altíssimi donum Dei,
+Fons vivus, ignis, cáritas,
+Et spiritális únctio.
+
+Tu septifórmis múnere,
+Dígitus patérnæ déxteræ,
+Tu rite promíssum Patris,
+Sermóne ditans gúttura.
+
+Accénde lumen sénsibus:
+Infúnde amórem córdibus:
+Infírma nostri córporis
+Virtúte firmans pérpeti.
+
+Hostem repéllas lóngius,
+Pacémque dones prótinus:
+Ductóre sic te prǽvio
+Vitémus omne nóxium.
+
+Per te sciámus da Patrem,
+Noscámus atque Fílium,
+Teque utriúsque Spíritum
+Credámus omni témpore.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+**Ant.** Spíritus Dómini \* replévit orbem terrárum, allelúja.
+
+**Capitulum** Cum compleréntur, {RUBRIC: ut supra. 664}
+
+℟. br. Spíritus Dómini replévit orbem terrárum, \* Allelúja, allelúja. Spíritus. ℣. Et hoc quod cóntinet ómnia, sciéntiam habet vocis. Allelúja, allelúja. Glória Patri. Spíritus. ℣. Spíritus Paráclitus, allelúja. ℟. Docébit vos ómnia, allelúja.
+
+## Ad Sextam
+
+**Ant.** Repléti sunt omnes \* Spíritu Sancto, et cœpérunt loqui, allelúja, allelúja.
+
+**Capitulum** *Act. 2, 6*
+
+FACTA autem hac voce, convénit multitúdo, et mente confúsa est, quóniam audiébat unusquísque lingua sua illos loquéntes.
+
+℟. br. Spíritus Paráclitus, \* Allelúja, allelúja. Spíritus. ℣. Docébit vos ómnia. Allelúja, allelúja. Glória Patri. Spíritus.
+
+℣. Repléti sunt omnes Spíritu Sancto, allelúja. ℟. Et cœpérunt loqui, allelúja.
+
+## Ad Nonam
+
+**Ant.** Loquebántur \* váriis linguis Apóstoli magnália Dei, allelúja, allelúja, allelúja.
+
+**Capitulum** *Act. 2, 11*
+
+JUDÆI quoque et Prosélyti, Cretes et Arabes: audívimus eos loquéntes nostris linguis magnália Dei.
+
+℟. br. Repléti sunt omnes Spíritu Sancto, \* Allelúja, allelúja. Repléti. ℣. Et cœpérunt loqui. Allelúja, allelúja. Glória Patri. Repléti. ℣. Loquebántur váriis linguis Apóstoli, allelúja. ℟. Magnália Dei, allelúja.

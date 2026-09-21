@@ -26391,4 +26391,16 @@ Sermo sancti Leónis Papæ
 
 #### Lectio iv
 
-POST beátam et gloriósam resurrectiónem Dómini nostri Jesu Christi, qua verum Dei templum, Judáica impietáte resolútum, divína in tríduo poténtia suscitávit, quadragenárius hódie, dilectíssimi, sanctórum diérum explétus est númerus, sacratíssima ordinatióne dispósitus, et ad utilitátem nostræ eruditiónis impénsus: ut, dum
+POST beátam et gloriósam resurrectiónem Dómini nostri Jesu Christi, qua verum Dei templum, Judáica impietáte resolútum, divína in tríduo poténtia suscitávit, quadragenárius hódie, dilectíssimi, sanctórum diérum explétus est númerus, sacratíssima ordinatióne dispósitus, et ad utilitátem nostræ eruditiónis impénsus: ut, dum a Dómino in hoc spátio mora præséntiæ corporális exténditur, fides resurrectiónis documéntis necessáriis munirétur. Mors enim Christi multum discipulórum corda turbáverat: et de supplício crucis, de emissióne spíritus, de exanimáti córporis sepultúra gravátis mœstitúdine méntibus, quidam diffidéntiæ torpor obrépserat.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo.
+
+#### Lectio v
+
+UNDE beatíssimi Apóstoli, omnésque discípuli, qui et de éxitu crucis fúerant trépidi, et de fide resurrectiónis ambígui, ita sunt veritáte perspícua roboráti, ut, Dómino in cælórum eúnte sublímia, non solum nulla afficeréntur tristítia, sed étiam magno gáudio repleréntur. Et revéra magna et ineffábilis erat causa gaudéndi, cum in conspéctu sanctæ multitúdinis super ómnium creaturárum cæléstium dignitátem humáni géneris natúra conscénderet, supergressúra Angélicos órdines, et ultra Archangelórum altitúdines elevánda: nec ullis sublimitátibus modum suæ provectiónis habitúra, nisi ætérni Patris recépta conséssu, illíus glóriæ sociarétur in throno, cujus natúræ copulabátur in Fílio.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum.
+
+#### Lectio vi
+
+QUIA ígitur Christi ascénsio, nostra provéctio est; et quo præcéssit glória cápitis, eo spes vocátur et córporis: dignis, dilectíssimi, exsultémus gáudiis, et pia gratiárum actióne lætémur. Hódie enim non solum paradísi possessóres firmáti sumus, sed étiam cælórum in Christo supérna penetrávimus: amplióra adépti per ineffábilem Christi grátiam, quam per diáboli amiserámus invídiam. Nam quos viruléntus inimícus primi habitáculi fe-

@@ -19556,4 +19556,26 @@ VEritátem meditábitur guttur meum, et lábia mea detestabúntur ímpium; justi
 
 ##### Lectio iii
 
-EGO sapiéntia hábito in consílio et erudítis intérsum cogitatiónibus; ti-
+EGO sapiéntia hábito in consílio et erudítis intérsum cogitatiónibus; timor Dómini odit malum, arrogántiam et supérbiam et viam pravam et os bilíngue detéstor; meum est consílium et æquitas, mea est prudéntia, mea est fortitúdo; per me reges regnant, et legum conditóres justa decérnunt; per me príncipes ímperant, et poténtes decérnunt justítiam; ego diligéntes me díligo, et qui mane vígilant ad me, invénient me.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De Parábolis Salomónis}
+
+##### Lectio i
+
+*Cap. 10, 1-16*
+
+FIlius sápiens lætíficat patrem, fílius vero stultus mæstítia est matris suæ. Nihil próderunt thesáuri impietátis, justítia vero liberábit a morte. Non afflíget Dóminus fame ánimam justi, et insídias impiórum subvértet. Egestátem operáta est manus remíssa, manus autem fórtium divítias parat. Qui nítitur mendáciis, hic pascit ventos, idem autem ipse séquitur aves volántes. Qui cóngregat in messe, fílius sápiens est; qui autem stertit æstáte, fílius confusiónis.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+BEnedíctio Dómini super caput justi, os autem impiórum óperit iníquitas. Memória justi cum láudibus, et nomen impiórum putréscet. Sápiens corde præcépta súscipit, stultus cæditur lábiis. Qui ámbulat simplíciter, ámbulat confidénter; qui autem deprávat vias suas, maniféstus erit. Qui ánnuit óculo dabit dolórem, et stultus lábiis verberábitur.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.

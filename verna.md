@@ -19939,3 +19939,29 @@ QUÆSUMUS, omnípotens Deus, famíliam tuam propítius réspice: ut, te largién
 {RUBRIC: Ab his Vésperis usque ad Dominicam I post Pentecósten inclusive omíttitur Suffragium de ómnibus Sanctis, étiam in Festis.}
 
 {RUBRIC: Hódie et deínceps usque ad Fériam IV Majóris Hebdómadæ inclusíve, Responsória brévia ad Complétórium et ad Horas, in Officio tam dominicáli quam feriáli, dicúntur sine Glória Patri, prout in Psaltério pro Témpore Passiónis.}
+
+---
+
+## Dominica de Passione
+
+{RUBRIC: I classis} Semiduplex
+
+### Ad Matutinum
+
+{RUBRIC: Invitatorium Hódie et Hymnus Pange lingua, ut in Psalterio de Ordinario 42, Antiphonæ et Psalmi de Dominica 43, cum Versibus Nocturnorum de Tempore Passionis, ut in Psalterio: quæ dicuntur etiam in sequenti Dominica.}
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber Jeremíæ Prophétæ}
+
+#### Lectio i
+
+*Cap. 1, 1-19*
+
+VERBA Jeremíæ fílii Helcíæ, de sacerdótibus, qui fuérunt in Anathoth, in terra Bénjamin. Quod factum est verbum Dómini ad eum in diébus Josíæ fílii Amon regis Juda, in tertiodécimo anno regis ejus. Et factum est in diébus Jóakim fílii Josíæ regis Juda, usque ad consummatiónem undécimi anni Sedecíæ fílii Josíæ regis Juda, usque ad transmigratiónem Jerúsalem, in mense quinto. Et factum est verbum Dómini ad me, dicens: Priúsquam te formárem in útero, novi te: et ántequam exíres de vulva, sanctificávi te, et prophétam in géntibus dedi te. Et dixi, A a a, Dómine Deus: ecce néscio loqui, quia puer ego sum.
+
+℟. Isti sunt dies, quos observáre debétis tempóribus suis: \* Quartadécima die ad vésperum Pascha Dómini est: et in quintadécima solemnitátem celebrábitis altíssimo Dómino. ℣. Locútus est Dóminus ad Móysen, dicens: Lóquere fíliis Israël, et dices ad eos. — Quartadécima.
+
+#### Lectio ii
+
+ET dixit Dóminus ad me: Noli dícere, Puer sum: quóniam ad ómnia, quæ mittam te, ibis: et univérsa, quæcúmque mandávero tibi, loquéris. Ne tímeas a fácie eórum: quia tecum ego sum, ut éruam te, dicit Dóminus. Et misit Dóminus manum suam, et tétigit os meum: et dixit Dóminus ad me: Ecce dedi verba mea in ore tuo: ecce constítui te hódie super gentes, et super regna, ut evéllas, et déstruas, et dispérdas, et díssipes, et ædífices, et plantes. Et factum est verbum Dómini ad me, dicens: Quid tu vides, Jeremía? Et dixi: Virgam vigilántem ego vídeo. Et dixit Dóminus ad me: Bene vidísti, quia vigilábo ego super verbo meo, ut fáciam illud. Et factum est verbum Dómini se-

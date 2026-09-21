@@ -27242,3 +27242,29 @@ SEQUITUR: Illi autem profécti prædicavérunt ubíque, Dómino cooperánte et s
 Te Deum laudámus.
 
 ---
+
+## Feria IV infra Octavam Ascensionis
+
+{RUBRIC: Semiduplex 601}
+
+#### In I Nocturno
+
+Incipit Epístola secúnda beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Vers. 1-13*
+
+SENIOR Eléctæ dóminæ et natis ejus, quos ego díligo in veritáte, et non ego solus, sed et omnes qui cognovérunt veritátem, propter veritátem, quæ pérmanet in nobis et nobíscum erit in ætérnum. Sit vobíscum grátia, misericórdia, pax a Deo Patre et a Christo Jesu Fílio Patris in veritáte et caritáte. Gavísus sum valde, quóniam invéni de fíliis tuis ambulántes in veritáte sicut mandátum accépimus a Patre. Et nunc rogo te, dómina, non tamquam mandátum novum scribens tibi, sed quod habúimus ab inítio, ut diligámus altérutrum.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+ET hæc est cáritas, ut ambulémus secúndum mandáta ejus. Hoc est enim mandátum, ut quemádmodum audístis ab inítio, in eo ambulétis. Quóniam multi seductóres exiérunt in mundum, qui non confiténtur Jesum Christum venísse in carnem: hic est seductor et antichrístus. Vidéte vosmetípsos, ne perdátis quæ operáti estis, sed ut mercédem plenam accipiátis. Omnis, qui recédit, et non pérmanet in doctrína Christi, Deum non habet; qui pérmanet in doctrína, hic et Patrem et Fílium habet.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.
+
+#### Lectio iii
+
+SI quis venit ad vos et hanc doctrínam non affert, nolíte recípere eum in domum, nec Ave ei dixéritis. Qui enim dicit illi Ave, commúnicat opéribus ejus malígnis. Plura habens vobis scríbere, nó-

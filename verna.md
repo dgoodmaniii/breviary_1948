@@ -48740,4 +48740,54 @@ Firmaméntum est Dóminus timéntibus eum: \* et testaméntum ipsíus ut manifes
 
 Réspice in me, et miserére mei: \* quia únicus et pauper sum ego.
 
-Tribulatiónes cordis mei multiplicátæ sunt: \* de
+Tribulatiónes cordis mei multiplicátæ sunt: \* de necessitátibus meis érue me.
+
+Vide humilitátem meam, et labórem meum: \* et dimítte univérsa delícta mea.
+
+Réspice inimícos meos quóniam multiplicáti sunt, \* et ódio iníquo odérunt me.
+
+Custódi ánimam meam, et érue me: \* non erubéscam quóniam sperávi in te.
+
+Innocéntes et recti adhæsérunt mihi: \* quia sustínui te.
+
+Líbera, Deus, Israël, \* ex ómnibus tribulatiónibus suis.
+
+Réquiem ætérnam.
+
+**Ant.** Delícta juventútis meæ, et ignorántias meas ne memíneris, Dómine.
+
+**Ant.** Credo vidére \* bona Dómini in terra vivéntium.
+
+###### Psalmus 26
+
+DOMINUS illuminátio mea, et salus mea, \* quem timébo?
+
+Dóminus protéctor vitæ meæ, \* a quo trepidábo?
+
+Dum apprópiant super me nocéntes, \* ut edant carnes meas:
+
+Qui tríbulant me inimíci mei, \* ipsi infirmáti sunt, et cecidérunt.
+
+Si consístant advérsum me castra, \* non timébit cor meum.
+
+Si exsúrgat advérsum me prœlium, \* in hoc ego sperábo.
+
+Unam pétii a Dómino, hanc requíram, \* ut inhábitem in domo Dómini ómnibus diébus vitæ meæ:
+
+Ut vídeam voluptátem Dómini, \* et vísitem templum ejus.
+
+Quóniam abscóndit me in tabernáculo suo: \* in die malórum protéxit me in abscóndito tabernáculi sui.
+
+In petra exaltávit me: \* et nunc exaltávit caput meum super inimícos meos.
+
+Circuívi, et immolávi in tabernáculo ejus hóstiam vociferatiónis: \* cantábo, et psalmum dicam Dómino.
+
+Exáudi, Dómine, vocem meam, qua clamávi ad te: \* miserére mei, et exáudi me.
+
+Tibi dixit cor meum, exquisívit te fácies mea: \* fáciem tuam, Dómine, requíram.
+
+Ne avértas fáciem tuam a me: \* ne declínes in ira a servo tuo.
+
+Adjútor meus esto: \* ne derelínquas me, neque despícias me, Deus, salutáris meus.
+
+Quóniam pater meus, et mater mea dereliquérunt me: \* Dóminus autem assúmpsit me.

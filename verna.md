@@ -31786,4 +31786,42 @@ EGO autem veni ut indicárem tibi, quia vir desideriórum es. Septuagínta hebd�
 
 **Capitulum** *Dan. 9, 25*
 
-SCITO ergo et animadvérte: Ab éxitu sermónis ut íterum ædificétur
+SCITO ergo et animadvérte: Ab éxitu sermónis ut íterum ædificétur Jerúsalem, usque ad Christum ducem, hebdómades septem, et hebdómades sexagínta duæ erunt.
+
+℟. br. In conspéctu Angelórum \* Psallam tibi, Deus meus. In conspéctu. ℣. Adorábo ad templum sanctum tuum, et confitébor nómini tuo. Psallam. Glória Patri. In conspéctu. ℣. Adoráte Deum. ℟. Omnes Angeli ejus.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio tantum Feriæ.}
+
+{RUBRIC: ¶ Sicubi de hoc Festo íntegræ II Vésperæ sint dicéndæ}
+
+##### In II Vesperis
+
+{RUBRIC: Antiphonæ, Capitulum et Hymnus ut in I Vesperis 763; Psalmi de Dominica, sed loco últimi Psalmus 137 Confitébor tibi, Dómine, ut ibídem.}
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+**Ad Magnif. Ant.** Archángelus Gábriel \* ait ad Maríam: Non erit impossíbile apud Deum omne verbum. Dixit autem María: Ecce ancílla Dómini, fiat mihi secúndum verbum tuum. Et discéssit ab ea Angelus.
+
+###### Oratio
+
+DEUS, qui inter céteros Angelos, ad annuntiándum incarnatiónis tuæ mystérium, Gabriélem Archángelum elegísti: concéde propítius; ut qui festum ejus celebrámus in terris, ipsíus patrocínium sentiámus in cælis: Qui vivis.
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## Die 25 Martii
+
+# In Annuntiatione B. Mariæ Virg.
+
+{RUBRIC: Duplex I classis}
+
+{RUBRIC: Omnia de Communi Festorum B. Mariæ Virg. [195], præter ea quæ hic habentur propria.}
+
+### In I Vesperis
+
+{RUBRIC: Añæ et Capitulum de Laudibus 784; Hymnus Ave, maris stella, de Communi. [197]}
+
+℣. Ave, María, grátia plena. {RUBRIC: (T. P. Allelúja.)} ℟. Dóminus tecum. {RUBRIC: (T. P. Allelúja.)}
+
+**Ad Magnif. Ant.** Spíritus Sanctus \* in te descéndet, María, et virtus Altíssimi obumbrábit tibi. {RUBRIC: (T. P. Allelúja.)}

@@ -14181,3 +14181,53 @@ DUO sunt ópera misericórdiæ, quæ nos líberant, quæ bréviter ipse Dóminus
 **3** Glória laudis \* résonet in ore ómnium, Patri, genitæque Proli, Spirítui Sancto páriter resúltet laude perénni.
 
 **4** Laus Deo Patri, \* parilíque Proli, et tibi, Sancte, stúdio perénni, Spíritus, nostro résonet ab ore, omne per ævum.
+
+**5** Ex quo ómnia, \* per quem ómnia, in quo ómnia: ipsi glória in sæcula.
+
+**Capitulum** *Rom. 11, 33*
+
+O Altitúdo divitiárum sapiéntiæ et sciéntiæ Dei: quam incomprehensíbilia sunt judícia ejus, et investigábiles viæ ejus!
+
+#### Hymnus
+
+TU, Trinitátis Únitas,
+Orbem poténter quæ regis,
+Atténde laudis cánticum,
+Quod excubántes psállimus.
+
+Ortus refúlget Lúcifer,
+Præítque solem núntius:
+Cadunt tenébræ nóctium:
+Lux sancta nos illúminet.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus et superexaltémus eum in sæcula.
+
+**Ad Bened. Ant.** Benedícta sit \* sancta creátrix et gubernátrix ómnium, sancta et indivídua Trínitas, nunc, et semper, et per infiníta sæcula sæculórum.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui dedísti fámulis tuis in confessióne veræ fídei, ætérnæ Trinitátis glóriam agnóscere, et in poténtia majestátis adoráre Unitátem: quæsumus; ut, ejúsdem fídei firmitáte, ab ómnibus semper muniámur advérsis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Domínicæ.}
+
+**Ant.** Estóte ergo misericórdes, sicut et Pater vester miséricors est, dicit Dóminus.
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Oratio**
+
+DEus, in te sperántium fortitúdo, adésto propítius invocatiónibus nostris: et quia sine te nihil potest mortális infírmitas, præsta auxílium grátiæ tuæ; ut in exsequéndis mandátis tuis, et voluntáte tibi et actióne placeámus. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Domínica, ad Primam tamen ut in Festis, addíto Symbolo Quicúmque, ut in Psaltério. 44}
+
+### Ad Tertiam
+
+**Capit.** O altitúdo, ut supra.
+
+℟. br. Benedicámus Patrem et Fílium \* Cum Sancto Spíritu. Benedicámus. ℣. Laudémus et superexaltémus eum in sæcula. Cum. Glória Patri. Benedicámus.

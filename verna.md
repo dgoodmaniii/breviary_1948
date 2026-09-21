@@ -35954,4 +35954,54 @@ HELENA, salutári Cruce invénta, magnificentíssimam ibi exstrúxit ecclésiam,
 
 ###### In III Nocturno
 
-**Ant.** Adorámus te, Christe, \* et benedícimus tibi, quia per Crucem tuam
+**Ant.** Adorámus te, Christe, \* et benedícimus tibi, quia per Crucem tuam redemísti mundum, allelúja.
+
+###### Psalmus 95
+
+CANTATE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter Gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii Géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ Géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra: commoveátur mare, et plenitúdo ejus: \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit: \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+###### Psalmus 96
+
+DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem ter-

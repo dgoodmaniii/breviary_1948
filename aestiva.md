@@ -18470,4 +18470,26 @@ FActum est autem cum perfecísset Sálomon ædifícium domus Dómini et ædifíc
 
 SI autem aversióne avérsi fuéritis vos et fílii vestri non sequéntes me nec custodiéntes mandáta mea et cæremónias meas, quas propósui vobis, sed abiéritis et coluéritis deos aliénos et adoravéritis eos; áuferam Israël de superfície terræ quam dedi eis, et templum quod sanctificávi nómini meo projíciam a conspéctu meo, erítque Israël in provérbium et in fábulam cunctis pópulis, et domus hæc erit in exémplum: omnis qui transíerit per eam stupébit et sibilábit et dicet: Quare fecit Dóminus sic terræ huic et dómui huic? Et respondébunt: Quia dereliquérunt Dóminum, Deum suum, qui edúxit patres eórum de terra Ægýpti, et secúti sunt deos aliénos et adoravérunt eos et coluérunt eos; idcírco indúxit Dóminus super eos omne malum hoc.
 
-℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne miseri-
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et unxit me unctióne misericórdiæ suæ.
+
+##### Lectio iii
+
+EXplétis autem annis vigínti postquam ædificáverat Sálomon duas domos, id est domum Dómini et domum regis (Hiram rege Tyri præbénte Salomóni ligna cédrina et abiégna et aurum juxta omne quod opus habúerat), tunc dedit Sálomon Hiram vigínti óppida in terra Galilǽæ. Et egréssus est Hiram de Tyro ut vidéret óppida, quæ déderat ei Sálomon, et non placuérunt ei, et ait: Hǽcine sunt civitátes, quas dedísti mihi, frater? Et appellávit eas terram Chabul usque in diem hanc. Misit quoque Hiram ad regem Salomónem centum vigínti talénta auri.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse me erípiet de mánibus.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro sancti Augustíni Epíscopi de Civitáte Dei}
+
+{RUBRIC: Liber 17, cap. 8, sub médio}
+
+##### Lectio iv
+
+FActa est quidem nonnúlla imágo rei futúræ étiam in Salomóne, in eo quod templum ædificávit, et pacem hábuit secúndum nomen suum (Sálomon quippe pacíficus est Latíne), et in exórdio regni sui mirabíliter laudábilis fuit. Sed eádem sua persóna per umbram futúri prænuntiábat étiam ipse Christum Dóminum nostrum, non exhibébat. Unde quædam de illo ita scripta sunt, quasi de ipso ista prædícta sint, dum Scriptúra sancta étiam rebus gestis prophétans, quodámmodo in eo figúram delíneat futurórum.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio v
+
+NAM præter libros divínæ históriæ, ubi regnásse narrátur, Psalmus

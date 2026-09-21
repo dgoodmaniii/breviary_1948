@@ -16449,3 +16449,44 @@ ET de látere Christi dormiéntis in cruce formarétur Ecclésia, et Scriptúra 
 QUia semel vénimus ad Cor Dómini Jesu dulcíssimi, et bonum est nos hic esse, non fácile evellámur ab eo. O quam bonum et jucúndum habitáre in Corde hoc. Bonus thesáurus, pretiósa margaríta Cor tuum, óptime Jesu, quam fosso agro córporis tui invénimus. Quis hanc margarítam abjíciat? Quin pótius, dabo omnes margarítas, cogitatiónes et affectiónes meas commutábo et comparábo illam mihi, jactans omnem cogitátum meum in Cor boni Jesu, et sine fallácia illud me enútriet. Hoc ígitur tuo et meo Corde, dulcíssime Jesu, invénto, orábo te Deum meum: admítte in sacrárium exauditiónis preces meas: immo me totum trahe in Cor tuum.
 
 ℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et ambulémus. Glória Patri. Et ambulémus in dilectióne.
+
+##### Lectio ix
+
+ADhoc enim perforátum est latus tuum, ut nobis páteat intróitus. Ad hoc vulnerátum est Cor tuum, ut in illo ab exterióribus turbatiónibus absolúti habitáre possímus. Nihilóminus et proptérea vulnerátum est, ut per vulnus visíbile, vulnus amóris invisíbile videámus. Quómodo hic ardor mélius posset osténdi, nisi quod non solum corpus, verum étiam ipsum Cor láncea vulnerári permísit? Carnále ergo vulnus, vulnus spirituále osténdit. Quis illud Cor tam vulnerátum non díligat? quis tam amántem non rédamet? quis tam castum non amplectátur? Nos ígitur adhuc in carne manéntes, quantum póssumus, amántem redamémus, amplectámur vulnerátum nostrum, cujus ímpii agrícolæ fodérunt manus et pedes, latus et Cor; oremúsque ut cor nostrum, adhuc durum et impœnitens, amóris sui vínculo constríngere et jáculo vulneráre dignétur.
+
+**Te Deum laudámus.**
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ:}
+
+**1** Unus mílitum \* láncea latus ejus apéruit et contínuo exívit sanguis et aqua.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Stans Jesus \* clamábat dicens: Si quis sitit véniat ad me et bibat.
+
+**3** In caritáte perpétua \* diléxit nos Deus, ídeo, exaltátus a terra, attráxit nos ad Cor suum, míserans.
+
+**4** Veníte ad me \* omnes qui laborátis et oneráti estis et ego refíciam vos.
+
+**5** Fili, \* præbe mihi cor tuum et óculi tui custódiant vias meas.
+
+**Capitulum** *Ephes. 3, 8-9*
+
+FRatres, mihi ómnium sanctórum mínimo data est grátia hæc, in géntibus evangelizáre investigábiles divítias Christi; et illumináre omnes, quæ sit dispensátio sacraménti abscónditi a sæculis in Deo.
+
+##### Hymnus
+
+COR, arca legem cóntinens
+Non servitútis véteris,
+Sed grátiæ, sed véniæ,
+Sed et misericórdiæ.
+
+Cor, sanctuárium novi
+Intemerátum fœderis,
+Templum vetústo sánctius,
+Velúmque scisso utílius.
+
+Te vulnerátum cáritas
+Ictu paténti vóluit,

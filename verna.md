@@ -20495,3 +20495,25 @@ Amen.
 OMNIPOTENS sempitérne Deus, qui humáno géneri, ad imitándum humilitátis exémplum, Salvatórem nostrum carnem súmere, et crucem subíre fecísti: concéde propítius; ut et patiéntiæ ipsíus habére documénta, et resurrectiónis consórtia mereámur. Per eúmdem Dóminum.
 
 ---
+
+## Dominica in Palmis
+
+{RUBRIC: I classis} Semiduplex
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+{RUBRIC: De Jeremía Prophéta}
+
+#### Lectio i
+
+*Cap. 2, 12-22*
+
+OBSTUPESCITE, cæli, super hoc, et, portæ ejus, desolámini vehiménter, dicit Dóminus. Duo enim mala fecit pópulus meus: Me dereliquérunt fontem aquæ vivæ, et fodérunt sibi cistérnas, cistérnas dissipátas, quæ continére non valent aquas. Numquid servus est Israël, aut vernáculus? Quare ergo factus est in prædam? Super eum rugiérunt leónes, et dedérunt vocem suam, posuérunt terram ejus in solitúdinem: civitátes ejus exústæ sunt, et non est qui hábitet in eis. Fílii quoque Mémpheos et Taphnes constupravérunt te usque ad vérticem. Numquid non istud factum est tibi, quia dereliquísti Dóminum Deum tuum eo témpore, quo ducébat te per viam?
+
+℟. In die qua invocávi te, Dómine, dixísti: Noli timére: \* Judicásti causam meam, et liberásti me, Dómine Deus meus. ℣. In die tribulatiónis meæ clamávi ad te, quia exaudísti me. — Judicásti.
+
+#### Lectio ii
+
+ET nunc quid tibi vis in via Ægýpti, ut bibas aquam túrbidam? et quid tibi cum via Assyriórum, ut bibas aquam flúminis? Arguet te malítia tua, et avérsio tua increpábit te. Scito, et vide quia malum et amárum est reliquísse te Dóminum Deum tuum, et non esse timórem mei apud te, dicit Dóminus Deus exercítuum. A sæculo confregísti jugum meum, rupísti víncula mea, et dixísti: Non sérviam. In omni enim colle sublími, et sub omni ligno frondóso tu prosternebáris méretrix. Ego autem plantávi te víneam eléctam, omne semen verum: quómodo ergo convérsa es mihi in pravum, vínea aliéna?, Si láveris te nitro, et multiplicáveris tibi herbam borith, maculáta es in iniquitáte tua

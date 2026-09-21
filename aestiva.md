@@ -14765,3 +14765,51 @@ DOminus regit me, et nihil mihi déerit: \* in loco páscuæ ibi me collocávit.
 Super aquam refectiónis educávit me: \* ánimam meam convértit.
 
 Dedúxit me super sémitas justítiæ, \* propter nomen suum.
+
+Nam, et si ambulávero in médio umbræ mortis, non timébo mala: \* quóniam tu mecum es.
+
+Virga tua, et báculus tuus: \* ipsa me consoláta sunt.
+
+Parásti in conspéctu meo mensam, \* advérsus eos, qui tríbulant me.
+
+Impinguásti in óleo caput meum: \* et calix meus inébrians quam præclárus est!
+
+Et misericórdia tua subsequétur me \* ómnibus diébus vitæ meæ:
+
+Et ut inhábitem in domo Dómini, \* in longitúdinem diérum.
+
+**Ant.** Parátur nobis mensa Dómini advérsus omnes, qui tríbulant nos.
+
+**Ant.** In voce exsultatiónis \* résonent epulántes in mensa Dómini.
+
+##### Psalmus 41
+
+QUemádmodum desíderat cervus ad fontes aquárum: \* ita desíderat ánima mea ad te, Deus.
+
+Sitívit ánima mea ad Deum fortem vivum: \* quando véniam, et apparébo ante fáciem Dei?
+
+Fuérunt mihi lácrimæ meæ panes die ac nocte: \* dum dícitur mihi quotídie: Ubi est Deus tuus?
+
+Hæc recordátus sum, et effúdi in me ánimam meam: \* quóniam transíbo in locum tabernáculi admirábilis, usque ad domum Dei.
+
+In voce exsultatiónis, et confessiónis: \* sonus epulántis.
+
+Quare tristis es, ánima mea? \* et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+Ad meípsum ánima mea conturbáta est: \* proptérea memor ero tui de terra Jordánis, et Hermóniim a monte módico.
+
+Abýssus abýssum ínvocat, \* in voce cataractárum tuárum.
+
+Omnia excélsa tua, et fluctus tui \* super me transiérunt.
+
+In die mandávit Dóminus misericórdiam suam: \* et nocte cánticum ejus.
+
+Apud me orátio Deo vitæ meæ, \* dicam Deo: Suscéptor meus es.
+
+Quare oblítus es mei? \* et quare contristátus incédo, dum afflígit me inimícus?
+
+Dum confringúntur ossa mea, \* exprobravérunt mihi qui tríbulant me inimíci mei.
+
+Dum dicunt mihi per síngulos dies: Ubi est Deus tuus? \* quare tristis es, ánima mea? et quare contúrbas me?

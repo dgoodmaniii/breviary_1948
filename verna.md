@@ -25713,3 +25713,45 @@ Victor, subáctis ínferis,
 Trophæa Christus éxplicat;
 Cælóque apérto, súbditum
 Regem tenebrárum trahit.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum,
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Usque modo \* non petístis quidquam in nómine meo: pétite, et accipiétis, allelúja.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Pétite, et accipiétis, \* ut gáudium vestrum sit plenum: ipse enim Pater amat vos, quia vos me amástis, et credidístis, allelúja.
+
+#### Oratio
+
+DEUS, a quo bona cuncta procédunt, largíre supplícibus tuis: ut cogitémus, te inspiránte, quæ recta sunt; et, te gubernánte, eádem faciámus. Per Dóminum.
+
+---
+
+## Dom. V post Pascha
+
+{RUBRIC: Semiduplex}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+Incipit Epístola prima beáti Petri Apóstoli
+
+#### Lectio i
+
+*Cap. 1, 1-21*
+
+PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ, Cappadóciæ, Asiæ et Bithýniæ secúndum præsciéntiam Dei Patris, in sanctificatiónem Spíritus, in obediéntiam, et aspersiónem sánguinis Jesu Christi: Grátia vobis, et pax multiplicétur. Benedíctus Deus et Pater Dómini nostri Jesu Christi, qui secúndum misericórdiam suam magnam regenerávit nos in spem vivam, per resurrectiónem Jesu Christi ex mórtuis, in hereditátem incorruptíbilem, et incontaminátam, et immarcescíbilem, conservátam in cælis in vobis, qui in virtúte Dei custodímini per fidem in salútem, parátam revelári in témpore novíssimo.
+
+℟. Si oblítus fúero tui, allelúja, obliviscátur mei déxtera mea: \* Adhǽreat lingua mea fáucibus meis, si non memínero tui, alle-

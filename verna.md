@@ -32125,3 +32125,49 @@ DIXIT hómini: Exténde manum tuam; et exténdit, et restitúta est manus illíu
 OMNIPOTENS sempitérne Deus, qui, ad cultum sacrárum imáginum asseréndum, beátum Joánnem cælésti doctrína et admirábili spíritus fortitúdine imbuísti: concéde nobis ejus intercessióne et exémplo; ut, quorum cólimus imágines, virtútes imitémur et patrocínia sentiámus. Per Dóminum.
 
 {RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Joánnes, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Et fit Commemoratio sequentis et, in Quadragesima, Feriæ.}
+
+---
+
+### Die 28 Martii
+
+#### S. Joannis a Capistrano
+
+{RUBRIC: Conf. Semiduplex}
+
+{RUBRIC: (m. t. v.) [111]}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram. {RUBRIC: (T. P. Allelúja.)}
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEUS, qui per beátum Joánnem fidéles tuos in virtúte sanctíssimi nóminis Jesu de crucis inimícis triumpháre fecísti: præsta, quǽsumus; ut, spirituálium hóstium, ejus intercessióne, superátis insídiis, corónam justítiæ a te accípere mereámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+JOANNES, Capistráni in Pelígnis ortus et Perúsium studiórum causa missus, in christiánis et liberálibus disciplínis ádeo profécit, ut ob egrégiam juris sciéntiam áliquot civitátibus a Neápolis rege Ladisláo præféctus fúerit. Dum autem eárum rempúblicam sanctíssime gerens perturbátis rebus tranquillitátem revocáre studet, cápitur ipse et in víncula conjícitur; quibus mirabíliter eréptus, Francísci Assisiénsis régulam inter fratres Minóres profitétur. Ad divinárum litterárum stúdium progréssus, præceptórem nactus est sanctum Bernardínum Senénsem, cujus et virtútis exémpla, in cultu potíssimum sanctíssimi nóminis Jesu ac Deíparæ propagándo, egrégie est imitátus. Aquilánum episcopátum recusávit, et severióre discíplina atque scriptis, quæ plúrima édidit ad mores reformándos, máxime enítuit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit illi claritátem ætérnam.
+
+###### Lectio v
+
+PRÆDICATIONI verbi Dei sédulo incúmbens, Itáliam fere univérsam lustrávit; quo in múnere et virtúte sermónis et miraculórum frequéntia innúmeras prope ánimas in viam salútis redúxit. Eum Martínus quintus ad exstinguéndam Fraticellórum sectam inquisitórem instítuit. A Nicoláo quinto contra Judǽos et Saracénos generális inquisítor in Itália constitútus, plúrimos ad Christi fidem convértit. In Oriénte multa óptime constítuit, et in concílio Florentíno, ubi véluti sol quidam fulsit, Arménos Ecclésiæ cathólicæ restítuit. Idem Póntifex, postulánte Friderico tértio imperatóre, illum apostólicæ Sedis núntium in Germániam legávit, ut hæréticos ad cathólicam fidem et príncipum ánimos ad concórdiam revocáret. In Germánia aliísque provínciis Dei glóriam sexennáli ministério mirífice auxit, Hussítis, Adamítis, Thaborítis, Hebrǽisque innúmeris doctrínæ veritáte ac miraculórum luce ad Ecclésiæ sinum tradúctis.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio vi
+
+CUM Callístus tértius, ipso potíssimum deprecánte, cruce signátos míttere decrevísset, Joánnes per Pannóniam aliásque províncias volitávit, qua verbo, qua lítteris príncipum ánimos ita ad bellum accéndit, ut brevi míllia Christianórum septuagínta conscrípta sint. Ejus consílio et virtúte potíssimum Taurunénsis victória reláta est, centum ac vigínti Turcárum míllibus partim cǽsis, partim fugátis. Cujus victóriæ cum Romam núntius venísset octávo Idus Augústi, idem Callístus ejus diéi memóriæ solémnia Transfiguratiónis Christi Dómini perpétuo consecrávit. Lethali morbo ægrótum et Villácum delátum viri príncipes plures visitárunt; quos ipse ad tuéndam religiónem hortátus, ánimam Deo sancte réddidit anno salútis millésimo quadringentésimo quinquagésimo sexto. Ejus

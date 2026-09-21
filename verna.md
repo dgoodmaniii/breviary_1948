@@ -36479,4 +36479,46 @@ MATER póstulat, et Dóminus discípulis lóquitur, intélligens preces ejus ex 
 
 ###### Lectio ix
 
-QUÆRITUR quómodo cálicem martýrii fílii Zebedǽi, Jacóbus vidélicet et Joánnes, bíberint; cum Scriptúra narret Jacóbum tantum Apóstolum ab Heróde cápite truncátum, Joánnes autem própria morte vitam finíerit. Sed, si legámus ecclesiásticas histórias, in quibus fertur quod et ipse propter martýrium sit missus in fervéntis ólei dólium, et inde ad suscipiéndam corónam Christi athléta procésserit, statímque relegátus in Patmos ínsulam sit; vidébimus martýrio ánimum non defuísse, et bibísse Joánnem cálicem
+QUÆRITUR quómodo cálicem martýrii fílii Zebedǽi, Jacóbus vidélicet et Joánnes, bíberint; cum Scriptúra narret Jacóbum tantum Apóstolum ab Heróde cápite truncátum, Joánnes autem própria morte vitam finíerit. Sed, si legámus ecclesiásticas histórias, in quibus fertur quod et ipse propter martýrium sit missus in fervéntis ólei dólium, et inde ad suscipiéndam corónam Christi athléta procésserit, statímque relegátus in Patmos ínsulam sit; vidébimus martýrio ánimum non defuísse, et bibísse Joánnem cálicem confessiónis, quem et tres púeri in camíno ignis bibérunt, licet persecútor non fúderit sánguinem.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui cónspicis quia nos úndique mala nostra pertúrbant: præsta, quǽsumus; ut beáti Joánnis Apóstoli tui et Evangelístæ intercéssio gloriósa nos prótegat. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Pretiósa in conspéctu.
+
+**Ad Magnif. Ant.** In fervéntis \* ólei dólium missus beátus Joánnes Apóstolus, divína se protegénte grátia, illǽsus exívit, allelúja.
+
+{RUBRIC: Et fit Commem. sequéntis.}
+
+---
+
+### Die 7 Maji
+
+#### S. Stanislai Episcopi et Martyris
+
+{RUBRIC: Duplex [74]}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+DEUS, pro cujus honóre gloriósus Póntifex Stanisláus gládiis impiórum occúbuit: præsta, quǽsumus; ut omnes, qui ejus implórant auxílium, petitiónis suæ salutárem consequántur efféctum. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+STANISLAUS Polónus, apud Cracóviam nóbili génere natus et piis paréntibus, qui ántea per annos trigínta stériles, illum a Deo précibus impetrárunt, ab ineúnte ætáte futúræ sanctitátis spécimen dedit. Adoléscens bonis ártibus óperam navávit, multúmque in sacra canónum et theologíæ doctrína profécit. Paréntibus mórtuis, amplum patrimónium paupéribus distríbuit, vitæ monásticæ desidério. Sed Dei providéntia canónicus

@@ -12213,3 +12213,65 @@ Et benedíxit eis, et multiplicáti sunt nimis: \* et juménta eórum non minor�
 Et pauci facti sunt: \* et vexáti sunt a tribulatióne malórum, et dolóre.
 
 Effúsa est contémptio super príncipes: \* et erráre fecit eos in ínvio, et non in via.
+
+Et adjúvit páuperem de inópia: \* et pósuit sicut oves famílias.
+
+Vidébunt recti, et lætabúntur: \* et omnis iníquitas oppilábit os suum.
+
+Quis sápiens et custódiet hæc? \* et intélliget misericórdias Dómini?
+
+**Ant.** Vidébunt recti, et lætabúntur, et intélligent misericórdias Dómini.
+
+#### In feriali Officio in Officio sanctæ Mariæ in Sabbato et in Festis:
+
+℣. Exáltent Dóminum in ecclésia plebis. ℟. Et in cáthedra seniórum laudent eum.
+
+#### In Officio novem Lectionum
+
+**Absolutio.** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 {RUBRIC: In Festis Domini:} Divínum auxílium. {RUBRIC: In Festis B. M. V.:} Cujus festum cólimus, ipsa Virgo. {RUBRIC: In Festis Sanctorum:} Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absolutio.** A vínculis.
+
+##### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+#### In Octava simplici:
+
+**Bened.** 1 Ille nos benedícat. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+#### In Officio sanctæ Mariæ in Sabbato
+
+**Absol.** Précibus et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. Amen.
+
+**Bened.** 1 Nos cum prole pia benedícat Virgo María. Amen.
+
+2 Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. Amen.
+
+3 Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. Amen.
+
+---
+
+## Ad Laudes I
+
+*In Sabbatis extra Vigílias commúnes occurréntibus, in Festis novem Lectiónum, in ómnibus Officiis de Octáva non privilegiáta, atque in Officio sanctæ Maríæ in Sabbato.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Fílii Sion \* exsúltent in Rege suo.
+
+### Psalmus 149
+
+CAntáte Dómino cánticum novum: \* laus ejus in ecclésia sanctórum.
+
+Lætétur Israël in eo, qui fecit eum: \* et fílii Sion exsúltent in rege suo.
+
+Laudent nomen ejus in choro: \* in týmpano, et psaltério psallant ei:
+
+Quia beneplácitum est Dómino in pópulo suo: \*

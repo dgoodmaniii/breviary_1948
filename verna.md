@@ -29059,3 +29059,59 @@ Intácta sola pérmanes.
 
 Fatále virus évomens
 Attóllit ánguis vérticem;
+
+At tu dracónis túrgidum
+Invícta cónteris caput.
+
+Mater benígna, réspice
+Fletus precésque súpplicum,
+Et dimicántes, tártari
+Victrix, tuére ab hóstibus.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Præclára salútis auróra, \* ex te, Virgo María, exívit sol justítiæ, qui visitávit nos óriens ex alto.
+
+###### Oratio
+
+DEUS, qui per immaculátam Vírginis Conceptiónem dignum Fílio tuo habitáculum præparásti: súpplices a te quǽsumus; ut ejúsdem Vírginis Apparitiónem celebrántes, salútem mentis et córporis consequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### Ad Primam
+
+**Ant.** Candor est, {RUBRIC: ut supra. 696}
+
+##### Ad Tertiam
+
+**Ant.** Múlier, {RUBRIC: ut supra. 696}
+
+**Capitulum** Surge, {RUBRIC: ut supra. 696}
+
+℟. br. Quæ est ista, quæ ascéndit de desérto, \* Delíciis áffluens? Quæ. ℣. Inníxa super diléctum suum. Delíciis áffluens. Glória Patri. Quæ. ℣. Vidérunt eam fíliæ Sion. ℟. Et beatíssimam prædicavérunt.
+
+##### Ad Sextam
+
+**Ant.** Tu glória Jerúsalem, {RUBRIC: ut supra. 696}
+
+**Capit.** *Prov. 8, 18-19*
+
+MECUM sunt divítiæ et glória, opes supérbæ et justítia: mélior est enim fructus meus auro et lápide pretióso.
+
+℟. br. Ego Mater \* Pulchræ dilectiónis. Ego Mater. ℣. Et timóris et agnitiónis et sanctæ spei. Pulchræ dilectiónis. Glória Patri. Ego Mater. ℣. In me omnis grátia viæ et veritátis. ℟. In me omnis spes vitæ et virtútis.
+
+##### Ad Nonam
+
+**Ant.** Hódie nomen tuum, {RUBRIC: ut supra. 696}
+
+**Capit.** *Eccli. 24, 25-26*
+
+IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis implémini.
+
+℟. br. Qui me invénerit \* Invéniet vitam. Qui.

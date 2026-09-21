@@ -19329,3 +19329,31 @@ VIgínti quinque annórum erat Jóakim, cum regnáre cœpísset, et úndecim ann
 *Cap. 24, 1-7*
 
 IMmisítque ei Dóminus latrúnculos Chaldæórum et latrúnculos Sýriæ et latrúnculos Moab et latrúnculos filiórum Ammon, et immísit eos in Judam ut dispérderent eum, juxta verbum Dómini quod locútus fúerat per servos suos prophétas. Factum est autem hoc per verbum Dómini contra Judam, ut auférret eum coram se propter peccáta Manásse univérsa quæ fecit, et propter sánguinem innóxium quem effúdit et implévit Jerúsalem cruóre innocéntium, et ob hanc rem nóluit Dóminus propitiári.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+REliqua autem sermónum Jóakim et univérsa quæ fecit, nonne hæc scripta sunt in libro sermónum diérum regum Juda? Et dormívit Jóakim cum pátribus suis. Et regnávit Jóachin fílius ejus pro eo. Et ultra non áddidit rex Ægýpti ut egrederétur de terra sua; túlerat enim rex Babylónis a rivo Ægýpti usque ad flúvium Euphráten ómnia quæ fúerant regis Ægýpti.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 24, 8-17*
+
+DEcem et octo annórum erat Jóachin, cum regnáre cœpísset, et tribus ménsibus regnávit in Jerúsalem. Nomen matris ejus Nohésta fília Elnathan de Jerúsalem. Et fecit malum coram Dómino, juxta ómnia quæ fécerat pater ejus. In témpore illo ascendérunt servi Nabuchodónosor regis Babylónis in Jerúsalem, et circúmdata est urbs munitiónibus; venítque Nabuchodónosor rex Babylónis ad civitátem cum servis suis ut oppugnárent eam.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+EGressúsque est Jóachin rex Juda ad regem Babylónis ipse et mater ejus et servi ejus et príncipes ejus et eunúchi ejus, et suscépit eum rex Babylónis anno octávo regni sui. Et prótulit inde omnes

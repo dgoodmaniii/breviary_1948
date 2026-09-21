@@ -16922,4 +16922,44 @@ AT contra, hi qui de falsa justítia superbíre solent, céteros quosque despíc
 
 **2** Stans Jesus \* clamábat dicens: Si quis sitit véniat ad me et bibat.
 
-**3** In caritáte perpétua \* diléxit nos Deus, ídeo,
+**3** In caritáte perpétua \* diléxit nos Deus, ídeo, exaltátus a terra, attráxit nos ad Cor suum, míserans.
+
+**4** Veníte ad me, \* omnes qui laborátis et oneráti estis et ego refíciam vos.
+
+**5** Fili, \* præbe mihi cor tuum et óculi tui custódiant vias meas.
+
+**Capitulum** *1 Petri 5, 6-7*
+
+CArissimi, humiliámini sub poténti manu Dei, ut vos exáltet in témpore visitatiónis; omnem sollicitúdinem vestram projiciéntes in eum, quóniam ipsi cura est de vobis.
+
+**Hymnus** Cor arca. 358
+
+℣. Tóllite jugum meum super vos et díscite a me. ℟. Quia mitis sum et húmilis Corde.
+
+**Ad Bened. Ant.** Quis ex vobis \* homo qui habet centum oves et, si perdíderit unam ex illis, nonne dimíttit nonagínta novem in desérto et vadit ad illam quæ períerat, donec invéniat eam? Allelúja.
+
+### Oratio
+
+PRotéctor in te sperántium, Deus, sine quo nihil est válidum, nihil sanctum, multíplica super nos misericórdiam tuam; ut, te rectóre, te duce, sic transeámus per bona temporália, ut non amittámus ætérna. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Octávæ:}
+
+**Ant.** Facta sunt, ℣. Hauriétis, **Oratio** Deus qui. 359
+
+{RUBRIC: Ad Primam Psalmi ut in Festis, in ℟. br. ℣. Qui Corde fundis grátiam, et ad absolutiónem Capítuli Lectio brevis Deus autem omnis grátiæ, ut infra ad Nonam.}
+
+### Ad Tertiam
+
+**Capit.** Caríssimi, ut ad Laudes.
+
+℟. br. Tóllite jugum meum super vos \* Et díscite a me. Tóllite. ℣. Quia mitis sum et húmilis Corde. Et díscite. Glória Patri. Tóllite.
+
+℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam quia peccávi tibi.
+
+### Ad Sextam
+
+**Capitulum** *1 Petri 5, 8-9*
+
+SObrii estóte et vigiláte, quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret, cui resístite fortes in fide, sciéntes eámdem passiónem ei, quæ in mundo est, vestræ fraternitáti fíeri.
+
+℟. br. Ego dixi, Dómine, \* Miserére mei. Ego dixi. ℣. Sana ánimam meam quia peccávi tibi. Miserére mei. Glória Patri. Ego dixi.

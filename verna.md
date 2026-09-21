@@ -45072,4 +45072,30 @@ De libro Ecclesiástici
 
 CONFITEBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
 
-℟. Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum; pro cujus amóre sánguinem tuum fudísti,
+℟. Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum; pro cujus amóre sánguinem tuum fudísti, \* Et cum Angelis in paradísum introísti. (T. P. Allelúja.) ℣. Veni, elécta mea, et ponam in te thronum meum; quia concupívit Rex spéciem tuam. — Et cum Angelis.
+
+###### Lectio ii
+
+LAUDABIT usque ad mortem ánima mea Dóminum, et vita mea appropínquans erat in inférno deórsum. Circumdedérunt me úndique, et non erat qui adjuváret. Respíciens eram ad adjutórium hóminum, et non erat. Memoráta sum misericórdiæ tuæ, Dómine, et operatiónis tuæ, quæ a sǽculo sunt: quóniam éruis sustinéntes te, Dómine, et líberas eos de mánibus géntium.
+
+℟. Diffúsa est grátia in lábiis tuis, \* Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Proptérea.
+
+###### Lectio iii
+
+EXALTASTI super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório. Laudábo nomen tuum assídue, et collaudábo illud in confessióne, et exaudíta est orátio mea. Et liberásti me de perditióne, et eripuísti me de témpore iníquo. Proptérea confitébor, et laudem dicam tibi, et benedícam nómini Dómini.
+
+℟. Spécie tua et pulchritúdine tua \* Inténde, próspere procéde, et regna. (T. P. Allelúja.) ℣. Diffúsa est grátia in lábiis tuis, proptérea benedíxit te Deus in ætérnum. — Inténde. Glória Patri. Inténde.
+
+---
+
+{RUBRIC: Pro Virgine Martyre et non Martyre legúntur étiam sequéntes:}
+
+##### In II Nocturno
+
+Ex libro sancti Cypriáni, Epíscopi et Mártyris, de disciplína et hábitu Vírginum
+
+{RUBRIC: Num. 3-5}
+
+###### Lectio iv
+
+NUNC nobis ad vírgines sermo est; quarum quo sublímior glória est, major et cura est. Flos est ille ecclesiástici gérminis, decus atque ornaméntum grátiæ spiritális, læta índoles, laudis et honóris opus íntegrum atque incorrúptum, Dei imágo respóndens ad sanctimóniam Dómini, illústrior pórtio gregis

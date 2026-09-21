@@ -43461,3 +43461,57 @@ ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus
 
 JESU, Redémptor ómnium,
 Perpes coróna Præsulum,
+
+In hac die cleméntius
+Indúlgeas precántibus,
+
+Tui sacri qua nóminis
+Conféssor almus cláruit:
+Hujus celébrat ánnua
+Devóta plebs solémnia
+
+Qui rite mundi gáudia
+Hujus cadúca réspuens,
+Æternitátis prǽmio
+Potítur inter Angelos.
+
+Hujus benígnus ánnue
+Nobis sequi vestígia:
+Hujus precátu, sérvulis
+Dimítte noxam críminis.
+
+\* Sit, Christe, Rex piíssime,
+Tibi, Patríque glória,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum.
+Amen.
+
+℣. Justum dedúxit Dóminus per vias rectas. (T. P. Allelúja.) ℟. Et osténdit illi regnum Dei. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus. (T. P. Allelúja.)
+
+**1 — Oratio**
+
+DA, quǽsumus, omnípotens Deus: ut beáti N. Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+**2 — Alia Oratio**
+
+EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti N. Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+**3 — Pro Doctore Oratio**
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+**Capit.** *Eccli. 44, 16-17*
+
+ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+℟. br. Amávit eum Dóminus, \* Et ornávit eum. Amávit. ℣. Stolam glóriæ índuit eum. Et. Glória Patri. Amávit. ℣. Elégit eum Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Amávit eum Dóminus, et ornávit eum,

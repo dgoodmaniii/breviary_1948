@@ -28833,4 +28833,44 @@ SANCTIMONIALIS quippe fémina caput in mánibus declínans, lacrimárum flúvium
 
 *Ibid. cap. 34*
 
-CUMQUE die áltero éadem venerábilis fémina ad cellam própriam recessísset, vir Dei ad monastérium rédiit. Cum ecce post tríduum, in cella consístens, elevátis in áëra óculis vidit ejúsdem
+CUMQUE die áltero éadem venerábilis fémina ad cellam própriam recessísset, vir Dei ad monastérium rédiit. Cum ecce post tríduum, in cella consístens, elevátis in áëra óculis vidit ejúsdem soróris suæ ánimam de córpore egréssam in colúmbæ spécie cæli secréta penetráre. Qui, tantæ ejus glóriæ congáudens, omnipoténti Deo in hymnis et láudibus grátias réddidit, ejúsque óbitum frátribus denuntiávit. Quos étiam prótinus misit, ut ejus corpus ad monastérium deférrent, atque in sepúlcro, quod sibi ipsi paráverat, pónerent. Quo facto cóntigit, ut, quorum mens una semper in Deo fúerat, eórum quoque córpora nec sepultúra separáret.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum, de Communi Virginum 1 loco. [141]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+DEUS, qui ánimam beátæ Vírginis tuæ Scholásticæ, ad ostendéndam innocéntiæ viam, in colúmbæ spécie cælum penetráre fecísti: da nobis, ejus méritis et précibus, ita innocénter vívere; ut ad ætérna mereámur gáudia perveníre. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Feriæ.}
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis et Feriæ.}
+
+---
+
+### Die 11 Februarii
+
+#### In Apparitione B. Mariæ Virg. immaculatæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Festorum B. M. V. [195], præter ea quæ hic habentur propria.}
+
+##### In I Vesperis
+
+{RUBRIC: Añæ et Capit. de Laudibus. Psalmi et Hymnus Ave maris stella, de Communi.}
+
+{RUBRIC: Si hoc Festum careat II Vesperis, tunc sumitur Hymnus proprius Omnis expértem, iisdem II Vesperis assignatus. 698}
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Ista est \* colúmba mea, perfécta mea, immaculáta mea.

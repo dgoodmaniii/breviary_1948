@@ -18310,4 +18310,28 @@ APpropinquavérunt autem dies David ut moreréntur, præcepítque Salomóni fíl
 
 ##### Lectio ii
 
-TU quoque nosti quæ fécerit mihi Joab fílius Sárviæ, quæ fécerit duó-
+TU quoque nosti quæ fécerit mihi Joab fílius Sárviæ, quæ fécerit duóbus princípibus exércitus Israël, Abner fílio Ner et Amasæ fílio Jether, quos occídit et effúdit sánguinem belli in pace et pósuit cruórem prǽlii in bálteo suo, qui erat circa lumbos ejus, et in calceaménto suo, quod erat in pédibus ejus. Fácies ergo juxta sapiéntiam tuam, et non dedúces canítiem ejus pacífice ad ínferos.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+SED et fíliis Berzelláis Galaadítis reddes grátiam, erúntque comedéntes in mensa tua; occurrérunt enim mihi quando fugiébam a fácie Absalom fratris tui. Habes quoque apud te Sémei fílium Gera fílii Jémini de Bahúrim, qui maledíxit mihi maledictióne péssima, quando ibam ad castra; sed quia descéndit mihi in occúrsum, cum transírem Jordánem, et jurávi ei per Dóminum dicens: Non te interfíciam gládio. Tu noli pati eum esse innóxium.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 3, 5-13*
+
+APpáruit autem Dóminus Salomóni per sómnium nocte dicens: Póstula quod vis ut dem tibi. Et ait Sálomon: Tu fecísti cum servo tuo David patre meo misericórdiam magnam, sicut ambulávit in conspéctu tuo in veritáte et justítia et recto corde tecum: custodísti ei misericórdiam tuam grandem et dedísti ei fílium sedéntem super thronum ejus, sicut est hódie.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére

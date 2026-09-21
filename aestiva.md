@@ -5874,3 +5874,59 @@ Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus 
 ### Psalmus 41, ii
 
 AD meípsum ánima mea conturbáta est: \* proptérea memor ero tui de terra Jordánis, et Hermóniim a monte módico.
+
+Abýssus abýssum ínvocat, \* in voce cataractárum tuárum.
+
+Omnia excélsa tua, et fluctus tui \* super me transiérunt.
+
+In die mandávit Dóminus misericórdiam suam: \* et nocte cánticum ejus.
+
+Apud me orátio Deo vitæ meæ, \* dicam Deo: Suscéptor meus es.
+
+Quare oblítus es mei? \* et quare contristátus incédo, dum afflígit me inimícus?
+
+Dum confringúntur ossa mea, \* exprobravérunt mihi qui tríbulant me inimíci mei.
+
+Dum dicunt mihi per síngulos dies: Ubi est Deus tuus? \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Ant.** Suscepísti me, Dómine: et confirmásti me in conspéctu tuo.
+
+#### In Officio feriali
+
+**Capitulum** *Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 20}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prǽmium mortis sacræ
+Perénnis instet glória.

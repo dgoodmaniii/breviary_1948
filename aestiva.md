@@ -17604,4 +17604,20 @@ CUM ergo surrexísset Philisthǽus et veníret et appropinquáret contra David, 
 
 *Cap. 18, 6-17*
 
-PORro, cum reverterétur, percússo Philisthǽo, David, egréssæ sunt mulíeres de univérsis úrbibus Israël cantántes chorósque ducéntes in occúrsum Saul regis in týmpanis lætítiæ
+PORro, cum reverterétur, percússo Philisthǽo, David, egréssæ sunt mulíeres de univérsis úrbibus Israël cantántes chorósque ducéntes in occúrsum Saul regis in týmpanis lætítiæ et in sistris. Et præcinébant muliéres ludéntes atque dicéntes: Percússit Saul mille, et David decem míllia. Irátus est autem Saul nimis, et displícuit in óculis ejus sermo iste, dixítque: Dedérunt David decem míllia et mihi mille dedérunt; quid ei súperest, nisi solum regnum?
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+NOn rectis ergo óculis Saul aspiciébat David a die illa et deínceps. Post diem autem álteram invásit spíritus Dei malus Saul, et prophetábat in médio domus suæ; David autem psallébat manu sua sicut per síngulos dies. Tenebátque Saul lánceam et misit eam putans quod confígere posset David cum paríete; et declinávit David a fácie ejus secúndo. Et tímuit Saul David eo quod Dóminus esset cum eo, et a se recessísset. Amóvit ergo eum Saul a se et fecit eum tribúnum super mille viros; et egrediebátur et intrábat in conspéctu pópuli.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+IN ómnibus quoque viis suis David prudénter agébat, et Dóminus erat cum eo. Vidit ítaque Saul quod prudens esset nimis et cœpit cavére eum. Omnis autem Israël et Juda diligébat David; ipse enim ingrediebátur et egrediebátur ante eos. Dixítque Saul ad David: Ecce fília mea major Merob, ipsam dabo tibi uxórem; tantúmmodo esto vir fortis et præliáre bella Dómini. Saul autem reputábat dicens: Non sit manus mea in eum, sed sit super eum manus Philisthinórum.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui

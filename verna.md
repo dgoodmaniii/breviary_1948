@@ -37026,3 +37026,33 @@ NONNISI revérsos in natúram puerórum introíre regnum cælórum Dóminus doce
 **Bened.** Quorum festum.
 
 {RUBRIC: Si dicénda sit ix Lectio alicújus Officii commemoráti, ex viii et ix Lectióne fit una.}
+
+###### Lectio viii
+
+VÆ huic mundo ab scándalis. Humílitas passiónis scándalum mundo est. In hoc enim máxime ignorántia detinétur humána, quod sub deformitáte crucis, ætérnæ glóriæ Dóminum nóluit accípere. Et quid mundo tam periculósum, quam non recepísse Christum? Ideo vero necésse esse ait veníre scándala; quia, ad sacraméntum reddéndæ nobis æternitátis, omnis in eo passiónis humílitas esset explénda.
+
+℟. Míchaël Archángelus venit in adjutórium pópulo Dei, \* Stetit in auxílium pro animábus justis, allelúja. ℣. Stetit Angelus juxta aram templi, habens thuríbulum áureum in manu sua. — Stetit in. Glória Patri. Stetit in.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ, alias}
+
+###### Lectio ix
+
+VIDETE ne contemnátis unum de pusíllis istis, qui credunt in me. Aptíssimum vínculum mútui amóris impósuit, ad eos præcípue qui vere in Dómino credidíssent. Pusillórum enim Angeli quotídie Deum vident: quia Fílius hóminis venit salváre quæ pérdita sunt. Ergo et Fílius hóminis salvat, et Deum Angeli vident, et Angeli pusillórum præsunt fidélium oratiónibus. Præésse Angelos absolúta auctóritas est. Salvatórum ígitur per Christum oratiónes Angeli quotídie Deo ófferunt. Ergo periculóse ille contémnitur, cujus desidéria ac postulatiónes ad ætérnum et invisíbilem Deum, ambitióso Angelórum famulátu ac ministério, pervehúntur.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**Ant. 1** Stetit Angelus \* juxta aram templi, habens thuríbulum áureum in manu sua, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+**2** Dum præliarétur \* Míchaël Archángelus cum dracóne, audíta est vox dicéntium: Salus Deo nostro, allelúja.
+
+**3** Archángele Míchaël, \* constítui te príncipem super omnes ánimas suscipiéndas, allelúja.
+
+**4** Angeli Dómini, \* Dóminum benedícite in ætérnum, allelúja.
+
+**5** Angeli, Archángeli, \* Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.

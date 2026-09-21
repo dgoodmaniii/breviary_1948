@@ -19097,3 +19097,31 @@ ET testificátus est Dóminus in Israël et in Juda per manum ómnium prophetár
 *Cap. 17, 18-21*
 
 IRatúsque est Dóminus veheménter Israéli et ábstulit eos a conspéctu suo; et non remánsit nisi tribus Juda tantúmmodo. Sed nec ipse Juda custodívit mandáta Dómini Dei sui, verum ambulávit in erróribus Israël, quos operátus fúerat. Projecítque Dóminus omne semen Israël et afflíxit eos et trádidit eos in manu diripiéntium, donec projíceret eos a fácie sua ex eo jam témpore, quo scissus est Israël a domo David, et constituérunt sibi regem Jeróboam fílium Nabat.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 17, 21-27*
+
+SEparávit Jeróboam Israël a Dómino et peccáre eos fecit peccátum magnum. Et ambulavérunt fílii Israël in univérsis peccátis Jeróboam quæ fécerat, et non recessérunt ab eis úsquequo Dóminus auférret Israël a fácie sua, sicut locútus fúerat in manu ómnium servórum suórum prophetárum; translatúsque est Israël de terra sua in Assýrios usque in diem hanc.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+ADdúxit autem rex Assyriórum de Babylóne et de Cutha et de Avah et de Emath et de Sephárvaim et collocávit eos in civitátibus Samaríæ pro fíliis Israël. Qui possedérunt Samaríam, et habitavérunt in úrbibus ejus. Cumque ibi habitáre cœpíssent, non timébant Dóminum, et immísit in eos Dóminus leónes, qui interficiébant eos.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+NUntiatúmque est regi Assyriórum et dictum: Gentes, quas transtulísti et habitáre fecísti in civitátibus Samaríæ, ignórant legítima Dei terræ, et immísit in eos Dóminus leónes, et ecce interfíciunt eos, eo quod ignórent ritum Dei terræ. Præcépit autem rex Assyriórum dicens: Dúcite illuc unum de sacerdótibus, quos inde captívos adduxístis; et

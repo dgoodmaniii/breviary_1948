@@ -37676,4 +37676,16 @@ AUXILIUM tuum nobis, Dómine, quǽsumus, placátus impénde: et intercessióne b
 
 ###### Lectio iv
 
-UBALDUS Eugúbii in Úmbria nóbili génere natus, a primis annis pietáte et lítte-
+UBALDUS Eugúbii in Úmbria nóbili génere natus, a primis annis pietáte et lítteris egrégie est institútus; jamque adoléscens, ut uxórem dúceret, sæpe tentátus, numquam tamen a propósito servándæ virginitátis recéssit. Sacérdos efféctus, patrimónium suum paupéribus et ecclésiis distríbuit, et canonicórum regulárium órdinis sancti Augustíni institútum suscípiens, illud in pátriam tránstulit, atque in eo aliquámdiu sanctíssime vixit. Cujus sanctitátis opinióne evulgáta, ab Honório secúndo summo Pontífice ecclésiæ Eugubínæ invítus præfícitur, et episcopális consecratiónis múnere decorátur.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+AD suam ítaque revértens ecclésiam, cum de consuéta vivéndi ratióne nihil ádmodum immutásset, in omni tamen virtútum génere eo magis emínere cœpit, quo efficácius aliórum étiam salútem verbo et exémplo procuráret, factus forma gregis ex ánimo. Nam victu parco, vestítu moderáto, léctulo áspero et paupérrimo, crucis mortificatiónem júgiter in suo córpore circumferébat, dum inexplébili oratiónis stúdio spíritum quotídie recreáret. Hinc admirábilem illam mansuetúdinem est adéptus, qua gravíssimas injúrias et contumélias non modo æquánimiter tulit, verum étiam mirífico dilectiónis afféctu persecutóres suos omni benignitátis testimónio complectebátur.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+BIENNIO ántequam ex hac vita migráret, cum diutínis afflictarétur infirmitátibus, inter acerbíssimos córporis cruciátus velut aurum in fornáce purgátum, Deo grátias indesinénter agébat. Adveniénte autem sacro Pentecóstes die, cum multis annis ecclésiam sibi commíssam summa cum laude gubernásset, sanctis opéribus ac miráculis clarus quiévit in pace. Quem Cælestínus Papa tértius in Sanctórum númerum rétulit. Ejus virtus præcípue in effugándis spi-

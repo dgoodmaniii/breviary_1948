@@ -18090,4 +18090,30 @@ ET ait rex: Numquid manus Joab tecum est in ómnibus istis? Respóndit múlier e
 
 IGitur post hæc fecit sibi Absalom currus et équites et quinquagínta viros, qui præcéderent eum. Et mane consúrgens Absalom stabat juxta intróitum portæ et omnem virum, qui habébat negótium ut veníret ad regis judícium, vocábat Absalom ad se et dicébat: De qua civitáte es tu? Qui respóndens ajébat: Ex una tribu Israël ego sum servus tuus. Respondebátque ei Absalom: Vidéntur mihi sermónes tui boni et justi; sed non est qui te áudiat constitútus a rege.
 
-℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitá-
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et malum coram te feci.
+
+##### Lectio ii
+
+DIcebátque Absalom: Quis me constítuat júdicem super terram, ut ad me véniant omnes qui habent negótium et juste júdicem? Sed et, cum accéderet ad eum homo ut salutáret illum, extendébat manum suam et apprehéndens osculabátur eum. Faciebátque hoc omni Israël veniénti ad judícium ut audirétur a rege, et sollicitábat corda virórum Israël.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+POst quadragínta autem annos, dixit Absalom ad regem David: Vadam et reddam vota mea, quæ vovi Dómino, in Hebron. Vovens enim vovit servus tuus, cum esset in Gessur Sýriæ, dicens: Si redúxerit me Dóminus in Jerúsalem, sacrificábo Dómino. Dixítque ei rex David: Vade in pace. Et surréxit et ábiit in Hebron. Misit autem Absalom exploratóres in univérsas tribus Israël dicens: Statim ut audiéritis clangórem búccinæ, dícite: Regnávit Absalom in Hebron.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 15, 13-20*
+
+VEnit ígitur núntius ad David dicens: Toto corde univérsus Israël séquitur Absalom. Et ait David servis suis qui erant cum eo in Jerúsalem: Súrgite, fugiámus; neque enim erit nobis effúgium a fácie Absalom. Festináte égredi, ne forte véniens óccupet nos et impéllat super nos ruínam et percútiat civitátem in ore gládii. Dixerúntque servi

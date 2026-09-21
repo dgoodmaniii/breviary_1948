@@ -46979,4 +46979,54 @@ Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super 
 
 Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
 
-Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo. Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** Sicut myrrha elécta odórem dedísti suavitátis, sancta Dei Génitrix. (T. P. Allelúja.)
+
+**Ant.** Ante torum \* hujus Vírginis frequentáte nobis dúlcia cántica drámatis. (T. P. Allelúja.)
+
+###### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite, portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prœlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Ante torum hujus Vírginis frequentáte nobis dúlcia cántica drámatis. (T. P. Allelúja.)
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Benedícta tu in muliéribus, et benedíctus fructus ventris tui, allelúja.
+
+℣. Spécie tua et pulchritúdine tua. (T. P. Allelúja.) ℟. Inténde, próspere procéde, et regna. (T. P. Allelúja.)
+
+**Absolutio.** Exáudi, Dómine.
+
+**Benedictio.** Benedictióne.
+
+{RUBRIC: De Parábolis Salomónis}
+
+###### Lectio i
+
+*Cap. 8, 12-25*
+
+EGO sapiéntia hábito in consílio, et erudítis intérsum cogitatiónibus. Timor Dómini odit malum: arrogántiam, et supérbiam, et viam pravam, et os bilíngue detéstor. Meum est consílium et ǽquitas, mea est prudéntia, mea est fortitúdo. Per me reges regnant, et legum conditóres justa de-

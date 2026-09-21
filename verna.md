@@ -33654,3 +33654,27 @@ JUSTINUS, Prisci fílius, ex Græco génere Fláviæ Neápolis in Sýria Palæst
 {RUBRIC: Te Deum laudámus.}
 
 ---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+**Lectio vii** *Cap. 12, 2-8*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nihil opértum est, quod non revelétur: neque abscónditum, quod non sciátur. Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+{RUBRIC: Homilia in cap. 10 Matth. v. 26 et sequ.}
+
+NIHIL est opértum quod non revelábitur, nec occúltum quod non sciétur. Quod autem dicit, hujúsmodi est: Súfficit quidem vobis ad consolatiónem, si ego Magíster et Dóminus consors sim conviciórum. Si vero adhuc dolétis hæc audiéntes, illud quoque ánimo reputáte, vos non multum póstea ab hac suspicióne liberátum iri. Cur enim id ægre fertis? quia præstigiatóres et deceptóres vos vocant? At páululum exspectáte, et servatóres benefactorésque orbis vos prædicábunt omnes. At enim tempus illa ómnia, quæ subobscúra erant, revelábit, et illórum calúmniam déteget, virtutémque vestram conspícuam reddet. Cum enim ex rebus ipsis comprobabímini salvatóres esse et benéfici, et omni virtúte conspícui, illórum dictis hómines non atténdent, sed rei veritáti; ac illi quidem sycophántæ, mendáces, malédici, vos vero ipso sole splendidióres deprehendémini. Multum quippe témporis spátium vos notos reddet, prædicábit, et tuba clariórem emíttet vocem, vestræque virtútis testes univérsos hómines exhibébit. Ne ítaque ea, quæ nunc dicúntur, vos dejíciant, sed spes futurórum bonórum érigat. Non possunt enim ea, quæ ad vos spectant, occultári.
+
+{RUBRIC: In Quadragesima}
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Feria III et VI infra hebdomadam I et II post Octavam

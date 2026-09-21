@@ -29335,3 +29335,70 @@ JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit
 ##### In II Vesperis
 
 **Capitulum** Caríssimi, {RUBRIC: ut supra. 702}
+
+###### Hymnus
+
+MATRIS sub almæ númine,
+Septéna proles náscitur:
+Ipsa vocánte, ad árduum
+Tendit Senári vérticem.
+
+Quos terra fructus próferet
+Dum sacra proles gérminat,
+Uvis repénte túrgidis
+Onústa vitis, prǽmonet.
+
+Virtúte claros nóbili
+Mors sancta cælo cónsecrat:
+Tenent olýmpi límina
+Servi fidéles Vírginis.
+
+Cohors beáta, Núminis
+Regno potíta, réspice
+Quos hinc recédens fráudibus,
+Cinctos relínquis hóstium.
+
+Ergo, per almæ vúlnera
+Matris rogámus súpplices,
+Mentis tenébras dísjice,
+Cordis procéllas cómprime.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Tu nos, beáta Trínitas,
+Perfúnde sancto róbore,
+Possímus ut felíciter
+Exémpla patrum súbsequi.
+Amen.
+
+℣. Hi viri misericórdiæ sunt, quorum pietátes non defuérunt. ℟. Semen eórum et glória eórum non derelinquétur.
+
+**Ad Magnif. Ant.** Nomen eórum \* pérmanet in ætérnum, pérmanens ad fílios eórum sanctórum virórum glória.
+
+###### Oratio
+
+DOMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitrícis tuæ, per septem beátos Patres nova Servórum ejus família Ecclésiam tuam fecundásti: concéde propítius; ita nos eórum consociári flétibus, ut perfruámur et gáudiis: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+---
+
+### Die 14 Februarii
+
+#### S. Valentini
+
+{RUBRIC: Presbyteri et Martyris}
+
+{RUBRIC: Commemoratio}
+
+**In Vesp. Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti Valentíni Mártyris tui natalítia cólimus, a cunctis malis imminéntibus, ejus intercessióne, liberémur. Per Dóminum.
+
+**Ad Laudes Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.

@@ -41638,4 +41638,28 @@ GLADIUS telórum ómnium telum acutíssimum est, in quo sit jus potestátis, et 
 
 ###### Lectio ix
 
-PERGIT deínde eódem præceptórum et intelligéntiæ decúrsu. Nam, posteáquam relinquénda ómnia, quæ in sæculo caríssima sunt, imperáverat, adjécit: Qui non áccipit crucem suam, et séquitur me, non est me dignus; quia Qui Christi sunt, cru-
+PERGIT deínde eódem præceptórum et intelligéntiæ decúrsu. Nam, posteáquam relinquénda ómnia, quæ in sæculo caríssima sunt, imperáverat, adjécit: Qui non áccipit crucem suam, et séquitur me, non est me dignus; quia Qui Christi sunt, crucifixérunt corpus cum vítiis et concupiscéntia. Et indígnus est Christo, qui non crucem suam, in qua compátimur, commórimur, consepelímur, conresúrgimus, accípiens, Dóminum sit secútus, in hoc sacraménto fídei spíritus novitáte victúrus.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## IV Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+**Lectio vii** *Cap. 10, 26-32*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nihil est opértum, quod non revelábitur; et occúltum, quod non sciétur. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+
+{RUBRIC: Comment. in Matth., can. 10, post medium}
+
+DOMINUS diem judícii osténdit, quæ abstrúsam voluntátis nostræ consciéntiam prodet; et ea quæ nunc occúlta existimántur, luce cognitiónis públicæ déteget. Igitur non minas, non consília, non potestátes insectántium monet esse metuéndas; quia dies judícii nulla hæc fuísse, atque inánia revelábit. Et quod dico vobis in ténebris, dícite in lúmine; et quod in aure audítis, prædicáte super tecta. Non légimus Dóminum sólitum fuísse nóctibus sermocinári, et doctrínam in ténebris tradidísse: sed quia omnis sermo ejus carnálibus ténebræ sunt, et verbum ejus infidélibus nox est.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+###### Lectio viii
+
+ITAQUE id quod a se dictum est, cum libertáte fídei et confessiónis vult esse loquéndum. Idcírco, quæ in ténebris dicta sunt, prædicári jussit in lúmine; ut, quæ secréto áurium commíssa sunt, super tecta, id est, excélso loquéntium præcónio audiántur. Constánter enim Dei ingerénda cognítio est, et profúndum doctrínæ evangélicæ secrétum in lúmine prædicatiónis apostólicæ revelándum, non timéntes eos, quibus, cum sit licéntia in córpora, tamen in ánimam jus nullum est; sed timéntes pótius Deum, cui perdéndæ in gehénna et ánimæ et córporis sit potéstas.

@@ -34624,4 +34624,16 @@ De libro Génesis
 
 **Lectio i** *Cap. 39, 1-6*
 
-IGITUR Joseph ductus est in Ægýptum, emítque eum Pútiphar eunúchus pharaónis, princeps exércitus, vir Ægýptius, de manu Ismaelitárum, a quibus perdúctus erat. Fuítque Dóminus cum eo, et erat vir in cunctis próspere agens: habitavítque in domo dómini sui, qui óptime nóverat Dóminum esse cum eo, et ómnia quæ géreret, ab eo dírigi in manu illíus. Invenítque Joseph grátiam coram dómino suo, et ministrábat ei: a quo præpósitus óm-
+IGITUR Joseph ductus est in Ægýptum, emítque eum Pútiphar eunúchus pharaónis, princeps exércitus, vir Ægýptius, de manu Ismaelitárum, a quibus perdúctus erat. Fuítque Dóminus cum eo, et erat vir in cunctis próspere agens: habitavítque in domo dómini sui, qui óptime nóverat Dóminum esse cum eo, et ómnia quæ géreret, ab eo dírigi in manu illíus. Invenítque Joseph grátiam coram dómino suo, et ministrábat ei: a quo præpósitus ómnibus gubernábat créditam sibi domum et univérsa quæ ei trádita fúerant; benedixítque Dóminus dómui Ægýptii propter Joseph, et multiplicávit tam in ǽdibus quam in agris cunctam ejus substántiam; nec quidquam áliud nóverat, nisi panem quo vescebátur. Erat autem Joseph pulchra fácie et decórus aspéctu.
+
+℟. Clamávit pópulus ad regem, aliménta petens; \* Quibus ille respóndit: Ite ad Joseph, allelúja. ℣. Salus nostra in manu tua est: réspice nos tantum, et læti serviémus regi. — Quibus.
+
+**Lectio ii** *Cap. 41, 37-40*
+
+PLACUIT pharaóni consílium, et cunctis minístris ejus; locutúsque est ad eos: Num inveníre potérimus talem virum, qui Spíritu Dei plenus sit? Dixit ergo ad Joseph: Quia osténdit tibi Deus ómnia quæ locútus es, numquid sapientiórem et consímilem tui inveníre pótero? Tu eris super domum meam, et ad tui oris impérium cunctus pópulus obédiet; uno tantum regni sólio te præcédam. Dixítque rursus phárao ad Joseph: Ecce constítui te super univérsam terram Ægýpti. Tulítque ánnulum de manu sua, et dedit eum in manu ejus; vestivítque eum stola býssina, et collo torquem áuream circumpósuit. Fecítque eum ascéndere super currum suum secúndum, clamánte præcóne ut omnes coram eo genuflécterent et præpósitum esse scirent univérsæ terræ Ægýpti.
+
+℟. Fecit me Deus quasi patrem regis, et dóminum univérsæ domus ejus: \* Exaltávit me, ut salvos fáceret multos pópulos, allelúja. ℣. Veníte ad me, et ego dabo vobis ómnia bona Ægýpti, ut comedátis medúllam terræ. — Exaltávit.
+
+**Lectio iii**
+
+DIXIT quoque rex ad Joseph: Ego sum phárao: absque tuo império non movébit quisquam manum aut pedem in omni terra Ægýpti. Vertítque nomen ejus, et vocávit eum lingua Ægyptíaca Salvatórem mundi. Dedítque illi uxórem Aseneth, fíliam Putipháre sacerdótis Heliopóleos. Egréssus est ítaque Joseph ad terram Ægýpti (trigínta autem annórum erat quando stetit in conspéctu regis pharaónis), et circuívit omnes regiónes Ægýpti. Venítque fertílitas septem annórum: et in manípulos redáctæ

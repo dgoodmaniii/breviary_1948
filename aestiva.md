@@ -14433,3 +14433,55 @@ Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
 Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
 
 Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Miserátor Dóminus escam dedit timéntibus se in memóriam suórum mirabílium.
+
+**Ant.** Cálicem salutáris \* accípiam: et sacrificábo hóstiam laudis.
+
+##### Psalmus 115
+
+CRédidi, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Cálicem salutáris accípiam: et sacrificábo hóstiam laudis.
+
+**Ant.** Sicut novéllæ olivárum, \* Ecclésiæ fílii sint in circúitu mensæ Dómini.
+
+##### Psalmus 127
+
+BEáti omnes, qui timent Dóminum, \* qui ámbulant in viis ejus.
+
+Labóres mánuum tuárum quia manducábis: \* beátus es, et bene tibi erit.
+
+Uxor tua sicut vitis abúndans, \* in latéribus domus tuæ.
+
+Fílii tui sicut novéllæ olivárum, \* in circúitu mensæ tuæ.
+
+Ecce, sic benedicétur homo, \* qui timet Dóminum.
+
+Benedícat tibi Dóminus ex Sion: \* et vídeas bona Jerúsalem ómnibus diébus vitæ tuæ.

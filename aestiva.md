@@ -16729,3 +16729,27 @@ DEus qui nobis, in Corde Fílii tui, nostris vulneráto peccátis, infinítos di
 ET erat vir de Bénjamin nómine Cis, fílius Abiel, fílii Seror, fílii Béchorath, fílii Aphia, fílii viri Jémini, fortis róbore. Et erat ei fílius vocábulo Saul, eléctus et bonus, et non erat vir de fíliis Israël mélior illo: ab húmero et sursum eminébat super omnem pópulum. Períerant autem ásinæ Cis patris Saul, et dixit Cis ad Saul fílium suum: Tolle tecum unum de púeris et consúrgens vade et quære ásinas. Qui, cum transíssent per montem Ephraïm et per terram Salsim, et non inveníssent, transiérunt étiam per terram Salim, et non erant, sed et per terram Jémini, et mínime reperérunt.
 
 ℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non recédant a me.
+
+##### Lectio ii
+
+CUM autem veníssent in terram Suph, dixit Saul ad púerum, qui erat cum eo: Veni et revertámur, ne forte dimíserit pater meus ásinas, et sollícitus sit pro nobis. Qui ait ei: Ecce vir Dei est in civitáte hac, vir nóbilis: omne quod lóquitur, sine ambiguitáte venit; nunc ergo eámus illuc, si forte índicet nobis de via nostra, propter quam vénimus. Dixítque Saul ad púerum suum: Ecce íbimus: quid ferémus ad virum Dei? panis defécit in sitárciis nostris, et spórtulam non habémus, ut demus hómini Dei, nec quidquam áliud. Rursum puer respóndit Sauli et ait: Ecce invénta est in manu mea quarta pars statéris argénti: demus hómini Dei, ut índicet nobis viam nostram.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu.
+
+##### Lectio iii
+
+*Cap. 9, 14-17*
+
+ET ascendérunt in civitátem. Cumque illi ambulárent in médio urbis, appáruit Sámuel egrédiens óbviam eis, ut ascénderet in excélsum. Dóminus autem reveláverat aurículam Samuélis, ante unam diem quam veníret Saul, dicens: Hac ipsa hora, quæ nunc est, cras mittam virum ad te de terra Bénjamin, et unges eum ducem super pópulum meum Israël, et salvábit pópulum meum de manu Philisthinórum, quia respéxi pópulum meum: venit enim clamor eórum ad me. Cumque aspexísset Sámuel Saulem, Dóminus dixit ei: Ecce vir, quem díxeram tibi: iste dominábitur pópulo meo.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória Patri. Propter.
+
+#### In II Nocturno
+
+{RUBRIC: Ex lítteris Encýclicis Pii Papæ undécimi}
+
+{RUBRIC: Encýclica Miserentíssimus Redémptor}
+
+##### Lectio iv
+
+INter cétera infinítæ Redemptóris nostri benignitátis documénta, illud potíssimum

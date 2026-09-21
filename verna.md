@@ -19185,4 +19185,18 @@ TUA nos, Dómine, protectióne defénde: et ab omni semper iniquitáte custódi.
 
 *Cap. 15, 1-20*
 
-IN illo témpore: Accessérunt ad Jesum ab Jerosólymis scribæ et pharisǽi, dicéntes: Quare di-
+IN illo témpore: Accessérunt ad Jesum ab Jerosólymis scribæ et pharisǽi, dicéntes: Quare discípuli tui transgrediúntur traditiónem seniórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+
+{RUBRIC: Liber 2 Comment. in cap. 15 Matthǽi}
+
+MIRA pharisæórum scribarúmque stultítia. Dei Fílium árguunt, quare hóminum traditiónes et præcépta non servet: Non enim lavant manus suas, cum panem mandúcant. Manus, id est ópera, non córporis útique, sed ánimæ lavándæ sunt, ut fiat in illis verbum Dei. Ipse autem respóndens ait illis: Quare et vos transgredímini mandátum Dei propter traditiónem vestram? Falsam calúmniam vera responsióne confútat. Cum, inquit, vos propter traditiónem hóminum præcépta Dómini negligátis; quare discípulos meos arguéndos putátis, quod seniórum jussa parvipéndant, ut Dei scita custódiant?
+
+℟. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus: \* Idcírco venit super nos tribulátio. ℣. Dixit Ruben frátribus suis: Numquid non dixi vobis, Nolíte peccáre in púerum; et non audístis me? — Idcírco.
+
+#### Lectio ii
+
+NAM Deus dixit: Honóra patrem et matrem; et, Qui maledíxerit patri, vel matri, morte moriátur. Vos autem dícitis: Quicúmque díxerit patri, vel matri: Munus quodcúmque est ex me, tibi próderit: et non honorificábit patrem suum, aut matrem suam. Honor in Scriptúris non tantum in salutatiónibus et offíciis deferéndis, quantum in eleemósynis, ac múnerum oblatióne sentítur. Honóra, inquit Apóstolus, víduas, quæ vere víduæ sunt. Hic honor donum intellígitur. Et in álio loco: Presbýteri dúplici honóre honorándi sunt, máxime qui labórant in verbo et doctrína Dei. Et per hoc mandátum jubémur bovi triturántis os non cláudere: et dignus sit operárius mercéde sua.
+
+℟. Dixit Ruben frátribus suis: Numquid non dixi vobis, Nolíte peccáre in púerum, et non audístis me? \* En sanguis ejus exquíritur. ℣. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus. — En.

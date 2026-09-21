@@ -26941,4 +26941,54 @@ DEINDE persecutóres et suos et ipsórum, Judǽos evidénter expréssit: ut omn�
 
 #### Lectio ix
 
-DEINDE tamquam consequénter adjúnxit, unde modo disputáre sus-
+DEINDE tamquam consequénter adjúnxit, unde modo disputáre suscépimus: Cum autem vénerit Paráclitus, quem ego mittam vobis a Patre, Spíritum veritátis, qui a Patre procédit, ille testimónium perhibébit de me: et vos testimónium perhibébitis, quia ab inítio mecum estis. Quid hoc pértinet ad illud quod díxerat: Nunc autem et vidérunt, et odérunt et me et Patrem meum; sed ut impleátur sermo, qui in lege eórum scriptus est: Quia ódio habuérunt me gratis? An quia Paráclitus quando venit Spíritus veritátis, eos, qui vidérunt, et odérunt, testimónio manifestióre convícit? Immo vero étiam áliquos ex illis qui vidérunt, et adhuc óderant, ad fidem, quæ per dilectiónem operátur, sui manifestatióne convértit.
+
+Te Deum laudámus.
+
+## Ad Laudes et per Horas, Antiphonæ
+
+**1** Viri Galilǽi, \* quid aspícitis in cælum? Hic Jesus, qui assúmptus est a vobis in cælum, sic véniet, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+**2** Cumque intueréntur \* in cælum eúntem illum, dixérunt, allelúja.
+
+**3** Elevátis mánibus, \* benedíxit eis, et ferebátur in cælum, allelúja.
+
+**4** Exaltáte Regem regum, \* et hymnum dícite Deo, allelúja.
+
+**5** Vidéntibus illis, \* elevátus est, et nubes suscépit eum in cælo, allelúja.
+
+**Capitulum** *1 Petri 4, 7-8*
+
+CARISSIMI: Estóte prudéntes, et vigiláte in oratiónibus. Ante ómnia autem mútuam in vobismetípsis caritátem contínuam habéntes, quia cáritas óperit multitúdinem peccatórum.
+
+#### Hymnus
+
+SALUTIS humánæ Sator,
+Jesu, volúptas córdium,
+Orbis redémpti Cónditor,
+Et casta lux amántium:
+
+Qua victus es cleméntia,
+Ut nostra ferres crímina?
+Mortem subíres ínnocens,
+A morte nos ut tólleres?
+
+Perrúmpis inférnum chaos:
+Vinctis caténas détrahis;
+Victor triúmpho nóbili
+Ad déxteram Patris sedes.
+
+Te cogat indulgéntia,
+Ut damna nostra sárcias,
+Tuíque vultus cómpotes
+Dites beáto lúmine.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Tu, dux ad astra, et sémita,
+Sis meta nostris córdibus,
+Sis lacrimárum gáudium,
+Sis dulce vitæ prǽmium.
+Amen.

@@ -24437,4 +24437,28 @@ HI dies, dilectíssimi, qui inter resurrectiónem Dómini ascensionémque fluxé
 
 #### Lectio v
 
-IN iis diébus, duóbus discípulis tértius in via Dóminus comes jungitur, et ad omnem nostræ ambiguitátis calíginem detergéndam, pavéntium ac trepidántium tárditas increpátur. Flammam fídei illumináta corda concípiunt: et quæ erant tépida, reseránte Scriptúras Dómino, efficiúntur ardéntia. In fractióne quoque panis, convescéntium aperiúntur obtútus: multo felícius eórum óculis patefáctis, quibus natúræ suæ manifestáta est glorificátio, quam illórum géneris no-
+IN iis diébus, duóbus discípulis tértius in via Dóminus comes jungitur, et ad omnem nostræ ambiguitátis calíginem detergéndam, pavéntium ac trepidántium tárditas increpátur. Flammam fídei illumináta corda concípiunt: et quæ erant tépida, reseránte Scriptúras Dómino, efficiúntur ardéntia. In fractióne quoque panis, convescéntium aperiúntur obtútus: multo felícius eórum óculis patefáctis, quibus natúræ suæ manifestáta est glorificátio, quam illórum géneris no-stri príncipum, quibus prævaricatiónis suæ est ingésta confúsio.
+
+℟. Surgens Jesus Dóminus noster, stans in médio discipulórum suórum, dixit: \* Pax vobis, allelúja: gavísi sunt discípuli viso Dómino, allelúja. ℣. Una ergo sabbatórum, cum fores essent clausæ, ubi erant discípuli congregáti, venit Jesus, et stetit in médio eórum, et dixit eis. — Pax.
+
+#### Lectio vi
+
+INTER hæc autem alíaque mirácula, cum discípuli trépidis cogitatiónibus æstuárent, et apparuísset in médio eórum Dóminus, dixissétque, Pax vobis: ne hoc remanéret in eórum opiniónibus, quod volvebátur in córdibus (putábant enim se spíritum vidére, non carnem) redárguit cogitatiónes a veritáte discórdes: íngerit dubitántium óculis manéntia in mánibus suis et pédibus crucis signa; et ut diligéntius pertractétur, invítat. Quia ad sanánda infidélium córdium vúlnera, clavórum et lánceæ erant serváta vestígia: ut non dúbia fide, sed constantíssima sciéntia tenerétur, eam natúram in Dei Patris consessúram throno, quæ jacúerat in sepúlcro.
+
+℟. Expurgáte vetus ferméntum, ut sitis nova conspérsio: étenim Pascha nostrum immolátus est Christus: \* Itaque epulémur in Dómino, allelúja. ℣. Mórtuus est propter delícta nostra, et resurréxit propter justificatiónem nostram. — Itaque. Glória Patri. Itaque.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio vii
+
+*Cap. 10, 11-16*
+
+IN illo témpore: Dixit Jesus pharisǽis: Ego sum pastor bonus. Bonus pastor ánimam suam dat pro óvibus suis. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 14 in Evangelia}
+
+AUDISTIS, fratres caríssimi, ex lectióne evangélica eruditiónem vestram: audístis et perículum nostrum. Ecce enim is, qui non ex accidénti dono, sed essentiáliter bonus est, dicit: Ego sum pastor bonus. Atque ejúsdem bonitátis formam, quam nos imitémur, adjúngit, dicens: Bonus pastor ánimam suam ponit pro óvibus suis. Fecit quod mónuit: osténdit quod jussit. Bonus pastor pro óvibus suis

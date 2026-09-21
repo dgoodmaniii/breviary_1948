@@ -36879,4 +36879,18 @@ BEATUM Michaélem Archángelum sæpius homínibus paruísse, et sacrórum libró
 
 ###### Lectio v
 
-FACTUM est enim, ut ex grégibus armentórum Gargáni cujúsdam taurus longe discéderet; quem diu conquisítum, in áditu spelúncæ hæréntem invenérunt. Cum vero quidam ex illis, ut taurum confígeret, sagíttam emisísset, retórta sagítta in ipsum récidit sagittárium. Quæ res cum præséntes ac deínceps céteros tanto timóre affecísset, ut ad eam spelúncam própius accédere nemo audéret, Sipontíni épiscopum cónsulunt; qui, indícto trium diérum je-
+FACTUM est enim, ut ex grégibus armentórum Gargáni cujúsdam taurus longe discéderet; quem diu conquisítum, in áditu spelúncæ hæréntem invenérunt. Cum vero quidam ex illis, ut taurum confígeret, sagíttam emisísset, retórta sagítta in ipsum récidit sagittárium. Quæ res cum præséntes ac deínceps céteros tanto timóre affecísset, ut ad eam spelúncam própius accédere nemo audéret, Sipontíni épiscopum cónsulunt; qui, indícto trium diérum jejúnio et oratióne, rem a Deo respóndit quǽri oportére.
+
+℟. Venit Míchaël Archángelus cum multitúdine Angelórum, cui trádidit Deus ánimas Sanctórum, \* Ut perdúcat eas in paradísum exsultatiónis, allelúja. ℣. Emítte, Dómine, Spíritum Sanctum tuum de cælis, spíritum sapiéntiæ et intelléctus. — Ut.
+
+###### Lectio vi
+
+POST tríduum Míchaël Archángelus epíscopum monet in sua tutéla esse eum locum, eóque indício demonstrásse, velle ibi cultum Deo in sui et Angelórum memóriam adhibéri. Quare epíscopus una cum cívibus ad eam spelúncam ire pergit. Quam cum in templi cujúsdam similitúdinem conformátam vidíssent, locum illum divínis offíciis celebráre cœpérunt: qui multis póstea miráculis illustrátus est. Nec ita multo post Bonifátius Papa, Romæ in summo circo sancti Michaélis ecclésiam dedicávit tértio Kaléndas Octóbris: quo die étiam ómnium Angelórum memóriam Ecclésia célebrat. Hodiérnus autem dies Archángeli Michaélis apparitióne consecrátus est.
+
+℟. In témpore illo consúrget Míchaël, qui stat pro fíliis vestris: \* Et véniet tempus, quale non fuit, ex quo gentes esse cœpérunt, usque ad illud, allelúja. ℣. In témpore illo salvábitur pópulus tuus omnis, qui invéntus fúerit scriptus in libro vitæ. — Et. Glória Patri. Et.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+BEATUM Michaélem Archángelum sæpius homínibus apparuísse, et sacrórum librórum auctoritáte, et véteri Sanctórum traditióne comprobátur. Quam ob rem multis in locis facti memória celebrátur. Eum, ut olim synagóga Judæórum, sic nunc custódem et patrónum Dei venerátur Ecclésia. Gelásio autem primo, Pontífice máximo, in Apúlia in vértice Gargáni montis, ad cujus radíces íncolunt Sipontíni, Archángeli Michaélis fuit illústris apparítio. Nec ita multo post Bonifátius Papa, Romæ in summo circo sancti Michaélis ecclésiam dedicávit tértio Kaléndas Octóbris: quo die étiam ómnium Angelórum memóriam Ecclésia célebrat. Hodiérnus autem dies

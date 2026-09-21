@@ -13745,3 +13745,61 @@ Te mane laudum cármine,
 Te deprecámur véspere;
 Dignéris ut te súpplices
 Laudémus inter cælites.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus et superexaltémus eum in sæcula.
+
+**Ad Magnif. Ant.** Grátias \* tibi, Deus, grátias tibi, vera et una Trínitas, una et summa Déitas, sancta et una Unitas.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui dedísti fámulis tuis in confessióne veræ fídei, ætérnæ Trinitátis glóriam agnóscere, et in poténtia majestátis adoráre Unitátem: quæsumus; ut, ejúsdem fídei firmitáte, ab ómnibus semper muniámur advérsis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Domínicæ occurréntis:}
+
+**Ant.** Lóquere, Dómine, quia audit servus tuus.
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Oratio**
+
+DEus, in te sperántium fortitúdo, adésto propítius invocatiónibus nostris: et quia sine te nihil potest mortális infírmitas, præsta auxílium grátiæ tuæ; ut in exsequéndis mandátis tuis, et voluntáte tibi et actióne placeámus. Per Dóminum.
+
+{RUBRIC: Completórium de Domínica.}
+
+### Ad Matutinum
+
+**Invitat.** Deum verum, unum in Trinitáte, et Trinitátem in Unitáte, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. [3]
+
+#### Hymnus
+
+SUmmæ Parens cleméntiæ,
+Mundi regis qui máchinam,
+Uníus et substántiæ,
+Trinúsque persónis Deus:
+
+Da déxteram surgéntibus,
+Exsúrgat ut mens sóbria,
+Flagrans et in laudem Dei
+Grates repéndat débitas.
+
+Deo Patri sit glória,
+Natóque Patris único,
+Cum Spíritu Paráclito,
+In sempitérna sæcula.
+Amen.
+
+#### In I Nocturno
+
+**Ant.** Adésto, unus Deus \* omnípotens, Pater, Fílius, et Spíritus Sanctus.
+
+##### Psalmus 8
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.

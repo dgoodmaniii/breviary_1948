@@ -34355,4 +34355,30 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-PAULUS a Cruce, Uvádæ in Ligúria natus, a primo ratiónis usu, Jesu Christi crucifíxi amóre flagrávit. Martýrii desidério incénsus, exercítui se adjúnxit, qui Venétiis ad bellum Turcis inferéndum comparabátur. Cógnita vero Dei voluntáte, honestíssimis núptiis sibíque deláta pátrui hereditáte recusátis, rudi túnica a suo epíscopo indútus, nondum cléricus, Domínicum agrum divíni verbi prædicatióne excóluit. Romæ a summo Pontífice Benedícto décimo tértio ex obediéntia sacerdótio auctus, in solitúdinem recéssit Argentárii montis, quo eum beáta Virgo jamprídem
+PAULUS a Cruce, Uvádæ in Ligúria natus, a primo ratiónis usu, Jesu Christi crucifíxi amóre flagrávit. Martýrii desidério incénsus, exercítui se adjúnxit, qui Venétiis ad bellum Turcis inferéndum comparabátur. Cógnita vero Dei voluntáte, honestíssimis núptiis sibíque deláta pátrui hereditáte recusátis, rudi túnica a suo epíscopo indútus, nondum cléricus, Domínicum agrum divíni verbi prædicatióne excóluit. Romæ a summo Pontífice Benedícto décimo tértio ex obediéntia sacerdótio auctus, in solitúdinem recéssit Argentárii montis, quo eum beáta Virgo jamprídem invitáverat, veste illi simul osténsa atri colóris passiónis Fílii sui insígnibus decoráta, ibíque fundaménta jecit novæ congregatiónis, cujus sodáles voto adstringeréntur Domínicæ passiónis memóriam promovéndi. Sacras vírgines quoque instítuit, quæ Dómini passiónem sédulo meditaréntur. Prædicatióne, virtútibus et divínis charismátibus clarus, Romæ obdormívit in Dómino, anno millésimo septingentésimo septuagésimo quinto. Eum Pius nonus Póntifex máximus in Beatórum, dein in Sanctórum númerum rétulit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Designávit Dóminus, de Communi Evang., cum Responsoriis de Communi Conf. non Pont. ibi notatis. [31]}
+
+{RUBRIC: Feria II Rogationum ix Lectio de Homilia Feriæ, alias}
+
+Pro S. Vitale Martyre
+
+###### Lectio ix
+
+VITALIS miles, sanctórum Gervásii et Protásii pater, una cum Paulíno júdice Ravénnam ingréssus, cum vidísset Ursicínum médicum, ob christiánæ fídei confessiónem ductum ad supplícium, páululum in torméntis titubáre, exclamávit: Ursicíne médice, qui álios curáre sólitus es, cave ne te mortis ætérnæ jáculo confícias. Qua voce confirmátus Ursicínus, martýrium fórtiter subívit. Quare Paulínus incénsus Vitálem comprehéndi jubet, et equúleo tortum atque in profúndam fóveam demérsum, lapídibus óbrui. Quo facto quidam Apóllinis sacérdos, qui Paulínum in Vitálem incitárat, oppréssus a dǽmone, clamáre cœpit: Tu me nímium, Vitális, Christi Martyr, incéndis; et illo æstu jactátus, se præcipitávit in flumen.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DOMINE Jesu Christe, qui ad mystérium crucis prædicándum, sanctum Paulum singulári caritáte donásti, et per eum novam in Ecclésia famíliam floréscere voluísti: ipsíus nobis intercessióne concéde; ut passiónem tuam júgiter recoléntes in terris, ejúsdem fructum cónsequi mereámur in cælis: Qui vivis.

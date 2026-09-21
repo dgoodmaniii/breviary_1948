@@ -24407,4 +24407,16 @@ De Actibus Apostolórum
 
 *Cap. 13, 13-33*
 
-CUM a Papho navigássent Paulus et qui cum eo erant, venérunt Pergen Pamphýliæ. Joánnes autem discédens ab eis, revérsus est Jerosólymam. Illi vero pertranseúntes Pergen, venérunt Antiochíam Pisídiæ, et ingréssi synagógam die sabbatórum, sedérunt. Post lectiónem autem legis et prophetárum, misérunt príncipes
+CUM a Papho navigássent Paulus et qui cum eo erant, venérunt Pergen Pamphýliæ. Joánnes autem discédens ab eis, revérsus est Jerosólymam. Illi vero pertranseúntes Pergen, venérunt Antiochíam Pisídiæ, et ingréssi synagógam die sabbatórum, sedérunt. Post lectiónem autem legis et prophetárum, misérunt príncipes synagógæ ad eos, dicéntes: Viri fratres, si quis est in vobis sermo exhortatiónis ad plebem, dícite. Surgens autem Paulus, et manu siléntium indícens, ait: Viri Israëlítæ, et qui timétis Deum, audíte: Deus plebis Israël elégit patres nostros, et plebem exaltávit, cum essent íncolæ in terra Ægýpti, et in bráchio excélso edúxit eos ex ea, et per quadragínta annórum tempus mores eórum sustínuit in desérto. Et déstruens gentes septem in terra Chánaan, sorte distríbuit eis terram eórum, quasi post quadringéntos et quinquagínta annos: et post hæc dedit júdices usque ad Sámuel prophétam.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+#### Lectio ii
+
+ET exínde postulavérunt regem: et dedit illis Deus Saul fílium Cis, virum de tribu Bénjamin, annis quadragínta. Et, amóto illo, suscitávit illis David regem: cui testimónium pérhibens, dixit: Invéni David fílium Jesse, virum secúndum cor meum, qui fáciet omnes voluntátes meas. Hujus Deus ex sémine secúndum promissiónem edúxit Israël Salvatórem Jesum, prædicánte Joánne ante fáciem advéntus ejus baptísmum pœniténtiæ omni pópulo Israël. Cum impléret autem Joánnes cursum suum, dicébat: Quem me arbitrámini esse, non sum ego; sed ecce venit post me, cujus non sum dignus calceaménta pedum sólvere.
+
+℟. De ore prudéntis procédit mel, allelúja: dulcédo mellis est sub lingua ejus, allelúja: \* Favus distíllans lábia ejus, allelúja, allelúja. ℣. Sapiéntia requiéscit in corde ejus, et prudéntia in sermóne oris illíus. — Favus.
+
+#### Lectio iii
+
+VIRI fratres, fílii géneris Abraham, et qui in vobis timent Deum, vobis verbum salútis hujus missum est. Qui enim habitábant Jerúsalem, et príncipes ejus hunc ignorántes, et voces prophetárum, quæ per omne sábbatum legúntur, judicántes implevérunt; et nullam causam mortis inveniéntes in eo, petiérunt a Piláto, ut interfícerent eum. Cumque consummássent óm-

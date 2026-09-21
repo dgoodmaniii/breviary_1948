@@ -18921,3 +18921,29 @@ JEhu autem egréssus est ad servos dómini sui, qui dixérunt ei: Recte ne sunt 
 ℟. Et descéndat super nos misericórdia tua.
 
 **Ad Magnif. Ant.** Fecit Joas \* rectum coram Dómino cunctis diébus, quibus dócuit eum Jójada sacérdos.
+
+### Oratio
+
+DEus, qui omnipoténtiam tuam parcéndo máxime et miserándo maniféstas: multíplica super nos misericórdiam tuam; ut ad tua promíssa curréntes, cæléstium bonórum fácias esse consórtes. Per Dóminum.
+
+---
+
+## Dominica X post Pentecosten
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 9, 29-37*
+
+ANno undécimo Joram, fílii Achab, regnávit Ochozías super Judam, venítque Jehu in Jézrahel. Porro Jézabel, intróitu ejus audíto, depínxit óculos suos stíbio et ornávit caput suum et respéxit per fenéstram ingrediéntem Jehu per portam et ait: Numquid pax potest esse Zambri, qui interfécit dóminum suum? Levavítque Jehu fáciem suam ad fenéstram et ait: Quæ est ista? Et inclinavérunt se ad eum duo vel tres eunúchi. At ille dixit eis: Præcipitáte eam deórsum; et præcipitavérunt eam, aspersúsque est sánguine páries, et equórum úngulæ conculcavérunt eam. Cumque introgréssus esset ut coméderet biberétque, ait: Ite et vidéte maledíctam illam et sepelíte eam, quia fília regis est.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+CUmque issent ut sepelírent eam, non invenérunt nisi calváriam et pedes et summas manus. Reversíque nuntiavérunt ei. Et ait Jehu: Sermo Dómini est, quem locútus est per servum suum Elíam Thesbíten dicens: In agro Jézrahel cómedent canes carnes Jézabel, et erunt carnes Jézabel sicut stercus super fáciem terræ in agro Jézrahel, ita ut prætereúntes dicant: Hǽccine est illa Jézabel? Erant autem Achab septuagínta fílii in Samária. Scripsit ergo Jehu lítteras et misit in Samaríam ad optimátes civitátis et ad majóres natu et ad nutrícios Achab dicens: Statim ut accepéritis lítteras has, qui habétis fílios dómini vestri et currus et equos et civitá-

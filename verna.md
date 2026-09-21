@@ -30868,3 +30868,81 @@ QUIS et qualis homo fúerit beátus Joseph, cónjice ex appellatióne, qua, lice
 ###### Lectio v
 
 SIQUIDEM ille Joseph, fratérna ex invídia vénditus et ductus in Ægýptum, Christi venditiónem præfigurávit: iste Joseph, Herodiánam invídiam fúgiens, Christum in Ægýptum portávit. Ille dómino suo fidem servans, dóminæ nóluit commiscéri: iste Dóminam suam Dómini sui matrem, vírginem agnóscens, et ipse cóntinens, fidéliter custodívit. Illi data est intelligéntia in mystériis somniórum; isti datum est cónscium fíeri atque partícipem cæléstium sacramentórum.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi. {RUBRIC: (T. P. Allelúja.)} ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et.
+
+###### Lectio vi
+
+ILLE fruménta servávit non sibi, sed omni pópulo: iste Panem vivum e cælo servándum accépit tam sibi quam toti mundo. Non est dúbium quin bonus et fidélis homo fúerit iste Joseph, cui Mater desponsáta est Salvatóris. Fidélis, inquam, servus, et prudens, quem constítuit Dóminus suæ Matris solátium, suæ carnis nutrítium, solum dénique in terris magni consílii coadjutórem fidelíssimum.
+
+℟. Cum indúcerent púerum Jesum paréntes ejus, ut fácerent secúndum consuetúdinem legis pro eo, \* Accépit eum Símeon in ulnas suas, et benedíxit Deum. {RUBRIC: (T. P. Allelúja.)} ℣. Et erat Pater ejus et Mater mirántes super his, quæ dicebántur de illo. — Accépit. Glória Patri. Accépit.
+
+##### In III Nocturno
+
+**Ant.** Audiens Joseph, \* quod Archeláus regnáret in Judǽa pro Heróde patre suo, tímuit illo ire. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: ¶ Sub qua sola Antiphona dicuntur Tempore Paschali Psalmi hujus Nocturni.}
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Audiens Joseph, quod Archeláus regnáret in Judǽa pro Heróde patre suo, tímuit illo ire.
+
+**Ant.** Admónitus in somnis, \* Joseph secéssit in partes Galilǽæ, et véniens habitávit in civitáte, quæ vocátur Názareth; ut adimplerétur quod dictum est per prophétas: Quóniam Nazarǽus vocábitur.
+
+###### Psalmus 20
+
+DOMINE, in virtúte tua lætábitur rex: \* et super salutáre tuum exsultábit vehementer.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sæculum, et in sæculum sæculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sæculum sæculi: \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis: \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui: \* Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes: \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala: \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum: \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Admónitus in somnis, Joseph secéssit in partes Galilǽæ, et véniens habitávit in civitáte, quæ vocátur Názareth; ut adimplerétur quod dictum est per prophétas: Quóniam Nazarǽus vocábitur.
+
+**Ant.** Erat pater Jesu \* et Mater mirántes super his, quæ dicebántur de illo; et benedíxit illis Símeon.
+
+###### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et

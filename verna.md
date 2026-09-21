@@ -38548,4 +38548,42 @@ AUGUSTINUS, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum só
 
 ℣. Justum dedúxit.
 
-**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, su-
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+DEUS, qui Anglórum gentes, prædicatióne et miráculis beáti Augustíni Confessóris tui atque Pontíficis, veræ fídei luce illustráre dignátus es: concéde; ut, ipso interveniénte, errántium corda ad veritátis tuæ rédeant unitátem, et nos in tua simus voluntáte concórdes. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum, allelúja.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 29 Maji
+
+#### S. Mariæ Magdalenæ de Pazzis
+
+{RUBRIC: Virginis}
+
+{RUBRIC: Semiduplex [129]}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+DEUS, virginitátis amátor, qui beátam Maríam Magdalénam Vírginem, tuo amóre succénsam, cæléstibus donis decorásti: da, ut, quam festíva celebritáte venerámur, puritáte et caritáte imitémur. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+MARIA Magdaléna, illustrióri Pazziórum génere Floréntiæ nata, fere ab incunábulis iter perfectiónis arrípuit. Decénnis perpétuam virginitátem vovit, susceptóque hábitu in monastério sanctæ Maríæ Angelórum, órdinis Carmelitárum, se ómnium virtútum exémplar exhíbuit. Adeo casta fuit, ut quidquid puritátem lædere potest, pénitus ignoráverit. Quinquénnium, Deo jubénte, solo pane et aqua transégit, excéptis diébus Domínicis, quibus cibis quadragesimálibus vescebátur. Corpus suum cilício, flagéllis, frígore, inédia, vigíliis, nuditáte atque omni pœnárum génere cruciábat.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua, allelúja. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.

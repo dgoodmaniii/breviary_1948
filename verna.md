@@ -40793,4 +40793,30 @@ DOMINUS et Salvátor noster, fratres caríssimi, aliquándo nos sermónibus, ali
 
 ℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
 
-{RUBRIC: Feria III et VI infra Hebdómadam I et II post Octávam Paschæ, quóties in I Nocturno Lectiónes fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præ-
+{RUBRIC: Feria III et VI infra Hebdómadam I et II post Octávam Paschæ, quóties in I Nocturno Lectiónes fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præcedéntis Responsórii dícitur sequens}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+{RUBRIC: Pro Confessore Pontifice}
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+{RUBRIC: Pro Conf. non Pontifice}
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+###### Lectio viii
+
+ECCE enim, binos ad prædicándum discípulos Dóminus mittit: quátenus hoc nobis tácitus ínnuat, quia qui caritátem erga álterum non habet, prædicatiónis offícium suscípere nullátenus debet. Bene autem dícitur, quia misit eos ante fáciem suam in omnem civitátem et locum, quo erat ipse ventúrus. Prædicatóres enim suos Dóminus séquitur: quia prædicátio prǽvenit, et tunc ad mentis nostræ habitáculum Dóminus venit, quando verba exhortatiónis præcúrrunt: atque per hoc véritas in mente suscípitur.
+
+{RUBRIC: Pro Evangelistis T. P.}
+
+℟. Cándidi facti sunt Nazaræi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro Confessore Pontifice et non Pontifice}
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. (T. P. Allelúja.) ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro Doctore}
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intellé-

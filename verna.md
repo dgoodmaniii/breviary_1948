@@ -35040,4 +35040,38 @@ NEMINEM movére debet, quod ita scriptum est: Qui putabátur fílius Joseph. Ben
 
 #### Lectio viii
 
-CUR autem Joseph magis quam Maríæ generátio describátur, cum María de Spíritu Sancto generávit Christum, et Joseph a generatióne Dómini videátur aliénus, dubitáre possémus, nisi consuetúdo nos instrúeret Scripturárum, quæ semper viri oríginem quærit. Viri enim persóna quæritur, qui étiam in senátu et réliquis cúriis civitátum géneris assérvat dignitátem. Quam defórme autem, si relícta viri orígine, orígo féminæ quærerétur, ut viderétur patrem non habuísse ille totíus mundi pópulis prædicándus! Vides ubíque famíliam per virórum generatiónes esse decúrsam. Noli mirári quod Joseph orígo descrípta est. Etenim secúndum carnem natus, usum débuit sequi carnis, et qui in sǽculum venit, sǽculi dé-
+CUR autem Joseph magis quam Maríæ generátio describátur, cum María de Spíritu Sancto generávit Christum, et Joseph a generatióne Dómini videátur aliénus, dubitáre possémus, nisi consuetúdo nos instrúeret Scripturárum, quæ semper viri oríginem quærit. Viri enim persóna quæritur, qui étiam in senátu et réliquis cúriis civitátum géneris assérvat dignitátem. Quam defórme autem, si relícta viri orígine, orígo féminæ quærerétur, ut viderétur patrem non habuísse ille totíus mundi pópulis prædicándus! Vides ubíque famíliam per virórum generatiónes esse decúrsam. Noli mirári quod Joseph orígo descrípta est. Etenim secúndum carnem natus, usum débuit sequi carnis, et qui in sǽculum venit, sǽculi débuit more descríbi; máxime cum in Joseph orígine étiam orígo sit Maríæ.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi, allelúja. ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+CUR autem sanctus Matthǽus ab Abraham generatiónem enumeráre cœperit Christi, sanctus vero Lucas a Christo usque ad Deum perdúxerit, explanándum vidétur. Lucas ad Deum putávit oríginem ejus esse referéndam, quod verus Christi generátor Deus sit, vel secúndum veram generatiónem Pater, vel secúndum lavácri regeneratiónem mýstici múneris auctor. Et ídeo non a primo generatiónem ejus cœpit descríbere; sed posteáquam baptísmum ejus explícuit, Auctórem ómnium Deum per baptísmum cúpiens demonstráre. Christum quoque a Deo órdine manásse successiónis assérvit, univérsa contéxens, ut et secúndum natúram et secúndum grátiam et secúndum carnem Dei Fílium demonstráret. Quod autem evidéntius divínæ generatiónis indícium, quam quod de generatióne dictúrus, ipsum Patrem præmísit loquéntem: Hic est Fílius meus diléctus, in quo complácui?
+
+{RUBRIC: Te Deum.}
+
+{RUBRIC: Vesperæ de sequenti Domínica III post Pascha 556, Commemoratio præcedentis diei infra Octavam. 881}
+
+{RUBRIC: Completorium de Sabbato. 334}
+
+{RUBRIC: Sequenti item die Offícium dícitur de eadem Domínica III 557 cum Commemoratióne Octávæ 881, et in II Vésperis pro Commemoratióne sequéntis diei infra Octávam súmitur Ant.} Cum esset desponsáta, et ℣. Constítuit, {RUBRIC: e I Vésperis Festi. 873}
+
+{RUBRIC: Si tamen sequénti die faciéndum non sit Offícium de Octáva, dícitur Ant.} Fili, quid, et ℣. Sub umbra, {RUBRIC: e II Vésperis Festi. 881}
+
+---
+
+## Feria II
+
+De VI die infra Octav. S. Joseph
+
+{RUBRIC: Semiduplex 873}
+
+### In II Nocturno
+
+Sermo sancti Bernárdi Abbátis
+
+{RUBRIC: Homilia 2 super Missus est}
+
+#### Lectio iv
+
+DESPONSATA est María Joseph, vel pótius (sicut ponit Evangelísta) viro, cui nomen

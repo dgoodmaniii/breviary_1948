@@ -12485,3 +12485,57 @@ Quam magnificáta sunt ópera tua, Dómine! \* nimis profúndæ factæ sunt cogi
 Vir insípiens non cognóscet: \* et stultus non intélliget hæc.
 
 Cum exórti fúerint peccatóres sicut fœnum: \* et apparúerint omnes, qui operántur iniquitátem:
+
+Ut intéreant in sæculum sæculi: \* tu autem Altíssimus in ætérnum, Dómine.
+
+Quóniam ecce inimíci tui, Dómine, quóniam ecce inimíci tui períbunt: \* et dispergéntur omnes, qui operántur iniquitátem.
+
+Et exaltábitur sicut unicórnis cornu meum: \* et senéctus mea in misericórdia úberi.
+
+Et despéxit óculus meus inimícos meos: \* et in insurgéntibus in me malignántibus áudiet auris mea.
+
+Justus ut palma florébit: \* sicut cedrus Líbani multiplicábitur.
+
+Plantáti in domo Dómini, \* in átriis domus Dei nostri florébunt.
+
+Adhuc multiplicabúntur in senécta úberi: \* et patiéntes erunt, ut annúntient:
+
+Quóniam rectus Dóminus, Deus noster: \* et non est iníquitas in eo.
+
+**Ant.** Rectus Dóminus, Deus noster: et non est iníquitas in eo.
+
+**Ant.** A timóre inimíci.
+
+### Psalmus 63
+
+EXáudi, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** A timóre inimíci éripe, Dómine, ánimam meam.
+
+**Ant.** In servis suis.
+
+### Canticum Moysis
+
+*Deut. 32, 1-43*
+
+AUdíte, cæli, quæ loquor: \* áudiat terra verba oris mei.

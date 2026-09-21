@@ -27287,4 +27287,26 @@ HODIERNAM celebritátem satis per se magnam, prophéta David majórem éfficit, 
 
 ET quóniam ubicúmque fúerit ille, qui in seípso ómnia cóntinet, pro suscipiéntium captu seípsum dimetítur (neque enim solum inter hómines homo fit, verum étiam dum inter Angelos versátur, ad illórum vocem sese demíttit) idcírco janitóres intérrogant: Quis est iste Rex glóriæ? Respóndent ipsis, demonstrántque fortem et poténtem in prǽlio, qui pugnatúrus erat contra illum, qui natúram humánam in servitúte captívam detinébat, et eversúrus eum, qui mortis habébat impérium: ut gravíssimo hoste superáto, genus hóminum in libertátem et pacem vindicáret.
 
-℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum veritátis, et gaudébit cor vestrum, allelúja.
+
+#### Lectio vi
+
+OCCURRUNT ei custódes, et portas jubent reclúdi, ut in ipsis rursum glóriam assequátur. Verum non agnóscunt eum, qui sórdidam vitæ nostræ stolam indútus est: cujus rubra sunt vestiménta ex humanórum malórum torculári. Itaque rursus cómites ejus vócibus illis interrogántur: Quis est iste Rex glóriæ? Respondétur autem non ámplius, Fortis et potens in prǽlio; sed, Dóminus virtútum, qui mundi principátum obtínuit, qui summátim ómnia in se collégit, qui prístinum in statum cuncta restítuit: ipse est Rex glóriæ.
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 14-20*
+
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui víderant eum resurrexísse, non credidérunt. Et réliqua.
+
+De Homilía sancti Gregórii Papæ
+
+{RUBRIC: Eadem Homilia 29}
+
+HOC autem nobis primum quæréndum est, quidnam sit, quod, nato Dómino, apparuérunt Angeli, et tamen non legúntur in albis véstibus apparuísse: ascendénte autem Dómino, missi Angeli in albis legúntur véstibus apparuísse. Sic étenim scriptum est: Vidéntibus illis, elevátus est, et nubes suscépit eum ab óculis eórum. Cumque intueréntur in cælum eúntem illum, ecce duo viri stetérunt juxta illos in véstibus albis. In albis autem véstibus gáudium et solémnitas mentis osténditur. Quid est ergo, quod, nato Dómino, non in albis véstibus; ascendénte autem Dómino, in albis véstibus Angeli appárent: nisi quod tunc magna solémnitas Angelis facta est, cum cælum Deus homo penetrávit? Quia, nascénte Dómino, videbátur divínitas humiliáta; ascendénte vero Dómino, est humánitas exaltáta. Albæ

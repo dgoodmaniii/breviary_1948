@@ -17428,4 +17428,26 @@ PRopter hoc prima múlier facta est de látere viri dormiéntis, et appelláta e
 
 ##### Lectio ix
 
-DUO testimónia de Scriptúris réddidit síngulis rebus quas factas fuísse narrávit. Nam quia dixe-
+DUO testimónia de Scriptúris réddidit síngulis rebus quas factas fuísse narrávit. Nam quia dixerat: Ad Jesum autem cum veníssent, ut vidérunt eum jam mórtuum, non fregérunt ejus crura, ad hoc pértinet testimónium: Os non comminuétis ex eo: quod præcéptum erat eis qui celebráre Pascha jussi sunt ovis immolatióne in véteri lege, quæ Domínicæ Passiónis umbra præcésserat; unde Pascha nostrum immolátus est Christus; de quo et Isaías Prophéta prædíxerat: Sicut ovis ad immolándum ductus est. Item quia subjúnxerat dicens: Sed unus mílitum láncea latus ejus apéruit, ad hoc pértinet álterum testimónium: Vidébunt in quem transfixérunt, ubi promíssus est Christus, in ea qua crucifíxus est carne ventúrus.
+
+**Te Deum.**
+
+{RUBRIC: Ad Vésperas, nisi sequénti die persolvéndum sit Offícium de Festo ix Lectiónum, aut de qualíbet Octáva vel Vigília, fit Commemorátio de sancta María, et de ea dícitur Offícium in Sábbato sequénti. Quod item servátur in ómnibus Sábbatis témpore æstívo occurréntibus.}
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 16, 1-11*
+
+DIxítque Dóminus ad Samuélem: Usquequo tu luges Saul, cum ego projécerim eum ne regnet super Israël? Imple cornu tuum óleo et veni, ut mittam te ad Isaï Bethlehemítem; provídi enim in fíliis ejus mihi regem. Et ait Sámuel: Quómodo vadam? áudiet enim Saul et interfíciet me. Et ait Dóminus: Vítulum de arménto tolles in manu tua et dices: Ad immolándum Dómino veni. Et vocábis Isai ad víctimam, et ego osténdam tibi quid fácias, et unges quemcúmque monstrávero tibi.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et malum coram te feci.
+
+##### Lectio ii
+
+FEcit ergo Sámuel sicut locútus est ei Dóminus, venítque in Béthlehem, et admiráti sunt senióres civitátis occurréntes ei dixerúntque: Pacifícusne est ingréssus tuus? Et ait: Pacíficus: ad immolándum Dómino veni: sanctificámini et veníte

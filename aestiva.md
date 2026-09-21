@@ -18728,4 +18728,30 @@ QUI dixit eis: Cujus figúræ et hábitus est vir ille, qui occúrrit vobis et l
 
 IN lectiónibus, quæ nobis diébus istis recitántur, fratres caríssimi, frequénter admónui, ut non sequámur lítteram occidéntem, et vivificántem spíritum relinquámus. Sic enim Apóstolus ait: Líttera enim occídit, spíritus vivíficat. Si enim hoc tantum vólumus intellígere, quod sonat in líttera, aut parvam, aut prope nullam ædificatiónem de divínis lectiónibus capiémus. Illa enim ómnia, quæ recitántur, typus erant et imágo futurórum. In Judǽis enim figuráta, in nobis, grátia Dei donánte, compléta sunt.
 
-℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio v
+
+BEátus enim Elías typum hábuit Dómini Salvatóris. Sicut enim Elías a Judǽis persecutiónem passus est: ita et verus Elías, Dóminus noster, ab ipsis Judǽis reprobátus est et contémptus. Elías relíquit gentem suam: et Christus desérvit synagógam. Elías ábiit in desértum: et Christus venit in mundum. Elías in desérto corvis ministrántibus pascebátur: et Christus in desérto mundi hujus géntium fide refícitur.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+COrvi enim illi, qui beáto Elíæ, jubénte Dómino, ministrábant, géntium pópulum figurábant. Proptérea et de géntium Ecclésia dícitur: Nigra sum et formósa, fília Jerúsalem. Unde est Ecclésia nigra et formósa? Nigra per natúram, formósa per grátiam. Unde nigra? Ecce in iniquitátibus concéptus sum, et in delíctis péperit me mater mea. Unde formósa? Aspérges me hyssópo, et mundábor: lavábis me, et super nivem dealbábor.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 2, 5-13*
+
+ACcessérunt fílii prophetárum qui erant in Jéricho ad Eliséum et dixérunt ei: Numquid nosti quia Dóminus hódie tollet dóminum tuum a te? Et ait: Et ego novi: siléte. Dixit autem ei Elías: Sede hic, quia Dóminus misit me usque ad Jordánem. Qui ait: Vivit Dóminus, et vivit ánima tua, quia non derelínquam te. Ierunt ígitur ambo páriter. Et quinquagínta viri de fíliis prophetárum secúti sunt eos, qui et steté-

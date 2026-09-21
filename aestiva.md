@@ -2260,3 +2260,57 @@ Cum Spíritu Paráclito
 Regnans per omne sæculum. Amen.
 
 **Ant.** Allelúja.
+
+###### Psalmus 118, vi
+
+DEFECIT in salutáre tuum ánima mea: \* et in verbum tuum supersperávi.
+
+Defecérunt óculi mei in elóquium tuum, \* dicéntes: Quando consoláberis me?
+
+Quia factus sum sicut uter in pruína: \* justificatiónes tuas non sum oblítus.
+
+Quot sunt dies servi tui? \* quando fácies de persequéntibus me judícium?
+
+Narravérunt mihi iníqui fabulatiónes: \* sed non ut lex tua.
+
+Omnia mandáta tua véritas: \* iníque persecúti sunt me, ádjuva me.
+
+Paulo minus consummavérunt me in terra: \* ego autem non derelíqui mandáta tua.
+
+Secúndum misericórdiam tuam vivífica me: \* et custódiam testimónia oris tui.
+
+In ætérnum, Dómine, \* verbum tuum pérmanet in cælo.
+
+In generatiónem et generatiónem véritas tua: \* fundásti terram, et pérmanet.
+
+Ordinatióne tua persevérat dies: \* quóniam ómnia sérviunt tibi.
+
+Nisi quod lex tua meditátio mea est: \* tunc forte periíssem in humilitáte mea.
+
+In ætérnum non oblivíscar justificatiónes tuas: \* quia in ipsis vivificásti me.
+
+Tuus sum ego, salvum me fac: \* quóniam justificatiónes tuas exquisívi.
+
+Me exspectavérunt peccatóres ut pérderent me: \* testimónia tua intelléxi.
+
+Omnis consummatiónis vidi finem: \* latum mandátum tuum nimis.
+
+###### Psalmus 118, vii
+
+QUOMODO diléxi legem tuam, Dómine? \* tota die meditátio mea est.
+
+Super inimícos meos prudéntem me fecísti mandáto tuo: \* quia in ætérnum mihi est.
+
+Super omnes docéntes me intelléxi: \* quia testimónia tua meditátio mea est.
+
+Super senes intelléxi: \* quia mandáta tua quæsívi.
+
+Ab omni via mala prohíbui pedes meos: \* ut custódiam verba tua.
+
+A judíciis tuis non declinávi: \* quia tu legem posuísti mihi.
+
+Quam dúlcia fáucibus meis elóquia tua, \* super mel ori meo!
+
+A mandátis tuis intelléxi: \* proptérea odívi omnem viam iniquitátis.
+
+Lucérna pédibus meis verbum tuum, \* et lumen sémitis meis.

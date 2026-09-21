@@ -14849,3 +14849,49 @@ NUllum étiam sacraméntum est isto salúbrius, quo purgántur peccáta, virtút
 IUdica me, Deus, et discérne causam meam de gente non sancta, \* ab hómine iníquo, et dolóso érue me.
 
 Quia tu es, Deus, fortitúdo mea: \* quare me repulísti? et quare tristis incédo, dum afflígit me inimícus?
+
+Emítte lucem tuam et veritátem tuam: \* ipsa me deduxérunt, et adduxérunt in montem sanctum tuum, et in tabernácula tua.
+
+Et introíbo ad altáre Dei: \* ad Deum, qui lætíficat juventútem meam.
+
+Confitébor tibi in cíthara, Deus, Deus meus: \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Ant.** Introíbo ad altáre Dei: sumam Christum, qui rénovat juventútem meam.
+
+**Ant.** Cibávit nos Dóminus \* ex ádipe fruménti: et de petra, melle saturávit nos.
+
+##### Psalmus 80
+
+EXsultáte Deo, adjutóri nostro: \* jubiláte Deo Jacob.
+
+Súmite psalmum, et date týmpanum: \* psaltérium jucúndum cum cíthara.
+
+Buccináte in Neoménia tuba, \* in insígni die solemnitátis vestræ.
+
+Quia præcéptum in Israël est: \* et judícium Deo Jacob.
+
+Testimónium in Joseph pósuit illud, cum exíret de terra Ægýpti: \* linguam, quam non nóverat, audívit.
+
+Divértit ab onéribus dorsum ejus: \* manus ejus in cóphino serviérunt.
+
+In tribulatióne invocásti me, et liberávi te: \* exaudívi te in abscóndito tempestátis: probávi te apud aquam contradictiónis.
+
+Audi, pópulus meus, et contestábor te: \* Israël, si audíeris me, non erit in te deus recens, neque adorábis deum aliénum.
+
+Ego enim sum Dóminus, Deus tuus, qui edúxi te de terra Ægýpti: \* diláta os tuum, et implébo illud.
+
+Et non audívit pópulus meus vocem meam: \* et Israël non inténdit mihi.
+
+Et dimísi eos secúndum desidéria cordis eórum: \* ibunt in adinventiónibus suis.
+
+Si pópulus meus audísset me: \* Israël si in viis meis ambulásset:
+
+Pro níhilo fórsitan inimícos eórum humiliássem: \* et super tribulántes eos misíssem manum meam.
+
+Inimíci Dómini mentíti sunt ei: \* et erit tempus eórum in sæcula.
+
+Et cibávit eos ex ádipe fruménti: \* et de petra, melle saturávit eos.
+
+**Ant.** Cibávit nos Dóminus ex ádipe fruménti: et de petra, melle saturávit nos.

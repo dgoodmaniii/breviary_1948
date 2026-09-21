@@ -10155,3 +10155,59 @@ Et tentavérunt, et exacerbavérunt Deum excélsum: \* et testimónia ejus non c
 Et avertérunt se, et non servavérunt pactum: \* quemádmodum patres eórum, convérsi sunt in arcum pravum.
 
 In iram concitavérunt eum in cóllibus suis: \* et in sculptílibus suis ad æmulatiónem eum provocavérunt.
+
+**Ant.** Redémit eos Dóminus de manu tribulántis.
+
+**Ant.** Ædificávit \* Deus sanctifícium suum in terra.
+
+### Psalmus 77, vi
+
+AUdívit Deus, et sprevit: \* et ad níhilum redégit valde Israël.
+
+Et répulit tabernáculum Silo, \* tabernáculum suum, ubi habitávit in homínibus.
+
+Et trádidit in captivitátem virtútem eórum: \* et pulchritúdinem eórum in manus inimíci.
+
+Et conclúsit in gládio pópulum suum: \* et hereditátem suam sprevit.
+
+Júvenes eórum comédit ignis: \* et vírgines eórum non sunt lamentátæ.
+
+Sacerdótes eórum in gládio cecidérunt: \* et víduæ eórum non plorabántur.
+
+Et excitátus est tamquam dórmiens Dóminus, \* tamquam potens crapulátus a vino.
+
+Et percússit inimícos suos in posterióra: \* oppróbrium sempitérnum dedit illis.
+
+Et répulit tabernáculum Joseph: \* et tribum Ephraim non elégit:
+
+Sed elégit tribum Juda, \* montem Sion quem diléxit.
+
+Et ædificávit sicut unicórnium sanctifícium suum in terra, \* quam fundávit in sæcula.
+
+Et elégit David, servum suum, et sústulit eum de grégibus óvium: \* de post fetántes accépit eum.
+
+Páscere Jacob, servum suum, \* et Israël, hereditátem suam:
+
+Et pavit eos in innocéntia cordis sui: \* et in intelléctibus mánuum suárum dedúxit eos.
+
+**Ant.** Ædificávit Deus sanctifícium suum in terra.
+
+#### In Festis novem Lectionum:
+
+℣. Elégit Dóminus tribum Juda. ℟. Montem Sion quem diléxit.
+
+**Absolutio.** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.
+
+#### In III Nocturno
+
+**Ant.** Adjuva nos, \* Deus, salutáris noster: et propítius esto peccátis nostris.
+
+### Psalmus 78
+
+DEus, venérunt gentes in hereditátem tuam, polluérunt templum sanctum tuum: \* posuérunt Jerúsalem in pomórum custódiam.
+
+Posuérunt morticína servórum tuórum, escas volatílibus cæli: \* carnes sanctórum tuórum béstiis terræ.
+
+Effudérunt sánguinem eórum tamquam aquam

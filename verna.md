@@ -34825,3 +34825,59 @@ Amíssum Sólymis quæris, et ínvenis,
 Miscens gáudia flétibus.
 
 Post mortem réliquos sors pia cónsecrat,
+
+Tu vivens, Súperis par, frúeris Deo,
+Mira sorte beátior.
+
+Nobis, summa Trias, parce precántibus,
+Da Joseph méritis sídera scándere;
+Ut tandem líceat nos tibi pérpetim
+Gratum prómere cánticum. Amen.
+
+℣. Sub umbra illíus, quem desideráveram, sedi, allelúja. ℟. Et fructus ejus dulcis gútturi meo, allelúja.
+
+**Ad Magnif. Ant.** Fili, quid fecísti \* nobis sic? Ecce pater tuus et ego doléntes quærebámus te, allelúja.
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+{RUBRIC: Infra Octavam et in die Octava Antiphonæ et Psalmi ad omnes Horas et Versus Nocturnorum de occurrenti hebdomadæ die, ut in Psalterio; reliqua ut in Festo præter Lectiones, quæ in I Nocturno dicuntur de Scriptura occurrenti cum suis Responsoriis de Tempore, in II et III pro singulis diebus assignantur propriæ.}
+
+---
+
+Pro Commemoratione
+
+### Octavæ S. Joseph
+
+{RUBRIC: In I Vesp. Ant.} Cum esset desponsáta Mater Jesu María Joseph, ántequam convenírent, invénta est in útero habens de Spíritu Sancto, allelúja.
+
+℣. Constítuit eum dóminum domus suæ, allelúja. ℟. Et príncipem omnis possessiónis suæ, allelúja.
+
+{RUBRIC: Ad Laudes Ant.} Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est, allelúja.
+
+℣. Dedísti mihi protectiónem salútis tuæ, allelúja. ℟. Et déxtera tua suscépit me, allelúja.
+
+**Oratio** Deus, qui ineffábili, {RUBRIC: ut supra. 880}
+
+{RUBRIC: In II Vesp. Ant.} Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te, allelúja.
+
+℣. Sub umbra illíus, {RUBRIC: ut supra.}
+
+---
+
+## Feria V
+
+De II die infra Octav. S. Joseph
+
+{RUBRIC: Semiduplex 873}
+
+### In II Nocturno
+
+De Sermóne sancti Bernardíni Senénsis
+
+Sermo de S. Joseph
+
+#### Lectio iv
+
+CUM inter Maríam et Joseph fúerit veríssimum matrimónium per divínam inspiratiónem contráctum, et in matrimónio fiat únio animórum in tantum quod

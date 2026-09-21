@@ -50922,3 +50922,39 @@ ANIMA Christi, sanctífica me. Corpus Christi, salva me. Sanguis Christi, inébr
 {RUBRIC: Indulgentia trium annorum; plenaria suetis conditionibus, si quotidie per integrum mensem actus oblationis devote recitatus fuerit. Pius Pp. XI, 4 Decembris 1932.}
 
 SUSCIPE, Dómine, univérsam meam libertátem. Accipe memóriam, intelléctum atque voluntátem omnem. Quidquid hábeo vel possídeo, mihi largítus es: id tibi totum restítuo, ac tuæ prorsus voluntáti trado gubernándum. Amórem tui solum cum grátia tua mihi dones, et dives sum satis, nec áliud quidquam ultra posco.
+
+## Oratio ad D. N. J. C. Crucifixum
+
+{RUBRIC: Indulgentia decem annorum; plenaria recitantibus post Missam et orantibus ad mentem Summi Pontificis. Pius Pp. XI, 2 Februarii 1934.}
+
+{ILLUSTRATION: Woodcut of the Crucifixion, Christ on the cross flanked by the Virgin Mary and St. John, with a skull at the foot of the cross and the caption "Foderunt manus meas et pedes meos" below.}
+
+EN ego, o bone et dulcíssime Jesu, ante conspéctum tuum génibus me provólvo ac máximo ánimi ardóre te oro atque obtéstor, ut meum in cor vívidos fídei, spei et caritátis sensus, atque veram peccatórum meórum pæniténtiam, éaque emendándi firmíssimam voluntátem velis imprímere; dum magno ánimi afféctu et dolóre tua quinque vúlnera mecum ipse consídero ac mente contémplor, illud præ óculis habens, quod jam in ore ponébat tuo David Prophéta de te, o bone Jesu: Fodérunt manus meas et pedes meos; dinumeravérunt ómnia ossa mea. *Ps. 21, 17-18*
+
+## Alia Oratio
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. IX, 11 Decembris 1846. Insuper hanc orationem recitanti flexis genibus, nisi impediatur, conceditur remissio defectuum et culparum in celebratione Missæ ex humana fragilitate contractarum. Pius Pp. X, 29 Augusti 1912.}
+
+OBSECRO te, dulcíssime Dómine Jesu Christe, ut passio tua sit mihi virtus, qua múniar, prótegar atque deféndar; vúlnera tua sint mihi cibus potúsque, quibus pascar, inébrier atque delécter; aspérsio Sánguinis tui sit mihi ablútio ómnium delictórum meórum; mors tua sit mihi vita indefíciens, Crux tua sit mihi glória sempitérna. In his sit mihi reféctio, exsultátio, sánitas et dulcédo cordis mei: Qui vivis et regnas in sæcula sæculórum. Amen.
+
+## Oratio ad B. Mariam V.
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+O María, Virgo et Mater sanctíssima, ecce suscépi dilectíssimum Fílium tuum, quem immaculáto útero tuo concepísti, genuísti, lactásti, atque suavíssimis ampléxibus strinxísti. Ecce cujus aspéctu lætabáris et ómnibus delíciis replebáris, illum ipsum tibi humíliter et amánter repræsénto et óffero tuis bráchiis constringéndum, tuo corde amándum, sanctissimæque Trinitáti in suprémum latríæ cultum, pro tui ipsíus honóre et glória et pro meis totiúsque mundi necessitátibus, offeréndum. Rogo ergo te, piíssima Mater, ímpetra mihi véniam ómnium peccatórum meórum, uberémque grátiam ipsi deínceps fidélius serviéndi, ac dénique grátiam finálem, ut eum tecum laudáre possim per ómnia sǽcula sæculórum. Amen.
+
+## Oratio ad S. Joseph
+
+{RUBRIC: Indulgentia trium annorum; plenaria suetis conditionibus, oratione quotidie per integrum mensem pia mente iterata. Pius Pp. XI, 18 Maji 1936.}
+
+VIRGINUM custos et pater, sancte Joseph, cujus fidéli custódiæ ipsa Innocéntia Christus Jesus et Virgo vírginum María commíssa fuit: te per hoc utrúmque caríssimum pignus Jesum et Maríam óbsecro et obtéstor, ut me, ab omni immundítia præservátum, mente incontamináta, puro corde et casto córpore Jesu et Maríæ semper fácias castíssime famulári. Amen.
+
+## Oratio ad Sanctum
+
+### In Cujus Honorem Missa Celebrata Est
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+SANCTE N., in cujus honórem incruéntum Córporis et Sánguinis Christi sacrifícium óbtuli, fac tua poténti apud Deum intercessióne, ut, usu hujus mystérii, passiónis et mortis ejúsdem Christi Salvatóris nostri mérita cónsequar, ac cum illíus frequentatióne contínuo créscat meæ salútis efféctus. Amen.
+
+---

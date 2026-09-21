@@ -41164,3 +41164,21 @@ A MILETO Paulus mittens Ephesum, vocávit majóres natu Ecclésiæ. Qui cum ven�
 ℟. Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sæculum sæculi. — In mandátis.
 
 **Bened.** Unigénitus Dei.
+
+###### Lectio ii
+
+ET nunc ecce ego scio quia ámplius non vidébitis fáciem meam vos omnes, per quos transívi prǽdicans regnum Dei. Quaprópter contéstor vos hodiérna die, quia mundus sum a sánguine ómnium. Non enim subterfúgi quóminus annuntiárem omne consílium Dei vobis. Atténdite vobis, et univérso gregi, in quo vos Spíritus Sanctus pósuit epíscopos régere Ecclésiam Dei, quam acquisívit sánguine suo. Ego scio quóniam intrábunt post discessiónem meam lupi rapáces in vos, non parcéntes gregi. Et ex vobis ipsis exsúrgent viri loquéntes pervérsa, ut abdúcant discípulos post se. Propter quod vigiláte, memória retinéntes: quóniam per triénnium nocte et die non cessávi, cum lácrimis monens unumquémque vestrum.
+
+℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+**Bened.** Spíritus Sancti.
+
+###### Lectio iii
+
+ET nunc comméndo vos Deo, et verbo grátiæ ipsíus, qui potens est ædificáre, et dare hereditátem in sanctificátis ómnibus. Argéntum et aurum, aut vestem nullíus concupívi, sicut ipsi scitis: quóniam ad ea, quæ mihi opus erant, et his, qui mecum sunt, ministravérunt manus istæ. Omnia osténdi vobis, quóniam sic laborántes, opórtet suscípere infírmos, ac meminísse verbi Dómini Jesu, quóniam ipse dixit: Beátius est magis dare, quam accípere. Et cum hæc dixísset, pósitis génibus suis, orávit cum ómnibus illis. Magnus autem fletus factus est ómnium: et procumbéntes super collum Pauli, osculabántur eum, doléntes máxime in verbo, quod díxerat, quóniam ámplius fáciem ejus non essent visúri. Et deducébant eum ad navem.
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum: \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. Glória Patri. Et.

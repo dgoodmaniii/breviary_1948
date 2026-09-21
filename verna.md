@@ -38912,4 +38912,18 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Liber 1 de Sermóne Dómini in monte, cap. 2}
 
-BEATI mundo corde; quóniam ipsi Deum vidébunt. Quam ergo stulti sunt, qui Deum istis exterióribus óculis quærunt, cum corde videátur, sicut álibi scriptum est: Et in simplicitáte cordis quærite illum.
+BEATI mundo corde; quóniam ipsi Deum vidébunt. Quam ergo stulti sunt, qui Deum istis exterióribus óculis quærunt, cum corde videátur, sicut álibi scriptum est: Et in simplicitáte cordis quærite illum. Hoc est enim mundum cor, quod est simplex cor. Et quemádmodum lumen hoc vidéri non potest, nisi óculis mundis: ita nec Deus vidétur, nisi mundum sit illud, quo vidéri potest. Beáti pacífici; quóniam ipsi fílii Dei vocabúntur. In pace perféctio est, ubi nihil repúgnat; et ideo fílii Dei pacífici, quóniam nihil in his resístit Deo, et útique fílii similitúdinem patris habére debent.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+###### Lectio viii
+
+PACIFICI autem in semetípsis sunt, qui omnes ánimi sui motus componéntes, et subjiciéntes ratióni, id est menti et spirítui, carnalésque concupiscéntias habéntes edómitas, fiunt regnum Dei. In quo ita sunt ordináta ómnia, ut id quod est in hómine præcípuum et excéllens, hoc ímperet, céteris non reluctántibus, quæ sunt nobis bestiísque commúnia; atque idípsum quod excéllit in hómine, id est mens et rátio, subjiciátur potióri, quod est ipsa véritas, unigénitus Fílius Dei. Neque enim imperáre inferióribus potest, nisi superióri se ipse subjíciat. Et hæc est pax, quæ datur in terra homínibus bonæ voluntátis; hæc vita consummáti perfectíque sapiéntis.
+
+℟. Cándidi facti sunt Nazaræi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+DE hujúsmodi regno pacatíssimo et ordinatíssimo missus est foras princeps hujus sæculi, qui pervérsis inordinatísque dominátur. Hac pace intrínsecus constitúta atque firmáta, quascúmque persecutiónes ille, qui foras missus est, forínsecus concitáverit, auget glóriam, quæ secúndum Deum est; non áliquid in illo ædifício labefáctans, sed deficiéntibus máchinis suis innotéscere fáciens, quanta firmitas intus exstrúcta sit. Ideo séquitur: Beáti, qui persecutiónem patiúntur propter justítiam; quóniam ipsórum est regnum cælórum.
+
+{RUBRIC: Te Deum.}

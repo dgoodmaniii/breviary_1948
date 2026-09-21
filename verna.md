@@ -25557,3 +25557,39 @@ QUID próderit, fratres mei, si fidem quis dicat se habére, ópera autem non h�
 #### Lectio ii
 
 SED dicet quis: Tu fidem habes, et ego ópera hábeo. Osténde mihi fidem tuam sine opéribus: et ego osténdam tibi ex opéribus fidem meam. Tu credis quóniam unus est Deus: Bene facis: et dǽmones credunt, et contremíscunt. Vis autem scire, o homo inánis, quóniam fides sine opéribus mórtua est? Abraham, pater noster, nonne ex opéribus justificátus est, ófferens Isaac fílium suum super altáre? Vides quóniam fides cooperabátur opéribus illíus: et ex opéribus fides consummáta est?
+
+℟. Bonum est confitéri Dómino, allelúja: \* Et psállere, allelúja. ℣. In decachórdo psaltério, cum cántico et cíthara. — Et psállere. Glória Patri. Et psállere.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Et psállere.
+
+#### Lectio iii
+
+ET suppléta est Scriptúra, dicens: Crédidit Abraham Deo, et reputátum est illi ad justítiam, et amícus Dei appellátus est. Vidétis quóniam ex opéribus justificátur homo, et non ex fide tantum? Simíliter et Rahab méretrix, nonne ex opéribus justificáta est, suscípiens núntios, et ália via ejíciens? Sicut enim corpus sine spíritu mórtuum est, ita et fides sine opéribus mórtua est.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Dicant nunc, qui redémpti sunt, allelúja: \* A Dómino, allelúja, allelúja. ℣. Quos redémit de manu inimíci, et de regiónibus congregávit eos. — A Dómino. Glória Patri. A Dómino.
+
+**Ad Bened. Ant.** Spíritus \* carnem et ossa non habet, sicut me vidétis habére: jam crédite, allelúja.
+
+**Ad Magnif. Ant.** Adhuc multa hábeo \* vobis dícere, sed non potéstis portáre modo: cum autem vénerit ille Spíritus veritátis, docébit vos omnem veritátem, allelúja.
+
+---
+
+## Feria Quinta
+
+De Epístola beáti Jacóbi Apóstoli
+
+#### Lectio i
+
+*Cap. 3, 1-10*
+
+NOLITE plures magístri fíeri, fratres mei, sciéntes quóniam majus judícium súmitis. In multis enim offéndimus omnes. Si quis in verbo non offéndit, hic perféctus est vir: potest étiam freno circumdúcere totum corpus. Si autem equis frena in ora míttimus ad consentiéndum nobis, et omne corpus illórum circumférimus.
+
+℟. Si oblítus fúero tui, allelúja, obliviscátur mei déxtera mea: \* Adhǽreat lingua mea fáucibus meis, si non memínero tui, allelúja, allelúja. ℣. Super flúmina Babylónis illic sédimus et flévimus, dum recordarémur tui, Sion. — Adhǽreat.
+
+#### Lectio ii
+
+ECCE et naves, cum magnæ sint, et a ventis válidis minéntur, circum-

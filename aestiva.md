@@ -17154,4 +17154,16 @@ SIquidem cum se conspiciéndum Margarítæ Maríæ exhibéret Christus, caritát
 
 *Cap. 19, 31-37*
 
-IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce córpora sábbato, erat enim magnus dies ille sábbati, rogavérunt Pilátum ut frangeréntur eórum crura et tolleréntur. Et réliqua.
+
+{RUBRIC: Homilía sancti Bernardíni Senénsis}
+
+{RUBRIC: Quadragesimale de Christiána Religióne. Sermo 5}
+
+JOánnes subdit: Unus mílitum láncea latus ejus apéruit et contínuo exívit sanguis et aqua. O amor qui ómnia liquas! quómodo pro redemptióne nostra reliquísti dilectórem nostrum? Nam, ut úndique inundáret amóris dilúvium, super nos ruptæ sunt abýssi magnæ; scílicet, penetrália Cordis Jesu, quibus, ad íntima progrédiens, dira láncea non pepércit. Sanguis exívit et aqua. Sanguis in redemptiónem, sed étiam in ablutiónem aqua deflúxit; unde formáta est Ecclésia ex látere Christi, ut ætérne únicam atque diléctam a Christo se discat, et ut recognóscat quam displícuit culpa pro qua sanguis divínus ex hómine Deo vivo et mórtuo ita deflúxit. Non enim parva quantitáte constámus, si pro nobis sanguis divínus effúnditur.
+
+℟. Ego si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia traham ad meípsum.
+
+##### Lectio viii
+
+AQua ad lítteram non cum sánguine indistíncta deflúxit. Neque enim potuísset ab insipiéntibus comprehéndi, si mixta cum sánguine defluxísset. Et forte totus sanguis deflúxit ex illo divíno córpore in signum totíus amóris effúsi, post quem humor áqueus egréssus est. Quod quidem est alto mystério factum, ut prius egrederétur ex eódem córpore rédimens prétium, deínde aqua in qua multitúdo populórum redémpta significátur. Sunt enim aquæ multæ, pópuli multi; tamen qui ad christiánam fidem pértinent unus fidélis pópulus sunt, ut non sint aquæ, sed aqua quæ manávit ex látere Christi, sicut prima Corinthiórum cápite décimo Apóstolus ait: Unus panis, et unum corpus multi sumus omnes, qui de uno pane et de uno cálice participámus. Et íterum ad Ephésios, cápite quarto, inquit: Unus Deus, una fides, unum baptísma.

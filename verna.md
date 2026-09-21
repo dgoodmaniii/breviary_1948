@@ -29018,4 +29018,44 @@ Homilía sancti Bernárdi Abbátis
 
 ###### Lectio viii
 
-QUID dicébas, o Adam? Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Verba malítiæ sunt hæc, quibus magis áugeas quam déleas culpam. Verúmtamen Sapiéntia vicit malítiam, cum occasiónem véniæ, quam a te Deus interrogándo elícere tentávit, sed non pótuit, in thesáuro indeficiéntis suæ pietátis invénit. Rédditur nempe
+QUID dicébas, o Adam? Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Verba malítiæ sunt hæc, quibus magis áugeas quam déleas culpam. Verúmtamen Sapiéntia vicit malítiam, cum occasiónem véniæ, quam a te Deus interrogándo elícere tentávit, sed non pótuit, in thesáuro indeficiéntis suæ pietátis invénit. Rédditur nempe fémina pro fémina, prudens pro fátua, húmilis pro supérba; quæ pro ligno mortis gustum tibi pórrigat vitæ, et pro venenóso cibo illo amaritúdinis, dulcédinem páriat fructus ætérni. Muta ergo iníquæ excusatiónis verbum in vocem gratiárum actiónis, et dic: Dómine, múlier, quam dedísti mihi, dedit mihi de ligno vitæ, et comédi; et dulce factum est super mel ori meo, quia in ipso vivificásti me. Ecce enim ad hoc missus est Angelus ad Vírginem. O admirándam et omni honóre digníssimam Vírginem! O féminam singuláriter venerándam, super omnes féminas admirábilem, paréntum reparatrícem, posterórum vivificatrícem!
+
+℟. Plantávit Dóminus Deus paradísum voluptátis, produxítque lignum vitæ in médio ejus: \* Et flúvius egrediebátur de loco voluptátis. ℣. Emissiónes tuæ paradísus, Virgo María. — Et. Glória Patri. Et.
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes et per Horas, Añæ
+
+**1** Candor est \* lucis ætérnæ, et spéculum sine mácula.
+
+**2** Múlier \* amícta sole, et luna sub pédibus ejus, et in cápite ejus coróna stellárum duódecim.
+
+**3** Tu glória Jerúsalem, \* tu lætítia Israël, tu honorificéntia pópuli nostri.
+
+**4** Benedícta es tu, \* Virgo María, a Dómino Deo excélso, præ ómnibus muliéribus super terram.
+
+**5** Hódie nomen tuum \* ita magnificávit Dóminus, ut non recédat laus tua de ore hóminum.
+
+**Capit.** *Cant. 2, 13-14*
+
+SURGE, amíca mea, speciósa mea, et veni, colúmba mea, in foramínibus petræ, in cavérna macériæ, osténde mihi fáciem tuam, sonet vox tua in áuribus meis.
+
+###### Hymnus
+
+AURORA soli prǽvia,
+Felix salútis núntia,
+In noctis umbra plebs tua
+Te, Virgo, supplex ínvocat.
+
+Torrens nefástis flúctibus
+Cunctos trahens vorágine,
+Leni resídit æquore,
+Cum transit Arca fœderis.
+
+Dum torret aréscens humus,
+Tu rore sola spárgeris;
+Tellúre circum rórida,
+Intácta sola pérmanes.
+
+Fatále virus évomens
+Attóllit ánguis vérticem;

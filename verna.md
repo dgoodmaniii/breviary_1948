@@ -24128,4 +24128,12 @@ PRIMUM quidem sermónem feci de ómnibus, o Theóphile, quæ cœpit Jesus fácer
 
 #### Lectio ii
 
-ET cum hæc dixísset, vidéntibus illis, elevátus est: et nubes suscépit eum ab óculis eórum. Cumque intueréntur in cælum eúntem illum, ecce duo viri astitérunt juxta illos in véstibus albis, qui et dixérunt: Viri Galilǽi, quid statis aspiciéntes in
+ET cum hæc dixísset, vidéntibus illis, elevátus est: et nubes suscépit eum ab óculis eórum. Cumque intueréntur in cælum eúntem illum, ecce duo viri astitérunt juxta illos in véstibus albis, qui et dixérunt: Viri Galilǽi, quid statis aspiciéntes in cælum? Hic Jesus qui assúmptus est a vobis in cælum, sic véniet, quemádmodum vidístis eum eúntem in cælum. Tunc revérsi sunt Jerosólymam a monte, qui vocátur Olivéti, qui est juxta Jerúsalem, sábbati habens iter. Et cum introíssent in cœnáculum, ascendérunt ubi manébant Petrus et Joánnes, Jacóbus et Andréas, Philíppus et Thomas, Bartholomǽus et Matthǽus, Jacóbus Alphǽi et Simon Zelótes, et Judas Jacóbi. Hi omnes erant perseverántes unanímiter in oratióne cum muliéribus, et María matre Jesu, et frátribus ejus.
+
+℟. De ore prudéntis procédit mel, allelúja: dulcédo mellis est sub lingua ejus, allelúja: \* Favus distíllans lábia ejus, allelúja, allelúja. ℣. Sapiéntia requiéscit in corde ejus, et prudéntia in sermóne oris illíus. — Favus.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Favus.
+
+#### Lectio iii
+
+IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum, qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus crépuit médius: et diffúsa sunt ómnia víscera ejus. Et notum factum est ómnibus habitántibus Jerúsalem, ita ut appellarétur ager ille, lingua eórum, Hacéldama, hoc est, ager sánguinis. Scriptum est enim in libro Psalmórum: Fiat commorátio eórum desérta, et non sit qui inhábitet in ea: et episcopátum ejus accípiat alter. Opórtet ergo ex his viris, qui nobíscum sunt congregáti in omni témpore, quo intrávit et exívit inter nos Dóminus Jesus, incípiens a baptísmate Joánnis usque in diem, qua assúmptus est a nobis, testem resurrectiónis ejus nobíscum fíeri unum ex istis. Et statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Justus: et Matthíam. Et orántes dixérunt: Tu, Dómine, qui corda nosti ómnium, osténde, quem elégeris ex his duóbus unum accípere locum ministérii hujus, et apostolátus, de quo prævaricá-

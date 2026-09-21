@@ -9716,3 +9716,69 @@ COnfitébor † tibi, Dómine, in toto corde meo: \* quóniam audísti verba ori
 In conspéctu Angelórum psallam tibi: \* adorábo ad templum sanctum tuum, et confitébor nómini tuo.
 
 Super misericórdia tua, et veritáte tua: \* quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me: \* multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ: \* quia audiérunt ómnia verba oris tui:
+
+Et cantent in viis Dómini: \* quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit: \* et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me: \* et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me: \* Dómine, misericórdia tua in sæculum: ópera mánuum tuárum ne despícias.
+
+**Ant.** Confitébor nómini tuo, Dómine, super misericórdia et veritáte tua.
+
+#### In Officio feriali
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BENEDICTUS Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+#### Hymnus
+
+MAgnæ Deus poténtiæ,
+Qui fértili natos aqua
+Partim relínquis gúrgiti,
+Partim levas in áëra.
+
+Demérsa lymphis ímprimens,
+Subvécta cælis érigens:
+Ut stirpe ab una pródita,
+Divérsa répleant loca:
+
+Largíre cunctis sérvulis,
+Quos mundat unda Sánguinis,
+Nescíre lapsus críminum,
+Nec ferre mortis tædium.
+
+Ut culpa nullum déprimat:
+Nullum éfferat jactántia:
+Elísa mens ne cóncidat:
+Eláta mens ne córruat.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Fecit Deus \* poténtiam in bráchio suo: dispérsit supérbos mente cordis sui.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRATRES: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus

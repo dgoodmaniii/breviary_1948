@@ -5449,3 +5449,64 @@ JAM lucis orto sídere,
 Deum precémur súpplices,
 Ut in diúrnis áctibus
 Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+**Ant.** Deus meus.
+
+### Psalmus 24, i
+
+AD te, Dómine, levávi ánimam meam: \* Deus meus, in te confído, non erubéscam.
+
+Neque irrídeant me inimíci mei: \* étenim univérsi, qui sústinent te, non confundéntur.
+
+Confundántur omnes iníqua agéntes \* supervácue.
+
+Vias tuas, Dómine, demónstra mihi: \* et sémitas tuas édoce me.
+
+Dírige me in veritáte tua, et doce me: \* quia tu es, Deus, salvátor meus, et te sustínui tota die.
+
+Reminíscere miseratiónum tuárum, Dómine, \* et misericordiárum tuárum, quæ a sæculo sunt.
+
+Delícta juventútis meæ, \* et ignorántias meas ne memíneris.
+
+Secúndum misericórdiam tuam meménto mei tu: \* propter bonitátem tuam, Dómine.
+
+### Psalmus 24, ii
+
+DULCIS et rectus Dóminus: \* propter hoc legem dabit delinquéntibus in via.
+
+Díriget mansuétos in judício: \* docébit mites vias suas.
+
+Univérsæ viæ Dómini, misericórdia et véritas, \* requiréntibus testaméntum ejus et testimónia ejus.
+
+Propter nomen tuum, Dómine, propitiáberis peccáto meo: \* multum est enim.
+
+Quis est homo qui timet Dóminum? \* legem státuit ei in via, quam elégit.
+
+Anima ejus in bonis demorábitur: \* et semen ejus hereditábit terram.
+
+Firmaméntum est Dóminus timéntibus eum: \* et testaméntum ipsíus ut manifestétur illis.
+
+### Psalmus 24, iii
+
+OCULI mei semper ad Dóminum: \* quóniam ipse evéllet de láqueo pedes meos.

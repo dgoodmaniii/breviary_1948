@@ -15578,4 +15578,18 @@ IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et san
 
 {RUBRIC: Tract. 26 in Joann., post med.}
 
-HIc est panis, qui de cælo descéndit. Hunc panem significávit manna, hunc panem significávit altáre Dei. Sacraménta illa fuérunt: in signis divérsa sunt; sed in re, quæ significátur, pária sunt. Apóstolum audi: Nolo enim vos, inquit, ignoráre, fratres, quia patres nostri omnes sub nube fuérunt, et omnes mare transiérunt, et omnes per Móysen baptizáti sunt in nube et in mari, et omnes eámdem escam spiritálem manducavérunt. Spiritálem útique eámdem; nam corporálem álteram; quia illi manna, nos áliud: spiritálem vero, quam nos, sed patres nostri, non patres illórum, quibus nos símiles sumus, non quibus illi símiles fuérunt. Et adjúngit: Et omnes eúmdem potum spiritálem bibérunt. Aliud illi, áliud nos, sed spécie visíbili quidem, tamen hoc idem significánte virtúte spiritáli. Quómodo enim eúmdem potum? Bibébant, inquit, de spiritáli, sequénte petra: petra autem erat Christus. Inde
+HIc est panis, qui de cælo descéndit. Hunc panem significávit manna, hunc panem significávit altáre Dei. Sacraménta illa fuérunt: in signis divérsa sunt; sed in re, quæ significátur, pária sunt. Apóstolum audi: Nolo enim vos, inquit, ignoráre, fratres, quia patres nostri omnes sub nube fuérunt, et omnes mare transiérunt, et omnes per Móysen baptizáti sunt in nube et in mari, et omnes eámdem escam spiritálem manducavérunt. Spiritálem útique eámdem; nam corporálem álteram; quia illi manna, nos áliud: spiritálem vero, quam nos, sed patres nostri, non patres illórum, quibus nos símiles sumus, non quibus illi símiles fuérunt. Et adjúngit: Et omnes eúmdem potum spiritálem bibérunt. Aliud illi, áliud nos, sed spécie visíbili quidem, tamen hoc idem significánte virtúte spiritáli. Quómodo enim eúmdem potum? Bibébant, inquit, de spiritáli, sequénte petra: petra autem erat Christus. Inde panis, inde potus. Petra Christus in signo, verus Christus in verbo et in carne. Et quómodo bibérunt? Percússa est petra de virga bis: gémina percússio, duo ligna Crucis significat.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In.
+
+##### Lectio viii
+
+NOrunt fidéles corpus Christi, si corpus Christi non négligant esse. Fiant corpus Christi, si volunt vívere de Spíritu Christi. De Spíritu Christi non vivit, nisi corpus Christi. Intellígite, fratres mei, quid díxerim. Homo es, et spíritum habes, et corpus habes. Spíritum dico, quæ ánima vocátur, qua constas, quod homo es; constas enim ex ánima et córpore. Habes enim spíritum invisíbilem, corpus visíbile. Dic mihi, quid ex quo vivat? Spíritus tuus vivit ex córpore tuo, an corpus tuum ex spíritu tuo? Respóndet omnis, qui vivit: qui autem hoc non potest respondére, néscio si vivit. Quid respóndet omnis, qui vivit? Corpus útique meum vivit de spíritu meo. Vis ergo et tu vívere de Spíritu Christi? In córpore esto Christi.
+
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me. ℣. Cibávit illum Dóminus pane vitæ et intelléctus. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+NUmquid enim corpus meum vivit de spíritu tuo? Meum vivit de spíritu meo, et tuum de spíritu tuo. Non potest vívere corpus Christi, nisi de Spíritu Christi. Inde est, quod expónens nobis Apóstolus Paulus hunc panem: Unus panis, inquit, unum corpus multi sumus. O sacraméntum pietátis, o signum unitátis, o vínculum caritátis! Qui vult vívere, habet ubi vivat, habet unde vivat. Accédat, credat, incorporétur, ut vivificétur. Non abhórreat a compáge membrórum, non sit putre membrum, quod resecári mereátur, non sit distórtum, de quo erubéscátur. Sit pulchrum, sit aptum, sit sanum: hæreat córpori, vivat Deo de Deo. Nunc labóret in terra, ut póstea regnet in cælo.
+
+**Te Deum laudámus.** [7]

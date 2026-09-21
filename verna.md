@@ -35493,4 +35493,58 @@ DEUS, qui nos ánnua Apostolórum tuórum Philíppi et Jacóbi solemnitáte læt
 
 ECCE quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est.
 
-℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Læ-
+℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+###### Oratio
+
+DEUS, qui nos ánnua Apostolórum tuórum Philíppi et Jacóbi solemnitáte lætíficas: præsta, quǽsumus; ut, quorum gaudémus méritis, instruámur exémplis. Per Dóminum.
+
+##### Ad Nonam
+
+{RUBRIC: C}
+
+**Ant.** Si dilígitis me, \* mandáta mea serváte, allelúja, allelúja, allelúja.
+
+**Capitulum** *Rom. 8, 28*
+
+SCIMUS quóniam diligéntibus Deum ómnia cooperántur in bonum, iis qui secúndum propósitum vocáti sunt sancti.
+
+℟. br. Lætítia sempitérna super cápita eórum, \* Allelúja, allelúja. Lætítia. ℣. Gáudium et exsultatiónem obtinébunt. Allelúja, allelúja. Glória Patri. Lætítia. ℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Antiphonæ de Laudibus; Psalmi, Capitulum et Hymnus ut in II Vesperis de Communi Tempore Paschali. [21]}
+
+℣. Pretiósa, {RUBRIC: ut supra.}
+
+**Ad Magnif. Ant.** Si manséritis in me, \* et verba mea in vobis mánserint, quodcúmque petiéritis, fiet vobis, allelúja, allelúja, allelúja.
+
+{RUBRIC: Et fit Commemoratio sequentis.}
+
+---
+
+### Die 2 Maji
+
+#### S. Athanasii
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [84]}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Athanási, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+{RUBRIC: C 2}
+
+EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti Athanásii Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+ATHANASIUS Alexandrínus, cathólicæ religiónis propugnátor acérrimus, ab Alexándro epíscopo Alexandríno diáconus factus est,

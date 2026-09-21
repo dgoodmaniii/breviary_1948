@@ -31969,3 +31969,45 @@ Cum Patre, et almo Spíritu,
 In sempitérna sǽcula. Amen.
 
 ℣. Ave, María, grátia plena. {RUBRIC: (T. P. Allelúja.)} ℟. Dóminus tecum. {RUBRIC: (T. P. Allelúja.)}
+
+**Ad Bened. Ant.** Quómodo fiet istud, \* Angele Dei, quóniam virum non cognósco? Audi, María Virgo: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### Ad Primam
+
+**Ant.** Missus est, {RUBRIC: ut supra. 784}
+
+##### Ad Tertiam
+
+**Ant.** Ave, María, {RUBRIC: ut supra. 784}
+
+**Capit.** Ecce virgo, {RUBRIC: ut supra. 784}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Spécie tua et pulchritúdine tua, \* Allelúja, allelúja. Spécie. ℣. Inténde, próspere procéde, et regna. Allelúja, allelúja. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo, allelúja. ℟. Deus in médio ejus, non commovébitur, allelúja.
+
+**Oratio** Deus, qui de beátæ, {RUBRIC: ut supra.}
+
+##### Ad Sextam
+
+**Ant.** Ne tímeas, María, {RUBRIC: ut supra. 784}
+
+###### Capitulum
+
+*Luc. 1, 32-33*
+
+DABIT illi Dóminus Deus sedem David, patris ejus, et regnábit in domo Jacob in ætérnum, et regni ejus non erit finis.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Adjuvábit eam Deus vultu suo, \* Allelúja, allelúja. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Allelúja, allelúja. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam, allelúja. ℟. In tabernáculo suo habitáre facit eam, allelúja.

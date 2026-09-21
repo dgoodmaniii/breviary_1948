@@ -36397,4 +36397,18 @@ Incipit Epístola prima beáti Joánnis Apóstoli
 
 **Lectio i** *Cap. 1, 1-10*
 
-QUOD fuit ab inítio, quod audívimus, quod vídimus óculis nostris, quod perspéximus, et manus nostræ contrectavérunt de verbo vitæ: et vita manifestáta est, et vídimus, et testámur, et annuntiámus vobis vitam ætérnam, quæ erat apud Patrem, et appáruit nobis: quod vídimus, et audívimus, annuntiámus vobis, ut et vos societátem habeátis
+QUOD fuit ab inítio, quod audívimus, quod vídimus óculis nostris, quod perspéximus, et manus nostræ contrectavérunt de verbo vitæ: et vita manifestáta est, et vídimus, et testámur, et annuntiámus vobis vitam ætérnam, quæ erat apud Patrem, et appáruit nobis: quod vídimus, et audívimus, annuntiámus vobis, ut et vos societátem habeátis nobíscum, et societas nostra sit cum Patre et cum Fílio ejus Jesu Christo. Et hæc scríbimus vobis ut gaudeátis, et gáudium vestrum sit plenum. Et hæc est annuntiátio, quam audívimus ab eo, et annuntiámus vobis: Quóniam Deus lux est, et ténebræ in eo non sunt ullæ.
+
+℟. Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sǽculum sǽculi. — In mandátis.
+
+###### Lectio ii
+
+SI dixérimus quóniam societátem habémus cum eo, et in ténebris ambulámus, mentímur, et veritátem non fácimus. Si autem in luce ambulámus sicut et ipse est in luce, societátem habémus ad ínvicem, et sánguis Jesu Christi, Fílii ejus, emúndat nos ab omni peccáto. Si dixérimus quóniam peccátum non habémus, ipsi nos sedúcimus, et véritas in nobis non est. Si confiteámur peccáta nostra, fidélis est et justus, ut remíttat nobis peccáta nostra, et emúndet nos ab omni iniquitáte. Si dixérimus quóniam non peccávimus, mendácem fácimus eum, et verbum ejus non est in nobis.
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+**Lectio iii** *Cap. 2, 1-6*
+
+FILIOLI mei, hæc scribo vobis, ut non peccétis. Sed, et si quis peccáverit, advocátum habémus apud Patrem, Jesum Christum justum: et ipse est propitiátio pro peccátis nostris: non pro nostris autem tantum, sed étiam pro totíus mundi. Et in hoc scimus quóniam cognóvimus eum, si mandáta ejus observémus. Qui dicit se nosse eum, et mandáta ejus non custódit, mendax est, et in hoc véritas non est. Qui autem servat verbum ejus, vere in hoc cáritas Dei perfécta est: et in hoc scimus quóniam in ipso sumus. Qui dicit se in ipso manére, debet, sicut ille ambulávit, et ipse ambuláre.
+
+℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória Patri. Mors.

@@ -6752,3 +6752,65 @@ Sacrifícium laudis honorificábit me: \* et illic iter, quo osténdam illi salu
 **Ant.** Immola Deo sacrifícium laudis.
 
 **Ant.** Intellígite.
+
+### Psalmus 49, iii
+
+PECCATORI autem dixit Deus: \* Quare tu enárras justítias meas, et assúmis testaméntum meum per os tuum?
+
+Tu vero odísti disciplínam: \* et projecísti sermónes meos retrórsum:
+
+Si vidébas furem, currébas cum eo: \* et cum adúlteris portiónem tuam ponébas.
+
+Os tuum abundávit malítia: \* et lingua tua concinnábat dolos.
+
+Sedens advérsus fratrem tuum loquebáris, et advérsus fílium matris tuæ ponébas scándalum: \* hæc fecísti, et tácui.
+
+Existimásti, iníque, quod ero tui símilis: \* árguam te, et státuam contra fáciem tuam.
+
+Intellígite hæc, qui oblivíscimini Deum: \* nequándo rápiat, et non sit qui erípiat.
+
+Sacrifícium laudis honorificábit me: \* et illic iter, quo osténdam illi salutáre Dei.
+
+**Ant.** Intellígite, qui obliviscímini Deum.
+
+℣. Sacrifícium laudis honorificábit me. ℟. Et illic iter, quo osténdam illi salutáre Dei.
+
+**Absolutio.** A vínculis.
+
+##### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis sine Homilia:
+
+**Bened.** 1 Ille nos benedícat. 2 Divínum. 3 Ad societátem.
+
+---
+
+## Ad Laudes I
+
+*In Fériis extra Vigílias commúnes occurréntibus, atque in Festis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Dóminus regnávit, \* † exsúltet terra. ‡
+
+### Psalmus 96
+
+DOMINUS regnávit, † exsúltet terra: \* ‡ læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.

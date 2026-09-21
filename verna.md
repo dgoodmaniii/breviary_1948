@@ -37474,4 +37474,28 @@ VITÆ religiósæ studiosíssimus, eam, inter purpurátos patres adléctus, in e
 
 ###### Lectio ix
 
-ROBERTUS, Politiánus, e Patrícia Bellarminórum gente, matrem pientíssimam hábuit Cýnthiam Cervíni, Marcélli Papæ secúndi sorórem. Exímia pietáte et castíssimis móribus ornátus, duodevigínti annórum adoléscens Societátem Jesu Romæ ingréssus est, in eáque, ad mortem usque religiosárum virtútum ómnibus exémplo fuit. Post philosophíæ currículum Floréntiam primum missus, tum Montem Regálem, Patávium et Lovánium, magístri et concionatóris múnere, nondum sacérdos, mirífice functus est. Lovánii prætérea sacerdótio auctus, theologíam ita dócuit, ut theólogus per Európam claríssimus jam tum haberétur. Romam revocátus, theológicam controversiárum disciplínam in Collégio Románo trádidit, ubi étiam vitæ spirituális magíster constitútus, angélicum júvenem Aloísium per sanctitátis sémitas moderátus est. A Cleménte Papa octávo frustra relúctans, in Patrum Cardinálium númerum cooptátus, et paulo post consecrátus Epíscopus Capuánam Archidiœcésim triénnium sanctíssime rexit; quo múnere depósito, integérrimus ac fidelíssimus Summi Pontíficis consiliárius in Urbe degit, usque dum, prope octogenárius, die décima séptima septémbris, anno millésimo sexcentésimo vigésimo primo pie in Dómino quiévit. Præter controversiárum volúmina multa ália præcláre scripsit, inter quæ áureus catechésis libéllus exstat insígnis. Fortíssimum hunc cathólicæ veritátis propugnatórem Pius
+ROBERTUS, Politiánus, e Patrícia Bellarminórum gente, matrem pientíssimam hábuit Cýnthiam Cervíni, Marcélli Papæ secúndi sorórem. Exímia pietáte et castíssimis móribus ornátus, duodevigínti annórum adoléscens Societátem Jesu Romæ ingréssus est, in eáque, ad mortem usque religiosárum virtútum ómnibus exémplo fuit. Post philosophíæ currículum Floréntiam primum missus, tum Montem Regálem, Patávium et Lovánium, magístri et concionatóris múnere, nondum sacérdos, mirífice functus est. Lovánii prætérea sacerdótio auctus, theologíam ita dócuit, ut theólogus per Európam claríssimus jam tum haberétur. Romam revocátus, theológicam controversiárum disciplínam in Collégio Románo trádidit, ubi étiam vitæ spirituális magíster constitútus, angélicum júvenem Aloísium per sanctitátis sémitas moderátus est. A Cleménte Papa octávo frustra relúctans, in Patrum Cardinálium númerum cooptátus, et paulo post consecrátus Epíscopus Capuánam Archidiœcésim triénnium sanctíssime rexit; quo múnere depósito, integérrimus ac fidelíssimus Summi Pontíficis consiliárius in Urbe degit, usque dum, prope octogenárius, die décima séptima septémbris, anno millésimo sexcentésimo vigésimo primo pie in Dómino quiévit. Præter controversiárum volúmina multa ália præcláre scripsit, inter quæ áureus catechésis libéllus exstat insígnis. Fortíssimum hunc cathólicæ veritátis propugnatórem Pius undécimus Póntifex Máximus in Sanctórum númerum rétulit atque universális Ecclésiæ Doctórem declarávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+Homilía sancti Robérti Bellarmíni Epíscopi
+
+{RUBRIC: (Concio IX: De probitate Doctorum Ecclesiæ; initio.)}
+
+QUEMADMODUM in Deo, quem unum in Trinitáte et Trinum in unitáte venerámur, tria quædam singuláriter éminent, poténtia, sapiéntia, bónitas; ita quoque auditóres, singuláres amícos et fílios suos, patres ac doctóres nostros, Deus, ut sibi quam simíllimos et géntibus ómnibus suspiciéndos atque admirábiles rédderet, potentíssimos, sapientíssimos, óptimos, sanctissimósque esse vóluit. Primum ea poténtia eos armávit, qua multa præter sólitum cursum ordinémque natúræ in eleméntis, in arbóribus, in brutis animántibus, in ipsis homínibus plane admirábília et singulária fácerent. Deínde sapiéntia ita mentes eórum instrúxit, ut non solum præséntia et præteríta cérnerent, sed étiam futúra multo ante prævidérent atque prædícerent. Postrémo dilatávit corda eórum summa atque ardentíssima caritáte, tum ut ipsi magno ánimo opus aggrederéntur; tum ut ii qui converténdi per eos erant, non solum verbis et miráculis, sed étiam exémplis et vitæ probitáte moveréntur.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum, allelúja. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio viii
+
+PRÆDICATORES ígitur nostræ legis, tam ii qui primi ad nos fidem detulérunt et evangélium, quam ii quos deínde síngulis sǽculis Deus excitávit ad fidem eámdemque confirmándam vel propagándam, quales fúerint, quam pii, quam justi, quam religiósi totus mundus novit. Aspícite primum Apóstolos. Quid sublímius atque excelléntius móribus Apo-

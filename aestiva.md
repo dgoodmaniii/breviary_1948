@@ -19579,3 +19579,31 @@ FIlius sápiens lætíficat patrem, fílius vero stultus mæstítia est matris s
 BEnedíctio Dómini super caput justi, os autem impiórum óperit iníquitas. Memória justi cum láudibus, et nomen impiórum putréscet. Sápiens corde præcépta súscipit, stultus cæditur lábiis. Qui ámbulat simplíciter, ámbulat confidénter; qui autem deprávat vias suas, maniféstus erit. Qui ánnuit óculo dabit dolórem, et stultus lábiis verberábitur.
 
 ℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Superbórum.}
+
+##### Lectio iii
+
+VEna vitæ os justi, et os impiórum óperit iniquitátem. Odium súscitat rixas, et univérsa delícta óperit cáritas. In lábiis sapiéntis invenítur sapiéntia, et virga in dorso ejus qui índiget corde. Sapiéntes abscóndunt sciéntiam, os autem stulti confusióni próximum est. Substántia dívitis urbs fortitúdinis ejus, pavor páuperum egéstas eórum. Opus justi ad vitam, fructus autem ímpii ad peccátum.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut sciam. Glória Patri. Ut sciam.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De Parábolis Salomónis}
+
+##### Lectio i
+
+*Cap. 14, 1-16*
+
+SApiens múlier ædíficat domum suam, insípiens exstrúctam quoque mánibus déstruet. Ambulans recto itínere et timens Deum despícitur ab eo qui infámi gráditur via. In ore stulti virga supérbiæ, lábia autem sapiéntium custódiunt eos. Ubi non sunt boves, præsépe vácuum est; ubi autem plúrimæ ségetes, ibi manifésta est fortitúdo bovis. Testis fidélis non mentítur, profert autem mendácium dolósus testis.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio ii
+
+QUærit derísor sapiéntiam et non ínvenit, doctrína prudéntium fácilis. Vade contra virum stultum, et nescit lábia prudéntiæ. Sapiéntia cállidi est intellígere viam suam, et imprudéntia stultórum errans. Stultus illúdet peccátum, et inter justos morábitur grátia. Cor, quod novit amaritúdinem ánimæ suæ, in gáudio ejus non miscébitur extráneus. Domus impiórum delébitur, tabernácula vero justórum germinábunt.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus

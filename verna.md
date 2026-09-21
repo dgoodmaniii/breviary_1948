@@ -37902,4 +37902,26 @@ AT Venántius præsídi sístitur, et ab eo íterum frustra tentátus ut Christi
 
 ###### Lectio vi
 
-QUOD cum præsídi nuntiátum esset, extémplo Venántium leónibus objíci jussit; qui, naturáli feritáte omíssa, ad ejus pedes abjecérunt. Intérim ille pópulum Christi fidem edocébat. Quare inde amótus, íterum in cárcerem tráditur. Cumque postrídie præsídi referrét Porphýrius, se per visum noctu pópulos, quos Venántius aqua tingébat, claríssima luce fulgéntes, ipsum vero præsídem obscuríssima calígine opértum vidísse; præses, ira incénsus, eum íllico cápite plecti ímperat, deínde Venántium per loca vépribus et cárduis cónsita trahi usque ad vésperam. Is, cum semiánimis relíctus esset, mane se íterum præsídi præsentávit; cujus jussu statim e rupe præcipitátur. Sed inde étiam divínitus eréptus, dénuo per loca áspera ad mille passus tráhitur; ubi, milítibus siti æstuántibus, in próxima conválle, ex lápide, in quo et génuum formam relíquit, sicut étiam nunc in ejus ecclésia vidére licet, crucis signo a Venántio facto, aquæ
+QUOD cum præsídi nuntiátum esset, extémplo Venántium leónibus objíci jussit; qui, naturáli feritáte omíssa, ad ejus pedes abjecérunt. Intérim ille pópulum Christi fidem edocébat. Quare inde amótus, íterum in cárcerem tráditur. Cumque postrídie præsídi referrét Porphýrius, se per visum noctu pópulos, quos Venántius aqua tingébat, claríssima luce fulgéntes, ipsum vero præsídem obscuríssima calígine opértum vidísse; præses, ira incénsus, eum íllico cápite plecti ímperat, deínde Venántium per loca vépribus et cárduis cónsita trahi usque ad vésperam. Is, cum semiánimis relíctus esset, mane se íterum præsídi præsentávit; cujus jussu statim e rupe præcipitátur. Sed inde étiam divínitus eréptus, dénuo per loca áspera ad mille passus tráhitur; ubi, milítibus siti æstuántibus, in próxima conválle, ex lápide, in quo et génuum formam relíquit, sicut étiam nunc in ejus ecclésia vidére licet, crucis signo a Venántio facto, aquæ manárunt. Eo miráculo plures permóti in Christum credidérunt, quos omnes præses eo loci una cum Venántio cápite feríri jussit. Fúlgura et terræmótus eo témpore ita magni fúere, ut præses aufúgeret; qui paucis tamen post diébus, divínam haud valens effúgere justítiam, turpíssimam mortem oppétiit. Christiáni intérim Venántii et aliórum córpora honorífico loco sepeliérunt: quæ Cameríni, in ecclésia Venántio dicáta, cóndita adhuc sunt.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+VENANTIUS Camers, quíndecim annos natus, christiánæ religiónis accusátus apud Antíochum, qui sub Décio imperatóre Camerino præerat, in porta civitátis præsídi se óbtulit. Quem ille pollicitatiónibus ac terróribus diu tentátum, flagris cædi et vínculis astríngi jussit; e quibus mirabíliter ab Angelo solútus, lampádibus póstea adúritur, atque invérso ore, fumo suppósito, suspénditur. Eídem, ad præsidem íterum addúcto, omnes contúsi sunt dentes maxillǽque confráctæ, atque ita cæsus in sterquilínium dejícitur. Sed inde ab Angelo eréptus, rursus stetit ante júdicem; qui, Venántio adhuc loquénte, e tribunáli cécidit et in ea voce, Verus est Venántii Deus, nostros deos destrúite, exclámans exspirávit. Demum, post nova et exquisíta torménta, una cum áliis decem gloriósi certáminis cursum cervícibus abscíssis implévit. Quorum córpora christiáni honorífico loco sepeliérunt, quæ Cameríni, in ecclésia Venántio dicáta, cóndita sunt.
+
+{RUBRIC: Te Deum.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ego sum vitis vera, de Communi Martyrum Tempore Paschali 1 loco. [77]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt

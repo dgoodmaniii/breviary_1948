@@ -42893,4 +42893,26 @@ VIDIT admírans præséntium multitúdo cæléste certámen, certámen Dei, cert
 
 ###### Lectio vi
 
-O QUALE illud fuit spectáculum Dómino, quam sublíme, quam magnum, quam Dei óculis sacraménto ac devotióne mílitis ejus accéptum! sicut scriptum est in Psalmis, Spíritu Sancto loquénte ad nos páriter et monénte: Pretiósa est in conspéctu Dómini mors justórum ejus. Pretiósa mors hæc est, quæ emit immortalitátem prétio sui sángui-
+O QUALE illud fuit spectáculum Dómino, quam sublíme, quam magnum, quam Dei óculis sacraménto ac devotióne mílitis ejus accéptum! sicut scriptum est in Psalmis, Spíritu Sancto loquénte ad nos páriter et monénte: Pretiósa est in conspéctu Dómini mors justórum ejus. Pretiósa mors hæc est, quæ emit immortalitátem prétio sui sánguinis, quæ accépit corónam de consummatióne virtútis. Quam lætus illic Christus fuit, quam libens in tálibus servis suis et pugnávit et vicit protéctor fídei, dans credéntibus tantum, quantum se credit cápere qui sumit! Certámini suo ádfuit, prǽliatóres atque assertóres sui nóminis eréxit, corroborávit, animávit. Et qui pro nobis mortem semel vicit, semper vincit in nobis.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+**Lectio vii** *Cap. 15, 5-11*
+
+IN illo témpore: Dixit Jesus discípulis suis: Ego sum vitis, vos pálmites: qui manet in me, et ego in eo, hic fert fructum multum; quia sine me nihil potéstis fácere. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tract. 81 in Joann., sub med.}
+
+NE quisquam putáret saltem parvum áliquem fructum posse a semetípso pálmitem ferre, cum dixísset, Hic fert fructum multum; non ait, Quia sine me parum potéstis fácere; sed, Nihil potéstis fácere. Sive ergo parum sive multum, sine illo fíeri non potest, sine quo nihil fíeri potest. Quia, etsi parum attúlerit palmes, eum purgat agrícola, ut plus áfferat; tamen, nisi in vite mánserit et víxerit de radíce, quamtúmlibet fructum a semetípso non potest ferre. Quamvis autem Christus vitis non esset, nisi homo esset, tamen istam grátiam palmítibus non præbéret, nisi étiam Deus esset.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Feria III et VI infra hebdomadam I et II post Octavam Paschæ quoties in I Nocturno Lectiones fuerint de Scriptura occurrenti cum suis Responsoriis de Tempore, loco præcedentis Responsorii dicitur sequens}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur in gáudium, allelúja, allelúja.

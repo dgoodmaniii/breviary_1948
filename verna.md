@@ -29905,4 +29905,24 @@ DEUS, qui inter regáles delícias et mundi illécebras sanctum Casimírum virt�
 
 ###### Oratio
 
-REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Lúcium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Lúcium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ tuæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: In I Nocturno Lectiones} Justus si morte, {RUBRIC: de Communi Conf. non Pont. 2 loco. [120]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+CASIMIRUS, patre Casimíro, matre Elisabétha Austríaca, Polóniæ régibus ortus, a puerítia sub óptimis magístris pietáte et bonis ártibus instrúctus, juveníles artus áspero domábat cilício et assíduis extenuábat jejúniis. Régii spreta lecti mollítie, dura cubábat humo, et clam intempésta nocte præ fóribus templórum pronus in terra divínam exorábat cleméntiam. In Christi contemplánda passióne assíduus, Missárum solémniis ádeo erécta in Deum mente solébat adésse, ut extra se rapi viderétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+CATHOLICAM promovére fidem summópere stúduit, et Ruthenórum schísma abolére; quaprópter Casimírum patrem indúxit, ut legem ferret, ne schismátici nova templa constrúerent, nec vétera collabéntia restaurárent. Erga páuperes et calamitátibus oppréssos benéficus et miséricors, patris et defensóris egenórum nomen obtínuit. Virginitátem, quam ab incunábulis servávit illǽsam, sub extrémo vitæ término fórtiter asséruit, dum gravi pressus infirmitáte, mori pótius quam castitátis jactúram ex medicórum consílio subíre, constánter decrévit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+###### Lectio vi
+
+CONSUMMATUS in brevi, virtútibus et méritis plenus, prænuntiáto mortis die, inter sacerdótum et religiósorum choros spíritum Deo réddidit, anno ætátis vigésimo quinto. Corpus, Vilnam delátum, multis claret miráculis. Etenim prætérquam quod puélla defúncta vitam, cæci visum, claudi gressum et várii infírmi sanitátem ad ejus sepúlcrum recuperárunt; Lithuánis exíguo número ad poten-

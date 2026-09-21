@@ -45612,4 +45612,54 @@ Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
 
 Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
 
-Intelléctus bonus ómnibus faciéntibus eum: \*
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Domus mea domus oratiónis vocábitur. (T. P. Allelúja.)
+
+**Ant.** Hæc est domus Dómini \* fírmiter ædificáta, bene fundáta est supra firmam petram. (T. P. Allelúja.)
+
+###### Psalmus 111
+
+BEATUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício: \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus: \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
+
+**Ant.** Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. (T. P. Allelúja.)
+
+**Ant.** Bene fundáta est \* domus Dómini supra firmam petram. (T. P. Allelúja.)
+
+###### Psalmus 112
+
+LAUDATE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sæculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Bene fundáta est domus Dómini supra firmam petram. (T. P. Allelúja.)
+
+**Ant.** Lápides pretiósi \* omnes muri tui, et turres

@@ -21129,3 +21129,39 @@ Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
 {RUBRIC: Heth.} Peccátum peccávit Jerúsalem, proptérea instábilis facta est: omnes, qui glorificábant eam, sprevérunt illam, quia vidérunt ignomíniam ejus: ipsa autem gemens convérsa est retrórsum.
 
 {RUBRIC: Teth.} Sordes ejus in pédibus ejus, nec recordáta est finis sui: depósita est vehementer, non habens consolatórem: vide, Dómine, afflictiónem meam, quóniam eréctus est inimícus.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Tristis est ánima mea usque ad mortem: sustinéte hic, et vigiláte mecum: nunc vidébitis turbam, quæ circúmdabit me: \* Vos fugam capiétis, et ego vadam immolári pro vobis. ℣. Ecce appropínquat hora, et Fílius hóminis tradétur in manus peccatórum. — Vos.
+
+#### Lectio iii
+
+{RUBRIC: Jod.} Manum suam misit hostis ad ómnia desiderabília ejus: quia vidit gentes ingréssas sanctuárium suum, de quibus præcéperas ne intrárent in ecclésiam tuam.
+
+{RUBRIC: Caph.} Omnis pópulus ejus gemens, et quærens panem: dedérunt pretiósa quæque pro cibo ad refocillándam ánimam. Vide, Dómine, et consídera, quóniam facta sum vilis.
+
+{RUBRIC: Lamed.} O vos omnes, qui transítis per viam, atténdite, et vidéte si est dolor sicut dolor meus: quóniam vindemiávit me, ut locútus est Dóminus in die iræ furóris sui.
+
+{RUBRIC: Mem.} De excélso misit ignem in óssibus meis, et erudívit me: expándit rete pédibus meis, convértit me retrórsum: pósuit me desolátam, tota die mæróre conféctam.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+{RUBRIC: Nun.} Vigilávit jugum iniquitátum meárum: in manu ejus convolútæ sunt, et impósitæ collo meo: infirmáta est virtus mea: dedit me Dóminus in manu, de qua non pótero súrgere.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Ecce vídimus eum non habéntem spéciem, neque decórem: aspéctus ejus in eo non est: hic peccáta nostra portávit, et pro nobis dolet: ipse autem vulnerátus est propter iniquitátes nostras: \* Cujus livóre sanáti sumus. ℣. Vere languóres nostros ipse tulit, et dolóres nostros ipse portávit. — Cujus livóre. Ecce vídimus.
+
+#### In II Nocturno
+
+**Ant.** Liberávit Dóminus \* páuperem a poténte, et ínopem, cui non erat adjútor.
+
+#### Psalmus 71
+
+DEUS, judícium tuum regi da: \* et justítiam tuam fílio regis:
+
+Judicáre pópulum tuum in justítia, \* et páuperes tuos in judício.
+
+Suscípiant montes pacem pópulo: \* et colles justítiam.
+
+Judicábit páuperes pópuli, et salvos fáciet fílios

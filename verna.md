@@ -24250,4 +24250,32 @@ FACTUM est autem quasi horárum trium spátium, et uxor ipsíus, nésciens quod 
 
 #### Lectio iii
 
-PER manus autem Apostolórum fiébant signa et prodígia multa in plebe. Et erant unanímiter omnes in pórticu Salomónis. Ceterórum autem nemo audébat se conjúngere illis: sed magnificábat eos pópulus. Magis autem augebátur credéntium in Dómino multitúdo virórum ac muliérum, ita ut in platéas ejícerent infírmos, et pónerent in léctulis ac grabátis, ut, veniénte Petro, saltem umbra illíus
+PER manus autem Apostolórum fiébant signa et prodígia multa in plebe. Et erant unanímiter omnes in pórticu Salomónis. Ceterórum autem nemo audébat se conjúngere illis: sed magnificábat eos pópulus. Magis autem augebátur credéntium in Dómino multitúdo virórum ac muliérum, ita ut in platéas ejícerent infírmos, et pónerent in léctulis ac grabátis, ut, veniénte Petro, saltem umbra illíus obumbráret quemquam illórum, et liberaréntur ab infirmitátibus suis. Concurrébat autem et multitúdo vicinárum civitátum Jerúsalem, afferéntes ægros, et vexátos a spirítibus immúndis: qui curabántur omnes.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+**Ad Bened. Ant.** Ardens est cor meum, \* desídero vidére Dóminum meum: quæro, et non invénio ubi posuérunt eum, allelúja, allelúja.
+
+**Ad Magnif. Ant.** Misi dígitum meum \* in fixúras clavórum, et manum meam in latus ejus, et dixi: Dóminus meus, et Deus meus, allelúja.
+
+---
+
+## Feria Sexta
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 8, 9-24*
+
+VIR autem quidam, nómine Simon, qui ante fúerat in civitáte magus, sedúcens gentem Samaríæ, dicens se esse áliquem magnum: cui auscultábant omnes a mínimo usque ad máximum, dicéntes: Hic est virtus Dei, quæ vocátur magna. Attendébant autem eum: propter quod multo témpore magíis suis dementásset eos. Cum vero credidíssent Philíppo evangelizánti de regno Dei, in nómine Jesu Christi baptizabántur viri ac muliéres. Tunc Simon et ipse crédidit: et, cum baptizátus esset, adhærébat Philíppo. Videns étiam signa et virtútes máximas fíeri, stupens admirabátur.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+#### Lectio ii
+
+CUM autem audíssent Apóstoli, qui erant Jerosólymis, quod recepísset Samaría verbum Dei, misérunt ad eos Petrum et

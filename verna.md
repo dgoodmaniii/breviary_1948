@@ -34153,4 +34153,24 @@ CLETUS Románus, patre Æmiliáno, de regióne quinta, e vico Patrício, imperat
 
 ###### Lectio v
 
-MARCELLINUS Románus, ab anno ducentésimo nonagésimo sexto ad an-
+MARCELLINUS Románus, ab anno ducentésimo nonagésimo sexto ad annum trecentésimum quartum in immáni imperatóris Diocletiáni persecutióne Ecclésiæ præfuit. Multas pértulit angústias ob ímprobam eórum severitátem, qui eum redarguébant de nímia indulgéntia erga lapsos in idololatríam, quæque causa fuit, ut per calúmniam infamátus fúerit, quasi thus idólis adhibuísset. Verum hic beátus Póntifex in confessióne fídei, una cum tribus áliis Christiánis, Cláudio, Cyríno et Antoníno, cápite plexus est. Quorum projécta córpora, cum trigínta sex dies jussu imperatóris sepultúra caruíssent, beátus Marcéllus a sancto Petro in somnis admónitus, cum presbýteris et diáconis, hymnis et lumínibus adhíbitis, honorífice sepeliénda curávit in cœmetério Priscíllæ via Salária. Rexit Ecclésiam annos septem, menses úndecim, dies vigínti tres; quo témpore fecit ordinatiónes duas mense Decémbri, quibus creávit presbýteros quátuor, epíscopos per divérsa loca quinque.
+
+℟. In servis suis, allelúja, \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+Sermo sancti Ambrósii Epíscopi
+
+###### Lectio vi
+
+{RUBRIC: Sermo 22}
+
+DIGNUM et cóngruum est, fratres, ut post lætítiam Paschæ, quam in Ecclésia celebrávimus, gáudia nostra cum sanctis Mártyribus conferámus; et iis annuntiémus Domínicæ resurrectiónis glóriam, qui consórtes sunt Domínicæ passiónis. Qui enim sócii sunt contuméliæ, debent et partícipes esse lætítiæ. Ita enim dicit beátus Apóstolus: Sicut sócii passiónum estis, et resurrectiónis éritis; si tolerábimus, inquit, et conregnábimus. Qui ergo toleravérunt mala propter Christum, debent et glóriam habére cum Christo.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+CLETUS Románus, imperatóribus Vespasiáno et Tito, Ecclésiam guber-

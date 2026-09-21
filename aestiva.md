@@ -15560,4 +15560,22 @@ INhumánus accédat nemo, nemo crudélis et immiséricors, nemo prorsus immúndu
 
 ##### Lectio vi
 
-AUdiámus ígitur, et sacerdótes et súbditi, quali esca facti sumus digni: audiámus et horreámus. Sanctis cárnibus suis nos dedit impléri, semetípsum appósuit immolá-
+AUdiámus ígitur, et sacerdótes et súbditi, quali esca facti sumus digni: audiámus et horreámus. Sanctis cárnibus suis nos dedit impléri, semetípsum appósuit immolátum. Quænam ígitur erit nobis excusátio, cum tálibus pasti tália peccémus, cum lupi fiámus Agnum comedéntes, cum tamquam oves pasti more leónum diripiámus? Hoc enim mystérium non a rapína tantum, verum et ab omni vel ténui inimicítia purum esse pénitus jubet; est enim pacis mystérium. Judǽis quidem annuátim propriórum monuménta benefíciórum solemnitátes Deus alligávit; tibi vero síngulis diébus per hæc mystéria. Nullus ítaque Judas hanc mensam petat, nullus Simon. Hi namque duo propter avarítiam periérunt; hoc ígitur bárathrum fugiámus.
+
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 6, 56-59*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et sanguis meus vere est potus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 26 in Joann., post med.}
+
+HIc est panis, qui de cælo descéndit. Hunc panem significávit manna, hunc panem significávit altáre Dei. Sacraménta illa fuérunt: in signis divérsa sunt; sed in re, quæ significátur, pária sunt. Apóstolum audi: Nolo enim vos, inquit, ignoráre, fratres, quia patres nostri omnes sub nube fuérunt, et omnes mare transiérunt, et omnes per Móysen baptizáti sunt in nube et in mari, et omnes eámdem escam spiritálem manducavérunt. Spiritálem útique eámdem; nam corporálem álteram; quia illi manna, nos áliud: spiritálem vero, quam nos, sed patres nostri, non patres illórum, quibus nos símiles sumus, non quibus illi símiles fuérunt. Et adjúngit: Et omnes eúmdem potum spiritálem bibérunt. Aliud illi, áliud nos, sed spécie visíbili quidem, tamen hoc idem significánte virtúte spiritáli. Quómodo enim eúmdem potum? Bibébant, inquit, de spiritáli, sequénte petra: petra autem erat Christus. Inde

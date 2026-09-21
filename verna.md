@@ -29554,3 +29554,27 @@ PETRUM ítaque fundaméntum Ecclésiæ Dóminus nominávit: et ídeo digne funda
 ###### Lectio vi
 
 QUOD natális ergo Cáthedræ hódie cólitur, sacerdotále honorátur offícium. Sibi hoc ecclésiæ ínvicem præstant, quia tanto necésse plus habet Ecclésia dignitátis, quanto sacerdotále offícium plus honóris. Cum solemnitátem hanc ecclésiis mérito religiósa observátio introdúxerit, miror cur apud quosdam infidéles hódie tam perniciósus error incréverit, ut super túmulos defunctórum cibos et vina cónferant, quasi egréssæ de corpóribus ánimæ carnáles cibos requírant.
+
+℟. Petre, amas me? Tu scis, Dómine, quia amo te. \* Pasce oves meas. ℣. Simon Joánnis, díligis me plus his? Tu scis, Dómine, quia amo te. — Pasce. Glória Patri. Pasce.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+Homilía sancti Leónis Papæ
+
+{RUBRIC: Sermo 3 in annivers. assumptæ suæ, post initium}
+
+APOSTOLOS Dóminus, quid de se hómines opinéntur, intérrogat: et támdiu sermo respondéntium commúnis est, quámdiu humánæ intelligéntiæ ambigúitas explicátur. At ubi quid hábeat sensus discipulórum exígitur, primus est in Dómini confessióne, qui primus est in apostólica dignitáte. Qui cum dixísset: Tu es Christus Fílius Dei vivi; respóndit ei Jesus: Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui in cælis est. Id est, Ideo beátus es, quia Pater meus te dócuit; nec terréna opínio te feféllit, sed inspirátio cæléstis instrúxit: et non caro et sánguis, sed ille me tibi, cujus sum unigénitus Fílius, indicávit.
+
+℟. Quem dicunt hómines esse Fílium hóminis? dixit Jesus discípulis suis. Respóndens Petrus dixit: Tu es Christus Fílius Dei vivi. \* Et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. ℣. Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et ego.
+
+###### Lectio viii
+
+ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excelléntiam tuam. Quia tu es Petrus: id est, Cum ego sim inviolábilis petra, ego lapis anguláris, qui fácio útraque unum, ego fundaméntum præter quod nemo potest áliud pónere; tamen tu quoque petra es, quia mea virtúte solidáris, ut quæ mihi potestáte sunt própria, sint tibi mecum participatióne commúnia. Et super hanc petram ædificábo Ecclésiam

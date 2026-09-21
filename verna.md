@@ -44994,4 +44994,46 @@ EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. Vírginis tuæ fest
 
 **4 — Oratio**
 
-DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tuárum N. et N. palmas incessábili devotióne venerári: ut, quas digna mente non póssu-
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tuárum N. et N. palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+**Capit.** *2 Cor. 10, 17-18*
+
+FRATRES: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Spécie tua et pulchritúdine tua, \* Allelúja, allelúja. Spécie. ℣. Inténde, próspere procéde, et regna. Allelúja, allelúja. Glória Patri. Spécie.
+
+℣. Adjuvábit eam Deus vultu suo, allelúja. ℟. Deus in médio ejus, non commovébitur, allelúja.
+
+##### Ad Sextam
+
+**Capitulum** *2 Cor. 11, 2*
+
+ÆMULOR enim vos Dei æmulatióne. Despóndi enim vos uni viro vírginem castam exhibére Christo.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Adjuvábit eam Deus vultu suo, \* Allelúja, allelúja. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Allelúja, allelúja. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et prælégit eam, allelúja. ℟. In tabernáculo suo habitáre facit eam, allelúja.
+
+##### Ad Nonam
+
+##### Pro Virgine Martyre
+
+**Capit.** *Eccli. 51, 13-14*
+
+DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+##### Pro Virgine non Martyre
+
+**Capitulum** *Sap. 4, 1*
+
+O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam

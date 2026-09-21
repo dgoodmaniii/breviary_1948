@@ -5265,4 +5265,56 @@ Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jer
 
 Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
 
-**Ant.** Dele iniquitátem meam, Dómine, secúndum
+**Ant.** Dele iniquitátem meam, Dómine, secúndum multitúdinem miseratiónum tuárum.
+
+**Ant.** Discérne causam meam.
+
+### Psalmus 42
+
+JUDICA me, Deus, et discérne causam meam de gente non sancta, \* ab hómine iníquo, et dolóso érue me.
+
+Quia tu es, Deus, fortitúdo mea: \* quare me repulísti? et quare tristis incédo, dum afflígit me inimícus?
+
+Emítte lucem tuam et veritátem tuam: \* ipsa me deduxérunt, et adduxérunt in montem sanctum tuum, et in tabernácula tua.
+
+Et introíbo ad altáre Dei: \* ad Deum, qui lætíficat juventútem meam.
+
+Confitébor tibi in cíthara, Deus, Deus meus: \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+**Ant.** Discérne causam meam, Deus, de gente non sancta.
+
+**Ant.** Deus misereátur. †
+
+### Psalmus 66
+
+DEUS misereátur † nostri, et benedícat nobis: \* illúminet vultum suum super nos, et misereátur nostri.
+
+Ut cognoscámus in terra viam tuam: \* in ómnibus géntibus salutáre tuum.
+
+Confiteántur tibi pópuli, Deus: \* confiteántur tibi pópuli omnes.
+
+Læténtur et exsúltent gentes: \* quóniam júdicas pópulos in æquitáte, et gentes in terra dírigis.
+
+Confiteántur tibi pópuli, Deus, confiteántur tibi pópuli omnes: \* terra dedit fructum suum.
+
+Benedícat nos Deus, Deus noster, benedícat nos Deus: \* et métuant eum omnes fines terræ.
+
+**Ant.** Deus misereátur nostri, et benedícat nos.
+
+**Ant.** Corrípies me, Dómine.
+
+#### Canticum Ezechiæ
+
+*Is. 38, 10-20*
+
+EGO dixi: In dimídio diérum meórum \* vadam ad portas ínferi.
+
+Quæsívi resíduum annórum meórum. \* Dixi: Non vidébo Dóminum Deum in terra vivéntium.
+
+Non aspíciam hóminem ultra, \* et habitatórem quiétis.
+
+Generátio mea abláta est, et convolúta est a me, \* quasi tabernáculum pastórum.
+
+Præcísa est, velut a texénte, vita mea: dum

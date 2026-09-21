@@ -26115,3 +26115,74 @@ Sis dulce vitæ prǽmium.
 Amen.
 
 ℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.
+
+**Ad Magnif. Ant.** Pater, \* manifestávi nomen tuum homínibus quos dedísti mihi: nunc autem pro eis rogo, non pro mundo, quia ad te vénio, allelúja.
+
+#### Oratio
+
+CONCEDE, quǽsumus, omnípotens Deus: ut, qui hodiérna die Unigénitum tuum Redemptórem nostrum ad cælos ascendísse crédimus; ipsi quoque mente in cæléstibus habitémus. Per eúmdem Dóminum.
+
+{RUBRIC: Completórium de Dominica.}
+
+{RUBRIC: Conclúsio Hymnórum ad omnes Horas usque ad Nonam in Vigília Pentecóstes inclusive, erit sequens:}
+
+Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+### Ad Matutinum
+
+**Invit.** Allelúja, Christum Dóminum ascendéntem in cælum, \* Veníte, adorémus, allelúja. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+ÆTERNE Rex altíssime,
+Redémptor et fidélium,
+Cui mors perémpta détulit
+Summæ triúmphum glóriæ:
+
+Ascéndis orbes síderum,
+Quo te vocábat cælitus
+Colláta, non humánitus,
+Rerum potéstas ómnium:
+
+Ut trina rerum máchina,
+Cæléstium, terréstrium,
+Et inferórum cóndita,
+Flectat genu jam súbdita.
+
+Tremunt vidéntes Angeli
+Versam vicem mortálium:
+Peccat caro, mundat caro,
+Regnat Deus Dei caro.
+
+Sis ipse nostrum gáudium,
+Manens olýmpo prǽmium,
+Mundi regis qui fábricam,
+Mundána vincens gáudia.
+
+Hinc te precántes quǽsumus,
+Ignósce culpis ómnibus,
+Et corda sursum súbleva
+Ad te supérna grátia.
+
+Ut, cum repénte cœperis
+Clarére nube júdicis,
+Pœnas repéllas débitas,
+Reddas corónas pérditas.
+
+Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+#### In I Nocturno
+
+**Ant.** Eleváta est \* magnificéntia tua super cælos, Deus, allelúja.
+
+#### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!

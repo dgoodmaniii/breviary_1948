@@ -31853,3 +31853,23 @@ ET adjécit Dóminus loqui ad Achaz, dicens: Pete tibi signum a Dómino Deo tuo 
 *Cap. 11, 1-5*
 
 ET egrediétur virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum Spíritus Dómini: spíritus sapiéntiæ et intelléctus, spíritus consílii et fortitúdinis, spíritus sciéntiæ et pietátis; et replébit eum spíritus timóris Dómini: non secúndum visiónem oculórum judicábit, neque secúndum audítum áurium árguet: sed judicábit in justítia páuperes, et árguet in æquitáte pro mansuétis terræ: et percútiet terram virga oris sui, et spíritu labiórum suórum interfíciet ímpium. Et erit justítia cíngulum lumbórum ejus: et fides cinctórium renum ejus.
+
+℟. Ave, María, grátia plena; Dóminus tecum: \* Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi: quod enim ex te nascétur Sanctum, vocábitur Fílius Dei. {RUBRIC: (T. P. Allelúja.)} ℣. Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Angelus, dixit ei. — Spíritus.
+
+###### Lectio iii
+
+*Cap. 35, 1-7*
+
+LÆTABITUR desérta et ínvia, et exsultábit solitúdo, et florébit quasi lílium. Gérminans germinábit, et exsultábit lætabúnda et laudans: glória Líbani data est ei: decor Carméli et Saron, ipsi vidébunt glóriam Dómini, et decórem Dei nostri. Confortáte manus dissolútas, et génua debília roboráte. Dícite pusillánimis: Confortámini, et nolíte timére: ecce Deus vester ultiónem addúcet retributiónis: Deus ipse véniet, et salvábit vos. Tunc aperiéntur óculi cæcórum, et aures surdórum patébunt. Tunc sáliet sicut cervus claudus, et apérta erit lingua mutórum: quia scissæ sunt in desérto aquæ, et torréntes in solitúdine. Et quæ erat árida, erit in stagnum, et sítiens in fontes aquárum.
+
+℟. Súscipe verbum, Virgo María, quod tibi a Dómino per Angelum transmíssum est: concípies et páries Deum páriter et hóminem, \* Ut benedícta dicáris inter omnes mulíeres. {RUBRIC: (T. P. Allelúja.)} ℣. Páries quidem fílium, et virginitátis non patiéris detriméntum: efficiéris grávida, et eris mater semper intácta. — Ut. Glória Patri. Ut.
+
+##### In II Nocturno
+
+Sermo sancti Leónis Papæ
+
+{RUBRIC: Sermo 2 de Nativ. Domini}
+
+###### Lectio iv
+
+DEUS omnípotens et clemens, cujus natúra bónitas, cujus volúntas poténtia, cujus opus misericórdia est, statim ut nos diabólica malígnitas venéno suæ mortificávit invídiæ, prædestináta renovándis mortálibus suæ pietátis remédia, inter ipsa mundi primórdia præsignávit; denúntians serpénti futúrum semen mulíeris, quod nóxii cápitis elatiónem sua virtúte contéreret, Christum scílicet in carne ventúrum; Deum hominémque signans, qui natus ex Vírgine, violatórem humánæ propáginis incorrúpta nativitáte damnáret.

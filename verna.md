@@ -38587,3 +38587,23 @@ DEUS, virginitátis amátor, qui beátam Maríam Magdalénam Vírginem, tuo amó
 MARIA Magdaléna, illustrióri Pazziórum génere Floréntiæ nata, fere ab incunábulis iter perfectiónis arrípuit. Decénnis perpétuam virginitátem vovit, susceptóque hábitu in monastério sanctæ Maríæ Angelórum, órdinis Carmelitárum, se ómnium virtútum exémplar exhíbuit. Adeo casta fuit, ut quidquid puritátem lædere potest, pénitus ignoráverit. Quinquénnium, Deo jubénte, solo pane et aqua transégit, excéptis diébus Domínicis, quibus cibis quadragesimálibus vescebátur. Corpus suum cilício, flagéllis, frígore, inédia, vigíliis, nuditáte atque omni pœnárum génere cruciábat.
 
 ℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua, allelúja. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+###### Lectio v
+
+TANTO igne divíni amóris æstuábat, ut, ei feréndo impar, ingésta aqua pectus refrigeráre cogerétur. Extra sensus frequénter rapta, diutúrnas et admirábiles éxtases passa est, in quibus et arcána cæléstia penetrávit, et exímiis a Deo grátiis illustráta fuit. His autem munita longum certámen a princípibus tenebrárum sustínuit, árida, desoláta, ab ómnibus derelícta, variísque tentatiónibus vexáta; Deo sic permitténte, ut invíctæ patiéntiæ ac profundíssimæ humilitátis exémplar præbéret.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ, allelúja. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+###### Lectio vi
+
+CARITATE erga próximum singuláriter enítuit; nam sæpe noctes ducébat insómnes, vel obeúndis sorórum ministériis, vel inserviéndo infírmis occupáta, quarum aliquándo úlcera lambens sanávit. Infidélium et peccatórum perditiónem amáre deflens, se ad quælibet pro illórum salúte torménta parátam offerébat. Multis ante óbitum annis, univérsis cæli delíciis, quibus copióse affluébat, heróica virtúte renúntians, illud frequénter in ore habébat: Pati, non mori. Tandem longa et gravíssima infirmitáte exhaústa, transívit ad Sponsum die vigésima quinta Maji, anno millésimo sexcentésimo séptimo, expléto anno quadragésimo primo ætátis suæ. Eam, multis in vita et post mortem miráculis claram, Clemens nonus sanctárum Vírginum número adscrípsit: cujus corpus in præséntem diem incorrúptum conservátur.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne, allelúja. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+MARIA Magdaléna, Floréntiæ illústri Pazziórum génere nata, fere ab incunábulis iter perfectiónis arrípuit. Decénnis perpétuam virginitátem vovit, susceptóque hábitu in monastério sorórum Carmelitárum, se ómnium

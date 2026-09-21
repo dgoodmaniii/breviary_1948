@@ -17559,3 +17559,27 @@ AUdíta sunt autem verba, quæ locútus est David, et annuntiáta in conspéctu 
 ℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
 
 {RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+DIxítque David ad Saul: Pascébat servus tuus patris sui gregem, et veniébat leo vel ursus et tollébat aríetem de médio gregis, et persequébar eos et percutiébam eruebámque de ore eórum; et illi consurgébant advérsum me, et apprehendébam mentum eórum et suffocábam interficiebámque eos; nam et leónem et ursum interféci ego servus tuus. Erit ígitur et Philisthǽus hic incircumcísus quasi unus ex eis.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 17, 38-46*
+
+ET índuit Saul David vestiméntis suis et impósuit gáleam ǽream super caput ejus et vestívit eum loríca. Accínctus ergo David gládio ejus super vestem suam cœpit tentáre si armátus posset incédere, non enim habébat consuetúdinem. Dixítque David ad Saul: Non possum sic incédere, quia non usum hábeo. Et depósuit ea et tulit báculum suum, quem semper habébat in mánibus, et elégit sibi quinque limpidíssimos lápides de torrénte et misit eos in peram pastorálem, quam habébat secum, et fundam manu tulit et procéssit advérsum Philisthǽum.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pæniténtiam, veniénsque oráverit in isto loco. — Tu.
+
+##### Lectio ii
+
+IBat autem Philisthǽus incédens et appropínquans advérsum David, et ármiger ejus ante eum. Cumque inspexísset Philisthǽus et vidísset David, despéxit eum; erat enim adoléscens rufus et pulcher aspéctu. Et dixit Philisthǽus ad David: Numquid ego canis sum, quod tu venis ad me cum báculo? Et maledíxit Philisthǽus David in diis suis, dixítque ad David: Veni

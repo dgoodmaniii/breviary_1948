@@ -37580,4 +37580,16 @@ DEUS, qui ad christiánam páuperum eruditiónem, et ad juvéntam in via veritá
 
 ###### Lectio iv
 
-JOANNES Baptísta de la Salle, Rhemis claro génere ortus, puer adhuc móribus et factis in sortem Dómini se vocándum et sanctimóniæ laude honestándum porténdit. Adoléscens in Rheménsi academía lítteras ac philosóphicas disciplínas dídicit: quo témpore, etsi ob ánimi virtútes et álacre ingénium ac suáve ómnibus carus esset, ab æquálium tamen societáte abhorrébat, ut solitúdini addíctus facílius Deo vacáret. In clericálem milítiam jamprídem cooptátus, sexto décimo ætá-
+JOANNES Baptísta de la Salle, Rhemis claro génere ortus, puer adhuc móribus et factis in sortem Dómini se vocándum et sanctimóniæ laude honestándum porténdit. Adoléscens in Rheménsi academía lítteras ac philosóphicas disciplínas dídicit: quo témpore, etsi ob ánimi virtútes et álacre ingénium ac suáve ómnibus carus esset, ab æquálium tamen societáte abhorrébat, ut solitúdini addíctus facílius Deo vacáret. In clericálem milítiam jamprídem cooptátus, sexto décimo ætátis anno inter Rheménses canónicos adscríptus est. Lutétiam Parisiórum, theologíæ in Sorbónica universitáte datúrus óperam, conténdit, atque in Sulpitiánum seminárium adscítus est. At brevi paréntibus orbátus, domum regredi coáctus, fratres educándos suscépit; quod, scientiárum ínterim sacrárum stúdia non intermíttens, óptimo cum fructu præstitit, uti éxitus comprobávit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam, allelúja. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+SACERDOTIO demum auctus, qua præstánti fide animíque ardóre primum ad aram fecit, eísdem toto vitæ témpore Sacris est operátus. Intérea, salútis animárum stúdio incénsus, totum in earúmdem utilitátem sese impéndit. Sorórum a Jesu infánte, puéllis educándis institutárum, régimen suscépit; eásque non modo prudentíssime est moderátus, sed ab excídio vindicávit. Hinc porro ánimum advértit ad púeros de plebe religióne bonísque móribus informándos. Atque in hoc quidem illum suscitáverat Deus, ut scílicet, nova in Ecclésia sua religiosórum hóminum família cóndita, puerórum, præsértim páuperum, scholis perénni efficácíque ratióne consúleret. Demandátum vero a Dei providéntia munus, per contradictiónes plúrimas magnásque ærúmnas, felíciter implévit, fundáta fratrum sodalitáte, quam a Scholis christiánis nuncupávit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum, allelúja. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+###### Lectio vi
+
+ADJUNCTOS ígitur sibi hómines in gravi ópere et árduo, apud se primum suscépit; tum aptióri in sede constitútos disciplína sua óptime ímbuit iis légibus sapientibúsque institútis, quæ póstea a Benedícto décimo tértio sunt confirmáta. Ex demissióne ánimi ac paupertátis amóre primum canonicátu se abdicávit, omníaque sua bona in páuperes erogávit;

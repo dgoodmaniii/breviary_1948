@@ -9503,3 +9503,62 @@ Pater noster et Ave.
 
 RERUM, Deus, tenax vigor,
 Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prǽmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Invocábimus.
+
+### Psalmus 74
+
+COnfitébimur tibi, Deus: \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua: \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea: \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis: Nolíte iníque ágere: \* et delinquéntibus: Nolíte exaltáre cornu:
+
+Nolíte extóllere in altum cornu vestrum: \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus: \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat: \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc: verúmtamen fæx ejus non est exinaníta: \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sæculum: \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.
+
+### Psalmus 75, i
+
+NOtus in Judǽa Deus: \* in Israël magnum nomen ejus.
+
+Et factus est in pace locus ejus: \* et habitátio ejus in Sion.
+
+Ibi confrégit poténtias árcuum, \* scutum, gládium, et bellum.
+
+Illúminans tu mirabíliter a móntibus ætérnis: \* turbáti sunt omnes insipiéntes corde.
+
+Dormiérunt somnum suum: \* et nihil invenérunt omnes viri divitiárum in mánibus suis.
+
+Ab increpatióne tua, Deus Jacob, \* dormitavérunt qui ascendérunt equos.
+
+### Psalmus 75, ii
+
+TU terríbilis es, et quis resístet tibi? \* ex tunc ira tua.
+
+De cælo audítum fecísti judícium: \* terra trémuit et quiévit.
+
+Cum exsúrgeret in judícium Deus, \* ut salvos

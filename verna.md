@@ -20099,3 +20099,41 @@ Amen.
 #### Oratio
 
 QUÆSUMUS, omnípotens Deus, famíliam tuam propítius réspice: ut, te largiénte, regátur in córpore; et, te servánte, custodiátur in mente. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Ego dæmónium non hábeo, \* sed honorífico Patrem meum, dicit Dóminus.
+
+{RUBRIC: Ad absolutionem Capituli Lectio brevis Fáciem meam, de Tempore Passionis, ut in Psalterio de Ordinario. 62}
+
+### Ad Tertiam
+
+**Ant.** Ego glóriam meam \* non quæro: est qui quærat, et júdicet.
+
+**Capitulum** Fratres, ut supra. 422
+
+℟. br. Erue a frámea, \* Deus, ánimam meam. Erue. ℣. Et de manu canis únicam meam. Deus. Erue. ℣. De ore leónis líbera me, Dómine. ℟. Et a córnibus unicórnium humilitátem meam.
+
+### Ad Sextam
+
+**Ant.** Amen, amen, dico vobis: \* si quis sermónem meum serváverit, mortem non gustábit in ætérnum.
+
+**Capitulum** *Hebr. 9, 13-14*
+
+SI enim sanguis hircórum, et taurórum, et cinis vítulæ aspérsus inquinátos sanctíficat ad emundatiónem carnis: quanto magis sanguis Christi, qui per Spíritum Sanctum semetípsum óbtulit immaculátum Deo, emundábit consciéntiam nostram ab opéribus mórtuis, ad serviéndum Deo vivénti?
+
+℟. br. De ore leónis \* Líbera me, Dómine. De. ℣. Et a córnibus unicórnium humilitátem meam. Líbera me, Dómine. De. ℣. Ne perdas cum ímpiis, Deus, ánimam meam. ℟. Et cum viris sánguinum vitam meam.
+
+### Ad Nonam
+
+**Ant.** Tulérunt lápides \* Judǽi, ut jácerent in eum: Jesus autem abscóndit se, et exívit de templo.
+
+**Capitulum** *Hebr. 9, 15*
+
+ET ídeo novi testaménti mediátor est: ut, morte intercedénte, in redemptiónem eárum prævaricatiónum, quæ erant sub priori testaménto, repromissiónem accípiant, qui vocáti sunt ætérnæ hereditátis in Christo Jesu Dómino nostro.
+
+℟. br. Ne perdas cum ímpiis, \* Deus, ánimam meam. Ne. ℣. Et cum viris sánguinum vitam meam. Deus. Ne. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica, ut in Psalterio 72; Capitulum, Hymnus et Versus, ut in Vesperis præcedentis Sabbati. 415}

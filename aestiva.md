@@ -2485,3 +2485,105 @@ Exspectábam salutáre tuum, Dómine: \* et mandáta tua diléxi.
 Custodívit ánima mea testimónia tua: \* et diléxit ea veheménter.
 
 Servávi mandáta tua, et testimónia tua: \* quia omnes viæ meæ in conspéctu tuo.
+
+Appropínquet deprecátio mea in conspéctu tuo, Dómine: \* juxta elóquium tuum da mihi intelléctum.
+
+Intret postulátio mea in conspéctu tuo: \* secúndum elóquium tuum éripe me.
+
+Eructábunt lábia mea hymnum, \* cum docúeris me justificatiónes tuas.
+
+Pronuntiábit lingua mea elóquium tuum: \* quia ómnia mandáta tua æquitas.
+
+Fiat manus tua ut salvet me: \* quóniam mandáta tua elégi.
+
+Concupívi salutáre tuum, Dómine: \* et lex tua meditátio mea est.
+
+Vivet ánima mea, et laudábit te: \* et judícia tua adjuvábunt me.
+
+Errávi, sicut ovis, quæ périit: \* quære servum tuum, quia mandáta tua non sum oblítus.
+
+**Ant.** Allelúja, fáciem tuam, Dómine, illúmina super servum tuum, allelúja, allelúja.
+
+**Capitulum** *1 Cor. 6, 20*
+
+EMPTI enim estis prétio magno. Glorificáte et portáte Deum in córpore vestro.
+
+℟. br. Clamávi in toto corde meo: \* Exáudi me, Dómine. Clamávi. ℣. Justificatiónes tuas requíram. Exáudi. Glória Patri. Clamávi. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+{RUBRIC: Oratio convéniens. Réliqua ut in Ordinário. 21}
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Dixit Dóminus. †
+
+{RUBRIC: ¶ Antiphonæ cum Psalmis assignátæ adhibéntur semper, quando fit Offícium de Domínica, in Domínicis extra Octávas Ssmi Córporis Christi ac Sacratíssimi Cordis Jesu.}
+
+###### Psalmus 109
+
+DIXIT Dóminus † Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pænitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Dixit Dóminus Dómino meo: Sede a dextris meis.
+
+**Ant.** Magna ópera Dómini.
+
+###### Psalmus 110
+
+CONFITEBOR tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Magna ópera Dómini: exquisíta in omnes voluntátes ejus.
+
+**Ant.** Qui timet Dóminum.
+
+###### Psalmus 111
+
+BEATUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício: \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus: \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.

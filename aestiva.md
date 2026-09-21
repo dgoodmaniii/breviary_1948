@@ -18374,4 +18374,26 @@ HAbitabátque Juda et Israël absque timóre ullo unusquísque sub vite sua et s
 
 ##### Lectio iii
 
-ET præcedébat sapiéntia Salomónis sapiéntiam ómnium Orientálium et Ægyptiórum; et erat sapiéntior cunctis homínibus, sapiéntior Ethan Ezrahíta et Heman et Chalcol et Dorda fíliis Mahol, et erat nominátus in univérsis géntibus per circúitum. Locútus est quoque Sálomon tria míllia parábolas, et fuérunt cármina ejus quinque et mille. Et disputávit super lignis a cedro, quæ est in Líbano, usque ad hyssó-
+ET præcedébat sapiéntia Salomónis sapiéntiam ómnium Orientálium et Ægyptiórum; et erat sapiéntior cunctis homínibus, sapiéntior Ethan Ezrahíta et Heman et Chalcol et Dorda fíliis Mahol, et erat nominátus in univérsis géntibus per circúitum. Locútus est quoque Sálomon tria míllia parábolas, et fuérunt cármina ejus quinque et mille. Et disputávit super lignis a cedro, quæ est in Líbano, usque ad hyssópum quæ egréditur de paríete; et disséruit de juméntis et volúcribus et reptílibus et píscibus. Et veniébant de cunctis pópulis ad audiéndam sapiéntiam Salomónis, et ab univérsis régibus terræ, qui audiébant sapiéntiam ejus.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 5, 1-9*
+
+MIsit quoque Hiram, rex Tyri, servos suos ad Salomónem; audívit enim quod ipsum unxíssent regem pro patre ejus; quia amícus fúerat Hiram David omni témpore. Misit autem Sálomon ad Hiram dicens: Tu scis voluntátem David patris mei, et quia non potúerit ædificáre domum nómini Dómini Dei sui propter bella imminéntia per circúitum, donec daret Dóminus eos sub vestígio pedum ejus. Nunc autem réquiem dedit Dóminus Deus meus mihi per circúitum, et non est satan neque occúrsus malus.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+QUam ob rem cógito ædificáre templum nómini Dómini Dei mei, sicut locútus est Dóminus David patri meo, dicens: Fílius tuus, quem dabo pro te super sólium tuum, ipse ædificábit domum nómini meo. Præcipe ígitur ut præcídant mihi servi tui cedros de Líbano, et servi mei sint cum servis tuis; mercédem autem servórum tuórum dabo tibi quamcúmque petíeris; scis enim quómodo non est in pópulo meo vir qui nóverit ligna cǽdere sicut Sidónii.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dó-

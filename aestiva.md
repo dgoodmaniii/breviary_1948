@@ -18854,4 +18854,28 @@ DIxítque ad eam rex: Quid tibi vis? Quæ respóndit: Múlier ista dixit mihi: D
 
 ##### Lectio iii
 
-PRæmísit ítaque virum; et ántequam veníret núntius ille, dixit ad senes: Numquid scitis quod míserit fílius homicídæ hic ut præcidátur caput meum? Vidéte ergo, cum vénerit núntius, cláudite óstium et non sinátis eum introíre; ecce enim sónitus pedum dómini ejus post eum est. Adhuc illo loquénte eis, appáruit núntius qui veniébat ad eum. Et ait: Ecce tantum malum a Dómino est; quid ámplius exspectábo a Dómino? Dixit autem Eliséus: Audíte verbum Dómini: hæc dicit Dóminus: In témpore hoc cras módius
+PRæmísit ítaque virum; et ántequam veníret núntius ille, dixit ad senes: Numquid scitis quod míserit fílius homicídæ hic ut præcidátur caput meum? Vidéte ergo, cum vénerit núntius, cláudite óstium et non sinátis eum introíre; ecce enim sónitus pedum dómini ejus post eum est. Adhuc illo loquénte eis, appáruit núntius qui veniébat ad eum. Et ait: Ecce tantum malum a Dómino est; quid ámplius exspectábo a Dómino? Dixit autem Eliséus: Audíte verbum Dómini: hæc dicit Dóminus: In témpore hoc cras módius símilæ uno statére erit, et duo módii hórdei statére uno in porta Samaríæ.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 8, 1-10*
+
+ELiséus autem locútus est ad mulíerem, cujus vívere fécerat fílium, dicens: Surge, vade tu et domus tua et peregrináre ubicúmque repéreris; vocávit enim Dóminus famem, et véniet super terram septem annis. Quæ surréxit et fecit juxta verbum hóminis Dei; et vadens cum domo sua peregrináta est in terra Philísthiim diébus multis. Cumque finíti essent anni septem, revérsa est múlier de terra Philísthiim et egréssa est ut interpelláret regem pro domo sua et pro agris suis.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+REX autem loquebátur cum Giézi púero viri Dei dicens: Narra mihi ómnia magnália, quæ fecit Eliséus. Cumque ille narráret regi quómodo mórtuum suscitásset, appáruit múlier, cujus vivificáverat fílium, clamans ad regem pro domo sua et pro agris suis. Dixítque Giézi: Dómine mi rex, hæc est múlier, et hic est fílius ejus quem suscitávit Eliséus. Et interrogávit rex mulíerem, quæ narrávit ei, dedítque ei rex eunúchum unum dicens: Restítue ei ómnia quæ sua sunt et univérsos réditus agrórum a die qua relíquit terram usque ad præsens.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}

@@ -24658,4 +24658,34 @@ A Miléto Paulus mittens Ephesum, vocávit majóres natu ecclésiæ. Qui cum ven
 
 #### Lectio ii
 
-ET nunc ecce ego scio quia ámplius non vidébitis fáciem meam vos omnes, per quos transívi prædicans regnum Dei. Quaprópter contéstor vos hodiérna die, quia mundus sum a sánguine ómnium. Non enim subterfúgi, quóminus annuntiárem omne consílium Dei vobis. Atténdite vobis, et univérso gregi, in quo vos Spíritus Sanctus pósuit epíscopos régere Ecclésiam Dei, quam acquisívit sánguine suo. Ego scio quóniam intrábunt post discessiónem meam lupi rapáces in vos, non parcéntes gregi. Et ex vobis ipsis exsúrgent viri loquéntes pervérsa, ut abdúcant discípulos post se. Propter quod vigiláte, memória retinéntes, quóniam per triénnium nocte et die non cessávi, cum lácrimis
+ET nunc ecce ego scio quia ámplius non vidébitis fáciem meam vos omnes, per quos transívi prædicans regnum Dei. Quaprópter contéstor vos hodiérna die, quia mundus sum a sánguine ómnium. Non enim subterfúgi, quóminus annuntiárem omne consílium Dei vobis. Atténdite vobis, et univérso gregi, in quo vos Spíritus Sanctus pósuit epíscopos régere Ecclésiam Dei, quam acquisívit sánguine suo. Ego scio quóniam intrábunt post discessiónem meam lupi rapáces in vos, non parcéntes gregi. Et ex vobis ipsis exsúrgent viri loquéntes pervérsa, ut abdúcant discípulos post se. Propter quod vigiláte, memória retinéntes, quóniam per triénnium nocte et die non cessávi, cum lácrimis monens unumquémque vestrum.
+
+℟. Surréxit pastor bonus, qui ánimam suam pósuit pro óvibus suis, et pro grege suo mori dignátus est: \* Allelúja, allelúja, allelúja. ℣. Etenim Pascha nostrum immolátus est Christus. — Allelúja.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Allelúja.
+
+#### Lectio iii
+
+ET nunc comméndo vos Deo, et verbo grátiæ ipsíus, qui potens est ædificáre, et dare hereditátem in sanctificátis ómnibus. Argéntum, et aurum, aut vestem nullíus concupívi, sicut ipsi scitis: quóniam ad ea, quæ mihi opus erant, et his, qui mecum sunt, ministravérunt manus istæ. Omnia osténdi vobis, quóniam sic laborántes, opórtet suscípere infírmos, ac meminísse verbi Dómini Jesu, quóniam ipse dixit: Beátius est magis dare, quam accípere. Et, cum hæc dixísset, pósitis génibus suis, orávit cum ómnibus illis. Magnus autem fletus factus est ómnium: et procumbéntes super collum Pauli, osculabántur eum, doléntes máxime in verbo, quod díxerat, quóniam ámplius fáciem ejus non essent visúri. Et deducébant eum ad navem.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+**Ad Bened. Ant.** Ite, nuntiáte \* frátribus meis, allelúja: ut eant in Galilǽam, allelúja: ibi me vidébunt, allelúja, allelúja, allelúja.
+
+**Ad Magnif. Ant.** Sicut novit me Pater, \* et ego cognósco Patrem, et ánimam meam pono pro óvibus meis, allelúja.
+
+---
+
+## Feria Quinta
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 24, 10-27*
+
+RESPONDIT autem Paulus, (annuénte sibi præside dícere): Ex multis annis te esse júdicem genti huic sciens, bono ánimo pro me satisfáciam. Potes enim cognóscere, quia non plus sunt mihi

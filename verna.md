@@ -29577,4 +29577,45 @@ APOSTOLOS Dóminus, quid de se hómines opinéntur, intérrogat: et támdiu serm
 
 ###### Lectio viii
 
-ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excelléntiam tuam. Quia tu es Petrus: id est, Cum ego sim inviolábilis petra, ego lapis anguláris, qui fácio útraque unum, ego fundaméntum præter quod nemo potest áliud pónere; tamen tu quoque petra es, quia mea virtúte solidáris, ut quæ mihi potestáte sunt própria, sint tibi mecum participatióne commúnia. Et super hanc petram ædificábo Ecclésiam
+ET ego, inquit, dico tibi: hoc est, Sicut Pater meus tibi manifestávit divinitátem meam, ita et ego tibi notam fácio excelléntiam tuam. Quia tu es Petrus: id est, Cum ego sim inviolábilis petra, ego lapis anguláris, qui fácio útraque unum, ego fundaméntum præter quod nemo potest áliud pónere; tamen tu quoque petra es, quia mea virtúte solidáris, ut quæ mihi potestáte sunt própria, sint tibi mecum participatióne commúnia. Et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: Super hanc, inquit, fortitúdinem ætérnum exstruam templum; et Ecclésiæ meæ cælo inserénda sublímitas in hujus fídei firmitáte consúrget.
+
+℟. Elégit te Dóminus sacerdótem sibi, ad sacrificándum ei \* Hóstiam laudis. ℣. Immola Deo sacrifícium laudis, et redde Altíssimo vota tua. — Hóstiam. Glória Patri. Hóstiam.
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+{RUBRIC: Si hoc Festum occurrerit in Sabbato, et annus non sit bissextilis, de Vigilia anticipata S. Matthiæ Apostoli nihil fit in Officio.}
+
+##### Ad Laudes
+
+###### Hymnus
+
+BEATE Pastor Petre, clemens áccipe
+Voces precántum, criminúmque víncula
+Verbo resólve, cui potéstas tradíta
+Aperíre terris cælum, apértum cláudere.
+
+Sit Trinitáti sempitérna glória,
+Honor, potéstas atque jubilátio,
+In unitáte, quæ gubérnat ómnia,
+Per univérsa æternitátis sǽcula.
+Amen.
+
+℣. Exáltent eum in ecclésia plebis. ℟. Et in cáthedra seniórum laudent eum.
+
+**Ad Bened. Ant.** Quodcúmque \* ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis: dicit Dóminus Simóni Petro.
+
+###### Oratio
+
+DEUS, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commem. S. Pauli Apostoli:}
+
+**Ant.** Sancte Paule Apóstole, prædicátor veritátis et Doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+###### Oratio
+
+DEUS, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. (Per Dóminum.)
+
+{RUBRIC: Deinde Commem. Feriæ.}

@@ -3435,3 +3435,82 @@ Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini ma
 #### In Officio feriali
 
 {RUBRIC: Capítulum, Hymnus et Versus dicúntur quotídie de Féria curránti, ut in Psaltério hic et álibi appónuntur; et inde súmitur étiam Ant. ad Benedíctus.}
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+SPLENDOR Patérnæ glóriæ,
+De luce lucem próferens,
+Lux lucis, et fons lúminis,
+Diem dies illúminans:
+
+Verúsque sol illábere,
+Micans nitóre pérpeti:
+Jubárque Sancti Spíritus
+Infúnde nostris sénsibus.
+
+Votis vocémus et Patrem,
+Patrem poténtis grátiæ,
+Patrem perénnis glóriæ:
+Culpam reléget lúbricam.
+
+Confírmet actus strénuos:
+Dentes retúndat ínvidi:
+Casus secúndet ásperos:
+Agénda recte dírigat.
+
+Mentem gubérnet et regat:
+Sit pura nobis cástitas:
+Fides calóre férveat,
+Fraudis venéna nésciat.
+
+Christúsque nobis sit cibus,
+Potúsque noster sit fides:
+Læti bibámus sóbriam
+Profusiónem Spíritus.
+
+Lætus dies hic tránseat:
+Pudor sit ut dilúculum:
+Fides velut merídies:
+Crepúsculum mens nésciat.
+
+Auróra lucem próvehit,
+Cum luce nobis pródeat
+In Patre totus Fílius,
+Et totus in Verbo Pater.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Benedíctus \* † Dóminus, Deus Israël, quia visitávit et liberávit nos.
+
+{RUBRIC: Réliqua ut in Ordinário. 9}
+
+---
+
+## Ad Laudes II
+
+*In Vigíliis commúnibus, quando fit Offícium de Féria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Miserére. †
+
+###### Psalmus 50
+
+MISERERE † mei, Deus: \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et

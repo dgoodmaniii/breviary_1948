@@ -16104,4 +16104,54 @@ Non salvátur rex per multam virtútem: \* et gigas non salvábitur in multitúd
 
 Fallax equus ad salútem: \* in abundántia autem virtútis suæ non salvábitur.
 
-Ecce óculi Dómini super metuéntes eum: \* et in
+Ecce óculi Dómini super metuéntes eum: \* et in eis, qui sperant super misericórdia ejus:
+
+Ut éruat a morte ánimas eórum: \* et alat eos in fame.
+
+Anima nostra sústinet Dóminum: \* quóniam adjútor et protéctor noster est.
+
+Quia in eo lætábitur cor nostrum: \* et in nómine sancto ejus sperávimus.
+
+Fiat misericórdia tua, Dómine, super nos: \* quemádmodum sperávimus in te.
+
+**Ant.** Cogitatiónes Cordis ejus in generatióne et generatiónem.
+
+**Ant.** Apud te \* est fons vitæ; torrénte voluptátis tuæ potábis nos, Dómine.
+
+##### Psalmus 35
+
+DIxit injústus ut delínquat in semetípso: \* non est timor Dei ante óculos ejus.
+
+Quóniam dolóse egit in conspéctu ejus: \* ut inveniátur iníquitas ejus ad ódium.
+
+Verba oris ejus iníquitas, et dolus: \* nóluit intellígere ut bene ágeret.
+
+Iniquitátem meditátus est in cubíli suo: \* ástitit omni viæ non bonæ, malítiam autem non odívit.
+
+Dómine, in cælo misericórdia tua: \* et véritas tua usque ad nubes.
+
+Justítia tua sicut montes Dei: \* judícia tua abýssus multa.
+
+Hómines, et juménta salvábis, Dómine: \* quemádmodum multiplicásti misericórdiam tuam, Deus.
+
+Fílii autem hóminum, \* in tégmine alárum tuárum sperábunt.
+
+Inebriabúntur ab ubertáte domus tuæ: \* et torrénte voluptátis tuæ potábis eos.
+
+Quóniam apud te est fons vitæ: \* et in lúmine tuo vidébimus lumen.
+
+Præténde misericórdiam tuam sciéntibus te: \* et justítiam tuam his, qui recto sunt corde.
+
+Non véniat mihi pes supérbiæ: \* et manus peccatóris non móveat me.
+
+Ibi cecidérunt qui operántur iniquitátem: \* expúlsi sunt, nec potuérunt stare.
+
+**Ant.** Apud te est fons vitæ; torrénte voluptátis tuæ potábis nos, Dómine.
+
+**Ant.** Homo \* pacis meæ, qui edébat panes meos, magnificávit super me supplantatiónem.
+
+##### Psalmus 40
+
+BEátus qui intélligit super egénum, et páuperem: \* in die mala liberábit eum Dóminus.
+
+Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra: \* et

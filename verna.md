@@ -19151,4 +19151,38 @@ QUARE illum córripis? Quia tu doles, quod peccáverit in te? Absit. Si amóre t
 
 VIS nosse, quia in hóminem peccándo, perísti? Si te ille, in quem peccásti, corripúerit inter te et ipsum solum, et audíeris illum, lucrátus est te. Quid est, Lucrátus est te; nisi quia períeras, si non lucrarétur te? Nam si non períeras, quómodo te lucrátus est? Nemo ergo contémnat, quando peccat in fratrem. Ait enim quodam loco Apóstolus: Sic autem peccántes in fratres, et percutiéntes consciéntiam eórum infírmam, in Christum peccátis: ídeo quia membra Christi omnes facti sumus. Quómodo non peccas in Christum, qui peccas in membrum Christi?
 
-℟. Joseph dum intráret in terram Ægýpti, linguam quam non nóverat, audívit: manus ejus in labóribus serviérunt: \* Et lingua ejus inter príncipes loquebátur sapiéntiam. ℣. Humiliavérunt in compédibus pedes ejus: ferrum pertránsiit ánimam
+℟. Joseph dum intráret in terram Ægýpti, linguam quam non nóverat, audívit: manus ejus in labóribus serviérunt: \* Et lingua ejus inter príncipes loquebátur sapiéntiam. ℣. Humiliavérunt in compédibus pedes ejus: ferrum pertránsiit ánimam ejus, donec veníret verbum ejus. — Et.
+
+#### Lectio iii
+
+NEMO ergo dicat, quia non peccávi in Deum, sed peccávi in fratrem: in hóminem peccávi, leve, vel nullum peccátum est. Forte inde dicis: Leve est, quia cito curátur. Peccásti in fratrem: fac satis, et sanátus es. Cito fecísti mortíferam rem, sed remédium cito invenísti. Quis nostrum speret regnum cælórum, fratres mei, quando dicit Evangélium: Qui díxerit fratri suo, Fátue; reus erit gehénnæ ignis? Magnus terror: sed vide ibi remédium. Si obtúleris munus tuum ad altáre, et ibi recordátus fúeris, quia frater tuus habet áliquid advérsum te, relínque ibi munus tuum ante altáre. Non iráscitur Deus, quia differs impónere munus tuum: te quærit Deus magis, quam munus tuum.
+
+℟. Meménto mei, dum bene tibi fúerit: \* Ut súggeras Pharaóni, ut edúcat me de isto cárcere: \* Quia furtim sublátus sum, et hic ínnocens in lacum missus sum. ℣. Tres enim adhuc dies sunt, post quod recordábitur Phárao ministérii tui, et restítuet te in gradum prístinum: tunc meménto mei. — Ut. Glória Patri. Quia.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Si duo ex vobis \* consénserint super terram: de omni re quamcúmque petíerint, fiet illis a Patre meo, dicit Dóminus.
+
+#### Oratio
+
+EXAUDI nos, omnípotens et miséricors Deus: et continéntiæ salutáris propítius nobis dona concéde. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Ubi duo vel tres \* congregáti fúerint in nómine meo, in médio eórum sum, dicit Dóminus.
+
+#### Oratio
+
+TUA nos, Dómine, protectióne defénde: et ab omni semper iniquitáte custódi. Per Dóminum.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio i
+
+*Cap. 15, 1-20*
+
+IN illo témpore: Accessérunt ad Jesum ab Jerosólymis scribæ et pharisǽi, dicéntes: Quare di-

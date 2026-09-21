@@ -15318,4 +15318,18 @@ DEus, qui nobis sub Sacraménto mirábili passiónis tuæ memóriam reliquísti:
 
 *Cap. 4, 1-11*
 
-ET factum est in diébus illis, convenérunt Philísthiim in pugnam; et egréssus est Israël óbviam Philísthiim in prǽlium, et castrametátus est juxta Lápidem adjutórii. Porro Philísthiim venérunt in Aphec et instruxérunt áciem contra Israël. Inito autem certámine, terga vertit Israël Philisthǽis, et cæsa sunt in illo certámine passim per agros quasi quátuor míllia virórum. Et revérsus est pópulus ad castra, dixerúntque majóres natu
+ET factum est in diébus illis, convenérunt Philísthiim in pugnam; et egréssus est Israël óbviam Philísthiim in prǽlium, et castrametátus est juxta Lápidem adjutórii. Porro Philísthiim venérunt in Aphec et instruxérunt áciem contra Israël. Inito autem certámine, terga vertit Israël Philisthǽis, et cæsa sunt in illo certámine passim per agros quasi quátuor míllia virórum. Et revérsus est pópulus ad castra, dixerúntque majóres natu de Israël: Quare percússit nos Dóminus hódie coram Philísthiim? Afferámus ad nos de Silo arcam fœderis Dómini, et véniat in médium nostri, ut salvet nos de manu inimicórum nostrórum.
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et.
+
+##### Lectio ii
+
+MIsit ergo pópulus in Silo, et tulérunt inde arcam fœderis Dómini exercítuum sedéntis super Chérubim; erántque duo fílii Heli cum arca fœderis Dei, Ophni et Phínees. Cumque venísset arca fœderis Dómini in castra, vociferátus est omnis Israël clamóre grandi, et persónuit terra. Et audiérunt Philístiim vocem clamóris dixerúntque: Quænam est hæc vox clamóris magni in castris Hebræórum? Et cognovérunt quod arca Dómini venísset in castra.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.
+
+##### Lectio iii
+
+TImuerúntque Philísthiim, dicéntes: Venit Deus in castra; et ingemuérunt dicéntes: Væ nobis, non enim fuit tanta exsultátio heri et nudiustértius: væ nobis. Quis nos salvábit de manu deórum sublímium istórum? Hi sunt dii, qui percussérunt Ægýptum omni plaga in desérto. Confortámini et estóte viri, Philísthiim: ne serviátis Hebrǽis, sicut et illi serviérunt vobis, confortámini et belláte. Pugnavérunt ergo Philísthiim, et cæsus est Israël, et fugit unusquísque in tabernáculum suum, et facta est plaga magna nimis, et cecidérunt de Israël trigínta míllia péditum, et arca Dei capta est, duo quoque fílii Heli mórtui sunt, Ophni et Phínees.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória Patri. Et.

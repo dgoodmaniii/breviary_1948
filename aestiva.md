@@ -7028,3 +7028,55 @@ Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jer
 Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
 
 **Ant.** Amplius lava me, Dómine, ab injustítia mea.
+
+**Ant.** Impietátibus nostris.
+
+### Psalmus 64
+
+TE decet hymnus, Deus, in Sion: \* et tibi reddétur votum in Jerúsalem.
+
+Exáudi oratiónem meam: \* ad te omnis caro véniet.
+
+Verba iniquórum prævaluérunt super nos: \* et impietátibus nostris tu propitiáberis.
+
+Beátus, quem elegísti, et assumpsísti: \* inhabitábit in átriis tuis.
+
+Replébimur in bonis domus tuæ: \* sanctum est templum tuum, mirábile in æquitáte.
+
+Exáudi nos, Deus, salutáris noster, \* spes ómnium fínium terræ, et in mari longe.
+
+Præparans montes in virtúte tua, accínctus poténtia: \* qui contúrbas profúndum maris sonum flúctuum ejus.
+
+Turbabúntur gentes, et timébunt qui hábitant términos a signis tuis: \* éxitus matutíni, et véspere delectábis.
+
+Visitásti terram, et inebriásti eam: \* multiplicásti locupletáre eam.
+
+Flumen Dei replétum est aquis, parásti cibum illórum: \* quóniam ita est præparátio ejus.
+
+Rivos ejus inébria, multíplica genímina ejus: \* in stillicídiis ejus lætábitur gérminans.
+
+Benedíces corónæ anni benignitátis tuæ: \* et campi tui replebúntur ubertáte.
+
+Pinguéscent speciósa desérti: \* et exsultatióne colles accingéntur.
+
+Indúti sunt aríetes óvium, et valles abundábunt fruménto: \* clamábunt, étenim hymnum dicent.
+
+**Ant.** Impietátibus nostris tu propitiáberis, Deus.
+
+**Ant.** In innocéntia.
+
+### Psalmus 100
+
+MISERICORDIAM, et judícium \* cantábo tibi, Dómine:
+
+Psallam, et intélligam in via immaculáta, \* quando vénies ad me.
+
+Perambulábam in innocéntia cordis mei, \* in médio domus meæ.
+
+Non proponébam ante óculos meos rem injústam: \* faciéntes prævaricatiónes odívi.
+
+Non adhæsit mihi cor pravum: \* declinántem a me malígnum non cognoscébam.
+
+Detrahéntem secréto próximo suo, \* hunc persequébar.
+
+Supérbo óculo, et insatiábili corde, \* cum hoc non edébam.

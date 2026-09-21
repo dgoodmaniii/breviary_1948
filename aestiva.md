@@ -18282,4 +18282,32 @@ ET respóndit rex David dicens: Vocáte ad me Bethsabée. Quæ cum fuísset ingr
 
 DIxit quoque rex David: Vocáte mihi Sadoc sacerdótem et Nathan Prophétam et Banájam fílium Jójadæ. Qui cum ingréssi fuíssent coram rege, dixit ad eos: Tóllite vobíscum servos Dómini vestri et impónite Salomónem fílium meum super mulam meam et dúcite eum in Gihon, et ungat eum ibi Sadoc sacérdos et Nathan Prophéta in regem super Israël. Et canétis búccina atque dicétis: Vivat rex Sálomon. Et ascendétis post eum et véniet et sedébit super sólium meum et ipse regnábit pro me.
 
-℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis,
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+*Cap. 1, 38-40*
+
+DEscéndit ergo Sadoc sacérdos et Nathan Prophéta et Banájas fílius Jójadæ et Ceréthi et Phelethi et imposuérunt Salomónem super mulam regis David et adduxérunt eum in Gihon. Sumpsítque Sadoc sacérdos cornu ólei de tabernáculo et unxit Salomónem, et cecinérunt búccina, et dixit omnis pópulus: Vivat rex Sálomon. Et ascéndit univérsa multitúdo post eum et pópulus canéntium tíbiis et lætántium gáudio magno, et insónuit terra a clamóre eórum.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 2, 1-9*
+
+APpropinquavérunt autem dies David ut moreréntur, præcepítque Salomóni fílio suo, dicens: Ego ingrédior viam univérsæ terræ: confortáre et esto vir, et obsérva custódias Dómini Dei tui, ut ámbules in viis ejus, ut custódias cæremónias ejus et præcépta ejus et judícia et testimónia, sicut scriptum est in lege Móysi; ut intélligas univérsa quæ facis et quocúmque te vérteris; ut confírmet Dóminus sermónes suos, quos locútus est de me dicens: Si custodíerint fílii tui vias suas, et ambuláverint coram me in veritáte in omni corde suo et in omni ánima sua, non auferétur tibi vir de sólio Israël.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pœniténtiam, veniénsque oráverit in isto loco. — Tu.
+
+##### Lectio ii
+
+TU quoque nosti quæ fécerit mihi Joab fílius Sárviæ, quæ fécerit duó-

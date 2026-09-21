@@ -23654,4 +23654,28 @@ Homilía sancti Gregórii Papæ
 
 LECTIO sancti Evangélii, quæ modo in áuribus vestris lecta est, fratres mei, quæstióne ánimum pulsat, sed pulsatióne sua vim discretiónis índicat. Quǽri étenim potest, cur Petrus, qui piscátor ante conversiónem fuit, post conversiónem ad piscatiónem rédiit: et cum Véritas dicat: Nemo mittens manum suam ad arátrum, et aspíciens retro, aptus est regno Dei: cur repétiit quod dereliquit? Sed si virtus discretiónis inspícitur, cítius vidétur: quia nimírum negótium, quod ante conversiónem sine peccáto éxstitit, hoc étiam post conversiónem repétere culpa non fuit.
 
-℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja,
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+NAM piscatórem Petrum, Matthǽum vero teloneárium scimus: et post conversiónem suam ad piscatiónem Petrus rédiit, Matthǽus vero ad telónei negótium non resédit: quia áliud est víctum per piscatiónem quǽrere, áliud autem telónei lucris pecúnias augére. Sunt enim pléraque negótia, quæ sine peccátis exhibéri aut vix, aut nullátenus possunt. Quæ ergo ad peccátum ímplicant, ad hæc necésse est, ut post conversiónem ánimus non recúrrat.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui. Glória Patri. Qui.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+QUÆRI étiam potest, cur discípulis in mari laborántibus, post resurrectiónem suam Dóminus in líttore stetit, qui ante resurrectiónem suam coram discípulis in flúctibus maris ambulávit. Cujus rei rátio festíne cognóscitur, si ipsa, quæ tunc ínerat, causa pensétur. Quid enim mare, nisi præsens sǽculum signat, quod se cásuum tumúltibus, et undis vitæ corruptíbilis illídit? Quid per soliditátem líttoris, nisi illa perpetúitas quiétis ætérnæ figurátur? Quia ergo discípuli adhuc flúctibus mortális vitæ ínerant, in mari laborábant: quia autem Redémptor noster jam corruptiónem carnis excésserat, post resurrectiónem suam in líttore stabat.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Míttite in déxteram \* navígii rete, et inveniétis, allelúja.
+
+#### Oratio
+
+DEUS, qui nos resurrectiónis Domínicæ ánnua solemnitáte lætíficas: concéde propítius; ut per temporália festa quæ ágimus, pervenire ad gáudia ætérna mereámur. Per eúmdem Dóminum nostrum.
+
+**Ad Magnif. Ant.** Dixit Jesus \* discípulis suis: Afférte de píscibus, quos prendidístis nunc. Ascéndit autem Simon Petrus,

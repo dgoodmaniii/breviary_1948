@@ -35397,4 +35397,37 @@ ERIGENDA est nobis, fratres, ad Deum major inténtio, ut verba sancti Evangélii
 
 **Lectio viii**
 
-CREDITIS in Deum, et in eum crédite, cui natúra est, non rapína, esse æquálem Deo; semetípsum enim exinanívit, non tamen formam Dei amíttens, sed formam servi accípiens. Mortem metúi-
+CREDITIS in Deum, et in eum crédite, cui natúra est, non rapína, esse æquálem Deo; semetípsum enim exinanívit, non tamen formam Dei amíttens, sed formam servi accípiens. Mortem metúitis huic formǽ servi: non turbétur cor vestrum; suscitábit illam forma Dei. Sed quid est, quod séquitur: In domo Patris mei mansiónes multæ sunt; nisi quia et sibi metuébant? Unde audíre debuérunt: Non turbétur cor vestrum. Quis enim eórum non metúeret, cum Petro dictum esset, fidentióri atque promptióri: Non cantábit gallus, donec ter me neges?
+
+℟. Cándidi facti sunt Nazarǽi ejus, allelúja; splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ, alias}
+
+**Lectio ix**
+
+TAMQUAM ergo essent ab illo perituri, mérito turbabántur; sed cum áudiunt, In domo Patris mei mansiónes multæ sunt: si quo minus, dixíssem vobis: Quia vado paráre vobis locum; a perturbatióne recreántur, certi ac fidéntes, étiam post perícula tentatiónum, se apud Deum cum Christo esse mansúros. Quia etsi álius est álio fórtior, álius álio sapiéntior, álius álio jústior, álius álio sánctior, in domo Patris mei mansiónes multæ sunt. Nullus eórum alienábitur ab illa domo, ubi mansiónem pro suo quisque acceptúrus est mérito.
+
+{RUBRIC: Te Deum.}
+
+##### Ad Laudes
+
+{RUBRIC: et ad Horas, Añæ}
+
+**1** Dómine, \* osténde nobis Patrem, et súfficit nobis, allelúja.
+
+**2** Philíppe, \* qui videt me, videt et Patrem meum, allelúja.
+
+**3** Tanto témpore \* vobíscum sum, et non cognovístis me? Philíppe, qui videt me, videt et Patrem meum, allelúja.
+
+**4** Si cognovissétis me, \* et Patrem meum útique cognovissétis, et ámodo cognoscétis eum, et vidístis eum, allelúja, allelúja.
+
+**5** Si dilígitis me, \* mandáta mea serváte, allelúja, allelúja, allelúja.
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt, et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+PASCHALE mundo gáudium
+Sol núntiat formósior,

@@ -39157,3 +39157,23 @@ AUDIENTES autem gentes gavísæ sunt et glorificábant verbum Dómini, et credid
 **Lectio iii** *Cap. 14, 1-3*
 
 FACTUM est autem Icónii, ut simul introírent in synagógam Judæórum et loqueréntur, ita ut créderet Judæórum et Græcórum copiósa multitúdo. Qui vero incréduli fuérunt Judǽi, suscitavérunt et ad iracúndiam concitavérunt ánimas géntium advérsus fratres. Multo ígitur témpore demoráti sunt fiduciáliter agéntes in Dómino, testimónium perhibénte verbo grátiæ suæ, dante signa et prodígia fíeri per manus eórum.
+
+℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória Patri. Mors.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+BARNABAS Levítes Cýprius génere, qui et Joseph, cum Paulo géntium Apóstolus ordinátus est ad prædicándum Jesu Christi Evangélium. Is, agro véndito quem habébat, redáctam ex eo pecúniam áttulit Apóstolis. Missus autem Antiochíam prædicatiónis causa, cum ibi multos ad Christi Dómini fidem convérsos esse comperísset, incredibíliter lætátus, eos hortabátur ut in Christi fide permanérent. Qua cohortatióne multum proficiébat, quod ab ómnibus vir bonus et Spíritu Sancto plenus habebátur.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+PROFECTUS inde Tarsum ut quǽreret Paulum, cum eo Antiochíam venit. In ejus urbis ecclésia annum commoráti, christiánæ fídei et vitæ illis homínibus præcépta dedérunt: ubi étiam Jesu Christi cultóres primum Christiáni sunt appelláti. Discípuli autem Pauli et Bárnabæ, suis facultátibus Christiános, qui in Judǽa erant, sustentábant, eo mitténtes pecúniam per Paulum et Bárnabam. Qui perfúncti illo caritátis offício, adhíbito Joánne, cui cognómen erat Marcus, rediérunt Antiochíam.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+###### Lectio vi
+
+CUM autem Antiochíæ in Ecclésia, cum céteris prophétis et doctóribus, Paulus et Bárnabas in jejúnio et oratióne Dómino deservírent, dixit Spíritus Sanctus: Segregáte mihi Saulum et Bárnabam in opus, ad quod assúmpsi eos. Tunc jejunántes et orántes, imponentésque eis manus, dimisérunt illos. Itaque Seleucíam venérunt, inde in Cyprum; ac multas prætérea urbes regionésque,

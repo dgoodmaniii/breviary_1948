@@ -29825,4 +29825,22 @@ IN tirocínio, cum regulári observántia et ómnium exercitatióne virtútum qu
 
 ###### Lectio vi
 
-INTER céteras virtútes christiánam humilitátem et obediéntiam máxime diléxit: nam inter omnes se mínimum existimans, abjectíssima quǽque ministéria domus cúpide affectábat, et antístitum suórum non mo-
+INTER céteras virtútes christiánam humilitátem et obediéntiam máxime diléxit: nam inter omnes se mínimum existimans, abjectíssima quǽque ministéria domus cúpide affectábat, et antístitum suórum non modo jussa, sed et optáta diligentíssime perficiébat. Idem, refrenátis sénsibus et vitæ asperitáte usus, illibátum retínuit florem virginitátis ac plane mundo crucifíxus únice Deo vixit, íntima Dómini sui fruítus consuetúdine. Ita brevem vitæ cursum, tot virtútibus nobilitátum confíciens, Ínsulæ in Aprútio, caritátis incéndio vérius quam vi morbi consúmptus, divínæque Matris ope recreátus, placidíssimo éxitu ad Súperos evolávit, anno millésimo octingentésimo sexagésimo secúndo, ætátis suæ vigésimo quarto. Eum deínceps, a Deo miráculis illustrátum, Pius Papa décimus Cælitum beatórum número accénsuit. Benedíctus vero décimus quintus, Póntifex Máximus, anno millésimo nongentésimo vigésimo, post cónditum Institútum a Passióne ducentésimo, in sollemnitáte Ascensiónis Dómini, beáto júveni Sanctórum honóres decrévit; et Pius undécimus ejus Offícium et Missam ad univérsam Ecclésiam exténdit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus; et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. — Quia.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Marcum
+
+###### Lectio vii
+
+*Cap. 10, 13-21*
+
+IN illo témpore: Offerébant Jesu párvulos, ut tángeret illos: discípuli autem comminabántur offeréntibus. Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Commentarium in Marcum, cap. 10, 13-21}
+
+AIT discípulis Jesus: Sínite párvulos veníre ad me, et ne prohibuéritis eos; tálium enim est regnum Dei. Significánter dixit: Tálium est; non: Istórum; ut osténderet, non ætátem regnáre, sed mores; et his, qui símilem habérent innocéntiam et simplicitátem, prǽmium repromítti: Apóstolo quoque in eámdem senténtiam congruénte: Fratres, nolíte fíeri púeri sénsibus; sed malítia párvuli estóte, sensu autem ut perfécti sitis. Amen, dico vobis: quisquis non recéperit regnum Dei velut párvulus, non intrábit in illud. Sicut

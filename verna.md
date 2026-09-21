@@ -41893,4 +41893,32 @@ FRATRES: Debitóres sumus non carni, ut secúndum carnem vivámus. Si enim secú
 
 {RUBRIC: Pro uno Mart. extra T. P.}
 
-℟. Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impió-
+℟. Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit: \* Fundátus enim erat supra firmam petram. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Fundátus.
+
+{RUBRIC: Pro uno et plur. Mm. T. P.}
+
+℟. Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sæculum sæculi. — In.
+
+**Benedictio** Unigénitus Dei.
+
+###### Lectio ii *Cap. 8, 28-39*
+
+SCIMUS autem quóniam diligéntibus Deum ómnia cooperántur in bonum, iis, qui secúndum propósitum vocáti sunt sancti. Nam quos præscívit, et prædestinávit confórmes fíeri imáginis Fílii sui, ut sit ipse primogénitus in multis frátribus. Quos autem prædestinávit, hos et vocávit: et quos vocávit, hos et justificávit: quos autem justificávit, illos et glorificávit. Quid ergo dicémus ad hæc? Si Deus pro nobis, quis contra nos? Qui étiam próprio Fílio suo non pepércit, sed pro nobis ómnibus trádidit illum: quómodo non étiam cum illo ómnia nobis donávit? Quis accusábit advérsus eléctos Dei? Deus qui justíficat, quis est qui condémnet? Christus Jesus, qui mórtuus est, immo qui et resurréxit, qui est ad déxteram Dei, qui étiam interpéllat pro nobis.
+
+{RUBRIC: Pro pluribus Mm. extra T. P.}
+
+℟. Viri sancti gloriósum sánguinem fudérunt pro Dómino, amavérunt Christum in vita sua, imitáti sunt eum in morte sua: \* Et ídeo corónas triumpháles meruérunt. ℣. Unus spíritus, et una fides erat in eis. — Et.
+
+{RUBRIC: Pro uno Mart. extra T. P.}
+
+℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+{RUBRIC: Pro uno et plur. Mm. T. P.}
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+**Benedictio** Spíritus Sancti.
+
+###### Lectio iii
+
+QUIS ergo nos separábit a caritáte Christi? tribulátio, an angústia, an fames, an núditas, an perículum, an persecútio, an gládius? (sicut scriptum est: Quia propter te mor-

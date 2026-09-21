@@ -21357,3 +21357,55 @@ QUONIAM vidi iniquitátem et contradictiónem in civitáte. Atténde glóriam cr
 CONFITEBIMUR tibi, Deus: \* confitébimur, et invocábimus nomen tuum.
 
 Narrábimus mirabília tua: \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea: \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis: Nolíte iníque ágere: \* et delinquéntibus: Nolíte exaltáre cornu:
+
+Nolíte extóllere in altum cornu vestrum: \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus: \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat: \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc: verúmtamen fæx ejus non est exinaníta: \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sǽculum: \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.
+
+{RUBRIC: †}
+
+**Ant.** Dixi iníquis: Nolíte loqui advérsus Deum iniquitátem.
+
+**Ant.** Terra trémuit \* et quiévit, dum exsúrgeret in judício Deus.
+
+#### Psalmus 75
+
+NOTUS in Judǽa Deus: \* in Israël magnum nomen ejus.
+
+Et factus est in pace locus ejus: \* et habitátio ejus in Sion.
+
+Ibi confrégit poténtias árcuum, \* scutum, gládium, et bellum.
+
+Illúminans tu mirabíliter a móntibus ætérnis: \* turbáti sunt omnes insipiéntes corde.
+
+Dormiérunt somnum suum: \* et nihil invenérunt omnes viri divitiárum in mánibus suis.
+
+Ab increpatióne tua, Deus Jacob, \* dormitavérunt qui ascendérunt equos.
+
+Tu terríbilis es, et quis resístet tibi? \* ex tunc ira tua.
+
+De cælo audítum fecísti judícium: \* terra trémuit et quiévit,
+
+Cum exsúrgeret in judícium Deus, \* ut salvos fáceret omnes mansuétos terræ.
+
+Quóniam cogitátio hóminis confitébitur tibi: \* et relíquiæ cogitatiónis diem festum agent tibi.
+
+Vovéte, et réddite Dómino, Deo vestro: \* omnes, qui in circúitu ejus affértis múnera.
+
+Terríbili et ei qui aufert spíritum príncipum, \* terríbili apud reges terræ.
+
+{RUBRIC: †}
+
+**Ant.** Terra trémuit et quiévit, dum exsúrgeret in judício Deus.

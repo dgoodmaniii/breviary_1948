@@ -36068,4 +36068,29 @@ SI ergo Nicodémus de illis multis erat, qui credíderant in nómine ejus, jam i
 
 #### Lectio ix
 
-ALEXANDER Románus, Hadriáno imperatóre regens Ecclésiam, magnam partem Románæ no-
+ALEXANDER Románus, Hadriáno imperatóre regens Ecclésiam, magnam partem Románæ nobilitátis ad Christum convértit. Is constítuit, ut tantúmmodo panis et vinum in mystério offerrétur: vinum autem aqua miscéri jussit, propter sánguinem et aquam, quæ ex Jesu Christi látere profluxérunt: et in Cánone Missæ áddidit, Qui prídie quam paterétur. Idem decrévit ut aqua benedícta, sale admíxto, perpétuo in ecclésia asservarétur, et in cubículis adhiberétur ad fugándos dæmones. Sedit annos decem, menses quinque et dies vigínti, vitæ sanctitáte et salutáribus institútis illústris. Martýrio coronátus est una cum Evéntio et Theodúlo presbýteris, sepultúsque est via Nomentána, tértio ab Urbe lápide, eódem in loco ubi secúri percússus fúerat; creátis divérso témpore mense Decémbri presbýteris sex, diáconis duóbus et epíscopis per divérsa loca quinque. Eórum córpora, póstea in Urbem transláta, in ecclésia sanctæ Sabínæ cóndita sunt. In eúmdem diem íncidit beáta mors sancti Juvenális, Narniénsis epíscopi; qui, cum plúrimos in ea urbe sanctitáte et doctrína Christo peperísset, clarus miráculis in pace quiévit, ibíque honorífice sepúltus est. Te Deum.
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Anæ}
+
+**Ant. 1** O magnum pietátis opus: \* mors mórtua tunc est, in ligno quando mórtua Vita fuit, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+**2** Salva nos, \* Christe Salvátor, per virtútem Crucis: qui salvásti Petrum in mari, miserére nobis, allelúja.
+
+**3** Ecce Crucem Dómini, \* fúgite, partes advérsæ, vicit leo de tribu Juda, radix David, allelúja.
+
+**4** Nos autem gloriári \* opórtet in Cruce Dómini nostri Jesu Christi, allelúja.
+
+**5** Per signum Crucis \* de inimícis nostris líbera nos, Deus noster, allelúja.
+
+**Capitulum** *Philipp. 2, 5-7*
+
+FRATRES: Hoc enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo: sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+###### Hymnus
+
+LUSTRA sex qui jam perégit,
+Tempus implens córporis,

@@ -19707,4 +19707,20 @@ IN illo témpore: Prætériens Jesus, vidit hóminem cæcum a nativitáte: et in
 
 QUÆ fecit Dóminus noster Jesus Christus, stupénda atque miránda, et ópera, et verba sunt: ópera, quia facta sunt; verba, quia signa sunt. Si ergo quid signíficet hoc quod factum est, cogitémus: genus humánum est iste cæcus. Hæc enim cǽcitas cóntigit in primo hómine per peccátum, de quo omnes oríginem dúximus, non solum mortis, sed étiam iniquitátis. Si enim cǽcitas est infidélitas, et illuminátio fides: quem fidélem, quando venit Christus, invénit? Quandóquidem Apóstolus natus in gente prophetárum dicit: Fúimus et nos áliquándo natúra fílii iræ, sicut et céteri. Si fílii iræ, fílii vindíctæ, fílii pœnæ, fílii gehénnæ: quómodo natúra, nisi quia peccánte primo hómine vítium pro natúra inolévit? Si vítium pro natúra inolévit, secúndum mentem omnis homo cæcus natus est.
 
-℟. Spléndida facta est fácies Móysi, dum respíceret in eum Dóminus: \* Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde. ℣. Cum-
+℟. Spléndida facta est fácies Móysi, dum respíceret in eum Dóminus: \* Vidéntes senióres claritátem vultus ejus, admirántes timuérunt valde. ℣. Cumque descendísset de monte Sínai, portábat duas tábulas testimónii, ignórans quod cornúta esset fácies ejus ex consórtio sermónis Dei. — Vidéntes.
+
+#### Lectio ii
+
+VENIT Dóminus: quid fecit? Magnum mystérium commendávit. Exspuit in terram, de salíva sua lutum fecit; quia Verbum caro factum est, et inúnxit óculos cæci. Inúnctus erat, et nondum vidébat. Misit illum ad piscínam, quæ vocátur Síloë. Pertínuit autem ad Evangelístam commendáre nobis nomen hujus piscínæ, et ait: Quod interpretátur Missus. Jam quis sit missus, agnóscitis. Nisi enim ille fuísset missus, nemo nostrum esset ab iniquitáte dimíssus. Lavit ergo óculos in ea piscína, quæ interpretátur Missus; baptizátus est in Christo. Si ergo quando eum in seípso quodámmodo baptizávit, tunc illumínavit: quando inúnxit, fortásse catechúmenum fecit.
+
+℟. Ecce mitto Angelum meum, qui præcédat te, et custódiat semper: \* Obsérva et audi vocem meam, et inimícus ero inimícis tuis, et affligéntes te affligam: et præcédet te Angelus meus. ℣. Israël, si me audíeris, non erit in te deus recens, neque adorábis deum aliénum: ego enim Dóminus. — Obsérva.
+
+#### Lectio iii
+
+AUDISTIS grande mystérium. Intérroga hóminem: Christiánus es? Respóndet tibi: Non sum. Si pagánus es, aut Judǽus? Si autem díxerit, Non sum: adhuc quæris ab eo, Catechúmenus, an fidélis? Si respónderit tibi, Catechúmenus: inúnctus est, nondum lotus. Sed unde inúnctus? Quǽre, et respóndet. Quǽre ab illo, in quem credat? Eo ipso quo catechúmenus est, dicit: In Christum. Ecce modo loquor et fidélibus et catechúmenis. Quid dixi de sputo et luto? Quia Verbum caro factum est; hoc catechúmeni áudiunt: sed non eis súfficit ad quod inúncti sunt: festínent ad lavácrum, si lumen inquírunt.
+
+℟. Atténdite, pópule meus, legem meam: \* Inclináte aurem vestram in verba oris mei. ℣. Apériam in parábolis os meum: loquar propositiónes ab inítio sǽculi. — Inclináte. Glória Patri. Inclináte.
+
+℣. Angelis suis, ut supra.
+
+**Ad Bened. Ant.** Rabbi, quid peccávit \* homo iste,

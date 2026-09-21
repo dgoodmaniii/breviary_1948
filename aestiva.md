@@ -16963,3 +16963,45 @@ PRotéctor in te sperántium, Deus, sine quo nihil est válidum, nihil sanctum, 
 SObrii estóte et vigiláte, quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret, cui resístite fortes in fide, sciéntes eámdem passiónem ei, quæ in mundo est, vestræ fraternitáti fíeri.
 
 ℟. br. Ego dixi, Dómine, \* Miserére mei. Ego dixi. ℣. Sana ánimam meam quia peccávi tibi. Miserére mei. Glória Patri. Ego dixi.
+
+℣. Memóriam fecit mirabílium suórum miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+### Ad Nonam
+
+**Ant.** Fili, \* præbe mihi cor tuum et óculi tui custódiant vias meas.
+
+**Capit.** *1 Petri 5, 10-11*
+
+DEus autem omnis grátiæ, qui vocávit nos in ætérnam suam glóriam in Christo Jesu, módicum passos ipse perfíciet, confirmábit solidabítque. Ipsi glória et impérium in sæcula sæculórum. Amen.
+
+℟. br. Memóriam fecit mirabílium suórum \* Miserátor Dóminus. Memóriam. ℣. Escam dedit timéntibus se. Miserátor. Glória Patri. Memóriam.
+
+℣. Hauriétis aquas in gáudio. ℟. De fóntibus Salvatóris.
+
+### In II Vesperis
+
+{RUBRIC: Ánæ et Psalmi ut in II Vésperis Festi. 360}
+
+**Capitulum** *1 Petri 5, 6-7*
+
+CArissimi, humiliámini sub poténti manu Dei, ut vos exáltet in témpore visitatiónis; omnem sollicitúdinem vestram projiciéntes in eum, quóniam ipsi cura est de vobis.
+
+**Hymnus** En ut supérba, ut supra. 362
+
+℣. Memóriam fecit mirabílium suórum miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+**Ad Magnif. Ant.** Quæ múlier \* habens drachmas decem, et si perdíderit drachmam unam, nonne accéndit lucérnam et evérrit domum et quærit diligénter donec invéniat?
+
+### Oratio
+
+PRotéctor in te sperántium, Deus, sine quo nihil est válidum, nihil sanctum; multíplica super nos misericórdiam tuam; ut, te rectóre, te duce, sic transeámus per bona temporália, ut non amittámus ætérna. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio sequéntis diéi infra Octávam:}
+
+**Ant.** Ignem veni míttere in terram, et quid volo nisi ut accendéntur?
+
+℣. Tóllite jugum meum super vos et díscite a me. ℟. Quia mitis sum et húmilis Corde.
+
+{RUBRIC: Si autem sequénti die faciéndum non sit Offícium de Octáva, dícitur}
+
+**Ant.** Ad Jesum autem cum veníssent, ut vidérunt eum jam mórtuum, non fregérunt ejus crura, sed unus mílitum láncea latus ejus apéruit et contínuo exívit sanguis et aqua.

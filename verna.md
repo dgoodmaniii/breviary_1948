@@ -19994,4 +19994,28 @@ NEMO est, dilectíssimi, cui per conditiónem témporis societas hujus glóriæ 
 
 #### Lectio vi
 
-SICUT ergo totíus est córporis pie vívere, ita totíus est témporis crucem ferre: quæ mérito ferri unicuíque suadétur, quia própriis modis atque mensúris ab unoquóque tolerátur. Unum nomen est persecutiónis, sed non una est causa certáminis: et plus plerúmque perículi est in insidiatóre occúlto, quam in hoste manifésto. Beátus Job, alternántibus bonis ac malis mundi hujus erudítus, pie veracitérque dicébat: Nonne tentátio est vita hóminis super terram? Quóniam non solis dolóribus córporis atque supplíciis ánima fidélis impétitur, verum étiam, salva incolumitáte membrórum, gravi morbo urgétur, si carnis voluptáte mollítur. Sed cum caro concupíscit advérsus spíritum, spíritus autem advérsus carnem; præsí-
+SICUT ergo totíus est córporis pie vívere, ita totíus est témporis crucem ferre: quæ mérito ferri unicuíque suadétur, quia própriis modis atque mensúris ab unoquóque tolerátur. Unum nomen est persecutiónis, sed non una est causa certáminis: et plus plerúmque perículi est in insidiatóre occúlto, quam in hoste manifésto. Beátus Job, alternántibus bonis ac malis mundi hujus erudítus, pie veracitérque dicébat: Nonne tentátio est vita hóminis super terram? Quóniam non solis dolóribus córporis atque supplíciis ánima fidélis impétitur, verum étiam, salva incolumitáte membrórum, gravi morbo urgétur, si carnis voluptáte mollítur. Sed cum caro concupíscit advérsus spíritum, spíritus autem advérsus carnem; præsídio crucis Christi mens rationális instrúitur, nec cupiditátibus nóxiis illécta conséntit, quóniam continéntiæ clavis et Dei timóre transfígitur.
+
+℟. In próximo est tribulátio mea, Dómine, et non est qui ádjuvet; ut fódiant manus meas et pedes meos: líbera me de ore leónis, \* Ut enárrem nomen tuum frátribus meis. ℣. Erue a frámea, Deus, ánimam meam, et de manu canis únicam meam. — Ut. In.
+
+#### In III Nocturno
+
+##### Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio vii
+
+{RUBRIC: Cap. 8, 46-59}
+
+IN illo témpore: Dicébat Jesus turbis Judæórum: Quis ex vobis árguet me de peccáto? Si veritátem dico vobis, quare non créditis mihi? Et réliqua.
+
+##### Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 18 in Evangelia}
+
+PENSATE, fratres caríssimi, mansuetúdinem Dei. Relaxáre peccáta vénerat, et dicébat: Quis ex vobis árguet me de peccáto? Non dedignátur ex ratióne osténdere se peccatórem non esse, qui ex virtúte divinitátis póterat peccatóres justificáre. Sed terríbile est valde, quod súbditur: Qui ex Deo est, verba Dei audit: proptérea vos non audítis, quia ex Deo non estis. Si enim ipse verba Dei audit qui ex Deo est, et audíre verba ejus non potest quisquis ex illo non est: intérroget se unusquísque, si verba Dei in aure cordis pércipit; et intélliget unde sit. Cæléstem pátriam desideráre Véritas jubet, carnis desidéria cónteri, mundi glóriam declináre, aliéna non appétere, própria largíri.
+
+℟. Tota die contristátus ingrediébar, Dómine: quóniam ánima mea compléta est illusiónibus: \* Et vim faciébant, qui quærébant ánimam meam. ℣. Amíci mei et próximi mei advérsum me appropinquavérunt et stetérunt: et qui juxta me erant, de longe stetérunt. — Et vim.
+
+#### Lectio viii
+
+PENSET ergo apud se unusquísque vestrum, si hæc vox Dei in cordis ejus aure conváluit, et quia jam ex Deo sit, agnóscit. Nam sunt nonnúlli, qui præcépta Dei nec aure córporis percípere dignántur. Et sunt nonnúlli, qui hæc quidem córporis aure percípiunt, sed nullo ea

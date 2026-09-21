@@ -19668,4 +19668,18 @@ DIvinátio in lábiis regis, in judício non errábit os ejus. Pondus et statér
 
 *Cap. 1, 1-17*
 
-VErba Ecclesiástæ, fílii David, regis Jerúsalem. Vánitas vanitátum, dixit Ecclesiástes; vánitas vanitátum, et ómnia vánitas. Quid habet ámplius homo de univérso labóre suo quo labórat sub sole? Generátio præterit, et generátio ádvenit; terra autem in ætérnum stat. Oritur sol et óccidit et ad locum suum revértitur; ibíque renáscens gyrat per merídiem et fléctitur ad aquilónem.
+VErba Ecclesiástæ, fílii David, regis Jerúsalem. Vánitas vanitátum, dixit Ecclesiástes; vánitas vanitátum, et ómnia vánitas. Quid habet ámplius homo de univérso labóre suo quo labórat sub sole? Generátio præterit, et generátio ádvenit; terra autem in ætérnum stat. Oritur sol et óccidit et ad locum suum revértitur; ibíque renáscens gyrat per merídiem et fléctitur ad aquilónem. Lustrans univérsa in circúitu pergit spíritus et in círculos suos revértitur. Omnia flúmina intrant in mare, et mare non redúndat; ad locum unde éxeunt flúmina revertúntur, ut íterum fluant.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+CUnctæ res difficíles: non potest eas homo explicáre sermóne. Non saturátur óculus visu, nec auris audítu implétur. Quid est quod fuit? Ipsum quod futúrum est. Quid est quod factum est? Ipsum quod faciéndum est? Nihil sub sole novum, nec valet quisquam dícere: Ecce hoc recens est; jam enim præcéssit in sǽculis quæ fuérunt ante nos. Non est priórum memória; sed nec eórum quidem quæ póstea futúra sunt, erit recordátio apud eos qui futúri sunt in novíssimo.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito et thronus meus in colúmna nubis. — Superbórum.
+
+##### Lectio iii
+
+EGO Ecclesiástes fui rex Israël in Jerúsalem et propósui in ánimo meo quærere et investigáre sapiénter de ómnibus quæ fiunt sub sole. Hanc occupatiónem péssimam dedit Deus fíliis hóminum, ut occuparéntur in ea. Vidi cuncta quæ fiunt sub sole, et ecce univérsa vánitas et afflíctio spíritus. Pervérsi difficíle corrigúntur, et stultórum infinítus est númerus. Locútus sum in corde meo dicens: Ecce magnus efféctus sum et præcéssi omnes sapiéntia qui fuérunt ante me in Jerúsalem; et mens mea contempláta est multa sapiénter, et dídici dedíque cor meum ut scírem prudéntiam atque doctrínam errorésque et stultítiam.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem

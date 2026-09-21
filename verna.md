@@ -45731,4 +45731,46 @@ Cui laus, potéstas, glória
 
 ℣. Hæc est domus Dómini fírmiter ædificáta. (T. P. Allelúja.) ℟. Bene fundáta est supra firmam petram. (T. P. Allelúja.)
 
-**Ad Magnif. Ant.** Sancti-
+**Ad Magnif. Ant.** Sanctificávit Dóminus \* tabernáculum suum: quia hæc est domus Dei, in qua invocábitur nomen ejus, de quo scriptum est: Et erit nomen meum ibi, dicit Dóminus. (T. P. Allelúja.)
+
+##### In II Vesperis
+
+℣. Domum tuam, Dómine, decet sanctitúdo. (T. P. Allelúja.) ℟. In longitúdinem diérum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** O quam metuéndus est \* locus iste: vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.)
+
+{RUBRIC: In Anniversario Dedicationis Ecclesiæ:}
+
+###### Oratio
+
+DEUS, qui nobis per síngulos annos hujus sancti templi tui consecratiónis réparas diem, et sacris semper mystériis repræséntas incólumes: exáudi preces pópuli tui, et præsta; ut, quisquis hoc templum benefícia petitúrus ingréditur, cuncta se impetrásse lætétur. Per Dóminum.
+
+{RUBRIC: In ipso die Dedicationis Ecclesiæ et per Octavam, et quando varianda est Oratio, dicitur sequens}
+
+###### Oratio
+
+DEUS, qui invisibíliter ómnia cóntines, et tamen pro salúte géneris humáni signa tuæ poténtiæ visibíliter osténdis: templum hoc poténtia tuæ inhabitatiónis illústra, et concéde; ut omnes, qui huc deprecatúri convéniunt, ex quacúmque tribulatióne ad te clamáverint, consolatiónis tuæ benefícia consequántur. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invitat.** Domum Dei decet sanctitúdo: \* Sponsum ejus Christum adorémus in ea. (T. P. Allelúja.) **Ps. 94** Veníte, exsultémus.
+
+{RUBRIC: Hymnus Cæléstis urbs, ut supra. [162]}
+
+##### In I Nocturno
+
+**Ant.** Tóllite portas, \* príncipes, vestras, et elevámini, portæ æternáles. (T. P. Allelúja.)
+
+{RUBRIC: Tempore Paschali Psalmi dicuntur in quolibet Nocturno sub prima Antiphona.}
+
+###### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et

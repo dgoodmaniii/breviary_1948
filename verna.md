@@ -44713,3 +44713,57 @@ Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuf
 Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
 
 Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Adjuvábit eam Deus vultu suo: Deus in médio ejus, non commovébitur.
+
+**Ant.** Aquæ multæ \* non potuérunt exstínguere caritátem.
+
+###### Psalmus 47
+
+MAGNUS Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sancto ejus.
+
+Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
+
+Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.
+
+Quóniam ecce reges terræ congregáti sunt: \* convenérunt in unum.
+
+Ipsi vidéntes sic admiráti sunt, conturbáti sunt, commóti sunt: \* tremor apprehéndit eos.
+
+Ibi dolóres ut parturiéntis: \* in spíritu veheménti cónteres naves Tharsis.
+
+Sicut audívimus, sic vídimus in civitáte Dómini virtútum, in civitáte Dei nostri: \* Deus fundávit eam in ætérnum.
+
+Suscépimus, Deus, misericórdiam tuam, \* in médio templi tui.
+
+Secúndum nomen tuum, Deus, sic et laus tua in fines terræ: \* justítia plena est déxtera tua.
+
+Lætétur mons Sion, et exsúltent fíliæ Juda, \* propter judícia tua, Dómine.
+
+Circúmdate Sion, et complectímini eam: \* narráte in túrribus ejus.
+
+Pónite corda vestra in virtúte ejus: \* et distribúite domos ejus, ut enarrétis in progénie áltera.
+
+Quóniam hic est Deus, Deus noster in ætérnum, et in sǽculum sǽculi: \* ipse reget nos in sǽcula.
+
+**Ant.** Aquæ multæ non potuérunt exstínguere caritátem.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna, allelúja.
+
+℣. Adjuvábit eam Deus vultu suo. (T. P. Allelúja.) ℟. Deus in médio ejus, non commovébitur. (T. P. Allelúja.)
+
+**Absolutio** Ipsíus píetas.
+
+**Benedictio** Deus Pater.
+
+Sermo sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 1 de Virg., circa init.}
+
+###### Lectio iv
+
+QUONIAM hódie natális est Vírginis, invítat nunc integritátis amor, ut áliquid de virginitáte dicámus; ne véluti tránsitu quodam

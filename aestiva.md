@@ -9188,3 +9188,43 @@ DOMINE, Deus omnípotens, qui ad princípium hujus diéi nos perveníre fecísti
 {RUBRIC: In Choro Martyrológium.}
 
 ℣. Pretiósa in conspéctu Dómini. ℟. Mors Sanctórum ejus.
+
+{RUBRIC: Et absolúte, sine} Orémus:
+
+**Oratio**
+
+SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári et salvári, qui vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína. {RUBRIC: Et dícitur ter; último additur:} Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos, et opus mánuum nostrárum dírige. ℣. Glória Patri. ℟. Sicut erat.
+
+Orémus. **Oratio**
+
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+℣. Jube, domne.
+
+**Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+#### In Officio feriali
+
+DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia Christi. Tu autem.
+
+#### E Proprio Sanctorum
+
+##### Pro Oct. S. Joannis Bapt.
+
+REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum, Deum tuum et Sanctum Israël, qui elégit te.
+
+##### Pro Invent. S. Stephani
+
+POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+#### E Communi Sanctorum
+
+##### Pro Apostolis
+
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contuméliam pati.

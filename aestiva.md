@@ -5626,3 +5626,39 @@ DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæ
 ℣. Jube, domne.
 
 **Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+#### In Officio feriali
+
+DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia Christi. Tu autem.
+
+#### E Proprio de Tempore
+
+##### Pro Oct. S. Joannis Bapt.
+
+REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum, Deum tuum et Sanctum Israël, qui elégit te.
+
+##### Pro Invent. S. Stephani
+
+POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+#### E Communi Sanctorum
+
+##### Pro Apostolis
+
+IBANT Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contuméliam pati.
+
+##### Pro Martyre
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+##### Pro pluribus Martyribus
+
+FULGEBUNT justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt natiónes, et dominabúntur pópulis: et regnábit Dóminus illórum in perpétuum.
+
+##### Pro Conf. Pont.
+
+FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+##### Pro Conf. non Pont.
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit

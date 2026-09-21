@@ -13848,4 +13848,46 @@ Etenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
 
 Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
 
-Si mei non fúerint domináti, tunc immaculátus
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** Te unum in substántia, Trinitátem in persónis confitémur.
+
+**Ant.** Te semper idem \* esse, vívere, et intellígere, profitémur.
+
+##### Psalmus 23
+
+DÓmini est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prœlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Te semper idem esse, vívere, et intellígere, profitémur.
+
+℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus et superexaltémus eum in sæcula.
+
+{RUBRIC: De Isaía Prophéta}
+
+##### Lectio i
+
+*Cap. 6, 1-12*
+
+IN anno, quo mórtuus est rex Ozías, vidi Dóminum sedéntem super sólium excélsum et elevátum: et ea, quæ sub ipso erant, replébant templum. Séraphim stabant super illud: sex alæ uni, et sex alæ álteri: duábus velábant fáciem ejus, et duábus velábant pedes ejus, et duábus volábant. Et clamábant alter ad álterum, et dicébant: Sanctus, sanctus, sanctus, Dóminus Deus exercítuum, plena est omnis terra glória ejus. Et commóta sunt superliminária cárdinum a voce clamántis, et domus repléta est fumo.

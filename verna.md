@@ -27648,3 +27648,77 @@ Accénde lumen sénsibus:
 Infúnde amórem córdibus:
 Infírma nostri córporis
 Virtúte firmans pérpeti.
+
+Hostem repéllas lóngius,
+Pacémque dones prótinus:
+Ductóre sic te prǽvio
+Vitémus omne nóxium.
+
+Per te sciámus da Patrem,
+Noscámus atque Fílium,
+Teque utriúsque Spíritum
+Credámus omni témpore.
+
+Deo Patri sit glória,
+Et Fílio qui a mórtuis
+Surréxit, ac Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+{RUBRIC: Sic terminantur omnes Hymni usque ad Nonam Sábbati sequéntis inclusíve.}
+
+℣. Repléti sunt omnes Spíritu Sancto, allelúja. ℟. Et cœpérunt loqui, allelúja.
+
+**Ad Magnif. Ant.** Non vos relínquam \* órphanos, allelúja: vado et vénio ad vos, allelúja: et gaudébit cor vestrum, allelúja.
+
+#### Oratio
+
+DEUS, qui hodiérna die corda fidélium Sancti Spíritus illustratióne docuísti: da nobis in eódem Spíritu recta sápere; et de ejus semper consolatióne gaudére. Per Dóminum... in unitáte ejúsdem Spíritus Sancti Deus.
+
+{RUBRIC: Completórium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Allelúja, Spíritus Dómini replévit orbem terrárum: \* Veníte, adorémus, allelúja. **Ps. 94** Veníte, exsultémus. 3
+
+#### Hymnus
+
+JAM Christus astra ascénderat,
+Revérsus unde vénerat,
+Patris fruéndum múnere,
+Sanctum datúrus Spíritum.
+
+Solémnis urgébat dies,
+Quo mýstico septémplici
+Orbis volútus sépties,
+Signat beáta témpora.
+
+Cum lucis hora tértia
+Repénte mundus íntonat,
+Apóstolis orántibus
+Deum veníre núntiat.
+
+De Patris ergo lúmine
+Decórus ignis almus est,
+Qui fida Christi péctora
+Calóre Verbi cómpleat.
+
+Impléta gaudent víscera,
+Afflíta Sancto Spíritu,
+Vocésque divérsas sonant,
+Fantur Dei magnália.
+
+Notíque cunctis géntibus,
+Græcis, Latínis, Bárbaris,
+Simúlque demirántibus,
+Linguis loquúntur ómnium.
+
+Judǽa tunc incrédula,
+Vesána torvo spíritu,
+Madére musto sóbrios
+Christi fidéles íncrepat.
+
+Sed éditis miráculis
+Occúrrit, et docet Petrus,
+Falsum profári pérfidos,
+Joéle teste cómprobans.

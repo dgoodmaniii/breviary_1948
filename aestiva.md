@@ -11953,3 +11953,57 @@ Convértit aquas eórum in sánguinem: \* et occídit pisces eórum.
 Edidit terra eórum ranas \* in penetrálibus regum ipsórum.
 
 Dixit, et venit cœnomýia: \* et cínifes in ómnibus fínibus eórum.
+
+Pósuit plúvias eórum grándinem: \* ignem comburéntem in terra ipsórum.
+
+Et percússit víneas eórum, et ficúlneas eórum: \* et contrívit lignum fínium eórum.
+
+Dixit, et venit locústa, et bruchus, \* cujus non erat númerus:
+
+Et comédit omne fœnum in terra eórum: \* et comédit omnem fructum terræ eórum.
+
+Et percússit omne primogénitum in terra eórum: \* primítias omnis labóris eórum.
+
+Et edúxit eos cum argénto et auro: \* et non erat in tríbubus eórum infírmus.
+
+Lætáta est Ægýptus in profectióne eórum: \* quia incúbuit timor eórum super eos.
+
+Expándit nubem in protectiónem eórum, \* et ignem ut lucéret eis per noctem.
+
+Petiérunt, et venit cotúrnix: \* et pane cæli saturávit eos.
+
+Dirúpit petram, et fluxérunt aquæ: \* abiérunt in sicco flúmina;
+
+Quóniam memor fuit verbi sancti sui, \* quod hábuit ad Abraham, púerum suum.
+
+Et edúxit pópulum suum in exsultatióne, \* et eléctos suos in lætítia.
+
+Et dedit illis regiónes géntium: \* et labóres populórum possedérunt:
+
+Ut custódiant justificatiónes ejus, \* et legem ejus requírant.
+
+**Ant.** Edúxit Deus pópulum suum in exsultatióne, et eléctos suos in lætítia.
+
+#### In Festis novem Lectionum:
+
+℣. Memor fuit Dóminus verbi sancti tui. ℟. Quod locútus est ad Abraham, púerum suum.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+**Ant.** Salvávit eos Dóminus \* propter nomen suum.
+
+### Psalmus 105, i
+
+COnfitémini Dómino quóniam bonus: \* quóniam in sæculum misericórdia ejus.
+
+Quis loquétur poténtias Dómini, \* audítas fáciet omnes laudes ejus?
+
+Beáti, qui custódiunt judícium, \* et fáciunt justítiam in omni témpore.
+
+Meménto nostri, Dómine, in beneplácito pópuli tui: \* vísita nos in salutári tuo:
+
+Ad vidéndum in bonitáte

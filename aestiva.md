@@ -17719,3 +17719,31 @@ ERat autem ibi vir quidam de servis Saul in die illa intus in tabernáculo Dómi
 ### Oratio
 
 DEus, qui diligéntibus te bona invisibília præparásti: infúnde córdibus nostris tui amóris afféctum; ut te in ómnibus et super ómnia diligéntes, promissiónes tuas, quæ omne desidérium súperant, consequámur. Per Dóminum.
+
+---
+
+## Dominica V post Pentecosten
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber secúndus Regum}
+
+##### Lectio i
+
+*Cap. 1, 1-15*
+
+FActum est autem, postquam mórtuus est Saul, ut David reverterétur a cæde Amalec et manéret in Síceleg duos dies. In die autem tértia appáruit homo véniens de castris Saul veste conscíssa et púlvere conspérsus caput et, ut venit ad David, cécidit super fáciem suam et adorávit. Dixítque ad eum David: Unde venis? Qui ait ad eum: De castris Israël fugi. Et dixit ad eum David: Quod est verbum quod factum est? Indica mihi. Qui ait: Fugit pópulus ex prǽlio, et multi corruéntes e pópulo mórtui sunt; sed et Saul et Jónathas fílius ejus interiérunt.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+DIxítque David ad adoléscentem qui nuntiábat ei: Unde scis quia mórtuus est Saul et Jónathas fílius ejus? Et ait adoléscens qui nuntiábat ei: Casu veni in montem Gélboe, et Saul incumbébat super hastam suam. Porro currus et équites appropinquábant ei, et convérsus post tergum suum vidénsque me vocávit; cui cum respondíssem: Adsum, dixit mihi: Quisnam es tu? Et ajo ad eum: Amalecítes ego sum. Et locútus est mihi: Sta super me et intérfice me, quóniam tenent me angústiæ, et adhuc tota ánima mea in me est. Stansque super eum occídi illum, sciébam enim quod vívere non póterat post ruínam; et tuli diadéma, quod erat in cápite ejus et armíllam de bráchio illíus et áttuli ad te dóminum meum huc.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+##### Lectio iii
+
+APprehéndens autem David vestiménta sua scidit, omnésque viri, qui erant cum eo, et planxérunt et flevérunt et jejunavérunt usque ad vésperam

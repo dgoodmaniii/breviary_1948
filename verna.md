@@ -30486,3 +30486,33 @@ DA nobis, quǽsumus, omnípotens Deus, beáto Cyríllo Pontífice intercedénte:
 {RUBRIC: Deinde Commemoratio Feriæ.}
 
 {RUBRIC: In I Nocturno Lectiones} **Sapiéntiam,** {RUBRIC: de Communi Doctorum. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+CYRILLUS Hierosolymitánus, a téneris annis divinárum Scripturárum stúdio summópere déditus, ádeo in eárum sciéntia profécit, ut orthodóxæ fídei strénuus assértor eváserit. Monásticis institútis imbútus, perpétuæ continéntiæ omníque severióri vivéndi ratióni se addíctum vóluit. Postquam a sancto Máximo Hierosólymæ epíscopo présbyter ordinátus fuit, munus verbi divíni fidélibus prædicándi et catechúmenos edocéndi summa cum laude implévit, atque illas vere mirándas conscrípsit catechéses, quibus totam ecclesiásticam doctrínam dilúcide et copióse compléxus, síngula religiónis dógmata contra fídei hostes sólide propugnávit. Ita vero in his enucleáte et distíncte disséruit, ut non solum jam exórtas hǽreses, sed futúras étiam quasi præságiens evérterit; quemádmodum prǽstitit asseréndo córporis et sánguinis Christi reálem præséntiam in mirábili Eucharístiæ sacraménto. Vita autem functo sancto Máximo, a província epíscopis in illíus locum sufféctus est.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+IN episcopátu injúrias multas et calamitátes, non secus ac beátus Athanásius, cui coævus erat, ab Arianórum factiónibus fídei causa perpéssus fuit. Hi enim ægre feréntes Cyríllum veheménter hærésibus obsístere, ipsum calúmniis aggrediúntur, et in conciliábulo depósitum e sua Sede detúrbant. Quorum furóri ut se subtráheret, Tarsum Cilíciæ aufúgit, et quoad vixit Constántius, exsílii rigórem pértulit. Post illíus mortem, Juliáno Apóstata ad impérium evécto, Hierosólymam redíre pótuit, ubi ardénti zelo gregi suo ab erróribus et a vítiis revocándo óperam navávit. Sed íterum, Valénte imperatóre, exsuláre coáctus est, donec, réddita Ecclésiæ pace per Theodósium Magnum, et Arianórum crudelitáte audaciáque représsa, ab eódem imperatóre tamquam fortíssimus Christi athléta honóribus suscéptus, suæ Sedi restitútus fuit. Quam strénue et sancte sublímis offícii sui múnia implévit, luculénter appáret ex florénti tunc témporis Hierosolymitánæ ecclésiæ statu, quem sanctus Basílius loca sancta veneratúrus, ibi aliquámdiu commorátus, descríbit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+VENERANDI hujus prǽsulis sanctitátem cæléstibus signis a Deo fuísse illustrátam, memóriæ tráditum accépimus. Inter hæc recensétur præclára crucis, solis rádiis fulgentióris, apparítio, quæ episcopátus ejus inítia decorávit. Hujúsmodi prodígii éthnici et christiáni testes oculáres fuérunt cum ipso Cyríllo, qui, grátiis primum in ecclésia Deo rédditis, illud per epístolam Constántio imperatóri narrávit. Nec minus admiratióne dignum, quod Judǽis, templum a Tito evérsum restauráre ex ímpio imperatóris Juliáni jussu conántibus, evénit. Veheménti enim terræmótu obórto, et ingéntibus flammárum globis e terra erumpéntibus, ómnia ópera ignis consúmpsit, ita ut Judǽi et Juliánus detérriti ab incépto destíterint; prout scílicet indubitánter futúrum Cyríllus prædíxerat. Qui demum paulo ante óbitum concílio œcuménico Constantinopolitáno intérfuit, in quo Macedónii hǽresis, et íterum Ariána condemnáta est. Ac Jerúsalem inde revérsus, fere septuagenárius, trigésimo quinto sui episcopátus anno, sancto fine quiévit. Ejus Offícium ac Missam Leo décimus tértius Póntifex máximus ab univérsa Ecclésia celebrári mandávit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 10, 23-28*
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum persequéntur vos in civitáte ista, fúgite in áliam. Et réliqua.

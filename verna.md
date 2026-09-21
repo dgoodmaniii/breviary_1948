@@ -42942,3 +42942,57 @@ SI manséritis in me, inquit, et verba mea in vobis mánserint, quodcúmque volu
 **2** Non est invéntus \* símilis illi, qui conserváret legem Excélsi. (T. P. Allelúja.)
 
 **3** Ideo jurejurándo \* fecit illum Dóminus créscere in plebem suam. (T. P. Allelúja.)
+
+**4** Sacerdótes Dei, \* benedícite Dóminum: servi Dómini, hymnum dícite Deo. (T. P. Allelúja.)
+
+**5** Serve bone \* et fidélis, intra in gáudium Dómini tui. (T. P. Allelúja.)
+
+---
+
+##### In II Vesperis
+
+###### Psalmus 131
+
+MEMENTO, Dómine, David, \* et omnis mansuetúdinis ejus:
+
+Sicut jurávit Dómino, \* votum vovit Deo Jacob:
+
+Si introíero in tabernáculum domus meæ, \* si ascéndero in lectum strati mei:
+
+Si dédero somnum óculis meis, \* et pálpebris meis dormitatiónem:
+
+Et réquiem tempóribus meis: donec invéniam locum Dómino, \* tabernáculum Deo Jacob.
+
+Ecce audívimus eam in Ephrata: \* invénimus eam in campis silvæ.
+
+Introíbimus in tabernáculum ejus: \* adorábimus in loco, ubi stetérunt pedes ejus.
+
+Surge, Dómine, in réquiem tuam: \* tu et arca sanctificatiónis tuæ.
+
+Sacerdótes tui induántur justítiam: \* et sancti tui exsúltent.
+
+Propter David, servum tuum: \* non avértas fáciem Christi tui.
+
+Jurávit Dóminus David veritátem, et non frustrábitur eam: \* De fructu ventris tui ponam super sedem tuam.
+
+Si custodíerint fílii tui testaméntum meum, \* et testimónia mea hæc, quæ docébo eos:
+
+Et fílii eórum usque in sǽculum, \* sedébunt super sedem tuam.
+
+Quóniam elégit Dóminus Sion: \* elégit eam in habitatiónem sibi.
+
+Hæc réquies mea in sǽculum sǽculi: \* hic habitábo quóniam elégi eam.
+
+Víduam ejus benedícens benedícam: \* páuperes ejus saturábo pánibus.
+
+Sacerdótes ejus índuam salutári: \* et sancti ejus exsultatióne exsultábunt.
+
+Illuc prodúcam cornu David: \* parávi lucérnam Christo meo.
+
+Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificátio mea.
+
+**Ant.** Serve bone et fidélis, intra in gáudium Dómini tui. (T. P. Allelúja.)
+
+**Capit.** *Eccli. 44, 16-17*
+
+ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.

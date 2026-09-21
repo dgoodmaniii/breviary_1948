@@ -42824,3 +42824,49 @@ BEATORUM Mártyrum páritérque Pontíficum N. et N. nos, quǽsumus, Dómine, fe
 **6 — Oratio**
 
 DEUS, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+**7 — Item alia Oratio**
+
+DEUS, qui nos ánnua sanctórum Mártyrum tuórum N. et N. solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+℟. br. Sancti et justi, in Dómino gaudéte, \* Allelúja, allelúja. Sancti. ℣. Vos elégit Deus in hereditátem sibi. Allelúja, allelúja. Glória Patri. Sancti. ℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+##### Ad Sextam
+
+**Capitulum** *Sap. 5, 5*
+
+ECCE quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est.
+
+℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+##### Ad Nonam
+
+**Capitulum** *Rom. 8, 28*
+
+SCIMUS quóniam diligéntibus Deum ómnia cooperántur in bonum, iis qui secúndum propósitum vocáti sunt sancti.
+
+℟. br. Lætítia sempitérna super cápita eórum, \* Allelúja, allelúja. Lætítia. ℣. Gáudium et exsultatiónem obtinébunt. Allelúja, allelúja. Glória Patri. Lætítia. ℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Antiphonæ de Laudibus.}
+
+{RUBRIC: Psalmi (cum Antiphonis) ut in I Vesp. de Comm. App. Tempore Paschali [4], sed loco ultimi dicitur Ps. 115 Crédidi. [69]}
+
+{RUBRIC: Capitulum et Hymnus ut in I Vesperis. [74]}
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Magnif. Ant.** Sancti et justi, \* in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+{RUBRIC: Completorium de Dominica.}
+
+---

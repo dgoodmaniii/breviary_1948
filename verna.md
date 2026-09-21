@@ -22125,3 +22125,53 @@ Quóniam circumdedérunt me mala, quorum non est númerus: \* comprehendérunt m
 Multiplicátæ sunt super capíllos cápitis mei: \* et cor meum derelíquit me.
 
 Compláceat tibi, Dómine, ut éruas me: \* Dómine, ad adjuvándum me réspice.
+
+Confundántur et revereántur simul, qui quærunt ánimam meam, \* ut áuferant eam.
+
+Convertántur retrórsum, et revereántur \* qui volunt mihi mala.
+
+Ferant conféstim confusiónem suam, \* qui dicunt mihi: Euge, euge.
+
+Exsúltent et læténtur super te omnes quæréntes te: \* et dicant semper: Magnificétur Dóminus: qui díligunt salutáre tuum.
+
+Ego autem mendícus sum et pauper: \* Dóminus sollícitus est mei.
+
+Adjútor meus, et protéctor meus tu es: \* Deus meus, ne tardáveris.
+
+{RUBRIC: †}
+
+**Ant.** Confundántur et revereántur, qui quærunt ánimam meam, ut áuferant eam.
+
+**Ant.** Aliéni \* insurrexérunt in me, et fortes quæsiérunt ánimam meam.
+
+#### Psalmus 53
+
+DEUS, in nómine tuo salvum me fac: \* et in virtúte tua júdica me.
+
+Deus, exáudi oratiónem meam: \* áuribus pércipe verba oris mei.
+
+Quóniam aliéni insurrexérunt advérsum me, et fortes quæsiérunt ánimam meam: \* et non proposuérunt Deum ante conspéctum suum.
+
+Ecce enim Deus ádjuvat me: \* et Dóminus suscéptor est ánimæ meæ.
+
+Avérte mala inimícis meis: \* et in veritáte tua dispérde illos.
+
+Voluntárie sacrificábo tibi: \* et confitébor nómini tuo, Dómine: quóniam bonum est:
+
+Quóniam ex omni tribulatióne eripuísti me: \* et super inimícos meos despéxit óculus meus.
+
+{RUBRIC: †}
+
+**Ant.** Aliéni insurrexérunt in me, et fortes quæsiérunt ánimam meam.
+
+℣. Insurrexérunt in me testes iníqui. ℟. Et mentíta est iníquitas sibi.
+
+{RUBRIC: Pater noster secreto.}
+
+#### Ex Tractátu sancti Augustíni Epíscopi super Psalmos
+
+{RUBRIC: In Psalm. 63 ad vers. 2}
+
+#### Lectio iv
+
+PROTEXISTI me, Deus, a convéntu malignántium, a multitúdine operántium iniquitátem. Jam ipsum caput nostrum intueámur. Multi Mártyres tália passi sunt, sed nihil sic elúcet, quómodo caput Mártyrum: ibi mélius intuémur, quod illi expérti sunt. Protéctus est a multitúdine malignántium, protegénte se Deo, protegénte carnem suam ipso Fílio, et hómine, quem gerébat: quia fílius hómi-

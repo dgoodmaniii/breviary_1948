@@ -25924,4 +25924,20 @@ Homilía sancti Ambrósii Epíscopi
 
 {RUBRIC: Liber 7 in Lucæ cap. 11}
 
-ALIUS præcépti locus est, ut ómnibus moméntis, non solum diébus, sed étiam nóctibus, orátio de-
+ALIUS præcépti locus est, ut ómnibus moméntis, non solum diébus, sed étiam nóctibus, orátio de-ferátur. Vides enim, quod iste qui média nocte perréxit, tres panes ab amíco suo póstulans, et in ipsa peténdi intentióne persístens, non defraudétur orátis. Qui sunt isti tres panes, nisi mystérii cæléstis aliméntum? Quod si díligas Dóminum Deum tuum, non solum tibi, sed étiam áliis póteris eméreri. Quis autem amícior nobis, quam qui pro nobis corpus suum trádidit?
+
+℟. Dicant nunc, qui redémpti sunt, allelúja, \* A Dómino, allelúja, allelúja. ℣. Quos redémit de manu inimíci, et de regiónibus congregávit eos. — A Dómino.
+
+#### Lectio ii
+
+AB hoc média nocte panes David pétiit, et accépit. Pétiit enim, quando dicébat: Média nocte surgébam ad confiténdum tibi. Ideo méruit hos panes, quos appósuit nobis edéndos. Pétiit, cum dicit: Lavábo per síngulas noctes lectum meum. Neque enim tímuit, ne excitáret dormiéntem, quem scit semper vigilántem. Et ídeo scriptórum mémores, nóctibus ac diébus oratióni instántes, peccátis nostris véniam postulémus.
+
+℟. Cantáte Dómino, allelúja: \* Psalmum dícite ei, allelúja. ℣. Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus. — Psalmum.
+
+#### Lectio iii
+
+NAM si ille tam sanctus, et qui regni erat necessitátibus occupátus, sépties in die laudem Dómino dicébat, matutínis et vespertínis sacrifíciis semper inténtus; quid nos fácere opórtet, qui eo ámplius rogáre debémus, quo frequéntius carnis ac mentis fragilitáte delínquimus, ut de via lassis, et istíus ævi cursu ac vitæ hujus anfráctu gráviter fatigátis, panis refectiónis deésse non possit, qui hóminis corda confírmet? Nec solum média nocte Dóminus, sed ómnibus prope docet vigilándum esse moméntis. Venit enim et vespertína, et secúnda, et tértia vigília: et pulsáre consuévit. Beáti ítaque servi illi, quos, cum vénerit Dóminus, invénerit vigilántes.
+
+℟. Narrábo nomen tuum frátribus meis, allelúja: \* In médio Ecclésiæ laudábo te, allelúja, allelúja. ℣. Confitébor tibi in pópulis, Dómine, et psalmum dicam tibi in géntibus. — In. Glória Patri. In.
+
+{RUBRIC: Hac nocte non dicitur Hymnus} Te Deum laudámus.

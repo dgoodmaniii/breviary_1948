@@ -19397,3 +19397,37 @@ Ut fructuósa sint tuis
 Jejuniórum múnera. Amen.
 
 ℣. Angelis suis Deus, ut supra.
+
+**Ad Magnif. Ant.** Nemo te condemnávit, múlier? \* Nemo, Dómine. Nec ego te condemnábo: jam ámplius noli peccáre.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Súbiit ergo \* in montem Jesus, et ibi sedébat cum discípulis suis.
+
+#### Oratio
+
+CONCEDE, quæsumus, omnípotens Deus: ut, qui ex mérito nostræ actiónis afflígimur, tuæ grátiæ consolatióne respirémus. Per Dóminum.
+
+---
+
+## Dominica IV in Quadragesima
+
+{RUBRIC: I classis} Semiduplex
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+{RUBRIC: De libro Exodi}
+
+#### Lectio i
+
+*Cap. 3, 1-15*
+
+MOYSES autem pascébat oves Jethro sóceri sui sacerdótis Mádian: cumque minásset gregem ad interióra desérti, venit ad montem Dei Horeb. Apparuítque ei Dóminus in flamma ignis de médio rubi: et vidébat quod rubus ardéret, et non comburerétur. Dixit ergo Móyses: Vadam, et vidébo visiónem hanc magnam, quare non comburátur rubus. Cernens autem Dóminus quod pérgeret ad vidéndum, vocávit eum de médio rubi, et ait: Móyses, Móyses! Qui respóndit: Adsum. At ille: Ne apprópies, inquit, huc: solve calceaméntum de pédibus tuis: locus enim, in quo stas, terra sancta est. Et ait: Ego sum Deus patris tui, Deus Abraham, Deus Isaac, et Deus Jacob. Abscóndit Móyses fáciem suam: non enim audébat aspícere contra Deum.
+
+℟. Locútus est Dóminus ad Móysen, dicens: Descénde in Ægýptum, et dic Pharaóni, \* Ut dimíttat pópulum meum: indurátum est cor Pharaónis: non vult dimíttere pópulum meum, nisi in manu forti. ℣. Clamor filiórum Israël venit ad me, vidíque afflictiónem eórum: sed veni, mittam te ad Pharaónem. — Ut.
+
+#### Lectio ii
+
+CUI ait Dóminus: Vidi afflictiónem pópuli mei in Ægýpto, et clamórem ejus audívi propter duritiam eórum qui præsunt opéribus: et sciens dolórem ejus, descéndi ut líberem eum de mánibus Ægy-

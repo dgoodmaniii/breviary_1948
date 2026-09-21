@@ -3381,3 +3381,57 @@ Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
 AFFERTE Dómino, fílii Dei: \* afférte Dómino fílios aríetum.
 
 Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Vox Dómini super aquas, Deus majestátis intónuit: \* Dóminus super aquas multas.
+
+Vox Dómini in virtúte: \* vox Dómini in magnificéntia.
+
+Vox Dómini confringéntis cedros: \* et confrínget Dóminus cedros Líbani:
+
+Et commínuet eas tamquam vítulum Líbani: \* et diléctus quemádmodum fílius unicórnium.
+
+Vox Dómini intercidéntis flammam ignis: \* vox Dómini concutiéntis desértum: et commovébit Dóminus desértum Cades.
+
+Vox Dómini præparántis cervos, et revelábit condénsa: \* et in templo ejus omnes dicent glóriam.
+
+Dóminus dilúvium inhabitáre facit: \* et sedébit Dóminus Rex in ætérnum.
+
+Dóminus virtútem pópulo suo dabit: \* Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Deus majestátis intónuit: afférte glóriam nómini ejus.
+
+**Ant.** Laudámus nomen tuum \* ínclitum, Deus noster.
+
+###### Canticum David
+
+*1 Par. 29, 10-13*
+
+BENEDICTUS es, Dómine, Deus Israël patris nostri, \* ab ætérno in ætérnum.
+
+Tua est, Dómine, magnificéntia, et poténtia, \* et glória, atque victória:
+
+Et tibi laus: \* cuncta enim quæ in cælo sunt, et in terra, tua sunt:
+
+Tuum, Dómine, regnum, \* et tu es super omnes príncipes.
+
+Tuæ divítiæ, et tua est glória: \* tu domináris ómnium.
+
+In manu tua virtus et poténtia: \* in manu tua magnitúdo, et impérium ómnium.
+
+Nunc ígitur, Deus noster, confitémur tibi, \* et laudámus nomen tuum ínclitum.
+
+**Ant.** Laudámus nomen tuum ínclitum, Deus noster.
+
+**Ant.** Laudáte \* † Dóminum, omnes gentes. ‡
+
+###### Psalmus 116
+
+LAUDATE † Dóminum, omnes gentes: \* ‡ laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+**Ant.** Laudáte Dóminum, omnes gentes.
+
+#### In Officio feriali
+
+{RUBRIC: Capítulum, Hymnus et Versus dicúntur quotídie de Féria curránti, ut in Psaltério hic et álibi appónuntur; et inde súmitur étiam Ant. ad Benedíctus.}

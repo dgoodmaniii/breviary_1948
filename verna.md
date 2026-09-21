@@ -29164,4 +29164,56 @@ Amen.
 
 ℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
 
-**Ad Magnif. Ant.** Hódie gloriósa cæli Regína \* in terris appáruit: hódie pópulo suo verba salútis et pígnora pacis áttulit: hódie Angelórum et fidé-
+**Ad Magnif. Ant.** Hódie gloriósa cæli Regína \* in terris appáruit: hódie pópulo suo verba salútis et pígnora pacis áttulit: hódie Angelórum et fidélium chori immaculátam Conceptiónem celebrántes gáudio exsúltant.
+
+{RUBRIC: Et fit Commemoratio sequentis et Feriæ.}
+
+---
+
+### Die 12 Februarii
+
+#### Ss. septem Fundatorum Ordinis Servorum B. M. V.
+
+{RUBRIC: Confessorum}
+
+{RUBRIC: Duplex [111]}
+
+##### In I Vesperis
+
+{RUBRIC: Quando I Vesperæ dicendæ sint integræ vel saltem a Capitulo,} **Capitulum** Caríssimi, {RUBRIC: de Laudibus 702; Hymnus} Matris sub almæ {RUBRIC: e II Vesperis 704; Versus et reliqua ut infra.}
+
+**Ant.** Non recédat \* laus tua, Virgo María, de ore hóminum, qui mémores fúerint virtútis Dómini in ætérnum, pro quibus non pepercísti ánimæ tuæ.
+
+℣. Hi viri misericórdiæ sunt, quorum pietátes non defuérunt. ℟. Semen eórum et glória eórum non derelinquétur.
+
+###### Oratio
+
+DOMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitrícis tuæ, per septem beátos Patres nova Servórum ejus família Ecclésiam tuam fecundásti: concéde propítius; ita nos eórum consociári flétibus, ut perfruámur et gáudiis. (Qui vivis et regnas.)
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### Ad Matutinum
+
+**Invit.** Regem Confessórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+###### Hymnus
+
+BELLA dum late fúrerent, et urbes
+Cæde fratérna gémerent cruéntæ,
+Adfuit Virgo, nova semper edens
+    Múnera Matris.
+
+En vocat septem fámulos, fidéles
+Ut sibi in luctu récolant dolóres,
+Quos tulit Jesus, tulit ipsa consors
+    Sub cruce Nati.
+
+Illico parent Dóminæ vocánti:
+Spléndidis tectis opibúsque spretis,
+Urbe secédunt procul in Senári
+    Abdita montis.
+
+Córpora hic pœnis crúciant acérbis,
+Sóntium labes hóminum piántes;
+Hic prece avértunt lacrimísque fusis
+    Núminis iram.

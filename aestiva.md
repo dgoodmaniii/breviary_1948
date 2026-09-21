@@ -16856,4 +16856,20 @@ ASsúmens ítaque Sámuel Saulem et púerum ejus, introdúxit eos in triclínium
 
 ##### Lectio iii
 
-CUmque mane surrexíssent, et jam elucésceret, vocávit Sámuel Saulem in solário, dicens: Surge, et dimíttam te. Et surréxit Saul: egressíque sunt ambo, ipse vidélicet et Sámuel. Cumque descénderent in extréma parte civitátis, Sámuel dixit ad Saul: Dic púero ut antecédat nos et tránseat: tu autem subsíste paulísper, ut índicem tibi verbum Dómini. Tulit autem Sámuel lentículam ólei et effúdit super caput ejus et deosculátus est eum et ait: Ecce unxit te Dóminus super hereditátem
+CUmque mane surrexíssent, et jam elucésceret, vocávit Sámuel Saulem in solário, dicens: Surge, et dimíttam te. Et surréxit Saul: egressíque sunt ambo, ipse vidélicet et Sámuel. Cumque descénderent in extréma parte civitátis, Sámuel dixit ad Saul: Dic púero ut antecédat nos et tránseat: tu autem subsíste paulísper, ut índicem tibi verbum Dómini. Tulit autem Sámuel lentículam ólei et effúdit super caput ejus et deosculátus est eum et ait: Ecce unxit te Dóminus super hereditátem suam in príncipem, et liberábis pópulum suum de mánibus inimicórum ejus, qui in circúitu ejus sunt.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória Patri. Propter.
+
+#### In II Nocturno
+
+{RUBRIC: Ex lítteris Encýclicis Pii Papæ undécimi}
+
+##### Lectio iv
+
+AT certe inter cétera illa, quæ próprie ad Sacratíssimi Cordis cultum pértinent, pia éminet ac memoránda est consecrátio, qua, nos nóstraque ómnia ætérnæ Núminis caritáti accépta reféntes, divíno Jesu Cordi devovémus. Verum, áliud accédat opórtet, honéstæ satisfactiónis, ínquimus, seu reparatiónis, quam dicunt, offícium Sacratíssimo Cordi Jesu præstándum. Nam, si illud est in consecratióne primum ac præcípuum ut amóri Creatóris creatúræ amor rependátur, álterum sponte hinc séquitur, ut eídem incréato Amóri, si quando aut oblivióne negléctus, aut offénsa violátus sit, illátæ quoquo modo injúriæ compensári débeant: quod quidem débitum reparatiónem vulgáto nómine vocámus.
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dóminus, pátiens et multum miséricors. — Omnibus.
+
+##### Lectio v
+
+QUodsi ad utrámque rem iísdem prorsus ratiónibus impéllimur, reparándi tamen expiandíque offício ob validiórem quemdam justítiæ et amóris título tenémur: justítiæ quidem, ut irrogáta Deo nostris flagítiis expiétur offénsa et violátus ordo pæniténtia redintegrétur; amóris vero, ut Christo patiénti ac «saturáto oppróbriis» compatiámur eíque nonníhil solácii pro tenuitáte nostra afferámus. Peccatóres enim cum simus omnes, multísque oneráti culpis, non eo solo cultu Deus noster nobis est honorándus, quo vel ejus summam Majestátem débitis obséquiis adorémus, vel ejus suprémum domínium precándo agnoscámus, vel ejus infinítam largitátem gratiárum actiónibus laudémus; sed præ-

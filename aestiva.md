@@ -18946,4 +18946,22 @@ ANno undécimo Joram, fílii Achab, regnávit Ochozías super Judam, venítque J
 
 ##### Lectio ii
 
-CUmque issent ut sepelírent eam, non invenérunt nisi calváriam et pedes et summas manus. Reversíque nuntiavérunt ei. Et ait Jehu: Sermo Dómini est, quem locútus est per servum suum Elíam Thesbíten dicens: In agro Jézrahel cómedent canes carnes Jézabel, et erunt carnes Jézabel sicut stercus super fáciem terræ in agro Jézrahel, ita ut prætereúntes dicant: Hǽccine est illa Jézabel? Erant autem Achab septuagínta fílii in Samária. Scripsit ergo Jehu lítteras et misit in Samaríam ad optimátes civitátis et ad majóres natu et ad nutrícios Achab dicens: Statim ut accepéritis lítteras has, qui habétis fílios dómini vestri et currus et equos et civitá-
+CUmque issent ut sepelírent eam, non invenérunt nisi calváriam et pedes et summas manus. Reversíque nuntiavérunt ei. Et ait Jehu: Sermo Dómini est, quem locútus est per servum suum Elíam Thesbíten dicens: In agro Jézrahel cómedent canes carnes Jézabel, et erunt carnes Jézabel sicut stercus super fáciem terræ in agro Jézrahel, ita ut prætereúntes dicant: Hǽccine est illa Jézabel? Erant autem Achab septuagínta fílii in Samária. Scripsit ergo Jehu lítteras et misit in Samaríam ad optimátes civitátis et ad majóres natu et ad nutrícios Achab dicens: Statim ut accepéritis lítteras has, qui habétis fílios dómini vestri et currus et equos et civitátes firmas et arma, elígite meliórem et eum qui vobis placúerit de fíliis dómini vestri et eum pónite super sólium patris sui et pugnáte pro domo dómini vestri.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+##### Lectio iii
+
+TImuérunt illi veheménter et dixérunt: Ecce duo reges non potuérunt stare coram eo, et quómodo nos valébimus resístere? Misérunt ergo præpósiti domus et præfécti civitátis et majóres natu et nutrícii ad Jehu dicéntes: Servi tui sumus: quæcúmque jússeris faciémus, nec constituémus nobis regem: quæcúmque tibi plácent fac. Rescrípsit autem eis lítteras secúndo dicens: Si mei estis et obedítis mihi, tóllite cápita filiórum dómini vestri et veníte ad me hac eádem hora cras in Jézrahel. Porro fílii regis, septuagínta viri, apud optimátes civitátis nutriebántur. Cumque veníssent lítteræ ad eos, tulérunt fílios regis et occidérunt septuagínta viros et posuérunt cápita eórum in cóphinis et misérunt ad eum in Jézrahel.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 25 in Epist. ad Romános}
+
+##### Lectio iv
+
+NOn putémus nos excusatiónem habitúros, si quando delictórum sócios invenérimus: nam istud, supplícium magis augébit. Quandóquidem et serpens magis punítus est quam múlier, quemádmodum et múlier plus quam vir. Et Jézabel majóres pœnas dedit, quam Achab víneæ raptor; ipsa quippe univérsum istud negótium texúerat, regíque lapsus occasiónem déderat. Igitur et tu quoque, si réliquis perditiónis causa fúeris, graviora patiéris quam qui per te subvérsi sunt.

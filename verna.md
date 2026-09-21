@@ -23001,3 +23001,27 @@ Ite, missa est, allelúja, allelúja. ℟. Deo grátias, allelúja, allelúja.
 NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
 
 Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum.
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+**Ant.** Véspere autem sábbati, quæ lucéscit in prima sábbati, venit María Magdaléne, et áltera María, vidére sepúlcrum, allelúja.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle : Angeli tui sancti hábitent in ea, qui nos in pace custódiant : et benedíctio tua sit super nos semper. Per Dóminum. ℟. Amen.
+
+℣. Dóminus vobíscum. ℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: In fine Antiphona} Regína cæli, {RUBRIC: ut in Ordinario. 39}
+
+{RUBRIC: Deinde dicuntur secreto} Pater noster, Ave María {RUBRIC: et} Credo.
+
+{RUBRIC: Et non flectuntur genua toto Tempore Paschali.}
+
+---

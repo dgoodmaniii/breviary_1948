@@ -45036,4 +45036,40 @@ DOMINE, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defl
 
 **Capitulum** *Sap. 4, 1*
 
-O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam
+O QUAM pulchra est casta generátio cum claritáte! immortális est enim memória illíus: quóniam apud Deum nota est, et apud hómines.
+
+℟. br. Elégit eam Deus \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Elégit eam Deus, et prælégit eam, \* Allelúja, allelúja. Elégit. ℣. In tabernáculo suo habitáre facit eam. Allelúja, allelúja. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis, allelúja. ℟. Proptérea benedíxit te Deus in ætérnum, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [129], præter}
+
+℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum. (T. P. Allelúja.)
+
+{RUBRIC: Si fuerint plures Virgines Martyres, Versus, Antiphona ad Magnificat et Oratio ut supra. [130] vel [143]}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## II Aliæ Lectiones pro Virginibus
+
+{RUBRIC: Pro Virgine Martyre, Lectiones I Nocturni dicuntur etiam ut infra:}
+
+De libro Ecclesiástici
+
+**Lectio i** *Cap. 51, 1-17*
+
+CONFITEBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuáta: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
+
+℟. Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum; pro cujus amóre sánguinem tuum fudísti,

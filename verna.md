@@ -18982,4 +18982,63 @@ TURBIS quippe, quæ minus erudítæ videbántur, Dómini semper facta mirántibu
 
 IPSE autem ut vidit cogitatiónes eórum, dixit eis: Omne regnum in seípsum divísum desolábitur, et domus supra domum cadet. Non ad dicta, sed ad cogitáta respóndit: ut vel sic compelleréntur crédere poténtiæ ejus, qui cordis vidébat occúlta. Si autem omne regnum in seípsum divísum desolátur: ergo Patris et Fílii et Spíritus Sancti regnum non est divísum; quod sine ulla contradictióne, non áliquo impúlsu desolándum, sed ætérna est stabilitáte mansúrum. Si autem sátanas in seípsum divísus est: quómodo stabit regnum ipsíus, quia dícitis, in Beélzebub ejícere me dæmónia? Hoc dicens, ex ipsórum confessióne volébat intélligi, quod in eum non credéndo, in regno diáboli esse elegíssent, quod útique advérsum se divísum stare non posset.
 
-℟. Lamentabátur Jacob de duóbus fíliis suis: Heu me, dolens sum de Joseph pérdito, et tristis nimis de Bénjamin ducto pro alimó-
+℟. Lamentabátur Jacob de duóbus fíliis suis: Heu me, dolens sum de Joseph pérdito, et tristis nimis de Bénjamin ducto pro alimóniis: \* Precor cæléstem Regem, ut me doléntem nímium fáciat eos cérnere. ℣. Prostérnens se Jacob veheménter cum lácrimis pronus in terram, et adórans ait. — Precor. Glória Patri. Precor.
+
+### Ad Laudes
+
+**Ant. 1** Fac benígne \* in bona voluntáte tua, ut ædificéntur, Dómine, muri Jerúsalem.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 53}
+
+**2** Dóminus \* mihi adjútor est, non timébo quid fáciat mihi homo.
+
+**3** Adhǽsit ánima mea \* post te, Deus meus.
+
+**4** Vim virtútis suæ \* oblítus est ignis: ut púeri tui liberaréntur illǽsi.
+
+**5** Sol et luna, \* laudáte Deum: quia exaltátum est nomen ejus solíus.
+
+**Capitulum** *Ephes. 5, 1-2*
+
+FRATRES: Estóte imitatóres Dei, sicut fílii caríssimi: et ambuláte in dilectióne, sicut et Christus diléxit nos, et trádidit semetípsum pro nobis oblatiónem et hóstiam Deo in odórem suavitátis.
+
+#### Hymnus
+
+O Sol salútis, íntimis,
+Jesu, refúlge méntibus,
+Dum, nocte pulsa, grátior
+Orbi dies renáscitur.
+
+Dans tempus acceptábile,
+Da lacrimárum rívulis
+Laváre cordis víctimam,
+Quam læta adúrat cáritas.
+
+Quo fonte manávit nefas,
+Fluent perénnes lácrimæ,
+Si virga pœniténtiæ
+Cordis rigórem cónterat.
+
+Dies venit, dies tua,
+In qua reflórent ómnia:
+Lætémur et nos, in viam
+Tua redúcti déxtera.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+Te prona mundi máchina,
+Clemens, adóret, Trínitas,
+Et nos novi per grátiam
+Novum canámus cánticum. Amen.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Cum fortis armátus \* custódit átrium suum, in pace sunt ómnia quæ póssidet.
+
+#### Oratio
+
+QUÆSUMUS, omnípotens Deus, vota humílium réspice: atque ad defensiónem nostram, déxteram tuæ majestátis exténde. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Et cum ejecísset Jesus \* dæmónium, locútus est mutus, et admirátæ sunt turbæ.

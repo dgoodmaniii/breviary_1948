@@ -25667,3 +25667,49 @@ PATIENTES ígitur estóte, fratres, usque ad advéntum Dómini. Ecce agrícola e
 ℟. Bonum est confitéri Dómino, allelúja: \* Et psállere, allelúja. ℣. In decachórdo psaltério, cum cántico et cíthara. — Et.
 
 {RUBRIC: In Octavis simplicibus et in Officio sanctæ Mariæ in Sábbato:} Glória Patri. Et.
+
+#### Lectio iii
+
+ANTE ómnia autem, fratres mei, nolíte juráre, neque per cælum, neque per terram, neque áliud quodcúmque juraméntum. Sit autem sermo vester: Est, est; Non, non: ut non sub judício decidátis. Tristátur áliquis vestrum? oret. Æquo ánimo est? psallat. Infirmátur quis in vobis? indúcat presbýteros Ecclésiæ, et orent super eum, ungéntes eum óleo in nómine Dómini: et orátio fídei salvábit infírmum, et alleviábit eum Dóminus: et, si in peccátis sit, remitténtur ei. Confitémini ergo altérutrum peccáta vestra, et oráte pro ínvicem ut salvémini: multum enim valet deprecátio justi assídua.
+
+℟. Cantáte Dómino, allelúja: \* Psalmum dícite ei, allelúja. ℣. Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus. — Psalmum. Glória Patri. Psalmum.
+
+## Ad Vesperas
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Sábbato, ut in Psaltério. 332}
+
+**Capitulum** *Jac. 1, 22-24*
+
+CARISSIMI: Estóte factóres verbi, et non auditóres tantum: falléntes vosmetípsos. Quia, si quis audítor est verbi, et non factor: hic comparábitur viro consideránti vultum nativitátis suæ in spéculo; considerávit enim se, et ábiit, et statim oblítus est qualis fúerit.
+
+#### Hymnus
+
+AD régias Agni dapes,
+Stolis amícti cándidis,
+Post tránsitum Maris Rubri,
+Christo canámus Príncipi:
+
+Divína cujus cáritas
+Sacrum propínat sánguinem,
+Almíque membra córporis
+Amor sacérdos immolat.
+
+Sparsum cruórem póstibus
+Vastátor horret Angelus:
+Fugítque divísum mare;
+Mergúntur hostes flúctibus.
+
+Jam Pascha nostrum Christus est,
+Paschális idem víctima,
+Et pura puris méntibus
+Sinceritátis ázyma.
+
+O vera cæli víctima,
+Subjécta cui sunt tártara,
+Solúta mortis víncula,
+Recépta vitæ præmia.
+
+Victor, subáctis ínferis,
+Trophæa Christus éxplicat;
+Cælóque apérto, súbditum
+Regem tenebrárum trahit.

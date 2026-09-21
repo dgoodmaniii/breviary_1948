@@ -15981,3 +15981,70 @@ Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
 **Capitulum** *Ephes. 3, 8-9*
 
 FRatres: mihi ómnium sanctórum mínimo data est grátia hæc, in géntibus evangelizáre investigábiles divítias Christi; et illumináre omnes, quæ sit dispensátio sacraménti abscónditi a sæculis in Deo.
+
+##### Hymnus
+
+EN ut supérba críminum
+Et sæva nostrórum cohors
+Cor sauciávit ínnocens
+Meréntis haud tale Dei!
+
+Vibrántis hastam mílitis
+Peccáta nostra dírigunt,
+Ferrúmque diræ cúspidis
+Mortále crimen ácuit.
+
+Ex Corde scisso Ecclésia,
+Christo jugáta, náscitur:
+Hoc óstium arcæ in látere est
+Genti ad salútem pósitum.
+
+Ex hoc perénnis grátia,
+Ceu septifórmis flúvius,
+Stolas ut illic sórdidas
+Lavémus Agni in sánguine.
+
+Turpe est redíre ad crímina,
+Quæ Cor beátum lácerent:
+Sed æmulémur córdibus
+Flammas amóris índices.
+
+\* Jesu, tibi sit glória,
+Qui corde fundis grátiam,
+Cum Patre et almo Spíritu
+In sempitérna sæcula. Amen.
+
+{RUBRIC: Sic terminántur omnes Hymni per totam Octávam.}
+
+℣. Tóllite jugum meum super vos et díscite a me. ℟. Quia mitis sum et húmilis Corde.
+
+**Ad Magnif. Ant.** Ignem \* veni míttere in terram, et quid volo nisi ut accendátur?
+
+### Oratio
+
+DEus qui nobis, in Corde Fílii tui, nostris vulneráto peccátis, infinítos dilectiónis thesáuros misericórditer largíri dignáris; concéde, quæsumus, ut illi devótum pietátis nostræ præstántes obséquium, dignæ quoque satisfactiónis exhibeámus offícium. Per eúmdem Dóminum.
+
+{RUBRIC: Et nulla fit Commemoratio, nisi tantum de præcedénti Festo Nativitátis S. Joánnis Baptístæ vel Ss. Petri et Pauli App., si pridie occúrrerit.}
+
+{RUBRIC: Completórium de Domínica.}
+
+### Ad Matutinum
+
+**Invit.** Cor Jesu amóre nostri vulnerátum \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. [3]
+
+##### Hymnus
+
+AUctor beáte sæculi,
+Christe, Redémptor ómnium,
+Lumen Patris de lúmine,
+Deúsque verus de Deo:
+
+Amor coégit te tuus
+Mortále corpus súmere,
+Ut, novus Adam, rédderes
+Quod vetus ille abstúlerat.
+
+Ille amor almus ártifex
+Terræ marísque et síderum,
+Erráta patrum míserans
+Et nostra rumpens víncula.

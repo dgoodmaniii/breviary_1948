@@ -7904,3 +7904,61 @@ Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
 Quia apud te propitiátio est: \* et propter legem tuam sustínui te, Dómine.
 
 Sustínuit ánima mea in verbo ejus: \* sperávit ánima mea in Dómino.
+
+A custódia matutína usque ad noctem: \* speret Israël in Dómino.
+
+Quia apud Dóminum misericórdia: \* et copiósa apud eum redémptio.
+
+Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
+
+**Ant.** De profúndis clamávi ad te, Dómine.
+
+**Ant.** Dómine, \* † non est exaltátum cor meum. ‡
+
+### Psalmus 130
+
+DOmine, † non est exaltátum cor meum: \* ‡ neque eláti sunt óculi mei.
+
+Neque ambulávi in magnis: \* neque in mirabílibus super me.
+
+Si non humíliter sentiébam: \* sed exaltávi ánimam meam:
+
+Sicut ablactátus est super matre sua, \* ita retribútio in ánima mea.
+
+Speret Israël in Dómino, \* ex hoc nunc et usque in sæculum.
+
+**Ant.** Dómine, non est exaltátum cor meum.
+
+**Ant.** Elégit Dóminus \* Sion in habitatiónem sibi.
+
+### Psalmus 131
+
+MEmento, Dómine, David, \* et omnis mansuetúdinis ejus:
+
+Sicut jurávit Dómino, \* votum vovit Deo Jacob:
+
+Si introíero in tabernáculum domus meæ, \* si ascéndero in lectum strati mei:
+
+Si dédero somnum óculis meis, \* et pálpebris meis dormitatiónem:
+
+Et réquiem tempóribus meis: donec invéniam locum Dómino, \* tabernáculum Deo Jacob.
+
+Ecce, audívimus eam in Ephráta: \* invénimus eam in campis silvæ.
+
+Introíbimus in tabernáculum ejus: \* adorábimus in loco, ubi stetérunt pedes ejus.
+
+Surge, Dómine, in réquiem tuam, \* tu et arca sanctificatiónis tuæ.
+
+Sacerdótes tui induántur justítiam: \* et sancti tui exsúltent.
+
+Propter David, servum tuum, \* non avértas fáciem Christi tui.
+
+Jurávit Dóminus David veritátem, et non frustrábitur eam: \* De fructu ventris tui ponam super sedem tuam.
+
+Si custodíerint fílii tui testaméntum meum, \* et testimónia mea hæc, quæ docébo eos:
+
+Et fílii eórum usque in sæculum, \* sedébunt super sedem tuam.
+
+Quóniam elégit Dóminus Sion: \* elégit eam in habitatiónem sibi.
+
+Hæc réquies mea in sæculum sæculi: \* hic habitábo quóniam elégi eam.

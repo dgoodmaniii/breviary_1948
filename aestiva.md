@@ -15012,4 +15012,46 @@ Sit sempitérna glória:
 Qui vitam sine término
 Nobis donet in pátria. Amen.
 
-℣. Pósuit fines tuos pacem, allelúja. ℟. Et ádipe
+℣. Pósuit fines tuos pacem, allelúja. ℟. Et ádipe fruménti sátiat te, allelúja.
+
+**Ad Bened. Ant.** Ego sum \* panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum, allelúja.
+
+### Oratio
+
+DEus, qui nobis sub Sacraménto mirábili passiónis tuæ memóriam reliquísti: tríbue, quæsumus, ita nos córporis et sánguinis tui sacra mystéria venerári; ut redemptiónis tuæ fructum in nobis júgiter sentiámus: Qui vivis.
+
+{RUBRIC: Ad Horas Psalmi de Domínica, ad Primam tamen ut in Festis; et ad eam in ℟. br. dícitur ℣. Qui natus es de María Vírgine, per totam Octávam, étiam in Festis duplícibus I classis occurréntibus, quæ Versum próprium non hábeant.}
+
+### Ad Tertiam
+
+**Capit.** Fratres, ut ad Laudes. 308
+
+℟. br. Panem cæli dedit ei, \* Allelúja, allelúja. Panem. ℣. Panem Angelórum manducávit homo. Allelúja, allelúja. Glória Patri. Panem cæli.
+
+℣. Cibávit illos ex ádipe fruménti, allelúja. ℟. Et de petra, melle saturávit eos, allelúja.
+
+### Ad Sextam
+
+**Capitulum** *1 Cor. 11, 26*
+
+QUotiescúmque enim manducábitis panem hunc, et cálicem bibétis, mortem Dómini annuntiábitis, donec véniat.
+
+℟. br. Cibávit illos ex ádipe fruménti, \* Allelúja, allelúja. Cibávit. ℣. Et de petra, melle saturávit eos. Allelúja, allelúja. Glória Patri. Cibávit.
+
+℣. Edúcas panem de terra, allelúja. ℟. Et vinum lætíficet cor hóminis, allelúja.
+
+### Ad Nonam
+
+**Capitulum** *1 Cor. 11, 27*
+
+QUicúmque manducáverit panem hunc, vel bíberit cálicem Dómini indígne, reus erit córporis et sánguinis Dómini.
+
+℟. br. Edúcas panem de terra, \* Allelúja, allelúja. Edúcas. ℣. Et vinum lætíficet cor hóminis. Allelúja, allelúja. Glória Patri. Edúcas.
+
+℣. Pósuit fines tuos pacem, allelúja. ℟. Et ádipe fruménti sátiat te, allelúja.
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis. 294, præter sequéntia:}
+
+℣. Panem de cælo præstitísti eis, allelúja. ℟. Omne delectaméntum in se habéntem, allelúja.

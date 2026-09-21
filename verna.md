@@ -20818,4 +20818,42 @@ RELIQUI domum meam, dimísi hereditátem meam: dedi diléctam ánimam meam in ma
 
 **2** Discérne causam meam, \* Dómine: ab hómine iníquo et dolóso éripe me.
 
-**3** Dum tribulárer, \* clamávi ad Dóminum de
+**3** Dum tribulárer, \* clamávi ad Dóminum de ventre ínferi, et exaudívit me.
+
+**4** Dómine, vim pátior, \* respónde pro me: quia néscio quid dicam inimícis meis.
+
+**5** Dixérunt ímpii: \* Opprimámus virum justum, quóniam contrárius est opéribus nostris.
+
+**Ad Bened. Ant.** Ante diem festum \* Paschæ, sciens Jesus quia venit hora ejus, cum dilexísset suos, in finem diléxit eos.
+
+#### Oratio
+
+OMNIPOTENS sempitérne Deus: da nobis ita Domínicæ passiónis sacraménta perágere; ut indulgéntiam percípere mereámur. Per eúmdem Dóminum.
+
+### Ad Vesperas
+
+**Ad Magnif. Ant.** Potestátem hábeo \* ponéndi ánimam meam, et íterum suméndi eam.
+
+#### Oratio
+
+TUA nos misericórdia, Deus, et ab omni subreptióne vetustátis expúrget: et capáces sanctæ novitátis éfficiat. Per Dóminum.
+
+---
+
+## Feria Quarta Majóris Hebdomadæ
+
+### Ad Matutinum
+
+**Absolutio** A vínculis.
+
+**Bened.** Ille nos benedícat.
+
+{RUBRIC: De Jeremía Prophéta}
+
+#### Lectio i
+
+*Cap. 17, 13-18*
+
+EXSPECTATIO Israël, Dómine: omnes, qui te derelínquunt, confundéntur: recedéntes a te, in terra scribéntur: quóniam dereliquérunt venam aquárum vivéntium Dóminum. Sana me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es. Ecce ipsi dicunt ad me: Ubi est verbum Dómini? véniat. Et ego non sum turbátus, te pastórem sequens: et diem hóminis non desiderávi, tu scis. Quod egréssum est de lábiis meis, rectum in conspéctu tuo fuit. Non sis tu mihi formídini, spes mea tu in die afflictiónis. Confundántur qui me persequúntur, et non confúndar ego: páveant illi, et non páveam ego: induc super eos diem afflictiónis, et dúplici contritióne cóntere eos.
+
+℟. Locúti sunt advérsum me lingua dolósa, et sermónibus ódii circumdedérunt me: pro eo ut me

@@ -11153,3 +11153,119 @@ Deus virtútum, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
 VIneam de Ægýpto transtulísti: \* ejecísti gentes, et plantásti eam.
 
 Dux itíneris fuísti in conspéctu ejus: \* plantásti radíces ejus, et implévit terram.
+
+Opéruit montes umbra ejus: \* et arbústa ejus cedros Dei.
+
+Exténdit pálmites suos usque ad mare: \* et usque ad flumen propágines ejus.
+
+Ut quid destruxísti macériam ejus: \* et vindémiant eam omnes, qui prætergrediúntur viam?
+
+Exterminávit eam aper de silva: \* et singuláris ferus depástus est eam.
+
+Deus virtútum, convértere: \* réspice de cælo, et vide, et vísita víneam istam.
+
+Et pérfice eam, quam plantávit déxtera tua: \* et super fílium hóminis, quem confirmásti tibi.
+
+Incénsa igni, et suffóssa \* ab increpatióne vultus tui períbunt.
+
+Fiat manus tua super virum déxteræ tuæ: \* et super fílium hóminis, quem confirmásti tibi.
+
+Et non discédimus a te, vivificábis nos: \* et nomen tuum invocábimus.
+
+Dómine, Deus virtútum, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
+
+### Psalmus 81
+
+DEus stetit in synagóga deórum: \* in médio autem deos dijúdicat.
+
+Usquequo judicátis iniquitátem: \* et fácies peccatórum súmitis?
+
+Judicáte egéno, et pupíllo: \* húmilem, et páuperem justificáte.
+
+Erípite páuperem: \* et egénum de manu peccatóris liberáte.
+
+Nesciérunt, neque intellexérunt, in ténebris ámbulant: \* movebúntur ómnia fundaménta terræ.
+
+Ego dixi: Dii estis, \* et fílii Excélsi omnes.
+
+Vos autem sicut hómines moriémini: \* et sicut unus de princípibus cadétis.
+
+Surge, Deus, júdica terram: \* quóniam tu hereditábis in ómnibus géntibus.
+
+**Ant.** Excita, Dómine, poténtiam tuam, ut salvos fácias nos.
+
+#### In Officio feriali
+
+**Capitulum** *Jer. 17, 14*
+
+SAna me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana.
+
+℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 19}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Beáti, qui hábitant.
+
+### Psalmus 83, i
+
+QUam dilécta tabernácula tua, Dómine virtútum: \* concupíscit, et déficit ánima mea in átria Dómini.
+
+Cor meum, et caro mea \* exsultavérunt in Deum vivum.
+
+Etenim passer invénit sibi domum: \* et turtur nidum sibi, ubi ponat pullos suos.
+
+Altária tua, Dómine virtútum: \* Rex meus, et Deus meus.
+
+Beáti, qui hábitant in domo tua, Dómine: \* in sæcula sæculórum laudábunt te.
+
+Beátus vir, cujus est auxílium abs te: \* ascensiónes in corde suo dispósuit in valle lacrimárum in loco, quem pósuit.
+
+Etenim benedictiónem dabit legislátor, ibunt de virtúte in virtútem: \* vidébitur Deus deórum in Sion.
+
+### Psalmus 83, ii
+
+DOmine, Deus virtútum, exáudi oratiónem meam: \* áuribus pércipe, Deus Jacob.
+
+Protéctor noster, áspice, Deus: \* et réspice in fáciem Christi tui:
+
+Quia mélior est dies una in átriis tuis, \* super míllia.
+
+Elégi abjéctus esse in domo Dei mei: \* magis quam habitáre in tabernáculis peccatórum.
+
+Quia misericórdiam, et veritátem díligit Deus: \* grátiam et glóriam dabit Dóminus.

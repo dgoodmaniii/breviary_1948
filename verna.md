@@ -37056,3 +37056,56 @@ VIDETE ne contemnátis unum de pusíllis istis, qui credunt in me. Aptíssimum v
 **4** Angeli Dómini, \* Dóminum benedícite in ætérnum, allelúja.
 
 **5** Angeli, Archángeli, \* Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+**Capitulum** *Apoc. 1, 1-2*
+
+SIGNIFICAVIT Deus quæ opórtet fíeri cito, loquens per Angelum suum servo suo Joánni, qui testimónium perhíbuit verbo Dei, et testimónium Jesu Christi, quæcúmque vidit.
+
+###### Hymnus
+
+CHRISTE, sanctórum decus Angelórum,
+Gentis humánæ Sator et Redémptor,
+Cǽlitum nobis tríbuas beátas
+Scándere sedes.
+
+Angelus pacis Míchaël in ædes
+Cǽlitus nostras véniat, serénæ
+Auctor ut pacis lacrimósa in orcum
+Bella reléget.
+
+Angelus fortis Gábriel, ut hostes
+Pellat antíquos, et amíca cælo,
+Quæ triumphátor státuit per orbem,
+Templa revísat.
+
+Angelus nostræ médicus salútis,
+Adsit e cælo Ráphaël, ut omnes
+Sanet ægrótos, dubiósque vitæ
+Dírigat actus.
+
+Virgo dux pacis Genitríxque lucis,
+Et sacer nobis chorus Angelórum
+Semper assístat, simul et micántis
+Régia cæli.
+
+Præstet hoc nobis Déitas beáta
+Patris, ac Nati, paritérque Sancti
+Spíritus, cujus résonat per omnem
+Glória mundum.
+Amen.
+
+℣. Stetit Angelus juxta aram templi, allelúja. ℟. Habens thuríbulum áureum in manu sua, allelúja.
+
+**Ad Bened. Ant.** Factum est \* siléntium in cælo, dum draco committéret bellum; et Míchaël pugnávit cum eo, et fecit victóriam, allelúja.
+
+###### Oratio
+
+DEUS, qui, miro órdine, Angelórum ministéria hominúmque dispénsas: concéde propítius; ut, a quibus tibi ministrántibus in cælo semper assístitur, ab his in terra vita nostra muniátur. Per Dóminum.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis fit Commemoratio Feriæ.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Primam
+
+**Ant.** Stetit Angelus, ut supra. 954

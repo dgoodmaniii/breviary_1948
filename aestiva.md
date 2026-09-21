@@ -3762,4 +3762,54 @@ Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
 
 Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
 
-Quis est iste Rex glóriæ? \* Dóminus fortis et
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prœlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+### Psalmus 18, i
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+### Psalmus 18, ii
+
+LEX Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fúerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 46, qui in Laudibus locum non hábuit.}
+
+### Psalmus 46
+
+OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.

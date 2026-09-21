@@ -19299,4 +19299,40 @@ TIBI fatigátus est ab itínere Jesus. Invenímus virtútem Jesum; et invenímus
 
 #### Lectio iii
 
-NUTRIT ergo ipse infírmos, tamquam gallína pullos suos:
+NUTRIT ergo ipse infírmos, tamquam gallína pullos suos: huic enim se símilem fecit. Quóties vólui, inquit ad Jerúsalem, congregáre fílios tuos sub alas tamquam gallína pullos suos, et noluísti? Vidétis autem, fratres, quemádmodum gallína infirmétur cum pullis suis. Nulla enim ália avis, quod sit mater, agnóscitur. Vidémus nidificáre pásseres quóslibet ante óculos nostros: hirúndines, cicónias, colúmbas quotídie vidémus nidificáre; quos, nisi quando in nidis vidémus, paréntes esse non agnóscimus. Gallína vero sic infirmátur in pullis suis, ut étiam si ipsi pulli non sequántur, fílios non vídeas, matrem tamen intélligias.
+
+℟. Meménto mei, dum bene tibi fúerit: \* Ut súggeras Pharaóni, ut edúcat me de isto cárcere: \* Quia furtim sublátus sum, et hic ínnocens in lacum missus sum. ℣. Tres enim adhuc dies sunt, post quos recordábitur Phárao ministérii tui, et restítuet te in gradum prístinum: tunc meménto mei. — Ut. Glória Patri. Quia.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Aquam, quam ego dédero, \* si quis bíberit ex ea, non sítiet in ætérnum.
+
+#### Oratio
+
+JEJUNIA nostra, quæsumus, Dómine, benígno favóre proséquere: ut, sicut ab aliméntis abstinémus in córpore; ita a vítiis jejunémus in mente. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Dómine, \* ut vídeo, prophéta es tu: patres nostri in monte hoc adoravérunt.
+
+#### Oratio
+
+PRÆSTA, quæsumus, omnípotens Deus: ut, qui in tua protectióne confídimus, cuncta nobis adversántia te adjuvánte vincámus. Per Dóminum.
+
+---
+
+## Sabbato
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 8, 1-11*
+
+IN illo témpore: Perréxit Jesus in montem Olivéti, et dilúculo íterum venit in templum. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 33 in Joann., post initium}
+
+JESUS perréxit in montem Olivéti, in montem fructuósum, in montem unguénti, in montem

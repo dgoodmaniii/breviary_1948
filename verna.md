@@ -32577,4 +32577,48 @@ Egrediebátur foras, \* et loquebátur in idípsum.
 
 Advérsum me susurrábant omnes inimíci mei: \* advérsum me cogitábant mala mihi.
 
-Verbum iníquum constituérunt advérsum me: \*
+Verbum iníquum constituérunt advérsum me: \* Numquid qui dormit non adjíciet ut resúrgat?
+
+Etenim homo pacis meæ, in quo sperávi: \* qui edébat panes meos, magnificávit super me supplantatiónem.
+
+Tu autem, Dómine, miserére mei, et resúscita me: \* et retríbuam eis.
+
+In hoc cognóvi quóniam voluísti me: \* quóniam non gaudébit inimícus meus super me.
+
+Me autem propter innocéntiam suscepísti: \* et confirmásti me in conspéctu tuo in ætérnum.
+
+Benedíctus Dóminus, Deus Israël, a sæculo et usque in sæculum: \* fiat, fiat.
+
+**Ant.** Inimíci mei dixérunt mala mihi: Quando moriétur, et períbit nomen ejus?
+
+**Ant.** Deus, vitam meam \* annuntiávi tibi: posuísti lácrimas meas in conspéctu tuo.
+
+###### Psalmus 55
+
+MISERERE mei, Deus, quóniam conculcávit me homo: \* tota die impúgnans tribulávit me.
+
+Conculcavérunt me inimíci mei tota die: \* quóniam multi bellántes advérsum me.
+
+Ab altitúdine diéi timébo: \* ego vero in te sperábo.
+
+In Deo laudábo sermónes meos, in Deo sperávi: \* non timébo quid fáciat mihi caro.
+
+Tota die verba mea exsecrabántur: \* advérsum me omnes cogitatiónes eórum in malum.
+
+Inhabitábunt et abscóndent: \* ipsi calcáneum meum observábunt.
+
+Sicut sustinuérunt ánimam meam, pro níhilo salvos fácies illos: \* in ira pópulos confrínges.
+
+Deus, vitam meam annuntiávi tibi: \* posuísti lácrimas meas in conspéctu tuo,
+
+Sicut et in promissióne tua: \* tunc converténtur inimíci mei retrórsum:
+
+In quacúmque die invocávero te: \* ecce cognóvi quóniam Deus meus es.
+
+In Deo laudábo verbum, in Dómino laudábo sermónem: \* in Deo sperávi, non timébo quid fáciat mihi homo.
+
+In me sunt, Deus, vota tua, \* quæ reddam, laudatiónes tibi.
+
+Quóniam eripuísti ánimam meam de morte, et pedes meos de lapsu: \* ut pláceam coram Deo in lúmine vivéntium.
+
+**Ant.** Deus, vitam meam annuntiávi tibi: posuísti lácrimas meas in conspéctu tuo.

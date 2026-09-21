@@ -26914,3 +26914,31 @@ RESURRECTIO Dómini spes nostra est: ascénsio Dómini glorificátio nostra est.
 RESURREXIT enim Christus, ut spem nobis daret, quia surgit homo, qui móritur; ne moriéndo desperarémus, et vitam nostram in morte finítam putarémus, secúros nos fecit. Sollíciti enim erámus de ipsa ánima: et ille nobis resurgéndo, de carnis resurrectióne fidúciam dedit. Crede ergo, ut mundéris. Prius te opórtet crédere, ut póstea per fidem Deum meréris aspícere. Deum enim vidére vis? Audi ipsum: Beáti mundo corde: quóniam ipsi Deum vidébunt. Prius ergo cógita de corde mundándo: quidquid ibi vides, quod displicet Deo, tolle.
 
 ℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+*Cap. 15, 26-27; 16, 1-4*
+
+#### Lectio vii
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum vénerit Paráclitus, quem ego mittam vobis a Patre, Spíritum veritátis, qui a Patre procédit, ille testimónium perhibébit de me. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractatus 92 in Joánnem}
+
+DOMINUS Jesus in sermóne, quem locútus est discípulis suis post cœnam, próximus passióni, tamquam itúrus, et relictúrus eos præséntia corporáli, cum ómnibus autem suis usque in consummatiónem sæculi futúrus præséntia spiritáli, exhortátus est eos ad perferéndas persecutiónes impiórum, quos mundi nómine nuncupávit. Ex quo tamen mundo étiam ipsos discípulos se elegísse dixit: ut scírent se Dei grátia esse, quod sunt; suis autem vítiis fuísse, quod fuérunt.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut.
+
+#### Lectio viii
+
+DEINDE persecutóres et suos et ipsórum, Judǽos evidénter expréssit: ut omníno apparéret étiam ipsos mundi damnábilis appellatióne conclúsos, qui persequúntur sanctos. Cumque de illis díceret, quod ignorárent eum a quo missus est; et tamen odíssent et Fílium et Patrem, hoc est, et eum qui missus est, et eum a quo missus est: (de quibus ómnibus in áliis sermónibus jam disserúimus) ad hoc pervénit, ubi ait: Ut adimpleátur sermo, qui in lege eórum scriptus est: Quia ódio habuérunt me gratis.
+
+℟. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos, \* Cum autem vénerit ille, docébit vos omnem veritátem, allelúja. ℣. Non enim loquétur a semetípso: sed quæcúmque áudiet, loquétur: et quæ ventúra sunt, annuntiábit vobis. — Cum. Glória Patri. Cum.
+
+#### Lectio ix
+
+DEINDE tamquam consequénter adjúnxit, unde modo disputáre sus-

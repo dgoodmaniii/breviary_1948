@@ -40038,4 +40038,38 @@ HÆC autem, fratres, transfigurávi in me et Apóllo, propter vos, ut in nobis d
 
 ###### Lectio iii
 
-NOS stulti propter Christum, vos autem prudéntes in Christo: nos in-
+NOS stulti propter Christum, vos autem prudéntes in Christo: nos infirmi, vos autem fortes: vos nóbiles, nos autem ignóbiles. Usque in hanc horam et esurímus, et sitímus, et nudi sumus, et cólaphis cædimur, et instábiles sumus, et laborámus operántes mánibus nostris: maledícimur, et benedícimus: persecutiónem pátimur, et sustinémus: blasphemámur, et obsecrámus: tamquam purgaménta hujus mundi facti sumus, ómnium perípséma usque adhuc. Non ut confúndam vos, hæc scribo, sed ut fílios meos caríssimos móneo. Nam si decem míllia pædagogórum habeátis in Christo: sed non multos patres; nam in Christo Jesu per Evangélium ego vos génui.
+
+**T. P. ℟.** Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória. Mors.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Dum stetéritis ante reges et præsides, nolíte cogitáre, quómodo aut quid loquámini; \* Dábitur enim vobis in illa hora, quid loquámini. ℣. Non enim vos estis, qui loquímini; sed Spíritus Patris vestri, qui lóquitur in vobis. — Dábitur. Glória Patri. Dábitur.
+
+##### In II Nocturno
+
+**T. P. Ant.** Ecce \* quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Príncipes populórum \* congregáti sunt cum Deo Abraham.
+
+###### Psalmus 46
+
+OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.

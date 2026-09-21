@@ -4626,4 +4626,109 @@ KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
 Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
-Credo in Deum {RUBRIC: secréto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+Credo in Deum {RUBRIC: secréto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum nostrum. ℟. Amen.
+
+℣. Dóminus vobíscum.
+
+℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+**Antiphona finalis B. M. V.**
+
+℣. Divínum auxílium.
+
+Pater, Ave et Credo.
+
+---
+
+# Feria Tertia
+
+## Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+### In Officio feriali
+
+**Invitat.** Jubilémus Deo, \* Salutári nostro. **Ps. 94** Veníte, exsultémus.
+
+#### Hymnus
+
+CONSORS Patérni lúminis,
+Lux ipse lucis, et dies,
+Noctem canéndo rúmpimus:
+Assíste postulántibus.
+
+Aufer tenébras méntium,
+Fuga catérvas dæmonum,
+Expélle somnoléntiam,
+Ne pigritántes óbruat.
+
+Sic, Christe, nobis ómnibus
+Indúlgeas credéntibus,
+Ut prosit exorántibus
+Quod præcinéntes psállimus.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Expúgna, Dómine, \* impugnántes me.
+
+### Psalmus 34, i
+
+JUDICA, Dómine, nocéntes me, \* expúgna impugnántes me.
+
+Apprehénde arma et scutum: \* exsúrge in adjutórium mihi.
+
+Effúnde frámeam, et conclúde advérsus eos, qui persequúntur me: \* dic ánimæ meæ: Salus tua ego sum.
+
+Confundántur et revereántur, \* quæréntes ánimam meam.
+
+Avertántur retrórsum, et confundántur \* cogitántes mihi mala.
+
+Fiant tamquam pulvis ante fáciem venti: \* et Angelus Dómini coárctans eos.
+
+Fiat via illórum ténebræ et lúbricum: \* et Angelus Dómini pérsequens eos.
+
+Quóniam gratis abscondérunt mihi intéritum láquei sui: \* supervácue exprobravérunt ánimam meam.
+
+Véniat illi láqueus, quem ignórat: et cáptio, quam abscóndit, apprehéndat eum: \* et in láqueum cadat in ipsum.
+
+Anima autem mea exsultábit in Dómino: \* et delectábitur super salutári suo.
+
+Omnia ossa mea dicent: \* Dómine, quis símilis tibi?
+
+Erípiens ínopem de manu fortiórum ejus: \* egénum et páuperem a diripiéntibus eum.
+
+**Ant.** Expúgna, Dómine, impugnántes me.
+
+**Ant.** Restítue ánimam meam \* a malefáctis eórum, Dómine.
+
+### Psalmus 34, ii
+
+SURGENTES testes iníqui, \* quæ ignorábam interrogábant me.
+
+Retribuébant mihi mala pro bonis: \* sterilitátem ánimæ meæ.
+
+Ego autem cum mihi molésti essent, \* induébar cilício.
+
+Humiliábam in jejúnio ánimam meam: \* et orátio mea in sinu meo convertétur.
+
+Quasi próximum, et quasi fratrem nostrum, sic complacébam: \* quasi lugens et contristátus, sic humiliábar.
+
+Et advérsum me lætáti sunt, et convenérunt: \*

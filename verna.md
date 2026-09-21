@@ -34542,3 +34542,46 @@ CATHARINA virgo Senénsis, piis orta paréntibus, beáti Domínici hábitum quem
 DA, quǽsumus, omnípotens Deus: ut, qui beátæ Catharínæ Vírginis tuæ natalítia cólimus; ánnua solemnitáte lætémur, et tantæ virtútis proficiámus exémplo. Per Dóminum.
 
 {RUBRIC: Vesperæ de Ss. Apostolis Philippo et Jacobo ut infra. 901 Commemoratio præcedentis.}
+
+---
+
+# In Solemnitate S. Joseph Sponsi B. M. V.
+
+Conf. et Ecclesiæ universalis Patroni
+
+Duplex I classis cum Octava communi
+
+### In I Vesperis
+
+**Ant. 1** Jacob autem \* génuit Joseph, virum Maríæ, de qua natus est Jesus, qui vocátur Christus, allelúja.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolorum Tempore Paschali. [4]}
+
+**2** Missus est \* Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, allelúja.
+
+**3** Ascéndit autem \* Joseph a Galilǽa de civitáte Názareth in Judǽam, in civitátem David, quæ vocátur Béthlehem, allelúja.
+
+**4** Et venérunt festinántes, \* et invenérunt Maríam, et Joseph, et Infántem pósitum in præsépio, allelúja.
+
+**5** Et ipse Jesus \* erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph, allelúja.
+
+**Capitulum** *Gen. 49, 26*
+
+BENEDICTIONES patris tui confortátæ sunt benedictiónibus patrum ejus, donec veníret Desidérium cóllium æternórum: fiant in cápite Joseph, et in vértice Nazarǽi inter fratres suos.
+
+#### Hymnus
+
+TE, Joseph, célebrent ágmina cælitum,
+Te cuncti résonent christíadum chori,
+Qui clarus méritis, junctus es ínclytæ
+Casto fœdere Vírgini.
+
+Almo cum túmidam gérmine cónjugem
+Admírans, dúbio tángeris ánxius,
+Afflátu súperi Fláminis Angelus
+Concéptum Púerum docet.
+
+Tu natum Dóminum stringis, ad éxteras
+Ægýpti prófugum tu séqueris plagas;
+Amíssum Sólymis quæris, et ínvenis,
+Miscens gáudia flétibus.

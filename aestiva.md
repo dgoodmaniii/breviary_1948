@@ -5768,3 +5768,63 @@ Compláceat tibi, Dómine, ut éruas me: \* Dómine, ad adjuvándum me réspice.
 CONFUNDANTUR et revereántur simul, qui quærunt ánimam meam, \* ut áuferant eam.
 
 Convertántur retrórsum, et revereántur, \* qui volunt mihi mala.
+
+Ferant conféstim confusiónem suam, \* qui dicunt mihi: Euge, euge.
+
+Exsúltent et læténtur super te omnes quæréntes te: \* et dicant semper: Magnificétur Dóminus: qui díligunt salutáre tuum.
+
+Ego autem mendícus sum, et pauper: \* Dóminus sollícitus est mei.
+
+Adjútor meus, et protéctor meus tu es: \* Deus meus, ne tardáveris.
+
+**Ant.** Respéxit me, et exaudívit deprecatiónem meam Dóminus.
+
+#### In Officio feriali
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 19}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Suscepísti me, Dómine.
+
+### Psalmus 40
+
+BEATUS qui intélligit super egénum, et páuperem: \* in die mala liberábit eum Dóminus.

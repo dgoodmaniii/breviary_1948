@@ -20422,4 +20422,41 @@ IN crástinum autem turba multa, quæ vénerat ad diem festum, cum audíssent qu
 
 #### Lectio iii
 
-HAS ei laudes turba dicébat: Hosánna, benedíctus qui venit in nó-
+HAS ei laudes turba dicébat: Hosánna, benedíctus qui venit in nómine Dómini, Rex Israël. Quam crucem mentis invidéntia príncipum Judæórum pérpeti potúerat, quando Regem suum Christum tanta multitúdo clamábat? Sed quid fuit Dómino Regem esse Israël? Quid magnum fuit Regi sæculórum, Regem fíeri hóminum? Non enim Rex Israël Christus ad exigéndum tribútum, vel exércitum ferro armándum, hostésque visibíliter debellándos: sed Rex Israël, quod mentes regat, quod in ætérnum cónsulat, quod in regnum cælórum credéntes, sperántes, amantésque perdúcat.
+
+℟. Quis dabit cápiti meo aquam, et óculis meis fontem lacrimárum, et plorábo die ac nocte? quia frater propínquus supplantávit me, \* Et omnis amícus fraudulénter incéssit in me. ℣. Fiant viæ eórum ténebræ et lúbricum: et Angelus Dómini pérsequens eos. — Et. Quis.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+**Ad Bened. Ant.** Clarífica me, Pater, \* apud temetípsum claritáte, quam hábui priúsquam mundus fíeret.
+
+#### Oratio
+
+PROFICIAT, quæsumus, Dómine, plebs tibi dicáta, piæ devotiónis afféctu: ut, sacris actiónibus erudíta, quanto majestáti tuæ fit grátior, tanto donis potióribus augeátur. Per Dóminum.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Sabbato, ut in Psalterio. 332}
+
+**Capitulum** *Philipp. 2, 5-7*
+
+FRATRES: Hoc enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo: sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+#### Hymnus
+
+VEXILLA Regis pródeunt:
+Fulget Crucis mystérium,
+Qua vita mortem pértulit,
+Et morte vitam prótulit.
+
+Quæ, vulneráta lánceæ
+Mucróne diro, críminum
+Ut nos laváret sórdibus,
+Manávit unda et sánguine.
+
+Impléta sunt quæ cóncinit
+David fidéli cármine,
+Dicéndo natiónibus:
+Regnávit a ligno Deus.
+
+Arbor decóra et fúlgida,

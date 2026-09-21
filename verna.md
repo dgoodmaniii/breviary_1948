@@ -48205,3 +48205,63 @@ Tribulatiónem et dolórem invéni: \* et nomen Dómini invocávi.
 O Dómine, líbera ánimam meam: \* miséricors Dóminus, et justus, et Deus noster miserétur.
 
 Custódiens párvulos Dóminus: \* humiliátus sum, et liberávit me.
+
+Convértere, ánima mea, in réquiem tuam: \* quia Dóminus benefécit tibi.
+
+Quia erípuit ánimam meam de morte: \* óculos meos a lácrimis, pedes meos a lapsu.
+
+Placébo Dómino: \* in regióne vivórum.
+
+Réquiem ætérnam.
+
+**Ant.** Placébo Dómino in regióne vivórum.
+
+**Ant.** Hei mihi, Dómine, \* quia incolátus meus prolongátus est.
+
+###### Psalmus 119
+
+AD Dóminum cum tribulárer clamávi: \* et exaudívit me.
+
+Dómine, líbera ánimam meam a lábiis iníquis: \* et a lingua dolósa.
+
+Quid detur tibi, aut quid apponátur tibi \* ad linguam dolósam?
+
+Sagíttæ poténtis acútæ, \* cum carbónibus desolatóriis.
+
+Heu mihi, quia incolátus meus prolongátus est: habitávi cum habitántibus Cedar: \* multum íncola fuit ánima mea.
+
+Cum his, qui odérunt pacem, eram pacíficus: \* cum loquébar illis, impugnábant me gratis.
+
+Réquiem ætérnam.
+
+**Ant.** Hei mihi, Dómine, quia incolátus meus prolongátus est.
+
+**Ant.** Dóminus custódit te \* ab omni malo: custódiat ánimam tuam Dóminus.
+
+###### Psalmus 120
+
+LEVAVI óculos meos in montes, \* unde véniet auxílium mihi.
+
+Auxílium meum a Dómino, \* qui fecit cælum et terram.
+
+Non det in commotiónem pedem tuum: \* neque dormítet qui custódit te.
+
+Ecce non dormitábit neque dórmiet, \* qui custódit Israël.
+
+Dóminus custódit te, Dóminus protéctio tua, \* super manum déxteram tuam.
+
+Per diem sol non uret te: \* neque luna per noctem.
+
+Dóminus custódit te ab omni malo: \* custódiat ánimam tuam Dóminus.
+
+Dóminus custódiat intróitum tuum, et éxitum tuum: \* ex hoc nunc, et usque in sæculum.
+
+Réquiem ætérnam.
+
+**Ant.** Dóminus custódit te ab omni malo: custódiat ánimam tuam Dóminus.
+
+**Ant.** Si iniquitátes \* observáveris, Dómine: Dómine, quis sustinébit?
+
+###### Psalmus 129
+
+DE profúndis clamávi ad te, Dómine: \* Dómine, exáudi vocem meam:

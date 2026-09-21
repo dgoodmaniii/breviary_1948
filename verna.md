@@ -25030,4 +25030,24 @@ ANGELO Ephesi ecclésiæ scribe: Hæc dicit, qui tenet septem stellas in déxter
 
 #### Lectio ii
 
-ET Angelo Smyrnæ ecclésiæ scribe: Hæc dicit primus et novíssimus, qui fuit mórtuus et vivit: Scio tribulatiónem tuam, et paupertátem tuam, sed dives es: et blasphemáris ab his, qui se dicunt Judǽos esse, et non sunt, sed sunt synagóga sátanæ. Nihil horum tímeas quæ passúrus es. Ecce missúrus est diábo-
+ET Angelo Smyrnæ ecclésiæ scribe: Hæc dicit primus et novíssimus, qui fuit mórtuus et vivit: Scio tribulatiónem tuam, et paupertátem tuam, sed dives es: et blasphemáris ab his, qui se dicunt Judǽos esse, et non sunt, sed sunt synagóga sátanæ. Nihil horum tímeas quæ passúrus es. Ecce missúrus est diábo-lus áliquos ex vobis in cárcerem ut tentémini: et habébitis tribulatiónem diébus decem. Esto fidélis usque ad mortem, et dabo tibi corónam vitæ. Qui habet aurem, áudiat quid Spíritus dicat ecclésiis: Qui vícerit, non lædétur a morte secúnda.
+
+℟. Osténdit mihi Angelus fontem aquæ vivæ, et dixit ad me, allelúja: \* Hic Deum adóra, allelúja, allelúja, allelúja. ℣. Postquam audíssem et vidíssem, cécidi ut adorárem ante pedes Angeli, qui mihi hæc ostendébat, et dixit mihi. — Hic.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Hic.
+
+#### Lectio iii
+
+ET Angelo Pérgami ecclésiæ scribe: Hæc dicit qui habet rhomphǽam utráque parte acútam: Scio ubi hábitas, ubi sedes est sátanæ: et tenes nomen meum, et non negásti fidem meam. Et in diébus illis Antípas testis meus fidélis, qui occísus est apud vos, ubi sátanas hábitat. Sed hábeo advérsus te pauca: quia habes illic tenéntes doctrínam Bálaam, qui docébat Balac míttere scándalum coram fíliis Israël, édere et fornicári: ita habes et tu tenéntes doctrínam Nicolaitárum. Simíliter pœniténtiam age: si quo minus véniam tibi cito, et pugnábo cum illis in gládio oris mei. Qui habet aurem, áudiat quid Spíritus dicat ecclésiis: Vincénti dabo manna abscónditum, et dabo illi cálculum cándidum: et in cálculo nomen novum scriptum, quod nemo scit, nisi qui áccipit.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Audívi vocem de cælo, tamquam vocem tonítrui magni, allelúja: Regnábit Deus noster in ætérnum, allelúja; \* Quia facta est salus, et virtus, et potéstas Christi ejus, allelúja, allelúja. ℣. Et vox de throno exívit, dicens: Laudem dícite Deo nostro, omnes Sancti ejus, et qui timétis Deum, pusílli et magni. — Quia. Glória Patri. Quia.
+
+**Ad Bened. Ant.** Et incípiens \* a Móyse et ómnibus prophétis, interpretabátur illis Scriptúras, quæ de ipso erant, allelúja.
+
+**Ad Magnif. Ant.** Tristítia vestra \* vertétur in gáudium, allelúja: et gáudium vestrum nemo tollet a vobis, allelúja, allelúja.
+
+---

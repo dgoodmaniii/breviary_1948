@@ -33542,3 +33542,59 @@ Flamen láudibus éfferant. Amen.
 ℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
 
 **Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Hermenegíldum Mártyrem tuum cælésti regno terrénum postpónere docuísti: da, quǽsumus, nobis; ejus exémplo cadúca despícere, atque ætérna sectári. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis, in Quadragesima Feriæ, ac Ss. Tiburtii, Valeriani et Maximi Martyrum.}
+
+---
+
+### Die 14 Aprilis
+
+#### S. Justini
+
+{RUBRIC: Martyris}
+
+{RUBRIC: Duplex [33] vel [74]}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+DEUS, qui per stultítiam crucis eminéntem Jesu Christi sciéntiam beátum Justínum Mártyrem mirabíliter docuísti: ejus nobis intercessióne concéde; ut, errórum circumventióne depúlsa, fídei firmitátem consequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Sancti et justi, in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Deus, qui beátum, {RUBRIC: ut supra.}
+
+{RUBRIC: Deinde, post Commemorationem Feriæ in Quadragesima, Commemoratio Ss. Tiburtii, Valeriani et Maximi Martyrum:}
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad præmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.

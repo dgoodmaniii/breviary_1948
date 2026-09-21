@@ -27553,4 +27553,22 @@ CUM per sacratíssimum crucis signum vos suscépit in útero sancta mater Ecclé
 
 #### Lectio v
 
-ACCEPISTIS et sýmbolum, protectiónem parturiéntis contra venéna serpéntis. In Apocalýpsi Joánnis Apóstoli scriptum est hoc, quod staret draco in conspéctu mulíeris, quæ paritúra erat, ut cum pe-
+ACCEPISTIS et sýmbolum, protectiónem parturiéntis contra venéna serpéntis. In Apocalýpsi Joánnis Apóstoli scriptum est hoc, quod staret draco in conspéctu mulíeris, quæ paritúra erat, ut cum perísset, natum ejus coméderet. Dracónem diábolum esse, nullus vestrum ignórat: mulíerem illam Vírginem Maríam significásse, quæ caput nostrum íntegra íntegrum péperit; quæ étiam ipsa figúram in se sanctæ Ecclésiæ demonstrávit: ut quómodo fílium páriens, virgo permánsit, ita et hæc omni témpore membra ejus páriat, et virginitátem non amíttat. Ipsas senténtias sacratíssimi sýmboli adjuvánte Dómino exponéndas suscépimus, ut, quid síngulæ contíneant, vestris sénsibus intimémus. Paráta sunt corda vestra, quia exclúsus est inimícus de córdibus vestris.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum.
+
+#### Lectio vi
+
+HUIC vos renuntiáre proféssi estis: in qua professióne, non homínibus, sed Deo et Angelis ejus conscribéntibus dixístis, Renúntio. Renuntiáte non solum vócibus, sed étiam móribus: non tantum sono linguæ, sed et actu vitæ: nec tantum lábiis sonántibus, sed opéribus pronuntiántibus. Scitóte vos cum cállido, antíquo, et veternóso inimíco suscepísse certámen: non in vobis post renuntiatiónem invéniat ópera sua, non jure vos áttrahat in servitútem suam. Deprehénderis enim et detégeris, Christiáne, quando áliud agis, et áliud profitéris: fidélis in nómine, áliud demónstrans in ópere, non tenens promissiónis tuæ fidem: modo ingrédiens ecclésiam oratiónes fúndere, post módicum in spectáculis cum histriónibus impudíce clamáre. Quid tibi cum pompis diáboli, quibus renuntiásti?
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 14, 15-21*
+
+IN illo témpore: Dixit Jesus discípulis suis: Si dilígitis me, mandáta mea serváte. Et ego ro-

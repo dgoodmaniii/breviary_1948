@@ -46500,4 +46500,22 @@ Léctio sancti Evangélii secúndum Lucam
 
 *Cap. 19, 1-10*
 
-IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps
+IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Liber 5, cap. 77 in Luc. 19}
+
+QUÆ impossibília sunt apud hómines, possibília sunt apud Deum. Ecce enim camélus, depósita gibbi sárcina, per forámen acus transit, hoc est, dives et publicánus, relícto ónere divitiárum, contémpto censu fraudum, angústam portam arctámque viam, quæ ad vitam ducit, ascéndit. Qui, mira devotióne fídei, ad vidéndum Salvatórem, quod natúra minus habúerat, ascénsu supplet árboris; atque ídeo juste, quamvis ipse rogáre non áudeat, benedictiónem Domínicæ susceptiónis, quam desiderábat, accépit.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. (T. P. Allelúja.) ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et pulsánti.
+
+###### Lectio viii
+
+MYSTICE autem Zachǽus, qui interpretátur justificátus, credéntem ex géntibus pópulum signíficat. Qui, quanto curis sæculáribus occupátior, tanto flagítiis deprimméntibus erat factus humílior. Sed ablútus est, sed sanctificátus, sed justificátus in nómine Dómini nostri Jesu Christi et in Spíritu Dei nostri. Qui intrántem Jéricho Salvatórem vidére quærébat, sed præ turba non póterat; quia grátiæ fídei, quam mundo Salvátor áttulit, participáre cupiébat, sed inólita vitiórum consuetúdo, ne ad votum pervenéret, obstíterat.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+EADEM namque turba nóxiæ consuetúdinis, quæ supra cæcum clamántem, ne lumen péteret, increpábat; étiam suspiciéntem publicánum, ne Jesum vídeat, tardat. Sed sicut cæcus turbárum voces magis ac magis clamándo devícit: ita pusíllus necésse est turbæ nocéntis obstáculum altióra peténdo transcéndat, terréna relínquat, árborem crucis

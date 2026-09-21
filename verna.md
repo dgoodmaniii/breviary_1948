@@ -23772,4 +23772,42 @@ EUNTES autem docéte omnes gentes, baptizántes eos in nómine Patris, et Fílii
 
 #### Lectio iii
 
-DOCENTES eos serváre ómnia, quæcúmque mandávi vobis. Ordo præcípuus: jussit Apóstolis, ut primum docérent univérsas gentes, deínde fídei intíngerent sacraménto, et post fidem ac baptísma, quæ essent observánda præcíperent. Ac ne putémus lévia esse, quæ jussa sunt, et pauca, áddidit: Omnia quæcúmque mandávi vobis: ut, quicúm-
+DOCENTES eos serváre ómnia, quæcúmque mandávi vobis. Ordo præcípuus: jussit Apóstolis, ut primum docérent univérsas gentes, deínde fídei intíngerent sacraménto, et post fidem ac baptísma, quæ essent observánda præcíperent. Ac ne putémus lévia esse, quæ jussa sunt, et pauca, áddidit: Omnia quæcúmque mandávi vobis: ut, quicúm-que credíderint, qui in Trinitáte fúerint baptizáti, ómnia fáciant, quæ præcépta sunt. Et ecce ego vobíscum sum usque ad consummatiónem sǽculi. Qui usque ad consummatiónem sǽculi cum discípulis se futúrum esse promíttit, et illos osténdit semper esse victúros, et se numquam a credéntibus recessúrum.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Úndecim discípuli \* in Galilǽa vidéntes Dóminum adoravérunt, allelúja.
+
+#### Oratio
+
+OMNIPOTENS sempitérne Deus, qui paschále sacraméntum in reconciliatiónis humánæ fœdere contulísti: da méntibus nostris; ut, quod professióne celebrámus, imitémur efféctu. Per Dóminum.
+
+**Ad Magnif. Ant.** Data est mihi \* omnis potéstas in cælo et in terra, allelúja.
+
+---
+
+## Sabbato in Albis
+
+{RUBRIC: Semiduplex 500}
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 20, 1-9*
+
+IN illo témpore: Una sábbati María Magdaléne venit mane, cum adhuc ténebræ essent, ad monuméntum. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 22 in Evangelia}
+
+LECTIO sancti Evangélii, quam modo, fratres, audístis, valde in superfície histórica est apérta: sed ejus nobis sunt mystéria sub brevitáte requirénda. María Magdaléne, cum adhuc ténebræ essent, venit ad monuméntum. Juxta históriam notátur hora: juxta intelléctum vero mýsticum, requiréntis signátur intelligéntia. María étenim auctórem ómnium, quem in carne víderat mórtuum, quærébat in monuménto; et quia hunc mínime invénit, furátum crédidit. Adhuc ergo erant ténebræ, cum venit ad monuméntum. Cucúrrit cítius, discípulis nuntiávit: sed illi præ céteris cucurrérunt, qui præ céteris amavérunt, vidélicet Petrus et Joánnes.
+
+℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mór-

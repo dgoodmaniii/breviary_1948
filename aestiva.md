@@ -4246,4 +4246,54 @@ Verúmtamen in dilúvio aquárum multárum, \* ad eum non approximábunt.
 
 Tu es refúgium meum a tribulatióne, quæ circúmdedit me: \* exsultátio mea, érue me a circumdántibus me.
 
-Intelléctum tibi dabo, et ínstruam te in via hac,
+Intelléctum tibi dabo, et ínstruam te in via hac, qua gradiéris: \* firmábo super te óculos meos.
+
+Nolíte fíeri sicut equus et mulus, \* quibus non est intelléctus.
+
+In camo et freno maxíllas eórum constrínge, \* qui non appróximant ad te.
+
+Multa flagélla peccatóris, \* sperántem autem in Dómino misericórdia circúmdabit.
+
+Lætámini in Dómino et exsultáte, justi, \* et gloriámini, omnes recti corde.
+
+### Psalmus 32, i
+
+EXSULTATE, justi, in Dómino: \* rectos decet collaudátio.
+
+Confitémini Dómino in cíthara: \* in psaltério decem chordárum psállite illi.
+
+Cantáte ei cánticum novum: \* bene psállite ei in vociferatióne.
+
+Quia rectum est verbum Dómini, \* et ómnia ópera ejus in fide.
+
+Díligit misericórdiam et judícium: \* misericórdia Dómini plena est terra.
+
+Verbo Dómini cæli firmáti sunt: \* et spíritu oris ejus omnis virtus eórum.
+
+Cóngregans sicut in utre aquas maris: \* ponens in thesáuris abýssos.
+
+Tímeat Dóminum omnis terra: \* ab eo autem commoveántur omnes inhabitántes orbem.
+
+Quóniam ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Dóminus díssipat consília géntium: \* réprobat autem cogitatiónes populórum, et réprobat consília príncipum.
+
+Consílium autem Dómini in ætérnum manet: \* cogitatiónes cordis ejus in generatióne et generatiónem.
+
+### Psalmus 32, ii
+
+BEATA gens, cujus est Dóminus, Deus ejus: \* pópulus, quem elégit in hereditátem sibi.
+
+De cælo respéxit Dóminus: \* vidit omnes fílios hóminum.
+
+De præparáto habitáculo suo \* respéxit super omnes, qui hábitant terram.
+
+Qui finxit sigillátim corda eórum: \* qui intélligit ómnia ópera eórum.
+
+Non salvábitur rex per multam virtútem: \* et gigas non salvábitur in multitúdine virtútis suæ.
+
+Fallax equus ad salútem: \* in abundántia autem virtútis suæ non salvábitur.
+
+Ecce óculi Dómini super metuéntes eum: \* et in eis, qui sperant super misericórdia ejus:
+
+Ut éruat a morte ánimas eórum: \* et alat eos in fame.

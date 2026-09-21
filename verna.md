@@ -27349,4 +27349,22 @@ OBSECRO ítaque vos ego vinctus in Dómino, ut digne ambulétis vocatióne, qua 
 
 QUOD autem ascéndit, quid est, nisi quia et descéndit primum in inferióres partes terræ? Qui descéndit, ipse est et qui ascéndit super omnes cælos, ut impléret ómnia. Et ipse dedit quosdam quidem Apóstolos, quosdam autem Prophétas, álios vero Evangelístas, álios autem pastóres, et doctóres ad consummatiónem sanctórum in opus ministérii, in ædificatiónem córporis Christi: donec occurrámus omnes in unitátem fídei, et agnitiónis Fílii Dei, in virum perféctum, in mensúram ætátis plenitúdinis Christi: ut jam non simus párvuli, fluctuántes, et circumferámur omni vento doctrínæ in nequítia hóminum, in astútia ad circumventiónem erróris.
 
-℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et oc-
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja.
+
+#### Lectio iii
+
+VERITATEM autem faciéntes in caritáte, crescámus in illo per ómnia, qui est caput Christus: ex quo totum corpus compáctum et connéxum per omnem junctúram subministratiónis, secúndum operatiónem in mensúram uniuscujúsque membri, augméntum córporis facit in ædificatiónem sui in caritáte. Hoc ígitur dico, et testíficor in Dómino, ut jam non ambulétis, sicut et gentes ámbulant in vanitáte sensus sui, ténebris obscurátum habéntes intelléctum, alienáti a vita Dei per ignorántiam, quæ est in illis, propter cæcitátem cordis ipsórum, qui desperántes, semetípsos tradidérunt impudicítiæ, in operatiónem immundítiæ omnis, in avarítiam. Vos autem non ita didicístis Christum, si tamen illum audístis, et in ipso edócti estis.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+Sermo sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 3 de Ascensione Dñi qui est 176 de Tempore}
+
+#### Lectio iv
+
+OMNIA, caríssimi, quæ Dóminus Jesus Christus in hoc mundo sub fragilitáte nostra mirácula édidit, nobis profíciunt: qui dum humánam conditiónem sidéribus importávit, credéntibus cælum patére posse monstrávit: et dum victórem mortis in cæléstia elevávit, victóribus quo sequántur osténdit. Ascénsio ergo Dómini cathólicæ fídei confirmátio fuit: ut secúri in pósterum crederémus miráculi illíus donum, cujus jam in præsénti percepissémus efféctum; et fidélis quisque cum jam tanta percéperit, per ea, quæ cognóscit præstíta, discat speráre promíssa, ac Dei sui prætéritam præsentémque bonitátem, quasi futurórum téneat cautiónem.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum

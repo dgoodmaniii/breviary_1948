@@ -37775,3 +37775,67 @@ PASCHALIS Baylon, paupéribus piísque paréntibus in óppido Turris Formósæ i
 {RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [116]}
 
 {RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Paschálem Confessórem tuum mirífica erga córporis et sánguinis tui sacra mystéria dilectióne decorásti: concéde propítius; ut, quam ille ex hoc divíno convívio spíritus percépit pinguédinem, eámdem et nos percípere mereámur: Qui vivis.
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commem. præcedéntis.}
+
+---
+
+### Die 18 Maji
+
+#### S. Venantii Martyris
+
+{RUBRIC: Duplex [74]}
+
+##### In I Vesperis
+
+{RUBRIC: Si sequens Hymnus Martyr Dei dici non potuerit in I Vesperis, conjungitur ad Matutinum cum Hymno Athléta Christi, et in hujus tantum fine dicitur Conclusio Sit laus Patri.}
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+MARTYR Dei Venántius,
+Lux et decus Camértium,
+Tortóre victo et júdice,
+Lætus triúmphum cóncinit.
+
+Annis puer, post víncula,
+Post cárceres, post vérbera,
+Longa fame freméntibus
+Cibus datur leónibus.
+
+Sed ejus innocéntiæ
+Parcit leónum immánitas:
+Pedésque lambunt Mártyris,
+Iræ famísque immémores.
+
+Verso deórsum vértice
+Hauríre fumum cógitur;
+Costas utrímque et víscera
+Succénsa lampas ústulat.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Sit laus Patri, sit Fílio,
+Tibíque, Sancte Spíritus:
+Da per preces Venántii
+Beáta nobis gáudia.
+Amen.
+
+{RUBRIC: ¶ Hymnus præcedens dícitur étiam in II Vésperis, quando íntegræ sint dicéndæ.}
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis

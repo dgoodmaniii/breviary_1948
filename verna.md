@@ -37924,4 +37924,58 @@ VENANTIUS Camers, quíndecim annos natus, christiánæ religiónis accusátus ap
 
 **Capitulum** *Sap. 5, 1*
 
-STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+DUM, nocte pulsa, lúcifer
+Diem propínquam núntiat,
+Nobis refert Venántius
+Lucis beátæ múnera.
+
+Nam críminum calíginem
+Stygísque noctem depúlit,
+Veróque cives lúmine
+Divinitátis ímbuit.
+
+Aquis sacri baptísmatis
+Lustrávit ille pátriam:
+Quos tinxit unda mílites,
+In astra misit Mártyres.
+
+Nunc Angelórum párticeps,
+Adésto votis súpplicum:
+Procul repélle crímina,
+Tuúmque lumen íngere.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Sit laus Patri, sit Fílio,
+Tibíque, Sancte Spíritus:
+Da per preces Venántii
+Beáta nobis gáudia.
+Amen.
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui hunc diem beáti Venántii Mártyris tui triúmpho consecrásti: exáudi preces pópuli tui, et præsta; ut, qui ejus mérita venerámur, fídei constántiam imitémur. Per Dóminum.
+
+##### Ad Tertiam
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+℟. br. Sancti et justi, in Dómino gaudéte, \* Allelúja, allelúja. Sancti. ℣. Vos elégit Deus in hereditátem sibi. Allelúja, allelúja. Glória Patri. Sancti. ℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+##### Ad Sextam
+
+**Capitulum** *Sap. 5, 5*
+
+ECCE quómodo computáti sunt inter fílios Dei, et inter sanctos sors illórum est.
+
+℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Lætítia sempitérna super

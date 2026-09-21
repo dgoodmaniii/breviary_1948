@@ -14344,4 +14344,18 @@ SUrréxit autem Anna, postquam coméderat et bíberat in Silo, et Heli sacerdót
 
 *Cap. 1, 12-28*
 
-FActum est autem, cum illa multiplicáret preces coram Dómino, ut Heli observáret os ejus. Porro Anna loquebátur in corde suo, tantúmque lábia illíus movebántur, et vox pénitus non audiebátur. Æstimávit ergo eam Heli temuléntam dixítque ei: Usquequo ébria eris? Dígere paulísper vinum, quo mades. Respóndens Anna,
+FActum est autem, cum illa multiplicáret preces coram Dómino, ut Heli observáret os ejus. Porro Anna loquebátur in corde suo, tantúmque lábia illíus movebántur, et vox pénitus non audiebátur. Æstimávit ergo eam Heli temuléntam dixítque ei: Usquequo ébria eris? Dígere paulísper vinum, quo mades. Respóndens Anna, Nequáquam, inquit, dómine mi; nam múlier infélix nimis ego sum, vinúmque et omne quod inebriáre potest, non bibi, sed effúdi ánimam meam in conspéctu Dómini. Ne réputes ancíllam tuam quasi unam de filiábus Bélial, quia ex multitúdine dolóris et mæróris mei locúta sum usque in præsens. Tunc Heli ait ei: Vade in pace, et Deus Israël det tibi petitiónem tuam, quam rogásti eum. Et illa dixit: Utinam invéniat ancílla tua grátiam in óculis tuis.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo; percússit Philisthæum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+ET ábiit múlier in viam suam et comédit, vultúsque illíus non sunt ámplius in divérsa mutáti. Et surrexérunt mane et adoravérunt coram Dómino, reversíque sunt et venérunt in domum suam Rámatha. Cognóvit autem Elcana Annam uxórem suam, et recordátus est ejus Dóminus. Et factum est post círculum diérum concépit Anna et péperit fílium vocavítque nomen ejus Sámuel, eo quod a Dómino postulásset eum. Ascéndit autem vir ejus Elcana et omnis domus ejus, ut immoláret Dómino hóstiam solémnem et votum suum, et Anna non ascéndit; dixit enim viro suo: Non vadam, donec ablactétur infans, et ducam eum, ut appáreat ante conspéctum Dómini et máneat ibi júgiter.
+
+℟. Montes Gélboë, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboë autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+ET ait ei Elcana vir suus: Fac quod bonum tibi vidétur et mane donec abláctes eum: precórque ut ímpleat Dóminus verbum suum. Mansit ergo múlier et lactávit fílium suum, donec amovéret eum a lacte. Et addúxit eum secum, postquam ablactáverat, in vítulis tribus et tribus módiis farínæ et ámphora vini, et addúxit eum ad domum Dómini in Silo. Puer au-

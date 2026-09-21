@@ -43286,3 +43286,27 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 **Absolutio** Ipsíus píetas.
 
 **Benedictio** Deus Pater.
+
+Sermo sancti Máximi Epíscopi
+
+{RUBRIC: Homilía 59, quæ est 2 de S. Eusébio Vercellénsi}
+
+###### Lectio iv
+
+AD sancti ac beatíssimi Patris nostri N., cujus hódie festa celebrámus, laudes addidísse áliquid, decerpsísse est; síquidem virtútum ejus grátia non sermónibus exponénda est, sed opéribus comprobánda. Cum enim dicat Scriptúra: Glória patris est fílius sápiens; quantæ hujus sunt glóriæ, qui tantórum filiórum sapiéntia et devotióne lætátur? In Christo enim Jesu per Evangélium ipse nos génuit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. (T. P. Allelúja.) ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+QUIDQUID ígitur in hac sancta plebe potest esse virtútis et grátiæ, de hoc, quasi quodam fonte lucidíssimo, ómnium rivulórum púritas emanávit. Etenim, quia castitátis pollébat vigóre, quia abstinéntiæ gloriabátur angústiis, quia blandiméntis erat prǽditus lenitátis, ómnium cívium in Deum provocávit afféctum; quia Pontíficis administratióne fulgébat, plures e discípulis relíquit sui sacerdótii successóres.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. (T. P. Allelúja.) ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+BENE et cóngrue in hac die, quam nobis beáti Patris nostri N. ad paradísum tránsitus exsultábilem reddit, præséntis Psalmi versículum decantávimus: In memória ætérna erit justus. Digne enim in memóriam vértitur hóminum, qui ad gáudium tránsiit Angelórum. Dicit sermo divínus: Ne laudes hóminem in vita sua; tamquam si díceret: Lauda post vitam, magnífica post consummatiónem. Dúplici enim ex causa utílius est hóminum magis memóriæ laudem dare, quam vitæ; ut illo potíssimum témpore mérita sanctitátis extóllas, quando nec laudántem

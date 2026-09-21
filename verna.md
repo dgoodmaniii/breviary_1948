@@ -25333,4 +25333,28 @@ DE patiéntia locutúrus, fratres dilectíssimi, et utilitátes ejus et cómmoda
 
 #### Lectio v
 
-NOS autem, fratres dilectíssimi, qui philósophi non verbis, sed factis sumus; nec vestítu sapiéntiam, sed veritáte præférimus: qui virtútum consciéntiam magis quam jactántiam nóvimus: qui non lóquimur magna, sed vívimus quasi servi et cultóres Dei: patiéntiam, quam magistériis cæléstis-
+NOS autem, fratres dilectíssimi, qui philósophi non verbis, sed factis sumus; nec vestítu sapiéntiam, sed veritáte præférimus: qui virtútum consciéntiam magis quam jactántiam nóvimus: qui non lóquimur magna, sed vívimus quasi servi et cultóres Dei: patiéntiam, quam magistériis cæléstis-bus díscimus, obséquiis spiritálibus præbeámus. Est enim nobis cum Deo virtus ista commúnis: inde patiéntia íncipit, inde cláritas ejus et dígnitas caput sumit. Orígo et magnitúdo patiéntiæ Deo auctóre procédit. Diligénda res hómini, quæ Deo cara est. Bonum quod amat, majéstas divína comméndat. Si Dóminus nobis et Pater Deus est, sectémur patiéntiam dómini páriter et patris; quia et servos opórtet esse obsequéntes, et fílios non decet esse degéneres.
+
+℟. In toto corde meo, allelúja, exquisívi te, allelúja: \* Ne repéllas me a mandátis tuis, allelúja, allelúja. ℣. Benedíctus es tu, Dómine, doce me justificatiónes tuas. — Ne.
+
+#### Lectio vi
+
+PATIENTIA est, quæ nos Deo et comméndat et servat: ipsa est, quæ iram témperat, quæ linguam frenat, quæ mentem gubérnat, pacem custódit, disciplínam regit, libídinis ímpetum frangit, tumóris violéntiam cómprimit, incéndium simultátis exstínguit, coércet poténtiam dívitum, inópiam páuperum réfovet, tuétur in virgínibus beátam integritátem, in víduis laboriósam castitátem, in conjúnctis et maritátis indivíduam caritátem: facit húmiles in prósperis, in advérsis fortes, contra injúrias et contumélias mites: docet delinquéntibus cito ignóscere: si ipse delínquas, diu et multum rogáre: tentatiónes expúgnat, persecutiónes tólerat, passiónes et martýria consúmmat. Ipsa est, quæ fídei nostræ fundaménta fírmiter munit.
+
+℟. Hymnum cantáte nobis, allelúja: \* Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. ℣. Illic interrogavérunt nos, qui captívos duxérunt nos, verba cantiónum. — Quómodo. Glória Patri. Quómodo.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio vii
+
+*Cap. 16, 5-14*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vado ad eum qui misit me; et nemo ex vobis intérrogat me: Quo vadis? Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractat. 94 in Joann., initio}
+
+CUM Dóminus Jesus prædixísset discípulis suis persecutiónes, quas passúri erant

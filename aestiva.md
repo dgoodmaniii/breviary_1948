@@ -498,3 +498,81 @@ Nunc et per omne sæculum. Amen.
 {RUBRIC: ¶ Conclúsio commúnis, in Hymno præcedénti, et in áliis idem metrum habéntibus, semper omíttitur, quando speciális in ómnibus Horis adhibénda præscríbitur; et, si plures Conclusiónes própriæ occúrrant, súmitur Conclúsio Offícii curréntis, aut secus Offícii ipsa die et primo quidem loco inter cétera própriam Conclusiónem habéntia commemorándi, aut demum de occurrénti Octáva commúni.}
 
 {RUBRIC: Expléto Hymno, convéniens dícitur Antíphona usque ad Asteríscum \*, prouti occúrrens Offícium réquirit.}
+
+#### In Officio dominicali
+
+{RUBRIC: In ómnibus Domínicis, extra Octávas Ssmi Córporis Christi et Sacrat. Cordis Jesu, Antíphona ut in Psaltério.}
+
+#### In Officio feriali
+
+{RUBRIC: In ómnibus Fériis, Antíphona de Feria curránti ut in Psaltério.}
+
+{RUBRIC: Post enuntiátam Antíphonam dicúntur tres Psalmi Offícii diéi congruéntes.}
+
+{RUBRIC: ¶ Quando autem adhibétur postérius Láudum schéma, Psalmus, in prióri Láudum feriálium schémate omíssus, ad Primam Fériæ curréntis post álios Psalmos resúmitur.}
+
+{RUBRIC: Repetíta post últimum Psalmum íntegre Antíphona, convéniens dícitur Capítulum; nímirum:}
+
+{RUBRIC: In ómnibus Domínicis, in Offício cujúslibet Festi vel Octávæ ac sanctæ Maríæ in Sábbato:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen. ℟. Deo grátias.
+
+{RUBRIC: ¶ Sic respondétur in fine ómnium Capitulórum.}
+
+{RUBRIC: In ómnibus autem Fériis et in Vigíliis commúnibus:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+{RUBRIC: Dicto Capítulo, subjúngitur Responsórium breve, ut séquitur. Versus tamen Qui sedes ad déxteram Patris semper omíttitur, quando speciális Versus adhibéndus præscríbitur, Offícii nempe curréntis, aut secus Offícii ad Laudes et primo quidem loco inter cétera speciálem Versum habéntia commemoráti, aut demum de occurrénti Octáva commúni próprius.}
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. {RUBRIC: Et repetitur:} Christe, Fili Dei vivi, miserére nobis. ℣. Qui sedes ad déxteram Patris. ℟. Miserére nobis. ℣. Glória Patri, et Fílio, et Spirítui Sancto. ℟. Christe, Fili Dei vivi, miserére nobis. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+{RUBRIC: ¶ Ita dicúntur semper Responsória brévia, étiam ad Tértiam, Sextam, Nonam et Completórium.}
+
+{RUBRIC: Expléto Responsório brevi, si Preces non fúerint recitándæ, statim dícitur Versus Dóminus vobíscum cum subsequénti Oratióne et réliquis ómnibus usque ad finem Horæ ut infra.}
+
+{RUBRIC: In quólibet Offício semidúplici, in Offício sanctæ Maríæ in Sábbato, in Festis simplícibus, atque in Fériis per Annum commúnibus, post Responsórium breve dicúntur sequéntes Preces dominicáles; quæ tamen omittúntur ómnibus diébus, in quibus ad Laudes habíta sit Commemorátio Dúplicis, vel factum fúerit Offícium aut Commemorátio cujúsvis Octávæ:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Pater noster secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+{RUBRIC: Credo in Deum secréto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me. ℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+{RUBRIC: Deinde Hebdomadárius facit Confessiónem cum Absolutióne, eámque Chorus repétit, ut infra post feriáles Preces.}
+
+{RUBRIC: In ómnibus vero Vigíliis, si ad Laudes recitátæ fúerint preces, post Responsórium breve dicúntur flexis génibus sequéntes Preces feriáles:}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Pater noster secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+{RUBRIC: Credo in Deum secréto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me. ℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me. ℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me. ℣. Eripe me de operántibus iniquitátem. ℟. Et de viris sánguinum salva me. ℣. Sic psalmum dicam nómini tuo in sæculum sæculi. ℟. Ut reddam vota mea de die in diem. ℣. Exáudi nos, Deus, salutáris noster. ℟. Spes ómnium fínium terræ, et in mari longe. ℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína. ℣. Sanctus Deus, Sanctus fortis, Sanctus immortális. ℟. Miserére nobis. ℣. Bénedic, ánima mea, Dómino. ℟. Et ómnia, quæ intra me sunt, nómini sancto ejus. ℣. Bénedic, ánima mea, Dómino. ℟. Et noli oblivísci omnes retributiónes ejus. ℣. Qui propitiátur ómnibus iniquitátibus tuis. ℟. Qui sanat omnes infirmitátes tuas. ℣. Qui rédimit de intéritu vitam tuam. ℟. Qui corónat te in misericórdia et miseratiónibus. ℣. Qui replet in bonis desidérium tuum. ℟. Renovábitur ut áquilæ juvéntus tua. ℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+{RUBRIC: Deinde Hebdomadárius facit Confessiónem:}
+
+CONFITEOR Deo omnipoténti, beátæ Maríæ semper Vírgini, beáto Michaéli Archángelo, beáto Joánni Baptístæ, sanctis Apóstolis Petro et Paulo, ómnibus Sanctis, et vobis, fratres, quia peccávi nimis cogitatióne, verbo et ópere: mea culpa, mea culpa, mea máxima culpa. Ideo precor beátam Maríam semper Vírginem, beátum Michaélem Archángelum, beátum Joánnem Baptístam, sanctos Apóstolos Petrum et Paulum, omnes Sanctos, et vos, fratres, oráre pro me ad Dóminum, Deum nostrum.
+
+{RUBRIC: Chorus respondet:}
+
+MISEREATUR tui omnípotens Deus, et, dimíssis peccátis tuis, perdúcat te ad vitam ætérnam. ℟. Amen.
+
+{RUBRIC: Deinde repetit Confessiónem, et ubi dícitur: vobis, fratres, et vos, fratres, dicat: tibi, pater, et te, pater.}
+
+{RUBRIC: Facta Confessióne a Choro, Hebdomadárius dicit:}
+
+MISEREATUR vestri omnípotens Deus, et, dimíssis peccátis vestris, perdúcat vos ad vitam ætérnam. ℟. Amen.
+
+INDULGENTIAM, absolutiónem, et remissiónem peccatórum nostrórum tríbuat nobis omnípotens et miséricors Dóminus. ℟. Amen.
+
+{RUBRIC: Extra Chorum, si unus vel duo tantum recítent Offícium et in Choro Moniálium, semel tantum ac simul ab ómnibus ita fit Confessio:}
+
+CONFITEOR Deo omnipoténti, beátæ Maríæ semper Vírgini, beáto Mi-

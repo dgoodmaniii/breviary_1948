@@ -15182,4 +15182,18 @@ DOrmívit autem Sámuel usque mane aperuítque óstia domus Dómini. Et Sámuel 
 
 ##### Lectio iv
 
-NEcessárium est, dilectíssimi, mystériórum díscere miráculum, quodnam sit, et quare sit datum, et quæ ejus rei utílitas. Unum corpus efficímur: membra, inquit, ex carne ejus et ex óssibus ejus. Sequámur autem initiáti, quæ dicúntur. Ut ítaque non tantum per caritátem hoc fiámus, verum étiam ipsa re, in illam misceámur carnem: hoc namque per escam efficítur, quam largítus est nobis, volens osténdere desidérium, quod erga nos habet. Proptérea semetípsum nobis immí-
+NEcessárium est, dilectíssimi, mystériórum díscere miráculum, quodnam sit, et quare sit datum, et quæ ejus rei utílitas. Unum corpus efficímur: membra, inquit, ex carne ejus et ex óssibus ejus. Sequámur autem initiáti, quæ dicúntur. Ut ítaque non tantum per caritátem hoc fiámus, verum étiam ipsa re, in illam misceámur carnem: hoc namque per escam efficítur, quam largítus est nobis, volens osténdere desidérium, quod erga nos habet. Proptérea semetípsum nobis immíscuit, et corpus suum in nos contemperávit, ut unum quid simus tamquam corpus cápiti coaptátum; ardénter enim amántium hoc est.
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite.
+
+##### Lectio v
+
+TAmquam leónes ígitur ignem spirántes ab illa mensa recedámus, facti diábolo terríbiles, et caput nostrum mente revolvéntes, et caritátem quam erga nos osténdit. Nam paréntes quidem áliis sæpe fílios tradunt aléndos: ego autem, inquit, non ita, sed cárnibus meis alo, et meípsum vobis appóno, vos omnes generósos esse volens, et spem bonam de futúris vobis præbens: quippe qui vobis hic meípsum trádidi, multo magis id in futúro fáciam. Vólui frater vester fíeri, carni propter vos et sánguini communicávi: vobis vicíssim ipsam carnem et sánguinem, per quæ cognátus vester factus sum, trado.
+
+℟. Accépit Jesus cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: \* Hoc fácite in meam commemoratiónem. ℣. Memória memor ero, et tabéscet in me ánima mea. — Hoc.
+
+##### Lectio vi
+
+ATtendámus ítaque nobis ipsis, dilectíssimi, tálibus fruéntes bonis: et, cum áliquid turpe dícere voluérimus, vel nos ab ira córripi vidérimus, vel álio quópiam hujúsmodi vítio considerémus, quibus facti sumus digni; talísque cogitátio nobis irrationabílium mótuum sit corréctio. Quotquot ígitur hujus partícipes córporis efficímur, quotquot sánguinem degustámus; cogitémus, quod illum sursum sedéntem, qui ab Angelis adorátur incorruptíbili vicínus virtúti, hunc degustámus. Hei mihi, quot ad salútem nobis viæ! Nos corpus suum efficit; nobis suum communicávit corpus: et horum nos nihil a malis avértit.
+
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum

@@ -42870,3 +42870,27 @@ SCIMUS quóniam diligéntibus Deum ómnia cooperántur in bonum, iis qui secúnd
 {RUBRIC: Completorium de Dominica.}
 
 ---
+
+## II Aliæ Lectiones pro Martyribus T. P.
+
+##### In II Nocturno
+
+De Epístola sancti Cypriáni Epíscopi et Mártyris ad Mártyres et Confessóres
+
+{RUBRIC: Liber 2 Epist. 6}
+
+###### Lectio iv
+
+QUIBUS ego vos láudibus prǽdicem, fortíssimi Mártyres? robur péctoris vestri, et perseverántiam fídei, quo præcónio vocis exórnem? Tolerástis usque ad consummatiónem glóriæ duríssimam quæstiónem; nec cessístis supplíciis, sed vobis pótius supplícia cessérunt. Finem dolóribus, quem torménta non dabant, corónæ dedérunt. Laniéna grávior ad hoc diu perseverávit, non ut stantem fidem dejíceret, sed ut hómines Dei ad Deum velócius mítteret.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+VIDIT admírans præséntium multitúdo cæléste certámen, certámen Dei, certámen spiritále, prǽlium Christi: stetísse servos ejus voce líbera, mente incorrúpta, virtúte divína, telis quidem sæculáribus nudos, sed armis fídei ardéntis armátos. Stetérunt torti torquéntibus fortióres; et pulsántes ac laniántes úngulas, pulsáta ac laniáta membra vicérunt. Inexpugnábilem fidem superáre non pótuit sæviens diu plaga repetíta, quamvis, rupta compáge víscerum, torqueréntur in servis Dei jam non membra, sed vúlnera. Fluébat sanguis, qui incéndium persecutiónis exstíngueret, qui flammas et ignes gehénnæ glorióso cruóre sopíret.
+
+℟. In servis suis, allelúja, \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+O QUALE illud fuit spectáculum Dómino, quam sublíme, quam magnum, quam Dei óculis sacraménto ac devotióne mílitis ejus accéptum! sicut scriptum est in Psalmis, Spíritu Sancto loquénte ad nos páriter et monénte: Pretiósa est in conspéctu Dómini mors justórum ejus. Pretiósa mors hæc est, quæ emit immortalitátem prétio sui sángui-

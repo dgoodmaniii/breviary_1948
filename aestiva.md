@@ -15530,4 +15530,22 @@ PHilísthiim autem tulérunt arcam Dei et asportavérunt eam a Lápide adjutóri
 
 ##### Lectio ii
 
-AGgraváta est autem manus Dómini super Azótios, et demolítus est eos. Et ebulliérunt villæ et agri in médio regiónis illíus, et nati sunt mures, et facta est confúsio mortis magnæ in civitáte. Vidéntes autem viri Azótii hujuscémodi plagam dixé-
+AGgraváta est autem manus Dómini super Azótios, et demolítus est eos. Et ebulliérunt villæ et agri in médio regiónis illíus, et nati sunt mures, et facta est confúsio mortis magnæ in civitáte. Vidéntes autem viri Azótii hujuscémodi plagam dixérunt: Non máneat arca Dei Israël apud nos, quóniam dura est manus ejus super nos et super Dagon, deum nostrum. Et mitténtes congregavérunt omnes sátrapas Philisthinórum ad se et dixérunt: Quid faciémus de arca Dei Israël? Responderúntque Gethǽi: Circumducátur arca Dei Israël.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.
+
+##### Lectio iii
+
+ET circumduxérunt arcam Dei Israël. Illis autem circumducéntibus eam, fiébat manus Dómini per síngulas civitátes interfectiónis magnæ nimis; et percutiébat viros uniuscujúsque urbis a parvo usque ad majórem. Misérunt ergo arcam Dei in Accaron. Cumque venísset arca Dei in Accaron, exclamavérunt Accaronítæ dicéntes: Adduxérunt ad nos arcam Dei Israël, ut interfíciat nos et pópulum nostrum. Misérunt ítaque et congregavérunt omnes sátrapas Philisthinórum, qui dixérunt: Dimíttite arcam Dei Israël, et revertátur in locum suum et non interfíciat nos cum pópulo nostro. Fiébat enim pavor mortis in síngulis úrbibus et gravíssima valde manus Dei.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória. Et.
+
+#### In II Nocturno
+
+{RUBRIC: De Sermóne sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Eadem Homilía 60}
+
+##### Lectio iv
+
+UNicuíque fidélium Christus semetípsum per mystéria commíscet, et quos génuit, per semetípsum enútrit, nec álteri tradit; per hoc tibi rursum persuádens, quod carnem tuam assúmpsit. Ne torpeámus ígitur tanta digni caritáte et honóre putáti. Nonne vidétis, quanta promptitúdine párvuli papíllas cápiunt, et quanto ímpetu lábia ubéribus infígunt? Accedámus cum tanta nos quoque alacritáte ad hanc mensam et ad úbera póculi spiritális: quinímmo cum longe majóri trahámus, tamquam infántes lactén-

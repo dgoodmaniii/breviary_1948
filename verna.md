@@ -35850,4 +35850,50 @@ De Epístola ad Colossénses
 
 IN Christo inhábitat omnis plenitúdo divinitátis corporáliter: et estis in illo repléti, qui est caput omnis principátus et potestátis; in quo et circumcísi estis circumcisióne non manu facta in exspoliatióne córporis carnis, sed in circumcisióne Christi; consepúlti ei in baptísmo, in quo et resurrexístis per fidem operatiónis Dei, qui suscitávit illum a mórtuis. Et vos, cum mórtui essétis in delíctis et præpútio carnis vestræ, convivificávit cum illo, donans vobis ómnia delícta: delens quod advérsus nos erat chirógraphum decréti, quod erat contrárium nobis, et ipsum tulit de médio, affígens illud cruci: et exspólians principátus, et potestátes tradúxit confidénter, palam triúmphans illos in semetípso.
 
-℟. Hæc est arbor digníssima, in paradísi médio situáta, \* In qua salútis auctor própria morte mortem ómnium superávit, allelúja, allelúja. ℣. Crux
+℟. Hæc est arbor digníssima, in paradísi médio situáta, \* In qua salútis auctor própria morte mortem ómnium superávit, allelúja, allelúja. ℣. Crux præcellénti decóre fúlgida, quam Hélena Constantíni mater concupiscénti ánimo requisívit. — In qua salútis auctor própria morte mortem ómnium superávit, allelúja, allelúja. Glória Patri. In.
+
+##### In II Nocturno
+
+**Ant.** Felix ille triúmphus \* fit salus ægris, vitæ lignum, mortis remédium, allelúja.
+
+###### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+###### Psalmus 5
+
+VERBA mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo: \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus: \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem: \* perdes omnes, qui loquúntur mendácium.
+
+Virum sánguinum et dolósum abominábitur Dóminus: \* ego autem in multitúdine misericórdiæ tuæ.
+
+Introíbo in domum tuam: \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua: \* propter inimícos meos dírige in conspéctu tuo viam meam.

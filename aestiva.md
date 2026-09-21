@@ -19456,4 +19456,18 @@ Ex Tractátu sancti Ambrósii Epíscopi in Psalmum centésimum décimum octávum
 
 ##### Lectio iv
 
-INítium esse sapiéntiæ timórem Dómini, dicit Prophéta. Quid est autem inítium sapiéntiæ, nisi sæculo renuntiáre? Quia sápere sæculária, stultítia est. Dénique sapiéntiam hujus mundi, stultítiam esse
+INítium esse sapiéntiæ timórem Dómini, dicit Prophéta. Quid est autem inítium sapiéntiæ, nisi sæculo renuntiáre? Quia sápere sæculária, stultítia est. Dénique sapiéntiam hujus mundi, stultítiam esse apud Deum, Apóstolus dicit. Sed et ipse timor Dómini, nisi secúndum sciéntiam sit, nihil prodest, immo obest plúrimum. Síquidem Judǽi habent zelum Dei: sed quia non habent secúndum sciéntiam, in ipso zelo et timóre majórem cóntrahunt divinitátis offénsam. Quod circumcídunt infántulos suos, quod sábbata custódiunt, timórem Dei habent; sed quia nésciunt legem spiritálem esse, circumcídunt corpus, non cor suum.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio v
+
+ET quid de Judǽis dico? Sunt étiam in nobis, qui habent timórem Dei, sed non secúndum sciéntiam, statuéntes durióra præcépta, quæ non possit humána condítio sustinére. Timor in eo est, quia vidéntur sibi consúlere disciplínæ, opus virtútis exígere; sed inscítia in eo est, quia non compatiúntur natúræ, non æstimant possibilitátem. Non sit ergo irrationábilis timor. Etenim vera sapiéntia a timóre Dei íncipit, nec est sapiéntia spiritális sine timóre Dei: ita timor sine sapiéntia esse non debet.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+##### Lectio vi
+
+BAsis quædam verbi est timor sanctus. Sicut enim simulácrum áliquod in basi statúitur, et tunc majórem habet grátiam, cum in basi státua fúerit collocáta, standíque áccipit firmitátem: ita verbum Dei in timóre sancto mélius statúitur, fórtius radicátur in péctore timéntis Dóminum; ne labátur verbum de corde viri, ne véniant vólucres et áuferant illud de incuriósi et dissimulántis afféctu.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déne-

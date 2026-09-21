@@ -38335,3 +38335,57 @@ PHILIPPUS Nérius, piis honestísque paréntibus Floréntiæ natus, ampla pátru
 ELEUTHERIUS, Nicópoli in Grǽcia natus, Anicéti Pontíficis diáconus, Cómmodo imperatóre, præfuit Ecclésiæ. Huic, inítio pontificátus, súpplices lítteræ venérunt a Lúcio Britannórum rege, ut se ac suos in Christianórum númerum recíperet. Quam ob rem Fugátium et Damiánum, doctos et pios viros, misit in Británniam, per quos rex et réliqui fidem suscíperent. Hoc Pontífice, Irenǽus Polycárpi discípulus, Romam véniens, ab eo benígne accéptus est. Quo témpore summa pace et quiéte fruebátur Ecclésia Dei; ac per totum orbem terrárum, máxime Romæ fides propagabátur. Vixit Eleuthérius in pontificátu annos quíndecim, dies vigínti tres. Fecit ordinatiónes tres mense Decémbri, quibus creávit presbýteros duódecim, diáconos octo, epíscopos per divérsa loca quíndecim: sepultúsque est in Vaticáno prope corpus sancti Petri.
 
 {RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Philíppum Confessórem tuum Sanctórum tuórum glória sublimásti: concéde propítius; ut cujus solemnitáte lætámur, ejus virtútum proficiámus exémplo. Per Dóminum.
+
+{RUBRIC: Post Com. Feriæ in Feria II Rogationum et in Vigília Ascensionis, fit Com. S. Eleutherii Papæ et Mart.:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Eleuthérium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commem. præced. ac S. Joannis I Papæ et Mart.}
+
+---
+
+### Die 27 Maji
+
+#### S. Bedæ Venerabilis
+
+{RUBRIC: Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex (m. t. v.) [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Beda, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne clarificas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui beátum, ut supra.
+
+{RUBRIC: Deinde Commem. S. Joannis I Papæ et Mart.:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.

@@ -12377,3 +12377,61 @@ Excita furórem, et effúnde iram. \* Tolle adversárium, et afflíge inimícum.
 Festína tempus, et meménto finis, \* ut enárrent mirabília tua.
 
 In ira flammæ devorétur qui salvátur: \* et qui péssimant plebem tuam, invéniant perditiónem.
+
+Cóntere caput príncipum inimicórum, \* dicéntium: Non est álius præter nos.
+
+Cóngrega omnes tribus Jacob: ut cognóscant quia non est Deus nisi tu, \* et enárrent magnália tua:
+
+Et hereditábis eos, \* sicut ab inítio.
+
+Miserére plebi tuæ, super quam invocátum est nomen tuum: \* et Israël, quem coæquásti primogénito tuo.
+
+Miserére civitáti sanctificatiónis tuæ Jerúsalem, \* civitáti requiéi tuæ.
+
+Reple Sion inenarrabílibus verbis tuis, \* et glória tua pópulum tuum.
+
+**Ant.** Osténde nobis, Dómine, lucem miseratiónum tuárum.
+
+**Ant.** Omnis spíritus \* laudet Dóminum.
+
+### Psalmus 150
+
+LAudáte Dóminum in sanctis ejus: \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus: \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ: \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro: \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus: laudáte eum in cýmbalis jubilatiónis: \* omnis spíritus laudet Dóminum.
+
+**Ant.** Omnis spíritus laudet Dóminum.
+
+*In Officio Festi vel Octávæ ac sanctæ Maríæ in Sabbato Capítulum, Hymnus, Versus, Ant. ad Benedictus et Orátio ut in Próprio vel Communi.*
+
+{RUBRIC: Réliqua ut in Ordinário. 19}
+
+---
+
+## Ad Laudes II
+
+*In Vigíliis commúnibus, quando fit Officium de Feria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Benígne fac, Dómine.
+
+### Psalmus 50
+
+MIserére mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.

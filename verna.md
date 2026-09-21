@@ -35136,4 +35136,16 @@ De Sermóne sancti Bernárdi Abbátis
 
 #### Lectio iv
 
-SCRIPTUM est: Joseph autem vir ejus, cum esset justus et nollet eam tradú-
+SCRIPTUM est: Joseph autem vir ejus, cum esset justus et nollet eam tradúcere, vóluit occúlte dimíttere eam. Bene, cum esset justus, nóluit eam tradúcere: quia, sicut nequáquam justus esset, si cógnitam ream consensísset; sic nihilóminus justus non esset, si probátam innóxiam condemnásset. Cum ergo justus esset et nollet eam tradúcere, vóluit occúlte dimíttere eam. Quare vóluit dimíttere? Accipe, et in hoc, non meam, sed Patrum senténtiam. Propter hoc Joseph vóluit dimíttere eam, propter quod et Petrus Dóminum a se repellébat, dicens: Exi a me, Dómine, quia homo peccátor sum; propter quod et centúrio a domo sua eum prohibébat, cum díceret: Dómine, non sum dignus, ut intres sub tectum meum.
+
+℟. Dedísti mihi protectiónem salútis tuæ et déxtera tua suscépit me: \* Protéctor meus et cornu salútis meæ et susceptor meus, allelúja. ℣. Ego protéctor tuus sum et merces tua magna nimis. — Protéctor.
+
+#### Lectio v
+
+ITA ergo et Joseph, indígnum et peccatórem se réputans, dicébat intra se, a tali et tanta non debére sibi ultra familiáre præstári contubérnium, cujus supra se mirábilem expavescébat dignitátem. Vidébat et horrébat divínæ præséntiæ certíssimum gestántem insígne; et quia mystérium penetráre non póterat, volébat dimíttere eam. Expávit Petrus poténtiæ magnitúdinem: expávit centúrio præséntiæ majestátem: exhórruit nimírum et Joseph, sicut homo, hujus tanti miráculi novitátem. Miráris quod Joseph prægnántis se consórtio Vírginis judicábat indígnum, cum áudias et sanctam Elísabeth ejus non posse ferre præséntiam, nisi cum tremóre quidem et reveréntia? Ait namque: Unde hoc mihi, ut véniat Mater Dómini mei ad me?
+
+℟. Státuet fílios suos sub tégmine illíus et sub ramis ejus morábitur; protegétur sub tégmine illíus a fervóre: \* Et in glória ejus requiéscet, allelúja. ℣. Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra. — Et.
+
+#### Lectio vi
+
+IDEO ítaque Joseph vóluit dimíttere eam. Sed quare occúlte, et non palam? Ne vidélicet divórtii causa inquirerétur, exigerétur rátio. Quid enim vir justus respondéret pópulo

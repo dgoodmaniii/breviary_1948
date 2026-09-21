@@ -15080,4 +15080,24 @@ VEnit autem vir Dei ad Heli et ait ad eum: Hæc dicit Dóminus: Numquid non apé
 
 ##### Lectio ii
 
-PRoptérea ait Dóminus, Deus Israël: Loquens locútus sum, ut domus tua et domus patris tui ministráret in conspéctu meo usque in sempitérnum; nunc autem dicit Dóminus: Absit hoc a me; sed quicúmque glorificáverit me, glorificábo eum; qui autem contémnunt me, erunt ignóbiles. Ecce dies véniunt, et præcídam bráchium tuum et bráchium domus patris tui, ut non sit senex in domo tua. Et vidébis æmulum tuum in templo, in univérsis prósperis Israël; et non erit senex in domo tua ómnibus diébus. Verúmtamen non áuferam pénitus virum ex te ab altári meo; sed ut defíciant óculi tui,
+PRoptérea ait Dóminus, Deus Israël: Loquens locútus sum, ut domus tua et domus patris tui ministráret in conspéctu meo usque in sempitérnum; nunc autem dicit Dóminus: Absit hoc a me; sed quicúmque glorificáverit me, glorificábo eum; qui autem contémnunt me, erunt ignóbiles. Ecce dies véniunt, et præcídam bráchium tuum et bráchium domus patris tui, ut non sit senex in domo tua. Et vidébis æmulum tuum in templo, in univérsis prósperis Israël; et non erit senex in domo tua ómnibus diébus. Verúmtamen non áuferam pénitus virum ex te ab altári meo; sed ut defíciant óculi tui, et tabéscat ánima tua, et pars magna domus tuæ moriétur, cum ad virílem ætátem vénerit.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.
+
+##### Lectio iii
+
+HOC autem erit tibi signum, quod ventúrum est duóbus fíliis tuis, Ophni et Phínees; in die uno moriéntur ambo. Et suscitábo mihi sacerdótem fidélem, qui juxta cor meum et ánimam meam fáciet; et ædificábo ei domum fidélem, et ambulábit coram Christo meo cunctis diébus. Futúrum est autem, ut, quicúmque remánserit in domo tua, véniat ut orétur pro eo, et ófferat nummum argénteum et tortam panis, dicátque: Dimítte me, óbsecro, ad unam partem sacerdotálem, ut cómedam buccéllam panis.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória Patri.
+
+#### In II Nocturno
+
+{RUBRIC: De Sermóne sancti Thomæ Aquinátis}
+
+{RUBRIC: Idem Opúsculum 57}
+
+##### Lectio iv
+
+COnvenit ítaque devotióni fidélium, solémniter recólere institutiónem tam salutíferi tamque mirábilis Sacraménti: ut ineffábilem modum divínæ præséntiæ in Sacraménto visíbili venerémur; et laudétur Dei poténtia, quæ in Sacraménto eódem tot mirabília operátur; nec non et de tam salúbri tamque suávi benefício exsolvántur Deo gratiárum débitæ actiónes. Verum etsi in die Cœnæ, quando Sacraméntum prædíctum nóscitur institútum, inter Missárum solémnia de institutióne ipsíus speciális méntio habeátur; totum tamen resíduum ejúsdem diéi offícium ad Christi passiónem pértinet, circa cujus veneratiónem Ecclésia illo témpore occupátur.
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri taberná-

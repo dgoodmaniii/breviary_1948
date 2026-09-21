@@ -9268,3 +9268,71 @@ ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, ne
 ##### In Officiis B. Mariæ V.
 
 IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dícitur tantum} Pater noster {RUBRIC: secréto, nisi sequátur ália Hora.}
+
+---
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Quam bonus. †
+
+### Psalmus 72, i
+
+QUam bonus † Israël Deus, \* his qui recto sunt corde!
+
+Mei autem pæne moti sunt pedes: \* pæne effúsi sunt gressus mei.
+
+Quia zelávi super iníquos, \* pacem peccatórum videns.
+
+Quia non est respéctus morti eórum: \* et firmaméntum in plaga eórum.
+
+In labóre hóminum non sunt, \* et cum homínibus non flagellabúntur:
+
+Ideo ténuit eos supérbia, \* opérti sunt iniquitáte et impietáte sua.
+
+Pródiit quasi ex ádipe iníquitas eórum: \* transiérunt in afféctum cordis.
+
+Cogitavérunt, et locúti sunt nequítiam: \* iniquitátem in excélso locúti sunt.
+
+Posuérunt in cælum os suum: \* et lingua eórum transívit in terra.
+
+### Psalmus 72, ii
+
+IDeo convertétur pópulus meus hic: \* et dies pleni inveniéntur in eis.
+
+Et dixérunt: Quómodo scit Deus, \* et si est sciéntia in excélso?
+
+Ecce, ipsi peccatóres, et abundántes in sæculo, \* obtinuérunt divítias.
+
+Et dixi: Ergo sine causa justificávi cor meum, \* et lavi inter innocéntes manus meas:
+
+Et fui flagellátus tota die, \* et castigátio mea in matutínis.

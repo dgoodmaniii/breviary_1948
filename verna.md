@@ -36245,4 +36245,24 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-MONICA, sancti Augustíni piíssima mater, uxórum et viduárum ex-
+MONICA, sancti Augustíni piíssima mater, uxórum et viduárum exémplar, fílium Manichæum Mediolánum secúta, postquam assíduis oratiónibus, lácrimis et jejúniis, ope Ambrósii epíscopi, eum Christo lucrifécit, cum ipso in Africam rédiens, ad Ostia Tiberína in febrem íncidit, et nono die placidíssime óbiit. De cujus morte mærens fílius dísserens subdit: Neque enim decére arbitrabámur funus illud quéstubus lacrimósis gemitibúsque celebráre, quia illa nec mísere, nec omníno moriebátur: hoc et documéntis morum ejus, et fide non ficta rationibúsque certis tenebámus. Atque inde paulátim reducébam in prístinum sensum ancíllam tuam, conversatiónémque ejus piam in te et sanctam, in nos blandam atque morígeram, qua súbito destitútus sum; et líbuit flere de illa et pro illa. Et si quis peccátum invénerit flevísse me matrem óculis meis mórtuam, quæ me multos annos fléverat, ut óculis suis víverem, non irrídeat; sed pótius, si est grandi caritáte, pro peccátis meis fleat ipse ad te Patrem ómnium fratrum Christi tui. Ejus corpus, in ecclésia sanctæ Aureæ prius sepúltum, póstea, Martíno quinto summo Pontífice, Romam translátum, in ecclésia sancti Augustíni honorífice cónditum est.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+**Lectio vii** *Cap. 7, 11-16*
+
+IN illo témpore: Ibat Jesus in civitátem, quæ vocátur Naim; et ibant cum eo discípuli ejus et turba copiósa. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 44 de verbis Dómini, circa initium}
+
+DE júvene illo resuscitáto gavísa est mater vídua; de homínibus in spíritu quotídie suscitátis gaudet mater Ecclésia. Ille quidem mórtuus erat córpore; illi autem mente. Illíus mors visíbilis visibíliter plangebátur; illórum mors invisíbilis nec quærebátur, nec videbátur. Quæsívit ille, qui nóverat mórtuos. Ille solus nóverat mórtuos, qui póterat fácere vivos. Nisi enim ad mórtuos suscitándos venísset, Apóstolus non díceret: Surge, qui dormis, et exsúrge a mórtuis, et illumínábit te Christus.
+
+℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ

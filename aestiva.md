@@ -9448,3 +9448,58 @@ Ut quid avértis manum tuam, et déxteram tuam, \* de médio sinu tuo in finem?
 Deus autem Rex noster ante sæcula: \* operátus est salútem in médio terræ.
 
 Tu confirmásti in virtúte tua mare: \* contribulásti cápita dracónum in aquis.
+
+Tu confregísti cápita dracónis: \* dedísti eum escam pópulis Æthíopum.
+
+Tu dirupísti fontes, et torréntes: \* tu siccásti flúvios Ethan.
+
+Tuus est dies, et tua est nox: \* tu fabricátus es auróram et solem.
+
+Tu fecísti omnes términos terræ: \* æstátem et ver tu plasmásti ea.
+
+### Psalmus 73, iii
+
+MEmor esto hujus, inimícus improperávit Dómino: \* et pópulus insípiens incitávit nomen tuum.
+
+Ne tradas béstiis ánimas confiténtes tibi, \* et ánimas páuperum tuórum ne oblivíscáris in finem.
+
+Réspice in testaméntum tuum: \* quia repléti sunt, qui obscuráti sunt terræ dómibus iniquitátum.
+
+Ne avertátur húmilis factus confúsus: \* pauper et inops laudábunt nomen tuum.
+
+Exsúrge, Deus, júdica causam tuam: \* memor esto improperiórum tuórum, eórum quæ ab insipiénte sunt tota die.
+
+Ne obliviscáris voces inimicórum tuórum: \* supérbia eórum, qui te odérunt, ascéndit semper.
+
+**Ant.** Memor esto congregatiónis tuæ, Dómine, quam possedísti ab inítio.
+
+#### In Officio feriali
+
+**Capitulum** *Rom. 13, 8*
+
+NEmini quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 20}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,

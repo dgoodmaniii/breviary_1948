@@ -46332,4 +46332,30 @@ ET conféstim, inquit, vidit, et sequebátur illum, magníficans Dóminum. Alite
 
 ###### Lectio viii
 
-DISCANT dívites non in facultátibus crimen hærére, sed in iis, qui uti nésciant facultátibus. Nam divítiæ ut impedimenta ímprobis, ita bonis sunt adjuménta virtútis. Dives certe Zachǽus, et eléctus a Christo; sed dimídium bonórum suórum pauperíbus largiéndo, reddéndo étiam in quádruplum, quæ fraude sustúlerat (álterum enim non sat est nec habet grátiam liberálitas, si injúria persevérat; quia non spólia, sed bona quærún-
+DISCANT dívites non in facultátibus crimen hærére, sed in iis, qui uti nésciant facultátibus. Nam divítiæ ut impedimenta ímprobis, ita bonis sunt adjuménta virtútis. Dives certe Zachǽus, et eléctus a Christo; sed dimídium bonórum suórum pauperíbus largiéndo, reddéndo étiam in quádruplum, quæ fraude sustúlerat (álterum enim non sat est nec habet grátiam liberálitas, si injúria persevérat; quia non spólia, sed bona quærúntur), uberiórem mercédem quam conferébat, accépit.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+ET bene princeps indúcitur publicanórum. Quis jam de se despéret, quando et iste, cui census ex fraude, ad salútem pervénit? Et ipse, inquit, dives. Ut scias non omnes dívites, aváros. Quia statúra pusíllus erat. Quid sibi vult, quod nullíus altérius statúram Scriptúra, nisi hujus expréssit? Vide, ne forte malítia pusíllus, aut adhuc pusíllus fide. Nondum enim réddere promíserat, nondum víderat Christum; mérito adhuc pusíllus. Joánnes autem magnus, quia et Christum vidit, et Spíritum sicut colúmbam super Christum manéntem, sicut ipse ait: Vidi Spíritum descendéntem sicut colúmbam, et manéntem super eum.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## Die III infra Octavam Dedicationis Ecclesiæ
+
+{RUBRIC: Semiduplex}
+
+##### In II Nocturno
+
+Sermo sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 256 de Tempore}
+
+###### Lectio iv
+
+CELEBRITAS hujus congregatiónis, dedicátio est domus oratiónis. Domus ergo nostrárum oratiónum ista, domus autem Dei nos ipsi. Si domus Dei nos ipsi, nos in hoc sǽculo ædificámur, ut in fine sǽculi dedicémur. Ædifícium, immo ædificátio habet labórem; dedicátio exsultatiónem. Quod hic fiébat, quando ista surgébant; hoc fit modo, cum congregántur credéntes in Christum. Credéndo enim, quasi de silvis et móntibus ligna et lápides præcidúntur; cum vero catechizántur, baptizántur, formántur, tamquam inter manus fabrórum et opíficum dolántur, collineántur, complanántur. Verúmtamen domum Dómini non fáciunt, nisi quando caritáte compaginántur.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. (T. P. Alle-

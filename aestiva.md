@@ -16533,3 +16533,51 @@ HUjus rei grátia flecto génua mea ad Patrem Dómini nostri Jesu Christi, ut de
 ℟. br. Ego dixi, Dómine, \* Miserére mei. Ego dixi. ℣. Sana ánimam meam quia peccávi tibi. Miserére mei. Glória Patri. Ego dixi.
 
 ℣. Memóriam fecit mirabílium suórum miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+### Ad Nonam
+
+**Ant.** Fili, \* præbe mihi cor tuum et óculi tui custódiant vias meas.
+
+**Capit.** *Ephes. 3, 17-19*
+
+IN caritáte radicáti et fundáti, ut possítis comprehéndere cum ómnibus sanctis, quæ sit latitúdo et longitúdo, et sublímitas et profúndum; scire étiam supereminéntem sciéntiæ caritátem Christi, ut impleámini in omnem plenitúdinem Dei.
+
+℟. br. Memóriam fecit mirabílium suórum \* Miserátor Dóminus. Memóriam. ℣. Escam dedit timéntibus se. Miserátor. Glória Patri. Memóriam.
+
+℣. Hauriétis aquas in gáudio. ℟. De fóntibus Salvatóris.
+
+### In II Vesperis
+
+**Ant.** Unus mílitum \* láncea latus ejus apéruit et contínuo exívit sanguis et aqua.
+
+##### Psalmus 109
+
+DIxit Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* quassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Unus mílitum láncea latus ejus apéruit et contínuo exívit sanguis et aqua.
+
+**Ant.** Stans Jesus \* clamábat dicens: Si quis sitit véniat ad me et bibat.
+
+##### Psalmus 110
+
+COnfitébor tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.

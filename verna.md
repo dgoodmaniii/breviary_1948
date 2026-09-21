@@ -44611,3 +44611,25 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 **Absolutio** Exáudi, Dómine.
 
 **Benedictio** Benedictióne.
+
+De Epístola prima beáti Pauli Apóstoli ad Corínthios
+
+**Lectio i** *Cap. 7, 25-40*
+
+DE virgínibus præcéptum Dómini non hábeo: consílium autem do, tamquam misericórdiam consecútus a Dómino, ut sim fidélis. Exístimo ergo hoc bonum esse propter instántem necessitátem, quóniam bonum est hómini sic esse. Alligátus es uxóri? noli quǽrere solutiónem. Solútus es ab uxóre? noli quǽrere uxórem. Si autem accéperis uxórem, non peccásti. Et si núpserit virgo, non peccávit. Tribulatiónem tamen carnis habébunt hujúsmodi. Ego autem vobis parco. Hoc ítaque dico, fratres: Tempus breve est: réliquum est, ut et qui habent uxóres, tamquam non habéntes sint; et qui flent, tamquam non fléntes; et qui gaudent, tamquam non gaudéntes; et qui emunt, tamquam non possidéntes; et qui utúntur hoc mundo, tamquam non utántur; prǽterit enim figúra hujus mundi.
+
+##### Pro Virgine Martyre
+
+℟. Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum; pro cujus amóre sánguinem tuum fudísti, \* Et cum Angelis in paradísum introísti. (T. P. Allelúja.) ℣. Veni, elécta mea, et ponam in te thronum meum; quia concupívit Rex spéciem tuam. — Et.
+
+##### Pro Virgine non Martyre
+
+℟. Veni, elécta mea, et ponam in te thronum meum: \* Quia concupívit Rex spéciem tuam. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Quia.
+
+**Bened.** Unigénitus Dei.
+
+###### Lectio ii
+
+VOLO autem vos sine sollicitúdine esse. Qui sine uxóre est, sollícitus est quæ Dómini sunt, quómodo pláceat Deo. Qui autem cum uxóre est, sollícitus est quæ sunt mundi, quómodo pláceat uxóri, et divísus est. Et múlier innúpta, et virgo cógitat quæ Dómini sunt, ut sit sancta córpore et spíritu. Quæ autem nupta est, cógitat quæ sunt mundi, quómodo pláceat viro. Porro hoc ad utilitátem vestram dico, non ut láqueum vobis injíciam, sed ad id, quod honéstum est, et quod facultátem prǽbeat sine impediménto Dóminum obsecrándi.
+
+℟. Diffúsa est grátia in lábiis tuis, \* Proptérea be-

@@ -47992,4 +47992,60 @@ Ave María, ut supra.
 
 *Eccli. 24, 16*
 
-ET radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus,
+ET radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea. ℟. Deo grátias.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+CONCEDE, miséricors Deus, fragilitáti nostræ præsídium: ut, qui sanctæ Dei Genitrícis memóriam ágimus; intercessiónis ejus auxílio, a nostris iniquitátibus resurgámus. Per eúmdem Dóminum.
+
+##### Ad Nonam
+
+Ave María, ut supra.
+
+℣. Deus, in adjutórium.
+
+**Hymnus** Meménto. [220]
+
+**Ant.** Pulchra es.
+
+**Ps. 125** In converténdo 158; **Ps. 126** Nisi Dóminus 159; **Ps. 127** Beáti omnes. 202
+
+**Ant.** Pulchra es et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+###### Capitulum
+
+*Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris. ℟. Deo grátias.
+
+℣. Post partum, Virgo, invioláta permansísti. ℟. Dei Génitrix, intercéde pro nobis.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+FAMULORUM tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui, Dómini nostri, intercessióne salvémur: Qui tecum vivit.
+
+---
+
+## II In Festo Annuntiationis
+
+{RUBRIC: Omnia dicuntur ut supra [216] notatur, præter sequentia:}
+
+##### In Vesperis
+
+{RUBRIC: Antiphonæ et Capitulum de Laudibus. [224]}
+
+**Ad Magnif. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei. (T. P. Allelúja.)
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.

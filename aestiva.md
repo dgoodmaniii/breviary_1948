@@ -4785,4 +4785,52 @@ Et lingua mea meditábitur justítiam tuam, \* tota die laudem tuam.
 
 NOLI æmulári in malignántibus: \* neque zeláveris faciéntes iniquitátem.
 
-Quóniam tamquam fœnum velóciter aréscent: \*
+Quóniam tamquam fœnum velóciter aréscent: \* et quemádmodum ólera herbárum cito décident.
+
+Spera in Dómino, et fac bonitátem: \* et inhábita terram, et pascéris in divítiis ejus.
+
+Delectáre in Dómino: \* et dabit tibi petitiónes cordis tui.
+
+Revéla Dómino viam tuam, et spera in eo: \* et ipse fáciet.
+
+Et edúcet quasi lumen justítiam tuam: et judícium tuum tamquam merídiem: \* súbditus esto Dómino, et ora eum.
+
+Noli æmulári in eo, qui prosperátur in via sua: \* in hómine faciénte injustítias.
+
+Désine ab ira, et derelínque furórem: \* noli æmulári ut malignéris.
+
+Quóniam qui malignántur, exterminabúntur: \* sustinéntes autem Dóminum, ipsi hereditábunt terram.
+
+Et adhuc pusíllum, et non erit peccátor: \* et quæres locum ejus, et non inviénies.
+
+Mansuéti autem hereditábunt terram: \* et delectabúntur in multitúdine pacis.
+
+Observábit peccátor justum: \* et stridébit super eum déntibus suis.
+
+Dóminus autem irridébit eum: \* quóniam próspicit quod véniet dies ejus.
+
+Gládium evaginavérunt peccatóres: \* intendérunt arcum suum.
+
+Ut dejíciant páuperem et ínopem: \* ut trucídent rectos corde.
+
+Gládius eórum intret in corda ipsórum: \* et arcus eórum confringátur.
+
+**Ant.** Noli æmulári in eo, qui prosperátur, et facit iniquitátem.
+
+**Ant.** Bráchia peccatórum \* conteréntur: confírmat autem justos Dóminus.
+
+### Psalmus 36, ii
+
+MELIUS est módicum justo, \* super divítias peccatórum multas.
+
+Quóniam bráchia peccatórum conteréntur: \* confírmat autem justos Dóminus.
+
+Novit Dóminus dies immaculatórum: \* et heréditas eórum in ætérnum erit.
+
+Non confundéntur in témpore malo, et in diébus famis saturabúntur: \* quia peccatóres períbunt.
+
+Inimíci vero Dómini mox ut honorificáti fúerint et exaltáti: \* deficiéntes, quemádmodum fumus defícient.
+
+Mutuábitur peccátor, et non solvet: \* justus autem miserétur et tríbuet.
+
+Quia benedicéntes ei hereditábunt terram: \* maledicéntes autem ei períbunt.

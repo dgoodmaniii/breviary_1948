@@ -28437,4 +28437,18 @@ Léctio sancti Evangélii secúndum Joánnem
 
 *Cap. 6, 44-52*
 
-IN illo témpore: Dixit Jesus turbis Judæórum: Nemo potest veníre ad me,
+IN illo témpore: Dixit Jesus turbis Judæórum: Nemo potest veníre ad me, nisi Pater, qui misit me, tráxerit eum. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tract. 26 in Joannem, post initium}
+
+NOLI cogitáre te invítum trahi: tráhitur ánimus et amóre. Nec timére debémus ne ab homínibus, qui verba perpéndunt et a rebus máxime divínis intelligéndis longe remóti sunt, in hoc Scripturárum sanctárum evangélico verbo fórsitan reprehendámur, et dicátur nobis: Quómodo voluntáte credo, si trahor? Ego dico: Parum est voluntáte: étiam voluptáte tráheris. Quid est, trahi voluptáte? Delectáre in Dómino: et dabit tibi petitiónes cordis tui. Est quædam volúptas cordis, cui panis dulcis est ille cæléstis. Porro si poétæ dícere lícuit: Trahit sua quemque volúptas: non necéssitas, sed volúptas: non obligátio, sed delectátio: quanto fórtius nos dícere debémus, trahi hóminem ad Christum, qui delectátur veritáte, delectátur beatitúdine, delectátur justítia, delectátur sempitérna vita, quod totum Christus est? An vero habent córporis sensus voluptátes suas, et ánimus deséritur a voluptátibus suis? Si ánimus non habet voluptátes suas, unde dícitur: Fílii autem hóminum sub tégmine alárum tuárum sperábunt: inebriabúntur ab ubertáte domus tuæ, et torrénte voluptátis tuæ potábis eos. Quóniam apud te est fons vitæ: et in lúmine tuo vidébimus lumen.
+
+℟. Disciplínam et sapiéntiam dócuit eos Dóminus, allelúja: firmávit in illis grátiam Spíritus sui, \* Et intelléctu implévit corda eórum, allelúja. ℣. Repentíno namque sónitu Spíritus Sanctus super eos venit. — Et.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+DA amántem, et sentit quod dico: da desiderántem, da esuriéntem, da in ista solitúdine peregrinántem, atque sitiéntem, et fontem ætérnæ pátriæ suspirántem: da talem, et scit quid dicam. Si autem frígido loquor, nescit quid loquor. Tales erant isti, qui ínvicem murmurábant. Pater, inquit, quem tráxerit, venit ad me. Quid est autem, Pater quem tráxerit, cum ipse Christus trahat? Quare vóluit dícere, Pater quem tráxerit? Si trahéndi sumus, ab illo trahámur, cui dicit quædam, quæ díli-

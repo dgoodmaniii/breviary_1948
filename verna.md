@@ -42653,4 +42653,32 @@ DIGNUM et cóngruum est, fratres, ut post lætítiam Paschæ, quam in Ecclésia 
 
 ###### Lectio v
 
-ANNUNTIEMUS, inquam, sanctis Martýribus Domínicæ Paschæ grátiam: ut, dum sepultúræ illíus prædicámus reseráta claustra, et horum sepúlcra reseréntur; dum corpus illíus mórtuum dícimus, tepéntibus venis, súbito viguísse, horum quoque membra jam frígida immortalitátis calóre foveántur. Eadem enim rátio Mártyres súscitat, quæ et Dóminum suscitávit. Nam, sicut viam passiónis
+ANNUNTIEMUS, inquam, sanctis Martýribus Domínicæ Paschæ grátiam: ut, dum sepultúræ illíus prædicámus reseráta claustra, et horum sepúlcra reseréntur; dum corpus illíus mórtuum dícimus, tepéntibus venis, súbito viguísse, horum quoque membra jam frígida immortalitátis calóre foveántur. Eadem enim rátio Mártyres súscitat, quæ et Dóminum suscitávit. Nam, sicut viam passiónis ejus expérti sunt, ita experiéntur et vitæ. Scriptum est enim in Psalmo: Notas mihi fecísti vias vitæ. Hoc útique in resurrectióne ex persóna dícitur Salvatóris; ut, qui dum post mortem ab ínferis redit ad súperos, incípiat notam habére viam vitæ, quæ ante habebátur ignóta.
+
+℟. In servis suis, allelúja, \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+IGNOTA enim erat ante Christi advéntum via vitæ, quæ nullíus adhuc resurgéntis fúerat temeráta vestígio. At, ubi Dóminus resurréxit, nota facta, solo attríta est plurimórum; de quibus sanctus Evangelísta ait: Multórum córpora Sanctórum surrexérunt cum eo, et introiérunt in sanctam civitátem. Unde, cum Dóminus in resurrectióne sua díxerit: Notas mihi fecísti vias vitæ, póssumus et nos jam dícere Dómino: Notas fecísti nobis vias vitæ. Ipse enim nobis notas fecit vias vitæ, qui nobis sémitam manifestávit ad vitam. Notas enim mihi fecit vias vitæ, cum me dócuit fidem, misericórdiam, justítiam, castitátem; his enim pervenítur itinéribus ad salútem.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+##### In III Nocturno
+
+**Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Lætítia sempitérna super cápita eórum, allelúja. ℟. Gáudium et exsultatiónem obtinébunt, allelúja.
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Lectiones sequentes III Nocturni dicuntur in Festo unius Martyris. In Festo autem plurimorum Martyrum Homilia in Evangelium Ego sum vitis, vos palmites, quæ ponitur infra 2 loco. [83]}
+
+Léctio sancti Evangélii secúndum Joánnem
+
+**Lectio vii** *Cap. 15, 1-7*
+
+IN illo témpore: Dixit Jesus discípulis suis: Ego sum vitis vera, et Pa-

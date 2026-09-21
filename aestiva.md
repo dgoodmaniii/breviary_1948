@@ -14358,4 +14358,24 @@ ET ábiit múlier in viam suam et comédit, vultúsque illíus non sunt ámplius
 
 ##### Lectio iii
 
-ET ait ei Elcana vir suus: Fac quod bonum tibi vidétur et mane donec abláctes eum: precórque ut ímpleat Dóminus verbum suum. Mansit ergo múlier et lactávit fílium suum, donec amovéret eum a lacte. Et addúxit eum secum, postquam ablactáverat, in vítulis tribus et tribus módiis farínæ et ámphora vini, et addúxit eum ad domum Dómini in Silo. Puer au-
+ET ait ei Elcana vir suus: Fac quod bonum tibi vidétur et mane donec abláctes eum: precórque ut ímpleat Dóminus verbum suum. Mansit ergo múlier et lactávit fílium suum, donec amovéret eum a lacte. Et addúxit eum secum, postquam ablactáverat, in vítulis tribus et tribus módiis farínæ et ámphora vini, et addúxit eum ad domum Dómini in Silo. Puer autem erat adhuc infántulus. Et immolavérunt vítulum et obtulérunt púerum Heli, et ait Anna: Obsecro, mi dómine, vivit ánima tua, dómine: ego sum illa múlier, quæ steti coram te hic orans Dóminum. Pro púero isto orávi, et dedit mihi Dóminus petitiónem meam quam postulávi eum. Idcírco et ego commodávi eum Dómino cunctis diébus, quibus fúerit commodátus Dómino. Et adoravérunt ibi Dóminum.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+# Feria Quarta
+
+### De libro primo Regum
+
+#### Lectio i
+
+*Cap. 2, 12-21*
+
+POrro fílii Heli, fílii Bélial, nesciéntes Dóminum neque offícium sacerdótum ad pópulum, sed quicúmque immolásset víctimam, veniébat puer sacerdótis dum coqueréntur carnes et habébat fuscínulam tridéntem in manu sua et mittébat eam in lebétem vel in caldáriam aut in ollam sive in cácabum, et omne quod levábat fuscínula tollébat sacérdos sibi. Sic faciébant univérso Israéli veniéntium in Silo.
+
+℟. Peccávi super número arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+ETiam, ántequam adolérent ádipem, veniébat puer sacerdótis et dicébat immolánti: Da mihi carnem ut coquam sacerdóti; non enim accípiam a te carnem coctam sed crudam. Dicebátque illi immolans: Incendátur primum juxta morem hódie adeps, et tolle tibi quantumcúmque desíderat ánima tua. Qui respóndens aiébat ei: Nequáquam; nunc enim dabis, alióquin tollam vi. Erat ergo peccátum puerórum grande nimis coram Dómino, quia

@@ -28992,4 +28992,30 @@ PEREGRINATIONES hujúsmodi fidem, frigescénte sǽculo, excitásse, ánimum ad c
 
 **Ant.** Manus Dómini \* confortávit te, et ídeo eris benedícta in ætérnum.
 
-**Ant.** Noli metúere, \* non enim pro te, sed pro ómni-
+**Ant.** Noli metúere, \* non enim pro te, sed pro ómnibus hæc lex constitúta est.
+
+**Ant.** Benedíxit te Dóminus \* in virtúte sua, quia per te ad níhilum redégit inimícos nostros.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 1, 26-31*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+Homilía sancti Bernárdi Abbátis
+
+{RUBRIC: Homilia 2 super} Missus est
+
+ÆTARE, pater Adam, sed magis tu, o Heva mater, exsúlta, qui, sicut ómnium paréntes, ita ómnium fuístis peremptóres; et, quod infelícius est, prius peremptóres quam paréntes. Ambo, inquam, consolámini super fília, et tali fília; sed illa ámplius de qua malum ortum est prius, cujus oppróbrium in omnes pertransívit mulíeres. Instat namque tempus, quo jam tollátur oppróbrium, nec hábeat vir quid causétur advérsus féminam: qui útique, dum se imprudénter excusáre conarétur, crudéliter illam accusáre non cunctátus est, dicens: Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Proptérea curre, Heva, ad Maríam; curre, mater, ad fíliam; fília pro matre respóndeat: ipsa matris oppróbrium áuferat; ipsa patri pro matre satisfáciat: quia ecce si vir cécidit per féminam, jam non erígitur nisi per féminam.
+
+℟. Tu ergo ínvoca Dóminum, lóquere Regi pro nobis, \* Et líbera nos de morte. ℣. Omnes sitiéntes, veníte ad aquas, et hauriétis salútem a Dómino. — Et.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+###### Lectio viii
+
+QUID dicébas, o Adam? Múlier quam dedísti mihi, dedit mihi de ligno, et comédi. Verba malítiæ sunt hæc, quibus magis áugeas quam déleas culpam. Verúmtamen Sapiéntia vicit malítiam, cum occasiónem véniæ, quam a te Deus interrogándo elícere tentávit, sed non pótuit, in thesáuro indeficiéntis suæ pietátis invénit. Rédditur nempe

@@ -34892,4 +34892,22 @@ HABUIT Joseph erga Christum ardentíssimam caritátem. Quis déneget, óbsecro, 
 
 #### Lectio vi
 
-IDEO prudentíssima Mater, quæ expérta fúerat ejus afféctum, ad Fílium
+IDEO prudentíssima Mater, quæ expérta fúerat ejus afféctum, ad Fílium suum Jesum in templo reinvéntum ait: Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te. Ad hujus verbi intelléctum notándum est, quod duo sapórum génera cóntinet in se Christus, dulcóris et dolóris; et quia sanctíssimus Joseph horum duórum gústuum mirabíliter párticeps fuit, ídeo beáta Virgo vocat eum singuláriter patrem Christi. Hic solum légitur Vírginem Joseph appellásse patrem Jesu: quia sensus dolóris, quem hábuit de Jesu pérdito, verum in eo monstrávit patris afféctum. Si enim secúndum humánas leges divínitus approbátas potest extráneus áliquem adoptáre in fílium, multo magis Dei Fílius datus ipsi Joseph in sua sanctíssima Sponsa sub virgináli matrimónii admirábili sacraménto, debet ejus fílius appellári; et étiam credi quod in eo fúerit gustus paternális amóris atque dolóris respéctu dilécti Jesu.
+
+℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória Patri. Si exsúrgat.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 3, 21-23*
+
+IN illo témpore: Factum est autem, cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.
+
+De Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Liber 2 de Consensu Evang.}
+
+NEQUE proptérea non erat appellándus Joseph pater Christi, quia non eum concumbéndo genúerat; quandóquidem pater esset étiam ejus, quem non ex sua cónjuge procreátum aliúnde adoptásset. Putabátur quidem Christus étiam áliter fílius Joseph, tamquam ex ejus omníno carne progénitus; sed ab eis hoc putabátur, quos Maríæ latébat virgínitas: nam Lucas ait: Et ipse Jesus erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph. Qui tamen Lucas non ejus paréntem solam Maríam, sed ambos paréntes ejus appelláre mínime dubitávit, ubi ait: Puer autem crescébat et confortabátur plenus sapiéntia, et grátia Dei erat

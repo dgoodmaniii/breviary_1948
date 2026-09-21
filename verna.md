@@ -33884,3 +33884,33 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum Ansélmum minístrum tribuísti
 **Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Ansélme, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
 
 {RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 22 Aprilis
+
+#### Ss. Soteris et Caji
+
+{RUBRIC: Pontificum et Martyrum}
+
+{RUBRIC: Semiduplex [74]}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátos Sotérem et Cajum Mártyres tuos atque Summos Pontífices, perpétua protectióne custódi; quos totíus Ecclésiæ præstitísti esse pastóres. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+SOTER, Fundis in Campánia natus, sancívit, ne sacræ vírgines vasa sacra et pallas attíngerent, neve thuris ministério in ecclésia uteréntur. Idem státuit ut Christi corpus in Cœna Dómini sumerétur ab ómnibus, iis excéptis, qui propter grave peccátum id fácere prohiberéntur. Sedit in pontificátu annos tres, menses úndecim, dies decem et octo. Martýrio coronátur sub Marco Aurélio imperatóre, et in cœmetério, quod póstea Callísti dictum est, sepelítur; more majórum mense Decémbri creátis presbýteris decem et octo, diáconis novem, epíscopis per divérsa loca úndecim.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+CAJUS Dálmata, ex génere Diocletiáni imperatóris, constítuit ut his órdinum et honórum grádibus in Ecclésia ad episcopátum ascenderétur: Ostiárii, Lectóris, Exorcístæ, Acólythi, Subdiáconi, Diáconi, Presbýteri. Hic Diocletiáni crudelitátem in Christiános fúgiens, aliquámdiu in spelúnca delítuit; verum octo post annis una cum Gabíno fratre martýrii corónam consecútus est, cum sedísset annos duódecim, menses quátuor, dies quinque; creátis mense Decémbri presbýteris vigíntiquínque, diáconis octo, epíscopis quinque. Sepúltus est in cœmetério Callísti, décimo Kaléndas Maji. Ejus memóriam Urbánus octávus in Urbe renovávit, dirútam ecclésiam restítuit; título, statióne et ipsíus relíquiis decorávit.

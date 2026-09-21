@@ -35363,4 +35363,16 @@ BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet 
 
 **Lectio iv**
 
-PHILIPPUS Bethsáidæ natus, unus ex duódecim Apóstolis, qui primum a Christo Dómino vocáti sunt: a quo cum accepísset Nathánael, venísse Messíam in lege promíssum, ad Dóminum dedúctus est. Quam vero Christus eum familiáriter adhibéret, illud fácile declárat, quod gentíles Salvatórem vidére cupiéntes, ad Philíppum accessérunt; et Dóminus, cum in solitúdine hóminum multitúdinem páscere vellet, sic Philíppum affátus est: Unde emémus panes, ut mandúcent hi? Is, accépto
+PHILIPPUS Bethsáidæ natus, unus ex duódecim Apóstolis, qui primum a Christo Dómino vocáti sunt: a quo cum accepísset Nathánael, venísse Messíam in lege promíssum, ad Dóminum dedúctus est. Quam vero Christus eum familiáriter adhibéret, illud fácile declárat, quod gentíles Salvatórem vidére cupiéntes, ad Philíppum accessérunt; et Dóminus, cum in solitúdine hóminum multitúdinem páscere vellet, sic Philíppum affátus est: Unde emémus panes, ut mandúcent hi? Is, accépto Spíritu Sancto, cum ei Scýthia ad prædicándum Evangélium obtigísset, omnem fere illam gentem ad christiánam fidem convértit. Postrémo, cum Hierápolim Phrýgiæ venísset, pro Christi nómine cruci affíxus lapidibúsque óbrutus est, Kaléndis Maji. Ejus corpus ibídem a Christiánis sepúltum, póstea Romam delátum, in basílica duódecim Apostolórum una cum córpore beáti Jacóbi Apóstoli cónditum est.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+**Lectio v**
+
+JACOBUS frater Dómini, cognoménto Justus, ab ineúnte ætáte vinum et síceram non bibit, carne abstínuit, numquam tonsus est, nec unguénto nec bálneo usus. Huic uni licébat íngredi in Sancta sanctórum. Idem líneis véstibus utebátur: cui étiam assidúitas orándi ita callum génibus obdúxerat, ut durítie caméli pellem imitarétur. Eum post Christi ascensiónem Apóstoli Jerosolymórum epíscopum creavérunt; ad quem étiam Princeps Apostolórum misit qui nuntiáret se e cárcere ab Angelo edúctum fuísse. Cum autem in concílio Jerosólymis controvérsia esset orta de lege et circumcisióne; Jacóbus, Petri senténtiam secútus, ad fratres hábuit conciónem, in qua vocatiónem géntium probávit, fratribúsque abséntibus scribéndum esse dixit, ne géntibus jugum Mosáicæ legis impónerent. De quo et lóquitur Apóstolus ad Gálatas: Alium autem Apostolórum vidi néminem, nisi Jacóbum fratrem Dómini.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+**Lectio vi**
+
+TANTA autem erat Jacóbi vitæ sánctitas, ut fímbriam vestiménti ejus certátim hómines cúperent attíngere. Nam is nonagínta sex annos natus, cum trigínta annis illi Ecclésiæ sanctíssime præfuísset, Christum Dei Fílium constantíssime prædicans, lapídibus primum

@@ -20574,4 +20574,28 @@ PULCHRE, relíctis Judǽis, habitatúrus in afféctibus géntium, templum Dómin
 
 ET fortásse ipse mons Christus est. Quis enim álius tales fructus ferret oleárum, non curvescéntium ubertáte baccárum, sed spíritus plenitúdine géntium fœcundárum? Ipse est per quem ascéndimus, et ad quem ascéndimus. Ipse est jánua, ipse est via, qui aperítur, et qui áperit: qui pulsátur ab ingrediéntibus, et ab eméritis adorátur. Ergo in castéllo erat, et ligátus erat pullus cum ásina: non póterat solvi nisi jussu Dómini. Solvit eum manus apostólica. Talis actus, talis vita, talis grátia. Esto talis et tu, ut possis ligátos sólvere.
 
-℟. Dixérunt ímpii apud se, non recte cogitántes: Circumveniámus justum, quóniam contrárius est opéribus nostris: promíttit se sciéntiam Dei habére, Fílium Dei se nóminat, et gloriátur patrem se ha-
+℟. Dixérunt ímpii apud se, non recte cogitántes: Circumveniámus justum, quóniam contrárius est opéribus nostris: promíttit se sciéntiam Dei habére, Fílium Dei se nóminat, et gloriátur patrem se habére Deum: \* Videámus si sermónes illíus veri sunt: et si est vere Fílius Dei, líberet eum de mánibus nostris: morte turpíssima condemnémus eum. ℣. Tamquam nugáces æstimáti sumus ab illo, et ábstinet se a viis nostris tamquam ab immundítiis: et præfert novíssima justórum. — Videámus.
+
+#### Lectio ix
+
+NUNC considerémus qui fúerint illi, qui, erróre detécto, de paradíso ejécti, in castéllum sint relegáti. Et vides, quemádmodum quos mors expúlerat, vita revocáverit. Et ídeo secúndum Matthǽum, et ásinam et pullum légimus: ut quia in duóbus homínibus utérque fúerat sexus expúlsus, in duóbus animálibus sexus utérque revocétur. Ergo illic in ásina matre quasi Hevam figurávit erróris: hic autem in pullo generalitátem pópuli gentílis expréssit: et ídeo pullo sedétur ásinæ. Et bene, in quo nemo sedit: quia nullus, ántequam Christus, natiónum pópulos vocávit ad Ecclésiam. Dénique secúndum Marcum sic habes: Quem nemo adhuc sedit hóminum.
+
+℟. Circumdedérunt me viri mendáces: sine causa flagéllis cecidérunt me: \* Sed tu, Dómine defénsor, víndica me. ℣. Quóniam tribulátio próxima est, et non est qui ádjuvet. — Sed. Circumdedérunt.
+
+## Ad Laudes
+
+**Ant. 1** Dóminus Deus \* auxiliátor meus: et ídeo non sum confúsus.
+
+{RUBRIC: Psalmi de Dominica 2 loco. 53}
+
+**2** Circumdántes \* circumdedérunt me: et in nómine Dómini vindicábor in eis.
+
+**3** Júdica causam meam: \* defénde, quia potens es, Dómine.
+
+**4** Cum Angelis \* et púeris fidéles inveniámur, triumphatóri mortis clamántes: Hosánna in excélsis.
+
+**5** Confundántur \* qui me persequúntur, et non confúndar ego, Dómine, Deus meus.
+
+**Capitulum** *Philipp. 2, 5-7*
+
+FRATRES: Hoc enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo: sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.

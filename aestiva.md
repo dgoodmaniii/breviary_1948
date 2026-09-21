@@ -15812,4 +15812,12 @@ IPsa beáti Pauli doctrína abúnde suffícere vidétur, ut certam vobis de div�
 
 ##### Lectio v
 
-AQuam olim in vinum convértit in Cana Galiléæ, quod habet quamdam cum sánguine propinquitátem: et eum parum dignum existimábimus, cui credámus quod vinum
+AQuam olim in vinum convértit in Cana Galiléæ, quod habet quamdam cum sánguine propinquitátem: et eum parum dignum existimábimus, cui credámus quod vinum in sánguinem transmutárit? Ad eas núptias, quibus córpora copulántur, vocátus, præter opiniónem ómnium hoc fecit miráculum: et non multo magis sic eum corpus et sánguinem suum fruénda nobis donásse persuásum fírmiter habébimus, ut ea cum omni certitúdine tamquam corpus ipsíus et sánguinem sumámus? Nam in spécie panis dat nobis corpus, et in spécie vini dat nobis sánguinem: ut, cum súmpseris, gustes corpus et sánguinem Christi, factus ejúsdem córporis et sánguinis párticeps. Sic enim effícimur Christíferi, hoc est, Christum in corpóribus nostris feréntes, cum corpus ejus et sánguinem in membra nostra recípimus: sic secúndum beátum Petrum, divínæ natúræ consórtes réddimur.
+
+℟. Accépit Jesus cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: \* Hoc fácite in meam commemoratiónem. ℣. Memória memor ero, et tabéscet in me ánima mea. — Hoc.
+
+##### Lectio vi
+
+OLim cum Judǽis Christus dísserens, Nisi manducavéritis, inquit, carnem meam, et bibéritis meum sánguinem, non habébitis vitam in vobis. Cum autem illi, quæ dicta fúerant, non spiritáliter accepíssent, offénsi abiérunt retro; putábant enim quod eos ad manducándas carnes hortarétur. Erant et in véteri testaménto panes propositiónis; verum illi cum fúerint véteris testaménti, finem jam accepérunt. In novo vero testaménto panis est cæléstis et calix salutáris, qui et ánimam et corpus sanctíficant. Quam ob rem non sic hæc atténdas velim, tamquam sint nudus et simplex panis, nudum et simplex vinum; corpus enim sunt et sanguis Christi. Nam étiam si sensus illud tibi renúntiat, fides tamen te confírmet. Ne júdices rem ex gustu: sed te citra ullam dubitatiónem fides certum reddat, quod sis dignus factus, qui córporis et sánguinis Christi párticeps fíeres.
+
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.

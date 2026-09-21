@@ -40174,4 +40174,52 @@ QUOT ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus s
 
 CERTE iste ipse pastor Ecclésiæ, ad cujus sacratíssimum corpus sedémus, quantæ debilitátis quantǽque formídinis ante advéntum Spíritus fúerit, ancílla ostiária requisíta dicat. Una enim mulíeris voce percúlsus, dum mori tímuit, Vitam negávit. Et pensándum, quia eum comprehénsum Petrus negávit in terra, quem suspénsum latro conféssus est in cruce. Sed vir iste tantæ formídinis qualis post advéntum Spíritus exsístat, audiámus. Fit convéntus magistrátus atque seniórum, cæsis denuntiátur Apóstolis, ne in nómine Jesu loqui débeant; Petrus magna auctoritáte respóndet: Obedíre opórtet Deo magis quam homínibus.
 
-**T. P. ℟.** Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, al-
+**T. P. ℟.** Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti sunt claritáte, allelúja, allelúja. Glória Patri. Repléti.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+##### In III Nocturno
+
+**T. P. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Exaltabúntur \* córnua justi.
+
+###### Psalmus 74
+
+CONFITEBIMUR tibi, Deus: \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua: \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea: \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis: Nolíte iníque ágere: \* et delinquéntibus: Nolíte exaltáre cornu:
+
+Nolíte extóllere in altum cornu vestrum: \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus: \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat: \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc: verúmtamen fæx ejus non est exinaníta: \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sæculum: \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.
+
+**Ant.** Exaltabúntur córnua justi.
+
+**Ant.** Lux orta est \* justo, rectis corde lætítia.
+
+###### Psalmus 96
+
+DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.

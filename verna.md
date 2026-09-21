@@ -33633,4 +33633,24 @@ INTER præclaríssima Justíni ópera binæ éminent fídei christiánæ apológ
 
 ###### Lectio vi
 
-QUONIAM Justínus in prima sua apología palam exposúerat quómodo Christiáni convenírent ad sacra celebránda, et quænam fúerint sacri hujus convéntus mystéria, ad repelléndas ethnicórum calúmnias; exquisívit ab eo præses, in quonam loco conveníret ipse et céteri hujus Urbis Christifidéles. Justínus autem réticens convéntuum loca, ne sancta et fratres próderet cánibus, domicílium tantum suum indicávit, ubi manére et discípulos excólere solébat penes célebrem títulum Pastóris in ǽdibus Pudéntis. Demum præses optiónem ei dedit vel ut diis sacrificáret, vel per totum corpus flagéllis cædi perférret. Cum invíctus fídei vindex asséreret se in votis semper habuísse cruciátus pérpeti propter Dóminum Jesum Christum, a quo magnam in cælis mercédem cónsequi exspectábat, præses in
+QUONIAM Justínus in prima sua apología palam exposúerat quómodo Christiáni convenírent ad sacra celebránda, et quænam fúerint sacri hujus convéntus mystéria, ad repelléndas ethnicórum calúmnias; exquisívit ab eo præses, in quonam loco conveníret ipse et céteri hujus Urbis Christifidéles. Justínus autem réticens convéntuum loca, ne sancta et fratres próderet cánibus, domicílium tantum suum indicávit, ubi manére et discípulos excólere solébat penes célebrem títulum Pastóris in ǽdibus Pudéntis. Demum præses optiónem ei dedit vel ut diis sacrificáret, vel per totum corpus flagéllis cædi perférret. Cum invíctus fídei vindex asséreret se in votis semper habuísse cruciátus pérpeti propter Dóminum Jesum Christum, a quo magnam in cælis mercédem cónsequi exspectábat, præses in eum capitálem senténtiam pronuntiávit. Itaque mirábilis philósophus Deum colláudans, post vérbera, fuso pro Christo sánguine, glorióso martýrio coronátus est. Quidam vero fidéles clam illíus sustulérunt corpus, et in loco idóneo condidérunt. Leo décimus tértius Póntifex máximus ejúsdem Offícium et Missam ab univérsa Ecclésia celebrári præcépit.
+
+{RUBRIC: In Quadragesima}
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+JUSTINUS, Prisci fílius, ex Græco génere Fláviæ Neápolis in Sýria Palæstína natus, ádeo philosophíæ amóre corréptus est, ut ad veritátem assequéndam, quotquot áderant philosophórum séctis nomen déderit. In quibus tamen cum fallácem tantum sapiéntiam reperísset, supérna illustratióne edóctus, christiánæ fídei philosophíam ampléxus est. Hinc sacræ Scriptúræ libros diu noctúque versans, ibíque eminéntem Jesu Christi sciéntiam adéptus, plura conscrípsit ad christiánam fidem exponéndam magísque propagándam; quæ inter binæ præstant pro fide christiána apologíæ. Quas cum imperatóribus Antoníno Pio ejúsque fíliis porrexísset, et fidem disputándo strénue propugnásset, obtínuit ut a Christianórum cæde público príncipum edícto temperarétur. Ipse tamen Crescéntis Cýnici, cujus et ímpios mores redargúerat, insídiis accusátus, a satellítibus captus est; et ad Rústicum præféctum addúctus, cum in confessióne fídei strénue permanéret, cápitis damnátus, glorióso martýrio coronátus occúbuit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---

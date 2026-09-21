@@ -19528,4 +19528,32 @@ NUnc ergo, fili mi, audi me, et ne recédas a verbis oris mei. Longe fac ab ea v
 
 *Cap. 5, 20-23*
 
-QUare sedúceris, fili mi, ab aliéna, et fovéris in sinu altérius? Réspicit Dóminus vias hóminis, et omnes gressus ejus consíderat; iniquitátes suæ cápiunt ímpium, et fúnibus
+QUare sedúceris, fili mi, ab aliéna, et fovéris in sinu altérius? Réspicit Dóminus vias hóminis, et omnes gressus ejus consíderat; iniquitátes suæ cápiunt ímpium, et fúnibus peccatórum suórum constríngitur; ipse moriétur, quia non hábuit disciplínam, et in multitúdine stultítiæ suæ decipiétur.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De Parábolis Salomónis}
+
+##### Lectio i
+
+*Cap. 8, 1-17*
+
+NUmquid non sapiéntia clámitat, et prudéntia dat vocem suam? In summis excelsísque verticíbus supra viam, in médiis sémitis stans, juxta portas civitátis, in ipsis fóribus lóquitur dicens: O viri, ad vos clámito, et vox mea ad fílios hóminum; intellígite, párvuli, astútiam, et, insipiéntes, animadvértite; audíte, quóniam de rebus magnis locutúra sum, et aperiéntur lábia mea, ut recta prǽdicent.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et ánimo.
+
+##### Lectio ii
+
+VEritátem meditábitur guttur meum, et lábia mea detestabúntur ímpium; justi sunt omnes sermónes mei, non est in eis pravum quid neque pervérsum: recti sunt intelligéntibus et ǽqui inveniéntibus sciéntiam. Accípite disciplínam meam et non pecúniam, doctrínam magis quam aurum elígite; mélior est enim sapiéntia cunctis pretiosíssimis, et omne desiderábile ei non potest comparári.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+EGO sapiéntia hábito in consílio et erudítis intérsum cogitatiónibus; ti-

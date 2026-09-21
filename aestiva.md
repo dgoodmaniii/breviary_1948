@@ -10513,3 +10513,74 @@ Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
 **Capit.** *Rom. 13, 12-13*
 
 NOx præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+ÆTerna cæli glória,
+Beáta spes mortálium,
+Summi Tonántis Únice,
+Castǽque proles Vírginis:
+
+Da déxteram surgéntibus,
+Exsúrgat et mens sóbria,
+Flagrans et in laudem Dei
+Grates rependat débitas.
+
+Ortus refúlget Lúcifer,
+Præítque solem núntius:
+Cadunt tenébræ nóctium:
+Lux sancta nos illúminet.
+
+Manénsque nostris sénsibus,
+Noctem repéllat sæculi,
+Omníque fine témporis
+Purgáta servet péctora.
+
+Quæsíta jam primum fides
+In corde radíces agat:
+Secúnda spes congáudeat,
+Qua major exstat cáritas.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Per víscera misericórdiæ \* Dei nostri visitávit nos Oriens ex alto.
+
+{RUBRIC: Réliqua ut in Ordinário. 9}
+
+---
+
+## Ad Laudes II
+
+*In Vigíliis commúnibus, quando fit Offícium de Féria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Cor contrítum.
+
+### Psalmus 50
+
+MIserére mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim, in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim, veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.

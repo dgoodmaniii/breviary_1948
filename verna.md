@@ -27457,4 +27457,16 @@ De Sermóne sancti Augustíni Epíscopi
 
 #### Lectio iv
 
-SALVATOR noster, caríssimi, si non in nostra carne diábolum triumphávit, se exércuit, non nobis vicit. Si non in nostro córpore resurréxit, conditióni nostræ resurgéndo nihil cóntulit. Hæc qui dicit, suscéptæ et assúmptæ carnis non intélligit ratiónem, confúndit órdinem, evácuat utilitátem. Si non in nostra carne perégit medicínam, solam ergo ex hómine nascéndi elégit injú-
+SALVATOR noster, caríssimi, si non in nostra carne diábolum triumphávit, se exércuit, non nobis vicit. Si non in nostro córpore resurréxit, conditióni nostræ resurgéndo nihil cóntulit. Hæc qui dicit, suscéptæ et assúmptæ carnis non intélligit ratiónem, confúndit órdinem, evácuat utilitátem. Si non in nostra carne perégit medicínam, solam ergo ex hómine nascéndi elégit injúriam. Recédat a sénsibus nostris tam periculósa persuásio. De nostro est quod appéndit, de suo est quod donávit. Meum testor esse quod cécidit, ut meum sit quod resurréxit. Meum testor esse quod jácuit intra túmulum, ut meum sit quod ascéndit in cælum.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo.
+
+#### Lectio v
+
+IN illo ítaque nostri géneris córpore nos Christi mors vivificávit, nos resurréctio eréxit, nos ascénsio consecrávit. In illo nostræ oríginis córpore cæléstibus regnis arrham nostræ conditiónis impósuit. Elaborémus ergo, caríssimi, ut quemádmodum Dóminus in hac die nostro cum córpore ad supérna conscéndit, ita nos post illum quómodo póssumus, spe ascendámus, et corde sequámur. Ipso afféctu páriter et proféctu ascendámus post illum: étiam per vítia ac passiónes nostras. Si útique unusquísque nostrum súbdere eas sibi stúdeat, ac super eas stare consuéscat, ex ipsis sibi gradum cónstruit, quo possit ad superióra conscéndere. Elevábunt nos, si fúerint infra nos.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum.
+
+#### Lectio vi
+
+DE vítiis nostris scalam nobis fácimus, si vítia ipsa calcámus. Nam cum bonitátis auctóre non ascéndit malítia, nec cum Fílio Vírginis libído atque luxúria. Non, inquam, ascéndunt vítia post virtútum paréntem, peccáta post justum, nec infirmitátes ac morbi possunt ire post médicum. Igitur, si intráre ipsíus médici regnum vólumus, prius vúlnera nostra curémus. Ordinémus et custodiámus in nobis statum utriúsque substántiæ; ne ánimam, nobiliórem útique hóminis portiónem, tártaro pars devólvat inférior sed secum pótius cælo sanctificátum corpus acquírat

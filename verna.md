@@ -44131,4 +44131,42 @@ ADESTO, Dómine, supplicatiónibus nostris, quas in beáti N. Confessóris tui s
 
 **3 — Oratio**
 
-DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuí-
+DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+##### Si fuerit Abbas
+
+**4 — Oratio**
+
+INTERCESSIO nos, quǽsumus, Dómine, beáti N. Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Tertiam
+
+**Capitulum** Beátus vir. {RUBRIC: [118]}
+
+℟. br. Amávit eum Dóminus, \* Et ornávit eum. Amávit. ℣. Stolam glóriæ índuit eum. Et. Glória Patri. Amávit. ℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Amávit eum Dóminus, et ornávit eum, \* Allelúja, allelúja. Amávit. ℣. Stolam glóriæ índuit eum. Allelúja, allelúja. Glória Patri. Amávit. ℣. Os justi meditábitur sapiéntiam, allelúja. ℟. Et lingua ejus loquétur judícium, allelúja.
+
+##### Ad Sextam
+
+**Capitulum** *Eccli. 39, 6*
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judícium. Meditábitur. Glória Patri. Os. ℣. Lex Dei ejus in corde ipsíus. ℟. Et non supplantabúntur gressus ejus.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Os justi meditábitur sapiéntiam, \* Allelúja, allelúja. Os. ℣. Et lingua ejus loquétur judícium. Allelúja, allelúja. Glória Patri. Os. ℣. Lex Dei ejus in corde ipsíus, allelúja. ℟. Et non supplantabúntur gressus ejus, allelúja.
+
+##### Ad Nonam
+
+**Capitulum** *Sap. 10, 10*
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
+
+℟. br. Lex Dei ejus \* In corde ipsíus. Lex. ℣. Et non supplantabúntur gressus ejus. In. Glória Patri. Lex. ℣. Justum dedúxit Dómi-

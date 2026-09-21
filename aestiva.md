@@ -2646,4 +2646,65 @@ Os habent, et non loquéntur: \* óculos habent, et non vidébunt.
 
 Aures habent, et non áudient: \* nares habent, et non odorábunt.
 
-Manus habent, et non palpábunt: pedes habent, et non ambulábunt: \*
+Manus habent, et non palpábunt: pedes habent, et non ambulábunt: \* non clamábunt in gútture suo.
+
+Símiles illis fiant qui fáciunt ea: \* et omnes qui confídunt in eis.
+
+Domus Israël sperávit in Dómino: \* adjútor eórum et protéctor eórum est.
+
+Domus Aaron sperávit in Dómino: \* adjútor eórum et protéctor eórum est.
+
+Qui timent Dóminum, speravérunt in Dómino: \* adjútor eórum et protéctor eórum est.
+
+Dóminus memor fuit nostri: \* et benedíxit nobis:
+
+Benedíxit dómui Israël: \* benedíxit dómui Aaron.
+
+Benedíxit ómnibus, qui timent Dóminum, \* pusíllis cum majóribus.
+
+Adjíciat Dóminus super vos: \* super vos, et super fílios vestros.
+
+Benedícti vos a Dómino, \* qui fecit cælum, et terram.
+
+Cælum cæli Dómino: \* terram autem dedit fíliis hóminum.
+
+Non mórtui laudábunt te, Dómine: \* neque omnes, qui descéndunt in inférnum.
+
+Sed nos qui vívimus, benedícimus Dómino, \* ex hoc nunc et usque in sæculum.
+
+**Ant.** Deus autem noster in cælo: ómnia quæcúmque vóluit, fecit.
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BENEDICTUS Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+### Hymnus
+
+LUCIS Creátor óptime,
+Lucem diérum próferens,
+Primórdiis lucis novæ,
+Mundi parans oríginem:
+
+Qui mane junctum vésperi
+Diem vocári præcipis:
+Illábitur tetrum chaos,
+Audi preces cum flétibus.
+
+Ne mens graváta crímine,
+Vitæ sit exsul múnere,
+Dum nil perénne cógitat,
+Seséque culpis ílligat.
+
+Cæléste pulset óstium:
+Vitále tollat præmium:
+Vitémus omne nóxium:
+Purgémus omne péssimum.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+{RUBRIC: Ad Magníficat Antíphona ut in Próprio de Témpore.}

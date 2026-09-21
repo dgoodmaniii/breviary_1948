@@ -19028,4 +19028,26 @@ ANno séptimo Jehu regnávit Joas et quadragínta annis regnávit in Jerúsalem.
 
 ##### Lectio ii
 
-DIxítque Joas ad sacerdótes: Omnem pecúniam sanctórum, quæ illáta fúerit in templum Dómini a prætereúntibus, quæ offértur pro prétio ánimæ, et quam sponte et arbítrio cordis sui ínferunt
+DIxítque Joas ad sacerdótes: Omnem pecúniam sanctórum, quæ illáta fúerit in templum Dómini a prætereúntibus, quæ offértur pro prétio ánimæ, et quam sponte et arbítrio cordis sui ínferunt in templum Dómini, accípiant illam sacerdótes juxta órdinem suum et instáurent sartatécta domus, si quid necessárium víderint instauratióne.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+IGitur usque ad vigésimum tértium annum regis Joas non instauravérunt sacerdótes sartatécta templi. Vocavítque rex Joas Jójadam pontíficem et sacerdótes dicens eis: Quare sartatécta non instaurátis templi? Nolíte ergo ámplius accípere pecúniam juxta órdinem vestrum; sed ad instauratiónem templi réddite eam. Prohibitíque sunt sacerdótes ultra accípere pecúniam a pópulo et instauráre sartatécta domus.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 13, 14-21; 24-25*
+
+ELiséus autem ægrotábat infirmitáte, qua et mórtuus est; descendítque ad eum Jonas, rex Israël, et flebat coram eo dicebátque: Pater mi, pater mi, currus Israël et auríga ejus. Et ait illi Eliséus: Affer arcum et sagíttas. Cumque attulísset ad eum arcum et sagíttas, dixit ad regem Israël: Pone manum tuam super arcum. Et, cum posuísset ille manum suam, superpósuit Eliséus manus suas mánibus regis et ait: Aperi fenéstram orientálem. Cumque aperuísset, dixit Eliséus: Jace sagíttam. Et jecit. Et ait Eliséus: Sagítta salútis Dómini, et sagítta salútis contra Sýriam; percutiésque Sýriam in Aphec donec consúmas eam.

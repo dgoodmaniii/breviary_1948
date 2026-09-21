@@ -22350,4 +22350,20 @@ Et reddet illis iniquitátem ipsórum: et in malítia eórum dispérdet eos: \* 
 
 *Cap. 4, 11-16*
 
-FESTINEMUS íngredi in illam réquiem: ut ne in idípsum quis íncidat incredulitátis exémplum. Vivus est enim sermo Dei, et éfficax, et penetrabílior omni gládio ancípiti: et pertíngens usque ad divisiónem ánimæ ac spíritus, compágum quoque ac medullárum, et discrétor cogitatiónum et intentiónum cordis. Et non est ulla creatúra invisíbilis in conspéctu ejus: ómnia autem nuda et apérta sunt óculis ejus, ad
+FESTINEMUS íngredi in illam réquiem: ut ne in idípsum quis íncidat incredulitátis exémplum. Vivus est enim sermo Dei, et éfficax, et penetrabílior omni gládio ancípiti: et pertíngens usque ad divisiónem ánimæ ac spíritus, compágum quoque ac medullárum, et discrétor cogitatiónum et intentiónum cordis. Et non est ulla creatúra invisíbilis in conspéctu ejus: ómnia autem nuda et apérta sunt óculis ejus, ad quem nobis sermo. Habéntes ergo Pontíficem magnum, qui penetrávit cælos, Jesum Fílium Dei: teneámus confessiónem. Non enim habémus Pontíficem, qui non possit cómpati infirmitátibus nostris: tentátum autem per ómnia pro similitúdine absque peccáto.
+
+℟. Tradidérunt me in manus impiórum, et inter iníquos projecérunt me, et non pepercérunt ánimæ meæ: congregáti sunt advérsum me fortes: \* Et sicut gigántes stetérunt contra me. ℣. Aliéni insurrexérunt advérsum me, et fortes quæsiérunt ánimam meam. — Et.
+
+#### Lectio viii
+
+*Cap. 5, 1-10*
+
+ADEAMUS ergo cum fidúcia ad thronum grátiæ: ut misericórdiam consequámur, et grátiam inveniámus in auxílio oportúno. Omnis namque Póntifex ex homínibus assúmptus, pro homínibus constitúitur in iis, quæ sunt ad Deum, ut ófferat dona, et sacrifícia pro peccátis: qui condolére possit iis, qui ignórant et errant: quóniam et ipse circúmdatus est infirmitáte: et proptérea debet quemádmodum pro pópulo, ita étiam et pro semetípso offérre pro peccátis.
+
+℟. Jesum trádidit ímpius summis princípibus sacerdótum, et senióribus pópuli: \* Petrus autem sequebátur eum a longe, ut vidéret finem. ℣. Adduxérunt autem eum ad Cáipham príncipem sacerdótum, ubi scribæ et pharisǽi convénerant. — Petrus.
+
+#### Lectio ix
+
+NEC quisquam sumit sibi honórem, sed qui vocátur a Deo, tamquam Aaron. Sic et Christus non semetípsum clarificávit ut Póntifex fíeret: sed qui locútus est ad eum: Fílius meus es tu, ego hódie génui te. Quemádmodum et in álio loco dicit: Tu es sacérdos in ætérnum, secúndum órdinem Melchísedech. Qui in diébus carnis suæ preces, supplicatiónésque ad eum, qui possit illum salvum fácere a morte, cum clamóre válido et lácrimis ófferens, exaudítus est pro sua reveréntia. Et quidem cum esset Fílius Dei, dídicit ex iis, quæ passus est, obediéntiam: et consummátus, factus est ómnibus obtemperántibus sibi causa salútis ætérnæ, appellátus a Deo Póntifex juxta órdinem Melchísedech.
+
+℟. Caligavérunt óculi mei a fletu meo: quia elongátus est a me, qui consola-

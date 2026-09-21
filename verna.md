@@ -48955,3 +48955,25 @@ Apud me orátio Deo vitæ meæ, \* dicam Deo: Suscéptor meus es.
 Quare oblítus es mei? \* et quare contristátus incédo, dum afflígit me inimícus?
 
 Dum confringúntur ossa mea, \* exprobravérunt mihi qui tríbulant me inimíci mei.
+
+Dum dicunt mihi per síngulos dies: Ubi est Deus tuus? \* quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi: \* salutáre vultus mei, et Deus meus.
+
+Réquiem ætérnam.
+
+**Ant.** Sitívit ánima mea ad Deum vivum: quando véniam, et apparébo ante fáciem Dómini?
+
+℣. Ne tradas béstiis ánimas confiténtes tibi. ℟. Et ánimas páuperum tuórum ne obliviscáris in finem.
+
+Pater noster, {RUBRIC: totum secreto.}
+
+**Lectio vii** *Job 17, 1-3; 11-15*
+
+SPIRITUS meus attenuábitur, dies mei breviabúntur, et solum mihi súperest sepúlcrum. Non peccávi, et in amaritudínibus morátur óculus meus. Líbera me, Dómine, et pone me juxta te, et cujúsvis manus pugnet contra me. Dies mei transiérunt, cogitatiónes meæ dissipátæ sunt, torquéntes cor meum. Noctem vertérunt in diem, et rursum post ténebras spero lucem. Si sustinúero, inférnus domus mea est, et in ténebris stravi léctulum meum. Putrédini dixi: Pater meus es; mater mea et soror mea, vérmibus. Ubi est ergo nunc præstolátio mea, et patiéntiam meam quis consíderat?
+
+℟. Peccántem me quotídie, et non me pæniténtem, timor mortis contúrbat me: \* Quia in inférno nulla est redémptio, miserére mei, Deus, et salva me. ℣. Deus, in nómine tuo salvum me fac, et in virtúte tua líbera me. — Quia.
+
+**Lectio viii** *Job 19, 20-27*
+
+PELLI meæ, consúmptis cárnibus, adhǽsit os meum, et derelícta sunt tantúmmodo lábia circa dentes meos. Miserémini mei, miserémini mei, saltem vos, amíci mei, quia manus Dómini tétigit me. Quare persequímini me sicut Deus, et cárnibus meis saturámini? Quis mihi tríbuat, ut scribántur sermónes mei? quis mihi det, ut exaréntur in libro, stilo férreo et plumbi lámina, vel celte sculpántur in sílice? Scio enim quod redémptor meus vivit, et in novíssimo die de terra surrectúrus sum: et rursum circúmdabor pelle mea, et in carne mea vidébo Deum meum. Quem visúrus sum ego ipse, et óculi mei conspectúri sunt, et non álius: repósita est hæc spes mea in sinu meo.

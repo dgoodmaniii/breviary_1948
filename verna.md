@@ -27493,4 +27493,34 @@ VENIT die Pentecóstes Spíritus Sanctus in centum vigínti hómines congregáto
 
 #### Lectio viii
 
-CHRISTI enim sanguis sic in remissiónem peccatórum ómnium fusus est, ut ipsum étiam peccátum posset delére, quo fusus est. Hoc ergo íntuens Dóminus dicébat: Odio habuérunt me gratis: cum autem vénerit Paráclitus, ille testimónium perhibébit de me. Tamquam díceret: Odio me habuérunt, et occidérunt vidéntes; sed tale de me Paráclitus testimónium perhibébit, ut eos fáciat in me crédere non vidéntes. Et vos, inquit, testimónium perhibébitis quia ab inítio mecum estis. Perhibébit Spí-
+CHRISTI enim sanguis sic in remissiónem peccatórum ómnium fusus est, ut ipsum étiam peccátum posset delére, quo fusus est. Hoc ergo íntuens Dóminus dicébat: Odio habuérunt me gratis: cum autem vénerit Paráclitus, ille testimónium perhibébit de me. Tamquam díceret: Odio me habuérunt, et occidérunt vidéntes; sed tale de me Paráclitus testimónium perhibébit, ut eos fáciat in me crédere non vidéntes. Et vos, inquit, testimónium perhibébitis quia ab inítio mecum estis. Perhibébit Spíritus Sanctus, perhibébitis et vos. Quia enim ab inítio mecum estis, potéstis prædicáre quod nostis: quod ut modo non faciátis, illíus Spíritus plenitúdo nondum adest vobis.
+
+℟. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. \* Cum autem vénerit ille, docébit vos omnem veritátem, allelúja. ℣. Non enim loquétur a semetípso: sed quæcúmque áudiet, loquétur: et quæ ventúra sunt, annuntiábit vobis. — Cum. Glória Patri. Cum.
+
+#### Lectio ix
+
+ILLE ergo testimónium perhibébit de me, et vos testimónium perhibébitis: dabit enim vobis fidúciam testimónium perhibéndi cáritas Dei diffúsa in córdibus vestris per Spíritum Sanctum, qui dábitur vobis. Quæ útique Petro adhuc défuit, quando mulíeris ancíllæ interrogatióne pertérritus, non pótuit verum testimónium perhibére, sed contra suam pollicitatiónem timóre magno compúlsus est ter negáre. Timor autem iste non est in caritáte: sed perfécta cáritas foras mittit timórem. Dénique ante passiónem Dómini, servílis timor ejus interrogátus est a fémina servitútis; post resurrectiónem vero Dómini, liberális ejus amor ab ipso príncipe libertátis: et ídeo ibi turbabátur, hic tranquillabátur; ibi quem diléxerat, negábat; hic quem negáverat, diligébat. Sed adhuc étiam tunc amor ipse infírmus fúerat et angústus, donec eum roboráret et dilatáret Spíritus Sanctus.
+
+Te Deum laudámus.
+
+{RUBRIC: Ad Laudes et réliquas Horas ómnia ut in Dominica infra Octavam Ascensionis 627, omíssa tamen ad Laudes et Vésperas Commemoratióne Octávæ.}
+
+---
+
+## Sabbato in Vigilia Pentecostes
+
+{RUBRIC: I classis Semiduplex}
+
+{RUBRIC: Ab hac die cessant omnes Octávæ particuláres usque ad Festum sanctíssimæ Trinitátis inclusíve.}
+
+{RUBRIC: Ad Matutinum ómnia ut in Festo Ascensiónis 601, præter sequéntia:}
+
+#### In I Nocturno
+
+Incipit Epístola cathólica beáti Judæ Apóstoli
+
+#### Lectio i
+
+*Vers. 1-13*
+
+JUDAS, Jesu Christi servus, frater autem Jacóbi, his qui sunt in Deo Patre diléctis et Christo Jesu conser-

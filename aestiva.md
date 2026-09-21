@@ -19124,4 +19124,26 @@ ADdúxit autem rex Assyriórum de Babylóne et de Cutha et de Avah et de Emath e
 
 ##### Lectio iii
 
-NUntiatúmque est regi Assyriórum et dictum: Gentes, quas transtulísti et habitáre fecísti in civitátibus Samaríæ, ignórant legítima Dei terræ, et immísit in eos Dóminus leónes, et ecce interfíciunt eos, eo quod ignórent ritum Dei terræ. Præcépit autem rex Assyriórum dicens: Dúcite illuc unum de sacerdótibus, quos inde captívos adduxístis; et
+NUntiatúmque est regi Assyriórum et dictum: Gentes, quas transtulísti et habitáre fecísti in civitátibus Samaríæ, ignórant legítima Dei terræ, et immísit in eos Dóminus leónes, et ecce interfíciunt eos, eo quod ignórent ritum Dei terræ. Præcépit autem rex Assyriórum dicens: Dúcite illuc unum de sacerdótibus, quos inde captívos adduxístis; et vadat et hábitet cum eis et dóceat eos legítima Dei terræ.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 18, 1-12*
+
+ANno tértio Osée fílii Ela regis Israël regnávit Ezechías fílius Achaz regis Juda. Vigintiquínque annórum erat cum regnáre cœpísset, et vigintinóvem annis regnávit in Jerúsalem. Nomen matris ejus Abi fília Zacharíæ. Fecítque quod erat bonum coram Dómino juxta ómnia quæ fécerat David pater ejus. Ipse dissipávit excélsa et contrívit státuas et succídit lucos confregítque serpéntem ǽneum, quem fécerat Móyses: síquidem usque ad illud tempus fílii Israël adolébant ei incénsum: vocavítque nomen ejus Nohéstan. In Dómino Deo Israël sperávit.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+ITaque post eum non fuit símilis ei de cunctis régibus Juda, sed neque in his qui ante eum fuérunt. Et adhǽsit Dómino et non recéssit a vestígiis ejus fecítque mandáta ejus, quæ præcéperat Dóminus Móysi. Unde et erat Dóminus cum eo, et in cunctis ad quæ procedébat, sapiénter se agébat. Rebellávit quoque contra regem Assyriórum et non servívit ei. Ipse percússit Philisthǽos usque ad Gazam et omnes términos eórum, a turre custódum usque ad civitátem munítam.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis

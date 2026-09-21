@@ -19682,4 +19682,26 @@ CUnctæ res difficíles: non potest eas homo explicáre sermóne. Non saturátur
 
 EGO Ecclesiástes fui rex Israël in Jerúsalem et propósui in ánimo meo quærere et investigáre sapiénter de ómnibus quæ fiunt sub sole. Hanc occupatiónem péssimam dedit Deus fíliis hóminum, ut occuparéntur in ea. Vidi cuncta quæ fiunt sub sole, et ecce univérsa vánitas et afflíctio spíritus. Pervérsi difficíle corrigúntur, et stultórum infinítus est númerus. Locútus sum in corde meo dicens: Ecce magnus efféctus sum et præcéssi omnes sapiéntia qui fuérunt ante me in Jerúsalem; et mens mea contempláta est multa sapiénter, et dídici dedíque cor meum ut scírem prudéntiam atque doctrínam errorésque et stultítiam.
 
-℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut sciam, quid accéptum sit coram te omni témpore. Glória. Ut.
+
+#### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+*Sermo contra concubinarios, in fine, tomo 5*
+
+##### Lectio iv
+
+SAlomon cum sæculárium rerum concupiscéntia tenerétur, magnas eas et admirándas putábat, multúmque in eis labóris et sollicitúdinis insumébat, magníficas ædificándo domos, copiósum coacervándo aurum, congregándo cantórum chorós, vária génera ministrórum mensæ et popínæ, quærendo ánimæ suæ voluptátem ab hortórum et córporum formosórum grátia, et omnem, ut ita dicam, oblectatiónis et refrigérii viam sectándo.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio v
+
+AT ubi inde ad se revérsus, et quasi ex umbrósa quadam abýsso ad lumen veræ sapiéntiæ respícere váluit, tunc sublímem illam et cælis dignam emísit vocem: Vánitas vanitátum, dicens, et ómnia vánitas. Hanc et vos, et hac sublimiórem, si voluéritis, efferétis senténtiam de intempestíva hac voluptáte, si aliquántisper a mala consuetúdine vos sequestravéritis.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+##### Lectio vi
+
+QUamvis autem a Salomóne sæculis superióribus non tam multa sapiéntiæ exigebátur diligéntia; neque enim delícias lex vetus prohibébat, neque áliis frui supervácuis dicébat vanum: áttamen et sic se habéntibus rebus, in ipsis contuéri licébit, quam viles et vanitáti obnóxiæ res sint. Nos vero ad majórem vocáti vitam, et ad excelléntius fastígium ascéndimus, et in majóribus exercémur palæstris: et quid áliud, quam quod, sicut supérnæ virtútes intellectuáles

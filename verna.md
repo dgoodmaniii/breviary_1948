@@ -25435,3 +25435,43 @@ DEUS, qui fidélium mentes uníus éfficis voluntátis: da pópulis tuis id amá
 **Capitulum** *Jac. 1, 19-20*
 
 SCITIS, fratres mei dilectíssimi. Sit autem omnis homo velox ad audiéndum: tardus autem ad loquéndum, et tardus ad iram. Ira enim viri justítiam Dei non operátur.
+
+**℟. br.** Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+## Ad Nonam
+
+**Capitulum** *Jac. 1, 21*
+
+PROPTER quod abjiciéntes omnem immundítiam, et abundántiam malítiæ, in mansuetúdine suscípite ínsitum verbum, quod potest salváre ánimas vestras.
+
+**℟. br.** Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+## Ad Vesperas
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério 72; Capitulum, Hymnus et Versus, ut in Vésperis præcedéntis Sábbati. 573}
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Vado ad eum \* qui misit me: sed quia hæc locútus sum vobis, tristítia implévit cor vestrum, allelúja.
+
+---
+
+## Feria Secunda
+
+De Epístola beáti Jacóbi Apóstoli
+
+#### Lectio i
+
+*Cap. 1, 17-27*
+
+OMNE datum óptimum, et omne donum perféctum desúrsum est, descéndens a Patre lúminum, apud quem non est transmutátio, nec vicissitúdinis obumbrátio. Voluntárie enim génuit nos verbo veritátis, ut simus inítium áliquod creatúræ ejus. Scitis, fratres mei dilectíssimi. Sit autem omnis homo velox ad audiéndum: tardus autem ad loquéndum, et tardus ad iram. Ira enim viri justítiam Dei non operátur.
+
+℟. Dicant nunc, qui redémpti sunt, allelúja: \* A Dómino, allelúja, allelúja. ℣. Quos redémit de manu inimíci, et de regiónibus congregávit eos. — A Dómino.
+
+{RUBRIC: ¶ Si vero, juxta superiórem Rúbricam 574, in ipsa Domínica IV sumendæ sint Lectiónes hujus Fériæ II, dícitur sequens Responsórium Domínicæ:}
+
+℟. Si oblítus fúero tui, allelúja, obliviscátur mei déxtera mea: \* Adhǽreat lingua mea fáucibus meis, si non memínero tui, allelúja, allelúja. ℣. Super

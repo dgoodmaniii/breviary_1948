@@ -37838,4 +37838,56 @@ Amen.
 
 ℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
 
-**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+DEUS, qui hunc diem beáti Venántii Mártyris tui triúmpho consecrásti: exáudi preces pópuli tui, et præsta; ut, qui ejus mérita venerámur, fídei constántiam imitémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui beátum, ut supra. 984
+
+##### Ad Matutinum
+
+**Invitat.** Exsúltent in Dómino Sancti, \* Allelúja. **Ps. 94** Veníte, exsultémus. [3]
+
+###### Hymnus
+
+ATHLETA Christi nóbilis
+Idóla damnat géntium,
+Deíque amóre sáucius
+Vitæ perícla déspicit.
+
+Loris revínctus ásperis,
+E rupe præceps vólvitur:
+Spinéta vultum láncinant;
+Per saxa corpus scínditur.
+
+Dum membra raptant Mártyris,
+Languent siti satéllites;
+Signo crucis Venántius
+E rupe fontes élicit.
+
+Bellátor o fortíssime,
+Qui pérfidis tortóribus
+E caute præbes póculum,
+Nos rore grátiæ írriga.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Sit laus Patri, sit Fílio,
+Tibíque, Sancte Spíritus:
+Da per preces Venántii
+Beáta nobis gáudia.
+Amen.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+VENANTIUS Camers, quíndecim annos natus, cum christiánæ religiónis accusarétur apud Antíochum, qui sub Décio imperatóre Camerino præérat, in porta civitátis præsídi se óbtulit. Quem ille pollicitatiónibus ac terróribus diu tentátum, flagris cædi et vínculis astríngi jussit; sed is mirabíliter ab Angelo solútus, lampádibus póstea adúritur, atque invérso ore, fumo suppósito, suspénditur. Ejus constántiam in torméntis demirátus Anastásius Corniculárius, et quod eum ab Angelo íterum solútum cándida veste supra fumum ambulántem vidísset, in Christum crédidit; et a beáto Porphýrio presbýtero cum família baptizátus, paulo post martýrii palmam cum eódem proméruit.

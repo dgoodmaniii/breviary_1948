@@ -36152,3 +36152,41 @@ DEUS, qui in præclára salutíferæ Crucis Inventióne, passiónis tuæ mirácu
 ###### Oratio
 
 PRÆSTA, quǽsumus, omnípotens Deus: ut, qui sanctórum tuórum Alexándri, Evéntii, Theodúli atque Juvenális natalítia cólimus; a cunctis malis imminéntibus, eórum intercessiónibus liberémur. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Primam
+
+**Ant.** O magnum pietátis opus: \* mors mórtua tunc est, in ligno quando mórtua Vita fuit, allelúja.
+
+##### Ad Tertiam
+
+**Ant.** Salva nos, \* Christe Salvátor, per virtútem Crucis: qui salvásti Petrum in mari, miserére nobis, allelúja.
+
+**Capitulum** *Philipp. 2, 5-7*
+
+FRATRES: Hoc enim sentíte in vobis, quod et in Christo Jesu: qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo: sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+℟. br. Hoc signum Crucis erit in cælo, \* Allelúja, allelúja. Hoc. ℣. Cum Dóminus ad judicándum vénerit. Allelúja, allelúja. Glória Patri. Hoc. ℣. Adorámus te, Christe, et benedícimus tibi, allelúja. ℟. Quia per Crucem tuam redemísti mundum, allelúja.
+
+###### Oratio
+
+DEUS, qui in præclára salutíferæ Crucis Inventióne, passiónis tuæ mirácula suscitásti: concéde; ut vitális ligni prétio, ætérnæ vitæ suffrágia consequámur: Qui vivis.
+
+##### Ad Sextam
+
+**Ant.** Ecce Crucem Dómini, \* fúgite partes advérsæ, vicit leo de tribu Juda, radix David, allelúja.
+
+**Capitulum** *Galat. 6, 14*
+
+MIHI autem absit gloriári, nisi in Cruce Dómini nostri Jesu Christi; per quem mihi mundus crucifíxus est, et ego mundo.
+
+℟. br. Adorámus te, Christe, et benedícimus tibi, \* Allelúja, allelúja. Adorámus. ℣. Quia per Crucem tuam redemísti mundum. Allelúja, allelúja. Glória Patri. Adorámus. ℣. Omnis terra adóret te, et psallat tibi, allelúja. ℟. Psalmum dicat nómini tuo, Dómine, allelúja.
+
+##### Ad Nonam
+
+**Ant.** Per signum Crucis \* de inimícis nostris líbera nos, Deus noster, allelúja.
+
+**Capitulum** *Philipp. 2, 8-9*
+
+HUMILIÁVIT semetípsum factus obédiens usque ad mortem, mortem autem Crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen,

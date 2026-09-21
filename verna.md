@@ -21949,3 +21949,47 @@ Circuívi, et immolávi in tabernáculo ejus hóstiam vociferatiónis: \* cantá
 Exáudi, Dómine, vocem meam, qua clamávi ad te: \* miserére mei, et exáudi me.
 
 Tibi dixit cor meum, exquisívit te fácies mea: \* fáciem tuam, Dómine, requíram.
+
+Ne avértas fáciem tuam a me: \* ne declínes in ira a servo tuo.
+
+Adjútor meus esto: \* ne derelínquas me, neque despícias me, Deus, salutáris meus.
+
+Quóniam pater meus, et mater mea dereliquérunt me: \* Dóminus autem assúmpsit me.
+
+Legem pone mihi, Dómine, in via tua: \* et dírige me in sémitam rectam propter inimícos meos.
+
+Ne tradíderis me in ánimas tribulántium me: \* quóniam insurrexérunt in me testes iníqui, et mentíta est iníquitas sibi.
+
+Credo vidére bona Dómini \* in terra vivéntium.
+
+Exspécta Dóminum, viríliter age: \* et confortétur cor tuum, et sústine Dóminum.
+
+{RUBRIC: †}
+
+**Ant.** Insurrexérunt in me testes iníqui, et mentíta est iníquitas sibi.
+
+℣. Divisérunt sibi vestiménta mea. ℟. Et super vestem meam misérunt sortem.
+
+{RUBRIC: Pater noster secreto.}
+
+#### De Lamentatióne Jeremíæ Prophétæ
+
+#### Lectio i
+
+*Cap. 2, 8-15*
+
+{RUBRIC: Heth.} Cogitávit Dóminus dissipáre murum fíliæ Sion: teténdit funículum suum, et non avértit manum suam a perditióne: luxítque antemurále, et murus páriter dissipátus est.
+
+{RUBRIC: Teth.} Defíxæ sunt in terra portæ ejus: pérdidit, et contrívit vectes ejus: regem ejus et príncipes ejus in géntibus: non est lex, et prophétæ ejus non invenérunt visiónem a Dómino.
+
+{RUBRIC: Jod.} Sedérunt in terra, conticuérunt senes fíliæ Sion: consperérunt cínere cápita sua, accíncti sunt cilíciis, abjecérunt in terram cápita sua vírgines Jerúsalem.
+
+{RUBRIC: Caph.} Defecérunt præ lácrimis óculi mei, conturbáta sunt víscera mea: effúsum est in terra jecur meum super contritióne fíliæ pópuli mei, cum defíceret párvulus et lactens in platéis óppidi.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Omnes amíci mei dereliquérunt me, et prævaluérunt insidiántes mihi: trádidit me quem diligébam: \* Et terribílibus óculis plaga crudéli percutiéntes, acéto potábant me. ℣. Inter iníquos projecérunt me, et non pepercérunt ánimæ meæ. — Et.
+
+#### Lectio ii
+
+{RUBRIC: Lamed.} Mátribus suis dixérunt: Ubi est tríticum et vinum? cum defí-

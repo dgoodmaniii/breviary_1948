@@ -35375,4 +35375,26 @@ JACOBUS frater Dómini, cognoménto Justus, ab ineúnte ætáte vinum et sícera
 
 **Lectio vi**
 
-TANTA autem erat Jacóbi vitæ sánctitas, ut fímbriam vestiménti ejus certátim hómines cúperent attíngere. Nam is nonagínta sex annos natus, cum trigínta annis illi Ecclésiæ sanctíssime præfuísset, Christum Dei Fílium constantíssime prædicans, lapídibus primum
+TANTA autem erat Jacóbi vitæ sánctitas, ut fímbriam vestiménti ejus certátim hómines cúperent attíngere. Nam is nonagínta sex annos natus, cum trigínta annis illi Ecclésiæ sanctíssime præfuísset, Christum Dei Fílium constantíssime prædicans, lapídibus primum appétitur; mox in altíssimum Templi locum addúctus, inde præcipitátus est. Qui, confráctis crúribus, jacens semivívus, manus tendébat ad cælum, Deúmque pro illórum salúte deprecabátur his verbis: Ignósce eis, Dómine, quia nésciunt quid fáciunt. Qua in oratióne, gráviter ejus cápite fullónis fuste percússo, ánimam Deo réddidit, séptimo Nerónis anno, et juxta Templum ubi præcipitátus fúerat, sepúltus est. Unam scripsit epístolam, quæ de septem cathólicis est.
+
+℟. Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti. Glória Patri. Repléti.
+
+###### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+**Lectio vii** *Cap. 14, 1-13*
+
+IN illo témpore: Dixit Jesus discípulis suis: Non turbétur cor vestrum. Créditis in Deum, et in me crédite. In domo Patris mei mansiónes multæ sunt. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractatus 67 in Joannem}
+
+ERIGENDA est nobis, fratres, ad Deum major inténtio, ut verba sancti Evangélii, quæ modo in nostris áuribus sonuérunt, étiam mente cápere utcúmque possímus. Ait enim Dóminus Jesus: Non turbétur cor vestrum. Créditis in Deum, et in me crédite. Ne mortem tamquam hómines timérent, et ídeo turbaréntur, consolátur eos, étiam se Deum esse contéstans. Créditis, inquit, in Deum, et in me crédite. Cónsequens est enim, ut si in Deum créditis, et in me crédere debeátis: quod non esset cónsequens, si Christus non esset Deus.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+**Lectio viii**
+
+CREDITIS in Deum, et in eum crédite, cui natúra est, non rapína, esse æquálem Deo; semetípsum enim exinanívit, non tamen formam Dei amíttens, sed formam servi accípiens. Mortem metúi-

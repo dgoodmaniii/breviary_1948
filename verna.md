@@ -26794,3 +26794,27 @@ UNDE et ipsi beáti Apóstoli, qui tot miráculis confirmáti, tot sermónibus e
 #### Lectio vi
 
 TUNC ad æquálem Patri Fílium eruditior fides gressu mentis cœpit accédere, et contrectatióne in Christo corpóreæ substántiæ, qua Patre minor est, non egére: quóniam glorificáti córporis manénte natúra, eo fides credéntium vocabátur, ubi non carnáli manu, sed spiritáli intelléctu par Genitóri Unigénitus tangerétur. Hinc illud est, quod post resurrectiónem suam Dóminus Maríæ Magdalénæ persónam Ecclésiæ geránti, cum ad contáctum ipsíus properáret accédere, dicit: Noli me tángere, nondum enim ascéndi ad Patrem meum: hoc est, Nolo ut ad me corporáliter vénias, nec ut me sensu carnis agnóscas: ad sublimióra te díffero, majóra tibi prǽparo: cum ad Patrem ascéndero, tunc me perféctius veriúsque palpábis, apprehensúra quod non tangis, et creditúra quod non cernis.
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 14-20*
+
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui víderant eum resurrexísse, non credidérunt. Et réliqua.
+
+De Homilía sancti Gregórii Papæ
+
+{RUBRIC: Eadem Homilia 29}
+
+SIGNA autem eos qui creditúri sunt, hæc sequéntur: In nómine meo dæmónia ejícient, linguis loquéntur novis, serpéntes tollent: et si mortíferum quid bíberint, non eis nocébit: super ægros manus impónent, et bene habébunt. Numquídnam, fratres mei, quia ista signa non fácitis, mínime créditis? Sed hæc necessária in exórdio Ecclésiæ fuérunt. Ut enim fidem crésceret multitúdo credéntium, miráculis fúerat nutriénda: quia et nos, cum arbústa plantámus, támdiu eis aquam infúndimus, quoúsque ea in terra jam coaluísse videámus: et si semel radícem fíxerint, irrigátio cessábit. Hinc est enim quod Paulus dicit: Linguæ in signum sunt non fidélibus, sed infidélibus.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut máneat.
+
+#### Lectio viii
+
+HABEMUS de his signis atque virtútibus, quæ adhuc subtílius consideráre debeámus. Sancta quippe Ecclésia quotídie spiritáliter facit, quod tunc per Apóstolos corporáliter faciébat. Nam sacerdótes ejus cum per exorcísmi grátiam manum credéntibus impónunt, et habitáre malígnos spíritus in eórum mente contradícunt, quid áliud fáciunt, nisi dæmónia ejíciunt? Et fidéles quique, qui jam vitæ véteris sæculária verba derelínquunt, sancta autem mystéria ínsonant, Conditóris sui laudes et

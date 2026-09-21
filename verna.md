@@ -21057,3 +21057,51 @@ In te cantátio mea semper: \* tamquam prodígium factus sum multis: et tu adjú
 Repleátur os meum laude, ut cantem glóriam tuam: \* tota die magnitúdinem tuam.
 
 Ne projícias me in témpore senectútis: \* cum defécerit virtus mea, ne derelínquas me.
+
+Quia dixérunt inimíci mei mihi: \* et qui custodiébant ánimam meam, consílium fecérunt in unum,
+
+Dicéntes: Deus dereliquit eum, persequímini, et comprehéndite eum: \* quia non est qui erípiat.
+
+Deus, ne elongéris a me: \* Deus meus, in auxílium meum réspice.
+
+Confundántur, et defíciant detrahéntes ánimæ meæ: \* operiántur confusióne, et pudóre qui quærunt mala mihi.
+
+Ego autem semper sperábo: \* et adjíciam super omnem laudem tuam.
+
+Os meum annuntiábit justítiam tuam: \* tota die salutáre tuum.
+
+Quóniam non cognóvi litteratúram, introíbo in poténtias Dómini: \* Dómine, memorábor justítiæ tuæ solíus.
+
+Deus, docuísti me a juventúte mea: \* et usque nunc pronuntiábo mirabília tua.
+
+Et usque in senéctam et sénium: \* Deus, ne derelínquas me,
+
+Donec annúntiem bráchium tuum \* generatióni omni, quæ ventúra est:
+
+Poténtiam tuam, et justítiam tuam, Deus, usque in altíssima, quæ fecísti magnália: \* Deus, quis símilis tibi?
+
+Quantas ostendísti mihi tribulatiónes multas et malas: et convérsus vivificásti me: \* et de abýssis terræ íterum reduxísti me.
+
+Multiplicásti magnificéntiam tuam: \* et convérsus consolátus es me.
+
+Nam et ego confitébor tibi in vasis psalmi veritátem tuam: \* Deus, psallam tibi in cíthara, Sanctus Israël.
+
+Exsultábunt lábia mea cum cantávero tibi: \* et ánima mea, quam redemísti.
+
+Sed et lingua mea tota die meditábitur justítiam tuam: \* cum confúsi et revériti fúerint, qui quærunt mala mihi.
+
+{RUBRIC: †}
+
+**Ant.** Deus meus, éripe me de manu peccatóris.
+
+℣. Avertántur retrórsum et erubéscant. ℟. Qui cógitant mihi mala.
+
+{RUBRIC: Hoc tríduo post Versículos Nocturnórum dícitur secréto Pater noster, nec pronuntiátur Et ne nos, nec dícitur Absolútio, neque dantur Benedictiónes ante Lectiónes. In fine Lectiónum non dícitur Tu autem, sed primæ tres Lectiónes Jeremíæ terminántur ut infra.}
+
+#### Incipit Lamentátio Jeremíæ Prophétæ
+
+#### Lectio i
+
+*Cap. 1, 1-14*
+
+{RUBRIC: ALEPH.} Quómodo sedet sola cívitas plena pópulo: facta est quasi vídua dómina

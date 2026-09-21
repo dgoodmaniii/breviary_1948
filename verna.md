@@ -27219,4 +27219,26 @@ ASCENDIT, inquit, in altum, captívam duxit captivitátem. Quam bene triúmphum 
 
 *Cap. 16, 14-20*
 
-IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus:
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui víderant eum resurrexísse, non credidérunt. Et réliqua.
+
+De Homilía sancti Gregórii Papæ
+
+{RUBRIC: Eadem Homilia 29}
+
+CONSIDERANDUM nobis est, quid est quod Marcus ait: Sedet a dextris Dei; et Stéphanus dicit: Video cælos apértos, et Fílium hóminis stantem a dextris Dei. Quid est quod hunc Marcus sedéntem, Stéphanus vero stantem se vidére testátur? Sed scitis, fratres, quia sedére judicántis est, stare vero pugnántis, vel adjuvántis.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut máneat.
+
+#### Lectio viii
+
+QUIA ergo Redémptor noster assúmptus in cælum et nunc ómnia júdicat, et ad extrémum judex ómnium véniet, hunc post assumptiónem Marcus sedére descríbit, quia post ascensiónis suæ glóriam judex in fine vidébitur. Stéphanus vero hunc in labóre certáminis pósitus stantem vidit, quem adjutórem hábuit: quia ut iste in terra persecutórum infidelitátem vínceret, pro illo de cælo illíus grátia pugnávit.
+
+℟. Ponis nubem ascénsum tuum, Dómine: \* Qui ámbulas super pennas ventórum, allelúja. ℣. Confessiónem et decórem indúisti, amíctus lumen sicut vestiméntum. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+SEQUITUR: Illi autem profécti prædicavérunt ubíque, Dómino cooperánte et sermónem confirmánte sequéntibus signis. Quid in his considerándum est, quid memóriæ commendándum: nisi quod præcéptum obediéntia, obediéntiam vero signa secúta sunt? Sed quia auctóre Deo bréviter lectiónem evangélicam expónendo transcúrrimus: restat, ut áliquid de ipsa tantæ consideratióne solemnitátis dicámus.
+
+Te Deum laudámus.
+
+---

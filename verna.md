@@ -23501,3 +23501,51 @@ Benedícat te Dóminus ex Sion, \* qui fecit cælum et terram.
 NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
 
 Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum.
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+{RUBRIC: Postea} **Ant.** Hæc dies, \* quam fecit Dóminus: exsultémus, et lætémur in ea.
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+VISITA, quǽsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum. ℟. Amen.
+
+℣. Dóminus vobíscum.
+
+℣. Benedicámus Dómino.
+
+**Bened.** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: In fine Antiphona} Regína cæli, {RUBRIC: ut in Ordinario. 39}
+
+{RUBRIC: Sic recitátur divínum Offícium ad síngulas Horas usque ad Nonam Sábbati in Albis inclusíve, excéptis iis quæ síngulis diébus habéntur própria.}
+
+---
+
+## Feria II infra Octavam Paschæ
+
+{RUBRIC: Duplex I classis}
+
+℣. Surréxit Dóminus de sepúlcro, allelúja. ℟. Qui pro nobis pepéndit in ligno, allelúja.
+
+**Absol.** Exáudi, Dómine.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 24, 13-35*
+
+IN illo témpore: Duo ex discípulis Jesu ibant ipsa die in castéllum, quod erat in spátio stadiórum sexagínta ab Jerúsalem, nómine Emmaus. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 23 in Evangelia}
+
+AUDISTIS, fratres caríssimi, quia duóbus discípulis ambulántibus in via, non quidem credéntibus, sed tamen de se loquéntibus, Dóminus appáruit: sed eis spéciem, quam recognóscerent, non osténdit. Hoc ergo egit foris Dóminus in óculis córporis, quod apud ipsos agebátur intus in óculis cordis. Ipsi namque apud

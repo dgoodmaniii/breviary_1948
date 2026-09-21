@@ -27139,4 +27139,16 @@ De Homilía sancti Gregórii Papæ
 
 {RUBRIC: Eadem Homilia 29}
 
-ET Dóminus quidem Jesus, postquam locútus est eis, assúmptus est in cælum, et sedet a dextris Dei. In véteri testaménto cognóvimus quod Elías sit raptus in cælum. Sed áliud est cælum aéreum, áliud æthéreum. Cælum quippe aéreum terræ est próximum: unde et aves cæli
+ET Dóminus quidem Jesus, postquam locútus est eis, assúmptus est in cælum, et sedet a dextris Dei. In véteri testaménto cognóvimus quod Elías sit raptus in cælum. Sed áliud est cælum aéreum, áliud æthéreum. Cælum quippe aéreum terræ est próximum: unde et aves cæli dícimus, quia eas volitáre in áëre vidémus. In cælum ítaque aéreum Elías sublevátus est, ut in secrétam quamdam terræ regiónem repénte ducerétur, ubi in magna jam carnis et spíritus quiéte víveret, quoúsque ad finem mundi rédeat, et mortis débitum solvat. Ille étenim mortem dístulit, non evásit: Redémptor autem noster, quia non dístulit, superávit, eámque resurgéndo consúmpsit, et resurrectiónis suæ glóriam ascendéndo declarávit.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut máneat.
+
+#### Lectio viii
+
+NOTANDUM quoque est, quod Elías in curru légitur ascendísse: ut vidélicet apérte demonstrarétur, quia homo purus adjutório indigébat aliéno. Per Angelos quippe facta illa et osténsa sunt adjuménta: quia nec in cælum quidem aéreum per se ascéndere póterat, quem natúræ suæ infírmitas grávabat. Redémptor autem noster non curru, non Angelis sublevátus légitur: quia is qui fécerat ómnia, nimírum super ómnia sua virtúte ferebátur. Illo étenim revertebátur, ubi erat: et inde redíbat, ubi remanébat: quia cum per humanitátem ascénderet in cælum, per divinitátem suam et terram páriter continébat et cælum.
+
+℟. Ponis nubem ascénsum tuum, Dómine: \* Qui ámbulas super pennas ventórum, allelúja. ℣. Confessiónem et decórem indúisti, amíctus lumen sicut vestiméntum. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+SICUT autem Joseph a frátribus vénditus venditiónem Redemptóris nostri figurávit: sic Henoch translátus, atque ad cælum aéreum Elías sublevátus, ascensiónem Domínicam utérque designávit. Ascensiónis ergo suæ Dóminus prænúntios et testes hábuit, unum ante legem, álium sub lege: ut quandóque veníret ipse, qui veráciter cælos penetráre potuísset. Unde et ipse ordo in eórum quoque utrorúmque sublevatióne per quǽdam increménta distínguitur. Nam Henoch translátus, Elías vero ad

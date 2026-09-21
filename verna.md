@@ -29777,4 +29777,40 @@ VENITE ad me, omnes qui laborátis. Quare enim omnes laborámus, nisi quia sumus
 
 ###### Lectio viii
 
-MAGNUS esse vis? a mínimo íncipe. Cógitas magnam fábricam constrúere celsitúdinis? de fundaménto prius cógita humilitátis. Et quantam quisque vult et dispónit superimpónere molem ædifícii, quanto erit majus ædifícium, tanto áltius fodit fundaméntum. Et fábrica quidem cum con-
+MAGNUS esse vis? a mínimo íncipe. Cógitas magnam fábricam constrúere celsitúdinis? de fundaménto prius cógita humilitátis. Et quantam quisque vult et dispónit superimpónere molem ædifícii, quanto erit majus ædifícium, tanto áltius fodit fundaméntum. Et fábrica quidem cum constrúitur, in supérna consúrgit; qui autem fodit fundaméntum, ad ima deprímitur. Ergo et fábrica ante celsitúdinem humiliátur, et fastígium post humiliatiónem erígitur.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+{RUBRIC: IX Lectio de Homilia Feriæ et fit ejus Commemoratio ad Laudes et in II Vesperis.}
+
+###### Oratio
+
+DEUS, qui beátum Matthíam Apostolórum tuórum collégio sociásti: tríbue, quǽsumus; ut, ejus intervéntione, tuæ circa nos pietátis semper víscera sentiámus. Per Dóminum.
+
+---
+
+### Die 27 vel 28 Februarii
+
+#### S. Gabrielis a Virgine Perdolente
+
+{RUBRIC: Confessoris Duplex [111]}
+
+##### In I Vesperis
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEUS, qui beátum Gabriélem dulcíssimæ Matris tuæ dolóres assídue recólere docuísti, ac per illam sanctitátis et miraculórum glória sublimásti: da nobis, ejus intercessióne et exémplo, ita Genitrícis tuæ consociári flétibus; ut matérna ejúsdem protectióne salvémur: Qui vivis.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones} Justus si morte, {RUBRIC: de Communi Conf. non Pont. 2 loco. [120]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+GABRIEL, Assísii in Úmbria, honésto génere natus, et Francíscus ob seráphici civis memóriam vocátus, egrégiam ánimi índolem a púero osténdit. Adoléscens, cum Spoléti lítteris óperam daret, ináni sǽculi spécie et pompa aliquántulum állici visus est. Sed miseréntis Dei múnere, qui eum ad perfectiónem christiánæ vitæ jamdúdum invitábat, cum in morbum incidísset, sǽculi vanitátem fastidíre cœpit, atque immortália dumtáxat bona appétere. Quo autem cítius Deo vocánti obtemperáret, factum est, ut insígnem

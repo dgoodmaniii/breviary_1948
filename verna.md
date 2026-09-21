@@ -39406,4 +39406,56 @@ DA Ecclésiæ tuæ, quǽsumus, Dómine, sanctis Martýribus tuis Vito, Modésto 
 
 ###### Oratio
 
-DEUS, qui Ecclésiam tuam beáti Ephræm Confessóris tui et Doctóris
+DEUS, qui Ecclésiam tuam beáti Ephræm Confessóris tui et Doctóris mira eruditióne et præcláris vitæ méritis illustráre voluísti: te súpplices exorámus; ut, ipso intercedénte, eam advérsus erróris et pravitátis insídias perénni tua virtúte deféndas. (Per Dóminum.)
+
+{RUBRIC: Et fit Commem. Ss. Marci et Marcelliani Martyrum:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut qui sanctórum Mártyrum tuórum Marci et Marcelliáni natalítia cólimus; a cunctis malis imminéntibus, eórum intercessiónibus liberémur. Per Dóminum.
+
+##### Ad Laudes
+
+{RUBRIC: Pro Commem. S. Ephræm}
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui Ecclésiam, ut supra. 1042
+
+{RUBRIC: Pro Ss. Marco et Marcelliano Martyribus:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Præsta, ut supra.
+
+##### In II Vesperis
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Ephræm, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Justum dedúxit.
+
+---
+
+### Die 19 Junii
+
+#### S. Julianæ de Falconeriis Virg.
+
+{RUBRIC: Duplex, sed ad modum Simplicis recolendum}
+
+##### In I Vesperis
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+DEUS, qui beátam Juliánam Vírginem tuam extrémo morbo laborántem pretióso Fílii tui córpore mirabíliter recreáre dignátus es: concéde, quǽsumus; ut, ejus intercedéntibus méritis, nos quoque eódem in mortis agóne refécti ac roboráti, ad cæléstem pátriam perducámur. (Per eúmdem Dóminum.)

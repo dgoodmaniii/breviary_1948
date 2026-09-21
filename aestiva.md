@@ -13478,4 +13478,66 @@ Allevat Dóminus omnes qui córruunt: \* et érigit omnes elísos.
 
 Justus Dóminus in ómnibus viis suis: \* et sanctus in ómnibus opéribus suis.
 
-Prope est Dóminus ómnibus invocántibus
+Prope est Dóminus ómnibus invocántibus eum: \* ómnibus invocántibus eum in veritáte.
+
+Voluntátem timéntium se fáciet: \* et deprecatiónem eórum exáudiet: et salvos fáciet eos.
+
+Custódit Dóminus omnes diligéntes se: \* et omnes peccatóres dispérdet.
+
+Laudatiónem Dómini loquétur os meum: \* et benedícat omnis caro nómini sancto ejus in sæculum, et in sæculum sæculi.
+
+**Ant.** Fidélis Dóminus in ómnibus verbis suis: et sanctus in ómnibus opéribus suis.
+
+{RUBRIC: In Sabbatis extra Octávas Ssmi Córporis Christi ac Sacratíssimi Cordis Jesu dícitur}
+
+### In Officio feriali
+
+**Capitulum** *Rom. 11, 33*
+
+O Altitúdo divitiárum sapiéntiæ et sciéntiæ Dei: quam incomprehensíbilia sunt judícia ejus, et investigábiles viæ ejus!
+
+#### Hymnus
+
+JAM sol recédit ígneus:
+Tu, lux perénnis, Únitas,
+Nostris, beáta Trínitas,
+Infúnde lumen córdibus.
+
+Te mane laudum cármine,
+Te deprecámur véspere;
+Dignéris ut te súpplices
+Laudémus inter Cælites.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+{RUBRIC: Ad Magníficat Antíphona ut in Próprio de Témpore.}
+
+{RUBRIC: Expléto Cántico ac repetíta Antíphona, dícitur Orátio Domínicæ sequéntis própria, quæ per totam hebdómadam suam in feriáli Officio adhibétur, nisi speciális Orátio habeátur.}
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Completorium
+
+℣. Jube, domne.
+
+**Bened.** Noctem quiétam, et finem perféctum concédat nobis Dóminus omnípotens. ℟. Amen.
+
+**Lectio br.** *1 Petri 5, 8-9*
+
+FRatres: Sóbrii estóte, et vigiláte: quia adversárius vester diábolus tamquam leo rúgiens círcuit, quærens quem dévoret: cui resístite fortes in fide. Tu autem.
+
+℟. Deo grátias.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+Pater noster, {RUBRIC: quod dícitur totum secréto.}
+
+**Confíteor.** Misereátur. Indulgéntiam.

@@ -21480,4 +21480,36 @@ EGO enim accépi a Dómino quod et trádidi vobis, quóniam Dóminus Jesus, in q
 
 #### Lectio ix
 
-ITAQUE quicúmque manducáverit panem hunc, vel bíberit cálicem Dómini
+ITAQUE quicúmque manducáverit panem hunc, vel bíberit cálicem Dómini indígne, reus erit córporis et sánguinis Dómini. Probet autem seípsum homo: et sic de pane illo edat, et de cálice bibat. Qui enim mandúcat et bibit indígne, judícium sibi mandúcat et bibit, non dijúdicans corpus Dómini. Ideo inter vos multi infírmi et imbecílles, et dórmiunt multi. Quod, si nosmetípsos dijudicarémus, non útique judicarémur. Dum judicámur autem, a Dómino corrípimur, ut non cum hoc mundo damnémur. Itaque, fratres mei, cum convenítis ad manducándum, ínvicem exspectáte. Si quis ésurit, domi mandúcet: ut non in judícium conveniátis. Cétera autem, cum vénero, dispónam.
+
+℟. Senióres pópuli consílium fecérunt, \* Ut Jesum dolo tenérent, et occíderent: cum gládiis et fústibus exiérunt tamquam ad latrónem. ℣. Collegérunt pontífices et pharisǽi concílium. — Ut. Senióres.
+
+{RUBRIC: Si Matutínum, hódie vel bíduo sequénti, extra Chorum a Láudibus, separétur, subjungítur Orátio Réspice, quǽsumus, Dómine, ut infra 466; et Laudes, dictis secréto Pater noster et Ave María, absolúte a prima Antíphona incipiúntur.}
+
+## Ad Laudes
+
+**1** Justificéris, Dómine, \* in sermónibus tuis, et vincas cum judicáris.
+
+{RUBRIC: Psalmi de Feria 2 loco. 223}
+
+**2** Dóminus \* tamquam ovis ad víctimam ductus est, et non apéruit os suum.
+
+**3** Contrítum est \* cor meum in médio mei, contremuérunt ómnia ossa mea.
+
+**4** Exhortátus es \* in virtúte tua, et in refectióne sancta tua, Dómine.
+
+**5** Oblátus est \* quia ipse vóluit, et peccáta nostra ipse portávit.
+
+{RUBRIC: Capitulum et Hymnus non dicúntur hoc tríduo.}
+
+℣. Homo pacis meæ, in quo sperávi. ℟. Qui edébat panes meos, ampliávit advérsum me supplantatiónem.
+
+**Ad Bened. Ant.** Tráditor autem \* dedit eis signum, dicens: Quem osculátus fúero, ipse est, tenéte eum.
+
+##### Canticum Zachariæ
+
+*Luc. 1, 68-79*
+
+BENEDICTUS Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.

@@ -10001,3 +10001,57 @@ Apériam in parábolis os meum: \* loquar propositiónes ab inítio.
 Quanta audívimus et cognóvimus ea: \* et patres nostri narravérunt nobis.
 
 Non sunt occultáta a fíliis eórum, \* in generatióne áltera.
+
+Narrántes laudes Dómini, et virtútes ejus, \* et mirabília ejus, quæ fecit.
+
+Et suscitávit testimónium in Jacob: \* et legem pósuit in Israël.
+
+Quanta mandávit pátribus nostris nota fácere ea fíliis suis: \* ut cognóscat generátio áltera.
+
+Fílii qui nascéntur, et exsúrgent, \* et narrábunt fíliis suis,
+
+Ut ponant in Deo spem suam, et non obliviscántur óperum Dei: \* et mandáta ejus exquírant.
+
+Ne fiant sicut patres eórum: \* generátio prava et exásperans.
+
+Generátio, quæ non diréxit cor suum: \* et non est créditus cum Deo spíritus ejus.
+
+**Ant.** Suscitávit Dóminus testimónium in Jacob: et legem pósuit in Israël.
+
+**Ant.** Coram pátribus eórum \* fecit Deus mirabília.
+
+### Psalmus 77, ii
+
+FIlii Ephrem intendéntes et mitténtes arcum: \* convérsi sunt in die belli.
+
+Non custodiérunt testaméntum Dei: \* et in lege ejus noluérunt ambuláre.
+
+Et oblíti sunt benefactórum ejus, \* et mirabílium ejus quæ osténdit eis.
+
+Coram pátribus eórum fecit mirabília in terra Ægýpti, \* in campo Táneos.
+
+Interrúpit mare, et perdúxit eos: \* et státuit aquas quasi in utre.
+
+Et dedúxit eos in nube diéi: \* et tota nocte in illuminatióne ignis.
+
+Interrúpit petram in erémo: \* et adaquávit eos velut in abýsso multa.
+
+Et edúxit aquam de petra: \* et dedúxit tamquam flúmina aquas.
+
+**Ant.** Coram pátribus eórum fecit Deus mirabília.
+
+**Ant.** Jánuas cæli apéruit \* Dóminus, et pluit illis manna ad manducándum.
+
+### Psalmus 77, iii
+
+ET apposuérunt adhuc peccáre ei: \* in iram excitavérunt Excélsum in inaquóso.
+
+Et tentavérunt Deum in córdibus suis, \* ut péterent escas animábus suis.
+
+Et male locúti sunt de Deo: \* dixérunt: Numquid póterit Deus paráre mensam in desérto?
+
+Quóniam percússit petram, et fluxérunt aquæ, \* et torréntes inundavérunt.
+
+Numquid et panem póterit dare, \* aut paráre mensam pópulo suo?
+
+Ideo audívit Dóminus, et dístulit: \* et ignis accénsus est in Jacob, et ira ascéndit in Israël:

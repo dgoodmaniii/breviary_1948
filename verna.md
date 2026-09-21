@@ -44766,4 +44766,22 @@ Sermo sancti Ambrósii Epíscopi
 
 ###### Lectio iv
 
-QUONIAM hódie natális est Vírginis, invítat nunc integritátis amor, ut áliquid de virginitáte dicámus; ne véluti tránsitu quodam
+QUONIAM hódie natális est Vírginis, invítat nunc integritátis amor, ut áliquid de virginitáte dicámus; ne véluti tránsitu quodam prǽstricta videátur, quæ principális est virtus. Non enim ídeo laudábilis virgínitas, quia in Martýribus reperítur; sed quia ipsa Mártyres fáciat. Quis autem humáno eam possit ingénio comprehéndere, quam nec natúra suis inclúsit légibus? aut quis naturáli voce complécti, quod supra usum natúræ sit? E cælo accersívit, quod imitarétur in terris. Nec immérito vivéndi sibi usum quæsívit e cælo, quæ Sponsum sibi invénit in cælo.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+HÆC nubes, áëra, Angelos, sideráque transgrédiens, Verbum Dei in ipso sinu Patris invénit, et toto hausit péctore. Nam quis tantum, cum invénerit, relínquat boni? Unguéntum enim exinanítum est nomen tuum: proptérea adolescéntulæ dilexérunt te et attraxérunt te. Postrémo, non meum est illud quóniam, Quæ non nubunt neque nubéntur, erunt sicut Angeli Dei in cælo. Nemo ergo mirétur, si Angelis comparéntur, quæ Angelórum Dómino copulántur.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. (T. P. Allelúja.) ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+QUIS ígitur neget hanc vitam fluxísse de cælo, quam non fácile invenímus in terris, nisi postquam Deus in hæc terréni córporis membra descéndit? Tunc in útero Virgo concépit, et Verbum caro factum est, ut caro fíeret Deus. Dicet áliquis: Sed étiam Elías nullíus corpórei cóitus fuísse permíxtus cupiditátibus invenítur. Ideo ergo curru raptus ad cælum; ídeo cum Dómino appáret in glória; ídeo Domínici ventúrus est præcúrsor advéntus.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.

@@ -35936,4 +35936,22 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 
 ###### Lectio iv
 
-POST insígnem victóriam, quam Constantínus imperátor, divínitus accépto signo Domínicæ Crucis, ex Maxéntio reportávit, Hélena Constantíni mater, in somnis admónita, conquiréndæ Crucis stúdio Jerosólymam venit; ubi marmóream Véneris státuam, in Crucis loco a Géntibus collocátam ad tolléndam Christi Dómini
+POST insígnem victóriam, quam Constantínus imperátor, divínitus accépto signo Domínicæ Crucis, ex Maxéntio reportávit, Hélena Constantíni mater, in somnis admónita, conquiréndæ Crucis stúdio Jerosólymam venit; ubi marmóream Véneris státuam, in Crucis loco a Géntibus collocátam ad tolléndam Christi Dómini passiónis memóriam, post centum círciter octogínta annos, everténdam curávit. Quod item fecit ad præsépe Salvatóris et in loco resurrectiónis, inde Adónidis hinc Jovis subláto simulácro.
+
+℟. Nos autem gloriári opórtet in Cruce Dómini nostri Jesu Christi, in quo est salus, vita, et resurréctio nostra: \* Per quem salváti et liberáti sumus, allelúja. ℣. Tuam Crucem adorámus, Dómine, et recólimus tuam gloriósam passiónem. — Per.
+
+**Lectio v**
+
+ITAQUE loco Crucis purgáto, alte defóssæ tres cruces erútæ sunt, repertúsque seórsum ab illis Crucis Domínicæ títulus: qui cum ex tribus cui affíxus fuísset, non apparéret, eam dubitatiónem sústulit miráculum. Nam Macárius Jerosolymórum epíscopus, factis Deo précibus, síngulas cruces cuidam féminæ, gravi morbo laboránti, admóvit; cui cum réliquæ nihil profuíssent, adhíbita tértia Crux statim eam sanávit.
+
+℟. Dum sacrum pignus cǽlitus revelátur, Christi fides roborátur: \* Adsunt prodígia divína in virga Móysi prímitus figuráta, allelúja, allelúja. ℣. Ad Crucis contáctum resúrgunt mórtui, et Dei magnália reserántur. — Adsunt.
+
+**Lectio vi**
+
+HELENA, salutári Cruce invénta, magnificentíssimam ibi exstrúxit ecclésiam, in qua partem Crucis relíquit thecis argénteis inclúsam, partem Constantíno fílio détulit; quæ Romæ reposíta fuit in ecclésia sanctæ Crucis in Jerúsalem, ædificáta in ǽdibus Sessoriánis. Clavos étiam áttulit fílio, quibus sanctíssimum Jesu Christi corpus fixum fúerat. Quo ex témpore Constantínus legem sancívit, ne crux ad supplícium cuíquam adhiberétur. Ita, res quæ ántea homínibus probro ac ludíbrio fúerat, veneratióni et glóriæ esse cœpit.
+
+℟. Hoc signum Crucis erit in cælo, cum Dóminus ad judicándum vénerit: \* Tunc manifésta erunt abscóndita cordis nostri, allelúja, allelúja. ℣. Cum séderit Fílius hóminis in sede majestátis suæ, et cœperit judicáre sǽculum per ignem. — Tunc. Glória Patri. Tunc.
+
+###### In III Nocturno
+
+**Ant.** Adorámus te, Christe, \* et benedícimus tibi, quia per Crucem tuam

@@ -30000,3 +30000,49 @@ PERPETUA et Felícitas, in persecutióne Sevéri imperatóris, in África, una c
 ###### Lectio v
 
 FELICITAS vero, instánte spectáculi die, cum octo jam menses prægnans esset, in magno erat luctu, ne differrétur; leges quippe vetábant prægnántes supplício afféci. At précibus commártyrum acceleráto partu, eníxa est fíliam. Cumque in partu labórans doléret, ait illi quidam de custódibus: Quæ sic modo doles, quid fácies objécta béstiis? Cui illa: Modo ego pátior; illic autem álius erit in me, qui patiétur pro me, quia et ego pro illo passúra sum.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+###### Lectio vi
+
+IN amphitheátrum, toto inspectánte pópulo, producúntur tandem generósæ mulíeres, Nonis Mártii, ac primum flagéllis cædúntur. Tunc a ferocíssima vacca aliquámdiu jactátæ, plagis concísæ et in terram elísæ sunt. Demum cum sóciis, qui a váriis béstiis vexáti fúerant, gladiórum íctibus confíciúntur. Harum sanctárum Mártyrum festum Pius décimus Póntifex máximus ad ritum dúplicem pro univérsa Ecclésia evéxit ac diéi sextæ Mártii assignári mandávit.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Símile est, {RUBRIC: de Communi non Virginum. [154]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Glória et honóre coronásti eas, Dómine. ℟. Et constituísti eas super ópera mánuum tuárum.
+
+**Ad Bened. Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio** Da nobis, {RUBRIC: ut supra. 724}
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Vesperæ a Capitulo de sequenti, Commemoratio præcedentis et Feriæ.}
+
+---
+
+### Die 7 Martii
+
+#### S. Thomæ de Aquino
+
+{RUBRIC: Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Thoma, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Thomæ Confessóris tui mira eruditióne claríficas, et sancta operatióne fecúndas: da nobis, quǽsumus; et quæ dócuit, intelléctu conspícere, et quæ egit, imitatióne complére. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Istárum est, {RUBRIC: ℣. Glória et} **Oratio** Da nobis, {RUBRIC: ut supra.}

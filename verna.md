@@ -46033,4 +46033,48 @@ Scápulis suis obumbrábit tibi: \* et sub pennis ejus sperábis.
 
 Scuto circúmdabit te véritas ejus: \* non timébis a timóre noctúrno.
 
-A sagítta volánte in die, a negótio perambulánte in ténebris: \* ab incúrsu, et dæmónio meridiáno.
+A sagítta volánte in die, a negótio perambulánte in ténebris: \* ab incúrsu, et dæmónio meridiáno. Cadent a látere tuo mille, et decem míllia a dextris tuis: \* ad te autem non appropinquábit.
+
+Verúmtamen óculis tuis considerábis: \* et retributiónem peccatórum vidébis.
+
+Quóniam tu es, Dómine, spes mea: \* Altíssimum posuísti refúgium tuum.
+
+Non accédet ad te malum: \* et flagéllum non appropinquábit tabernáculo tuo.
+
+Quóniam Angelis suis mandávit de te: \* ut custódiant te in ómnibus viis tuis.
+
+In mánibus portábunt te: \* ne forte offéndas ad lápidem pedem tuum.
+
+Super áspidem, et basilíscum ambulábis: \* et conculcábis leónem et dracónem.
+
+Quóniam in me sperávit, liberábo eum: \* prótegam eum, quóniam cognóvit nomen meum.
+
+Clamábit ad me, et ego exáudiam eum: \* cum ipso sum in tribulatióne: erípiam eum et glorificábo eum.
+
+Longitúdine diérum replébo eum: \* et osténdam illi salutáre meum.
+
+**Ant.** Qui hábitat in adjutório Altíssimi, in protectióne Dei cæli commorábitur. (T. P. Allelúja.)
+
+**Ant.** Templum Dómini \* sanctum est, Dei structúra est, Dei ædificátio est. (T. P. Allelúja.)
+
+###### Psalmus 95
+
+CANTATE Dómino cánticum novum: \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus: \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis: \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia: \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus: \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem: \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra: \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur: \* judicábit pópulos in æquitáte.

@@ -42537,3 +42537,86 @@ Qui victor in cælum redis,
 Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
+
+##### Pro pluribus Martyribus
+
+###### Hymnus
+
+REX glorióse Mártyrum,
+Coróna confiténtium,
+Qui respuéntes térrea
+Perdúcis ad cæléstia:
+
+Aurem benígnam prótinus
+Inténde nostris vócibus:
+Trophǽa sacra pángimus:
+Ignósce quod delíquimus.
+
+Tu vincis inter Mártyres
+Parcísque Confessóribus:
+Tu vince nostra crímina,
+Largítor indulgéntiæ.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+##### In II Vesperis
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Magnif. Ant.** Sancti et justi, \* in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+{RUBRIC: Oratio ut ad Laudes.}
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invit.** Exsúltent in Dómino Sancti, \* Allelúja. **Ps. 94** Veníte.
+
+##### Pro uno Martyre
+
+**Hymnus** Deus, tuórum mílitum, {RUBRIC: ut supra. [74]}
+
+##### Pro pluribus Martyribus
+
+###### Hymnus
+
+CHRISTO profúsum sánguinem
+Et Mártyrum victórias
+Dignámque cælo láuream
+Lætis sequámur vócibus.
+
+Terróre victo sǽculi
+Pœnísque spretis córporis,
+Mortis sacræ compéndio
+Vitam beátam póssident.
+
+Tradúntur igni Mártyres
+Et bestiárum déntibus;
+Armáta sævit úngulis
+Tortóris insáni manus.
+
+Nudáta pendent víscera,
+Sanguis sacrátus fúnditur;
+Sed pérmanent immóbiles
+Vitæ perénnis grátia.
+
+{RUBRIC: Sequens Conclusio numquam mutatur.}
+
+Te nunc, Redémptor, quǽsumus,
+Ut Mártyrum consórtio
+Jungas precántes sérvulos
+In sempitérna sǽcula.
+Amen.
+
+##### In I Nocturno
+
+**Ant.** Stabunt justi \* in magna constántia advér-

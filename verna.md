@@ -22307,3 +22307,47 @@ Et dixérunt: Non vidébit Dóminus, \* nec intélliget Deus Jacob.
 Intellígite, insipiéntes in pópulo: \* et stulti, aliquándo sápite.
 
 Qui plantávit aurem, non áudiet? \* aut qui finxit óculum, non considerat?
+
+Qui córripit gentes, non árguet: \* qui docet hóminem sciéntiam?
+
+Dóminus scit cogitatiónes hóminum, \* quóniam vanæ sunt.
+
+Beátus homo, quem tu erudíeris, Dómine: \* et de lege tua docúeris eum,
+
+Ut mítiges ei a diébus malis: \* donec fodiátur peccatóri fóvea.
+
+Quia non repéllet Dóminus plebem suam: \* et hereditátem suam non derelínquet.
+
+Quoadúsque justítia convertátur in judícium: \* et qui juxta illam omnes qui recto sunt corde.
+
+Quis consúrget mihi advérsus malignántes? \* aut quis stabit mecum advérsus operántes iniquitátem?
+
+Nisi quia Dóminus adjúvit me: \* paulo minus habitásset in inférno ánima mea.
+
+Si dicébam: Motus est pes meus: \* misericórdia tua, Dómine, adjuvábat me.
+
+Secúndum multitúdinem dolórum meórum in corde meo: \* consolatiónes tuæ lætificavérunt ánimam meam.
+
+Numquid adhǽret tibi sedes iniquitátis: \* qui fingis labórem in præcépto?
+
+Captábunt in ánimam justi: \* et sánguinem innocéntem condemnábunt.
+
+Et factus est mihi Dóminus in refúgium: \* et Deus meus in adjutórium spei meæ.
+
+Et reddet illis iniquitátem ipsórum: et in malítia eórum dispérdet eos: \* dispérdet illos Dóminus Deus noster.
+
+{RUBRIC: †}
+
+**Ant.** Captábunt in ánimam justi, et sánguinem innocéntem condemnábunt.
+
+℣. Locúti sunt advérsum me lingua dolósa. ℟. Et sermónibus ódii circumdedérunt me, et expugnavérunt me gratis.
+
+{RUBRIC: Pater noster secreto.}
+
+#### De Epístola beáti Pauli Apóstoli ad Hebrǽos
+
+#### Lectio vii
+
+*Cap. 4, 11-16*
+
+FESTINEMUS íngredi in illam réquiem: ut ne in idípsum quis íncidat incredulitátis exémplum. Vivus est enim sermo Dei, et éfficax, et penetrabílior omni gládio ancípiti: et pertíngens usque ad divisiónem ánimæ ac spíritus, compágum quoque ac medullárum, et discrétor cogitatiónum et intentiónum cordis. Et non est ulla creatúra invisíbilis in conspéctu ejus: ómnia autem nuda et apérta sunt óculis ejus, ad

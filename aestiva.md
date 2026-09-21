@@ -18817,3 +18817,27 @@ MUlier autem quædam de uxóribus prophetárum clamábat ad Eliséum dicens: Ser
 ##### Lectio ii
 
 IVit ítaque múlier et clausit óstium super se et super fílios suos; illi offerébant vasa, et illa infundébat. Cumque plena fuíssent vasa, dixit ad fílium suum: Affer mihi adhuc vas. Et ille respóndit: Non hábeo. Stetítque óleum. Venit autem illa et indicávit hómini Dei. Et ille, Vade, inquit, vende óleum et redde creditóri tuo; tu autem et fílii tui vívite de réliquo.
+
+Facta est autem quædam dies, et transíbat Eliséus per Sunam. Erat autem ibi múlier magna, quæ ténuit eum ut coméderet panem; cumque frequénter inde transíret, divertébat ad eam ut coméderet panem. Quæ dixit ad virum suum: Animadvérto quod vir Dei sanctus est iste, qui transit per nos frequénter: faciámus ergo ei cœnáculum parvum et ponámus ei in eo léctulum, et mensam et sellam et candelábrum, ut, cum vénerit ad nos, máneat ibi.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+FActa est ergo dies quædam, et véniens divértit in cœnáculum et requiévit ibi. Dixítque ad Giézi púerum suum: Voca Sunamítidem istam. Qui, cum vocásset eam et illa stetísset coram eo, dixit ad púerum suum: Lóquere ad eam: Ecce sédule in ómnibus ministrásti nobis, quid vis ut fáciam tibi? Numquid habes negótium et vis ut loquar regi sive príncipi milítiæ? Quæ respóndit: In médio pópuli mei hábito. Et ait: Quid ergo vult ut fáciam ei? Dixítque Giézi: Ne quæras, fílium enim non habet, et vir ejus senex est. Præcépit ítaque ut vocáret eam; quæ cum vocáta fuísset et stetísset ante óstium, dixit ad eam: In témpore isto et in hac eádem hora, si vita comes fúerit, habébis in útero fílium. At illa respóndit: Noli, quæso, dómine mi, vir Dei, noli mentíri ancíllæ tuæ. Et concépit múlier et péperit fílium in témpore et in hora eádem, qua dixérat Eliséus.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 6, 24-33; 7, 1*
+
+COngregávit Bénadad rex Sýriæ univérsum exércitum suum et ascén-

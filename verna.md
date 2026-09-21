@@ -20550,4 +20550,28 @@ DICENTE enim prophéta: Quǽrite Dóminum, et confirmámini, quǽrite fáciem ej
 
 FEFELLIT ergo illum malígnitas sua, íntulit supplícium Fílio Dei, quod cunctis fíliis hóminum in remédium verterétur. Fudit sánguinem justum, qui reconciliándo mundo, et prétium esset, et póculum. Suscépit Dóminus, quod secúndum propósitum suæ voluntátis elégit. Admísit in se ímpias manus furéntium: quæ dum próprio incúmbunt scéleri, famulátæ sunt Redemptóri. Cujus étiam circa interfectóres suos tanta erat pietátis afféctio, ut de cruce súpplicans Patri, non se vindicári, sed illis postuláret ignósci.
 
-℟. Noli esse mihi, Dómine, aliénus: parce mihi in die mala: confundántur omnes qui me persequúntur, \* Et non confúndar ego. ℣. Confundántur om-
+℟. Noli esse mihi, Dómine, aliénus: parce mihi in die mala: confundántur omnes qui me persequúntur, \* Et non confúndar ego. ℣. Confundántur omnes inimíci mei, qui quǽrunt ánimam meam. — Et. Noli.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 21, 1-9*
+
+IN illo témpore: Cum appropinquásset Jesus Jerosólymis, et venísset Béthphage ad montem Olivéti: tunc misit duos discípulos, dicens eis. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+
+{RUBRIC: Liber 6 in Lucam}
+
+PULCHRE, relíctis Judǽis, habitatúrus in afféctibus géntium, templum Dóminus ascéndit. Hoc enim templum est verum, in quo non in líttera, sed in spíritu Dóminus adorátur. Hoc Dei templum est, quod fídei séries, non lápidum structúra fundávit. Deserúntur ergo qui óderant: eligúntur qui amatúri erant. Et ídeo ad montem venit Olivéti, ut novéllas óleas in sublími virtúte plantáret, quarum mater est illa, quæ sursum est, Jerúsalem. In hoc monte est ille cæléstis agrícola: ut plantáti omnes in domo Dei possint virítim dícere: Ego autem sicut olíva fructífera in domo Dómini.
+
+℟. Dóminus mecum est tamquam bellátor fortis: proptérea persecúti sunt me, et intellígere non potuérunt: Dómine, probas renes et corda: \* Tibi revelávi causam meam. ℣. Vidísti, Dómine, iniquitátes eórum advérsum me: júdica judícium meum. — Tibi.
+
+#### Lectio viii
+
+ET fortásse ipse mons Christus est. Quis enim álius tales fructus ferret oleárum, non curvescéntium ubertáte baccárum, sed spíritus plenitúdine géntium fœcundárum? Ipse est per quem ascéndimus, et ad quem ascéndimus. Ipse est jánua, ipse est via, qui aperítur, et qui áperit: qui pulsátur ab ingrediéntibus, et ab eméritis adorátur. Ergo in castéllo erat, et ligátus erat pullus cum ásina: non póterat solvi nisi jussu Dómini. Solvit eum manus apostólica. Talis actus, talis vita, talis grátia. Esto talis et tu, ut possis ligátos sólvere.
+
+℟. Dixérunt ímpii apud se, non recte cogitántes: Circumveniámus justum, quóniam contrárius est opéribus nostris: promíttit se sciéntiam Dei habére, Fílium Dei se nóminat, et gloriátur patrem se ha-

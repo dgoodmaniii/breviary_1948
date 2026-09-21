@@ -31362,3 +31362,109 @@ Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ej
 ###### Psalmus 14
 
 DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Cumque Gábriel loquerétur ad me, collápsus sum pronus in terram, et tétigit me, et státuit me in gradu meo.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+De Daniéle Prophéta
+
+###### Lectio i
+
+*Cap. 9, 20-27*
+
+EGO Dániel, cum adhuc lóquerer, et orárem, et confitérer peccáta mea, et peccáta pópuli mei Israël, et prostérnerem preces meas in conspéctu Dei mei, pro monte sancto Dei mei: adhuc me loquénte in oratióne, ecce vir Gábriel, quem víderam in visióne a princípio, cito volans, tétigit me in témpore sacrifícii vespertíni. Et dócuit me, et locútus est mihi, dixítque: Dániel, nunc egréssus sum ut docérem te et intellígeres. Ab exórdio precum tuárum egréssus est sermo: ego autem veni ut indicárem tibi, quia vir desideriórum es: tu ergo animadvérte sermónem, et intéllige visiónem.
+
+℟. Cum oráret Dániel, et confiterétur peccáta sua, et peccáta pópuli sui, \* Ecce Archángelus Gábriel cito volans tétigit eum in témpore sacrifícii vespertíni. ℣. Cumque prostérneret preces suas in conspéctu Dei sui. — Ecce.
+
+###### Lectio ii
+
+SEPTUAGINTA hebdómades abbreviátæ sunt super pópulum tuum et super urbem sanctam tuam ut consummétur prævaricátio, et finem accípiat peccátum, et deleátur iníquitas, et adducátur justítia sempitérna, et impleátur vísio, et prophetía, et ungátur Sanctus sanctórum. Scito ergo, et animadvérte: Ab éxitu sermónis, ut íterum ædificétur Jerúsalem, usque ad Christum ducem, hebdómades septem, et hebdómades sexagínta duæ erunt: et rursum ædificábitur platéa, et muri in angústia témporum.
+
+℟. Locútus est Gábriel Daniéli, et dixit: Ab exórdio precum tuárum egréssus est sermo. \* Ego autem veni ut indicárem tibi, quia vir desideriórum es. ℣. Tu autem animadvérte sermónem, et intéllige visiónem. — Ego.
+
+###### Lectio iii
+
+ET post hebdómades sexagínta duas occidétur Christus: et non erit ejus pópulus, qui eum negatúrus est. Et civitátem, et sanctuárium dissipábit pópulus cum duce ventúro: et finis ejus vástitas, et post finem belli statúta desolátio. Confirmábit autem pactum multis hebdómada una: et in dimídio hebdómadis defíciet hóstia et sacrifícium: et erit in templo abominátio desolatiónis: et usque ad consummatiónem et finem perseverábit desolátio.
+
+℟. Ecce vir Gábriel, quem víderam, cito volans tétigit me in témpore sacrifícii vespertíni, et dócuit me, et dixit: \* Dániel, nunc egréssus sum ut docérem te, et intellígeres. ℣. Gábriel, fac me intellígere istam visiónem: et venit, et stetit juxta ubi ego stabam, et ait ad me. — Dániel. Glória Patri. Dániel.
+
+##### In II Nocturno
+
+**Ant.** Gábriel Angelus \* appáruit Zacharíæ, dicens: Uxor tua Elísabeth páriet tibi fílium, et vocábis nomen ejus Joánnem.
+
+###### Psalmus 18
+
+CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** Gábriel Angelus appáruit Zacharíæ, dicens: Uxor tua Elísabeth páriet tibi fílium, et vocábis nomen ejus Joánnem.
+
+**Ant.** Et dixit Zacharías \* ad Angelum: Unde hoc sciam? ego enim sum senex, et uxor mea procéssit in diébus suis.
+
+###### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus: \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini: \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Et dixit Zacharías ad Angelum: Unde hoc sciam? ego enim sum senex, et uxor mea procéssit in diébus suis.
+
+**Ant.** Respóndens autem Angelus, \* dixit ei: Ego sum Gábriel, qui asto ante Deum: et missus sum loqui ad te, et hæc tibi evangelizáre.

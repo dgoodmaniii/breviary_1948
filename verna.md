@@ -46871,4 +46871,68 @@ Tribus honor unus. Amen.
 
 ##### In II Vesperis
 
-**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus. (T. P. Allelúja.)
+
+###### Oratio
+
+CONCEDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Conclusio Hymnorum ad omnes Horas, etiam per Octavas communes, erit sequens:}
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+##### Ad Matutinum
+
+**Invitat.** Sancta María, Dei Génitrix Virgo, \* Intercéde pro nobis. (T. P. Allelúja.)
+
+##### In Annuntiatione B. M. V.
+
+**Invitat.** Ave, María, grátia plena; \* Dóminus tecum. (T. P. Allelúja.)
+
+**Ps. 94** Veníte, exsultémus.
+
+###### Hymnus
+
+QUEM terra, pontus, sídera
+Colunt, adórant, prǽdicant,
+Trinam regéntem máchinam,
+Claustrum Maríæ bájulat.
+
+Cui luna, sol et ómnia
+Desérviunt per témpora,
+Perfúsa cæli grátia,
+Gestant puéllæ víscera.
+
+Beáta Mater múnere,
+Cujus, supérnus Artifex
+Mundum pugíllo cóntinens,
+Ventris sub arca clausus est.
+
+Beáta cæli núntio,
+Fecúnda Sancto Spíritu,
+Desiderátus géntibus
+Cujus per alvum fusus est.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+##### In I Nocturno
+
+**Ant.** Benedícta tu \* in muliéribus, et benedíctus fructus ventris tui. (T. P. Allelúja.)
+
+{RUBRIC: Sub hac una Antiphona cum Allelúja Tempore Paschali dicuntur tres Psalmi hujus Nocturni, et similiter in II et III Nocturno.}
+
+###### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.

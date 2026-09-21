@@ -6210,3 +6210,50 @@ In circúitu ímpii ámbulant: \* secúndum altitúdinem tuam multiplicásti fí
 ### Psalmus 12
 
 USQUEQUO, Dómine, oblivascéris me in finem? \* Usquequo avértis fáciem tuam a me?
+
+Quámdiu ponam consília in ánima mea, \* dolórem in corde meo per diem?
+
+Usquequo exaltábitur inimícus meus super me? \* réspice, et exáudi me, Dómine, Deus meus.
+
+Illúmina óculos meos ne umquam obdórmiam in morte: \* nequándo dicat inimícus meus: Præválui advérsus eum.
+
+Qui tríbulant me, exsultábunt si motus fúero: \* ego autem in misericórdia tua sperávi.
+
+Exsultábit cor meum in salutári tuo: cantábo Dómino qui bona tríbuit mihi: \* et psallam nómini Dómini altíssimi.
+
+### Psalmus 15
+
+CONSERVA me, Dómine, quóniam sperávi in te. \* Dixi Dómino: Deus meus es tu, quóniam bonórum meórum non eges.
+
+Sanctis, qui sunt in terra ejus, \* mirificávit omnes voluntátes meas in eis.
+
+Multiplicátæ sunt infirmitátes eórum: \* póstea acceleravérunt.
+
+Non congregábo conventícula eórum de sanguínibus, \* nec memor ero nóminum eórum per lábia mea.
+
+Dóminus pars hereditátis meæ, et cálicis mei: \* tu es, qui restítues hereditátem meam mihi.
+
+Funes cecidérunt mihi in præcláris: \* étenim heréditas mea præclára est mihi.
+
+Benedícam Dóminum, qui tríbuit mihi intelléctum: \* ínsuper et usque ad noctem increpuérunt me renes mei.
+
+Providébam Dóminum in conspéctu meo semper: \* quóniam a dextris est mihi, ne commóvear.
+
+Propter hoc lætátum est cor meum, et exsultávit lingua mea: \* ínsuper et caro mea requiéscet in spe.
+
+Quóniam non derelínques ánimam meam in inférno: \* nec dabis sanctum tuum vidére corruptiónem.
+
+Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo: \* delectatiónes in déxtera tua usque in finem.
+
+**Ant.** Tu, Dómine, servábis nos: et custódies nos in ætérnum.
+
+#### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata,
+Hostémque nostrum cómprime,

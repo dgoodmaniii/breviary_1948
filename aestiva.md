@@ -640,3 +640,60 @@ DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia 
 {RUBRIC: Post Lectiónem brevem dícitur:}
 
 ℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Bened.** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dícitur tantum Pater noster secréto, nisi sequátur ália Hora.}
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor,
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Expléto Hymno, convéniens dícitur Antíphona usque ad Asteríscum \*, et tres Psalmi, prouti Offícium occúrrens réquirit; atque Psalmis absolútis, íntegra repetítur Antíphona.}
+
+#### In Officio dominicali
+
+{RUBRIC: In ómnibus Domínicis, extra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, Aña ut in Psaltério, et dícitur sequens}
+
+**Capitulum** *1 Joann. 4, 16*
+
+DEUS cáritas est: et qui manet in caritáte, in Deo manet, et Deus in eo.
+
+℟. br. Inclína cor meum, Deus, \* In testimónia tua. Inclína. ℣. Avérte óculos meos, ne vídeant vanitátem: in via tua vivífica me. In testimónia tua. Glória Patri. Inclína.
+
+℣. Ego dixi: Dómine, miserére mei. ℟. Sana ánimam meam, quia peccávi tibi.
+
+#### In Officio feriali
+
+{RUBRIC: In ómnibus Fériis, Antíphona de Feria curránti, ut in Psaltério; et dícitur quotídie sequens}
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana.
+
+℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+{RUBRIC: Expléto Responsório brevi, si Preces non fúerint recitándæ, statim dícitur Versus Dóminus vobíscum cum Oratióne et réliquis ómnibus usque ad finem Horæ, ut infra.}

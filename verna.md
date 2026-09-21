@@ -40771,4 +40771,26 @@ QUATUOR ergo fácies uni sunt: quia si requíras, quid Matthǽus de incarnatión
 
 ###### Lectio vi
 
-ET quátuor pennæ uni: quia Dei omnipoténtis Fílium, Dóminum nostrum Jesum Christum,
+ET quátuor pennæ uni: quia Dei omnipoténtis Fílium, Dóminum nostrum Jesum Christum, simul omnes concórditer prǽdicant: et ad divinitátem ejus mentis óculos levántes, penna contemplatiónis volant. Evangelistárum ergo fácies ad humanitátem Dómini pértinet, penna ad divinitátem: quia in eum, quem córporeum aspíciunt, quasi fácies inténdunt; sed, dum hunc esse incircumscríptum atque incorpóreum ex divinitáte annúntiant, per contemplatiónis pennam quasi in áëra levántur. Quia ítaque una est fides incarnatiónis ejus in ómnibus, et par contemplátio divinitátis ejus in síngulis, recte nunc dícitur: Quátuor fácies uni, et quátuor pennæ uni.
+
+℟. Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti. Glória Patri. Repléti.
+
+##### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+**Lectio vii** *Cap. 10, 1-9*
+
+IN illo témpore: Desígnávit Dóminus et álios septuagínta duos: et misit illos binos ante fáciem suam, in omnem civitátem et locum, quo erat ipse ventúrus. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 17 in Evang.}
+
+DOMINUS et Salvátor noster, fratres caríssimi, aliquándo nos sermónibus, aliquándo vero opéribus admónet. Ipsa étenim facta ejus præcépta sunt: quia, dum áliquid tácitus facit, quid ágere debeámus innotéscit. Ecce enim, binos in prædicatiónem discípulos mittit: quia duo sunt præcépta caritátis, Dei vidélicet amor, et próximi: et minus quam inter duos cáritas habéri non potest. Nemo enim próprie ad semetípsum habére caritátem dícitur: sed diléctio in álterum tendit, ut cáritas esse possit.
+
+{RUBRIC: Pro Evangelistis T. P.}
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+{RUBRIC: Feria III et VI infra Hebdómadam I et II post Octávam Paschæ, quóties in I Nocturno Lectiónes fúerint de Scriptúra occurrénti cum suis Responsóriis de Témpore, loco præ-

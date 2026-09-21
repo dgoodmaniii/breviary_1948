@@ -18969,3 +18969,17 @@ IN illo témpore: Erat Jesus ejíciens dæmónium, et illud erat mutum. Et cum e
 DÆMONIACUS iste apud Matthǽum non solum mutus, sed et cæcus fuísse narrátur: curatúsque dícitur a Dómino, ita ut loquerétur, et vidéret. Tria ergo signa simul in uno hómine perpetráta sunt: cæcus videt, mutus lóquitur, posséssus a dǽmone liberátur. Quod et tunc quidem carnáliter factum est, sed et quotídie complétur in conversióne credéntium: ut, expúlso primum dǽmone, fídei lumen aspíciant; deínde ad laudes Dei tacéntia prius ora laxéntur. Quidam autem ex eis dixérunt: In Beélzebub príncipe dæmoniórum éjicit dæmónia. Non hæc áliqui de turba, sed pharisǽi calumniabántur et scribæ, sicut álii Evangelístæ testántur.
 
 ℟. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus: \* Idcírco venit super nos tribulátio.
+
+℣. Dixit Ruben frátribus suis: Numquid non dixi vobis, Nolíte peccáre in púerum; et non audístis me? — Idcírco.
+
+#### Lectio viii
+
+TURBIS quippe, quæ minus erudítæ videbántur, Dómini semper facta mirántibus; illi contra, vel negáre hæc, vel quæ negáre nequíverant, sinístra interpretatióne pervértere laborábant: quasi non hæc divinitátis, sed immúndi spíritus ópera fuíssent. Et álii tentántes, signum de cælo quærébant ab eo. Vel in morem Elíæ ignem de sublími veníre cupiébant; vel in similitúdinem Samuélis témpore æstívo mugíre tonítrua, coruscáre fúlgura, imbres rúere: quasi non possent et illa calumniári, et dícere, ex occúltis et váriis aëris passiónibus accidísse. At tu, qui calumniáris ea, quæ óculis vides, manu tenes, utilitáte sentis; quid féceris de iis, quæ de cælo vénerint? Utique respondébis, et magos in Ægýpto multa signa fecísse de cælo.
+
+℟. Dixit Ruben frátribus suis: Numquid non dixi vobis, Nolíte peccáre in púerum, et non audístis me? \* En sanguis ejus exquíritur. ℣. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus. — En.
+
+#### Lectio ix
+
+IPSE autem ut vidit cogitatiónes eórum, dixit eis: Omne regnum in seípsum divísum desolábitur, et domus supra domum cadet. Non ad dicta, sed ad cogitáta respóndit: ut vel sic compelleréntur crédere poténtiæ ejus, qui cordis vidébat occúlta. Si autem omne regnum in seípsum divísum desolátur: ergo Patris et Fílii et Spíritus Sancti regnum non est divísum; quod sine ulla contradictióne, non áliquo impúlsu desolándum, sed ætérna est stabilitáte mansúrum. Si autem sátanas in seípsum divísus est: quómodo stabit regnum ipsíus, quia dícitis, in Beélzebub ejícere me dæmónia? Hoc dicens, ex ipsórum confessióne volébat intélligi, quod in eum non credéndo, in regno diáboli esse elegíssent, quod útique advérsum se divísum stare non posset.
+
+℟. Lamentabátur Jacob de duóbus fíliis suis: Heu me, dolens sum de Joseph pérdito, et tristis nimis de Bénjamin ducto pro alimó-

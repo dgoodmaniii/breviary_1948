@@ -27819,4 +27819,52 @@ Ut intingátur pes tuus in sánguine: \* lingua canum tuórum ex inimícis, ab i
 
 Vidérunt ingréssus tuos, Deus, \* ingréssus Dei mei: regis mei qui est in sancto.
 
-Prævenérunt príncipes conjúncti psalléntibus, \*
+Prævenérunt príncipes conjúncti psalléntibus, \* in médio juvenculárum tympanistriárum.
+
+In ecclésiis benedícite Deo Dómino, \* de fóntibus Israël.
+
+Ibi Bénjamin adolescéntulus, \* in mentis excéssu.
+
+Príncipes Juda, duces eórum: \* príncipes Zábulon, príncipes Néphthali.
+
+Manda, Deus, virtúti tuæ: \* confírma hoc, Deus, quod operátus es in nobis.
+
+A templo tuo in Jerúsalem, \* tibi ófferent reges múnera.
+
+Increpa feras arúndinis, congregátio taurórum in vaccis populórum: \* ut exclúdant eos, qui probáti sunt argénto.
+
+Díssipa gentes, quæ bella volunt: vénient legáti ex Ægýpto: \* Æthiópia prævéniet manus ejus Deo.
+
+Regna terræ, cantáte Deo: \* psállite Dómino.
+
+Psállite Deo, qui ascéndit super cælum cæli, \* ad Oriéntem.
+
+Ecce dabit voci suæ vocem virtútis, date glóriam Deo super Israël, \* magnificéntia ejus, et virtus ejus in núbibus.
+
+Mirábilis Deus in sanctis suis, Deus Israël ipse dabit virtútem, et fortitúdinem plebi suæ, \* benedíctus Deus.
+
+**Ant.** Confírma hoc, Deus, quod operátus es in nobis: a templo sancto tuo, quod est in Jerúsalem, allelúja, allelúja.
+
+**Ant.** Emítte Spíritum tuum, \* et creabúntur: et renovábis fáciem terræ, allelúja, allelúja.
+
+#### Psalmus 103
+
+BENEDIC, ánima mea, Dómino: \* Dómine, Deus meus, magnificátus es veheménter.
+
+Confessiónem, et decórem induísti: \* amíctus lúmine sicut vestiménto:
+
+Exténdens cælum sicut pellem: \* qui tegis aquis superióra ejus.
+
+Qui ponis nubem ascénsum tuum: \* qui ámbulas super pennas ventórum.
+
+Qui facis ángelos tuos, spíritus: \* et minístros tuos ignem uréntem.
+
+Qui fundásti terram super stabilitátem suam: \* non inclinábitur in sǽculum sǽculi.
+
+Abýssus, sicut vestiméntum, amíctus ejus: \* super montes stabunt aquæ.
+
+Ab increpatióne tua fúgient: \* a voce tonítrui tui formidábunt.
+
+Ascéndunt montes: et descéndunt campi \* in locum, quem fundásti eis.
+
+Términum posuísti, quem non transgrediéntur: \* neque converténtur operíre terram.

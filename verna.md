@@ -31170,3 +31170,63 @@ INTERCESSIO nos, quǽsumus, Dómine, beáti Benedícti Abbátis comméndet: ut, 
 {RUBRIC: Et fit Commemoratio Feriæ.}
 
 {RUBRIC: In I Nocturno Lectiones Laudémus viros, de Communi Conf. Pont. 2 loco [100], cum Responsoriis de Comm. Conf. non Pont. ibi notatis.}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+BENEDICTUS, Núrsiæ nóbili génere ortus, Romæ liberálibus disciplínis erudítus, ut totum se Jesu Christo daret, ad eum locum, qui Sublácus dícitur, in altíssimam spelúncam penetrávit; in qua sic per triénnium delítuit, ut unus id sciret Románus mónachus, quo ad vitæ necessitátem minístro utebátur. Dum ígitur ei quodam die ardéntes ad libídinem faces a diábolo subjiceréntur, se in vépribus támdiu volutávit, dum, laceráto córpore, voluptátis sensus dolóre opprimerétur. Sed jam erumpénte ex illis látebris fama ejus sanctitátis, quidam mónachi se illi instituéndos tradidérunt: quorum vivéndi licéntia cum ejus objurgatiónes ferre non posset, venénum in potióne ei dare constítuunt. Verum, póculum ei præbéntibus, crucis signo vas confrégit, ac relícto monastério in solitúdinem se recépit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+SED cum multi ad eum quotídie discípuli convenírent, duódecim monastéria ædificávit, éaque sanctíssimis légibus communívit. Póstea Cassínum migrávit, ubi simulácrum Apóllinis, qui adhuc ibi colebátur, commínuit, aram evértit et lucos succéndit; ibíque sancti Martíni sacéllum et sancti Joánnis ædículam exstrúxit, oppidános autem et íncolas christiánis præcéptis ímbuit. Quare augebátur in dies magis divína grátia Benedíctus, ut étiam prophético spíritu ventúra prædíceret. Quod ubi accépit Tótila Gothórum rex, exploratúrus, an res ita esset, spathárium suum régio ornátu et comitátu præmíttit, qui se regem simuláret. Quem ut ille vidit, Depóne, inquit, fili, depóne quod geris; nam tuum non est. Tótilæ vero prædíxit advéntum ejus in Urbem, maris transmissiónem, et post novem annos mortem.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+###### Lectio vi
+
+QUI áliquot ménsibus ántequam e vita migráret, præmónuit discípulos, quo die esset moritúrus; ac sepúlcrum, in quo suum corpus condi vellet, sex diébus ántequam eo inferrétur, aperíri jussit: sextóque die deférri vóluit in ecclésiam; ubi, sumpta Eucharístia, sublátis in cælum óculis orans, inter manus discipulórum efflávit ánimam: quam duo mónachi eúntem in cælum vidérunt, pállio ornátam pretiosíssimo, circum eam fulgéntibus lampádibus, et claríssima et gravíssima spécie virum, stantem supra caput ipsíus, dicéntem audiérunt: Hæc est via, qua diléctus Dómini Benedíctus in cælum ascéndit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: In III Nocturno Homilia in Ev. Ecce nos relíquimus, de Comm. Abbatum 1 loco. [125]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+*C 4*
+
+INTERCESSIO nos, quǽsumus, Dómine, beáti Benedícti Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+---
+
+### Die 24 Martii
+
+#### S. Gabrielis
+
+{RUBRIC: Archangeli}
+
+{RUBRIC: Duplex majus}
+
+##### In I Vesperis
+
+**Ant. 1** Ingrésso Zacharía \* templum Dómini, appáruit ei Gábriel Angelus, stans a dextris altáris incénsi.

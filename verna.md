@@ -40014,4 +40014,28 @@ Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sæculum sæculi.
 
 **Lectio i** *Cap. 4, 1-15*
 
-SIC nos exístimet homo ut minístros Christi, et dispensatóres mysteriórum Dei.
+SIC nos exístimet homo ut minístros Christi, et dispensatóres mysteriórum Dei. Hic jam quǽritur inter dispensatóres, ut fidélis quis inveniátur. Mihi autem pro mínimo est, ut a vobis júdicer aut ab humáno die: sed neque meípsum júdico. Nihil enim mihi cónscius sum: sed non in hoc justificátus sum: qui autem júdicat me, Dóminus est. Itaque nolíte ante tempus judicáre, quoadúsque véniat Dóminus: qui et illumínabit abscóndita tenebrárum, et manifestábit consília córdium; et tunc laus erit unicuíque a Deo.
+
+**T. P. ℟.** Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sæculum sæculi. — In.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus: \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte.
+
+**Benedictio** Unigénitus Dei.
+
+###### Lectio ii
+
+HÆC autem, fratres, transfigurávi in me et Apóllo, propter vos, ut in nobis discátis; ne, supra quam scriptum est, unus advérsus álterum inflétur pro álio. Quis enim te discérnit? Quid autem habes, quod non accepísti? Si autem accepísti, quid gloriáris quasi non accéperis? Jam saturáti estis, jam dívites facti estis: sine nobis regnátis: et útinam regnétis, ut et nos vobíscum regnémus! Puto enim quod Deus nos Apóstolos novíssimos osténdit, tamquam morti destinátos: quia spectáculum facti sumus mundo, et Angelis, et homínibus.
+
+**T. P. ℟.** Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde: \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum.
+
+**Benedictio** Spíritus Sancti.
+
+###### Lectio iii
+
+NOS stulti propter Christum, vos autem prudéntes in Christo: nos in-

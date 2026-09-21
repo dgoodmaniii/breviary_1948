@@ -23564,4 +23564,40 @@ VERBA quidem cóntulit, duritiam intelléctus increpávit, sacræ Scriptúræ my
 
 #### Lectio iii
 
-SED quia esse extránei a caritáte non póterant hi, cum quibus Véritas gradiebátur: eum ad hospítium quasi peregrínum vocant. Cur autem dícimus, vocant, cum illic scriptum sit: Et coëgérunt eum? Ex quo nimírum exémplo collígitur, quia peregríni ad hospítium non solum invitándi sunt, sed étiam trahéndi. Mensam ígitur ponunt, panes cibósque ófferunt: et Deum, quem in Scriptúræ sacræ expositióne non cognóverant, in panis fractióne cognóscunt. Audiéndo ergo præcépta Dei illumináti non sunt, faciéndo illumináti sunt: quia scriptum est: Non auditóres legis justi sunt
+SED quia esse extránei a caritáte non póterant hi, cum quibus Véritas gradiebátur: eum ad hospítium quasi peregrínum vocant. Cur autem dícimus, vocant, cum illic scriptum sit: Et coëgérunt eum? Ex quo nimírum exémplo collígitur, quia peregríni ad hospítium non solum invitándi sunt, sed étiam trahéndi. Mensam ígitur ponunt, panes cibósque ófferunt: et Deum, quem in Scriptúræ sacræ expositióne non cognóverant, in panis fractióne cognóscunt. Audiéndo ergo præcépta Dei illumináti non sunt, faciéndo illumináti sunt: quia scriptum est: Non auditóres legis justi sunt apud Deum, sed factóres legis justificabúntur. Quisquis ergo vult audíta intellígere, festínet ea, quæ jam audíre pótuit, ópere implére. Ecce Dóminus non est cógnitus dum loquerétur, et dignátus est cognósci dum páscitur.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Jesus junxit se \* discípulis suis in via, et ibat cum illis: óculi autem eórum tenebántur, ne eum agnóscerent: et increpávit eos, dicens: O stulti et tardi corde ad credéndum in his, quæ locúti sunt Prophétæ, allelúja.
+
+#### Oratio
+
+DEUS, qui solemnitáte pascháli, mundo remédia contulísti: pópulum tuum, quǽsumus, cælésti dono proséquere; et perféctam libertátem cónsequi mereátur, et ad vitam profíciat sempitérnam. Per Dóminum.
+
+**Ad Magnif. Ant.** Qui sunt hi sermónes, \* quos confértis ad ínvicem ambulántes, et estis tristes? allelúja.
+
+---
+
+## Feria III infra Octavam Paschæ
+
+{RUBRIC: Duplex I classis}
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+**Absolutio** Ipsíus píetas.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 24, 36-47*
+
+IN illo témpore: Stetit Jesus in médio discipulórum, et dicit eis: Pax vobis: ego sum, nolíte timére. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 10 Comment. in Lucam cap. 24, ante finem}
+
+MIRUM, quo modo se natúra corpórea per impenetrábile corpus infúderit invisíbili áditu, visíbili conspéctu; tangi fácilis, diffícilis æstimári. Dénique conturbáti discípuli æstimábant se spíritum vidére. Et ídeo Dóminus, ut spéciem nobis

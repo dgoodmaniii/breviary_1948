@@ -33190,3 +33190,75 @@ IN hoc autem apostólico múnere hic vitæ ejus tenor perpétuus fuit: quotídie
 PER ipsum divína virtus, in confirmatiónem vitæ et prædicatiónis ejus, multa signa et mirácula fecit. Nam frequentíssime super ægros manus impósuit, et sanitátem adépti sunt; spíritus immúndos e corpóribus expúlit; surdis audítum, mutis loquélam, cæcis visum restítuit; leprósos mundávit; mórtuos suscitávit. Sénio tandem et morbo conféctus infatigábilis Evangélii præco, plúrimis Európæ provínciis cum ingénti animárum fructu peragrátis, Venétiæ in Británnia minóri prædicatiónis et vitæ cursum felíciter consummávit anno salútis millésimo quadringentésimo décimo nono. Quem Callístus tértius Sanctórum número adscrípsit.
 
 ℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. {RUBRIC: (T. P. Allelúja.)} ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+VINCENTIUS, honésta stirpe Valéntiæ in Hispánia natus, décimo octávo ætátis anno religiónis hábitum in órdine Prædicatórum índuit; in quo, sacris lítteris sédulo incúmbens, theologíæ láuream summa cum laude obtínuit. Mox verbum Dei tanta virtúte et efficácia prædicáre cœpit, ut ingéntem infidélium multitúdinem ad Christi fidem perdúxerit, et multa Christianórum míllia a peccátis ad pœniténtiam revocáverit. Quotídie Missam cum cantu celebrávit, quotídie ad pópulum conciónem hábuit, carnes numquam comédit, populórum júrgia sedávit; et, cum vestis inconsútilis Ecclésiæ diro schísmate discinderétur, ut unirétur et uníta servarétur plúrimum laborávit. Sénio tandem et morbo conféctus, ac miráculis apprime clarus, Venétiæ in Británnia minóri sanctíssime óbiit. Quem Callístus Papa tértius inter Sanctos rétulit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Sint lumbi, de Comm. Conf. non Pont. 1 loco. [116]}
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Vincéntii Confessóris tui méritis et prædicatióne illustráre dignátus es: concéde nobis fámulis tuis; ut et ipsíus instruámur exémplis, et ab ómnibus, ejus patrocínio, liberémur advérsis. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+---
+
+### Die 11 Aprilis
+
+#### S. Leonis I
+
+{RUBRIC: Papæ, Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex (m. t. v.) [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Leo, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Leónem Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In I Nocturno
+
+Incipit Epístola prima beáti Petri Apóstoli
+
+###### Lectio i
+
+*Cap. 1, 1-21*
+
+PETRUS Apóstolus Jesu Christi, eléctis ádvenis dispersiónis Ponti, Galátiæ, Cappadóciæ, Asiæ et Bithýniæ secúndum præsciéntiam Dei Patris, in sanctificatiónem Spíritus, in obediéntiam, et aspersiónem sánguinis Jesu Christi: Grátia vobis, et pax multiplicétur. Benedíctus Deus et Pater Dómini nostri Jesu Christi, qui secúndum misericórdiam suam magnam regenerávit nos in spem vivam, per resurrectiónem Jesu Christi ex mórtuis, in hereditátem incorruptíbilem, et incontaminátam, et immarcescíbilem, conservátam in cælis in vobis, qui in virtúte Dei custodímini per fidem in salútem, parátam reveláre in témpore novíssimo.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. {RUBRIC: (T. P. Allelúja.)} ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.
+
+###### Lectio ii
+
+IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentatiónibus: ut probátio vestræ fídei multo pretiósior auro (quod per ignem probátur) inveniátur in laudem, et glóriam, et honórem, in revelatióne Jesu Christi: quem cum non vidéritis, dilígitis: in quem nunc quoque non vidéntes créditis: credéntes autem exsultábitis lætítia inenarrábili et glorificáta: reportántes finem fídei vestræ, salútem animárum. De qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in vobis grátia prophetavérunt; scrutántes in quod vel quale tempus significáret in eis Spíritus Christi: prænúntians eas quæ in Christo

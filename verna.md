@@ -35148,4 +35148,24 @@ ITA ergo et Joseph, indígnum et peccatórem se réputans, dicébat intra se, a 
 
 #### Lectio vi
 
-IDEO ítaque Joseph vóluit dimíttere eam. Sed quare occúlte, et non palam? Ne vidélicet divórtii causa inquirerétur, exigerétur rátio. Quid enim vir justus respondéret pópulo
+IDEO ítaque Joseph vóluit dimíttere eam. Sed quare occúlte, et non palam? Ne vidélicet divórtii causa inquirerétur, exigerétur rátio. Quid enim vir justus respondéret pópulo durǽ cervícis, pópulo non credénti et contradicénti? Si díceret quod sentiébat, quod de illíus puritáte comprobáverat, nonne mox incréduli et crudéles Judǽi subsannárent illum, lapidárent illam? Quómodo namque Veritáti créderent tacénti in útero, quam póstea contempsérunt clamántem in templo? quid fácerent necdum apparénti, cui póstmodum ímpias manus injecérunt étiam miráculis coruscánti? Mérito ergo Vir justus, ne aut mentíri aut diffamáre cogerétur innóxiam, vóluit occúlte dimíttere eam.
+
+℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória Patri. Si exsúrgat.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 3, 21-23*
+
+IN illo témpore: Factum est autem cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.
+
+Homilía sancti Joánnis Damascéni
+
+{RUBRIC: Oratio 3 de B. M. V. Nativ.}
+
+MATTHÆUS opus suum ínchoans, Liber generatiónis, inquit, Jesu Christi fílii David, fílii Abraham: verum hic non subsístit; étenim ipsíus sermo étiam usque ad Vírginis Sponsum progréssus est. Lucas autem post Salvatóris in baptísmo declaratiónem, oratiónem suam non nihil derívans, ad hunc modum scribit: Ipse Jesus erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph, qui fuit Heli, qui fuit Mathat; et sic deínceps in altum ascendéndo usque ad Seth, qui fuit Adæ, qui fuit Dei. Proínde cum Joséphi genus ad hunc modum censeátur, certe Virgo quoque ipsa ac Dei Génitrix María ejúsdem cum eo tribus esse simul demonstrátur. Síquidem Móysis lege non licébat ulli tríbui cum áltera tribu permiscéri, ne géneris heréditas ab una tribu ad áliam laberétur.
+
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis

@@ -40819,4 +40819,32 @@ ECCE enim, binos ad prædicándum discípulos Dóminus mittit: quátenus hoc nob
 
 {RUBRIC: Pro Doctore}
 
-℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intellé-
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. (T. P. Allelúja.) ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória. Et.
+
+###### Lectio ix
+
+HINC namque eísdem prædicatóribus Isaías dicit: Paráte viam Dómini, rectas fácite sémitas Dei nostri. Hinc fíliis Psalmísta ait: Iter fácite ei, qui ascéndit super occásum. Super occásum namque Dóminus ascéndit: quia unde in passióne occúbuit, inde majórem suam glóriam resurgéndo manifestávit. Super occásum vidélicet ascéndit; quia mortem quam pértulit, resurgéndo calcávit. Ei ergo qui ascéndit super occásum, iter fácimus, cum nos ejus glóriam vestris méntibus prædicámus, ut eas et ipse post véniens, per amóris sui præséntiam illústret.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+# Commune unius aut plurium Summorum Pontificum
+
+{RUBRIC: Omnia de Communi unius aut plurimórum Mártyrum vel Confessóris Pontíficis, juxta qualitátem festi, præter sequéntia:}
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum N. (Mártyrem tuum atque) Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Pro pluribus Pontif.:}
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátos N. et N. (Mártyres tuos atque) Summos Pontífices, perpétua protectióne custódi; quos totíus Ecclésiæ præstitísti esse pastóres. Per Dóminum.
+
+{RUBRIC: Si vero agénda sit commemorátio altérius Summi Pontíficis, dícitur sequens}
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam in apostólicæ petræ soliditáte fundátam, ab infernárum éruis terróre portárum: præsta, quǽsumus, ut, intercedénte beáto N. (Mártyre tuo atque) Summo Pontífice, in tua veritáte pérsistens, contínua securitáte muniátur. Per Dóminum.

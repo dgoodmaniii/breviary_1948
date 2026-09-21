@@ -19755,4 +19755,16 @@ IN illo témpore: Ibat Jesus in civitátem, quæ vocátur Naim: et ibant cum eo 
 
 ET hic locus ad utrámque redúndat grátiam; et ut cito flecti divínam misericórdiam matris víduæ lamentatióne crédamus, ejus præcípue, quæ únici fílii vel labóre, vel morte frangátur; cui tamen víduæ gravitátis méritum exsequiárum turba concíliet: et ut hanc víduam populórum turba septam, plus vidéri esse quam féminam, quæ resurrectiónem únici et adoléscéntis fílii suis lácrimis merúerit impetráre: eo quod sancta Ecclésia pópulum juniórem a pompa fúneris atque a suprémis sepúlcri, suárum révocet ad vitam contemplatióne lacrimárum: quæ flere prohibétur eum, cui resurréctio debebátur.
 
-℟. Locútus est Dóminus ad Móysen, dicens: Descénde in Ægýptum, et dic Pharaóni, \* Ut dimíttat pópulum meum: indurátum est cor Pharaónis: non vult dimíttere pópulum meum, nisi in manu forti. ℣. Clamor filiórum Israël venit ad me, vidíque afflictiónem
+℟. Locútus est Dóminus ad Móysen, dicens: Descénde in Ægýptum, et dic Pharaóni, \* Ut dimíttat pópulum meum: indurátum est cor Pharaónis: non vult dimíttere pópulum meum, nisi in manu forti. ℣. Clamor filiórum Israël venit ad me, vidíque afflictiónem eórum: sed veni, mittam te ad Pharaónem. — Ut.
+
+#### Lectio ii
+
+QUI quidem mórtuus in lóculo materiálibus quátuor ad sepúlcrum ferebátur eleméntis, sed spem resurgéndi habébat, quia ferebátur in ligno. Quod etsi nobis ante non próderat, tamen posteáquam Jesus id tétigit, profícere cœpit ad vitam: ut esset indício, salútem pópulo per crucis patíbulum refundéndam. Audíto ígitur Dei verbo, stetérunt acérbi illi fúneris portitóres, qui corpus humánum lethali fluxu natúræ materiális urgébant. Quid enim áliud, nisi quasi in quodam féretro, hoc est, suprémi fúneris instruménto, jacémus exánimes, cum vel ignis immódicæ cupiditátis exǽstuat, vel frígidus humor exúndat, vel pigra quadam terréni córporis habitúdine vigor hebetátur animórum, vel concréta noster spíritus labe, puræ lucis vácuus mentem alit? Hi sunt nostri fúneris portitóres.
+
+℟. Stetit Móyses coram Pharaóne, et dixit: Hæc dicit Dóminus: \* Dimítte pópulum meum, ut sacríficet mihi in desérto. ℣. Dóminus Deus Hebræórum misit me ad te, dicens. — Dimítte.
+
+#### Lectio iii
+
+SED quamvis supréma mortis spem vitæ omnis aboléverint, et túmulo próxima córpora jáceant defunctórum: verbo tamen Dei jam mórtua resúrgunt cadávera: vox redit, rédditur fílius matri, revocátur a túmulo, erípitur a sepúlcro. Quis iste est túmulus tuus, nisi mali mores? Túmulus tuus perfídia est: sepúlcrum tuum guttur est. Sepúlcrum enim patens, est guttur eórum, unde verba mórtua proferúntur. Ab hoc sepúlcro te líberat Christus: ab hoc túmulo surges, si áudias verbum Dei. Et si grave peccátum est, quod pœniténtiæ lácrimis ipse laváre non possis; fleat pro te mater Ecclésia, quæ pro síngulis tamquam pro únicis fíliis vídua mater intérvenit. Compátitur enim quodam spiritáli dolóre natúræ, cum suos líberos lethálibus vítiis ad mortem cerni urgéri.
+
+℟. Cantémus Dómino: glorióse enim honorificátus est, equum et ascensórem projécit in mare: \* Adjútor et protéctor factus est mihi Dóminus in salútem. ℣. Dóminus quasi vir pugnátor, Omnípotens nomen ejus. — Adjútor. Glória Patri. Adjútor.

@@ -24891,4 +24891,28 @@ AIT enim: Quid turbáti estis, et cogitatiónes ascéndunt in cor vestrum? Putav
 
 #### Lectio vi
 
-IN hómine carnáli tota régula intelligéndi est consuetúdo cernéndi. Quod solent vidére, credunt: quod non solent, non credunt. Præter consuetúdinem facit Deus mirácula, quia Deus est. Majóra quidem mirácula sunt, tot quotídie hómines nasci, qui non erant, quam paucos resurrexísse, qui erant:
+IN hómine carnáli tota régula intelligéndi est consuetúdo cernéndi. Quod solent vidére, credunt: quod non solent, non credunt. Præter consuetúdinem facit Deus mirácula, quia Deus est. Majóra quidem mirácula sunt, tot quotídie hómines nasci, qui non erant, quam paucos resurrexísse, qui erant: et tamen ista mirácula non consideratióne comprehénsa sunt, sed assiduitáte viluérunt. Resurréxit Christus: absolúta est res. Corpus erat, caro erat: pepéndit in cruce, emísit ánimam, pósita est caro in sepúlcro. Exhíbuit illam vivam, qui vivébat in illa. Quare mirámur? quare non crédimus? Deus est, qui fecit.
+
+℟. Véniens a Líbano quam pulchra facta est, allelúja: \* Et odor vestimentórum ejus super ómnia arómata, allelúja, allelúja. ℣. Favus distíllans lábia ejus, mel et lac sub lingua ejus. — Et. Glória Patri. Et.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio vii
+
+*Cap. 16, 16-22*
+
+IN illo témpore: Dixit Jesus discípulis suis: Módicum, et jam non vidébitis me: et íterum módicum, et vidébitis me: quia vado ad Patrem. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractatus 101 in Joánnem, sub finem}
+
+MODICUM est hoc totum spátium, quo præsens pérvolat sǽculum. Unde dicit idem ipse Evangelísta in Epístola sua: Novíssima hora est. Ideo namque áddidit: Quia vado ad Patrem: quod ad priórem senténtiam referéndum est, ubi ait: Módicum, et jam non vidébitis me: non ad posterióram, ubi ait: Et íterum módicum, et vidébitis me. Eúndo quippe ad Patrem, factúrus erat ut eum non vidérent. Ac per hoc non ídeo dictum est, quia fúerat moritúrus, et donec resúrgeret, ab eórum aspéctibus recessúrus: sed quod esset itúrus ad Patrem, quod fecit posteáquam resurréxit, et cum eis per quadragínta dies conversátus, ascéndit in cælum.
+
+℟. Decantábat pópulus Israël, allelúja, et univérsa multitúdo Jacob canébat legítime: \* Et David cum cantóribus cítharam percutiébat in domo Dómini, et laudes Deo canébat, allelúja, allelúja. ℣. Sanctificáti sunt ergo sacerdótes et levítæ: et univérsus Israël deducébat arcam fœderis Dómini in júbilo. — Et.
+
+#### Lectio viii
+
+ILLIS ergo ait: Módicum, et jam non vidébitis me; qui eum corporáliter tunc vidébant: quia itúrus erat ad Patrem, et

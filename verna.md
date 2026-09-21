@@ -34505,4 +34505,20 @@ CATHARINA virgo Senénsis, piis orta paréntibus, beáti Domínici hábitum quem
 
 ###### Lectio v
 
-CUM Pisis immorarétur, die Domínico, refécta cibo cælésti et in éxtasim rapta, vidit Dóminum crucifíxum magno cum lúmine advenéntem, et ex ejus vúlnerum cicatrícibus quinque rádios ad quinque loca sui córporis descendéntes; ideóque, mystérium advértens, Dóminum precáta ne cicatríces apparérent, contínuo rádii colórem sanguíneum mutavérunt in spléndidum, et in formam puræ lucis pervenérunt ad manus, pedes et cor ejus; ac tantus erat dolor quem sensibíliter patiebátur, ut nisi Deus minuísset, brevi se créderet moritúram. Hanc ítaque grátiam amantíssi-
+CUM Pisis immorarétur, die Domínico, refécta cibo cælésti et in éxtasim rapta, vidit Dóminum crucifíxum magno cum lúmine advenéntem, et ex ejus vúlnerum cicatrícibus quinque rádios ad quinque loca sui córporis descendéntes; ideóque, mystérium advértens, Dóminum precáta ne cicatríces apparérent, contínuo rádii colórem sanguíneum mutavérunt in spléndidum, et in formam puræ lucis pervenérunt ad manus, pedes et cor ejus; ac tantus erat dolor quem sensibíliter patiebátur, ut nisi Deus minuísset, brevi se créderet moritúram. Hanc ítaque grátiam amantíssimus Dóminus nova grátia cumulávit, ut sentíret dolórem illápsa vi vúlnerum, et cruénta signa non apparérent. Quod ita contigísse cum Dei fámula confessário suo Raymúndo retulísset, ut óculis étiam repræsentarétur, rádios in imagínibus beátæ Catharínæ ad dicta quinque loca pertingéntes, pia fidélium cura pictis colóribus expréssit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ, allelúja. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+###### Lectio vi
+
+DOCTRINA ejus infúsa, non acquisíta fuit; sacrárum litterárum professóribus difficíllimas de divinitáte quæstiónes proponéntibus respóndit. Nemo ad eam accéssit, qui non mélior abíerit: multa exstínxit ódia, et mortáles sedávit inimicítias. Pro pace Florentinórum, qui cum Ecclésia dissidébant et interdícto ecclesiástico suppósiti erant, Aveniónem ad Gregórium undécimum Pontíficem máximum profécta est. Cui étiam votum ejus de peténda Urbe, soli Deo notum, sese divínitus cognovísse monstrávit: deliberavítque Póntifex, ea étiam suadénte, ad Sedem suam Románam personáliter accédere; quod et fecit. Eídem Gregório et Urbáno sexto ejus successóri acceptíssima fuit, ádeo ut legatiónibus eórum fungerétur. Dénique post innúmera virtútum insígnia, dono prophétiæ et plúribus clara miráculis, anno ætátis suæ tértio círciter et trigésimo, migrávit ad Sponsum. Quam Pius secúndus Póntifex máximus sanctárum Vírginum número adscrípsit.
+
+℟. Afferéntur regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne, allelúja. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+CATHARINA virgo Senénsis, piis orta paréntibus, beáti Domínici hábitum quem Soróres de Pœniténtia gestant, impetrávit. Summa ejus fuit abstinéntia et admirábilis vitæ austéritas. Cum Pisis morarétur, die Domí-

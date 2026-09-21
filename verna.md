@@ -42416,4 +42416,26 @@ NEMO est qui nésciat, Mártyrum glórias ad hoc divíno consílio a Dei pópuli
 
 ###### Lectio v
 
-QUIS est enim, qui, eórum volens mérito copulári, nisi prius constántiam eórum téneat, sectétur fidem, imitétur virtútem passiónis; eórum glóriam páribus vitæ lineaméntis aut invéniat aut exquírat? Qui etsi martýrio par esse non possit, tamen múneris tanti dignitáte se quisque bonis áctibus dignum prǽbeat. Adest enim clementíssimus Deus, qui desiderán-
+QUIS est enim, qui, eórum volens mérito copulári, nisi prius constántiam eórum téneat, sectétur fidem, imitétur virtútem passiónis; eórum glóriam páribus vitæ lineaméntis aut invéniat aut exquírat? Qui etsi martýrio par esse non possit, tamen múneris tanti dignitáte se quisque bonis áctibus dignum prǽbeat. Adest enim clementíssimus Deus, qui desiderántibus suis aut martýrium prǽbeat, aut, sine martýrio, cum Sanctis prǽmia divína retríbuat.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+###### Lectio vi
+
+UT enim infirmátur peccátor advérsis, ita justus tentatiónibus roborátur. Sic dimicárunt advérsus peccátum Sancti; sic et laborándo fortióres, et moriéndo victóres effécti sunt. Nullus athlétes sine certámine fórtior dici, nullus sine victória póterit coronári. Nemo miles sine prǽlio hostem subjécit; nemo sine bello imperatórem proméruit. Habes, christiáne, competéntia arma, quibus hostem expúgnes; habes fortíssima tela, quibus inimícum debélles.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum: \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+**Lectio vii** *Cap. 6, 17-23*
+
+IN illo témpore: Descéndens Jesus de monte, stetit in loco campéstri, et turba discipulórum ejus, et multitúdo copiósa plebis ab omni Judǽa, et Jerúsalem, et marítima, et Tyri, et Sidónis. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Lib. 5 in Luc. cap. 6, post init.}
+
+ADVERTE ómnia diligénter, quómodo et cum Apóstolis ascéndat, et descéndat ad turbas. Quómodo enim turba nisi in húmili Christum vidéret? Non séquitur ad excélsa, non ascéndit ad sublímia. Dénique ubi descéndit, invénit infírmos; in excélsis enim infírmi esse non possunt. Hinc étiam Matthǽus docet in inferióribus débiles esse sanátos. Prius enim unusquísque sanándus est, ut paulátim virtútibus procedéntibus ascéndere possit ad montem. Et ídeo quemque in inferióribus sanat, hoc est, a libídine révocat, injúriam

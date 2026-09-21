@@ -16844,4 +16844,16 @@ DEus qui nobis, in Corde Fílii tui, nostris vulneráto peccátis, infinítos di
 
 *Cap. 9, 18-27; 10, 1*
 
-ACcéssit autem Saul ad Samuélem in médio portæ, et ait: Indica, oro, mihi, ubi est domus Vidéntis. Et respóndit Sámuel Sauli dicens: Ego sum Videns; ascénde ante me in excél-
+ACcéssit autem Saul ad Samuélem in médio portæ, et ait: Indica, oro, mihi, ubi est domus Vidéntis. Et respóndit Sámuel Sauli dicens: Ego sum Videns; ascénde ante me in excélsum, ut comedátis mecum hódie, et dimíttam te mane et ómnia, quæ sunt in corde tuo, indicábo tibi; et de ásinis, quas nudiustértius perdidísti, ne sollícitus sis, quia invéntæ sunt. Et cujus erunt óptima quæque Israël? nonne tibi, et omni dómui patris tui? Respóndens autem Saul, ait: Numquid non fílius Jémini ego sum, de mínima tribu Israël, et cognátio mea novíssima inter omnes famílias de tribu Bénjamin? quare ergo locútus es mihi sermónem istum?
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non.
+
+##### Lectio ii
+
+ASsúmens ítaque Sámuel Saulem et púerum ejus, introdúxit eos in triclínium, et dedit eis locum in cápite eórum, qui fúerant invitáti; erant enim quasi trigínta viri. Dixítque Sámuel coco: Da partem, quam dedi tibi, et præcépi ut repóneres seórsum apud te. Levávit autem cocus armum et pósuit ante Saul. Dixítque Sámuel: Ecce quod remánsit; pone ante te, et cómede, quia de indústria servátum est tibi, quando pópulum vocávi. Et comédit Saul cum Samuéle in die illa. Et descendérunt de excélso in óppidum, et locútus est cum Saule in solário: stravítque Saul in solário, et dormívit.
+
+℟. Si inimícus meus maledixísset mihi, sustinuíssem útique. \* Tu vero homo unánimis qui simul mecum dulces capiébas cibos. ℣. Et si is qui me óderat super me magna locútus fuísset, abscondíssem me fórsitan ab eo. — Tu vero.
+
+##### Lectio iii
+
+CUmque mane surrexíssent, et jam elucésceret, vocávit Sámuel Saulem in solário, dicens: Surge, et dimíttam te. Et surréxit Saul: egressíque sunt ambo, ipse vidélicet et Sámuel. Cumque descénderent in extréma parte civitátis, Sámuel dixit ad Saul: Dic púero ut antecédat nos et tránseat: tu autem subsíste paulísper, ut índicem tibi verbum Dómini. Tulit autem Sámuel lentículam ólei et effúdit super caput ejus et deosculátus est eum et ait: Ecce unxit te Dóminus super hereditátem

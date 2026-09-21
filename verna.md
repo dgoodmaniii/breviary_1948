@@ -50327,3 +50327,59 @@ Glória Patri. Sicut erat.
 BENEDICTUS Deus in donis suis, et sanctus in ómnibus opéribus suis: Qui vivit et regnat in sæcula sæculórum. ℟. Amen.
 
 {RUBRIC: Deinde alternatim dicitur} Ps. 116 Laudáte Dóminum, omnes gentes, {RUBRIC: et réliqua ut supra. [271]}
+
+{RUBRIC: Quando semel comeditur, omnia dicuntur ut in Cœna.}
+
+{RUBRIC: Prædictus modus benedicendi mensam, et agendi gratias, servatur omni tempore hujus Partis vernæ, præterquam diebus infrascriptis, quibus Versus et Psalmi tantum variantur.}
+
+## Feria V in Cœna Domini
+
+{RUBRIC: Dicitur absolute et sine cantu}
+
+℣. Christus factus est pro nobis obédiens usque ad mortem.
+
+{RUBRIC: Deinde} Pater noster, {RUBRIC: totum secreto:}
+
+{RUBRIC: Quo dicto, sine pronuntiatione aliqua Sacerdos signo crucis benedicit mensam: nec dicitur} Jube, domne, {RUBRIC: nec} Tu autem.
+
+{RUBRIC: In fine repetitur:}
+
+℣. Christus factus est pro nobis obédiens usque ad mortem.
+
+{RUBRIC: Postea} Ps. 50 Miserére mei, Deus. 53
+
+{RUBRIC: Quo finito, sine Versu} Glória Patri, {RUBRIC: secreto dicitur} Pater noster.
+
+{RUBRIC: Deinde Sacerdos dicit absolute Orationem.}
+
+###### Oratio
+
+RESPICE, quǽsumus, Dómine, super hanc famíliam tuam, pro qua Dóminus noster Jesus Christus non dubitávit mánibus tradi nocéntium, et crucis subíre torméntum.
+
+{RUBRIC: Et non pronuntiatur} Qui tecum {RUBRIC: nec} Fidélium ánimæ; {RUBRIC: sed secreto dicitur} Pater noster, {RUBRIC: nec additur} Deus det nobis suam pacem.
+
+## In Parasceve
+
+{RUBRIC: Eodem modo fit sicut in Cœna Domini, sed Versus dicitur ut infra:}
+
+℣. Christus factus est pro nobis obédiens usque ad mortem, mortem autem crucis.
+
+## Sabbato sancto
+
+{RUBRIC: Ad benedicendam mensam dicitur:}
+
+Benedícite. ℟. Benedícite.
+
+℣. Véspere autem sábbati, quæ lucéscit in prima sábbati, allelúja. ℟. Venit María Magdaléne, et áltera María, vidére sepúlcrum, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: In fine repetitur:} ℣. Véspere autem, {RUBRIC: ut supra,} cum Glória Patri. Sicut erat.
+
+{RUBRIC: Ps. 116 Laudáte Dóminum, omnes gentes cum Glória Patri. [271]}
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison, {RUBRIC: et alia, ut supra in prima Benedictione. [271]}
+
+## In die Paschæ
+
+{RUBRIC: et deinceps usque ad Cœnam sequentis Sabbati exclusive,}

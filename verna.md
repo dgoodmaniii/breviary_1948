@@ -19558,3 +19558,49 @@ CONCEDE, quæsumus, omnípotens Deus: ut, qui ex mérito nostræ actiónis affl�
 **Ant.** De quinque pánibus \* et duóbus píscibus satiávit Dóminus quinque míllia hóminum.
 
 **Capitulum** Fratres de Laudibus ut supra.
+
+℟. br. Ipse liberávit me \* De láqueo venántium. Ipse. ℣. Et a verbo áspero. De. Glória Patri. Ipse. ℣. Scápulis suis obumbrábit tibi. ℟. Et sub pennis ejus sperábis.
+
+#### Oratio
+
+CONCEDE, quæsumus, omnípotens Deus: ut, qui ex mérito nostræ actiónis afflígimur, tuæ grátiæ consolatióne respirémus. Per Dóminum.
+
+### Ad Sextam
+
+**Ant.** Satiávit Dóminus \* quinque míllia hóminum de quinque pánibus et duóbus píscibus.
+
+**Capitulum** *Gal. 4, 27*
+
+LÆTARE, stérilis, quæ non paris: erúmpe et clama, quæ non párturis: quia multi fílii desértæ, magis quam ejus, quæ habet virum.
+
+℟. br. Scápulis suis \* Obumbrábit tibi. Scápulis. ℣. Et sub pennis ejus sperábis. Obumbrábit tibi. Glória Patri. Scápulis. ℣. Scuto circúmdabit te véritas ejus. ℟. Non timébis a timóre noctúrno.
+
+### Ad Nonam
+
+**Ant.** Illi ergo \* hómines, cum vidíssent quod fécerat Jesus signum, intra se dicébant: quia hic est vere Prophéta, qui ventúrus est in mundum.
+
+**Capitulum** *Gal. 4, 31*
+
+ITAQUE, fratres, non sumus ancíllæ fílii, sed líberæ: qua libertáte Christus nos liberávit.
+
+℟. br. Scuto circúmdabit te \* Véritas ejus. Scuto. ℣. Non timébis a timóre noctúrno. Véritas ejus. Glória. Scuto. ℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+### Ad Vesperas
+
+{RUBRIC: Antiphonæ et Psalmi de Dominica, ut in Psalterio 72; Capitulum, Hymnus et Versus ut in Vesperis præcedentis Sabbati. 397}
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Magnif. Ant.** Súbiit ergo \* in montem Jesus, et ibi sedébat cum discípulis suis.
+
+---
+
+## Feria Secunda
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 2, 13-25*
+
+IN illo témpore: Prope erat Pascha Judæórum, et ascéndit Jesus Jerosólymam: et invénit in

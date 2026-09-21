@@ -19264,4 +19264,20 @@ QUem cum legísset Saphan coram rege, et audísset rex verba libri legis Dómini
 
 *Cap. 23, 2-8*
 
-AScéndit rex templum Dómini et omnes viri Juda univérsíque, qui habitábant in Jerúsalem cum eo, sacerdótes et prophétæ et omnis pópulus a parvo usque ad magnum; legítque cunctis audiéntibus ómnia verba libri fœderis, qui invéntus est in domo Dómini. Stetítque rex super gradum et fœdus percússit coram Dómino, ut ambulárent post Dóminum et custodírent præcépta ejus et testimónia et
+AScéndit rex templum Dómini et omnes viri Juda univérsíque, qui habitábant in Jerúsalem cum eo, sacerdótes et prophétæ et omnis pópulus a parvo usque ad magnum; legítque cunctis audiéntibus ómnia verba libri fœderis, qui invéntus est in domo Dómini. Stetítque rex super gradum et fœdus percússit coram Dómino, ut ambulárent post Dóminum et custodírent præcépta ejus et testimónia et cæremónias in omni corde et in tota ánima, et suscitárent verba fœderis hujus, quæ scripta erant in libro illo. Acquievítque pópulus pacto.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pœniténtiam, veniénsque oráverit in isto loco. — Tu.
+
+##### Lectio ii
+
+ET præcépit rex Helcíæ pontífici et sacerdótibus secúndi órdinis et janitóribus, ut projícerent de templo Dómini ómnia vasa, quæ facta fúerant Baal et in luco et univérsæ milítiæ cæli, et combússit ea foris Jerúsalem in conválle Cedron et tulit púlverem eórum in Bethel. Et delévit arúspices, quos posúerant reges Juda ad sacrificándum in excélsis per civitátes Juda et in circúitu Jerúsalem, et eos qui adolébant incénsum Baal et soli et lunæ et duódecim signis et omni milítiæ cæli.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+ET efférri fecit lucum de domo Dómini foras Jerúsalem in conválle Cedron, et combússit eum ibi et redégit in púlverem et projécit super sepúlcra vulgi. Destrúxit quoque ædículas effeminatórum, quæ erant in domo Dómini, pro quibus mulíeres texébant quasi domúnculas luci. Congregavítque omnes sacerdótes de civitátibus Juda et contamínávit excélsa, ubi sacrificábant sacerdótes, de Gábaa usque Bersabée.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.

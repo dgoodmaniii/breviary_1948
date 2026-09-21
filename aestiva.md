@@ -109,3 +109,139 @@ EXÁUDI, Dómine Jesu Christe, preces servórum tuórum, et miserére nobis: Qui
 ℣. Jube, domne, benedícere.
 
 {RUBRIC: ¶ Extra Chorum, quando ab uno tantum recitatur Officium, ante singulas Lectiones Matutini atque ad Lectionem brevem Primæ et Completorii, dicitur: Jube, Dómine, benedícere; et subjungitur congruens Benedictio. Ab Episcopo autem, ultimam Matutini Lectionem cantaturo, item dicitur: Jube, Dómine, benedícere; et respondetur a Choro: Amen.}
+
+##### Pro i Lectione
+
+**Bened.** Benedictióne perpétua benedícat nos Pater ætérnus. ℟. Amen.
+
+{RUBRIC: Deinde dicuntur in unoquoque Nocturno Lectiones, prouti Officium occurrens requirit, et in fine cujuslibet Lectionis additur:}
+
+℣. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+{RUBRIC: Post quamlibet vero Lectionem, quæ Hymnum Te Deum immediate non præcedat, congruens dicitur Responsorium, et in fine ultimi Responsorii cujusque Nocturni additur Versus: Glória Patri, et Fílio, et Spirítui Sancto, et Responsorium ab Asterisco \*, et quidem a secundo, si duo fuerint, repetitur.}
+
+##### Pro ii Lectione
+
+**Bened.** Unigénitus Dei Fílius nos benedícere et adjuváre dignétur. ℟. Amen.
+
+##### Pro iii Lectione
+
+**Bened.** Spíritus Sancti grátia illúminet sensus et corda nostra. ℟. Amen.
+
+##### In II Nocturno
+
+{RUBRIC: Sub congruentibus item Antiphonis dicuntur tres Psalmi et Versus, sicut in I Nocturno.}
+
+{RUBRIC: Post Versum dicitur.}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+##### Absolutio
+
+IPSIUS píetas et misericórdia nos ádjuvet, qui cum Patre et Spíritu Sancto vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+##### Pro iv Lectione
+
+**Bened.** Deus Pater omnípotens sit nobis propítius et clemens. ℟. Amen.
+
+##### Pro v Lectione
+
+**Bened.** Christus perpétuæ det nobis gáudia vitæ. ℟. Amen.
+
+##### Pro vi Lectione
+
+**Bened.** Ignem sui amóris accéndat Deus in córdibus nostris. ℟. Amen.
+
+##### In III Nocturno
+
+{RUBRIC: Sub congruentibus denique Antiphonis dicuntur tres Psalmi et Versus, sicut in I et II Nocturno.}
+
+{RUBRIC: Post Versum dicitur}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+##### Absolutio
+
+A VINCULIS peccatórum nostrórum absólvat nos omnípotens et miséricors Dóminus. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+##### Pro vii Lectione
+
+**Bened.** Evangélica léctio sit nobis salus et protéctio. ℟. Amen.
+
+##### Pro viii Lectione
+
+{RUBRIC: In Festis Domini et in Dominicis:}
+
+**Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+{RUBRIC: In Festis beatæ Mariæ Virginis:}
+
+**Bened.** Cujus festum cólimus, ipsa Virgo virgínum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+{RUBRIC: In Festis Sanctorum:}
+
+**Bened.** Cujus (*vel* Quorum *aut* Quarum) festum cólimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercédat (*vel* intercédant) pro nobis ad Dóminum. ℟. Amen.
+
+##### Pro ix Lectione
+
+**Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: Si autem legenda sit Lectio ix de Homilia cum Evangelio Dominicæ, vel Feriæ, aut Vigiliæ:}
+
+**Bened.** Per evangélica dicta deleántur nostra delícta. ℟. Amen.
+
+#### In Officio trium Lectionum
+
+##### In Nocturno
+
+{RUBRIC: In Officiis trium Lectionum, post Hymnum dicuntur Antiphonæ convenientes, quæ initio Psalmi inchoantur tantum et usque ad Asteriscum \* perducuntur, ac deinde in fine integræ pronuntiantur.}
+
+{RUBRIC: Sub eisdem vero Antiphonis dicuntur novem Psalmi Feriæ currentis, quibus subjungitur Versus in III Nocturno positus, omissis Versibus pro I et II Nocturno assignatis.}
+
+{RUBRIC: Post Versum dicitur}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+##### Absolutio
+
+{RUBRIC: Feria II et V}
+
+Exáudi, Dómine, {RUBRIC: ut in I Nocturno.}
+
+{RUBRIC: Feria III et VI}
+
+Ipsíus píetas, {RUBRIC: ut in II Nocturno.}
+
+{RUBRIC: Feria IV et Sabbato}
+
+A vínculis, {RUBRIC: ut in III Nocturno Officii novem Lectionum.}
+
+{RUBRIC: Deinde leguntur Lectiones cum Responsoriis, prouti Officium occurrens requirit; et ante eas dicuntur sequentes}
+
+##### Benedictiones
+
+{RUBRIC: In Feriis, quando legitur Homilia cum Evangelio, erit:}
+
+**1 Bened.** Evangélica léctio sit nobis salus et protéctio. ℟. Amen.
+
+**2 Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Feriis, quando non legitur Homilia cum Evangelio, Feria II et V Benedictiones ut in I Nocturno, Feria III et VI ut in II Nocturno Officii novem Lectionum; Feria autem IV et Sabbato erit:}
+
+**1 Bened.** Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen.
+
+**2 Bened.** Divínum auxílium máneat semper nobíscum. ℟. Amen.
+
+**3 Bened.** Ad societátem cívium supernórum perdúcat nos Rex Angelórum. ℟. Amen.
+
+{RUBRIC: In Festis Sanctorum erit:}
+
+**1 Bened.** Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen.
+
+**2 Bened.** Cujus (*vel* Quorum *aut* Quarum) festum cólimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercédat (*vel* intercédant) pro nobis ad Dóminum. ℟. Amen.

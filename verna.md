@@ -28555,4 +28555,24 @@ NON otiósa hujus paralýtici, nec angústa medicína est, quando Dóminus et or
 
 #### Lectio ii
 
-SINT ígitur áliqui monitóres mentis qui ánimum hóminis, quamvis
+SINT ígitur áliqui monitóres mentis qui ánimum hóminis, quamvis exterióris córporis debilitáte torpéntem, ad superióra érigant. Quorum rursus adminículis et attóllere et humiliáre se fácilis ante Jesum locétur, Dominíco vidéri dignus aspéctu. Humilitátem enim réspicit Dóminus: quia respéxit humilitátem ancíllæ suæ. Quorum fidem ut vidit, dixit: Homo, remittúntur tibi peccáta tua. Magnus Dóminus, qui aliórum mérito ignóscit áliis; et dum álios probat, áliis reláxat erráta. Cur apud te, homo, colléga non váleat, cum apud Deum servus et interveniéndi méritum, et jus hábeat impetrándi?
+
+℟. Spíritus Dómini replévit orbem terrárum: \* Et hoc quod cóntinet ómnia, sciéntiam habet vocis, allelúja, allelúja. ℣. Omnium est enim ártifex, omnem habens virtútem, ómnia prospíciens. — Et. Glória Patri. Et.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+DISCE, qui júdicas, ignóscere; disce, qui æger es, impetráre. Si grávium peccatórum diffídis véniam, ádhibe precatóres, ádhibe Ecclésiam, quæ pro te precétur, cujus contemplatióne, quod tibi Dóminus negáre posset, ignóscat. Et quamvis históriæ fidem non debeámus omíttere, ut vere paralýtici istíus corpus credámus esse sanátum; cognósce tamen interióris hóminis sanitátem, cui peccáta donántur. Cum Judǽi ásserunt peccáta a solo Deo posse concédi, Deum útique eum confiténtur; suóque judício perfídiam suam prodúnt, qui opus astruunt, ut persónam negent.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Dixit Jesus: \* Ut sciátis autem quia Fílius hóminis habet potestátem in terra dimitténdi peccáta, ait paralýtico: Tibi dico, surge: tolle lectum tuum, et vade in domum tuam, allelúja.
+
+#### Oratio
+
+DA, quǽsumus, Ecclésiæ tuæ, miséricors Deus: ut Sancto Spíritu congregáta, hostíli nullátenus incursióne turbétur. Per Dóminum nostrum... in unitáte ejúsdem Spíritus Sancti.
+
+**Ad Magnif. Ant.** Paráclitus autem \* Spíritus Sanctus, quem mittet Pater in nómine meo, ille vos docébit ómnia, et súggeret vobis ómnia, quæcúmque díxero vobis, allelúja.
+
+---

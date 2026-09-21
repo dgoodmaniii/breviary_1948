@@ -19237,3 +19237,31 @@ FLevit autem fletu magno, propter promissiónem Dómini ad David, quam vidébat 
 OCto annórum erat Josías cum regnáre cœpísset: trigínta et uno anno regnávit in Jerúsalem. Nomen matris ejus Idída fília Hadaía de Bésecath. Fecítque quod plácitum erat coram Dómino et ambulávit per omnes vias David patris sui: non declinávit ad déxteram sive ad sinístram. Anno autem octávo décimo regis Josíæ misit rex Saphan fílium Aslía fílii Méssulam scribam templi Dómini dicens ei: Vade ad Helcíam sacerdótem magnum, ut conflétur pecúnia, quæ illáta est in templum Dómini, quam collegérunt janitóres templi a pópulo, detúrque fabris per præpósitos domus Dómini; qui et distríbuant eam his qui operántur in templo Dómini.
 
 ℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.
+
+##### Lectio ii
+
+*Cap. 22, 8-13*
+
+DIxit autem Helcías póntifex ad Saphan scribam: Librum legis réperi in domo Dómini. Dedítque Helcías volúmen Saphan, qui et legit illud. Venit quoque Saphan scriba ad regem et renuntiávit ei quod præcéperat et ait: Conflavérunt servi tui pecúniam, quæ repérta est in domo Dómini, et dedérunt ut distribuerétur fabris a præféctis óperum templi Dómini. Narrávit quoque Saphan scriba regi dicens: Librum dedit mihi Helcías sacérdos.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+QUem cum legísset Saphan coram rege, et audísset rex verba libri legis Dómini, scidit vestiménta sua. Et præcépit Helcíæ sacerdóti et Ahícam fílio Saphan et Achóbor fílio Micha et Saphan scribæ et Asaíæ servo regis dicens: Ite et consúlite Dóminum super me et super pópulo et super omni Juda de verbis volúminis istíus, quod invéntum est: magna enim ira Dómini succénsa est contra nos, quia non audiérunt patres nostri verba libri hujus, ut fácerent omne quod scriptum est nobis.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 23, 2-8*
+
+AScéndit rex templum Dómini et omnes viri Juda univérsíque, qui habitábant in Jerúsalem cum eo, sacerdótes et prophétæ et omnis pópulus a parvo usque ad magnum; legítque cunctis audiéntibus ómnia verba libri fœderis, qui invéntus est in domo Dómini. Stetítque rex super gradum et fœdus percússit coram Dómino, ut ambulárent post Dóminum et custodírent præcépta ejus et testimónia et

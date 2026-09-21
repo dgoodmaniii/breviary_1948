@@ -19499,3 +19499,33 @@ NE sis sápiens apud temetípsum, time Deum et recéde a malo; sánitas quippe e
 ##### Lectio iii
 
 DIsciplínam Dómini, fili mi, ne abjícias, nec defícias, cum ab eo corríperis; quem enim díligit Dóminus, córripit, et quasi pater in fílio cómplacet sibi. Beátus homo qui invénit sapiéntiam et qui áffluit prudéntia. Mélior est acquisítio ejus negotiatióne argénti, et auri primi et puríssimi fructus ejus; pretiósior est cunctis ópibus, et ómnia, quæ desiderántur, huic non valent comparári.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De Parábolis Salomónis}
+
+##### Lectio i
+
+*Cap. 5, 1-13*
+
+FIli mi, atténde ad sapiéntiam meam, et prudéntiæ meæ inclína aurem tuam, ut custódias cogitatiónes, et disciplínam lábia tua consérvent. Ne atténdas fallácia mulíeris; favus enim distíllans lábia meretrícis, et nitídius óleo guttur ejus; novíssima autem illíus amára quasi absýnthium et acúta quasi gládius biceps; pedes ejus descéndunt in mortem, et ad ínferos gressus illíus pénetrant; per sémitam vitæ non ámbulant, vagi sunt gressus ejus et investigábiles.
+
+℟. Præbe, fili, cor mihi, et óculi tui vias meas custódiant: \* Ut addátur grátia cápiti tuo. ℣. Atténde, fili mi, sapiéntiam meam et ad elóquium meum inclína aurem tuam. — Ut.
+
+##### Lectio ii
+
+NUnc ergo, fili mi, audi me, et ne recédas a verbis oris mei. Longe fac ab ea viam tuam et ne appropínques fóribus domus ejus; ne des aliénis honórem tuum, et annos tuos crudéli; ne forte impleántur extránei víribus tuis, et labóres tui sint in domo aliéna, et gemas in novíssimis, quando consúmpseris carnes tuas et corpus tuum et dicas: Cur detestátus sum disciplínam, et increpatiónibus non acquiévit cor meum; nec audívi vocem docéntium me et magístris non inclinávi aurem meam?
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+*Cap. 5, 20-23*
+
+QUare sedúceris, fili mi, ab aliéna, et fovéris in sinu altérius? Réspicit Dóminus vias hóminis, et omnes gressus ejus consíderat; iniquitátes suæ cápiunt ímpium, et fúnibus

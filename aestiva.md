@@ -18144,4 +18144,32 @@ DIxit autem rex ad Ethái Gethǽum: Cur venis nobíscum? Revértere et hábita c
 
 *Cap. 16, 5-12*
 
-VEnit ergo rex David usque Bahúrim, et ecce egrediebátur inde vir de cognatióne domus Saul nómine Sémei, fílius Gera; procedebátque egrédiens et maledicébat, mittebátque lápides contra David et contra univérsos servos regis David. Omnis autem pópulus et univérsi bellatóres a dextro et a sinístro
+VEnit ergo rex David usque Bahúrim, et ecce egrediebátur inde vir de cognatióne domus Saul nómine Sémei, fílius Gera; procedebátque egrédiens et maledicébat, mittebátque lápides contra David et contra univérsos servos regis David. Omnis autem pópulus et univérsi bellatóres a dextro et a sinístro látere regis incedébant. Ita autem loquebátur Sémei, cum maledíceret regi: Egrédere, egrédere, vir sánguinum et vir Bélial: réddidit tibi Dóminus univérsum sánguinem domus Saul, quóniam invasísti regnum pro eo.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+DIxit autem Abísai, fílius Sárviæ, regi: Quare maledícit canis hic mórtuus dómino meo regi? vadam et amputábo caput ejus. Et ait rex: Quid mihi et vobis est, fílii Sárviæ? Dimíttite eum ut maledícat; Dóminus enim præcépit ei ut maledíceret David, et quis est qui áudeat dícere quare sic fécerit?
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+ET ait rex Abísai et univérsis servis suis: Ecce fílius meus, qui egréssus est de útero meo, quǽrit ánimam meam; quanto magis nunc fílius Jémini? Dimíttite eum ut maledícat juxta præcéptum Dómini; si forte respíciat Dóminus afflictiónem meam et reddat mihi Dóminus bonum pro maledictióne hac hodiérna.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 18, 6-12*
+
+EGréssus est pópulus in campum contra Israël, et factum est prǽlium in saltu Ephraïm. Et cæsus est ibi pópulus Israël ab exércitu David, factáque est plaga magna in die illa vigínti míllium. Fuit autem ibi prǽlium dispérsum super fáciem omnis

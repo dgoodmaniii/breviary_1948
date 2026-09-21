@@ -19430,4 +19430,22 @@ MOYSES autem pascébat oves Jethro sóceri sui sacerdótis Mádian: cumque miná
 
 #### Lectio ii
 
-CUI ait Dóminus: Vidi afflictiónem pópuli mei in Ægýpto, et clamórem ejus audívi propter duritiam eórum qui præsunt opéribus: et sciens dolórem ejus, descéndi ut líberem eum de mánibus Ægy-
+CUI ait Dóminus: Vidi afflictiónem pópuli mei in Ægýpto, et clamórem ejus audívi propter duritiam eórum qui præsunt opéribus: et sciens dolórem ejus, descéndi ut líberem eum de mánibus Ægyptiórum, et edúcam de terra illa in terram bonam et spatiósam, in terram quæ fluit lacte et melle, ad loca Chananǽi, et Hethǽi, et Amorrhǽi, et Pherezǽi, et Hevǽi, et Jebusǽi. Clamor ergo filiórum Israël venit ad me: vidíque afflictiónem eórum, qua ab Ægýptiis opprimúntur. Sed veni, et mittam te ad Pharaónem, ut edúcas pópulum meum, fílios Israël de Ægýpto.
+
+℟. Stetit Móyses coram Pharaóne, et dixit: Hæc dicit Dóminus: \* Dimítte pópulum meum, ut sacríficet mihi in desérto. ℣. Dóminus Deus Hebræórum misit me ad te, dicens. — Dimítte.
+
+#### Lectio iii
+
+DIXITQUE Móyses ad Deum: Quis sum ego, ut vadam ad Pharaónem, et edúcam fílios Israël de Ægýpto? Qui dixit ei: Ego ero tecum: et hoc habébis signum, quod míserim te: Cum edúxeris pópulum meum de Ægýpto, immolábis Deo super montem istum. Ait Móyses ad Deum: Ecce ego vadam ad fílios Israël, et dicam eis: Deus patrum vestrórum misit me ad vos. Si díxerint mihi: Quod est nomen ejus? quid dicam eis? Dixit Deus ad Móysen: Ego sum qui sum. Ait: Sic dices fíliis Israël: Qui est, misit me ad vos. Dixítque íterum Deus ad Móysen: Hæc dices fíliis Israël: Dóminus Deus patrum vestrórum, Deus Abraham, Deus Isaac, et Deus Jacob, misit me ad vos: hoc nomen mihi est in ætérnum, et hoc memoriále meum in generatiónem et generatiónem.
+
+℟. Cantémus Dómino: glorióse enim honorificátus est, equum et ascensórem projécit in mare: \* Adjútor et protéctor factus est mihi Dóminus in salútem. ℣. Dóminus quasi vir pugnátor, Omnípotens nomen ejus. — Adjútor. Glória Patri. Adjútor.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Basilíi Magni}
+
+{RUBRIC: Homilía 1 de jejúnio, ante médium}
+
+#### Lectio iv
+
+MOYSEN per jejúnium nóvimus in montem ascendísse: neque enim áliter ausus esset vérticem fumántem adíre, atque in calíginem íngredi, nisi jejúnio munítus. Per jejúnium mandáta dígito Dei in tábulis conscrípta suscépit. Item supra montem jejúnium legis latæ conciliátor

@@ -33138,3 +33138,41 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum Isidórum minístrum tribuísti
 {RUBRIC: Et in Quadragesima Commemoratio Feriæ.}
 
 {RUBRIC: Vesperæ a Capítulo de sequénti, Commem. præcedéntis et, in Quadragesima, Feriæ.}
+
+---
+
+### Die 5 Aprilis
+
+#### S. Vincentii Ferrerii
+
+{RUBRIC: Conf.}
+
+{RUBRIC: Duplex [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+DEUS, qui Ecclésiam tuam beáti Vincéntii Confessóris tui méritis et prædicatióne illustráre dignátus es: concéde nobis fámulis tuis; ut et ipsíus instruámur exémplis, et ab ómnibus ejus patrocínio liberémur advérsis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Isidóre, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+*C 3*
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Isidórum minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Deinde, in Quadragesima, Commemoratio Feriæ.}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+VINCENTIUS, honésta stirpe Valéntiæ in Hispánia natus, ab ineúnte ætáte cor gessit seníle. Qui dum caliginósi hujus sǽculi lábilem cursum pro ingénii sui módulo consideráret, religiónis hábitum in órdine Prædicatórum décimo octávo ætátis suæ anno suscépit; et emíssa solémni professióne, sacris lítteris sédulo incúmbens, theologíæ láuream summa cum laude consecútus est. Mox obténta a superióribus licéntia, verbum Dei prædicáre, Judæórum perfídiam argúere, Saracenórum erróres confutáre tanta virtúte et efficácia cœpit, ut ingéntem ipsórum infidélium multitúdinem ad Christi fidem perdúxerit, et multa Christianórum míllia a peccátis ad pæniténtiam, a vítiis ad virtútem revocárit. Eléctus enim a Deo, ut mónita salútis in omnes gentes, tribus et linguas diffúnderet, et extrémi treméndique judícii diem appropinquáre osténderet, ómnium auditórum ánimos, terróre concússos atque a terrénis afféctibus avúlsos, ad Dei amórem excitábat.

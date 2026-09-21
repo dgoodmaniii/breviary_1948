@@ -20907,3 +20907,49 @@ PRÆSTA, quæsumus, omnípotens Deus: ut, qui nostris excéssibus incessánter a
 RESPICE, quæsumus, Dómine, super hanc famíliam tuam, pro qua Dóminus noster Jesus Christus non dubitávit mánibus tradi nocéntium, et crucis subíre torméntum: Qui tecum vivit et regnat.
 
 ---
+
+## Feria Quinta in Cœna Dómini
+
+{RUBRIC: Duplex I classis}
+
+### Ad Matutinum
+
+{RUBRIC: Hodie et bíduo sequénti, dictis secréto Pater noster, Ave María et Credo, et ómnibus áliis prætermíssis, Matutínum absolúte incípitur ab Antíphona primi Psalmi: et in fine cujúslibet Psalmi ad Matutínum et ad Laudes exstínguitur una ex quíndecim candélis candelábri triangulláris pósiti ante altáre.}
+
+{RUBRIC: Ad omnes autem Horas usque ad Nonam Sabbati sancti inclusive, in fine Psalmórum omíttitur Glória Patri.}
+
+#### In I Nocturno
+
+**Ant.** Zelus domus tuæ \* comédit me, et oppróbria exprobrántium tibi cecidérunt super me.
+
+#### Psalmus 68
+
+SALVUM me fac, Deus: \* quóniam intravérunt aquæ usque ad ánimam meam.
+
+Infíxus sum in limo profúndi: \* et non est substántia.
+
+Veni in altitúdinem maris: \* et tempéstas demérsit me.
+
+Laborávi clamans, raucæ factæ sunt fauces meæ: \* defecérunt óculi mei, dum spero in Deum meum.
+
+Multiplicáti sunt super capíllos cápitis mei, \* qui odérunt me gratis.
+
+Confortáti sunt qui persecúti sunt me inimíci mei injúste: \* quæ non rápui, tunc exsolvébam.
+
+Deus, tu scis insipiéntiam meam: \* et delícta mea a te non sunt abscóndita.
+
+Non erubéscant in me qui exspéctant te, Dómine, \* Dómine virtútum.
+
+Non confundántur super me \* qui quærunt te, Deus Israël.
+
+Quóniam propter te sustínui oppróbrium: \* opéruit confúsio fáciem meam.
+
+Extráneus factus sum frátribus meis, \* et peregrínus fíliis matris meæ.
+
+Quóniam zelus domus tuæ comédit me: \* et oppróbria exprobrántium tibi cecidérunt super me.
+
+Et opérui in jejúnio ánimam meam: \* et factum est in oppróbrium mihi.
+
+Et pósui vestiméntum meum cilícium: \* et factus sum illis in parábolam.
+
+Advérsum me loquebántur, qui sedébant in porta: \* et in me psallébant qui bibébant vinum.

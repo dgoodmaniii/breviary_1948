@@ -13322,4 +13322,58 @@ Fiat ei sicut vestiméntum, quo operítur: \* et sicut zona, qua semper præcín
 
 Hoc opus eórum, qui détrahunt mihi apud Dóminum: \* et qui loquúntur mala advérsum ánimam meam.
 
-Et tu, Dómine, Dómine, fac mecum propter nomen
+Et tu, Dómine, Dómine, fac mecum propter nomen tuum: \* quia suávis est misericórdia tua.
+
+### Psalmus 108, iii
+
+LIbera me quia egénus, et pauper ego sum: \* et cor meum conturbátum est intra me.
+
+Sicut umbra cum declínat, ablátus sum: \* et excússus sum sicut locústæ.
+
+Génua mea infirmáta sunt a jejúnio: \* et caro mea immutáta est propter óleum.
+
+Et ego factus sum oppróbrium illis: \* vidérunt me, et movérunt cápita sua.
+
+Adjuva me, Dómine, Deus meus: \* salvum me fac secúndum misericórdiam tuam.
+
+Et sciant quia manus tua hæc: \* et tu, Dómine, fecísti eam.
+
+Maledícent illi, et tu benedíces: \* qui insúrgunt in me, confundántur: servus autem tuus lætábitur.
+
+Induántur qui détrahunt mihi, pudóre: \* et operiántur sicut diplóide confusióne sua.
+
+Confitébor Dómino nimis in ore meo: \* et in médio multórum laudábo eum.
+
+Quia ástitit a dextris páuperis, \* ut salvam fáciat a persequéntibus ánimam meam.
+
+**Ant.** Ne tacúeris, Deus, quia sermónibus ódii circumdedérunt me.
+
+### In Officio feriali
+
+**Capitulum** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et. Glória Patri. Rédime.
+
+℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Benedíctus Dóminus. †

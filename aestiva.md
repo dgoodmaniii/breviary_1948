@@ -19632,4 +19632,40 @@ HOminis est ánimam præparáre, et Dómini gubernáre linguam. Omnes viæ hómi
 
 ##### Lectio ii
 
-INítium viæ bonæ fácere justítiam, accépta est autem apud Deum magis quam immoláre hóstias. Misericórdia et veritáte redímitur iníquitas, et in ti-
+INítium viæ bonæ fácere justítiam, accépta est autem apud Deum magis quam immoláre hóstias. Misericórdia et veritáte redímitur iníquitas, et in timóre Dómini declinátur a malo. Cum placúerint Dómino viæ hóminis, inimícos quoque ejus convértet ad pacem. Mélius est parum cum justítia, quam multi fructus cum iniquitáte. Cor hóminis dispónit viam suam, sed Dómini est dirígere gressus ejus.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+DIvinátio in lábiis regis, in judício non errábit os ejus. Pondus et statéra judícia Dómini sunt, et ópera ejus omnes lápides sácculi. Abominábiles regi qui agunt ímpie, quóniam justítia firmátur sólium. Volúntas regum lábia justa; qui recta lóquitur, diligétur. Indignátio regis núntii mortis, et vir sápiens placábit eam. In hilaritáte vultus regis vita, et cleméntia ejus quasi imber serótinus.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Ego in altíssimis \* hábito: et thronus meus in colúmna nubis.
+
+{RUBRIC: Oratio Dominicæ occurrentis.}
+
+---
+
+## Dominica II Augusti
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber Ecclesiástes}
+
+##### Lectio i
+
+*Cap. 1, 1-17*
+
+VErba Ecclesiástæ, fílii David, regis Jerúsalem. Vánitas vanitátum, dixit Ecclesiástes; vánitas vanitátum, et ómnia vánitas. Quid habet ámplius homo de univérso labóre suo quo labórat sub sole? Generátio præterit, et generátio ádvenit; terra autem in ætérnum stat. Oritur sol et óccidit et ad locum suum revértitur; ibíque renáscens gyrat per merídiem et fléctitur ad aquilónem.

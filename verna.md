@@ -19448,4 +19448,16 @@ DIXITQUE Móyses ad Deum: Quis sum ego, ut vadam ad Pharaónem, et edúcam fíli
 
 #### Lectio iv
 
-MOYSEN per jejúnium nóvimus in montem ascendísse: neque enim áliter ausus esset vérticem fumántem adíre, atque in calíginem íngredi, nisi jejúnio munítus. Per jejúnium mandáta dígito Dei in tábulis conscrípta suscépit. Item supra montem jejúnium legis latæ conciliátor
+MOYSEN per jejúnium nóvimus in montem ascendísse: neque enim áliter ausus esset vérticem fumántem adíre, atque in calíginem íngredi, nisi jejúnio munítus. Per jejúnium mandáta dígito Dei in tábulis conscrípta suscépit. Item supra montem jejúnium legis latæ conciliátor fuit: inférius vero, gula ad idololatríam pópulum dedúxit, ac contaminávit. Sedit, inquit, pópulus manducáre et bíbere, et surrexérunt lúdere. Quadragínta diérum labórem ac perseverántiam, Dei servo contínuo jejunánte ac oránte, una tantum pópuli ebríetas cassam irritámque réddidit. Quas enim tábulas Dei dígito conscríptas jejúnium accépit, has ebríetas contrívit: Prophéta sanctíssimo indígnum existimánte, vinoléntum pópulum a Deo legem accípere.
+
+℟. In mari viæ tuæ, et sémitæ tuæ in aquis multis: \* Deduxísti sicut oves pópulum tuum in manu Móysi et Aaron. ℣. Transtulísti illos per Mare Rubrum, et transvexísti eos per aquam nímiam. — Deduxísti.
+
+#### Lectio v
+
+UNO témporis moménto ob gulam pópulus ille per máxima prodígia Dei cultum edóctus, in Ægyptíacam idololatríam turpíssime devolútus est. Ex quo si utrúmque simul cónferas, vidére licet, jejúnium ad Deum dúcere, delícias vero salútem pérdere. Quid Esau inquinávit, servúmque fratris réddidit? nonne esca una, propter quam primogénita véndidit? Samuélem vero nonne per jejúnium orátio largíta est matri? Quid fortíssimum Samsónem inexpugnábilem réddidit? nonne jejúnium, cum quo in matris ventre concéptus est? Jejúnium concépit, jejúnium nutrívit, jejúnium virum effécit. Quod sane Angelus matri præcépit, monens, quæcúmque ex vite procéderent, ne attíngeret, non vinum, non síceram bíberet. Jejúnium prophétas génuit, poténtes confírmat atque róborat.
+
+℟. Qui persequebántur pópulum tuum, Dómine, demersísti eos in profúndum: \* Et in colúmna nubis ductor eórum fuísti. ℣. Deduxísti sicut oves pópulum tuum in manu Móysi et Aaron. — Et.
+
+#### Lectio vi
+
+JEJUNIUM legislatóres sapiéntes facit: ánimæ óptima custódia, córporis sócius secúrus, fórtibus viris muniméntum et arma, athlétis et certántibus exercitátio. Hoc prætérea tentatiónes propúlsat, ad pietátem armat, cum sobrietáte hábitat, temperántiæ ópifex est: in bellis fortitúdinem affert, in pace quiétem docet: nazarǽum sanctíficat, sacerdótem

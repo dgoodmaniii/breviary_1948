@@ -50475,3 +50475,131 @@ ADESTO, quǽsumus, Dómine, supplicatiónibus nostris: et viam famulórum tuóru
 PRÆSTA, quǽsumus, omnípotens Deus: ut família tua per viam salútis incédat; et, beáti Joánnis Præcursóris hortaménta sectándo, ad eum, quem prædíxit, secúra pervéniat, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
 
 ℣. Procedámus in pace. ℟. In nómine Dómini. Amen.
+
+---
+
+{ILLUSTRATION: Woodcut of a chalice with host, flanked by scroll banners reading "Introibo ad altare Dei" and "ad Deum qui lætificat juventutem meam", within a decorative frame.}
+
+# Preces ante et post Missam
+
+## Præparatio ad Missam
+
+### Pro Opportunitate Sacerdotis Facienda
+
+{RUBRIC: Quilibet Sacerdos, ex concessione Pii Pp. XI, sub die 3 Octobris 1936, lucrari potest: Indulgentiam quinque annorum si, ante Missæ celebrationem, recitet Psalmos 83, 84, 85, 115 et 129 cum adnexa antiphona, versiculis et} Orémus {RUBRIC: ut infra; plenariam, si per integrum mensem prædictas preces quotidie recitaverit, additis confessione sacramentali et oratione ad Summi Pontificis mentem.}
+
+**Ant.** Ne reminiscáris, \* Dómine, delícta nostra vel paréntum nostrórum, neque vindíctam sumas de peccátis nostris. (T. P. Allelúja.)
+
+{RUBRIC: Quæ Antiphona in Duplicibus tantum duplicatur.}
+
+###### Psalmus 83
+
+QUAM dilécta tabernácula tua, Dómine virtútum: \* concupíscit, et déficit ánima mea in átria Dómini.
+
+Cor meum, et caro mea \* exsultavérunt in Deum vivum.
+
+Etenim passer invénit sibi domum: \* et turtur nidum sibi, ubi ponat pullos suos.
+
+Altária tua, Dómine virtútum: \* Rex meus, et Deus meus.
+
+Beáti, qui hábitant in domo tua, Dómine: \* in sǽcula sæculórum laudábunt te.
+
+Beátus vir, cujus est auxílium abs te: \* ascensiónes in corde suo dispósuit, in valle lacrimárum in loco, quem pósuit.
+
+Etenim benedictiónem dabit legislátor, ibunt de virtúte in virtútem: \* vidébitur Deus deórum in Sion.
+
+Dómine, Deus virtútum, exáudi oratiónem meam: \* áuribus pércipe, Deus Jacob.
+
+Protéctor noster, áspice, Deus: \* et réspice in fáciem Christi tui:
+
+Quia mélior est dies una in átriis tuis, \* super míllia.
+
+Elégi abjéctus esse in domo Dei mei: \* magis quam habitáre in tabernáculis peccatórum.
+
+Quia misericórdiam, et veritátem díligit Deus: \* grátiam et glóriam dabit Dóminus.
+
+Non privábit bonis eos, qui ámbulant in innocéntia: \* Dómine virtútum, beátus homo, qui sperat in te.
+
+Glória Patri.
+
+###### Psalmus 84
+
+BENEDIXISTI, Dómine, terram tuam: \* avertísti captivitátem Jacob.
+
+Remisísti iniquitátem plebis tuæ: \* operuísti ómnia peccáta eórum.
+
+Mitigásti omnem iram tuam: \* avertísti ab ira indignatiónis tuæ.
+
+Convérte nos, Deus, salutáris noster: \* et avérte iram tuam a nobis.
+
+Numquid in ætérnum irascéris nobis? \* aut exténdes iram tuam a generatióne in generatiónem?
+
+Deus, tu convérsus vivificábis nos: \* et plebs tua lætábitur in te.
+
+Osténde nobis, Dómine, misericórdiam tuam: \* et salutáre tuum da nobis.
+
+Audiam quid loquátur in me Dóminus Deus: \* quóniam loquétur pacem in plebem suam.
+
+Et super sanctos suos: \* et in eos, qui convertúntur ad cor.
+
+Verúmtamen prope timéntes eum salutáre ipsíus: \* ut inhábitet glória in terra nostra.
+
+Misericórdia, et véritas obviavérunt sibi: \* justítia, et pax osculátæ sunt.
+
+Véritas de terra orta est: \* et justítia de cælo prospéxit.
+
+Etenim Dóminus dabit benignitátem: \* et terra nostra dabit fructum suum.
+
+Justítia ante eum ambulábit: \* et ponet in via gressus suos.
+
+Glória Patri.
+
+###### Psalmus 85
+
+INCLINA, Dómine, aurem tuam, et exáudi me: \* quóniam inops, et pauper sum ego.
+
+Custódi ánimam meam, quóniam sanctus sum: \* salvum fac servum tuum, Deus meus, sperántem in te.
+
+Miserére mei, Dómine, quóniam ad te clamávi tota die: \* lætífica ánimam servi tui, quóniam ad te, Dómine, ánimam meam levávi.
+
+Quóniam tu, Dómine, suávis, et mitis: \* et multæ misericórdiæ ómnibus invocántibus te.
+
+Auribus pércipe, Dómine, oratiónem meam: \* et inténde voci deprecatiónis meæ.
+
+In die tribulatiónis meæ clamávi ad te: \* quia exaudísti me.
+
+Non est símilis tui in diis, Dómine: \* et non est secúndum ópera tua.
+
+Omnes gentes quascúmque fecísti, vénient, et adorábunt coram te, Dómine: \* et glorificábunt nomen tuum.
+
+Quóniam magnus es tu, et fáciens mirabília: \* tu es Deus solus.
+
+Deduc me, Dómine, in via tua, et ingrédiar in veritáte tua: \* lætétur cor meum ut tímeat nomen tuum.
+
+Confitébor tibi, Dómine, Deus meus, in toto corde meo, \* et glorificábo nomen tuum in ætérnum:
+
+Quia misericórdia tua magna est super me: \* et eruísti ánimam meam ex inférno inferióri.
+
+Deus, iníqui insurrexérunt super me, et synagóga poténtium quæsiérunt ánimam meam: \* et non proposuérunt te in conspéctu suo.
+
+Et tu, Dómine, Deus miserátor et miséricors, \* pátiens, et multæ misericórdiæ, et verax.
+
+Réspice in me, et miserére mei, \* da impérium tuo púero tuo: et salvum fac fílium ancíllæ tuæ.
+
+Fac mecum signum in bonum, ut vídeant qui odérunt me, et confundántur: \* quóniam tu, Dómine, adjuvísti me, et consolátus es me.
+
+Glória Patri.
+
+###### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.

@@ -44008,4 +44008,34 @@ QUAM ob rem maximópere grátulor hujus Sancti felicitáti, quod, quamquam trans
 
 ##### In III Nocturno
 
-℣. Lex Dei ejus in corde ipsíus. (T. P. Allelúja.) ℟. Et non supplantabún-
+℣. Lex Dei ejus in corde ipsíus. (T. P. Allelúja.) ℟. Et non supplantabúntur gressus ejus. (T. P. Allelúja.)
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Lucam
+
+**Lectio vii** *Cap. 12, 35-40*
+
+IN illo témpore: Dixit Jesus discípulis suis: Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 13 in Evangelia}
+
+SANCTI Evangélii, fratres caríssimi, apérta vobis est léctio recitáta. Sed, ne áliquibus ipsa ejus planíties alta fortásse videátur, eam sub brevitáte transcúrrimus, quaténus ejus expositio ita nesciéntibus fiat cógnita, ut tamen sciéntibus non sit onerósa. Dóminus dicit: Sint lumbi vestri præcíncti. Lumbos enim præcíngimus, cum carnis luxúriam per continéntiam coarctámus. Sed, quia minus est mala non ágere, nisi étiam quisque stúdeat et bonis opéribus insudáre, prótinus ádditur: Et lucérnæ ardéntes in mánibus vestris. Lucérnas quippe ardéntes in mánibus tenémus, cum per bona ópera próximis nostris lucis exémpla monstrámus. De quibus profécto opéribus Dóminus dicit: Lúceat lux vestra coram homínibus, ut vídeant ópera vestra bona et gloríficent Patrem vestrum, qui in cælis est.
+
+##### Pro Confessore non Pont.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+##### Pro Confessore Pontifice
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+**Benedictio** Cujus festum.
+
+###### Lectio viii
+
+DUO autem sunt, quæ jubéntur: et lumbos restríngere, et lucérnas tenére; ut et mundítia sit castitátis in córpore, et lumen veritátis in operatióne. Redemptóri étenim nostro unum sine áltero pla-

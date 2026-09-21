@@ -1427,3 +1427,61 @@ Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus:
 Oculi ejus in páuperem respíciunt: \* pálpebræ ejus intérrogant fílios hóminum.
 
 Dóminus intérrogat justum et ímpium: \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos: \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ejus.
+
+**Ant.** Justus Dóminus, et justítiam diléxit.
+
+℣. Prævenérunt óculi mei ad te dilúculo. ℟. Ut meditárer elóquia tua, Dómine.
+
+**Absolutio** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 Divínum auxílium. 9 Ad societátem cívium.
+
+## Ad Laudes
+
+(Pater noster {RUBRIC: et} Ave).
+
+℣. Deus, in adjutórium.
+
+**Ant.** Allelúja.
+
+{RUBRIC: ¶ Añæ cum Psalmis assignátæ adhibéntur semper, extra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, quando fit Offícium de Domínica.}
+
+###### Psalmus 92 [1]
+
+DOMINUS regnávit, decórem indútus est: \* indútus est Dóminus fortitúdinem, et præcínxit se.
+
+Etenim firmávit orbem terræ, \* qui non commovébitur.
+
+Paráta sedes tua ex tunc: \* a sæculo tu es.
+
+Elevavérunt flúmina, Dómine: \* elevavérunt flúmina vocem suam.
+
+Elevavérunt flúmina fluctus suos, \* a vócibus aquárum multárum.
+
+Mirábiles elatiónes maris: \* mirábilis in altis Dóminus.
+
+Testimónia tua credibília facta sunt nimis: \* domum tuam decet sanctitúdo, Dómine, in longitúdinem diérum.
+
+**Ant.** Allelúja, Dóminus regnávit, decórem índuit, allelúja, allelúja.
+
+**Ant.** Jubiláte. †
+
+###### Psalmus 99 [2]
+
+JUBILATE † Deo, omnis terra: \* servíte Dómino in lætítia.
+
+Introíte in conspéctu ejus, \* in exsultatióne.
+
+Scitóte quóniam Dóminus ipse est Deus: \* ipse fecit nos, et non ipsi nos.
+
+Pópulus ejus, et oves páscuæ ejus: \* introíte portas ejus in confessióne, átria ejus in hymnis: confitémini illi.
+
+Laudáte nomen ejus: quóniam suávis est Dóminus, in ætérnum misericórdia ejus, \* et usque in generatiónem et generatiónem véritas ejus.
+
+**Ant.** Jubiláte Deo, omnis terra, allelúja.
+
+**Ant.** Benedícam te.

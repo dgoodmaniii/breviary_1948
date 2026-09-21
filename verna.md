@@ -23939,4 +23939,18 @@ De Epístola beáti Pauli Apóstoli ad Colossénses
 
 *Cap. 3, 1-17*
 
-SI consurrexístis cum Christo: quæ sursum sunt quǽrite, ubi Christus est in déxtera Dei sedens: quæ sursum sunt sápite, non quæ super terram. Mórtui enim estis, et vita vestra est abscóndita cum Christo in Deo. Cum Christus apparúerit, vita vestra: tunc et vos apparébitis cum ipso in glória. Mortificáte ergo membra vestra, quæ sunt super terram: fornicatiónem, immundítiam, libídinem, concupiscéntiam malam, et avarítiam, quæ est simulacrórum sérvitus: propter quæ venit ira Dei super fílios incredulitátis: in quibus et vos ambulá-
+SI consurrexístis cum Christo: quæ sursum sunt quǽrite, ubi Christus est in déxtera Dei sedens: quæ sursum sunt sápite, non quæ super terram. Mórtui enim estis, et vita vestra est abscóndita cum Christo in Deo. Cum Christus apparúerit, vita vestra: tunc et vos apparébitis cum ipso in glória. Mortificáte ergo membra vestra, quæ sunt super terram: fornicatiónem, immundítiam, libídinem, concupiscéntiam malam, et avarítiam, quæ est simulacrórum sérvitus: propter quæ venit ira Dei super fílios incredulitátis: in quibus et vos ambulá-stis aliquándo, cum viverétis in illis.
+
+℟. Angelus Dómini descéndit de cælo, et accédens revólvit lápidem, et super eum sedit, et dixit muliéribus: \* Nolíte timére: scio enim quia crucifíxum quǽritis: jam surréxit: veníte, et vidéte locum, ubi pósitus erat Dóminus, allelúja. ℣. Et introëúntes in monuméntum, vidérunt júvenem sedéntem in dextris, coopértum stola cándida, et obstupuérunt: qui dixit illis. — Nolíte.
+
+#### Lectio ii
+
+NUNC autem depónite et vos ómnia: iram, indignatiónem, malítiam, blasphémiam, turpem sermónem de ore vestro. Nolíte mentíri ínvicem, expoliántes vos véterem hóminem cum áctibus suis, et induéntes novum eum, qui renovátur in agnitiónem secúndum imáginem ejus, qui creávit illum. Ubi non est gentílis et Judǽus, circumcísio et præpútium, Bárbarus et Scytha, servus et liber: sed ómnia, et in ómnibus Christus. Indúite vos ergo sicut elécti Dei, sancti et dilécti, víscera misericórdiæ, benignitátem, humilitátem, modéstiam, patiéntiam: supportántes ínvicem, et donántes vobismetípsis, si quis advérsus áliquem habet querélam: sicut et Dóminus donávit vobis, ita et vos.
+
+℟. Angelus Dómini locútus est muliéribus, dicens: Quem quǽritis? an Jesum quǽritis? Jam surréxit: \* Veníte, et vidéte, allelúja, allelúja. ℣. Jesum quǽritis Nazarénum crucifíxum? Surréxit, non est hic. — Veníte.
+
+#### Lectio iii
+
+SUPER ómnia autem hæc, caritátem habéte, quod est vínculum perfectiónis: et pax Christi exsúltet in córdibus vestris, in qua et vocáti estis in uno córpore: et grati estóte. Verbum Christi hábitet in vobis abundánter, in omni sapiéntia, docéntes, et commonéntes vosmetípsos, psalmis, hymnis, et cánticis spirituálibus, in grátia cantántes in córdibus vestris Deo. Omne, quodcúmque fácitis in verbo aut in ópere, ómnia in nómine Dómini Jesu Christi, grátias agéntes Deo et Patri per ipsum.
+
+℟. Cum transísset sábbatum, María Magdaléne, et María Jacóbi, et Salóme emérunt arómata, \* Ut veniéntes úngerent Jesum, allelúja, allelúja. ℣. Et valde mane una sabbató-

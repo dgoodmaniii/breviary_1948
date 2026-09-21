@@ -33822,3 +33822,23 @@ ANICETUS Syrus, imperatóre Marco Aurélio Antoníno, præfuit Ecclésiæ. Decr�
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Ansélme, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+{RUBRIC: C 3}
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum Ansélmum minístrum tribuísti: præsta, quǽsumus; ut quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+ANSELMUS, Augústæ Prætóriæ in fínibus Itáliæ, Gundúlpho et Ermembérga nobílibus et cathólicis paréntibus natus, a téneris annis assíduo litterárum stúdio atque perfectióris vitæ desidério, non obscúrum futúræ sanctitátis et doctrínæ spécimen dedit. Et licet juveníli ardóre aliquándo ad sæculi illécebras traherétur, brevi tamen in prístinam viam revocátus, pátria et bonis ómnibus derelíctis, ad monastérium Beccénse órdinis sancti Benedícti se cóntulit; ubi, emíssa regulári professióne, sub Herluíno abbáte observantíssimo et Lanfránco viro doctíssimo, tanto ánimi fervóre et jugi stúdio in lítteris et virtútibus assequéndis profécit, ut mirum in modum tamquam sanctitátis et doctrínæ exémplar ab ómnibus haberétur.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+ABSTINENTIÆ et continéntiæ tantæ fuit, ut assiduitáte jejúnii omnis pene cibórum sensus in eo viderétur exstínctus. Diúrno enim témpore in exercítiis monásticis docéndo, et respondéndo váriis de religióne quæsítis eménso; quod réliquum erat noctis, somno subtrahébat, ut divínis meditatiónibus, quas perénni lacrimárum imbre fovébat, mentem recreáret. Eléctus in priórem monastérii ínvidos fratres ita caritáte, humilitáte et prudéntia lenívit, ut quos æmulos accéperat, sibi et Deo amícos, máximo cum reguláris observántiæ emoluménto, rédderet. Mórtuo abbáte, et in ejus locum, licet invítus, sufféctus, tanta doctrínæ et sanctitátis fama ubíque refúlsit, ut non modo régibus et epíscopis veneratióni esset, sed sancto Gregório séptimo étiam

@@ -25622,4 +25622,24 @@ De Epístola beáti Jacóbi Apóstoli
 
 *Cap. 4, 1-15*
 
-UNDE bella et lites in vobis? Nonne hinc? ex concupiscéntiis vestris, quæ mílitant in membris vestris? Concupíscitis, et non habétis: occíditis, et zelátis, et non potéstis adipísci: litigátis, et belligerátis, et non habétis, propter quod non postu-
+UNDE bella et lites in vobis? Nonne hinc? ex concupiscéntiis vestris, quæ mílitant in membris vestris? Concupíscitis, et non habétis: occíditis, et zelátis, et non potéstis adipísci: litigátis, et belligerátis, et non habétis, propter quod non postu-látis. Pétitis, et non accípitis, eo quod male petátis: ut in concupiscéntiis vestris insumátis. Adúlteri, nescítis quia amicítia hujus mundi, inimíca est Dei? Quicúmque ergo volúerit amícus esse sæculi hujus, inimícus Dei constitúitur.
+
+℟. In ecclésiis benedícite Deo, allelúja: \* Dómino de fóntibus Israël, allelúja, allelúja. ℣. Psalmum dícite nómini ejus, date glóriam laudi ejus. — Dómino.
+
+#### Lectio ii
+
+AN putátis quia inániter Scriptúra dicat: Ad invídiam concupíscit spíritus, qui hábitat in vobis? Majórem autem dat grátiam. Propter quod dicit: Deus supérbis resístit, humílibus autem dat grátiam. Súbditi ergo estóte Deo, resístite autem diábolo, et fúgiet a vobis. Appropinquáte Deo, et appropinquábit vobis. Emundáte manus, peccatóres: et purificáte corda, dúplices ánimo. Míseri estóte, et lugéte, et ploráte: risus vester in luctum convertátur, et gáudium in mœrórem. Humiliámini in conspéctu Dómini, et exaltábit vos.
+
+℟. In toto corde meo, allelúja, exquisívi te, allelúja: \* Ne repéllas me a mandátis tuis, allelúja, allelúja. ℣. Benedíctus es tu, Dómine, doce me justificatiónes tuas. — Ne.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Ne.
+
+#### Lectio iii
+
+NOLITE detráhere altérutrum, fratres. Qui détrahit fratri, aut qui júdicat fratrem suum, détrahit legi, et júdicat legem. Si autem júdicas legem: non es factor legis, sed judex. Unus est legislátor et judex, qui potest pérdere et liberáre. Tu autem quis es, qui júdicas próximum? Ecce nunc qui dícitis: Hódie, aut crástino íbimus in illam civitátem, et faciémus ibi quidem annum, et mercábimur, et lucrum faciémus: qui ignorátis quid erit in crástino. Quæ est enim vita vestra? Vapor est ad módicum parens, et deínceps exterminábitur; pro eo ut dicátis: Si Dóminus volúerit, et: Si vixérimus, faciémus hoc, aut illud.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Hymnum cantáte nobis, allelúja: \* Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. ℣. Illic in-

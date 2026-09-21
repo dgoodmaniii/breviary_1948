@@ -22704,4 +22704,52 @@ QUO perduxérunt illas scrutatiónes suas, quas perscrutántes defecérunt, ut �
 
 POSUERUNT custódes mílites ad sepúlcrum. Concússa terra Dóminus resurréxit: mirácula facta sunt tália circa sepúlcrum, ut et ipsi mílites, qui custódes advénerant, testes fíerent, si vellent vera nuntiáre. Sed avarítia illa, quæ captivávit discípulum cómitem Christi, captivávit et mílitem custódem sepúlcri. Damus, ínquiunt, vobis pecúniam: et dícite quia vobis dormiéntibus venérunt discípuli ejus, et abstulérunt eum. Vere defecérunt scrutántes scrutatiónes. Quid est quod dixísti, o infélix astútia? Tantúmne déseris lucem consílii pietátis, et in profúnda versútiæ demérgeris, ut hoc dicas: Dícite quia vobis dormiéntibus venérunt discípuli ejus, et abstulérunt eum? Dormiéntes testes ádhibes: vere tu ipse obdormísti, qui scrutándo tália defecísti.
 
-℟. Ecce quómodo móritur justus, et nemo pérci-
+℟. Ecce quómodo móritur justus, et nemo pércipit corde: et viri justi tolluntur, et nemo consíderat; a fácie iniquitátis sublátus est justus: \* Et erit in pace memória ejus. ℣. Tamquam agnus coram tondénte se obmútuit, et non apéruit os suum: de angústia, et de judício sublátus est. — Et. Ecce.
+
+#### In III Nocturno
+
+**Ant.** Deus ádjuvat me, \* et Dóminus suscéptor est ánimæ meæ.
+
+#### Psalmus 53
+
+DEUS, in nómine tuo salvum me fac: \* et in virtúte tua júdica me.
+
+Deus, exáudi oratiónem meam: \* áuribus pércipe verba oris mei.
+
+Quóniam aliéni insurrexérunt advérsum me, et fortes quæsiérunt ánimam meam: \* et non proposuérunt Deum ante conspéctum suum.
+
+Ecce enim Deus ádjuvat me: \* et Dóminus suscéptor est ánimæ meæ.
+
+Avérte mala inimícis meis: \* et in veritáte tua dispérde illos.
+
+Voluntárie sacrificábo tibi: \* et confitébor nómini tuo, Dómine: quóniam bonum est:
+
+Quóniam ex omni tribulatióne eripuísti me: \* et super inimícos meos despéxit óculus meus.
+
+{RUBRIC: †}
+
+**Ant.** Deus ádjuvat me, et Dóminus suscéptor est ánimæ meæ.
+
+**Ant.** In pace \* factus est locus ejus, et in Sion habitátio ejus.
+
+#### Psalmus 75
+
+NOTUS in Judǽa Deus: \* in Israël magnum nomen ejus.
+
+Et factus est in pace locus ejus: \* et habitátio ejus in Sion.
+
+Ibi confrégit poténtias árcuum, \* scutum, gládium, et bellum.
+
+Illúminans tu mirabíliter a móntibus ætérnis: \* turbáti sunt omnes insipiéntes corde.
+
+Dormiérunt somnum suum: \* et nihil invenérunt omnes viri divitiárum in mánibus suis.
+
+Ab increpatióne tua, Deus Jacob, \* dormitavérunt qui ascendérunt equos.
+
+Tu terríbilis es, et quis resístet tibi? \* ex tunc ira tua.
+
+De cælo audítum fecísti judícium: \* terra trémuit et quiévit,
+
+Cum exsúrgeret in judícium Deus, \* ut salvos fáceret omnes mansuétos terræ.
+
+Quóniam cogitátio hóminis confitébitur tibi: \*

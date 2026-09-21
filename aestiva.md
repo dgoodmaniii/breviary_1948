@@ -13051,3 +13051,53 @@ Non avértas fáciem tuam a me: \* in quacúmque die tríbulor, inclína ad me a
 In quacúmque die invocávero te, \* velóciter exáudi me.
 
 Quia defecérunt sicut fumus dies mei: \* et ossa mea sicut crémium aruérunt.
+
+Percússus sum ut fœnum, et áruit cor meum: \* quia oblítus sum comédere panem meum.
+
+A voce gémitus mei \* adhæsit os meum carni meæ.
+
+Símilis factus sum pellicáno solitúdinis: \* factus sum sicut nyctícorax in domicílio.
+
+Vigiláví, \* et factus sum sicut passer solitárius in tecto.
+
+Tota die exprobrábant mihi inimíci mei: \* et qui laudábant me, advérsum me jurábant.
+
+Quia cínerem tamquam panem manducábam, \* et potum meum cum fletu miscébam.
+
+A fácie iræ et indignatiónis tuæ: \* quia élevans allisísti me.
+
+Dies mei sicut umbra declinavérunt: \* et ego sicut fœnum árui.
+
+Tu autem, Dómine, in ætérnum pérmanes: \* et memoriále tuum in generatiónem et generatiónem.
+
+### Psalmus 101, ii
+
+TU exsúrgens miseréberis Sion: \* quia tempus miseréndi ejus, quia venit tempus.
+
+Quóniam placuérunt servis tuis lápides ejus: \* et terræ ejus miserebúntur.
+
+Et timébunt gentes nomen tuum, Dómine, \* et omnes reges terræ glóriam tuam.
+
+Quia ædificávit Dóminus Sion: \* et vidébitur in glória sua.
+
+Respéxit in oratiónem humílium: \* et non sprevit precem eórum.
+
+Scribántur hæc in generatióne áltera: \* et pópulus, qui creábitur, laudábit Dóminum:
+
+Quia prospéxit de excélso sancto suo: \* Dóminus de cælo in terram aspéxit:
+
+Ut audíret gémitus compeditórum: \* ut sólveret fílios interemptórum:
+
+Ut annúntient in Sion nomen Dómini: \* et laudem ejus in Jerúsalem.
+
+In conveniéndo pópulos in unum, \* et reges ut sérviant Dómino.
+
+### Psalmus 101, iii
+
+REspóndit ei in via virtútis suæ: \* Paucitátem diérum meórum núntia mihi.
+
+Ne révoces me in dimídio diérum meórum: \* in generatiónem et generatiónem anni tui.
+
+Inítio tu, Dómine, terram fundásti: \* et ópera mánuum tuárum sunt cæli.
+
+Ipsi períbunt, tu autem pérmanes: \* et omnes sicut vestiméntum vete-

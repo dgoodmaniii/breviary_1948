@@ -5930,3 +5930,57 @@ Largíre lumen véspere,
 Quo vita nusquam décidat,
 Sed prǽmium mortis sacræ
 Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Salvásti nos.
+
+### Psalmus 43, i
+
+DEUS, áuribus nostris audívimus: \* patres nostri annuntiavérunt nobis.
+
+Opus, quod operátus es in diébus eórum, \* et in diébus antíquis.
+
+Manus tua gentes dispérdidit, et plantásti eos: \* afflixísti pópulos, et expulísti eos.
+
+Nec enim in gládio suo possedérunt terram, \* et bráchium eórum non salvávit eos:
+
+Sed déxtera tua, et bráchium tuum, et illuminátio vultus tui: \* quóniam complacuísti in eis.
+
+Tu es ipse Rex meus et Deus meus: \* qui mandas salútes Jacob.
+
+In te inimícos nostros ventilábimus cornu: \* et in nómine tuo spernémus insurgéntes in nobis.
+
+Non enim in arcu meo sperábo: \* et gládius meus non salvábit me.
+
+Salvásti enim nos de affligéntibus nos: \* et odiéntes nos confudísti.
+
+In Deo laudábimur tota die: \* et in nómine tuo confitébimur in sæculum.
+
+### Psalmus 43, ii
+
+NUNC autem repulísti et confudísti nos: \* et non egrediéris, Deus, in virtútibus nostris.
+
+Avertísti nos retrórsum post inimícos nostros: \* et qui odérunt nos, diripiébant sibi.
+
+Dedísti nos tamquam oves escárum: \* et in géntibus dispersísti nos.
+
+Vendidísti pópulum tuum sine prétio: \* et non fuit multitúdo in commutatiónibus eórum.
+
+Posuísti nos oppróbrium vicínis nostris, \* subsannatiónem et derísum his, qui sunt in circúitu nostro.
+
+Posuísti nos in similitúdinem géntibus: \* commotiónem cápitis in pópulis.
+
+Tota die verecúndia mea contra me est, \* et confúsio faciéi meæ coopéruit me.
+
+A voce exprobrántis, et obloquéntis: \* a fácie inimíci, et persequéntis.
+
+Hæc ómnia venérunt super nos, nec oblíti sumus te: \* et iníque non égimus in testaménto tuo.
+
+Et non recéssit retro cor nostrum: \* et declinásti sémitas nostras a via tua:
+
+Quóniam humiliásti nos in loco afflictiónis, \* et coopéruit nos umbra mortis.

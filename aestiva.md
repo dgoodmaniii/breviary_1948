@@ -9561,4 +9561,54 @@ TU terríbilis es, et quis resístet tibi? \* ex tunc ira tua.
 
 De cælo audítum fecísti judícium: \* terra trémuit et quiévit.
 
-Cum exsúrgeret in judícium Deus, \* ut salvos
+Cum exsúrgeret in judícium Deus, \* ut salvos fáceret omnes mansuétos terræ.
+
+Quóniam cogitátio hóminis confitébitur tibi: \* et relíquiæ cogitatiónis diem festum agent tibi.
+
+Vovéte, et réddite Dómino, Deo vestro: \* omnes, qui in circúitu ejus affértis múnera.
+
+Terríbili et ei qui aufert spíritum príncipum, \* terríbili apud reges terræ.
+
+**Ant.** Invocábimus nomen tuum, Dómine: narrábimus mirabília tua.
+
+#### In Officio feriali
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Ecce, quam bonum \* † et quam jucúndum, habitáre fratres in unum. ‡
+
+### Psalmus 132
+
+ECce, quam bonum † et quam jucúndum, \* habitáre fratres in unum: ‡
+
+Sicut unguéntum in cápite, \* quod descéndit in barbam, barbam Aaron.
+
+Quod descéndit in oram vestiménti ejus: \* sicut ros Hermon, qui descéndit in montem Sion.
+
+Quóniam illic mandávit Dóminus benedictiónem, \* et vitam usque in sæculum.
+
+**Ant.** Ecce, quam bonum et quam jucúndum, habitáre fratres in unum!
+
+**Ant.** Confitémini Dómino \* † quóniam in ætérnum misericórdia ejus.

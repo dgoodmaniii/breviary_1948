@@ -18754,4 +18754,32 @@ COrvi enim illi, qui beáto Elíæ, jubénte Dómino, ministrábant, géntium p�
 
 *Cap. 2, 5-13*
 
-ACcessérunt fílii prophetárum qui erant in Jéricho ad Eliséum et dixérunt ei: Numquid nosti quia Dóminus hódie tollet dóminum tuum a te? Et ait: Et ego novi: siléte. Dixit autem ei Elías: Sede hic, quia Dóminus misit me usque ad Jordánem. Qui ait: Vivit Dóminus, et vivit ánima tua, quia non derelínquam te. Ierunt ígitur ambo páriter. Et quinquagínta viri de fíliis prophetárum secúti sunt eos, qui et steté-
+ACcessérunt fílii prophetárum qui erant in Jéricho ad Eliséum et dixérunt ei: Numquid nosti quia Dóminus hódie tollet dóminum tuum a te? Et ait: Et ego novi: siléte. Dixit autem ei Elías: Sede hic, quia Dóminus misit me usque ad Jordánem. Qui ait: Vivit Dóminus, et vivit ánima tua, quia non derelínquam te. Ierunt ígitur ambo páriter. Et quinquagínta viri de fíliis prophetárum secúti sunt eos, qui et stetérunt e contra longe; illi autem ambo stabant super Jordánem.
+
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.
+
+##### Lectio ii
+
+TUlítque Elías pállium suum et invólvit illud et percússit aquas, quæ divísæ sunt in utrámque partem, et transiérunt ambo per siccum. Cumque transíssent, Elías dixit ad Eliséum: Póstula quod vis ut fáciam tibi, ántequam tollar a te. Dixítque Eliséus: Obsecro ut fiat in me duplex spíritus tuus. Qui respóndit: Rem difícilem postulásti: áttamen si víderis me, quando tollar a te, erit tibi quod petísti; si autem non víderis, non erit.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+CUmque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque; et ascéndit Elías per túrbinem in cælum. Eliséus autem vidébat et clamábat: Pater mi, pater mi, currus Israël et auríga ejus. Et non vidit eum ámplius. Apprehendítque vestiménta sua et scidit illa in duas partes. Et levávit pállium Elíæ, quod cecíderat ei. Reversúsque stetit super ripam Jordánis.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 3, 6-18*
+
+EGréssus est ígitur rex Joram in die illa de Samaría et recénsuit uni-

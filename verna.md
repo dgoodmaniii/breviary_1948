@@ -32418,4 +32418,109 @@ Ut sibi compláceam. Amen.
 
 ##### In II Vesperis
 
-**Ad Magnif. Ant.** Cum vidísset Jesus \* Matrem stantem juxta crucem, et discípulum quem diligé-
+**Ad Magnif. Ant.** Cum vidísset Jesus \* Matrem stantem juxta crucem, et discípulum quem diligébat, dicit Matri suæ: Múlier, ecce fílius tuus. Deínde dicit discípulo: Ecce mater tua.
+
+###### Oratio
+
+DEUS, in cujus passióne, secúndum Simeónis prophetíam, dulcíssimam ánimam gloriósæ Vírginis et Matris Maríæ dolóris gládius pertransívit: concéde propítius; ut, qui transfixiónem ejus et passiónem venerándo recólimus, gloriósis méritis et précibus ómnium Sanctórum cruci fidéliter astántium intercedéntibus, passiónis tuæ efféctum felícem consequámur: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commem. Feriæ. 432}
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Conclusio Hymnorum, etiam ad Horas, erit sequens:}
+
+Jesu, tibi sit glória,
+Qui passus es pro sérvulis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula. Amen.
+
+##### Ad Matutinum
+
+**Invit.** Dolóres gloriósæ recoléntes Vírginis, Dóminum pro nobis passum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. [3]
+
+###### Hymnus
+
+SANCTA Mater, istud agas,
+Crucifíxi fige plagas
+Cordi meo válide.
+
+Tui nati vulneráti,
+Tam dignáti pro me pati,
+Pœnas mecum dívide.
+
+Fac me tecum pie flere,
+Crucifíxo condolére,
+Donec ego víxero.
+
+Juxta crucem tecum stare,
+Et me tibi sociáre
+In planctu desídero. Amen.
+
+##### In I Nocturno
+
+**Ant.** Astitérunt reges terræ, \* et príncipes convenérunt in unum advérsus Dóminum, et advérsus Christum ejus.
+
+###### Psalmus 2
+
+QUARE fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Astitérunt reges terræ, et príncipes convenérunt in unum advérsus Dóminum, et advérsus Christum ejus.
+
+**Ant.** Voce mea \* ad Dóminum clamávi, et exaudívit me de monte sancto suo.
+
+###### Psalmus 3
+
+DOMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Voce mea ad Dóminum clamávi, et exaudívit me de monte sancto suo.
+
+**Ant.** Factum est cor meum \* tamquam cera liquéscens in médio ventris mei.
+
+###### Psalmus 12
+
+USQUEQUO, Dómine, obliviscéris me in finem? \* Usquequo avértis fáciem tuam a me?
+
+Quámdiu ponam consília in ánima mea, \* dolórem in corde meo per diem?
+
+Usquequo exaltábitur inimícus meus super me? \* réspice, et exáudi me, Dómine, Deus meus.
+
+Illúmina óculos meos ne umquam obdórmiam in

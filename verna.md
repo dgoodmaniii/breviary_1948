@@ -20018,4 +20018,22 @@ PENSATE, fratres caríssimi, mansuetúdinem Dei. Relaxáre peccáta vénerat, et
 
 #### Lectio viii
 
-PENSET ergo apud se unusquísque vestrum, si hæc vox Dei in cordis ejus aure conváluit, et quia jam ex Deo sit, agnóscit. Nam sunt nonnúlli, qui præcépta Dei nec aure córporis percípere dignántur. Et sunt nonnúlli, qui hæc quidem córporis aure percípiunt, sed nullo ea
+PENSET ergo apud se unusquísque vestrum, si hæc vox Dei in cordis ejus aure conváluit, et quia jam ex Deo sit, agnóscit. Nam sunt nonnúlli, qui præcépta Dei nec aure córporis percípere dignántur. Et sunt nonnúlli, qui hæc quidem córporis aure percípiunt, sed nullo ea mentis desidério complectúntur. Et sunt nonnúlli, qui libénter verba Dei suscípiunt, ita ut étiam in flétibus compungántur, sed post lacrimárum tempus ad iniquitátem rédeunt. Hi profécto verba Dei non áudiunt, qui hæc exercére in ópere contémnunt. Vitam ergo vestram, fratres caríssimi, ante mentis óculos revocáte, et alta consideratióne pertiméscite hoc quod ex ore Veritátis sonat: Proptérea vos non audítis, quia ex Deo non estis.
+
+℟. Ne avértas fáciem tuam a púero tuo, Dómine: \* Quóniam tríbulor, velóciter exáudi me. ℣. Inténde ánimæ meæ, et líbera eam: propter inimícos meos éripe me. — Quóniam.
+
+#### Lectio ix
+
+SED hoc quod de réprobis Véritas lóquitur, ipsi hoc de semetípsis réprobi iníquis suis opéribus osténdunt: nam séquitur: Respondérunt ígitur Judæi et dixérunt ei: Nonne bene dícimus nos, quia Samaritánus es tu, et dæmónium habes? Accépta autem tanta contumélia, quid Dóminus respóndeat, audiámus: Ego dæmónium non hábeo, sed honorífico Patrem meum, et vos inhonorástis me. Quia enim Samaritánus interpretátur custos: et ipse veráciter custos est, de quo Psalmísta ait: Nisi Dóminus custodíerit civitátem, in vanum vígilant qui custódiunt eam: et cui per Isaíam dícitur: Custos, quid de nocte? custos, quid de nocte? respondére nóluit Dóminus, Samaritánus non sum; sed, Ego dæmónium non hábeo. Duo quippe ei illáta fuérunt: unum negávit, áliud tacéndo consénsit.
+
+℟. Quis dabit cápiti meo aquam, et óculis meis fontem lacrimárum, et plorábo die ac nocte? quia frater propínquus supplantávit me, \* Et omnis amícus fraudulénter incéssit in me. ℣. Fiant viæ eórum ténebræ et lúbricum: et Angelus Dómini pérsequens eos. — Et. Quis.
+
+## Ad Laudes
+
+**Ant. 1** Vide, Dómine, \* afflictiónem meam, quóniam eréctus est inimícus meus.
+
+{RUBRIC: Psalmi de Domin. 2 loco. 53}
+
+**2** In tribulatióne \* invocávi Dóminum, et exaudívit me in latitúdine.
+
+**3** Judicásti, Dómine, \* causam ánimæ meæ, defénsor vitæ meæ, Dómine, Deus meus.

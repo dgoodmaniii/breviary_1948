@@ -19281,4 +19281,22 @@ SUBJECTUM tibi pópulum, quæsumus, Dómine, propitiátio cæléstis amplíficet
 
 *Cap. 4, 5-42*
 
-IN illo témpore: Venit Jesus in civitátem Samaríæ, quæ dícitur Sichar: juxta prædium,
+IN illo témpore: Venit Jesus in civitátem Samaríæ, quæ dícitur Sichar: juxta prædium, quod dedit Jacob Joseph fílio suo. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tr. 15 in Joann., post initium}
+
+JAM incípiunt mystéria. Non enim frustra fatigátur Jesus: non enim frustra fatigátur virtus Dei: non enim frustra fatigátur, per quem fatigáti recreántur: non enim frustra fatigátur, quo deseránte fatigámur, quo præsénte firmámur. Fatigátur tamen Jesus, et fatigátur ab itínere, et sedet, et juxta púteum sedet, et hora sexta fatigátus sedet. Omnia ista innúunt áliquid, indicáre volunt áliquid: inténtos nos fáciunt: ut pulsémus, hortántur. Ipse ergo apériat et nobis et vobis, qui dignátus est ita hortári, ut díceret: Pulsáte, et aperiétur vobis.
+
+℟. Videns Jacob vestiménta Joseph, scidit vestiménta sua cum fletu, et dixit: \* Fera péssima devorávit fílium meum Joseph. ℣. Tulérunt autem fratres ejus túnicam illíus, mitténtes ad patrem: quam cum cognovísset pater, ait. — Fera.
+
+#### Lectio ii
+
+TIBI fatigátus est ab itínere Jesus. Invenímus virtútem Jesum; et invenímus infírmum Jesum: fortem, et infírmum. Fortem, quia in princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum: hoc erat in princípio apud Deum. Vis vidére, quam iste Fílius Dei fortis sit? Omnia per ipsum facta sunt, et sine ipso factum est nihil: et sine labóre facta sunt. Quid ergo illo fórtius, per quem sine labóre facta sunt ómnia? Infírmum vis nosse? Verbum caro factum est, et habitávit in nobis. Fortitúdo Christi te creávit: infírmitas Christi te recreávit. Fortitúdo Christi fecit, ut quod non erat, esset: infírmitas Christi fecit, ut quod erat, non períret. Cóndidit nos fortitúdine sua, quæsívit nos infirmitáte sua.
+
+℟. Joseph dum intráret in terram Ægýpti, linguam quam non nóverat, audívit: manus ejus in labóribus serviérunt: \* Et lingua ejus inter príncipes loquebátur sapiéntiam. ℣. Humiliavérunt in compédibus pedes ejus: ferrum pertránsiit ánimam ejus, donec veníret verbum ejus. — Et.
+
+#### Lectio iii
+
+NUTRIT ergo ipse infírmos, tamquam gallína pullos suos:

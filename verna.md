@@ -34427,4 +34427,26 @@ DOMINE Jesu Christe, qui ad mystérium crucis prædicándum, sanctum Paulum sing
 
 ###### Lectio iv
 
-PETRUS, Verónæ paréntibus Manichæórum hǽresi inféctis natus, ab ipsa pene infántia contra hǽreses pugnávit. Puer annórum septem, cum scholas frequentáret, aliquándo a pátruo hærético interrogátus quid tandem in iis didicísset, christiánæ fídei symbolum se didicísse respóndit; neque ullis umquam patris patrúive blandítiis aut minis a fídei constántia dimovéri pótuit. Adoléscens Bonóniam studiórum causa venit; ubi, a Spíritu Sancto ad sublimióris vitæ
+PETRUS, Verónæ paréntibus Manichæórum hǽresi inféctis natus, ab ipsa pene infántia contra hǽreses pugnávit. Puer annórum septem, cum scholas frequentáret, aliquándo a pátruo hærético interrogátus quid tandem in iis didicísset, christiánæ fídei symbolum se didicísse respóndit; neque ullis umquam patris patrúive blandítiis aut minis a fídei constántia dimovéri pótuit. Adoléscens Bonóniam studiórum causa venit; ubi, a Spíritu Sancto ad sublimióris vitæ formam vocátus, órdinis Prædicatórum institútum suscépit.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+MAGNO virtútum splendóre in religióne elúxit: corpus et ánimum ab omni impuritáte ita custodívit, ut nullíus mortíferi peccáti labe se inquinátum umquam sénserit. Carnem jejúniis et vigíliis macerábat; mentem divínis contemplatiónibus exercébat. In salúte animárum procuránda assídue versabátur; peculiári grátiæ dono hæréticos ácriter confutábat. Tantam in concionándo vim hábuit, ut innumerábilis hóminum multitúdo ad eum audiéndum conflúeret, multíque ad pœniténtiam converteréntur.
+
+℟. In servis suis, allelúja, \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+TANTO fídei ardóre incénsus erat, ut pro ea mortem subíre optáret, eámque a Deo grátiam eníxe precarétur. Itaque hærétici necem, quam is paulo ante concionándo prædíxerat, illi intulérunt. Nam cum sanctæ Inquisitiónis munus géreret, illum Como Mediolánum redeúntem ímpius sicárius semel atque íterum in cápite gládio vulnerávit; jamque pene mórtuus, sýmbolum fídei, quam infans viríli fortitúdine conféssus fúerat, in ipso suprémo spíritu pronuntiávit; iterúmque látera mucróne transverberátus, ad martýrii palmam migrávit in cælum, anno salútis millésimo ducentésimo quinquagésimo secúndo. Quem multis illústrem miráculis Innocéntius quartus anno sequénti sanctórum Mártyrum número adscrípsit.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+PETRUS, Verónæ paréntibus Manichæórum hǽresi inféctis natus, ab ipsa

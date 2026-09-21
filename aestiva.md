@@ -18556,4 +18556,26 @@ SEd colébat Sálomon Astárthen deam Sidoniórum et Moloch idólum Ammonitárum
 
 ##### Lectio iii
 
-IGitur irátus est Dóminus Salomóni, quod avérsa esset mens ejus a Dómino Deo Israël, qui apparúerat ei secúndo et præcéperat de verbo hoc
+IGitur irátus est Dóminus Salomóni, quod avérsa esset mens ejus a Dómino Deo Israël, qui apparúerat ei secúndo et præcéperat de verbo hoc ne sequerétur deos aliénos, et non custodívit quæ mandávit ei Dóminus. Dixit ítaque Dóminus Salomóni: Quia habuísti hoc apud te et non custodísti pactum meum et præcépta mea, quæ mandávi tibi, disrúmpens scindam regnum tuum et dabo illud servo tuo. Verúmtamen in diébus tuis non fáciam, propter David patrem tuum.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 11, 26-34*
+
+JEróboam quoque fílius Nabat Ephrathǽus de Saréda servus Salomónis, cujus mater erat nómine Sarva múlier vídua, levávit manum contra regem. Et hæc est causa rebelliónis advérsus eum, quia Sálomon ædificávit Mello et coæquávit voráginem civitátis David patris sui. Erat autem Jeróboam vir fortis et potens; vidénsque Sálomon adoléscentem bonæ índolis et indústrium, constitúerat eum præféctum super tribúta univérsæ domus Joseph.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+FActum est ígitur in témpore illo, ut Jeróboam egrederétur de Jerúsalem, et invéniret eum Ahías Silonítes prophéta in via opértus pállio novo; erant autem duo tantum in agro. Apprehendénsque Ahías pállium suum novum, quo coopértus erat, scidit in duódecim partes, et ait ad Jeróboam: Tolle tibi decem scissúras; hæc enim dicit Dóminus Deus Israël: Ecce ego scindam regnum de manu Salomónis et dabo tibi decem tribus.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut

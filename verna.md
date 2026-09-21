@@ -41856,3 +41856,41 @@ DOMINE, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum
 Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
 
 Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Si coram homínibus torménta passi sunt, spes electórum est immortális in ætérnum.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Stabunt justi in magna constántia advérsus eos, qui se angustiavérunt, allelúja.
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Absolutio** Exáudi Dómine.
+
+**Benedictio** Benedictióne.
+
+{RUBRIC: De Epístola beáti Pauli Apóstoli ad Romános}
+
+**Lectio i** *Cap. 8, 12-19*
+
+FRATRES: Debitóres sumus non carni, ut secúndum carnem vivámus. Si enim secúndum carnem vixéritis, moriémini: si autem spíritu facta carnis mortificavéritis, vivétis. Quicúmque enim spíritu Dei agúntur, ii sunt fílii Dei. Non enim accepístis spíritum servitútis íterum in timóre, sed accepístis spíritum adoptiónis filiórum, in quo clamámus: Abba (Pater). Ipse enim Spíritus testimónium reddit spirítui nostro, quod sumus fílii Dei. Si autem fílii, et herédes: herédes quidem Dei, cohærédes autem Christi; si tamen compátimur, ut et conglorificémur. Existimo enim quod non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis. Nam exspectátio creatúræ revelatiónem filiórum Dei exspéctat.
+
+{RUBRIC: Pro pluribus Mm. extra T. P.}
+
+℟. Abstérget Deus omnem lácrimam ab óculis Sanctórum: et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor: \* Quóniam prióra transiérunt. ℣. Non esúrient, neque sítient ámplius, neque cadet super illos sol, neque ullus æstus. — Quóniam prióra.
+
+{RUBRIC: Pro uno Mart. extra T. P.}
+
+℟. Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impió-

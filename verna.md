@@ -46308,4 +46308,28 @@ IPSA ergo modo cívitas ædificátur. Præcidúntur de móntibus lápides per ma
 
 ###### Lectio vi
 
-FUNDAMENTUM quando pónitur in terra, désuper ædificántur paríetes; et pondus paríetum ad ima tendit, quia in imo pósitum est fundaméntum. Si autem fundaméntum nostrum in cælo est, ad cælum ædificémur. Córpora ædificavérunt istam structúram, quam vidétis am-
+FUNDAMENTUM quando pónitur in terra, désuper ædificántur paríetes; et pondus paríetum ad ima tendit, quia in imo pósitum est fundaméntum. Si autem fundaméntum nostrum in cælo est, ad cælum ædificémur. Córpora ædificavérunt istam structúram, quam vidétis amplam surrexísse hujus basílicæ; et quia córpora ædificavérunt, fundaméntum in imo posuérunt. Quia vero spiritáliter ædificámur, fundaméntum nostrum in summo pósitum est. Illuc ergo currámus, ibi ædificémur, quia de ipsa Jerúsalem dictum est: Stantes erant pedes nostri in átriis tuis, Jerúsalem.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino: \* Vere locus iste sanctus est, et ego nesciébam. (T. P. Allelúja.) ℣. Cumque evigilásset Jacob de somno, ait. — Vere. Glória Patri. Vere.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 19, 1-10*
+
+IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+De Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 8 in Lucam, in fine}
+
+ET conféstim, inquit, vidit, et sequebátur illum, magníficans Dóminum. Aliter enim non vidéret, nisi sequerétur Christum, nisi Dóminum prædicáret, nisi sæculum prætertíret. Cum divítibus quoque in grátiam revertámur. Nólumus enim offéndere dívites, qui vólumus, si fíeri potest, sanáre omnes; ne in caméli comparatióne præstrícti et in Zachǽo cítius quam opórtuit, derelícti, justæ hábeant commotiónis offénsam.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. (T. P. Allelúja.) ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et.
+
+###### Lectio viii
+
+DISCANT dívites non in facultátibus crimen hærére, sed in iis, qui uti nésciant facultátibus. Nam divítiæ ut impedimenta ímprobis, ita bonis sunt adjuménta virtútis. Dives certe Zachǽus, et eléctus a Christo; sed dimídium bonórum suórum pauperíbus largiéndo, reddéndo étiam in quádruplum, quæ fraude sustúlerat (álterum enim non sat est nec habet grátiam liberálitas, si injúria persevérat; quia non spólia, sed bona quærún-

@@ -51530,3 +51530,63 @@ Orémus.
 DEus, cujus verbo sanctificántur ómnia, bene ✠ dictiónem tuam effúnde super creatúram istam (vel creatúras istas): et præsta; ut, quisquis ea (vel eis) secúndum legem et voluntátem tuam cum gratiárum actióne usus fúerit, per invocatiónem sanctíssimi Nóminis tui, córporis sanitátem et ánimæ tutélam, te auctóre, percípiat. Per Christum Dóminum nostrum. ℟. Amen.
 
 {RUBRIC: Deinde illam (vel illas) Sacerdos aspergit aqua benedicta.}
+
+# Formulæ Brevissimæ
+
+## Formula Baptismi
+
+{RUBRIC: Si non habeátur aqua baptismális, et perículum impéndeat, Sacerdos utátur aqua simplíci, ter vel étiam semel infúndens aquam super caput baptizándi in modum crucis, dicens:}
+
+N. Ego te baptízo in nómine Patris, ✠ et Fílii, ✠ et Spíritus ✠ Sancti.
+
+{RUBRIC: Quodsi dúbitet an vivat adhuc, dicat:}
+
+Si vivis, ego te baptízo in nómine Patris, ✠ et Fílii, ✠ et Spíritus ✠ Sancti.
+
+## Formula Administrandi Viatici
+
+Accipe, frater (vel soror), Viáticum córporis Dómini nostri Jesu Christi, qui te custódiat ab hoste malígno, et perdúcat in vitam ætérnam. Amen.
+
+## Formula Absolutionis Sacramentalis
+
+Ego te absólvo ab ómnibus censúris et peccátis, in nómine Patris, ✠ et Fílii, et Spíritus Sancti. Amen.
+
+## Formula Extremæ Unctionis
+
+Per istam sanctam Unctiónem ✠ indúlgeat tibi Dóminus quidquid deliquísti. Amen.
+
+{RUBRIC: Quodsi dúbitet an vivat adhuc, dicat:}
+
+Si vivis, per istam sanctam Unctiónem ✠ indúlgeat tibi Dóminus quidquid deliquísti. Amen.
+
+## Formula Benedictionis Apostolicæ
+
+### In Articulo Mortis
+
+{RUBRIC: Si mors próxime úrgeat, dicat:}
+
+Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo. In nómine Patris, ✠ et Fílii, et Spíritus Sancti. Amen.
+
+Per sacrosáncta humánæ reparatiónis mystéria, remíttat tibi omnípotens Deus omnes præséntis et futúræ vitæ pœnas, paradísi portas apériat et ad gáudia sempitérna perdúcat. ℟. Amen.
+
+Benedícat te omnípotens Deus Pater, ✠ et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: In casu vero necessitátis súfficit dícere:}
+
+Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo, et benedíco te. In nómine Patris, ✠ et Fílii, et Spíritus Sancti. Amen.
+
+## Formula Absolutionis Generalis
+
+### Impertiendæ Tertiariis Sæcularibus in Confessionali
+
+Auctoritáte a Summis Pontifícibus mihi concéssa, plenáriam ómnium peccatórum tuórum indulgéntiam tibi impértior. In nómine Patris, et Fílii, ✠ et Spíritus Sancti. Amen.
+
+## Formula ad Impertiendam Populo Benedictionem
+
+### Cum Indulgentiæ Plenariæ Favore in Fine Concionum (Missionum Exercitiorum)
+
+{RUBRIC: Hæc benedíctio fit per únicum signum crucis cum Crucifíxo, adhíbita fórmula:}
+
+Benedíctio Dei omnipoténtis, Patris, ✠ et Fílii, et Spíritus Sancti descéndat super vos, et máneat semper. ℟. Amen.
+
+*Decréta authéntica S. R. C. 4265 ad III.*

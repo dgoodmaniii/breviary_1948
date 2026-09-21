@@ -15548,4 +15548,16 @@ ET circumduxérunt arcam Dei Israël. Illis autem circumducéntibus eam, fiébat
 
 ##### Lectio iv
 
-UNicuíque fidélium Christus semetípsum per mystéria commíscet, et quos génuit, per semetípsum enútrit, nec álteri tradit; per hoc tibi rursum persuádens, quod carnem tuam assúmpsit. Ne torpeámus ígitur tanta digni caritáte et honóre putáti. Nonne vidétis, quanta promptitúdine párvuli papíllas cápiunt, et quanto ímpetu lábia ubéribus infígunt? Accedámus cum tanta nos quoque alacritáte ad hanc mensam et ad úbera póculi spiritális: quinímmo cum longe majóri trahámus, tamquam infántes lactén-
+UNicuíque fidélium Christus semetípsum per mystéria commíscet, et quos génuit, per semetípsum enútrit, nec álteri tradit; per hoc tibi rursum persuádens, quod carnem tuam assúmpsit. Ne torpeámus ígitur tanta digni caritáte et honóre putáti. Nonne vidétis, quanta promptitúdine párvuli papíllas cápiunt, et quanto ímpetu lábia ubéribus infígunt? Accedámus cum tanta nos quoque alacritáte ad hanc mensam et ad úbera póculi spiritális: quinímmo cum longe majóri trahámus, tamquam infántes lacténtes, spíritus grátiam: et unus sit nobis dolor hac esca privári. Non sunt humánæ virtútis ópera, hæc quæ proponúntur: qui tunc ipsa fecit in illa cœna, idem ea nunc quoque facit. Nos ministrórum tenémus locum; qui vero sanctíficat ea et immútat, ipse est. Nullus ítaque Judas assístat, nullus avárus; nam tales mensa non súscipit. Si quis est discípulus, adsit; ait enim: Cum discípulis meis fácio Pascha. Hæc est illa mensa, et minus nihil habet. Non enim illam quidem Christus, hanc autem homo pérficit; verum et hanc ipse quoque.
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite.
+
+##### Lectio v
+
+INhumánus accédat nemo, nemo crudélis et immiséricors, nemo prorsus immúndus. Hæc ad communicántes dico, et ad vos, ministrántes. Nam et ad vos sermónem convértere necessárium est, ut multo cum stúdio hæc dona distribuátis. Non parva vobis ímminet últio, si quemquam, illíus culpæ cónscii, hujus mensæ partícipem esse concedátis: sanguis ejus de mánibus vestris exquirétur. Sive quis dux milítiæ sit, sive præféctus, sive princeps diadémate coronátus, indígne autem accédat, próhibe: majórem illo potestátem habes. Proptérea vos Deus hoc insignívit honóre, ut tália discernátis. Hoc vestra dígnitas est, hoc secúritas, hoc omnis coróna; non ut albam et splendéntem túnicam circumeátis indúti. Verum et tu, láice, cum sacerdótem víderis offeréntem, ne ut sacerdótem esse putes hoc faciéntem, sed Christi manum invisibíliter exténsam.
+
+℟. Accépit Jesus cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: \* Hoc fácite in meam commemoratiónem. ℣. Memória memor ero, et tabéscet in me ánima mea. — Hoc.
+
+##### Lectio vi
+
+AUdiámus ígitur, et sacerdótes et súbditi, quali esca facti sumus digni: audiámus et horreámus. Sanctis cárnibus suis nos dedit impléri, semetípsum appósuit immolá-

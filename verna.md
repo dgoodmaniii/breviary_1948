@@ -36322,3 +36322,15 @@ DEUS, qui ad conteréndos Ecclésiæ tuæ hostes, et ad divínum cultum reparán
 ###### Lectio iv
 
 PIUS in óppido Insúbriæ, quod Boschum vocant, natus, sed e Bonónia oriúndus ex nóbili Ghisleriórum família, cum quatuórdecim esset annórum órdinem Prædicatórum ingréssus est. Erat in eo admirábilis patiéntia, profúnda humílitas, summa vitæ austéritas, contínuum oratiónis stúdium, et reguláris observántiæ ac divíni honóris ardentíssimus zelus. Philosophíæ vero ac theologíæ incúmbens, ádeo in iis excélluit, ut illas docéndi munus magna cum laude per multos annos exercúerit. Sacras conciónes plúribus in locis cum ingénti auditórum fructu hábuit. Inquisitóris offícium inviolábili ánimi fortitúdine diu sustínuit; multásque civitátes, non sine vitæ discrímine, ab hǽresi tunc grassánte immúnes servávit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+A PAULO quarto, cui ob exímias virtútes caríssimus erat, ad Nepesínum et Sutrínum episcopátum promótus, et post biénnium inter Románæ Ecclésiæ presbýteros cardináles adscríptus fuit. Tum ad ecclésiam Montis Regális in Subalpínis a Pio quarto translátus, cum plures in eam abúsus irrepsísse cognovísset, totam diœcésim lustrávit; rebúsque compósitis Romam revérsus, gravíssimis expediéndis negótiis applicátus, quod justum erat apostólica libertáte et constántia decernébat. Mórtuo autem Pio, præter ómnium exspectatiónem eléctus Póntifex, nihil in vitæ ratióne, excépto exterióri hábitu, immutávit. Fuit in eo religiónis propagándæ perpétuum stúdium, in ecclesiástica disciplína restituénda indeféssus labor, in exstirpándis erróribus assídua vigilántia, in sublevándis egéntium necessitátibus indefíciens beneficéntia, in Sedis apostólicæ júribus vindicándis robur invíctum.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+SELIMUM Turcárum tyránnum multis elátum victóriis, ingénti comparáta classe, ad Echínadas ínsulas non tam armis quam fusis ad Deum précibus devícit. Quam victóriam ea ipsa hora, qua obténta fuit, Deo revelánte, cognóvit suísque familiáribus indicávit. Dum vero novam in ipsos Turcas expeditiónem molirétur, in gravem morbum íncidit; et, acerbíssimis dolóribus patientíssime tolerátis, ad extréma devéniens, cum sacraménta de more suscepísset, ánimam Deo placidíssime réddidit, anno millésimo quingentésimo septuagésimo secúndo, ætátis suæ sexagésimo octávo, cum sedísset annos sex, menses tres, dies vigínti quátuor. Corpus ejus in basílica sanctæ Maríæ ad Præsépe summa fidélium veneratióne cólitur, multis a Deo ejus

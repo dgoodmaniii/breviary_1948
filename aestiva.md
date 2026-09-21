@@ -15622,4 +15622,22 @@ QUare aggravátis corda vestra, sicut aggravávit Ægýptus et Phárao cor suum?
 
 *Cap. 6, 12-15*
 
-IBant autem in diréctum vaccæ per viam, quæ ducit Béthsames, et itínere uno gradiebántur pergéntes et mugiéntes et non declinábant neque ad déxteram neque ad sinístram; sed et sátrapæ Philísthiim sequebántur usque ad términos Béth-
+IBant autem in diréctum vaccæ per viam, quæ ducit Béthsames, et itínere uno gradiebántur pergéntes et mugiéntes et non declinábant neque ad déxteram neque ad sinístram; sed et sátrapæ Philísthiim sequebántur usque ad términos Béthsames. Porro Bethsamítæ metébant tríticum in valle, et elevántes óculos suos vidérunt arcam et gavísi sunt cum vidíssent. Et plaustrum venit in agrum Jósue Bethsamítæ et stetit ibi. Erat autem ibi lapis magnus, et concidérunt ligna plaustri, vaccásque imposuérunt super ea holocáustum Dómino. Levítæ autem deposuérunt arcam Dei.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória Patri. Et.
+
+#### In II Nocturno
+
+{RUBRIC: Ex Epístola sancti Cypriáni Epíscopi et Mártyris ad Cæcílium}
+
+{RUBRIC: Liber 2, Epístola 3, sub init.}
+
+##### Lectio iv
+
+IN sacerdóte Melchísedech sacrifícii Domínici sacraméntum præfigurátum vidémus, secúndum quod Scriptúra divína testátur, et dicit: Et Melchísedech rex Salem prótulit panem et vinum. Fuit autem sacérdos Dei summi, et benedíxit Abraham. Quod autem Melchísedech typum Christi portáret, declárat in Psalmis Spíritus Sanctus, ex persóna Patris ad Fílium dicens: Ante lucíferum génui te: Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. Qui ordo útique hic est, de sacrifício illo véniens et inde descéndens, quod Melchísedech sacérdos Dei summi fuit, quod panem et vinum óbtulit, quod Abraham benedíxit.
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite.
+
+##### Lectio v
+
+NAM quis magis sacérdos Dei summi, quam Dóminus noster Jesus Christus? qui sacrifícium Deo Patri óbtulit; et óbtulit hoc idem, quod Melchísedech obtúlerat, id est, panem et vinum, suum scílicet corpus et sánguinem. Et circa Abraham benedíctio illa præcédens, ad nostrum pópulum pertinébat. Nam si Abraham Deo crédidit, et deputátum est ei ad justítiam; útique quisquis Deo cre-

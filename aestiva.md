@@ -6668,3 +6668,87 @@ Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc i
 **Absolutio.** A vínculis.
 
 **Bened.** 7 Evangélica léctio. 8 In Festis Dómini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctórum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+### In Officio trium Lectionum
+
+**Absolutio.** A vínculis.
+
+##### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis sine Homilia:
+
+**Bened.** 1 Ille nos benedícat. 2 Divínum. 3 Ad societátem.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+### In III Nocturno
+
+**II**
+
+*In Vigíliis commúnibus, cum ad Laudes dícitur Psalmus 50 Miserére.*
+
+**Ant.** Deus deórum. †
+
+### Psalmus 49, i
+
+DEUS deórum, † Dóminus locútus est: \* ‡ et vocávit terram.
+
+A solis ortu usque ad occásum: \* ex Sion spécies decóris ejus.
+
+Deus maniféste véniet: \* Deus noster et non silébit.
+
+Ignis in conspéctu ejus exardéscet: \* et in circúitu ejus tempéstas válida.
+
+Advocábit cælum desúrsum: \* et terram discérnere pópulum suum.
+
+Congregáte illi sanctos ejus: \* qui órdinant testaméntum ejus super sacrifícia.
+
+Et annuntiábunt cæli justítiam ejus: \* quóniam Deus judex est.
+
+Audi, pópulus meus, et loquar: Israël, et testificábor tibi: \* Deus, Deus tuus ego sum.
+
+Non in sacrifíciis tuis árguam te: \* holocáusta autem tua in conspéctu meo sunt semper.
+
+Non accípiam de domo tua vítulos: \* neque de grégibus tuis hircos.
+
+Quóniam meæ sunt omnes feræ silvárum, \* juménta in móntibus et boves.
+
+Cognóvi ómnia volatília cæli: \* et pulchritúdo agri mecum est.
+
+Si esuríero, non dicam tibi: \* meus est enim orbis terræ, et plenitúdo ejus.
+
+Numquid manducábo carnes taurórum? \* aut sánguinem hircórum potábo?
+
+Immola Deo sacrifícium laudis: \* et redde Altíssimo vota tua.
+
+Et ínvoca me in die tribulatiónis: \* éruam te, et honorificábis me.
+
+**Ant.** Deus deórum, Dóminus locútus est.
+
+**Ant.** Immola Deo.
+
+### Psalmus 49, ii
+
+PECCATORI autem dixit Deus: \* Quare tu enárras justítias meas, et assúmis testaméntum meum per os tuum?
+
+Tu vero odísti disciplínam: \* et projecísti sermónes meos retrórsum:
+
+Si vidébas furem, currébas cum eo: \* et cum adúlteris portiónem tuam ponébas.
+
+Os tuum abundávit malítia: \* et lingua tua concinnábat dolos.
+
+Sedens advérsus fratrem tuum loquebáris, et advérsus fílium matris tuæ ponébas scándalum: \* hæc fecísti, et tácui.
+
+Existimásti, iníque, quod ero tui símilis: \* árguam te, et státuam contra fáciem tuam.
+
+Intellígite hæc, qui oblivíscimini Deum: \* nequándo rápiat, et non sit qui erípiat.
+
+Sacrifícium laudis honorificábit me: \* et illic iter, quo osténdam illi salutáre Dei.
+
+**Ant.** Immola Deo sacrifícium laudis.
+
+**Ant.** Intellígite.

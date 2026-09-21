@@ -35569,4 +35569,28 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-ATHANASIUS, epíscopus Alexandrínus, cathólicæ religiónis propugnátor acérrimus, cum, adhuc diáconus, in Concílio Nicǽno Arii impietátem repressísset, tantum ódium Arianórum suscépit, ut ex eo témpore ei insídias molíri numquam destíterint. In exsílium actus, in Gállia apud Tréviros exsulávit. Incredíbiles dein calamitátes perpéssus, magnam orbis partem peragrávit; ac sæpe e sua
+ATHANASIUS, epíscopus Alexandrínus, cathólicæ religiónis propugnátor acérrimus, cum, adhuc diáconus, in Concílio Nicǽno Arii impietátem repressísset, tantum ódium Arianórum suscépit, ut ex eo témpore ei insídias molíri numquam destíterint. In exsílium actus, in Gállia apud Tréviros exsulávit. Incredíbiles dein calamitátes perpéssus, magnam orbis partem peragrávit; ac sæpe e sua ecclésia ejéctus, sæpe étiam in eámdem, Júlii, Románi Pontíficis, auctoritáte atque decrétis concílii Sardicénsis ac Jerosolymitáni, restitútus est, Ariánis intérea illi semper inféstis. Dénique ex tot tantísque perículis divínitus eréptus, Alexandríæ mórtuus est sub Valénte. Ejus vita et mors magnis nobilitáta est miráculis. Multa pie et ad illustrándam cathólicam fidem præcláre scripsit, sexque et quadragínta annos in summa témporum varietáte Alexandrínam ecclésiam sanctíssime gubernávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+###### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 10, 23-28*
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum persequéntur vos in civitáte ista, fúgite in áliam. Et réliqua.
+
+Homilía sancti Athanásii Epíscopi
+
+{RUBRIC: Apología de fuga sua, ante medium}
+
+IN lege præcéptum erat ut constituerémur civitátes refugiórum, ut, qui quomodocúmque ad necem quæreréntur, servári possent. In consummatióne porro sǽculórum cum advenísset illud ipsum Verbum Patris, quod Móysi ántea locútum fúerat, rursus hoc præcéptum dedit, Cum vos, ínquiens, persecúti fúerint in civitáte ista, fúgite in áliam. Paulóque post súbjicit: Cum vidéritis illam abominatiónem desolatiónis, quæ dicta est per Daniélem prophétam, consisténtem in loco sancto (qui legit, intélligat), tunc qui in Judǽa sunt, fúgiant ad montes; et qui in tecto est, ne descéndat tóllere áliquid de domo sua; et qui in agro est, non revertátur tóllere túnicam suam.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum, allelúja. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+**Lectio viii**
+
+HÆC cum scírent Sancti, ejúsmodi tenuérunt suæ conversatiónis institútum. Quæ enim nunc præcépit Dóminus, éadem quoque ante suum in carne advéntum locútus est in Sanctis; et hoc institútum hómines ad perfectiónem ducit. Nam quod Deus jússerit, id

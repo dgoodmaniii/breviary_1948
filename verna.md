@@ -23810,4 +23810,26 @@ Homilía sancti Gregórii Papæ
 
 LECTIO sancti Evangélii, quam modo, fratres, audístis, valde in superfície histórica est apérta: sed ejus nobis sunt mystéria sub brevitáte requirénda. María Magdaléne, cum adhuc ténebræ essent, venit ad monuméntum. Juxta históriam notátur hora: juxta intelléctum vero mýsticum, requiréntis signátur intelligéntia. María étenim auctórem ómnium, quem in carne víderat mórtuum, quærébat in monuménto; et quia hunc mínime invénit, furátum crédidit. Adhuc ergo erant ténebræ, cum venit ad monuméntum. Cucúrrit cítius, discípulis nuntiávit: sed illi præ céteris cucurrérunt, qui præ céteris amavérunt, vidélicet Petrus et Joánnes.
 
-℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mór-
+℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mór-tuus est peccáto, mórtuus est semel: \* Quod autem vivit, vivit Deo, allelúja, allelúja. ℣. Mórtuus est semel propter delícta nostra, et resurréxit propter justificatiónem nostram. — Quod.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+CURREBANT autem duo simul: sed Joánnes præcucúrrit cítius Petro. Venit prior ad monuméntum, et íngredi non præsúmpsit. Venit ergo postérior Petrus, et intrávit. Quid, fratres, quid cursus signíficat? Numquid hæc tam subtílis Evangelístæ descríptio a mystériis vacáre credénda est? Mínime. Neque enim se Joánnes et præísse, et non intrásse díceret, si in ipsa sui trepidatióne mystérium defuísse credidísset. Quid ergo per Joánnem, nisi synagóga: quid per Petrum, nisi Ecclésia desígnátur?
+
+℟. Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti. Glória Patri. Repléti.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+NEC mirum esse vidétur, quod per juniórem synagóga, per seniórem vero Ecclésia signári perhibétur: quia etsi ad Dei cultum prior est synagóga, quam Ecclésia géntium, ad usum tamen sǽculi prior est multitúdo géntium quam synagóga, Paulo attestánte, qui ait: Quia non prius quod spiritále est, sed quod animále. Per seniórem ergo Petrum significátur Ecclésia géntium: per juniórem vero Joánnem synagóga Judæórum. Currunt ambo simul: quia ab ortus sui témpore usque ad occásum, pari et commúni via, etsi non pari et commúni sensu, gentílitas cum synagóga cucúrrit. Venit synagóga prior ad monuméntum, sed mínime intrávit: quia legis quidem mandáta percépit, prophetías de incarnatióne ac passióne Domínica audívit, sed crédere in mórtuum nóluit.
+
+Te Deum.
+
+**Ad Bened. Ant.** Currébant duo simul, \* et ille álius discípulus præcucúrrit cítius Petro, et venit prior ad monuméntum, allelúja.
+
+#### Oratio
+
+CONCEDE, quǽsumus, omnípotens Deus: ut, qui festa paschália venerándo

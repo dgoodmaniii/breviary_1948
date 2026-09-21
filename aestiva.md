@@ -18246,4 +18246,16 @@ DIxit ítaque Nathan ad Bethsabée, matrem Salomónis: Num audísti quod regnáv
 
 *Epist. 2 tom. 1*
 
-DAvid annos natus septuagínta, bellicósus quondam vir, senectúte frigescénte, non póterat calefíeri. Quǽritur ítaque puélla de univérsis fínibus Israël Abísag Sunamítis, quæ cum rege dormíret, et seníle corpus calefáceret. Quæ est ista Sunamítis, uxor et virgo, tam fervens, ut frígidum calefáceret; tam sancta, ut caléntem ad libídinem non provocáret? Expónat sapientíssimus Sálomon
+DAvid annos natus septuagínta, bellicósus quondam vir, senectúte frigescénte, non póterat calefíeri. Quǽritur ítaque puélla de univérsis fínibus Israël Abísag Sunamítis, quæ cum rege dormíret, et seníle corpus calefáceret. Quæ est ista Sunamítis, uxor et virgo, tam fervens, ut frígidum calefáceret; tam sancta, ut caléntem ad libídinem non provocáret? Expónat sapientíssimus Sálomon patris sui delícias, et pacíficus bellatóris viri narret ampléxus: Pósside sapiéntiam, pósside intelligéntiam. Ne obliviscáris, et ne declináveris a verbis oris mei; neque derelínquas illam, et apprehéndet te; ama, illam et servábit te. Princípium sapiéntiæ, pósside sapiéntiam, et in omni possessióne tua pósside intelligéntiam: circúmda illam, et exaltábit te; honóra illam, et amplexábitur te, ut det cápiti tuo corónam gratiárum. Coróna quoque deliciárum próteget te.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio v
+
+OMnes pene virtútes córporis mutántur in sénibus, et crescénte sola sapiéntia, decréscunt cétera: jejúnia, vigíliæ, chaméuniæ, id est, super paviméntum dormitiónes, huc illúcque discúrsus, peregrinórum suscéptio, defénsio páuperum, instántia oratiónum et perseverántia, visitátio languéntium, labor mánuum unde præbeántur eleemósynæ. Et ne sermónem lóngius prótraham, cuncta quæ per corpus exercéntur, fracto córpore, minóra fiunt.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+NEC hoc dico, quod in juvénibus et adhuc solidióris ætátis, his dumtáxat, qui labóre et ardentíssimo stúdio, vitæ quoque sanctimónia et oratiónis ad Dóminum Jesum frequéntia sciéntiam consecúti sunt, frígeat sapiéntia, quæ in plerísque sénibus ætáte marcéscit: sed quod adolescéntia multa córporis bella sustíneat, et inter incentíva vitiórum et carnis titillatiónes, quasi ignis in lignis virídibus suffocétur, ut suum non possit explicáre fulgórem. Senéctus vero rursus eórum, qui adolescéntiam suam honéstis ártibus instruxérunt, et in lege Dómini meditáti sunt die ac nocte, ætáte fit dóctior, usu trítior, procéssu tém-

@@ -13427,3 +13427,55 @@ Beátum dixérunt pópulum, cui hæc sunt: \* beátus pópulus, cujus Dóminus D
 **Ant.** Beátus pópulus, cujus Dóminus Deus ejus.
 
 **Ant.** Magnus Dóminus.
+
+### Psalmus 144, i
+
+EXaltábo te, Deus meus, rex: \* et benedícam nómini tuo in sæculum, et in sæculum sæculi.
+
+Per síngulos dies benedícam tibi: \* et laudábo nomen tuum in sæculum, et in sæculum sæculi.
+
+Magnus Dóminus, et laudábilis nimis: \* et magnitúdinis ejus non est finis.
+
+Generátio et generátio laudábit ópera tua: \* et poténtiam tuam pronuntiábunt.
+
+Magnificéntiam glóriæ sanctitátis tuæ loquéntur: \* et mirabília tua narrábunt.
+
+Et virtútem terribílium tuórum dicent: \* et magnitúdinem tuam narrábunt.
+
+Memóriam abundántiæ suavitátis tuæ eructábunt: \* et justítia tua exsultábunt.
+
+**Ant.** Magnus Dóminus, et laudábilis nimis: et magnitúdinis ejus non est finis.
+
+**Ant.** Suávis Dóminus.
+
+### Psalmus 144, ii
+
+MIserátor, et miséricors Dóminus: \* pátiens, et multum miséricors.
+
+Suávis Dóminus univérsis: \* et miseratiónes ejus super ómnia ópera ejus.
+
+Confiteántur tibi, Dómine, ómnia ópera tua: \* et sancti tui benedícant tibi.
+
+Glóriam regni tui dicent: \* et poténtiam tuam loquéntur:
+
+Ut notam fáciant fíliis hóminum poténtiam tuam: \* et glóriam magnificéntiæ regni tui.
+
+Regnum tuum regnum ómnium sæculórum: \* et dominátio tua in omni generatióne et generatiónem.
+
+**Ant.** Suávis Dóminus univérsis: et miseratiónes ejus super ómnia ópera ejus.
+
+**Ant.** Fidélis Dóminus. †
+
+### Psalmus 144, iii
+
+FIdélis Dóminus † in ómnibus verbis suis: \* et sanctus in ómnibus opéribus suis.
+
+Allevat Dóminus omnes qui córruunt: \* et érigit omnes elísos.
+
+Óculi ómnium in te sperant, Dómine: \* et tu das escam illórum in témpore opportúno.
+
+Áperis tu manum tuam: \* et imples omne ánimal benedictióne.
+
+Justus Dóminus in ómnibus viis suis: \* et sanctus in ómnibus opéribus suis.
+
+Prope est Dóminus ómnibus invocántibus

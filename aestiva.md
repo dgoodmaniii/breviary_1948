@@ -19356,4 +19356,26 @@ DEcem et octo annórum erat Jóachin, cum regnáre cœpísset, et tribus ménsib
 
 ##### Lectio ii
 
-EGressúsque est Jóachin rex Juda ad regem Babylónis ipse et mater ejus et servi ejus et príncipes ejus et eunúchi ejus, et suscépit eum rex Babylónis anno octávo regni sui. Et prótulit inde omnes
+EGressúsque est Jóachin rex Juda ad regem Babylónis ipse et mater ejus et servi ejus et príncipes ejus et eunúchi ejus, et suscépit eum rex Babylónis anno octávo regni sui. Et prótulit inde omnes thesáuros domus Dómini et thesáuros domus régiæ et cóncidit univérsa vasa áurea, quæ fécerat Sálomon rex Israël in templo Dómini juxta verbum Dómini, et tránstulit omnem Jerúsalem et univérsos príncipes et omnes fortes exércitus decem míllia in captivitátem, et omnem artíficem et clusórem; nihílque relíctum est, excéptis paupéribus pópuli terræ.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+TRánstulit quoque Jóachin in Babylónem et matrem regis et uxóres regis et eunúchos ejus, et júdices terræ duxit in captivitátem de Jerúsalem in Babylónem et omnes viros robústos septem míllia et artífices et clusóres mille, omnes viros fortes et bellatóres; duxítque eos rex Babylónis captívos in Babylónem, et constítuit Matthaníam pátruum ejus pro eo imposuítque nomen ei Sedecíam.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 24, 18-20; 25, 1-13*
+
+VIgésimum et primum annum ætátis habébat Sedecías, cum regnáre cœpísset, et úndecim annis regnávit in Jerúsalem. Nomen matris ejus erat Amítal fília Jeremíæ de Lobna. Et fecit malum coram Dómino, juxta ómnia quæ fécerat Jóakim; irascebátur enim Dóminus contra Jerúsalem et contra Judam, donec projíceret eos a fácie sua; recessítque Sedecías a rege Babylónis. Factum est autem anno nono regni ejus, mense décimo, décima die mensis, venit Nabuchodónosor rex Babylónis ipse et omnis exércitus ejus in Jerúsalem, et circumdedérunt eam et exstruxérunt in circúitu ejus

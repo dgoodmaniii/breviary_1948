@@ -45821,4 +45821,46 @@ Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
 
 ###### Psalmus 47
 
-MAGNUS Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sancto ejus.
+MAGNUS Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sancto ejus. Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
+
+Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.
+
+Quóniam ecce reges terræ congregáti sunt: \* convenérunt in unum.
+
+Ipsi vidéntes sic admiráti sunt, conturbáti sunt, commóti sunt: \* tremor apprehéndit eos.
+
+Ibi dolóres ut parturiéntis: \* in spíritu veheménti cónteres naves Tharsis.
+
+Sicut audívimus, sic vídimus in civitáte Dómini virtútum, in civitáte Dei nostri: \* Deus fundávit eam in ætérnum.
+
+Suscépimus, Deus, misericórdiam tuam, \* in médio templi tui.
+
+Secúndum nomen tuum, Deus, sic et laus tua in fines terræ: \* justítia plena est déxtera tua.
+
+Lætétur mons Sion, et exsúltent fíliæ Judæ \* propter judícia tua, Dómine.
+
+Circúmdate Sion, et complectímini eam: \* narráte in túrribus ejus.
+
+Pónite corda vestra in virtúte ejus: \* et distribúite domos ejus, ut enarrétis in progénie áltera.
+
+Quóniam hic est Deus, Deus noster in ætérnum, et in sæculum sæculi: \* ipse reget nos in sæcula.
+
+**Ant.** Ædificávit Móyses altáre Dómino Deo. (T. P. Allelúja.)
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Tóllite portas, príncipes, vestras, et elevámini, portæ æternáles, allelúja.
+
+℣. Domum tuam, Dómine, decet sanctitúdo. (T. P. Allelúja.) ℟. In longitúdinem diérum. (T. P. Allelúja.)
+
+**Absolutio.** Exáudi, Dómine.
+
+**Benedictio.** Benedictióne.
+
+{RUBRIC: De libro secúndo Paralipómenon}
+
+###### Lectio i
+
+*Cap. 7, 1-16*
+
+CUM complésset Sálomon fundens preces, ignis descéndit de cælo, et devorávit holocáusta et víctimas: et majéstas Dómini implévit domum. Nec póterant sacerdótes íngredi templum Dómini, eo quod implésset majéstas Dómini templum Dómini. Sed et omnes fílii Israël vidébant descendéntem ignem, et glóriam Dómini super domum: et corruéntes proni in terram super paviméntum stratum lápide, adoravérunt et laudavérunt Dóminum: Quóniam bonus, quóniam in sæculum misericórdia ejus. Rex autem et omnis pópulus immolábant víctimas coram Dómino. Mactávit ígitur rex Sálo-

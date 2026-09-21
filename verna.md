@@ -38318,4 +38318,20 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-PHILIPPUS Nérius, piis honestísque paréntibus Floréntiæ natus, ampla pátrui hereditáte di-
+PHILIPPUS Nérius, piis honestísque paréntibus Floréntiæ natus, ampla pátrui hereditáte dimíssa, Romam se cóntulit, ubi, philosophía ac sacris litteris erudítus, totum se Christo dicávit. Sacérdos ex obediéntia factus, in animárum salúte procuránda totus fuit, et in confessiónibus audiéndis ad extrémum usque diem persevérans, innúmeros pene fílios Christo péperit; quos verbi Dei quotidiáno pábulo, sacramentórum frequéntia, oratiónis assiduitáte, alíisque piis exercitatiónibus enutríri cúpiens, Oratórii congregatiónem institúit. Caritáte Dei vulnerátum, tanto cor ejus æstuábat ardóre, ut, cum intra fines suos continéri non posset, sinum, confráctis atque elátis duábus cóstulis, mirabíliter Dóminus ampliáverit. Prophétiæ dono fuit illústris, et in animórum sénsibus penetrándis mirífice enítuit. Virginitátem perpétuo illibátam servávit; idque assecútus est, ut eos, qui puritátem cólerent, ex odóre, qui vero secus, ex fœtóre dignósceret. Anno salútis millésimo quingentésimo nonagésimo quinto, octogenárius obdormívit in Dómino.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homília in Evangélium Sint lumbi vestri, de Communi Confessóris non Pontíficis 1 loco. [116]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensionis ix Lectio de Homilia Feriæ, alias}
+
+{RUBRIC: Pro S. Eleutherio Papa et Martyre}
+
+###### Lectio ix
+
+ELEUTHERIUS, Nicópoli in Grǽcia natus, Anicéti Pontíficis diáconus, Cómmodo imperatóre, præfuit Ecclésiæ. Huic, inítio pontificátus, súpplices lítteræ venérunt a Lúcio Britannórum rege, ut se ac suos in Christianórum númerum recíperet. Quam ob rem Fugátium et Damiánum, doctos et pios viros, misit in Británniam, per quos rex et réliqui fidem suscíperent. Hoc Pontífice, Irenǽus Polycárpi discípulus, Romam véniens, ab eo benígne accéptus est. Quo témpore summa pace et quiéte fruebátur Ecclésia Dei; ac per totum orbem terrárum, máxime Romæ fides propagabátur. Vixit Eleuthérius in pontificátu annos quíndecim, dies vigínti tres. Fecit ordinatiónes tres mense Decémbri, quibus creávit presbýteros duódecim, diáconos octo, epíscopos per divérsa loca quíndecim: sepultúsque est in Vaticáno prope corpus sancti Petri.
+
+{RUBRIC: Te Deum laudámus.}

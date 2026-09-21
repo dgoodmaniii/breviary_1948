@@ -17932,4 +17932,16 @@ CUmque compléti fúerint dies tui, et dormíeris cum pátribus tuis, suscitábo
 
 FActum est autem verténte anno, eo témpore quo solent reges ad bella procédere, misit David Joab et servos suos cum eo et univérsum Israël, et vastavérunt fílios Ammon et obsedérunt Rabba; David autem remánsit in Jerúsalem. Dum hæc agerántur, áccidit ut súrgeret David de strato suo post merídiem et deambuláret in solário domus régiæ; vidítque mulíerem se lavántem ex advérso super solárium suum; erat autem múlier pulchra valde. Misit ergo rex, et requisívit quæ esset múlier; nuntiatúmque est ei, quod ipsa esset Bethsabée fília Elíam, uxor Uríæ Hethǽi. Missis ítaque David núntiis, tulit eam.
 
-℟. Peccávi super númerum arénæ maris, et multi-
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+ET revérsa est in domum suam, concépto fœtu. Mitténsque nuntiávit David et ait: Concépi. Misit autem David ad Joab dicens: Mitte ad me Uríam Hethǽum. Misítque Joab Uríam ad David. Et venit Urías ad David. Quæsivítque David quam recte ágeret Joab et pópulus, et quómodo administrarétur bellum. Et dixit David ad Uríam: Vade in domum tuam et lava pedes tuos. Et egréssus est Urías de domo regis, secutúsque est eum cibus régius. Dormívit autem Urías ante portam domus régiæ cum áliis servis dómini sui, et non descéndit ad domum suam. Nuntiatúmque est David a dicéntibus: Non ivit Urías in domum suam. Et ait David ad Uríam: Numquid non de via venísti? quare non descendísti in domum tuam? Et ait Urías ad David: Arca Dei et Israël et Juda hábitant in papiliónibus, et dóminus meus Joab et servi dómini mei super fáciem terræ manent; et ego ingrédiar domum meam, ut cómedam et bibam et dórmiam cum uxóre mea? Per salútem tuam et per salútem ánimæ tuæ non fáciam rem hanc.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+AIT ergo David ad Uríam: Mane hic étiam hódie, et cras dimíttam te. Mansit Urías in Jerúsalem in die illa et áltera. Et vocávit eum David ut coméderet coram se et bíberet et inebriávit eum: qui egréssus véspere dormívit in strato suo cum servis dómini sui et in domum suam non descéndit. Factum est ergo mane, et scripsit David epístolam ad Joab misítque per manum Uríæ scribens in epístola: Pónite Uríam ex

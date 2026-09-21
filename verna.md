@@ -38859,3 +38859,23 @@ DEUS, qui beátum Francíscum, novi órdinis institutórem, orándi stúdio et p
 ###### Oratio
 
 DEUS, qui multitúdinem populórum, beáti Bonifátii Mártyris tui atque Pontíficis zelo, ad agnitiónem tui nóminis vocáre dignátus es: concéde propítius; ut, cujus solémnia cólimus, étiam patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui beátum, ut supra. 1024
+
+##### In II Nocturno
+
+###### Lectio iv
+
+BONIFATIUS, ántea Winfrídus appellátus, apud Anglos natus est exeúnte século séptimo, et ab ipsa infántia mundum aversátus, vitam monásticam in votis hábuit. Cum ejus pater ánimum séculi illécebris permutáre frustra tentásset, monastérium ingréditur, et sub beáti Wolphárdi discíplina ómnium virtútum ac scientiárum génere imbúitur. Annum agens trigésimum sacerdótio insignítur, ac verbi divíni prædicátor assíduus, magno animárum lucro hoc in múnere versátur. Áttamen, regnum Christi adaugére desíderans, contínuo flebat ingéntem multitúdinem barbarórum, qui ignorántiæ ténebris immérsi dæmóni famulabántur. Qui quidem animárum zelus cum in dies inexstinguíbili ardóre accrésceret, divíno númine per lácrimas et oratiónes exploráto, facultátem a monastérii præpósito obtínuit ad Germánicas oras proficiscéndi.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+EX Anglia duóbus cum sóciis navem solvens, Dorestádium in Frísiæ óppidum venit. Cum autem bellum gravíssimum inter Frísonum regem Radbódum et Cárolum Martéllium exarsísset, sine fructu Evangélium prædicávit. Quaprópter in Angliam revérsus, ad suum redívit monastérium, cui invítus præfícitur. Post elápsum biénnium, ex consénsu epíscopi Vintoniénsis, munus abdicávit, et Romam proféctus est, ut apostólica auctoritáte ad Gentílium conversiónem delegarétur. Cum ad Urbem pervenísset, a Gregório secúndo benígne excípitur, pro Winfrído Bonifátius a Pontífice nominátur. In Germániam diréctus, Thuríngiæ Saxoniæque pópulis Christum annuntiávit. Cum intérea

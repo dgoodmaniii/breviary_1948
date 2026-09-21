@@ -21992,4 +21992,40 @@ Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
 
 #### Lectio ii
 
-{RUBRIC: Lamed.} Mátribus suis dixérunt: Ubi est tríticum et vinum? cum defí-
+{RUBRIC: Lamed.} Mátribus suis dixérunt: Ubi est tríticum et vinum? cum defícerent quasi vulneráti in platéis civitátis: cum exhalárent ánimas suas in sinu matrum suárum.
+
+{RUBRIC: Mem.} Cui comparábo te? vel cui assimilábo te, fília Jerúsalem? cui exæquábo te, et consolábor te, virgo fília Sion? Magna est enim velut mare contrítio tua: quis medébitur tui?
+
+{RUBRIC: Nun.} Prophétæ tui vidérunt tibi falsa et stulta, nec aperiébant iniquitátem tuam, ut te ad pœniténtiam provocárent: vidérunt autem tibi assúmptiónes falsas, et ejectiónes.
+
+{RUBRIC: Samech.} Plausérunt super te mánibus omnes transeúntes per viam: sibilavérunt, et movérunt caput suum super fíliam Jerúsalem: Hǽccine est urbs, dicéntes, perfécti decóris, gáudium univérsæ terræ?
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Velum templi scissum est, \* Et omnis terra trémuit: latro de cruce clamábat, dicens: Meménto mei, Dómine, dum véneris in regnum tuum. ℣. Petræ scissæ sunt, et monuménta apérta sunt, et multa córpora sanctórum, qui dormíerant, surrexérunt. — Et.
+
+#### Lectio iii
+
+*Cap. 3, 1-9*
+
+{RUBRIC: Aleph.} Ego vir videns paupertátem meam in virga indignatiónis ejus.
+
+{RUBRIC: Aleph.} Me minávit, et addúxit in ténebras, et non in lucem.
+
+{RUBRIC: Aleph.} Tantum in me vertit, et convértit manum suam tota die.
+
+{RUBRIC: Beth.} Vetústam fecit pellem meam, et carnem meam, contrívit ossa mea.
+
+{RUBRIC: Beth.} Ædificávit in gyro meo, et circúmdedit me felle et labóre.
+
+{RUBRIC: Beth.} In tenebrósis collocávit me, quasi mórtuos sempitérnos.
+
+{RUBRIC: Ghimel.} Circumædificávit advérsum me, ut non egrédiar: aggravávit cómpedem meum.
+
+{RUBRIC: Ghimel.} Sed et, cum clamávero et rogávero, exclúsit oratiónem meam.
+
+{RUBRIC: Ghimel.} Conclúsit vias meas lapídibus quadris, sémitas meas subvértit.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Vínea mea elécta, ego te plantávi: \* Quómodo convérsa es in amaritúdinem, ut me crucifígeres et Barábbam dimítteres? ℣. Sepívi te, et lápides elégi ex te, et ædificávi turrim. — Quómodo. Vínea.

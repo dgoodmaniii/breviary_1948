@@ -29402,3 +29402,72 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti Valentíni Mártyris tui na
 **Ad Laudes Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
 
 ℣. Justus ut palma.
+
+---
+
+### Die 15 Februarii
+
+#### Ss. Faustini et Jovitæ
+
+{RUBRIC: Martyrum}
+
+{RUBRIC: Commemoratio}
+
+**In Vesp. Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad præmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+*C 3*
+
+DEUS, qui nos ánnua sanctórum Mártyrum tuórum Faustíni et Jovítæ solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+**Ad Laudes Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+---
+
+### Die 18 Februarii
+
+#### S. Simeonis
+
+{RUBRIC: Episcopi et Martyris}
+
+{RUBRIC: Commemoratio}
+
+**In Vesp. Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+*C 1*
+
+INFIRMITATEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti Simeónis Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+**Ad Laudes Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+---
+
+### Die 22 Februarii
+
+#### In Cathedra S. Petri Ap. Antiochiæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia ut in Communi Conf. Pont. [84], præter ea quæ hic habentur propria.}
+
+##### In I Vesperis
+
+**Capit.** *Eccli. 44, 16-17*
+
+ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+###### Hymnus
+
+QUODCUMQUE in orbe néxibus revínxeris,
+Erit revínctum, Petre, in arce síderum:

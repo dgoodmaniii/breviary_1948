@@ -27151,4 +27151,28 @@ NOTANDUM quoque est, quod Elías in curru légitur ascendísse: ut vidélicet ap
 
 #### Lectio ix
 
-SICUT autem Joseph a frátribus vénditus venditiónem Redemptóris nostri figurávit: sic Henoch translátus, atque ad cælum aéreum Elías sublevátus, ascensiónem Domínicam utérque designávit. Ascensiónis ergo suæ Dóminus prænúntios et testes hábuit, unum ante legem, álium sub lege: ut quandóque veníret ipse, qui veráciter cælos penetráre potuísset. Unde et ipse ordo in eórum quoque utrorúmque sublevatióne per quǽdam increménta distínguitur. Nam Henoch translátus, Elías vero ad
+SICUT autem Joseph a frátribus vénditus venditiónem Redemptóris nostri figurávit: sic Henoch translátus, atque ad cælum aéreum Elías sublevátus, ascensiónem Domínicam utérque designávit. Ascensiónis ergo suæ Dóminus prænúntios et testes hábuit, unum ante legem, álium sub lege: ut quandóque veníret ipse, qui veráciter cælos penetráre potuísset. Unde et ipse ordo in eórum quoque utrorúmque sublevatióne per quǽdam increménta distínguitur. Nam Henoch translátus, Elías vero ad cælum subvéctus esse memorátur: ut veníret póstmodum, qui nec translátus nec subvéctus, cælum æthéreum sua virtúte penetráret.
+
+Te Deum laudámus.
+
+---
+
+## Feria III infra Octavam Ascensionis
+
+{RUBRIC: Semiduplex 601}
+
+#### In I Nocturno
+
+De Epístola prima beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 4, 1-21*
+
+CARISSIMI, nolíte omni spirítui crédere, sed probáte spíritus si ex Deo sint; quóniam multi pseudoprophétæ exiérunt in mundum. In hoc cognóscitur spíritus Dei: omnis spíritus qui confitétur Jesum Christum in carne venísse, ex Deo est: et omnis spíritus qui solvit Jesum, ex Deo non est, et hic est antichrístus, de quo audístis quóniam venit, et nunc jam in mundo est. Vos ex Deo estis, filíoli, et vicístis eum, quóniam major est qui in vobis est, quam qui in mundo. Ipsi de mundo sunt: ídeo de mundo loquúntur, et mundus eos audit: nos ex Deo sumus. Qui novit Deum, audit nos; qui non est ex Deo, non audit nos: in hoc cognóscimus spíritum veritátis, et spíritum erróris.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+CARISSIMI, diligámus nos ínvicem, quia cáritas ex Deo est; et omnis, qui díligit, ex Deo natus est, et cognóscit Deum. Qui non díligit, non novit Deum: quóniam Deus cáritas est. In hoc appáruit cáritas Dei in nobis, quóniam Fílium suum unigénitum misit Deus in mundum, ut vivámus per eum. In hoc est cáritas: non quasi nos dilexérimus Deum, sed quóniam ipse prior diléxit nos, et misit Fílium suum propitiatiónem pro peccátis nostris. Caríssimi, si sic Deus diléxit nos: et nos debémus altérutrum dilígere. Deum nemo vidit umquam. Si diligámus ínvicem, Deus in nobis manet, et cáritas ejus in nobis perfécta est.

@@ -15453,3 +15453,51 @@ SAncti nóminis tui, Dómine, timórem páriter et amórem fac nos habére perp�
 **Ant.** Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum, allelúja.
 
 ℣. Pósuit fines tuos pacem, allelúja. ℟. Et ádipe fruménti sátiat te, allelúja.
+
+### Oratio
+
+DEus, qui nobis sub Sacraménto mirábili passiónis tuæ memóriam reliquísti: tríbue, quæsumus, ita nos córporis et sánguinis tui sacra mystéria venerári; ut redemptiónis tuæ fructum in nobis júgiter sentiámus: Qui vivis.
+
+### Ad Primam
+
+**Ant.** Sapiéntia \* ædificávit sibi domum, míscuit vinum et pósuit mensam, allelúja.
+
+### Ad Tertiam
+
+**Capitulum** Caríssimi, ut supra. 324
+
+℟. br. Panem cæli dedit eis, \* Allelúja, allelúja. Panem. ℣. Panem Angelórum manducávit homo. Allelúja, allelúja. Glória Patri. Panem cæli. ℣. Cibávit illos ex ádipe fruménti, allelúja. ℟. Et de petra, melle saturávit eos, allelúja.
+
+**Oratio** Sancti. 324.
+
+### Ad Sextam
+
+**Capit.** *1 Joann. 3, 16*
+
+IN hoc cognóvimus caritátem Dei: quóniam ille ánimam suam pro nobis pósuit, et nos debémus pro frátribus ánimas pónere.
+
+℟. br. Cibávit illos ex ádipe fruménti, \* Allelúja, allelúja. Cibávit. ℣. Et de petra, melle saturávit eos. Allelúja, allelúja. Glória Patri. Cibávit. ℣. Edúcas panem de terra, allelúja. ℟. Et vinum lætíficet cor hóminis, allelúja.
+
+### Ad Nonam
+
+**Capit.** *1 Joann. 3, 18*
+
+FIlíoli mei, non diligámus verbo neque lingua, sed ópere et veritáte.
+
+℟. br. Edúcas panem de terra, \* Allelúja, allelúja. Edúcas. ℣. Et vinum lætíficet cor hóminis. Allelúja, allelúja. Glória Patri. Edúcas. ℣. Pósuit fines tuos pacem, allelúja. ℟. Et ádipe fruménti sátiat te, allelúja.
+
+### In II Vesperis
+
+{RUBRIC: Antíphonæ et Psalmi ut supra. 294}
+
+**Capitulum** Caríssimi, ut supra. 324
+
+**Hymnus** Pange, lingua, ut supra. 296
+
+℣. Cibávit illos ex ádipe fruménti, allelúja. ℟. Et de petra, melle saturávit eos, allelúja.
+
+**Ad Magnif. Ant.** Exi cito \* in platéas et vicos civitátis: et páuperes ac débiles, cæcos et claudos compélle intráre, ut impleátur domus mea, allelúja.
+
+{RUBRIC: Et fit Commemoratio sequéntis diéi infra Octávam:}
+
+**Ant.** O quam suávis est, Dómine, spíritus tuus,

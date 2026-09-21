@@ -35074,4 +35074,16 @@ Sermo sancti Bernárdi Abbátis
 
 #### Lectio iv
 
-DESPONSATA est María Joseph, vel pótius (sicut ponit Evangelísta) viro, cui nomen
+DESPONSATA est María Joseph, vel pótius (sicut ponit Evangelísta) viro, cui nomen erat Joseph. Virum nóminat, non quia marítus, sed quod homo virtútis erat; vel pótius quia juxta álium Evangelístam non vir simplíciter, sed vir ejus dictus est, mérito appellátur quod necessário putátur. Débuit ergo vir ejus appellári, quia necésse fuit et putári; sicut et pater Salvatóris non quidem esse, sed dici méruit, ut putarétur esse, dicénte hoc ipso Evangelísta: Et ipse Jesus erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph.
+
+℟. Dedísti mihi protectiónem salútis tuæ et déxtera tua suscépit me: \* Protéctor meus et cornu salútis meæ et susceptor meus, allelúja. ℣. Ego protéctor tuus sum et merces tua magna nimis. — Protéctor.
+
+#### Lectio v
+
+NON est dúbium quin bonus et fidélis homo fúerit iste Joseph, cui Mater desponsáta est Salvatóris. Fidélis, inquam, servus et prudens, quem constítuit Dóminus suæ Matris solátium, suæ carnis nutrícium, solum dénique in terris magni consílii coadjutórem fidelíssimum. Huc accédit, quod dícitur fuísse de domo David. Vere enim de domo David, vere de régia stirpe descéndit vir iste Joseph, nóbilis génere, mente nobílior. Plane fílius David, non degénerans a patre suo David; prorsus, inquam, fílius David, non tantum carne, sed fide, sed sanctitáte, sed devotióne, quem tamquam álterum David Dóminus invénit secúndum cor suum; cui tuto commítteret sacratíssimum atque secretíssimum sui cordis arcánum; cui, tamquam álteri David, incérta et occúlta sapiéntiæ suæ manifestávit, et dedit illi non ignárum esse mystérii, quod nemo príncipum hujus sǽculi agnóvit.
+
+℟. Státuet fílios suos sub tégmine illíus et sub ramis ejus morábitur; protegétur sub tégmine illíus a fervóre: \* Et in glória ejus requiéscet, allelúja. ℣. Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra. — Et.
+
+#### Lectio vi
+
+CUI dénique datum est quod multi reges et prophétæ, cum vellent vidére, non vidérunt, audíre et non audiérunt; non solum vidére et audíre, sed étiam portáre, dedúcere, amplécti, deosculári, et nutríre et custodíre. Non tantum autem Joseph, sed

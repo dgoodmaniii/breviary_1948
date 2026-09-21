@@ -15676,4 +15676,30 @@ QUantum autem pértinet ad illam mortem, de qua terret Dóminus, qua mórtui sun
 
 ##### Lectio ix
 
-QUam multi de altári accípiunt, et moriúntur, et accipiéndo moriúntur! Unde dicit Apóstolus: Judícium sibi mandúcat et bibit. Nonne buccélla Domínica venénum fuit Judæ? Et tamen accépit. Et cum accépit, in eum inimícus intrávit; non quia malum accépit, sed quia bonum male malus accépit. Vidéte ergo, fratres, panem cæléstem spiritáliter manducáte, innocéntiam ad altáre apportáte. Peccáta, etsi sunt quotidiána, vel non sint mortífera;
+QUam multi de altári accípiunt, et moriúntur, et accipiéndo moriúntur! Unde dicit Apóstolus: Judícium sibi mandúcat et bibit. Nonne buccélla Domínica venénum fuit Judæ? Et tamen accépit. Et cum accépit, in eum inimícus intrávit; non quia malum accépit, sed quia bonum male malus accépit. Vidéte ergo, fratres, panem cæléstem spiritáliter manducáte, innocéntiam ad altáre apportáte. Peccáta, etsi sunt quotidiána, vel non sint mortífera; ántequam ad altáre accedátis, atténdite quod dicátis: Dimítte nobis débita nostra, sicut et nos dimíttimus debitóribus nostris. Si dimíttis, dimittétur tibi: secúrus accéde, panis est, non venénum.
+
+**Te Deum laudámus.** [7]
+
+## Feria IV infra Octavam Ssmi Corporis Christi
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 6, 19-21*
+
+PErcússit autem de viris Bethsamítibus, eo quod vidíssent arcam Dómini; et percússit de pópulo septuagínta viros et quinquagínta míllia plebis. Luxítque pópulus, eo quod Dóminus percussísset plebem plaga magna. Et dixérunt viri Bethsamítæ: Quis póterit stare in conspéctu Dómini Dei sancti hujus? et ad quem ascéndet a nobis? Miserúntque núntios ad habitatóres Cariathíarim, dicéntes: Reduxérunt Philísthiim arcam Dómini: descéndite et redúcite eam ad vos. Venérunt ergo viri Cariathíarim et reduxérunt arcam Dómini et intulérunt eam in domum Abínadab in Gábaa; Eleázarum autem fílium ejus sanctificavérunt, ut custodíret arcam Dómini.
+
+℟. Immolábit hædum multitúdo filiórum Israël ad vésperam Paschæ: \* Et edent carnes et ázymos panes. ℣. Pascha nostrum immolátus est Christus: \* ítaque epulémur in ázymis sinceritátis et veritátis. — Et edent.
+
+##### Lectio ii
+
+*Cap. 7, 1-8*
+
+ET factum est, ex qua die mansit arca Dómini in Cariathíarim, multiplicáti sunt dies (erat quippe jam annus vigésimus), et requiévit omnis domus Israël post Dóminum. Ait autem Sámuel ad univérsam domum Israël dicens: Si in toto corde vestro revertímini ad Dóminum, auférte deos aliénos de médio vestri Báalim et Astaroth et præparáte corda vestra Dómino et servíte ei soli, et éruet vos de manu Philísthiim. Abstulérunt ergo fílii Israël Báalim et Astaroth et serviérunt Dómino soli.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de

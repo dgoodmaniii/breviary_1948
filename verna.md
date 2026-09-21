@@ -26554,3 +26554,65 @@ Te Deum laudámus.
 **1** Viri Galilǽi, \* quid aspícitis in cælum? Hic Jesus, qui assúmptus est a vobis in cælum, sic véniet, allelúja.
 
 {RUBRIC: Psalmi de Domin. 1 loco. 72}
+
+**2** Cumque intueréntur \* in cælum eúntem illum, dixérunt, allelúja.
+
+**3** Elevátis mánibus, \* benedíxit eis, et ferebátur in cælum, allelúja.
+
+**4** Exaltáte Regem regum, \* et hymnum dícite Deo, allelúja.
+
+**5** Vidéntibus illis, \* elevátus est, et nubes suscépit eum in cælo, allelúja.
+
+**Capitulum** *Act. 5, 1-2*
+
+PRIMUM quidem sermónem feci de ómnibus, o Theóphile, quæ cœpit Jesus fácere et docére usque in diem, qua præcípiens Apóstolis per Spíritum Sanctum, quos elégit, assúmptus est.
+
+#### Hymnus
+
+SALUTIS humánæ Sator,
+Jesu, volúptas córdium,
+Orbis redémpti Cónditor,
+Et casta lux amántium:
+
+Qua victus es cleméntia,
+Ut nostra ferres crímina?
+Mortem subíres ínnocens,
+A morte nos ut tólleres?
+
+Perrúmpis inférnum chaos:
+Vinctis caténas détrahis;
+Victor triúmpho nóbili
+Ad déxteram Patris sedes.
+
+Te cogat indulgéntia,
+Ut damna nostra sárcias,
+Tuíque vultus cómpotes
+Dites beáto lúmine.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Tu, dux ad astra, et sémita,
+Sis metas nostris córdibus,
+Sis lacrimárum gáudium,
+Sis dulce vitæ prǽmium.
+Amen.
+
+℣. Dóminus in cælo, allelúja. ℟. Parávit sedem suam, allelúja.
+
+**Ad Bened. Ant.** Ascéndo ad Patrem meum, \* et Patrem vestrum: Deum meum, et Deum vestrum, allelúja.
+
+#### Oratio
+
+CONCEDE, quǽsumus, omnípotens Deus: ut, qui hodiérna die Unigénitum tuum Redemptórem nostrum ad cælos ascendísse crédimus; ipsi quoque mente in cæléstibus habitémus. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+## Ad Primam
+
+**Ant.** Viri Galilǽi, \* quid aspícitis in cælum? Hic Jesus, qui assúmptus est a vobis in cælum, sic véniet, allelúja.
+
+{RUBRIC: In ℟. br. ℣. Qui scandis super sídera, qui dícitur usque ad Vigíliam Pentecóstes inclusive.}
+
+## Ad Tertiam
+
+**Ant.** Cumque intueréntur, {RUBRIC: ut supra.}

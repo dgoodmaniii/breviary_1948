@@ -10255,3 +10255,53 @@ Testimónium in Joseph pósuit illud, cum exíret de terra Ægýpti: \* linguam,
 Divértit ab onéribus dorsum ejus: \* manus ejus in cóphino serviérunt.
 
 In tribulatióne invocásti me, et liberávi te: \* exaudívi te in abscóndito tempestátis: probávi te apud aquam contradictiónis.
+
+Audi, pópulus meus, et contestábor te: \* Israël, si audíeris me, non erit in te deus recens, neque adorábis deum aliénum.
+
+Ego enim sum Dóminus, Deus tuus, qui edúxi te de terra Ægýpti: \* diláta os tuum, et implébo illud.
+
+Et non audívit pópulus meus vocem meam: \* et Israël non inténdit mihi.
+
+Et dimísi eos secúndum desidéria cordis eórum, \* ibunt in adinventiónibus suis.
+
+Si pópulus meus audísset me: \* Israël si in viis meis ambulásset:
+
+Pro níhilo fórsitan inimícos eórum humiliássem: \* et super tribulántes eos misíssem manum meam.
+
+Inimíci Dómini mentíti sunt ei: \* et erit tempus eórum in sæcula.
+
+Et cibávit eos ex ádipe fruménti: \* et de petra, melle saturávit eos.
+
+**Ant.** Ego sum Dóminus, Deus tuus, Israël, qui edúxi te de terra Ægýpti.
+
+**Ant.** Ne táceas, Deus, \* quóniam inimíci tui extulérunt caput.
+
+### Psalmus 82
+
+DEus, quis símilis erit tibi? \* ne táceas, neque compescáris, Deus:
+
+Quóniam ecce inimíci tui sonuérunt: \* et qui odérunt te, extulérunt caput.
+
+Super pópulum tuum malignavérunt consílium: \* et cogitavérunt advérsus sanctos tuos.
+
+Dixérunt: Veníte, et disperdámus eos de gente: \* et non memorétur nomen Israël ultra.
+
+Quóniam cogitavérunt unanímiter: \* simul advérsum te testaméntum disposuérunt, tabernácula Idumæórum et Ismahelítæ:
+
+Moab, et Agaréni, Gebal, et Ammon, et Amalec: \* alienígenæ cum habitántibus Tyrum.
+
+Etenim Assur venit cum illis: \* facti sunt in adjutórium fíliis Lot.
+
+Fac illis sicut Mádian, et Sísaræ: \* sicut Jabin in torrénte Cisson.
+
+Disperiérunt in Endor: \* facti sunt ut stercus terræ.
+
+Pone príncipes eórum sicut Oreb, et Zeb, \* et Zébee, et Sálmana:
+
+Omnes príncipes eórum: \* qui dixérunt: Hereditáte possideámus Sanctuárium Dei.
+
+Deus meus, pone illos ut rotam: \* et sicut stípulam ante fáciem venti.
+
+Sicut ignis, qui combúrit silvam: \* et sicut flamma combúrens montes:
+
+Ita persequéris illos in tempestáte tua: \* et in ira tua turbábis eos.

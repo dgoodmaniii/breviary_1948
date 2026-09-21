@@ -28256,3 +28256,59 @@ Non mórtui laudábunt te, Dómine: \* neque omnes, qui descéndunt in inférnum
 Sed nos qui vívimus, benedícimus Dómino, \* ex hoc nunc et usque in sæculum.
 
 **Ant.** Loquebántur váriis linguis Apóstoli magnália Dei, allelúja, allelúja, allelúja.
+
+**Capitulum** *Act. 2, 1-2*
+
+CUM compleréntur dies Pentecóstes, erant omnes discípuli páriter in eódem loco: et factus est repénte de cælo sonus, tamquam adveniéntis spíritus veheméntis, et replévit totam domum, ubi erant sedéntes.
+
+#### Hymnus
+
+VENI, Creátor Spíritus,
+Mentes tuórum vísita,
+Imple supérna grátia,
+Quæ tu creásti péctora.
+
+Qui díceris Paráclitus,
+Altíssimi donum Dei,
+Fons vivus, ignis, cáritas,
+Et spiritális únctio.
+
+Tu septifórmis múnere,
+Dígitus patérnæ déxteræ,
+Tu rite promíssum Patris,
+Sermóne ditans gúttura.
+
+Accénde lumen sénsibus:
+Infúnde amórem córdibus:
+Infírma nostri córporis
+Virtúte firmans pérpeti.
+
+Hostem repéllas lóngius,
+Pacémque dones prótinus:
+Ductóre sic te prǽvio
+Vitémus omne nóxium.
+
+Per te sciámus da Patrem,
+Noscámus atque Fílium,
+Teque utriúsque Spíritum
+Credámus omni témpore.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+℣. Loquebántur váriis linguis Apóstoli, allelúja. ℟. Magnália Dei, allelúja.
+
+**Ad Magnif. Ant.** Hódie \* compléti sunt dies Pentecóstes, allelúja: hódie Spíritus Sanctus in igne discípulis appáruit, et tríbuit eis charísmatum dona: misit eos in univérsum mundum prædicáre, et testificári: Qui credíderit et baptizátus fúerit, salvus erit, allelúja.
+
+#### Oratio
+
+DEus, qui hodiérna die corda fidélium Sancti Spíritus illustratióne docuísti: da nobis in eódem Spíritu recta sápere; et de ejus semper consolatióne gaudére. Per Dóminum... in unitáte ejúsdem.
+
+{RUBRIC: Completórium de Dominica.}
+
+{RUBRIC: Infra Octávam ómnia dicúntur ut in Festo, præter ea, quæ síngulis diébus assignántur própria.}
+
+---

@@ -39669,3 +39669,49 @@ Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
 Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
 
 Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui: \* virtútem óperum suórum annuntiábit pópulo suo:
+
+Ut det illis hereditátem géntium: \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus: confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+
+**T. P. Ant.** In cæléstibus regnis Sanctórum habitátio est, allelúja: et in ætérnum réquies eórum, allelúja.
+
+**Ant.** In velaménto \* clamábant Sancti tui, Dómine, allelúja, allelúja, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Majórem caritátem nemo habet, ut ánimam suam ponat quis pro amícis suis.
+
+**Ant.** Vos amíci mei estis, \* si fecéritis quæ præcípio vobis, dicit Dóminus.
+
+###### Psalmus 111
+
+BEATUS vir, qui timet Dóminum: \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus: \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Exórtum est in ténebris lumen rectis: \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício: \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus: \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
+
+**T. P. Ant.** In velaménto clamábant Sancti tui, Dómine, allelúja, allelúja, allelúja.
+
+**Ant.** Spíritus et ánimæ \* justórum, hymnum dícite Deo nostro, allelúja, allelúja.

@@ -34585,3 +34585,43 @@ Tu natum Dóminum stringis, ad éxteras
 Ægýpti prófugum tu séqueris plagas;
 Amíssum Sólymis quæris, et ínvenis,
 Miscens gáudia flétibus.
+
+Post mortem réliquos sors pia cónsecrat,
+Palmámque eméritos glória súscipit:
+Tu vivens, Súperis par, frúeris Deo,
+Mira sorte beátior.
+
+Nobis, summa Trias, parce precántibus,
+Da Joseph méritis sídera scándere;
+Ut tandem líceat nos tibi pérpetim
+Gratum prómere cánticum. Amen.
+
+℣. Constítuit eum dóminum domus suæ, allelúja. ℟. Et príncipem omnis possessiónis suæ, allelúja.
+
+**Ad Magnif. Ant.** Cum esset desponsáta \* Mater Jesu María Joseph, ántequam convenírent, invénta est in útero habens de Spíritu Sancto, allelúja.
+
+#### Oratio
+
+DEUS, qui ineffábili providéntia beátum Joseph sanctíssimæ Genitrícis tuæ sponsum elígere dignátus es: præsta, quǽsumus; ut, quem protectórem venerámur in terris, intercessórem habére mereámur in cælis: Qui vivis et regnas.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Laudémus Deum nostrum \* In veneratióne beáti Joseph, protectóris nostri, allelúja. **Ps. 94** Veníte, exsultémus. [3]
+
+{RUBRIC: Hymnus Te, Joseph, célebrent, ut supra. 872}
+
+#### In I Nocturno
+
+**Ant.** Angelus Dómini \* appáruit in somnis Joseph, dicens: Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; et esto ibi usque dum dicam tibi, allelúja.
+
+{RUBRIC: Psalmi trium Nocturnorum de Communi Confessoris Pontificis. [87]}
+
+℣. Confitébor nómini tuo, allelúja. ℟. Quóniam adjútor et protéctor factus es mihi, allelúja.
+
+De libro Génesis
+
+**Lectio i** *Cap. 39, 1-6*
+
+IGITUR Joseph ductus est in Ægýptum, emítque eum Pútiphar eunúchus pharaónis, princeps exércitus, vir Ægýptius, de manu Ismaelitárum, a quibus perdúctus erat. Fuítque Dóminus cum eo, et erat vir in cunctis próspere agens: habitavítque in domo dómini sui, qui óptime nóverat Dóminum esse cum eo, et ómnia quæ géreret, ab eo dírigi in manu illíus. Invenítque Joseph grátiam coram dómino suo, et ministrábat ei: a quo præpósitus óm-

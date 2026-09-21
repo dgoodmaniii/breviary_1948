@@ -15196,4 +15196,32 @@ TAmquam leónes ígitur ignem spirántes ab illa mensa recedámus, facti diábol
 
 ATtendámus ítaque nobis ipsis, dilectíssimi, tálibus fruéntes bonis: et, cum áliquid turpe dícere voluérimus, vel nos ab ira córripi vidérimus, vel álio quópiam hujúsmodi vítio considerémus, quibus facti sumus digni; talísque cogitátio nobis irrationabílium mótuum sit corréctio. Quotquot ígitur hujus partícipes córporis efficímur, quotquot sánguinem degustámus; cogitémus, quod illum sursum sedéntem, qui ab Angelis adorátur incorruptíbili vicínus virtúti, hunc degustámus. Hei mihi, quot ad salútem nobis viæ! Nos corpus suum efficit; nobis suum communicávit corpus: et horum nos nihil a malis avértit.
 
-℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 6, 56-59*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et sanguis meus vere est potus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 27 in Joann., ante med.}
+
+DIximus, fratres, hoc Dóminum commendásse in manducatióne carnis suæ et potatióne sánguinis sui, ut in illo maneámus, et ipse in nobis. Manémus autem in illo, cum sumus membra ejus; manet autem ipse in nobis, cum sumus templum ejus. Ut autem simus membra ejus, únitas nos compáginat: ut compáginet únitas, quæ facit, nisi cáritas? Et cáritas Dei unde? Apóstolum intérroga. Cáritas, inquit, Dei diffúsa est in córdibus nostris per Spíritum Sanctum, qui datus est nobis.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In.
+
+##### Lectio viii
+
+ERgo spíritus est, qui vivíficat; spíritus enim facit viva membra: nec viva membra spíritus facit, nisi quæ in córpore, quod végetat ipse spíritus, invénerit. Nam spíritus, qui est in te, o homo, quo constas ut homo sis, numquid vivíficat membrum quod separátum invénerit a carne tua? Spíritum tuum dico ánimam tuam. Anima tua non vivíficat nisi membra, quæ sunt in carne tua: unum si tollas, jam non vivificátur ex ánima tua, quia unitáti córporis tui non copulátur.
+
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me. ℣. Cibávit illum Dóminus pane vitæ et intelléctus. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+HÆC dicúntur, ut amémus unitátem et timeámus separatiónem. Nihil enim sic debet formidáre Christiánus quam separári a córpore Christi. Si enim separátur a córpore Christi, non est membrum

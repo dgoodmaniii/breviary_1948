@@ -17473,3 +17473,27 @@ ET vocávit Isai Abínadab et addúxit eum coram Samuéle. Qui dixit: Nec hunc e
 ### Oratio
 
 DA nobis, quǽsumus, Dómine: ut et mundi cursus pacífice nobis tuo órdine dirigátur; et Ecclésia tua tranquílla devotióne lætétur. Per Dóminum.
+
+---
+
+## Dominica IV post Pentecosten
+
+*Semiduplex*
+
+{RUBRIC: Ad Matutinum, Invitatórium Dóminum, qui fecit, et Hymnus Nocte surgéntes, ut in Psaltério 30; quæ dicúntur in ómnibus Domínicis témpore æstívo occurréntibus.}
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 17, 1-16*
+
+COngregántes autem Philísthiim ágmina sua in prǽlium convenérunt in Socho Judæ, et castrametáti sunt inter Socho et Azéca in fínibus Dommim. Porro Saul et fílii Israël congregáti venérunt in Vallem terebínthi, et direxérunt áciem ad pugnándum contra Philísthiim. Et Philísthiim stabant super montem ex parte hac, et Israël stabat supra montem ex áltera parte, vallísque erat inter eos. Et egréssus est vir spúrius de castris Philisthinórum nómine Góliath de Geth altitúdinis sex cubitórum et palmi. Et cassis ǽrea super caput ejus, et loríca squamáta induebátur; porro pondus lorícæ ejus quinque míllia siclórum æris erat. Et ócreas æreas habébat in crúribus, et clýpeus æreus tegébat húmeros ejus. Hastíle autem hastæ ejus erat quasi liciatórium texéntium; ipsum autem ferrum hastæ ejus sexcéntos siclos habébat ferri; et ármiger ejus antecedébat eum.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et liberábit.
+
+##### Lectio ii
+
+STansque clamábat advérsum phalángas Israël et dicébat eis: Quare venístis paráti ad prǽlium? Numquid ego non sum Philisthǽus, et vos servi Saul? Elígite ex vobis virum, et descéndat ad singuláre certámen: si quíverit pugnáre mecum et percússerit me, érimus vobis servi; si autem ego prævalúero et percússero eum, vos servi éritis et serviétis nobis. Et ajébat Philisthǽus: Ego exprobrávi agmínibus Israël hódie: Date mihi virum, et íneat mecum singuláre certámen. Audiens autem Saul et omnes Israelítæ sermónes Philistǽi hujuscémodi stupébant et metuébant nimis.

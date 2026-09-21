@@ -28755,4 +28755,30 @@ SALUTIS animárum zelo incénsus curas omnes inténdit, ut sibi commíssum grege
 
 ###### Lectio vi
 
-CÆLESTINI delegáta auctoritáte, Concílio Ephesíno præfuit, in quo hæresis Nestoriána pénitus proscrípta est, damnátus Nestórius et a sua Sede dejéctus, ac dogma cathólicum de una in Christo, eáque divína persóna, et divína gloriósæ Vírginis Maríæ maternitáte assértum; plaudénte pópulo univérso, qui incredíbili gáudio géstiens, collucéntibus fácibus domum dedúxit epíscopos. Sed
+CÆLESTINI delegáta auctoritáte, Concílio Ephesíno præfuit, in quo hæresis Nestoriána pénitus proscrípta est, damnátus Nestórius et a sua Sede dejéctus, ac dogma cathólicum de una in Christo, eáque divína persóna, et divína gloriósæ Vírginis Maríæ maternitáte assértum; plaudénte pópulo univérso, qui incredíbili gáudio géstiens, collucéntibus fácibus domum dedúxit epíscopos. Sed hac de causa Cyríllus calúmniis, injúriis et persecutiónibus plúrimis a Nestório ejúsque fautóribus impetítus fuit; quas ipse patientíssime tulit, ita ut, de sola fide sollícitus, quidquid advérsus eum effutiébant ac moliebántur hærétici, pro níhilo habéret. Tandem pro Ecclésia Dei máximis perfúnctus labóribus, plurimísque scriptis éditis tum ad éthnicos et hæréticos confutándos, tum ad sacras Scriptúras et cathólica explanánda dógmata, sancto fine quiévit anno quadringentésimo quadragésimo quarto, episcopátus trigésimo secúndo. Leo décimus tértius Póntifex máximus Offícium et Missam præclaríssimi hujus fídei cathólicæ propugnatóris et Orientális ecclésiæ lúminis ad Ecclésiam univérsam exténdit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Comm. Doct. 1 loco. [107]}
+
+{RUBRIC: In Festis novem Lectionum usque ad Sabbatum post Dominicam Passionis occurrentibus dicitur ix Lectio de Homilia Feriæ currentis, et de ea fit Commemoratio ad Laudes et in Vesperis, ante Commemorationem Festi simplicis forte occurrentis.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DEUS, qui beátum Cyríllum Confessórem tuum atque Pontíficem divínæ maternitátis beatíssimæ Vírginis Maríæ assertórem invíctum effecísti: concéde, ipso intercedénte; ut, qui vere eam Genitrícem Dei crédimus, matérna ejúsdem protectióne salvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Post Commemoratiónem Fériæ, Commem. S. Apollóniæ Virg. et Mart.}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+###### Oratio
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili

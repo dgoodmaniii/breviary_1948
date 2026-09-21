@@ -27974,3 +27974,70 @@ Te Deum laudámus.
 **4** Fontes, et ómnia \* quæ movéntur in aquis, hymnum dícite Deo, allelúja.
 
 **5** Loquebántur \* váriis linguis Apóstoli magnália Dei, allelúja, allelúja, allelúja.
+
+**Capitulum** *Act. 2, 1-2*
+
+CUM compleréntur dies Pentecóstes, erant omnes discípuli páriter in eódem loco: et factus est repénte de cælo sonus, tamquam adveniéntis spíritus veheméntis, et replévit totam domum, ubi erant sedéntes.
+
+#### Hymnus
+
+BEATA nobis gáudia
+Anni redúxit órbita,
+Cum Spíritus Paráclitus
+Illápsus est Apóstolis.
+
+Ignis vibránte lúmine
+Linguæ figúram détulit,
+Verbis ut essent próflui,
+Et caritáte férvidi.
+
+Linguis loquúntur ómnium;
+Turbæ pavent gentílium,
+Musto madére députant
+Quos Spíritus repléverat.
+
+Patráta sunt hæc mýstice,
+Paschæ perácto témpore,
+Sacro diérum círculo,
+Quo lege fit remíssio.
+
+Te nunc, Deus piíssime,
+Vultu precámur cérnuo:
+Illápsa nobis cælitus
+Largíre dona Spíritus.
+
+Dudum sacráta péctora
+Tua replésti grátia:
+Dimítte nostra crímina,
+Et da quiéta témpora.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sæculórum sæcula.
+Amen.
+
+℣. Repléti sunt omnes Spíritu Sancto, allelúja. ℟. Et cœpérunt loqui, allelúja.
+
+**Ad Bened. Ant.** Accípite \* Spíritum Sanctum: quorum remiséritis peccáta, remittúntur eis, allelúja.
+
+#### Oratio
+
+DEus, qui hodiérna die corda fidélium Sancti Spíritus illustratióne docuísti: da nobis in eódem Spíritu recta sápere; et de ejus semper consolatióne gaudére. Per Dóminum... in unitáte ejúsdem.
+
+## Ad Primam
+
+**Ant.** Cum compleréntur \* dies Pentecóstes, erant omnes páriter in eódem loco, allelúja.
+
+{RUBRIC: Psalmi ut in Festis; in ℟. br., ℣. Qui sedes ad déxteram Patris, et ad absolutiónem Capítuli Léctio brevis Judǽi quoque, ut infra ad Nonam. 665}
+
+## Ad Tertiam
+
+{RUBRIC: Prima strópha sequéntis Hymni dícitur flexis génibus.}
+
+#### Hymnus
+
+VENI, Creátor Spíritus,
+Mentes tuórum vísita,
+Imple supérna grátia,
+Quæ tu creásti péctora.

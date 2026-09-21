@@ -5365,4 +5365,68 @@ Et misit signa, et prodígia in médio tui, Ægýpte: \* in Pharaónem, et in om
 
 Qui percússit gentes multas: \* et occídit reges fortes:
 
-Sehon, regem Amorrhæórum,
+Sehon, regem Amorrhæórum, et Og, regem Basan, \* et ómnia regna Chánaan.
+
+Et dedit terram eórum hereditátem, \* hereditátem Israël, pópulo suo.
+
+Dómine, nomen tuum in ætérnum: \* Dómine, memoriále tuum in generatiónem et generatiónem.
+
+Quia judicábit Dóminus pópulum suum: \* et in servis suis deprecábitur.
+
+Simulácra géntium argéntum, et aurum, \* ópera mánuum hóminum.
+
+Os habent, et non loquéntur: \* óculos habent, et non vidébunt.
+
+Aures habent, et non áudient: \* neque enim est spíritus in ore ipsórum.
+
+Símiles illis fiant qui fáciunt ea: \* et omnes qui confídunt in eis.
+
+Domus Israël, benedícite Dómino: \* domus Aaron, benedícite Dómino.
+
+Domus Levi, benedícite Dómino: \* qui timétis Dóminum, benedícite Dómino.
+
+Benedíctus Dóminus ex Sion, \* qui hábitat in Jerúsalem.
+
+**Ant.** Laudáte Dóminum, quia benígnus est, et in servis suis deprecábitur.
+
+**Capit.** *Rom. 13, 12-13*
+
+NOX præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+ALES diéi núntius
+Lucem propínquam præcínit:
+Nos excitátor méntium
+Jam Christus ad vitam vocat.
+
+Auférte, clamat, léctulos,
+Ægro sopóre desídes:
+Castíque, recti, ac sóbrii
+Vigiláte, jam sum próximus.
+
+Jesum ciámus vócibus,
+Flentes, precántes, sóbrii:
+Inténta supplicátio
+Dormíre cor mundum vetat.
+
+Tu, Christe, somnum díscute:
+Tu rumpe noctis víncula:
+Tu solve peccátum vetus,
+Novúmque lumen íngere.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Eréxit nobis \* Dóminus cornu salútis in domo David, púeri tui.
+
+{RUBRIC: Expléto Cántico ac repetíta Antíphona, dicúntur sequéntes}
+
+#### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.

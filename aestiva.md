@@ -14126,4 +14126,26 @@ Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
 
 **Ant.** Pater, et Fílius, et Spíritus Sanctus una substántia est, o beáta Trínitas.
 
-℣. Verbo Dómini cæli firmáti sunt. ℟. Et Spíritu
+℣. Verbo Dómini cæli firmáti sunt. ℟. Et Spíritu oris ejus omnis virtus eórum.
+
+**Léctio sancti Evangélii secúndum Matthæum**
+
+##### Lectio vii
+
+*Cap. 28, 18-20*
+
+IN illo témpore: Dixit Jesus discípulis suis: Data est mihi omnis potéstas in cælo et in terra. Eúntes ergo docéte omnes gentes, baptizántes eos in nómine Patris, et Fílii, et Spíritus Sancti. Et réliqua.
+
+**Homilía sancti Gregórii Nazianzéni**
+
+{RUBRIC: Tractatus de fide, post initium}
+
+QUis cathólicórum ignórat Patrem vere esse Patrem, Fílium vere esse Fílium, et Spíritum Sanctum vere esse Spíritum Sanctum? sicut ipse Dóminus ad Apóstolos suos dicit: Eúntes baptizáte omnes gentes in nómine Patris, et Fílii, et Spíritus Sancti. Hæc est perfécta Trínitas in unitáte consístens, quam scílicet uníus substántiæ profitémur. Non enim nos secúndum córporum conditiónem, divisiónem in Deo fácimus; sed secúndum divínæ natúræ poténtiam, quæ in matéria non est, et nóminum persónas vere constáre crédimus, et unitátem divinitátis esse testámur.
+
+℟. Benedicámus Patrem, et Fílium cum Sancto Spíritu: \* Laudémus et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli: et laudábilis et gloriósus in sæcula. — Laudémus.
+
+**Bened.** Divínum auxílium.
+
+##### Lectio viii
+
+NEC extensiónem partis alicújus ex parte, ut quidam putavérunt, Dei Fílium dícimus: nec verbum sine re, velut sonum vocis, accípimus: sed tria nómina et tres persónas uníus esse esséntiæ, uníus majestátis atque poténtiæ crédimus. Et ídeo unum Deum confitémur: quia únitas majestátis, plúrium vocábulo deos próhibet appelári. Dénique Patrem et Fílium cathólice nominámus; duos autem Deos dícere, nec póssumus, nec debémus. Non quod Fílius Dei Deus non sit, immo verus Deus de Deo vero; sed quia non aliúnde, quam de ipso uno Patre, Dei Fílium nóvimus, perínde unum Deum dícimus. Hoc enim Prophétæ, hoc Apóstoli tradidérunt; hoc ipse Dóminus dócuit, cum dicit: Ego et Pater unum sumus. Unum ad unitátem divinitátis, ut dixi, refert; Sumus autem, persónis assígnat.

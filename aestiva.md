@@ -17648,4 +17648,32 @@ LOcútus est ergo Jónathas de David bona ad Saul patrem suum dixítque ad eum: 
 
 *Cap. 19, 8-10*
 
-MOtum est autem rursum bellum, et egréssus David pugnávit advérsum Philísthiim percussítque eos plaga magna, et fugérunt a fácie ejus. Et factus est spíritus Dómini malus in Saul. Sedébat autem in domo sua et tenébat lánceam; porro David psallébat manu sua. Nisúsque est Saul confígere David láncea in
+MOtum est autem rursum bellum, et egréssus David pugnávit advérsum Philísthiim percussítque eos plaga magna, et fugérunt a fácie ejus. Et factus est spíritus Dómini malus in Saul. Sedébat autem in domo sua et tenébat lánceam; porro David psallébat manu sua. Nisúsque est Saul confígere David láncea in paríete, et declinávit David a fácie Saul; láncea autem, casso vúlnere, perláta est in paríetem. Et David fugit et salvátus est nocte illa.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 20, 1-7*
+
+FUgit autem David de Najoth, quæ est in Rámatha, veniénsque locútus est coram Jónatha: Quid feci? quæ est iníquitas mea, et quod peccátum meum in patrem tuum, quia quǽrit ánimam meam? Qui dixit ei: Absit, non moriéris; neque enim fáciet pater meus quidquam grande vel parvum nisi prius indicáverit mihi; hunc ergo celávit me pater meus sermónem tantúmmodo? Nequáquam erit istud.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio ii
+
+ET jurávit rursum David. Et ille ait: Scit profécto pater tuus quia invéni grátiam in óculis tuis et dicet: Nésciat hoc Jónathas, ne forte tristétur. Quinímmo vivit Dóminus et vivit ánima tua, quia uno tantum, ut ita dicam, gradu ego morsque divídimur. Et ait Jónathas ad David: Quodcúmque díxerit mihi ánima tua, fáciam tibi.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+DIxit autem David ad Jónathan: Ecce caléndæ sunt crástino, et ego ex more sedére sóleo juxta regem ad vescéndum; dimítte ergo me, ut abscóndar in agro usque ad vésperam diéi tértiæ. Si re-

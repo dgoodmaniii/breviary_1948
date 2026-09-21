@@ -27722,3 +27722,55 @@ Sed éditis miráculis
 Occúrrit, et docet Petrus,
 Falsum profári pérfidos,
 Joéle teste cómprobans.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+### Ad Nocturnum
+
+**Ant.** Factus est \* repénte de cælo sonus advenéntis spíritus veheméntis, allelúja, allelúja.
+
+#### Psalmus 47
+
+MAGNUS Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sancto ejus.
+
+Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
+
+Deus in dóminus ejus cognoscétur, \* cum suscípiet eam.
+
+Quóniam ecce reges terræ congregáti sunt: \* convenérunt in unum.
+
+Ipsi vidéntes sic admiráti sunt, conturbáti sunt, commóti sunt: \* tremor apprehéndit eos.
+
+Ibi dolóres ut parturiéntis: \* in spíritu veheménti cónteres naves Tharsis.
+
+Sicut audívimus, sic vídimus in civitáte Dómini virtútum, in civitáte Dei nostri: \* Deus fundávit eam in ætérnum.
+
+Suscépimus, Deus, misericórdiam tuam, \* in médio templi tui.
+
+Secúndum nomen tuum, Deus, sic et laus tua in fines terræ: \* justítia plena est déxtera tua.
+
+Lætétur mons Sion, et exsúltent fíliæ Judæ \* propter judícia tua, Dómine.
+
+Circúmdate Sion, et complectímini eam: \* narráte in túrribus ejus.
+
+Pónite corda vestra in virtúte ejus: \* et distribúite domos ejus, ut enarrétis in progénie áltera.
+
+Quóniam hic est Deus, Deus noster in ætérnum, et in sǽculum sǽculi: \* ipse reget nos in sǽcula.
+
+**Ant.** Factus est repénte de cælo sonus advenéntis spíritus veheméntis, allelúja, allelúja.
+
+**Ant.** Confírma hoc, Deus, \* quod operátus es in nobis: a templo sancto tuo, quod est in Jerúsalem, allelúja, allelúja.
+
+#### Psalmus 67
+
+EXSURGAT Deus, et dissipéntur inimíci ejus, \* et fúgiant qui odérunt eum, a fácie ejus.
+
+Sicut déficit fumus, defíciant: \* sicut fluit cera a fácie ignis, sic péreant peccatóres a fácie Dei.
+
+Et justi epuléntur, et exsúltent in conspéctu Dei: \* et delecténtur in lætítia.
+
+Cantáte Deo, psalmum dícite nómini ejus: \* iter fácite ei, qui ascéndit su-

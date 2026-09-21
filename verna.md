@@ -19768,3 +19768,39 @@ QUI quidem mórtuus in lóculo materiálibus quátuor ad sepúlcrum ferebátur e
 SED quamvis supréma mortis spem vitæ omnis aboléverint, et túmulo próxima córpora jáceant defunctórum: verbo tamen Dei jam mórtua resúrgunt cadávera: vox redit, rédditur fílius matri, revocátur a túmulo, erípitur a sepúlcro. Quis iste est túmulus tuus, nisi mali mores? Túmulus tuus perfídia est: sepúlcrum tuum guttur est. Sepúlcrum enim patens, est guttur eórum, unde verba mórtua proferúntur. Ab hoc sepúlcro te líberat Christus: ab hoc túmulo surges, si áudias verbum Dei. Et si grave peccátum est, quod pœniténtiæ lácrimis ipse laváre non possis; fleat pro te mater Ecclésia, quæ pro síngulis tamquam pro únicis fíliis vídua mater intérvenit. Compátitur enim quodam spiritáli dolóre natúræ, cum suos líberos lethálibus vítiis ad mortem cerni urgéri.
 
 ℟. Cantémus Dómino: glorióse enim honorificátus est, equum et ascensórem projécit in mare: \* Adjútor et protéctor factus est mihi Dóminus in salútem. ℣. Dóminus quasi vir pugnátor, Omnípotens nomen ejus. — Adjútor. Glória Patri. Adjútor.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Ibat Jesus \* in civitátem, quæ vocátur Naim: et ecce defúnctus efferebátur fílius únicus matris suæ.
+
+#### Oratio
+
+PRÆSTA, quæsumus, omnípotens Deus: ut, quos jejúnia votíva castígant, ipsa quoque devótio sancta lætíficet; ut, terrénis afféctibus mitigátis, facílius cæléstia capiámus. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Prophéta magnus \* surréxit in nobis, et quia Deus visitávit plebem suam.
+
+#### Oratio
+
+POPULI tui, Deus, institútor et rector: peccáta, quibus impugnátur, expélle; ut semper tibi plácitus, et tuo munímine sit secúrus. Per Dóminum.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 11, 1-45*
+
+IN illo témpore: Erat quidam languens Lázarus a Bethánia, de castéllo Maríæ et Marthæ soróris ejus. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tr. 49 in Joánn., post initium}
+
+IN superióri lectióne memínistis, quod Dóminus éxiit de mánibus eórum, qui lapidáre illum volúerant, et discéssit trans Jordánem, ubi Joánnes baptizábat. Ibi ergo Dómino constitúto, infirmabátur in Bethánia Lázarus: quod castéllum erat próximum Jerosólymis. María autem erat, quæ unxit Dóminum unguénto, et extérsit pedes ejus capíllis suis, cujus frater Lázarus infirmabátur. Misérunt ergo soróres ejus ad eum. Jam intellígimus, quo misérunt, ubi erat Jesus: quóniam absens erat, trans Jordánem scílicet. Misérunt ad Dóminum, nuntiántes quod ægrotáret frater eárum, ut si dignarétur, veníret, et eum ab ægritúdine liberáret. Ille dístulit sanáre, ut posset resuscitáre.
+
+℟. In mari viæ tuæ, et sémitæ tuæ in aquis multis: \* Deduxísti sicut oves pópulum tuum in manu Móysi et Aaron. ℣. Transtulísti illos per Mare Rubrum, et transvexísti eos per aquam nímiam. — Deduxísti.

@@ -33762,3 +33762,63 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut, qui sanctórum Mártyrum tuórum Tibú
 **Ad Magnif. Ant.** Sancti et justi, \* in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
 
 {RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+---
+
+### Die 17 Aprilis
+
+#### S. Aniceti
+
+{RUBRIC: Papæ et Martyris}
+
+{RUBRIC: Simplex [74]}
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+{RUBRIC: Tempore Paschali}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Anicétum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+###### Lectio iii
+
+ANICETUS Syrus, imperatóre Marco Aurélio Antoníno, præfuit Ecclésiæ. Decrévit ne clérici comam nutrírent. Quínquies mense Decémbri ordinávit presbýteros decem et septem, diáconos quátuor, epíscopos per divérsa loca novem. Vixit in pontificátu annos octo, menses octo, dies vigínti quátuor. Propter Christi fidem martýrio coronátus, sepúltus est via Appia in cœmetério, quod póstea Callísti appellátum est, décimo quinto Kaléndas Majas.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+{RUBRIC: Tempore Paschali}
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+---
+
+### Die 21 Aprilis
+
+#### S. Anselmi
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Ansélme, divínæ legis amátor, deprecáre pro nobis Fílium Dei. {RUBRIC: (T. P. Allelúja.)}

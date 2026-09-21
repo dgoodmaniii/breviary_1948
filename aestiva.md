@@ -4029,3 +4029,113 @@ Adjútor meus esto: \* ne derelínquas me, neque despícias me, Deus, salutáris
 Quóniam pater meus, et mater mea dereliquérunt me: \* Dóminus autem assúmpsit me.
 
 Legem pone mihi, Dómine, in via tua: \* et dírige me in sémitam rectam propter inimícos meos.
+
+Ne tradíderis me in ánimas tribulántium me: \* quóniam insurrexérunt in me testes iníqui, et mentíta est iníquitas sibi.
+
+Credo vidére bona Dómini \* in terra vivéntium.
+
+Exspécta Dóminum, viríliter age: \* et confortétur cor tuum, et sústine Dóminum.
+
+### Psalmus 27
+
+AD te, Dómine, clamábo, Deus meus, ne síleas a me: \* nequándo táceas a me, et assimilábor descendéntibus in lacum.
+
+Exáudi, Dómine, vocem deprecatiónis meæ dum oro ad te: \* dum extóllo manus meas ad templum sanctum tuum.
+
+Ne simul trahas me cum peccatóribus: \* et cum operántibus iniquitátem ne perdas me.
+
+Qui loquúntur pacem cum próximo suo: \* mala autem in córdibus eórum.
+
+Da illis secúndum ópera eórum, \* et secúndum nequítiam adinventiónum ipsórum.
+
+Secúndum ópera mánuum eórum tríbue illis: \* redde retributiónem eórum ipsis.
+
+Quóniam non intellexérunt ópera Dómini, et in ópera mánuum ejus \* déstrues illos, et non ædificábis eos.
+
+Benedíctus Dóminus: \* quóniam exaudívit vocem deprecatiónis meæ.
+
+Dóminus adjútor meus, et protéctor meus: \* in ipso sperávit cor meum, et adjútus sum.
+
+Et reflóruit caro mea: \* et ex voluntáte mea confitébor ei.
+
+Dóminus fortitúdo plebis suæ: \* et protéctor salvatiónum Christi sui est.
+
+Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ: \* et rege eos, et extólle illos usque in ætérnum.
+
+**Ant.** Illuminátio mea, et salus mea Dóminus.
+
+#### In Officio feriali
+
+**Capitulum** *Jer. 17, 14*
+
+SANA me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana. ℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 19}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** In tua justítia.
+
+### Psalmus 30, i
+
+IN te, Dómine, sperávi, non confúndar in ætérnum: \* in justítia tua líbera me.
+
+Inclína ad me aurem tuam, \* accélera ut éruas me.
+
+Esto mihi in Deum protectórem, et in domum refúgii: \* ut salvum me fácias.
+
+Quóniam fortitúdo mea, et refúgium meum es tu: \* et propter nomen tuum dedúces me, et enútries me.
+
+Edúces me de láqueo hoc, quem abscondérunt mihi: \* quóniam tu es protéctor meus.
+
+In manus tuas comméndo spíritum meum: \* redemísti me, Dómine, Deus veritátis.
+
+Odísti observántes vanitátes, \* supervácue.
+
+Ego autem in Dómino sperávi: \* exsultábo, et lætábor in misericórdia tua.
+
+Quóniam respexísti humilitátem meam, \* salvásti de necessitátibus ánimam meam.
+
+Nec conclusísti me in mánibus inimíci: \* statuísti in loco spatióso pedes meos.
+
+### Psalmus 30, ii
+
+MISERERE mei, Dómine, quóniam tríbulor: \* conturbátus est in ira óculus meus, ánima mea, et venter meus:
+
+Quóniam defécit in dolóre vita mea: \* et anni mei in gemítibus.
+
+Infirmáta est in paupertáte virtus mea: \* et ossa mea conturbáta sunt.

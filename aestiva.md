@@ -1891,4 +1891,48 @@ Spíritus Sanctus a Patre et Fílio: \* non factus, nec creátus, nec génitus, 
 
 Unus ergo Pater, non tres Patres: unus Fílius, non tres Fílii: \* unus Spíritus Sanctus, non tres Spíritus Sancti.
 
-Et in hac Trinitáte nihil prius aut postérius, nihil majus aut minus: \* sed
+Et in hac Trinitáte nihil prius aut postérius, nihil majus aut minus: \* sed totæ tres persónæ coætérnæ sibi sunt et coæquáles.
+
+Ita ut per ómnia, sicut jam supra dictum est, \* et únitas in Trinitáte, et Trínitas in unitáte veneránda sit.
+
+Qui vult ergo salvus esse, \* ita de Trinitáte séntiat.
+
+Sed necessárium est ad ætérnam salútem, \* ut Incarnatiónem quoque Dómini nostri Jesu Christi fidéliter credat.
+
+Est ergo fides recta, ut credámus et confiteámur, \* quia Dóminus noster Jesus Christus, Dei Fílius, Deus et homo est.
+
+Deus est ex substántia Patris ante sæcula génitus: \* et homo est ex substántia matris in sæculo natus.
+
+Perféctus Deus, perféctus homo: \* ex ánima rationáli et humána carne subsístens.
+
+Æquális Patri secúndum divinitátem: \* minor Patre secúndum humanitátem.
+
+Qui, licet Deus sit et homo, \* non duo tamen, sed unus est Christus.
+
+Unus autem non conversióne divinitátis in carnem, \* sed assumptióne humanitátis in Deum.
+
+Unus omníno, non confusióne substántiæ, \* sed unitáte persónæ.
+
+Nam sicut ánima ratiónális et caro unus est homo: \* ita Deus et homo unus est Christus.
+
+Qui passus est pro salúte nostra: descéndit ad ínferos: \* tértia die resurréxit a mórtuis.
+
+Ascéndit ad cælos, sedet ad déxteram Dei Patris omnipoténtis: \* inde ventúrus est judicáre vivos et mórtuos.
+
+Ad cujus advéntum omnes hómines resúrgere habent cum corpóribus suis: \* et redditúri sunt de factis própriis ratiónem.
+
+Et qui bona egérunt, ibunt in vitam ætérnam: \* qui vero mala, in ignem ætérnum.
+
+Hæc est fides cathólica, \* quam nisi quisque fidéliter firmitérque credíderit, salvus esse non póterit.
+
+Glória Patri.
+
+{RUBRIC: Expléto Symbólo, vel, si hoc non hábeat locum, Psalmis absolútis, statim dícitur Antíphona.}
+
+**Ant.** Allelúja, confitémini Dómino quóniam in sæculum misericórdia ejus, allelúja, allelúja.
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. {RUBRIC: Et repetitur:} Christe, Fili Dei vivi, miserére nobis. ℣. Qui sedes ad déxteram Patris. ℟. Miserére nobis. ℣. Glória Patri, et Fílio, et Spirítui Sancto. ℟. Christe, Fili Dei vivi, miserére nobis. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.

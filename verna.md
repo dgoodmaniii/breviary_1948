@@ -26681,4 +26681,22 @@ SIMON Petrus, servus et Apóstolus Jesu Christi, iis, qui coæquálem nobíscum 
 
 VOS autem curam omnem subinferéntes ministráte in fide vestra virtútem, in virtúte autem sciéntiam, in sciéntia autem abstinéntiam, in abstinéntia autem patiéntiam, in patiéntia autem pietátem, in pietáte autem amórem fraternitátis, in amóre autem fraternitátis caritátem. Hæc enim, si vobíscum adsint et súperent, non vácuos nec sine fructu vos constítuent in Dómini nostri Jesu Christi cognitióne; cui enim non præsto sunt hæc, cæcus est et manu tentans, oblivíónem accípiens purgatiónis véterum suórum delictórum.
 
-℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies ejus.
+
+#### Lectio iii
+
+QUAPROPTER, fratres, magis satágite, ut per bona ópera certam vestram vocatiónem et electiónem faciátis: hæc enim faciéntes, non peccábitis aliquándo. Sic enim abundánter ministrábitur vobis intróitus in ætérnum regnum Dómini nostri et Salvatóris Jesu Christi. Propter quod incípiam vos semper commonére de his: et quidem sciéntes et confirmátos vos in præsénti veritáte. Justum autem árbitror, quámdiu sum in hoc tabernáculo, suscitáre vos in commonitióne: certus quod velox est depositio tabernáculi mei secúndum quod et Dóminus noster Jesus Christus significávit mihi. Dabo autem óperam et frequénter habére vos post óbitum meum, ut horum memóriam faciátis.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+Sermo sancti Leónis Papæ
+
+{RUBRIC: Sermo 2 de Ascensione Dom.}
+
+#### Lectio iv
+
+SACRAMENTUM, dilectíssimi, salútis nostræ, quam prétio sánguinis sui universitátis Cónditor æstimávit, a die corporális ortus usque ad éxitum passiónis, per dispensatiónem humilitátis implétum est. Et licet multa, étiam in forma servi, divinitátis signa radiáverint; próprie tamen illíus témporis áctio ad demonstrándam suscépti hóminis pertínuit veritátem. Post passiónem vero ruptis mortis vínculis, quæ vim suam in eum, qui peccáti erat néscius, incedéndo perdíderat; infírmitas in virtútem, mortálitas in immortalitátem, contumélia transívit in glóriam: quam Dóminus Jesus Christus in multis manifestísque documéntis, multórum declarávit aspéctibus, donec triúmphum victóriæ, quem reportárat a mórtuis, inférret et cælis.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos

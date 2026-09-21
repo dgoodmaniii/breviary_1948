@@ -25000,4 +25000,34 @@ SUBJECTI ígitur estóte omni humánæ creatúræ propter Deum: sive regi quasi 
 
 SERVI, súbditi estóte in omni timóre dóminis, non tantum bonis et modéstis, sed étiam dýscolis. Hæc est enim grátia in Christo Jesu Dómino nostro.
 
-**℟. br.** Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória
+**℟. br.** Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+## Ad Vesperas
+
+{RUBRIC: Antíphona} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério 72; Capitulum, Hymnus et Versus, ut in Vésperis præcedéntis Sábbati. 556}
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Amen dico vobis, \* quia plorábitis et flébitis vos: mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra convertétur in gáudium, allelúja.
+
+---
+
+# Infra Hebdomadam III post Octavam Paschæ
+
+## Feria Secunda
+
+De libro Apocalýpsis beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 2, 1-17*
+
+ANGELO Ephesi ecclésiæ scribe: Hæc dicit, qui tenet septem stellas in déxtera sua, qui ámbulat in médio septem candelabrórum aureórum: Scio ópera tua, et labórem, et patiéntiam tuam, et quia non potes sustinére malos: et tentásti eos, qui se dicunt Apóstolos esse, et non sunt: et invenísti eos mendáces: et patiéntiam habes, et sustinuísti propter nomen meum, et non defecísti. Sed hábeo advérsum te, quod caritátem tuam primam reliquísti. Memor esto ítaque unde excíderis: et age pœniténtiam, et prima ópera fac. Sin autem, vénio tibi, et movébo candelábrum tuum de loco suo, nisi pœniténtiam égeris. Sed hoc habes, quia odísti facta Nicolaitárum, quæ et ego odi. Qui habet aurem, áudiat quid Spíritus dicat ecclésiis: Vincénti dabo édere de ligno vitæ, quod est in paradíso Dei mei.
+
+℟. Vidi portam civitátis ad Oriéntem pósitam, et Apostolórum nómina et Agni super eam scripta: \* Et super muros ejus Angelórum custódiam, allelúja. ℣. Vidi cælum novum, et terram novam, et civitátem novam descendéntem de cælo. — Et.
+
+#### Lectio ii
+
+ET Angelo Smyrnæ ecclésiæ scribe: Hæc dicit primus et novíssimus, qui fuit mórtuus et vivit: Scio tribulatiónem tuam, et paupertátem tuam, sed dives es: et blasphemáris ab his, qui se dicunt Judǽos esse, et non sunt, sed sunt synagóga sátanæ. Nihil horum tímeas quæ passúrus es. Ecce missúrus est diábo-

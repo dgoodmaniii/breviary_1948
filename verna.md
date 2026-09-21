@@ -27773,4 +27773,50 @@ Sicut déficit fumus, defíciant: \* sicut fluit cera a fácie ignis, sic pérea
 
 Et justi epuléntur, et exsúltent in conspéctu Dei: \* et delecténtur in lætítia.
 
-Cantáte Deo, psalmum dícite nómini ejus: \* iter fácite ei, qui ascéndit su-
+Cantáte Deo, psalmum dícite nómini ejus: \* iter fácite ei, qui ascéndit super occásum: Dóminus nomen illi.
+
+Exsultáte in conspéctu ejus: \* turbabúntur a fácie ejus, patris orphanórum, et júdicis viduárum.
+
+Deus in loco sancto suo: \* Deus qui inhabitáre facit uníus moris in domo:
+
+Qui edúcit vinctos in fortitúdine, \* simíliter eos, qui exásperant, qui hábitant in sepúlcris.
+
+Deus cum egrederéris in conspéctu pópuli tui, \* cum pertransíres in desérto:
+
+Terra mota est, étenim cæli distillavérunt a fácie Dei Sínai, \* a fácie Dei Israël.
+
+Plúviam voluntáriam segregábis, Deus, hereditáti tuæ: \* et infirmáta est, tu vero perfecísti eam.
+
+Animália tua habitábunt in ea: \* parásti in dulcédine tua páuperi, Deus.
+
+Dóminus dabit verbum evangelizántibus, \* virtúte multa.
+
+Rex virtútum dilécti, dilécti: \* et speciéi domus divídere spólia.
+
+Si dormiátis inter médios cleros, pennæ colúmbæ deargentátæ, \* et posterióra dorsi ejus in pallóre auri.
+
+Dum discérnit cæléstis reges super eam, nive dealbabúntur in Selmon: \* mons Dei, mons pinguis.
+
+Mons coagulátus, mons pinguis: \* ut quid suspicámini montes coagulátos?
+
+Mons, in quo beneplácitum est Deo habitáre in eo: \* étenim Dóminus habitábit in finem.
+
+Currus Dei decem míllibus múltiplex, míllia lætántium: \* Dóminus in eis in Sina in sancto.
+
+Ascendísti in altum, cepísti captivitátem: \* accepísti dona in homínibus:
+
+Etenim non credéntes, \* inhabitáre Dóminum Deum.
+
+Benedíctus Dóminus die quotídie: \* prósperum iter fáciet nobis Deus salutárium nostrórum.
+
+Deus noster, Deus salvos faciéndi: \* et Dómini Dómini éxitus mortis.
+
+Verúmtamen Deus confrínget cápita inimicórum suórum: \* vérticem capílli perambulántium in delíctis suis.
+
+Dixit Dóminus: Ex Basan convértam, \* convértam in profúndum maris:
+
+Ut intingátur pes tuus in sánguine: \* lingua canum tuórum ex inimícis, ab ipso.
+
+Vidérunt ingréssus tuos, Deus, \* ingréssus Dei mei: regis mei qui est in sancto.
+
+Prævenérunt príncipes conjúncti psalléntibus, \*

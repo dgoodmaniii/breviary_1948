@@ -38814,4 +38814,14 @@ SOLEMNI emíssa professióne, ob singulárem ejus in divum Francíscum Assisiná
 
 ###### Lectio vi
 
-HUMILITATE ádeo excélluit, ut Romam véniens, in páuperum hospítio recéptus, se lepróso sociáverit, et ecclesiásticas dignitátes a Paulo
+HUMILITATE ádeo excélluit, ut Romam véniens, in páuperum hospítio recéptus, se lepróso sociáverit, et ecclesiásticas dignitátes a Paulo quinto sibi oblátas constantíssime recusáverit. Illibátam perpétuo servávit virginitátem, effrontésque mulíeres, ejus castimóniæ insidiántes, Christo lucrifécit. Erga divíníssimum Eucharístiæ mystérium ardénti æstuans amóre, noctes pene íntegras in ejus adoratióne insómnes ducébat: quod pium exercítium, véluti sui órdinis tésseram, in eo perpétuo servándum constítuit. Deíparæ Vírginis cultum impénse fovit. In próximum exímia exársit caritáte. Prophetíæ dono et córdium scrutatióne ditátus fuit. Quadragésimum quartum ætátis suæ annum agens, dum in sacra Lauretána æde in oratióne persísteret, sibi vitæ finem imminére cognóvit. Aprútium statim defléxit, et in óppido Agnóni apud álumnos sancti Philíppi Nérii letháli febre corréptus, sacraméntis Ecclésiæ devotíssime suscéptis, prídie Nonas Júnii anni millésimi sexcentésimi octávi, in pervigílio festi Córporis Christi, placidíssime obdormívit in Dómino. Sacrum ejus corpus, Neápolim delátum, in ecclésia sanctæ Maríæ Majóris, ubi prima sui órdinis jécerat fundaménta, honorífice cónditum fuit. Eum póstea, miráculis clarum, Clemens decimusquártus Póntifex máximus solémni ritu inter Beátos; Pius vero séptimus Póntifex máximus, novis fulgéntem signis, anno millésimo octingentésimo séptimo, Sanctórum albo adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+FRANCISCUS, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido sanctæ Maríæ de Villa in Aprútio ortus est. Adoléscens gráviter ægrótans státuit sese prorsus Dei proximíque mancipáre servítio. Neápolim proféctus et sacerdótio initiátus, contemplatióni lucrandísque animábus se totum devóvit, ac extrémo supplício damnátis hortatórem se præbuit assíduum. Joánni Augustíno Adórno et Fabrício Carác-

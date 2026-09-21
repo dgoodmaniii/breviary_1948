@@ -2876,4 +2876,42 @@ Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem.
 
 Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
 
-℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula.
+℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum nostrum. ℟. Amen.
+
+℣. Dóminus vobíscum.
+
+℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+**Antiphona finalis B. M. V.**
+
+℣. Divínum auxílium.
+
+Pater, Ave et Credo.
+
+{RUBRIC: ¶ Psalmi de Domínica supérius appósiti dicúntur ad Completórium, adhíbita simul Antíphona, étiam post utrásque Vésperas in Domínicis infra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, in Duplícibus I vel II classis, in Festis novem Lectiónum Dómini, B. Maríæ Vírginis, Angelórum, S. Joánnis Baptístæ, S. Joseph, Apostolórum, Evangelistárum, et per Octávas privilegiátas; si tamen præcedéntes I Vésperæ de eis íntegræ vel saltem a Capítulo sint celebrátæ, ac II Vésperæ de ipsis íntegræ fúerint persolútæ.}
+
+# Feria Secunda
+
+## Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+### In Officio feriali
+
+{RUBRIC: Invitatórium et Hymnus dicúntur quotídie de Feria curránti, ut in Psaltério hic et alíbi appónuntur.}
+
+**Invitat.** Veníte, \* Exsultémus Dómino. **Ps. 94** Veníte, exsultémus.
+
+{RUBRIC: In primo Psalmi versu non dícitur: Veníte, exsultémus Dómino; sed post repetítum Invitatórium, statim subjun-

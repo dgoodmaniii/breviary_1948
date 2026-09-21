@@ -19214,4 +19214,26 @@ NE elevarétur cor Ezechíæ post incredíbiles triúmphos et de média captivit
 
 AUdiénsque se esse moritúrum, non precátur vitam et annos plúrimos, sed in Dei judício, quid velit præstáre, dimíttit. Nóverat enim idcírco Deo placuísse Salomónem, quod annos vitæ non petíerit amplióres; sed itúrus ad Dóminum narrat ópera sua, quómodo ambuláverat coram eo in veritáte et in corde perfécto. Felix consciéntia, quæ afflictiónis témpore bonórum óperum recordátur. Beáti enim mundo corde: quóniam ipsi Deum vidébunt. Et quómodo álibi scríbitur: Quis gloriábitur purum habére se cor? Quod ita sólvitur, perfectiónem cordis in eo nunc dici, quod idóla destrúxerit, templi valvas aperúerit, serpéntem ǽneum comminúerit, et cétera fécerit, quæ Scriptúra commémorat.
 
-℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúi-
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+FLevit autem fletu magno, propter promissiónem Dómini ad David, quam vidébat in sua morte peritúram. Eo enim témpore Ezechías fílios non habébat; nam post mortem ejus Manásses, cum duódecim esset annórum, regnáre cœpit in Judǽa: ex quo perspícuum est, post tértium annum concéssæ vitæ Manássen esse generátum. Ergo iste omnis est fletus, quod desperábat Christum de suo sémine nascitúrum. Alii ásserunt, quamvis sanctos viros morte terréri, propter incértum judícii et ignoratiónem senténtiæ Dei, quam sedem habitúri sint.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et fui. Glória Patri. Et fui.
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 22, 1-5*
+
+OCto annórum erat Josías cum regnáre cœpísset: trigínta et uno anno regnávit in Jerúsalem. Nomen matris ejus Idída fília Hadaía de Bésecath. Fecítque quod plácitum erat coram Dómino et ambulávit per omnes vias David patris sui: non declinávit ad déxteram sive ad sinístram. Anno autem octávo décimo regis Josíæ misit rex Saphan fílium Aslía fílii Méssulam scribam templi Dómini dicens ei: Vade ad Helcíam sacerdótem magnum, ut conflétur pecúnia, quæ illáta est in templum Dómini, quam collegérunt janitóres templi a pópulo, detúrque fabris per præpósitos domus Dómini; qui et distríbuant eam his qui operántur in templo Dómini.
+
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.

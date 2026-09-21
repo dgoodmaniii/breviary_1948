@@ -17120,4 +17120,20 @@ ET ait Sámuel ad pópulum: Dóminus, qui fecit Móysen et Aaron et edúxit patr
 
 ##### Lectio iii
 
-POstea autem clamavérunt ad Dóminum, et dixérunt: Peccávimus, quia derelíquimus Dóminum et servívimus Báalim et Astaroth, nunc ergo érue nos de manu inimicórum nostrórum, et serviémus tibi. Et misit Dóminus Jeróbaal et Badan et Jephte et Sámuel, et éruit vos de manu inimicórum vestrórum per circúitum, et habitástis confidénter. Vidéntes autem quod Naas rex filiórum Ammon venís-
+POstea autem clamavérunt ad Dóminum, et dixérunt: Peccávimus, quia derelíquimus Dóminum et servívimus Báalim et Astaroth, nunc ergo érue nos de manu inimicórum nostrórum, et serviémus tibi. Et misit Dóminus Jeróbaal et Badan et Jephte et Sámuel, et éruit vos de manu inimicórum vestrórum per circúitum, et habitástis confidénter. Vidéntes autem quod Naas rex filiórum Ammon venísset advérsum vos, dixístis mihi: Nequáquam, sed rex imperábit nobis, cum Dóminus Deus vester regnáret in vobis. Nunc ergo præsto est rex vester, quem elegístis et petístis: ecce dedit vobis Dóminus regem. Si timuéritis Dóminum et serviéritis ei, et audiéritis vocem ejus et non exasperavéritis os Dómini, éritis et vos et rex, qui ímperat vobis, sequéntes Dóminum Deum vestrum.
+
+℟. Cum essémus mórtui peccátis, convivificávit nos Deus in Christo \* Propter nímiam caritátem suam qua diléxit nos. ℣. Ut osténderet in sæculis superveniéntibus abundántes divítias grátiæ suæ. — Propter. Glória Patri. Propter.
+
+#### In II Nocturno
+
+{RUBRIC: Ex lítteris Encýclicis Pii Papæ undécimi}
+
+##### Lectio iv
+
+QUO autem perféctius oblátio nostra nostrúmque sacrifícium sacrifício domínico respónderit, idest amórem nostri cupiditatésque nostras immolavérimus et carnem crucifixérimus crucifixióne ea mýstica, de qua lóquitur Apóstolus, eo uberióres propitiatiónis atque expiatiónis pro nobis aliísque percipiémus fructus. Mirífica enim viget fidélium ómnium cum Christo necessitúdo, qualis inter caput et cétera córporis membra intercédit, itémque arcána illa, quam fide cathólica profitémur, Sanctórum communióne, cum sínguli hómines tum pópuli non modo conjungúntur inter se, sed étiam cum eódem qui est caput Christus, ex quo totum corpus compáctum et connéxum per omnem junctúram subministratiónis, secúndum operatiónem in mensúram uniuscujúsque membri augméntum córporis sui facit in ædificatiónem sui in caritáte. Quod quidem Mediátor ipse Dei et hóminum Christus Jesus, morti próximus, a Patre postulárat: Ego in eis et tu in me, ut sint consummáti in unum.
+
+℟. Prope est Dóminus ómnibus invocántibus eum, \* Omnibus invocántibus eum in veritáte. ℣. Miserátor et miséricors Dóminus, pátiens et multum miséricors. — Omnibus invocántibus.
+
+##### Lectio v
+
+QUemádmodum ígitur uniónem cum Christo profitétur ac firmat con-

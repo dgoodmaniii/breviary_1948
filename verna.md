@@ -37109,3 +37109,37 @@ DEUS, qui, miro órdine, Angelórum ministéria hominúmque dispénsas: concéde
 ##### Ad Primam
 
 **Ant.** Stetit Angelus, ut supra. 954
+
+##### Ad Tertiam
+
+**Ant.** Dum præliarétur \* Míchaël Archángelus cum dracóne, audíta est vox dicéntium: Salus Deo nostro, allelúja.
+
+**Capitulum** *Apoc. 1, 1-2*
+
+SIGNIFICAVIT Deus quæ opórtet fíeri cito, loquens per Angelum suum servo suo Joánni, qui testimónium perhíbuit verbo Dei, et testimónium Jesu Christi, quæcúmque vidit.
+
+℟. br. Stetit Angelus juxta aram templi, \* Allelúja, allelúja. Stetit. ℣. Habens thuríbulum áureum in manu sua. Allelúja, allelúja. Glória Patri. Stetit. ℣. Ascéndit fumus aromátum in conspéctu Dómini, allelúja. ℟. De manu Angeli, allelúja.
+
+###### Oratio
+
+DEUS, qui, miro órdine, Angelórum ministéria hominúmque dispénsas: concéde propítius; ut, a quibus tibi ministrántibus in cælo semper assístitur, ab his in terra vita nostra muniátur. Per Dóminum.
+
+##### Ad Sextam
+
+**Ant.** Archángele Míchaël, \* constítui te príncipem super omnes ánimas suscipiéndas, allelúja.
+
+**Capitulum** *Apoc. 5, 11-12*
+
+AUDIVI vocem Angelórum multórum in circúitu throni, et animálium et seniórum; et erat númerus eórum míllia míllium, voce magna dicéntium: Salus Deo nostro.
+
+℟. br. Ascéndit fumus aromátum in conspéctu Dómini, \* Allelúja, allelúja. Ascéndit. ℣. De manu Angeli. Allelúja, allelúja. Glória Patri. Ascéndit. ℣. In conspéctu Angelórum psallam tibi, Deus meus, allelúja. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo, allelúja.
+
+##### Ad Nonam
+
+**Ant.** Angeli, Archángeli, \* Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+**Capitulum** *Apoc. 12, 7-8*
+
+FACTUM est prǽlium magnum in cælo: Míchaël et Angeli ejus præliabántur cum dracóne, et draco pugnábat et ángeli ejus; et non prævaluérunt, neque locus invéntus est eórum ámplius in cælo.
+
+℟. br. In conspéctu Angelórum psallam tibi, Deus meus, \* Allelúja, allelúja.

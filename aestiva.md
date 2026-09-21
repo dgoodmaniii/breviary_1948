@@ -8492,3 +8492,119 @@ Deleántur de libro vivéntium: \* et cum justis non scribántur.
 **Ant.** Propter inimícos meos éripe me, Dómine.
 
 **Ant.** Quærite Dóminum, \* et vivet ánima vestra.
+
+### Psalmus 68, iii
+
+EGo sum pauper et dolens: \* salus tua, Deus, suscépit me.
+
+Laudábo nomen Dei cum cántico: \* et magnificábo eum in laude:
+
+Et placébit Deo super vítulum novéllum: \* córnua producéntem et úngulas.
+
+Vídeant páuperes et læténtur: \* quærite Deum, et vivet ánima vestra.
+
+Quóniam exaudívit páuperes Dóminus: \* et vinctos suos non despéxit.
+
+Laudent illum cæli et terra, \* mare, et ómnia reptília in eis.
+
+Quóniam Deus salvam fáciet Sion: \* et ædificabúntur civitátes Juda.
+
+Et inhabitábunt ibi, \* et hereditáte acquírent eam.
+
+Et semen servórum ejus possidébit eam, \* et qui díligunt nomen ejus, habitábunt in ea.
+
+**Ant.** Quærite Dóminum, et vivet ánima vestra.
+
+#### In feriali Officio et in Festis:
+
+℣. Laudábo nomen Dei cum cántico. ℟. Et magnificábo eum in laude.
+
+#### In Officio novem Lectionum
+
+**Absolutio.** A vínculis.
+
+**Bened.** 7 Evangélica léctio. 8 In Festis Dómini: Divínum auxílium. In Festis B. M. V.: Cujus festum cólimus, ipsa Virgo. In Festis Sanctórum: Cujus (*vel* Quorum *aut* Quarum) festum cólimus. 9 Ad societátem. (Per evangélica dicta.)
+
+#### In Officio trium Lectionum
+
+**Absolutio.** Exáudi, Dómine.
+
+##### In Feriis cum Homilia:
+
+**Bened.** 1 Evangélica. 2 Divínum. 3 Ad societátem.
+
+##### In Feriis sine Homilia:
+
+**Bened.** 1 Benedictióne. 2 Unigénitus. 3 Spíritus Sancti.
+
+##### In Festis Sanctorum:
+
+**Bened.** 1 Ille nos benedícat, qui sine fine vivit et regnat. ℟. Amen. 2 Cujus (*vel* Quorum *aut* Quarum). 3 Ad societátem.
+
+---
+
+## Ad Laudes I
+
+*In Fériis extra Vigílias commúnes occurréntibus, atque in Festis.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Jubiláte \* in conspéctu regis Dómini.
+
+### Psalmus 97
+
+CAntáte Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra: \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi: \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini: \* moveátur mare, et plenitúdo ejus: orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini: \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Jubiláte in conspéctu regis Dómini.
+
+**Ant.** Dómine, \* † refúgium factus es nobis. ‡
+
+### Psalmus 89
+
+DOmine, † refúgium factus es nobis: \* ‡ a generatióne in generatiónem.
+
+Priúsquam montes fíerent, aut formarétur terra et orbis: \* a sæculo et usque in sæculum tu es, Deus.
+
+Ne avértas hóminem in humilitátem: \* et dixísti: Convertímini, fílii hóminum.
+
+Quóniam mille anni ante óculos tuos, \* tamquam dies hestérna, quæ prætériit.
+
+Et custódia in nocte, \* quæ pro níhilo habéntur, eórum anni erunt.
+
+Mane sicut herba tránseat, mane flóreat, et tránseat: \* véspere décidat, indúret et aréscat.
+
+Quia defécimus in ira tua, \* et in furóre tuo turbáti sumus.
+
+Posuísti iniquitátes nostras in conspéctu tuo: \* sæculum nostrum in illuminatióne vultus tui.
+
+Quóniam omnes dies nostri defecérunt: \* et in ira tua defécimus.
+
+Anni nostri sicut aránea meditabúntur: \* dies annórum nostrórum in ipsis, septuagínta anni.
+
+Si autem in potentátibus octogínta anni: \* et ámplius eórum, labor et dolor.
+
+Quóniam supervénit mansuetúdo: \* et corripiémur.
+
+Quis novit potestátem iræ tuæ: \* et præ timóre tuo iram tuam dinumeráre?
+
+Déxteram tuam sic notam fac: \* et erudítos corde in sapiéntia.

@@ -19251,4 +19251,34 @@ SABBATO medicínæ Domínicæ ópera cœpta signíficat, ut inde nova creatúra 
 
 #### Lectio iii
 
-ET bene sábbato cœpit, ut ipsum se osténderet Creatórem, qui ópera opéribus intéxeret, et prosequerétur opus, quod ipse jam cœperat: ut si domum faber renováre dispónat, non a fundaméntis, sed a culmínibus íncipit sólvere vetustátem. Itaque ibi prius manum
+ET bene sábbato cœpit, ut ipsum se osténderet Creatórem, qui ópera opéribus intéxeret, et prosequerétur opus, quod ipse jam cœperat: ut si domum faber renováre dispónat, non a fundaméntis, sed a culmínibus íncipit sólvere vetustátem. Itaque ibi prius manum ádmovet, ubi ante desíerat: deínde a minóribus íncipit, ut ad majóra pervéniat. Liberáre a dǽmone et hómines, sed in verbo Dei possunt: resurrectiónem mórtuis imperáre, divínæ solíus est potestátis. Fortássis étiam in typo mulíeris illíus socrus Simónis et Andréæ, váriis críminum fébribus caro nostra languébat, et divérsarum cupiditátum immódicis æstuábat illécebris. Nec minórem febrem amóris esse díxerim, quam calóris. Itaque illa ánimum, hæc corpus inflámmat. Febris enim nostra, avarítia est: febris nostra, libído est: febris nostra, luxúria est: febris nostra, ambítio est: febris nostra, iracúndia est.
+
+℟. Extrahéntes Joseph de lacu, vendidérunt Ismaëlítis vigínti argénteis: \* Reversúsque Ruben ad púteum, cum non invenísset eum, scidit vestiménta sua cum fletu, et dixit: \* Puer non compáret, et ego quo ibo? ℣. At illi, intíncta túnica Joseph in sánguine hædi, misérunt qui ferret eam ad patrem, et díceret: Vide, si túnica fílii tui sit, an non. — Reversúsque. Glória Patri. Puer.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Exíbant autem dæmónia \* a multis clamántia, et dicéntia, Quia tu es Christus Fílius Dei: et íncrepans non sinébat ea loqui, quia sciébant ipsum esse Christum.
+
+#### Oratio
+
+MAGNIFICET te, Dómine, sanctórum tuórum Cosmæ et Damiáni beáta solémnitas: qua et illis glóriam sempitérnam, et opem nobis ineffábili providéntia contulísti. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Omnes, qui habébant infírmos, \* ducébant illos ad Jesum, et sanabántur.
+
+#### Oratio
+
+SUBJECTUM tibi pópulum, quæsumus, Dómine, propitiátio cæléstis amplíficet: et tuis semper fáciat servíre mandátis. Per Dóminum.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 4, 5-42*
+
+IN illo témpore: Venit Jesus in civitátem Samaríæ, quæ dícitur Sichar: juxta prædium,

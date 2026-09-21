@@ -38195,3 +38195,15 @@ DEUS, in te sperántium fortitúdo, qui beátum Gregórium Confessórem tuum atq
 ###### Oratio
 
 REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Urbánum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+GREGORIUS Papa séptimus, ántea Hildebrándus, Suánæ in Etrúria natus, doctrína, sanctitáte, omníque virtútum génere cum primis nóbilis, mirífice univérsam Dei illustrávit Ecclésiam. Cum párvulus ad fabri ligna edolántis pedes, jam litterárum ínscius, lúderet, ex rejéctis tamen segméntis illa Davídici eleménta oráculi, Dominábitur a mari usque ad mare, casu formásse narrátur; manum púeri ductánte Númine, quo significarétur ejus fore amplíssimam in mundo auctoritátem. Romam deínde proféctus, sub protectióne sancti Petri educátus est. Júvenis, Ecclésiæ libertátem a láicis oppréssam ac depravátos ecclesiasticórum mores vehementius dolens, in Cluniacénsi monastério, ubi sub régula sancti Benedícti austerióris vitæ observántia eo témpore máxime vigébat, mónachi hábitum induens, tanto pietátis ardóre divínæ majestáti deserviébat, ut a sanctis ejúsdem cœnóbii pátribus prior sit eléctus. Sed, divína providéntia majóra de eo dispónente, in salútem plúrimórum Cluníaco edúctus, Hildebrándus, abbas primum monastérii sancti Pauli extra muros Urbis eléctus, ac póstmodum Románæ Ecclésiæ cardinális creátus, sub summis Pontifícibus Leóne nono, Victóre secúndo, Stéphano nono, Nicoláo secúndo et Alexándro secúndo, præcípuis munéribus et legatiónibus perfúnctus est; sanctíssimi et puríssimi consílii vir a beáto Petro Damiáno nuncupátus. A Victóre Papa secúndo legátus a látere in Gálliam missus, Lugdúni epíscopum, simoníaca labe inféctum, ad sui críminis confessiónem miráculo adégit. Berengárium in concílio Turonénsi ad iterátam hǽresis abjuratiónem compúlit. Cadalói quoque schísma sua virtúte compréssit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+MORTUO Alexándro secúndo, invítus et mœrens, unánimi ómnium consénsu, décimo Kaléndas Maji anno Christi millésimo septuagésimo tér-

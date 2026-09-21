@@ -50732,4 +50732,26 @@ O Felícem virum, beátum Joseph, cui datum est, Deum, quem multi reges voluéru
 
 Orémus.
 
-DEUS, qui dedísti nobis regále sacerdótium: præsta, quæsumus; ut, sicut beátus Joseph unigénitum Fílium tuum, natum ex María Vírgine, suis mánibus reverénter tractáre méruit et portáre, ita nos fáciat cum cordis mundítia et óperis innocéntia tuis sanctis altáribus deservíre, ut sacrosánctum Fílii tui Corpus et Sánguinem hódie digne sumámus, et in futúro sæculo prǽmium habére mereámur
+DEUS, qui dedísti nobis regále sacerdótium: præsta, quæsumus; ut, sicut beátus Joseph unigénitum Fílium tuum, natum ex María Vírgine, suis mánibus reverénter tractáre méruit et portáre, ita nos fáciat cum cordis mundítia et óperis innocéntia tuis sanctis altáribus deservíre, ut sacrosánctum Fílii tui Corpus et Sánguinem hódie digne sumámus, et in futúro sæculo prǽmium habére mereámur ætérnum. Per eúmdem Christum, Dóminum nostrum. Amen.
+
+## Oratio ad omnes Angelos et Sanctos
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+ANGELI, Archángeli, Throni, Dominatiónes, Principátus, Potestátes, Virtútes cælórum, Chérubim atque Séraphim, omnes Sancti et Sanctæ Dei, præsértim Patróni mei, intercédere dignémini pro me, ut hoc sacrifícium Deo omnipoténti digne váleam offérre, ad laudem et glóriam nóminis sui et ad utilitátem meam totiúsque Ecclésiæ suæ sanctæ. Amen.
+
+## Oratio ad Sanctum
+
+### In Cujus Honorem Missa Celebratur
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+O Sancte N., ecce ego miser peccátor, de tuis méritis confísus, óffero nunc sacratíssimum sacraméntum Córporis et Sánguinis Dómini nostri Jesu Christi pro tuo honóre et glória. Precor te humíliter et devóte, ut pro me hódie intercédere dignéris, ut tantum sacrifícium digne et acceptabíliter offérre váleam, ut eum tecum et cum ómnibus eléctis ejus æternáliter laudáre, atque cum eo regnáre váleam: Qui vivit et regnat in sæcula sæculórum. Amen.
+
+## Declaratio Intentionis ante Missam
+
+{RUBRIC: Indulgentia quingentorum dierum. Pius Pp. XI, 12 Julii 1935}
+
+EGO volo celebráre Missam, et confícere Corpus et Sánguinem Dómini nostri Jesu Christi, juxta ritum sanctæ Románæ Ecclésiæ, ad laudem omnipoténtis Dei totiúsque Cúriæ triumphántis, ad utilitátem meam totiúsque Cúriæ militántis, pro ómnibus, qui se commendavérunt oratiónibus meis in génere et in spécie, et pro felíci statu sanctæ Románæ Ecclésiæ. Amen.
+
+GAUDIUM cum pace, emendatiónem vitæ, spátium veræ pæniténtiæ, grátiam et consolatiónem Sancti Spíritus, perseverántiam in bonis opéribus, tríbuat nobis omnípotens et miséricors Dóminus. Amen.

@@ -31106,4 +31106,67 @@ PROFUGUM justum dedúxit Sapiéntia per vias rectas, et osténdit illi regnum De
 
 {RUBRIC: Tempore Paschali}
 
-℟. br. Justus germinábit sicut lílium, \* Allelúja, allelúja. Justus. ℣. Et florébit in ætérnum ante Dóminum. Allelúja, allelúja. Glória Patri. Justus. ℣. Plantátus in domo Dómini.
+℟. br. Justus germinábit sicut lílium, \* Allelúja, allelúja. Justus. ℣. Et florébit in ætérnum ante Dóminum. Allelúja, allelúja. Glória Patri. Justus. ℣. Plantátus in domo Dómini, allelúja. ℟. In átriis domus Dei nostri, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Antiphonæ et Capitulum de Laudibus 758; Psalmi ut in I Vesperis de Comm. Apostolorum Tempore Paschali. [4]}
+
+###### Hymnus
+
+TE, Joseph, célebrent ágmina cælitum,
+Te cuncti résonent christíadum chori,
+Qui clarus méritis, junctus es ínclytæ
+Casto fœdere Vírgini.
+
+Almo cum túmidam gérmine cónjugem
+Admírans, dúbio tángeris ánxius,
+Afflátu súperi Fláminis Angelus
+Concéptum Púerum docet.
+
+Tu natum Dóminum stringis, ad éxteras
+Ægýpti prófugum tu séqueris plagas;
+Amíssum Sólymis quæris, et ínvenis,
+Miscens gáudia flétibus.
+
+Post mortem réliquos sors pia cónsecrat,
+Palmámque emérítos glória súscipit:
+Tu vivens, Súperis par, frúeris Deo,
+Mira sorte beátior.
+
+Nobis, summa Trias, parce precántibus,
+Da Joseph méritis sídera scándere;
+Ut tamdem líceat nos tibi pérpetim
+Gratum prómere cánticum. Amen.
+
+℣. Glória et divítiæ in domo ejus. {RUBRIC: (T. P. Allelúja.)} ℟. Et justítia ejus manet in sǽculum sǽculi. {RUBRIC: (T. P. Allelúja.)}
+
+**Ad Magnif. Ant.** Ecce fidélis servus \* et prudens, quem constítuit Dóminus super famíliam suam. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+### Die 21 Martii
+
+#### S. Benedicti
+
+{RUBRIC: Abbatis}
+
+{RUBRIC: Duplex majus [111]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+*C 4*
+
+INTERCESSIO nos, quǽsumus, Dómine, beáti Benedícti Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones Laudémus viros, de Communi Conf. Pont. 2 loco [100], cum Responsoriis de Comm. Conf. non Pont. ibi notatis.}

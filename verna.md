@@ -22558,4 +22558,44 @@ Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
 
 *Cap. 5, 1-11*
 
-RECORDARE, Dómine, quid accíderit nobis: intuére, et réspice oppróbrium nostrum. Heréditas nostra versa est ad aliénos: domus nostræ ad extráneos. Pupílli facti sumus absque patre, matres nostræ quasi víduæ. Aquam nostram pecúnia bíbimus: ligna nostra prétio comparávimus. Cervícibus nostris minabámur,
+RECORDARE, Dómine, quid accíderit nobis: intuére, et réspice oppróbrium nostrum. Heréditas nostra versa est ad aliénos: domus nostræ ad extráneos. Pupílli facti sumus absque patre, matres nostræ quasi víduæ. Aquam nostram pecúnia bíbimus: ligna nostra prétio comparávimus. Cervícibus nostris minabámur, lassis non dabátur réquies. Ægýpto dédimus manum, et Assýriis, ut saturarémur pane. Patres nostri peccavérunt, et non sunt: et nos iniquitátes eórum portávimus. Servi domináti sunt nostri: non fuit qui redímeret de manu eórum. In animábus nostris afferebámus panem nobis, a fácie gládii in desérto. Pellis nostra, quasi clíbanus exústa est a fácie tempestátum famis. Mulíeres in Sion humiliavérunt, et vírgines in civitátibus Juda.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+℟. Plange quasi virgo, plebs mea: ululáte, pastóres, in cínere et cilício: \* Quia venit dies Dómini magna, et amára valde. ℣. Accíngite vos, sacerdótes, et plángite, minístri altáris, aspérgite vos cínere. — Quia. Plange.
+
+#### In II Nocturno
+
+**Ant.** Elevámini, \* portæ æternáles, et introíbit Rex glóriæ.
+
+#### Psalmus 23
+
+DOMINI est terra, et plenitúdo ejus, \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum: \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino: \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens: Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles: \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+{RUBRIC: †}
+
+**Ant.** Elevámini, portæ æternáles, et introíbit Rex glóriæ.
+
+**Ant.** Credo vidére \* bona Dómini in terra vivéntium.
+
+#### Psalmus 26
+
+DOMINUS illuminátio mea, et salus mea, \* quem timébo?

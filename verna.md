@@ -42438,4 +42438,30 @@ Homilía sancti Ambrósii Epíscopi
 
 {RUBRIC: Lib. 5 in Luc. cap. 6, post init.}
 
-ADVERTE ómnia diligénter, quómodo et cum Apóstolis ascéndat, et descéndat ad turbas. Quómodo enim turba nisi in húmili Christum vidéret? Non séquitur ad excélsa, non ascéndit ad sublímia. Dénique ubi descéndit, invénit infírmos; in excélsis enim infírmi esse non possunt. Hinc étiam Matthǽus docet in inferióribus débiles esse sanátos. Prius enim unusquísque sanándus est, ut paulátim virtútibus procedéntibus ascéndere possit ad montem. Et ídeo quemque in inferióribus sanat, hoc est, a libídine révocat, injúriam
+ADVERTE ómnia diligénter, quómodo et cum Apóstolis ascéndat, et descéndat ad turbas. Quómodo enim turba nisi in húmili Christum vidéret? Non séquitur ad excélsa, non ascéndit ad sublímia. Dénique ubi descéndit, invénit infírmos; in excélsis enim infírmi esse non possunt. Hinc étiam Matthǽus docet in inferióribus débiles esse sanátos. Prius enim unusquísque sanándus est, ut paulátim virtútibus procedéntibus ascéndere possit ad montem. Et ídeo quemque in inferióribus sanat, hoc est, a libídine révocat, injúriam cæcitátis avértit. Ad vúlnera nostra descéndit; ut usu quodam et cópia suæ natúræ, compartícipes nos fáciat esse regni cæléstis.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+###### Lectio viii
+
+BEATI páuperes, quia vestrum est regnum Dei. Quátuor tantum beatitúdines sanctus Lucas Dominicas pósuit, octo vero sanctus Matthǽus; sed in illis octo istæ quátuor sunt, et in quátuor istis illæ octo. Hic enim quátuor velut virtútes ampléxus est cardináles; ille in illis octo mýsticum númerum reserávit. Pro octáva enim multi inscribúntur Psalmi, et mandátum áccipis octo illis partem dare, fortásse benedictiónibus. Sicut enim spei nostræ octáva perféctio est, ita octáva summa virtútum est.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis: \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória. Mercédem.
+
+**Vel** ℟. Hæc est vera fratérnitas, quæ numquam pótuit violári certámine: qui effúso sánguine secúti sunt Dóminum: \* Contemnéntes aulam régiam, pervenérunt ad regna cæléstia. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Contemnéntes. Glória Patri. Contemnéntes.
+
+###### Lectio ix
+
+SED prius quæ sunt amplióra videámus. Beáti, inquit, páuperes, quóniam vestrum est regnum Dei. Primam benedictiónem hanc utérque Evangelísta pósuit. Ordine enim prima est, et parens quædam generatióque virtútum; quia qui contémpserit sæculária, ipse merébitur sempitérna, nec potest quisquam méritum regni cæléstis adipísci, qui, mundi cupiditáte pressus, emergéndi non habet facultátem.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## III Alia Homilia
+
+Léctio sancti Evangélii secúndum Lucam
+
+**Lectio vii** *Cap. 12, 1-8*
+
+IN illo témpore: Dixit Jesus discípulis suis: Atténdite a ferménto pharisæórum, quod est hypócrisis. Et réliqua.

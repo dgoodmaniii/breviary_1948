@@ -23166,4 +23166,74 @@ IN sua ergo ac nostra festivitáte Angelus in albis véstibus appáruit: quia du
 
 ## Ad Laudes
 
-**Ant. 1** Angelus autem Dómini \* descéndit de
+**Ant. 1** Angelus autem Dómini \* descéndit de cælo, et accédens revólvit lápidem, et sedébat super eum, allelúja, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+2 Et ecce terræmótus \* factus est magnus: Angelus enim Dómini descéndit de cælo, allelúja.
+
+3 Erat autem \* aspéctus ejus sicut fulgur, vestiménta autem ejus sicut nix, allelúja, allelúja.
+
+4 Præ timóre autem ejus \* extérriti sunt custódes, et facti sunt velut mórtui, allelúja.
+
+5 Respóndens autem Angelus, \* dixit muliéribus: Nolíte timére: scio quod Jesum quǽritis, allelúja.
+
+{RUBRIC: Capitulum, Hymnus et Versus non dicuntur, sed eórum loco}
+
+**Ant.** Hæc dies, \* quam fecit Dóminus: exsultémus, et lætémur in ea.
+
+**Ad Bened. Ant.** Et valde mane \* una sabbatórum véniunt ad monuméntum, orto jam sole, allelúja.
+
+#### Oratio
+
+DEUS, qui hodiérna die per Unigénitum tuum æternitátis nobis áditum devícta morte reserásti: vota nostra, quæ præveniéndo aspíras, étiam adjuvándo proséquere. Per eúmdem Dóminum.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Benedicámus Dómino, allelúja, allelúja. ℟. Deo grátias, allelúja, allelúja.
+
+{RUBRIC: Sic dicitur in Laudibus et in Vésperis tantum.}
+
+℣. Fidélium ánimæ.
+
+## Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus in adjutórium.
+
+{RUBRIC: Psalmi de Dominica ut in Festis: Deus in nómine tuo et Beáti immaculáti. 59}
+
+{RUBRIC: Explétis Psalmis dícitur}
+
+**Ant.** Hæc dies, quam fecit Dóminus: exsultémus, et lætémur in ea.
+
+℣. Dóminus vobíscum.
+
+**Oratio** Dómine, Deus omnípotens {RUBRIC: et réliqua ut in Psaltério. Et ad absolutiónem Capítuli, Léctio brevis} Si consurrexístis, {RUBRIC: item ut in Breviário.}
+
+## Ad Tertiam, Sextam et Nonam
+
+Pater et Ave.
+
+℣. Deus in adjutórium.
+
+{RUBRIC: Psalmi de Dominica.}
+
+{RUBRIC: Explétis Psalmis dícitur}
+
+**Ant.** Hæc dies, quam fecit Dóminus: exsultémus, et lætémur in ea.
+
+℣. Dóminus vobíscum.
+
+{RUBRIC: Oratio ut ad Laudes.}
+
+℣. Dóminus vobíscum.
+
+℣. Benedicámus Dómino.
+
+℟. Deo grátias.
+
+℣. Fidélium ánimæ.
+
+{RUBRIC: Deinde dícitur tantum} Pater noster {RUBRIC: secreto, nisi sequátur ália Hora.}

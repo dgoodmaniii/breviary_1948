@@ -46380,4 +46380,26 @@ Léctio sancti Evangélii secúndum Lucam
 
 *Cap. 19, 1-10*
 
-IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine
+IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+De Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 8 in Luc., prope finem}
+
+QUÆ autem turba, nisi imperítæ confúsio multitúdinis, quæ vérticem nequit vidére sapiéntiæ? Ergo Zachǽus quámdiu in turba est, non videt Christum; supra turbam ascéndit, et vidit: hoc est, plebis jam transgréssus inscítiam, méruit quem desiderábat, aspícere. Pulchre autem áddidit: Quia illa parte erat transitúrus Dóminus: vel ubi sycómorus, vel ubi creditúrus; ut et mystérium serváret, et grátiam semináret. Sic enim vénerat, ut per Judǽos transíret ad gentes.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. (T. P. Allelúja.) ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et.
+
+###### Lectio viii
+
+VIDIT ítaque Zachǽum sursum. Jam enim sublimitáte fídei inter fructus novórum óperum, velut fecúndæ altitúdine árboris, eminébat. Et quóniam de typo ad morália defléximus, inter tot credéntium voluptátes Domínica die relaxáre ánimum, festivitátem admiscére deléctat. Zachǽus in sycómoro, novum vidélicet novi témporis pomum, ut in hoc quoque complerétur illud: Arbor fici prodúxit grossos suos.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+AD hoc enim Christus advénit, ut ex lignis non poma, sed hómines nasceréntur. Légimus álibi: Cum esses sub árbore fici, vidi te. Ergo Nathánaël sub árbore, hoc est, supra radícem, quia justus; radix enim sancta. Sub árbore tamen Nathánaël, quia sub lege: Zachǽus supra árborem, quia supra legem. Ille Dómini occúltus defénsor, hic públicus prædicátor. Ille adhuc Christum ex lege quærébat: iste jam supra legem relinquébat sua et Dóminum sequebátur.
+
+{RUBRIC: Te Deum laudámus.}
+
+---

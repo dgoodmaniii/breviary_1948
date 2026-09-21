@@ -49475,3 +49475,89 @@ Ne derelínquas me, Dómine, Deus meus: \* ne discésseris a me.
 Inténde in adjutórium meum, \* Dómine, Deus salútis meæ.
 
 Glória Patri.
+
+###### Psalmus 50
+
+MISERERE mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis: \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus: \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua: \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui: \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas: \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ: \* et exsultábit lingua mea justítiam tuam.
+
+Dómine, lábia mea apéries: \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem útique: \* holocáustis non delectáberis.
+
+Sacrifícium Deo spíritus contribulátus: \* cor contrítum, et humiliátum, Deus, non despícies.
+
+Benígne fac, Dómine, in bona voluntáte tua Sion: \* ut ædificéntur muri Jerúsalem.
+
+Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta: \* tunc impónent super altáre tuum vítulos.
+
+Glória Patri.
+
+###### Psalmus 101
+
+DOMINE, exáudi oratiónem meam: \* et clamor meus ad te véniat.
+
+Non avértas fáciem tuam a me: \* in quacúmque die tríbulor, inclína ad me aurem tuam.
+
+In quacúmque die invocávero te, \* velóciter exáudi me.
+
+Quia defecérunt sicut fumus dies mei: \* et ossa mea sicut crémium aruérunt.
+
+Percússus sum ut fœnum, et áruit cor meum: \* quia oblítus sum comédere panem meum.
+
+A voce gémitus mei \* adhǽsit os meum carni meæ.
+
+Símilis factus sum pellicáno solitúdinis: \* factus sum sicut nycticorax in domicílio.
+
+Vigilávi, \* et factus sum sicut passer solitárius in tecto.
+
+Tota die exprobrábant mihi inimíci mei: \* et qui laudábant me, advérsum me jurábant.
+
+Quia cínerem tamquam panem manducábam, \* et potum meum cum fletu miscébam.
+
+A fácie iræ et indignatiónis tuæ: \* quia élevans allisísti me.
+
+Dies mei sicut umbra declinavérunt: \* et ego sicut fœnum árui.
+
+Tu autem Dómine, in ætérnum pérmanes: \* et memoriále tuum in generatiónem et generatiónem.
+
+Tu exsúrgens miseréberis Sion: \* quia tempus miseréndi ejus, quia venit tempus.
+
+Quóniam placuérunt servis tuis lápides ejus: \* et terræ ejus miserebúntur.
+
+Et timébunt gentes nomen tuum, Dómine, \* et omnes reges terræ glóriam tuam.
+
+Quia ædificávit Dóminus Sion: \* et vidébitur in glória sua.
+
+Respéxit in oratiónem humílium: \* et non sprevit precem eórum.
+
+Scribántur hæc in generatióne áltera: \* et pópulus, qui creábitur, laudábit Dóminum:
+
+Quia prospéxit de excélso sancto suo: \* Dóminus

@@ -32622,3 +32622,47 @@ In me sunt, Deus, vota tua, \* quæ reddam, laudatiónes tibi.
 Quóniam eripuísti ánimam meam de morte, et pedes meos de lapsu: \* ut pláceam coram Deo in lúmine vivéntium.
 
 **Ant.** Deus, vitam meam annuntiávi tibi: posuísti lácrimas meas in conspéctu tuo.
+
+**Ant.** Fílii hóminum, \* dentes eórum arma et sagíttæ: et lingua eórum gládius acútus.
+
+###### Psalmus 56
+
+MISERERE mei, Deus, miserére mei: \* quóniam in te confídit ánima mea.
+
+Et in umbra alárum tuárum sperábo, \* donec tránseat iníquitas.
+
+Clamábo ad Deum altíssimum: \* Deum qui benefécit mihi.
+
+Misit de cælo, et liberávit me: \* dedit in oppróbrium conculcántes me.
+
+Misit Deus misericórdiam suam, et veritátem suam, \* et erípuit ánimam meam de médio catulórum leónum: dormívi conturbátus.
+
+Fílii hóminum dentes eórum arma et sagíttæ: \* et lingua eórum gládius acútus.
+
+Exaltáre super cælos, Deus, \* et in omnem terram glória tua.
+
+Láqueum paravérunt pédibus meis: \* et incurvavérunt ánimam meam.
+
+Fodérunt ante fáciem meam fóveam: \* et incidérunt in eam.
+
+Parátum cor meum, Deus, parátum cor meum: \* cantábo, et psalmum dicam.
+
+Exsúrge, glória mea, exsúrge, psaltérium et cíthara: \* exsúrgam dilúculo.
+
+Confitébor tibi in pópulis, Dómine: \* et psalmum dicam tibi in géntibus:
+
+Quóniam magnificáta est usque ad cælos misericórdia tua, \* et usque ad nubes véritas tua.
+
+Exaltáre super cælos, Deus: \* et super omnem terram glória tua.
+
+**Ant.** Fílii hóminum, dentes eórum arma et sagíttæ: et lingua eórum gládius acútus.
+
+℣. Fácies mea intúmuit a fletu. ℟. Et pálpebræ meæ caligavérunt.
+
+Sermo sancti Bernárdi Abbátis
+
+{RUBRIC: Sermo de 12 stellis}
+
+###### Lectio iv
+
+MARTYRIUM Vírginis tam in Simeónis prophetía, quam in ipsa Domínicæ passiónis história commendátur. Pósitus est hic (ait sanctus senex de púero Jesu) in signum cui contradicétur; et tuam ipsíus ánimam (ad Maríam autem dicébat) pertransíbit gládius. Vere tuam, o beáta Mater, ánimam pertransívit. Alióquin non nisi eam pertránsiens, carnem Fílii tui penetráret. Et quidem posteáquam emísit spíri-

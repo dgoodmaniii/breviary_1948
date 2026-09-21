@@ -4139,3 +4139,51 @@ MISERERE mei, Dómine, quóniam tríbulor: \* conturbátus est in ira óculus me
 Quóniam defécit in dolóre vita mea: \* et anni mei in gemítibus.
 
 Infirmáta est in paupertáte virtus mea: \* et ossa mea conturbáta sunt.
+
+Super omnes inimícos meos factus sum oppróbrium et vicínis meis valde: \* et timor notis meis.
+
+Qui vidébant me, foras fugérunt a me: \* oblivióni datus sum, tamquam mórtuus a corde.
+
+Factus sum tamquam vas pérditum: \* quóniam audívi vituperatiónem multórum commorántium in circúitu.
+
+In eo dum convenírent simul advérsum me, \* accípere ánimam meam consiliáti sunt.
+
+Ego autem in te sperávi, Dómine: \* dixi: Deus meus es tu: in mánibus tuis sortes meæ.
+
+Eripe me de manu inimicórum meórum, \* et a persequéntibus me.
+
+Illústra fáciem tuam super servum tuum, salvum me fac in misericórdia tua: \* Dómine, non confúndar, quóniam invocávi te.
+
+Erubéscant ímpii, et deducántur in inférnum: \* muta fiant lábia dolósa.
+
+Quæ loquúntur advérsus justum iniquitátem, \* in supérbia, et in abusióne.
+
+### Psalmus 30, iii
+
+QUAM magna multitúdo dulcédinis tuæ, Dómine, \* quam abscondísti timéntibus te.
+
+Perfecísti eis, qui sperant in te, \* in conspéctu filiórum hóminum.
+
+Abscóndes eos in abscóndito faciéi tuæ, \* a conturbatióne hóminum.
+
+Próteges eos in tabernáculo tuo \* a contradictióne linguárum.
+
+Benedíctus Dóminus: \* quóniam mirificávit misericórdiam suam mihi in civitáte muníta.
+
+Ego autem dixi in excéssu mentis meæ: \* Projéctus sum a fácie oculórum tuórum.
+
+Ideo exaudísti vocem oratiónis meæ, \* dum clamárem ad te.
+
+Dilígite Dóminum, omnes sancti ejus: \* quóniam veritátem requíret Dóminus, et retríbuet abundánter faciéntibus supérbiam.
+
+Viríliter ágite, et confortétur cor vestrum, \* omnes, qui sperátis in Dómino.
+
+**Ant.** In tua justítia líbera me, Dómine.
+
+#### In Officio feriali
+
+**Capitulum** *Rom. 13, 8*
+
+NEMINI quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam.

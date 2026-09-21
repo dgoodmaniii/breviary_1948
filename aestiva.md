@@ -15720,4 +15720,18 @@ DIxit autem Sámuel: Congregáte univérsum Israël in Masphath, ut orem pro vob
 
 AUctor sacramentórum quis est, nisi Dóminus Jesus? De cælo ista sacraménta venérunt. Consílium enim omne de cælo est. Vere autem magnum est et divínum miráculum, quod pópulo pluit Deus manna de cælo, et non laborábat pópulus, et manducábat. Tu forte dicis: Meus panis est usitátus. Sed panis iste, panis est ante verba sacramentórum: ubi accésserit consecrátio, de pane fit caro Christi. Hoc ígitur astruámus. Quómodo potest, qui panis est, corpus esse Christi? Consecratióne. Consecrátio ígitur quibus verbis est, et cujus sermónibus? Dómini Jesu. Nam réliqua ómnia quæ dicúntur, laudem Deo déferunt, orátio præmíttitur pro pópulo, pro régibus, pro céteris: ubi venítur, ut conficiátur venerábile Sacraméntum, jam non suis sermónibus sacérdos, sed útitur sermónibus Christi.
 
-℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedít-
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite.
+
+##### Lectio v
+
+ERgo sermo Christi hoc cónficit Sacraméntum. Quis sermo Christi? Nempe is, quo facta sunt ómnia. Jussit Dóminus, et factum est cælum; jussit Dóminus, et facta est terra; jussit Dóminus, et facta sunt mária; jussit Dóminus, et omnis creatúra generáta est. Vides ergo, quam operatórius sit sermo Christi. Si ergo tanta vis est in sermóne Dómini Jesu, ut incíperent esse, quæ non erant; quanto magis operatórius est, ut, quæ erant, in áliud muténtur? Cælum non erat, mare non erat, terra non erat. Sed audi dicéntem: Ipse dixit, et facta sunt; ipse mandávit, et creáta sunt. Ergo tibi ut respóndeam, non erat corpus Christi ante consecratiónem; sed post consecratiónem dico tibi quod jam corpus est Christi. Ipse dixit, et factum est: ipse mandávit, et creátum est.
+
+℟. Accépit Jesus cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: \* Hoc fácite in meam commemoratiónem. ℣. Memória memor ero, et tabéscet in me ánima mea. — Hoc.
+
+##### Lectio vi
+
+*Ibid., cap. 5*
+
+JAm redi mecum ad propositiónem meam. Magnum quidem et venerábile, quod manna Judǽis pluit e cælo. Sed intéllige, quid est ámplius, manna de cælo, an corpus Christi? Corpus Christi útique, qui auctor est cæli. Deínde, manna qui manducávit, mórtuus est: qui manducáverit hoc corpus, fiet ei remíssio peccatórum, et non moriétur in ætérnum. Ergo non otióse, cum áccipis, tu dicis, Amen; jam in spíritu cónfitens quod accípias corpus Christi. Dicit tibi sacérdos, Corpus Christi; et tu dicis, Amen, hoc est, Verum. Quod confitétur lingua, téneat afféctus.
+
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.

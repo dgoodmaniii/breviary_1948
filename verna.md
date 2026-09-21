@@ -25143,3 +25143,31 @@ ET post hæc vidi, et ecce apértum est templum tabernáculi testimónii in cæl
 ℟. Ego sicut vitis fructificávi suavitátem odóris, allelúja: \* Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis adimplémini, allelúja, allelúja. ℣. In me omnis grátia viæ et veritátis: in me omnis spes vitæ et virtútis. — Transíte.
 
 {RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Transíte.
+
+#### Lectio iii
+
+*Cap. 16, 1-6*
+
+ET audívi vocem magnam de templo, dicéntem septem Angelis: Ite, et effúndite septem phíalas iræ Dei in terram. Et ábiit primus, et effúdit phíalam suam in terram, et factum est vulnus sævum et péssimum in hómines, qui habébant charactérem béstiæ: et in eos, qui adoravérunt imáginem ejus. Et secúndus Angelus effúdit phíalam suam in mare, et factus est sanguis tamquam mórtui: et omnis ánima vivens mórtua est in mari. Et tértius effúdit phíalam suam super flúmina, et super fontes aquárum, et factus est sanguis. Et audívi Angelum aquárum dicéntem: Justus es, Dómine, qui es, et qui eras sanctus, qui hæc judicásti: quia sánguinem sanctórum et prophetárum effudérunt, et sánguinem eis dedísti bíbere: digni enim sunt.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Audívi vocem de cælo, tamquam vocem tonítrui magni, allelúja: Regnábit Deus noster in ætérnum, allelúja; \* Quia facta est salus, et virtus, et potéstas Christi ejus, allelúja, allelúja. ℣. Et vox de throno exívit, dicens: Laudem dícite Deo nostro, omnes sancti ejus, et qui timétis Deum, pusílli et magni. — Quia. Glória Patri. Quia.
+
+**Ad Bened. Ant.** Et intrávit \* cum illis: et factum est, dum recúmberet cum illis, accépit panem, et benedíxit, ac fregit, et porrigébat illis, allelúja, allelúja.
+
+**Ad Magnif. Ant.** Amen, amen dico vobis, \* íterum vidébo vos, et gaudébit cor vestrum, et gáudium vestrum nemo tollet a vobis, allelúja.
+
+---
+
+## Feria Sexta
+
+De libro Apocalýpsis beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 19, 1-16*
+
+POST hæc audívi quasi vocem turbárum multárum in cælo dicéntium: Allelúja: Salus, et glória, et virtus Deo nostro est: quia vera et justa judícia sunt ejus, qui judicávit de meretríce magna, quæ corrúpit terram in prostitutióne sua, et vindicávit sánguinem servórum suórum de mánibus ejus. Et íterum dixérunt: Allelúja. Et fumus ejus ascéndit in sǽcula sæculórum. Et cecidérunt senióres vigínti

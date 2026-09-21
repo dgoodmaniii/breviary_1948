@@ -20726,4 +20726,36 @@ NE putárent hómines phantásma esse factum, quia mórtuus resurréxit, Lázaru
 
 #### Lectio ii
 
-QUÆCUMQUE ánima fidélis vis esse, cum María unge pedes Dómini pretióso unguénto. Unguéntum illud justítia fuit, ídeo libra fuit: erat autem unguéntum nardi pístici pretiósi. Quod ait, pístici, locum áliquem crédere debémus, unde hoc erat unguéntum pretiósum: nec tamen hoc vacat, et sacraménto óptime cónsonat. Pistis Græce, fides Latíne dícitur. Quærébas operári justítiam. Justus ex fide vivit. Unge pedes Jesu bene vivéndo: Domínica sectáre vestígia. Capíllis terge: si habes supérflua, da paupéribus, et Dómini pedes tersísti: capílli enim supérflua córporis vidéntur. Habes quod agas de supérfluis tuis: tibi su-
+QUÆCUMQUE ánima fidélis vis esse, cum María unge pedes Dómini pretióso unguénto. Unguéntum illud justítia fuit, ídeo libra fuit: erat autem unguéntum nardi pístici pretiósi. Quod ait, pístici, locum áliquem crédere debémus, unde hoc erat unguéntum pretiósum: nec tamen hoc vacat, et sacraménto óptime cónsonat. Pistis Græce, fides Latíne dícitur. Quærébas operári justítiam. Justus ex fide vivit. Unge pedes Jesu bene vivéndo: Domínica sectáre vestígia. Capíllis terge: si habes supérflua, da paupéribus, et Dómini pedes tersísti: capílli enim supérflua córporis vidéntur. Habes quod agas de supérfluis tuis: tibi supérflua sunt, sed Dómini pédibus necessária sunt. Forte in terra Dómini pedes índigent.
+
+℟. Oppróbrium factus sum nimis inimícis meis: vidérunt me, et movérunt cápita sua: \* Adjuva me, Dómine, Deus meus. ℣. Locúti sunt advérsum me lingua dolósa, et sermónibus ódii circumdedérunt me. — Adjuva.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+DE quibus enim, nisi de membris suis in fine dictúrus est: Cum uni ex mínimis meis fecístis, mihi fecístis? Supérflua vestra impendístis: sed pédibus meis obsecúti estis. Domus autem impléta est odóre: mundus implétus est fama bona: nam odor bonus fama bona est. Qui male vivunt, et Christiáni vocántur, injúriam Christo fáciunt: de quálibus dictum est, quod per eos nomen Dómini blasphemátur. Si per tales nomen Dei blasphemátur, per bonos nomen Dómini laudátur. Audi Apóstolum: Christi bonus odor sumus, inquit, in omni loco.
+
+℟. Insurrexérunt in me viri iníqui absque misericórdia, quæsiérunt me interfícere: et non pepercérunt in fáciem meam spúere, et lánceis suis vulnerávérunt me: et concússa sunt ómnia ossa mea: \* Ego autem existimábam me tamquam mórtuum super terram. ℣. Effudérunt furórem suum in me: fremuérunt contra me déntibus suis. — Ego. Insurrexérunt.
+
+## Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Fáciem meam \* non avérti ab increpántibus, et conspuéntibus in me.
+
+{RUBRIC: Psalmi de Feria 2 loco. 93}
+
+**2** Frámea, suscitáre \* advérsus eos, qui dispérgunt gregem meum.
+
+**3** Appendérunt \* mercédem meam trigínta argénteis: quibus appretiátus sum ab eis.
+
+**4** Inundavérunt aquæ \* super caput meum: dixi, Périi: invocábo nomen tuum, Dómine Deus.
+
+**5** Lábia insurgéntium, \* et cogitatiónes eórum vide, Dómine.
+
+**Ad Bened. Ant.** Clarífica me, Pater, \* apud temetípsum claritáte, quam hábui priúsquam mundus fíeret.
+
+#### Oratio
+
+DA, quæsumus, omnípotens Deus: ut, qui in tot advérsis ex nostra infirmitáte defícimus: in-

@@ -19606,4 +19606,30 @@ SApiens múlier ædíficat domum suam, insípiens exstrúctam quoque mánibus d�
 
 QUærit derísor sapiéntiam et non ínvenit, doctrína prudéntium fácilis. Vade contra virum stultum, et nescit lábia prudéntiæ. Sapiéntia cállidi est intellígere viam suam, et imprudéntia stultórum errans. Stultus illúdet peccátum, et inter justos morábitur grátia. Cor, quod novit amaritúdinem ánimæ suæ, in gáudio ejus non miscébitur extráneus. Domus impiórum delébitur, tabernácula vero justórum germinábunt.
 
-℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+EST via, quæ vidétur hómini justa, novíssima autem ejus dedúcunt ad mortem. Risus dolóre miscébitur, et extréma gáudii luctus óccupat. Viis suis replébitur stultus, et super eum erit vir bonus. Innocens credit omni verbo, astútus considerat gressus suos. Fílio dolóso nihil erit boni, servo autem sapiénti prósperi erunt actus et dirigétur via ejus. Sápiens timet et declínat a malo, stultus tránsilit et confídit.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Sabbato
+
+{RUBRIC: De Parábolis Salomónis}
+
+##### Lectio i
+
+*Cap. 16, 1-15*
+
+HOminis est ánimam præparáre, et Dómini gubernáre linguam. Omnes viæ hóminis patent óculis ejus: spirítuum ponderátor est Dóminus. Revéla Dómino ópera tua, et dirigéntur cogitatiónes tuæ. Univérsa propter semetípsum operátus est Dóminus, ímpium quoque ad diem malum. Abominátio Dómini est omnis árrogans, etiámsi manus ad manum fúerit, non est ínnocens.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio ii
+
+INítium viæ bonæ fácere justítiam, accépta est autem apud Deum magis quam immoláre hóstias. Misericórdia et veritáte redímitur iníquitas, et in ti-

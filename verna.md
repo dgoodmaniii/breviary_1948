@@ -32307,3 +32307,49 @@ Cadent super eos carbónes, in ignem dejícies eos: \* in misériis non subsíst
 Vir linguósus non dirigétur in terra: \* virum injústum mala cápient in intéritu.
 
 Cognóvi quia fáciet Dóminus judícium ínopis: \* et vindíctam páuperum.
+
+Verúmtamen justi confitebúntur nómini tuo: \* et habitábunt recti cum vultu tuo.
+
+**Ant.** Quo ábiit diléctus tuus, o pulchérrima muliérum? quo diléctus tuus declinávit?
+
+**Ant.** Fascículus myrrhæ \* diléctus meus mihi, inter úbera mea commorábitur.
+
+###### Psalmus 140
+
+DOMINE, clamávi ad te, exáudi me: \* inténde voci meæ, cum clamávero ad te.
+
+Dirigátur orátio mea sicut incénsum in conspéctu tuo: \* elevátio mánuum meárum sacrifícium vespertínum.
+
+Pone, Dómine, custódiam ori meo: \* et óstium circumstántiæ lábiis meis.
+
+Non declínes cor meum in verba malítiæ, \* ad excusándas excusatiónes in peccátis.
+
+Cum homínibus operántibus iniquitátem: \* et non communicábo cum eléctis eórum.
+
+Corrípiet me justus in misericórdia, et increpábit me: \* óleum autem peccatóris non impínguet caput meum.
+
+Quóniam adhuc et orátio mea in beneplácitis eórum: \* absórpti sunt juncti petræ júdices eórum.
+
+Audient verba mea quóniam potuérunt: \* sicut crassitúdo terræ erúpta est super terram.
+
+Dissipáta sunt ossa nostra secus inférnum: \* quia ad te, Dómine, Dómine, óculi mei: in te sperávi, non áuferas ánimam meam.
+
+Custódi me a láqueo, quem statuérunt mihi: \* et a scándalis operántium iniquitátem.
+
+Cadent in retiáculo ejus peccatóres: \* singuláriter sum ego donec tránseam.
+
+**Ant.** Fascículus myrrhæ diléctus meus mihi, inter úbera mea commorábitur.
+
+**Ant.** Fulcíte me flóribus, \* stipáte me malis, quia amóre lángueo.
+
+###### Psalmus 141
+
+VOCE mea ad Dóminum clamávi: \* voce mea ad Dóminum deprecátus sum:
+
+Effúndo in conspéctu ejus oratiónem meam: \* et tribulatiónem meam ante ipsum pronúntio.
+
+In deficiéndo ex me spíritum meum: \* et tu cognovísti sémitas meas.
+
+In via hac, qua ambulábam: \* abscondérunt láqueum mihi.
+
+Considerábam ad déxteram, et vidébam: \* et non erat qui cognósceret me.

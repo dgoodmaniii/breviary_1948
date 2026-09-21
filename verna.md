@@ -43883,3 +43883,49 @@ Spíritus artus.
 
 Cujus ob prǽstans méritum frequénter,
 Ægra quæ passim jacuére membra,
+Víribus morbi dómitis, salúti
+Restituúntur.
+
+Noster hinc illi chorus obsequéntem
+Cóncinit laudem celebrésque palmas,
+Ut piis ejus précibus juvémur
+Omne per ævum.
+
+Sit salus illi, decus atque virtus,
+Qui, super cæli sólio corúscans,
+Tótius mundi sériem gubérnat
+Trinus et unus. Amen.
+
+℣. Amávit eum Dóminus, et ornávit eum. (T. P. Allelúja.) ℟. Stolam glóriæ índuit eum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram. (T. P. Allelúja.)
+
+##### In II Vesperis
+
+℣. Justum dedúxit Dóminus per vias rectas. (T. P. Allelúja.) ℟. Et osténdit illi regnum Dei. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu. (T. P. Allelúja.)
+
+**1 — Oratio**
+
+DEUS, qui nos beáti N. Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+**2 — Alia Oratio**
+
+ADESTO, Dómine, supplicatiónibus nostris, quas in beáti N. Confessóris tui solemnitáte deférimus: ut, qui nostræ justítiæ fidúciam non habémus, ejus, qui tibi plácuit, précibus adjuvémur. Per Dóminum.
+
+##### Pro Doctoribus
+
+{RUBRIC: In utrisque Vesperis:}
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte N., divínæ legis amátor, deprecáre pro nobis Fílium Dei. (T. P. Allelúja.)
+
+**3 — Oratio**
+
+DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+##### Si fuerit Abbas
+
+**4 — Oratio**
+
+INTERCESSIO nos, quǽsumus, Dómine, beáti N. Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio

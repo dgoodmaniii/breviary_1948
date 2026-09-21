@@ -40703,4 +40703,32 @@ PERFECTUS ille est, qui ábiens vendit ómnia quæ habet, et dat páuperibus, ac
 
 ###### Lectio viii
 
-ET justa prorsus retribútio, ut, qui hic pro Christo humánæ glóriam celsitúdinis neglexérunt, illic a Christo júdices glorificáti singuláriter cum eo assídeant, qui a sequéndis
+ET justa prorsus retribútio, ut, qui hic pro Christo humánæ glóriam celsitúdinis neglexérunt, illic a Christo júdices glorificáti singuláriter cum eo assídeant, qui a sequéndis ejus vestígiis nulla ratióne póterant avélli. Nemo autem putet, duódecim tantum Apóstolos, quia pro Juda prævaricánte Matthías eléctus est, tunc esse judicatúros; sicut nec duódecim solæ sunt tribus Israël judicándæ: alióquin tribus Levi, quæ tértia décima est, injudicáta recédet.
+
+**T. P. ℟.** Cándidi. [19]
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+###### Lectio ix
+
+ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur? cum ipse dicat: Nescítis, quóniam ángelos judicábimus, quanto magis sæculária? Sciéndum namque est, omnes, qui, ad exémplum Apostolórum, sua reliquérunt ómnia et secúti sunt Christum, júdices cum eo ventúros, sicut étiam omne mortálium genus esse judicándum. Quia enim duodenário sæpe número solet in Scriptúris universitás designári, per duódecim sedes Apostolórum, ómnium numerósitas judicántium, et, per duódecim tribus Israël, univérsitas eórum, qui judicándi sunt, osténditur.
+
+{RUBRIC: Te Deum.}
+
+---
+
+# Commune Evangelistarum
+
+## Tempore Paschali
+
+{RUBRIC: Omnia ut in Communi Apostolórum Témpore Paschali [4], præter Lectiónes ut infra:}
+
+##### In I Nocturno
+
+{RUBRIC: Incipit liber Ezechiélis Prophétæ}
+
+**Lectio i** *Cap. 1, 1-12*
+
+ET factum est in trigésimo anno, in quarto, in quinta mensis, cum essem in médio captivórum juxta flúvium Chobar, apérti sunt cæli, et vidi visiónes Dei. In quinta mensis, ipse est annus quintus transmigratiónis regis Jóachim, factum est verbum Dómini ad Ezechiélem, fílium Buzi, sacerdótem in terra Chaldæórum, secus flúmen Chobar: et facta est super eum ibi manus Dó-

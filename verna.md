@@ -24861,4 +24861,22 @@ APOCALYPSIS Jesu Christi, quam dedit illi Deus palam fácere servis suis, quæ o
 
 #### Lectio ii
 
-ECCE venit cum núbibus, et vidébit eum omnis óculus, et qui eum pupugérunt. Et plangent se super eum omnes tribus terræ. Etiam: Amen. Ego sum alpha et oméga: princípium et finis, dicit Dóminus Deus: qui est, et qui erat, et qui ventúrus est, Omnípotens. Ego Joánnes, frater vester, et párticeps in tribulatióne, et regno, et patiéntia in
+ECCE venit cum núbibus, et vidébit eum omnis óculus, et qui eum pupugérunt. Et plangent se super eum omnes tribus terræ. Etiam: Amen. Ego sum alpha et oméga: princípium et finis, dicit Dóminus Deus: qui est, et qui erat, et qui ventúrus est, Omnípotens. Ego Joánnes, frater vester, et párticeps in tribulatióne, et regno, et patiéntia in Christo Jesu: fui in ínsula, quæ appellátur Patmos, propter verbum Dei, et testimónium Jesu. Fui in spíritu in Domínica die, et audívi post me vocem magnam tamquam tubæ, dicéntis: Quod vides, scribe in libro: et mitte septem ecclésiis, quæ sunt in Asia, Epheso, et Smyrnæ, et Pérgamo, et Thyatíræ, et Sardis, et Philadélphiæ, et Laodicíæ.
+
+℟. Ego sicut vitis fructificávi suavitátem odóris, allelúja: \* Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis adimplémini, allelúja, allelúja. ℣. In me omnis grátia viæ et veritátis: in me omnis spes vitæ et virtútis. — Transíte.
+
+#### Lectio iii
+
+ET convérsus sum ut vidérem vocem, quæ loquebátur mecum: et convérsus vidi septem candelábra áurea: et in médio septem candelabrórum aureórum símilem fílio hóminis, vestítum podére, et præcínctum ad mamíllas zona áurea: caput autem ejus et capílli erant cándidi tamquam lana alba, et tamquam nix, et óculi ejus tamquam flamma ignis, et pedes ejus símiles aurichálco, sicut in camíno ardénti, et vox illíus tamquam vox aquárum multárum: et habébat in déxtera sua stellas septem: et de ore ejus gládius utráque parte acútus exíbat: et fácies ejus sicut sol lucet in virtúte sua. Et, cum vidíssem eum, cécidi ad pedes ejus tamquam mórtuus. Et pósuit déxteram suam super me, dicens: Noli timére: ego sum primus et novíssimus, et vivus, et fui mórtuus, et ecce sum vivens in sǽcula sæculórum, et hábeo claves mortis et inférni. Scribe ergo quæ vidísti, et quæ sunt, et quæ opórtet fíeri post hæc.
+
+℟. Audívi vocem de cælo, tamquam vocem tonítrui magni, allelúja: Regnábit Deus noster in ætérnum, allelúja: \* Quia facta est salus, et virtus, et potéstas Christi ejus, allelúja, allelúja. ℣. Et vox de throno exívit, dicens: Laudem dícite Deo nostro, omnes Sancti ejus, et qui timétis Deum, pusílli et magni. — Quia. Glória Patri. Quia.
+
+#### In II Nocturno
+
+Sermo sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 147 de Tempore}
+
+#### Lectio iv
+
+DIEBUS his sanctis resurrectióni Dómini dedicátis, quantum donánte ipso póssumus,

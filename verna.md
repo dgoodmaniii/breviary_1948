@@ -43928,4 +43928,36 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti: prǽs
 
 **4 — Oratio**
 
-INTERCESSIO nos, quǽsumus, Dómine, beáti N. Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio
+INTERCESSIO nos, quǽsumus, Dómine, beáti N. Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invitat.** Regem Confessórum Dóminum, \* Veníte, adorémus. (T. P. Allelúja.) **Ps. 94** Veníte, exsultémus.
+
+**Hymnus** Iste Conféssor, {RUBRIC: ut supra. [111]}
+
+{RUBRIC: Añæ et Psalmi trium Nocturnorum dicuntur ut in Communi Conf. Pont. [87]; Versus ut (ibidem et) infra.}
+
+##### In I Nocturno
+
+℣. Amávit eum Dóminus, et ornávit eum. (T. P. Allelúja.) ℟. Stolam glóriæ índuit eum. (T. P. Allelúja.)
+
+**Absolutio** Exáudi, Dómine.
+
+**Benedictio** Benedictióne.
+
+De libro Ecclesiástici
+
+**Lectio i** *Cap. 31, 8-11*
+
+BEATUS vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua. Qui probátus est in illo et perféctus est, erit illi glória ætérna. Qui pótuit tránsgredi, et non est transgréssus; fácere mala, et non fecit: ídeo stabilíta sunt bona illíus in Dómino, et eleemósynas illíus enarrábit omnis ecclésia sanctórum.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam: \* Intra in gáudium Dómini tui. (T. P. Allelúja.) ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra in gáudium.
+
+**Benedictio** Unigénitus Dei.
+
+###### Lectio ii *Cap. 32, 18-20, 28; 33, 1-3*
+
+QUI timet Dóminum, excípiet doctrínam ejus: et qui vigiláverint ad illum, invénient benedictiónem. Qui quærit legem, replébitur ab ea: et qui insidióse agit, scandalizábitur in ea. Qui timent Dóminum, invénient judícium justum, et justítias quasi lumen accéndent. Qui credit Deo, atténdit mandátis: et qui confídit in illo, non minorábitur. Timénti Dóminum non occúrrent mala; sed in tentatióne Deus illum conservábit, et liberábit a malis. Sápiens non odit mandáta et justítias, et non illidétur quasi in procélla navis. Homo sensátus credit legi Dei, et lex illi fidélis.

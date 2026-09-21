@@ -22651,3 +22651,45 @@ EXALTABO te, Dómine, quóniam suscepísti me: \* nec delectásti inimícos meos
 Dómine, Deus meus, clamávi ad te, \* et sanásti me.
 
 Dómine, eduxísti ab inférno ánimam meam: \* salvásti me a descendéntibus in lacum.
+
+Psállite Dómino, sancti ejus: \* et confitémini memóriæ sanctitátis ejus.
+
+Quóniam ira in indignatióne ejus: \* et vita in voluntáte ejus.
+
+Ad vésperum demorábitur fletus: \* et ad matutínum lætítia.
+
+Ego autem dixi in abundántia mea: \* Non movébor in ætérnum.
+
+Dómine, in voluntáte tua, \* præstitísti decóri meo virtútem.
+
+Avertísti fáciem tuam a me, \* et factus sum conturbátus.
+
+Ad te, Dómine, clamábo: \* et ad Deum meum deprecábor.
+
+Quæ utílitas in sánguine meo, \* dum descéndo in corruptiónem?
+
+Numquid confitébitur tibi pulvis, \* aut annuntiábit veritátem tuam?
+
+Audívit Dóminus, et misértus est mei: \* Dóminus factus est adjútor meus.
+
+Convertísti planctum meum in gáudium mihi: \* conscidísti saccum meum, et circumdedísti me lætítia:
+
+Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérnum confitébor tibi.
+
+{RUBRIC: †}
+
+**Ant.** Dómine, abstraxísti ab ínferis ánimam meam.
+
+℣. Tu autem, Dómine, miserére mei. ℟. Et resúscita me, et retríbuam eis.
+
+{RUBRIC: Pater noster secreto.}
+
+#### Ex Tractátu sancti Augustíni Epíscopi super Psalmos
+
+{RUBRIC: In Psalm. 63 vers. 7}
+
+#### Lectio iv
+
+ACCEDET homo ad cor altum, et exaltábitur Deus. Illi dixérunt: Quis nos vidébit? Defecérunt scrutántes scrutatiónes, consília mala. Accéssit homo ad ipsa consília, passus est se tenéri ut homo. Non enim tenerétur nisi homo, aut vidérétur nisi homo, aut cæderétur nisi homo, aut crucifigerétur aut morerétur nisi homo. Accéssit ergo homo ad illas omnes passiónes, quæ in illo nihil valérent, nisi esset homo. Sed si ille non esset homo, non liberarétur homo. Accéssit homo ad cor altum, id est, cor secrétum, objíciens aspéctibus humánis hóminem, servans intus Deum: celans formam Dei, in qua æquális est Patri, et ófferens formam servi, qua minor est Patre.
+
+℟. Recéssit pastor noster, fons aquæ vivæ, ad cujus tránsitum sol obscurátus est: \* Nam et ille captus est, qui captívum

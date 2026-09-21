@@ -15333,3 +15333,19 @@ MIsit ergo pópulus in Silo, et tulérunt inde arcam fœderis Dómini exercítuu
 TImuerúntque Philísthiim, dicéntes: Venit Deus in castra; et ingemuérunt dicéntes: Væ nobis, non enim fuit tanta exsultátio heri et nudiustértius: væ nobis. Quis nos salvábit de manu deórum sublímium istórum? Hi sunt dii, qui percussérunt Ægýptum omni plaga in desérto. Confortámini et estóte viri, Philísthiim: ne serviátis Hebrǽis, sicut et illi serviérunt vobis, confortámini et belláte. Pugnavérunt ergo Philísthiim, et cæsus est Israël, et fugit unusquísque in tabernáculum suum, et facta est plaga magna nimis, et cecidérunt de Israël trigínta míllia péditum, et arca Dei capta est, duo quoque fílii Heli mórtui sunt, Ophni et Phínees.
 
 ℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória Patri. Et.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 60 ad pópulum Antioch.}
+
+##### Lectio iv
+
+QUóniam Verbum dicit: Hoc est corpus meum; et assentiámur et credámus et intellectuálibus ipsum óculis intueámur. Nihil enim sensíbile nobis Christus trádidit; sed sensibílibus quidem rebus, at ómnia intelligibília. Itidem et in baptísmate: per rem nempe sensíbilem, aquam, donum confértur; intelligíbile vero quod perfícitur, generátio et renovátio. Si enim incorpóreus esses, nuda et incorpórea tibi dedísset ipse dona; sed quóniam ánima córpori consérta est, in sensibílibus intelligibília tibi præbet. Quot nunc dicunt: Vellem ipsíus formam aspícere, figúram, vestiménta, calceaménta? Ecce, eum vides, ipsum tangis, ipsum mandúcas. Et tu quidem vestiménta cupis vidére; ipse vero tibi concédit non tantum vidére, verum et manducáre, et tángere, et intra te súmere.
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite; hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite.
+
+##### Lectio v
+
+IGitur accédat nemo cum náusea, nemo resolútus; omnes accénsi, omnes ferventes et excitáti. Nam si Judǽi stantes, et calceaménta in pédibus habéntes, et báculos mánibus gestántes, agnum cum festinatióne comedébant: te multo magis opórtet esse solértem. Nam illi quidem in Palæstínam erant profectúri, et proptérea viatórum figúram habébant: tu vero debes in cælum migráre. Quaprópter in ómnibus opórtet te vigiláre; nec enim parva pœna propónitur indígne suméntibus. Cógita, quantum advérsus proditórem indignáris, et contra eos qui illum crucifixérunt: ítaque consídera, ne tu quoque sis reus córporis et sánguinis Christi. Illi sanctíssimum corpus occidérunt, tu vero pollúta súscipis ánima, post tot benefícia. Neque enim illi satis fuit, hóminem fíeri, cólaphis cædi, et crucifígi; verum et semetípsum nobis commíscet; et non fide tantum, verum et ipsa re, nos suum éfficit corpus.

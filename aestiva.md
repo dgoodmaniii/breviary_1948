@@ -14942,4 +14942,18 @@ IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et san
 
 *Tract. 26 in Joann., sub finem*
 
-CUM cibo et potu id áppetant hómines, ut neque esúriant, neque sítiant: hoc veráciter non præstat, nisi iste cibus et potus, qui eos, a
+CUM cibo et potu id áppetant hómines, ut neque esúriant, neque sítiant: hoc veráciter non præstat, nisi iste cibus et potus, qui eos, a quibus súmitur, immortáles et incorruptíbiles facit; id est, sócietas ipsa Sanctórum, ubi pax erit et únitas plena atque perfécta. Proptérea quippe, sicut étiam ante nos hoc intellexérunt hómines Dei, Dóminus noster Jesus Christus corpus et sánguinem suum in eis rebus commendávit, quæ ad unum áliquid redigúntur ex multis. Namque áliud in unum ex multis granis confícitur: áliud in unum ex multis ácinis cónfluit. Dénique jam expónit, quómodo id fiat, quod lóquitur; et quid sit manducáre corpus ejus, et sánguinem bíbere.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In.
+
+**Bened.** Divínum auxílium.
+
+##### Lectio viii
+
+QUI mandúcat carnem meam et bibit meum sánguinem, in me manet, et ego in illo. Hoc est ergo manducáre illam escam, et illum bíbere potum, in Christo manére, et illum manéntem in se habére. Ac per hoc, qui non manet in Christo, et in quo non manet Christus, proculdúbio nec mandúcat spiritáliter carnem ejus, nec bibit ejus sánguinem, licet carnáliter et visibíliter premat déntibus Sacraméntum córporis et sánguinis Christi: sed magis tantæ rei sacraméntum ad judícium sibi mandúcat et bibit, quia immúndus præsúmpsit ad Christi accédere Sacraménta, quæ áliquis non digne sumit, nisi qui mundus est; de quibus dícitur: Beáti mundo corde, quóniam ipsi Deum vidébunt.
+
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me. ℣. Cibávit illum Dóminus pane vitæ et intelléctus. — Et qui. Glória Patri. Et.
+
+##### Lectio ix
+
+SIcut, inquit, misit me vivens Pater, et ego vivo propter Patrem: et qui mandúcat me, et ipse vivet propter me. Ac si díceret: Ut ego vivam propter Patrem, id est, ad illum tamquam ad majórem réferam vitam meam, exinanítio mea fecit, in qua me misit; ut autem quisquam vivat propter me, participátio facit, qua mandúcat me. Ego ítaque humiliátus vivo propter

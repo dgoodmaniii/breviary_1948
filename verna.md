@@ -36225,4 +36225,24 @@ DEUS, mæréntium consolátor et in te sperántium salus, qui beátæ Mónicæ p
 
 MONICA, sancti Augustíni dupliciter mater, quia eum et mundo et cælo péperit, maríto mórtuo, quem senectúte conféctum Jesu Christo conciliávit, castam et opéribus misericórdiæ exércitam viduitátem agébat; in assíduis vero ad Deum oratiónibus pro fílio, qui in Manichæórum sectam incíderat, lácrimas effundébat. Quem étiam Mediolánum secúta est; ubi ipsum frequénter hortabátur, ut ad epíscopum Ambrósium se conférret. Quod cum ille fecísset, ejus et públicis conciónibus et privátis collóquiis cathólicæ fídei veritátem edóctus, ab eódem baptizátus est.
 
-℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua, allelúja. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet te mirabíliter déxtera tua, allelúja.
+
+###### Lectio v
+
+MOX in Africam redeúntes, cum ad Ostia Tiberína constitíssent, íncidit in febrem. Quo in morbo cum eam quodam die ánima defecísset, ut se collégit, Ubi, inquit, eram? Et astántes íntuens, Pónite hic matrem vestram: tantum vos rogo, ut ad altáre Dómini meminéritis mei. Nono autem die beáta múlier ánimam Deo réddidit. Ejus corpus ibi in ecclésia sanctæ Aureæ sepúltum est: quod póstea, Martíno quinto summo Pontífice, Romam translátum, in ecclésia sancti Augustíni honorífice cónditum est.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus óleo lætítiæ, allelúja. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+###### Lectio vi
+
+{RUBRIC: Liber 9 Conf. cap. 12}
+
+SUBDIT vero Augustínus de matris morte dísserens: Neque enim decére arbitrabámur funus illud quéstubus lacrimósis gemitibúsque celebráre, quia illa nec mísere, nec omníno moriebátur: hoc et documéntis morum ejus, et fide non ficta rationibúsque certis tenebámus. Atque inde paulátim reducébam in prístinum sensum ancíllam tuam, conversationémque ejus piam in te et sanctam, in nos blandam atque morígeram, qua súbito destitútus sum; et líbuit flere de illa et pro illa. Et si quis peccátum invénerit, flevísse me matrem meam exígua parte horæ, matrem óculis meis mórtuam, quæ me multos annos fléverat, ut óculis suis víverem, non irrídeat; sed pótius, si est grandi caritáte, pro peccátis meis fleat ipse ad te Patrem ómnium fratrum Christi tui.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur, allelúja. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+MONICA, sancti Augustíni piíssima mater, uxórum et viduárum ex-

@@ -38389,3 +38389,21 @@ DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditi�
 **Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
 
 ℣. Sancti et justi.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Joánnem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [104]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+BEDA présbyter, Girvi in Británniæ et Scótiæ fínibus ortus, septénnis sancto Benedícto Biscópio abbáti Wiremuthénsi educándus tráditur. Mónachus deínde factus, vitam sic instítuit, ut, dum se ártium et doctrinárum stúdiis totum impénderet, nihil umquam de regulári discíplina remítteret. Nullum fuit doctrínæ genus, in quo non esset diligentíssime versátus; sed præcípua illi cura divinárum Scripturárum meditátio, quarum senténtiam ut plénius assequerétur, Grǽci Hebraicíque sermónis notítiam est adéptus. Tricésimo ætátis anno, abbátis sui jussu sacérdos initiátus, statim, suasóre Acca Hagulstadénsi epíscopo, sacros explanáre libros aggréssus est: in quo sanctórum Patrum doctrínis ádeo inhǽsit, ut nihil proférret nisi illórum judício comprobátum, eorúmdem étiam fere verbis usus. Otium perósus semper, ex lectióne ad oratiónem transíbat ac vicíssim ex oratióne ad lectiónem: in qua ádeo ánimo inflammabátur, ut sæpe inter legéndum et docéndum lácrimis perfunderétur. Ne autem rerum fluxárum curis distraherétur, delátum abbátis munus constantíssime detrectávit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam, allelúja. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+SCIENTIÆ ac pietátis laude Bedæ nomen sic brevi cláruit, ut sanctus Sérgius Papa de eo Romam arcesséndo cogitáverit; quo difficíllimis scílicet, quæ de rebus sacris exórtæ erant, quæstiónibus definiéndis conférret óperam. Emendándis fidélium móribus, fídei vindicándæ atque asseréndæ libros plures conscrípsit,

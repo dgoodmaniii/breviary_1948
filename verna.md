@@ -48647,3 +48647,15 @@ Réquiem ætérnam.
 Pater noster, {RUBRIC: totum secreto.}
 
 {RUBRIC: Lectiones leguntur sine Absolutione, Benedictionibus et Titulo.}
+
+**Lectio i** *Job 7, 16-21*
+
+PARCE mihi, Dómine; nihil enim sunt dies mei. Quid est homo, quia magníficas eum? aut quid appónis erga eum cor tuum? Vísitas eum dilúculo, et súbito probas illum. Usquequo non parcis mihi, nec dimíttis me, ut glútiam salívam meam? Peccávi, quid fáciam tibi, o custos hóminum? quare posuísti me contrárium tibi, et factus sum mihimetípsi gravis? Cur non tollis peccátum meum, et quare non aufers iniquitátem meam? Ecce nunc in púlvere dórmiam: et si mane me quæsíeris, non subsístam.
+
+{RUBRIC: Lectiones terminantur sine} Tu autem, {RUBRIC: vel alia conclusione.}
+
+℟. Credo quod Redémptor meus vivit, et in novíssimo die de terra surrectúrus sum, \* Et in carne mea vidébo Deum, Salvatórem meum. ℣. Quem visúrus sum ego ipse, et non álius; et óculi mei conspectúri sunt. — Et.
+
+**Lectio ii** *Job 10, 1-12*
+
+TÆDET ánimam meam vitæ meæ, dimíttam advérsum me elóquium meum, loquar in amaritúdine ánimæ meæ. Dicam Deo: Noli me condemnáre: índica mihi, cur me ita

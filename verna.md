@@ -30228,3 +30228,49 @@ DIVINA mystéria, præsértim vero Christi Dómini passiónem, tanto mentis ard�
 {RUBRIC: In III Nocturno Homilia in Evangelium} Símile est regnum cælórum, {RUBRIC: de Communi non Virginum. [154]}
 
 {RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+###### Oratio
+
+DEUS, qui beátam Francíscam fámulam tuam, inter cétera grátiæ tuæ dona, familiári Angeli consuetúdine decorásti: concéde quǽsumus; ut intercessiónis ejus auxílio Angelórum consórtium cónsequi mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Manum suam \* apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+{RUBRIC: Et fit Commemoratio sequentis et Feriæ.}
+
+---
+
+### Die 10 Martii
+
+#### Sanctorum Quadraginta Martyrum
+
+{RUBRIC: Semiduplex [53]}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: In I Nocturno Lectiones} Fratres: Debitóres, {RUBRIC: de Communi plurimorum Martyrum extra Tempus Paschale. [57]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+LICINIO imperatóre et Agricoláo præside, ad Sebásten Arméniæ urbem, quadragínta mílitum fides in Jesum Christum et fortitúdo in cruciátibus perferéndis enítuit. Qui sǽpius in horríbilem cárcerem detrúsi, vinculísque constrícti, cum ora ipsórum lapídibus contúsa fuíssent, híemis témpore frigidíssimo, nudi sub apérto áëre supra stagnum rigens pernoctáre jussi sunt, ut frígore congeláti necaréntur. Una autem erat ómnium orátio: Quadragínta in stádium ingréssi sumus, quadragínta item, Dómine, corona donémur, ne una quidem huic número desit. Est in honóre hic númerus, quem tu quadragínta

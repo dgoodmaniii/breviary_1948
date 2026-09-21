@@ -16326,4 +16326,52 @@ VErum, ad cultum Sacratíssimi Cordis Jesu plene perfectéque constituéndum eum
 
 ##### Lectio vi
 
-ANno tandem millésimo septingentésimo sexagésimo quinto, Clemens décimus tértius Póntifex Máximus offícium et missam in honórem Sacratíssimi Cordis Jesu approbávit; Pius vero nonus festum ad univérsam Ecclésiam exténdit. Exínde, cultus Sacratíssimi Cordis, quasi flumen exúndans, prólutis impediméntis ómnibus, per totum se orbem effúdit et, novo illucescénte sæculo, jubiléo indícto, Leo décimus tértius humánum genus univérsum Sacratíssimo Cordi devótum vóluit. Quæ consecrátio, in ómnibus quidem cathólici orbis ecclésiis, sollémni ritu perácta, ingens áttulit devotiónis hujus increméntum, et ad eam non solum pópulos, verum étiam singuláres famílias addúxit, quæ Divíno Cordi innumerábiles se dévovent, regióque ejus império subjíciunt. Dénique, Pius undécimus Póntifex Máximus, quo plénius festi sollémnitas pópuli christiáni devotióni tam late paténti respondéret, Sacratíssimi Cordis Jesu festum ad ritum dúplicem primæ classis cum octáva evéxit; ac prætérea, ut violáta jura Christi summi Regis ac Dómini amantíssimi resarciréntur, populorúmque peccáta defleréntur, eódem festo die piaculárem precatiónem in
+ANno tandem millésimo septingentésimo sexagésimo quinto, Clemens décimus tértius Póntifex Máximus offícium et missam in honórem Sacratíssimi Cordis Jesu approbávit; Pius vero nonus festum ad univérsam Ecclésiam exténdit. Exínde, cultus Sacratíssimi Cordis, quasi flumen exúndans, prólutis impediméntis ómnibus, per totum se orbem effúdit et, novo illucescénte sæculo, jubiléo indícto, Leo décimus tértius humánum genus univérsum Sacratíssimo Cordi devótum vóluit. Quæ consecrátio, in ómnibus quidem cathólici orbis ecclésiis, sollémni ritu perácta, ingens áttulit devotiónis hujus increméntum, et ad eam non solum pópulos, verum étiam singuláres famílias addúxit, quæ Divíno Cordi innumerábiles se dévovent, regióque ejus império subjíciunt. Dénique, Pius undécimus Póntifex Máximus, quo plénius festi sollémnitas pópuli christiáni devotióni tam late paténti respondéret, Sacratíssimi Cordis Jesu festum ad ritum dúplicem primæ classis cum octáva evéxit; ac prætérea, ut violáta jura Christi summi Regis ac Dómini amantíssimi resarciréntur, populorúmque peccáta defleréntur, eódem festo die piaculárem precatiónem in ómnibus christiáni orbis templis quotánnis recitándam mandávit.
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum quóniam magnus es tu, et fáciens mirabília. — Et adorábunt. Glória Patri. Et adorábunt.
+
+#### In III Nocturno
+
+**Ant.** Qui dilígitis Dóminum, \* confitémini memóriæ sanctificatiónis ejus.
+
+##### Psalmus 96
+
+DOminus regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et cálígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Qui dilígitis Dóminum, confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Vidérunt \* omnes términi terræ salutáre Dei nostri.
+
+##### Psalmus 97
+
+CAntáte Dómino cánticum novum: \* quia mirabília fecit.
+
+Salvábit sibi déxtera ejus: \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum: \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.

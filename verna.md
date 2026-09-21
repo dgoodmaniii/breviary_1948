@@ -36944,3 +36944,51 @@ Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
 Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
 
 Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+###### Psalmus 102
+
+BENEDIC, ánima mea, Dómino: \* et ómnia, quæ intra me sunt, nómini sancto ejus.
+
+Bénedic, ánima mea, Dómino: \* et noli oblivísci omnes retributiónes ejus.
+
+Qui propitiátur ómnibus iniquitátibus tuis: \* qui sanat omnes infirmitátes tuas.
+
+Qui rédimit de intéritu vitam tuam: \* qui corónat te in misericórdias et miseratiónibus.
+
+Qui replet in bonis desidérium tuum: \* renovábitur ut áquilæ juvéntus tua:
+
+Fáciens misericórdias Dóminus: \* et judícium ómnibus injúriam patiéntibus.
+
+Notas fecit vias suas Móysi, \* fíliis Israël voluntátes suas.
+
+Miserátor, et miséricors Dóminus: \* longánimis, et multum miséricors.
+
+Non in perpétuum irascétur: \* neque in ætérnum comminábitur.
+
+Non secúndum peccáta nostra fecit nobis: \* neque secúndum iniquitátes nostras retríbuit nobis.
+
+Quóniam secúndum altitúdinem cæli a terra: \* corroborávit misericórdiam suam super timéntes se.
+
+Quantum distat ortus ab occidénte: \* longe fecit a nobis iniquitátes nostras.
+
+Quómodo miserétur pater filiórum, misértus est Dóminus timéntibus se: \* quóniam ipse cognóvit figméntum nostrum.
+
+Recordátus est quóniam pulvis sumus: \* homo, sicut fœnum dies ejus, tamquam flos agri sic efflorébit.
+
+Quóniam spíritus pertransíbit in illo, et non subsístet: \* et non cognóscet ámplius locum suum.
+
+Misericórdia autem Dómini ab ætérno, \* et usque

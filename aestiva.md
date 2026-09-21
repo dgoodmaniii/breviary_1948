@@ -7688,3 +7688,157 @@ Etenim in corde iniquitátes operámini: \* in terra injustítias manus vestræ 
 Alienáti sunt peccatóres a vulva, erravérunt ab útero: \* locúti sunt falsa.
 
 Furor illis secúndum similitúdinem serpéntis: \* sicut áspidis surdæ, et obturántis aures suas.
+
+Quæ non exáudiet vocem incantántium: \* et venéfici incantántis sapiénter.
+
+Deus cónteret dentes eórum in ore ipsórum: \* molas leónum confrínget Dóminus.
+
+Ad níhilum devénient tamquam aqua decúrrens: \* inténdit arcum suum donec infirméntur.
+
+Sicut cera, quæ fluit, auferéntur: \* supercécidit ignis, et non vidérunt solem.
+
+Priúsquam intellígerent spinæ vestræ rhamnum: \* sicut vivéntes, sic in ira absórbet eos.
+
+Lætábitur justus cum víderit vindíctam: \* manus suas lavábit in sánguine peccatóris.
+
+Et dicet homo: Si útique est fructus justo: \* útique est Deus júdicans eos in terra.
+
+**Ant.** In Deo sperávi, non timébo quid fáciat mihi homo.
+
+#### In Officio feriali
+
+**Capitulum** *Rom. 13, 8*
+
+NEmini quidquam debeátis, nisi ut ínvicem diligátis: qui enim díligit próximum, legem implévit.
+
+℟. br. Benedícam Dóminum \* In omni témpore. Benedícam. ℣. Semper laus ejus in ore meo. In. Glória Patri. Benedícam. ℣. Dóminus regit me, et nihil mihi déerit. ℟. In loco páscuæ ibi me collocávit.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 20}
+
+---
+
+## Ad Nonam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RERUM, Deus, tenax vigor,
+Immótus in te pérmanens,
+Lucis diúrnæ témpora
+Succéssibus detérminans:
+
+Largíre lumen véspere,
+Quo vita nusquam décidat,
+Sed prǽmium mortis sacræ
+Perénnis instet glória.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Deus meus.
+
+### Psalmus 58, i
+
+ERipe me de inimícis meis, Deus meus: \* et ab insurgéntibus in me líbera me.
+
+Eripe me de operántibus iniquitátem: \* et de viris sánguinum salva me.
+
+Quia ecce cepérunt ánimam meam: \* irruérunt in me fortes.
+
+Neque iníquitas mea, neque peccátum meum, Dómine: \* sine iniquitáte cucúrri, et diréxi.
+
+Exsúrge in occúrsum meum, et vide: \* et tu, Dómine, Deus virtútum, Deus Israël,
+
+Inténde ad visitándas omnes gentes: \* non misereáris ómnibus, qui operántur iniquitátem.
+
+Converténtur ad vésperam: et famem patiéntur ut canes, \* et circuíbunt civitátem.
+
+Ecce, loquéntur in ore suo, et gládius in lábiis eórum: \* quóniam quis audívit?
+
+Et tu, Dómine, deridébis eos: \* ad níhilum dedúces omnes gentes.
+
+Fortitúdinem meam ad te custódiam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia ejus prævéniet me.
+
+### Psalmus 58, ii
+
+DEus osténdet mihi super inimícos meos, ne occídas eos: \* nequándo obliviscántur pópuli mei.
+
+Dispérge illos in virtúte tua: \* et depóne eos, protéctor meus, Dómine:
+
+Delíctum oris eórum, sermónem labiórum ipsórum: \* et comprehendántur in supérbia sua.
+
+Et de exsecratióne et mendácio annuntiabúntur in consummatióne: \* in ira consummatiónis, et non erunt.
+
+Et scient quia Deus dominábitur Jacob: \* et fínium terræ.
+
+Converténtur ad vésperam: et famem patiéntur ut canes, \* et circuíbunt civitátem.
+
+Ipsi dispergéntur ad manducándum: \* si vero non fúerint saturáti, et murmurábunt.
+
+Ego autem cantábo fortitúdinem tuam: \* et exsultábo mane misericórdiam tuam.
+
+Quia factus es suscéptor meus, \* et refúgium meum, in die tribulatiónis meæ.
+
+Adjútor meus, tibi psallam, quia, Deus, suscéptor meus es: \* Deus meus, misericórdia mea.
+
+### Psalmus 59
+
+DEus, repulísti nos, et destruxísti nos: \* irátus es, et misértus es nobis.
+
+Commovísti terram, et conturbásti eam: \* sana contritiónes ejus, quia commóta est.
+
+Ostendísti pópulo tuo dura: \* potásti nos vino compunctiónis.
+
+Dedísti metuéntibus te significatiónem: \* ut fúgiant a fácie arcus:
+
+Ut liberéntur dilécti tui: \* salvum fac déxtera tua, et exáudi me.
+
+Deus locútus est in sancto suo: \* Lætábor, et partíbor Síchimam: et convállem tabernaculórum metíbor.
+
+Meus est Gálaad, et meus est Manásses: \* et Ephraïm fortitúdo cápitis mei.
+
+Juda rex meus: \* Moab olla spei meæ.
+
+In Idumǽam exténdam calceaméntum meum: \* mihi aliénigenæ súbditi sunt.
+
+Quis dedúcet me in civitátem munítam? \* quis dedúcet me usque in Idumǽam?
+
+Nonne tu, Deus, qui repulísti nos, \* et non egrediéris, Deus, in virtútibus nostris?
+
+Da nobis auxílium de tribulatióne: \* quia vana salus hóminis.
+
+In Deo faciémus virtútem: \* et ipse ad níhilum dedúcet tribulántes nos.
+
+**Ant.** Deus meus, misericórdia tua prævéniet me.
+
+#### In Officio feriali
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}

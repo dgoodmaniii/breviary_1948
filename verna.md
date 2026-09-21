@@ -27436,3 +27436,25 @@ Incipit Epístola tértia beáti Joánnis Apóstoli
 SENIOR Gajo caríssimo, quem ego díligo in veritáte. Caríssime, de ómnibus oratiónem fácio próspere te íngredi et valére, sicut próspere agit ánima tua. Gavísus sum valde veniéntibus frátribus, et testimónium perhibéntibus veritáti tuæ, sicut tu in veritáte ámbulas. Majórem horum non hábeo grátiam, quam ut áudiam fílios meos in veritáte ambuláre.
 
 ℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+CARISSIME, fidéliter facis quidquid operáris in fratres, et hoc in peregrínos, qui testimónium reddidérunt caritáti tuæ in conspéctu ecclésiæ: quos benefáciens dedúces digne Deo. Pro nómine enim ejus profécti sunt, nihil accipiéntes a géntibus. Nos ergo debémus suscípere hujúsmodi, ut cooperatóres simus veritátis. Scripsíssem fórsitan ecclésiæ: sed is, qui amat primátum gérere in eis, Diótrephes, non récipit nos. Propter hoc, si vénero, commonébo ejus ópera, quæ facit verbis malígnis gárriens in nos: et, quasi non ei ista suffíciant, neque ipse súscipit fratres, et eos, qui suscípiunt, próhibet et de ecclésia éjicit.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.
+
+#### Lectio iii
+
+CARISSIME, noli imitári malum, sed quod bonum est. Qui bene facit, ex Deo est: qui male facit, non vidit Deum. Demétrio testimónium rédditur ab ómnibus, et ab ipsa veritáte, sed et nos testimónium perhibémus: et nosti quóniam testimónium nostrum verum est. Multa hábui tibi scríbere: sed nólui per atraméntum et cálamum scríbere tibi. Spero autem prótinus te vidére, et os ad os loquémur. Pax tibi. Salútant te amíci. Salúta amícos nominátim.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+De Sermóne sancti Augustíni Epíscopi
+
+{RUBRIC: Idem Sermo 176, in fine}
+
+#### Lectio iv
+
+SALVATOR noster, caríssimi, si non in nostra carne diábolum triumphávit, se exércuit, non nobis vicit. Si non in nostro córpore resurréxit, conditióni nostræ resurgéndo nihil cóntulit. Hæc qui dicit, suscéptæ et assúmptæ carnis non intélligit ratiónem, confúndit órdinem, evácuat utilitátem. Si non in nostra carne perégit medicínam, solam ergo ex hómine nascéndi elégit injú-

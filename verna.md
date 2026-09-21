@@ -24314,4 +24314,31 @@ VIR autem quidam erat in Cæsaréa, nómine Cornélius, centúrio cohórtis, qu�
 
 #### Lectio ii
 
-POSTERA autem die iter illis faciéntibus, et appropinquántibus civitáti, ascéndit Petrus in superióra ut oráret circa horam sextam. Et, cum esuríret, vóluit gustáre. Parántibus autem illis, cécidit super eum mentis excéssus: et vidit cælum apértum, et descéndens vas quoddam, velut línteum magnum, quátuor inítiis summítti de cælo in terram, in quo erant ómnia quadrupédia, et serpéntia terræ, et volatília cæli. Et facta est vox ad eum: Surge, Petre, occíde, et mandúca. Ait autem Petrus: Absit, Dómine, quia numquam manducávi omne commúne et immúndum. Et vox íterum secúndo ad eum: Quod Deus purificávit, tu commúne ne díxeris. Hoc autem factum est per ter: et statim recéptum est vas in cælum. Et dum intra se hæsitáret Petrus, quidnam esset vísio, quam vidís-
+POSTERA autem die iter illis faciéntibus, et appropinquántibus civitáti, ascéndit Petrus in superióra ut oráret circa horam sextam. Et, cum esuríret, vóluit gustáre. Parántibus autem illis, cécidit super eum mentis excéssus: et vidit cælum apértum, et descéndens vas quoddam, velut línteum magnum, quátuor inítiis summítti de cælo in terram, in quo erant ómnia quadrupédia, et serpéntia terræ, et volatília cæli. Et facta est vox ad eum: Surge, Petre, occíde, et mandúca. Ait autem Petrus: Absit, Dómine, quia numquam manducávi omne commúne et immúndum. Et vox íterum secúndo ad eum: Quod Deus purificávit, tu commúne ne díxeris. Hoc autem factum est per ter: et statim recéptum est vas in cælum. Et dum intra se hæsitáret Petrus, quidnam esset vísio, quam vidís-set: ecce viri, qui missi erant a Cornélio, inquiréntes domum Simónis, astitérunt ad jánuam.
+
+℟. Surréxit pastor bonus, qui ánimam suam pósuit pro óvibus suis, et pro grege suo mori dignátus est: \* Allelúja, allelúja, allelúja. ℣. Etenim Pascha nostrum immolátus est Christus. — Allelúja.
+
+{RUBRIC: In Octavis simplicibus et in Officio sanctæ Maríæ in Sábbato:} Glória Patri. Allelúja.
+
+#### Lectio iii
+
+*Cap. 10, 34-41*
+
+APERIENS autem Petrus os suum, dixit: In veritáte cómperi quia non est personárum accéptor Deus, sed in omni gente qui timet eum, et operátur justítiam, accéptus est illi. Verbum misit Deus fíliis Israël, annúntians pacem per Jesum Christum: (hic est ómnium Dóminus). Vos scitis quod factum est verbum per univérsam Judǽam: incípiens enim a Galilǽa post baptísmum, quod prædicávit Joánnes, Jesum a Názareth: quómodo unxit eum Deus Spíritu Sancto, et virtúte, qui pertránsiit benefaciéndo, et sanándo omnes oppréssos a diábolo, quóniam Deus erat cum illo. Et nos testes sumus ómnium, quæ fecit in regióne Judæórum, et Jerúsalem, quem occidérunt suspendéntes in ligno. Hunc Deus suscitávit tértia die, et dedit eum maniféstum fíeri non omni pópulo, sed téstibus præordinátis a Deo: nobis, qui manducávimus et bíbimus cum illo, postquam resurréxit a mórtuis.
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+## Ad Vesperas
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Sábbato, ut in Psaltério. 332}
+
+**Capit.** *1 Petri, 2, 21-22*
+
+CARISSIMI: Christus passus est pro nobis, vobis relínquens exémplum, ut sequámini vestígia ejus. Qui peccátum non fecit, nec invéntus est dolus in ore ejus.
+
+#### Hymnus
+
+AD régias Agni dapes,
+Stolis amícti cándidis,
+Post tránsitum Maris Rubri,
+Christo canámus Príncipi:

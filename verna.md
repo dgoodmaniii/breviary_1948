@@ -38142,4 +38142,56 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-BERNARDINUS Albizésca, nóbili Senénsi família ortus, inter prima grammáticæ stúdia, negléctis puerílibus ludis, pietátis opéribus ánimum inténdit, beátæ Vírginis cúltui præcípue addíctus. Caritáte et misericórdia in páuperes insígnis, eórum servítio Senis in hospitáli beátæ Maríæ de Scala se mancipávit. De capesséndo religiósæ vitæ institúto delíberans, Deo sic disponénte, beáti Francísci órdinem præ céteris optávit, in quo humilitáte, patiéntia, alíisque religiósi hóminis virtútibus excélluit. Prædicándi ónere a superióribus suscépto, cum se minus idóneum agnósceret ob vocis exilitátem et raucitátem, Dei ope implóráta, prodigióse ab hoc impediménto liberátus est. Urbes atque óppida concúrsans, in nómine Jesu, quem semper in ore et péctore gerébat, cívium ubíque discórdias exstínxit, et collápsam pietátem morésque verbo et exémplo magna ex parte restítuit. Libros pie doctéque conscrípsit. Plenus méritis et miráculis clarus, annos natus sex ac sexagínta, in urbe
+BERNARDINUS Albizésca, nóbili Senénsi família ortus, inter prima grammáticæ stúdia, negléctis puerílibus ludis, pietátis opéribus ánimum inténdit, beátæ Vírginis cúltui præcípue addíctus. Caritáte et misericórdia in páuperes insígnis, eórum servítio Senis in hospitáli beátæ Maríæ de Scala se mancipávit. De capesséndo religiósæ vitæ institúto delíberans, Deo sic disponénte, beáti Francísci órdinem præ céteris optávit, in quo humilitáte, patiéntia, alíisque religiósi hóminis virtútibus excélluit. Prædicándi ónere a superióribus suscépto, cum se minus idóneum agnósceret ob vocis exilitátem et raucitátem, Dei ope implóráta, prodigióse ab hoc impediménto liberátus est. Urbes atque óppida concúrsans, in nómine Jesu, quem semper in ore et péctore gerébat, cívium ubíque discórdias exstínxit, et collápsam pietátem morésque verbo et exémplo magna ex parte restítuit. Libros pie doctéque conscrípsit. Plenus méritis et miráculis clarus, annos natus sex ac sexagínta, in urbe Aquila in Vestínis, beáto fine quiévit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ecce nos relíquimus, de Comm. Abbatum 1 loco. [125]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensionis ix Lectio de Homilia Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui, allelúja.
+
+###### Oratio
+
+DOMINE Jesu, qui beáto Bernardíno Confessóri tuo exímium sancti nóminis tui amórem tribuísti: ejus, quǽsumus, méritis et intercessióne, spíritum nobis tuæ dilectiónis benígnus infúnde: Qui vivis.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu, allelúja.
+
+---
+
+### Die 25 Maji
+
+#### S. Gregorii VII
+
+{RUBRIC: Papæ et Confessoris}
+
+{RUBRIC: Duplex [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.
+
+###### Oratio
+
+DEUS, in te sperántium fortitúdo, qui beátum Gregórium Confessórem tuum atque Pontíficem, pro tuénda Ecclésiæ libertáte, virtúte constántiæ roborásti: da nobis, ejus exémplo et intercessióne, ómnia adversántia fórtiter superáre. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio S. Urbani I Papæ et Martyris:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde: et per beátum Urbánum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.

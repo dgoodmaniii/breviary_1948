@@ -43756,4 +43756,32 @@ OSTENDIT Dóminus fátuos esse judicándos, qui, temporálium bonórum vel cópi
 
 ##### Pro Doctore non Pontifice
 
-℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium popu-
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse intercédat pro peccátis ómnium populórum.
+
+###### Lectio viii
+
+ERGO ad níhilum valet sal infatuátum, nisi ut mittátur foras et calcétur ab homínibus. Non ítaque calcátur ab homínibus, qui pátitur persecutiónem; sed qui, persecutiónem timéndo, infatuátur. Calcári enim non potest nisi inférior; sed inférior non est, qui, quamvis córpore multa in terra sustíneat, corde tamen fixus in cælo est.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. (T. P. Allelúja.) ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+VOS estis lumen mundi. Quómodo dixit supérius sal terræ, sic nunc dicit lumen mundi. Nam neque supérius ista terra accipiénda est, quam pédibus corpóreis calcámus; sed hómines, qui in terra hábitant, vel étiam peccatóres, quorum condiéndis et exstinguéndis putóribus apostólicum salem Dóminus misit. Et hic mundum non cælum et terram, sed hómines, qui sunt in mundo, vel díligunt mundum, opórtet intélligi; quibus illuminándis Apóstoli missi sunt. Non potest cívitas abscóndi super montem pósita; id est, fundáta super insígnem magnámque justítiam, quam signíficat étiam ipse mons, in quo dísputat Dóminus.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+## II Alia Homilia
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+Homilía sancti Hilárii Epíscopi
+
+{RUBRIC: Comment. in Matth., can. 4}
+
+VOS estis sal terræ. Quod si sal infatuátum fúerit, ad níhilum valet id quod saliétur. Sal, ut árbitror, terræ nullum est. Quómodo ergo Apóstolos sal terræ nuncupávit? Sed propríetas est quærénda dictórum, quam et Apostolórum offícium et ipsíus salis natúra

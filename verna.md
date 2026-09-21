@@ -46128,3 +46128,25 @@ Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus: \* quóniam 
 *Cap. 19, 1-10*
 
 IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 8 in Luc., prope finem}
+
+ZACHÆUS, statúra pusíllus, hoc est, nulla nobilitátis ingénitæ dignitáte sublímis, exíguus méritis sicut pópulus natiónum, audíto Dómini Salvatóris advéntu, quem sui non recéperant, vidére cupiébat. Sed nemo fácile Jesum videt; nemo potest Jesum vidére constitútus in terra. Et, quia non Prophétas, non Legem habébat, tamquam formæ grátiam naturális, ascéndit in sycómorum, vanitátem scílicet Judæórum vestígio suo próterens, erráta quoque córrigens superióris ætátis. Et ídeo Jesum in interióris domus recépit hospítio.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. (T. P. Allelúja.) ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et.
+
+**Bened.** Divínum auxílium.
+
+###### Lectio viii
+
+ET bene ascéndit in árborem, ut arbor bona bonos fructus fáceret, ac, naturáli excísus oleástro et contra natúram insértus in bonam olívam, fructum posset Legis afférre. Radix enim sancta, etsi rami inútiles. Quorum infructuósam glóriam plebs géntium, fide resurrectiónis, quasi quadam córporis elevatióne, transcéndit. Zachǽus ergo in sycómoro, cæcus in via: quorum álterum Dóminus miseratúrus exspéctat, álterum mansiónis suæ claritáte nobílitat; álterum sanatúrus intérrogat, apud álterum se, non invitátus, invítat. Sciébat enim úberem hospítii sui esse mercédem. Sed tamen, etsi nondum vocem invitántis audíerat, jam víderat afféctum.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+**Benedictio.** Ad societátem.
+
+###### Lectio ix
+
+VERUM, ne cæcum illum, tamquam fastidiósi páuperum, cito reliquísse videámur et transísse ad dívitem, exspectémus eum, quia exspectávit et Dóminus; interrogémus eum, quia interrogávit et

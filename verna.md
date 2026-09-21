@@ -45381,4 +45381,67 @@ THESAURUS autem cæléste est desidérium; ager vero, in quo thesáurus abscónd
 
 **2** In odórem \* unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis. (T. P. Allelúja.)
 
-**3** Jam hiems tránsiit, \* imber ábiit et recéssit:
+**3** Jam hiems tránsiit, \* imber ábiit et recéssit: surge, amíca mea, et veni. (T. P. Allelúja.)
+
+**4** Veni, elécta mea, \* et ponam in te thronum meum. (T. P. Allelúja.)
+
+**5** Ista est speciósa \* inter fílias Jerúsalem. (T. P. Allelúja.)
+
+##### Pro Martyre tantum
+
+###### Capitulum
+
+*Eccli. 51, 1-3*
+
+CONFITEBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+##### Pro nec Virgine nec Mart.
+
+###### Capitulum
+
+*Prov. 31, 10-11*
+
+MULIEREM fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+
+##### Hymnus
+
+FORTEM viríli péctore
+Laudémus omnes féminam,
+Quæ sanctitátis glória
+Ubíque fulget ínclita.
+
+Hæc sancto amóre sáucia,
+Dum mundi amórem nóxium
+Horréscit, ad cæléstia
+Iter perégit árduum.
+
+Carnem domans jejúniis,
+Dulcíque mentem pábulo
+Oratiónis nútriens,
+Cæli potítur gáudiis.
+
+Rex Christe, virtus fórtium,
+Qui magna solus éfficis,
+Hujus precátu, quǽsumus,
+Audi benígnus súpplices.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus. (T. P. Allelúja.)
+
+##### Pro Martyre tantum
+
+**1 — Oratio**
+
+DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ N. Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+##### Pro nec Virgine nec Mart.
+
+**2 — Oratio**
+
+EXAUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. festivitáte gaudémus; ita piæ devo-

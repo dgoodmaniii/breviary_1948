@@ -13917,3 +13917,55 @@ OMnes gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
 Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
 
 Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+**Ant.** Te invocámus, te laudámus, te adorámus, o beáta Trínitas.
+
+**Ant.** Spes nostra, \* salus nostra, honor noster, o beáta Trínitas.
+
+##### Psalmus 47
+
+MAgnus Dóminus, et laudábilis nimis \* in civitáte Dei nostri, in monte sancto ejus.
+
+Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
+
+Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.
+
+Quóniam ecce reges terræ congregáti sunt: \* convenérunt in unum.
+
+Ipsi vidéntes sic admiráti sunt, conturbáti sunt, commóti sunt: \* tremor apprehéndit eos.
+
+Ibi dolóres ut parturiéntis: \* in spíritu vehementi cónteres naves Tharsis.
+
+Sicut audívimus, sic vídimus in civitáte Dómini virtútum, in civitáte Dei nostri: \* Deus fundávit eam in ætérnum.
+
+Suscépimus, Deus, misericórdiam tuam, \* in médio templi tui.
+
+Secúndum nomen tuum, Deus, sic et laus tua in fines terræ: \* justítia plena est déxtera tua.
+
+Lætétur mons Sion, et exsúltent fíliæ Judæ, \* propter judícia tua, Dómine.
+
+Circúmdate Sion, et complectímini eam: \* narráte in túrribus ejus.
+
+Pónite corda vestra in virtúte ejus: \* et distribúite domos ejus, ut enarrétis in progénie áltera.
+
+Quóniam hic est Deus, Deus noster in ætérnum, et in sæculum sæculi: \* ipse reget nos in sæcula.
+
+**Ant.** Spes nostra, salus nostra, honor noster, o beáta Trínitas.
+
+**Ant.** Líbera nos, \* salva nos, vivífica nos, o beáta Trínitas.
+
+##### Psalmus 71
+
+DEus, judícium tuum regi da: \* et justítiam tuam fílio regis:

@@ -19982,4 +19982,16 @@ ET dixit Dóminus ad me: Ab Aquilóne pandétur malum super omnes habitatóres t
 
 #### Lectio iv
 
-IN ómnibus, dilectíssimi, solemnitátibus christiánis, non ignorámus paschále sacraméntum esse præcípuum: cui condígne et cóngrue suscipiéndo, totíus quidem nos témporis institúta reformant: sed devotiónem nostram præséntes vel máxime dies éxigunt, quos illi sublimíssimo divínæ misericórdiæ sacraménto scimus esse contíguos. In quibus mérito a sanctis Apóstolis per doctrínam Spíritus Sancti majóra sunt ordináta jejúnia: ut per commúne consórtium
+IN ómnibus, dilectíssimi, solemnitátibus christiánis, non ignorámus paschále sacraméntum esse præcípuum: cui condígne et cóngrue suscipiéndo, totíus quidem nos témporis institúta reformant: sed devotiónem nostram præséntes vel máxime dies éxigunt, quos illi sublimíssimo divínæ misericórdiæ sacraménto scimus esse contíguos. In quibus mérito a sanctis Apóstolis per doctrínam Spíritus Sancti majóra sunt ordináta jejúnia: ut per commúne consórtium crucis Christi, étiam nos áliquid in eo quod propter nos géssit, agerémus, sicut Apóstolus ait: Si compátimur, et conglorificábimur. Certa atque secúra est exspectátio promíssæ beatitúdinis, ubi est participátio Domínicæ passiónis.
+
+℟. Deus meus es tu, ne discédas a me: \* Quóniam tribulátio próxima est, et non est qui ádjuvet. ℣. Tu autem, Dómine, ne elongáveris auxílium tuum a me: ad defensiónem meam áspice. — Quóniam.
+
+#### Lectio v
+
+NEMO est, dilectíssimi, cui per conditiónem témporis societas hujus glóriæ denegétur, tamquam tranquíllitas pacis vácua sit occasióne virtútis. Apóstolus enim prædicat, dicens: Omnes qui pie volunt vívere in Christo, persecutiónem patiéntur: et ídeo numquam deest tribulátio persecutiónis, si numquam desit observántia pietátis. Dóminus enim in exhortatiónibus suis dicit: Qui non áccipit crucem suam, et séquitur me, non est me dignus. Nec dubitáre debémus, hanc vocem non solum ad discípulos Christi, sed ad cunctos fidéles, totámque Ecclésiam pertinére, quæ salutáre suum in his qui áderant, universáliter audiébat.
+
+℟. In te jactátus sum ex útero, de ventre matris meæ Deus meus es tu, ne discédas a me: \* Quóniam tribulátio próxima est, et non est qui ádjuvet. ℣. Salva me ex ore leónis, et a córnibus unicórnium humilitátem meam. — Quóniam.
+
+#### Lectio vi
+
+SICUT ergo totíus est córporis pie vívere, ita totíus est témporis crucem ferre: quæ mérito ferri unicuíque suadétur, quia própriis modis atque mensúris ab unoquóque tolerátur. Unum nomen est persecutiónis, sed non una est causa certáminis: et plus plerúmque perículi est in insidiatóre occúlto, quam in hoste manifésto. Beátus Job, alternántibus bonis ac malis mundi hujus erudítus, pie veracitérque dicébat: Nonne tentátio est vita hóminis super terram? Quóniam non solis dolóribus córporis atque supplíciis ánima fidélis impétitur, verum étiam, salva incolumitáte membrórum, gravi morbo urgétur, si carnis voluptáte mollítur. Sed cum caro concupíscit advérsus spíritum, spíritus autem advérsus carnem; præsí-

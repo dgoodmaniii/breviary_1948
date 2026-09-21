@@ -19392,4 +19392,46 @@ ET interrúpta est cívitas, et omnes viri bellatóres nocte fugérunt per viam 
 
 ##### Lectio iii
 
-MEnse quinto séptima die mensis, ipse est annus nonus décimus regis Babylónis, venit Nabuzárdan princeps exércitus servus regis Babylónis in Jerúsalem. Et succéndit domum Dómini et domum regis et domos Jerúsalem, omnémque domum combússit igni. Et muros Jerúsalem in circúitu destrúxit omnis exércitus Chaldæórum, qui erat cum príncipe mílitum. Réliquam autem pópuli partem, quæ remánserat in civitáte, et pérfugas, qui transfúgerant ad regem Babylónis, et réliquum vulgus tránstulit Nabuzárdan princeps milítiæ et de paupéribus terræ relíquit vinitóres et agrícolas. Colúmnas au-
+MEnse quinto séptima die mensis, ipse est annus nonus décimus regis Babylónis, venit Nabuzárdan princeps exércitus servus regis Babylónis in Jerúsalem. Et succéndit domum Dómini et domum regis et domos Jerúsalem, omnémque domum combússit igni. Et muros Jerúsalem in circúitu destrúxit omnis exércitus Chaldæórum, qui erat cum príncipe mílitum. Réliquam autem pópuli partem, quæ remánserat in civitáte, et pérfugas, qui transfúgerant ad regem Babylónis, et réliquum vulgus tránstulit Nabuzárdan princeps milítiæ et de paupéribus terræ relíquit vinitóres et agrícolas. Colúmnas aureas quæ erant in templo Dómini, et bases, et mare ǽreum, quod erat in domo Dómini, confregérunt Chaldǽi et transtulérunt æs omne in Babylónem.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Sapiéntia \* ædificávit sibi domum, excídit colúmnas septem, súbdidit sibi gentes, superbórum et sublímium colla própria virtúte calcávit.
+
+{RUBRIC: Oratio, quæ contíngit in órdine aliárum Domínicárum, ut infra.}
+
+---
+
+## Sabbato ante Dominicam I Augusti
+
+{RUBRIC: Ea autem dícitur I Domínica mensis, quæ est in Kaléndis, vel próximior Kaléndis illíus mensis: ita ut, si Kaléndæ fúerint II, III vel IV Feria, tunc I Domínica mensis, in qua liber Scriptúræ inchoándus pónitur, est ea quæ præcédit Kaléndas. Sin autem V vel VI Feria, vel Sábbato, est ea quæ séquitur. Et in Sábbato præcedénti ad Magníficat pónitur Antíphona assignáta Sábbato ante Domínicam I mensis, omíssa ália, quæ forte occúrreret.}
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+---
+
+## Dominica I Augusti
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: Incípiunt Parábolæ Salomónis}
+
+##### Lectio i
+
+*Cap. 1, 1-19*
+
+PArábolæ Salomónis, fílii David regis Israël, ad sciéndam sapiéntiam et disciplínam, ad intelligénda verba prudéntiæ et suscipiéndam eruditiónem doctrínæ, justítiam et judícium et æquitátem, ut detur párvulis astútia, adoléscénti sciéntia et intelléctus. Audiens sápiens sapiéntior erit, et intélligens gubernácula possidébit: animadvértet parábolam et interpretatiónem, verba sapiéntum et ænígmata eórum.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum,

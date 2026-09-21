@@ -44233,4 +44233,22 @@ AT contra, sapiéntia justórum est: nil per ostensiónem fíngere, sensum verbi
 
 ###### Lectio vi *Cap. 17, post initium*
 
-LAMPAS contémpta apud cogitatiónes dívitum. Sæpe contíngit, ut eléctus
+LAMPAS contémpta apud cogitatiónes dívitum. Sæpe contíngit, ut eléctus quisque, qui ad ætérnam felicitátem dúcitur, contínua hic adversitáte deprimátur; non hunc rerum abundántia fúlciat, non dignitátum glória honorábilem osténdat, nulla ei obsequéntium frequéntia súppetat, nulla hunc humánis óculis véstium pompa compónat. A cunctis vero despicábilis cérnitur, et hujus mundi grátia indígnus æstimátur; sed tamen ante occúlti júdicis óculos virtútibus émicat, vitæ méritis corúscat: honorári métuit, déspici non réfugit: corpus continéntia áfficit, sola in ánimo dilectióne pinguéscit: mentem semper ad patiéntiam prǽparat, et, eréctus pro justítia, de percéptis contuméliis exsúltat: afflíctis ex corde compátitur, de bonórum prosperitátibus quasi de própriis lætátur, sacri verbi pábula in mente sollícitus rúminat, et, inquisítus, quódlibet éloqui duplíciter ignórat.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. (T. P. Allelúja.) ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+**Lectio vii** *Cap. 12, 32-34*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nolíte timére, pusíllus grex, quia complácuit Patri vestro dare vobis regnum. Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Liber 4 cap. 54 in Luc. 12}
+
+PUSILLUM gregem electórum, vel ob comparatiónem majóris número reprobórum, vel pótius ob humilitátis devotiónem nóminat; quia vidélicet Ecclésiam suam, quantálibet numerositáte jam dilatátam, tamen usque ad finem mundi humilitáte vult créscere, et ad promíssum regnum humilitáte perveníre. Ideóque ejus labóres blande consolátus, quam regnum Dei tantum quǽrere prǽcipit, eídem regnum a Patre dandum complácita benignitáte promíttit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Ecce homo sine queréla, verus Dei cultor, ábsti-

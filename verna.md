@@ -22805,3 +22805,29 @@ Circumdedérunt me sicut aqua tota die: \* circumdedérunt me simul.
 Elongásti a me amícum et próximum: \* et notos meos a miséria.
 
 {RUBRIC: †}
+
+**Ant.** Factus sum sicut homo sine adjutório, inter mórtuos liber.
+
+℣. In pace factus est locus ejus. ℟. Et in Sion habitátio ejus.
+
+{RUBRIC: Pater noster secreto.}
+
+#### De Epístola beáti Pauli Apóstoli ad Hebrǽos
+
+#### Lectio vii
+
+*Cap. 9, 11-22*
+
+CHRISTUS assístens Póntifex futurórum bonórum, per ámplius et perféctius tabernáculum non manufáctum, id est, non hujus creatiónis: neque per sánguinem hircórum, aut vitulórum, sed per próprium sánguinem introívit semel in Sancta, ætérna redemptióne invénta. Si enim sanguis hircórum, et taurórum, et cinis vítulæ aspérsus inquinátos sanctíficat ad emundatiónem carnis: quanto magis sanguis Christi, qui per Spíritum Sanctum semetípsum óbtulit immaculátum Deo, emundábit consciéntiam nostram ab opéribus mórtuis, ad serviéndum Deo vivénti?
+
+℟. Astitérunt reges terræ, et príncipes convenérunt in unum, \* Advérsus Dóminum, et advérsus Christum ejus. ℣. Quare fremuérunt gentes, et pópuli meditáti sunt inánia? — Advérsus.
+
+#### Lectio viii
+
+ET ídeo novi testaménti mediátor est: ut, morte intercedénte, in redemptiónem eárum prævaricatiónum, quæ erant sub prióri testaménto, repromissiónem accípiant, qui vocáti sunt ætérnæ hereditátis. Ubi enim testaméntum est: mors necésse est intercédat testatóris. Testaméntum enim in mórtuis confirmátum est: alióquin nondum valet, dum vivit qui testátus est. Unde nec primum quidem sine sánguine dedicátum est.
+
+℟. Æstimátus sum cum descendéntibus in lacum: \* Factus sum sicut homo sine adjutório, inter mórtuos liber. ℣. Posuérunt me in lacu inferióri, in tenebrósis, et in umbra mortis. — Factus.
+
+#### Lectio ix
+
+LECTO enim omni mandáto legis a Móyse univérso pópulo: accípiens sánguinem vitulórum, et hircórum cum aqua et lana coccínea, et hyssópo: ipsum quoque librum, et omnem pópulum aspérsit, dicens: Hic sanguis testaménti, quod mandávit ad vos Deus. Etiam tabernáculum, et ómnia vasa ministérii sánguine simíliter aspérsit:

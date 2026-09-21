@@ -45170,7 +45170,7 @@ CUM ergo de illis eunúchis díxerit, qui, nisi étiam ipsi mente se contíneant
 
 *Eccli. 51, 1-3*
 
-CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+CONFITEBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
 
 ##### Pro nec Virg. nec Martyre
 
@@ -45178,7 +45178,7 @@ CONFITÉBOR tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confit
 
 *Prov. 31, 10-11*
 
-MULIÉREM fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+MULIEREM fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
 
 ##### Hymnus
 
@@ -45231,4 +45231,48 @@ EXÁUDI nos, Deus, salutáris noster: ut, sicut de beátæ N. festivitáte gaud�
 
 {RUBRIC: Si fuerint plures Martyres non Virgines, in utrisque Vesperis Versus, Ant. ad Magnificat et Oratio, ut sequitur:}
 
-℣. Glória et honóre coronásti eas, Dómine. (T. P. Allelúja.) ℟. Et constituísti eas super ópera má-
+℣. Glória et honóre coronásti eas, Dómine. (T. P. Allelúja.) ℟. Et constituísti eas super ópera mánuum tuárum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni. (T. P. Allelúja.)
+
+**3 — Oratio**
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum N. et N. palmas incessábili devotióne venerári: ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invitat.** Laudémus Deum nostrum \* In confessióne beátæ N. (T. P. Allelúja.)
+
+{RUBRIC: Si fuerint plures non Virg.:}
+
+**Invitat.** Laudémus Deum nostrum \* In confessióne beatárum N. et N. (T. P. Allelúja.) **Ps. 94** Veníte, exsultémus.
+
+###### Hymnus
+
+HUJUS orátu, Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+Témporis ævo. Amen.
+
+{RUBRIC: Añæ, Psalmi et Versus trium Nocturnorum dicuntur ut in Communi Virginum [131] excepta secunda Ant. I Nocturni cujus loco dicitur Ant. Læva ejus, ut ibi notatur.}
+
+##### In I Nocturno
+
+{RUBRIC: Pro Martyre tantum Lectiones Confitébor, ut in Communi Virginum 2 loco cum suis Responsoriis. [145]}
+
+{RUBRIC: Pro nec Virgine nec Mart. ut sequuntur:}
+
+{RUBRIC: De Parábolis Salomónis}
+
+###### Lectio i
+
+*Cap. 31, 10-31*
+
+MULIEREM fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit. Reddet ei bonum, et non malum, ómnibus diébus vitæ suæ. Quæsívit lanam et linum, et operáta est consílio mánuum suárum. Facta est quasi navis institóris, de longe portans panem suum. Et de nocte surréxit, dedítque prædam doméstícis suis, et cibária ancíllis suis. Considerávit agrum, et emit eum; de fructu mánuum suárum plantávit víneam. Accínxit fortitú-

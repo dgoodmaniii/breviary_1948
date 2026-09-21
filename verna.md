@@ -29925,4 +29925,54 @@ CATHOLICAM promovére fidem summópere stúduit, et Ruthenórum schísma abolér
 
 ###### Lectio vi
 
-CONSUMMATUS in brevi, virtútibus et méritis plenus, prænuntiáto mortis die, inter sacerdótum et religiósorum choros spíritum Deo réddidit, anno ætátis vigésimo quinto. Corpus, Vilnam delátum, multis claret miráculis. Etenim prætérquam quod puélla defúncta vitam, cæci visum, claudi gressum et várii infírmi sanitátem ad ejus sepúlcrum recuperárunt; Lithuánis exíguo número ad poten-
+CONSUMMATUS in brevi, virtútibus et méritis plenus, prænuntiáto mortis die, inter sacerdótum et religiósorum choros spíritum Deo réddidit, anno ætátis vigésimo quinto. Corpus, Vilnam delátum, multis claret miráculis. Etenim prætérquam quod puélla defúncta vitam, cæci visum, claudi gressum et várii infírmi sanitátem ad ejus sepúlcrum recuperárunt; Lithuánis exíguo número ad potentíssimi hostis insperátam irruptiónem trepidántibus in áëre appárens, insígnem tríbuit victóriam. Quibus permótus Leo décimus eúmdem Sanctórum catálogo ascrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Sint lumbi vestri, {RUBRIC: de Communi Confessoris non Pontificis 1 loco. [116]}
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEUS, qui inter regáles delícias et mundi illécebras, sanctum Casimírum virtúte constántiæ roborásti: quǽsumus; ut ejus intercessióne fidéles tui terréna despíciant, et ad cæléstia semper aspírent. Per Dóminum.
+
+{RUBRIC: Post Commemorationem Feriæ, Commemoratio S. Lucii I Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+REGEM tuum, Pastor ætérne, placátus inténde, et per beátum Lúcium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+---
+
+### Die 6 Martii
+
+#### Ss. Perpetuæ et Felicitatis
+
+{RUBRIC: Martyrum [149]}
+
+{RUBRIC: Duplex}
+
+{RUBRIC: Ad Magnif. in utrisque Vesp. et ad Bened. in Laud. (de Communi):}
+
+℣. Glória et honóre coronásti eas, Dómine. ℟. Et constituísti eas super ópera mánuum tuárum.
+
+**Ant.** Istárum est enim \* regnum cælórum, quæ con-

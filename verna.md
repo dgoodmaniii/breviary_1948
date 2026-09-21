@@ -20856,4 +20856,20 @@ TUA nos misericórdia, Deus, et ab omni subreptióne vetustátis expúrget: et c
 
 EXSPECTATIO Israël, Dómine: omnes, qui te derelínquunt, confundéntur: recedéntes a te, in terra scribéntur: quóniam dereliquérunt venam aquárum vivéntium Dóminum. Sana me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es. Ecce ipsi dicunt ad me: Ubi est verbum Dómini? véniat. Et ego non sum turbátus, te pastórem sequens: et diem hóminis non desiderávi, tu scis. Quod egréssum est de lábiis meis, rectum in conspéctu tuo fuit. Non sis tu mihi formídini, spes mea tu in die afflictiónis. Confundántur qui me persequúntur, et non confúndar ego: páveant illi, et non páveam ego: induc super eos diem afflictiónis, et dúplici contritióne cóntere eos.
 
-℟. Locúti sunt advérsum me lingua dolósa, et sermónibus ódii circumdedérunt me: pro eo ut me
+℟. Locúti sunt advérsum me lingua dolósa, et sermónibus ódii circumdedérunt me: pro eo ut me díligerent, detrahébant mihi: \* Ego autem orábam, et exaudísti me, Dómine, Deus meus. ℣. Et posuérunt advérsum me mala pro bonis, et ódium pro dilectióne mea. — Ego.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+*Cap. 18, 13-23*
+
+QUIS audívit tália horribília, quæ fecit nimis virgo Israël? Numquid defíciet de petra agri nix Líbani? aut evélli possunt aquæ erumpéntes frígidæ, et defluéntes? Quia oblítus est mei pópulus meus, frustra libántes, et impingéntes in viis suis, in sémitis sæculi, ut ambulárent per eas in itínere non trito: ut fíeret terra eórum in desolatiónem, et in síbilum sempitérnum: omnis qui præteríerit per eam obstupéscet, et movébit caput suum. Sicut ventus urens dispérgam eos coram inimíco: dorsum, et non fáciem osténdam eis in die perditiónis eórum. Et dixérunt: Veníte, et cogitémus contra Jeremíam cogitatiónes: non enim períbit lex a sacerdóte, neque consílium a sapiénte, nec sermo a prophéta: veníte, et percutiámus eum lingua, et non attendámus ad univérsos sermónes ejus.
+
+℟. Dixérunt ímpii apud se, non recte cogitántes: Circumveniámus justum, quóniam contrárius est opéribus nostris: promíttit se sciéntiam Dei habére, Fílium Dei se nóminat, et gloriátur patrem se habére Deum: \* Videámus si sermónes illíus veri sunt: et si est vere Fílius Dei, líberet eum de mánibus nostris: morte turpíssima condemnémus eum. ℣. Tamquam nugáces æstimáti sumus ab illo, et ábstinet se a viis nostris tamquam ab immundítiis: et præfert novíssima justórum. — Videámus.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+ATTENDE, Dómine, ad me, et audi vocem adversariórum meórum. Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ? Recordáre quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis. Proptérea da fílios eórum in famem, et deduc eos in manus gládii: fiant uxóres eórum absque líberis, et víduæ: et viri eárum interficiántur morte: júvenes eórum confodiántur gládio in prǽlio. Audiátur clamor de dómibus eórum: addúces enim su-

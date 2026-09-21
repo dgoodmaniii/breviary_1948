@@ -607,4 +607,36 @@ DOMINE, Deus omnípotens, qui ad princípium hujus diéi nos perveníre fecísti
 
 SANCTA María, et omnes Sancti intercédant pro nobis ad Dóminum, ut nos mereámur ab eo adjuvári et salvári, qui vivit et regnat in sæcula sæculórum. ℟. Amen.
 
-℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me fe-
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína. {RUBRIC: Et dicitur ter; ultimo additur:} Glória Patri, et Fílio, et Spirítui Sancto. Sicut erat in princípio, et nunc, et semper, et in sæcula sæculórum. Amen.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Réspice in servos tuos, Dómine, et in ópera tua, et dírige fílios eórum. ℟. Et sit splendor Dómini, Dei nostri, super nos, et ópera mánuum nostrárum dírige super nos, et opus mánuum nostrárum dírige. ℣. Glória Patri, et Fílio, et Spirítui Sancto. ℟. Sicut erat in princípio, et nunc, et semper, et in sæcula sæculórum. Amen.
+
+Orémus. **Oratio**
+
+DIRIGERE et sanctificáre, régere et gubernáre dignáre, Dómine Deus, Rex cæli et terræ, hódie corda et córpora nostra, sensus, sermónes et actus nostros in lege tua, et in opéribus mandatórum tuórum: ut hic, et in ætérnum, te auxiliánte, salvi et líberi esse mereámur, Salvátor mundi: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+{RUBRIC: Deinde dícitur Léctio brevis, ad absolutiónem Capítuli, prouti Offícium occúrrens réquirit.}
+
+℣. Jube, domne, benedícere. **Bened.** Dies et actus nostros in sua pace dispónat Dóminus omnípotens. ℟. Amen.
+
+#### In Officio dominicali et feriali
+
+{RUBRIC: A Feria II usque ad Fériam IV post Festum sanctíssimæ Trinitátis, et a Sábbato post Octávam Sacratíssimi Cordis Jesu et deínceps.}
+
+**Lectio brevis** *2 Thess. 3, 5*
+
+DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia Christi. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+{RUBRIC: ¶ Ita semper conclúduntur Lectiónes breves ad Primam, et ita in eárum fine respondétur.}
+
+{RUBRIC: In Offício autem cujúslibet Festi vel Octávæ, atque S. Maríæ in Sábbato; itémque in Domínicis infra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, si de eis fiat Offícium:}
+
+{RUBRIC: Pro Lectióne brevi súmitur Capítulum, quod ad Nonam pónitur ipsíus Offícii curréntis, et in fine dícitur: Tu autem, Dómine, ut supra.}
+
+{RUBRIC: Post Lectiónem brevem dícitur:}
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.

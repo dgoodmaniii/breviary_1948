@@ -42482,4 +42482,58 @@ VERUM quod séquitur: Quóniam quæ in ténebris dixístis, in lúmine dicéntur
 
 ###### Lectio ix
 
-DUO autem sunt génera persecutórum: unum palam sæviéntium, álterum ficte fraudulentérque blandiéntium. Contra utrúmque nos muníre atque institúere volens Salvátor, et supra ab hypócrisi pharisæórum atténdere, et hic a carníficum cæde prǽcipit non timére; quia vidélicet post mortem nec horum crudélitas, nec illórum váleat simulátio duráre. Nonne quin-
+DUO autem sunt génera persecutórum: unum palam sæviéntium, álterum ficte fraudulentérque blandiéntium. Contra utrúmque nos muníre atque institúere volens Salvátor, et supra ab hypócrisi pharisæórum atténdere, et hic a carníficum cæde prǽcipit non timére; quia vidélicet post mortem nec horum crudélitas, nec illórum váleat simulátio duráre. Nonne quinque pásseres véneunt dipóndio? Si minutíssima, inquit, animália, et quæ quólibet per áëra ferúntur volatília, Deus oblivísci non potest; vos, qui ad imáginem facti estis Creatóris, non debétis terréri ab his, qui occídunt corpus; quia, qui irrationabília animália gubérnat, rationabília curáre non désinit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+# Commune unius aut plurimorum Martyrum
+
+## Tempore Paschali
+
+##### In I Vesperis
+
+{RUBRIC: Antiphonæ et Psalmi ut in I Vesperis de Comm. Apost. Tempore Paschali. [4]}
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+##### Pro uno Martyre
+
+###### Hymnus
+
+DEUS, tuórum mílitum
+Sors et coróna, prǽmium,
+Laudes canéntes Mártyris
+Absólve nexu críminis.
+
+Hic nempe mundi gáudia
+Et blanda fraudum pábula
+Imbúta felle députans,
+Pervénit ad cæléstia.
+
+Pœnas cucúrrit fórtiter
+Et sústulit viríliter,
+Fundénsque pro te sánguinem,
+Ætérna dona póssidet.
+
+Ob hoc precátu súpplici
+Te póscimus, piíssime:
+In hoc triúmpho Mártyris
+Dimítte noxam sérvulis.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: Ab Ascensióne autem usque ad Fériam VI ante Vigíliam Pentecóstes inclusive, étiam in áliis Hymnis ejúsdem metri, nisi áliter notétur, dícitur:}
+
+\* Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.

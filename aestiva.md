@@ -18004,4 +18004,30 @@ NUsquísque nostrum per síngulas horas quam multa delínquit! nec tamen unusqu�
 
 ##### Lectio v
 
-DEnique Dóminum dolor íntimi movit afféctus, ut Nathan díceret: Quóniam pœnítuit te, et Dóminus ábstulit peccátum tuum. Matúritas ítaque véniæ, profúndam regis fuísse pœniténtiam declarávit, quæ tanti erróris offénsam tradúxerit. Alii hómines cum a sacerdótibus corripiúntur, peccátum suum íngravant, dum negáre cúpiunt aut deféndere; ibíque eórum lapsus est major, ubi sperátur corréctio. Sancti autem Dómini, qui consummáre pium certámen géstiunt, et cúrrere cursum salútis, sícubi forte ut hómines corrúerint, natúræ magis fragilitáte quam peccándi libídine, acrióres ad curréndum resúrgunt, pudóris stímulo majóra reparántes certámina; ut non solum nullum attulísse æstimétur lapsus impediméntum, sed étiam velo-
+DEnique Dóminum dolor íntimi movit afféctus, ut Nathan díceret: Quóniam pœnítuit te, et Dóminus ábstulit peccátum tuum. Matúritas ítaque véniæ, profúndam regis fuísse pœniténtiam declarávit, quæ tanti erróris offénsam tradúxerit. Alii hómines cum a sacerdótibus corripiúntur, peccátum suum íngravant, dum negáre cúpiunt aut deféndere; ibíque eórum lapsus est major, ubi sperátur corréctio. Sancti autem Dómini, qui consummáre pium certámen géstiunt, et cúrrere cursum salútis, sícubi forte ut hómines corrúerint, natúræ magis fragilitáte quam peccándi libídine, acrióres ad curréndum resúrgunt, pudóris stímulo majóra reparántes certámina; ut non solum nullum attulísse æstimétur lapsus impediméntum, sed étiam velocitátis incentíva cumulásse.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+*Cap. 4*
+
+PEccávit David, quod solent reges; sed pœniténtiam gessit, flevit, ingémuit, quod non solent reges. Conféssus est culpam, obsecrávit indulgéntiam, humi stratus deplorávit ærúmnam, jejunávit, orávit, confessiónis suæ testimónium in perpétua sǽcula vulgáto dolóre transmísit. Quod erubéscunt fácere priváti, rex non erúbuit confitéri. Qui tenéntur légibus, audent suum negáre peccátum, dedignántur rogáre indulgéntiam, quam petébat, qui nullis légibus tenebátur humánis. Quod peccávit, conditiónis est; quod supplicávit, correctiónis. Lapsus commúnis, sed speciális conféssio. Culpam ítaque incidísse, natúræ est: diluísse virtútis.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 13, 22-34*
+
+POrro non est locútus Absalom ad Amnon nec malum nec bonum; óderat enim Absalom Amnon, eo quod violásset Thamar sorórem suam. Factum est autem post tempus biénnii ut tonderéntur oves Absalom in Baálhasor, quæ est juxta Ephraim; et vocávit Absalom omnes fílios regis venítque ad regem et ait ad eum: Ecce tondéntur oves servi tui; véniat, oro, rex cum servis suis ad servum suum. Dixítque rex ad Absalom: Noli, fili mi, noli rogáre ut veniámus omnes et gravémus te. Cum autem cógeret eum, et noluísset ire, benedíxit ei.
+
+℟. Recordáre, Dómine, testaménti tui, et dic An-

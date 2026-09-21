@@ -28648,3 +28648,47 @@ MENTIBUS nostris, quǽsumus, Dómine, Spíritum Sanctum benígnus infúnde: cuju
 {RUBRIC: Ad Tertiam, Sextam et Nonam Capitulum et ℟. breve.}
 
 {RUBRIC: Per Octavas autem communes, similiter Antiphonæ et Psalmi dicuntur de occurrenti hebdomadæ die, reliqua, nisi aliter suis locis notetur, ut in Festo: sed Lectiones et Responsoria I Nocturni, nisi propria habeantur, sumuntur de Scriptura occurrenti, ut supra, et iis deficientibus, Lectiones in diebus infra Octavam dicuntur de Communi, in die Octava, et pro Festis Domini Commune non habentibus}
+
+{RUBRIC: etiam infra Octavam, ut in Festo; Responsoria vero, tam infra Octavam quam in die Octava, ut in Festo. Item Lectiones II et III Nocturni, si propriæ de Octava non habeantur, in diebus infra Octavam dicuntur de Communi, in die Octava, et pro Festis Domini ut supra, ut in Festo. Et de Festo etiam infra Octavam sumuntur Lectiones III Nocturni, si alia non habeatur Homilia in Evangelium Festi.}
+
+{RUBRIC: In Festis autem et diebus Octavis simplicibus omnia pariter dicuntur de occurrenti hebdomadæ die, et de Festo vel de Communi, ut supra; sed ad Matutinum, omissis Versibus I et II, novem Psalmi sub suis Antiphonis, vel Tempore Paschali sub unica Antiphona, dicuntur continuatim in unico Nocturno, et in eo sumuntur I et II Lectio de Scriptura occurrenti cum suis Responsoriis de Tempore, addito II Responsorio Glória Patri, ut notatur; Lectio vero III de Festo, ut in Proprio vel Communi.}
+
+---
+
+## Festa Februarii
+
+### Die 7 Februarii
+
+#### S. Romualdi
+
+{RUBRIC: Abbatis Duplex}
+
+##### In II Vesperis
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+*C 4*
+
+INTERCÉSSIO nos, quǽsumus Dómine, beáti Romuáldi Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+### Die 8 Februarii
+
+#### S. Joannis de Matha
+
+{RUBRIC: Confessoris}
+
+{RUBRIC: Duplex, sed ad modum Simplicis recolendum}
+
+##### In I Vesperis
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEUS, qui per sanctum Joánnem órdinem sanctíssimæ Trinitátis ad rediméndum de potestáte Saracenórum captívos cælitus institúere dignátus es: præsta, quǽsumus; ut, ejus suffragántibus méritis, a captivitáte córporis et ánimæ, te adju-

@@ -18782,4 +18782,18 @@ CUmque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi 
 
 *Cap. 3, 6-18*
 
-EGréssus est ígitur rex Joram in die illa de Samaría et recénsuit uni-
+EGréssus est ígitur rex Joram in die illa de Samaría et recénsuit univérsum Israël. Misítque ad Jósaphat regem Juda dicens: Rex Moab recéssit a me; veni mecum contra eum ad prǽlium. Qui respóndit: Ascéndam: qui meus est, tuus est; pópulus meus pópulus tuus, et equi mei equi tui. Dixítque: Per quam viam ascendémus? At ille respóndit: Per desértum Idumǽæ. Perrexérunt ígitur rex Israël et rex Juda et rex Edom et circuiérunt per viam septem diérum; nec erat aqua exercítui et juméntis, quæ sequebántur eos.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pæniténtiam, veniénsque oráverit in isto loco. — Tu.
+
+##### Lectio ii
+
+DIxítque rex Israël: Heu, heu, heu: congregávit nos Dóminus tres reges, ut tráderet in manus Moab. Et ait Jósaphat: Estne hic Prophéta Dómini, ut deprecémur Dóminum per eum? Et respóndit unus de servis regis Israël: Est hic Eliséus fílius Saphat, qui fundébat aquam super manus Elíæ. Et ait Jósaphat: Est apud eum sermo Dómini. Descendítque ad eum rex Israël, et Jósaphat rex Juda, et rex Edom. Dixit autem Eliséus ad regem Israël: Quid mihi et tibi est? Vade ad prophétas patris tui et matris tuæ.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+ET ait illi rex Israël: Quare congregávit Dóminus tres reges hos, ut tráderet eos in manus Moab? Dixítque ad eum Eliséus: Vivit Dóminus exercítuum, in cujus conspéctu sto, quod, si non vultum Jósaphat regis Judæ erubéscerem, non attendíssem quidem te, nec respexíssem. Nunc autem addúcite mihi psaltem. Cumque cáneret psaltes, facta est super eum manus Dómini, et ait: Hæc dicit

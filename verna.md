@@ -19200,3 +19200,37 @@ MIRA pharisæórum scribarúmque stultítia. Dei Fílium árguunt, quare hóminu
 NAM Deus dixit: Honóra patrem et matrem; et, Qui maledíxerit patri, vel matri, morte moriátur. Vos autem dícitis: Quicúmque díxerit patri, vel matri: Munus quodcúmque est ex me, tibi próderit: et non honorificábit patrem suum, aut matrem suam. Honor in Scriptúris non tantum in salutatiónibus et offíciis deferéndis, quantum in eleemósynis, ac múnerum oblatióne sentítur. Honóra, inquit Apóstolus, víduas, quæ vere víduæ sunt. Hic honor donum intellígitur. Et in álio loco: Presbýteri dúplici honóre honorándi sunt, máxime qui labórant in verbo et doctrína Dei. Et per hoc mandátum jubémur bovi triturántis os non cláudere: et dignus sit operárius mercéde sua.
 
 ℟. Dixit Ruben frátribus suis: Numquid non dixi vobis, Nolíte peccáre in púerum, et non audístis me? \* En sanguis ejus exquíritur. ℣. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus. — En.
+
+#### Lectio iii
+
+PRÆCEPERAT Dóminus, vel imbecillitátes, vel ætátes, vel penúrias paréntum consíderans, ut fílii honorárent, étiam in vitæ necessáriis ministrándis, paréntes suos. Hanc providentíssimam Dei legem voléntes scribæ et pharisǽi subvértere, ut impietátem sub nómine pietátis indúcerent, docuérunt péssimos fílios, ut si quis ea, quæ paréntibus offerénda sunt, Deo vovére volúerit, qui verus est pater, oblátio Dómini præponátur paréntum munéribus: vel certe ipsi paréntes, quæ Deo consecráta cernébant, ne sacrilégii crimen incúrrerent, declinántes, egestáte conficiebántur. Atque ita fiébat, ut oblátio liberórum sub occasióne templi et Dei, in sacerdótum lucra céderet.
+
+℟. Lamentabátur Jacob de duóbus fíliis suis: Heu me, dolens sum de Joseph pérdito, et tristis nimis de Bénjamin ducto pro alimóniis: \* Precor cæléstem Regem, ut me doléntem nímium fáciat eos cérnere. ℣. Prostérnens se Jacob veheménter cum lácrimis pronus in terram, et adórans ait. — Precor. Glória Patri. Precor.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Audíte et intellígite \* traditiónes, quas Dóminus dedit nobis.
+
+#### Oratio
+
+PRÆSTA nobis, quæsumus, Dómine: ut salutáribus jejúniis erudíti, a nóxiis quoque vítiis abstinéntes, propitiatiónem tuam facílius impetrémus. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Non lotis mánibus \* manducáre, non coínquinat hóminem.
+
+#### Oratio
+
+CONCEDE, quæsumus, omnípotens Deus: ut, qui protectiónis tuæ grátiam quǽrimus, liberáti a malis ómnibus, secúra tibi mente serviámus. Per Dóminum.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 4, 38-44*
+
+IN illo témpore: Surgens Jesus de synagóga, introívit in domum Simónis. Socrus autem Simónis tenebátur magnis fébribus. Et réliqua.

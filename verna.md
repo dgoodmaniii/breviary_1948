@@ -20516,4 +20516,26 @@ OBSTUPESCITE, cæli, super hoc, et, portæ ejus, desolámini vehiménter, dicit 
 
 #### Lectio ii
 
-ET nunc quid tibi vis in via Ægýpti, ut bibas aquam túrbidam? et quid tibi cum via Assyriórum, ut bibas aquam flúminis? Arguet te malítia tua, et avérsio tua increpábit te. Scito, et vide quia malum et amárum est reliquísse te Dóminum Deum tuum, et non esse timórem mei apud te, dicit Dóminus Deus exercítuum. A sæculo confregísti jugum meum, rupísti víncula mea, et dixísti: Non sérviam. In omni enim colle sublími, et sub omni ligno frondóso tu prosternebáris méretrix. Ego autem plantávi te víneam eléctam, omne semen verum: quómodo ergo convérsa es mihi in pravum, vínea aliéna?, Si láveris te nitro, et multiplicáveris tibi herbam borith, maculáta es in iniquitáte tua
+ET nunc quid tibi vis in via Ægýpti, ut bibas aquam túrbidam? et quid tibi cum via Assyriórum, ut bibas aquam flúminis? Arguet te malítia tua, et avérsio tua increpábit te. Scito, et vide quia malum et amárum est reliquísse te Dóminum Deum tuum, et non esse timórem mei apud te, dicit Dóminus Deus exercítuum. A sæculo confregísti jugum meum, rupísti víncula mea, et dixísti: Non sérviam. In omni enim colle sublími, et sub omni ligno frondóso tu prosternebáris méretrix. Ego autem plantávi te víneam eléctam, omne semen verum: quómodo ergo convérsa es mihi in pravum, vínea aliéna?, Si láveris te nitro, et multiplicáveris tibi herbam borith, maculáta es in iniquitáte tua coram me, dicit Dóminus Deus.
+
+℟. Fratres mei elongavérunt se a me: et noti mei \* Quasi aliéni recessérunt a me. ℣. Dereliquérunt me próximi mei, et qui me novérunt. — Quasi.
+
+#### Lectio iii
+
+*Cap. 2, 29-32*
+
+QUID vultis mecum judício conténdere? Omnes dereliquístis me, dicit Dóminus. Frustra percússi fílios vestros, disciplínam non recepérunt: devorávit gládius vester prophétas vestros, quasi leo vastátor generátio vestra. Vidéte verbum Dómini: Numquid solitúdo factus sum Israéli, aut terra serótina? Quare ergo dixit pópulus meus: Recéssimus, non veniémus ultra ad te? Numquid obliviscétur virgo ornaménti sui, aut sponsa fásciæ pectorális suæ? pópulus vero meus oblítus est mei diébus innúmeris.
+
+℟. Atténde, Dómine, ad me, et audi voces adversariórum meórum: \* Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ? ℣. Recordáre quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis. — Numquid.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 11 de Passione Domini}
+
+#### Lectio iv
+
+DESIDERATA nobis, dilectíssimi, et univérso optábili mundo adest festívitas Domínicæ passiónis, quæ nos inter exsultatiónes spiritálium gaudiórum silére non pátitur. Quia etsi difícile est, de eádem solemnitáte sæpius digne aptéque dissérere: non est tamen líberum sacerdóti in tanto divínæ misericórdiæ sacraménto fidélibus pópulis subtráhere sermónis offícium: cum ipsa matéria ex eo quod est ineffábilis, fandi tríbuat facultátem; nec possit defícere quod dicátur, dum numquam potest satis esse quod dícitur. Succúmbat ergo humána infírmitas glóriæ Dei, et in explicándis opéribus misericórdiæ ejus, ímparem se semper invéniat. Laborémus sensu, hæreámus ingénio, deficiámus elóquio: bonum est ut nobis parum sit, quod étiam recte de Dómini majestáte sentímus.
+
+℟. Conclúsit vias meas inimícus, insidiátor factus est mihi sicut leo in abscóndito, replévit et ine-

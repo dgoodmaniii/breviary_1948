@@ -26533,4 +26533,24 @@ Homilía sancti Gregórii Papæ
 
 QUOD resurrectiónem Domínicam discípuli tarde credidérunt, non tam illórum infírmitas, quam nostra, ut ita dicam, futúra firmitas fuit. Ipsa namque resurréctio illis dubitántibus per multa arguménta monstráta est: quæ dum nos legéntes agnóscimus, quid áliud quam de illórum dubitatióne solidámur? Minus enim mihi María Magdaléne præstitit, quæ cítius crédidit, quam Thomas, qui diu dubitávit. Ille étenim dubitándo vúlnerum cicatríces tétigit, et de nostro péctore dubitatiónis vulnus amputávit.
 
-℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+AD insinuándam quoque veritátem Domínicæ resurrectiónis, notándum nobis est, quid Lucas réferat, dicens: Convéscens, præcépit eis ab Jerosólymis ne discéderent. Et post pauca: Vidéntibus illis, elevátus est, et nubes suscépit eum ab óculis eórum. Notáte verba, signáte mystéria. Convéscens elevátus est. Comédit, et ascéndit: ut vidélicet per efféctum comestiónis, véritas patésceret carnis. Marcus vero, priúsquam cælum Dóminus ascéndat, eum de córdis atque infidelitátis durítia increpásse discípulos mémorat. Qua in re quid considerándum est, nisi quod idcírco Dóminus tunc discípulos increpávit, cum eos corporáliter relíquit, ut verba, quæ recédens díceret, in corde audiéntium árctius impréssa remanérent?
+
+℟. Ponis nubem ascénsum tuum, Dómine: \* Qui ámbulas super pennas ventórum, allelúja. ℣. Confessiónem et decórem indúisti, amíctus lumen sicut vestiméntum. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+INCREPATA ígitur eórum durítia, quid admonéndo dicat, audiámus: Eúntes in mundum univérsum, prædicáte Evangélium omni creatúræ. Numquid, fratres mei, sanctum Evangélium vel insensátis rebus, vel brutis animálibus fúerat prædicándum, ut de eo discípulis dicátur: Prædicáte omni creatúræ? Sed omnis creatúræ nómine signátur homo. Omnis autem creatúræ áliquid habet homo. Habet namque commúne esse cum lapídibus, vívere cum arbóribus, sentíre cum animálibus, intellígere cum Angelis. Si ergo commúne habet áliquid cum omni creatúra homo, juxta áliquid omnis creatúra est homo. Omni ergo creatúræ prædicátur Evangélium, cum soli hómini prædicátur.
+
+Te Deum laudámus.
+
+## Ad Laudes et per Horas, Antiphonæ
+
+**1** Viri Galilǽi, \* quid aspícitis in cælum? Hic Jesus, qui assúmptus est a vobis in cælum, sic véniet, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 72}

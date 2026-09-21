@@ -14650,4 +14650,52 @@ Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
 
 **Ant.** Fructum salutíferum gustándum dedit Dóminus mortis suæ témpore.
 
-**Ant.** A fructu fruménti \* et vini multiplicáti fidéles
+**Ant.** A fructu fruménti \* et vini multiplicáti fidéles in pace Christi requiéscunt.
+
+##### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** A fructu fruménti et vini multiplicáti fidéles in pace Christi requiéscunt.
+
+**Ant.** Communióne cálicis, \* quo Deus ipse súmitur, non vitulórum sánguine, congregávit nos Dóminus.
+
+##### Psalmus 15
+
+COnsérva me, Dómine, quóniam sperávi in te. \* Dixi Dómino: Deus meus es tu, quóniam bonórum meórum non eges.
+
+Sanctis, qui sunt in terra ejus, \* mirificávit omnes voluntátes meas in eis.
+
+Multiplicátæ sunt infirmitátes eórum: \* póstea acceleravérunt.
+
+Non congregábo conventícula eórum de sanguínibus, \* nec memor ero nóminum eórum per lábia mea.
+
+Dóminus pars hereditátis meæ, et cálicis mei: \* tu es, qui restítues hereditátem meam mihi.
+
+Funes cecidérunt mihi in præcláris: \* étenim heréditas mea præclára est mihi.
+
+Benedícam Dóminum, qui tríbuit mihi intelléctum: \* ínsuper et usque ad noctem increpuérunt me renes mei.
+
+Providébam Dóminum in conspéctu meo semper: \* quóniam a dextris est mihi, ne commóvear.
+
+Propter hoc lætátum est cor meum, et exsultávit lingua mea: \* ínsuper et caro mea requiéscet in spe.
+
+Quóniam non derelínques ánimam meam in inférno: \*

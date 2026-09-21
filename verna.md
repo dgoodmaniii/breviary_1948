@@ -47049,4 +47049,50 @@ MECUM sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim f
 
 BEATUS homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei. Qui me invénerit, invéniet vitam, et háuriet salútem a Dómino; qui autem in me peccáverit, lædet ánimam suam. Omnes, qui me odérunt, díligunt mortem. Sapiéntia ædificávit sibi domum, excídit colúmnas septem. Immolávit víctimas suas, míscuit vinum et propósuit mensam suam. Misit ancíllas suas, ut vocárent ad arcem et ad mœnia civitátis: Si quis est párvulus, véniat ad me. Et insipiéntibus locúta est: Veníte, comédite panem meum, et bíbite vinum quod míscui vobis.
 
-℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes Virgo. (T. P. Allelúja.) ℣. Ave, María, grátia plena; Dó-
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes Virgo. (T. P. Allelúja.) ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti qui te fecit, et in ætérnum pérmanes virgo. (T. P. Allelúja.) Glória. Genuísti.
+
+##### In II Nocturno
+
+**Ant.** Spécie tua \* et pulchritúdine tua inténde, próspere procéde, et regna. (T. P. Allelúja.)
+
+###### Psalmus 44
+
+ERUCTAVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ: \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sǽculum sǽculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto: \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam: \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.

@@ -24772,4 +24772,61 @@ AT illi dixérunt ad eum: Nos neque lítteras accépimus de te a Judǽa, neque a
 
 #### Lectio iii
 
-CUMQUE ínvicem non essent consentiéntes, discedébant, dicénte Paulo unum verbum: Quia bene Spíritus Sanctus locútus est per Isaíam prophétam ad patres nostros, dicens: Vade ad pópulum istum, et dic ad eos: Aure audiétis, et non intelligétis: et vidéntes vidébitis, et non perspiciétis. Incrassátum est enim cor pópuli hujus, et áuribus gráviter audiérunt, et óculos suos compressérunt: ne forte vídeant óculis, et áuribus áudiant, et corde intélligant, et convertántur, et sanem eos. Notum ergo sit vobis, quóniam géntibus missum est hoc salutáre Dei, et ipsi áudient. Et cum hæc dixísset, exiérunt ab eo Judǽi, multam
+CUMQUE ínvicem non essent consentiéntes, discedébant, dicénte Paulo unum verbum: Quia bene Spíritus Sanctus locútus est per Isaíam prophétam ad patres nostros, dicens: Vade ad pópulum istum, et dic ad eos: Aure audiétis, et non intelligétis: et vidéntes vidébitis, et non perspiciétis. Incrassátum est enim cor pópuli hujus, et áuribus gráviter audiérunt, et óculos suos compressérunt: ne forte vídeant óculis, et áuribus áudiant, et corde intélligant, et convertántur, et sanem eos. Notum ergo sit vobis, quóniam géntibus missum est hoc salutáre Dei, et ipsi áudient. Et cum hæc dixísset, exiérunt ab eo Judǽi, multam habéntes inter se quæstiónem. Mansit autem biénnio toto in suo condúcto: et suscipiébat omnes, qui ingrediebántur ad eum, prædicans regnum Dei, et docens quæ sunt de Dómino Jesu Christo cum omni fidúcia, sine prohibitióne.
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+## Ad Vesperas
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Sábbato, ut in Psaltério. 332}
+
+**Capit.** *1 Petri 2, 11*
+
+CARISSIMI: Obsecro vos tamquam ádvenas et peregrínos abstinére vos a carnálibus desidériis, quæ mílitant advérsus ánimam.
+
+#### Hymnus
+
+AD régias Agni dapes,
+Stolis amícti cándidis,
+Post tránsitum Maris Rubri,
+Christo canámus Príncipi:
+
+Divína cujus cáritas
+Sacrum propínat sánguinem,
+Almíque membra córporis
+Amor sacérdos ímmolat.
+
+Sparsum cruórem póstibus
+Vastátor horret Angelus:
+Fugítque divísum mare;
+Mergúntur hostes flúctibus.
+
+Jam Pascha nostrum Christus est,
+Paschális idem víctima,
+Et pura puris méntibus
+Sinceritátis ázyma.
+
+O vera cæli víctima,
+Subjécta cui sunt tártara,
+Solúta mortis víncula,
+Recépta vitæ prǽmia.
+
+Víctor, subáctis ínferis,
+Trophǽa Christus éxplicat;
+Cælóque apérto, súbditum
+Regem tenebrárum trahit.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Módicum, \* et non vidébitis me, dicit Dóminus: íterum módicum, et vidébitis me: quia vado ad Patrem, allelúja, allelúja.

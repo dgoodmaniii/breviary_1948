@@ -4834,3 +4834,57 @@ Inimíci vero Dómini mox ut honorificáti fúerint et exaltáti: \* deficiénte
 Mutuábitur peccátor, et non solvet: \* justus autem miserétur et tríbuet.
 
 Quia benedicéntes ei hereditábunt terram: \* maledicéntes autem ei períbunt.
+
+Apud Dóminum gressus hóminis dirigéntur: \* et viam ejus volet.
+
+Cum cecíderit, non collidétur: \* quia Dóminus suppónit manum suam.
+
+Júnior fui, étenim sénui: \* et non vidi justum derelíctum, nec semen ejus quærens panem.
+
+Tota die miserétur et cómmodat: \* et semen illíus in benedictióne erit.
+
+Declína a malo, et fac bonum: \* et inhábita in sæculum sæculi.
+
+Quia Dóminus amat judícium, et non derelínquet sanctos suos: \* in ætérnum conservabúntur.
+
+Injústi puniéntur: \* et semen impiórum períbit.
+
+Justi autem hereditábunt terram: \* et inhabitábunt in sæculum sæculi super eam.
+
+**Ant.** Bráchia peccatórum conteréntur: confírmat autem justos Dóminus.
+
+**Ant.** Custódi innocéntiam, \* et vide æquitátem.
+
+### Psalmus 36, iii
+
+OS justi meditábitur sapiéntiam, \* et lingua ejus loquétur judícium.
+
+Lex Dei ejus in corde ipsíus: \* et non supplantabúntur gressus ejus.
+
+Consíderat peccátor justum: \* et quærit mortificáre eum.
+
+Dóminus autem non derelínquet eum in mánibus ejus: \* nec damnábit eum, cum judicábitur illi.
+
+Exspécta Dóminum, et custódi viam ejus: et exaltábit te ut hereditáte cápias terram: \* cum períerint peccatóres vidébis.
+
+Vidi ímpium superexaltátum, \* et elevátum sicut cedros Líbani.
+
+Et transívi, et ecce non erat: \* et quæsívi eum, et non est invéntus locus ejus.
+
+Custódi innocéntiam, et vide æquitátem: \* quóniam sunt relíquiæ hómini pacífico.
+
+Injústi autem disperíbunt simul: \* relíquiæ impiórum interíbunt.
+
+Salus autem justórum a Dómino: \* et protéctor eórum in témpore tribulatiónis.
+
+Et adjuvábit eos Dóminus et liberábit eos: \* et éruet eos a peccatóribus, et salvábit eos: quia speravérunt in eo.
+
+**Ant.** Custódi innocéntiam, et vide æquitátem.
+
+#### In Festis novem Lectionum:
+
+℣. Exspécta Dóminum, et custódi viam ejus. ℟. Exaltábit te ut hereditáte cápias terram.
+
+**Absolutio** Ipsíus píetas et.
+
+**Bened.** 4 Deus Pater omnípotens. 5 Christus perpétuæ. 6 Ignem sui amóris.

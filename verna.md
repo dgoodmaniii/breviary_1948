@@ -51378,3 +51378,91 @@ Spíritus Sancte, Deus, miserére nobis.
 Sancta Trínitas, unus Deus, miserére.
 
 Sancta María, ora pro nobis.
+
+Sancte Joseph, ora.
+
+Proles David ínclyta, ora.
+
+Lumen Patriarchárum, ora pro nobis.
+
+Dei Genitrícis sponse, ora pro nobis.
+
+Custos pudíce Vírginis, ora pro nobis.
+
+Fílii Dei nutrítie, ora.
+
+Christi defénsor sédule, ora pro nobis.
+
+Almæ Famíliæ præses, ora pro nobis.
+
+Joseph justíssime, ora.
+
+Joseph castíssime, ora.
+
+Joseph prudentíssime, ora.
+
+Joseph fortíssime, ora.
+
+Joseph obedientíssime, ora pro nobis.
+
+Joseph fidelíssime, ora.
+
+Spéculum patiéntiæ, ora.
+
+Amátor paupertátis, ora.
+
+Exémplar opíficum, ora.
+
+Domésticæ vitæ decus, ora pro nobis.
+
+Custos vírginum, ora.
+
+Familiárum cólumen, ora.
+
+Solátium miserórum, ora.
+
+Spes ægrotántium, ora.
+
+Patróne moriéntium, ora.
+
+Terror dæmonum, ora.
+
+Protéctor sanctæ Ecclésiæ, ora pro nobis.
+
+Agnus Dei, qui tollis peccáta mundi, parce nobis, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, exáudi nos, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, mis. nobis.
+
+℣. Constítuit eum dóminum domus suæ. ℟. Et príncipem omnis possessiónis suæ.
+
+Orémus. **Oratio**
+
+DEUS, qui ineffábili providéntia beátum Joseph sanctíssimæ Genitrícis tuæ sponsum elígere dignátus es: præsta, quǽsumus; ut, quem protectórem venerámur in terris, intercessórem habére mereámur in cælis: Qui vivis et regnas in sæcula sæculórum. ℟. Amen.
+
+---
+
+# Formula Consecrationis Sacratissimo Cordi Jesu
+
+{RUBRIC: Indulgentia trium annorum; 7 annorum die quo menstruus Secessus habetur; plenaria, suetis conditionibus, in fine cursus exercitiorum spiritualium}
+
+{RUBRIC: S. P. A. 24 Oct. 1935}
+
+DOMINE Jesu, Redémptor noster amantíssime et Sacérdos in ætérnum, nos súpplices tuos, quos appelláre amícos et sacerdótii tui partícipes fácere dignátus es, propítius réspice. Tui sumus, tui perpétuo esse vólumus, ídeo sacratíssimo Cordi tuo, quod tamquam únicum salútis perfúgium laboránti humáno géneri ostendísti, dedicámus nos hódie totos et addícimus. Tu, qui sacerdótibus, Cordis tui cultóribus, úberes divíni ministérii fructus promisísti, fac nos, quǽsumus, idóneos in vínea tua operários, vere húmiles et mites, spíritu devotiónis et patiéntiæ plenos, ita flagrántes amóre tui, ut eúmdem caritátis ignem in ánimis fidélium excitáre et fovére non cessémus. Nostra ígitur corda incéndio tui Cordis ínnova, ut jam nihil áliud studeámus, quam tuam promovére glóriam et ánimas tibi lucrári, quas pretióso sánguine redemísti. Miserére, Pastor bone, præsértim sacerdótum, fratrum nostrórum, si qui ambulántes in vanitáte sensus sui te et diléctam Sponsam tuam, Ecclésiam, lacrimábili defectióne contristárunt. Concéde nobis ad tuum compléxum eos redúcere, aut certe ipsórum expiáre delícta, resarcíre damna et dolórem, quo te afficiunt, amóris nostri consolatióne minúere. Sine dénique, te quisque nostrum exóret his Augustíni verbis: O dulcis Jesu, vivas tu in me et concaléscat spíritu meo vivus carbo amóris tui, et excandéscat in ignem perféctum; árdeat júgiter in ara cordis mei, férveat in medúllis meis, flagret in abscónditis ánimæ meæ; in die consummatiónis meæ consummátus invéniar apud te, qui cum Patre et Spíritu Sancto vivis et regnas in sæcula sæculórum. Amen.
+
+---
+
+# Benedictiones Variæ
+
+## Benedictio Imaginum
+
+### Jesu Christi Domini Nostri, Beatæ Mariæ Virginis et Aliorum Sanctorum
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+OMNIPOTENS sempitérne Deus, qui Sanctórum tuórum imágines {RUBRIC: (sive effigies)} sculpi aut pingi non réprobas, ut, quóties illas óculis córporis intuémur, tóties eórum actus et sanctitátem ad imitándum memóriæ óculis medité-

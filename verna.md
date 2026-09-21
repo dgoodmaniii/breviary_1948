@@ -31025,3 +31025,51 @@ ISTE, quem læti cólimus, fidéles,
 Cujus excélsos cánimus triúmphos,
 Hac die Joseph méruit perénnis
 Gáudia vitæ.
+
+O nimis felix, nimis o beátus,
+Cujus extrémam vígiles ad horam
+Christus et Virgo simul astitérunt
+Ore seréno.
+
+Hinc stygis victor, láqueo solútus
+Carnis, ad sedes plácido sopóre
+Migrat ætérnas, rutilísque cingit
+Témpora sertis.
+
+Ergo regnántem flagitémus omnes,
+Adsit ut nobis, veniámque nostris
+Obtinens culpis, tríbuat supérnæ
+Múnera pacis.
+
+Sint tibi plausus, tibi sint honóres,
+Trine, qui regnas, Deus, et corónas
+Aureas servo tríbuis fidéli
+Omne per ævum. Amen.
+
+℣. Os justi meditábitur sapiéntiam. {RUBRIC: (T. P. Allelúja.)} ℟. Et lingua ejus loquétur judícium. {RUBRIC: (T. P. Allelúja.)}
+
+**Ad Bened. Ant.** Ipse Jesus \* erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph. {RUBRIC: (T. P. Allelúja.)}
+
+###### Oratio
+
+SANCTISSIMÆ Genitrícis tuæ Sponsi, quǽsumus, Dómine, méritis adjuvémur: ut, quod possibílitas nostra non óbtinet, ejus nobis intercessióne donétur: Qui vivis.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica; sed ad Primam loco Psalmi 117 Confitémini, dícitur Psalmus 53 Deus, in nómine tuo 59. Quod observátur in ómnibus Festis, in quibus sequens pónitur Rúbrica: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Primam
+
+**Ant.** Ibant paréntes Jesu, {RUBRIC: ut supra. 758}
+
+##### Ad Tertiam
+
+**Ant.** Cum redírent, {RUBRIC: ut supra. 758}
+
+**Capit.** Vir fidélis, {RUBRIC: ut supra. 758}
+
+℟. br. Constítuit eum \* Dóminum domus suæ. Constítuit. ℣. Et príncipem omnis possessiónis suæ. Dóminum. Glória Patri. Constítuit. ℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Constítuit eum dóminum domus suæ, \* Allelúja, allelúja. Constítuit. ℣. Et príncipem omnis possessiónis suæ. Allelúja, allelúja. Glória Patri.

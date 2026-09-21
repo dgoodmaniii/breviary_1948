@@ -46609,3 +46609,29 @@ NAM hic magnæ illæ nostræ opes pósitæ sunt, hic spes nostra omnis. Quid eni
 ###### Lectio vi
 
 ET quidem si concórdia perfécte servarétur a nobis, nullam áliam domum præter hanc haberémus. Hoc autem quod dixi, non esse durum, testántur illa tria míllia et quinque míllia hóminum, quibus et domus una, et mensa una, et ánima una erat. Multitúdinis enim credéntium, inquit, unum erat cor, et ánima una. Sed quia longe ab illórum virtúte ábsumus et per domos disjúncti sumus, saltem, quando huc convenímus, id omni stúdio faciámus. Nam etsi in áliis rebus páuperes et ínopes sumus, hoc loco saltem, cum huc ad vos intrámus, cum caritáte nos suscípite; cumque, Pax vobis, dico, Et cum spíritu tuo, non voce solum, sed ánimo quoque respondéte.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino: \* Vere locus iste sanctus est, et ego nesciébam. (T. P. Allelúja.) ℣. Cumque evigilásset Jacob de somno, ait. — Vere. Glória Patri. Vere.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 19, 1-10*
+
+IN illo témpore: Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus: et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+De Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Paulo post prǽdicta}
+
+ET cum vidérent omnes, murmurábant, dicéntes, quod ad hóminem peccatórem divertísset. Maniféstum est, Judǽos semper géntium odísse salútem. Scriptum est enim: Sequénti vero Sábbato pene univérsa cívitas convénit audíre verbum Dei; vidéntes autem turbas Judǽi, repléti sunt zelo, et contradicébant iis, quæ a Paulo dicebántur. Et álibi, fidéles étiam fratres advérsus Apostolórum Príncipem disceptábant, dicéntes: Quare introísti ad viros præpútium habéntes, et manducásti cum illis?
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. (T. P. Allelúja.) ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et.
+
+###### Lectio viii
+
+STANS autem Zachǽus, dixit ad Dóminum: Ecce dimídium bonórum meórum, Dómine, do paupéribus; et si quid áliquem defraudávi, reddo quádruplum. Aliis calumniántibus hóminem peccatórem, ipse Zachǽus stans, id est, in ea quam cœperat fídei veritáte persístens, non solum se ex peccatóre convérsum, sed étiam inter perféctos probat esse conversátum. Dicénte enim Dómino: Si vis perféctus esse, vade, vende ómnia quæ habes, et da paupéribus; quisquis ante conversiónem innocénter vixit, ómnia convérsus potest dare paupéribus.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus

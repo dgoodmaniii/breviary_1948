@@ -26854,3 +26854,29 @@ OMNIPOTENS sempitérne Deus: fac nos tibi semper et devótam gérere voluntátem
 **Ant.** O rex glóriæ, Dómine virtútum, qui triumphátor hódie super omnes cælos ascendísti, ne derelínquas nos órphanos; sed mitte promíssum Patris in nos, Spíritum veritátis, allelúja.
 
 ℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.
+
+#### Oratio
+
+CONCEDE, quǽsumus, omnípotens Deus: ut, qui hodiérna die Unigénitum tuum Redemptórem nostrum ad cælos ascendísse crédimus; ipsi quoque mente in cæléstibus habitémus. Per eúmdem Dóminum.
+
+{RUBRIC: Completórium de Dominica.}
+
+### Ad Matutinum
+
+{RUBRIC: Si sequéntes Lectiónes I Nocturni pridie dictæ fúerint in Festo S. Joánnis Ap. ante Portam Latínam, hac nocte sumúntur Lectiónes Fériæ II sequéntis.}
+
+#### In I Nocturno
+
+Incipit Epístola prima beáti Joánnis Apóstoli
+
+#### Lectio i
+
+*Cap. 1, 1-10*
+
+QUOD fuit ab inítio, quod audívimus, quod vídimus óculis nostris, quod perspéximus, et manus nostræ contrectavérunt de verbo vitæ: et vita manifestáta est, et vídimus, et testámur, et annuntiámus vobis vitam ætérnam, quæ erat apud Patrem, et appáruit nobis: quod vídimus, et audívimus, annuntiámus vobis, ut et vos societátem habeátis nobíscum, et societas nostra sit cum Patre et cum Fílio ejus Jesu Christo. Et hæc scríbimus vobis ut gaudeátis, et gáudium vestrum sit plenum. Et hæc est annuntiátio, quam audívimus ab eo, et annuntiámus vobis: Quóniam Deus lux est, et ténebræ in eo non sunt ullæ.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+SI dixérimus quóniam societátem habémus cum eo, et in ténebris ambulámus, mentímur, et veritátem non fácimus. Si autem in luce ambulámus sicut et ipse est in luce, societátem habémus ad ínvicem, et sanguis Jesu Christi, Fílii ejus, emúndat nos ab omni peccáto. Si dixérimus quóniam peccátum non habémus, ipsi nos sedúcimus, et véritas in nobis non est. Si confiteámur peccáta nostra, fidélis est et justus, ut remíttat nobis peccáta nostra, et emúndet nos ab omni iniquitáte. Si dixéri-

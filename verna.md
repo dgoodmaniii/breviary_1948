@@ -43309,4 +43309,44 @@ QUIDQUID ígitur in hac sancta plebe potest esse virtútis et grátiæ, de hoc, 
 
 ###### Lectio vi
 
-BENE et cóngrue in hac die, quam nobis beáti Patris nostri N. ad paradísum tránsitus exsultábilem reddit, præséntis Psalmi versículum decantávimus: In memória ætérna erit justus. Digne enim in memóriam vértitur hóminum, qui ad gáudium tránsiit Angelórum. Dicit sermo divínus: Ne laudes hóminem in vita sua; tamquam si díceret: Lauda post vitam, magnífica post consummatiónem. Dúplici enim ex causa utílius est hóminum magis memóriæ laudem dare, quam vitæ; ut illo potíssimum témpore mérita sanctitátis extóllas, quando nec laudántem
+BENE et cóngrue in hac die, quam nobis beáti Patris nostri N. ad paradísum tránsitus exsultábilem reddit, præséntis Psalmi versículum decantávimus: In memória ætérna erit justus. Digne enim in memóriam vértitur hóminum, qui ad gáudium tránsiit Angelórum. Dicit sermo divínus: Ne laudes hóminem in vita sua; tamquam si díceret: Lauda post vitam, magnífica post consummatiónem. Dúplici enim ex causa utílius est hóminum magis memóriæ laudem dare, quam vitæ; ut illo potíssimum témpore mérita sanctitátis extóllas, quando nec laudántem adulátio movet, nec laudátum tentat elátio.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+##### In III Nocturno
+
+**Ant.** Dómine, \* iste Sanctus habitábit in tabernáculo tuo, operátus est justítiam, requiéscet in monte sancto tuo. (T. P. Allelúja.)
+
+###### Psalmus 14
+
+DOMINE, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Dómine, iste Sanctus habitábit in tabernáculo tuo, operátus est justítiam, requiéscet in monte sancto tuo.
+
+**Ant.** Vitam pétiit \* a te, et tribuísti ei, Dómine: glóriam et magnum decórem imposuísti super eum: posuísti in cápite ejus corónam de lápide pretióso.
+
+###### Psalmus 20
+
+DOMINE, in virtúte tua lætábitur rex: \* et super salutáre tuum exsultábit veheménter.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sǽculum, et in sǽculum sǽculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sǽculum sǽculi: \* lætificábis eum in gáudio cum vultu tuo.

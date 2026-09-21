@@ -27367,4 +27367,26 @@ Sermo sancti Augustíni Epíscopi
 
 OMNIA, caríssimi, quæ Dóminus Jesus Christus in hoc mundo sub fragilitáte nostra mirácula édidit, nobis profíciunt: qui dum humánam conditiónem sidéribus importávit, credéntibus cælum patére posse monstrávit: et dum victórem mortis in cæléstia elevávit, victóribus quo sequántur osténdit. Ascénsio ergo Dómini cathólicæ fídei confirmátio fuit: ut secúri in pósterum crederémus miráculi illíus donum, cujus jam in præsénti percepissémus efféctum; et fidélis quisque cum jam tanta percéperit, per ea, quæ cognóscit præstíta, discat speráre promíssa, ac Dei sui prætéritam præsentémque bonitátem, quasi futurórum téneat cautiónem.
 
-℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja.
+
+#### Lectio v
+
+SUPER excélsa ergo cæli terrénum corpus impónitur: ossa, intra sepúlcri angústias paulo ante conclúsa, Angelórum cœtibus inferúntur: in grémium immortalitátis mortális natúra transfúnditur: et ídeo sacra apostólicæ lectiónis testátur história: Cum hæc dixísset, inquit, vidéntibus illis, elevátus est. Dum audis elevátum, agnósce milítiæ cæléstis obséquium: unde hodiérna festívitas hóminis nobis et Dei sacraménta manifestávit. Sub una eadémque persóna, in eo qui élevat, divínam poténtiam; in eo autem qui elevátur, humánam cognósce substántiam.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum.
+
+#### Lectio vi
+
+IDEOQUE omnímodis detestánda sunt venéna Orientális erróris, qui ímpia novitáte præsúmit asserere Fílium Dei ac fílium hóminis uníus esse natúræ. In altérutra enim parte, vel qui solum hóminem fuísse díxerit, negábit Conditóris glóriam; vel qui solum Deum, negábit misericórdiam Redemptóris. Quo génere non fácile Ariánus evangélicam póterit habére veritátem, ubi Fílium Dei nunc æquálem légimus, nunc minórem. Qui enim uníus natúræ Salvatórem nostrum mortífera persuasióne credíderit, solum hóminem, aut solum Deum cogétur dícere crucifíxum. Sed non ita est. Mortem enim nec solus Deus sentíre, nec solus homo superáre potuísset.
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 14-20*
+
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui

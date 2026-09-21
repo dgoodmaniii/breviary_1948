@@ -15735,3 +15735,31 @@ ERgo sermo Christi hoc cónficit Sacraméntum. Quis sermo Christi? Nempe is, quo
 JAm redi mecum ad propositiónem meam. Magnum quidem et venerábile, quod manna Judǽis pluit e cælo. Sed intéllige, quid est ámplius, manna de cælo, an corpus Christi? Corpus Christi útique, qui auctor est cæli. Deínde, manna qui manducávit, mórtuus est: qui manducáverit hoc corpus, fiet ei remíssio peccatórum, et non moriétur in ætérnum. Ergo non otióse, cum áccipis, tu dicis, Amen; jam in spíritu cónfitens quod accípias corpus Christi. Dicit tibi sacérdos, Corpus Christi; et tu dicis, Amen, hoc est, Verum. Quod confitétur lingua, téneat afféctus.
 
 ℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 6, 56-59*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et sanguis meus vere est potus. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+
+{RUBRIC: Liber 8 de Trinit., ante med.}
+
+NOn est humáno aut sæculi sensu in Dei rebus loquéndum. Quæ scripta sunt, legámus, et quæ legérimus, intelligámus; et tunc perféctæ fídei offício fungémur. De naturáli enim in nobis Christi veritáte quæ dícimus, nisi ab eo díscimus, stulte atque ímpie dícimus. Ipse enim ait: Caro mea vere est esca, et sanguis meus vere est potus. Qui edit carnem meam et bibit sánguinem meum, in me manet, et ego in eo. De veritáte carnis et sánguinis non relíctus est ambigéndi locus.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In.
+
+##### Lectio viii
+
+NUnc enim, et ipsíus Dómini professióne, et fide nostra, vere caro est, et vere sanguis est. Et hæc accépta atque hausta id effíciunt, ut et nos in Christo, et Christus in nobis sit. An ne hoc véritas non est? Contíngat plane his verum non esse, qui Christum Jesum verum esse Deum negant. Est ergo in nobis ipse per carnem, et sumus in eo, dum secum hoc quod nos sumus, in Deo est. Quod autem in eo per sacraméntum communicátæ carnis et sánguinis simus, ipse testátur, dicens: Et hic mundus jam me non videt, vos autem me vidébitis: quóniam ego vivo, et vos vivétis: quóniam ego in Patre meo, et vos in me, et ego in vobis.
+
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me. ℣. Cibávit illum Dóminus pane vitæ et intelléctus. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+QUod autem in nobis naturális hæc únitas sit, ipse ita testátus est: qui edit carnem meam et bibit sánguinem meum, in me manet, et ego in eo. Non enim quis in eo erit, nisi

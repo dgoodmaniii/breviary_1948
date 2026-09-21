@@ -23025,3 +23025,45 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 {RUBRIC: Et non flectuntur genua toto Tempore Paschali.}
 
 ---
+
+## Dominica Resurrectionis
+
+[IMAGE]
+
+{RUBRIC: Duplex I classis}
+
+{RUBRIC: Cum Octava privilegiáta I órdinis}
+
+### Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+**Invitat.** Surréxit Dóminus vere, \* Allelúja. *Ps. 94* Veníte. *3*
+
+{RUBRIC: Hymni et Capitula non dicuntur in aliqua Horárum, nec Versículi, nisi in Nocturno.}
+
+#### Ad Nocturnum
+
+**Ant.** Ego sum qui sum, \* et consílium meum non est cum ímpiis, sed in lege Dómini volúntas mea est, allelúja.
+
+##### Psalmus 1
+
+BEATUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** Ego sum qui sum, et consílium meum non est cum ímpiis, sed in lege

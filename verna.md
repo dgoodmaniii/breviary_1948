@@ -24543,3 +24543,41 @@ TRADEBAT autem judicánti se injúste: qui peccáta nostra ipse pértulit in có
 **℟. br.** Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
 
 ℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+## Ad Nonam
+
+**Capitulum** *1 Petri 2, 25*
+
+ERATIS enim sicut oves errántes, sed convérsi estis nunc ad pastórem et epíscopum animárum vestrárum.
+
+**℟. br.** Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+#### Oratio
+
+DEUS, qui in Fílii tui humilitáte jacéntem mundum erexísti: fidélibus tuis perpétuam concéde lætítiam; ut, quos perpétuæ mortis eripuísti cásibus, gáudiis fácias pérfrui sempitérnis. Per eúmdem Dóminum.
+
+## Ad Vesperas
+
+{RUBRIC: Antiphona} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério 72; Capitulum, Hymnus et Versus, ut in Vésperis præcedéntis Sábbati. 539}
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Ego sum pastor bonus, \* qui pasco oves meas, et pro óvibus meis pono ánimam meam, allelúja.
+
+---
+
+# Infra Hebdomadam II post Octavam Paschæ
+
+## Feria Secunda
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 15, 5-29*
+
+SURREXERUNT autem quidam de hǽresi pharisæórum, qui credidérunt, dicéntes: Quia opórtet circumcídi eos, præcípere quoque serváre legem Móysi. Convenerúntque Apóstoli et senióres vidére de verbo hoc. Cum autem magna conquisítio fíeret, surgens Petrus dixit ad eos: Viri fratres, vos scitis quóniam ab antíquis diébus Deus in nobis elégit, per os meum audíre gentes verbum Evangélii, et crédere. Et qui novit corda Deus, testimónium perhíbuit, dans illis Spíritum Sanctum, sicut et nobis, et nihil discrévit inter nos et illos, fide puríficans corda eórum. Nunc ergo quid tentátis Deum, impónere jugum super cervíces discipulórum, quod neque patres nostri, neque nos portáre potúimus? Sed per grátiam Dómini Jesu Christi crédimus salvári, quemádmodum et illi. Tácuit autem omnis multitúdo: et audiébant Bárnabam et Paulum, narrántes quanta Deus fecísset signa et prodígia in géntibus per eos.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimó-

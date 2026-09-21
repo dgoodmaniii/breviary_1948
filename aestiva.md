@@ -1611,3 +1611,88 @@ Voce precémur:
 
 Ut reos culpæ miserátus omnem
 Pellat angórem, tríbuat salútem,
+
+Donet et nobis bona sempitérnæ
+Múnera pacis.
+
+Præstet hoc nobis Déitas beáta
+Patris, ac Nati, paritérque Sancti
+Spíritus, cujus résonat per omnem
+Glória mundum. Amen.
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+{RUBRIC: Ad Benedíctus Antíphona ut in Próprio de Témpore.}
+
+##### Canticum Zachariæ
+
+*Luc. 1, 68-79*
+
+BENEDICTUS † Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a sæculo sunt, prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+{RUBRIC: Oratio convéniens. Réliqua ut in Ordinário.} 11
+
+{RUBRIC: ¶ Psalmi cum Cántico de Domínica supérius appósiti dicúntur étiam, sub Antiphónis Offício diéi congruéntibus, in Domínicis infra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, in Duplícibus I vel II classis, in Festis novem Lectiónum Dómini, B. Maríæ Vírginis, Angelórum, S. Joánnis Baptístæ, S. Joseph, Apostolórum, Evangelistárum et per Octávas privilegiátas; itémque in quolíbet Festo novem Lectiónum próprias Antíphonas ad Laudes habénti, quando de eis persolvítur Offícium.}
+
+## Ad Primam
+
+Pater, Ave et Credo.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+JAM lucis orto sídere,
+Deum precémur súpplices,
+Ut in diúrnis áctibus
+Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+**Ant.** Allelúja.
+
+{RUBRIC: ¶ Aña cum Psalmis, ad Horas minóres assignáta, adhibétur semper, extra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu, quando fit Offícium de qualíbet Domínica minóri.}
+
+###### Psalmus 117
+
+CONFITEMINI Dómino quóniam bonus: \* quóniam in sæculum misericórdia ejus.

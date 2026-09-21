@@ -24688,4 +24688,18 @@ De Actibus Apostolórum
 
 *Cap. 24, 10-27*
 
-RESPONDIT autem Paulus, (annuénte sibi præside dícere): Ex multis annis te esse júdicem genti huic sciens, bono ánimo pro me satisfáciam. Potes enim cognóscere, quia non plus sunt mihi
+RESPONDIT autem Paulus, (annuénte sibi præside dícere): Ex multis annis te esse júdicem genti huic sciens, bono ánimo pro me satisfáciam. Potes enim cognóscere, quia non plus sunt mihi dies quam duódecim, ex quo ascéndi adoráre in Jerúsalem: et neque in templo invenérunt me cum áliquo disputántem, aut concúrsum faciéntem turbæ, neque in synagógis, neque in civitáte: neque probáre possunt tibi, de quibus nunc me accúsant. Confíteor autem hoc tibi, quod secúndum sectam, quam dicunt hǽresum, sic desérvio Patri, et Deo meo, credens ómnibus, quæ in lege et prophétis scripta sunt: spem habens in Deum, quam et hi ipsi exspéctant, resurrectiónem futúram justórum et iniquórum. In hoc et ipse stúdeo sine offendículo consciéntiam habére ad Deum et ad hómines semper.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+#### Lectio ii
+
+POST annos autem plures eleemósynas factúrus in gentem meam, veni, et oblatiónes et vota. In quibus invenérunt me purificátum in templo, non cum turba, neque cum tumúltu. Quidam autem ex Asia Judǽi, quos oportébat apud te præsto esse, et accusáre si quid habérent advérsum me: aut hi ipsi dicant si quid invenérunt in me iniquitátis, cum stem in concílio, nisi de una hac solúmmodo voce, qua clamávi inter eos stans: Quóniam de resurrectióne mortuórum ego júdicor hódie a vobis.
+
+℟. De ore prudéntis procédit mel, allelúja: dulcédo mellis est sub lingua ejus, allelúja: \* Favus distíllans lábia ejus, allelúja, allelúja. ℣. Sapiéntia requiéscit in corde ejus, et prudéntia in sermóne oris illíus. — Favus.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Favus.
+
+#### Lectio iii
+
+DISTULIT autem illos Felix, certíssime sciens de via hac, dicens: Cum tribúnus Lýsias descénderit, áudiam vos. Jussítque centurióni custodíre eum, et habére réquiem, nec quemquam de suis prohibére ministráre ei. Post áliquot autem dies véniens Felix cum Drusílla uxóre sua, quæ erat Judǽa, vocávit Paulum, et audívit ab eo fidem quæ est in Christum Jesum. Disputánte autem illo de justítia, et castitáte, et de judício futúro, tremefáctus

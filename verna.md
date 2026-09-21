@@ -25782,4 +25782,28 @@ QUONIAM Dei mori non póterat Sapiéntia, resúrgere autem non póterat quod mó
 
 #### Lectio v
 
-PRIMITIÆ útique ejúsdem sunt géneris atque natúræ, cujus et réliqui fructus: quorum pro lætióre provéntu primitíva Deo múnera deferúntur; sacrum munus pro ómnibus, et quasi reparátæ quædam liba natúræ. Primítiæ ergo quiescéntium Christus. Sed utrum suórum quiescéntium, qui quasi mortis exsórtes, dulci quodam sopóre tenéntur, an ómnium mortuórum? Sed sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur. Itaque sicut primítiæ mortis in Adam, ita étiam primítiæ resurrectiónis in Christo omnes resúrgent. Sed nemo despéret, neque justus dóleat commúne consórtium resurgéndi, cum præcí-
+PRIMITIÆ útique ejúsdem sunt géneris atque natúræ, cujus et réliqui fructus: quorum pro lætióre provéntu primitíva Deo múnera deferúntur; sacrum munus pro ómnibus, et quasi reparátæ quædam liba natúræ. Primítiæ ergo quiescéntium Christus. Sed utrum suórum quiescéntium, qui quasi mortis exsórtes, dulci quodam sopóre tenéntur, an ómnium mortuórum? Sed sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur. Itaque sicut primítiæ mortis in Adam, ita étiam primítiæ resurrectiónis in Christo omnes resúrgent. Sed nemo despéret, neque justus dóleat commúne consórtium resurgéndi, cum præcí-puum fructum virtútis exspéctet. Omnes quidem resúrgent, sed unusquísque, ut ait Apóstolus, in suo órdine. Commúnis est divínæ fructus cleméntiæ, sed distínctus ordo meritórum.
+
+℟. In toto corde meo, allelúja, exquisívi te, allelúja: \* Ne repéllas me a mandátis tuis, allelúja, allelúja. ℣. Benedíctus es tu, Dómine, doce me justificatiónes tuas. — Ne.
+
+#### Lectio vi
+
+ADVERTIMUS, quam grave sit sacrilégium, resurrectiónem non crédere. Si enim non resurgémus, ergo Christus gratis mórtuus est, ergo Christus non resurréxit. Si enim nobis non resurréxit, útique non resurréxit, qui sibi cur resúrgeret, non habébat. Resurréxit in eo mundus, resurréxit in eo cælum, resurréxit in eo terra. Erit enim cælum novum, et terra nova. Sibi autem non erat necessária resurréctio, quem mortis víncula non tenébant. Nam etsi secúndum hóminem mórtuus, in ipsis tamen erat liber inférnis. Vis scire quam liber? Factus sum sicut homo sine adjutório, inter mórtuos liber. Et bene liber, qui se póterat suscitáre, juxta quod scriptum est: Sólvite hoc templum, et in tríduo resuscitábo illud. Et bene liber, qui álios descénderat redemptúrus.
+
+℟. Hymnum cantáte nobis, allelúja: \* Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. ℣. Illic interrogavérunt nos, qui captívos duxérunt nos, verba cantiónum. — Quómodo. Glória Patri. Quómodo.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 16, 23-30*
+
+IN illo témpore: Dixit Jesus discípulis suis: Amen, amen, dico vobis: si quid petiéritis Patrem in nómine meo, dabit vobis. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractatus 102 in Joánnem}
+
+HOMINI verba nunc ista tractánda sunt: Amen, amen, dico vobis: si quid petiéritis Patrem in nómine meo, dabit vobis. Jam dictum est in superióribus hujus Domínici sermónis pártibus, propter eos, qui nonnúlla petunt a Patre in Christi nómine, nec accípiunt: non peti in nómine

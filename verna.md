@@ -42996,3 +42996,57 @@ Inimícos ejus índuam confusióne: \* super ipsum autem efflorébit sanctificá
 **Capit.** *Eccli. 44, 16-17*
 
 ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+###### Hymnus
+
+ISTE Conféssor Dómini coléntes
+Quem pie laudant pópuli per orbem,
+Hac die lætus méruit beátas
+Scándere sedes.
+
+{RUBRIC: Si non est dies obitus (quod litteræ m. t. v. indicant in Proprio), dicatur:}
+
+Hac die lætus méruit suprémos
+Laudis honóres.
+
+Qui pius, prudens, húmilis, pudícus,
+Sóbriam duxit sine labe vitam,
+Donec humános animávit auræ
+Spíritus artus.
+
+Cujus ob prǽstans méritum frequénter,
+Ægra quæ passim jacuére membra,
+Víribus morbi dómitis, salúti
+Restituúntur.
+
+Noster hinc illi chorus obsequéntem
+Cóncinit laudem celebrésque palmas,
+Ut piis ejus précibus juvémur
+Omne per ævum.
+
+Sit salus illi, decus atque virtus,
+Qui, super cæli sólio corúscans,
+Tótius mundi sériem gubérnat
+Trinus et unus. Amen.
+
+℣. Amávit eum Dóminus, et ornávit eum. (T. P. Allelúja.) ℟. Stolam glóriæ índuit eum. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo ora pro nobis Dóminum. (T. P. Allelúja.)
+
+##### In II Vesperis
+
+℣. Justum dedúxit Dóminus per vias rectas. (T. P. Allelúja.) ℟. Et osténdit illi regnum Dei. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum. (T. P. Allelúja.)
+
+##### Pro Summis Pontificibus
+
+**Ant.** Dum esset Summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit. (T. P. Allelúja.)
+
+**1 — Oratio**
+
+DA, quǽsumus, omnípotens Deus: ut beáti N. Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+**2 — Alia Oratio**
+
+EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti N. Confes-

@@ -17167,3 +17167,29 @@ JOánnes subdit: Unus mílitum láncea latus ejus apéruit et contínuo exívit 
 ##### Lectio viii
 
 AQua ad lítteram non cum sánguine indistíncta deflúxit. Neque enim potuísset ab insipiéntibus comprehéndi, si mixta cum sánguine defluxísset. Et forte totus sanguis deflúxit ex illo divíno córpore in signum totíus amóris effúsi, post quem humor áqueus egréssus est. Quod quidem est alto mystério factum, ut prius egrederétur ex eódem córpore rédimens prétium, deínde aqua in qua multitúdo populórum redémpta significátur. Sunt enim aquæ multæ, pópuli multi; tamen qui ad christiánam fidem pértinent unus fidélis pópulus sunt, ut non sint aquæ, sed aqua quæ manávit ex látere Christi, sicut prima Corinthiórum cápite décimo Apóstolus ait: Unus panis, et unum corpus multi sumus omnes, qui de uno pane et de uno cálice participámus. Et íterum ad Ephésios, cápite quarto, inquit: Unus Deus, una fides, unum baptísma.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+NOtánter tamen adverténdum est quod latus Christi apértum dícitur, non vulnerátum: quóniam próprie vulnus prætérquam in vivo córpore fíeri nequit. Ait enim Evangelísta Joánnes: Unus mílitum láncea latus ejus apéruit; ut, apérto látere, cognoscámus dilectiónem Cordis sui usque ad mortem, et ad illum ineffábilem amórem ejus ingrediámur quo ille ad nos procéssit. Accedámus ergo ad Cor ejus, Cor altum, Cor secrétum, Cor ómnia cógitans, Cor ómnia sciens, Cor díligens, immo amóre ardens; et apértam portam intelligámus saltem in amóris vehemántia; cordifórmes ingrediámur ad secrétum ab ætérno abscónditum, nunc vero in morte quasi apérto látere revelátum; quóniam apértio láteris ætérni templi apertiónem demónstrat, ubi ómnium exsisténtium consummáta est felícitas ætérna.
+
+**Te Deum laudámus.**
+
+---
+
+## Feria IV infra Octav. Ssmi Cordis Jesu
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 13, 1-14*
+
+FIlius unius anni erat Saul cum regnáre cœpísset; duóbus autem annis regnávit super Israël. Et elégit sibi Saul tria míllia de Israël. Et erant cum Saul duo míllia in Machmas et in monte Bethel, mille autem cum Jónatha in Gábaa Bénjamin. Porro céterum pópulum remísit unumquémque in tabernácula sua. Et percússit Jónathas statiónem Philisthinórum, quæ erat in Gábaa. Quod cum audíssent Philísthiim, Saul cécinit búccina in omni terra, dicens: Audiant Hebrǽi. Et univérsus Israël audívit hujuscémodi famam: Percússit Saul statiónem Philisthinórum, et eréxit se Israël advérsus Philísthiim; clamávit ergo pópulus post Saul in Gálgala.
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor super eis cum bene eis fécero in toto Corde meo. — Ut non.

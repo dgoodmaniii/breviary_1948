@@ -33075,4 +33075,28 @@ IN episcopátu quantum fúerit constans, húmilis, pátiens, miséricors, in chr
 
 ###### Lectio vi
 
-SCRIPSIT Isidórus libros etymologiárum et de ecclesiásticis offíciis, aliósque quamplúrimos christiánæ et ecclesiásticæ discíplinæ ádeo útiles, ut sanctus Leo Papa quartus ad epíscopos Británniæ scríbere non dubitáverit, sicut Hierónymi et Augustíni, ita Isidóri dicta retinénda esse, ubi contígerit inusitátum negótium, quod per cánones mínime definíri possit. Plures étiam ex ejúsdem scriptis senténtiæ inter canónicas Ecclésiæ leges relátæ conspiciúntur. Prǽfuit concílio Toletáno quarto, ómnium Hispániæ celebérrimo. Dénique cum ab Hispánia Ariánam hǽresim eliminásset, morte sua et regni vastatióne a Saracenórum armis públice
+SCRIPSIT Isidórus libros etymologiárum et de ecclesiásticis offíciis, aliósque quamplúrimos christiánæ et ecclesiásticæ discíplinæ ádeo útiles, ut sanctus Leo Papa quartus ad epíscopos Británniæ scríbere non dubitáverit, sicut Hierónymi et Augustíni, ita Isidóri dicta retinénda esse, ubi contígerit inusitátum negótium, quod per cánones mínime definíri possit. Plures étiam ex ejúsdem scriptis senténtiæ inter canónicas Ecclésiæ leges relátæ conspiciúntur. Prǽfuit concílio Toletáno quarto, ómnium Hispániæ celebérrimo. Dénique cum ab Hispánia Ariánam hǽresim eliminásset, morte sua et regni vastatióne a Saracenórum armis públice prænuntiáta, postquam quadragínta círciter annos suam rexísset ecclésiam, Híspali migrávit in cælum anno sexcentésimo trigésimo sexto. Ejus corpus inter Leándrum fratrem et Florentínam soróre, ut ipse mandáverat, primo cónditum, Ferdinándus primus Castéllæ et Legiónis rex, ab Eneto Saracéno Híspali dominánte magno prétio redémptum, Legiónem tránstulit; et in ejus honórem templum ædificátum est, ubi miráculis clarus magna pópuli devotióne cólitur.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. {RUBRIC: (T. P. Allelúja.)} ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+ISIDORUS, natióne Hispánus, ex nova Carthágine Severiáno patre, províncíæ duce, natus, a sanctis epíscopis Leándro Hispalénsi et Fulgéntio Carthaginiénsi frátribus suis pie et liberáliter educátus, omni scientiárum et christianárum virtútum génere præstantíssimus evásit. Leándro vita functo, ad Hispalénsem cáthedram assúmptus, Sedis apostólicæ in tota Hispánia vicárius constitútus est. In episcopátu se ómnium bonórum óperum præbuit exémplar, et instaurándæ ecclesiásticæ discíplinæ sollícitus máxime fuit. Coácto Híspali concílio, Acephalórum hǽresim, Hispániæ jam minitántem, acri et eloquénti disputatióne fregit atque contrívit. Tantam apud omnes sanctitátis et doctrínæ famam adéptus est, ut, elápso vix ab ejus óbitu anno sextodécimo, Doctor egrégius merúerit appellári. Libros scripsit perútiles et eruditióne plenos. Prǽfuit concílio Toletáno quarto, ómnium Hispániæ celebérrimo. Dénique, postquam quadragínta círciter annos suam rexísset ecclésiam, Híspali migrávit in cælum, anno sexcentésimo trigésimo sexto.
+
+{RUBRIC: Te Deum.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod

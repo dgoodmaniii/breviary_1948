@@ -38414,4 +38414,30 @@ SCIENTIÆ ac pietátis laude Bedæ nomen sic brevi cláruit, ut sanctus Sérgius
 
 ÆTATE demum et labóribus fractus, gravi morbo corréptus est. Quo cum ámplius quinquagínta dies deténtus esset, consuétum orándi morem Scripturásque interpretándi non intercépit; eo namque témpore Evangélium Joánnis in populárium suórum usum Anglice vertit. Cum autem in Ascensiónis prælúdio instáre sibi mortem sentíret, suprémis Ecclésiæ sacraméntis muníri vóluit; tum, sodáles amplexátus, atque humi super cilício stratus, cum illa verba ingemináret, Glória Patri, et Fílio, et Spirítui Sancto, obdormívit in Dómino. Ejus corpus, suavíssimum, uti fertur, spirans odórem, sepúltum est in monastério Girvénsi, ac póstea Dunclínum cum sancti Cuthbérti relíquiis translátum. Eum tamquam Doctórem a Benedíctínis alíisque religiósis famíliis ac diœcésibus cultum, Leo décimus tértius Póntifex máximus, ex sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctórem declarávit, et festo ipsíus die Missam et Offícium de Doctóribus ab ómnibus recitári decrévit.
 
-℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus gén-
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+BEDA présbyter, Girvi in Británniæ et Scótiæ fínibus ortus est. Mónachus factus, vitam sic instítuit, ut, dum se ártium et doctrinárum stúdiis totum impénderet, nihil umquam de regulári disciplína remítteret. Nullum fuit doctrínæ genus, in quo non esset diligentíssime versátus; sed præcípua illi cura fuit divinárum Scripturárum meditátio, ita ut, sacerdótio initiátus, sacros explanáre libros aggréssus sit; in quo sanctórum Patrum doctrínis ádeo inhǽsit, ut nihil proférret nisi illórum judício comprobátum, eorúmdem étiam fere verbis usus. Otium perósus semper, ex lectióne ad oratiónem transíbat, ac vicíssim ex oratióne ad lectiónem. Emendándis fidélium móribus, fídei vindicándæ atque asseréndæ libros plures conscrípsit, quibus tantam sui apud omnes opiniónem fecit, ut ejus scripta, eo adhuc vivénte, públice in ecclésiis legeréntur. Ætáte demum et labóribus fractus, pie obdormívit in Dómino. Eum Leo décimus tértius universális Ecclésiæ Doctórem declarávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+{RUBRIC: Si ix Lectio alicujus Officii commemorati dicenda non sit, ex vii Lectione fit etiam viii, incipiendo a signo ¶, et Lectio viii legitur ut ix.}
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: In Evang. Vos estis sal terræ}
+
+IN terra, humána natúra; in sale, sapiéntia verbis significátur. Salis enim natúra, terra effícitur infructuósa; unde quasdam urbes légimus, victórum ira, sale semináta. Et hoc cónvenit apostólicæ doctrínæ, ut sale sapiéntiæ compéscat in terra humánæ carnis luxum sǽculi aut fœditátem vitiórum germináre. Quod si sal evanúerit, in quo saliétur? Id est, si vos, per

@@ -27195,4 +27195,28 @@ Sermo sancti Máximi Epíscopi
 
 #### Lectio iv
 
-EMINIT sánctitas vestra, quod áquilæ illi de Psaltério, cujus innovátam juventútem légimus, comparáverim Salvatórem. Est enim similitúdo non parva. Sicut enim áquila humília déserit, alta petit, cælórum vicína conscéndit: ita et Salvátor humília inférni deséruit, paradísi altióra pétiit, cælórum fastígia penetrávit. Et sicut áquila, relíctis terrénis sórdibus, sublíme volans, purióris áëris salubritáte perfrúitur; ita et Dóminus, terrenórum fæcem
+EMINIT sánctitas vestra, quod áquilæ illi de Psaltério, cujus innovátam juventútem légimus, comparáverim Salvatórem. Est enim similitúdo non parva. Sicut enim áquila humília déserit, alta petit, cælórum vicína conscéndit: ita et Salvátor humília inférni deséruit, paradísi altióra pétiit, cælórum fastígia penetrávit. Et sicut áquila, relíctis terrénis sórdibus, sublíme volans, purióris áëris salubritáte perfrúitur; ita et Dóminus, terrenórum fæcem déserens peccatórum, in Sanctis suis vólitans, purióris vitæ simplicitáte lætátur.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo.
+
+#### Lectio v
+
+PER ómnia ígitur áquilæ comparátio cónvenit Salvatóri. Sed quid fácimus, quod áquila prædam frequénter díripit, tollit frequénter aliénum? Nec in hoc tamen dissímilis est Salvátor. Prædam enim quodámmodo sústulit, cum hóminem, quem suscépit, inférni raptum fáucibus portávit ad cælum, et aliénæ dominatiónis, id est, diabólicæ potestátis servum, de captivitáte érutum, duxit ad altióra captívum, sicut scriptum est in prophéta: Ascéndens in altum, captívam duxit captivitátem, dedit dona homínibus.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum.
+
+#### Lectio vi
+
+ASCENDIT, inquit, in altum, captívam duxit captivitátem. Quam bene triúmphum Dómini prophéta descríbit! Solébat, sicut dicunt, regum triumphántium currus captivórum pompa præcédere. Ecce Dóminum eúntem ad cælos non præcédit, sed comitátur gloriósa captívitas; non ante vehículum dúcitur, sed ipsa évehit Salvatórem. Quodam enim mystério, dum Fílius Dei fílium hóminis sústulit ad cælum, ipsa captívitas portátur, et portat.
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 14-20*
+
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus:

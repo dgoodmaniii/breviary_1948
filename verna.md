@@ -24236,4 +24236,18 @@ De Actibus Apostolórum
 
 *Cap. 5, 1-16*
 
-VIR autem quidam, nómine Ananías, cum Saphíra uxóre sua vén-
+VIR autem quidam, nómine Ananías, cum Saphíra uxóre sua vén-didit agrum, et fraudávit de prétio agri, cónscia uxóre sua: et áfferens partem quamdam, ad pedes Apostolórum pósuit. Dixit autem Petrus: Ananía, cur tentávit sátanas cor tuum, mentíri te Spirítui Sancto, et fraudáre de prétio agri? Nonne manens tibi manébat, et venúmdatum in tua erat potestáte? Quare posuísti in corde tuo hanc rem? Non es mentítus homínibus, sed Deo. Audiens autem Ananías hæc verba, cécidit et exspirávit. Et factus est timor magnus super omnes, qui audiérunt. Surgéntes autem júvenes amovérunt eum, et efferéntes sepeliérunt.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+#### Lectio ii
+
+FACTUM est autem quasi horárum trium spátium, et uxor ipsíus, nésciens quod factum fúerat, introívit. Dixit autem ei Petrus: Dic mihi, múlier, si tanti agrum vendidísti? At illa dixit: Etiam tanti. Petrus autem ad eam: Quid útique convénit vobis tentáre Spíritum Dómini? Ecce pedes eórum, qui sepeliérunt virum tuum, ad óstium, et éfferent te. Conféstim cécidit ante pedes ejus, et exspirávit. Intrántes autem júvenes invenérunt illam mórtuam: et extulérunt, et sepeliérunt ad virum suum. Et factus est timor magnus in univérsa ecclésia, et in omnes, qui audiérunt hæc.
+
+℟. De ore prudéntis procédit mel, allelúja: dulcédo mellis est sub lingua ejus, allelúja: \* Favus distíllans lábia ejus, allelúja, allelúja. ℣. Sapiéntia requiéscit in corde ejus, et prudéntia in sermóne oris illíus. — Favus.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Favus.
+
+#### Lectio iii
+
+PER manus autem Apostolórum fiébant signa et prodígia multa in plebe. Et erant unanímiter omnes in pórticu Salomónis. Ceterórum autem nemo audébat se conjúngere illis: sed magnificábat eos pópulus. Magis autem augebátur credéntium in Dómino multitúdo virórum ac muliérum, ita ut in platéas ejícerent infírmos, et pónerent in léctulis ac grabátis, ut, veniénte Petro, saltem umbra illíus

@@ -27115,4 +27115,28 @@ CHRISTUS ascéndens in cælum, nostræ natúræ primítias óbtulit Patri, et ob
 
 #### Lectio v
 
-NON enim ad omnem glóriam cælos transísse suffécerat, non cum Angelis stare: sed cælos transívit, supra Chérubim ascéndit, ultra Séraphim elevátur, nec ante stetit, nisi sedem Domínicam meruísset. Vide quo spátio cælum separátur a terra, immo terra quanto ab ínferis abest, et ipsum cælum quanto ab altióre
+NON enim ad omnem glóriam cælos transísse suffécerat, non cum Angelis stare: sed cælos transívit, supra Chérubim ascéndit, ultra Séraphim elevátur, nec ante stetit, nisi sedem Domínicam meruísset. Vide quo spátio cælum separátur a terra, immo terra quanto ab ínferis abest, et ipsum cælum quanto ab altióre cælo separátur, et de altióre cælo ad Angelos quantum spátii est, ad superióres étiam Potestátes, ad ipsam quoque Domínicam sedem. Super hæc ómnia natúra nostra eleváta est, ut homo, qui loco tam húmili tenebátur, ut descéndere non posset ultérius, ad tam excélsam sedem elevarétur, ut áltius non posset ascéndere.
+
+℟. Non turbétur cor vestrum: ego vado ad Patrem; et cum assúmptus fúero a vobis, mittam vobis, allelúja, \* Spíritum veritátis, et gaudébit cor vestrum, allelúja. ℣. Ego rogábo Patrem, et álium Paráclitum dabit vobis. — Spíritum.
+
+#### Lectio vi
+
+ET hæc osténdens Paulus dicébat: Qui descéndit, ipse est qui ascéndit. Et íterum: Descéndit ad inferióra terræ, et ascéndit super omnes cælos. Díscite ígitur quisnam ascéndit, et quæ natúra eleváta est. In hoc enim cúpio remorári sermóne, ut humáni géneris commemoratióne, divínam cleméntiam cum omni admiratióne discámus, quæ summum honórem, magnámque glóriam nostræ natúræ largíta est, quæ ómnibus hodiérna die méruit excélsior reperíri. Hódie Angeli atque Archángeli natúram nostram in sede Domínica immortáli glória fulgéntem vidérunt.
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 14-20*
+
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui víderant eum resurrexísse, non credidérunt. Et réliqua.
+
+De Homilía sancti Gregórii Papæ
+
+{RUBRIC: Eadem Homilia 29}
+
+ET Dóminus quidem Jesus, postquam locútus est eis, assúmptus est in cælum, et sedet a dextris Dei. In véteri testaménto cognóvimus quod Elías sit raptus in cælum. Sed áliud est cælum aéreum, áliud æthéreum. Cælum quippe aéreum terræ est próximum: unde et aves cæli

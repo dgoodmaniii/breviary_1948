@@ -19883,4 +19883,59 @@ FIAT, Dómine, quæsumus, per grátiam tuam fructuósus nostræ devotiónis aff�
 
 **Capit.** *Hebr. 6, 11-12*
 
-FRATRES: Christus assístens Póntifex futurórum bonórum, per ámplius
+FRATRES: Christus assístens Póntifex futurórum bonórum, per ámplius et perféctius tabernáculum non manu factum, id est, non hujus creatiónis: neque per sánguinem hircórum, aut vitulórum, sed per próprium sánguinem introívit semel in Sancta, ætérna redemptióne invénta.
+
+#### Hymnus
+
+VEXILLA Regis pródeunt:
+Fulget Crucis mystérium,
+Qua vita mortem pértulit,
+Et morte vitam prótulit.
+
+Quæ, vulneráta lánceæ
+Mucróne diro, críminum
+Ut nos laváret sórdibus,
+Manávit unda et sánguine.
+
+Impléta sunt quæ cóncinit
+David fidéli cármine,
+Dicéndo natiónibus:
+Regnávit a ligno Deus.
+
+Arbor decóra et fúlgida,
+Ornáta Regis púrpura,
+Elécta digno stípite
+Tam sancta membra tángere.
+
+Beáta, cujus bráchiis
+Prétium pepéndit sæculi,
+Statéra facta córporis,
+Tulítque prædam tártari.
+
+{RUBRIC: ¶ Sequens stropha dicitur flexis genibus; et última numquam mutatur.}
+
+O Crux, ave, spes única,
+Hoc Passiónis témpore
+Piis adáuge grátiam,
+Reísque dele crímina.
+
+Te, fons salútis, Trínitas,
+Colláudet omnis spíritus:
+Quibus Crucis victóriam
+Largíris, adde prǽmium. Amen.
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Ego sum \* qui testimónium perhíbeo de meípso: et testimónium pérhibet de me, qui misit me, Pater.
+
+#### Ad Vesperas Dominicæ
+
+**Ad Magnif. Ant.** Abraham pater vester \* exsultávit ut vidéret diem meum: vidit, et gavísus est.
+
+#### Oratio
+
+QUÆSUMUS, omnípotens Deus, famíliam tuam propítius réspice: ut, te largiénte, regátur in córpore; et, te servánte, custodiátur in mente. Per Dóminum.
+
+{RUBRIC: Ab his Vésperis usque ad Dominicam I post Pentecósten inclusive omíttitur Suffragium de ómnibus Sanctis, étiam in Festis.}
+
+{RUBRIC: Hódie et deínceps usque ad Fériam IV Majóris Hebdómadæ inclusíve, Responsória brévia ad Complétórium et ad Horas, in Officio tam dominicáli quam feriáli, dicúntur sine Glória Patri, prout in Psaltério pro Témpore Passiónis.}

@@ -18964,4 +18964,16 @@ TImuérunt illi veheménter et dixérunt: Ecce duo reges non potuérunt stare co
 
 ##### Lectio iv
 
-NOn putémus nos excusatiónem habitúros, si quando delictórum sócios invenérimus: nam istud, supplícium magis augébit. Quandóquidem et serpens magis punítus est quam múlier, quemádmodum et múlier plus quam vir. Et Jézabel majóres pœnas dedit, quam Achab víneæ raptor; ipsa quippe univérsum istud negótium texúerat, regíque lapsus occasiónem déderat. Igitur et tu quoque, si réliquis perditiónis causa fúeris, graviora patiéris quam qui per te subvérsi sunt.
+NOn putémus nos excusatiónem habitúros, si quando delictórum sócios invenérimus: nam istud, supplícium magis augébit. Quandóquidem et serpens magis punítus est quam múlier, quemádmodum et múlier plus quam vir. Et Jézabel majóres pœnas dedit, quam Achab víneæ raptor; ipsa quippe univérsum istud negótium texúerat, regíque lapsus occasiónem déderat. Igitur et tu quoque, si réliquis perditiónis causa fúeris, graviora patiéris quam qui per te subvérsi sunt. Neque enim peccáre tantum in se perditiónis habet, quantum quod réliqui ad peccándum inducúntur.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio v
+
+ITaque, si quando peccántes vidérimus, non solum non impellámus, sed et extrahámus ex ipso malítiæ bárathro, ne et aliénæ perditiónis pœnas demus. Recordémur quoque perpétuo terríbilis illíus tribunális, flúminis ígnei, vinculórum insolubílium, profundárum tenebrárum, stridórum déntium, venenosíque vermis. Sed dices: Benígnus est Deus. Ergo hæc ómnia verba sunt, et neque punítur dives ille Lázari contémptor, neque fátuæ vírgines a sponso rejiciúntur? Ergo qui Christum non pavérunt, in ignem diábolo præparátum non abíbunt? Ergo qui sórdidis est véstibus, non períbit, manus ac pedes vinctus? Qui centum denários a consérvo suo exégit, non tradétur tortóribus? Quod de mœchis dictum est, nimírum quod vermis eórum non moriétur, et ignis eórum non exstinguétur, verum non erit?
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+SEd minátur ista tantúmmodo Deus? Útique, ínquies. Et unde, dic quǽso, tantam rem audes públice loqui, atque ex teípso ferre senténtiam? Ego quippe et ex iis quæ dixit Deus, et ex iis quæ fecit, contrárium probáre pótero. Quod si propter futúra non credis, vel saltem propter ea quæ jam facta sunt, crede. Non enim certe minæ sunt et verba tantúmmodo, quæ facta sunt et in opus ipsum exiérunt. Quis ígitur totum orbem indúcto dilúvio stagnávit, ac grave illud naufrágium, omnimodámque géneris nostri perditiónem effécit? Quis deínde fúlmina illa, télaque flammántia super terram So-

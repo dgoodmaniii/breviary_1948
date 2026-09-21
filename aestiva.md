@@ -2004,3 +2004,43 @@ FILIOLI mei, non diligámus verbo neque lingua, sed ópere et veritáte.
 #### Sacratissimi Cordis Jesu et per Octavam
 
 IN caritáte radicáti et fundáti, ut possítis comprehéndere cum ómnibus sanctis, quæ sit latitúdo et longitúdo, et sublímitas et profúndum; scire étiam supereminéntem sciéntiæ caritátem Christi, ut impleámini in omnem plenitúdinem Dei.
+
+#### Dom. infra Octavam Sacratissimi Cordis Jesu
+
+DEUS autem omnis grátiæ, qui vocávit nos in ætérnam suam glóriam in Christo Jesu, módicum passos ipse perfíciet, confirmábit solidabítque. Ipsi glória et impérium in sæcula sæculórum. Amen.
+
+### E Proprio Sanctorum
+
+#### In Nativ. S. Joannis Bapt.
+
+REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum Deum tuum et Sanctum Israël, qui elégit te.
+
+#### Ss. Petri et Pauli App.
+
+ET Petrus ad se revérsus dixit: Nunc scio vere, quia misit Dóminus Angelum suum, et erípuit me de manu Heródis et de omni exspectatióne plebis Judæórum.
+
+#### In Com. S. Pauli Apostoli
+
+EGO enim sum mínimus Apostolórum, qui non sum dignus vocári Apóstolus, quóniam persecútus sum Ecclésiam Dei. Grátia autem Dei sum id quod sum, et grátia ejus in me vácua non fuit.
+
+#### Pret. Sanguinis D. N. J. C.
+
+ACCIPIENS Móyses sánguinem vitulórum, et hircórum cum aqua et lana coccínea et hyssópo: ipsum quoque librum, et omnem pópulum aspérsit, dicens: Hic sanguis Testaménti, quod mandávit ad vos Deus.
+
+#### S. Petri ad Vincula
+
+ET Petrus ad se revérsus dixit: Nunc scio vere, quia misit Dóminus Angelum suum, et erípuit me de manu Heródis et de omni exspectatióne plebis Judæórum. Tu.
+
+#### In Inventione S. Stephani
+
+{RUBRIC: (si dicantur Ps. de Domin.)}
+
+POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+#### In Transfiguratione
+
+SUSTULIT me in spíritu in montem magnum et altum, et osténdit mihi civitátem sanctam Jerúsalem, descendéntem de cælo a Deo, habéntem claritátem Dei; et lucérna ejus est Agnus.
+
+#### S. Laurentii Mart.
+
+POTENS est autem Deus omnem grátiam abundáre fácere in vobis, ut, in ómnibus semper omnem sufficiéntiam habéntes, abundétis in omne opus bonum, sicut scriptum est: Dispérsit, dedit paupéri-

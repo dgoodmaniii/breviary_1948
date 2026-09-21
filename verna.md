@@ -25286,3 +25286,33 @@ Amen.
 DEUS, qui fidélium mentes uníus éfficis voluntátis: da pópulis tuis id amáre quod prǽcipis, id desideráre quod promíttis; ut inter mundánas varietátes ibi nostra fixa sint corda, ubi vera sunt gáudia. Per Dóminum.
 
 ---
+
+## Dom. IV post Pascha
+
+{RUBRIC: Semiduplex}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+{RUBRIC: Si sequentes Lectiones I Nocturni pridie dictæ fuerint in Festo Ss. Apostolorum Philippi et Jacobi, hac nocte sumuntur Lectiones Feriæ II sequentis cum Responsoriis tamen de Dominica.}
+
+Incipit Epístola cathólica beáti Jacóbi Apóstoli
+
+#### Lectio i
+
+*Cap. 1, 1-16*
+
+JACOBUS, Dei et Dómini nostri Jesu Christi servus, duódecim tríbubus, quæ sunt in dispersióne, salútem. Omne gáudium existimáte, fratres mei, cum in tentatiónes várias incidéritis: sciéntes quod probátio fídei vestræ patiéntiam operátur. Patiéntia autem opus perféctum habet: ut sitis perfécti et íntegri in nullo deficiéntes. Si quis autem vestrum índiget sapiéntia, póstulet a Deo, qui dat ómnibus affluénter, et non impróperat: et dábitur ei. Póstulet autem in fide nihil hæsitans.
+
+℟. Si oblítus fúero tui, allelúja, obliviscátur mei déxtera mea: \* Adhǽreat lingua mea fáucibus meis, si non memínero tui, allelúja, allelúja. ℣. Super flúmina Babylónis illic sédimus et flévimus, dum recordarémur tui, Sion. — Adhǽreat.
+
+#### Lectio ii
+
+QUI enim hæsitat, símilis est flúctui maris, qui a vento movétur et circumfértur. Non ergo æstimet homo ille quod accípiat áliquid a Dómino. Vir duplex ánimo incónstans est in ómnibus viis suis. Gloriétur autem frater húmilis in exaltatióne sua: dives autem in humilitáte sua, quóniam sicut flos fœni transíbit. Exórtus est enim sol cum ardóre, et arefécit fœnum, et flos ejus décidit, et decor vultus ejus depériit: ita et dives in itinéribus suis marcéscet.
+
+℟. Vidérunt te aquæ, Deus, vidérunt te aquæ, et timuérunt: \* Multitúdo sónitus aquárum vocem dedérunt nubes, allelúja, allelúja, allelúja. ℣. Illuxérunt coruscatiónes tuæ orbi terræ: vidit et commóta est terra. — Multitúdo.
+
+#### Lectio iii
+
+BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se. Nemo, cum tentátur, dicat quóniam a Deo

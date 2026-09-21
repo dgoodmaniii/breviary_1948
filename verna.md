@@ -36743,4 +36743,16 @@ De Daniéle Prophéta
 
 **Lectio i** *Cap. 7, 9-11*
 
-ASPICIEBAM donec throni pósiti sunt, et antíquus diérum sedit. Vestiméntum ejus cándidum quasi nix, et capílli cápitis ejus quasi lana munda, thronus ejus flammæ ignis, rotæ ejus ignis accénsus. Flúvius ígneus rapidúsque egrediebátur a fácie ejus; míllia míllium ministrábant ei, et décies míllies centéna míllia assistébant ei. Judícium sedit, et libri apérti sunt. Aspiciébam propter vocem sermónum grándium, quos cornu illud loquebátur; et vidi quóniam interfécta esset
+ASPICIEBAM donec throni pósiti sunt, et antíquus diérum sedit. Vestiméntum ejus cándidum quasi nix, et capílli cápitis ejus quasi lana munda, thronus ejus flammæ ignis, rotæ ejus ignis accénsus. Flúvius ígneus rapidúsque egrediebátur a fácie ejus; míllia míllium ministrábant ei, et décies míllies centéna míllia assistébant ei. Judícium sedit, et libri apérti sunt. Aspiciébam propter vocem sermónum grándium, quos cornu illud loquebátur; et vidi quóniam interfécta esset béstia, et periísset corpus ejus, et tráditum esset ad comburéndum igni.
+
+℟. Factum est siléntium in cælo, dum committéret bellum draco cum Micháéle Archángelo: \* Audíta est vox míllia míllium dicéntium: Salus, honor et virtus omnipoténti Deo, allelúja. ℣. Míllia míllium ministrábant ei, et décies centéna míllia assistébant ei. — Audíta.
+
+**Lectio ii** *Cap. 10, 4-14*
+
+DIE autem vigésima et quarta mensis primi, eram juxta flúvium magnum, qui est Tigris. Et levávi óculos meos, et vidi: et ecce vir unus vestítus líneis, et renes ejus accíncti auro obrízo; et corpus ejus quasi chrysólithus, et fácies ejus velut spécies fúlguris, et óculi ejus ut lampas ardens, et bráchia ejus, et quæ deórsum sunt usque ad pedes, quasi spécies æris candéntis; et vox sermónum ejus ut vox multitúdinis. Vidi autem ego Dániel solus visiónem; porro viri qui erant mecum non vidérunt; sed terror nímius írruit super eos, et fugérunt in abscónditum. Ego autem, relíctus solus, vidi visiónem grandem hanc, et non remánsit in me fortitúdo, sed et spécies mea immutáta est in me, et emárcui nec hábui quidquam vírium.
+
+℟. Stetit Angelus juxta aram templi, habens thuríbulum áureum in manu sua, et data sunt ei incénsa multa: \* Et ascéndit fumus aromátum de manu Angeli in conspéctu Dómini, allelúja. ℣. In conspéctu Angelórum psallam tibi: adorábo ad templum sanctum tuum, et confitébor nómini tuo, Dómine. — Et ascéndit.
+
+###### Lectio iii
+
+ET audívi vocem sermónum ejus: et áudiens jacébam consternátus super fáciem meam, et vultus meus hærébat terræ. Et ecce manus tétigit me, et eréxit me super génua mea et super artículos mánuum meárum. Et dixit ad me: Dániel, vir desideriórum, intéllige verba quæ ego loquor ad te, et sta in gradu tuo; nunc enim sum missus ad te. Cumque dixísset mihi sermónem istum, steti tremens. Et ait ad me: Noli metúere, Dániel; quia, ex die primo quo posuísti cor tuum ad intelligéndum, ut te affligeres in conspéctu Dei tui, exaudíta sunt verba tua, et ego veni propter sermónes tuos.

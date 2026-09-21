@@ -17582,4 +17582,26 @@ ET índuit Saul David vestiméntis suis et impósuit gáleam ǽream super caput 
 
 ##### Lectio ii
 
-IBat autem Philisthǽus incédens et appropínquans advérsum David, et ármiger ejus ante eum. Cumque inspexísset Philisthǽus et vidísset David, despéxit eum; erat enim adoléscens rufus et pulcher aspéctu. Et dixit Philisthǽus ad David: Numquid ego canis sum, quod tu venis ad me cum báculo? Et maledíxit Philisthǽus David in diis suis, dixítque ad David: Veni
+IBat autem Philisthǽus incédens et appropínquans advérsum David, et ármiger ejus ante eum. Cumque inspexísset Philisthǽus et vidísset David, despéxit eum; erat enim adoléscens rufus et pulcher aspéctu. Et dixit Philisthǽus ad David: Numquid ego canis sum, quod tu venis ad me cum báculo? Et maledíxit Philisthǽus David in diis suis, dixítque ad David: Veni ad me et dabo carnes tuas volatílibus cæli et béstiis terræ. Dixit autem David ad Philisthǽum: Tu venis ad me cum gládio et hasta et clýpeo, ego autem vénio ad te in nómine Dómini exercítuum, Dei ágminum Israël, quibus exprobrásti hódie; et dabit te Dóminus in manu mea, et percútiam te et áuferam caput tuum a te et dabo cadávera castrórum Philísthiim hódie volatílibus cæli et béstiis terræ, ut sciat omnis terra quia est Deus in Israël.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+CUM ergo surrexísset Philisthǽus et veníret et appropinquáret contra David, festinávit David et cucúrrit ad pugnam ex advérso Philisthǽi. Et misit manum suam in peram tulítque unum lápidem et funda jecit et circumdúcens percússit Philisthǽum in fronte; et infíxus est lapis in fronte ejus, et cécidit in fáciem suam super terram. Prævaluítque David advérsum Philisthǽum in funda et lápide percussúmque Philisthǽum interfécit. Cumque gládium non habéret in manu, David cucúrrit et stetit super Philisthǽum et tulit gládium ejus et edúxit eum de vagína sua et interfécit eum præcidítque caput ejus.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 18, 6-17*
+
+PORro, cum reverterétur, percússo Philisthǽo, David, egréssæ sunt mulíeres de univérsis úrbibus Israël cantántes chorósque ducéntes in occúrsum Saul regis in týmpanis lætítiæ

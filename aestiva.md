@@ -8714,3 +8714,69 @@ Beneplácitum est Dómino super timéntes eum: \* et in eis, qui sperant super m
 **Capit.** *Rom. 13, 12-13*
 
 NOx præcéssit, dies autem appropinquávit. Abjiciámus ergo ópera tenebrárum, et induámur arma lucis. Sicut in die honéste ambulémus.
+
+#### Hymnus
+
+LUX ecce surgit áurea,
+Pallens facéssat cæcitas,
+Quæ nosmet in præceps diu
+Erróre traxit dévio.
+
+Hæc lux serénum cónferat,
+Purósque nos præstet sibi:
+Nihil loquámur súbdolum:
+Volvámus obscúrum nihil.
+
+Sic tota decúrrat dies,
+Ne lingua mendax, ne manus
+Oculíve peccent lúbrici,
+Ne noxa corpus ínquinet.
+
+Speculátor astat désuper,
+Qui nos diébus ómnibus,
+Actúsque nostros próspicit
+A luce prima in vésperum.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** In sanctitáte \* serviámus Dómino, et liberábit nos ab inimícis nostris.
+
+{RUBRIC: Réliqua ut in Ordinário. 9}
+
+---
+
+## Ad Laudes II
+
+*In Vigíliis commúnibus, quando fit Offícium de Féria.*
+
+(Pater noster et Ave.)
+
+℣. Deus, in adjutórium.
+
+**Ant.** Tibi soli peccávi.
+
+### Psalmus 50
+
+MIserére mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea: \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco: \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci: \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim, in iniquitátibus concéptus sum: \* et in peccátis concépit me mater mea.
+
+Ecce enim, veritátem dilexísti: \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor: \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam: \* et

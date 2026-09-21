@@ -15162,4 +15162,24 @@ PUer autem Sámuel ministrábat Dómino coram Heli, et sermo Dómini erat preti�
 
 ##### Lectio ii
 
-ET adjécit Dóminus et vocávit adhuc Samuélem tértio, qui consúrgens ábiit ad Heli et ait: Ecce ego, quia vocásti me. Intelléxit ergo Heli quia Dóminus vocáret púerum et ait ad Samuélem: Vade et dormi et, si deínceps vocáverit te, dices: Lóquere, Dómine, quia audit servus tuus. Ábiit ergo Sámuel et dormívit in loco suo. Et venit Dóminus et stetit et vocávit, sicut vocáverat secúndo: Sámuel, Sámuel. Et ait Sámuel: Lóquere, Dómine, quia audit servus tuus. Et dixit Dóminus ad Samué-
+ET adjécit Dóminus et vocávit adhuc Samuélem tértio, qui consúrgens ábiit ad Heli et ait: Ecce ego, quia vocásti me. Intelléxit ergo Heli quia Dóminus vocáret púerum et ait ad Samuélem: Vade et dormi et, si deínceps vocáverit te, dices: Lóquere, Dómine, quia audit servus tuus. Ábiit ergo Sámuel et dormívit in loco suo. Et venit Dóminus et stetit et vocávit, sicut vocáverat secúndo: Sámuel, Sámuel. Et ait Sámuel: Lóquere, Dómine, quia audit servus tuus. Et dixit Dóminus ad Samuélem: Ecce ego fácio verbum in Israël, quod quicúmque audíerit, tínnient ambæ aures ejus. In die illa suscitábo advérsum Heli ómnia, quæ locútus sum super domum ejus: incípiam et complébo.
+
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.
+
+##### Lectio iii
+
+*Cap. 3, 15-20*
+
+DOrmívit autem Sámuel usque mane aperuítque óstia domus Dómini. Et Sámuel timébat indicáre visiónem Heli. Vocávit ergo Heli Samuélem et dixit: Sámuel, fili mi. Qui respóndens ait: Præsto sum. Et interrogávit eum: Quis est sermo, quem locútus est Dóminus ad te? oro te, ne celáveris me. Hæc fáciat tibi Deus et hæc addat, si abscónderis a me sermónem, ex ómnibus verbis, quæ dicta sunt tibi. Indicávit ítaque ei Sámuel univérsos sermónes, et non abscóndit ab eo. Et ille respóndit: Dóminus est; quod bonum est in óculis suis, fáciat. Crevit autem Sámuel, et Dóminus erat cum eo, et non cécidit ex ómnibus verbis ejus in terram. Et cognóvit univérsus Israël a Dan usque Bersabée, quod fidélis Sámuel prophéta esset Dómini.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória Patri. Et.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 61 ad pópulum Antioch.}
+
+##### Lectio iv
+
+NEcessárium est, dilectíssimi, mystériórum díscere miráculum, quodnam sit, et quare sit datum, et quæ ejus rei utílitas. Unum corpus efficímur: membra, inquit, ex carne ejus et ex óssibus ejus. Sequámur autem initiáti, quæ dicúntur. Ut ítaque non tantum per caritátem hoc fiámus, verum étiam ipsa re, in illam misceámur carnem: hoc namque per escam efficítur, quam largítus est nobis, volens osténdere desidérium, quod erga nos habet. Proptérea semetípsum nobis immí-

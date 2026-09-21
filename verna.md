@@ -25821,3 +25821,63 @@ UNDE qui hoc sentit de Christo, quod non est de único Dei Fílio sentiéndum, n
 USQUE modo, inquit, non petístis quidquam in nómine meo. Pétite, et accipiétis, ut gáudium vestrum sit plenum. Hoc quod dicit, gáudium plenum, profécto non carnále, sed spiritále gáudium est: et quando tantum erit, ut áliquid ei jam non sit addéndum, procul dúbio tunc erit plenum. Quidquid ergo pétitur, quod pertíneat ad hoc gáudium consequéndum, hoc est in nómine Christi peténdum, si divínam intellígimus grátiam, si vere beátam póscimus vitam. Quidquid autem áliud pétitur, nihil pétitur: non quia nulla omníno res est, sed quia in tantæ rei comparatióne quidquid áliud concupíscitur, nihil est.
 
 Te Deum laudámus.
+
+## Ad Laudes
+
+{RUBRIC: Antiphona} Allelúja {RUBRIC: cum Psalmis de Dom. 1 loco. 49}
+
+**Capitulum** *Jac. 1, 22-24*
+
+CARISSIMI: Estóte factóres verbi, et non auditóres tantum: falléntes vosmetípsos. Quia, si quis audítor est verbi, et non factor: hic comparábitur viro consideránti vultum nativitátis suæ in spéculo; considerávit enim se, et ábiit, et statim oblítus est qualis fúerit.
+
+#### Hymnus
+
+AURORA cælum púrpurat,
+Æther resúltat láudibus,
+Mundus triúmphans júbilat,
+Horrens avérnus infrémit:
+
+Rex ille dum fortíssimus
+De mortis inférno specu
+Patrum senátum líberum
+Edúcit ad vitæ jubar.
+
+Cujus sepúlcrum plúrimo
+Custóde signábat lapis,
+Victor triúmphat, et suo
+Mortem sepúlcro fúnerat.
+
+Sat fúneri, sat lácrimis,
+Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum,
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+**Ad Bened. Ant.** Usque modo \* non petístis quidquam in nómine meo: pétite, et accipiétis, allelúja.
+
+#### Oratio
+
+DEUS, a quo bona cuncta procédunt, largíre supplícibus tuis: ut cogitémus, te inspiránte, quæ recta sunt; et, te gubernánte, eádem faciámus. Per Dóminum.
+
+## Ad Tertiam
+
+**Capitulum** Caríssimi, {RUBRIC: ut supra.}
+
+**℟. br.** Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit. ℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+## Ad Sextam
+
+**Capitulum** *Jac. 1, 25*
+
+QUI autem perspéxerit in legem perféctam libertátis, et permánserit in ea, non audítor obliviósus factus, sed factor

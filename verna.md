@@ -30207,4 +30207,10 @@ DEUS, qui beátam Francíscam fámulam tuam, inter cétera grátiæ tuæ dona, f
 
 ###### Lectio iv
 
-FRANCISCA, nóbilis matróna Romána, ab ineúnte ætáte illústria dedit virtútum
+FRANCISCA, nóbilis matróna Romána, ab ineúnte ætáte illústria dedit virtútum exémpla; étenim puériles ludos et illécebras mundi réspuens, solitúdine et oratióne magnópere delectabátur. Undecim annos nata, virginitátem suam Deo consecráre et monastérium íngredi propósuit: paréntum tamen voluntáti humíliter obtémperans, Laurentio de Pontiánis, júveni ǽque díviti ac nóbili, nupsit. In matrimónio arctióris vitæ propósitum, quantum lícuit, semper retínuit; a spectáculis, convíviis aliísque hujúsmodi oblectaméntis abhórrens, lánea ac vulgári veste utens, et quidquid a domésticis curis supérerat témporis, oratióni aut proximórum utilitáti tríbuens; in id vero máxima sollicitúdine incúmbens, ut matrónas Románas a pompis sǽculi et ornátus vanitáte revocáret. Quaprópter domum Oblatárum, sub régula sancti Benedícti, congregatiónis Montis Olivéti, adhuc viro alligáta, in Urbe instítuit. Viri exsílium, bonórum jactúram ac univérsæ domus mærórem non modo constantíssime tolerávit; sed, grátias agens cum beáto Job, illud frequénter usurpábat: Dóminus dedit, Dóminus ábstulit: sit nomen Dómini benedíctum.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+###### Lectio v
+
+VIRO defúncto, ad prædíctam Oblatárum domum cónvolans, nudis pédibus, fune ad collum alligáto, humi prostráta, multis cum lácrimis eárum número adscríbi supplíciter postulávit. Voti compos facta, licet esset ómnium mater, non álio tamen quam ancíllæ, vilíssimæque féminæ, et immundítiæ vásculi título gloriabátur. Quam vilem sui existimatiónem et verbo declarávit et exémplo; sæpe enim e suburbána vínea revértens, et lignórum fascem próprio cápiti impósitum déferens, vel eísdem onústum agens per Urbem aséllum, paupéribus subveniébat, in quos étiam largas eleemósynas erogábat; ægrotantésque in xenodochíis vísitans, non corporáli tantum cibo, sed salutáribus mónitis recreábat. Corpus suum vigíliis, jejúniis, cilício, férreo cíngulo, crebrísque flagéllis in servitútem redígere júgiter satagébat.

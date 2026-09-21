@@ -43706,4 +43706,24 @@ QUI post Oríonas, Hýadum nómine, nisi Doctóres sanctæ Ecclésiæ designánt
 
 ##### Pro Doctore Pontifice
 
-℟. Invéni David servum meum, óleo sancto meo
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. (T. P. Allelúja.) ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+##### Pro Doctore non Pontifice
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. (T. P. Allelúja.) ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+NEC immérito Doctóres sancti Hýadum nuncupatióne signántur. Græco quippe elóquio hýetos plúvia vocátur, et Hýades nomen a plúviis accepérunt, quia ortæ procul dúbio imbres ferunt. Bene ergo Hýadum appellatióne expréssi sunt, qui, ad statum universális Ecclésiæ, quasi in cæli fáciem dedúcti, super aréntem terram humáni péctoris sanctæ prædicatiónis imbres fudérunt. Si enim prædicatiónis sermo plúvia non esset, Móyses mínime dixísset: Exspectétur sicut plúvia elóquium meum; et nequáquam per Isaíam Véritas díceret: Mandábo núbibus meis, ne pluant super eam imbrem; atque hoc, quod paulo ante protúlimus: Quam ob rem prohíbitæ sunt stellæ pluviárum.
+
+##### Pro Doctore Pontifice
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. (T. P. Allelúja.) ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+##### Pro Doctore non Pontifice
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio vi
+
+DUM ergo Hýades cum plúviis véniunt, ad cæli spátia altióra sol dúcitur: quia, apparénte Doctórum sciéntia, dum mens nostra imbre prædicatiónis infúnditur, fídei calor augétur. Et perfúsa terra ad fructum próficit, cum lumen ætheris ignéscit: quia ubérius frugem boni óperis réddimus, dum per sacræ eruditiónis flammam in corde clárius ardémus. Dumque per eos diébus síngulis magis magísque sciéntia cæléstis osténditur, quasi intérni nobis lúminis vernum tempus ape-

@@ -44221,4 +44221,16 @@ Ex libro Morálium sancti Gregórii Papæ
 
 ###### Lectio iv
 
-DERIDETUR justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus tégere, sensum verbis veláre:
+DERIDETUR justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus tégere, sensum verbis veláre: quæ falsa sunt, vera osténdere; quæ vera sunt, falsa demonstráre. Hæc nimírum prudéntia usu a juvénibus scitur, hæc a púeris prétio díscitur: hanc qui sciunt, céteros despiciéndo supérbiunt: hanc qui nésciunt, subjécti et tímidi in áliis mirántur; quia ab eis hæc éadem duplicitátis iníquitas, nómine palliáta, dilígitur, dum mentis pervérsitas urbánitas vocátur. Hæc sibi obsequéntibus prǽcipit honórum cúlmina quǽrere; adépta temporális glóriæ vanitáte gaudére; irrogáta ab áliis mala multiplícius réddere: cum vires súppetunt, nullis resisténtibus cédere; cum virtútis possibílitas deest, quidquid explére per malítiam non valent, hoc in pacífica bonitáte simuláre.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. (T. P. Allelúja.) ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit.
+
+###### Lectio v
+
+AT contra, sapiéntia justórum est: nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quǽrere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mundi sapiéntibus puritátis virtus fatúitas créditur. Omne enim, quod innocénter ágitur, ab eis proculdúbio stultum putátur; et quidquid in ópere véritas ápprobat, carnáli sapiéntiæ fátuum sonat. Quid namque stúltius vidétur mundo quam mentem verbis osténdere, nil cállida machinatióne simuláre, nullas injúriis contumélias réddere, pro maledicéntibus oráre, paupertátem quǽrere, posséssa relínquere, rapiénti non resístere, percutiénti álteram maxíllam præbére?
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+###### Lectio vi *Cap. 17, post initium*
+
+LAMPAS contémpta apud cogitatiónes dívitum. Sæpe contíngit, ut eléctus

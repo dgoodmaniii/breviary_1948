@@ -14547,3 +14547,56 @@ Fitque sanguis Christi merum;
 Et si sensus déficit,
 Ad firmándum cor sincérum
 Sola fides súfficit.
+
+{RUBRIC: Sequens stropha, si coram Sanctíssimo expósito Offícium persolvátur, dícitur fléxis génibus.}
+
+Tantum ergo Sacraméntum
+Venerémur cérnui;
+Et antíquum documéntum
+Novo cedat rítui;
+Præstet fides suppleméntum
+Sénsuum deféctui.
+
+Genitóri, Genitóque
+Laus et jubilátio,
+Salus, honor, virtus quoque
+Sit et benedíctio:
+Procedénti ab utróque
+Compar sit laudátio. Amen.
+
+℣. Panem de cælo præstitísti eis, allelúja. ℟. Omne delectaméntum in se habéntem, allelúja.
+
+### In I Vesperis
+
+**Ad Magnif. Ant.** O quam suávis est, \* Dómine, spíritus tuus, qui, ut dulcédinem tuam in fílios demonstráres, pane suavíssimo de cælo præstito, esuriéntes reples bonis, fastidiósos dívites dimíttens inánes.
+
+### In II Vesperis
+
+**Ad Magnif. Ant.** O sacrum convívium, \* in quo Christus súmitur; recólitur memória passiónis ejus; mens implétur grátia; et futúræ glóriæ nobis pignus datur, allelúja.
+
+### Oratio
+
+DEus, qui nobis sub Sacraménto mirábili passiónis tuæ memóriam reliquísti: tríbue, quæsumus, ita nos córporis et sánguinis tui sacra mystéria venerári; ut redemptiónis tuæ fructum in nobis júgiter sentiámus: Qui vivis.
+
+{RUBRIC: Completórium de Domínica.}
+
+{RUBRIC: Conclúsio Hymnórum per totam Octávam erit:}
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula. Amen.
+
+### Ad Matutinum
+
+**Invit.** Christum Regem adorémus dominántem géntibus: \* Qui se manducántibus dat spíritus pinguédinem. **Ps. 94** Veníte. [3]
+
+##### Hymnus
+
+SAcris solémniis juncta sint gáudia,
+Et ex præcórdiis sonent præcónia;
+Recédant vétera, nova sint ómnia,
+Corda, voces et ópera.
+
+Noctis recólitur cœna novíssima,
+Qua Christus créditur agnum et ázyma

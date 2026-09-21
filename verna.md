@@ -35206,4 +35206,28 @@ NON falláciter ab Angelo dictum est ad Joseph: Noli timére accípere Maríam c
 
 #### Lectio v
 
-NEQUE enim mentítur Evangélium, ubi légitur: Et erat pater ejus et Mater mirántes super his, quæ dicebántur de illo. Et álio loco: Ibant paréntes ejus per omnes annos in Jerúsalem. Item paulo post: Et dixit Mater ejus ad illum: Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te. At ille, ut osténderet habére se præter illos Patrem, qui eum génuit præter matrem, respóndit eis: Quid est, quod me quærebátis? Nesciebátis quia in his, quæ Patris mei sunt, opórtet me esse? Et rursum, ne hoc dicto paréntes illos negásse putarétur, Evangelísta secútus adjúnxit: Et ipsi non intellexérunt verbum, quod locútus est ad illos; et descéndit cum eis, et venit Názareth, et erat súbditus illis. Quibus súbditus nisi paréntibus?
+NEQUE enim mentítur Evangélium, ubi légitur: Et erat pater ejus et Mater mirántes super his, quæ dicebántur de illo. Et álio loco: Ibant paréntes ejus per omnes annos in Jerúsalem. Item paulo post: Et dixit Mater ejus ad illum: Fili, quid fecísti nobis sic? Ecce pater tuus et ego doléntes quærebámus te. At ille, ut osténderet habére se præter illos Patrem, qui eum génuit præter matrem, respóndit eis: Quid est, quod me quærebátis? Nesciebátis quia in his, quæ Patris mei sunt, opórtet me esse? Et rursum, ne hoc dicto paréntes illos negásse putarétur, Evangelísta secútus adjúnxit: Et ipsi non intellexérunt verbum, quod locútus est ad illos; et descéndit cum eis, et venit Názareth, et erat súbditus illis. Quibus súbditus nisi paréntibus? Quis autem súbditus, nisi Jesus Christus, qui cum in forma Dei esset, non rapínam arbitrátus est, esse se æquálem Deo?
+
+℟. Státuet fílios suos sub tégmine illíus et sub ramis ejus morábitur; protegétur sub tégmine illíus a fervóre: \* Et in glória ejus requiéscet, allelúja. ℣. Speráte in eo, omnis congregátio pópuli, effúndite coram illo corda vestra. — Et.
+
+#### Lectio vi
+
+CUR ergo illis súbditus, qui longe infra formam Dei erant, nisi quia semetípsum exinanívit formam servi accípiens, cujus formæ paréntes erant? Sed profécto nec ipsíus formæ servi paréntes ambo essent, nisi inter se étiam sine carnis commixtióne cónjuges essent. Unde et séries generatiónum, cum paréntes Christi connexióne successiónis commemorántur, usque ad Joseph pótius, sicut factum est, fúerat perducénda; ne in illo conjúgio viríli séxui, útique potióri, fíeret injúria, cum veritáti nihil períret, quia ex sémine David, ex quo ventúrus prædíctus est Christus, et Joseph erat et María. Omne ítaque nuptiárum bonum implétum est in illis paréntibus Christi: proles, fides, sacraméntum. Prolem cognóscimus ipsum Dóminum Jesum; fidem, quia nullum adultérium; sacraméntum, quia nullum divórtium.
+
+℟. Si consístant advérsum me castra, non timébit cor meum: \* Si exsúrgat advérsum me prǽlium, in hoc ego sperábo, allelúja. ℣. In te cantátio mea semper, quóniam tu adjútor fortis. — Si exsúrgat. Glória Patri. Si exsúrgat.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 3, 21-23*
+
+IN illo témpore: Factum est autem cum baptizarétur omnis pópulus, et Jesu baptizáto et oránte, apértum est cælum. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 36 de temp. Bapt. Christi}
+
+NATALIS hódie alter est quodam modo Salvatóris. Nam eísdem eum signis, eísdem miráculis cognóscimus génitum, sed nunc majóri mystério baptizátum. Ait enim Deus: Hic est Fílius meus diléctus, in quo mihi complácui. Præclárior pla-

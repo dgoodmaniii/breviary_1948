@@ -27598,3 +27598,53 @@ Te Deum laudámus.
 {RUBRIC: Ad Laudes et per Horas ómnia ut in Dominica infra Octavam Ascensionis 627, omíssa tamen ad Laudes Commemoratióne Octávæ Ascensiónis.}
 
 ---
+
+[IMAGE]
+
+# Dominica Pentecostes
+
+Duplex I classis
+
+Cum Octava privilegiáta I órdinis
+
+### In I Vesperis
+
+**Ant. 1** Cum compleréntur \* dies Pentecóstes, erant omnes páriter in eódem loco, allelúja.
+
+{RUBRIC: Psalmi de Dominica 72, sed loco últimi Ps. 116 Laudáte Dóminum, omnes gentes. 92}
+
+**2** Spíritus Dómini \* replévit orbem terrárum, allelúja.
+
+**3** Repléti sunt omnes \* Spíritu Sancto, et cœpérunt loqui, allelúja, allelúja.
+
+**4** Fontes, et ómnia \* quæ movéntur in aquis, hymnum dícite Deo, allelúja.
+
+**5** Loquebántur \* váriis linguis Apóstoli magnália Dei, allelúja, allelúja, allelúja.
+
+**Capitulum** *Act. 2, 1-2*
+
+CUM compleréntur dies Pentecóstes, erant omnes discípuli páriter in eódem loco: et factus est repénte de cælo sonus, tamquam adveniéntis spíritus veheméntis, et replévit totam domum, ubi erant sedéntes.
+
+{RUBRIC: Prima stropha sequentis Hymni dicitur flexis genibus.}
+
+#### Hymnus
+
+VENI, Creátor Spíritus,
+Mentes tuórum vísita,
+Imple supérna grátia,
+Quæ tu creásti péctora.
+
+Qui díceris Paráclitus,
+Altíssimi donum Dei,
+Fons vivus, ignis, cáritas,
+Et spiritális únctio.
+
+Tu septifórmis múnere,
+Dígitus patérnæ déxteræ,
+Tu rite promíssum Patris,
+Sermóne ditans gúttura.
+
+Accénde lumen sénsibus:
+Infúnde amórem córdibus:
+Infírma nostri córporis
+Virtúte firmans pérpeti.

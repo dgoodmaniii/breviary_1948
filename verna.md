@@ -35431,3 +35431,66 @@ STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt, et qui
 
 PASCHALE mundo gáudium
 Sol núntiat formósior,
+Cum luce fulgéntem nova
+Jesum vident Apóstoli.
+
+In carne Christi vúlnera
+Micáre tamquam sídera
+Mirántur, et quidquid vident
+Testes fidéles prǽdicant.
+
+Rex Christe clementíssime,
+Tu corda nostra pósside,
+Ut lingua grates débitas
+Tuo repéndat nómini.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula. Amen.
+
+{RUBRIC: ¶ Post Ascensionem vero Conclusio erit:}
+
+Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula. Amen.
+
+{RUBRIC: ¶ Conclusiones præcedentes numquam mutantur.}
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Bened. Ant.** Ego sum via, \* véritas et vita: nemo venit ad Patrem, nisi per me, allelúja.
+
+###### Oratio
+
+DEUS, qui nos ánnua Apostolórum tuórum Philíppi et Jacóbi solemnitáte lætíficas: præsta, quǽsumus; ut, quorum gaudémus méritis, instruámur exémplis. Per Dóminum.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis fit Commemoratio Feriæ.}
+
+##### Ad Primam
+
+**Ant.** Dómine, {RUBRIC: ut supra. 906}
+
+##### Ad Tertiam
+
+**Ant.** Philíppe, {RUBRIC: ut supra. 906}
+
+**Capitulum** Stabunt, {RUBRIC: ut supra. 906}
+
+℟. br. Sancti et justi, in Dómino gaudéte, \* Allelúja, allelúja. Sancti. ℣. Vos elégit Deus in hereditátem sibi. Allelúja, allelúja. Glória Patri. Sancti. ℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+##### Ad Sextam
+
+**Ant.** Tanto témpore, {RUBRIC: ut supra. 906}
+
+**Capitulum** *Sap. 5, 5*
+
+ECCE quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est.
+
+℟. br. Lux perpétua lucébit Sanctis tuis, Dómine, \* Allelúja, allelúja. Lux. ℣. Et ætérnitas témporum. Allelúja, allelúja. Glória Patri. Lux. ℣. Læ-

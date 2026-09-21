@@ -11580,4 +11580,58 @@ Cum homínibus operántibus iniquitátem: \* et non communicábo cum eléctis e�
 
 Corrípiet me justus in misericórdia, et increpábit me: \* óleum autem peccatóris non impínguet caput meum.
 
-Quóniam adhuc et orátio mea in beneplácitis eó-
+Quóniam adhuc et orátio mea in beneplácitis eórum: \* absórpti sunt juncti petræ júdices eórum.
+
+Audient verba mea quóniam potuérunt: \* sicut crassitúdo terræ erúpta est super terram.
+
+Dissipáta sunt ossa nostra secus inférnum: \* quia ad te, Dómine, Dómine, óculi mei: in te sperávi, non áuferas ánimam meam.
+
+Custódi me a láqueo, quem statuérunt mihi: \* et a scándalis operántium iniquitátem.
+
+Cadent in retiáculo ejus peccatóres: \* singuláriter sum ego donec tránseam.
+
+**Ant.** Dómine, clamávi ad te, exáudi me.
+
+**Ant.** Educ de custódia \* ánimam meam, Dómine, ad confiténdum nómini tuo.
+
+### Psalmus 141
+
+VOce mea ad Dóminum clamávi: \* voce mea ad Dóminum deprecátus sum:
+
+Effúndo in conspéctu ejus oratiónem meam, \* et tribulatiónem meam ante ipsum pronúntio.
+
+In deficiéndo ex me spíritum meum, \* et tu cognovísti sémitas meas.
+
+In via hac, qua ambulábam, \* abscondérunt láqueum mihi.
+
+Considerábam ad déxteram, et vidébam: \* et non erat qui cognósceret me.
+
+Périit fuga a me, \* et non est qui requírat ánimam meam.
+
+Clamávi ad te, Dómine, \* dixi: Tu es spes mea, pórtio mea in terra vivéntium.
+
+Inténde ad deprecatiónem meam: \* quia humiliátus sum nimis.
+
+Líbera me a persequéntibus me: \* quia confortáti sunt super me.
+
+Educ de custódia ánimam meam ad confiténdum nómini tuo: \* me exspéctant justi, donec retríbuas mihi.
+
+**Ant.** Educ de custódia ánimam meam, Dómine, ad confiténdum nómini tuo.
+
+#### In Officio feriali
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BEnedíctus Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+#### Hymnus
+
+HOminis supérne Cónditor,
+Qui cuncta solus órdinans,
+Humum jubes prodúcere
+Reptántis et feræ genus:
+
+Et magna rerum córpora,
+Dictu jubéntis vívida,
+Per témporum certas vices
+Obtemperáre sérvulis:

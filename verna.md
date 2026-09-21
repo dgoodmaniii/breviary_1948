@@ -20794,4 +20794,28 @@ QUID est quod diléctus meus in domo mea fecit scélera multa? Numquid carnes sa
 
 *Cap. 12, 1-4*
 
-JUSTUS quidem tu es, Dómine, si dísputem tecum: verúmtamen justa
+JUSTUS quidem tu es, Dómine, si dísputem tecum: verúmtamen justa loquar ad te: Quare via impiórum prosperátur: bene est ómnibus, qui prævaricántur, et iníque agunt? Plantásti eos, et radícem misérunt: profíciunt et fáciunt fructum: prope es tu ori eórum, et longe a rénibus eórum. Et tu, Dómine, nosti me, vidísti me, et probásti cor meum tecum: cóngrega eos quasi gregem ad víctimam, et sanctífica eos in die occisiónis. Usquequo lugébit terra, et herba omnis regiónis siccábitur propter malítiam habitántium in ea? Consúmptum est ánimal et vólucre, quóniam dixérunt: Non vidébit novíssima nostra.
+
+℟. Deus Israël, propter te sustínui improperium, opéruit reveréntia fáciem meam, extráneus factus sum frátribus meis, et hospes fíliis matris meæ: \* Quóniam zelus domus tuæ comédit me. ℣. Inténde ánimæ meæ, et líbera eam, propter inimícos meos éripe me. — Quóniam.
+
+**Bened.** Ignem sui amóris.
+
+#### Lectio iii
+
+*Cap. 12, 7-11*
+
+RELIQUI domum meam, dimísi hereditátem meam: dedi diléctam ánimam meam in manu inimicórum ejus. Facta est mihi héreditas mea quasi leo in silva: dedit contra me vocem, ídeo odívi eam. Numquid avis díscolor heréditas mea mihi? numquid avis tincta per totum? Veníte, congregámini, omnes béstiæ terræ, properáte ad devorándum. Pastóres multi demolíti sunt víneam meam, conculcavérunt partem meam: dedérunt portiónem meam desiderábilem in desértum solitúdinis. Posuérunt eam in dissipatiónem, luxítque super me: desolatióne desoláta est omnis terra, quia nullus est qui recógitet corde.
+
+℟. Synagóga populórum circumdedérunt me: et non réddidi retribuéntibus mihi mala. \* Consumétur, Dómine, nequítia peccatórum, et díriges justum. ℣. Júdica me, Dómine, secúndum justítiam meam, et secúndum innocéntiam meam super me. — Consumétur. Synagóga.
+
+## Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Vide, Dómine, \* et consídera, quóniam tríbulor: velóciter exáudi me.
+
+{RUBRIC: Psalmi de Feria 2 loco. 136}
+
+**2** Discérne causam meam, \* Dómine: ab hómine iníquo et dolóso éripe me.
+
+**3** Dum tribulárer, \* clamávi ad Dóminum de

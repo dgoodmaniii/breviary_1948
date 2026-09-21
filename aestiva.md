@@ -2085,4 +2085,63 @@ MULTAE fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax 
 
 #### Pro Dedicatione Ecclesiæ
 
-ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor
+ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+#### In Festis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dícitur tantum} Pater noster {RUBRIC: secréto, nisi sequátur ália Hora.}
+
+## Ad Tertiam
+
+Pater et Ave.
+
+℣. Deus, in adjutórium.
+
+### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor,
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+**Ant.** Allelúja.
+
+###### Psalmus 118, iii
+
+LEGEM pone mihi, Dómine, viam justificatiónum tuárum: \* et exquíram eam semper.
+
+Da mihi intelléctum, et scrutábor legem tuam: \* et custódiam illam in toto corde meo.
+
+Deduc me in sémitam mandatórum tuórum: \* quia ipsam vólui.
+
+Inclína cor meum in testimónia tua: \* et non in avarítiam.
+
+Avérte óculos meos ne vídeant vanitátem: \* in via tua vivífica me.
+
+Státue servo tuo elóquium tuum, \* in timóre tuo.
+
+Ámputa oppróbrium meum quod suspicátus sum: \* quia judícia tua jucúnda.
+
+Ecce, concupívi mandáta tua: \* in æquitáte tua vivífica me.
+
+Et véniat super me misericórdia tua, Dómine: \* salutáre tuum secúndum elóquium tuum.
+
+Et respondébo exprobrántibus mihi verbum: \* quia sperávi in sermónibus tuis.

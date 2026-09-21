@@ -14393,3 +14393,43 @@ SAmuel autem ministrábat ante fáciem Dómini, puer accínctus ephod líneo. Et
 {RUBRIC: Vesperæ de sequénti.}
 
 ---
+
+## In Festo Ssmi Corporis Christi
+
+*Feria Quinta — Duplex I classis, cum Octava privilegiata II ordinis*
+
+### In I Vesperis
+
+**Ant.** Sacérdos in ætérnum \* Christus Dóminus secúndum órdinem Melchísedech, panem et vinum óbtulit.
+
+##### Psalmus 109
+
+DIxit Dóminus Dómino meo: \* Sede a dextris meis:
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion: \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum: \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pœnitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas: \* quassábit cápita in terra multórum.
+
+De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**Ant.** Sacérdos in ætérnum Christus Dóminus secúndum órdinem Melchísedech, panem et vinum óbtulit.
+
+**Ant.** Miserátor Dóminus \* escam dedit timéntibus se in memóriam suórum mirabílium.
+
+##### Psalmus 110
+
+COnfitébor tibi, Dómine, in toto corde meo: \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini: \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus: \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus: \* escam dedit timéntibus se.

@@ -47841,3 +47841,37 @@ IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcé
 ℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
 
 ℣. Jube, domne, benedícere. **Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+**Lectio ii** *Eccli. 24, 15-20*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea. Tu autem.
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti qui te fecit, et in ætérnum.
+
+{RUBRIC: Tempore Paschali et in Festis B. Mariæ Virg.:} Glória Patri. Genuísti.
+
+℣. Jube, domne, benedícere. **Bened.** Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
+
+**Lectio iii**
+
+QUASI cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion: quasi palma exaltáta sum in Cades, et quasi plantátio rosæ in Jéricho: quasi olíva speciósa in campis, et quasi plátanus exaltáta sum juxta aquam in platéis. Sicut cinnamómum et bálsamum aromatízans odórem dedi; quasi myrrha elécta dedi suavitátem odóris. Tu autem.
+
+{RUBRIC: Tempore Paschali et in Festis B. M. V. sequens ℟. omittitur et dicitur Te Deum.}
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima: \* Quia ex te ortus est sol justítiæ, \* Christus, Deus noster. ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam commemoratiónem. — Quia. Glória Patri. Christus.
+
+##### Ad Laudes
+
+℣. Deus, in adjutórium.
+
+**Ant. 1** Assúmpta est María in cælum: \* gaudent Angeli, laudántes benedícunt Dóminum.
+
+{RUBRIC: Psalmi de Dominica 1 loco}
+
+**2** María Virgo assúmpta est \* ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
+
+**3** In odórem \* unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis.
+
+**4** Benedícta \* fília tu a Dómino: quia per te fructum vitæ communicávimus.
+
+**5** Pulchra es \* et decóra, fília Jerúsalem, terríbilis

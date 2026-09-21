@@ -9336,3 +9336,53 @@ Ecce, ipsi peccatóres, et abundántes in sæculo, \* obtinuérunt divítias.
 Et dixi: Ergo sine causa justificávi cor meum, \* et lavi inter innocéntes manus meas:
 
 Et fui flagellátus tota die, \* et castigátio mea in matutínis.
+
+Si dicébam: Narrábo sic: \* ecce, natiónem filiórum tuórum reprobávi.
+
+Existimábam ut cognóscerem hoc, \* labor est ante me:
+
+Donec intrem in Sanctuárium Dei: \* et intélligam in novíssimis eórum.
+
+### Psalmus 72, iii
+
+VErúmtamen propter dolos posuísti eis: \* dejecísti eos dum allevaréntur.
+
+Quómodo facti sunt in desolatiónem, súbito defecérunt: \* periérunt propter iniquitátem suam.
+
+Velut sómnium surgéntium, Dómine, \* in civitáte tua imáginem ipsórum ad níhilum rédiges.
+
+Quia inflammátum est cor meum, et renes mei commutáti sunt: \* et ego ad níhilum redáctus sum, et nescívi.
+
+Ut juméntum factus sum apud te: \* et ego semper tecum.
+
+Tenuísti manum déxteram meam: et in voluntáte tua deduxísti me, \* et cum glória suscepísti me.
+
+Quid enim mihi est in cælo? \* et a te quid vólui super terram?
+
+Defécit caro mea, et cor meum: \* Deus cordis mei, et pars mea Deus in ætérnum.
+
+Quia ecce, qui elóngant se a te, períbunt: \* perdidísti omnes, qui fornicántur abs te.
+
+Mihi autem adhærére Deo bonum est: \* pónere in Dómino Deo spem meam:
+
+Ut annúntiem omnes prædicatiónes tuas, \* in portis fíliæ Sion.
+
+**Ant.** Quam bonus Israël Deus, his, qui recto sunt corde?
+
+#### In Officio feriali
+
+**Capitulum** *Jer. 17, 14*
+
+SAna me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea tu es.
+
+℟. br. Sana ánimam meam, \* Quia peccávi tibi. Sana. ℣. Ego dixi: Dómine, miserére mei. Quia. Glória Patri. Sana.
+
+℣. Adjútor meus esto, ne derelínquas me. ℟. Neque despícias me, Deus, salutáris meus.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe,

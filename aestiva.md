@@ -17676,4 +17676,24 @@ ET jurávit rursum David. Et ille ait: Scit profécto pater tuus quia invéni gr
 
 ##### Lectio iii
 
-DIxit autem David ad Jónathan: Ecce caléndæ sunt crástino, et ego ex more sedére sóleo juxta regem ad vescéndum; dimítte ergo me, ut abscóndar in agro usque ad vésperam diéi tértiæ. Si re-
+DIxit autem David ad Jónathan: Ecce caléndæ sunt crástino, et ego ex more sedére sóleo juxta regem ad vescéndum; dimítte ergo me, ut abscóndar in agro usque ad vésperam diéi tértiæ. Si respíciens requisíerit me pater tuus, respondébis ei: Rogávit me David ut iret céleriter in Béthlehem civitátem suam, quia víctimæ solémnes ibi sunt univérsis contribúlibus suis. Si díxerit: Bene, pax erit servo tuo; si autem fúerit irátus, scito quia compléta est malítia ejus.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 21, 1-9*
+
+VEnit autem David in Nobe ad Achímelech sacerdótem. Et obstúpuit Achímelech eo quod venísset David et dixit ei: Quare tu solus et nullus est tecum? Et ait David ad Achímelech sacerdótem: Rex præcépit mihi sermónem et dixit: Nemo sciat rem propter quam missus es a me, et cujúsmodi præcépta tibi déderim; nam et púeris condíxi in illum et illum locum. Nunc ergo, si quid habes ad manum, vel quinque panes, da mihi, aut quidquid invéneris.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+ET respóndens sacérdos ad David ait illi: Non hábeo láicos panes ad manum, sed tantum panem sanctum; si mundi sunt púeri máxime a muliéribus? Et respóndit David sacerdóti et dixit ei: Equidem, si de muliéribus ágitur, continúimus nos ab heri et nudiustértius, quando egrediebámur, et fuérunt vasa puerórum sancta. Porro via hæc pollúta est, sed et ipsa hódie sanctificábitur in vasis. Dedit ergo ei sacérdos sanctificátum panem; neque enim erat ibi panis, nisi tantum panes propositiónis qui subláti fúerant

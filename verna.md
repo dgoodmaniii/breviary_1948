@@ -25210,4 +25210,14 @@ ET osténdit mihi flúvium aquæ vitæ, spléndidum tamquam crystállum, proced�
 
 #### Lectio ii
 
-ET ego Joánnes, qui audívi et vidi hæc. Et, postquam audíssem et vi-
+ET ego Joánnes, qui audívi et vidi hæc. Et, postquam audíssem et vi-díssem, cécidi ut adorárem ante pedes Angeli, qui mihi hæc ostendébat: et dixit mihi: Vide ne féceris: consérvus enim tuus sum, et fratrum tuórum prophetárum, et eórum, qui servant verba prophetíæ libri hujus: Deum adóra. Et dicit mihi: Ne signáveris verba prophetíæ libri hujus: tempus enim prope est. Qui nocet, nóceat adhuc: et qui in sórdibus est, sordéscat adhuc: et qui justus est, justificétur adhuc: et sanctus, sanctificétur adhuc. Ecce vénio cito, et merces mea mecum est, réddere unicuíque secúndum ópera sua.
+
+℟. Osténdit mihi Angelus fontem aquæ vivæ, et dixit ad me, allelúja: \* Hic Deum adóra, allelúja, allelúja, allelúja. ℣. Postquam audíssem et vidíssem, cécidi ut adorárem ante pedes Angeli, qui mihi hæc ostendébat, et dixit mihi. — Hic.
+
+{RUBRIC: In Octavis simplicibus et in Officio sanctæ Mariæ in Sábbato:} Glória Patri. Hic.
+
+#### Lectio iii
+
+EGO sum alpha et oméga, primus et novíssimus, princípium et finis. Beáti, qui lavant stolas suas in sánguine Agni: ut sit potéstas eórum in ligno vitæ, et per portas intrent in civitátem. Foris canes, et venéfici, et impudíci, et homicídæ, et idólis serviéntes, et omnis, qui amat et facit mendácium. Ego Jesus misi Angelum meum, testificári vobis hæc in ecclésiis. Ego sum radix et genus David, stella spléndida et matutína. Et spíritus, et sponsa dicunt: Veni. Et qui audit, dicat: Veni. Et qui sitit, véniat: et qui vult, accípiat aquam vitæ gratis. Contéstor enim omni audiénti verba prophetíæ libri hujus: Si quis apposúerit ad hæc, appónet Deus super illum plagas scriptas in libro isto: Et si quis diminúerit de verbis libri prophetíæ hujus, áuferet Deus partem ejus de libro vitæ, et de civitáte sancta, et de his, quæ scripta sunt in libro isto. Dicit qui testimónium pérhibet istórum: Etiam vénio cito: Amen. Veni, Dómine Jesu. Grátia Dómini nostri Jesu Christi cum ómnibus vobis. Amen.
+
+℟. Vidi Jerúsalem descendéntem de cælo, ornátam auro mundo, et lapídibus pretiósis intéxtam: \* Allelúja, allelúja. ℣. Et erat structúra muri ejus ex lápide jáspide; ipsa vero aurum mundum, símile vitro

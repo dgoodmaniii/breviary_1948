@@ -21709,3 +21709,55 @@ Dirigátur orátio mea sicut incénsum in conspéctu tuo: \* elevátio mánuum m
 Pone, Dómine, custódiam ori meo: \* et óstium circumstántiæ lábiis meis.
 
 Non declínes cor meum in verba malítiæ, \* ad excusándas excusatiónes in peccátis.
+
+Cum homínibus operántibus iniquitátem: \* et non communicábo cum eléctis eórum.
+
+Corrípiet me justus in misericórdia, et increpábit me: \* óleum autem peccatóris non impínguet caput meum.
+
+Quóniam adhuc et orátio mea in beneplácitis eórum: \* absórpti sunt juncti petræ júdices eórum.
+
+Audient verba mea quóniam potuérunt: \* sicut crassitúdo terræ erúpta est super terram.
+
+Dissipáta sunt ossa nostra secus inférnum: \* quia ad te, Dómine, Dómine, óculi mei: in te sperávi, non áuferas ánimam meam.
+
+Custódi me a láqueo, quem statuérunt mihi: \* et a scándalis operántium iniquitátem.
+
+Cadent in retiáculo ejus peccatóres: \* singuláriter sum ego donec tránseam.
+
+{RUBRIC: †}
+
+**Ant.** Custódi me a láqueo, quem statuérunt mihi, et a scándalis operántium iniquitátem.
+
+**Ant.** Considerábam \* ad déxteram, et vidébam, et non erat qui cognósceret me.
+
+#### Psalmus 141
+
+VOCE mea ad Dóminum clamávi: \* voce mea ad Dóminum deprecátus sum:
+
+Effúndo in conspéctu ejus oratiónem meam: \* et tribulatiónem meam ante ipsum pronúntio.
+
+In deficiéndo ex me spíritum meum: \* et tu cognovísti sémitas meas.
+
+In via hac, qua ambulábam: \* abscondérunt láqueum mihi.
+
+Considerábam ad déxteram, et vidébam: \* et non erat qui cognósceret me.
+
+Périit fuga a me: \* et non est qui requírat ánimam meam.
+
+Clamávi ad te, Dómine: \* dixi: Tu es spes mea, pórtio mea in terra vivéntium.
+
+Inténde ad deprecatiónem meam: \* quia humiliátus sum nimis.
+
+Líbera me a persequéntibus me: \* quia confortáti sunt super me.
+
+Educ de custódia ánimam meam ad confiténdum nómini tuo: \* me exspéctant justi, donec retríbuas mihi.
+
+{RUBRIC: †}
+
+**Ant.** Considerábam ad déxteram, et vidébam, et non erat qui cognósceret me.
+
+{RUBRIC: Capitulum, Hymnus et ℣. non dicúntur in hoc tríduo.}
+
+### Feria V in Cœna Domini
+
+**Ad Magnif. Ant.** Cœnántibus autem illis, \* accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis.

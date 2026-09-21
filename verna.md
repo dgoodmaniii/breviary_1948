@@ -37347,3 +37347,23 @@ SEMPER nos, Dómine, Mártyrum tuórum Nérei, Achíllei, Domitíllæ atque Panc
 ###### Lectio iv
 
 NEREUS et Achílleus fratres, eunúchi Fláviæ Domitíllæ, a beáto Petro una cum ipsa ejúsque matre Plautílla baptizáti, cum Domitíllæ persuasíssent ut virginitátem suam Deo consecráret, ab ejus sponso Aureliáno tamquam christiáni accusáti, ob præcláram fídei confessiónem in Póntiam ínsulam relegántur. Ubi ad quæstiónem íterum vocáti et verbéribus cæsi, mox Tarracínam perdúcti, a Minúcio Rufo equúleo et flammis cruciáti, cum constánter negárent se, a sancto Petro Apóstolo baptizátos, ullis torméntis cogi posse, ut idólis immolárent, secúri percússi sunt. Quorum córpora ab Auspício, eórum discípulo et Domitíllæ educatóre, Romam deláta, via Ardeatína sepúlta sunt.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+FLAVIA Domitílla, virgo Romána, Titi et Domitiáni imperatórum neptis, cum sacrum virginitátis velámen a beáto Cleménte Papa accepísset, ab Aureliáno sponso, Titi Aurélii consulis fílio, deláta quod christiána esset, a Domitiáno imperatóre in ínsulam Póntiam est deportáta, ubi in cárcere longum martýrium duxit. Demum Tarracínam dedúcta, íterum Christum conféssa, cum semper constántior apparéret, sub Trajáno imperatóre, júdicis jussu incénso ejus cubículo, una cum Theodóra et Euphrósyna virgínibus et collactáneis suis, gloriósi martýrii cursum confécit, Nonis Maji: quarum córpora, íntegra invénta, a Cæsário diácono sepúlta sunt. Hac vero die duórum fratrum ac Domitíllæ córpora, ex diaconía sancti Hadriáni simul translata, in ipsórum Mártyrum basílicam, títuli Fascíolæ, restitúta sunt.
+
+℟. In servis suis, allelúja: \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+PANCRATIUS, in Phrýgia nóbili génere natus, puer quatuórdecim annórum Romam venit Diocletiáno et Maximiáno imperatóribus. Ubi a Pontífice Románo baptizátus, et in fide christiána erudítus, ob eámdem paulo post comprehénsus; cum diis sacrificáre constánter renuísset, viríli fortitúdine datis cervícibus, illústrem martýrii corónam consecútus est. Cujus corpus Octavílla matróna noctu sústulit, et unguéntis delibútum via Aurélia sepelívit.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+NEREUS et Achílleus fratres, eunúchi Fláviæ Domitíllæ, a beáto Petro

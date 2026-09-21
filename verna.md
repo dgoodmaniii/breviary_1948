@@ -35305,3 +35305,44 @@ Deo Patri sit glória,
 Et Fílio, qui a mórtuis
 Surréxit, ac Paráclito,
 In sempitérna sǽcula. Amen.
+
+{RUBRIC: ¶ Post Ascensionem vero Conclusio erit:}
+
+Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula. Amen.
+
+{RUBRIC: ¶ Conclusiones præcedentes numquam mutantur.}
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Ad Magnif. Ant.** Non turbétur \* cor vestrum, neque formídet: créditis in Deum, et in me crédite: in domo Patris mei mansiónes multæ sunt, allelúja, allelúja.
+
+###### Oratio
+
+DEUS, qui nos ánnua Apostolórum tuórum Philíppi et Jacóbi solemnitáte lætíficas: præsta, quǽsumus; ut, quorum gaudémus méritis, instruámur exémplis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+℣. Diffúsa est grátia.
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut, qui beátæ Catharínæ Vírginis tuæ natalítia cólimus; ánnua solemnitáte lætémur, et tantæ virtútis proficiámus exémplo. Per Dóminum.
+
+##### Ad Matutinum
+
+###### In I Nocturno
+
+{RUBRIC: Si tunc témporis non légitur de Epístola B. Jacóbi, pónitur inítium ejus Epístolæ, ut infra; si autem ea tunc légitur, ponátur de ea, quod illo die contígerit. Responsória tamen semper dicúntur de Communi, ut infra.}
+
+Incípit Epístola cathólica beáti Jacóbi Apóstoli
+
+**Lectio i** *Cap. 1, 1-16*
+
+JACOBUS, Dei et Dómini nostri Jesu Christi servus, duódecim tríbubus, quæ sunt in dispersióne, salútem. Omne gáudium existimáte, fratres mei, cum in tentatiónes várias incidéritis: sciéntes quod probátio fídei vestræ patiéntiam operátur. Patiéntia autem opus perféctum habet: ut sitis perfécti et íntegri in nullo deficiéntes. Si quis autem vestrum índiget sapiéntia, póstulet a Deo, qui dat ómnibus affluénter, et non impróperat: et dábitur ei. Póstulet autem in fide nihil hæsitans.
+
+℟. Beátus vir, qui métuit Dóminum, allelúja: \* In

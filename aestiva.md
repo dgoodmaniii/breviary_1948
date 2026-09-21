@@ -19182,4 +19182,18 @@ OMnípotens sempitérne Deus, qui abundántia pietátis tuæ, et mérita súppli
 
 *Cap. 20, 1-11*
 
-IN diébus illis ægrotávit Ezechías usque ad mortem, et venit ad eum Isaías fílius Amos Prophéta dixítque ei: Hæc dicit Dóminus Deus: Præcipe dómui tuæ, moriéris enim tu et non vi-
+IN diébus illis ægrotávit Ezechías usque ad mortem, et venit ad eum Isaías fílius Amos Prophéta dixítque ei: Hæc dicit Dóminus Deus: Præcipe dómui tuæ, moriéris enim tu et non vives. Qui convértit fáciem suam ad paríetem et orávit Dóminum dicens: Obsecro, Dómine: meménto, quæso, quómodo ambuláverim coram te in veritáte et in corde perfécto et, quod plácitum est coram te, fécerim. Flevit ítaque Ezechías fletu magno.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et.
+
+##### Lectio ii
+
+ET ántequam egrederétur Isaías médiam partem átrii, factus est sermo Dómini ad eum dicens: Revértere et dic Ezechíæ duci pópuli mei: Hæc dicit Dóminus Deus David patris tui: Audívi oratiónem tuam et vidi lácrimas tuas et ecce sanávi te: die tértio ascéndes templum Dómini, et addam diébus tuis quíndecim annos; sed et de manu regis Assyriórum liberábo te et civitátem hanc et prótegam urbem istam propter me et propter David servum meum. Dixítque Isaías: Afférte massam ficórum. Quam cum attulíssent et posuíssent super ulcus ejus, curátus est.
+
+℟. Deus ómnium exauditor est: ipse misit Angelum suum, et tulit me de óvibus patris mei; \* Et unxit me unctióne misericórdiæ suæ. ℣. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me. — Et.
+
+##### Lectio iii
+
+DIxerat autem Ezechías ad Isaíam: Quod erit signum quia Dóminus me sanábit, et quia ascensúrus sum die tértia templum Dómini? Cui ait Isaías: Hoc erit signum a Dómino, quod factúrus sit Dóminus sermónem quem locútus est: vis ut ascéndat umbra decem líneis, an ut revertátur tótidem grádibus? Et ait Ezechías: Fácile est umbram créscere decem líneis, nec hoc volo ut fiat; sed ut revertátur retrórsum decem grádibus. Invocávit ítaque Isaías Prophéta Dóminum, et redúxit umbram per líneas, quibus jam descénderat in horológio Achaz, retrórsum decem grádibus.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erí-

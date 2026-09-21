@@ -14018,4 +14018,18 @@ Ex libro sancti Fulgéntii Epíscopi, de fide ad Petrum
 
 ##### Lectio iv
 
-FIdes, quam sancti Patriárchæ atque Prophétæ ante incarnatiónem Fílii Dei divínitus accepérunt, quam
+FIdes, quam sancti Patriárchæ atque Prophétæ ante incarnatiónem Fílii Dei divínitus accepérunt, quam étiam sancti Apóstoli ab ipso Dómino in carne pósito audiérunt, et Spíritus Sancti magistério instrúcti non solum sermóne prædicavérunt, verum étiam ad instructiónem salubérrimam posterórum scriptis suis índitam reliquérunt; unum Deum prædicat Trinitátem, id est, Patrem, et Fílium, et Spíritum Sanctum. Sed Trínitas vera non esset, si una eadémque persóna dicerétur Pater et Fílius et Spíritus Sanctus.
+
+℟. Quis Deus magnus sicut Deus noster? \* Tu es Deus, qui facis mirabília. ℣. Notam fecísti in pópulis virtútem tuam: redemísti in bráchio tuo pópulum tuum. — Tu.
+
+##### Lectio v
+
+SI enim, sicut est Patris, et Fílii, et Spíritus Sancti una substántia, sic esset una persóna; nihil omníno esset, in quo veráciter Trínitas dicerétur. Rursus quidem Trínitas esset vera, sed unus Deus Trínitas ipsa non esset, si quemádmodum Pater, et Fílius, et Spíritus Sanctus personárum sunt ab ínvicem proprietáte distíncti, sic fuíssent naturárum quoque diversitáte discréti. Sed quia in illo uno vero Deo Trinitáte, non solum quod unus Deus est, sed étiam quod Trínitas est, naturáliter verum est; proptérea ipse verus Deus in persónis Trínitas est, et in una natúra unus est.
+
+℟. Tibi laus, tibi glória, tibi gratiárum áctio in sæcula sempitérna, \* O beáta Trínitas. ℣. Et benedíctum nomen glóriæ tuæ sanctum: et laudábile et superexaltátum in sæcula. — O beáta.
+
+##### Lectio vi
+
+PER hanc unitátem naturálem totus Pater in Fílio et Spíritu Sancto est, totus Fílius in Patre et Spíritu Sancto est, totus quoque Spíritus Sanctus in Patre et Fílio. Nullus horum extra quémlibet ipsórum est: quia nemo álium aut præcédit æternitáte, aut excédit magnitúdine, aut súperat potestáte: quia nec Fílio nec Spíritu Sancto, quantum ad natúræ divínæ unitátem pértinet, aut antérior aut major Pater est; nec Fílii æternitas atque imménsitas, velut antérior aut major, Spíritus Sancti immensitátem æternitátemque aut præcédere aut excédere naturáliter potest.
+
+℟. Magnus Dóminus, et laudábilis nimis: \* Et sa-

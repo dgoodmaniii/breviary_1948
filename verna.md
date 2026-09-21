@@ -29531,4 +29531,26 @@ IN quo exsultábitis, módicum nunc si opórtet contristári in váriis tentati�
 
 DE qua salúte exquisiérunt atque scrutáti sunt prophétæ, qui de futúra in vobis grátia prophetavérunt; scrutántes in quod vel quale tempus significáret in eis Spíritus Christi: prænúntians eas quæ in Christo sunt passiónes et posterióres glórias: quibus revelátum est, quia non sibimetípsis, vobis autem ministrábant ea, quæ nunc nuntiáta sunt vobis per eos, qui evangelizavérunt vobis, Spíritu Sancto misso de cælo, in quem desíderant Angeli prospícere.
 
-℟. Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: \* Et tibi dabo claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram,
+℟. Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: \* Et tibi dabo claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et tibi dabo claves regni cælórum. Glória Patri. Et.
+
+##### In II Nocturno
+
+Sermo sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 15 de Sanctis}
+
+###### Lectio iv
+
+INSTITUTIO solemnitátis hodiérnæ a senióribus nostris Cáthedræ nomen accépit, ídeo quod primus Apostolórum Petrus hódie episcopátus cáthedram suscepísse referátur. Recte ergo ecclésiæ natálem Sedis illíus colunt, quam Apóstolus pro ecclesiárum salúte suscépit, dicénte Dómino: Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam.
+
+℟. Tu es Pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et.
+
+###### Lectio v
+
+PETRUM ítaque fundaméntum Ecclésiæ Dóminus nominávit: et ídeo digne fundaméntum hoc Ecclésia colit, supra quod ecclesiástici ædifícii altitúdo consúrgit. Unde conveniénter Psalmus, qui lectus est, dicit: Exáltent eum in ecclésia plebis, et in cáthedra seniórum laudent eum. Benedíctus Deus, qui beátum Petrum Apóstolum in Ecclésia exaltári præcépit: quia dignum est ut fundaméntum hoc in Ecclésia honorétur, per quod ad cælum conscénditur.
+
+℟. Ego pro te rogávi, Petre, ut non defíciat fides tua: \* Et tu aliquándo convérsus confírma fratres tuos. ℣. Caro et sanguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et.
+
+###### Lectio vi
+
+QUOD natális ergo Cáthedræ hódie cólitur, sacerdotále honorátur offícium. Sibi hoc ecclésiæ ínvicem præstant, quia tanto necésse plus habet Ecclésia dignitátis, quanto sacerdotále offícium plus honóris. Cum solemnitátem hanc ecclésiis mérito religiósa observátio introdúxerit, miror cur apud quosdam infidéles hódie tam perniciósus error incréverit, ut super túmulos defunctórum cibos et vina cónferant, quasi egréssæ de corpóribus ánimæ carnáles cibos requírant.

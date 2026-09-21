@@ -26496,3 +26496,41 @@ Quóniam secúndum altitúdinem cæli a terra: \* corroborávit misericórdiam s
 Quantum distat ortus ab occidénte: \* longe fecit a nobis iniquitátes nostras.
 
 Quómodo miserétur pater filiórum, misértus est Dóminus timéntibus se: \* quóniam ipse cognóvit figméntum nostrum.
+
+Recordátus est quóniam pulvis sumus: \* homo, sicut fœnum dies ejus, tamquam flos agri sic efflorébit.
+
+Quóniam spíritus pertransíbit in illo, et non subsístet: \* et non cognóscet ámplius locum suum.
+
+Misericórdia autem Dómini ab ætérno, \* et usque in ætérnum super timéntes eum.
+
+Et justítia illíus in fílios filiórum, \* his qui servant testaméntum ejus:
+
+Et mémores sunt mandatórum ipsíus, \* ad faciéndum ea.
+
+Dóminus in cælo parávit sedem suam: \* et regnum ipsíus ómnibus dominábitur.
+
+Benedícite Dómino, omnes Angeli ejus: \* poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+Benedícite Dómino, omnes virtútes ejus: \* minístri ejus, qui fácitis voluntátem ejus.
+
+Benedícite Dómino, ómnia ópera ejus: \* in omni loco dominatiónis ejus, bénedic, ánima mea, Dómino.
+
+**Ant.** Dóminus in cælo, allelúja: parávit sedem suam, allelúja.
+
+℣. Ascéndo ad Patrem meum, et Patrem vestrum, allelúja. ℟. Deum meum, et Deum vestrum, allelúja.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 14-20*
+
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui víderant eum resurrexísse, non credidérunt. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 29 in Evangelia}
+
+QUOD resurrectiónem Domínicam discípuli tarde credidérunt, non tam illórum infírmitas, quam nostra, ut ita dicam, futúra firmitas fuit. Ipsa namque resurréctio illis dubitántibus per multa arguménta monstráta est: quæ dum nos legéntes agnóscimus, quid áliud quam de illórum dubitatióne solidámur? Minus enim mihi María Magdaléne præstitit, quæ cítius crédidit, quam Thomas, qui diu dubitávit. Ille étenim dubitándo vúlnerum cicatríces tétigit, et de nostro péctore dubitatiónis vulnus amputávit.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum

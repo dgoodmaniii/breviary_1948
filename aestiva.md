@@ -15349,3 +15349,27 @@ QUóniam Verbum dicit: Hoc est corpus meum; et assentiámur et credámus et inte
 ##### Lectio v
 
 IGitur accédat nemo cum náusea, nemo resolútus; omnes accénsi, omnes ferventes et excitáti. Nam si Judǽi stantes, et calceaménta in pédibus habéntes, et báculos mánibus gestántes, agnum cum festinatióne comedébant: te multo magis opórtet esse solértem. Nam illi quidem in Palæstínam erant profectúri, et proptérea viatórum figúram habébant: tu vero debes in cælum migráre. Quaprópter in ómnibus opórtet te vigiláre; nec enim parva pœna propónitur indígne suméntibus. Cógita, quantum advérsus proditórem indignáris, et contra eos qui illum crucifixérunt: ítaque consídera, ne tu quoque sis reus córporis et sánguinis Christi. Illi sanctíssimum corpus occidérunt, tu vero pollúta súscipis ánima, post tot benefícia. Neque enim illi satis fuit, hóminem fíeri, cólaphis cædi, et crucifígi; verum et semetípsum nobis commíscet; et non fide tantum, verum et ipsa re, nos suum éfficit corpus.
+
+℟. Accépit Jesus cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: \* Hoc fácite in meam commemoratiónem. ℣. Memória memor ero, et tabéscet in me ánima mea. — Hoc.
+
+##### Lectio vi
+
+QUO non opórtet ígitur esse puriórem, tali fruéntem sacrifício? quo solári rádio non splendidiórem manum, carnem hanc dividéntem? os quod igni spiritáli replétur, linguam quæ treméndo nimis sánguine rubéscit? Cógita, quali sis insignítus honóre, quali mensa fruáris. Quod Angeli vidéntes horréscunt, neque líbere audent intuéri propter emicántem inde splendórem; hoc nos páscimur, huic nos unímur, et facti sumus unum Christi corpus, et una caro. Quis loquétur poténtias Dómini, audítas fáciet omnes laudes ejus? Quis pastor oves próprio pascit cruóre? Et quid dico, pastor? Matres multæ sunt, quæ post partus dolóres fílios áliis tradunt nutrícibus. Hoc autem ipse non est passus; sed ipse nos próprio sánguine pascit, et per ómnia nos sibi coagméntat.
+
+℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic est. Glória Patri. Hic est.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio vii
+
+*Cap. 14, 16-24*
+
+IN illo témpore: Dixit Jesus pharisǽis parábolam hanc: Homo quidam fecit cœnam magnam, et vocávit multos. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 36 in Evangelia}
+
+HOC distáre, fratres caríssimi, inter delícias córporis et cordis solet: quod corporáles delíciæ, cum non habéntur, grave in se desidérium accéndunt; cum vero ávide edúntur, comedéntem prótinus in fastídium per satietátem vertunt. At contra, spiritáles delíciæ, cum non habéntur, in fastídio sunt; cum vero habéntur, in desidério: tantóque a comedénte ámplius esuriúntur, quanto et ab esuriénte ámplius come-

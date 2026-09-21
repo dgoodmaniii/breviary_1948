@@ -40598,3 +40598,61 @@ TRISTES erant Apóstoli
 De Christi acérbo fúnere,
 Quem morte crudelíssima
 Servi necárant ímpii.
+
+Sermóne verax Angelus
+Muliéribus prædíxerat:
+Mox ore Christus gáudium
+Gregi feret fidélium.
+
+Ad ánxios Apóstolos
+Currunt statim dum núntiæ,
+Illæ micántis óbvia
+Christi tenent vestígia.
+
+Galilǽæ ad alta móntium
+Se cónferunt Apóstoli,
+Jesúque, voti cómpotes,
+Almo beántur lúmine.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+¶ Ab Ascensióne autem usque ad Fériam VI ante Vigíliam Pentecóstes inclusíve, dícitur:
+
+Jesu, tibi sit glória,
+Qui victor in cælum redis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+¶ Conclusiónes præcedéntes numquam mutántur:
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Magnif. Ant.** Sancti et justi, \* in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## II Aliæ Lectiones pro Apostolis
+
+##### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Augustíni Epíscopi super Psalmum octogésimum sextum}
+
+{RUBRIC: Ante medium}
+
+###### Lectio iv
+
+FUNDAMENTA ejus in móntibus sanctis: díligit Dóminus portas Sion. Quare sunt fundaménta Apóstoli et Prophétæ? Quia eórum auctóritas portat infirmitátem nostram. Quare sunt portæ? Quia per ipsos intrámus ad regnum Dei. Prǽdicant enim nobis: et, cum per ipsos intrámus, per Christum intrámus; ipse est enim jánua. Et cum dicúntur duódecim portæ Jerúsalem, et una porta Christus et duódecim portæ Christus, quia in duódecim portis Christus; et ídeo duodenárius númerus Apostolórum. Sacraméntum magnum hujus duodenárii significátio est númeri. Sedébitis, inquit, super duódecim sedes, judicántes duódecim tribus Israël.
+
+**T. P. ℟.** Lux. [14]

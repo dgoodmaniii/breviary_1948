@@ -36285,4 +36285,40 @@ QUEMADMODUM qui videt lítteras in códice óptime scripto, et non novit légere
 
 ℣. Diffúsa est grátia.
 
-**Ad Bened. Ant.** Date ei \* de fructu mánuum
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus, allelúja.
+
+###### Oratio
+
+DEUS, mæréntium consolátor et in te sperántium salus, qui beátæ Mónicæ pias lácrimas in conversióne fílii sui Augustíni misericórditer suscepísti: da nobis utriúsque intervéntu; peccáta nostra deploráre, et grátiæ tuæ indulgéntiam inveníre. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+### Die 5 Maji
+
+#### S. Pii V Papæ et Conf.
+
+{RUBRIC: Duplex (m. t. v.) [84]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum, allelúja.
+
+###### Oratio
+
+DEUS, qui ad conteréndos Ecclésiæ tuæ hostes, et ad divínum cultum reparándum, beátum Pium Pontíficem máximum elígere dignátus es: fac nos ipsíus deféndi præsídiis, et ita tuis inhærére obséquiis; ut, ómnium hóstium superátis insídiis, perpétua pace lætémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit, allelúja.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Deus, mæréntium, ut supra.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PIUS in óppido Insúbriæ, quod Boschum vocant, natus, sed e Bonónia oriúndus ex nóbili Ghisleriórum família, cum quatuórdecim esset annórum órdinem Prædicatórum ingréssus est. Erat in eo admirábilis patiéntia, profúnda humílitas, summa vitæ austéritas, contínuum oratiónis stúdium, et reguláris observántiæ ac divíni honóris ardentíssimus zelus. Philosophíæ vero ac theologíæ incúmbens, ádeo in iis excélluit, ut illas docéndi munus magna cum laude per multos annos exercúerit. Sacras conciónes plúribus in locis cum ingénti auditórum fructu hábuit. Inquisitóris offícium inviolábili ánimi fortitúdine diu sustínuit; multásque civitátes, non sine vitæ discrímine, ab hǽresi tunc grassánte immúnes servávit.

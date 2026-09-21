@@ -31887,3 +31887,85 @@ NAM quia gloriabátur diábolus hóminem sua fraude decéptum divínis caruísse
 ADVENIENTIBUS ergo témporibus, dilectíssimi, quæ redemptióni hóminum fúerant præstitúta, ingréditur hæc ínfima Jesus Christus, Dóminus noster, de cælésti sede descéndens, et a patérna glória non recédens, novo órdine, nova nativitáte generátus: novo órdine, quia, invisíbilis in suis, visíbilis factus est in nostris; incomprehensíbilis, vóluit comprehéndi; ante témpora manens, esse cœpit ex témpore; universitátis Dóminus servílem formam, obumbráta majestátis suæ dignitáte, suscépit; impassíbilis Deus, non dedignátus est homo esse passíbilis; et immortális, mortis légibus subjacére.
 
 ℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. {RUBRIC: (T. P. Allelúja.)} ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia. Glória Patri. Quia.
+
+##### In III Nocturno
+
+**Antiphona IX** Angelus Dómini \* nuntiávit Maríæ, et concépit de Spíritu Sancto. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: ¶ Sub qua sola Antiphona dicuntur tres Psalmi hujus Nocturni, si hoc Festum Tempore Paschali celebretur.}
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 1, 26-38*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 2 in Lucam}
+
+LATENT quidem divína mystéria, nec fácile, juxta prophéticum dictum, quisquam hóminum potest scire consílium Dei. Sed tamen ex céteris factis, atque præcéptis Dómini Salvatóris póssumus intellígere, et hoc propensióris fuísse consílii, quod ea potíssimum elécta est, ut Dóminum páreret, quæ erat desponsáta viro. Cur autem non ántequam desponsarétur, impléta est? Fortásse ne dicerétur quod concéperat ex adultério.
+
+℟. Congratulámini mihi, omnes qui dilígitis Dóminum: quia cum essem párvula, plácui Altíssimo, \* Et de meis viscéribus génui Deum et hóminem. {RUBRIC: (T. P. Allelúja.)} ℣. Beátam me dicent omnes generatiónes, quia ancíllam húmilem respéxit Deus. — Et.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+###### Lectio viii
+
+ET ingréssus ad eam Angelus. Disce vírginem móribus, disce vírginem verecúndia, disce oráculo, disce mystério. Trepidáre vírginum est, et ad omnes viri ingréssus pavére, omnes viri affátus veréri. Discant mulíeres propósitum pudóris imitári. Sola in penetrálibus, quam nemo virórum víderit, solus Angelus repérerit: sola sine cómite, sola sine teste, ne quo degénere depravarétur affátu, ab Angelo salutátur.
+
+℟. Gaude, María Virgo, cunctas hǽreses sola interemísti: \* Dum Virgo Deum et hóminem genuísti, et post partum, Virgo, invioláta permansísti. {RUBRIC: (T. P. Allelúja.)} ℣. Beáta es quæ credidísti: quia perfécta sunt ea, quæ dicta sunt tibi a Dómino. — Dum Virgo Deum et hóminem genuísti, et post partum, Virgo, invioláta permansísti. Glória Patri. Dum.
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ, alias}
+
+###### Lectio ix
+
+TANTI namque mandáti mystérium non hóminis fuit, sed Angeli ore proméndum. Hódie primum audítur: Spíritus Sanctus supervéniet in te. Et audítur, et créditur. Dénique, Ecce, inquit, ancílla Dómini: contíngat mihi secúndum verbum tuum. Vide humilitátem, vide devotiónem. Ancíllam se dicit Dómini, quæ mater elígitur, nec repentíno exaltáta promísso est.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Missus est \* Gábriel Angelus ad Maríam Vírginem desponsátam Joseph. {RUBRIC: (T. P. Allelúja.)}
+
+**2** Ave, María, \* grátia plena; Dóminus tecum: benedícta tu in muliéribus. {RUBRIC: (T. P. Allelúja.)}
+
+**3** Ne tímeas, María, \* invenísti grátiam apud Dóminum: ecce concípies et páries fílium. {RUBRIC: (T. P. Allelúja.)}
+
+**4** Dabit ei Dóminus \* sedem David, patris ejus, et regnábit in ætérnum. {RUBRIC: (T. P. Allelúja.)}
+
+**5** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum. {RUBRIC: (T. P. Allelúja.)}
+
+###### Capitulum
+
+*Is. 7, 14-15*
+
+ECCE virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum.
+
+###### Hymnus
+
+O Gloriósa vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine:
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida:
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula. Amen.
+
+℣. Ave, María, grátia plena. {RUBRIC: (T. P. Allelúja.)} ℟. Dóminus tecum. {RUBRIC: (T. P. Allelúja.)}

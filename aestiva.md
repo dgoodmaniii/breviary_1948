@@ -17516,4 +17516,16 @@ DAvid autem erat fílius viri Ephrathǽi, de quo supra dictum est, de Béthlehem
 
 STabant fílii Israël contra adversários quadragínta diébus. Quadragínta dies, propter quátuor témpora et quátuor partes orbis terræ, vitam præséntem signíficant, in qua contra Góliath vel exércitum ejus, id est, contra diábolum et ángelos ejus, Christianórum pópulus pugnáre non désinit. Nec tamen víncere posset, nisi verus David Christus cum báculo, id est, cum crucis mystério descendísset. Ante advéntum enim Christi, fratres caríssimi, solútus erat diábolus; véniens Christus fecit de eo, quod in Evangélio dictum est: Nemo potest intráre in domum fortis et vasa ejus dirípere, nisi prius alligáverit fortem. Venit ergo Christus et alligávit diábolum.
 
-℟. Percússit Saul mille et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Phili-
+℟. Percússit Saul mille et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia manus.
+
+##### Lectio v
+
+SEd dicit áliquis: Si alligátus est, quare adhuc tantum prǽvalet? Verum est, fratres caríssimi, quia multum prǽvalet: sed tépidis, et negligéntibus, et Deum in veritáte non timéntibus dominátur. Alligátus est enim tamquam innéxus canis caténis et néminem potest mordére nisi eum, qui se illi mortífera securitáte conjúnxerit. Jam vidéte, fratres, quam stultus est homo ille, quem canis in caténa pósitus mordet. Tu te illi per voluntátes et cupiditátes sæculi noli conjúngere, et ille ad te non præsúmit accédere. Latráre potest, sollicitáre potest; mordére omníno non potest, nisi voléntem. Non enim cogéndo, sed suadéndo nocet; nec extórquet a nobis consénsum, sed petit.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+VEnit ergo David et invénit Judæórum pópulum contra diábolum prǽliántem; et cum nullus esset, qui præsúmeret ad singuláre certámen accédere, ille, qui figúram Christi gerébat, procéssit ad prǽlium, tulit báculum in manu sua et éxiit contra Góliath. Et in illo quidem tunc figurátum est, quod in Dómino Jesu Christo complétum est. Venit enim verus David Christus, qui contra diábolum pugnatúrus crucem suam ipse portávit. Vidéte, fratres, ubi David Góliath percússerit: in fronte útique, ubi crucis signáculum non habébat. Sicut enim báculus crucis typum hábuit, ita étiam et lapis ille, de quo percússus est, Christum Dóminum figurábat.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.

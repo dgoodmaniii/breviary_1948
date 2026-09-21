@@ -20758,4 +20758,40 @@ DE quibus enim, nisi de membris suis in fine dictúrus est: Cum uni ex mínimis 
 
 #### Oratio
 
-DA, quæsumus, omnípotens Deus: ut, qui in tot advérsis ex nostra infirmitáte defícimus: in-
+DA, quæsumus, omnípotens Deus: ut, qui in tot advérsis ex nostra infirmitáte defícimus: intercedénte unigéniti Fílii tui passióne respirémus: Qui tecum vivit.
+
+### Ad Vesperas
+
+**Ad Magnif. Ant.** Non habéres \* in me potestátem, nisi désuper tibi datum fuísset.
+
+#### Oratio
+
+ADJUVA nos, Deus, salutáris noster: et ad benefícia recolénda, quibus nos instauráre dignátus es, tríbue veníre gaudéntes. Per Dóminum.
+
+---
+
+## Feria Tertia Majóris Hebdomadæ
+
+### Ad Matutinum
+
+**Absolutio** Ipsíus pietas.
+
+**Benedictio** Deus Pater.
+
+{RUBRIC: De Jeremía Prophéta}
+
+#### Lectio i
+
+*Cap. 11, 15-20*
+
+QUID est quod diléctus meus in domo mea fecit scélera multa? Numquid carnes sanctæ áuferent a te malítias tuas, in quibus gloriáta es? Olívam úberem, pulchram, fructíferam, speciósam vocávit Dóminus nomen tuum: ad vocem loquélæ, grandis exársit ignis in ea, et combústa sunt frutéta ejus. Et Dóminus exercítuum, qui plantávit te, locútus est super te malum: pro malis domus Israël et domus Juda, quæ fecérunt sibi ad irritándum me, libántes Báalim. Tu autem, Dómine, demonstrásti mihi, et cognóvi: tunc ostendísti mihi stúdia eórum. Et ego quasi agnus mansuétus, qui portátur ad víctimam: et non cognóvi quia cogitavérunt super me consília, dicéntes: Mittámus lignum in panem ejus, et eradámus eum de terra vivéntium, et nomen ejus non memorétur ámplius. Tu autem, Dómine Sábaoth, qui júdicas juste, et probas renes et corda, vídeam ultiónem tuam ex eis: tibi enim revelávi causam meam.
+
+℟. Contumélias et terróres passus sum ab eis, qui erant pacífici mei, et custodiéntes latus meum, dicéntes: Decipiámus eum, et prævaleámus illi: sed tu, Dómine, mecum es tamquam bellátor fortis. \* Cadant in oppróbrium sempitérnum, ut vídeam vindíctam in eis, quia tibi revelávi causam meam. ℣. Júdica, Dómine, causam ánimæ meæ, defénsor vitæ meæ. — Cadant.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio ii
+
+*Cap. 12, 1-4*
+
+JUSTUS quidem tu es, Dómine, si dísputem tecum: verúmtamen justa

@@ -24461,4 +24461,26 @@ Homilía sancti Gregórii Papæ
 
 {RUBRIC: Homilia 14 in Evangelia}
 
-AUDISTIS, fratres caríssimi, ex lectióne evangélica eruditiónem vestram: audístis et perículum nostrum. Ecce enim is, qui non ex accidénti dono, sed essentiáliter bonus est, dicit: Ego sum pastor bonus. Atque ejúsdem bonitátis formam, quam nos imitémur, adjúngit, dicens: Bonus pastor ánimam suam ponit pro óvibus suis. Fecit quod mónuit: osténdit quod jussit. Bonus pastor pro óvibus suis
+AUDISTIS, fratres caríssimi, ex lectióne evangélica eruditiónem vestram: audístis et perículum nostrum. Ecce enim is, qui non ex accidénti dono, sed essentiáliter bonus est, dicit: Ego sum pastor bonus. Atque ejúsdem bonitátis formam, quam nos imitémur, adjúngit, dicens: Bonus pastor ánimam suam ponit pro óvibus suis. Fecit quod mónuit: osténdit quod jussit. Bonus pastor pro óvibus suis ánimam suam pósuit, ut in sacraménto nostro córpus suum et sánguinem vérteret, et oves quas redémerat, carnis suæ aliménto satiáret.
+
+℟. Christus resúrgens ex mórtuis, jam non móritur, mors illi ultra non dominábitur: quod enim mórtuus est peccáto, mórtuus est semel: \* Quod autem vivit, vivit Deo, allelúja, allelúja. ℣. Mórtuus est semel propter delícta nostra, et resurréxit propter justificatiónem nostram. — Quod.
+
+#### Lectio viii
+
+OSTENSA nobis est de contémptu mortis via, quam sequámur: appósita est forma, cui imprimámur. Primum nobis est, exterióra nostra misericórditer óvibus ejus impéndere: postrémum vero, si necésse sit, étiam mortem nostram pro eísdem óvibus ministráre. A primo autem hoc mínimo pervenítur ad postrémum majus. Sed cum incomparabíliter longe sit mélior ánima, qua vívimus, quam terréna substántia, quam extérius possidémus: qui non dat pro óvibus substántiam suam, quando pro his datúrus est ánimam suam?
+
+℟. Surréxit pastor bonus, qui ánimam suam pósuit pro óvibus suis, et pro grege suo mori dignátus est: \* Allelúja, allelúja, allelúja. ℣. Etenim Pascha nostrum immolátus est Christus. — Allelúja. Glória Patri. Allelúja.
+
+#### Lectio ix
+
+ET sunt nonnúlli, qui dum plus terrénam substántiam quam oves díligunt, mérito nomen pastóris perdunt: de quibus prótinus súbditur: Mercenárius autem, et qui non est pastor, cujus non sunt oves própriæ, videt lupum veniéntem, et dimíttit oves, et fugit. Non pastor, sed mercenárius vocátur, qui non pro amóre íntimo oves Domínicas, sed ad temporáles mercédes pascit. Mercenárius quippe est, qui locum quidem pastóris tenet, sed lucra animárum non quærit: terrénis commódis ínhiat, honóre prælatiónis gaudet, temporálibus lucris páscitur, impénsa sibi ab homínibus reveréntia lætátur.
+
+Te Deum laudámus.
+
+## Ad Laudes
+
+{RUBRIC: Antiphona} Allelúja {RUBRIC: cum Psalmis de Dom. 1 loco. 49}
+
+**Capit.** *1 Petri 2, 21-22*
+
+CARISSIMI: Christus passus est pro nobis, vobis relínquens exémplum,

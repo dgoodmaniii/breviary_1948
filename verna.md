@@ -30158,3 +30158,53 @@ SADDUCÆIS confúsis, pharisǽi rursus aggrediúntur; cumque quiéscere oportér
 ###### Lectio viii
 
 QUAM ob rem símile est huic? Quóniam hoc illud indúcit, et ab illo rursus munítur. Quicúmque enim male agit, ódio habet lucem, et non venit ad lucem. Et rursus: Dixit insípiens in corde suo, Non est Deus. Deínde séquitur: Corrúpti sunt, et abominábiles facti sunt in stúdiis suis. Et íterum: Radix ómnium malórum avarítia est; quam quidam appeténtes, erravérunt a fide. Et, Qui díligit me, mandáta mea servábit: quorum caput et radix est: Díliges Dóminum Deum tuum, et próximum tuum sicut teípsum.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEUS, qui beátum Joánnem, tuo amóre succénsum, inter flammas innóxium incédere fecísti, et per eum Ecclésiam tuam nova prole fecundásti: præsta, ipsíus suffragántibus méritis; ut igne caritátis tuæ vítia nostra curéntur, et remédia nobis ætérna provéniant. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Vesperæ a Capitulo de sequenti, Commemoratio præcedentis et Feriæ.}
+
+---
+
+### Die 9 Martii
+
+#### S. Franciscæ Romanæ
+
+{RUBRIC: Viduæ Duplex [149]}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+DEUS, qui beátam Francíscam fámulam tuam, inter cétera grátiæ tuæ dona, familiári Angeli consuetúdine decorásti: concéde, quǽsumus; ut intercessiónis ejus auxílio Angelórum consórtium cónsequi mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedentis:}
+
+**Ant.** Hic vir despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui beátum Joánnem, {RUBRIC: ut supra.}
+
+{RUBRIC: Deinde Commemoratio Feriæ.}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+FRANCISCA, nóbilis matróna Romána, ab ineúnte ætáte illústria dedit virtútum

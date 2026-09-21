@@ -47933,3 +47933,63 @@ Amen.
 *Cant. 6, 9*
 
 QUÆ est ista, quæ progréditur quasi auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta? ℟. Deo grátias.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+DEUS, qui virginálem aulam beátæ Maríæ, in qua habitáres, elígere dignátus es: da, quǽsumus; ut, sua nos defensióne munítos, jucúndos fácias suæ interésse commemoratióni: Qui vivis.
+
+##### Ad Tertiam
+
+Ave María, ut supra.
+
+℣. Deus, in adjutórium.
+
+**Hymnus** Meménto, ut supra.
+
+**Ant.** María Virgo assúmpta est.
+
+{RUBRIC: Ps. 119} Ad Dóminum cum tribulárer 119; **Ps. 120** Levávi óculos meos et **Ps. 121** Lætátus sum ibid.
+
+**Ant.** María Virgo assúmpta est ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
+
+###### Capitulum
+
+*Eccli. 24, 15*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. ℟. Deo grátias.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti: tríbue, quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
+
+##### Ad Sextam
+
+Ave María, ut supra.
+
+℣. Deus, in adjutórium.
+
+**Hymnus** Meménto. [220]
+
+**Ant.** In odórem.
+
+**Ps. 122** Ad te levávi 157, **Ps. 123** Nisi quia Dóminus 158; **Ps. 124** Qui confídunt in Dómino ibid.
+
+**Ant.** In odórem unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis.
+
+###### Capitulum
+
+*Eccli. 24, 16*
+
+ET radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus,

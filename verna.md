@@ -44332,3 +44332,27 @@ MAGNUS esse vis? a mínimo íncipe. Cógitas magnam fábricam struére celsitúd
 QUOD est fastígium construéndæ fábricæ, quam molímur? quo ventúrum est cacúmen ædifícii? Cito dico, usque ad conspéctum Dei. Vidétis, quam excélsum est, quanta res est conspícere Deum. Qui desíderat, et quod dico et quod audit intélligit. Promíttitur nobis conspéctus Dei, veri Dei, summi Dei. Hoc enim bonum est, Vidéntem vidére. Nam, qui colunt falsos deos, fácile illos vident; sed eos vident, qui óculos habent et non vident. Nobis autem promíttitur vísio Dei vivéntis et vidéntis.
 
 {RUBRIC: Te Deum laudámus.}
+
+---
+
+## III Alia Homilia
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 19, 27-29*
+
+IN illo témpore: Dixit Petrus ad Jesum: Ecce nos relíquimus ómnia, et secúti sumus te: quid ergo erit nobis? Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Homilia in Natali S. Benedicti Ep.}
+
+QUO sunt órdines electórum in judício futúri: unus judicántium cum Dómino, de quibus hoc loco mémorat, qui reliquérunt ómnia et secúti sunt illum. Álius judicandórum a Dómino, qui non quidem ómnia sua páriter reliquérunt, sed de his tamen, quæ habébant, quotidiánas dare eleemósynas Christi paupéribus curábant; unde et audítúri sunt in judício: Veníte, benedícti Patris mei, possidéte præparátum vobis regnum a constitutióne mundi; esurívi enim, et dedístis mihi manducáre; sitívi, et dedístis mihi bíbere.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+###### Lectio viii
+
+SED et reprobórum duos sibi futúros órdines, Dómino narránte, compérimus: unum eórum, qui, fídei christiánæ mystériis initiáti, ópera fídei exercére contémnunt; quibus in judício testátur: Discédite a me, maledícti, in ignem ætérnum, qui præparátus est diábolo et ángelis ejus; esurívi enim, et non dedístis mihi manducáre. Alterum eórum, qui fidem et mystéria Christi vel numquam suscepére, vel suscéptam per apostásiam deseruére; de quibus dicit: Qui autem non credit, jam judicátus est, quia non credit in nómine unigéniti Fílii Dei.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. (T. P. Allelúja.) ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.

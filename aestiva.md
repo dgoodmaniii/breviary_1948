@@ -990,4 +990,83 @@ MISEREATUR tui omnípotens Deus, et, dimíssis peccátis tuis, perdúcat te ad v
 
 {RUBRIC: Facta Confessióne a Choro, Hebdomadárius dicit:}
 
-MISEREATUR vestri omní-
+MISEREATUR vestri omnípotens Deus, et, dimíssis peccátis vestris, perdúcat vos ad vitam ætérnam. ℟. Amen.
+
+INDULGENTIAM, absolutiónem, et remissiónem peccatórum nostrórum tríbuat nobis omnípotens et miséricors Dóminus. ℟. Amen.
+
+{RUBRIC: Extra Chorum, si unus vel duo tantum recítent Offícium, et in Choro Moniálium, semel tantum ac simul ab ómnibus ita fit Confessio:}
+
+CONFITEOR Deo omnipoténti, beátæ Maríæ semper Vírgini, beáto Michaéli Archángelo, beáto Joánni Baptístæ, sanctis Apóstolis Petro et Paulo, et ómnibus Sanctis, quia peccávi nimis cogitatióne, verbo et ópere: mea culpa, mea culpa, mea máxima culpa. Ideo precor beátam Maríam semper Vírginem, beátum Michaélem Archángelum, beátum Joánnem Baptístam, sanctos Apóstolos Petrum et Paulum, et omnes Sanctos, oráre pro me ad Dóminum, Deum nostrum.
+
+{RUBRIC: Deinde dícitur:}
+
+MISEREATUR nostri omnípotens Deus, et, dimíssis peccátis nostris, perdúcat nos ad vitam ætérnam. Amen.
+
+INDULGENTIAM, absolutiónem, et remissiónem peccatórum nostrórum tríbuat nobis omnípotens et miséricors Dóminus. Amen.
+
+{RUBRIC: Facta Absolutióne, dícitur:}
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis. ℣. Deus, in adjutórium.
+
+{RUBRIC: Deinde, inchoáta convenienti Antíphona, dicúntur tres Psalmi, prouti Offícium occúrrens réquirit.}
+
+{RUBRIC: Repetíta íntegre post últimum Psalmum Antíphona, dícitur sequens}
+
+### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+{RUBRIC: Absolúto Hymno, dícitur sequens Capítulum et Responsórium breve:}
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus tuas, Dómine, comméndo spíritum meum. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo spíritum meum. Glória Patri, et Fílio, et Spirítui Sancto. In manus tuas, Dómine, comméndo spíritum meum.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+{RUBRIC: Postea ad Cánticum dícitur sequens}
+
+**Ant.** Salva nos.
+
+### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum.
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace.
+
+{RUBRIC: Deinde, si Preces non fúerint recitándæ, statim dícitur Versus Dóminus vobíscum cum subsequénti Oratióne et réliquis ómnibus usque ad finem Completórii, ut infra.}
+
+{RUBRIC: In quólibet Offício semidúplici, in Offício sanctæ Maríæ in Sábbato, in Festis simplícibus, atque in Fériis per Annum commúnibus, post repetítam ad Nunc dimíttis Antíphonam dicúntur sequéntes Preces, quæ tamen omittúntur ómnibus diébus, in quibus ad Vésperas habíta sit Commemorátio Dúplicis, vel factum fúerit Offícium aut Commemorátio cujúsvis Octávæ.}
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.

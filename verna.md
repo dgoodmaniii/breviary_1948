@@ -36850,3 +36850,33 @@ Quis est homo qui vult vitam: \* díligit dies vidére bonos?
 Próhibe linguam tuam a malo: \* et lábia tua ne loquántur dolum.
 
 Divérte a malo, et fac bonum: \* inquíre pacem, et perséquere eam.
+
+Oculi Dómini super justos: \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala: \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos: \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde: \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum: \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
+
+Mors peccatórum péssima: \* et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Míchaël Archángele, veni in adjutórium pópulo Dei, allelúja.
+
+℣. Ascéndit fumus arómatum in conspéctu Dómini, allelúja. ℟. De manu Angeli, allelúja.
+
+###### Lectio iv
+
+BEATUM Michaélem Archángelum sæpius homínibus paruísse, et sacrórum librórum auctoritáte, et véteri Sanctórum traditióne comprobátur. Quam ob rem multis in locis facti memória celebrátur. Eum, ut olim synagóga Judæórum, sic nunc custódem et patrónum Dei venerátur Ecclésia. Gelásio autem primo, Pontífice máximo, in Apúlia in vértice Gargáni montis, ad cujus radíces íncolunt Sipontíni, Archángeli Michaélis fuit illústris apparítio.
+
+℟. Hic est Míchaël Archángelus, princeps milítiæ Angelórum: \* Cujus honor præstat benefícia populórum, et orátio perdúcit ad regna cælórum, allelúja. ℣. Archángelus Míchaël præpósitus paradísi, quem honoríficant Angelórum cives. — Cujus.
+
+###### Lectio v
+
+FACTUM est enim, ut ex grégibus armentórum Gargáni cujúsdam taurus longe discéderet; quem diu conquisítum, in áditu spelúncæ hæréntem invenérunt. Cum vero quidam ex illis, ut taurum confígeret, sagíttam emisísset, retórta sagítta in ipsum récidit sagittárium. Quæ res cum præséntes ac deínceps céteros tanto timóre affecísset, ut ad eam spelúncam própius accédere nemo audéret, Sipontíni épiscopum cónsulunt; qui, indícto trium diérum je-

@@ -16490,3 +16490,46 @@ Velúmque scisso utílius.
 
 Te vulnerátum cáritas
 Ictu paténti vóluit,
+Amóris invisíbilis
+Ut venerémur vúlnera.
+
+Hoc sub amóris sýmbolo
+Passus cruénta et mýstica,
+Utrúmque sacrifícium
+Christus sacérdos óbtulit.
+
+Quis non amántem rédamet?
+Quis non redémptus díligat,
+Et Corde in isto séligat
+Ætérna tabernácula?
+
+Jesu, tibi sit glória,
+Qui Corde fundis grátiam
+Cum Patre et almo Spíritu
+In sempitérna sæcula. Amen.
+
+℣. Hauriétis aquas in gáudio. ℟. De fóntibus Salvatóris.
+
+**Ad Bened. Ant.** Facta \* sunt enim hæc ut Scriptúra implerétur quæ dicit: Vidébunt in quem transfixérunt.
+
+### Oratio
+
+DEus qui nobis, in Corde Fílii tui, nostris vulneráto peccátis, infinítos dilectiónis thesáuros misericórditer largíri dignáris; concéde, quæsumus, ut illi devótum pietátis nostræ præstántes obséquium, dignæ quoque satisfactiónis exhibeámus offícium. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis; et ad eam in ℟. br. dícitur ℣. Qui Corde fundis grátiam, per totam Octávam.}
+
+### Ad Tertiam
+
+**Capitulum** Fratres, mihi ómnium, ut supra. 358
+
+℟. br. Tóllite jugum meum super vos \* Et díscite a me. Tóllite. ℣. Quia mitis sum et húmilis Corde. Et díscite. Glória Patri. Tóllite.
+
+### Ad Sextam
+
+**Capit.** *Ephes. 3, 14-17*
+
+HUjus rei grátia flecto génua mea ad Patrem Dómini nostri Jesu Christi, ut det vobis secúndum divítias glóriæ suæ virtúte corroborári per Spíritum ejus in interiórem hóminem: Christum habitáre per fidem in córdibus vestris.
+
+℟. br. Ego dixi, Dómine, \* Miserére mei. Ego dixi. ℣. Sana ánimam meam quia peccávi tibi. Miserére mei. Glória Patri. Ego dixi.
+
+℣. Memóriam fecit mirabílium suórum miserátor Dóminus. ℟. Escam dedit timéntibus se.

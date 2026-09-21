@@ -27094,3 +27094,25 @@ VIDETE qualem caritátem dedit nobis Pater, ut fílii Dei nominémur et simus. P
 FILIOLI, nemo vos sedúcat. Qui facit justítiam, justus est: sicut et ille justus est. Qui facit peccátum, ex diábolo est: quóniam ab inítio diábolus peccat. In hoc appáruit Fílius Dei, ut dissólvat ópera diáboli. Omnis, qui natus est ex Deo, peccátum non facit: quóniam semen ipsíus in eo manet, et non potest peccáre, quóniam ex Deo natus est. In hoc manifésti sunt fílii Dei, et fílii diáboli. Omnis, qui non est justus, non est ex Deo, et qui non díligit fratrem suum: quóniam hæc est annuntiátio, quam audístis ab inítio, ut diligátis altérutrum. Non sicut Cain, qui ex malígno erat, et occídit fratrem suum. Et propter quid occídit eum? Quóniam ópera ejus malígna erant; fratris autem ejus justa.
 
 ℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.
+
+#### Lectio iii
+
+NOLITE mirári, fratres, si odit vos mundus. Nos scimus quóniam translati sumus de morte ad vitam, quóniam dilígimus fratres. Qui non díligit, manet in morte. Omnis, qui odit fratrem suum, homicída est; et scitis quóniam omnis homicída non habet vitam ætérnam in semetípso manéntem. In hoc cognóvimus caritátem Dei, quóniam ille ánimam suam pro nobis pósuit: et nos debémus pro frátribus ánimas pónere. Qui habúerit substántiam hujus mundi, et víderit fratrem suum necessitátem habére, et cláuserit víscera sua ab eo: quómodo cáritas Dei manet in eo? Filíoli mei, non diligámus verbo neque lingua, sed ópere et veritáte.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+{RUBRIC: Sermo de Ascens. Dñi, tom. 3}
+
+#### Lectio iv
+
+CHRISTUS ascéndens in cælum, nostræ natúræ primítias óbtulit Patri, et oblátum donum mirátus est Pater, quod et tanta dígnitas offerébat; et quod offerebátur, nulla mácula fœdabátur. Nam et suis mánibus suscépit oblátum, et suæ sedis fecit esse partícipem, et quod plus est, ad partem suæ déxteræ collocávit. Cognoscámus, quis est ille qui audívit, Sede ad déxteram meam: quæ natúra est, cui Deus dixit, Esto meæ párticeps sedis. Illa natúra est, quæ audívit: Terra es, et in terram ibis.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte contristári, nec turbétur cor vestrum: \* Rogo pro vobis Patrem, ut ipse vos custódiat, allelúja, allelúja. ℣. Nisi ego abíero, Paráclitus non véniet: cum assúmptus fúero, mittam vobis eum. — Rogo.
+
+#### Lectio v
+
+NON enim ad omnem glóriam cælos transísse suffécerat, non cum Angelis stare: sed cælos transívit, supra Chérubim ascéndit, ultra Séraphim elevátur, nec ante stetit, nisi sedem Domínicam meruísset. Vide quo spátio cælum separátur a terra, immo terra quanto ab ínferis abest, et ipsum cælum quanto ab altióre

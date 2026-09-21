@@ -18578,4 +18578,28 @@ JEróboam quoque fílius Nabat Ephrathǽus de Saréda servus Salomónis, cujus m
 
 FActum est ígitur in témpore illo, ut Jeróboam egrederétur de Jerúsalem, et invéniret eum Ahías Silonítes prophéta in via opértus pállio novo; erant autem duo tantum in agro. Apprehendénsque Ahías pállium suum novum, quo coopértus erat, scidit in duódecim partes, et ait ad Jeróboam: Tolle tibi decem scissúras; hæc enim dicit Dóminus Deus Israël: Ecce ego scindam regnum de manu Salomónis et dabo tibi decem tribus.
 
-℟. Exaudísti, Dómine, oratiónem servi tui, ut
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+*Cap. 11, 40-43*
+
+VOluit ergo Sálomon interfícere Jeróboam, qui surréxit et aufúgit in Ægýptum ad Sesac regem Ægýpti et fuit in Ægýpto usque ad mortem Salomónis. Réliquum autem verbórum Salomónis et ómnia quæ fecit, et sapiéntia ejus, ecce univérsa scripta sunt in libro verbórum diérum Salomónis. Dies autem, quos regnávit Sálomon in Jerúsalem super omnem Israël, quadragínta anni sunt. Dormivítque Sálomon cum pátribus suis et sepúltus est in civitáte David patris sui regnavítque Róboam fílius ejus pro eo.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 12, 1-8*
+
+VEnit autem Róboam in Sichem; illuc enim congregátus erat omnis Israël ad constituéndum eum regem. At vero Jeróboam fílius Nabat, cum adhuc esset in Ægýpto prófugus a fácie regis Salomónis, audíta morte ejus, revérsus est de Ægýpto. Miserúntque et vocavérunt eum. Venit ergo Jeróboam et omnis multitúdo Israël, et locúti sunt ad Róboam dicéntes: Pater tuus duríssimum jugum impósuit nobis; tu ítaque nunc immínue páululum de império patris tui duríssimo et de jugo gravíssimo, quod impósuit nobis, et serviémus tibi. Qui ait eis: Ite usque ad tértium diem, et revertímini ad me.
+
+℟. Præparáte corda vestra Dómino, et servíte illi soli: \* Et liberábit vos de mánibus inimicórum vestrórum. ℣. Convertímini ad eum in toto corde vestro, et auférte deos aliénos de médio vestri. — Et liberábit.

@@ -25528,4 +25528,32 @@ AUDITE, fratres mei dilectíssimi, nonne Deus elégit páuperes in hoc mundo, d�
 
 #### Lectio iii
 
-QUICUMQUE autem totam legem serváverit, offéndat autem in uno, factus est ómnium reus. Qui enim dixit, Non mœcháberis, dixit et, Non occídes. Quod si non mœ-
+QUICUMQUE autem totam legem serváverit, offéndat autem in uno, factus est ómnium reus. Qui enim dixit, Non mœcháberis, dixit et, Non occídes. Quod si non mœ-cháberis, occídes autem, factus es transgréssor legis. Sic loquímini, et sic fácite sicut per legem libertátis incipiéntes judicári. Judícium enim sine misericórdia illi, qui non fecit misericórdiam: superexáltat autem misericórdia judícium.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Hymnum cantáte nobis, allelúja: \* Quómodo cantábimus cánticum Dómini in terra aliéna? allelúja, allelúja. ℣. Illic interrogavérunt nos, qui captívos duxérunt nos, verba cantiónum. — Quómodo. Glória Patri. Quómodo.
+
+**Ad Bened. Ant.** Pax vobis, \* ego sum, allelúja: nolíte timére, allelúja.
+
+**Ad Magnif. Ant.** Cum vénerit \* Paráclitus Spíritus veritátis, ille árguet mundum de peccáto, et de justítia, et de judício, allelúja.
+
+---
+
+## Feria Quarta
+
+De Epístola beáti Jacóbi Apóstoli
+
+#### Lectio i
+
+*Cap. 2, 14-26*
+
+QUID próderit, fratres mei, si fidem quis dicat se habére, ópera autem non hábeat? Numquid póterit fides salváre eum? Si autem frater et soror nudi sint, et indígeant victu quotidiáno, dicat autem áliquis ex vobis illis: Ite in pace, calefacímini et saturámini: non dedéritis autem eis, quæ necessária sunt córpori, quid próderit? Sic et fides, si non hábeat ópera, mórtua est in semetípsa.
+
+℟. Deus, cánticum novum cantábo tibi, allelúja: \* In psaltério decem chordárum psallam tibi, allelúja, allelúja. ℣. Deus meus es tu, et confitébor tibi: Deus meus es tu, et exaltábo te. — In.
+
+#### Lectio ii
+
+SED dicet quis: Tu fidem habes, et ego ópera hábeo. Osténde mihi fidem tuam sine opéribus: et ego osténdam tibi ex opéribus fidem meam. Tu credis quóniam unus est Deus: Bene facis: et dǽmones credunt, et contremíscunt. Vis autem scire, o homo inánis, quóniam fides sine opéribus mórtua est? Abraham, pater noster, nonne ex opéribus justificátus est, ófferens Isaac fílium suum super altáre? Vides quóniam fides cooperabátur opéribus illíus: et ex opéribus fides consummáta est?

@@ -38606,4 +38606,44 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-MARIA Magdaléna, Floréntiæ illústri Pazziórum génere nata, fere ab incunábulis iter perfectiónis arrípuit. Decénnis perpétuam virginitátem vovit, susceptóque hábitu in monastério sorórum Carmelitárum, se ómnium
+MARIA Magdaléna, Floréntiæ illústri Pazziórum génere nata, fere ab incunábulis iter perfectiónis arrípuit. Decénnis perpétuam virginitátem vovit, susceptóque hábitu in monastério sorórum Carmelitárum, se ómnium virtútum exémplar præbuit. Adeo casta fuit, ut, quidquid puritátem lædere posset, pénitus ignoráverit. Tanto igne divíni amóris æstuábat, ut, ei feréndo impar, ingésta aqua pectus refrigeráre cogerétur. Caritáte erga próximum excélluit; nam sæpe noctes ducébat insómnes, vel obeúndis sorórum ministériis, vel inserviéndo infírmis occupáta, quarum aliquándo úlcera lambens sanávit. Illud frequénter in ore habébat: Pati, non mori. Tandem, diútino et gravi morbo exháusta, transívit ad Sponsum, anno millésimo sexcentésimo séptimo, expléto ætátis suæ anno quadragésimo primo. Eam Clemens nonus sanctárum Vírginum número adscrípsit.
+
+{RUBRIC: Te Deum laudámus.}
+
+{RUBRIC: In III Nocturno Homilia in Ev.} Símile erit regnum cælórum decem virgínibus, {RUBRIC: de Communi Virg. 1 loco. [141]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensionis ix Lectio de Homilia Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam, allelúja.
+
+###### Oratio
+
+DEUS, virginitátis amátor, qui beátam Maríam Magdalénam Vírginem, tuo amóre succénsam, cæléstibus donis decorásti: da; ut, quam festíva celebritáte venerámur, puritáte et caritáte imitémur. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 30 Maji
+
+#### S. Felicis I
+
+{RUBRIC: Papæ et Martyris}
+
+{RUBRIC: Simplex [74]}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja. ℣. Sancti et justi.
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátum Felícem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.

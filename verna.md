@@ -24730,4 +24730,32 @@ FESTUS ergo cum venísset in provínciam, post tríduum ascéndit Jerosólymam a
 
 #### Lectio ii
 
-DEMORATUS autem inter eos dies non ámplius quam octo, aut decem, descéndit Cæsaréam, et áltera die sedit pro tribunáli, et jussit Paulum addúci. Qui cum perdúctus esset, circumstetérunt
+DEMORATUS autem inter eos dies non ámplius quam octo, aut decem, descéndit Cæsaréam, et áltera die sedit pro tribunáli, et jussit Paulum addúci. Qui cum perdúctus esset, circumstetérunt eum, qui ab Jerosólyma descénderant Judǽi, multas et graves causas objiciéntes, quas non póterant probáre, Paulo ratiónem reddénte: Quóniam neque in legem Judæórum, neque in templum, neque in Cǽsarem quidquam peccávi.
+
+℟. Surgens Jesus Dóminus noster, stans in médio discipulórum suórum, dixit: \* Pax vobis, allelúja: gavísi sunt discípuli viso Dómino, allelúja. ℣. Una ergo sabbatórum, cum fores essent clausæ, ubi erant discípuli congregáti, venit Jesus, et stetit in médio eórum, et dixit eis. — Pax.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Pax.
+
+#### Lectio iii
+
+FESTUS autem volens grátiam præstáre Judǽis, respóndens Paulo, dixit: Vis Jerosólymam ascéndere, et ibi de his judicári apud me? Dixit autem Paulus: Ad tribúnal Cǽsaris sto, ibi me opórtet judicári: Judǽis non nócui, sicut tu mélius nosti. Si enim nócui, aut dignum morte áliquid feci, non recúso mori: si vero nihil est eórum, quæ hi accúsant me, nemo potest me illis donáre. Cǽsarem appéllo. Tunc Festus cum concílio locútus, respóndit: Cǽsarem appellásti? ad Cǽsarem ibis.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Expurgáte vetus ferméntum, ut sitis nova conspérsio: étenim Pascha nostrum immolátus est Christus: \* Itaque epulémur in Dómino, allelúja. ℣. Mórtuus est propter delícta nostra, et resurréxit propter justificatiónem nostram. — Itaque. Glória Patri. Itaque.
+
+**Ad Bened. Ant.** Nonne sic opórtuit \* pati Christum, et ita intráre in glóriam suam? allelúja.
+
+---
+
+## Sabbato
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 28, 16-31*
+
+CUM autem venissémus Romam, permíssum est Paulo manére síbimet cum custodiénte se mílite. Post tértium autem diem convocávit primos Judæórum. Cumque conveníssent, dicébat eis: Ego, viri fratres, nihil advérsus plebem fáciens, aut morem patérnum, vinctus ab Jerosólymis tráditus sum in manus Romanórum, qui cum interrogatiónem de me habuíssent, volué-

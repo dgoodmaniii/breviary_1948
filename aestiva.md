@@ -16154,4 +16154,42 @@ Ibi cecidérunt qui operántur iniquitátem: \* expúlsi sunt, nec potuérunt st
 
 BEátus qui intélligit super egénum, et páuperem: \* in die mala liberábit eum Dóminus.
 
-Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra: \* et
+Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra: \* et non tradat eum in ánimam inimicórum ejus.
+
+Dóminus opem ferat illi super lectum dolóris ejus: \* univérsum stratum ejus versásti in infirmitáte ejus.
+
+Ego dixi: Dómine, miserére mei: \* sana ánimam meam, quia peccávi tibi.
+
+Inimíci mei dixérunt mala mihi: \* Quando moriétur, et períbit nomen ejus?
+
+Et si ingrediebátur ut vidéret, vana loquebátur: \* cor ejus congregávit iniquitátem sibi.
+
+Egrediebátur foras, \* et loquebátur in idípsum.
+
+Advérsum me susurrábant omnes inimíci mei: \* advérsum me cogitábant mala mihi.
+
+Verbum iníquum constituérunt advérsum me: \* Numquid qui dormit non adjíciet ut resúrgat?
+
+Etenim homo pacis meæ, in quo sperávi: \* qui edébat panes meos, magnificávit super me supplantatiónem.
+
+Tu autem, Dómine, miserére mei, et resúscita me: \* et retríbuam eis.
+
+In hoc cognóvi quóniam voluísti me: \* quóniam non gaudébit inimícus meus super me.
+
+Me autem propter innocéntiam suscepísti: \* et confirmásti me in conspéctu tuo in ætérnum.
+
+Benedíctus Dóminus, Deus Israël, a sæculo et usque in sæculum: \* fiat, fiat.
+
+**Ant.** Homo pacis meæ, qui edébat panes meos, magnificávit super me supplantatiónem.
+
+℣. Tóllite jugum meum super vos et díscite a me. ℟. Quia mitis sum et húmilis Corde.
+
+{RUBRIC: De Jeremía Prophéta}
+
+##### Lectio i
+
+*Cap. 24, 5-7*
+
+HÆC dicit Dóminus, Deus Israël: Cognóscam transmigratiónem Juda, quam emísi de loco isto in terram Chaldæórum, in bonum. Et ponam óculos meos super eos ad placándum, et redúcam eos in terram hanc; et ædificábo eos, et non déstruam; et plantábo eos et non evéllam. Et dabo eis cor ut sciant me, quia ego sum Dóminus; et erunt mihi in pópulum, et ego ero eis in Deum, quia reverténtur ad me in toto corde suo.
+
+℟. Fériam eis pactum sempitérnum et non désinam eis benefácere et timórem meum dabo in corde eórum \* Ut non recédant a me. ℣. Et lætábor

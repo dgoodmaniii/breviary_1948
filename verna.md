@@ -35678,3 +35678,61 @@ O Crux, ave, spes única,
 Paschále quæ fers gáudium,
 Piis adáuge grátiam,
 Reísque dele crímina.
+
+Te, fons salútis, Trínitas,
+Colláudet omnis spíritus:
+Quibus Crucis victóriam
+Largíris, adde prǽmium. Amen.
+
+℣. Hoc signum Crucis erit in cælo, allelúja. ℟. Cum Dóminus ad judicándum vénerit, allelúja.
+
+**Ad Magnificat, Ant.** O Crux, \* splendídior cunctis astris, mundo célebris, homínibus multum amábilis, sánctior univérsis, quæ sola fuísti digna portáre taléntum mundi, dulce lignum, dulces clavos, dúlcia ferens póndera; salva præséntem catérvam in tuis hódie láudibus congregátam, allelúja, allelúja.
+
+##### In II Vesperis
+
+**Ad Magnif. Ant.** Crucem sanctam súbiit, \* qui inférnum confrégit: accínctus est poténtia, surréxit die tértia, allelúja.
+
+###### Oratio
+
+DEUS, qui in præclára salutíferæ Crucis Inventióne, passiónis tuæ mirácula suscitásti: concéde; ut vitális ligni prétio, ætérnæ vitæ suffrágia consequámur: Qui vivis.
+
+{RUBRIC: Et fit Commemoratio tantum præcedentis.}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Athanási, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+{RUBRIC: C 2}
+
+EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti Athanásii Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invitat.** Christum Regem crucifíxum, \* Veníte, adorémus, allelúja. **Ps. 94** Veníte, exsultémus. [3]
+
+###### Hymnus
+
+PANGE, lingua, gloriósi
+Láuream certáminis,
+Et super Crucis trophǽo
+Dic triúmphum nóbilem:
+Quáliter Redémptor orbis
+Immolátus vícerit.
+
+De paréntis protoplásti
+Fraude Factor cóndolens,
+Quando pomi noxiális
+In necem morsu ruit:
+Ipse lignum tunc notávit,
+Damna ligni ut sólveret.
+
+Hoc opus nostræ salútis
+Ordo depopóscerat;
+Multifórmis proditóris
+Ars ut artem fálleret,
+Et medélam ferret inde,
+Hostis unde lǽserat.

@@ -21104,4 +21104,28 @@ Sed et lingua mea tota die meditábitur justítiam tuam: \* cum confúsi et rev�
 
 *Cap. 1, 1-14*
 
-{RUBRIC: ALEPH.} Quómodo sedet sola cívitas plena pópulo: facta est quasi vídua dómina
+{RUBRIC: ALEPH.} Quómodo sedet sola cívitas plena pópulo: facta est quasi vídua dómina géntium: princeps provinciárum facta est sub tribúto.
+
+{RUBRIC: Beth.} Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus: non est qui consolétur eam ex ómnibus caris ejus: omnes amíci ejus sprevérunt eam, et facti sunt ei inimíci.
+
+{RUBRIC: Ghimel.} Migrávit Judas propter afflictiónem, et multitúdinem servitútis: habitávit inter gentes, nec invénit réquiem: omnes persecutóres ejus apprehendérunt eam inter angústias.
+
+{RUBRIC: Daleth.} Viæ Sion lugent eo quod non sint qui véniant ad solemnitátem: omnes portæ ejus destrúctæ: sacerdótes ejus geméntes: vírgines ejus squálidæ, et ipsa oppréssa amaritúdine.
+
+{RUBRIC: He.} Facti sunt hostes ejus in cápite, inimíci ejus locupletáti sunt: quia Dóminus locútus est super eam propter multitúdinem iniquitátum ejus: párvuli ejus ducti sunt in captivitátem, ante fáciem tribulántis.
+
+Jerúsalem, Jerúsalem, convértere ad Dóminum Deum tuum.
+
+{RUBRIC: Sic terminántur Lectiónes de Lamentatiónibus in hoc tríduo.}
+
+℟. In monte Olivéti orávit ad Patrem: Pater, si fíeri potest, tránseat a me calix iste: \* Spíritus quidem promptus est, caro autem infírma. ℣. Vigiláte, et oráte, ut non intrétis in tentatiónem. — Spíritus.
+
+#### Lectio ii
+
+{RUBRIC: Vau.} Et egréssus est a fília Sion omnis decor ejus: facti sunt príncipes ejus velut aríetes non inveniéntes páscua: et abiérunt absque fortitúdine ante fáciem subsequéntis.
+
+{RUBRIC: Zain.} Recordáta est Jerúsalem diérum afflictiónis suæ, et prævaricatiónis ómnium desiderabílium suórum, quæ habúerat a diébus antíquis, cum cáderet pópulus ejus in manu hostíli, et non esset auxiliátor: vidérunt eam hostes, et derisérunt sábbata ejus.
+
+{RUBRIC: Heth.} Peccátum peccávit Jerúsalem, proptérea instábilis facta est: omnes, qui glorificábant eam, sprevérunt illam, quia vidérunt ignomíniam ejus: ipsa autem gemens convérsa est retrórsum.
+
+{RUBRIC: Teth.} Sordes ejus in pédibus ejus, nec recordáta est finis sui: depósita est vehementer, non habens consolatórem: vide, Dómine, afflictiónem meam, quóniam eréctus est inimícus.

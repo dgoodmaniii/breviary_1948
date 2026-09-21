@@ -11089,3 +11089,67 @@ MULTAE fíliæ congregavérunt divítias: tu supergréssa es univérsas. Fallax 
 ##### Pro Dedicatione Ecclesiæ
 
 ET abstérget Deus omnem lácrimam ab óculis eórum: et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno: Ecce, nova fácio ómnia.
+
+##### In Officiis B. Mariæ V.
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta dedi suavitátem odóris.
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Benedícite. ℟. Deus.
+
+**Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dícitur tantum} Pater noster {RUBRIC: secréto, nisi sequátur ália Hora.}
+
+---
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Excita, Dómine.
+
+### Psalmus 79, i
+
+QUi regis Israël, inténde: \* qui dedúcis velut ovem Joseph.
+
+Qui sedes super Chérubim, \* manifestáre coram Ephraïm, Bénjamin, et Manásse.
+
+Excita poténtiam tuam, et veni, \* ut salvos fácias nos.
+
+Deus, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
+
+Dómine, Deus virtútum, \* quoúsque irascéris super oratiónem servi tui?
+
+Cibábis nos pane lacrimárum: \* et potum dabis nobis in lácrimis in ménsura?
+
+Posuísti nos in contradictiónem vicínis nostris: \* et inimíci nostri subsannavérunt nos.
+
+Deus virtútum, convérte nos: \* et osténde fáciem tuam, et salvi érimus.
+
+### Psalmus 79, ii
+
+VIneam de Ægýpto transtulísti: \* ejecísti gentes, et plantásti eam.
+
+Dux itíneris fuísti in conspéctu ejus: \* plantásti radíces ejus, et implévit terram.

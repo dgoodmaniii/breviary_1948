@@ -28366,3 +28366,37 @@ DEus, qui Apóstolis tuis Sanctum dedísti Spíritum: concéde plebi tuæ piæ p
 **Ad Magnif. Ant.** Si quis díligit me, \* sermónem meum servábit: et Pater meus díliget eum, et ad eum veniémus, et mansiónem apud eum faciémus, allelúja.
 
 ---
+
+[IMAGE]
+
+# Feria III infra Octavam Pentecostes
+
+Duplex I classis
+
+℣. Spíritus Paráclitus, allelúja. ℟. Docébit vos ómnia, allelúja.
+
+**Absolutio** Ipsíus píetas.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio i
+
+*Cap. 10, 1-10*
+
+IN illo témpore: Dixit Jesus pharisǽis: Amen, amen dico vobis: qui non intrat per óstium in ovíle óvium, sed ascéndit aliúnde, ille fur est, et latro. Qui autem intrat per óstium, pastor est óvium. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tract. 45 in Joann., post initium}
+
+DOMINUS de grege suo, et de óstio quo intrátur ad ovíle, similitúdinem propósuit in hodiérna lectióne. Dicant ergo pagáni: Bene vívimus! Si per óstium non intrant, quid prodest eis unde gloriántur? Ad hoc enim debet unicuíque prodésse bene vívere, ut detur illi semper vívere; nam cui non datur semper vívere, quid prodest bene vívere? Quia nec bene vívere dicéndi sunt, qui finem bene vivéndi vel cæcitáte nésciunt, vel inflatióne contémnunt. Non est autem cuíquam spes vera et certa semper vivéndi, ni agnóscat vitam, quod est Christus, et per jánuam intret in ovíle.
+
+℟. Apparuérunt Apóstolis dispertítæ linguæ tamquam ignis, allelúja: \* Sedítque supra síngulos eórum Spíritus Sanctus, allelúja, allelúja. ℣. Et cœpérunt loqui váriis linguis, prout Spíritus Sanctus dabat éloqui illis. — Sedítque.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+QUÆRUNT ergo plerúmque tales hómines étiam persuadére homínibus, ut bene vivant, et Christiáni non sint. Per áliam partem volunt ascéndere, rápere et occídere; non, ut bonus pastor, conserváre atque salváre. Fuérunt ergo quidam philósophi de virtútibus et vítiis subtília multa tractántes, dividéntes, definiéntes, ratiocinatiónes

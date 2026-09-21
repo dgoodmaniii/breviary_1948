@@ -21164,4 +21164,54 @@ Judicáre pópulum tuum in justítia, \* et páuperes tuos in judício.
 
 Suscípiant montes pacem pópulo: \* et colles justítiam.
 
-Judicábit páuperes pópuli, et salvos fáciet fílios
+Judicábit páuperes pópuli, et salvos fáciet fílios páuperum: \* et humiliábit calumniatórem.
+
+Et permanébit cum sole, et ante lunam, \* in generatióne et generatiónem.
+
+Descéndet sicut plúvia in vellus: \* et sicut stillicídia stillántia super terram.
+
+Oriétur in diébus ejus justítia, et abundántia pacis: \* donec auferátur luna.
+
+Et dominábitur a mari usque ad mare: \* et a flúmine usque ad términos orbis terrárum.
+
+Coram illo prócident Æthíopes: \* et inimíci ejus terram lingent.
+
+Reges Tharsis, et ínsulæ múnera ófferent: \* reges Arabum et Saba dona adducent.
+
+Et adorábunt eum omnes reges terræ: \* omnes gentes sérvient ei:
+
+Quia liberábit páuperem a poténte: \* et páuperem, cui non erat adjútor.
+
+Parcet páuperi et ínopi: \* et ánimas páuperum salvas fáciet.
+
+Ex usúris et iniquitáte rédimet ánimas eórum: \* et honorábile nomen eórum coram illo.
+
+Et vivet, et dábitur ei de auro Arábiæ, et adorábunt de ipso semper: \* tota die benedícent ei.
+
+Et erit firmaméntum in terra in summis móntium, superextollétur super Líbanum fructus ejus: \* et florébunt de civitáte sicut fœnum terræ.
+
+Sit nomen ejus benedíctum in sǽcula: \* ante solem pérmanet nomen ejus.
+
+Et benedicéntur in ipso omnes tribus terræ: \* omnes gentes magnificábunt eum.
+
+Benedíctus Dóminus, Deus Israël, \* qui facit mirabília solus:
+
+Et benedíctum nomen majestátis ejus in ætérnum: \* et replébitur majestáte ejus omnis terra: fiat, fiat.
+
+{RUBRIC: †}
+
+**Ant.** Liberávit Dóminus páuperem a poténte, et ínopem, cui non erat adjútor.
+
+**Ant.** Cogitavérunt ímpii, \* et locúti sunt nequítiam: iniquitátem in excélso locúti sunt.
+
+#### Psalmus 72
+
+QUAM bonus Israël Deus, \* his, qui recto sunt corde!
+
+Mei autem pene moti sunt pedes: \* pene effúsi sunt gressus mei.
+
+Quia zelávi super iníquos, \* pacem peccatórum videns.
+
+Quia non est respéctus morti eórum: \* et firmaméntum in plaga eórum.
+
+In labóre hóminum non sunt, \* et cum homínibus non flagellabúntur:

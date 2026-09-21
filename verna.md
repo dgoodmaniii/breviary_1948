@@ -38514,4 +38514,16 @@ DEUS, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditi�
 
 ###### Lectio iv
 
-AUGUSTINUS, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum sóciis mónachis fere quadragínta in Angliam missus est anno quingentésimo nonagésimo séptimo, ut gentes illas ad Christum convérteret. Erat eo témpore rex Ethelbértus, in Cántio potentíssimus, qui, audíta advéntus Augustíni causa, eum cum só-
+AUGUSTINUS, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum sóciis mónachis fere quadragínta in Angliam missus est anno quingentésimo nonagésimo séptimo, ut gentes illas ad Christum convérteret. Erat eo témpore rex Ethelbértus, in Cántio potentíssimus, qui, audíta advéntus Augustíni causa, eum cum sóciis Cantuáriam, sui regni metrópolim, invitávit; ibíque manéndi et Christum prædicándi facultátem eídem liberáliter concéssit. Quare sanctus vir prope Cantuáriam oratórium exstrúxit, ubi ipse aliquámdiu consédit, atque apostólicam vivéndi ratiónem cum suis æmulátus est.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+CÆLESTIS doctrínæ prædicatióne plúrimis firmáta miráculis, ac vitæ exémplo sic insulános illos demúlsit, ut eórum plerósque ad christiánam fidem perdúxerit, ac demum regem ipsum, quem cum innúmero suórum comitátu, sacro fonte lustrávit, summa cum lætítia Berthæ régiæ uxóris, quæ christiána erat. Olim in Natáli Dómini, cum decem míllibus et ámplius baptísmum in álveo flúminis Eboráci contulísset, quotquot ex iis morbo áliquo affécti erant, cum ánimæ salúte, córporis quoque sanitátem recepísse memóriæ próditum est. Jussu Gregórii ordinátus epíscopus, Sedem Cantuáriæ instítuit in ecclésia Salvatóris a se erécta, in qua mónachos óperis sui subsidiários collocávit; et sancti Petri monastérium, quod póstea et a suo nómine dictum est, in suburbánis constrúxit. Idem Gregórius usum pállii cum facultáte ecclesiásticæ hierarchíæ in Anglia instituéndæ ei concéssit: quo novam étiam operariórum manum misit, nempe Mellítum, Justum, Paulínum et Rufiniánum.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+DISPOSITIS ejus ecclésiæ rebus, sýnodum hábuit Augustínus cum epíscopis atque doctóribus véterum Britónum, qui in Paschæ celebratióne alíisque rítibus ab Ecclésia Romána jamdúdum dissidébant. Sed, cum eos neque apostólicæ Sedis auctoritáte neque miráculis movére posset, ut dissídio cessárent, prophético spíritu eis excídium prænuntiávit. Dénique máximis pro Christo exantlátis labóribus, miráculis clarus,

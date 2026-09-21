@@ -37180,4 +37180,22 @@ DEUS, qui pópulo tuo ætérnæ salútis beátum Gregórium minístrum tribuíst
 
 GREGORIUS, nóbilis Cáppadox, ex singulári divinárum Litterárum sciéntia Theólogi cognómen consecútus, Naziánzi in Cappadócia natus, Athénis in omni disciplinárum génere una cum sancto Basílio erudítus, ad stúdia sacrárum Litterárum se convértit; in quibus se in cœnóbio per áliquot annos exercuérunt, illárum senténtiam non ex próprio ingénio, sed ex majórum ratióne et auctoritáte interpretántes. Qui cum doctrína et vitæ sanctitáte florérent, vocáti ad munus prædicándæ evangélicæ veritátis, plúrimos Jesu Christo fílios peperérunt.
 
-℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, alle-
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus enim mea auxiliábitur ei, allelúja.
+
+###### Lectio v
+
+GREGORIUS ígitur, aliquándo domum revérsus, primum Sasimórum epíscopus creátus est, deínde Nazianzénam ecclésiam administrávit. Tum Constantinópolim ad eam regéndam ecclésiam accersítus, cum civitátem hǽresum purgátam erróribus ad cathólicam fidem reduxísset, quod ei summum ómnium amórem conciliáre debébat, multórum parávit invídiam. Itaque, cum inter epíscopos magna proptérea esset facta sedítio, sponte cedens epíscopátu, illud prophétæ dictum usurpávit: Si propter me commóta est ista tempéstas, dejícite me in mare, ut vos jactári desinátis. Quare Naziánzum revérsus, cum illi ecclésiæ Eulálium præficiéndum curásset, totum se ad contemplatiónem et scriptiónem divinárum rerum cóntulit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+SCRIPSIT autem multa, et solúta oratióne et vérsibus, mirábili pietáte et eloquéntia; quibus doctórum hóminum sanctorúmque judício id assecútus est, ut nihil in illis, nisi ex veræ pietátis et cathólicæ religiónis régula, reperiátur, nemo quidquam jure vocáre possit in dúbium. Consubstantialitátis Fílii fuit acérrimus propugnátor. Ut autem vitæ laude nemo ei præpósitus est; sic et oratiónis gravitáte omnes fácile superávit. In iis scribéndi ac legéndi stúdiis ruri vitam mónachi exércens, imperatóre Theodósio, ad cæléstem vitam sénio conféctus migrávit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+GREGORIUS Nazianzénus, nóbilis Cáppadox, ob singulárem divinárum Litterárum sciéntiam, Theó-

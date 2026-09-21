@@ -42384,3 +42384,36 @@ Consérvat patiéntiam.
 
 Quæ vox, quæ póterit lingua retéxere,
 Quæ tu Martýribus múnera prǽparas?
+Rubri nam flúido sánguine, fúlgidis
+Cingunt témpora láureis.
+
+Te, summa o Déitas, únaque póscimus:
+Ut culpas ábigas, nóxia súbtrahas,
+Des pacem fámulis; ut tibi glóriam,
+Annórum in sériem, canant. Amen.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctórum, qui Christi vestígia sunt secúti: et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## II Aliæ Lectiones pro plur. Martyribus
+
+##### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+{RUBRIC: Sermo 1 de Martyribus, tom. 3}
+
+###### Lectio iv
+
+NEMO est qui nésciat, Mártyrum glórias ad hoc divíno consílio a Dei pópulis frequentári, ut et illis débitus honor dicétur, et nobis virtútis exémpla, favénte Christo monstréntur: ut, dum hæc ita celebrári perspícimus, cognoscámus, quanta eos glória máneat in cælis, quorum natalítia táliter celebrántur in terris; quo possímus étiam ipsi, tálibus provocári exémplis, virtúte pari, devotióne consímili ac fide; ut, Christo præstánte, dimicáre et víncere hostem possímus, ut, parta victória, cum iísdem Sanctis in regnis cæléstibus triumphémus.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impedimento. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+###### Lectio v
+
+QUIS est enim, qui, eórum volens mérito copulári, nisi prius constántiam eórum téneat, sectétur fidem, imitétur virtútem passiónis; eórum glóriam páribus vitæ lineaméntis aut invéniat aut exquírat? Qui etsi martýrio par esse non possit, tamen múneris tanti dignitáte se quisque bonis áctibus dignum prǽbeat. Adest enim clementíssimus Deus, qui desiderán-

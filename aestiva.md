@@ -16764,4 +16764,22 @@ SIquidem appósite felícis recordatiónis decéssor noster Leo décimus tértiu
 
 ##### Lectio vi
 
-AC jure id quidem; in illo enim auspicatíssimo signo atque in ea, quæ exínde conséquitur, pietá-
+AC jure id quidem; in illo enim auspicatíssimo signo atque in ea, quæ exínde conséquitur, pietátis forma nonne totíus religiónis summa atque ádeo perfectióris vitæ norma continétur, quippe quæ et ad Christum Dóminum pénitus cognoscéndum mentes condúcat expedítius et ad eúmdem veheméntius diligéndum pressiúsque imitándum ánimos inflétat efficácius? Nemo ígitur mirétur, hanc probatíssimam religiónis formam decessóres nostros continénter et a calumniatórum criminatiónibus vindicásse, et summis láudibus extulísse et vehemánti provexísse stúdio, prout témporum rerúmque ratiónes postulárent. Dei autem adspiránte númine factum est ut pia christifidélium erga Sacratíssimum Cor Jesu volúntas majóra in dies increménta cáperet.
+
+℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum, quóniam magnus es tu, et fáciens mirabília. — Et. Glória Patri. Et.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 19, 31-37*
+
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce córpora sábbato, erat enim magnus dies ille sábbati, rogavérunt Pilátum ut frangeréntur eórum crura et tolleréntur. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 85, alias 84 in Joánnem, num. 3}
+
+VIden' quam fortis sit véritas? Per Judæórum stúdia implétur prophetía. Alia quoque prædíctio finem áccipit. Veniéntes enim mílites aliórum fregérunt crura, Christi non item. Attamen hi, in grátiam Judæórum, ejus latus láncea pérforant, et mórtuo córpori contuméliam ínferunt. O sceléstum et exsecrándum fácinus! Sed ne turbéris, ne dejiciáris, dilécte. Nam quæ mala illi voluntáte faciébant, veritátem propugnábant; prophetía namque erat: Vidébunt in quem transfixérunt. Neque hoc tantum; sed étiam iis qui infidéles futúri erant, hoc fácinus demonstratióni fuit, ut Thomæ et ipsi símilibus. Ad hæc étiam mystérium ineffábile consummabátur. Exívit enim sanguis et aqua. Non sine causa vel casu hi fontes manárunt, sed quia ex hoc

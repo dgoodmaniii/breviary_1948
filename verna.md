@@ -21461,3 +21461,23 @@ Deduxísti sicut oves pópulum tuum, \* in manu Móysi et Aaron.
 ℣. Exsúrge, Dómine. ℟. Et júdica causam meam.
 
 {RUBRIC: Pater noster secreto.}
+
+#### De Epístola prima beáti Pauli Apóstoli ad Corínthios
+
+#### Lectio vii
+
+*Cap. 11, 17-34*
+
+HOC autem præcípio: non laudans quod non in mélius, sed in detérius convenítis. Primum quidem conveniéntibus vobis in Ecclésiam, áudio scissúras esse inter vos, et ex parte credo. Nam opórtet et hǽreses esse, ut et qui probáti sunt, manifésti fiant in vobis. Conveniéntibus ergo vobis in unum, jam non est Domínicam cœnam manducáre. Unusquísque enim suam cœnam præsúmit ad manducándum. Et álius quidem ésurit, álius autem ébrius est. Numquid domos non habétis ad manducándum et bibéndum? aut Ecclésiam Dei contémnitis, et confúnditis eos, qui non habent? Quid dicam vobis? Laudo vos? In hoc non laudo.
+
+℟. Eram quasi agnus ínnocens: ductus sum ad immolándum, et nesciébam: consílium fecérunt inimíci mei advérsum me, dicéntes: \* Veníte, mittámus lignum in panem ejus, et eradámus eum de terra vivéntium. ℣. Omnes inimíci mei advérsum me cogitábant mala mihi: verbum iníquum mandavérunt advérsum me, dicéntes. — Veníte.
+
+#### Lectio viii
+
+EGO enim accépi a Dómino quod et trádidi vobis, quóniam Dóminus Jesus, in qua nocte tradebátur, accépit panem, et grátias agens fregit, et dixit: Accípite, et manducáte: hoc est corpus meum, quod pro vobis tradétur: hoc fácite in meam commemoratiónem. Simíliter et cálicem, postquam cœnávit, dicens: Hic calix novum testaméntum est in meo sánguine: hoc fácite quotiescúmque bibétis, in meam commemoratiónem. Quotiescúmque enim manducábitis panem hunc, et cálicem bibétis, mortem Dómini annuntiábitis donec véniat.
+
+℟. Una hora non potuístis vigiláre mecum, qui exhortabámini mori pro me? \* Vel Judam non vidétis, quómodo non dormit, sed festínat trádere me Judǽis? ℣. Quid dormítis? súrgite, et oráte, ne intrétis in tentatiónem. — Vel.
+
+#### Lectio ix
+
+ITAQUE quicúmque manducáverit panem hunc, vel bíberit cálicem Dómini

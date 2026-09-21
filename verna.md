@@ -46690,4 +46690,20 @@ Homilía sancti Gregórii Papæ
 
 {RUBRIC: Liber 27 Moralium, cap. 27, post medium}
 
-SI veráciter sapiéntes esse atque ipsam sapiéntiam contemplári appétimus, stultos nos humíliter cognoscámus. Relinquámus nóxiam sapiéntiam, discámus laudábilem fatuitátem. Hinc quippe scriptum est: Stulta mundi elégit Deus, ut
+SI veráciter sapiéntes esse atque ipsam sapiéntiam contemplári appétimus, stultos nos humíliter cognoscámus. Relinquámus nóxiam sapiéntiam, discámus laudábilem fatuitátem. Hinc quippe scriptum est: Stulta mundi elégit Deus, ut confúndat sapiéntes. Hinc rursum dícitur: Si quis vidétur inter vos sápiens esse in hoc sǽculo, stultus fiat, ut sit sápiens. Hinc evangélicæ históriæ verba testántur, quia Zachǽus, cum vidére præ turba nihil posset, sycómori árborem ascéndit, ut transeúntem Dóminum cérneret. Sycómorus quippe ficus fátua dícitur.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus: in ea omnis qui petit, áccipit; et qui quǽrit, ínvenit; \* Et pulsánti aperiétur. (T. P. Allelúja.) ℣. Pétite, et accipiétis; quǽrite, et inveniétis. — Et.
+
+###### Lectio viii
+
+PUSILLUS ítaque Zachǽus sycómorum súbiit et Dóminum vidit: quia, qui mundi stultítiam humíliter éligunt, ipsi Dei sapiéntiam subtíliter contemplántur. Pusillitátem namque nostram ad vidéndum Dóminum turba præpédit; quia infirmitátem humánæ mentis, ne lucem veritátis inténdat, curárum sæculárium tumúltus premit. Sed prudénter sycómorum ascéndimus, si próvide eam quæ divínitus præcípitur stultítiam mente tenémus. Quid enim in hoc mundo stúltius quam amíssa non quǽrere, posséssa rapiéntibus relaxáre, nullam pro accéptis injúriis injúriam réddere, immo adjúnctis áliis patiéntiam præbére?
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. (T. P. Allelúja.) ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+QUASI enim sycómorum nos ascéndere Dóminus præcípit, cum dicit: Qui aufert quæ tua sunt, ne répetas; et rursum: Si quis te percússerit in déxteram maxíllam, præbe illi et álteram. Per sycómorum Dóminus tránsiens cérnitur: quia per hanc sapiéntem stultítiam, etsi necdum, ut est, sólide, jam tamen per contemplatiónis lumen Dei sapiéntia quasi in tránsitu vidétur, quam vidére néqueunt qui sibi sapiéntes esse vidéntur; quia ad conspiciéndum Dóminum, in eláta cogitatiónum suárum turba deprehénsi, adhuc sycómori árborem non invenérunt.
+
+{RUBRIC: Te Deum.}
+
+---

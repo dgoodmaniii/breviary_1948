@@ -49615,3 +49615,89 @@ Collocávit me in obscúris sicut mórtuos sǽculi: \* et anxiátus est super me
 Memor fui diérum antiquórum, meditátus sum in ómnibus opéribus tuis: \* in factis mánuum tuárum meditábar.
 
 Expándi manus meas ad te: \* ánima mea sicut terra sine aqua tibi.
+
+Velóciter exáudi me, Dómine: \* defécit spíritus meus.
+
+Non avértas fáciem tuam a me: \* et símilis ero descendéntibus in lacum.
+
+Audítam fac mihi mane misericórdiam tuam: \* quia in te sperávi.
+
+Notam fac mihi viam, in qua ámbulem: \* quia ad te levávi ánimam meam.
+
+Eripe me de inimícis meis, Dómine, ad te confúgi: \* doce me fácere voluntátem tuam, quia Deus meus es tu.
+
+Spíritus tuus bonus dedúcet me in terram rectam: \* propter nomen tuum, Dómine, vivificábis me, in æquitáte tua.
+
+Edúces de tribulatióne ánimam meam: \* et in misericórdia tua dispérdes inimícos meos.
+
+Et perdes omnes, qui tríbulant ánimam meam: \* quóniam ego servus tuus sum.
+
+Glória Patri.
+
+**Ant.** Ne reminiscáris, Dómine, delícta nostra vel paréntum nostrórum, neque vindíctam sumas de peccátis nostris.
+
+---
+
+## Litaniæ
+
+KYRIE, eléison.
+
+Christe, eléison.
+
+Kýrie, eléison.
+
+Christe, audi nos.
+
+Christe, exáudi nos.
+
+Pater de cælis Deus, miserére nobis.
+
+Fili, Redémptor mundi, Deus, miserére nobis.
+
+Spíritus Sancte, Deus, miserére nobis.
+
+Sancta Trínitas, unus Deus, miserére nobis.
+
+Sancta María, ora pro nobis.
+
+Sancta Dei Génitrix, ora.
+
+Sancta Virgo vírginum, ora pro nobis.
+
+Sancte Míchaël, ora.
+
+Sancte Gábriel, ora.
+
+Sancte Ráphaël, ora.
+
+Omnes sancti Angeli et Archángeli, oráte.
+
+Omnes sancti beatórum Spirítuum órdines, oráte.
+
+Sancte Joánnes Baptísta, ora pro nobis.
+
+Sancte Joseph, ora.
+
+Omnes sancti Patriárchæ et Prophétæ, oráte.
+
+Sancte Petre, ora.
+
+Sancte Paule, ora.
+
+Sancte Andréa, ora.
+
+Sancte Jacóbe, ora.
+
+Sancte Joánnes, ora.
+
+Sancte Thoma, ora.
+
+Sancte Jacóbe, ora.
+
+Sancte Philíppe, ora.
+
+Sancte Bartholomǽe, ora.
+
+Sancte Matthǽe, ora.
+
+Sancte Simon, ora.

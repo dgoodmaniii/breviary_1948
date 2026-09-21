@@ -31644,3 +31644,57 @@ Quóniam spíritus pertransíbit in illo, et non subsístet: \* et non cognósce
 Misericórdia autem Dómini ab ætérno, \* et usque in ætérnum super timéntes eum.
 
 Et justítia illíus in fílios filiórum, \* his qui servant testaméntum ejus:
+
+Et mémores sunt mandatórum ipsíus, \* ad faciéndum ea.
+
+Dóminus in cælo parávit sedem suam: \* et regnum ipsíus ómnibus dominábitur.
+
+Benedícite Dómino, omnes Angeli ejus: \* poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+Benedícite Dómino, omnes virtútes ejus: \* minístri ejus, qui fácitis voluntátem ejus.
+
+Benedícite Dómino, ómnia ópera ejus: \* in omni loco dominatiónis ejus, benedic, ánima mea, Dómino.
+
+**Ant.** Súscipe verbum, Virgo María, quod tibi a Dómino per Angelum Gabriélem transmíssum est.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 1, 26-38*
+
+IN illo témpore: Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+Homilía sancti Bernárdi Abbátis
+
+{RUBRIC: Homilia 1 super Missus est, n. 2}
+
+NON árbitror hunc Angelum de minóribus esse, qui, quálibet ex causa, crebra sóleant ad terras fungi legatióne. Quod ex ejus nómine palam intélligi datur, quod interpretátum Fortitúdo Dei dícitur; et quia non ab álio áliquo forte excellentióre se (ut ássolet) spíritu, sed ab ipso Deo mitti perhibétur. Propter hoc ergo pósitum est, A Deo. Vel ídeo dictum est, A Deo, ne cui, vel beatórum spirítuum suum Deus, ántequam Vírgini, revelásse putétur consílium, excépto duntáxat Archángelo Gabriéle; qui útique tantæ inter suos inveníri potúerit excelléntiæ, ut tali et nómine dignus haberétur et núntio.
+
+℟. Missus est Gábriel Angelus ad Maríam Vírginem desponsátam Joseph, núntians ei verbum: et expavéscit Virgo de lúmine. \* Ne tímeas, María, invenísti enim grátiam apud Dóminum: ecce concípies, et páries, et vocábitur Altíssimi Fílius. ℣. Quæ cum audísset, turbáta est in sermóne ejus, et cogitábat qualis esset ista salutátio; et ait Angelus ei. — Ne tímeas, María, invenísti enim grátiam apud Dóminum: ecce concípies, et páries, et vocábitur Altíssimi Fílius.
+
+###### Lectio viii
+
+NEC discórdat nomen a núntio. Dei quippe virtútem Christum quem mélius nuntiáre decébat, quam hunc, quem símile nomen honórat? Nam quid est áliud fortitúdo, quam virtus? Non autem dédecens aut incóngruum videátur, Dóminum et núntium commúni censéri vocábulo; cum símilis in utróque appellatiónis, non sit tamen utriúsque símilis causa. Aliter quippe Christus fortitúdo vel virtus Dei dícitur, áliter Angelus; Angelus enim tantum nuncupatíve, Christus autem étiam substantíve.
+
+℟. Gaude, María Virgo, cunctas hǽreses sola interemísti: \* Quæ Gabriélis Archángeli dictis credidísti, dum virgo Deum et hóminem genuísti, et post partum virgo invioláta permansísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quæ. Glória Patri. Quæ.
+
+{RUBRIC: In Quadragesima ix Lectio de Homilia Feriæ occurrentis; alias, sicubi ix Lectio alícujus Officii commemorati non fuerit dicenda, erit sequens}
+
+###### Lectio ix
+
+CHRISTUS Dei virtus et dícitur et est, qui forti armáto, qui suum átrium in pace custodíre solébat, fórtior supervéniens, ipsum suo bráchio debellávit; et sic ei vasa captivitátis poténter erípuit. Angelus vero fortitúdo Dei appellátus est, vel quod hujúsmodi merúerit prærogatívam offícii, quo ejúsdem nuntiáret advéntum virtútis: vel quia Vírginem natúra pávidam, símplicem, verecúndam, de miráculi novitáte ne expavésceret, confortáre debéret; quod et fecit, Ne tímeas, ínquiens, María, invenísti grátiam apud Deum. Conveniénter ítaque Gábriel ad hoc opus elígitur; imo, quia tale illi negótium injúngitur, recte tali nómine designátur.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Ingrésso Zacharía \* templum Dómini, appáruit ei Gábriel Angelus, stans a dextris altáris incénsi.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+**2** Ait autem Angelus: \* Ne tímeas, Zacharía, quó-

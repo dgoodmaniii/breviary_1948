@@ -24136,4 +24136,32 @@ ET cum hæc dixísset, vidéntibus illis, elevátus est: et nubes suscépit eum 
 
 #### Lectio iii
 
-IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum, qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus crépuit médius: et diffúsa sunt ómnia víscera ejus. Et notum factum est ómnibus habitántibus Jerúsalem, ita ut appellarétur ager ille, lingua eórum, Hacéldama, hoc est, ager sánguinis. Scriptum est enim in libro Psalmórum: Fiat commorátio eórum desérta, et non sit qui inhábitet in ea: et episcopátum ejus accípiat alter. Opórtet ergo ex his viris, qui nobíscum sunt congregáti in omni témpore, quo intrávit et exívit inter nos Dóminus Jesus, incípiens a baptísmate Joánnis usque in diem, qua assúmptus est a nobis, testem resurrectiónis ejus nobíscum fíeri unum ex istis. Et statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Justus: et Matthíam. Et orántes dixérunt: Tu, Dómine, qui corda nosti ómnium, osténde, quem elégeris ex his duóbus unum accípere locum ministérii hujus, et apostolátus, de quo prævaricá-
+IN diébus illis exsúrgens Petrus in médio fratrum, dixit (erat autem turba hóminum simul, fere centum vigínti): Viri fratres, opórtet impléri Scriptúram, quam prædíxit Spíritus Sanctus per os David de Juda, qui fuit dux eórum, qui comprehendérunt Jesum: qui connumerátus erat in nobis, et sortítus est sortem ministérii hujus. Et hic quidem possédit agrum de mercéde iniquitátis, et suspénsus crépuit médius: et diffúsa sunt ómnia víscera ejus. Et notum factum est ómnibus habitántibus Jerúsalem, ita ut appellarétur ager ille, lingua eórum, Hacéldama, hoc est, ager sánguinis. Scriptum est enim in libro Psalmórum: Fiat commorátio eórum desérta, et non sit qui inhábitet in ea: et episcopátum ejus accípiat alter. Opórtet ergo ex his viris, qui nobíscum sunt congregáti in omni témpore, quo intrávit et exívit inter nos Dóminus Jesus, incípiens a baptísmate Joánnis usque in diem, qua assúmptus est a nobis, testem resurrectiónis ejus nobíscum fíeri unum ex istis. Et statuérunt duos, Joseph, qui vocabátur Bársabas, qui cognominátus est Justus: et Matthíam. Et orántes dixérunt: Tu, Dómine, qui corda nosti ómnium, osténde, quem elégeris ex his duóbus unum accípere locum ministérii hujus, et apostolátus, de quo prævaricá-tus est Judas, ut abíret in locum suum. Et dedérunt sortes eis, et cécidit sors super Matthíam, et annumerátus est cum úndecim Apóstolis.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja, allelúja, allelúja. ℣. Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. — Allelúja. Glória Patri. Allelúja.
+
+**Ad Bened. Ant.** Surgens Jesus \* mane prima sábbati, appáruit primo Maríæ Magdalénæ, de qua ejécerat septem dæmónia, allelúja.
+
+{RUBRIC: Oratio Dominicæ præcedentis. 527}
+
+{RUBRIC: Et tam in Laudibus quam in Vésperis, usque ad Laudes Vigíliæ Ascensiónis inclusive, fit Commemorátio de Cruce, justa própriam Rúbricam in Ordinário.}
+
+**Ad Magnif. Ant.** Pax vobis, \* ego sum, allelúja: nolíte timére, allelúja.
+
+---
+
+## Feria Tertia
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 2, 1-8*
+
+ET, cum compleréntur dies Pentecóstes, erant omnes páriter in eódem loco: et factus est repénte de cælo sonus, tamquam adveniéntis spíritus veheméntis, et replévit totam domum ubi erant sedéntes. Et apparuérunt illis dispertítæ linguæ tamquam ignis, sedítque supra síngulos eórum: et repléti sunt omnes Spíritu Sancto, et cœpérunt loqui váriis linguis, prout Spíritus Sanctus dabat éloqui illis. Erant autem in Jerúsalem habitántes Judǽi, viri religiósi ex omni natióne, quæ sub cælo est. Facta autem hac voce, convénit multitúdo, et mente confúsa est, quóniam audiébat unusquísque lingua sua illos loquéntes. Stupébant autem omnes, et mirabántur, dicéntes: Nonne ecce omnes isti, qui loquúntur, Galilǽi sunt? Et quómodo nos audívimus unusquísque linguam nostram, in qua nati sumus?
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum,

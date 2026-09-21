@@ -47596,3 +47596,58 @@ Amen.
 *Eccli. 24, 14*
 
 AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
+
+###### Hymnus
+
+O GLORIOSA vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine:
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida:
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Benedícta tu in muliéribus. (T. P. Allelúja.) ℟. Et benedíctus fructus ventris tui. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Regína cæli, \* lætáre, allelúja; quia quem meruísti portáre, allelúja, resurréxit, sicut dixit, allelúja: ora pro nobis Deum, allelúja.
+
+###### Oratio
+
+CONCEDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+##### Commemoratio de Cruce
+
+**Ant.** Crucifíxus surréxit a mórtuis, et redémit nos, allelúja, allelúja.
+
+℣. Dícite in natiónibus, allelúja. ℟. Quia Dóminus regnávit a ligno, allelúja.
+
+{RUBRIC: Orémus.}
+
+###### Oratio
+
+DEUS, qui pro nobis Fílium tuum Crucis patíbulum subíre voluísti, ut inimíci a nobis expélleres potestátem: concéde nobis, fámulis tuis; ut resurrectiónis grátiam consequámur. Per eúmdem Dóminum. ℟. Amen.
+
+{RUBRIC: Ad Primam in ℟. br. ℣. Qui natus es de María Vírgine, et ad absolutionem Capituli Lectio brevis In plateis, ut infra ad Nonam.}
+
+##### Ad Tertiam
+
+###### Capitulum
+
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
+
+℟. br. Spécie tua et pulchritúdine tua, \* Allelúja, allelúja. Spécie. ℣. Inténde, próspere procéde, et regna. Allelúja, allelúja. Glória Patri. Spécie.

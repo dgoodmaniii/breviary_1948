@@ -39715,3 +39715,65 @@ Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desid�
 **T. P. Ant.** In velaménto clamábant Sancti tui, Dómine, allelúja, allelúja, allelúja.
 
 **Ant.** Spíritus et ánimæ \* justórum, hymnum dícite Deo nostro, allelúja, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Vos amíci mei estis, si fecéritis quæ præcípio vobis, dicit Dóminus.
+
+**Ant.** Beáti pacífici, \* beáti mundo corde: quóniam ipsi Deum vidébunt.
+
+###### Psalmus 112
+
+LAUDATE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum: \* ex hoc nunc, et usque in sæculum.
+
+A solis ortu usque ad occásum: \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus: \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**T. P. Ant.** Spíritus et ánimæ justórum, hymnum dícite Deo nostro, allelúja, allelúja.
+
+**Ant.** Fulgébunt justi \* sicut sol in conspéctu Dei, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Beáti pacífici, beáti mundo corde: quóniam ipsi Deum vidébunt.
+
+**Ant.** In patiéntia vestra \* possidébitis ánimas vestras.
+
+###### Psalmus 116
+
+LAUDATE Dóminum, omnes gentes: \* laudáte eum, omnes pópuli:
+
+Quóniam confirmáta est super nos misericórdia ejus: \* et véritas Dómini manet in ætérnum.
+
+**T. P. Ant.** Fulgébunt justi sicut sol in conspéctu Dei, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** In patiéntia vestra possidébitis ánimas vestras.
+
+{RUBRIC: Capitulum et réliqua ut supra. [2]}
+
+**Capitulum** *Sap. 5, 1*
+
+STABUNT justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+TRISTES erant Apóstoli
+De Christi acérbo fúnere,
+Quem morte crudelíssima
+Servi necárant ímpii.
+
+Sermóne verax Angelus
+Muliéribus prædíxerat:

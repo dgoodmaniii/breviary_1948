@@ -6416,3 +6416,55 @@ Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sæculum sæculi.
 **Ant.** Confitebúntur tibi pópuli, Deus, in ætérnum.
 
 **Ant.** Adjútor in tribulatiónibus \* Deus noster.
+
+### Psalmus 45
+
+DEUS noster refúgium, et virtus: \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra: \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum: \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei: \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur: \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna: \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram: \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma: \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus: \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum: \* suscéptor noster Deus Jacob.
+
+**Ant.** Adjútor in tribulatiónibus Deus noster.
+
+#### In Festis novem Lectionum:
+
+℣. Dóminus virtútum nobíscum. ℟. Suscéptor noster Deus Jacob.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+### In II Nocturno
+
+**Ant.** Magnus Dóminus, \* † et laudábilis nimis in civitáte Dei nostri. ‡
+
+### Psalmus 47
+
+MAGNUS Dóminus, † et laudábilis nimis \* in civitáte Dei nostri, ‡ in monte sancto ejus.
+
+Fundátur exsultatióne univérsæ terræ mons Sion, \* látera Aquilónis, cívitas Regis magni.
+
+Deus in dómibus ejus cognoscétur, \* cum suscípiet eam.
+
+Quóniam ecce reges terræ congregáti sunt: \* convenérunt in unum.
+
+Ipsi vidéntes sic admiráti sunt, conturbáti sunt, commóti sunt: \* tremor apprehéndit eos.
+
+Ibi dolóres ut parturiéntis: \* in spíritu vehemménti cónteres naves Tharsis.

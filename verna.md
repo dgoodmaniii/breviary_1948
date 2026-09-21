@@ -20872,4 +20872,38 @@ QUIS audívit tália horribília, quæ fecit nimis virgo Israël? Numquid defíc
 
 #### Lectio iii
 
-ATTENDE, Dómine, ad me, et audi vocem adversariórum meórum. Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ? Recordáre quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis. Proptérea da fílios eórum in famem, et deduc eos in manus gládii: fiant uxóres eórum absque líberis, et víduæ: et viri eárum interficiántur morte: júvenes eórum confodiántur gládio in prǽlio. Audiátur clamor de dómibus eórum: addúces enim su-
+ATTENDE, Dómine, ad me, et audi vocem adversariórum meórum. Numquid rédditur pro bono malum, quia fodérunt fóveam ánimæ meæ? Recordáre quod stéterim in conspéctu tuo, ut lóquerer pro eis bonum, et avérterem indignatiónem tuam ab eis. Proptérea da fílios eórum in famem, et deduc eos in manus gládii: fiant uxóres eórum absque líberis, et víduæ: et viri eárum interficiántur morte: júvenes eórum confodiántur gládio in prǽlio. Audiátur clamor de dómibus eórum: addúces enim super eos latrónem repénte: quia fodérunt fóveam ut cáperent me, et láqueos abscondérunt pédibus meis. Tu autem, Dómine, scis omne consílium eórum advérsum me in mortem: ne propitiéris iniquitáti eórum, et peccátum eórum a fácie tua non deleátur: fiant corruéntes in conspéctu tuo, in témpore furóris tui abútere eis.
+
+℟. Circumdedérunt me viri mendáces: sine causa flagéllis cecidérunt me: \* Sed tu, Dómine defénsor, víndica me. ℣. Quóniam tribulátio próxima est, et non est qui ádjuvet. — Sed. Circumdedérunt.
+
+## Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Líbera me \* de sanguínibus, Deus, Deus meus: et exsultábit lingua mea justítiam tuam.
+
+{RUBRIC: Psalmi de Feria 2 loco. 179}
+
+**2** Contumélias \* et terróres passus sum ab eis: et Dóminus mecum est tamquam bellátor fortis.
+
+**3** Tu autem, Dómine, \* scis omne consílium eórum advérsum me in mortem.
+
+**4** Omnes inimíci mei \* audiérunt malum meum: Dómine, lætáti sunt, quóniam tu fecísti.
+
+**5** Fac, Dómine, \* judícium injúriam patiéntibus: et vias peccatórum dispérde.
+
+**Ad Bened. Ant.** Simon, dormis? \* non potuísti una hora vigiláre mecum?
+
+#### Oratio
+
+PRÆSTA, quæsumus, omnípotens Deus: ut, qui nostris excéssibus incessánter afflígimur, per unigéniti Fílii tui passiónem liberémur: Qui tecum vivit et regnat.
+
+### Ad Vesperas
+
+**Ad Magnif. Ant.** Ancílla dixit \* Petro: Vere tu ex illis es: nam et loquéla tua maniféstum te facit.
+
+#### Oratio
+
+RESPICE, quæsumus, Dómine, super hanc famíliam tuam, pro qua Dóminus noster Jesus Christus non dubitávit mánibus tradi nocéntium, et crucis subíre torméntum: Qui tecum vivit et regnat.
+
+---

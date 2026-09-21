@@ -20538,4 +20538,16 @@ QUID vultis mecum judício conténdere? Omnes dereliquístis me, dicit Dóminus.
 
 DESIDERATA nobis, dilectíssimi, et univérso optábili mundo adest festívitas Domínicæ passiónis, quæ nos inter exsultatiónes spiritálium gaudiórum silére non pátitur. Quia etsi difícile est, de eádem solemnitáte sæpius digne aptéque dissérere: non est tamen líberum sacerdóti in tanto divínæ misericórdiæ sacraménto fidélibus pópulis subtráhere sermónis offícium: cum ipsa matéria ex eo quod est ineffábilis, fandi tríbuat facultátem; nec possit defícere quod dicátur, dum numquam potest satis esse quod dícitur. Succúmbat ergo humána infírmitas glóriæ Dei, et in explicándis opéribus misericórdiæ ejus, ímparem se semper invéniat. Laborémus sensu, hæreámus ingénio, deficiámus elóquio: bonum est ut nobis parum sit, quod étiam recte de Dómini majestáte sentímus.
 
-℟. Conclúsit vias meas inimícus, insidiátor factus est mihi sicut leo in abscóndito, replévit et ine-
+℟. Conclúsit vias meas inimícus, insidiátor factus est mihi sicut leo in abscóndito, replévit et inebriávit me amaritúdine: deduxérunt in lacum mortis vitam meam, et posuérunt lápidem contra me. \* Vide, Dómine, iniquitátes illórum: et júdica causam ánimæ meæ, defénsor vitæ meæ. ℣. Factus sum in derísum omni pópulo meo, cánticum eórum tota die. — Vide.
+
+#### Lectio v
+
+DICENTE enim prophéta: Quǽrite Dóminum, et confirmámini, quǽrite fáciem ejus semper: némini præsuméndum est, quod totum quod quǽrit, invénerit, ne désinat propinquáre, qui cessárit accédere. Quid autem inter ómnia ópera Dei, in quibus humánæ admiratiónis fatigátur inténtio, ita contemplatiónem mentis nostræ et obléctat et súperat, sicut pássio Salvatóris? Qui ut humánum genus vínculis mortíferæ prævaricatiónis absólveret, et sæviénti diábolo poténtiam suæ majestátis occúluit, et infirmitátem nostræ humilitátis objécit. Si enim crudélis et supérbus inimícus consílium misericórdiæ Dei nosse potuísset, Judæórum ánimos mansuetúdine pótius temperáre, quam injústis ódiis studuísset accéndere: ne ómnium captivórum amítteret servitútem, dum nihil sibi debéntis perséquitur libertátem.
+
+℟. Salvum me fac, Deus, quóniam intravérunt aquæ usque ad ánimam meam: ne avértas fáciem tuam a me: \* Quóniam tríbulor, exáudi me, Dómine, Deus meus. ℣. Inténde ánimæ meæ, et líbera eam: propter inimícos meos éripe me. — Quóniam.
+
+#### Lectio vi
+
+FEFELLIT ergo illum malígnitas sua, íntulit supplícium Fílio Dei, quod cunctis fíliis hóminum in remédium verterétur. Fudit sánguinem justum, qui reconciliándo mundo, et prétium esset, et póculum. Suscépit Dóminus, quod secúndum propósitum suæ voluntátis elégit. Admísit in se ímpias manus furéntium: quæ dum próprio incúmbunt scéleri, famulátæ sunt Redemptóri. Cujus étiam circa interfectóres suos tanta erat pietátis afféctio, ut de cruce súpplicans Patri, non se vindicári, sed illis postuláret ignósci.
+
+℟. Noli esse mihi, Dómine, aliénus: parce mihi in die mala: confundántur omnes qui me persequúntur, \* Et non confúndar ego. ℣. Confundántur om-

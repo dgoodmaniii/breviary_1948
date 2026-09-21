@@ -26342,3 +26342,53 @@ Ad vésperum demorábitur fletus: \* et ad matutínum lætítia.
 Ego autem dixi in abundántia mea: \* Non movébor in ætérnum.
 
 Dómine, in voluntáte tua, \* præstitísti decóri meo virtútem.
+
+Avertísti fáciem tuam a me, \* et factus sum conturbátus.
+
+Ad te, Dómine, clamábo: \* et ad Deum meum deprecábor.
+
+Quæ utílitas in sánguine meo, \* dum descéndo in corruptiónem?
+
+Numquid confitébitur tibi pulvis, \* aut annuntiábit veritátem tuam?
+
+Audívit Dóminus, et misértus est mei: \* Dóminus factus est adjútor meus.
+
+Convertísti planctum meum in gáudium mihi: \* conscidísti saccum meum, et circumdedísti me lætítia:
+
+Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérnum confitébor tibi.
+
+**Ant.** Exaltábo te, Dómine, quóniam suscepísti me, allelúja.
+
+**Ant.** Ascéndit Deus \* in jubilatióne, et Dóminus in voce tubæ, allelúja.
+
+#### Psalmus 46
+
+OMNES gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+**Ant.** Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ, allelúja.
+
+℣. Ascéndens Christus in altum, allelúja. ℟. Captívam duxit captivitátem, allelúja.
+
+Sermo sancti Leónis Papæ
+
+{RUBRIC: Sermo 1 de Ascensione Dómini}
+
+#### Lectio iv
+
+POST beátam et gloriósam resurrectiónem Dómini nostri Jesu Christi, qua verum Dei templum, Judáica impietáte resolútum, divína in tríduo poténtia suscitávit, quadragenárius hódie, dilectíssimi, sanctórum diérum explétus est númerus, sacratíssima ordinatióne dispósitus, et ad utilitátem nostræ eruditiónis impénsus: ut, dum

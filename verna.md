@@ -38526,4 +38526,26 @@ CÆLESTIS doctrínæ prædicatióne plúrimis firmáta miráculis, ac vitæ exé
 
 ###### Lectio vi
 
-DISPOSITIS ejus ecclésiæ rebus, sýnodum hábuit Augustínus cum epíscopis atque doctóribus véterum Britónum, qui in Paschæ celebratióne alíisque rítibus ab Ecclésia Romána jamdúdum dissidébant. Sed, cum eos neque apostólicæ Sedis auctoritáte neque miráculis movére posset, ut dissídio cessárent, prophético spíritu eis excídium prænuntiávit. Dénique máximis pro Christo exantlátis labóribus, miráculis clarus,
+DISPOSITIS ejus ecclésiæ rebus, sýnodum hábuit Augustínus cum epíscopis atque doctóribus véterum Britónum, qui in Paschæ celebratióne alíisque rítibus ab Ecclésia Romána jamdúdum dissidébant. Sed, cum eos neque apostólicæ Sedis auctoritáte neque miráculis movére posset, ut dissídio cessárent, prophético spíritu eis excídium prænuntiávit. Dénique máximis pro Christo exantlátis labóribus, miráculis clarus, cum Mellítum Londinénsi ecclésiæ præfecísset, Justum Roffénsi, suæ Lauréntium, in cælum migrávit séptimo Kaléndas Júnias, Ethelbérto regnánte, ac sepúltus est in monastério sancti Petri, quod exínde Cantuariénsium antístitum et áliquot regum conditórium fuit. Ejus cultum ferventi stúdio prosecútæ sunt Anglórum gentes; ac Leo décimus tértius Póntifex máximus ejus Offícium et Missam ad univérsam exténdit Ecclésiam.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+AUGUSTINUS, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum sóciis mónachis fere quadragínta in Angliam missus est, anno quingentésimo nonagésimo séptimo. A rege Ethelbérto Cantuáriam, ejus regni metrópolim, invitátus cum sóciis, prope eam oratórium exstrúxit. Cæléstis doctrínæ prædicatióne plerósque insulános ac regem ipsum ad christiánam fidem perdúxit, summa cum lætítia Berthæ régiæ uxóris, quæ christiána erat. Jussu Gregórii ordinátus epíscopus, Sedem Cantuariénsem instítuit, et ab eódem Pontífice usum pállii cum facultáte hierarchíæ in Anglia instituéndæ obtínuit. Máximis demum pro Christo exantlátis labóribus, cum Mellítum Londinénsi ecclésiæ præfecísset, Justum Roffénsi, suæ Lauréntium, in cælum migrávit séptimo Kaléndas Júnias, et sepúltus est in monastério sancti Petri, quod exínde Cantuariénsium antístitum et áliquot regum conditórium fuit.
+
+{RUBRIC: Te Deum.}
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Designávit Dóminus, de Communi Evang. Tempore Paschali, cum Responsoriis de Communi Conf. Pont. ibi notatis. [31]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensionis ix Lectio de Homilia Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, su-

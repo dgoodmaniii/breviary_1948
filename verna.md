@@ -37592,4 +37592,12 @@ SACERDOTIO demum auctus, qua præstánti fide animíque ardóre primum ad aram f
 
 ###### Lectio vi
 
-ADJUNCTOS ígitur sibi hómines in gravi ópere et árduo, apud se primum suscépit; tum aptióri in sede constitútos disciplína sua óptime ímbuit iis légibus sapientibúsque institútis, quæ póstea a Benedícto décimo tértio sunt confirmáta. Ex demissióne ánimi ac paupertátis amóre primum canonicátu se abdicávit, omníaque sua bona in páuperes erogávit;
+ADJUNCTOS ígitur sibi hómines in gravi ópere et árduo, apud se primum suscépit; tum aptióri in sede constitútos disciplína sua óptime ímbuit iis légibus sapientibúsque institútis, quæ póstea a Benedícto décimo tértio sunt confirmáta. Ex demissióne ánimi ac paupertátis amóre primum canonicátu se abdicávit, omníaque sua bona in páuperes erogávit; quin étiam sérius, quod frustra sæpius tentáverat, fundáti a se institúti régimen sponte depósuit. Nihil tamen ínterim de fratrum sollicitúdine remíttens deque scholis ab eo, plúribus jam locis, apértis, impénsius Deo vacáre cœpit. Assídue jejúniis, flagéllis alíisque asperitátibus in se ipsum sǽviens, noctes orándo ducébat. Donec, virtútibus ómnibus conspícuus, præsértim obediéntia, stúdio divínæ voluntátis impléndæ, amóre ac devotióne in apostólicam Sedem; méritis onústus, sacraméntis rite suscéptis, obdormívit in Dómino annos natus duo de septuagínta. Eum Leo décimus tértius Póntifex máximus Beatórum catálogo inséruit; novísque fulgéntem signis, anno jubilǽi millésimo noningentésimo, Sanctórum honóribus decorávit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+JOANNES Baptísta de la Salle, Rhemis claro génere ortus, adoléscens in Rheménsi academía lítteras ac philosóphiam dídicit. Clericáli milítiæ adscríptus, sextodécimo ætátis anno inter canónicos Rheménses adscítus fuit, et póstea Parísiis in Sulpitiánum seminárium recéptus. Sacerdótio auctus, Sorórum a Jesu infánte, quæ puéllis educándis incúmbunt, régimen suscépit, quas prudentíssime moderátus est ac deféndit. Púeris de plebe religióne bonísque móribus infórmandis, post plúrimas contradictiónes, fundávit fratrum sodalitátem, quam a Scholis christiánis nuncupávit, a Benedícto décimo tértio deínde confirmátam. Abdicáto canonicátu, suísque bonis in páuperes erogátis, et fundáti a se institúti regímine ex humilitáte dimísso, virtútibus et méritis onústus, obdormívit in Dómino, annos natus duo de septuagínta. Eum Leo Papa décimus tértius primo Beatórum catálogo insér-

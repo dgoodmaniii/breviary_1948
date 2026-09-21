@@ -23600,4 +23600,20 @@ Homilía sancti Ambrósii Epíscopi
 
 {RUBRIC: Liber 10 Comment. in Lucam cap. 24, ante finem}
 
-MIRUM, quo modo se natúra corpórea per impenetrábile corpus infúderit invisíbili áditu, visíbili conspéctu; tangi fácilis, diffícilis æstimári. Dénique conturbáti discípuli æstimábant se spíritum vidére. Et ídeo Dóminus, ut spéciem nobis
+MIRUM, quo modo se natúra corpórea per impenetrábile corpus infúderit invisíbili áditu, visíbili conspéctu; tangi fácilis, diffícilis æstimári. Dénique conturbáti discípuli æstimábant se spíritum vidére. Et ídeo Dóminus, ut spéciem nobis resurrectiónis osténderet, Palpáte, inquit, et vidéte, quia spíritus carnem et ossa non habet, sicut me vidétis habére. Non ergo per incorpóream natúram, sed per resurrectiónis qualitátem, impérvia usu clausa penetrávit. Nam quod tángitur, corpus est; quod palpátur, corpus est.
+
+℟. Virtúte magna reddébant Apóstoli \* Testimónium resurrectiónis Jesu Christi Dómini nostri, allelúja, allelúja. ℣. Repléti quidem Spíritu Sancto, loquebántur cum fidúcia verbum Dei. — Testimónium.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+IN córpore autem resúrgémus. Seminátur enim corpus animále, surgit corpus spiritále: sed illud subtílius, hoc crássius, útpote adhuc terrénæ labis qualitáte concrétum. Nam quómodo non corpus, in quo manébant insígnia vúlnerum, vestígia cicatrícum, quæ Dóminus palpánda óbtulit? In quo non solum fidem firmat, sed étiam devotiónem ácuit, quod vúlnera suscépta pro nobis cælo inférre máluit, abolére nóluit; ut Deo Patri nostræ prétia libertátis osténderet. Talem sibi Pater ad déxteram locat, trophǽum nostræ salútis ampléctens: tales illic Mártyres nobis cicatrícis suæ coróna monstrávit.
+
+℟. De ore prudéntis procédit mel, allelúja; dulcédo mellis est sub lingua ejus, allelúja: \* Favus distíllans lábia ejus, allelúja, allelúja. ℣. Sapiéntia requiéscit in corde ejus, et prudéntia in sermóne oris illíus. — Favus. Glória Patri. Favus.
+
+**Bened.** Ad societátem.
+
+#### Lectio iii
+
+ET quóniam sermo huc noster evásit, considerémus qua grátia secúndum Joánnem credíderint Apóstoli, qui gavísi sunt; secúndum Lucam quasi incréduli redarguántur: ibi Spíritum Sanctum accéperint, hic sedére in civitáte jubeántur, quoadúsque induántur virtúte ex alto. Et vidétur mihi ille quasi Apóstolus majóra et altióra tetigísse, hic sequéntia et humánis próxima: hic histórico usu circúitu, ille compéndio: quia et de illo dubitári non potest, qui testimónium pérhibet de iis, quibus ipse intérfuit, et verum est testimónium ejus: et ab hoc quoque, qui Evangelísta esse méruit, vel negligéntiæ, vel mendácii suspiciónem

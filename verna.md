@@ -50702,4 +50702,34 @@ ROGAMUS étiam te, Dómine, sancte Pater, et pro spirítibus fidélium defunctó
 
 ### Sabbato
 
-ROGO étiam te, Dómine, per ipsum sacrosánctum mystérium Córporis et Sánguinis tui, quo quotídie in Ecclésia tua páscimur et potámur, ablúimur et sanctificámur, atque uníus summæ divinitátis partícipes efficímur. Da mihi virtútes tuas sanctas, quibus replétus bona consciéntia ad altáre tuum accédam, ita ut hæc cæléstia sacraménta efficiántur mihi salus et vita. Tu enim dixísti ore tuo sancto et
+ROGO étiam te, Dómine, per ipsum sacrosánctum mystérium Córporis et Sánguinis tui, quo quotídie in Ecclésia tua páscimur et potámur, ablúimur et sanctificámur, atque uníus summæ divinitátis partícipes efficímur. Da mihi virtútes tuas sanctas, quibus replétus bona consciéntia ad altáre tuum accédam, ita ut hæc cæléstia sacraménta efficiántur mihi salus et vita. Tu enim dixísti ore tuo sancto et benedícto: Panis, quem ego dabo, caro mea est pro mundi vita. Ego sum panis vivus, qui de cælo descéndi. Si quis manducáverit ex hoc pane, vivet in ætérnum. Panis dulcíssime, sana palátum cordis mei, ut séntiam suavitátem amóris tui. Sana illud ab omni languóre, ut nullam præter te séntiam dulcédinem. Panis candidíssime, habens omne delectaméntum et omnem sapórem, qui nos semper réficis et numquam in te déficis; cómedat te cor meum, et dulcédine sapóris tui repleántur víscera ánimæ meæ. Mandúcat te Angelus ore pleno: mandúcet te peregrínus homo pro módulo suo, ne defícere possit in via, tali recreátus viático. Panis sancte, panis vive, panis munde, qui descendísti de cælo et das vitam mundo, veni in cor meum, et munda me ab omni inquinaménto carnis et spíritus. Intra in ánimam meam, sana et munda me intérius et extérius. Esto tutámen et contínua salus ánimæ et córporis mei. Repélle a me insidiántes mihi hostes: recédant procul a præséntia poténtiæ tuæ, ut, foris et intus per te munítus, recto trámite ad tuum regnum pervéniam; ubi non in mystériis, sicut in hoc témpore ágitur, sed fácie ad fáciem te vidébimus, cum tradíderis regnum Deo et Patri, et eris Deus ómnia in ómnibus. Tunc enim me de te satiábis satietáte mirífica, ita ut nec esúriam nec sítiam in ætérnum: Qui cum eódem Deo Patre et Spíritu Sancto vivis et regnas per ómnia sæcula sæculórum. Amen.
+
+## Alia Oratio S. Ambrosii ante Missam
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+AD mensam dulcíssimi convívii tui, pie Dómine Jesu Christe, ego peccátor de própriis meis méritis nihil præsúmens, sed de tua confídens misericórdia et bonitáte, accédere véreor et contremísco. Nam cor et corpus hábeo multis crimínibus maculátum, mentem et linguam non caute custodítam. Ergo, o pia Déitas, o treménda majéstas, ego miser, inter angústias deprehénsus, ad te fontem misericórdiæ recúrro, ad te festíno sanándus, sub tuam protectiónem fúgio; et, quem Júdicem sustinére néqueo, Salvatórem habére suspíro. Tibi, Dómine, plagas meas osténdo, tibi verecúndiam meam détego. Scio peccáta mea multa et magna, pro quibus tímeo: spero in misericórdias tuas, quarum non est númerus. Réspice ergo in me óculis misericórdiæ tuæ, Dómine Jesu Christe, Rex ætérne, Deus et homo, crucifíxus propter hóminem. Exáudi me sperántem in te: miserére mei pleni misériis et peccátis, tu qui fontem miseratiónis numquam manáre cessábis. Salve, salutáris víctima, pro me et omni humáno génere in patíbulo Crucis obláta. Salve, nóbilis et pretiósa Sanguis, de vulnéribus crucifíxi Dómini mei Jesu Christi prófluens, et peccáta totíus mundi ábluens. Recordáre, Dómine, creatúræ tuæ, quam tuo Sánguine redemísti. Pænitet me peccásse, cúpio emendáre quod feci. Aufer ergo a me, cleméntíssime Pater, omnes iniquitátes et peccáta mea; ut, purificátus mente et córpore, digne degustáre mérear Sancta sanctórum. Et concéde, ut hæc sancta prælibátio Córporis et Sánguinis tui, quam ego indígnus súmere inténdo, sit peccatórum meórum remíssio, sit delictórum perfécta purgátio, sit túrpium cogitatiónum effugátio ac bonórum sénsuum regenerátio, operúmque tibi placéntium salúbris efficácia, ánimæ quoque et córporis contra inimicórum meórum insídias firmíssima tuítio. Amen.
+
+## Oratio S. Thomæ Aquinatis
+
+{RUBRIC: Indulgentia trium annorum; plenaria, dummodo quotidiana orationis recitatio in integrum mensem producta fuerit et præterea sacramentalis confessio, alicujus ecclesiæ vel publici oratorii visitatio et ad mentem Summi Pontificis preces additæ fuerint. Pius Pp. XI, 10 Decembris 1936.}
+
+OMNIPOTENS sempitérne Deus, ecce accédo ad sacraméntum unigéniti Fílii tui, Dómini nostri Jesu Christi; accédo tamquam infírmus ad médicum vitæ, immúndus ad fontem misericórdiæ, cæcus ad lumen claritátis ætérnæ, pauper et egénus ad Dóminum cæli et terræ. Rogo ergo imménsæ largitátis tuæ abundántiam, quátenus meam curáre dignéris infirmitátem, laváre fœditátem, illumináre cæcitátem, ditáre paupertátem, vestíre nuditátem: ut panem Angelórum, Regem regum et Dóminum dominántium, tanta suscípiam reveréntia et humilitáte, tanta contritióne et devotióne, tanta puritáte et fide, tali propósito et intentióne, sicut éxpedit salúti ánimæ meæ. Da mihi, quæso, Domínici Córporis et Sánguinis non solum suscípere sacraméntum, sed étiam rem et virtútem sacraménti. O mitíssime Deus, da mihi Corpus unigéniti Fílii tui, Dómini nostri Jesu Christi, quod traxit de Vírgine María, sic suscípere, ut córpori suo mýstico mérear incorporári, et inter ejus membra connumerári. O amantíssime Pater, concéde mihi diléctum Fílium tuum, quem nunc velátum in via suscípere propóno, reveláta tandem fácie perpétuo contemplári: Qui tecum vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. Amen.
+
+## Oratio ad B. Mariam V. ante Missam
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+O Mater pietátis et misericórdiæ, beatíssima Virgo María, ego miser et indígnus peccátor ad te confúgio toto corde et afféctu; et precor pietátem tuam, ut, sicut dulcíssimo Fílio tuo in Cruce pendénti astitísti, ita et mihi, mísero peccatóri, et sacerdótibus ómnibus, hic et in tota sancta Ecclésia hódie offeréntibus, cleménter assístere dignéris, ut, tua grátia adjúti, dignam et acceptábilem hóstiam in conspéctu summæ et indivíduæ Trinitátis offérre valeámus. Amen.
+
+## Oratio ad S. Joseph
+
+{RUBRIC: Indulgentia trium annorum. Pius Pp. XI, 3 Octobris 1936}
+
+O Felícem virum, beátum Joseph, cui datum est, Deum, quem multi reges voluérunt vidére et non vidérunt, audíre et non audiérunt, non solum vidére et audíre, sed portáre, deosculári, vestíre et custodíre!
+
+℣. Ora pro nobis, beáte Joseph. ℟. Ut digni efficiámur promissiónibus Christi.
+
+Orémus.
+
+DEUS, qui dedísti nobis regále sacerdótium: præsta, quæsumus; ut, sicut beátus Joseph unigénitum Fílium tuum, natum ex María Vírgine, suis mánibus reverénter tractáre méruit et portáre, ita nos fáciat cum cordis mundítia et óperis innocéntia tuis sanctis altáribus deservíre, ut sacrosánctum Fílii tui Corpus et Sánguinem hódie digne sumámus, et in futúro sæculo prǽmium habére mereámur

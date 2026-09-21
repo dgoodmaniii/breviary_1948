@@ -44906,4 +44906,44 @@ SÆPE vos, fratres caríssimi, admóneo prava ópera fúgere, mundi hujus inquin
 
 ###### Lectio viii
 
-SED prius quǽréndum nobis est, quid sit regnum cælórum, aut cur decem virgínibus comparétur, quæ étiam vírgines prudéntes et fátuæ dicántur. Dum enim cælórum regnum constat, quia reprobórum nullus ingréditur, étiam fátuis virgínibus cur símile esse perhibétur? Sed sciéndum nobis est, quod sæpe in sacro elóquio regnum cælórum præséntis témporis Ecclésia dícitur. De quo álio in loco Dóminus dicit: Mittet Fílius hóminis Angelos suos, et cólligent de regno ejus ómnia scándala. Neque enim in illo regno beatitúdinis, in quo pax summa est, inveníri scán-
+SED prius quǽréndum nobis est, quid sit regnum cælórum, aut cur decem virgínibus comparétur, quæ étiam vírgines prudéntes et fátuæ dicántur. Dum enim cælórum regnum constat, quia reprobórum nullus ingréditur, étiam fátuis virgínibus cur símile esse perhibétur? Sed sciéndum nobis est, quod sæpe in sacro elóquio regnum cælórum præséntis témporis Ecclésia dícitur. De quo álio in loco Dóminus dicit: Mittet Fílius hóminis Angelos suos, et cólligent de regno ejus ómnia scándala. Neque enim in illo regno beatitúdinis, in quo pax summa est, inveníri scándala póterunt, quæ colligántur.
+
+℟. Média nocte clamor factus est: \* Ecce sponsus venit, exíte óbviam ei. (T. P. Allelúja.) ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. Glória Patri. Ecce.
+
+**Benedictio** Ad societátem.
+
+###### Lectio ix
+
+IN quinque autem córporis sénsibus unusquísque subsístit; gemminátus autem quinárius denárium pérficit. Et quia ex utróque sexu fidélium multitúdo collígitur, sancta Ecclésia decem virgínibus símilis esse denuntiátur. In qua quia mali cum bonis et réprobi cum eléctis admíxti sunt, recte símilis virgínibus prudéntibus et fátuis esse perhibétur. Sunt namque plerique continéntes, qui ab appetítu se exterióri custódiunt et spe ad interióra rapiúntur, carnem mácerant, et toto desidério ad supérnam pátriam anhélant, ætérna prǽmia éxpetunt, pro labóribus suis recípere laudes humánas nolunt. Hi nimírum glóriam suam non in ore hóminum ponunt, sed intra consciéntiam cóntegunt. Et sunt plerique, qui corpus per abstinéntiam afflígunt, sed de ipsa sua abstinéntia humános favóres éxpetunt.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Hæc est Virgo sápiens, \* et una de número prudéntum. (T. P. Allelúja.)
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** Hæc est Virgo sápiens, \* quam Dóminus vigilántem invénit. (T. P. Allelúja.)
+
+**3** Hæc est quæ nescívit \* torum in delícto: habébit fructum in respectióne animárum sanctárum. (T. P. Allelúja.)
+
+**4** Veni, elécta mea, \* et ponam in te thronum meum. (T. P. Allelúja)
+
+**5** Ista est speciósa \* inter fílias Jerúsalem. (T. P. Allelúja.)
+
+**Capit.** *2 Cor. 10, 17-18*
+
+FRATRES: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+###### Hymnus
+
+JESU, coróna Vírginum,
+Quem Mater illa cóncipit,
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe:
+
+Qui pergis inter lília,
+Septus choréis Vírginum,

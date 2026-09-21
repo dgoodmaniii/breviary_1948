@@ -47373,3 +47373,49 @@ In sempitérna sǽcula.
 Amen.
 
 ℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)
+
+**Ad Bened. Ant.** Beáta es, \* María, quæ credidísti: perficiéntur in te, quæ dicta sunt tibi a Dómino, allelúja.
+
+###### Oratio
+
+CONCEDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+##### Ad Primam
+
+**Ant.** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis. (T. P. Allelúja.)
+
+{RUBRIC: In ℟. br., etiam per Octavas communes, dicitur ℣. Qui natus es de María Vírgine.}
+
+##### Ad Tertiam
+
+**Ant.** Læva ejus \* sub cápite meo, et déxtera illíus amplexábitur me. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Spécie tua et pulchritúdine tua, \* Allelúja, allelúja. Spécie. ℣. Inténde, próspere procéde, et regna. Allelúja, allelúja. Glória Patri. Spécie.
+
+℣. Adjuvábit eam Deus vultu suo, allelúja. ℟. Deus in médio ejus, non commovébitur, allelúja.
+
+##### Ad Sextam
+
+**Ant.** Nigra sum, \* sed formósa, fíliæ Jerúsalem; ídeo diléxit me Rex, et introdúxit me in cubículum suum. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit.

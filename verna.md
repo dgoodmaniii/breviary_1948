@@ -9910,7 +9910,7 @@ FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incén
 
 **Pro Conf. non Pont.**
 
-JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum : honestávit illum in labóribus, et complévit labóres illíus.
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum: honestávit illum in labóribus, et complévit labóres illíus.
 
 **Pro Virgine Martyre**
 
@@ -23012,7 +23012,7 @@ Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
 
 Orémus. **Oratio**
 
-VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle : Angeli tui sancti hábitent in ea, qui nos in pace custódiant : et benedíctio tua sit super nos semper. Per Dóminum. ℟. Amen.
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant: et benedíctio tua sit super nos semper. Per Dóminum. ℟. Amen.
 
 ℣. Dóminus vobíscum. ℣. Benedicámus Dómino.
 

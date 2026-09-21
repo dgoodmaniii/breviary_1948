@@ -25474,4 +25474,28 @@ OMNE datum óptimum, et omne donum perféctum desúrsum est, descéndens a Patre
 
 {RUBRIC: ¶ Si vero, juxta superiórem Rúbricam 574, in ipsa Domínica IV sumendæ sint Lectiónes hujus Fériæ II, dícitur sequens Responsórium Domínicæ:}
 
-℟. Si oblítus fúero tui, allelúja, obliviscátur mei déxtera mea: \* Adhǽreat lingua mea fáucibus meis, si non memínero tui, allelúja, allelúja. ℣. Super
+℟. Si oblítus fúero tui, allelúja, obliviscátur mei déxtera mea: \* Adhǽreat lingua mea fáucibus meis, si non memínero tui, allelúja, allelúja. ℣. Super flúmina Babylónis illic sédimus et flévimus, dum recordarémur tui, Sion. — Adhǽreat.
+
+#### Lectio ii
+
+PROPTER quod abjiciéntes omnem immundítiam, et abundántiam malítiæ, in mansuetúdine suscípite ínsitum verbum, quod potest salváre ánimas vestras. Estóte autem factóres verbi, et non audítóres tantum: falléntes vosmetípsos. Quia, si quis audítor est verbi, et non factor: hic comparábitur viro consideránti vultum nativitátis suæ in spéculo: consideravit enim se, et ábiit, et statim oblítus est quális fúerit.
+
+℟. Cantáte Dómino, allelúja: \* Psalmum dícite ei, allelúja. ℣. Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus. — Psalmum.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Psalmum.
+
+{RUBRIC: ¶ Si vero, juxta superiórem Rúbricam 574, in ipsa Domínica IV sumendæ sint Lectiónes hujus Fériæ II, dícitur sequens Responsórium Domínicæ:}
+
+℟. Vidérunt te aquæ, Deus, vidérunt te aquæ, et timuérunt: \* Multitúdo sónitus aquárum vocem dedérunt nubes, allelúja, allelúja, allelúja. ℣. Illuxérunt coruscatiónes tuæ orbi terræ: vidit et commóta est terra. — Multitúdo.
+
+#### Lectio iii
+
+QUI autem perspéxerit in legem perféctam libertátis, et permánserit in ea, non audítor obliviósus factus, sed factor óperis: hic beátus in facto suo erit. Si quis autem putat se religiósum esse, non refrénans linguam suam, sed sedúcens cor suum, hujus vana est relígio. Relígio munda et immaculáta apud Deum et Patrem, hæc est: Visitáre pupíllos et víduas in tribulatióne eórum, et immaculátum se custodíre ab hoc sǽculo.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Narrábo nomen tuum frátribus meis, allelúja: \* In médio Ecclésiæ laudábo te, allelúja, allelúja. ℣. Confitébor tibi in pópulis, Dómine, et psalmum dicam tibi in géntibus. — In. Glória Patri. In.
+
+{RUBRIC: ¶ Prǽcedens Responsórium dícitur étiam, quando, juxta superiórem Rúbricam 574, in ipsa Domínica IV sumendæ sint Lectiónes hujus Fériæ II.}

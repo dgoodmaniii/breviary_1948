@@ -7213,3 +7213,64 @@ JAM lucis orto sídere,
 Deum precémur súpplices,
 Ut in diúrnis áctibus
 Nos servet a nocéntibus.
+
+Linguam refrénans témperet,
+Ne litis horror ínsonet:
+Visum fovéndo cóntegat,
+Ne vanitátes háuriat.
+
+Sint pura cordis íntima,
+Absístat et vecórdia:
+Carnis terat supérbiam
+Potus cibíque párcitas.
+
+Ut, cum dies abscésserit
+Noctémque sors redúxerit,
+Mundi per abstinéntiam
+Ipsi canámus glóriam.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+**Ant.** Misericórdia tua.
+
+### Psalmus 25
+
+JUdica me, Dómine, quóniam ego in innocéntia mea ingréssus sum: \* et in Dómino sperans non infirmábor.
+
+Proba me, Dómine, et tenta me: \* ure renes meos et cor meum.
+
+Quóniam misericórdia tua ante óculos meos est: \* et complácui in veritáte tua.
+
+Non sedi cum concílio vanitátis: \* et cum iníqua geréntibus non introíbo.
+
+Odívi ecclésiam malignántium: \* et cum ímpiis non sedébo.
+
+Lavábo inter innocéntes manus meas: \* et circúmdabo altáre tuum, Dómine:
+
+Ut áudiam vocem laudis, \* et enárrem univérsa mirabília tua.
+
+Dómine, diléxi decórem domus tuæ, \* et locum habitatiónis glóriæ tuæ.
+
+Ne perdas cum ímpiis, Deus, ánimam meam, \* et cum viris sánguinum vitam meam:
+
+In quorum mánibus iniquitátes sunt: \* déxtera eórum repléta est munéribus.
+
+Ego autem in innocéntia mea ingréssus sum: \* rédime me, et miserére mei.
+
+Pes meus stetit in directo: \* in ecclésiis benedícam te, Dómine.
+
+### Psalmus 51
+
+QUid gloriáris in malítia, \* qui potens es in iniquitáte?
+
+Tota die injustítiam cogitávit lingua tua: \* sicut novácula acúta fecísti dolum.
+
+Dilexísti malítiam super benignitátem: \* iniquitátem magis quam loqui æquitátem.
+
+Dilexísti ómnia verba præcipitatiónis, \* lingua dolósa.
+
+Proptérea Deus déstruet te in finem, \* evéllet te, et emigrábit te de tabernáculo tuo: et radícem tuam de terra vivéntium.

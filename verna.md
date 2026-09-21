@@ -25499,3 +25499,33 @@ QUI autem perspéxerit in legem perféctam libertátis, et permánserit in ea, n
 ℟. Narrábo nomen tuum frátribus meis, allelúja: \* In médio Ecclésiæ laudábo te, allelúja, allelúja. ℣. Confitébor tibi in pópulis, Dómine, et psalmum dicam tibi in géntibus. — In. Glória Patri. In.
 
 {RUBRIC: ¶ Prǽcedens Responsórium dícitur étiam, quando, juxta superiórem Rúbricam 574, in ipsa Domínica IV sumendæ sint Lectiónes hujus Fériæ II.}
+
+**Ad Bened. Ant.** Nonne cor nostrum \* ardens erat in nobis de Jesu, dum loquerétur nobis in via? allelúja.
+
+**Ad Magnif. Ant.** Ego veritátem dico \* vobis: éxpedit vobis ut ego vadam: si enim non abíero, Paráclitus non véniet ad vos, allelúja.
+
+---
+
+## Feria Tertia
+
+De Epístola beáti Jacóbi Apóstoli
+
+#### Lectio i
+
+*Cap. 2, 1-13*
+
+FRATRES mei, nolíte in personárum acceptióne habére fidem Dómini nostri Jesu Christi glóriæ. Etenim, si introíerit in convéntum vestrum vir áureum ánnulum habens in veste cándida, introíerit autem et pauper in sórdido hábitu, et intendátis in eum, qui indútus est veste præclára, et dixéritis ei: Tu sede hic bene: páuperi autem dicátis: Tu sta illic; aut sede sub scabéllo pedum meórum: nonne judicátis apud vosmetípsos, et facti estis júdices cogitatiónum iniquárum?
+
+℟. In ecclésiis benedícite Deo, allelúja: \* Dómino de fóntibus Israël, allelúja, allelúja. ℣. Psalmum dícite nómini ejus, date glóriam laudi ejus. — Dómino.
+
+#### Lectio ii
+
+AUDITE, fratres mei dilectíssimi, nonne Deus elégit páuperes in hoc mundo, dívites in fide, et herédes regni, quod repromísit Deus diligéntibus se? Vos autem exhonorástis páuperem. Nonne dívites per poténtiam ópprimunt vos, et ipsi trahunt vos ad judícia? Nonne ipsi blasphémant bonum nomen, quod invocátum est super vos? Si tamen legem perfícitis regálem secúndum Scriptúras: Díliges próximum tuum sicut teípsum: bene fácitis: si autem persónas accípitis, peccátum operámini, redargúti a lege quasi transgressóres.
+
+℟. In toto corde meo, allelúja, exquisívi te, allelúja: \* Ne repéllas me a mandátis tuis, allelúja, allelúja. ℣. Benedíctus es tu, Dómine, doce me justificatiónes tuas. — Ne.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória Patri. Ne.
+
+#### Lectio iii
+
+QUICUMQUE autem totam legem serváverit, offéndat autem in uno, factus est ómnium reus. Qui enim dixit, Non mœcháberis, dixit et, Non occídes. Quod si non mœ-

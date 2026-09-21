@@ -19335,4 +19335,16 @@ IN illo témpore: Perréxit Jesus in montem Olivéti, et dilúculo íterum venit
 
 {RUBRIC: Tract. 33 in Joann., post initium}
 
-JESUS perréxit in montem Olivéti, in montem fructuósum, in montem unguénti, in montem
+JESUS perréxit in montem Olivéti, in montem fructuósum, in montem unguénti, in montem chrísmatis. Ubi enim decébat docére Christum, nisi in monte Olivéti? Christi enim nomen a chrísmate dictum est: chrisma autem Grǽce, Latíne unctio nominátur. Ideo autem nos unxit, quia luctatóres contra diábolum fecit. Et dilúculo íterum venit in templum, et omnis pópulus venit ad eum: et sedens docébat eos, et non tenebátur. Nunc jam atténdite, ubi ab inimícis tentáta sit Dómini mansuetúdo.
+
+℟. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus: \* Idcírco venit super nos tribulátio. ℣. Dixit Ruben frátribus suis: Numquid non dixi vobis, Nolíte peccáre in púerum; et non audístis me? — Idcírco.
+
+#### Lectio ii
+
+ADDUCUNT autem illi scribæ et pharisǽi mulíerem in adultério deprehénsam, et statuérunt eam in médio, et dixérunt ei: Magíster, hæc múlier modo deprehénsa est in adultério: in lege autem Móyses mandávit nobis hujúsmodi lapidáre: tu ergo quid dicis? Hæc autem dicébant tentántes eum: ut possent accusáre eum. Unde accusáre? Numquid ipsum in áliquo facínore deprehénderant, aut illa múlier ad eum áliquo modo pertinuísse dicebátur?
+
+℟. Dixit Ruben frátribus suis: Numquid non dixi vobis, Nolíte peccáre in púerum, et non audístis me? \* En sanguis ejus exquíritur. ℣. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus. — En.
+
+#### Lectio iii
+
+INTELLIGAMUS, fratres, admirábilem mansuetúdinem in Dómino fuísse. Animadvertérunt eum nímium esse mitem, nímium esse mansuétum. De illo quippe fúerat ante prædíctum: Accíngere gládio tuo circa femur tuum, potentíssime. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna: propter veritátem, et mansuetúdinem, et justítiam. Ergo áttulit veritátem ut doctor, mansuetúdinem ut liberátor, justítiam ut cógnitor. Propter hæc eum esse regnatúrum in Spíritu Sancto prophéta prædíxerat. Cum loquerétur, véritas agnoscebátur: cum advérsus

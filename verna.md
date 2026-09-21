@@ -27176,3 +27176,23 @@ CARISSIMI, nolíte omni spirítui crédere, sed probáte spíritus si ex Deo sin
 #### Lectio ii
 
 CARISSIMI, diligámus nos ínvicem, quia cáritas ex Deo est; et omnis, qui díligit, ex Deo natus est, et cognóscit Deum. Qui non díligit, non novit Deum: quóniam Deus cáritas est. In hoc appáruit cáritas Dei in nobis, quóniam Fílium suum unigénitum misit Deus in mundum, ut vivámus per eum. In hoc est cáritas: non quasi nos dilexérimus Deum, sed quóniam ipse prior diléxit nos, et misit Fílium suum propitiatiónem pro peccátis nostris. Caríssimi, si sic Deus diléxit nos: et nos debémus altérutrum dilígere. Deum nemo vidit umquam. Si diligámus ínvicem, Deus in nobis manet, et cáritas ejus in nobis perfécta est.
+
+In hoc cognóscimus quóniam in eo manémus, et ipse in nobis: quóniam de Spíritu suo dedit nobis. Et nos vídimus et testificámur, quóniam Pater misit Fílium suum Salvatórem mundi.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.
+
+#### Lectio iii
+
+QUISQUIS conféssus fúerit quóniam Jesus est Fílius Dei, Deus in eo manet, et ipse in Deo. Et nos cognóvimus, et credídimus caritáti, quam habet Deus in nobis. Deus cáritas est, et qui manet in caritáte, in Deo manet, et Deus in eo. In hoc perfécta est cáritas Dei nobíscum, ut fidúciam habeámus in die judícii: quia sicut ille est, et nos sumus in hoc mundo. Timor non est in caritáte: sed perfécta cáritas foras mittit timórem, quóniam timor pœnam habet; qui autem timet, non est perféctus in caritáte. Nos ergo diligámus Deum, quóniam Deus prior diléxit nos. Si quis díxerit: Quóniam díligo Deum, et fratrem suum óderit, mendax est. Qui enim non díligit fratrem suum quem videt, Deum, quem non videt, quómodo potest dilígere? Et hoc mandátum habémus a Deo: ut qui díligit Deum, díligat et fratrem suum.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+Sermo sancti Máximi Epíscopi
+
+{RUBRIC: Homilia 43, quæ est 2 de Pentec., ante medium}
+
+#### Lectio iv
+
+EMINIT sánctitas vestra, quod áquilæ illi de Psaltério, cujus innovátam juventútem légimus, comparáverim Salvatórem. Est enim similitúdo non parva. Sicut enim áquila humília déserit, alta petit, cælórum vicína conscéndit: ita et Salvátor humília inférni deséruit, paradísi altióra pétiit, cælórum fastígia penetrávit. Et sicut áquila, relíctis terrénis sórdibus, sublíme volans, purióris áëris salubritáte perfrúitur; ita et Dóminus, terrenórum fæcem

@@ -18879,3 +18879,23 @@ REX autem loquebátur cum Giézi púero viri Dei dicens: Narra mihi ómnia magn�
 ℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
 
 {RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Ubi.}
+
+##### Lectio iii
+
+VEnit quoque Eliséus Damáscum, et Bénadad rex Sýriæ ægrotábat. Nuntiaverúntque ei dicéntes: Venit vir Dei huc. Et ait rex ad Házaël: Tolle tecum múnera et vade in occúrsum viri Dei et cónsule Dóminum per eum dicens: Si evádere pótero de infirmitáte mea hac? Ivit ígitur Házaël in occúrsum ejus. Cumque stetísset coram eo, ait: Fílius tuus Bénadad rex Sýriæ misit me ad te dicens: Si sanári pótero de infirmitáte mea hac? Dixítque ei Eliséus: Vade, dic ei: Sanáberis. Porro osténdit mihi Dóminus quia morte moriétur.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et fui tecum.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 9, 1-13*
+
+ELiséus autem prophétes vocávit unum de fíliis prophetárum et ait illi: Accínge lumbos tuos et tolle lenticulam ólei hanc in manu tua et vade in Ramoth Gálaad. Cumque véneris illuc, vidébis Jehu fílium Jósaphat fílii Namsi; et ingréssus suscitábis eum de médio fratrum suórum et introdúces in intérius cubículum. Tenénsque lenticulam ólei fundes super caput ejus et dices: Hæc dicit Dóminus: Unxi te regem super Israël. Aperiésque óstium et fúgies et non ibi subsístes. Abiit ergo adoléscens puer prophétæ in Ramoth Gálaad et ingréssus est illuc: ecce autem príncipes exércitus sedébant, et ait: Verbum mihi ad te, o princeps. Dixítque Jehu: Ad quem ex ómnibus nobis? At ille dixit: Ad te, o princeps.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco:

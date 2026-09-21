@@ -23284,4 +23284,4 @@ Redemptiónem misit pópulo suo: \* mandávit in ætérnum testaméntum suum.
 
 Sanctum, et terríbile nomen ejus: \* inítium sapiéntiæ timor Dómini.
 
-Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi.
+Intelléctus bonus ómnibus faciéntibus eum: \* laudátio ejus manet in sæculum sæculi. Gl.

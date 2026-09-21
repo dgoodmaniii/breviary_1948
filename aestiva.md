@@ -13707,3 +13707,41 @@ VIsita, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 Pater, Ave María et Credo.
 
 ---
+
+[IMAGE]
+
+# Proprium de Tempore
+
+## In Festo Ssmae Trinitatis
+
+*Dominica I post Pentecosten — Duplex I classis*
+
+### In I Vesperis
+
+**Ant. 1** Glória tibi, Trínitas \* æquális, una Déitas, et ante ómnia sæcula, et nunc et in perpétuum.
+
+{RUBRIC: Psalmi de Dominica 57, sed loco ultimi Ps. 116 Laudáte Dóminum, omnes gentes. 78}
+
+**2** Laus et perénnis glória \* Deo Patri, et Fílio, Sancto simul Paráclito, in sæculórum sæcula.
+
+**3** Glória laudis \* résonet in ore ómnium, Patri, genitæque Proli, Spirítui Sancto páriter resúltet laude perénni.
+
+**4** Laus Deo Patri, \* parilíque Proli, et tibi, Sancte, stúdio perénni, Spíritus, nostro résonet ab ore, omne per ævum.
+
+**5** Ex quo ómnia, \* per quem ómnia, in quo ómnia: ipsi glória in sæcula.
+
+**Capitulum** *Rom. 11, 33*
+
+O Altitúdo divitiárum sapiéntiæ et sciéntiæ Dei: quam incomprehensíbilia sunt judícia ejus, et investigábiles viæ ejus!
+
+#### Hymnus
+
+JAM sol recédit ígneus:
+Tu, lux perénnis, Únitas,
+Nostris, beáta Trínitas,
+Infúnde amórem córdibus.
+
+Te mane laudum cármine,
+Te deprecámur véspere;
+Dignéris ut te súpplices
+Laudémus inter cælites.

@@ -40938,3 +40938,43 @@ IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus
 CUM ergo cohortatiónes nostras áuribus vestræ sanctitátis adhibémus, ipsum vobis, cujus vice fúngimur, loqui crédite: quia et illíus vos afféctu monémus, et non áliud vobis, quam quod dócuit, prædicámus; obsecrántes, ut succíncti lumbos mentis vestræ, castam et sóbriam vitam in Dei timóre ducátis. Coróna mea, sicut Apóstolus ait, et gáudium vos estis, si fides vestra, quæ ab inítio Evangélii in univérso mundo prædicáta est, in dilectióne et sanctitáte permánserit. Nam licet omnem Ecclésiam, quæ in toto est orbe terrárum, cunctis opórteat florére virtútibus; vos tamen præcípue inter céteros pópulos decet méritis pietátis excéllere, quos in ipsa apostólicæ petræ arce fundátos, et Dóminus noster Jesus Christus cum ómnibus redémit, et beátus Apóstolus Petrus præ ómnibus erudívit.
 
 {RUBRIC: Te Deum.}
+
+---
+
+[IMAGE]
+
+# Commune unius Martyris
+
+## Extra Tempus Paschale
+
+##### In I Vesperis
+
+**Ant. 1** Qui me conféssus \* fúerit coram homínibus, confitébor et ego eum coram Patre meo.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolórum. [4]}
+
+**2** Qui séquitur me, \* non ámbulat in ténebris, sed habébit lumen vitæ, dicit Dóminus.
+
+**3** Qui mihi minístrat, \* me sequátur: et ubi ego sum, illic sit et miníster meus.
+
+**4** Si quis mihi ministráverit, \* honorificábit eum Pater meus, qui est in cælis, dicit Dóminus.
+
+**5** Volo, Pater, \* ut, ubi ego sum, illic sit et miníster meus.
+
+##### In II Vesperis
+
+###### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.

@@ -11429,3 +11429,55 @@ Avertísti adjutórium gládii ejus: \* et non es auxiliátus ei in bello.
 Destruxísti eum ab emundatióne: \* et sedem ejus in terram collisísti.
 
 Minorásti dies témporis ejus: \* perfudísti eum confusióne.
+
+Usquequo, Dómine, avértis in finem: \* exardéscet sicut ignis ira tua?
+
+Memoráre quæ mea substántia: \* numquid enim vane constituísti omnes fílios hóminum?
+
+Quis est homo, qui vivet, et non vidébit mortem: \* éruet ánimam suam de manu ínferi?
+
+Ubi sunt misericórdiæ tuæ antíquæ, Dómine, \* sicut jurásti David in veritáte tua?
+
+Memor esto, Dómine, oppróbrii servórum tuórum (quod contínui in sinu meo) multárum géntium.
+
+Quod exprobravérunt inimíci tui, Dómine, \* quod exprobravérunt commutatiónem Christi tui.
+
+Benedíctus Dóminus in ætérnum: \* fiat, fiat.
+
+**Ant.** Misericórdia et véritas præcédent fáciem tuam, Dómine.
+
+#### In Officio feriali
+
+**Capit.** *1 Petri 1, 17-19*
+
+IN timóre incolátus vestri témpore conversámini: sciéntes quod non corruptibílibus auro vel argénto redémpti estis, sed pretióso sánguine quasi Agni immaculáti Christi.
+
+℟. br. Rédime me, Dómine, \* Et miserére mei. Rédime. ℣. Pes enim meus stetit in via recta. Et miserére mei. Glória Patri. Rédime. ℣. Ab occúltis meis munda me, Dómine. ℟. Et ab aliénis parce servo tuo.
+
+#### In Vigíliis commúnibus:
+
+##### Preces feriales
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 22}
+
+---
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+**Ant.** Dómine, \* † probásti me, et cognovísti me. ‡
+
+### Psalmus 138, i
+
+DOmine, † probásti me, et cognovísti me: \* ‡ tu cognovísti sessiónem meam, et resurrectiónem meam.
+
+Intellexísti cogitatiónes meas de longe: \* sémitam meam, et funículum meum investigásti.
+
+Et omnes vias meas prævidísti: \* quia non est sermo in lingua mea.

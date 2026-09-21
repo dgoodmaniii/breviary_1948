@@ -16048,3 +16048,60 @@ Ille amor almus ártifex
 Terræ marísque et síderum,
 Erráta patrum míserans
 Et nostra rumpens víncula.
+
+Non Corde discédat tuo
+Vis illa amóris ínclyti:
+Hoc fonte gentes háuriant
+Remissiónis grátiam.
+
+Percússum ad hoc est láncea
+Passúmque ad hoc est vúlnera,
+Ut nos laváret sórdibus,
+Unda fluénte et sánguine.
+
+Jesu, tibi sit glória,
+Qui Corde fundis grátiam,
+Cum Patre et almo Spíritu
+In sempitérna sæcula. Amen.
+
+#### In I Nocturno
+
+**Ant.** Cogitatiónes \* Cordis ejus in generatióne et generatiónem.
+
+##### Psalmus 32
+
+EXsultáte, justi, in Dómino: \* rectos decet collaudátio.
+
+Confitémini Dómino in cíthara: \* in psaltério decem chordárum psállite illi.
+
+Cantáte ei cánticum novum: \* bene psállite ei in vociferatióne.
+
+Quia rectum est verbum Dómini, \* et ómnia ópera ejus in fide.
+
+Díligit misericórdiam et judícium: \* misericórdia Dómini plena est terra.
+
+Verbo Dómini cæli firmáti sunt: \* et spíritu oris ejus omnis virtus eórum.
+
+Cóngregans sicut in utre aquas maris: \* ponens in thesáuris abýssos.
+
+Tímeat Dóminum omnis terra: \* ab eo autem commoveántur omnes inhabitántes orbem.
+
+Quóniam ipse dixit, et facta sunt: \* ipse mandávit, et creáta sunt.
+
+Dóminus díssipat consília Géntium: \* réprobat autem cogitatiónes populórum, et réprobat consília príncipum.
+
+Consílium autem Dómini in ætérnum manet: \* cogitatiónes cordis ejus in generatióne et generatiónem.
+
+Beáta gens, cujus est Dóminus, Deus ejus: \* pópulus, quem elégit in hereditátem sibi.
+
+De cælo respéxit Dóminus: \* vidit omnes fílios hóminum.
+
+De præparáto habitáculo suo \* respéxit super omnes, qui hábitant terram.
+
+Qui finxit sigillátim corda eórum: \* qui intélligit ómnia ópera eórum.
+
+Non salvátur rex per multam virtútem: \* et gigas non salvábitur in multitúdine virtútis suæ.
+
+Fallax equus ad salútem: \* in abundántia autem virtútis suæ non salvábitur.
+
+Ecce óculi Dómini super metuéntes eum: \* et in

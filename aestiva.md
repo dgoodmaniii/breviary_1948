@@ -18492,4 +18492,28 @@ FActa est quidem nonnúlla imágo rei futúræ étiam in Salomóne, in eo quod t
 
 ##### Lectio v
 
-NAM præter libros divínæ históriæ, ubi regnásse narrátur, Psalmus
+NAM præter libros divínæ históriæ, ubi regnásse narrátur, Psalmus étiam septuagésimus primus título nóminis ejus inscríptus est. In quo tam multa dicúntur, quæ omníno ei conveníre non possunt, Dómino autem Christo aptíssima perspicuitáte convéniunt: ut evidénter appáreat, quod in illo figúra qualiscúmque adumbráta sit, in isto autem ipsa véritas præsentáta.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúitu ejus, vísitet Dóminus; a Gélboe autem tránseat. — Ubi.
+
+##### Lectio vi
+
+NOtum est enim, quibus términis regnum conclúsum fúerit Salomónis, et tamen in eo Psalmo légitur, ut ália táceam: Dominábitur a mari usque ad mare, et a flúmine usque ad términos orbis terræ: quod in Christo vidémus impléri. A flúmine quippe dominándi sumpsit exórdium, ubi baptizátus a Joánne, eódem monstránte, cœpit agnósci a discípulis, qui eum non solum magístrum, verum étiam Dóminum appellavérunt.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 10, 1-11*
+
+SEd et regína Saba, audíta fama Salomónis in nómine Dómini, venit tentáre eum in ænigmátibus. Et ingréssa Jerúsalem multo cum comitátu et divítiis, camélis portántibus arómata et aurum infinítum nimis et gemmas pretiósas, venit ad regem Salomónem et locúta est ei univérsa quæ habébat in corde suo. Et dócuit eam Sálomon ómnia verba quæ proposúerat; non fuit sermo qui regem posset latére, et non respondéret ei.
+
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui pec-

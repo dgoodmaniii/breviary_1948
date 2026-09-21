@@ -26721,4 +26721,24 @@ MAGNARUM hic vigor est méntium, et valde fidélium lumen est animárum, incunct
 
 *Cap. 16, 14-20*
 
-IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus:
+IN illo témpore: Recumbéntibus úndecim discípulis, appáruit illis Jesus: et exprobrávit incredulitátem eórum et durítiam cordis, quia iis, qui víderant eum resurrexísse, non credidérunt. Et réliqua.
+
+De Homilía sancti Gregórii Papæ
+
+{RUBRIC: Eadem Homilia 29}
+
+QUI credíderit et baptizátus fúerit, salvus erit: qui vero non credíderit, condemnábitur. Fortásse unusquísque apud semetípsum dicat: Ego jam crédidi, salvus ero. Verum dicit, si fidem opéribus tenet. Vera étenim fides est, quæ in hoc, quod verbis dicit, móribus non contradícit. Hinc est enim quod de quibúsdam falsis fidélibus Paulus dicit: Qui confiténtur se nosse Deum, factis autem negant. Hinc Joánnes ait: Qui dicit se nosse Deum, et mandáta ejus non custódit, mendax est.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut.
+
+#### Lectio viii
+
+QUOD cum ita sit, fídei nostræ veritátem in vitæ nostræ consideratióne debémus agnóscere. Tunc enim veráciter fidéles sumus, si quod verbis promíttimus, opéribus complémus. In die quippe baptísmatis, ómnibus nos antíqui hostis opéribus atque ómnibus pompis abrenuntiáre promísimus. Itaque unusquísque vestrum ad consideratiónem suam mentis óculos redúcat; et si servat post baptísmum, quod ante baptísmum spopóndit, certus jam, quia fidélis est, gáudeat.
+
+℟. Ponis nubem ascénsum tuum, Dómine: \* Qui ámbulas super pennas ventórum, allelúja. ℣. Confessiónem et decórem indúisti, amíctus lumen sicut vestiméntum. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+SED ecce, si, quod promísit, mínime servávit, si ad exercénda prava ópera, ad concupiscéndas mundi pompas dilápsus est: videámus, si jam scit plángere, quod errávit. Apud misericórdem namque júdicem nec ille fallax habétur, qui ad veritátem revértitur, étiam postquam mentítur: quia omnípotens Deus, dum libénter nostram pœniténtiam súscipit, ipse suo judício hoc, quod errávimus, abscóndit.
+
+Te Deum.

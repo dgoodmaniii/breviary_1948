@@ -2770,3 +2770,110 @@ Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et qu�
 Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
 
 Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+###### Psalmus 90
+
+QUI hábitat in adjutório Altíssimi, \* in protectióne Dei cæli commorábitur.
+
+Dicet Dómino: Suscéptor meus es tu, et refúgium meum: \* Deus meus, sperábo in eum.
+
+Quóniam ipse liberávit me de láqueo venántium, \* et a verbo áspero.
+
+Scápulis suis obumbrábit tibi: \* et sub pennis ejus sperábis.
+
+Scuto circúmdabit te véritas ejus: \* non timébis a timóre noctúrno.
+
+A sagítta volánte in die, a negótio perambulánte in ténebris: \* ab incúrsu, et dæmónio meridiáno.
+
+Cadent a látere tuo mille, et decem míllia a dextris tuis: \* ad te autem non appropinquábit.
+
+Verúmtamen óculis tuis considerábis: \* et retributiónem peccatórum vidébis.
+
+Quóniam tu es, Dómine, spes mea: \* Altíssimum posuísti refúgium tuum.
+
+Non accédet ad te malum: \* et flagéllum non appropinquábit tabernáculo tuo.
+
+Quóniam Angelis suis mandávit de te: \* ut custódiant te in ómnibus viis tuis.
+
+In mánibus portábunt te: \* ne forte offéndas ad lápidem pedem tuum.
+
+Super áspidem, et basilíscum ambulábis: \* et conculcábis leónem et dracónem.
+
+Quóniam in me sperávit, liberábo eum: \* prótegam eum, quóniam cognóvit nomen meum.
+
+Clamábit ad me, et ego exáudiam eum: \* cum ipso sum in tribulatióne: erípiam eum et glorificábo eum.
+
+Longitúdine diérum replébo eum: \* et osténdam illi salutáre meum.
+
+###### Psalmus 133
+
+ECCE, nunc benedícite Dóminum, \* omnes servi Dómini:
+
+Qui statis in domo Dómini, \* in átriis domus Dei nostri.
+
+In nóctibus extóllite manus vestras in sancta, \* et benedícite Dóminum.
+
+Benedícat te Dóminus ex Sion, \* qui fecit cælum et terram.
+
+**Ant.** Miserére mihi, Dómine, et exáudi oratiónem meam.
+
+### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata;
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum. Amen.
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.
+
+**Ant.** Salva nos, Dómine, vigilántes, custódi nos dormiéntes; ut vigilémus cum Christo, et requiescámus in pace.
+
+### Preces (si dicendæ sint)
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secreto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen.
+
+℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula.

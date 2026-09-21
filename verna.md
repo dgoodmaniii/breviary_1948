@@ -25880,4 +25880,48 @@ DEUS, a quo bona cuncta procédunt, largíre supplícibus tuis: ut cogitémus, t
 
 **Capitulum** *Jac. 1, 25*
 
-QUI autem perspéxerit in legem perféctam libertátis, et permánserit in ea, non audítor obliviósus factus, sed factor
+QUI autem perspéxerit in legem perféctam libertátis, et permánserit in ea, non audítor obliviósus factus, sed factor óperis: hic beátus in facto suo erit.
+
+℟. br. Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit. ℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+#### Oratio
+
+DEUS, a quo bona cuncta procédunt, largíre supplícibus tuis: ut cogitémus, te inspiránte, quæ recta sunt; et, te gubernánte, eádem faciámus. Per Dóminum.
+
+## Ad Nonam
+
+**Capitulum** *Jac. 1, 27*
+
+RELIGIO munda et immaculáta apud Deum et Patrem, hæc est: Visitáre pupíllos et víduas in tribulatióne eórum, et immaculátum se custodíre ab hoc sæculo.
+
+℟. br. Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória Patri. Gavísi. ℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+## Ad Vesperas
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Dominica, ut in Psaltério 72; Capitulum, Hymnus et Versus, ut in Vésperis præcedéntis Sábbati. 587}
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Pétite, et accipiétis, \* ut gáudium vestrum sit plenum: ipse enim Pater amat vos, quia vos me amástis, et credidístis, allelúja.
+
+{RUBRIC: ¶ Sequens Feria II in Rogationibus est major non privilegiata.}
+
+---
+
+## Feria Secunda in Rogationibus
+
+{RUBRIC: Si hodie occurrat Festum novem Lectionum, fit de eo, cum ix Lectione de sequenti Homilia, et Commemoratione de Feria ad Laudes tantum, ut infra 596. De Festo autem trium Lectionum fit tantum Commemoratio.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 11, 5-13*
+
+IN illo témpore: Dixit Jesus discípulis suis: Quis vestrum habébit amícum, et ibit ad illum média nocte, et dicet illi: Amíce, cómmoda mihi tres panes. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 7 in Lucæ cap. 11}
+
+ALIUS præcépti locus est, ut ómnibus moméntis, non solum diébus, sed étiam nóctibus, orátio de-

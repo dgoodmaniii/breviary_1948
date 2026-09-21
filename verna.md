@@ -25220,4 +25220,69 @@ ET ego Joánnes, qui audívi et vidi hæc. Et, postquam audíssem et vi-díssem,
 
 EGO sum alpha et oméga, primus et novíssimus, princípium et finis. Beáti, qui lavant stolas suas in sánguine Agni: ut sit potéstas eórum in ligno vitæ, et per portas intrent in civitátem. Foris canes, et venéfici, et impudíci, et homicídæ, et idólis serviéntes, et omnis, qui amat et facit mendácium. Ego Jesus misi Angelum meum, testificári vobis hæc in ecclésiis. Ego sum radix et genus David, stella spléndida et matutína. Et spíritus, et sponsa dicunt: Veni. Et qui audit, dicat: Veni. Et qui sitit, véniat: et qui vult, accípiat aquam vitæ gratis. Contéstor enim omni audiénti verba prophetíæ libri hujus: Si quis apposúerit ad hæc, appónet Deus super illum plagas scriptas in libro isto: Et si quis diminúerit de verbis libri prophetíæ hujus, áuferet Deus partem ejus de libro vitæ, et de civitáte sancta, et de his, quæ scripta sunt in libro isto. Dicit qui testimónium pérhibet istórum: Etiam vénio cito: Amen. Veni, Dómine Jesu. Grátia Dómini nostri Jesu Christi cum ómnibus vobis. Amen.
 
-℟. Vidi Jerúsalem descendéntem de cælo, ornátam auro mundo, et lapídibus pretiósis intéxtam: \* Allelúja, allelúja. ℣. Et erat structúra muri ejus ex lápide jáspide; ipsa vero aurum mundum, símile vitro
+℟. Vidi Jerúsalem descendéntem de cælo, ornátam auro mundo, et lapídibus pretiósis intéxtam: \* Allelúja, allelúja. ℣. Et erat structúra muri ejus ex lápide jáspide; ipsa vero aurum mundum, símile vitro mundo. — Allelúja. Glória Patri. Allelúja.
+
+## Ad Vesperas
+
+{RUBRIC: Ant.} Allelúja {RUBRIC: cum Psalmis de Sábbato, ut in Psaltério. 332}
+
+**Capitulum** *Jac. 1, 17*
+
+CARISSIMI: Omne datum óptimum, et omne donum perféctum desúrsum est, descéndens a Patre lúminum, apud quem non est transmutátio, nec vicissitúdinis obumbrátio.
+
+#### Hymnus
+
+AD régias Agni dapes,
+Stolis amícti cándidis,
+Post tránsitum Maris Rubri,
+Christo canámus Príncipi:
+
+Divína cujus cáritas
+Sacrum propínat sánguinem,
+Almíque membra córporis
+Amor sacérdos ímmolat.
+
+Sparsum cruórem póstibus
+Vastátor horret Angelus:
+Fugítque divísum mare;
+Mergúntur hostes flúctibus.
+
+Jam Pascha nostrum Christus est,
+Paschális idem víctima,
+Et pura puris méntibus
+Sinceritátis ázyma.
+
+O vera cæli víctima,
+Subjécta cui sunt tártara,
+Solúta mortis víncula,
+Recépta vitæ prǽmia.
+
+Víctor, subáctis ínferis,
+Trophǽa Christus éxplicat;
+Cælóque apérto, súbditum
+Regem tenebrárum trahit.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Mane nobíscum, Dómine, allelúja. ℟. Quóniam advesperáscit, allelúja.
+
+**Ad Magnif. Ant.** Vado ad eum \* qui misit me: et nemo ex vobis intérrogat me: Quo vadis? allelúja, allelúja.
+
+{RUBRIC: Ad Vesperas Dominicæ}
+
+**Ad Magnif. Ant.** Vado ad eum \* qui misit me: sed quia hæc locútus sum vobis, tristítia implévit cor vestrum, allelúja.
+
+#### Oratio
+
+DEUS, qui fidélium mentes uníus éfficis voluntátis: da pópulis tuis id amáre quod prǽcipis, id desideráre quod promíttis; ut inter mundánas varietátes ibi nostra fixa sint corda, ubi vera sunt gáudia. Per Dóminum.
+
+---

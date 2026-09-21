@@ -43630,4 +43630,20 @@ Homilía sancti Hilárii Epíscopi
 
 {RUBRIC: Comment. in Matth. can. 26 in fine}
 
-UT ignorántiam illam diéi ómnibus táciti non sine útilis siléntii ratióne esse scirémus, vigiláre nos Dóminus propter advéntum furis admónuit, et, oratiónum assiduitáte deténtos, ómnibus præceptórum suórum opéribus inhærére. Furem enim esse osténdit zábulum, ad detrahénda ex nobis spólia pervígilem et córporum nostrórum dómibus insidiántem; ut ea, incuriósis nobis et somno déditis, consiliórum suórum atque illecebrárum jáculis perfódiat. Parátos
+UT ignorántiam illam diéi ómnibus táciti non sine útilis siléntii ratióne esse scirémus, vigiláre nos Dóminus propter advéntum furis admónuit, et, oratiónum assiduitáte deténtos, ómnibus præceptórum suórum opéribus inhærére. Furem enim esse osténdit zábulum, ad detrahénda ex nobis spólia pervígilem et córporum nostrórum dómibus insidiántem; ut ea, incuriósis nobis et somno déditis, consiliórum suórum atque illecebrárum jáculis perfódiat. Parátos ígitur esse nos cónvenit, quia diéi ignorátio inténtam sollicitúdinem suspénsæ exspectatiónis exágitet.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio viii *Can. 27*
+
+QUISNAM est fidélis servus et prudens, quem constítuit Dóminus super famíliam suam? Quamquam in commúne nos ad indeféssam vigilántiæ curam adhortétur, speciálem tamen pópuli princípibus, id est, epíscopis, in exspectatióne adventúque suo sollicitúdinem mandat. Hunc enim servum fidélem atque prudéntem, præpósitum famíliæ signíficat, cómmoda atque utilitátes commíssi sibi pópuli curántem. Qui, si dicto áudiens et præcéptis obédiens erit, id est, si doctrínæ opportunitáte et veritáte infírma confírmet, disrúpta consólidet, depraváta convértat et verbum vitæ in æternitátis cibum aléndæ famíliæ dispéndat, atque hæc agens hisque ímmorans deprehendátur; glóriam a Dómino tamquam dispensátor fidélis et víllicus útilis consequétur, et super ómnia bona constituétur, id est, in Dei glória collocábitur, quia nihil sit ultra, quod mélius sit.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. (T. P. Allelúja.) ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+QUOD si contuens longam Dei patiéntiam, quæ in proféctum humánæ salútis exténditur, advérsum consérvos insoléscet, et sǽculi malis vitiísque se tradet, præséntium tantum curam in cultu ventris exércens; desperáta die Dóminus advéniet, eúmque a bonis quæ spopónderat dívidet, portionémque ejus cum hypócritis in pœnæ æternitáte constítuet: quia advéntum desperáverit, quia mandátis non obtemperáverit, quia præséntibus studúerit, quia vita géntium víxerit, quia desperatióne judícii commíssam sibi famíliam fame, siti, cæde vexáverit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---

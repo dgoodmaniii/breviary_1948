@@ -50383,3 +50383,65 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison, {RUBRIC: et alia, ut supr
 ## In die Paschæ
 
 {RUBRIC: et deinceps usque ad Cœnam sequentis Sabbati exclusive,}
+
+{RUBRIC: ad benedicendam mensam dicitur:}
+
+℣. Hæc dies, quam fecit Dóminus, allelúja. ℟. Exsultémus, et lætémur in ea, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: In fine repetitur:} Hæc dies {RUBRIC: cum} Glória Patri.
+
+{RUBRIC: Ps. 117 Confitémini Dómino quóniam bonus. 58}
+
+## In Ascensione Domini
+
+{RUBRIC: usque ad Vigiliam Pentecostes exclusive}
+
+℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: In fine dicitur:}
+
+℣. Ascéndens Christus in altum, allelúja. ℟. Captívam duxit captivitátem, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: Ps. 46 Omnes gentes, pláudite mánibus 101, vel Ps. 116 Laudáte Dóminum. [271]}
+
+## In Pentecoste
+
+{RUBRIC: A Vigilia ejusdem inclusive, usque ad Cœnam sequentis Sabbati exclusive:}
+
+℣. Spíritus Dómini replévit orbem terrárum, allelúja. ℟. Et hoc quod cóntinet ómnia, sciéntiam habet vocis, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: In fine dicitur:}
+
+℣. Repléti sunt omnes Spíritu Sancto, allelúja. ℟. Et cœpérunt loqui, allelúja.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: Ps. 47 Magnus Dóminus 170 vel Ps. 116 Laudáte. [271]}
+
+---
+
+# Itinerarium
+
+{RUBRIC: Clericus in ipso itineris ingressu, si solus fuerit, dicat quæ sequuntur in singulari; si cum sociis, in plurali.}
+
+**Ant.** In viam pacis.
+
+{RUBRIC: Canticum Zachariæ} Benedíctus Dóminus, Deus Israël. [249]
+
+**Ant.** In viam pacis et prosperitátis dírigat nos omnípotens et miséricors Dóminus, et Angelus Ráphaël comitétur nobíscum in via; ut cum pace, salúte et gáudio revertámur ad própria.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Salvos fac servos tuos. ℟. Deus meus, sperántes in te.
+
+℣. Mitte nobis, Dómine, auxílium de sancto. ℟. Et de Sion tuére nos.

@@ -41280,3 +41280,29 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 **Ant.** In univérsa terra glória et honóre coronásti eum.
 
 ℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Ecce quómodo computáti sunt inter fílios Dei, et inter Sanctos sors illórum est, allelúja.
+
+℣. Lux perpétua lucébit Sanctis tuis, Dómine, allelúja. ℟. Et ætérnitas témporum, allelúja.
+
+**Absolutio** Ipsíus píetas.
+
+**Benedictio** Deus Pater.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 44 de Sanctis}
+
+###### Lectio iv
+
+TRIUMPHALIS beáti Mártyris N. dies hódie nobis anniversária celebritáte recúrrit; cujus glorificatióni sicut congáudet Ecclésia, sic ejus propónit sequénda vestígia. Si enim compátimur, et conglorificábimur. In cujus gloriósa agóne duo nobis præcípue consideránda sunt: induráta vidélicet tortóris sævítia, et Mártyris invícta patiéntia. Sævítia tortóris, ut eam detestémur; patiéntia Mártyris, ut eam imitémur. Audi Psalmístam advérsus malítiam increpántem: Noli æmulári in malignántibus, quóniam tamquam fœnum velóciter aréscent. Quod autem advérsus malignántes patiéntia exhibénda sit, audi Apóstolum suadéntem: Patiéntia vobis necessária est, ut reportétis promissiónes.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+**Bened.** Christus perpétuæ.
+
+###### Lectio v
+
+CORONATA ítaque est beáti Mártyris patiéntia: mancipáta est ætérnis cruciátibus tortóris incorrécta malítia. Hoc atténdens in agóne suo gloriósus Christi Athléta, non exhórruit cárcerem. Ad imitatiónem cápitis sui tolerávit probra, sustínuit irrisiónes, flagélla non tímuit, et quot ante mortem pro Christo pértulit supplícia, tot ei de se óbtulit sacrifícia. Quod enim propinánte Apóstolo bíberat, alte retinébat: Quia non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis; et Quia momentáneum hoc et leve nostræ tribulatiónis, ætérnum glóriæ pondus operátur in cælis. Hujus promissiónis amóre a terrénis suspénsus, et prægustáta supérnæ suavitátis dulcédine ineffabíliter afféctus,

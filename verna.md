@@ -42763,3 +42763,64 @@ Qui victor in cælum redis,
 Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
+
+##### Pro pluribus Martyribus
+
+###### Hymnus
+
+REX glorióse Mártyrum,
+Coróna confiténtium,
+Qui respuéntes térrea
+Perdúcis ad cæléstia:
+
+Aurem benígnam prótinus
+Inténde nostris vócibus:
+Trophǽa sacra pángimus:
+Ignósce quod delíquimus.
+
+Tu vincis inter Mártyres
+Parcísque Confessóribus:
+Tu vince nostra crímina,
+Largítor indulgéntiæ.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Pretiósa in conspéctu Dómini, allelúja. ℟. Mors Sanctórum ejus, allelúja.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+##### Pro uno Martyre Pont.
+
+**1 — Oratio**
+
+INFIRMITATEM nostram réspice, omnípotens Deus: et, quia pondus própriæ actiónis gravat, beáti N. Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+**2 — Item alia Oratio**
+
+DEUS, qui nos beáti N. Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+##### Pro uno Mart. non Pont.
+
+**3 — Oratio**
+
+PRǼSTA, quǽsumus, omnípotens Deus: ut, qui beáti N. Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+**4 — Item alia Oratio**
+
+PRǼSTA, quǽsumus, omnípotens Deus: ut, intercedénte beáto N. Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+##### Pro pluribus Martyribus Pontificibus
+
+**5 — Oratio**
+
+BEATORUM Mártyrum páritérque Pontíficum N. et N. nos, quǽsumus, Dómine, festa tueántur: et eórum comméndet orátio veneránda. Per Dóminum.
+
+##### Pro pluribus Martyribus, qui non fuerint Pontifices
+
+**6 — Oratio**
+
+DEUS, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.

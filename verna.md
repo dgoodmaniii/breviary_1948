@@ -34247,4 +34247,28 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-PETRUS Canísius, Noviómagi in Gélria natus, statim ac Societáti Jesu nomen déderat, cathólicam fidem contra novatórum insídias, legatiónibus, sermónibus, scriptis libris defendéndam suscépit. Divínæ glóriæ amplificándæ únice inténtus, dici vix potest, quot per annos ámplius quadragínta labóres ærumnásque pertúlerit. Semel atque íterum Concílio Tridentíno intérfuit, Germániæ regiónes bene multas peragrávit, omne hóminum genus salubérrimis institútis públice et privátim excóluit, complurésque urbes atque províncias vel ab hæréseos contagióne deféndit vel hæresi infectas cathólicæ fídei restítuit. A sancto Ignátio Germániæ Superióris provínciæ præféctus, domos et collégia multis locis cóndidit. Contra Centuriatóres Magdeburgénses duo egrégia volúmina conscrípsit, et summam doctrínæ christiánæ, theologórum judício et longo populórum usu probatíssimam aliáque complúra in vulgus édidit; dignus proínde qui hæreticórum málleus et alter Germániæ apóstolus
+PETRUS Canísius, Noviómagi in Gélria natus, statim ac Societáti Jesu nomen déderat, cathólicam fidem contra novatórum insídias, legatiónibus, sermónibus, scriptis libris defendéndam suscépit. Divínæ glóriæ amplificándæ únice inténtus, dici vix potest, quot per annos ámplius quadragínta labóres ærumnásque pertúlerit. Semel atque íterum Concílio Tridentíno intérfuit, Germániæ regiónes bene multas peragrávit, omne hóminum genus salubérrimis institútis públice et privátim excóluit, complurésque urbes atque províncias vel ab hæréseos contagióne deféndit vel hæresi infectas cathólicæ fídei restítuit. A sancto Ignátio Germániæ Superióris provínciæ præféctus, domos et collégia multis locis cóndidit. Contra Centuriatóres Magdeburgénses duo egrégia volúmina conscrípsit, et summam doctrínæ christiánæ, theologórum judício et longo populórum usu probatíssimam aliáque complúra in vulgus édidit; dignus proínde qui hæreticórum málleus et alter Germániæ apóstolus vocarétur. Dénique Fribúrgi Helvetiórum, séptimum supra septuagésimum annum agens, die vicésima prima decémbris anno millésimo quingentésimo nonagésimo séptimo quiévit in Dómino. Eum Pius Papa undécimus Sanctórum fastis adjúnxit et simul Universális Ecclésiæ Doctórem declarávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+Homilía sancti Petri Canísii Presbýteri
+
+{RUBRIC: Notæ in Evangelia, in festo S. Martini Ep., post initium}
+
+MABO et colam missos a Christo Apóstolos horúmque successóres in Evangélii sémine spargéndo sédulos et indeféssos propagándi verbi cooperatóres, qui jure testári possunt: Sic nos exístimet homo ut minístros Christi et dispensatóres mysteriórum Dei. Vóluit enim Christus ut vigilantíssimus ac fidelíssimus paterfamílias per tales minístros ac legátos lucérnam evangélicam igne cǽlitus demísso accéndi, et accénsam non módio suppóni, sed super candelábrum constítui, quæ suum splendórem longe latéque diffúnderet omnésque tum Judæórum tum Géntium vigéntes ténebras et erróres profligáret.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+###### Lectio viii
+
+ETENIM evangélico Doctóri sat non est, verbo lucére pópulo, et vocem in desérto clamántem præstáre, multísque in pietáte juvándis lingua óperam dare, ne alióquin, si verbi ministérium prætermíttat, canis mutus non valens latráre a prophéta dicátur. Sed et ardére illum opórtet, ut, ópere atque caritáte instrúctus, munus suum ornet evangélicum, Paulúmque ducem sequátur. Is quippe non conténtus Ephesiórum epíscopo

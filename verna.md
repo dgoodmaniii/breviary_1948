@@ -29217,3 +29217,29 @@ Córpora hic pœnis crúciant acérbis,
 Sóntium labes hóminum piántes;
 Hic prece avértunt lacrimísque fusis
     Núminis iram.
+
+Pérdolens Mater fovet, atque amíctum
+Ipsa lugúbrem monet induéndum:
+Agminis sancti pia cœpta surgunt,
+    Mira patéscunt.
+
+Palmes in bruma víridans honóres
+Núntiat patrum: próprios Maríæ
+Ore lacténti vócitant puélli
+    Nómine Servos.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus
+Spíritus semper, Deus unus, omni
+    Témporis ævo.
+Amen.
+
+{RUBRIC: In I Nocturno Lectiones Laudémus viros, ut in Communi Conf. Pont. 2 loco, cum Responsoriis de Communi Conf. non Pont. ibi notatis. [100]}
+
+##### In II Nocturno
+
+###### Lectio iv
+
+SÆCULO tértio décimo cum Frideríci secúndi diro schísmate cruentísque factiónibus cultióres Itáliæ pópuli scinderéntur, próvidens Dei misericórdia, præter álios sanctitáte illústres, septem e Florentína nobilitáte viros suscitávit, qui in caritáte conjúncti, præclárum fratérnæ dilectiónis præbérent exémplum. Hi, nimírum Bonfílius Monáldius, Bonajúncta Manéttus, Manéttus Antellénsis, Amidéus de Amidéis, Ugúccio Uguccjónum, Sostenéus de Sosteneis et Aléxius Falconérius, cum, anno trigésimo tértio ejus sǽculi, die sacra Vírgini cælo recéptæ, in quodam piórum hóminum convéntu, Laudántium nuncupáto, fervéntius orárent; ab eádem Deípara síngulis apparénte sunt admóniti, ut sánctius perfectiúsque vitæ genus amplecteréntur. Re ítaque prius cum Florentíno præsule collata, hi septem viri, géneris nobilitáte divitiísque posthábitis, sub vilíssimis detritísque véstibus cilício indúti, octáva die Septémbris in rurálem quamdam ædículam secessére, ut ea die primórdia vitæ sanctióris auspicaréntur, qua ipsa Dei Génitrix mortálibus orta sanctíssimam vitam incéperat.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit illi.

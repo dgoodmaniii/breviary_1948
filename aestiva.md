@@ -19281,3 +19281,29 @@ ET præcépit rex Helcíæ pontífici et sacerdótibus secúndi órdinis et jani
 ET efférri fecit lucum de domo Dómini foras Jerúsalem in conválle Cedron, et combússit eum ibi et redégit in púlverem et projécit super sepúlcra vulgi. Destrúxit quoque ædículas effeminatórum, quæ erant in domo Dómini, pro quibus mulíeres texébant quasi domúnculas luci. Congregavítque omnes sacerdótes de civitátibus Juda et contamínávit excélsa, ubi sacrificábant sacerdótes, de Gábaa usque Bersabée.
 
 ℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro quarto Regum}
+
+##### Lectio i
+
+*Cap. 23, 24-34*
+
+PYthónes et aríolos et figúras idolórum et immundítias et abominatiónes, quæ fúerant in terra Juda et Jerúsalem, ábstulit Josías, ut statúeret verba legis, quæ scripta sunt in libro, quem invénit Helcías sacérdos in templo Dómini. Símilis illi non fuit ante eum rex, qui reverterétur ad Dóminum in omni corde suo et tota ánima sua et in univérsa virtúte sua juxta omnem legem Móysi, neque post eum surréxit símilis illi. Verúmtamen non est avérsus Dóminus ab ira furóris sui magni, quo irátus est furor ejus contra Judam propter irritatiónes, quibus provocáverat eum Manásses.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+DIxit ítaque Dóminus: Etiam Judam áuferam a fácie mea, sicut ábstuli Israël, et projíciam civitátem hanc, quam elégi, Jerúsalem et domum de qua dixi: Erit nomen meum ibi. Réliqua autem sermónum Josíæ et univérsa, quæ fecit, nonne hæc scripta sunt in libro verbórum diérum regum Juda? In diébus ejus ascéndit Phárao Néchao rex Ægýpti contra regem Assyriórum ad flumen Euphráten, et ábiit Josías rex in occúrsum ejus et occísus est in Magéddo, cum vidísset eum. Et portavérunt eum servi sui mórtuum de Magéddo et pertulérunt in Jerúsalem et sepeliérunt eum in sepúlcro suo.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+TUlítque pópulus terræ Jóachaz fílium Josíæ, et unxérunt eum et con-

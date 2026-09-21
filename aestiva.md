@@ -9385,4 +9385,66 @@ SAna me, Dómine, et sanábor: salvum me fac, et salvus ero: quóniam laus mea t
 
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
-Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe,
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Réliqua ut in Ordinário. 19}
+
+---
+
+## Ad Sextam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+RECTOR potens, verax Deus,
+Qui témperas rerum vices,
+Splendóre mane illúminas,
+Et ígnibus merídiem:
+
+Exstíngue flammas lítium,
+Aufer calórem nóxium,
+Confer salútem córporum,
+Verámque pacem córdium.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Memor esto.
+
+### Psalmus 73, i
+
+UT quid, Deus, repulísti in finem: \* irátus est furor tuus super oves páscuæ tuæ?
+
+Memor esto congregatiónis tuæ, \* quam possedísti ab inítio.
+
+Redemísti virgam hereditátis tuæ: \* mons Sion, in quo habitásti in eo.
+
+Leva manus tuas in supérbias eórum in finem: \* quanta malignátus est inimícus in sancto!
+
+Et gloriáti sunt qui odérunt te: \* in médio solemnitátis tuæ.
+
+Posuérunt signa sua, signa: \* et non cognovérunt sicut in éxitu super summum.
+
+Quasi in silva lignórum secúribus excidérunt jánuas ejus in idípsum: \* in secúri et áscia dejecérunt eam.
+
+Incendérunt igni Sanctuárium tuum: \* in terra polluérunt tabernáculum nóminis tui.
+
+Dixérunt in corde suo cognátio eórum simul: \* Quiéscere faciámus omnes dies festos Dei a terra.
+
+Signa nostra non vídimus, jam non est prophéta: \* et nos non cognóscet ámplius.
+
+### Psalmus 73, ii
+
+USquequo, Deus, improperábit inimícus: \* irrítat adversárius nomen tuum in finem?
+
+Ut quid avértis manum tuam, et déxteram tuam, \* de médio sinu tuo in finem?
+
+Deus autem Rex noster ante sæcula: \* operátus est salútem in médio terræ.
+
+Tu confirmásti in virtúte tua mare: \* contribulásti cápita dracónum in aquis.

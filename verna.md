@@ -36333,4 +36333,26 @@ A PAULO quarto, cui ob exímias virtútes caríssimus erat, ad Nepesínum et Sut
 
 ###### Lectio vi
 
-SELIMUM Turcárum tyránnum multis elátum victóriis, ingénti comparáta classe, ad Echínadas ínsulas non tam armis quam fusis ad Deum précibus devícit. Quam victóriam ea ipsa hora, qua obténta fuit, Deo revelánte, cognóvit suísque familiáribus indicávit. Dum vero novam in ipsos Turcas expeditiónem molirétur, in gravem morbum íncidit; et, acerbíssimis dolóribus patientíssime tolerátis, ad extréma devéniens, cum sacraménta de more suscepísset, ánimam Deo placidíssime réddidit, anno millésimo quingentésimo septuagésimo secúndo, ætátis suæ sexagésimo octávo, cum sedísset annos sex, menses tres, dies vigínti quátuor. Corpus ejus in basílica sanctæ Maríæ ad Præsépe summa fidélium veneratióne cólitur, multis a Deo ejus
+SELIMUM Turcárum tyránnum multis elátum victóriis, ingénti comparáta classe, ad Echínadas ínsulas non tam armis quam fusis ad Deum précibus devícit. Quam victóriam ea ipsa hora, qua obténta fuit, Deo revelánte, cognóvit suísque familiáribus indicávit. Dum vero novam in ipsos Turcas expeditiónem molirétur, in gravem morbum íncidit; et, acerbíssimis dolóribus patientíssime tolerátis, ad extréma devéniens, cum sacraménta de more suscepísset, ánimam Deo placidíssime réddidit, anno millésimo quingentésimo septuagésimo secúndo, ætátis suæ sexagésimo octávo, cum sedísset annos sex, menses tres, dies vigínti quátuor. Corpus ejus in basílica sanctæ Maríæ ad Præsépe summa fidélium veneratióne cólitur, multis a Deo ejus intercessióne patrátis miráculis. Quibus rite probátis, a Cleménte undécimo, Pontífice máximo, Sanctórum número adscríptus est.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+PIUS, Boschi in Insúbria natus, cum quatuórdecim esset annórum, órdinem Prædicatórum ingréssus est. Sacerdótio auctus, sacras conciónes plúribus in locis cum ingénti animárum fructu hábuit. Inquisitóris offícium diu fórtiter ac laudabíliter sustínuit, et a Paulo quarto ad Nepesínum et Sutrínum episcopátum promótus, post biénnium inter patres cardináles adscríptus est. A Pio quarto translátus ad ecclésiam Montis Regális in Subalpínis, diœcésim vísitans, abúsus représsit; et Romam revérsus, in gravíssimis negótiis expediéndis fuit occupátus. Mórtuo autem Pio, præter ómnium exspectatiónem eléctus Póntifex, nihil in vitæ ratióne, excépto exterióri hábitu, immutávit. Selímum Turcárum tyránnum, ingénti comparáta classe, ad Echínadas ínsulas non tam armis quam précibus devícit. Dum vero novam in ipsos Turcas expeditiónem paráret, piíssime óbiit in Dómino, anno millésimo quingentésimo septuagésimo secúndo, ætátis suæ sexagésimo octávo. Corpus ejus in basílica sanctæ Maríæ majóris summa fidélium veneratióne cólitur. Eum Cleméns Papa undécimus catálogo Sanctórum adscrípsit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Noct. Homilía in Ev. Venit Jesus, de Comm. unius vel plúrium Summórum Pontíficum. [33¹]}
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.

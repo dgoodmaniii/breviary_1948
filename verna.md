@@ -30354,3 +30354,25 @@ ROMAM rédiens, Pelágio pestiléntia subláto, summo ómnium consénsu Póntife
 ECCLESIAM ornávit sanctíssimis institútis et légibus. Apud sanctum Petrum coácta sýnodo, multa constítuit: in iis, Ut in Missa Kýrie eléison nóvies repeterétur: ut extra id tempus, quod continétur Septuagésima et Pascha, Allelúja dicerétur: ut adderétur in Cánone, Diésque nostros in tua pace dispónas. Litánías, Statiónes, et ecclesiásticum offícium auxit. Quátuor concíliis, Nicǽno, Constantinopolitáno, Ephesíno, Chalcedonénsi, tamquam quátuor Evangéliis honórem habéri vóluit. Epíscopis Sicíliæ, qui ex antíqua ecclesiárum consuetúdine Romam síngulis triénniis conveniébant, quinto quoque anno semel veníre indúlsit. Multos libros confécit; quos cum dictáret, testátus est Petrus diáconus, se Spíritum Sanctum colúmnæ spécie in ejus cápite sæpe vidísse. Admirabília sunt quæ dixit, fecit, scripsit, decrévit, præsértim infírma semper et ægra valetúdine. Qui dénique multis éditis miráculis, pontificátus anno décimo tértio, mense sexto, die décimo, quarto Idus Mártii, qui dies festus a Grǽcis étiam propter insígnem hujus Pontíficis sapiéntiam ac sanctitátem præcípuo honóre celebrátur, ad cæléstem beatitúdinem evocátus est. Cujus corpus sepúltum est in basílica sancti Petri, prope Secretárium.
 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+Homilía sancti Leónis Papæ
+
+{RUBRIC: Sermo 2 in anniversario assumpt. suæ, ante medium}
+
+CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens: Tu es Christus Fílius Dei vivi; Dóminus ait: Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui in cælis est: et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam. Et tibi dabo claves regni cælórum: et quodcúmque ligáveris super terram, erit ligátum et in cælis: et quodcúmque sólveris super terram, erit solútum et in cælis. Manet ergo disposítio veritátis, et beátus Petrus, in accépta fortitúdine petræ persevérans, suscépta Ecclésiæ gubernácula non relíquit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio viii
+
+IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis lingua, quæ confitétur Dóminum, magistério hujus vocis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc érutos mundo, ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte muníta est, ut eam neque hærética umquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, rationábili obséquio celebrétur hodiérna festívitas: ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendatárum sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.

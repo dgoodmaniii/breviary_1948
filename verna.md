@@ -39204,4 +39204,18 @@ Homilía sancti Joánnis Chrysóstomi
 
 {RUBRIC: Hom. 34 in Matth. post init.}
 
-CUM Dóminus omnem sollicitúdinem a discipulórum córdibus ejécerit, et ostensióne signórum armáverit, atque, ab ómnibus negótiis sæculáribus alienátos et ab omni temporálium rerum cura liberátos, férreos quodámmodo atque adamántinos fécerit, tum dénique eventúra illis advérsa prædícit. Multa enim ex hac prædictióne futurárum rerum
+CUM Dóminus omnem sollicitúdinem a discipulórum córdibus ejécerit, et ostensióne signórum armáverit, atque, ab ómnibus negótiis sæculáribus alienátos et ab omni temporálium rerum cura liberátos, férreos quodámmodo atque adamántinos fécerit, tum dénique eventúra illis advérsa prædícit. Multa enim ex hac prædictióne futurárum rerum cómmoda consequebántur. Primum, ut ejus præsciéntiæ vim edíscerent. Deínde, ut nemo suspicarétur, ex Magístri infirmitáte tam grávia mala descéndere. Prætérea, ne, qui ea passúri erant, súbito ac inopináto rerum evéntu perturbaréntur. Dénique, ne, cum ista sub ipsum passiónis suæ tempus audírent, nímium commoveréntur.
+
+℟. Ego sum vitis vera, et vos pálmites: \* Qui manet in me, et ego in eo, hic fert fructum multum, allelúja, allelúja. ℣. Sicut diléxit me Pater, et ego diléxi vos. — Qui.
+
+###### Lectio viii
+
+JAM vero, ut intélligant novum hoc esse belli genus et insólitum præliándi morem, cum illos nudos mítteret, una indútos túnica, sine cálceis, absque virga et absque zona et pera, et ab excipiéntibus ali jubéret; non fecit hic dicéndi finem, sed inexplicábilem virtútem suam próferens, Etiam sic eúntes, inquit, mansuetúdinem tamen óvium osténdite, quamvis ad lupos itúri, nec simplíciter ad lupos, sed étiam in médio lupórum: (neque vero óvium tantum mansuetúdinem habére jubet, sed étiam colúmbæ simplicitátem); sic enim virtútem meam máxime osténdam, cum ab óvibus lupi superabúntur; et quamvis illæ sint in médio lupórum, et innúmeris mórsibus laceréntur, non modo non consúmptæ fúerint, verum étiam illos in sui natúram transmutáverint.
+
+℟. Cándidi facti sunt Nazaræi ejus, allelúja: splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+###### Lectio ix
+
+MAJUS certe atque admirabílius est mentem adversariórum commutáre, et ánimum in divérsum transférre, quam illos occídere; præsértim cum duódecim tantum essent, et lupis plenus esset orbis univérsus. Erubescámus ígitur, qui, longe divérsa faciéntes, tamquam lupi in adversários rúimus. Nam quámdiu oves fuérimus, víncimus; étiam si mille circúmstent lupi, superámus, et victóres sumus. Quod si lupi fuérimus, víncimur; tunc enim a nobis pastóris auxílium recédit, qui non lupos, sed oves pascit.
+
+{RUBRIC: Te Deum laudámus.}

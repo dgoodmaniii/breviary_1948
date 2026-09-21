@@ -49205,3 +49205,61 @@ In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
 Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
 
 Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent: \* ad dirigéndos pedes nostros in viam pacis.
+
+Réquiem ætérnam.
+
+**Ant.** Ego sum resurréctio et vita: qui credit in me, étiam si mórtuus fúerit, vivet; et omnis qui vivit et credit in me, non moriétur in ætérnum.
+
+{RUBRIC: Deinde flexis genibus:}
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+---
+
+###### Psalmus 129
+
+{RUBRIC: Qui non dicitur in die obitus seu depositionis defuncti, nec quandocumque Officium recitatur sub ritu duplici.}
+
+DE profúndis clamávi ad te, Dómine: \* Dómine, exáudi vocem meam:
+
+Fiant aures tuæ inténdéntes, \* in vocem deprecatiónis meæ.
+
+Si iniquitátes observáveris, Dómine: \* Dómine, quis sustinébit?
+
+Quia apud te propitiátio est: \* et propter legem tuam sustínui te, Dómine.
+
+Sustínuit ánima mea in verbo ejus: \* sperávit ánima mea in Dómino.
+
+A custódia matutína usque ad noctem: \* speret Israël in Dómino.
+
+Quia apud Dóminum misericórdia: \* et copiósa apud eum redémptio.
+
+Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
+
+Réquiem ætérnam.
+
+---
+
+{RUBRIC: Deinde:} ℣. A porta ínferi. ℟. Erue, Dómine, ánimam ejus {RUBRIC: (ánimas eórum)}.
+
+℣. Requiésca(n)t in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+
+{RUBRIC: Dicitur Oratio conveniens ut supra in Vesperis. [230]}
+
+{RUBRIC: Post Orationem dicitur (semper plurali numero):}
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+---

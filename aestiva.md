@@ -19378,4 +19378,18 @@ TRánstulit quoque Jóachin in Babylónem et matrem regis et uxóres regis et eu
 
 *Cap. 24, 18-20; 25, 1-13*
 
-VIgésimum et primum annum ætátis habébat Sedecías, cum regnáre cœpísset, et úndecim annis regnávit in Jerúsalem. Nomen matris ejus erat Amítal fília Jeremíæ de Lobna. Et fecit malum coram Dómino, juxta ómnia quæ fécerat Jóakim; irascebátur enim Dóminus contra Jerúsalem et contra Judam, donec projíceret eos a fácie sua; recessítque Sedecías a rege Babylónis. Factum est autem anno nono regni ejus, mense décimo, décima die mensis, venit Nabuchodónosor rex Babylónis ipse et omnis exércitus ejus in Jerúsalem, et circumdedérunt eam et exstruxérunt in circúitu ejus
+VIgésimum et primum annum ætátis habébat Sedecías, cum regnáre cœpísset, et úndecim annis regnávit in Jerúsalem. Nomen matris ejus erat Amítal fília Jeremíæ de Lobna. Et fecit malum coram Dómino, juxta ómnia quæ fécerat Jóakim; irascebátur enim Dóminus contra Jerúsalem et contra Judam, donec projíceret eos a fácie sua; recessítque Sedecías a rege Babylónis. Factum est autem anno nono regni ejus, mense décimo, décima die mensis, venit Nabuchodónosor rex Babylónis ipse et omnis exércitus ejus in Jerúsalem, et circumdedérunt eam et exstruxérunt in circúitu ejus munitiónes, et clausa est cívitas atque valláta usque ad undécimum annum regis Sedecíæ nona die mensis; prævaluítque fames in civitáte, nec erat panis pópulo terræ.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio ii
+
+ET interrúpta est cívitas, et omnes viri bellatóres nocte fugérunt per viam portæ, quæ est inter dúplicem murum ad hortum regis. Porro Chaldǽi obsidébant in circúitu civitátem. Fugit ítaque Sedecías per viam, quæ ducit ad campéstria solitúdinis. Et persecútus est exércitus Chaldæórum regem, comprehendítque eum in planítie Jéricho; et omnes bellatóres, qui erant cum eo, dispérsi sunt et reliquérunt eum. Apprehénsum ergo regem duxérunt ad regem Babylónis in Réblatha, qui locútus est cum eo judícium. Fílios autem Sedecíæ occídit coram eo et óculos ejus effódit vinxítque eum caténis, et addúxit in Babylónem.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+MEnse quinto séptima die mensis, ipse est annus nonus décimus regis Babylónis, venit Nabuzárdan princeps exércitus servus regis Babylónis in Jerúsalem. Et succéndit domum Dómini et domum regis et domos Jerúsalem, omnémque domum combússit igni. Et muros Jerúsalem in circúitu destrúxit omnis exércitus Chaldæórum, qui erat cum príncipe mílitum. Réliquam autem pópuli partem, quæ remánserat in civitáte, et pérfugas, qui transfúgerant ad regem Babylónis, et réliquum vulgus tránstulit Nabuzárdan princeps milítiæ et de paupéribus terræ relíquit vinitóres et agrícolas. Colúmnas au-

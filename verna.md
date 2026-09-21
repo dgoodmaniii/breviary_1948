@@ -40673,4 +40673,34 @@ SI duódecim sellæ ibi sunt, non est ubi sédeat tértius décimus Paulus Após
 
 ###### Lectio vi
 
-ET ídeo, quia úndique venítur ad judicándum, duódecim sedes sunt; sicut, quia úndique intrátur in illam civitátem, duódecim portæ sunt. Non solum ergo illi duódecim et Apóstolus Paulus, sed quotquot judicatúri sunt, propter significatiónem universitátis ad sedes duódecim pértinent; quemádmodum quotquot intrábunt, ad duódecim portas pértinent. Partes enim mundi quátuor sunt, Oriens, Occídens, Aquilo et Merídies. Istæ quátuor partes assídue nominántur in Scriptúris. Ab istis quátuor ventis, sicut dicit Dóminus in Evangélio, a
+ET ídeo, quia úndique venítur ad judicándum, duódecim sedes sunt; sicut, quia úndique intrátur in illam civitátem, duódecim portæ sunt. Non solum ergo illi duódecim et Apóstolus Paulus, sed quotquot judicatúri sunt, propter significatiónem universitátis ad sedes duódecim pértinent; quemádmodum quotquot intrábunt, ad duódecim portas pértinent. Partes enim mundi quátuor sunt, Oriens, Occídens, Aquilo et Merídies. Istæ quátuor partes assídue nominántur in Scriptúris. Ab istis quátuor ventis, sicut dicit Dóminus in Evangélio, a quátuor ventis se collectúrum eléctos suos; ab ómnibus ergo istis quátuor ventis vocátur Ecclésia. Quómodo vocátur? Undique in Trinitáte vocátur. Non vocátur nisi per baptísmum in nómine Patris, et Fílii, et Spíritus Sancti. Quátuor ergo ducta duódecim invenúntur.
+
+**T. P. ℟.** Isti sunt. [15]
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+##### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+**Lectio vii** *Cap. 19, 27-29*
+
+IN illo témpore: Dixit Petrus ad Jesum: Ecce nos relíquimus ómnia, et secúti sumus te: quid ergo erit nobis? Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+{RUBRIC: Homilía in Natáli S. Benedícti Episc.}
+
+PERFECTUS ille est, qui ábiens vendit ómnia quæ habet, et dat páuperibus, ac véniens séquitur Christum; habébit enim thesáurum non deficiéntem in cælis. Unde bene, interrogánte Petro, dixit tálibus Jesus: Amen dico vobis, quod vos, qui secúti estis me, in regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ, sedébitis et vos super sedes duódecim, judicántes duódecim tribus Israël. In hac quippe vita pro ejus nómine laborántes in ália prǽmium speráre dócuit, id est, in regeneratióne; cum vidélicet in vitam immortálem fuérimus resurgéndo regeneráti, qui in vitam cadúcam mortáliter erámus géniti.
+
+**T. P. ℟.** Ego sum. [18]
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Isti sunt, qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+###### Lectio viii
+
+ET justa prorsus retribútio, ut, qui hic pro Christo humánæ glóriam celsitúdinis neglexérunt, illic a Christo júdices glorificáti singuláriter cum eo assídeant, qui a sequéndis

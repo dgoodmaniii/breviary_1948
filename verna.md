@@ -40656,3 +40656,21 @@ Amen.
 FUNDAMENTA ejus in móntibus sanctis: díligit Dóminus portas Sion. Quare sunt fundaménta Apóstoli et Prophétæ? Quia eórum auctóritas portat infirmitátem nostram. Quare sunt portæ? Quia per ipsos intrámus ad regnum Dei. Prǽdicant enim nobis: et, cum per ipsos intrámus, per Christum intrámus; ipse est enim jánua. Et cum dicúntur duódecim portæ Jerúsalem, et una porta Christus et duódecim portæ Christus, quia in duódecim portis Christus; et ídeo duodenárius númerus Apostolórum. Sacraméntum magnum hujus duodenárii significátio est númeri. Sedébitis, inquit, super duódecim sedes, judicántes duódecim tribus Israël.
 
 **T. P. ℟.** Lux. [14]
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+###### Lectio v
+
+SI duódecim sellæ ibi sunt, non est ubi sédeat tértius décimus Paulus Apóstolus, et non erit quómodo júdicet; et ipse se judicatúrum dixit, non hómines tantum, sed et ángelos. Quos ángelos, nisi apóstatas ángelos? Nescítis, inquit, quia ángelos judicábimus? Respondéret ergo turba: Quid te jactas judicatúrum? Ubi sedébis? Duódecim sedes dixit Dóminus duódecim Apóstolis, unus cécidit Judas, in locum ipsíus sanctus Matthías ordinátus est; implétus est duodenárius númerus sédium. Primo locum invéni, ubi sédeas, et sic te mináre judicatúrum. Duódecim ergo sedes quid sibi velint, videámus. Sacraméntum est cujúsdam universitátis; quia per totum orbem terrárum futúra erat Ecclésia, unde vocátur hoc ædifícium ad Christi compágem.
+
+**T. P. ℟.** Virtúte. [15]
+
+{RUBRIC: Extra Tempus Paschale}
+
+**℟.** Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+###### Lectio vi
+
+ET ídeo, quia úndique venítur ad judicándum, duódecim sedes sunt; sicut, quia úndique intrátur in illam civitátem, duódecim portæ sunt. Non solum ergo illi duódecim et Apóstolus Paulus, sed quotquot judicatúri sunt, propter significatiónem universitátis ad sedes duódecim pértinent; quemádmodum quotquot intrábunt, ad duódecim portas pértinent. Partes enim mundi quátuor sunt, Oriens, Occídens, Aquilo et Merídies. Istæ quátuor partes assídue nominántur in Scriptúris. Ab istis quátuor ventis, sicut dicit Dóminus in Evangélio, a

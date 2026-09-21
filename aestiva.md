@@ -14724,4 +14724,44 @@ EGO enim accépi a Dómino, quod et trádidi vobis, quóniam Dóminus Jesus, in 
 
 ##### Lectio iii
 
-ITaque quicúmque manducáverit panem hunc, vel bíberit cálicem Dómini indígne, reus erit córporis et sánguinis Dómini. Pro-
+ITaque quicúmque manducáverit panem hunc, vel bíberit cálicem Dómini indígne, reus erit córporis et sánguinis Dómini. Probet autem seípsum homo: et sic de pane illo edat, et de cálice bibat. Qui enim mandúcat et bibit indígne, judícium sibi mandúcat et bibit, non dijúdicans corpus Dómini. Ideo inter vos multi infírmi et imbecílles, et dórmiunt multi. Quod si nosmetípsos dijudicarémus, non útique judicarémur. Dum judicámur autem, a Dómino corrípimur, ut non cum hoc mundo damnémur.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória Patri. Et.
+
+#### In II Nocturno
+
+**Ant.** Memor sit Dóminus \* sacrifícii nostri: et holocáustum nostrum pingue fiat.
+
+##### Psalmus 19
+
+EXáudiat te Dóminus in die tribulatiónis: \* prótegat te nomen Dei Jacob.
+
+Mittat tibi auxílium de sancto: \* et de Sion tueátur te.
+
+Memor sit omnis sacrifícii tui: \* et holocáustum tuum pingue fiat.
+
+Tríbuat tibi secúndum cor tuum: \* et omne consílium tuum confírmet.
+
+Lætábimur in salutári tuo: \* et in nómine Dei nostri magnificábimur.
+
+Ímpleat Dóminus omnes petitiónes tuas: \* nunc cognóvi quóniam salvum fecit Dóminus Christum suum.
+
+Exáudiet illum de cælo sancto suo: \* in potentátibus salus déxteræ ejus.
+
+Hi in cúrribus, et hi in equis: \* nos autem in nómine Dómini, Dei nostri, invocábimus.
+
+Ipsi obligáti sunt, et cecidérunt: \* nos autem surréximus et erécti sumus.
+
+Dómine, salvum fac regem: \* et exáudi nos in die, qua invocavérimus te.
+
+**Ant.** Memor sit Dóminus sacrifícii nostri: et holocáustum nostrum pingue fiat.
+
+**Ant.** Parátur \* nobis mensa Dómini advérsus omnes, qui tríbulant nos.
+
+##### Psalmus 22
+
+DOminus regit me, et nihil mihi déerit: \* in loco páscuæ ibi me collocávit.
+
+Super aquam refectiónis educávit me: \* ánimam meam convértit.
+
+Dedúxit me super sémitas justítiæ, \* propter nomen suum.

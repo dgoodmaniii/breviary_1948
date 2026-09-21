@@ -32214,4 +32214,46 @@ TRIA autem sunt signa evidéntia, quibus probátur utrum prædicátor a Dómino 
 
 ###### Oratio
 
-DEUS, qui per beátum Joánnem fidéles tuos in virtúte sanctíssimi nóminis Jesu de crucis ini-
+DEUS, qui per beátum Joánnem fidéles tuos in virtúte sanctíssimi nóminis Jesu de crucis inimícis triumpháre fecísti: præsta, quǽsumus; ut, spirituálium hóstium, ejus intercessióne, superátis insídiis, corónam justítiæ a te accípere mereámur. Per eúmdem Dóminum nostrum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+---
+
+FERIA SEXTA POST DOMINICAM PASSIONIS
+
+# Septem Dolorum B. Mariæ Virg.
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Si hoc Festum utrísque Vésperis careat, Hymnus Vesperárum Stabat Mater, omísso verbo Amen, jungítur ad Matutínum cum Hymno Sancta Mater; si autem hábeat tantum II Vésperas, ad Matutínum dícitur Hymnus Stabat Mater, ad Laudes Sancta Mater, in II Vésperis Virgo vírginum.}
+
+### In I Vesperis
+
+**Ant.** Vadam ad montem \* myrrhæ, et ad collem thuris.
+
+###### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino: \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem. Gl.

@@ -16782,4 +16782,18 @@ IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce 
 
 {RUBRIC: Homilía 85, alias 84 in Joánnem, num. 3}
 
-VIden' quam fortis sit véritas? Per Judæórum stúdia implétur prophetía. Alia quoque prædíctio finem áccipit. Veniéntes enim mílites aliórum fregérunt crura, Christi non item. Attamen hi, in grátiam Judæórum, ejus latus láncea pérforant, et mórtuo córpori contuméliam ínferunt. O sceléstum et exsecrándum fácinus! Sed ne turbéris, ne dejiciáris, dilécte. Nam quæ mala illi voluntáte faciébant, veritátem propugnábant; prophetía namque erat: Vidébunt in quem transfixérunt. Neque hoc tantum; sed étiam iis qui infidéles futúri erant, hoc fácinus demonstratióni fuit, ut Thomæ et ipsi símilibus. Ad hæc étiam mystérium ineffábile consummabátur. Exívit enim sanguis et aqua. Non sine causa vel casu hi fontes manárunt, sed quia ex hoc
+VIden' quam fortis sit véritas? Per Judæórum stúdia implétur prophetía. Alia quoque prædíctio finem áccipit. Veniéntes enim mílites aliórum fregérunt crura, Christi non item. Attamen hi, in grátiam Judæórum, ejus latus láncea pérforant, et mórtuo córpori contuméliam ínferunt. O sceléstum et exsecrándum fácinus! Sed ne turbéris, ne dejiciáris, dilécte. Nam quæ mala illi voluntáte faciébant, veritátem propugnábant; prophetía namque erat: Vidébunt in quem transfixérunt. Neque hoc tantum; sed étiam iis qui infidéles futúri erant, hoc fácinus demonstratióni fuit, ut Thomæ et ipsi símilibus. Ad hæc étiam mystérium ineffábile consummabátur. Exívit enim sanguis et aqua. Non sine causa vel casu hi fontes manárunt, sed quia ex hoc utróque Ecclésia constitúta est.
+
+℟. Si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia traham ad meípsum.
+
+##### Lectio viii
+
+HOC sciunt initiáti, qui per aquam regenerántur, ac per sánguinem et carnem nutriúntur. Hinc inítium mystéria sumunt, ut, cum ad treméndum póculum accésseris, sic vénias ac si ex hoc látere potatúrus esses. Et qui vidit testimónium perhíbuit, et verum est testimónium ejus. Hoc est: Non ab áliis audívi, sed ipse præsens vidi, et verum est testimónium. Mérito sane. Contuméliam narrat, non magnum quid et mirábile, ut possis contra suspicári; verum ille, hæreticórum ora cómprimens et futúra prænúntians mystéria, atque conténtum in ipsis thesáurum consíderans, minutátim recénset et quæ gesta sunt. Impléta est autem prophetía illa: Os ejus non commínuent. Etiámsi enim hoc de Judæórum agno dictum sit, tamen propter veritátem figúra præcéssit, et in hoc magis complétum est. Ideo prophétam in médium addúcit.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+CUM sese testem áfferens ubíque non vidérétur fide dignum habéri, addúcit Móysen, ut ínnuat hoc non casu factum esse, sed jam olim scripto fuísse prænuntiátum. Hoc illud dictum est: Os ejus non comminuétur. Rursúmque ex seípso Prophétæ fidem facit. Hæc dixi, inquit, ut discátis magnam esse affinitátem inter figúram et veritátem. Viden' quantam curam adhíbeat, ut credátur illud quod turpe et ignominiósum vidétur? Nam corpus a mílite contumélia áffici, longe pejus erat quam crucifígi. Attamen et hæc dixi, inquit, et cum magna diligéntia dixi, ut credátis. Nemo ítaque fidem neget, neque præ pudóre nostris nóceat. Nam quæ máxime contumeliósa vidéntur, hæc sunt bonórum nostrórum honestíssima.
+
+**Te Deum laudámus.**

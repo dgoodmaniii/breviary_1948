@@ -28500,3 +28500,19 @@ QUALIS débeat esse qui evangelízat regnum Dei, præcéptis evangélicis design
 ℟. Advénit ignis divínus, non combúrens sed illúminans, non consúmens sed lucens: et invénit corda discipulórum receptácula munda: \* Et tríbuit eis charísmatum dona, allelúja, allelúja. ℣. Invénit eos concórdes caritáte, et collustrávit eos inúndans grátia Deitátis. — Et.
 
 **Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+SED, ut hospítii grátia deferénda censétur; ita étiam, si non recipiántur, excutiéndum púlverem, et egrediéndum de civitáte mandátur. Quo non médiocris boni remunerátio docétur hospítii: ut non solum pacem tribuámus hospítibus, verum étiam, si qua eos terrénæ obúmbrant delícta levitátis, recéptis apostólicæ prædicatiónis vestígiis auferántur. Nec otióse secúndum Matthǽum domus, quam ingrediántur Apóstoli, eligénda decérnitur: ut mutándi hospítii, necessitúdinisque violándæ causa non súppetat. Non tamen éadem cáutio receptóri mandátur hospítii: ne, dum hospes elígitur, hospitálitas ipsa minuátur.
+
+℟. Spíritus Sanctus replévit totam domum, ubi erant Apóstoli: et apparuérunt illis dispertítæ linguæ, tamquam ignis, sedítque supra síngulos eórum: \* Et repléti sunt omnes Spíritu Sancto, et cœpérunt loqui váriis linguis, prout Spíritus Sanctus dabat éloqui illis, allelúja, allelúja, allelúja. ℣. Dum ergo essent in unum discípuli congregáti propter metum Judæórum, sonus repénte de cælo venit super eos. — Et. Glória Patri. Et.
+
+**Benedictio** Ad societátem.
+
+#### Lectio iii
+
+SED hæc, ut secúndum lítteram de hospítii religióne venerábilis est forma præcépti; ita étiam de mystério senténtia cæléstis arrídet. Etenim cum domus elígitur, dignus hospes inquíritur. Videámus ígitur ne forte Ecclésia præferénda designétur, et Christus. Quæ enim dígnior domus apostólicæ prædicatiónis ingréssu, quam sancta Ecclésia? Aut quis præferéndus magis ómnibus vidétur esse quam Christus, qui pedes suis laváre consuévit hospítibus, et quoscúmque sua recéperit domo, pollútis non patiátur habitáre vestígiis; sed maculósos licet vitæ prióris, in réliquum tamen dignétur mundáre procéssus? Hic est ígitur solus, quem nemo debet desérere, nemo mutáre. Cui bene dícitur: Dómine, ad quem íbimus? verba vitæ ætérnæ habes, et nos crédimus.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Convocátis Jesus \* duódecim discípulis suis, dedit illis virtútem et potestátem super ómnia dæmónia, et ut languóres curárent: et

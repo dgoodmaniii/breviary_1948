@@ -48175,3 +48175,33 @@ DABIT illi Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in
 **Ant.** Regína cæli, \* lætáre, allelúja; quia quem meruísti portáre, allelúja, resurréxit, sicut dixit, allelúja: ora pro nobis Deum, allelúja.
 
 {RUBRIC: Aliis autem Antiphonis, Invitatorio, Versibus et Responsoriis non additur} Allelúja.
+
+---
+
+# Officium Defunctorum
+
+{ILLUSTRATION: Woodcut of a priest offering sacrifice at an altar, flanked by two groups of onlookers under a starry sky, with distant hills in the background.}
+
+*Sancta... et salubris est cogitatio pro defunctis exorare, ut a peccatis solvantur. II Mach. XII, 46.*
+
+{RUBRIC: Dicitur in Choro in die depositionis et aliis diebus pro temporis opportunitate et ecclesiarum consuetudine: Vesperæ post Vesperas diei; Matutinum cum Laudibus post Laudes diei, immediate post ℣. Benedicámus Dómino et} Deo grátias. {RUBRIC: Et non duplicantur Antiphonæ præterquam in die depositionis, in die post acceptum mortis nuntium, et tertio, septimo, trigesimo, et anniversario, etiam late sumpto; et quoties solemniter celebratur Officium. In fine vero omnium Psalmorum semper dicitur:} Réquiem ætérnam \* dona eis, Dómine. Et lux perpétua \* lúceat eis {RUBRIC: etiam si pro uno tantum fiat Officium.}
+
+##### Ad Vesperas
+
+{RUBRIC: Quoties Vesperæ vel delationem cadaveris ad ecclesiam ac Responsorium} Subveníte {RUBRIC: vel Officium diei currentis immediate non sequantur, dicitur secreto} Pater noster et Ave María; {RUBRIC: secus absolute incipitur ab}
+
+**Ant.** Placébo Dómino \* in regióne vivórum.
+
+###### Psalmus 114
+
+DILEXI, quóniam exáudiet Dóminus \* vocem oratiónis meæ.
+
+Quia inclinávit aurem suam mihi: \* et in diébus meis invocábo.
+
+Circumdedérunt me dolóres mortis: \* et perícula inférni invenérunt me.
+
+Tribulatiónem et dolórem invéni: \* et nomen Dómini invocávi.
+
+O Dómine, líbera ánimam meam: \* miséricors Dóminus, et justus, et Deus noster miserétur.
+
+Custódiens párvulos Dóminus: \* humiliátus sum, et liberávit me.

@@ -20171,3 +20171,17 @@ IN illo témpore: Misérunt príncipes et pharisǽi minístros, ut apprehéndere
 QUOMODO apprehénderent adhuc noléntem? Quia ergo non póterant apprehéndere noléntem, missi sunt ut audírent docéntem. Quid docéntem? Dicit ergo Jesus: Adhuc módicum tempus vobíscum sum. Quod modo vultis fácere, factúri estis; sed non modo, quia modo nolo. Quare adhuc modo nolo? Quia adhuc módicum tempus vobíscum sum, et tunc vado ad eum qui me misit. Implére débeo dispensatiónem meam, et sic perveníre ad passiónem meam.
 
 ℟. Deus meus, éripe me de manu peccatóris: et de manu contra legem agéntis, et iníqui: \* Quóniam tu es patiéntia mea. ℣. Deus meus, ne elongéris a me: Deus meus, in auxílium meum réspice. — Quóniam.
+
+#### Lectio ii
+
+QUÆRETIS me, et non inveniétis, et ubi sum ego, vos non potéstis veníre. Hic jam resurrectiónem suam prædíxit: noluérunt enim agnóscere præséntem, et póstea quæsiérunt, cum vidérent in eum multitúdinem jam credéntem. Magna enim signa facta sunt étiam cum Dóminus resurréxit, et ascéndit in cælum. Tunc per discípulos facta sunt magna: sed ille per illos, qui et per seípsum: ipse quippe illis díxerat: Sine me nihil potéstis fácere. Quando claudus ille, qui sedébat ad portam, ad vocem Petri surréxit, et suis pédibus ambulávit, ita ut hómines miraréntur, sic eos allocútus est Petrus, quia non in sua potestáte ista fecit, sed in virtúte illíus, quem ipsi occidérunt. Multi compúncti dixérunt: Quid faciémus?
+
+℟. Qui custodiébant ánimam meam, consílium fecérunt in unum, dicéntes: Deus dereliquit eum, \* Persequímini et comprehéndite eum: quia non est qui líberet eum: Deus meus, ne elongéris a me: Deus meus, in adjutórium meum inténde. ℣. Omnes inimíci mei advérsum me cogitábant mala mihi: verbum iníquum mandavérunt advérsum me, dicéntes. — Persequímini.
+
+#### Lectio iii
+
+VIDERUNT enim se ingénti crímine impietátis adstríctos, quando illum occidérunt, quem venerári et adoráre debuérunt: et hoc putábant esse inexpiábile. Magnum enim fácinus erat, cujus considerátio illos fáceret desperáre: sed non debébant desperáre, pro quibus in cruce pendens Dóminus est dignátus oráre. Díxerat enim: Pater, ignósce illis, quia nésciunt quid fáciunt. Vidébat quosdam suos inter multos aliénos: illis jam petébat véniam, a quibus adhuc accipiébat injúriam. Non enim attendébat quod ab ipsis moriebátur, sed quia pro ipsis moriebátur.
+
+℟. Pacífice loquebántur mihi inimíci mei, et in ira molésti erant mihi: \* Vidísti, Dómine, ne síleas, ne discédas a me. ℣. Ego autem cum mihi molésti essent, induébam me cilício, et humiliábam in jejúnio ánimam meam. — Vidísti, Dómine. Pacífice.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.

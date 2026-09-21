@@ -43726,4 +43726,34 @@ NEC immérito Doctóres sancti Hýadum nuncupatióne signántur. Græco quippe e
 
 ###### Lectio vi
 
-DUM ergo Hýades cum plúviis véniunt, ad cæli spátia altióra sol dúcitur: quia, apparénte Doctórum sciéntia, dum mens nostra imbre prædicatiónis infúnditur, fídei calor augétur. Et perfúsa terra ad fructum próficit, cum lumen ætheris ignéscit: quia ubérius frugem boni óperis réddimus, dum per sacræ eruditiónis flammam in corde clárius ardémus. Dumque per eos diébus síngulis magis magísque sciéntia cæléstis osténditur, quasi intérni nobis lúminis vernum tempus ape-
+DUM ergo Hýades cum plúviis véniunt, ad cæli spátia altióra sol dúcitur: quia, apparénte Doctórum sciéntia, dum mens nostra imbre prædicatiónis infúnditur, fídei calor augétur. Et perfúsa terra ad fructum próficit, cum lumen ætheris ignéscit: quia ubérius frugem boni óperis réddimus, dum per sacræ eruditiónis flammam in corde clárius ardémus. Dumque per eos diébus síngulis magis magísque sciéntia cæléstis osténditur, quasi intérni nobis lúminis vernum tempus aperítur; ut novus sol nostris méntibus rútilet, et, eórum verbis nobis cógnitus, seípso quotídie clárior micet. Urgénte étenim mundi fine, supérna sciéntia próficit, et lárgius cum témpore excréscit.
+
+##### Pro Doctore Pontifice
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. (T. P. Allelúja.) ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+##### Pro Doctore non Pontifice
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. (T. P. Allelúja.) ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+**Lectio vii** *Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Liber 1 de Sermone Domini in monte, cap. 6}
+
+OSTENDIT Dóminus fátuos esse judicándos, qui, temporálium bonórum vel cópiam sectántes vel inópiam metuéntes, amíttunt ætérna, quæ nec dari possunt ab homínibus nec auférri. Itaque, si sal infatuátum fúerit, in quo saliétur? Id est, si vos, per quos condiéndi sunt quodámmodo pópuli, metu persecutiónum temporálium amiséritis regna cælórum; qui erunt hómines, per quos a vobis error auferátur, cum vos elégerit Deus, per quos errórem áuferat ceterórum?
+
+##### Pro Doctore Pontifice
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. (T. P. Allelúja.) ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Pro Doctore non Pontifice
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium popu-

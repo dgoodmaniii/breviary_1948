@@ -18258,4 +18258,28 @@ OMnes pene virtútes córporis mutántur in sénibus, et crescénte sola sapién
 
 ##### Lectio vi
 
-NEC hoc dico, quod in juvénibus et adhuc solidióris ætátis, his dumtáxat, qui labóre et ardentíssimo stúdio, vitæ quoque sanctimónia et oratiónis ad Dóminum Jesum frequéntia sciéntiam consecúti sunt, frígeat sapiéntia, quæ in plerísque sénibus ætáte marcéscit: sed quod adolescéntia multa córporis bella sustíneat, et inter incentíva vitiórum et carnis titillatiónes, quasi ignis in lignis virídibus suffocétur, ut suum non possit explicáre fulgórem. Senéctus vero rursus eórum, qui adolescéntiam suam honéstis ártibus instruxérunt, et in lege Dómini meditáti sunt die ac nocte, ætáte fit dóctior, usu trítior, procéssu tém-
+NEC hoc dico, quod in juvénibus et adhuc solidióris ætátis, his dumtáxat, qui labóre et ardentíssimo stúdio, vitæ quoque sanctimónia et oratiónis ad Dóminum Jesum frequéntia sciéntiam consecúti sunt, frígeat sapiéntia, quæ in plerísque sénibus ætáte marcéscit: sed quod adolescéntia multa córporis bella sustíneat, et inter incentíva vitiórum et carnis titillatiónes, quasi ignis in lignis virídibus suffocétur, ut suum non possit explicáre fulgórem. Senéctus vero rursus eórum, qui adolescéntiam suam honéstis ártibus instruxérunt, et in lege Dómini meditáti sunt die ac nocte, ætáte fit dóctior, usu trítior, procéssu témporis sapiéntior, et véterum studiórum dulcíssimos fructus metit.
+
+℟. Ego te tuli de domo patris tui, dicit Dóminus, et pósui te páscere gregem pópuli mei: \* Et fui tecum in ómnibus, ubicúmque ambulásti, firmans regnum tuum in ætérnum. ℣. Fecíque tibi nomen grande, juxta nomen magnórum, qui sunt in terra: et réquiem dedi tibi ab ómnibus inimícis tuis. — Et. Glória Patri. Et.
+
+{RUBRIC: ℟. vii Peccávi et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro tértio Regum}
+
+##### Lectio i
+
+*Cap. 1, 28-35*
+
+ET respóndit rex David dicens: Vocáte ad me Bethsabée. Quæ cum fuísset ingréssa coram rege et stetísset ante eum, jurávit rex et ait: Vivit Dóminus, qui éruit ánimam meam de omni angústia, quia, sicut jurávi tibi per Dóminum Deum Israël, dicens: Sálomon fílius tuus regnábit post me et ipse sedébit super sólium meum pro me, sic fáciam hódie. Summissóque Bethsabée in terram vultu adorávit regem dicens: Vivat dóminus meus David in ætérnum.
+
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.
+
+##### Lectio ii
+
+DIxit quoque rex David: Vocáte mihi Sadoc sacerdótem et Nathan Prophétam et Banájam fílium Jójadæ. Qui cum ingréssi fuíssent coram rege, dixit ad eos: Tóllite vobíscum servos Dómini vestri et impónite Salomónem fílium meum super mulam meam et dúcite eum in Gihon, et ungat eum ibi Sadoc sacérdos et Nathan Prophéta in regem super Israël. Et canétis búccina atque dicétis: Vivat rex Sálomon. Et ascendétis post eum et véniet et sedébit super sólium meum et ipse regnábit pro me.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis,

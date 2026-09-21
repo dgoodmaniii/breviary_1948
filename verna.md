@@ -26233,4 +26233,44 @@ Quóniam justus Dóminus, et justítias diléxit: \* æquitátem vidit vultus ej
 
 CÆLI enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
 
-Dies diéi erúctat verbum, \* et nox nocti índi-
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum: \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum: \* et ipse tamquam sponsus procédens de thálamo suo:
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus:
+
+Et occúrsus ejus usque ad summum ejus: \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas: \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda: \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi: \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum: \* et dulcióra super mel et favum.
+
+Étenim servus tuus custódit ea: \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me: \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero: \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei: \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus, allelúja.
+
+℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.
+
+Incipit liber Actuum Apostolórum
+
+#### Lectio i
+
+*Cap. 1, 1-14*
+
+PRIMUM quidem sermónem feci de ómnibus, o Theóphile, quæ cœpit Jesus fácere et docére usque in diem, qua præcípiens Apóstolis per Spíritum Sanctum, quos elégit, assúmptus est: quibus et prǽbuit seípsum vivum post passiónem suam in multis arguméntis, per dies quadragínta appárens eis, et loquens de regno Dei. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris, quam audístis (inquit) per os meum: quia Joánnes quidem baptizávit aqua, vos autem baptizabímini Spíritu San-

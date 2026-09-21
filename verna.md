@@ -34972,4 +34972,16 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Liber 23 contra Faust. cap. 7-8}
 
-SIC de cælo dictum est super aquam Jordánis: Hic est Fílius meus diléctus, in quo mihi bene complácui; quemádmodum dictum est et in monte. Neque enim
+SIC de cælo dictum est super aquam Jordánis: Hic est Fílius meus diléctus, in quo mihi bene complácui; quemádmodum dictum est et in monte. Neque enim quia et ibi de cælo vox ipsa sónuit, Fílius Dei ante non fuit; quandóquidem ex útero Vírginis ille accépit formam servi, qui cum in forma Dei esset, non rapínam arbitrátus est esse æquális Deo. Dénique idem Apóstolus Paulus álio loco apertíssime dicit: Cum autem venit plenitúdo témporis, misit Deus Fílium suum factum ex mulíere, factum sub lege, ut eos, qui sub lege erant, redímeret, ut filiórum adoptiónem reciperémus. Ipse ergo est Fílius Dei, qui et Dóminus David secúndum divinitátem, et idem ipse fílius David ex sémine David secúndum carnem.
+
+℟. Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, \* Et vocábis nomen ejus Jesum, allelúja. ℣. Ipse enim salvum fáciet pópulum suum a peccátis eórum. — Et.
+
+#### Lectio viii
+
+QUOD si nobis crédere non prodésset, non hoc tam atténte idem Apóstolus Timótheo commendáret dicens: Memor esto Christum Jesum resurréxisse a mórtuis, ex sémine David, secúndum Evangélium meum. Quid ergo jam móveat sancti Evangélii sectatórem, quod sine concúbitu Joseph Christus natus ex Vírgine, fílius tamen David appellátur, cum generatiónum sériem non usque ad Maríam sed usque ad Joseph Matthǽus Evangelísta perdúcat? Primo quia maríti ejus fúerat propter virílem sexum pótius honoránda persóna; neque enim quia concúbitu non permíxtus, ídeo non marítus, cum ipse Matthǽus narret ab Angelo Maríam cónjugem ipsíus appellátam, qui narrat quod de Spíritu Sancto concéperat.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi, allelúja. ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+CUM vero unus idémque narrátor utrúmque dicat, utrúmque comméndet, et virum Maríæ Joseph et Christi Vírginem Matrem, et Christum ex sémine David et Joseph

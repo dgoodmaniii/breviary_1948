@@ -15791,3 +15791,25 @@ COngregáti ergo univérsi majóres natu Israël venérunt ad Samuélem in Ráma
 DIxit autem Dóminus ad Samuélem: Audi vocem pópuli in ómnibus quæ loquúntur tibi: non enim te abjecérunt sed me, ne regnem super eos. Juxta ómnia ópera sua, quæ fecérunt a die qua edúxi eos de Ægýpto usque ad diem hanc, sicut derelinquérunt me et serviérunt diis aliénis, sic fáciunt étiam tibi. Nunc ergo vocem eórum audi; verúmtamen contestáre eos et prǽdic eis jus regis, qui regnatúrus est super eos.
 
 ℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste.
+
+##### Lectio iii
+
+DIxit ítaque Sámuel ómnia verba Dómini ad pópulum, qui petíerat a se regem, et ait: Hoc erit jus regis, qui imperatúrus est vobis. Fílios vestros tollet et ponet in cúrribus suis, faciétque sibi équites et præcursóres quadrigárum suárum; et constítuet sibi tribúnos et centuriónes et aratóres agrórum suórum et messóres ségetum et fabros armórum et cúrruum suórum; fílias quoque vestras fáciet sibi unguentárias et focárias et panífícas; agros quoque vestros et víneas et olivéta óptima tollet et dabit servis suis.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória. Et.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Cyrílli Epíscopi Jerosolymitáni}
+
+{RUBRIC: Catéchesis mystagóg. 4}
+
+##### Lectio iv
+
+IPsa beáti Pauli doctrína abúnde suffícere vidétur, ut certam vobis de divínis mystériis fidem fáciat, quibus digni rédditi, concorpórei, ut ita dicam, et consanguínei Christi facti estis. Ipse enim modo clamábat, quod in nocte qua tradebátur Dóminus noster Jesus Christus, accípiens panem, et grátias agens fregit, et dedit discípulis suis, dicens: Accípite et manducáte: hoc est corpus meum. Et accípiens cálicem, et grátias agens, dixit: Accípite et bíbite: hic est sanguis meus. Cum ígitur ipse de pane pronuntiáverit ac díxerit: Hoc est corpus meum; quis audébit deínceps ambígere? Et cum idem ipse tam asseveránter díxerit: Hic est sanguis meus; quis umquam dubitáverit, ut dicat non esse ejus sánguinem?
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedítque discípulis suis, et ait: \* Accípite et comédite: hoc est corpus meum. ℣. Dixérunt viri tabernáculi mei: Quis det de cárnibus ejus, ut saturémur? — Accípite.
+
+##### Lectio v
+
+AQuam olim in vinum convértit in Cana Galiléæ, quod habet quamdam cum sánguine propinquitátem: et eum parum dignum existimábimus, cui credámus quod vinum

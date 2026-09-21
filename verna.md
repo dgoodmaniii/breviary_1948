@@ -47320,3 +47320,56 @@ SED, si caro Verbi Dei secúndum carnem nascéntis a carne Vírginis matris pron
 ℟. Beátam me dicent omnes generatiónes: \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. (T. P. Allelúja.) ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia. Glória Patri. Quia.
 
 **Benedictio.** Ad societátem.
+
+###### Lectio ix
+
+QUINIMMO beáti qui áudiunt verbum Dei et custódiunt. Pulchre Salvátor attestatióni mulíeris ánnuit, non eam tantúmmodo quæ Verbum Dei corporáliter generáre merúerat, sed et omnes qui idem Verbum spiritáliter audítu fídei concípere, et boni óperis custódia vel in suo vel in proximórum corde párere et quasi álere studúerint, assevérans esse beátos; quia, et éadem Dei Génitrix, et inde quidem beáta, quia Verbi incarnándi minístra facta est temporális; sed inde multo beátior, quia ejúsdem semper amándi custos manébat ætérna.
+
+{RUBRIC: Te Deum.}
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis. (T. P. Allelúja.)
+
+{RUBRIC: Psalmi de Dominica 1 loco.}
+
+**2** Læva ejus \* sub cápite meo, et déxtera illíus amplexábitur me. (T. P. Allelúja.)
+
+**3** Nigra sum, \* sed formósa, fíliæ Jerúsalem; ídeo diléxit me Rex, et introdúxit me in cubículum suum. (T. P. Allelúja.)
+
+**4** Jam hiems tránsiit, \* imber ábiit et recéssit: surge, amíca mea, et veni. (T. P. Allelúja.)
+
+**5** Speciósa \* facta es et suávis in delíciis tuis, sancta Dei Génitrix. (T. P. Allelúja.)
+
+###### Capitulum
+
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
+
+###### Hymnus
+
+O GLORIOSA vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine:
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida:
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. (T. P. Allelúja.) ℟. Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.)

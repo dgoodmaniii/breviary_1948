@@ -27309,4 +27309,20 @@ De Homilía sancti Gregórii Papæ
 
 {RUBRIC: Eadem Homilia 29}
 
-HOC autem nobis primum quæréndum est, quidnam sit, quod, nato Dómino, apparuérunt Angeli, et tamen non legúntur in albis véstibus apparuísse: ascendénte autem Dómino, missi Angeli in albis legúntur véstibus apparuísse. Sic étenim scriptum est: Vidéntibus illis, elevátus est, et nubes suscépit eum ab óculis eórum. Cumque intueréntur in cælum eúntem illum, ecce duo viri stetérunt juxta illos in véstibus albis. In albis autem véstibus gáudium et solémnitas mentis osténditur. Quid est ergo, quod, nato Dómino, non in albis véstibus; ascendénte autem Dómino, in albis véstibus Angeli appárent: nisi quod tunc magna solémnitas Angelis facta est, cum cælum Deus homo penetrávit? Quia, nascénte Dómino, videbátur divínitas humiliáta; ascendénte vero Dómino, est humánitas exaltáta. Albæ
+HOC autem nobis primum quæréndum est, quidnam sit, quod, nato Dómino, apparuérunt Angeli, et tamen non legúntur in albis véstibus apparuísse: ascendénte autem Dómino, missi Angeli in albis legúntur véstibus apparuísse. Sic étenim scriptum est: Vidéntibus illis, elevátus est, et nubes suscépit eum ab óculis eórum. Cumque intueréntur in cælum eúntem illum, ecce duo viri stetérunt juxta illos in véstibus albis. In albis autem véstibus gáudium et solémnitas mentis osténditur. Quid est ergo, quod, nato Dómino, non in albis véstibus; ascendénte autem Dómino, in albis véstibus Angeli appárent: nisi quod tunc magna solémnitas Angelis facta est, cum cælum Deus homo penetrávit? Quia, nascénte Dómino, videbátur divínitas humiliáta; ascendénte vero Dómino, est humánitas exaltáta. Albæ étenim vestes exaltatióni magis cóngruunt, quam humiliatióni.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut.
+
+#### Lectio viii
+
+IN ascensióne ergo ejus Angeli in albis véstibus vidéri debuérunt: quia qui in nativitáte sua appáruit Deus húmilis, in ascensióne sua osténsus est homo sublímis. Sed hoc nobis magnópere, fratres caríssimi, in hac solemnitáte pensándum est: quia delétum est hodiérna die chirógraphum damnatiónis nostræ, mutáta est senténtia corruptiónis nostræ. Illa enim natúra, cui dictum est: Terra es, et in terram ibis; hódie in cælum ivit. Pro hac ipsa namque carnis nostræ sublevatióne, per figúram beátus Job Dóminum avem vocat. Quia enim ascensiónis ejus mystérium Judǽam non intellígere conspéxit, de infidelitáte ejus per figúram beátus Job senténtiam prótulit, dicens: Sémitam ignorávit avis.
+
+℟. Ponis nubem ascénsum tuum, Dómine: \* Qui ámbulas super pennas ventórum, allelúja. ℣. Confessiónem et decórem indúisti, amíctus lumen sicut vestiméntum. — Qui. Glória Patri. Qui.
+
+#### Lectio ix
+
+AVIS enim recte appellátus est Dóminus, quia corpus cárneum ad æthera librávit. Cujus avis sémitam ignorávit, quisquis eum ad cælum ascendísse non crédidit. De hac solemnitáte per Psalmístam dícitur: Eleváta est magnificéntia tua super cælos. De hac rursus ait: Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. De hac íterum dicit: Ascéndens in altum, captívam duxit captivitátem, dedit dona homínibus. Ascéndens quippe in altum, captívam duxit captivitátem: quia corruptiónem nostram virtúte suæ incorruptiónis absórbuit. Dedit vero dona homínibus, quia misso désuper Spíritu, álii sermónem sapiéntiæ, álii sermónem sciéntiæ, álii grátiam virtútum, álii grátiam curatiónum, álii génera linguárum, álii interpretatiónem tríbuit sermónum.
+
+Te Deum laudámus.
+
+{RUBRIC: Vesperæ de seq. die Octava.}

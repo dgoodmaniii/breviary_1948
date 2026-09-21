@@ -33099,4 +33099,16 @@ Léctio sancti Evangélii secúndum Matthǽum
 
 *Cap. 5, 13-19*
 
-IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Ad níhilum valet ultra, nisi ut mittátur foras, et conculcétur ab homínibus. Et réliqua.
+
+Homilía sancti Isidóri Epíscopi
+
+{RUBRIC: Liber 2 Officiorum ad S. Fulgentium, cap. 5}
+
+QUI in erudiéndis atque instituéndis ad virtútem pópulis prǽerit, necésse est ut in ómnibus sanctus sit, et in nullo reprehensíbilis habeátur. Qui enim álium de peccátis árguit, ipse a peccáto debet esse aliénus. Nam qua fronte subjéctos argúere póterit, cum illi statim possit corréctus ingérere: Ante doce te quæ recta sunt? Prímitus quippe semetípsum corrígere debet, qui álios ad bene vivéndum admonére studet; ita ut in ómnibus semetípsum formam vivéndi prǽbeat, cunctósque ad bonum opus, et doctrína et ópere próvocet. Cui étiam sciéntia Scripturárum necessária est: quia, si epíscopi tantum sancta sit vita, sibi soli prodest, sic vivens; porro si et doctrína et sermóne fúerit erudítus, potest céteros quoque instrúere, et docére suos, et adversários repercútere, qui, nisi refutáti fúerint atque convícti, fácile possunt simplícium corda pervértere.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. {RUBRIC: (T. P. Allelúja.)} ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio viii
+
+HUJUS sermo debet esse purus, simplex, apértus, plenus gravitátis et honestátis, plenus suavitátis et grátiæ, tractans de mystério legis, de doctrína fídei, de virtúte continéntiæ, de disciplína justítiæ; unumquémque admónens divérsa exhortatióne, juxta professiónem morúmque qualitátem; scílicet ut prænóscat, quid, cui, quando, vel quómodo próferat. Cujus præ céteris speciále offícium est Scriptúras légere, percúrrere cánones, exémpla Sanctórum imitári, vigíliis, jejúniis, oratiónibus incúmbere, cum frátribus pacem habére, nec quemquam de membris suis discérpere; nullum damnáre, nisi comprobátum, nullum excommunicáre, nisi discússum. Quique ita humilitáte páriter et auctoritáte prǽesse debet, ut neque per nímiam humili-

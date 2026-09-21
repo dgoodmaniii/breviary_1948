@@ -20276,4 +20276,40 @@ HIEMS erat, et ambulábat Jesus in templo, in pórticu Salomónis. Circumdedéru
 
 #### Lectio iii
 
-FRIGUERANT diligéndi caritáte, et ardébant nocéndi cupiditáte. Longe áberant, et ibi erant: non accedébant credéndo, et premébant persequéndo. Quærébant audíre a Dómino, Ego sum Christus: et fortásse de Christo secúndum hóminem sapiébant. Prædicavérunt enim prophétæ Christum: sed
+FRIGUERANT diligéndi caritáte, et ardébant nocéndi cupiditáte. Longe áberant, et ibi erant: non accedébant credéndo, et premébant persequéndo. Quærébant audíre a Dómino, Ego sum Christus: et fortásse de Christo secúndum hóminem sapiébant. Prædicavérunt enim prophétæ Christum: sed divinitátem Christi et in prophétis et in ipso Evangélio nec hærétici intélligunt: quanto minus Judǽi, quámdiu velámen est super cor eórum?
+
+℟. Quis dabit cápiti meo aquam, et óculis meis fontem lacrimárum, et plorábo die ac nocte? quia frater propínquus supplantávit me, \* Et omnis amícus fraudulénter incéssit in me. ℣. Fiant viæ eórum ténebræ et lúbricum: et Angelus Dómini pérsequens eos. — Et. Quis.
+
+℣. Eripe me de inimícis meis, Deus meus. ℟. Et ab insurgéntibus in me líbera me.
+
+**Ad Bened. Ant.** Oves meæ \* vocem meam áudiunt: et ego Dóminus agnósco eas.
+
+#### Oratio
+
+SANCTIFICATO hoc jejúnio, Deus, tuórum corda fidélium miserátor illústra: et, quibus devotiónis præstas afféctum, præbe supplicántibus pium benígnus audítum. Per Dóminum.
+
+℣. Eripe me, Dómine, ab hómine malo. ℟. A viro iníquo éripe me.
+
+**Ad Magnif. Ant.** Multa bona ópera \* operátus sum vobis: propter quod opus vultis me occídere?
+
+#### Oratio
+
+ADESTO supplicatiónibus nostris, omnípotens Deus: et, quibus fidúciam sperándæ pietátis indúlges, consuétæ misericórdiæ tríbue benígnus efféctum. Per Dóminum.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 7, 36-50*
+
+IN illo témpore: Rogábat Jesum quidam de pharisǽis, ut manducáret cum illo. Et ingréssus domum pharisǽi discúbuit. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilia 33 in Evangelia}
+
+COGITANTI mihi de Maríæ Magdalénæ pœniténtia, flere magis libet, quam áliquid dícere. Cujus enim vel sáxeum pectus illæ hujus peccatrícis lácrimæ ad exémplum pœniténdi non emólliant? Considerávit namque quid fecit, et nóluit moderári quid fáceret. Super convivántes ingréssa est, non jussa venit, inter épulas lácrimas óbtulit. Díscite quo dolóre ardet, quæ flere et inter épulas non erubéscit.

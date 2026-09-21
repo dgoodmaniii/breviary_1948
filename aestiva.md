@@ -15821,3 +15821,27 @@ AQuam olim in vinum convértit in Cana Galiléæ, quod habet quamdam cum sángui
 OLim cum Judǽis Christus dísserens, Nisi manducavéritis, inquit, carnem meam, et bibéritis meum sánguinem, non habébitis vitam in vobis. Cum autem illi, quæ dicta fúerant, non spiritáliter accepíssent, offénsi abiérunt retro; putábant enim quod eos ad manducándas carnes hortarétur. Erant et in véteri testaménto panes propositiónis; verum illi cum fúerint véteris testaménti, finem jam accepérunt. In novo vero testaménto panis est cæléstis et calix salutáris, qui et ánimam et corpus sanctíficant. Quam ob rem non sic hæc atténdas velim, tamquam sint nudus et simplex panis, nudum et simplex vinum; corpus enim sunt et sanguis Christi. Nam étiam si sensus illud tibi renúntiat, fides tamen te confírmet. Ne júdices rem ex gustu: sed te citra ullam dubitatiónem fides certum reddat, quod sis dignus factus, qui córporis et sánguinis Christi párticeps fíeres.
 
 ℟. Ego sum panis vitæ; patres vestri manducavérunt manna in desérto, et mórtui sunt: \* Hic est panis de cælo descéndens, ut, si quis ex ipso mandúcet, non moriátur. ℣. Ego sum panis vivus, qui de cælo descéndi: si quis manducáverit ex hoc pane, vivet in ætérnum. — Hic. Glória Patri. Hic.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 6, 56-59*
+
+IN illo témpore: Dixit Jesus turbis Judæórum: Caro mea vere est cibus, et sanguis meus vere est potus. Et réliqua.
+
+{RUBRIC: Homilía sancti Cyrílli Epíscopi Alexandríni}
+
+{RUBRIC: Liber 4 in Joann., cap. 17}
+
+QUI mandúcat, inquit, carnem meam et bibit sánguinem meum, in me manet, et ego in illo. Sícuti enim, si quis liquefáctæ ceræ áliam ceram infúderit, álteram cum áltera per totum commísceat necésse est: sic qui carnem et sánguinem Dómini récipit, cum ipso ita conjúngitur, ut Christus in ipso, et ipse in Christo inveniátur. Símili quodam modo apud Matthǽum compéries. Símile est, inquit, regnum cælórum ferménto, quod accéptum abscóndit múlier in farínæ satis tribus. Sicut parum, ut Paulus ait, ferménti totam massam ferméntat, sic párvula benedíctio totum hóminem in seípsam áttrahit, et sua grátia replet; et hoc modo in nobis Christus manet, et nos in Christo.
+
+℟. Qui mandúcat meam carnem et bibit meum sánguinem, \* In me manet, et ego in eo. ℣. Non est ália nátio tam grandis, quæ hábeat deos appropinquántes sibi, sicut Deus noster adest nobis. — In.
+
+##### Lectio viii
+
+NOs vero, si vitam ætérnam cónsequi vólumus, si largitórem immortalitátis habére in nobis desiderámus, ad recipiéndam benedictiónem libénter concurrámus; caveamúsque, ne loco láquei damnósam religiónem diábolus nobis præténdat. Recte (inquit) dicis; scriptum tamen esse non ignorámus, judícium sibi comédere atque bíbere illum, qui de pane cómedit et de cálice bibit indígne. Ego ígitur probo meípsum, et indígnum invénio. Quando ígitur, quicúmque tu es qui ista dicis, dignus eris? quando Christo teípsum ófferes? Nam si peccándo indígnus es, et peccáre non désinis, (quis enim delícta intélligit? secúndum Psalmístam), expers omníno eris vivíficæ hujus sanctificatiónis.
+
+℟. Misit me vivens Pater, et ego vivo propter Patrem: \* Et qui mandúcat me, vivet propter me.

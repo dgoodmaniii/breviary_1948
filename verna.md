@@ -40437,3 +40437,57 @@ Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
 Judicábit in natiónibus, implébit ruínas: \* conquassábit cápita in terra multórum.
 
 De torrénte in via bibet: \* proptérea exaltábit caput.
+
+**T. P. Ant.** Sancti tui, Dómine, florébunt sicut lílium, allelúja: et sicut odor bálsami erunt ante te, allelúja.
+
+**Ant.** In cæléstibus regnis \* Sanctórum habitátio est, allelúja: et in ætérnum réquies eórum, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Jurávit Dóminus, et non pœnitébit eum: Tu es sacérdos in ætérnum.
+
+**Ant.** Cóllocet eum \* Dóminus cum princípibus pópuli sui.
+
+###### Psalmus 112
+
+LAUDATE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sæculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**T. P. Ant.** In cæléstibus regnis Sanctórum habitátio est, allelúja: et in ætérnum réquies eórum, allelúja.
+
+**Ant.** In velaménto \* clamábant Sancti tui, Dómine, allelúja, allelúja, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Cóllocet eum Dóminus cum princípibus pópuli sui.
+
+**Ant.** Dirupísti, Dómine, \* víncula mea: tibi sacrificábo hóstiam laudis.
+
+###### Psalmus 115
+
+CREDIDI, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam

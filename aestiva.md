@@ -2914,4 +2914,60 @@ Pater, Ave et Credo.
 
 **Invitat.** Veníte, \* Exsultémus Dómino. **Ps. 94** Veníte, exsultémus.
 
-{RUBRIC: In primo Psalmi versu non dícitur: Veníte, exsultémus Dómino; sed post repetítum Invitatórium, statim subjun-
+{RUBRIC: In primo Psalmi versu non dícitur: Veníte, exsultémus Dómino; sed post repetítum Invitatórium, statim subjungitur: Jubilémus Deo, salutári nostro:}
+
+#### Hymnus
+
+SOMNO reféctis ártubus,
+Spreto cubíli, súrgimus:
+Nobis, Pater, canéntibus
+Adésse te depóscimus.
+
+Te lingua primum cóncinat,
+Te mentis ardor ámbiat:
+Ut áctuum sequéntium
+Tu, Sancte, sis exórdium.
+
+Cedant ténebræ lúmini,
+Et nox diúrno síderi,
+Ut culpa, quam nox íntulit,
+Lucis labáscat múnere.
+
+Precámur iídem súpplices,
+Noxas ut omnes ámputes,
+Et ore te canéntium
+Laudéris omni témpore.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Dóminus de cælo \* prospéxit super fílios hóminum.
+
+{RUBRIC: Antíphonæ, in hac et áliis Fériis apposítæ, dicúntur semper in Officio feriáli et in Festis sive trium sive novem Lectiónum, quando juxta Rúbricas suméndi sint Psalmi de Féria, ut in Psaltério.}
+
+{RUBRIC: In Officio autem trium Lectiónum, tam de Témpore quam de Sanctis, omittúntur Versus et réliqua ómnia, quæ in Officio novem Lectiónum solent recitári in fine I et II Noctúrni, et continuántur Psalmi cum suis Antiphónis usque ad Versum III Noctúrni.}
+
+### Psalmus 13
+
+DIXIT insípiens in corde suo: \* Non est Deus.
+
+Corrúpti sunt, et abominábiles facti sunt in stúdiis suis: \* non est qui fáciat bonum, non est usque ad unum.
+
+Dóminus de cælo prospéxit super fílios hóminum, \* ut vídeat si est intélligens, aut requírens Deum.
+
+Omnes declinavérunt, simul inútiles facti sunt: \* non est qui fáciat bonum, non est usque ad unum.
+
+Sepúlcrum patens est guttur eórum: linguis suis dolóse agébant, \* venénum áspidum sub lábiis eórum.
+
+Quorum os maledictióne et amaritúdine plenum est: \* velóces pedes eórum ad effundéndum sánguinem.
+
+Contrítio et infelícitas in viis eórum, et viam pacis non cognovérunt: \* non est timor Dei ante óculos eórum.
+
+Nonne cognóscent omnes qui operántur iniquitátem, \* qui dévorant plebem meam sicut escam panis?
+
+Dóminum non invocavérunt, \* illic trepidavérunt timóre, ubi non erat timor.

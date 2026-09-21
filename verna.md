@@ -40731,4 +40731,28 @@ ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur? c
 
 **Lectio i** *Cap. 1, 1-12*
 
-ET factum est in trigésimo anno, in quarto, in quinta mensis, cum essem in médio captivórum juxta flúvium Chobar, apérti sunt cæli, et vidi visiónes Dei. In quinta mensis, ipse est annus quintus transmigratiónis regis Jóachim, factum est verbum Dómini ad Ezechiélem, fílium Buzi, sacerdótem in terra Chaldæórum, secus flúmen Chobar: et facta est super eum ibi manus Dó-
+ET factum est in trigésimo anno, in quarto, in quinta mensis, cum essem in médio captivórum juxta flúvium Chobar, apérti sunt cæli, et vidi visiónes Dei. In quinta mensis, ipse est annus quintus transmigratiónis regis Jóachim, factum est verbum Dómini ad Ezechiélem, fílium Buzi, sacerdótem in terra Chaldæórum, secus flúmen Chobar: et facta est super eum ibi manus Dómini. Et vidi, et ecce ventus túrbinis veniébat ab Aquilóne: et nubes magna, et ignis invólvens, et splendor in circúitu ejus: et de médio ejus quasi spécies eléctri, id est, de médio ignis.
+
+℟. Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sæculum sæculi. — In mandátis.
+
+###### Lectio ii
+
+ET in médio ejus similitúdo quátuor animálium: et hic aspéctus eórum, similitúdo hóminis in eis. Quátuor fácies uni, et quátuor pennæ uni. Pedes eórum pedes recti, et planta pedis eórum, quasi planta pedis vítuli, et scintíllæ quasi aspéctus æris candéntis. Et manus hóminis sub pennis eórum in quátuor pártibus: et fácies, et pennas per quátuor partes habébant, junctæque erant pennæ eórum altérius ad álterum. Non revertebántur cum incéderent: sed unumquódque ante fáciem suam gradiebátur.
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+###### Lectio iii
+
+SIMILITUDO autem vultus eórum: fácies hóminis, et fácies leónis a dextris ipsórum quátuor: fácies autem bovis, a sinístris ipsórum quátuor, et fácies áquilæ désuper ipsórum quátuor. Fácies eórum, et pennæ eórum exténtæ désuper: duæ pennæ singulórum jungebántur, et duæ tegébant córpora eórum: et unumquódque eórum coram fácie sua ambulábat: ubi erat ímpetus spíritus, illuc gradiebántur, nec revertebántur cum ambulárent.
+
+℟. Pretiósa in conspéctu Dómini, allelúja, \* Mors Sanctórum ejus, allelúja. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors. Glória Patri. Mors.
+
+##### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Gregórii Papæ super Ezechiélem Prophétam}
+
+{RUBRIC: Hom. 3 Lib. 1}
+
+###### Lectio iv
+
+SANCTA quátuor animália, quæ prophétiæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum

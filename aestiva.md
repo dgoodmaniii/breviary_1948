@@ -7274,3 +7274,87 @@ Dilexísti malítiam super benignitátem: \* iniquitátem magis quam loqui æqui
 Dilexísti ómnia verba præcipitatiónis, \* lingua dolósa.
 
 Proptérea Deus déstruet te in finem, \* evéllet te, et emigrábit te de tabernáculo tuo: et radícem tuam de terra vivéntium.
+
+Vidébunt justi, et timébunt, et super eum ridébunt, et dicent: \* Ecce homo, qui non pósuit Deum adjutórem suum:
+
+Sed sperávit in multitúdine divitiárum suárum: \* et prævalúit in vanitáte sua.
+
+Ego autem, sicut olíva fructífera in domo Dei, \* sperávi in misericórdia Dei in ætérnum: et in séculum séculi.
+
+Confitébor tibi in séculum, quia fecísti: \* et exspectábo nomen tuum, quóniam bonum est in conspéctu sanctórum tuórum.
+
+### Psalmus 52
+
+DIxit insípiens in corde suo: \* Non est Deus.
+
+Corrúpti sunt, et abominábiles facti sunt in iniquitátibus: \* non est qui fáciat bonum.
+
+Deus de cælo prospéxit super fílios hóminum: \* ut vídeas si est intélligens, aut requírens Deum.
+
+Omnes declinavérunt, simul inútiles facti sunt: \* non est qui fáciat bonum, non est usque ad unum.
+
+Nonne scient omnes qui operántur iniquitátem, \* qui dévorant plebem meam ut cibum panis?
+
+Deum non invocavérunt: \* illic trepidavérunt timóre, ubi non erat timor.
+
+Quóniam Deus dissipávit ossa eórum qui homínibus placent: \* confúsi sunt, quóniam Deus sprevit eos.
+
+Quis dabit ex Sion salutáre Israël? \* cum convérterit Deus captivitátem plebis suæ, exsultábit Jacob, et lætábitur Israël.
+
+{RUBRIC: ¶ Quando ad Laudes dictus fuerit Ps. 50 Miserére, hic subjúngitur sequens Ps. 96, qui in Laudibus locum non habuit.}
+
+### Psalmus 96
+
+DOminus regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+{RUBRIC: Secus vero, tribus Psalmis explétis, statim dícitur Ant.}
+
+**Ant.** Misericórdia tua, Dómine, ante óculos meos: et complácui in veritáte tua.
+
+{RUBRIC: In Officio Festi vel Octávæ:}
+
+**Capitulum** *1 Tim. 1, 17*
+
+REGI sæculórum immortáli et invisíbili, soli Deo honor et glória in sæcula sæculórum. Amen.
+
+{RUBRIC: In ómnibus autem Fériis et in Vigíliis commúnibus:}
+
+**Capitulum** *Zach. 8, 19*
+
+PACEM et veritátem dilígite, ait Dóminus omnípotens.
+
+℟. br. Christe, Fili Dei vivi, \* Miserére nobis. Christe. ℣. *Qui sedes ad déxteram Patris.* Miserére nobis. Glória Patri. Christe. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum.
+
+#### Preces dominicales et feriales
+
+*(si dicéndæ sint).*
+
+KYRIE, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Credo in Deum {RUBRIC: secréto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Et ego ad te, Dómine, clamávi. ℟. Et mane orátio mea prævéniet te. ℣. Repleátur os meum laude. ℟. Ut cantem glóriam tuam, tota die magnitúdinem tuam. ℣. Dómine, avérte fáciem tuam a peccátis meis. ℟. Et omnes iniquitátes meas dele. ℣. Cor mundum crea in me, Deus. ℟. Et spíritum rectum ínnova in viscéribus meis. ℣. Ne projícias me a fácie tua. ℟. Et spíritum sanctum tuum ne áuferas a me. ℣. Redde mihi lætítiam salutáris tui. ℟. Et spíritu principáli confírma me.

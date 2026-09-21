@@ -36265,4 +36265,24 @@ Homilía sancti Augustíni Epíscopi
 
 DE júvene illo resuscitáto gavísa est mater vídua; de homínibus in spíritu quotídie suscitátis gaudet mater Ecclésia. Ille quidem mórtuus erat córpore; illi autem mente. Illíus mors visíbilis visibíliter plangebátur; illórum mors invisíbilis nec quærebátur, nec videbátur. Quæsívit ille, qui nóverat mórtuos. Ille solus nóverat mórtuos, qui póterat fácere vivos. Nisi enim ad mórtuos suscitándos venísset, Apóstolus non díceret: Surge, qui dormis, et exsúrge a mórtuis, et illumínábit te Christus.
 
-℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ
+℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ in lingua ejus: considerávit sémitas domus suæ, \* Et panem otiósa non comédit, allelúja. ℣. Gustávit et vidit quia bona est negotiátio ejus: non exstinguétur in nocte lucérna ejus. — Et.
+
+###### Lectio viii
+
+TRES autem mórtuos invénimus a Dómino resuscitátos visibíliter, míllia invisibíliter. Quot autem mórtuos visibíliter suscitáverit, quis novit? Non enim ómnia, quæ fecit, scripta sunt. Joánnes hoc dixit: Multa ália fecit Jesus, quæ si scripta essent, árbitror totum mundum non posse libros cápere. Multi ergo sunt álii sine dúbio suscitáti, sed non tres frustra commemoráti. Dóminus enim noster Jesus Christus ea quæ faciébat corporáliter, étiam spiritáliter volébat intélligi. Neque enim tantum mirácula propter mirácula faciébat; sed ut illa, quæ faciébat, mira essent vidéntibus, vera essent intelligéntibus.
+
+℟. Regnum mundi et omnem ornátum sǽculi contémpsi, propter amórem Dómini mei Jesu Christi: \* Quem vidi, quem amávi, in quem crédidi, quem diléxi, allelúja. ℣. Eructávit cor meum verbum bonum: dico ego ópera mea Regi. — Quem. Glória Patri. Quem.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Commemoratio ad Laudes, alias}
+
+###### Lectio ix
+
+QUEMADMODUM qui videt lítteras in códice óptime scripto, et non novit légere, laudat quidem antiquárii manum, admírans ápicum pulchritúdinem; sed quid sibi velint, quid índicent illi ápices, nescit, et est óculis laudátor, mente non cógnitor. Alius autem et laudat artifícium, et capit intelléctum: ille útique, qui non solum vidére quod commúne est ómnibus, potest, sed étiam légere; quod qui non dídicit, non potest. Ita qui vidérunt Christi mirácula, et non intellexérunt, quid sibi vellent, et quid intelligéntibus quodámmodo innúerent, miráti sunt tantum quia facta sunt; álii vero et facta miráti, et intellécta assecúti. Tales nos in schola Christi esse debémus.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum

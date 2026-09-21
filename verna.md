@@ -34696,4 +34696,37 @@ MANIFESTUM est illud quod ait, Ut putabátur fílius Joseph, propter illos dixí
 
 #### Lectio viii
 
-CUM enim necésse sit, utróque Evangelísta vera narránte, et Matthǽo scílicet et Luca, ut unus eórum ejus patris oríginem tenéret qui genúerat, alter ejus qui adoptáverat Joseph; quem probabílius intellígimus adoptántis oríginem tenuísse quam eum, qui nóluit Joseph génitum dícere ab illo cujus eum fílium esse narrábat? Matthǽus autem dicens, Abraham génuit Isaac, Isaac génuit Jacob,
+CUM enim necésse sit, utróque Evangelísta vera narránte, et Matthǽo scílicet et Luca, ut unus eórum ejus patris oríginem tenéret qui genúerat, alter ejus qui adoptáverat Joseph; quem probabílius intellígimus adoptántis oríginem tenuísse quam eum, qui nóluit Joseph génitum dícere ab illo cujus eum fílium esse narrábat? Matthǽus autem dicens, Abraham génuit Isaac, Isaac génuit Jacob, atque ita in hoc verbo, quod est, Génuit, persevérans, donec in último díceret, Jacob autem génuit Joseph; satis expréssit ad eum patrem se perduxísse oríginem generántium, a quo Joseph non adoptátus, sed génitus erat.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi, allelúja. ℣. Ut adimplerétur quod dictum est a Dómino per prophétam dicéntem: Ex Ægýpto vocávi Fílium meum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+QUAMQUAM si étiam Lucas génitum díceret Joseph ab Heli, nec sic nos hoc verbum perturbáre debéret, ut áliud crederémus quam ab uno Evangelísta gignéntem, ab áltero adoptántem patrem fuísse commemorátum. Neque enim absúrde quisque dícitur non carne sed caritáte genuísse, quem fílium sibi adoptáverit. At vero étiam nos, quibus dedit Deus potestátem fílios ejus fíeri, de natúra atque substántia sua non nos génuit, sicut únicum Fílium, sed útique dilectióne adoptávit.
+
+{RUBRIC: Te Deum laudámus.}
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Jacob autem \* génuit Joseph, virum Maríæ, de qua natus est Jesus, qui vocátur Christus, allelúja.
+
+{RUBRIC: Psalmi de Domin. 1 loco. 49}
+
+**2** Missus est \* Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, allelúja.
+
+**3** Ascéndit autem \* Joseph a Galilǽa de civitáte Názareth in Judǽam, in civitátem David, quæ vocátur Béthlehem, allelúja.
+
+**4** Et venérunt festinántes, \* et invenérunt Maríam, et Joseph, et Infántem pósitum in præsépio, allelúja.
+
+**5** Et ipse Jesus \* erat incípiens quasi annórum trigínta, ut putabátur, fílius Joseph, allelúja.
+
+**Capitulum** *Gen. 49, 26*
+
+BENEDICTIONES patris tui confortátæ sunt benedictiónibus patrum ejus, donec veníret Desidérium cóllium æternórum: fiant in cápite Joseph, et in vértice Nazarǽi inter fratres suos.
+
+#### Hymnus
+
+CÆLITUM, Joseph, decus, atque nostræ
+Certa spes vitæ, columénque mundi,

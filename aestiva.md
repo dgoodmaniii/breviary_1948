@@ -15224,4 +15224,59 @@ ERgo spíritus est, qui vivíficat; spíritus enim facit viva membra: nec viva m
 
 ##### Lectio ix
 
-HÆC dicúntur, ut amémus unitátem et timeámus separatiónem. Nihil enim sic debet formidáre Christiánus quam separári a córpore Christi. Si enim separátur a córpore Christi, non est membrum
+HÆC dicúntur, ut amémus unitátem et timeámus separatiónem. Nihil enim sic debet formidáre Christiánus quam separári a córpore Christi. Si enim separátur a córpore Christi, non est membrum ejus: si non est membrum ejus, non vegetátur Spíritu ejus. Quisquis autem, inquit Apóstolus, Spíritum Christi non habet, hic non est ejus. Spíritus ergo est, qui vivíficat, caro autem non prodest quidquam. Verba, quæ ego locútus sum vobis, spíritus et vita sunt. Quid est, Spíritus et vita sunt? Spiritáliter intelligénda sunt. Intellexísti spiritáliter? Spíritus et vita sunt. Intellexísti carnáliter? Étiam sic illa spíritus et vita sunt, sed tibi non sunt.
+
+**Te Deum laudámus.** [7]
+
+{RUBRIC: Vésperæ de sequénti Domínica, Commemorátio præcedéntis diéi infra Octávam.}
+
+## Dominica infra Octav. Ssmi Corporis Christi
+
+*quæ est II post Pentec. — Semiduplex*
+
+{RUBRIC: Ómnia dicúntur ut in Festo Ssmi Córporis Christi. 294, præter sequéntia:}
+
+### In I Vesperis
+
+**Capit.** *1 Joann. 3, 13-14*
+
+CArissimi: Nolíte mirári, si odit vos mundus. Nos scimus, quóniam translati sumus de morte ad vitam, quóniam dilígimus fratres.
+
+##### Hymnus
+
+PAnge, lingua, gloriósi
+Córporis mystérium,
+Sanguinísque pretiósi,
+Quem in mundi prétium
+Fructus ventris generósi
+Rex effúdit géntium.
+
+Nobis datus, nobis natus
+Ex intácta Vírgine,
+Et in mundo conversátus,
+Sparso verbi sémine,
+Sui moras incolátus
+Miro clausit órdine.
+
+In suprémæ nocte cœnæ
+Recúmbens cum frátribus,
+Observáta lege plene
+Cibis in legálibus,
+Cibum turbæ duodénæ
+Se dat suis mánibus.
+
+Verbum caro, panem verum
+Verbo carnem éfficit;
+Fitque sanguis Christi merum;
+Et si sensus déficit,
+Ad firmándum cor sincérum
+Sola fides súfficit.
+
+{RUBRIC: Sequens stropha, si coram Sanctíssimo expósito Offícium persolvátur, dícitur fléxis génibus.}
+
+Tantum ergo Sacraméntum
+Venerémur cérnui;
+Et antíquum documéntum
+Novo cedat rítui;
+Præstet fides suppleméntum
+Sénsuum deféctui.

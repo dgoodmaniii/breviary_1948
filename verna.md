@@ -41541,3 +41541,35 @@ CIBAVIT illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potávi
 **Capitulum** *Eccli. 39, 6*
 
 JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna est. ℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [33], sed loco últimi dícitur Psalmus 115 Crédidi ut ibídem pro II Vesperis notátur.}
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## II Aliæ Lectiones pro uno Martyre
+
+##### In I Nocturno
+
+{RUBRIC: De Expositióne sancti Ambrósii Epíscopi in Psalmum centésimum decimum octávum}
+
+{RUBRIC: Sermo 21}
+
+###### Lectio iv
+
+PRINCIPES persecúti sunt me gratis: et a verbis tuis trepidávit cor meum. Bene hoc Martyr dicit, quod injúste persecutiónum torménta sustíneat; qui nihil rapúerit, nullum violéntus oppresserit, nullíus sánguinem fúderit, nullíus torum putáverit esse violándum; qui nihil légibus débeat, et graviora latrónum sustinére cogátur supplícia; qui loquátur juste, et non audiátur; qui loquátur plena salútis, et impugnétur, ut possit dícere: Cum loquébar illis, impugnábant me gratis. Gratis ígitur persecutiónem pátitur, qui impugnátur sine crímine; impugnátur ut nóxius, cum sit in tali confessióne laudábilis; impugnátur quasi venéficus, qui in nómine Dómini gloriátur, cum piétas virtútum ómnium fundaméntum sit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+###### Lectio v
+
+VERE frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, cum fídei sit magíster. Verum, qui gratis impugnátur, fortis debet esse et constans. Quómodo ergo subtéxuit: Et a verbis tuis trepidávit cor

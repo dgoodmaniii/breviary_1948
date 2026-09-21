@@ -47795,3 +47795,49 @@ EGO mater pulchræ dilectiónis, et timóris, et agnitiónis, et sanctæ spei.
 ℣. Ora pro nobis, sancta Dei Génitrix. ℟. Ut digni efficiámur promissiónibus Christi.
 
 {RUBRIC: Ad Nunc dimittis Ant.} Sub tuum præsídium \* confúgimus, sancta Dei Génitrix: nostras deprecatiónes ne despícias in necessitátibus, sed a perículis cunctis líbera nos semper, Virgo gloriósa et benedícta.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+###### Oratio
+
+BEATÆ et gloriósæ semper Vírginis Maríæ, quǽsumus, Dómine, intercéssio gloriósa nos prótegat: et ad vitam perdúcat ætérnam. Per Dóminum.
+
+##### Ad Matutinum
+
+Ave María, ut supra.
+
+℣. Dómine, lábia mea apéries. ℟. Et os meum annuntiábit laudem tuam.
+
+℣. Deus, in adjutórium.
+
+**Invitat.** Ave, María, grátia plena; \* Dóminus tecum. **Ps. 94** Veníte, exsultémus.
+
+**Hymn.** Quem terra. [213]
+
+##### In Nocturno
+
+{RUBRIC: Antiphonæ et Psalmi ut in Communi Festorum beatæ Mariæ Virginis, scilicet:}
+
+{RUBRIC: Dominica, Feria II et V: De I Nocturno. [198]}
+
+{RUBRIC: Feria III et VI: De II Nocturno. [202]}
+
+{RUBRIC: Feria IV et Sabbato: De III Nocturno. [205]}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Pater noster secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+**Absolutio.** PRECIBUS et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne, benedícere. **Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+**Lectio i** *Eccli. 24, 11-13*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo, et dixit mihi: In Jacob inhábita, et in Israël hereditáre, et in eléctis meis mitte radíces. Tu autem, Dómine, miserére nobis. ℟. Deo grátias.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio: \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+℣. Jube, domne, benedícere. **Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.

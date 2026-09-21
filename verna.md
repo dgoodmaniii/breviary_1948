@@ -44632,4 +44632,38 @@ DE virgínibus præcéptum Dómini non hábeo: consílium autem do, tamquam mise
 
 VOLO autem vos sine sollicitúdine esse. Qui sine uxóre est, sollícitus est quæ Dómini sunt, quómodo pláceat Deo. Qui autem cum uxóre est, sollícitus est quæ sunt mundi, quómodo pláceat uxóri, et divísus est. Et múlier innúpta, et virgo cógitat quæ Dómini sunt, ut sit sancta córpore et spíritu. Quæ autem nupta est, cógitat quæ sunt mundi, quómodo pláceat viro. Porro hoc ad utilitátem vestram dico, non ut láqueum vobis injíciam, sed ad id, quod honéstum est, et quod facultátem prǽbeat sine impediménto Dóminum obsecrándi.
 
-℟. Diffúsa est grátia in lábiis tuis, \* Proptérea be-
+℟. Diffúsa est grátia in lábiis tuis, \* Proptérea benedíxit te Deus in ætérnum. (T. P. Allelúja.) ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Proptérea.
+
+**Bened.** Spíritus Sancti.
+
+###### Lectio iii
+
+SI quis autem turpem se vidéri exístimat super vírgine sua, quod sit superadúlta, et ita opórtet fíeri; quod vult fáciat: non peccat, si nubat. Nam qui státuit in corde suo firmus, non habens necessitátem, potestátem autem habens suæ voluntátis, et hoc judicávit in corde suo, serváre vírginem suam, bene facit. Igitur et qui matrimónio jungit vírginem suam, bene facit; et qui non jungit, mélius facit. Múlier alligáta est legi quanto témpore vir ejus vivit. Quod si dormíerit vir ejus, liberáta est: cui vult nubat, tantum in Dómino. Beátior autem erit, si sic permánserit, secúndum meum consílium; puto autem quod et ego Spíritum Dei hábeam.
+
+℟. Spécie tua et pulchritúdine tua \* Inténde, próspere procéde, et regna. (T. P. Allelúja.) ℣. Diffúsa est grátia in lábiis tuis, proptérea benedíxit te Deus in ætérnum. — Inténde. Glória Inténde.
+
+##### In II Nocturno
+
+**Ant.** Spécie tua \* et pulchritúdine tua inténde, próspere procéde, et regna. (T. P. Allelúja.)
+
+###### Psalmus 44
+
+ERUCTAVIT cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ, \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime,
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sǽculum sǽculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et casia a vestiméntis tuis, a dómibus ebúrneis: \* ex

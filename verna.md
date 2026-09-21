@@ -39137,3 +39137,23 @@ DEUS, qui nos beáti Bárnabæ Apóstoli tui méritis et intercessióne lætífi
 ℣. Diffúsa est grátia.
 
 **Oratio** Deus qui beátam, ut supra.
+
+##### In I Nocturno
+
+De Actibus Apostolórum
+
+**Lectio i** *Cap. 13, 43-52*
+
+CUM dimíssa esset synagóga, secúti sunt multi Judæórum et coléntium advenárum, Paulum et Bárnabam; qui loquéntes suadébant eis ut permanérent in grátia Dei. Sequénti vero sábbato pene univérsa cívitas convénit audíre verbum Dei. Vidéntes autem turbas Judǽi, repléti sunt zelo et contradicébant his, quæ a Paulo dicebántur, blasphemántes. Tunc constánter Paulus et Bárnabas dixérunt: Vobis oportébat primum loqui verbum Dei; sed, quóniam repéllitis illud et indígnos vos judicátis ætérnæ vitæ, ecce convértimur ad Gentes; sic enim præcépit nobis Dóminus: Pósui te in lucem géntium, ut sis in salútem usque ad extrémum terræ.
+
+℟. Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sæculum sæculi. — In.
+
+###### Lectio ii
+
+AUDIENTES autem gentes gavísæ sunt et glorificábant verbum Dómini, et credidérunt quotquot erant præordináti ad vitam ætérnam. Disseminabátur autem verbum Dómini per univérsam regiónem. Judǽi autem concitavérunt mulíeres religiósas et honéstas et primos civitátis, et excitavérunt persecutiónem in Paulum et Bárnabam, et ejecérunt eos de fínibus suis. At illi, excússo púlvere pedum in eos, venérunt Icónium. Discípuli quoque replebántur gáudio et Spíritu Sancto.
+
+℟. Tristítia vestra, allelúja, \* Convertétur in gáudium, allelúja, allelúja. ℣. Mundus autem gaudébit, vos vero contristabímini, sed tristítia vestra. — Convertétur.
+
+**Lectio iii** *Cap. 14, 1-3*
+
+FACTUM est autem Icónii, ut simul introírent in synagógam Judæórum et loqueréntur, ita ut créderet Judæórum et Græcórum copiósa multitúdo. Qui vero incréduli fuérunt Judǽi, suscitavérunt et ad iracúndiam concitavérunt ánimas géntium advérsus fratres. Multo ígitur témpore demoráti sunt fiduciáliter agéntes in Dómino, testimónium perhibénte verbo grátiæ suæ, dante signa et prodígia fíeri per manus eórum.

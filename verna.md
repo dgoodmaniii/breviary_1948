@@ -28743,4 +28743,16 @@ DEUS, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victó
 
 ###### Lectio iv
 
-CYRILLUS Alexandrínus, cujus præcónia non uníus tantum vel altérius sunt com-
+CYRILLUS Alexandrínus, cujus præcónia non uníus tantum vel altérius sunt comprobáta testimónio, sed étiam œcumenicórum Conciliórum Ephesíni et Chalcedonénsis actis celebráta, claris ortus paréntibus, ac Theóphili epíscopi Alexandríni nepos, adhuc adoléscens præcelléntis ingénii clara specímina dedit. Lítteris ac sciéntiis egrégie imbútus, ad Joánnem epíscopum Hierosolymitánum se cóntulit, ut in christiána fide perficerétur. Alexandríam deínde cum rediísset, Theóphilo vita functo, ad illíus sedem evéctus est: quo in múnere ita óptimi pastóris formam ab Apóstolo definítam constánter præ se tulit, ut sanctíssimi præsulis glóriam mérito sit adéptus.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+SALUTIS animárum zelo incénsus curas omnes inténdit, ut sibi commíssum gregem in fídei et morum integritáte serváret, atque a venenátis infidélium et hæreticórum páscuis defénderet. Hinc tum Nováti ásseclas e civitáte expélli, tum Judǽos qui furóre acti in cædem Christianórum conspiráverant, juxta leges puníri satégit. Singuláre vero Cyrílli pro cathólicæ fídei incolumitáte enítuit stúdium contra Nestórium Constantinopolitánum epíscopum, asseréntem Jesum Christum ex María Vírgine hóminem tantum et non Deum natum, eíque divinitátem pro méritis esse collátam; cujus emendatiónem cum frustra tentásset, eum sancto Cælestíno Pontífici máximo denuntiávit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+CÆLESTINI delegáta auctoritáte, Concílio Ephesíno præfuit, in quo hæresis Nestoriána pénitus proscrípta est, damnátus Nestórius et a sua Sede dejéctus, ac dogma cathólicum de una in Christo, eáque divína persóna, et divína gloriósæ Vírginis Maríæ maternitáte assértum; plaudénte pópulo univérso, qui incredíbili gáudio géstiens, collucéntibus fácibus domum dedúxit epíscopos. Sed

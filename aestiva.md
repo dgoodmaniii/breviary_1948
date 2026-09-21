@@ -15702,4 +15702,22 @@ PErcússit autem de viris Bethsamítibus, eo quod vidíssent arcam Dómini; et p
 
 ET factum est, ex qua die mansit arca Dómini in Cariathíarim, multiplicáti sunt dies (erat quippe jam annus vigésimus), et requiévit omnis domus Israël post Dóminum. Ait autem Sámuel ad univérsam domum Israël dicens: Si in toto corde vestro revertímini ad Dóminum, auférte deos aliénos de médio vestri Báalim et Astaroth et præparáte corda vestra Dómino et servíte ei soli, et éruet vos de manu Philísthiim. Abstulérunt ergo fílii Israël Báalim et Astaroth et serviérunt Dómino soli.
 
-℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de
+℟. Comedétis carnes, et saturabímini pánibus: \* Iste est panis, quem dedit vobis Dóminus ad vescéndum. ℣. Non Móyses dedit vobis panem de cælo, sed Pater meus dat vobis panem de cælo verum. — Iste est panis, quem dedit vobis Dóminus ad vescéndum.
+
+##### Lectio iii
+
+DIxit autem Sámuel: Congregáte univérsum Israël in Masphath, ut orem pro vobis Dóminum. Et convenérunt in Masphath hauserúntque aquam et effudérunt in conspéctu Dómini et jejunavérunt in die illa atque dixérunt ibi: Peccávimus Dómino. Judicavítque Sámuel fílios Israël in Masphath. Et audiérunt Philísthiim, quod congregáti essent fílii Israël in Masphath, et ascendérunt sátrapæ Philisthinórum ad Israël. Quod cum audíssent fílii Israël, timuérunt a fácie Philisthinórum. Dixerúntque ad Samuélem: Ne cesses pro nobis clamáre ad Dóminum Deum nostrum, ut salvet nos de manu Philisthinórum.
+
+℟. Respéxit Elías ad caput suum subcinerícium panem; qui surgens comédit et bibit: \* Et ambulávit in fortitúdine cibi illíus usque ad montem Dei. ℣. Si quis manducáverit ex hoc pane, vivet in ætérnum. — Et. Glória Patri. Et.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Sacraméntis}
+
+{RUBRIC: Liber 4, cap. 4}
+
+##### Lectio iv
+
+AUctor sacramentórum quis est, nisi Dóminus Jesus? De cælo ista sacraménta venérunt. Consílium enim omne de cælo est. Vere autem magnum est et divínum miráculum, quod pópulo pluit Deus manna de cælo, et non laborábat pópulus, et manducábat. Tu forte dicis: Meus panis est usitátus. Sed panis iste, panis est ante verba sacramentórum: ubi accésserit consecrátio, de pane fit caro Christi. Hoc ígitur astruámus. Quómodo potest, qui panis est, corpus esse Christi? Consecratióne. Consecrátio ígitur quibus verbis est, et cujus sermónibus? Dómini Jesu. Nam réliqua ómnia quæ dicúntur, laudem Deo déferunt, orátio præmíttitur pro pópulo, pro régibus, pro céteris: ubi venítur, ut conficiátur venerábile Sacraméntum, jam non suis sermónibus sacérdos, sed útitur sermónibus Christi.
+
+℟. Cœnántibus illis, accépit Jesus panem, et benedíxit, ac fregit, dedít-

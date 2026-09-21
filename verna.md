@@ -38970,4 +38970,20 @@ DEUS, qui beátum Norbértum, Confessórem tuum atque Pontíficem, verbi tui pr�
 
 ###### Lectio iv
 
-NORBERTUS, nobilíssimis paréntibus natus, adoléscens liberálibus disciplínis erudítus, in ipsa póstea imperatóris aula, spretis mundi illécebris, ecclesiásticæ milítiæ adscríbi vóluit. Sacris initiátus, rejéctis móllibus ac spléndidis véstibus, pellícea melóte indútus, prædicatióni verbi Dei se totum dedit. Abdicátis ecclesiásticis provéntibus satis amplis, et património in páuperes erogáto, semel in die sub vésperam solo cibo quadragesimáli utens, nudísque pédibus et lácera ve-
+NORBERTUS, nobilíssimis paréntibus natus, adoléscens liberálibus disciplínis erudítus, in ipsa póstea imperatóris aula, spretis mundi illécebris, ecclesiásticæ milítiæ adscríbi vóluit. Sacris initiátus, rejéctis móllibus ac spléndidis véstibus, pellícea melóte indútus, prædicatióni verbi Dei se totum dedit. Abdicátis ecclesiásticis provéntibus satis amplis, et património in páuperes erogáto, semel in die sub vésperam solo cibo quadragesimáli utens, nudísque pédibus et lácera veste sub brumáli rigóre incédens, miræ austeritátis vitam est aggréssus. Potens ígitur ópere et sermóne, innúmeros hæréticos ad fidem, peccatóres ad pœniténtiam, dissidéntes ad pacem et concórdiam revocávit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+CUM Laudúni esset, ab epíscopo rogátus ne a sua diœcési discéderet, desértum in ea locum, qui Præmonstrátus dicebátur, sibi delégit; ibíque, trédecim sóciis aggregátis, Præmonstraténsem órdinem instítuit, divínitus accépta per visum régula a sancto Augustíno. Cum vero ejus fama sanctitátis in dies magis augerétur, ac plúrimi ad eum quotídie discípuli convenírent, idem ordo ab Honório secúndo aliísque summis Pontifícibus confirmátus, ac plúribus ab eo monastériis ædificátis, mirífice propagátus est.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+ANTVERPIAM accersítus, in ea urbe Tanchelíni nefáriam hæresim profligávit. Prophético spíritu et miráculis cláruit. Archiepíscopus tandem (licet reluctans) Magdeburgénsis creátus, ecclesiásticam discíplinam, præsértim cœlibátum, constánter propugnávit. Rhemis in concílio Innocéntium secúndum egrégie adjúvit, et Romam cum áliis epíscopis proféctus, schisma Petri Leónis compréssit. Postrémo vir Dei, méritis et Spíritu Sancto plenus, Magdebúrgi obdormívit in Dómino, anno salútis millésimo centésimo trigésimo quarto, die sexta Júnii.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---

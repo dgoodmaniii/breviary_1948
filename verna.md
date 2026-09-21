@@ -25592,4 +25592,34 @@ NOLITE plures magístri fíeri, fratres mei, sciéntes quóniam majus judícium 
 
 #### Lectio ii
 
-ECCE et naves, cum magnæ sint, et a ventis válidis minéntur, circum-
+ECCE et naves, cum magnæ sint, et a ventis válidis minéntur, circum-feruntur a módico gubernáculo, ubi ímpetus dirigéntis volúerit. Ita et lingua módicum quidem membrum est, et magna exáltat. Ecce quantus ignis quam magnam silvam incéndit! Et lingua ignis est, univérsitas iniquitátis.
+
+℟. Vidérunt te aquæ, Deus, vidérunt te aquæ, et timuérunt: \* Multitúdo sónitus aquárum vocem dedérunt nubes, allelúja, allelúja, allelúja. ℣. Illuxérunt coruscatiónes tuæ orbi terræ: vidit et commóta est terra. — Multitúdo.
+
+{RUBRIC: In omnibus Officiis ritus simplicis:} Glória. Multitúdo.
+
+#### Lectio iii
+
+LINGUA constitúitur in membris nostris, quæ máculat totum corpus, et inflámmat rotam nativitátis nostræ inflammáta a gehénna. Omnis enim natúra bestiárum, et vólucrum, et serpéntium, et ceterórum domántur, et dómita sunt a natúra humána: linguam autem nullus hóminum domáre potest: inquiétum malum, plena venéno mortífero. In ipsa benedícimus Deum et Patrem: et in ipsa maledícimus hómines, qui ad similitúdinem Dei facti sunt. Ex ipso ore procédit benedíctio et maledíctio.
+
+{RUBRIC: In Officio feriali:} Te Deum.
+
+{RUBRIC: In Officiis novem Lectionum:}
+
+℟. Narrábo nomen tuum frátribus meis, allelúja: \* In médio Ecclésiæ laudábo te, allelúja, allelúja. ℣. Confitébor tibi in pópulis, Dómine, et psalmum dicam tibi in géntibus. — In. Glória Patri. In.
+
+**Ad Bened. Ant.** Obtulérunt discípuli \* Dómino partem piscis assi, et favum mellis, allelúja, allelúja.
+
+**Ad Magnif. Ant.** Non enim loquétur \* a semetípso: sed quæcúmque áudiet, loquétur: et quæ ventúra sunt, annuntiábit vobis, allelúja.
+
+---
+
+## Feria Sexta
+
+De Epístola beáti Jacóbi Apóstoli
+
+#### Lectio i
+
+*Cap. 4, 1-15*
+
+UNDE bella et lites in vobis? Nonne hinc? ex concupiscéntiis vestris, quæ mílitant in membris vestris? Concupíscitis, et non habétis: occíditis, et zelátis, et non potéstis adipísci: litigátis, et belligerátis, et non habétis, propter quod non postu-

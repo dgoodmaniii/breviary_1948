@@ -49366,4 +49366,50 @@ PRÆTENDE, Dómine, fámulis et famulábus tuis déxteram cæléstis auxílii: u
 
 {RUBRIC: Sicubi recitentur in Choro, congrue dicuntur post Matutinum et Laudes diei flexis genibus, dicto} Benedicámus Dómino et Deo grátias; {RUBRIC: extra Chorum pro temporis opportunitate.}
 
-{RUBRIC: Litaniæ similiter, quando dicendæ sunt sine Psalmis Pænitentialibus, dicuntur, extra Processionem, flexis genibus in Choro post Matutinum et Laudes diei, dicto} Benedicámus Dómino et Deo
+{RUBRIC: Litaniæ similiter, quando dicendæ sunt sine Psalmis Pænitentialibus, dicuntur, extra Processionem, flexis genibus in Choro post Matutinum et Laudes diei, dicto} Benedicámus Dómino et Deo {RUBRIC: grátias; extra Chorum vero pro temporis opportunitate. Sed neque in Choro neque extra Chorum anticipari possunt de sero.}
+
+**Ant.** Ne reminiscáris.
+
+###### Psalmus 6
+
+DOMINE, ne in furóre tuo árguas me, \* neque in ira tua corrípias me.
+
+Miserére mei, Dómine, quóniam infírmus sum: \* sana me, Dómine, quóniam conturbáta sunt ossa mea.
+
+Et ánima mea turbáta est valde: \* sed tu, Dómine, úsquequo?
+
+Convértere, Dómine, et éripe ánimam meam: \* salvum me fac propter misericórdiam tuam.
+
+Quóniam non est in morte qui memor sit tui: \* in inférno autem quis confitébitur tibi?
+
+Laborávi in gémitu meo, lavábo per síngulas noctes lectum meum: \* lácrimis meis stratum meum rigábo.
+
+Turbátus est a furóre óculus meus: \* inveterávi inter omnes inimícos meos.
+
+Discédite a me, omnes, qui operámini iniquitátem: \* quóniam exaudívit Dóminus vocem fletus mei.
+
+Exaudívit Dóminus deprecatiónem meam, \* Dóminus oratiónem meam suscépit.
+
+Erubéscant, et conturbéntur veheménter omnes inimíci mei: \* convertántur et erubéscant valde velóciter.
+
+Glória Patri.
+
+###### Psalmus 31
+
+BEATI quorum remíssæ sunt iniquitátes: \* et quorum tecta sunt peccáta.
+
+Beátus vir, cui non imputávit Dóminus peccátum, \* nec est in spíritu ejus dolus.
+
+Quóniam tácui, inveteravérunt ossa mea, \* dum clamárem tota die.
+
+Quóniam die ac nocte graváta est super me manus tua: \* convérsus sum in ærúmna mea, dum confígitur spina.
+
+Delíctum meum cógnitum tibi feci: \* et injustítiam meam non abscóndi.
+
+Dixi: Confitébor advérsum me injustítiam meam Dómino: \* et tu remisísti impietátem peccáti mei.
+
+Pro hac orábit ad te omnis sanctus, \* in témpore opportúno.
+
+Verúmtamen in dilúvio aquárum multárum, \* ad eum non approximábunt.
+
+Tu es refúgium meum a tribulatióne, quæ circúmdedit me: \* exsultátio mea, érue me a circumdántibus me.

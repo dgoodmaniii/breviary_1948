@@ -2587,3 +2587,63 @@ In memória ætérna erit justus: \* ab auditióne mala non timébit.
 Parátum cor ejus speráre in Dómino, confirmátum est cor ejus: \* non commovébitur donec despíciat inimícos suos.
 
 Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet: \* desidérium peccatórum períbit.
+
+**Ant.** Qui timet Dóminum, in mandátis ejus cupit nimis.
+
+**Ant.** Sit nomen Dómini.
+
+###### Psalmus 112
+
+LAUDATE, púeri, Dóminum: \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sæculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem:
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Sit nomen Dómini benedíctum in sæcula.
+
+**Ant.** Deus autem noster.
+
+###### Psalmus 113
+
+IN éxitu Israël de Ægýpto, \* domus Jacob de pópulo bárbaro:
+
+Facta est Judǽa sanctificátio ejus, \* Israël potéstas ejus.
+
+Mare vidit, et fugit: \* Jordánis convérsus est retrórsum.
+
+Montes exsultavérunt ut aríetes, \* et colles sicut agni óvium.
+
+Quid est tibi, mare, quod fugísti: \* et tu, Jordánis, quia convérsus es retrórsum?
+
+Montes, exsultástis sicut aríetes, \* et colles, sicut agni óvium?
+
+A fácie Dómini mota est terra, \* a fácie Dei Jacob.
+
+Qui convértit petram in stagna aquárum, \* et rupem in fontes aquárum.
+
+Non nobis, Dómine, non nobis: \* sed nómini tuo da glóriam.
+
+Super misericórdia tua, et veritáte tua: \* nequándo dicant gentes: Ubi est Deus eórum?
+
+Deus autem noster in cælo: \* ómnia quæcúmque vóluit, fecit.
+
+Simulácra géntium argéntum, et aurum, \* ópera mánuum hóminum.
+
+Os habent, et non loquéntur: \* óculos habent, et non vidébunt.
+
+Aures habent, et non áudient: \* nares habent, et non odorábunt.
+
+Manus habent, et non palpábunt: pedes habent, et non ambulábunt: \*

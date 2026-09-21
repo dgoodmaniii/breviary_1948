@@ -17987,3 +17987,21 @@ IRátus autem indignatióne David advérsus hóminem illum nimis, dixit ad Natha
 ##### Lectio iii
 
 QUam ob rem non recédet gládius de domo tua usque in sempitérnum, eo quod despéxeris me et túleris uxórem Uríæ Hethǽi ut esset uxor tua. Itaque hæc dicit Dóminus: Ecce ego suscitábo super te malum de domo tua, et tollam uxóres tuas in óculis tuis et dabo próximo tuo, et dórmiet cum uxóribus tuis in óculis solis hujus. Tu enim fecísti abscóndite, ego autem fáciam verbum istud in conspéctu omnis Israël et in conspéctu solis. Et dixit David ad Nathan: Peccávi Dómino. Dixítque Nathan ad David: Dóminus quoque tránstulit peccátum tuum: non moriéris. Verúmtamen, quóniam blasphemáre fecísti inimícos Dómini propter verbum hoc, fílius qui natus est tibi, morte moriétur. Et revérsus est Nathan in domum suam. Percússit quoque Dóminus párvulum, quem pepérerat uxor Uríæ David, et desperátus est. Deprecatúsque est David Dóminum pro párvulo, et jejunávit David jejúnio et ingréssus seórsum jácuit super terram.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Apológia David}
+
+##### Lectio iv
+
+*Apolog. 1, c. 2*
+
+NUsquísque nostrum per síngulas horas quam multa delínquit! nec tamen unusquísque de plebe peccátum suum confiténdum putat. Ille rex, tantus ac potens, ne exíguo quidem moménto manére penes se delícti passus est consciéntiam; sed, præmatúra confessióne atque imménso dolóre, réddidit peccátum suum Dómino. Quem mihi nunc fácile repérias honorátum ac dívitem, qui, si arguátur alicújus culpæ reus, non moléste ferat? At ille régio clarus império, tot divínis probátus oráculis, cum a priváto hómine corriperétur, quod gráviter deliquísset, non indignátus infrémuit, sed conféssus ingémuit culpæ dolóre.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio v
+
+DEnique Dóminum dolor íntimi movit afféctus, ut Nathan díceret: Quóniam pœnítuit te, et Dóminus ábstulit peccátum tuum. Matúritas ítaque véniæ, profúndam regis fuísse pœniténtiam declarávit, quæ tanti erróris offénsam tradúxerit. Alii hómines cum a sacerdótibus corripiúntur, peccátum suum íngravant, dum negáre cúpiunt aut deféndere; ibíque eórum lapsus est major, ubi sperátur corréctio. Sancti autem Dómini, qui consummáre pium certámen géstiunt, et cúrrere cursum salútis, sícubi forte ut hómines corrúerint, natúræ magis fragilitáte quam peccándi libídine, acrióres ad curréndum resúrgunt, pudóris stímulo majóra reparántes certámina; ut non solum nullum attulísse æstimétur lapsus impediméntum, sed étiam velo-

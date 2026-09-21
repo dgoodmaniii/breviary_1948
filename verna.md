@@ -50149,3 +50149,65 @@ Jesu, María, Joseph, in pace vobíscum dórmiam et requiéscam.
 {RUBRIC: Deinde} Kýrie, eléison, Christe, eléison. Kýrie, eléison.
 
 {RUBRIC: Postea} Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Réquiem ætérnam dona ei, Dómine. ℟. Et lux perpétua lúceat ei.
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimam ejus.
+
+℣. Requiéscat in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+TIBI, Dómine, comméndamus ánimam fámuli tui N. (fámulæ tuæ N.), ut defúnctus (-a) sæculo tibi vivat: et quæ per fragilitátem humánæ conversatiónis peccáta commísit, tu vénia misericordíssimæ pietátis abstérge. Per Christum Dóminum nostrum. ℟. Amen.
+
+{EDITORIAL NOTE: Book page [269] is physically absent from the source scan (brev_2-27.pdf jumps directly from page [268] to page [270]). The following section heading, opening versicles, and Oratio, up to "Per eúmdem Christum Dóminum nostrum. ℟. Amen." below, are supplied from the textually identical passage in hiemalis.md (Pars Hiemalis), since this liturgical formula is invariant between the two volumes; this is confirmed by the exact match of the sentence resuming at the top of page [270]. Direct transcription from verna's own page images resumes with the rubric "Tunc, dicto ab uno e Clericis astantibus..." below.}
+
+---
+
+# Formula
+
+## Ad Impertiendam Indulgentiam Plenariam in Articulo Mortis
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+**Ant.** Ne reminiscáris, Dómine, delícta fámuli tui (ancíllæ tuæ), neque vindíctam sumas de peccátis ejus.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Salvum (-am) fac servum tuum (ancíllam tuam). ℟. Deus meus, sperántem in te.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus. **Oratio**
+
+CLEMENTISSIME Deus, Pater misericordiárum et Deus totíus consolatiónis, qui néminem vis períre in te credéntem atque sperántem: secúndum multitúdinem miseratiónum tuárum réspice propítius fámulum tuum N., quem (fámulam tuam N., quam) tibi vera fides et spes christiána comméndant. Vísita eum (eam) in salutári tuo, et, per Unigéniti tui passiónem et mortem, ómnium ei delictórum suórum remissiónem et véniam cleménter indúlge; ut ejus ánima in hora éxitus sui te júdicem propitiátum invéniat, et, in sánguine ejúsdem Fílii tui ab omni mácula ablúta, transíre ad vitam mereátur perpétuam. Per eúmdem Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Tunc, dicto ab uno e Clericis astantibus} Confíteor, {RUBRIC: Sacerdos dicat} Misereátur {RUBRIC: et} Indulgéntiam, {RUBRIC: ac deinde:}
+
+DOMINUS noster Jesus Christus, Fílius Dei vivi, qui beáto Petro Apóstolo suo dedit potestátem ligándi atque solvéndi, per suam piíssimam misericórdiam recípiat confessiónem tuam, et restítuat tibi stolam primam, quam in baptísmate recepísti. Et ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo. In nómine Patris, et Fílii, ✠ et Spíritus Sancti. ℟. Amen.
+
+Per sacrosáncta humánæ reparatiónis mystéria, remíttat tibi omnípotens Deus omnes præséntis et futúræ vitæ pœnas, paradísi portas apériat et ad gáudia sempitérna perdúcat. ℟. Amen.
+
+Benedícat te omnípotens Deus Pater, et Fílius, ✠ et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: Si vero Infirmus sit adeo morti proximus, ut neque confessionis generalis faciendæ, neque præmissarum precum recitandarum suppetat tempus, statim sacerdos benedictionem ei impertiatur, dicendo:}
+
+Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo. In nómine Patris, et Fílii, ✠ et Spíritus Sancti. ℟. Amen.
+
+{RUBRIC: Per sacrosancta... etc., ut supra.}
+
+{RUBRIC: Benedicat te... ut supra.}
+
+{RUBRIC: In casu vero necessitatis sufficit dicere:}
+
+Ego facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo, et benedíco te. In nómine Patris et Fílii, ✠ et Spíritus Sancti. ℟. Amen.
+
+{RUBRIC: Quando hujusmodi Benedictio Apostolica pluribus simul infirmis impertitur, omnia dicantur semel ut supra, singulari tantum numero in pluralem immutato.}

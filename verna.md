@@ -30273,4 +30273,16 @@ PRÆSTA, quǽsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua
 
 ###### Lectio iv
 
-LICINIO imperatóre et Agricoláo præside, ad Sebásten Arméniæ urbem, quadragínta mílitum fides in Jesum Christum et fortitúdo in cruciátibus perferéndis enítuit. Qui sǽpius in horríbilem cárcerem detrúsi, vinculísque constrícti, cum ora ipsórum lapídibus contúsa fuíssent, híemis témpore frigidíssimo, nudi sub apérto áëre supra stagnum rigens pernoctáre jussi sunt, ut frígore congeláti necaréntur. Una autem erat ómnium orátio: Quadragínta in stádium ingréssi sumus, quadragínta item, Dómine, corona donémur, ne una quidem huic número desit. Est in honóre hic númerus, quem tu quadragínta
+LICINIO imperatóre et Agricoláo præside, ad Sebásten Arméniæ urbem, quadragínta mílitum fides in Jesum Christum et fortitúdo in cruciátibus perferéndis enítuit. Qui sǽpius in horríbilem cárcerem detrúsi, vinculísque constrícti, cum ora ipsórum lapídibus contúsa fuíssent, híemis témpore frigidíssimo, nudi sub apérto áëre supra stagnum rigens pernoctáre jussi sunt, ut frígore congeláti necaréntur. Una autem erat ómnium orátio: Quadragínta in stádium ingréssi sumus, quadragínta item, Dómine, corona donémur, ne una quidem huic número desit. Est in honóre hic númerus, quem tu quadragínta diérum jejúnio decorásti, per quem divína lex ingréssa est in orbem terrárum; Elías quadragínta diérum jejúnio Deum quǽrens, ejus visiónem consecútus est. Et hæc quidem illórum erat orátio.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+###### Lectio v
+
+CETERIS autem custódibus somno déditis, solus vigilábat jánitor, qui et illos orántes et luce circumfúsos, et quosdam e cælo descendéntes Angelos tamquam a Rege missos, qui corónas trigínta novem milítibus distribúerent, íntuens, ita secum loquebátur: Quadragínta hi sunt; quadragésimi coróna ubi est? Quæ dum cogitáret, unus ex illo número, cui ánimus ad frigus feréndum defécerat, in próximum tepefáctum bálneum desíliens, Sanctos illos summo dolóre affécit. Verum Deus illórum preces írritas esse non est passus; nam rei eventum admirátus jánitor, mox custódibus e somno excitátis, detractísque sibi véstibus, ac se christiánum esse clara voce proféssus, Martýribus se adjúnxit. Cum vero prǽsidis satéllites janitórem quoque christiánum esse cognovíssent, bacíllis comminúta ómnium eórum crura fregérunt.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut herédes.
+
+###### Lectio vi
+
+IN eo supplício mórtui sunt omnes, præter Melithónem natu mínimum. Quem cum præsens mater ejus, fractis crúribus, adhuc vivéntem vidísset, sic cohortáta est: Fili, paulísper sústine; ecce Christus ad jánuam stat ádjuvans te. Cum vero relíquórum córpora plaustris impóni cérneret, ut in rogum inferréntur, ac fílium suum relínqui, quod speráret ímpia turba púerum, si vixísset, ad idolórum cultum revocári posse; ipso in húmeros subláto, sancta mater vehícula Mártyrum corpóribus onústa strénue prosequebátur. In

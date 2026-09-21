@@ -34521,4 +34521,24 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-CATHARINA virgo Senénsis, piis orta paréntibus, beáti Domínici hábitum quem Soróres de Pœniténtia gestant, impetrávit. Summa ejus fuit abstinéntia et admirábilis vitæ austéritas. Cum Pisis morarétur, die Domí-
+CATHARINA virgo Senénsis, piis orta paréntibus, beáti Domínici hábitum quem Soróres de Pœniténtia gestant, impetrávit. Summa ejus fuit abstinéntia et admirábilis vitæ austéritas. Cum Pisis morarétur, die Domínico, refécta cibo cælésti et in éxtasim rapta, vidit Dóminum crucifíxum magno cum lúmine advenéntem, et ex ejus vúlnerum cicatrícibus quinque rádios ad quinque loca sui córporis descendéntes. Mystérium advértens, Dóminum precáta, ne cicatríces apparérent, contínuo rádii, colóre sanguíneo mutáto in spléndidum, in formam puræ lucis pervenérunt ad manus, pedes et cor ejus. Tantus vero erat dolor quem sensibíliter patiebátur, licet vúlnerum cruénta signa non apparérent, ut nisi Deus minuísset, brevi se créderet moritúram. Doctrína ejus infúsa, non acquisíta fuit. Aveniónem ad Gregórium Papam undécimum profécta, illi votum ejus de peténda Urbe, soli Deo notum, sese divínitus cognovísse monstrávit, et auctor fuit ut Póntifex ad Sedem Románam personáliter accéderet. Anno ætátis suæ tértio círciter et trigésimo migrávit ad Sponsum. Quam Pius secúndus sanctárum Vírginum número adscrípsit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Símile erit regnum cælórum, de Communi Virginum 1 loco. [141]}
+
+{RUBRIC: Feria II Rogationum et in Vigilia Ascensionis ix Lectio de Homilia Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam, allelúja.
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut, qui beátæ Catharínæ Vírginis tuæ natalítia cólimus; ánnua solemnitáte lætémur, et tantæ virtútis proficiámus exémplo. Per Dóminum.
+
+{RUBRIC: Vesperæ de Ss. Apostolis Philippo et Jacobo ut infra. 901 Commemoratio præcedentis.}

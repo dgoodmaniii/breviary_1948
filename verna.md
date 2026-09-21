@@ -26763,4 +26763,24 @@ HANC ecce vobis, caríssimi, secúndam scribo epístolam, in quibus vestram éxc
 
 #### Lectio ii
 
-UNUM vero hoc non láteat vos, caríssimi, quia unus dies apud Dóminum sicut mille anni, et mille anni sicut dies unus. Non tardat Dóminus promissiónem suam, sicut quidam existimant: sed patiénter agit propter vos, nolens áliquos períre, sed omnes ad pœniténtiam revérti. Advéniet autem dies Dómini ut fur: in quo cæli magno ímpetu tránsiet, eleménta vero calóre solvéntur, terra autem, et quæ in ipsa sunt ópera, exuréntur. Cum ígitur hæc ómnia dissolvénda sint, quales opórtet vos esse in sanctis conversatiónibus et pietátibus, exspectántes et properántes in advéntum diéi Dómini, per quem cæli ardéntes solvéntur, et eleménta ignis ardóre tabéscent? Novos vero cælos et novam terram se-
+UNUM vero hoc non láteat vos, caríssimi, quia unus dies apud Dóminum sicut mille anni, et mille anni sicut dies unus. Non tardat Dóminus promissiónem suam, sicut quidam existimant: sed patiénter agit propter vos, nolens áliquos períre, sed omnes ad pœniténtiam revérti. Advéniet autem dies Dómini ut fur: in quo cæli magno ímpetu tránsiet, eleménta vero calóre solvéntur, terra autem, et quæ in ipsa sunt ópera, exuréntur. Cum ígitur hæc ómnia dissolvénda sint, quales opórtet vos esse in sanctis conversatiónibus et pietátibus, exspectántes et properántes in advéntum diéi Dómini, per quem cæli ardéntes solvéntur, et eleménta ignis ardóre tabéscent? Novos vero cælos et novam terram se-cúndum promíssa ipsíus exspectámus, in quibus justítia hábitat.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.
+
+#### Lectio iii
+
+PROPTER quod, caríssimi, hæc exspectántes, satágite immaculáti et invioláti ei inveníri in pace. Et Dómini nostri longanimitátem, salútem arbitrémini: sicut et caríssimus frater noster Paulus secúndum datam sibi sapiéntiam scripsit vobis, sicut et in ómnibus epístolis, loquens in eis de his, in quibus sunt quǽdam difficília intelléctu, quæ indócti et instábiles deprávant, sicut et céteras Scriptúras, ad suam ipsórum perditiónem. Vos ígitur, fratres, præsciéntes custodíte, ne insipiéntium erróre tradúcti excidátis a própria firmitáte. Créscite vero in grátia, et in cognitióne Dómini nostri, et Salvatóris Jesu Christi. Ipsi glória et nunc, et in diem æternitátis. Amen.
+
+℟. Exaltáre, Dómine, allelúja, \* In virtúte tua, allelúja. ℣. Eleváta est magnificéntia tua super cælos, Deus. — In. Glória Patri. In.
+
+#### In II Nocturno
+
+De Sermóne sancti Leónis Papæ
+
+{RUBRIC: Sermo 2 de Ascensione Dom.}
+
+#### Lectio iv
+
+QUOD itaque Redemptóris nostri conspícuum fuit, in sacraménta transívit: et ut fides excelléntior esset ac firmior, visióni doctrína succéssit, cujus auctoritátem supérnis illumináta rádiis credéntium corda sequeréntur. Hanc fidem ascensióne Dómini auctam, et Spíritus Sancti múnere roborátam, non víncula, non cárceres, non exsília, non fames, non ignis, non laniátus ferárum, nec exquisíta persequéntium crudelitátibus supplícia terruérunt. Pro hac fide per univérsum mundum non solum viri, sed étiam féminæ; nec tantum impúbes púeri, sed étiam téneræ vírgines usque ad effusiónem sui sánguinis decertárunt. Hæc fides dæmónia ejécit, ægritúdines depúlit, mórtuos suscitávit.
+
+℟. Tempus est, ut revértar ad eum, qui me misit, dicit Dóminus: nolíte con-

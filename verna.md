@@ -26403,4 +26403,50 @@ UNDE beatíssimi Apóstoli, omnésque discípuli, qui et de éxitu crucis fúera
 
 #### Lectio vi
 
-QUIA ígitur Christi ascénsio, nostra provéctio est; et quo præcéssit glória cápitis, eo spes vocátur et córporis: dignis, dilectíssimi, exsultémus gáudiis, et pia gratiárum actióne lætémur. Hódie enim non solum paradísi possessóres firmáti sumus, sed étiam cælórum in Christo supérna penetrávimus: amplióra adépti per ineffábilem Christi grátiam, quam per diáboli amiserámus invídiam. Nam quos viruléntus inimícus primi habitáculi fe-
+QUIA ígitur Christi ascénsio, nostra provéctio est; et quo præcéssit glória cápitis, eo spes vocátur et córporis: dignis, dilectíssimi, exsultémus gáudiis, et pia gratiárum actióne lætémur. Hódie enim non solum paradísi possessóres firmáti sumus, sed étiam cælórum in Christo supérna penetrávimus: amplióra adépti per ineffábilem Christi grátiam, quam per diáboli amiserámus invídiam. Nam quos viruléntus inimícus primi habitáculi felicitáte dejécit, eos sibi concorporátos Dei Fílius ad déxteram Patris collocávit: cum quo vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sæcula sæculórum. Amen.
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+**Ant.** Nimis exaltátus est, \* allelúja: super omnes deos, allelúja.
+
+#### Psalmus 96
+
+DOMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Nimis exaltátus est, allelúja: super omnes deos, allelúja.
+
+**Ant.** Dóminus in Sion, \* allelúja: magnus et excélsus, allelúja.
+
+#### Psalmus 98
+
+DOMINUS regnávit, irascántur pópuli: \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus: \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno: quóniam terríbile, et sanctum est: \* et

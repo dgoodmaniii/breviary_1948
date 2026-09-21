@@ -43514,4 +43514,38 @@ ECCE sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus
 
 {RUBRIC: Tempore Paschali}
 
-℟. br. Amávit eum Dóminus, et ornávit eum,
+℟. br. Amávit eum Dóminus, et ornávit eum, \* Allelúja, allelúja. Amávit. ℣. Stolam glóriæ índuit eum. Allelúja, allelúja. Glória Patri. Amávit. ℣. Elégit eum Dóminus sacerdótem sibi, allelúja. ℟. Ad sacrificándum ei hóstiam laudis, allelúja.
+
+##### Ad Sextam
+
+**Capit.** *Eccli. 44, 20 et 22*
+
+NON est invéntus símilis illi, qui conserváret legem Excélsi: ídeo jurejurándo fecit illum Dóminus créscere in plebem suam.
+
+℟. br. Elégit eum Dóminus \* Sacerdótem sibi. Elégit. ℣. Ad sacrificándum ei hóstiam laudis. Sacerdótem. Glória Patri. Elégit. ℣. Tu es sacérdos in ætérnum. ℟. Secúndum órdinem Melchísedech.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Elégit eum Dóminus sacerdótem sibi, \* Allelúja, allelúja. Elégit. ℣. Ad sacrificándum ei hóstiam laudis. Allelúja, allelúja. Glória Patri. Elégit. ℣. Tu es sacérdos in ætérnum, allelúja. ℟. Secúndum órdinem Melchísedech, allelúja.
+
+##### Ad Nonam
+
+**Capit.** *Eccli. 45, 19-20*
+
+FUNGI sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+℟. br. Tu es sacérdos \* In ætérnum. Tu. ℣. Secúndum órdinem Melchísedech. In. Glória Patri. Tu. ℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+{RUBRIC: Tempore Paschali}
+
+℟. br. Tu es sacérdos in ætérnum, \* Allelúja, allelúja. Tu. ℣. Secúndum órdinem Melchísedech. Allelúja, allelúja. Glória Patri. Tu. ℣. Justum dedúxit Dóminus per vias rectas, allelúja. ℟. Et osténdit illi regnum Dei, allelúja.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis [84], sed loco ultimi dicitur Psalmus 131 Memento, ut ibidem pro II Vesperis notatur.}
+
+℣. Justum dedúxit Dóminus per vias rectas. (T. P. Allelúja.) ℟. Et osténdit illi regnum Dei. (T. P. Allelúja.)
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum. (T. P. Allelúja.)
+
+{RUBRIC: Sequens Antiphona dicitur ad Magnificat in II Vesperis pro solis Summis Pontificibus. Si vero agenda sit Commemoratio alterius Summi Pontificis, sumitur Antiphona Amavit, ut supra.}

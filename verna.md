@@ -35593,4 +35593,28 @@ IN lege præcéptum erat ut constituerémur civitátes refugiórum, ut, qui quom
 
 **Lectio viii**
 
-HÆC cum scírent Sancti, ejúsmodi tenuérunt suæ conversatiónis institútum. Quæ enim nunc præcépit Dóminus, éadem quoque ante suum in carne advéntum locútus est in Sanctis; et hoc institútum hómines ad perfectiónem ducit. Nam quod Deus jússerit, id
+HÆC cum scírent Sancti, ejúsmodi tenuérunt suæ conversatiónis institútum. Quæ enim nunc præcépit Dóminus, éadem quoque ante suum in carne advéntum locútus est in Sanctis; et hoc institútum hómines ad perfectiónem ducit. Nam quod Deus jússerit, id omníno faciéndum est. Ideóque et ipsum Verbum propter nos homo factum, non indígnum putávit, cum quæererétur, quemádmodum et nos, abscóndere se; et cum persecutiónem paterétur, fúgere, et insídias declináre: cum autem a se definítum tempus ipse adduxísset, in quo corporáliter pro ómnibus pati volébat, ultro seípsum trádidit insidiántibus.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus, allelúja. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: Feria II Rogationum et in Vigília Ascensiónis ix Lectio de Homilía Feriæ et fit ejus Com. ad Laudes, alias}
+
+**Lectio ix**
+
+AT vero sancti hómines cum hanc quoque formam a Salvatóre didicíssent, (ab ipso enim et ántea et semper omnes docebántur) advérsus persecutóres ut legítime certárent, fugiébant, et ab illis quæsíti se abscondébant. Cum enim præstitúti sibi a divína providéntia témporis finem ignorárent, nolébant insidiántibus se témere trádere: sed contra, cum scírent quod scriptum est, in mánibus Dei esse hóminum sortes, et Dóminum mortificáre et vivificáre; pótius in finem usque perseverábant, circumeúntes, ut ait Apóstolus, in melótis et péllibus caprínis, egéntes, angustiáti, in solitúdinibus errántes, et in spelúncis et cavérnis terræ laténtes, quoad vel definítum mortis tempus veníret, vel qui tempus ipsum definíerat, Deus cum eis loquerétur, et insidiántes cohibéret, aut certe persecutóribus eos tráderet, utcúmque illi placuísset.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus, allelúja.
+
+###### Oratio
+
+{RUBRIC: C 2}
+
+EXAUDI, quǽsumus, Dómine, preces nostras, quas in beáti Athanásii Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}

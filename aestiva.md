@@ -6298,3 +6298,73 @@ KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
 Credo in Deum {RUBRIC: secréto usque ad} ℣. Carnis resurrectiónem. ℟. Vitam ætérnam. Amen. ℣. Benedíctus es, Dómine, Deus patrum nostrórum. ℟. Et laudábilis et gloriósus in sæcula. ℣. Benedicámus Patrem et Fílium cum Sancto Spíritu. ℟. Laudémus, et superexaltémus eum in sæcula. ℣. Benedíctus es, Dómine, in firmaménto cæli. ℟. Et laudábilis, et gloriósus, et superexaltátus in sæcula. ℣. Benedícat et custódiat nos omnípotens et miséricors Dóminus. ℟. Amen. ℣. Dignáre, Dómine, nocte ista. ℟. Sine peccáto nos custodíre. ℣. Miserére nostri, Dómine. ℟. Miserére nostri. ℣. Fiat misericórdia tua, Dómine, super nos. ℟. Quemádmodum sperávimus in te. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum.
+
+Orémus. **Oratio**
+
+VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab ea longe repélle: Angeli tui sancti hábitent in ea, qui nos in pace custódiant; et benedíctio tua sit super nos semper. Per Dóminum nostrum. ℟. Amen.
+
+℣. Dóminus vobíscum.
+
+℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+**Antiphona finalis B. M. V.**
+
+℣. Divínum auxílium.
+
+Pater, Ave et Credo.
+
+---
+
+# Feria Quarta
+
+## Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+### In Officio feriali
+
+**Invitat.** Deum magnum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte.
+
+#### Hymnus
+
+RERUM Creátor óptime,
+Rectórque noster, áspice:
+Nos a quiéte nóxia
+Mersos sopóre líbera.
+
+Te, sancte Christe, póscimus,
+Ignósce culpis ómnibus:
+Ad confiténdum súrgimus,
+Morásque noctis rúmpimus.
+
+Mentes manúsque tóllimus,
+Prophéta sicut nóctibus
+Nobis geréndum præcipit,
+Paulúsque gestis cénsuit.
+
+Vides malum, quod fécimus:
+Occúlta nostra pándimus:
+Preces geméntes fúndimus,
+Dimítte quod peccávimus.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Speciósus forma \* præ fíliis hóminum, diffúsa est grátia in lábiis tuis.
+
+### Psalmus 44, i
+
+ERUCTAVIT cor meum verbum bonum: \* dico ego ópera mea Regi.

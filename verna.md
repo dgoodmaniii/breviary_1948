@@ -43577,3 +43577,35 @@ HOMINES dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes 
 ##### Pro Confessore non Pont.
 
 ℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. (T. P. Allelúja.) ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+###### Lectio iii
+
+SED illi viri misericórdiæ sunt, quorum pietátes non defuérunt: cum sémine eórum pérmanent bona, heréditas sancta nepótes eórum, et in testaméntis stetit semen eórum. Et fílii eórum propter illos usque in ætérnum manent: semen eórum et glória eórum non derelinquétur. Córpora ipsórum in pace sepúlta sunt, et nomen eórum vivit in generatiónem et generatiónem. Sapiéntiam ipsórum narrent pópuli, et laudem eórum núntiet Ecclésia.
+
+##### Pro Confessore Pontifice
+
+℟. Jurávit Dóminus, et non pænitébit eum: \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. (T. P. Allelúja.) ℣. Dixit Dóminus Dómino meo, Sede a dextris meis. — Tu. Glória Patri. Tu.
+
+##### Pro Confessore non Pont.
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum: \* Et invéntus est in número Sanctórum. (T. P. Allelúja.) ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. Glória Patri. Et.
+
+---
+
+## II Aliæ Lectiones pro Confessore Pont.
+
+##### In II Nocturno
+
+Sermo sancti Máximi Epíscopi
+
+{RUBRIC: Homilía 59, de S. Eusebio 2}
+
+###### Lectio iv
+
+BEATI Patris N. mérita, jam in tuto pósita, secúri magnificémus; qui, gubernáculum fídei viríliter tenens, ánchoram spei tranquílla jam in statióne compósuit, et plenam cæléstibus divítiis et ætérnis mércibus navem optáto in líttore collocávit; qui contra omnes adversários scutum timóris Dei tamdiu infatigábiliter ténuit, donec ad victóriam perveníret. Quid enim fuit totus vitæ illíus cursus, nisi uníus cum vígili hoste conflíctus?
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. (T. P. Allelúja.) ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+###### Lectio v
+
+QUANTIS hic cæcis, a via veritátis errántibus et de summa jam in profúndum rupe pendéntibus, amíssum réddidit visum; et illum, quo Christus vi-

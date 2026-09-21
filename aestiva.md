@@ -3965,3 +3965,67 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 **Benedictio** Dóminus nos benedícat, et ab omni malo deféndat, et ad vitam perdúcat ætérnam. Et fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
 
 {RUBRIC: Deinde dícitur tantum} Pater noster {RUBRIC: secréto, nisi sequátur ália Hora.}
+
+## Ad Tertiam
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+#### Hymnus
+
+NUNC, Sancte, nobis, Spíritus,
+Unum Patri cum Fílio,
+Dignáre promptus íngeri
+Nostro refúsus péctori.
+
+Os, lingua, mens, sensus, vigor
+Confessiónem pérsonent,
+Flamméscat igne cáritas,
+Accéndat ardor próximos.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Ant.** Illuminátio mea.
+
+### Psalmus 26, i
+
+DOMINUS illuminátio mea, et salus mea, \* quem timébo?
+
+Dóminus protéctor vitæ meæ, \* a quo trepidábo?
+
+Dum apprópiant super me nocéntes, \* ut edant carnes meas:
+
+Qui tríbulant me inimíci mei, \* ipsi infirmáti sunt, et cecidérunt.
+
+Si consístant advérsum me castra, \* non timébit cor meum.
+
+Si exsúrgat advérsum me prælium, \* in hoc ego sperábo.
+
+Unam pétii a Dómino, hanc requíram, \* ut inhábitem in domo Dómini ómnibus diébus vitæ meæ:
+
+Ut vídeam voluptátem Dómini, \* et vísitem templum ejus.
+
+Quóniam abscóndit me in tabernáculo suo: \* in die malórum protéxit me in abscóndito tabernáculi sui.
+
+In petra exaltávit me: \* et nunc exaltávit caput meum super inimícos meos.
+
+Circuívi, et immolávi in tabernáculo ejus hóstiam vociferatiónis: \* cantábo, et psalmum dicam Dómino.
+
+### Psalmus 26, ii
+
+EXAUDI, Dómine, vocem meam, qua clamávi ad te: \* miserére mei, et exáudi me.
+
+Tibi dixit cor meum, exquisívit te fácies mea: \* fáciem tuam, Dómine, requíram.
+
+Ne avértas fáciem tuam a me: \* ne declínes in ira a servo tuo.
+
+Adjútor meus esto: \* ne derelínquas me, neque despícias me, Deus, salutáris meus.
+
+Quóniam pater meus, et mater mea dereliquérunt me: \* Dóminus autem assúmpsit me.
+
+Legem pone mihi, Dómine, in via tua: \* et dírige me in sémitam rectam propter inimícos meos.

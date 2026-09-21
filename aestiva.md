@@ -17313,3 +17313,27 @@ HIsce vero malis véluti in cúmulum accédit cum eórum ignávia atque socórdi
 ET sane illud Apóstoli: Ubi abundávit delíctum, superabundávit grátia, áliquo pacto ad hanc quoque ætátem nostram describéndam accommodáre licet: nam, aucta ádmodum perversitáte hóminum, mirífice item, Spíritu Sancto afflánte, númerus fidélium utriúsque sexus augétur, qui alacrióre ánimo pro tot illátis injúriis divíno Cordi satisfácere student, immo étiam se ipsos Christo víctimas offérre non dúbitant. Etenim quæ usque adhuc memorávimus si quis secum ánimo réputet amánter eadémque véluti in medúllis defíxa hábeat, fíeri profécto non potest quin is non tam ab omni peccáto tamquam summo malo abhórreat atque abstíneat, quam se totum Dei voluntáti permíttat, et læsum divínæ Majestátis honórem, cum continénter orándo, tum afflictatiónibus sponte suscéptis ærumnísque, si quæ incíderint, patiénter tolerátis, tum tota demum vita hoc expiatiónis stúdio exigénda, resarcíre conténdat.
 
 ℟. Omnes gentes quascúmque fecísti vénient \* Et adorábunt coram te, Dómine. ℣. Et glorificábunt nomen tuum quóniam magnus es tu, et fáciens mirabília. — Et. Glória Patri. Et.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+
+*Cap. 19, 31-37*
+
+IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce córpora sábbato, erat enim magnus dies ille sábbati, rogavérunt Pilátum ut frangeréntur eórum crura et tolleréntur. Et réliqua.
+
+{RUBRIC: Homilía sancti Cyrílli Epíscopi Alexandríni}
+
+{RUBRIC: Com. in Joann. lib. 12, cap. 19}
+
+NOn hæc ait beátus Evangelísta, quasi pietátem ullam efferátis et crudélibus Judǽis tríbuat, sed ut osténdat stulte eos et imperíte excoláre cúlicem, et camélum deglutíre, sicut a Christo dictum est. Gravíssima enim et immánia scélera pro níhilo dúcere comperiúntur: mínima vero et exília caute admodum ac sollícite obsérvant, suam utróbique pandéntes inscítiam. Quod in promptu est osténdere. Ecce enim Christo interfécto sábbati honórem magni fáciunt, et incredíbili audácia, violáto legis auctóre, pietátem erga legem præ se ferunt.
+
+℟. Ego si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia.
+
+##### Lectio viii
+
+MAgnum autem illíus præcípue sábbati diem cólere símulant, qui magnæ diéi Dóminum interemérunt, et grátiam se solis dignam flágitant, ut eórum nempe crura frangántur, intolerábili dolóre acerbiórem morte ipsa perníciem prope jam mórtuis moliéntes. Venérunt ergo mílites, et primi quidem fregérunt crura, et altérius qui crucifíxus est cum eo. Judæórum petitióni mílites obsecúti, qui símili crudelitátis furóre laborábant, duórum quidem latrónum, quippe qui vivi adhuc repérti essent, crura confríngunt. Sed, cum Jesum inclinásse caput comperíssent, et jam expirásse putárent, frustra ejus crura confríngi existimant, sed, cum adhuc mórtuum esse nonníhil diffidérent, láncea latus ejus perfódiunt, unde cruor aqua mixtus scatúriit, quod eulógiæ mýsticæ et sancti baptísmatis imágo quædam erat atque primítiæ.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Chri-

@@ -27469,4 +27469,28 @@ IN illo ítaque nostri géneris córpore nos Christi mors vivificávit, nos resu
 
 #### Lectio vi
 
-DE vítiis nostris scalam nobis fácimus, si vítia ipsa calcámus. Nam cum bonitátis auctóre non ascéndit malítia, nec cum Fílio Vírginis libído atque luxúria. Non, inquam, ascéndunt vítia post virtútum paréntem, peccáta post justum, nec infirmitátes ac morbi possunt ire post médicum. Igitur, si intráre ipsíus médici regnum vólumus, prius vúlnera nostra curémus. Ordinémus et custodiámus in nobis statum utriúsque substántiæ; ne ánimam, nobiliórem útique hóminis portiónem, tártaro pars devólvat inférior sed secum pótius cælo sanctificátum corpus acquírat
+DE vítiis nostris scalam nobis fácimus, si vítia ipsa calcámus. Nam cum bonitátis auctóre non ascéndit malítia, nec cum Fílio Vírginis libído atque luxúria. Non, inquam, ascéndunt vítia post virtútum paréntem, peccáta post justum, nec infirmitátes ac morbi possunt ire post médicum. Igitur, si intráre ipsíus médici regnum vólumus, prius vúlnera nostra curémus. Ordinémus et custodiámus in nobis statum utriúsque substántiæ; ne ánimam, nobiliórem útique hóminis portiónem, tártaro pars devólvat inférior sed secum pótius cælo sanctificátum corpus acquírat natúra gloriósior: ipso adjuvánte, qui vivit et regnat in sǽcula sæculórum. Amen.
+
+℟. Ascéndens Christus in altum, captívam duxit captivitátem, \* Dedit dona homínibus, allelúja, allelúja, allelúja. ℣. Ascéndit Deus in jubilatióne, et Dóminus in voce tubæ. — Dedit. Glória Patri. Dedit.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+*Cap. 15, 26-27; 16, 1-4*
+
+#### Lectio vii
+
+IN illo témpore: Dixit Jesus discípulis suis: Cum vénerit Paráclitus, quem ego mittam vobis a Patre, Spíritum veritátis, qui a Patre procédit, ille testimónium perhibébit de me. Et réliqua.
+
+De Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Tractatus 92 in Joánnem, circa medium}
+
+VENIT die Pentecóstes Spíritus Sanctus in centum vigínti hómines congregátos, in quibus et Apóstoli omnes erant: qui illo adimpléti, cum linguis ómnium géntium loqueréntur, plures ex his, qui áderant, tanto miráculo stupefácti (quandóquidem vidérunt, loquénte Petro, tam magnum atque divínum testimónium perhibéri de Christo, ut ille, qui occísus ab eis inter mórtuos deputabátur, resurrexísse et vívere probarétur) compúncti corde convérsi sunt, et tanti sánguinis, tam ímpie atque immániter fusi, indulgéntiam percepérunt, ipso redémpti sánguine, quem fudérunt.
+
+℟. Ego rogábo Patrem, et álium Paráclitum dabit vobis, \* Ut máneat vobíscum in ætérnum, Spíritum veritátis, allelúja. ℣. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. — Ut.
+
+#### Lectio viii
+
+CHRISTI enim sanguis sic in remissiónem peccatórum ómnium fusus est, ut ipsum étiam peccátum posset delére, quo fusus est. Hoc ergo íntuens Dóminus dicébat: Odio habuérunt me gratis: cum autem vénerit Paráclitus, ille testimónium perhibébit de me. Tamquam díceret: Odio me habuérunt, et occidérunt vidéntes; sed tale de me Paráclitus testimónium perhibébit, ut eos fáciat in me crédere non vidéntes. Et vos, inquit, testimónium perhibébitis quia ab inítio mecum estis. Perhibébit Spí-

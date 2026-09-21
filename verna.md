@@ -34112,3 +34112,45 @@ De Expositióne sancti Gregórii Papæ super Ezechiélem Prophétam
 SANCTA quátuor animália, quæ prophétiæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum dícitur: Quátuor fácies uni, et quátuor pennæ uni. Quid per fáciem, nisi notítia; et quid per pennas, nisi volátus exprímitur? Per fáciem quippe unusquísque cognóscitur: per pennas vero in altum ávium córpora sublevántur. Fácies ítaque ad fidem pértinet, penna ad contemplatiónem. Per fidem namque ab omnipoténti Deo cognóscimur, sicut ipse de suis óvibus dicit: Ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ. Qui rursus ait: Ego scio quos elégerim. Per contemplatiónem vero, qua super nosmetípsos tóllimur, quasi si in áëra levámur.
 
 ℟. Isti sunt agni novélli, qui annuntiavérunt, allelúja: modo venérunt ad fontes, \* Repléti sunt claritáte, allelúja, allelúja. ℣. In conspéctu Agni amícti sunt stolis albis, et palmæ in mánibus eórum. — Repléti. Glória Patri. Repléti.
+
+{RUBRIC: In III Nocturno Homilia in Ev. Designávit Dóminus, de Communi Evangelistar. [31]}
+
+###### Oratio
+
+DEUS, qui beátum Marcum Evangelístam tuum evangélicæ prædicatiónis grátia sublimásti: tríbue, quǽsumus; ejus nos semper et eruditióne profícere, et oratióne deféndi. Per Dóminum.
+
+{RUBRIC: Hodie qui non intersunt Processióni Litaniárum, dicant illas privátim post Laudes cum suis Précibus et Oratiónibus [258] sine Psalmis Pœnitentiálibus, étiam si hoc Festum transferátur in áliam diem.}
+
+{RUBRIC: Si Litániæ majóres occúrrant in die Paschæ, transferántur in Fériam III sequéntem.}
+
+{RUBRIC: In Vésperis Commemoratio sequentis.}
+
+---
+
+### Die 26 Aprilis
+
+#### Ss. Cleti et Marcellini
+
+{RUBRIC: Pontificum et Martyrum}
+
+{RUBRIC: Semiduplex [74]}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+GREGEM tuum, Pastor ætérne, placátus inténde: et per beátos Clétum et Marcellínum Mártyres tuos atque Summos Pontífices, perpétua protectióne custódi; quos totíus Ecclésiæ præstitísti esse pastóres. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+CLETUS Románus, patre Æmiliáno, de regióne quinta, e vico Patrício, imperatóribus Vespasiáno et Tito Ecclésiam gubernávit. Is ex præcépto Príncipis Apostolórum in Urbe vigínti quinque presbýteros ordinávit. Primus in lítteris verbis illis usus est: Salútem et apostólicam benedictiónem. Qui, Ecclésia óptime constitúta, cum ei præfuísset annos duódecim, menses septem, dies duos, Domitiáno imperatóre, secúnda post Nerónem persecutióne, martýrio coronátus est, et in Vaticáno juxta corpus beáti Petri sepúltus.
+
+℟. Lux perpétua lucébit Sanctis tuis, Dómine, \* Et ætérnitas témporum, allelúja, allelúja. ℣. Lætítia sempitérna erit super cápita eórum: gáudium et exsultatiónem obtinébunt. — Et.
+
+###### Lectio v
+
+MARCELLINUS Románus, ab anno ducentésimo nonagésimo sexto ad an-

@@ -23616,4 +23616,42 @@ IN córpore autem resúrgémus. Seminátur enim corpus animále, surgit corpus s
 
 #### Lectio iii
 
-ET quóniam sermo huc noster evásit, considerémus qua grátia secúndum Joánnem credíderint Apóstoli, qui gavísi sunt; secúndum Lucam quasi incréduli redarguántur: ibi Spíritum Sanctum accéperint, hic sedére in civitáte jubeántur, quoadúsque induántur virtúte ex alto. Et vidétur mihi ille quasi Apóstolus majóra et altióra tetigísse, hic sequéntia et humánis próxima: hic histórico usu circúitu, ille compéndio: quia et de illo dubitári non potest, qui testimónium pérhibet de iis, quibus ipse intérfuit, et verum est testimónium ejus: et ab hoc quoque, qui Evangelísta esse méruit, vel negligéntiæ, vel mendácii suspiciónem
+ET quóniam sermo huc noster evásit, considerémus qua grátia secúndum Joánnem credíderint Apóstoli, qui gavísi sunt; secúndum Lucam quasi incréduli redarguántur: ibi Spíritum Sanctum accéperint, hic sedére in civitáte jubeántur, quoadúsque induántur virtúte ex alto. Et vidétur mihi ille quasi Apóstolus majóra et altióra tetigísse, hic sequéntia et humánis próxima: hic histórico usu circúitu, ille compéndio: quia et de illo dubitári non potest, qui testimónium pérhibet de iis, quibus ipse intérfuit, et verum est testimónium ejus: et ab hoc quoque, qui Evangelísta esse méruit, vel negligéntiæ, vel mendácii suspiciónem æquum est propulsári. Et ídeo verum putámus utrúmque, non sententiárum varietáte, nec personárum diversitáte distínctum. Nam etsi primo Lucas eos non credidísse dicat, póstea tamen credidísse demónstrat: et si prima considerémus, contrária sunt; si sequéntia, certum est conveníre.
+
+Te Deum laudámus.
+
+**Ad Bened. Ant.** Stetit Jesus \* in médio discipulórum suórum, et dixit eis: Pax vobis, allelúja, allelúja.
+
+#### Oratio
+
+DEUS, qui Ecclésiam tuam novo semper fœtu multíplicas: concéde fámulis tuis; ut sacraméntum vivéndo téneant, quod fide percepérunt. Per Dóminum.
+
+**Ad Magnif. Ant.** Vidéte manus meas \* et pedes meos, quia ego ipse sum, allelúja, allelúja.
+
+---
+
+## Feria Quarta infra Octavam Paschæ
+
+{RUBRIC: Semiduplex 500}
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+**Absolutio** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 21, 1-14*
+
+IN illo témpore: Manifestávit se íterum Jesus discípulis ad mare Tiberíadis. Manifestávit autem sic: Erant simul Simon Petrus, et Thomas, qui dícitur Dídymus. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+{RUBRIC: Homilia 24 in Evangelia}
+
+LECTIO sancti Evangélii, quæ modo in áuribus vestris lecta est, fratres mei, quæstióne ánimum pulsat, sed pulsatióne sua vim discretiónis índicat. Quǽri étenim potest, cur Petrus, qui piscátor ante conversiónem fuit, post conversiónem ad piscatiónem rédiit: et cum Véritas dicat: Nemo mittens manum suam ad arátrum, et aspíciens retro, aptus est regno Dei: cur repétiit quod dereliquit? Sed si virtus discretiónis inspícitur, cítius vidétur: quia nimírum negótium, quod ante conversiónem sine peccáto éxstitit, hoc étiam post conversiónem repétere culpa non fuit.
+
+℟. Ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus: \* Allelúja,

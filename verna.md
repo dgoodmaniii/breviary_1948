@@ -33914,3 +33914,29 @@ SOTER, Fundis in Campánia natus, sancívit, ne sacræ vírgines vasa sacra et p
 ###### Lectio v
 
 CAJUS Dálmata, ex génere Diocletiáni imperatóris, constítuit ut his órdinum et honórum grádibus in Ecclésia ad episcopátum ascenderétur: Ostiárii, Lectóris, Exorcístæ, Acólythi, Subdiáconi, Diáconi, Presbýteri. Hic Diocletiáni crudelitátem in Christiános fúgiens, aliquámdiu in spelúnca delítuit; verum octo post annis una cum Gabíno fratre martýrii corónam consecútus est, cum sedísset annos duódecim, menses quátuor, dies quinque; creátis mense Decémbri presbýteris vigíntiquínque, diáconis octo, epíscopis quinque. Sepúltus est in cœmetério Callísti, décimo Kaléndas Maji. Ejus memóriam Urbánus octávus in Urbe renovávit, dirútam ecclésiam restítuit; título, statióne et ipsíus relíquiis decorávit.
+
+℟. In servis suis, allelúja, \* Consolábitur Deus, allelúja. ℣. Judicábit Dóminus pópulum suum, et in servis suis. — Consolábitur.
+
+###### Lectio vi
+
+Sermo sancti Ambrósii Epíscopi
+
+{RUBRIC: Sermo 22}
+
+DIGNUM et cóngruum est, fratres, ut post lætítiam Paschæ, quam in Ecclésia celebrávimus, gáudia nostra cum sanctis Mártyribus conferámus; et iis annuntiémus Domínicæ resurrectiónis glóriam, qui consórtes sunt Domínicæ passiónis. Qui enim sócii sunt contuméliæ, debent et partícipes esse lætítiæ. Ita enim dicit beátus Apóstolus: Sicut sócii passiónum estis, et resurrectiónis éritis; si tolerábimus, inquit, et conregnábimus. Qui ergo toleravérunt mala propter Christum, debent et glóriam habére cum Christo.
+
+℟. Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus \* In die solemnitátis et lætítiæ, allelúja. ℣. Quóniam confortávit seras portárum tuárum, benedíxit fílios tuos in te. — In. Glória Patri. In.
+
+---
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+SOTER, Fundis in Campánia natus, sancívit ne sacræ vírgines vasa sacra et pallas attíngerent, neve thuris ministério in ecclésia uteréntur. Idem státuit ut Christi corpus in Cœna Dómini sumerétur ab ómnibus, iis excéptis, qui propter grave peccátum id fácere prohiberéntur. Martýrio coronátus sub Marco Aurélio imperatóre, sepúltus est in cœmetério, quod póstea Callísti dictum est. Cajus Dálmata, ex génere Diocletiáni imperatóris, constítuit ut his órdinum et honórum grádibus in Ecclésia ad episcopátum ascenderétur: Ostiárii nempe, Lectóris, Exorcístæ, Acólythi, Subdiáconi, Diáconi, Presbýteri. Hic Diocletiáni crudelitátem in Christiános fúgiens, aliquámdiu in spelúnca delítuit; verum octo post annis una cum Gabíno fratre martýrii corónam consecútus, in cœmetério Callísti páriter sepúltus est.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Venit Jesus, de Comm. unius vel plurium Summorum Pontificum. [33¹]}

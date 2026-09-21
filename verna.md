@@ -37308,4 +37308,42 @@ GORDIANUS judex, cum ad eum Januárius presbýter, ut condemnarétur, sub Juliá
 
 ###### Oratio
 
-SANCTI Antoníni, Dómine, Confessóris tui atque Pontíficis méritis adjuvémur: ut, sicut te in illo mirábilem prædicámus, ita in nos misericór-
+SANCTI Antoníni, Dómine, Confessóris tui atque Pontíficis méritis adjuvémur: ut, sicut te in illo mirábilem prædicámus, ita in nos misericórdem fuísse gloriémur. Per Dóminum.
+
+{RUBRIC: Post Commemorationem Feriæ in II Rogationum et in Vigília Ascensiónis, fit Commemoratio Ss. Gordiani et Epimachi Mm.:}
+
+**Ant.** Fíliæ Jerúsalem, veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut, qui beatórum Mártyrum tuórum Gordiáni et Epímachi solémnia cólimus, eórum apud te intercessiónibus adjuvémur. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum, allelúja.
+
+---
+
+### Die 12 Maji
+
+#### Ss. Nerei, Achillei et Domitillæ Virg. atque Pancratii Mm.
+
+{RUBRIC: Semiduplex [74]}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+SEMPER nos, Dómine, Mártyrum tuórum Nérei, Achíllei, Domitíllæ atque Pancrátii fóveat, quǽsumus, beáta solémnitas: et tuo dignos reddat obséquio. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+NEREUS et Achílleus fratres, eunúchi Fláviæ Domitíllæ, a beáto Petro una cum ipsa ejúsque matre Plautílla baptizáti, cum Domitíllæ persuasíssent ut virginitátem suam Deo consecráret, ab ejus sponso Aureliáno tamquam christiáni accusáti, ob præcláram fídei confessiónem in Póntiam ínsulam relegántur. Ubi ad quæstiónem íterum vocáti et verbéribus cæsi, mox Tarracínam perdúcti, a Minúcio Rufo equúleo et flammis cruciáti, cum constánter negárent se, a sancto Petro Apóstolo baptizátos, ullis torméntis cogi posse, ut idólis immolárent, secúri percússi sunt. Quorum córpora ab Auspício, eórum discípulo et Domitíllæ educatóre, Romam deláta, via Ardeatína sepúlta sunt.

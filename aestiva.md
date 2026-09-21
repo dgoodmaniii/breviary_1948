@@ -18030,4 +18030,18 @@ PEccávit David, quod solent reges; sed pœniténtiam gessit, flevit, ingémuit,
 
 POrro non est locútus Absalom ad Amnon nec malum nec bonum; óderat enim Absalom Amnon, eo quod violásset Thamar sorórem suam. Factum est autem post tempus biénnii ut tonderéntur oves Absalom in Baálhasor, quæ est juxta Ephraim; et vocávit Absalom omnes fílios regis venítque ad regem et ait ad eum: Ecce tondéntur oves servi tui; véniat, oro, rex cum servis suis ad servum suum. Dixítque rex ad Absalom: Noli, fili mi, noli rogáre ut veniámus omnes et gravémus te. Cum autem cógeret eum, et noluísset ire, benedíxit ei.
 
-℟. Recordáre, Dómine, testaménti tui, et dic An-
+℟. Recordáre, Dómine, testaménti tui, et dic Angelo percutiénti: Cesset jam manus tua, \* Ut non desolétur terra, et ne perdas omnem ánimam vivam. ℣. Ego sum qui peccávi, ego qui iníque egi: isti qui oves sunt, quid fecérunt? Avertátur, óbsecro, furor tuus, Dómine, a pópulo tuo. — Ut.
+
+##### Lectio ii
+
+ET ait Absalom: Si non vis veníre, véniat, óbsecro, nobíscum saltem Amnon, frater meus. Dixítque ad eum rex: Non est necésse ut vadat tecum. Coégit ítaque Absalom eum et dimísit cum eo Amnon et univérsos fílios regis. Feceratque Absalom convívium quasi convívium regis. Præcéperat autem Absalom púeris suis dicens: Observáte: cum temuléntus fúerit Amnon vino, et díxero vobis: Percútite eum et interfícite; nolíte timére, ego enim sum qui præcípio vobis: roborámini et estóte viri fortes. Fecérunt ergo púeri Absalom advérsum Amnon sicut præcéperat eis Absalom. Surgentésque omnes fílii regis ascendérunt sínguli mulas suas et fugérunt.
+
+℟. Exaudísti, Dómine, oratiónem servi tui, ut ædificárem templum nómini tuo: \* Bénedic et sanctífica domum istam in sempitérnum, Deus Israël. ℣. Dómine, qui custódis pactum cum servis tuis, qui ámbulant coram te in toto corde suo. — Bénedic.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Bénedic.}
+
+##### Lectio iii
+
+CUmque adhuc pérgerent in itínere, fama pervénit ad David dicens: Percússit Absalom omnes fílios regis, et non remánsit ex eis saltem unus. Surréxit ítaque rex et scidit vestiménta sua et cécidit super terram, et omnes servi illíus, qui assistébant ei, sciderúnt vestiménta sua. Respóndens autem Jónadab, fílius Sémmaa, fratris David, dixit: Ne ǽstimet dóminus meus rex quod omnes púeri fílii regis occísi sint; Amnon solus mórtuus est, quóniam in ore Absalom erat pósitus ex die qua oppréssit Thamar sorórem ejus. Nunc ergo ne ponat dóminus meus rex super cor suum verbum istud dicens: Omnes fílii regis occísi sunt, quóniam Amnon solus mórtuus est. Fugit autem Absalom.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ intén-

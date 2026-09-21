@@ -34622,18 +34622,44 @@ DEUS, qui ineffábili providéntia beátum Joseph sanctíssimæ Genitrícis tuæ
 
 De libro Génesis
 
-**Lectio i** *Cap. 39, 1-6*
+#### Lectio i
+
+*Cap. 39, 1-6*
 
 IGITUR Joseph ductus est in Ægýptum, emítque eum Pútiphar eunúchus pharaónis, princeps exércitus, vir Ægýptius, de manu Ismaelitárum, a quibus perdúctus erat. Fuítque Dóminus cum eo, et erat vir in cunctis próspere agens: habitavítque in domo dómini sui, qui óptime nóverat Dóminum esse cum eo, et ómnia quæ géreret, ab eo dírigi in manu illíus. Invenítque Joseph grátiam coram dómino suo, et ministrábat ei: a quo præpósitus ómnibus gubernábat créditam sibi domum et univérsa quæ ei trádita fúerant; benedixítque Dóminus dómui Ægýptii propter Joseph, et multiplicávit tam in ǽdibus quam in agris cunctam ejus substántiam; nec quidquam áliud nóverat, nisi panem quo vescebátur. Erat autem Joseph pulchra fácie et decórus aspéctu.
 
 ℟. Clamávit pópulus ad regem, aliménta petens; \* Quibus ille respóndit: Ite ad Joseph, allelúja. ℣. Salus nostra in manu tua est: réspice nos tantum, et læti serviémus regi. — Quibus.
 
-**Lectio ii** *Cap. 41, 37-40*
+#### Lectio ii
+
+*Cap. 41, 37-40*
 
 PLACUIT pharaóni consílium, et cunctis minístris ejus; locutúsque est ad eos: Num inveníre potérimus talem virum, qui Spíritu Dei plenus sit? Dixit ergo ad Joseph: Quia osténdit tibi Deus ómnia quæ locútus es, numquid sapientiórem et consímilem tui inveníre pótero? Tu eris super domum meam, et ad tui oris impérium cunctus pópulus obédiet; uno tantum regni sólio te præcédam. Dixítque rursus phárao ad Joseph: Ecce constítui te super univérsam terram Ægýpti. Tulítque ánnulum de manu sua, et dedit eum in manu ejus; vestivítque eum stola býssina, et collo torquem áuream circumpósuit. Fecítque eum ascéndere super currum suum secúndum, clamánte præcóne ut omnes coram eo genuflécterent et præpósitum esse scirent univérsæ terræ Ægýpti.
 
 ℟. Fecit me Deus quasi patrem regis, et dóminum univérsæ domus ejus: \* Exaltávit me, ut salvos fáceret multos pópulos, allelúja. ℣. Veníte ad me, et ego dabo vobis ómnia bona Ægýpti, ut comedátis medúllam terræ. — Exaltávit.
 
-**Lectio iii**
+#### Lectio iii
 
-DIXIT quoque rex ad Joseph: Ego sum phárao: absque tuo império non movébit quisquam manum aut pedem in omni terra Ægýpti. Vertítque nomen ejus, et vocávit eum lingua Ægyptíaca Salvatórem mundi. Dedítque illi uxórem Aseneth, fíliam Putipháre sacerdótis Heliopóleos. Egréssus est ítaque Joseph ad terram Ægýpti (trigínta autem annórum erat quando stetit in conspéctu regis pharaónis), et circuívit omnes regiónes Ægýpti. Venítque fertílitas septem annórum: et in manípulos redáctæ
+DIXIT quoque rex ad Joseph: Ego sum phárao: absque tuo império non movébit quisquam manum aut pedem in omni terra Ægýpti. Vertítque nomen ejus, et vocávit eum lingua Ægyptíaca Salvatórem mundi. Dedítque illi uxórem Aseneth, fíliam Putipháre sacerdótis Heliopóleos. Egréssus est ítaque Joseph ad terram Ægýpti (trigínta autem annórum erat quando stetit in conspéctu regis pharaónis), et circuívit omnes regiónes Ægýpti. Venítque fertílitas septem annórum: et in manípulos redáctæ ségetes congregátæ sunt in hórrea Ægýpti. Omnis étiam frugum abundántia in síngulis úrbibus cóndita est. Tántaque fuit abundántia trítici, ut arénæ maris coæquarétur, et cópia mensúram excéderet.
+
+℟. Jam lætus móriar, quia vidi fáciem tuam, et supérstitem te relínquo. Non sum fraudátus aspéctu tuo: \* Insúper osténdit mihi Dóminus semen tuum, allelúja. ℣. Qui pascit me ab adolescéntia mea, benedícat púeris istis, et invocétur super eos nomen meum. — Insuper. Glória Patri. Insuper.
+
+#### In II Nocturno
+
+**Ant.** Angelus Dómini \* appáruit in somnis Joseph, dicens: Surge, et áccipe Púerum et Matrem ejus, et vade in terram Israël; defúncti sunt enim qui quærébant ánimam Púeri, allelúja.
+
+℣. Réspice de cælo, et vide, et vísita víneam istam, allelúja. ℟. Et pérfice eam, allelúja.
+
+Sermo sancti Bernardíni Senénsis
+
+Sermo de S. Joseph
+
+#### Lectio iv
+
+OMNIUM singulárium gratiárum álicui rationábili creatúræ communicatárum generális régula est, quod, quandocúmque divína grátia éligit áliquem ad áliquam grátiam singulárem, seu ad áliquem sublímem statum, ómnia charísmata donet, quæ illi persónæ sic eléctæ et ejus offício necessária sunt, atque illam copióse décorant. Quod máxime verificátum est in sancto Joseph, putatívo patre Dómini nostri Jesu Christi, et vero sponso Regínæ mundi et Dóminæ Angelórum; qui ab ætérno Patre eléctus est fidélis nutrítius atque custos principálium thesaurórum suórum, scílicet Fílii ejus et Sponsæ suæ: quod offícium fidelíssime prosecútus est. Cui proptérea Dóminus ait: Serve bone et fidélis, intra in gáudium Dómini tui.
+
+℟. Dedísti mihi protectiónem salútis tuæ et déxtera tua suscépit me: \* Protéctor meus et cornu salútis meæ et susceptor meus, allelúja. ℣. Ego protéctor tuus sum et merces tua magna nimis. — Protéctor.
+
+#### Lectio v
+
+SI compáres eum ad totam Ecclésiam Christi, nonne iste est homo eléctus et speciális, per quem et sub quo Christus est ordináte et honéste intro-

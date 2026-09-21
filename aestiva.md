@@ -17814,4 +17814,20 @@ ABner autem fílius Ner princeps exércitus Saul tulit Isbóseth fílium Saul, e
 
 *Cap. 3, 6-10*
 
-CUM ergo esset prǽlium inter domum Saul et domum David, Abner fílius Ner regébat domum Saul. Fúerat autem Sauli concubína nómine Respha, fília Aja. Dixítque Isbóseth ad Abner: Quare ingréssus es ad concubínam patris mei? Qui irátus nimis propter verba Isbóseth ait: Numquid caput
+CUM ergo esset prǽlium inter domum Saul et domum David, Abner fílius Ner regébat domum Saul. Fúerat autem Sauli concubína nómine Respha, fília Aja. Dixítque Isbóseth ad Abner: Quare ingréssus es ad concubínam patris mei? Qui irátus nimis propter verba Isbóseth ait: Numquid caput canis ego sum advérsum Judam hódie, qui fécerim misericórdiam super domum Saul patris tui et super fratres et próximos ejus, et non trádidi te in manus David? Et tu requisísti in me quod argúeres pro muliére hódie? Hæc fáciat Deus Abner et hæc addat ei, nisi, quómodo jurávit Dóminus David, sic fáciam cum eo, ut transferátur regnum de domo Saul, et elevétur thronus David super Israël et super Judam a Dan usque Bersabée.
+
+℟. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum: \* Tu exáudies de cælo, Dómine, et líbera eos de mánibus inimicórum suórum. ℣. Si peccáverit in te pópulus tuus, et convérsus égerit pæniténtiam, veniénsque oráverit in isto loco. — Tu.
+
+##### Lectio ii
+
+*Cap. 3, 12-21*
+
+MIsit ergo Abner núntios ad David pro se dicéntes: Cujus est terra? et ut loqueréntur: Fac mecum amicítias, et erit manus mea tecum et redúcam ad te univérsum Israël. Qui ait: Optime: ego fáciam tecum amicítias, sed unam rem peto a te dicens: Non vidébis fáciem meam, ántequam addúxeris Michol fíliam Saul; et sic vénies et vidébis me. Misit autem David núntios ad Isbóseth fílium Saul dicens: Redde uxórem meam Michol, quam despóndi mihi centum præpútiis Philísthiim. Misit ergo Isbóseth et tulit eam a viro suo Phálthiel, fílio Lais. Sequebatúrque eam vir suus plorans usque Bahúrim. Et dixit ad eum Abner: Vade et revértere. Qui revérsus est.
+
+℟. Factum est, dum tólleret Dóminus Elíam per túrbinem in cælum, \* Eliséus clamábat, dicens: Pater mi, pater mi, currus Israël, et auríga ejus. ℣. Cumque pérgerent, et incedéntes sermocinaréntur, ecce currus ígneus et equi ígnei divisérunt utrúmque, et ascéndit Elías per túrbinem in cælum. — Eliséus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Eliséus.}
+
+##### Lectio iii
+
+SErmónem quoque íntulit Abner ad senióres Israël dicens: Tam heri quam nudiustértius quærebátis David, ut regnáret super vos. Nunc ergo fácite, quóniam Dóminus locútus est ad David dicens: In manu servi mei David salvábo pópulum meum Israël de manu Philísthiim

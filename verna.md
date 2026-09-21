@@ -28576,3 +28576,37 @@ DA, quǽsumus, Ecclésiæ tuæ, miséricors Deus: ut Sancto Spíritu congregáta
 **Ad Magnif. Ant.** Paráclitus autem \* Spíritus Sanctus, quem mittet Pater in nómine meo, ille vos docébit ómnia, et súggeret vobis ómnia, quæcúmque díxero vobis, allelúja.
 
 ---
+
+## Sabbato Quatuor Temporum Pentecostes
+
+{RUBRIC: Semiduplex 656}
+
+℣. Repléti sunt omnes Spíritu Sancto, allelúja. ℟. Et cœpérunt loqui, allelúja.
+
+**Absol.** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio i
+
+*Cap. 4, 38-44*
+
+IN illo témpore: Surgens Jesus de synagóga, introívit in domum Simónis. Socrus autem Simónis tenebátur magnis fébribus. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 4, in cap. 4 Lucæ circa finem}
+
+VIDE cleméntiam Dómini Salvatóris: nec indignatióne commótus, nec scélere offénsus, nec injúria violátus Judǽam déserit: quin étiam ímmemor injúriæ, memor cleméntiæ, nunc docéndo, nunc liberándo, nunc sanándo, infídæ plebis corda demúlcet. Et bene sanctus Lucas virum a spíritu nequítiæ liberátum ante præmísit, et subdit féminæ sanitátem. Utrúmque enim sexum Dóminus curatúrus advénerat: sed prior sanári débuit, qui prior creátus est; nec prætermítti illa, quæ mobilitáte magis ánimi, quam pravitáte peccáverat.
+
+℟. Repléti sunt omnes Spíritu Sancto: et cœpérunt loqui, prout Spíritus Sanctus dabat éloqui illis; \* Et convénit multitúdo dicéntium, allelúja. ℣. Loquebántur váriis linguis Apóstoli magnália Dei. — Et convénit.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio ii
+
+SABBATO medicínæ Domínicæ ópera cœpta signíficat, ut inde nova creatúra cœperit, ubi vetus creatúra ante desívit: nec sub lege esse Dei Fílium, sed supra legem in ipso princípio designáret: nec solvi legem, sed impléri. Neque enim per legem, sed verbo factus est mundus, sicut légimus: Verbo Dómini cæli firmáti sunt. Non sólvitur ergo lex, sed implétur: ut fiat renovátio hóminis jam labéntis. Unde et Apóstolus ait: Exspoliántes vos véterem hóminem, indúite novum, qui secúndum Deum creátus est.
+
+℟. Jam non dicam vos servos, sed amícos meos: quia ómnia cognovístis, quæ operátus sum in médio vestri, allelúja: \* Ac-

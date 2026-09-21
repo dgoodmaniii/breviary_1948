@@ -19603,4 +19603,22 @@ ITAQUE, fratres, non sumus ancíllæ fílii, sed líberæ: qua libertáte Christ
 
 *Cap. 2, 13-25*
 
-IN illo témpore: Prope erat Pascha Judæórum, et ascéndit Jesus Jerosólymam: et invénit in
+IN illo témpore: Prope erat Pascha Judæórum, et ascéndit Jesus Jerosólymam: et invénit in templo vendéntes boves, et oves, et colúmbas. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 10 in Joánnem, post initium}
+
+QUID audívimus, fratres? Ecce templum illud figúra adhuc erat, et ejécit inde Dóminus omnes qui sua quærébant, qui ad núndinas vénerant. Et quæ ibi vendébant illi? Quæ opus habébant hómines in sacrifíciis illíus témporis. Novit enim cáritas vestra, quod sacrifícia illi pópulo pro ejus carnalitáte, et corde adhuc lapídeo, tália data sunt, quibus tenerétur, ne in idóla defiúeret: et immolábant ibi sacrifícia, boves, oves et colúmbas. Nostis, quia legístis.
+
+℟. Vos, qui transitúri estis Jordánem, ædificáte altáre Dómino \* De lapídibus, quos ferrum non tétigit: et offérte super illud holocáusta et hóstias pacíficas Deo vestro. ℣. Cumque intravéritis terram, quam Dóminus datúrus est vobis, ædificáte ibi altáre Dómino. — De.
+
+#### Lectio ii
+
+NON ergo magnum peccátum, si hoc vendébant in templo, quod emebátur, ut offerrétur in templo: et tamen ejécit inde illos. Quid si ibi ebriósos invenéret, quid fáceret Dóminus, si vendéntes ea quæ lícita sunt et contra justítiam non sunt (quæ enim honéste emúntur, non illícite vendúntur) éxpulit tamen, et non est passus domum oratiónis fíeri domum negotiatiónis?
+
+℟. Audi, Israël, præcépta Dómini, et ea in corde tuo quasi in libro scríbe: \* Et dabo tibi terram fluéntem lac et mel. ℣. Obsérva ígitur, et audi vocem meam: et inimícus ero inimícis tuis. — Et.
+
+#### Lectio iii
+
+SI negotiatiónis domus non debet fíeri domus Dei, potatiónis debet fíeri? Nos autem quando ista dícimus, strident déntibus suis advérsus nos: et consolátur nos Psalmus, quem audístis: Stridérunt in me déntibus suis. Nóvimus et nos audíre unde curémur: etsi ingeminántur flagélla Christo, quia flagellátur sermo ipsíus. Congregáta sunt, inquit, in me flagélla, et nesciébant. Flagellátus est flagéllis Judæórum: flagellátur blasphémiis falsórum Christianórum: multíplicant flagélla Dómino Deo suo, et né-

@@ -4598,7 +4598,7 @@ Amen.
 
 TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
 
-℟. br. In manus tuas, Dómine, \* Comméndo. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
 
 ℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
 
@@ -8084,3 +8084,65 @@ Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
 Mors peccatórum péssima: \* et qui odérunt justum, delínquent.
 
 Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.
+
+### Psalmus 60
+
+EXaudi, Deus, deprecatiónem meam: \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi: \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea: \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sæcula: \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam: \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in sæculum sæculi: \* ut reddam vota mea de die in diem.
+
+**Ant.** Immíttet Angelus Dómini in circúitu timéntium eum: et erípiet eos.
+
+#### Hymnus
+
+TE lucis ante términum,
+Rerum Creátor, póscimus,
+Ut pro tua cleméntia
+Sis præsul et custódia.
+
+Procul recédant sómnia,
+Et nóctium phantásmata,
+Hostémque nostrum cómprime,
+Ne polluántur córpora.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+**Capitulum** *Jer. 14, 9*
+
+TU autem in nobis es, Dómine, et nomen sanctum tuum invocátum est super nos: ne derelínquas nos, Dómine, Deus noster.
+
+℟. br. In manus tuas, Dómine, \* Comméndo spíritum meum. In manus. ℣. Redemísti nos, Dómine, Deus veritátis. Comméndo. Glória Patri. In manus.
+
+℣. Custódi nos, Dómine, ut pupíllam óculi. ℟. Sub umbra alárum tuárum prótege nos.
+
+**Ant.** Salva nos.
+
+### Canticum Simeonis
+
+*Luc. 2, 29-32*
+
+NUNC dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace:
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Glória Patri.

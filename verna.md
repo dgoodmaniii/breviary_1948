@@ -26992,3 +26992,45 @@ Sis meta nostris córdibus,
 Sis lacrimárum gáudium,
 Sis dulce vitæ prǽmium.
 Amen.
+
+℣. Ascéndit Deus in jubilatióne, allelúja. ℟. Et Dóminus in voce tubæ, allelúja.
+
+**Ad Bened. Ant.** Cum vénerit Paráclitus, \* quem ego mittam vobis Spíritum veritátis, qui a Patre procédit, ille testimónium perhibébit de me, allelúja.
+
+#### Oratio
+
+OMNIPOTENS sempitérne Deus: fac nos tibi semper et devótam gérere voluntátem; et majestáti tuæ sincéro corde servíre. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Octavæ:}
+
+**Ant.** Ascéndo ad Patrem meum, et Patrem vestrum: Deum meum, et Deum vestrum, allelúja.
+
+℣. Dóminus in cælo, allelúja. ℟. Parávit sedem suam, allelúja.
+
+#### Oratio
+
+CONCEDE, quǽsumus, omnípotens Deus: ut, qui hodiérna die Unigénitum tuum Redemptórem nostrum ad cælos ascendísse crédimus; ipsi quoque mente in cæléstibus habitémus. Per eúmdem Dóminum.
+
+## Ad Primam
+
+**Ant.** Viri Galilǽi, \* quid aspícitis in cælum? Hic Jesus, qui assúmptus est a vobis in cælum, sic véniet, allelúja.
+
+{RUBRIC: Psalmi ut in Festis, et ad absolutiónem Capítuli Léctio brevis Si quis lóquitur, ut infra ad Nonam.}
+
+## Ad Tertiam
+
+**Ant.** Cumque intueréntur \* in cælum eúntem illum, dixérunt, allelúja.
+
+**Capitulum** *1 Petri 4, 7-8*
+
+CARISSIMI: Estóte prudéntes, et vigiláte in oratiónibus. Ante ómnia autem mútuam in vobismetípsis caritátem contínuam habéntes, quia cáritas óperit multitúdinem peccatórum.
+
+**℟. br.** Ascéndit Deus in jubilatióne, \* Allelúja, allelúja. Ascéndit. ℣. Et Dóminus in voce tubæ. Allelúja, allelúja. Glória Patri. Ascéndit. ℣. Ascéndens Christus in altum, allelúja. ℟. Captívam duxit captivitátem, allelúja.
+
+## Ad Sextam
+
+**Ant.** Elevátis mánibus, \* benedíxit eis, et ferebátur in cælum, allelúja.
+
+**Capitulum** *1 Petri 4, 9-10*
+
+HOSPITALES ínvicem sine murmuratióne: unusquísque, sicut accépit grátiam, in altérutrum illam administrántes, sicut boni

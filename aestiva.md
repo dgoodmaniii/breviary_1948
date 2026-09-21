@@ -9930,3 +9930,74 @@ VISITA, quæsumus, Dómine, habitatiónem istam, et omnes insídias inimíci ab 
 ℣. Dóminus vobíscum.
 
 ℣. Benedicámus Dómino.
+
+**Benedictio** Benedícat et custódiat nos omnípotens et miséricors Dóminus, Pater, et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+**Antiphona finalis beátæ Maríæ Vírginis.**
+
+℣. Divínum auxílium.
+
+Pater noster, Ave María et Credo.
+
+---
+
+# FERIA SEXTA
+
+## Ad Matutinum
+
+Pater, Ave et Credo.
+
+℣. Dómine, lábia mea.
+
+℣. Deus, in adjutórium.
+
+### In Officio feriali
+
+**Invit.** Dóminum, Deum nostrum, \* Veníte, adorémus. **Ps. 94** Veníte. [3]
+
+#### Hymnus
+
+TU, Trinitátis Únitas,
+Orbem poténter quæ regis,
+Atténde laudis cánticum,
+Quod excubántes psállimus.
+
+Nam léctulo consúrgimus
+Noctis quiéto témpore,
+Ut flagitémus ómnium
+A te medélam vúlnerum.
+
+Quo fraude quidquid dæmonum
+In nóctibus delíquimus,
+Abstérgat illud cælitus
+Tuæ potéstas glóriæ.
+
+Ne corpus astet sórdidum,
+Nec torpor instet córdium,
+Ne críminis contágio
+Tepéscat ardor spíritus.
+
+Ob hoc, Redémptor, quǽsumus,
+Reple tuo nos lúmine,
+Per quod diérum círculis
+Nullis ruámus áctibus.
+
+\* Præsta, Pater piíssime,
+Patríque compar Unice,
+Cum Spíritu Paráclito
+Regnans per omne sæculum.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Suscitávit Dóminus \* testimónium in Jacob: et legem pósuit in Israël.
+
+### Psalmus 77, i
+
+ATtendite, pópule meus, legem meam: \* inclináte aurem vestram in verba oris mei.
+
+Apériam in parábolis os meum: \* loquar propositiónes ab inítio.
+
+Quanta audívimus et cognóvimus ea: \* et patres nostri narravérunt nobis.
+
+Non sunt occultáta a fíliis eórum, \* in generatióne áltera.

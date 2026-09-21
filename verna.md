@@ -27523,4 +27523,16 @@ Incipit Epístola cathólica beáti Judæ Apóstoli
 
 *Vers. 1-13*
 
-JUDAS, Jesu Christi servus, frater autem Jacóbi, his qui sunt in Deo Patre diléctis et Christo Jesu conser-
+JUDAS, Jesu Christi servus, frater autem Jacóbi, his qui sunt in Deo Patre diléctis et Christo Jesu conservátis et vocátis. Misericórdia vobis et pax et cáritas adimpleátur. Caríssimi, omnem sollicitúdinem fáciens scribéndi vobis de commúni vestra salúte, necésse hábui scríbere vobis déprecans supercertári semel tráditæ sanctis fídei. Subintroiérunt enim quidam hómines, qui olim præscrípti sunt in hoc judícium, ímpii, Dei nostri grátiam transferéntes in luxúriam, et solum Dominatórem et Dóminum nostrum Jesum Christum negántes.
+
+℟. Post passiónem suam per dies quadragínta appárens eis, et loquens de regno Dei, allelúja: \* Et, vidéntibus illis, elevátus est, allelúja: et nubes suscépit eum ab óculis eórum, allelúja. ℣. Et convéscens, præcépit eis ab Jerosólymis ne discéderent, sed exspectárent promissiónem Patris. — Et, vidéntibus.
+
+#### Lectio ii
+
+COMMONERE autem vos volo, sciéntes semel ómnia, quóniam Jesus pópulum de terra Ægýpti salvans, secúndo eos, qui non credidérunt, pérdidit: ángelos vero, qui non servavérunt suum principátum, sed dereliquérunt suum domicílium, in judícium magni diéi, vínculis ætérnis sub calígine reservávit. Sicut Sódoma et Gomórrha et finítimæ civitátes símili modo exfornicátæ, et abeúntes post carnem álteram, factæ sunt exémplum, ignis ætérni pœnam sustinéntes; simíliter et hi carnem quidem máculant, dominatiónem autem spernunt, majestátem autem blasphémant.
+
+℟. Omnis pulchritúdo Dómini exaltáta est super sídera: \* Spécies ejus in núbibus cæli, et nomen ejus in ætérnum pérmanet, allelúja. ℣. A summo cælo egréssio ejus, et occúrsus ejus usque ad summum ejus. — Spécies.
+
+#### Lectio iii
+
+CUM Michaël Archángelus cum diábolo dísputans altercarétur de Móysi córpore, non est ausus judícium inférre blasphémiæ, sed dixit: Imperet tibi Dóminus. Hi autem quæcúmque quidem ignórant, blasphémant: quæcúmque autem naturáliter, tamquam muta animália, norunt, in his corrumpúntur. Væ illis, quia in via Cain abiérunt, et erróre Bálaam mercéde effúsi sunt et in contradictióne Core periérunt! Hi sunt in épulis suis máculæ, convivántes sine

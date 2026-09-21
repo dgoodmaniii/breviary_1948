@@ -46003,4 +46003,34 @@ QUOTIESCUMQUE, fratres caríssimi, altáris vel templi festivitátem cólimus, s
 
 ###### Lectio v
 
-SED habitáculum cordis nostri evacuétur vítiis, et virtútibus repleátur; claudátur diábolo, et aperiátur Christo. Et ita laborémus, ut nobis bonórum óperum clávibus jánuam regni cæléstis aperíre possímus. Sicut enim malis opéribus, quasi quibúsdam
+SED habitáculum cordis nostri evacuétur vítiis, et virtútibus repleátur; claudátur diábolo, et aperiátur Christo. Et ita laborémus, ut nobis bonórum óperum clávibus jánuam regni cæléstis aperíre possímus. Sicut enim malis opéribus, quasi quibúsdam seris ac véctibus, vitæ nobis jánua cláuditur: ita, absque dúbio, bonis opéribus aperítur. Et ídeo, fratres caríssimi, unusquísque consíderet consciéntiam suam, et, quando se áliquo crímine vulnerátum esse cognóverit, prius oratiónibus, jejúniis vel eleemósynis stúdeat mundáre consciéntiam suam; et sic Eucharístiam præsúmat accípere.
+
+℟. O quam metuéndus est locus iste: \* Vere non est hic áliud, nisi domus Dei et porta cæli. (T. P. Allelúja.) ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+**Bened.** Ignem sui amóris.
+
+###### Lectio vi
+
+SI enim, agnóscens reátum suum, ipse se a divíno altári subtráxerit, cito ad indulgéntiam divínæ misericórdiæ pervéniet. Quia sicut, qui se exáltat, humiliábitur: ita, e contrário, qui se humíliat, exaltábitur. Qui enim, sicut dixi, agnóscens reátum suum, ipse se humíliter ab altári Ecclésiæ pro emendatióne vitæ removére volúerit, ab ætérno illo et cælésti convívio excommunicári pénitus non timébit.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino: \* Vere locus iste sanctus est, et ego nesciébam. (T. P. Allelúja.) ℣. Cumque evigilásset Jacob de somno, ait. — Vere. Glória Patri. Vere.
+
+##### In III Nocturno
+
+**Ant.** Qui hábitat \* in adjutório Altíssimi, in protectióne Dei cæli commorábitur. (T. P. Allelúja.)
+
+{RUBRIC: Quando hæc Antiphona dicitur integra, et illi in fine non additur Allelúja, tunc incipitur Psalmus idem a secundo Versu: Dicet Dómino.}
+
+###### Psalmus 90
+
+QUI hábitat in adjutório Altíssimi, \* in protectióne Dei cæli commorábitur.
+
+Dicet Dómino: Suscéptor meus es tu, et refúgium meum: \* Deus meus, sperábo in eum.
+
+Quóniam ipse liberávit me de láqueo venántium, \* et a verbo áspero.
+
+Scápulis suis obumbrábit tibi: \* et sub pennis ejus sperábis.
+
+Scuto circúmdabit te véritas ejus: \* non timébis a timóre noctúrno.
+
+A sagítta volánte in die, a negótio perambulánte in ténebris: \* ab incúrsu, et dæmónio meridiáno.

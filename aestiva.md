@@ -853,3 +853,73 @@ IN timóre incolátus vestri témpore conversámini: sciéntes quod non corrupti
 KYRIE, eléison. Christe, eléison. Kýrie, eléison.
 
 Pater noster {RUBRIC: secreto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo. ℣. Dómine, Deus virtútum, convérte nos. ℟. Et osténde fáciem tuam, et salvi érimus. ℣. Exsúrge, Christe, ádjuva nos. ℟. Et líbera nos propter nomen tuum. ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+{RUBRIC: Absolútis Précibus, vel, si Preces locum non hábeant, post Responsórium breve statim dícitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+{RUBRIC: Et dícitur Orátio convéniens.}
+
+{RUBRIC: Post Oratiónem additur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Deinde dícitur tantum Pater noster secréto, nisi sequátur ália Hora.}
+
+## Ad Vesperas
+
+Pater noster et Ave.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Deinde, sub congruentibus Antiphonis, dicúntur quinque Psalmi, prouti Offícium occúrrens réquirit.}
+
+{RUBRIC: Repetíta vero post últimum Psalmum Antíphona, dicúntur Capítulum, Hymnus et Versus, prouti Offícium occúrrens exígit.}
+
+#### In Officio dominicali
+
+{RUBRIC: In ómnibus Domínicis, extra Octávas Ssmi Córporis Christi ac Sacrat. Cordis Jesu. Capítulum, Hymnus et Versus ad I Vésperas e Sábbato, ad II Vésperas e Domínica, ut in Psaltério.}
+
+#### In Officio feriali
+
+{RUBRIC: In ómnibus Fériis, Capítulum, Hymnus et Versus de Feria curránti, ut in Psaltério.}
+
+{RUBRIC: Recitáto Versu, dícitur cum Antíphona convenienti sequens}
+
+##### Canticum B. Mariæ Virg.
+
+*Luc. 1, 46-55*
+
+MAGNIFICAT † ánima mea Dóminum:
+
+Et exsultávit spíritus meus \* in Deo, salutári meo.
+
+Quia respéxit humilitátem ancíllæ suæ: \* ecce enim, ex hoc beátam me dicent omnes generatiónes.
+
+Quia fecit mihi magna qui potens est: \* et sanctum nomen ejus.
+
+Et misericórdia ejus a progénie in progénies \* timéntibus eum.
+
+Fecit poténtiam in bráchio suo: \* dispérsit supérbos mente cordis sui.
+
+Depósuit poténtes de sede, \* et exaltávit húmiles.
+
+Esuriéntes implévit bonis: \* et dívites dimísit inánes.
+
+Suscépit Israël, púerum suum, \* recordátus misericórdiæ suæ.
+
+Sicut locútus est ad patres nostros, \* Abraham, et sémini ejus in sæcula.
+
+Glória Patri.
+
+{RUBRIC: Expléto Cántico ac repetíta Antíphona, statim dícitur:}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.

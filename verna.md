@@ -40490,4 +40490,58 @@ Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dóm
 
 O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
 
-Dirupísti víncula mea: \* tibi sacrificábo hóstiam
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**T. P. Ant.** In velaménto clamábant Sancti tui, Dómine, allelúja, allelúja, allelúja.
+
+**Ant.** Spíritus et ánimæ \* justórum, hymnum dícite Deo nostro, allelúja, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Dirupísti, Dómine, víncula mea: tibi sacrificábo hóstiam laudis.
+
+**Ant.** Eúntes ibant \* et flebant, mitténtes sémina sua.
+
+###### Psalmus 125
+
+IN converténdo Dóminus captivitátem Sion: \* facti sumus sicut consoláti:
+
+Tunc replétum est gáudio os nostrum: \* et lingua nostra exsultatióne.
+
+Tunc dicent inter gentes: \* Magnificávit Dóminus fácere cum eis.
+
+Magnificávit Dóminus fácere nobíscum: \* facti sumus lætántes.
+
+Convérte, Dómine, captivitátem nostram, \* sicut torrens in Austro.
+
+Qui séminant in lácrimis, \* in exsultatióne metent.
+
+Eúntes ibant et flebant, \* mitténtes sémina sua.
+
+Veniéntes autem vénient cum exsultatióne, \* portántes manípulos suos.
+
+**T. P. Ant.** Spíritus et ánimæ justórum, hymnum dícite Deo nostro, allelúja, allelúja.
+
+**Ant.** Fulgébunt justi \* sicut sol in conspéctu Dei, allelúja.
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Ant.** Eúntes ibant et flebant, mitténtes sémina sua.
+
+**Ant.** Confortátus est \* principátus eórum, et honoráti sunt amíci tui, Deus.
+
+###### Psalmus 138
+
+DOMINE, probásti me, et cognovísti me: \* tu cognovísti sessiónem meam, et resurrectiónem meam.
+
+Intellexísti cogitatiónes meas de longe: \* sémitam meam, et fúniculum meum investigásti.
+
+Et omnes vias meas prævidísti: \* quia non est sermo in lingua mea.
+
+Ecce, Dómine, tu cognovísti ómnia novíssima, et antíqua: \* tu formásti me, et posuísti super me manum tuam.
+
+Mirábilis facta est sciéntia tua ex me: \* confortáta est, et non pótero ad eam.
+
+Quo ibo a spíritu tuo? \* et quo a fácie tua fúgiam?

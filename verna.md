@@ -37548,4 +37548,36 @@ DA, quǽsumus, omnípotens Deus: ut qui beáti Bonifátii Mártyris tui solémni
 
 ###### Lectio iii
 
-BONIFATIUS, civis Románus, quod cum Aglaë nóbili matróna impudíce versátus esset, tanto illíus intemperántiæ dolóre captus est, ut pœniténtiæ causa se ad conquirénda et sepeliénda Mártyrum córpora contúlerit. Itaque, relíctis peregrinatiónis sóciis, cum Tarsi multos propter christiánæ fídei professiónem váriis torméntis cruciátos vidísset; illórum víncula osculátus, eos veheménter hortabátur, ut constánter supplícia perférrent, quod brevem labórem sempitérna réquies consecutúra sit. Comprehénsus ígitur, férreis úngulis excarnificátus est; cui étiam inter mánuum ungues et carnem acúti cálami sunt infíxi, plumbúmque liquefáctum in os ejus infúsum. Quibus in cruciátibus ea vox tantum Bonifátii audiebátur: Grátias tibi ago, Dómine Jesu Christe, Fili Dei. Mox in ollam ferventis picis demísso cápite conjéctus est; unde cum inviolátus exíisset, ira incénsus judex eum secúri pércuti jubet. Quo témpore magnus terræmótus factus est, ita ut multi infidéles ad Christi Dómini fidem converteréntur. Eum sequénti die
+BONIFATIUS, civis Románus, quod cum Aglaë nóbili matróna impudíce versátus esset, tanto illíus intemperántiæ dolóre captus est, ut pœniténtiæ causa se ad conquirénda et sepeliénda Mártyrum córpora contúlerit. Itaque, relíctis peregrinatiónis sóciis, cum Tarsi multos propter christiánæ fídei professiónem váriis torméntis cruciátos vidísset; illórum víncula osculátus, eos veheménter hortabátur, ut constánter supplícia perférrent, quod brevem labórem sempitérna réquies consecutúra sit. Comprehénsus ígitur, férreis úngulis excarnificátus est; cui étiam inter mánuum ungues et carnem acúti cálami sunt infíxi, plumbúmque liquefáctum in os ejus infúsum. Quibus in cruciátibus ea vox tantum Bonifátii audiebátur: Grátias tibi ago, Dómine Jesu Christe, Fili Dei. Mox in ollam ferventis picis demísso cápite conjéctus est; unde cum inviolátus exíisset, ira incénsus judex eum secúri pércuti jubet. Quo témpore magnus terræmótus factus est, ita ut multi infidéles ad Christi Dómini fidem converteréntur. Eum sequénti die quærántes sócii, cum martýrio afféctum cognovíssent, quingéntis sólidis ejus corpus redemérunt, et condítum unguéntis linteísque involútum Romam portándum curárunt. Quod factum cum ab Angelo Aglaë matróna, quæ et ipsa pœnitens se piis opéribus addíxerat, cognovísset, pródiens óbviam sancto córpori, ecclésiam ejus nómine ædificávit; in qua corpus sepúltum est Nonis Júnii, cum ejus ánima prídie Idus Maji apud Tarsum Cilíciæ urbem migrásset in cælum, Diocletiáno et Maximiáno imperatóribus.
+
+{RUBRIC: Te Deum laudámus.}
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+{RUBRIC: Vesperæ de sequénti.}
+
+---
+
+### Die 15 Maji
+
+#### S. Joannis Baptistæ de la Salle
+
+{RUBRIC: Confessoris [111]}
+
+{RUBRIC: Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram, allelúja.
+
+###### Oratio
+
+DEUS, qui ad christiánam páuperum eruditiónem, et ad juvéntam in via veritátis firmándam, sanctum Joánnem Baptístam Confessórem excitásti, et novam per eum in Ecclésia famíliam collegísti: concéde propítius; ut ejus intercessióne et exémplo, stúdio glóriæ tuæ in animárum salúte fervéntes, ejus in cælis corónæ partícipes fíeri valeámus. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+JOANNES Baptísta de la Salle, Rhemis claro génere ortus, puer adhuc móribus et factis in sortem Dómini se vocándum et sanctimóniæ laude honestándum porténdit. Adoléscens in Rheménsi academía lítteras ac philosóphicas disciplínas dídicit: quo témpore, etsi ob ánimi virtútes et álacre ingénium ac suáve ómnibus carus esset, ab æquálium tamen societáte abhorrébat, ut solitúdini addíctus facílius Deo vacáret. In clericálem milítiam jamprídem cooptátus, sexto décimo ætá-

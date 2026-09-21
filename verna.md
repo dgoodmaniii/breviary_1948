@@ -45136,4 +45136,28 @@ DOMINUS noster, quia ad virginitátem hortári grave esse videbátur, a necessit
 
 ###### Lectio viii
 
-ID autem hoc fere modo confírmat: Cógita tecum, si aut a natúra talis esses, aut ab homínibus eam injúriam passus, quid fáceres, cum et ejúsmodi voluptáte caréres, et nullam, caréndo, mercédem consequeréris? Grátias ígitur nunc Deo agas, quod cum mercéde atque corónis idem sústines, quod illi sine corónis ac prǽmio tólerant. Immo vero non idem, sed multo lévius; tum quia
+ID autem hoc fere modo confírmat: Cógita tecum, si aut a natúra talis esses, aut ab homínibus eam injúriam passus, quid fáceres, cum et ejúsmodi voluptáte caréres, et nullam, caréndo, mercédem consequeréris? Grátias ígitur nunc Deo agas, quod cum mercéde atque corónis idem sústines, quod illi sine corónis ac prǽmio tólerant. Immo vero non idem, sed multo lévius; tum quia spe erígeris et consciéntia recte facti, tum quia non ita ingéntibus concupiscéntiæ flúctibus jactáris.
+
+℟. Média nocte clamor factus est: \* Ecce sponsus venit, exíte óbviam ei. (T. P. Allelúja.) ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. Glória Patri. Ecce.
+
+###### Lectio ix
+
+CUM ergo de illis eunúchis díxerit, qui, nisi étiam ipsi mente se contíneant, frustra et inutíliter tales sunt, ac de illis, qui, ut regnum cælórum consequántur, se cóntinent; subjúnxit rursus, dicens: Qui potest cápere, cápiat; ut alacrióres effíciat eo ipso, quod grave esse opus osténdit, et ineffábili benignitáte sua nóluit eam rem intra necessitátem legis conclúdere. Idque dicéndo, adhuc magis possíbilem esse demónstrat, ut voluntátis stúdium plus augeátur.
+
+{RUBRIC: Te Deum.}
+
+---
+
+# Commune non Virginum
+
+##### In I Vesperis
+
+**Ant. 1** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis. (T. P. Allelúja.)
+
+{RUBRIC: Psalmi ut in Communi Festorum B. Mariæ Virg.}
+
+**2** In odórem \* unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis. (T. P. Allelúja.)
+
+**3** Jam hiems tránsiit, \* imber ábiit et recéssit: surge, amíca mea, et veni. (T. P. Allelúja.)
+
+**4** Veni, elécta mea, \* et ponam in te thronum

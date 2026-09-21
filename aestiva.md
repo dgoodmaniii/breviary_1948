@@ -10055,3 +10055,57 @@ Quóniam percússit petram, et fluxérunt aquæ, \* et torréntes inundavérunt.
 Numquid et panem póterit dare, \* aut paráre mensam pópulo suo?
 
 Ideo audívit Dóminus, et dístulit: \* et ignis accénsus est in Jacob, et ira ascéndit in Israël:
+
+Quia non credidérunt in Deo, \* nec speravérunt in salutári ejus:
+
+Et mandávit núbibus désuper, \* et jánuas cæli apéruit.
+
+Et pluit illis manna ad manducándum, \* et panem cæli dedit eis.
+
+Panem Angelórum manducávit homo, \* cibária misit eis in abundántia.
+
+Tránstulit Austrum de cælo: \* et indúxit in virtúte sua Africum.
+
+Et pluit super eos sicut púlverem carnes: \* et sicut arénam maris volatília pennáta.
+
+Et cecidérunt in médio castrórum eórum: \* circa tabernácula eórum.
+
+Et manducavérunt, et saturáti sunt nimis, et desidérium eórum áttulit eis: \* non sunt fraudáti a desidério suo.
+
+Adhuc escæ eórum erant in ore ipsórum: \* et ira Dei ascéndit super eos.
+
+Et occídit pingues eórum, \* et eléctos Israël impedívit.
+
+**Ant.** Jánuas cæli apéruit Dóminus, et pluit illis manna ad manducándum.
+
+#### In Festis novem Lectionum:
+
+℣. Deus percússit petram, et fluxérunt aquæ. ℟. Et torréntes inundavérunt.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Bened.** 1 Benedictióne perpétua. 2 Unigénitus Dei Fílius. 3 Spíritus Sancti grátia.
+
+#### In II Nocturno
+
+**Ant.** Deus adjútor \* est eórum: et Excélsus redémptor eórum est.
+
+### Psalmus 77, iv
+
+IN ómnibus his peccavérunt adhuc: \* et non credidérunt in mirabílibus ejus.
+
+Et defecérunt in vanitáte dies eórum: \* et anni eórum cum festinatióne.
+
+Cum occíderet eos, quærébant eum: \* et revertebántur, et dilúculo veniébant ad eum.
+
+Et rememoráti sunt quia Deus adjútor est eórum: \* et Deus excélsus redémptor eórum est.
+
+Et dilexérunt eum in ore suo, \* et lingua sua mentíti sunt ei:
+
+Cor autem eórum non erat rectum cum eo: \* nec fidéles habíti sunt in testaménto ejus.
+
+Ipse autem est miséricors, et propítius fiet peccátis eórum: \* et non dispérdet eos.
+
+Et abundávit ut avérteret iram suam: \* et non accéndit omnem iram suam:
+
+Et recordátus est quia caro sunt: \* spíritus vadens, et non rédiens.

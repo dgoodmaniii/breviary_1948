@@ -34449,4 +34449,36 @@ Pro hoc Festo simplificato
 
 ###### Lectio ix
 
-PETRUS, Verónæ paréntibus Manichæórum hǽresi inféctis natus, ab ipsa
+PETRUS, Verónæ paréntibus Manichæórum hǽresi inféctis natus, ab ipsa pene infántia contra hǽreses pugnávit, nullis umquam patris patrúive blandítiis a fídei constántia dimótus. Adoléscens Bonóniam studiórum causa venit, ibíque órdinis Prædicatórum institútum suscépit; in quo et magno virtútum splendóre, præcípue córporis animǽque puritáte nullo umquam letháli peccáto fœdáta, et miro pœniténtiæ et contemplatiónis stúdio excélluit. In salútem animárum procurándam máximo cum fructu incúbuit, tanto fídei ardóre incénsus, ut pro ea mortem subeúndi grátiam a Deo precarétur; quam et obtínuit. Nam cum sanctæ Inquisitiónis munus gerens Como Mediolánum redíret, ab ímpio sicário in cápite gládio est vulnerátus; jamque pene mórtuus, sýmbolum fídei, quam ab infántia viríli fortitúdine defénderat, in ipso suprémo spíritu pronúntians, ad palmam martýrii evolávit, anno salútis millésimo ducentésimo quinquagésimo secúndo. Quem Innocéntius quartus, anno sequénti, sanctórum Mártyrum número adscrípsit.
+
+{RUBRIC: Te Deum laudámus.}
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Ego sum vitis vera, de Comm. Martyrum Tempore Paschali 1 loco. [77]}
+
+{RUBRIC: Feria II Rogationum et in Vigilia Ascensionis ix Lectio de Homilia Feriæ et fit ejus Commemoratio ad Laudes.}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut beáti Petri Mártyris tui fidem cóngrua devotióne sectémur; qui, pro ejúsdem fídei dilatatióne, martýrii palmam méruit obtinére. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequenti, Commem. præcedentis.}
+
+---
+
+### Die 30 Aprilis
+
+#### S. Catharinæ Senensis
+
+{RUBRIC: Virginis Duplex [129]}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum, allelúja.

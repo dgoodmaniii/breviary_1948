@@ -41137,4 +41137,30 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 
 **Ant.** Voce mea ad Dóminum clamávi: et exaudívit me de monte sancto suo.
 
-℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum su-
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+{RUBRIC: Tempore Paschali}
+
+**Ant.** Stabunt justi in magna constántia advérsus eos, qui se angustiavérunt, allelúja.
+
+℣. Sancti et justi, in Dómino gaudéte, allelúja. ℟. Vos elégit Deus in hereditátem sibi, allelúja.
+
+**Absolutio** Exáudi, Dómine.
+
+**Benedictio** Benedictióne.
+
+{RUBRIC: Lectiónes sequéntes I Noctúrni dicúntur in Festo Martyris Pontíficis. In Festo autem Martyris non Pontíficis adhibéntur Lectiónes Fratres: Debitóres, quæ pósitæ sunt in Communi plurimórum Martyrum [57] cum Responsóriis tamen pro uno Martyre non Pontífice ibi notátis.}
+
+{RUBRIC: De Actibus Apostolórum}
+
+**Lectio i** *Cap. 20, 17-38*
+
+A MILETO Paulus mittens Ephesum, vocávit majóres natu Ecclésiæ. Qui cum veníssent ad eum, et simul essent, dixit eis: Vos scitis a prima die, qua ingréssus sum in Asíam, quáliter vobíscum per omne tempus fúerim, sérviens Dómino cum omni humilitáte, et lácrimis, et tentatiónibus, quæ mihi accidérunt ex insídiis Judæórum: quómodo nihil subtráxerim utílium, quóminus annuntiárem vobis, et docérem vos públice, et per domos, testíficans Judǽis, atque gentílibus in Deum pæniténtiam, et fidem in Dóminum nostrum Jesum Christum. Et nunc ecce alligátus ego spíritu, vado in Jerúsalem: quæ in ea ventúra sint mihi, ignórans: nisi quod Spíritus Sanctus per omnes civitátes mihi protestátur, dicens: Quóniam víncula et tribulatiónes Jerosólymis me manent. Sed nihil horum véreor: nec fácio ánimam meam pretiosiórem quam me, dúmmodo consúmmem cursum meum, et ministérium verbi, quod accépi a Dómino Jesu, testificári Evangélium grátiæ Dei.
+
+℟. Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit: \* Fundátus enim erat supra firmam petram. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Fundátus.
+
+{RUBRIC: Tempore Paschali}
+
+℟. Beátus vir, qui métuit Dóminum, allelúja: \* In mandátis ejus cupit nimis, allelúja, allelúja, allelúja. ℣. Glória et divítiæ in domo ejus, et justítia ejus manet in sæculum sæculi. — In mandátis.
+
+**Bened.** Unigénitus Dei.

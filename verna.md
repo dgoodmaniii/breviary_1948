@@ -24952,3 +24952,52 @@ Mortem sepúlcro fúnerat.
 
 Sat fúneri, sat lácrimis,
 Sat est datum dolóribus:
+Surréxit exstínctor necis,
+Clamat corúscans Angelus.
+
+Ut sis perénne méntibus
+Paschále, Jesu, gáudium,
+A morte dira críminum
+Vitæ renátos líbera.
+
+\* Deo Patri sit glória,
+Et Fílio, qui a mórtuis
+Surréxit, ac Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. In resurrectióne tua, Christe, allelúja. ℟. Cæli et terra læténtur, allelúja.
+
+**Ad Bened. Ant.** Módicum, \* et non vidébitis me, dicit Dóminus: íterum módicum, et vidébitis me: quia vado ad Patrem, allelúja, allelúja.
+
+#### Oratio
+
+DEUS, qui errántibus, ut in viam possint redíre justítiæ, veritátis tuæ lumen osténdis: da cunctis qui christiána professióne censéntur, et illa respúere, quæ huic inimíca sunt nómini; et ea quæ sunt apta, sectári. Per Dóminum.
+
+## Ad Tertiam
+
+**Capit.** *1 Petri 2, 11*
+
+CARISSIMI: Obsecro vos tamquam ádvenas et peregrínos abstinére vos a carnálibus desidériis, quæ mílitant advérsus ánimam.
+
+**℟. br.** Surréxit Dóminus de sepúlcro, \* Allelúja, allelúja. Surréxit. ℣. Qui pro nobis pepéndit in ligno. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Surréxit Dóminus vere, allelúja. ℟. Et appáruit Simóni, allelúja.
+
+## Ad Sextam
+
+**Capit.** *1 Petri 2, 13-14*
+
+SUBJECTI ígitur estóte omni humánæ creatúræ propter Deum: sive regi quasi præcellénti: sive dúcibus tamquam ab eo missis ad vindíctam malefactórum, laudem vero bonórum.
+
+**℟. br.** Surréxit Dóminus vere, \* Allelúja, allelúja. Surréxit. ℣. Et appáruit Simóni. Allelúja, allelúja. Glória Patri. Surréxit.
+
+℣. Gavísi sunt discípuli, allelúja. ℟. Viso Dómino, allelúja.
+
+## Ad Nonam
+
+**Capit.** *1 Petri 2, 18-19*
+
+SERVI, súbditi estóte in omni timóre dóminis, non tantum bonis et modéstis, sed étiam dýscolis. Hæc est enim grátia in Christo Jesu Dómino nostro.
+
+**℟. br.** Gavísi sunt discípuli, \* Allelúja, allelúja. Gavísi. ℣. Viso Dómino. Allelúja, allelúja. Glória

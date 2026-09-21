@@ -32078,4 +32078,50 @@ IN religiósæ vitæ palǽstra præclarióra virtútum exémpla mónachis prǽbu
 
 ###### Lectio vi
 
-MIRUM sane est quam multa tum ad fidem tuéndam, tum ad pietátem fovéndam, et solúta et adstrícta números oratióne, Joánnes elucubráverit; dignus sane qui ab áltera Nicǽna sýnodo amplíssimis láudibus celebrarétur, et ob áureum oratiónis flumen Chrysórrhoas appellarétur. Neque solum contra Iconómachos orthodóxam fidem deféndit; sed omnes ferme hæréticos, præsértim Acéphalos, Monothelítas, Theopaschítas strénue impugnávit. Ecclésiæ jura potestatémque egrégie vindicávit. Primátum Príncipis Apostolórum disertíssimis verbis asséruit; ipsúmque ecclesiárum cólumen, infráctam petram, orbis terrárum magístrum et moderatórem sǽpius nóminat. Univérsa autem ejus scripta non modo eruditióne et doctrína præstant, sed étiam quemdam ingénuæ pietátis sensum prǽferunt, præcípue cum Genitrícis Dei laudes prǽdicat, quam singulári cultu et amóre prosequebátur. Illud vero máxime in laudem Joánnis cedit, quod primus univérsam theológiam recto órdine comprehénderit et sancti Thomæ viam complanáverit ad sacram doctrínam tam præcláram méthodo tractándam. Tandem vir sanctíssimus méritis plenus devexáque jam ætáte, in pace Christi quiévit anno círciter septingentésimo
+MIRUM sane est quam multa tum ad fidem tuéndam, tum ad pietátem fovéndam, et solúta et adstrícta números oratióne, Joánnes elucubráverit; dignus sane qui ab áltera Nicǽna sýnodo amplíssimis láudibus celebrarétur, et ob áureum oratiónis flumen Chrysórrhoas appellarétur. Neque solum contra Iconómachos orthodóxam fidem deféndit; sed omnes ferme hæréticos, præsértim Acéphalos, Monothelítas, Theopaschítas strénue impugnávit. Ecclésiæ jura potestatémque egrégie vindicávit. Primátum Príncipis Apostolórum disertíssimis verbis asséruit; ipsúmque ecclesiárum cólumen, infráctam petram, orbis terrárum magístrum et moderatórem sǽpius nóminat. Univérsa autem ejus scripta non modo eruditióne et doctrína præstant, sed étiam quemdam ingénuæ pietátis sensum prǽferunt, præcípue cum Genitrícis Dei laudes prǽdicat, quam singulári cultu et amóre prosequebátur. Illud vero máxime in laudem Joánnis cedit, quod primus univérsam theológiam recto órdine comprehénderit et sancti Thomæ viam complanáverit ad sacram doctrínam tam præcláram méthodo tractándam. Tandem vir sanctíssimus méritis plenus devexáque jam ætáte, in pace Christi quiévit anno círciter septingentésimo quinquagésimo quarto. Ejus Offícium et Missam Leo décimus tértius Póntifex máximus, áddito Doctóris título, univérsæ Ecclésiæ concéssit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+###### Lectio vii
+
+*Cap. 6, 6-11*
+
+IN illo témpore: Factum est et in álio sábbato, ut intráret Jesus in synagógam, et docéret: et erat ibi homo, et manus ejus déxtera erat árida. Et réliqua.
+
+Homilía sancti Petri Chrysólogi
+
+{RUBRIC: Sermo 32}
+
+IN hoc hómine ómnium hóminum imágo figurátur, in hoc géritur cura cunctórum, in hoc universórum sánitas diu exspectáta reparátur. Arúerat enim manus hóminis magis stupóre fídei quam siccitáte nervórum, et plus culpa consciéntiæ quam debilitáte carnáli. Antíqua ista nimis erat, et quæ in ipso mundi princípio contígerat ægritúdo; nec arte hóminis aut benefício póterat hæc curári, quæ Dei fúerat indignatióne contrácta. Tetígerat vétita, inconcéssa præsúmpserat, cum se ad árborem sciéndi bonum malúmque porréxerat: auctóre indigébat, non qui malágma impóneret, sed qui posset illátam relaxáre senténtiam, et ignoscéndo resólvere quod religáverat indignándo.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+###### Lectio viii
+
+IN hoc hómine nostræ tantum géritur umbra sanitátis; perfécta autem salus nobis reservátur in Christo: quia tunc aríditas nostræ manus miseránda dissólvitur, cum cruóre perfúnditur Domínicæ passiónis, cum in illo vitáli ligno crucis exténditur, cum carpit fructuósam de dolóre virtútem, cum totam árborem salútis ampléctitur, cum clavis Dómini corpus affígitur, quo numquam ad árborem concupiscéntiæ et áridæ rédeat voluptátis. Et ait hómini habénti manum áridam: Surge in médium, proféssor debilitátis própriæ, supérnæ pietátis exáctor, testis divínæ virtútis, Judáicæ incredulitátis assértor: surge in médium; ut quos non compúngit virtus tanta signórum, quos non ópera tantæ salútis inclínant, vel debilitátis tantæ miserátio constríngat et mítiget.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: IX Lectio de Homilia Feriæ. Sicubi vero extra Quadragesimam celebretur:}
+
+###### Lectio ix
+
+DIXIT hómini: Exténde manum tuam; et exténdit, et restitúta est manus illíus. Exténde manum tuam: jussióne sólvitur, quæ fúerat jussióne convícta. Exténde manum tuam: agnóvit pœna júdicem, opus Deum, indulgéntia pródidit conditórem. Oráte, fratres, ut sola synagóga tali debilitáte fuscétur, nec sit in Ecclésia cujus manum arefáciat cupíditas, cóntrahat avarítia, rapína debílitet, tenácitas ægrótam constríngat; sed si accíderit id ipsum, áudiat Dóminum et cito eam in ópere pietátis exténdat, reláxet et in misericórdia, in eleemósynis pórrigat. Sanári nescit, qui nescit páuperi fœnerári.
+
+{RUBRIC: Te Deum laudámus.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+OMNIPOTENS sempitérne Deus, qui, ad cultum sacrárum imáginum asseréndum, beátum Joánnem cælésti doctrína et admirábili spíritus fortitúdine imbuísti: concéde nobis ejus intercessióne et exémplo; ut, quorum cólimus imágines, virtútes imitémur et patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}

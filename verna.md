@@ -18948,4 +18948,24 @@ SIT ígitur nobis propósitus sanctus Joseph tamquam spéculum castitátis. In e
 
 #### Lectio vi
 
-QUID autem esset, quod præférri Joseph mererétur céteris, si aut lædéntes læsísset, aut diligéntes dilexísset? Hoc enim plérique fáciunt. Sed illud mi-
+QUID autem esset, quod præférri Joseph mererétur céteris, si aut lædéntes læsísset, aut diligéntes dilexísset? Hoc enim plérique fáciunt. Sed illud mirábile, si díligas inimícum tuum: quod Salvátor docet. Jure ergo mirándus, qui hoc fecit ante Evangélium, ut læsus párceret, appetítus ignósceret, vénditus non referrét injúriam, sed grátiam pro contumélia solveret: quod post Evangélium omnes didícimus, et serváre non póssumus. Discámus ergo et Sanctórum invídiam, ut imitémur patiéntiam: et cognoscámus, illos non natúræ præstantióris fuísse, sed observantióris: nec vítia nescísse, sed emendásse. Quod si invídia étiam Sanctos adússit, quanto magis cavéndum est, ne inflámmet peccatóres?
+
+℟. Meménto mei, dum bene tibi fúerit: \* Ut súggeras Pharaóni, ut edúcat me de isto cárcere: \* Quia furtim sublátus sum, et hic ínnocens in lacum missus sum. ℣. Tres enim adhuc dies sunt, post quos recordábitur Phárao ministérii tui, et restítuet te in gradum prístinum: tunc meménto mei. — Ut. Glória Patri. Quia.
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 11, 14-28*
+
+IN illo témpore: Erat Jesus ejíciens dæmónium, et illud erat mutum. Et cum ejecísset dæmónium, locútus est mutus, et admirátæ sunt turbæ. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis, Presbýteri}
+
+{RUBRIC: Liber 4 cap. 48 in cap. 11 Lucæ}
+
+DÆMONIACUS iste apud Matthǽum non solum mutus, sed et cæcus fuísse narrátur: curatúsque dícitur a Dómino, ita ut loquerétur, et vidéret. Tria ergo signa simul in uno hómine perpetráta sunt: cæcus videt, mutus lóquitur, posséssus a dǽmone liberátur. Quod et tunc quidem carnáliter factum est, sed et quotídie complétur in conversióne credéntium: ut, expúlso primum dǽmone, fídei lumen aspíciant; deínde ad laudes Dei tacéntia prius ora laxéntur. Quidam autem ex eis dixérunt: In Beélzebub príncipe dæmoniórum éjicit dæmónia. Non hæc áliqui de turba, sed pharisǽi calumniabántur et scribæ, sicut álii Evangelístæ testántur.
+
+℟. Mérito hæc pátimur, quia peccávimus in fratrem nostrum, vidéntes angústias ánimæ ejus, dum deprecarétur nos, et non audívimus: \* Idcírco venit super nos tribulátio.

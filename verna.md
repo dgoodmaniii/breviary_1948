@@ -30732,3 +30732,67 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 **Ant.** Ascéndit Joseph a Galilǽa de civitáte Názareth in Judǽam, in civitátem David, quæ vocátur Béthlehem, ut profiterétur cum María, allelúja.
 
 ℣. Constítuit eum dóminum domus suæ. {RUBRIC: (T. P. Allelúja.)} ℟. Et príncipem omnis possessiónis suæ. {RUBRIC: (T. P. Allelúja.)}
+
+De libro Génesis
+
+###### Lectio i
+
+*Cap. 30, 1-5*
+
+JOSEPH ígitur ductus est in Ægýptum, emítque eum Pútiphar eunúchus pharaónis, princeps exércitus, vir Ægýptius, de manu Ismaëlitárum, a quibus perdúctus erat. Fuítque Dóminus cum eo, et erat vir in cunctis próspere agens: habitavítque in domo dómini sui, qui óptime nóverat Dóminum esse cum eo, et ómnia quæ géreret, ab eo dírigi in manu illíus. Invenítque Joseph grátiam coram dómino suo, et ministrábat ei: a quo præpósitus ómnibus gubernábat créditam sibi domum et univérsa quæ ei trádita fúerant; benedixítque Dóminus dómui Ægýptii propter Joseph.
+
+℟. Fuit Dóminus cum Joseph, et dedit ei grátiam in conspéctu príncipis cárceris: \* Qui trádidit in manu illíus univérsos vinctos. {RUBRIC: (T. P. Allelúja.)} ℣. Quidquid fiébat, sub ipso erat: Dóminus enim erat cum illo, et ómnia ópera ejus dirigébat. — Qui.
+
+###### Lectio ii
+
+*Cap. 41, 37-44*
+
+PLACUIT pharaóni consílium Joseph, et cunctis minístris ejus; locutúsque est ad eos: Num inveníre potérimus talem virum, qui Spíritu Dei plenus sit? Dixit ergo ad Joseph: Quia osténdit tibi Deus ómnia quæ locútus es, numquid sapientiórem et consímilem tui inveníre pótero? Tu eris super domum meam, et ad tui oris impérium cunctus pópulus obédiet; uno tantum regni sólio te præcédam.
+
+℟. Esuriénte terra Ægýpti, clamávit pópulus ad regem, aliménta petens. Quibus ille respóndit: \* Ite ad Joseph, et quidquid vobis díxerit, fácite. {RUBRIC: (T. P. Allelúja.)} ℣. Crescébat quotídie fames in omni terra, aperuítque Joseph univérsa hórrea, et vendébat Ægýptiis. — Ite.
+
+###### Lectio iii
+
+DIXITQUE rursus phárao ad Joseph: Ecce constítui te super univérsam terram Ægýpti. Tulítque ánnulum de manu sua, et dedit eum in manu ejus; vestivítque eum stola býssina, et collo torquem áuream circumpósuit. Fecítque eum ascéndere super currum suum secúndum, clamánte præcóne ut omnes coram eo genu flécterent et præpósitum esse scírent univérsæ terræ Ægýpti. Dixit quoque rex ad Joseph: Ego sum phárao: absque tuo império non movébit quisquam manum aut pedem in omni terra Ægýpti.
+
+℟. Fecit me Dóminus quasi patrem regis, et dóminum univérsæ domus ejus: nolíte pavére; \* Pro salúte enim vestra misit me Deus ante vos in Ægýptum. {RUBRIC: (T. P. Allelúja.)} ℣. Veníte ad me, et ego dabo vobis ómnia bona Ægýpti, et comedétis medúllam terræ. — Pro. Glória Patri. Pro.
+
+##### In II Nocturno
+
+**Ant.** Consúrgens Joseph, \* accépit Púerum et Matrem ejus nocte, et secéssit in Ægýptum; et erat ibi usque ad óbitum Heródis. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: ¶ Sub qua sola Antiphona dicuntur Tempore Paschali Psalmi hujus Nocturni.}
+
+###### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quæritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** Consúrgens Joseph, accépit Púerum et Matrem ejus nocte, et secéssit in Ægýptum; et erat ibi usque ad óbitum Heródis.
+
+**Ant.** Defúncto Heróde, \* Angelus Dómini appáruit in somnis Joseph in Ægýpto, dicens: Surge, et áccipe Púerum et Matrem ejus, et vade in terram Israël; defúncti sunt enim qui quærébant ánimam Púeri.
+
+###### Psalmus 5
+
+VERBA mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.

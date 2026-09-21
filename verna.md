@@ -37268,4 +37268,18 @@ ANTONINUS, Floréntiæ honéstis paréntibus natus, ab ipsa jam pueritia egrégi
 
 ###### Lectio v
 
-DISCIPLINÆ reguláris sui ipsíus severíssimus exáctor, carnes, nisi in
+DISCIPLINÆ reguláris sui ipsíus severíssimus exáctor, carnes, nisi in gravi ægritúdine, numquam edit. Humi aut in nudo tabuláto cubábat. Cilício semper usus, et intérdum zona férrea ad vivam cutem incínctus, virginitátem integérrime semper cóluit. In explicándis consíliis tantæ dexteritátis fuit, ut commúni elógio Antonínus consiliórum dicerétur. Adeo autem in eo humílitas eníttuit, ut, étiam cœnóbiis ac províncíis præféctus, abjectíssima monastérii offícia demissíssime obíret. Ab Eugénio quarto Florentínus archiepíscopus renuntiátus, ægérrime tandem, nec nisi apostólicis minis perterrefáctus, ut episcopátum accíperet, acquiévit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei, allelúja. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+###### Lectio vi
+
+IN eo múnere vix dici potest quantum prudéntia, pietáte, caritáte, mansuetúdine et sacerdotáli zelo excellúerit. Illud mirándum, tantum ingénio valuísse, ut omnes ferme sciéntias per se, nullo adhíbito præceptóre, absolutíssime didícerit. Tandem post multos labóres, multis étiam éditis insígnis doctrínæ libris, sacra Eucharístia et Unctióne percépta, compléxus Crucifíxi imáginem, mortem lætus aspéxit sexto Nonas Maji, anno millésimo quadringentésimo quinquagésimo nono. Miráculis vivens et post mortem conspícuus, Sanctórum número adscríptus est ab Hadriáno sexto, anno Dómini millésimo quingentésimo vigésimo tértio.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum, allelúja. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+Pro hoc Festo simplificato
+
+###### Lectio ix
+
+ANTONINUS, Floréntiæ honéstis paréntibus natus, ab ipsa puerítia egrégium futúræ sanctitátis spécimen exhíbuit. Annum agens sextum décimum, religiónem Prædicatórum ampléxus, cœpit exínde máximis virtútibus clarére. Singulári fuit abstinéntia, et virginitá-

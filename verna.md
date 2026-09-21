@@ -30516,3 +30516,70 @@ Léctio sancti Evangélii secúndum Matthǽum
 *Cap. 10, 23-28*
 
 IN illo témpore: Dixit Jesus discípulis suis: Cum persequéntur vos in civitáte ista, fúgite in áliam. Et réliqua.
+
+Homilía sancti Athanásii Epíscopi
+
+{RUBRIC: Apologia de fuga sua, ante medium}
+
+IN lege præcéptum erat ut constitueréntur civitátes refugiórum, ut qui quomodocúmque ad necem quæreréntur, servári possent. In consummatióne porro sæculórum cum advenísset illud ipsum Verbum Patris, quod Móysi ántea locútum fúerat, rursus hoc præcéptum dedit, Cum vos, ínquiens, persecúti fúerint in civitáte ista, fúgite in áliam. Paulóque post súbjicit: Cum vidéritis illam abominatiónem desolatiónis, quæ dicta est per Daniélem prophétam, consisténtem in loco sancto (qui legit, intélligat), tunc qui in Judǽa sunt, fúgiant ad montes; et qui in tecto est, ne descéndat tóllere áliquid de domo sua; et qui in agro est, non revertátur tóllere túnicam suam.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio viii
+
+HÆC cum scirent Sancti, ejúsmodi tenuérunt suæ conversatiónis institútum. Quæ enim nunc præcépit Dóminus, éadem quoque ante suum in carne advéntum locútus est in Sanctis; et hoc institútum hómines ad perfectiónem ducit. Nam quod Deus jússerit, id omníno faciéndum est. Ideóque et ipsum Verbum propter nos homo factum, non indígnum putávit, cum quærerétur, quemádmodum et nos, abscóndere se; et cum persecutiónem paterétur, fúgere, et insídias declináre: cum autem a se defínitum tempus ipse adduxísset, in quo corporáliter pro ómnibus pati volébat, ultro seípsum trádidit insidiántibus.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: IX Lectio de Homilia Feriæ.}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DA nobis, quǽsumus, omnípotens Deus, beáto Cyríllo Pontífice intercedénte: te solum verum Deum, et quem misísti Jesum Christum ita cognóscere; ut inter oves, quæ vocem ejus áudiunt, perpétuo connumerári mereámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio tantum Feriæ in Quadragesima.}
+
+---
+
+### Die 19 Martii
+
+#### S. Joseph Sponsi B. Mariæ Virg.
+
+{RUBRIC: Conf.}
+
+{RUBRIC: Duplex I classis}
+
+##### In I Vesperis
+
+**Ant. 1** Jacob autem \* génuit Joseph, virum Maríæ, de qua natus est Jesus, qui vocátur Christus. {RUBRIC: (T. P. Allelúja.)}
+
+{RUBRIC: Psalmi ut in Vesperis de Comm. Apostolorum Tempore Paschali. [4]}
+
+**2** Missus est \* Angelus Gábriel a Deo ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David: et nomen Vírginis María. {RUBRIC: (T. P. Allelúja.)}
+
+**3** Cum esset desponsáta \* Mater Jesu María Joseph, ántequam convenírent, invénta est in útero habens de Spíritu Sancto. {RUBRIC: (T. P. Allelúja.)}
+
+**4** Joseph vir ejus, \* cum esset justus, et nollet eam tradúcere, vóluit occúlte dimíttere eam. {RUBRIC: (T. P. Allelúja.)}
+
+**5** Angelus Dómini \* appáruit Joseph, dicens: Joseph, fili David, noli timére accípere Maríam cónjugem tuam; quod enim in ea natum est, de Spíritu Sancto est: páriet autem fílium, et vocábis nomen ejus Jesum. {RUBRIC: (T. P. Allelúja.)}
+
+###### Capitulum
+
+*Prov. 28, 20; 27, 18*
+
+VIR fidélis multum laudábitur. Et, qui custos est Dómini sui, glorificábitur.
+
+###### Hymnus
+
+TE, Joseph, célebrent ágmina cælitum,
+Te cuncti résonent christíadum chori,
+Qui clarus méritis, junctus es ínclytæ
+Casto fœdere Vírgini.

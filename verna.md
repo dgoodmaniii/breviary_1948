@@ -37404,4 +37404,54 @@ INCREPATA est ergo supérbia nostra, quæ nescit pensáre hómines propter hómi
 
 ###### Lectio ix
 
-NOLITE ergo intra vosmetípsos pensáre quod habétis, sed quid estis. Ecce mundus, qui dilígitur, fugit. Sancti isti ad quorum tumbam consístimus, floréntem mundum mentis despéctu calcavérunt. Erat tunc vita longa, salus contínua, opuléntia in rebus, fecúnditas in propágine, tranquíllitas in diutúrna pace; et tamen, cum in seípso floréret, jam in eórum córdibus mundus
+NOLITE ergo intra vosmetípsos pensáre quod habétis, sed quid estis. Ecce mundus, qui dilígitur, fugit. Sancti isti ad quorum tumbam consístimus, floréntem mundum mentis despéctu calcavérunt. Erat tunc vita longa, salus contínua, opuléntia in rebus, fecúnditas in propágine, tranquíllitas in diutúrna pace; et tamen, cum in seípso floréret, jam in eórum córdibus mundus arúerat. Ecce jam mundus in seípso áruit, et adhuc in córdibus nostris floret. Ubíque mors, ubíque luctus, ubíque desolátio, úndique percútimur, úndique amaritúdinibus replémur; et tamen cæca mente carnális concupiscéntiæ ipsas ejus amaritúdines amámus, fugiéntem séquimur, labénti inhærémus.
+
+{RUBRIC: Te Deum.}
+
+##### Ad Laudes
+
+℣. Pretiósa in conspéctu.
+
+**Ad Bened. Ant.** Fíliæ Jerúsalem, \* veníte et vidéte Mártyres cum corónis, quibus coronávit eos Dóminus in die solemnitátis et lætítiæ, allelúja, allelúja.
+
+###### Oratio
+
+SEMPER nos, Dómine, Mártyrum tuórum Nérei, Achíllei, Domitíllæ atque Pancrátii fóveat, quǽsumus, beáta solémnitas: et tuo dignos reddat obséquio. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+### Die 13 Maji
+
+#### S. Roberti Bellarmino
+
+{RUBRIC: Episcopi, Confessoris et Ecclésiæ Doctoris [84]}
+
+{RUBRIC: Duplex (m. t. v.)}
+
+##### In I Vesperis
+
+℣. Amávit eum Dóminus, et ornávit eum, allelúja.
+
+℟. Stolam glóriæ índuit eum, allelúja.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Robérte, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+###### Oratio
+
+DEUS, qui ad errórum insídias repelléndas et Apostólicæ Sedis jura propugnánda, beátum Robértum Pontíficem tuum atque Doctórem mira eruditióne et virtúte decorásti: ejus méritis et intercessióne concéde, ut nos in veritátis amóre crescámus et errántium corda ad Ecclésiæ tuæ rédeant unitátem. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Sancti et justi, \* in Dómino gaudéte, allelúja: vos elégit Deus in hereditátem sibi, allelúja.
+
+℣. Pretiósa in conspéctu.
+
+**Oratio** Semper nos, ut supra.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+ROBERTUS, Politiánus e Patrícia Bellarminórum gente, matrem pientíssimam hábuit Cýnthiam Cervíni, Marcélli Papæ secúndi sorórem. Exímia pietáte et castíssimis móribus quámprimum enítuit, id unum

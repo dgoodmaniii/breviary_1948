@@ -4403,3 +4403,58 @@ Cum his, qui odérunt pacem, eram pacíficus: \* cum loquébar illis, impugnába
 ### Psalmus 120
 
 LEVAVI óculos meos in montes, \* unde véniet auxílium mihi.
+
+Auxílium meum a Dómino, \* qui fecit cælum et terram.
+
+Non det in commotiónem pedem tuum: \* neque dormítet qui custódit te.
+
+Ecce, non dormitábit neque dórmiet, \* qui custódit Israël.
+
+Dóminus custódit te, Dóminus protéctio tua, \* super mánum déxteram tuam.
+
+Per diem sol non uret te: \* neque luna per noctem.
+
+Dóminus custódit te ab omni malo: \* custódiat ánimam tuam Dóminus.
+
+Dóminus custódiat intróitum tuum, et éxitum tuum: \* ex hoc nunc, et usque in sæculum.
+
+**Ant.** Auxílium meum a Dómino, qui fecit cælum et terram.
+
+**Ant.** Lætátus sum \* † in his, quæ dicta sunt mihi. ‡
+
+### Psalmus 121
+
+LÆTATUS sum † in his, quæ dicta sunt mihi: \* ‡ In domum Dómini íbimus.
+
+Stantes erant pedes nostri, \* in átriis tuis, Jerúsalem.
+
+Jerúsalem, quæ ædificátur ut cívitas: \* cujus participátio ejus in idípsum.
+
+Illuc enim ascendérunt tribus, tribus Dómini: \* testimónium Israël ad confiténdum nómini Dómini.
+
+Quia illic sedérunt sedes in judício, \* sedes super domum David.
+
+Rogáte quæ ad pacem sunt Jerúsalem: \* et abundántia diligéntibus te:
+
+Fiat pax in virtúte tua: \* et abundántia in túrribus tuis.
+
+Propter fratres meos, et próximos meos, \* loquébar pacem de te:
+
+Propter domum Dómini, Dei nostri, \* quæsívi bona tibi.
+
+**Ant.** Lætátus sum in his, quæ dicta sunt mihi.
+
+#### In Officio feriali
+
+{RUBRIC: Capítulum, Hymnus, Versus, et Ant. ad Magníficat dicúntur quotídie de Féria curránti, ut in Psaltério hic et álibi appónuntur.}
+
+**Capitulum** *2 Cor. 1, 3-4*
+
+BENEDICTUS Deus, et Pater Dómini nostri Jesu Christi, Pater misericordiárum, et Deus totíus consolatiónis, qui consolátur nos in omni tribulatióne nostra.
+
+#### Hymnus
+
+IMMENSE cæli Cónditor,
+Qui mixta ne confúnderent,
+Aquæ fluénta dívidens,
+Cælum dedísti límitem.

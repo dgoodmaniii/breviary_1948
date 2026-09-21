@@ -50107,3 +50107,15 @@ Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti David de 
 Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Petrum et Paulum de carcéribus. ℟. Amen.
 
 Et sicut beatíssimam Theclam Vírginem et Mártyrem tuam de tribus atrocíssimis torméntis liberásti, sic liberáre dignéris ánimam hujus servi tui (ancíllæ tuæ), et tecum fácias in bonis congaudére cæléstibus. ℟. Amen.
+
+###### Oratio
+
+COMMENDAMUS tibi, Dómine, ánimam fámuli tui N. (fámulæ tuæ N.) precamúrque te, Dómine Jesu Christe, Salvátor mundi: ut, propter quam ad terram misericórditer descendísti, Patriarchárum tuórum sínibus insinuáre non rénuas. Agnósce, Dómine, creatúram tuam, non a diis aliénis creátam, sed a te, solo Deo vivo et vero; quia non est álius Deus præter te, et non est secúndum ópera tua. Lætífica, Dómine, ánimam ejus in conspéctu tuo; et ne memíneris iniquitátum ejus antiquárum et ebrietátum, quas suscitávit furor sive fervor mali desidérii. Licet enim peccáverit, tamen Patrem, et Fílium, et Spíritum Sanctum non negávit, sed crédidit; et zelum Dei in se hábuit, et Deum, qui fecit ómnia, fidéliter adorávit.
+
+###### Oratio
+
+DELICTA juventútis et ignorántias ejus, quæsumus, ne memíneris, Dómine; sed secúndum magnam misericórdiam tuam memor esto illíus in glória claritátis tuæ. Aperiántur ei cæli, collæténtur illi Angeli. In regnum tuum, Dómine, servum tuum (ancíllam tuam) súscipe. Suscípiat eum (eam) sanctus Míchaël Archángelus Dei, qui milítiæ cæléstis méruit principátum. Véniant illi óbviam sancti Angeli Dei, et perdúcant eum (eam) in civitátem cæléstem Jerúsalem. Suscípiat eum (eam) beátus Petrus Apóstolus, cui a Deo claves regni cæléstis tráditæ sunt. Adjuvet eum (eam) sanctus Paulus Apóstolus, qui dignus fuit esse vas electiónis. Intercédat pro eo (ea) sanctus Joánnes, eléctus Dei Apóstolus, cui reveláta sunt secréta cæléstia. Orent pro eo (ea) omnes sancti Apóstoli, quibus a Dómino data est potéstas ligándi atque solvéndi. Intercédant pro eo (ea) omnes Sancti et Elécti Dei, qui pro Christi nómine torménta in hoc sæculo sustinuérunt; ut vínculis carnis exútus (-a) pervenire mereátur ad glóriam regni cæléstis, præstánte Dómino nostro Jesu Christo: Qui cum Patre et Spíritu Sancto vivit et regnat in sæcula sæculórum. ℟. Amen.
+
+###### Oratio
+
+CLEMENTISSIMA Virgo Dei Génitrix María, mæréntium piíssima consolátrix, fámuli (fámulæ) N. spíritum Fílio suo comméndet: ut, hoc matérno

@@ -19196,4 +19196,22 @@ ET ántequam egrederétur Isaías médiam partem átrii, factus est sermo Dómin
 
 DIxerat autem Ezechías ad Isaíam: Quod erit signum quia Dóminus me sanábit, et quia ascensúrus sum die tértia templum Dómini? Cui ait Isaías: Hoc erit signum a Dómino, quod factúrus sit Dóminus sermónem quem locútus est: vis ut ascéndat umbra decem líneis, an ut revertátur tótidem grádibus? Et ait Ezechías: Fácile est umbram créscere decem líneis, nec hoc volo ut fiat; sed ut revertátur retrórsum decem grádibus. Invocávit ítaque Isaías Prophéta Dóminum, et redúxit umbram per líneas, quibus jam descénderat in horológio Achaz, retrórsum decem grádibus.
 
-℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erí-
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse me erípiet de mánibus inimicórum meórum. Glória Patri. Ipse.
+
+#### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Hierónymi Presbýteri in Isaíam Prophétam}
+
+{RUBRIC: Liber 11 in Isaiæ cap. 38}
+
+##### Lectio iv
+
+NE elevarétur cor Ezechíæ post incredíbiles triúmphos et de média captivitáte victóriam, infirmitáte córporis sui visitátur, et audit se esse moritúrum; ut convérsus ad Dóminum flectat senténtiam ejus. Quod quidem et in Jona Prophéta légimus, et in comminatiónibus contra David: quæ dicúntur futúra, nec facta sunt, non Deo mutánte senténtiam, sed provocánte humánum genus ad notítiam sui. Dóminus enim pœnitens est super malítiis. Convertítque Ezechías fáciem suam ad paríetem, quia ad templum ire non póterat. Ad paríetem autem templi, juxta quod Sálomon palátium exstrúxerat; vel absolúte ad paríetem, ne lácrimas suas assidéntibus ostentáre viderétur.
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio v
+
+AUdiénsque se esse moritúrum, non precátur vitam et annos plúrimos, sed in Dei judício, quid velit præstáre, dimíttit. Nóverat enim idcírco Deo placuísse Salomónem, quod annos vitæ non petíerit amplióres; sed itúrus ad Dóminum narrat ópera sua, quómodo ambuláverat coram eo in veritáte et in corde perfécto. Felix consciéntia, quæ afflictiónis témpore bonórum óperum recordátur. Beáti enim mundo corde: quóniam ipsi Deum vidébunt. Et quómodo álibi scríbitur: Quis gloriábitur purum habére se cor? Quod ita sólvitur, perfectiónem cordis in eo nunc dici, quod idóla destrúxerit, templi valvas aperúerit, serpéntem ǽneum comminúerit, et cétera fécerit, quæ Scriptúra commémorat.
+
+℟. Montes Gélboe, nec ros nec plúvia véniant super vos, \* Ubi cecidérunt fortes Israël. ℣. Omnes montes, qui estis in circúi-

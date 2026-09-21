@@ -29290,3 +29290,48 @@ Gémmeis sertis décorat per ævum
 
 Eja nunc cœtus gémitum precántis
 Audiant, duros vídeant labóres:
+
+Semper et nostris fáveant benígno
+    Lúmine votis.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus
+Spíritus semper, Deus unus, omni
+    Témporis ævo.
+Amen.
+
+℣. Sit memória illórum in benedictióne. ℟. Et ossa eórum púllulent de loco suo.
+
+**Ad Bened. Ant.** Ecce quam bonum \* et quam jucúndum habitáre fratres in unum.
+
+###### Oratio
+
+DOMINE Jesu Christe, qui ad recoléndam memóriam dolórum sanctíssimæ Genitrícis tuæ, per septem beátos Patres nova Servórum ejus família Ecclésiam tuam fecundásti: concéde propítius; ita nos eórum consociári flétibus, ut perfruámur et gáudiis: Qui vivis et regnas.
+
+{RUBRIC: Et fit Commemoratio Feriæ.}
+
+##### Ad Tertiam
+
+**Capitulum** Caríssimi, {RUBRIC: ut supra. 702}
+
+℟. br. Amávit eum Dóminus, \* Et ornávit eum. Amávit. ℣. Stolam glóriæ índuit eum. Et. Glória Patri. Amávit. ℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.
+
+##### Ad Sextam
+
+**Capitulum** *Eccli. 39, 6*
+
+JUSTUS cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judícium. Meditábitur sapiéntiam. Glória Patri. Os. ℣. Lex Dei ejus in corde ipsíus. ℟. Et non supplantabúntur gressus ejus.
+
+##### Ad Nonam
+
+**Capitulum** *Sap. 10, 10*
+
+JUSTUM dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
+
+℟. br. Lex Dei ejus \* In corde ipsíus. Lex. ℣. Et non supplantabúntur gressus ejus. In. Glória Patri. Lex. ℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+##### In II Vesperis
+
+**Capitulum** Caríssimi, {RUBRIC: ut supra. 702}

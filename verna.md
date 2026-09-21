@@ -30135,4 +30135,26 @@ PAUPERIBUS ægrótis, quos própriis quandóque húmeris domum deferébat, nulla
 
 MULTIPLICI asperitátum génere, demissíssima obediéntia, extréma paupertáte, orándi stúdio, rerum divinárum contemplatióne, ac in beátam Vírginem pietáte mirífice excélluit, et lacrimárum dono enítuit. Dénique gravi morbo corréptus, ómnibus Ecclésiæ sacraméntis rite sanctéque reféctus, víribus licet destitútus, própriis indútus véstibus, e léctulo surgens ac provolútus in génua, manu et corde Christum Dóminum e cruce pendéntem perstríngens, octávo Idus Mártii anno millésimo quingentésimo quinquagésimo óbiit in ósculo Dómini: quem étiam mórtuus ténuit, nec dimísit, et in eádem córporis constitutióne sex círciter horas, quoúsque inde dimótus fuísset, tota civitáte inspectánte, mirabíliter permánsit, odórem mire fragrántem diffúndens. Quem ante et post óbitum plúrimis miráculis clarum, Alexánder octávus Póntifex máximus in Sanctórum número rétulit; et Leo décimus tértius, ex Sacrórum cathólici orbis antístitum voto ac Rítuum Congregatiónis consúlto, cæléstem ómnium hospitálium et infirmórum ubíque degéntium patrónum declarávit, ipsiúsque nomen in agonizántium litaníis invocári præcépit.
 
-℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est,
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+###### Lectio vii
+
+*Cap. 22, 34-46*
+
+IN illo témpore: Accessérunt ad Jesum pharisǽi: et interrogávit eum unus ex eis legis doctor, tentans eum: Magíster, quod est mandátum magnum in lege? Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+{RUBRIC: Homilia 72 in Matthæum}
+
+SADDUCÆIS confúsis, pharisǽi rursus aggrediúntur; cumque quiéscere oportéret, decertáre voluérunt: et legis perítiam profiténtem præmíttunt, non díscere, sed tentáre cupiéntes; ac ita intérrogant: Quodnam primum mandátum in lege sit. Nam cum primum illud sit, Díliges Dóminum Deum tuum: putántes causas sibi allatúrum ad mandátum hoc corrigéndum, áliquid addéndo, quóniam Deum se faciébat, hoc modo intérrogant. Quid ígitur Christus? Ut osténdat idcírco ad hæc eos devenísse, quia nulla in eis esset cáritas, sed invídiæ livóre tabéscerent: Díliges, inquit, Dóminum Deum tuum: hoc primum et magnum mandátum est. Secúndum autem símile huic: Díliges próximum tuum sicut teípsum.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+###### Lectio viii
+
+QUAM ob rem símile est huic? Quóniam hoc illud indúcit, et ab illo rursus munítur. Quicúmque enim male agit, ódio habet lucem, et non venit ad lucem. Et rursus: Dixit insípiens in corde suo, Non est Deus. Deínde séquitur: Corrúpti sunt, et abominábiles facti sunt in stúdiis suis. Et íterum: Radix ómnium malórum avarítia est; quam quidam appeténtes, erravérunt a fide. Et, Qui díligit me, mandáta mea servábit: quorum caput et radix est: Díliges Dóminum Deum tuum, et próximum tuum sicut teípsum.

@@ -19621,4 +19621,40 @@ NON ergo magnum peccátum, si hoc vendébant in templo, quod emebátur, ut offer
 
 #### Lectio iii
 
-SI negotiatiónis domus non debet fíeri domus Dei, potatiónis debet fíeri? Nos autem quando ista dícimus, strident déntibus suis advérsus nos: et consolátur nos Psalmus, quem audístis: Stridérunt in me déntibus suis. Nóvimus et nos audíre unde curémur: etsi ingeminántur flagélla Christo, quia flagellátur sermo ipsíus. Congregáta sunt, inquit, in me flagélla, et nesciébant. Flagellátus est flagéllis Judæórum: flagellátur blasphémiis falsórum Christianórum: multíplicant flagélla Dómino Deo suo, et né-
+SI negotiatiónis domus non debet fíeri domus Dei, potatiónis debet fíeri? Nos autem quando ista dícimus, strident déntibus suis advérsus nos: et consolátur nos Psalmus, quem audístis: Stridérunt in me déntibus suis. Nóvimus et nos audíre unde curémur: etsi ingeminántur flagélla Christo, quia flagellátur sermo ipsíus. Congregáta sunt, inquit, in me flagélla, et nesciébant. Flagellátus est flagéllis Judæórum: flagellátur blasphémiis falsórum Christianórum: multíplicant flagélla Dómino Deo suo, et nésciunt. Faciámus nos, quantum ipse ádjuvat. Ego autem, cum mihi moésti essent, induébam me cilício, et humiliábam in jejúnio ánimam meam.
+
+℟. Sicut fui cum Móyse ita ero tecum, dicit Dóminus: \* Confortáre, et esto robústus: introdúces pópulum meum ad terram lacte et melle manántem. ℣. Noli timére, quóniam tecum sum: ad quæcúmque perréxeris, non dimíttam te, neque derelínquam. — Confortáre. Glória Patri. Confortáre.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+**Ad Bened. Ant.** Auférte ista hinc, \* dicit Dóminus: et nolíte fácere domum Patris mei domum negotiatiónis.
+
+#### Oratio
+
+PRÆSTA, quæsumus, omnípotens Deus: ut observatiónes sacras ánnua devotióne recoléntes, et córpore tibi placeámus, et mente. Per Dóminum.
+
+℣. Angelis suis, ut supra.
+
+**Ad Magnif. Ant.** Sólvite templum hoc, \* dicit Dóminus; et post tríduum reædificábo illud: hoc autem dicébat de templo córporis sui.
+
+#### Oratio
+
+DEPRECATIONEM nostram, quæsumus, Dómine, benígnus exáudi: et, quibus supplicándi præstas afféctum, tríbue defensiónis auxílium. Per Dóminum.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio i
+
+*Cap. 7, 14-31*
+
+IN illo témpore: Jam die festo mediánte, ascéndit Jesus in templum, et docébat. Et mirabántur Judǽi. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 29 in Joánnem, sub initium}
+
+ILLE qui latébat, docébat, et palam loquebátur, et non tenebátur. Illud enim ut latéret, erat causa exémpli, hoc potestátis. Sed cum docéret, mirabántur Judǽi. Omnes quidem, quantum árbitror, mirabántur, sed non omnes convertebántur. Et unde admirátio? Quia multi nóverant ubi natus, quemádmodum fúerit educátus. Numquam eum víderant lítteras discéntem: audiébant autem de lege dispu-

@@ -38802,4 +38802,16 @@ DEUS, qui beátum Francíscum, novi órdinis institutórem, orándi stúdio et p
 
 ###### Lectio iv
 
-FRANCISCUS, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido sanctæ Maríæ de Villa in Aprútio ortus, a primis annis exímio enítuit pietátis cultu. Adoléscens gráviter ægrótans státuit sese prorsus Dei próximíque mancipáre servítio. Neápolim proféctus, sacerdótio initiátus sacróque adscríptus sodalítio, contemplatióni lucrandísque animábus se totum devóvit, ac extrémo supplício damnátis hortatórem se præbuit assíduum. Cóntigit autem, ut epistólium álteri destinátum ei per errórem redderétur, quo a piíssimis viris Joánne Augustíno Adórno et Fabrício Ca-
+FRANCISCUS, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido sanctæ Maríæ de Villa in Aprútio ortus, a primis annis exímio enítuit pietátis cultu. Adoléscens gráviter ægrótans státuit sese prorsus Dei próximíque mancipáre servítio. Neápolim proféctus, sacerdótio initiátus sacróque adscríptus sodalítio, contemplatióni lucrandísque animábus se totum devóvit, ac extrémo supplício damnátis hortatórem se præbuit assíduum. Cóntigit autem, ut epistólium álteri destinátum ei per errórem redderétur, quo a piíssimis viris Joánne Augustíno Adórno et Fabrício Carácciolo ad novi religiósi institúti fundatiónem vocabátur. Rei novitáte captus et divínæ voluntátis demirátus consília, álacri ánimo sese illis adjúnxit. Cónditis autem in Camaldulénsium erémo, quo secésserant, novi órdinis légibus, inde Romam simul profécti, confirmatiónem a Xysto quinto impetrárunt, qui eósdem clérícos reguláres Minóres appellári vóluit, áddito ad tria consuéta áltero de non ambiéndis dignitátibus voto.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam, allelúja. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+###### Lectio v
+
+SOLEMNI emíssa professióne, ob singulárem ejus in divum Francíscum Assisinátem cultum, Francísci nomen assúmpsit. Adórno biénnio post vita functo, ipse toti religióni, quamquam invítus, præfícitur; quo in múnere virtútum ómnium præclára præbuit exémpla. Institúti amplificándi studiosíssimus, id assíduis oratiónibus, lácrimis, et jugi córporis maceratióne eníxe a Deo postulábat. Quam ob rem tértio in Hispániam se cóntulit, peregríni hábitu indútus, victúmque ostiátim mendícans. In itínere aspérrima quæque perpéssus, Omnipoténtis auxílium mirum in modum expértus, navim quam conscénderat, ab imminénti naufrágio oratiónis præsídio servávit incólumem. Ut in regnis illis voti compos fíeret, plúrimum laborávit; sed, ejus sanctitátis fama prælucénte, amplissimáque catholicórum regum Philíppi secúndi et Philíppi tértii munificéntia, adversariórum conátibus singulári ánimi fortitúdine superátis, plura sui órdinis domicília fundávit: quod pari evéntu per Itáliam præstitit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum, allelúja. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+###### Lectio vi
+
+HUMILITATE ádeo excélluit, ut Romam véniens, in páuperum hospítio recéptus, se lepróso sociáverit, et ecclesiásticas dignitátes a Paulo

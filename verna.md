@@ -34294,3 +34294,45 @@ TALEM enim pastórem decet esse in Ecclésia, qui, more Pauli, ómnibus ómnia f
 DEUS, qui ad tuéndam cathólicam fidem beátum Petrum, Confessórem tuum, virtúte et doctrína roborásti: concéde propítius; ut ejus exémplis et mónitis errántes ad salútem resipíscant, et fidéles in veritátis confessióne persevérent. Per Dóminum.
 
 {RUBRIC: Vesperæ a Capítulo de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 28 Aprilis
+
+#### S. Pauli a Cruce
+
+{RUBRIC: Confessoris [111]}
+
+{RUBRIC: Duplex (m. t. v.)}
+
+###### Oratio
+
+DOMINE Jesu Christe, qui, ad mystérium crucis prædicándum, sanctum Paulum singulári caritáte donásti, et per eum novam in Ecclésia famíliam floréscere voluísti: ipsíus nobis intercessióne concéde; ut passiónem tuam júgiter recoléntes in terris, ejúsdem fructum cónsequi mereámur in cælis: Qui vivis.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Petre, divínæ legis amátor, deprecáre pro nobis Fílium Dei, allelúja.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEUS, qui ad tuéndam cathólicam fidem beátum Petrum, Confessórem tuum, virtúte et doctrína roborásti: concéde propítius; ut ejus exémplis et mónitis errántes ad salútem resipíscant, et fidéles in veritátis confessióne persevérent. Per Dóminum.
+
+{RUBRIC: Deinde Com. S. Vitalis Mart.:}
+
+**Ant.** Lux perpétua lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+℣. Sancti et justi.
+
+###### Oratio
+
+{RUBRIC: C 3}
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut, qui beáti Vitális Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+##### In II Nocturno
+
+###### Lectio iv
+
+PAULUS a Cruce, Uvádæ in Ligúria natus, sed e Castellátio prope Alexandríam Statiellórum nóbili génere oriúndus, qua futúrus esset sanctitáte clarus, innótuit miro splendóre, qui noctu implévit pariéntis matris cubículum, et insígni augústæ cæli Regínæ benefício, quæ púerum in flumen delápsum a certo naufrágio illǽsum erípuit. A primo ratiónis usu Jesu Christi crucifíxi amóre flagrans, ejus contemplatióni prolíxius vacáre cœpit, et carnem innocentíssimam vigíliis, flagéllis, jejúniis, potu in sexta féria ex acéto cum felle mixto, ac dura quavis castigatióne contérere. Martýrii desidério incénsus, exercítui se adjúnxit, qui Venétiis, ad bellum Turcis inferéndum comparabátur; có-

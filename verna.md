@@ -22830,4 +22830,52 @@ ET ídeo novi testaménti mediátor est: ut, morte intercedénte, in redemptión
 
 #### Lectio ix
 
-LECTO enim omni mandáto legis a Móyse univérso pópulo: accípiens sánguinem vitulórum, et hircórum cum aqua et lana coccínea, et hyssópo: ipsum quoque librum, et omnem pópulum aspérsit, dicens: Hic sanguis testaménti, quod mandávit ad vos Deus. Etiam tabernáculum, et ómnia vasa ministérii sánguine simíliter aspérsit:
+LECTO enim omni mandáto legis a Móyse univérso pópulo: accípiens sánguinem vitulórum, et hircórum cum aqua et lana coccínea, et hyssópo: ipsum quoque librum, et omnem pópulum aspérsit, dicens: Hic sanguis testaménti, quod mandávit ad vos Deus. Etiam tabernáculum, et ómnia vasa ministérii sánguine simíliter aspérsit: et ómnia pene in sánguine secúndum legem mundántur: et sine sánguinis effusióne non fit remíssio.
+
+℟. Sepúlto Dómino, signátum est monuméntum, volvéntes lápidem ad óstium monuménti: \* Ponéntes mílites, qui custodírent illum. ℣. Accedéntes príncipes sacerdótum ad Pilátum, petiérunt illum. — Ponéntes. Sepúlto.
+
+## Ad Laudes
+
+**Ant. 1** O mors, \* ero mors tua, morsus tuus ero, inférne.
+
+{RUBRIC: Psalmi de Sabbato 2 loco 308, Canticum vero Ego dixi 313, ut in Psalterio notátur.}
+
+**2** Plangent eum \* quasi unigénitum, quia ínnocens Dóminus occísus est.
+
+**3** Atténdite, \* univérsi pópuli, et vidéte dolórem meum.
+
+**4** A porta ínferi \* érue, Dómine, ánimam meam.
+
+**5** O vos omnes, \* qui transítis per viam, atténdite et vidéte si est dolor sicut dolor meus.
+
+℣. Caro mea requiéscet in spe. ℟. Et non dabis Sanctum tuum vidére corruptiónem.
+
+**Ad Bened. Ant.** Mulíeres \* sedéntes ad monuméntum lamentabántur, flentes Dóminum.
+
+##### Canticum Zachariæ
+
+*Luc. 1, 68-79*
+
+BENEDICTUS Dóminus, Deus Israël, \* quia visitávit, et fecit redemptiónem plebis suæ:
+
+Et eréxit cornu salútis nobis: \* in domo David, púeri sui.
+
+Sicut locútus est per os sanctórum, \* qui a sǽculo sunt, prophetárum ejus:
+
+Salútem ex inimícis nostris, \* et de manu ómnium, qui odérunt nos:
+
+Ad faciéndam misericórdiam cum pátribus nostris: \* et memorári testaménti sui sancti.
+
+Jusjurándum, quod jurávit ad Abraham, patrem nostrum, \* datúrum se nobis:
+
+Ut sine timóre, de manu inimicórum nostrórum liberáti, \* serviámus illi.
+
+In sanctitáte, et justítia coram ipso, \* ómnibus diébus nostris.
+
+Et tu, puer, Prophéta Altíssimi vocáberis: \* præíbis enim ante fáciem Dómini paráre vias ejus:
+
+Ad dandam sciéntiam salútis plebi ejus: \* in remissiónem peccatórum eórum:
+
+Per víscera misericórdiæ Dei nostri: \* in quibus visitávit nos, óriens ex alto:
+
+Illumináre his, qui in ténebris, et in umbra mortis sedent

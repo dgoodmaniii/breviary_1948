@@ -27586,3 +27586,15 @@ QUOD ait, Rogábo Patrem, et álium Paráclitum dabit vobis: osténdit et seíps
 MUNDUS ergo eum accípere non potest, quia non videt eum, neque scit eum. Non enim habet invisíbiles óculos mundána dilectio, per quos vidéri Spíritus Sanctus potest, qui vidéri nisi invisibíliter non potest. Vos autem, inquit, cognoscétis eum: quia apud vos manébit, et in vobis erit. Erit in eis, ut máneat: non manébit ut sit: prius est enim esse alícubi, quam manére. Sed ne putárent quod dictum est, Apud vos manébit; ita dictum, quemádmodum apud hóminem hospes visibíliter manére consuévit, expósuit quid díxerit, Apud vos manébit, cum adjúnxit et dixit, In vobis erit.
 
 ℟. Si enim non abíero, Paráclitus non véniet ad vos: si autem abíero, mittam eum ad vos. \* Cum autem vénerit ille, docébit vos omnem veritátem, allelúja. ℣. Non enim loquétur a semetípso: sed quæcúmque áudiet, loquétur: et quæ ventúra sunt, annuntiábit vobis. — Cum. Glória Patri. Cum.
+
+{RUBRIC: De Festo, cujus ad Laudes facienda sit Commemoratio, non dicitur hac nocte ix Lectio.}
+
+#### Lectio ix
+
+ERGO invisibíliter vidétur. Nec, si non sit in nobis, potest esse in nobis ejus sciéntia: sic enim a nobis vidétur in nobis et nostra consciéntia. Nam fáciem vidémus altérius, nostram vidére non póssumus: consciéntiam vero nostram vidémus, altérius non vidémus. Sed consciéntia numquam est nisi in nobis: Spíritus autem Sanctus potest esse étiam sine nobis. Datur quippe ut sit et in nobis: sed vidéri et sciri, quemádmodum vidéndus et sciéndus est, non potest a nobis, si non sit in nobis. Post promissiónem Spíritus Sancti, ne quisquam putáret, quod ita eum Dóminus datúrus fúerit velut pro seípso, ut non et ipse cum eis esset futúrus, adjécit atque ait: Non relínquam vos órphanos, véniam ad vos. Quamvis ergo nos Fílius Dei suo Patri adoptáverit fílios, et eúmdem Patrem nos volúerit habére per grátiam, qui ejus Pater est per natúram: tamen étiam ipse circa nos patérnum afféctum quodámmodo demónstrat, cum dicit: Non relínquam vos órphanos.
+
+Te Deum laudámus.
+
+{RUBRIC: Ad Laudes et per Horas ómnia ut in Dominica infra Octavam Ascensionis 627, omíssa tamen ad Laudes Commemoratióne Octávæ Ascensiónis.}
+
+---

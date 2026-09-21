@@ -40908,3 +40908,33 @@ IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus
 {RUBRIC: Sequens Responsorium dícitur, loco præcedéntis, in Offício unius Martyris, qui non effúso sánguine occúbuerit.}
 
 ℟. Dómine, prævenísti eum in benedictiónibus dulcédinis: \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. Glória Patri. Posuísti.
+
+{RUBRIC: Pro pluribus Pont. Mart.}
+
+{RUBRIC: extra Tempus Paschale:}
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis: \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória. Mercédem.
+
+{RUBRIC: Pro uno vel plúribus}
+
+{RUBRIC: Pontif. Mart. Temp. Paschali:}
+
+℟. Cándidi facti sunt Nazaræi ejus, allelúja; splendórem Deo dedérunt, allelúja: \* Et sicut lac coaguláti sunt, allelúja, allelúja. ℣. Candidióres nive, nitidióres lacte, rubicundióres ébore antíquo, sapphíro pulchrióres. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro Pontifice Confessore}
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro Doctore:}
+
+℟. In médio Ecclésiæ apéruit os ejus. \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et implévit. Glória Patri. Et implévit.
+
+{RUBRIC: Pro pluribus Pont. Conf.:}
+
+℟. Vigiláte ergo, nescítis enim quando Dóminus domus véniat: \* Ne cum vénerit repénte, invéniat vos dormiéntes. ℣. Quod autem vobis dico, ómnibus dico: Vigiláte. — Ne. Glória Patri. Ne.
+
+###### Lectio ix
+
+CUM ergo cohortatiónes nostras áuribus vestræ sanctitátis adhibémus, ipsum vobis, cujus vice fúngimur, loqui crédite: quia et illíus vos afféctu monémus, et non áliud vobis, quam quod dócuit, prædicámus; obsecrántes, ut succíncti lumbos mentis vestræ, castam et sóbriam vitam in Dei timóre ducátis. Coróna mea, sicut Apóstolus ait, et gáudium vos estis, si fides vestra, quæ ab inítio Evangélii in univérso mundo prædicáta est, in dilectióne et sanctitáte permánserit. Nam licet omnem Ecclésiam, quæ in toto est orbe terrárum, cunctis opórteat florére virtútibus; vos tamen præcípue inter céteros pópulos decet méritis pietátis excéllere, quos in ipsa apostólicæ petræ arce fundátos, et Dóminus noster Jesus Christus cum ómnibus redémit, et beátus Apóstolus Petrus præ ómnibus erudívit.
+
+{RUBRIC: Te Deum.}

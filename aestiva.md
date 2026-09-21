@@ -17242,4 +17242,38 @@ IN illo témpore: Judǽi, quóniam parascéve erat, ut non remanérent in cruce 
 
 {RUBRIC: Exhortatiónes domésticæ. Med. 6-7}
 
-DIligénter tecum ánimo versa, quam ineffábilis fúerit illa cáritas qua Deus summus, in máximis Cordis angústiis et totíus mundi oppróbriis, pro te vilíssimo vermículo illam crucis acerbíssimam mortem per-
+DIligénter tecum ánimo versa, quam ineffábilis fúerit illa cáritas qua Deus summus, in máximis Cordis angústiis et totíus mundi oppróbriis, pro te vilíssimo vermículo illam crucis acerbíssimam mortem perpéssus fúerat. Advérte ut summam Christus Servátor suis liberalitátem ómnibus exhíbuit. Aliquándo enim in médio pópuli stans, ita clamábat: Si quis sitit véniat ad me et bibat: parátum se osténdens ómnibus ómnium necessitátibus subveníre. Consideráto ut liberalíssime tibi Cordis sui pretiósum sánguinem propinávit, quando, sacro látere apérto, quidquid relíquum erat in córpore sánguinis profúdit.
+
+℟. Ego si exaltátus fúero a terra \* Omnia traham ad meípsum. ℣. Hoc autem dicébat signíficans qua morte esset moritúrus. — Omnia.
+
+##### Lectio viii
+
+*In Evang. Dom. I post Pascha*
+
+QUare, ne prorsus ingrátus sim, hos perénnes fontes donórum ac bonórum ómnium mihi ob óculos sæpe propónam, cum de illis dulcíssima exstet promíssio: Hauriétis aquas in gáudio de fóntibus Salvatóris et dicétis in die illa: Confitémini Dómino. Ad hæc ipsa ter beáta petræ non diruéndæ forámina confúgiam; in illis meum nidum firmíssimum ponam, nihil habens antíquius prætérquam ut in meis angóribus atque perículis vúlnerum Dómini memorándo respírem.
+
+℟. Simus ergo imitatóres Dei \* Et ambulémus in dilectióne. ℣. Sicut et Christus diléxit nos et trádidit semetípsum pro nobis. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+*Medit. 6*
+
+ET tu in omni tentatióne fuge diligénter in amábile Christi Cor, ejúsque bonitátem et caritátem tibi propóne, et cum illa confer tuam vilitátem, malítiam, infidelitátem, arrogántiam. Quanta enim cáritas Christi omnes ad se convocántis: Veníte ad me, omnes qui laborátis et oneráti estis, et ego refíciam vos, et sic parátum se offert et cupit, amóre nostri, ómnium et singulórum ónera sustinére! Unde magna cum fidúcia in caritátis ejus abýssum prójice peccáta tua et mox te invénies exonerátum.
+
+**Te Deum laudámus.**
+
+---
+
+## Feria V infra Octav. Ssmi Cordis Jesu
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro primo Regum}
+
+##### Lectio i
+
+*Cap. 14, 6-20*
+
+DIxit autem Jónathas ad adoléscentem armígerum suum: Veni, transeámus ad sta-

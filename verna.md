@@ -33376,3 +33376,59 @@ BEATUS vir, qui suffert tentatiónem: quóniam cum probátus fúerit, accípiet 
 **Capitulum** *Sap. 5, 1*
 
 STABUNT justi in magna constántia advérsus eos qui se angustiavérunt, et qui abstulérunt labóres eórum.
+
+###### Hymnus
+
+REGALI sólio fortis Ibériæ,
+Hermenegílde, jubar, glória Mártyrum,
+Christi quos amor almis
+Cæli cœtibus ínserit.
+
+Ut perstas pátiens, pollícitum Deo
+Servans obséquium! quo pótius tibi
+Nil propónis, et arces
+Cautus nóxia, quæ placent.
+
+Ut motus cóhibes, pábula qui parant
+Surgéntis vítii, non dúbios agens
+Per vestígia gressus,
+Quo veri via dírigit!
+
+Sit rerum Dómino jugis honor Patri,
+Et Natum célebrent ora precántium,
+Divinúmque suprémis
+Flamen láudibus éfferant. Amen.
+
+{RUBRIC: ¶ Hymnus præcédens dícitur étiam in II Vésperis, quando íntegræ sint recitándæ.}
+
+{RUBRIC: Extra Tempus Paschale}
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+{RUBRIC: Tempore Paschali}
+
+℣. Sancti et justi.
+
+**Ad Magnif. Ant.** Lux perpétua \* lucébit Sanctis tuis, Dómine, et ætérnitas témporum, allelúja.
+
+###### Oratio
+
+DEUS, qui beátum Hermenegíldum Mártyrem tuum cælésti regno terrénum postpónere docuísti: da, quǽsumus, nobis; ejus exémplo cadúca despícere, atque ætérna sectári. Per Dóminum.
+
+{RUBRIC: Et, in Quadragesima, fit Commemoratio Feriæ.}
+
+##### Ad Matutinum
+
+{RUBRIC: Extra Tempus Paschale}
+
+**Invitat.** Regem Mártyrum Dóminum, \* Veníte, adorémus.
+
+{RUBRIC: Tempore Paschali}
+
+**Invitat.** Exsúltent in Dómino Sancti, \* Allelúja. **Ps. 94** Veníte, exsultémus. [3]
+
+{RUBRIC: Hymnus Regáli sólio, ut supra.}
+
+{RUBRIC: In I Nocturno Tempore Quadragesimæ, et si Tempore Paschali dicéndæ non sint de Scriptúra occurrénti, Lectiones Fratres: Debitóres, de Communi plurimórum Mártyrum extra Tempus Paschale, cum Responsóriis de Communi uníus Mártyris pro témporis qualitáte ibi notátis. [57]}

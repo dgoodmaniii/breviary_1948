@@ -17746,4 +17746,22 @@ DIxítque David ad adoléscentem qui nuntiábat ei: Unde scis quia mórtuus est 
 
 ##### Lectio iii
 
-APprehéndens autem David vestiménta sua scidit, omnésque viri, qui erant cum eo, et planxérunt et flevérunt et jejunavérunt usque ad vésperam
+APprehéndens autem David vestiménta sua scidit, omnésque viri, qui erant cum eo, et planxérunt et flevérunt et jejunavérunt usque ad vésperam super Saul et super Jónathan fílium ejus et super pópulum Dómini et super domum Israël, eo quod corruíssent gládio. Dixítque David ad júvenem qui nuntiáverat ei: Unde es tu? Qui respóndit: Fílius hóminis ádvenæ Amalecítæ ego sum. Et ait ad eum David: Quare non timuísti míttere manum tuam, ut occíderes Christum Dómini? Vocánsque David unum de púeris suis ait: Accédens írrue in eum. Qui percússit illum, et mórtuus est.
+
+℟. Dóminus, qui erípuit me de ore leónis, et de manu béstiæ liberávit me, \* Ipse me erípiet de mánibus inimicórum meórum. ℣. Misit Deus misericórdiam suam et veritátem suam: ánimam meam erípuit de médio catulórum leónum. — Ipse. Glória Patri. Ipse.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro Morálium sancti Gregórii Papæ}
+
+{RUBRIC: Liber 4, cap. 3 et 4}
+
+##### Lectio iv
+
+QUid est, quod David, qui retribuéntibus sibi mala non réddidit, cum Saul et Jónathas bello occúmberent, Gélboe móntibus maledíxit, dicens: Montes Gélboe, nec ros nec plúvia véniant super vos, neque sint agri primitiárum: quia ibi abjéctus est clýpeus fórtium, clýpeus Saul, quasi non esset unctus óleo? Quid est, quod Jeremías, cum prædicatiónem suam cérneret audiéntium difficultáte præpedíri, maledíxit dicens: Maledíctus vir, qui annuntiávit patri meo, dicens: Natus est tibi puer másculus?
+
+℟. Percússit Saul mille, et David decem míllia: \* Quia manus Dómini erat cum illo, percússit Philisthǽum, et ábstulit oppróbrium ex Israël. ℣. Nonne iste est David, de quo canébant in choro, dicéntes: Saul percússit mille, et David decem míllia? — Quia.
+
+##### Lectio v
+
+QUid ergo montes Gélboe, Saul moriénte, deliquérunt, quátenus in eos nec ros nec plúvia cáderet et ab omni eos viriditátis gérmine senténtiæ sermo siccáret? Sed quia Gélboe interpretátur decúrsus, per Saul autem unctum et mórtuum mors nostri Mediatóris exprímitur; non immérito per Gélboe montes supérba Judæórum corda signántur, quæ dum in hujus mundi desidériis

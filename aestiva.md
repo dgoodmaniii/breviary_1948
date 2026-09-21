@@ -17944,4 +17944,36 @@ ET revérsa est in domum suam, concépto fœtu. Mitténsque nuntiávit David et 
 
 ##### Lectio iii
 
-AIT ergo David ad Uríam: Mane hic étiam hódie, et cras dimíttam te. Mansit Urías in Jerúsalem in die illa et áltera. Et vocávit eum David ut coméderet coram se et bíberet et inebriávit eum: qui egréssus véspere dormívit in strato suo cum servis dómini sui et in domum suam non descéndit. Factum est ergo mane, et scripsit David epístolam ad Joab misítque per manum Uríæ scribens in epístola: Pónite Uríam ex
+AIT ergo David ad Uríam: Mane hic étiam hódie, et cras dimíttam te. Mansit Urías in Jerúsalem in die illa et áltera. Et vocávit eum David ut coméderet coram se et bíberet et inebriávit eum: qui egréssus véspere dormívit in strato suo cum servis dómini sui et in domum suam non descéndit. Factum est ergo mane, et scripsit David epístolam ad Joab misítque per manum Uríæ scribens in epístola: Pónite Uríam ex advérso belli, ubi fortíssimum est prǽlium, et derelínquite eum ut percússus intéreat. Igitur cum Joab obsidéret urbem, pósuit Uríam in loco ubi sciébat viros esse fortíssimos. Egressíque viri de civitáte bellábant advérsum Joab, et cecidérunt de pópulo servórum David, et mórtuus est étiam Urías Hethǽus.
+
+℟. Audi, Dómine, hymnum et oratiónem, quam servus tuus orat coram te hódie: ut sint óculi tui apérti, et aures tuæ inténtæ, \* Super domum istam die ac nocte. ℣. Réspice, Dómine, de sanctuário tuo, et de excélso cælórum habitáculo. — Super. Glória Patri. Super.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Obsecro, Dómine, \* aufer iniquitátem servi tui, quia insipiénter egi.
+
+### Oratio
+
+DEus virtútum, cujus est totum quod est óptimum: ínsere pectóribus nostris amórem tui nóminis, et præsta in nobis religiónis augméntum; ut, quæ sunt bona, nútrias, ac pietátis stúdio, quæ sunt nutríta, custódias. Per Dóminum.
+
+---
+
+## Dominica VI post Pentecosten
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro secúndo Regum}
+
+##### Lectio i
+
+*Cap. 12, 1-16*
+
+MIsit ergo Dóminus Nathan ad David: qui, cum venísset ad eum, dixit ei: Duo viri erant in civitáte una, unus dives et alter pauper. Dives habébat oves et boves plúrimos valde; pauper autem nihil habébat omníno præter ovem unam párvulam, quam émerat et nutríerat, et quæ créverat apud eum cum fíliis ejus simul de pane illíus cómedens et de cálice ejus bibens et in sinu illíus dórmiens; erátque illi sicut fília. Cum autem peregrínus quidam venísset ad dívitem, parcens ille súmere de óvibus et de bobus suis, ut exhibéret convívium peregríno illi qui vénerat ad se, tulit ovem viri páuperis et præparávit cibos hómini qui vénerat ad se.
+
+℟. Præparáte corda vestra Dómino, et servíte illi

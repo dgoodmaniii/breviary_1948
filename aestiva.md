@@ -32082,4 +32082,44 @@ SInguláre ejus stúdium emícuit in salutári devotióne promovénda erga Sacra
 
 #### Lectio ix
 
-JOánnes, anno millésimo sexcentésimo primo, in pago vulgo Ri, Sagiénsis diœcésis, ex piis honestísque paréntibus ortus est. Adhuc puer, jam Angelórum pane reféctus, perpétuam castitátem vovit. In scholis, ubi laudabíliter stúdia perégit, mira pietáte enítuit. Beátam Vírginem summópere diléxit, et exímia erga próximum caritáte exársit. Berulliáni Oratórii Congregatióni nomen dedit et sacerdótio Parísiis auctus est. Domus Oratoriánæ Cadómi Rector factus, ab eádem, licet ægre, discéssit, ut ad Ecclésiæ ministérium júvenes idóneos institúeret. Quare quinque sibi adscítis sóciis, Congregatiónem Presbyterórum fundávit, cui Sanctíssima Jesu et Maríæ nómina dedit, et Cadómi primum Semináriúm apéruit, quod póstea plura subsecúta sunt. Ut peccatríces mulíeres ad vitam christiánam revocáret, Dóminæ Nostræ a Caritáte Institútum fundávit: cujus nobilíssimæ árboris ramus est Congregátio Andegavénsis a Bono Pastóre. Societátem ab admirábili Corde Matris Dei, et ália caritátis ópera adjécit. Singulári erga Sanctíssima Jesu et Maríæ Corda flagrans amóre, de litúrgico eis cultu præstándo non sine áliquo
+JOánnes, anno millésimo sexcentésimo primo, in pago vulgo Ri, Sagiénsis diœcésis, ex piis honestísque paréntibus ortus est. Adhuc puer, jam Angelórum pane reféctus, perpétuam castitátem vovit. In scholis, ubi laudabíliter stúdia perégit, mira pietáte enítuit. Beátam Vírginem summópere diléxit, et exímia erga próximum caritáte exársit. Berulliáni Oratórii Congregatióni nomen dedit et sacerdótio Parísiis auctus est. Domus Oratoriánæ Cadómi Rector factus, ab eádem, licet ægre, discéssit, ut ad Ecclésiæ ministérium júvenes idóneos institúeret. Quare quinque sibi adscítis sóciis, Congregatiónem Presbyterórum fundávit, cui Sanctíssima Jesu et Maríæ nómina dedit, et Cadómi primum Semináriúm apéruit, quod póstea plura subsecúta sunt. Ut peccatríces mulíeres ad vitam christiánam revocáret, Dóminæ Nostræ a Caritáte Institútum fundávit: cujus nobilíssimæ árboris ramus est Congregátio Andegavénsis a Bono Pastóre. Societátem ab admirábili Corde Matris Dei, et ália caritátis ópera adjécit. Singulári erga Sanctíssima Jesu et Maríæ Corda flagrans amóre, de litúrgico eis cultu præstándo non sine áliquo divíno afflátu primus cogitávit. Missionárius Apostólicus plúrimos pagos et urbes evangelizávit. Tot labóribus fractus, morti próximus, die décima nona augústi, anno millésimo sexcentésimo octogésimo plácide exspirávit. Quem Pius Papa décimus miráculis clarum, inter Beátos, Pius vero undécimus, anno sacro, die Pentecóstes, inter Sanctos rétulit, ejúsque Offícium ac Missam ad univérsam Ecclésiam exténdit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Comm. Conf. non Pont. 1 loco. [98]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui beátum Joánnem, Confessórem tuum, ad cultum Sacrórum Córdium Jesu et Maríæ rite promovéndum, mirabíliter inflammásti, et per eum novas in Ecclésia tua Famílias congregáre voluísti: præsta quǽsumus; ut cujus pia mérita venerámur, virtútum quoque instruámur exémplis. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Com. Octávæ:}
+
+**Ant.** Quæ est ista, quæ ascéndit sicut auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta?
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+###### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum vivit.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Com. præced. et Octávæ.}
+
+---
+
+### Die 20 Augusti
+
+#### S. Bernardi
+
+{RUBRIC: Abbatis et Eccl. Doctóris [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Bernárde, divínæ legis amátor, deprecáre pro nobis Fílium Dei.

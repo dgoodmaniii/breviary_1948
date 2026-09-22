@@ -28179,4 +28179,31 @@ Homilía sancti Augustíni Epíscopi
 
 EVangélium cum legerétur, attentíssime audístis; et res gesta narráta atque versáta est ante óculos cordis vestri. Vidístis enim, non carne, sed mente, Dóminum Jesum Christum in domo pharisǽi recumbéntem, et ab illo invitátum non fastidiéntem. Vidístis étiam in civitáte mulíerem famósam, mala útique fama, quæ erat peccátrix, non invitátam irruísse convívio ubi suus médicus recumbébat, et quæsísse pia impudéntia sanitátem; írruens, quasi importúna convívio, opportúna benefício. Nóverat enim quanto morbo laboráret; et illum ad sanándum esse idóneum, ad quem vénerat, sciébat.
 
-℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ
+℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ in lingua ejus: considerávit sémitas domus suæ, \* Et panem otiósa non comédit. ℣. Gustávit et vidit quia bona est negotiátio ejus: non exstinguétur in nocte lucérna ejus. — Et.
+
+#### Lectio viii
+
+ACcéssit ergo non ad caput Dómini, sed ad pedes. Et quæ diu male ambuláverat, vestígia recta quærébat. Prius fudit lácrimas cordis, et lavit Dómini pedes obséquio confessiónis, capíllis suis tersit, osculáta est, unxit; tácita loquebátur, non sermónem promébat, sed devotiónem ostendébat. Quia ergo tétigit Dóminum rigándo, osculándo, tergéndo, ungéndo pedes ejus; pharisǽus, qui invitáverat Dóminum Jesum Christum, quia ex illo génere erat hóminum superbórum, de quibus Isaías Prophéta dicit: Qui dicunt, Recéde longe a me, noli me tángere, quóniam mundus sum; putávit Dóminum nescísse mulíerem.
+
+℟. Regnum mundi et omnem ornátum sǽculi contémpsi, propter amórem Dómini mei Jesu Christi: \* Quem vidi, quem amávi, in quem crédidi, quem diléxi. ℣. Eructávit cor meum verbum bonum: dico ego ópera mea Regi. — Quem. Glória Patri. Quem.
+
+#### Lectio ix
+
+O Pharisǽe invitátor et irrísor Dómini, Dóminum pascis, et a quo pascéndus sis, non intélligis? Unde scis Dóminum nescísse, quæ fúerit illa múlier, nisi quia permíssa est accédere, nisi quia, illo patiénte, osculáta est pedes ejus, nisi quia tersit, nisi quia unxit? Hæc enim non débuit permítti fácere in pédibus mundis múlier immúnda? Ad illíus ergo pharisǽi pedes si talis múlier accessísset, dictúrus erat, quod Isaías de tálibus dicit: Recéde a me, noli me tángere, quóniam mundus sum. Accéssit autem ad Dóminum immúnda, ut redíret munda; accéssit ægra, ut redíret sana; accéssit conféssa, ut redíret proféssa.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+###### Capitulum
+
+*Prov. 31, 10-11*
+
+MUlíerem fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+
+###### Hymnus
+
+SUmmi Paréntis Unice,
+Vultu pio nos réspice,
+Vocans ad arcem glóriæ
+Cor Magdalénæ pœnitens.

@@ -22673,3 +22673,43 @@ Te Deum laudámus.
 ###### Oratio
 
 DEus, qui nos beáti Bárnabæ Apóstoli tui méritis et intercessióne lætíficas: concéde propítius, ut qui tua per eum benefícia póscimus, dono tuæ grátiæ consequámur. Per Dñum.
+
+##### In II Vesperis
+
+℣. Annuntiavérunt ópera Dei.
+
+**Ad Magnif. Ant.** Estóte fortes \* in bello, et pugnáte cum antíquo serpénte: et accipiétis regnum ætérnum, allelúja.
+
+{RUBRIC: Et fit Commemoratio sequentis ac Ss. Basilidis, Cyrini, Naboris et Nazarii Mm.}
+
+---
+
+### Die 12 Junii
+
+#### S. Joannis a S. Facundo
+
+{RUBRIC: Confessoris [94] Duplex (m. t. v.), nisi tamen alicubi I Vesperas habeat}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, auctor pacis et amátor caritátis, qui beátum Joánnem Confessórem tuum mirífica dissidéntes componéndi grátia decorásti: ejus méritis et intercessióne concéde; ut, in tua caritáte firmáti, nullis a te tentatiónibus separémur. Per Dóminum.
+
+{RUBRIC: Et fit Com. Ss. Basilidis, Cyrini, Naboris et Nazarii Mm.}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+SAnctórum Mártyrum tuórum Basílidis, Cyríni, Náboris atque Nazárii, quǽsumus, Dómine, natalítia nobis votíva respléndeant: et, quod illis cóntulit excelléntia sempitérna, frúctibus nostræ devotiónis accréscat. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JOánnem, Sahagúni in Hispánia, nóbili génere natum, paréntes cum diu prole caruíssent, piis opéribus et oratiónibus a Deo impetrárunt. Ab ineúnte ætáte egrégium futúræ sanctitátis spécimen dedit; nam e loco superióri ad céteros púeros crebro verba faciébat, quibus eos ad virtútem et Dei cultum hortabátur, eorúmque dissídia componébat. In pátria mónachis sancti Facúndi, órdinis sancti Benedícti, primis litterárum rudiméntis imbuéndus tráditur. Dum iis óperam daret, curávit pater ut párochus ecclésiam administráret; quod munus júvenis nullis ratiónibus addúci pótuit

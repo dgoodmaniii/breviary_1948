@@ -30545,3 +30545,41 @@ INvitabátur sæpius a curiónibus vicínis ut, Missionariórum more, animárum 
 *Cap. 16, 24-27*
 
 IN illo témpore: Dixit Jesus discípulis suis: Si quis vult post me veníre, ábneget semetípsum, et tollat crucem suam, et sequátur me. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 32 in Evang.}
+
+QUia Dóminus ac Redémptor noster novus homo venit in mundum, nova præcépta dedit mundo. Vitæ étenim nostræ véteri in vítiis enutrítæ contrarietátem oppósuit novitátis suæ. Quid enim vetus, quid carnális homo nóverat, nisi sua retinére, aliéna rápere, si posset; concupíscere, si non posset? Sed cæléstis médicus síngulis quibúsque vítiis obviántia ádhibet medicaménta. Nam sicut arte medícinæ cálida frígidis, frígida cálidis curántur: ita Dóminus noster contrária oppósuit medicaménta peccátis, ut lúbricis continéntiam, tenácibus largitátem, iracúndis mansuetúdinem, elátis præcíperet humilitátem.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+OMnípotens et miséricors Deus, qui sanctum Joánnem Maríam pastoráli stúdio et jugi oratiónis ac pœniténtiæ ardóre mirábilem effecísti: da, quǽsumus; ut, ejus exémplo et intercessióne, ánimas fratrum lucrári Christo, et cum eis ætérnam glóriam cónsequi valeámus. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Com. Vigíliæ S. Lauréntii: Ant. et ℣. de Féria currénti, ut in Psaltério.}
+
+###### Oratio
+
+ADésto, Dómine, supplicatiónibus nostris: et intercessióne beáti Lauréntii Mártyris tui, cujus prævenímus festivitátem, perpétuam nobis misericórdiam benígnus impénde. Per Dóminum.
+
+{RUBRIC: Deinde pro S. Románo:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+PRǽsta, quǽsumus, omnípotens Deus: ut, intercedénte beáto Románo Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis.}
+
+---

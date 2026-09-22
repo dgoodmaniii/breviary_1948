@@ -28525,4 +28525,18 @@ PRopónitur nobis Annæ thálamus, conjugális vitæ simul et virginitátis form
 
 #### Lectio v
 
-EXsúltet Sara, seníli gáudio géstiens, meúmque ab sterilitáte con-
+EXsúltet Sara, seníli gáudio géstiens, meúmque ab sterilitáte concéptum præfigúrans. Cóncinant simul stériles et infœcúndæ visitatiónem meam, admirábili modo cælitus factam. Dicant item matres omnes hac fœcunditáte prǽditæ: Benedíctus, qui orántibus id quod optábant, largítus est, et fœcunditátem stérili dedit, ac felicíssimum illud germen Vírginis concéssit, quæ Mater Dei secúndum carnem fuit, cujus venter cælum est, in qua habitávit is, qui nullo loco capi potest. Cónsonam his nos quoque ipsi, quæ vocabátur stérilis nunc autem virgínei thálami mater éxstitit, laudem offerámus. Dicámus ad eam cum Scriptúra: Quam beáta domus David, ex qua prodiísti, et venter, in quo Deus sanctificatiónis arcam, hoc est, eam a qua ipse sine sémine concéptus est, fabricávit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+VEre beáta es, ac ter beáta, quæ beatitúdine donátam a Deo infántem, hoc est, Maríam, nómine quoque ipso magnópere venerándam, peperísti; ex qua Christus vitæ flos éxstitit, cujus Vírginis et gloriósus fuit ortus, et partus mundo sublímior. Nos quoque, o beatíssima fémina, tibi gratulámur; étenim nostrum ómnium spem divínitus concéssam, hoc est, promissiónis fœtum peperísti. Beáta revéra es, et beátus fructus ventris tui. Piórum autem lingua germen tuum magníficat, ac sermo omnis lætus partum tuum prǽdicat. Dignum sane quidem, ac máxime dignum est eam laudáre, quæ divína benignitáte oráculum accépit, ac talem et tantum nobis fructum édidit, ex quo dulcis Jesus pródiit.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: In III Nocturno Homilia in Ev. Símile est regnum cælórum thesáuro, de eodem Communi. [134]}
+
+{RUBRIC: Oratio Deus qui beátæ Annæ, ut supra. 800}
+
+{RUBRIC: In Vesperis non fit Commemoratio sequentis.}

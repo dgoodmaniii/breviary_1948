@@ -28724,3 +28724,25 @@ Homilía sancti Augustíni Epíscopi
 VErba Dómini nostri Jesu Christi, quæ modo ex Evangélio recitáta sunt, ádmonent nos, esse unum áliquid quo tendámus, quando in hujus sǽculi multitúdine laborámus. Téndimus autem adhuc peregrinántes, nondum manéntes, adhuc in via, nondum in pátria; adhuc desiderándo, nondum fruéndo. Tamen tendámus, et sine pigrítia et sine intermissióne tendámus, ut aliquándo pervenire valeámus. Martha et María duæ soróres erant, ambæ non solum carne, sed étiam religióne germánæ; ambæ Dómino cohæsérunt, ambæ Dómino in carne præsénti concórditer serviérunt.
 
 ℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum: \* Et veniénte Dómino, introívit cum eo ad núptias. ℣. Média nocte clamor factus est: Ecce sponsus venit, exíte óbviam ei. — Et.
+
+#### Lectio viii
+
+SUscépit eum Martha, sicut solent súscipi peregríni; sed tamen suscépit fámula Dóminum, ægra Salvatórem, creatúra Creatórem. Suscépit autem spíritu pascénda, in carne pascéndum. Vóluit enim Dóminus formam servi accípere, et, accépta forma servi, in illa pasci a servis, dignatióne, non conditióne. Nam et ista dignátio fuit, se præbére pascéndum. Habébat carnem, in qua esuríret quidem et sitíret; sed nescítis, quia in erémo esuriénti Angeli ministrábant? Ergo quod pasci vóluit, pascénti præstitit. Quid autem mirum, si et de sancto Elía præstitit víduæ, quem prius, corvo ministránte, pascébat? Numquid pascéndo defécerat, quando ad víduam mittébat? Nequáquam, sed religiósam víduam, per obséquium exhíbitum servo suo, benedícere disponébat.
+
+℟. Média nocte clamor factus est: \* Ecce sponsus venit, exíte óbviam ei. ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. Glória Patri. Ecce.
+
+#### Lectio ix
+
+SIC ergo suscéptus est Dóminus, tamquam hospes, qui in sua própria venit, et sui eum non recepérunt; sed quotquot recepérunt eum, dedit eis potestátem fílios Dei fíeri, adóptans servos et líberos fáciens, rédimens captívos et fáciens coherédes. Ne quis tamen vestrum fórsitan dicat: O beáti, qui Christum suscípere in domum própriam meruérunt! Noli dolére, noli murmuráre quia tempóribus natus es, quando jam Dóminum non vides in carne. Non tibi ábstulit istam dignatiónem. Cum uni, inquit, ex mínimis meis fecístis, mihi fecístis. Hæc de Dómino pascéndo in carne, sed pascénte in spíritu, pauca pro témpore dixérimus.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio C 3
+
+EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Marthæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.

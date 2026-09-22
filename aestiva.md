@@ -20538,4 +20538,30 @@ QUI sibi ínvidet, nihil est illo néquius, et hæc reddítio est malítiæ ill�
 
 FIli, si habes, bénefac tecum et Deo dignas oblatiónes offer. Memor esto quóniam mors non tardat, et testaméntum inferórum, quia demonstrátum est tibi; testaméntum enim hujus mundi morte moriétur. Ante mortem bénefac amíco tuo et secúndum vires tuas expórrigens da páuperi. Non defraudéris a die bono, et partícula boni doni non te prætéreat. Nonne áliis relínques dolóres et labóres tuos in divisióne sortis? Da et áccipe et justífica ánimam tuam: ante óbitum tuum operáre justítiam; quóniam non est apud ínferos inveníre cibum.
 
-℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sé-
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut sciam, quid accéptum sit coram te omni témpore. Glória Patri. Ut.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 21, 1-16*
+
+FIli, peccásti? non adjícias íterum, sed et de prístinis deprecáre, ut tibi dimittántur. Quasi a fácie cólubri fuge peccáta et, si accésseris ad illa, suscípient te. Dentes leónis dentes ejus interficiéntes ánimas hóminum, quasi rhomphæa bis acúta omnis iníquitas, plagæ illíus non est sánitas. Objurgátio et injúriæ annullábunt substántiam, et domus, quæ nimis lócuples est, annullábitur supérbia: sic substántia supérbi eradicábitur.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio ii
+
+DEprecátio páuperis ex ore usque ad aures ejus pervéniet, et judícium festináto advéniet illi. Qui odit correptiónem, vestígium est peccatóris; et, qui timet Deum, convertétur ad cor suum. Notus a longe potens lingua audáci, et sensátus scit labi se ab ipso. Qui ædíficat domum suam impéndiis aliénis, quasi qui cólligit lápides suos in híeme. Stuppa collécta synagóga peccántium, et consummátio illórum flamma ignis.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+VIA peccántium complanáta lapídibus, et in fine illórum ínferi et ténebræ et pœnæ. Qui custódit justítiam continébit sensum ejus. Consummátio timóris Dei sapiéntia et sensus. Non erudiétur qui non est sápiens in bono; est autem sapiéntia quæ abúndat in malo, et non est sensus ubi est amaritúdo. Sciéntia sapiéntis tamquam inundátio abundábit, et consílium illíus sicut fons vitæ pérmanet.

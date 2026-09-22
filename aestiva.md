@@ -20761,3 +20761,37 @@ DEus virtútum, cujus est totum quod est óptimum: ínsere pectóribus nostris a
 **Ad Magnif. Ant.** Miséreor \* super turbam, quia ecce jam tríduo sústinent me nec habent quod mandúcent, et, si dimísero eos jejúnos, defícient in via, allelúja.
 
 ---
+
+## Dominica VII post Pentecosten
+
+*Semiduplex*
+
+{RUBRIC: Oratio Deus, cujus, ut infra ad Laudes.}
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthæum
+
+##### Lectio vii
+
+*Cap. 7, 15-21*
+
+IN illo témpore: Dixit Jesus discípulis suis: Atténdite a falsis prophétis, qui véniunt ad vos in vestiméntis óvium intrínsecus autem sunt lupi rapáces. Et réliqua.
+
+Homilía sancti Hilárii Epíscopi
+
+*Comment. in Matth. can. 6*
+
+BLandiménta verbórum, et mansuetúdinis simulatiónem ádmonet fructu operatiónis expéndi oportére; ut, non qualem quis verbis réferat, sed qualem se rebus effíciat, spectémus; quia in multis vestítu óvium rábies lupína contégitur. Ergo ut spinæ uvas, ut tríbuli ficus non génerant, et ut iníquæ árbores utília poma non áfferunt: ita ne in istis quidem consístere docet boni óperis efféctum, et idcírco omnes cognoscéndos esse de frúctibus. Regnum enim cælórum sola verbórum offícia non óbtinent; neque qui díxerit: Dómine, Dómine, heres illíus erit.
+
+### Ante Dominicam I Augusti
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+### In Dominica I Augusti
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+QUid enim mériti est Dómino dícere, Dómine? Numquid Dóminus non erit, nisi fúerit dictus a nobis? Et quæ offícii sánctitas est nóminis nuncu-

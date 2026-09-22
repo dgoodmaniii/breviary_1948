@@ -25756,4 +25756,36 @@ Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquit�
 
 Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
 
-Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem ne-
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Et respóndens univérsus pópulus dixit: Sanguis ejus super nos et super fílios nostros.
+
+℣. Sanguis Jesu Christi Fílii Dei. ℟. Emúndat nos ab omni peccáto.
+
+Sermo sancti Joánnis Chrysóstomi
+
+*Homilia ad Neophytos*
+
+#### Lectio iv
+
+VIS sánguinis Christi audíre virtútem? Redeámus ad ejus exémplum, et priórem typum recordémur, et prístinam Scriptúram narrémus. In Ægýpto, nocte média, Ægýptiis Deus plagam décimam minabátur, ut eórum primogénita deperírent, quia primogénitum ejus pópulum detinébant. Sed, ne amáta plebs Judæórum una cum illis periclitarétur, quia unus locus continébat univérsos, remédium discretiónis invéntum est. Proínde exémplum mirábile, ut discas in veritáte virtútem. Ira divínæ indignatiónis sperabátur, et domos síngulas mórtifer circuíbat. Quid ígitur Móyses? Occídite, inquit, agnum annículum, et sánguine ejus liníte jánuas. Quid ais, Móyses? Sanguis ovis rationálem hóminem liberáre consuévit? Valde, inquit; non eo quod sanguis est, sed quia Domínici sánguinis per eum demonstrátur exémplum.
+
+℟. In timóre incolátus vestri témpore conversámini \* Sciéntes quod non corruptibílibus auro vel argénto redémpti estis. ℣. Sed pretióso sánguine quasi agni immaculáti Christi. — Sciéntes.
+
+#### Lectio v
+
+NAM, sicut regnántium státuæ, quæ sine causa sunt et sermóne, nonnúmquam ad se confugiéntibus homínibus, ánima et ratióne decorátis, subveníre consuevérunt, non quia

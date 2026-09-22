@@ -28746,3 +28746,43 @@ Te Deum laudámus.
 ###### Oratio C 3
 
 EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Marthæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Ss. Felicis II Papæ, Simplicii, Faustini et Beatricis Mm.:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+PRæsta, quæsumus, Dómine: ut, sicut pópulus christiánus Mártyrum tuórum Felícis, Simplícii, Faustíni et Beatrícis temporáli solemnitáte congáudet, ita perfruátur ætérna; et, quod votis célebrat, comprehéndat efféctu. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 30 Julii
+
+#### Ss. Abdon et Sennen
+
+{RUBRIC: Mart. [49] Simplex}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+DEus, qui sanctis tuis Abdon et Sennen ad hanc glóriam veniéndi copiósum munus grátiæ contulísti: da fámulis tuis suórum véniam peccatórum; ut, Sanctórum tuórum intercedéntibus méritis, ab ómnibus mereántur adversitátibus liberári. Per Dóminum.
+
+#### Lectio iii
+
+ABdon et Sennen Persæ, a Décio imperatóre, accusáti, quod córpora Christianórum, quæ inhumáta projiciebántur, in suo prǽdio sepelíssent, jussu imperatóris comprehendúntur, et diis jubéntur sacrificáre. Quod cum fácere negligérent, et Jesum Christum Deum constantíssime prædicárent, tráditos in arctam custódiam, Romam póstea rédiens Décius vinctos duxit in triúmpho. Qui cum in Urbe ad simulácra attrácti essent, ea detestáti conspuérunt. Quam ob rem ursis ac leónibus objécti sunt; quos feræ non audébant attíngere. Demum, gládiis trucidáti, colligátis pédibus tracti sunt ante solis simulácrum. Quorum córpora, clam inde asportáta, Quirínus diáconus sepelívit in suis ædibus.
+
+Te Deum laudámus.

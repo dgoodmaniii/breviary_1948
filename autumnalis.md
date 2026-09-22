@@ -16488,3 +16488,24 @@ SI accédant áliqui, et dicant tibi : Ne frequénter jejúnes, ne imbecíllior 
 CUI dixérunt illi : Tenta servos tuos dies decem, et da nobis de semínibus. Et dedit eis legúmina ad vescéndum, et aquam ad bibéndum; et introdúxit eos in conspéctu regis, et vísæ sunt fácies ipsórum speciosióres præ céteros púeros, qui régiæ mensæ cibis nutriebántur. Vidésne quid fáciat jejúnium? Morbos sanat, distillatiónes córporis exsíccat, dæmones fugat, pravas cogitatiónes expéllit, mentem clariórem reddit, cor mundum éfficit, corpus sanctíficat, dénique ad thronum Dei hóminem sistit. Et ne putes hæc témere dici; habes hujus rei testimónium in Evangéliis a Salvatóre prolátum. Cum enim quæsivíssent discípuli quonam modo immúndi spíritus ejiceréntur, respóndit Dóminus : Hoc genus non ejícitur, nisi in oratióne et jejúnio.
 
 ℟. Muro tuo inexpugnábili circumcínge nos, Dómine et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+##### Lectio vi
+
+QUisquis ígitur ab immúndo spíritu vexátur, si hoc animadvértat, et hoc phármaco utátur, jejúnio inquam, statim spíritus malus opprésus abscédet, vim jejúnii métuens. Valde enim dǽmones oblectántur crápula et ebrietáte et córporis cómmodis. Magna vis in jejúnio, et magna ac præclára fiunt per illud. Alióquin unde hómines tam mirífica præstárent, et signa per eos fíerent, et sanitátem infírmis per ipsos largirétur Deus, nisi plane ob exercitatiónes spirituáles, et humilitátem ánimi, et conversatiónem bonam? Jejúnium enim Angelórum cibus est : et qui eo útitur, órdinis angélici censéndus est.
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam III Novembris
+
+{RUBRIC: De Daniéle Prophéta}
+
+##### Lectio i
+*Cap. 2, 31-44*
+
+TU, rex, vidébas, et ecce quasi státua una grandis : státua illa magna et statúra sublímis stabat contra te, et intúitus ejus erat terríbilis. Hujus statúæ caput ex auro óptimo erat, pectus autem et bráchia de argénto, porro venter et fémora ex ære, tíbiæ autem férreæ, pedum quædam pars erat férrea, quædam autem fíctilis. Vidébas ita, donec abscíssus est lapis de monte sine mánibus et percússit státuam in pédibus ejus férreis et fictílibus et commínuit eos. Tunc contríta sunt páriter ferrum, testa, æs, argéntum et aurum et redácta quasi in favíllam æstívæ áreæ, quæ rapta sunt vento, nullúsque locus invéntus est eis; lapis autem, qui percússerat státuam, factus est mons magnus et implévit univérsam terram.

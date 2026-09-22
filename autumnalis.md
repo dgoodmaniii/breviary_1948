@@ -14560,3 +14560,105 @@ DUxerúntque illam ad tabernáculum Holoférnis annuntiántes eam. Cumque intrá
 ET factum est, in quarto die Holoférnes fecit cœnam servis suis et dixit ad Vágao eunúchum suum: Vade et suáde Hebrǽam illam ut sponte conséntiat habitáre mecum. Foedum est enim apud Assýrios, si fémina irrídeat virum agéndo ut immúnis ab eo tránseat. Tunc introívit Vágao ad Judith et dixit: Non vereátur bona puélla introíre ad dóminum meum, ut honorificétur ante fáciem ejus, ut mandúcet cum eo et bibat vinum in jucunditáte. Cui Judith respóndit: Quæ ego sum, ut contradícam dómino meo?
 
 ℟. Adonái, Dómine, Deus magne et mirábilis, qui dedísti salútem in manu féminæ, \* Exáudi preces servórum tuórum. ℣. Benedíctus es, Dómine, qui non derelínquis præsuméntes de te, et de sua virtúte gloriántes humílias. — Exáudi.
+
+##### Lectio ii
+*Cap. 13, 1-11*
+
+UT autem sero factum est, festinavérunt servi illíus ad hospítia sua; et conclúsit Vágao óstia cubículi et ábiit. Erant autem omnes fatigáti a vino; erátque Judith sola in cubículo. Porro Holoférnes jacébat in lecto nímia ebrietáte sopítus. Dixítque Judith puéllæ suæ ut staret foris ante cubículum et observáret. Stetítque Judith ante lectum orans cum lácrimis et labiórum motu in siléntio dicens : Confírma me, Dómine, Deus Israël, et réspice in hac hora ad ópera mánuum meárum, ut, sicut promisísti, Jerúsalem civitátem tuam érigas, et hoc quod credens per te posse fíeri cogitávi, perfíciam.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+ET, cum hæc dixísset, accéssit ad colúmnam, quæ erat ad caput léctuli ejus, et pugiónem ejus, qui in ea ligátus pendébat, exsólvit. Cumque evaginásset illum, apprehéndit comam cápitis ejus et ait : Confírma me, Dómine Deus, in hac hora. Et percússit bis in cervícem ejus et abscídit caput ejus et ábstulit conopéum ejus a colúmnis et evólvit corpus ejus truncum. Et post pusíllum exívit et trádidit caput Holoférnis ancíllæ suæ et jussit ut mítteret illud in peram suam.
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros : \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta infra Hebdomadam IV Septembris
+
+{RUBRIC: De libro Judith}
+
+##### Lectio i
+*Cap. 15, 1-3*
+
+CUmque omnis exércitus decollátum Holoférnem audísset, fugit mens et consílium ab eis, et solo tremóre et metu agitáti fugæ præsídium sumunt, ita ut nullus loquerétur cum próximo suo, sed inclináto cápite, relíctis ómnibus, evádere festinábant Hebrǽos, quos armátos super se veníre audiébant, fugiéntes per vias campórum et sémitas cóllium. Vidéntes ítaque fílii Israël fugiéntes, secúti sunt illos, descenderúntque clangéntes tubis et ululántes post ipsos.
+
+℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus : \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.
+
+##### Lectio ii
+*Cap. 15, 5-7*
+
+MIsit ítaque Ozías núntios per omnes civitátes et regiónes Israël. Omnis ítaque régio omnísque urbs eléctam juventútem armátam misit post eos; et persecúti sunt eos in ore gládii, quoúsque pervenírent ad extremitátem fínium suórum. Réliqui autem qui erant in Bethúlia, ingréssi sunt castra Assyriórum et prædam, quam fugiéntes Assýrii relíquerant, abstulérunt et onustáti sunt valde.
+
+℟. Dominátor, Dómine cælórum et terræ, Creátor aquárum, Rex univérsæ creatúræ : \* Exáudi oratiónem servórum tuórum. ℣. Tu, Dómine, cui humílium semper et mansuetórum plácuit deprecátio. — Exáudi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Exáudi.}
+
+##### Lectio iii
+*Cap. 15, 9-12*
+
+JOachim autem summus póntifex de Jerúsalem venit in Bethúliam cum univérsis presbýteris suis, ut vidéret Judith. Quæ cum exísset ad illum, benedixérunt eam omnes una voce dicéntes : Tu glória Jerúsalem, tu lætítia Israël, tu honorificéntia pópuli nostri. Quia fecísti viríliter, et confortátum est cor tuum, eo quod castitátem amáveris et, post virum tuum, álterum nescíeris, ídeo et manus Dómini confortávit te, et ídeo eris benedícta in ætérnum. Et dixit omnis pópulus : Fiat, fiat.
+
+℟. Dómine Deus, qui cónteris bella ab inítio, éleva bráchium tuum super gentes, quæ cógitant servis tuis mala : \* Et déxtera tua glorificétur in nobis. ℣. Allíde virtútem eórum in virtúte tua; cadat robur eórum in iracúndia tua. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato infra Hebdomadam IV Septembris
+
+{RUBRIC: De libro Judith}
+
+##### Lectio i
+*Cap. 16, 22-31*
+
+ET factum est post hæc, omnis pópulus post victóriam venit in Jerúsalem adoráre Dóminum; et mox ut purificáti sunt, obtulérunt omnes holocáusta et vota et repromissiónes suas. Porro Judith univérsa vasa béllica Holoférnis, quæ dedit illi pópulus, et conopéum, quod ipsa sustúlerat de cúbili ipsíus, óbtulit in anáthema oblivíónis.
+
+℟. Confórta me, Rex, Sanctórum principátum tenens : \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+##### Lectio ii
+
+ERat autem pópulus jucúndus secúndum fáciem sanctórum; et per tres menses gáudium hujus victóriæ celebrátum est cum Judith. Post dies autem illos unusquísque rédiit in domum suam, et Judith magna facta est in Bethúlia et præclárior erat univérsæ terræ Israël. Erat étiam virtúti cástitas adjúncta, ita ut non cognósceret virum ómnibus diébus vitæ suæ, ex quo defúnctus est Manásses vir ejus. Erat autem, diébus festis, procédens cum magna glória.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+MAnsit autem in domo viri sui annos centum quinque, et dimísit abram suam líberam, et defúncta est ac sepúlta cum viro suo in Bethúlia. Luxítque illam omnis pópulus diébus septem. In omni autem spátio vitæ ejus non fuit qui perturbáret Israël, et post mortem ejus annis multis. Dies autem victóriæ hujus festivitátis ab Hebrǽis in número sanctórum diérum accípitur et cólitur a Judǽis ex illo témpore usque in præséntem diem.
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros : \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+---
+
+## Sabbato ante Dominicam V Septembris
+
+{RUBRIC: nisi hæc occúrrat a die 28 ad 30 Septémbris : quia tunc, sequénti Antíphona omíssa, pónitur Ant. Adapériat, quæ assignátur Sábbato ante Dominicam I Octóbris.}
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Dómine, Rex omnípotens, \* in dicióne tua cuncta sunt pósita, et non est qui possit resístere voluntáti.
+
+{RUBRIC: Orátio Dominicæ occurréntis.}
+
+---
+
+## Dominica V Septembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Esther}
+
+##### Lectio i
+*Cap. 1, 1-9*
+
+IN diébus Assuéri, qui regnávit ab India usque Æthiópiam super centum vigínti septem províncias, quando sedit in sólio regni sui, Susan cívitas regni ejus exórdium fuit. Tértio ígitur anno impérii sui, fecit grande convívium cunctis princípibus et púeris suis fortíssimis Persárum et Medórum ínclytis et præféctis provinciárum coram se, ut osténderet divítias glóriæ regni sui, ac magnitúdinem atque jactántiam poténtiæ suæ, multo témpore, centum vidélicet et octogínta diébus.
+
+℟. Dómine, mi Rex omnípotens, in dicióne tua cuncta sunt pósita, et non est qui possit resístere voluntáti tuæ : \* Líbera nos propter nomen tuum. ℣. Exáudi oratiónem nostram, et convérte luctum nostrum in gáudium. — Líbera.

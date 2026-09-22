@@ -33164,4 +33164,28 @@ QUóniam beáti Joánnis Baptístæ non strictim prætereúnda est recordátio, 
 
 #### Lectio v
 
-QUis non, cum e convívio ad cárcerem cursári vidéret, putáret Prophétam jussum esse dimítti? Quis, inquam, cum audísset natálem esse Heródis, solémne convívium, puéllæ optiónem eligéndi quod vellet datam; missum ad Joánnem ob solutiónem non arbitrarétur? Quid crudelitáti cum delíciis? quid cum funéribus voluptáti? Rápitur ad pœnam Prophéta conviváli témpore, conviváli præcé-
+QUis non, cum e convívio ad cárcerem cursári vidéret, putáret Prophétam jussum esse dimítti? Quis, inquam, cum audísset natálem esse Heródis, solémne convívium, puéllæ optiónem eligéndi quod vellet datam; missum ad Joánnem ob solutiónem non arbitrarétur? Quid crudelitáti cum delíciis? quid cum funéribus voluptáti? Rápitur ad pœnam Prophéta conviváli témpore, conviváli præcépto, quo non cúperet vel absólvi: perímitur gládio, caput ejus affértur in disco. Hoc crudelitáti férculum debebátur, quo insatiáta épulis féritas vescerétur.
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum: \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et.
+
+#### Lectio vi
+
+INtuére, rex acerbíssime, tuo spectácula digna convívio. Pórrige déxteram, ne quid sævítiæ tuæ desit; ut inter dígitos tuos rivi défluant sacri cruóris. Et, quóniam non exsaturári épulis fames, non restíngui póculis pótuit ináuditæ sævítiæ sitis; bibe sánguinem scaturiéntibus adhuc venis exsécti cápitis profluéntem. Cerne óculos in ipsa morte scéleris tui testes, aversántes conspéctum deliciárum. Claudúntur lúmina non tam mortis necessitáte quam horróre luxúriæ. Os áureum illud exsángue, cujus senténtiam ferre non póteras, conticéscit, et adhuc timétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non dereliquit eum. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Marcum
+
+#### Lectio vii
+
+*Cap. 6, 17-29*
+
+IN illo témpore: Misit Heródes ac ténuit Joánnem, et vinxit eum in cárcere propter Herodíadem, uxórem Philíppi fratris sui, quia dúxerat eam. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+{RUBRIC: Sermo 10 in novis Sermónibus}
+
+CUm sanctum Evangélium legerétur, crudéle spectáculum ante óculos nostros constitútum est: caput sancti Joánnis in disco, ferális missus crudelitátis propter ódium veritátis. Puélla saltat, et sævit mater; et inter lascívias et delícias convivántium témere jurátur, et ímpie, quod jurátur, implétur. Factum est Joánni, quod ipse prædíxerat; de Dómino enim Jesu Christo díxerat: Illum opórtet créscere, me autem mí-

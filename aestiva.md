@@ -20080,4 +20080,32 @@ VAni autem sunt omnes hómines, in quibus non subest sciéntia Dei; et de his, q
 
 ##### Lectio ii
 
-AUT, si virtútem et ópera eórum miráti sunt, intélligant ab illis, quóniam qui hæc fecit, fórtior est illis; a magnitúdine enim speciéi et creatúræ cognoscibíliter póterit Creátor horum vidéri. Sed tamen adhuc in his minor est queréla, et hi enim fortásse errant, Deum quærentes et voléntes inveníre. Etenim, cum in opéribus illíus converséntur,
+AUT, si virtútem et ópera eórum miráti sunt, intélligant ab illis, quóniam qui hæc fecit, fórtior est illis; a magnitúdine enim speciéi et creatúræ cognoscibíliter póterit Creátor horum vidéri. Sed tamen adhuc in his minor est queréla, et hi enim fortásse errant, Deum quærentes et voléntes inveníre. Etenim, cum in opéribus illíus converséntur, inquírunt et persuásum habent quóniam bona sunt quæ vidéntur.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+ITerum autem nec his debet ignósci. Si enim tantum potuérunt scire, ut possent æstimáre sǽculum, quómodo hujus Dóminum non facílius invenérunt? Infelíces autem sunt, et inter mórtuos spes illórum est, qui appellavérunt deos ópera mánuum hóminum, aurum et argéntum, artis inventiónem et similitúdines animálium aut lápidem inútilem opus manus antíquæ.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro Sapiéntiæ}
+
+##### Lectio i
+
+*Cap. 15, 1-9*
+
+TU autem, Deus noster, suávis et verus es, pátiens et in misericórdia dispónens ómnia. Etenim, si peccavérimus, tui sumus, sciéntes magnitúdinem tuam; et, si non peccavérimus, scimus quóniam apud te sumus computáti. Nosse enim te, consummáta justítia est, et scire justítiam et virtútem tuam, radix est immortalitátis.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio ii
+
+NOn enim in errórem indúxit nos hóminum malæ artis excogitátio, nec umbra pictúræ labor sine fructu, effígies sculpta per vários colóres, cujus aspéctus insensáto dat concupiscéntiam, et díli-

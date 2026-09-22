@@ -21866,4 +21866,18 @@ BEda présbyter, Girvi in Británniæ et Scótiæ fínibus ortus, septénnis san
 
 #### Lectio v
 
-SCiéntiæ ac pietátis laude Bedæ nomen sic brevi cláruit, ut sanctus Sérgius Papa de eo Romam arcesséndo cogitáverit; quo difficíllimis scílicet, quæ de rebus sacris exórtæ erant, quæstiónibus definiéndis conférret óperam. Emendándis fidélium móribus, fídei vindicándæ atque asseréndæ libros plures conscrípsit, quibus tantam sui apud omnes opiniónem fecit, ut illum sanctus Bonifátius epíscopus et martyr, Ecclésiæ lumen prædicáverit; Lanfráncus, Anglórum doctórem; concílium Aquisgranénse, doctórem admirábilem díxerit. Quin ejus scripta, eo adhuc vivénte, públice in ecclésiis legebántur. Quod cum fíeret, quóniam ipsum sanctum mínime appelláre licéret, Venerábilis título efferébant; qui deínde véluti próprius secútis étiam témporibus semper hábitus est. Ejus autem doctrínæ eo vis efficácior erat, quod vitæ sanctimónia religiosísque virtútibus confirmabátur. Quam ob rem discípulos, quos mul-
+SCiéntiæ ac pietátis laude Bedæ nomen sic brevi cláruit, ut sanctus Sérgius Papa de eo Romam arcesséndo cogitáverit; quo difficíllimis scílicet, quæ de rebus sacris exórtæ erant, quæstiónibus definiéndis conférret óperam. Emendándis fidélium móribus, fídei vindicándæ atque asseréndæ libros plures conscrípsit, quibus tantam sui apud omnes opiniónem fecit, ut illum sanctus Bonifátius epíscopus et martyr, Ecclésiæ lumen prædicáverit; Lanfráncus, Anglórum doctórem; concílium Aquisgranénse, doctórem admirábilem díxerit. Quin ejus scripta, eo adhuc vivénte, públice in ecclésiis legebántur. Quod cum fíeret, quóniam ipsum sanctum mínime appelláre licéret, Venerábilis título efferébant; qui deínde véluti próprius secútis étiam témporibus semper hábitus est. Ejus autem doctrínæ eo vis efficácior erat, quod vitæ sanctimónia religiosísque virtútibus confirmabátur. Quam ob rem discípulos, quos multos et egrégios imbuéndos hábuit, stúdio et exémplo non lítteris modo atque sciéntiis, sed étiam sanctitáte fecit insígnes.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+ÆTáte demum et labóribus fractus, gravi morbo corréptus est. Quo cum ámplius quinquagínta dies deténtus esset, consuétum orándi morem Scripturásque interpretándi non intercépit; eo namque témpore Evangélium Joánnis in populárium suórum usum Anglíce vertit. Cum autem in Ascensiónis prælúdio instáre sibi mortem persentíret, suprémis Ecclésiæ sacraméntis muníri vóluit; tum, sodáles amplexátus, atque humi super cilício stratus, cum illa verba ingemináret, Glória Patri, et Fílio, et Spirítui Sancto, obdormívit in Dómino. Ejus corpus, suavíssimum, uti fertur, spirans odórem, sepúltum est in monastério Girvénsi, ac póstea Dunclínum cum sancti Cuthbérti relíquiis translátum. Eum tamquam Doctórem a Benedictínis aliísque religiósis famíliis ac diœcésibus cultum, Leo décimus tértius Póntifex máximus, ex sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctórem declarávit, et festo ipsíus die Missam et Offícium de Doctóribus ab ómnibus recitári decrévit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+BEda présbyter, Girvi in Británniæ et Scótiæ fínibus ortus est. Mónachus factus, vitam sic instítuit, ut, dum se ártium et doctrinárum stúdiis totum impénderet, nihil umquam de regulári disciplína remítteret. Nullum fuit doctrínæ genus, in quo non esset diligentíssime versátus; sed præcípua illi cura fuit divinárum Scripturárum meditátio, ita ut, sacerdótio initiátus, sacros explanáre libros aggrés-

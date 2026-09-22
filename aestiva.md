@@ -23293,4 +23293,12 @@ CǼléstium donórum distribútor, Deus, qui in angélico júvene Aloísio miram
 
 #### Lectio iv
 
-LOísius, Ferdinándi Gonzágæ Castelliónis Stiverórum marchiónis fílius, festináto propter vitæ perículum baptísmo, prius cælo quam terris nasci visus, primam illam grátiam tam constánter retínuit, ut in ea confirmátus crederétur. A primo ratiónis usu, quo se
+LOísius, Ferdinándi Gonzágæ Castelliónis Stiverórum marchiónis fílius, festináto propter vitæ perículum baptísmo, prius cælo quam terris nasci visus, primam illam grátiam tam constánter retínuit, ut in ea confirmátus crederétur. A primo ratiónis usu, quo se Deo statim óbtulit, vitam duxit quotídie sanctiórem. Novénnis Floréntiæ ante aram beátæ Vírginis, quam paréntis loco semper hábuit, perpétuam virginitátem vovit; eámque, insígni Dei benefício, nulla mentis aut córporis pugna tentátam servávit. Réliquas ánimi perturbatiónes cœpit ætáte illa tam fórtiter comprímere, ut ne primo quidem eárum motu deínde incitarétur. Sensus étiam, óculos præcípue, ita cohíbuit, ut non modo illos numquam in fáciem inténderit Maríæ Austríacæ, quam plures annos inter honorários Hispaniárum príncipis ephébos fere quotídie salutávit; sed a matris étiam vultu contineret: homo proptérea sine carne, aut ángelus in carne mérito appellátus.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+ADjécit sénsuum custódiæ, córporis cruciátum. Tria síngulis hebdómadis jejúnia, éaque plerúmque módico pane et aqua tolerábat; quamquam perpétuum fuísse per id tempus ipsíus jejúnium vidéri potest, cum ejus prándia ferme vix únciam ǽquárent. Sæpe étiam ter in die se fúnibus aut caténis cruentábat; flagélla quandóque canum loris, cilícia equórum calcáribus supplévit. Mollem léctulum clam injéctis ásserum fragméntis asperábat, eo étiam ut cítius ad orándum excitarétur; magnam quippe noctis partem, summa étiam híeme, solo tectus indúsio, pósitis humi génibus, vel præ languóre jacens ac pronus, in cæléstium contemplatióne traducébat. Intérdiu quoque tres, quátuor, quinque horas in ea perstábat immótus, donec unam saltem ánimo núsquam distrácto percurrísset. Cujus constántiæ prǽmium fuit stabílitas mentis inter orándum álio non vagántis, immo perpétua velut éxtasi in Deo defíxæ. Ei demum ut únice adhæréret, victo post triennále acérrimum certámen patre, et avíti principátus jure in fratrem transláto, societáti Jesu, ad quam cælésti voce Matríti fúerat accítus, Romæ se adjúnxit.
+
+℟. Amávit eum Dóminus, et ornávit eum: sto-

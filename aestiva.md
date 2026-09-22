@@ -20494,4 +20494,32 @@ OMnis potentátus brevis vita: languor prolíxior gravat médicum, brevem langu�
 
 QUI tetígerit picem, inquinábitur ab ea; et, qui communicáverit supérbo, induet supérbiam. Pondus super se tollet qui honestióri se commúnicat, et ditióri te ne sócius fúeris. Quid communicábit cácabus ad ollam? quando enim se colliserint, confringétur. Dives injúste egit et fremet, pauper autem læsus tacébit. Si largítus fúeris, assúmet te, et, si non habúeris, derelínquet te. Si habes, convívet tecum et evacuábit te, et ipse non dolébit super te.
 
-℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et ánimo irreverénti et infruníto ne tradas me, Dómine.
+
+##### Lectio ii
+
+*Cap. 13, 9-22*
+
+HUmiliáre Deo et exspécta manus ejus; atténde, ne sedúctus in stultítiam humiliéris. Noli esse húmilis in sapiéntia tua, ne humiliátus in stultítiam seducáris. Advocátus a potentióre discéde, ex hoc enim magis te advocábit. Ne ímprobus sis, ne impingáris, et ne longe sis ab eo, ne eas in obliviónem. Ne retíneas ex æquo loqui cum illo nec credas multis verbis illíus; ex multa enim loquéla tentábit te et subrídens interrogábit te de abscónditis tuis. Immítis ánimus illíus conservábit verba tua et non parcet de malítia et de vínculis.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+CAve tibi et atténde diligénter audítui tuo, quóniam cum subversióne tua ámbulas; áudiens vero illa quasi in somnis vide et vigilábis. Omni vita tua dílige Deum et ínvoca illum in salúte tua. Omne ánimal díligit símile sibi, sic et omnis homo próximum sibi; omnis caro ad símilem sibi conjungétur, et omnis homo símili sui sociábitur. Si communicábit lupus agno aliquándo, sic peccátor justo. Quæ communicátio sancto hómini ad canem? aut quæ pars díviti ad páuperem?
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 14, 1-17*
+
+BEátus vir, qui non est lapsus verbo ex ore suo et non est stimulátus in tristítia delícti; felix qui non hábuit ánimi sui tristítiam et non éxcidit a

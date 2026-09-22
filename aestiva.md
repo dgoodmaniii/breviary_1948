@@ -25984,4 +25984,60 @@ TEnebántur hómines captívi sub diábolo, et dæmónibus serviébant; sed red�
 
 *Sermo 31, álias 344*
 
-HAbuit ille sánguinem, unde nos redímeret; et ad hoc accépit sánguinem, ut esset quem pro nobis rediméndis effúnderet. Sanguis Dómini tui, si vis, datus est pro te; si nolúeris esse, non est datus pro te. Forte enim dicis: Hábuit sánguinem Deus meus, quo me redí-
+HAbuit ille sánguinem, unde nos redímeret; et ad hoc accépit sánguinem, ut esset quem pro nobis rediméndis effúnderet. Sanguis Dómini tui, si vis, datus est pro te; si nolúeris esse, non est datus pro te. Forte enim dicis: Hábuit sánguinem Deus meus, quo me redímeret, sed jam, cum passus est, totum dedit; quid illi remánsit, quod det et pro me? Hoc est magnum, quia semel dedit, et pro ómnibus dedit. Sanguis Christi volénti est salus, nolénti supplícium. Quid ergo dúbitas, qui mori non vis, a secúnda pótius morte liberári? Qua liberáris, si vis tóllere crucem tuam, et sequi Dóminum; quia ille tulit suam, et quæsívit servum.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Hi qui amícti sunt \* stolis albis, qui sunt, et unde venérunt?
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Hi sunt \* qui venérunt de tribulatióne magna et lavérunt stolas suas in sánguine Agni.
+
+**3** Ideo sunt \* ante thronum Dei et sérviunt ei die ac nocte.
+
+**4** Et ipsi vicérunt \* dracónem propter sánguinem Agni et propter testaméntum Verbi sui.
+
+**5** Beáti \* qui lavant stolas suas in sánguine Agni.
+
+#### Capitulum
+
+*Hebr. 9, 11-12*
+
+FRatres: Christus assístens Póntifex futurórum bonórum, per ámplius et perféctius tabernáculum non manufáctum, id est, non hujus creatiónis: neque per sánguinem hircórum aut vitulórum, sed per próprium sánguinem introívit semel in Sancta, ætérna redemptióne invénta.
+
+#### Hymnus
+
+SAlvéte, Christi vúlnera,
+Imménsi amóris pígnora,
+Quibus perénnes rívuli
+Manant rubéntis sánguinis.
+
+Nitóre stellas víncitis,
+Rosas odóre et bálsama,
+Prétio lapíllos Indicos,
+Mellis favos dulcédine.
+
+Per vos patet gratíssimum
+Nostris asýlum méntibus;
+Non huc furor minántium
+Umquam penétrat hóstium.
+
+Quot Jesus in prætório
+Flagélla nudus éxcipit!
+Quot scissa pellis úndique
+Stillat cruóris gúttulas!
+
+Frontem venústam, proh dolor!
+Coróna pungit spínea,
+Clavi retúsa cúspide
+Pedes manúsque pérforant.
+
+Postquam sed ille trádidit
+Amans volénsque spíritum,
+Pectus ferítur láncea,
+Geminúsque liquor éxsilit.

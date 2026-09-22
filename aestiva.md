@@ -23938,3 +23938,37 @@ Homilía sancti Ambrósii Epíscopi
 PEperit fílium Elísabeth, et congratulabántur vicíni. Habet Sanctórum edítio lætítiam plurimórum, quia commúne est bonum; justítia enim commúnis est virtus. Et ídeo in ortu justi futúræ vitæ insígne præmíttitur, et grátia secutúræ virtútis exsultatióne vicinórum præfiguránte signátur. Pulchre autem tempus, quo fuit in útero Prophéta, descríbitur, ne Maríæ præséntia taceátur; sed tempus silétur infántiæ, eo quia infántiæ impediménta nescívit. Et ídeo in Evangélio nihil super eo légimus, nisi ortum ejus, et oráculum, exsultatiónem in útero, vocem in desérto.
 
 ℟. Præcúrsor Dómini venit, de quo ipse testátur: \* Nullus major inter natos mulíerum Joánne Baptísta. ℣. Hic est enim Prophéta, et plus quam Prophéta, de quo Salvátor ait. — Nullus major inter natos.
+
+#### Lectio viii
+
+NEque enim ullam infántiæ sensit ætátem, qui supra natúram, supra ætátem in útero pósitus matris, a mensúra cœpit ætátis plenitúdinis Christi. Mire sanctus Evangelísta præmitténdum putávit, quod plúrimi infántem patris nómine Zacharíam appellándum putáverint; ut advértas matri non nomen alicújus displicuísse degéneris, sed id Sancto infúsum Spíritu, quod ab Angelo ante Zacharíæ fúerat prænuntiátum. Et quidem ille mutus intimáre vocábulum fílii nequívit uxóri; sed per prophetíam Elísabeth dídicit, quod non didícerat a maríto.
+
+℟. Gábriel Angelus appáruit Zacharíæ dicens: Nascétur tibi fílius, nomen ejus Joánnes vocábitur: \* Et multi in nativitáte ejus gaudébunt. ℣. Erit enim magnus coram Dómino, vinum et síceram non bibet. — Et. Glória. Et.
+
+#### Lectio ix
+
+JOánnes est, inquit, nomen ejus; hoc est, non nos ei nomen impónimus, qui jam a Deo nomen accépit. Habet vocábulum suum, quod agnóvimus, non quod elégimus. Habent hoc mérita Sanctórum, ut a Deo nomen accípiant. Sic Jacob Israël dícitur, quia Deum vidit. Sic Dóminus noster Jesus nominátus est, ántequam natus; cui non Angelus, sed Pater nomen impósuit. Vides Angelos quæ audíerint, non quæ usurpáverint, nuntiáre. Nec miréris, si nomen múlier, quod non audívit, asséruit; quando Spíritus ei Sanctus, qui Angelo mandáverat, revelávit.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Elísabeth Zacharíæ \* magnum virum génuit, Joánnem Baptístam, præcursórem Dómini.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Innuébant patri ejus \* quem vellet vocári eum: et scripsit dicens: Joánnes est nomen ejus.
+
+**3** Joánnes vocábitur \* nomen ejus: et in nativitáte ejus multi gaudébunt.
+
+**4** Inter natos mulíerum \* non surréxit major Joánne Baptísta.
+
+**5** Tu, puer, \* Prophéta Altíssimi vocáberis; præíbis ante Dóminum paráre vias ejus.
+
+#### Capitulum
+
+*Is. 49, 1*
+
+AUdíte, ínsulæ, et atténdite, pópuli de longe: Dóminus ab útero vocávit

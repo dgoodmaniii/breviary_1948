@@ -20314,4 +20314,32 @@ FIli, eleemósynam páuperis ne defráudes et óculos tuos ne transvértas a pá
 
 ##### Lectio ii
 
-AB ínope ne avértas óculos tuos propter iram et non relínquas quæréntibus tibi retro maledícere; maledicéntis enim tibi in amaritúdine ánimæ, exaudiétur deprecátio illíus;
+AB ínope ne avértas óculos tuos propter iram et non relínquas quæréntibus tibi retro maledícere; maledicéntis enim tibi in amaritúdine ánimæ, exaudiétur deprecátio illíus; exáudiet autem eum qui fecit illum. Congregatióni páuperum affábilem te fácito et presbýtero humília ánimam tuam et magnáto humília caput tuum.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+DEclína páuperi sine tristítia aurem tuam et redde débitum tuum et respónde illi pacífica in mansuetúdine. Líbera eum, qui injúriam pátitur, de manu supérbi et non ácide feras in ánima tua. In judicándo esto pupíllis miséricors ut pater et pro viro matri illórum; et eris tu velut fílius Altíssimi obédiens, et miserébitur tui magis quam mater.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 4, 23-36*
+
+FIli, consérva tempus et devíta a malo. Pro ánima tua ne confundáris dícere verum; est enim confúsio addúcens peccátum, et est confúsio addúcens glóriam et grátiam. Ne accípias fáciem advérsus fáciem tuam nec advérsus ánimam tuam mendácium. Ne revereáris próximum tuum in casu suo, nec retíneas verbum in témpore salútis. Non abscóndas sapiéntiam tuam in decóre suo.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio ii
+
+IN lingua enim sapiéntia dignóscitur, et sensus et sciéntia et doctrína in verbo sensáti, et firmaméntum in opéribus justítiæ. Non contradícas ver-

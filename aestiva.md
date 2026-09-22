@@ -20016,4 +20016,18 @@ AD vos ergo, reges, sunt hi sermónes mei, ut discátis sapiéntiam et non excid
 
 *Cap. 7, 1-14*
 
-SUM quidem et ego mortális homo símilis ómnibus et ex génere terréni illíus, qui prior factus est, et in ventre matris figurá-
+SUM quidem et ego mortális homo símilis ómnibus et ex génere terréni illíus, qui prior factus est, et in ventre matris figurátus sum caro, decem ménsium témpore coagulátus sum in sánguine ex sémine hóminis et delectaménto somni conveniénte; et ego natus accépi commúnem áërem et in símiliter factam décidi terram et primam vocem símilem ómnibus emísi plorans; in involuméntis nutrítus sum et curis magnis. Nemo enim ex régibus áliud hábuit nativitátis inítium: unus ergo intróitus est ómnibus ad vitam et símilis éxitus.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio ii
+
+PRopter hoc optávi, et datus est mihi sensus; et invocávi, et venit in me spíritus sapiéntiæ; et præpósui illam regnis et sédibus et divítias nihil esse duxi in comparatióne illíus. Nec comparávi illi lápidem pretiósum, quóniam omne aurum in comparatióne illíus aréna est exígua, et tamquam lutum æstimábitur argéntum in conspéctu illíus. Super salútem et spéciem diléxi illam et propósui pro luce habére illam, quóniam inexstinguíbile est lumen illíus.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+VEnérunt autem mihi ómnia bona páriter cum illa, et innumerábilis honéstas per manus illíus; et lætátus sum in ómnibus, quóniam antecedébat me ista sapiéntia, et ignorábam quóniam horum ómnium mater est. Quam sine fictióne dídici et sine invídia commúnico et honestátem illíus non abscóndo. Infinítus enim thesáurus est homínibus; quo qui usi sunt, partícipes facti sunt amicítiæ Dei, propter disciplínæ dona commendáti.

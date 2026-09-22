@@ -26726,4 +26726,24 @@ Homilía sancti Hierónymi Presbýteri
 
 *Lib. 2 Comment. in cap. 14 Matth.*
 
-DIscípulis Dóminus præcépit transfretáre, et cómpulit ut ascénderent navículam. Quo sermóne osténditur, invítos eos a Dómino recessísse, dum amóre Præceptóris ne punctum qui-
+DIscípulis Dóminus præcépit transfretáre, et cómpulit ut ascénderent navículam. Quo sermóne osténditur, invítos eos a Dómino recessísse, dum amóre Præceptóris ne punctum quidem témporis ab eo volunt separári. Et, dimíssa turba, ascéndit in montem solus oráre. Si fuíssent cum eo discípuli Petrus et Jacóbus et Joánnes, qui víderant glóriam transformáti, fórsitan ascendíssent in montem cum eo; sed turba ad sublímia sequi non potest, nisi docúerit eam juxta mare in líttore et alúerit in desérto.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+QUod autem ascéndit solus oráre, non ad eum réferas, qui de quinque pánibus quinque míllia saturávit hóminum, excéptis párvulis et muliéribus; sed ad eum, qui, audíta morte Joánnis, secéssit in solitúdinem: non quod persónam Dómini separémus, sed quod ópera ejus inter Deum hominémque divísa sint. Navícula autem in médio mari jactabátur flúctibus. Recte quasi invíti et retractántes Apóstoli a Dómino recésserant, ne, illo absénte, naufrágia sustinérent.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+#### Lectio ix
+
+DEnique, Dómino in montis cacúmine commoránte, statim ventus contrárius óritur, et turbat mare, et periclitántur Apóstoli; et tamdiu ímminens naufrágium persevérat, quámdiu Jesus véniat. Quarta autem vigília noctis venit ad eos ámbulans supra mare. Statiónes et vigíliæ militáres in terna horárum spátia dividúntur. Quando ergo dicit, quarta vigília noctis venísse ad eos Dóminum, osténdit tota nocte periclitátos; et extrémo noctis, atque in consummatióne mundi, eis auxílium præbitúrum.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+{RUBRIC: Capitulum Fratres, et Hymnus Exsúltet, ut supra in I Vesperis. 733}
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.

@@ -16312,3 +16312,71 @@ SI autem, annuntiánte te ad ímpium ut a viis suis convertátur, non fúerit co
 ET factum est verbum Dómini ad me dicens : Fili hóminis, prophéta de pastóribus Israël, prophéta et dices pastóribus : Hæc dicit Dóminus Deus : Væ pastóribus Israël, qui pascébant semetípsos! Nonne greges a pastóribus pascúntur? Lac comedébatis et lanis operiebámini et quod crassum erat occidebátis, gregem autem meum non pascebátis; quod infírmum fuit non consolidástis et quod ægrótum non sanástis, quod confráctum est non alligástis et quod abjéctum est non reduxístis et quod períerat non quæsístis, sed cum austeritáte imperabátis eis et cum poténtia.
 
 ℟. A fácie furóris tui, Deus, conturbáta est omnis terra : \* Sed miserére, Dómine, et ne fácias consummatiónem. ℣. Dómine, Dóminus noster, quam admirábile est nomen tuum! — Sed.
+
+##### Lectio ii
+
+ET dispérsæ sunt oves meæ, eo quod non esset pastor, et factæ sunt in devoratiónem ómnium bestiárum agri et dispérsæ sunt. Erravérunt greges mei in cunctis móntibus et in univérso colle excélso, et super omnem fáciem terræ dispérsi sunt greges mei, et non erat, qui requíreret, non erat, inquam, qui requíreret. Proptérea, pastóres, audíte verbum Dómini : Vivo ego, dicit Dóminus Deus, quia, pro eo quod facti sunt greges mei in rapínam, et oves meæ in devoratiónem ómnium bestiárum agri, eo quod non esset pastor; neque enim quæsiérunt pastóres mei gregem meum, sed pascébant pastóres semetípsos et greges meos non pascébant; proptérea, pastóres, audíte verbum Dómini.
+
+℟. Civitátem istam tu circúmda, Dómine : et Angeli tui custódiant muros ejus. \* Exáudi, Dómine, pópulum tuum cum misericórdia. ℣. Avertátur furor tuus, Dómine, a pópulo tuo et a civitáte sancta tua. — Exáudi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Exáudi.}
+
+##### Lectio iii
+
+HÆC dicit Dóminus Deus : Ecce ego ipse super pastóres, requíram gregem meum de manu eórum et cessáre fáciam eos, ut ultra non pascant gregem, nec pascant ámplius pastóres semetípsos, et liberábo gregem meum de ore eórum, et non erit ultra eis in escam. Quia hæc dicit Dóminus Deus : Ecce ego ipse requíram oves meas et visitábo eas : sicut vísitat pastor gregem suum in die quando fúerit in médio óvium suárum dissipatárum, sic visitábo oves meas et liberábo eas de ómnibus locis, in quibus dispérsæ fúerant in die nubis et calíginis.
+
+℟. Genti peccatríci, pópulo pleno peccáto miserére, \* Dómine Deus. ℣. Esto placábilis super nequítiam pópuli tui. — Dómine. Glória Patri. Dómine.
+
+---
+
+## Feria Quarta infra Hebdomadam II Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 40, 1-6*
+
+IN vigésimo quinto anno transmigratiónis nostræ, in exórdio anni, décima mensis, quartodécimo anno postquam percússa est cívitas, in ipsa hac die facta est super me manus Dómini et addúxit me illuc. In visiónibus Dei addúxit me in terram Israël et dimísit me super montem excélsum nimis, super quem erat quasi ædifícium civitátis vergéntis ad Austrum, et introdúxit me illuc.
+
+℟. Indicábo tibi, homo, quid sit bonum aut quid Dóminus requírat a te : \* Fácere judícium et justítiam et sollícitum ambuláre cum Deo tuo. ℣. Spera in Dómino, et fac bonitátem, et inhábita terram. — Fácere.
+
+##### Lectio ii
+
+ET ecce vir, cujus erat spécies quasi spécies æris, et funículus líneus in manu ejus, et cálamus mensúræ in manu ejus, stabat autem in porta et locútus est ad me idem vir : Fili hóminis, vide óculis tuis et áuribus tuis audi et pone cor tuum in ómnia quæ ego osténdam tibi, quia ut ostendántur tibi addúctus es huc, annúntia ómnia quæ tu vides dómui Israël.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+ET ecce murus forínsecus in circúitu domus úndique, et in manu viri cálamus mensúræ sex cubitórum et palmo; et mensus est latitúdinem ædifícii cálamo uno, altitúdinem quoque cálamo uno. Et venit ad portam quæ respiciébat viam Orientálem et ascéndit per gradus ejus et mensus est limen portæ cálamo uno latitúdinem, id est limen unum cálamo uno in latitúdine.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quinta infra Hebdomadam II Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 41, 1-9*
+
+ET introdúxit me in templum et mensus est frontes sex cúbitos latitúdinis hinc et sex cúbitos latitúdinis inde latitúdinem tabernáculi, et latitúdo portæ decem cubitórum erat, et látera portæ quinque cúbitis hinc et quinque cúbitis inde; et mensus est longitúdinem ejus quadragínta cubitórum et latitúdinem vigínti cubitórum. Et introgréssus intrínsecus mensus est in fronte portæ duos cúbitos et portam sex cubitórum et latitúdinem portæ septem cubitórum.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+
+ET mensus est longitúdinem ejus vigínti cubitórum et latitúdinem ejus vigínti cubitórum ante fáciem templi et dixit ad me : Hoc est sanctum sanctórum. Et mensus est paríetem domus sex cubitórum et latitúdinem láteris quátuor cubitórum, úndique per circúitum domus. Látera autem, latus ad latus bis trigínta tria; et erant eminéntia, quæ ingrederéntur per paríetem domus, in latéribus per circúitum, ut continérent et non attíngerent paríetem templi.
+
+℟. Aspice, Dómine, de sede sancta tua, et cógita de nobis : inclína, Deus meus, aurem tuam et audi : \* Aperi óculos tuos et vide tribulatiónem nostram. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Aperi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Aperi.}
+
+##### Lectio iii
+
+ET platéa erat in rotúndum ascéndens sursum per cóchleam et in cœnáculum templi deferébat per gyrum. Idcírco látius erat templum in superióribus; et sic de inferióribus ascendebátur ad superióra in médium. Et vidi in domo altitúdinem per circúitum, fundáta látera ad mensúram cálami, sex cubitórum spátio; et latitúdinem per paríetem láteris forínsecus quinque cubitórum, et erat intérior domus in latéribus domus.
+
+℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.

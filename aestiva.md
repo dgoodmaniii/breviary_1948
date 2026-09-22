@@ -30348,4 +30348,34 @@ NEmo potest duóbus dóminis servíre. Ad hanc ipsam inténtiónem referéndum e
 
 #### Lectio viii
 
-IDeo, inquit, dico vobis, non habére sollicitúdinem ánimæ vestræ quid
+IDeo, inquit, dico vobis, non habére sollicitúdinem ánimæ vestræ quid edátis, neque córpori vestro quid induátis; ne forte, quamvis jam supérflua non quærántur, propter ipsa necessária cor duplicétur, et ad ipsa conquirénda, nostra detorqueátur inténtio, cum áliquid quasi misericórditer operámur: id est, ut cum consúlere alícui vidéri vólumus, nostrum emoluméntum ibi pótius quam illíus utilitátem attendámus; et ídeo nobis non videámur peccáre, quia non supérflua, sed necessária sunt, quæ cónsequi vólumus.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro S. Donáto Ep. et Mart.}
+
+#### Lectio ix
+
+DOnátus, paréntibus propter Jesu Christi fidem interféctis, Arrétium in Etrúriam cum Hilaríno mónacho ex fuga se cóntulit: cujus étiam urbis epíscopus creátus est. Ubi, cum a Quadratiáno præfécto in Juliáni persecutióne utérque idóla venerári juberétur, negántibus illis se tam nefárium scelus commissúros, Hilarínus in óculis Quadratiáni támdiu fústibus cæsus est, dum effláret ánimam; Donátus, veheménter et ipse cruciátus, gládio percússus est. Quorum córpora a Christiánis prope eam urbem honorífice sepúlta sunt.
+
+Te Deum.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Nolíte sollíciti esse \* dicéntes: Quid manducábimus aut quid bibémus? Scit enim Pater vester, quid vobis necésse sit.
+
+###### Oratio
+
+DEus, qui beáto Cajetáno Confessóri tuo apostólicam vivéndi formam imitári tribuísti: da nobis, ejus intercessióne et exémplo, in te semper confídere, et sola cæléstia desideráre. Per Dóminum.
+
+{RUBRIC: Et fit Com. S. Donáti Ep. et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+DEus, tuórum glória sacerdótum: præsta, quæsumus: ut sancti Mártyris tui et Epíscopi Donáti, cujus festa gérimus, sentiámus auxílium. Per Dóminum.

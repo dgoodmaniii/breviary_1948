@@ -27004,3 +27004,15 @@ Patri potéstas, Filióque glória,
 Perpetuúmque decus
 Tibi sit, alme Spíritus.
 Amen.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+ELísabeth Aragóniæ régibus ortam, Christi anno millésimo ducentésimo septuagésimo primo, in præságium futúræ sanctimóniæ, paréntes, præter morem relícto matris aviæque nómine, a magna ejus matértera, Thuríngiæ dómina, sancta Elísabeth, in baptísmo nominátam voluére. Ubi nata est, statim pátuit, quam felix regum regnorúmque esset futúra pacátrix; natalítia enim ejus lætítia perniciósas avi patrísque dissensiónes in concórdiam convértit. Pater vero, crescéntis póstea fíliæ admirátus índolem, affirmábat fore, ut una Elísabeth réliquas Aragoniórum regum sánguine creátas féminas virtúte longe superáret. Sic cæléstem ipsíus vitam in contemnéndo córporis ornátu, in fugiéndis voluptátibus, in jejúniis frequentándis, in divínis précibus assídue recitándis, in caritátis opéribus exercéndis, venerátus, rerum suárum regníque felicitátem uníus fíliæ méritis referébat accéptam. Tandem, ubíque nota et a multis princípibus exoptáta, Dionýsio Lusitániæ regi christiánis cæremóniis rite est in matrimónium collocáta.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+#### Lectio v
+
+JUncta conjúgio, non minórem excoléndis virtútibus quam líberis educándis óperam dabat, viro placére studens, sed magis Deo. Médiam fere anni partem solo pane tolerábat et aqua; quæ in quodam ipsíus morbo divínitus versa est in vinum, cum id a médicis præscríptum bíbere recusásset. Páuperis féminæ ulcus horréndum exosculáta, derepénte sanávit. Pecúnias paupéribus distribuéndas, ut regem latérent, hibérno témpore in rosas convértit. Vírginem cæcam a nativitáte illumínavit; multos álios solo crucis signo a gravíssimis morbis liberávit; plúrima id genus miracula patrávit. Monastéria, collégia et templa non modo exstrúxit, sed étiam magnífice dotávit. In regum discórdiis componéndis admirábilis fuit; in privátis publicísque mortálium

@@ -22396,4 +22396,30 @@ DEus, qui multitúdinem populórum, beáti Bonifátii Mártyris tui atque Pontí
 
 ###### Oratio
 
-DEus, qui beátum Norbértum Confessórem tuum atque Pontíficem, verbi tui præcónem exímium effecísti, et per eum Ecclésiam tuam nova prole fœcundásti: præsta, quǽsumus; ut, ejúsdem suf-
+DEus, qui beátum Norbértum Confessórem tuum atque Pontíficem, verbi tui præcónem exímium effecísti, et per eum Ecclésiam tuam nova prole fœcundásti: præsta, quǽsumus; ut, ejúsdem suffragántibus méritis, quod ore simul et ópere dócuit, te adjuvánte, exercére valeámus. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis :}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+{RUBRIC: Oratio Deus, qui multitúdinem, ut supra. 600}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+NOrbértus, nobilíssimis paréntibus natus, adoléscens liberálibus disciplínis erudítus, in ipsa póstea imperatóris aula, spretis mundi illécebris, ecclesiásticæ milítiæ adscríbi vóluit. Sacris initiátus, rejéctis móllibus ac spléndidis véstibus, pellícea melóte indútus, prædicatióni verbi Dei se totum dedit. Abdicátis ecclesiásticis provéntibus satis amplis, et património in páuperes erogáto, semel in die sub vésperam solo cibo quadragesimáli utens, nudísque pédibus et lácera veste sub brumáli rigóre incédens, míræ austeritátis vitam est aggréssus. Potens ígitur ópere et sermóne, innúmeros hæréticos ad fidem, peccatóres ad pœniténtiam, dissidéntes ad pacem et concórdiam revocávit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+CUM Laudúni esset, ab epíscopo rogátus ne a sua diœcési discéderet, desértum in ea locum, qui Præmonstrátus dicebátur, sibi delégit; ibíque, trédecim sóciis aggregátis, Præmonstraténsem órdinem instítuit, divínitus accépta per visum régula a sancto Augustíno. Cum vero ejus fama sanctitátis in dies magis augerétur, ac plúrimi ad eum quotídie discípuli convenírent, idem ordo ab Honório secúndo aliísque summis Pontifícibus confirmátus, ac plúribus ab eo monastériis ædificátis, mirífice propagátus est.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+ANtvérpiam accersítus, in ea urbe Tanchelíni nefáriam hǽresim profli-

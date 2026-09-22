@@ -28207,3 +28207,64 @@ SUmmi Paréntis Unice,
 Vultu pio nos réspice,
 Vocans ad arcem glóriæ
 Cor Magdalénæ pœnitens.
+
+Amíssa drachma régio
+Recóndita est ærário,
+Et gemma, detérso luto,
+Nitóre vincit sídera.
+
+Jesu, medéla vúlnerum,
+Spes una pœniténtium,
+Per Magdalénæ lácrimas
+Peccáta nostra díluas.
+
+Dei Parens piíssima,
+Hevæ nepótes flébiles
+De mille vitæ flúctibus
+Salútis in portum vehas.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Uni Deo sit glória,
+Pro multifórmi grátia,
+Peccántium qui crímina
+Remíttit, et dat prǽmia.
+Amen.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+**Ad Bened. Ant.** María \* unxit pedes Jesu et extérsit capíllis suis, et domus impléta est ex odóre unguénti.
+
+###### Oratio
+
+BEátæ Maríæ Magdalénæ, quæsumus, Dómine, suffrágiis adjuvémur: cujus précibus exorátus, quatriduánum fratrem Lázarum vivum ab ínferis resuscitásti: Qui vivis.
+
+{RUBRIC: Vesperæ a Capitulo de sequenti, Commemoratio præcedentis ac S. Liborii Ep. et Conf.}
+
+{RUBRIC: ¶ Si vero dici contigerit II Vesperas S. Mariæ Magdalénæ integras, tunc Hymnus sumitur ex I Vesperis, ut supra 786; ℣. Elégit eam, et Ant. ad Magnificat Múlier, ut infra.}
+
+---
+
+### Die 23 Julii
+
+#### S. Apollinaris
+
+{RUBRIC: Episcopi et Martyris [29] Duplex}
+
+###### Oratio
+
+DEus, fidélium remunerátor animárum, qui hunc diem beáti Apollináris Sacerdótis tui martýrio consecrásti: tríbue nobis, quæsumus, fámulis tuis; ut, cujus venerándam celebrámus festivitátem, précibus ejus indulgéntiam consequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedentis:}
+
+**Ant.** Múlier quæ erat in civitáte peccátrix, áttulit alabástrum unguénti, et stans retro secus pedes Dómini, lácrimis cœpit rigáre pedes ejus, et capíllis cápitis sui tergébat.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+###### Oratio
+
+{RUBRIC: Beátæ Maríæ Magdalénæ, ut supra.}
+
+{RUBRIC: Deinde Commem. S. Liborii Ep. et Conf.:}
+
+**Ant.** Sacérdos et Póntifex, et virtútum ópifex,

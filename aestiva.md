@@ -32000,4 +32000,20 @@ IN illo témpore: Intrávit Jesus in quoddam castéllum; et múlier quædam, Mar
 
 {RUBRIC: Sermo 27 de verbis Dómini, paulo ante médium}
 
-BEne Martha circa corporálem Dómini, quid dicam, necessitátem an voluntátem? ministrábat carni mortáli. Sed quis erat in
+BEne Martha circa corporálem Dómini, quid dicam, necessitátem an voluntátem? ministrábat carni mortáli. Sed quis erat in carne mortáli? In princípio erat Verbum, et Verbum erat apud Deum, et Deus erat Verbum: ecce quod María audiébat. Verbum caro factum est, et habitávit in nobis: ecce Martha cui ministrábat. Ergo María melíórem partem elégit, quæ non auferétur ab ea. Hoc enim elégit, quod semper manébit, ídeo non auferétur ab ea.
+
+℟. Diffúsa est grátia in lábiis tuis: \* Proptérea benedíxit te Deus in ætérnum. ℣. Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis, ex quibus delectavérunt te fíliæ regum in honóre tuo. — Proptérea.
+
+#### Lectio viii
+
+CIrca unum María se vóluit occupári. Jam tenébat: Mihi autem adhærére Deo bonum est. Sedébat ad pedes Cápitis nostri. Quanto humílius sedébat, tanto ámplius capiébat; confluit enim aqua ad humilitátem convállis, dénatat de tumóribus collis. Non ergo Dóminus opus reprehéndit, sed munus distínxit. Circa multa es occupáta: porro unum est necessárium. Jam hoc sibi María elégit.
+
+℟. Beáta es, Virgo María, Dei Génitrix, quæ credidísti Dómino: perfécta sunt in te quæ dicta sunt tibi: \* ecce exaltáta es super choros Angelórum: Intercéde pro nobis ad Dóminum, Deum nostrum. ℣. Ave, María, grátia plena; Dóminus tecum. — Intercéde. Glória Patri. Intercéde.
+
+{RUBRIC: Pro S. Agapito Mart.}
+
+#### Lectio ix
+
+AGapítus Prænestínus, quíndecim annos natus, Aureliáno imperatóre, martýrii cupidíssimus, cum propter constántiam religiónis, imperatóris jussu, primum nervis diutíssime cæsus, deínde in tetrum cárcerem conjéctus esset, ut nihil omníno per quátuor dies gustáret, e custódia est edúctus. Et, ardéntibus carbónibus cápiti ejus impósitis, Deo agens grátias, íterum afféctus verbéribus, nudus ita pédibus suspénsus est, ut ingens fumus e subjécto igne os ejus obrúeret. Tum fervens aqua in ejus ventrem effúsa est, maxilláque confráctæ. Quo témpore judex, e tribunáli lapsus, paulo post mórtuus est. Ea re incénso imperatóre, sanctum júvenem jubénte feris óbjici, cum illæ non audérent attíngere, Prænéste gládio percússus est.
+
+Te Deum laudámus.

@@ -27590,4 +27590,18 @@ CUm sacra Pentecóstes die Apóstoli, cælitus afflári, váriis linguis loquer�
 
 AD novum ergo sacéllum sæpe quotídie conveniéntes, rítibus piis, precatiónibus ac láudibus beatíssimam Vírginem, velut singulárem órdinis tutélam, colébant. Quam ob rem fratres beátæ Maríæ de Monte Carmélo passim ab ómnibus appellári cœpérunt; eúmque títulum summi Pontífices non modo confirmárunt, sed et indulgéntias peculiáres iis, qui eo título vel órdinem vel fratres síngulos nuncupárent, concessére. Nec vero nomenclatúram tantum magnificentíssima Virgo tríbuit et tutélam, verum et insígne sacri scapuláris; quod beáto Simóni Anglico præbuit, ut cælésti hac veste ordo ille sacer dignoscerétur, et a malis ingruéntibus protegerétur. Ac demum, cum olim in Európa ordo esset ignótus, et ob id apud Honórium tértium non pauci pro illíus exstinctióne instárent, ástitit Honório noctu piíssima Virgo María, planéque jussit, ut institútum et hómines benígne complecterétur.
 
-℟. Quæ est ista quæ procéssit sicut sol, et formó-
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt.
+
+#### Lectio vi
+
+NON in hoc tantum sæculo órdinem sibi tam accéptum multis prærogatívis beatíssima Virgo insignívit; verum et in álio (cum ubíque et poténtia et misericórdia plúrimum váleat) fílios in scapuláris societátem relátos, qui abstinéntiam módicam precésque paucas eis præscríptas frequentárunt, ac pro sui status ratióne castitátem coluérunt, matérno plane afféctu, dum igne purgatórii expiántur, solári ac in cæléstem pátriam obténtu suo quantócius pie créditur efférre. Tot ergo tantísque benefíciis ordo cumulátus, solémnem beatíssimæ Vírginis Commemoratiónem, ritu perpétuo ad ejúsdem Vírginis glóriam quotánnis celebrándam, instítuit.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: \* Unguéntum effúsum nomen tuum. ℣. Astitit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et. Glória Patri. Unguéntum.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+CUM sacra Pentecóstes die viri plúrimi, ut fertur, qui vestígiis sanctórum Prophetárum Elíæ ac Eliséi institérant, evangélicam fidem fuíssent amplexáti, in eo montis Carméli loco, ubi Elías olim ascendéntem nébulam, beátæ Maríæ Vírginis typo insígnem, conspéxerat, eídem puríssimæ Vírgini sacéllum constrúere cœpérunt; eamdémque, velut singulárem órdinis tutélam, veneráti sunt, fratrum beátæ Maríæ de monte Carmélo exínde nómine accépto. Eis numquam défuit speciális protéctio beatíssimæ Vírginis, quæ Honórium tértium ab órdine exstinguéndo per sómnium detérruit, et insígne sacri scapuláris órdini tríbuit, quod qui gestáverint et abstinéntiam módicam precésque paucas frequentáverint, igne purgatórii deténti, obténtu suo quantócius in cæléstem pátriam pie credúntur efférri. Tot

@@ -16525,3 +16525,52 @@ HOC est sómnium. Interpretatiónem quoque ejus dicémus coram te, rex. Tu rex r
 POrro, quia vidísti pedum et digitórum partem testæ fíguli et partem férream, regnum divísum erit; quod tamen de plantário ferri oriétur, secúndum quod vidísti ferrum mistum testæ ex luto. Et dígitos pedum ex parte férreos, et ex parte fíctiles, ex parte regnum erit sólidum, et ex parte contrítum. Quod autem vidísti ferrum mistum testæ ex luto, commiscebúntur quidem humáno sémine; sed non adhærébunt sibi, sícuti ferrum miscéri non potest testæ. In diébus autem regnórum illórum suscitábit Deus cæli regnum, quod in ætérnum non dissipábitur, et regnum ejus álteri pópulo non tradétur, commínuet autem et consúmet univérsa regna hæc et ipsum stabit in ætérnum.
 
 ℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Feria Tertia infra Hebdomadam III Novembris
+
+{RUBRIC: De Daniéle Prophéta}
+
+##### Lectio i
+*Cap. 3, 14-19*
+
+PRonuntiánsque Nabuchodónosor rex ait eis : Veréne, Sidrach, Misach et Abdénago, deos meos non cólitis et státuam áuream, quam constítui, non adorátis? Nunc ergo si estis paráti, quacúmque hora audiéritis sónitum tubæ, fístulæ, citharæ, sambúcæ et psaltérii et symphóniæ omnísque géneris musicórum, prostérnite vos et adoráte státuam quam feci. Quod si non adoravéritis, eádem hora mittémini in fornácem ignis ardéntis, et quis est Deus qui erípiet vos de manu mea?
+
+℟. A fácie furóris tui, Deus, conturbáta est omnis terra : \* Sed miserére, Dómine, et ne fácias consummatiónem. ℣. Dómine, Dóminus noster, quam admirábile est nomen tuum! — Sed.
+
+##### Lectio ii
+
+RESpondéntes Sidrach, Misach et Abdénago dixérunt regi Nabuchodónosor : Non opórtet nos de hac re respondére tibi : ecce enim Deus noster, quem cólimus, potest erípere nos de camíno ignis ardéntis et de mánibus tuis, o rex, liberáre. Quod si nolúerit, notum sit tibi, rex, quia deos tuos non cólimus et státuam áuream, quam erexísti, non adorámus. Tunc Nabuchodónosor replétus est furóre, et aspéctus faciéi illíus immutátus est super Sidrach, Misach et Abdénago, et præcépit ut succenderétur fornax séptuplum quam succéndi suéverat.
+
+℟. Civitátem istam tu circúmda, Dómine : et Angeli tui custódiant muros ejus. \* Exáudi, Dómine, pópulum tuum cum misericórdia. ℣. Avertátur furor tuus, Dómine, a pópulo tuo et a civitáte sancta tua. — Exáudi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Exáudi.}
+
+##### Lectio iii
+*Cap. 3, 21-24*
+
+ET conféstim viri illi vincti cum braccis suis et tiáris et calceaméntis et véstibus missi sunt in médium fornácis ignis ardéntis; nam jússio regis urgébat. Fornax autem succénsa erat nimis; porro viros illos, qui míserant Sidrach, Misach et Abdénago, interfécit flamma ignis. Viri autem hi tres, id est Sidrach, Misach et Abdénago, cecidérunt in médio camíno ignis ardéntis colligáti. Et ambulábant in médio flammæ laudántes Deum et benedicéntes Dómino.
+
+℟. Genti peccatríci, pópulo pleno peccáto miserére, \* Dómine Deus. ℣. Esto placábilis super nequítiam pópuli tui. — Dómine. Glória Patri. Dómine.
+
+---
+
+## Feria Quarta infra Hebdomadam III Novembris
+
+{RUBRIC: De Daniéle Prophéta}
+
+##### Lectio i
+*Cap. 4, 16-25*
+
+RESpóndit Baltássar et dixit : Dómine mi, sómnium his qui te odérunt, et interpretátio ejus hóstibus tuis sit. Arbórem, quam vidísti sublímem atque robústam, cujus altitúdo pertíngit ad cælum, et aspéctus illíus in omnem terram, et rami ejus pulchérrimi, et fructus ejus nímius, et esca ómnium in ea, subter eam habitántes béstiæ agri, et in ramis ejus commorántes aves cæli, tu es, rex, qui magnificátus es et invaluísti, et magnitúdo tua crevit et pervénit usque ad cælum, et potéstas tua in términos univérsæ terræ.
+
+℟. Indicábo tibi, homo, quid sit bonum aut quid Dóminus requírat a te : \* Fácere judícium et justítiam et sollícitum ambuláre cum Deo tuo. ℣. Spera in Dómino, et fac bonitátem, et inhábita terram. — Fácere.
+
+##### Lectio ii
+
+QUod autem vidit rex vígilem et sanctum descéndere de cælo et dícere : Succídite árborem et dissipáte illam, attamen germen radícum ejus in terra dimíttite, et vinciátur ferro et ære in herbis foris et rore cæli conspergátur, et cum feris sit pábulum ejus, donec septem témpora muténtur super eum, hæc est interpretátio senténtiæ Altíssimi, quæ pervénit super dóminum meum regem : Ejícient te ab homínibus, et cum béstiis ferísque erit habitátio tua, et fœnum ut bos cómedes et rore cæli infundéris.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}

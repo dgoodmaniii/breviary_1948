@@ -19880,4 +19880,38 @@ MElior est ira risu, quia per tristítiam vultus corrígitur ánimus delinquént
 
 NE dicas: Quid putas causæ est quod prióra témpora melióra fuére quam nunc sunt? stulta enim est hujuscémodi interrogátio. Utílior est sapiéntia cum divítiis et magis prodest vidéntibus solem. Sicut enim prótegit sapiéntia, sic prótegit pecúnia; hoc autem plus habet erudítio et sapiéntia, quod vitam tríbuunt possessóri suo. Consídera ópera Dei, quod nemo possit corrígere quem ille despéxerit.
 
-℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo videt in fácie, Deus autem in corde. Glória Patri. Homo.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Omnis sapiéntia \* a Dómino Deo est, et cum illo fuit semper, et est ante ævum.
+
+{RUBRIC: Oratio Dominicæ occurrentis.}
+
+---
+
+## Dominica III Augusti
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber Sapiéntiæ}
+
+##### Lectio i
+
+*Cap. 1, 1-11*
+
+DIlígite justítiam, qui judicátis terram, sentíte de Dómino in bonitáte et in simplicitáte cordis quǽrite illum; quóniam invenítur ab his qui non tentant illum, appáret autem eis qui fidem habent in illum. Pervérsæ enim cogitatiónes séparant a Deo, probáta autem virtus córripit insipiéntes; quóniam in malévolam ánimam non introíbit sapiéntia, nec habitábit in córpore súbdito peccátis.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+SPíritus enim sanctus disciplínæ effúgiet fictum et áuferet se a cogitatiónibus quæ sunt sine intelléctu et corripiétur a superveniénte iniquitáte. Benígnus est enim spíritus sapiéntiæ et non liberábit malédicum a lábiis suis; quóniam renum illíus testis est Deus et cordis illíus scrutátor est verus et linguæ ejus audítor: quóniam spíritus Dómini replévit orbem terrárum, et hoc quod cóntinet ómnia sciéntiam habet vocis. Propter hoc qui lóquitur iníqua non potest latére, nec prætériet illum corrípiens judícium.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.

@@ -15475,3 +15475,24 @@ ET dixit Jónathæ : Ut quid vexásti univérsum pópulum, cum bellum nobis non 
 UT autem intrávit Ptolemáidam Jónathas, clausérunt portas civitátis Ptoleménses et comprehendérunt eum, et omnes qui cum eo intráverant gládio interfecérunt. Et misit Tryphon exércitum et équites in Galilǽam et in campum magnum, ut pérderent omnes sócios Jónathæ. At illi, cum cognovíssent quia comprehénsus est Jónathas et périit, et omnes qui cum eo erant, hortáti sunt semetípsos et exiérunt paráti in prǽlium. Et vidéntes hi qui insecúti fúerant, quia pro ánima res est illis revérsi sunt; illi autem venérunt omnes cum pace in terram Juda. Et planxérunt Jónathan et eos qui cum ipso fúerant valde.
 
 ℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Quinta infra Hebdomadam III Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 13, 1-19*
+
+ET audívit Simon quod congregávit Tryphon exércitum copiósum, ut veníret in terram Juda et attéreret eam. Videns quia in tremóre pópulus est et in timóre, ascéndit Jerúsalem et congregávit pópulum et adhórtans dixit : Vos scitis quanta ego et fratres mei et domus patris mei fécimus pro légibus et pro sanctis prǽlia et angústias quales vídimus; horum grátia periérunt fratres mei omnes propter Israël, et relíctus sum ego solus. Et nunc non mihi contíngat párcere ánimæ meæ in omni témpore tribulatiónis; non enim mélior sum frátribus meis; vindicábo ítaque gentem meam et sancta, natos quoque nostros et uxóres, quia congregátæ sunt univérsæ gentes contérere nos inimicítiæ grátia.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem, et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+ET accénsus est spíritus pópuli, simul ut audívit sermónes istos, et respondérunt voce magna dicéntes : Tu es dux noster loco Judæ et Jónathæ fratris tui; pugna prǽlium nostrum, et ómnia quæcúmque díxeris nobis, faciémus. Et cóngregans omnes viros bellatóres accelerávit consummáre univérsos muros Jerúsalem et munívit eam in gyro. Et misit Jónathan fílium Absalómi et cum eo exércitum novum in Joppen, et, ejéctis his qui erant in ea, remánsit illic ipse. Et movit Tryphon a Ptolemáida cum exércitu multo, ut veníret in terram Juda, et Jónathas cum eo in custódia; Simon autem applícuit in Addus contra fáciem campi.
+
+℟. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}

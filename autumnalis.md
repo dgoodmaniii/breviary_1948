@@ -16609,3 +16609,43 @@ IGitur introdúctus est Dániel coram rege, ad quem præfátus rex ait : Tu es D
 HÆC est autem scriptúra quæ digésta est : Mane, Thecel, Phares, et hæc est interpretátio sermónis : Mane, numerávit Deus regnum tuum et complévit illud; Thecel, appénsus es in statéra et invéntus es minus habens; Phares, divísum est regnum tuum et datum est Medis et Persis. Tunc, jubénte rege, indútus est Dániel púrpura, et circúmdata est torques áurea collo ejus, et prædicátum est de eo quod habéret potestátem tértius in regno suo. Eádem nocte interféctus est Baltássar rex Chaldǽus, et Daríus Medus succéssit in regnum annos natus sexagínta duos.
 
 ℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.
+
+---
+
+## Feria Sexta infra Hebdomadam III Novembris
+
+{RUBRIC: De Daniéle Prophéta}
+
+##### Lectio i
+*Cap. 6, 11-24*
+
+VIri ergo illi curiósius inquiréntes invenérunt Daniélem orántem et obsecrántem Deum suum, et accedéntes locúti sunt regi super edícto : Rex, numquid non constituísti, ut omnis homo qui rogáret quemquam de diis et homínibus usque ad dies trigínta, nisi te, rex, mitterétur in lacum leónum? Ad quos respóndens rex ait : Verus est sermo juxta decrétum Medórum atque Persárum, quod prævaricári non licet. Tunc respondéntes dixérunt coram rege : Dániel de fíliis captivitátis Juda non curávit de lege tua et de edícto quod constituísti, sed tribus tempóribus per diem orat obsecratióne sua. Quod verbum cum audísset, rex satis contristátus est; et pro Daniéle pósuit cor ut liberáret eum et usque ad occásum solis laborábat ut erúeret illum. Viri autem illi intelligéntes regem dixérunt ei : Scito, rex, quia lex Medórum atque Persárum est, ut omne decrétum, quod constítuerit rex, non líceat immutári.
+
+℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio ii
+
+TUnc rex præcépit, et adduxérunt Daniélem et misérunt eum in lacum leónum. Dixítque rex Daniéli : Deus tuus, quem colis semper, ipse liberábit te. Allatúsque est lapis unus et pósitus est super os laci, quem obsignávit rex ánulo suo et ánulo optimátum suórum, ne quid fíeret contra Daniélem. Et ábiit rex in domum suam et dormívit incœnátus, cibíque non sunt alláti coram eo, ínsuper et somnus recéssit ab eo. Tunc rex primo dilúculo consúrgens festínus ad lacum leónum perréxit; appropinquánsque lácui Daniélem voce lacrimábili inclamávit et affátus est eum : Dániel, serve Dei vivéntis, Deus tuus, cui tu servis semper, putásne váluit te liberáre a leónibus?
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine, et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Líbera.}
+
+##### Lectio iii
+
+ET Dániel regi respóndens ait : Rex, in ætérnum vive. Deus meus misit Angelum suum et conclúsit ora leónum, et non nocuérunt mihi, quia coram eo justítia invénta est in me; sed et coram te, rex, delíctum non feci. Tunc veheménter rex gavísus est super eo et Daniélem præcépit edúci de lacu; eductúsque est Dániel de lacu, et nulla lǽsio invénta est in eo, quia crédidit Deo suo. Jubénte autem rege, addúcti sunt viri illi qui accusáverant Daniélem, et in lacum leónum missi sunt ipsi et fílii et uxóres eórum, et non pervenérunt usque ad paviméntum laci, donec arríperent eos leónes, et ómnia ossa eórum comminuérunt.
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+---
+
+## Sabbato infra Hebdomadam III Novembris
+
+{RUBRIC: De Daniéle Prophéta}
+
+##### Lectio i
+*Cap. 9, 1-5*
+
+IN anno primo Darii, fílii Assuéri de sémine Medórum, qui imperávit super regnum Chaldæórum, anno uno regni ejus ego Dániel intelléxi in libris númerum annórum, de quo factus est sermo Dómini ad Jeremíam prophétam, ut compleréntur desolatiónis Jerúsalem septuagínta anni, et pósui fáciem meam ad Dóminum Deum meum rogáre et deprecári in jejúniis, sacco et cínere. Et orávi Dóminum Deum meum et conféssus sum et dixi : Obsecro, Dómine, Deus magne et terríbilis, custódiens pactum et misericórdiam diligéntibus te et custodiéntibus mandáta tua. Peccávimus, iniquitátem fécimus, ímpie égimus et recéssimus et clinávimus a mandátis tuis ac judíciis.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.

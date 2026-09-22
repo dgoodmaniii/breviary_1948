@@ -24699,4 +24699,26 @@ Sermo sancti Leónis Papæ
 
 OMnium quidem sanctárum solemnitátum, dilectíssimi, totus mundus est párticeps, et uníus fídei píetas éxigit, ut quidquid pro salúte universórum gestum recólitur, commúnibus ubíque gáudiis celebrétur. Verúmtamen hodiérna festívitas, præter illam reveréntiam quam toto terrárum orbe proméruit, speciáli et própria nostræ Urbis exsultatióne veneránda est; ut, ubi præcipuórum Apostolórum glorificátus est éxitus, ibi in die martýrii eórum sit lætítiæ principátus. Isti enim sunt viri, per quos tibi Evangélium Christi, Roma, resplénduit; et, quæ eras magístra erróris, facta es discípula veritátis.
 
-℟. Dómine, si tu es, jube me veníre ad te super aquas. \* Et exténdens manum apprehéndit eum, et dixit Jesus: Módicæ fídei, quare dubitásti? ℣. Cumque vidísset ven-
+℟. Dómine, si tu es, jube me veníre ad te super aquas. \* Et exténdens manum apprehéndit eum, et dixit Jesus: Módicæ fídei, quare dubitásti? ℣. Cumque vidísset ventum válidum veniéntem, tímuit; et, cum cœpísset mergi, clamávit dicens: Dómine, salvum me fac. — Et.
+
+#### Lectio v
+
+ISti sunt patres tui veríque pastóres, qui te regnis cæléstibus inseréndam multo mélius multóque felícius condidérunt, quam illi quorum stúdio prima mœnium tuórum fundaménta locáta sunt; ex quibus is qui tibi nomen dedit, fratérna te cæde fœdávit. Isti sunt, qui te ad hanc glóriam provexérunt, ut gens sancta, pópulus eléctus, cívitas sacerdotális et régia, per sacram beáti Petri Sedem caput orbis effécta, látius præsidéres religióne divína quam dominatióne terréna. Quamvis enim, multis aucta victóriis, jus impérii tui terra maríque protúleris; minus tamen est quod tibi béllicus labor súbdidit, quam quod pax christiána subjécit.
+
+℟. Surge, Petre, et índue te vestiméntis tuis, áccipe fortitúdinem ad salvándas gentes: \* Quia cecidérunt caténæ de mánibus tuis. ℣. Angelus Dómini ástitit, et lumen refúlsit in habitáculo cárceris, percussóque látere Petri, excitávit eum, dicens: Surge velóciter. — Quia.
+
+#### Lectio vi
+
+DIspósito namque divínitus óperi máxime congruébat, ut multa regna uno confœderaréntur império, et cito pérvios habéret pópulos prædicátio generális, quos uníus tenéret régimen civitátis. Hæc autem cívitas ignórans suæ provectiónis auctórem, cum pene ómnibus dominarétur géntibus, ómnium géntium serviébat erróribus; et, magnam sibi videbátur assumpsísse religiónem, quia nullam respúerat falsitátem. Unde, quantum erat per diábolum tenácius illigáta, tantum per Christum est mirabílius absolúta.
+
+℟. Tu es pastor óvium, Princeps Apostolórum, tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et. Glória. Et.
+
+#### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, di-

@@ -14240,3 +14240,141 @@ QUÓNIAM non obedívimus præcéptis tuis, ídeo tráditi sumus in direptiónem 
 ℟. Tempus est ut revértar ad eum qui misit me; \* Vos autem benedícite Deum et enarráte ómnia mirabília ejus. ℣. Confitémini ei coram ómnibus vivéntibus, quia fecit vobíscum misericórdiam suam. — Vos. Glória Patri. Vos.
 
 {RUBRIC: ¶ Fériæ IV et VI ac Sábbato Quátuor Témporum sunt Fériæ majóres non privilegiátæ.}
+
+---
+
+## Feria Quarta, Quatuor Temporum Septembris
+
+{RUBRIC: Hódie, Féria VI et Sábbato sequéntibus, Antíphonæ et Psalmi ad Laudes, et hac Féria étiam tres últimæ Antíphonæ cum Psalmis ad Matutínum, sumúntur de 2 loco; ad Primam autem addítur quartus Psalmus, ut in Psaltério notátur. Et dicúntur Preces feriáles ad omnes Horas, ut in Ordinário, præterquam in Vésperis et ad Complétórium Sábbati.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+##### Lectio i
+*Cap. 9, 16-28*
+
+IN illo témpore: Respóndens unus de turba dixit ad Jesum: Magíster, áttuli fílium meum ad te habéntem spíritum mutum. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+
+{RUBRIC: Liber 3, cap. 38 in Marcum 9}
+
+DÆMONÍACUM hunc, quem descéndens de monte Dóminus sanávit, Marcus quidem surdum mutúmque, Matthǽus vero lunáticum fuísse commémorat. Significat autem eos, de quibus scriptum est: Stultus ut luna mutátur. Qui numquam in eódem statu permanéntes, nunc ad hæc, nunc ad illa vítia mutáti, crescunt atque decréscunt. Qui muti sunt, non confiténdo fidem; surdi, nec ipsum aliquátenus veritátis audiéndo sermónem. Spumant autem, cum stultítia tabéscunt; stultórum namque et languéntium atque hébetum est, spumas salivárum ex ore dimíttere. Strident déntibus, cum iracúndiæ furóre flamméscunt: aréscunt, cum ótio torpénte languéscunt, et nulla virtútis indústria confortáti enérviter vivunt.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+##### Lectio ii
+
+QUOD autem ait: Et dixi discípulis tuis ut ejícerent illum, et non potuérunt; laténter Apóstolos accúsat, cum impossibílitas curándi, intérdum non ad imbecillitátem curántium, sed ad eórum, qui curándi sunt, fidem referátur, dicénte Dómino: Fiat tibi secúndum fidem tuam. Qui respóndens eis, dixit: O generátio incrédula, quámdiu apud vos ero? quámdiu vos pátiar? Non quod tædio superátus sit mansuétus ac mitis, qui non apéruit sicut agnus coram tondénte os suum, nec in verba furóris erúpit; sed quo in similitúdinem médici, si ægrótum vídeat contra sua præcépta se gérere, dicat: Úsquequo accédam ad domum tuam? quoúsque artis meæ perdam indústriam, me áliud jubénte, et te áliud perpetránte?
+
+℟. Omni témpore bénedic Deum, et pete ab eo ut vias tuas dírigat, \* Et in omni témpore consília tua in ipso permáneant. ℣. Inquíre ut fácias quæ plácita sunt illi in veritáte, et in tota virtúte tua. — Et.
+
+##### Lectio iii
+
+ET dixit illis: Hoc genus in nullo potest exíre, nisi in oratióne et jejúnio. Dum docet Apóstolos, quómodo dæmon nequíssimus débeat expélli, omnes instítuit ad vitam; ut scílicet novérimus, gravíssima quæque vel immundórum spirítuum, vel hóminum tentaménta jejúniis et oratiónibus esse superánda: iram quoque Dómini, cum in ultiónem nostrórum scélerum fúerit accénsa, hoc remédio singulári posse placári. Jejúnium autem generále est, non solum ab escis, sed et a cunctis illécebris abstinére carnálibus, immo ab ómnibus vitiórum continére se passiónibus. Sic et orátio generális non in verbis solum est, quibus divínam cleméntiam invocámus, verum étiam in ómnibus, quæ in obséquium nostri Condítoris fídei devotióne gérimus.
+
+℟. Memor esto, fili, quóniam páuperem vitam gérimus: \* Habébis multa bona, si timúeris Deum. ℣. In mente habéto eum, et cave nequándo prætermíttas præcépta ejus. — Habébis. Glória Patri. Habébis.
+
+##### AD LAUDES
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Hoc genus \* dæmoniórum in nullo potest exíre, nisi in oratióne et jejúnio.
+
+###### Oratio
+
+MISERICÓRDIÆ tuæ remédiis, quǽsumus, Dómine, fragílitas nostra subsístat: ut, quæ sua conditióne attéritur, tua cleméntia reparétur. Per Dóminum.
+
+{RUBRIC: Et dícitur usque ad Nonam. Ad Vésperas vero Orátio Domínicæ præcedéntis. Si autem Vésperæ dicéndæ non sint de Féria, de ea nec fit Commemorátio.}
+
+---
+
+## Feria Quinta infra Hebdomadam III Septembris
+
+{RUBRIC: De libro Tobíæ}
+
+##### Lectio i
+*Cap. 12, 1-17*
+
+VOCÁVIT ad se Tobías fílium suum dixítque ei: Quid póssumus dare viro isti sancto, qui venit tecum? Respóndens Tobías dixit patri suo: Pater, quam mercédem dábimus ei? aut quid dignum póterit esse benefíciis ejus? Me duxit et redúxit sanum, pecúniam a Gabélo ipse recépit, uxórem ipse me habére fecit et dæmónium ab ea ipse compéscuit, gáudium paréntibus ejus fecit, meípsum a devoratióne piscis erípuit, te quoque vidére fecit lumen cæli, et bonis ómnibus per eum repléti sumus. Quid illi ad hæc potérimus dignum dare? Sed peto te, pater mi, ut roges eum, si forte dignábitur medietátem de ómnibus quæ alláta sunt sibi assúmere.
+
+℟. Peto, Dómine, ut de vínculo improperii hujus absólvas me, aut certe désuper terram erípias me: \* Ne reminiscáris delícta mea vel paréntum meórum, neque vindíctam sumas de peccátis meis: quia éruis sustinéntes te, Dómine. ℣. Omnia enim judícia tua justa sunt, et omnes viæ tuæ misericórdia et véritas: et nunc, Dómine, meménto mei. — Ne.
+
+##### Lectio ii
+
+ET vocántes eum, pater scílicet et fílius, tulérunt eum in partem; et rogáre cœpérunt ut dignarétur dimídiam partem ómnium quæ attúlerant, accéptam habére. Tunc dixit eis occúlte: Benedícite Deum cæli et coram ómnibus vivéntibus confitémini ei, quia fecit vobíscum misericórdiam suam. Etenim sacraméntum regis abscóndere bonum est, ópera autem Dei reveláre et confitéri honoríficum est. Bona est orátio cum jejúnio, et eleemósyna magis quam thesáuros auri recóndere; quóniam eleemósyna a morte líberat, et ipsa est quæ purgat peccáta, et facit inveníre misericórdiam et vitam ætérnam. Qui autem fáciunt peccátum et iniquitátem hostes sunt ánimæ suæ.
+
+℟. Omni témpore bénedic Deum, et pete ab eo ut vias tuas dírigat, \* Et in omni témpore consília tua in ipso permáneant. ℣. Inquíre ut fácias quæ plácita sunt illi in veritáte, et in tota virtúte tua. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+MANIFÉSTO ergo vobis veritátem et non abscóndam a vobis occúltum sermónem. Quando orábas cum lácrimis et sepeliébas mórtuos et derelinquébas prándium tuum et mórtuos abscondébas per diem in domo tua et nocte sepeliébas eos, ego óbtuli oratiónem tuam Dómino. Et quia accéptus eras Deo, necésse fuit ut tentátio probáret te. Et nunc misit me Dóminus ut curárem te et Saram uxórem fílii tui a dæmónio liberárem; ego enim sum Ráphaël Angelus, unus ex septem qui astámus ante Dóminum. Cumque hæc audíssent, turbáti sunt et treméntes cecidérunt super terram in fáciem suam. Dixítque eis Angelus: Pax vobis, nolíte timére.
+
+℟. Memor esto, fili, quóniam páuperem vitam gérimus: \* Habébis multa bona, si timúeris Deum. ℣. In mente habéto eum, et cave nequándo prætermíttas præcépta ejus. — Habébis. Glória Patri. Habébis.
+
+---
+
+## Feria Sexta, Quatuor Temporum Septembris
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio i
+*Cap. 7, 36-50*
+
+IN illo témpore: Rogábat Jesum quidam de pharisǽis, ut manducáret cum illo. Et ingréssus domum pharisǽi discúbuit. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 33 in Evang., post inítium}
+
+QUEM pharisǽus de falsa justítia præsúmens, nisi Judáicum pópulum; quem peccátrix múlier ad vestígia Dómini véniens et plorans, nisi convérsam gentilitátem desígnat? Quæ cum alabástro venit, unguéntum fudit, retro secus pedes Dómini stetit, lácrimis pedes rigávit, capíllis tersit, eosdémque quos infundébat et tergébat pedes osculári non désiit. Nos ergo, nos illa múlier expréssit, si toto corde ad Dóminum post peccáta redeámus, si ejus pœniténtiæ luctus imitémur. Quid namque unguénto, nisi bonæ odor opiniónis exprímitur? Unde et Paulus dicit: Christi bonus odor sumus Deo in omni loco.
+
+℟. Sufficiébat nobis paupértas nostra, ut divítiæ computaréntur: numquam fuísset pecúnia ipsa, pro qua misísti fílium nostrum, \* Báculum senectútis nostræ! ℣. Heu me, fili mi, ut quid te mísimus peregrinári, lumen oculórum nostrórum? — Báculum.
+
+##### Lectio ii
+
+SI ergo recta ópera ágimus, quibus opiniónis bone odóre Ecclésiam respergámus, quid in Dómini córpore, nisi unguéntum fúndimus? Sed secus pedes Jesu múlier stetit: contra pedes enim Dómini stétimus, cum in peccátis pósiti ejus itinéribus renitebámur. Sed si ad veram pœniténtiam post peccáta convértimur, jam retro secus pedes stamus; quia ejus vestígia séquimur, quem impugnabámus. Lácrimis múlier pedes ejus rigat: quod nos quoque veráciter ágimus, si quibúslibet últimis membris Dómini per compassiónis afféctum inclinámur, si sanctis ejus in tribulatióne compátimur, si eórum tristítiam, nostram putámus.
+
+℟. Benedícite Deum cæli et coram ómnibus vivéntibus confitémini ei, \* Quia fecit vobíscum misericórdiam suam. ℣. Ipsum benedícite et cantáte illi: et enarráte ómnia mirabília ejus. — Quia.
+
+##### Lectio iii
+
+CAPILLIS ergo pedes Dómini tergimus, quando sanctis ejus, quibus ex caritáte compátimur, étiam ex his quæ nobis supérfluunt, miserémur; quátenus sic mens per compassiónem dóleat, ut étiam larga manus afféctum dolóris osténdat. Rigat namque lácrimis Redemptóris pedes, sed capíllis suis non tergit, qui utcúmque proximórum dolóri compátitur, sed tamen eis ex his quæ sibi supérfluunt, non miserétur. Plorat, et non tergit, qui verba quidem dolóris tríbuit, sed non ministrándo quæ desunt, vim dolóris mínime abscíndit. Osculátur múlier pedes, quos tergit: quod nos quoque plene ágimus, si studióse dilígimus, quos ex largitáte continémus; ne gravis nobis sit necéssitas próximi; ne ipsa nobis ejus indigéntia, quæ sustentátur, fiat onerósa; et, cum manus necessária tríbuit, ánimus a dilectióne torpéscat.
+
+℟. Tempus est ut revértar ad eum qui misit me; \* Vos autem benedícite Deum et enarráte ómnia mirabília ejus. ℣. Confitémini ei coram ómnibus vivéntibus, quia fecit vobíscum misericórdiam suam. — Vos. Glória Patri. Vos.
+
+##### AD LAUDES
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Múlier \* quæ erat in civitáte peccátrix, stans retro secus pedes Dómini, lácrimis cœpit rigáre pedes ejus et capíllis cápitis sui tergébat, et deosculabátur pedes ejus et unguénto ungébat.
+
+###### Oratio
+
+PRÆSTA, quǽsumus, omnípotens Deus: ut observatiónes sacras ánnua devotióne recoléntes, et córpore tibi placeámus, et mente. Per Dóminum.
+
+{RUBRIC: Et dícitur usque ad Nonam. Ad Vésperas vero Orátio Domínicæ præcedéntis. Si autem Vésperæ dicéndæ non sint de Féria, de ea nec fit Commemorátio.}
+
+---
+
+## Sabbato, Quatuor Temporum Septembris
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio i
+*Cap. 13, 6-17*
+
+IN illo témpore: Dicébat Jesus turbis hanc similitúdinem: Arbórem fici habébat quidam plantátam in vínea sua et venit quærens fructum in illa et non invénit. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 31 in Evangelia}
+
+DOMINUS ac Redémptor noster per Evangélium suum aliquándo verbis, aliquándo rebus lóquitur: aliquándo áliud verbis, atque áliud rebus; aliquándo autem hoc verbis, quod rebus. Duas étenim res ex Evangélio, fratres, audístis: ficúlneam infructuósam, et mulíerem curvam; et utríque rei est pietas impénsa. Illud autem dixit per similitúdinem: istud egit per exhibitiónem. Sed hoc significat ficúlnea infructuósa, quod múlier inclináta; et hoc ficúlnea reserváta, quod múlier erécta.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+##### Lectio ii
+
+QUID arbor fici, nisi humánam natúram desígnat? Quid múlier inclináta, nisi eámdem natúram significándo denúntiat? Quæ et bene plantáta est sicut ficus, et bene creáta sicut múlier; sed in culpam própria sponte lapsa, neque fructum servat operatiónis, neque statum rectitúdinis. Ad peccátum quippe ex voluntáte córruens, quia fructum obediéntiæ ferre nóluit, statum rectitúdinis amísit. Quæ ad Dei similitúdinem

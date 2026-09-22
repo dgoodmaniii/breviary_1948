@@ -22620,4 +22620,34 @@ PRoféctus inde Tarsum ut quǽreret Paulum, cum eo Antiochíam venit. In ejus ur
 
 CUM autem Antiochíæ in Ecclésia, cum céteris prophétis et doctóribus, Paulus et Bárnabas in jejúnio et oratióne Dómino deservírent, dixit Spíritus Sanctus: Segretáte mihi Saulum et Bárnabam in opus, ad quod assúmpsi eos. Tunc jejunántes et orántes, imponentésque eis manus, dimisérunt illos. Itaque Seleucíam venérunt, inde in Cyprum; ac multas prætérea urbes regionésque, prædicántes Evangélium summa cum audiéntium utilitáte, peragrárunt. Postrémo Bárnabas digréssus a Paulo, una cum Joánne, qui cognominátus est Marcus, navigávit in Cyprum; ibíque circiter séptimum Nerónis annum, tértio Idus Júnii, ad apostólici múneris laudem, martýrii corónam adjúnxit. Ejus corpus, Zenóne imperatóre, repértum est in ínsula Cypro; ad cujus pectus erat Evangélium Matthǽi, Bárnabæ manu conscríptum.
 
-℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam.
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo coronántur, et accípiunt palmam. Glória. Modo.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+BArnabas Levítes, Cýprius génere, cum Paulo Apóstolo ordinátus est ad prædicándum Jesu Christi Evangélium. Is, agro véndito quem habébat, redáctam ex eo pecúniam áttulit Apóstolis. Missus Antiochíam prædicatiónis causa, multos ibi ad Christi fidem convérsos suis hortatiónibus confirmávit. Inde proféctus cum eódem Paulo, multas urbes regionésque summa cum audiéntium utilitáte peragrávit. Postrémo, digréssus a Paulo, una cum Joánne, qui cognominátus est Marcus, navigávit in Cyprum, ibíque, séptimo Nerónis anno, ad apostólici múneris laudem, martýrii corónam adjúnxit.
+
+Te Deum.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 10, 16-22*
+
+IN illo témpore: Dixit Jesus discípulis suis: Ecce ego mitto vos sicut oves in médio lupórum. Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+*Homilía 34 in Matthæum, post initium*
+
+CUM Dóminus omnem sollicitúdinem a discipulórum córdibus ejécerit, et ostensióne signórum armáverit, atque, ab ómnibus negótiis sæculáribus alienátos et ab omni temporálium rerum cura liberátos, férreos quodámmodo atque adamántinos fécerit, tum dénique eventúra illis advérsa prædícit. Multa enim ex hac prædictióne futurárum rerum cómmoda consequebántur. Primum, ut ejus præsciéntiæ vim edíscerent. Deínde, ut nemo suspicarétur, ex Magístri infirmitáte tam grávia mala descéndere. Prætérea, ne, qui ea passúri erant, súbito ac inopináto rerum evéntu perturbaréntur. Dénique, ne, cum ista sub ipsum passiónis suæ tempus audírent, nímium commoveréntur.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in

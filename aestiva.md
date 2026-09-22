@@ -22867,3 +22867,23 @@ EXáudi, quǽsumus, Dómine, preces nostras, quas in beáti Basilíi Confessóri
 ℣. Justum dedúxit.
 
 {RUBRIC: Oratio Ecclésiam tuam, ut supra.}
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [87]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+BAsilíus, nóbilis Cáppadox, Athénis una cum Gregório Nazianzéno, ejus amicíssimo, sæculáribus lítteris, deínde in monastério sacris mirabíliter erudítus, eum brevi cursum fecit ad omnem doctrínæ et morum excelléntiam, ut inde Magni cognómen invénerit. Is ad prædicándum Jesu Christi Evangélium in Pontum accersítus, eam provínciam, a christiánis institútis aberrántem, ad viam salútis revocávit. Mox ab Eusébio Cæsaréæ epíscopo ad erudiéndam eam civitátem adjútor adhibétur; in cujus locum póstea successit. Is Fílium Patri consubstantiálem esse in primis deféndit, ac Valéntem imperatórem, sibi irátum, miráculis ádeo flexit, ut, incumbéntem ad voluntátem ejiciéndi ipsum in exsílium, a senténtia discédere coégerit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+NAM et Valéntis sella, in qua, factúrus decrétum de ejiciéndo e civitáte Basílio, sedére volébat, confrácta est. Et tribus ab eo cálamis adhíbitis ad scribéndam exsílii legem, nullus eórum réddidit atraméntum; et, cum nihilóminus in propósito scribéndi ímpium decrétum persísteret, ipsíus déxtera, dissolútis nervis, tota contrémuit. His commótus Valens chartam utráque manu conscídit. Ea autem nocte, quæ ad deliberándum Basílio data est, Valéntis uxor íntimis est cruciáta dolóribus, et únicus fílius in gravem morbum íncidit. Quibus ille pertérritus, iniquitátem suam recognóscens, Basílium accérsit, quo præsénte, puer cœpit convaléscere; verum, vocátis a Valénte ad viséndum púerum hæréticis, paulo post móritur.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+ABstinéntia et continéntia fuit admirábili; una túnica conténtus erat: in

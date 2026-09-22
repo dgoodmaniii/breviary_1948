@@ -30506,4 +30506,22 @@ OMnípotens et miséricors Deus, qui sanctum Joánnem Maríam pastoráli stúdio
 
 {RUBRIC: Deinde Commem. S. Románi Mart.:}
 
-**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit:
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit: fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+PRǽsta, quǽsumus, omnípotens Deus: ut, intercedénte beáto Románo Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JOánnes María Vianney, in pago Dárdilly, Diœcésis Lugdunénsis piis ruricúlis ortus, ab infántia plura dedit sanctitátis indícia. Cum octénnis oves custodíret, modo puérulos, ad imáginem Deíparæ genufléxos, Rosárium verbo et exémplo edocére, modo soróri vel álteri commísso grege, secretiórem lucum pétere solébat, quo expedítior, ante simulácrum Vírginis, oratióni vacáret. Páuperum amantíssimus, eos turmátim in patris domum dedúcere et omnímodo adjuváre in delíciis habébat. Lítteris imbuéndus, párocho vici Ecully tráditus est; sed ut erat tardióris ingénii, in stúdiis fere insuperábiles expértus est difficultátes. Jejúnio et oratióne divínam opem implorávit, et facilitátem discéndi rogatúrus, túmulum Sancti Francísci Regis, stipem quǽritans, adívit. Theologíæ currículo operóse confécto, satis idóneus invéntus est, qui sacris initiarétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+IN pago Ecully, prǽeúnte párocho, cujus vicárius renuntiátus fúerat, potióres pastorális perfectiónis gradus totis víribus attíngere conténdit. Elápso triénnio, in vículum Ars, qui non ita multo post diœcési Bellicénsi adscríptus est, quasi Angelus de cælo fuit missus et omníno squaléntis ac desértæ suæ parœciæ fáciem florentíssime renovávit. In consciéntiis judicándis ac moderándis ad plúrimas horas quotídie assíduus, frequéntem Eucharístiæ usum invéxit, pias sodalitátes instaurávit: mirum autem in modum téneram in Immaculátam Vírginem ánimis pietátem índidit. Ratus

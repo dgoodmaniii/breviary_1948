@@ -15604,3 +15604,19 @@ CUM autem præterissent anni multi, et plácuit Deo ut mitterétur Nehemías a r
 DEus, áuribus nostris audívimus, patres nostri annuntiavérunt nobis opus quod operátus es in diébus eórum. Hunc Psalmum dicit quidem prophéta, dicit autem non ex persóna própria, sed ex persóna Machabæórum, narrans et prædícens quæ futúra erant illo témpore. Tales enim sunt prophétæ : ómnia témpora percúrrunt, præséntia, prætérita, futúra. Quinam sint autem hi Machabǽi, quidque passi sint et quid fécerint, necessárium est primum dícere, ut sint apertióra, quæ in arguménto dicúntur. Ii enim, cum invasísset Judǽam Antíochus, qui díctus est Epíphanes, et ómnia devastásset, et multos qui tunc erant, a pátriis institútis resilíre coegísset, permansérunt illǽsi ab illis tentatiónibus.
 
 ℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum, et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio v
+
+ET quando grave quidem bellum ingruébat, nec quidquam possent fácere quod prodésset, se abscondébant; nam hoc quoque fecérunt Apóstoli. Non enim semper apparéntes in média irruébant perícula, sed nonnúmquam et fugiéntes, et laténtes secedébant. Postquam autem parum respirárunt, tamquam generósi quidam cátuli ex antris exsiliéntes et e látebris emergéntes, statuérunt non se ámplius solos serváre, sed étiam álios quoscúmque possent : et civitátem et omnem regiónem obeúntes, collegérunt quotquot invenérunt adhuc sanos et íntegros; et multos étiam qui laborábant et corrúpti erant, in statum prístinum redegérunt, eis persuadéntes redíre ad legem pátriam.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+##### Lectio vi
+
+DEum enim dicébant esse benígnum et cleméntem, nec umquam adímere salútem, quæ proficíscitur ex pœniténtia. Hæc autem dicéntes, habuérunt deléctum fortissimórum virórum. Non enim pro uxóribus, líberis, et ancíllis, patriǽque eversióne et captivitáte, sed pro lege et pátria república pugnábant. Eórum autem dux erat Deus. Cum ergo áciem dirígerent, et suas ánimas prodígerent, fundébant adversários, non armis fidéntes, sed loco omnis armatúræ, pugnæ causam sufficere ducéntes. Ad bellum autem eúntes non tragœdias excitábant, non pæána canébant, sicut nonnúlli fáciunt : non asciverunt tibícines, ut fit in áliis castris : sed Dei supérne auxílium invocábant, ut adésset, opem ferret et manum præbéret, propter quem bellum gerébant, pro cujus glória decertábant.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}

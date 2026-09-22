@@ -33367,4 +33367,26 @@ HAbitu tértii órdinis sancti Domínici assúmpto, prístinas vitæ austeritát
 
 #### Lectio vi
 
-ÆGritúdinum torméntis, domesticórum insúltibus, linguárum mórsibus dire agitáta, nondum satis pro mérito se afflígi querebátur. Per quíndecim annos, ad plúsculas horas desolatióne spíritus et ariditáte misérrime contabéscens, forti ánimo tulit agónes omni morte amarióres. Exínde cœpit supérnis abundáre delíciis, illustrári visiónibus, colliquéscere seráphicis ardóribus. Angelo tutelári, sanctæ Catharínæ Senénsi, Vírgini Deíparæ inter assíduas apparitiónes mire familiáris, a Christo has voces audíre méruit: Rosa cordis mei, tu mihi sponsa esto. Dénique, Sponsi hujus paradíso felíciter invécta, plurimísque ante et post óbitum miráculis co-
+ÆGritúdinum torméntis, domesticórum insúltibus, linguárum mórsibus dire agitáta, nondum satis pro mérito se afflígi querebátur. Per quíndecim annos, ad plúsculas horas desolatióne spíritus et ariditáte misérrime contabéscens, forti ánimo tulit agónes omni morte amarióres. Exínde cœpit supérnis abundáre delíciis, illustrári visiónibus, colliquéscere seráphicis ardóribus. Angelo tutelári, sanctæ Catharínæ Senénsi, Vírgini Deíparæ inter assíduas apparitiónes mire familiáris, a Christo has voces audíre méruit: Rosa cordis mei, tu mihi sponsa esto. Dénique, Sponsi hujus paradíso felíciter invécta, plurimísque ante et post óbitum miráculis corúscam, Clemens décimus, Póntifex máximus, sanctárum Vírginum catálogo ritu solémni adscrípsit.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+PRimus Américæ meridionális flos sanctitátis, virgo Rosa, christiánis paréntibus Limæ progénita, mox ab incunábulis cláruit futúræ sanctimóniæ indíciis, nam vultus infántis, mirabíliter in rosæ effígiem transfigurátus, huic nómini occasiónem dedit. Ne a paréntibus ad núptias cogerétur, clam síbimet venustíssimam comam præcídit. Singuláris fuit ejus vitæ austéritas. Assúmpto hábitu tértii órdinis sancti Domínici, sanctæ Catharínæ Senénsis árdua pressit vestígia. Per quíndecim annos, ad plúsculas horas desolatióne spíritus et ariditáte misérrime contabéscens, fórtiter tulit agónes omni morte amarióres. Angelo tutelári, sanctæ Catharínæ Senénsi, Vírgini Deíparæ inter assíduas apparitiónes mire familiáris, a Christo has voces audíre méruit: Rosa cordis mei, tu mihi sponsa esto. Plúribus ante et post mortem miráculis claram, Clemens Papa décimus eam sanctárum Vírginum catálogo adscrípsit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Evangélium Símile erit regnum cælórum, de Communi Vírginum 1 loco. [122]}
+
+{RUBRIC: Pro Ss. Felíce et Adaucto Martýribus}
+
+#### Lectio ix
+
+FElix, Diocletiáno et Maximiáno imperatóribus, propter suscéptam Christi religiónem comprehénsus, in Serápidis templum addúctus est. Cui sacrificáre cum juberétur, os simulácri cónspuit; quo facto, statim ǽrea státua córruit. Quod cum íterum ac tértio in æde Mercúrii Diánæque factum esset, impietátis et mágicæ artis accusátus, equúleo torquétur. Mox ad secúndum ab Urbe lápidem via Ostiénsi dúcitur, ut secúri ferirétur. Cui inter viam oblátus quidam Christiánus, cum, Felícem agnóscens, ad martýrium duci vidéret, Ego quoque,

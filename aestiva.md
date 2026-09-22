@@ -20420,4 +20420,28 @@ CUR nam, cum ipse tibi ætérna sæcula promísit, tu in præsénti vita laborá
 
 ##### Lectio vi
 
-INebriátus es? ventri indulsísti? rapuísti? siste jam gradum, verte te in divérsum: confitére Deo grátiam, quod non in médiis peccátis te ábstulit;
+INebriátus es? ventri indulsísti? rapuísti? siste jam gradum, verte te in divérsum: confitére Deo grátiam, quod non in médiis peccátis te ábstulit; ne quære áliud tibi prorogári tempus, ut male operéris. Multi dum male ac vitióse víverent, súbito periérunt et in maniféstam damnatiónem abiérunt: time, ne idem tibi áccidat. Sed multis, inquit, dedit Deus spátium, ut in última senécta confiteréntur. Quid ígitur? numquid et tibi dábitur? Fortásse dabit, inquis. Cur dicis, fortásse? Cóntigit aliquóties? Cógita, quod de ánima delíberas: proínde étiam de contrário cógita, et dic: Quid autem, si non det? Quid autem, si det, inquis? Esto, dat quidem ipse: verúmtamen hoc illo cértius et utílius.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+{RUBRIC: ℟. vii Dómine et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 7, 1-15*
+
+NOli fácere mala, et non te apprehéndent: discéde ab iníquo, et defícient mala abs te. Fili, non sémines mala in sulcis injustítiæ et non metes ea in séptuplum. Noli quærere a dómino ducátum, neque a rege cáthedram honóris. Non te justífices ante Deum, quóniam ágnitor cordis ipse est et penes regem noli velle vidéri sápiens.
+
+℟. Ne derelínquas me, Dómine, pater et dominátor vitæ meæ, ut non córruam in conspéctu adversariórum meórum: \* Ne gáudeat de me inimícus meus. ℣. Apprehénde arma et scutum et exsúrge in adjutórium mihi. — Ne gáudeat.
+
+##### Lectio ii
+
+NOli quærere fíeri judex, nisi váleas virtúte irrúmpere iniquitátes; ne forte exstiméscas fáciem poténtis et ponas scándalum in æquitáte tua. Non pecces in multitúdinem civitátis nec te immíttas in pópulum neque álliges duplícia peccáta, nec enim in uno eris immúnis. Noli esse pusillánimis in ánimo tuo, exoráre et fácere eleemósynam ne despícias.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtu-

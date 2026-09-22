@@ -24833,4 +24833,59 @@ ET Petrus ad se revérsus dixit: Nunc scio vere quia misit Dóminus Angelum suum
 
 ### In II Vesperis
 
-{RUBRIC: Antiphonæ et Psalmi de Communi [18]; Capitulum
+{RUBRIC: Antiphonæ et Psalmi de Communi [18]; Capitulum Misit, et Hymnus Decóra lux, ut in I Vésperis. 676}
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Magnif. Ant.** Hódie \* Simon Petrus ascéndit crucis patíbulum, allelúja: hódie claviculárius regni gaudens migrávit ad Christum: hódie Paulus Apóstolus, lumen orbis terræ, inclináto cápite, pro Christi nómine martýrio coronátus est, allelúja.
+
+{RUBRIC: Et non fit Com. S. Pauli.}
+
+---
+
+{RUBRIC: Ubi vero fit Officium S. Pauli in ecclesia própria vel hoc Festum extra diem suam celebrétur:}
+
+##### In I Vesperis
+
+{RUBRIC: Antiphonæ et Capitulum de Laudibus 694; Psalmi ut in I Vesperis de Communi App. [3]}
+
+{RUBRIC: Hymnus Egrégie Doctor, ut infra.}
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+**Ad Magnif. Ant.** Sancte Paule Apóstole, \* prædicátor veritátis et doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+###### Oratio
+
+DEus, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus natalítia cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Com. S. Petri Ap. tantum ut infra ad Laudes.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+### Die 30 Junii
+
+#### In Commemoratione S. Pauli Apostoli
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], præter ea, quæ hic habéntur própria.}
+
+##### Ad Matutinum
+
+**Invit.** Regem Apostolórum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus.
+
+###### Hymnus
+
+EGrégie Doctor, Paule, mores ínstrue,
+Et nostra tecum péctora in cælum trahe;
+Veláta dum merídiem cernat fides,
+Et solis instar sola regnet cáritas.
+
+Sit Trinitáti sempitérna glória,
+Honor, potéstas atque jubilátio,
+In unitáte, quæ gubérnat ómnia,
+Per univérsa æternitátis sǽcula.
+Amen.

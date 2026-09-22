@@ -28133,4 +28133,26 @@ QUis mihi det te fratrem meum sugéntem úbera matris meæ, ut invéniam te fori
 
 #### Lectio iii
 
-QUÆ est ista, quæ ascéndit de desérto, delíciis áffluens, inníxa super diléctum suum? Sub árbore malo suscitávi te, ibi corrúpta est mater tua, ibi violáta est génitrix tua. Pone me ut signáculum super cor tuum, ut signáculum super bráchium tuum, quia fortis est ut mors diléctio, dura sicut inférnus æmulátio; lámpades ejus lámpades ignis atque flammárum. Aquæ multæ non potuérunt ex-
+QUÆ est ista, quæ ascéndit de desérto, delíciis áffluens, inníxa super diléctum suum? Sub árbore malo suscitávi te, ibi corrúpta est mater tua, ibi violáta est génitrix tua. Pone me ut signáculum super cor tuum, ut signáculum super bráchium tuum, quia fortis est ut mors diléctio, dura sicut inférnus æmulátio; lámpades ejus lámpades ignis atque flammárum. Aquæ multæ non potuérunt exstínguere caritátem, nec flúmina óbruent illam.
+
+℟. Tulérunt Dóminum meum, et néscio ubi posuérunt eum. Dicunt ei Angeli: Múlier, quid ploras? surréxit sicut dixit: \* Præcédet vos in Galilǽam: ibi eum vidébitis. ℣. Cum ergo fleret, inclinávit se, et prospéxit in monuméntum: et vidit duos Angelos in albis, sedéntes, qui dicunt ei. — Præcédet. Glória Patri. Præcédet.
+
+##### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato, dicitur Lectio iv ut ix.}
+
+Sermo sancti Gregórii Papæ
+
+*Homilia 25 in Evangelia*
+
+#### Lectio iv
+
+MAría Magdaléne, quæ fúerat in civitáte peccátrix, amándo veritátem, lavit lácrimis máculas críminis: et vox Veritátis implétur, qua dícitur: Dimíssa sunt ei peccáta multa, quia diléxit multum. Quæ enim prius frígida peccándo remánserat, póstmodum amándo fórtiter ardébat. Quæ a monuménto Dómini, étiam discípulis recedéntibus, non recedébat. Exquirébat quem non invénerat; flebat inquiréndo, et amóris sui igne succénsa, ejus, quem ablátum crédidit, ardébat desidério. Unde cóntigit, ut eum sola tunc vidéret, quæ remánserat ut quæreret: quia nimírum virtus boni óperis perseverántia est.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+QUæsívit ergo prius, et mínime invénit; perseverávit ut quæreret, unde et cóntigit ut inveníret; actúmque est, ut desidéria diláta créscerent, et créscentia cáperent quod inveníssent. Hinc est enim quod de eódem sponsa Ecclésia in Cánticis canticórum dicit: In léctulo meo per noctes quæsívi quem díligit ánima mea. Diléctum namque in léctulo quærimus, quando, in præséntis vitæ aliquántula réquie, Redemptóris nostri desidério suspirámus. Per noctem quærimus: quia etsi jam in illo mens vígilat, tamen adhuc óculus cálígat.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et

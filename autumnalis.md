@@ -15496,3 +15496,63 @@ ET accénsus est spíritus pópuli, simul ut audívit sermónes istos, et respon
 ℟. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}
+
+##### Lectio iii
+
+ET ut cognóvit Tryphon, quia surréxit Simon loco fratris sui Jónathæ et quia commissúrus esset cum eo prǽlium, misit ad eum legátos dicens : Pro argénto quod debébat frater tuus Jónathas in ratióne regis própter negótia quæ hábuit detinúimus eum. Et nunc mitte argénti talénta centum et duos fílios ejus óbsides, ut non dimíssus fúgiat a nobis et remittémus eum. Et cognóvit Simon quia cum dolo loquerétur secum, jussit tamen dari argéntum et púeros, ne inimicítiam magnam súmeret ad pópulum Israël dicéntem : Quia non misit ei argéntum et púeros, proptérea périit. Et misit púeros et centum talénta, et mentítus est et non dimísit Jónathan.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta infra Hebdomadam III Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 14, 16-26*
+
+ET audítum est Romæ quia defúnctus esset Jónathas, et usque in Spartiátas, et contristáti sunt valde; ut audiérunt autem quod Simon frater ejus factus esset summus sacérdos loco ejus et ipse obtinéret omnem regiónem et civitátes in ea, scripsérunt ad eum in tábulis ǽreis, ut renovárent amicítias et societátem, quam fécerant cum Juda et cum Jónatha frátribus ejus, et lectæ sunt in conspéctu ecclésiæ in Jerúsalem. Et hoc exémplum epistolárum, quas Spartiátæ misérunt.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte, quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio ii
+
+SPartianórum príncipes et civitátes Simóni sacerdóti magno et senióribus et sacerdótibus et réliquo pópulo Judæórum frátribus salútem. Legáti qui missi sunt ad pópulum nostrum, nuntiavérunt nobis de vestra glória et honóre ac lætítia, et gavísi sumus in intróitu eórum et scrípsimus quæ ab eis erant dicta in concíliis pópuli sic : Numénius Antíochi et Antipáter Jásonis fílius legáti Judæórum venérunt ad nos renovántes nobíscum amicítiam prístinam. Et plácuit pópulo excípere viros glorióse et pónere exémplum sermónum eórum in segregátis pópuli libris, ut sit ad memóriam pópulo Spartiatárum. Exémplum autem horum scrípsimus Simóni magno sacerdóti.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+POst hæc autem misit Simon Numénium Romam, habéntem clýpeum áureum magnum pondo mnárum mille, ad statuéndam cum eis societátem. Cum autem audísset pópulus Románus sermónes istos, dixérunt : Quam gratiárum actiónem reddémus Simóni et fíliis ejus? Restítuit enim ipse fratres suos et expugnávit inimícos Israël ab eis. Et statuérunt ei libertátem et descripsérunt in tábulis ǽreis et posuérunt in títulis in monte Sion.
+
+℟. Tua est poténtia, tuum regnum, Dómine; tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.
+
+---
+
+## Sabbato infra Hebdomadam III Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 16, 14-24*
+
+SImon autem perámbulans civitátes quæ erant in regióne Judǽæ et sollicitúdinem gerens eárum descéndit in Jéricho ipse et Mathathías fílius ejus et Judas anno centésimo septuagésimo séptimo, mense undécimo : hic est mensis Sabath. Et suscépit eos fílius Abóbi in munitiúnculam, quæ vocátur Doch, cum dolo, quam ædificávit; et fecit eis convívium magnum et abscóndit illic viros et, cum inebriátus esset Simon et fílii ejus, surréxit Ptolemǽus cum suis, et sumpsérunt arma sua et intravérunt in convívium et occidérunt eum et duos fílios ejus et quosdam púeros ejus et fecit deceptiónem magnam in Israël et réddidit mala pro bonis.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+ET scripsit hæc Ptolemǽus et misit regi, ut mítteret ei exércitum in auxílium et tráderet ei regiónem et civitátes eórum et tribúta. Et misit álios in Gázaram tóllere Joánnem et tribúnis misit epístolas, ut venírent ad se, et daret eis argéntum et aurum et dona. Et álios misit occupáre Jerúsalem et montem templi. Et præcúrrens quidam nuntiávit Joánni in Gázara, quia périit pater ejus et fratres ejus et quia : Misit te quoque intérfici.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Et.}
+
+##### Lectio iii
+
+UT audívit autem, veheménter expávit et comprehéndit viros qui vénerant pérdere eum et occídit eos; cognóvit enim quia quærébant eum pérdere. Et cétera sermónum Joánnis et bellórum ejus et bonárum virtútum, quibus fórtiter gessit, et ædifícii murórum quos exstrúxit et rerum gestárum ejus, ecce hæc scripta sunt in libro diérum sacerdótii ejus, ex quo factus est princeps sacerdótum post patrem suum.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.

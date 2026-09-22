@@ -16023,3 +16023,19 @@ SImilitúdo autem vultus eórum : fácies hóminis, et fácies leónis a dextris
 USus prophéticæ locutiónis est, ut prius persónam, tempus, locúmque descríbat, et póstmodum dícere mystéria prophétiæ incípiat; quátenus ad veritátem solídius ostendéndam, ante históriæ radícem figat, et post, fructus spíritus per signa et allegórias próferat. Ezéchiel ítaque ætátis suæ tempus índicat, dicens : Et factum est in trigésimo anno, in quarto mense, in quinta mensis. Locum quoque denúntians, adjúngit : Cum essem in médio captivórum juxta flumen Chobar, apérti sunt cæli, et vidi visiónes Dei. Tempus étiam insínuat, subdens : In quinta mensis, ipse est annus quintus transmigratiónis regis Jóachin. Qui ut bene persónam índicet, étiam genus narrat, cum súbditur : Et factum est verbum Dómini ad Ezechiélem, fílium Buzi, sacerdótem.
 
 ℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio v
+
+SED prima quæstio nobis óritur, cur is qui níhil adhuc díxerat, ita exórsus est dicens : Et factum est in trigésimo anno. Et, namque sermo conjunctiónis est : et scimus quia non conjúngitur sermo súbsequens nisi sermóni præcedénti. Qui ígitur nihil díxerat, cur dicit, Et factum est : cum non sit sermo, cui hoc quod íncipit, subjúngat? Qua in re intuéndum est, quia sicut nos corporália, sic prophétæ sensu spirituália aspíciunt; eísque et illa sunt præséntia, quæ nostræ ignorántiæ abséntia vidéntur. Unde fit, ut in mente prophetárum ita conjúncta sint exterióribus interióra, quátenus simul útraque vídeant, simúlque in eis fiat et intus verbum quod áudiunt, et foris quod dicunt.
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine, et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+##### Lectio vi
+
+PAtet ígitur causa, cur qui nihil díxerat, inchoávit dicens : Et factum est in trigésimo anno : quia hoc verbum quod foris prótulit, illi verbo quod intus audíerat, conjúnxit. Continuávit ergo verba quæ prótulit visióni íntimæ, et idcírco íncipit dicens, Et factum est. Subjúnxit enim hoc quod extérius loqui ínchoat; ac si et illud foris sit, quod intus vidit. Hoc autem quod dícitur, quia in trigésimo anno spíritum prophétíæ accéperit, índicat áliquid nobis considerándum; vidélicet quia juxta ratiónis usum, doctrínæ sermo non súppetit, nisi in ætáte perfécta. Unde et ipse Dóminus anno duodécimo ætátis suæ in médio doctórum in templo sedens, non docens sed intérrogans vóluit inveníri.
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}

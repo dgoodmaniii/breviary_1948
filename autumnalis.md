@@ -15180,3 +15180,92 @@ DEínde Ptolemǽus Lagi fílius, post Alexándri mortem captívos inde in Ægýp
 ANte matutínum surrexérunt quinta et vigésima die mensis noni (hic est mensis Casleu) centésimi quadragésimi octávi anni et obtulérunt sacrifícium secúndum legem super altáre holocaustórum novum, quod fecérunt. Secúndum tempus et secúndum diem, in qua contaminavérunt illud gentes, in ipsa renovátum est in cánticis et cítharis et cínyris et cýmbalis. Et cécidit omnis pópulus in fáciem, et adoravérunt et benedixérunt in cælum eum qui prosperávit eis.
 
 ℟. Dixit Judas Simóni fratri suo : Elige tibi viros et vade, líbera fratres tuos in Galilǽam; ego autem et Jónathas frater tuus íbimus in Galaadítim : \* Sicut fúerit volúntas in cælo, sic fiat. ℣. Accingímini, fílii poténtes, et estóte paráti : quóniam mélius est nobis mori in bello, quam vidére mala gentis nostræ et sanctórum. — Sicut.
+
+##### Lectio ii
+
+ET fecérunt dedicatiónem altáris diébus octo et obtulérunt holocáusta cum lætítia et sacrifícium salutáris et laudis et ornavérunt fáciem templi corónis áureis et scútulis et dedicavérunt portas et pastophória et imposuérunt eis jánuas. Et facta est lætítia in pópulo magna valde, et avérsum est oppróbrium géntium. Et státuit Judas et fratres ejus et univérsa ecclésia Israël, ut agátur dies dedicatiónis altáris in tempóribus suis ab anno in annum per dies octo, a quinta et vigésima die mensis Casleu, cum lætítia et gáudio.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+ET ædificavérunt in témpore illo montem Sion et per circúitum muros altos et turres firmas, nequándo venírent gentes et conculcárent eum, sicut ántea fecérunt. Et collocávit illic exércitum, ut servárent eum, et munívit eum ad custodiéndam Bethsúram, ut habéret pópulus munitiónem contra fáciem Idumǽæ.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Tertia infra Hebdomadam II Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 5, 1-13*
+
+ET factum est, ut audiérunt gentes in circúitu quia ædificátum est altáre et sanctuárium sicut prius, irátæ sunt valde et cogitábant tóllere genus Jacob, qui erant inter eos, et cœpérunt occídere de pópulo et pérsequi. Et debellábat Judas fílios Esau in Idumǽa et eos qui erant in Acrabatháne, quia circumsedébant Israëlítas, et percússit eos plaga magna et recordátus est malítiam filiórum Bean, qui erant pópulo in láqueum et in scándalum insidiántes ei in via. Et conclúsi sunt ab eo in túrribus, et applícuit ad eos et anathematizávit eos et incéndit turres eórum igni cum ómnibus qui in eis erant.
+
+℟. Hic est fratrum amátor et pópuli Israël : \* Hic est, qui multum orat pro pópulo et univérsa sancta civitáte Jerúsalem. ℣. Vir iste in pópulo suo mitíssimus appáruit. — Hic est.
+
+##### Lectio ii
+
+ET transívit ad fílios Ammon et invénit manum fortem et pópulum copiósum et Timótheum ducem ipsórum : et commísit cum eis prǽlia multa, et contríti sunt in conspéctu eórum et percússit eos et cepit Gazer civitátem et fílias ejus et revérsus est in Judǽam. Et congregátæ sunt gentes quæ sunt in Gálaad, advérsus Israëlítas qui erant in fínibus eórum, ut tóllerent eos. Et fugérunt in Dátheman munitiónem.
+
+℟. Tu, Dómine universórum, qui nullam habes indigéntiam, voluísti templum tuum fíeri in nobis; \* Consérva domum istam immaculátam in ætérnum, Dómine. ℣. Tu elegísti, Dómine, domum istam ad invocándum nomen tuum in ea, ut esset domus oratiónis et obsecratiónis pópulo tuo. — Consérva.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Consérva.}
+
+##### Lectio iii
+
+ET misérunt lítteras ad Judam et fratres ejus dicéntes : Congregátæ sunt advérsum nos gentes per circúitum, ut nos áuferant et parent veníre et occupáre munitiónem, in quam confúgimus, et Timótheus est dux exércitus eórum; nunc ergo veni et éripe nos de mánibus eórum, quia cécidit multitúdo de nobis. Et omnes fratres nostri, qui erant in locis Tubin, interfécti sunt et captívas duxérunt uxóres eórum et natos et spólia et peremérunt illic fere mille viros.
+
+℟. Aperi óculos tuos, Dómine, et vide afflictiónem nostram : circumdedérunt nos gentes ad puniéndum nos : \* Sed tu, Dómine, exténde bráchium tuum, et líbera ánimas nostras. ℣. Afflíge oppriméntes nos et contuméliam faciéntes in supérbiam; et custódi partem tuam. — Sed. Glória Patri. Sed.
+
+---
+
+## Feria Quarta infra Hebdomadam II Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 5, 55-67*
+
+IN diébus, quibus erat Judas et Jónathas in terra Gálaad, et Simon frater ejus in Galilǽa contra fáciem Ptolemáidis, audívit Joséphus Zacharíæ fílius et Azarías princeps virtútis res bene gestas et prǽlia, quæ facta sunt, et dixit : Faciámus et ipsi nobis nomen et eámus pugnáre advérsus gentes, quæ in circúitu nostro sunt. Et præcépit his qui erant in exércitu suo, et abiérunt Jámniam.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+ET exívit Górgias de civitáte et viri ejus óbviam illis in pugnam, et fugáti sunt Joséphus et Azarías usque in fines Judǽæ, et cecidérunt illo die de pópulo Israël ad duo míllia viri, et facta est fuga magna in pópulo, quia non audiérunt Judam et fratres ejus existimántes fórtiter se factúros. Ipsi autem non erant de sémine virórum illórum per quos salus facta est in Israël.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+ET viri Juda magnificáti sunt valde in conspéctu omnis Israël et géntium ómnium, ubi audiebátur nomen eórum. Et convenérunt ad eos fausta acclamántes. Et exívit Judas et fratres ejus et expugnábant fílios Esau in terra, quæ ad Austrum est, et percússit Chebron et fílias ejus et muros ejus et turres succéndit igni in circúitu et movit castra, ut iret in terram alienigenárum, et perambulábat Samaríam. In die illa cecidérunt sacerdótes in bello, dum volunt fórtiter fácere, dum sine consílio éxeunt in prǽlium.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Quinta infra Hebdomadam II Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 6, 1-13*
+
+ET rex Antíochus perambulábat superióres regiónes et audívit esse civitátem Elymáidem in Pérside nobilíssimam et copiósam in argénto et auro templúmque in ea lócuples valde et illic velámina áurea et lorícæ et scuta, quæ relíquit Alexánder Philíppi rex Mácedo, qui regnávit primus in Grǽcia. Et venit et quærébat cápere civitátem et deprædári eam et non pótuit, quóniam innótuit sermo his qui erant in civitáte et insurrexérunt in prǽlium, et fugit inde et ábiit cum tristítia magna et revérsus est in Babylóniam. Et venit qui nuntiáret ei in Pérside quia fugáta sunt castra quæ erant in terra Juda, et quia ábiit Lýsias cum virtúte forti in primis et fugátus est a fácie Judæórum.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem, et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+ET invaluérunt armis et víribus et spóliis multis, quæ cepérunt, de castris quæ excidérunt, et quia diruérunt abominatiónem quam ædificáverat super altáre, quod erat in Jerúsalem, et sanctificatiónem sicut prius circumdedérunt muris excélsis, sed et Bethsúram civitátem suam. Et factum est, ut audívit rex sermónes istos, expávit et commótus est valde et décidit in lectum et íncidit in languórem præ tristítia, quia non factum est ei sicut cogitábat. Et erat illic per dies multos, quia renováta est in eo tristítia magna et arbitrátus est se mori.
+
+℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}

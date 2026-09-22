@@ -25440,3 +25440,58 @@ DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecr�
 **4** Quare ergo \* rubrum est induméntum tuum, et vestiménta tua sicut calcántium in torculári?
 
 **5** Tórcular \* calcávi solus, et de géntibus non est vir mecum.
+
+### In II Vesperis
+
+###### Psalmus 147
+
+LAuda, Jerúsalem, Dóminum: \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum: \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem: \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ: \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam: \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas: \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea: \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob: \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni: \* et judícia sua non manifestávit eis.
+
+**Ant.** Tórcular calcávi solus, et de géntibus non est vir mecum.
+
+###### Capitulum
+
+*Hebr. 9, 11-12*
+
+FRatres: Christus assístens Póntifex futurórum bonórum, per ámplius et perféctius tabernáculum non manufáctum, id est, non hujus creatiónis: neque per sánguinem hircórum aut vitulórum, sed per próprium sánguinem introívit semel in Sancta, ætérna redemptióne invénta.
+
+###### Hymnus
+
+FEstívis résonant cómpita vócibus,
+Cives lætítiam fróntibus explicent,
+Tædis flammíferis órdine pródeant
+Instrúcti púeri et senes.
+
+Quem dura móriens Christus in árbore
+Fudit multíplici vúlnere sánguinem,
+Nos facti mémores dum cólimus, decet
+Saltem fúndere lácrimas.
+
+Humáno géneri pernícies gravis
+Adámi véteris crímine cóntigit:
+Adámi intégritas et píetas novi
+Vitam réddidit ómnibus.
+
+Clamórem válidum summus ab æthere
+Languéntis Géniti si Pater áudiit,
+Placári pótius sánguine débuit,
+Et nobis véniam dare.
+
+Hoc quicúmque stolam sánguine próluit,
+Abstérgit máculas; et róseum decus,

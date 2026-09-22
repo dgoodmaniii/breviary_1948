@@ -25236,4 +25236,28 @@ Dómine, Deus noster, tu exaudiébas eos: \* Deus, tu propítius fuísti eis, et
 
 Exaltáte Dóminum Deum nostrum, et adoráte in monte sancto ejus: \* quóniam sanctus Dóminus, Deus noster.
 
-**Ant.** Repósita est mihi coróna justítiæ, quam red-
+**Ant.** Repósita est mihi coróna justítiæ, quam reddet mihi Dóminus in illa die justus judex.
+
+℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 10, 16-22*
+
+IN illo témpore: Dixit Jesus discípulis suis: Ecce ego mitto vos sicut oves in médio lupórum. Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+*Homilia 34 in Matth., longe post initium*
+
+SIC dícere vidétur: Nolíte turbári, si, cum vos inter lupos mitto, tamquam oves et colúmbas esse júbeo. Nam, etsi possum contrárium quoque præstáre, et non permíttere ut grave áliquid patiámini, nec lupis tamquam oves subjécti sitis, sed effícere ut leónibus terribilióres evadátis; tamen sic éxpedit fíeri: hoc et vos quoque illustrióres fáciet, et meam declarábit virtútem. Sic enim póstea dixit Paulo: Súfficit tibi grátia mea, nam virtus mea in infirmitáte perfícitur. Ipse ígitur vos ut tales essétis feci.
+
+℟. Sancte Paule Apóstole, prædicátor veritátis et doctor géntium, \* Intercéde pro nobis ad Deum, qui te elégit, ut digni efficiámur grátia Dei. ℣. Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis. — Intercéde.
+
+#### Lectio viii
+
+SED inspiciámus quam prudéntiam éxigit: serpéntis certe. Nam, quemádmodum serpens totum seípsum tradit, nec mínimum curat si ipsum quoque corpus incídi necésse sit, dúmmodo caput suum íntegrum servet; eódem tu quoque modo, præter fidem cétera pérdere non cures, sive pecúnias, sive corpus, sive étiam vitam ipsam profúndere necésse sit. Fides enim caput est et radix; qua serváta, etiámsi ómnia perdas, ómnia tamen rursus majóre cum glória recuperábis. Idcírco nec símplices solum jussit esse, nec prudéntes solum; sed ambo hæc in unum míscuit, ut ea in virtútem convertántur.
+
+℟. Damásci, præpósitus gentis Arétæ regis vóluit me comprehéndere: \* Et a frátribus per murum demíssus sum in sporta, \* Et sic evási manus ejus in nómine Dómini. ℣. Deus et Pater Dómini nostri Jesu Christi scit quia non méntior. — Et a frátri-

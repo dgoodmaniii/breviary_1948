@@ -21550,4 +21550,48 @@ IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus
 
 #### Lectio ix
 
-PUdentiána Virgo, Pudéntis Románi fília, paréntibus orbáta, cum admirábili pietáte christiánam religiónem cóleret, una cum soróre Praxéde pecúniam ex véndito património redáctam paupé-
+PUdentiána Virgo, Pudéntis Románi fília, paréntibus orbáta, cum admirábili pietáte christiánam religiónem cóleret, una cum soróre Praxéde pecúniam ex véndito património redáctam paupéribus distríbuit, seque jejúniis et oratiónibus dedit. Cujus étiam ópera, tota ejus família, in qua erant nonagínta sex hómines, a Pio Pontífice baptizáta est. Quod autem ab Antoníno imperatóre sancítum erat, ne Christiáni públice sacrifícia fácerent, Pius Póntifex in ǽdibus Pudentiánæ cum Christiánis Sacra celebrábat. Quibus illa benígne accéptis, quæ ad vitam necessária essent, suppeditábat. Itaque in his christiánæ pietátis offíciis migrávit e vita, et in sepúlcro patris ad cœmetérium Priscíllæ, via Salária, sepúlta est décimo quarto Kaléndas Júnii.
+
+Te Deum.
+
+{RUBRIC: Ad Laudes pro Commemoratióne S. Pudentiánæ Virg.:}
+
+**Ant.** Símile est. [124]
+
+℣. Diffúsa est grátia.
+
+{RUBRIC: Oratio Exáudi nos. 561}
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Dum esset Summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+###### Oratio
+
+DEus, qui beátum Petrum Cælestínum ad summi pontificátus ápicem sublimásti, quique illum humilitáti postpónere docuísti: concéde propítius; ut ejus exémplo cuncta mundi despícere, et ad promíssa humílibus prǽmia perveníre felíciter mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. sequéntis.}
+
+---
+
+### Die 20 Maji
+
+#### S. Bernardini Senensis
+
+{RUBRIC: Confessóris [94] Semiduplex}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DOmine Jesu, qui beáto Bernardíno Confessóri tuo exímium sancti nóminis tui amórem tribuísti: ejus, quǽsumus, méritis et intercessióne, spíritum nobis tuæ dilectiónis benígnus infúnde: Qui vivis.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+BErnardínus Albizésca, nóbili Senénsi família ortus, ab ineúnte ætáte non obscúra sanctitátis dedit indícia; nam a piis paréntibus honéste educátus, negléctis puerílibus ludis, inter prima grammáticæ stúdia pietátis opéribus ánimum inténdit, jejúniis, oratióni,

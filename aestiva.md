@@ -24215,3 +24215,35 @@ QUǽsumus, omnípotens Deus: ut nos gemináta lætítia hodiérnæ festivitátis
 **Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
 
 ℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui infirmitáti nostræ ad teréndam salútis viam in Sanctis tuis exémplum et præsídium collocásti: da nobis, ita beáti Guliélmi Abbátis mérita venerári; ut ejúsdem excipiámus suffrágia, et vestígia prosequámur. Per Dóminum.
+
+{RUBRIC: Deinde Commemor. Octavæ S. Joannis Baptistæ:}
+
+**Ant.** Puer, qui natus est nobis, plus quam Prophéta est: hic est enim, de quo Salvátor ait: Inter natos mulíerum non surréxit major Joánne Baptísta.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+###### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+{RUBRIC: Completorium de Feria.}
+
+##### Ad Matutinum
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Fratres: Debitóres. [52]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JOánnes et Paulus fratres Románi, cum facultátibus a Constántia Constantíni fília, cui pie fidelitérque serviérant, sibi relíctis, Christi páuperes álerent; a Juliáno Apóstata in númerum familiárium suórum invitáti, líbere negavérunt se apud eum esse velle, qui a Jesu Christo defecísset. Quibus ille ad deliberándum decem dies præfínit, ut nisi ad eam diem ei adhærére et Jovi sacrificáre constitúerint, sibi moriéndum esse certo sciant.
+
+℟. Isti sunt duo viri misericórdiæ, qui assístunt ante Dóminum, \* Dominatórem univérsæ terræ. ℣. Isti sunt duæ olívæ, et duo candelábra lucéntia ante Dóminum. — Dominatórem.
+
+#### Lectio v
+
+ILli intra id tempus réliqua sua bona distribuérunt paupéribus, quo expeditióres ad Dóminum migráre possent, et plures juvárent, a quibus in ætérna tabernácula reciperéntur. Die décima Terentiánus prætóriæ cohórtis præféctus, ad eos missus cum alláta Jovis effígie ut eam veneraréntur, imperatóris mandátum eis ex-

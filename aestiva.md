@@ -21945,3 +21945,39 @@ GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Joánnem Márty
 {RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedéntis.}
 
 ---
+
+### Die 28 Maji
+
+#### S. Augustíni
+
+{RUBRIC: Epíscopi et Conf. [69] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+###### Oratio
+
+DEus, qui Anglórum gentes, prædicatióne et miráculis beáti Augustíni Confessóris tui atque Pontíficis, veræ fídei luce illustráre dignátus es: concéde; ut, ipso interveniénte, errántium corda ad veritátis tuæ rédeant unitátem, et nos in tua simus voluntáte concórdes. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Beda, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne clarificas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+AUgustínus, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum sóciis mónachis fere quadragínta in Angliam missus est anno quingentésimo nonagésimo séptimo, ut gentes illas ad Christum convérteret. Erat eo témpore rex Ethelbértus, in Cántio potentíssimus, qui, audíta advéntus Augustíni causa, eum cum sóciis Cantuáriam, sui regni metrópolim, invitávit; ibíque manéndi et Christum prædicándi facultátem eídem liberáliter concéssit. Quare sanctus vir prope Cantuáriam oratórium exstrúxit, ubi ipse aliquámdiu consédit, atque apostólicam vivéndi ratiónem cum suis æmulátus est.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+CÆléstis doctrínæ prædicatióne plúrimis firmáta miráculis, ac vitæ exémplo sic insulános illos demúlsit, ut eórum

@@ -23853,4 +23853,52 @@ Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sǽculum, et in
 
 Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
 
-Quóniam dabis eum in benedictiónem in sǽculum sǽculi: \* lætificábis
+Quóniam dabis eum in benedictiónem in sǽculum sǽculi: \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis: \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui: \* Dóminus in ira tua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes: \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala: \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum: \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Formans me ex útero servum sibi Dóminus, dicit: Dedi te in lucem géntium, ut sis salus mea usque ad extrémum terræ.
+
+**Ant.** Reges vidébunt, \* et consúrgent príncipes et adorábunt Dóminum Deum tuum, qui elégit te.
+
+#### Psalmus 33
+
+BEnedícam Dóminum in omni témpore: \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea: \* áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum: \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me: \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini: \* et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum: \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum: \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus: \* beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus: \* quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt: \* inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me: \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam: \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo: \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum: \* inquíre pacem, et perséquere eam.

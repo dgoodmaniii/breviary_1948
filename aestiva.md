@@ -27995,3 +27995,47 @@ DEus, misericordiárum pater, per mérita et intercessiónem beáti Hierónymi, 
 **Ant.** Símile est regnum cælórum hómini negotiatóri quæránti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
 
 ℣. Diffúsa est grátia.
+
+###### Oratio
+
+INdulgéntiam nobis, quæsumus, Dómine, beáta Margaríta Virgo et Martyr implóret: quæ tibi grata semper éxstitit et mérito castitátis et tuæ professióne virtútis. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 21 Julii
+
+#### S. Praxedis
+
+{RUBRIC: Virg. [111] Simplex}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+###### Oratio C 3
+
+EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Praxédis Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+#### Lectio iii
+
+PRaxédes, virgo Romána, Pudentiánæ vírginis soror, Marco Antoníno imperatóre Christiános persequénte, eos facultátibus, ópera, consolatióne, et omni caritátis offício prosequebátur. Nam álios domi occultábat; álios ad fídei constántiam hortabátur: aliórum córpora sepeliébat; iis, qui in cárcere inclúsi erant, qui in ergástulis exercebántur, nulla re déerat. Quæ, cum tantam Christianórum stragem jam ferre non posset, Deum precáta est, ut, si mori expedíret, se e tantis malis eríperet. Itaque duodécimo Kaléndas Augústi ad pietátis prǽmia vocátur in cælum. Cujus corpus a Pastóre presbýtero in patris et soróris Pudentiánæ sepúlcrum illátum est, quod erat in cœmetério Priscíllæ, via Salária.
+
+Te Deum laudámus.
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+{RUBRIC: Exáudi nos, ut supra.}
+
+{RUBRIC: Vesperæ de sequenti.}

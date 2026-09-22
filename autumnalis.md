@@ -15434,3 +15434,44 @@ POst hæc verba renuntiátum est Jónathæ et Simóni fratri ejus, quia fílii J
 ET vidit Jónathas quia tempus eum juvat, et elégit viros et misit eos Romam statúere et renováre cum eis amicítiam; et ad Spartiátas et ad ália loca misit epístolas secúndum eámdem formam. Et abiérunt Romam et intravérunt cúriam et dixérunt : Jónathas summus sacérdos et gens Judæórum misérunt nos, ut renovarémus amicítiam et societátem secúndum prístinum. Et dedérunt illis epístolas ad ipsos per loca, ut dedúcerent eos in terram Juda cum pace.
 
 ℟. Hic est fratrum amátor et pópuli Israël : \* Hic est, qui multum orat pro pópulo et univérsa sancta civitáte Jerúsalem. ℣. Vir iste in pópulo suo mitíssimus appáruit. — Hic est.
+
+##### Lectio ii
+
+ET hoc est exémplum epistolárum, quas scripsit Jónathas Spartiátis : Jónathas summus sacérdos et senióres gentis et sacerdótes et réliquus pópulus Judæórum Spartiátis frátribus salútem. Jampridem missæ erant epístolæ ad Oníam summum sacerdótem ab Ário, qui regnábat apud vos, quóniam estis fratres nostri, sicut rescríptum cóntinet quod subjéctum est. Et suscépit Onías virum, qui missus fúerat, cum honóre, et accépit epístolas in quibus significabátur de societáte et amicítia.
+
+℟. Tu, Dómine universórum, qui nullam habes indigéntiam, voluísti templum tuum fíeri in nobis; \* Consérva domum istam immaculátam in ætérnum, Dómine. ℣. Tu elegísti, Dómine, domum istam ad invocándum nomen tuum in ea, ut esset domus oratiónis et obsecratiónis pópulo tuo. — Consérva.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Consérva.}
+
+##### Lectio iii
+
+NOS, cum nullo horum indigerémus habéntes solátio sanctos libros qui sunt in mánibus nostris, malúimus míttere ad vos renováre fraternitátem et amicítiam, ne forte aliéni efficiámur a vobis; multa enim témpora transiérunt, ex quo misístis ad nos. Nos ergo in omni témpore sine intermissióne in diébus solémnibus et céteris quibus opórtet, mémores sumus vestri in sacrifíciis quæ offérimus et in observatiónibus, sicut fas est et decet meminísse fratrum.
+
+℟. Aperi óculos tuos, Dómine, et vide afflictiónem nostram : circumdedérunt nos gentes ad puniéndum nos : \* Sed tu, Dómine, exténde bráchium tuum, et líbera ánimas nostras. ℣. Afflíge oppriméntes nos et contuméliam faciéntes in supérbiam; et custódi partem tuam. — Sed. Glória Patri. Sed.
+
+---
+
+## Feria Quarta infra Hebdomadam III Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 12, 39-52*
+
+ET, cum cogitásset Tryphon regnáre Asíæ et assúmere diadéma et exténdere manum in Antíochum regem, timens ne forte non permítteret eum Jónathas, sed pugnáret advérsus eum, quærébat comprehéndere eum et occídere et exsúrgens ábiit in Bethsan. Et exívit Jónathas óbviam illi cum quadragínta míllibus virórum electórum in prǽlium, et venit Bethsan. Et vidit Tryphon quia venit Jónathas cum exércitu multo, ut exténderet in eum manus tímuit : et excépit eum cum honóre et commendávit eum ómnibus amícis suis et dedit ei múnera et præcépit exercítibus suis ut obedírent ei sicut sibi.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+ET dixit Jónathæ : Ut quid vexásti univérsum pópulum, cum bellum nobis non sit? Et nunc remítte eos in domos suas; élige autem tibi viros paucos, qui tecum sint, et veni mecum Ptolemáidam, et tradam eam tibi et réliqua præsídia et exércitum et univérsos præpósitos negótii et convérsus abíbo; proptérea enim veni. Et crédidit ei et fecit sicut dixit et dimísit exércitum, et abiérunt in terram Juda. Retínuit autem secum tria míllia virórum, ex quibus remísit in Galilǽam duo míllia; mille autem venérunt cum eo.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+UT autem intrávit Ptolemáidam Jónathas, clausérunt portas civitátis Ptoleménses et comprehendérunt eum, et omnes qui cum eo intráverant gládio interfecérunt. Et misit Tryphon exércitum et équites in Galilǽam et in campum magnum, ut pérderent omnes sócios Jónathæ. At illi, cum cognovíssent quia comprehénsus est Jónathas et périit, et omnes qui cum eo erant, hortáti sunt semetípsos et exiérunt paráti in prǽlium. Et vidéntes hi qui insecúti fúerant, quia pro ánima res est illis revérsi sunt; illi autem venérunt omnes cum pace in terram Juda. Et planxérunt Jónathan et eos qui cum ipso fúerant valde.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.

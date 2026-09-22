@@ -28039,3 +28039,74 @@ Te Deum laudámus.
 {RUBRIC: Exáudi nos, ut supra.}
 
 {RUBRIC: Vesperæ de sequenti.}
+
+---
+
+### Die 22 Julii
+
+#### S. Mariæ Magdalenæ
+
+{RUBRIC: Pœnitentis [130] Duplex}
+
+##### In I Vesperis
+
+###### Capitulum
+
+*Prov. 31, 10-11*
+
+MUlíerem fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+
+{RUBRIC: Si sequens Hymnus neque in I neque in II Vesperis poni potuerit, dicitur ad Matutinum, omisso Hymno María castis, ibidem assignato.}
+
+###### Hymnus
+
+PAter supérni lúminis,
+Cum Magdalénam réspicis,
+Flammas amóris éxcitas,
+Gelúque solvis péctoris.
+
+Amóre currit sáucia
+Pedes beátos úngere,
+Laváre fletu, térgere
+Comis, et ore lámbere.
+
+Astáre non timet cruci,
+Sepúlcro inháret ánxia,
+Truces nec horret mílites:
+Pellit timórem cáritas.
+
+O vera, Christe, cáritas,
+Tu nostra purga crímina,
+Tu corda reple grátia,
+Tu redde cæli prǽmia.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Múlier \* quæ erat in civitáte peccátrix, ut cognóvit quod Jesus accúbuit in domo Simónis leprósi, áttulit alabástrum unguénti, et stans retro secus pedes Jesu, lácrimis cœpit rigáre pedes ejus, et capíllis cápitis sui tergébat, et osculabátur pedes ejus, et unguénto ungébat.
+
+###### Oratio
+
+BEátæ Maríæ Magdalénæ, quæsumus, Dómine, suffrágiis adjuvémur: cujus précibus exorátus, quatriduánum fratrem Lázarum vivum ab ínferis resuscitásti: Qui vivis.
+
+##### Ad Matutinum
+
+**Invitat.** Laudémus Deum nostrum \* In conversióne Maríæ Magdalénæ. **Ps. 94** Veníte, exsultémus.
+
+###### Hymnus
+
+MAría castis ósculis
+Lambit Dei vestígia,
+Fletu rigat, tergit comis,
+Detérsa nardo pérlinit.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum.
+Amen.

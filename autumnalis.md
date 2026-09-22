@@ -14940,3 +14940,79 @@ VIrtútem ducis Judæ Machabǽi de uno ejus mílite consideráte. Namque Eleáza
 ℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
 
 {RUBRIC: Ad Laudes, in ómnibus Domínicis usque ad V Novémbris inclusíve, Hymnus Ætérne rerum, ut in Psaltério.}
+
+---
+
+## Feria Secunda infra Hebdomadam I Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 1, 17-29*
+
+ET parátum est regnum in conspéctu Antíochi, et cœpit regnáre in terra Ægýpti, ut regnáret super duo regna, et intrávit in Ægýptum in multitúdine gravi, in cúrribus et elephántis et equítibus et copiósa návium multitúdine, et constítuit bellum advérsus Ptolemǽum regem Ægýpti, et véritus est Ptolemǽus a fácie ejus et fugit, et cecidérunt vulneráti multi, et comprehéndit civitátes munítas in terra Ægýpti et accépit spólia terræ Ægýpti.
+
+℟. Dixit Judas Simóni fratri suo : Elige tibi viros et vade, líbera fratres tuos in Galilǽam; ego autem et Jónathas frater tuus íbimus in Galaadítim : \* Sicut fúerit volúntas in cælo, sic fiat. ℣. Accingímini, fílii poténtes, et estóte paráti : quóniam mélius est nobis mori in bello, quam vidére mala gentis nostræ et sanctórum. — Sicut.
+
+##### Lectio ii
+
+ET convértit Antíochus, postquam percússit Ægýptum in centésimo et quadragésimo tértio anno, et ascéndit ad Israël. Et ascéndit Jerosólymam in multitúdine gravi et intrávit in sanctificatiónem cum supérbia et accépit altáre áureum et candelábrum lúminis et univérsa vasa ejus et mensam propositiónis et libatória et phíalas et mortaríola áurea et velum et corónas et ornaméntum áureum, quod in fácie templi erat, et commínuit ómnia.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+ET accépit argéntum et aurum et vasa concupiscibília et accépit thesáuros occúltos, quos invénit, et, sublátis ómnibus, ábiit in terram suam et fecit cædem hóminum et locútus est in supérbia magna et factus est planctus magnus in Israël et in omni loco eórum, et ingemuérunt príncipes et senióres, vírgines et júvenes infirmáti sunt, et speciósitas mulíerum immutáta est. Omnis marítus sumpsit laméntum, et quæ sedébant in thoro maritáli lugébant, et commóta est terra super habitántes in ea, et univérsa domus Jacob índuit confusiónem.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Tertia infra Hebdomadam I Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 2, 1-10*
+
+IN diébus illis surréxit Mathathías fílius Joánnis, fílii Simeónis, sacérdos ex fíliis Jóarib ab Jerúsalem et consédit in monte Modin. Et habébat fílios quinque, Joánnem, qui cognominabátur Gaddis, et Simónem, qui cognominabátur Thasi, et Judam, qui vocabátur Machabǽus, et Eleázarum, qui cognominabátur Abaron, et Jónathan, qui cognominabátur Apphus. Hi vidérunt mala quæ fiébant in pópulo Juda et in Jerúsalem.
+
+℟. Hic est fratrum amátor et pópuli Israël : \* Hic est, qui multum orat pro pópulo et univérsa sancta civitáte Jerúsalem. ℣. Vir iste in pópulo suo mitíssimus appáruit. — Hic est, qui.
+
+##### Lectio ii
+
+ET dixit Mathathías : Væ mihi! ut quid natus sum vidére contritiónem pópuli mei et contritiónem civitátis sanctæ et sedére illic, cum datur in mánibus inimicórum? Sancta in manu extraneórum facta sunt, templum ejus sicut homo ignóbilis, vasa glóriæ ejus captíva abdúcta sunt, trucidáti sunt senes ejus in platéis, et júvenes ejus cecidérunt in gládio inimicórum. Quæ gens non hereditávit regnum ejus et non obtínuit spólia ejus?
+
+℟. Tu, Dómine universórum, qui nullam habes indigéntiam, voluísti templum tuum fíeri in nobis; \* Consérva domum istam immaculátam in ætérnum, Dómine. ℣. Tu elegísti, Dómine, domum istam ad invocándum nomen tuum in ea, ut esset domus oratiónis et obsecratiónis pópulo tuo. — Consérva.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Consérva.}
+
+##### Lectio iii
+*Cap. 2, 14-16*
+
+ET scidit vestiménta sua Mathathías et fílii ejus et operuérunt se cilíciis et planxérunt valde. Et venérunt illuc qui missi erant a rege Antíocho, ut cógerent eos qui confúgerant in civitátem Modin, immoláre et accéndere thura et a lege Dei discédere, et multi de pópulo Israël consentiéntes accessérunt ad eos, sed Mathathías et fílii ejus constánter stetérunt.
+
+℟. Aperi óculos tuos, Dómine, et vide afflictiónem nostram : circumdedérunt nos gentes ad puniéndum nos : \* Sed tu, Dómine, exténde bráchium tuum, et líbera ánimas nostras. ℣. Afflíge oppriméntes nos et contuméliam faciéntes in supérbiam; et custódi partem tuam. — Sed. Glória Patri. Sed.
+
+---
+
+## Feria Quarta infra Hebdomadam I Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 2, 19-30*
+
+ET respóndit Mathathías et dixit magna voce : Etsi omnes gentes regi Antíocho obédiunt, ut discédat unusquísque a servitúte legis patrum suórum et conséntiat mandátis ejus, ego et fílii mei et fratres mei obediémus legi patrum nostrórum. Propítius sit nobis Deus, non est nobis útile relínquere legem et justítias Dei : non audiémus verba regis Antíochi nec sacrificábimus transgrediéntes legis nostræ mandáta, ut eámus áltera via.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+ET, ut cessávit loqui verba hæc, accéssit quidam Judǽus in ómnium óculis sacrificáre idólis super aram in civitáte Modin secúndum jussum regis. Et vidit Mathathías et dóluit, et contremuérunt renes ejus, et accénsus est furor ejus secúndum judícium legis, et insíliens trucidávit eum super aram. Sed et virum quem rex Antíochus míserat, qui cogébat immoláre, occídit in ipso témpore et aram destrúxit et zelátus est legem, sicut fecit Phínees Zamri fílio Salómi.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}

@@ -22256,4 +22256,10 @@ FRancíscus, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido
 
 #### Lectio v
 
-SOlémni emíssa professióne, ob singulárem ejus in divum Francíscum Assisinátem cultum, Francísci nomen assúmpsit.
+SOlémni emíssa professióne, ob singulárem ejus in divum Francíscum Assisinátem cultum, Francísci nomen assúmpsit. Adórno biénnio post vita functo, ipse toti religióni, quamquam invítus, præfícitur; quo in múnere virtútum ómnium præclára præbuit exémpla. Institúti amplificándi studiosíssimus, id assíduis oratiónibus, lácrimis, et jugi córporis maceratióne eníxe a Deo postulábat. Quam ob rem tértio in Hispániam se cóntulit, peregríni hábitu indútus, victúmque ostiátim mendícans. In itínere aspérrima quæque perpéssus, Omnipoténtis auxílium mirum in modum expértus, navim quam conscénderat, ab imminénti naufrágio oratiónis præsídio servávit incólumem. Ut in regnis illis voti compos fíeret, plúrimum laborávit; sed, ejus sanctitátis fama prælucénte, amplissimáque catholicórum regum Philíppi secúndi et Philíppi tértii munificéntia, adversariórum conátibus singulári ánimi fortitúdine superátis, plura sui órdinis domicília fundávit: quod pari eventu per Itáliam præstitit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+HUmilitáte ádeo excélluit, ut Romam véniens, in páuperum hospítio recéptus, se lepróso sociáverit, et ecclesiásticas dignitátes a Paulo quinto sibi oblátas constantíssime recusáverit. Illibátam perpétuo servávit virginitátem, effrontésque mulíeres, ejus castimóniæ insidiántes, Christo lucrifécit. Erga diviníssimum Eucharístiæ mystérium ardénti æstuans amóre, noctes pene íntegras in ejus adoratióne insómnes ducébat: quod pium exercítium, véluti sui órdinis tésseram, in eo perpétuo servándum constítuit. Deíparæ Vírginis cultum impénse fovit. In próximum exímia exársit caritáte. Prophetíæ dono et córdium scrutatióne ditátus fuit. Quadragésimum quartum ætátis suæ annum agens, dum in sacra Laurétana æde in oratióne persísteret, sibi vitæ finem imminére cognóvit. Aprútium statim defléxit, et in óppido Agnóni apud alúmnos sancti Philíppi Nérii letháli febre corréptus, sacraméntis Ecclésiæ devotíssime suscéptis, prídie Nonas Júnii anni millésimi sexcentésimi octávi, in pervigílio

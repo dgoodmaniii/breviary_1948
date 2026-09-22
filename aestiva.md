@@ -24739,4 +24739,48 @@ VOS autem quem me esse dícitis? Prudens lector, atténde quod, ex consequéntib
 
 #### Lectio ix
 
-REspóndens autem Jesus, dixit ei: Beátus es, Simon Bar-Jona. Testimónio de se Apóstoli
+REspóndens autem Jesus, dixit ei: Beátus es, Simon Bar-Jona. Testimónio de se Apóstoli reddit vicem. Petrus díxerat: Tu es Christus Fílius Dei vivi; mercédem recépit vera conféssio: Beátus es, Simon Bar-Jona. Quare? Quia non revelávit tibi caro et sánguis, sed revelávit Pater. Quod caro et sánguis reveláre non pótuit, Spíritus Sancti grátia revelátum est. Ergo ex confessióne sortítur vocábulum, quod revelatiónem ex Spíritu Sancto hábeat, cujus et fílius appellándus sit. Síquidem Bar-Jona in nostra lingua sonat Fílius colúmbæ.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Petrus et Joánnes \* ascendébant in templum ad horam oratiónis nonam.
+
+**2** Argéntum et aurum \* non est mihi: quod autem hábeo, hoc tibi do.
+
+**3** Dixit Angelus ad Petrum: \* Circúmda tibi vestiméntum tuum, et séquere me.
+
+**4** Misit Dóminus \* Angelum suum, et liberávit me de manu Heródis, allelúja.
+
+**5** Tu es Petrus, \* et super hanc petram ædificábo Ecclésiam meam.
+
+#### Capitulum
+
+*Act. 12, 1-3*
+
+MIsit Heródes rex manus ut affligeret quosdam de Ecclésia. Occídit autem Jacóbum fratrem Joánnis gládio. Videns autem quia placéret Judǽis, appósuit ut apprehénderet et Petrum.
+
+#### Hymnus
+
+BEáte Pastor, Petre, clemens áccipe
+Voces precántum, criminúmque víncula
+Verbo resólve, cui potéstas trádita
+Aperíre terris cælum, apértum cláudere.
+
+Egrégie Doctor, Paule, mores ínstrue,
+Et nostra tecum péctora in cælum trahe;
+Veláta dum merídiem cernat fides,
+Et solis instar sola regnet cáritas.
+
+Sit Trinitáti sempitérna glória,
+Honor, potéstas atque jubilátio,
+In unitáte, quæ gubérnat ómnia,
+Per univérsa æternitátis sǽcula.
+Amen.
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Bened. Ant.** Quodcúmque \* ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis: dicit Dóminus Simóni Petro.

@@ -15805,3 +15805,54 @@ DUǼ enim mulíeres delátæ sunt natos suos circumcidísse, quas, infántibus a
 ## Dominica V Octobris
 
 {RUBRIC: In Dominica occurrénte a die 25 ad diem 31 Octóbris inclusíve, recólitur Festum Dómini nostri Jesu Christi Regis, ut in Próprio Sanctórum notátur.}
+
+---
+
+## Feria Secunda infra Hebdomadam V Octobris
+
+{RUBRIC: Lectiónes huic Fériæ et duábus sequéntibus Fériis assignátæ, si suis diébus dici nequeant, ponúntur in prima insequénti die in qua legi váleant, juxta órdinem históriæ et martýrii Machabæórum. Quod si omnes infra hebdómadam dici nequeant, quæ posterióreum locum obtínent, eo anno omittúntur.}
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 6, 18-28*
+
+IGitur Eleázarus unus de primóribus scribárum, vir ætáte provéctus et vultu decórus, apérto ore hians compellebátur carnem porcínam manducáre; at ille gloriosíssimam mortem magis quam odíbilem vitam compléctens voluntárie prǽíbat ad supplícium. Intuens autem quemádmodum oportéret accédere, patiénter sústinens, destinávit non admíttere illícita propter vitæ amórem. Hi autem qui astábant, iníqua miseratióne commóti propter antíquam viri amicítiam, tolléntes eum secréto rogábant afférri carnes quibus vesci ei licébat, ut simularétur manducásse, sicut rex imperáverat, de sacrifícii cárnibus, ut hoc facto a morte liberarétur, et propter véterem viri amicítiam hanc in eo faciébant humanitátem.
+
+℟. Dixit Judas Simóni fratri suo : Elige tibi viros et vade, líbera fratres tuos in Galilǽam; ego autem et Jónathas frater tuus íbimus in Galaadítim : \* Sicut fúerit volúntas in cælo, sic fiat. ℣. Accingímini, fílii poténtes, et estóte paráti : quóniam mélius est nobis mori in bello, quam vidére mala gentis nostræ et sanctórum. — Sicut.
+
+##### Lectio ii
+
+AT ille cogitáre cœpit ætátis ac senectútis suæ eminéntiam dignam et ingénitæ nobilitátis canítiem atque a púero óptimæ conversatiónis actus; et secúndum sanctæ et a Deo cónditæ legis constitúta respóndit cito dicens præmítti se velle in inférnum. Non enim ætáti nostræ dignum est, inquit, fíngere, ut multi adoléscéntium arbitrántes Eleázarum nonagínta annórum transísse ad vitam alienigenárum, et ipsi propter meam simulatiónem et propter módicum corruptíbilis vitæ tempus decipiántur, et per hoc máculam atque exsecratiónem meæ senectúti conquíram. Nam, etsi in præsénti témpore supplíciis hóminum erípiar, sed manum Omnipoténtis nec vivus nec defúnctus effúgiam. Quam ob rem fórtiter vita excedéndo senectúte quidem dignus apparébo, adolescéntibus autem exémplum forte relínquam, si prompto ánimo ac fórtiter pro gravíssimis ac sanctíssimis légibus honésta morte perfúngar. His dictis, conféstim ad supplícium trahebátur.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+*Cap. 7, 1-5*
+
+COntigit autem et septem fratres una cum matre sua apprehénsos compélli a rege édere contra fas carnes porcínas flagris et táureis cruciátos. Unus autem ex illis, qui erat primus, sic ait : Quid quæris et quid vis díscere a nobis? Paráti sumus mori, magis quam pátrias Dei leges prævaricári. Irátus ítaque rex jussit sartágines et ollas ǽneas succéndi. Quibus statim succénsis, jussit ei qui prior fúerat locútus, amputári linguam et, cute cápitis abstrácta summas quoque manus et pedes ei præscíndi, céteris ejus frátribus et matre inspiciéntibus. Et, cum jam per ómnia inútilis factus esset, jussit ignem admovéri et adhuc spirántem torréri in sartágine; in qua, cum diu cruciarétur, céteri una cum matre invícem se hortabántur mori fórtiter.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Tertia infra Hebdomadam V Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 7, 7-23*
+
+MOrtuo ítaque illo primo hoc modo, sequéntem deducébant ad illudéndum et, cute cápitis ejus cum capíllis abstrácta, interrogábant, si manducáret prius quam toto córpore per membra síngula punirétur. At ille respóndens pátria voce dixit : Non fáciam. Propter quod et iste sequénti loco primi torménta suscépit et in último spíritu constitútus sic ait : Tu quidem, scelestíssime, in præsénti vita nos perdis, sed Rex mundi defúnctos nos pro suis légibus in ætérnæ vitæ resurrectióne suscitábit. Post hunc tértius illúditur; et linguam postulátus cito prótulit et manus constánter exténdit et cum fidúcia ait : E cælo ista possídeo, sed propter Dei leges nunc hæc ipsa despício, quóniam ab ipso me ea receptúrum spero; ita ut rex et qui cum ipso erant miraréntur adolescéntis ánimum, quod tamquam níhilum dúceret cruciátus.
+
+℟. Hic est fratrum amátor et pópuli Israël : \* Hic est, qui multum orat pro pópulo et univérsa sancta civitáte Jerúsalem. ℣. Vir iste in pópulo suo mitíssimus appáruit. — Hic.
+
+##### Lectio ii
+
+ET hoc ita defúncto, quartum vexábant simíliter torquéntes; et, cum jam esset ad mortem, sic ait : Pótius est ab homínibus morti datos spem exspectáre a Deo íterum ab ipso resuscitándos; tibi enim resurréctio ad vitam non erit. Et, cum admovíssent quintum, vexábant eum. At ille respíciens in eum dixit : Potestátem inter hómines habens, cum sis corruptíbilis, facis quod vis; noli autem putáre genus nostrum a Deo esse derelíctum. Tu autem patiénter sústine et vidébis magnam potestátem ipsíus quáliter te et semen tuum torquébit. Post hunc ducébant sextum, et is mori incípiens sic ait : Noli frustra erráre; nos enim propter nosmetípsos hæc pátimur peccántes in Deum nostrum, et digna admiratióne facta sunt in nobis. Tu autem ne exístimes tibi impúne futúrum, quod contra Deum pugnáre tentáveris.
+
+℟. Tu, Dómine universórum, qui nullam habes indigéntiam, voluísti templum tuum fíeri in nobis, \* Consérva domum istam immaculátam in ætérnum, Dómine. ℣. Tu elegísti, Dómine, domum istam ad invocándum nomen tuum in ea, ut esset domus oratiónis et obsecratiónis pópulo tuo. — Consérva.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Consérva.}

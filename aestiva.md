@@ -25710,4 +25710,50 @@ Et ut inhábitem in domo Dómini, \* in longitúdinem diérum.
 
 **Ant.** Pilátus, volens pópulo satisfácere, trádidit illis Jesum flagéllis cæsum.
 
-**Ant.** Videns autem \* quia nihil profíceret, accépta
+**Ant.** Videns autem \* quia nihil profíceret, accépta aqua, lavit manus coram pópulo dicens: Innocens ego sum a sánguine Justi hujus.
+
+###### Psalmus 29
+
+EXaltábo te, Dómine, quóniam suscepísti me: \* nec delectásti inimícos meos super me.
+
+Dómine, Deus meus, clamávi ad te, \* et sanásti me.
+
+Dómine, eduxísti ab inférno ánimam meam: \* salvásti me a descendéntibus in lacum.
+
+Psállite Dómino, sancti ejus: \* et confitémini memóriæ sanctitátis ejus.
+
+Quóniam ira in indignatióne ejus: \* et vita in voluntáte ejus.
+
+Ad vésperum demorábitur fletus: \* et ad matutínum lætítia.
+
+Ego autem dixi in abundántia mea: \* Non movébor in ætérnum.
+
+Dómine, in voluntáte tua, \* præstitísti decóri meo virtútem.
+
+Avertísti fáciem tuam a me, \* et factus sum conturbátus.
+
+Ad te, Dómine, clamábo: \* et ad Deum meum deprecábor.
+
+Quæ utílitas in sánguine meo, \* dum descéndo in corruptiónem?
+
+Numquid confitébitur tibi pulvis, \* aut annuntiábit veritátem tuam?
+
+Audívit Dóminus, et misértus est mei: \* Dóminus factus est adjútor meus.
+
+Convertísti planctum meum in gáudium mihi: \* conscidísti saccum meum, et circumdedísti me lætítia:
+
+Ut cantet tibi glória mea, et non compúngar: \* Dómine, Deus meus, in ætérnum confitébor tibi.
+
+**Ant.** Videns autem, quia nihil profíceret, accépta aqua, lavit manus coram pópulo dicens: Innocens ego sum a sánguine Justi hujus.
+
+**Ant.** Et respóndens \* univérsus pópulus dixit: Sanguis ejus super nos et super fílios nostros.
+
+###### Psalmus 63
+
+EXáudi, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem ne-

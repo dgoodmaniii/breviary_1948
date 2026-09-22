@@ -24161,4 +24161,57 @@ DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fec
 
 ##### In I Vesperis
 
-{RUBRIC: Quando dicendæ sint integræ, Antiphonæ de Laudibus}
+{RUBRIC: Quando dicendæ sint integræ, Antiphonæ de Laudibus 665; Psalmi ut in I Vesperis de Communi App. [3]}
+
+###### Capitulum
+
+*Sap. 3, 1-3*
+
+JUstórum ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+###### Hymnus
+
+SAnctórum méritis ínclyta gáudia
+Pangámus, sócii, géstaque fórtia:
+Gliscens fert ánimus prómere cántibus
+Victórum genus óptimum.
+
+Hi sunt, quos fátue mundus abhórruit;
+Hunc fructu vácuum, flóribus áridum
+Contempsére tui nóminis ásseclæ,
+Jesu, Rex bone Cǽlitum.
+
+Hi pro te fúrias atque minas truces
+Calcárunt hóminum, sævaque vérbera:
+His cessit lácerans fórtiter úngula,
+Nec carpsit penetrália.
+
+Cædúntur gládiis more bidéntium:
+Non murmur résonat, non querimónia;
+Sed corde impávido mens bene cónscia
+Consérvat patiéntiam.
+
+Quæ vox, quæ póterit lingua retéxere
+Quæ tu Martýribus múnera præparas?
+Rubri nam flúido sánguine, fúlgidis
+Cingunt témpora láureis.
+
+Te, summa o Déitas, únaque póscimus:
+Ut culpas ábigas, nóxia súbtrahas,
+Des pacem fámulis; ut tibi glóriam,
+Annórum in sériem, canant.
+Amen.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Ad Magnif. Ant.** Astitérunt \* justi ante Dóminum, et ab ínvicem non sunt separáti: cálicem Dómini bibérunt, et amíci Dei appelláti sunt.
+
+###### Oratio
+
+QUǽsumus, omnípotens Deus: ut nos gemináta lætítia hodiérnæ festivitátis excípiat, quæ de beatórum Joánnis et Pauli glorificatióne procédit; quos éadem fides et pássio vere fecit esse germános. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.

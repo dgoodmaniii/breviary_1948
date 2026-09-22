@@ -27970,4 +27970,28 @@ CUR discípuli púeros abigébant? Dignitátis causa. Quid ergo ille? Ut dóceat
 
 #### Lectio viii
 
-SI regínam ipsi osténdas diadémate ornátam, non præfert eam matri pannis detrítis vestítæ, mallétque illam incúltam vidére, quam regínam miríffice amíctam. Nam, quod suum, quod aliénum est, non ex paupertáte vel divítiis, sed ex amóre existimáre solet; et nihil plus requírit quam necessária, atque ut lacte replétus est, statim a mamma abscédit. Non eísdem, quibus nos,
+SI regínam ipsi osténdas diadémate ornátam, non præfert eam matri pannis detrítis vestítæ, mallétque illam incúltam vidére, quam regínam miríffice amíctam. Nam, quod suum, quod aliénum est, non ex paupertáte vel divítiis, sed ex amóre existimáre solet; et nihil plus requírit quam necessária, atque ut lacte replétus est, statim a mamma abscédit. Non eísdem, quibus nos, ærúmnis prémitur, nec pecuniárum jactúra, rebúsque simílibus; nec iísdem, quibus nos, fluxis rebus lætátur, neque córporum pulchritúdinem mirátur. Ideo dicébat: Tálium est enim regnum cælórum; ut ex propósito voluntátis illa operémur, quæ natúra sua púeri fáciunt.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+QUia enim pharisæi non aliúnde quam a nequítia et arrogántia ad agéndum ferebántur, ídeo ubíque discípulos suos símplices esse jubet, illósque subíndicat, dum hos instítuit. Nihil enim ita supérbiam parit, ut principátus et primi conséssus. Quóniam ígitur discípuli per totum terrárum orbem multum honóris consecutúri erant, ipsórum ánimos prǽvenit, nec sinit eos humánum quid pati, nec honórem a vulgo expétere, vel ante álios sese efférre. Nam, etiámsi hæc parva vidéntur esse, at malis ingéntibus causam præbent. Sic enim institúti pharisæi in malórum culmen ascendérunt, salutatiónes, primos conséssus et médios requiréntes; hinc in ardéntem glóriæ cupiditátem, inde vero in impietátem lapsi sunt.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, misericordiárum pater, per mérita et intercessiónem beáti Hierónymi, quem órphanis adjutórem et patrem esse voluísti: concéde; ut spíritum adoptiónis, quo fílii tui nominámur et sumus, fidéliter custodiámus. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Margaritæ Virg. et Mart.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quæránti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.

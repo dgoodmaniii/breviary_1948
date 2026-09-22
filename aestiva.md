@@ -30147,4 +30147,20 @@ QUóniam multa de perículis, multa de passióne sua, multa de morte et de cæde
 
 #### Lectio viii
 
-ET vide quid agit, cum de regno et de gehénna disserúerit. Nam in eo quod dixit: Qui invénit ánimam suam, perdet eam; et quicúmque perdet eam grátia mei, invéniet ipsam; et in eo quod ait: Reddet unicuíque secúndum ópera sua; et regnum et gehénnam designávit. Cum ígitur de utrísque disserúerit, regnum quidem ut
+ET vide quid agit, cum de regno et de gehénna disserúerit. Nam in eo quod dixit: Qui invénit ánimam suam, perdet eam; et quicúmque perdet eam grátia mei, invéniet ipsam; et in eo quod ait: Reddet unicuíque secúndum ópera sua; et regnum et gehénnam designávit. Cum ígitur de utrísque disserúerit, regnum quidem ut óculis cernátur, concédit, gehénnam autem mínime; quóniam rudióribus atque ineptióribus illud necessárium fuísset, sed, cum illi probi essent ac perspicáces, satis fuit eos a melióribus confirmári. Hoc étiam multo magis ipsum decébat. Non tamen omníno illud prætermísit, sed et aliquándo atrocitátem gehénnæ quasi ante óculos propónit, véluti cum Lázari imáginem descrípsit, et ejus méminit qui denários centum repétiit.
+
+℟. Deus, qui fecit de ténebris lumen splendéscere, illúxit in córdibus nostris \* Ad illuminatiónem sciéntiæ claritátis Dei in fácie Jesu Christi. ℣. Exórtum est in ténebris lumen rectis corde, miséricors, et miserátor, et justus. — Ad. Glória Patri. Ad.
+
+{RUBRIC: Pro Ss. Xysto II Papa, Felicíssimo et Agapito Mm.}
+
+#### Lectio ix
+
+XYstus secúndus, Atheniénsis, ex philósopho Christi discípulus, in persecutióne Valeriáni accusátus quod públice Christum prædicáret, comprehénsus tráhitur in templum Martis, propósita ei capitáli pœna, nisi illi simulácro sacrificáret. Qua impietáte constantíssime recusáta, cum ad martýrium ducerétur, occurrénti sancto Lauréntio et doléntér in hunc modum interrogánti, Quo progréderis sine fílio, pater? quo, sacérdos sancte, sine minístro próperas? respóndit: Non ego te désero, fili, majóra te manent pro Christi fide certámina: post tríduum me sequéris, sacerdótem levíta; intérea, si quid in thesáuris habes, paupéribus distríbue. Eódem ígitur die interféctus est una cum Felicíssimo et Agapíto diáconis, Januário, Magno, Vincéntio et Stéphano subdiáconis; et in cœmetério Callísti sepúltus octávo Idus Augústi, céteri vero in cœmetério Prætextáti. Sedit menses úndecim, dies duódecim. Quo témpore hábuit ordinatiónem mense Decémbri, creátis presbýteris quátuor, diáconis septem, epíscopis duóbus.
+
+Te Deum laudámus.
+
+{RUBRIC: Si autem Lectio ix alicújus Officii commemoráti non sit dicénda, erit sequens}
+
+#### Lectio ix
+
+TU vero Matthǽi philosophíam consídera, qui non celávit nómina eórum qui præpósiti fúerant. Quod et Joánnes sǽpius facit, cum exímias Petri

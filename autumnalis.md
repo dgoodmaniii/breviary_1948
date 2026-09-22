@@ -14784,3 +14784,71 @@ EGressúsque Athach ivit ad Mardochǽum stantem in platéa civitátis ante ósti
 QUod cum audísset Mardochǽus, rursum mandávit Esther dicens : Ne putes quod ánimam tuam tantum líberes, quia in domo regis es, præ cunctis Judǽis; si enim nunc silúeris, per áliam occasiónem liberabúntur Judǽi, et tu et domus patris tui períbitis. Et quis novit utrum idcírco ad regnum véneris, ut in tali témpore pararéris? Rursúmque Esther hæc Mardochǽo verba mandávit : Vade et cóngrega omnes Judǽos, quos in Susan repéreris, et oráte pro me. Non comedátis et non bibátis tribus diébus et tribus nóctibus, et ego cum ancíllis meis simíliter jejunábo; et tunc ingrédiar ad regem contra legem fáciens non vocáta tradénsque me morti et perículo. Ivit ítaque Mardochǽus, et fecit ómnia quæ ei Esther præcéperat.
 
 ℟. Spem in álium numquam hábui, prætérquam in te, Deus Israël : \* Qui irásceris, et propítius eris : et ómnia peccáta hóminum in tribulatióne dimíttis. ℣. Dómine Deus, Creátor cæli et terræ, réspice ad humilitátem nostram. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Quinta infra Hebdomadam V Septembris
+
+{RUBRIC: De libro Esther}
+
+##### Lectio i
+*Cap. 5, 1-5*
+
+DIE autem tértio indúta est Esther regálibus vestiméntis et stetit in átrio domus régiæ, quod erat intérius contra basílicam regis. At ille sedébat super sólium suum in consistório palátii contra óstium domus. Cumque vidísset Esther regínam stantem, plácuit óculis ejus et exténdit contra eam virgam áuream quam tenébat manu. Quæ accédens osculáta est summitátem virgæ ejus, dixítque ad eam rex : Quid vis, Esther regína? quæ est petítio tua? Etiam si dimídiam partem regni petíeris, dábitur tibi. At illa respóndit : Si regi placet, óbsecro ut vénias ad me hódie et Aman tecum ad convívium quod parávi. Statímque rex, Vocáte, inquit, cito Aman ut Esther obédiat voluntáti.
+
+℟. Dómine, mi Rex omnípotens, in dicióne tua cuncta sunt pósita, et non est qui possit resístere voluntáti tuæ : \* Líbera nos propter nomen tuum. ℣. Exáudi oratiónem nostram, et convérte luctum nostrum in gáudium. — Líbera.
+
+##### Lectio ii
+*Cap. 5, 9-14*
+
+EGréssus est ítaque illo die Aman lætus et álacer. Cumque vidísset Mardochǽum sedéntem ante fores palátii, et non solum non assurrexísse sibi, sed nec motum quidem de loco sessiónis suæ, indignátus est valde; et, dissimuláta ira, revérsus in domum suam convocávit ad se amícos suos et Zares uxórem suam et expósuit illis magnitúdinem divitiárum suárum filiorúmque turbam et quanta eum glória super omnes príncipes et servos suos rex elevásset. Et post hæc ait : Regína quoque Esther nullum álium vocávit ad convívium cum rege, præter me, apud quam étiam cras cum rege pransúrus sum; et, cum hæc ómnia hábeam, nihil me habére puto, quámdiu vídero Mardochǽum Judǽum sedéntem ante fores régias.
+
+℟. Confórta me, Rex, Sanctórum principátum tenens : \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+RESponderúntque ei Zares uxor ejus et céteri amíci : Jube parári excélsam trabem habéntem altitúdinis quinquagínta cúbitos, et dic mane regi ut appendátur super eam Mardochǽus; et sic ibis cum rege lætus ad convívium. Plácuit ei consílium et jussit excélsam paráti crucem.
+
+℟. Spem in álium numquam hábui, prætérquam in te, Deus Israël : \* Qui irásceris, et propítius eris : et ómnia peccáta hóminum in tribulatióne dimíttis. ℣. Dómine Deus, Creátor cæli et terræ, réspice ad humilitátem nostram. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Sexta infra Hebdomadam V Septembris
+
+{RUBRIC: De libro Esther}
+
+##### Lectio i
+*Cap. 6, 1-13*
+
+NOctem illam duxit rex insómnem jussítque sibi afférri histórias et annáles priórum témporum. Quæ cum illo præsénte legeréntur, ventum est ad illum locum, ubi scriptum erat quómodo nuntiásset Mardochǽus insídias Bágathan et Thares eunuchórum regem Assuérum juguláre cupiéntium. Quod cum audísset rex ait : Quid pro hac fide honóris ac præmii Mardochǽus consecútus est? Dixérunt ei servi illíus ac minístri : Níhil omníno mercédis accépit. Statímque rex, Quis est, inquit, in átrio? Aman quippe intérius átrium domus régiæ intráverat, ut suggéreret regi et jubéret Mardochǽum affígi patíbulo, quod ei fúerat præparátum. Respondérunt púeri : Aman stat in átrio. Dixítque rex : Ingrediátur.
+
+℟. Meménto mei, Dómine Deus, in bonum : \* Et ne déleas miseratiónes meas quas feci in domo Dei mei et in cæremóniis ejus. ℣. Recordáre mei, Dómine, Deus meus. — Et.
+
+##### Lectio ii
+
+CUmque esset ingréssus ait illi : Quid debet fíeri viro, quem rex honoráre desíderat? Cógitans autem in corde suo Aman et réputans quod nullum álium rex nisi se vellet honoráre, respóndit : Homo quem rex honoráre cupit debet índui véstibus régiis et impóni super equum qui de sella regis est, et accípere régium diadéma super caput suum, et primus de régiis princípibus ac tyránnis téneat equum ejus et per platéam civitátis incédens clamet et dicat : Sic honorábitur quemcúmque volúerit rex honoráre.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus : timor et hebetúdo mentis cécidit super nos et super líberos nostros : ipsi montes nolunt recípere fugam nostram : \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine, miserére.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+DIxítque ei rex : Festína et, sumpta stola et equo, fac, ut locútus es, Mardochǽo Judǽo, qui sedet ante fores palátii. Cave ne quidquam de his quæ locútus es prætermíttas. Tulit ítaque Aman stolam et equum, indutúmque Mardochǽum in platéa civitátis et impósitum equo præcedébat atque clamábat : Hoc honóre condígnus est quemcúmque rex volúerit honoráre. Reversúsque est Mardochǽus ad jánuam palátii, et Aman festinávit ire in domum suam lugens et opérto cápite. Narravítque Zares uxóri suæ et amícis ómnia quæ eveníssent sibi.
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros : \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+---
+
+## Sabbato infra Hebdomadam V Septembris
+
+{RUBRIC: De libro Esther}
+
+##### Lectio i
+*Cap. 7, 1-10*
+
+INtrávit ítaque rex et Aman, ut bíberent cum regína. Dixítque ei rex étiam secúnda die, postquam vino incalúerat : Quæ est petítio tua, Esther, ut detur tibi, et quid vis fíeri? Etiam si dimídiam partem regni petíeris, impetrábis. Ad quem illa respóndit : Si invéni grátiam in óculis tuis, o rex, et si tibi placet, dona mihi ánimam meam, pro qua rogo, et pópulum meum, pro quo óbsecro. Tráditi enim sumus ego et pópulus meus, ut conterámur, jugulémur et pereámus. Atque, útinam in servos et fámulas venderémur : esset tolerábile malum et gemens tacérem; nunc autem hostis noster est cujus crudélitas redúndat in regem.
+
+℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus : \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.

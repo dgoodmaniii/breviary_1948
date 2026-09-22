@@ -20055,3 +20055,29 @@ QUis hóminum póterit scire consílium Dei? aut quis póterit cogitáre quid ve
 HÆC illum, qui primus formátus est a Deo pater orbis terrárum, cum solus esset creátus, custodívit et edúxit illum a delícto suo et dedit illi virtútem continéndi ómnia. Ab hac ut recéssit injústus in ira sua, per iram homicídii fratérni depériit. Propter quem, cum aqua deléret terram, sanávit íterum sapiéntia per contemptíbile lignum justum gubérnans. Hæc, et in consénsu nequítiæ cum se natiónes contulíssent, scivit justum et conservávit sine queréla Deo et in fílii misericórdia fortem custodívit.
 
 ℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Superbórum.}
+
+##### Lectio iii
+
+HÆC justum a pereúntibus ímpiis liberávit fugiéntem, descendénte igne in Pentápolim, quibus in testimónium nequítiæ fumigabúnda constat desérta terra, et incérto témpore fructus habéntes árbores, et incredíbilis ánimæ memória stans figméntum salis. Sapiéntiam enim prætereúntes non tantum in hoc lapsi sunt ut ignorárent bona, sed et insipiéntiæ suæ reliquérunt homínibus memóriam, ut in his, quæ peccavérunt nec latére potuíssent. Sapiéntia autem hos qui se obsérvant a dolóribus liberávit.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro Sapiéntiæ}
+
+##### Lectio i
+
+*Cap. 13, 1-10*
+
+VAni autem sunt omnes hómines, in quibus non subest sciéntia Dei; et de his, quæ vidéntur bona, non potuérunt intellígere eum qui est, neque opéribus attendéntes agnovérunt quis esset ártifex; sed aut ignem aut spíritum aut citátum áërem aut gyrum stellárum aut nímiam aquam aut solem et lunam rectóres orbis terrárum deos putavérunt. Quorum si spécie delectáti, deos putavérunt, sciant quanto his dominátor eórum speciósior est; speciéi enim generátor hæc ómnia constítuit.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio ii
+
+AUT, si virtútem et ópera eórum miráti sunt, intélligant ab illis, quóniam qui hæc fecit, fórtior est illis; a magnitúdine enim speciéi et creatúræ cognoscibíliter póterit Creátor horum vidéri. Sed tamen adhuc in his minor est queréla, et hi enim fortásse errant, Deum quærentes et voléntes inveníre. Etenim, cum in opéribus illíus converséntur,

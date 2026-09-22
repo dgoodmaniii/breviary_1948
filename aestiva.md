@@ -21268,4 +21268,22 @@ TRes autem mórtuos invenímus a Dómino resuscitátos visibíliter, míllia inv
 
 ##### Lectio ix
 
-QUemádmodum qui videt lítteras in códice óptime scripto, et non novit légere, laudat quidem antiquárii manum, admírans ápicum pulchritúdinem; sed quid sibi velint, quid indícent illi ápices, nescit, et est óculis laudátor, mente non cógnitor. Alius autem et laudat artifícium, et capit intelléctum: ille útique, qui non
+QUemádmodum qui videt lítteras in códice óptime scripto, et non novit légere, laudat quidem antiquárii manum, admírans ápicum pulchritúdinem; sed quid sibi velint, quid indícent illi ápices, nescit, et est óculis laudátor, mente non cógnitor. Alius autem et laudat artifícium, et capit intelléctum: ille útique, qui non solum vidére, quod commúne est ómnibus, potest, sed étiam légere; quod qui non dídicit, non potest. Ita qui vidérunt Christi mirácula, et non intellexérunt quid sibi vellent et quid intelligéntibus quodámmodo innúerent, miráti sunt tantum quia facta sunt; álii vero et facta miráti, et intellécta assecúti. Tales nos in schola Christi esse debémus.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Ibat Jesus \* in civitátem, quæ vocátur Naïm: et ecce defúnctus efferebátur fílius únicus matris suæ.
+
+### Oratio
+
+ECclésiam tuam, Dómine, miserátio contináta mundet et múniat: et quia sine te non potest salva consístere; tuo semper múnere gubernétur. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Prophéta magnus \* surréxit in nobis, et quia Deus visitávit plebem suam.

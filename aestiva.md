@@ -30379,3 +30379,41 @@ DEus, qui beáto Cajetáno Confessóri tuo apostólicam vivéndi formam imitári
 ###### Oratio
 
 DEus, tuórum glória sacerdótum: præsta, quæsumus: ut sancti Mártyris tui et Epíscopi Donáti, cujus festa gérimus, sentiámus auxílium. Per Dóminum.
+
+### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Quǽrite primum \* regnum Dei et justítiam ejus, et hæc ómnia adjiciéntur vobis.
+
+{RUBRIC: Et fit Commem. sequéntis.}
+
+---
+
+### Die 8 Augusti
+
+#### Ss. Cyriaci, Largi et Smarágdi
+
+{RUBRIC: Mart. [49]}
+
+{RUBRIC: Semiduplex}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum Cyríaci, Largi et Smarágdi solemnitáte lætíficas: concéde propítius; ut, quorum natalítia cólimus, virtútem quoque passiónis imitémur. Per Dóminum.
+
+##### In II Nocturno
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+{RUBRIC: Lectio iv dicitur ut ix.}
+
+#### Lectio iv
+
+CYríacus diáconus, cum Sisínio, Largo et Smarágdo diútius inclúsus in cárcere, multa édidit mirácula, in quibus Arthémiam Diocletiáni fíliam précibus a dæmóne liberávit; missúsque ad Sáporem Persárum regem, Jobíam étiam ejus fíliam a nefário spíritu erípuit. Rege vero ejus patre cum quadringéntis ac trigínta áliis baptizátis, Romam rédiit; ubi, Maximiáni imperatóris jussu comprehénsus, caténis vinctus ante rhedam suam tráhitur; et post dies quátuor e cárcere edúctus, pice liquáta perfúsus et in catásta exténsus, demum cum Largo et Smarágdo aliísque vigínti secúri percússus est via Salária, ad hortos Sallustiános. Quorum córpora in eádem via décimo séptimo Kaléndas Aprílis sepúlta a Joánne presbýtero, póstea sexto Idus Augústi a Marcéllo Pontífice et Lucína nóbili fémina líneis velis involúta et pretiósis unguéntis cóndita, in ipsíus Lucínæ prǽdium via Ostiénsi, séptimo ab Urbe lápide, transláta sunt.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxé-

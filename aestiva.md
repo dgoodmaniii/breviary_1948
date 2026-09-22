@@ -28465,4 +28465,28 @@ NON turbétur quisquam, si ádeo imperféctos dícimus Apóstolos fuísse; nondu
 
 #### Lectio viii
 
-ILli vero, cum erubéscerent et verecúndia prohiberéntur, quóniam humáno afféctu eo devénerant, seórsum ab áliis discípulis Christum accipiéntes, interrogavérunt. Progréssi sunt enim, inquit, ne illis manifésti fíerent; et ita demum ea, quæ volébant, dixérunt. Volébant autem, ut ego conjício, quóniam super duódecim sedes sessúros discípulos audiérunt, primátum hujus conséssus impetráre: et præpóni quidem se céteris sciébant; Petrum vero sibi præférri formidántes, dícere ausi sunt: Dic ut unus a dextris, alter a sinístris sédeat. Et urgent dicéntes: Dic. Quid ígitur ipse? Ut significáret eos nihil pétere spiritále, sed
+ILli vero, cum erubéscerent et verecúndia prohiberéntur, quóniam humáno afféctu eo devénerant, seórsum ab áliis discípulis Christum accipiéntes, interrogavérunt. Progréssi sunt enim, inquit, ne illis manifésti fíerent; et ita demum ea, quæ volébant, dixérunt. Volébant autem, ut ego conjício, quóniam super duódecim sedes sessúros discípulos audiérunt, primátum hujus conséssus impetráre: et præpóni quidem se céteris sciébant; Petrum vero sibi præférri formidántes, dícere ausi sunt: Dic ut unus a dextris, alter a sinístris sédeat. Et urgent dicéntes: Dic. Quid ígitur ipse? Ut significáret eos nihil pétere spiritále, sed nec scire quidem quid póstulent, non enim pétere audérent, si scirent, Nescítis, ait, quid petátis: nescítis quam magnum hoc sit, quam mirábile ac ipsas superióres excédens virtútes.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+#### Lectio ix
+
+ET adjécit: Potéstis bíbere cálicem, quem ego bibitúrus sum; et baptísmo, quo ego baptízor, baptizári? Perpéndis quómodo statim ab hac opinióne ipsos remóvit, contrária eis disserens. Nam vos, inquit, de honóribus et de corónis mecum ágitis; ego vero de luctámine atque sudóre díssero. Non præmiórum hoc tempus est, nec illa glória mea modo apparébit; sed cǽdis ac periculórum tempus prǽsens est. Pérspice autem quáliter ipso interrogatiónis modo et hortátur et állicit. Non enim dixit: Potestísne cædem subíre, potestísne vestrum effúndere sánguinem? sed, Quónam pacto potéstis bíbere cálicem? Deínde allíciens, inquit, Quem ego bibitúrus sum; ut ipsa cum eo communicatióne labórum promptióres redderéntur.
+
+Te Deum laudámus.
+
+###### Oratio
+
+ESto, Dómine, plebi tuæ sanctificátor et custos: ut, Apóstoli tui Jacóbi muníta præsídiis, et conversatióne tibi pláceat, et secúra mente desérviat. Per Dóminum.
+
+{RUBRIC: Ad Laudes tantum fit Commemoratio S. Christophori Martyris:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+PRǽsta, quæsumus, omnípotens Deus: ut, qui beáti Christóphori Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+{RUBRIC: In Vesperis Commemoratio sequentis, ut infra.}

@@ -28679,4 +28679,18 @@ PRæsta, quæsumus, Dómine, ut, sicut pópulus christiánus Mártyrum tuórum F
 
 #### Lectio iv
 
-MArtha, nobílibus et copiósis paréntibus nata, sed Christi Dómini hospítio clárior,
+MArtha, nobílibus et copiósis paréntibus nata, sed Christi Dómini hospítio clárior, post ejus ascénsum in cælum, cum fratre, soróre, et Marcélla pedísequa, ac Maximíno, uno ex septuagínta duóbus discípulis Christi Dómini, qui totam illam domum baptizáverat, multísque áliis Christiánis, comprehénsa a Judǽis, in navem sine velo ac remígio impónitur, vastíssimóque mari ad certum naufrágium commíttitur. Sed navis, Deo gubernánte, salvis ómnibus, Massíliam appúlsa est.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+EO miráculo et horum prædicatióne primum Massiliénses, mox Aquénses ac finítimæ gentes in Christum credidérunt; Lazarúsque Massiliénsium et Maximínus Aquénsium epíscopus creátur. Magdaléna vero, assuéta oratióni et pédibus Dómini, ut óptima parte contemplándæ cæléstis beatitúdinis, quam elégerat, fruerétur, in vastam altíssimi montis spelúncam se cóntulit; ubi trigínta annos vixit, ab omni hóminum consuetúdine disjúncta, quotidiéque per id tempus ad audiéndas Cæléstium laudes in altum ab Angelis eláta.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+MArtha autem, mirábili vitæ sanctitáte et caritáte, ómnium Massiliénsium ánimis in sui amórem et admiratiónem addúctis, in locum a viris remótum cum áliquot honestíssimis féminis se recépit; ubi summa cum laude pietátis et prudéntiæ diu vixit, ac demum, morte sua multo ante prædícta, miráculis clara migrávit ad Dóminum, quarto Kaléndas Augústi. Cujus corpus apud Taráscum magnam habet venerationem.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.

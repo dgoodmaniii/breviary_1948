@@ -26804,3 +26804,27 @@ Mox feras turmas numerósa Petro
 Agmina ducunt.
 
 Débitam cincti méritis corónam,
+Pérgite o flecti lácrimis precántum;
+Prisca vos Slavis opus est datóres
+Dona tuéri.
+
+Quæque vos clamat generósa tellus
+Servet ætérnæ fídei nitórem:
+Quæ dedit princeps, dabit ipsa semper
+Roma salútem.
+
+Gentis humánæ Sator et Redémptor,
+Qui bonus nobis bona cuncta præbes,
+Sint tibi grates, tibi sit per omne
+Glória sæclum.
+Amen.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Laudémus viros, 2 loco. [83]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+Lítteræ Encýclicæ Leónis Papæ XIII
+
+CYríllus et Methódius fratres gérmani, Thessalonícæ amplíssimo loco nati, Constantinópolim matúre cessérunt, ut in ipsa urbe Oriéntis príncipe humanitátis artes addíscerent. Utérque plúrimum brevi profecérunt; sed máxime Cyríllus, qui tantam sciéntiarum laudem adéptus est, ut singuláris honóris causa Philósophus appellarétur. Deínde mónachum ágere Methódius cœpit; Cyríllus autem dignus est habítus, cui Theodóra imperátrix, auctóre Ignátio patriárcha, negótium daret erudiéndi ad fidem christiánam Cházaros, trans Chersonésum incoléntes, quos, præcéptis suis edóctos et Dei númine instínctos, multíplici superstitióne deléta, ad Jesum Christum adjúnxit. Recénti Christianórum communitáte óptime constitúta, Constantinópolim rédiit álacer, atque in monastérium Polychrónis, quo se jam Methódius recéperat, Cyríllus ipse secéssit. Intérim cum res trans Chersonésum próspere gestas ad Rastiláum Móraviæ príncipem fama detulísset, is de áliquot operáriis evangélicis Constantinópoli arcesséndis cum imperatóre Michaéle tértio egit. Igitur Cyríllus et Methódius illi expeditióni destináti, et in Móraviam célebri lætítia excépti, ánimos christiánis institutiónibus tanta vi tamque operósa indústria excoléndos aggrediúntur, ut non longo intervállo ea gens nomen Jesu Christo libentíssime déderit. Ad eam rem non parum sciéntia váluit dictiónis Slavónicæ, quam Cyríllus ante

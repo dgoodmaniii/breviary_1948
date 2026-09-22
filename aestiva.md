@@ -19915,3 +19915,25 @@ DIlígite justítiam, qui judicátis terram, sentíte de Dómino in bonitáte et
 SPíritus enim sanctus disciplínæ effúgiet fictum et áuferet se a cogitatiónibus quæ sunt sine intelléctu et corripiétur a superveniénte iniquitáte. Benígnus est enim spíritus sapiéntiæ et non liberábit malédicum a lábiis suis; quóniam renum illíus testis est Deus et cordis illíus scrutátor est verus et linguæ ejus audítor: quóniam spíritus Dómini replévit orbem terrárum, et hoc quod cóntinet ómnia sciéntiam habet vocis. Propter hoc qui lóquitur iníqua non potest latére, nec prætériet illum corrípiens judícium.
 
 ℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+##### Lectio iii
+
+IN cogitatiónibus enim ímpii interrogátio erit, sermónum autem illíus audítio ad Deum véniet ad correptiónem iniquitátum illíus; quóniam auris zeli audit ómnia, et tumúltus murmuratiónum non abscondétur. Custodíte ergo vos a murmuratióne, quæ nihil prodest, et a detractióne párcite linguæ, quóniam sermo obscúrus in vácuum non ibit, os autem quod mentítur occídit ánimam.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut. Glória Patri. Ut.
+
+#### In II Nocturno
+
+Ex libro Officiórum sancti Ambrósii Epíscopi
+
+*Liber 1, cap. 28 et 29*
+
+##### Lectio iv
+
+MAgnus justítiæ splendor, quæ áliis pótius nata quam sibi, communitátem et societátem nostram ádjuvat, excelsitátem tenet, ut suo judício ómnia subjécta hábeat, opem áliis ferat, pecúniam cónferat, offícia non ábnuat, perícula suscípiat aliéna. Quis non cúperet hanc virtútis arcem tenére, nisi prima avarítia infirmáret atque inflécteret tantæ virtútis vigórem? Etenim dum augére opes, aggregáre pecúnias, occupáre terras possessiónibus cúpimus, præstáre divítiis; justítiæ formam exúimus, beneficéntiam commúnem amíttimus.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio v
+
+QUanta autem justítia sit, ex hoc intélligi potest, quod nec locis, nec persónis, nec témporibus excípitur, quæ étiam hóstibus reservátur: ut, si constitútus sit cum hoste aut locus aut dies prǽlio, advérsus justítiam putétur aut loco præveníre aut témpore. Interest enim, utrum áliquis pugna áliqua et conflíctu gravi capiátur, an superióre grátia, vel áliquo evéntu. Si ergo in bello justítia valet, quanto magis in pace servánda est?

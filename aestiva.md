@@ -29360,4 +29360,16 @@ IN illo témpore: Dicébat Jesus scribis et pharisǽis: Ecce ego mitto ad vos pr
 
 {RUBRIC: Liber 4 Comment. in cap. 23 Matthæi}
 
-HOC quod ántea díximus, Impléte mensúram patrum vestrórum; ad persónam Dómini pertinére, eo quod
+HOC quod ántea díximus, Impléte mensúram patrum vestrórum; ad persónam Dómini pertinére, eo quod occidéndus esset ab eis, potest et ad discípulos ejus reférri, de quibus nunc dicit: Ecce ego mitto ad vos prophétas, et sapiéntes, et scribas. Simúlque obsérva, juxta Apóstolum scribéntem ad Corínthios, vária esse dona discipulórum Christi; álios prophétas, qui ventúra prædícent; álios sapiéntes, qui novérunt quando débeant proférre sermónem; álios scribas in lege doctíssimos, ex quibus lapidátus est Stéphanus, Paulus occísus, crucifíxus Petrus, flagelláti in Áctibus Apostolórum discípuli.
+
+℟. Stéphanus servus Dei, quem lapidábant Judǽi, vidit cælos apértos: vidit, et introívit: \* Beátus homo, cui cæli patébant. ℣. Cum ígitur saxórum crepitántium túrbine quaterétur, inter æthéreos aulæ cæléstis sinus divína ei cláritas fulsit. — Beátus.
+
+#### Lectio viii
+
+QUǽrimus, quis iste sit Zacharías fílius Barachíæ: quia multos légimus Zacharías. Et ne líbera nobis tribuerétur erróris facúltas, additum est: Quem occidístis inter templum et altáre. In divérsis divérsa legi: et débeo singulórum opiniónes pónere. Alii Zacharíam fílium Barachíæ dicunt, qui in duódecim Prophétis undécimus est, patrísque in eo nomen conséntit: sed ubi occísus sit inter templum et altáre, Scríptúra non lóquitur; máxime cum tempóribus ejus vix ruínæ templi fúerint. Alii Zacharíam patrem Joánnis intélligi volunt, ex quibúsdam apocryphórum sómniis approbántes, quod proptérea occísus sit, quia Salvatóris prædicáverit advéntum.
+
+℟. Patefáctæ sunt jánuæ cæli Christi Mártyri beáto Stéphano, qui in número Mártyrum invéntus est primus: \* Et ídeo triúmphat in cælis coronátus. ℣. Mortem enim, quam Salvátor noster dignátus est pro nobis pati, hanc ille primus réddidit Salvatóri. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+ALii istum volunt esse Zacharíam, qui occísus est a Joas rege Judæ inter templum et altáre, sicut Regum narrat história. Sed observándum, quod ille Zacharías non sit fílius Barachíæ, sed fílius Jójadæ sacerdótis: unde et Scríptúra refert: Non fuit recordátus Joas patris ejus Jójadæ, quia sibi fecísset bona. Cum ergo et Zacha-

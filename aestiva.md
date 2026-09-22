@@ -30976,4 +30976,42 @@ Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraud
 
 Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
 
-Vitam pétiit a te: \* et tribuísti ei longitúdinem
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sǽculum, et in sǽculum sǽculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sǽculum sǽculi: \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino: \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis: \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui: \* Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes: \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala: \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum: \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua: \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Interrogátus te Dóminum conféssus sum, assátus grátias ago.
+
+℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+#### Lectio vii
+
+*Cap. 12, 24-26*
+
+IN illo témpore: Dixit Jesus discípulis suis: Amen, amen dico vobis, nisi granum fruménti cadens in terram, mórtuum fúerit, ipsum solum manet. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Tract. 51 in Joánnem, sub médium}
+
+IPse Dóminus Jesus erat granum mortificándum et multiplicándum; mortificándum infidelitáte Judæórum, multiplicándum fide populórum. Jam vero exhórtans ad passiónis suæ sectánda vestígia, Qui amat, inquit, ánimam suam, perdet eam. Quod duóbus modis intélligi potest. Qui amat, perdet; id est, si amas, perdes. Si cupis vitam tenére in Christo, noli mortem timére pro Christo. Item álio modo: Qui amat ánimam suam, perdet eam; noli amáre, ne perdas; noli amáre in hac vita, ne perdas in ætérna vita.
+
+℟. In craticula te Deum non negávi, \* Et ad ignem applicátus te Dóminum Jesum Christum conféssus sum. ℣. Probásti, Dómine, cor meum, et visitásti

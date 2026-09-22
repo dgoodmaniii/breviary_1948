@@ -29060,3 +29060,48 @@ Te Deum laudámus.
 ##### Ad Laudes et per Horas, Antiphonae
 
 **Ant. 1** Heródes rex \* appósuit ut apprehénderet et Petrum; quem, cum apprehendísset, misit in cárcerem, volens post Pascha prodúcere eum pópulo.
+
+**2** Petrus quidem \* servabátur in cárcere; orátio autem fiébat sine intermissióne ab Ecclésia ad Deum pro eo.
+
+**3** Dixit Angelus \* ad Petrum: Circúmda tibi vestiméntum tuum, et séquere me.
+
+**4** Misit Dóminus \* Angelum suum, et liberávit me de manu Heródis, allelúja.
+
+**5** Tu es Petrus, \* et super hanc petram ædificábo Ecclésiam meam.
+
+#### Capitulum
+
+*Act. 12, 1-3*
+
+MIsit Heródes rex manus ut afflígeret quosdam de Ecclésia. Occídit autem Jacóbum, fratrem Joánnis, gládio. Videns autem, quia placéret Judǽis, appósuit ut apprehénderet et Petrum.
+
+#### Hymnus
+
+BEáte Pastor, Petre, clemens áccipe
+Voces precántum, criminúmque víncula
+Verbo resólve, cui potéstas trádita
+Aperíre terris cælum, apértum claúdere.
+
+Sit Trinitáti sempitérna glória,
+Honor, potéstas atque jubilátio,
+In unitáte, quæ gubérnat ómnia,
+Per univérsa æternitátis sæcula.
+Amen.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+**Ad Bened. Ant.** Quodcúmque \* ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis: dicit Dóminus Simóni Petro.
+
+#### Oratio
+
+DEus, qui beátum Petrum Apóstolum, a vínculis absolútum, illǽsum abíre fecísti: nostrórum, quæsumus, absólve víncula peccatórum; et ómnia mala a nobis propitiátus exclúde. Per Dóminum.
+
+{RUBRIC: Et fit Com. S. Pauli Ap.:}
+
+**Ant.** Sancte Paule Apóstole, prædicátor veritátis et Doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+#### Oratio
+
+DEus, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quæsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.

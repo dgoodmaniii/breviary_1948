@@ -13725,3 +13725,84 @@ VIR erat in terra Hus, nómine Job. Idcírco sanctus vir ubi habitáverit dícit
 ℟. viii Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
 
 {RUBRIC: Ad Laudes, in hac et sequéntibus Domínicis usque ad diem 27 Septémbris inclusíve occurréntibus, dícitur Hymnus} Ecce jam noctis, {RUBRIC: ut in Psaltério. 40}
+
+---
+
+## Feria Secunda infra Hebdomadam I Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 1, 13-22*
+
+CUM autem quadam die fílii et fíliæ ejus coméderent et bíberent vinum in domo fratris sui primogéniti, núntius venit ad Job, qui díceret: Boves arábant et ásinæ pascebántur juxta eos, et irruérunt Sabæi tulerúntque ómnia et púeros percussérunt gládio, et evási ego solus ut nuntiárem tibi. Cumque adhuc ille loquerétur, venit alter et dixit: Ignis Dei cécidit e cælo et tactas oves puerósque consúmpsit, et effúgi ego solus ut nuntiárem tibi.
+
+℟. Versa est in luctum cíthara mea, et órganum meum in vocem fléntium: \* Parce mihi, Dómine, nihil enim sunt dies mei. ℣. Cutis mea denigráta est super me, et ossa mea aruérunt. — Parce.
+
+##### Lectio ii
+
+SED, et illo adhuc loquénte, venit álius et dixit: Chaldǽi fecérunt tres turmas et invasérunt camélos et tulérunt eos, necnon et púeros percussérunt gládio, et ego fugi solus ut nuntiárem tibi. Adhuc loquebátur ille, et ecce álius intrávit et dixit: Fíliis tuis et filiábus vescéntibus et bibéntibus vinum in domo fratris sui primogéniti, repénte ventus veheméns írruit a regióne desérti et concússit quátuor ángulos domus, quæ córruens oppréssit líberos tuos, et mórtui sunt, et effúgi ego solus ut nuntiárem tibi.
+
+℟. Utinam appenderéntur peccáta mea, quibus iram mérui, \* Et calamítas, quam pátior, in statéra. ℣. Quasi aréna maris hæc grávior apparéret, unde et verba mea dolóre sunt plena. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+TUNC surréxit Job et scidit vestiménta sua et, tonso cápite, córruens in terram adorávit et dixit: Nudus egréssus sum de útero matris meæ et nudus revértar illuc. Dóminus dedit, Dóminus ábstulit; sicut Dómino plácuit, ita factum est: sit nomen Dómini benedíctum. In ómnibus his non peccávit Job lábiis suis neque stultum quid contra Deum locútus est.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+---
+
+## Feria Tertia infra Hebdomadam I Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 2, 1-13*
+
+FACTUM est autem, cum quadam die veníssent fílii Dei et starent coram Dómino, venísset quoque Satan inter eos et staret in conspéctu ejus, ut díceret Dóminus ad Satan: Unde venis? Qui respóndens ait: Circuívi terram et perambulávi eam. Et dixit Dóminus ad Satan: Numquid considerásti servum meum Job, quod non sit ei símilis in terra, vir símplex et rectus ac timens Deum et recédens a malo et adhuc rétinens innocéntiam? Tu autem commovísti me advérsus eum, ut afflígerem eum frustra. Cui respóndens Satan ait: Pellem pro pelle, et cuncta, quæ habet homo, dabit pro ánima sua. Alióqui mitte manum tuam et tange os ejus et carnem; et tunc vidébis quod in fáciem benedícat tibi.
+
+℟. Indúta est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est: \* Meménto mei, Dómine, quóniam ventus est vita mea. ℣. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. — Meménto.
+
+##### Lectio ii
+
+DIXIT ergo Dóminus ad Satan: Ecce in manu tua est, verúmtamen ánimam illíus serva. Egréssus ígitur Satan a fácie Dómini percússit Job úlcere péssimo a planta pedis usque ad vérticem ejus; qui testa sániem radébat sedens in sterquilínio. Dixit autem illi uxor sua: Adhuc tu pérmanes in simplicitáte tua? Bénedic Deo et mórere. Qui ait ad illam: Quasi una de stultis muliéribus locúta es: si bona suscépimus de manu Dei, mala quare non suscipiámus? In ómnibus his non peccávit Job lábiis suis.
+
+℟. Páucitas diérum meórum finiétur brevi; dimítte me, Dómine, ut plangam páululum dolórem meum, \* Antequam vadam ad terram tenebrósam et opértam mortis calígine. ℣. Manus tuæ, Dómine, fecérunt me, et plasmavérunt me totum in circúitu; et sic repénte præcípitas me? — Antequam.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Antequam.}
+
+##### Lectio iii
+
+IGITUR audiéntes tres amíci Job omne malum quod accidísset ei, venérunt sínguli de loco suo, Elíphaz Themanítes et Báldad Suhítes et Sophar Naamathítes. Condíxerant enim ut páriter veniéntes visitárent eum et consolaréntur. Cumque elevássent procul óculos suos, non cognovérunt eum et exclamántes ploravérunt, scissísque véstibus, spargérunt púlverem super caput suum in cælum. Et sedérunt cum eo in terra septem diébus et septem nóctibus, et nemo loquebátur ei verbum; vidébant enim dolórem esse veheméntem.
+
+℟. Non abscóndas me, Dómine, a fácie tua: manum tuam longe fac a me, \* Et formído tua non me térreat. ℣. Córripe me, Dómine, in misericórdia, non in furóre tuo, ne forte ad níhilum rédigas me. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta infra Hebdomadam I Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 3, 1-16*
+
+POST hæc apéruit Job os suum et maledíxit diéi suo et locútus est: Péreat dies in qua natus sum, et nox in qua dictum est: Concéptus est homo. Dies ille vertátur in ténebras: non requírat eum Deus désuper, et non illustrétur lúmine; obscúrent eum ténebræ et umbra mortis; óccupet eum calígo, et involvátur amaritúdine.
+
+℟. Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et.
+
+##### Lectio ii
+
+NOCTEM illam tenebrósus turbo possídeat; non computétur in diébus anni, nec numerétur in ménsibus. Sit nox illa solitária nec laude digna; maledícant ei qui maledícunt diéi, qui paráti sunt suscitáre leviáthan. Obtenebréntur stellæ calígine ejus, exspéctet lucem et non vídeat, nec ortum surgéntis auróræ; quia non conclúsit óstia ventris, qui portávit me, nec ábstulit mala ab óculis meis.
+
+℟. Utinam appenderéntur peccáta mea, quibus iram mérui, \* Et calamítas, quam pátior, in statéra. ℣. Quasi aréna maris hæc grávior apparéret, unde et verba mea dolóre sunt plena. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+QUARE non in vulva mórtuus sum? egréssus ex útero non statim périi? quare excéptus génibus? cur lactátus ubéribus? Nunc enim dórmiens silérem et somno meo requiéscerem cum régibus et consúlibus terræ, qui ædíficant sibi solitúdines, aut cum princípibus, qui póssident aurum et replent domos suas argénto; aut sicut abortívum abscónditum non subsísterem, vel qui concépti non vidérunt lucem.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.

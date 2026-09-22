@@ -28288,3 +28288,37 @@ APollináris cum Príncipe Apostolórum Antiochía Romam venit; a quo, ordinátu
 IS vero latens aliquámdiu cum quibúsdam Christiánis, inde proféctus est in Æmíliam, ubi Rufíni patrícii fíliam mórtuam ad vitam revocávit; ut proptérea tota Rufíni família in Jesum Christum créderet. Quare veheménter incénsus præféctus accérsit Apollinárem, et cum eo grávius agit, ut finem fáciat dissemínándi in urbe Christi fidem. Cujus cum Apollináris jussa negligéret, equúleo cruciátur; in cujus plagas aqua fervens infúnditur, saxóque os túnditur: mox férreis vínculis constríctus inclúditur in cárcere. Quarto die impósitus in navem, míttitur in exsílium; ac facto naufrágio venit in Mýsiam, inde ad ripam Danúbii, póstea in Thráciam.
 
 ℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+#### Lectio vi
+
+CUM autem in Serápidis templo dæmon se respónsa datúrum negáret, dum ibídem Petri Apóstoli discípulus morarétur; diu conquisítus, invéntus est Apollináris: qui íterum jubétur navigáre. Ita revérsus Ravénnam, ab iísdem illis idolórum sacerdótibus accusátus, centurióni custodiéndus tráditur; qui, cum occúlte Christum cóleret, noctu Apollinárem dimísit. Re cógnita, satéllites persequúntur, et plagis in itínere conféctum, quod mórtuum créderent, relínquunt. Quem cum inde Christiáni sustulíssent, séptimo die exhórtans illos ad fídei constántiam, martýrii glória clarus migrávit e vita. Cujus corpus prope murum urbis sepúltum est.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+APollináris cum Príncipe Apostolórum Antiochía Romam venit; a quo, ordinátus epíscopus, Ravénnam ad Christi Dómini Evangélium prædicándum míttitur; ubi, cum ad Christi fidem plúrimos convérteret, captus ab idolórum sacerdótibus, gráviter cæsus est. Cumque ipso oránte Bonifátius nóbilis vir, qui diu mutus fúerat, loquerétur, ejúsque fília immúndo spíritu liberáta esset, íterum est in illum commóta sedítio. Quare divérsas et multíplices pœnas perpéssus est. Póstea per Æmíliam Evangélium prǽdicans, plúrimos ab idolórum cultu revocávit. Ravénnam revérsus, exhórtans Christiános ad fídei constántiam, gloriósum martýrium consummávit. Ejus corpus prope murum urbis sepúltum est.
+
+Te Deum.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 22, 24-30*
+
+IN illo témpore: Facta est conténtio inter discípulos, quis eórum viderétur esse major. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+*Lib. 10 in Lucæ cap. 22 post initium*
+
+REgnum Dei non est de hoc mundo. Non ergo æqualitátis hómini ad Deum, sed si-

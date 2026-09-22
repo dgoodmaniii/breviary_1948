@@ -22111,3 +22111,33 @@ Te Deum laudámus.
 **Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
 
 {RUBRIC: Vésperæ de sequénti, Commemoratio S. Petronillæ Virg.}
+
+### Die 31 Maji
+
+#### S. Angelæ Mericiæ
+
+{RUBRIC: Virginis [111] Duplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+###### Oratio
+
+DEus, qui novum per beátam Angelam sacrárum Vírginum collégium in Ecclésia tua floréscere voluísti: da nobis, ejus intercessióne, angélicis móribus vívere; ut, terrénis ómnibus abdicátis, gáudiis pérfrui mereámur ætérnis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio S. Petronillæ Virg. :}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+###### Oratio
+
+EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Petroníllæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+ANgela Merícia, Decentiáni, Veronénsis diœcésis óppido ad lacum Benácum in dicióne Véneta, piis orta paréntibus, a prima ætáte virginitátis lílium, quod perpétuo serváre statúerat, sédula sepsit. Ab omni muliébri ornátu abhórrens, egrégiam vultus formam pulchrámque cæsáriem studióse fœdávit, ut cælésti dumtáxat animárum Sponso placéret. In ipso autem adolescéntiæ flore paréntibus orbáta, austerióris vitæ desidério in desértum locum aufúgere tentávit; sed, ab avúnculo prohíbita, novit præstáre domi, quod in solitúdine non lícuit. Cilício ac flagéllis frequénter usa, carnem nónnisi infírma valetúdine, vinum in Nativitátis et Resurrectiónis Domínicæ tantum celebritáte; complúres vero dies nihil omníno degustávit. Oratióni dédita, brevíssimum humi carpébat somnum. Dæmónem vero sub lucéntis ángeli forma sibi illúdere conántem agnóvit prótinus, et conjécit in fugam. Tandem patérnis bonis abdicátis, et hábitum ac régulam tértii órdinis sancti Fran-

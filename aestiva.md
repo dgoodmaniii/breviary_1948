@@ -25094,4 +25094,46 @@ Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et ge
 
 Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
 
-Sic psalmum dicam nómini tuo in sǽculum sǽ-
+Sic psalmum dicam nómini tuo in sǽculum sǽculi: \* ut reddam vota mea de die in diem.
+
+**Ant.** Magnus sanctus Paulus, vas electiónis, vere digne est glorificándus, qui et méruit thronum duodécimum possidére.
+
+**Ant.** Bonum certámen \* certávi, cursum consummávi, fidem servávi.
+
+###### Psalmus 63
+
+EXáudi, Deus, oratiónem meam cum déprecor: \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium: \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas: \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt: \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos: \* dixérunt: Quis vidébit eos?
+
+Scrutáti sunt iniquitátes: \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum: \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum: \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos: \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Bonum certámen certávi, cursum consummávi, fidem servávi.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+{RUBRIC: ¶ Pro hoc Festo simplificato Lectio iv dicitur ut ix.}
+
+Ex libro sancti Augustíni Epíscopi de grátia et líbero arbítrio
+
+#### Lectio iv
+
+*Cap. 6-7*
+
+APóstolus Paulus, quem certe invénimus sine ullis méritis bonis, immo cum multis méritis malis, Dei grátiam consecútum, reddéntis bona pro malis, videámus quid dicat, sua jam propinquánte passióne, scribens ad Timótheum: Ego enim jam ímmolor, inquit, et tempus resolutiónis meæ instat. Bonum certámen certávi, cursum consummávi, fidem servávi. Ista útique jam mérita sua bona commémorat; ut post bo-

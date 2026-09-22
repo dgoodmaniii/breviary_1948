@@ -20180,4 +20180,28 @@ AT contra, electórum mentes, dum transitória cuncta nulla esse conspíciunt, a
 
 ##### Lectio vi
 
-INtuéndum quoque est, quod nullus dolor mentis sit in actióne præcipitatiónis. Qui enim sine consíliis vivunt, qui seípsos rerum evéntibus præcípites déserunt, nullo ínterim cogitatiónum dolóre fatigántur. Nam qui sollérter in vitæ consílio
+INtuéndum quoque est, quod nullus dolor mentis sit in actióne præcipitatiónis. Qui enim sine consíliis vivunt, qui seípsos rerum evéntibus præcípites déserunt, nullo ínterim cogitatiónum dolóre fatigántur. Nam qui sollérter in vitæ consílio figit mentem, caute sese in omni actióne circumspiciéndo consíderat; et ne ex re, quæ ágitur, repentínus finis adversúsque surrípiat, hunc prius mólliter pósito pede cogitatiónis palpat: pensat, ne ab his quæ agénda sunt, præpédiat formído; ne in his quæ differénda sunt, præcipitátio impéllat; ne prava per concupiscéntiam apérto bello súperent; ne recta per inánem glóriam insidiándo supplántent.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+{RUBRIC: ℟. vii Dómine et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 1, 22-40*
+
+COróna sapiéntiæ timor Dómini, replens pacem et salútis fructum; et vidit et dinumerávit eam: útraque autem sunt dona Dei. Sciéntiam et intelléctum prudéntiæ sapiéntia compartiétur et glóriam tenéntium se exáltat. Radix sapiéntiæ est timére Dóminum, et rami illíus longǽvi. In thesáuris sapiéntiæ intelléctus et sciéntiæ religiósitas, exsecrátio autem peccatóribus sapiéntia.
+
+℟. Ne derelínquas me, Dómine, pater et dominátor vitæ meæ, ut non córruam in conspéctu adversariórum meórum: \* Ne gáudeat de me inimícus meus. ℣. Apprehénde arma et scutum et exsúrge in adjutórium mihi. — Ne gáudeat.
+
+##### Lectio ii
+
+TImor Dómini expéllit peccátum; nam qui sine timóre est non póterit justificári; iracúndia enim animositátis illíus subvérsio illíus est. Usque in tempus sustinébit pátiens, et póstea reddítio jucunditátis. Bonus sensus usque in tempus abscóndet verba illíus, et lábia multórum enarrábunt sensum illíus. In thesáuris sapiéntiæ significátio disciplínæ, exsecrátio autem peccatóri cultúra Dei. Fili, concupíscens sapiéntiam consérva justítiam, et Deus præbébit illam tibi.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum

@@ -22712,4 +22712,16 @@ SAnctórum Mártyrum tuórum Basílidis, Cyríni, Náboris atque Nazárii, quǽs
 
 #### Lectio iv
 
-JOánnem, Sahagúni in Hispánia, nóbili génere natum, paréntes cum diu prole caruíssent, piis opéribus et oratiónibus a Deo impetrárunt. Ab ineúnte ætáte egrégium futúræ sanctitátis spécimen dedit; nam e loco superióri ad céteros púeros crebro verba faciébat, quibus eos ad virtútem et Dei cultum hortabátur, eorúmque dissídia componébat. In pátria mónachis sancti Facúndi, órdinis sancti Benedícti, primis litterárum rudiméntis imbuéndus tráditur. Dum iis óperam daret, curávit pater ut párochus ecclésiam administráret; quod munus júvenis nullis ratiónibus addúci pótuit
+JOánnem, Sahagúni in Hispánia, nóbili génere natum, paréntes cum diu prole caruíssent, piis opéribus et oratiónibus a Deo impetrárunt. Ab ineúnte ætáte egrégium futúræ sanctitátis spécimen dedit; nam e loco superióri ad céteros púeros crebro verba faciébat, quibus eos ad virtútem et Dei cultum hortabátur, eorúmque dissídia componébat. In pátria mónachis sancti Facúndi, órdinis sancti Benedícti, primis litterárum rudiméntis imbuéndus tráditur. Dum iis óperam daret, curávit pater ut párochus ecclésiam administráret; quod munus júvenis nullis ratiónibus addúci pótuit ut retinéret. Inter familiáres epíscopi Burgénsis adscríptus, ob spectátam ipsíus probitátem íntimus ei fuit, ab eóque présbyter et canónicus factus, multis benefíciis auctus est. Sed relícta aula epíscopi, ut Deo quiétius servíret, ómnibus ecclésiæ provéntibus abdicátis, se cuidam sacéllo addíxit, ubi Sacrum quotídie faciébat, ac de rebus divínis magna cum auditórum ædificatióne frequénter concionabátur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+POstea studiórum causa Salmánticam proféctus, in célebre collégium divi Bartholomǽi cooptátus, sacerdótis munus ita exércuit, ut simul optátis stúdiis incúmberet, et in sacris étiam conciónibus assídue versarétur. Cum vero in gravíssimum morbum incidísset, arctióris disciplínæ voto se obstrínxit, quod ut rédderet, cum prius cuidam páuperi pene nudo ex duábus, quas tantum habébat vestes, meliórem dedísset, ad cœnóbium sancti Augustíni, severióri disciplína tum máxime florens, se cóntulit; in quo admíssus, obediéntia, ánimi demissióne, vigíliis ac oratióne provectióres anteíbat. Triclínii cura cum ipsi demandáta esset, vini dolíolum, ipso attingénte, ómnibus mónachis per annum abúnde suffécit. Exácto tirocínii anno, præfécti jussu múnus concionándi suscépit. Salmánticæ id témporis ádeo cruéntis factiónibus divína humánaque ómnia permíxta erant, ut síngulis propémodum horis cædes fíerent, et ómnium órdinum, ac præsértim nobílium, sánguine non viæ solum et fora, sed templa étiam redundárent.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+AT Joánnes, tum conciónibus, tum privátis collóquiis cívium ánimos demúlcens, ad tranquillitátem urbem redúxit. Virum príncipem gráviter offéndit, quod illíus in súbditos sævítiam incre-

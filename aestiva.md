@@ -20883,3 +20883,35 @@ LArgíre nobis, quæsumus, Dómine, semper spíritum cogitándi quæ recta sunt,
 **Ad Magnif. Ant.** Quid fáciam, \* quia dóminus meus aufert a me villicatiónem? Fódere non váleo, mendicáre erubésco. Scio quid fáciam, ut, cum amótus fúero a villicatióne, recípiant me in domos suas.
 
 ---
+
+## Dominica IX post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+PAteant aures misericórdiæ tuæ, Dómine, précibus supplicántium: et, ut peténtibus desideráta concédas; fac eos, quæ tibi sunt plácita, postuláre. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+##### Lectio vii
+
+*Cap. 19, 41-47*
+
+IN illo témpore: Cum appropinquáret Jesus Jerúsalem, videns civitátem flevit super illam dicens: Quia si cognovísses et tu, et quidem in hac die tua, quæ ad pacem tibi! Nunc autem abscóndita sunt ab óculis tuis. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+*Homilia 39 in Evangelia*
+
+QUod a flente Dómino illa Jerosolymórum subvérsio descríbitur, quæ a Vespasiáno et Tito Románis princípibus facta est, nullus, qui históriam eversiónis ejúsdem legit, ignórat. Románi étenim príncipes denuntiántur, cum dícitur: Quia vénient dies in te, et circúmdabunt te inimíci tui vallo. Hoc quoque quod ádditur, Non relínquent in te lápidem super lápidem: étiam jam ipsa ejúsdem civitátis transmigrátio testátur; quia, dum nunc in eo loco constrúcta est, ubi extra portam fúerat Dóminus crucifíxus, prior illa Jerúsalem, ut dícitur, fúnditus est evérsa.
+
+### Ante Dominicam I Augusti
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+### In Dominicis Augusti
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.

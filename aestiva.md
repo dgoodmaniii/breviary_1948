@@ -31104,3 +31104,45 @@ DA nobis, quǽsumus, omnípotens Deus, vitiórum nostrórum flammas exstínguere
 *2 Cor. 9, 7*
 
 UNusquísque prout destinávit in corde suo, non ex tristítia aut ex necessitáte; hílarem enim datórem díligit Deus.
+
+{RUBRIC: ℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. Glória Patri. Posuísti. ℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.}
+
+### Ad Nonam
+
+**Ant.** Beátus Lauréntius \* orábat dicens: Grátias tibi ago, Dómine, quia jánuas tuas íngredi mérui.
+
+#### Capitulum
+
+*2 Cor. 9, 8-9*
+
+POtens est autem Deus omnem grátiam abundáre fácere in vobis, ut, in ómnibus semper omnem sufficiéntiam habéntes, abundétis in omne opus bonum, sicut scriptum est: Dispérsit, dedit paupéribus: justítia ejus manet in sǽculum sǽculi.
+
+{RUBRIC: ℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna est. ℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.}
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis 867, præter sequéntia:}
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi App. [3], sed loco últimi dícitur Ps. 115 Crédidi, ut supra notátur. 867}
+
+℣. Levíta Lauréntius bonum opus operátus est. ℟. Qui per signum crucis cæcos illuminávit.
+
+**Ad Magnif. Ant.** Beátus Lauréntius, \* dum in craticula superpósitus urerétur, ad impiíssimum tyránnum dixit: Assátum est jam, versa et manduca; nam facultátes Ecclésiæ, quas requíris, in cæléstes thesáuros manus páuperum deportavérunt.
+
+{RUBRIC: Et non fit Com. sequéntis.}
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: De Octáva S. Lauréntii fit tantum Commemoratio in die ipsa Octáva, ut suo loco notátur.}
+
+---
+
+### Die 11 Augusti
+
+#### Ss. Tiburtii et Susannæ
+
+{RUBRIC: Virg., Mart. [49] Simplex}
+
+#### Lectio iii
+
+TIbúrtius, Chromátii prǽfécti Urbis fílius, sancti Sebastiáni ópera christiánus, cum ob eam causam ad Fabiánum júdicem addúctus esset múltaque apud illum de Christi fide prædicáret, excandéscens judex paviméntum candéntibus carbónibus sterni jubet. Mox, Tibúrti, inquit, vel diis nostris sacrífices opórtet, vel per istos carbónes nudis pédibus tibi incedéndum est. At ille, crucis signo se

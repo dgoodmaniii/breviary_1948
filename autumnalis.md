@@ -14922,3 +14922,21 @@ IN diébus illis exiérunt ex Israël fílii iníqui et suasérunt multis dicén
 FOrtásse áliquos béllica defíxos glória tenet, ut putent solam esse præliárem fortitúdinem; et ídeo me ad ista deflexísse, quia illa nostris déforet. Quam fortis Jesus Nave, ut uno prǽlio quinque reges captos stérneret cum pópulis suis! Deínde cum advérsum Gabaonítas urgéret prǽlium, et vererétur ne nox impedíret victóriam, magnitúdine mentis et fídei clamávit : Stet sol, et stetit, donec victória consummarétur. Gédeon in trecéntis viris de ingénti pópulo et acérbo hoste revéxit triúmphum. Jónathas adoléscens virtútem magnam fecit in prǽlio.
 
 ℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio v
+
+QUid de Machabǽis loquar? Sed prius de pópulo dicam patrum; qui cum essent paráti ad repugnándum pro templo Dei et pro legítimis suis, dolo hóstium die lacessíti sábbati, maluérunt vulnéribus offérre nuda córpora, quam repugnáre, ne violárent sábbatum. Itaque omnes læti se obtulérunt morti. Sed Machabǽi considerántes quod hoc exémplo gens omnis posset períre, sábbato étiam, cum ipsi in bellum provocaréntur, ulti sunt innocéntium necem fratrum suórum. Unde póstea stimulátus rex Antíochus, cum bellum accénderet per duces suos Lýsiam, Nicánorem, Górgiam, ita cum Orientálibus suis et Assýriis attrítus est cópiis, ut quadragínta et octo míllia in médio campi a tribus míllibus prosterneréntur.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+##### Lectio vi
+
+VIrtútem ducis Judæ Machabǽi de uno ejus mílite consideráte. Namque Eleázarus, cum supereminéntem céteris elephántem lorica vestítum régia advérteret, arbitrátus quod in eo esset rex, cursu cóncito in médium legiónis se prorúpit : et, abjécto clýpeo, utráque manu interficiébat, donec perveníret ad béstiam, atque intrávit sub eam, et subjécto gládio interémit eam. Itaque cadens béstia oppréssit Eleázarum, atque ita mórtuus est. Quanta ígitur virtus ánimi! primo, ut mortem non timéret; deínde, ut circumfúsus legiónibus inimicórum, in confértos raperétur hostes, médium penetráret agmen, et contémpta morte ferócior, abjécto clýpeo, utráque manu vulnerátæ molem béstiæ subíret ac sustinéret : post infra ipsam succéderet, quo plenióri feríret ictu; cujus ruína inclúsus magis quam oppréssus, suo est sepúltus triúmpho.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus, et miséricors. — Da. Glória Patri. Da.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+{RUBRIC: Ad Laudes, in ómnibus Domínicis usque ad V Novémbris inclusíve, Hymnus Ætérne rerum, ut in Psaltério.}

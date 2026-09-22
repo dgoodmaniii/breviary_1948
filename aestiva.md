@@ -33467,4 +33467,46 @@ OB hæc et ália fórtiter gesta, sanctitátis ejus fama longe latéque diffúsa
 
 #### Lectio ix
 
-RAymúndus, Nonnátus cognoménto dictus, quia prǽter commúnem natúræ legem e mórtuæ matris dissécto látere in lucem edúctus fuit, puériles ludos mundíque illécebras réspuens, ita pietáti óperam dabat, ut omnes in púero adúltam virtútem admiraréntur. Dei Matrem, quam sédulo deprecabátur, summópere
+RAymúndus, Nonnátus cognoménto dictus, quia prǽter commúnem natúræ legem e mórtuæ matris dissécto látere in lucem edúctus fuit, puériles ludos mundíque illécebras réspuens, ita pietáti óperam dabat, ut omnes in púero adúltam virtútem admiraréntur. Dei Matrem, quam sédulo deprecabátur, summópere diléxit. Religiónem sub título de Mercéde seu de misericórdia redemptiónis captivórum ingréssus, virginitátem, quam pridem beátæ Vírgini consecráverat, perpétuo cóluit, ceterísque virtútibus enítuit, caritáte præsértim erga Christiános, qui sub potestáte paganórum míseram vitam degébant. Eum Gregórius nonus inter patres cardináles adscrípsit; sed vir Dei, in ea dignitáte ab omni pompa abhórrens, religiósæ humilitátis tenacíssimus semper fuit. Cardónæ, extrémo morbo conféctus et Ecclésiæ sacraméntis munítus, migrávit ad Dóminum Domínica última Augústi, anno millésimo ducentésimo quadragésimo.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [98]}
+
+### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+#### Oratio
+
+DEus, qui in liberándis fidélibus tuis ab impiórum captivitáte, beátum Raymúndum Confessórem tuum mirábilem effecísti: ejus nobis intercessióne concéde; ut a peccatórum vínculis absolúti, quæ tibi sunt plácita, líberis méntibus exsequámur. Per Dóminum.
+
+### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commemoratio sequéntis et Ss. duódecim Fratrum Mártyrum.}
+
+---
+
+## Festa Septembris
+
+### Die 1 Septembris
+
+#### S. Ægidii
+
+{RUBRIC: Abbátis Simplex [94]}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio C 4
+
+INtercéssio nos, quǽsumus, Dómine, beáti Ægídii Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. (Per Dóminum.)

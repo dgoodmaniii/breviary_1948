@@ -23010,10 +23010,26 @@ PRæsta, quǽsumus, omnípotens Deus: ut qui sanctórum Mártyrum tuórum Marci 
 
 #### Lectio iv
 
-EPhrǽm, génere Syrus, Nisibéno patre natus est. Adhuc júvenis ad sanctum Jacóbum epíscopum se cóntulit, a quo baptizátus, brevi ita sanctitáte et doctrína profécit, ut in schola Nísibi, Mesopotámiæ urbe, floránte magíster fúerit constitútus. Post Jacóbi epíscopi mortem, Nísibi a Persis capta, Edéssam proféctus est; ubi primum in monte inter mónachos consédit, deínde, ut plúrimos ad se confluéntes hómines vitáret, vitam duxit eremíticam. Edesséne Ecclésiæ diáconus ordinátus et ob humilitátem sacerdótium recúsans, ómnium virtútum splendóre enítuit, et pietátem et religiónem vera sapiéntiæ professióne sibi comparáre satégit. Spem omnem in solo Deo defíxam habens, quǽvis humána ac transitória contémnens, divína ac sempitérna assídue concupiscébat.
+EPhrǽm, génere Syrus, Nisibéno patre natus est. Adhuc júvenis ad sanctum Jacóbum epíscopum se cóntulit, a quo baptizátus, brevi ita sanctitáte et doctrína profécit, ut in schola Nísibi, Mesopotámiæ urbe, florénte magíster fúerit constitútus. Post Jacóbi epíscopi mortem, Nísibi a Persis capta, Edéssam proféctus est; ubi primum in monte inter mónachos consédit, deínde, ut plúrimos ad se confluéntes hómines vitáret, vitam duxit eremíticam. Edessénæ Ecclésiæ diáconus ordinátus et ob humilitátem sacerdótium recúsans, ómnium virtútum splendóre enítuit, et pietátem et religiónem vera sapiéntiæ professióne sibi comparáre satégit. Spem omnem in solo Deo defíxam habens, quǽvis humána ac transitória contémnens, divína ac sempitérna assídue concupiscébat.
 
 ℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
 
 #### Lectio v
 
-CÆsaréam Cappadóciæ, divíno ductus Spíritu, cum petiísset, ipsum ibi os Ecclésiæ Basilíum vidit, et utérque mútua consuetúdine opportúnum in modum usus est. Ad innúmeros errores refelléndos, qui, tunc témporis grassántes, Ecclésiam Dei divexábant, atque ad mystéria Dómini nostri Jesu Christi sédulo illustránda, plúrimas édidit lucubratiónes, Syro sermóne compósitas, et fere omnes in linguam græcam versas; atque, teste sancto Hierónymo, ipse ad tantam venit claritúdinem, ut post lectiónem Scripturárum públice in
+CÆsaréam Cappadóciæ, divíno ductus Spíritu, cum petiísset, ipsum ibi os Ecclésiæ Basilíum vidit, et utérque mútua consuetúdine opportúnum in modum usus est. Ad innúmeros errores refelléndos, qui, tunc témporis grassántes, Ecclésiam Dei divexábant, atque ad mystéria Dómini nostri Jesu Christi sédulo illustránda, plúrimas édidit lucubratiónes, Syro sermóne compósitas, et fere omnes in linguam græcam versas; atque, teste sancto Hierónymo, ipse ad tantam venit claritúdinem, ut post lectiónem Scripturárum públice in quibúsdam ecclésiis ejus scripta recitaréntur.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+UNivérsa illíus ópera, tam spléndido doctrínæ lúmine referta, effecérunt, ut idem Sanctus, adhuc vivens, tamquam Ecclésiæ Doctor, magno honóre hábitus fúerit. Métrica quoque cántica compósuit in laudem beatíssimæ Vírginis Maríæ ac Sanctórum: quam ob causam a Syris Spíritus Sancti cíthara mérito fuit appellátus. In mirífica ac pia devotióne erga eámdem Vírginem immaculátam primum excélluit. Méritis plenus, Edéssæ, in Mesopotámia, décimo quarto Kaléndas Júlii, decéssit sub Valénte príncipe: eúmque, instántibus plúribus sanctæ Románæ Ecclésiæ Cardinálibus, Patriárchis, Archiepíscopis, Epíscopis, Abbátibus, et religiósis famíliis, Benedíctus Papa décimus quintus, ex sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctórem declarávit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+EPhrǽm, génere Syrus, Nisibéno patre natus est. Adhuc júvenis ad sanctum Jacóbum epíscopum se cóntulit, a quo baptizátus, brevi ita sanctitáte et doctrína profécit, ut in schola Nísibi, Mesopotámiæ urbe, florénte magíster fúerit constitútus. Edessénæ Ecclésiæ diáconus ordinátus et ob humilitátem sacerdótium recúsans, ómnium virtútum splendóre enítuit, et pietátem et religiónem vera sapiéntiæ professióne sibi comparáre satégit. Univérsa illíus ópera, tam spléndido doctrínæ lúmine reférta, effecérunt, ut idem Sanctus, adhuc vivens, tamquam Ecclésiæ Doctor, magno honóre hábitus fúerit. In mirífica ac pia devotióne erga Vírginem immaculátam primum excélluit. Méritis

@@ -26455,4 +26455,28 @@ SI enim, cum hic esset, usque ádeo diligébat hómines, ut, cum dissólvi et cu
 
 #### Lectio vi
 
-NOn ita cælum spléndescit quando rádios sol demíttit, quemádmodum Románorum urbs duos istos fulgóres ubíque terrárum emíttens. Hinc rapiétur Paulus, hinc Petrus. Consideráte et horréte, quale spectáculum visúra sit Roma; Paulum vidélicet, repénte ex theca illa cum Petro resurgéntem, in occúrsum Dómini sursum ferri. Qualem rosam Christo mittet Roma! quálibus corónis duábus ornátur urbs ista! quálibus caténis áureis cincta est! quales habet fontes! Proptérea admíror hanc urbem, non propter cópiam auri, non propter colúmnas, neque propter áliam quamcúmque rerum spéciem, sed propter colúmnas illas Ecclésiæ. Quis mihi nunc dabit circumvólvi córpori Pauli, affígi
+NOn ita cælum spléndescit quando rádios sol demíttit, quemádmodum Románorum urbs duos istos fulgóres ubíque terrárum emíttens. Hinc rapiétur Paulus, hinc Petrus. Consideráte et horréte, quale spectáculum visúra sit Roma; Paulum vidélicet, repénte ex theca illa cum Petro resurgéntem, in occúrsum Dómini sursum ferri. Qualem rosam Christo mittet Roma! quálibus corónis duábus ornátur urbs ista! quálibus caténis áureis cincta est! quales habet fontes! Proptérea admíror hanc urbem, non propter cópiam auri, non propter colúmnas, neque propter áliam quamcúmque rerum spéciem, sed propter colúmnas illas Ecclésiæ. Quis mihi nunc dabit circumvólvi córpori Pauli, affígi sepúlcro, vidére púlverem córporis illíus, quæ adhuc in Christo déerant adimpléntis, stígmata illíus gestántis, prædicatiónem Evangélii ubíque seminántis?
+
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 19, 27-29*
+
+IN illo témpore: Dixit Petrus ad Jesum: Ecce nos relíquimus ómnia, et secúti sumus te: quid ergo erit nobis? Et réliqua.
+
+De Homilía sancti Bedæ Venerábilis Presbýteri
+
+*Homilia in Natali S. Benedicti Ep.*
+
+QUo sunt órdines electórum in judício futúri: unus judicántium cum Dómino, de quibus hoc loco mémorat, qui reliquérunt ómnia et secúti sunt illum. Alius judicándorum a Dómino, qui non quidem ómnia sua páriter reliquérunt, sed de his tamen quæ habébant, quotidiánas dare eleemósynas Christi páupéribus curábant; unde et auditúri sunt in judício: Veníte, benedícti Patris mei, possidéte præparátum vobis regnum a constitutióne mundi; esurívi enim, et dedístis mihi manducáre; sitívi, et dedístis mihi bíbere.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+SEd et reprobórum duos síbi futúros órdines, Dómino narránte, compérimus: unum eórum, qui, fídei christiánæ mystériis initiáti, ópera fídei exercére contémnunt; quibus in judício testátur: Discédite a me, maledícti, in ignem ætérnum, qui præparátus est diábolo et ángelis ejus; esurívi enim, et non dedístis mihi manducáre. Alterum eórum, qui fidem et mystéria Christi vel numquam suscépere, vel suscéptam per apostásiam deseruére; de quibus

@@ -31764,4 +31764,28 @@ Sermo sancti Joánnis Damascéni
 
 #### Lectio v
 
-QUóniam futúrum erat ut Dei Génitrix et Virgo ex Anna orirétur, natúra grátiæ fœtum antevértere mínime ausa est; verum tantísper exspectávit, dum grátia fructum suum produxísset. Síquidem oportébat eam primogénitam in lucem edi, quæ rerum ómnium conditárum Primogénitum, in quo ómnia coagmentáta sunt, paritúra erat. O par beátum Jóachim et Anna; vobis omnis creatúra obstrícta est. Per vos enim donum, ómnium donórum præstantíssimum, Crea-
+QUóniam futúrum erat ut Dei Génitrix et Virgo ex Anna orirétur, natúra grátiæ fœtum antevértere mínime ausa est; verum tantísper exspectávit, dum grátia fructum suum produxísset. Síquidem oportébat eam primogénitam in lucem edi, quæ rerum ómnium conditárum Primogénitum, in quo ómnia coagmentáta sunt, paritúra erat. O par beátum Jóachim et Anna; vobis omnis creatúra obstrícta est. Per vos enim donum, ómnium donórum præstantíssimum, Creatóri óbtulit, nempe castam matrem, quæ sola Creatóre digna erat.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+EXsúlta, Jóachim, quóniam ex fília tua Fílius natus est nobis; et vocátur nomen ejus magni consílii, hoc est, salútis totíus mundi Angelus. Pudóre afficiátur Nestórius, ac manum ori impónat. Puer hic Deus est. Quónam ígitur modo ea Dei Génitrix non sit, quæ péperit? Si quis sanctam Dei Genitrícem non confitétur, a Deitáte remótus est. Mea non est hæc orátio, quamquam alióqui mea; hanc enim diviníssimam hereditátem a theólogo patre Gregório accépi. O beátum par Jóachim et Anna! Ac profécto ex ventris vestri fructu immaculáti agnoscímini, quemádmodum Christus quodam loco dixit: Ex frúctibus eórum cognoscétis eos. Ut Deo gratum erat ac dignum ea quæ a vobis orta est, vitæ vestræ ratiónes instituístis. Caste enim ac sancte múnere vestro functi, virginitátis thesáurum produxístis.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+
+*Cap. 1, 1-16*
+
+LIber generatiónis Jesu Christi, fílii David, fílii Abraham. Abraham génuit Isaac, Isaac autem génuit Jacob. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Damascéni}
+
+{RUBRIC: Liber 4 de Fide orthodoxa, cap. 15 de Dómini genealógia et sanctæ Dei Genitrícis}
+
+QUod Joseph ex Davídica tribu oríginem dúxerit, sanctíssimi Evangelístæ Matthǽus et Lucas líquido demonstrárunt. Verum, hoc inter eos discríminis est, quod Matthǽus ex Davíde per Salomónem Joséphum dedúcit; Lucas autem per Nathan. At vero sanctæ Vírginis ortum utérque siléntio prætériit. Quocírca

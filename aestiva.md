@@ -29602,3 +29602,55 @@ COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córpor
 ### In I Vesperis
 
 **Ant. 1** Assúmpsit Jesus \* Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit eos in montem excélsum seórsum, et transfigurátus est ante eos.
+
+{RUBRIC: Psalmi de Dominica 57, sed loco último Ps. 116 Laudáte Dóminum, omnes gentes. 78}
+
+**2** Resplénduit \* fácies ejus sicut sol, vestiménta autem ejus facta sunt alba sicut nix, allelúja.
+
+**3** Et ecce \* apparuérunt eis Móyses et Elías loquéntes cum Jesu.
+
+**4** Respóndens autem Petrus \* dixit ad Jesum: Dómine, bonum est nos hic esse.
+
+**5** Adhuc eo loquénte, \* ecce nubes lúcida obumbrávit eos.
+
+**Capit.** *Philipp. 3, 20-21*
+
+SAlvatórem exspectámus Dóminum nostrum Jesum Christum, qui reformábit corpus humilitátis nostræ configurátum córpori claritátis suæ.
+
+###### Hymnus
+
+QUicúmque Christum quǽritis,
+Oculos in altum tóllite:
+Illic licébit vísere
+Signum perénnis glóriæ.
+
+Illústre quiddam cérnimus,
+Quod nésciat finem pati,
+Sublíme, celsum, intérminum,
+Antíquius cælo et chao.
+
+Hic ille Rex est géntium
+Populíque Rex judáici,
+Promíssus Abrahæ patri
+Ejúsque in ævum sémini.
+
+Hunc, et prophétis téstibus
+Iisdémque signatóribus,
+Testátor et Pater jubet
+Audíre nos et crédere.
+
+Jesu, tibi sit glória,
+Qui te revélas párvulis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: Sic termínantur Hymni per omnes Horas.}
+
+℣. Gloriósus apparuísti in conspéctu Dómini. ℟. Proptérea decórem índuit te Dóminus.
+
+**Ad Magnif. Ant.** Christus Jesus, \* splendor Patris et figúra substántiæ ejus, portans ómnia verbo virtútis suæ, purgatiónem peccatórum fáciens, in monte excélso gloriósus apparére hódie dignátus est.
+
+###### Oratio
+
+DEus, qui fídei sacraménta in Unigéniti tui gloriósa Transfiguratióne patrum testimónio roborásti, et adoptiónem filiórum perféctam, voce delápsa in nube lúcida, mirabíliter præsignásti: concéde propítius; ut ipsíus Regis glóriæ nos cohærédes effícias, et ejúsdem glóriæ tríbuas esse consórtes. Per eúmdem Dóminum.

@@ -31739,3 +31739,29 @@ FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placér
 **Ant.** Laudémus virum gloriósum in generatióne sua, quia benedictiónem ómnium géntium dedit illi Dóminus, et testaméntum suum confirmávit super caput ejus.
 
 ℣. Potens in terra erit semen ejus. ℟. Generátio rectórum benedicétur.
+
+### Oratio
+
+DEus, qui præ ómnibus Sanctis tuis beátum Jóachim Genitrícis Fílii tui patrem esse voluísti: concéde, quǽsumus; ut, cujus festa venerámur, ejus quoque perpétuo patrocínia sentiámus. Per eúmdem Dóminum.
+
+{RUBRIC: In I Nocturno Lectiones Beátus vir, de eódem Communi 1 loco. [96]}
+
+### In II Nocturno
+
+Sermo sancti Epiphánii Epíscopi
+
+{RUBRIC: Oratio de Laud. Virg., sub inítium}
+
+#### Lectio iv
+
+EX radíce Jesse ortus est rex David, et de tribu regis David sancta Virgo: sancta, inquam, et sanctórum virórum fília, cujus paréntes fuérunt Jóachim et Anna; qui quidem in vita sua Deo placuérunt, atque étiam fructum ejúsmodi germinavérunt, sanctam Vírginem Maríam, templum simul et matrem Dei. Jóachim porro, Anna et María, hi tres Trinitáti palam sacrifícium laudis offerébant. Jóachim enim interpretátur Præparátio Dómini, eo quod ex illo præparátum sit templum Dómini, nempe Virgo. Anna rursus simíliter Grátia interpretátur, proptérea quod Jóachim et Anna grátiam accepérunt, ut, accedéntibus précibus, talem fructum germinárent, sanctam Vírginem adépti; Jóachim síquidem precabátur in monte, et Anna in horto suo.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+Sermo sancti Joánnis Damascéni
+
+{RUBRIC: Oratio 1 de Virg. Mariæ Nativ., circa princípium}
+
+#### Lectio v
+
+QUóniam futúrum erat ut Dei Génitrix et Virgo ex Anna orirétur, natúra grátiæ fœtum antevértere mínime ausa est; verum tantísper exspectávit, dum grátia fructum suum produxísset. Síquidem oportébat eam primogénitam in lucem edi, quæ rerum ómnium conditárum Primogénitum, in quo ómnia coagmentáta sunt, paritúra erat. O par beátum Jóachim et Anna; vobis omnis creatúra obstrícta est. Per vos enim donum, ómnium donórum præstantíssimum, Crea-

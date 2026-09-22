@@ -24105,4 +24105,20 @@ GUliélmus, nobílibus paréntibus Vercéllis in Insúbria natus, vix quartum d�
 
 #### Lectio v
 
-DEI autem mónitu, qui eídem appáruit, a propósito revocátur, utílior
+DEI autem mónitu, qui eídem appáruit, a propósito revocátur, utílior ac fructuósior tam apud Italos quam apud éxteras natiónes futúrus. Tum monastérium in Virgiliáni montis cacúmine, quod deínde Vírginis est appellátum, loco áspero et inaccésso miránda exædíficat celeritáte. Sócios deínde viros et religiósos ascíscit, eósque ad vivéndi normam, evangélicis præcéptis et consíliis summópere accommodátam, tum certis légibus ex beáti Benedícti institútis magna ex parte desúmptis, tum verbo et sanctíssimæ vitæ exémplis infórmat.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus loricam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+ALiis deínde monastériis eréctis, clárior in dies Guliélmi facta sánctitas multos ad eum úndique viros perdúcit, sanctitátis odóre et miraculórum fama alléctos. Nam muti loquélam, surdi audítum, áridi vigórem, varióque et immedicábili morbo laborántes sanitátem, ipsíus intercessióne recepérunt. Aquam in vinum convértit, alíaque complúra mirabília patrávit; inter quæ illud non siléndum, quod, muliércula ad ejus castitátem tentándam missa, in ardéntibus prunis humi stratis illǽsum se volutávit. De qua re cértior factus Rogérius, Neápolis rex, in summam viri Dei venerátiónem addúcitur. Demum, témpore sui óbitus regi aliísque prænuntiáto, innúmeris virtútibus et miráculis clarus obdormívit in Dómino, anno salútis millésimo centésimo quadragésimo secúndo.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+GUliélmus, nobílibus paréntibus Vercéllis natus, vix quartum décimum ætátis annum expléverat, cum Compostellánam peregrinatiónem miro spíritu pœniténtiæ ac pietátis ardóre perégit. Dein, nova peregrinatióne ad Christi Dómini sepúlcrum frustra tentáta, in

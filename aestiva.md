@@ -25551,3 +25551,61 @@ Et cruénta belluárum
 Désiit ferócia:
 Mitis Agni vulneráti
 Hæc fuit victória.
+
+O sciéntiæ supérnæ
+Altitúdo impérvia!
+O suávitas benígni
+Prædicánda péctoris!
+Servus erat morte dignus,
+Rex luit pœnam óptimus.
+
+Quando culpis provocámus
+Ultiónem Júdicis,
+Tunc loquéntis protegámur
+Sánguinis præséntia;
+Ingruéntium malórum
+Tunc recédant ágmina.
+
+Te redémptus laudet orbis
+Grata servans múnera,
+O salútis sempitérnæ
+Dux et Auctor ínclyte,
+Qui tenes beáta regna
+Cum Parénte et Spíritu.
+Amen.
+
+##### In I Nocturno
+
+**Ant.** Postquam consummáti sunt \* dies octo, ut circumciderétur Puer, vocátum est nomen ejus Jesus.
+
+###### Psalmus 2
+
+QUare fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos: \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Postquam consummáti sunt dies octo, ut circumciderétur Puer, vocátum est nomen ejus Jesus.
+
+**Ant.** Factus in agonía \* prolíxius orábat, et factus est sudor ejus sicut guttæ sánguinis decurréntis in terram.

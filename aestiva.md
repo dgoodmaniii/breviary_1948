@@ -31249,4 +31249,38 @@ DA, quǽsumus, omnípotens Deus: ut beatórum Mártyrum tuórum Hippólyti et Ca
 
 #### Lectio iii
 
-HIppólytus, a sancto Lauréntio baptizátus, domi suæ, dum Eucharístiam súmeret, compréhensus, et ad Valeriánum imperatórem addúctus, ab eo de suæ religiónis professióne interrogátus, líbere se Christiánum proféssus est. Quam ob rem fústibus cǽditur; quibus in verbéribus cum ejus fides constántior inveniétur, munéribus et honórum promíssis tentátur. Quæ cum ómnia frustra
+HIppólytus, a sancto Lauréntio baptizátus, domi suæ, dum Eucharístiam súmeret, compréhensus, et ad Valeriánum imperatórem addúctus, ab eo de suæ religiónis professióne interrogátus, líbere se Christiánum proféssus est. Quam ob rem fústibus cǽditur; quibus in verbéribus cum ejus fides constántior inveniétur, munéribus et honórum promíssis tentátur. Quæ cum ómnia frustra dicerétur, prǽfécto occidéndus tráditur. Qui, domum Hippólyti véniens, ut ejus facultátes publicáret, totam famíliam christiánam esse cognóscit; atque, iis a christiána fide frustra detérritis, primum plumbátis cæsa Concórdia, Hippólyti nutríce, quæ céteros confirmábat, réliquos extra portam Tiburtínam occídi jubet. Hippólytus, indómitis equis raptátus per loca tríbulis et cárduis cónsita, laceráto córpore, spíritum Deo réddidit, unáque cum réliquis a Justíno presbýtero ad agrum Veránum sepúltus est. Eádem die, ad Forum Syllæ, crudelíssimo supplício afféctus est Cassiánus Martyr; qui, vinctis post terga mánibus, puerórum, quos erudiébat, férreis stilis configéndus excarnificandúsque tráditur. Quorum quanto erat infírmior vis, tanto ejus pœna martýrii grávior ac diutúrnior, pálmaque illústrior.
+
+Te Deum laudámus.
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+**Oratio** Da, quǽsumus, {RUBRIC: ut supra. 884}
+
+{RUBRIC: Vesperæ de Feria, Commemoratio S. Eusébii Conf., ut infra.}
+
+---
+
+### Die 14 Augusti
+
+#### Pro Commemoratione S. Eusebii Conf.
+
+{RUBRIC: In Vesp. præcedéntis diei:}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, qui nos beáti Eusébii Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+---
+
+#### In Vigilia Assumptionis B. Mariæ Virg.
+
+{RUBRIC: Officium fit de Feria, ut in Ordinário et Psaltério, præter Oratiónem et Lectiónes, ut infra, et Responsória quæ dicúntur de Feria curránti, ut in Próprio de Témpore.}
+
+{RUBRIC: Ad Nocturnum vero in Feria iv tres últimæ Antíphonæ cum suis Psalmis, et ad Laudes in qualíbet Feria Antíphonæ omnes et Psalmi sumúntur de 2 loco; ad Primam additur quartus Psalmus, ut in Psaltério notátur, et ad omnes Horas dicúntur Preces feriáles, ut in Psaltério de Ordinário.}

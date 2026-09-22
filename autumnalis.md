@@ -16039,3 +16039,30 @@ PAtet ígitur causa, cur qui nihil díxerat, inchoávit dicens : Et factum est i
 ℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
 
 ℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam I Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 2, 2-9*
+
+ET audívi loquéntem ad me et dicéntem : Fili hóminis, mitto ego te ad fílios Israël, ad gentes apostatríces quæ recessérunt a me; ipsi et patres eórum prævaricáti sunt pactum meum usque ad diem hanc; et fílii dura fácie et indomábili corde sunt, ad quos ego mitto te, et dices ad eos : Hæc dicit Dóminus Deus. Si forte vel ipsi áudiant et si forte quiéscant, quóniam domus exásperans est, et scient quia prophéta fúerit in médio eórum.
+
+℟. Redémit pópulum suum et liberávit eum, et vénient et exsultábunt in monte Sion et gaudébunt de bonis Dómini super fruménto, vino et óleo, \* Et ultra non esúrient. ℣. Erítque ánima eórum quasi hortus irríguus. — Et ultra.
+
+##### Lectio ii
+
+TU ergo, fili hóminis, ne tímeas eos neque sermónes eórum métuas, quóniam incréduli et subversóres sunt tecum, et cum scorpiónibus hábitas. Verba eórum ne tímeas et vultus eórum ne formídes, quia domus exásperans est. Loquéris ergo verba mea ad eos, si forte áudiant et quiéscant, quóniam irritatóres sunt.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+TU autem, fili hóminis, audi quæcúmque lóquor ad te et noli esse exásperans, sicut domus exasperátrix est; áperi os tuum et cómede quæcúmque ego do tibi. Et vidi, et ecce manus missa ad me, in qua erat involútus liber, et expándit illum coram me, qui erat scriptus intus et foris, et scriptæ erant in eo lamentatiónes et carmen et væ.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.

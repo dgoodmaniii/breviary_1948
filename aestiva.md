@@ -27528,4 +27528,48 @@ DEnique, rebus ómnibus, quæ ad impérii honórem et utilitátem pertinébant, 
 
 #### Lectio ix
 
-HEnrícus cognoménto Pius, e duce Bavária rex Germániæ ac póstmodum Románórum imperátor, religióni amplificándæ studióse incúbuit. Episcopátum Bambergénsem, hereditáriis ópibus fundátum, beáto Petro Romanóque Pontífici vectigálem fecit; Benedíctum octávum prófugum excépit suáque Sedi restítuit et, Ecclésiæ Románæ tuéndæ causa bello advérsus Græcos suscépto, Apúliam, diu ab illis posséssam, recuperávit. Divína autem protéctus ope, bárbaras natiónes précibus magis quam armis expugnávit. Pannóniam adhuc infidélem, trádita Stéphano regi soróre sua in uxórem, eóque baptizáto, ad fidem perdúxit. Virginitátem matrimónio junxit, sanctámque Cunegúndam cónjugem suam propínquis ejus, morti próximus,
+HEnrícus cognoménto Pius, e duce Bavária rex Germániæ ac póstmodum Románórum imperátor, religióni amplificándæ studióse incúbuit. Episcopátum Bambergénsem, hereditáriis ópibus fundátum, beáto Petro Romanóque Pontífici vectigálem fecit; Benedíctum octávum prófugum excépit suáque Sedi restítuit et, Ecclésiæ Románæ tuéndæ causa bello advérsus Græcos suscépto, Apúliam, diu ab illis posséssam, recuperávit. Divína autem protéctus ope, bárbaras natiónes précibus magis quam armis expugnávit. Pannóniam adhuc infidélem, trádita Stéphano regi soróre sua in uxórem, eóque baptizáto, ad fidem perdúxit. Virginitátem matrimónio junxit, sanctámque Cunegúndam cónjugem suam propínquis ejus, morti próximus, illibátam restítuit. Sanctitáte dénique quam sceptro clárior, ad regni cæléstis prǽmia vocátus est anno millésimo vigésimo quarto, et ab Eugénio tértio Sanctórum número adscríptus.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [98]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui hodiérna die beátum Henrícum Confessórem tuum e terréni cúlmine impérii ad regnum ætérnum transtulísti: te súpplices exorámus; ut, sicut illum, grátiæ tuæ ubertáte prævéntum, illécebras sǽculi superáre fecísti, ita nos fácias, ejus imitatióne, mundi hujus blandiménta vitáre, et ad te puris méntibus perveníre. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 16 Julii
+
+#### In Commemoratione B. Mariæ Virg. de Monte Carmelo
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Festorum B. Mariæ V. [174], præter ea quæ hic habentur propria.}
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Sancta María, \* succúrre míseris, juva pusillánimes, réfove flébiles, ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam solémnem Commemoratiónem.
+
+###### Oratio
+
+DEus, qui beatíssimæ semper Vírginis et Genitrícis tuæ Maríæ singulári título Carméli órdinem decorásti: concéde propítius; ut, cujus hódie Commemoratiónem solémni celebrámus offício, ejus muníti præsídiis, ad gáudia sempitérna perveníre mereámur: Qui vivis.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio ut supra.}

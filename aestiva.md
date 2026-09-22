@@ -28975,4 +28975,20 @@ MIsit Heródes rex manus ut afflígeret quosdam de Ecclésia. Occídit autem Jac
 
 #### Lectio ii
 
-CUM autem productúrus eum esset Heródes, in ipsa nocte erat Petrus dórmiens inter duos mílites vinctus caténis duábus, et custódes ante
+CUM autem productúrus eum esset Heródes, in ipsa nocte erat Petrus dórmiens inter duos mílites vinctus caténis duábus, et custódes ante óstium custodiébant cárcerem. Et ecce Angelus Dómini ástitit, et lumen refúlsit in habitáculo, percussóque látere Petri, excitávit eum, dicens: Surge velóciter. Et cecidérunt caténæ de mánibus ejus. Dixit autem Angelus ad eum: Præcíngere, et cálcea te cáligas tuas. Et fecit sic. Et dixit illi: Circúmda tibi vestiméntum tuum, et séquere me.
+
+℟. Si díligis me, Simon Petre, pasce oves meas. Dómine, tu nosti, quia amo te, \* Et ánimam meam pono pro te. ℣. Si oportúerit me mori tecum, non te negábo. — Et.
+
+#### Lectio iii
+
+ET éxiens sequebátur eum, et nesciébat quia verum est quod fiébat per Angelum; existimábat autem se visum vidére. Transeúntes autem primam et secúndam custódiam venérunt ad portam férream, quæ ducit ad civitátem, quæ ultro apérta est eis; et exeúntes processérunt vicum unum, et contínuo discéssit Angelus ab eo. Et Petrus ad se revérsus dixit: Nunc scio vere quia misit Dóminus Angelum suum, et erípuit me de manu Heródis et de omni exspectatióne plebis Judæórum.
+
+℟. Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: \* Et tibi dabo claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et. Glória Patri. Et.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+THeodósio juníore imperánte, cum Eudócia ejus uxor Jerosólymam solvéndi voti causa venísset, ibi multis est affécta munéribus. Præ céteris insígne donum accépit férreæ caténæ, auro gemmísque ornátæ, quam illam esse affirmábant, qua Petrus Apóstolus ab Heróde vinctus fúerat. Eudócia, caténam pie veneráta, eam póstea Romam ad fíliam Eudóxiam misit; quæ illam Pontífici Máximo détulit. Isque vicíssim illi monstrávit álteram caténam, qua, Neróne imperatóre, idem Apóstolus constríctus fúerat.
+
+℟. Dómine, si tu es, jube me veníre ad te super aquas. \* Et exténdens manum apprehéndit eum, et dixit Jesus: Módicæ fídei, quare dubitásti? ℣. Cum

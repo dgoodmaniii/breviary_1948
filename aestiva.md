@@ -25034,4 +25034,18 @@ De Actibus Apostolórum
 
 *Cap. 13, 1-13*
 
-ERant autem in Ecclésia quæ erat Antiochíæ, prophétæ et doctóres, in quibus Bárnabas et Simon, qui vocabátur Niger, et Lúcius Cyrenénsis et Mánahem, qui erat Heródis Tetrárchæ
+ERant autem in Ecclésia quæ erat Antiochíæ, prophétæ et doctóres, in quibus Bárnabas et Simon, qui vocabátur Niger, et Lúcius Cyrenénsis et Mánahem, qui erat Heródis Tetrárchæ collactáneus, et Saulus. Ministrántibus autem illis Dómino et jejunántibus, dixit illis Spíritus Sanctus: Segregáte mihi Saulum et Bárnabam, in opus ad quod assúmpsi eos. Tunc jejunántes et orántes imponentésque eis manus dimisérunt illos. Et ipsi quidem missi a Spíritu Sancto abiérunt Seleucíam et inde navigavérunt Cyprum.
+
+℟. Qui operátus est Petro in apostolátum, operátus est et mihi inter Gentes: \* Et cognovérunt grátiam Dei, quæ data est mihi. ℣. Grátia Dei in me vácua non fuit, sed grátia ejus semper in me manet. — Et.
+
+#### Lectio ii
+
+ET, cum veníssent Salamínam, prædicábant verbum Dei in synagógis Judæórum; habébant autem et Joánnem in ministério. Et, cum perambulássent univérsam ínsulam usque Paphum, invenérunt quemdam virum magum pseudoprophétam Judǽum, cui nomen erat Barjésu, qui erat cum procónsule Sérgio Paulo, viro prudénte. Hic, accersítis Bárnaba et Saulo, desiderábat audíre verbum Dei. Resistébat autem illis Elymas magus (sic enim interpretátur nomen ejus) quærens avértere procónsulem a fide.
+
+℟. Bonum certámen certávi, cursum consummávi, fidem servávi: \* Ideóque repósita est mihi coróna justítiæ. ℣. Scio cui crédidi, et certus sum quia potens est depósitum meum serváre in illum diem. — Ideóque.
+
+#### Lectio iii
+
+SAulus autem, qui et Paulus, replétus Spíritu Sancto, íntuens in eum dixit: O plene omni dolo et omni fallácia, fili diáboli, inimíce omnis justítiæ, non désinis subvértere vias Dómini rectas? Et nunc, ecce manus Dómini super te, et eris cæcus non videns solem usque ad tempus. Et conféstim cécidit in eum calígo et ténebræ, et circúiens quærébat qui ei manum daret. Tunc procónsul, cum vidísset factum, crédidit admírans super doctrína Dómini. Et, cum a Papho navigássent, Paulus et qui cum eo erant venérunt Pergen Pamphýliæ; Joánnes autem discédens ab eis revérsus est Jerosólymam.
+
+℟. Repósita est mihi coróna justítiæ, \* Quam reddet mihi Dóminus in illum diem justus judex. ℣. Scio

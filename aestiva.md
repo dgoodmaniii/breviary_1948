@@ -27126,4 +27126,20 @@ PRæsta, quæsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua
 
 #### Lectio iv
 
-SEptem fratres, fílii sanctæ Felicitátis, Romæ in persecutióne Marci Aurélii Antoníni a Públio præfécto primum blandítiis, deínde terróribus tentáti, ut, Christo renuntiántes, deos venerarétur; et, sua vir-
+SEptem fratres, fílii sanctæ Felicitátis, Romæ in persecutióne Marci Aurélii Antoníni a Públio præfécto primum blandítiis, deínde terróribus tentáti, ut, Christo renuntiántes, deos venerarétur; et, sua virtúte, et matre hortánte, in fídei confessióne persevérántes, várie necáti sunt. Januárius plumbátis cæsus; Felix et Philíppus fústibus contúsi; Silvánus ex altíssimo loco præceps dejéctus est; Alexánder, Vitális et Martiális cápite plectúntur. Mater eórum quarto post mense eámdem martýrii palmam consecúta est: illi sexto Idus Júlii spíritum Dómino reddidérunt.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illæsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+#### Lectio v
+
+RUfína et Secúnda soróres, vírgines Románæ, rejécto connúbio Armentárii et Veríni, quibus a paréntibus despónsæ fúerant, quod Jesu Christo virginitátem vovíssent, Valeriáno et Galliéno imperatóribus, comprehendúntur. Quas cum nec promíssis nec terróre Június præféctus a propósito posset abdúcere, Rufínam primum virgis cædi jubet; in cujus verbéribus Secúnda júdicem sic interpéllat: Quid est, quod sorórem meam honóre, me áfficis ignomínia? Jube ambas simul cædi, quæ simul Christum Deum confitémur. Quibus verbis incénsus judex ímperat utrámque detrúdi in tenebricósum et fœtidum cárcerem. Quo loco statim claríssima luce et suavíssimo odóre compléto, in ardénte bálnei sólio includúntur. Et cum inde étiam íntegræ evasíssent, mox saxo ad collum alligáto in Tíberim projéctæ sunt; unde ab Angelo liberátæ, extra Urbem via Aurélia milliário décimo, cápite plectúntur. Quarum córpora, a Plautílla matróna in ejus prǽdio sepúlta, ac póstea in Urbem translata, in basílica Constantiniána prope baptistérium cóndita sunt.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 110 de divérsis}
+
+#### Lectio vi
+
+MAgnum spectáculum, fratres, pósitum est ante óculos fídei nostræ.

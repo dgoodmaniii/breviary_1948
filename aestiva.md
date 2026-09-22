@@ -30900,4 +30900,34 @@ FRemit ergo prǽdo frustrátus, et in ódium religiónis, quæ talem divitiárum
 
 #### Lectio vi
 
-NIhil óbtines, nihil próficis, sæva crudélitas. Subtráhitur torméntis tuis matéria mortális, et, Lau-
+NIhil óbtines, nihil próficis, sæva crudélitas. Subtráhitur torméntis tuis matéria mortális, et, Lauréntio in cælos abeúnte, tu déficis flammis tuis. Superári cáritas Christi flamma non pótuit; et ségnior fuit ignis, qui foris ussit, quam qui intus accéndit. Sævísti persecútor in Mártyrem: sævísti, et auxísti palmam, dum ággeras pœnam. Nam quid non ad victóris glóriam ingénium tuum réperit, quando in honórem transiérunt triúmphi étiam instruménta supplícii? Gaudeámus ígitur, dilectíssimi, gáudio spiritáli, et de felicíssimo ínclyti viri fine gloriémur in Dómino, qui est mirábilis in Sanctis suis, in quibus nobis et præsídium constítuit et exémplum; atque ita per univérsum mundum clarificávit glóriam suam, ut a solis ortu usque ad occásum, leviticórum lúminum coruscánte fulgóre, quam clarificáta est Jerosólyma Stéphano, tam illústris fíeret Roma Lauréntio.
+
+℟. Beátus Lauréntius clamávit et dixit: Deum meum colo, illi soli sérvio; \* Et ídeo non tímeo torménta tua. ℣. Mea nox obscúrum non habet, sed ómnia in luce claréscunt. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+**Ant.** Strinxérunt \* córporis membra pósita super craticulam: subjiciéntibus prunas insúltat levíta Christi.
+
+#### Psalmus 14
+
+DOmine, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Strinxérunt córporis membra pósita super craticulam: subjiciéntibus prunas insúltat levíta Christi.
+
+**Ant.** Igne me examinásti, \* et non est invénta in me iníquitas.
+
+#### Psalmus 16
+
+EXáudi, Dómine, justítiam meam: \* inténde deprecatiónem meam.

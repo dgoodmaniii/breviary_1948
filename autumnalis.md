@@ -14177,3 +14177,66 @@ IDEO enim ipsa continéntiæ observántia quátuor est assignáta tempóribus, u
 ELECTÉTUR consciéntia benignórum frúctibus largitátis: et gáudia tríbuens, quo es lætificándus, accípies. Diléctio próximi, diléctio Dei est, qui plenitúdinem legis et prophetárum in hac gémina caritátis unitáte constítuit; ut nemo ambígeret, Deo se offérre, quod hómini contulísset, dicénte Dómino Salvatóre, cum de aléndis juvandísque paupéribus loquerétur: Quod uni eórum fecísti, mihi fecísti. Quarta ígitur et sexta féria jejunémus; sábbato vero apud beátum Petrum Apóstolum vigílias celebrémus: cujus nos méritis et oratiónibus crédimus adjuvándos, ut misericórdi Deo jejúnio nostro et devotióne placeámus.
 
 ℟. Tempus est ut revértar ad eum qui misit me; \* Vos autem benedícite Deum et enarráte ómnia mirabília ejus. ℣. Confitémini ei coram ómnibus vivéntibus, quia fecit vobíscum misericórdiam suam. — Vos. Glória Patri. Vos.
+
+℟. vii Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+℟. viii Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam III Septembris
+
+{RUBRIC: Si Lectiónes de Scriptúra hujus Fériæ II aut Fériæ III sequéntis, sua die dici non potúerint, et in Fériis Quátuor Témporum fíeri contíngat Offícium, in quo Lectiónes de Scriptúra occurrénti sint dicéndæ, neque in eis reponéndum sit Inítium libri Tobíæ Domínicæ præcedénti assignátum, Lectiónes ut supra impedítæ, et si opus sit, étiam Lectiónes insequéntium Feriárum, servató tamen eárum órdine, ultérius transferúntur, ita ut in Offício in Quátuor Témporibus occurrénti Lectiónes de Scriptúra valeant adhibéri. Quod ítem serv átur de Lectiónibus Fériæ V ut supra impedítis, quæ simíliter in casu vel ultérius transferúntur, vel étiam anticipántur. Responsória tamen semper dicúntur de Féria occurrénti.}
+
+{RUBRIC: De libro Tobíæ}
+
+##### Lectio i
+*Cap. 2, 1-4*
+
+POST hæc vero, cum esset dies festus Dómini, et factum esset prándium bonum in domo Tobíæ, dixit fílio suo: Vade et adduc áliquos de tribu nostra timéntes Deum, ut epuléntur nobíscum. Cumque abíisset, revérsus nuntiávit ei unum ex fíliis Israël jugulátum jacére in platéa. Statímque exsíliens de accúbitu suo relínquens prándium, jejúnus pervénit ad corpus, tollénsque illud portávit ad domum suam occúlte, ut, dum sol occubuísset, caute sepelíret eum.
+
+℟. Peto, Dómine, ut de vínculo improperii hujus absólvas me, aut certe désuper terram erípias me: \* Ne reminiscáris delícta mea vel paréntum meórum, neque vindíctam sumas de peccátis meis: quia éruis sustinéntes te, Dómine. ℣. Omnia enim judícia tua justa sunt, et omnes viæ tuæ misericórdia et véritas: et nunc, Dómine, meménto mei. — Ne.
+
+##### Lectio ii
+*Cap. 2, 8-18*
+
+ARGUÉBANT autem eum omnes próximi ejus dicéntes: Jam hujus rei causa intérfici jussus es et vix effugísti mortis impérium; et íterum sépelis mórtuos? Sed Tobías plus timens Deum quam regem, rapiébat córpora occísórum et occultábat in domo sua et médiis nóctibus sepeliébat ea. Cóntigit autem ut quadam die fatigátus a sepultúra, véniens in domum suam jactásset se juxta paríetem et obdormísset, et ex nido hirúndinum dormiénti illi cálida stércora incíderent super óculos ejus fierétque cæcus. Hanc autem tentatiónem ídeo permísit Dóminus eveníre illi, ut postéris darétur exémplum patiéntiæ ejus, sicut et sancti Job.
+
+℟. Omni témpore bénedic Deum, et pete ab eo ut vias tuas dírigat, \* Et in omni témpore consília tua in ipso permáneant. ℣. Inquíre ut fácias quæ plácita sunt illi in veritáte, et in tota virtúte tua. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+NAM, cum ab infántia sua semper Deum timúerit et mandáta ejus custodíerit, non est contristátus contra Deum quod plaga cæcitátis evénerit ei; sed immóbilis in Dei timóre permánsit agens grátias Deo ómnibus diébus vitæ suæ. Nam sicut beáto Job insultábant reges, ita isti paréntes et cognáti ejus irridébant vitam ejus dicéntes: Ubi est spes tua, pro qua eleemósynas et sepultúras faciébas? Tobías vero increpábat eos dicens: Nolíte ita loqui: quóniam fílii sanctórum sumus et vitam illam exspectámus, quam Deus datúrus est his qui fidem suam numquam mutant ab eo.
+
+℟. Memor esto, fili, quóniam páuperem vitam gérimus: \* Habébis multa bona, si timúeris Deum. ℣. In mente habéto eum, et cave nequándo prætermíttas præcépta ejus. — Habébis. Glória Patri. Habébis.
+
+---
+
+## Feria Tertia infra Hebdomadam III Septembris
+
+{RUBRIC: De libro Tobíæ}
+
+##### Lectio i
+*Cap. 2, 19-23*
+
+ANNA vero uxor ejus ibat ad opus textrínum quotídie, et de labóre mánuum suárum victum, quem cónsequi póterat, deferébat. Unde factum est ut hædum caprárum accípiens detulísset domi; cujus cum vocem baléntis vir ejus audísset, dixit: Vidéte, ne forte furtívus sit; réddite eum dóminis suis, quia non licet nobis aut édere ex furto áliquid aut contíngere.
+
+℟. Sufficiébat nobis paupértas nostra, ut divítiæ computaréntur: numquam fuísset pecúnia ipsa, pro qua misísti fílium nostrum, \* Báculum senectútis nostræ! ℣. Heu me, fili mi, ut quid te mísimus peregrinári, lumen oculórum nostrórum? — Báculum.
+
+##### Lectio ii
+
+AD hæc uxor ejus iráta respóndit: Manifésté vana facta est spes tua et eleemósynæ tuæ modo apparuérunt. Atque his et áliis hujuscémodi verbis exprobrábat ei. Tunc Tobías ingémuit et cœpit oráre cum lácrimis dicens: Justus es, Dómine, et ómnia judícia tua justa sunt, et omnes viæ tuæ misericórdia et véritas et judícium. Et nunc, Dómine, memor esto mei et ne vindíctam sumas de peccátis meis neque reminiscáris delícta mea vel paréntum meórum.
+
+℟. Benedícite Deum cæli et coram ómnibus vivéntibus confitémini ei, \* Quia fecit vobíscum misericórdiam suam. ℣. Ipsum benedícite et cantáte illi: et enarráte ómnia mirabília ejus. — Quia.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Quia.}
+
+##### Lectio iii
+
+QUÓNIAM non obedívimus præcéptis tuis, ídeo tráditi sumus in direptiónem et captivitátem et mortem et in fábulam et in impropérium ómnibus natiónibus, in quibus dispersísti nos. Et nunc, Dómine, magna judícia tua, quia non égimus secúndum præcépta tua et non ambulávimus sincériter coram te. Et nunc, Dómine, secúndum voluntátem tuam fac mecum et præcipe in pace récipi spíritum meum; éxpedit enim mihi mori magis quam vívere.
+
+℟. Tempus est ut revértar ad eum qui misit me; \* Vos autem benedícite Deum et enarráte ómnia mirabília ejus. ℣. Confitémini ei coram ómnibus vivéntibus, quia fecit vobíscum misericórdiam suam. — Vos. Glória Patri. Vos.
+
+{RUBRIC: ¶ Fériæ IV et VI ac Sábbato Quátuor Témporum sunt Fériæ majóres non privilegiátæ.}

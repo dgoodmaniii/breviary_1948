@@ -32960,4 +32960,12 @@ AUgustínus, Tagáste in África honéstis paréntibus natus ac puer docilitáte
 
 #### Lectio v
 
-HAC Augustíni pietáte commótus Valérius, eum adjutórem adhíbuit episcopális offícii. Nihil illo
+HAC Augustíni pietáte commótus Valérius, eum adjutórem adhíbuit episcopális offícii. Nihil illo fuit humílius, nihil continéntius. Lectus ac vestítus moderátus; vulgáris mensa, quam semper sacra vel lectióne vel disputatióne condiébat. Tanta benignitáte fuit in páuperes, ut, cum non esset ália facúltas, sacra vasa frángeret ad eórum inópiam sustentándam. Feminárum, et in eis soróris, et fratris fíliæ, contubérnium familiaritatémque vitávit; quippe qui díceret, etsi propínquæ mulíeres suspéctæ non essent, tamen quæ ad eas ventitárent, posse suspiciónem efficere. Nullum finem fecit prædicándi Dei verbum, nisi gravi morbo oppréssus. Hæréticos perpétuo insectátus et coram et scriptis, ac nullo loco passus consístere, Africam a Manichæórum, Donatistárum, Pelagianórum aliorúmque prætérea hæreticórum erróre magna ex parte liberávit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+TAM multa pie, subtíliter et copióse scripsit, ut christiánam doctrínam máxime illustrárit. Quem in primis secúti sunt, qui póstea theológicam disciplínam via et ratióne tradidérunt. Vándalis Áfricam bello vastántibus et Hippónem tértium jam mensem obsidéntibus, in febrim íncidit. Itaque, cum discéssum e vita sibi ínstáre intellígeret, Psalmos David qui ad pœniténtiam pértinent, in conspéctu pósitos, profúsis lácrimis legébat. Solébat autem dícere, néminem, etsi nullíus scéleris sibi cónscius esset, commíttere debére ut sine pœniténtia migráret e vita. Ergo sénsibus íntegris, in oratióne defíxus, astántibus frátribus, quos ad caritátem, pietátem virtutésque omnes erat adhortátus, migrávit in cælum. Vixit annos septuagínta sex, in episcopátu ad trigínta sex. Cujus corpus, primum in Sardíniam delátum, deínde a Luitprándo, Longobardórum rege, magno prétio redémptum, Ticínum translátum est ibíque honorífice cónditum.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et

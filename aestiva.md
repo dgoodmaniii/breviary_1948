@@ -20915,3 +20915,25 @@ QUod a flente Dómino illa Jerosolymórum subvérsio descríbitur, quæ a Vespas
 ### In Dominicis Augusti
 
 ℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+CUI ex qua culpa eversiónis suæ pœna fúerit illáta, subjúngitur: Eo quod non cognóveris tempus visitatiónis tuæ. Creátor quippe hóminum per incarnatiónis suæ mystérium hanc visitáre dignátus est; sed ipsa timóris et amóris illíus recordáta non est. Unde étiam per Prophétam in increpatióne cordis humáni aves cæli ad testimónium deducúntur, dum dícitur: Milvus in cælo cognóvit tempus suum, turtur et hirúndo et cicónia custodiérunt tempus advéntus sui; pópulus autem meus non cognóvit judícium Dómini.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+FLevit étenim prius Redémptor ruínam pérfidæ civitátis, quam ipsa sibi cívitas non cognoscébat esse ventúram. Cui a flente Dómino recte dícitur: Quia si cognovísses, et tu; subáudi, fleres: quæ modo, quia nescis quod ímminet, exsúltas. Unde et súbditur: Et quidem in hac die tua, quæ ad pacem tibi. Cum enim carnis se voluptátibus daret, et ventúra mala non prospíceret; in die sua, quæ ad pacem esse ei póterant, habébat.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum appropinquáret \* Dóminus Jerúsalem, videns civitátem flevit super illam, et dixit: Quia si cognovísses et tu, quia vénient dies in te, et circúmdabunt te inimíci tui vallo et circúmdabunt te et coangustábunt te úndique et ad terram prostérnent te: eo quod non cognovísti tempus visitatiónis tuæ, allelúja.
+
+### Oratio
+
+PAteant aures misericórdiæ tuæ, Dómine, précibus supplicántium: et, ut peténtibus desideráta concédas; fac eos, quæ tibi sunt plácita, postuláre. Per Dóminum.

@@ -31014,4 +31014,28 @@ IN illo témpore: Dixit Jesus discípulis suis: Amen, amen dico vobis, nisi gran
 
 IPse Dóminus Jesus erat granum mortificándum et multiplicándum; mortificándum infidelitáte Judæórum, multiplicándum fide populórum. Jam vero exhórtans ad passiónis suæ sectánda vestígia, Qui amat, inquit, ánimam suam, perdet eam. Quod duóbus modis intélligi potest. Qui amat, perdet; id est, si amas, perdes. Si cupis vitam tenére in Christo, noli mortem timére pro Christo. Item álio modo: Qui amat ánimam suam, perdet eam; noli amáre, ne perdas; noli amáre in hac vita, ne perdas in ætérna vita.
 
-℟. In craticula te Deum non negávi, \* Et ad ignem applicátus te Dóminum Jesum Christum conféssus sum. ℣. Probásti, Dómine, cor meum, et visitásti
+℟. In craticula te Deum non negávi, \* Et ad ignem applicátus te Dóminum Jesum Christum conféssus sum. ℣. Probásti, Dómine, cor meum, et visitásti nocte. — Et ad ignem applicátus te Dóminum Jesum Christum conféssus sum.
+
+#### Lectio viii
+
+HOC autem, quod postérius dixi, magis habére vidétur evangélicus sensus; séquitur enim: Et qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam. Ergo, quod supra dictum est, Qui amat, subintellígitur in hoc mundo, ipse útique perdet; qui autem odit, útique in hoc mundo, in vitam ætérnam ipse custódit eam. Magna et mira senténtia, quemádmodum sit hóminis in ánimam suam amor ut péreat, ódium ne péreat. Si male amáveris, tunc odísti; si bene óderis, tunc amásti. Felíces, qui odérunt custodiéndo, ne perdant amándo.
+
+℟. O Hippólyte, si credíderis in Dóminum Jesum Christum, \* Et thesáuros tibi osténdo, et vitam ætérnam promítto. ℣. Beátus Lauréntius Hippólyto dixit: Si credis in Dóminum Jesum Christum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+SED vide ne tibi subrépat ut teípsum velis interímere, sic intelligéndo, quod debes odísse in hoc mundo ánimam tuam. Hinc enim quidam malígni atque pervérsi hómines, et in seípsis crudelióres et sceleratióres homicídæ, flammis se donant, aquis se præfócant, præcipítio se collídunt, et péreunt. Hoc Christus non dócuit; immo étiam diábolo præcipítium suggerénti respóndit: Redi retro, sátana: scriptum est, Non tentábis Dóminum, Deum tuum. Petro autem dixit, signíficans qua morte clarificatúrus erat Deum: Cum esses júnior, cingébas te, et ambulábas quo volébas; cum autem senúeris, alter te cinget et feret quo tu non vis. Ubi satis expréssit, non a seípso, sed ab álio debére occídi, qui vestígia séquitur Christi.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ}
+
+**1** Lauréntius \* ingréssus est Martyr, et conféssus est nomen Dómini Jesu Christi.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Lauréntius \* bonum opus operátus est, qui per signum crucis cæcos illuminávit.
+
+**3** Adhǽsit \* ánima mea post te, quia caro mea igne cremáta est pro te, Deus meus.

@@ -21051,3 +21051,45 @@ QUid est vero, quod éxspuens linguam ejus tétigit? Salíva nobis est ex ore Re
 CUI mox, Ephphetha, id est, Adaperíre dícitur: et statim apértæ sunt aures ejus, et solútum est vínculum linguæ ejus. Qua in re notándum est, quia propter clausas aures dictum est, Adaperíre. Sed cui aures cordis ab obediéndum apértæ fúerint, ex subsequénti procul dúbio étiam linguæ ejus vínculum sólvitur; ut bona, quæ ipse fécerit, étiam faciénda áliis loquátur. Ubi bene ádditur: Et loquebátur recte. Ille enim recte lóquitur, qui prius obediéndo fécerit, quæ loquéndo ádmonet esse faciénda.
 
 Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum transísset Dóminus \* fines Tyri, surdos fecit audíre et mutos loqui.
+
+### Oratio
+
+OMnípotens sempitérne Deus, qui, abundántia pietátis tuæ, et mérita súpplicum excédis et vota: effúnde super nos misericórdiam tuam; ut dimíttas quæ consciéntia métuit, et adjícias quod orátio non præsúmit. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Bene ómnia fecit \* et surdos fecit audíre et mutos loqui.
+
+---
+
+## Dominica XII post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+OMnípotens et miséricors Deus, de cujus múnere venit, ut tibi a fidélibus tuis digne et laudabíliter serviátur: tríbue, quǽsumus, nobis; ut ad promissiónes tuas sine offensióne currámus. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+##### Lectio vii
+
+*Cap. 10, 23-37*
+
+IN illo témpore: Dixit Jesus discípulis suis: Beáti óculi, qui vident quæ vos vidétis; dico enim vobis, quod multi prophétæ et reges voluérunt vidére quæ vos vidétis, et non vidérunt. Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+*Liber 3 in Lucæ 10*
+
+NON óculi scribárum et pharisæórum, qui corpus tantum Dómini vidére; sed illi beáti óculi, qui ejus possunt cognóscere sacraménta, de quibus dícitur: Et revelásti ea párvulis. Beáti óculi parvulórum, quibus et se et Patrem Fílius reveláre dignátur. Abraham exsultávit, ut vidéret diem Christi; et vidit, et gavísus est. Isaías quoque, et Michǽas, et multi álii prophétæ vidérunt glóriam Dómini, qui et proptérea Vidéntes sunt appelláti; sed hi omnes, a longe aspiciéntes et salutántes,

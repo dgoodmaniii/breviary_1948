@@ -25654,4 +25654,22 @@ Propter hoc lætátum est cor meum, et exsultávit lingua mea: \* ínsuper et ca
 
 Quóniam non derelínques ánimam meam in inférno: \* nec dabis sanctum tuum vidére corruptiónem.
 
-Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo: \* dele-
+Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo: \* delectatiónes in déxtera tua usque in finem.
+
+**Ant.** Judas, qui eum trádidit, pœniténtia ductus rétulit trigínta argénteos, dicens: Peccávi tradens sánguinem justum.
+
+℣. Redemísti nos, Dómine. ℟. In sánguine tuo.
+
+De Epístola beáti Pauli Apóstoli ad Hebrǽos
+
+#### Lectio i
+
+*Cap. 9, 11-22*
+
+CHristus assístens Póntifex futurórum bonórum, per ámplius et perféctius tabernáculum non manufáctum, id est, non hujus creatiónis: neque per sánguinem hircórum aut vitulórum, sed per próprium sánguinem introívit semel in Sancta, ætérna redemptióne invénta. Si enim sanguis hircórum, et taurórum, et cinis vítulæ aspérsus inquinátos sanctíficat ad emundatiónem carnis: quanto magis sanguis Christi, qui per Spíritum Sanctum semetípsum óbtulit immaculátum Deo, emundábit consciéntiam nostram ab opéribus mórtuis, ad serviéndum Deo vivénti? Et ídeo novi testaménti mediátor est: ut, morte intercedénte, in redemptiónem eárum prævaricatiónum, quæ erant sub prióri testaménto, repromissiónem accípiant, qui vocáti sunt ætérnæ hereditátis.
+
+℟. Jesus, ut sanctificáret per suum sánguinem pópulum, extra portam passus est: \* Exeámus ígitur ad eum extra castra, impropérium ejus portántes. ℣. Nondum enim usque ad sánguinem restitístis advérsus peccátum repugnántes. — Exeámus.
+
+#### Lectio ii
+
+UBI enim testaméntum est: mors necésse est intercédat testatóris. Testaméntum enim in mórtuis confirmátum est: alióquin nondum valet, dum vivit qui testátus est. Unde nec primum quidem sine sánguine dedicátum est. Lecto enim omni mandáto legis a Móyse univérso pópulo: accípiens sánguinem vitulórum, et hircórum cum aqua et lana coccínea, et hyssópo: ipsum quoque librum, et omnem pópulum aspérsit, dicens: Hic sanguis testaménti, quod mandávit ad vos Deus. Etiam tabernáculum, et ómnia vasa ministérii sánguine simíliter aspérgit: et ómnia pene in sánguine secúndum legem mundántur: et sine sánguinis effusióne non fit remíssio.

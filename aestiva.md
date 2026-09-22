@@ -29513,4 +29513,46 @@ VErum, cum ejus ópera ubíque terrárum monastéria jam ædificaréntur, innume
 
 #### Lectio ix
 
-DOmínicus, Calarógæ in Hispánia ex nóbili Gusmanórum família natus, et Paléntiæ liberálibus disciplínis et theológía erudítus, prius Oxoménsis ecclésiæ canónicus factus, dein órdinis Prædicatórum auctor fuit. Ejus ingénium et virtus máxime enituérunt in converténdis hæréticis, qui Tolosátes pervértere conabántur. Romam véniens, ab Innocéntio tértio Pontífice máximo sui órdinis approbatiónem confirmationémque pétiit, quam ab ejus successóre Honório tértio impetrávit. Cum vero ejus ópera innumerábiles hómines religiósam ac piam vitam institúerent, Bonóniæ, anno ducentésimo vigésimo primo supra millésimum, alúmnis caritátem, humilitátem et paupertátem tamquam cer-
+DOmínicus, Calarógæ in Hispánia ex nóbili Gusmanórum família natus, et Paléntiæ liberálibus disciplínis et theológía erudítus, prius Oxoménsis ecclésiæ canónicus factus, dein órdinis Prædicatórum auctor fuit. Ejus ingénium et virtus máxime enituérunt in converténdis hæréticis, qui Tolosátes pervértere conabántur. Romam véniens, ab Innocéntio tértio Pontífice máximo sui órdinis approbatiónem confirmationémque pétiit, quam ab ejus successóre Honório tértio impetrávit. Cum vero ejus ópera innumerábiles hómines religiósam ac piam vitam institúerent, Bonóniæ, anno ducentésimo vigésimo primo supra millésimum, alúmnis caritátem, humilitátem et paupertátem tamquam certum patrimónium relínquens, in illis verbis: Subveníte, Sancti Dei, occúrrite, Angeli, obdormívit in Dómino, octávo Idus Augústi. Eum Gregórius Papa nonus in Sanctórum númerum rétulit.
+
+Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [98]}
+
+###### Oratio
+
+DEus, qui Ecclésiam tuam beáti Domínici Confessóris tui illumináre dignátus es méritis et doctrínis: concéde, ut ejus intercessióne temporálibus non destituátur auxíliis, et spirituálibus semper profíciat increméntis. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+### Die 5 Augusti
+
+#### In Dedicatione S. Mariæ ad Nives
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Festórum B. Maríæ Vírginis [174], præter Lectiónes II Nocturni, ut infra.}
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Sancta María, \* succúrre míseris, juva pusillánimes, réfove flébiles, ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam festivitátem.
+
+###### Oratio C
+
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia, et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui Ecclésiam, {RUBRIC: ut supra.}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+TIbério summo Pontífice, Joánnes patrícius Románus et uxor pari nobilitáte, cum líberos non suscepíssent, quos bonórum herédes relínquerent, suam hereditátem sanctíssimæ Vírgini Dei Matri vovérunt, ab ea summis précibus assídue

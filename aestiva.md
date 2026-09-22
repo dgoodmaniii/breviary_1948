@@ -20976,4 +20976,22 @@ DIceret saltem pharisæus: Non sum sicut multi hómines. Quid est, céteri hómi
 
 ### In Dominicis Augusti
 
-℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+JEjúno bis in sábbato, décimas do ómnium quæ possídeo. Quid rogáverit Deum, quǽre in verbis ejus; nihil invénies. Ascéndit oráre: nóluit Deum rogáre, sed se laudáre. Parum est, non Deum rogáre, sed se laudáre; ínsuper et rogánti insultáre. Publicánus autem de longínquo stabat, et Deo tamen ipse appropinquábat: cordis consciéntia eum removébat, píetas applicábat. Publicánus autem de longínquo stabat, sed Dóminus eum de propínquo attendébat.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+EXcélsus enim Dóminus, et humília réspicit; excélsos autem, qualis erat ille pharisæus, a longe cognóscit. Excélsa quidem Deus a longe cognóscit, sed non ignóscit. Adhuc audi humilitátem publicáni. Parum est, quia de longínquo stabat; nec óculos suos ad cælum levábat; ut aspicerétur, non aspiciébat; respícere sursum non audébat: premébat consciéntia, spes sublevábat. Adhuc audi: Percutiébat pectus suum. Pœnas a se ipso exigébat; proptérea Dóminus confiténti parcébat. Percutiébat pectus suum, dicens: Dómine, propítius esto mihi peccatóri. Ecce, qui rogat. Quid miráris, si Deus ignóscit, quando ipse agnóscit?
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Stans a longe \* publicánus, nolébat óculos ad cælum leváre, sed percutiébat pectus suum dicens: Deus, propítius esto mihi peccatóri.

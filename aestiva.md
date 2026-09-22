@@ -29748,3 +29748,41 @@ Sedes tua, Deus, in sǽculum sǽculi: \* virga directiónis virga regni tui.
 Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
 
 Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto: \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam: \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum: \* quóniam ipse est Dóminus, Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur: omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam: \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne: \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii: \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui: \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum: \* et in sǽculum sǽculi.
+
+**Ant.** Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis.
+
+℣. Gloriósus apparuísti in conspéctu Dómini. ℟. Proptérea decórem índuit te Dóminus.
+
+{RUBRIC: De Epístola secúnda beáti Petri Apóstoli}
+
+#### Lectio i
+
+*Cap. 1, 10-21*
+
+FRatres: Magis satágite, ut per bona ópera certam vestram vocatiónem et electiónem faciátis: hæc enim faciéntes, non peccábitis aliquándo. Sic enim abundánter ministrábitur vobis intróitus in ætérnum regnum Dómini nostri, et Salvatóris Jesu Christi. Propter quod incípiam vos semper commonére de his: et quidem sciéntes et confirmátos vos in præsénti veritáte. Justum autem árbitror quámdiu sum in hoc tabernáculo, suscitáre vos in commonitióne: certus quod velox est depositío tabernáculi mei secúndum quod et Dóminus noster Jesus Christus significávit mihi.
+
+℟. Surge, illumináre, Jerúsalem, quia venit lumen tuum, \* Et glória Dómini super te orta est. ℣. Et ambulábunt gentes in lúmine tuo, et reges in splendóre ortus tui. — Et glória.
+
+#### Lectio ii
+
+DAbo autem óperam et frequénter habére vos post óbitum meum, ut horum memóriam faciátis. Non enim doctas fábulas

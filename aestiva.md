@@ -28490,3 +28490,39 @@ ESto, Dómine, plebi tuæ sanctificátor et custos: ut, Apóstoli tui Jacóbi mu
 PRǽsta, quæsumus, omnípotens Deus: ut, qui beáti Christóphori Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
 
 {RUBRIC: In Vesperis Commemoratio sequentis, ut infra.}
+
+---
+
+## Die 26 Julii
+
+# S. Annæ Matris B. Mariæ Virginis
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Communi non Virginum [130], præter ea quæ hic habentur propria.}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+### Oratio
+
+DEus, qui beátæ Annæ grátiam conférre dignátus es, ut Genitrícis unigéniti Fílii tui mater éffici mererétur: concéde propítius; ut, cujus solémnia celebrámus, ejus apud te patrocíniis adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: In I Nocturno Lectiones Mulíerem fortem, de eodem Communi. [132]}
+
+### In II Nocturno
+
+Sermo sancti Joánnis Damascéni
+
+{RUBRIC: Oratio 2 de Nativitate B. Mariæ, prope finem}
+
+#### Lectio iv
+
+PRopónitur nobis Annæ thálamus, conjugális vitæ simul et virginitátis formam réferens, illam matris, hanc fíliæ: quarum áltera recens sterilitáte liberáta est, áltera autem aliquánto post, Christi partum, ad nostræ natúræ conditiónem divíno opifício formátum, supra natúram est editúra. Mérito ígitur Anna, divíno Spíritu plena, lǽto hilaríque ánimo pérsonat: Congaudéte mecum, quæ promissiónis germen ex stérili ventre péperi, ac benedictiónis fructum ubéribus meis, ut optáveram, nútrio. Sterilitátis mæstítiam éxui, ac lætam fœcunditátis vestem índui. Congáudeat mecum hódie Anna illa, Phenénnæ adversária, et novum hoc atque inopinátum miráculum, quod in me gestum est, suo exémplo concélebret.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+EXsúltet Sara, seníli gáudio géstiens, meúmque ab sterilitáte con-

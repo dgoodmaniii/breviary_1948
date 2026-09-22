@@ -19758,4 +19758,30 @@ OMnia tempus habent, et suis spátiis tránseunt univérsa sub cælo. Tempus nas
 
 QUid habet ámplius homo de labóre suo? Vidi afflictiónem, quam dedit Deus fíliis hóminum, ut distendántur in ea. Cuncta fecit bona in témpore suo et mundum trádidit disputatióni eórum, ut non invéniat homo opus, quod operátus est Deus ab inítio usque ad finem. Et cognóvi quod non esset mélius nisi lætári et fácere bene in vita sua; omnis enim homo qui cómedit et bibit et videt bonum de labóre suo, hoc donum Dei est.
 
-℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+DIdici quod ómnia ópera, quæ fecit Deus, persevérent in perpétuum; non póssumus eis quidquam áddere nec auférre, quæ fecit Deus ut timeátur. Quod factum est ipsum pérmanet, quæ futúra sunt jam fuérunt, et Deus instáurat quod ábiit. Vidi sub sole in loco judícii impietátem et in loco justítiæ iniquitátem et dixi in corde meo: Justum et ímpium judicábit Deus, et tempus omnis rei tunc erit.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro Ecclesiástæ}
+
+##### Lectio i
+
+*Cap. 4, 1-13*
+
+VErti me ad ália et vidi calúmnias, quæ sub sole gerúntur, et lácrimas innocéntium et néminem consolatórem, nec posse resístere eórum violéntiæ cunctórum auxílio destitútos. Et laudávi magis mórtuos quam vivéntes et feliciórem utróque judicávi qui necdum natus est nec vidit mala quæ sub sole fiunt. Rursum contemplátus sum omnes labóres hóminum et indústrias animadvérti patére invídiæ próximi; et in hoc ergo vánitas et cura supérflua est.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio ii
+
+STultus complicat manus suas et comédit carnes suas dicens: Mélior

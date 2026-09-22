@@ -15752,3 +15752,56 @@ SED, cum falsus rumor exísset, tamquam vita excessísset Antíochus, assúmptis
 ℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+ADúltimum in exítium sui conclúsus ab Aréta Arabum tyránno, fúgiens de civitáte in civitátem, ómnibus odiósus, ut réfuga legum et exsecrábilis, ut pátriæ et cívium hostis in Ægýptum extrúsus est; et qui multos de pátria sua expúlerat péregre périit Lacedǽmonas proféctus quasi pro cognatióne ibi refúgium habitúrus; et qui insepúltos multos abjécerat, ipse et illamentátus et insepúltus abjícitur, sepultúra neque peregrína usus neque pátrio sepúlcro partícipans.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.
+
+---
+
+## Sabbato infra Hebdomadam IV Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 6, 1-12*
+
+SED non post multum témporis misit rex Antíochus senem quémdam Antiochénum, qui compélleret Judǽos, ut se transférrent a pátriis et Dei légibus, contamináre étiam, quod in Jerosólymis erat, templum et cognomináre Jovis Olýmpii, et in Garízim, prout erant hi qui locum inhabitábant, Jovis hospitális. Péssima autem et univérsis gravis erat malórum incúrsio; nam templum luxúria et commessatiónibus géntium erat plenum et scortántium cum meretrícibus, sacratísque ǽdibus mulíeres se ultro ingerébant intro ferentes ea quæ non licébat.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+ALtáre étiam plenum erat illícitis, quæ légibus prohibebántur; neque autem sábbata custodiebántur, neque dies solémnes pátrii servabántur, nec simplíciter Judǽum se esse quisquam confitebátur. Ducebántur autem cum amára necessitáte in die natális regis ad sacrifícia et, cum Líberi sacra celebrarént, cogebántur hédera coronáti Líbero circuíre. Decrétum autem éxiit in próximas gentílium civitátes, suggeréntibus Ptolemǽis, ut pari modo et ipsi advérsus Judǽos ágerent ut sacrificárent; eos autem, qui nollent transíre ad institúta géntium, interfícerent : erat ergo vidére misériam.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Et.}
+
+##### Lectio iii
+
+DUǼ enim mulíeres delátæ sunt natos suos circumcidísse, quas, infántibus ad úbera suspénsis, cum públice per civitátem circumduxíssent, per muros præcipitavérunt. Alii vero ad próximas coeúntes spelúncas et laténter sábbati diem celebrántes, cum indicáti essent Philíppo, flammis succénsi sunt, eo quod verebántur propter religiónem et observántiam manu síbimet auxílium ferre. Obsecro autem eos qui hunc librum lectúri sunt, ne abhorréscant propter advérsos casus, sed réputent ea quæ accidérunt non ad intéritum, sed ad correptiónem esse géneris nostri.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Sabbato ante Dominicam V Octobris
+
+{RUBRIC: nisi hæc occúrrat a die 29 ad 31 Octóbris; quia tunc, sequénti Antíphona omíssa, pónitur Antíphona Vidi Dóminum, quæ assignátur Sábbato ante Dominicam I Novémbris.}
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Tua est poténtia, \* tuum regnum, Dómine : tu es super omnes gentes : da pacem, Dómine, in diébus nostris.
+
+{RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica V Octobris
+
+{RUBRIC: In Dominica occurrénte a die 25 ad diem 31 Octóbris inclusíve, recólitur Festum Dómini nostri Jesu Christi Regis, ut in Próprio Sanctórum notátur.}

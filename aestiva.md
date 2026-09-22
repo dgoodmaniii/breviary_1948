@@ -23338,3 +23338,29 @@ Homilía sancti Joánnis Chrysóstomi
 VIrgínitas est bona: id ego quoque fáteor. Atqui núptiis étiam mélior; et istud tibi asséntior: ac si libet, illud adjúngam, tanto núptiis eam præstáre, quanto cælum terræ, quanto homínibus Angeli antecéllunt; ac, si quid prætérea addéndum est, étiam magis. Nam, si neque nubunt Angeli, neque uxórem ducunt, non étiam carne et sánguine coagmentáti sunt; in terris prætérea non commorántur, non cupiditátum aut libídinum perturbatiónibus sunt obnóxii, non cibi índigent aut potus; non sunt ejúsmodi, ut eos dulcis sonus aut cantus mollis aut præclára spécies possit allícere; nulla dénique ejus géneris illécebra capiúntur.
 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+AT humánum genus, cum natúra beátis illis méntibus inférius sit, omni vi studióque conténdit, ut, quoad ejus fíeri potest, illas assequátur. Quómodo? Non nubunt Angeli; at neque étiam virgo. Assisténtes illi semper ad Deum, eídem insérviunt; et istud ipsum virgo. Quod si vírgines, quámdiu córporis ónere deprimúntur, quemádmodum Angeli in cælum néqueunt ascéndere; illud eo vel máximo solátio compénsant, quod modo spíritu et córpore sancti sint, cæli Regem recípiunt. Vidésne virginitátis præstántiam? quómodo terrárum íncolas sic afficiat, ut qui córpore vestíti sunt, eos incorpóreis méntibus exǽquet?
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+QUA enim, quǽso, re differébant ab Angelis Elías, Eliséus, Joánnes, veri hi virginitátis amatóres? Nulla, nisi quod mortáli natúra constábant. Nam cétera si quis diligénter inquírat, hi níhilo minus afféctí reperiéntur, quam beátæ illæ mentes: et idípsum quo inferióre conditióne vidéntur esse, in magna est eórum laude ponéndum. Ut enim terrárum íncolæ, et ii qui essent mortáli natúra, possent ad illam virtútem vi et contentióne perveníre; vide quanta eos fortitúdine, quanta vitæ ratióne prǽditos fuísse opórteat!
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+CǼléstium donórum distribútor Deus, qui in angélico júvene Aloísio miram vitæ innocéntiam pari cum pœniténtia sociásti: ejus méritis et précibus concéde; ut innocéntem non secúti, pœniténtem imitémur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedentis.}
+
+---

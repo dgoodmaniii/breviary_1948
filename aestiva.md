@@ -29555,4 +29555,18 @@ COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córpor
 
 #### Lectio iv
 
-TIbério summo Pontífice, Joánnes patrícius Románus et uxor pari nobilitáte, cum líberos non suscepíssent, quos bonórum herédes relínquerent, suam hereditátem sanctíssimæ Vírgini Dei Matri vovérunt, ab ea summis précibus assídue
+TIbério summo Pontífice, Joánnes patrícius Románus et uxor pari nobilitáte, cum líberos non suscepíssent, quos bonórum herédes relínquerent, suam hereditátem sanctíssimæ Vírgini Dei Matri vovérunt, ab ea summis précibus assídue peténtes, ut in quod pium opus eam pecúniam potíssimum erogári vellet, áliquo modo significáret. Quorum preces et vota, ex ánimo facta, beáta Virgo María, benígne áudiens, miráculo comprobávit.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion: quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+#### Lectio v
+
+NOnis ígitur Augústi, quo témpore in Urbe máximi calóres esse solent, noctu nix partem collis Exquilíni contéxit. Qua nocte Dei Mater separátim Joánnem et cónjugem in somnis admónuit ut quem locum nive consférsum vidérent, in eo ecclésiam ædificárent, quæ Maríæ Vírginis nómine dedicarétur; se enim ita velle ab ipsis herédem institúi. Quod Joánnes ad Libérium Pontíficem détulit, qui idem per sómnium sibi contigísse affirmávit.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt.
+
+#### Lectio vi
+
+QUare solémni sacerdótum et pópuli supplicatióne ad collem venit nive coopértum, et in eo locum ecclésiæ designávit, quæ Joánnis et uxóris pecúnia exstrúcta est, póstea a Xysto tértio restitúta. Váriis nomínibus primum est appelláta, basílica Libérii, sancta María ad Præsépe; sed, cum multæ jam essent in Urbe ecclésiæ sub nómine sanctæ Maríæ Vírginis, ut quæ basílica novitáte miráculi ac dignitáte céteris ejúsdem nóminis basílicis præstáret, vocábuli étiam excelléntia significarétur, ecclésia sanctæ Maríæ majóris dicta est. Cujus dedicatiónis memória ex nive, quæ hac die mirabíliter cécidit, anniversária celebritáte cólitur.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: \* Unguéntum effúsum nomen tuum. ℣. Astítit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et. Glória Patri. Unguéntum.

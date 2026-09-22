@@ -20384,4 +20384,18 @@ PRO justítia agonizáre pro ánima tua et usque ad mortem certa pro justítia, 
 
 *Cap. 5, 1-16*
 
-NOli atténdere ad possessiónes iníquas, et ne díxeris: Est mihi sufficiens vita;
+NOli atténdere ad possessiónes iníquas, et ne díxeris: Est mihi sufficiens vita; nihil enim próderit in témpore vindíctæ et obductiónis. Ne sequáris in fortitúdine tua concupiscéntiam cordis tui, et ne díxeris: Quómodo pótui? aut quis me subjíciet propter facta mea? Deus enim vindicans vindicábit. Ne díxeris: Peccávi, et quid mihi áccidit triste? Altíssimus enim est pátiens rédditor. De propitiáto peccáto noli esse sine metu, neque adjícias peccátum super peccátum.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+ET ne dicas: Miserátio Dómini magna est, multitúdinis peccatórum meórum miserébitur; misericórdia enim et ira ab illo cito próximant, et in peccatóres réspicit ira illíus. Non tardes convérti ad Dóminum et ne dífferas de die in diem; súbito enim véniet ira illíus et in témpore vindíctæ dispérdet te. Noli ánxius esse in divítiis injústis; non enim próderunt tibi in die obductiónis et vindíctæ. Non véntiles te in omnem ventum et non eas in omnem viam; sic enim omnis peccátor probátur in dúplici lingua.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+##### Lectio iii
+
+ESto firmus in via Dómini et in veritáte sensus tui et sciéntia; et prosequátur te verbum pacis et justítiæ. Esto mansuétus ad audiéndum verbum, ut intélligas, et cum sapiéntia próferas respónsum verum. Si est tibi intelléctus, respónde próximo; sin autem, sit manus tua super os tuum, ne capiáris in verbo indisciplináto et confundáris. Honor et glória in sermóne sensáti; lingua vero imprudéntis subvérsio est ipsíus. Non appelléris susúrro, et lingua tua ne capiáris et confundáris.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit

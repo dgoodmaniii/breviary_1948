@@ -30312,4 +30312,12 @@ COllápsam ecclesiasticórum disciplínam ad formam apostólicæ vitæ instaurá
 
 #### Lectio vi
 
-DIvíni cultus stúdium, nitórem domus Dei, sacrórum rítuum observántiam et sanctíssimæ Eucharístiæ frequentiórem usum máxime promóvit. Hǽresum monstra et láte-
+DIvíni cultus stúdium, nitórem domus Dei, sacrórum rítuum observántiam et sanctíssimæ Eucharístiæ frequentiórem usum máxime promóvit. Hǽresum monstra et látebras non semel detéxit ac profligávit. Oratiónem ad octo passim horas júgibus lácrimis protrahébat: sæpe in éxtasim raptus ac prophetíæ dono illústris Romæ, nocte natalítia, ad præsépe Dómini infántem Jesum accípere méruit a Deípara in ulnas suas. Corpus íntegras noctes intérdum verberatiónibus affligébat; nec umquam addúci pótuit ut vitæ asperitátem emollíret, testátus in cínere et cilício velle se mori. Dénique, ex ánimi dolóre concépto morbo quod offéndi plebis seditióne Deum vidéret, cælésti visióne recreátus, Neápoli migrávit in cælum; ibíque corpus ejus in ecclésia sancti Pauli magna religióne cólitur. Quem, multis miráculis in vita et post mortem gloriósum, Clemens décimus, Póntifex máximus, Sanctórum número adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+CAjetánus, nóbili Thienǽa gente Vicéntiæ ortus, statim a matre Deíparæ Vírgini oblátus est. Patávii juris utriúsque láuream adéptus, Romam proféctus est, ubi inter prælátos a Júlio secúndo collocátus et sacerdótio initiátus est. Nosocomíis próprio ære fundátis, étiam morbo pestilénti laborántibus suis ipse mánibus inserviébat. Proximórum salúti assídue incumbébat, dictus proptérea Venátor animárum. Collápsam ecclesiasticórum disciplínam ad formam apostólicæ vitæ instauráre desíderans, órdinem Clericórum regulárium institúit, qui, abdicáta rerum ómnium terrenárum cura, nec réditus possidérent nec vitæ subsídia a fidélibus péterent, sed solis eleemósynis sponte oblátis víverent. Itaque, approbánte Cleménte séptimo, ad aram máximam basílicæ Vaticánæ una cum Joánne Petro Caráfa, epíscopo Theatíno, qui póstea Paulus quartus Póntifex máximus fuit, et áliis duóbus exímiæ pietátis viris, vota solémnia emísit. Divíni cultus stúdium, nitórem domus Dei, sacrórum rí-

@@ -24682,3 +24682,21 @@ PEtrus autem et Joánnes ascendébant in templum ad horam oratiónis nonam. Et q
 PEtrus autem dixit: Argéntum et aurum non est mihi: quod autem hábeo, hoc tibi do: In nómine Jesu Christi Nazaréni surge, et ámbula. Et, apprehénsa manu ejus déxtera, allevávit eum, et prótinus consolidátæ sunt bases ejus, et plantæ. Et exsíliens stetit, et ambulábat; et intrávit cum illis in templum ámbulans, et exsíliens, et laudans Deum. Et vidit omnis pópulus eum ambulántem, et laudántem Deum. Cognoscébant autem illum, quod ipse erat, qui ad eleemósynam sedébat ad Speciósam portam templi: et impléti sunt stupóre et éxtasi in eo, quod contígerat illi.
 
 ℟. Si díligis me, Simon Petre, pasce oves meas. Dómine, tu nosti, quia amo te, \* Et ánimam meam pono pro te. ℣. Si oportúerit me mori tecum, non te negábo. — Et ánimam.
+
+#### Lectio iii
+
+CUM tenéret autem Petrum et Joánnem, cucúrrit omnis pópulus ad eos ad pórticum, quæ appellátur Salomónis, stupéntes. Videns autem Petrus, respóndit ad pópulum: Viri Israëlítæ, quid mirámini in hoc, aut nos quid intuémini, quasi nostra virtúte aut potestáte fecérimus hunc ambuláre? Deus Abraham, et Deus Isaac, et Deus Jacob, Deus patrum nostrórum glorificávit Fílium suum Jesum, quem vos quidem tradidístis et negástis ante fáciem Piláti, judicánte illo dimítti. Vos autem Sanctum et Justum negástis, et petístis virum homicídam donári vobis: Auctórem vero vitæ interfecístis, quem Deus suscitávit a mórtuis, cujus nos testes sumus. Et in fide nóminis ejus, hunc, quem vos vidístis et nostis, confirmávit nomen ejus: et fides, quæ per eum est, dedit íntegram sanitátem istam in conspéctu ómnium vestrum.
+
+℟. Tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam: \* Et tibi dabo claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et. Glória Patri. Et.
+
+#### In II Nocturno
+
+Sermo sancti Leónis Papæ
+
+*Sermo 1 in natáli App. Petri et Pauli*
+
+#### Lectio iv
+
+OMnium quidem sanctárum solemnitátum, dilectíssimi, totus mundus est párticeps, et uníus fídei píetas éxigit, ut quidquid pro salúte universórum gestum recólitur, commúnibus ubíque gáudiis celebrétur. Verúmtamen hodiérna festívitas, præter illam reveréntiam quam toto terrárum orbe proméruit, speciáli et própria nostræ Urbis exsultatióne veneránda est; ut, ubi præcipuórum Apostolórum glorificátus est éxitus, ibi in die martýrii eórum sit lætítiæ principátus. Isti enim sunt viri, per quos tibi Evangélium Christi, Roma, resplénduit; et, quæ eras magístra erróris, facta es discípula veritátis.
+
+℟. Dómine, si tu es, jube me veníre ad te super aquas. \* Et exténdens manum apprehéndit eum, et dixit Jesus: Módicæ fídei, quare dubitásti? ℣. Cumque vidísset ven-

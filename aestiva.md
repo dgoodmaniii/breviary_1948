@@ -31881,3 +31881,53 @@ Te Deum laudámus.
 ###### Oratio C 1
 
 DEus, qui nos beáti Hyacínthi Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Octávæ Assumptionis:}
+
+**Ant.** Quæ est ista quæ ascéndit sicut auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta?
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+###### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur. (Qui tecum vivit.)
+
+{RUBRIC: Deinde Commemoratio diéi Octávæ S. Laurentii Mart.:}
+
+**Ant.** In craticula te Deum non negávi, et ad ignem applicátus te Christum conféssus sum: probásti cor meum, et visitásti nocte: igne me examinásti, et non est invénta in me iníquitas.
+
+℣. Dispérsit, dedit paupéribus. ℟. Justítia ejus manet in sæculum sæculi.
+
+###### Oratio
+
+EXcita, Dómine, in Ecclésia tua Spíritum, cui beátus Lauréntius Levíta servívit: ut, eódem nos repléti, studeámus amáre quod amávit, et ópere exercére quod dócuit. Per Dóminum... in unitáte ejúsdem.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commemoratio sequéntis diéi infra Octávam et S. Agapiti Mart., ut infra.}
+
+---
+
+### Die 18 Augusti
+
+#### De IV die infra Octav. Assumptionis B. M. V.
+
+{RUBRIC: Semiduplex 888}
+
+**Ant.** Virgo prudentíssima, quo progréderis, quasi auróra valde rútilans? Fília Sion, tota formósa et suávis es, pulchra ut luna, elécta ut sol.
+
+{RUBRIC: Si vero hac die faciéndum non sit Offícium de Octáva, dícitur}
+
+**Ant.** Hódie María Virgo cælos ascéndit: gaudéte, quia cum Christo regnat in ætérnum.
+
+℣. Exaltáta et Oratio Famulórum, ut supra.
+
+{RUBRIC: Pro Com. S. Agapiti Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.

@@ -15664,3 +15664,64 @@ IGitur, cum sancta cívitas habitarétur in omni pace, leges étiam adhuc óptim
 ##### Lectio ii
 
 SED, cum víncere Oníam non posset, venit ad Apollónium Tharsǽæ fílium, qui eo témpore erat dux Cœlesýriæ et Phœnícis, et nuntiávit ei pecúniis innumerabílibus plenum esse ærárium Jerosólymis et commúnes cópias imménsas esse, quæ non pértinent ad ratiónem sacrificiórum; esse autem possíbile sub potestáte regis cádere univérsa. Cumque retulísset ad regem Apollónius de pecúniis quæ delátæ erant, ille accítum Heliodórum, qui erat super negótia ejus, misit cum mandátis, ut prædíctam pecúniam transportáret. Statímque Heliodórus iter est aggréssus, spécie quidem quasi per Cœlesýriam et Phœnícen civitátes esset peragratúrus, re vera autem regis propósitum perfectúrus.
+
+℟. Tu, Dómine universórum, qui nullam habes indigéntiam, voluísti templum tuum fíeri in nobis : \* Consérva domum istam immaculátam in ætérnum, Dómine. ℣. Tu elegísti, Dómine, domum istam ad invocándum nomen tuum in ea, ut esset domus oratiónis et obsecratiónis pópulo tuo. — Consérva.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Consérva.}
+
+##### Lectio iii
+
+SED, cum venísset Jerosólymam et benígne a summo sacerdóte in civitáte esset excéptus, narrávit de dato indício pecuniárum et cujus rei grátia adésset apéruit; interrogábat autem si vere hæc ita essent. Tunc summus sacérdos osténdit depósita esse hæc et victuália viduárum et pupillórum; quǽdam vero esse Hircáni Tobíæ viri valde eminéntis in his, quæ detúlerat ímpius Simon; univérsa autem argénti talénta esse quadringénta et auri ducénta : décipi vero eos qui credidíssent loco et templo, quod per univérsum mundum honorátur, pro sui veneratióne et sanctitáte omníno impossíbile esse.
+
+℟. Aperi óculos tuos, Dómine, et vide afflictiónem nostram : circumdedérunt nos gentes ad puniéndum nos : \* Sed tu, Dómine, exténde bráchium tuum, et líbera ánimas nostras. ℣. Afflíge oppriméntes nos et contuméliam faciéntes in supérbiam; et custódi partem tuam. — Sed. Glória Patri. Sed.
+
+---
+
+## Feria Quarta infra Hebdomadam IV Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 3, 23-29*
+
+HEliodórus autem quod decréverat perficiébat eódem loco ipse cum satellítibus circa ærárium præsens. Sed spíritus omnipoténtis Dei magnam fecit suæ ostensiónis evidéntiam, ita ut omnes qui ausi fúerant paréré ei, ruéntes Dei virtúte in dissolutiónem et formídinem converteréntur. Appáruit enim illis quidam equus terríbilem habens sessórem, óptimis operiméntis adornátus. Isque cum ímpetu Heliodóro prióres calces elísit; qui autem ei sedébat videbátur arma habére áurea.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+ALii étiam apparuérunt duo júvenes virtúte decóri, óptimi glória speciosíque amíctu, qui circumstetérunt eum et ex utráque parte flagellábant sine intermissióne multis plagis verberántes. Súbito autem Heliodórus cóncidit in terram, eúmque multa calígine circumfúsum rapuérunt atque in sella gestatória pósitum ejecérunt. Et is, qui cum multis cursóribus et satellítibus prædíctum ingréssus est ærárium, portabátur nullo sibi auxílium ferénte, manifésta Dei cógnita virtúte. Et ille quidem per divínam virtútem jacébat mutus atque omni spe et salúte privátus.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+*Cap. 3, 32-34*
+
+COnsíderans autem summus sacérdos ne forte rex suspicarétur malítiam áliquam ex Judǽis circa Heliodórum consummátam, óbtulit pro salúte viri hóstiam salutárem. Cumque summus sacérdos exoráret, iídem júvenes eísdem véstibus amícti astántes Heliodóro dixérunt : Oníæ sacerdóti grátias age, nam propter eum Dóminus tibi vitam donávit. Tu autem a Deo flagellátus, núntia ómnibus magnália Dei et potestátem. Et, his dictis, non comparuérunt.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Quinta infra Hebdomadam IV Octobris
+
+{RUBRIC: Si hæc Féria post diem 25 Octóbris occúrrat, ita ut hæc sit última hebdómada mensis, hac nocte et duábus sequéntibus, sumúntur Lectiónes Fériæ II, III et IV Hebdómadæ V Octóbris, juxta órdinem históriæ et martýrii Machabæórum, cum Responsóriis tamen de Féria curránti. Quod si omnes dici nequeant, quæ posterióreum locum obtínent, eo anno omittúntur.}
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 4, 1-11*
+
+SImon autem prædíctus pecuniárum et pátriæ delátor male loquebátur de Onía, tamquam ipse Heliodórum instigásset ad hæc et ipse fuísset incéntor malórum, provisorémque civitátis ac defensórem gentis suæ et æmulatórem legis Dei audébat insidiatórem regni dícere. Sed, cum inimicítiæ in tantum procéderent, ut étiam per quosdam Simónis necessários homicídia fíerent, consíderans Onías perículum contentiónis et Apollónium insaníre, útpote ducem Cœlesýriæ et Phœnícis, ad augéndam malítiam Simónis ad regem se cóntulit, non ut cívium accusátor, sed commúnem utilitátem apud semetípsum univérsæ multitúdinis consíderans.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem, et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+VIdébat enim sine regáli providéntia impossíbile esse pacem rebus dari, nec Simónem posse cessáre a stultítia sua. Sed post Seléuci vitæ excéssum, cum suscepísset regnum Antíochus, qui Nóbilis appellabátur, ambiébat Jason frater Oníæ summum sacerdótium. Adíto rege, promíttens ei argénti talénta trecénta sexagínta et ex redítibus áliis talénta octogínta, super hæc promittébat et ália centum quinquagínta, si potestáti ejus concederétur gymnásium et ephebíam sibi constitúere et eos qui in Jerosólymis erant, Antiochénos scríbere.
+
+℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}

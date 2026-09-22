@@ -16471,3 +16471,20 @@ ET constítuit eis rex annónam per síngulos dies de cibis suis et de vino unde
 ET ait princeps eunuchórum ad Daniélem : Tímeo ego dóminum meum regem, qui constítuit vobis cibum et potum; qui, si víderit vultus vestros macilentióres præ céteris adolescéntibus coǽvis vestris, condemnábitis caput meum regi. Et dixit Dániel ad Málasar, quem constítuerat princeps eunuchórum super Daniélem, Ananíam, Misaélem et Azaríam : Tenta nos, óbsecro, servos tuos diébus decem, et déntur nobis legúmina ad vescéndum et aqua ad bibéndum, et contempláre vultus nostros et vultus puerórum qui vescúntur cibo régio, et, sicut víderis, fácies cum servis tuis. Qui, audíto sermóne hujuscémodi, tentávit eos diébus decem. Post dies autem decem, apparuérunt vultus eórum melióres et corpulentióres præ ómnibus púeris qui vescebántur cibo régio.
 
 ℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Athanásii Epíscopi ad Vírgines}
+*Liber de Virginitate, post init.*
+
+##### Lectio iv
+
+SI accédant áliqui, et dicant tibi : Ne frequénter jejúnes, ne imbecíllior fias; ne credas illis, neque auscúltes : per istos enim inimícus hæc súggerit. Remíniscere ejus quod scriptum est, quod, cum tres púeri, et Dániel, et álii adolescéntuli, captívi ducti essent a Nabuchodónosor rege Babylónis, jussúmque esset ut de ipsíus mensa régia coméderent et de vino bíberent; Dániel et tres púeri illi noluérunt póllui ex mensa regis, sed dixérunt eunúcho qui eos curándos suscéperat : Da nobis de semínibus terræ, et vescémur. Quibus ait eunúchus : Tímeo ego regem, qui constítuit vobis cibum et potum, ne forte fácies vestræ appáreant regi squalidióres præ céteris púeris qui régia mensa alúntur, et púniat me.
+
+℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio v
+
+CUI dixérunt illi : Tenta servos tuos dies decem, et da nobis de semínibus. Et dedit eis legúmina ad vescéndum, et aquam ad bibéndum; et introdúxit eos in conspéctu regis, et vísæ sunt fácies ipsórum speciosióres præ céteros púeros, qui régiæ mensæ cibis nutriebántur. Vidésne quid fáciat jejúnium? Morbos sanat, distillatiónes córporis exsíccat, dæmones fugat, pravas cogitatiónes expéllit, mentem clariórem reddit, cor mundum éfficit, corpus sanctíficat, dénique ad thronum Dei hóminem sistit. Et ne putes hæc témere dici; habes hujus rei testimónium in Evangéliis a Salvatóre prolátum. Cum enim quæsivíssent discípuli quonam modo immúndi spíritus ejiceréntur, respóndit Dóminus : Hoc genus non ejícitur, nisi in oratióne et jejúnio.
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.

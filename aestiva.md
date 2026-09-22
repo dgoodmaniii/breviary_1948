@@ -23495,4 +23495,38 @@ DOcet nos Scriptúra divína non solum mores in iis qui prædicábiles sunt, sed
 
 #### Lectio ii
 
-ET uxor, inquit, illi de filiábus Aaron. Non solum ígitur a paréntibus, sed étiam a majóribus sancti Joánnis nobílitas propagátur, non sæculári potestáte sublímis, sed religiónis successióne venerábilis. Tales enim majóres habére débuit prænúntius Christi; ut non repénte concéptam, sed a majóribus accéptam et ipso infúsam jure natúræ, prædicáre fidem Domínici vidérétur advéntus. Erant, inquit, ambo justi ante Deum, incedéntes in ómnibus mandátis et justificatiónibus Dómini sine queréla. Quid ad hoc réfe-
+ET uxor, inquit, illi de filiábus Aaron. Non solum ígitur a paréntibus, sed étiam a majóribus sancti Joánnis nobílitas propagátur, non sæculári potestáte sublímis, sed religiónis successióne venerábilis. Tales enim majóres habére débuit prænúntius Christi; ut non repénte concéptam, sed a majóribus accéptam et ipso infúsam jure natúræ, prædicáre fidem Domínici vidérétur advéntus. Erant, inquit, ambo justi ante Deum, incedéntes in ómnibus mandátis et justificatiónibus Dómini sine queréla. Quid ad hoc réferunt qui, peccátis suis solátia præferéntes, sine peccátis frequéntibus hóminem putant esse non posse; et utúntur versículo, quia scriptum est in Job: Nemo mundus a sorde, nec si uníus diéi vita ejus sit in terra?
+
+#### Lectio iii
+
+QUibus respondéndum est, prius ut quid sit hóminem sine peccáto esse, defíniant: utrum numquam omníno peccásse, an desiísse peccáre. Si enim hoc putant sine peccáto esse, numquam omníno peccásse; et ipse conséntio. Omnes enim peccavérunt, et egent glória Dei. Sin autem eum qui véterem errórem corréxerit et in eam se vitæ transformáverit qualitátem, ut témperet a peccáto, negant abstinére a delíctis: non possum in eórum conveníre senténtiam, cum legámus, quia Sic Dóminus diléxit Ecclésiam, ut exhíbeat ipsam sibi gloriósam, et non habéntem máculam, aut rugam, aut áliquid ejúsmodi; sed ut sit sancta et immaculáta.
+
+###### Oratio
+
+PRæsta, quǽsumus, omnípotens Deus: ut família tua per viam salútis incédat; et, beáti Joánnis Præcursóris hortaménta sectándo, ad eum quem prædíxit, secúra pervéniat, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum.
+
+{RUBRIC: Vesperæ de sequenti.}
+
+---
+
+## Die 24 Junii
+
+# In Nativitate S. Joannis Baptistae
+
+[IMAGE]
+
+{RUBRIC: Duplex I Classis cum Octava Communi}
+
+### In I Vesperis
+
+**Ant. 1** Ipse præíbit \* ante illum in spíritu et virtúte Elíæ paráre Dómino plebem perféctam.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolorum. [3]}
+
+**2** Joánnes \* est nomen ejus: vinum et síceram non bibet, et multi in nativitáte ejus gaudébunt.
+
+**3** Ex útero senectútis \* et stérili Joánnes natus est, præcúrsor Dómini.
+
+**4** Iste puer \* magnus coram Dómino: nam et manus ejus cum ipso est.
+
+**5** Nazarǽus \* vocábitur puer iste: vinum et síce-

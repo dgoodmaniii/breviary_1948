@@ -15016,3 +15016,63 @@ ET, ut cessávit loqui verba hæc, accéssit quidam Judǽus in ómnium óculis s
 ℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+ET exclamávit Mathathías voce magna in civitáte dicens : Omnis qui zelum habet legis státuens testaméntum éxeat post me. Et fugit ipse et fílii ejus in montes, et reliquérunt quæcúmque habébant in civitáte. Tunc descendérunt multi quæréntes judícium et justítiam in desértum. Et sedérunt ibi ipsi et fílii eórum et mulíeres eórum et pécora eórum, quóniam inundavérunt super eos mala.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Quinta infra Hebdomadam I Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 2, 49-69*
+
+ET appropinquavérunt dies Mathathíæ moriéndi, et dixit fíliis suis : Nunc confortáta est supérbia et castigátio et tempus eversiónis et ira indignatiónis. Nunc ergo, o fílii, æmulatóres estóte legis et date ánimas vestras pro testaménto patrum vestrórum et mementóte óperum patrum, quæ fecérunt in generatiónibus suis, et accipiétis glóriam magnam et nomen ætérnum. Abraham, nonne in tentatióne invéntus est fidélis, et reputátum est ei ad justítiam? Joseph in témpore angústiæ suæ custodívit mandátum, et factus est dóminus Ægýpti; Phínees pater noster zelándo zelum Dei accépit testaméntum sacerdótii ætérni.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem, et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+JEsus, dum implévit verbum, factus est dux in Israël; Caleb, dum testificátur in ecclésia, accépit hereditátem; David in sua misericórdia consecútus est sedem regni in sǽcula; Elías, dum zelat zelum legis, recéptus est in cælum; Ananías et Azarías et Mísael credéntes liberáti sunt de flamma; Dániel in sua simplicitáte liberátus est de ore leónum; et ita cogitáte per generatiónem et generatiónem, quia omnes qui sperant in eum non infirmántur. Et a verbis viri peccatóris ne timuéritis, quia glória ejus stercus et vermis est : hódie extóllitur et cras non inveniétur, quia convérsus est in terram suam, et cogitátio ejus périit.
+
+℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}
+
+##### Lectio iii
+
+VOS ergo, fílii, confortámini et viríliter ágite in lege, quia in ipsa gloriósi éritis. Et ecce Simon frater vester, scio quod vir consílii est : ipsum audíte semper, et ipse erit vobis pater; et Judas Machabǽus fortis víribus a juventúte sua sit vobis princeps militíæ et ipse aget bellum pópuli, et adducétis ad vos omnes factóres legis et vindicáte vindíctam pópuli vestri, retribúite retributiónem géntibus et inténdite in præcéptum legis. Et benedíxit eos et appósitus est ad patres suos.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta infra Hebdomadam I Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+*Cap. 2, 70; 3, 1-3, 5-12, 25-28*
+
+##### Lectio i
+
+DEfúnctus est Mathathías anno centésimo et quadragésimo sexto et sepúltus est a fíliis suis in sepúlcris patrum suórum in Modin, et planxérunt eum omnis Israël planctu magno. Et surréxit Judas, qui vocabátur Machabǽus, fílius ejus pro eo et adjuvábant eum omnes fratres ejus et univérsi qui se conjúnxerant patri ejus et præliabántur prǽlium Israël cum lætítia. Et dilatávit glóriam pópulo suo, et persecútus est iníquos perscrútans eos et, qui conturbábant pópulum suum, eos succéndit flammis, et repúlsi sunt inimíci ejus præ timóre ejus, et omnes operárii iniquitátis conturbáti sunt, et dirécta est salus in manu ejus.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte, quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum, et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit Pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio ii
+
+ET exacerbábat reges multos et lætificábat Jacob in opéribus suis, et in sǽculum memória ejus in benedictióne, et perambulávit civitátes Juda et pérdidit ímpios ex eis et avértit iram ab Israël et nominátus est usque ad novíssimum terræ et congregávit pereúntes. Et congregávit Apollónius gentes et a Samaría virtútem multam et magnam ad bellándum contra Israël. Et cognóvit Judas et éxiit óbviam illi et percússit et occídit illum, et cecidérunt vulneráti multi, et réliqui fugérunt. Et accépit spólia eórum et gládium Apollónii ábstulit Judas et erat pugnans in eo ómnibus diébus.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+ET cécidit timor Judæ ac fratrum ejus et formído super omnes gentes in circúitu eórum; et pervénit ad regem nomen ejus, et de prǽliis Judæ narrábant omnes gentes. Ut audívit autem rex Antíochus sermónes istos, irátus est ánimo et misit et congregávit exércitum univérsi regni sui, castra fórtia valde, et apéruit ærárium suum et dedit stipéndia exercítui in annum et mandávit illis, ut essent paráti ad ómnia.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.

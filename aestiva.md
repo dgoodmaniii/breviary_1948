@@ -23813,4 +23813,44 @@ QUod autem nondum natus de secréto matérni úteri prophetávit, et expers luci
 
 #### Lectio vi
 
-QUod autem Joánnes in cárcere constitútus ad Christum discípulos suos órdinat; lex ad Evangélium transmíttit. Quæ lex juxta typum Joánnis, quasi ignorántiæ clausa cárcere, in obscúro et in occúlto jacébat, et Judáica cæcitáte sensus intra lítteram tenebátur inclúsus. De hoc beátus Evangelísta prolóquitur: Ille erat lucérna ardens, id est, Spíritus Sancti igne succénsus, ut mundo ignorántiæ nocte possésso lumen salútis
+QUod autem Joánnes in cárcere constitútus ad Christum discípulos suos órdinat; lex ad Evangélium transmíttit. Quæ lex juxta typum Joánnis, quasi ignorántiæ clausa cárcere, in obscúro et in occúlto jacébat, et Judáica cæcitáte sensus intra lítteram tenebátur inclúsus. De hoc beátus Evangelísta prolóquitur: Ille erat lucérna ardens, id est, Spíritus Sancti igne succénsus, ut mundo ignorántiæ nocte possésso lumen salútis osténderet, et quasi inter densíssimas delictórum ténebras splendidíssimum justítiæ solem lucis suæ rádio demonstráret, et de seípso dicens: Ego vox clamántis in desérto.
+
+℟. Innuébant patri ejus quem vellet vocári eum; et póstulans pugillárem, scripsit dicens: \* Joánnes est nomen ejus. ℣. Apértum est os Zacharíæ, et prophetávit dicens. — Joánnes. Glória Patri. Joánnes.
+
+#### In III Nocturno
+
+**Ant.** Pósuit os meum \* Dóminus quasi gládium acútum: sub umbra manus suæ protéxit me.
+
+#### Psalmus 14
+
+DOmine, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam:
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua:
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus: \* timéntes autem Dóminum gloríficat:
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Pósuit os meum Dóminus quasi gládium acútum: sub umbra manus suæ protéxit me.
+
+**Ant.** Formans me \* ex útero servum sibi Dóminus, dicit: Dedi te in lucem géntium, ut sis salus mea usque ad extrémum terræ.
+
+#### Psalmus 20
+
+DOmine, in virtúte tua lætábitur rex: \* et super salutáre tuum exsultábit veheménter.
+
+Desidérium cordis ejus tribuísti ei: \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis: \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te: \* et tribuísti ei longitúdinem diérum in sǽculum, et in sǽculum sǽculi.
+
+Magna est glória ejus in salutári tuo: \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sǽculum sǽculi: \* lætificábis

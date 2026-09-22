@@ -31577,4 +31577,34 @@ HOdie Virgo immaculáta, quæ nullis terrénis inquináta est afféctibus, sed c
 
 #### Lectio vi
 
-HEva, quæ serpéntis suggestióni assénsum prǽbuit, partus dolóre et mortis senténtia damnátur, et in inferórum collocátur penetrálibus. Hanc autem vere beátam, quæ Dei verbo aures præstitit, et Spíritus Sancti opera-
+HEva, quæ serpéntis suggestióni assénsum prǽbuit, partus dolóre et mortis senténtia damnátur, et in inferórum collocátur penetrálibus. Hanc autem vere beátam, quæ Dei verbo aures præstitit, et Spíritus Sancti operatióne repléta est, atque ad Archángeli spiritálem salutatiónem, sine voluptáte et viríli consórtio, Dei Fílium concépit, et sine dolóre áliquo péperit, ac totam se Deo consecrávit, quónam modo mors devoráret? quómodo ínferi suscíperent? quómodo corrúptio inváderet corpus illud, in quo Vita suscépta est? Huic recta, plana et fácilis ad cælum paráta est via. Si enim, Ubi ego sum, illic et miníster meus erit, inquit vita et véritas Christus; quómodo non pótius mater cum ipso erit?
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes Virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti. Glória Patri. Genuísti.
+
+### In III Nocturno
+
+{RUBRIC: Antiphonæ et Psalmi de Communi. [184]}
+
+℣. María Virgo assúmpta est ad æthéreum thálamum. ℟. In quo Rex regum stelláto sedet sólio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 10, 38-42*
+
+IN illo témpore: Intrávit Jesus in quoddam castéllum; et múlier quædam, Martha nómine, excépit illum in domum suam. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 27 de verbis Dómini, tom. 10}
+
+SAnctum Evangélium cum legerétur, audívimus a fémina religiósa suscéptum esse Dóminum hospítio, eáque Martha vocabátur. Et, cum esset ipsa occupáta in cura ministrándi, soror ejus María sedébat ad pedes Dómini et audiébat verbum ejus. Laborábat illa, vacábat ista: illa erogábat, hæc implebátur. Verúmtamen Martha, labórans multum in illa occupatióne et negótio ministrándi, interpellávit Dóminum, et de soróre sua conquésta est, quod eam laborántem non adjuváret.
+
+℟. Diffúsa est grátia in lábiis tuis: \* Proptérea benedíxit te Deus in ætérnum. ℣. Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis, ex quibus delectavérunt te fíliæ regum in honóre tuo. — Proptérea.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+#### Lectio viii
+
+DOminus autem pro María respóndit Marthæ; et ipse ejus factus est ad-

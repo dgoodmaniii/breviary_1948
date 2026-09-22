@@ -24784,3 +24784,53 @@ Amen.
 ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
 
 **Ad Bened. Ant.** Quodcúmque \* ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis: dicit Dóminus Simóni Petro.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Petrus et Joánnes \* ascendébant in templum ad horam oratiónis nonam.
+
+### Ad Tertiam
+
+**Ant.** Argéntum et aurum \* non est mihi: quod autem hábeo, hoc tibi do.
+
+#### Capitulum
+
+*Act. 12, 1-3*
+
+MIsit Heródes rex manus ut affligeret quosdam de Ecclésia. Occídit autem Jacóbum fratrem Joánnis gládio. Videns autem quia placéret Judǽis, appósuit ut apprehénderet et Petrum.
+
+℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+### Ad Sextam
+
+**Ant.** Dixit Angelus ad Petrum: \* Circúmda tibi vestiméntum tuum, et séquere me.
+
+#### Capitulum
+
+*Act. 12, 5*
+
+PEtrus quidem servabátur in cárcere; orátio autem fiébat sine intermissióne ab Ecclésia ad Deum pro eo.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. Glória Patri. Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+### Ad Nonam
+
+**Ant.** Tu es Petrus, \* et super hanc petram ædificábo Ecclésiam meam.
+
+#### Capitulum
+
+*Act. 12, 11*
+
+ET Petrus ad se revérsus dixit: Nunc scio vere quia misit Dóminus Angelum suum, et erípuit me de manu Heródis et de omni exspectatióne plebis Judæórum.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+### In II Vesperis
+
+{RUBRIC: Antiphonæ et Psalmi de Communi [18]; Capitulum

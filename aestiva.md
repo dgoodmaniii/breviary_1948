@@ -32892,4 +32892,44 @@ VIdéte, ne áliquem istórum contemnátis parvulórum, quia eórum Angeli Patri
 
 DOminum ígitur étiam nos imitémur, et nihil pro frátribus omittámus, étiam eórum quæ humília vilíaque nímium vidéntur. Sed, si administratióne nostra étiam opus fúerit, quamvis ténuis atque abjéctus quidem, cui administrándum sit, fúerit, quamvis árdua nobis res atque labóris plena esse videátur; ómnia hæc pro fratris salúte tolerabilióra facilióraque, oro, videántur. Tanto enim stúdio tantáque cura Deus dignam esse ánimam osténdit, ut neque Fílio suo pepércerit.
 
-℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+SI non est nobis satis ad salútem quod virtuóse ipsi vivámus, sed opórtet aliórum salútem re ipsa desideráre; cum neque nos recte vivámus neque álios hortémur, quid respondébimus? quæ nobis spes salútis réliqua erit? Quid majus quam ánimis moderári, quam adolescentulórum fíngere mores? Omni certe pictóre, omni certe statuário, ceterísque hujúsmodi ómnibus excellentiórem hunc duco, qui júvenum ánimos fíngere non ignóret.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui per sanctum Joséphum Confessórem tuum, ad erudiéndam spíritu intelligéntiæ ac pietátis juventútem, novum Ecclésiæ tuæ subsídium providére dignátus es: præsta quǽsumus, nos ejus exémplo et intercessióne ita fácere, et docére, ut prǽmia consequámur ætérna. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis et S. Hérmetis Mart.}
+
+---
+
+### Die 28 Augusti
+
+#### S. Augustini
+
+{RUBRIC: Ep., Conf. et Eccl. Doct. Duplex [69]}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Augustíne, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio
+
+ADésto supplicatiónibus nostris, omnípotens Deus: et, quibus fidúciam sperándæ pietátis indúlges, intercedénte beáto Augustíno Confessóre tuo atque Pontífice, consuétæ misericórdiæ tríbue benígnus efféctum. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.

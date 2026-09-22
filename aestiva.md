@@ -27443,3 +27443,15 @@ DEus, qui pópulo tuo ætérnæ salútis beátum Bonaventúram minístrum tribu�
 BOnaventúra, Balneorégii in Etrúria natus, a letháli morbo adhuc puer, beáti Francísci précibus, cujus religióni, si convaluísset, voto matris dicátus fúerat, evásit incólumis. Itaque adoléscens fratrum Minórum institútum amplécti vóluit, in quo ad eam doctrínæ præstántiam Alexándro de Ales magístro pervénit, ut séptimo post anno Parísiis magistérii láuream adéptus, libros Sententiárum públice summa cum laude sit interpretátus, quos étiam præcláris póstea commentáriis illustrávit. Nec sciéntiæ solum eruditióne, sed et morum integritáte vitæque innocéntia, humilitáte, mansuetúdine, terrenárum rerum contémptu et cæléstium desidério miríffice excélluit; dignus plane, qui tamquam perfectiónis exémplar haberétur, et a beáto Thoma Aquináte, cui summa caritáte conjúnctus erat, sanctus appellarétur. Is enim, cum sancti Francísci vitam illum scribéntem comperísset: Sinámus, ait, Sanctum pro Sancto laboráre.
 
 ℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus enim mea.
+
+#### Lectio v
+
+DIvíni amóris flamma succénsus, erga Christi Dómini passiónem, quam júgiter meditabátur, ac Deíparam Vírginem, cui se totum devóverat, singulári ferebátur pietátis afféctu; quem in áliis étiam verbo et exémplo excitáre, scriptísque opúsculis augére summópere stúduit. Hinc illa morum suávitas, grátia sermónis et cáritas in omnes effúsa, qua singulórum ánimos sibi arctíssime devinciébat. Quam ob rem, vix quinque et trigínta annos natus, Romæ summo ómnium consénsu generális órdinis miníster eléctus est; susceptúmque munus per duodevigínti annos admirábili prudéntia gessit ac laude sanctitátis. Plura constítuit regulári disciplínæ et amplificándo órdini utília; quem una cum áliis ordínibus mendicántibus advérsus obtrectatórum calúmnias felíciter propugnávit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus enim mea auxiliábitur ei.
+
+#### Lectio vi
+
+AD Lugdunénse concílium a beáto Gregório décimo accersítus et cardinális epíscopus Albanénsis creátus, árduis concílii rebus egrégiam navávit óperam; qua et schísmatis dissídia compósita sunt, et ecclesiástica dógmata vindicáta. Quibus in labóribus, anno ætátis suæ quinquagésimo tértio, salútis vero millésimo ducentésimo septuagésimo quarto, summo ómnium mæróre decéssit, ab univérso concílio, ipso præsénte Románo Pontífice, fúnere honestátus. Eum Xystus quartus, plúrimis maximísque clarum miráculis, in Sanctórum númerum rétulit. Multa scripsit, in quibus summam eruditiónem cum pietátis ardóre conjúngens, lectórem docéndo movet: quare a Xysto quinto Doctóris Seráphici nómine mérito est insignítus.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.

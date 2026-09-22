@@ -26606,3 +26606,66 @@ FAC nos, Dómine Deus, supereminéntem Jesu Christi sciéntiam, spíritu Pauli A
 {RUBRIC: Et fit Commemoratio Oct. Ss. Petri et Pauli App.}
 
 **Ant.** Gloriósi príncipes terræ, quómodo in vita sua dilexérunt se, ita et in morte non sunt separáti.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 6 Julii
+
+#### In Octava Ss. Petri et Pauli App.
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Antiphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti Hebdómadæ die, ut in Psalterio; réliqua de Communi [6], præter ea quæ hic habéntur própria.}
+
+##### In I Vesperis
+
+###### Capit.
+
+*Ephes. 2, 19-20*
+
+FRatres: Jam non estis hóspites et ádvenæ; sed estis cives sanctórum, et doméstici Dei, superædificáti super fundaméntum Apostolórum et Prophetárum, ipso summo angulári lápide Christo Jesu.
+
+###### Hymnus
+
+EXsúltet orbis gáudiis,
+Cælum resúltet láudibus:
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices,
+Et vera mundi lúmina,
+Votis precámur córdium:
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter
+In fine Christus sæculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+**Ad Magnif. Ant.** Petrus Apóstolus \* et Paulus Doctor géntium, ipsi nos docuérunt legem tuam, Dómine.

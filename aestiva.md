@@ -30163,4 +30163,53 @@ Te Deum laudámus.
 
 #### Lectio ix
 
-TU vero Matthǽi philosophíam consídera, qui non celávit nómina eórum qui præpósiti fúerant. Quod et Joánnes sǽpius facit, cum exímias Petri
+TU vero Matthǽi philosophíam consídera, qui non celávit nómina eórum qui præpósiti fúerant. Quod et Joánnes sǽpius facit, cum exímias Petri laudes veríssime ac diligentíssime descríbat. Nullum enim in hoc Apostolórum consórtio livor aut inánis glória locum habébat. Primos ígitur Apostolórum seórsum assúmpsit. Quam ob rem eos solos accépit? Quia excellentióres céteris vidélicet erant. Cur autem non íllico, sed post sex dies hoc fecit? Ne céteri scílicet discípuli seu hómines moveréntur; qua de re nec eos nominávit, quos acceptúrus erat.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Antiphonæ}
+
+**1** Assúmpsit Jesus \* Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit eos in montem excélsum seórsum, et transfigurátus est ante eos.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Resplénduit \* fácies ejus sicut sol, vestiménta autem ejus facta sunt alba sicut nix, allelúja.
+
+**3** Et ecce \* apparuérunt eis Móyses et Elías loquéntes cum Jesu.
+
+**4** Respóndens autem Petrus \* dixit ad Jesum: Dómine, bonum est nos hic esse.
+
+**5** Adhuc eo loquénte, \* ecce nubes lúcida obumbrávit eos.
+
+**Capit.** *Philipp. 3, 20-21*
+
+SAlvatórem exspectámus Dóminum nostrum Jesum Christum, qui reformábit corpus humilitátis nostræ configurátum córpori claritátis suæ.
+
+#### Hymnus
+
+LUX alma, Jesu, méntium,
+Dum corda nostra récreas,
+Culpæ fugas calíginem,
+Et nos reples dulcédine.
+
+Quam lætus est, quem vísitas!
+Consors Patérnæ déxteræ,
+Tu dulce lumen pátriæ,
+Carnis negátum sénsibus.
+
+Splendor Patérnæ glóriæ,
+Incomprehénsa cáritas,
+Nobis amóris cópiam
+Largíre per præséntiam.
+
+Jesu, tibi sit glória,
+Qui te revélas párvulis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Coróna áurea super caput ejus. ℟. Expréssa signo sanctitátis, glóriæ et honóris.
+
+**Ad Bened. Ant.** Et ecce \* vox de nube dicens: Hic est Fílius meus diléctus, in quo mihi complácui; ipsum audíte, allelúja.

@@ -30300,4 +30300,16 @@ DEus, qui beáto Cajetáno Confessóri tuo apostólicam vivéndi formam imitári
 
 #### Lectio iv
 
-CAjetánus, nóbili Thienǽa gente Vicéntiæ ortus, statim a matre Deíparæ Vír-
+CAjetánus, nóbili Thienǽa gente Vicéntiæ ortus, statim a matre Deíparæ Vírgini oblátus est. Mira a téneris annis morum innocéntia in eo elúxit, ádeo ut Sanctus ab ómnibus nuncuparétur. Juris utriúsque láuream Patávii adéptus, Romam proféctus est; ubi, inter prælátos a Júlio secúndo collocátus, et sacerdótio initiátus, tanto divíni amóris æstu succénsus est, ut relícta aula se totum Deo mancipáverit. Nosocomíis próprio ære fundátis, étiam morbo pestilénti laborántibus, suis ipse mánibus inserviébat. Proximórum salúti assídua cura incumbébat, dictus proptérea Venátor animárum.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+COllápsam ecclesiasticórum disciplínam ad formam apostólicæ vitæ instauráre desíderans, órdinem Clericórum regulárium institúit, qui, abdicáta rerum ómnium terrenárum sollicitúdine, nec réditus possidérent nec vitæ subsídia a fidélibus péterent, sed solis eleemósynis sponte oblátis víverent. Itaque, approbánte Cleménte séptimo, ad aram máximam basílicæ Vaticánæ una cum Joánne Petro Caráfa, epíscopo Theatíno, qui póstea Paulus quartus Póntifex máximus fuit, et áliis duóbus exímiæ pietátis viris, vota solémnia emísit. In Urbis direptióne a milítibus crudelíssime vexátus ut pecúniam próderet, quam dudum in cæléstes thesáuros manus páuperum deportáverant, vérbera, torménta et cárceres invícta patiéntia sustínuit. In suscépto vitæ institúto constantíssime perseverávit, soli divínæ providéntiæ inhǽrens, quam sibi numquam defuísse áliquándo mirácula comprobárunt.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+#### Lectio vi
+
+DIvíni cultus stúdium, nitórem domus Dei, sacrórum rítuum observántiam et sanctíssimæ Eucharístiæ frequentiórem usum máxime promóvit. Hǽresum monstra et láte-

@@ -32237,3 +32237,15 @@ OMnípotens et miséricors Deus, qui beátam Joánnam Franciscam tuo amóre succ
 ℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
 
 {RUBRIC: Oratio Famulórum, ut supra.}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JOánna Francísca Frémiot de Chantal, Divióne in Burgúndia claríssimis orta natálibus, ab ineúnte ætáte exímiæ sanctitátis non obscúras édidit significatiónes. Eam enim, vix quinquénnem, nóbilem quemdam Calvinístam sólida supra ætátem argumentatióne perstrinxísse ferunt, collatúmque ab eo munúsculum flammis íllico tradidísse, in hac verba: En quómodo hærétici apud ínferos comburéntur, qui loquénti Christo fidem detréctant. Matre orbáta, Deíparæ Vírginis tutélæ se commendávit, et fámulam, quæ ad mundi amórem eam alliciébat, ab se rejécit. Nihil puríle in móribus éxprimens, a sǽculi delíciis abhórrens martyriúmque anhélans, religióni ac pietáti impénse studébat. Baróni de Chantal núptui a patre trádita, virtútibus ómnibus excoléndis óperam dedit; líberos, fámulos, aliósque sibi subjéctos in fídei doctrína bonísque móribus imbúere sátagens. Profúsa liberalitáte páuperum inópiam sublevábat, annóna divínitus non raro multiplicáta; quo factum est, ut némini se umquam, Christi nómine rogánti stipem, abnegatúram spopónderit.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+VIro in venatióne interémpto, perfectióris vitæ consílium íniens, continéntiæ voto se obstrínxit. Viri necem non solum ǽquo ánimo tulit, sed, in públicum indúltæ véniæ testimónium, occisóris fílium e sacro fonte suscípere sui victrix elégit. Módica família, ténui victu atque vestítu conténta, pretiósas vestes in pios usus convértit. Quidquid a domésticis curis supérerat témporis, précibus, piis lectiónibus laboríque impendébat. Numquam addúci pótuit ut álteras núptias, quamvis útiles et honoríficas, iníret. Ne autem a propósito castimóniæ observándæ in pósterum dimoverétur, illíus voto innováto, sanctíssimum Jesu Christi nomen candénti ferro péctori inscúlpsit. Ardéntius in dies caritáte fervéscens, páuperes, derelíctos, ægros, teterrimísque morbis infé-

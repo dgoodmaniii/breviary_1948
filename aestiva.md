@@ -22650,4 +22650,26 @@ Homilía sancti Joánnis Chrysóstomi
 
 CUM Dóminus omnem sollicitúdinem a discipulórum córdibus ejécerit, et ostensióne signórum armáverit, atque, ab ómnibus negótiis sæculáribus alienátos et ab omni temporálium rerum cura liberátos, férreos quodámmodo atque adamántinos fécerit, tum dénique eventúra illis advérsa prædícit. Multa enim ex hac prædictióne futurárum rerum cómmoda consequebántur. Primum, ut ejus præsciéntiæ vim edíscerent. Deínde, ut nemo suspicarétur, ex Magístri infirmitáte tam grávia mala descéndere. Prætérea, ne, qui ea passúri erant, súbito ac inopináto rerum evéntu perturbaréntur. Dénique, ne, cum ista sub ipsum passiónis suæ tempus audírent, nímium commoveréntur.
 
-℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+JAM vero, ut intélligant novum hoc esse belli genus et insólitum præliándi morem, cum illos nudos mítteret, una indútos túnica, sine cálceis, absque virga et absque zona et pera, et ab excipiéntibus ali jubéret, non fecit hic dicéndi finem, sed inexplicábilem virtútem suam próferens, Etiam sic eúntes, inquit, mansuetúdinem tamen óvium osténdite, quamvis ad lupos itúri, nec simplíciter ad lupos, sed étiam in médio lupórum: (neque vero óvium tantum mansuetúdinem habére jubet, sed étiam colúmbæ simplicitátem); sic enim virtútem meam máxime osténdam, cum ab óvibus lupi superabúntur; et quamvis illæ sint in médio lupórum, et innúmeris mórsibus lacaréntur, non modo non consúmptæ fúerint, verum étiam illos in sui natúram transmutáverint.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quórum.
+
+#### Lectio ix
+
+MAjus certe atque admirábilius est mentem adversariórum commutáre, et ánimum in divérsum transférre, quam illos occídere; præsértim cum duódecim tantum essent, et lupis plenus esset orbis univérsus. Erubescámus ígitur, qui, longe divérsa faciéntes, tamquam lupi in adversários rúimus. Nam, quámdiu oves fuérimus, víncimus; étiam si mille circúmstent lupi, superámus, et victóres sumus. Quod si lupi fuérimus, víncimur; tunc enim a nobis pastóris auxílium recédit, qui non lupos, sed oves pascit.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Bened. Ant.** Vos qui reliquístis \* ómnia, et secúti estis me, céntuplum accipiétis, et vitam ætérnam possidébitis.
+
+###### Oratio
+
+DEus, qui nos beáti Bárnabæ Apóstoli tui méritis et intercessióne lætíficas: concéde propítius, ut qui tua per eum benefícia póscimus, dono tuæ grátiæ consequámur. Per Dñum.

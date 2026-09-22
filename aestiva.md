@@ -21256,4 +21256,16 @@ Homilía sancti Augustíni Epíscopi
 
 *Sermo 44 de verbis Domini, circa initium*
 
-DE júvene illo resuscitáto gavísa est mater vídua; de homínibus in
+DE júvene illo resuscitáto gavísa est mater vídua; de homínibus in spíritu quotídie suscitátis gaudet mater Ecclésia. Ille quidem mórtuus erat córpore; illi autem mente. Illíus mors visíbilis visibíliter plangebátur; illórum mors invisíbilis nec quærebátur, nec videbátur. Quæsívit ille, qui nóverat mórtuos. Ille solus nóverat mórtuos, qui póterat fácere vivos. Nisi enim ad mórtuos suscitándos venísset, Apóstolus non díceret: Surge, qui dormis, et exsúrge a mórtuis, et illuminábit te Christus.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+TRes autem mórtuos invenímus a Dómino resuscitátos visibíliter, míllia invisibíliter. Quot autem mórtuos visibíliter suscitáverit, quis novit? Non enim ómnia, quæ fecit, scripta sunt. Joánnes hoc dixit: Multa ália fecit Jesus, quæ si scripta essent, árbitror totum mundum non posse libros cápere. Multi ergo sunt álii sine dúbio suscitáti, sed non tres frustra commemoráti. Dóminus enim noster Jesus Christus ea, quæ faciébat corporáliter, étiam spiritáliter volébat intélligi. Neque enim tantum mirácula propter mirácula faciébat; sed ut illa, quæ faciébat, mira essent vidéntibus, vera essent intelligéntibus.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+QUemádmodum qui videt lítteras in códice óptime scripto, et non novit légere, laudat quidem antiquárii manum, admírans ápicum pulchritúdinem; sed quid sibi velint, quid indícent illi ápices, nescit, et est óculis laudátor, mente non cógnitor. Alius autem et laudat artifícium, et capit intelléctum: ille útique, qui non

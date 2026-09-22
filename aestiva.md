@@ -23529,4 +23529,56 @@ PRæsta, quǽsumus, omnípotens Deus: ut família tua per viam salútis incédat
 
 **4** Iste puer \* magnus coram Dómino: nam et manus ejus cum ipso est.
 
-**5** Nazarǽus \* vocábitur puer iste: vinum et síce-
+**5** Nazarǽus \* vocábitur puer iste: vinum et síceram non bibet, et omne immúndum non manducábit ex útero matris suæ.
+
+#### Capitulum
+
+*Is. 49, 1*
+
+AUdíte, ínsulæ, et atténdite, pópuli de longe: Dóminus ab útero vocávit me, de ventre matris meæ recordátus est nóminis mei.
+
+#### Hymnus
+
+UT queant laxis resonáre fíbris
+Mira gestórum fámuli tuórum,
+Solve pollúti lábii reátum, Sancte Joánnes.
+
+Núntius celso véniens Olýmpo,
+Te patri magnum fore nascitúrum,
+Nomen, et vitæ sériem geréndæ Ordine promit.
+
+Ille promíssi dúbius supérni,
+Pérdidit promptæ módulos loquélæ;
+Sed reformásti génitus perémptæ Organa vocis.
+
+Ventris obstrúso récubans cubíli
+Sénseras Regem thálamo manéntem;
+Hinc parens nati méritis utérque Abdita pandit.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus omni Témporis ævo.
+
+Amen.
+
+℣. Fuit homo missus a Deo. ℟. Cui nomen erat Joánnes.
+
+**Ad Magnif. Ant.** Ingrésso \* Zacharía templum Dómini, appáruit ei Gábriel Angelus stans a dextris altáris incénsi.
+
+#### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+**Invitat.** Regem Præcursóris Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus.
+
+#### Hymnus
+
+ANtra desérti téneris
+Sub annis,
+Cívium turmas fúgiens, petísti,
+Ne levi posses maculáre vitam
+Crímine linguæ.

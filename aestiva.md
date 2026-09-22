@@ -29105,3 +29105,51 @@ DEus, qui beátum Petrum Apóstolum, a vínculis absolútum, illǽsum abíre fec
 #### Oratio
 
 DEus, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quæsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Deinde Commem. Ss. Machabæorum Martyrum:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+#### Oratio
+
+FRatérna nos, Dómine, Mártyrum tuórum coróna lætíficet: quæ et fídei nostræ præbeat increménta virtútum; et multíplici nos suffrágio consolétur. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Heródes rex \* appósuit ut apprehénderet et Petrum; quem, cum apprehendísset, misit in cárcerem, volens post Pascha prodúcere eum pópulo.
+
+### Ad Tertiam
+
+**Ant.** Petrus quidem, {RUBRIC: ut supra. 820}
+
+{RUBRIC: Capitulum Misit Heródes, ut ad Laudes.}
+
+{RUBRIC: ℟. br. In omnem terram \* Exívit sonus eórum. In omnem. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In omnem. ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.}
+
+{RUBRIC: Oratio Deus, qui beátum, ut supra. 820}
+
+### Ad Sextam
+
+**Ant.** Dixit Angelus, {RUBRIC: ut supra. 820}
+
+#### Capitulum
+
+*Act. 12, 5*
+
+PEtrus quidem servabátur in cárcere; orátio autem fiébat sine intermissióne ab Ecclésia ad Deum pro eo.
+
+{RUBRIC: ℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. Glória Patri. Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.}
+
+### Ad Nonam
+
+**Ant.** Tu es Petrus, {RUBRIC: ut supra. 820}
+
+#### Capitulum
+
+*Act. 12, 11*
+
+ET Petrus ad se revérsus dixit: Nunc scio vere quia misit Dóminus Angelum suum, et erípuit me de manu Heródis et de omni exspectatióne plebis Judæórum.
+
+{RUBRIC: ℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.}

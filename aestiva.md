@@ -31693,3 +31693,49 @@ ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi,
 {RUBRIC: ℟. br. Assúmpta est María in cælum: \* Gaudent Angeli. Assúmpta. ℣. Laudántes benedícunt Dóminum. Gaudent. Glória Patri. Assúmpta.}
 
 ℣. María Virgo assúmpta est ad æthéreum thálamum. ℟. In quo Rex regum stelláto sedet sólio.
+
+### Ad Nonam
+
+**Ant.** Pulchra es \* et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+#### Capitulum
+
+*Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta, dedi suavitátem odóris.
+
+{RUBRIC: ℟. br. María Virgo assúmpta est \* Ad æthéreum thálamum. María. ℣. In quo Rex regum stelláto sedet sólio. Ad. Glória Patri. María.}
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis, præter Ant. ad Magnif.}
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+**Ad Magnif. Ant.** Hódie \* María Virgo cælos ascéndit: gaudéte, quia cum Christo regnat in ætérnum.
+
+#### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum vivit.
+
+{RUBRIC: Et fit Commemoratio sequéntis, ut infra.}
+
+---
+
+{RUBRIC: Infra Octávam et in die Octáva Antíphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua ut in Festo præter Lectiónes, quæ étiam in I Nocturno pro síngulis diébus assignántur própriæ.}
+
+---
+
+## Die 16 Augusti
+
+# S. Joachim Patris B. Mariæ V., Conf.
+
+{RUBRIC: DUPLEX II CLASSIS}
+
+{RUBRIC: Omnia de Communi Conf. non Pont. [94], præter ea quæ hic habéntur própria. (m. t. v.)}
+
+**Ant.** Laudémus virum gloriósum in generatióne sua, quia benedictiónem ómnium géntium dedit illi Dóminus, et testaméntum suum confirmávit super caput ejus.
+
+℣. Potens in terra erit semen ejus. ℟. Generátio rectórum benedicétur.

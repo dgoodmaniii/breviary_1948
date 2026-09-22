@@ -25965,3 +25965,23 @@ Homilía sancti Augustíni Epíscopi
 *Tractatus 120 in Joánnem*
 
 VIgilánti verbo Evangelísta usus est, ut non díceret: Latus ejus percússit, aut vulnerávit, aut quid áliud, sed Apéruit; ut illic quodámmodo vitæ óstium panderétur, unde sacraménta Ecclésiæ manavérunt, sine quibus ad vitam, quæ vera vita est, non intrátur. Ille sanguis qui fusus est, in remissiónem fusus est peccatórum. Aqua illa salutáre témperat póculum; hæc et lavácrum præstat et potum.
+
+Hoc prænuntiábat quod Noë in látere arcæ óstium fácere jussus est, quo intrárent animália quæ non erant dilúvio peritúra, quibus præfigurabátur Ecclésia. Propter hoc prima múlier facta est de látere viri dormiéntis, et appelláta est vita matérque vivórum. Magnum quippe significávit bonum, ante magnum prævaricatiónis malum. Hic secúndus Adam, inclináto cápite, in cruce dormívit, ut inde formarétur ei conjux, quæ de látere dormiéntis efflúxit. O mors, unde mórtui revivíscunt! Quid isto sánguine múndius? Quid vúlnere isto salúbrius?
+
+℟. Hic est, qui venit per aquam et sánguinem, Jesus Christus: \* Non in aqua solum, sed in aqua et sánguine. ℣. In die illa erit fons patens dómui David et habitántibus Jerúsalem in ablutiónem peccatóris. — Non.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+*Enarrat. in Psalm. 95, n. 5*
+
+TEnebántur hómines captívi sub diábolo, et dæmónibus serviébant; sed redémpti sunt a captivitáte. Véndere enim se potuérunt, sed redímere non potuérunt. Venit Redémptor, et dedit prétium; fudit sánguinem suum, et emit orbem terrárum. Quǽritis quid émerit? Vidéte quid déderit, et inveniétis quid émerit. Sanguis Christi prétium est. Tanti quid valet? quid, nisi totus orbis? quid, nisi omnes gentes? Valde ingráti sunt prétio suo, aut multum supérbi sunt, qui dicunt, aut illud tam parum esse, ut solos Afros émerit, aut se tam magnos esse pro quibus solis illud sit datum. Non ergo exsúltent, non supérbiant. Pro toto dedit, quantum dedit.
+
+℟. Prædestinávit nos Deus in adoptiónem filiórum per Jesum Christum, \* In quo habémus redemptiónem per sánguinem ejus. ℣. Remissiónem peccatórum secúndum divítias grátiæ ejus, quæ superabundávit in nobis. — In. Glória Patri. In.
+
+#### Lectio ix
+
+*Sermo 31, álias 344*
+
+HAbuit ille sánguinem, unde nos redímeret; et ad hoc accépit sánguinem, ut esset quem pro nobis rediméndis effúnderet. Sanguis Dómini tui, si vis, datus est pro te; si nolúeris esse, non est datus pro te. Forte enim dicis: Hábuit sánguinem Deus meus, quo me redí-

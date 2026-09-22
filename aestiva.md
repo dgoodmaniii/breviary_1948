@@ -21287,3 +21287,23 @@ ECclésiam tuam, Dómine, miserátio contináta mundet et múniat: et quia sine 
 ℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
 
 **Ad Magnif. Ant.** Prophéta magnus \* surréxit in nobis, et quia Deus visitávit plebem suam.
+
+---
+
+# Proprium Sanctorum
+
+[IMAGE]
+
+{RUBRIC: In ómnibus Festis novem Lectiónum Dómini, beátæ Maríæ Vírginis, Angelórum, sancti Joánnis Baptístæ, sancti Joseph, Apostolórum, Evangelistárum, necnon in ómnibus Duplícibus I vel II classis, íntegrum Offícium dícitur ut in Próprio vel Communi, et Lectiónes I Noctúrni cum suis Responsóriis, nisi própriæ vel specialíter assignátæ habeántur, sumúntur de Communi 1 loco.}
+
+{RUBRIC: In réliquis vero Festis novem Lectiónum, nisi própria suis locis assignéntur, Antiphónæ et Psalmi ad omnes Horas, et ad Matutínum Versus Nocturnórum, dicúntur de occurrénti hebdómadæ die, ad Laudes quidem et Féria IV étiam in III Noctúrno, 1 loco; Lectiónes I Noctúrni de Scriptúra occurrénti, vel resuméndæ aut anticipándæ juxta Rúbricas, cum suis Responsóriis de Témpore; quæ si omníno desint, Lectiónes et Responsória de Communi 1 loco, nisi áliter própriis locis notétur; réliqua ómnia ítem de Communi, nempe prǽter Oratiónem:}
+
+{RUBRIC: Ad utrásque Vésperas et Laudes Capítulum, Hymnus, Versus et Antíphona ad Magníficat vel Benedíctus.}
+
+{RUBRIC: Ad Matutínum Invitatórium, Hymnus, Lectiónes II et III Noctúrni cum suis Responsóriis.}
+
+{RUBRIC: Ad Primam Léctio brevis, pro qua sumítur Capítulum Nonæ.}
+
+{RUBRIC: Ad Tértiam, Sextam et Nonam Capítulum et ℟. breve.}
+
+{RUBRIC: Per Octávas autem commúnes, simíliter Antiphónæ et Psalmi dicúntur de occurrénti hebdómadæ die, réliqua, nisi áliter suis locis notétur, ut in Festo: sed Lectiónes et Responsória I Noctúrni, nisi própria habeántur, sumúntur de Scriptúra occurrénti, ut supra, et iis deficiéntibus, Lectiónes in diébus infra Octávam dicúntur de Communi, in die Octáva, et pro Festis Dómini Commúne non habéntibus étiam infra Octávam, ut in Festo; Responsória vero,

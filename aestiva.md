@@ -32968,4 +32968,34 @@ HAC Augustíni pietáte commótus Valérius, eum adjutórem adhíbuit episcopál
 
 TAM multa pie, subtíliter et copióse scripsit, ut christiánam doctrínam máxime illustrárit. Quem in primis secúti sunt, qui póstea theológicam disciplínam via et ratióne tradidérunt. Vándalis Áfricam bello vastántibus et Hippónem tértium jam mensem obsidéntibus, in febrim íncidit. Itaque, cum discéssum e vita sibi ínstáre intellígeret, Psalmos David qui ad pœniténtiam pértinent, in conspéctu pósitos, profúsis lácrimis legébat. Solébat autem dícere, néminem, etsi nullíus scéleris sibi cónscius esset, commíttere debére ut sine pœniténtia migráret e vita. Ergo sénsibus íntegris, in oratióne defíxus, astántibus frátribus, quos ad caritátem, pietátem virtutésque omnes erat adhortátus, migrávit in cælum. Vixit annos septuagínta sex, in episcopátu ad trigínta sex. Cujus corpus, primum in Sardíniam delátum, deínde a Luitprándo, Longobardórum rege, magno prétio redémptum, Ticínum translátum est ibíque honorífice cónditum.
 
-℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse intercédat pro peccátis ómnium populórum. Glória Patri. Ipse.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+AUgustínus, Tagáste in África honéstis paréntibus natus, brevi ǽquálibus ómnibus doctrína præstitit. Adoléscens, dum esset Carthágine, in Manichæórum hæresim íncidit. Póstea Romam proféctus, inde Mediolánum missus ut rhetóricam docéret, cum ibi, suadénte Mónica, pientíssima ejus matre, frequens Ambrósii epíscopi esset audítor, ejus ópera incénsus stúdio cathólicæ fídei, annos natus trigínta tres ab ipso baptizátur. Revérsus in África, cum religióne vitæ sanctimóniam conjúngens, a Valério, notæ sanctitátis epíscopo Hipponénsi, présbyter factus est. Quo témpore famíliam institúit religiosórum, quibúscum victu commúni eodémque cultu utens, eos ad apostólicæ vitæ doctrinǽque disciplínam diligentíssime erudiébat. Hac Augustíni pietáte commótus Valérius, eum adjutórem adhíbuit episcopális offícii. Multa pie, subtíliter et copióse scripsit, ut hǽreses profligáret et christiánam doctrínam illustráret. Vándalis África bello vastántibus et Hippónem tértio jam mense obsidéntibus, febri corréptus, migrávit ad Dóminum, ætátis suæ anno septuagésimo sexto. Ejus corpus, primo in Sardíniam, deínde Ticínum translátum, ibi honorífice cólitur.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Comm. Doctórum 1 loco. [90]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+ADésto supplicatiónibus nostris, omnípotens Deus: et quibus fidúciam sperándæ pietátis indúlges, intercedénte beáto Augustíno Confessóre tuo atque Pontífice, consuétæ misericórdiæ tríbue benígnus efféctum. Per Dóminum.
+
+{RUBRIC: Et fit Com. S. Hermetis M.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.

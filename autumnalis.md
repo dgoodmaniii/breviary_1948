@@ -15725,3 +15725,30 @@ VIdébat enim sine regáli providéntia impossíbile esse pacem rebus dari, nec 
 ℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}
+
+##### Lectio iii
+
+QUod cum rex annuísset, et obtinuísset principátum, statim ad gentílem ritum contribúles suos transférre cœpit. Et, amótis his quæ humanitátis causa Judǽis a régibus fúerant constitúta, per Joánnem patrem Eupólemi, qui apud Romános de amicítia et societáte functus est legatióne, legítima cívium jura destítuens prava institúta sanciébat.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta infra Hebdomadam IV Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 5, 1-10*
+
+EOdem témpore Antíochus secúndam profectiónem parávit in Ægýptum. Cóntigit autem per univérsam Jerosolymórum civitátem vidéri diébus quadragínta per áëra équites discurréntes aurátas stolas habéntes et hastis, quasi cohórtes, armátos, et cursus equórum per órdines digéstos et congressiónes fíeri cóminus et scutórum motus et galeatórum multitúdinem gládiis districtis et telórum jactus et aureórum armórum splendórem omnísque géneris loricárum. Quapróbter omnes rogábant in bonum monstra convérti.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio ii
+
+SED, cum falsus rumor exísset, tamquam vita excessísset Antíochus, assúmptis Jason non minus mille viris, repénte aggréssus est civitátem, et, cívibus ad murum convolántibus, ad últimum apprehénsa civitáte, Meneláus fugit in arcem. Jason vero non parcébat in cæde cívibus suis nec cogitábat prosperitátem advérsum cognátos, malum esse máximum árbitrans hóstium et non cívium se trophǽa captúrum. Et principátum quidem non obtínuit, finem vero insidiárum suárum confusiónem accépit et prófugus íterum ábiit in Ammaníten.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}

@@ -33440,3 +33440,15 @@ DEus, qui in liberándis fidélibus tuis ab impiórum captivitáte beátum Raym�
 ℣. Diffúsa est grátia.
 
 {RUBRIC: Oratio Bonórum ómnium, ut supra.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+RAymúndus, Nonnátus cognoménto dictus, quia prǽter commúnem natúræ legem e mórtuæ matris dissécto látere in lucem edúctus fuit, Portélli in Cataláunia piis et nobílibus paréntibus ortus, ab ipsa infántia futúræ sanctitátis indícia dedit. Nam puerília oblectaménta mundíque illécebras réspuens, ita pietáti óperam dabat, ut omnes in púero adúltam virtútem admiraréntur. Crescénte vero ætáte, litterárum stúdiis incúbuit; sed mox, jubénte patre, vitam ruri agens, sacéllum sancti Nicolái, in Portélli fínibus situm, crebro adíbat, ut sacram Deíparæ imáginem, quæ in eo summa fidélium veneratióne étiam nunc cólitur, visitáret. Ibi effúsus in preces, ipsam Dei paréntem, ut se in fílium adoptáre viámque salútis ac sciéntiam Sanctórum edocére dignarétur, eníxe deprecabátur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+NEC défuit votis ejus benigníssima Virgo. Ab ipsa enim intelléxit gratíssimum sibi fore, si religiónem sub título de Mercéde seu de misericórdia redemptiónis captivórum, ea suggerénte nuper fundátam, ingrederétur. Qua monitióne percépta, Barcinónem statim proféctus, illud tam præcelléntis erga próximum caritátis institútum ampléxus est. Regulári ígitur milítiæ adscríptus, virginitátem, quam pridem beátæ Vírgini consecráverat, perpétuo cóluit, ceterísque virtútibus enítuit, caritáte præsértim erga Christiános qui sub potestáte paganórum míseram in captivitáte vitam degébant. Hos ut redímeret, in Áfricam missus, cum jam multos a servitúte liberásset, ne, consúmpta pecúnia, áliis item in próximo abnegándæ fídei discrímine constitútis deésset, se ipsum pígnori dedit. Sed cum, ardentíssimo salútis animárum desidério succénsus, plures Mahometános suis conciónibus ad Christum convérteret, in arctam custódiam a bárbaris conjéctus variísque

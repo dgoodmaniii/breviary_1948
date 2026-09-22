@@ -31552,3 +31552,29 @@ NOlíte me consideráre quod fusca sim, quia decolorávit me sol. Fílii matris 
 MUrénulas áureas faciémus tibi vermiculátas argénto. Dum esset rex in accúbitu suo, nardus mea dedit odórem suum. Fascículus myrrhæ diléctus meus mihi, inter úbera mea commorábitur. Botrus Cypri diléctus meus mihi in víneis Engáddi. Ecce tu pulchra es, amíca mea, ecce tu pulchra es; óculi tui columbárum. Ecce tu pulcher es, dilécte mi, et decórus. Léctulus noster flóridus, tigna domórum nostrárum cédrina, laqueária nostra cypréssina.
 
 ℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt. Glória Patri. Vidérunt.
+
+### In II Nocturno
+
+{RUBRIC: Antiphonæ et Psalmi de Communi. [180]}
+
+℣. Assúmpta est María in cælum: gaudent Angeli. ℟. Laudántes benedícunt Dóminum.
+
+{RUBRIC: Sermo sancti Joánnis Damascéni}
+
+{RUBRIC: Oratio 2 de Dormitióne B. M. V. post inítium}
+
+#### Lectio iv
+
+HOdie sacra et animáta arca Dei vivéntis, quæ suum in útero concépit Creatórem, requiéscit in templo Dómini, quod nullis est exstrúctum mánibus. Et David exsúltat ejus parens, et cum eo choros ducunt Angeli, célebrant Archángeli, Virtútes glorificant, Principátus exsúltant, Potestátes collætántur, gaudent Dominatiónes, Throni festum diem agunt, laudant Chérubim, glóriam ejus prǽdicant Séraphim. Hódie Eden novi Adam paradísum súscipit animátum, in quo solúta est condemnátio, in quo plantátum est lignum vitæ, in quo opérta fuit nostra núditas.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: Unguéntum effúsum nomen tuum. ℣. Astítit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et.
+
+#### Lectio v
+
+HOdie Virgo immaculáta, quæ nullis terrénis inquináta est afféctibus, sed cæléstibus educáta cogitatiónibus, non in terram revérsa est; sed, cum esset animátum cælum, in cæléstibus tabernáculis collocátur. Ex qua enim ómnibus vera vita manávit, quómodo illa mortem gustáret? Sed cedit legi latæ ab eo quem génuit; et, ut fília véteris Adam, véterem senténtiam súbiit (nam et ejus Fílius, qui est vita ipsa, eam non recusávit); ut autem Dei vivéntis Mater, ad illum ipsum digne assúmitur.
+
+℟. Beátam me dicent omnes generatiónes, \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia.
+
+#### Lectio vi
+
+HEva, quæ serpéntis suggestióni assénsum prǽbuit, partus dolóre et mortis senténtia damnátur, et in inferórum collocátur penetrálibus. Hanc autem vere beátam, quæ Dei verbo aures præstitit, et Spíritus Sancti opera-

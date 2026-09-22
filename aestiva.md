@@ -32500,4 +32500,16 @@ Sermo sancti Bernárdi Abbátis
 
 #### Lectio iv
 
-NOn est équidem quod me magis deléctet, sed nec est quod térreat magis, quam de glória Vírginis Maríæ habére sermónem. Ecce enim, si in ea laudávero virginitátem, mihi multæ vírgines post eam vidéntur offérri. Si humilitátem prædicávero, inveniéntur forte vel pauci, qui, docénte Fílio ejus, mites fa-
+NOn est équidem quod me magis deléctet, sed nec est quod térreat magis, quam de glória Vírginis Maríæ habére sermónem. Ecce enim, si in ea laudávero virginitátem, mihi multæ vírgines post eam vidéntur offérri. Si humilitátem prædicávero, inveniéntur forte vel pauci, qui, docénte Fílio ejus, mites facti sunt et húmiles corde. Si magnificáre volúero misericórdiæ ejus multitúdinem, sunt áliqui misericórdiæ viri, étiam et mulíeres. Unum est in quo nec primam símilem visa est, nec habére sequéntem, gáudia matris habens cum virginitátis honóre. Maríæ privilégium est, non dábitur álteri: singuláre est, sed contínuo étiam indicíbile invenítur.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: Unguéntum effúsum nomen tuum. ℣. Astítit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et.
+
+#### Lectio v
+
+VErúmtamen, non hoc tantum, si diligénter atténdas, sed céteras quoque virtútes singuláres prorsus invénies in María, quæ videbántur esse commúnes. Quæ enim vel angélica púritas virginitáti illi áudeat comparári, quæ digna fuit Spíritus Sancti sacrárium fíeri et habitáculum Fílii Dei? Quanta vero et quam pretiósa humilitátis virtus cum tanta puritáte, cum innocéntia tanta, cum sciéntia prorsus absque delícto, immo cum tantæ grátiæ plenitúdine? Unde tibi humílitas, et tanta humílitas, o beáta? Digna plane quam respíceret Dóminus, cujus decórem concupísceret Rex, cujus odóre suavíssimo ab ætérno illo Patérni sinus attraherétur accúbitu.
+
+℟. Beátam me dicent omnes generatiónes, \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia.
+
+#### Lectio vi
+
+ECce jam quibus potúimus votis ascendéntem te ad Fílium dedúximus, et prosecúti sumus saltem a longe, Virgo benedícta. Sit pietátis tuæ, ipsam, quam apud Deum grátiam invenísti, notam fácere mundo; reis véniam, medélam ægris, pusíllis corde robur, afflíctis consolatiónem, periclitántibus adjutórium, et liberatiónem sanctis tuis précibus obtinéndo. In hac quoque die solemnitátis et lætítiæ dulcíssimum Maríæ nomen cum laude invocántibus sérvulis, per te, Regína clemens, grátiæ suæ múnera largiátur Jesus Christus, Fílius tuus, Dóminus noster, qui est super ómnia Deus benedíctus in sǽcula. Amen.

@@ -32123,3 +32123,35 @@ FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placér
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Bernárde, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio C 3
+
+DEus, qui pópulo tuo ætérnæ salútis beátum Bernárdum minístrum tribuísti: præsta, quǽsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui beátum Joánnem, Confessórem tuum, ad cultum Sacrórum Córdium Jesu et Maríæ rite promovéndum, mirabíliter inflammásti, et per eum novas in Ecclésia tua Famílias congregáre voluísti: præsta quǽsumus; ut cujus pia mérita venerámur, virtútum quoque instruámur exémplis. Per eúmdem Dóminum.
+
+{RUBRIC: Deinde Commem. Octávæ:}
+
+**Ant.** Hódie María Virgo cælos ascéndit: gaudéte, quia cum Christo regnat in ætérnum.
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+###### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum vivit.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam. [87]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+BErnárdus, Fontánis in Burgúndia honésto loco natus, adoléscens propter egrégiam formam veheménter sollicitátus a muliéribus, numquam de senténtia coléndæ castitátis dimovéri pótuit. Quas diáboli tentatiónes ut effúgeret, duos et vigínti annos natus, monastérium Cisterciénse, unde hic ordo incépit et quod tum sanctitáte florébat, íngredi constítuit. Quo Bernárdi consílio cógnito, fratres summópere conáti sunt eum a propósito deterrére. In quo ipse eloquéntior ac felícior fuit; nam sic eos aliósque multos in suam perdúxit senténtiam, ut cum eo trigínta júvenes eámdem religiónem suscéperint. Mónachus, jejúnio ita déditus

@@ -30114,3 +30114,37 @@ Avertánte autem te fáciem, turbabúntur: \* áuferes spíritum eórum, et def�
 Emíttes spíritum tuum, et creabúntur: \* et renovábis fáciem terræ.
 
 Sit glória Dómini in sæculum: \* lætábitur Dóminus in opéribus suis:
+
+Qui réspicit terram, et facit eam trémere: \* qui tangit montes, et fúmigant.
+
+Cantábo Dómino in vita mea: \* psallam Deo meo, quámdiu sum.
+
+Jucúndum sit ei elóquium meum: \* ego vero delectábor in Dómino.
+
+Defíciant peccatóres a terra, et iníqui ita ut non sint: \* bénedic, ánima mea, Dómino.
+
+**Ant.** Confessiónem et decórem índuit, amíctus lúmine sicut vestiménto.
+
+℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthæum}
+
+#### Lectio vii
+
+*Cap. 17, 1-9*
+
+IN illo témpore: Assúmpsit Jesus Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit illos in montem excélsum seórsum: et transfigurátus est ante eos. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Homilía 57 in Matth., in init.}
+
+QUóniam multa de perículis, multa de passióne sua, multa de morte et de cæde discipulórum locútus est Dóminus, et áspera complúra atque árdua eis injúnxit; et illa quidem in præsénti vita, et jam imminébant; bona vero in spe et exspectatióne erant: ut puta, quia serváret ánimam suam, si pérderent eam; quia in glória Patris sui ventúrus sit, et prǽmia redditúrus: ut visu étiam certióres fáceret, et osténderet quidnam sit illa glória, cum qua ventúrus est, quantum cápere póterant in hac præsénti vita, illis osténdit eámque détegit, ne aut sua aut Dómini morte dóleant, et máxime Petrus.
+
+℟. Vocávit nos Deus vocatióne sua sancta, secúndum grátiam suam, quæ manifestáta est nunc \* Per illuminatiónem Salvatóris nostri Jesu Christi. ℣. Qui destrúxit mortem, illumínavit autem vitam in incorruptiónem. — Per.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+ET vide quid agit, cum de regno et de gehénna disserúerit. Nam in eo quod dixit: Qui invénit ánimam suam, perdet eam; et quicúmque perdet eam grátia mei, invéniet ipsam; et in eo quod ait: Reddet unicuíque secúndum ópera sua; et regnum et gehénnam designávit. Cum ígitur de utrísque disserúerit, regnum quidem ut

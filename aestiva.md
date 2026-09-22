@@ -27067,4 +27067,63 @@ Amen.
 
 ℣. Méritis et précibus beátæ Elísabeth. ℟. Propítius esto, Dómine, pópulo tuo.
 
-**Ad Bened. Ant.** Tu glória Jerúsalem, \* tu lætítia
+**Ad Bened. Ant.** Tu glória Jerúsalem, \* tu lætítia Israël, tu honorificéntia pópuli tui.
+
+###### Oratio
+
+CLementíssime Deus, qui beátam Elísabeth regínam, inter céteras egrégias dotes, béllici furóris sedándi prærogatíva decorásti: da nobis, ejus intercessióne; post mortális vitæ, quam supplíciter pétimus, pacem, ad ætérna gáudia perveníre. Per Dóminum.
+
+##### In II Vesperis
+
+**Capit.** Mulíerem, ut supra. 746
+
+###### Hymnus
+
+DOmáre cordis ímpetus Elísabeth,
+Fortis, inópsque Deo
+Servíre, regno prætulit.
+
+En fúlgidis recépta cæli sédibus,
+Sidereæque domus
+Ditáta sanctis gáudiis,
+
+Nunc regnat inter cælites beátior,
+Et premit astra, docens
+Quæ vera sint regni bona.
+
+Patri potéstas, Filióque glória,
+Perpetuúmque decus
+Tibi sit, alme Spíritus.
+Amen.
+
+℣. Ora pro nobis, beáta Elísabeth. ℟. Ut digni efficiámur promissiónibus Christi.
+
+**Ad Magnif. Ant.** Elísabeth, \* pacis et pátriæ mater, in cælo triúmphans, dona nobis pacem.
+
+---
+
+### Die 10 Julii
+
+#### Ss. Septem Fratrum
+
+{RUBRIC: Martyrum}
+
+#### ac Rufinæ et Secundæ
+
+{RUBRIC: Virg. et Mart. [49] Semiduplex}
+
+##### Ad Vesperas
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+###### Oratio
+
+PRæsta, quæsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+SEptem fratres, fílii sanctæ Felicitátis, Romæ in persecutióne Marci Aurélii Antoníni a Públio præfécto primum blandítiis, deínde terróribus tentáti, ut, Christo renuntiántes, deos venerarétur; et, sua vir-

@@ -25673,3 +25673,41 @@ CHristus assístens Póntifex futurórum bonórum, per ámplius et perféctius t
 #### Lectio ii
 
 UBI enim testaméntum est: mors necésse est intercédat testatóris. Testaméntum enim in mórtuis confirmátum est: alióquin nondum valet, dum vivit qui testátus est. Unde nec primum quidem sine sánguine dedicátum est. Lecto enim omni mandáto legis a Móyse univérso pópulo: accípiens sánguinem vitulórum, et hircórum cum aqua et lana coccínea, et hyssópo: ipsum quoque librum, et omnem pópulum aspérsit, dicens: Hic sanguis testaménti, quod mandávit ad vos Deus. Etiam tabernáculum, et ómnia vasa ministérii sánguine simíliter aspérgit: et ómnia pene in sánguine secúndum legem mundántur: et sine sánguinis effusióne non fit remíssio.
+
+℟. Móyses sumptum sánguinem respérsit in pópulum, \* Et ait: Hic est sanguis fœderis, quod pépigit Dóminus vobíscum. ℣. Fide celebrávit Pascha et sánguinis effusióne, ne qui vastábat primitíva, tángeret eos. — Et.
+
+#### Lectio iii
+
+*Cap. 10, 19-24*
+
+HAbéntes ítaque, fratres, fidúciam in intróitu sanctórum in sánguine Christi, quam initiávit nobis viam novam et vivéntem per velámen, id est, carnem suam, et sacerdótem magnum super domum Dei; accedámus cum vero corde in plenitúdine fídei aspérsi corda a consciéntia mala et ablúti corpus aqua munda; teneámus spei nostræ confessiónem indeclinábilem (fidélis enim est qui repromísit) et considerémus ínvicem in provocatiónem caritátis et bonórum óperum.
+
+℟. Vos, qui aliquándo erátis longe, facti estis prope in sánguine Christi: \* Ipse enim est pax nostra, qui fecit útraque unum. ℣. Complácuit per eum reconciliáre ómnia in ipsum, pacíficans per sánguinem crucis ejus, sive quæ in terris, sive quæ in cælis sunt. — Ipse enim. Glória Patri. Ipse enim.
+
+##### In II Nocturno
+
+**Ant.** Pilátus, \* volens pópulo satisfácere, trádidit illis Jesum flagéllis cæsum.
+
+###### Psalmus 22
+
+DOminus regit me, et nihil mihi déerit: \* in loco páscuæ ibi me collocávit.
+
+Super aquam refectiónis educávit me: \* ánimam meam convértit.
+
+Dedúxit me super sémitas justítiæ, \* propter nomen suum.
+
+Nam, et si ambulávero in médio umbræ mortis, non timébo mala: \* quóniam tu mecum es.
+
+Virga tua, et báculus tuus: \* ipsa me consoláta sunt.
+
+Parásti in conspéctu meo mensam, \* advérsus eos, qui tríbulant me.
+
+Impinguásti in óleo caput meum: \* et calix meus inébrians quam præclárus est!
+
+Et misericórdia tua subsequétur me \* ómnibus diébus vitæ meæ:
+
+Et ut inhábitem in domo Dómini, \* in longitúdinem diérum.
+
+**Ant.** Pilátus, volens pópulo satisfácere, trádidit illis Jesum flagéllis cæsum.
+
+**Ant.** Videns autem \* quia nihil profíceret, accépta

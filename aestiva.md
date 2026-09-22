@@ -29816,3 +29816,51 @@ Ab increpatióne tua, Deus Jacob, \* dormitavérunt qui ascendérunt equos.
 Tu terríbilis es, et quis resístet tibi? \* ex tunc ira tua.
 
 De cælo audítum fecísti judícium: \* terra trémuit et quiévit.
+
+Cum exsúrgeret in judícium Deus, \* ut salvos fáceret omnes mansuétos terræ.
+
+Quóniam cogitátio hóminis confitébitur tibi: \* et relíquiæ cogitatiónis diem festum agent tibi.
+
+Vovéte, et réddite Dómino Deo vestro: \* omnes, qui in circúitu ejus affértis múnera.
+
+Terríbili et ei qui aufert spíritum príncipum, \* terríbili apud reges terræ.
+
+**Ant.** Illúminans tu mirabíliter a móntibus ætérnis: turbáti sunt omnes insipiéntes corde.
+
+**Ant.** Mélior est \* dies una in átriis tuis, super míllia.
+
+#### Psalmus 83
+
+QUam dilécta tabernácula tua, Dómine virtútum: \* concupíscit, et déficit ánima mea in átria Dómini.
+
+Cor meum, et caro mea \* exsultavérunt in Deum vivum.
+
+Etenim passer invénit sibi domum: \* et turtur nidum sibi, ubi ponat pullos suos.
+
+Altária tua, Dómine virtútum: \* Rex meus, et Deus meus.
+
+Beáti, qui hábitant in domo tua, Dómine: \* in sǽcula sæculórum laudábunt te.
+
+Beátus vir, cujus est auxílium abs te: \* ascensiónes in corde suo dispósuit, in valle lacrimárum in loco, quem pósuit.
+
+Etenim benedictiónem dabit legislátor, ibunt de virtúte in virtútem: \* vidébitur Deus deórum in Sion.
+
+Dómine, Deus virtútum, exáudi oratiónem meam: \* áuribus pércipe, Deus Jacob.
+
+Protéctor noster, áspice, Deus: \* et réspice in fáciem Christi tui:
+
+Quia mélior est dies una in átriis tuis, \* super míllia.
+
+Elégi abjéctus esse in domo Dei mei: \* magis quam habitáre in tabernáculis peccatórum.
+
+Quia misericórdiam, et veritátem díligit Deus: \* grátiam et glóriam dabit Dóminus.
+
+Non privábit bonis eos, qui ámbulant in innocéntia: \* Dómine virtútum, beátus homo, qui sperat in te.
+
+**Ant.** Mélior est dies una in átriis tuis, super míllia.
+
+**Ant.** Gloriósa \* dicta sunt de te, cívitas Dei.
+
+#### Psalmus 86
+
+FUndaménta ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.

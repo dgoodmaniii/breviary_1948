@@ -31854,4 +31854,30 @@ CAritáte in Deum fervens, íntegras sæpe noctes fundéndis précibus castigand
 
 #### Lectio vi
 
-SAnctíssimi viri stúdium erga proximórum salútem máximis Deus miráculis illustrávit. Inter quæ illud insígne, quod Vándalum flúvium prope Visográdum aquis redundántem, nullo navígio usus, trajécit, sóciis quoque expánso super undas pállio tradúctis. Admirábili vitæ génere ad quadragínta prope annos post professiónem perdúcto, mortis die suis frátribus prænuntiáto, ipso assúmptæ Vírginis festo, Horis canónicis persolútis, sacraméntis ecclesiásticis summa cum veneratióne percéptis, iis verbis: In manus tuas, Dómine; spíritum Deo réddidit, anno salútis millésimo ducen-
+SAnctíssimi viri stúdium erga proximórum salútem máximis Deus miráculis illustrávit. Inter quæ illud insígne, quod Vándalum flúvium prope Visográdum aquis redundántem, nullo navígio usus, trajécit, sóciis quoque expánso super undas pállio tradúctis. Admirábili vitæ génere ad quadragínta prope annos post professiónem perdúcto, mortis die suis frátribus prænuntiáto, ipso assúmptæ Vírginis festo, Horis canónicis persolútis, sacraméntis ecclesiásticis summa cum veneratióne percéptis, iis verbis: In manus tuas, Dómine; spíritum Deo réddidit, anno salútis millésimo ducentésimo quinquagésimo séptimo. Quem miráculis, étiam post óbitum, illústrem, Clemens Papa octávus in Sanctórum númerum rétulit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+YAcínthus Polónus, nobílibus et christiánis paréntibus, in Camiénsi villa episcopátus Vratislaviénsis natus est. Inter canónicos Cracoviénses adscítus, insígni morum pietáte et eruditióne céteros antecélluit. Romæ in Prædicatórum órdinem ab ipso institutóre sancto Domínico adscríptus, perféctam vivéndi ratiónem, quam ab ipso didícerat, usque ad finem vitæ sanctíssime retínuit, virginitáte perpétuo serváta. Remíssus in pátriam, sex sui órdinis monastériis exædificátis, incredíbile dictu est, quantum verbi Dei prædicatióne et vitæ innocéntia apud omnes profécerit, frequéntibus clarus miráculis. Inter quæ illud insígne, quod Vándalum flúvium prope Visográdum aquis redundántem, nullo navígio usus, trajécit, sóciis quoque expánso super undas pállio tradúctis. Admirábili vitæ génere ad quadragínta prope annos post professiónem perdúcto, ipso assúmptæ Vírginis festo, spíritum Deo réddidit, anno salútis millésimo ducentésimo quinquagésimo séptimo, et a Cleménte octávo in Sanctórum númerum fuit relátus.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Comm. Conf. non Pont. 1 loco. [98]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio C 1
+
+DEus, qui nos beáti Hyacínthi Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.

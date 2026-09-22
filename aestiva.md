@@ -22162,4 +22162,56 @@ BRíxiam ítaque, ubi domum ad sanctæ Afræ templum condúxit, revérsa, novam 
 
 #### Lectio ix
 
-ANgela Merícia, piis orta paréntibus, a prima ætáte magna virtútum specímina dedit, cilício ac flagéllis frequénter usa, et oratióni indesinénter dédita. Patérnis bonis abdicátis, ac régulam tértii órdinis sancti Francísci ampléxa, evangélicam paupertátem virginitátis laudi conjúnxit, nullúmque pietátis offícium erga próximos omísit. Sacra Eucharístia frequentíssime refécta, tanta caritátis vi ferebátur in Deum, ut sæpius extra sensus raperétur. Bríxiæ novam vírginum societátem sub certa discíplina sanctísque vivéndi régulis constítuit, quam sanctæ Ursulæ patrocínio ac nómine insignívit. Tandem prope septuagenária evolávit in cælum, anno Dómini millésimo quingentésimo quadragésimo, sexto Kaléndas Februárii. Cultum illi jámdiu exhíbitum Clemens Papa décimus tértius solémni decréto ratum hábuit et confirmávit. Pius vero Papa séptimus sanctárum Vír-
+ANgela Merícia, piis orta paréntibus, a prima ætáte magna virtútum specímina dedit, cilício ac flagéllis frequénter usa, et oratióni indesinénter dédita. Patérnis bonis abdicátis, ac régulam tértii órdinis sancti Francísci ampléxa, evangélicam paupertátem virginitátis laudi conjúnxit, nullúmque pietátis offícium erga próximos omísit. Sacra Eucharístia frequentíssime refécta, tanta caritátis vi ferebátur in Deum, ut sæpius extra sensus raperétur. Bríxiæ novam vírginum societátem sub certa discíplina sanctísque vivéndi régulis constítuit, quam sanctæ Ursulæ patrocínio ac nómine insignívit. Tandem prope septuagenária evolávit in cælum, anno Dómini millésimo quingentésimo quadragésimo, sexto Kaléndas Februárii. Cultum illi jámdiu exhíbitum Clemens Papa décimus tértius solémni decréto ratum hábuit et confirmávit. Pius vero Papa séptimus sanctárum Vírginum catálogo eam adscrípsit.
+
+Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum decem virgínibus, de Communi Virg. 1 loco. [122]}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símili est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+DEus, qui novum per beátam Angelam sacrárum Vírginum collégium in Ecclésia tua floréscere voluísti: da nobis, ejus intercessióne, angélicis móribus vívere; ut, terrénis ómnibus abdicátis, gáudiis pérfrui mereámur ætérnis. Per Dóminum.
+
+{RUBRIC: Pro Commem. S. Petronillæ Virg. :}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua, et.
+
+###### Oratio
+
+EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Petroníllæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Oratio Deus, qui novum, ut supra ad Laudes.}
+
+---
+
+## Festa Junii
+
+### Die 2 Junii
+
+#### Ss. Marcellini, Petri atque Erasmi
+
+{RUBRIC: Ep., Mm. Simplex [49]}
+
+##### Ad Vesperas
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+###### Oratio
+
+DEus, qui nos ánnua beatórum Mártyrum tuórum Marcellíni, Petri atque Erásmi solemnitáte lætíficas: præsta, quǽsumus; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.

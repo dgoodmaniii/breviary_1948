@@ -26876,3 +26876,67 @@ Quos Roma pláudens éxcipit,
 Compléxa mater fílios,
 Auget coróna præsúlum
 Novóque firmat róbore.
+
+Terras ad usque bárbaras
+Inférre Christum pérgitis;
+Quot vanus error lúserat,
+Almo replétis lúmine.
+
+Noxis solúta péctora
+Ardor supérnus ábripit;
+Mutátur horror véprium
+In sanctitátis flósculos.
+
+Et nunc seréna cælitum
+Locáti in aula, súpplici
+Adéste voto: Slávicas
+Serváte gentes Númini.
+
+Erróre mersos únicum
+Ovíle Christi cóngreget;
+Factis avítis æmula
+Fides viréscat púlchrior.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Tu nos, beáta Trínitas,
+Cælésti amóre cóncita,
+Patrúmque natos ínclyta
+Da pérsequi vestígia.
+Amen.
+
+℣. Sapiéntiam Sanctórum narrent pópuli. ℟. Et laudem eórum núntiet Ecclésia.
+
+**Ad Bened. Ant.** In sanctitáte \* et justítia serviérunt Dómino ómnibus diébus suis: ídeo stolam glóriæ índuit illos Dóminus, Deus Israël.
+
+###### Oratio
+
+OMnípotens sempitérne Deus, qui Slavóniæ gentes per beátos Confessóres tuos atque Pontífices Cyríllum et Methódium ad agnitiónem tui nóminis veníre tribuísti: præsta; ut, quorum festivitáte gloriámur, eórum consórtio copulémur. Per Dóminum.
+
+##### In II Vesperis
+
+###### Capitulum
+
+*Eccli. 44, 16-17*
+
+ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+###### Hymnus
+
+SEdibus cæli nítidis recéptos
+Dícite athlétas géminos, fidéles;
+Slávicæ duplex cólumen decúsque
+Dícite gentis.
+
+Hos amor fratres sociávit unus,
+Unaque abdúxit píetas erémo,
+Ferre quo multis célerent beátæ
+Pígnora vitæ.
+
+Luce, quæ templis súperis renídet,
+Búlgaros complent, Móravos, Bohémos;
+Mox feras turmas numerósa Petro
+Agmina ducunt.
+
+Débitam cincti méritis corónam,
+Pérgite o flecti lácrimis precántum;

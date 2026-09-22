@@ -27268,4 +27268,10 @@ PRæsta quæsumus, Dómine: ut, sicut nos sanctórum Mártyrum tuórum Náboris 
 
 #### Lectio iv
 
-JOánnes Gualbértus, Floréntiæ nóbili génere ortus, dum patri óbsequens rem militá-
+JOánnes Gualbértus, Floréntiæ nóbili génere ortus, dum patri óbsequens rem militárem séquitur, Ugo, únicus ejus frater, occíditur a consanguíneo. Quem cum solum et inérmem sancto Parascéves die Joánnes, armis ac milítibus stipátus, óbvium habéret, ubi neuter álterum póterat declináre, ob sanctæ crucis reveréntiam, quam homicída supplex, mortem jamjam subitúrus, bráchiis signábat, vitam ei cleménter indúlget. Hoste in fratrem recépto, próximum sancti Miniátis templum oratúrus ingréditur, ubi adorátam Crucifíxi imáginem caput sibi fléctere cónspicit. Quo mirábili facto permótus Joánnes, Deo exínde, étiam invíto patre, militáre decérnit, atque ibídem própriis sibi mánibus comam totóndit, ac monásticum hábitum índuit: adeóque piis ac religiósis virtútibus brevi corúscat, ut multis se perfectiónis spécimen ac normam præbéret; ita ut, ejúsdem loci abbáte defúncto, commúni ómnium voto in superiórem eligerétur. At Dei fámulus, cúpiens subésse pótius quam præésse, ad majóra divína voluntáte servátus, ad Camaldulénsis erémi íncolam Romuáldum proficíscitur, a quo cælicum sui institúti vaticínium áccipit; tum suum órdinem sub régula sancti Benedícti apud Umbrósam vallem instítuit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+DEínde, plúrimis ad eum ob ejus sanctitátis famam úndique convolántibus, una cum iis in sócios adscítis, ad hæréticam et simoníacam pravitátem exstirpándam et apostólicam fidem propagándam sédulo incúmbit, innúmera proptérea in se et suis incómmoda expértus. Nam, ut eum ejúsque sócios adversárii perdant, noctu sancti Sálvii cœnóbium repénte aggrediúntur, templum incéndunt, ædes demoliúntur, et mónachos omnes letháli vúlnere sáuciant; quos vir Dei único crucis signo incólumes prótinus reddit, et, Petro ejus mónacho per imménsum ardentissimúmque ignem illæso mirabíliter transeúnte, optátam sibi et suis tranquillitátem óbtinet. Inde simoníacam labem ab Etrúria expúlit, ac in tota Itália fidem

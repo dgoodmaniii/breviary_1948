@@ -15292,3 +15292,24 @@ ANno centésimo quinquagésimo primo éxiit Demétrius Seléuci fílius ab urbe 
 ##### Lectio ii
 
 ET elégit rex ex amícis suis Bácchidem, qui dominabátur trans flumen, magnum in regno et fidélem regi. Et misit eum ut vidéret extermínium, quod fecit Judas; sed et Alcimum ímpium constítuit in sacerdótium et mandávit ei fácere ultiónem in fílios Israël. Et surrexérunt et venérunt cum exércitu magno in terram Juda et misérunt núntios, et locúti sunt ad Judam et ad fratres ejus verbis pacíficis in dolo. Et non intendérunt sermónibus eórum, vidérunt enim quia venérunt cum exércitu magno.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+ET convenérunt ad Alcimum et Bácchidem congregátio scribárum requírere quæ justa sunt, et primi, Assidǽi, qui erant in fíliis Israël, et exquirébant ab eis pacem. Dixérunt enim : Homo sacérdos de sémine Aaron venit : non decípiet nos. Et locútus est cum eis verba pacífica et jurávit illis dicens : Non inferémus vobis malum neque amícis vestris. Et credidérunt ei, et comprehéndit ex eis sexagínta viros et occídit eos in una die, secúndum verbum quod scriptum est : Carnes sanctórum tuórum et sánguinem ipsórum effudérunt in circúitu Jerúsalem, et non erat qui sepelíret.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.
+
+---
+
+## Sabbato infra Hebdomadam II Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 8, 1-4*
+
+ET audívit Judas nomen Romanórum, quia sunt poténtes víribus et acquiéscunt ad ómnia quæ postulántur ab eis, et cuicúmque accessérunt ad eos statuérunt cum eis amicítias, et quia sunt poténtes víribus. Et audiérunt prǽlia eórum et virtútes bonas, quas fecérunt in Galátia, quia obtinuérunt eos et duxérunt sub tribútum, et quanta fecérunt in regióne Hispániæ, et quod in potestátem redegérunt metálla argénti et auri, quæ illic sunt, et possedérunt omnem locum consílio suo et patiéntia, lócaque quæ longe erant valde ab eis, et reges qui supervénerant eis ab extrémis terræ, contrivérunt et percussérunt eos plaga magna; céteri autem dant eis tribútum ómnibus annis.

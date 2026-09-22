@@ -20734,4 +20734,30 @@ POsteáquam illa, quæ Ecclésiæ typum accépit, a fluxu curáta est sánguinis
 
 ##### Lectio viii
 
-COnsequens ígitur erat, ut, quos a vúlnerum dolóre sanáverat, eos alimóniis spiritálibus a jejúnio liberáret. Itaque nemo cibum áccipit Christi, nisi fúerit ante sanátus; et illi, qui vocántur ad cœnam,
+COnsequens ígitur erat, ut, quos a vúlnerum dolóre sanáverat, eos alimóniis spiritálibus a jejúnio liberáret. Itaque nemo cibum áccipit Christi, nisi fúerit ante sanátus; et illi, qui vocántur ad cœnam, prius vocándo sanántur. Si claudus fuit, gradiéndi facultátem, ut veníret, accépit: si lúmine oculórum privátus, domum útique Dómini, nisi refúsa luce, intráre non pótuit.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+UBíque ígitur mystérii ordo servátur, ut prius per remissiónem peccatórum vulnéribus medicína tribuátur, post alimónia mensæ cæléstis exúberet; quamquam nondum validióribus hæc turba reficiátur aliméntis, neque Christi córpore et sánguine jejúna solidióris fídei corda pascántur. Lacte, inquit, vos potávi, non esca; nondum enim poterátis, sed nec adhuc quidem potéstis. In modum lactis quinque sunt panes: esca autem solídior corpus est Christi; potus veheméntior sánguis est Dómini.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum turba multa \* esset cum Jesu nec habérent quod manducárent, convocátis discípulis, ait illis: Miséreor super turbam, quia ecce jam tríduo sústinent me nec habent quod mandúcent, allelúja.
+
+### Oratio
+
+DEus virtútum, cujus est totum quod est óptimum: ínsere pectóribus nostris amórem tui nóminis, et præsta in nobis religiónis augméntum; ut, quæ sunt bona, nútrias, ac pietátis stúdio, quæ sunt nutríta, custódias. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Miséreor \* super turbam, quia ecce jam tríduo sústinent me nec habent quod mandúcent, et, si dimísero eos jejúnos, defícient in via, allelúja.
+
+---

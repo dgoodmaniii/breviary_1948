@@ -24496,4 +24496,16 @@ DEus, qui beáto Irenǽo Mártyri tuo atque Pontífici tribuísti, ut et veritá
 
 ###### Oratio
 
-DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nati-
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+IRenǽus, non longe ab urbe Smyrna in Asia præconsulári natus, jam inde a púero sese Polycárpo, Joánnis Evangelístæ discípulo eidémque epíscopo Smyrnæórum, tradíderat in disciplínam. Hoc tam excelénti magístro, progréssus in doctrína præceptísque christiánæ religiónis insígnes fecit. Polycárpo in cælum martýrii glória subláto, etsi erat Irenǽus in sacris lítteris egrégie versátus, quod tamen incredíbili stúdio flagráret discéndi quæ dógmata depósiti loco custodiénda céteri accepíssent, quos Apóstoli institúerant; horum quam pótuit plures convénit, quæque ab iísdem audívit, mémori mente ténuit, ea deínceps opportúne advérsus hǽreses allatúrus, quas cum vidéret ingénti pópuli christiáni damno látius in dies manáre, diligénter copioséque reféllere cogitárat. In Gállias inde proféctus, a Pothíno epíscopo présbyter est constitútus Ecclésiæ Lugdunénsis. Quod munus sic laborándo in verbo et doctrína gessit, ut (téstibus sanctis Martýribus, qui, Marco Aurélio imperatóre, strénue pro vera pietáte certárant) æmulatórem sese præstíterit testaménti Christi.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam: et in vínculis non dereliquit eum. — Et.
+
+#### Lectio v
+
+CUM Mártyres ipsi clerúsque Lugdunénsis de pace Ecclesiárum Asiæ, quam Montanistárum fáctio turbárat, sollíciti cum primis essent, Irenǽum, cujus esse potíssimum habéndam ratiónem prædicábant, unum ómnium máxime delegérunt, quem Romam ad Eleuthérium Pontíficem mítterent rogátum, ut, novis sectáriis auctoritáte Sedis Apostólicæ reprobátis, discordiárum causa tollerétur. Jam Pothínus epíscopus mártyr decésserat: huic Irenǽus cum successísset, tam felíciter munus óbiit episcopátus, ut sapiéntia, oratióne exemplóque suo

@@ -40639,15 +40639,15 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 
 {RUBRIC: Simplex}
 
-{RUBRIC: Omnibus Sabbátis, extra Tempus Advéntus, usque ad Sabbátum post Sexagésimam inclusíve, nisi agéndum fúerit de áliquo Festo dúplici, étiam transláto, aut semidúplici, vel de Octáva aut Vigília occurrénti, aut de Domínica anticipáta juxta Rúbricas, fit Offícium de sancta María, in quo, sumptis Antiphónis et Psalmis de Feria VI et Sábbato occurrentibus, réliqua dicúntur ut infra.}
+{RUBRIC: Omnibus Sabbátis, nisi agéndum fúerit de áliquo Festo dúplici, étiam transláto, aut semidúplici, vel de Octáva aut Vigília occurrénti, fit Offícium de sancta María, in quo, sumptis Antiphónis et Psalmis de Feria VI et Sábbato occurrentibus, réliqua dicúntur ut infra.}
 
 ##### IN VESPERIS
 
-{RUBRIC: Anæ et Psalmi ut supra. 269}
+{RUBRIC: Anæ et Psalmi ut supra. 230}
 
 {RUBRIC: Capit.} Ab inítio. [188]
 
-{RUBRIC: Prima stropha sequéntis Hymni dícitur flexis génibus.}
+{RUBRIC: Prima strópha sequéntis Hymni dícitur flexis génibus.}
 
 ### Hymnus
 
@@ -40688,29 +40688,11 @@ Tribus honor unus. Amen.
 
 ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
 
-{RUBRIC: Si tamen præcédens Versus dictus jam fúerit in Offício de Communi Vírginum vel non Vírginum, tunc dicátur sequens}
-
-℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
-
-{RUBRIC: Antíphonæ ad Magníficat et étiam infra ad Benedíctus atque Orátio dicúntur juxta témporis diversitátem, nempe}
-
-{RUBRIC: A Sabbato post Octávam Epiphániæ usque ad Sabbatum ante Purificatiónem inclusíve:}
-
-**Ad Magnif. Ant.** Magnum \* hereditátis mystérium: templum Dei factus est úterus nesciéntis virum: non est pollútus ex ea carnem assúmens; omnes gentes vénient, dicéntes: Glória tibi, Dómine.
-
-**Oratio**
-
-DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti: tríbue, quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
-
-{RUBRIC: A Sabbato post Purificatiónem usque ad Sabbátum ante Quinquagésimam inclusíve:}
-
-**Ad Magnif. Ant.** Beáta Mater \* et intácta Virgo, gloriósa Regína mundi, intercéde pro nobis ad Dóminum.
-
 **Oratio**
 
 CONCÉDE nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
 
-{RUBRIC: Suffrágium de ómnibus Sanctis, ut infra ad Laudes. [193]}
+{RUBRIC: Suffrágium de ómnibus Sanctis, ut infra ad Laudes. [192]}
 
 {RUBRIC: Ad Completórium et ad omnes Horas usque ad Nonam inclusíve, in fine Hymnórum dícitur:}
 
@@ -40752,7 +40734,7 @@ Cum Patre, et almo Spíritu,
 In sempitérna sǽcula.
 Amen.
 
-{RUBRIC: In Nocturno Antíphonæ, Psalmi et Versus de Sábbato. 279}
+{RUBRIC: In Nocturno Antíphonæ, Psalmi et Versus de Sábbato. 238}
 
 {RUBRIC: Deinde} Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
@@ -40772,7 +40754,7 @@ Amen.
 
 ##### AD LAUDES
 
-{RUBRIC: Antiphonæ cum Psalmis de Sábbato 1 loco. 286}
+{RUBRIC: Antiphonæ cum Psalmis de Sábbato 1 loco. 245}
 
 #### Capitulum
 *Eccli. 24, 14*
@@ -40804,16 +40786,6 @@ Amen.
 
 ℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
 
-{RUBRIC: A Sabbato post Octávam Epiphániæ usque ad Sabbatum ante Purificatiónem inclúsive:}
-
-**Ad Bened. Ant.** Mirábile mystérium \* declarátur hódie: innovántur natúræ, Deus homo factus est: id quod fuit permánsit, et quod non erat assúmpsit; non commixtiónem passus, neque divisiónem.
-
-**Oratio**
-
-DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti: tríbue, quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
-
-{RUBRIC: A Sabbato post Purificatiónem usque ad Sabbátum ante Quinquagésimam inclusíve.}
-
 **Ad Bened. Ant.** Beáta Dei Génitrix, María, \* Virgo perpétua, templum Dómini, sacrárium Spíritus Sancti, sola sine exémplo placuísti Dómino nostro Jesu Christo: ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu.
 
 **Oratio**
@@ -40836,7 +40808,9 @@ A CUNCTIS nos, quǽsumus, Dómine, mentis et córporis defénde perículis: et, 
 
 ##### AD TERTIAM
 
-{RUBRIC: Capit.} Ab inítio. [192]
+{RUBRIC: Capitulum} *Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
 
 ℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
 
@@ -40866,55 +40840,79 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 
 {RUBRIC: Lectiónes sequéntes dicúntur síngulis ménsibus in Offício sanctæ Maríæ in Sábbato, órdine subscrípto:}
 
-### Mense Januario
+### Mense Majo
+
+{RUBRIC: Ex Tractátu sancti Augustíni Epíscopi de Sýmbolo ad Catechúmenos}
+
+{RUBRIC: Liber 3, cap. 4, in fine}
+
+#### Lectio iii
+
+PER féminam mors, per féminam vita: per Hevam intéritus, per Maríam salus. Illa, corrúpta, secúta est seductórem: hæc, íntegra, péperit Salvatórem. Illa póculum a serpénte propinátum libénter accépit et viro trádidit, ex quo simul mererétur occídi: hæc, grátia cæléstí désuper infúsa, vitam prótulit, per quam caro mórtua possit resuscitári. Quis est qui hæc operátus est, nisi Vírginis Fílius et vírginum Sponsus, qui áttulit Matri fecunditátem, sed non ábstulit integritátem?
+
+Te Deum laudámus.
+
+---
+
+### Mense Junio
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis}
+
+{RUBRIC: De verbis Apocalýpsis cap. 12}
+
+{RUBRIC: Signum magnum}
+
+#### Lectio iii
+
+VEHEMÉNTER quidem nobis, dilectíssimi, vir unus et múlier una nocuére; sed, grátias Deo, per unum nihilóminus virum et mulíerem unam ómnia restaurántur, nec sine magno fǽnore gratiárum. Neque enim sicut delíctum, ita et donum; sed excédit damni æstimatiónem benefícii magnitúdo. Sic nimírum prudentíssimus et clementíssimus ártifex, quod quassátum fúerat, non confrégit, sed utílius omníno refécit, ut vidélicet nobis novum formáret Adam ex véteri, Hevam transfúnderet in Maríam.
+
+Te Deum laudámus.
+
+---
+
+### Mense Julio
 
 {RUBRIC: Ex Epístola sancti Ambrósii Epíscopi ad Sirícium Papam}
 
-{RUBRIC: Epist. 81, alias 7, post inítium}
+{RUBRIC: Epist. 81, alias 7, circa med.}
 
 #### Lectio iii
 
-DE via perversitátis prodúntur dícere: Virgo concépit, sed non virgo generávit. Pótuit ergo virgo concípere, non pótuit virgo generáre, cum semper concéptus præcédat, partus sequátur? Sed si doctrínis non créditur sacerdótum, credátur oráculis Christi; credátur mónitis Angelórum dicéntium: Quia non est impossíbile Deo omne verbum; credátur Sýmbolo Apostolórum, quod Ecclésia Romána intemerátum semper custódit et servat. Audívit María vocem Angeli, et, quæ ante díxerat: Quómodo fiet istud? non de fide generatiónis intérrogans, respóndit póstea: Ecce ancílla Dómini, contíngat mihi secúndum verbum tuum.
+NON excédit fidem, quod homo exívit de vírgine, quando petra fontem prófluum scaturívit, ferrum super aquas natávit, ambulávit homo super aquas. Ergo si hóminem unda portávit, non pótuit hóminem virgo generáre, atque hóminem, de quo légimus: Et mittet illis Dóminus hóminem, qui salvos fáciet eos, et notus erit Dóminus Ægýptiis? In véteri ítaque Testaménto virgo Hebræórum per mare duxit exércitum: in novo Testaménto Virgo, géneris aula cæléstis, elécta est ad salútem.
 
 Te Deum laudámus.
 
 ---
 
-### Mense Februario
+### Mense Augusto
 
-{RUBRIC: Ex libro sancti Hierónymi Presbýteri advérsus Joviniánum}
+{RUBRIC: De Expositióne sancti Gregórii Papæ in libros Regum}
 
-{RUBRIC: Apología ad Pammách. pro lib. advérsus Joviniánum, in fine}
+{RUBRIC: In 1 Reg. 1}
 
 #### Lectio iii
 
-CHRISTUS virgo, Mater vírginis nostri virgo perpétua, mater et virgo. Jesus enim clausis ingréssus est óstiis; et in sepúlcro ejus, quod novum et in petra duríssima fúerat excísum, nec ántea quis nec póstea pósitus est. Hortus conclúsus, fons signátus. De quo fonte ille flúvius manat, juxta Joël, qui írrigat torréntem vel fúnium vel spinárum: fúnium, peccatórum, quibus ante alligabámur; spinárum, quæ suffócant seméntem patrisfamílias. Hæc est porta orientális, ut ait Ezéchiel, semper clausa et lúcida, opériens in se vel ex se próferens Sancta sanctórum; per quam Sol justítiæ et Póntifex noster secúndum órdinem Melchísedech ingréditur et egréditur.
+FUIT vir unus de Ramáthaim Sophim, de monte Ephraim. Potest hujus montis nómine beatíssima semper Virgo María, Dei Génitrix, designári. Mons quippe fuit, quæ omnem eléctam creatúræ altitúdinem, electiónis suæ dignitáte, transcéndit. An non mons sublímis María, quæ, ut ad conceptiónem ætérni Verbi pertíngeret, meritórum vérticem, supra omnes Angelórum choros, usque ad sólium Deitátis eréxit? Hujus enim montis præcellentíssimam dignitátem Isaías vaticínans, ait: Erit in novíssimis diébus præparátus mons domus Dómini in vértice móntium. Mons quippe in vértice móntium fuit, quia altitúdo Maríæ supra omnes Sanctos refúlsit.
 
 Te Deum laudámus.
 
 ---
 
-### Mense Martio
+### Mense Septembri
 
-{RUBRIC: Ante Quadragésimam}
+{RUBRIC: Ex Epístola sancti Leónis Papæ ad Pulchériam Augústam}
 
-{RUBRIC: Ex libro sancti Irenǽi Epíscopi et Mártyris advérsus hǽreses}
-
-{RUBRIC: Liber 5, c. 19}
+{RUBRIC: Epístola 13 ante médium}
 
 #### Lectio iii
 
-IN sua própria veniénte Dómino et sua própria eum bajulánte conditióne, quæ bajulátur ab ipso, et recapitulatiónem ejus quæ in ligno fuit inobediéntiæ, per eam quæ in ligno est obediéntiam, faciénte, et seductióne illa solúta, qua sedúcta est male illa, quæ jam viro destináta erat, virgo Heva; per veritátem evangelizáta est bene ab Angelo jam sub viro Virgo María. Quemádmodum enim illa per angélicum sermónem seducta est, ut effúgeret Deum, prævaricáta verbum ejus: ita et hæc per Angélicum sermónem evangelizáta est, ut portáret Deum, obédiens ejus verbo. Et sicut illa sedúcta est, ut effúgeret Deum; sic hæc suása est obedíre Deo, ut vírginis Hevæ Virgo María fíeret advocáta. Et quemádmodum adstríctum est morte genus humánum per vírginem, solvátur per Vírginem: ǽqua lance dispósita virginális inobediéntia per Virginálem obediéntiam.
+SACRAMÉNTUM reconciliatiónis nostræ, ante témpora ætérna dispósitum, nullæ implébant figúræ; quia nondum supervénerat Spíritus Sanctus in Vírginem nec virtus Altíssimi obumbráverat ei, ut et intra inteméráta víscera, ædificánte sibi Sapiéntia domum, Verbum caro fíeret, et forma Dei ac forma servi in unam conveniénte persónam, Creátor témporum nascerétur in témpore, et per quem facta sunt ómnia, ipse inter ómnia gignerétur. Nisi enim novus homo, factus in similitúdinem carnis peccáti, nostram suscíperet vetustátem, et, consubstantiális Patri, consubstantiális esse dignarétur et matri, naturámque sibi nostram solus a peccáto liber uníret; sub jugo diáboli generáliter tenerétur humána captívitas.
 
 Te Deum laudámus.
 
 ---
 
 # Officium Parvum B. Mariæ Virginis
-
-## I Per Annum
-
-{RUBRIC: Quod dícitur a Matutíno diéi 3 Februárii usque ad Nonam Sábbati post Cíneres inclusíve.}
 
 ### In Vesperis
 
@@ -40923,8 +40921,6 @@ Te Deum laudámus.
 ℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína.
 
 Glória Patri. Sicut erat. Allelúja.
-
-{RUBRIC: Sic dícitur Allelúja ad omnes Horas per totum Annum, præterquam a Completório Sábbati ante Septuagésimam; tunc enim dícitur: Laus tibi, Dómine, Rex ætérnæ glóriæ.}
 
 {RUBRIC: Antíphonæ, quæ in toto Offício parvo non duplicántur, Psalmi, Capítulum et Hymnus, ut supra in Commúni Festórum B. Maríæ Vírginis. [174]}
 
@@ -40960,7 +40956,7 @@ OMNES Sancti tui, quǽsumus, Dómine, nos ubíque ádjuvent: ut, dum eórum mér
 
 ℣. Deus, in adjutórium.
 
-{RUBRIC: Ps. 128} Sæpe expugnavérunt, {RUBRIC: Ps. 129} De profúndis, {RUBRIC: et Ps. 130} Dómine, non est exaltátum, {RUBRIC: ut in Vésperis Fériæ IV. 189}
+{RUBRIC: Ps. 128} Sæpe expugnavérunt, {RUBRIC: Ps. 129} De profúndis, {RUBRIC: et Ps. 130} Dómine, non est exaltátum, {RUBRIC: ut in Vésperis Fériæ IV. 161}
 
 ### Hymnus
 
@@ -41043,17 +41039,13 @@ ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi,
 
 ℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti.
 
-{RUBRIC: Ante Septuagésimam et in Festis B. Maríæ Virg.:} Glória Patri. Genuísti.
-
 ℣. Jube, domne, benedícere. **Bened.** Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
 
 **Lectio iii**
 
 QUASI cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion: quasi palma exaltáta sum in Cades, et quasi plantátio rosæ in Jéricho: quasi olíva speciósa in campis, et quasi plátanus exaltáta sum juxta aquam in platéis. Sicut cinnamómum et bálsamum aromatízans odórem dedi; quasi myrrha elécta dedi suavitátem odóris. Tu autem.
 
-{RUBRIC: Ante Septuagésimam et in Festis B. Maríæ Virg., omísso sequénti Responsório, dícitur} Te Deum.
-
-℟. Felix namque es, sacra Virgo María, et omni laude digníssima: \* Quia ex te ortus est sol justítiæ, \* Christus, Deus noster. ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam commemoratiónem. — Quia. Glória Patri. Christus.
+Te Deum laudámus.
 
 ##### AD LAUDES
 
@@ -41061,7 +41053,7 @@ QUASI cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion: quasi 
 
 **Ant. 1** Assúmpta est María in cælum: \* gaudent Angeli, laudántes benedícunt Dóminum.
 
-{RUBRIC: Psalmi de Domínica 1 loco.}
+{RUBRIC: Psalmi de Domínica.}
 
 **2** María Virgo assúmpta est \* ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
 
@@ -41076,7 +41068,7 @@ QUASI cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion: quasi 
 
 VIDÉRUNT eam fíliæ Sion, et beatíssimam prædicavérunt, et regínæ laudavérunt eam. ℟. Deo grátias.
 
-{RUBRIC: Hymnus} O gloriósa. [192]
+{RUBRIC: Hymnus} O gloriósa. [191]
 
 ℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
 
@@ -41090,7 +41082,7 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 
 DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
 
-{RUBRIC: Et fit Commemorátio de Sanctis, ut supra ad Vésperas. [196]}
+{RUBRIC: Et fit Commemorátio de Sanctis, ut supra ad Vésperas. [195]}
 
 ##### AD PRIMAM
 
@@ -41118,7 +41110,7 @@ Amen.
 
 **Ant.** Assúmpta est María in cælum.
 
-{RUBRIC: Ps. 53} Deus in nómine tuo 181; {RUBRIC: Ps. 84} Benedixísti 245; {RUBRIC: Ps. 116} Laudáte Dóminum, omnes gentes. 93
+{RUBRIC: Ps. 53} Deus in nómine tuo 154; {RUBRIC: Ps. 84} Benedixísti 214; {RUBRIC: Ps. 116} Laudáte Dóminum, omnes gentes. 74
 
 **Ant.** Assúmpta est María in cælum: gaudent Angeli, laudántes benedícunt Dóminum.
 
@@ -41143,11 +41135,11 @@ DEUS, qui virginálem aulam beátæ Maríæ, in qua habitáres, elígere dignát
 
 ℣. Deus, in adjutórium.
 
-{RUBRIC: Hymnus} Meménto, ut supra. [199]
+{RUBRIC: Hymnus} Meménto, ut supra.
 
 **Ant.** María Virgo assúmpta est.
 
-{RUBRIC: Ps. 119} Ad Dóminum cum tribulárer 111; {RUBRIC: Ps. 120} Levávi óculos meos {RUBRIC: ibid.}; {RUBRIC: Ps. 121} Lætátus sum {RUBRIC: ibid.}
+{RUBRIC: Ps. 119} Ad Dóminum cum tribulárer 93; {RUBRIC: Ps. 120} Levávi óculos meos {RUBRIC: ibid.}; {RUBRIC: Ps. 121} Lætátus sum 94
 
 **Ant.** María Virgo assúmpta est ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
 
@@ -41176,7 +41168,7 @@ DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno gé
 
 **Ant.** In odórem.
 
-{RUBRIC: Ps. 122} Ad te levávi 148; {RUBRIC: Ps. 123} Nisi quia Dóminus 149; {RUBRIC: Ps. 124} Qui confídunt in Dómino {RUBRIC: ibid.}
+{RUBRIC: Ps. 122} Ad te levávi 125; {RUBRIC: Ps. 123} Nisi quia Dóminus 126; {RUBRIC: Ps. 124} Qui confídunt in Dómino {RUBRIC: ibid.}
 
 **Ant.** In odórem unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis.
 
@@ -41205,7 +41197,7 @@ CONCÉDE, miséricors Deus, fragilitáti nostræ præsídium: ut, qui sanctæ De
 
 **Ant.** Pulchra es.
 
-{RUBRIC: Ps. 125} In converténdo 149; {RUBRIC: Ps. 126} Nisi Dóminus 150; {RUBRIC: Ps. 127} Beáti omnes. 189
+{RUBRIC: Ps. 125} In converténdo 126; {RUBRIC: Ps. 126} Nisi Dóminus 127; {RUBRIC: Ps. 127} Beáti omnes. 161
 
 **Ant.** Pulchra es et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
 
@@ -41222,189 +41214,3 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 **Oratio**
 
 FAMULÓRUM tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui, Dómini nostri, intercessióne salvémur: Qui tecum vivit.
-
----
-
-## II In Adventu
-
-{RUBRIC: Quod dícitur a Vésperis Sábbati ante Dominícam I Advéntus usque ad Nonam Vigíliæ Nativitátis Dómini inclusíve.}
-
-{RUBRIC: Omnia dicúntur ut supra per Annum notátur [195], præter sequéntia:}
-
-### In Vesperis
-
-{RUBRIC: Antíphonæ et Capítulum de Láudibus. [204]}
-
-**Ad Magnif. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei, allelúja.
-
-Kýrie, eléison. Christe, eléison. Kýrie, eléison.
-
-℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
-
-**Oratio**
-
-DEUS, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti: præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
-
-{RUBRIC: Quæ Orátio dícitur ad omnes Horas.}
-
-{RUBRIC: Et fit Commemorátio de Sanctis:}
-
-**Ant.** Ecce Dóminus véniet, et omnes Sancti ejus cum eo: et erit in die illa lux magna, allelúja.
-
-℣. Ecce apparébit Dóminus super nubem cándidam. ℟. Et cum eo Sanctórum míllia.
-
-**Oratio**
-
-CONSCIÉNTIAS nostras, quǽsumus, Dómine, visitándo purífica: ut, véniens Jesus Christus, Fílius tuus, Dóminus noster, cum ómnibus Sanctis, parátam sibi in nobis invéniat mansiónem: Qui tecum vivit.
-
-##### AD COMPLETORIUM
-
-#### Capitulum
-*Is. 7, 14-15*
-
-ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
-
-℣. Angelus Dómini nuntiávit Maríæ. ℟. Et concépit de Spíritu Sancto.
-
-{RUBRIC: Ad Nunc dimíttis Ant.} Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei, allelúja.
-
-##### AD MATUTINUM
-
-{RUBRIC: Féria IV et Sábbato, loco 3. Antíphonæ} Post partum, {RUBRIC: dícitur sequens}
-
-**Ant.** Angelus Dómini \* nuntiávit Maríæ, et concépit de Spíritu Sancto, allelúja.
-
-**Absolutio.** PRÉCIBUS et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
-
-℣. Jube, domne, benedícere. — **Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
-
-**Lectio i** *Luc. 1, 26-38*
-
-MISSUS est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et, ingréssus Angelus ad eam, dixit: Ave, grátia plena; Dóminus tecum: benedícta tu in muliéribus. Tu autem, Dómine.
-
-℟. Missus est Gábriel Angelus ad Maríam Vírginem desponsátam Joseph, núntians ei verbum; et expavéscit Virgo de lúmine: ne tímeas, María, invenísti grátiam apud Dóminum: \* Ecce concípies et páries, et vocábitur Altíssimi Fílius. ℣. Dabit ei Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum. — Ecce.
-
-℣. Jube, domne, benedícere. — **Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
-
-**Lectio ii**
-
-QUÆ cum audísset, turbáta est in sermóne ejus, et cogitábat qualis esset ista salutátio. Et ait Angelus ei: Ne tímeas, María; invenísti enim grátiam apud Deum: ecce concípies in útero et páries fílium, et vocábis nomen ejus Jesum. Hic erit magnus, et Fílius Altíssimi vocábitur; et dabit illi Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum, et regni ejus non erit finis. Tu autem.
-
-℟. Ave, María, grátia plena; Dóminus tecum: \* Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi: quod enim ex te nascétur Sanctum, vocábitur Fílius Dei. ℣. Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Angelus, dixit ei. — Spíritus.
-
-{RUBRIC: In Festis B. Maríæ V.:} Glória Patri. Spíritus.
-
-℣. Jube, domne, benedícere. — **Bened.** Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
-
-**Lectio iii**
-
-DIXIT autem María ad Angelum: Quómodo fiet istud, quóniam virum non cognósco? Et respóndens Angelus dixit ei: Spíritus Sanctus supervéniet in te, et virtus Altíssimi obumbrábit tibi. Ideóque et quod nascétur ex te Sanctum, vocábitur Fílius Dei. Et ecce Elísabeth, cognáta tua, et ipsa concépit fílium in senectúte sua, et hic mensis sextus est illi, quæ vocátur stérilis; quia non erit impossíbile apud Deum omne verbum. Dixit autem María: Ecce ancílla Dómini: fiat mihi secúndum verbum tuum. Tu autem.
-
-{RUBRIC: In Festis B. Maríæ Virg., omísso Responsório sequénti, dícitur} Te Deum.
-
-℟. Súscipe verbum, Virgo María, quod tibi a Dómino per Angelum transmíssum est: concípies et páries Deum páriter et hóminem, \* Ut benedícta dicáris inter omnes mulíeres. ℣. Páries quidem fílium, et virginitátis non patiéris detriméntum: efficiéris grávida, et eris mater semper intácta. — Ut. Glória Patri. Ut.
-
-##### AD LAUDES
-
-**Ant. 1** Missus est \* Gábriel Angelus ad Maríam Vírginem desponsátam Joseph.
-
-**2** Ave, María, \* grátia plena; Dóminus tecum: benedícta tu in muliéribus, allelúja.
-
-**3** Ne tímeas, María, \* invenísti grátiam apud Dóminum: ecce concípies et páries fílium, allelúja.
-
-**4** Dabit ei Dóminus \* sedem David, patris ejus; et regnábit in ætérnum.
-
-**5** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum.
-
-#### Capitulum
-*Is. 11, 1-2*
-
-EGREDIÉTUR virga de radíce Jesse, et flos de radíce ejus ascéndet. Et requiéscet super eum Spíritus Dómini. ℟. Deo grátias.
-
-**Ad Bened. Ant.** Spíritus Sanctus \* in te descéndet, María: ne tímeas, habébis in útero Fílium Dei, allelúja.
-
-{RUBRIC: Oratio et Commemoratio de Sanctis, ut notátur supra ad Vésperas. [202]}
-
-##### AD PRIMAM
-
-**Ant.** Missus est \* Gábriel Angelus ad Maríam Vírginem desponsátam Joseph.
-
-#### Capitulum
-*Is. 7, 14-15*
-
-ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
-
-℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
-
-##### AD TERTIAM
-
-**Ant.** Ave María, \* grátia plena; Dóminus tecum: benedícta tu in muliéribus, allelúja.
-
-**Capit.** Egrediétur, ut supra.
-
-℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
-
-##### AD SEXTAM
-
-**Ant.** Ne tímeas, María, \* invenísti grátiam apud Dóminum: ecce concípies et páries fílium, allelúja.
-
-#### Capitulum
-*Luc. 1, 32-33*
-
-DABIT illi Dóminus Deus sedem David, patris ejus; et regnábit in domo Jacob in ætérnum, et regni ejus non erit finis. ℟. Deo grátias.
-
-℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
-
-##### AD NONAM
-
-**Ant.** Ecce ancílla Dómini: \* fiat mihi secúndum verbum tuum.
-
-#### Capitulum
-*Is. 7, 14-15*
-
-ECCE Virgo concípiet et páriet fílium, et vocábitur nomen ejus Emmánuel. Butýrum et mel cómedet, ut sciat reprobáre malum, et elígere bonum. ℟. Deo grátias.
-
-℣. Angelus Dómini nuntiávit Maríæ. ℟. Et concépit de Spíritu Sancto.
-
----
-
-## III Post Nativitatem
-
-{RUBRIC: Quod dícitur a Vésperis diéi 24 Decémbris usque ad Complétorium diéi 2 Februárii inclusíve.}
-
-{RUBRIC: Omnia dicúntur ut supra per Annum notátur [195], præter sequéntia:}
-
-### In Vesperis
-
-{RUBRIC: Antíphonæ de Láudibus, ut infra.}
-
-**Ad Magnif. Ant.** Magnum \* hereditátis mystérium: templum Dei factus est úterus nesciéntis virum: non est pollútus ex ea carnem assúmens; omnes gentes vénient, dicéntes: Glória tibi, Dómine.
-
-**Oratio**
-
-DEUS, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti: tríbue, quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit et regnat.
-
-{RUBRIC: Quæ Orátio dícitur ad omnes Horas.}
-
-{RUBRIC: Commemorátio de Sanctis ut supra per Annum. [196]}
-
-{RUBRIC: Ad Complétorium ad Nunc dimíttis Antíphona} Magnum hereditátis, {RUBRIC: ut supra ad Vésperas.}
-
-##### AD LAUDES
-{RUBRIC: et per Horas, Anæ}
-
-**1** O admirábile commércium: \* Creátor géneris humáni, animátum corpus sumens, de Vírgine nasci dignátus est; et procédens homo sine sémine, largítus est nobis suam Deitátem.
-
-**2** Quando natus es \* ineffabíliter ex Vírgine, tunc implétæ sunt Scriptúræ: sicut plúvia in vellus descendísti, ut salvum fáceres genus humánum: te laudámus, Deus noster.
-
-**3** Rubum, quem víderat Móyses \* incombústum, conservátam agnóvimus tuam laudábilem virginitátem: Dei Génitrix, intercéde pro nobis.
-
-**4** Germinávit radix Jesse, \* orta est stella ex Jacob: Virgo péperit Salvatórem: te laudámus, Deus noster.
-
-**5** Ecce María génuit \* nobis Salvatórem, quem Joánnes videns exclamávit, dicens: Ecce Agnus Dei, ecce qui tollit peccáta mundi, allelúja.
-
-**Ad Bened. Ant.** Mirábile mystérium \* declarátur hódie: innovántur natúræ, Deus homo factus est: id quod fuit permánsit; et quod non erat assúmpsit; non commixtiónem passus, neque divisiónem.
-
-{RUBRIC: Oratio ut supra ad Vésperas.}
-
-{RUBRIC: Commemorátio de Sanctis ut per Annum. [196]}

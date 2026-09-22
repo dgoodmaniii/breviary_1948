@@ -23399,4 +23399,10 @@ PÓntius Merópius Anícius Paulínus, anno reparátæ salútis trecentésimo qu
 
 #### Lectio v
 
-DIvítiis quibus abundábat spretis, bona véndidit pretiúmque paupé-
+DIvítiis quibus abundábat spretis, bona véndidit pretiúmque paupéribus distríbuit, et uxórem linquens Therásiam, mutáta pátria et ruptis vínculis carnis, in Hispániam secéssit, venerándam secúta ac toto sibi pretiosiórem orbe Christi paupériem. Barcinóne dum Sacris devóte astáret, solémni die Domínicæ Nativitátis, repentíno admirátæ plebis tumúltu corréptus, ac frustra relúctans, a Lampídio epíscopo présbyter ordinátur. Inde redit in Itáliam, et Nolæ, quo sancti Felícis religióne ductus fúerat, penes illíus sepúlcrum monastérium cóndidit, et adscítis sóciis cœnobíticam vitam aggréditur. Hic vir, jam senatória et consulári dignitáte præclárus, stultítiam Crucis ampléxus, toto fere orbe admiránte, vili indútus túnica, vigílias inter ac jejúnia, in assídua cæléstium rerum contemplatióne dies noctésque defíxus manébat. Sed, percrebrescénte sanctimóniæ fama, ad Nolánum episcopátum evéhitur, atque eódem in pastoráli múnere obeúndo, miránda pietátis, sapiéntiæ ac potíssimum caritátis exémpla relíquit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+HǼC inter, sapiéntia referta, de religióne ac fide pertractántia edíderat scripta, sæpe étiam númeris indúlgens concínnis carmínibus Sanctórum acta concelebráverat, summam christiáni poétæ famam adéptus. Quotquot sanctitáte ac doctrína præstantíssimi viri eo témpore erant, tot sibi amicítia atque admiratióne devínxit. Quamplúrimi ad eum, ceu ad christiánæ perfectiónis magístrum, undequáquam confluébant. Vastáta a Gothis Campánia, facultátem omnem, ne relíctis quidem sibi rebus ad vitam necessáriis, in aléndos páuperes et captívos rediméndos cóntulit. Póstea vero, Vándalis eásdem regiónes infestántibus, cum ab eo pósceret vídua ut fílium sibi redímeret ab hóstibus captum; consúmptis bonis ómnibus in offício pietátis, se ipsum pro illo tradit in servitútem, atque in víncula conjéctus in Africam rápitur. Tandem, non sine præsénti Dei ope, libertáte donátus et Nolam revérsus, diléctum ovíle bonus pa-

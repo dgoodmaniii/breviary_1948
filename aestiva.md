@@ -27750,4 +27750,26 @@ ARctióribus hisce vínculis ægrotántium ministério mancipátus, mirum est qu
 
 #### Lectio ix
 
-CAmíllus Bucclánici, in Theatínæ diœcésis óppido, ex nóbili Lelliórum família natus, adoléscens rem militárem secútus, sæculi vítiis aliquámdiu indúlsit. Divínæ tamen offénsæ dolóre corréptus,
+CAmíllus Bucclánici, in Theatínæ diœcésis óppido, ex nóbili Lelliórum família natus, adoléscens rem militárem secútus, sæculi vítiis aliquámdiu indúlsit. Divínæ tamen offénsæ dolóre corréptus, ad fratres Minóres, quos Capuccínos vocant, cónvolans, ut eórum número adscriberétur, eníxe postulávit. Voti compos semel atque íterum factus, fœdo úlcere, quo aliquándo laboráverat, in ejus tíbia iteráto recrudescénte, superiórum plácitis humíliter se submíttens, illíus religiónis bis expetítum et susceptúm hábitum bis dimísit. Romam proféctus, et sacerdótio rite initiátus, prima jecit fundaménta congregatiónis Clericórum regulárium infírmis ministrántium, sodálibus quarto obstríctis máxime árduo voto, infírmis, quos étiam pestis infecísset, ministrándi. Iterátis jejúniis et assíduis fractus labóribus, quinque moléstis æque ac diútinis morbis, quos misericórdias Dómini appellábat, fórtiter tolerátis, óbiit in Dómino, prídie Idus Júlii, anno millésimo sexcentésimo décimo quarto, ætátis sexagésimo quinto. Eum Leo décimus tértius cæléstem ómnium hospitálium et infirmórum patrónum renuntiávit, ejúsque nomen in agonizántium litaníis invocári præcépit.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio vii
+
+*Cap. 15, 12-16*
+
+IN illo témpore: Dixit Jesus discípulis suis: Hoc est præcéptum meum, ut diligátis ínvicem, sicut diléxi vos. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Tractatus 83 in Joannem*
+
+QUid putámus, fratres mei? numquídnam solum ejus de ista dilectióne mandátum est, qua dilígimus ínvicem? Nonne est et áliud majus, ut dilígámus Deum? Aut vero de sola Deus nobis dilectióne mandávit, ut ália non requirámus? Tria certe comméndat Apóstolus, dicens: Manent autem fides, spes, cáritas, tria hæc, major autem horum cáritas. Et, si in caritáte, hoc est, in dilectióne conclúduntur duo illa præcépta, major tamen dicta est esse, non sola. De fide ígitur nobis quam multa mandáta sunt, quam multa de spe! Quis potest cuncta collígere, quis enumerándo suffícere? Sed intueámur, quod ait idem Apóstolus: Plenitúdo legis cáritas.
+
+℟. Iste est, qui ante Deum magnas virtútes

@@ -28155,4 +28155,28 @@ MAría Magdaléne, quæ fúerat in civitáte peccátrix, amándo veritátem, lav
 
 QUæsívit ergo prius, et mínime invénit; perseverávit ut quæreret, unde et cóntigit ut inveníret; actúmque est, ut desidéria diláta créscerent, et créscentia cáperent quod inveníssent. Hinc est enim quod de eódem sponsa Ecclésia in Cánticis canticórum dicit: In léctulo meo per noctes quæsívi quem díligit ánima mea. Diléctum namque in léctulo quærimus, quando, in præséntis vitæ aliquántula réquie, Redemptóris nostri desidério suspirámus. Per noctem quærimus: quia etsi jam in illo mens vígilat, tamen adhuc óculus cálígat.
 
-℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+SED, qui diléctum suum non invénit, restat ut surgat, civitátem circúmeat, id est, sanctam electórum Ecclésiam mente et inquisitióne percúrrat; per vicos eum et platéas quærat, id est, per angústa et lata gradiéntes aspíciat, ut, si qua invenire in eis váleat, ejus vestígia exquírat: quia sunt nonnúlli étiam vitæ sæculáris, qui imitándum áliquid hábeant de actióne virtútis. Quæréntes autem nos vígiles invéniunt, qui custódiunt civitátem: quia sancti Patres, qui Ecclésiæ statum custódiunt, bonis nostris stúdiis occúrrunt, ut suo vel verbo vel scripto nos dóceant. Quos cum páululum pertransímus, invenímus quem dilígimus: quia Redémptor noster, etsi humilitáte homo inter hómines, divinitáte tamen super hómines fuit.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier timens. Glória Patri. Múlier timens.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 7, 36-50*
+
+IN illo témpore: Rogábat Jesum quidam de pharisǽis ut manducáret cum illo. Et ingréssus domum pharisǽi discúbuit. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Liber 50, Homilia 23, tom. 10*
+
+EVangélium cum legerétur, attentíssime audístis; et res gesta narráta atque versáta est ante óculos cordis vestri. Vidístis enim, non carne, sed mente, Dóminum Jesum Christum in domo pharisǽi recumbéntem, et ab illo invitátum non fastidiéntem. Vidístis étiam in civitáte mulíerem famósam, mala útique fama, quæ erat peccátrix, non invitátam irruísse convívio ubi suus médicus recumbébat, et quæsísse pia impudéntia sanitátem; írruens, quasi importúna convívio, opportúna benefício. Nóverat enim quanto morbo laboráret; et illum ad sanándum esse idóneum, ad quem vénerat, sciébat.
+
+℟. Os suum apéruit sapiéntiæ, et lex cleméntiæ

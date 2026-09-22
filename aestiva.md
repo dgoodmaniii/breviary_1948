@@ -19937,3 +19937,27 @@ MAgnus justítiæ splendor, quæ áliis pótius nata quam sibi, communitátem et
 ##### Lectio v
 
 QUanta autem justítia sit, ex hoc intélligi potest, quod nec locis, nec persónis, nec témporibus excípitur, quæ étiam hóstibus reservátur: ut, si constitútus sit cum hoste aut locus aut dies prǽlio, advérsus justítiam putétur aut loco præveníre aut témpore. Interest enim, utrum áliquis pugna áliqua et conflíctu gravi capiátur, an superióre grátia, vel áliquo evéntu. Si ergo in bello justítia valet, quanto magis in pace servánda est?
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+##### Lectio vi
+
+FUndaméntum ergo est justítiæ fides. Justórum enim corda meditántur fidem: et qui se justus accúsat, justítiam supra fidem cóllocat. Nam tunc justítia ejus appáret, si vera fateátur. Dénique et Dóminus per Isaíam: Ecce, inquit, mitto lápidem in fundaméntum Sion; id est, Christum in fundaméntum Ecclésiæ. Fides enim ómnium Christus; Ecclésia autem quǽdam forma justítiæ est, commúne jus ómnium: in commúne orat, in commúne operátur, in commúne tentátur. Dénique qui seípsum sibi ábnegat, ipse justus, ipse dignus Christo est. Ideo et Paulus fundaméntum pósuit Christum, ut supra eum ópera justítiæ locarémus, quia fides fundaméntum est.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+{RUBRIC: ℟. vii Dómine et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro Sapiéntiæ}
+
+##### Lectio i
+
+*Cap. 3, 1-11*
+
+JUstórum autem ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori, et æstimáta est afflíctio éxitus illórum, et quod a nobis est iter extermínium; illi autem sunt in pace; et si coram homínibus torménta passi sunt, spes illórum immortalitáte plena est. In paucis vexáti in multis bene disponéntur, quóniam Deus tentávit eos et invénit illos dignos se. Tamquam aurum in fornáce probávit illos, et quasi holocáusti hóstiam accépit illos, et in témpore erit respéctus illórum.
+
+℟. Ne derelínquas me, Dómine, pater et dominátor vitæ meæ, ut non córruam in conspéctu adversariórum meórum: \* Ne gáudeat de me inimícus meus. ℣. Apprehénde arma et scutum et exsúrge

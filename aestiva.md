@@ -29427,4 +29427,54 @@ Amen.
 
 DA nobis, quǽsumus, Dómine, imitári quod cólimus: ut discámus et inimícos dilígere; quia ejus Inventiónem celebrámus, qui novit étiam pro persecutóribus exoráre Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit et regnat.
 
-{RUBRIC: Ad Horas Antiphona et Psalmi de Feria. Sicubi autem hoc Festum sub ritu duplici I vel
+{RUBRIC: Ad Horas Antiphona et Psalmi de Feria. Sicubi autem hoc Festum sub ritu duplici I vel II classis recolátur, Antiphonæ de Laudibus, cum Psalmis de Dominica ut in Festis.}
+
+##### Ad Tertiam
+
+**Capit.** Stéphanus autem, {RUBRIC: ut supra.}
+
+{RUBRIC: ℟. br. Glória et honóre \* Coronásti eum, Dómine, Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Coronásti. Glória Patri. Glória et.}
+
+℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.
+
+##### Ad Sextam
+
+**Capitulum** *Act. 6, 9-10*
+
+SUrrexérunt autem quidam de synagóga, quæ appellátur Libertinórum, et Cyrenénsium, et Alexandrinórum, et eórum qui erant a Cilícia, et Asia, disputántes cum Stéphano: et non póterant resístere sapiéntiæ, et Spirítui qui loquebátur.
+
+{RUBRIC: ℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretiósa. Super. Glória Patri. Posuísti.}
+
+℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+##### Ad Nonam
+
+**Capitulum** *Act. 7, 60*
+
+POsitis autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+
+{RUBRIC: ℟. br. Magna est glória ejus \* In salutári tuo. Magna. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna.}
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis.}
+
+{RUBRIC: Si II Vesperæ dicéndæ sint íntegræ, Antíphonæ et Capítulum de Laudibus 832; Psalmi et Hymnus de Communi uníus Mártyris [29], Versus et Antíphona ad Magníficat, ut infra.}
+
+---
+
+### Die 4 Augusti
+
+#### S. Dominici
+
+{RUBRIC: Conf. [94]}
+
+{RUBRIC: Duplex majus (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Simílabo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEus, qui Ecclésiam tuam beáti Domínici Confessóris tui illumináre dignátus es méritis et doctrínis: concéde; ut ejus intercessióne temporálibus non destituátur auxíliis, et spirituálibus semper profíciat increméntis. Per Dóminum.

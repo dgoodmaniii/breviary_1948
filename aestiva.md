@@ -26940,3 +26940,67 @@ Agmina ducunt.
 
 Débitam cincti méritis corónam,
 Pérgite o flecti lácrimis precántum;
+Prisca vos Slavis opus est datóres
+Dona tuéri.
+
+Quæque vos clamat generósa tellus
+Servet ætérnæ fídei nitórem:
+Quæ dedit princeps, dabit ipsa semper
+Roma salútem.
+
+Gentis humánæ Sator et Redémptor,
+Qui bonus nobis bona cuncta præbes,
+Sint tibi grates, tibi sit per omne
+Glória sæclum.
+Amen.
+
+℣. Sacerdótes tui induántur justítiam. ℟. Et Sancti tui exsúltent.
+
+**Ad Magnif. Ant.** Isti sunt \* viri sancti facti amíci Dei, divínæ veritátis præcónio gloriósi: línguæ eórum claves cæli factæ sunt.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 8 Julii
+
+#### S. Elisabeth
+
+{RUBRIC: Reginæ, Viduæ [130]}
+
+{RUBRIC: Semiduplex}
+
+##### In I Vesperis
+
+{RUBRIC: Quando Vésperæ dicéndæ sint saltem a Capítulo, Hymnus Domáre, ut infra ad Matutínum.}
+
+**Ant.** Et nunc, reges, intellígite, erudímini, qui judicátis terram.
+
+℣. Ora pro nobis, beáta Elísabeth. ℟. Ut digni efficiámur promissiónibus Christi.
+
+###### Oratio
+
+CLementíssime Deus, qui beátam Elísabeth regínam, inter céteras egrégias dotes, béllici furóris sedándi prærogatíva decorásti: da nobis, ejus intercessióne; post mortális vitæ, quam supplíciter pétimus, pacem, ad ætérna gáudia pervenire. Per Dóminum.
+
+##### Ad Matutinum
+
+**Invit.** Laudémus Deum nostrum \* In sanctis opéribus beátæ Elísabeth. **Ps. 94** Veníte, exsultémus.
+
+###### Hymnus
+
+DOmáre cordis ímpetus Elísabeth,
+Fortis, inópsque Deo
+Servíre, regno prætulit.
+
+En fúlgidis recépta cæli sédibus,
+Sidereæque domus
+Ditáta sanctis gáudiis,
+
+Nunc regnat inter cælites beátior,
+Et premit astra, docens
+Quæ vera sint regni bona.
+
+Patri potéstas, Filióque glória,
+Perpetuúmque decus
+Tibi sit, alme Spíritus.
+Amen.

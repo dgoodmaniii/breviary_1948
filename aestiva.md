@@ -26696,4 +26696,34 @@ Sermo sancti Joánnis Chrysóstomi
 
 #### Lectio iv
 
-QUasnam vobis, o beáti Apóstoli, referémus grátias, qui tantum pro nobis laborá-
+QUasnam vobis, o beáti Apóstoli, referémus grátias, qui tantum pro nobis laborástis? Mémini tui, Petre, et obstupésco: recórdor tui, Paule, et excédens mente ópprimor lácrimis. Quid enim dicam, aut quid loquar, vestras contémplans afflictiónes, néscio. Quot cárceres sanctificástis! quot caténas decorástis: quot torménta sustinuístis! quot maledícta tolerástis! quómodo Christum portástis! quómodo prædicatióne ecclésias lætificástis! Sunt benedícta vestræ linguæ instruménta: sánguine conspérsa sunt membra vestra propter Ecclésiam. Vos Christum imitáti estis in ómnibus. In omnem terram éxiit vester sonus, et verba vestra in fines orbis terræ.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio v
+
+GAudeas, Petre, cui datum est, ut ligno crucis Christi frueréris. Et ad Magístri quidem similitúdinem voluísti crucifígi, non recta quidem figúra, ut Christus Dóminus; sed cápite in terram verso, tamquam qui a terra in cælum iter fáceres. Beáti clavi, qui sancta illa membra penetrárunt. Tu cum omni fidúcia in manus Dómini ánimam tradidísti, qui assídue ei et ejus sponsæ Ecclésiæ servísti, qui ferventi spíritu Dóminum dilexísti, ómnium Apostolórum fidelíssimus.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+GAudeas et tu, beáte Paule, cui caput fuit gládio amputátum, cujus virtútes nullis verbis explicári possunt. Quisnam gládius sanctum guttur tuum pervásit, Dominícum, inquam, instruméntum, quod a cælo habétur in admiratióne, et quod terra reverétur? Quisnam locus tuum sánguinem excépit, lactis spécie in ejus qui te percússit túnica apparéntem? qui ánimam illíus bárbari supra modum dulciórem reddens, fidélem effécit cum sóciis. Sit mihi gládius ille pro coróna, et clavi Petri pro gemmis infíxis in diadémate.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui, contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 14, 22-23*
+
+IN illo témpore: Cómpulit Jesus discípulos ascéndere in navículam et præcédere eum trans fretum, donec dimítteret turbas. Et réliqua.
+
+Homilía sancti Hierónymi Presbýteri
+
+*Lib. 2 Comment. in cap. 14 Matth.*
+
+DIscípulis Dóminus præcépit transfretáre, et cómpulit ut ascénderent navículam. Quo sermóne osténditur, invítos eos a Dómino recessísse, dum amóre Præceptóris ne punctum qui-

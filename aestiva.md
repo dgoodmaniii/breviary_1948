@@ -27274,4 +27274,20 @@ JOánnes Gualbértus, Floréntiæ nóbili génere ortus, dum patri óbsequens re
 
 #### Lectio v
 
-DEínde, plúrimis ad eum ob ejus sanctitátis famam úndique convolántibus, una cum iis in sócios adscítis, ad hæréticam et simoníacam pravitátem exstirpándam et apostólicam fidem propagándam sédulo incúmbit, innúmera proptérea in se et suis incómmoda expértus. Nam, ut eum ejúsque sócios adversárii perdant, noctu sancti Sálvii cœnóbium repénte aggrediúntur, templum incéndunt, ædes demoliúntur, et mónachos omnes letháli vúlnere sáuciant; quos vir Dei único crucis signo incólumes prótinus reddit, et, Petro ejus mónacho per imménsum ardentissimúmque ignem illæso mirabíliter transeúnte, optátam sibi et suis tranquillitátem óbtinet. Inde simoníacam labem ab Etrúria expúlit, ac in tota Itália fidem
+DEínde, plúrimis ad eum ob ejus sanctitátis famam úndique convolántibus, una cum iis in sócios adscítis, ad hæréticam et simoníacam pravitátem exstirpándam et apostólicam fidem propagándam sédulo incúmbit, innúmera proptérea in se et suis incómmoda expértus. Nam, ut eum ejúsque sócios adversárii perdant, noctu sancti Sálvii cœnóbium repénte aggrediúntur, templum incéndunt, ædes demoliúntur, et mónachos omnes letháli vúlnere sáuciant; quos vir Dei único crucis signo incólumes prótinus reddit, et, Petro ejus mónacho per imménsum ardentissimúmque ignem illæso mirabíliter transeúnte, optátam sibi et suis tranquillitátem óbtinet. Inde simoníacam labem ab Etrúria expúlit, ac in tota Itália fidem prístinæ integritáti restítuit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+MUlta fúnditus eréxit monastéria, eadémque et ália ædifíciis ac regulári observántia instauráta, sanctis légibus communívit. Ad egénos aléndos sacram supelléctilem véndidit: ad ímprobos coërcéndos eleménta sibi famulári conspéxit; ad dǽmones compriméndos crucem quasi ensem adhíbuit. Demum abstinéntiis, vigíliis, jejúniis, oratiónibus, carnis maceratiónibus ac sénio conféctus, dum infírma valetúdine gravarétur, Davídica illa verba persæpe repetébat: Sitívit ánima mea ad Deum fortem vivum: quando véniam et apparébo ante fáciem Dei? Jamque morti próximus, convocátos discípulos ad fratérnam concórdiam cohortátur, et in brevículo, cui consepelíri vóluit, jussit hæc scribi: Ego Joánnes credo et confíteor fidem, quam sancti Apóstoli prædicavérunt, et sancti Patres in quátuor concíliis confirmavérunt. Tandem, triduáno Angelórum obséquio dignátus, septuagésimum octávum annum agens, apud Passiniánum, ubi summa veneratióne cólitur, migrávit ad Dóminum, anno salútis millésimo septuagésimo tértio, quarto Idus Júlii. Quem Cæléstinus tértius, innúmeris miráculis clarum, in Sanctórum númerum rétulit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOánnes Gualbértus, Floréntiæ nóbili génere ortus, dum patri óbsequens rem militárem séquitur, Ugo, únicus ejus frater, occíditur a consanguíneo. Quem cum solum et inérmem sancto Parascéves die Joánnes, armis et milítibus stipátus, óbvium habéret, ubi neuter álterum póterat declináre, ob sanctæ crucis reverén-

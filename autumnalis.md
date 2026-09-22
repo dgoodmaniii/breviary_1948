@@ -15971,3 +15971,55 @@ ERat autem hujuscémodi visus : Oníam, qui fúerat summus sacérdos, virum bonu
 EXhortáti ítaque Judæ sermónibus bonis valde, de quibus extólli posset ímpetus et ánimi júvenum confortári, statuérunt dimicáre et conflígere fórtiter, ut virtus de negótiis judicáret, eo quod civitas sancta et templum periclitaréntur. Erat enim pro uxóribus et fíliis itémque pro frátribus et cognátis minor sollicitúdo; máximus vero et primus pro sanctitáte timor erat templi. Sed et eos qui in civitáte erant non mínima sollicitúdo habébat pro his qui congressúri erant.
 
 ℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Sabbato ante Dominicam I Novembris
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Vidi Dóminum \* sedéntem super sólium excélsum, et plena erat omnis terra majestáte ejus : et ea, quæ sub ipso erant, replébant templum.
+
+{RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica I Novembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Ezechiélis Prophétæ}
+
+##### Lectio i
+*Cap. 1, 1-12*
+
+ET factum est in trigésimo anno, in quarto, in quinta mensis, cum essem in médio captivórum juxta flúvium Chobar, apérti sunt cæli, et vidi visiónes Dei. In quinta mensis, ipse est annus quintus transmigratiónis regis Jóachim, factum est verbum Dómini ad Ezechiélem, fílium Buzi, sacerdótem in terra Chaldæórum, secus flumen Chobar : et facta est super eum ibi manus Dómini. Et vidi, et ecce ventus túrbinis veniébat ab Aquilóne : et nubes magna, et ignis invólvens, et splendor in circúitu ejus : et de médio ejus quasi spécies eléctri, id est, de médio ignis.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+
+ET in médio ejus similitúdo quátuor animálium : et hic aspéctus eórum, similitúdo hóminis in eis. Quátuor fácies uni, quátuor pennæ uni. Pedes eórum pedes recti, et planta pedis eórum, quasi planta pedis vítuli, et scintíllæ quasi aspéctus æris candéntis. Et manus hóminis sub pennis eórum in quátuor pártibus : et fácies, et pennas per quátuor partes habébant, junctæque erant pennæ eórum altérius ad álterum. Non revertebántur cum incéderent : sed unumquódque ante fáciem suam gradiebátur.
+
+℟. Aspice, Dómine, de sede sancta tua, et cógita de nobis : inclína, Deus meus, aurem tuam et audi : \* Aperi óculos tuos et vide tribulatiónem nostram. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Aperi.
+
+##### Lectio iii
+
+SImilitúdo autem vultus eórum : fácies hóminis, et fácies leónis a dextris ipsórum quátuor : fácies autem bovis, a sinístris ipsórum quátuor, et fácies áquilæ désuper ipsórum quátuor. Fácies eórum, et pennæ eórum exténtæ désuper : duæ pennæ singulórum jungebántur, et duæ tegébant córpora eórum : et unumquódque eórum coram fácie sua ambulábat : ubi erat ímpetus spíritus, illuc gradiebántur, nec revertebántur cum ambulárent.
+
+℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.
+
+### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Gregórii Papæ in Ezechiélem Prophétam}
+
+##### Lectio iv
+*Lib. 1, Hom. 2*
+
+USus prophéticæ locutiónis est, ut prius persónam, tempus, locúmque descríbat, et póstmodum dícere mystéria prophétiæ incípiat; quátenus ad veritátem solídius ostendéndam, ante históriæ radícem figat, et post, fructus spíritus per signa et allegórias próferat. Ezéchiel ítaque ætátis suæ tempus índicat, dicens : Et factum est in trigésimo anno, in quarto mense, in quinta mensis. Locum quoque denúntians, adjúngit : Cum essem in médio captivórum juxta flumen Chobar, apérti sunt cæli, et vidi visiónes Dei. Tempus étiam insínuat, subdens : In quinta mensis, ipse est annus quintus transmigratiónis regis Jóachin. Qui ut bene persónam índicet, étiam genus narrat, cum súbditur : Et factum est verbum Dómini ad Ezechiélem, fílium Buzi, sacerdótem.
+
+℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.

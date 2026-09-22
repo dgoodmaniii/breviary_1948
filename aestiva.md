@@ -22824,4 +22824,46 @@ PRimus ex suo órdine, ob doctrínæ præstántiam, Bonóniæ et álibi sacras l
 
 #### Lectio ix
 
-ANtónius, Ulyssipóne in Lusitánia honéstis piísque ortus paréntibus; adoléscens, institútum canonicórum regulárium suscépit: sed, mártyrii desidério incénsus, ad Franciscánum órdinem transívit. Ad Saracénos missus, et advérsa valetúdine redíre coáctus, vi ventórum in Sicíliam delátus
+ANtónius, Ulyssipóne in Lusitánia honéstis piísque ortus paréntibus; adoléscens, institútum canonicórum regulárium suscépit: sed, mártyrii desidério incénsus, ad Franciscánum órdinem transívit. Ad Saracénos missus, et advérsa valetúdine redíre coáctus, vi ventórum in Sicíliam delátus est. Mox sacris ordínibus initiátus et prædicatóris múnere fungens, tantam sui admiratiónem commóvit, ut ad sacras lítteras interpretándas Bonóniæ et álibi vocátus sit, fratrum suórum stúdiis fúerit præféctus, et arca Testaménti atque hæresum málleus merúerit appellári. Multis autem peragrátis província, anno ante óbitum Patávium venit, ubi illústria sanctitátis suæ monuménta relíquit. Méritis et miráculis clarus obdormívit in Dómino Idibus Júnii, anno salútis millésimo ducentésimo trigésimo primo, ætátis suæ trigésimo sexto.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [98]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+ECclésiam tuam, Deus, beáti Antónii Confessóris tui solémnitas votíva lætíficet: ut spirituálibus semper muniátur auxíliis, et gáudiis pérfrui mereátur ætérnis. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de sequenti, Commem. præced.}
+
+---
+
+### Die 14 Junii
+
+#### S. Basilii Magni
+
+{RUBRIC: Ep., Conf. et Eccl. Doct. [69] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Basíli, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio
+
+EXáudi, quǽsumus, Dómine, preces nostras, quas in beáti Basilíi Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Ecclésiam tuam, ut supra.}

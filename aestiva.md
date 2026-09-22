@@ -24516,4 +24516,26 @@ CUM Mártyres ipsi clerúsque Lugdunénsis de pace Ecclesiárum Asiæ, quam Mont
 
 MUlta scripsit, quæ Eusébius Cæsariénsis et sanctus Hierónymus mémorant, quorúmque pars magna intércidit injúria témporum. Exstant ejus advérsus hǽreses libri quinque, anno círciter centésimo octogésimo perscrípti, dum adhuc Eleuthérius rem christiánam públicam géreret. In tértio libro vir Dei, ab iis edóctus quos auditóres constat fuísse Apostolórum, grave in primis atque præclárum de Romána Ecclésia, deque illíus episcopórum successióne, divínæ traditiónis fidéli, perpétua, certíssima custóde, testimónium dixit. Atque ad hanc, dixit, Ecclésiam propter potiórem principalitátem necésse est omnem convenire Ecclésiam, hoc est eos qui sunt úndique fidéles. Postrémo una cum áliis prope innumerabílibus, quos ipse ad veram fidem frugémque perdúxerat, martýrio coronátus migrávit in cælum, anno salútis ducentésimo secúndo, quo témpore Septímius Sevérus Augústus eos omnes, qui constánter in colénda christiána religióne perstáre voluíssent, in summum cruciátum dari atque intérfici imperáverat. Sancti Irenǽi festum Benedíctus décimus quintus Póntifex Máximus ad univérsam Ecclésiam exténdit.
 
-℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus.
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 10, 28-33*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nolíte timére eos, qui occídunt corpus, ánimam autem non possunt occídere; sed pótius timéte eum qui potest et ánimam et corpus pérdere in gehénnam. Et réliqua.
+
+Homilía sancti Irenǽi Epíscopi et Mártyris
+
+*Lib. 3 advérsus Hǽreses cap. 18, álias 20, num. 5-6*
+
+SCiébat Dóminus eos qui persecutiónem passúri essent; sciébat et eos qui flagellári et occídi habérent propter eum. Erat ergo sermo ejus, adhortántis étiam illos: Nolíte timére eos qui occídunt corpus, ánimam autem non possunt occídere. Timéte autem magis eum qui habet potestátem et corpus et ánimam míttere in gehénnam, et serváre eas quæ essent ad eum confessiónes. Etenim ipse confessúrum se promíttébat coram patre suo eos, qui confiteréntur nomen suum coram homínibus; negatúrum autem eos, qui negárent eum et confusúrum, qui confunderéntur contra confessiónem ejus. Et, cum hæc ita se hábeant, ad tantam temeritátem progréssi sunt quidam, ut étiam Mártyres spernant, et vitúperent eos qui propter Dómini confessiónem occidúntur, et sústinent ómnia a Dómino prædícta, et secúndum hoc conántur vestígia ássequi passiónis Dómini, passíbilis Mártyres facti; quos et concédimus ipsis Martýribus. Cum enim inquirétur sanguis eórum, et glóriam consequéntur, tunc a Christo confundéntur omnes, qui inhonoravérunt eórum martýrium.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+HOC autem idem et illis occúrrit, qui dicunt eum putatíve passum. Si enim non vere passus est, nulla grátia ei, cum nulla fúerit pássio; et nos, cum incipiémus vere pati, sedúcens vidébitur, adhór-

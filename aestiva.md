@@ -28444,3 +28444,25 @@ POst Jesu Christi ascénsum in cælum, in Judǽa et Samaría ejus divinitátem p
 AD supplícium cum raperéntur, pétiit ille a Jacóbo véniam; quem Jacóbus osculátus, Pax, inquit, tibi sit. Itaque utérque est secúri percússus, cum paulo ante Jacóbus paralýticum sanásset. Corpus ejus póstea Compostéllam translátum est, ubi summa celebritáte cólitur, conveniéntibus eo religiónis et voti causa ex toto terrárum orbe peregrínis. Memória ipsíus natális hodiérno die, qui translatiónis dies est, ab Ecclésia celebrátur, cum ipse circa festum Paschæ, primus Apostolórum, Jerosólymis profúso sánguine testimónium Jesu Christo déderit.
 
 ℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthæum
+
+#### Lectio vii
+
+*Cap. 20, 20-23*
+
+IN illo témpore: Accéssit ad Jesum mater filiórum Zebedǽi cum fíliis suis, adórans et petens áliquid ab eo. Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+*Homilia 66 in Matthæum*
+
+NON turbétur quisquam, si ádeo imperféctos dícimus Apóstolos fuísse; nondum enim mystérium crucis erat consummátum, nondum grátia Spíritus in corda ipsórum infúsa. Quod si virtútem ipsórum díscere cupis, quales post datam grátiam Spíritus fúerint, consídera, et vidébis omnem ab illis pervérsam affectiónem fuísse superátam. Hac enim de causa eórum modo imperféctio revelátur, ut apérte percípere possis, quales súbito per grátiam effécti fúerint. Quod ígitur nihil spirituále petébant nec de cælésti regno quidquam cogitábant, perspícuum est. Sed tamen inspiciámus étiam, quómodo accédant et quid dicant. Vólumus, ínquiunt, ut quodcúmque petiérimus, fácias nobis. Ad quod Christus, Quid vultis? respóndit: non ignórans certe, sed ut eos respondére cogat et ulcus détegat, et ita medicaméntum appónat.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+ILli vero, cum erubéscerent et verecúndia prohiberéntur, quóniam humáno afféctu eo devénerant, seórsum ab áliis discípulis Christum accipiéntes, interrogavérunt. Progréssi sunt enim, inquit, ne illis manifésti fíerent; et ita demum ea, quæ volébant, dixérunt. Volébant autem, ut ego conjício, quóniam super duódecim sedes sessúros discípulos audiérunt, primátum hujus conséssus impetráre: et præpóni quidem se céteris sciébant; Petrum vero sibi præférri formidántes, dícere ausi sunt: Dic ut unus a dextris, alter a sinístris sédeat. Et urgent dicéntes: Dic. Quid ígitur ipse? Ut significáret eos nihil pétere spiritále, sed

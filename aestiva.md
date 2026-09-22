@@ -20794,4 +20794,28 @@ BLandiménta verbórum, et mansuetúdinis simulatiónem ádmonet fructu operati�
 
 ##### Lectio viii
 
-QUid enim mériti est Dómino dícere, Dómine? Numquid Dóminus non erit, nisi fúerit dictus a nobis? Et quæ offícii sánctitas est nóminis nuncu-
+QUid enim mériti est Dómino dícere, Dómine? Numquid Dóminus non erit, nisi fúerit dictus a nobis? Et quæ offícii sánctitas est nóminis nuncupátio, cum cæléstis regni iter obediéntia pótius voluntátis Dei, non nuncupátio, repertúra sit? Multi mihi dicent in illa die: Dómine, Dómine, nonne in tuo nómine prophetávimus? Etiam nunc pseudoprophetárum frauduléntiam et hypocritárum simulaménta condémnat, qui glóriam sibi ex verbi virtúte præsúmunt, in doctrínæ prophetía, et dæmoniórum fuga, et istiúsmodi óperum virtútibus.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+ATque hinc sibi regnum cælórum pollicéntur: quasi vero eórum áliquid próprium sit, quæ loquúntur aut fáciunt, et non ómnia virtus Dei invocáta perfíciat; cum doctrínæ sciéntiam léctio áfferat, dæmónia Christi nomen exágitet. De nostro ígitur est beáta illa æternitas promerénda, præstandúmque est áliquid ex próprio, omne vitémus, totóque afféctu præcéptis cæléstibus obtemperémus, ac tálibus offíciis cógniti Deo simus, agamúsque pótius quod vult, quam quod potest gloriémur; repúdians eos ac repéllens, quos a cognitióne sua, ópera iniquitátis avérterint.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Atténdite \* a falsis prophétis, qui véniunt ad vos in vestiméntis óvium, intrínsecus autem sunt lupi rapáces; a frúctibus eórum cognoscétis eos, allelúja.
+
+### Oratio
+
+DEus, cujus providéntia in sui dispositióne non fállitur: te súpplices exorámus; ut nóxia cuncta submóveas, et ómnia nobis profutúra concédas. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Non potest arbor \* bona fructus malos fácere, nec arbor mala fructus bonos fácere.

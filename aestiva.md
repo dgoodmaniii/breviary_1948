@@ -26096,4 +26096,38 @@ DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fec
 
 *Hebr. 9, 13-14*
 
-SI sanguis hircórum, et taurórum, et cinis vítulæ aspérsus inquinátos
+SI sanguis hircórum, et taurórum, et cinis vítulæ aspérsus inquinátos sanctíficat ad emundatiónem carnis: quanto magis sanguis Christi, qui per Spíritum Sanctum semetípsum óbtulit immaculátum Deo, emundábit consciéntiam nostram ab opéribus mórtuis, ad serviéndum Deo vivénti?
+
+℟. br. Sanguis Jesu Christi Fílii Dei, \* Emúndat nos. Sanguis. ℣. Ab omni peccáto. Emúndat nos. Glória Patri. Sanguis.
+
+###### Oratio
+
+OMnípotens sempitérne Deus, qui unigénitum Fílium tuum mundi Redemptórem constituísti, ac ejus Sánguine placári voluísti: concéde, quǽsumus, salútis nostræ prétium solémni cultu ita venerári, atque a præséntis vitæ malis ejus virtúte deféndi in terris; ut fructu perpétuo lætémur in cælis. Per eúmdem Dóminum.
+
+### Ad Nonam
+
+**Ant.** Beáti \* qui lavant stolas suas in sánguine Agni.
+
+#### Capitulum
+
+*Hebr. 9, 19-20*
+
+ACcípiens Móyses sánguinem vitulórum, et hircórum cum aqua et lana coccínea et hyssópo: ipsum quoque librum, et omnem pópulum aspérsit, dicens: Hic sanguis testaménti, quod mandávit ad vos Deus.
+
+℟. br. Christus diléxit nos, et lavit nos \* In sánguine suo. Christus. ℣. Et fecit nos regnum, et sacerdótes Deo, et Patri. In sánguine suo. Glória Patri. Christus.
+
+℣. Justificáti in sánguine Christi. ℟. Salvi érimus ab ira per ipsum.
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis, sed loco últimi Psalmi dícitur Ps. 147 Lauda Jerúsalem Dóminum, ut ibídem. 698}
+
+℣. Te ergo quǽsumus, tuis fámulis súbveni. ℟. Quos pretióso sánguine redemísti.
+
+**Ad Magnif. Ant.** Habébitis autem \* hunc diem in monuméntum: et celebrábitis eum solémnem Dómino in generatiónibus vestris cultu sempitérno.
+
+{RUBRIC: Et fit Commemoratio tantum sequéntis, ut infra.}
+
+{RUBRIC: Completorium de Dominica et conclúsio Hymni ut in Communi Festórum B. Maríæ Vírginis.}
+
+---

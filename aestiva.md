@@ -21495,3 +21495,21 @@ DEus, qui beátum Petrum Cælestínum ad summi pontificátus ápicem sublimásti
 ###### Oratio
 
 EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Pudentiánæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Nocturno
+
+{RUBRIC: Pro hoc Festo simplificato, ut ix dicitur sequens}
+
+#### Lectio iv
+
+PEtrus, a nómine quo Póntifex est appellátus, Cælestínus dictus, honéstis cathólicísque paréntibus Æsérniæ in Samnítibus natus, adolescéntiam vix ingréssus, ut ánimum a mundi illécebris custodíret, in solitúdinem secéssit. Ibi contemplatiónibus mentem nútriens, corpus in servitútem rédigens, férream caténam ad nudam carnem adhibébat. Congregatiónem, quæ póstea Cælestinórum dicta est, sub régula sancti Benedícti instítuit. Hinc, quasi lucérna supra candelábrum pósita, cum abscóndi nequíret, (Romána Ecclésia diu viduáta pastóre) in Petri Cáthedram ignórans et absens adscítus, magna novitátis admiratióne non minus quam repentíno gáudio cunctos affécit. Cum autem in pontificátus sublimitáte collocátus, váriis disténtus curis, assuétis incúmbere meditatiónibus vix posse cognósceret, óneri páriter et honóri voluntárie céssit. Indeque priscam vitæ ratiónem répetens, obdormívit in Dómino, ejúsque pretiósam mortem Crux præfúlgens in áëre ante cubículi óstium réddidit ámplius gloriósam. Miráculis multis tam vivens quam post óbitum cláruit; quibus rite examinátis, Clemens quintus anno postquam decéssit undécimo, Sanctórum número adscrípsit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+Ex libro Morálium sancti Gregórii Papæ
+
+*Liber 10, cap. 16, in cap. 12 Job*
+
+#### Lectio v
+
+DEridétur justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus tégere, sensum verbis veláre: quæ falsa sunt, vera osténdere; quæ vera sunt, falsa demonstráre. Hæc nimírum prudéntia usu a juvénibus scítur, hæc a púeris prétio díscitur: hanc qui sciunt, céteros despiciéndo supérbiunt: hanc qui nésciunt, subjécti et tímidi in áliis mirántur; quia ab eis hæc éadem duplicitátis iníquitas, nómine palliáta, dilígitur, dum mentis pervérsitas urbánitas vocátur.

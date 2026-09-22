@@ -22734,4 +22734,28 @@ AT Joánnes, tum conciónibus, tum privátis collóquiis cívium ánimos demúlc
 
 #### Lectio ix
 
-JOánnem, Sahagúni in Hispánia, nóbili génere natum, paréntes cum diu prole caruíssent, piis opéribus et oratiónibus a Deo impetrárunt. Ab ineúnte ætáte futúræ sanctitátis indícia præbuit. Présbyter ordinátus, ut Deo quiétius servíret, omnes ecclesiásticos proventus, quibus mérito auctus fúerat, sponte dimísit. Salmánticæ, cum in gravíssimum morbum incidísset, arctióris disciplínæ voto se obstrínxit, quod ut rédderet, ad cœnóbium sancti Augustíni, severióri disciplína tum máxime florens, se cóntulit; in quo admíssus, virtútibus ómnibus provectióres anteíbat. Salmanticénses cives, cruéntis factiónibus exagitátos, tum conciónibus tum privátis collóquiis ac vitæ sanctitáte, ad tranquillitátem redúxit, non semel a præsénti discrímine divínitus liberátus. Christum Dómi-
+JOánnem, Sahagúni in Hispánia, nóbili génere natum, paréntes cum diu prole caruíssent, piis opéribus et oratiónibus a Deo impetrárunt. Ab ineúnte ætáte futúræ sanctitátis indícia præbuit. Présbyter ordinátus, ut Deo quiétius servíret, omnes ecclesiásticos proventus, quibus mérito auctus fúerat, sponte dimísit. Salmánticæ, cum in gravíssimum morbum incidísset, arctióris disciplínæ voto se obstrínxit, quod ut rédderet, ad cœnóbium sancti Augustíni, severióri disciplína tum máxime florens, se cóntulit; in quo admíssus, virtútibus ómnibus provectióres anteíbat. Salmanticénses cives, cruéntis factiónibus exagitátos, tum conciónibus tum privátis collóquiis ac vitæ sanctitáte, ad tranquillitátem redúxit, non semel a præsénti discrímine divínitus liberátus. Christum Dóminum, dum Sacrum fáceret, præséntem contuéri, ábdita cordis inspícere, ac futúra præsagíre frequens illi fuit. Dénique, mortis die prænuntiáto, sanctíssime ex hac vita migrávit, multis ante et post óbitum miráculis gloriósus. Quibus rite probátis, Alexánder octávus Sanctórum número eum adscrípsit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Comm. Conf. non Pont. 1 loco. [98]}
+
+{RUBRIC: Pro Ss. Basilide, Cyrino, Nabore et Nazario Mm.}
+
+#### Lectio ix
+
+BAsílides, Cyrínus, Nabor et Nazárius, Románi mílites, nóbiles génere, et virtúte illústres, christiána religióne suscépta, cum Christum Dei Fílium, Diocletiáno imperatóre, prædicárent, ab Aurélio præfécto Urbis comprehénsi, et ut diis sacra fácerent, admóniti, ejus jussa contemnéntes, missi sunt in cárcerem. Quibus orántibus, cum súbito claríssima lux obórta ómnium óculis, qui ibídem essent, cárcerem collustrásset; illo cælésti splendóre commótus Marcéllus custódiæ præpósitus, multíque álii, Christo Dómino credidérunt. Verum póstea e cárcere emíssi, ab imperatóre Maximiáno, cum, ejus étiam neglécto império, unum Christum Deum et Dóminum in ore habérent, scorpiónibus cruciáti íterum conjiciúntur in víncula; unde séptimo die edúcti et ante pedes imperatóris constitúti, perstitérunt in irrisióne inánium deórum, Jesum Christum Deum constantíssime confiténtes. Quam ob rem damnáti, secúri feriúntur. Quorum córpora, feris objécta nec ab illis tacta, a Christiánis honorífice sepúlta sunt.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit Dóminus per vias rectas.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, auctor pacis et amátor caritátis, qui beátum Joánnem Confessórem tuum mirífica dissidéntes componéndi grátia decorásti: ejus méritis et intercessióne concéde; ut in tua caritáte firmáti, nullis a te tentatiónibus separémur. Per Dóminum nostrum.

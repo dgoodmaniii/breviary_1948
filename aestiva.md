@@ -28338,3 +28338,53 @@ NON enim victus et potus nobis prǽmii loco spondétur et honóris, sed communic
 COnvertámur ígitur et caveámus, ne in perditiónem áliqua inter nos de prælatióne possit esse conténtio. Si enim contendébant Apóstoli, non excusatióni obténditur, sed cautióni propónitur. Si Petrus aliquándo convértitur, qui ad primam Dómini secútus est vocem; quis potest dícere, cito se esse convérsum? Cave ergo jactántiam, cave sǽculum. Ille enim confirmáre jubétur fratres suos, qui dixit: Omnia dimísimus, et secúti sumus te.
 
 Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+###### Oratio
+
+DEus fidélium remunerátor animárum, qui hunc diem beáti Apollináris sacerdótis tui martýrio consecrásti: tríbue nobis quæsumus fámulis tuis; ut cujus venerándam celebrámus festivitátem, précibus ejus indulgéntiam consequámur. Per Dóminum.
+
+{RUBRIC: In Sabbato fit Commemoratio Vigiliæ anticipatæ ut supra; et tunc pro S. Liborio sumitur Oratio Exáudi, ut infra, secus dicitur Oratio Da, quæsumus, ibidem.}
+
+{RUBRIC: Pro Commemoratione S. Liborii Ep. et Conf.:}
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DA, quæsumus, omnípotens Deus: ut beáti Libórii Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+{RUBRIC: Sabbato vero dicitur sequens}
+
+###### Oratio
+
+EXáudi, quæsumus, Dómine, preces nostras, quas in beáti Libórii Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justus ut palma.
+
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+{RUBRIC: Et fit Commem. S. Christinæ Virg. et Mart. ut infra.}
+
+---
+
+### Die 24 Julii
+
+{RUBRIC: Pro Commem. S. Christinæ Virg. et Mart. in II Vesperis præcedentis:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+###### Oratio C 2
+
+INdulgéntiam nobis, quæsumus, Dómine, beáta Christína Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis et tuæ professióne virtútis. Per Dóminum.

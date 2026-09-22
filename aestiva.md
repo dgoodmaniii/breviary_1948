@@ -21619,3 +21619,51 @@ BErnardínus Albizésca, nóbili Senénsi família ortus, inter prima grammátic
 Te Deum laudámus.
 
 {RUBRIC: In III Nocturno Homilía in Ev. *Ecce nos relíquimus*, de Comm. Abbátum 1 loco. [107]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DOmine Jesu, qui beáto Bernardíno Confessóri tuo exímium sancti nóminis tui amórem tribuísti: ejus, quǽsumus, méritis et intercessióne, spíritum nobis tuæ dilectiónis benígnus infúnde: Qui vivis.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+---
+
+### Die 25 Maji
+
+#### S. Gregorii VII
+
+{RUBRIC: Papæ et Confessóris [69] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+###### Oratio
+
+DEus, in te sperántium fortitúdo, qui beátum Gregórium Confessórem tuum atque Pontíficem, pro tuénda Ecclésiæ libertáte, virtúte constántiæ roborásti: da nobis, ejus exémplo et intercessióne, ómnia adversántia fórtiter superáre. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Urbani I Papæ et Mart.}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Urbánum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+GRegórius Papa séptimus, ántea Hildebrándus, Suánæ in Etrúria natus, doctrína, sanctitáte, omníque virtútum génere cum primis nóbilis, mirífice univérsam Dei illustrávit Ecclésiam. Cum párvulus ad fabri ligna edolántis pedes, jam

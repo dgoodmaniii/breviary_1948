@@ -14662,3 +14662,64 @@ MAnsit autem in domo viri sui annos centum quinque, et dimísit abram suam líbe
 IN diébus Assuéri, qui regnávit ab India usque Æthiópiam super centum vigínti septem províncias, quando sedit in sólio regni sui, Susan cívitas regni ejus exórdium fuit. Tértio ígitur anno impérii sui, fecit grande convívium cunctis princípibus et púeris suis fortíssimis Persárum et Medórum ínclytis et præféctis provinciárum coram se, ut osténderet divítias glóriæ regni sui, ac magnitúdinem atque jactántiam poténtiæ suæ, multo témpore, centum vidélicet et octogínta diébus.
 
 ℟. Dómine, mi Rex omnípotens, in dicióne tua cuncta sunt pósita, et non est qui possit resístere voluntáti tuæ : \* Líbera nos propter nomen tuum. ℣. Exáudi oratiónem nostram, et convérte luctum nostrum in gáudium. — Líbera.
+
+##### Lectio ii
+
+CUmque implerántur dies convívii, invitávit omnem pópulum, qui invéntus est in Susan, a máximo usque ad mínimum; et jussit septem diébus convívium præparári in vestíbulo horti et némoris, quod régio cultu et manu cónsitum erat. Et pendébant ex omni parte tentória aérii colóris et carbásini ac hyacínthini sustentáta fúnibus býssinis atque purpúreis, qui ebúrneis círculis insérti erant et colúmnis marmóreis fulciebántur. Léctuli quoque áurei et argéntei super paviméntum smarágdino et pário stratum lápide dispósiti erant, quod mira varietáte pictúra decorábat.
+
+℟. Confórta me, Rex, Sanctórum principátum tenens : \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+##### Lectio iii
+
+BIbébant autem, qui invitáti erant, áureis póculis et áliis atque áliis vasis cibi inferebántur. Vinum quoque, ut magnificéntia régia dignum erat, abúndans et præcípuum ponebátur. Nec erat qui noléntes cógeret ad bibéndum, sed, sicut rex statúerat præpónens mensis síngulos de princípibus suis, ut súmeret unusquísque quod vellet. Vasthi quoque regína fecit convívium feminárum in palátio, ubi rex Assuérus manére consuéverat.
+
+℟. Spem in álium numquam hábui, prætérquam in te, Deus Israël : \* Qui irásceris, et propítius eris : et ómnia peccáta hóminum in tribulatióne dimíttis. ℣. Dómine Deus, Creátor cæli et terræ, réspice ad humilitátem nostram. — Qui. Glória Patri. Qui.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Officiórum sancti Ambrósii Epíscopi}
+
+##### Lectio iv
+*Lib. 3, cap. 15*
+
+QUid Esther regína, nonne ut pópulum suum perículo erúeret (quod erat decórum atque honéstum) morti se óbtulit, nec immítis regis trepidávit furórem? Ipse quoque rex Persárum, ferox atque túmido corde, tamen decórum judicávit índici insidiárum, quæ sibi parátæ forent, grátiam repræsentáre, populúmque líberum a servitúte erípere, erúere neci, nec párcere neci ejus, qui tam indecóra suasísset. Dénique quem secúndum a se, ac præcípuum inter omnes amícos habéret, cruci trádidit, quod dehonestátum se ejus frauduléntis consíliis animadvertísset.
+
+℟. Meménto mei, Dómine Deus, in bonum : \* Et ne déleas miseratiónes meas quas feci in domo Dei mei et in cæremóniis ejus. ℣. Recordáre mei, Dómine, Deus meus. — Et.
+
+##### Lectio v
+*Cap. 16*
+
+EA enim amicítia probábilis, quæ honestátem tuétur, præferénda sane ópibus, honóribus, potestátibus; honestáti vero præférri non solet, sed honestátem sequi. Qualis fuit Jónathæ, qui pro pietáte nec offénsam patris, nec salútis perículum refugiébat. Qualis fuit Achímelech, qui pro hospitális grátiæ offíciis necem pótius sibi, quam proditiónem fugiéntis amíci, subeúndam arbitrabátur. Nihil ígitur præferéndum honestáti; quæ tamen ne amicítiæ stúdio prætereátur, étiam hoc Scriptúra ádmonet.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus : timor et hebetúdo mentis cécidit super nos et super líberos nostros : ipsi montes nolunt recípere fugam nostram : \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+##### Lectio vi
+
+SUnt enim pleræque philosophórum quæstiónes : Utrum amíci causa quisquam contra pátriam sentíre necne débeat, ut amíco obédiat : utrum opórteat ut fidem déserat, dum indúlget atque inténdit amíci commoditátibus. Et Scriptúra quidem ait : Clava, et gládius, et sagítta ferráta, sic homo est testimónium dans falsum advérsus amícum suum. Sed consídera quid ástruat. Non testimónium reprehéndit dictum in amícum, sed falsum testimónium. Quid enim si Dei causa, quid si pátriæ, cogátur áliquis dícere testimónium? Numquid præponderáre debet amicítia religióni, præponderáre caritáti vítium?
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros : \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus : \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam V Septembris
+
+{RUBRIC: De libro Esther}
+
+##### Lectio i
+*Cap. 2, 5-11*
+
+ERat vir Judǽus in Susan civitáte, vocábulo Mardochǽus, fílius Jair, fílii Sémei, fílii Cis, de stirpe Jémini, qui translátus fúerat de Jerúsalem eo témpore quo Jechoníam regem Juda Nabuchodónosor rex Babylónis transtúlerat. Qui fuit nutrícius fíliæ fratris sui Edíssæ, quæ áltero nómine vocabátur Esther, et utrúmque paréntem amíserat : pulchra nimis et decóra fácie. Mortuísque patre ejus ac matre, Mardochǽus sibi eam adoptávit in fíliam.
+
+℟. Dómine, mi Rex omnípotens, in dicióne tua cuncta sunt pósita, et non est qui possit resístere voluntáti tuæ : \* Líbera nos propter nomen tuum. ℣. Exáudi oratiónem nostram, et convérte luctum nostrum in gáudium. — Líbera.
+
+##### Lectio ii
+
+CUmque percrebuísset regis impérium, et juxta mandátum illíus multæ pulchræ vírgines adduceréntur Susan et Egéo traderéntur eunúcho; Esther quoque inter céteras puéllas ei trádita est, ut servarétur in número feminárum. Quæ plácuit ei et invénit grátiam in conspéctu illíus. Et præcépit eunúcho ut acceleráret mundum muliébrem et tráderet ei partes suas et septem puéllas speciosíssimas de domo regis, et tam ipsam quam pedíssequas ejus ornáret atque excóleret. Quæ nóluit indicáre ei pópulum et pátriam suam; Mardochǽus enim præcéperat ei, ut de hac re omníno reticéret. Qui deambulábat quotídie ante vestíbulum domus, in qua eléctæ vírgines servabántur, curam agens salútis Esther.
+
+℟. Confórta me, Rex, Sanctórum principátum tenens : \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}

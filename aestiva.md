@@ -20800,7 +20800,7 @@ QUid enim mériti est Dómino dícere, Dómine? Numquid Dóminus non erit, nisi 
 
 ##### Lectio ix
 
-ATque hinc sibi regnum cælórum pollicéntur: quasi vero eórum áliquid próprium sit, quæ loquúntur aut fáciunt, et non ómnia virtus Dei invocáta perfíciat; cum doctrínæ sciéntiam léctio áfferat, dæmónia Christi nomen exágitet. De nostro ígitur est beáta illa æternitas promerénda, præstandúmque est áliquid ex próprio, omne vitémus, totóque afféctu præcéptis cæléstibus obtemperémus, ac tálibus offíciis cógniti Deo simus, agamúsque pótius quod vult, quam quod potest gloriémur; repúdians eos ac repéllens, quos a cognitióne sua, ópera iniquitátis avérterint.
+ATque hinc sibi regnum cælórum pollicéntur: quasi vero eórum áliquid próprium sit, quæ loquúntur aut fáciunt, et non ómnia virtus Dei invocáta perfíciat; cum doctrínæ sciéntiam léctio áfferat, dæmónia Christi nomen exágitet. De nostro ígitur est beáta illa æternitas promerénda, præstandúmque est áliquid ex próprio, ut bonum velímus, malum vitémus, totóque afféctu præcéptis cæléstibus obtemperémus, ac tálibus offíciis cógniti Deo simus, agamúsque pótius quod vult, quam quod potest gloriémur; repúdians eos ac repéllens, quos a cognitióne sua, ópera iniquitátis avérterint.
 
 Te Deum laudámus.
 
@@ -20818,4 +20818,38 @@ DEus, cujus providéntia in sui dispositióne non fállitur: te súpplices exor�
 
 ℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
 
-**Ad Magnif. Ant.** Non potest arbor \* bona fructus malos fácere, nec arbor mala fructus bonos fácere.
+**Ad Magnif. Ant.** Non potest arbor \* bona fructus malos fácere, nec arbor mala fructus bonos fácere. Omnis árbor, quæ non fácit fructum bonum, excidétur, et in ignem mittétur, allelúja.
+
+---
+
+## Dominica VIII post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+LArgíre nobis, quæsumus, Dómine, semper spíritum cogitándi quæ recta sunt, propítius et agéndi: ut, qui sine te esse non póssumus, secúndum te vívere valeámus. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+##### Lectio vii
+
+*Cap. 16, 1-9*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Homo quidam erat dives, qui habébat víllicum, et hic diffamátus est apud illum, quasi dissipásset bona ipsíus. Et réliqua.
+
+Homilía sancti Hierónymi Presbýteri
+
+*Ep. 151 ad Algas., quæst. 6, t. 3*
+
+SI dispensátor iníqui mammónæ, dómini voce laudátur, quod de re iníqua sibi justítiam præparárit; et passus dispéndia dóminus laudat dispensatóris prudéntiam, quod advérsus dóminum quidem fraudulénter, sed pro se prudénter égerit: quanto magis Christus, qui nullum damnum sustinére potest, et pronus est ad cleméntiam, laudábit discípulos suos, si in eos, qui creditúri sibi sunt, misericórdes fúerint?
+
+### Ante Dominicam I Augusti
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+### In Dominicis Augusti
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.

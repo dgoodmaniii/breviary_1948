@@ -29298,4 +29298,18 @@ DA nobis, quæsumus, Dómine, imitári quod cólimus: ut discámus et inimícos 
 
 #### Lectio i
 
-DUra cervíce et incircumcísis córdibus et áuribus, vos semper Spirítui Sancto re-
+DUra cervíce et incircumcísis córdibus et áuribus, vos semper Spirítui Sancto resístitis: sicut patres vestri, ita et vos. Quem Prophetárum non sunt persecúti patres vestri? Et occidérunt eos, qui prænuntiábant de advéntu Justi, cujus vos nunc proditóres et homicídæ fuístis, qui accepístis legem in dispositióne Angelórum et non custodístis. Audiéntes autem hæc, dissecabántur córdibus suis, et stridébant déntibus in eum.
+
+℟. Stéphanus autem plenus grátia et fortitúdine, \* Faciébat prodígia et signa magna in pópulo. ℣. Surrexérunt quidam de synagóga disputántes cum Stéphano: et non póterant resístere sapiéntiæ, et Spirítui qui loquebátur. — Faciébat.
+
+#### Lectio ii
+
+CUm autem esset plenus Spíritu Sancto, inténdens in cælum, vidit glóriam Dei, et Jesum stantem a dextris Dei. Et ait: Ecce vídeo cælos apértos, et Fílium hóminis stantem a dextris Dei. Exclamántes autem voce magna continuérunt aures suas, et ímpetum fecérunt unanímiter in eum. Et ejiciéntes eum extra civitátem lapidábant: et testes deposuérunt vestiménta sua secus pedes adolescéntis, qui vocabátur Saulus. Et lapidábant Stéphanum invocántem et dicéntem: Dómine Jesu, súscipe spíritum meum.
+
+℟. Vidébant omnes Stéphanum, qui erant in concílio: \* Et intuebántur vultum ejus tamquam vultum Angeli stantis inter illos. ℣. Plenus grátia et fortitúdine, faciébat prodígia et signa magna in pópulo. — Et.
+
+#### Lectio iii
+
+POsitis autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino. Saulus autem erat conséntiens neci ejus. Facta est autem in illa die persecútio magna in ecclésia quæ erat Jerosólymis; et omnes dispérsi sunt per regiónes Judǽæ et Samaríæ, præter Apóstolos. Curavérunt autem Stéphanum viri timoráti, et fecérunt planctum magnum super eum.
+
+℟. Intuens in cælum beátus Stéphanus, vidit glóriam Dei, et ait: \* Ecce vídeo cælos apértos, et Fílium hóminis stantem a dextris virtútis Dei. ℣. Cum autem esset Stéphanus plenus Spíritu Sancto, inténdens in cælum, vidit glóriam Dei, et

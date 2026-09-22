@@ -29041,4 +29041,22 @@ SOlus Petrus inter Apóstolos méruit audíre: Amen dico tibi, quia tu es Petrus
 
 #### Lectio viii
 
-SI tam medicábilis fuit obumbrátio visitántis, quanto magis caténa vinciéntis? Si inánis quædam spécies vácuæ imáginis
+SI tam medicábilis fuit obumbrátio visitántis, quanto magis caténa vinciéntis? Si inánis quædam spécies vácuæ imáginis habére pótuit in se vim salútis, quanto plus de córpore meruérunt attráhere salubritátis, férreo póndere sacris impréssa membris, víncula passiónis? Si ad præsídia supplicántium tam potens fuit ante martýrium, quanto magis éfficax post triúmphum? Felíces illi nexus, qui, de mánicis et compédibus in corónam mutándi, Apóstolum contingéntes, Mártyrem reddidérunt! Felícia víncula, quæ reum suum usque ad Christi crucem, non tam condemnatúra quam consecratúra, misérunt!
+
+℟. Quem dicunt hómines esse Fílium hóminis? dixit Jesus discípulis suis. Respóndens Petrus dixit: Tu es Christus Fílius Dei vivi. \* Et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. ℣. Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et ego. Glória Patri. Et ego.
+
+{RUBRIC: Pro Ss. Machabæis Martyr.:}
+
+#### Lectio ix
+
+Sermo sancti Gregórii Nazianzéni
+
+*Oratio 20 in Machabæos*
+
+QUidnam Machabǽi? Horum enim nómine dies festus præsénti frequéntia celebrátur. Qui, etsi apud multos non sunt in honóre, quod illud certámen post Christum non suscepérunt; tamen digni sunt qui ab ómnibus honoréntur, quia pro pátriis légibus et institútis fortes constantésque se præbuérunt. Nam qui martýrium subiére ante Christi passiónem, quid factúri erant, si post Christum persecutiónem passi fuíssent, ejúsque mortem, nostræ salútis causa suscéptam, ad imitándum propósitam habuíssent? Quorum enim, nullo propósito exémplo, talis tántaque virtus fuit; an non ii, exémplum illud intuéntes, fórtius in certámen descendíssent? Quin étiam mýstica quǽdam et occúlta rátio, mihi quidem atque ómnibus Dei amatóribus valde probábilis, est, néminem eórum qui ante Christi advéntum martýrio consummáti sunt, id sine fide in Christum cónsequi potuísse.
+
+Te Deum laudámus.
+
+##### Ad Laudes et per Horas, Antiphonae
+
+**Ant. 1** Heródes rex \* appósuit ut apprehénderet et Petrum; quem, cum apprehendísset, misit in cárcerem, volens post Pascha prodúcere eum pópulo.

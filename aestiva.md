@@ -23902,3 +23902,39 @@ Quis est homo qui vult vitam: \* díligit dies vidére bonos?
 Próhibe linguam tuam a malo: \* et lábia tua ne loquántur dolum.
 
 Divérte a malo, et fac bonum: \* inquíre pacem, et perséquere eam.
+
+Oculi Dómini super justos: \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala: \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos: \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde: \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum: \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum: \* unum ex his non conterétur.
+
+Mors peccatórum péssima: \* et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum: \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Reges vidébunt, et consúrgent príncipes et adorábunt Dóminum Deum tuum, qui elégit te.
+
+℣. Elísabeth Zacharíæ magnum virum génuit. ℟. Joánnem Baptístam, præcursórem Dómini.
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 1, 57-68*
+
+ELísabeth implétum est tempus pariéndi, et péperit fílium. Et audiérunt vicíni et cognáti ejus quia magnificávit Dóminus misericórdiam suam cum illa, et congratulabántur ei. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+*Liber 2 Comm. in Lucæ cap. 1, ante finem*
+
+PEperit fílium Elísabeth, et congratulabántur vicíni. Habet Sanctórum edítio lætítiam plurimórum, quia commúne est bonum; justítia enim commúnis est virtus. Et ídeo in ortu justi futúræ vitæ insígne præmíttitur, et grátia secutúræ virtútis exsultatióne vicinórum præfiguránte signátur. Pulchre autem tempus, quo fuit in útero Prophéta, descríbitur, ne Maríæ præséntia taceátur; sed tempus silétur infántiæ, eo quia infántiæ impediménta nescívit. Et ídeo in Evangélio nihil super eo légimus, nisi ortum ejus, et oráculum, exsultatiónem in útero, vocem in desérto.
+
+℟. Præcúrsor Dómini venit, de quo ipse testátur: \* Nullus major inter natos mulíerum Joánne Baptísta. ℣. Hic est enim Prophéta, et plus quam Prophéta, de quo Salvátor ait. — Nullus major inter natos.

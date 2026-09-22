@@ -32724,4 +32724,20 @@ LUdovícus nonus, Gálliæ rex, duódecim annos natus, patre amísso, et in Blá
 
 #### Lectio v
 
-REbus póstea cum Saracénis compósitis, liber rex exercitúsque dimítti-
+REbus póstea cum Saracénis compósitis, liber rex exercitúsque dimíttitur. Quinque annis in Oriénte commorátus, plúrimos Christiános a barbarórum servitúte redémit, multos étiam infidéles ad Christi fidem convértit; prætérea áliquot Christianórum urbes refécit suis súmptibus. Intérim mater ejus migrat e vita; quare domum redíre cógitur, ubi totum se dedit pietátis offíciis.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+MUlta ædificávit monastéria et páuperum hospítia: beneficéntia egéntes sublevábat; frequens visébat ægrótos, quibus ipse non solum suis súmptibus ómnia suppeditábat, sed étiam, quæ opus erant, mánibus ministrábat. Vestítu vulgári utebátur, cilício ac jejúnio corpus assídue affligébat. Sed, cum íterum transmisísset, bellum Saracénis illatúrus, jamque castra in eórum conspéctu posuísset, pestiléntia decéssit in illa oratióne: Introíbo in domum tuam, adorábo ad templum sanctum tuum, et confitébor nómini tuo. Ejus corpus póstea Lutétiam Parisiórum translátum est, quod in célebri sancti Dionýsii templo asservátur et cólitur; caput vero in sacra æde sanctæ capéllæ. Ipse, clarus miráculis, a Bonifátio Papa octávo in Sanctórum número est relátus.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+LUdovícus nonus, Gálliæ rex, in Blánchæ matris sanctíssima discíplina educátus, pro recuperánda possessióne Jerosolymórum mare cum ingénti exércitu trajíciens, primo prǽlio Saracénos fugávit. Sed cum magna mílitum multitúdo ex pestiléntia periísset, victus ipse captúsque est. Rebus compósitis, liber dimíttitur. Plúrimos in Oriénte Christiános a barbarórum servitúte redémit, multos étiam infidéles ad Christi fidem convértit. In Gál-

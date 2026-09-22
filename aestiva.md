@@ -32392,4 +32392,28 @@ DE hoc ígitur Corde quasi de fornáce víni ardóris Virgo beáta prótulit ver
 
 Ex ecclesiásticis documéntis
 
-CUltum litúrgicum, quo Cordi Immaculáto Vírginis Maríæ débitus tribúitur honor, cuíque plures viri sancti ac mulíeres viam parárunt, ipsa Apostólica Sedes primum approbávit ineúnte sǽculo undevicésimo, cum Pius Papa séptimus festum Puríssimi Cordis Maríæ Vírginis instítuit, ab ómnibus diœcésibus et religiósis famíliis, quæ id petiíssent,
+CUltum litúrgicum, quo Cordi Immaculáto Vírginis Maríæ débitus tribúitur honor, cuíque plures viri sancti ac mulíeres viam parárunt, ipsa Apostólica Sedes primum approbávit ineúnte sǽculo undevicésimo, cum Pius Papa séptimus festum Puríssimi Cordis Maríæ Vírginis instítuit, ab ómnibus diœcésibus et religiósis famíliis, quæ id petiíssent, pie sanctéque agéndum: quod póstmodum Pius Papa nonus Offício ac Missa própria auxit. Ardens autem stúdium atque optátum, jam sǽculo décimo séptimo exórtum et in dies invaléscens, ut nempe ejúsmodi Festum, majóri solemnitáte donátum, totíus Ecclésiæ commúne efficerétur, Summus Póntifex Pius duodécimus benígne excípiens, anno millésimo nongentésimo quadragésimo secúndo, bello atrocíssimo per orbem fere totum ingravescénte, infinítas populórum ærúmnas míserans, pro sua in Matrem cæléstem pietáte ac fidúcia genus hóminum univérsum illíus Cordi benigníssimo obsecratióne solémni eníxe commendávit, atque in honórem ejúsdem Immaculáti Cordis Festum cum Offício et Missa própriis in perpétuum ubíque celebrándum indíxit.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: \* Unguéntum effúsum nomen tuum. ℣. Astítit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. Et. Glória Patri. Unguéntum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio vii
+
+*Cap. 19, 25-27*
+
+IN illo témpore: Stabant juxta crucem Jesu Mater ejus, et soror Matris ejus María Cléophæ, et María Magdaléne. Et réliqua.
+
+Homilía sancti Robérti Bellarmíno Epíscopi
+
+{RUBRIC: De septem verbis Christi in Cruce, cap. 12}
+
+ONus et jugum impósitum a Dómino sancto Joánni, ut Vírginis Matris curam géreret, vere fuit jugum suáve et onus leve. Quis enim non libentíssime cohabitáret Matri illi, quæ Verbum incarnátum in útero novem ménsibus portávit, et illi totos trigínta annos devotíssime dulcissiméque cohabitávit? Quis non invídeat dilécto Dómini, qui in abséntia Fílii Dei præséntiam obtínuit Matris Dei? Sed, nisi fallor, póssumus et nos a benignitáte Verbi, nostri causa incarnáti et ex dilectióne nímia nostri causa crucifíxi, précibus impetráre, ut dicat et nobis: Ecce Mater tua; et Matri suæ de nobis dicat: Ecce fílius tuus.
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima: \* Quia ex te ortus est sol justítiæ, Christus, Deus noster. ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam festivitátem. — Quia.
+
+#### Lectio viii
+
+NOn est avárus pius Dóminus gratiárum, dúmmodo ad thronum grátiæ ejus cum fide et fidúcia et non ficto corde, sed vero et sincéro acce-

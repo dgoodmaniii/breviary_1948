@@ -20286,4 +20286,32 @@ ALtióra te ne quæsíeris et fortióra te ne scrutátus fúeris; sed, quæ præ
 
 ##### Lectio ii
 
-COR durum habébit male in novíssimo, et qui amat perículum in illo períbit. Cor ingrédiens duas vias non habébit successus, et pravus corde in
+COR durum habébit male in novíssimo, et qui amat perículum in illo períbit. Cor ingrédiens duas vias non habébit successus, et pravus corde in illis scandalizábitur. Cor nequam gravábitur in dolóribus, et peccátor adjíciet ad peccándum. Synagógæ superbórum non erit sánitas, frutex enim peccáti radicábitur in illis et non intelligétur.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Superbórum.}
+
+##### Lectio iii
+
+COR sapiéntis intelligítur in sapiéntia, et auris bona áudiet cum omni concupiscéntia sapiéntiam. Sápiens cor et intelligíbile abstinébit se a peccátis et in opéribus justítiæ successus habébit. Ignem ardéntem exstínguit aqua, et eleemósyna resístit peccátis; et Deus prospéctor est ejus qui reddit grátiam, méminit ejus in pósterum, et in témpore casus sui invéniet firmaméntum.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 4, 1-11*
+
+FIli, eleemósynam páuperis ne defráudes et óculos tuos ne transvértas a páupere. Animam esuriéntem ne despéxeris et non exásperes páuperem in inópia sua. Cor ínopis ne afflíxeris et non prótrahas datum angustiánti. Rogatiónem contribuláti ne abjícias et non avértas fáciem tuam ab egéno.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio ii
+
+AB ínope ne avértas óculos tuos propter iram et non relínquas quæréntibus tibi retro maledícere; maledicéntis enim tibi in amaritúdine ánimæ, exaudiétur deprecátio illíus;

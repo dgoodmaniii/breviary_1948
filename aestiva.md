@@ -27944,4 +27944,30 @@ ORphanis colligéndis inténtus, Mediolánum proficíscitur atque Ticínum; et u
 
 #### Lectio ix
 
-HIerónymus, e gente patrícia Æmiliána Venétiis ortus, a prima adoléscéntia milítiæ addíctus, difficíllimis reipúblicæ tempóribus Castro novo ad Quarum in móntibus Tarvisínis præfícitur. Arce ab hóstibus capta, ipse in tetérrimum cárcerem detrúditur, a quo beatíssimæ Vírginis ope liberátur. Venétiis cœpit pietátis stúdia impénsius cólere, puerórum præsértim misértus, qui, paréntibus orbáti, per urbem vagabántur, quos in ædes a se condúctas recépit de suo aléndos et christiánis móribus imbuéndos. Per eos dies Venétias appúlerant beátus Cajetánus et Petrus Caráfa (póstmodum Paulus quartus), qui, Hierónymi spíritu probáto, illum in Incurabílium hospitále adduxérunt, in quo órphanos simul educáret et ægrótis inservíret. Mox, eorúmdem hortátu, in próximam continéntem proféctus, Bríxiæ primum, deínde Bérgomi atque Novocómi orphanotrophía alíaque pia institúta eréxit. Somáschæ demum
+HIerónymus, e gente patrícia Æmiliána Venétiis ortus, a prima adoléscéntia milítiæ addíctus, difficíllimis reipúblicæ tempóribus Castro novo ad Quarum in móntibus Tarvisínis præfícitur. Arce ab hóstibus capta, ipse in tetérrimum cárcerem detrúditur, a quo beatíssimæ Vírginis ope liberátur. Venétiis cœpit pietátis stúdia impénsius cólere, puerórum præsértim misértus, qui, paréntibus orbáti, per urbem vagabántur, quos in ædes a se condúctas recépit de suo aléndos et christiánis móribus imbuéndos. Per eos dies Venétias appúlerant beátus Cajetánus et Petrus Caráfa (póstmodum Paulus quartus), qui, Hierónymi spíritu probáto, illum in Incurabílium hospitále adduxérunt, in quo órphanos simul educáret et ægrótis inservíret. Mox, eorúmdem hortátu, in próximam continéntem proféctus, Bríxiæ primum, deínde Bérgomi atque Novocómi orphanotrophía alíaque pia institúta eréxit. Somáschæ demum subsístens, in húmili pago agri Bergoménsis, sedem constítuit novæ congregatiónis, cui proptérea a Somáscha nomen factum, quam sanctus Pius quintus approbávit. Tandem contagióne, dum ægrotántibus inservíret, contrácto morbo, annos natus sex et quinquagínta, pro frátribus ánimam pósuit, anno millésimo quingentésimo trigésimo séptimo.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthæum
+
+#### Lectio vii
+
+*Cap. 19, 13-21*
+
+IN illo témpore: Obláti sunt Jesu párvuli, ut manus eis impóneret, et oráret. Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+*Homilia 62 in Matthæum*
+
+CUR discípuli púeros abigébant? Dignitátis causa. Quid ergo ille? Ut dóceat illos modéste sápere, fastúmque mundánum conculcáre, et súscipit, et ulnis compléctitur, talibúsque regnum cælórum pollicétur; id quod étiam dixit supérius. Et nos ígitur, si vólumus herédes esse cælórum, hanc virtútem cum diligéntia magna sectémur. Hoc est enim philosophíæ culmen, símplicem esse cum prudéntia; hæc vita est angélica. Anima enim puéruli ómnibus ánimi morbis vácua est; non memóriam rétinet injuriárum, sed eas inferéntes adit ut amícos, ac si nihil factum esset. Et quamvis a matre verbéribus cædátur, eam semper quærit, et ómnibus antepónit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+SI regínam ipsi osténdas diadémate ornátam, non præfert eam matri pannis detrítis vestítæ, mallétque illam incúltam vidére, quam regínam miríffice amíctam. Nam, quod suum, quod aliénum est, non ex paupertáte vel divítiis, sed ex amóre existimáre solet; et nihil plus requírit quam necessária, atque ut lacte replétus est, statim a mamma abscédit. Non eísdem, quibus nos,

@@ -32933,3 +32933,31 @@ ADésto supplicatiónibus nostris, omnípotens Deus: et, quibus fidúciam sperá
 **Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
 
 ℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui per sanctum Joséphum Confessórem tuum, ad erudiéndam spíritu intelligéntiæ ac pietátis juventútem, novum Ecclésiæ tuæ subsídium providére dignátus es: præsta quǽsumus, nos ejus exémplo et intercessióne ita fácere, et docére, ut prǽmia consequámur ætérna. Per Dóminum.
+
+{RUBRIC: Deinde Com. S. Hermetis Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+DEus, qui beátum Hermétem Mártyrem tuum virtúte constántiæ in passióne roborásti: ex ejus nobis imitatióne tríbue; pro amóre tuo próspera mundi despícere, et nulla ejus advérsa formidáre. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam. [87]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+AUgustínus, Tagáste in África honéstis paréntibus natus ac puer docilitáte ingénii ǽquáles longe súperans, brevi ómnibus doctrína antecélluit. Adoléscens, dum esset Carthágine, in Manichæórum hæresim íncidit. Póstea Romam proféctus, inde Mediolánum missus ut rhetóricam docéret, cum ibi frequens Ambrósii epíscopi esset audítor, ejus ópera incénsus stúdio cathólicæ fídei, annos natus trigínta tres ab ipso baptizátur. Revérsus in Áfricam, cum religióne vitæ sanctimóniam conjúngens, a Valério, notæ sanctitátis epíscopo Hipponénsi, présbyter factus est. Quo témpore famíliam institúit religiosórum, quibúscum victu commúni eodémque cultu utens, eos ad apostólicæ vitæ doctrinǽque disciplínam diligentíssime erudiébat. Sed, cum vigéret Manichæórum hǽresis, veheméntius in illam ínvehi cœpit, Fortunatúmque hæresiárcham confutávit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+HAC Augustíni pietáte commótus Valérius, eum adjutórem adhíbuit episcopális offícii. Nihil illo

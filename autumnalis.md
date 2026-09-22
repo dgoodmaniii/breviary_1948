@@ -13648,3 +13648,80 @@ Pater, Ave María et Credo.
 ---
 
 [IMAGE]
+
+# Proprium de Tempore
+
+## Sabbato proximo Kalendis Septembris
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Cum audísset Job \* nuntiórum verba, sustínuit patiénter, et ait: Si bona suscépimus de manu Dómini, mala autem quare non sustineámus? In ómnibus his non peccávit Job lábiis suis, neque stultum áliquid contra Deum locútus est.
+
+{RUBRIC: Orátio Domínicæ occurréntis, quæ habétur infra post Lectiónes últimæ hebdómadæ Novémbris cum áliis Oratiónibus usque ad Domínicam XXIV post Pentecósten.}
+
+---
+
+## Dominica I Septembris
+
+{RUBRIC: Semiduplex}
+
+### Ad Matutinum
+
+{RUBRIC: Invitatórium} Dóminum, qui fecit, {RUBRIC: et Hymnus} Nocte surgéntes, {RUBRIC: ut in Psaltério. 31; quæ dicúntur in ómnibus Domínicis usque ad diem 27 Septémbris inclusíve occurréntibus.}
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber Job}
+
+##### Lectio i
+*Cap. 1, 1-11*
+
+VIR erat in terra Hus nómine Job, et erat vir ille simplex et rectus ac timens Deum et recédens a malo. Natíque sunt ei septem fílii et tres fíliæ. Et fuit posséssio ejus septem míllia óvium et tria míllia camelórum, quingénta quoque juga boum et quingéntæ ásinæ ac família multa nimis: erátque vir ille magnus inter omnes Orientáles.
+
+℟. Si bona suscépimus de manu Dei, mala autem quare non sustineámus? \* Dóminus dedit, Dóminus ábstulit; sicut Dómino plácuit, ita factum est: sit nomen Dómini benedíctum. ℣. Nudus egréssus sum de útero matris meæ et nudus revértar illuc. — Dóminus.
+
+##### Lectio ii
+
+ET ibant fílii ejus et faciébant convívium per domos, unusquísque in die suo. Et mitténtes vocábant tres soróres suas, ut coméderent et bíberent cum eis. Cumque in orbem transíssent dies convívii, mittébat ad eos Job et sanctificábat illos, consurgénsque dilúculo offerébat holocáusta pro síngulis; dicébat enim: Ne forte peccáverint fílii mei et benedíxerint Deo in córdibus suis. Sic faciébat Job cunctis diébus.
+
+℟. Antequam cómedam suspíro, et tamquam inundántes aquæ sic rugítus meus; quia timor, quem timébam, evénit mihi, et quod verébar áccidit. Nonne dissimulávi? nonne sílui? nonne quiévi? \* Et venit super me indignátio. ℣. Ecce non est auxílium mihi in me, et necessárii quoque mei recessérunt a me. — Et.
+
+##### Lectio iii
+
+QUADAM autem die, cum veníssent fílii Dei ut assísterent coram Dómino, affúit inter eos étiam Satan. Cui dixit Dóminus: Unde venis? Qui respóndens ait: Circuívi terram et perambulávi eam. Dixítque Dóminus ad eum: Numquid considerásti servum meum Job, quod non sit ei símilis in terra, homo símplex et rectus ac timens Deum et recédens a malo? Cui respóndens Satan ait: Numquid Job frustra timet Deum? nonne tu vallásti eum ac domum ejus, universámque substántiam per circúitum opéribus mánuum ejus benedixísti, et posséssio ejus crevit in terra? Sed exténde páululum manum tuam et tange cuncta quæ póssidet, nisi in fáciem benedíxerit tibi.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro Morálium sancti Gregórii Papæ}
+
+##### Lectio iv
+*Lib. 2, cap. 1*
+
+SCRIPTÚRA sacra mentis óculis quasi quoddam spéculum oppónitur, ut intérna nostra fácies in ipsa videátur. Ibi étenim foeda, ibi pulchra nostra cognóscimus: ibi sentímus quantum profícimus, ibi a proféctu quam longe distámus. Narrat autem gesta Sanctórum, et ad imitatiónem corda próvocat infirmórum; dumque illórum victrícia facta commémorat, contra vitiórum prǽlia, debília nostra confírmat: fitque verbis illíus, ut eo mens minus inter certámina trépidet, quo ante se pósitos tot virórum fórtium triúmphos videt.
+
+℟. Indúta est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est: \* Meménto mei, Dómine, quóniam ventus est vita mea. ℣. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. — Meménto.
+
+##### Lectio v
+
+NONNÚMQUAM vero non solum nobis eórum virtútes ásserit, sed étiam casus innotéscit; ut et in victória fórtium, quod imitándo arrípere, et rursum videámus in lápsibus quid debeámus timére. Ecce enim Job describítur tentatióne auctus, sed David tentatióne prostrátus; ut et majórum virtus spem nostram fóveat, et majórum casus ad cautélam nos humilitátis accíngat: quátenus dum illa gaudéntes súblevant, ista metuéntes premant; et audiéntis ánimus illinc spei fidúcia, hinc humilitáte erudítus, nec temeritáte supérbiat, quia ad spei fidúciam virtútis exémplo roborátur.
+
+℟. Páucitas diérum meórum finiétur brevi; dimítte me, Dómine, ut plangam páululum dolórem meum, \* Antequam vadam et non revértar, ad terram tenebrósam et opértam mortis calígine. ℣. Manus tuæ, Dómine, fecérunt me, et plasmavérunt me totum in circúitu; et sic repénte præcípitas me? — Antequam.
+
+##### Lectio vi
+*Lib. 1, cap. 1*
+
+VIR erat in terra Hus, nómine Job. Idcírco sanctus vir ubi habitáverit dícitur, ut ejus méritum virtútis exprimátur. Hus namque quis nésciat quod sit in terra Gentílium? Gentílitas autem eo obligáta vítiis exstítit, quo cognitiónem sui Condítoris ignorávit. Dicátur ítaque ubi habitáverit; ut hoc ejus láudibus profíciat, quod bonus inter malos fuit. Neque enim valde laudábile est, bonum esse cum bonis, sed bonum esse cum malis. Sicut enim gravióris culpæ est, inter bonos bonum non esse; ita imménsi est præcónii, bonum étiam inter malos exstitísse.
+
+℟. Non abscóndas me, Dómine, a fácie tua: manum tuam longe fac a me, \* Et formído tua non me térreat. ℣. Córripe me, Dómine, in misericórdia, non in furóre tuo, ne forte ad níhilum rédigas me. — Et. Glória Patri. Et.
+
+{RUBRIC: Lectiónes III Nocturni de Homilía Domínicæ occurréntis post Pentecósten habéntur inférius circa finem hujus Partis de Témpore, in órdine aliárum Dominicárum usque ad Domínicam XXIV post Pentecósten. Simíliter Antíphonæ ad Benedíctus et Magníficat, et Oratiónes.}
+
+℟. vii Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et.
+
+℟. viii Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+{RUBRIC: Ad Laudes, in hac et sequéntibus Domínicis usque ad diem 27 Septémbris inclusíve occurréntibus, dícitur Hymnus} Ecce jam noctis, {RUBRIC: ut in Psaltério. 40}

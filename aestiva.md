@@ -23971,4 +23971,53 @@ Te Deum laudámus.
 
 *Is. 49, 1*
 
-AUdíte, ínsulæ, et atténdite, pópuli de longe: Dóminus ab útero vocávit
+AUdíte, ínsulæ, et atténdite, pópuli de longe: Dóminus ab útero vocávit me, de ventre matris meæ recordátus est nóminis mei.
+
+#### Hymnus
+
+O Nimis felix, meritíque celsi,
+Nésciens labem nívei pudóris,
+Præpotens Martyr, nemorúmque cultor, Máxime Vatum.
+
+Serta ter denis álios corónant
+Aucta creméntis, duplicáta quosdam,
+Trina te fructu cumuláta centum Néxibus ornant.
+
+Nunc potens nostri méritis opímis
+Péctoris duros lápides revélle
+Asperum planans iter, et refléxos Dírige calles.
+
+Ut pius mundi Sator et Redémptor
+Méntibus culpæ sine labe puris
+Rite dignétur véniens beátos Pónere gressus.
+
+Láudibus cives célebrent supérni
+Te, Deus simplex paritérque trine,
+Súpplices et nos véniam precámur: Parce redémptis.
+Amen.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+**Ad Bened. Ant.** Apértum est \* os Zacharíæ, et prophetávit dicens: Benedíctus Deus Israël.
+
+#### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Tertiam
+
+{RUBRIC: Capitulum ut supra ad Laudes.}
+
+℟. br. Fuit homo \* Missus a Deo. Fuit. ℣. Cui nomen erat Joánnes. Missus. Glória Patri. Fuit.
+
+℣. Inter natos mulíerum non surréxit major. ℟. Joánne Baptísta.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Is. 49, 5-6*
+
+ET nunc, hæc dicit Dóminus formans me ex útero servum sibi: Dedi te in lucem géntium, ut sis salus mea usque ad extré-

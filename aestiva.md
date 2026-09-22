@@ -32999,3 +32999,55 @@ ADésto supplicatiónibus nostris, omnípotens Deus: et quibus fidúciam sperán
 **Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
 
 ℣. Justus ut palma.
+
+###### Oratio
+
+DEus, qui beátum Hermétem Mártyrem tuum virtúte constántiæ in passióne roborásti: ex ejus nobis imitatióne tríbue; pro amóre tuo próspera mundi despícere, et nulla ejus advérsa formidáre. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis et S. Sabínæ Mart., ut infra.}
+
+---
+
+## Die 29 Augusti
+
+# In Decollatione S. Joannis Baptistæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi uníus Mártyris [29], præter ea quæ hic habéntur própria.}
+
+### In I Vesperis
+
+**Ant. 1** Heródes enim ténuit \* et ligávit Joánnem et pósuit in cárcerem propter Herodíadem.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolórum. [3]}
+
+**2** Dómine mi rex, \* da mihi in disco caput Joánnis Baptístæ.
+
+**3** Puéllæ saltánti \* imperávit mater: Nihil áliud petas, nisi caput Joánnis.
+
+**4** Arguébat \* Heródem Joánnes propter Herodíadem, quam túlerat fratri suo Philíppo uxórem.
+
+**5** Da mihi in disco \* caput Joánnis Baptístæ. Et contristátus est rex propter jusjurándum.
+
+### In II Vesperis
+
+#### Psalmus 115
+
+CRédidi, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Da mihi in disco caput Joánnis Baptístæ. Et contristátus est rex propter jusjurándum.

@@ -22047,3 +22047,21 @@ MAría Magdaléna, illustrióri Pazziórum génere Floréntiæ nata, fere ab inc
 TAnto igne divíni amóris æstuábat, ut, ei feréndo impar, ingésta aqua pectus refrigeráre cogerétur. Extra sensus frequénter rapta, diutúrnas et admirábiles éxtases passa est, in quibus et arcána cæléstia penetrávit, et exímiis a Deo grátiis illustráta fuit. His autem muníta longum certámen a princípiis tenebrárum sustínuit, árida, desoláta, ab ómnibus derelícta, variísque tentatiónibus vexáta; Deo sic permitténte, ut invíctæ patiéntiæ ac profundíssimæ humilitátis exémplar præbéret.
 
 ℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+CAritáte erga próximum singuláriter enítuit; nam sæpe noctes ducébat insómnes, vel obeúndis sorórum ministériis, vel inserviéndo infírmis occupáta, quarum aliquándo úlcera lambens sanávit. Infidélium et peccatórum perditiónem amáre deflens, se ad quælibet pro illórum salúte torménta parátam offerébat. Multis ante óbitum annis, univérsis cæli delíciis, quibus copióse affluébat, heróica virtúte renúntians, illud frequénter in ore habébat: Pati, non mori. Tandem longa et gravíssima infirmitáte exháusta, transívit ad Sponsum die vigésima quinta Maji, anno millésimo sexcentésimo séptimo, expléto anno quadragésimo primo ætátis suæ. Eam, multis in vita et post mortem miráculis claram, Clemens nonus sanctárum Vírginum número adscrípsit: cujus corpus in præséntem diem incórruptum conservátur.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur. Glória. Afferéntur.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+MAría Magdaléna, Floréntiæ illústri Pazziórum génere nata, fere ab incunábulis iter perfectiónis arrípuit. Decénnis perpétuam virginitátem vovit, susceptóque hábitu in monastério sorórum Carmelitárum, se ómnium virtútum exémplar præbuit. Adeo casta fuit, ut, quidquid puritátem lædere posset, pénitus ignoráverit. Tanto igne divíni amóris æstuábat, ut, ei feréndo impar, ingésta aqua pectus refrigeráre cogerétur. Caritáte erga próximum excélluit; nam sæpe noctes ducébat insómnes, vel obeúndis sorórum ministériis, vel inserviéndo infírmis occupáta, quarum aliquándo úlcera lambens sanávit. Illud frequénter in ore habébat: Pati, non mori. Tandem, diútino et gravi morbo exháusta, transívit ad Sponsum, anno millésimo sexcentésimo séptimo, expléto ætátis suæ anno quadragésimo primo. Eam Clemens nonus sanctárum Vírginum número adscrípsit.
+
+Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum decem virgínibus, de Communi Virg. 1 loco. [122]}

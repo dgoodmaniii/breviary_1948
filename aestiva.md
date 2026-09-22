@@ -26843,4 +26843,36 @@ Quin étiam Pannónios, Búlgaros, Dálmatas in fide christiáni nóminis confir
 
 APud Joánnem octávum, qui Hadriáno succésserat, íterum de suspécta fide violatóque more majórum accusátus, ac Romam veníre jussus, coram Joánne et epíscopis áliquot cleróque urbáno, fácile vicit cathólicam prorsus fidem et se retinuísse constánter, et céteros diligénter edocuísse: quod vero ad linguam Slavónicam in sacris peragéndis usurpátam, se certis de causis ex vénia Hadriáni Pontíficis, nec sacris Lítteris repugnántibus, jure fecísse. Quaprópter in re præsénti compléxus Methódium Póntifex, potestátem ejus archiepiscopálem expeditionémque Slavónicam, datis étiam lítteris, ratam esse jussit. Quare Methódius in Móraviam revérsus assignátum sibi munus explére vigilántius perseverávit, pro quo et exsílium libénter passus est. Bohemórum príncipem ejúsque uxórem ad fidem perdúxit, et in ea gente christiánum nomen longe latéque vulgávit. Evangélii lumen in Polóniam invéxit, et, ut nonnúlli scriptóres tradunt, sede episcopáli Leópoli fundáta, in Moscóviam próprii nóminis digréssus, thronum pontificálem Kiowénsem constítuit. Demum in Móraviam revérsus est ad suos; jamque sese ábripi ad humánum éxitum séntiens, ípsemet sibi successórem designávit, clerúmque et pópulum suprémis præcéptis ad virtútem cohortátus, ea vita, quæ sibi via in cælum fuit, placidíssime defúnctus est. Uti Cyríllum Roma, sic Methódium Morávia decedéntem summo honóre prosecúta est. Illórum vero festum, quod apud Slavóniæ pópulos jámdiu celebrári consuéverat, Leo décimus tértius Póntifex máximus cum Offício ac Missa própria in univérsa Ecclésia quotánnis agi præcépit.
 
-℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse intercédat. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+CYríllus et Methódius, fratres gérmani, Thessalonícæ amplíssimo loco nati, ab imperatóre Michaéle tértio destináti in Móraviam, brevi eam gentem ad fidem Christi adduxérunt. Cum rerum gestárum glóriam secúndus rumor Romam nuntiásset, sanctus Nicoláus primus Póntifex máximus fratres óptimos Romam conténdere jussit; ubi ab Hadriáno, Nicolái successóre, epíscopi sunt consecráti. Sed, cum brevi Cyríllus Romæ piíssime obiísset, Methódius in Móraviam regréssus, rei cathólicæ inservíre impénsius ínstitit. Quin étiam Bohémos, Pannónios, Búlgaros, Dálmatas in fide christiána confirmávit; in Carínthiis autem ad uníus veri Dei cultum traducéndis valde elaborávit. Item Evangélii lumen in Polóniam invéxit, et, ut nonnúlli scriptóres tradunt, sede episcopáli Leópoli fundáta, in Moscóviam próprii nóminis digréssus, thronum pontificálem Kiowénsem constítuit. Demum in Móraviam revérsus, clerum et pópulum suprémis præcéptis ad virtútem cohortátus, placidíssime defúnctus est. Cyrílli et Methódii festum, apud Slavóniæ pópulos jámdiu celebrátum, Leo décimus tértius ad univérsam Ecclésiam exténdit.
+
+Te Deum laudámus.
+
+##### In III Nocturno
+
+{RUBRIC: Homilía in Evangélium Designávit Dóminus, ut in Comm. Evang., cum ℞℞. de Comm. Conf. Pont. ibídem notátis. [27]}
+
+##### Ad Laudes
+
+###### Capitulum
+
+*Eccli. 44, 16-17*
+
+ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus: et in témpore iracúndiæ factus est reconciliátio.
+
+###### Hymnus
+
+LUX o decóra pátriæ
+Slavísque amíca géntibus,
+Salvéte, fratres: ánnuo
+Vos efferémus cántico.
+
+Quos Roma pláudens éxcipit,
+Compléxa mater fílios,
+Auget coróna præsúlum
+Novóque firmat róbore.

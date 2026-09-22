@@ -23364,3 +23364,39 @@ CǼléstium donórum distribútor Deus, qui in angélico júvene Aloísio miram 
 {RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedentis.}
 
 ---
+
+### Die 22 Junii
+
+#### S. Paulini
+
+{RUBRIC: Episcopi et Conf. [69] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+###### Oratio
+
+DEus, qui ómnia pro te in hoc sǽculo relinquéntibus céntuplum in futúro et vitam ætérnam promisísti: concéde propítius; ut, sancti Pontíficis Paulíni vestígiis inhæréntes, valeámus terréna despícere, et sola cæléstia desideráre: Qui vivis.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Cæléstium, ut supra. 638}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+{RUBRIC: Breve Pii X d. 18 Sept. 1908}
+
+PÓntius Merópius Anícius Paulínus, anno reparátæ salútis trecentésimo quinquagésimo tértio, a claríssima cívium Romanórum família Burdígalæ in Aquitánia natus, acri fuit ingénio ac móribus suávibus. Ausónio magístro, eloquéntiæ ac poéseos laude excélluit. Prænóbilis ac ditíssimus, honórum cursum ingréssus, florénti ætáte, senatória dignitáte potítus est. Dein Itáliam pétiit consul, et Campániam provínciam nactus, sedem Nolæ státuit. Hic divíno lúmine tactus, ob cæléstia signa, quæ Felícis presbýteri Mártyris sepúlcrum illustrábant, veræ Christi fídei, quam jam ánimo cogitábat, impénsius adhærére cœpit. Fasces ígitur ac secúrim nulla cæde maculátam depósuit, et revérsus in Gálliam, váriis ærúmnis ac magnis terra maríque labóribus jactátus, óculo cápitur; sed a beáto Martíno Turonénsi epíscopo sanitáti restitútus, lustrálibus baptísmatis aquis a beáto Delphíno Burdigalénsi antístite ablúitur.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+DIvítiis quibus abundábat spretis, bona véndidit pretiúmque paupé-

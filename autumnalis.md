@@ -16649,3 +16649,18 @@ ET Dániel regi respóndens ait : Rex, in ætérnum vive. Deus meus misit Angelu
 IN anno primo Darii, fílii Assuéri de sémine Medórum, qui imperávit super regnum Chaldæórum, anno uno regni ejus ego Dániel intelléxi in libris númerum annórum, de quo factus est sermo Dómini ad Jeremíam prophétam, ut compleréntur desolatiónis Jerúsalem septuagínta anni, et pósui fáciem meam ad Dóminum Deum meum rogáre et deprecári in jejúniis, sacco et cínere. Et orávi Dóminum Deum meum et conféssus sum et dixi : Obsecro, Dómine, Deus magne et terríbilis, custódiens pactum et misericórdiam diligéntibus te et custodiéntibus mandáta tua. Peccávimus, iniquitátem fécimus, ímpie égimus et recéssimus et clinávimus a mandátis tuis ac judíciis.
 
 ℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+##### Lectio ii
+*Cap. 9, 21-27*
+
+ADhuc me loquénte in oratióne, ecce vir Gábriel, quem víderam in visióne a princípio, cito volans tétigit me in témpore sacrifícii vespertíni et dócuit me et locútus est mihi dixítque : Dániel, nunc egréssus sum ut docérem te, et intelligeres : ab exórdio precum tuárum egréssus est sermo; ego autem veni ut indicárem tibi, quia vir desideriórum es; tu ergo animadvérte sermónem et intéllige visiónem. Septuagínta hebdómades abbreviátæ sunt super pópulum tuum et super urbem sanctam tuam, ut consummétur prævaricátio, et finem accípiat peccátum, et deleátur iníquitas, et adducátur justítia sempitérna, et impleátur vísio et prophetía, et ungátur Sanctus sanctórum.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+SCito ergo et animadvérte : Ab éxitu sermónis ut íterum ædificétur Jerúsalem usque ad Christum ducem, hebdómades septem et hebdómades sexagínta duæ erunt, et rúrsum ædificábitur platéa et muri in angústia témporum. Et post hebdómades sexagínta duas occidétur Christus, et non erit ejus pópulus qui eum negatúrus est; et civitátem et sanctuárium dissipábit pópulus cum duce ventúro et finis ejus vástitas, et post finem belli statúta desolátio. Confirmábit autem pactum multis hebdómada una, et in dimídio hebdómadis defíciet hóstia et sacrifícium, et erit in templo abominátio desolatiónis et usque ad consummatiónem et finem perseverábit desolátio.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.

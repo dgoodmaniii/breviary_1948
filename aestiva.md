@@ -32285,3 +32285,55 @@ OMnípotens et miséricors Deus, qui beátam Joánnam Franciscam tuo amóre succ
 {RUBRIC: Et fit Commem. Octávæ:}
 
 **Ant.** Quæ est ista quæ ascéndit sicut auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta?
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+###### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum vivit.
+
+{RUBRIC: Vésperæ de sequénti, Com. præcedéntis ac Ss. Timóthei, Hippólyti Ep. et Symphoriáni Mm.}
+
+---
+
+### Die 22 Augusti
+
+#### In Octava Assumptionis B. M. V.
+
+{RUBRIC: Duplex majus 887}
+
+℣. Exaltáta est, ut supra.
+
+**Ad Magnif. Ant.** Virgo prudentíssima, \* quo progréderis, quasi auróra valde rútilans? Fília Sion, tota formósa et suávis es, pulchra ut luna, elécta ut sol.
+
+{RUBRIC: Oratio Famulórum, ut supra.}
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+℣. Diffúsa est grátia.
+
+{RUBRIC: Oratio Omnípotens, ut supra. 918}
+
+{RUBRIC: Pro Ss. Timótheo, Hippólyto Ep. et Symphoriáno Mm.:}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+AUxílium tuum nobis, Dómine, quǽsumus, placátus impénde: et, intercedéntibus beátis Martýribus tuis Timótheo, Hippólyto et Symphoriáno, déxteram super nos tuæ propitiatiónis exténde. Per Dóminum.
+
+##### In I Nocturno
+
+De Cánticis canticórum
+
+#### Lectio i
+
+*Cap. 8, 5-14*
+
+QUÆ est ista, quæ ascéndit de desérto, delíciis áffluens, inníxa super diléctum suum? Sub árbore malo suscitávi te, ibi corrúpta est mater tua, ibi violáta est génitrix tua. Pone me ut signáculum super cor tuum, ut signáculum super bráchium tuum; quia fortis est ut mors diléctio, dura sicut inférnus æmulátio; lámpades ejus lámpades ignis atque flammárum.
+
+℟. Vidi speciósam sicut colúmbam, ascendéntem désuper rivos aquárum,

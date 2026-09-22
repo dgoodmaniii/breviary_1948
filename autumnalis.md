@@ -16457,3 +16457,17 @@ ET dixit ad me : Certe vidísti, fili hóminis. Et edúxit me et convértit ad r
 *Cap. 1, 1-15*
 
 ANno tértio regni Jóakim regis Juda venit Nabuchodónosor rex Babylónis in Jerúsalem et obsédit eam, et trádidit Dóminus in manu ejus Jóakim regem Juda et partem vasórum domus Dei, et asportávit ea in terram Sénnaar in domum dei sui et vasa íntulit in domum thesáuri dei sui. Et ait rex Asphenez præpósito eunuchórum, ut introdúceret de fíliis Israël et de sémine régio et tyrannórum púeros, in quibus nulla esset mácula, decóros forma et erudítos omni sapiéntia, cautos sciéntia et doctos disciplína et qui possent stare in palátio regis, ut docéret eos lítteras et linguam Chaldæórum.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+
+ET constítuit eis rex annónam per síngulos dies de cibis suis et de vino unde bibébat ipse, ut enutríti tribus annis póstea starent in conspéctu regis. Fuérunt ergo inter eos de fíliis Juda Dániel, Ananías, Mísaël et Azarías. Et impósuit eis præpósitus eunuchórum nómina : Daniéli Baltássar, Ananíæ Sidrach, Misaéli Misach, et Azaríæ Abdénago. Propósuit autem Dániel in corde suo, ne polluerétur de mensa regis neque de vino potus ejus, et rogávit eunuchórum præpósitum ne contaminarétur. Dedit autem Deus Daniéli grátiam et misericórdiam in conspéctu príncipis eunuchórum.
+
+℟. Aspice, Dómine, de sede sancta tua, et cógita de nobis : inclína, Deus meus, aurem tuam et audi : \* Aperi óculos tuos et vide tribulatiónem nostram. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Aperi.
+
+##### Lectio iii
+
+ET ait princeps eunuchórum ad Daniélem : Tímeo ego dóminum meum regem, qui constítuit vobis cibum et potum; qui, si víderit vultus vestros macilentióres præ céteris adolescéntibus coǽvis vestris, condemnábitis caput meum regi. Et dixit Dániel ad Málasar, quem constítuerat princeps eunuchórum super Daniélem, Ananíam, Misaélem et Azaríam : Tenta nos, óbsecro, servos tuos diébus decem, et déntur nobis legúmina ad vescéndum et aqua ad bibéndum, et contempláre vultus nostros et vultus puerórum qui vescúntur cibo régio, et, sicut víderis, fácies cum servis tuis. Qui, audíto sermóne hujuscémodi, tentávit eos diébus decem. Post dies autem decem, apparuérunt vultus eórum melióres et corpulentióres præ ómnibus púeris qui vescebántur cibo régio.
+
+℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.

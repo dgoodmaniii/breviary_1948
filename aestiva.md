@@ -22065,3 +22065,49 @@ MAría Magdaléna, Floréntiæ illústri Pazziórum génere nata, fere ab incun�
 Te Deum laudámus.
 
 {RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum decem virgínibus, de Communi Virg. 1 loco. [122]}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+DEus virginitátis amátor, qui beátam Maríam Magdalénam Vírginem, tuo amóre succénsam, cæléstibus donis decorásti: da; ut quam festíva celebritáte venerámur, puritáte et caritáte imitémur. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Et fit Commemoratio sequéntis.}
+
+---
+
+### Die 30 Maji
+
+#### S. Felicis I
+
+{RUBRIC: Papæ et Martyris [29] Simplex}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Felícem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+#### Lectio iii
+
+FElix Románus, patre Constántio, Aureliáno imperatóre præfuit Ecclésiæ. Constítuit ut Missa supra memórias et sepúlcra Mártyrum celebrarétur. Qui, cum mense Decémbri habuísset ordinatiónes duas, et creásset presbýteros novem, diáconos quinque, epíscopos per divérsa loca quinque; martýrio coronátus, via Aurélia sepelítur in basílica quam a se ædificátam dedicárat. Vixit in pontificátu annos duos, menses quátuor, dies vigínti novem.
+
+Te Deum laudámus.
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio S. Petronillæ Virg.}

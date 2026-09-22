@@ -20168,4 +20168,16 @@ Ex libro Morálium sancti Gregórii Papæ
 
 ##### Lectio iv
 
-SUnt nonnúlli, qui vitam suam négligunt et, dum transitória áppetunt, dum
+SUnt nonnúlli, qui vitam suam négligunt et, dum transitória áppetunt, dum ætérna vel non intélligunt, vel intellécta contémnunt, nec dolórem séntiunt, nec habére consílium sciunt; cumque supérna, quæ amisérunt, non consíderant, esse se (heu míseri) in bonis felíces putant. Nequáquam enim ad veritátis lucem, cui cónditi fúerant, mentis óculos érigunt; nequáquam ad contemplatiónem pátriæ ætérnæ desidérii áciem tendunt; sed semetípsos in his, ad quæ projécti sunt, deseréntes, vice pátriæ díligunt exsílium quod patiúntur, et in cæcitáte quam tólerant, quasi in claritáte lúminis exsúltant.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et labóret. — Quóniam.
+
+##### Lectio v
+
+AT contra, electórum mentes, dum transitória cuncta nulla esse conspíciunt, ad quæ sint cónditæ exquírunt: cumque eórum satisfactióni nihil extra Deum súfficit, ipsa inquisitiónis exercitatióne fatigáta illórum cogitátio, in Conditóris sui spe et contemplatióne requiéscit, supérnis intérseri cívibus áppetit; et unusquísque eórum adhuc in mundo córpore pósitus, mente tamen extra mundum surgit: ærúmnam exsílii, quam tólerat, deplórat, et ad sublímem pátriam incessántibus se amóris stímulis éxcitat. Cum ergo dolens videt, quam sit ætérnum quod pérdidit, ínvenit salúbre consílium, temporále hoc despícere quod percúrrit: et quo magis crescit consílii sciéntia, ut peritúra déserat, eo augétur dolor, quod necdum ad mansúra pertíngat.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+##### Lectio vi
+
+INtuéndum quoque est, quod nullus dolor mentis sit in actióne præcipitatiónis. Qui enim sine consíliis vivunt, qui seípsos rerum evéntibus præcípites déserunt, nullo ínterim cogitatiónum dolóre fatigántur. Nam qui sollérter in vitæ consílio

@@ -27345,3 +27345,45 @@ INtercéssio nos, quæsumus, Dómine, beáti Joánnis Abbátis comméndet: ut, q
 ###### Oratio
 
 PRæsta, quæsumus, Dómine: ut, sicut nos sanctórum Mártyrum tuórum Náboris et Felícis natalítia celebránda non déserunt; ita júgiter suffrágiis comiténtur. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 13 Julii
+
+#### S. Anacleti
+
+{RUBRIC: Papæ et Martyris [29] Semiduplex}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Anaclétum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato dicitur ut ix sequens}
+
+#### Lectio iv
+
+ANaclétus Atheniénsis, Trajáno imperatóre rexit Ecclésiam. Decrévit ut epíscopus a tríbus epíscopis, neque a paucióribus, consecrarétur; et clérici sacris ordínibus públice a próprio epíscopo initiaréntur; et ut in Missa, perácta consecratióne, omnes communicárent. Beáti Petri sepúlcrum ornávit, Pontificúmque sepultúræ locum attríbuit. Fecit ordinatiónes duas mense Decémbri, quibus creávit presbýteros quinque, diáconos tres, epíscopos sex. Sedit annos novem, menses tres, dies decem. Martýrio coronátus, sepúltus est in Vaticáno.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non dereliquit eum. — Et.
+
+De Expositióne sancti Ambrósii Epíscopi in Psalmum centésimum décimum octávum
+
+#### Lectio v
+
+*Sermo 21*
+
+PRíncipes persecúti sunt me gratis: et a verbis tuis trepidávit cor meum. Bene hoc Martyr dicit, quod injúste persecutiónum torménta sustíneat; qui nihil rapúerit, nullum violéntus oppresserit, nullíus sánguinem fúderit,

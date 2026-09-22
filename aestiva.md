@@ -26581,4 +26581,28 @@ DUrum vidétur et grave quod Dóminus imperávit, ut, si quis eum vult sequi, á
 
 #### Lectio viii
 
-QUo sequéndus est Dóminus? Quo iit, nóvimus; resurréxit enim et ascéndit in cælum: illo sequéndus est. Plane desperándum non est, quia ipse promísit, non quia homo áliquid potest. Jam quare desperémus, si membra illíus cápitis sumus? Bonum est illo eum sequi;
+QUo sequéndus est Dóminus? Quo iit, nóvimus; resurréxit enim et ascéndit in cælum: illo sequéndus est. Plane desperándum non est, quia ipse promísit, non quia homo áliquid potest. Jam quare desperémus, si membra illíus cápitis sumus? Bonum est illo eum sequi; sed vidéndum est, qua. Etenim verba ista Dóminus Jesus non tunc dicébat quando a mórtuis jam resurréxerat; nondum erat passus, ventúrus erat ad crucem, ventúrus ad exhonoratiónem, ad contumélias, ad flagélla, ad spinas, ad vúlnera, ad insultatiónes, oppróbria, mortem. Quasi exasperáta est via: pigrum te facis, non vis sequi: Séquere. Nam quis non velit ire ad exaltatiónem? omnes deléctat celsitúdo, sed humílitas gradus est.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+*Epist. 38*
+
+TOlle crucem tuam, et séquere Dóminum. Crux enim nostra, quam Dóminus portári a nobis jubet, ut eum expeditíssimi sequámur, quid áliud quam mortalitátem carnis hujus signíficat? Ipsa enim nos crúciat, donec absorbeátur mors in victóriam. Crux ergo hæc ipsa crucifigénda est, et transfigénda est clavis timóris Dei, ne solútis et líberis membris reluctántem portáre non possis; sequi enim Dóminum, nisi eam portans, omníno non vales. Nam quómodo eum sequéris, si non es ejus? Qui autem Jesu Christi sunt, ait Apóstolus, carnem suam crucifixérunt cum passiónibus et desidériis.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+FAC nos, Dómine Deus, supereminéntem Jesu Christi sciéntiam, spíritu Pauli Apóstoli edíscere; qua beátus Antónius María mirabíliter erudítus, novas in Ecclésia tua clericórum et vírginum famílias congregávit. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio Oct. Ss. Petri et Pauli App.}
+
+**Ant.** Gloriósi príncipes terræ, quómodo in vita sua dilexérunt se, ita et in morte non sunt separáti.

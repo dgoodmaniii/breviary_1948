@@ -25260,4 +25260,47 @@ SIC dícere vidétur: Nolíte turbári, si, cum vos inter lupos mitto, tamquam o
 
 SED inspiciámus quam prudéntiam éxigit: serpéntis certe. Nam, quemádmodum serpens totum seípsum tradit, nec mínimum curat si ipsum quoque corpus incídi necésse sit, dúmmodo caput suum íntegrum servet; eódem tu quoque modo, præter fidem cétera pérdere non cures, sive pecúnias, sive corpus, sive étiam vitam ipsam profúndere necésse sit. Fides enim caput est et radix; qua serváta, etiámsi ómnia perdas, ómnia tamen rursus majóre cum glória recuperábis. Idcírco nec símplices solum jussit esse, nec prudéntes solum; sed ambo hæc in unum míscuit, ut ea in virtútem convertántur.
 
-℟. Damásci, præpósitus gentis Arétæ regis vóluit me comprehéndere: \* Et a frátribus per murum demíssus sum in sporta, \* Et sic evási manus ejus in nómine Dómini. ℣. Deus et Pater Dómini nostri Jesu Christi scit quia non méntior. — Et a frátri-
+℟. Damásci, præpósitus gentis Arétæ regis vóluit me comprehéndere: \* Et a frátribus per murum demíssus sum in sporta, \* Et sic evási manus ejus in nómine Dómini. ℣. Deus et Pater Dómini nostri Jesu Christi scit quia non méntior. — Et a frátribus per murum demíssus sum in sporta. Glória Patri. Et sic evási manus ejus in nómine Dómini.
+
+#### Lectio ix
+
+QUod si rebus ipsis id ita fíeri vidére desíderas, lege Actuum Apostolórum librum; perspícies profécto, cum sæpe Judæórum pópulus in Apóstolos insurréxerit ac dentes exacúerit, illos, colúmbæ simplicitátem imitándo et cum decénti modéstia respondéndo, iram ipsórum superásse, furórem exstinxísse, ímpetum retardásse. Nam, cum illi dícerent: Nonne præcipiéndo præcépimus vobis, ne docerétis in nómine isto? quamvis innúmera possent édere mirácula, nihil tamen ásperum neque dixérunt neque fecérunt; sed summa cum mansuetúdine respondéntes dicébant: Si justum est vos audíre magis quam Deum, judicáte. Perspexísti simplicitátem colúmbæ, vide nunc serpéntis prudéntiam: Non enim póssumus, ínquiunt, nos quæ vídimus et audívimus, non loqui.
+
+Te Deum.
+
+##### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Ego plantávi, \* Apóllo rigávit, Deus autem increméntum dedit, allelúja.
+
+**2** Libénter gloriábor \* in infirmitátibus meis, ut inhábitet in me virtus Christi.
+
+**3** Grátia Dei \* in me vácua non fuit, sed grátia ejus semper in me manet.
+
+**4** Damásci, præpósitus \* gentis Arétæ regis vóluit me comprehéndere: a frátribus per murum demíssus sum in sporta, et sic evási manus ejus in nómine Dómini.
+
+**5** Ter virgis cæsus sum, \* semel lapidátus sum, ter naufrágium pértuli pro Christi nómine.
+
+###### Capitulum
+
+*2 Tim. 4, 7-8*
+
+BOnum certámen certávi, cursum consummávi, fidem servávi. In réliquo repósita est mihi coróna justítiæ, quam reddet mihi Dóminus in illa die justus judex.
+
+###### Hymnus
+
+EXsúltet orbis gáudiis,
+Cælum resúltet láudibus:
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices,
+Et vera mundi lúmina,
+Votis precámur córdium:
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quǽsumus.

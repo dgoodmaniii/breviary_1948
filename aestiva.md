@@ -24020,4 +24020,57 @@ DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fec
 
 *Is. 49, 5-6*
 
-ET nunc, hæc dicit Dóminus formans me ex útero servum sibi: Dedi te in lucem géntium, ut sis salus mea usque ad extré-
+ET nunc, hæc dicit Dóminus formans me ex útero servum sibi: Dedi te in lucem géntium, ut sis salus mea usque ad extrémum terræ.
+
+℟. br. Inter natos mulíerum \* Non surréxit major. Inter. ℣. Joánne Baptísta. Non. Glória Patri. Inter.
+
+℣. Elísabeth Zacharíæ magnum virum génuit. ℟. Joánnem Baptístam, præcursórem Dómini.
+
+### Ad Nonam
+
+**Ant.** Tu, puer, \* Prophéta Altíssimi vocáberis; præíbis ante Dóminum paráre vias ejus.
+
+#### Capitulum
+
+*Is. 49, 7*
+
+REges vidébunt, et consúrgent príncipes et adorábunt Dóminum Deum tuum, et Sanctum Israël, qui elégit te.
+
+℟. br. Elísabeth Zacharíæ \* Magnum virum génuit. Elísabeth. ℣. Joánnem Baptístam, præcursórem Dómini. Magnum. Glória Patri. Elísabeth.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+### In II Vesperis
+
+{RUBRIC: Antiphonæ et Capit. de Laudibus 656; Psalmi ut in I Vesperis de Communi App. [3]}
+
+#### Hymnus
+
+UT queant laxis resonáre fíbris
+Mira gestórum fámuli tuórum,
+Solve pollúti lábii reátum, Sancte Joánnes.
+
+Núntius celso véniens Olýmpo,
+Te patri magnum fore nascitúrum,
+Nomen, et vitæ sériem geréndæ Ordine promit.
+
+Ille promíssi dúbius supérni,
+Pérdidit promptæ módulos loquélæ;
+Sed reformásti génitus perémptæ Organa vocis.
+
+Ventris obstrúso récubans cubíli
+Sénseras Regem thálamo manéntem;
+Hinc parens nati méritis utérque Abdita pandit.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus omni Témporis ævo.
+Amen.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+**Ad Magnif. Ant.** Puer \* qui natus est nobis, plus quam Prophéta est: hic est enim, de quo Salvátor ait: Inter natos mulíerum non surréxit major Joánne Baptísta.
+
+#### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis

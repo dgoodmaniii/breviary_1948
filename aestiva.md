@@ -31958,4 +31958,22 @@ TOta pulchra es, amíca mea, et mácula non est in te. Veni de Líbano, sponsa m
 
 #### Lectio iii
 
-FAvus distíllans lábia tua, sponsa, mel et lac sub lingua tua; et odor vestimentórum tuórum sicut odor thuris. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons si-
+FAvus distíllans lábia tua, sponsa, mel et lac sub lingua tua; et odor vestimentórum tuórum sicut odor thuris. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons signátus. Emissiónes tuæ paradísus malórum punicórum cum pomórum frúctibus, cypri cum nardo. Nardus et crocus, fístula et cinnamómum cum univérsis lignis Líbani; myrrha et áloe cum ómnibus primis unguéntis. Fons hortórum, púteus aquárum vivéntium, quæ fluunt ímpetu de Líbano.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt. Glória Patri. Vidérunt.
+
+##### In II Nocturno
+
+De Sermóne sancti Joánnis Damascéni
+
+{RUBRIC: Oratio 2 de Dormit. Deíparæ, sub finem}
+
+#### Lectio iv
+
+EX antíqua accépimus traditióne, quod, témpore gloriósæ dormitiónis beátæ Vírginis, univérsi quidem sancti Apóstoli, qui orbem terræ ad salútem géntium peragrábant, moménto témporis in sublíme eláti, convenérunt Jerosólymis. Cumque illic essent, eis vísio appáruit angélica, et audíta est psalmódia cæléstium Potestátum; et sic cum divína glória in manus Dei sanctam trádidit ánimam. Ejus autem corpus, quod Deum ineffábili quadam ratióne suscépit, cum angélica et apostólica hymnódia elátum, in lóculo fuit depósitum Gethsémane; quo in loco Angelórum cantus mansit tres dies contínuos.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: Unguéntum effúsum nomen tuum. ℣. Astítit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et.
+
+#### Lectio v
+
+POst tres autem dies angélico cantu cessánte, qui áderant Apóstoli (cum unus Thomas, qui abfúerat, post tértium diem venísset, et, quod Deum suscéperat, corpus adoráre voluísset), túmulum aperuérunt; sed omni ex parte sacrum ejus corpus nequáquam inveníre potuérunt. Cum ea autem tantum inveníssent, in quibus fúerat compósitum, et ineffábili, qui ex iis proficiscebátur, essent odóre repléti, lóculum clausérunt. Ejus mystérii obstu-

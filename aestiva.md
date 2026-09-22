@@ -30009,4 +30009,60 @@ Ubi sunt misericórdiæ tuæ antíquæ, Dómine, \* sicut jurásti David in veri
 
 Memor esto, Dómine, oppróbrii servórum tuórum \* (quod contínui in sinu meo) multárum géntium.
 
-Quod exprobravérunt inimíci tui, Dómine, \* quod
+Quod exprobravérunt inimíci tui, Dómine, \* quod exprobravérunt commutatiónem Christi tui.
+
+Benedíctus Dóminus in ætérnum: \* fiat, fiat.
+
+**Ant.** Thabor et Hermon in nómine tuo exsultábunt: tuum bráchium cum poténtia.
+
+**Ant.** Lux orta est \* justo, et rectis corde lætítia.
+
+#### Psalmus 96
+
+DÓMINUS regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus: \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília: \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus: \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine:
+
+Quóniam tu Dóminus Altíssimus super omnem terram: \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum: \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino: \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Lux orta est justo, et rectis corde lætítia.
+
+**Ant.** Confessiónem \* et decórem índuit, amíctus lúmine sicut vestiménto.
+
+#### Psalmus 103
+
+BEnedic, ánima mea, Dómino: \* Dómine, Deus meus, magnificátus es vehementer.
+
+Confessiónem, et decórem induísti: \* amíctus lúmine sicut vestiménto:
+
+Exténdens cælum sicut pellem: \* qui tegis aquis superióra ejus.
+
+Qui ponis nubem ascénsum tuum: \* qui ámbulas super pennas ventórum.
+
+Qui facis ángelos tuos, spíritus: \* et minístros tuos ignem uréntem.
+
+Qui fundásti terram super stabilitátem suam: \* non inclinábitur in sæculum sæculi.
+
+Abýssus, sicut vestiméntum, amíctus ejus: \* super montes stabunt aquæ.
+
+Ab increpatióne tua fúgient: \* a voce tonítrui tui formidábunt.

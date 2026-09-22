@@ -27864,4 +27864,36 @@ NUllum fuit calamitátis genus, cui patérne non occúrrerit. Fidéles sub Turc�
 
 #### Lectio ix
 
-VIncéntius a Paulo, Pódii in Aquitánia natus, jam a púero exímiam in páuperes caritátem præ se tulit. A custódia patérni gregis ad lítteras evocátus, et dein sacerdótio initiátus, in Turcas íncidit, qui captívum in Africam abduxérunt; unde cum hero, ad fidem Christi redúcto, se erípuit et in Gálliam revérsus est. In parœciis sibi commíssis et dein in trirémibus animárum salúti sédulo incúbuit. Moniálibus Visitatiónis per annos círciter quadragínta máxima prudéntia præfuit. Evangelizándis paupéribus, præ-
+VIncéntius a Paulo, Pódii in Aquitánia natus, jam a púero exímiam in páuperes caritátem præ se tulit. A custódia patérni gregis ad lítteras evocátus, et dein sacerdótio initiátus, in Turcas íncidit, qui captívum in Africam abduxérunt; unde cum hero, ad fidem Christi redúcto, se erípuit et in Gálliam revérsus est. In parœciis sibi commíssis et dein in trirémibus animárum salúti sédulo incúbuit. Moniálibus Visitatiónis per annos círciter quadragínta máxima prudéntia præfuit. Evangelizándis paupéribus, præsértim ruricólis, ad decrépitam usque ætátem indeféssus incúbuit, eíque apostólico óperi tum se, tum alúmnos congregatiónis, quam sub nómine Presbyterórum sæculárium Missiónis institúit, perpétuo voto a sancta Sede confirmáto obstrínxit. Plúrima ad perquiréndos et sublevándos míseros et ad sequióris sexus educatiónem sodalítia fundávit. Córporis demum afflictatióne, labóribus senióque attrítus, anno salútis millésimo sexcentésimo sexagésimo plácide obdormívit in Dómino. Eum miráculis clarum Clemens duodécimus inter Sanctos rétulit, et Leo décimus tértius ómnium societátum caritátis, in toto cathólico orbe existéntium et ab eo quomodocúmque promanántium, peculiárem apud Deum patrónum declarávit et constítuit.
+
+Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Designávit Dóminus, ut in Communi Evang. cum ℟℟. de Communi Conf. non Pont. ibidem notatis. [27]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui ad evangelizándum paupéribus et ecclesiástici órdinis decórem promovéndum, beátum Vincéntium apostólica virtúte roborásti: præsta, quæsumus; ut, cujus pia mérita venerámur, virtútum quoque instruámur exémplis. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capitulo de seq., Commemoratio præcedentis ac S. Margaritæ Virg. et Mart.}
+
+---
+
+### Die 20 Julii
+
+#### S. Hieronymi Æmiliani
+
+{RUBRIC: Confessoris [94] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEus, misericordiárum pater, per mérita et intercessiónem beáti Hierónymi, quem órphanis adjutórem et patrem esse voluísti: concéde; ut spíritum adoptiónis, quo fílii tui nominámur et sumus, fidéliter custodiámus. Per Dóminum.

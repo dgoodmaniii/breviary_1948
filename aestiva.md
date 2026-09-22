@@ -23687,4 +23687,20 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 
 *Cap. 1, 1-10*
 
-VErba Jeremíæ fílii Helcíæ, de sacerdótibus, qui fuérunt in Anathoth, in terra Bén-
+VErba Jeremíæ fílii Helcíæ, de sacerdótibus, qui fuérunt in Anathoth, in terra Bénjámin. Quod factum est verbum Dómini ad eum in diébus Josíæ fílii Amon regis Juda, in tertiodécimo anno regni ejus. Et factum est in diébus Jóakim fílii Josíæ regis Juda, usque ad consummatiónem undécimi anni Sedecíæ fílii Josíæ regis Juda, usque ad transmigratiónem Jerúsalem, in mense quinto. Et factum est verbum Dómini ad me, dicens: Priúsquam te formárem in útero, novi te: et ántequam exíres de vulva, sanctificávi te, et Prophétam in géntibus dedi te.
+
+℟. Fuit homo missus a Deo, cui nomen erat Joánnes: \* Hic venit in testimónium, ut testimónium perhibéret de lúmine, et paráret Dómino plebem perféctam. ℣. Erat Joánnes in desérto prǽdicans baptísmum pœniténtiæ. — Hic.
+
+#### Lectio ii
+
+ET dixi, A a a, Dómine Deus: ecce néscio loqui, quia puer ego sum. Et dixit Dóminus ad me: Noli dícere, Puer sum: quóniam ad ómnia, quæ mittam te, ibis: et univérsa, quæcúmque mandávero tibi, loquéris. Ne tímeas a fácie eórum: quia tecum ego sum, ut éruam te, dicit Dóminus. Et misit Dóminus manum suam, et tétigit os meum: et dixit Dóminus ad me: Ecce dedi verba mea in ore tuo: ecce constítui te hódie super gentes, et super regna, ut evéllas, et déstruas, et dispérdas, et díssipes, et ædífices, et plantes.
+
+℟. Elísabeth Zacharíæ magnum virum génuit, Joánnem Baptístam, præcursórem Dómini: \* Qui viam Dómino præparávit in erémo. ℣. Fuit homo missus a Deo, cui nomen erat Joánnes. — Qui.
+
+#### Lectio iii
+
+*Cap. 1, 17-19*
+
+TU ergo accínge lumbos tuos, et surge, et lóquere ad eos ómnia quæ ego præcípio tibi. Ne formídes a fácie eórum: nec enim timére te fáciam vultum eórum. Ego quippe dedi te hódie in civitátem munítam, et in colúmnam férream, et in murum ǽreum, super omnem terram, régibus Juda, princípibus ejus, et sacerdótibus, et pópulo terræ. Et bellábunt advérsum te, et non prævalébunt: quia ego tecum sum, ait Dóminus, ut líberem te.
+
+℟. Priúsquam te formárem in útero, novi te: et ántequam exíres de ventre, sanctificávi te, \* Et Prophétam in géntibus dedi te. ℣. Vir diléctus a Deo, et homínibus hono-

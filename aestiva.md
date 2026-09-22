@@ -26545,4 +26545,14 @@ MEdioláni, cum secum agitáret uberióres in rem christiánam manáre posse fru
 
 #### Lectio vi
 
-ILlud étiam memorándum, quod, in Jesum crucifíxum amóre flagrans, crucis mystérium ab ómnibus, ad statum ǽris campáni indícium, sexta quaque féria sub vésperas, recoléndum curávit. Sanctíssimum Christi nomen in suis scriptis passim usurpábat et in ore semper habébat; ejúsdemque cruciátus, vere Pauli
+ILlud étiam memorándum, quod, in Jesum crucifíxum amóre flagrans, crucis mystérium ab ómnibus, ad statum ǽris campáni indícium, sexta quaque féria sub vésperas, recoléndum curávit. Sanctíssimum Christi nomen in suis scriptis passim usurpábat et in ore semper habébat; ejúsdemque cruciátus, vere Pauli discípulus, in córpore suo præ se ferébat. In sacram Eucharístiam singulári caritáte ferebátur; cujus et frequénter percipiéndæ consuetúdinem instaurávit, et morem e sublími throno públice in tríduum adorándæ invexísse perhibétur. Pudicítiam ádeo cóluit, ut étiam in exsángui córpore, revivíscere visus, ejus amórem testarétur. Accessére cæléstia dona éxtasis, lacrimárum, futurórum eventúum cognitiónis, scrutatiónis córdium, virtútis in humáni géneris hostem. Tandem, magnis labóribus ubíque exantlátis, Guastállæ, quo pacis sequéster accítus fúerat, gravi morbo corréptus est. Cremónam addúctus, inter suórum fletus et compléxus piíssimæ matris, quam próxime obitúram prædíxit, supérna Apostolórum visióne recreátus, sodalitátis suæ increménta prænúntians, tértio Nonas Júlii anno millésimo quingentésimo trigésimo nono, sanctíssime óbiit, annos natus sex supra trigínta. Cultum tanto viro, ob eximíam ejus sanctitátem et signórum cópiam a christiáno pópulo statim exhíbitum, Leo décimus tértius Póntifex máximus ratum hábuit et confirmávit; eúmdemque anno millésimo octingentésimo nonagésimo séptimo, in festo Ascensiónis Domínicæ, solémni ritu Sanctórum fastis adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ANtónius María Zaccaría, Cremónæ nóbili génere natus, jam a púero morum pudicítia et misericórdia in páuperes elúxit. Humánis lítteris, philosophíæ ac medicínæ vacans, integritáte vitæ et ingénii acúmine æquálibus antecélluit. Dei mónitu, sacras disciplínas sédulo excóluit; mox, sacerdótio auctus, talem se prǽbuit, ut pater pátriæ atque ángelus merúerit a suis cívibus appellári. Medioláni, cum Bartholomǽo Ferrário et Jacóbo Morígia, sanctíssimis viris, sodalitátem Clericórum regulárium, a sancto Paulo nuncupátam, et Sanctimoniálium Ange-

@@ -20622,4 +20622,22 @@ Homilía sancti Ambrósii Epíscopi
 
 *Liber 4 in Lucæ cap. 5, prope finem libri*
 
-UBI Dóminus multis impartívit vária génera sanitátum, nec témpore, nec loco pótuit ab stúdio sanándi turba cohibéri. Vesper incúbuit, sequebántur; stagnum occúrrit, urgébant: et ídeo ascéndit in Petri navim. Hæc est illa navis, quæ adhuc secúndum Matthæum flúctuat, secúndum Lucam replétur píscibus: ut et princípia Ecclésiæ fluctuántis, et posterióra
+UBI Dóminus multis impartívit vária génera sanitátum, nec témpore, nec loco pótuit ab stúdio sanándi turba cohibéri. Vesper incúbuit, sequebántur; stagnum occúrrit, urgébant: et ídeo ascéndit in Petri navim. Hæc est illa navis, quæ adhuc secúndum Matthæum flúctuat, secúndum Lucam replétur píscibus: ut et princípia Ecclésiæ fluctuántis, et posterióra exuberántis agnóscas. Pisces enim sunt, qui hanc enávigant vitam. Ibi adhuc discípulis Christus dormit, hic præcipit; dormit enim tépidis, perféctis vígilat.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et malum.
+
+##### Lectio viii
+
+NON turbátur hæc navis, in qua prudéntia návigat, abest perfídia, fides aspírat. Quemádmodum enim turbári póterat, cui præerat is, in quo Ecclésiæ firmaméntum est? Illic ergo turbátio, ubi módica fides; hic secúritas, ubi perfécta diléctio. Et si áliis imperátur, ut laxent rétia sua, soli tamen Petro dícitur: Duc in altum; hoc est, in profúndum disputatiónum. Quid queat humána plene ratiónis investigatióne comprehéndere, fídei tamen plenitúdo compléctitur.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+NAm etsi non licet mihi scire, quemádmodum natus sit, non licet tamen nescíre, quod natus sit. Sériem generatiónis ignóro; sed auctórem generatiónis agnósco. Non interfúimus, cum ex Patre Dei Fílius nascerétur; sed interfúimus, cum a Patre Dei Fílius dicerétur. Si Deo non crédimus, cui credémus? Omnia enim quæ crédimus, vel visu crédimus, vel audítu: visus sæpe fállitur, audítus in fide est.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit,

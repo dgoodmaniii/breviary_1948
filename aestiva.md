@@ -33567,4 +33567,20 @@ STéphanus in Hungáriam Christi fidem et régium nomen invéxit. Régia coróna
 
 #### Lectio v
 
-ORándi stúdio noctes pene totas ducébat insómnes; atque in cæléstium rerum contemplatióne defíxus, intérdum extra sensus raptus, sublímis in áëra ferri visus fuit. Perduéllium conspiratiónes ac validórum hóstium ímpetus, miro prorsus modo, non semel oratiónis præsídio evitávit. Suscéptum ex Ghisélla Bavárica, sancti Henríci imperatóris soróre, quam sibi matrimónio junxerat, Emerícum fílium tanta morum discíplina talíque pietáte enutrívit, quantum ejus póstea sánctitas declarávit. Regni vero ne-
+ORándi stúdio noctes pene totas ducébat insómnes; atque in cæléstium rerum contemplatióne defíxus, intérdum extra sensus raptus, sublímis in áëra ferri visus fuit. Perduéllium conspiratiónes ac validórum hóstium ímpetus, miro prorsus modo, non semel oratiónis præsídio evitávit. Suscéptum ex Ghisélla Bavárica, sancti Henríci imperatóris soróre, quam sibi matrimónio junxerat, Emerícum fílium tanta morum discíplina talíque pietáte enutrívit, quantum ejus póstea sánctitas declarávit. Regni vero negótia ita dispósuit, ut, accítis úndique prudentíssimis et sanctíssimis viris, nihil umquam sine illórum consílio molirétur; humíllimis intérim précibus in cínere et cilício Deum déprecans, ut univérsum Hungáriæ regnum, ántequam e vita migráret, cathólicum vidére mererétur; vere, propter ingens dilatándæ fídei stúdium, illíus gentis Apóstolus nuncupátus, facta a Románo Pontífice ipsi posterísque régibus præferéndæ crucis potestáte.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+DEi Genitrícem, quam ardentíssime venerabátur, amplíssimo in ejus honórem constrúcto templo, Hungáriæ patrónam instítuit; ab eádem vicíssim Vírgine recéptus in cælum ipso suæ Assumptiónis die, quem Húngari e sancti Regis institúto Magnæ Dóminæ diem appéllant. Sacrum ejus corpus, suavíssimo fragrans odóre, liquóre cæléstí scatens, inter multa et vária mirácula, Románi Pontíficis jussu, nobiliórem in locum translátum est atque honorificéntius cónditum. Ejus autem festum Innocéntius undécimus, Póntifex máximus, quarto Nonas Septémbris, ob insígnem victóriam ab exércitu Leopóldi primi, Románorum elécti imperatóris et Hungáriæ regis, eádem die in Budæ expugnatióne, ope divína, e Turcis reportátam, celebrándum instítuit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+STéphanus, Hungarórum rex, in Hungáriam Christi fidem et régium nomen invéxit. Régia corónam a Románo Pontífice impetráta, ejúsque jussu rex inúnctus, regnum Sedi apostólicæ óbtulit. Vária pietátis domicília Romæ, Jerosólymis, Constantinópoli constítuit; in Hungária archiepiscopátum Strigoniénsem

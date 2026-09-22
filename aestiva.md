@@ -19960,4 +19960,32 @@ FUndaméntum ergo est justítiæ fides. Justórum enim corda meditántur fidem: 
 
 JUstórum autem ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori, et æstimáta est afflíctio éxitus illórum, et quod a nobis est iter extermínium; illi autem sunt in pace; et si coram homínibus torménta passi sunt, spes illórum immortalitáte plena est. In paucis vexáti in multis bene disponéntur, quóniam Deus tentávit eos et invénit illos dignos se. Tamquam aurum in fornáce probávit illos, et quasi holocáusti hóstiam accépit illos, et in témpore erit respéctus illórum.
 
-℟. Ne derelínquas me, Dómine, pater et dominátor vitæ meæ, ut non córruam in conspéctu adversariórum meórum: \* Ne gáudeat de me inimícus meus. ℣. Apprehénde arma et scutum et exsúrge
+℟. Ne derelínquas me, Dómine, pater et dominátor vitæ meæ, ut non córruam in conspéctu adversariórum meórum: \* Ne gáudeat de me inimícus meus. ℣. Apprehénde arma et scutum et exsúrge in adjutórium mihi. — Ne gáudeat.
+
+##### Lectio ii
+
+FUlgébunt justi et tamquam scintíllæ in arundinéto discúrrent; judicábunt natiónes et dominabúntur pópulis, et regnábit Dóminus illórum in perpétuum. Qui confídunt in illo intélligent veritátem, et fidéles in dilectióne acquiéscent illi, quóniam donum et pax est eléctis ejus. Impii autem, secúndum quæ cogitavérunt, correptiónem habébunt, qui neglexérunt justum et a Dómino recessérunt. Sapiéntiam enim et disciplínam qui ábjicit infélix est; et vácua est spes illórum, et labóres sine fructu, et inutília ópera eórum.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+*Cap. 5, 16-21*
+
+JUsti autem in perpétuum vivent, et apud Dóminum est merces eórum et cogitátio illórum apud Altíssimum. Ideo accípient regnum decóris et diadéma speciéi de manu Dómini; quóniam déxtera sua teget eos et bráchio sancto suo deféndet illos. Accípiet armatúram zelus illíus et armábit creatúram ad ultiónem inimicórum. Induet pro thoráce justítiam et accípiet pro gálea judícium certum, sumet scutum inexpugnábile æquitátem. Acuet autem duram iram in lánceam, et pugnábit cum illo orbis terrárum contra insensátos.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro Sapiéntiæ}
+
+##### Lectio i
+
+*Cap. 6, 1-13*
+
+MElior est sapiéntia quam vires, et vir prudens quam fortis. Audíte ergo, reges, et intellígite; díscite, júdices fínium terræ; præbéte aures, vos qui continétis multitúdines et placétis vobis in turbis natiónum; quóniam data est a Dó-

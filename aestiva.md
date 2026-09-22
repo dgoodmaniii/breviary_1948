@@ -22928,4 +22928,44 @@ SEd quid opus est nostris ratiónibus aut sanctórum virórum exémplis id quod 
 
 #### Lectio ix
 
-ESt ígitur renuntiátio, quemádmodum docúimus, vinculórum terrénæ hujus ac temporális vitæ solútio, atque ab humánis negótiis liberátio, per quam ad ineúndam viam, qua ad Deum pervenítur,
+ESt ígitur renuntiátio, quemádmodum docúimus, vinculórum terrénæ hujus ac temporális vitæ solútio, atque ab humánis negótiis liberátio, per quam ad ineúndam viam, qua ad Deum pervenítur, aptióres et promptióres efficímur; et expedíta rátio ad acquisitiónem usúmque rerum, quæ super aurum et lápidem pretiósum multum longe sunt pretiosióres. Et in summa, cordis humáni ad cæléstem conversatiónem translátio, ita ut dícere líceat: Nostra conversátio in cælis est; et (quod máximum est) inítium unde ad Christi similitúdinem evádimus, qui cum dives esset, propter nos pauper est factus.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+EXáudi, quǽsumus, Dómine, preces nostras, quas in beáti Basilíi Confessóris tui atque Pontíficis solemnitáte deférimus: et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Basíli, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 15 Junii
+
+#### Ss. Viti, Modesti atque Crescentiæ
+
+{RUBRIC: Martyrum [49] Simplex}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+DA Ecclésiæ tuæ, quǽsumus, Dómine, sanctis Mártyribus tuis Vito, Modésto atque Crescéntia intercedéntibus: supérbe non sápere, sed tibi plácita humilitáte profícere; ut, prava despíciens, quæcúmque recta sunt, líbera exérceat caritáte. Per Dóminum.
+
+#### Lectio iii
+
+VItus ádmodum puer, ínscio patre, baptizátus est; quod cum ille rescivísset, nihil prætermísit, quo fílium a christiána religióne removéret. Qua in voluntáte permanéntem, Valeriáno júdici verbéribus castigándum trádidit. Sed nihil-

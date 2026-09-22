@@ -31371,3 +31371,72 @@ Solve víncla reis,
 Profer lumen cæcis,
 Mala nostra pelle,
 Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus.
+Amen.
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+**Ad Magnif. Ant.** Virgo prudentíssima, \* quo prográderis, quasi auróra valde rútilans? Fília Sion, tota formósa et suávis es, pulchra ut luna, elécta ut sol.
+
+### In II Vesperis
+
+**Ad Magnif. Ant.** Hódie \* María Virgo cælos ascéndit: gaudéte, quia cum Christo regnat in ætérnum.
+
+#### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum vivit.
+
+### Ad Matutinum
+
+{RUBRIC: Invit.} Veníte, adorémus Regem regum, \* Cujus hódie ad æthéreum Virgo Mater assúmpta est cælum. {RUBRIC: Ps. 94 Veníte, exsultémus.}
+
+#### Hymnus
+
+QUem terra, pontus, sídera
+Colunt, adórant, prǽdicant,
+Trinam regéntem máchinam,
+Claustrum Maríæ bájulat.
+
+Cui luna, sol et ómnia
+Desérviunt per témpora,
+Perfúsa cæli grátia,
+Gestant puéllæ víscera.
+
+Beáta Mater múnere,
+Cujus, supérnus Artifex
+Mundum pugíllo cóntinens,
+Ventris sub arca clausus est.
+
+Beáta cæli núntio,
+Fœcúnda Sancto Spíritu,
+Desiderátus géntibus
+Cujus per alvum fusus est.
+
+Jesu tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Exaltáta est \* sancta Dei Génitrix super

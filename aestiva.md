@@ -28110,3 +28110,27 @@ Ejúsque soli Fílio,
 Cum Spíritu Paráclito,
 Nunc et per omne sǽculum.
 Amen.
+
+##### In I Nocturno
+
+De Cánticis canticórum
+
+#### Lectio i
+
+*Cap. 3, 1-4*
+
+IN léctulo meo per noctes quæsívi quem díligit ánima mea; quæsívi illum et non invéni. Surgam et circuíbo civitátem per vicos et platéas, quæram quem díligit ánima mea: quæsívi illum et non invéni. Invenérunt me vígiles qui custódiunt civitátem. Num quem díligit ánima mea vidístis? Páululum cum pertransíssem eos, invéni quem díligit ánima mea, ténui eum, nec dimíttam, donec introdúcam illum in domum matris meæ et in cubículum genitrícis meæ.
+
+℟. María Magdaléne, et áltera María ibant dilúculo ad monuméntum: \* Jesum quem quéritis, non est hic, surréxit, sicut locútus est, præcédet vos in Galilǽam, ibi eum vidébitis. ℣. Et valde mane una sabbatórum véniunt ad monuméntum, orto jam sole: et introeúntes vidérunt júvenem sedéntem in dextris, qui dixit illis. — Jesum.
+
+#### Lectio ii
+
+*Cap. 8, 1-7*
+
+QUis mihi det te fratrem meum sugéntem úbera matris meæ, ut invéniam te foris et deósculer te, et jam me nemo despíciat? Apprehéndam te et ducam in domum matris meæ; ibi me docébis et dabo tibi póculum ex vino condíto et mustum malórum granatórum meórum. Læva ejus sub cápite meo, et déxtera illíus amplexábitur me. Adjúro vos, fíliæ Jerúsalem, ne suscitétis neque evigiláre faciátis diléctam, donec ipsa velit.
+
+℟. Congratulámini mihi, omnes qui dilígitis Dóminum, quia quem quærébam, appáruit mihi: \* Et dum flerem ad monuméntum, vidi Dóminum meum, allelúja. ℣. Recedéntibus discípulis, non recedébam, et amóris ejus igne succénsa, ardébam desidério. — Et.
+
+#### Lectio iii
+
+QUÆ est ista, quæ ascéndit de desérto, delíciis áffluens, inníxa super diléctum suum? Sub árbore malo suscitávi te, ibi corrúpta est mater tua, ibi violáta est génitrix tua. Pone me ut signáculum super cor tuum, ut signáculum super bráchium tuum, quia fortis est ut mors diléctio, dura sicut inférnus æmulátio; lámpades ejus lámpades ignis atque flammárum. Aquæ multæ non potuérunt ex-

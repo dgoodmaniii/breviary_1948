@@ -24599,3 +24599,60 @@ DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fec
 PRǽsta, quǽsumus, omnípotens Deus: ut nullis nos permíttas perturbatiónibus cóncuti; quos in apostólicæ confessiónis petra solidásti. Per Dóminum.
 
 {RUBRIC: Vesperæ de sequénti sine ulla Commemoratióne.}
+
+---
+
+## Die 29 Junii
+
+# Ss. Apostolorum Petri et Pauli
+
+[IMAGE]
+
+{RUBRIC: Duplex I Classis cum Octava Communi}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], præter ea quæ hic habéntur própria.}
+
+### In I Vesperis
+
+**Ant. 1** Petrus et Joánnes \* ascendébant in templum ad horam oratiónis nonam.
+
+**2** Argéntum et aurum \* non est mihi: quod autem hábeo, hoc tibi do.
+
+**3** Dixit Angelus ad Petrum: \* Circúmda tibi vestiméntum tuum, et séquere me.
+
+**4** Misit Dóminus \* Angelum suum, et liberávit me de manu Heródis, allelúja.
+
+**5** Tu es Petrus, \* et super hanc petram ædificábo Ecclésiam meam.
+
+#### Capitulum
+
+*Act. 12, 1-3*
+
+MIsit Heródes rex manus ut affligeret quosdam de Ecclésia. Occídit autem Jacóbum fratrem Joánnis gládio. Videns autem quia placéret Judǽis, appósuit ut apprehénderet et Petrum.
+
+#### Hymnus
+
+DEcóra lux æternitátis, áuream
+Diem beátis irrigávit ígnibus,
+Apostolórum quæ corónat Príncipes,
+Reísque in astra líberam pandit viam.
+
+Mundi Magíster atque cæli Jánitor,
+Romæ paréntes arbitríque géntium,
+Per ensis ille, hic per crucis victor necem
+Vitæ senátum laureáti póssident.
+
+O Roma felix, quæ duórum Príncipum
+Es consecráta glorióso sánguine!
+Horum cruóre purpuráta céteras
+Excéllis orbis una pulchritúdines.
+
+Sit Trinitáti sempitérna glória,
+Honor, potéstas atque jubilátio,
+In unitáte, quæ gubérnat ómnia,
+Per univérsa sæculórum sæcula.
+Amen.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Tu es pastor óvium, \* Princeps Apostolórum: tibi tráditæ

@@ -32477,3 +32477,27 @@ DEus, qui per beátum Philíppum, Confessórem tuum, exímium nobis humilitátis
 {RUBRIC: Complet. de Dominica.}
 
 ---
+
+cujus inæstimábilis odor erat nimis in vestiméntis ejus; \* Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. ℣. Quæ est ista quæ ascéndit per desértum sicut vírgula fumi ex aromátibus myrrhæ et thuris? — Et.
+
+#### Lectio ii
+
+AQuæ multæ non potuérunt exstínguere caritátem, nec flúmina óbruent illam. Si déderit homo omnem substántiam domus suæ pro dilectióne, quasi nihil despíciet eam. Soror nostra parva et úbera non habet; quid faciémus soróri nostræ in die quando alloquénda est? Si murus est, ædificémus super eum propugnácula argéntea; si óstium est, compingámus illud tábulis cédrinis.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion: quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+#### Lectio iii
+
+EGo murus, et úbera mea sicut turris, ex quo facta sum coram eo quasi pacem repériens. Vínea fuit pacífico in ea quæ habet pópulos; trádidit eam custódibus; vir affert pro fructu ejus mille argénteos. Vínea mea coram me est. Mille tui pacífici, et ducénti his qui custódiunt fructus ejus. Quæ hábitas in hortis, amíci auscúltant. Fac me audíre vocem tuam. Fuge, dilécte mi, et assimiláre cápreæ hinnulóque cervórum super montes aromátum.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt. Glória Patri. Vidérunt.
+
+##### In II Nocturno
+
+Sermo sancti Bernárdi Abbátis
+
+{RUBRIC: Sermo 4 de Assumpt. B. M. V. circa médium}
+
+#### Lectio iv
+
+NOn est équidem quod me magis deléctet, sed nec est quod térreat magis, quam de glória Vírginis Maríæ habére sermónem. Ecce enim, si in ea laudávero virginitátem, mihi multæ vírgines post eam vidéntur offérri. Si humilitátem prædicávero, inveniéntur forte vel pauci, qui, docénte Fílio ejus, mites fa-

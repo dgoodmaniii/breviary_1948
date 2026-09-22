@@ -32072,4 +32072,14 @@ QUinque ígitur sacerdótes sibi consócians, anno millésimo sexcentésimo quad
 
 #### Lectio vi
 
-SInguláre ejus stúdium emícuit in salutári devotióne promovénda erga Sacratíssima Corda Jesu et Maríæ, quorum litúrgicum cultum eísdem præstándum non sine áliquo divíno afflátu, primus ómnium excogitávit, ideóque ejúsdem cultus pater, doctor et apóstolus hábitus est. Jansenistárum doctrí-
+SInguláre ejus stúdium emícuit in salutári devotióne promovénda erga Sacratíssima Corda Jesu et Maríæ, quorum litúrgicum cultum eísdem præstándum non sine áliquo divíno afflátu, primus ómnium excogitávit, ideóque ejúsdem cultus pater, doctor et apóstolus hábitus est. Jansenistárum doctrínis fórtiter resístens, immutátum erga Petri cáthedram obséquium servávit, et pro suis inimícis, tamquam pro frátribus, assídue Deum precátus est. Labóribus, pótius quam annis, fractus, cúpiens dissólvi et esse cum Christo, die décima nona augústi, anno millésimo sexcentésimo octogésimo, suávia Jesu et Maríæ nómina sæpius répetens, plácide exspirávit. Quem plúribus miráculis clarum Pius Papa décimus Beatórum albo adscrípsit, eúmque novis signis fulgéntem Pius Papa undécimus, anno sacro, in domínica Pentecóstes, inter Sanctos rétulit ejúsque Offícium ac Missam ad univérsam Ecclésiam exténdit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOánnes, anno millésimo sexcentésimo primo, in pago vulgo Ri, Sagiénsis diœcésis, ex piis honestísque paréntibus ortus est. Adhuc puer, jam Angelórum pane reféctus, perpétuam castitátem vovit. In scholis, ubi laudabíliter stúdia perégit, mira pietáte enítuit. Beátam Vírginem summópere diléxit, et exímia erga próximum caritáte exársit. Berulliáni Oratórii Congregatióni nomen dedit et sacerdótio Parísiis auctus est. Domus Oratoriánæ Cadómi Rector factus, ab eádem, licet ægre, discéssit, ut ad Ecclésiæ ministérium júvenes idóneos institúeret. Quare quinque sibi adscítis sóciis, Congregatiónem Presbyterórum fundávit, cui Sanctíssima Jesu et Maríæ nómina dedit, et Cadómi primum Semináriúm apéruit, quod póstea plura subsecúta sunt. Ut peccatríces mulíeres ad vitam christiánam revocáret, Dóminæ Nostræ a Caritáte Institútum fundávit: cujus nobilíssimæ árboris ramus est Congregátio Andegavénsis a Bono Pastóre. Societátem ab admirábili Corde Matris Dei, et ália caritátis ópera adjécit. Singulári erga Sanctíssima Jesu et Maríæ Corda flagrans amóre, de litúrgico eis cultu præstándo non sine áliquo

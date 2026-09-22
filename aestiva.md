@@ -19704,4 +19704,36 @@ AT ubi inde ad se revérsus, et quasi ex umbrósa quadam abýsso ad lumen veræ 
 
 ##### Lectio vi
 
-QUamvis autem a Salomóne sæculis superióribus non tam multa sapiéntiæ exigebátur diligéntia; neque enim delícias lex vetus prohibébat, neque áliis frui supervácuis dicébat vanum: áttamen et sic se habéntibus rebus, in ipsis contuéri licébit, quam viles et vanitáti obnóxiæ res sint. Nos vero ad majórem vocáti vitam, et ad excelléntius fastígium ascéndimus, et in majóribus exercémur palæstris: et quid áliud, quam quod, sicut supérnæ virtútes intellectuáles
+QUamvis autem a Salomóne sæculis superióribus non tam multa sapiéntiæ exigebátur diligéntia; neque enim delícias lex vetus prohibébat, neque áliis frui supervácuis dicébat vanum: áttamen et sic se habéntibus rebus, in ipsis contuéri licébit, quam viles et vanitáti obnóxiæ res sint. Nos vero ad majórem vocáti vitam, et ad excelléntius fastígium ascéndimus, et in majóribus exercémur palæstris: et quid áliud, quam quod, sicut supérnæ virtútes intellectuáles et incorpóreæ illæ, vitam institúere jubémur?
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+{RUBRIC: ℟. vii Dómine et ℟. viii Duo Séraphim, ut infra in Homilíis.}
+
+---
+
+## Feria Secunda
+
+{RUBRIC: De libro Ecclesiástæ}
+
+##### Lectio i
+
+*Cap. 2, 1-4*
+
+DIxi ego in corde meo: Vadam et áffluam delíciis et fruar bonis; et vidi quod hoc quoque esset vánitas. Risum reputávi errórem et gáudio dixi: Quid frustra decíperis? Cogitávi in corde meo abstráhere a vino carnem meam, ut ánimum meum transférrem ad sapiéntiam, devitarémque stultítiam, donec vidérem quid esset útile fíliis hóminum, quo facto opus est sub sole número diérum vitæ suæ. Magnificávi ópera mea, ædificávi mihi domos et plantávi víneas.
+
+℟. Ne derelínquas me, Dómine, pater et dominátor vitæ meæ, ut non córruam in conspéctu adversariórum meórum: \* Ne gáudeat de me inimícus meus. ℣. Apprehénde arma et scutum et exsúrge in adjutórium mihi. — Ne gáudeat.
+
+##### Lectio ii
+
+*Cap. 2, 7-11*
+
+POssédi servos et ancíllas multámque famíliam hábui, arménta quoque et magnos óvium greges, ultra omnes qui fuérunt ante me in Jerúsalem; coacervávi mihi argéntum et aurum et substántias regum ac provinciárum; feci mihi cantóres et cantatríces et delícias filiórum hóminum, scyphos et úrceos in ministério ad vina fundénda, et supergréssus sum ópibus omnes qui ante me fuérunt in Jerúsalem: sapiéntia quoque perseverávit mecum.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+ET ómnia, quæ desideravérunt óculi mei, non negávi eis, nec prohíbui

@@ -31976,4 +31976,28 @@ EX antíqua accépimus traditióne, quod, témpore gloriósæ dormitiónis beát
 
 #### Lectio v
 
-POst tres autem dies angélico cantu cessánte, qui áderant Apóstoli (cum unus Thomas, qui abfúerat, post tértium diem venísset, et, quod Deum suscéperat, corpus adoráre voluísset), túmulum aperuérunt; sed omni ex parte sacrum ejus corpus nequáquam inveníre potuérunt. Cum ea autem tantum inveníssent, in quibus fúerat compósitum, et ineffábili, qui ex iis proficiscebátur, essent odóre repléti, lóculum clausérunt. Ejus mystérii obstu-
+POst tres autem dies angélico cantu cessánte, qui áderant Apóstoli (cum unus Thomas, qui abfúerat, post tértium diem venísset, et, quod Deum suscéperat, corpus adoráre voluísset), túmulum aperuérunt; sed omni ex parte sacrum ejus corpus nequáquam inveníre potuérunt. Cum ea autem tantum inveníssent, in quibus fúerat compósitum, et ineffábili, qui ex iis proficiscebátur, essent odóre repléti, lóculum clausérunt. Ejus mystérii obstupefácti miráculo, hoc solum cogitáre potuérunt quod, cui plácuit ex María Vírgine carnem súmere et hóminem fíeri et nasci, cum esset Deus Verbum et Dóminus glóriæ, quique post partum incorrúptam servávit ejus virginitátem; eídem étiam plácuit et ipsíus, postquam migrávit, immaculátum corpus, incorrúptum servátum, translatióne honoráre ante commúnem et universálem resurrectiónem.
+
+℟. Beátam me dicent omnes generatiónes, \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia.
+
+#### Lectio vi
+
+ADerant tunc cum Apóstolis sanctíssimus Timótheus, primus epíscopus Ephesiórum, et Dionýsius Areopagíta, sicut ipse testátur in iis quæ de beáto Hieróttheo, qui ipse quoque tunc áderat, scripsit ad prædíctum Timótheum, sic dicens: Nam étiam apud ipsos a Deo afflátos Sacrórum antístites, quando nos quoque, ut nosti, et multi ex sanctis nostris frátribus, ad contuéndum corpus, quod vitæ princípium dedit et Deum suscépit, convenissémus (áderat autem et Dómini frater Jacóbus, et Petrus, supréma et antiquíssima theologórum súmmitas), et, viso sacro córpore, plácuit ómnibus, prout quisque póterat, hymnis celebráre infinítam bonitátem divínæ poténtiæ.
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes Virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti. Glória Patri. Genuísti.
+
+##### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+
+*Cap. 10, 38-42*
+
+IN illo témpore: Intrávit Jesus in quoddam castéllum; et múlier quædam, Martha nómine, excépit illum in domum suam. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Sermo 27 de verbis Dómini, paulo ante médium}
+
+BEne Martha circa corporálem Dómini, quid dicam, necessitátem an voluntátem? ministrábat carni mortáli. Sed quis erat in

@@ -20995,3 +20995,43 @@ Te Deum laudámus.
 ℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
 
 **Ad Bened. Ant.** Stans a longe \* publicánus, nolébat óculos ad cælum leváre, sed percutiébat pectus suum dicens: Deus, propítius esto mihi peccatóri.
+
+### Oratio
+
+DEus, qui omnipoténtiam tuam parcéndo máxime et miserándo maniféstas: multíplica super nos misericórdiam tuam; ut ad tua promíssa curréntes, cæléstium bonórum fácias esse consórtes. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Descéndit \* hic justificátus in domum suam ab illo; quia omnis, qui se exáltat, humiliábitur, et, qui se humíliat, exaltábitur.
+
+---
+
+## Dominica XI post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+OMnípotens sempitérne Deus, qui, abundántia pietátis tuæ, et mérita súpplicum excédis et vota: effúnde super nos misericórdiam tuam; ut dimíttas quæ consciéntia métuit, et adjícias quod orátio non præsúmit. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Marcum
+
+##### Lectio vii
+
+*Cap. 7, 31-37*
+
+IN illo témpore: Exiens Jesus de fínibus Tyri venit per Sidónem ad mare Galilǽæ inter médios fines Decapóleos. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+*Homilia 10, liber 1 in Ezech., ante medium*
+
+QUid est, quod Creátor ómnium Deus, cum surdum et mutum sanáre voluísset, in aures illíus suos dígitos misit, et exspuens linguam ejus tétigit? Quid per dígitos Redemptóris, nisi dona Sancti Spíritus designántur? Unde, cum in álio loco ejecísset dæmónium, dixit: Si in dígito Dei ejício dæmónia, profécto pervénit in vos regnum Dei. Qua de re per Evangelístam álium dixísse describítur: Si ego in Spíritu Dei ejício dæmónes, ígitur pervénit in vos regnum Dei. Ex quo utróque loco collígitur, quia dígitus Spíritus vocátur. Dígitos ergo in aurículas míttere, est per dona Spíritus Sancti mentem surdi ad obediéndum aperíre.
+
+### Ante Dominicam I Augusti
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram

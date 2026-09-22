@@ -22804,4 +22804,24 @@ DEus, auctor pacis et amátor caritátis, qui beátum Joánnem Confessórem tuum
 
 ANtónius, Ulyssipóne in Lusitánia honéstis ortus paréntibus, et ab iis pie educátus, adoléscens, institútum canonicórum regulárium suscépit. Sed, cum córpora beatórum quinque Mártyrum fratrum Minórum Conímbriam transferréntur, qui paulo ante apud Marróchium pro Christi fide passi erant, martýrii desidério incénsus ad Franciscánum órdinem transívit. Mox eódem ardóre impúlsus, ad Saracénos ire perréxit; sed, advérsa valetúdine afflíctus et redíre coáctus, cum navi ad Hispániæ líttora ténderet, ventórum vi in Sicíliam delátus est.
 
-℟. Honéstum fecit illum Dóminus, et custodívit
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+ASsísium e Sicília ad capítulum generále venit: inde in erémum montis Pauli in Æmília secéssit, ubi divínis contemplatiónibus, jejúniis et vigíliis diu vacávit. Póstea, sacris ordínibus initiátus et ad prædicándum Evangélium missus, dicéndi sapiéntia et cópia tantum profécit, tantámque sui admiratiónem commóvit, ut eum summus Póntifex aliquándo concionántem áudiens, arcam Testaménti appellárit. In primis vero hǽreses summa vi profligávit, ideóque perpétuus hæreticórum málleus est vocátus.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+PRimus ex suo órdine, ob doctrínæ præstántiam, Bonóniæ et álibi sacras lítteras est interpretátus, fratrúmque suórum stúdiis præfuit. Multis vero peragrátis provínciis, anno ante óbitum Patávium venit, ubi illústria sanctitátis suæ monuménta relíquit. Dénique magnis labóribus pro glória Dei perfúnctus, méritis et miráculis clarus obdormívit in Dómino Idibus Júnii, anno salútis millésimo ducentésimo trigésimo primo. Quem Gregórius nonus, Póntifex máximus, sanctórum Confessórum número adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ANtónius, Ulyssipóne in Lusitánia honéstis piísque ortus paréntibus; adoléscens, institútum canonicórum regulárium suscépit: sed, mártyrii desidério incénsus, ad Franciscánum órdinem transívit. Ad Saracénos missus, et advérsa valetúdine redíre coáctus, vi ventórum in Sicíliam delátus

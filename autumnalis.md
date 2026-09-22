@@ -16574,3 +16574,38 @@ QUod autem vidit rex vígilem et sanctum descéndere de cælo et dícere : Succ�
 ℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+SEptem quoque témpora mutabúntur super te, donec scias quod dominétur Excélsus super regnum hóminum et cuicúmque volúerit det illud. Quod autem præcépit ut relinquerétur germen radícum ejus, id est árboris, regnum tuum tibi manébit, postquam cognóveris potestátem esse cæléstem. Quam ob rem, rex, consílium meum pláceat tibi, et peccáta tua eleemósynis rédime et iniquitátes tuas misericórdiis páuperum; fórsitan ignóscet delíctis tuis. Omnia hæc venérunt super Nabuchodónosor regem.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quinta infra Hebdomadam III Novembris
+
+{RUBRIC: De Daniéle Prophéta}
+
+##### Lectio i
+*Cap. 5, 1-6*
+
+BAltássar rex fecit grande convívium optimátibus suis mille, et unusquísque secúndum suam bibébat ætátem. Præcépit ergo jam temuléntus, ut afferréntur vasa áurea et argéntea quæ asportáverat Nabuchodónosor pater ejus de templo quod fuit in Jerúsalem, ut bíberent in eis rex et optimátes ejus uxorésque ejus et concubínæ. Tunc alláta sunt vasa áurea et argéntea quæ asportáverat de templo quod fúerat in Jerúsalem, et bibérunt in eis rex et optimátes ejus, uxóres et concubínæ illíus. Bibébant vinum et laudábant deos suos áureos et argénteos, ǽreos, férreos ligneósque et lapídeos. In eádem hora apparuérunt dígiti, quasi manus hóminis scribéntis contra candelábrum in superfície paríetis aulæ régiæ, et rex aspiciébat artículos manus scribéntis. Tunc fácies regis commutáta est, et cogitatiónes ejus conturbábant eum.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+*Cap. 5, 13-17*
+
+IGitur introdúctus est Dániel coram rege, ad quem præfátus rex ait : Tu es Dániel de fíliis captivitátis Judæ, quem addúxit pater meus rex de Judǽa? Audívi de te quóniam spíritum deórum hábeas, et sciéntia intelligéntiaque ac sapiéntia ampliórés invéntæ sunt in te. Et nunc introgréssi sunt in conspéctu meo sapiéntes magi, ut scriptúram hanc légerent et interpretatiónem ejus indicárent mihi, et nequivérunt sensum hujus sermónis edícere. Porro ego audívi de te, quod possis obscúra interpretári et ligáta dissólvere; si ergo vales scriptúram légere et interpretatiónem ejus indicáre mihi, púrpura vestiéris et torquem áuream circa collum tuum habébis et tértius in regno meo princeps eris. Ad quæ respóndens Dániel ait coram rege : Múnera tua sint tibi, et dona domus tuæ álteri da; scriptúram autem legam tibi, rex, et interpretatiónem ejus osténdam tibi.
+
+℟. Aspice, Dómine, de sede sancta tua, et cógita de nobis : inclína, Deus meus, aurem tuam et audi : \* Aperi óculos tuos et vide tribulatiónem nostram. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Aperi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Aperi.}
+
+##### Lectio iii
+*Cap. 5, 25-31*
+
+HÆC est autem scriptúra quæ digésta est : Mane, Thecel, Phares, et hæc est interpretátio sermónis : Mane, numerávit Deus regnum tuum et complévit illud; Thecel, appénsus es in statéra et invéntus es minus habens; Phares, divísum est regnum tuum et datum est Medis et Persis. Tunc, jubénte rege, indútus est Dániel púrpura, et circúmdata est torques áurea collo ejus, et prædicátum est de eo quod habéret potestátem tértius in regno suo. Eádem nocte interféctus est Baltássar rex Chaldǽus, et Daríus Medus succéssit in regnum annos natus sexagínta duos.
+
+℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.

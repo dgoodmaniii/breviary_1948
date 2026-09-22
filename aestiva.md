@@ -21115,3 +21115,41 @@ Te Deum.
 **Ad Bened. Ant.** Magíster, \* quid faciéndo vitam ætérnam possidébo? At ille dixit ad eum: In lege quid scriptum est? quómodo legis? Díliges Dóminum, Deum tuum, ex toto corde tuo, allelúja.
 
 {RUBRIC: Oratio Omnípotens et miséricors, ut supra.}
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Homo quidam \* descendébat ab Jerúsalem in Jéricho et íncidit in latrónes, qui étiam despoliavérunt eum et, plagis impósitis, abiérunt semivívo relícto.
+
+---
+
+## Dominica XIII post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+OMnípotens sempitérne Deus, da nobis fídei, spei et caritátis augméntum: et, ut mereámur ássequi quod promíttis, fac nos amáre quod præcipis. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+##### Lectio vii
+
+*Cap. 17, 11-19*
+
+IN illo témpore: Dum iret Jesus in Jerúsalem, transíbat per médiam Samaríam et Galilǽam. Et cum ingrederétur quoddam castéllum, occurrérunt ei decem viri leprósi. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Liber 2 quæst. Evang. cap. 40*
+
+DE decem leprósis, quos Dóminus ita mundávit, cum ait: Ite, osténdite vos sacerdótibus; quǽri potest, cur eos ad sacerdótes míserit, ut, cum irent, mundaréntur. Nullum enim eórum, quibus hæc corporália benefícia præstitit, invenítur misísse ad sacerdótes, nisi leprósos. Nam et illum a lepra mundáverat, cui dixit: Vade, osténde te sacerdótibus, et offer pro te sacrifícium, quod præcépit Móyses, in testimónium illis. Quæréndum ígitur est, quid ipsa lepra signíficet: non enim sanáti, sed mundáti dicúntur, qui ea caruérunt. Colóris quippe vítium est, non valetúdinis, aut integritátis sénsuum atque membrórum.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+LEprósi ergo non absúrde intélligi possunt, qui sciéntiam veræ fídei

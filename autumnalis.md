@@ -3867,13 +3867,9 @@ DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia 
 
 #### E Proprio Sanctorum
 
-##### Pro Oct. S. Joannis Bapt.
+##### Pro Oct. Omn. Sanctorum
 
-REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum, Deum tuum et Sanctum Israël, qui elégit te.
-
-##### Pro Invent. S. Stephani
-
-POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+BENEDÍCTIO et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fortitúdo Deo nostro in sǽcula sæculórum. Amen.
 
 #### E Communi Sanctorum
 
@@ -5596,13 +5592,9 @@ DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia 
 
 #### E Proprio de Tempore
 
-##### Pro Oct. S. Joannis Bapt.
+##### Pro Oct. Omn. Sanctorum
 
-REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum, Deum tuum et Sanctum Israël, qui elégit te.
-
-##### Pro Invent. S. Stephani
-
-POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+BENEDÍCTIO et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fortitúdo Deo nostro in sǽcula sæculórum. Amen.
 
 #### E Communi Sanctorum
 
@@ -7372,13 +7364,9 @@ DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia 
 
 #### E Proprio Sanctorum
 
-##### Pro Oct. S. Joannis Bapt.
+##### Pro Oct. Omn. Sanctorum
 
-REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum, Deum tuum et Sanctum Israël, qui elégit te.
-
-##### Pro Invent. S. Stephani
-
-POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+BENEDÍCTIO et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fortitúdo Deo nostro in sǽcula sæculórum. Amen.
 
 #### E Communi Sanctorum
 
@@ -9178,13 +9166,9 @@ DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia 
 
 #### E Proprio Sanctorum
 
-##### Pro Oct. S. Joannis Bapt.
+##### Pro Oct. Omn. Sanctorum
 
-REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum, Deum tuum et Sanctum Israël, qui elégit te.
-
-##### Pro Invent. S. Stephani
-
-POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+BENEDÍCTIO et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fortitúdo Deo nostro in sǽcula sæculórum. Amen.
 
 #### E Communi Sanctorum
 
@@ -11003,13 +10987,9 @@ DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia 
 
 #### E Proprio Sanctorum
 
-##### Pro Oct. S. Joannis Bapt.
+##### Pro Oct. Omn. Sanctorum
 
-REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum, Deum tuum et Sanctum Israël, qui elégit te.
-
-##### Pro Invent. S. Stephani
-
-POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+BENEDÍCTIO et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fortitúdo Deo nostro in sǽcula sæculórum. Amen.
 
 #### E Communi Sanctorum
 
@@ -12913,13 +12893,9 @@ DOMINUS autem dírigat corda et córpora nostra in caritáte Dei, et patiéntia 
 
 ### E Proprio Sanctorum
 
-#### Pro Oct. S. Joannis Bapt.
+#### Pro Oct. Omn. Sanctorum
 
-REGES vidébunt, et consúrgent príncipes et adorábunt Dóminum Deum tuum et Sanctum Israël, qui elégit te.
-
-#### Pro Invent. S. Stephani
-
-POSITIS autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino.
+BENEDÍCTIO et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fortitúdo Deo nostro in sǽcula sæculórum. Amen.
 
 ### E Communi Sanctorum
 

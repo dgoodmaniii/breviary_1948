@@ -28835,4 +28835,52 @@ SED in primis inter Cathólicos instauráre pietátem curæ fuit. Templórum nit
 
 #### Lectio ix
 
-IGnátius, natióne Hispánus, Loyólæ in Cantábria natus, primo cathólici regis aulam, deínde milítiam secútus est. In propugnatióne Pampelonénsi accépto vúlnere gráviter decúmbens, ex fortuíta piórum librórum lectióne ad Christi et Sanctórum vestígia sectánda mirabíliter exársit. Ad montem Serrátum proféctus, ante aram beátæ Vírginis suspénsis armis, noctem excúbans, sacræ milítiæ tirocínium pósuit. Singuláris fuit ejus vitæ austéritas. Litterárum plane rudis, sed claris a Deo illustratiónibus recreátus, mirábilem illum compósuit exercitiórum librum, Sedis apostólicæ judício et ómnium utilitáte comprobátum. Lutétiæ Parisiórum, adjúnctis sibi ex illa academía variárum natiónum sóciis novem, in monte Mártyrum prima Societátis Jesu fundaménta jecit; quam póstea Romæ perfécit, ad tria consuéta quarto áddito de Missiónibus voto, ad nutum apostólicæ Sedis excoléndis. Templórum nitor, catechísmi tradítio, conciónum ac sacramentórum frequéntia ab ipso increméntum accépere. Cathólicæ religiónis ubíque dilatándæ fuit studiosíssimus, et in dǽmones mirum exércuit impérium. Ætátis anno sexagésimo
+IGnátius, natióne Hispánus, Loyólæ in Cantábria natus, primo cathólici regis aulam, deínde milítiam secútus est. In propugnatióne Pampelonénsi accépto vúlnere gráviter decúmbens, ex fortuíta piórum librórum lectióne ad Christi et Sanctórum vestígia sectánda mirabíliter exársit. Ad montem Serrátum proféctus, ante aram beátæ Vírginis suspénsis armis, noctem excúbans, sacræ milítiæ tirocínium pósuit. Singuláris fuit ejus vitæ austéritas. Litterárum plane rudis, sed claris a Deo illustratiónibus recreátus, mirábilem illum compósuit exercitiórum librum, Sedis apostólicæ judício et ómnium utilitáte comprobátum. Lutétiæ Parisiórum, adjúnctis sibi ex illa academía variárum natiónum sóciis novem, in monte Mártyrum prima Societátis Jesu fundaménta jecit; quam póstea Romæ perfécit, ad tria consuéta quarto áddito de Missiónibus voto, ad nutum apostólicæ Sedis excoléndis. Templórum nitor, catechísmi tradítio, conciónum ac sacramentórum frequéntia ab ipso increméntum accépere. Cathólicæ religiónis ubíque dilatándæ fuit studiosíssimus, et in dǽmones mirum exércuit impérium. Ætátis anno sexagésimo quinto, ad ampléxum migrávit Dómini sui, cujus majórem glóriam in ómnibus quæsíverat. Eum Pius undécimus ómnium Exercitiórum spirituálium patrónum cæléstem constítuit ac declarávit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilia in Ev. Designávit Dóminus, ut in Communi Evang., cum ℟℟. de Communi Conf. non Pont. ibidem notatis. [27]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui ad majórem tui nóminis glóriam propagándam, novo per beátum Ignátium subsídio militántem Ecclésiam roborásti: concéde, ut ejus auxílio et imitatióne certántes in terris, coronári cum ipso mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio S. Pauli Ap., præcedentis, ac Ss. Machabæorum Mm.}
+
+---
+
+## Festa Augusti
+
+### Die 1 Augusti
+
+# S. Petri Ap. ad Vincula
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Apostolorum [3], præter ea quæ hic habentur propria.}
+
+### In I Vesperis
+
+**Ant. 1** Heródes rex \* appósuit ut apprehénderet et Petrum; quem, cum apprehendísset, misit in cárcerem, volens post Pascha prodúcere eum pópulo.
+
+**2** Petrus quidem \* servabátur in cárcere; orátio autem fiébat sine intermissióne ab Ecclésia ad Deum pro eo.
+
+**3** Dixit Angelus \* ad Petrum: Circúmda tibi vestiméntum tuum, et séquere me.
+
+**4** Misit Dóminus \* Angelum suum, et liberávit me de manu Heródis, allelúja.
+
+**5** Tu es Petrus, \* et super hanc petram ædificábo Ecclésiam meam.
+
+#### Capitulum
+
+*Act. 12, 1-3*
+
+MIsit Heródes rex manus ut afflígeret quosdam de Ecclésia. Occídit autem Jacóbum, fratrem Joánnis, gládio. Videns autem quia placéret Judǽis, appósuit ut apprehénderet et Petrum.

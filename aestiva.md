@@ -32017,3 +32017,47 @@ CIrca unum María se vóluit occupári. Jam tenébat: Mihi autem adhærére Deo 
 AGapítus Prænestínus, quíndecim annos natus, Aureliáno imperatóre, martýrii cupidíssimus, cum propter constántiam religiónis, imperatóris jussu, primum nervis diutíssime cæsus, deínde in tetrum cárcerem conjéctus esset, ut nihil omníno per quátuor dies gustáret, e custódia est edúctus. Et, ardéntibus carbónibus cápiti ejus impósitis, Deo agens grátias, íterum afféctus verbéribus, nudus ita pédibus suspénsus est, ut ingens fumus e subjécto igne os ejus obrúeret. Tum fervens aqua in ejus ventrem effúsa est, maxilláque confráctæ. Quo témpore judex, e tribunáli lapsus, paulo post mórtuus est. Ea re incénso imperatóre, sanctum júvenem jubénte feris óbjici, cum illæ non audérent attíngere, Prænéste gládio percússus est.
 
 Te Deum laudámus.
+
+{RUBRIC: Ad Laudes fit Commemoratio S. Agapiti Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+LÆtétur Ecclésia tua, Deus, beáti Agapíti Mártyris tui confísa suffrágiis: atque, ejus précibus gloriósis, et devóta permáneat, et secúra consístat. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+### Die 19 Augusti
+
+#### S. Joannis Eudes
+
+{RUBRIC: Confessoris [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEus, qui beátum Joánnem, Confessórem tuum, ad cultum Sacrórum Córdium Jesu et Maríæ rite promovéndum, mirabíliter inflammásti, et per eum novas in Ecclésia tua Famílias congregáre voluísti: præsta quǽsumus; ut cujus pia mérita venerámur, virtútum quoque instruámur exémplis. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis diéi infra Octávam:}
+
+**Ant.** Hódie María Virgo cælos ascéndit: gaudéte, quia cum Christo regnat in ætérnum.
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+###### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum vivit.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JOánnes, anno millésimo sexcentésimo primo, in pago vulgo Ri, Sagiénsis diœcésis, e piis honestísque paréntibus ortus est. Adhuc puer, Angelórum pane reféctus, perpétuam castitátem alácriter vovit. In Cadoménse Collégium a Pátribus Societátis Jesu diréctum excéptus, singulári pietáte emícuit; et Maríæ Vírginis tutélæ sese commíttens, speciále fœdus ínitum cum ea vix adoléscens suo sánguine signávit. Litterárum ac philo-

@@ -29654,3 +29654,49 @@ Amen.
 #### Oratio
 
 DEus, qui fídei sacraménta in Unigéniti tui gloriósa Transfiguratióne patrum testimónio roborásti, et adoptiónem filiórum perféctam, voce delápsa in nube lúcida, mirabíliter præsignásti: concéde propítius; ut ipsíus Regis glóriæ nos cohærédes effícias, et ejúsdem glóriæ tríbuas esse consórtes. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio tantum præcedéntis:}
+
+**Ant.** Beátam me dicent omnes generatiónes, quia ancíllam húmilem respéxit Deus.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+#### Oratio
+
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia, et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+### Ad Matutinum
+
+{RUBRIC: Invitat.} Summum Regem glóriæ, \* Christum adorémus. {RUBRIC: Ps. 94 Veníte, exsultémus. 3}
+
+{RUBRIC: Hymnus Quicúmque, ut supra. 839}
+
+### In I Nocturno
+
+**Ant.** Paulo minus \* ab Angelis minorátus, glória et honóre coronátus est, et constitútus super ópera mánuum Dei.
+
+#### Psalmus 8
+
+DOMINE, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Volúcres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Paulo minus ab Angelis minorátus, glória et honóre coronátus est, et constitútus super ópera mánuum Dei.
+
+**Ant.** Revelávit Dóminus \* condénsa, et in templo ejus omnes dicent glóriam.

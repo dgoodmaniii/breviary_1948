@@ -26186,4 +26186,16 @@ Sermo sancti Joánnis Chrysóstomi
 
 *Apud Metaphr. mense Julio*
 
-CUM ad nos advenísset Redémptor nostri géneris, venit prótinus ad suum amícum Joánnem, dum adhuc esset in ventre matris. Quem cum ex útero in útero aspexísset Joánnes, términos natúræ concútiens, exclámat: Vídeo Dóminum, qui natúræ impósuit términos, et non exspécto tempus nascéndi. Novem ménsium tempus mihi non est hic necessárium; in me est enim, qui est ætérnus. Egrédiar ex hoc tenebróso tabernáculo, rerum admirábilium compendiósam prǽdicábo cognitiónem. Sum signum: significábo Christi advéntum. Sum tuba: próferam Fílii Dei in carne dispensatiónem. Tuba canam; eo ipso patérnæ linguæ benedícam,
+CUM ad nos advenísset Redémptor nostri géneris, venit prótinus ad suum amícum Joánnem, dum adhuc esset in ventre matris. Quem cum ex útero in útero aspexísset Joánnes, términos natúræ concútiens, exclámat: Vídeo Dóminum, qui natúræ impósuit términos, et non exspécto tempus nascéndi. Novem ménsium tempus mihi non est hic necessárium; in me est enim, qui est ætérnus. Egrédiar ex hoc tenebróso tabernáculo, rerum admirábilium compendiósam prǽdicábo cognitiónem. Sum signum: significábo Christi advéntum. Sum tuba: próferam Fílii Dei in carne dispensatiónem. Tuba canam; eo ipso patérnæ linguæ benedícam, et eam traham, ut loquátur. Tuba canam, et úterum matérnum vivificábo.
+
+℟. Ecce iste venit sáliens in móntibus, transíliens colles: \* Símilis est diléctus meus cápreæ hinnulóque cervórum. ℣. Exsultávit ut gigas ad curréndam viam, a summo cælo egréssio ejus. — Símilis.
+
+#### Lectio v
+
+VIdes, o dilécte, quam sit novum et admirábile mystérium. Nondum náscitur, et sáltibus lóquitur; nondum appáret, et minas inténtat; nondum ei permíttitur clamáre, et per facta audítur; nondum ducit vitam, et Deum prǽdicat; nondum áspicit lucem; et solem índicat; nondum páritur, et próperat præcúrrere. Non fert enim, præsénte Dómino, continéri; non sústinet natúræ exspectáre términos; sed conténdit rúmpere cárcerem ventris, et studet præsignificáre veniéntem Salvatórem. Accéssit, inquit, qui solvit víncula; et quid ego sédeo vinctus, et retíneor ut máneam? Venit Verbum, ut ómnia constítuat; et ego adhuc máneo deténtus? Exíbo, præcúrram, et prædicábo ómnibus: Ecce Agnus Dei, qui tollit peccátum mundi.
+
+℟. Congratulámini mihi, omnes qui dilígitis Dóminum: quia cum essem párvula, plácui Altíssimo, \* Et de meis víscéribus génui Deum et hóminem. ℣. Beátam me dicent omnes generatiónes, quia ancíllam húmilem respéxit Deus. — Et.
+
+#### Lectio vi
+
+SEd dic nobis, Joánnes, cum adhuc in tenebróso matris útero contineáris, quómodo intuéris et audis? quómodo res divínas contempláris? quómodo éxsilis et exsúltas? Magnum est, inquit, quod perágitur mystérium, et actus ab humána remótus comprehensióne. Mérito ínnovo natúram propter eum, qui est innovatúrus ea quæ sunt supra natúram. Vídeo, etsi adhuc in útero sim; quóniam in útero gestári vídeo solem justítiæ. Auribus percípio, quóniam nascor vox magni Verbi. Exclámo, quóniam Fílium Patris unigénitum consídero carne indútum. Exsúlto, quóniam univérsi Effectórem vídeo formam hóminis suscípere. Exsílio quóniam mundi Redemptórem cógito incorporátum. Præcúrro advéntum ejus, et quodámmodo vobis prǽeo confessióne.

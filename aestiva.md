@@ -19808,4 +19808,30 @@ MElius est ergo duos esse simul quam unum; habent enim emoluméntum societátis 
 
 NE témere quid loquáris neque cor tuum sit velox ad proferéndum sermónem coram Deo. Deus enim in cælo, et tu super terram; idcírco sint pauci sermónes tui. Multas curas sequúntur sómnia, et in multis sermónibus inveniétur stultítia. Si quid vovísti Deo, ne moréris réddere; displicet enim ei infidélis et stulta promíssio; sed quodcúmque vóveris redde; multóque mélius est non vovére, quam post votum promíssa non réddere.
 
-℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collo-
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+NE déderis os tuum ut peccáre fácias carnem tuam; neque dicas coram Angelo: Non est providéntia; ne forte irátus Deus contra sermónes tuos díssipet cuncta ópera mánuum tuárum. Ubi multa sunt sómnia, plúrimæ sunt vanitátes et sermónes innúmeri; tu vero Deum time. Si víderis calúmnias egenórum et violénta judícia et subvérti justítiam in província, non miréris super hoc negótio; quia excélso excélsior est álius, et super hos quoque eminentióres sunt álii; et ínsuper univérsæ terræ rex ímperat serviénti.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Superbórum.}
+
+##### Lectio iii
+
+AVárus non implébitur pecúnia, et qui amat divítias, fructum non cápiet ex eis: et hoc ergo vánitas. Ubi multæ sunt opes, multi et qui cómedunt eas. Et quid prodest possessóri, nisi quod cernit divítias óculis suis? Dulcis est somnus operánti, sive parum sive multum cómedat; satúritas autem dívitis non sinit eum dormíre. Est et ália infírmitas péssima, quam vidi sub sole: divítiæ conservátæ in malum dómini sui. Péreunt enim in afflictióne péssima: generávit fílium qui in summa egestáte erit.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta
+
+{RUBRIC: De libro Ecclesiástæ}
+
+##### Lectio i
+
+*Cap. 6, 1-9*
+
+EST et áliud malum quod vidi sub sole, et quidem frequens apud hómines: vir, cui dedit Deus

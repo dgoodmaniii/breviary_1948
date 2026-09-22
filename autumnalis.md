@@ -16380,3 +16380,51 @@ ET mensus est longitúdinem ejus vigínti cubitórum et latitúdinem ejus vigín
 ET platéa erat in rotúndum ascéndens sursum per cóchleam et in cœnáculum templi deferébat per gyrum. Idcírco látius erat templum in superióribus; et sic de inferióribus ascendebátur ad superióra in médium. Et vidi in domo altitúdinem per circúitum, fundáta látera ad mensúram cálami, sex cubitórum spátio; et latitúdinem per paríetem láteris forínsecus quinque cubitórum, et erat intérior domus in latéribus domus.
 
 ℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.
+
+---
+
+## Feria Sexta infra Hebdomadam II Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 43, 1-11*
+
+ET duxit me ad portam, quæ respiciébat ad viam Orientálem, et ecce glória Dei Israël ingrediebátur per viam Orientálem, et vox erat ei quasi vox aquárum multárum, et terra splendébat a majestáte ejus. Et vidi visiónem secúndum spéciem quam víderam, quando venit ut dispérderet civitátem, et spécies secúndum aspéctum quem víderam juxta flúvium Chobar, et cécidi super fáciem meam. Et majéstas Dómini ingréssa est templum per viam portæ, quæ respiciébat ad Oriéntem; et elevávit me spíritus et introdúxit me in átrium intérius, et ecce repléta erat glória Dómini domus.
+
+℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio ii
+
+ET audívi loquéntem ad me de domo, et vir qui stabat juxta me dixit ad me : Fili hóminis, locus sólii mei et locus vestigiórum pedum meórum, ubi hábito in médio filiórum Israël in ætérnum, et non pólluent ultra domus Israël nomen sanctum meum ipsi et reges eórum in fornicatiónibus suis et in ruínis regum suórum et in excélsis. Qui fabricáti sunt limen suum juxta limen meum et postes suos juxta postes meos, et murus erat inter me et eos, et polluérunt nomen sanctum meum in abominatiónibus, quas fecérunt; propter quod consúmpsi eos in ira mea.
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine, et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri : Líbera.}
+
+##### Lectio iii
+
+NUnc ergo repéllant procul fornicatiónem suam et ruínas regum suórum a me, et habitábo in médio eórum semper. Tu autem, fili hóminis, osténde dómui Israël templum, et confundántur ab iniquitátibus suis et metiántur fábricam et erubéscant ex ómnibus quæ fecérunt. Figúram domus et fábricæ ejus, éxitus et intróitus et omnem descriptiónem ejus et univérsa præcépta ejus cunctúmque órdinem ejus et omnes leges ejus osténde eis, et scribes in óculis eórum, ut custódiant omnes descriptiónes ejus et præcépta illíus et fáciant ea.
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+---
+
+## Sabbato infra Hebdomadam II Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 47, 1-9*
+
+ET convértit me ad portam domus, et ecce aquæ egrediebántur subter limen domus ad Oriéntem; fácies enim domus respiciébat ad Oriéntem, aquæ autem descendébant in latus templi dextrum ad Merídiem altáris. Et edúxit me per viam portæ Aquilónis et convértit me ad viam foras portam exteriórem, viam quæ respiciébat ad Oriéntem et ecce aquæ redundántes a látere dextro.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+##### Lectio ii
+
+CUM egrederétur vir ad Oriéntem, qui habébat funículum in manu sua, et mensus est mille cúbitos et tradúxit me per aquam usque ad talos; rursúmque mensus est mille et tradúxit me per aquam usque ad génua; et mensus est mille et tradúxit me per aquam usque ad renes; et mensus est mille, torréntem quem non pótui pertransíre, quóniam intumúerant aquæ profúndi torréntis, qui non potest transvadári.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Mélius.}

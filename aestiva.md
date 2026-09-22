@@ -26345,4 +26345,28 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrr
 
 {RUBRIC: Semiduplex}
 
-**Ant.** Sacérdos et Póntifex, et virtútum ópifex,
+**Ant.** Sacérdos et Póntifex, et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Leónem Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+LEO secúndus, Póntifex máximus, Sículus, humánis et divínis lítteris Græce et Latíne doctus, músicis étiam erudítus fuit; ipse enim sacros Hymnos et Psalmos in Ecclésia ad concéntum meliórem redúxit. Probávit acta sextæ sýnodi, quæ Constantinópoli celebráta est, præsidéntibus legátis apostólicæ Sedis, præsénte quoque Constantíno imperatóre, et duóbus patriárchis, Constantinopolitáno et Antiochéno, ac centum septuagínta epíscopis; quam et in Latínum tránstulit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+IN eo concílio Cyrus, Sérgius et Pyrrhus condemnáti sunt, unam tantúmmodo voluntátem et operatiónem in Christo prædicántes. Hic fregit supérbiam antístitum Ravennátum, qui, exarchórum freti poténtia, Sedi apostólicæ non obtemperábant. Quam ob rem decrévit ut eléctio cleri Ravennátis írrita esset, nisi Románi Pontíficis auctoritáte comprobarétur.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+VEre pater páuperum fuit; non enim pecúnia solum, sed ópera, labóre et consíliis egéntium viduárum et pupillórum inópiam ac solitúdinem sublevábat. Qui, dum síngulos non magis prædicatióne quam vita ad pie sanctéque vivéndum adhortarétur, obdormívit in Dómino mense sui pontificátus undécimo, quinto Nonas Júlii, anno sexcentésimo octogésimo tértio,

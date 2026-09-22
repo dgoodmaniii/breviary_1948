@@ -32378,4 +32378,18 @@ Sermo sancti Bernardíni Senénsis
 
 #### Lectio iv
 
-QUis mortálium, nisi divíno tutus oráculo, de vera Dei et hóminis Genitríce quidquam módicum, sive grande præsúmat incircumcísis, immo pollútis lábiis nomináre, quam Pater ante sǽcula Deus perpétuam prædestinávit in Vírginem, digníssimam Fílius elégit in Matrem, Spíritus Sanctus
+QUis mortálium, nisi divíno tutus oráculo, de vera Dei et hóminis Genitríce quidquam módicum, sive grande præsúmat incircumcísis, immo pollútis lábiis nomináre, quam Pater ante sǽcula Deus perpétuam prædestinávit in Vírginem, digníssimam Fílius elégit in Matrem, Spíritus Sanctus omnis grátiæ domicílium præparávit? Quibus verbis ego homúnculus sensus altíssimos virgínei Cordis sanctíssimo ore prolátos éfferam, quibus non súfficit lingua ómnium Angelórum? Dóminus enim ait: Bonus homo de bono thesáuro cordis profert bona; quod verbum potest étiam esse thesáurus. Quis inter puros hómines mélior homo potest excogitári, quam illa, quæ méruit éffici Mater Dei, quæ novem ménsibus in corde et in útero suo ipsum Deum hospitáta est? Quis thesáurus mélior, quam ipse divínus amor, quo fornáceum Cor Vírginis ardens erat?
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion: quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+#### Lectio v
+
+DE hoc ígitur Corde quasi de fornáce víni ardóris Virgo beáta prótulit verba bona, id est, verba ardentíssimæ caritátis. Sicut enim a vase summo et óptimo vino pleno non potest exíre nisi óptimum vinum; aut sicut a fornáce summi ardóris non egréditur nisi incéndium fervens; sic quippe a Christi Matre exíre non pótuit verbum, nisi summi summéque divíni amóris atque ardóris. Sapiéntis quoque dóminæ et matrónæ est pauca verba, sólida tamen atque sententiósa habére; proínde septem vícibus quasi septem verba tantum miræ senténtiæ et virtútis a Christi benedícta Matre legúntur dicta, ut mýstice ostendátur ipsam fuísse plenam grátia septifórmi. Cum Angelo bis tantúmmodo est locúta. Cum Elísabeth bis étiam. Cum Fílio étiam bis, semel in templo, secúndo in núptiis. Cum minístris semel. Et in his ómnibus semper valde parum locúta est; excépto quod in laude Dei et gratiárum actióne se ámplius dilatávit, scílicet, quum ait: Magníficat ánima mea Dóminum. Ubi non cum hómine, sed cum Deo locúta fuit. Hæc septem verba secúndum septem amóris procéssus et actus sub miro gradu et órdine sunt proláta; quasi sint septem flammæ fornácei Cordis ejus.
+
+℟. Quæ est ista quæ procéssit sicut sol, et tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. Vidérunt.
+
+#### Lectio vi
+
+Ex ecclesiásticis documéntis
+
+CUltum litúrgicum, quo Cordi Immaculáto Vírginis Maríæ débitus tribúitur honor, cuíque plures viri sancti ac mulíeres viam parárunt, ipsa Apostólica Sedes primum approbávit ineúnte sǽculo undevicésimo, cum Pius Papa séptimus festum Puríssimi Cordis Maríæ Vírginis instítuit, ab ómnibus diœcésibus et religiósis famíliis, quæ id petiíssent,

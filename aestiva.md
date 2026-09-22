@@ -22338,4 +22338,30 @@ A Sancto Willibrórdo ad episcopále munus expetítus, illud detrectávit ut pr�
 
 #### Lectio ix
 
-BOnifátius, ántea Winfrídus appellátus, apud Anglos natus est exeúnte sæculo séptimo. Monastérium ingréssus et sacerdótio auctus, magno animárum lucro in prædicatóris múnere est versátus. Zelo augéndæ fídei accénsus, apud Frísones Evangélium prædicávit. In Angliam revérsus, cum per biénnium monastério sanctíssime præfuísset, superióris múnere abdicáto, Romam se cóntulit, ubi a Gregório secúndo Bonifátii nomen accépit, et in Germániam missus, Thuríngiæ Saxoniǽque pópulis Christum annuntiávit. Ad Frísones revérsus, cum sancto Willibrórdo, magno fructu Evangélium prædicávit. Mox Romam accersítus, episcopáli di-
+BOnifátius, ántea Winfrídus appellátus, apud Anglos natus est exeúnte sæculo séptimo. Monastérium ingréssus et sacerdótio auctus, magno animárum lucro in prædicatóris múnere est versátus. Zelo augéndæ fídei accénsus, apud Frísones Evangélium prædicávit. In Angliam revérsus, cum per biénnium monastério sanctíssime præfuísset, superióris múnere abdicáto, Romam se cóntulit, ubi a Gregório secúndo Bonifátii nomen accépit, et in Germániam missus, Thuríngiæ Saxoniǽque pópulis Christum annuntiávit. Ad Frísones revérsus, cum sancto Willibrórdo, magno fructu Evangélium prædicávit. Mox Romam accersítus, episcopáli dignitáte insignítur, et in Germániam íterum proféctus, Hássiam et Thuríngiam ab idololatríæ relíquiis pénitus expurgávit. Sedis apostólicæ legátus creátus et Moguntínus archiepíscopus, plures eréxit et, per se vel per discípulos, administrávit ecclésias. Frisónibus demum ad idololatríam relápsis, Evangélium prædicáre rursus aggréssus, cum Eóbano coepíscopo multísque áliis, juxta Bornam flúvium cruénta cæde perémptus, martýrii palmam accépit. Ejus corpus in Fuldénsi monastério cónditum est.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 5, 1-12*
+
+IN illo témpore: Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Liber 1 de Sermone Dómini in monte cap. 2*
+
+BEáti mundo corde; quóniam ipsi Deum vidébunt. Quam ergo stulti sunt, qui Deum istis exterióribus óculis quærunt, cum corde videátur, sicut álibi scriptum est: Et in simplicitáte cordis quærite illum. Hoc est enim mundum cor, quod est simplex cor. Et quemádmodum lumen hoc vidéri non potest, nisi óculis mundis; ita nec Deus vidétur, nisi mundum sit illud quo vidéri potest. Beáti pacífici; quóniam ipsi fílii Dei vocabúntur. In pace perféctio est, ubi nihil repúgnat; et ídeo fílii Dei pacífici, quóniam nihil in his resístit Deo, et útique fílii similitúdinem patris habére debent.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+PAcífici autem in semetípsis sunt, qui omnes ánimi sui motus componéntes, et subjiciéntes ratióni, id est menti et spirítui, carnalésque concupiscéntias habéntes edómitas, fiunt regnum Dei. In quo ita sunt ordináta ómnia, ut id quod est in hómine præcípuum et excél-

@@ -24566,4 +24566,36 @@ Te Deum laudámus.
 
 *Cap. 25, álias 46 num. 7*
 
-NOS autem precámur non perseveráre eos in fóvea quam ipsi fodérunt,
+NOS autem precámur non perseveráre eos in fóvea quam ipsi fodérunt, sed legítime eos generári convérsos ad Ecclésiam Dei, et formári Christum in eis, et cognóscere eos fabricatórem et factórem hujus universitátis solum verum Deum et Dóminum ómnium. Hæc precámur de illis, utílius eos diligéntes quam ipsi semetípsos putant díligere. Quæ enim est a nobis diléctio, cum sit vera, salutáris est eis, si quidem eam recípiant. Est enim austéro medicámini símilis, absúmens improbiórem ac supérfluam vúlneris carnem; elatiónem enim illórum et inflatiónem evácuat. Quaprópter tentántes omni virtúte manum porrígere eis, non tædébit nos.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+###### Oratio
+
+DEus, qui beáto Irenǽo Mártyri tuo atque Pontífici tribuísti, ut et veritáte doctrínæ expugnáret hǽreses, et pacem Ecclésiæ felíciter confirmáret: da, quǽsumus, plebi tuæ in sancta religióne constántiam; et pacem tuam nostris concéde tempóribus. Per Dóminum.
+
+{RUBRIC: Deinde fit Commemoratio Octavæ S. Joannis:}
+
+**Ant.** Apértum est os Zacharíæ, et prophetávit dicens: Benedíctus Deus Israël.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+###### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. (Per Dóminum.)
+
+{RUBRIC: Deinde Commemoratio Vigíliæ Ss. Petri et Pauli App.:}
+
+{RUBRIC: Antiphona et Versus de Fería occurrénti, ut in Psaltério.}
+
+###### Oratio
+
+PRǽsta, quǽsumus, omnípotens Deus: ut nullis nos permíttas perturbatiónibus cóncuti; quos in apostólicæ confessiónis petra solidásti. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti sine ulla Commemoratióne.}

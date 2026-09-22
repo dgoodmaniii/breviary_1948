@@ -33355,4 +33355,16 @@ MAjestátem tuam, Dómine, súpplices exorámus: ut, sicut nos júgiter Sanctór
 
 #### Lectio iv
 
-PRimus Américæ meridionális flos sanctitátis, virgo Rosa, christiánis paréntibus Limæ progénita, mox ab incunábulis cláruit futúræ sanctimóniæ indíciis. Nam vultus infántis mirabíliter in rosæ effígiem transfigurátus, huic nómini occasiónem dedit; cui póstea Virgo Deípara cognómen adjécit, jubens vocári deínceps Rosam a sancta María. Quinquénnis, votum
+PRimus Américæ meridionális flos sanctitátis, virgo Rosa, christiánis paréntibus Limæ progénita, mox ab incunábulis cláruit futúræ sanctimóniæ indíciis. Nam vultus infántis mirabíliter in rosæ effígiem transfigurátus, huic nómini occasiónem dedit; cui póstea Virgo Deípara cognómen adjécit, jubens vocári deínceps Rosam a sancta María. Quinquénnis, votum perpétuæ virginitátis emísit: adúltior, ne a paréntibus ad núptias cogerétur, clam síbimet venustíssimam cápitis cæsáriem præcídit. Jejúniis supra humánum modum addícta, íntegras Quadragésimas transégit pane ábstinens ac diétim solis quinque gránulis mali cítrini víctitans.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet te.
+
+#### Lectio v
+
+HAbitu tértii órdinis sancti Domínici assúmpto, prístinas vitæ austeritátes duplicávit: oblóngo asperrimóque cilício sparsim minúsculas acus innéxuit: sub velo corónam densis acúleis intrórsus obarmátam intérdiu noctúque gestávit. Sanctæ Catharínæ Senénsis árdua premens vestígia, caténa férrea, tríplici nexu circumdúcta, lumbos cinxit. Léctulum sibi e truncis nodósis compósuit, horúmque vácuas commissúras fragmínibus testárum implévit. Céllulam sibi angustíssimam struxit in extrémo horti ángulo; ubi, cæléstium contemplatióni dédita, crebris disciplínis, inédia, vigíliis corpúsculum exténuans, at spíritu vegetáta, larvas dǽmonum, frequénti certámine víctrix, impávide protrívit ac superávit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+ÆGritúdinum torméntis, domesticórum insúltibus, linguárum mórsibus dire agitáta, nondum satis pro mérito se afflígi querebátur. Per quíndecim annos, ad plúsculas horas desolatióne spíritus et ariditáte misérrime contabéscens, forti ánimo tulit agónes omni morte amarióres. Exínde cœpit supérnis abundáre delíciis, illustrári visiónibus, colliquéscere seráphicis ardóribus. Angelo tutelári, sanctæ Catharínæ Senénsi, Vírgini Deíparæ inter assíduas apparitiónes mire familiáris, a Christo has voces audíre méruit: Rosa cordis mei, tu mihi sponsa esto. Dénique, Sponsi hujus paradíso felíciter invécta, plurimísque ante et post óbitum miráculis co-

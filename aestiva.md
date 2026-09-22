@@ -25829,3 +25829,49 @@ Usquequo, Deus, improperábit inimícus: \* irrítat adversárius nomen tuum in 
 Ut quid avértis manum tuam, et déxteram tuam, \* de médio sinu tuo in finem?
 
 Deus autem Rex noster ante sǽcula: \* operátus est salútem in médio terræ.
+
+Tu confirmásti in virtúte tua mare: \* contribulásti cápita dracónum in aquis.
+
+Tu confregísti cápita dracónis: \* dedísti eum escam pópulis Æthíopum.
+
+Tu dirupísti fontes, et torréntes: \* tu siccásti flúvios Ethan.
+
+Tuus est dies, et tua est nox: \* tu fabricátus es auróram et solem.
+
+Tu fecísti omnes términos terræ: \* æstátem et ver tu plasmásti ea.
+
+Memor esto hujus, inimícus improperávit Dómino: \* et pópulus insípiens incitávit nomen tuum.
+
+Ne tradas béstiis ánimas confiténtes tibi, \* et ánimas páuperum tuórum ne obliviscáris in finem.
+
+Réspice in testaméntum tuum: \* quia repléti sunt, qui obscuráti sunt terræ dómibus iniquitátum.
+
+Ne avertátur húmilis factus confúsus: \* pauper et inops laudábunt nomen tuum.
+
+Exsúrge, Deus, júdica causam tuam: \* memor esto improperiórum tuórum, eórum quæ ab insipiénte sunt tota die.
+
+Ne obliviscáris voces inimicórum tuórum: \* supérbia eórum, qui te odérunt, ascéndit semper.
+
+**Ant.** Exívit ergo Jesus portans corónam spíneam et purpúreum vestiméntum. Et dixit eis: Ecce homo.
+
+**Ant.** Et bájulans sibi crucem, \* exívit in eum, qui dícitur Calváriæ, locum, ubi crucifixérunt eum.
+
+###### Psalmus 87
+
+DOmine, Deus salútis meæ: \* in die clamávi, et nocte coram te.
+
+Intret in conspéctu tuo orátio mea: \* inclína autem tuam ad precem meam:
+
+Quia repléta est malis ánima mea: \* et vita mea inférno appropinquávit.
+
+Æstimátus sum cum descendéntibus in lacum: \* factus sum sicut homo sine adjutório, inter mórtuos liber.
+
+Sicut vulneráti dormiéntes in sepúlcris, quorum non es memor ámplius: \* et ipsi de manu tua repúlsi sunt.
+
+Posuérunt me in lacu inferióri: \* in tenebrósis, et in umbra mortis.
+
+Super me confirmátus est furor tuus: \* et omnes fluctus tuos induxísti super me.
+
+Longe fecísti notos meos a me: \* posuérunt me abominatiónem sibi.
+
+Tráditus sum, et non egrediébar: \* óculi mei languérunt præ inópia.

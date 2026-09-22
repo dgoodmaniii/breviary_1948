@@ -31203,4 +31203,50 @@ MUltis et váriis miráculis virtus suæ sanctitátis effúlsit. Cuidam de soró
 
 #### Lectio ix
 
-CLara, nóbilis virgo, Assísii nata in Umbria, sanctum Francíscum concívem suum imitáta, cuncta sua bona in eleemósynas et páuperum subsídia distríbuit. De sǽculi strépitu fúgiens, in campéstrem declinávit ecclésiam, ibíque ab eódem beáto Francísco recépta tonsúra, consanguíneis ipsam redúcere conántibus fórtiter réstitit. Deínde ad ecclésiam sancti Damiáni per eúmdem addúcta, sacrárum sorórum collégium instítuit, quarum régimen, nímia sancti Francísci devícta importunitáte, recépit. Suum monastérium sollícite ac prudénter annis quadragínta duóbus mirabíliter gubernávit. Saracénos monastérium invádere conántes, cum sanctíssimum Sacraméntum defférri jussísset, hu-
+CLara, nóbilis virgo, Assísii nata in Umbria, sanctum Francíscum concívem suum imitáta, cuncta sua bona in eleemósynas et páuperum subsídia distríbuit. De sǽculi strépitu fúgiens, in campéstrem declinávit ecclésiam, ibíque ab eódem beáto Francísco recépta tonsúra, consanguíneis ipsam redúcere conántibus fórtiter réstitit. Deínde ad ecclésiam sancti Damiáni per eúmdem addúcta, sacrárum sorórum collégium instítuit, quarum régimen, nímia sancti Francísci devícta importunitáte, recépit. Suum monastérium sollícite ac prudénter annis quadragínta duóbus mirabíliter gubernávit. Saracénos monastérium invádere conántes, cum sanctíssimum Sacraméntum defférri jussísset, humíllime orans, pénitus fugávit. Evolávit in cælum tértio Idus Augústi, et ab Alexándro Papa quarto inter sanctas Vírgines est reláta.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum, de Communi Virgínum 1 loco. [122]}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio C 3
+
+EXáudi nos, Deus salutáris noster: ut sicut de beátæ Claræ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Et fit Commem. seq.}
+
+---
+
+### Die 13 Augusti
+
+#### Ss. Hippolyti et Cassiani
+
+{RUBRIC: Martyrum [49] Simplex}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut beatórum Mártyrum tuórum Hippólyti et Cassiáni veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+{RUBRIC: ¶ Si hódie fúerit Sabbátum, fit de Vigília anticipáta Assumptiónis, ut die sequénti notátur, cum Com. Ss. Martyrum.}
+
+#### Lectio iii
+
+HIppólytus, a sancto Lauréntio baptizátus, domi suæ, dum Eucharístiam súmeret, compréhensus, et ad Valeriánum imperatórem addúctus, ab eo de suæ religiónis professióne interrogátus, líbere se Christiánum proféssus est. Quam ob rem fústibus cǽditur; quibus in verbéribus cum ejus fides constántior inveniétur, munéribus et honórum promíssis tentátur. Quæ cum ómnia frustra

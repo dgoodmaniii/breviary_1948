@@ -30443,3 +30443,23 @@ QUis est enim, qui, eórum volens mérito copulári, nisi prius constántiam eó
 *Cap. 16, 15-18*
 
 IN illo témpore: Dixit Jesus discípulis suis: Eúntes in mundum univérsum prædicáte Evangélium omni creatúræ. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+
+{RUBRIC: Homilía 29 in Evang., post init.}
+
+POtest omnis creatúræ nómine omnis nátio géntium designári. Ante enim dictum fúerat: In viam géntium ne abiéritis; nunc autem dícitur: Prædicáte omni creatúræ: ut scílicet prius a Judǽa Apostolórum repúlsa prædicátio tunc nobis in adjutórium fíeret, cum hanc illa ad damnatiónis suæ testimónium supérba repulísset. Sed cum discípulos ad prædicándum Véritas mittit, quid áliud in mundo facit, nisi grana séminis spargit? Et pauca grana mittit in sémine, ut multárum méssium fruges recípiat ex nostra fide.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+#### Lectio viii
+
+NEque étenim in univérso mundo tanta fidélium messis exsúrgeret, si de manu Dómini super ratiónalem terram illa elécta grana prædicántium non veníssent. Séquitur: Qui credíderit et baptizátus fúerit, salvus erit; qui vero non credíderit, condemnábitur. Fortásse unusquísque apud semetípsum dicat: Ego jam crédidi, salvus ero. Verum dicit, si fidem opéribus tenet. Vera étenim fides est, quæ in hoc, quod verbis dicit, móribus non contradícit. Hinc est enim quod de quibúsdam falsis fidélibus Paulus dicit: Qui confiténtur se nosse Deum, factis autem negant.
+
+℟. Sancti mei, qui, in carne pósiti, certámen habuístis \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória Patri. Mercédem.
+
+{RUBRIC: Si hódie fúerit Sabbátum, Lectio ix de Homilía Vigíliæ anticipátæ S. Lauréntii, et fit ejus Commemoratio ad Laudes, ut sequénti die notátur; secus}
+
+#### Lectio ix
+
+SIgna autem eos qui creditúri sunt, hæc sequéntur: In nómine meo dæmónia ejícient, linguis loquéntur novis, serpéntes tollent: et si mortíferum quid bíberint, non eis nocébit: super ægros manus impónent, et bene habébunt. Numquídnam, fra-

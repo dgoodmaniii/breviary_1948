@@ -31931,3 +31931,31 @@ EXcita, Dómine, in Ecclésia tua Spíritum, cui beátus Lauréntius Levíta ser
 **Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
 
 ℣. Glória et honóre.
+
+###### Oratio
+
+LÆtétur Ecclésia tua, Deus, beáti Agapíti Mártyris tui confísa suffrágiis: atque, ejus précibus gloriósis, et devóta permáneat, et secúra consístat. Per Dóminum.
+
+##### In I Nocturno
+
+De Cánticis canticórum
+
+#### Lectio i
+
+*Cap. 4, 1-4*
+
+QUam pulchra es, amíca mea, quam pulchra es! Óculi tui columbárum, absque eo quod intrínsecus latet. Capílli tui sicut greges caprárum quæ ascendérunt de monte Gálaad. Dentes tui sicut greges tonsárum quæ ascendérunt de lavácro; omnes geméllis fœtibus, et stérilis non est inter eas. Sicut vitta coccínea lábia tua, et elóquium tuum dulce. Sicut fragmen mali púnici, ita genæ tuæ, absque eo quod intrínsecus latet. Sicut turris David collum tuum, quæ ædificáta est cum propugnáculis: mille clýpei pendent ex ea, omnis armatúra fórtium.
+
+℟. Vidi speciósam sicut colúmbam, ascendéntem désuper rivos aquárum, cujus inæstimábilis odor erat nimis in vestiméntis ejus; \* Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. ℣. Quæ est ista quæ ascéndit per desértum sicut vírgula fumi ex aromátibus myrrhæ et thuris? — Et.
+
+#### Lectio ii
+
+*Ibid. 7-15*
+
+TOta pulchra es, amíca mea, et mácula non est in te. Veni de Líbano, sponsa mea, veni de Líbano, veni, coronáberis; de cápite Amana, de vértice Sanir et Hermon, de cubílibus leónum, de móntibus pardórum. Vulnerásti cor meum, soror mea, sponsa; vulnerásti cor meum in uno oculórum tuórum et in uno crine colli tui. Quam pulchræ sunt mammæ tuæ, soror mea, sponsa! pulchrióra sunt úbera tua vino, et odor unguentórum tuórum super ómnia arómata.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion: quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+#### Lectio iii
+
+FAvus distíllans lábia tua, sponsa, mel et lac sub lingua tua; et odor vestimentórum tuórum sicut odor thuris. Hortus conclúsus soror mea sponsa, hortus conclúsus, fons si-

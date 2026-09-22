@@ -31311,4 +31311,63 @@ TUnc autem admiratióni esse cœpérunt, quando própria claruérunt virtúte. P
 
 ###### Oratio
 
-DEus, qui virginálem aulam beátæ Maríæ, in qua habitáres, elígere dignátus es: da, quǽsumus; ut, sua nos defensióne munítos, jucúndos
+DEus, qui virginálem aulam beátæ Maríæ, in qua habitáres, elígere dignátus es: da, quǽsumus; ut, sua nos defensióne munítos, jucúndos fácias suæ interésse festivitáti: Qui vivis.
+
+{RUBRIC: Et fit Commem. S. Eusébii Conf.:}
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui nos beáti Eusébii Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti.}
+
+---
+
+## Die 15 Augusti
+
+# In Assumptione B. Mariæ V.
+
+{RUBRIC: DUPLEX I CLASSIS CUM OCTAVA COMMUNI}
+
+{RUBRIC: Omnia de Comm. Festórum B. Maríæ Virg. [174], præter ea quæ hic habéntur própria.}
+
+### In I Vesperis
+
+**Ant. 1** Assúmpta est María in cælum: \* gaudent Angeli, laudántes benedícunt Dóminum.
+
+**2** María Virgo assúmpta est \* ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
+
+**3** In odórem \* unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis.
+
+**4** Benedícta \* fília tu a Dómino: quia per te fructum vitæ communicávimus.
+
+**5** Pulchra es \* et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+#### Capitulum
+
+*Eccli. 24, 11-12*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo.
+
+{RUBRIC: Prima strópha sequéntis Hymni dícitur flexis génibus.}
+
+#### Hymnus
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.

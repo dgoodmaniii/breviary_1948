@@ -14723,3 +14723,64 @@ CUmque percrebuísset regis impérium, et juxta mandátum illíus multæ pulchr�
 ℟. Confórta me, Rex, Sanctórum principátum tenens : \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+*Cap. 2, 15-17*
+
+EVolúto autem témpore per órdinem, instábat dies quo Esther fília Abíhail fratris Mardochǽi, quam sibi adoptáverat in fíliam, debéret intráre ad regem. Quæ non quæsívit muliébrem cultum, sed quæcúmque vóluit Egéus eunúchus custos vírginum, hæc ei ad ornátum dedit; erat enim formósa valde et incredíbili pulchritúdine : ómnium óculis gratiósa et amábilis videbátur. Ducta est ítaque ad cubículum regis Assuéri mense décimo, qui vocátur Tebeth, séptimo anno regni ejus. Et adamávit eam rex plus quam omnes mulíeres, habuítque grátiam et misericórdiam coram eo super omnes mulíeres, et pósuit diadéma regni in cápite ejus fecítque eam regnáre in loco Vasthi.
+
+℟. Spem in álium numquam hábui, prætérquam in te, Deus Israël : \* Qui irásceris, et propítius eris : et ómnia peccáta hóminum in tribulatióne dimíttis. ℣. Dómine Deus, Creátor cæli et terræ, réspice ad humilitátem nostram. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Tertia infra Hebdomadam V Septembris
+
+{RUBRIC: De libro Esther}
+
+##### Lectio i
+*Cap. 3, 1-7*
+
+POst hæc rex Assuérus exaltávit Aman fílium Amadáthi, qui erat de stirpe Agag, et pósuit sólium ejus super omnes príncipes quos habébat. Cunctíque servi regis, qui in fóribus palátii versabántur, flectébant génua et adorábant Aman; sic enim præcéperat eis imperátor. Solus Mardochǽus non flectébat genu neque adorábat eum. Cui dixérunt púeri regis, qui ad fores palátii præsidébant : Cur præter céteros non servas mandátum regis?
+
+℟. Meménto mei, Dómine Deus, in bonum : \* Et ne déleas miseratiónes meas quas feci in domo Dei mei et in cæremóniis ejus. ℣. Recordáre mei, Dómine, Deus meus. — Et.
+
+##### Lectio ii
+
+CUmque hoc crébrius dícerent, et ille nollet audíre, nuntiavérunt Aman, scire cupiéntes utrum perseváret in senténtia; díxerat enim eis se esse Judǽum. Quod cum audísset Aman et experiménto probásset quod Mardochǽus non fléctere sibi genu nec se adoráret, irátus est valde et pro níhilo duxit in unum Mardochǽum míttere manus suas.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus : timor et hebetúdo mentis cécidit super nos et super líberos nostros : ipsi montes nolunt recípere fugam nostram : \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+AUdíerat enim quod esset gentis Judǽæ, magísque vóluit omnem Judæórum rum, qui erant in regno Assuéri, pérdere natiónem. Mense primo, cujus vocábulum est Nisan, anno duodécimo regni Assuéri, missa est sors in urnam, quæ Hebráice dícitur phur, coram Aman, quo die et quo mense gens Judæórum debéret intérfici; et exívit mensis duodécimus qui vocátur Adar.
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros : \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Quarta infra Hebdomadam V Septembris
+
+{RUBRIC: De libro Esther}
+
+##### Lectio i
+*Cap. 4, 1-17*
+
+QUÆ cum audísset Mardochǽus, scidit vestiménta sua et indútus est sacco spargens cínerem cápiti; et in platéa médiæ civitátis voce magna clamábat osténdens amaritúdinem ánimi sui, et hoc ejulátu usque ad fores palátii grádiens; non enim erat lícitum indútum sacco aulam regis intráre. In ómnibus quoque províncíis, óppidis ac locis, ad quæ crudéle regis dogma pervénerat, planctus ingens erat apud Judǽos, jejúnium, ululátus et fletus, sacco et cínere multis pro strato uténtibus. Ingréssæ autem sunt puéllæ Esther et eunúchi nuntiaverúntque ei. Quod áudiens consternáta est et vestem misit, ut, abláto sacco, indúerent eum : quam accípere nóluit. Accitóque Athach eunúcho, quem rex minístrum ei déderat, præcépit ei ut iret ad Mardochǽum et discéret ab eo cur hoc fáceret.
+
+℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus : \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.
+
+##### Lectio ii
+
+EGressúsque Athach ivit ad Mardochǽum stantem in platéa civitátis ante óstium palátii. Qui indicávit ei ómnia quæ accíderant, quómodo Aman promisísset, ut in thesáuros regis pro Judæórum nece inférret argéntum; exémplar quoque edícti, quod pendébat in Susan, dedit ei ut regínæ osténderet et monéret eam ut intráret ad regem et deprecarétur eum pro pópulo suo. Regréssus Athach nuntiávit Esther ómnia quæ Mardochǽus díxerat. Quæ respóndit ei et jussit ut díceret Mardochǽo : Omnes servi regis et cunctæ quæ sub dicióne ejus sunt norunt províncíæ, quod sive vir sive múlier non vocátus intérius átrium regis intráverit, absque ulla cunctatióne statim interficiátur, nisi forte rex áuream virgam ad eum teténderit pro signo cleméntiæ, atque ita possit vívere. Ego ígitur quómodo ad regem intráre pótero, quæ trigínta jam diébus non sum vocáta ad eum?
+
+℟. Confórta me, Rex, Sanctórum principátum tenens : \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+QUod cum audísset Mardochǽus, rursum mandávit Esther dicens : Ne putes quod ánimam tuam tantum líberes, quia in domo regis es, præ cunctis Judǽis; si enim nunc silúeris, per áliam occasiónem liberabúntur Judǽi, et tu et domus patris tui períbitis. Et quis novit utrum idcírco ad regnum véneris, ut in tali témpore pararéris? Rursúmque Esther hæc Mardochǽo verba mandávit : Vade et cóngrega omnes Judǽos, quos in Susan repéreris, et oráte pro me. Non comedátis et non bibátis tribus diébus et tribus nóctibus, et ego cum ancíllis meis simíliter jejunábo; et tunc ingrédiar ad regem contra legem fáciens non vocáta tradénsque me morti et perículo. Ivit ítaque Mardochǽus, et fecit ómnia quæ ei Esther præcéperat.
+
+℟. Spem in álium numquam hábui, prætérquam in te, Deus Israël : \* Qui irásceris, et propítius eris : et ómnia peccáta hóminum in tribulatióne dimíttis. ℣. Dómine Deus, Creátor cæli et terræ, réspice ad humilitátem nostram. — Qui. Glória Patri. Qui.

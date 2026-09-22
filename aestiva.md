@@ -33112,4 +33112,30 @@ ADésto supplicatiónibus nostris, omnípotens Deus: et, quibus fidúciam sperá
 
 {RUBRIC: Deinde Commem. S. Sabínæ Mart.:}
 
-**Ant.** Símile est regnum cælórum hómini negotia-
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Spécie tua et.
+
+#### Oratio
+
+DEus, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Sabínæ Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+### Ad Matutinum
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Jeremíæ Prophétæ}
+
+#### Lectio i
+
+*Cap. 1, 1-10*
+
+VErba Jeremíæ fílii Helcíæ, de sacerdótibus, qui fuérunt in Anathoth, in terra Bénjamin. Quod factum est verbum Dómini ad eum in diébus Josíæ fílii Amon regis Juda, in tértio décimo anno regni ejus. Et factum est in diébus Jóakim fílii Josíæ regis Juda, usque ad consummatiónem undécimi anni Sedecíæ fílii Josíæ regis Juda, usque ad transmigratiónem Jerúsalem, in mense quinto. Et factum est verbum Dómini ad me, dicens: Priúsquam te formárem in útero, novi te: et ántequam exíres de vulva, sanctificávi te, et Prophétam in Géntibus dedi te.
+
+℟. Misit Heródes rex manus, ac ténuit Joánnem et vinxit eum in cárcere, quia metuébat eum propter Herodíadem, \* Quam túlerat fratri suo Philíppo uxórem. ℣. Arguébat Heródem Joánnes propter Herodíadem. — Quam.
+
+#### Lectio ii
+
+ET dixi: A a a, Dómine Deus: ecce néscio loqui, quia puer ego sum. Et dixit Dóminus ad me: Noli dícere: Puer sum: quóniam ad ómnia, quæ mittam te, ibis: et univérsa, quæcúmque mandávero tibi, loquéris. Ne tímeas a fácie eórum: quia tecum ego sum, ut éruam te, dicit Dóminus. Et misit Dóminus manum suam, et tétigit os meum: et dixit Dóminus ad me: Ecce dedi verba mea in ore tuo: ecce constítui te hódie super Gentes, et super regna, ut evéllas, et déstruas, et dispérdas, et díssipes, et ædífices, et plantes.
+
+℟. Joánnes Baptísta arguébat Heródem \* Propter Herodíadem, quam túlerat fratri suo vivénti uxórem. ℣. Misso Heródes spiculatóre, præcépit amputári caput Joánnis in cárcere. — Propter.

@@ -28431,4 +28431,16 @@ ESto, Dómine, plebi tuæ sanctificátor et custos: ut, Apóstoli tui Jacóbi mu
 
 JAcóbus, Zebedǽi fílius, Joánnis Apóstoli germánus frater, Galilǽus, inter primos Apóstolos vocátus cum fratre, relíctis patre ac rétibus, secútus est Dóminum, et ambo ab ipso Jesu Boanérges, id est, tonítrui fílii sunt appelláti. Is unus fuit ex tribus Apóstolis, quos Salvátor máxime diléxit, et testes esse vóluit suæ transfiguratiónis, et interésse miráculo cum archisynagógi fíliam a mórtuis excitávit, et adésse cum secéssit in montem Olivéti, Patrem oratúrus, ántequam a Judǽis comprehenderétur.
 
-℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio v
+
+POst Jesu Christi ascénsum in cælum, in Judǽa et Samaría ejus divinitátem prǽdicans, plúrimos ad christiánam fidem perdúxit. Mox in Hispániam proféctus, ibi áliquos ad Christum convértit; ex quorum número septem póstea epíscopi a beáto Petro ordináti in Hispániam primi dirécti sunt. Deínde Jerosólymam revérsus, cum inter álios Hermógenem magum fídei veritáte imbuísset, Heródes Agríppa Cláudio imperatóre ad regnum elátus, ut a Judǽis grátiam iníret, Jacóbum líbere Jesum Christum Deum confiténtem cápitis condemnávit. Quem cum is, qui eum dúxerat ad tribúnal, fórtiter martýrium subeúntem vidísset, statim se et ipse Christiánum esse proféssus est.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+AD supplícium cum raperéntur, pétiit ille a Jacóbo véniam; quem Jacóbus osculátus, Pax, inquit, tibi sit. Itaque utérque est secúri percússus, cum paulo ante Jacóbus paralýticum sanásset. Corpus ejus póstea Compostéllam translátum est, ubi summa celebritáte cólitur, conveniéntibus eo religiónis et voti causa ex toto terrárum orbe peregrínis. Memória ipsíus natális hodiérno die, qui translatiónis dies est, ab Ecclésia celebrátur, cum ipse circa festum Paschæ, primus Apostolórum, Jerosólymis profúso sánguine testimónium Jesu Christo déderit.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.

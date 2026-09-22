@@ -26406,3 +26406,43 @@ Te Deum laudámus.
 ###### Oratio
 
 DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Dum esset summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Leónem Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum nostrum.
+
+{RUBRIC: Et fit Commemoratio sequéntis diei infra Octavam.}
+
+---
+
+### Die 4 Julii
+
+#### De VI die infra Octav. Ss. Petri et Pauli App.
+
+{RUBRIC: Semiduplex [6]}
+
+**Ant.** Petrus Apóstolus et Paulus Doctor géntium, ipsi nos docuérunt legem tuam, Dómine.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+##### In II Nocturno
+
+De Expositióne sancti Joánnis Chrysóstomi in Epístolam ad Romános
+
+*Sermo 32 in morali exhortatione*
+
+#### Lectio iv
+
+CUM Paulus Apóstolus grátiam Dómini nostri Jesu Christi, matrem ómnium bonórum, nobis precétur; réliquum est, ut nos tali patrocínio dignos exhibeámus, ut non hic solum vocem Pauli audiámus, sed et postquam illuc migravérimus, athlétam Christi vidére mereámur. Immo, si hic audivérimus, et illic ipsum omníno vidébimus, licet non e propínquo stantes; vidébimus tamen prope regálem thronum splendéntem, ubi Chérubim Deum glorífícant, ubi Séraphim volant. Illic Paulum vidébimus cum Petro Sanctórum chori príncipem ac ducem, et ejus germána caritáte fruémur.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini

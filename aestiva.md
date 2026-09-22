@@ -22968,4 +22968,32 @@ DA Ecclésiæ tuæ, quǽsumus, Dómine, sanctis Mártyribus tuis Vito, Modésto 
 
 #### Lectio iii
 
-VItus ádmodum puer, ínscio patre, baptizátus est; quod cum ille rescivísset, nihil prætermísit, quo fílium a christiána religióne removéret. Qua in voluntáte permanéntem, Valeriáno júdici verbéribus castigándum trádidit. Sed nihil-
+VItus ádmodum puer, ínscio patre, baptizátus est; quod cum ille rescivísset, nihil prætermísit, quo fílium a christiána religióne removéret. Qua in voluntáte permanéntem, Valeriáno júdici verbéribus castigándum trádidit. Sed nihilóminus in senténtia persístens, patri rédditus est. Sed dum eum pater grávius punire cógitat, Vitus Angeli mónitu, comítibus Modésto et Crescéntia, ejus educatóribus, migrat in aliénas terras; ibíque eam sanctitátis laudem adéptus est, ut ejus fama ad Diocletiánum perláta, ipsum imperátor accérseret, ut fílium suum a dǽmone vexátum liberáret. Quo liberáto, cum ei amplíssimis prǽmiis ingrátus imperátor, ut deos cóleret, persuadére non potuísset, una cum Modésto et Crescéntia vínculis constríctum mittit in cárcerem. Quos ubi constantióres esse cómperit, demítti jubet in ingens vas liquáto plumbo, fervénti resína ac pice plenum; in quo, cum trium Hebrǽórum puerórum more divínos hymnos cánerent, inde erépti leóni objiciúntur, qui, prostérnens se eórum pedes lambébat. Quare inflammátus ira imperátor, quod multitúdinem vidébat miráculo commovéri, eos in catásta sterni jubet, et ita cædi eórum membra atque ossa divélli. Quo témpore tonítrua, fúlgura magníque terrǽmótus fuére, quibus templa deórum corruérunt, et multi oppréssi sunt. Eórum relíquias Floréntia, nóbilis fémina, unguéntis condítas honorífice sepelívit.
+
+Te Deum laudámus.
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+{RUBRIC: Oratio Da Ecclésiæ, ut supra. 622}
+
+---
+
+### Die 18 Junii
+
+#### S. Ephraem Syri
+
+{RUBRIC: Diaconi, Conf. et Eccl. Doct. [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Ephrǽm, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio
+
+DEus, qui Ecclésiam tuam beáti Ephrǽm Confessóris tui et Doctóris mira eruditióne et præcláris vitæ méritis illustráre voluísti: te súpplices exorámus; ut, ipso intercedénte, eam advérsus erróris et pravitátis insídias perénni tua virtúte deféndas. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Ss. Marci et Marcelliani Mm. :}
+
+**Ant.** Istórum est enim regnum cælórum, qui con-

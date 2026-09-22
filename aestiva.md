@@ -20108,4 +20108,40 @@ TU autem, Deus noster, suávis et verus es, pátiens et in misericórdia dispón
 
 ##### Lectio ii
 
-NOn enim in errórem indúxit nos hóminum malæ artis excogitátio, nec umbra pictúræ labor sine fructu, effígies sculpta per vários colóres, cujus aspéctus insensáto dat concupiscéntiam, et díli-
+NOn enim in errórem indúxit nos hóminum malæ artis excogitátio, nec umbra pictúræ labor sine fructu, effígies sculpta per vários colóres, cujus aspéctus insensáto dat concupiscéntiam, et díligit mórtuæ imáginis effígiem sine ánima. Malórum amatóres digni sunt qui spem hábeant in tálibus, et qui fáciunt illos et qui díligunt et qui colunt.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+SEd et fígulus mollem terram premens laborióse fingit ad usus nostros unumquódque vas; et de eódem luto fingit, quæ munda sunt in usum vasa, et simíliter quæ his sunt contrária; horum autem vasórum quis sit usus judex est fígulus. Et cum labóre vano deum fingit de eódem luto ille, qui paulo ante de terra factus fúerat, et post pusíllum redúcit se unde accéptus est, repetítus ánimæ débitum quam habébat.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Sapiéntia \* clámitat in platéis: Si quis díligit sapiéntiam, ad me declínet, et eam invéniet; et, cum invénerit, beátus erit, si tenúerit eam.
+
+{RUBRIC: Oratio Dominicæ occurrentis.}
+
+---
+
+## Dominica IV Augusti
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: Incipit liber Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 1, 1-16*
+
+OMnis sapiéntia a Dómino Deo est et cum illo fuit semper et est ante ævum. Arénam maris et plúviæ guttas et dies sæculi quis dinumerávit? Altitúdinem cæli et latitúdinem terræ et profúndum abýssi quis diménsus est? Sapiéntiam Dei præcedéntem ómnia quis investigávit? Prior ómnium creáta est sapiéntia, et intelléctus prudéntiæ ab ævo. Fons sapién-

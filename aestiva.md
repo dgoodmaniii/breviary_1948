@@ -26555,4 +26555,30 @@ ILlud étiam memorándum, quod, in Jesum crucifíxum amóre flagrans, crucis mys
 
 #### Lectio ix
 
-ANtónius María Zaccaría, Cremónæ nóbili génere natus, jam a púero morum pudicítia et misericórdia in páuperes elúxit. Humánis lítteris, philosophíæ ac medicínæ vacans, integritáte vitæ et ingénii acúmine æquálibus antecélluit. Dei mónitu, sacras disciplínas sédulo excóluit; mox, sacerdótio auctus, talem se prǽbuit, ut pater pátriæ atque ángelus merúerit a suis cívibus appellári. Medioláni, cum Bartholomǽo Ferrário et Jacóbo Morígia, sanctíssimis viris, sodalitátem Clericórum regulárium, a sancto Paulo nuncupátam, et Sanctimoniálium Ange-
+ANtónius María Zaccaría, Cremónæ nóbili génere natus, jam a púero morum pudicítia et misericórdia in páuperes elúxit. Humánis lítteris, philosophíæ ac medicínæ vacans, integritáte vitæ et ingénii acúmine æquálibus antecélluit. Dei mónitu, sacras disciplínas sédulo excóluit; mox, sacerdótio auctus, talem se prǽbuit, ut pater pátriæ atque ángelus merúerit a suis cívibus appellári. Medioláni, cum Bartholomǽo Ferrário et Jacóbo Morígia, sanctíssimis viris, sodalitátem Clericórum regulárium, a sancto Paulo nuncupátam, et Sanctimoniálium Angelicárum societátem instítuit. Sacræ Eucharístiæ cultor assíduus, públicam sanctíssimi Sacraménti expositiónem miríficé promóvit. Cæléstibus donis a Deo ditátus, magnísque labóribus oppréssus, gravem morbum cum nactus esset, Cremónæ, tértio Nonas Júlii, anno millésimo quingentésimo trigésimo nono, sanctíssime óbiit. Leo Papa décimus tértius cultum ei exhíbitum, ratum hábuit et confirmávit, eúmque Sanctórum catálogo adscrípsit.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Marcum
+
+#### Lectio vii
+
+*Cap. 10, 15-21*
+
+IN illo témpore: Dixit Jesus discípulis suis: Quisquis non recéperit regnum Dei velut párvulus, non intrábit in illud. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Sermo 47 de diversis*
+
+DUrum vidétur et grave quod Dóminus imperávit, ut, si quis eum vult sequi, ábneget seípsum; sed non est durum nec grave quod ille ímperat, qui ádjuvat ut fiat quod ímperat. Nam illud verum est quod ei dícitur in Psalmo: Propter verba labiórum tuórum ego custodívi vias duras. Quidquid enim durum est in præcéptis, ut sit lene, cáritas facit. Nóvimus quanta ipse amor facit. Quid autem est, Neget se? Non præsúmat de se, séntiat se hóminem, et respíciat dictum prophéticum: Maledíctus omnis qui spem suam ponit in hómine: subdúcat se sibi, sed non deórsum versus: subdúcat se sibi, ut hǽreat Deo.
+
+℟. Ipse est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+QUo sequéndus est Dóminus? Quo iit, nóvimus; resurréxit enim et ascéndit in cælum: illo sequéndus est. Plane desperándum non est, quia ipse promísit, non quia homo áliquid potest. Jam quare desperémus, si membra illíus cápitis sumus? Bonum est illo eum sequi;

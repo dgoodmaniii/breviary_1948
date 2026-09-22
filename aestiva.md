@@ -27512,4 +27512,20 @@ HEnrícus, cognoménto Pius, e duce Bavária rex Germániæ ac póstmodum Román
 
 #### Lectio v
 
-IN Cassinénsi monastério, gravi deténtus infirmitáte, a sancto Benedícto, insígni miráculo, sanátus est. Románam Ecclésiam amplíssimo diplómate munerátus, eídem tuéndæ bellum advérsus Græcos suscépit, et Apúliam, diu ab illis posséssam, recuperávit. Nihil sine précibus aggredi sólitus, Angelum Dómini sanctósque Mártyres tuteláres pro se pugnántes ante áciem intérdum vidit. Divína autem protéctus ope, bárbaras natiónes précibus magis quam armis expugnávit. Pannóniam adhuc infidélem, trádita Stéphano regi soróre sua in uxórem, eóque baptizáto, ad Christi fidem perdúxit. Virginitátem raro exémplo matrimónio
+IN Cassinénsi monastério, gravi deténtus infirmitáte, a sancto Benedícto, insígni miráculo, sanátus est. Románam Ecclésiam amplíssimo diplómate munerátus, eídem tuéndæ bellum advérsus Græcos suscépit, et Apúliam, diu ab illis posséssam, recuperávit. Nihil sine précibus aggredi sólitus, Angelum Dómini sanctósque Mártyres tuteláres pro se pugnántes ante áciem intérdum vidit. Divína autem protéctus ope, bárbaras natiónes précibus magis quam armis expugnávit. Pannóniam adhuc infidélem, trádita Stéphano regi soróre sua in uxórem, eóque baptizáto, ad Christi fidem perdúxit. Virginitátem raro exémplo matrimónio junxit, sanctámque Cunegúndam, cónjugem suam, propínquis ejus, morti próximus, illibátam restítuit.
+
+℟. Amávit eum Dóminus et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+DEnique, rebus ómnibus, quæ ad impérii honórem et utilitátem pertinébant, summa prudéntia dispósitis, et illústribus per Gálliam, Itáliam et Germániam religiósæ munificéntiæ vestígiis passim relíctis; postquam heróicæ virtútis suavíssimum odórem longe latéque diffúderat, sanctitáte quam sceptro clárior, ad regni cæléstis prǽmia, consummátis vitæ labóribus, a Dómino vocátus est anno salútis millésimo vigésimo quarto. Cujus corpus in ecclésia beatórum Apostolórum Petri et Pauli Bambérgæ cónditum fuit; statímque ad ejus túmulum multa mirácula, Deo ipsum glorificánte, patráta sunt. Quibus póstea rite probátis, Eugénius tértius Sanctórum número illum adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+HEnrícus cognoménto Pius, e duce Bavária rex Germániæ ac póstmodum Románórum imperátor, religióni amplificándæ studióse incúbuit. Episcopátum Bambergénsem, hereditáriis ópibus fundátum, beáto Petro Romanóque Pontífici vectigálem fecit; Benedíctum octávum prófugum excépit suáque Sedi restítuit et, Ecclésiæ Románæ tuéndæ causa bello advérsus Græcos suscépto, Apúliam, diu ab illis posséssam, recuperávit. Divína autem protéctus ope, bárbaras natiónes précibus magis quam armis expugnávit. Pannóniam adhuc infidélem, trádita Stéphano regi soróre sua in uxórem, eóque baptizáto, ad fidem perdúxit. Virginitátem matrimónio junxit, sanctámque Cunegúndam cónjugem suam propínquis ejus, morti próximus,

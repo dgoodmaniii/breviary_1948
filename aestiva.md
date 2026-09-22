@@ -24458,4 +24458,42 @@ ET Zacharías pater ejus implétus est Spíritu Sancto, et prophetábat. Vide qu
 
 #### Lectio viii
 
-ET tu, puer, prophéta Altíssimi vocáberis. Pulchre, cum de Dómino prophetáret, ad prophétam sua verba convértit, ut hoc quoque benefícium esse Dómini designáret; ne, cum públice enumeráret sua, quasi ingrátus tacuísse viderétur quæ agnoscébat in fílio. Sed fortásse áliqui quasi irrationábilem mentis excéssum putent, quod octo diérum allóquitur infántem. Verum, si teneámus, intelligémus profécto quod pótuit vocem patris natus
+ET tu, puer, prophéta Altíssimi vocáberis. Pulchre, cum de Dómino prophetáret, ad prophétam sua verba convértit, ut hoc quoque benefícium esse Dómini designáret; ne, cum públice enumeráret sua, quasi ingrátus tacuísse viderétur quæ agnoscébat in fílio. Sed fortásse áliqui quasi irrationábilem mentis excéssum putent, quod octo diérum allóquitur infántem. Verum, si teneámus, intelligémus profécto quod pótuit vocem patris natus audíre, qui Maríæ salutatiónem, ántequam nascerétur, audívit.
+
+℟. Gábriel Angelus appáruit Zacharíæ, dicens: Nascétur tibi fílius, nomen ejus Joánnes vocábitur: \* Et multi in nativitáte ejus gaudébunt. ℣. Erit enim magnus coram Dómino, vinum et síceram non bibet. — Et. Glória Patri. Et.
+
+{RUBRIC: ¶ Si hódie fúerit Sábbatum, ix Léctio de Homilía Vigíliæ anticipátæ Ss. Petri et Pauli App., et ejus Commemoratio ad Laudes, ut die sequénti notátur; secus}
+
+#### Lectio ix
+
+SCiébat profécto álias esse aures prophétæ, quæ Spíritu Dei, non córporis ætáte reserántur. Habébat intelligéndi sensum, qui exsultándi habébat afféctum. Simul illud advérte, quam paucis Elísabeth, quam multis Zacharías prophétet; et utérque Sancto replétus Spíritu loquebátur: sed discíplína servátur, ut múlier díscere magis quæ divína sunt stúdeat, quam docére.
+
+Te Deum laudámus.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedentis.}
+
+---
+
+### Die 28 Junii
+
+#### S. Irenæi Episcopi et Martyris [29]
+
+{RUBRIC: Duplex}
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+###### Oratio
+
+DEus, qui beáto Irenǽo Mártyri tuo atque Pontífici tribuísti, ut et veritáte doctrínæ expugnáret hǽreses, et pacem Ecclésiæ felíciter confirmáret: da, quǽsumus, plebi tuæ in sancta religióne constántiam; et pacem tuam nostris concéde tempóribus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis diei infra Octavam Nativitátis S. Joannis:}
+
+**Ant.** Puer qui natus est nobis, plus quam Prophéta est: hic est enim, de quo Salvátor ait: Inter natos mulíerum non surréxit major Joánne Baptísta.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+###### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nati-

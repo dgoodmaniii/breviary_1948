@@ -21672,4 +21672,14 @@ GRegórius Papa séptimus, ántea Hildebrándus, Suánæ in Etrúria natus, doct
 
 #### Lectio v
 
-MOrtuo Alexándro secúndo, invítus et mœrens, unánimi ómnium consénsu, décimo Kaléndas Maji anno Christi millésimo septuagésimo tértio, summus Póntifex eléctus, sicut sol effúlsit in domo Dei. Nam, potens ópere et sermóne, ecclesiásticæ disciplínæ reparándæ, fídei propagándæ, libertáti Ecclésiæ restituéndæ, exstirpándis erróribus et corruptélis tanto stúdio incúbuit, ut ex Apostolórum ætáte nullus Pontíficum fuísse tradátur, qui majóres pro Ecclésia Dei labóres molestiás-
+MOrtuo Alexándro secúndo, invítus et mœrens, unánimi ómnium consénsu, décimo Kaléndas Maji anno Christi millésimo septuagésimo tértio, summus Póntifex eléctus, sicut sol effúlsit in domo Dei. Nam, potens ópere et sermóne, ecclesiásticæ disciplínæ reparándæ, fídei propagándæ, libertáti Ecclésiæ restituéndæ, exstirpándis erróribus et corruptélis tanto stúdio incúbuit, ut ex Apostolórum ætáte nullus Pontíficum fuísse tradátur, qui majóres pro Ecclésia Dei labóres molestiásque pertúlerit, aut qui pro ejus libertáte ácrius pugnáverit. Aliquot províncias a simoníaca labe expurgávit. Contra Henríci imperatóris ímpios conátus, fortis per ómnia athléta, impávidus permánsit, seque pro muro dómui Israël pónere non tímuit; ac eúmdem Henrícum, in profúndum malórum prolápsum, fidélium communióne regnóque privávit, atque súbditos pópulos fide ei data liberávit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+DUM Missárum solémnia perágeret, visa est viris piis colúmba e cælo delápsa, húmero ejus dextro ínsidens, alis exténsis caput ejus veláre; quo significátum est, Spíritus Sancti afflátu, non humánæ prudéntiæ ratiónibus ipsum duci in Ecclésiæ regímine. Cum ab iníqui Henríci exércitu Romæ gravi obsidióne premerétur, excitátum ab hóstibus incéndium signo crucis exstínxit. De ejus manu tandem a Robérto Guiscárdo duce Northmánno eréptus, Cassínum se cóntulit; atque inde Salérnum ad dedicándam ecclésiam sancti Matthǽi Apóstoli conténdit. Cum aliquándo in ea civitáte sermónem habuísset ad pópulum, ærúmnis conféctus in morbum íncidit, quo se interitúrum præscívit. Postréma moriéntis Gregórii verba fuére: Diléxi justítiam et odívi iniquitátem, proptérea mórior in exsílio. Innumerabília sunt, quæ vel fórtiter sustínuit, vel multis coáctis in Urbe sýnodis sapiénter constítuit; vir vere sanctus, críminum vindex, et acérrimus Ecclésiæ defénsor. Exáctis ítaque in pontificátu annis duódecim, migrávit in cælum anno salútis millésimo octogésimo quinto, plúribus in vita et post mortem miráculis clarus; ejúsque sacrum corpus in cathedráli basílica Salernitána est honorífice cónditum.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---

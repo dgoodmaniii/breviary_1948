@@ -29312,4 +29312,26 @@ CUm autem esset plenus Spíritu Sancto, inténdens in cælum, vidit glóriam Dei
 
 POsitis autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis hoc peccátum. Et cum hoc dixísset, obdormívit in Dómino. Saulus autem erat conséntiens neci ejus. Facta est autem in illa die persecútio magna in ecclésia quæ erat Jerosólymis; et omnes dispérsi sunt per regiónes Judǽæ et Samaríæ, præter Apóstolos. Curavérunt autem Stéphanum viri timoráti, et fecérunt planctum magnum super eum.
 
-℟. Intuens in cælum beátus Stéphanus, vidit glóriam Dei, et ait: \* Ecce vídeo cælos apértos, et Fílium hóminis stantem a dextris virtútis Dei. ℣. Cum autem esset Stéphanus plenus Spíritu Sancto, inténdens in cælum, vidit glóriam Dei, et
+℟. Intuens in cælum beátus Stéphanus, vidit glóriam Dei, et ait: \* Ecce vídeo cælos apértos, et Fílium hóminis stantem a dextris virtútis Dei. ℣. Cum autem esset Stéphanus plenus Spíritu Sancto, inténdens in cælum, vidit glóriam Dei, et ait. — Ecce. Glória Patri. Ecce.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+SAnctórum córpora Stéphani Protomártyris, Gamaliélis, Nicodémi et Abibónis, quæ diu in obscúro ac sórdido loco jacúerant, Honório imperatóre, Luciáno presbýtero divínitus admónito, invénta sunt prope Jerosólymam. Cui Gamáliel cum in somnis apparuísset, gravi quadam et præclára senis spécie, locum jacéntium córporum commonstrávit, ímperans ut Joánnem Jerosolymitánum antístitem adíret, agerétque cum eo ut honéstius illa córpora sepeliréntur.
+
+℟. Lapidábant Stéphanum invocántem et dicéntem: \* Dómine Jesu Christe, áccipe spíritum meum: et ne státuas illis hoc peccátum. ℣. Pósitis autem génibus clamávit voce magna, dicens. — Dómine.
+
+#### Lectio v
+
+QUibus audítis Jerosolymórum antístes, finitimárum úrbium epíscopis presbyterísque convocátis, ad locum pergit; defóssos lóculos ínvenit, unde suavíssimus odor efflabátur. Cujus rei fama commóta, magna hóminum multitúdo eo convénit, multíque ex váriis morbis ægróti ac débiles, sani et íntegri domum rediérunt. Sacrum autem sancti Stéphani corpus, quod summa tunc celebritáte in sanctam ecclésiam Sion illátum est, sub Theodósio juníore Constantinópolim, inde Romam, Pelágio primo summo Pontífice, translátum, in agro Veráno in sepúlcro sancti Lauréntii Mártyris collocátum est.
+
+℟. Impetum fecérunt unanímiter in eum, et ejecérunt eum extra civitátem, invocántem et dicéntem: \* Dómine Jesu, áccipe spíritum meum. ℣. Et testes deposuérunt vestiménta sua secus pedes adolescéntis, qui vocabátur Saulus: et lapidábant Stéphanum invocántem et dicéntem. — Dómine.
+
+{RUBRIC: Ex libro sancti Augustíni Epíscopi de Civitáte Dei}
+
+{RUBRIC: Liber 22, c. 8 circa médium}
+
+#### Lectio vi
+
+AD aquas Tibilitánas, epíscopo afferénte Projécto relíquias Mártyris gloriosíssimi Stéphani, ad ejus memóriam veniébat magnæ multitúdinis concúrsus et occúrsus. Ibi cæca múlier, ut ad epíscopum portántem pígnora sacra

@@ -30847,3 +30847,45 @@ Quóniam non est in ore eórum véritas: \* cor eórum vanum est.
 Sepúlcrum patens est guttur eórum, linguis suis dolóse agébant, \* júdica illos, Deus.
 
 Décidant a cogitatiónibus suis, secúndum multitúdinem impietátum eórum expélle eos, \* quóniam irritavérunt te, Dómine.
+
+Et læténtur omnes, qui sperant in te, \* in ætérnum exsultábunt: et habitábis in eis.
+
+Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíces justo.
+
+Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
+
+**Ant.** Dixit Románus ad beátum Lauréntium: Vídeo ante te júvenem pulchérrimum, festína me baptizáre.
+
+**Ant.** Beátus Lauréntius \* dixit: Mea nox obscúrum non habet, sed ómnia in luce claréscunt.
+
+#### Psalmus 8
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum: \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum: \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas: ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Beátus Lauréntius dixit: Mea nox obscúrum non habet, sed ómnia in luce claréscunt.
+
+℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: In Natáli S. Lauréntii, post inítium}
+
+#### Lectio iv
+
+CUM furor géntilium potestátum in electíssima quæque Christi membra sæviret, ac præcípue eos qui órdinis erant sacerdotális impéteret, in levítam Lauréntium, qui non solum ministério sacraméntorum sed étiam dispensatióne ecclesiásticæ substántiæ præeminébat, ímpius persecútor efférbuit, dúplicem sibi prǽdam de uníus viri comprehensióne promíttens; quem, si fecísset

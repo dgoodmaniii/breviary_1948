@@ -20342,4 +20342,46 @@ FIli, consérva tempus et devíta a malo. Pro ánima tua ne confundáris dícere
 
 ##### Lectio ii
 
-IN lingua enim sapiéntia dignóscitur, et sensus et sciéntia et doctrína in verbo sensáti, et firmaméntum in opéribus justítiæ. Non contradícas ver-
+IN lingua enim sapiéntia dignóscitur, et sensus et sciéntia et doctrína in verbo sensáti, et firmaméntum in opéribus justítiæ. Non contradícas verbo veritátis ullo modo et de mendácio ineruditiónis tuæ confúndere. Non confundáris confitéri peccáta tua et ne subjícias te omni hómini pro peccáto. Noli resístere contra fáciem poténtis, nec conéris contra ictum flúvii.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+PRO justítia agonizáre pro ánima tua et usque ad mortem certa pro justítia, et Deus expugnábit pro te inimícos tuos. Noli citátus esse in lingua tua et inútilis et remíssus in opéribus tuis. Noli esse sicut leo in domo tua evértens domésticos tuos et ópprimens subjéctos tibi. Non sit porrécta manus tua ad accipiéndum et ad dandum collécta.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Sabbato ante Dñicam V Augusti
+
+{RUBRIC: Nisi hæc occúrrat a die 29 ad 31 Augústi; quia tunc, ea cum sua hebdómada prætermíssa, pónitur Domínica et hebdómada I Septémbris, et hódie dícitur Antíphona *Cum audísset*, quæ assignátur Sábbato ante ipsam Domínicam primam Septémbris, ut in parte autumnáli.}
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine.
+
+℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Obsérva, fili, \* præcépta patris tui, et ne dimíttas legem matris tuæ, sed liga eam semper in corde tuo.
+
+{RUBRIC: Oratio Dominicæ occurrentis.}
+
+---
+
+## Dominica V Augusti
+
+*Semiduplex*
+
+#### In I Nocturno
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 5, 1-16*
+
+NOli atténdere ad possessiónes iníquas, et ne díxeris: Est mihi sufficiens vita;

@@ -21436,3 +21436,62 @@ Aquis sacri baptísmatis
 Lustrávit ille pátriam:
 Quos tinxit unda mílites,
 In astra misit Mártyres.
+
+Nunc Angelórum párticeps,
+Adésto votis súpplicum:
+Procul repélle crímina,
+Tuúmque lumen íngere.
+
+{RUBRIC: Sequens Conclusio numquam mutatur.}
+
+Sit laus Patri, sit Fílio,
+Tibíque, Sancte Spíritus:
+Da per preces Venántii
+Beáta nobis gáudia.
+Amen.
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+###### Oratio
+
+DEus, qui hunc diem beáti Venántii Mártyris tui triúmpho consecrásti: exáudi preces pópuli tui, et præsta; ut, qui ejus mérita venerámur, fídei constántiam imitémur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis et S. Pudentiánæ Virg.}
+
+{RUBRIC: Si Vésperæ dicéndæ sint íntegræ Hymnus *Martyr Dei Venántius* usque ad *Athléta* cum conclusióne, ut supra ad Matutínum.}
+
+---
+
+### Die 19 Maji
+
+#### S. Petri Cælestini
+
+{RUBRIC: Papæ et Confessóris [69] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+###### Oratio
+
+DEus, qui beátum Petrum Cælestínum ad summi pontificátus ápicem sublimásti, quique illum humilitáti postpónere docuísti: concéde propítius; ut ejus exémplo cuncta mundi despícere, et ad promíssa humílibus prǽmia perveníre felíciter mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+{RUBRIC: Oratio Deus qui hunc, ut supra.}
+
+{RUBRIC: Deinde Commem. S. Pudentiánæ Virg.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Pudentiánæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.

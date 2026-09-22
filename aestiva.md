@@ -29700,3 +29700,51 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 **Ant.** Paulo minus ab Angelis minorátus, glória et honóre coronátus est, et constitútus super ópera mánuum Dei.
 
 **Ant.** Revelávit Dóminus \* condénsa, et in templo ejus omnes dicent glóriam.
+
+#### Psalmus 28
+
+AFFERTE Dómino, fílii Dei: \* afférte Dómino fílios aríetum.
+
+Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus: \* adoráte Dóminum in átrio sancto ejus.
+
+Vox Dómini super aquas, Deus majestátis intónuit: \* Dóminus super aquas multas.
+
+Vox Dómini in virtúte: \* vox Dómini in magnificéntia.
+
+Vox Dómini confringéntis cedros: \* et confrínget Dóminus cedros Líbani:
+
+Et commínuet eas tamquam vítulum Líbani: \* et diléctus quemádmodum fílius unicórnium.
+
+Vox Dómini intercidéntis flammam ignis: \* vox Dómini concutiéntis desértum: et commovébit Dóminus desértum Cades.
+
+Vox Dómini præparántis cervos, et revelábit condénsa: \* et in templo ejus omnes dicent glóriam.
+
+Dóminus dilúvium inhabitáre facit: \* et sedébit Dóminus Rex in ætérnum.
+
+Dóminus virtútem pópulo suo dabit: \* Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Revelávit Dóminus condénsa, et in templo ejus omnes dicent glóriam.
+
+**Ant.** Speciósus forma \* præ fíliis hóminum, diffúsa est grátia in lábiis tuis.
+
+#### Psalmus 44
+
+ERuctávit cor meum verbum bonum: \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ, \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis: \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam: \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sǽculum sǽculi: \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem: \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis: \* ex quibus delectavérunt te fíliæ regum in honóre tuo.

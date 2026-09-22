@@ -27224,4 +27224,48 @@ GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Pium Mártyrem 
 
 #### Lectio iii
 
-PIus, hujus nóminis primus, Aquilejénsis, Ruffíni fílius, ex presbýtero sanctæ Románæ Ecclésiæ summus Póntifex creátus est, Antoníno Pio et Marco Aurélio imperatóribus
+PIus, hujus nóminis primus, Aquilejénsis, Ruffíni fílius, ex presbýtero sanctæ Románæ Ecclésiæ summus Póntifex creátus est, Antoníno Pio et Marco Aurélio imperatóribus augústis. Quinque ordinatiónibus, mense Decémbri, epíscopos duódecim, octódecim presbýteros creávit. Exstant nonnúlla ab eo præcláre institúta, præsértim ut Resurréctio Dómini nónnisi die Domínico celebrarétur. Pudéntis domum in ecclésiam mutávit, eámque ob præstántiam supra céteros títulos, útpote Románi Pontíficis mansiónem, título Pastóris dicávit; et in qua sæpe rem sacram fecit, et multos ad fidem convérsos baptizávit ac in fidélium númerum adscrípsit. Dum vero boni pastóris munus obíret, fuso pro suis óvibus et summo pastóre Christo sánguine, martýrio coronátus est quinto Idus Júlii, ac sepúltus in Vaticáno.
+
+Te Deum.
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Pium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Com. Ss. Naboris et Felícis Mm.}
+
+---
+
+### Die 12 Julii
+
+#### S. Joannis Gualberti
+
+{RUBRIC: Abbatis [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio C 4
+
+INtercéssio nos, quæsumus, Dómine, beáti Joánnis Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio Ss. Naboris et Felicis Mm.:}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad præmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+PRæsta quæsumus, Dómine: ut, sicut nos sanctórum Mártyrum tuórum Náboris et Felícis natalítia celebránda non déserunt; ita júgiter suffrágiis comiténtur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JOánnes Gualbértus, Floréntiæ nóbili génere ortus, dum patri óbsequens rem militá-

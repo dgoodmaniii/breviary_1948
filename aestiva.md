@@ -32688,4 +32688,40 @@ ET erat, inquit, pernóctans in oratióne Dei. Spécies tibi, Christiáne, datur
 
 #### Lectio ix
 
-VOcávit, inquit, discípulos suos, et elégit duódecim ex ipsis; quos ad propagándum auxílium salútis humánæ per terrárum orbem satóres fídei destináret. Simul advérte cæléste consílium: non
+VOcávit, inquit, discípulos suos, et elégit duódecim ex ipsis; quos ad propagándum auxílium salútis humánæ per terrárum orbem satóres fídei destináret. Simul advérte cæléste consílium: non sapiéntes áliquos, non dívites, non nóbiles, sed piscatóres et publicános, quos dirígeret, elégit; ne traduxísse prudéntia, ne redemísse divítiis, ne poténtiæ nobilitatísque auctoritáte traxísse áliquos ad suam grátiam viderétur; ut veritátis rátio, non disputatiónis grátia prævaléret.
+
+Te Deum laudámus.
+
+#### Oratio
+
+OMnípotens sempitérne Deus, qui hujus diéi venerándam sanctámque lætítiam in beáti Apóstoli tui Bartholomǽi festivitáte tribuísti: da Ecclésiæ tuæ, quǽsumus, et amáre quod crédidit, et prædicáre quod dócuit. Per Dóminum.
+
+{RUBRIC: In Vésperis Com. sequéntis.}
+
+---
+
+### Die 25 Augusti
+
+#### S. Ludovici
+
+{RUBRIC: Regis, Conf. [94] Semiduplex}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, qui beátum Ludovícum Confessórem tuum de terréno regno ad cæléstis regni glóriam transtulísti: ejus, quǽsumus, méritis et intercessióne, Regis regum Jesu Christi Fílii tui fácias nos esse consórtes: Qui tecum vivit.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+LUdovícus nonus, Gálliæ rex, duódecim annos natus, patre amísso, et in Blánchæ matris sanctíssima discíplina educátus, cum jam vigésimum annum in regno ágeret, in morbum íncidit: quo témpore cogitávit de recuperánda possessióne Jerosolymórum. Quam ob rem, ubi convaluísset, vexíllum ab epíscopo Parisiénsi accépit. Deínde, mare cum ingénti exércitu trajíciens, primo prǽlio Saracénos fugávit. Sed cum, ex pestiléntia, magna mílitum multitúdo periísset, victus ipse captúsque est.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+REbus póstea cum Saracénis compósitis, liber rex exercitúsque dimítti-

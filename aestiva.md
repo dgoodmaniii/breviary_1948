@@ -23703,4 +23703,54 @@ ET dixi, A a a, Dómine Deus: ecce néscio loqui, quia puer ego sum. Et dixit D�
 
 TU ergo accínge lumbos tuos, et surge, et lóquere ad eos ómnia quæ ego præcípio tibi. Ne formídes a fácie eórum: nec enim timére te fáciam vultum eórum. Ego quippe dedi te hódie in civitátem munítam, et in colúmnam férream, et in murum ǽreum, super omnem terram, régibus Juda, princípibus ejus, et sacerdótibus, et pópulo terræ. Et bellábunt advérsum te, et non prævalébunt: quia ego tecum sum, ait Dóminus, ut líberem te.
 
-℟. Priúsquam te formárem in útero, novi te: et ántequam exíres de ventre, sanctificávi te, \* Et Prophétam in géntibus dedi te. ℣. Vir diléctus a Deo, et homínibus hono-
+℟. Priúsquam te formárem in útero, novi te: et ántequam exíres de ventre, sanctificávi te, \* Et Prophétam in géntibus dedi te. ℣. Vir diléctus a Deo, et homínibus honorátus est. — Et Prophétam in géntibus dedi te. Glória Patri. Et.
+
+#### In II Nocturno
+
+**Ant.** Misit Dóminus \* manum suam, et tétigit os meum, et Prophétam in géntibus dedit me Dóminus.
+
+#### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum: \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre: \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt: Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine: \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** Misit Dóminus manum suam, et tétigit os meum, et Prophétam in géntibus dedit me Dóminus.
+
+**Ant.** Ecce dedi verba mea \* in ore tuo: ecce constítui te super gentes et regna.
+
+#### Psalmus 5
+
+VErba mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo: \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo: \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus: \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem: \* perdes omnes, qui loquúntur mendácium.
+
+Virum sánguinum et dolósum abominábitur Dóminus: \* ego autem in multitúdine misericórdiæ tuæ.
+
+Introíbo in domum tuam: \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua: \* propter inimí-

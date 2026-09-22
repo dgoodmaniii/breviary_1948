@@ -24721,4 +24721,22 @@ Léctio sancti Evangélii secúndum Matthǽum
 
 *Cap. 16, 13-19*
 
-IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, di-
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+Homilía sancti Hierónymi Presbýteri
+
+*Liber 3 Comment. in Matth. cap. 16*
+
+PUlchre intérrogat: Quem dicunt hómines esse Fílium hóminis? quia qui de fílio hóminis loquúntur, hómines sunt; qui vero divinitátem ejus intélligunt, non hómines, sed dii appellántur. At illi dixérunt: Alii Joánnem Baptístam, álii autem Elíam. Miror quosdam intérpretes causas errórum inquírere singulórum, et disputatiónem longíssimam téxere, quare Dóminum nostrum Jesum Christum álii Joánnem putáverint, álii Elíam, álii Jeremíam aut unum ex prophétis; cum sic potúerint erráre in Elía et Jeremía, quo modo Heródes errávit in Joánne, dicens: Quem ego decollávi Joánnem, ipse surréxit a mórtuis, et virtútes operántur in eo.
+
+℟. Ego pro te rogávi, Petre, ut non defíciat fides tua: \* Et tu aliquándo convérsus confírma fratres tuos. ℣. Caro et sánguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et.
+
+#### Lectio viii
+
+VOS autem quem me esse dícitis? Prudens lector, atténde quod, ex consequéntibus textúque sermónis, Apóstoli nequáquam hómines, sed dii appellántur. Cum enim dixísset: Quem dicunt hómines esse Fílium hóminis? subjécit: Vos autem quem me esse dícitis? Illis, quia hómines sunt, humána opinántibus, vos qui estis dii, quem me esse existimátis? Petrus ex persóna ómnium Apostolórum profitétur: Tu es Christus Fílius Dei vivi. Deum vivum appéllat, ad distinctiónem eórum deórum, qui putántur dii, sed mórtui sunt.
+
+℟. Quem dicunt hómines esse Fílium hóminis? dixit Jesus discípulis suis. Respóndens Petrus dixit: Tu es Christus Fílius Dei vivi. \* Et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam. ℣. Beátus es, Simon Bar-Jona, quia caro et sánguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+REspóndens autem Jesus, dixit ei: Beátus es, Simon Bar-Jona. Testimónio de se Apóstoli

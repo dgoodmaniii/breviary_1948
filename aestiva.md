@@ -29478,3 +29478,25 @@ POsitis autem génibus, clamávit voce magna, dicens: Dómine, ne státuas illis
 ###### Oratio
 
 DEus, qui Ecclésiam tuam beáti Domínici Confessóris tui illumináre dignátus es méritis et doctrínis: concéde; ut ejus intercessióne temporálibus non destituátur auxíliis, et spirituálibus semper profíciat increméntis. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis:}
+
+**Ant.** Sepeliérunt Stéphanum viri timoráti, et fecérunt planctum magnum super eum.
+
+℣. Stéphanus vidit cælos apértos. ℟. Vidit, et introívit: beátus homo, cui cæli patébant.
+
+###### Oratio
+
+DA nobis, quǽsumus, Dómine, imitári quod cólimus: ut discámus et inimícos dilígere; quia ejus Inventiónem celebrámus, qui novit étiam pro persecutóribus exoráre Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+DOmínicus, Calarógæ in Hispánia ex nóbili Gusmanórum família natus, Paléntiæ liberálibus disciplínis et theológiæ óperam dedit; quo in stúdio cum plúrimum profecísset, prius Oxoménsis ecclésiæ canónicus reguláris, deínde órdinis fratrum Prædicatórum auctor fuit. Hujus mater grávida sibi visa est, in quiéte, continére in alvo cátulum ore præferéntem facem, qua, éditus in lucem, orbem terrárum incénderet. Quo sómnio significabátur fore ut, splendóre sanctitátis ac doctrínæ, gentes ad christiánam pietátem inflammaréntur. Veritátem éxitus comprobávit; id enim et præstitit per se, et per sui órdinis sócios deínceps est consecútus.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+HUjus autem ingénium ac virtus máxime enítuit in everténdis hæréticis, qui perniciósis erróribus Tolosátes pervértere conabántur; quo in negótio septem consúmpsit annos. Póstea Romam venit ad Lateranénse concílium cum epíscopo Tolosáno, ut ordo, quem institúerat, ab Innocéntio tértio confirmarétur. Quæ res dum in deliberatióne versátur, Domínicus hortátu Pontíficis ad suos revértitur, ut sibi régulam delígeret. Romam rédiens, ab Honório tértio, qui próximus Innocéntio successérat, confirmatiónem órdinis Prædicatórum ímpetrat. Romæ autem duo instítuit mona-

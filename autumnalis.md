@@ -16509,3 +16509,19 @@ QUisquis ígitur ab immúndo spíritu vexátur, si hoc animadvértat, et hoc ph�
 *Cap. 2, 31-44*
 
 TU, rex, vidébas, et ecce quasi státua una grandis : státua illa magna et statúra sublímis stabat contra te, et intúitus ejus erat terríbilis. Hujus statúæ caput ex auro óptimo erat, pectus autem et bráchia de argénto, porro venter et fémora ex ære, tíbiæ autem férreæ, pedum quædam pars erat férrea, quædam autem fíctilis. Vidébas ita, donec abscíssus est lapis de monte sine mánibus et percússit státuam in pédibus ejus férreis et fictílibus et commínuit eos. Tunc contríta sunt páriter ferrum, testa, æs, argéntum et aurum et redácta quasi in favíllam æstívæ áreæ, quæ rapta sunt vento, nullúsque locus invéntus est eis; lapis autem, qui percússerat státuam, factus est mons magnus et implévit univérsam terram.
+
+℟. Redémit pópulum suum et liberávit eum, et vénient et exsultábunt in monte Sion et gaudébunt de bonis Dómini super fruménto, vino et óleo, \* Et ultra non esúrient. ℣. Erítque ánima eórum quasi hortus irríguus. — Et.
+
+##### Lectio ii
+
+HOC est sómnium. Interpretatiónem quoque ejus dicémus coram te, rex. Tu rex regum es, et Deus cæli regnum et fortitúdinem et impérium et glóriam dedit tibi, et ómnia in quibus hábitant fílii hóminum et béstiæ agri, vólucres quoque cæli dedit in manu tua et sub dicióne tua univérsa constítuit; tu es ergo caput áureum. Et post te consúrget regnum áliud minus te argénteum, et regnum tértium áliud ǽreum, quod imperábit univérsæ terræ, et regnum quartum erit velut ferrum. Quómodo ferrum commínuit et domat ómnia, sic commínuet et cónteret ómnia hæc.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+POrro, quia vidísti pedum et digitórum partem testæ fíguli et partem férream, regnum divísum erit; quod tamen de plantário ferri oriétur, secúndum quod vidísti ferrum mistum testæ ex luto. Et dígitos pedum ex parte férreos, et ex parte fíctiles, ex parte regnum erit sólidum, et ex parte contrítum. Quod autem vidísti ferrum mistum testæ ex luto, commiscebúntur quidem humáno sémine; sed non adhærébunt sibi, sícuti ferrum miscéri non potest testæ. In diébus autem regnórum illórum suscitábit Deus cæli regnum, quod in ætérnum non dissipábitur, et regnum ejus álteri pópulo non tradétur, commínuet autem et consúmet univérsa regna hæc et ipsum stabit in ætérnum.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.

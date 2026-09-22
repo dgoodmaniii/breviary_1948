@@ -20592,4 +20592,36 @@ UBI audítus non est, non effúndas sermónem et importúne noli extólli in sap
 
 ##### Lectio iii
 
-IN multis esto quasi ínscius et audi tacens simul et quærens. In médio magnatórum non præsúmas et, ubi sunt senes, non multum loquáris. Ante grándinem præíbit coru-
+IN multis esto quasi ínscius et audi tacens simul et quærens. In médio magnatórum non præsúmas et, ubi sunt senes, non multum loquáris. Ante grándinem præíbit coruscátio, et ante verecúndiam præíbit grátia et pro reveréntia accédet tibi bona grátia. Et hora surgéndi non te trices, præcúrre autem prior in domum tuam et illic avocáre et illic lude et age conceptiónes tuas et non in delíctis et verbo supérbo; et super his ómnibus benedícito Dóminum, qui fecit te, et inebriántem te ab ómnibus bonis suis.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+# Homiliae et Orationes
+
+*In Dominicis per ordinem dispositæ a quarta usque ad decimam quintam post Pentecosten*
+
+## Dominica IV post Pentecosten
+
+*Semiduplex*
+
+{RUBRIC: Oratio Da nobis, ut infra ad Laudes.}
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+##### Lectio vii
+
+*Cap. 5, 1-11*
+
+IN illo témpore: Cum turbæ irrúerent in Jesum, ut audírent verbum Dei, et ipse stabat secus stagnum Genésareth. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+*Liber 4 in Lucæ cap. 5, prope finem libri*
+
+##### Lectio viii
+
+UBI Dóminus multis impartívit vária génera sanitátum, nec témpore, nec loco pótuit ab stúdio sanándi turba cohibéri. Vesper incúbuit, sequebántur; stagnum occúrrit, urgébant: et ídeo ascéndit in Petri navim. Hæc est illa navis, quæ adhuc secúndum Matthæum flúctuat, secúndum Lucam replétur píscibus: ut et princípia Ecclésiæ fluctuántis, et posterióra

@@ -24318,3 +24318,51 @@ Amen.
 ℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
 
 **Ad Bened. Ant.** Isti sunt Sancti, \* qui pro Christi amóre minas hóminum contempsérunt: sancti Mártyres in regno cælórum exsúltant cum Angelis. O quam pretiósa est mors Sanctórum, qui assídue assístunt ante Dóminum, et ab ínvicem non sunt separáti!
+
+###### Oratio
+
+QUǽsumus omnípotens Deus: ut nos gemináta lætítia hodiérnæ festivitátis excípiat, quæ de beatórum Joánnis et Pauli glorificatióne procédit; quos éadem fides et pássio vere fecit esse germános. Per Dóminum.
+
+{RUBRIC: Pro Commemoratione Octavæ S. Joannis Baptistæ:}
+
+**Ant.** Apértum est os Zacharíæ, et prophetávit dicens: Benedíctus Deus Israël.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+###### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+{RUBRIC: Ad Horas Antiphona et Psalmi de Feria; ad Primam Lectio brevis Fulgébunt justi, et ad relíquas Horas Capítulum et ℟. br. de Communi.}
+
+{RUBRIC: Sicubi autem hoc Festum sub ritu duplíci I vel II classis recólatur, Antiphonæ de Laudibus ut supra, cum Psalmis de Dominica ut in Festis.}
+
+##### In II Vesperis
+
+{RUBRIC: Antiphonæ de Laudibus 665; Psalmi ut in I Vesperis de Communi App. [3], sed loco últimi dícitur Psalmus 115 Crédidi. [18]}
+
+###### Capitulum
+
+*Sap. 3, 1-3*
+
+JUstórum ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+###### Hymnus
+
+SAnctórum méritis ínclyta gáudia
+Pangámus, sócii, géstaque fórtia:
+Gliscens fert ánimus prómere cántibus
+Victórum genus óptimum.
+
+Hi sunt, quos fátue mundus abhórruit;
+Hunc fructu vácuum, flóribus áridum
+Contempsére tui nóminis ásseclæ,
+Jesu, Rex bone Cǽlitum.
+
+Hi pro te fúrias atque minas truces
+Calcárunt hóminum, sævaque vérbera:
+His cessit lácerans fórtiter úngula,
+Nec carpsit penetrália.
+
+Cædúntur gládiis more bidéntium:
+Non murmur résonat, non querimónia;

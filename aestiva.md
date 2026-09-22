@@ -32513,3 +32513,29 @@ VErúmtamen, non hoc tantum, si diligénter atténdas, sed céteras quoque virt�
 #### Lectio vi
 
 ECce jam quibus potúimus votis ascendéntem te ad Fílium dedúximus, et prosecúti sumus saltem a longe, Virgo benedícta. Sit pietátis tuæ, ipsam, quam apud Deum grátiam invenísti, notam fácere mundo; reis véniam, medélam ægris, pusíllis corde robur, afflíctis consolatiónem, periclitántibus adjutórium, et liberatiónem sanctis tuis précibus obtinéndo. In hac quoque die solemnitátis et lætítiæ dulcíssimum Maríæ nomen cum laude invocántibus sérvulis, per te, Regína clemens, grátiæ suæ múnera largiátur Jesus Christus, Fílius tuus, Dóminus noster, qui est super ómnia Deus benedíctus in sǽcula. Amen.
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi: \* Genuísti qui te fecit, et in ætérnum pérmanes Virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti. Glória Patri. Genuísti.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 10, 38-42*
+
+IN illo témpore: Intrávit Jesus in quoddam castéllum; et múlier quædam, Martha nómine, excépit illum in domum suam. Et réliqua.
+
+Homilía sancti Bernárdi Abbátis
+
+{RUBRIC: Sermo 2 de Assumptione B. M. V.}
+
+QUid introísse eum dícimus in castéllum? Étiam in angustíssimum virgínalis úteri diversórium introívit. Dénique et múlier quædam excépit illum in domum suam. Felix múlier, cujus domus, Salvatóre suscépto, invénta est munda quidem, sed plane non vácua! Quis enim vácuam díxerit, quam salútat Angelus grátia plenam? Neque hoc solum; sed adhuc quoque in eam superventúrum ásserit Spíritum Sanctum. Ad quid, putas, nisi ut étiam superímpleat eam? Ad quid, nisi ut advenénte jam Spíritu plena sibi, eódem superveniénte, nobis quoque superpléna et superéffluens fiat?
+
+℟. Diffúsa est grátia in lábiis tuis: \* Proptérea benedíxit te Deus in ætérnum. ℣. Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis, ex quibus delectavérunt te fíliæ regum in honóre tuo. — Proptérea.
+
+#### Lectio viii
+
+INtret ergo domum Salvátor, et frequénter vísitet eam, quam pœniténs Lázarus mundat, ornat Martha, et María replet, intérnæ dédita contemplatióni. Sed forte curiósus quisquam requírat cur in præsénti evangélica lectióne nulla prorsus Lázari méntio fiat. Arbítror sane, ne id quidem a propósita similitúdine dissidére. Virginálem étenim domum intélligi volens Spíritus, síluit non incóngrue pœniténtiam, quæ malum útique comitátur. Absit enim, ut próprii quidquam inquinaménti domus hæc aliquándo habuísse dicátur, ut in ea proínde scopa Lázari quærerétur.
+
+℟. Beáta es, Virgo María, Dei Génitrix, quæ cre-

@@ -22724,4 +22724,14 @@ POstea studiórum causa Salmánticam proféctus, in célebre collégium divi Bar
 
 #### Lectio vi
 
-AT Joánnes, tum conciónibus, tum privátis collóquiis cívium ánimos demúlcens, ad tranquillitátem urbem redúxit. Virum príncipem gráviter offéndit, quod illíus in súbditos sævítiam incre-
+AT Joánnes, tum conciónibus, tum privátis collóquiis cívium ánimos demúlcens, ad tranquillitátem urbem redúxit. Virum príncipem gráviter offéndit, quod illíus in súbditos sævítiam increpásset. Qua de causa équites duos immísit, qui eum in itínere confóderent; jamque ad ipsum propinquáverant, cum, stupóre divínitus immísso, simul cum equis immóbiles stetérunt, donec, ad pedes sancti viri provolúti, scéleris véniam precaréntur. Ipse quoque princeps, repentíno terróre percúlsus, jam de salúte desperáverat, cum, revocáto Joánne, facti pœnitens incolumitáti rédditus est. Factiósi étiam hómines, cum eum fústibus péterent, bráchiis diriguére, nec ante rédditæ vires quam delícti véniam precaréntur. Christum Dóminum, dum Sacrum fáceret, præséntem contuéri, atque ex ipso divinitátis fonte cæléstia mystéria haurire sólitus; ábdita cordis inspícere, ac futúra raro evéntu præsagíre frequens illi fuit, fratrísque fíliam septénnem mórtuam excitávit. Dénique mortis die prænuntiáto, et Ecclésiæ sacraméntis devotíssime suscéptis, extrémum diem clausit, multis ante et post óbitum miráculis gloriósus. Quibus rite probátis, Alexánder octávus Sanctórum número eum adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOánnem, Sahagúni in Hispánia, nóbili génere natum, paréntes cum diu prole caruíssent, piis opéribus et oratiónibus a Deo impetrárunt. Ab ineúnte ætáte futúræ sanctitátis indícia præbuit. Présbyter ordinátus, ut Deo quiétius servíret, omnes ecclesiásticos proventus, quibus mérito auctus fúerat, sponte dimísit. Salmánticæ, cum in gravíssimum morbum incidísset, arctióris disciplínæ voto se obstrínxit, quod ut rédderet, ad cœnóbium sancti Augustíni, severióri disciplína tum máxime florens, se cóntulit; in quo admíssus, virtútibus ómnibus provectióres anteíbat. Salmanticénses cives, cruéntis factiónibus exagitátos, tum conciónibus tum privátis collóquiis ac vitæ sanctitáte, ad tranquillitátem redúxit, non semel a præsénti discrímine divínitus liberátus. Christum Dómi-

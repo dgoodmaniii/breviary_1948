@@ -27455,3 +27455,43 @@ DIvíni amóris flamma succénsus, erga Christi Dómini passiónem, quam júgite
 AD Lugdunénse concílium a beáto Gregório décimo accersítus et cardinális epíscopus Albanénsis creátus, árduis concílii rebus egrégiam navávit óperam; qua et schísmatis dissídia compósita sunt, et ecclesiástica dógmata vindicáta. Quibus in labóribus, anno ætátis suæ quinquagésimo tértio, salútis vero millésimo ducentésimo septuagésimo quarto, summo ómnium mæróre decéssit, ab univérso concílio, ipso præsénte Románo Pontífice, fúnere honestátus. Eum Xystus quartus, plúrimis maximísque clarum miráculis, in Sanctórum númerum rétulit. Multa scripsit, in quibus summam eruditiónem cum pietátis ardóre conjúngens, lectórem docéndo movet: quare a Xysto quinto Doctóris Seráphici nómine mérito est insignítus.
 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+BOnaventúra, Balneorégii in Etrúria natus, adoléscens religiónem sancti Francísci Assisiénsis suscépit; in qua stúdio litterárum déditus, Alexándro de Ales præceptóre tantum profécit, ut séptimo post anno Parísiis libros Sententiárum públice summa cum laude sit interpretátus. Vir summæ mansuetúdinis ac humilitátis, erga Christi Dómini passiónem piíssime afféctus, vix quinque et trigínta annos natus, creátus est totíus órdinis miníster generális. Quod munus prudénter administrándo, præcláram est laudem consecútus non solum doctrínæ et sanctimóniæ, sed étiam ingénii et dexteritátis. Qua fama ductus Gregórius Papa décimus cardinálem ipsum et epíscopum Albanénsem creávit. Multa ópera doctíssime conscrípsit, in primis Commentária in quátuor libros Sententiárum. Obiit Lugdúni, duránte concílio, ætátis suæ anno quinquagésimo tértio, et a Xysto quarto inter Sanctos relátus est. Xystus vero quintus Doctóris Seráphici nómine eum insignívit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Comm. Doct. 3 loco. [93]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio C 3
+
+DEus, qui pópulo tuo ætérnæ salútis beátum Bonaventúram minístrum tribuísti: præsta, quæsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Bonaventúra, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 15 Julii
+
+#### S. Henrici
+
+{RUBRIC: Imperatoris, Confessoris [94] Semiduplex (m. t. v.)}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.

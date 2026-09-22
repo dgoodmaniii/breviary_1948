@@ -22996,4 +22996,24 @@ DEus, qui Ecclésiam tuam beáti Ephrǽm Confessóris tui et Doctóris mira erud
 
 {RUBRIC: Et fit Commem. Ss. Marci et Marcelliani Mm. :}
 
-**Ant.** Istórum est enim regnum cælórum, qui con-
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+PRæsta, quǽsumus, omnípotens Deus: ut qui sanctórum Mártyrum tuórum Marci et Marcelliáni natalítia cólimus; a cunctis malis imminéntibus, eórum intercessiónibus liberémur. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [87]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+EPhrǽm, génere Syrus, Nisibéno patre natus est. Adhuc júvenis ad sanctum Jacóbum epíscopum se cóntulit, a quo baptizátus, brevi ita sanctitáte et doctrína profécit, ut in schola Nísibi, Mesopotámiæ urbe, floránte magíster fúerit constitútus. Post Jacóbi epíscopi mortem, Nísibi a Persis capta, Edéssam proféctus est; ubi primum in monte inter mónachos consédit, deínde, ut plúrimos ad se confluéntes hómines vitáret, vitam duxit eremíticam. Edesséne Ecclésiæ diáconus ordinátus et ob humilitátem sacerdótium recúsans, ómnium virtútum splendóre enítuit, et pietátem et religiónem vera sapiéntiæ professióne sibi comparáre satégit. Spem omnem in solo Deo defíxam habens, quǽvis humána ac transitória contémnens, divína ac sempitérna assídue concupiscébat.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+CÆsaréam Cappadóciæ, divíno ductus Spíritu, cum petiísset, ipsum ibi os Ecclésiæ Basilíum vidit, et utérque mútua consuetúdine opportúnum in modum usus est. Ad innúmeros errores refelléndos, qui, tunc témporis grassántes, Ecclésiam Dei divexábant, atque ad mystéria Dómini nostri Jesu Christi sédulo illustránda, plúrimas édidit lucubratiónes, Syro sermóne compósitas, et fere omnes in linguam græcam versas; atque, teste sancto Hierónymo, ipse ad tantam venit claritúdinem, ut post lectiónem Scripturárum públice in

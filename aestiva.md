@@ -23420,3 +23420,25 @@ PAulínus, anno reparátæ salútis trecentésimo quinquagésimo tértio a clar�
 Te Deum laudámus.
 
 ---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 12, 32-34*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nolíte timére, pusíllus grex, quia complácuit Patri vestro dare vobis regnum. Et réliqua.
+
+Homilía sancti Paulíni Epíscopi
+
+*Sermo, alias Epistola 34 de Gazophylacio*
+
+POtúerat, dilectíssimi, Dóminus omnípotens ǽque univérsos dívites fácere, ut nemo indigéret áltero; sed infinítæ bonitátis consílio sic parávit miséricors et miserátor Dóminus, ut tuam in illis mentem probet. Fecit míserum, ut agnósceret misericórdem; fecit ínopem, ut exercéret opuléntum. Matéria divitiárum tibi est fratérna paupértas, si intélligas super egénum et páuperem, nec tibi tantum hábeas quod accepísti; quia ídeo et illíus partem tibi in hoc sǽculo cóntulit Deus, ut tibi debéret quidquid de suis donis tuo voluntário afféctu indigéntibus obtulísses, ac te vicíssim in ætérna die de illíus parte ditáret. Per ipsos enim nunc áccipit Christus, et tunc pro ipsis repéndet.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio viii
+
+REfice esuriéntem ánimam, et non timébis in die malo ab ira superventúra. Beátus enim (inquit) qui intélligit super egénum et páuperem, in die malo liberábit eum Dóminus. Operáre ígitur et éxcole hanc regiónem terræ tuæ, frater, ut gérminet tibi frugem fértilem, plenam ádipe fruménti, magno cum fǽnore centésimum tibi fructum multiplicáti séminis afferéntem. In hujus vel possessiónis vel negotiatiónis appetítum et stúdium sancta et salutáris est avarítia; nam talis cupíditas, quæ regnum cæléste merétur et bonum perénne desíderat, radix bonórum est. Tales ígitur divítias concupíscite, et hujúsmodi possidéte patrimónium, quod in centénos fructus vobis créditor pénsitet, ut vestros quoque vobíscum bonis perénnibus augeátis herédes. Posséssio enim hæc vere magna et pre-

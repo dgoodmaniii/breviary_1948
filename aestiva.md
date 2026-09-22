@@ -31842,4 +31842,16 @@ DEus, qui nos beáti Hyacínthi Confessóris tui ánnua solemnitáte lætíficas
 
 #### Lectio iv
 
-YAcínthus Polónus, nobílibus et christiánis paréntibus, in Camiénsi villa episcopátus Vratislaviénsis natus est. A puerítia lítteris instrúctus, post datam ju-
+YAcínthus Polónus, nobílibus et christiánis paréntibus, in Camiénsi villa episcopátus Vratislaviénsis natus est. A puerítia lítteris instrúctus, post datam jurisprudéntiæ et sacris lítteris óperam, inter canónicos Cracoviénses adscítus, insígni morum pietáte et summa eruditióne cétetos antecélluit. Romæ in Prædicatórum órdinem ab ipso institutóre sancto Domínico adscríptus, perféctam vivéndi ratiónem, quam ab ipso didícerat, usque ad finem vitæ sanctíssime retínuit. Virginitátem perpétuo cóluit; modéstiam, patiéntiam, humilitátem, abstinéntiam ceterásque virtútes, ut certum religiósæ vitæ patrimónium, adamávit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+CAritáte in Deum fervens, íntegras sæpe noctes fundéndis précibus castigandóque córpori insúmens, nullum eídem levaméntum, nisi lápidi inníxus sive humi cubans, adhibébat. Remíssus in pátriam, Frisáci primum in itínere amplíssimum sui órdinis monastérium, mox Cracóviæ álterum eréxit. Inde per álias Polóniæ regni províncias áliis quátuor exædificátis, incredíbile dictu est, quantum verbi Dei prædicatióne et vitæ innocéntia apud omnes profécerit. Nullum diem prætermísit, quo non præclára áliqua fídei, pietátis atque innocéntiæ arguménta præstíterit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+SAnctíssimi viri stúdium erga proximórum salútem máximis Deus miráculis illustrávit. Inter quæ illud insígne, quod Vándalum flúvium prope Visográdum aquis redundántem, nullo navígio usus, trajécit, sóciis quoque expánso super undas pállio tradúctis. Admirábili vitæ génere ad quadragínta prope annos post professiónem perdúcto, mortis die suis frátribus prænuntiáto, ipso assúmptæ Vírginis festo, Horis canónicis persolútis, sacraméntis ecclesiásticis summa cum veneratióne percéptis, iis verbis: In manus tuas, Dómine; spíritum Deo réddidit, anno salútis millésimo ducen-

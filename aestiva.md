@@ -20031,3 +20031,27 @@ PRopter hoc optávi, et datus est mihi sensus; et invocávi, et venit in me spí
 ##### Lectio iii
 
 VEnérunt autem mihi ómnia bona páriter cum illa, et innumerábilis honéstas per manus illíus; et lætátus sum in ómnibus, quóniam antecedébat me ista sapiéntia, et ignorábam quóniam horum ómnium mater est. Quam sine fictióne dídici et sine invídia commúnico et honestátem illíus non abscóndo. Infinítus enim thesáurus est homínibus; quo qui usi sunt, partícipes facti sunt amicítiæ Dei, propter disciplínæ dona commendáti.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro Sapiéntiæ}
+
+##### Lectio i
+
+*Cap. 9, 13-19*
+
+QUis hóminum póterit scire consílium Dei? aut quis póterit cogitáre quid velit Deus? Cogitatiónes enim mortálium tímidæ, et incértæ providéntiæ nostræ; corpus enim quod corrúmpitur aggravat ánimam, et terréna inhabitátio déprimit sensum multa cogitántem. Et difficíle æstimátus quæ in terra sunt, et quæ in prospéctu sunt invenímus cum labóre; quæ autem in cælis sunt quis investigábit? Sensum autem tuum quis sciet, nisi tu déderis sapiéntiam, et míseris Spíritum Sanctum tuum de altíssimis, et sic corréctæ sint sémitæ eórum qui sunt in terris, et quæ tibi placent didícerint hómines? Nam per sapiéntiam sanáti sunt quicúmque placuérunt tibi, Dómine, a princípio.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+*Cap. 10, 1-9*
+
+HÆC illum, qui primus formátus est a Deo pater orbis terrárum, cum solus esset creátus, custodívit et edúxit illum a delícto suo et dedit illi virtútem continéndi ómnia. Ab hac ut recéssit injústus in ira sua, per iram homicídii fratérni depériit. Propter quem, cum aqua deléret terram, sanávit íterum sapiéntia per contemptíbile lignum justum gubérnans. Hæc, et in consénsu nequítiæ cum se natiónes contulíssent, scivit justum et conservávit sine queréla Deo et in fílii misericórdia fortem custodívit.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.

@@ -25048,4 +25048,50 @@ ET, cum veníssent Salamínam, prædicábant verbum Dei in synagógis Judæórum
 
 SAulus autem, qui et Paulus, replétus Spíritu Sancto, íntuens in eum dixit: O plene omni dolo et omni fallácia, fili diáboli, inimíce omnis justítiæ, non désinis subvértere vias Dómini rectas? Et nunc, ecce manus Dómini super te, et eris cæcus non videns solem usque ad tempus. Et conféstim cécidit in eum calígo et ténebræ, et circúiens quærébat qui ei manum daret. Tunc procónsul, cum vidísset factum, crédidit admírans super doctrína Dómini. Et, cum a Papho navigássent, Paulus et qui cum eo erant venérunt Pergen Pamphýliæ; Joánnes autem discédens ab eis revérsus est Jerosólymam.
 
-℟. Repósita est mihi coróna justítiæ, \* Quam reddet mihi Dóminus in illum diem justus judex. ℣. Scio
+℟. Repósita est mihi coróna justítiæ, \* Quam reddet mihi Dóminus in illum diem justus judex. ℣. Scio cui crédidi, et certus sum quia potens est depósitum meum serváre in illum diem. — Quam reddet mihi Dóminus in illum diem justus judex. Glória Patri. Quam.
+
+##### In II Nocturno
+
+**Ant.** Tu es vas electiónis, \* sancte Paule Apóstole, prædicátor veritátis in univérso mundo.
+
+###### Psalmus 46
+
+OMnes Gentes, pláudite mánibus: \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis: \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis: \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam: \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo: \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite: \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus: \* psállite sapiénter.
+
+Regnábit Deus super gentes: \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham: \* quóniam dii fortes terræ vehementér eleváti sunt.
+
+**Ant.** Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis in univérso mundo.
+
+**Ant.** Magnus sanctus \* Paulus, vas electiónis, vere digne est glorificándus, qui et méruit thronum duodécimum possidére.
+
+###### Psalmus 60
+
+EXáudi, Deus, deprecatiónem meam: \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi: \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea: \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sǽcula: \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam: \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies: \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei: \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in sǽculum sǽ-

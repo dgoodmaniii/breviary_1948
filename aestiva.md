@@ -27015,4 +27015,20 @@ ELísabeth Aragóniæ régibus ortam, Christi anno millésimo ducentésimo septu
 
 #### Lectio v
 
-JUncta conjúgio, non minórem excoléndis virtútibus quam líberis educándis óperam dabat, viro placére studens, sed magis Deo. Médiam fere anni partem solo pane tolerábat et aqua; quæ in quodam ipsíus morbo divínitus versa est in vinum, cum id a médicis præscríptum bíbere recusásset. Páuperis féminæ ulcus horréndum exosculáta, derepénte sanávit. Pecúnias paupéribus distribuéndas, ut regem latérent, hibérno témpore in rosas convértit. Vírginem cæcam a nativitáte illumínavit; multos álios solo crucis signo a gravíssimis morbis liberávit; plúrima id genus miracula patrávit. Monastéria, collégia et templa non modo exstrúxit, sed étiam magnífice dotávit. In regum discórdiis componéndis admirábilis fuit; in privátis publicísque mortálium
+JUncta conjúgio, non minórem excoléndis virtútibus quam líberis educándis óperam dabat, viro placére studens, sed magis Deo. Médiam fere anni partem solo pane tolerábat et aqua; quæ in quodam ipsíus morbo divínitus versa est in vinum, cum id a médicis præscríptum bíbere recusásset. Páuperis féminæ ulcus horréndum exosculáta, derepénte sanávit. Pecúnias paupéribus distribuéndas, ut regem latérent, hibérno témpore in rosas convértit. Vírginem cæcam a nativitáte illumínavit; multos álios solo crucis signo a gravíssimis morbis liberávit; plúrima id genus miracula patrávit. Monastéria, collégia et templa non modo exstrúxit, sed étiam magnífice dotávit. In regum discórdiis componéndis admirábilis fuit; in privátis publicísque mortálium sublevándis calamitátibus indeféssa.
+
+℟. Dilexísti justítiam et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+DEfúncto rege Dionýsio, sicut virgínibus in prima ætáte, in matrimónio conjúgibus, ita víduis in solitúdine fuit ómnium virtútum exémplar. Illico enim religiósis sanctæ Claræ véstibus indúta, régio fúneri constánter intérfuit, ac paulo post, Compostéllam proficíscens, multa ex holosérico, argénto, auro, gemmísque donária pro regis ánima óbtulit. Inde revérsa domum, quidquid sibi carum aut pretiósum supérerat, in sacros ac pios usus convértit; absolvendóque suo vere régio Conimbricénsi vírginum cœnóbio, et aléndis paupéribus, et protegéndis víduis, defendéndis pupíllis, míseris ómnibus juvándis inténta, non sibi, sed Deo, et mortálium ómnium cómmodis vivébat. Reges duos, fílium et génerum, pacificatúra, Stremótium nóbile óppidum véniens, morbo ex itínere contrácto, ibídem a Vírgine Deípara visitáta, sanctíssime óbiit, anno millésimo trecentésimo trigésimo sexto die quarta Júlii. Post mortem multis miráculis cláruit, præsértim suavíssimo córporis jam per annos fere trecéntos incorrúpti odóre: semper étiam regínæ sanctæ cognoménto célebris. Tandem anno jubiléi, et nostræ salútis millésimo sexcentésimo vigésimo quinto, totíus christiáni orbis concúrsu et appláusu, ab Urbáno octávo rite inter Sanctos adscrípta est.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ELísabeth Aragóniæ régibus orta est anno Christi millésimo ducentésimo septuagésimo primo. Natális ejus lætítia perniciósas avi patrísque dissensiónes in concórdiam convértit, ex quo statim pátuit, quam felix regum regnorúmque esset futúra pacátrix. In castigándo

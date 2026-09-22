@@ -22364,4 +22364,36 @@ BEáti mundo corde; quóniam ipsi Deum vidébunt. Quam ergo stulti sunt, qui Deu
 
 #### Lectio viii
 
-PAcífici autem in semetípsis sunt, qui omnes ánimi sui motus componéntes, et subjiciéntes ratióni, id est menti et spirítui, carnalésque concupiscéntias habéntes edómitas, fiunt regnum Dei. In quo ita sunt ordináta ómnia, ut id quod est in hómine præcípuum et excél-
+PAcífici autem in semetípsis sunt, qui omnes ánimi sui motus componéntes, et subjiciéntes ratióni, id est menti et spirítui, carnalésque concupiscéntias habéntes edómitas, fiunt regnum Dei. In quo ita sunt ordináta ómnia, ut id quod est in hómine præcípuum et excéllens, quod est in hómine ratio et mens, non reluctántibus, quæ sunt nobis bestiísque commúnia; atque idípsum quod excéllit in hómine, id est mens et ratio, subjiciátur potióri, quod est ipsa véritas, unigénitus Fílius Dei. Neque enim imperáre inferióribus potest, nisi superióri se ipse subjíciat. Et hæc est pax, quæ datur in terra homínibus bonæ voluntátis; hæc vita consummáti perfectíque sapiéntis.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória. Qui.
+
+#### Lectio ix
+
+DE hujúsmodi regno pacatíssimo et ordinatíssimo missus est foras princeps hujus sæculi, qui pervérsis inordinatísque dominátur. Hac pace intrínsecus constitúta atque firmáta, quascúmque persecutiónes ille, qui foras missus est, forínsecus concitáverit, auget glóriam, quæ secúndum Deum est; non áliquid in illo ædifício labefáctans, sed deficiéntibus máchinis suis innotéscere fáciens, quanta firmitas intus exstrúcta sit. Ideo séquitur: Beáti, qui persecutiónem patiúntur propter justítiam; quóniam ipsórum est regnum cælórum.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+###### Oratio
+
+DEus, qui multitúdinem populórum, beáti Bonifátii Mártyris tui atque Pontíficis zelo, ad agnitiónem tui nóminis vocáre dignátus es: concéde propítius; ut, cujus solémnia cólimus, étiam patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedéntis.}
+
+---
+
+### Die 6 Junii
+
+#### S. Norberti
+
+{RUBRIC: Ep. et Conf. [69] Duplex}
+
+###### Oratio
+
+DEus, qui beátum Norbértum Confessórem tuum atque Pontíficem, verbi tui præcónem exímium effecísti, et per eum Ecclésiam tuam nova prole fœcundásti: præsta, quǽsumus; ut, ejúsdem suf-

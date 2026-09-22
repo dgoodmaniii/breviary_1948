@@ -21306,4 +21306,50 @@ ECclésiam tuam, Dómine, miserátio contináta mundet et múniat: et quia sine 
 
 {RUBRIC: Ad Tértiam, Sextam et Nonam Capítulum et ℟. breve.}
 
-{RUBRIC: Per Octávas autem commúnes, simíliter Antiphónæ et Psalmi dicúntur de occurrénti hebdómadæ die, réliqua, nisi áliter suis locis notétur, ut in Festo: sed Lectiónes et Responsória I Noctúrni, nisi própria habeántur, sumúntur de Scriptúra occurrénti, ut supra, et iis deficiéntibus, Lectiónes in diébus infra Octávam dicúntur de Communi, in die Octáva, et pro Festis Dómini Commúne non habéntibus étiam infra Octávam, ut in Festo; Responsória vero,
+{RUBRIC: Per Octávas autem commúnes, simíliter Antiphónæ et Psalmi dicúntur de occurrénti hebdómadæ die, réliqua, nisi áliter suis locis notétur, ut in Festo: sed Lectiónes et Responsória I Noctúrni, nisi própria habeántur, sumúntur de Scriptúra occurrénti, ut supra, et iis deficiéntibus, Lectiónes in diébus infra Octávam dicúntur de Communi, in die Octáva, et pro Festis Dómini Commúne non habéntibus étiam infra Octávam, ut in Festo; Responsória vero, tam infra Octávam quam in die Octáva, ut in Festo. Item Lectiónes II et III Noctúrni, si própriæ de Octáva non habeántur, in diébus infra Octávam dicúntur de Communi, in die Octáva, et pro Festis Dómini ut supra, ut in Festo. Et de Festo étiam infra Octávam sumúntur Lectiónes III Noctúrni, si ália non habeátur Homilía in Evangélium Festi.}
+
+{RUBRIC: In Festis autem et diébus Octávis simplícibus ómnia páriter dicúntur de occurrénti hebdómadæ die, et de Festo vel de Communi, ut supra; sed ad Matutínum, omíssis Versíbus I et II, novem Psalmi sub suis Antiphónis dicúntur continuátim in único Noctúrno, et in eo sumúntur I et II Lectio de Scriptúra occurrénti cum suis Responsóriis de Témpore, áddito II Responsório Glória Patri, ut notátur; Lectio vero III de Festo, ut in Próprio vel Communi.}
+
+---
+
+## Festa Maji
+
+### Die 18 Maji
+
+#### S. Venantii
+
+{RUBRIC: Mártyris [29] Duplex}
+
+##### In I Vesperis
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+DEus, qui hunc diem beáti Venántii Mártyris tui triúmpho consecrásti: exáudi preces pópuli tui, et præsta; ut, qui ejus mérita venerámur, fídei constántiam imitémur. Per Dóminum.
+
+##### Ad Matutinum
+
+###### Hymnus
+
+MARTYR Dei Venántius,
+Lux et decus Camértium,
+Tortóre victo et júdice,
+Lætus triúmphum cóncinit.
+
+Annis puer, post víncula,
+Post cárceres, post vérbera,
+Longa fame freméntibus
+Cibus datur leónibus.
+
+Sed ejus innocéntiæ
+Parcit leónum immánitas:
+Pedésque lambunt Mártyris,
+Iræ famísque immémores.
+
+Verso deórsum vértice
+Hauríre fumum cógitur;
+Costas utrímque et víscera
+Succénsa lampas ústulat

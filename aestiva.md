@@ -31145,4 +31145,40 @@ POtens est autem Deus omnem grátiam abundáre fácere in vobis, ut, in ómnibus
 
 #### Lectio iii
 
-TIbúrtius, Chromátii prǽfécti Urbis fílius, sancti Sebastiáni ópera christiánus, cum ob eam causam ad Fabiánum júdicem addúctus esset múltaque apud illum de Christi fide prædicáret, excandéscens judex paviméntum candéntibus carbónibus sterni jubet. Mox, Tibúrti, inquit, vel diis nostris sacrífices opórtet, vel per istos carbónes nudis pédibus tibi incedéndum est. At ille, crucis signo se
+TIbúrtius, Chromátii prǽfécti Urbis fílius, sancti Sebastiáni ópera christiánus, cum ob eam causam ad Fabiánum júdicem addúctus esset múltaque apud illum de Christi fide prædicáret, excandéscens judex paviméntum candéntibus carbónibus sterni jubet. Mox, Tibúrti, inquit, vel diis nostris sacrífices opórtet, vel per istos carbónes nudis pédibus tibi incedéndum est. At ille, crucis signo se múniens fidentérque ámbulans in pruna, Disce, inquit, ex hoc solum esse Deum, quem Christiáni colunt; prunæ enim mihi flores vidéntur. Quod cum mágicis ártibus tribuerétur, extra Urbem ductus Tibúrtius, ac via Lavicána tértio ab Urbe lápide gládio percússus, ibi a Christiánis sepelítur. Quo die Susánna virgo nobilíssima, quod Galérii Maximiáni, fílii Diocletiáni imperatóris, conjúgium recusáret, ut quæ virginitátem Deo vóverat: post multa tormentórum génera, quibus várie tentátum est sanctum Vírginis propósitum, domi suæ, jussu imperatóris, gládio percússa, ad duplex virginitátis et martýrii prǽmium migrávit in cælum.
+
+Te Deum.
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+###### Oratio
+
+SAnctórum Mártyrum tuórum Tibúrtii et Susánnæ nos, Dómine, fóveant continuáta præsídia: quia non désinis propítius intuéri; quos tálibus auxíliis concésseris adjuvári. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti.}
+
+---
+
+### Die 12 Augusti
+
+#### S. Claræ
+
+{RUBRIC: Virginis [111]}
+
+{RUBRIC: Duplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+###### Oratio C 3
+
+EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Claræ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+CLara nóbilis virgo, Assísii nata in Umbria, sanctum Francíscum concívem suum imitáta, cuncta sua bona in eleemósynas et páuperum subsídia distríbuit et convértit. De sǽculi strépitu fúgiens, in campéstrem declinávit ecclésiam, ibíque ab eódem beáto Francísco recépta tonsúra, consanguíneis ipsam redúcere conántibus fórtiter réstitit. Et dénique ad ecclésiam sancti Damiáni fuit per eúmdem addúcta, ubi ei Dóminus plures sócias aggregávit; et sic ipsa sacrárum sorórum collégium instítuit,

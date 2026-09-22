@@ -20204,4 +20204,32 @@ COróna sapiéntiæ timor Dómini, replens pacem et salútis fructum; et vidit e
 
 TImor Dómini expéllit peccátum; nam qui sine timóre est non póterit justificári; iracúndia enim animositátis illíus subvérsio illíus est. Usque in tempus sustinébit pátiens, et póstea reddítio jucunditátis. Bonus sensus usque in tempus abscóndet verba illíus, et lábia multórum enarrábunt sensum illíus. In thesáuris sapiéntiæ significátio disciplínæ, exsecrátio autem peccatóri cultúra Dei. Fili, concupíscens sapiéntiam consérva justítiam, et Deus præbébit illam tibi.
 
-℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti pópulum tuum et honorásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+SApiéntia enim et disciplína timor Dómini, et quod beneplácitum est illi fides et mansuetúdo, et adimplébit thesáuros illíus. Ne sis incredíbilis timóri Dómini, et ne accésseris ad illum dúplici corde. Ne fúeris hypócrita in conspéctu hóminum et non scandalizéris in lábiis tuis. Atténde in illis, ne forte cadas et addúcas ánimæ tuæ inhonoratiónem, et revélet Deus abscónsa tua et in médio synagógæ elídat te; quóniam accessísti malígne ad Dóminum, et cor tuum plenum est dolo et fallácia.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 2, 1-12*
+
+FIli, accédens ad servitútem Dei sta in justítia et timóre, et præpara ánimam tuam ad tentatiónem. Déprime cor tuum et sústine, inclína aurem tuam et súscipe verba intelléctus et ne festínes in témpore obductiónis. Sústine sustentatiónes Dei, conjúngere Deo et sústine, ut crescat in novíssimo vita tua.
+
+℟. Præbe, fili, cor mihi, et óculi tui vias meas custódiant: \* Ut addátur grátia cápiti tuo. ℣. Atténde, fili mi, sapiéntiam meam et ad elóquium meum inclína aurem tuam. — Ut.
+
+##### Lectio ii
+
+OMne quod tibi applícitum fúerit áccipe et in dolóre sústine et in humilitáte tua patiéntiam habe; quóniam in igne probátur aurum et argéntum, hómines vero receptíbiles in camíno humiliatiónis. Crede Deo, et recuperábit te, et dírige viam tuam et spera in illum: serva timórem illíus et in illo veterásce.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus

@@ -33139,3 +33139,29 @@ VErba Jeremíæ fílii Helcíæ, de sacerdótibus, qui fuérunt in Anathoth, in 
 ET dixi: A a a, Dómine Deus: ecce néscio loqui, quia puer ego sum. Et dixit Dóminus ad me: Noli dícere: Puer sum: quóniam ad ómnia, quæ mittam te, ibis: et univérsa, quæcúmque mandávero tibi, loquéris. Ne tímeas a fácie eórum: quia tecum ego sum, ut éruam te, dicit Dóminus. Et misit Dóminus manum suam, et tétigit os meum: et dixit Dóminus ad me: Ecce dedi verba mea in ore tuo: ecce constítui te hódie super Gentes, et super regna, ut evéllas, et déstruas, et dispérdas, et díssipes, et ædífices, et plantes.
 
 ℟. Joánnes Baptísta arguébat Heródem \* Propter Herodíadem, quam túlerat fratri suo vivénti uxórem. ℣. Misso Heródes spiculatóre, præcépit amputári caput Joánnis in cárcere. — Propter.
+
+#### Lectio iii
+
+*Cap. 1, 17-19*
+
+TU ergo accínge lumbos tuos, et surge, et lóquere ad eos ómnia quæ ego præcípio tibi. Ne formídes a fácie eórum: nec enim timére te fáciam vultum eórum. Ego quippe dedi te hódie in civitátem munítam, et in colúmnam férream, et in murum ǽreum, super omnem terram, régibus Juda, princípibus ejus, et sacerdótibus, et pópulo terræ. Et bellábunt advérsum te, et non prævalébunt: quia ego tecum sum, ait Dóminus, ut líberem te.
+
+℟. Puéllæ saltánti imperávit mater: \* Nihil áliud petas, nisi caput Joánnis. \* Et contristátus est rex propter jusjurándum et propter simul discumbéntes. ℣. Ait puélla matri suæ: Quid petam? At illa ait. — Nihil. Glória Patri. Et.
+
+### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato Lectio iv dícitur ut ix.}
+
+Ex libro sancti Ambrósii Epíscopi de Virgínibus
+
+{RUBRIC: Liber 3 post inítium}
+
+#### Lectio iv
+
+QUóniam beáti Joánnis Baptístæ non strictim prætereúnda est recordátio, ínterest ut quis et a quibus et quam ob causam, quo modo et quo témpore sit occísus, advértere debeámus. Ab adúlteris justus occíditur, et a reis in júdicem capitális scéleris pœna convértitur. Deínde prǽmium saltatrícis, mors est Prophétæ. Postrémo (quod étiam omnes bárbari horrére consuevérunt) inter épulas atque convívia consummándæ crudelitátis profértur edíctum; et a convívio ad cárcerem, de cárcere ad convívium ferális flagítii circumfértur obséquium. Quanta in uno facínore sunt crímina!
+
+℟. Justus germinábit sicut lílium: \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+#### Lectio v
+
+QUis non, cum e convívio ad cárcerem cursári vidéret, putáret Prophétam jussum esse dimítti? Quis, inquam, cum audísset natálem esse Heródis, solémne convívium, puéllæ optiónem eligéndi quod vellet datam; missum ad Joánnem ob solutiónem non arbitrarétur? Quid crudelitáti cum delíciis? quid cum funéribus voluptáti? Rápitur ad pœnam Prophéta conviváli témpore, conviváli præcé-

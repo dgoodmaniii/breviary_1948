@@ -32060,4 +32060,16 @@ FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placér
 
 #### Lectio iv
 
-JOánnes, anno millésimo sexcentésimo primo, in pago vulgo Ri, Sagiénsis diœcésis, e piis honestísque paréntibus ortus est. Adhuc puer, Angelórum pane reféctus, perpétuam castitátem alácriter vovit. In Cadoménse Collégium a Pátribus Societátis Jesu diréctum excéptus, singulári pietáte emícuit; et Maríæ Vírginis tutélæ sese commíttens, speciále fœdus ínitum cum ea vix adoléscens suo sánguine signávit. Litterárum ac philo-
+JOánnes, anno millésimo sexcentésimo primo, in pago vulgo Ri, Sagiénsis diœcésis, e piis honestísque paréntibus ortus est. Adhuc puer, Angelórum pane reféctus, perpétuam castitátem alácriter vovit. In Cadoménse Collégium a Pátribus Societátis Jesu diréctum excéptus, singulári pietáte emícuit; et Maríæ Vírginis tutélæ sese commíttens, speciále fœdus ínitum cum ea vix adoléscens suo sánguine signávit. Litterárum ac philosophíæ currículo multa cum laude perácto, spretísque sibi oblátis núptiis, Berulliáni Oratórii Congregatióni nomen dedit, et sacerdótio Parísiis auctus est. Mira caritáte erga próximum flagrávit: nam apud plura loca, corpóribus, asiática lue percúlsis, animísque curándis sédulam óperam dedit. Domus Oratoriánæ Cadómi Rector factus, quum diu cogitáret ad Ecclésiæ ministérium júvenes idóneos institúere, a sodálibus, quibúscum vigínti annos víxerat, divína ope imploráta, licet ægre, forti ánimo discéssit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit illi claritátem.
+
+#### Lectio v
+
+QUinque ígitur sacerdótes sibi consócians, anno millésimo sexcentésimo quadragésimo tértio, die festo Annuntiatiónis Beátæ Maríæ Vírginis, Congregatiónem Presbyterórum instítuit, cui Sanctíssima Jesu et Maríæ nómina dedit et Cadómi primum Semináriúm apéruit, quod in Normánnia et Británnia minóri complúra, eódem auctóre, subsecúta sunt. Pro peccatrícibus féminis ad christiánam vitam revocándis, Órdinem Dóminæ Nostræ a Caritáte fundávit; cujus nobilíssimæ árboris ramus est Congregátio Andegavénsis a Bono Pastóre. Insúper Societátem a Matris Dei Corde Admirábili, et ália caritátis ópera cóndidit. Scripta plura præcláre édidit, et Missionárius Apostólicus tot pagos, óppida et urbes ipsámque régiam aulam, usque ad extrémam ætátem, evangelizávit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+SInguláre ejus stúdium emícuit in salutári devotióne promovénda erga Sacratíssima Corda Jesu et Maríæ, quorum litúrgicum cultum eísdem præstándum non sine áliquo divíno afflátu, primus ómnium excogitávit, ideóque ejúsdem cultus pater, doctor et apóstolus hábitus est. Jansenistárum doctrí-

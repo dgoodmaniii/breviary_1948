@@ -16160,3 +16160,76 @@ DIC ad eos qui líniunt absque temperatúra, quod casúrus sit; erit enim imber 
 ET factus est sermo Dómini ad me dicens : Fili hóminis, quid fiet de ligno vitis ex ómnibus lignis némorum, quæ sunt inter ligna silvárum? Numquid tollétur de ea lignum, ut fiat opus, aut fabricábitur de ea paxíllus, ut depéndeat in eo quodcúmque vas? Ecce igni datum est in escam, utrámque partem ejus consúmpsit ignis, et médietas ejus redácta est in favíllam. Numquid útile erit ad opus? Etiam cum esset íntegrum non erat aptum ad opus, quanto magis cum illud ignis voráverit et combússerit : nihil ex eo fiet óperis.
 
 ℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio ii
+
+PRoptérea hæc dicit Dóminus Deus : Quómodo lignum vitis inter ligna silvárum, quod dedi igni ad devorándum, sic tradam habitatóres Jerúsalem. Et ponam fáciem meam in eos : de igne egrediéntur, et ignis consúmet eos, et sciétis quia ego Dóminus, cum posúero fáciem meam in eos et dédero terram ínviam et desolátam, eo quod prævaricatóres exstíterint, dicit Dóminus Deus.
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine, et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Líbera.}
+
+##### Lectio iii
+*Cap. 16, 1-5*
+
+ET factus est sermo Dómini ad me dicens : Fili hóminis, notas fac Jerúsalem abominatiónes suas et dices : Hæc dicit Dóminus Deus Jerúsalem : Radix tua et generátio tua de terra Chánaan, pater tuus Amorrhǽus, et mater tua Céthæa. Et quando nata es, in die ortus tui, non est præcísus umbilícus tuus, et aqua non es lota in salútem nec sale salíta nec involúta pannis. Non pepércit super te óculus, ut fáceret tibi unum de his, misértus tui, sed projécta es super fáciem terræ in abjectióne ánimæ tuæ, in die qua nata es.
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+---
+
+## Sabbato infra Hebdomadam I Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 19, 1-14*
+
+ET tu assúme planctum super príncipes Israël et dices : Quare mater tua leǽna inter leónes cubávit, in médio leunculórum enutrívit cátulos suos? Et edúxit unum de leúnculis suis, et leo factus est et dídicit cápere prædam homínemque comédere. Et audiérunt de eo gentes et non absque vulnéribus suis cepérunt eum et adduxérunt eum in caténis in terram Ægýpti. Quæ cum vidísset quóniam infirmáta est et périit exspectátio ejus, tulit unum de leúnculis suis, leónem constítuit eum, qui incedébat inter leónes et factus est leo et dídicit prædam cápere et hómines devoráre, dídicit víduas fácere et civitátes eórum in desértum addúcere, et desoláta est terra et plenitúdo ejus a voce rugítus illíus.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+##### Lectio ii
+
+ET convenérunt advérsus eum gentes úndique de províncíis et expandérunt super eum rete suum, in vulnéribus eárum captus est, et misérunt eum in cáveam, in caténis adduxérunt eum ad regem Babylónis misérúntque eum in cárcerem, ne audirétur vox ejus ultra super montes Israël. Mater tua quasi vínea in sánguine tuo super aquam plantáta est; fructus ejus et frondes ejus crevérunt ex aquis multis, et factæ sunt ei virgæ sólidæ in sceptra dominántium, et exaltáta est statúra ejus inter frondes, et vidit altitúdinem suam in multitúdine pálmitum suórum.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+ET evúlsa est in ira in terrámque projécta, et ventus urens siccávit fructum ejus; marcuérunt et arefáctæ sunt virgæ róboris ejus, ignis comédit eam; et nunc transplantáta est in desértum, in terra ínvia et sitiénti, et egréssus est ignis de virga ramórum ejus, qui fructum ejus comédit, et non fuit in ea virga fortis, sceptrum dominántium. Planctus est, et erit in planctum.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato ante Dominicam II Novembris
+
+{RUBRIC: Si sequens Dominica incídat in diem 5 Novémbris, fit de ea cum sua hebdómada, et hódie dícitur Antíphona Aspice, ut infra. Si vero vénerit post ipsam diem 5, ita ut November quátuor tantum hebdómadas hábeat, omíssa Dominica II Novémbris cum sua hebdómada, hódie pónitur Antíphona Muro tuo, quæ assignátur Sábbato ante Dominicam III Novémbris. 404, atque in ipsa Domínica et per hebdómadam legítur liber Daniélis, et duábus sequéntibus hebdomádis ponúntur Prophétæ minóres.}
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Aspice, Dómine, \* quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : non est qui consolétur eam, nisi tu, Deus noster.
+
+{RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica II Novembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 21, 1-15*
+
+ET factus est sermo Dómini ad me dicens : Fili hóminis, pone fáciem tuam ad Jerúsalem et stilla ad sanctuária et prophéta contra humum Israël et dices terræ Israël : Hæc dicit Dóminus Deus : Ecce ego ad te et ejíciam gládium meum de vagína sua et occídam in te justum et ímpium. Pro eo autem quod occídi in te justum et ímpium, idcírco egrediétur gládius meus de vagína sua ad omnem carnem ab Austro usque ad Aquilónem, ut sciat omnis caro quia ego Dóminus edúxi gládium meum de vagína sua irrevocábilem.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.

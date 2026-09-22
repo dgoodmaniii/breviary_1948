@@ -19784,4 +19784,28 @@ VErti me ad ália et vidi calúmnias, quæ sub sole gerúntur, et lácrimas inno
 
 ##### Lectio ii
 
-STultus complicat manus suas et comédit carnes suas dicens: Mélior
+STultus complicat manus suas et comédit carnes suas dicens: Mélior est pugíllus cum réquie, quam plena útraque manus cum labóre et afflictióne ánimi. Consíderans réperi et áliam vanitátem sub sole. Unus est et secúndum non habet, non fílium, non fratrem, et tamen laboráre non cessat, nec satiántur óculi ejus divítiis, nec recógitat dicens: Cui labóro, et fraudo ánimam meam bonis? In hoc quoque vánitas est et afflíctio péssima.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti pópulum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+MElius est ergo duos esse simul quam unum; habent enim emoluméntum societátis suæ. Si unus cecíderit, ab áltero fulciétur. Væ soli, quia, cum cecíderit, non habet sublevántem se. Et si dormíerint duo, fovebúntur mútuo: unus quómodo calefíet? Et, si quíspiam prævalúerit contra unum, duo resístunt ei; funículus tríplex difficíle rúmpitur. Mélior est puer pauper et sápiens rege sene et stulto, qui nescit prævidére in pósterum.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro Ecclesiástæ}
+
+##### Lectio i
+
+*Cap. 5, 3-13*
+
+NE témere quid loquáris neque cor tuum sit velox ad proferéndum sermónem coram Deo. Deus enim in cælo, et tu super terram; idcírco sint pauci sermónes tui. Multas curas sequúntur sómnia, et in multis sermónibus inveniétur stultítia. Si quid vovísti Deo, ne moréris réddere; displicet enim ei infidélis et stulta promíssio; sed quodcúmque vóveris redde; multóque mélius est non vovére, quam post votum promíssa non réddere.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collo-

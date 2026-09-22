@@ -24073,4 +24073,36 @@ Amen.
 
 #### Oratio
 
-DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+### Die 25 Junii
+
+#### S. Gulielmi Abbatis [94]
+
+{RUBRIC: Duplex}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, qui infirmitáti nostræ ad teréndam salútis viam in Sanctis tuis exémplum et præsídium collocásti: da nobis, ita beáti Guliélmi Abbátis mérita venerári; ut ejúsdem excipiámus suffrágia, et vestígia prosequámur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+GUliélmus, nobílibus paréntibus Vercéllis in Insúbria natus, vix quartum décimum ætátis annum expléverat, cum, miro quodam pietátis ardóre flagrans, Compostellánam peregrinatiónem ad celebérrimum sancti Jacóbi templum aggréssus est. Quod iter una amíctus túnica, ac dúplici férreo círculo præcínctus, nudísque pédibus prosecútus, aspérrima frígoris et æstus, famis et sitis summo cum vitæ discrímine perpéssus est incómmoda. Revérsus in Itáliam, novam ad sanctum Dómini sepúlcrum peregrinatiónem molítur; sed, quo minus propósitum exsequátur, vária atque gravíssima intercédunt impedimenta, divíno númine ad altióra et sanctióra religiósam júvenis índolem retrahénte. Porro in solículo monte biénnium inter assíduas preces, vigílias, chaméunias et jejúnia commorátus, divína subníxus ope, cæco lumen restítuit. Cujus miráculi fama precrebrescénte, jam Guliélmus latére non póterat; quare íterum Jerosólymam cógitat, et álacris se itíneri commíttit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+DEI autem mónitu, qui eídem appáruit, a propósito revocátur, utílior

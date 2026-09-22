@@ -32538,4 +32538,28 @@ QUid introísse eum dícimus in castéllum? Étiam in angustíssimum virgínalis
 
 INtret ergo domum Salvátor, et frequénter vísitet eam, quam pœniténs Lázarus mundat, ornat Martha, et María replet, intérnæ dédita contemplatióni. Sed forte curiósus quisquam requírat cur in præsénti evangélica lectióne nulla prorsus Lázari méntio fiat. Arbítror sane, ne id quidem a propósita similitúdine dissidére. Virginálem étenim domum intélligi volens Spíritus, síluit non incóngrue pœniténtiam, quæ malum útique comitátur. Absit enim, ut próprii quidquam inquinaménti domus hæc aliquándo habuísse dicátur, ut in ea proínde scopa Lázari quærerétur.
 
-℟. Beáta es, Virgo María, Dei Génitrix, quæ cre-
+℟. Beáta es, Virgo María, Dei Génitrix, quæ credidísti Dómino: perfécta sunt in te quæ dicta sunt tibi: \* ecce exaltáta es super choros Angelórum: Intercéde pro nobis ad Dóminum Deum nostrum. ℣. Ave, María, grátia plena; Dóminus tecum. — Intercéde. Glória Patri. Intercéde.
+
+{RUBRIC: Si hódie fúerit Sábbatum, Lectio ix de Homilía Vigíliæ anticipátæ S. Bartholomǽi Ap., et ejus Commemoratio ad Laudes, ut die seq. notátur; secus}
+
+{RUBRIC: Pro Ss. Timótheo, Hippólyto Ep. et Symphoriáno Mm.}
+
+#### Lectio ix
+
+TImótheus Antiochénus, Romam véniens Melchíade summo Pontífice, cum per annum ibi Christi fidem prædicásset, a Tarquínio Urbis præfécto conjícitur in víncula; et, post diutúrnas cárceris ærúmnas, ad ídola perdúcitur, ut eis sacrifícet. Quam impietátem summa libertáte detestátus, acerbíssime cǽditur, et excarnificátum corpus viva calce perfúnditur. In quibus alíisque supplíciis constans Martyr, cápite pléctitur. Corpus via Ostiénsi prope sepúlcrum beáti Pauli Apóstoli sepelítur. Quo die étiam Alexándro imperatóre, apud Ostia Tiberína Hippólytus, epíscopus Portuénsis, ob præcláram fídei confessiónem mánibus pedibúsque ligátis, in altam fóveam aquis plenam præcipitátus, martýrio coronátus est, et ibídem a Christiánis sepúltus. Quo item die, Aureliáno imperatóre, propter eámdem fidem, Augustodúni, Symphoriánus adoléscens várie tortus est. Qui, dum ad últimum supplícium ducerétur, matrem ita clamántem áudiens: Nate, nate, meménto ætérnæ vitæ, cælum súspice, et ibi regnántem intuére; tibi enim vita non erípitur, sed mutátur in mélius; fórtiter Jesu Christi causa carnífici collum prǽbuit.
+
+Te Deum laudámus.
+
+{RUBRIC: Ad Laudes fit Com. Ss. Mm.:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+AUxílium tuum nobis, Dómine, quǽsumus, placátus impénde: et, intercedéntibus beátis Martýribus tuis Timótheo, Hippólyto et Symphoriáno, déxteram super nos tuæ propitiatiónis exténde. Per Dóminum.
+
+{RUBRIC: In Vésperis Commemoratio sequéntis.}
+
+---

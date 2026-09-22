@@ -24434,4 +24434,28 @@ IGitur vox Dómini super aquas, Joánnes est super baptísmum. Illic et Deus maj
 
 #### Lectio vi
 
-VOX Dómini confringéntis cedros. Potest dici quod, parans Dómino pópulum perféctum, elátas impietátes et contra cognitiónem Dei exaltátas confríngens ac cónterens, oblíqua faciébat recta. Qui enim omnem collem ac montem humíliat, hic erat qui confringébat cedros, et
+VOX Dómini confringéntis cedros. Potest dici quod, parans Dómino pópulum perféctum, elátas impietátes et contra cognitiónem Dei exaltátas confríngens ac cónterens, oblíqua faciébat recta. Qui enim omnem collem ac montem humíliat, hic erat qui confringébat cedros, et Dómino viam adæquábat, per hoc quod ad pœniténtiam inducébat altum, et elátum, et supérbum cor. Unde ejus præparatiónem suscípiens Dóminus, suo advéntu confrégit oppósitas poténtias, cedros Líbani figuráte dictas. Opórtet enim Dóminum regnáre, donec ponat inimícos sub pedes suos, et cedros istas commínuat.
+
+℟. Innuébant patri ejus quem vellet vocári eum: et póstulans pugillárem, scripsit dicens: \* Joánnes est nomen ejus. ℣. Apértum est os Zacharíæ, et prophetávit dicens. — Joánnes. Glória Patri. Joánnes.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 1, 57-68*
+
+ELísabeth implétum est tempus pariéndi, et péperit fílium. Et audiérunt vicíni et cognáti ejus quia magnificávit Dóminus misericórdiam suam cum illa, et congratulabántur ei. Et réliqua.
+
+De Homilía sancti Ambrósii Epíscopi
+
+*Liber 2 in Luc. cap. 1, in fine*
+
+ET Zacharías pater ejus implétus est Spíritu Sancto, et prophetábat. Vide quam bonus Deus, et fácilis indulgére peccátis; non solum abláta restítuit, sed étiam insperáta concédit. Ille dudum mutus prophétat; hæc enim grátia Dei máxima, quod eum, qui negáverat, confitétur. Nemo ergo diffídat, nemo véterum cónscius delictórum prǽmia divína despéret. Novit Dóminus mutáre senténtiam, si tu nóveris emendáre delíctum.
+
+℟. Præcúrsor Dómini venit, de quo ipse testátur: \* Nullus major inter natos mulíerum Joánne Baptísta. ℣. Hic est enim prophéta, et plus quam prophéta, de quo Salvátor ait. — Nullus.
+
+#### Lectio viii
+
+ET tu, puer, prophéta Altíssimi vocáberis. Pulchre, cum de Dómino prophetáret, ad prophétam sua verba convértit, ut hoc quoque benefícium esse Dómini designáret; ne, cum públice enumeráret sua, quasi ingrátus tacuísse viderétur quæ agnoscébat in fílio. Sed fortásse áliqui quasi irrationábilem mentis excéssum putent, quod octo diérum allóquitur infántem. Verum, si teneámus, intelligémus profécto quod pótuit vocem patris natus

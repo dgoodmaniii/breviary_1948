@@ -26747,3 +26747,60 @@ Te Deum laudámus.
 {RUBRIC: Capitulum Fratres, et Hymnus Exsúltet, ut supra in I Vesperis. 733}
 
 ℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Bened. Ant.** Gloriósi príncipes terræ, \* quómodo in vita sua dilexérunt se, ita et in morte non sunt separáti.
+
+###### Oratio
+
+DEus, cujus déxtera beátum Petrum, ambulántem in flúctibus, ne mergerétur, eréxit, et coapóstolum ejus Paulum, tértio naufragántem, de profúndo pélagi liberávit: exáudi nos propítius, et concéde; ut, ambórum méritis, æternitátis glóriam consequámur: Qui vivis.
+
+##### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis.}
+
+{RUBRIC: Et fit Com. sequentis, ut infra.}
+
+---
+
+### Die 7 Julii
+
+#### Ss. Cyrilli et Methodii
+
+{RUBRIC: Epp. et Cc. [69]}
+
+{RUBRIC: Duplex}
+
+##### In I Vesperis
+
+{RUBRIC: Quando dicéndæ sint íntegræ, Capit. Ecce sacérdos, et Hymnus Sédibus cæli, ut infra in II Vesperis. 742}
+
+**Ant.** O quam speciósi pedes evangelizántium pacem, evangelizántium bona, dicéntium Sion: Regnábit Deus tuus.
+
+℣. Sacerdótes tui induántur justítiam. ℟. Et Sancti tui exsúltent.
+
+###### Oratio
+
+OMnípotens sempitérne Deus, qui Slavóniæ gentes per beátos Confessóres tuos atque Pontífices Cyríllum et Methódium ad agnitiónem tui nóminis veníre tribuísti: præsta; ut, quorum festivitáte gloriámur, eórum consórtio copulémur. Per Dóminum.
+
+##### Ad Matutinum
+
+**Invitat.** Regem Confessórum Dóminum, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus.
+
+###### Hymnus
+
+SEdibus cæli nítidis recéptos
+Dícite athlétas géminos, fidéles;
+Slávicæ duplex cólumen decúsque
+Dícite gentis.
+
+Hos amor fratres sociávit unus,
+Unaque abdúxit píetas erémo,
+Ferre quo multis célerent beátæ
+Pígnora vitæ.
+
+Luce, quæ templis súperis renídet,
+Búlgaros complent, Móravos, Bohémos;
+Mox feras turmas numerósa Petro
+Agmina ducunt.
+
+Débitam cincti méritis corónam,

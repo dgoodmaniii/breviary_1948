@@ -31788,4 +31788,18 @@ LIber generatiónis Jesu Christi, fílii David, fílii Abraham. Abraham génuit 
 
 {RUBRIC: Liber 4 de Fide orthodoxa, cap. 15 de Dómini genealógia et sanctæ Dei Genitrícis}
 
-QUod Joseph ex Davídica tribu oríginem dúxerit, sanctíssimi Evangelístæ Matthǽus et Lucas líquido demonstrárunt. Verum, hoc inter eos discríminis est, quod Matthǽus ex Davíde per Salomónem Joséphum dedúcit; Lucas autem per Nathan. At vero sanctæ Vírginis ortum utérque siléntio prætériit. Quocírca
+QUod Joseph ex Davídica tribu oríginem dúxerit, sanctíssimi Evangelístæ Matthǽus et Lucas líquido demonstrárunt. Verum, hoc inter eos discríminis est, quod Matthǽus ex Davíde per Salomónem Joséphum dedúcit; Lucas autem per Nathan. At vero sanctæ Vírginis ortum utérque siléntio prætériit. Quocírca scire óperæ prétium est, nec apud Hebrǽos nec apud Scriptúram sacram hoc in more pósitum fuísse, ut mulíerum genus recenserétur. Verum, hoc demum lege cautum erat ne tribus ulla uxóres ex áltera tribu accérseret. Ac proínde Joseph, qui ex tribu Davídica ortum trahébat justitiámque colébat (hanc enim laudem ei tríbuit divínum Evangélium), sanctam Vírginem haudquáquam præter legis præscríptum despondísset, nisi ex eódem sceptro genus duxísset. Ob idque satis hábuit Evangelísta demonstrásse, unde Joseph ortum tráxerit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+{RUBRIC: Si dicénda sit ix Léctio alicújus Offícii commemoráti, ex viii et ix Lectióne fit una.}
+
+#### Lectio viii
+
+IGitur ex stirpe Nathan, fílii David, Levi génuit Melchi et Panthérem. Panther autem génuit Barpanthérem (namque ita vocabátur.) Barpánther rursus génuit Jóachim. Jóachim dénique génuit sanctam Dei Genitrícem. Rursus, ex stirpe Salomónis, fílii David, Mathan ex uxóre sua génuit Jacob. Mórtuo autem Mathan, Melchi ex tribu Nathan, fílius Levi ac frater Panthéris, uxórem ipsíus Mathan, quæ étiam Jacóbi mater erat, matrimónio sibi copulávit, atque ex ea génuit Heli. Ita uteríni fratres erant Jacob et Heli; ille nimírum ex tribu Salomónis, hic ex tribu Nathan oriúndus.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+POrro Heli, qui ex tribu Nathan erat, nullis líberis suscéptis, e vita migrávit; eáque de causa Jacob ipsíus frater, qui ex tribu Salomónis flúxerat, ipsíus uxórem accépit, fratríque suo semen excitávit ac Joséphum progénuit. Joseph ítaque natúra quidem fílius Jacob erat, a Salomóne oriúndus; legis autem ratióne patrem ha-

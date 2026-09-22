@@ -33451,4 +33451,20 @@ RAymúndus, Nonnátus cognoménto dictus, quia prǽter commúnem natúræ legem 
 
 #### Lectio v
 
-NEC défuit votis ejus benigníssima Virgo. Ab ipsa enim intelléxit gratíssimum sibi fore, si religiónem sub título de Mercéde seu de misericórdia redemptiónis captivórum, ea suggerénte nuper fundátam, ingrederétur. Qua monitióne percépta, Barcinónem statim proféctus, illud tam præcelléntis erga próximum caritátis institútum ampléxus est. Regulári ígitur milítiæ adscríptus, virginitátem, quam pridem beátæ Vírgini consecráverat, perpétuo cóluit, ceterísque virtútibus enítuit, caritáte præsértim erga Christiános qui sub potestáte paganórum míseram in captivitáte vitam degébant. Hos ut redímeret, in Áfricam missus, cum jam multos a servitúte liberásset, ne, consúmpta pecúnia, áliis item in próximo abnegándæ fídei discrímine constitútis deésset, se ipsum pígnori dedit. Sed cum, ardentíssimo salútis animárum desidério succénsus, plures Mahometános suis conciónibus ad Christum convérteret, in arctam custódiam a bárbaris conjéctus variísque
+NEC défuit votis ejus benigníssima Virgo. Ab ipsa enim intelléxit gratíssimum sibi fore, si religiónem sub título de Mercéde seu de misericórdia redemptiónis captivórum, ea suggerénte nuper fundátam, ingrederétur. Qua monitióne percépta, Barcinónem statim proféctus, illud tam præcelléntis erga próximum caritátis institútum ampléxus est. Regulári ígitur milítiæ adscríptus, virginitátem, quam pridem beátæ Vírgini consecráverat, perpétuo cóluit, ceterísque virtútibus enítuit, caritáte præsértim erga Christiános qui sub potestáte paganórum míseram in captivitáte vitam degébant. Hos ut redímeret, in Áfricam missus, cum jam multos a servitúte liberásset, ne, consúmpta pecúnia, áliis item in próximo abnegándæ fídei discrímine constitútis deésset, se ipsum pígnori dedit. Sed cum, ardentíssimo salútis animárum desidério succénsus, plures Mahometános suis conciónibus ad Christum convérteret, in arctam custódiam a bárbaris conjéctus variísque supplíciis cruciátus, mox lábiis perforátis et sera férrea clausis, crudéle martýrium diu sustínuit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+OB hæc et ália fórtiter gesta, sanctitátis ejus fama longe latéque diffúsa est. Qua permótus Gregórius nonus, in amplíssimum sanctæ Románæ Ecclésiæ cardinálium collégium Raymúndum adscrípsit. Sed vir Dei, in ea dignitáte ab omni pompa abhórrens, religiósæ humilitátis tenacíssimus semper fuit. Romam vero pergens, statim ac Cardónam pervénit, extrémo morbo conféctus, ecclesiásticis sacraméntis muníri summis précibus postulávit. Cumque morbus ingravésceret et sacérdos diútius tardáret, Angelórum ministério, sub spécie religiosórum sui órdinis apparéntium, salutári Viático reféctus fuit. Quo sumpto et grátiis Deo peráctis, migrávit ad Dóminum Domínica última Augústi anno millésimo ducentésimo quadragésimo. Mórtui corpus, cum circa locum sepultúræ conténtio orta esset, arcæ inclúsum et mulæ cæcæ impósitum, ad sacéllum sancti Nicolái, Dei nutu, delátum fuit, ut ibi tumularétur ubi prima jécerat sanctióris vitæ fundaménta. Illic, constrúcto sui órdinis cœnóbio, a confluéntibus voti causa ex univérsa Cataláunia fidélibus pópulis honorátur, váriis miráculis et signis gloriósus.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+RAymúndus, Nonnátus cognoménto dictus, quia prǽter commúnem natúræ legem e mórtuæ matris dissécto látere in lucem edúctus fuit, puériles ludos mundíque illécebras réspuens, ita pietáti óperam dabat, ut omnes in púero adúltam virtútem admiraréntur. Dei Matrem, quam sédulo deprecabátur, summópere

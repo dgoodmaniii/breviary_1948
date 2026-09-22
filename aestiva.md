@@ -21811,3 +21811,53 @@ DEus, qui beátum Philíppum Confessórem tuum sanctórum glória sublimásti: c
 **Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
 
 ℣. Justus ut palma.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Eleuthérium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedéntis ac S. Joánnis I Papæ et Mart.}
+
+---
+
+### Die 27 Maji
+
+#### S. Bedæ Venerabilis
+
+{RUBRIC: Conf. et Eccl. Doct. [94] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Beda, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio
+
+DEus, qui Ecclésiam tuam beáti Bedæ Confessóris tui atque Doctóris eruditióne clarificas: concéde propítius fámulis tuis; ejus semper illustrári sapiéntia et méritis adjuvári. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui beátum Philíppum Confessórem tuum sanctórum glória sublimásti: concéde propítius; ut, cujus solemnitáte lætámur, ejus virtútum proficiámus exémplo. Per Dóminum.
+
+{RUBRIC: Deinde Commem. S. Joánnis I Papæ et Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Joánnem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [87]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+BEda présbyter, Girvi in Británniæ et Scótiæ fínibus ortus, septénnis sancto Benedícto Biscópio abbáti Wiremuthénsi educándus tráditur. Mónachus deínde

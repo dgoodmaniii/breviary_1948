@@ -13912,3 +13912,84 @@ SICUT consúmitur nubes et pertránsit, sic qui descénderit ad ínferos non asc
 *Cap. 9, 1-17*
 
 ET respóndens Job ait: Vere scio quod ita sit, et quod non justificétur homo compósitus Deo. Si volúerit conténdere cum eo, non póterit ei respondére unum pro mille. Sápiens corde est et fortis róbore. Quis réstitit ei, et pacem hábuit? Qui tránstulit montes, et nesciérunt hi quos subvértit in furóre suo.
+
+℟. Si bona suscépimus de manu Dei, mala autem quare non sustineámus? \* Dóminus dedit, Dóminus ábstulit; sicut Dómino plácuit, ita factum est: sit nomen Dómini benedíctum. ℣. Nudus egréssus sum de útero matris meæ et nudus revértar illuc. — Dóminus.
+
+##### Lectio ii
+
+QUI cómmovet terram de loco suo, et colúmnæ ejus concutiúntur; qui præcípit soli, et non óritur, et stellas claudit quasi sub signáculo; qui exténdit cælos solus, et gráditur super fluctus maris; qui facit Arctúrum et Oríona et Hýadas et interióra Austri; qui facit magna et incomprehensibília et mirabília, quorum non est númerus.
+
+℟. Antequam cómedam suspíro, et tamquam inundántes aquæ sic rugítus meus; quia timor, quem timébam, evénit mihi, et quod verébar áccidit. Nonne dissimulávi? nonne sílui? nonne quiévi? \* Et venit super me indignátio. ℣. Ecce non est auxílium mihi in me, et necessárii quoque mei recessérunt a me. — Et.
+
+##### Lectio iii
+
+SI vénerit ad me, non vidébo eum; si abíerit, non intélligam; si repénte intérroget, quis respondébit ei vel quis dícere potest: Cur ita facis? Deus, cujus iræ nemo resístere potest, et sub quo curvántur qui portant orbem; quantus ergo sum ego, ut respóndeam ei, et loquar verbis meis cum eo? Qui, étiam si habúero quíppiam justum, non respondébo, sed meum júdicem deprecábor. Et, cum invocántem exaudíerit me, non credo quod audíerit vocem meam. In túrbine enim cónteret me, et multiplicábit vúlnera mea, étiam sine causa.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro Morálium sancti Gregórii Papæ}
+
+##### Lectio iv
+*Liber 9, cap. 2*
+
+VERE scio quod ita sit, et quod non justificábitur homo compósitus Deo. Homo quippe Deo non compósitus justítiam pércipit, compósitus amíttit; quia quisquis se auctóri bonórum cómparat, bono se, quod accéperat, privat. Qui enim accépta bona sibi árrogat, suis contra Deum donis pugnat. Unde ergo despéctus erígitur, dignum est ut eréctus inde destruátur. Sanctus autem vir, quia omne virtútis nostræ méritum esse vítium cónspicit, si ab intérno árbitro distrícte judicétur, recte subjúngit: Si volúerit conténdere cum eo, non póterit respondére ei unum pro mille.
+
+℟. Indúta est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est: \* Meménto mei, Dómine, quóniam ventus est vita mea. ℣. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. — Meménto.
+
+##### Lectio v
+
+IN Scriptúra sancta millenárius númerus pro universitáte solet intélligi. Hinc étenim Psalmísta ait: Verbi, quod mandávit in mille generatiónes: cum profécto constet, quod ab ipso mundi exórdio usque ad Redemptóris advéntum per Evangelístam non ámplius quam septuagínta et septem propágines numeréntur. Quid ergo in millenário número nisi ad proferéndam novam sóbolem perfécta universitas præscítæ generatiónis exprímitur? Hinc et per Joánnem dícitur: Et regnábunt cum eo mille annis; quia vidélicet regnum sanctæ Ecclésiæ universitátis perfectióne solidátur.
+
+℟. Páucitas diérum meórum finiétur brevi; dimítte me, Dómine, ut plangam páululum dolórem meum, \* Antequam vadam ad terram tenebrósam et opértam mortis calígine. ℣. Manus tuæ, Dómine, fecérunt me, et plasmavérunt me totum in circúitu; et sic repénte præcípitas me? — Antequam.
+
+##### Lectio vi
+
+QUIA vero monas décies multiplicáta in denárium dúcitur, denárius per semetípsum ductus in centenárium dilatátur, qui rursus per denárium ductus in millenárium ténditur; cum ab uno incípimus, ut ad millenárium veniámus, quid hoc loco uníus appellatióne, nisi bene vivéndi inítium? quid millenárii númeri amplitúdine, nisi ejúsdem bonæ vitæ perféctio designátur? Cum Deo autem conténdere, est, non ei tribúere, sed sibi glóriam suæ virtútis arrogáre. Sed sanctus vir conspíciat, quia et qui summa jam dona percépit, si de accéptis extóllitur, cuncta quæ accéperat, amíttit.
+
+℟. Non abscóndas me, Dómine, a fácie tua: manum tuam longe fac a me, \* Et formído tua non me térreat. ℣. Córripe me, Dómine, in misericórdia, non in furóre tuo, ne forte ad níhilum rédigas me. — Et. Glória Patri. Et.
+
+℟. vii Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et.
+
+℟. viii Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam II Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 27, 1-15*
+
+ADDIDIT quoque Job, assúmens parábolam suam, et dixit: Vivit Deus, qui ábstulit judícium meum, et Omnípotens, qui ad amaritúdinem addúxit ánimam meam. Quia, donec súperest hálitus in me, et spíritus Dei in náribus meis, non loquéntur lábia mea iniquitátem, nec lingua mea meditábitur mendácium. Absit a me, ut justos vos esse júdicem; donec defíciam, non recédam ab innocéntia mea.
+
+℟. Versa est in luctum cíthara mea, et órganum meum in vocem fléntium: \* Parce mihi, Dómine, nihil enim sunt dies mei. ℣. Cutis mea denigráta est super me, et ossa mea aruérunt. — Parce.
+
+##### Lectio ii
+
+JUSTIFICATIÓNEM meam, quam cœpi tenére, non déseram; neque enim reprehéndit me cor meum in omni vita mea. Sit ut ímpius inimícus meus, et adversárius meus quasi iníquus. Quæ est enim spes hypócritæ, si aváre rápiat, et non líberet Deus ánimam ejus? Numquid Deus áudiet clamórem ejus, cum vénerit super eum angústia? Aut póterit in Omnipoténte delectári, et invocáre Deum omni témpore?
+
+℟. Utinam appenderéntur peccáta mea, quibus iram mérui, \* Et calamítas, quam pátior, in statéra. ℣. Quasi aréna maris hæc grávior apparéret, unde et verba mea dolóre sunt plena. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+DOCÉBO vos per manum Dei quæ Omnípotens hábeat, nec abscóndam. Ecce vos omnes nostis, et quid sine causa vana loquímini? Hæc est pars hóminis ímpii apud Deum, et heréditas violentórum, quam ab Omnipoténte suscípient: si multiplicáti fúerint fílii ejus, in gládio erunt, et nepótes ejus non saturabúntur pane; qui réliqui fúerint ex eo sepeliéntur in intéritu, et víduæ illíus non plorábunt.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+---
+
+## Feria Tertia infra Hebdomadam II Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 28, 12-28*
+
+SAPIÉNTIA ubi invenítur? et quis est locus intelligéntiæ? Nescit homo prétium ejus, nec invenítur in terra suáviter vivéntium. Abýssus dicit: Non est in me, et mare lóquitur: Non est mecum. Non dábitur aurum obrízum pro ea, nec appendétur argéntum in commutatióne ejus; non conferétur tinctis Indiæ colóribus, nec lápidi sardónycho pretiosíssimo vel sapphíro.
+
+℟. Indúta est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est: \* Meménto mei, Dómine, quóniam ventus est vita mea. ℣. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. — Meménto.

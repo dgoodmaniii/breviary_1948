@@ -22546,4 +22546,44 @@ Te Deum laudámus.
 
 ###### Oratio
 
-DEus, qui beátam Margarítam regínam exímia in páuperes caritáte mirábilem effecísti: da; ut ejus intercessióne et exémplo, tua in córdibus
+DEus, qui beátam Margarítam regínam exímia in páuperes caritáte mirábilem effecísti: da; ut ejus intercessióne et exémplo, tua in córdibus nostris cáritas júgiter augeátur. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 11 Junii
+
+#### S. Barnabæ Apostoli
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], præter Oratiónem et Lectiónes, ut infra.}
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Tradent enim vos \* in concíliis, et in synagógis suis flagellábunt vos, et ante reges et præsides ducémini propter me in testimónium illis, et géntibus.
+
+###### Oratio
+
+DEus, qui nos beáti Bárnabæ Apóstoli tui méritis et intercessióne lætíficas: concéde propítius; ut, qui tua per eum benefícia póscimus, dono tuæ grátiæ consequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis :}
+
+**Ant.** Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+℣. Diffúsa est grátia.
+
+{RUBRIC: Oratio Deus, qui beátam, ut supra. 606}
+
+##### In I Nocturno
+
+{RUBRIC: De Actibus Apostolórum}
+
+#### Lectio i
+
+*Cap. 13, 43-52*
+
+CUM dimíssa esset synagóga, secúti sunt multi Judæórum et coléntium advenárum, Paulum et Bárnabam; qui loquéntes suadébant eis ut permanérent in grátia Dei. Sequénti vero sábbato pene univérsa cívitas convénit audíre verbum Dei. Vidéntes autem turbas Judǽi, repléti sunt zelo et contradicébant his, quæ a Paulo dicebántur, blasphemántes. Tunc constánter Paulus et Bárnabas dixérunt: Vobis oportébat primum loqui verbum Dei; sed, quóniam repéllitis illud et indígnos vos judicátis ætérnæ vitæ, ecce convértimur ad gentes; sic enim præcépit nobis Dóminus: Pósui te in lucem géntium, ut sis in salútem usque ad extrémum terræ.
+
+℟. Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus: \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte.

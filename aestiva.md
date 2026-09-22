@@ -27031,4 +27031,40 @@ DEfúncto rege Dionýsio, sicut virgínibus in prima ætáte, in matrimónio con
 
 #### Lectio ix
 
-ELísabeth Aragóniæ régibus orta est anno Christi millésimo ducentésimo septuagésimo primo. Natális ejus lætítia perniciósas avi patrísque dissensiónes in concórdiam convértit, ex quo statim pátuit, quam felix regum regnorúmque esset futúra pacátrix. In castigándo
+ELísabeth Aragóniæ régibus orta est anno Christi millésimo ducentésimo septuagésimo primo. Natális ejus lætítia perniciósas avi patrísque dissensiónes in concórdiam convértit, ex quo statim pátuit, quam felix regum regnorúmque esset futúra pacátrix. In castigándo córpore, in précibus assídue recitándis, in caritátis opéribus exercéndis admirábilis fuit. Dionýsio Lusitániæ regi in matrimónium trádita, non minórem excoléndis virtútibus quam líberis educándis óperam dabat, viro placére studens, sed magis Deo. Monastéria, collégia et templa non modo exstrúxit, sed étiam magnífice dotávit. In regum discórdiis componéndis admirábilis fuit, in privátis publicísque mortálium sublevándis calamitátibus indeféssa et miráculis clara. Defúncto rege Dionýsio, cum hábitum Seráphici órdinis induísset, quidquid sibi carum aut pretiósum supérerat, pro regis ánima templo Compostelláno óbtulit, et in sacros ac pios usus convértit. Dénique reges duos, fílium et génerum, pacificatúra, morbo ex itínere contrácto, a Vírgine Deípara visitáta, sanctíssime óbiit. Eam, miráculis claram, Urbánus octávus inter Sanctos adscrípsit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est regnum cælórum, ~~de Communi non Virginum~~ 1 loco. [134]}
+
+##### Ad Laudes
+
+###### Capitulum
+
+*Prov. 31, 10-11*
+
+MUlíerem fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+
+###### Hymnus
+
+OPes decúsque régium relíqueras,
+Elísabeth, Dei dicáta númini:
+Recépta nunc beáris inter Angelos;
+Libens ab hóstium tuére non dolis.
+
+Præi, viámque, dux salútis, índica:
+Sequémur. O sit una mens fidélium,
+Odor bonus sit omnis áctio, tuis
+Id ínnuit rosis opérta cáritas.
+
+Beáta cáritas, in arce síderum
+Potens locáre nos per omne sæculum:
+Patríque, Filióque summa glória,
+Tibíque laus perénnis, alme Spíritus.
+Amen.
+
+℣. Méritis et précibus beátæ Elísabeth. ℟. Propítius esto, Dómine, pópulo tuo.
+
+**Ad Bened. Ant.** Tu glória Jerúsalem, \* tu lætítia

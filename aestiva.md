@@ -27654,4 +27654,20 @@ DEus, qui nos beáti Aléxii Confessóris tui ánnua solemnitáte lætíficas: c
 
 #### Lectio iv
 
-ALéxius, Románórum nobilíssimus, própter eximium Jesu Christi amórem prima nocte nuptiárum peculiári Dei mónitu relínquens intáctam sponsam, illústrium orbis terræ ecclésiárum peregrinatiónem suscépit. Quibus in itinéribus cum ignótus se-
+ALéxius, Románórum nobilíssimus, própter eximium Jesu Christi amórem prima nocte nuptiárum peculiári Dei mónitu relínquens intáctam sponsam, illústrium orbis terræ ecclésiárum peregrinatiónem suscépit. Quibus in itinéribus cum ignótus septémdecim annos fuísset, aliquándo apud Edéssam, Sýriæ urbem, per imáginem sanctíssimæ Maríæ Vírginis, ejus nómine divulgáto, inde navi discéssit. Ad portum Románum appúlsus, a patre suo tamquam aliénus pauper hospítio accípitur; apud quem, ómnibus incógnitus, cum decem et septem annos vixísset, relícto scripto sui nóminis, sánguinis, ac totíus vitæ cursus, migrávit in cælum, Innocéntio primo summo Pontífice.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+Ex libro Morálium sancti Gregórii Papæ
+
+*Liber 10, cap. 16, in c. 12 Job*
+
+#### Lectio v
+
+DEridétur justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus tégere, sensum verbis veláre: quæ falsa sunt, vera osténdere; quæ vera sunt, falsa demonstráre. Hæc nimírum prudéntia usu a juvénibus scitur, hæc a púeris prétio díscitur: hanc qui sciunt, céteros despiciéndo supérbiunt: hanc qui nésciunt, subjécti et tímidi in áliis mirántur; quia ab eis hæc éadem duplicitátis iníquitas, nómine palliáta, dilígitur, dum mentis pervérsitas urbánitas vocátur. Hæc sibi obsequéntibus præcípit honórum cúlmina quærere, adépta temporális glóriæ vanitáte gaudére, irrogáta ab áliis mala multiplícius réddere: cum vires súppetunt, nullis resisténtibus cédere; cum virtútis possibílitas deest, quidquid explére per malítiam non valent, hoc in pacífica bonitáte simuláre.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+AT contra, sapiéntia justórum est: nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quærere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mun-

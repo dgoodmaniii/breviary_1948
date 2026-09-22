@@ -33204,4 +33204,63 @@ QUid enim ille díceret, nisi quo plenus erat? et quid illi respondérent, nisi 
 
 #### Lectio ix
 
-SAbína, múlier Romána, Valentíni viri claríssimi uxor, a Seráphia vírgine christiánæ fídei præcéptis institúta, post sanctæ Vírginis martýrium, colléctas ejus relíquias piis exséquiis sepelívit. Quæ propter eam causam paulo post, Hadriáno imperatóre, comprehénsa, Elpídio júdici sístitur. Cui is: Tu ne illa Sabína et génere et matrimónio nobilíssima? At illa, Sum, inquit: sed Dómino meo Jesu Christo grátias ago, qui me, intercessióne Seráphiæ fámulæ suæ, e dǽmonum potestáte liberávit. Quam várie tentátam, ut propósitum mutáret, cum a fídei constántia movére non posset, præféctus, pronuntiáta senténtia quod deos contémneret, cápitis damnávit. Ejus corpus a Christiánis in eódem se-
+SAbína, múlier Romána, Valentíni viri claríssimi uxor, a Seráphia vírgine christiánæ fídei præcéptis institúta, post sanctæ Vírginis martýrium, colléctas ejus relíquias piis exséquiis sepelívit. Quæ propter eam causam paulo post, Hadriáno imperatóre, comprehénsa, Elpídio júdici sístitur. Cui is: Tu ne illa Sabína et génere et matrimónio nobilíssima? At illa, Sum, inquit: sed Dómino meo Jesu Christo grátias ago, qui me, intercessióne Seráphiæ fámulæ suæ, e dǽmonum potestáte liberávit. Quam várie tentátam, ut propósitum mutáret, cum a fídei constántia movére non posset, præféctus, pronuntiáta senténtia quod deos contémneret, cápitis damnávit. Ejus corpus a Christiánis in eódem sepúlcro cónditum est, in quo ipsa magístram fídei suæ Seráphiam posúerat.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Heródes enim ténuit \* et ligávit Joánnem et pósuit in cárcerem propter Herodíadem.
+
+**2** Dómine mi rex, \* da mihi in disco caput Joánnis Baptístæ.
+
+**3** Puéllæ saltánti \* imperávit mater: Nihil áliud petas, nisi caput Joánnis.
+
+**4** Arguébat \* Heródem Joánnes propter Herodíadem, quam túlerat fratri suo Philíppo uxórem.
+
+**5** Da mihi in disco \* caput Joánnis Baptístæ. Et contristátus est rex propter jusjurándum.
+
+#### Capitulum
+
+*Jac. 1, 12*
+
+BEátus vir, qui suffert tentatiónem: quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+#### Hymnus
+
+INvícte Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tædium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vinclis sǽculi,
+Dono supérni Núminis.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum.
+Amen.
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+**Ad Bened. Ant.** Misso Heródes \* spiculatóre, præcépit amputári caput Joánnis in cárcere. Quo audíto, discípuli ejus venérunt, et tulérunt corpus ejus, et posuérunt illud in monuménto.
+
+#### Oratio
+
+SAncti Joánnis Baptístæ Præcursóris et Mártyris tui, quǽsumus, Dómine, veneránda festívitas: salutáris auxílii nobis prǽstet efféctum: Qui vivis.
+
+{RUBRIC: Pro Commem. S. Sabínæ Mart.:}
+
+**Ant.** Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætér-

@@ -20853,3 +20853,33 @@ SI dispensátor iníqui mammónæ, dómini voce laudátur, quod de re iníqua si
 ### In Dominicis Augusti
 
 ℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+DEnique post parábolam íntulit: Et ego vobis dico, Fácite vobis amícos de iníquo mammóna. Mammóna autem non Hebræórum, sed Syrórum lingua divítiæ nuncupántur, quod de iniquitáte colléctæ sint. Si ergo iníquitas bene dispensáta vértitur in justítiam: quanto magis sermo divínus, in quo nulla est iníquitas, qui et Apóstolis créditus est, si bene fúerit dispensátus, dispensatóres suos levábit in cælum?
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+QUam ob rem séquitur: Qui fidélis est in mínimo, hoc est, in carnálibus; et in multis fidélis erit, hoc est, in spirituálibus. Qui autem in parvo iníquus est, ut non det frátribus ad uténdum, quod a Deo pro ómnibus est creátum; iste et in spirituáli pecúnia dividénda iníquus erit, ut non pro necessitáte, sed pro persónis doctrínam Dómini dívidat. Si autem, inquit, carnáles divítias, quæ labúntur, non bene dispensátis; veras æternásque divítias doctrínæ Dei quis credet vobis?
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Ait dóminus víllico: \* Quid hoc áudio de te? redde ratiónem villicatiónis tuæ, allelúja.
+
+### Oratio
+
+LArgíre nobis, quæsumus, Dómine, semper spíritum cogitándi quæ recta sunt, propítius et agéndi: ut, qui sine te esse non póssumus, secúndum te vívere valeámus. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Quid fáciam, \* quia dóminus meus aufert a me villicatiónem? Fódere non váleo, mendicáre erubésco. Scio quid fáciam, ut, cum amótus fúero a villicatióne, recípiant me in domos suas.
+
+---

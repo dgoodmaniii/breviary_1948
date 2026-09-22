@@ -27573,3 +27573,21 @@ DEus, qui beatíssimæ semper Vírginis et Genitrícis tuæ Maríæ singulári t
 ℣. Justum dedúxit.
 
 {RUBRIC: Oratio ut supra.}
+
+##### Ad Matutinum
+
+{RUBRIC: In I Nocturno Lectiones Ego sapiéntia. [179]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+CUm sacra Pentecóstes die Apóstoli, cælitus afflári, váriis linguis loqueréntur, et, invocáto augustíssimo Jesu nómine, mira multa patrárent; viri plúrimi (ut fertur), qui vestígiis sanctórum Prophetárum Elíæ ac Eliséi institérant, et Joánnis Baptístæ præcónio ad Christi advéntum comparáti fúerant, rerum veritáte perspécta atque probáta, evangélicam fidem conféstim amplexáti sunt, ac peculiári quodam afféctu beatíssimam Vírginem (cujus collóquiis ac familiaritáte felíciter frui potuére) ádeo veneráti cœpérunt, ut primi ómnium in eo montis Carméli loco, ubi Elías olim ascendéntem nébulam, Vírginis typo insígnem, conspéxerat, eídem puríssimæ Vírgini sacéllum construxérint.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion: quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+#### Lectio v
+
+AD novum ergo sacéllum sæpe quotídie conveniéntes, rítibus piis, precatiónibus ac láudibus beatíssimam Vírginem, velut singulárem órdinis tutélam, colébant. Quam ob rem fratres beátæ Maríæ de Monte Carmélo passim ab ómnibus appellári cœpérunt; eúmque títulum summi Pontífices non modo confirmárunt, sed et indulgéntias peculiáres iis, qui eo título vel órdinem vel fratres síngulos nuncupárent, concessére. Nec vero nomenclatúram tantum magnificentíssima Virgo tríbuit et tutélam, verum et insígne sacri scapuláris; quod beáto Simóni Anglico præbuit, ut cælésti hac veste ordo ille sacer dignoscerétur, et a malis ingruéntibus protegerétur. Ac demum, cum olim in Európa ordo esset ignótus, et ob id apud Honórium tértium non pauci pro illíus exstinctióne instárent, ástitit Honório noctu piíssima Virgo María, planéque jussit, ut institútum et hómines benígne complecterétur.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formó-

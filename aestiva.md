@@ -28267,4 +28267,24 @@ DEus, fidélium remunerátor animárum, qui hunc diem beáti Apollináris Sacerd
 
 {RUBRIC: Deinde Commem. S. Liborii Ep. et Conf.:}
 
-**Ant.** Sacérdos et Póntifex, et virtútum ópifex,
+**Ant.** Sacérdos et Póntifex, et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DA, quæsumus, omnípotens Deus: ut beáti Libórii Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+APollináris cum Príncipe Apostolórum Antiochía Romam venit; a quo, ordinátus epíscopus, Ravénnam ad Christi Dómini Evangélium prædicándum míttitur; ubi, cum ad Christi fidem plúrimos convérteret, captus ab idolórum sacerdótibus, gráviter cæsus est. Cumque ipso oránte Bonifátius nóbilis vir, qui diu mutus fúerat, loquerétur, ejúsque fília immúndo spíritu liberáta esset, íterum est in illum commóta sedítio. Itaque virgis cæsus, ardéntes carbónes nudis pédibus premere cógitur; quem cum subjéctus ignis nihil lǽderet, ejícitur extra urbem.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+#### Lectio v
+
+IS vero latens aliquámdiu cum quibúsdam Christiánis, inde proféctus est in Æmíliam, ubi Rufíni patrícii fíliam mórtuam ad vitam revocávit; ut proptérea tota Rufíni família in Jesum Christum créderet. Quare veheménter incénsus præféctus accérsit Apollinárem, et cum eo grávius agit, ut finem fáciat dissemínándi in urbe Christi fidem. Cujus cum Apollináris jussa negligéret, equúleo cruciátur; in cujus plagas aqua fervens infúnditur, saxóque os túnditur: mox férreis vínculis constríctus inclúditur in cárcere. Quarto die impósitus in navem, míttitur in exsílium; ac facto naufrágio venit in Mýsiam, inde ad ripam Danúbii, póstea in Thráciam.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.

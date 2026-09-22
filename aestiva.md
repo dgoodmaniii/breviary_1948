@@ -29372,4 +29372,59 @@ QUǽrimus, quis iste sit Zacharías fílius Barachíæ: quia multos légimus Zac
 
 #### Lectio ix
 
-ALii istum volunt esse Zacharíam, qui occísus est a Joas rege Judæ inter templum et altáre, sicut Regum narrat história. Sed observándum, quod ille Zacharías non sit fílius Barachíæ, sed fílius Jójadæ sacerdótis: unde et Scríptúra refert: Non fuit recordátus Joas patris ejus Jójadæ, quia sibi fecísset bona. Cum ergo et Zacha-
+ALii istum volunt esse Zacharíam, qui occísus est a Joas rege Judæ inter templum et altáre, sicut Regum narrat história. Sed observándum, quod ille Zacharías non sit fílius Barachíæ, sed fílius Jójadæ sacerdótis: unde et Scríptúra refert: Non fuit recordátus Joas patris ejus Jójadæ, quia sibi fecísset bona. Cum ergo et Zachariam teneámus et occisiónis conséntiat locus: quǽrimus, quare Barachíæ dicátur fílius, et non Jójadæ? Barachía lingua nostra Benedíctus Dómini dícitur, et sacerdótis Jójadæ justítia Hebrǽo nómine demonstrátur. In Evangélio, quo utúntur Nazaréni, pro fílio Barachíæ, fílium Jójadæ reperímus scriptum.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+**Ant. 1** Lapidavérunt Stéphanum, \* et ipse invocábat Dóminum, dicens: Ne státuas illis hoc peccátum.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Lápides torréntis \* illi dulces fuérunt: ipsum sequúntur omnes ánimæ justæ.
+
+**3** Adhǽsit ánima mea \* post te, quia caro mea lapidáta est pro te, Deus meus.
+
+**4** Stéphanus vidit \* cælos apértos, vidit, et introívit: beátus homo, cui cæli patébant.
+
+**5** Ecce vídeo \* cælos apértos, et Jesum stantem a dextris virtútis Dei.
+
+###### Capitulum
+
+*Act. 6, 8*
+
+STéphanus autem plenus grátia et fortitúdine faciébat prodígia et signa magna in pópulo.
+
+###### Hymnus
+
+INvícte Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tædium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vinclis sǽculi
+Dono supérni Núminis.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc, et per omne sǽculum.
+Amen.
+
+℣. Sepeliérunt Stéphanum viri timoráti. ℟. Et fecérunt planctum magnum super eum.
+
+**Ad Bened. Ant.** Stéphanus autem \* plenus grátia et fortitúdine, faciébat signa magna in pópulo.
+
+###### Oratio
+
+DA nobis, quǽsumus, Dómine, imitári quod cólimus: ut discámus et inimícos dilígere; quia ejus Inventiónem celebrámus, qui novit étiam pro persecutóribus exoráre Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit et regnat.
+
+{RUBRIC: Ad Horas Antiphona et Psalmi de Feria. Sicubi autem hoc Festum sub ritu duplici I vel

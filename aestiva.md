@@ -30462,4 +30462,48 @@ NEque étenim in univérso mundo tanta fidélium messis exsúrgeret, si de manu 
 
 #### Lectio ix
 
-SIgna autem eos qui creditúri sunt, hæc sequéntur: In nómine meo dæmónia ejícient, linguis loquéntur novis, serpéntes tollent: et si mortíferum quid bíberint, non eis nocébit: super ægros manus impónent, et bene habébunt. Numquídnam, fra-
+SIgna autem eos qui creditúri sunt, hæc sequéntur: In nómine meo dæmónia ejícient, linguis loquéntur novis, serpéntes tollent: et si mortíferum quid bíberint, non eis nocébit: super ægros manus impónent, et bene habébunt. Numquídnam, fratres mei, quia ista signa non fácitis, mínime créditis? Sed hæc necessária in exórdio Ecclésiæ fuérunt. Ut enim ad fidem crésceret multitúdo credéntium, miráculis fúerat nutriénda: quia et nos, cum arbústa plantámus, támdiu eis aquam infúndimus, quoúsque ea in terra jam coaluísse videámus: et si semel radícem fíxerint, irrigátio cessábit. Hinc est enim quod Paulus dicit: Linguæ in signum sunt non fidélibus, sed infidélibus.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+###### Oratio
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum Cyríaci, Largi, et Smarágdi solemnitáte lætíficas: concéde propítius; ut quorum natalítia cólimus, virtútem quoque passiónis imitémur. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis et S. Románi Martyris.}
+
+---
+
+### Die 9 Augusti
+
+#### S. Joannis Mariæ Vianney
+
+{RUBRIC: Conf. [94]}
+
+{RUBRIC: Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Simílabo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+OMnípotens et miséricors Deus, qui sanctum Joánnem Maríam pastoráli stúdio et jugi oratiónis ac pœniténtiæ ardóre mirábilem effecísti: da, quǽsumus; ut, ejus exémplo et intercessióne, ánimas fratrum lucrári Christo, et cum eis ætérnam glóriam cónsequi valeámus. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Gaudent in cælis ánimæ sanctórum, qui Christi vestígia sunt secúti: et, quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+℣. Exsultábunt Sancti.
+
+**Oratio** Deus, qui nos ánnua, {RUBRIC: ut supra.}
+
+{RUBRIC: Deinde Commem. S. Románi Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit:

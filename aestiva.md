@@ -32154,4 +32154,16 @@ FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placér
 
 #### Lectio iv
 
-BErnárdus, Fontánis in Burgúndia honésto loco natus, adoléscens propter egrégiam formam veheménter sollicitátus a muliéribus, numquam de senténtia coléndæ castitátis dimovéri pótuit. Quas diáboli tentatiónes ut effúgeret, duos et vigínti annos natus, monastérium Cisterciénse, unde hic ordo incépit et quod tum sanctitáte florébat, íngredi constítuit. Quo Bernárdi consílio cógnito, fratres summópere conáti sunt eum a propósito deterrére. In quo ipse eloquéntior ac felícior fuit; nam sic eos aliósque multos in suam perdúxit senténtiam, ut cum eo trigínta júvenes eámdem religiónem suscéperint. Mónachus, jejúnio ita déditus
+BErnárdus, Fontánis in Burgúndia honésto loco natus, adoléscens propter egrégiam formam veheménter sollicitátus a muliéribus, numquam de senténtia coléndæ castitátis dimovéri pótuit. Quas diáboli tentatiónes ut effúgeret, duos et vigínti annos natus, monastérium Cisterciénse, unde hic ordo incépit et quod tum sanctitáte florébat, íngredi constítuit. Quo Bernárdi consílio cógnito, fratres summópere conáti sunt eum a propósito deterrére. In quo ipse eloquéntior ac felícior fuit; nam sic eos aliósque multos in suam perdúxit senténtiam, ut cum eo trigínta júvenes eámdem religiónem suscéperint. Mónachus, jejúnio ita déditus erat, ut quóties suméndus esset cibus, tóties torméntum subíre viderétur. In vigíliis étiam et oratiónibus mirífice se exercébat; et, christiánam paupertátem colens, quasi cæléstem vitam agébat in terris, ab omni caducárum rerum cura et cupiditáte aliénam.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+ELucébat in eo humílitas, misericórdia, benígnitas. Contemplatióni autem sic addíctus erat, ut vix sénsibus, nisi ad offícia pietátis, uterétur: in quibus tamen prudéntiæ laude excellébat. Quo in stúdio occupátus, Genuénsem ac Mediolanénsem aliósque episcopátus oblátos recusávit, proféssus se tanti offícii múnere indígnum esse. Abbas factus Claravallénsis, multis in locis ædificávit monastéria, in quibus præclára Bernárdi institútio ac disciplína diu víguit. Romæ sanctórum Vincéntii et Anastásii monastério, ab Innocéntio secúndo Papa restitúto, præfécit abbátem illum, qui póstea Eugénius tértius summus Póntifex fuit; ad quem étiam librum misit de Consideratióne.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+#### Lectio vi
+
+MUlta prætérea scripsit, in quibus appáret eum doctrína pótius divínitus trádita quam labóre comparáta instrúctum fuísse. In summa virtútum laude exorátus a máximis princípibus de eórum componéndis controvérsiis et de ecclesiásticis rebus constituéndis, sǽpius in Itáliam venit. Innocéntium item secúndum Pontíficem máximum in confutándo schísmate Petri Leónis, cum apud imperatórem et Henrícum Angliæ regem, tum in concílio Pisis coácto, egrégie adjúvit. Dénique, tres et sexagínta annos natus, obdormívit in Dómino, ac, miráculis illústris, ab Alexándro tértio Papa inter Sanctos relátus est. Pius vero octávus Póntifex má-

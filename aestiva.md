@@ -19988,4 +19988,32 @@ JUsti autem in perpétuum vivent, et apud Dóminum est merces eórum et cogitát
 
 *Cap. 6, 1-13*
 
-MElior est sapiéntia quam vires, et vir prudens quam fortis. Audíte ergo, reges, et intellígite; díscite, júdices fínium terræ; præbéte aures, vos qui continétis multitúdines et placétis vobis in turbis natiónum; quóniam data est a Dó-
+MElior est sapiéntia quam vires, et vir prudens quam fortis. Audíte ergo, reges, et intellígite; díscite, júdices fínium terræ; præbéte aures, vos qui continétis multitúdines et placétis vobis in turbis natiónum; quóniam data est a Dómino potéstas vobis, et virtus ab Altíssimo, qui interrogábit ópera vestra et cogitatiónes scrutábitur; quóniam, cum essétis minístri regni illíus, non recte judicástis nec custodístis legem justítiæ neque secúndum voluntátem Dei ambulástis.
+
+℟. Præbe, fili, cor mihi, et óculi tui vias meas custódiant: \* Ut addátur grátia cápiti tuo. ℣. Atténde, fili mi, sapiéntiam meam et ad elóquium meum inclína aurem tuam. — Ut.
+
+##### Lectio ii
+
+HOrrénde et cito appárébit vobis, quóniam judícium duríssimum his qui præsunt fiet. Exíguo enim concéditur misericórdia; poténtes autem poténter torménta patiéntur; non enim subtráhet persónam cujúsquam Deus nec verébitur magnitúdinem cujúsquam; quóniam pusíllum et magnum ipse fecit, et æquáliter cura est illi de ómnibus; fortióribus autem fórtior instat cruciátio.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+AD vos ergo, reges, sunt hi sermónes mei, ut discátis sapiéntiam et non excidátis. Qui enim custodíerint justa juste, justificabúntur et, qui didícerint ista, invénient quid respóndeant. Concupíscite ergo sermónes meos, dilígite illos et habébitis disciplínam. Clara est et quæ numquam marcéscit sapiéntia et fácile vidétur ab his qui díligunt eam et invenítur ab his qui quǽrunt illam.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro Sapiéntiæ}
+
+##### Lectio i
+
+*Cap. 7, 1-14*
+
+SUM quidem et ego mortális homo símilis ómnibus et ex génere terréni illíus, qui prior factus est, et in ventre matris figurá-

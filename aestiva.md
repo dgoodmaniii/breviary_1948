@@ -33551,4 +33551,20 @@ Te Deum laudámus.
 
 ℣. Amávit eum Dóminus.
 
-**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+COncéde, quǽsumus, Ecclésiæ tuæ, omnípotens Deus: ut beátum Stéphanum Confessórem tuum, quem regnántem in terris propagatórem hábuit, propugnatórem habére mereátur gloriósum in cælis. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+STéphanus in Hungáriam Christi fidem et régium nomen invéxit. Régia corónam a Románo Pontífice impetráta, ejúsque jussu in regem inúnctus, regnum Sedi apostólicæ óbtulit. Vária pietátis domicília Romæ, Jerosólymis, Constantinópoli; in Hungária archiepiscopátum Strigoniénsem, episcopátus decem admirábili religióne et munificéntia fundávit. Par in páuperes amor et liberálitas, quos véluti Christum ipsum compléctens, néminem a se mæréntem ac vácuum umquam dimísit; quin ad eórum inópiam sublevándam, amplíssimis facultátibus erogátis, doméstica quoque supelléctilem exímia benignitáte frequénter distríbuit. Suis ínsuper mánibus laváre páuperum pedes, noctu solus et ignótus nosocómia frequentáre, decumbéntibus inservíre ac cétera caritátis offícia exhibére consuévit. Quarum virtútum mérito, illíus déxtera, resolúto cétero córpore, incorrúpta permánsit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+ORándi stúdio noctes pene totas ducébat insómnes; atque in cæléstium rerum contemplatióne defíxus, intérdum extra sensus raptus, sublímis in áëra ferri visus fuit. Perduéllium conspiratiónes ac validórum hóstium ímpetus, miro prorsus modo, non semel oratiónis præsídio evitávit. Suscéptum ex Ghisélla Bavárica, sancti Henríci imperatóris soróre, quam sibi matrimónio junxerat, Emerícum fílium tanta morum discíplina talíque pietáte enutrívit, quantum ejus póstea sánctitas declarávit. Regni vero ne-

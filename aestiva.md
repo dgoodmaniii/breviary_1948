@@ -29334,4 +29334,30 @@ QUibus audítis Jerosolymórum antístes, finitimárum úrbium epíscopis presby
 
 #### Lectio vi
 
-AD aquas Tibilitánas, epíscopo afferénte Projécto relíquias Mártyris gloriosíssimi Stéphani, ad ejus memóriam veniébat magnæ multitúdinis concúrsus et occúrsus. Ibi cæca múlier, ut ad epíscopum portántem pígnora sacra
+AD aquas Tibilitánas, epíscopo afferénte Projécto relíquias Mártyris gloriosíssimi Stéphani, ad ejus memóriam veniébat magnæ multitúdinis concúrsus et occúrsus. Ibi cæca múlier, ut ad epíscopum portántem pígnora sacra ducerétur, orávit: flores, quos ferébat, dedit; recépit, óculis admóvit, prótinus vidit. Stupéntibus qui áderant, præíbat exsúltans, viam carpens et viæ ducem ultérius non requírens. Memoráti memóriam Mártyris, quæ pósita est in castéllo Synicénsi, quod Hipponénsi colóniæ vicínum est, ejúsdem loci Lucíllus epíscopus, pópulo præcedénte atque sequénte, portábat; fístula, cujus moléstia jámdiu laboráverat, et familiaríssimi sui médici, qui eam secáret, opperiebátur manus, illíus piæ sárcinæ vectatióne repénte sanáta est.
+
+℟. Impii super justum jactúram fecérunt, ut eum morti tráderent: \* At ille gaudens suscépit lápides, ut mererétur accípere corónam glóriæ. ℣. Continuérunt aures suas, et ímpetum fecérunt unanímiter in eum. — At. Glória Patri. At.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+SAnctórum córpora Stéphani Protomártyris, Gamaliélis, Nicodémi et Abibónis, suavíssimum odórem manántia, a Joánne Jerosolymitárum antístite invénta sunt prope Jerosólymam. Cujus rei fama commóta, magna hóminum multitúdo eo convénit, multíque ex váriis morbis ægróti ac débiles, sani et íntegri domum rediérunt. Sacrum autem sancti Stéphani corpus, quod summa tunc celebritáte in sanctam ecclésiam Sion illátum est, sub Theodósio juníore Constantinópolim, inde Romam, Pelágio primo summo Pontífice, translátum, in agro Veráno in sepúlcro sancti Lauréntii Mártyris collocátum est.
+
+Te Deum laudámus.
+
+##### In III Nocturno
+
+**Léctio sancti Evangélii secúndum Matthæum**
+
+#### Lectio vii
+
+*Cap. 23, 34-39*
+
+IN illo témpore: Dicébat Jesus scribis et pharisǽis: Ecce ego mitto ad vos prophétas, et sapiéntes, et scribas: et ex illis occidétis, et crucifigétis. Et réliqua.
+
+**Homilía sancti Hierónymi Presbýteri**
+
+{RUBRIC: Liber 4 Comment. in cap. 23 Matthæi}
+
+HOC quod ántea díximus, Impléte mensúram patrum vestrórum; ad persónam Dómini pertinére, eo quod

@@ -14377,4 +14377,72 @@ DOMINUS ac Redémptor noster per Evangélium suum aliquándo verbis, aliquándo 
 
 ##### Lectio ii
 
-QUID arbor fici, nisi humánam natúram desígnat? Quid múlier inclináta, nisi eámdem natúram significándo denúntiat? Quæ et bene plantáta est sicut ficus, et bene creáta sicut múlier; sed in culpam própria sponte lapsa, neque fructum servat operatiónis, neque statum rectitúdinis. Ad peccátum quippe ex voluntáte córruens, quia fructum obediéntiæ ferre nóluit, statum rectitúdinis amísit. Quæ ad Dei similitúdinem
+QUID arbor fici, nisi humánam natúram desígnat? Quid múlier inclináta, nisi eámdem natúram significándo denúntiat? Quæ et bene plantáta est sicut ficus, et bene creáta sicut múlier; sed in culpam própria sponte lapsa, neque fructum servat operatiónis, neque statum rectitúdinis. Ad peccátum quippe ex voluntáte córruens, quia fructum obediéntiæ ferre nóluit, statum rectitúdinis amísit. Quæ ad Dei similitúdinem cóndita, dum in sua dignitáte non pérstitit, quod plantáta vel creáta fúerat, serváre contémpsit. Tértio dóminus víneæ ad ficúlneam venit, quia natúram géneris humáni ante legem, sub lege, sub grátia, exspectándo, admonéndo, visitándo requisívit.
+
+℟. Omni témpore bénedic Deum, et pete ab eo ut vias tuas dírigat, \* Et in omni témpore consília tua in ipso permáneant. ℣. Inquíre ut fácias quæ plácita sunt illi in veritáte, et in tota virtúte tua. — Et.
+
+##### Lectio iii
+
+VENIT ante legem, quia per naturálem intelléctum quid unusquísque exémplo sui, quáliter erga próximum ágere debuísset, innótuit. Venit in lege, quia præcipiéndo dócuit. Venit post legem per grátiam, quia pietátis suæ præséntiam exhibéndo monstrávit. Sed tamen in tribus annis fructum se non invenísse conquéritur: quia quorúmdam pravórum mentes nec inspiráta lex naturális córrigit, nec præcépta erúdiunt, nec incarnatiónis ejus miracula convértunt. Quid vero per cultórem víneæ, nisi præpositórum ordo exprímitur? Qui dum præsunt Ecclésiæ, nimírum Domínicæ víneæ curam gerunt.
+
+℟. Memor esto, fili, quóniam páuperem vitam gérimus: \* Habébis multa bona, si timúeris Deum. ℣. In mente habéto eum, et cave nequándo prætermíttas præcépta ejus. — Habébis. Glória Patri. Habébis.
+
+##### AD LAUDES
+
+℣. Repléti sumus mane misericórdia tua. ℟. Exsultávimus, et delectáti sumus.
+
+**Ad Bened. Ant.** Illúmina, Dómine, \* sedéntes in ténebris et umbra mortis, et dírige pedes nostros in viam pacis.
+
+###### Oratio
+
+OMNÍPOTENS sempitérne Deus, qui per continéntiam salutárem córporibus medéris et méntibus: majestátem tuam súpplices exorámus; ut pia jejunántium deprecatióne placátus, et præséntia nobis subsídia tríbuas et futúra. Per Dóminum.
+
+{RUBRIC: Et dícitur usque ad Nonam inclusíve.}
+
+##### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Adonái, Dómine, \* Deus magne et mirábilis, qui dedísti salútem in manu féminæ, exáudi preces servórum tuórum.
+
+{RUBRIC: Oratio Dominicæ occurrentis.}
+
+---
+
+## Dominica IV Septembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Judith}
+
+##### Lectio i
+*Cap. 1, 1-10; 2, 1-3*
+
+ARPHÁXAD ítaque rex Medórum subjugáverat multas gentes império suo, et ipse ædificávit civitátem potentíssimam, quam appellávit Ecbátanis, ex lapídibus quadrátis et sectis. Fecit muros ejus in altitúdinem cubitórum septuagínta et in latitúdinem cubitórum trigínta; turres vero ejus pósuit in altitúdinem cubitórum centum. Per quadrum vero eárum latus utrúmque vicenórum pedum spátio tendebátur; posuítque portas ejus in altitúdinem túrrium; et gloriabátur quasi potens in poténtia exércitus sui et in glória quadrigárum suárum.
+
+℟. Adonái, Dómine, Deus magne et mirábilis, qui dedísti salútem in manu féminæ, \* Exáudi preces servórum tuórum. ℣. Benedíctus es, Dómine, qui non derelínquis præsuméntes de te, et de sua virtúte gloriántes humílias. — Exáudi.
+
+##### Lectio ii
+
+ANNO ígitur duodécimo regni sui Nabuchodónosor rex Assyriórum, qui regnábat in Nínive civitáte magna, pugnávit contra Arpháxad et obtínuit eum in campo magno qui appellátur Rágau, circa Euphráten et Tigrin et Jádason, in campo Erioch regis Elicórum. Tunc exaltátum est regnum Nabuchodónosor, et cor ejus elevátum est; et misit ad omnes qui habitábant in Cilícia et Damásco et Líbano, et ad gentes, quæ sunt in Carmélo et Cedar et inhabitántes Galilǽam in campo magno Esdrelon, et ad omnes qui erant in Samaría et trans flumen Jordánem usque ad Jerúsalem, et omnem terram Jesse, quoúsque perveniátur ad términos Æthiópiæ.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+##### Lectio iii
+
+AD hos omnes misit núntios Nabuchodónosor rex Assyriórum; qui omnes uno ánimo contradixérunt et remisérunt eos vácuos et sine honóre abjecérunt. Tunc indignátus Nabuchodónosor rex advérsus omnem terram illam, jurávit per thronum et regnum suum, quod defénderet se de ómnibus regiónibus his. Anno tértio décimo Nabuchodónosor regis, vigésima et secúnda die mensis primi factum est verbum in domo Nabuchodónosor regis Assyriórum, ut defénderet se. Vocavítque omnes majóres natu, omnésque duces et bellatóres suos, et hábuit cum eis mystérium consílii sui dixítque cogitatiónem suam in eo esse, ut omnem terram suo subjugáret império.
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros: \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+#### In II Nocturno
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Elía et jejúnio}
+
+##### Lectio iv
+*Cap. 9*
+
+POTÉNTES vinum prohibéntur bíbere, ne, cum bíberint, obliviscántur sapiéntiam. Dénique bibébant vinum in ebrietáte poténtes, qui Holoférni príncipi milítiæ regis Assyriórum se trádere gestiébant; sed non bibébat fémina Judith, jejúnans ómnibus diébus viduitátis suæ, præter festórum diérum solemnitátes. His armis muníta procéssit et omnem Assyriórum circumvénit exércitum. Sóbrii vigóre consílii ábstulit Holoférnis caput, servávit pudicítiam, victóriam reportávit.
+
+℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus: \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.

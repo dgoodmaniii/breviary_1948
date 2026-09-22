@@ -22474,4 +22474,38 @@ FAC nos, quǽsumus, Dómine, sanctórum Mártyrum tuórum Primi et Feliciáni se
 
 #### Lectio iii
 
-PRimus et Feliciánus fratres, in persecutióne Diocletiáni et Maximiáni accusáti christiánæ religiónis, in víncula conjiciúntur; quibus solúti, inde eripiúntur ab Angelo. Mox ad prætórem addúcti, cum christiánam fidem acérrime tueréntur, alter ab áltero distrácti sunt; ac primum várie tentáta est constántia Feliciáni. Sed, cum suasóres impietátis se posse quidquam verbis profícere desperárent, affíxis stípiti mánibus ejus et pédibus, ipsum sine cibo et potu inde tríduum pendéntem reliquérunt. Postrídie ejus diéi, prætor vocátum ad se Primum sic affátur: Vides quanto sit prudéntior, quam tu, frater tuus, qui obsecútus imperatóribus, apud ipsos est honorátus? Quem si tu quoque imitári volúeris, párticeps eris ejus honóris et grátiæ. Cui Primus: Quid factum sit fratri meo, cognóvi ex Angelo. Utinam, quemádmodum sum cum eo voluntáte conjunctíssimus, sic ab eódem ne martýrio disjúngar. Quo dicto
+PRimus et Feliciánus fratres, in persecutióne Diocletiáni et Maximiáni accusáti christiánæ religiónis, in víncula conjiciúntur; quibus solúti, inde eripiúntur ab Angelo. Mox ad prætórem addúcti, cum christiánam fidem acérrime tueréntur, alter ab áltero distrácti sunt; ac primum várie tentáta est constántia Feliciáni. Sed, cum suasóres impietátis se posse quidquam verbis profícere desperárent, affíxis stípiti mánibus ejus et pédibus, ipsum sine cibo et potu inde tríduum pendéntem reliquérunt. Postrídie ejus diéi, prætor vocátum ad se Primum sic affátur: Vides quanto sit prudéntior, quam tu, frater tuus, qui obsecútus imperatóribus, apud ipsos est honorátus? Quem si tu quoque imitári volúeris, párticeps eris ejus honóris et grátiæ. Cui Primus: Quid factum sit fratri meo, cognóvi ex Angelo. Utinam, quemádmodum sum cum eo voluntáte conjunctíssimus, sic ab eódem ne martýrio disjúngar. Quo dicto excánduit prætor, et ad céteros cruciátus, quibus Primum affécit, præsénte jam Feliciáno, liquátum igne plumbum in os ejus jussit infúndi. Mox utrúmque perdúci ímperat in theátrum, in eósque immítti duos leónes; qui, prostráti ad eórum génua, cápite et cauda ipsis blandiebántur. Ad id spectáculum cum ámplius duódecim míllia hóminum conveníssent, quingénti cum suis famíliis christiánam religiónem suscepérunt. Quibus rebus permótus prætor, eos secúri pércuti jussit.
+
+Te Deum laudámus.
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+###### Oratio
+
+FAC nos, quǽsumus, Dómine, sanctórum Mártyrum tuórum Primi et Feliciáni semper festa sectári: quorum suffrágiis protectiónis tuæ dona sentiámus. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti.}
+
+---
+
+### Die 10 Junii
+
+#### S. Margaritæ
+
+{RUBRIC: Reginæ, Viduæ [130] Semiduplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+DEus, qui beátam Margarítam regínam exímia in páuperes caritáte mirábilem effecísti: da; ut ejus intercessióne et exémplo, tua in córdibus nostris cáritas júgiter augeátur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+MArgaríta, Scotórum regína, patérno Angliæ regum, matérno Cæsarum sánguine claríssima, illústrior adhuc fuit christiána virtúte. Hæc in Hungária nata, ubi pater tunc témporis exsulábat, post exáctam summa cum pietáte puerílem ætátem, una cum genitóre, qui a sancto Eduárdo pátruo, Anglórum rege, ad patérni regni fastígium vocabátur, in Angliam venit. Mox, alter-

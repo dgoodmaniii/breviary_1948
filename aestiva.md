@@ -30524,4 +30524,24 @@ JOánnes María Vianney, in pago Dárdilly, Diœcésis Lugdunénsis piis ruricú
 
 #### Lectio v
 
-IN pago Ecully, prǽeúnte párocho, cujus vicárius renuntiátus fúerat, potióres pastorális perfectiónis gradus totis víribus attíngere conténdit. Elápso triénnio, in vículum Ars, qui non ita multo post diœcési Bellicénsi adscríptus est, quasi Angelus de cælo fuit missus et omníno squaléntis ac desértæ suæ parœciæ fáciem florentíssime renovávit. In consciéntiis judicándis ac moderándis ad plúrimas horas quotídie assíduus, frequéntem Eucharístiæ usum invéxit, pias sodalitátes instaurávit: mirum autem in modum téneram in Immaculátam Vírginem ánimis pietátem índidit. Ratus
+IN pago Ecully, prǽeúnte párocho, cujus vicárius renuntiátus fúerat, potióres pastorális perfectiónis gradus totis víribus attíngere conténdit. Elápso triénnio, in vículum Ars, qui non ita multo post diœcési Bellicénsi adscríptus est, quasi Angelus de cælo fuit missus et omníno squaléntis ac desértæ suæ parœciæ fáciem florentíssime renovávit. In consciéntiis judicándis ac moderándis ad plúrimas horas quotídie assíduus, frequéntem Eucharístiæ usum invéxit, pias sodalitátes instaurávit: mirum autem in modum téneram in Immaculátam Vírginem ánimis pietátem índidit. Ratus vero pastóris esse, flagítia concréditæ plebis expiáre, nec oratiónibus, nec vigíliis, maceratiónibus et contínuis jejúniis parcébat. Tantam viri Dei virtútem cum Sátan ferre non posset, eum vexatiónibus primum, dein apérto certámine adórtus est; sed atrocíssimas afflictiónes patiénter tolerábat Joánnes María.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+INvitabátur sæpius a curiónibus vicínis ut, Missionariórum more, animárum salúti, qua conciónando, qua confessiónes excipiéndo consúleret et síngulis præsto semper erat. Stúdio glóriæ Dei incénsus, effécit, ut pia Missiónum exercítia in ámplius centum parœciis, constitúto perpétuo censu, institueréntur. Inter hæc, Deo servum suum miráculis et charismátibus illustránte, orta est célebris illa peregrinátio, qua, per vicénnium centum fere míllia hóminum cujúsque órdinis et ætátis, quotánnis Ars confluxerint non solum e Gálliæ et Európæ, sed étiam Américæ díssitis provínciis. Labóribus pótius quam sénio consúmptus, prænuntiáto suæ mortis die, in ósculo Dómini quiévit, die quarta Augústi, anno millésimo octingéntésimo quinquagésimo nono, annos natus tres ac septuagínta. Quem multis clarum miráculis, Pius décimus inter Beátos, Pius vero undécimus inter Sanctos cælítes anno sacro adscrípsit, ejúsque festum ad univérsam Ecclésiam exténdit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: In III Noct. Homilía in Ev. Sint lumbi vestri, de Communi Conf. non Pont. 1 loco. [98]}
+
+{RUBRIC: Pro Vigília S. Lauréntii Mart.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio ix
+
+*Cap. 16, 24-27*
+
+IN illo témpore: Dixit Jesus discípulis suis: Si quis vult post me veníre, ábneget semetípsum, et tollat crucem suam, et sequátur me. Et réliqua.

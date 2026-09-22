@@ -23032,4 +23032,30 @@ UNivérsa illíus ópera, tam spléndido doctrínæ lúmine referta, effecérunt
 
 #### Lectio ix
 
-EPhrǽm, génere Syrus, Nisibéno patre natus est. Adhuc júvenis ad sanctum Jacóbum epíscopum se cóntulit, a quo baptizátus, brevi ita sanctitáte et doctrína profécit, ut in schola Nísibi, Mesopotámiæ urbe, florénte magíster fúerit constitútus. Edessénæ Ecclésiæ diáconus ordinátus et ob humilitátem sacerdótium recúsans, ómnium virtútum splendóre enítuit, et pietátem et religiónem vera sapiéntiæ professióne sibi comparáre satégit. Univérsa illíus ópera, tam spléndido doctrínæ lúmine reférta, effecérunt, ut idem Sanctus, adhuc vivens, tamquam Ecclésiæ Doctor, magno honóre hábitus fúerit. In mirífica ac pia devotióne erga Vírginem immaculátam primum excélluit. Méritis
+EPhrǽm, génere Syrus, Nisibéno patre natus est. Adhuc júvenis ad sanctum Jacóbum epíscopum se cóntulit, a quo baptizátus, brevi ita sanctitáte et doctrína profécit, ut in schola Nísibi, Mesopotámiæ urbe, florénte magíster fúerit constitútus. Edessénæ Ecclésiæ diáconus ordinátus et ob humilitátem sacerdótium recúsans, ómnium virtútum splendóre enítuit, et pietátem et religiónem vera sapiéntiæ professióne sibi comparáre satégit. Univérsa illíus ópera, tam spléndido doctrínæ lúmine reférta, effecérunt, ut idem Sanctus, adhuc vivens, tamquam Ecclésiæ Doctor, magno honóre hábitus fúerit. In mirífica ac pia devotióne erga Vírginem immaculátam primum excélluit. Méritis plenus, Edéssæ in Mesopotámia, décimo quarto Kaléndas Júlii, decéssit sub Valénte príncipe: eúmque Benedíctus Papa décimus quintus, ex sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctórem declarávit.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+Homilía sancti Ephrǽm Syri, Diáconi
+
+*Sermo de vita et exercitatione monastica*
+
+PRæclárum est bonum inchoáre atque perfícere, et gratum Deo esse et útilem próximo, ipsíque summo ac dulcíssimo rectóri nostro Christo Jesu placére, qui ait: Vos estis sal terræ, et colúmna cælórum. Labor afflictiónis tuæ, dilectíssime, tamquam somnus est; porro labóris réquies inenarrábilis atque inæstimábilis. Atténde ergo tibi ipsi sollícite, ne utrúmque páriter amíttas, dum néutrum plene persequéris, præséntem scílicet sempiternámque lætítiam. Stude pótius perféctam virtútem cónsequi, ornátam atque insignítam ómnibus quæ díligit Deus. Hanc si assequáris, numquam irritábis Deum neque próximum tuum violábis.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+POrro virtus ista, única uniúsque speciéi dícitur, variárum virtútum in se ipsa habens pulchritúdinem. Diadéma régium absque pretiósis lapídibus candentibúsque margarítis conécti texíque non potest; ita et hæc única virtus sine variárum fulgóre virtútum constáre nequit. Est enim profécto simíllima diadémati régio. Nam, ut illi si lapis unus aut margaríta defúerit, in régio cápite lucére pléniter nequit; ita et hæc única virtus, nisi virtútum cete-

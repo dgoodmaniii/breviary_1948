@@ -28540,3 +28540,63 @@ VEre beáta es, ac ter beáta, quæ beatitúdine donátam a Deo infántem, hoc e
 {RUBRIC: Oratio Deus qui beátæ Annæ, ut supra. 800}
 
 {RUBRIC: In Vesperis non fit Commemoratio sequentis.}
+
+---
+
+### Die 27 Julii
+
+#### S. Pantaleonis
+
+{RUBRIC: Mart. [29] Simplex}
+
+#### Lectio iii
+
+PAntáleon Nicomediénsis, nóbilis médicus, ab Hermoláo presbýtero in Jesu Christi fide erudítus, baptizátus est. Qui mox patri Eustórgio persuásit, ut Christiánus fíeret. Quare, cum Nicomedíæ póstea Christi Dómini fidem líbere prædicáret, et ad ejus doctrínam, omnes cohortarétur, Diocletiáno imperatóre, equúleo tortus, et, admótis ad ejus corpus láminis candéntibus, cruciátus est. Quam tormentórum vim ǽquo et forti ánimo ferens, ad extrémum gládio percússus, martýrii corónam adéptus est.
+
+Te Deum laudámus.
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+###### Oratio C 4
+
+PRæsta, quæsumus, omnípotens Deus: ut, intercedénte beáto Pantaleóne Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti.}
+
+---
+
+### Die 28 Julii
+
+#### Ss. Nazarii et Celsi
+
+{RUBRIC: Mm.}
+
+#### Victoris I
+
+{RUBRIC: Papæ et Mart.}
+
+#### ac Innocentii I
+
+{RUBRIC: Papæ et Confessoris}
+
+{RUBRIC: Semiduplex}
+
+{RUBRIC: Capitulum et reliqua, quæ de Psalterio Feriæ non sunt sumenda, dicuntur de Communi plurimorum Martyrum [49], præter sequentia:}
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+###### Oratio
+
+SAnctórum tuórum nos, Dómine, Nazárii, Celsi, Victóris et Innocéntii conféssio beáta communiat: et fragilitáti nostræ subsídium dignánter exóret. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Fratres: Debitóres. [52]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+NAzárius, a beáto Lino Papa baptizátus, cum in Gálliam proféctus esset, ibi Celsum púerum, a se christiánis præcéptis prius instrúctum, baptizávit. Qui una Trévirim eúntes, Nerónis

@@ -20144,4 +20144,28 @@ SEd et fígulus mollem terram premens laborióse fingit ad usus nostros unumquó
 
 *Cap. 1, 1-16*
 
-OMnis sapiéntia a Dómino Deo est et cum illo fuit semper et est ante ævum. Arénam maris et plúviæ guttas et dies sæculi quis dinumerávit? Altitúdinem cæli et latitúdinem terræ et profúndum abýssi quis diménsus est? Sapiéntiam Dei præcedéntem ómnia quis investigávit? Prior ómnium creáta est sapiéntia, et intelléctus prudéntiæ ab ævo. Fons sapién-
+OMnis sapiéntia a Dómino Deo est et cum illo fuit semper et est ante ævum. Arénam maris et plúviæ guttas et dies sæculi quis dinumerávit? Altitúdinem cæli et latitúdinem terræ et profúndum abýssi quis diménsus est? Sapiéntiam Dei præcedéntem ómnia quis investigávit? Prior ómnium creáta est sapiéntia, et intelléctus prudéntiæ ab ævo. Fons sapiéntiæ Verbum Dei in excélsis, et ingréssus illíus mandáta ætérna.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+RAdix sapiéntiæ cui reveláta est? et astútias illíus quis agnóvit? Disciplína sapiéntiæ cui reveláta est et manifestáta? et multiplicatiónem ingréssus illíus quis intelléxit? Unus est altíssimus, Creátor omnípotens et Rex potens et metuéndus nimis, sedens super thronum illíus et dóminans, Deus. Ipse creávit illam in Spíritu Sancto et vidit et dinumerávit et mensus est. Et effúdit illam super ómnia ópera sua et super omnem carnem secúndum datum suum et præbuit illam diligéntibus se.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+##### Lectio iii
+
+TImor Dómini glória et gloriátio et lætítia et coróna exsultatiónis. Timor Dómini delectábit cor et dabit lætítiam et gáudium et longitúdinem diérum. Timénti Dóminum bene erit in extrémis et in die defunctiónis suæ benedicétur. Diléctio Dei honorábilis sapiéntia; quibus autem apparúerit in visu díligunt eam in visióne et in agnitióne magnálium suórum. Inítium sapiéntiæ timor Dómini et cum fidélibus in vulva concreátus est.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut. Glória Patri. Ut.
+
+#### In II Nocturno
+
+Ex libro Morálium sancti Gregórii Papæ
+
+*Liber 1, cap. 10 in cap. 1 Job*
+
+##### Lectio iv
+
+SUnt nonnúlli, qui vitam suam négligunt et, dum transitória áppetunt, dum

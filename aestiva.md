@@ -30583,3 +30583,51 @@ PRǽsta, quǽsumus, omnípotens Deus: ut, intercedénte beáto Románo Mártyre 
 {RUBRIC: Vesperæ de sequénti, Commemoratio præcedéntis.}
 
 ---
+
+## Die 10 Augusti
+
+# S. Laurentii Martyris
+
+{RUBRIC: DUPLEX II CLASSIS CUM OCTAVA SIMPLICI}
+
+### In I Vesperis
+
+**Ant. 1** Lauréntius \* ingréssus est Martyr, et conféssus est nomen Dómini Jesu Christi.
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi Apostolórum. [3]}
+
+**2** Lauréntius \* bonum opus operátus est, qui per signum crucis cæcos illumínavit.
+
+**3** Adhǽsit \* ánima mea post te, quia caro mea igne cremáta est pro te, Deus meus.
+
+**4** Misit Dóminus \* Angelum suum, et liberávit me de médio ignis, et non sum æstuátus.
+
+**5** Beátus Lauréntius \* orábat dicens: Grátias tibi ago, Dómine, quia jánuas tuas íngredi mérui.
+
+### In II Vesperis
+
+#### Psalmus 115
+
+CRédidi, propter quod locútus sum: \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo: \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam: \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus: \* pretiósa in conspéctu Dómini mors sanctórum ejus:
+
+O Dómine, quia ego servus tuus: \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Beátus Lauréntius orábat dicens: Grátias tibi ago, Dómine, quia jánuas tuas íngredi mérui.
+
+#### Capitulum
+
+*2 Cor. 9, 6*
+
+FRatres: Qui parce séminat, parce et metet; et qui séminat in benedictiónibus, de benedictiónibus et metet.

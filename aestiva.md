@@ -20937,3 +20937,43 @@ Te Deum laudámus.
 ### Oratio
 
 PAteant aures misericórdiæ tuæ, Dómine, précibus supplicántium: et, ut peténtibus desideráta concédas; fac eos, quæ tibi sunt plácita, postuláre. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Scriptum est enim: \* Quia domus mea domus oratiónis est cunctis géntibus; vos autem fecístis illam spelúncam latrónum. Et erat quotídie docens in templo.
+
+---
+
+## Dominica X post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+DEus, qui omnipoténtiam tuam parcéndo máxime et miserándo maniféstas: multíplica super nos misericórdiam tuam; ut ad tua promíssa curréntes, cæléstium bonórum fácias esse consórtes. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+##### Lectio vii
+
+*Cap. 18, 9-14*
+
+IN illo témpore: Dixit Jesus ad quosdam, qui in se confidébant tamquam justi et aspernabántur céteros, parábolam istam: Duo hómines ascendérunt in templum, ut orárent: unus pharisæus, et alter publicánus. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Sermo 36 de verbis Domini, circa medium*
+
+DIceret saltem pharisæus: Non sum sicut multi hómines. Quid est, céteri hómines, nisi omnes præter ipsum? Ego, inquit, justus sum, céteri peccatóres. Non sum sicut céteri hómines, injústi, raptóres, adúlteri. Et ecce tibi ex vicíno publicáno majóris tumóris occásio: Sicut, inquit, publicánus iste. Ego, inquit, solus sum: iste de céteris est. Non sum, inquit, talis, qualis iste, per justítias meas, quibus iníquus non sum.
+
+### Ante Dominicam I Augusti
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+### In Dominicis Augusti
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam

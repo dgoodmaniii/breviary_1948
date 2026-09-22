@@ -16428,3 +16428,32 @@ CUM egrederétur vir ad Oriéntem, qui habébat funículum in manu sua, et mensu
 ℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
 
 {RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+ET dixit ad me : Certe vidísti, fili hóminis. Et edúxit me et convértit ad ripam torréntis. Cumque me convertíssem, ecce in ripa torréntis ligna multa nimis ex utráque parte. Et ait ad me : Aquæ istæ, quæ egrediúntur ad túmulos sábuli Orientális et descéndunt ad plana desérti, intrábunt mare et exíbunt, et sanabúntur aquæ, et omnis ánima vivens quæ serpit, quocúmque vénerit torrens, vivet, et erunt pisces multi satis, postquam vénerint illuc aquæ istæ, et sanabúntur et vivent ómnia ad quæ vénerit torrens.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Muro tuo \* inexpugnábili circúmcinge nos, Dómine, et armis tuæ poténtiæ prótege nos semper.
+
+{RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica III Novembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Daniélis Prophétæ}
+
+##### Lectio i
+*Cap. 1, 1-15*
+
+ANno tértio regni Jóakim regis Juda venit Nabuchodónosor rex Babylónis in Jerúsalem et obsédit eam, et trádidit Dóminus in manu ejus Jóakim regem Juda et partem vasórum domus Dei, et asportávit ea in terram Sénnaar in domum dei sui et vasa íntulit in domum thesáuri dei sui. Et ait rex Asphenez præpósito eunuchórum, ut introdúceret de fíliis Israël et de sémine régio et tyrannórum púeros, in quibus nulla esset mácula, decóros forma et erudítos omni sapiéntia, cautos sciéntia et doctos disciplína et qui possent stare in palátio regis, ut docéret eos lítteras et linguam Chaldæórum.

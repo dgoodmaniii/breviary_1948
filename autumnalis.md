@@ -15111,3 +15111,32 @@ ET tubis exclamavérunt voce magna. Et post hæc constítuit Judas duces pópuli
 **Ad Magnif. Ant.** Refúlsit sol \* in clýpeos áureos, et resplenduérunt montes ab eis : et fortitúdo géntium dissipáta est.
 
 {RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica II Octobris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 4, 36-51*
+
+DIxit autem Judas et fratres ejus : Ecce contríti sunt inimíci nostri; ascendámus nunc mundáre sancta et renováre. Et congregátus est omnis exércitus, et ascendérunt in montem Sion, et vidérunt sanctificatiónem desértam et altáre profanátum et portas exústas et in átriis virgúlta nata, sicut in saltu vel in móntibus, et pastophória díruta. Et scidérunt vestiménta sua et planxérunt planctu magno et imposuérunt cínerem super caput suum et cecidérunt in fáciem super terram et exclamavérunt tubis signórum et clamavérunt in cælum.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem, et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+TUnc ordinávit Judas viros ut pugnárent advérsus eos, qui erant in arce, donec emundárent sancta. Et elégit sacerdótes sine mácula voluntátem habéntes in lege Dei, et mundavérunt sancta et tulérunt lápides contaminatiónis in locum immúndum. Et cogitávit de altári holocaustórum, quod profanátum erat, quid de eo fáceret. Et íncidit illis consílium bonum ut destrúerent illud, ne forte illis esset in oppróbrium, quia contaminavérunt illud gentes, et demolíti sunt illud et reposuérunt lápides in monte domus in loco apto, quoadúsque veníret prophéta et respondéret de eis.
+
+℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+##### Lectio iii
+
+ET accepérunt lápides íntegros secúndum legem et ædificavérunt altáre novum secúndum illud quod fuit prius et ædificavérunt sancta et quæ intra domum erant intrínsecus et ædem et átria sanctificavérunt et fecérunt vasa sancta nova et intulérunt candelábrum et altáre incensórum et mensam in templum et incénsum posuérunt super altáre et accendérunt lucérnas, quæ super candelábrum erant et lucébant in templo. Et posuérunt super mensam panes et appendérunt vela et consummavérunt ómnia ópera quæ fécerant.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.

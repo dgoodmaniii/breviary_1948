@@ -32854,4 +32854,14 @@ IN Urbe, summa vitæ asperitáte, vigíliis et jejúniis corpus affligens, in or
 
 #### Lectio vi
 
-QUamvis órdini univérso præésset, totísque víribus ad animárum salútem incúmberet, num-
+QUamvis órdini univérso præésset, totísque víribus ad animárum salútem incúmberet, numquam tamen intermísit púeros, præsértim pauperióres, erudíre, quorum scholas vérrere, eósque domum comitári consuévit. In eo summæ patiéntiæ et humilitátis múnere, valetúdine étiam infírma, duos et quinquagínta annos perseverávit; dignus proptérea, quem crebris Deus miráculis coram discípulis illustráret, et cui beatíssima Virgo cum púero Jesu, illis orántibus benedicénte, apparéret. Amplíssimis intérim dignitátibus repudiátis, prophetía, ábdita córdium et abséntia cognoscéndi donis et miráculis clarus, Deíparæ Vírginis, quam singulári pietáte et ipse ab infántia cóluit et suis máxime commendávit, aliorúmque Cǽlitum frequénti apparitióne dignátus, cum óbitus sui diem, et órdinis tunc prope evérsi restitutiónem atque increméntum prænuntiásset; secúndum et nonagésimum annum agens, Romæ obdormívit in Dómino, octávo Kaléndas Septémbris, anno millésimo sexcentésimo quadragésimo octávo. Ejus cor et lingua post sǽculum íntegra et incorrúpta repérta sunt. Ipse vero, multis post óbitum quoque signis a Deo illustrátus, primum, a Benedícto décimo quarto, Beatórum cultu decorátus fuit; ac deínde, a Cleménte décimo tértio, inter Sanctos solémniter est relátus.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOséphus Calasánctius, Petráltæ in Aragónia natus, adhuc párvulus ǽquáles ad se convocátos mystériis fídei et sacris précibus erudiébat. Sacérdos ex voto factus, summa vitæ asperitáte, vigíliis et jejúniis corpus afflígens, in oratióne et rerum cæléstium contemplatióne dies noctésque versabátur. Cum divínitus accepísset, se ad informándos intelligéntiæ ac pietátis spíritu adoléscentes, præcípue páuperes, destinári; órdinem Clericórum regulárium páuperum Matris Dei scholárum piárum fundávit, qui peculiárem curam de púeris erudién-

@@ -16233,3 +16233,82 @@ ET evúlsa est in ira in terrámque projécta, et ventus urens siccávit fructum
 ET factus est sermo Dómini ad me dicens : Fili hóminis, pone fáciem tuam ad Jerúsalem et stilla ad sanctuária et prophéta contra humum Israël et dices terræ Israël : Hæc dicit Dóminus Deus : Ecce ego ad te et ejíciam gládium meum de vagína sua et occídam in te justum et ímpium. Pro eo autem quod occídi in te justum et ímpium, idcírco egrediétur gládius meus de vagína sua ad omnem carnem ab Austro usque ad Aquilónem, ut sciat omnis caro quia ego Dóminus edúxi gládium meum de vagína sua irrevocábilem.
 
 ℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+
+ET tu, fili hóminis, ingemísce in contritióne lumbórum et in amaritúdinibus ingemísce coram eis; cumque díxerint ad te : Quare tu gemis? dices : Pro audítu, quia venit et tabéscet omne cor, et dissolvéntur univérsæ manus et infirmábitur omnis spíritus, et per cuncta génua fluent aquæ; ecce venit et fiet, ait Dóminus Deus. Et factus est sermo Dómini ad me dicens : Fili hóminis, prophéta et dices : Hæc dicit Dóminus Deus : Lóquere. Gládius, gládius exacútus est et limátus : ut cædat víctimas exacútus est, ut spléndeat limátus est; qui moves sceptrum fílii mei, succidísti omne lignum. Et dedi eum ad levigándum, ut teneátur manu; iste exacútus est gládius, et iste limátus est, ut sit in manu interficiéntis.
+
+℟. Aspice, Dómine, de sede sancta tua, et cógita de nobis : inclína, Deus meus, aurem tuam et audi : \* Aperi óculos tuos et vide tribulatiónem nostram. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Aperi.
+
+##### Lectio iii
+
+CLama et úlula, fili hóminis, quia hic factus est in pópulo meo, hic in cunctis dúcibus Israël qui fúgerant; gládio tráditi sunt cum pópulo meo, idcírco plaude super femur, quia probátus est, et hoc cum sceptrum subvérterit et non erit, dicit Dóminus Deus. Tu ergo, fili hóminis, prophéta et pércute manu ad manum, et duplicétur gládius ac triplicétur gládius interfectórum. Hic est gládius occisiónis magnæ, qui obstupéscere eos facit et corde tabéscere et multíplicat ruínas.
+
+℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.
+
+### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Hierónymi Presbýteri in Ezechiélem Prophétam}
+*Liber 7 in Ezechiel. cap. 21*
+
+##### Lectio iv
+
+QUia supra díxerat : Ipsi dicunt ad me : Numquid non per parábolas lóquitur iste? et apértam pópulus flagitábat senténtiam : idcírco id quod Dóminus per metáphoram, sive parábolam, et, ut álii vertére, provérbium, est locútus, nunc maniféstius lóquitur : saltus Nageb et Darom et Theman esse Jerúsalem, et templum illíus, sancta sanctórum et omnem terram Judǽæ; flammámque quæ combustúra sit saltum, intélligi gládium devorántem, qui edúctus sit de vagína sua, ut interfíciat justum et ímpium. Hoc est enim lignum víride, et lignum áridum. Unde et Dóminus : Si in ligno, ait, víridi tanta fáciunt, in sicco quid fácient?
+
+℟. Super muros tuos, Jerúsalem, constítui custódes : \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio v
+
+PRimum díxerat : Vaticináre, vel stilla ad Austrum, Africum et Merídiem et ad saltum Meridiánum. Quod quia videbátur obscúrum, et dicta Prophétæ pópulus nesciébat, secúndo pónitur maniféstius, saltum Meridiánum esse Jerúsalem : et omnes infructuósas árbores, ad quarum radíces secúris pósita sit, intélligi habitatóres ejus, gladiúmque interpretári pro incéndio. Tértio jubétur Prophétæ, ut tacéntibus illis nec interrogántibus cur ista vaticinátus sit, fáciat per quæ interrogétur, et respóndeat quæ Dóminus locútus est.
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine, et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+##### Lectio vi
+
+INgemísce, inquit, ejuláre non levi voce nec dolóre moderáto, sed in contritióne lumbórum, ut gémitus tuus ex imis viscéribus et amaritúdine ánimi proferátur. Et hoc fácies coram eis, ut cum te interrogáverint, cur tanto gémitu conteráris, et quid tibi mali accíderit, ut sic ingemíscas; tu eis meo sermóne respóndeas : Idcírco plango et dolórem cordis mei dissimuláre non váleo, quia audítus, qui semper meis áuribus insonúerat, ópere complétur et venit, ímminens vidélicet Babylónii furéntis exércitus; qui cum venérit et valláverit Jerúsalem, tunc tabéscet omne cor, et dissolvéntur univérsæ manus : ut occupánte pavóre mentes hóminum, nullus áudeat repugnáre.
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam II Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 33, 1-11*
+
+ET factum est verbum Dómini ad me dicens : Fili hóminis, lóquere ad fílios pópuli tui et dices ad eos : Terra, cum indúxero super eam gládium, et túlerit pópulus terræ virum unum de novíssimis suis et constitúerit eum super se speculatórem, et ille víderit gládium veniéntem super terram et cecinerit búccina et annuntiáverit pópulo; áudiens autem quisquis ille est sónitum búccinæ et non se observáverit, venerítque gládius et túlerit eum, sanguis ipsíus super caput ejus erit. Sonum búccinæ audívit et non se observávit, sanguis ejus in ipso erit; si autem se custodíerit, ánimam suam salvábit.
+
+℟. Redémit pópulum suum et liberávit eum, et vénient et exsultábunt in monte Sion et gaudébunt de bonis Dómini super fruménto, vino et óleo, \* Et ultra non esúrient. ℣. Erítque ánima eórum quasi hortus irríguus. — Et.
+
+##### Lectio ii
+
+QUod si speculátor víderit gládium veniéntem, et non insonúerit búccina, et pópulus se non custodíerit, venerítque gládius et túlerit de eis ánimam, ille quidem in iniquitáte sua captus est, sánguinem autem ejus de manu speculatóris requíram. Et tu, fili hóminis, speculatórem dedi te dómui Israël; áudiens ergo ex ore meo sermónem annuntiábis eis ex me. Si me dicénte ad ímpium : Impie, morte moriéris, non fúeris locútus, ut se custódiat ímpius a via sua, ipse ímpius in iniquitáte sua moriétur, sánguinem autem ejus de manu tua requíram.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+SI autem, annuntiánte te ad ímpium ut a viis suis convertátur, non fúerit convérsus a via sua, ipse in iniquitáte sua moriétur, porro tu ánimam tuam liberásti. Tu ergo, fili hóminis, dic ad domum Israël : Sic locúti estis dicéntes : Iniquitátes nostræ et peccáta nostra super nos sunt, et in ipsis nos tabéscimus : quómodo ergo vívere potérimus? Dic ad eos : Vivo ego, dicit Dóminus Deus, nolo mortem ímpii, sed ut convertátur ímpius a via sua et vivat. Convertímini, convertímini a viis vestris péssimis, et quare moriémini, domus Israël?
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Feria Tertia infra Hebdomadam II Novembris
+
+{RUBRIC: De Ezechiéle Prophéta}
+
+##### Lectio i
+*Cap. 34, 1-12*
+
+ET factum est verbum Dómini ad me dicens : Fili hóminis, prophéta de pastóribus Israël, prophéta et dices pastóribus : Hæc dicit Dóminus Deus : Væ pastóribus Israël, qui pascébant semetípsos! Nonne greges a pastóribus pascúntur? Lac comedébatis et lanis operiebámini et quod crassum erat occidebátis, gregem autem meum non pascebátis; quod infírmum fuit non consolidástis et quod ægrótum non sanástis, quod confráctum est non alligástis et quod abjéctum est non reduxístis et quod períerat non quæsístis, sed cum austeritáte imperabátis eis et cum poténtia.
+
+℟. A fácie furóris tui, Deus, conturbáta est omnis terra : \* Sed miserére, Dómine, et ne fácias consummatiónem. ℣. Dómine, Dóminus noster, quam admirábile est nomen tuum! — Sed.

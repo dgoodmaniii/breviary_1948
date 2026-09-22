@@ -33389,4 +33389,54 @@ Te Deum laudámus.
 
 #### Lectio ix
 
-FElix, Diocletiáno et Maximiáno imperatóribus, propter suscéptam Christi religiónem comprehénsus, in Serápidis templum addúctus est. Cui sacrificáre cum juberétur, os simulácri cónspuit; quo facto, statim ǽrea státua córruit. Quod cum íterum ac tértio in æde Mercúrii Diánæque factum esset, impietátis et mágicæ artis accusátus, equúleo torquétur. Mox ad secúndum ab Urbe lápidem via Ostiénsi dúcitur, ut secúri ferirétur. Cui inter viam oblátus quidam Christiánus, cum, Felícem agnóscens, ad martýrium duci vidéret, Ego quoque,
+FElix, Diocletiáno et Maximiáno imperatóribus, propter suscéptam Christi religiónem comprehénsus, in Serápidis templum addúctus est. Cui sacrificáre cum juberétur, os simulácri cónspuit; quo facto, statim ǽrea státua córruit. Quod cum íterum ac tértio in æde Mercúrii Diánæque factum esset, impietátis et mágicæ artis accusátus, equúleo torquétur. Mox ad secúndum ab Urbe lápidem via Ostiénsi dúcitur, ut secúri ferirétur. Cui inter viam oblátus quidam Christiánus, cum, Felícem agnóscens, ad martýrium duci vidéret, Ego quoque, clara voce inquit, eádem, qua iste, lege vivo; ego eúmdem Jesum Christum colo. Itaque Felícem osculátus, cum eo secúri percútitur, tértio Kaléndas Septémbris. Cujus nomen cum ignótum esset Christiánis, is Adáucti nómine nobilitátus est, quod sancto Mártyri Felíci adáuctus sit ad corónam.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+#### Oratio
+
+BOnórum ómnium largítor, omnípotens Deus, qui beátam Rosam, cæléstis grátiæ rore prævéntam, virginitátis et patiéntiæ decóre Indis floréscere voluísti: da nobis fámulis tuis; ut in odórem suavitátis ejus curréntes, Christi bonus odor éffici mereámur. Qui tecum.
+
+{RUBRIC: Et fit Commemor. Ss. Felícis et Adaucti Mm.:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+#### Oratio
+
+MAjestátem tuam, Dómine, súpplices exorámus: ut, sicut nos júgiter Sanctórum tuórum commemoratióne lætíficas; ita semper supplicatióne deféndas. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedéntis.}
+
+---
+
+## Die 31 Augusti
+
+# S. Raymundi Nonnati
+
+{RUBRIC: Confessoris [94]}
+
+{RUBRIC: Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+#### Oratio
+
+DEus, qui in liberándis fidélibus tuis ab impiórum captivitáte beátum Raymúndum Confessórem tuum mirábilem effecísti: ejus nobis intercessióne concéde; ut a peccatórum vínculis absolúti, quæ tibi sunt plácita, líberis méntibus exsequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+{RUBRIC: Oratio Bonórum ómnium, ut supra.}

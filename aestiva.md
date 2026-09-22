@@ -27740,4 +27740,14 @@ ROmam proféctus, in nosocomíum, quod Insanabílium dícitur, recéptus est; cu
 
 #### Lectio vi
 
-ARctióribus hisce vínculis ægrotántium ministério mancipátus, mirum est qua alacritáte, nullis fractus labóribus, nullis detérritus vitæ perículis, diu noctúque ad suprémum usque spíritum, eórum cómmodis vigiláverit. Omnibus ómnia factus, vilíssima quæque offícia demissíssimo obséquio flexísque plerúmque génibus, véluti Christum
+ARctióribus hisce vínculis ægrotántium ministério mancipátus, mirum est qua alacritáte, nullis fractus labóribus, nullis detérritus vitæ perículis, diu noctúque ad suprémum usque spíritum, eórum cómmodis vigiláverit. Omnibus ómnia factus, vilíssima quæque offícia demissíssimo obséquio flexísque plerúmque génibus, véluti Christum ipsum cérneret in infírmis, hílari promptóque ánimo arripiébat; utque ómnium indigéntiis præsto esset, generálem órdinis præfectúram, cælíque delícias quibus in contemplatióne defíxus affluébat, sponte dimísit. Patérnus vero illíus erga míseros amor tum máxime effúlsit, dum et Urbs contagióso morbo primum, deínde extréma annónæ laboráret inópia, et Nolæ in Campánia dira pestis grassarétur. Tanta dénique in Deum et próximum caritáte exársit, ut ángelus nuncupári, et Angelórum opem in vário itínerum discrímine experíri promererétur. Prophetíæ dono et grátia sanitátum præditus, arcána quoque córdium inspéxit; ejúsque précibus nunc cibária multiplicáta sunt, nunc aqua in vinum convérsa. Tandem vigíliis, jejúniis et assíduis attrítus labóribus, cum pelle tantum et óssibus constáre vidérétur, quinque moléstis æque ac diútinis morbis, quos misericórdias Dómini appellábat, fórtiter tolerátis, sacraméntis munítus, Romæ, inter suavíssima Jesu et Maríæ nómina, ad ea verba: Mitis atque festívus Christi Jesu tibi aspéctus appáreat; qua prædíxerat hora, obdormívit in Dómino, prídie Idus Júlii, anno salútis millésimo sexcentésimo décimo quarto, ætátis suæ sexagésimo quinto. Quem, plúribus illústrem miráculis, Benedíctus décimus quartus solémni ritu Sanctórum fastis adscrípsit; et Leo décimus tértius, ex Sacrórum cathólici orbis antístitum voto ac Rítuum Congregatiónis consúlto, cæléstem ómnium hospitálium et infirmórum ubíque degéntium patrónum declarávit, ipsiúsque nomen in agonizántium litaníis invocári præcépit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+CAmíllus Bucclánici, in Theatínæ diœcésis óppido, ex nóbili Lelliórum família natus, adoléscens rem militárem secútus, sæculi vítiis aliquámdiu indúlsit. Divínæ tamen offénsæ dolóre corréptus,

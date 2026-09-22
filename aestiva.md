@@ -23074,4 +23074,62 @@ Te Deum laudámus.
 
 #### Lectio ix
 
-ADépti sunt quidam hujúsmodi virtútem, ipsámque velut régium diadéma conseréntes, multum ex ea ornaménti cepérunt. Póstmodum vero, vilíssimæ rei cujúslibet grátia virtútem ádeo illústrem deduxérunt ad níhilum. Alligáta enim est illórum mens terrenárum rerum curis, atque vínculis hujúsmodi præpedíta virtus cælum intráre non pótuit. Vigilánter ítaque cave, dilécte mi, ne, teípsum his néxibus vínciens, inimíco ad prædam páteas; neque mirábilem illam clarissimámque virtútem amíttas quam tanto labóre quæsiísti, neque illam prohíbeas cæléstes íngredi jánuas, neque rubóre confúsam ante thálamum státuas, neque capíllo uno humi affígi permíttas. Cé-
+ADépti sunt quidam hujúsmodi virtútem, ipsámque velut régium diadéma conseréntes, multum ex ea ornaménti cepérunt. Póstmodum vero, vilíssimæ rei cujúslibet grátia virtútem ádeo illústrem deduxérunt ad níhilum. Alligáta enim est illórum mens terrenárum rerum curis, atque vínculis hujúsmodi præpedíta virtus cælum intráre non pótuit. Vigilánter ítaque cave, dilécte mi, ne, teípsum his néxibus vínciens, inimíco ad prædam páteas; neque mirábilem illam clarissimámque virtútem amíttas quam tanto labóre quæsiísti, neque illam prohíbeas cæléstes íngredi jánuas, neque rubóre confúsam ante thálamum státuas, neque capíllo uno humi affígi permíttas. Céterum da illi líberam fidúciam vocémque excélsam, ut exsúltans intróeat thálamum, ac sublími voce sua prǽmia répetat.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui Ecclésiam tuam beáti Ephrǽm Confessóris tui et Doctóris mira eruditióne et præcláris vitæ méritis illustráre voluísti: te súpplices exorámus; ut, ipso intercedénte, eam advérsus erróris et pravitátis insídias perénni tua virtúte deféndas. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Ss. Marci et Marcelliani :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+PRæsta, quǽsumus, omnípotens Deus: ut, qui sanctórum Mártyrum tuórum Marci et Marcelliáni natalítia cólimus; a cunctis malis imminéntibus, eórum intercessiónibus liberémur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedéntis ac Ss. Gervasii et Protasii Mm.}
+
+---
+
+### Die 19 Junii
+
+#### S. Julianæ de Falconeriis
+
+{RUBRIC: Virginis [111] Duplex}
+
+##### In I Vesperis
+
+**Capit.** *2 Cor. 10, 17-18*
+
+FRatres: Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+###### Hymnus
+
+CÆléstis Agni núptias,
+O Juliána, dum petis,
+Domum patérnam déseris,
+Chorúmque ducis Vírginum.
+
+Sponsúmque suffíxum cruci
+Noctes diésque dum gemis,
+Dolóris icta cúspide
+Sponsi refers imáginem.
+
+Quin septifórmi vúlnere
+Fles ad genu Deíparæ:
+Sed crescit infúsa fletu,
+Flammásque tollit cáritas.
+
+Hinc morte fessam próxima
+Non usitáto te modo

@@ -30252,4 +30252,52 @@ SAlvatórem exspectámus Dóminum nostrum Jesum Christum, qui reformábit corpus
 
 **Capitulum** *2 Cor. 3, 18*
 
-NOS omnes reveláta fácie glóriam Dómini speculántes, in eámdem
+NOS omnes reveláta fácie glóriam Dómini speculántes, in eámdem imáginem transformámur a claritáte in claritátem, tamquam a Dómini Spíritu.
+
+{RUBRIC: ℟. br. Glória et honóre coronásti eum, Dómine, \* Allelúja, allelúja. Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Allelúja, allelúja. Glória Patri. Glória et.}
+
+℣. Magna est glória ejus in salutári tuo, allelúja. ℟. Glóriam et magnum decórem impónes super eum, allelúja.
+
+### Ad Nonam
+
+**Ant.** Adhuc eo loquénte, \* ecce nubes lúcida obumbrávit eos.
+
+**Capit.** *Apoc. 21, 10 et 23*
+
+SUstulit me in spíritu in montem magnum et altum, et osténdit mihi civitátem sanctam Jerúsalem, descendéntem de cælo a Deo, habéntem claritátem Dei; et lucérna ejus est Agnus.
+
+{RUBRIC: ℟. br. Magna est glória ejus in salutári tuo, \* Allelúja, allelúja. Magna. ℣. Glóriam et magnum decórem impónes super eum. Allelúja, allelúja. Glória Patri. Magna. ℣. Coróna áurea super caput ejus, allelúja. ℟. Expréssa signo sanctitátis, glóriæ et honóris, allelúja.}
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis, 838 præter Ant. ad Magnificat.}
+
+**Ad Magnif. Ant.** Et audiéntes \* discípuli cecidérunt in fáciem suam et timuérunt valde: et accéssit Jesus, et tétigit eos dixítque eis: Súrgite et nolíte timére, allelúja.
+
+{RUBRIC: Et fit Commemoratio tantum sequéntis.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+### Die 7 Augusti
+
+#### S. Cajetani
+
+{RUBRIC: Conf. [94]}
+
+{RUBRIC: Duplex}
+
+**Ant.** Quǽrite primum \* regnum Dei et justítiam ejus, et hæc ómnia adjiciéntur vobis.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, qui beáto Cajetáno Confessóri tuo apostólicam vivéndi formam imitári tribuísti: da nobis, ejus intercessióne et exémplo, in te semper confídere, et sola cæléstia desideráre. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+CAjetánus, nóbili Thienǽa gente Vicéntiæ ortus, statim a matre Deíparæ Vír-

@@ -25136,4 +25136,16 @@ Ex libro sancti Augustíni Epíscopi de grátia et líbero arbítrio
 
 *Cap. 6-7*
 
-APóstolus Paulus, quem certe invénimus sine ullis méritis bonis, immo cum multis méritis malis, Dei grátiam consecútum, reddéntis bona pro malis, videámus quid dicat, sua jam propinquánte passióne, scribens ad Timótheum: Ego enim jam ímmolor, inquit, et tempus resolutiónis meæ instat. Bonum certámen certávi, cursum consummávi, fidem servávi. Ista útique jam mérita sua bona commémorat; ut post bo-
+APóstolus Paulus, quem certe invénimus sine ullis méritis bonis, immo cum multis méritis malis, Dei grátiam consecútum, reddéntis bona pro malis, videámus quid dicat, sua jam propinquánte passióne, scribens ad Timótheum: Ego enim jam ímmolor, inquit, et tempus resolutiónis meæ instat. Bonum certámen certávi, cursum consummávi, fidem servávi. Ista útique jam mérita sua bona commémorat; ut post bona mérita consequátur corónam, qui post mérita mala consecútus est grátiam. Dénique atténdite quid sequátur: Súperest, inquit, mihi coróna justítiæ, quam reddet mihi Dóminus in illa die justus judex. Cui rédderet corónam justus judex, si non donásset grátiam miséricors Pater? Et quómodo esset ista coróna justítiæ, nisi præcessísset grátia, quæ justíficat ímpium? Quómodo ista débita redderétur nisi prius illa gratúita donarétur?
+
+℟. Tu es vas electiónis, sancte Paule Apóstole, prædicátor veritátis in univérso mundo: \* Per quem omnes Gentes cognovérunt grátiam Dei. ℣. Intercéde pro nobis ad Deum, qui te elégit. — Per.
+
+#### Lectio v
+
+PRoínde considerémus ipsa mérita Apóstoli Pauli, quibus dixit corónam redditúrum júdicem justum, et videámus utrum mérita ipsíus, tamquam ipsíus, id est, ex ipso ei comparáta, an dona sint Dei. Bonum, inquit, certámen certávi, cursum consummávi, fidem servávi. Primo ista bona ópera, si non ea præcessíssent cogitatiónes bonæ, nulla essent. Atténdite ítaque quid de ipsis cogitatiónibus dicat; ait enim scribens ad Corínthios: Non quia idónei sumus cogitáre áliquid a nobis tamquam a nobismetípsis; sed sufficiéntia nostra ex Deo est. Deínde síngula inspiciámus.
+
+℟. Grátia Dei sum id quod sum: \* Et grátia ejus in me vácua non fuit, sed semper in me manet. ℣. Qui operátus est Petro in apostolátum, operátus est et mihi inter Gentes. — Et.
+
+#### Lectio vi
+
+BOnum, inquit, certámen certávi. Quæro qua virtúte certáverit, utrum quæ illi ex semetípso fúerit, an quæ désuper data sit? Sed absit ut tantus doctor ignoráverit legem Dei, cujus vox est in Deuteronómio: Ne dicas in corde tuo: Fortitúdo mea et poténtia manus meæ fecit mihi virtútem magnam hanc; sed memoráberis Dómini, Dei tui, quia ipse tibi dat fortitúdinem fácere virtútem. Quid autem prodest bonum certámen, nisi sequátur victória? Et quis dat victóriam, nisi ille, de quo dicit ipse: Grátias Deo, qui dat nobis victóriam per Dóminum nostrum Jesum Christum?

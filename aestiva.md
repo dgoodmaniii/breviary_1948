@@ -27670,4 +27670,40 @@ DEridétur justi simplícitas. Hujus mundi sapiéntia est: cor machinatiónibus 
 
 #### Lectio vi
 
-AT contra, sapiéntia justórum est: nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quærere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mun-
+AT contra, sapiéntia justórum est: nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quærere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mundi sapiéntibus puritátis virtus fatúitas créditur. Omne enim quod innocénter ágitur, ab eis proculdúbio stultum putátur; et quidquid in ópere véritas ápprobat, carnáli sapiéntiæ fátuum sonat. Quid namque stúltius vidétur mundo quam mentem verbis osténdere, nil cállida machinatióne simuláre, nullas injúriis contumélias réddere, pro maledicéntibus oráre, paupertátem quærere, posséssa relínquere, rapiénti non resístere, percutiénti álteram maxíllam præbére?
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ecce nos relíquimus, de Communi Abbatum 1 loco. [107]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio C 1
+
+DEus, qui nos beáti Aléxii Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Com. præc. ac Ss. Symphorosæ et septem Filiórum ejus Mm.}
+
+---
+
+### Die 18 Julii
+
+#### S. Camilli de Lellis
+
+{RUBRIC: Confessoris [94] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEus, qui sanctum Camíllum, ad animárum in extrémo agóne luctántium subsídium, singulári caritátis prærogatíva decorásti: ejus, quæsumus, méritis spíritum nobis tuæ dilectiónis infúnde; ut in hora éxitus nostri hostem víncere, et ad cæléstem mereámur corónam perveníre. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúm-

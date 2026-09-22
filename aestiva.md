@@ -22328,4 +22328,14 @@ EX Anglia duóbus cum sóciis navem solvens, Dorestádium in Frísiæ óppidum v
 
 #### Lectio vi
 
-A Sancto Willibrórdo ad episcopále munus expetítus, illud detrectávit ut prómptius infidélium salúti instáret. In Germániam proféctus, plura Hassórum míllia a dǽmonis superstitióne avocávit. A Gregório Pontífice Romam evocátus, post insígnem fídei professiónem epíscopus consecrátur. Exínde ad Germános redux, Hássiam et Thuríngiam ad idololatríæ relíquiis pénitus expurgávit. Tanta propter mérita Bonifátius a Gregório tértio ad dignitátem archiepiscopálem evéhitur, et tértio Romam proféctus a summo Pontí-
+A Sancto Willibrórdo ad episcopále munus expetítus, illud detrectávit ut prómptius infidélium salúti instáret. In Germániam proféctus, plura Hassórum míllia a dǽmonis superstitióne avocávit. A Gregório Pontífice Romam evocátus, post insígnem fídei professiónem epíscopus consecrátur. Exínde ad Germános redux, Hássiam et Thuríngiam ad idololatríæ relíquiis pénitus expurgávit. Tanta propter mérita Bonifátius a Gregório tértio ad dignitátem archiepiscopálem evéhitur, et tértio Romam proféctus a summo Pontífice Sedis apostólicæ legátus constitúitur. Qua insignítus auctoritáte quátuor episcopátus instítuit, et várias sýnodos celebrávit, inter quas concílium Leptinénse memorábile est, apud Belgas in Cameracénsi diœcési celebrátum, quo quidem témpore ad fidem in Bélgio adaugéndam egrégie cóntulit. A Zacharía Papa creátus Moguntínus archiepíscopus, ipso Pontífice jubénte, Pipínum in regem Francórum unxit. Post mortem sancti Willibrórdi Ultrajecténsem ecclésiam gubernándam suscépit, primo per Eóbanum deínde per seípsum, dum ab ecclésia Moguntína absolútus Ultrajécti resédit. Frisónibus ad idololatríam relápsis, Evangélium prædicáre rursus aggréditur, cumque offício pastoráli occuparétur, a bárbaris et ímpiis homínibus juxta Bornam flúvium cum Eóbano coepíscopo multísque áliis cruénta cæde perémptus martýrii palma condecorátur. Corpus sancti Bonifátii Mogúntiam translátum, et, ut ipse vivens petíerat, in Fuldénsi monastério, quod exstrúxerat, recónditum fuit, ubi multis miráculis incláruit. Pius autem nonus, Póntifex máximus, ejus Offícium et Missam ad univérsam Ecclésiam exténdit.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et corónam. Glória Patri. Et corónam.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+BOnifátius, ántea Winfrídus appellátus, apud Anglos natus est exeúnte sæculo séptimo. Monastérium ingréssus et sacerdótio auctus, magno animárum lucro in prædicatóris múnere est versátus. Zelo augéndæ fídei accénsus, apud Frísones Evangélium prædicávit. In Angliam revérsus, cum per biénnium monastério sanctíssime præfuísset, superióris múnere abdicáto, Romam se cóntulit, ubi a Gregório secúndo Bonifátii nomen accépit, et in Germániam missus, Thuríngiæ Saxoniǽque pópulis Christum annuntiávit. Ad Frísones revérsus, cum sancto Willibrórdo, magno fructu Evangélium prædicávit. Mox Romam accersítus, episcopáli di-

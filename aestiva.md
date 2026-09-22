@@ -20565,3 +20565,31 @@ DEprecátio páuperis ex ore usque ad aures ejus pervéniet, et judícium festin
 ##### Lectio iii
 
 VIA peccántium complanáta lapídibus, et in fine illórum ínferi et ténebræ et pœnæ. Qui custódit justítiam continébit sensum ejus. Consummátio timóris Dei sapiéntia et sensus. Non erudiétur qui non est sápiens in bono; est autem sapiéntia quæ abúndat in malo, et non est sensus ubi est amaritúdo. Sciéntia sapiéntis tamquam inundátio abundábit, et consílium illíus sicut fons vitæ pérmanet.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Sabbato
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 32, 1-17*
+
+REctórem te posuérunt? noli extólli: esto in illis quasi unus ex ipsis. Curam illórum habe et sic conside et omni cura tua explícita recúmbe, ut lætéris propter illos et ornaméntum grátiæ accípias corónam, et dignatiónem consequáris corrogatiónis. Lóquere, major natu; decet enim te primum verbum diligénti sciéntia, et non impédias músicam.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio ii
+
+UBI audítus non est, non effúndas sermónem et importúne noli extólli in sapiéntia tua. Gémmula carbúnculi in ornaménto auri, et comparátio musicórum in convívio vini; sicut in fabricatióne auri signum est smarágdi, sic númerus musicórum in jucúndo et moderáto vino. Audi tacens, et pro reveréntia accédet tibi bona grátia. Adoléscens, lóquere in tua causa vix. Si bis interrogátus fúeris, hábeat caput respónsum tuum.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis simplícibus et in Offício S. Maríæ in Sábbato: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+IN multis esto quasi ínscius et audi tacens simul et quærens. In médio magnatórum non præsúmas et, ubi sunt senes, non multum loquáris. Ante grándinem præíbit coru-

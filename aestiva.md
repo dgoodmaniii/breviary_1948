@@ -22608,4 +22608,16 @@ FActum est autem Icónii, ut simul introírent in synagógam Judæórum et loque
 
 BArnabas Levítes, Cýprius génere, qui et Joseph, cum Paulo géntium Apóstolus ordinátus est ad prædicándum Jesu Christi Evangélium. Is, agro véndito quem habébat, redáctam ex eo pecúniam áttulit Apóstolis. Missus autem Antiochíam prædicatiónis causa, cum ibi multos ad Christi Dómini fidem convérsos esse comperísset, incredíbiliter lætátus, eos hortabátur ut in Christi fide permanérent. Qua cohortatióne multum proficiébat, quod ab ómnibus vir bonus et Spíritu Sancto plenus habebátur.
 
-℟. Vidi conjúnctos viros, habéntes spléndidas ve-
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio v
+
+PRoféctus inde Tarsum ut quǽreret Paulum, cum eo Antiochíam venit. In ejus urbis ecclésia annum commoráti, christiánæ fídei et vitæ illis homínibus præcépta dedérunt: ubi étiam Jesu Christi cultóres primum Christiáni sunt appelláti. Discípuli autem Pauli et Bárnabæ, suis facultátibus Christiános, qui in Judæa erant, sustentábant, eo mitténtes pecúniam per Paulum et Bárnabam. Qui perfúncti illo caritátis offício, adhíbito Joánne, cui cognómen erat Marcus, rediérunt Antiochíam.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+CUM autem Antiochíæ in Ecclésia, cum céteris prophétis et doctóribus, Paulus et Bárnabas in jejúnio et oratióne Dómino deservírent, dixit Spíritus Sanctus: Segretáte mihi Saulum et Bárnabam in opus, ad quod assúmpsi eos. Tunc jejunántes et orántes, imponentésque eis manus, dimisérunt illos. Itaque Seleucíam venérunt, inde in Cyprum; ac multas prætérea urbes regionésque, prædicántes Evangélium summa cum audiéntium utilitáte, peragrárunt. Postrémo Bárnabas digréssus a Paulo, una cum Joánne, qui cognominátus est Marcus, navigávit in Cyprum; ibíque circiter séptimum Nerónis annum, tértio Idus Júnii, ad apostólici múneris laudem, martýrii corónam adjúnxit. Ejus corpus, Zenóne imperatóre, repértum est in ínsula Cypro; ad cujus pectus erat Evangélium Matthǽi, Bárnabæ manu conscríptum.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam.

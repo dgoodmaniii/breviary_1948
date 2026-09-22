@@ -26226,4 +26226,14 @@ COntuéndum est, quia supérior venit ad inferiórem, ut inférior adjuvétur: M
 
 #### Lectio viii
 
-ET unde hoc mihi, ut véniat Mater Dómini mei ad me? Hoc est, Quo tantum bonum mihi áccidit, ut Mater Dómini mei véniat ad me? Miráculum séntio, agnósco mystérium: Mater Dómini Verbo fœta, Deo plena est. Mansit autem María cum illa ménsibus tribus,
+ET unde hoc mihi, ut véniat Mater Dómini mei ad me? Hoc est, Quo tantum bonum mihi áccidit, ut Mater Dómini mei véniat ad me? Miráculum séntio, agnósco mystérium: Mater Dómini Verbo fœta, Deo plena est. Mansit autem María cum illa ménsibus tribus, et revérsa est in domum suam. Bene indúcitur sancta María et exhibuísse offícium, et mýsticum númerum custodísse. ¶ Non enim sola familiaritátis est causa quod diu mansit, sed étiam tanti vatis proféctus. Nam, si primo ingréssu tantus proféctus éxstitit, ut ad salutatiónem Maríæ exsultáret infans in útero, replerétur Spíritu Sancto mater infántis; quantum putámus usu tanti témporis sanctæ Maríæ addidísse præséntiam? Ungebátur ítaque, et quasi bonus athléta exercebátur in útero matris Prophéta; amplíssimo enim virtus ejus certámini parabátur.
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima: \* Quia ex te ortus est sol justítiæ, \* Christus, Deus noster. ℣. Ora pro pópulo, intervéni pro clero, intercéde pro devóto femíneo sexu: séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam Visitatiónem. — Quia. Glória Patri. Christus.
+
+{RUBRIC: Pro Ss. Processo et Martiniano Martýribus:}
+
+#### Lectio ix
+
+QUo témpore Petrus et Paulus tenebántur sub custódia Mamertíni in monte Tarpéjo, duo custódes, Procéssus et Martiniánus, cum áliis quadragínta, Apostolórum prædicatióne miraculísque commóti, se ad Jesu Christi fidem convertérunt; et, cum repénte fons e saxo ortus esset, baptizáti sunt. Qui permisérunt Apóstolis, ut, si vellent, abírent. Sed Paulínus mílitum præféctus, re cógnita, Procéssum et Martiniánum a suscépto consílio revocáre conátur. Qui, cum frustra tempus contéreret, ipsórum ora saxo contúndi dentésque commínui jubet. Mox ad Jovis státuam addúctos, cum eádem constántia veneratúros se idóla negárent, ímperat equúleo torquéri, candéntibus láminis ad eórum corpus admótis, ac cædi fústibus; quibus in cruciátibus una hæc illórum vox audiebátur: Sit nomen Dómini benedíctum. Dénique conjécti in cárcerem, paulo post extra Urbem via Aurélia secúri feriúntur. Quorum córpora Lucína in prǽdio suo sepelívit, sexto Nonas Júlii; quæ póstea, in Urbem transláta, in basílica Príncipis Apostolórum cóndita sunt.
+
+Te Deum laudámus.

@@ -22422,4 +22422,26 @@ CUM Laudúni esset, ab epíscopo rogátus ne a sua diœcési discéderet, desér
 
 #### Lectio vi
 
-ANtvérpiam accersítus, in ea urbe Tanchelíni nefáriam hǽresim profli-
+ANtvérpiam accersítus, in ea urbe Tanchelíni nefáriam hǽresim profligávit. Prophético spíritu et miráculis cláruit. Archiepíscopus tandem (licet relúctans) Magdeburgénsis creátus, ecclesiásticam disciplínam, præsértim cœlibátum, constánter propugnávit. Rhemis in concílio Innocéntium secúndum egrégie adjúvit, et Romam cum áliis epíscopis proféctus, schisma Petri Leónis compréssit. Postrémo vir Dei, méritis et Spíritu Sancto plenus, Magdebúrgi obdormívit in Dómino, anno salútis millésimo centésimo trigésimo quarto, die sexta Júnii.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+NOrbértus, nobilíssimis paréntibus natus, adoléscens liberálibus disciplínis erudítus, in ipsa póstea imperatóris aula, spretis mundi illécebris, ecclesiásticæ milítiæ adscríbi vóluit. Sacris initiátus, prædicatióni verbi Dei se totum dedit. Innúmeros hæréticos ad fidem, peccatóres ad pœniténtiam, dissidéntes ad pacem et concórdiam revocávit. Desértum locum, qui Præmonstrátus dicebátur, in Laudunénsi diœcési sibi delégit; ibíque, trédecim sóciis aggregátis, Præmonstraténsem órdinem instítuit, qui mirífice propagátus est. Archiepíscopus Magdeburgénsis, licet relúctans, creátus, ecclesiásticam disciplínam, cœlibátum præsértim, constánter propugnávit. Rhemis in concílio Innocéntium secúndum egrégie adjúvit, et Romam cum áliis epíscopis proféctus, schisma Petri Leónis compréssit. Magdebúrgi obdormívit in Dómino, anno salútis millésimo centésimo trigésimo quarto, die sexta Júnii.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Communi Conf. Pont. 1 loco. [80]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.

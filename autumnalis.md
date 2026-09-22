@@ -15556,3 +15556,35 @@ ET scripsit hæc Ptolemǽus et misit regi, ut mítteret ei exércitum in auxíli
 UT audívit autem, veheménter expávit et comprehéndit viros qui vénerant pérdere eum et occídit eos; cognóvit enim quia quærébant eum pérdere. Et cétera sermónum Joánnis et bellórum ejus et bonárum virtútum, quibus fórtiter gessit, et ædifícii murórum quos exstrúxit et rerum gestárum ejus, ecce hæc scripta sunt in libro diérum sacerdótii ejus, ex quo factus est princeps sacerdótum post patrem suum.
 
 ℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Exáudiat Dóminus \* oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo Dóminus, Deus noster.
+
+{RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica IV Octobris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber secúndus Machabæórum}
+
+##### Lectio i
+*Cap. 1, 1-6*
+
+FRátribus qui sunt per Ægýptum Judǽis salútem dicunt fratres qui sunt in Jerosólymis Judǽi et qui in regióne Judǽæ et pacem bonam. Benefáciat vobis Deus et memínerit testaménti sui, quod locútus est ad Abraham et Isaac et Jacob servórum suórum fidélium; et det vobis cor ómnibus ut colátis eum et faciátis ejus voluntátem corde magno et ánimo voténti. Adapériat cor vestrum in lege sua et in præcéptis suis et fáciat pacem, exáudiat oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. Et nunc hic sumus orántes pro vobis.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+*Cap. 1, 18-22*
+
+FActúri ígitur quinta et vigésima die mensis Casleu, purificatiónem templi, necessárium dúximus significáre vobis, ut et vos quoque agátis diem scenopégiæ et diem ignis, qui datus est quando Nehemías, ædificáto templo et altári, óbtulit sacrifícia. Nam, cum in Pérsidem duceréntur patres nostri, sacerdótes qui tunc cultóres Dei erant, accéptum ignem de altári occúlte abscondérunt in valle, ubi erat púteus altus et siccus, et in eo contutáti sunt eum, ita ut ómnibus ignótus esset locus.
+
+℟. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.

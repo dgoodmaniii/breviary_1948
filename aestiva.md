@@ -20258,4 +20258,32 @@ FIlii sapiéntiæ ecclésia justórum, et nátio illórum obediéntia et diléct
 
 ##### Lectio ii
 
-ET, sicut qui thesaurízat, ita, et qui honórificat matrem suam; qui honórat patrem suum jucundábitur in fíliis et in die oratiónis suæ exaudiétur. Qui honórat patrem suum vita vivet longióre, et qui obédit patri refrige-
+ET, sicut qui thesaurízat, ita, et qui honórificat matrem suam; qui honórat patrem suum jucundábitur in fíliis et in die oratiónis suæ exaudiétur. Qui honórat patrem suum vita vivet longióre, et qui obédit patri refrigerábit matrem. Qui timet Dóminum honórat paréntes et quasi dóminis sérviet his qui se genuérunt.
+
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+IN ópere et sermóne et omni patiéntia honóra patrem tuum, ut supervéniat tibi benedíctio ab eo, et benedíctio illíus in novíssimo máneat. Benedíctio patris firmat domos filiórum, maledíctio autem matris eradícat fundaménta. Ne gloriéris in contumélia patris tui, non enim est tibi glória ejus confúsio. Glória enim hóminis ex honóre patris sui, et dédecus fílii pater sine honóre.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Quinta
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 3, 22-34*
+
+ALtióra te ne quæsíeris et fortióra te ne scrutátus fúeris; sed, quæ præcépit tibi Deus, illa cógita semper et in plúribus opéribus ejus ne fúeris curiósus; non est enim tibi necessárium ea quæ abscóndita sunt vidére óculis tuis. In supervácuis rebus noli scrutári multiplíciter, et in plúribus opéribus ejus non eris curiósus; plúrima enim super sensum hóminum osténsa sunt tibi; multos quoque supplantávit suspício illórum et in vanitáte detínuit sensus illórum.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+COR durum habébit male in novíssimo, et qui amat perículum in illo períbit. Cor ingrédiens duas vias non habébit successus, et pravus corde in

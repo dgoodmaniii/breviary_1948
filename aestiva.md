@@ -23467,4 +23467,32 @@ DEus, qui ómnia pro te in hoc sǽculo relinquéntibus céntuplum in futúro et 
 
 ℣. Justum dedúxit.
 
-**Ad Magnif. Ant.** Amávit eum Dóminus, \* et
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+---
+
+### Die 23 Junii
+
+#### In Vigilia S. Joannis Baptistæ
+
+{RUBRIC: Officium fit de Feria, ut in Ordinario et Psalterio, præter Lectiones et Orationem, quæ dicuntur ut infra, cum Responsoriis tamen de Feria currenti, ut in Proprio de Tempore.}
+
+{RUBRIC: Ad Nocturnum vero in Feria IV tres ultimæ Antiphonæ cum suis Psalmis, et ad Laudes in qualibet Feria Antiphonæ omnes et Psalmi sumuntur de 2 loco; ad Primam additur quartus Psalmus, ut in Psalterio notatur, et ad omnes Horas dicuntur Preces feriales, ut in Psalterio.}
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio i
+
+*Cap. 1, 5-17*
+
+FUit in diébus Heródis, regis Judǽæ, sacérdos quidam, nómine Zacharías, de vice Abía et uxor illíus de filiábus Aaron, et nomen ejus Elísabeth. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+*Liber 1 in Lucam*
+
+DOcet nos Scriptúra divína non solum mores in iis qui prædicábiles sunt, sed étiam paréntes oportére laudári; ut véluti transmíssa immaculátæ puritátis heréditas in iis, quos vólumus laudáre, præcéllat. Quæ enim ália inténtio hoc loco sancti Evangelístæ, nisi ut sanctus Joánnes Baptísta nobilitétur paréntibus, miráculis, móribus, múnere, passióne? Sic étiam sancti Sámuel mater Anna laudátur; sic Isaac a paréntibus nobilitátem pietátis accépit, quam pósteris derelíquit. Sacérdos ítaque Zacharías, nec solum sacérdos, sed étiam de vice Abía, id est, nóbilis inter superióres famílias.
+
+#### Lectio ii
+
+ET uxor, inquit, illi de filiábus Aaron. Non solum ígitur a paréntibus, sed étiam a majóribus sancti Joánnis nobílitas propagátur, non sæculári potestáte sublímis, sed religiónis successióne venerábilis. Tales enim majóres habére débuit prænúntius Christi; ut non repénte concéptam, sed a majóribus accéptam et ipso infúsam jure natúræ, prædicáre fidem Domínici vidérétur advéntus. Erant, inquit, ambo justi ante Deum, incedéntes in ómnibus mandátis et justificatiónibus Dómini sine queréla. Quid ad hoc réfe-

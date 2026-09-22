@@ -32670,4 +32670,22 @@ Léctio sancti Evangélii secúndum Lucam
 
 *Cap. 6, 12-19*
 
-IN illo témpore: Éxiit Jesus in montem oráre, et erat pernóctans in ora-
+IN illo témpore: Éxiit Jesus in montem oráre, et erat pernóctans in oratióne Dei. Et, cum dies factus esset, vocávit discípulos suos. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 5 Comment. in Luc. cap. 6, post inítium}
+
+OMnes magni, omnes sublímes montem ascéndunt. Non enim cuicúmque Prophéta dicit: Ascénde in montem excélsum, qui evangelízas Sion: exálta in virtúte vocem tuam, qui evangelízas Jerúsalem. Non vestígiis corporálibus, sed factis sublimióribus in hunc montem ascénde, et séquere Christum, ut ipse esse mons possis: Montes enim in circúitu ejus. Quare in Evangélio invénies solos cum Dómino montem ascendísse discípulos. Orat ergo Dóminus, non ut pro se obsecret, sed ut pro me ímpetret. Nam, etsi ómnia posúerit Pater in potestáte Fílii; Fílius tamen, ut hóminis formam impléret, obsecrándum Patrem putat esse pro nobis, quia advocátus est noster.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo: \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+ET erat, inquit, pernóctans in oratióne Dei. Spécies tibi, Christiáne, datur, forma præscríbitur, quam débeas æmulári. Quid enim te pro salúte tua fácere opórtet, quando pro te Christus in oratióne pernóctat? Quid te fácere convénit, cum vis áliquod pietátis offícium adoríri, quando Christus, missúrus Apóstolos, orávit prius, et solus orávit? Nec usquam álibi, si non fallor, orásse cum Apóstolis reperítur; ubíque solus óbsecrat. Dei enim consílium humána vota non cápiunt, nec quisquam interiórum potest esse párticeps Christi.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+#### Lectio ix
+
+VOcávit, inquit, discípulos suos, et elégit duódecim ex ipsis; quos ad propagándum auxílium salútis humánæ per terrárum orbem satóres fídei destináret. Simul advérte cæléste consílium: non

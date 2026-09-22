@@ -30776,4 +30776,26 @@ Dómini est salus: \* et super pópulum tuum benedíctio tua.
 
 *Cap. 51, 1-17*
 
-COnfitébor tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra
+COnfitébor tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra flammæ, quæ circúmdedit me, et in médio ignis non sum æstuátus: de altitúdine ventris ínferi, et a lingua coinquináta, et a verbo mendácii, a rege iníquo, et a lingua injústa.
+
+℟. Levíta Lauréntius bonum opus operátus est, qui per signum crucis cæcos illuminávit, \* Et thesáuros Ecclésiæ dedit paupéribus. ℣. Dispérsit, dedit paupéribus: justítia ejus manet in sæculum sæculi. — Et.
+
+#### Lectio ii
+
+LAudábit usque ad mortem ánima mea Dóminum, et vita mea appropínquans erat in inférno deórsum. Circumdedérunt me úndique, et non erat qui adjuváret. Respíciens eram ad adjutórium hóminum, et non erat. Memorátus sum misericórdiæ tuæ, Dómine, et operatiónis tuæ, quæ a sǽculo sunt: quóniam éruis sustinéntes te, Dómine, et líberas eos de mánibus géntium. Exaltásti super terram habitatiónem meam, et pro morte defluénte deprecátus sum.
+
+℟. Puer meus, noli timére, quia ego tecum sum, dicit Dóminus: \* Si transíeris per ignem, flamma non nocébit tibi, et odor ignis non erit in te. ℣. Liberábo te de manu péssimórum et éruam te de manu fórtium. — Si.
+
+#### Lectio iii
+
+INvocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório. Laudábo nomen tuum assídue, et collaudábo illud in confessióne, et exaudíta est orátio mea. Et liberásti me de perditióne, et eripuísti me de témpore iníquo. Proptérea confitébor, et laudem dicam tibi, et benedícam nómini Dómini.
+
+℟. Strinxérunt córporis membra pósita super craticulam: ministrántibus prunas insúltat Levíta Christi: \* Beáte Lauréntí, Martyr Christi, intercéde pro nobis. ℣. Mea nox obscúrum non habet, sed ómnia in luce claréscunt. — Beáte. Glória Patri. Beáte.
+
+### In II Nocturno
+
+**Ant.** Beátus Lauréntius \* orábat, dicens: Dómine Jesu Christe, Deus de Deo, miserére mihi servo tuo.
+
+#### Psalmus 4
+
+CUM invocárem exaudívit me Deus justítiæ meæ: \* in tribulatióne dilatásti mihi.

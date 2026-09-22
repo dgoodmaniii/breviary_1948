@@ -26514,3 +26514,23 @@ DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecr�
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+FAC nos, Dómine Deus, supereminéntem Jesu Christi sciéntiam, spíritu Pauli Apóstoli edíscere; qua beátus Antónius María mirabíliter erudítus, novas in Ecclésia tua clericórum et vírginum famílias congregávit. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Com. præc. diei infra Oct. Ss Petri et Pauli App.:}
+
+**Ant.** Petrus Apóstolus et Paulus Doctor géntium, ipsi nos docuérunt legem tuam, Dómine.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+ANtónius María Zaccaría, Cremónæ in Insúbria nóbili génere natus, jam a púero qua futúrus esset sanctitáte porténdere visus est. Eximiárum enim in eo virtútum significatiónes maturé eluxérunt, pietátis in Deum ac beátam Vírginem; insígnis præsértim in páuperes misericórdiæ; quorum inópiæ sublevándæ, vel pretiósa veste sibi detrácta, haud semel præsto fuit. Humanióribus lítteris in pátria excúltus, Ticíni philosophíæ, Patávii medicínæ addiscéndæ óperam dedit; utque ómnibus vitæ integritáte, ita et æquálibus acúmine ingénii fácile antecélluit. Láuream adéptus ac domum revérsus, ubi intelléxit se Dei mónitu ad animórum magis quam córporum morbis medéndum vocári, in sacras disciplínas percipiéndas sédulo incúbuit. Intérea ægrótos vísere, púeros christiána doctrína informáre, júvenum cœtus pietáte excólere, ætáte étiam provéctos ad mores emendándos frequénter hortári non déstitit. Sacris initiátus, cum primo litáret, cælésti obórto lúmine, Angelórum coróna circúmdatus stupénti pópulo apparuísse tráditur. Exínde animárum salúti impénsius consúlere, depravátis móribus summa ope obsístere curæ fuit. Ad hæc ádvenas, egénos, afflíctos patérno compléxus afféctu, piis allóquiis atque subsídiis recreátos ita solári, ut

@@ -27181,3 +27181,47 @@ SAncti Evangélii, fratres caríssimi, brevis est léctio recitáta, sed magnis 
 SEd cum is, qui voluntátem Patris fécerit, soror et frater Dómini dícitur, propter utrúmque sexum qui ad fidem collígitur, mirum non est; mirándum vero valde est, quómodo étiam mater dicátur. Fidéles enim discípulos fratres vocáre dignátus est, dicens: Ite, nuntiáte frátribus meis. Qui ergo frater Dómini fíeri ad fidem veniéndo potúerit, quæréndum est, quómodo étiam et mater esse possit.
 
 ℟. Hæc est vera fraternitas, quæ numquam pótuit violári certámine: qui effúso sánguine secúti sunt Dóminum: \* Contemnéntes aulam régiam, pervenérunt ad regna cæléstia. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Contemnéntes. Glória Patri. Contemnéntes.
+
+#### Lectio ix
+
+SEd sciéndum nobis est quia qui Christi soror et frater est credéndo, mater effícitur prædicándo. Quasi enim parit Dóminum, quem cordi audiéntis infúderit; et mater ejus prædicándo effícitur, si per ejus vocem amor Dómini in próximi mente generátur. Ad quam rem nobis idónee confirmándam adest beáta Felícitas, cujus hódie natalítia celebrámus, quæ credéndo éxstitit ancílla Christi, et prædicándo facta est mater Christi. Septem quippe fílios, sicut in gestis ejus emendatióribus légitur, sic post se tímuit vivos in carne relínquere, sicut carnáles paréntes solent metuére ne mórtuos præmíttant.
+
+Te Deum.
+
+##### Ad Laudes
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+###### Oratio
+
+PRæsta, quæsumus, omnípotens Deus: ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Exsultábunt Sancti.
+
+**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctórum, qui Christi vestígia sunt secúti: et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 11 Julii
+
+#### S. Pii I
+
+{RUBRIC: Papæ et Martyris [29] Simplex}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Pium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+#### Lectio iii
+
+PIus, hujus nóminis primus, Aquilejénsis, Ruffíni fílius, ex presbýtero sanctæ Románæ Ecclésiæ summus Póntifex creátus est, Antoníno Pio et Marco Aurélio imperatóribus

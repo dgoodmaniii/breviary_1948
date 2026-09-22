@@ -32740,4 +32740,32 @@ MUlta ædificávit monastéria et páuperum hospítia: beneficéntia egéntes su
 
 #### Lectio ix
 
-LUdovícus nonus, Gálliæ rex, in Blánchæ matris sanctíssima discíplina educátus, pro recuperánda possessióne Jerosolymórum mare cum ingénti exércitu trajíciens, primo prǽlio Saracénos fugávit. Sed cum magna mílitum multitúdo ex pestiléntia periísset, victus ipse captúsque est. Rebus compósitis, liber dimíttitur. Plúrimos in Oriénte Christiános a barbarórum servitúte redémit, multos étiam infidéles ad Christi fidem convértit. In Gál-
+LUdovícus nonus, Gálliæ rex, in Blánchæ matris sanctíssima discíplina educátus, pro recuperánda possessióne Jerosolymórum mare cum ingénti exércitu trajíciens, primo prǽlio Saracénos fugávit. Sed cum magna mílitum multitúdo ex pestiléntia periísset, victus ipse captúsque est. Rebus compósitis, liber dimíttitur. Plúrimos in Oriénte Christiános a barbarórum servitúte redémit, multos étiam infidéles ad Christi fidem convértit. In Gálliam revérsus, multa ædificávit monastéria et páuperum hospítia, beneficéntia egéntes sublevábat, frequens visébat ægrótos, eísque ministrábat; vestítu vulgári utebátur, cilício ac jejúnio corpus assídue affligébat. Cum íterum transmisísset, bellum Saracénis illatúrus, jamque castra in eórum conspéctu posuísset, pestiléntia decéssit in illa oratióne: Introíbo in domum tuam, adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Te Deum laudámus.
+
+---
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 19, 12-26*
+
+IN illo témpore: Dixit Jesus discípulis suis parábolam hanc: Homo quidam nóbilis ábiit in regiónem longínquam accípere sibi regnum et revérti. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+{RUBRIC: Liber 8 in Lucam}
+
+BOnus ordo, ut vocatúrus gentes, et Judǽos jussúrus intérfici, qui noluérunt regnáre supra se Christum, hanc permítteret comparatiónem, ne dicerétur: Nihil déderat pópulo Judæórum: unde póterat mélior fíeri? ut quid ab eo, qui nihil recépit, exígitur? Non mediócris ista est mna, quam supra múlier evangélica, quia non invénit, lucérnam accéndit, lúmine quærit admóto, gratulátur invéntam.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+DEnique ex una decem mnas álius fecit, álius quinque. Fortásse iste morália habet, quia quinque sunt córporis sensus; ille duplícia, id est, mýstica legis et morália probitátis. Unde et Matthǽus quinque talénta et duo talénta pósuit: in quinque taléntis, ut sint morália; in duóbus utrúmque, mýsticum atque morále. Ita quod número inférius, re ubérius.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris:

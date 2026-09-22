@@ -33583,4 +33583,26 @@ DEi Genitrícem, quam ardentíssime venerabátur, amplíssimo in ejus honórem c
 
 #### Lectio ix
 
-STéphanus, Hungarórum rex, in Hungáriam Christi fidem et régium nomen invéxit. Régia corónam a Románo Pontífice impetráta, ejúsque jussu rex inúnctus, regnum Sedi apostólicæ óbtulit. Vária pietátis domicília Romæ, Jerosólymis, Constantinópoli constítuit; in Hungária archiepiscopátum Strigoniénsem
+STéphanus, Hungarórum rex, in Hungáriam Christi fidem et régium nomen invéxit. Régia corónam a Románo Pontífice impetráta, ejúsque jussu rex inúnctus, regnum Sedi apostólicæ óbtulit. Vária pietátis domicília Romæ, Jerosólymis, Constantinópoli constítuit; in Hungária archiepiscopátum Strigoniénsem et episcopátus decem admirábili religióne et munificéntia fundávit. Exímia in páuperes caritáte et assíduo orándi stúdio enítuit. Dei Genitrícem, quam ardentíssime venerabátur, amplíssimo in ejus honórem constrúcto templo, Hungáriæ patrónam instítuit; ab eádem vicíssim Vírgine recéptus in cælum ipso suæ Assumptiónis die, quem Húngari e sancti Regis institúto Magnæ Dóminæ diem appéllant. Ejus tamen festum ex constitutióne Innocéntii Papæ undécimi hac die potíssimum recólitur, qua Budæ munitíssima arx, sancti Regis ope, ab exércitu christiáno strénue recuperáta fuit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo quidam nóbilis, ut supra die 25 Augústi. 931}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+COncéde, quǽsumus, Ecclésiæ tuæ, omnípotens Deus: ut beátum Stéphanum Confessórem tuum, quem regnántem in terris propagatórem hábuit, propugnatórem habére mereátur gloriósum in cælis. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.

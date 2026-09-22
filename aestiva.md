@@ -25354,3 +25354,49 @@ DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fec
 {RUBRIC: Capit. Bonum certámen. 694}
 
 ℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In.
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+###### Oratio
+
+DEus, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus natalítia cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+### Ad Sextam
+
+**Ant.** Grátia Dei \* in me vácua non fuit, sed grátia ejus semper in me manet.
+
+#### Capitulum
+
+*2 Cor. 12, 7-9*
+
+NE magnitúdo revelatiónum extóllat me, datus est mihi stímulus carnis meæ, ángelus sátanæ, qui me colaphízet: propter quod ter Dóminum rogávi ut discéderet a me, et dixit mihi: Súfficit tibi grátia mea.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. Glória Patri. Constítues.
+
+℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+### Ad Nonam
+
+**Ant.** Ter virgis cæsus sum, \* semel lapidátus sum, ter naufrágium pértuli pro Christi nómine.
+
+#### Capitulum
+
+*1 Cor. 15, 9-10*
+
+EGO enim sum mínimus Apostolórum, qui non sum dignus vocári Apóstolus, quóniam persecútus sum Ecclésiam Dei. Grátia autem Dei sum id quod sum, et grátia ejus in me vácua non fuit.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti.
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+{RUBRIC: Vesperæ de sequenti, sine ulla Commemoratione.}
+
+{RUBRIC: ¶ Sicubi tamen II Vesperæ S. Pauli dicendæ sint íntegræ, Antiphonæ et Psalmi sumúntur de Communi App. [18]; Capitulum, Hymnus, Versus, Ant. ad Magnificat et Commemoratio S. Petri ut in I Vesperis. 683}
+
+{RUBRIC: Et Completorium dicitur de Dominica.}
+
+---
+
+## Infra Octavam Ss. Petri et Pauli App.
+
+{RUBRIC: Antiphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua de Communi præter Lectiónes, quæ in I Nocturno

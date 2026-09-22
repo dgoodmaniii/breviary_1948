@@ -20640,4 +20640,40 @@ Te Deum laudámus.
 
 ### Ad Laudes
 
-℣. Dóminus regnávit,
+℣. Dóminus regnávit, sedens docébat turbas, allelúja.
+
+### Oratio
+
+DA nobis, quǽsumus, Dómine: ut et mundi cursus pacífice nobis tuo órdine dirigátur; et Ecclésia tua tranquílla devotióne lætétur. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Præcéptor, \* per totam noctem laborántes nihil cépimus; in verbo autem tuo laxábo rete.
+
+---
+
+## Dominica V post Pentecosten
+
+*Semiduplex*
+
+{RUBRIC: Oratio Deus, qui, ut infra ad Laudes.}
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthæum
+
+##### Lectio vii
+
+*Cap. 5, 20-24*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nisi abundáverit justítia vestra plus quam scribárum et pharisæórum, non intrábitis in regnum cælórum. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Liber 1 de Sermóne Dómini in monte, cap. 9*
+
+JUstítia pharisæórum est, ut non occídant: justítia eórum, qui intratúri sunt in regnum cælórum, ut non irascántur sine causa. Mínimum est ergo, non occídere; et qui illud sólverit, mínimus vocábitur in regno cælórum. Qui autem illud impléverit, ut non occídat, non contínuo magnus erit, et idóneus regno cælórum; sed tamen ascéndit áliquem gradum: perficiétur autem, si nec irascátur sine causa; quod si perfécerit, multo remótior erit ab homicídio. Quaprópter qui docet, ut non irascámur, non solvit legem, ne occidámus, sed implet pótius; ut et foris, dum non occídimus, et in corde, dum non iráscimur, innocéntiam custodiámus.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.

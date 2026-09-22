@@ -33188,4 +33188,20 @@ Homilía sancti Augustíni Epíscopi
 
 {RUBRIC: Sermo 10 in novis Sermónibus}
 
-CUm sanctum Evangélium legerétur, crudéle spectáculum ante óculos nostros constitútum est: caput sancti Joánnis in disco, ferális missus crudelitátis propter ódium veritátis. Puélla saltat, et sævit mater; et inter lascívias et delícias convivántium témere jurátur, et ímpie, quod jurátur, implétur. Factum est Joánni, quod ipse prædíxerat; de Dómino enim Jesu Christo díxerat: Illum opórtet créscere, me autem mí-
+CUm sanctum Evangélium legerétur, crudéle spectáculum ante óculos nostros constitútum est: caput sancti Joánnis in disco, ferális missus crudelitátis propter ódium veritátis. Puélla saltat, et sævit mater; et inter lascívias et delícias convivántium témere jurátur, et ímpie, quod jurátur, implétur. Factum est Joánni, quod ipse prædíxerat; de Dómino enim Jesu Christo díxerat: Illum opórtet créscere, me autem mínui. Iste minútus est in cápite, ille crevit in cruce. Odium péperit véritas. Non pótuit ǽquo ánimo tolerári quod homo Dei sanctus monébat; qui útique salútem eórum quærébat, quos sic monébat. Respondérunt illi mala pro bonis.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+{RUBRIC: Si ix Lectio alicújus Offícii commemoráti dicénda non sit, tunc ex viii Lectióne fiunt duæ, quarum prior desínit ad signum ¶.}
+
+#### Lectio viii
+
+QUid enim ille díceret, nisi quo plenus erat? et quid illi respondérent, nisi quo pleni erant? Ille tríticum seminávit, sed spinas invénit. Dicébat regi: Non licet tibi habére uxórem fratris tui. ¶ Vincébat enim regem libído: tenébat apud se prohíbitam uxórem fratris sui. Sed eum tamen sic libébat, ut non sævíret; honorábat eum, a quo verum audiébat. Sed múlier detestábilis ódium concipiébat, quod aliquándo dato témpore páreret. Quando autem parturiébat, péperit fíliam, fíliam saltántem.
+
+℟. Stola jucunditátis índuit eum Dóminus: \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus: et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro S. Sabína Mart.}
+
+#### Lectio ix
+
+SAbína, múlier Romána, Valentíni viri claríssimi uxor, a Seráphia vírgine christiánæ fídei præcéptis institúta, post sanctæ Vírginis martýrium, colléctas ejus relíquias piis exséquiis sepelívit. Quæ propter eam causam paulo post, Hadriáno imperatóre, comprehénsa, Elpídio júdici sístitur. Cui is: Tu ne illa Sabína et génere et matrimónio nobilíssima? At illa, Sum, inquit: sed Dómino meo Jesu Christo grátias ago, qui me, intercessióne Seráphiæ fámulæ suæ, e dǽmonum potestáte liberávit. Quam várie tentátam, ut propósitum mutáret, cum a fídei constántia movére non posset, præféctus, pronuntiáta senténtia quod deos contémneret, cápitis damnávit. Ejus corpus a Christiánis in eódem se-

@@ -30320,4 +30320,32 @@ DIvíni cultus stúdium, nitórem domus Dei, sacrórum rítuum observántiam et 
 
 #### Lectio ix
 
-CAjetánus, nóbili Thienǽa gente Vicéntiæ ortus, statim a matre Deíparæ Vírgini oblátus est. Patávii juris utriúsque láuream adéptus, Romam proféctus est, ubi inter prælátos a Júlio secúndo collocátus et sacerdótio initiátus est. Nosocomíis próprio ære fundátis, étiam morbo pestilénti laborántibus suis ipse mánibus inserviébat. Proximórum salúti assídue incumbébat, dictus proptérea Venátor animárum. Collápsam ecclesiasticórum disciplínam ad formam apostólicæ vitæ instauráre desíderans, órdinem Clericórum regulárium institúit, qui, abdicáta rerum ómnium terrenárum cura, nec réditus possidérent nec vitæ subsídia a fidélibus péterent, sed solis eleemósynis sponte oblátis víverent. Itaque, approbánte Cleménte séptimo, ad aram máximam basílicæ Vaticánæ una cum Joánne Petro Caráfa, epíscopo Theatíno, qui póstea Paulus quartus Póntifex máximus fuit, et áliis duóbus exímiæ pietátis viris, vota solémnia emísit. Divíni cultus stúdium, nitórem domus Dei, sacrórum rí-
+CAjetánus, nóbili Thienǽa gente Vicéntiæ ortus, statim a matre Deíparæ Vírgini oblátus est. Patávii juris utriúsque láuream adéptus, Romam proféctus est, ubi inter prælátos a Júlio secúndo collocátus et sacerdótio initiátus est. Nosocomíis próprio ære fundátis, étiam morbo pestilénti laborántibus suis ipse mánibus inserviébat. Proximórum salúti assídue incumbébat, dictus proptérea Venátor animárum. Collápsam ecclesiasticórum disciplínam ad formam apostólicæ vitæ instauráre desíderans, órdinem Clericórum regulárium institúit, qui, abdicáta rerum ómnium terrenárum cura, nec réditus possidérent nec vitæ subsídia a fidélibus péterent, sed solis eleemósynis sponte oblátis víverent. Itaque, approbánte Cleménte séptimo, ad aram máximam basílicæ Vaticánæ una cum Joánne Petro Caráfa, epíscopo Theatíno, qui póstea Paulus quartus Póntifex máximus fuit, et áliis duóbus exímiæ pietátis viris, vota solémnia emísit. Divíni cultus stúdium, nitórem domus Dei, sacrórum rítuum observántiam et sanctíssimæ Eucharístiæ frequentiórem usum máxime promóvit. Plenus méritis, Neápoli migrávit in cælum, ibíque corpus ejus in ecclésia sancti Pauli magna religióne cólitur.
+
+Te Deum laudámus.
+
+---
+
+### In III Nocturno
+
+{RUBRIC: Si ix Lectio alicújus Officii commemoráti dicénda non sit, ex vii Lectióne fit étiam viii incipiéndo a signo ¶, et Lectio viii légitur ut ix.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthæum}
+
+#### Lectio vii
+
+*Cap. 6, 24-33*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nemo potest duóbus dóminis servíre. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+
+{RUBRIC: Liber 2 de Sermóne Dómini in monte, cap. 14}
+
+NEmo potest duóbus dóminis servíre. Ad hanc ipsam inténtiónem referéndum est quod consequénter expónit, dicens: Aut enim unum ódio habébit, et álterum díliget; aut álterum patiétur, et álterum contémnet. Quæ verba diligénter consideránda sunt: nam, qui sint duo dómini, deínceps osténdit, cum dicit: Non potéstis Deo servíre, et mammónæ. Mammóna apud Hebrǽos divítiæ appellári dicúntur. Cóngruit et Púnicum nomen; nam lucrum Púnice mammon dícitur. ¶ Sed qui servit mammónæ, illi útique servit, qui rebus istis terrénis mérito suæ perversitátis præpósitus, magistrátus hujus sǽculi a Dómino dícitur. Aut enim unum ódio habébit homo, et álterum díliget, id est, Deum; aut álterum patiétur, et álterum contémnet. Patiétur enim durum et perniciósum dóminum, quisquis servit mammónæ; sua enim cupiditáte implicátus, súbditur diábolo, et non eum díligit. Quis enim est qui díligat diábolum? sed tamen pátitur.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+IDeo, inquit, dico vobis, non habére sollicitúdinem ánimæ vestræ quid

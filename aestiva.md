@@ -23196,3 +23196,21 @@ DUra hujúsmodi vivéndi ratióne in stómachi morbum íncidit, quo ingravescén
 ℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
 
 ---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JUliána, ex nóbili Falconéria família, ab incunábulis, vagiéntibus lábiis suavíssima Jesu et Maríæ nómina ultro proférre audíta est. Expléto nondum décimo quinto ætátis anno, re familiári, licet opulénta, terrenísque núptiis posthábitis, Deo virginitátem in mánibus divi Philíppi Benítii solémniter vovit, et ab eo ómnium prima religiósum Mantellatárum, quas vocant, hábitum sumpsit. Cum vero ejus exémplum plúrimæ ex nobilióribus féminis sequeréntur, et mater fíliæ sese instituéndam dedísset, Juliána órdinem Mantellatárum instítuit. Mira humilitáte, assíduo oratiónis stúdio, singulári abstinéntia excélluit. Cum ob advérsam valetúdinem cibum cápere ac retinére nullo modo posset, ideóque ab Eucharística mensa arcerétur, sacerdótem rogávit, ut allátum divínum Panem, quem ore súmere nequíbat, péctori saltem extérius admovéret. Quod cum sacérdos præstitísset, íllico divínus Panis dispáruit, et Juliána ridénti vultu exspirávit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit, de Communi Virginum 1 loco. [122]}
+
+{RUBRIC: Pro Ss. Gervasio et Protasio Martyribus}
+
+#### Lectio ix
+
+GErvásius et Protásius, Vitális et Valériæ fílii, quorum pater Ravénnæ, mater Mediolání pro Christi Dómini fide martýrium subiérunt, distribúto paupéribus património, domésticos servos libertáte donárunt. Quo facto gentílium sacerdótes immáne in illos concéptum ódium habébant. Quare, cum Astásius comes in bellum proficísci vellet, hanc occasiónem perdéndi pios fratres se nactos esse putavérunt. Itaque Astásio persuádent se a diis admónitos esse, nullo modo eum in bello victórem futúrum, nisi Gervásio et Protásio coáctis Christum negáre, eósdem ad sacra diis faciénda compélleret. Quod cum illi detestaréntur, Astásius imperávit Gervásium támdiu cædi, dum inter vérbera exspiráret; Protásium fústibus contúsum securi pércuti jubet. Quorum córpora Philíppus Christi servus clam sústulit et in suis ǽdibus sepelívit: quæ póstea sanctus Ambrósius, Dei mónitu invénta, in loco sacro

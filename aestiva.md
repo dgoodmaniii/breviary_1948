@@ -20398,4 +20398,26 @@ ET ne dicas: Miserátio Dómini magna est, multitúdinis peccatórum meórum mis
 
 ESto firmus in via Dómini et in veritáte sensus tui et sciéntia; et prosequátur te verbum pacis et justítiæ. Esto mansuétus ad audiéndum verbum, ut intélligas, et cum sapiéntia próferas respónsum verum. Si est tibi intelléctus, respónde próximo; sin autem, sit manus tua super os tuum, ne capiáris in verbo indisciplináto et confundáris. Honor et glória in sermóne sensáti; lingua vero imprudéntis subvérsio est ipsíus. Non appelléris susúrro, et lingua tua ne capiáris et confundáris.
 
-℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam. — Ut. Glória Patri. Ut.
+
+#### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+*Homilia 22 in 2 Cor. 10 in Moral.*
+
+##### Lectio iv
+
+NE tardes convérti ad Dóminum, et ne dífferas de die in diem; nescis enim, quid paritúra sit superventúra dies. Perículum enim et metus est in differéndo; salus vero certa ac secúra, si nulla sit dilátio. Virtútem ígitur cole: sic enim, licet júvenis moriáris, secúre discésseris: quod si ad senectútem pervéneris, cum multa facilitáte et nulla moléstia e vita discédes; duplicémque habébis festivitátem, et quod a vitæ malítia abstinúeris et quod virtútem colúeris. Ne dicas: Erit tempus, quando convérti licébit; verba enim hæc Deum valde exásperant.
+
+℟. Da mihi, Dómine, sédium tuárum assistrícem sapiéntiam, et noli me reprobáre a púeris tuis: \* Quóniam servus tuus sum ego, et fílius ancíllæ tuæ. ℣. Mitte illam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret. — Quóniam.
+
+##### Lectio v
+
+CUR nam, cum ipse tibi ætérna sæcula promísit, tu in præsénti vita laboráre non vis, quæ parva et momentánea est; sed sic ignávus ac dissolútus agis, quasi hac breviórem áliam quamdam inquíras? Nonne illæ quotidiánæ comessatiónes, nonne illæ mensæ, nonne scorta illa, nonne theátra illa, nonne divítiæ illæ testántur inexplébilem malítiæ concupiscéntiam? Cógita bene, quod, quóties scortátus es, tóties condemnásti teípsum; peccátum enim ita se habet, ut, mox atque patrátum fúerit, senténtiam ferat judex.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+##### Lectio vi
+
+INebriátus es? ventri indulsísti? rapuísti? siste jam gradum, verte te in divérsum: confitére Deo grátiam, quod non in médiis peccátis te ábstulit;

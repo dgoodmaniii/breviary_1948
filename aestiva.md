@@ -26479,4 +26479,38 @@ QUo sunt órdines electórum in judício futúri: unus judicántium cum Dómino,
 
 #### Lectio viii
 
-SEd et reprobórum duos síbi futúros órdines, Dómino narránte, compérimus: unum eórum, qui, fídei christiánæ mystériis initiáti, ópera fídei exercére contémnunt; quibus in judício testátur: Discédite a me, maledícti, in ignem ætérnum, qui præparátus est diábolo et ángelis ejus; esurívi enim, et non dedístis mihi manducáre. Alterum eórum, qui fidem et mystéria Christi vel numquam suscépere, vel suscéptam per apostásiam deseruére; de quibus
+SEd et reprobórum duos síbi futúros órdines, Dómino narránte, compérimus: unum eórum, qui, fídei christiánæ mystériis initiáti, ópera fídei exercére contémnunt; quibus in judício testátur: Discédite a me, maledícti, in ignem ætérnum, qui præparátus est diábolo et ángelis ejus; esurívi enim, et non dedístis mihi manducáre. Alterum eórum, qui fidem et mystéria Christi vel numquam suscépere, vel suscéptam per apostásiam deseruére; de quibus dicit: Qui autem non credit, jam judicátus est, quia non credit in nómine unigéniti Fílii Dei.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam: \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna: operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+#### Lectio ix
+
+VErum, his cum timóre et pavóre débito paulísper commemorátis, ad lætíssima pótius Dómini et Salvatóris nostri promíssa convertámus audítum. Videámus quæ tantæ grátia pietátis: non ætérnæ tantúmmodo vitæ prǽmia suis sequácibus, sed et præséntis múnera pollicétur exímia. Et omnis, inquit, qui relíquerit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum accípiet, et vitam ætérnam possidébit. Qui enim terrénis afféctibus sive possessiónibus pro Christi discipulátu renuntiáverit; quo plus in ejus amórem profécerit, eo plures invéniet, qui se intérno suscípere afféctu et suis gáudeant sustentáre substántiis.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Bened. Ant.** Gloriósi Príncipes terræ, \* quómodo in vita sua dilexérunt se, ita et in morte non sunt separáti.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti, Commemoratio præcedentis.}
+
+---
+
+### Die 5 Julii
+
+#### S. Antonii Mariæ Zaccaria
+
+{RUBRIC: Confessoris [94]}
+
+{RUBRIC: Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.

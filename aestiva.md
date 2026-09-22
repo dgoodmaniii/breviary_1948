@@ -28599,4 +28599,16 @@ SAnctórum tuórum nos, Dómine, Nazárii, Celsi, Victóris et Innocéntii conf�
 
 #### Lectio iv
 
-NAzárius, a beáto Lino Papa baptizátus, cum in Gálliam proféctus esset, ibi Celsum púerum, a se christiánis præcéptis prius instrúctum, baptizávit. Qui una Trévirim eúntes, Nerónis
+NAzárius, a beáto Lino Papa baptizátus, cum in Gálliam proféctus esset, ibi Celsum púerum, a se christiánis præcéptis prius instrúctum, baptizávit. Qui una Trévirim eúntes, Nerónis persecutióne, in mare utérque dejícitur, unde mirabíliter evasérunt. Póstea Mediolánum veniéntes, cum ibi Christi fidem disseminárent, ab Anolíno præfécto, constantíssime Christum Deum confiténtes, cápite plectúntur; quorum córpora extra portam Románam sepúlta sunt. Quæ cum diu latuíssent, Dei mónitu a beáto Ambrósio conspérsa recénti sánguine sunt invénta, tamquam si paulo ante martýrium passi essent; unde, in urbem translata, honorífico sepúlcro contécta sunt.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et flúxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+#### Lectio v
+
+VIctor in África natus, Severo imperatóre rexit Ecclésiam. Confirmávit decrétum Pii primi, ut sacrum Pascha die Domínico celebrarétur: qui ritus ut póstea in mores inducerétur, hábita sunt multis in locis concília; et in Nicǽna dénique prima sýnodo sancítum est, ut Paschæ dies festus post quartam décimam lunam agerétur, ne Christiáni Judǽos imitári videréntur. Státuit ut quavis aqua, modo naturáli, si necéssitas cógeret, quicúmque baptizári posset. Theódotum coriárium Byzantínum, docéntem Christum tantúmmodo hóminem fuísse, ejécit ex Ecclésia. Scripsit de quæstióne Paschæ et ália quædam opúscula. Creávit duábus ordinatiónibus, mense Decémbri, presbýteros quátuor, diáconos septem, epíscopos per divérsa loca duódecim. Martýrio coronátus, sepelítur in Vaticáno, quinto Kaléndas Augústi. Sedit annos novem, mensem unum, dies vigínti octo.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Et.
+
+#### Lectio vi
+
+INnocéntius Albanénsis, sancti Hierónymi et Augustíni ætáte flóruit. De quo ille ad Demetríadem vírginem: Sancti Innocéntii, qui apostólicæ cáthedræ et beátæ memóriæ

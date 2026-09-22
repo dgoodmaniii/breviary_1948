@@ -31181,4 +31181,16 @@ EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Claræ Vírginis tuæ
 
 #### Lectio iv
 
-CLara nóbilis virgo, Assísii nata in Umbria, sanctum Francíscum concívem suum imitáta, cuncta sua bona in eleemósynas et páuperum subsídia distríbuit et convértit. De sǽculi strépitu fúgiens, in campéstrem declinávit ecclésiam, ibíque ab eódem beáto Francísco recépta tonsúra, consanguíneis ipsam redúcere conántibus fórtiter réstitit. Et dénique ad ecclésiam sancti Damiáni fuit per eúmdem addúcta, ubi ei Dóminus plures sócias aggregávit; et sic ipsa sacrárum sorórum collégium instítuit,
+CLara nóbilis virgo, Assísii nata in Umbria, sanctum Francíscum concívem suum imitáta, cuncta sua bona in eleemósynas et páuperum subsídia distríbuit et convértit. De sǽculi strépitu fúgiens, in campéstrem declinávit ecclésiam, ibíque ab eódem beáto Francísco recépta tonsúra, consanguíneis ipsam redúcere conántibus fórtiter réstitit. Et dénique ad ecclésiam sancti Damiáni fuit per eúmdem addúcta, ubi ei Dóminus plures sócias aggregávit; et sic ipsa sacrárum sorórum collégium instítuit, quarum régimen, nímia sancti Francísci devícta importunitáte, recépit. Suum monastérium sollícite ac prudénter, in timóre Dómini ac plena órdinis observántia, annis quadragínta duóbus mirabíliter gubernávit; ejus enim vita erat áliis erudítio et doctrína, unde céteræ vivéndi régulam didicérunt.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+#### Lectio v
+
+UT, carne deprésa, spíritu convalésceret, nudam humum et intérdum sarménta pro lecto habébat, et pro pulvinári sub cápite durum lignum. Una túnica cum mantéllo de vili et híspido panno utebátur, áspero cilício nonnúmquam adhíbito juxta carnem. Tanta se frenábat abstinéntia, ut longo témpore tribus in hebdómada diébus nihil pénitus pro sui córporis aliménto gustáverit; réliquis autem diébus tali se cibórum parvitáte restríngens, ut áliæ, quómodo subsístere póterat, miraréntur. Binas quotánnis (ántequam ægrotáret) quadragésimas, solo pane et aqua refécta, jejunábat. Vigíliis ínsuper et oratiónibus assídue dédita, in his præcípue dies noctésque expendébat. Diútinis perpléxa languóribus, cum ad exercítium corporále non posset súrgere per se ipsam, sorórum suffrágio levabátur; et, fulciméntis ad tergum appósitis, laborábat própriis mánibus, ne in suis étiam esset infirmitátibus otiósa. Amátrix præcípua paupertátis, ab ea pro nulla umquam necessitáte discéssit; et possessiónes pro sorórum sustentatióne a Gregório nono oblátas constantíssime recusávit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+MUltis et váriis miráculis virtus suæ sanctitátis effúlsit. Cuidam de soróribus sui monastérii loquélam restítuit expedítam; álteri aurem surdam apéruit; laborántem febre, tuméntem hydrópisi, plagátam fístula, aliásque oppréssas languóribus liberávit. Fratrem de órdine Minórum ab insá-

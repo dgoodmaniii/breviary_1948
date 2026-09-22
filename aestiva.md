@@ -32256,4 +32256,32 @@ VIro in venatióne interémpto, perfectióris vitæ consílium íniens, continé
 
 A Sancto Francísco Salésio, quo spíritus moderatóre usa fuit, divínam voluntátem edócta, próprium paréntem, sócerum, fílium dénique ipsum, quem étiam vocatióni obsisténtem, sua e domo egrédiens, pédibus calcáre non dubitávit, invícta constántia deséruit, et sacri institúti Visitatiónis sanctæ Maríæ fundaménta jecit. Ejus institúti leges integérrime custodívit, et ádeo paupertátis fuit amans, ut vel necessária sibi deésse gaudéret. Christiánæ vero ánimi demissiónis et obediéntiæ, virtútum dénique ómnium perfectíssimum exémplar se prǽbuit. Altióres in corde suo ascensiónes dispónens, arduíssimo efficiéndi semper id, quod perféctius esse intellígeret, voto se obstrínxit. Dénique, sacro Visitatiónis institúto ejus potíssimum ópera longe latéque diffúso, verbo, exémplo et scriptis étiam, divína sapiéntia refértis, ad pietátem et caritátem soróribus excitátis, méritis reférta, et sacraméntis rite suscéptis, Molínis, anno millésimo sexcentésimo quadragésimo primo, die décima tértia Decémbris, migrávit ad Dóminum; ejúsque ánimam, occurrénte sancto Francísco Salésio, in cælos deférri sanctus Vincéntius a Paulo procul distans aspéxit. Ejus corpus póstea Annécium translátum fuit; eámque, miráculis ante et post óbitum claram, Benedíctus décimus quartus Beatórum, Clemens vero décimus tértius, Póntifex máximus, albo Sanctórum adjécit. Festum autem ejúsdem die duodécimo Kaléndas Septémbris ab univérsa Ecclésia Clemens décimus quartus, Póntifex máximus, celebrári præcépit.
 
-℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et lau-
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier timens Deum, ipsa laudábitur. Glória Patri. Múlier.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOánna Francísca Frémiot de Chantal, Divióne in Burgúndia claríssimis orta natálibus, adhuc puélla, matre orbáta, Deíparæ Vírginis tutélæ se commendávit. Baróni de Chantal núptui a patre trádita, mulíerem fortem appríme réferens, ómnibus ómnia facta est. Viro in venatióne interémpto, continéntiæ voto se obstrínxit, et sui victrix, occisóris fílium e sacro fonte suscípere non dubitávit. Ne autem a propósito castimóniæ observándæ in pósterum dimoverétur, voto innováto, sanctíssimum Jesu Christi nomen candénti ferro suo péctori inscúlpsit. A sancto Francísco Salésio, quo spíritus moderatóre usa fuit, divínam voluntátem edócta, sacri institúti Visitatiónis sanctæ Maríæ fundaménta jecit, quod longe latéque diffúdit. Cum dénique voto se obstrinxísset efficiéndi semper quod perféctius esse intellígeret, méritis referta, Molínis migrávit ad Dóminum, anno millésimo sexcentésimo quadragésimo primo, die décima tértia Decémbris, et a Cleménte décimo tértio albo Sanctórum adjécta est.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est regnum cælórum, de Communi non Vírginum. [134]}
+
+##### Ad Laudes
+
+℣. Diffúsa est.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+###### Oratio
+
+OMnípotens et miséricors Deus, qui beátam Joánnam Franciscam tuo amóre succénsam admirábili spíritus fortitúdine per omnes vitæ sémitas in via perfectiónis donásti, quique per illam illustráre Ecclésiam tuam nova prole voluísti: ejus méritis et précibus concéde; ut qui infirmitátis nostræ cónscii de tua virtúte confídimus, cæléstis grátiæ auxílio cuncta nobis adversántia vincámus. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Octávæ:}
+
+**Ant.** Quæ est ista quæ ascéndit sicut auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta?

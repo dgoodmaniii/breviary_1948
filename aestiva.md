@@ -25495,3 +25495,59 @@ Et nobis véniam dare.
 
 Hoc quicúmque stolam sánguine próluit,
 Abstérgit máculas; et róseum decus,
+Quo fiat símilis prótinus Angelis
+Et Regi pláceat, capit.
+
+A recto instábilis trámite póstmodum
+Se nullus rétrahat, meta sed última
+Tangátur; tríbuet nóbile prǽmium,
+Qui cursum Deus ádjuvat.
+
+Nobis propítius sis, Génitor potens,
+Ut, quos unígenæ sánguine Fílii
+Emísti, et plácido Flámine récreas,
+Cæli ad cúlmina tránsferas.
+Amen.
+
+℣. Redemísti nos, Dómine, in sánguine suo. ℟. Et fecísti nos Deo nostro regnum.
+
+**Ad Magnif. Ant.** Accessístis \* ad Sion montem, et civitátem Dei vivéntis, Jerúsalem cæléstem, et Testaménti novi mediatórem Jesum, et sánguinis aspersiónem mélius loquéntem quam Abel.
+
+### In II Vesperis
+
+℣. Te ergo quǽsumus, tuis fámulis súbveni. ℟. Quos pretióso sánguine redemísti.
+
+**Ad Magnif. Ant.** Habébitis autem \* hunc diem in monuméntum: et celebrábitis eum solémnem Dómino in generatiónibus vestris cultu sempitérno.
+
+###### Oratio
+
+OMnípotens sempitérne Deus, qui unigénitum Fílium tuum mundi Redemptórem constituísti, ac ejus Sánguine placári voluísti: concéde, quǽsumus, salútis nostræ prétium solémni cultu ita venerári, atque a præséntis vitæ malis ejus virtúte deféndi in terris; ut fructu perpétuo lætémur in cælis. Per eúmdem Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+##### Ad Matutinum
+
+**Invit.** Christum Dei Fílium, qui suo nos redémit sánguine, \* Veníte, adorémus. *Ps. 94* Veníte, exsultémus.
+
+###### Hymnus
+
+IRA justa Conditóris,
+Imbre aquárum víndice,
+Criminósum mersit orbem
+Noë in arca sóspite:
+Mira tandem vis amóris
+Lavit orbem sánguine.
+
+Tam salúbri terra felix
+Irrigáta plúvia,
+Ante spinas quæ scatébat,
+Germinávit flósculos;
+Inque néctaris sapórem
+Transiére absínthia.
+
+Triste prótinus venénum
+Dirus anguis pósuit,
+Et cruénta belluárum
+Désiit ferócia:
+Mitis Agni vulneráti
+Hæc fuit victória.

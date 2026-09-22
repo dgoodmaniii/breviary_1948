@@ -28624,3 +28624,59 @@ INnocéntius Albanénsis, sancti Hierónymi et Augustíni ætáte flóruit. De q
 NAzárius, a beáto Lino Papa baptizátus, cum in Gálliam proféctus esset, ibi Celsum púerum, a se christiánis præcéptis prius instrúctum, baptizávit. Póstea Mediolánum ambo veniéntes, cum ibi Christi fidem disseminárent, ab Anolíno præfécto, constantíssime Christum Deum confiténtes, cápite plectúntur; quorum córpora a beáto Ambrósio invénta sunt. In eúmdem diem íncidit memória sancti Victóris Papæ, qui Severo imperatóre rexit Ecclésiam, Theódotum coriárium confutávit, scripsítque de quæstióne Paschæ. Martýrio coronátus, sepúltus est in Vaticáno quinto Kaléndas Augústi. Eódem étiam die recólitur sanctus Innocéntius Papa, qui, Pelágio et Cæléstio damnátis, contra eórum hǽresim decrétum fecit. Cujus corpus sepúltum est in cœmetério ad Ursum pileátum.
 
 Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilia in Evangelium Cum audiéritis, de eodem Communi 1 loco. [60]}
+
+##### Ad Laudes
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+###### Oratio
+
+SAnctórum tuórum nos, Dómine, Nazárii, Celsi, Victóris et Innocéntii conféssio beáta commúniat; et fragilitáti nostræ subsídium dignánter exóret. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capitulo de seq., Commemoratio præcedentis ac Ss. Felicis II Papæ, Simplicii, Faustini et Beatricis Mm.}
+
+---
+
+### Die 29 Julii
+
+#### S. Marthæ
+
+{RUBRIC: Virg. [111] Semiduplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+###### Oratio C 3
+
+EXáudi nos, Deus, salutáris noster: ut, sicut de beátæ Marthæ Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Gaudent in cælis ánimæ Sanctórum, qui Christi vestígia sunt secúti; et, quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+{RUBRIC: Sanctórum, ut supra.}
+
+{RUBRIC: Deinde Commem. Ss. Felicis II Papæ, Simplicii, Faustini et Beatricis Mm.:}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+PRæsta, quæsumus, Dómine, ut, sicut pópulus christiánus Mártyrum tuórum Felícis, Simplícii, Faustíni et Beatrícis temporáli solemnitáte congáudet, ita perfruátur ætérna; et, quod votis célebrat, comprehéndat efféctu. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+MArtha, nobílibus et copiósis paréntibus nata, sed Christi Dómini hospítio clárior,

@@ -22316,4 +22316,16 @@ DEus, qui multitúdinem populórum, beáti Bonifátii Mártyris tui atque Pontí
 
 #### Lectio iv
 
-BOnifátius, ántea Winfrídus appellátus, apud Anglos natus est exeúnte sæculo séptimo, et ab ipsa infántia mundum aversátus, vitam monásticam in votis hábuit. Cum ejus pater ánimum sæculi illécebris permutáre frustra tentásset, monastérium ingréditur, et sub beáti Wolphárdi discíplina ómnium virtútum ac scientiárum génere imbúitur. Annum agens trigésimum sacerdótio insignítur, ac verbi divíni prædicátor assíduus, magno animárum lucro hoc in múnere versátur. Attámen, regnum Christi adaugére desíderans, contínuo flebat ingéntem multitúdinem barbarórum, qui ignorántiæ ténebris immérsi dæmóni famulabántur. Qui quidem animárum zelus cum in dies inexstinguíbili ardóre accrésceret, divíno númine per lácrimas et oratió-
+BOnifátius, ántea Winfrídus appellátus, apud Anglos natus est exeúnte sæculo séptimo, et ab ipsa infántia mundum aversátus, vitam monásticam in votis hábuit. Cum ejus pater ánimum sæculi illécebris permutáre frustra tentásset, monastérium ingréditur, et sub beáti Wolphárdi discíplina ómnium virtútum ac scientiárum génere imbúitur. Annum agens trigésimum sacerdótio insignítur, ac verbi divíni prædicátor assíduus, magno animárum lucro hoc in múnere versátur. Attámen, regnum Christi adaugére desíderans, contínuo flebat ingéntem multitúdinem barbarórum, qui ignorántiæ ténebris immérsi dæmóni famulabántur. Qui quidem animárum zelus cum in dies inexstinguíbili ardóre accrésceret, divíno númine per lácrimas et oratiónes exploráto, facultátem a monastérii præpósito obtínuit ad Germánicas oras proficiscéndi.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non dereliquit eum. — Et.
+
+#### Lectio v
+
+EX Anglia duóbus cum sóciis navem solvens, Dorestádium in Frísiæ óppidum venit. Cum autem bellum gravíssimum inter Frísonum regem Radbódum et Cárolum Martéllum exarsísset, sine fructu Evangélium prædicávit. Quaprópter in Angliam revérsus, ad suum redívit monastérium, cui invítus præfícitur. Post elápsum biénnium, ex consénsu epíscopi Vintoniénsis, munus abdicávit, et Romam proféctus est, ut apostólica auctoritáte ad gentílium conversiónem delegarétur. Cum ad Urbem pervenísset, a Gregório secúndo benígne excípitur, pro Winfrído Bonifátius a Pontífice nominátur. In Germániam diréctus, Thuríngiæ Saxoniǽque pópulis Christum annuntiávit. Cum intérea Radbódus, Frísiæ rex ac infestíssimus christiáni nóminis hostis, occubuísset, Bonifátius ad Frísones rédiit, ubi sancti Willibrórdi sócius per triénnium tanto cum fructu Evangélium prædicávit, ut, destrúctis idolórum simulácris, innúmeræ vero Deo ecclésiæ excitaréntur.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+#### Lectio vi
+
+A Sancto Willibrórdo ad episcopále munus expetítus, illud detrectávit ut prómptius infidélium salúti instáret. In Germániam proféctus, plura Hassórum míllia a dǽmonis superstitióne avocávit. A Gregório Pontífice Romam evocátus, post insígnem fídei professiónem epíscopus consecrátur. Exínde ad Germános redux, Hássiam et Thuríngiam ad idololatríæ relíquiis pénitus expurgávit. Tanta propter mérita Bonifátius a Gregório tértio ad dignitátem archiepiscopálem evéhitur, et tértio Romam proféctus a summo Pontí-

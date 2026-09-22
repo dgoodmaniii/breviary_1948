@@ -23441,4 +23441,30 @@ POtúerat, dilectíssimi, Dóminus omnípotens ǽque univérsos dívites fácere
 
 #### Lectio viii
 
-REfice esuriéntem ánimam, et non timébis in die malo ab ira superventúra. Beátus enim (inquit) qui intélligit super egénum et páuperem, in die malo liberábit eum Dóminus. Operáre ígitur et éxcole hanc regiónem terræ tuæ, frater, ut gérminet tibi frugem fértilem, plenam ádipe fruménti, magno cum fǽnore centésimum tibi fructum multiplicáti séminis afferéntem. In hujus vel possessiónis vel negotiatiónis appetítum et stúdium sancta et salutáris est avarítia; nam talis cupíditas, quæ regnum cæléste merétur et bonum perénne desíderat, radix bonórum est. Tales ígitur divítias concupíscite, et hujúsmodi possidéte patrimónium, quod in centénos fructus vobis créditor pénsitet, ut vestros quoque vobíscum bonis perénnibus augeátis herédes. Posséssio enim hæc vere magna et pre-
+REfice esuriéntem ánimam, et non timébis in die malo ab ira superventúra. Beátus enim (inquit) qui intélligit super egénum et páuperem, in die malo liberábit eum Dóminus. Operáre ígitur et éxcole hanc regiónem terræ tuæ, frater, ut gérminet tibi frugem fértilem, plenam ádipe fruménti, magno cum fǽnore centésimum tibi fructum multiplicáti séminis afferéntem. In hujus vel possessiónis vel negotiatiónis appetítum et stúdium sancta et salutáris est avarítia; nam talis cupíditas, quæ regnum cæléste merétur et bonum perénne desíderat, radix bonórum est. Tales ígitur divítias concupíscite, et hujúsmodi possidéte patrimónium, quod in centénos fructus vobis créditor pénsitet, ut vestros quoque vobíscum bonis perénnibus augeátis herédes. Posséssio enim hæc vere magna et pretiósa est, quæ possessórem suum non cúmulo sæculári ónerat, sed réditu ditat ætérno.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: Si hodie fuerit Sabbatum, Lectio ix de Homilia Vigiliæ anticipatæ S. Joannis Baptistæ, et ejus Commemoratio ad Laudes, ut die sequenti notatur; secus}
+
+#### Lectio ix
+
+VErum, dilectíssimi, non solum ut bona ætérna quærátis, sed ut mala innúmera vitáre mereámini, præsénti sollicitúdine et sédula operatióne justítiæ providéte. Magno enim adjutório atque præsídio nobis opus est, et multárum atque indeficiéntium oratiónum patrocíniis indigémus. Adversárius enim noster non quiéscit, et in nostrum pérvigil hostis intéritum óbsidet omnes vias nostras. Multæ prætérea nobis in hoc sǽculo cruces, innúmera discrímina, morbórum labes, fébrium ignes et dolórum tela grassántur in ánimas, cupiditátum faces accendúntur; ubíque prætenti latent láquei, úndique stricti horrent gládii, inter insídias et pugnas vita transígitur, et per ignes dolóso cíneri suppósitos ambulámus. Igitur, priúsquam in áliquam tantárum ægritúdinum labem casu vel mérito actus incúrras, festína médico suscéptus et carus fíeri, ut in témpore necessitátis parátum hábeas remédium salútis. Aliud est, quando tu solus oras pro te; et áliud, quando multitúdo pro te apud Deum trépidat.
+
+Te Deum.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DEus, qui ómnia pro te in hoc sǽculo relinquéntibus céntuplum in futúro et vitam ætérnam promisísti: concéde propítius; ut, sancti Pontíficis Paulíni vestígiis inhæréntes, valeámus terréna despícere, et sola cæléstia desideráre: Qui vivis.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et

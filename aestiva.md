@@ -22279,3 +22279,41 @@ Te Deum.
 ---
 
 {RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [98]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui beátum Francíscum, novi órdinis institutórem, orándi stúdio et pœniténtiæ amóre decorásti: da fámulis tuis in ejus imitatióne ita profícere; ut, semper orántes, et corpus in servitútem redigéntes, ad cæléstem glóriam perveníre mereántur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedéntis.}
+
+---
+
+### Die 5 Junii
+
+#### S. Bonifatii
+
+{RUBRIC: Episcopi et Martyris [29] Duplex}
+
+###### Oratio
+
+DEus, qui multitúdinem populórum, beáti Bonifátii Mártyris tui atque Pontíficis zelo, ad agnitiónem tui nóminis vocáre dignátus es: concéde propítius; ut, cujus solémnia cólimus, étiam patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis :}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui beátum, ut supra.}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+BOnifátius, ántea Winfrídus appellátus, apud Anglos natus est exeúnte sæculo séptimo, et ab ipsa infántia mundum aversátus, vitam monásticam in votis hábuit. Cum ejus pater ánimum sæculi illécebris permutáre frustra tentásset, monastérium ingréditur, et sub beáti Wolphárdi discíplina ómnium virtútum ac scientiárum génere imbúitur. Annum agens trigésimum sacerdótio insignítur, ac verbi divíni prædicátor assíduus, magno animárum lucro hoc in múnere versátur. Attámen, regnum Christi adaugére desíderans, contínuo flebat ingéntem multitúdinem barbarórum, qui ignorántiæ ténebris immérsi dæmóni famulabántur. Qui quidem animárum zelus cum in dies inexstinguíbili ardóre accrésceret, divíno númine per lácrimas et oratió-

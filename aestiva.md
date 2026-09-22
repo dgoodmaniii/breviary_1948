@@ -22886,4 +22886,28 @@ NAM et Valéntis sella, in qua, factúrus decrétum de ejiciéndo e civitáte Ba
 
 #### Lectio vi
 
-ABstinéntia et continéntia fuit admirábili; una túnica conténtus erat: in
+ABstinéntia et continéntia fuit admirábili; una túnica conténtus erat: in jejúnio servándo diligentíssimus, in oratióne assíduus, in qua sæpe totam noctem consumébat. Virginitátem perpétuo cóluit. Monastériis exstrúctis, ita monachórum institútum temperávit, ut solitáriæ atque actuósæ vitæ utilitátes præcláre simul conjúngeret. Multa erudíte scripsit; ac nemo, teste Gregório Nazianzéno, sacræ Scriptúræ libros vérius aut ubérius explicávit. Obiit Kaléndis Januárii, cum tantum spíritu vivens, præter ossa et pellem, nulla prætérea córporis parte constáre viderétur.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória. Ipse.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+BAsilíus, nóbilis Cáppadox, Athénis una cum Gregório Nazianzéno, ejus amicíssimo, sæculáribus lítteris, deínde in monastério sacris mirabíliter erudítus, eum brevi cursum fecit ad omnem doctrínæ et morum excelléntiam, ut inde Magni cognómen invénerit. Ad prædicándum Jesu Christi Evangélium in Pontum accersítus, eam provínciam ad viam salútis revocávit; mox ab Eusébio Cæsaréæ epíscopo ad erudiéndam eam civitátem adjútor adhibétur, in cujus locum póstea successit. Is Fílium Patri consubstantiálem esse in primis deféndit, ac Valéntem imperatórem, sibi irátum et exsílium minitántem, miráculis ádeo flexit, ut a senténtia discédere coégerit. Abstinéntia et continéntia fuit admirábili; in oratióne assíduus, in ea sæpe totam noctem consumébat. Monastériis exstrúctis, ita monachórum institútum temperávit, ut solitáriæ atque actuósæ vitæ utilitátes præcláre simul conjúngeret. Multa erudíte scripsit; ac nemo, teste Gregório Nazianzéno, sacræ Scriptúræ libros vérius aut ubérius explicávit. Obiit Kaléndis Januárii.
+
+Te Deum.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 14, 26-35*
+
+IN illo témpore: Dixit Jesus turbis: Si quis venit ad me, et non odit

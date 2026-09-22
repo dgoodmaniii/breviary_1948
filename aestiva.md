@@ -26445,4 +26445,14 @@ De Expositióne sancti Joánnis Chrysóstomi in Epístolam ad Romános
 
 CUM Paulus Apóstolus grátiam Dómini nostri Jesu Christi, matrem ómnium bonórum, nobis precétur; réliquum est, ut nos tali patrocínio dignos exhibeámus, ut non hic solum vocem Pauli audiámus, sed et postquam illuc migravérimus, athlétam Christi vidére mereámur. Immo, si hic audivérimus, et illic ipsum omníno vidébimus, licet non e propínquo stantes; vidébimus tamen prope regálem thronum splendéntem, ubi Chérubim Deum glorífícant, ubi Séraphim volant. Illic Paulum vidébimus cum Petro Sanctórum chori príncipem ac ducem, et ejus germána caritáte fruémur.
 
-℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio v
+
+SI enim, cum hic esset, usque ádeo diligébat hómines, ut, cum dissólvi et cum Christo esse cúperet, elégerit tamen hic esse; multo magis illic ferventiórem caritátem osténdet. Ego et Romam proptérea díligo, tametsi aliúnde illam laudáre queam, nempe a magnitúdine, ab antiquitáte, a pulchritúdine, a multitúdine, ab império, a divítiis, et a rebus in bello fórtiter gestis. Sed, his ómnibus omíssis, ob id illam beátam prǽdico, quod erga illos Paulus, dum víveret, ádeo fuit benévolus, ádeo illos amávit, et coram disséruit, et postrémo vitam apud eos finívit. Cujus sanctum corpus ipsi póssident. Et proptérea cívitas illa hinc facta est insígnis magis quam ab áliis rebus ómnibus; et tamquam corpus magnum ac válidum duos habet óculos fulgéntes, Sanctórum vidélicet horum córpora.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum, propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+NOn ita cælum spléndescit quando rádios sol demíttit, quemádmodum Románorum urbs duos istos fulgóres ubíque terrárum emíttens. Hinc rapiétur Paulus, hinc Petrus. Consideráte et horréte, quale spectáculum visúra sit Roma; Paulum vidélicet, repénte ex theca illa cum Petro resurgéntem, in occúrsum Dómini sursum ferri. Qualem rosam Christo mittet Roma! quálibus corónis duábus ornátur urbs ista! quálibus caténis áureis cincta est! quales habet fontes! Proptérea admíror hanc urbem, non propter cópiam auri, non propter colúmnas, neque propter áliam quamcúmque rerum spéciem, sed propter colúmnas illas Ecclésiæ. Quis mihi nunc dabit circumvólvi córpori Pauli, affígi

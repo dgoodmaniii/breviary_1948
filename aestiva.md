@@ -29617,7 +29617,7 @@ COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córpor
 
 SAlvatórem exspectámus Dóminum nostrum Jesum Christum, qui reformábit corpus humilitátis nostræ configurátum córpori claritátis suæ.
 
-###### Hymnus
+#### Hymnus
 
 QUicúmque Christum quǽritis,
 Oculos in altum tóllite:
@@ -29651,6 +29651,6 @@ Amen.
 
 **Ad Magnif. Ant.** Christus Jesus, \* splendor Patris et figúra substántiæ ejus, portans ómnia verbo virtútis suæ, purgatiónem peccatórum fáciens, in monte excélso gloriósus apparére hódie dignátus est.
 
-###### Oratio
+#### Oratio
 
 DEus, qui fídei sacraménta in Unigéniti tui gloriósa Transfiguratióne patrum testimónio roborásti, et adoptiónem filiórum perféctam, voce delápsa in nube lúcida, mirabíliter præsignásti: concéde propítius; ut ipsíus Regis glóriæ nos cohærédes effícias, et ejúsdem glóriæ tríbuas esse consórtes. Per eúmdem Dóminum.

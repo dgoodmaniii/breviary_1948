@@ -30631,3 +30631,57 @@ Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus D�
 *2 Cor. 9, 6*
 
 FRatres: Qui parce séminat, parce et metet; et qui séminat in benedictiónibus, de benedictiónibus et metet.
+
+#### Hymnus
+
+DEus, tuórum mílitum
+Sors, et coróna, prǽmium,
+Laudes canéntes Mártyris
+Absólve nexu críminis.
+
+Hic nempe mundi gáudia,
+Et blanda fraudum pábula
+Imbúta felle députans,
+Pervénit ad cæléstia.
+
+Pœnas cucúrrit fórtiter,
+Et sústulit viríliter,
+Fundénsque pro te sánguinem,
+Ætérna dona póssidet.
+
+Ob hoc precátu súpplici
+Te póscimus, piíssime:
+In hoc triúmpho Mártyris
+Dimítte noxam sérvulis.
+
+\* Laus et perénnis glória
+Patri sit, atque Fílio,
+Sancto simul Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+**Ad Magnif. Ant.** Levíta Lauréntius \* bonum opus operátus est, qui per signum crucis cæcos illumínavit, et thesáuros Ecclésiæ dedit paupéribus.
+
+### In II Vesperis
+
+℣. Levíta Lauréntius bonum opus operátus est. ℟. Qui per signum crucis cæcos illumínavit.
+
+**Ad Magnif. Ant.** Beátus Lauréntius, \* dum in craticula superpósitus urerétur, ad impiíssimum tyránnum dixit: Assátum est jam, versa et manduca; nam facultátes Ecclésiæ, quas requíris, in cæléstes thesáuros manus páuperum deportavérunt.
+
+#### Oratio
+
+DA nobis, quǽsumus, omnípotens Deus, vitiórum nostrórum flammas exstínguere: qui beáto Lauréntio tribuísti tormentórum suórum incéndia superáre. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+#### Oratio
+
+OMnípotens et miséricors Deus, qui sanctum Joánnem Maríam pastoráli stúdio et jugi oratiónis ac pœniténtiæ ardóre mirábilem effecísti: da, quǽsumus; ut, ejus exémplo et intercessióne, ánimas fratrum lucrári Christo, et cum eis ætérnam glóriam cónsequi valeámus. Per eúmdem Dóminum.
+
+{RUBRIC: Completorium de Dominica.}

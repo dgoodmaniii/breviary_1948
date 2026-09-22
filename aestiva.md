@@ -22520,4 +22520,30 @@ INter regáles delícias corpus afflictatiónibus ac vigíliis mácerans, magnam
 
 #### Lectio vi
 
-NIhil tamen æque in illa mirábile fuit ac flagrantíssima cáritas erga próximos, præsértim egénos, quorum numerósis grégibus non modo stipem áffatim suppeditáre, verum étiam trecéntis quotídie matérna benignitáte dapes præbére, flexis génibus in morem ancíllæ ministráre, régiis mánibus pedes ablúere, et pressis étiam ósculis úlcera fovére, solémne hábuit. His porro aliísque piis súmptibus non régias tantum vestes et pretiósa monília
+NIhil tamen æque in illa mirábile fuit ac flagrantíssima cáritas erga próximos, præsértim egénos, quorum numerósis grégibus non modo stipem áffatim suppeditáre, verum étiam trecéntis quotídie matérna benignitáte dapes præbére, flexis génibus in morem ancíllæ ministráre, régiis mánibus pedes ablúere, et pressis étiam ósculis úlcera fovére, solémne hábuit. His porro aliísque piis súmptibus non régias tantum vestes et pretiósa monília distráxit, sed ipsum non semel exháusit ærárium. Tolerátis demum ad patiéntiæ miráculum acerbíssimis dolóribus, ánimam seméstri córporis ægrotatióne purgátam Auctóri suo, sextodécimo Kaléndas Decémbris, réddidit. Quo témporis moménto fácies ejus, diutúrni morbi mácie ac pallóre fœdáta, insólita quadam venustáte reflóruit. Miris étiam post mortem prodígiis clara, et Cleméntis décimi auctoritáte in Scótiæ patrónam accépta, ubíque terrárum religiosíssime cólitur.
+
+℟. Fallax grátia, et vana est pulchritúdo: \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+MArgaríta, ex régia Anglórum stirpe in Hungária nata, post exáctam summa cum pietáte puerítiam, una cum genitóre, qui a sancto Eduárdo pátruo, Anglórum rege, ad patérni regni fastígium vocabátur, in Angliam, dein in Scótiam venit. Ibi, cum ex matris império Scotórum regi Malchólmo tértio nupsísset, sanctimóniæ et pietátis opéribus annis trigínta toti regno prófuit. Máxima erat in ea vitæ austéritas et flagrantíssimum erga próximos caritátis stúdium, præsértim in egénos; pro quibus aléndis non semel exháusit ærárium. Demum acérbis dolóribus et diutúrno morbo patientíssime tolerátis, ánimam Deo réddidit sextodécimo Kaléndas Decémbris. Quo témporis moménto fácies ejus, mácie ac pallóre fœdáta, insólita quadam venustáte reflóruit. Cleméntis décimi auctoritáte in Scótiæ patrónam accépta, ubíque terrárum religiosíssime cólitur.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est regnum cælórum, de Comm. non Virg. [134]}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+###### Oratio
+
+DEus, qui beátam Margarítam regínam exímia in páuperes caritáte mirábilem effecísti: da; ut ejus intercessióne et exémplo, tua in córdibus

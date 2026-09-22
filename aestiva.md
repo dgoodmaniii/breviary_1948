@@ -21756,4 +21756,18 @@ DEus, qui beátum Philíppum Confessórem tuum Sanctórum tuórum glória sublim
 
 ###### Oratio
 
-GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Eleu-
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Eleuthérium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+PHilíppus Nérius, piis honestísque paréntibus Floréntiæ natus, ab ipsa ineúnte ætáte non obscúra dedit futúræ sanctitátis indícia. Adoléscens, ampla pátrui hereditáte dimíssa, Romam se cóntulit; ubi philosóphia ac sacris lítteris erudítus, totum se Christo dicávit. Ea fuit abstinéntia, ut sæpe jejúnus tríduum permánserit. Vigíliis et oratiónibus inténtus, septem Urbis Ecclésias frequénter vísitans, apud cœmetérium Callísti in cæléstium rerum contemplatióne pernoctáre consuévit. Sacérdos ex obediéntia factus, in animárum salúte procuránda totus fuit; et in confessiónibus audiéndis ad extrémum usque diem persevérans, innúmeros pene fílios Christo péperit; quos verbi Dei quotidiáno pábulo, sacramentórum frequéntia, oratiónis assiduitáte aliísque piis exercitatiónibus enutríri cúpiens, Oratórii congregatiónem instítuit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+CAritáte Dei vulnerátus languébat júgiter, tantóque cor ejus æstuábat ardóre, ut, cum intra fines suos continéri non posset, illíus sinum, confráctis atque elátis duábus cóstulis, mirabíliter Dóminus ampliáverit. Sacrum vero fáciens aut ferventius orans, in áëra quandóque sublátus, mira úndique luce fulgére visus fuit. Egénos et páuperes omni caritátis offício prosequebátur: dignus, qui et Angelo in spécie páuperis eleemósynam erogáret; et, dum egéntibus noctu panem deférret, in fóveam lapsus, inde páriter ab Angelo incólumis eriperétur. Humilitáti addíctus, ab honóribus semper abhórruit, atque ecclesiásticas dignitátes, étiam primárias, non semel ultro delátas, constantíssime recusávit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum,

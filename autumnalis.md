@@ -14446,3 +14446,71 @@ AD hos omnes misit núntios Nabuchodónosor rex Assyriórum; qui omnes uno ánim
 POTÉNTES vinum prohibéntur bíbere, ne, cum bíberint, obliviscántur sapiéntiam. Dénique bibébant vinum in ebrietáte poténtes, qui Holoférni príncipi milítiæ regis Assyriórum se trádere gestiébant; sed non bibébat fémina Judith, jejúnans ómnibus diébus viduitátis suæ, præter festórum diérum solemnitátes. His armis muníta procéssit et omnem Assyriórum circumvénit exércitum. Sóbrii vigóre consílii ábstulit Holoférnis caput, servávit pudicítiam, victóriam reportávit.
 
 ℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus: \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.
+
+##### Lectio v
+
+HÆC enim succíncta jejúnio in castris prætendébat aliénis; ille vino sepúltus jacébat, ut ictum vúlneris sentíre non posset. Itaque uníus mulíeris jejúnium innúmeros strávit exércitus Assyriórum. Esther quoque púlchrior facta est jejúnio; Dóminus enim grátiam sóbriæ mentis augébat. Omne genus suum, id est, totum pópulum Judæórum a persecutiónis acerbitáte liberávit, ita ut regem sibi fáceret esse subjéctum.
+
+℟. Dominátor, Dómine cælórum et terræ, Creátor aquárum, Rex univérsæ creatúræ: \* Exáudi oratiónem servórum tuórum. ℣. Tu, Dómine, cui humílium semper et mansuetórum plácuit deprecátio. — Exáudi.
+
+##### Lectio vi
+
+ITAQUE illa, quæ tríduo jejunávit contínuo, et corpus suum aqua lavit, plus plácuit, et vindíctam rétulit. Aman autem, dum se regáli jactat convívio, inter ipsa vina pœnam suæ ebrietátis exsólvit. Est ergo jejúnium reconciliatiónis sacrifícium, virtútis increméntum, quod fecit étiam féminas fortióres augménto grátiæ. Jejúnium nescit fænerátorem, non sortem fæneris novit: non rédolet usúras mensa jejunántium. Etiam ipsis jejúnium convívíis dat grátiam: dulcióres post famem épulæ fiunt, quæ assiduitáte fastídio sunt, et diutúrna continuatióne viléscunt. Condiméntum cibi jejúnium est: quanto avídior appeténtia, tanto esca jucúndior.
+
+℟. Dómine Deus, qui cónteris bella ab inítio, éleva bráchium tuum super Gentes, quæ cógitant servis tuis mala: \* Et déxtera tua glorificétur in nobis. ℣. Allíde virtútem eórum in virtúte tua; cadat robur eórum in iracúndia tua. — Et. Glória Patri. Et.
+
+℟. vii Confórta me, Rex Sanctórum principátum tenens: \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+℟. viii Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam IV Septembris
+
+{RUBRIC: De libro Judith}
+
+##### Lectio i
+*Cap. 4, 1-12*
+
+FILII Israël, qui habitábant in terra Juda, timuérunt valde a fácie Holoférnis; tremor et horror invásit sensus eórum, ne hoc fáceret Jerúsalem et templo Dómini, quod fécerat céteris civitátibus et templis eárum. Et misérunt in omnem Samaríam per circúitum usque Jéricho et præoccupavérunt omnes vértices móntium et muris circumdedérunt vicos suos et congregavérunt fruménta in præparatiónem pugnæ.
+
+℟. Adonái, Dómine, Deus magne et mirábilis, qui dedísti salútem in manu féminæ, \* Exáudi preces servórum tuórum. ℣. Benedíctus es, Dómine, qui non derelínquis præsuméntes de te, et de sua virtúte gloriántes humílias. — Exáudi.
+
+##### Lectio ii
+
+SACÉRDOS étiam Elíachim scripsit ad univérsos qui erant contra Esdrelon, quæ est contra fáciem campi magni juxta Dóthain, et univérsos per quos viæ tránsitus esse póterat, ut obtinérent ascénsus móntium, per quos via esse póterat ad Jerúsalem, et illic custodírent ubi angústum iter esse póterat inter montes. Et fecérunt fílii Israël secúndum quod constitúerat eis sacérdos Dómini Elíachim. Et clamávit omnis pópulus ad Dóminum instántia magna, et humiliavérunt ánimas suas in jejúniis et oratiónibus ipsi et mulíeres eórum.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dómine.}
+
+##### Lectio iii
+
+ET induérunt se sacerdótes cilíciis, et infántes prostravérunt contra fáciem templi Dómini, et altáre Dómini operuérunt cilício; et clamavérunt ad Dóminum Deum Israël unanímiter, ne daréntur in prædam infántes eórum, et uxóres eórum in divisiónem, et civitátes eórum in extermínium, et sancta eórum in pollutiónem, et fíerent oppróbrium Géntibus. Tunc Elíachim sacérdos Dómini magnus circuívit omnem Israël allocutúsque est eos dicens: Scitóte quóniam exáudiet Dóminus preces vestras, si manéntes permanséritis in jejúniis et oratiónibus in conspéctu Dómini.
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros: \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Tertia infra Hebdomadam IV Septembris
+
+{RUBRIC: De libro Judith}
+
+##### Lectio i
+*Cap. 8, 1-11*
+
+ET factum est, cum audísset hæc verba Judith vídua, quæ erat fília Merári, fílii Idox, fílii Joseph, fílii Oziæ, fílii Elai, fílii Jammor, fílii Gédeon, fílii Ráphaïm, fílii Achitob, fílii Melchíæ, fílii Enan, fílii Nathaníæ, fílii Saláthiel, fílii Símeon, fílii Ruben, et vir ejus fuit Manásses, qui mórtuus est in diébus messis hordeáceæ; instábat enim super alligántes manípulos in campo, et venit æstus super caput ejus, et mórtuus est in Bethúlia civitáte sua et sepúltus est illic cum pátribus suis. Erat autem Judith relícta ejus vídua jam annis tribus et ménsibus sex.
+
+℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus: \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.
+
+##### Lectio ii
+
+ET in superióribus domus suæ fecit sibi secrétum cubículum, in quo cum puéllis suis clausa morabátur. Et habens super lumbos suos cilícium, jejunábat ómnibus diébus vitæ suæ præter sábbata et neoménias et festa domus Israël. Erat autem elegánti aspéctu nimis; cui vir suus reliquérat divítias multas et famíliam copiósam ac possessiónes arméntis boum et grégibus óvium plenas. Et erat hæc in ómnibus famosíssima, quóniam timébat Dóminum valde, nec erat qui loquerétur de illa verbum malum.
+
+℟. Dominátor, Dómine cælórum et terræ, Creátor aquárum, Rex univérsæ creatúræ: \* Exáudi oratiónem servórum tuórum. ℣. Tu, Dómine, cui humílium semper et mansuetórum plácuit deprecátio. — Exáudi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Exáudi.}
+
+##### Lectio iii
+
+HÆC ítaque, cum audísset quóniam Ozías promisísset quod, transácto quinto die, tráderet civitátem, misit ad presbýteros Chabri et Charmi. Et venérunt ad illam,

@@ -15620,3 +15620,47 @@ DEum enim dicébant esse benígnum et cleméntem, nec umquam adímere salútem, 
 ℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
 
 ℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam IV Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 2, 1-9*
+
+INvenítur autem in descriptiónibus Jeremíæ prophétæ, quod jussit eos ignem accípere qui transmigrábant, ut significátum est et ut mandávit transmigrátis, et dedit illis legem, ne obliviscerántur præcépta Dómini et ut non exerrárent méntibus vidéntes simulácra áurea et argéntea et ornaménta eórum; et ália hujúsmodi dicens hortabátur, ne legem amovérent a corde suo.
+
+℟. Dixit Judas Simóni fratri suo : Elige tibi viros et vade, líbera fratres tuos in Galilǽam; ego autem et Jónathas frater tuus íbimus in Galaadítim : \* Sicut fúerit volúntas in cælo, sic fiat. ℣. Accingímini, fílii poténtes, et estóte paráti : quóniam mélius est nobis mori in bello, quam vidére mala gentis nostræ et sanctórum. — Sicut.
+
+##### Lectio ii
+
+ERat autem in ipsa scriptúra, quómodo tabernáculum et arcam jussit Prophéta, divíno respónso ad se facto, comitári secum, úsquequo éxiit in montem, in quo Móyses ascéndit et vidit Dei hereditátem. Et véniens ibi Jeremías invénit locum spelúncæ, et tabernáculum et arcam et altáre incénsi íntulit illuc, et óstium obstrúxit. Et accessérunt quidam simul, qui sequebántur, ut notárent sibi locum, et non potuérunt inveníre.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+UT autem cognóvit Jeremías, culpans illos dixit, quod ignótus erit locus, donec cóngreget Deus congregatiónem pópuli et propítius fiat; et tunc Dóminus osténdet hæc, et apparébit majéstas Dómini, et nubes erit, sicut et Móysi manifestabátur, et sicut, cum Sálomon pétiit ut locus sanctificarétur magno Deo, manifestábat hæc; magnífice étením sapiéntiam tractábat et ut sapiéntiam habens óbtulit sacrifícium dedicatiónis et consummatiónis templi.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Tertia infra Hebdomadam IV Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 3, 1-12*
+
+IGitur, cum sancta cívitas habitarétur in omni pace, leges étiam adhuc óptime custodiréntur propter Oníæ pontíficis pietátem et ánimos ódio habéntes mala, fiébat ut et ipsi reges et príncipes locum summo honóre dignum dúcerent et templum máximis munéribus illustrárent; ita ut Seléucus Asíæ rex de redítibus suis præstáret omnes sumptus ad ministérium sacrificiórum pertinéntes. Simon autem de tribu Bénjamin præpósitus templi constitútus contendébat, obsisténte sibi príncipe sacerdótum, iníquum áliquid in civitáte molíri.
+
+℟. Hic est fratrum amátor et pópuli Israël : \* Hic est, qui multum orat pro pópulo et univérsa sancta civitáte Jerúsalem. ℣. Vir iste in pópulo suo mitíssimus appáruit. — Hic est, qui.
+
+##### Lectio ii
+
+SED, cum víncere Oníam non posset, venit ad Apollónium Tharsǽæ fílium, qui eo témpore erat dux Cœlesýriæ et Phœnícis, et nuntiávit ei pecúniis innumerabílibus plenum esse ærárium Jerosólymis et commúnes cópias imménsas esse, quæ non pértinent ad ratiónem sacrificiórum; esse autem possíbile sub potestáte regis cádere univérsa. Cumque retulísset ad regem Apollónius de pecúniis quæ delátæ erant, ille accítum Heliodórum, qui erat super negótia ejus, misit cum mandátis, ut prædíctam pecúniam transportáret. Statímque Heliodórus iter est aggréssus, spécie quidem quasi per Cœlesýriam et Phœnícen civitátes esset peragratúrus, re vera autem regis propósitum perfectúrus.

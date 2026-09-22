@@ -27495,3 +27495,21 @@ DEus, qui pópulo tuo ætérnæ salútis beátum Bonaventúram minístrum tribu�
 {RUBRIC: Imperatoris, Confessoris [94] Semiduplex (m. t. v.)}
 
 **Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, qui hodiérna die beátum Henrícum Confessórem tuum e terréni cúlmine impérii ad regnum ætérnum transtulísti: te súpplices exorámus; ut, sicut illum, grátiæ tuæ ubertáte prævéntum, illécebras sǽculi superáre fecísti, ita nos fácias, ejus imitatióne, mundi hujus blandiménta vitáre, et ad te puris méntibus perveníre. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+HEnrícus, cognoménto Pius, e duce Bavária rex Germániæ ac póstmodum Románórum imperátor, temporális regni non conténtus angústiis, pro adipiscénda immortalitátis corona sédulam ætérno Regi exhíbuit servitútem. Adépto enim império, religióni amplificándæ studióse incúmbens, ecclésias ab infidélibus destrúctas magnificéntius reparávit, plurimísque largitiónibus et prædiis locupletávit. Monastéria alíaque loca pia vel ipse ædificávit, vel assignátis redítibus auxit. Episcopátum Bambergénsem, hereditáriis ópibus fundátum, beáto Petro Romanóque Pontífici vectigálem fecit. Benedíctum octávum, a quo impérii corónam accéperat, prófugum excépit, suáque Sedi restítuit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+IN Cassinénsi monastério, gravi deténtus infirmitáte, a sancto Benedícto, insígni miráculo, sanátus est. Románam Ecclésiam amplíssimo diplómate munerátus, eídem tuéndæ bellum advérsus Græcos suscépit, et Apúliam, diu ab illis posséssam, recuperávit. Nihil sine précibus aggredi sólitus, Angelum Dómini sanctósque Mártyres tuteláres pro se pugnántes ante áciem intérdum vidit. Divína autem protéctus ope, bárbaras natiónes précibus magis quam armis expugnávit. Pannóniam adhuc infidélem, trádita Stéphano regi soróre sua in uxórem, eóque baptizáto, ad Christi fidem perdúxit. Virginitátem raro exémplo matrimónio

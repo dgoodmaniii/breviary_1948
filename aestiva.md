@@ -30416,4 +30416,30 @@ DEus, qui nos ánnua sanctórum Mártyrum tuórum Cyríaci, Largi et Smarágdi s
 
 CYríacus diáconus, cum Sisínio, Largo et Smarágdo diútius inclúsus in cárcere, multa édidit mirácula, in quibus Arthémiam Diocletiáni fíliam précibus a dæmóne liberávit; missúsque ad Sáporem Persárum regem, Jobíam étiam ejus fíliam a nefário spíritu erípuit. Rege vero ejus patre cum quadringéntis ac trigínta áliis baptizátis, Romam rédiit; ubi, Maximiáni imperatóris jussu comprehénsus, caténis vinctus ante rhedam suam tráhitur; et post dies quátuor e cárcere edúctus, pice liquáta perfúsus et in catásta exténsus, demum cum Largo et Smarágdo aliísque vigínti secúri percússus est via Salária, ad hortos Sallustiános. Quorum córpora in eádem via décimo séptimo Kaléndas Aprílis sepúlta a Joánne presbýtero, póstea sexto Idus Augústi a Marcéllo Pontífice et Lucína nóbili fémina líneis velis involúta et pretiósis unguéntis cóndita, in ipsíus Lucínæ prǽdium via Ostiénsi, séptimo ab Urbe lápide, transláta sunt.
 
-℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxé-
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis: \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+#### Lectio v
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+
+{RUBRIC: Sermo 1 de Martýribus, tom. 3}
+
+NEmo est qui nésciat, Mártyrum glórias ad hoc divíno consílio a Dei pópulis frequentári, ut et illis débitus honor dicétur, et nobis virtútis exémpla, favénte Christo, monstréntur; ut, dum hæc ita celebrári perspícimus, cognoscámus quanta eos glória máneat in cælis, quorum natalítia táliter celebrántur in terris; quo possímus, étiam ipsi, tálibus provocári exémplis, virtúte pari, devotióne consímili ac fide; ut, Christo præstánte, dimicáre et víncere hostem possímus, ut, parta victória, cum iísdem Sanctis in regnis cæléstibus triumphémus.
+
+℟. Vérbera carnífícum non timuérunt Sancti Dei, moriéntes pro Christi nómine: \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+#### Lectio vi
+
+QUis est enim, qui, eórum volens mérito copulári, nisi prius constántiam eórum téneat, sectétur fidem, imitétur virtútem passiónis; eórum glóriam páribus vitæ lineaméntis aut invéniat aut exquírat? Qui, etsi martýrio par esse non possit; tamen múneris tanti dignitáte se quisque bonis áctibus dignum prǽbeat. Adest enim clementíssimus Deus, qui desiderántibus suis aut martýrium prǽbeat, aut, sine martýrio, cum Sanctis prǽmia divína retríbuat.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+#### Lectio vii
+
+*Cap. 16, 15-18*
+
+IN illo témpore: Dixit Jesus discípulis suis: Eúntes in mundum univérsum prædicáte Evangélium omni creatúræ. Et réliqua.

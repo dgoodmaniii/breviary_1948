@@ -14878,3 +14878,47 @@ QUI cum revérsus esset de horto nemóribus cónsito et intrásset convívii loc
 **Ad Magnif. Ant.** Adapériat Dóminus \* cor vestrum in lege sua et in præcéptis suis et fáciat pacem Dóminus Deus noster.
 
 {RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica I Octobris
+
+{RUBRIC: Semiduplex}
+
+### AD MATUTINUM
+
+{RUBRIC: Invitatorium Adorémus Dóminum et Hymnus Primo die, ut in Psaltério 32 : quæ dicúntur étiam in réliquis Dominícis usque ad V Novémbris inclusíve.}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber primus Machabæórum}
+
+##### Lectio i
+*Cap. 1, 1-16*
+
+ET factum est, postquam percússit Alexánder Philíppi Mácedo, qui primus regnávit in Grǽcia, egréssus de terra Cethim, Dárium regem Persárum et Medórum, constítuit prǽlia multa et obtínuit ómnium munitiónes et interfécit reges terræ et pertránsiit usque ad fines terræ et accépit spólia multitúdinis géntium, et síluit terra in conspéctu ejus. Et congregávit virtútem et exércitum fortem nimis, et exaltátum est et elevátum cor ejus, et obtínuit regiónes géntium et tyránnos, et facti sunt illi in tribútum. Et post hæc décidit in lectum et cognóvit quia moerétur et vocávit púeros suos nóbiles, qui secum erant nutríti a juventúte, et divísit illis regnum suum, cum adhuc víveret.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem, et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+ET regnávit Alexánder annis duódecim et mórtuus est. Et obtinuérunt púeri ejus regnum, unusquísque in loco suo, et imposuérunt omnes sibi diadémata post mortem ejus, et fílii eórum post eos annis multis. Et multiplicáta sunt mala in terra. Et éxiit ex eis radix peccátrix, Antíochus illústris, fílius Antíochi regis qui fúerat Romæ obses, et regnávit in anno centésimo trigésimo séptimo regni Grræcórum.
+
+℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+##### Lectio iii
+
+IN diébus illis exiérunt ex Israël fílii iníqui et suasérunt multis dicéntes : Eámus et disponámus testaméntum cum géntibus, quæ circa nos sunt, quia, ex quo recéssimus ab eis, invenérunt nos multa mala. Et bonus visus est sermo in óculis eórum. Et destinavérunt áliqui de pópulo et abiérunt ad regem, et dedit illis potestátem ut fácerent justítiam géntium; et ædificavérunt gymnásium in Jerosólymis secúndum leges natiónum et fecérunt sibi præpútia et recessérunt a testaménto sancto et juncti sunt natiónibus et venúmdati sunt ut fácerent malum.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Officiórum sancti Ambrósii Epíscopi}
+
+##### Lectio iv
+*Lib. 1, cap. 40*
+
+FOrtásse áliquos béllica defíxos glória tenet, ut putent solam esse præliárem fortitúdinem; et ídeo me ad ista deflexísse, quia illa nostris déforet. Quam fortis Jesus Nave, ut uno prǽlio quinque reges captos stérneret cum pópulis suis! Deínde cum advérsum Gabaonítas urgéret prǽlium, et vererétur ne nox impedíret victóriam, magnitúdine mentis et fídei clamávit : Stet sol, et stetit, donec victória consummarétur. Gédeon in trecéntis viris de ingénti pópulo et acérbo hoste revéxit triúmphum. Jónathas adoléscens virtútem magnam fecit in prǽlio.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.

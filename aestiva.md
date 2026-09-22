@@ -31537,4 +31537,18 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 
 *Cap. 1, 1-16*
 
-OSculétur me ósculo oris sui, quia melióra sunt úbera tua vino, fragrántia unguéntis óptimis. Oleum effúsum nomen tuum; ídeo adolescéntulæ dilexérunt te. Trahe me: post te curré-
+OSculétur me ósculo oris sui, quia melióra sunt úbera tua vino, fragrántia unguéntis óptimis. Oleum effúsum nomen tuum; ídeo adolescéntulæ dilexérunt te. Trahe me: post te currémus in odórem unguentórum tuórum. Introdúxit me rex in cellária sua; exsultábimus et lætábimur in te mémores úberum tuórum super vinum. Recti díligunt te. Nigra sum, sed formósa, fíliæ Jerúsalem, sicut tabernácula Cedar, sicut pelles Salomónis.
+
+℟. Vidi speciósam sicut colúmbam, ascendéntem désuper rivos aquárum, cujus inæstimábilis odor erat nimis in vestiméntis ejus; \* Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. ℣. Quæ est ista quæ ascéndit per desértum sicut vírgula fumi ex aromátibus myrrhæ et thuris? — Et.
+
+#### Lectio ii
+
+NOlíte me consideráre quod fusca sim, quia decolorávit me sol. Fílii matris meæ pugnavérunt contra me, posuérunt me custódem in víneis, víneam meam non custodívi. Índica mihi, quem díligit ánima mea, ubi pascas, ubi cubes in merídie, ne vagári incípiam post greges sodálium tuórum. Si ignóras te, o pulchérrima inter mulíeres, egrédere et abi post vestígia gregum, et pasce hædos tuos juxta tabernácula pastórum. Equitátui meo in cúrribus pharaónis assimilávi te, amíca mea. Pulchræ sunt genæ tuæ sicut túrturis, collum tuum sicut monília.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion: quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+#### Lectio iii
+
+MUrénulas áureas faciémus tibi vermiculátas argénto. Dum esset rex in accúbitu suo, nardus mea dedit odórem suum. Fascículus myrrhæ diléctus meus mihi, inter úbera mea commorábitur. Botrus Cypri diléctus meus mihi in víneis Engáddi. Ecce tu pulchra es, amíca mea, ecce tu pulchra es; óculi tui columbárum. Ecce tu pulcher es, dilécte mi, et decórus. Léctulus noster flóridus, tigna domórum nostrárum cédrina, laqueária nostra cypréssina.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt. Glória Patri. Vidérunt.

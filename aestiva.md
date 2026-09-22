@@ -21184,4 +21184,28 @@ Te Deum.
 
 ### Oratio
 
-CUstódi, Dómine, quǽsumus, Ecclésiam tuam propitiatióne perpétua: et, quia sine te lábitur humá-
+CUstódi, Dómine, quǽsumus, Ecclésiam tuam propitiatióne perpétua: et, quia sine te lábitur humána mortálitas; tuis semper auxíliis et abstrahátur a nóxiis, et ad salutária dirigátur. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+##### Lectio vii
+
+*Cap. 6, 24-33*
+
+IN illo témpore: Dixit Jesus discípulis suis: Nemo potest duóbus dóminis servíre. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Liber 2 de Sermone Domini in monte, cap. 14*
+
+NEmo potest duóbus dóminis servíre. Ad hanc ipsam intentiónem referéndum est, quod consequénter expónit, dicens: Aut enim unum ódio habébit, et álterum díliget; aut álterum patiétur, et álterum contémnet. Quæ verba diligénter consideránda sunt; nam, qui sint duo dómini, deínceps osténdit, cum dicit: Non potéstis Deo servíre, et mammónæ. Mammóna apud Hebrǽos divítiæ appelláre dicúntur. Cóngruit et Púnicum nomen; nam lucrum Púnice mammon dícitur.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+SEd qui servit mammónæ, illi útique servit, qui rebus istis terrénis mérito suæ perversitátis præpósitus, magistrátus hujus sǽculi a Dómino dícitur. Aut enim unum ódio habébit homo, et álterum díliget, id est, Deum; aut álterum patiétur, et álterum contémnet. Patiétur enim durum et perniciósum dóminum, quisquis servit mammónæ; sua enim cupiditáte implicátus, súbditur diábolo, et non eum díligit. Quis enim est, qui díligat diábolum? sed tamen pátitur.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.

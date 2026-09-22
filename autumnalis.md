@@ -15910,3 +15910,64 @@ SED qui univérsa cónspicit, Dóminus Deus Israël, percússit eum insanábili 
 ℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}
+
+##### Lectio iii
+
+ISque, qui sibi videbátur étiam flúctibus maris imperáre, supra humánum modum supérbia replétus et móntium altitúdines in statéra appéndere, nunc humiliátus ad terram in gestatório portabátur maniféstam Dei virtútem in semetípso contéstans; ita ut de córpore ímpii vermes scaturírent, ac vivéntis in dolóribus carnes ejus effluérent, odóre étiam illíus et fœtóre exércitus gravarétur. Et qui paulo ante sídera cæli contíngere se arbitrabátur, eum nemo póterat propter intolerántiam fœtóris portáre.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta infra Hebdomadam V Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 10, 1-5*
+
+MAchabǽus autem et qui cum eo erant, Dómino se protegénte, templum quidem recépit, aras autem, quas alienígenæ per platéas exstrúxerant, itémque delúbra demolítus est, et purgáto templo, áliud altáre fecérunt et de ignítis lapídibus igne concépto sacrifícia obtulérunt post biénnium, et incénsum et lucérnas et panes propositiónis posuérunt. Quibus gestis, rogábant Dóminum prostráti in terram, ne ámplius tálibus malis incíderent, sed et, si quando peccássent, ut ab ipso mítius corriperéntur et non bárbaris ac blasphémis homínibus traderéntur. Qua die autem templum ab alienígenis pollútum fúerat, cóntigit eádem die purificatiónem fíeri, vigésima quinta mensis qui fuit Casleu.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio ii
+*Cap. 10, 24-32*
+
+AT Timótheus, qui prius a Judǽis fúerat superátus, convocáto exércitu peregrínæ multitúdinis et congregáto equitátu Asiáno, advénit quasi armis Judǽam captúrus. Machabǽus autem et qui cum ipso erant, appropinquánte illo, deprecabántur Dóminum caput terra aspergéntes lumbósque cilíciis præcíncti, ad altáris crepídinem provolúti, ut sibi propítius, inimícis autem eórum esset inimícus et adversáriis adversarétur sicut lex dixit. Et ita post oratiónem, sumptis armis, lóngius de civitáte procedéntes et próximi hóstibus efféctí resedérunt.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dómine.}
+
+##### Lectio iii
+
+PRimo autem solis ortu utríque commisérunt, isti quidem victóriæ et prosperitátis sponsórem cum virtúte Dóminum habéntes, illi autem ducem belli ánimum habébant. Sed cum véhemens pugna esset, apparuérunt adversáriis de cælo viri quinque in equis, frenis áureis decóri, ducátum Judǽis præstántes; ex quibus duo Machabǽum médium habéntes armis suis circumséptum incólumem conservábant, in adversários autem tela et fúlmina jaciébant, ex quo et cæcitáte confúsi et repléti perturbatióne cadébant. Interfécti sunt autem vigínti míllia quingénti et équites sexcénti. Timótheus vero confúgit in Gázaram præsídium munítum, cui prǽerat Chǽréas.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.
+
+---
+
+## Sabbato infra Hebdomadam V Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 15, 7-19*
+
+MAchabǽus autem semper confidébat cum omni spe auxílium sibi a Deo affutúrum et hortabátur suos ne formidárent ad advéntum natiónum, sed in mente habérent adjutória sibi facta de cælo et nunc sperárent ab Omnipoténte sibi affutúram victóriam. Et allocútus eos de lege et prophétis, admonens étiam certámina quæ fécerant prius, promptióres constítuit eos. Et, ita ánimis eórum eréctis, simul ostendébat géntium falláciam et juramentórum prævaricatiónem. Síngulos autem illórum armávit non clýpei et hastæ munitióne, sed sermónibus óptimis et exhortatiónibus, expósito digno fide sómnio, per quod univérsos lætificávit.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+ERat autem hujuscémodi visus : Oníam, qui fúerat summus sacérdos, virum bonum et benígnum, verecúndum visu, modéstum móribus et elóquio decórum et qui a púero in virtútibus exercitátus sit, manus protendéntem oráre pro omni pópulo Judæórum; post hoc apparuísse et álium virum ætáte et glória mirábilem et magni decóris habitúdine circa illum. Respondéntem vero Oníam dixísse : Hic est fratrum amátor et pópuli Israël : hic est, qui multum orat pro pópulo et univérsa sancta civitáte, Jeremías prophéta Dei; extendísse autem Jeremíam dextram et dedísse Judæ gládium áureum dicéntem : Accipe sanctum gládium, munus a Deo, in quo dejícies adversários pópuli mei Israël.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Et.}
+
+##### Lectio iii
+
+EXhortáti ítaque Judæ sermónibus bonis valde, de quibus extólli posset ímpetus et ánimi júvenum confortári, statuérunt dimicáre et conflígere fórtiter, ut virtus de negótiis judicáret, eo quod civitas sancta et templum periclitaréntur. Erat enim pro uxóribus et fíliis itémque pro frátribus et cognátis minor sollicitúdo; máximus vero et primus pro sanctitáte timor erat templi. Sed et eos qui in civitáte erant non mínima sollicitúdo habébat pro his qui congressúri erant.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.

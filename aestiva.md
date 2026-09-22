@@ -30733,3 +30733,47 @@ Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdica
 Dóminus dixit ad me: \* Fílius meus es tu, ego hódie génui te.
 
 Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas figuli confrínges eos.
+
+Et nunc, reges, intellígite: \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre: \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Noli me derelínquere, pater sancte, quia thesáuros tuos jam expéndi, quos tradidísti mihi.
+
+**Ant.** Non ego te désero, \* fili, neque derelínquo; sed majóra tibi debéntur pro Christi fide certámina.
+
+#### Psalmus 3
+
+DOmine, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ: \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi: \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum: \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me: \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa: \* dentes peccatórum contrivísti.
+
+Dómini est salus: \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Non ego te désero, fili, neque derelínquo; sed majóra tibi debéntur pro Christi fide certámina.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+
+*Cap. 51, 1-17*
+
+COnfitébor tibi, Dómine, Rex, et collaudábo te Deum Salvatórem meum. Confitébor nómini tuo: quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne, a láqueo linguæ iníquæ et a lábiis operántium mendácium, et in conspéctu astántium factus es mihi adjútor. Et liberásti me secúndum multitúdinem misericórdiæ nóminis tui a rugiéntibus, præparátis ad escam, de mánibus quæréntium ánimam meam, et de portis tribulatiónum, quæ circumdedérunt me: a pressúra

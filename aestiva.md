@@ -30213,3 +30213,43 @@ Amen.
 ℣. Coróna áurea super caput ejus. ℟. Expréssa signo sanctitátis, glóriæ et honóris.
 
 **Ad Bened. Ant.** Et ecce \* vox de nube dicens: Hic est Fílius meus diléctus, in quo mihi complácui; ipsum audíte, allelúja.
+
+#### Oratio
+
+DEus, qui fídei sacraménta in Unigéniti tui gloriósa Transfiguratióne patrum testimónio roborásti, et adoptiónem filiórum perféctam, voce delápsa in nube lúcida, mirabíliter præsignásti: concéde propítius; ut ipsíus Regis glóriæ nos cohærédes effícias, et ejúsdem glóriæ tríbuas esse consórtes. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Laudes tantum fit Commemoratio Ss. Xysti II Papæ, Felicíssimi et Agapíti Mm.:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+#### Oratio
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum Xysti, Felicíssimi et Agapíti natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis; et ad eam in ℟. br. ℣. Qui apparuísti hódie.}
+
+### Ad Primam
+
+**Ant.** Assúmpsit Jesus \* Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit eos in montem excélsum seórsum, et transfigurátus est ante eos.
+
+### Ad Tertiam
+
+**Ant.** Resplénduit \* fácies ejus sicut sol, vestiménta autem ejus facta sunt alba sicut nix, allelúja.
+
+**Capit.** *Philipp. 3, 20-21*
+
+SAlvatórem exspectámus Dóminum nostrum Jesum Christum, qui reformábit corpus humilitátis nostræ configurátum córpori claritátis suæ.
+
+{RUBRIC: ℟. br. Gloriósus apparuísti in conspéctu Dómini, \* Allelúja, allelúja. Gloriósus. ℣. Proptérea decórem índuit te Dóminus. Allelúja, allelúja. Glória Patri. Gloriósus. ℣. Glória et honóre coronásti eum, Dómine, allelúja. ℟. Et constituísti eum super ópera mánuum tuárum, allelúja.}
+
+**Oratio** Deus, qui fídei, {RUBRIC: ut supra.}
+
+### Ad Sextam
+
+**Ant.** Et ecce \* apparuérunt eis Móyses et Elías loquéntes cum Jesu.
+
+**Capitulum** *2 Cor. 3, 18*
+
+NOS omnes reveláta fácie glóriam Dómini speculántes, in eámdem

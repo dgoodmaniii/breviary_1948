@@ -25794,4 +25794,38 @@ NAM, sicut regnántium státuæ, quæ sine causa sunt et sermóne, nonnúmquam a
 
 #### Lectio vi
 
-SIC et de illo agno factum est: Judǽi ovem occidérunt, et ego fructum de sacraménto cognóvi. De látere sanguis et aqua. Nolo tam fácile, audítor, tránseas tanti secréta mystérii; restat enim mihi mýstica atque secretális orátio. Dixi baptísmatis symbólum et mysteriórum, aquam illam et sánguinem demonstráre. Ex his enim sancta fundáta est Ecclésia per lavácri regeneratiónem, et renovatiónem Spíritus Sancti. Per baptísma, inquam, et mystéria, quæ ex látere vidéntur esse proláta. Ex látere ígitur suo Christus ædificávit Ecclésiam, sicut de látere Adam ejus conjux Eva proláta est. Nam hac de causa Paulus testátur dicens: De córpore ejus et de óssibus ejus sumus; latus vidélicet illud signíficans. Nam, sicut de illo látere Deus fecit féminam procreári, sic et de suo látere Christus aquam nobis et sánguinem dedit, unde repararétur Ecclésia. — Recurrénte autem anno ab humáni géneris redemptióne undevícies centenário, quem ad tam ineffábile benefícium recoléndum solémni præ ómnibus sacro
+SIC et de illo agno factum est: Judǽi ovem occidérunt, et ego fructum de sacraménto cognóvi. De látere sanguis et aqua. Nolo tam fácile, audítor, tránseas tanti secréta mystérii; restat enim mihi mýstica atque secretális orátio. Dixi baptísmatis symbólum et mysteriórum, aquam illam et sánguinem demonstráre. Ex his enim sancta fundáta est Ecclésia per lavácri regeneratiónem, et renovatiónem Spíritus Sancti. Per baptísma, inquam, et mystéria, quæ ex látere vidéntur esse proláta. Ex látere ígitur suo Christus ædificávit Ecclésiam, sicut de látere Adam ejus conjux Eva proláta est. Nam hac de causa Paulus testátur dicens: De córpore ejus et de óssibus ejus sumus; latus vidélicet illud signíficans. Nam, sicut de illo látere Deus fecit féminam procreári, sic et de suo látere Christus aquam nobis et sánguinem dedit, unde repararétur Ecclésia. — Recurrénte autem anno ab humáni géneris redemptióne undevícies centenário, quem ad tam ineffábile benefícium recoléndum solémni præ ómnibus sacro Jubiláo Summus Póntifex Pius undécimus celebrátum vóluit; ut pretiósi Sánguinis, quo redémpti sumus, Agni immaculáti Christi uberióres dimanárent in hómines fructus, ejúsque memória fidélibus vivídius commendarétur, idem Summus Póntifex Pretiosíssimi Sánguinis Dómini Nostri Jesu Christi festum, quotánnis ab univérsa Ecclésia peragéndum, ad ritum dúplicem primæ classis evéxit.
+
+℟. Comméndat caritátem suam Deus in nobis: \* Quóniam cum adhuc peccatóres essémus, secúndum tempus Christus pro nobis mórtuus est. ℣. Multo ígitur magis nunc justificáti in sánguine ipsíus, salvi érimus ab ira per ipsum. — Quóniam. Glória Patri. Quóniam.
+
+##### In III Nocturno
+
+**Ant.** Exívit ergo Jesus \* portans corónam spíneam et purpúreum vestiméntum. Et dixit eis: Ecce homo.
+
+###### Psalmus 73
+
+UT quid, Deus, repulísti in finem: \* irátus est furor tuus super oves páscuæ tuæ?
+
+Memor esto congregatiónis tuæ, \* quam possedísti ab inítio.
+
+Redemísti virgam hereditátis tuæ: \* mons Sion, in quo habitásti in eo.
+
+Leva manus tuas in supérbias eórum in finem: \* quanta malignátus est inimícus in sancto!
+
+Et gloriáti sunt qui odérunt te: \* in médio solemnitátis tuæ.
+
+Posuérunt signa sua, signa: \* et non cognovérunt sicut in éxitu super summum.
+
+Quasi in silva lignórum secúribus excidérunt jánuas ejus in idípsum: \* in secúri et áscia dejecérunt eam.
+
+Incendérunt igni Sanctuárium tuum: \* in terra polluérunt tabernáculum nóminis tui.
+
+Dixérunt in corde suo cognátio eórum simul: \* Quiéscere faciámus omnes dies festos Dei a terra.
+
+Signa nostra non vídimus, jam non est prophéta: \* et nos non cognóscet ámplius.
+
+Usquequo, Deus, improperábit inimícus: \* irrítat adversárius nomen tuum in finem?
+
+Ut quid avértis manum tuam, et déxteram tuam, \* de médio sinu tuo in finem?
+
+Deus autem Rex noster ante sǽcula: \* operátus est salútem in médio terræ.

@@ -33510,3 +33510,45 @@ DEus, qui in liberándis fidélibus tuis ab impiórum captivitáte, beátum Raym
 ###### Oratio C 4
 
 INtercéssio nos, quǽsumus, Dómine, beáti Ægídii Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. (Per Dóminum.)
+
+{RUBRIC: Deinde Commem. Ss. duódecim Fratrum Mártyrum:}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+FRatérna nos, Dómine, Mártyrum tuórum coróna lætíficet: quæ et fídei nostræ prǽbeat increménta virtútum, et multíplici nos suffrágio consolétur. Per Dóminum.
+
+#### Lectio iii
+
+ÆGídius Atheniénsis, régiæ stirpis, a prima ætáte divínis lítteris et caritátis offíciis ita déditus fuit, ut nihil prætérea curáre viderétur. Itaque, paréntibus mórtuis, totum patrimónium in páuperes erogávit; quin étiam túnicam éxuit, ut ægrótum egéntem tégeret, qua ille indútus, statim conváluit. Sed multis deínceps clárior miráculis, timens sui nóminis celebritátem, Arelátem ad beátum Cæsárium conténdit. A quo post biénnium discédens, secéssit in erémum; ubi diútius herbárum radícibus et cervæ lacte, quæ statis ad eum horis veniébat, admirábili sanctitáte vixit. Quæ cerva, insequéntibus quodam die cánibus régiis, cum in antrum Ægídii refugísset, Gálliæ regem ímpulit, ut ab eo summis précibus péteret, ut in loco spelúncæ monastérium exstrúi paterétur. Cujus administratiónem, flagitánte rege, invítus suscépit; eóque múnere áliquot annis prudénter piéque gesto, migrávit in cælum.
+
+Te Deum laudámus.
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+{RUBRIC: Pro Commem. Ss. duódecim Fratrum Martyrum:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+{RUBRIC: Oratio Fratérna nos, ut supra.}
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+### Die 2 Septembris
+
+#### S. Stephani
+
+{RUBRIC: Regis, Confessoris [94] Semiduplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui

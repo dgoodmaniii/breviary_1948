@@ -15269,3 +15269,26 @@ ET invaluérunt armis et víribus et spóliis multis, quæ cepérunt, de castris
 ℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}
+
+##### Lectio iii
+
+ET vocávit omnes amícos suos et dixit illis : Recéssit somnus ab óculis meis, et cóncidi et córrui corde præ sollicitúdine et dixi in corde meo : In quantam tribulatiónem devéni et in quos fluctus tristítiæ, in qua nunc sum, qui jucúndus eram et diléctus in potestáte mea! Nunc vero reminíscor malórum, quæ feci in Jerúsalem, unde et ábstuli ómnia spólia áurea et argéntea, quæ erant in ea, et misi auférre habitántes Judǽam sine causa. Cognóvi ergo quia proptérea invenérunt me mala ista, et ecce péreo tristítia magna in terra aliéna.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Sexta infra Hebdomadam II Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 7, 1 et 4-17*
+
+ANno centésimo quinquagésimo primo éxiit Demétrius Seléuci fílius ab urbe Roma et ascéndit cum paucis viris in civitátem marítimam et regnávit illic. Et sedit Demétrius super sedem regni sui. Et venérunt ad eum viri iníqui et ímpii ex Israël, et Alcimus dux eórum, qui volébat fíeri sacérdos, et accusavérunt pópulum apud regem dicéntes : Pérdidit Judas et fratres ejus omnes amícos tuos et nos dispérsit de terra nostra. Nunc ergo mitte virum, cui credis, ut eat et vídeat extermínium omne quod fecit nobis et regiónibus regis, et púniat omnes amícos ejus et adjutóres eórum.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte, quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit Pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio ii
+
+ET elégit rex ex amícis suis Bácchidem, qui dominabátur trans flumen, magnum in regno et fidélem regi. Et misit eum ut vidéret extermínium, quod fecit Judas; sed et Alcimum ímpium constítuit in sacerdótium et mandávit ei fácere ultiónem in fílios Israël. Et surrexérunt et venérunt cum exércitu magno in terram Juda et misérunt núntios, et locúti sunt ad Judam et ad fratres ejus verbis pacíficis in dolo. Et non intendérunt sermónibus eórum, vidérunt enim quia venérunt cum exércitu magno.

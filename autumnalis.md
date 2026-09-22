@@ -13806,3 +13806,109 @@ NOCTEM illam tenebrósus turbo possídeat; non computétur in diébus anni, nec 
 QUARE non in vulva mórtuus sum? egréssus ex útero non statim périi? quare excéptus génibus? cur lactátus ubéribus? Nunc enim dórmiens silérem et somno meo requiéscerem cum régibus et consúlibus terræ, qui ædíficant sibi solitúdines, aut cum princípibus, qui póssident aurum et replent domos suas argénto; aut sicut abortívum abscónditum non subsísterem, vel qui concépti non vidérunt lucem.
 
 ℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+---
+
+## Feria Quinta infra Hebdomadam I Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 4, 1-18*
+
+RESPÓNDENS autem Elíphaz Themanítes dixit: Si cœpérimus loqui tibi, fórsitan moléste accípies; sed concéptum sermónem tenére quis póterit? Ecce docuísti multos et manus lassas roborásti, vacillántes confirmavérunt sermónes tui et génua treméntia confortásti. Nunc autem venit super te plaga, et defecísti; tétigit te, et conturbátus es. Ubi est timor tuus, fortitúdo tua, patiéntia tua et perféctio viárum tuárum?
+
+℟. Si bona suscépimus de manu Dei, mala autem quare non sustineámus? \* Dóminus dedit, Dóminus ábstulit; sicut Dómino plácuit, ita factum est: sit nomen Dómini benedíctum. ℣. Nudus egréssus sum de útero matris meæ et nudus revértar illuc. — Dóminus.
+
+##### Lectio ii
+
+RECORDÁRE, óbsecro te, quis umquam ínnocens périit? aut quando recti deléti sunt? Quin pótius vidi eos, qui operántur iniquitátem et séminant dolóres et metunt eos, flante Deo perísse et spíritu iræ ejus esse consúmptos. Rugítus leónis et vox leǽnæ et dentes catulórum leónum contríti sunt; tigris périit, eo quod non habéret prædam, et cátuli leónis dissipáti sunt.
+
+℟. Antequam cómedam suspíro, et tamquam inundántes aquæ sic rugítus meus; quia timor, quem timébam, evénit mihi, et quod verébar áccidit. Nonne dissimulávi? nonne sílui? nonne quiévi? \* Et venit super me indignátio. ℣. Ecce non est auxílium mihi in me, et necessárii quoque mei recessérunt a me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+PORRO ad me dictum est verbum abscónditum, et quasi furtíve suscépit auris mea venas susúrri ejus. In horróre visiónis noctúrnæ, quando solet sopor occupáre hómines, pavor ténuit me et tremor, et ómnia ossa mea pertérrita sunt, et cum spíritus, me præsénte, transíret, inhorruérunt pili carnis meæ. Stetit quidam, cujus non agnoscébam vultum, imágo coram óculis meis, et vocem quasi auræ lenis audívi: Numquid homo Dei comparatióne justificábitur? aut Factóre suo púrior erit vir? Ecce qui sérviunt ei non sunt stábiles, et in Angelis suis réperit pravitátem.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+---
+
+## Feria Sexta infra Hebdomadam I Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 6, 1-13*
+
+RESPÓNDENS autem Job dixit: Utinam appenderéntur peccáta mea, quibus iram mérui, et calamítas, quam pátior, in statéra. Quasi aréna maris hæc grávior apparéret, unde et verba mea dolóre sunt plena; quia sagíttæ Dómini in me sunt, quarum indignátio ébibit spíritum meum, et terróres Dómini mílitant contra me.
+
+℟. Indúta est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est: \* Meménto mei, Dómine, quóniam ventus est vita mea. ℣. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. — Meménto.
+
+##### Lectio ii
+
+NUMQUID rúgiet ónager cum habúerit herbam? aut mugíet bos, cum ante præsépe plenum stéterit? Aut póterit comédi insúlsum, quod non est sale condítum? aut potest áliquis gustáre, quod gustátum affert mortem? Quæ prius nolébat tángere ánima mea, nunc præ angústia cibi mei sunt.
+
+℟. Páucitas diérum meórum finiétur brevi; dimítte me, Dómine, ut plangam páululum dolórem meum, \* Antequam vadam ad terram tenebrósam et opértam mortis calígine. ℣. Manus tuæ, Dómine, fecérunt me, et plasmavérunt me totum in circúitu; et sic repénte præcípitas me? — Antequam.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Antequam.}
+
+##### Lectio iii
+
+QUIS det ut véniat petítio mea, et quod exspécto tríbuat mihi Deus? Et qui cœpit ipse me cónterat, solvat manum suam et succídat me? Et hæc mihi sit consolátio, ut afflígens me dolóre non parcat, nec contradícam sermónibus Sancti. Quæ est enim fortitúdo mea, ut sustíneam? aut quis finis meus, ut patiénter agam? Nec fortitúdo lápidum fortitúdo mea, nec caro mea ǽnea est. Ecce non est auxílium mihi in me, et necessárii quoque mei recessérunt a me.
+
+℟. Non abscóndas me, Dómine, a fácie tua: manum tuam longe fac a me, \* Et formído tua non me térreat. ℣. Córripe me, Dómine, in misericórdia, non in furóre tuo, ne forte ad níhilum rédigas me. — Et. Glória Patri. Et.
+
+{RUBRIC: Ad Vésperas, nisi sequénti die persolvéndum sit Offícium de Festo novem Lectiónum, aut de qualíbet Octáva vel de Vigília, a Capítulo fit de sancta María, et de ea dícitur Offícium in Sábbato sequénti. Quod ítem servátur in ómnibus Sábbatis usque ad Sábbatum ante Domínicam I Advéntus inclusíve, præterquam in Sábbato Quátuor Témporum Septémbris, et in Sábbato, in quo anticipánda sit Domínica XXIII post Pentecósten.}
+
+---
+
+## Sabbato infra Hebdomadam I Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 7, 1-12*
+
+MILITIA est vita hóminis super terram, et sicut dies mercenárii, dies ejus. Sicut servus desíderat umbram, et sicut mercenárius præstolátur finem óperis sui, sic et ego hábui menses vácuos et noctes laboriósas enumerávi mihi. Si dormíero, dicam: Quando consúrgam? Et rursum exspectábo vésperam, et replébor dolóribus usque ad ténebras.
+
+℟. Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et.
+
+##### Lectio ii
+
+INDÚTA est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. Meménto quia ventus est vita mea, et non revertétur óculus meus ut vídeat bona. Nec aspíciet me visus hóminis; óculi tui in me, et non subsístam.
+
+℟. Utinam appenderéntur peccáta mea, quibus iram mérui, \* Et calamítas, quam pátior, in statéra. ℣. Quasi aréna maris hæc grávior apparéret, unde et verba mea dolóre sunt plena. — Et.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Et.}
+
+##### Lectio iii
+
+SICUT consúmitur nubes et pertránsit, sic qui descénderit ad ínferos non ascéndet; nec revertétur ultra in domum suam, neque cognóscet eum ámplius locus ejus. Quaprópter et ego non parcam ori meo; loquar in tribulatióne spíritus mei, confabulábor cum amaritúdine ánimæ meæ. Numquid mare ego sum aut cetus, quia circumdedísti me cárcere?
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** In ómnibus his \* non peccávit Job lábiis suis neque stultum áliquid contra Deum locútus est.
+
+{RUBRIC: Orátio Domínicæ occurréntis.}
+
+---
+
+## Dominica II Septembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 9, 1-17*
+
+ET respóndens Job ait: Vere scio quod ita sit, et quod non justificétur homo compósitus Deo. Si volúerit conténdere cum eo, non póterit ei respondére unum pro mille. Sápiens corde est et fortis róbore. Quis réstitit ei, et pacem hábuit? Qui tránstulit montes, et nesciérunt hi quos subvértit in furóre suo.

@@ -22231,3 +22231,29 @@ Te Deum laudámus.
 DEus, qui nos ánnua beatórum Mártyrum tuórum Marcellíni, Petri atque Erásmi solemnitáte lætíficas: præsta, quǽsumus; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
 
 ---
+
+### Die 4 Junii
+
+#### S. Francisci Caracciolo
+
+{RUBRIC: Confessoris [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEus, qui beátum Francíscum, novi órdinis institutórem, orándi stúdio et pœniténtiæ amóre decorásti: da fámulis tuis in ejus imitatióne ita profícere; ut semper orántes, et corpus in servitútem redigéntes, ad cæléstem glóriam perveníre mereántur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+FRancíscus, dictus ántea Ascánius, ex nóbili família Carácciolo in óppido sanctæ Maríæ de Villa in Aprútio ortus, a primis annis exímio enítuit pietátis cultu. Adoléscens gráviter ægrótans státuit sese prorsus Dei proximíque mancipáre servítio. Neápolim proféctus, sacerdótio initiátus sacróque adscríptus sodalítio, contemplatióni lucrandísque animábus se totum devóvit, ac extrémo supplício damnátis hortatórem se præbuit assíduum. Cóntigit autem, ut epistólium álteri destinátum ei per errórem redderétur, quo a piíssimis viris Joánne Augustíno Adórno et Fabrício Carácciolo ad novi religiósi institúti fundatiónem vocabátur. Rei novitáte captus et divínæ voluntátis demirátus consília, álacri ánimo sese illis adjúnxit. Cóndidit autem in Camaldulénsium erémo, quo secésserant, novi órdinis légibus, inde Romam simul profécti, confirmatiónem a Xysto quinto impetrárunt, qui eósdem cléricos reguláres Minóres appellári vóluit, áddito ad tria consuéta áltero de non ambiéndis dignitátibus voto.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+SOlémni emíssa professióne, ob singulárem ejus in divum Francíscum Assisinátem cultum, Francísci nomen assúmpsit.

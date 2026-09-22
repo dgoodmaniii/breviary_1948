@@ -24655,4 +24655,30 @@ Amen.
 
 ℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
 
-**Ad Magnif. Ant.** Tu es pastor óvium, \* Princeps Apostolórum: tibi tráditæ
+**Ad Magnif. Ant.** Tu es pastor óvium, \* Princeps Apostolórum: tibi tráditæ sunt claves regni cælórum.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+{RUBRIC: Et non fit Commemoratio S. Pauli.}
+
+### Ad Matutinum
+
+#### In I Nocturno
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 3, 1-16*
+
+PEtrus autem et Joánnes ascendébant in templum ad horam oratiónis nonam. Et quidam vir, qui erat claudus ex útero matris suæ, bajulabátur; quem ponébant quotídie ad portam templi, quæ dícitur Speciósa, ut péteret eleemósynam ab introëúntibus in templum. Is, cum vidísset Petrum et Joánnem incipiéntes introíre in templum, rogábat ut eleemósynam accíperet. Intuens autem in eum Petrus cum Joánne, dixit: Réspice in nos. At ille intendébat in eos, sperans se áliquid acceptúrum ab eis.
+
+℟. Simon Petre, ántequam de navi vocárem te, novi te, et super plebem meam príncipem te constítui: \* Et claves regni cælórum trádidi tibi. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et.
+
+#### Lectio ii
+
+PEtrus autem dixit: Argéntum et aurum non est mihi: quod autem hábeo, hoc tibi do: In nómine Jesu Christi Nazaréni surge, et ámbula. Et, apprehénsa manu ejus déxtera, allevávit eum, et prótinus consolidátæ sunt bases ejus, et plantæ. Et exsíliens stetit, et ambulábat; et intrávit cum illis in templum ámbulans, et exsíliens, et laudans Deum. Et vidit omnis pópulus eum ambulántem, et laudántem Deum. Cognoscébant autem illum, quod ipse erat, qui ad eleemósynam sedébat ad Speciósam portam templi: et impléti sunt stupóre et éxtasi in eo, quod contígerat illi.
+
+℟. Si díligis me, Simon Petre, pasce oves meas. Dómine, tu nosti, quia amo te, \* Et ánimam meam pono pro te. ℣. Si oportúerit me mori tecum, non te negábo. — Et ánimam.

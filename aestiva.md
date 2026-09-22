@@ -21782,4 +21782,32 @@ PRophétiæ dono fuit illústris, et in animórum sénsibus penetrándis mirífi
 
 #### Lectio ix
 
-PHilíppus Nérius, piis honestísque paréntibus Floréntiæ natus, ampla pátrui hereditáte dimíssa, Romam se cóntulit; ubi, philosóphia ac sacris lítteris erudítus, totum se Christo dicávit. Sacérdos ex obediéntia factus, in animárum salúte procuránda totus fuit, et in confessiónibus audiéndis ad extrémum usque diem persevérans, innúmeros pene fílios Christo péperit; quos verbi Dei quotidiáno pábulo, sacramentórum frequéntia, oratiónis assiduitáte, aliísque piis exercitatiónibus enutríri cúpiens, Oratórii congregatiónem instítuit. Caritáte Dei vulnerátum tanto cor ejus æstuábat ardóre, ut, cum intra fines suos continéri non posset, sinum, confrá-
+PHilíppus Nérius, piis honestísque paréntibus Floréntiæ natus, ampla pátrui hereditáte dimíssa, Romam se cóntulit; ubi, philosóphia ac sacris lítteris erudítus, totum se Christo dicávit. Sacérdos ex obediéntia factus, in animárum salúte procuránda totus fuit, et in confessiónibus audiéndis ad extrémum usque diem persevérans, innúmeros pene fílios Christo péperit; quos verbi Dei quotidiáno pábulo, sacramentórum frequéntia, oratiónis assiduitáte, aliísque piis exercitatiónibus enutríri cúpiens, Oratórii congregatiónem instítuit. Caritáte Dei vulnerátum tanto cor ejus æstuábat ardóre, ut, cum intra fines suos continéri non posset, sinum, confráctis atque elátis duábus cóstulis, mirabíliter Dóminus ampliáverit. Prophétiæ dono fuit illústris, et in animórum sénsibus penetrándis mirífice enítuit. Virginitátem perpétuo illibátam servávit; idque assecútus est, ut eos qui puritátem cólerent, ex odóre, qui vero secus, ex fœtóre dignósceret. Anno salútis millésimo quingentésimo nonagésimo quinto, octogenárius obdormívit in Dómino.
+
+Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilía in Ev. *Sint lumbi vestri*, de Communi Conf. non Pont. 1 loco. [98]}
+
+{RUBRIC: Pro S. Eleutherio Papa et Mart.}
+
+#### Lectio ix
+
+ELeuthérius, Nicópoli in Grǽcia natus, Aniceti Pontíficis diáconus, Cómmodo imperatóre, præfuit Ecclésiæ. Huic, inítio pontificátus, súpplices lítteræ venérunt a Lúcio Britannórum rege, ut se ac suos in Christianórum número recíperet. Quam ob rem Fugátium et Damiánum, doctos et pios viros, misit in Británniam, per quos rex et réliqui fidem suscíperent. Hoc Pontífice, Irenǽus Polycárpi discípulus, Romam véniens, ab eo benígne accéptus est. Quo témpore summa pace et quiéte fruebátur Ecclésia Dei; ac per totum orbem terrárum, máxime Romæ, fides propagabátur. Vixit Eleuthérius in pontificátu annos quíndecim, dies vigínti tres. Fecit ordinatiónes tres mense Decémbri, quibus creávit presbýteros duódecim, diáconos octo, epíscopos per divérsa loca quíndecim: sepultúsque est in Vaticáno prope corpus sancti Petri.
+
+Te Deum.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui beátum Philíppum Confessórem tuum sanctórum glória sublimásti: concéde propítius; ut, cujus solemnitáte lætámur, ejus virtútum proficiámus exémplo. Per Dóminum.
+
+{RUBRIC: Pro Commem. S. Eleuthérii Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.

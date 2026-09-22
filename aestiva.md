@@ -22508,4 +22508,16 @@ DEus, qui beátam Margarítam regínam exímia in páuperes caritáte mirábilem
 
 #### Lectio iv
 
-MArgaríta, Scotórum regína, patérno Angliæ regum, matérno Cæsarum sánguine claríssima, illústrior adhuc fuit christiána virtúte. Hæc in Hungária nata, ubi pater tunc témporis exsulábat, post exáctam summa cum pietáte puerílem ætátem, una cum genitóre, qui a sancto Eduárdo pátruo, Anglórum rege, ad patérni regni fastígium vocabátur, in Angliam venit. Mox, alter-
+MArgaríta, Scotórum regína, patérno Angliæ regum, matérno Cæsarum sánguine claríssima, illústrior adhuc fuit christiána virtúte. Hæc in Hungária nata, ubi pater tunc témporis exsulábat, post exáctam summa cum pietáte puerílem ætátem, una cum genitóre, qui a sancto Eduárdo pátruo, Anglórum rege, ad patérni regni fastígium vocabátur, in Angliam venit. Mox, alternánte paréntum fortúna, ex Angliæ líttore solvens, vi tempestátis expúlsa, seu vérius divínæ providéntiæ consílio dedúcta est in oram marítimam Scótiæ. Ibi cum ex matris império Malchólmo tértio Scotórum regi, egrégiis ejus dótibus capto, nupsísset, sanctimóniæ ac pietátis opéribus, trigínta quibus regnávit annis, toti regno mirífice prófuit.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+INter regáles delícias corpus afflictatiónibus ac vigíliis mácerans, magnam noctis partem piis precatiónibus extrahébat. Præter ália jejúnia, quæ idéntidem usurpábat, íntegros quadragínta dies ante natalítia festa tanta cum severitáte jejunáre consuévit, ut ne in gravíssimis quidem dolóribus intermíserit. Divíno cúltui addictíssima, templa plúrima et cœnóbia partim ex íntegro excitávit, partim resarcívit, et sacra supelléctili ac largo censu ditávit. Regem cónjugem ad meliórem frugem et ad simília suis exercitatiónibus ópera salubérrimo exémplo tradúxit, liberósque omnes tam sancte et felíciter educávit, ut eórum plerísque, quemádmodum et Agatha mater, et Christína soror, sanctíssimum vitæ genus ampléxi sint. Univérsi demum regni felicitáti cónsulens, a vítiis ómnibus, quæ furtim irrépserant, pópulos expurgávit, eísque mores christiána pietáte dignos restítuit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+#### Lectio vi
+
+NIhil tamen æque in illa mirábile fuit ac flagrantíssima cáritas erga próximos, præsértim egénos, quorum numerósis grégibus non modo stipem áffatim suppeditáre, verum étiam trecéntis quotídie matérna benignitáte dapes præbére, flexis génibus in morem ancíllæ ministráre, régiis mánibus pedes ablúere, et pressis étiam ósculis úlcera fovére, solémne hábuit. His porro aliísque piis súmptibus non régias tantum vestes et pretiósa monília

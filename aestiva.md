@@ -26131,3 +26131,43 @@ ACcípiens Móyses sánguinem vitulórum, et hircórum cum aqua et lana coccíne
 {RUBRIC: Completorium de Dominica et conclúsio Hymni ut in Communi Festórum B. Maríæ Vírginis.}
 
 ---
+
+## Die 2 Julii
+
+# In Visitatione Beatæ Mariæ Virginis
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Communi Festorum B. Mariæ Virginis [174], præter ea quæ hic habéntur própria.}
+
+### In I Vesperis
+
+{RUBRIC: Quando dicéndæ sint íntegræ: Añæ de Laudibus, Versus et réliqua, ut infra.}
+
+**Ant.** Beáta es, \* María, quæ credidísti: perficiéntur in te quæ dicta sunt tibi a Dómino, allelúja.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+###### Oratio
+
+FAmulis tuis, quǽsumus, Dómine, cæléstis grátiæ munus impertíre: ut, quibus beátæ Vírginis partus éxstitit salútis exórdium; Visitatiónis ejus votíva solémnitas, pacis tríbuat increméntum. Per Dóminum.
+
+### Ad Matutinum
+
+**Invit.** Visitatiónem Vírginis Maríæ celebrémus: \* Christum ejus Fílium adorémus Dóminum. *Ps. 94* Veníte, exsultémus.
+
+#### In I Nocturno
+
+De Cánticis canticórum
+
+#### Lectio i
+
+*Cap. 2, 1-17*
+
+EGO flos campi et lílium convállium. Sicut lílium inter spinas, sic amíca mea inter fílias. Sicut malus inter ligna silvárum, sic diléctus meus inter fílios. Sub umbra illíus quem desideráveram sedi, et fructus ejus dulcis gútturi meo. Introdúxit me in cellam vináriam, ordinávit in me caritátem. Fulcíte me flóribus, stipáte me malis, quia amóre lángueo. Læva ejus sub cápite meo, et déxtera illíus amplexábitur me. Adjúro vos, fíliæ Jerúsalem, per cápreas cervósque campórum, ne suscitétis neque evigiláre faciátis diléctam, quoadúsque ipsa velit.
+
+℟. Surge, própera, amíca mea, formósa mea, et veni: jam enim hiems tránsiit, imber ábiit et recéssit; \* Vox túrturis audíta est in terra nostra. ℣. Intrávit María in domum Zacharíæ et salutávit Elísabeth. — Vox.
+
+#### Lectio ii
+
+VOX dilécti mei; ecce iste venit sáliens in móntibus, transíliens colles. Símilis est diléctus meus cápreæ hinnulóque cervórum. En ipse stat post paríetem nostrum, respíciens per fenéstras, prospíciens per cancéllos. En diléctus meus lóquitur

@@ -23582,3 +23582,55 @@ Sub annis,
 Cívium turmas fúgiens, petísti,
 Ne levi posses maculáre vitam
 Crímine linguæ.
+
+Prǽbuit durum tégumen camélus
+Artúbus sacris, stróphium bidéntes;
+Cui latex haustum, sociáta pastum
+Mella locústis.
+
+Céteri tantum cecinére Vatum
+Corde præságo jubar affutúrum;
+Tu quidem mundi scelus auferéntem
+Índice prodis.
+
+Non fuit vasti spátium per orbis
+Sánctior quisquam génitus Joánne,
+Qui nefas sæcli méruit lavántem
+Tíngere lymphis.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus omni
+Témporis ævo. Amen.
+
+#### In I Nocturno
+
+**Ant.** Priúsquam te formárem \* in útero, novi te; et ántequam progrederéris, sanctificávi te.
+
+#### Psalmus 1
+
+BEÁTUS vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit:
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo:
+
+Et fólium ejus non défluet: \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic: \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício: \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum: \* et iter impiórum períbit.
+
+**Ant.** Priúsquam te formárem in útero, novi te; et ántequam progrederéris, sanctificávi te.
+
+**Ant.** Ad ómnia quæ mittam te, \* dicit Dóminus, ibis: ne tímeas, et quæ mandávero tibi, loquéris ad eos.
+
+#### Psalmus 2
+
+QUare fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum: \* et projiciámus a nobis jugum ipsórum.

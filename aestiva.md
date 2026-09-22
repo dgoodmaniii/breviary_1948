@@ -32166,4 +32166,26 @@ ELucébat in eo humílitas, misericórdia, benígnitas. Contemplatióni autem si
 
 #### Lectio vi
 
-MUlta prætérea scripsit, in quibus appáret eum doctrína pótius divínitus trádita quam labóre comparáta instrúctum fuísse. In summa virtútum laude exorátus a máximis princípibus de eórum componéndis controvérsiis et de ecclesiásticis rebus constituéndis, sǽpius in Itáliam venit. Innocéntium item secúndum Pontíficem máximum in confutándo schísmate Petri Leónis, cum apud imperatórem et Henrícum Angliæ regem, tum in concílio Pisis coácto, egrégie adjúvit. Dénique, tres et sexagínta annos natus, obdormívit in Dómino, ac, miráculis illústris, ab Alexándro tértio Papa inter Sanctos relátus est. Pius vero octávus Póntifex má-
+MUlta prætérea scripsit, in quibus appáret eum doctrína pótius divínitus trádita quam labóre comparáta instrúctum fuísse. In summa virtútum laude exorátus a máximis princípibus de eórum componéndis controvérsiis et de ecclesiásticis rebus constituéndis, sǽpius in Itáliam venit. Innocéntium item secúndum Pontíficem máximum in confutándo schísmate Petri Leónis, cum apud imperatórem et Henrícum Angliæ regem, tum in concílio Pisis coácto, egrégie adjúvit. Dénique, tres et sexagínta annos natus, obdormívit in Dómino, ac, miráculis illústris, ab Alexándro tértio Papa inter Sanctos relátus est. Pius vero octávus Póntifex máximus, ex sacrórum Rítuum Congregatiónis consílio, sanctum Bernárdum universális Ecclésiæ Doctórem declarávit et confirmávit, nec non Missam et Offícium de Doctóribus ab ómnibus recitári jussit, atque indulgéntias plenárias quotánnis in perpétuum órdinis Cisterciénsium ecclésias visitántibus die hujus Sancti festo concéssit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+BErnárdus, Fontánis in Burgúndia honésto loco natus, usque a puerítia castitátem diligentíssime cóluit. Ætáte duórum et vigínti annórum, monastérium Cisterciénse, unde hujus nóminis ordo incépit, ingréssus, fratres quoque suos aliósque multos addúxit ad eámdem religiónem suscipiéndam. In vigíliis et oratiónibus mirífice se exercébat. Elucébat in eo humílitas, misericórdia, benígnitas, prudéntia, et assíduum cæléstia meditándi stúdium. Factus abbas Claravallénsis, multis in locis ædificávit monastéria, ubi præclára ejus institútio ac disciplína diu víguit. Multa prætérea scripsit, in quibus appáret, eum doctrína pótius divínitus trádita quam labóre comparáta instrúctum fuísse. Exorátus a magnis princípibus de eórum componéndis controvérsiis et de ecclesiásticis rebus constituéndis, sǽpius in Itáliam venit. Innocéntium secúndum Pontíficem máximum in confutándo schísmate Petri Leónis egrégie adjúvit. Tres et sexagínta annos natus, óptime de Ecclésia méritus, obdormívit in Dómino.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Comm. Doctórum 1 loco. [90]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.

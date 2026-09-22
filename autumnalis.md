@@ -15313,3 +15313,74 @@ ET convenérunt ad Alcimum et Bácchidem congregátio scribárum requírere quæ
 *Cap. 8, 1-4*
 
 ET audívit Judas nomen Romanórum, quia sunt poténtes víribus et acquiéscunt ad ómnia quæ postulántur ab eis, et cuicúmque accessérunt ad eos statuérunt cum eis amicítias, et quia sunt poténtes víribus. Et audiérunt prǽlia eórum et virtútes bonas, quas fecérunt in Galátia, quia obtinuérunt eos et duxérunt sub tribútum, et quanta fecérunt in regióne Hispániæ, et quod in potestátem redegérunt metálla argénti et auri, quæ illic sunt, et possedérunt omnem locum consílio suo et patiéntia, lócaque quæ longe erant valde ab eis, et reges qui supervénerant eis ab extrémis terræ, contrivérunt et percussérunt eos plaga magna; céteri autem dant eis tribútum ómnibus annis.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+*Cap. 8, 17-27*
+
+ET elégit Judas Eupólemum fílium Joánnis, fílii Jacob, et Jásonem fílium Eleázari et misit eos Romam constitúere cum illis amicítiam et societátem et, ut auférrent ab eis jugum Grǽcórum, quia vidérunt quod in servitútem prémerent regnum Israël. Et abiérunt Romam viam multam valde et introiérunt cúriam et dixérunt : Judas Machabǽus et fratres ejus et pópulus Judæórum misérunt nos ad vos statúere vobíscum societátem et pacem et conscríbere nos sócios et amícos vestros. Et plácuit sermo in conspéctu eórum. Et hoc rescríptum est, quod rescripsérunt in tábulis ǽreis et misérunt in Jerúsalem, ut esset apud eos ibi memoriále pacis et societátis.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato : Glória Patri. Et.}
+
+##### Lectio iii
+
+BEne sit Románis et genti Judæórum in mari et in terra in ætérnum, gladiúsque et hostis procul sit ab eis. Quod si institúerit bellum Románis prius aut ómnibus sóciis eórum in omni dominatióne eórum, auxílium feret gens Judæórum, prout tempus dictáverit, corde pleno; et præliántibus non dabunt neque subministrábunt tríticum, arma, pecúniam, naves, sicut plácuit Románis; et custódient mandáta eórum nihil ab eis accipiéntes. Similiter autem et, si genti Judæórum prius accíderit bellum, adjuvábunt Románi ex ánimo, prout eis tempus permíserit.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Lugébat autem Judam \* Israël planctu magno et dicébat : Quómodo cecidísti, potens in prǽlio, qui salvum faciébas pópulum Dómini?
+
+{RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica III Octobris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 9, 1-20*
+
+INtérea, ut audívit Demétrius quia cécidit Nicánor et exércitus ejus in prǽlio, appósuit Bácchidem et Alcimum rursum míttere in Judǽam et dextrum cornu cum illis. Et abiérunt viam quæ ducit in Gálgala et castra posuérunt in Másaloth, quæ est in Arbéllis, et occupavérunt eam et peremérunt ánimas hóminum multas. In mense primo anni centésimi et quinquagésimi secúndi applicuérunt exércitum ad Jerúsalem, et surrexérunt et abiérunt in Béream vigínti míllia virórum et duo míllia équitum. Et Judas posúerat castra in Láisa, et tria míllia viri elécti cum eo. Et vidérunt multitúdinem exércitus, quia multi sunt, et timuérunt valde, et multi subtraxérunt se de castris et non remansérunt ex eis nisi octingénti viri.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem, et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+ET vidit Judas quod deflúxit exércitus suus, et bellum perurgébat eum, et confráctus est corde, quia non habébat tempus congregándi eos, et dissolútus est. Et dixit his qui resídui erant : Surgámus et eámus ad adversários nostros, si potérimus pugnáre advérsus eos. Et avertébant eum dicéntes : Non potérimus, sed liberémus ánimas nostras modo et revertámur ad fratres nostros, et tunc pugnábimus advérsus eos; nos autem pauci sumus. Et ait Judas : Absit istam rem fácere, ut fugiámus ab eis : et, si appropiávit tempus nostrum, moriámur in virtúte propter fratres nostros et non inferámus crimen glóriæ nostræ. Et movit exércitus de castris, et stetérunt illis óbviam, et divísi sunt équites in duas partes, et fundibulárii et sagittárii præíbant exércitum, et primi certáminis omnes poténtes.
+
+℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+##### Lectio iii
+
+BAcchides autem erat in dextro cornu, et proximávit légio ex duábus pártibus, et clamábant tubis. Exclamavérunt autem et hi qui erant ex parte Judǽ, étiam ipsi, et commóta est terra a voce exercítuum, et commíssum est prǽlium a mane usque ad vésperam. Et vidit Judas quod firmior est pars exércitus Bácchidis in dextris, et convenérunt cum ipso omnes constántes corde; et contríta est déxtera pars ab eis, et persecútus est eos usque ad montem Azóti; et qui in sinístro cornu erant vidérunt quod contrítum est dextrum cornu, et secúti sunt post Judam et eos, qui cum ipso erant, a tergo, et ingravátum est prǽlium, et cecidérunt vulneráti multi ex his et ex illis, et Judas cécidit, et céteri fugérunt. Et Jónathas et Simon tulérunt Judam fratrem suum et sepeliérunt eum in sepúlcro patrum suórum in civitáte Modin, et flevérunt eum omnis pópulus Israël planctu magno.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Officiórum sancti Ambrósii Epíscopi}
+
+##### Lectio iv
+*Lib. 1, c. 41*
+
+QUia fortitúdo non solum secúndis rebus, sed étiam advérsis probátur, spectémus Judæ Machabǽi éxitum. Is enim post victum Nicánorem, regis Demétrii ducem, secúrior advérsus vigínti míllia exércitus regis, cum octingéntis viris bellum adórsus, voléntibus his cédere ne multitúdine opprimeréntur, gloriósam magis mortem quam turpem fugam suásit : Ne crimen, inquit, nostræ relinquámus glóriæ. Ita commísso prǽlio, cum a primo ortu diéi in vésperam dimicarétur, dextrum cornu, in quo validíssimam manum advértit hóstium, aggréssus fácile avértit. Sed dum fugiéntes séquitur, a tergo vúlneri locum præbuit; ítaque gloriosiórem triúmphis mortem invénit.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum, et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et nunc.
+
+##### Lectio v
+
+QUid Jónatham fratrem ejus attéxam, qui cum parva manu advérsus exércitus régios pugnans, desértus a suis et cum duóbus tantum relíctus, reparávit bellum, avértit hostem, fugitántes suos ad societátem revocávit triúmphi? Habes fortitúdinem béllicam, in qua non mediócris honésti ac decóri forma est, quod mortem servitúti præferat ac turpitúdini. Quid autem de Mártyrum dicam passiónibus? Et ne lóngius evagémur, non minórem de supérbo rege Antíocho Machabǽi púeri revexérunt triúmphum, quam paréntes próprii; síquidem illi armáti, isti sine armis vicérunt.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.

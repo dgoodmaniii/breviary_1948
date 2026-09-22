@@ -24262,4 +24262,59 @@ AT Terentiánus véritus, ne, si públice interficeréntur, pópulus commoverét
 
 #### Lectio ix
 
-JOánnes et Paulus, fratres Románi, cum facultátes a Constántia, Constantíni fília, cui pie fidelitérque serviérant, sibi relíctas, in Christi páuperes distribúerent, a Juliáno Apóstata in númerum familiárium suórum invitáti, líbere negavérunt se apud eum esse velle, qui a Jesu Christo defecísset. Quare præfinítum est eis spátium decem diérum, ut Jovi sacrificáre induceréntur; quod scelus patráre cum constantíssime recusássent, Terentiáno júdice, abscíssis domi capítibus, martýrii palmam meruérunt. Eórum gloriósus éxitus a spirítibus immúndis est pervulgátus, qui multórum vexábant córpora; in quibus Terentiáni fílius, et ipse opprés-
+JOánnes et Paulus, fratres Románi, cum facultátes a Constántia, Constantíni fília, cui pie fidelitérque serviérant, sibi relíctas, in Christi páuperes distribúerent, a Juliáno Apóstata in númerum familiárium suórum invitáti, líbere negavérunt se apud eum esse velle, qui a Jesu Christo defecísset. Quare præfinítum est eis spátium decem diérum, ut Jovi sacrificáre induceréntur; quod scelus patráre cum constantíssime recusássent, Terentiáno júdice, abscíssis domi capítibus, martýrii palmam meruérunt. Eórum gloriósus éxitus a spirítibus immúndis est pervulgátus, qui multórum vexábant córpora; in quibus Terentiáni fílius, et ipse oppréssus a dǽmone, ad sepúlcrum Mártyrum liberátus est. Quo miráculo et is in Christum crédidit, ut ejus pater Terentiánus; a quo étiam horum beatórum Mártyrum vita scripta esse dícitur.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Atténdite a ferménto, de Communi plurimórum Mártyrum 3 loco. [67]}
+
+℟. viii Hæc est vera fratérnitas. [67]
+
+##### Ad Laudes
+
+**Ant. 1** Paulus et Joánnes \* dixérunt Juliáno: Nos unum Deum cólimus, qui fecit cælum et terram.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**2** Paulus et Joánnes \* dixérunt Terentiáno: Si tuus dóminus est Juliánus, habéto pacem cum illo: nobis álius non est, nisi Dóminus Jesus Christus.
+
+**3** Joánnes et Paulus, \* agnoscéntes tyránnidem Juliáni, facultátes suas paupéribus erogáre cœpérunt.
+
+**4** Sancti spíritus \* et ánimæ justórum, hymnum dícite Deo, allelúja.
+
+**5** Joánnes et Paulus \* dixérunt ad Gallicánum: Fac votum Deo cæli, et eris victor mélius quam fuísti.
+
+###### Capitulum
+
+*Sap. 3, 1-3*
+
+JUstórum ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+###### Hymnus
+
+REX glorióse Mártyrum,
+Coróna confiténtium,
+Qui respuéntes térrea
+Perdúcis ad cæléstia:
+
+AUrem benígnam prótinus
+Inténde nostris vócibus:
+Trophǽa sacra pángimus:
+Ignósce quod delíquimus.
+
+TU vincis inter Mártyres
+Parcísque Confessóribus:
+Tu vince nostra crímina,
+Largítor indulgéntiæ.
+
+DEO Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc, et per omne sǽculum.
+Amen.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Bened. Ant.** Isti sunt Sancti, \* qui pro Christi amóre minas hóminum contempsérunt: sancti Mártyres in regno cælórum exsúltant cum Angelis. O quam pretiósa est mors Sanctórum, qui assídue assístunt ante Dóminum, et ab ínvicem non sunt separáti!

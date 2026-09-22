@@ -25304,3 +25304,53 @@ Qui templa cæli cláuditis
 Serásque verbo sólvitis,
 Nos a reátu nóxios
 Solvi jubéte, quǽsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus:
+
+Ut, cum redíbit árbiter
+In fine Christus sæculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+\* Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória.
+Amen.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+**Ad Bened. Ant.** Vos qui secúti estis me, \* sedébitis super sedes, judicántes duódecim tribus Israël, dicit Dóminus.
+
+###### Oratio
+
+DEus, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quǽsumus; ut, cujus natalítia cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Et fit Com. S. Petri Ap. ante omnes alias Commemorationes:}
+
+**Ant.** Tu es pastor óvium, Princeps Apostolórum, tibi tráditæ sunt claves regni cælórum.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+###### Oratio
+
+DEus, qui beáto Petro Apóstolo tuo, collátis clávibus regni cæléstis, ligándi atque solvéndi pontifícium tradidísti: concéde; ut intercessiónis ejus auxílio, a peccatórum nostrórum néxibus liberémur. (Qui vivis et regnas.)
+
+{RUBRIC: Deinde Commem. Octavæ S. Joannis:}
+
+**Ant.** Apértum est os Zacharíæ, et prophetávit dicens: Benedíctus Deus Israël.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+###### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+### Ad Tertiam
+
+{RUBRIC: Capit. Bonum certámen. 694}
+
+℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terræ verba eórum. Exívit. Glória Patri. In.

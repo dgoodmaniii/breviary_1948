@@ -28694,3 +28694,33 @@ EO miráculo et horum prædicatióne primum Massiliénses, mox Aquénses ac fin�
 MArtha autem, mirábili vitæ sanctitáte et caritáte, ómnium Massiliénsium ánimis in sui amórem et admiratiónem addúctis, in locum a viris remótum cum áliquot honestíssimis féminis se recépit; ubi summa cum laude pietátis et prudéntiæ diu vixit, ac demum, morte sua multo ante prædícta, miráculis clara migrávit ad Dóminum, quarto Kaléndas Augústi. Cujus corpus apud Taráscum magnam habet venerationem.
 
 ℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+MArtha, nobílibus et copiósis paréntibus nata, sed Christi Dómini hospítio clárior, post ejus ascénsum in cælum, cum fratre, soróre multísque áliis Christiánis comprehénsa a Judǽis et in navem sine velo ac remígio impósita, Massíliam appulísse tráditur. Eo miráculo et horum prædicatióne Massiliénses et finítimæ gentes in Christum credidérunt. Martha autem, mirábili vitæ sanctitáte et caritáte ómnium Massiliénsium ánimis in sui amórem et admiratiónem addúctis, in locum a viris remótum cum áliquot honestíssimis féminis se recépit; ubi summa cum laude pietátis et prudéntiæ diu vixit, ac demum, morte sua multo ante prædícta, miráculis clara migrávit ad Dóminum.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 10, 38-42*
+
+IN illo témpore: Intrávit Jesus in quoddam castéllum; et múlier quǽdam, Martha nómine, excépit illum in domum suam. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Sermo 26 de verbis Domini*
+
+VErba Dómini nostri Jesu Christi, quæ modo ex Evangélio recitáta sunt, ádmonent nos, esse unum áliquid quo tendámus, quando in hujus sǽculi multitúdine laborámus. Téndimus autem adhuc peregrinántes, nondum manéntes, adhuc in via, nondum in pátria; adhuc desiderándo, nondum fruéndo. Tamen tendámus, et sine pigrítia et sine intermissióne tendámus, ut aliquándo pervenire valeámus. Martha et María duæ soróres erant, ambæ non solum carne, sed étiam religióne germánæ; ambæ Dómino cohæsérunt, ambæ Dómino in carne præsénti concórditer serviérunt.
+
+℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum: \* Et veniénte Dómino, introívit cum eo ad núptias. ℣. Média nocte clamor factus est: Ecce sponsus venit, exíte óbviam ei. — Et.

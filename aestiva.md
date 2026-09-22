@@ -32189,3 +32189,51 @@ Te Deum laudámus.
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio C 3
+
+DEus, qui pópulo tuo ætérnæ salútis beátum Bernárdum minístrum tribuísti: præsta quǽsumus, ut quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Octávæ:}
+
+**Ant.** Quæ est ista quæ ascéndit sicut auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta?
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+###### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum vivit.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis et Octávæ.}
+
+---
+
+### Die 21 Augusti
+
+#### S. Joannæ Franciscæ Frémiot de Chantal
+
+{RUBRIC: Víduæ [130] Duplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+OMnípotens et miséricors Deus, qui beátam Joánnam Franciscam tuo amóre succénsam, admirábili spíritus fortitúdine per omnes vitæ sémitas in via perfectiónis donásti, quique per illam illustráre Ecclésiam tuam nova prole voluísti: ejus méritis et précibus concéde; ut, qui infirmitátis nostræ cónscii de tua virtúte confídimus, cæléstis grátiæ auxílio cuncta nobis adversántia vincámus. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Bernárde, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui pópulo, ut supra.}
+
+{RUBRIC: Deinde Commem. Octávæ:}
+
+**Ant.** Hódie María Virgo cælos ascéndit: gaudéte, quia cum Christo regnat in ætérnum.
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+{RUBRIC: Oratio Famulórum, ut supra.}

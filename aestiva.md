@@ -26170,4 +26170,20 @@ EGO flos campi et lílium convállium. Sicut lílium inter spinas, sic amíca me
 
 #### Lectio ii
 
-VOX dilécti mei; ecce iste venit sáliens in móntibus, transíliens colles. Símilis est diléctus meus cápreæ hinnulóque cervórum. En ipse stat post paríetem nostrum, respíciens per fenéstras, prospíciens per cancéllos. En diléctus meus lóquitur
+VOX dilécti mei; ecce iste venit sáliens in móntibus, transíliens colles. Símilis est diléctus meus cápreæ hinnulóque cervórum. En ipse stat post paríetem nostrum, respíciens per fenéstras, prospíciens per cancéllos. En diléctus meus lóquitur mihi: Surge, própera, amíca mea, colúmba mea, formósa mea, et veni. Jam enim hiems tránsiit, imber ábiit et recéssit, flores apparuérunt in terra nostra, tempus putatiónis advénit, vox túrturis audíta est in terra nostra, ficus prótulit grossos suos, víneæ floréntes dedérunt odórem suum.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt.
+
+#### Lectio iii
+
+SUrge, amíca mea, speciósa mea, et veni, colúmba mea, in foramínibus petræ, in cavérna macériæ, osténde mihi fáciem tuam, sonet vox tua in áuribus meis: vox enim tua dulcis, et fácies tua decóra. Cápite nobis vulpes párvulas, quæ demoliúntur víneas; nam vínea nostra flóruit. Diléctus meus mihi, et ego illi, qui páscitur inter lília, donec aspíret dies, et inclinéntur umbræ. Revértere; símilis esto, dilécte mi, cápreæ hinnulóque cervórum super montes Bether.
+
+℟. Repléta est Spíritu Sancto Elísabeth et exclamávit: Benedícta tu inter mulíeres, et benedíctus fructus ventris tui: \* Et unde hoc mihi, ut véniat mater Dómini mei ad me? ℣. Ecce enim, ut facta est vox salutatiónis tuæ in áuribus meis, exsultávit in gáudio infans in útero meo. — Et. Glória. Et.
+
+##### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+*Apud Metaphr. mense Julio*
+
+CUM ad nos advenísset Redémptor nostri géneris, venit prótinus ad suum amícum Joánnem, dum adhuc esset in ventre matris. Quem cum ex útero in útero aspexísset Joánnes, términos natúræ concútiens, exclámat: Vídeo Dóminum, qui natúræ impósuit términos, et non exspécto tempus nascéndi. Novem ménsium tempus mihi non est hic necessárium; in me est enim, qui est ætérnus. Egrédiar ex hoc tenebróso tabernáculo, rerum admirábilium compendiósam prǽdicábo cognitiónem. Sum signum: significábo Christi advéntum. Sum tuba: próferam Fílii Dei in carne dispensatiónem. Tuba canam; eo ipso patérnæ linguæ benedícam,

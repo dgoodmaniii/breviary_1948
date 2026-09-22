@@ -31636,3 +31636,60 @@ Te Deum laudámus.
 *Eccli. 24, 11-12*
 
 IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo.
+
+#### Hymnus
+
+O Gloriósa vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine:
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida:
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Exaltáta est sancta Dei Génitrix. ℟. Super choros Angelórum ad cæléstia regna.
+
+**Ad Bened. Ant.** Quæ est ista \* quæ ascéndit sicut auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta?
+
+#### Oratio
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce: ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui Dómini nostri intercessióne salvémur: Qui tecum.
+
+### Ad Primam
+
+**Ant.** Assúmpta est, {RUBRIC: ut supra. 894}
+
+### Ad Tertiam
+
+**Ant.** María Virgo, {RUBRIC: ut supra. 894}
+
+**Capit.** In ómnibus, {RUBRIC: ut supra ad Laudes.}
+
+{RUBRIC: ℟. br. Exaltáta est \* Sancta Dei Génitrix. Exaltáta. ℣. Super choros Angelórum ad cæléstia regna. Sancta. Glória Patri. Exaltáta. ℣. Assúmpta est María in cælum: gaudent Angeli. ℟. Laudántes benedícunt Dóminum.}
+
+### Ad Sextam
+
+**Ant.** In odórem, {RUBRIC: ut supra. 894}
+
+#### Capitulum
+
+*Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+{RUBRIC: ℟. br. Assúmpta est María in cælum: \* Gaudent Angeli. Assúmpta. ℣. Laudántes benedícunt Dóminum. Gaudent. Glória Patri. Assúmpta.}
+
+℣. María Virgo assúmpta est ad æthéreum thálamum. ℟. In quo Rex regum stelláto sedet sólio.

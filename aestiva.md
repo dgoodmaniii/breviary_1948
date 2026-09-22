@@ -22019,3 +22019,31 @@ DEus, qui Anglórum gentes, prædicatióne et miráculis beáti Augustíni Confe
 **Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
 
 {RUBRIC: Et fit Commemoratio sequéntis.}
+
+### Die 29 Maji
+
+#### S. Mariæ Magdalenæ de Pazzis
+
+{RUBRIC: Vírginis [111] Semiduplex}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+DEus, virginitátis amátor, qui beátam Maríam Magdalénam Vírginem, tuo amóre succénsam, cæléstibus donis decorásti: da; ut, quam festíva celebritáte venerámur, puritáte et caritáte imitémur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+MAría Magdaléna, illustrióri Pazziórum génere Floréntiæ nata, fere ab incunábulis iter perfectiónis arrípuit. Decénnis perpétuam virginitátem vovit, susceptóque hábitu in monastério sanctæ Maríæ Angelórum, órdinis Carmelitárum, se ómnium virtútum exémplar exhíbuit. Adeo casta fuit, ut quidquid puritátem lædere potest, pénitus ignoráverit. Quinquénnium, Deo jubénte, solo pane et aqua tránségit, excéptis diébus Dominícis, quibus cibis quadragesimálibus vescebátur. Corpus suum cilício, flagéllis, frígore, inédia, vigíliis, nuditáte atque omni pœnárum génere cruciábat.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam: \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+#### Lectio v
+
+TAnto igne divíni amóris æstuábat, ut, ei feréndo impar, ingésta aqua pectus refrigeráre cogerétur. Extra sensus frequénter rapta, diutúrnas et admirábiles éxtases passa est, in quibus et arcána cæléstia penetrávit, et exímiis a Deo grátiis illustráta fuit. His autem muníta longum certámen a princípiis tenebrárum sustínuit, árida, desoláta, ab ómnibus derelícta, variísque tentatiónibus vexáta; Deo sic permitténte, ut invíctæ patiéntiæ ac profundíssimæ humilitátis exémplar præbéret.
+
+℟. Dilexísti justítiam, et odísti iniquitátem: \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.

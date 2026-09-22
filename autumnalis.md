@@ -14061,3 +14061,83 @@ QUIS conclúsit óstiis mare, quando erumpébat quasi de vulva procédens, cum p
 RESTITUÉTUR ut lutum signáculum, et stabit sicut vestiméntum: auferétur ab ímpiis lux sua, et bráchium excélsum confringétur? Numquid ingréssus es profúnda maris, et in novíssimis abýssi deambulásti? Numquid apértæ sunt tibi portæ mortis, et óstia tenebrósa vidísti? Numquid considerásti latitúdinem terræ? Índica mihi, si nosti, ómnia: in qua via lux hábitet, et tenebrárum quis locus sit; ut ducas unumquódque ad términos suos, et intélligas sémitas domus ejus.
 
 ℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+---
+
+## Feria Sexta infra Hebdomadam II Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 40, 1-11*
+
+RESPÓNDENS autem Dóminus Job de túrbine, dixit: Accínge sicut vir lumbos tuos; interrogábo te, et índica mihi. Numquid írritum fácies judícium meum, et condemnábis me, ut tu justificéris? Et, si habes bráchium sicut Deus, et si voce símili tonas, circúmda tibi decórem et in sublíme erígere, et esto gloriósus et speciósis indúere véstibus.
+
+℟. Indúta est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est: \* Meménto mei, Dómine, quóniam ventus est vita mea. ℣. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. — Meménto.
+
+##### Lectio ii
+
+DISPÉRGE supérbos in furóre tuo, et respíciens omnem arrogántem humília; réspice cunctos supérbos et confúnde eos, cóntere ímpios in loco suo; abscónde eos in púlvere simul, et fácies eórum demérge in fóveam; et ego confitébor quod salváre te possit déxtera tua. Ecce béhemoth, quem feci tecum, fœnum, quasi bos, cómedet. Fortitúdo ejus in lumbis ejus, et virtus illíus in umbilíco ventris ejus.
+
+℟. Páucitas diérum meórum finiétur brevi; dimítte me, Dómine, ut plangam páululum dolórem meum, \* Antequam vadam ad terram tenebrósam et opértam mortis calígine. ℣. Manus tuæ, Dómine, fecérunt me, et plasmavérunt me totum in circúitu; et sic repénte præcípitas me? — Antequam.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Antequam.}
+
+##### Lectio iii
+*Cap. 42, 1-6*
+
+RESPÓNDENS autem Job Dómino dixit: Scio quia ómnia potes, et nulla te latet cogitátio. Quis est iste qui celat consílium absque sciéntia? Ideo insipiénter locútus sum, et quæ ultra modum excéderent sciéntiam meam. Audi, et ego loquar; interrogábo te, et respónde mihi. Audítu auris audívi te; nunc autem óculus meus videt te. Idcírco ipse me reprehéndo, et ago pœniténtiam in favílla et cínere.
+
+℟. Non abscóndas me, Dómine, a fácie tua: manum tuam longe fac a me, \* Et formído tua non me térreat. ℣. Córripe me, Dómine, in misericórdia, non in furóre tuo, ne forte ad níhilum rédigas me. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato infra Hebdomadam II Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 42, 7-16*
+
+POSTQUAM autem locútus est Dóminus verba hæc ad Job, dixit ad Elíphaz Themanítem: Irátus est furor meus in te et in duos amícos tuos, quóniam non estis locúti coram me rectum, sicut servus meus Job. Súmite ergo vobis septem tauros et septem aríetes et ite ad servum meum Job et offérte holocáustum pro vobis; Job autem servus meus orábit pro vobis. Fáciem ejus suscípiam, ut non vobis imputétur stultítia; neque enim locúti estis ad me recta, sicut servus meus Job.
+
+℟. Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et constítuas mihi tempus, in quo recordéris mei?
+
+##### Lectio ii
+
+ABIÉRUNT ergo Elíphaz Themanítes et Báldad Suhítes et Sophar Naamathítes, et fecérunt sicut locútus fúerat Dóminus ad eos, et suscépit Dóminus fáciem Job. Dóminus quoque convérsus est ad pœniténtiam Job, cum oráret ille pro amícis suis; et áddidit Dóminus ómnia, quæcúmque fúerant Job, duplícia. Venérunt autem ad eum omnes fratres sui et univérsæ soróres suæ cuncti, qui nóverant eum prius, et comedérunt cum eo panem in domo ejus; et movérunt super eum caput, et consoláti sunt eum super omni malo, quod intúlerat Dóminus super eum, et dedérunt ei unusquísque ovem unam et ináurem áuream unam.
+
+℟. Utinam appenderéntur peccáta mea, quibus iram mérui, \* Et calamítas, quam pátior, in statéra. ℣. Quasi aréna maris hæc grávior apparéret, unde et verba mea dolóre sunt plena. — Et.
+
+{RUBRIC: In Octávis simplícibus et in Offício sanctæ Maríæ in Sábbato: Glória Patri. Et.}
+
+##### Lectio iii
+
+DOMINUS autem benedíxit novíssimis Job magis quam princípio ejus; et facta sunt ei quatuórdecim míllia óvium et sex míllia camelórum et mille juga boum et mille ásinæ, et fuérunt ei septem fílii et tres fíliæ, et vocávit nomen uníus Diem et nomen secúndæ Cássiam et nomen tértiæ Cornustíbii. Non sunt autem invéntæ mulíeres speciósæ sicut fíliæ Job in univérsa terra; dedítque eis pater suus hereditátem inter fratres eárum. Vixit autem Job post hæc centum quadragínta annis, et vidit fílios suos et fílios filiórum suórum usque ad quartam generatiónem; et mórtuus est senex et plenus diérum.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+### Ad Vesperas
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Ne reminiscáris, \* Dómine, delícta mea vel paréntum meórum, neque vindíctam sumas de peccátis meis.
+
+{RUBRIC: Oratio Dominicæ occurrentis.}
+
+---
+
+## Dominica III Septembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Tobiæ}
+
+##### Lectio i
+*Cap. 1, 1-15*
+
+TOBIAS ex tribu et civitáte Néphthali, quæ est in superióribus Galilǽæ supra Naásson, post viam quæ ducit ad Occidéntem in sinístro habens civitátem Sephet, cum captus esset in diébus Salmánasar regis Assyriórum, in captivitáte tamen pósitus viam veritátis non deséruit; ita ut ómnia, quæ habére póterat, quotídie concaptívis frátribus, qui erant ex ejus génere, impertíret. Cumque esset júnior ómnibus in tribu Néphthali, nihil tamen puerile gessit in ópere.
+
+℟. Peto, Dómine, ut de vínculo improperii hujus absólvas me, aut certe désuper terram erípias me: \* Ne reminiscáris delícta mea vel paréntum meórum, neque vindíctam sumas de peccátis meis: quia éruis sustinéntes te, Dómine. ℣. Ómnia enim judícia tua justa sunt, et omnes viæ tuæ misericórdia et véritas: et nunc, Dómine, meménto mei. — Ne.

@@ -32864,4 +32864,32 @@ QUamvis órdini univérso præésset, totísque víribus ad animárum salútem i
 
 #### Lectio ix
 
-JOséphus Calasánctius, Petráltæ in Aragónia natus, adhuc párvulus ǽquáles ad se convocátos mystériis fídei et sacris précibus erudiébat. Sacérdos ex voto factus, summa vitæ asperitáte, vigíliis et jejúniis corpus afflígens, in oratióne et rerum cæléstium contemplatióne dies noctésque versabátur. Cum divínitus accepísset, se ad informándos intelligéntiæ ac pietátis spíritu adoléscentes, præcípue páuperes, destinári; órdinem Clericórum regulárium páuperum Matris Dei scholárum piárum fundávit, qui peculiárem curam de púeris erudién-
+JOséphus Calasánctius, Petráltæ in Aragónia natus, adhuc párvulus ǽquáles ad se convocátos mystériis fídei et sacris précibus erudiébat. Sacérdos ex voto factus, summa vitæ asperitáte, vigíliis et jejúniis corpus afflígens, in oratióne et rerum cæléstium contemplatióne dies noctésque versabátur. Cum divínitus accepísset, se ad informándos intelligéntiæ ac pietátis spíritu adoléscentes, præcípue páuperes, destinári; órdinem Clericórum regulárium páuperum Matris Dei scholárum piárum fundávit, qui peculiárem curam de púeris erudiéndis ex próprio institúto profiteréntur. Innúmeris proptérea labóribus atque ærúmnis invícto ánimo tolerátis, secúndum et nonagésimum annum agens, óbiit in Dómino, octávo Kaléndas Septémbris, anno millésimo sexcentésimo quadragésimo octávo.
+
+Te Deum laudámus.
+
+---
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 18, 1-5*
+
+IN illo témpore: Accessérunt discípuli ad Jesum, dicéntes: Quis, putas, major est in regno cælórum? Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+{RUBRIC: In Cap. 18 Matth. Hom. 60}
+
+VIdéte, ne áliquem istórum contemnátis parvulórum, quia eórum Angeli Patris mei fáciem semper aspíciunt, et quia ego propter eos veni, et hæc Patris mei volúntas est. Ad tuéndos conservandósque pusíllos, diligentióres nos reddit. Pérspicis, quam ingéntia in tutélam tenúium mœnia eréxerit, et quantum stúdium curámque hábeat, ne perdántur; tum quia suprémas despiciéntibus eos pœnas státuit, tum quia summam pollicétur mercédem his qui curam eórum suscípiunt, idque tam suo quam Patris exémplo corróborat.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+DOminum ígitur étiam nos imitémur, et nihil pro frátribus omittámus, étiam eórum quæ humília vilíaque nímium vidéntur. Sed, si administratióne nostra étiam opus fúerit, quamvis ténuis atque abjéctus quidem, cui administrándum sit, fúerit, quamvis árdua nobis res atque labóris plena esse videátur; ómnia hæc pro fratris salúte tolerabilióra facilióraque, oro, videántur. Tanto enim stúdio tantáque cura Deus dignam esse ánimam osténdit, ut neque Fílio suo pepércerit.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et

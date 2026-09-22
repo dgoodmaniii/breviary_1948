@@ -26369,4 +26369,40 @@ IN eo concílio Cyrus, Sérgius et Pyrrhus condemnáti sunt, unam tantúmmodo vo
 
 #### Lectio vi
 
-VEre pater páuperum fuit; non enim pecúnia solum, sed ópera, labóre et consíliis egéntium viduárum et pupillórum inópiam ac solitúdinem sublevábat. Qui, dum síngulos non magis prædicatióne quam vita ad pie sanctéque vivéndum adhortarétur, obdormívit in Dómino mense sui pontificátus undécimo, quinto Nonas Júlii, anno sexcentésimo octogésimo tértio,
+VEre pater páuperum fuit; non enim pecúnia solum, sed ópera, labóre et consíliis egéntium viduárum et pupillórum inópiam ac solitúdinem sublevábat. Qui, dum síngulos non magis prædicatióne quam vita ad pie sanctéque vivéndum adhortarétur, obdormívit in Dómino mense sui pontificátus undécimo, quinto Nonas Júlii, anno sexcentésimo octogésimo tértio, sepultúsque est in basílica sancti Petri. Ordinatióne una, mense Júnio, creávit presbýteros novem, diáconos tres, epíscopos divérsis in locis vigínti tres.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória. Ipse.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+LEo secúndus, Sículus, humánis et divínis lítteris Græce et Latíne doctus, músicis étiam erudítus fuit; ipse enim sacros Hymnos et Psalmos in Ecclésia ad concéntum meliórem redúxit. Probávit acta sextæ sýnodi, quæ, præsidéntibus legátis apostólicæ Sedis, Constantinópoli celebráta est; quam et in Latínum tránstulit. In eo concílio Cyrus, Sérgius et Pyrrhus condemnáti sunt, unam tantúmmodo voluntátem et operatiónem in Christo prædicántes. Vere pater páuperum fuit; non enim pecúnia solum, sed ópera, labóre et consíliis egéntium viduárum et pupillórum inópiam et solitúdinem sublevábat. Obdormívit in Dómino mense sui pontificátus undécimo, quinto Nonas Júlii, anno sexcentésimo octogésimo tértio, sepultúsque est in basílica sancti Petri.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Venit Jesus, de Communi unius aut plurium Summórum Pontíficum [28¹]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+{RUBRIC: Gregem tuum, ut supra. 722}
+
+{RUBRIC: Et fit Commemoratio Octávæ Ss. Petri et Pauli App.:}
+
+**Ant.** Gloriósi príncipes terræ, quómodo in vita dilexérunt se, ita et in morte non sunt separáti.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.

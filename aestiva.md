@@ -21152,4 +21152,36 @@ DE decem leprósis, quos Dóminus ita mundávit, cum ait: Ite, osténdite vos sa
 
 ##### Lectio viii
 
-LEprósi ergo non absúrde intélligi possunt, qui sciéntiam veræ fídei
+LEprósi ergo non absúrde intélligi possunt, qui sciéntiam veræ fídei non habéntes, várias doctrínas profiténtur erróris. Non enim abscóndunt imperítiam suam; sed pro summa perítia próferunt in lucem, et jactántia sermónis osténtant. Nulla porro falsa doctrína est, quæ non áliqua vera intermísceat. Vera ergo falsis inordináte permíxta, in una disputatióne vel narratióne hóminis, tamquam in uníus córporis colóre apparéntia, significant lepram, tamquam veris falsísque colórum fucis humána córpora variántem atque maculántem.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+HI autem tam vitándi sunt Ecclésiæ, ut, si fíeri potest, lóngius remóti, magno clamóre Christum interpéllent; sicut isti decem stetérunt a longe, et levavérunt vocem, dicéntes: Jesu præcéptor, miserére nostri. Nam et quod præceptórem vocant, quo nómine néscio utrum quisquam Dóminum interpelláverit pro medicína corporáli; satis puto signifícáre, lepram falsam esse doctrínam, quam bonus præcéptor abstérgit.
+
+Te Deum.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum transíret Jesus \* quoddam castéllum, occurrérunt ei decem viri leprósi, qui stetérunt a longe et levavérunt vocem dicéntes: Jesu præcéptor, miserére nostri.
+
+{RUBRIC: Oratio Omnípotens, ut supra.}
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Unus autem \* ex illis, ut vidit, quod mundátus est, regréssus est cum magna voce magníficans Deum, allelúja.
+
+---
+
+## Dominica XIV post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+CUstódi, Dómine, quǽsumus, Ecclésiam tuam propitiatióne perpétua: et, quia sine te lábitur humá-

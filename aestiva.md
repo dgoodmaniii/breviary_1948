@@ -25149,3 +25149,47 @@ PRoínde considerémus ipsa mérita Apóstoli Pauli, quibus dixit corónam reddi
 #### Lectio vi
 
 BOnum, inquit, certámen certávi. Quæro qua virtúte certáverit, utrum quæ illi ex semetípso fúerit, an quæ désuper data sit? Sed absit ut tantus doctor ignoráverit legem Dei, cujus vox est in Deuteronómio: Ne dicas in corde tuo: Fortitúdo mea et poténtia manus meæ fecit mihi virtútem magnam hanc; sed memoráberis Dómini, Dei tui, quia ipse tibi dat fortitúdinem fácere virtútem. Quid autem prodest bonum certámen, nisi sequátur victória? Et quis dat victóriam, nisi ille, de quo dicit ipse: Grátias Deo, qui dat nobis victóriam per Dóminum nostrum Jesum Christum?
+
+℟. Saulus, qui et Paulus, magnus prædicátor, \* A Deo confortátus convalescébat, et confundébat Judǽos. ℣. Osténdens quia hic est Christus, Fílius Dei. — A Deo. Glória Patri. A Deo.
+
+##### In III Nocturno
+
+**Ant.** Saulus, qui et Paulus, \* magnus prædicátor, a Deo confortátus convalescébat, et confundébat Judǽos.
+
+###### Psalmus 74
+
+COnfitébimur tibi, Deus: \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua: \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea: \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis: Nolíte iníque ágere: \* et delinquéntibus: Nolíte exaltáre cornu:
+
+Nolíte extóllere in altum cornu vestrum: \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus: \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat: \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc: verúmtamen fæx ejus non est exinaníta: \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sǽculum: \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam: \* et exaltabúntur córnua justi.
+
+**Ant.** Saulus, qui et Paulus, magnus prædicátor, a Deo confortátus convalescébat, et confundébat Judǽos.
+
+**Ant.** Ne magnitúdo \* revelatiónum extóllat me, datus est mihi stímulus carnis meæ, ángelus sátanæ, qui me colaphízet; propter quod ter Dóminum rogávi ut auferrétur a me, et dixit mihi Dóminus: Súfficit tibi, Paule, grátia mea.
+
+###### Psalmus 96
+
+DOminus regnávit, exsúltet terra: \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus: \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ: \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini: \*

@@ -30888,4 +30888,16 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 
 #### Lectio iv
 
-CUM furor géntilium potestátum in electíssima quæque Christi membra sæviret, ac præcípue eos qui órdinis erant sacerdotális impéteret, in levítam Lauréntium, qui non solum ministério sacraméntorum sed étiam dispensatióne ecclesiásticæ substántiæ præeminébat, ímpius persecútor efférbuit, dúplicem sibi prǽdam de uníus viri comprehensióne promíttens; quem, si fecísset
+CUM furor géntilium potestátum in electíssima quæque Christi membra sæviret, ac præcípue eos qui órdinis erant sacerdotális impéteret, in levítam Lauréntium, qui non solum ministério sacraméntorum sed étiam dispensatióne ecclesiásticæ substántiæ præeminébat, ímpius persecútor efférbuit, dúplicem sibi prǽdam de uníus viri comprehensióne promíttens; quem, si fecísset sacræ pecúniæ traditórem, fáceret étiam veræ religiónis exsórtem. Armátur ítaque gémina face homo pecúniæ cúpidus et veritátis inimícus: avarítia, ut rápiat aurum; impietáte, ut áuferat Christum. Póstulat sibi ab immaculáto sacrárii prǽsule opes ecclesiásticas, quibus avidíssimus inhiábat, inférri. Cui Levíta castíssimus, ubi eas repósitas habéret osténdens, numerosíssimos sanctórum páuperum óbtulit greges, in quorum victu atque vestítu inamissíbiles condíderat facultátes, quæ tanto intégrius erant salvæ, quanto sánctius probabántur expénsæ.
+
+℟. Quo progréderis sine fílio, pater? quo, sacérdos sancte, sine diácono properas? \* Tu numquam sine minístro sacrifícium offérre consuéveras. ℣. Quid ergo in me displícuit paternitáti tuæ? numquid degénerem me probásti? Experíre utrum idóneum minístrum elégeris, cui commisísti Domínici sánguinis dispensatiónem. — Tu.
+
+#### Lectio v
+
+FRemit ergo prǽdo frustrátus, et in ódium religiónis, quæ talem divitiárum usum instituísset, ardéscens, direptiónem thesáuri potióris aggréditur, apud quem nullam denariórum substántiam reperísset; ut illud depósitum, quo sacrátius erat dives, auférret. Renuntiáre Christo Lauréntium jubet, et solidíssimam illam levítici ánimi fortitúdinem diris parat urgére supplíciis; quorum ubi prima nil óbtinent, vehementióra succédunt. Láceros artus et multa vérberum sectióne conscíssos subjécto prǽcipit igne torréri; ut per cratem férream, quæ jam de fervóre contínuo vim in se habéret uréndi, conversórum altérna mutatióne membrórum, fíeret cruciátus vehementior et pœna prodúctior.
+
+℟. Noli me derelínquere, pater sancte, quia thesáuros tuos jam expéndi. \* Non ego te désero, fili, neque derelínquo; sed majóra tibi debéntur pro fide Christi certámina. ℣. Nos quasi senes levióris pugnæ cursum recípimus, te autem quasi júvenem manet gloriósior de tyránno triúmphus: post tríduum me sequéris sacerdótem levíta. — Non.
+
+#### Lectio vi
+
+NIhil óbtines, nihil próficis, sæva crudélitas. Subtráhitur torméntis tuis matéria mortális, et, Lau-

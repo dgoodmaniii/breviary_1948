@@ -16699,3 +16699,130 @@ VErbum Dómini, quod factum est ad Osée fílium Béeri in diébus Oziæ, Jóath
 ET dixit Dóminus ad eum : Voca nomen ejus Jézrahel, quóniam adhuc módicum et visitábo sánguinem Jézrahel super domum Jehu et quiéscere fáciam regnum domus Israël et in illa die cónteram arcum Israël in valle Jézrahel. Et concépit adhuc et péperit fíliam. Et dixit ei : Voca nomen ejus Absque misericórdia, quia non addam ultra miseréri dómui Israël, sed oblivióne oblivíscar eórum et dómui Juda miserébor et salvábo eos in Dómino Deo suo et non salvábo eos in arcu et gládio et in bello et in equis et in equítibus.
 
 ℟. Aspice, Dómine, de sede sancta tua, et cógita de nobis : inclína, Deus meus, aurem tuam et audi : \* Aperi óculos tuos et vide tribulatiónem nostram. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Aperi.
+
+##### Lectio iii
+
+ET ablactávit eam quæ erat Absque misericórdia, et concépit et péperit fílium. Et dixit : Voca nomen ejus Non pópulus meus, quia vos non pópulus meus, et ego non ero vester. Et erit númerus filiórum Israël quasi aréna maris, quæ sine mensúra est et non numerábitur. Et erit, in loco ubi dicétur eis : Non pópulus meus vos; dicétur eis : Fílii Dei vivéntis. Et congregabúntur fílii Juda et fílii Israël páriter et ponent síbimet caput unum et ascéndent de terra, quia magnus dies Jézrahel.
+
+℟. Aspice, Dómine, quia facta est desoláta cívitas plena divítiis, sedet in tristítia dómina géntium : \* Non est qui consolétur eam, nisi tu, Deus noster. ℣. Plorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus. — Non. Glória Patri. Non.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Augustíni Epíscopi de Civitáte Dei}
+
+##### Lectio iv
+*Lib. 18, c. 28*
+
+OSée prophéta, quanto profúndius quidem lóquitur, tanto operósius penetrátur. Sed áliquid inde suméndum est, et hic ex nostra promissióne ponéndum. Et erit, inquit, in loco quo dictum est eis, Non pópulus meus vos; vocabúntur et ipsi fílii Dei vivi. Hoc testimónium prophéticum de vocatióne pópuli géntium, qui prius non pertinébat ad Deum, étiam Apóstoli intellexérunt.
+
+℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio v
+
+ET quia ipse quoque pópulus géntium spiritáliter est in fíliis Abrahæ, ac per hoc recte dícitur Israël; proptérea séquitur, et dicit : Et congregabúntur fílii Juda et fílii Israël in idípsum, et ponent síbimet principátum unum, et ascéndent a terra. Hoc si adhuc velímus expónere, elóquii prophétici obtundétur sapor. Recolátur tamen lapis ille anguláris, et duo illi paríetes, unus ex Judǽis, alter ex géntibus : ille nómine filiórum Juda, iste nómine filiórum Israël, eídem uni principátui suo in idípsum inniténtes, et ascendéntes agnoscántur in terra.
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine, et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+##### Lectio vi
+
+ISTos autem carnáles Israëlítas, qui nunc nolunt crédere in Christum, póstea creditúros, id est fílios eórum, (nam útique isti in suum locum moriéndo transíbunt) idem prophéta testátur, dicens : Quóniam diébus multis sedébunt fílii Israël sine rege, sine príncipe, sine sacrifício, sine altári, sine sacerdótio, sine manifestatiónibus. Quis non vídeat, nunc sic esse Judǽos?
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+℟. vii Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+℟. viii Duo Séraphim, {RUBRIC: ut infra in Homiliis.}
+
+---
+
+## Feria Secunda infra Hebdomadam IV Novembris
+
+{RUBRIC: De Osée Prophéta}
+
+##### Lectio i
+*Cap. 4, 1-10*
+
+AUdíte verbum Dómini, fílii Israël, quia judícium Dómino cum habitatóribus terræ; non est enim véritas, et non est misericórdia, et non est sciéntia Dei in terra. Maledíctum et mendácium et homicídium et furtum et adultérium inundavérunt, et sanguis sánguinem tétigit. Propter hoc lugébit terra, et infirmábitur omnis qui hábitat in ea, in béstia agri et in vólucre cæli; sed et pisces maris congregabúntur.
+
+℟. Redémit pópulum suum et liberávit eum, et vénient et exsultábunt in monte Sion et gaudébunt de bonis Dómini super fruménto, vino et óleo, \* Et ultra non esúrient. ℣. Erítque ánima eórum quasi hortus irríguus. — Et.
+
+##### Lectio ii
+
+VErúmtamen unusquísque non júdicet et non arguátur vir; pópulus enim tuus sicut hi qui contradícunt sacerdóti. Et córrues hódie, et córruet étiam prophéta tecum. Nocte tacére feci matrem tuam. Contícuit pópulus meus, eo quod non habúerit sciéntiam. Quia tu sciéntiam repulísti, repéllam te, ne sacerdótio fungáris mihi; et oblíta es legis Dei tui, oblivíscar filiórum tuórum et ego.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+SEcúndum multitúdinem eórum sic peccavérunt mihi : glóriam eórum in ignomíniam commutábo. Peccáta pópuli mei cómedent, et ad iniquitátem eórum sublevábunt ánimas eórum. Et erit sicut pópulus sic sacérdos, et visitábo super eum vias ejus et cogitatiónes ejus reddam ei. Et cómedent et non saturabúntur, fornicáti sunt et non cessavérunt, quóniam Dóminum dereliquérunt in non custodiéndo.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Feria Tertia infra Hebdomadam IV Novembris
+
+{RUBRIC: Incipit Joël Prophéta}
+
+##### Lectio i
+*Cap. 1, 1-11*
+
+VErbum Dómini, quod factum est ad Joël fílium Phátuel. Audíte hoc, senes, et áuribus percípite, omnes habitatóres terræ, si factum est istud in diébus vestris aut in diébus patrum vestrórum? Super hoc fíliis vestris narráte, et fílii vestri fíliis suis et fílii eórum generatióni álteræ. Resíduum erúcæ comédit locústa, et resíduum locústæ comédit bruchus, et resíduum bruchi comédit rubígo.
+
+℟. A fácie furóris tui, Deus, conturbáta est omnis terra : \* Sed miserére, Dómine, et ne fácias consummatiónem. ℣. Dómine, Dóminus noster, quam admirábile est nomen tuum! — Sed.
+
+##### Lectio ii
+
+EXpergiscímini, ébrii, et fléte et ululáte, omnes qui bíbitis vinum in dulcédine, quóniam périit ab ore vestro. Gens enim ascéndit super terram meam fortis et innumerábilis : dentes ejus ut dentes leónis, et moláres ejus ut cátuli leónis. Pósuit víneam meam in desértum et ficum meam decorticávit, nudans spoliávit eam et projécit, albi facti sunt rami ejus.
+
+℟. Civitátem istam tu circúmda, Dómine : et Angeli tui custódiant muros ejus. \* Exáudi, Dómine, pópulum tuum cum misericórdia. ℣. Avertátur furor tuus, Dómine, a pópulo tuo et a civitáte sancta tua. — Exáudi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Exáudi.}
+
+##### Lectio iii
+
+PLange, quasi virgo accíncta sacco super virum pubertátis suæ. Périit sacrifícium et libátio de domo Dómini, luxérunt sacerdótes minístri Dómini. Depopuláta est régio, luxit humus, quóniam devastátum est tríticum, confúsum est vinum, elánguit óleum, confúsi sunt agrícolæ, ululavérunt vinitóres super fruménto et hórdeo, quia périit messis agri.
+
+℟. Genti peccatríci, pópulo pleno peccáto miserére, \* Dómine Deus. ℣. Esto placábilis super nequítiam pópuli tui. — Dómine. Glória Patri. Dómine.
+
+---
+
+## Feria Quarta infra Hebdomadam IV Novembris
+
+{RUBRIC: De Joéle Prophéta}
+
+##### Lectio i
+*Cap. 3, 1-12*
+
+IN diébus illis et in témpore illo, cum convértero captivitátem Juda et Jerúsalem, congregábo omnes gentes et dedúcam eas in vallem Jósaphat et disceptábo cum eis ibi super pópulo meo et hereditáte mea Israël, quos dispersérunt in natiónibus et terram meam divisérunt. Et super pópulum meum misérunt sortem; et posuérunt púerum in prostíbulo et puéllam vendidérunt pro vino ut bíberent.
+
+℟. Indicábo tibi, homo, quid sit bonum aut quid Dóminus requírat a te : \* Fácere judícium et justítiam et sollícitum ambuláre cum Deo tuo. ℣. Spera in Dómino, et fac bonitátem, et inhábita terram. — Fácere.
+
+##### Lectio ii
+
+VErum quid mihi et vobis, Tyrus et Sidon, et omnis términus Palæstinórum? Numquid ultiónem vos reddétis mihi? Et, si ulciscímini vos contra me, cito velóciter reddam vicissitúdinem vobis super caput vestrum. Argéntum enim meum et aurum tulístis et desiderabília mea et pulchérrima intulístis in delúbra vestra et fílios Juda et fílios Jerúsalem vendidístis fíliis Græcórum, ut longe facerétis eos de fínibus suis. Ecce ego suscitábo eos de loco in quo vendidístis eos, et convértam retributiónem vestram in caput vestrum.
+
+℟. Angústiæ mihi sunt úndique, et quid éligam ignóro; \* Mélius est mihi incídere in manus hóminum, quam derelínquere legem Dei mei. ℣. Si enim hoc égero, mors mihi est; si autem non égero, non effúgiam manus vestras. — Mélius.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Mélius.}
+
+##### Lectio iii
+
+ET vendam fílios vestros et fílias vestras in mánibus filiórum Juda, et venúmdabunt eos Sabǽis, genti longínquæ, quia Dóminus locútus est. Clamáte hoc in géntibus, sanctificáte bellum, suscitáte robústos; accédant, ascéndant omnes viri bellatóres; concídite arátra vestra in gládios et ligónes vestros in lánceas; infírmus dicat : Quia fortis ego sum. Erúmpite et veníte, omnes gentes de circúitu, et congregámini; ibi occúmbere fáciet Dóminus robústos tuos. Consúrgant et ascéndant gentes in vallem Jósaphat; quia ibi sedébo ut júdicem omnes gentes in circúitu.
+
+℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quinta infra Hebdomadam IV Novembris
+
+{RUBRIC: Incipit Amos Prophéta}
+
+##### Lectio i
+*Cap. 1, 1-8*
+
+VErba Amos, qui fuit in pastóribus de Thécue : quæ vidit super Israël in diébus Oziæ regis Juda et in diébus Jeróboam fílii Joas regis Israël, ante duos annos terræmótus. Et dixit : Dóminus de Sion rúgiet et de Jerúsalem dabit vocem suam, et luxérunt speciósa pastórum, et exsiccátus est vertex Carméli.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.

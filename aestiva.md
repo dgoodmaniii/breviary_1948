@@ -28931,3 +28931,48 @@ DEus, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti
 #### Oratio
 
 DEus, qui ad majórem tui nóminis glóriam propagándam, novo per beátum Ignátium subsídio militántem Ecclésiam roborásti: concéde; ut, ejus auxílio et imitatióne certántes in terris, coronári cum ipso mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Postea Commem. Ss. Machabæorum Martyrum:}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+#### Oratio
+
+FRatérna nos, Dómine, Mártyrum tuórum coróna lætíficet: quæ et fídei nostræ præbeat increménta virtútum; et multíplici nos suffrágio consolétur. Per Dóminum.
+
+### Ad Matutinum
+
+**Invit.** Regem Apostolórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+#### Hymnus
+
+Quodcúmque in orbe néxibus revínxeris,
+Erit revínctum, Petre, in arce síderum:
+Et quod resólvit hic potéstas trádita,
+Erit solútum cæli in alto vértice:
+In fine mundi judicábis sæculum.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,
+Honor tibi decúsque: sancta júgiter
+Laudétur omne Trínitas per sæculum.
+Amen.
+
+### In I Nocturno
+
+De Actibus Apostolórum
+
+#### Lectio i
+
+*Cap. 12, 1-11*
+
+MIsit Heródes rex manus ut afflígeret quosdam de Ecclésia. Occídit autem Jacóbum, fratrem Joánnis, gládio. Videns autem quia placéret Judǽis, appósuit ut apprehénderet et Petrum. Erant autem dies azymórum. Quem, cum apprehendísset, misit in cárcerem, tradens quátuor quaterniónibus mílitum custodiéndum, volens post Pascha prodúcere eum pópulo. Et Petrus quidem servabátur in cárcere; orátio autem fiébat sine intermissióne ab Ecclésia ad Deum pro eo.
+
+℟. Simon Petre, ántequam de navi vocárem te, novi te et super plebem meam príncipem te constítui, \* Et claves regni cælórum trádidi tibi. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et.
+
+#### Lectio ii
+
+CUM autem productúrus eum esset Heródes, in ipsa nocte erat Petrus dórmiens inter duos mílites vinctus caténis duábus, et custódes ante

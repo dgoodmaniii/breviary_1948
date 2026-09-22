@@ -27706,4 +27706,28 @@ DEus, qui sanctum Camíllum, ad animárum in extrémo agóne luctántium subsíd
 
 {RUBRIC: Et fit Com. præcedentis:}
 
-**Ant.** Hic vir, despíciens mundum et terréna, triúm-
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio C 1
+
+DEus, qui nos beáti Aléxii Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+{RUBRIC: Deinde Commem. Ss. Symphorosæ et septem Filiorum ejus Martyrum:}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum Symphorósæ et filiórum ejus natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+CAmíllus Bucclánici, Theatínæ diœcésis óppido, ex nóbili Lelliórum família natus est matre sexagenária, cui grávidæ visum est per quiétem, púerulum crucis signo in péctore munítum, et ágmini puerórum idem signum gestántium præeúntem, se peperísse. Adoléscens rem militárem secútus, sæculi vítiis aliquámdiu indúlsit; donec, vigésimum quintum agens ætátis annum, tanto supérnæ grátiæ lúmine divínæque offénsæ dolóre corréptus fuit, ut ubérrimo lacrimárum imbre íllico perfúsus, anteáctæ vitæ sordes indesinénter abstérgere, novúmque indúere hóminem fírmiter decréverit. Quare ipso, quo id cóntigit, Purificatiónis beatíssimæ Vírginis festo die, ad fratres Minóres, quos Capuccínos vocant, cónvolans, ut eórum número adscriberétur summis précibus exorávit. Voti compos semel atque íterum factus est: sed, fœdo úlcere, quo aliquándo laboráverat, in ejus tíbia iteráto recrudescénte, divínæ providéntiæ majóra de eo disponéntis consílio humíliter se subjécit; suíque victor, illíus religiónis bis expetítum et susceptúm habítum bis dimísit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.

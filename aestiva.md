@@ -32812,4 +32812,34 @@ GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Zephyrínum Má
 
 #### Lectio iii
 
-ZEphyrínus Románus, Sevéro imperatóre ad regéndam Ecclésiam assúmptus, sancívit ut, qui ordinándi essent, opportúno témpore et multis præséntibus cléricis et lái-
+ZEphyrínus Románus, Sevéro imperatóre ad regéndam Ecclésiam assúmptus, sancívit ut, qui ordinándi essent, opportúno témpore et multis præséntibus cléricis et láicis, de more sacris initiaréntur; doctíque ac spectátæ vitæ hómines ad id offícii munus deligeréntur. Decrévit prætérea ut rem divínam faciénti epíscopo sacerdótes omnes astárent. Idem institúit ut patriárcha, primas, metropolitánus advérsus epíscopum non ferant senténtiam, nisi apostólica auctoritáte fulti. Vixit in pontificátu annos decem et octo, dies decem et octo. Hábuit ordinatiónes quátuor mense Decémbri, quibus creávit presbýteros trédecim, diáconos septem, epíscopos per divérsa loca trédecim. Antoníno imperatóre, martýrio coronátus est, et sepúltus via Appia prope cœmetérium Callísti, séptimo Kaléndas Septémbris.
+
+Te Deum laudámus.
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+### Die 27 Augusti
+
+#### S. Josephi Calasanctii
+
+{RUBRIC: Confessoris [94] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEus, qui per sanctum Joséphum Confessórem tuum, ad erudiéndam spíritu intelligéntiæ ac pietátis juventútem, novum Ecclésiæ tuæ subsídium providére dignátus es: præsta, quǽsumus; nos, ejus exémplo et intercessióne, ita fácere et docére, ut prǽmia consequámur ætérna. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JOséphus Calasánctius a Matre Dei, Petráltæ in Aragónia, nóbili génere natus, a téneris annis futúræ in púeros caritátis et eórum institutiónis indícia prǽbuit. Nam adhuc párvulus eos, ad se convocátos, in mystériis fídei et sacris précibus erudiébat. Humánis divinísque lítteris egrégie doctus, cum stúdiis theológicis Valéntiæ óperam daret, nóbilis potentísque féminæ illécebris fórtiter superátis, virginitátem, quam Deo vóverat, inoffénsam insígni victória servávit. Sacérdos ex voto factus, a complúribus epíscopis in Castéllæ Novæ, Aragóniæ et Cata-

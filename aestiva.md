@@ -29499,4 +29499,18 @@ DOmínicus, Calarógæ in Hispánia ex nóbili Gusmanórum família natus, Palé
 
 #### Lectio v
 
-HUjus autem ingénium ac virtus máxime enítuit in everténdis hæréticis, qui perniciósis erróribus Tolosátes pervértere conabántur; quo in negótio septem consúmpsit annos. Póstea Romam venit ad Lateranénse concílium cum epíscopo Tolosáno, ut ordo, quem institúerat, ab Innocéntio tértio confirmarétur. Quæ res dum in deliberatióne versátur, Domínicus hortátu Pontíficis ad suos revértitur, ut sibi régulam delígeret. Romam rédiens, ab Honório tértio, qui próximus Innocéntio successérat, confirmatiónem órdinis Prædicatórum ímpetrat. Romæ autem duo instítuit mona-
+HUjus autem ingénium ac virtus máxime enítuit in everténdis hæréticis, qui perniciósis erróribus Tolosátes pervértere conabántur; quo in negótio septem consúmpsit annos. Póstea Romam venit ad Lateranénse concílium cum epíscopo Tolosáno, ut ordo, quem institúerat, ab Innocéntio tértio confirmarétur. Quæ res dum in deliberatióne versátur, Domínicus hortátu Pontíficis ad suos revértitur, ut sibi régulam delígeret. Romam rédiens, ab Honório tértio, qui próximus Innocéntio successérat, confirmatiónem órdinis Prædicatórum ímpetrat. Romæ autem duo instítuit monastéria, álterum virórum, mulíerum álterum. Tres étiam mórtuos ad vitam revocávit, múltaque ália édidit mirácula, quibus ordo Prædicatórum mirífice propagári cœpit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+VErum, cum ejus ópera ubíque terrárum monastéria jam ædificaréntur, innumerabilésque hómines religiósam ac piam vitam institúerent, Bonóniæ anno Christi ducentésimo vigésimo primo supra millésimum in febrem íncidit. Ex qua cum se moritúrum intellígeret, convocátis frátribus et alúmnis suæ disciplínæ, eos ad innocéntiam et integritátem cohortátus est. Postrémo caritátem, humilitátem, paupertátem, tamquam certum patrimónium eis testaménto relíquit; fratribúsque orántibus, in illis verbis, Subveníte, Sancti Dei, occúrrite, Angeli, obdormívit in Dómino, octávo Idus Augústi. Quem póstea Gregórius nonus Póntifex rétulit in Sanctórum númerum.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+DOmínicus, Calarógæ in Hispánia ex nóbili Gusmanórum família natus, et Paléntiæ liberálibus disciplínis et theológía erudítus, prius Oxoménsis ecclésiæ canónicus factus, dein órdinis Prædicatórum auctor fuit. Ejus ingénium et virtus máxime enituérunt in converténdis hæréticis, qui Tolosátes pervértere conabántur. Romam véniens, ab Innocéntio tértio Pontífice máximo sui órdinis approbatiónem confirmationémque pétiit, quam ab ejus successóre Honório tértio impetrávit. Cum vero ejus ópera innumerábiles hómines religiósam ac piam vitam institúerent, Bonóniæ, anno ducentésimo vigésimo primo supra millésimum, alúmnis caritátem, humilitátem et paupertátem tamquam cer-

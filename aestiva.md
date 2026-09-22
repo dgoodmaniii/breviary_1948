@@ -23133,3 +23133,50 @@ Flammásque tollit cáritas.
 
 Hinc morte fessam próxima
 Non usitáto te modo
+Solátur et nutrit Deus,
+Dapem supérnam pórrigens.
+
+\* Ætérne rerum Cónditor,
+Ætérne Fili par Patri,
+Et par utríque Spíritus,
+Soli tibi sit glória. Amen.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+##### In II Vesperis
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+###### Oratio
+
+DEus, qui beátam Juliánam Vírginem tuam extrémo morbo laborántem pretióso Fílii tui córpore mirabíliter recreáre dignátus es: concéde, quǽsumus; ut, ejus intercedéntibus méritis, nos quoque eódem in mortis agóne refécti ac roboráti, ad cæléstem pátriam perducámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Com. præcedentis :}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Ephrǽm, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui Ecclésiam, ut supra. 628}
+
+{RUBRIC: Deinde Commem. Ss. Gervasii et Protasii Mm. :}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+###### Oratio
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum Gervásii et Protásii solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+##### Ad Matutinum
+
+**Hymnus** Cæléstis Agni núptias, ut supra. 628
+
+##### In II Nocturno
+
+#### Lectio iv
+
+JUliána, ex nóbili Falconéria família, Claríssimo patre, qui templum Deíparæ ab Angelo salutátæ ære suo magnífice a fundaméntis Floréntiæ, ut nunc vísitur, eréxit, matre Reguardáta, ambóbus jam senescéntibus ac ad id tempus sterílibus, nata est anno millésimo ducentésimo septua-

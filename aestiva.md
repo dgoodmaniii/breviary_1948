@@ -28321,4 +28321,20 @@ Homilía sancti Ambrósii Epíscopi
 
 *Lib. 10 in Lucæ cap. 22 post initium*
 
-REgnum Dei non est de hoc mundo. Non ergo æqualitátis hómini ad Deum, sed si-
+REgnum Dei non est de hoc mundo. Non ergo æqualitátis hómini ad Deum, sed similitúdinis æmulátio est. Solus enim Christus est plena imágo Dei, propter expréssam in se Patérnæ claritúdinis unitátem. Justus autem homo ad imáginem Dei est, si propter imitándam divínæ conversatiónis similitúdinem mundum hunc Dei cognitióne contémnat, voluptatésque terrénas verbi perceptióne despíciat, quo álimur in vitam: unde et corpus Christi édimus, ut vitæ ætérnæ possímus esse partícipes.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+NON enim victus et potus nobis prǽmii loco spondétur et honóris, sed communicátio grátiæ cæléstis et vitæ. Neque duódecim throni tamquam áliqua corporális sunt receptácula sessiónis. Sed, quia sicut secúndum divínam similitúdinem júdicat Christus cognitióne córdium, non interrogatióne factórum, virtútem remúnerans, impietatémque condémnans; ita et Apóstoli in judícium spirituále formántur remuneratióne fídei et exsecratióne perfídiæ, virtúte errórem redarguéntes, sacrílegos ódio persequéntes.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+{RUBRIC: Si hodie fuerit Sabbatum, Lectio ix de Homilia Vigiliæ anticipatæ S. Jacobi, ut sequenti die notatur; secus}
+
+#### Lectio ix
+
+COnvertámur ígitur et caveámus, ne in perditiónem áliqua inter nos de prælatióne possit esse conténtio. Si enim contendébant Apóstoli, non excusatióni obténditur, sed cautióni propónitur. Si Petrus aliquándo convértitur, qui ad primam Dómini secútus est vocem; quis potest dícere, cito se esse convérsum? Cave ergo jactántiam, cave sǽculum. Ille enim confirmáre jubétur fratres suos, qui dixit: Omnia dimísimus, et secúti sumus te.
+
+Te Deum laudámus.

@@ -27142,4 +27142,14 @@ RUfína et Secúnda soróres, vírgines Románæ, rejécto connúbio Armentárii
 
 #### Lectio vi
 
-MAgnum spectáculum, fratres, pósitum est ante óculos fídei nostræ.
+MAgnum spectáculum, fratres, pósitum est ante óculos fídei nostræ. Aure audívimus, corde vídimus optántem matrem ante se finíre istam vitam fílios suos, longe contráriis votis consuetúdini humánæ. Omnes enim hómines fílios suos, ex hac vita migrándo, præcédere volunt, non sequi; illa autem optávit postérior mori. Non enim amittébat fílios, sed præmittébat; nec intuebátur quam vitam finírent, sed quam inchoárent. Desinébant enim vívere, ubi quandóque fúerant moritúri; et incipiébant vívere, sine fine victúri. Parum est fuísse spectatrícem; miráti sumus pótius hortatrícem. Fœcúndior virtútibus quam fœtibus: videns certántes, in quibus ómnibus ipsa certábat, et in ómnibus vincéntibus ipsa vincébat.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum: \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+SEptem Fratres, fílii sanctæ Felicitátis, Romæ in persecutióne Marci Aurélii Antoníni a Públio præfécto frustra tentáti, ut idóla veneraréntur, sexto Idus Júlii, ipsa fortíssima matre eos ad martýrium hortánte, várie necáti sunt. Januárius plumbátis cæsus; Felix et Philíppus fústibus contúsi; Silvánus ex altíssimo loco præceps dejéctus est; Alexánder, Vitális et Martiális cápite plectúntur. Mater dénique, quarto post mense, eámdem martýrii palmam consecúta est. Rufína et Secúnda soróres, vírgines Románæ, rejécto connúbio Armentárii et Veríni, quod virginitátem Christo vovíssent, Valeriáno et Galliéno imperatóribus, comprehénsæ, Júnii præfécti blandítiis et minis a propósito mínime abdúctæ, vário tormentórum génere afflíctæ sunt. Cum vero, ab Angelis custodítæ, in sancto propósito perseverárent, via Aurélia, milliário décimo, cápite plectúntur. Quarum córpora, a Plautílla matróna in ejus prǽdio extra Urbem sepúlta, póstea in basílica Con-

@@ -15140,3 +15140,43 @@ TUnc ordinávit Judas viros ut pugnárent advérsus eos, qui erant in arce, done
 ET accepérunt lápides íntegros secúndum legem et ædificavérunt altáre novum secúndum illud quod fuit prius et ædificavérunt sancta et quæ intra domum erant intrínsecus et ædem et átria sanctificavérunt et fecérunt vasa sancta nova et intulérunt candelábrum et altáre incensórum et mensam in templum et incénsum posuérunt super altáre et accendérunt lucérnas, quæ super candelábrum erant et lucébant in templo. Et posuérunt super mensam panes et appendérunt vela et consummavérunt ómnia ópera quæ fécerant.
 
 ℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Augustíni Epíscopi de Civitáte Dei}
+
+##### Lectio iv
+*Lib. 18, c. 45*
+
+POsteáquam gens Judǽa cœpit non habére prophétas, proculdúbio detérior facta est, eo scílicet témpore, quo se sperábat instauráto templo post captivitátem, quæ fuit in Babylónia, futúram esse meliórem. Sic quippe intelligébat pópulus ille carnális, quod prænuntiátum est per Aggǽum prophétam dicéntem : Magna erit glória domus istíus novíssimæ, plus quam primæ. Quod de novo testaménto dictum esse, paulo supérius demonstrávit, ubi ait apérte Christum promíttens : Et movébo omnes gentes, et véniet Desiderátus cunctis géntibus.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum, et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.
+
+##### Lectio v
+
+TAlibus enim eléctis géntium, domus Dei ædificátur per Testaméntum novum lapídibus vivis, longe gloriósior, quam templum illud fuit, quod a rege Salomóne constrúctum est, et post captivitátem instaurátum. Própter hoc ergo nec prophétas ex illo témpore hábuit illa gens; sed multis cládibus afflícta est ab alienígenis régibus, ipsísque Románis, ne hanc Aggǽi prophetíam in illa instauratióne templi opinarétur implétam. Non multo enim post, adveniénte Alexándro, subjugáta est; quando, etsi nulla facta est vastátio, quóniam non sunt ausi ei resístere, et ídeo placátum facíllime súbditi recepérunt; non erat tamen glória tanta domus illíus, quanta fuit in suórum regum líbera potestáte.
+
+℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+##### Lectio vi
+
+DEínde Ptolemǽus Lagi fílius, post Alexándri mortem captívos inde in Ægýptum tránstulit, quos ejus succéssor Ptolemǽus Philadélphus benevolentíssime inde dimísit : per quem factum est, ut Septuagínta intérpretum Scriptúras haberémus. Deínde contríti sunt béllis, quæ in Machabæórum libris explicántur. Post hæc capti a rege Alexándriæ Prolemǽo qui est appellátus Epíphanes, inde ab Antíocho rege Sýriæ multis et gravíssimis malis ad idóla colénda compúlsi : templúmque ipsum replétum sacrílegis superstitiónibus géntium, quod tamen dux eórum strenuíssimus Judas, qui étiam Machabǽus dictus est, Antíochi dúcibus pulsis, ab omni illa idololatríæ contaminatióne mundávit.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam II Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 4, 52-61*
+
+ANte matutínum surrexérunt quinta et vigésima die mensis noni (hic est mensis Casleu) centésimi quadragésimi octávi anni et obtulérunt sacrifícium secúndum legem super altáre holocaustórum novum, quod fecérunt. Secúndum tempus et secúndum diem, in qua contaminavérunt illud gentes, in ipsa renovátum est in cánticis et cítharis et cínyris et cýmbalis. Et cécidit omnis pópulus in fáciem, et adoravérunt et benedixérunt in cælum eum qui prosperávit eis.
+
+℟. Dixit Judas Simóni fratri suo : Elige tibi viros et vade, líbera fratres tuos in Galilǽam; ego autem et Jónathas frater tuus íbimus in Galaadítim : \* Sicut fúerit volúntas in cælo, sic fiat. ℣. Accingímini, fílii poténtes, et estóte paráti : quóniam mélius est nobis mori in bello, quam vidére mala gentis nostræ et sanctórum. — Sicut.

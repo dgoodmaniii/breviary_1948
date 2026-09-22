@@ -23801,4 +23801,16 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 
 #### Lectio iv
 
-POst illum sacrosánctum Dómini natális diem, nullíus hóminum nativitátem légi-
+POst illum sacrosánctum Dómini natális diem, nullíus hóminum nativitátem légimus celebrári, nisi solíus beáti Joánnis Baptístæ. In áliis Sanctis et eléctis Dei nóvimus illum diem coli, quo illos, post consummatiónem labórum et devíctum triumphatúmque mundum, in perpétuas æternitátes præsens hæc vita partúriit. In áliis consummáta últimi diéi mérita celebrántur: in hoc étiam prima dies, et ipsa étiam hóminis inítia consecrántur; pro hac absque dúbio causa, quia per hunc Dóminus advéntum suum, ne súbito hómines insperátum non agnóscerent, vóluit esse testátum. Joánnes autem figúra fuit véteris Testaménti, et in se formam prætulit legis? et ídeo Joánnes prænuntiávit Salvatórem, sicut lex grátiam præcucúrrit.
+
+℟. Descéndit Angelus Dómini ad Zacharíam dicens: Accipe púerum in senectúte tua, \* Et habébit nomen Joánnes Baptísta. ℣. Iste puer magnus coram Dómino: nam et manus ejus cum ipso est. — Et.
+
+#### Lectio v
+
+QUod autem nondum natus de secréto matérni úteri prophetávit, et expers lucis jam testis est veritátis; hoc est intelligéndum, quod latens sub velámine et carne líttera, et Redemptórem mundo spíritu prǽdicávit, et nobis Dóminum nostrum de quodam legis útero proclamávit. Ergo quia Judǽi erravérunt a ventre, id est, a lege quæ a Christo grávida erat, erravérunt a ventre, locúti sunt falsa; ídeo hic venit in testimónium, ut testimónium perhibéret de lúmine.
+
+℟. Hic est præcúrsor diléctus, et lucérna lucens ante Dóminum: \* Ipse est enim Joánnes, qui viam Dómino præparávit in erémo; sed et Agnum Dei demonstrávit, et illuminávit mentes hóminum. ℣. Ipse præíbit ante illum in spíritu et virtúte Elíæ. — Ipse est.
+
+#### Lectio vi
+
+QUod autem Joánnes in cárcere constitútus ad Christum discípulos suos órdinat; lex ad Evangélium transmíttit. Quæ lex juxta typum Joánnis, quasi ignorántiæ clausa cárcere, in obscúro et in occúlto jacébat, et Judáica cæcitáte sensus intra lítteram tenebátur inclúsus. De hoc beátus Evangelísta prolóquitur: Ille erat lucérna ardens, id est, Spíritus Sancti igne succénsus, ut mundo ignorántiæ nocte possésso lumen salútis

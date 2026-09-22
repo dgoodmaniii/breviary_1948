@@ -21209,3 +21209,51 @@ NEmo potest duóbus dóminis servíre. Ad hanc ipsam intentiónem referéndum es
 SEd qui servit mammónæ, illi útique servit, qui rebus istis terrénis mérito suæ perversitátis præpósitus, magistrátus hujus sǽculi a Dómino dícitur. Aut enim unum ódio habébit homo, et álterum díliget, id est, Deum; aut álterum patiétur, et álterum contémnet. Patiétur enim durum et perniciósum dóminum, quisquis servit mammónæ; sua enim cupiditáte implicátus, súbditur diábolo, et non eum díligit. Quis enim est, qui díligat diábolum? sed tamen pátitur.
 
 ℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+IDeo, inquit, dico vobis, non habére sollicitúdinem ánimæ vestræ quid edátis, neque córpori vestro quid induátis; ne forte, quamvis jam supérflua non quærántur, propter ipsa necessária cor duplicétur, et ad ipsa conquiréndam, nostra detorqueátur inténtio, cum áliquid quasi misericórditer operámur: id est, ut, cum consúlere álicui vidéri vólumus, nostrum emoluméntum ibi pótius quam illíus utilitátem attendámus; et ídeo nobis non videámur peccáre, quia non supérflua, sed necessária sunt, quæ cónsequi vólumus.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Nolíte sollíciti esse \* dicéntes: Quid manducábimus aut quid bibémus? scit enim Pater vester quid vobis necésse sit, allelúja.
+
+### Oratio
+
+CUstódi, Dómine, quǽsumus, Ecclésiam tuam propitiatióne perpétua: et, quia sine te lábitur humána mortálitas; tuis semper auxíliis et abstrahátur a nóxiis, et ad salutária dirigátur. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Quǽrite primum \* regnum Dei et justítiam ejus, et hæc ómnia adjiciéntur vobis, allelúja.
+
+---
+
+## Dominica XV post Pentecosten
+
+*Semiduplex*
+
+### Oratio
+
+ECclésiam tuam, Dómine, miserátio contináta mundet et múniat: et quia sine te non potest salva consístere; tuo semper múnere gubernétur. Per Dóminum.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+##### Lectio vii
+
+*Cap. 7, 11-16*
+
+IN illo témpore: Ibat Jesus in civitátem, quæ vocátur Naïm: et ibant cum eo discípuli ejus et turba copiósa. Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Sermo 44 de verbis Domini, circa initium*
+
+DE júvene illo resuscitáto gavísa est mater vídua; de homínibus in

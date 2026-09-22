@@ -14852,3 +14852,29 @@ DIxítque ei rex : Festína et, sumpta stola et equo, fac, ut locútus es, Mardo
 INtrávit ítaque rex et Aman, ut bíberent cum regína. Dixítque ei rex étiam secúnda die, postquam vino incalúerat : Quæ est petítio tua, Esther, ut detur tibi, et quid vis fíeri? Etiam si dimídiam partem regni petíeris, impetrábis. Ad quem illa respóndit : Si invéni grátiam in óculis tuis, o rex, et si tibi placet, dona mihi ánimam meam, pro qua rogo, et pópulum meum, pro quo óbsecro. Tráditi enim sumus ego et pópulus meus, ut conterámur, jugulémur et pereámus. Atque, útinam in servos et fámulas venderémur : esset tolerábile malum et gemens tacérem; nunc autem hostis noster est cujus crudélitas redúndat in regem.
 
 ℟. Nos álium Deum nescímus præter Dóminum, in quo sperámus : \* Qui non déspicit nos, nec ámovet salútem suam a génere nostro. ℣. Indulgéntiam ipsíus fusis lácrimis postulémus, et humiliémus illi ánimas nostras. — Qui.
+
+##### Lectio ii
+
+RESpondénsque rex Assuérus ait : Quis est iste et cujus poténtiæ, ut hæc áudeat fácere? Dixítque Esther : Hostis et inimícus noster péssimus iste est Aman. Quod ille áudiens íllico obstúpuit vultum regis ac regínæ ferre non sústinens. Rex autem irátus surréxit et de loco convívii intrávit in hortum arbóribus cónsitum. Aman quoque surréxit ut rogáret Esther regínam pro ánima sua; intelléxit enim a rege sibi parátum malum.
+
+℟. Confórta me, Rex, Sanctórum principátum tenens : \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+{RUBRIC: In Octávis simplícibus et in Offício Sanctæ Maríæ in Sábbato : Glória Patri. Et.}
+
+##### Lectio iii
+
+QUI cum revérsus esset de horto nemóribus cónsito et intrásset convívii locum, réperit Aman super léctulum corruísse in quo jacébat Esther et ait : Etiam regínam vult opprímere, me præsénte, in domo mea. Necdum verbum de ore regis exíerat, et statim operuérunt fáciem ejus. Dixítque Harbóna unus de eunúchis qui stabant in ministério regis : En lignum, quod paráverat Mardochǽo qui locútus est pro rege, stat in domo Aman habens altitúdinis quinquagínta cúbitos. Cui dixit rex : Appéndite eum in eo. Suspénsus est ítaque Aman in patíbulo, quod paráverat Mardochǽo, et regis ira quiévit.
+
+℟. Spem in álium numquam hábui, prætérquam in te, Deus Israël : \* Qui irásceris, et propítius eris : et ómnia peccáta hóminum in tribulatióne dimíttis. ℣. Dómine Deus, Creátor cæli et terræ, réspice ad humilitátem nostram. — Qui. Glória Patri. Qui.
+
+---
+
+## Sabbato ante Dominicam I Octobris
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Adapériat Dóminus \* cor vestrum in lege sua et in præcéptis suis et fáciat pacem Dóminus Deus noster.
+
+{RUBRIC: Oratio Dominicæ occurréntis.}

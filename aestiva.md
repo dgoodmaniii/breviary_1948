@@ -32599,3 +32599,51 @@ EFflóruit in eo júgiter singuláris erga páuperes misericórdia, sed præcíp
 ℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
 
 {RUBRIC: In III Nocturno Homilía in Ev. Nolíte timére, de Comm. Conf. non Pont. 2 loco. [105]}
+
+{RUBRIC: IX Lectio pro Vigília S. Bartholomǽi Ap. de Homilía in Ev. Hoc est præcéptum, ut pro Vigíliis Apostolórum in Communi. [1]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui per beátum Philíppum Confessórem tuum, exímium nobis humilitátis exémplum tribuísti: da fámulis tuis próspera mundi ex ejus imitatióne despícere, et cæléstia semper inquírere. Per Dóminum.
+
+{RUBRIC: Et fit Com. Vigíliæ per Ant. et Versum de Fería currénti, ut in Psaltério.}
+
+###### Oratio
+
+DA, quǽsumus, omnípotens Deus: ut beáti Bartholomǽi Apóstoli tui, quam prævenímus, veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 24 Augusti
+
+# Sancti Bartholomæi Apostoli
+
+{RUBRIC: DUPLEX II CLASSIS}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], præter ea quæ hic habéntur própria.}
+
+#### Oratio
+
+OMnípotens sempitérne Deus, qui hujus diéi venerándam sanctámque lætítiam in beáti Apóstoli tui Bartholomǽi festivitáte tribuísti: da Ecclésiæ tuæ, quǽsumus; et amáre quod crédidit, et prædicáre quod dócuit. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedéntis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui per beátum, ut supra.}
+
+### In II Nocturno
+
+#### Lectio iv
+
+BArtholomǽus Apóstolus, Galilǽus, cum in Indiam citeriórem, quæ ei in orbis

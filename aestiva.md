@@ -21988,4 +21988,34 @@ CÆléstis doctrínæ prædicatióne plúrimis firmáta miráculis, ac vitæ ex�
 
 DIspósitis ejus ecclésiæ rebus, sýnodum hábuit Augustínus cum epíscopis atque doctóribus véterum Britónum, qui in Paschæ celebratióne aliísque rítibus ab Ecclésia Romána jamdúdum dissidébant. Sed, cum eos neque apostólicæ Sedis auctoritáte neque miráculis movére posset, ut dissídio cessárent, prophético spíritu eis excídium prænuntiávit. Dénique máximis pro Christo exantlátis labóribus, miráculis clarus, cum Mellítum Londinénsi ecclésiæ præfecísset, Justum Roffénsi, suæ Lauréntium, in cælum migrávit séptimo Kaléndas Júnias, Ethelbérto regnánte, ac sepúltus est in monastério sancti Petri, quod exínde Cantuariénsium antístitum et áliquot regum conditórium fuit. Ejus cultum fervénti stúdio prosecútæ sunt Anglórum gentes; ac Leo décimus tértius Póntifex máximus ejus Offícium et Missam ad univérsam exténdit Ecclésiam.
 
-℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populó-
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse intercédat pro peccátis ómnium populórum. Glória Patri. Ipse.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+AUgustínus, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum sóciis mónachis fere quadragínta in Angliam missus est, anno quingentésimo nonagésimo séptimo. A rege Ethelbérto Cantuáriam, ejus regni metrópolim, invitátus cum sóciis, prope eam oratórium exstrúxit. Cæléstis doctrínæ prædicatióne plerósque insulános ac regem ipsum ad christiánam fidem perdúxit, summa cum lætítia Berthæ régiæ uxóris, quæ Christiána erat. Jussu Gregórii ordinátus epíscopus, Sedem Cantuariénsem instítuit, et ab eódem Pontífice usum pállii cum facultáte hierarchíæ in Anglia instituéndæ obtínuit. Máximis demum pro Christo exantlátis labóribus, cum Mellítum Londinénsi ecclésiæ præfecísset, Justum Roffénsi, suæ Lauréntium, in cælum migrávit séptimo Kaléndas Júnias, et sepúltus est in monastério sancti Petri, quod exínde Cantuariénsium antístitum et áliquot regum conditórium fuit.
+
+Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Designávit Dóminus, de Communi Ev. cum ℟℟. de Communi Conf. Pont. ibídem notátis. [27]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DEus, qui Anglórum gentes, prædicatióne et miráculis beáti Augustíni Confessóris tui atque Pontíficis, veræ fídei luce illustráre dignátus es: concéde; ut, ipso interveniénte, errántium corda ad veritátis tuæ rédeant unitátem, et nos in tua simus voluntáte concórdes. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+{RUBRIC: Et fit Commemoratio sequéntis.}

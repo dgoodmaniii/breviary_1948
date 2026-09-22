@@ -25399,4 +25399,44 @@ EGO enim sum mínimus Apostolórum, qui non sum dignus vocári Apóstolus, quón
 
 ## Infra Octavam Ss. Petri et Pauli App.
 
-{RUBRIC: Antiphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua de Communi præter Lectiónes, quæ in I Nocturno
+{RUBRIC: Antiphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua de Communi præter Lectiónes, quæ in I Nocturno dicúntur de Scriptúra occurrénti cum suis Responsóriis de Témpore, in II et III ut suo loco assignántur, et Versus ad Laudes et Vésperas necnon Antiphónas ad Benedíctus et Magníficat, quæ étiam pro Octávæ Commemoratióne quotídie adhibéntur, ut sequitur:}
+
+##### In utrisque Vesperis
+
+℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+**Ad Magnif. Ant.** Petrus Apóstolus \* et Paulus Doctor géntium, ipsi nos docuérunt legem tuam, Dómine.
+
+###### Oratio
+
+DEus, qui hodiérnam diem Apostolórum tuórum Petri et Pauli martýrio consecrásti: da Ecclésiæ tuæ, eórum in ómnibus sequi præcéptum; per quos religiónis sumpsit exórdium. Per Dóminum.
+
+##### Ad Laudes
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Bened. Ant.** Gloriósi Príncipes terræ, \* quómodo in vita sua dilexérunt se, ita et in morte non sunt separáti.
+
+---
+
+## Festa Julii
+
+## Die 1 Julii
+
+# Pretiosissimi Sanguinis D. N. J. C.
+
+{RUBRIC: Duplex I Classis}
+
+### In I Vesperis
+
+**Ant. 1** Quis est iste \* qui venit de Edom tinctis véstibus de Bosra? iste formósus in stola sua.
+
+{RUBRIC: Psalmi de Dominica 57, sed loco último Ps. 116 Laudáte Dóminum, omnes gentes. [74]}
+
+**2** Ego \* qui loquor justítiam et propugnátor sum ad salvándum.
+
+**3** Vestítus erat \* veste aspérsa sánguine, et vocátur nomen ejus Verbum Dei.
+
+**4** Quare ergo \* rubrum est induméntum tuum, et vestiménta tua sicut calcántium in torculári?
+
+**5** Tórcular \* calcávi solus, et de géntibus non est vir mecum.

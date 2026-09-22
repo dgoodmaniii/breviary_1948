@@ -29013,4 +29013,32 @@ QUO ex témpore honos, qui eo die profánis gentílium celebritátibus tríbui s
 
 #### Lectio ix
 
-THeodósio juníore imperánte, Eudócia ejus uxor Jerosólymæ insígne præ céteris donum accépit férreæ caténæ, quam illam esse affirmábant, qua Petrus Apóstolus ab Heróde vinctus fúerat. Eudócia caténam pie veneráta, Romam ad fíliam Eudóxiam
+THeodósio juníore imperánte, Eudócia ejus uxor Jerosólymæ insígne præ céteris donum accépit férreæ caténæ, quam illam esse affirmábant, qua Petrus Apóstolus ab Heróde vinctus fúerat. Eudócia caténam pie veneráta, Romam ad fíliam Eudóxiam misit, ubi a summo Pontífice compósita cum ea, qua Neróne imperatóre idem beátus Apóstolus constríctus fúerat, ambæ inter se sic connéxæ sunt, ut non duæ, sed una caténa ab uno artífice confécta esse viderétur. Hinc, cum et ægrotórum salus et obsessórum liberátio, sacro horum vinculórum contáctu, sæpe obtinerétur, tantus honor sacris illis vínculis habéri cœpit, ut proptérea hoc nómine sancti Petri ad víncula ecclésia, título Eudóxiæ, dedicáta sit in Exquíliis, ejúsque memóriæ dies festus, profánis gentílium solemnitátibus abólitis, institútus fúerit Kaléndis Augústi.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthæum
+
+#### Lectio vii
+
+*Cap. 16, 13-19*
+
+IN illo témpore: Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens: Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Sermo 29 de Sanctis, in medio*
+
+SOlus Petrus inter Apóstolos méruit audíre: Amen dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam; dignus certe, qui ædificándis in domo Dei pópulis lapis esset ad fundaméntum, colúmna ad sustentáculum, clavis ad regnum. De hoc ait sermo divínus: Et ponébant, inquit, infírmos suos, ut umbra saltem transeúntis Petri obumbráret eos. Si tunc opem ferre póterat umbra córporis, quanto magis nunc plenitúdo virtútis? si tunc supplicántibus próderat aura quædam pertranseúntis, quanto magis grátia nunc permanéntis? Mérito per omnes Christi ecclésias auro pretiósius habétur ferrum illud pœnálium vinculórum.
+
+℟. Ego pro te rogávi, Petre, ut non defíciat fides tua: \* Et tu aliquándo convérsus confírma fratres tuos. ℣. Caro et sanguis non revelávit tibi, sed Pater meus, qui est in cælis. — Et.
+
+{RUBRIC: Si ix Lectio alicujus Officii commemorati dicenda non sit, tunc ex viii Lect. fiunt duæ quarum prior desinit ad signum ¶.}
+
+#### Lectio viii
+
+SI tam medicábilis fuit obumbrátio visitántis, quanto magis caténa vinciéntis? Si inánis quædam spécies vácuæ imáginis

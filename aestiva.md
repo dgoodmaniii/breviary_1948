@@ -23301,4 +23301,18 @@ LOísius, Ferdinándi Gonzágæ Castelliónis Stiverórum marchiónis fílius, f
 
 ADjécit sénsuum custódiæ, córporis cruciátum. Tria síngulis hebdómadis jejúnia, éaque plerúmque módico pane et aqua tolerábat; quamquam perpétuum fuísse per id tempus ipsíus jejúnium vidéri potest, cum ejus prándia ferme vix únciam ǽquárent. Sæpe étiam ter in die se fúnibus aut caténis cruentábat; flagélla quandóque canum loris, cilícia equórum calcáribus supplévit. Mollem léctulum clam injéctis ásserum fragméntis asperábat, eo étiam ut cítius ad orándum excitarétur; magnam quippe noctis partem, summa étiam híeme, solo tectus indúsio, pósitis humi génibus, vel præ languóre jacens ac pronus, in cæléstium contemplatióne traducébat. Intérdiu quoque tres, quátuor, quinque horas in ea perstábat immótus, donec unam saltem ánimo núsquam distrácto percurrísset. Cujus constántiæ prǽmium fuit stabílitas mentis inter orándum álio non vagántis, immo perpétua velut éxtasi in Deo defíxæ. Ei demum ut únice adhæréret, victo post triennále acérrimum certámen patre, et avíti principátus jure in fratrem transláto, societáti Jesu, ad quam cælésti voce Matríti fúerat accítus, Romæ se adjúnxit.
 
-℟. Amávit eum Dóminus, et ornávit eum: sto-
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+IN tirocínio ipso virtútum ómnium magíster habéri cœpit. Exactíssima in eo erat legum étiam minimárum custódia, mundi contémptus singuláris, implacábile ódium sui; Dei vero amor tam ardens, ut corpus étiam sensim absúmeret. Jussus proptérea mentem a divínis rebus tantísper avértere, occurréntem sibi ubíque Deum írrito conátu fugiébat. Mira étiam próximos caritáte ampléxus, in públicis, quibus alácriter ministrábat, nosocomíis, contagiósam luem traxit. Qua lente consúmptus, die, quem prædíxerat, undécimo Kaléndas Júlii, ætátis anno quarto et vigésimo jam inchoáto, cum ántea flagéllis cædi atque humi stratus mori postulásset, migrávit in cælum. Ibi eum sancta María Magdaléna de Pazzis tanta frui glória, Deo monstránte, vidit, quantam vix esse in cælo credidísset; ipsúmque sanctimónia insígnem et caritáte Mártyrem incógnitum fuísse prædicávit. Multis étiam magnísque cláruit miráculis. Quibus rite probátis, Benedíctus décimus tértius Sanctórum fastis angélicum júvenem adscrípsit, atque innocéntiæ et castitátis exémplar simul et patrónum studiósæ præsértim juventúti dedit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+ALoísius, Ferdinándi Gonzágæ Castelliónis Stiverórum marchiónis fílius, festináto propter vitæ perículum baptísmo, prius cælo quam terris nasci visus, primam illam grátiam tam constánter retínuit, ut in ea confirmátus crederétur. Novénnis Floréntiæ ante aram beátæ Vírginis, quam paréntis loco semper hábuit, perpétuam virginitátem vovit; eámque, insígni Dei benefício, nulla mentis aut córporis pugna tentátam servávit, homo proptérea sine carne, aut án-

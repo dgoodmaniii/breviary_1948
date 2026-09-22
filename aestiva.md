@@ -29894,3 +29894,25 @@ APerit Dóminus coram eléctis téstibus glóriam suam, et commúnem illam cum c
 #### Lectio v
 
 COnfirmándis vero Apóstolis et ad omnem sciéntiam provehéndis, ália quoque in illo miráculo accéssit instrúctio. Móyses enim et Elías, lex scílicet et prophétæ, apparuérunt cum Dómino loquéntes; ut veríssime in illa quinque virórum præséntia complerétur quod dictum est: In duóbus vel tribus téstibus stat omne verbum. Quid hoc stabílius, quid fírmius verbo, in cujus prædicatióne véteris et novi Testaménti cóncinit tuba, et cum evangélica doctrína, antiquárum protestatiónum instruménta concúrrunt?
+
+Astipulántur enim sibi ínvicem utriúsque Fœderis páginæ; et, quem sub velámine mysteriórum præcedéntia signa promíserant, maniféstum atque perspícuum præséntis glóriæ splendor osténdit.
+
+℟. Præcéptor, bonum est nos hic esse: \* Faciámus hic tria tabernácula; tibi unum, Móysi unum et Elíæ unum. ℣. Non enim sciébat quid díceret. — Faciámus.
+
+#### Lectio vi
+
+HIS ergo sacramentórum revelatiónibus Petrus Apóstolus incitátus, mundána spernens et terréna fastídiens, in æternórum desidérium quodam mentis rapiebátur excéssu; et, gáudio totíus visiónis implétus, ibi cum Jesu optábat habitáre, ubi manifésta ejus glória lætabátur. Unde et ait: Dómine, bonum est nos hic esse: si vis, faciámus hic tria tabernácula; tibi unum, Móysi unum et Elíæ unum. Sed huic suggestióni Dóminus non respóndit, significans, non quidem ímprobum, sed inordinátum esse quod cúperet; cum salvári mundus, nisi Christi morte, non posset, et exémplo Dómini in hoc vocarétur credéntium fides, ut licet non oportéret de beatitúdinis promissiónibus dubitári, intelligerémus tamen inter tentatiónes hujus vitæ prius nobis tolerántiam postulándam esse quam glóriam.
+
+℟. Si ministrátio mortis, lítteris deformáta in lapídibus, fuit in glória, ita ut non possent inténdere fílii Israël in fáciem Móysi propter glóriam vultus ejus, quæ evacuátur: \* Multo magis ministrátio spíritus, quæ manet, erit in glória. ℣. Amplióris enim glóriæ Christus præ Móyse dignus est hábitus, quanto ampliórem honórem habet domo, qui fabricávit eam. — Multo. Glória Patri. Multo.
+
+### In III Nocturno
+
+**Ant.** Thabor et Hermon \* in nómine tuo exsultábunt: tuum bráchium cum poténtia.
+
+#### Psalmus 88
+
+MIsericórdias Dómini \* in ætérnum cantábo.
+
+In generatiónem et generatiónem \* annuntiábo veritátem tuam in ore meo.
+
+Quóniam dixísti: In ætérnum misericórdia ædificábitur in cælis: \* præparábitur véritas tua in eis.

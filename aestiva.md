@@ -23213,4 +23213,50 @@ Te Deum laudámus.
 
 #### Lectio ix
 
-GErvásius et Protásius, Vitális et Valériæ fílii, quorum pater Ravénnæ, mater Mediolání pro Christi Dómini fide martýrium subiérunt, distribúto paupéribus património, domésticos servos libertáte donárunt. Quo facto gentílium sacerdótes immáne in illos concéptum ódium habébant. Quare, cum Astásius comes in bellum proficísci vellet, hanc occasiónem perdéndi pios fratres se nactos esse putavérunt. Itaque Astásio persuádent se a diis admónitos esse, nullo modo eum in bello victórem futúrum, nisi Gervásio et Protásio coáctis Christum negáre, eósdem ad sacra diis faciénda compélleret. Quod cum illi detestaréntur, Astásius imperávit Gervásium támdiu cædi, dum inter vérbera exspiráret; Protásium fústibus contúsum securi pércuti jubet. Quorum córpora Philíppus Christi servus clam sústulit et in suis ǽdibus sepelívit: quæ póstea sanctus Ambrósius, Dei mónitu invénta, in loco sacro
+GErvásius et Protásius, Vitális et Valériæ fílii, quorum pater Ravénnæ, mater Mediolání pro Christi Dómini fide martýrium subiérunt, distribúto paupéribus património, domésticos servos libertáte donárunt. Quo facto gentílium sacerdótes immáne in illos concéptum ódium habébant. Quare, cum Astásius comes in bellum proficísci vellet, hanc occasiónem perdéndi pios fratres se nactos esse putavérunt. Itaque Astásio persuádent se a diis admónitos esse, nullo modo eum in bello victórem futúrum, nisi Gervásio et Protásio coáctis Christum negáre, eósdem ad sacra diis faciénda compélleret. Quod cum illi detestaréntur, Astásius imperávit Gervásium támdiu cædi, dum inter vérbera exspiráret; Protásium fústibus contúsum securi pércuti jubet. Quorum córpora Philíppus Christi servus clam sústulit et in suis ǽdibus sepelívit: quæ póstea sanctus Ambrósius, Dei mónitu invénta, in loco sacro et insígni collocánda curávit. Passi sunt Mediolání décimo tértio Kaléndas Júlii.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+###### Oratio
+
+DEus, qui beátam Juliánam Vírginem tuam extrémo morbo laborántem pretióso Fílii tui córpore mirabíliter recreáre dignátus es: concéde, quǽsumus, ut ejus intercedéntibus méritis, nos quoque eódem in mortis agóne refécti ac roboráti, ad cæléstem pátriam perducámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commem. Ss. Gervasii et Protasii Mm.}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum Gervásii et Protásii solemnitáte lætíficas: concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: In II Vesperis Hymnus Cæléstis Agni, ut in I Vesp. 628}
+
+{RUBRIC: Et fit Commemoratio sequentis.}
+
+---
+
+### Die 20 Junii
+
+#### S. Silverii
+
+{RUBRIC: Papæ et Martyris [29] Simplex}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Silvérium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+#### Lectio iii
+
+SIlvérius, Campánus, post Agapítum próxime Póntifex creátus est: cujus doctrína et sánctitas illúxit in insectándis hæréticis, et constántis ánimi magnitúdo perspécta est in tuéndo judício Agapíti. Nam Anthimum, quem, quia Eutychiánam hǽre-

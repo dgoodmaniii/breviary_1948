@@ -22910,4 +22910,22 @@ Léctio sancti Evangélii secúndum Lucam
 
 *Cap. 14, 26-35*
 
-IN illo témpore: Dixit Jesus turbis: Si quis venit ad me, et non odit
+IN illo témpore: Dixit Jesus turbis: Si quis venit ad me, et non odit patrem suum, et matrem, et uxórem, et fílios, et fratres, et soróres, adhuc autem et ánimam suam, non potest meus esse discípulus. Et réliqua.
+
+Homilía sancti Basilii Epíscopi
+
+*Liber Regularum fusius explicat, ad interrog. 8*
+
+PErfécta quidem renuntiátio in eo consístit, ut id assequámur, ne ad ipsíus étiam vitæ affectiónem propénsi simus, et respónsum mortis habeámus, ut non simus fidéntes in nobis ipsis. Hujúsmodi autem renuntiátio inítium sumit ab alienatióne rerum externárum, véluti a possessiónibus, ab ináni glória, a vivéndi consuetúdine, a rerum inutílium amóre; quemádmodum étiam suo exémplo nobis ostendérunt sancti Dómini nostri discípuli, Jacóbus quidem et Joánnes, relícto patre Zebedǽo et ipsa quoque navícula, de qua omnis illórum victus rátio pendébat; Matthǽus vero, cum ab ipso telónio surréxit ac Dóminum secútus est.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio viii
+
+SEd quid opus est nostris ratiónibus aut sanctórum virórum exémplis id quod dícimus confirmáre, cum ipsa Dómini verba in médium líceat afférre, iísque ipsis religiósam ac Deum timéntem ánimam commovére, quibus ille perspícue et sine controvérsia protestátur, dicens: Sic ígitur quicúmque ex vobis non renuntiáverit ómnibus quæ póssidet, non potest meus esse discípulus? Et álio in loco, cum prius dixísset: Si vis perféctus esse, vade, et vende ómnia quæ habes, et da paupéribus; póstea subjúnxit: Veni, séquere me.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+ESt ígitur renuntiátio, quemádmodum docúimus, vinculórum terrénæ hujus ac temporális vitæ solútio, atque ab humánis negótiis liberátio, per quam ad ineúndam viam, qua ad Deum pervenítur,

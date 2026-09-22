@@ -32768,4 +32768,48 @@ BOnus ordo, ut vocatúrus gentes, et Judǽos jussúrus intérfici, qui noluérun
 
 DEnique ex una decem mnas álius fecit, álius quinque. Fortásse iste morália habet, quia quinque sunt córporis sensus; ille duplícia, id est, mýstica legis et morália probitátis. Unde et Matthǽus quinque talénta et duo talénta pósuit: in quinque taléntis, ut sint morália; in duóbus utrúmque, mýsticum atque morále. Ita quod número inférius, re ubérius.
 
-℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris:
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+ET hic póssumus decem mnas decem verba intellígere, id est, legis doctrínam; quinque autem mnas, magistéria disciplínæ. Sed legisperítum in ómnibus volo esse perféctum; non enim in sermóne, sed in virtúte est regnum Dei. Bene autem, quia de Judǽis dicit, duo soli multiplicátam pecúniam déferunt; non útique ǽris, sed dispensatiónis usúris. Alia est enim pecúniæ fænébris, ália doctrínæ cæléstis úsura.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui beátum Ludovícum Confessórem tuum de terréno regno ad cæléstis regni glóriam transtulísti: ejus quǽsumus méritis et intercessióne, Regis regum Jesu Christi Fílii tui fácias nos esse consórtes. Qui tecum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Com. sequéntis.}
+
+---
+
+### Die 26 Augusti
+
+#### S. Zephyrini
+
+{RUBRIC: Papæ et Mart. [29] Simplex}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Zephyrínum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+#### Lectio iii
+
+ZEphyrínus Románus, Sevéro imperatóre ad regéndam Ecclésiam assúmptus, sancívit ut, qui ordinándi essent, opportúno témpore et multis præséntibus cléricis et lái-

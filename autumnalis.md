@@ -15384,3 +15384,53 @@ QUia fortitúdo non solum secúndis rebus, sed étiam advérsis probátur, spect
 QUid Jónatham fratrem ejus attéxam, qui cum parva manu advérsus exércitus régios pugnans, desértus a suis et cum duóbus tantum relíctus, reparávit bellum, avértit hostem, fugitántes suos ad societátem revocávit triúmphi? Habes fortitúdinem béllicam, in qua non mediócris honésti ac decóri forma est, quod mortem servitúti præferat ac turpitúdini. Quid autem de Mártyrum dicam passiónibus? Et ne lóngius evagémur, non minórem de supérbo rege Antíocho Machabǽi púeri revexérunt triúmphum, quam paréntes próprii; síquidem illi armáti, isti sine armis vicérunt.
 
 ℟. Congregátæ sunt gentes in multitúdine, ut dímicent contra nos, et ignorámus quid ágere debeámus : \* Dómine Deus, ad te sunt óculi nostri, ne pereámus. ℣. Tu scis quæ cógitant in nos : quómodo potérimus subsístere ante fáciem illórum, nisi tu ádjuves nos? — Dómine.
+
+##### Lectio vi
+
+STetit invícta septem puerórum cohors, régiis cincta legiónibus : defecérunt supplícia, cessérunt tortóres, non defecérunt Mártyres. Alius córium cápitis exútus, spéciem mutáverat, virtútem áuxerat. Alius linguam jussus amputándam prómere, respóndit : Non solos Dóminus audit loquéntes, qui audiébat Móysen tacéntem; plus audit tácitas cogitatiónes suórum, quam voces ómnium. Linguæ flagéllum times, flagéllum sánguinis non times? Habet et sanguis vocem suam, qua clamat ad Deum, sicut clamávit in Abel.
+
+℟. Tua est poténtia, tuum regnum, Dómine : tu es super omnes gentes : \* Da pacem, Dómine, in diébus nostris. ℣. Creátor ómnium, Deus, terríbilis et fortis, justus et miséricors. — Da. Glória Patri. Da.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+℟. Duo Séraphim, {RUBRIC: ut infra in Homilíis.}
+
+---
+
+## Feria Secunda infra Hebdomadam III Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 9, 28-40*
+
+ET congregáti sunt omnes amíci Judæ et dixérunt Jónathæ : Ex quo frater tuus Judas defúnctus est, vir símilis ei non est, qui éxeat contra inimícos nostros, Bácchidem et eos qui inimíci sunt gentis nostræ. Nunc ítaque te hódie elégimus esse pro eo nobis in príncipem et ducem ad bellándum bellum nostrum. Et suscépit Jónathas témpore illo principátum et surréxit loco Judæ fratris sui. Et cognóvit Bácchides et quærébat eum occídere.
+
+℟. Dixit Judas Simóni fratri suo : Elige tibi viros et vade, líbera fratres tuos in Galilǽam; ego autem et Jónathas frater tuus íbimus in Galaadítim : \* Sicut fúerit volúntas in cælo, sic fiat. ℣. Accingímini, fílii poténtes, et estóte paráti : quóniam mélius est nobis mori in bello, quam vidére mala gentis nostræ et sanctórum. — Sicut.
+
+##### Lectio ii
+
+ET cognóvit Jónathas et Simon frater ejus et omnes qui cum eo erant, et fugérunt in desértum Thécuæ et consedérunt ad aquam lacus Asphar; et cognóvit Bácchides et die sabbatórum venit ipse et omnis exércitus ejus trans Jordánem. Et Jónathas misit fratrem suum ducem pópuli et rogávit Nabuthǽos amícos suos, ut commodárent illis apparátum suum, qui erat copiósus. Et exiérunt fílii Jambri ex Mádaba et comprehendérunt Joánnem et ómnia quæ habébat et abiérunt habéntes ea.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+POst hæc verba renuntiátum est Jónathæ et Simóni fratri ejus, quia fílii Jambri fáciunt núptias magnas et ducunt sponsam ex Mádaba fíliam uníus de magnis princípibus Chánaan cum ambitióne magna. Et recordáti sunt sánguinis Joánnis fratris sui et ascendérunt et abscondérunt se sub teguménto montis et elevavérunt óculos suos et vidérunt, et ecce tumúltus et apparátus multus, et sponsus procéssit et amíci ejus et fratres ejus óbviam illis cum týmpanis et músicis et armis multis; et surrexérunt ad eos ex insídiis et occidérunt eos, et cecidérunt vulneráti multi et resídui fugérunt in montes, et accepérunt ómnia spólia eórum.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Tertia infra Hebdomadam III Octobris
+
+{RUBRIC: De libro primo Machabæórum}
+
+##### Lectio i
+*Cap. 12, 1-11*
+
+ET vidit Jónathas quia tempus eum juvat, et elégit viros et misit eos Romam statúere et renováre cum eis amicítiam; et ad Spartiátas et ad ália loca misit epístolas secúndum eámdem formam. Et abiérunt Romam et intravérunt cúriam et dixérunt : Jónathas summus sacérdos et gens Judæórum misérunt nos, ut renovarémus amicítiam et societátem secúndum prístinum. Et dedérunt illis epístolas ad ipsos per loca, ut dedúcerent eos in terram Juda cum pace.
+
+℟. Hic est fratrum amátor et pópuli Israël : \* Hic est, qui multum orat pro pópulo et univérsa sancta civitáte Jerúsalem. ℣. Vir iste in pópulo suo mitíssimus appáruit. — Hic est.

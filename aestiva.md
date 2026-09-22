@@ -27152,4 +27152,32 @@ MAgnum spectáculum, fratres, pósitum est ante óculos fídei nostræ. Aure aud
 
 #### Lectio ix
 
-SEptem Fratres, fílii sanctæ Felicitátis, Romæ in persecutióne Marci Aurélii Antoníni a Públio præfécto frustra tentáti, ut idóla veneraréntur, sexto Idus Júlii, ipsa fortíssima matre eos ad martýrium hortánte, várie necáti sunt. Januárius plumbátis cæsus; Felix et Philíppus fústibus contúsi; Silvánus ex altíssimo loco præceps dejéctus est; Alexánder, Vitális et Martiális cápite plectúntur. Mater dénique, quarto post mense, eámdem martýrii palmam consecúta est. Rufína et Secúnda soróres, vírgines Románæ, rejécto connúbio Armentárii et Veríni, quod virginitátem Christo vovíssent, Valeriáno et Galliéno imperatóribus, comprehénsæ, Júnii præfécti blandítiis et minis a propósito mínime abdúctæ, vário tormentórum génere afflíctæ sunt. Cum vero, ab Angelis custodítæ, in sancto propósito perseverárent, via Aurélia, milliário décimo, cápite plectúntur. Quarum córpora, a Plautílla matróna in ejus prǽdio extra Urbem sepúlta, póstea in basílica Con-
+SEptem Fratres, fílii sanctæ Felicitátis, Romæ in persecutióne Marci Aurélii Antoníni a Públio præfécto frustra tentáti, ut idóla veneraréntur, sexto Idus Júlii, ipsa fortíssima matre eos ad martýrium hortánte, várie necáti sunt. Januárius plumbátis cæsus; Felix et Philíppus fústibus contúsi; Silvánus ex altíssimo loco præceps dejéctus est; Alexánder, Vitális et Martiális cápite plectúntur. Mater dénique, quarto post mense, eámdem martýrii palmam consecúta est. Rufína et Secúnda soróres, vírgines Románæ, rejécto connúbio Armentárii et Veríni, quod virginitátem Christo vovíssent, Valeriáno et Galliéno imperatóribus, comprehénsæ, Júnii præfécti blandítiis et minis a propósito mínime abdúctæ, vário tormentórum génere afflíctæ sunt. Cum vero, ab Angelis custodítæ, in sancto propósito perseverárent, via Aurélia, milliário décimo, cápite plectúntur. Quarum córpora, a Plautílla matróna in ejus prǽdio extra Urbem sepúlta, póstea in basílica Constantiniána prope baptistérium cóndita sunt.
+
+Te Deum laudámus.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthæum
+
+#### Lectio vii
+
+*Cap. 12, 46-50*
+
+IN illo témpore: Loquénte Jesu ad turbas, ecce Mater ejus et fratres stabant foris quæréntes loqui ei. Et réliqua.
+
+Homilía sancti Gregórii Papæ
+
+*Homilia 3 in Evangelia*
+
+SAncti Evangélii, fratres caríssimi, brevis est léctio recitáta, sed magnis mystériórum pondéribus grávida. Jesus étenim, cónditor et redémptor noster, Matrem se nosse dissímulat, et quæ ei mater sit et qui propínqui, non per cognatiónem carnis, sed per conjunctiónem spíritus desígnat, dicens: Quæ est mater mea, et qui sunt fratres mei? Quicúmque enim fécerit voluntátem Patris mei, qui in cælis est, ipse meus frater, et soror, et mater est. Quibus nobis verbis quid áliud ínnuit, nisi quod obsequéntes jussiónibus suis multos ex gentilitáte cólligit; et Judæam, ex cujus carne est génitus, non agnóscit?
+
+℟. Propter testaméntum Dómini et leges paternas, Sancti Dei perstitérunt in amóre fraternitátis: \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+{RUBRIC: ¶ Si dicénda sit ix Léctio alicújus Offícii commemoráti, ex viii et ix Lectióne fit una.}
+
+#### Lectio viii
+
+SEd cum is, qui voluntátem Patris fécerit, soror et frater Dómini dícitur, propter utrúmque sexum qui ad fidem collígitur, mirum non est; mirándum vero valde est, quómodo étiam mater dicátur. Fidéles enim discípulos fratres vocáre dignátus est, dicens: Ite, nuntiáte frátribus meis. Qui ergo frater Dómini fíeri ad fidem veniéndo potúerit, quæréndum est, quómodo étiam et mater esse possit.
+
+℟. Hæc est vera fraternitas, quæ numquam pótuit violári certámine: qui effúso sánguine secúti sunt Dóminum: \* Contemnéntes aulam régiam, pervenérunt ad regna cæléstia. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Contemnéntes. Glória Patri. Contemnéntes.

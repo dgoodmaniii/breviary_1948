@@ -32434,4 +32434,46 @@ Te Deum laudámus.
 
 #### Lectio ix
 
-QUam bene nobis erit sub præsídio tantæ Matris? Quis nos detráhere audébit de sinu ejus? Quæ nos tentátio superáre póterit, confidéntes in patrocínio Matris Dei et nostræ? Neque nos primi érimus in tanti consecutióne benefícii. Multi nos præcessérunt; multi, inquam, ad singuláre et plane matérnum patrocí-
+QUam bene nobis erit sub præsídio tantæ Matris? Quis nos detráhere audébit de sinu ejus? Quæ nos tentátio superáre póterit, confidéntes in patrocínio Matris Dei et nostræ? Neque nos primi érimus in tanti consecutióne benefícii. Multi nos præcessérunt; multi, inquam, ad singuláre et plane matérnum patrocínium tantæ Vírginis accessérunt, et nemo confúsus aut tristis dimíssus est, sed omnes hílares et gaudéntes, freti patrocínio tantæ Matris. De qua enim scriptum est: Ipsa cónteret caput tuum, in ea confídunt, se quoque fidénter ambulatúros super áspidem et basilíscum, et conculcatúros leónem et dracónem. Neque enim vidétur posse períre is, de quo dictum sit Vírgini a Christo: Ecce fílius tuus, dúmmodo et ipse non surda aure áudiat, quod ei Christus díxerit: Ecce Mater tua.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** O beáta \* Virgo María: tu grátiæ Mater, tu spes mundi, exáudi nos fílios tuos clamántes ad te.
+
+#### Oratio
+
+OMnípotens sempitérne Deus, qui in Corde beátæ Maríæ Vírginis dignum Spíritus Sancti habitáculum præparásti: concéde propítius; ut ejúsdem immaculáti Cordis festivitátem devóta mente recoléntes, secúndum cor tuum vívere valeámus. Per Dóminum... in unitáte ejúsdem.
+
+{RUBRIC: Pro Com. Ss. Martyrum:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte tímere: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+#### Oratio
+
+AUxílium tuum nobis, Dómine, quǽsumus, placátus impénde: et, intercedéntibus beátis Martýribus tuis Timótheo, Hippólyto et Symphoriáno, déxteram super nos tuæ propitiatiónis exténde. Per Dóminum.
+
+### In II Vesperis
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Exsultávit cor meum \* in Dómino, et exaltátum est cornu meum in Deo meo, quia lætáta sum in salutári tuo.
+
+{RUBRIC: Et fit Commemoratio sequéntis:}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus, et ornávit eum. ℟. Stolam glóriæ índuit eum.
+
+#### Oratio
+
+DEus, qui per beátum Philíppum, Confessórem tuum, exímium nobis humilitátis exémplum tribuísti: da fámulis tuis próspera mundi ex ejus imitatióne despícere, et cæléstia semper inquírere. Per Dóminum.
+
+{RUBRIC: Complet. de Dominica.}
+
+---

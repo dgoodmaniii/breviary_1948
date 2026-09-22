@@ -21683,3 +21683,21 @@ DUM Missárum solémnia perágeret, visa est viris piis colúmba e cælo deláps
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
 
 ---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+GRegórius Papa séptimus, ántea Hildebrándus, Suánæ in Etrúria natus, doctrína, sanctitáte, omníque virtútum génere cum primis nóbilis, mirífice univérsam Dei Ecclésiam illustrávit. Adoléscens religiósi hábitum índuit in Cluniacénsi monastério, tantóque pietátis ardóre Deo desérviit, ut a sanctis ejúsdem cœnóbii pátribus prior fúerit eléctus. Póstea factus abbas monastérii sancti Pauli extra muros Urbis, ac deínde creátus Románæ Ecclésiæ cardinális, sub summis Pontifícibus Leóne nono, Victóre secúndo, Stéphano nono, Nicoláo secúndo et Alexándro secúndo, præcípuis munéribus et legatiónibus perfúnctus est. Mórtuo Alexándro secúndo, unanímiter summus Póntifex eléctus, ecclesiásticæ libertátis propugnátor ac defénsor acérrimus éxstitit; quaprópter multa passus, et Roma discédere coáctus est. Postréma ejus moriéntis verba fuére: Diléxi justítiam et odívi iniquitátem, proptérea mórior in exsílio. Migrávit in cælum, anno salútis millésimo octogésimo quinto, ejúsque corpus in cathedráli basílica Salernitána honorífice cónditum est.
+
+Te Deum laudámus.
+
+{RUBRIC: In III Nocturno Homilía in Ev. *Venit Jesus*, de Comm. unius aut plúrium Summórum Pontíficum. [28¹]}
+
+{RUBRIC: Pro S. Urbano I Papa et Mart.}
+
+#### Lectio ix
+
+URbánus Románus, Alexándro Sevéro imperatóre, doctrína et vitæ sanctitáte multos ad Christi fidem convértit; in illis Valeriánum, beátæ Cæcíliæ sponsum, et Tibúrtium, Valeriáni fratrem, qui póstea martýrium forti ánimo subiérunt. Hic de bonis Ecclésiæ attribútis scripsit his verbis: Ipsæ res fidélium, quæ Dómino offerúntur, non debent in álios usus quam ecclesiásticos et christianórum fratrum, vel indigéntium, convérti; quia vota sunt fidélium, et prétia peccatórum, ac patrimónia páuperum. Sedit annos sex, menses septem, dies quátuor: ac martýrio coronátus, sepúltus est in cœmetério Prætextáti, octávo Kaléndas Júnii. Ordinatiónibus quinque hábitis mense Decémbri, creávit presbýteros novem, diáconos quinque, epíscopos per divérsa loca octo.
+
+Te Deum laudámus.

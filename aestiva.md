@@ -22759,3 +22759,49 @@ Te Deum laudámus.
 ###### Oratio
 
 DEus, auctor pacis et amátor caritátis, qui beátum Joánnem Confessórem tuum mirífica dissidéntes componéndi grátia decorásti: ejus méritis et intercessióne concéde; ut in tua caritáte firmáti, nullis a te tentatiónibus separémur. Per Dóminum nostrum.
+
+{RUBRIC: Et fit Com. Ss. Basilidis, Cyrini, Naboris et Nazarii Mm.}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+SAnctórum Mártyrum tuórum Basílidis, Cyríni, Náboris atque Nazárii, quǽsumus, Dómine, natalítia nobis votíva respléndeant: et, quod illis cóntulit excelléntia sempitérna, frúctibus nostræ devotiónis accréscat. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de seq., Commemoratio præcedentis.}
+
+---
+
+### Die 13 Junii
+
+#### S. Antonii de Padua
+
+{RUBRIC: Conf. [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+ECclésiam tuam, Deus, beáti Antónii Confessóris tui solémnitas votíva lætíficet: ut spirituálibus semper muniátur auxíliis, et gáudiis pérfrui mereátur ætérnis. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, auctor pacis et amátor caritátis, qui beátum Joánnem Confessórem tuum mirífica dissidéntes componéndi grátia decorásti: ejus méritis et intercessióne concéde; ut in tua caritáte firmáti, nullis a te tentatiónibus separémur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+ANtónius, Ulyssipóne in Lusitánia honéstis ortus paréntibus, et ab iis pie educátus, adoléscens, institútum canonicórum regulárium suscépit. Sed, cum córpora beatórum quinque Mártyrum fratrum Minórum Conímbriam transferréntur, qui paulo ante apud Marróchium pro Christi fide passi erant, martýrii desidério incénsus ad Franciscánum órdinem transívit. Mox eódem ardóre impúlsus, ad Saracénos ire perréxit; sed, advérsa valetúdine afflíctus et redíre coáctus, cum navi ad Hispániæ líttora ténderet, ventórum vi in Sicíliam delátus est.
+
+℟. Honéstum fecit illum Dóminus, et custodívit

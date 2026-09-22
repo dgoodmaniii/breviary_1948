@@ -29570,3 +29570,35 @@ NOnis ígitur Augústi, quo témpore in Urbe máximi calóres esse solent, noctu
 QUare solémni sacerdótum et pópuli supplicatióne ad collem venit nive coopértum, et in eo locum ecclésiæ designávit, quæ Joánnis et uxóris pecúnia exstrúcta est, póstea a Xysto tértio restitúta. Váriis nomínibus primum est appelláta, basílica Libérii, sancta María ad Præsépe; sed, cum multæ jam essent in Urbe ecclésiæ sub nómine sanctæ Maríæ Vírginis, ut quæ basílica novitáte miráculi ac dignitáte céteris ejúsdem nóminis basílicis præstáret, vocábuli étiam excelléntia significarétur, ecclésia sanctæ Maríæ majóris dicta est. Cujus dedicatiónis memória ex nive, quæ hac die mirabíliter cécidit, anniversária celebritáte cólitur.
 
 ℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit: \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes: \* Unguéntum effúsum nomen tuum. ℣. Astítit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et. Glória Patri. Unguéntum.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+LIbério summo Pontífice, Joánnes patrícius Románus et uxor pari nobilitáte, cum líberos non suscepíssent, suam hereditátem sanctíssimæ Vírgini Dei Matri vovérunt. Quorum preces et vota beáta Virgo benígne áudiens, miráculo comprobávit. Nonis ígitur Augústi, quo témpore in Urbe máximi calóres esse solent, noctu nix partem collis Exquilíni contéxit. Qua nocte Dei Mater separátim Joánnem et cónjugem in somnis admónuit, ut in eo loco ecclésiam ædificárent. Quod Joánnes ad Libérium Pontíficem détulit, qui idem per sómnium sibi contigísse affirmávit. Quáre ad collem venit nive coopértum, et in eo locum ecclésiæ designávit, quæ Joánnis et uxóris pecúnia exstrúcta est, póstea a Xysto tértio restitúta. Váriis nomínibus appelláta, ut vocábuli étiam excelléntia significarétur, ecclésia sanctæ Maríæ majóris dicta est.
+
+Te Deum.
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Beáta es, \* María, quæ credidísti: perficiéntur in te, quæ dicta sunt tibi a Dómino, allelúja.
+
+###### Oratio C
+
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére: et gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia, et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequénti, Commemoratio tantum præcedéntis.}
+
+---
+
+## Die 6 Augusti
+
+# In Transfiguratione D. N. J. C.
+
+{RUBRIC: Duplex II Classis}
+
+### In I Vesperis
+
+**Ant. 1** Assúmpsit Jesus \* Petrum, et Jacóbum, et Joánnem fratrem ejus, et duxit eos in montem excélsum seórsum, et transfigurátus est ante eos.

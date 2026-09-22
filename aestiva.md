@@ -29864,3 +29864,33 @@ Non privábit bonis eos, qui ámbulant in innocéntia: \* Dómine virtútum, be�
 #### Psalmus 86
 
 FUndaménta ejus in móntibus sanctis: \* díligit Dóminus portas Sion super ómnia tabernácula Jacob.
+
+Gloriósa dicta sunt de te, \* cívitas Dei.
+
+Memor ero Rahab, et Babylónis \* sciéntium me.
+
+Ecce alienígenæ, et Tyrus, et pópulus Æthíopum, \* hi fuérunt illic.
+
+Numquid Sion dicet: Homo, et homo natus est in ea: \* et ipse fundávit eam Altíssimus?
+
+Dóminus narrábit in scriptúris populórum, et príncipum: \* horum, qui fuérunt in ea.
+
+Sicut lætántium ómnium \* habitátio est in te.
+
+**Ant.** Gloriósa dicta sunt de te, cívitas Dei.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo de Transfiguratione ante médium}
+
+#### Lectio iv
+
+APerit Dóminus coram eléctis téstibus glóriam suam, et commúnem illam cum céteris córporis formam tanto splendóre clarificat, ut et fácies ejus solis fulgóri símilis, et vestítus candóri nívium esset æquális. In qua transfiguratióne illud quidem principáliter agebátur, ut de córdibus discipulórum crucis scándalum tollerétur; nec conturbáret eórum fidem voluntáriæ humílitas passiónis, quibus reveláta esset abscónditæ excelléntia dignitátis. Sed non minóre providéntia spes sanctæ Ecclésiæ fundabátur, ut totum Christi corpus agnósceret quali esset commutatióne donándum, ut ejus sibi honóris consórtium membra promítterent, qui in cápite præfúlsisset.
+
+℟. Inebriáti sunt ab ubertáte domus tuæ: \* Et torrénte voluptátis tuæ potásti eos. ℣. Quóniam apud te est fons vitæ, et in lúmine tuo vidébimus lumen. — Et.
+
+#### Lectio v
+
+COnfirmándis vero Apóstolis et ad omnem sciéntiam provehéndis, ália quoque in illo miráculo accéssit instrúctio. Móyses enim et Elías, lex scílicet et prophétæ, apparuérunt cum Dómino loquéntes; ut veríssime in illa quinque virórum præséntia complerétur quod dictum est: In duóbus vel tribus téstibus stat omne verbum. Quid hoc stabílius, quid fírmius verbo, in cujus prædicatióne véteris et novi Testaménti cóncinit tuba, et cum evangélica doctrína, antiquárum protestatiónum instruménta concúrrunt?

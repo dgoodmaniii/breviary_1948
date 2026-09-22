@@ -32646,4 +32646,28 @@ OMnípotens sempitérne Deus, qui hujus diéi venerándam sanctámque lætítiam
 
 #### Lectio iv
 
-BArtholomǽus Apóstolus, Galilǽus, cum in Indiam citeriórem, quæ ei in orbis
+BArtholomǽus Apóstolus, Galilǽus, cum in Indiam citeriórem, quæ ei in orbis terrárum sortitióne ad prædicándum Jesu Christi Evangélium obvénerat, progréssus esset, advéntum Dómini Jesu juxta sancti Matthǽi Evangélium illis géntibus prædicávit. Sed, cum in ea província plúrimos ad Jesum Christum convertísset, multos labóres calamitatésque perpéssus, venit in majórem Arméniam.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio v
+
+IBI Polýmium regem et cónjugem ejus ac prætérea duódecim civitátes ad christiánam fidem perdúxit. Quæ res in eum magnam invídiam concitávit illíus gentis sacerdótum. Nam usque ádeo Astýagem, Polýmii regis fratrem, in Apóstolum incendérunt, ut is vivo Bartholomǽo pellem crudéliter détrahi jússerit ac caput abscíndi; quo in martýrio ánimam Deo réddidit.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me: \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+EJus corpus Albáni, quæ est urbs majóris Arméniæ, ubi is passus fúerat, sepúltum est. Quod póstea ad Líparam ínsulam delátum, inde Benevéntum translátum est. Postrémo Romam ab Ottóne tértio imperatóre portátum, in Tíberis ínsula, in ecclésia ejus nómine Deo dicáta, collocátum fuit.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui, contemnéntes jussa príncipum, meruérunt prǽmia ætérna: \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 6, 12-19*
+
+IN illo témpore: Éxiit Jesus in montem oráre, et erat pernóctans in ora-

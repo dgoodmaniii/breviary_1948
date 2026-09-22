@@ -27313,3 +27313,35 @@ Homilía sancti Hierónymi Presbýteri
 EGO autem dico vobis: Dilígite inimícos vestros; benefácite his qui odérunt vos. Multi præcépta Dei, imbecillitáte sua, non Sanctórum víribus æstimántes, putant esse impossibília quæ præcépta sunt: et dicunt sufficere virtútibus, non odísse inimícos: céterum dilígere, plus præcípi, quam humána natúra patiátur. Sciéndum est ergo, Christum non impossibília præcípere, sed perfécta. Quæ fecit David in Saul, et in Absalom: Stéphanus quoque Martyr pro inimícis lapidántibus deprecátus est: et Paulus anáthema cupit esse pro persecutóribus suis. Hæc autem Jesus et dócuit et fecit, dicens: Pater, ignósce illis: quod enim fáciunt, nésciunt.
 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+IN réliquis opéribus bonis intérdum potest áliquis qualemcúmque excusatiónem præténdere; ad habéndam vero dilectiónem nullus se póterit excusáre. Potest mihi áliquis dícere, Non possum jejunáre; numquid potest dícere, Non possum amáre? Potest áliquis dícere, Virginitátem non possum serváre, non possum res totas véndere et paupéribus erogáre; numquid potest dícere, Non possum dilígere inimícos?
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+#### Lectio ix
+
+NON enim ibi aut pedes labórant curréndo, aures audiéndo, aut manus operándo laxántur, ut nos per ipsam excusatiónem liberáre conémur. Non nobis dícitur: Ite ad Oriéntem, et quærite caritátem; navigáte ad Occidéntem, et inveniétis dilectiónem. Intus in nostro corde est, ubi redíre jubémur, dicénte prophéta: Redíte, prævaricatóres, ad cor. Non enim in longínquis regiónibus invenítur quod a nobis pétitur.
+
+Te Deum laudámus.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio C 4
+
+INtercéssio nos, quæsumus, Dómine, beáti Joánnis Abbátis comméndet: ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Deinde fit Commemoratio Ss. Naboris et Felicis Mm.:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+PRæsta, quæsumus, Dómine: ut, sicut nos sanctórum Mártyrum tuórum Náboris et Felícis natalítia celebránda non déserunt; ita júgiter suffrágiis comiténtur. Per Dóminum.

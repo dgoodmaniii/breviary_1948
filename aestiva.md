@@ -27409,3 +27409,37 @@ VEre frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, 
 GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Anaclétum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
 
 {RUBRIC: Vesperæ de sequénti, Commemoratio præcedentis.}
+
+---
+
+### Die 14 Julii
+
+#### S. Bonaventuræ
+
+{RUBRIC: Episc., Conf. et Eccl. Doct. [69] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Bonaventúra, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+###### Oratio C 3
+
+DEus, qui pópulo tuo ætérnæ salútis beátum Bonaventúram minístrum tribuísti: præsta, quæsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum nostrum.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+{RUBRIC: Gregem tuum, ut supra. 758}
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [87]}
+
+#### Lectio iv
+
+BOnaventúra, Balneorégii in Etrúria natus, a letháli morbo adhuc puer, beáti Francísci précibus, cujus religióni, si convaluísset, voto matris dicátus fúerat, evásit incólumis. Itaque adoléscens fratrum Minórum institútum amplécti vóluit, in quo ad eam doctrínæ præstántiam Alexándro de Ales magístro pervénit, ut séptimo post anno Parísiis magistérii láuream adéptus, libros Sententiárum públice summa cum laude sit interpretátus, quos étiam præcláris póstea commentáriis illustrávit. Nec sciéntiæ solum eruditióne, sed et morum integritáte vitæque innocéntia, humilitáte, mansuetúdine, terrenárum rerum contémptu et cæléstium desidério miríffice excélluit; dignus plane, qui tamquam perfectiónis exémplar haberétur, et a beáto Thoma Aquináte, cui summa caritáte conjúnctus erat, sanctus appellarétur. Is enim, cum sancti Francísci vitam illum scribéntem comperísset: Sinámus, ait, Sanctum pro Sancto laboráre.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum: \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus enim mea.

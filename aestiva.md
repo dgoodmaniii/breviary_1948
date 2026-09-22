@@ -29218,9 +29218,7 @@ AB ecclesiásticis dignitátibus sibi oblátis constantíssime abhórruit; at, C
 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
 
----
-
-### Pro hoc Festo simplificato
+{RUBRIC: Pro hoc Festo simplificato}
 
 #### Lectio ix
 

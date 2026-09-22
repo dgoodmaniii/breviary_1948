@@ -20698,4 +20698,40 @@ Te Deum laudámus.
 
 ### Oratio
 
-DEus, qui diligéntibus te bona invisibília præparásti: infúnde córdibus nostris tui amóris afféctum; ut, te in ómni-
+DEus, qui diligéntibus te bona invisibília præparásti: infúnde córdibus nostris tui amóris afféctum; ut, te in ómnibus supra ómnia diligéntes, promissiónes tuas, quæ omne desidérium súperant, consequámur. Per Dóminum.
+
+### Ad Vesperas
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Si offers \* munus tuum ad altáre et recordátus fúeris, quia frater tuus habet áliquid advérsus te, relínque ibi munus tuum ante altáre et vade prius reconciliári fratri tuo, et tunc véniens ófferes munus tuum, allelúja.
+
+---
+
+## Dominica VI post Pentecosten
+
+*Semiduplex*
+
+{RUBRIC: Oratio Deus virtútum, ut infra ad Laudes.}
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Marcum
+
+##### Lectio vii
+
+*Cap. 8, 1-9*
+
+IN illo témpore: Cum turba multa esset cum Jesu nec habérent quod manducárent, convocátis discípulis, ait illis: Miséreor super turbam, quia ecce jam tríduo sústinent me nec habent quod mandúcent. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+*Liber 6 in Lucæ cap. 9, post initium*
+
+POsteáquam illa, quæ Ecclésiæ typum accépit, a fluxu curáta est sánguinis, posteáquam Apóstoli ad evangelizándum regnum Dei sunt destináti, grátiæ cæléstis impartítur aliméntum. Sed quibus impartiátur, advérte. Non otiósis, non in civitáte, quasi in synagóga vel sæculári dignitáte residéntibus; sed inter desérta quæréntibus Christum. Qui enim non fastídiunt, ipsi excipiúntur a Christo, et cum ipsis lóquitur Dei Verbum, non de sæculáribus, sed de regno Dei. Et si qui corporális gerunt úlcera passiónis, his medicínam suam libénter indúlget.
+
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et.
+
+##### Lectio viii
+
+COnsequens ígitur erat, ut, quos a vúlnerum dolóre sanáverat, eos alimóniis spiritálibus a jejúnio liberáret. Itaque nemo cibum áccipit Christi, nisi fúerit ante sanátus; et illi, qui vocántur ad cœnam,

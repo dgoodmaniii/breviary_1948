@@ -29241,3 +29241,61 @@ Te Deum laudámus.
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DEus, qui per beátum Alfónsum Maríam Confessórem tuum atque Pontíficem, animárum zelo succénsum, Ecclésiam tuam nova prole fœcundásti: quæsumus; ut, ejus salutáribus mónitis edócti et exémplis roboráti, ad te perveníre felíciter valeámus. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio S. Stéphani I Papæ et Mart.:}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Stéphanum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Alfónse María, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 3 Augusti
+
+#### In Inventione S. Stéphani Protomart.
+
+{RUBRIC: Semiduplex}
+
+##### In I Vesperis
+
+{RUBRIC: Sicubi dicéndæ sint íntegræ, Ántiphonæ et Capítulum de Laudibus 832; Psalmi et Hymnus de Communi uníus Mart. [29]}
+
+**Ant.** Stéphanus autem plenus grátia et fortitúdine, faciébat signa magna in pópulo.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+DA nobis, quæsumus, Dómine, imitári quod cólimus: ut discámus et inimícos dilígere; quia ejus Inventiónem celebrámus, qui novit étiam pro persecutóribus exoráre Dóminum nostrum Jesum Christum, Fílium tuum: Qui tecum vivit.
+
+{RUBRIC: Completorium de Feria.}
+
+##### Ad Matutinum
+
+{RUBRIC: Invitatórium et Hymnus de Comm. uníus Mártyris [31]; Antíphonæ, Psalmi et Versus Nocturnórum de Feria.}
+
+##### In I Nocturno
+
+{RUBRIC: De Áctibus Apostolórum}
+
+*Cap. 7, 51-60; 8, 1-2*
+
+#### Lectio i
+
+DUra cervíce et incircumcísis córdibus et áuribus, vos semper Spirítui Sancto re-

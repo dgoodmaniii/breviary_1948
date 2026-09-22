@@ -26199,3 +26199,31 @@ VIdes, o dilécte, quam sit novum et admirábile mystérium. Nondum náscitur, e
 #### Lectio vi
 
 SEd dic nobis, Joánnes, cum adhuc in tenebróso matris útero contineáris, quómodo intuéris et audis? quómodo res divínas contempláris? quómodo éxsilis et exsúltas? Magnum est, inquit, quod perágitur mystérium, et actus ab humána remótus comprehensióne. Mérito ínnovo natúram propter eum, qui est innovatúrus ea quæ sunt supra natúram. Vídeo, etsi adhuc in útero sim; quóniam in útero gestári vídeo solem justítiæ. Auribus percípio, quóniam nascor vox magni Verbi. Exclámo, quóniam Fílium Patris unigénitum consídero carne indútum. Exsúlto, quóniam univérsi Effectórem vídeo formam hóminis suscípere. Exsílio quóniam mundi Redemptórem cógito incorporátum. Præcúrro advéntum ejus, et quodámmodo vobis prǽeo confessióne.
+
+℟. Beáta quæ credidísti, quóniam perficiéntur in te quæ dicta sunt tibi a Dómino. Et ait María: \* Magníficat ánima mea Dóminum. ℣. Veníte, et audíte, et narrábo quanta fecit Deus ánimæ meæ. — Magníficat. Glória Patri. Magníficat.
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Lucam
+
+#### Lectio vii
+
+*Cap. 1, 39-47*
+
+IN illo témpore: Exsúrgens María ábiit in montána cum festinatióne in civitátem Juda; et intrávit in domum Zacharíæ, et salutávit Elísabeth. Et réliqua.
+
+Homilía sancti Ambrósii Epíscopi
+
+*Liber 2 Comment. in Luc. cap. 1, post initium*
+
+COntuéndum est, quia supérior venit ad inferiórem, ut inférior adjuvétur: María ad Elísabeth, Christus ad Joánnem. Dénique étiam póstea, ut sanctificáret baptísmum Joánnis, Dóminus venit ad baptísmum. Cito quoque advéntus Maríæ et præséntiæ divínæ benefícia declarántur. Vide distinctiónem singulorúmque verbórum proprietátem. Vocem prior Elísabeth audívit, sed Joánnes prior grátiam sensit. Illa natúræ órdine audívit, iste exsultávit ratióne mystérii. Illa Maríæ, iste Dómini sensit advéntum. Istæ grátiam loquúntur, illi intus operántur pietatísque mystérium matérnis adoriúntur proféctibus; duplicíque miráculo prophétant matres spíritu parvulórum. Exsultávit infans, repléta est mater. Non prius mater repléta, quam fílius; sed, cum fílius esset replétus Spíritu Sancto, replévit et matrem.
+
+℟. Beátam me dicent omnes generatiónes: \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia.
+
+{RUBRIC: Si ix Lectio alicujus Officii commemoráti dicénda non sit, tunc ex viii Lectióne fiunt duæ, quarum prior désinit ad signum ¶.}
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+#### Lectio viii
+
+ET unde hoc mihi, ut véniat Mater Dómini mei ad me? Hoc est, Quo tantum bonum mihi áccidit, ut Mater Dómini mei véniat ad me? Miráculum séntio, agnósco mystérium: Mater Dómini Verbo fœta, Deo plena est. Mansit autem María cum illa ménsibus tribus,

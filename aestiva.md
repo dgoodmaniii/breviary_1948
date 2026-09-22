@@ -20232,4 +20232,30 @@ FIli, accédens ad servitútem Dei sta in justítia et timóre, et præpara áni
 
 OMne quod tibi applícitum fúerit áccipe et in dolóre sústine et in humilitáte tua patiéntiam habe; quóniam in igne probátur aurum et argéntum, hómines vero receptíbiles in camíno humiliatiónis. Crede Deo, et recuperábit te, et dírige viam tuam et spera in illum: serva timórem illíus et in illo veterásce.
 
-℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+METuéntes Dóminum, sustinéte misericórdiam ejus et non deflectátis ab illo, ne cadátis. Qui timétis Dóminum, crédite illi, et non evacuábitur merces vestra. Qui timétis Dóminum, speráte in illum, et in oblectatiónem véniet vobis misericórdia. Qui timétis Dóminum, dilígite illum, et illuminabúntur corda vestra. Respícite, fílii, natiónes hóminum et scitóte quia nullus sperávit in Dómino et confúsus est. Quis enim permánsit in mandátis ejus et derelíctus est? aut quis invocávit eum, et despéxit illum?
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 3, 1-33*
+
+FIlii sapiéntiæ ecclésia justórum, et nátio illórum obediéntia et diléctio. Judícium patris audíte, fílii, et sic fácite ut salvi sitis. Deus enim honorávit patrem in fíliis, et judícium matris exquírens firmávit in fílios. Qui díligit Deum exorábit pro peccátis et continébit se ab illis et in oratióne diérum exaudiétur.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio ii
+
+ET, sicut qui thesaurízat, ita, et qui honórificat matrem suam; qui honórat patrem suum jucundábitur in fíliis et in die oratiónis suæ exaudiétur. Qui honórat patrem suum vita vivet longióre, et qui obédit patri refrige-

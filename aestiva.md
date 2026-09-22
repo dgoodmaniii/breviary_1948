@@ -24538,4 +24538,32 @@ SCiébat Dóminus eos qui persecutiónem passúri essent; sciébat et eos qui fl
 
 #### Lectio viii
 
-HOC autem idem et illis occúrrit, qui dicunt eum putatíve passum. Si enim non vere passus est, nulla grátia ei, cum nulla fúerit pássio; et nos, cum incipiémus vere pati, sedúcens vidébitur, adhór-
+HOC autem idem et illis occúrrit, qui dicunt eum putatíve passum. Si enim non vere passus est, nulla grátia ei, cum nulla fúerit pássio; et nos, cum incipiémus vere pati, sedúcens vidébitur, adhórtans nos vapuláre et álteram præbére maxíllam, si ipse illud non prior in veritáte passus est. Et, quemádmodum illos sedúxit, ut viderétur eis ipse hoc quod non erat; et nos sedúcit, adhórtans perférre ea quæ ipse non pértulit. Erimus autem et super Magístrum, dum pátimur et sustinémus quæ neque passus est neque sustínuit Magíster. Sed, quóniam solus vere magíster Dóminus noster, et bonus vere Fílius Dei; et pátiens Verbum Dei Patris, fílius hóminis factus. Luctátus est enim et vicit; erat enim homo pro pátribus certans, et per obediéntiam inobediéntiam persólvens. Alligávit enim fortem, et solvit infírmos, et salútem donávit plásmati suo, déstruens peccátum. Igitur qui dicunt eum putatíve manifestátum, neque in carne natum, neque vere hóminem factum, adhuc sub véteri sunt damnatióne.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit: \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui minas. Glória Patri. Qui minas.
+
+{RUBRIC: Pro Vigilia Ss. Petri et Pauli Apostolórum:}
+
+Léctio sancti Evangélii secúndum Joánnem
+
+#### Lectio ix
+
+*Cap. 21, 15-19*
+
+IN illo témpore: Dixit Jesus Simóni Petro: Simon Joánnis, díligis me plus his? Et réliqua.
+
+Homilía sancti Augustíni Epíscopi
+
+*Tract. 123 in Joann., num. 5*
+
+REdditur negatióni trinæ trina conféssio, ne minus amóri lingua sérviat quam timóri, et plus vocis elicuísse videátur mors ímminens quam vita præsens. Sit amóris offícium páscere Domínicum gregem, si fuit timóris indícium negáre Pastórem. Qui hoc ánimo pascunt oves Christi, ut suas velint esse non Christi, se convincúntur amáre non Christum; vel gloriándi, vel dominándi, vel acquiréndi cupiditáte, non obediéndi, et subveniéndi, et Deo placéndi caritáte.
+
+Te Deum laudámus.
+
+{RUBRIC: ¶ Sicubi autem ix Léctio alícujus Offícii commem. non fúerit dicénda, erit sequens}
+
+#### Lectio ix
+
+*Cap. 25, álias 46 num. 7*
+
+NOS autem precámur non perseveráre eos in fóvea quam ipsi fodérunt,

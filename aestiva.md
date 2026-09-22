@@ -24121,4 +24121,44 @@ ALiis deínde monastériis eréctis, clárior in dies Guliélmi facta sánctitas
 
 #### Lectio ix
 
-GUliélmus, nobílibus paréntibus Vercéllis natus, vix quartum décimum ætátis annum expléverat, cum Compostellánam peregrinatiónem miro spíritu pœniténtiæ ac pietátis ardóre perégit. Dein, nova peregrinatióne ad Christi Dómini sepúlcrum frustra tentáta, in
+GUliélmus, nobílibus paréntibus Vercéllis natus, vix quartum décimum ætátis annum expléverat, cum Compostellánam peregrinatiónem miro spíritu pœniténtiæ ac pietátis ardóre perégit. Dein, nova peregrinatióne ad Christi Dómini sepúlcrum frustra tentáta, in solitário monte inter assíduas preces, vigílias et jejúnia per biénnium delítuit. Cum cæco lumen restituísset, hóminum existimatiónem fúgiens, monastérium in Virgiliáni montis, quod deínde Vírginis est appellátum, loco áspero et inaccésso exædíficat; ibi sócios ascíscit, eósque certis légibus, ex beáti Benedícti institútis magna ex parte desúmptis, verbo et sanctíssimæ vitæ exémplis infórmat. Aliis deínde monastériis eréctis, clárior in dies Guliélmi facta sánctitas multos ad eum úndique viros perdúcit, frequéntium étiam miraculórum fama alléctos. Demum, témpore sui óbitus prænuntiáto, obdormívit in Dómino, anno salútis millésimo centésimo quadragésimo secúndo.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Evang. Ecce nos relíquimus, de Communi Abbátum 1 loco. [107]}
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui infirmitáti nostræ ad teréndam salútis viam in Sanctis tuis exémplum et præsídium collocásti: da nobis, ita beáti Guliélmi Abbátis mérita venerári; ut ejúsdem excipiámus suffrágia, et vestígia prosequámur. Per Dóminum.
+
+{RUBRIC: Deinde fit Commemoratio Octavæ S. Joannis Baptistæ:}
+
+**Ant.** Apértum est os Zacharíæ, et prophetávit dicens: Benedíctus Deus Israël.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+###### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capitulo de seq., Commemoratio præcedentis et Oct. S. Joannis Baptistæ.}
+
+---
+
+### Die 26 Junii
+
+#### Ss. Joannis et Pauli Martyrum [49]
+
+{RUBRIC: Duplex}
+
+##### In I Vesperis
+
+{RUBRIC: Quando dicendæ sint integræ, Antiphonæ de Laudibus}

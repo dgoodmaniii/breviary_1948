@@ -13993,3 +13993,71 @@ DOCÉBO vos per manum Dei quæ Omnípotens hábeat, nec abscóndam. Ecce vos omn
 SAPIÉNTIA ubi invenítur? et quis est locus intelligéntiæ? Nescit homo prétium ejus, nec invenítur in terra suáviter vivéntium. Abýssus dicit: Non est in me, et mare lóquitur: Non est mecum. Non dábitur aurum obrízum pro ea, nec appendétur argéntum in commutatióne ejus; non conferétur tinctis Indiæ colóribus, nec lápidi sardónycho pretiosíssimo vel sapphíro.
 
 ℟. Indúta est caro mea putrédine, et sórdibus púlveris cutis mea áruit et contrácta est: \* Meménto mei, Dómine, quóniam ventus est vita mea. ℣. Dies mei velócius transiérunt quam a texénte tela succíditur, et consúmpti sunt absque ulla spe. — Meménto.
+
+##### Lectio ii
+
+NON adæquábitur ei aurum vel vitrum, nec commutabúntur pro ea vasa auri. Excélsa et eminéntia non memorabúntur comparatióne ejus; tráhitur autem sapiéntia de occúltis. Non adæquábitur ei topázius de Æthiópia, nec tinctúræ mundíssimæ componétur. Unde ergo sapiéntia venit? et quis est locus intelligéntiæ? Abscóndita est ab óculis ómnium vivéntium; vólucres quoque cæli latet. Perdítio et mors dixérunt: Áuribus nostris audívimus famam ejus.
+
+℟. Páucitas diérum meórum finiétur brevi; dimítte me, Dómine, ut plangam páululum dolórem meum, \* Antequam vadam ad terram tenebrósam et opértam mortis calígine. ℣. Manus tuæ, Dómine, fecérunt me, et plasmavérunt me totum in circúitu; et sic repénte præcípitas me? — Antequam.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Antequam.}
+
+##### Lectio iii
+
+DEUS intélligit viam ejus, et ipse novit locum illíus; ipse enim fines mundi intuétur, et ómnia, quæ sub cælo sunt, réspicit. Qui fecit ventis pondus, et aquas appéndit in mensúra. Quando ponébat plúviis legem et viam procéllis sonántibus, tunc vidit illam et enarrávit et præparávit et investigávit. Et dixit hómini: Ecce timor Dómini, ipsa est sapiéntia, et recédere a malo, intelligéntia.
+
+℟. Non abscóndas me, Dómine, a fácie tua: manum tuam longe fac a me, \* Et formído tua non me térreat. ℣. Córripe me, Dómine, in misericórdia, non in furóre tuo, ne forte ad níhilum rédigas me. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta infra Hebdomadam II Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 31, 1-18*
+
+PEPIGI fœdus cum óculis meis, ut ne cogitárem quidem de vírgine. Quam enim partem habéret in me Deus désuper, et hereditátem Omnípotens de excélsis? Numquid non perdítio est iníquo, et alienátio operántibus injustítiam? Nonne ipse considérat vias meas, et cunctos gressus meos dinúmerat? Si ambulávi in vanitáte, et festinávit in dolo pes meus, appéndat me in statéra justa, et sciat Deus simplicitátem meam.
+
+℟. Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et.
+
+##### Lectio ii
+
+SI declinávit gressus meus de via, et si secútum est óculos meos cor meum, et si mánibus meis adhǽsit mácula, seram, et álius cómedat, et progénies mea eradicétur. Si decéptum est cor meum super mulíere, et si ad óstium amíci mei insidiátus sum, scortum altérius sit uxor mea, et super illam incurvéntur álii. Hoc enim nefas est et iníquitas máxima; ignis est usque ad perditiónem dévorans et ómnia eradícans genímina.
+
+℟. Utinam appenderéntur peccáta mea, quibus iram mérui, \* Et calamítas, quam pátior, in statéra. ℣. Quasi aréna maris hæc grávior apparéret, unde et verba mea dolóre sunt plena. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+SI contémpsi subíre judícium cum servo meo et ancílla mea, cum disceptárent advérsum me: quid enim fáciam, cum surréxerit ad judicándum Deus? et, cum quæsíerit, quid respondébo illi? Numquid non in útero fecit me, qui et illum operátus est? et formávit me in vulva unus? Si negávi, quod volébant, paupéribus et óculos víduæ exspectáre feci; si comédi buccéllam meam solus, et non comédit pupíllus ex ea (quia ab infántia mea crevit mecum miserátio, et de útero matris meæ egréssa est mecum).
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.
+
+---
+
+## Feria Quinta infra Hebdomadam II Septembris
+
+{RUBRIC: De libro Job}
+
+##### Lectio i
+*Cap. 38, 1-20*
+
+RESPÓNDENS autem Dóminus Job de túrbine, dixit: Quis est iste invólvens senténtias sermónibus imperítis? Accínge, sicut vir, lumbos tuos; interrogábo te et respónde mihi. Ubi eras quando ponébam fundaménta terræ? Índica mihi, si habes intelligéntiam. Quis pósuit mensúras ejus, si nosti? vel quis teténdit super eam líneam? Super quo bases illíus solidátæ sunt? aut quis demísit lápidem angulárem ejus, cum me laudárent simul astra matutína, et jubilárent omnes fílii Dei?
+
+℟. Si bona suscépimus de manu Dei, mala autem quare non sustineámus? \* Dóminus dedit, Dóminus ábstulit; sicut Dómino plácuit, ita factum est: sit nomen Dómini benedíctum. ℣. Nudus egréssus sum de útero matris meæ et nudus revértar illuc. — Dóminus.
+
+##### Lectio ii
+
+QUIS conclúsit óstiis mare, quando erumpébat quasi de vulva procédens, cum ponérem nubem vestiméntum ejus, et calígine illud, quasi pannis infántiæ, obvólverem? Circúmdedi illud términis meis, et pósui vectem et óstia, et dixi: Usque huc vénies, et non procédes ámplius, et hic confrínges tuméntes fluctus tuos. Numquid post ortum tuum præcepísti dilúculo, et ostendísti aurórae locum suum? Et tenuísti concútiens extréma terræ, et excussísti ímpios ex ea?
+
+℟. Antequam cómedam suspíro, et tamquam inundántes aquæ sic rugítus meus; quia timor, quem timébam, evénit mihi, et quod verébar áccidit. Nonne dissimulávi? nonne sílui? nonne quiévi? \* Et venit super me indignátio. ℣. Ecce non est auxílium mihi in me et necessárii quoque mei recessérunt a me. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Et.}
+
+##### Lectio iii
+
+RESTITUÉTUR ut lutum signáculum, et stabit sicut vestiméntum: auferétur ab ímpiis lux sua, et bráchium excélsum confringétur? Numquid ingréssus es profúnda maris, et in novíssimis abýssi deambulásti? Numquid apértæ sunt tibi portæ mortis, et óstia tenebrósa vidísti? Numquid considerásti latitúdinem terræ? Índica mihi, si nosti, ómnia: in qua via lux hábitet, et tenebrárum quis locus sit; ut ducas unumquódque ad términos suos, et intélligas sémitas domus ejus.
+
+℟. Quare detraxístis sermónibus veritátis? ad increpándum verba compónitis et subvértere nitímini amícum vestrum: \* Verúmtamen quæ cogitástis, expléte. ℣. Quod justum est, judicáte; et non inveniétis in lingua mea iniquitátem. — Verúmtamen. Glória Patri. Verúmtamen.

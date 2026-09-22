@@ -23315,4 +23315,26 @@ IN tirocínio ipso virtútum ómnium magíster habéri cœpit. Exactíssima in e
 
 #### Lectio ix
 
-ALoísius, Ferdinándi Gonzágæ Castelliónis Stiverórum marchiónis fílius, festináto propter vitæ perículum baptísmo, prius cælo quam terris nasci visus, primam illam grátiam tam constánter retínuit, ut in ea confirmátus crederétur. Novénnis Floréntiæ ante aram beátæ Vírginis, quam paréntis loco semper hábuit, perpétuam virginitátem vovit; eámque, insígni Dei benefício, nulla mentis aut córporis pugna tentátam servávit, homo proptérea sine carne, aut án-
+ALoísius, Ferdinándi Gonzágæ Castelliónis Stiverórum marchiónis fílius, festináto propter vitæ perículum baptísmo, prius cælo quam terris nasci visus, primam illam grátiam tam constánter retínuit, ut in ea confirmátus crederétur. Novénnis Floréntiæ ante aram beátæ Vírginis, quam paréntis loco semper hábuit, perpétuam virginitátem vovit; eámque, insígni Dei benefício, nulla mentis aut córporis pugna tentátam servávit, homo proptérea sine carne, aut ángelus in carne mérito appellátus. Avíti principátus jure in fratrem transmísso, societáti Jesu Romæ se adjúnxit. In tirocínio ipso ómnium virtútum magíster habéri cœpit. In eo Dei amor erat tam ardens, ut corpus étiam sensim absúmeret. Mira étiam próximos caritáte ampléxus, in públicis, quibus alácriter ministrábat, nosocomíis, contagiósam luem traxit. Qua lente consúmptus undécimo Kaléndas Júlii, ætátis anno quarto et vigésimo jam inchoáto, migrávit in cælum. Quem Benedíctus décimus tértius inter Sanctos rétulit, atque innocéntiæ et castitátis exémplar simul et patrónum studiósæ præsértim juventúti dedit.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 22, 29-40*
+
+IN illo témpore: Respóndens Jesus ait Sadducǽis: Errátis nesciéntes Scriptúras neque virtútem Dei. In resurrectióne enim neque nubent neque nubéntur, sed erunt sicut Angeli Dei in cælo. Et réliqua.
+
+Homilía sancti Joánnis Chrysóstomi
+
+*Liber de Virginitate*
+
+VIrgínitas est bona: id ego quoque fáteor. Atqui núptiis étiam mélior; et istud tibi asséntior: ac si libet, illud adjúngam, tanto núptiis eam præstáre, quanto cælum terræ, quanto homínibus Angeli antecéllunt; ac, si quid prætérea addéndum est, étiam magis. Nam, si neque nubunt Angeli, neque uxórem ducunt, non étiam carne et sánguine coagmentáti sunt; in terris prætérea non commorántur, non cupiditátum aut libídinum perturbatiónibus sunt obnóxii, non cibi índigent aut potus; non sunt ejúsmodi, ut eos dulcis sonus aut cantus mollis aut præclára spécies possit allícere; nulla dénique ejus géneris illécebra capiúntur.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.

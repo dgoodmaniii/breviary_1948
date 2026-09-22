@@ -20622,6 +20622,4 @@ Homilía sancti Ambrósii Epíscopi
 
 *Liber 4 in Lucæ cap. 5, prope finem libri*
 
-##### Lectio viii
-
 UBI Dóminus multis impartívit vária génera sanitátum, nec témpore, nec loco pótuit ab stúdio sanándi turba cohibéri. Vesper incúbuit, sequebántur; stagnum occúrrit, urgébant: et ídeo ascéndit in Petri navim. Hæc est illa navis, quæ adhuc secúndum Matthæum flúctuat, secúndum Lucam replétur píscibus: ut et princípia Ecclésiæ fluctuántis, et posterióra

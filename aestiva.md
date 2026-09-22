@@ -31284,3 +31284,31 @@ DEus, qui nos beáti Eusébii Confessóris tui ánnua solemnitáte lætíficas: 
 {RUBRIC: Officium fit de Feria, ut in Ordinário et Psaltério, præter Oratiónem et Lectiónes, ut infra, et Responsória quæ dicúntur de Feria curránti, ut in Próprio de Témpore.}
 
 {RUBRIC: Ad Nocturnum vero in Feria iv tres últimæ Antíphonæ cum suis Psalmis, et ad Laudes in qualíbet Feria Antíphonæ omnes et Psalmi sumúntur de 2 loco; ad Primam additur quartus Psalmus, ut in Psaltério notátur, et ad omnes Horas dicúntur Preces feriáles, ut in Psaltério de Ordinário.}
+
+##### In Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio i
+
+*Cap. 11, 27-28*
+
+IN illo témpore: Loquénte Jesu ad turbas, extóllens vocem quædam múlier de turba dixit illi: Beátus venter qui te portávit. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+
+{RUBRIC: In Joann. c. 2 Homilía 20 circa finem}
+
+CUM audíeris mulíerem illam dicéntem: Beátus venter qui te portávit, et úbera quæ tu suxísti; deínde Dóminum respondéntem: Quinímmo beáti, qui áudiunt verbum Dei et custódiunt illud; ea senténtia dictum exístima, non quod Matrem negligéret, sed nihil ei utilitátis matris nomen allatúrum osténderet, nisi bonitáte et fide præstáret. Quod si Maríæ nihil, sine virtúte, matérna cáritas erat profutúra; longe minus nobis patris, fratris, matris, fílii bónitas, nisi áliquid nostrum afferámus.
+
+#### Lectio ii
+
+IN nullo namque álio, nisi in solis sui ipsíus virtútibus, post divínam grátiam, de salúte cuípiam sperándum est. Nam, si id profutúrum erat per se Maríæ, profuísset étiam Judǽis, quorum consanguíneus erat Christus secúndum carnem; profuísset civitáti, in qua natus est; profuísset frátribus. Atqui, dum fratres rerum suárum curam habuérunt, nihil eis propinquitátis nomen prófuit, sed cum réliquo mundo damnáti erant.
+
+#### Lectio iii
+
+TUnc autem admiratióni esse cœpérunt, quando própria claruérunt virtúte. Pátria vero nihil inde consecúta cécidit, et incéndio absúmpta est; cives mísere interémpti periére; consanguínei secúndum carnem nil ad salútem lucráti sunt, deficiénte virtútis patrocínio. Verum Apóstoli ante omnes claríssimi evasérunt, cum se ad veram et expeténdam ejus familiaritátem consuetudinémque per obediéntiam contulérunt. Hinc intellígimus, fide semper nobis opus esse, et vita quæ virtútibus lúceat: hæc dumtáxat salvos nos fácere póterit.
+
+###### Oratio
+
+DEus, qui virginálem aulam beátæ Maríæ, in qua habitáres, elígere dignátus es: da, quǽsumus; ut, sua nos defensióne munítos, jucúndos

@@ -26237,3 +26237,60 @@ ET unde hoc mihi, ut véniat Mater Dómini mei ad me? Hoc est, Quo tantum bonum 
 QUo témpore Petrus et Paulus tenebántur sub custódia Mamertíni in monte Tarpéjo, duo custódes, Procéssus et Martiniánus, cum áliis quadragínta, Apostolórum prædicatióne miraculísque commóti, se ad Jesu Christi fidem convertérunt; et, cum repénte fons e saxo ortus esset, baptizáti sunt. Qui permisérunt Apóstolis, ut, si vellent, abírent. Sed Paulínus mílitum præféctus, re cógnita, Procéssum et Martiniánum a suscépto consílio revocáre conátur. Qui, cum frustra tempus contéreret, ipsórum ora saxo contúndi dentésque commínui jubet. Mox ad Jovis státuam addúctos, cum eádem constántia veneratúros se idóla negárent, ímperat equúleo torquéri, candéntibus láminis ad eórum corpus admótis, ac cædi fústibus; quibus in cruciátibus una hæc illórum vox audiebátur: Sit nomen Dómini benedíctum. Dénique conjécti in cárcerem, paulo post extra Urbem via Aurélia secúri feriúntur. Quorum córpora Lucína in prǽdio suo sepelívit, sexto Nonas Júlii; quæ póstea, in Urbem transláta, in basílica Príncipis Apostolórum cóndita sunt.
 
 Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Añæ}
+
+**1** Exsúrgens María \* ábiit in montána cum festinatióne, in civitátem Juda.
+
+**2** Intrávit María \* in domum Zacharíæ, et salutávit Elísabeth.
+
+**3** Ut audívit \* salutatiónem Maríæ Elísabeth, exsultávit infans in útero ejus, et repléta est Spíritu Sancto, allelúja.
+
+**4** Benedícta \* tu inter mulíeres, et benedíctus fructus ventris tui.
+
+**5** Ex quo facta est \* vox salutatiónis tuæ in áuribus meis, exsultávit infans in útero meo, allelúja.
+
+#### Capitulum
+
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi.
+
+#### Hymnus
+
+O Gloriósa vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine:
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu regis alti jánua
+Et aula lucis fúlgida:
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Bened. Ant.** Cum audísset \* salutatiónem Maríæ Elísabeth, exclamávit voce magna et dixit: Unde hoc mihi, ut véniat Mater Dómini mei ad me? allelúja.
+
+###### Oratio
+
+FAmulis tuis, quǽsumus, Dómine, cæléstis grátiæ munus impertíre: ut, quibus beátæ Vírginis partus éxstitit salútis exórdium; Visitatiónis ejus votíva solémnitas, pacis tríbuat increméntum. Per Dóminum.
+
+{RUBRIC: Ad Laudes tantum fit Commemoratio Ss. Processi et Martiniani Mm.:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.

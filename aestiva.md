@@ -32563,3 +32563,29 @@ AUxílium tuum nobis, Dómine, quǽsumus, placátus impénde: et, intercedéntib
 {RUBRIC: In Vésperis Commemoratio sequéntis.}
 
 ---
+
+### Die 23 Augusti
+
+#### S. Philippi Benitii
+
+{RUBRIC: Confessoris [94] Duplex (m. t. v., nisi tamen alícubi I Vésperas habeat.)}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, qui per beátum Philíppum, Confessórem tuum, exímium nobis humilitátis exémplum tribuísti: da fámulis tuis próspera mundi ex ejus imitatióne despícere, et cæléstia semper inquírere. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+PHilíppus, ex nóbili Benitiórum família Floréntiæ natus, futúræ sanctitátis jam inde ab incunábulis indícium prǽbuit; vix enim quintum ætátis mensem ingréssus, linguam in voces mirífice solvit, hortatúsque fuit matrem ut Deíparæ Servis eleemósynam impertíret. Adoléscens, dum Parísiis litterárum stúdia cum pietátis ardóre conjúngeret, plúrimos ad cæléstis pátriæ desidérium inflammávit. Revérsus in pátriam, et singulári visióne a beatíssima Vírgine in Servórum suórum famíliam nuper institútam vocátus, in Senárii montis antrum concéssit, ubi ásperam quidem jugi córporis castigatióne, sed Christi Dómini cruciátuum meditatióne suávem vitam duxit. Indéque per univérsam pene Európam magnámque Asiæ partem, quam evangélicis prædicatiónibus obívit, sodalítia septem Dolórum Dei Matris instítuit, suúmque órdinem exímio virtútum exémplo propagávit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+DIvínæ caritátis et cathólicæ fídei dilatándæ ardóre veheménter accénsus, sui órdinis Generális relúctans atque invítus renuntiátus, fratres ad prædicándum Christi Evangélium in Scýthiam misit. Ipse vero plúrimas Itáliæ urbes concúrsans, gliscéntes in eis cívium discórdias compósuit, mul-

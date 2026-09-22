@@ -29153,3 +29153,53 @@ PEtrus quidem servabátur in cárcere; orátio autem fiébat sine intermissióne
 ET Petrus ad se revérsus dixit: Nunc scio vere quia misit Dóminus Angelum suum, et erípuit me de manu Heródis et de omni exspectatióne plebis Judæórum.
 
 {RUBRIC: ℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. Glória Patri. Nimis honoráti. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.}
+
+### In II Vesperis
+
+{RUBRIC: Antiphonæ, Capitulum et Hymnus ut in I Vesperis. 813}
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+**Ad Magnif. Ant.** Solve, \* jubénte Deo, terrárum, Petre, caténas, qui facis ut páteant cæléstia regna beátis.
+
+{RUBRIC: Et fit Com. S. Pauli Ap., ut in I Vesp. 814, vel ut in Laud. 820}
+
+{RUBRIC: Deinde Commem. sequentis ac S. Stephani I Papæ et Mart.}
+
+---
+
+### Die 2 Augusti
+
+#### S. Alfonsi Mariæ de Ligorio
+
+{RUBRIC: Ep., Conf. et Eccl. Doct.}
+
+{RUBRIC: Duplex [69]}
+
+{RUBRIC: (m. t. v., nisi tamen alicubi primas Vésperas hábeat, saltem a Capítulo.)}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Alfónse María, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio
+
+DEus, qui per beátum Alfónsum Maríam Confessórem tuum atque Pontíficem, animárum zelo succénsum, Ecclésiam tuam nova prole fœcundásti: quæsumus; ut, ejus salutáribus mónitis edócti et exémplis roboráti, ad te perveníre felíciter valeámus. Per Dóminum.
+
+{RUBRIC: Deinde Commem. S. Stephani I Papæ et Mart.:}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Stéphanum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiones Sapiéntiam. [87]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+ALfónsus María de Ligório, Neápoli nobílibus paréntibus natus, ab ineúnte ætáte non obscúra præbuit sanctitátis indícia. Eum adhuc infántem cum paréntes obtulíssent sancto Francísco de Hierónymo e Societáte Jesu, is bene precátus edíxit eúmdem ad nonagésimum usque

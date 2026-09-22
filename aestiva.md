@@ -32416,4 +32416,22 @@ ONus et jugum impósitum a Dómino sancto Joánni, ut Vírginis Matris curam gé
 
 #### Lectio viii
 
-NOn est avárus pius Dóminus gratiárum, dúmmodo ad thronum grátiæ ejus cum fide et fidúcia et non ficto corde, sed vero et sincéro acce-
+NOn est avárus pius Dóminus gratiárum, dúmmodo ad thronum grátiæ ejus cum fide et fidúcia et non ficto corde, sed vero et sincéro accedámus. Qui nos coherédes esse vóluit regni Patris sui, non dedignábitur certe nos coherédes habére amóris Matris suæ. Sed nec ipsa Virgo benigníssima gravábitur multitúdine filiórum, cum sinum amplíssimum hábeat et valde cúpiat, nullum períre ex his, quos Fílius suus tam pretióso sánguine et tam pretiósa morte redémit. Adeámus ergo cum fidúcia ad thronum grátiæ Christi, et suppliciter nec sine lácrimis ab eo petámus, ut de unoquóque nostrum Matri suæ dicat: Ecce fílius tuus; et unicuíque nostrum de Matre sua dicat: Ecce Mater tua.
+
+℟. Beátam me dicent omnes generatiónes: \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. Quia. Glória Patri. Quia.
+
+{RUBRIC: Si hódie fúerit Sábbatum, Lectio ix dícitur de Homilía Vigíliæ anticipátæ S. Bartholomǽi Ap., et fit ejus Commemoratio ad Laudes, ut die sequénti notátur; secus}
+
+{RUBRIC: Pro Ss. Timótheo, Hippólyto et Symphoriáno Mm.:}
+
+#### Lectio ix
+
+TImótheus Antiochénus, Romam véniens Melchíade summo Pontífice, cum per annum ibi Christi fidem prædicásset, a Tarquínio Urbis præfécto conjícitur in víncula; et, post diutúrnas cárceris ærúmnas, ad ídola perdúcitur, ut eis sacrifícet. Quam impietátem summa libertáte detestátus, acerbíssime cǽditur, et excarnificátum corpus viva calce perfúnditur. In quibus alíisque supplíciis constans Martyr, cápite pléctitur. Corpus via Ostiénsi prope sepúlcrum beáti Pauli Apóstoli sepelítur. Quo die étiam Alexándro imperatóre, apud Ostia Tiberína Hippólytus, epíscopus Portuénsis, ob præcláram fídei confessiónem mánibus pedibúsque ligátis, in altam fóveam aquis plenam præcipitátus, martýrio coronátus est, et ibídem a Christiánis sepúltus. Quo item die, Aureliáno imperatóre, propter eámdem fidem, Augustodúni, Symphoriánus adoléscens várie tortus est. Qui, dum ad últimum supplícium ducerétur, matrem ita clamántem áudiens: Nate, nate, meménto ætérnæ vitæ, cælum súspice, et ibi regnántem intuére; tibi enim vita non erípitur, sed mutátur in mélius; fórtiter Jesu Christi causa carnífici collum prǽbuit.
+
+Te Deum laudámus.
+
+{RUBRIC: Si autem ix Lectio alicújus Offícii commemoráti non sit dicénda, erit sequens}
+
+#### Lectio ix
+
+QUam bene nobis erit sub præsídio tantæ Matris? Quis nos detráhere audébit de sinu ejus? Quæ nos tentátio superáre póterit, confidéntes in patrocínio Matris Dei et nostræ? Neque nos primi érimus in tanti consecutióne benefícii. Multi nos præcessérunt; multi, inquam, ad singuláre et plane matérnum patrocí-

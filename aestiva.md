@@ -28388,3 +28388,47 @@ EXáudi, quæsumus, Dómine, preces nostras, quas in beáti Libórii Confessóri
 ###### Oratio C 2
 
 INdulgéntiam nobis, quæsumus, Dómine, beáta Christína Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis et tuæ professióne virtútis. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti.}
+
+---
+
+#### In Vigilia S. Jacobi Apostoli
+
+{RUBRIC: Omnia dicuntur ut pro Vigiliis App. in Communi. [1]}
+
+{RUBRIC: Et ad Laudes fit Commemoratio S. Christinæ Virg. et Mart.:}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas: invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+###### Oratio C 2
+
+INdulgéntiam nobis, quæsumus, Dómine, beáta Christína Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis et tuæ professióne virtútis. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti.}
+
+---
+
+## Die 25 Julii
+
+# S. Jacobi Apostoli
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Communi Apostolorum [3], præter ea quæ hic habentur propria.}
+
+### Oratio
+
+ESto, Dómine, plebi tuæ sanctificátor et custos: ut, Apóstoli tui Jacóbi muníta præsídiis, et conversatióne tibi pláceat, et secúra mente desérviat. Per Dóminum.
+
+{RUBRIC: In I Nocturno Lectiones Sic nos existimet, de eodem Communi. [9]}
+
+### In II Nocturno
+
+#### Lectio iv
+
+JAcóbus, Zebedǽi fílius, Joánnis Apóstoli germánus frater, Galilǽus, inter primos Apóstolos vocátus cum fratre, relíctis patre ac rétibus, secútus est Dóminum, et ambo ab ipso Jesu Boanérges, id est, tonítrui fílii sunt appelláti. Is unus fuit ex tribus Apóstolis, quos Salvátor máxime diléxit, et testes esse vóluit suæ transfiguratiónis, et interésse miráculo cum archisynagógi fíliam a mórtuis excitávit, et adésse cum secéssit in montem Olivéti, Patrem oratúrus, ántequam a Judǽis comprehenderétur.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti

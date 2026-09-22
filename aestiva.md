@@ -20522,4 +20522,20 @@ CAve tibi et atténde diligénter audítui tuo, quóniam cum subversióne tua á
 
 *Cap. 14, 1-17*
 
-BEátus vir, qui non est lapsus verbo ex ore suo et non est stimulátus in tristítia delícti; felix qui non hábuit ánimi sui tristítiam et non éxcidit a
+BEátus vir, qui non est lapsus verbo ex ore suo et non est stimulátus in tristítia delícti; felix qui non hábuit ánimi sui tristítiam et non éxcidit a spe sua. Viro cúpido et tenáci sine ratióne est substántia, et hómini lívido ad quid aurum? Qui acérvat ex ánimo suo injúste áliis cóngregat, et in bonis illíus álius luxuriábitur. Qui sibi nequam est, cui álii bonus erit? et non jucundábitur in bonis suis.
+
+℟. In princípio Deus ántequam terram fáceret, priúsquam abýssos constitúeret, priúsquam prodúceret fontes aquárum, \* Antequam montes collocaréntur, ante omnes colles generávit me Dóminus. ℣. Quando præparábat cælos, áderam, cum eo cuncta compónens. — Antequam.
+
+##### Lectio ii
+
+QUI sibi ínvidet, nihil est illo néquius, et hæc reddítio est malítiæ illíus; et, si bene fécerit, ignoránter et non volens facit et in novíssimo maniféstat malítiam suam. Nequam est óculus lívidi et avértens fáciem suam et despíciens ánimam suam. Insatiábilis óculus cúpidi in parte iniquitátis non satiábitur, donec consúmat arefáciens ánimam suam. Oculus malus ad mala et non satiábitur pane, sed índigens et in tristítia erit super mensam suam.
+
+℟. Gyrum cæli circuívi sola, et in flúctibus maris ambulávi, in omni gente et in omni pópulo primátum ténui: \* Superbórum et sublímium colla própria virtúte calcávi. ℣. Ego in altíssimis hábito, et thronus meus in colúmna nubis. — Superbórum.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Superbórum.}
+
+##### Lectio iii
+
+FIli, si habes, bénefac tecum et Deo dignas oblatiónes offer. Memor esto quóniam mors non tardat, et testaméntum inferórum, quia demonstrátum est tibi; testaméntum enim hujus mundi morte moriétur. Ante mortem bénefac amíco tuo et secúndum vires tuas expórrigens da páuperi. Non defraudéris a die bono, et partícula boni doni non te prætéreat. Nonne áliis relínques dolóres et labóres tuos in divisióne sortis? Da et áccipe et justífica ánimam tuam: ante óbitum tuum operáre justítiam; quóniam non est apud ínferos inveníre cibum.
+
+℟. Emítte, Dómine, sapiéntiam de sede magnitúdinis tuæ, ut mecum sit et mecum labóret: \* Ut sciam, quid accéptum sit coram te omni témpore. ℣. Da mihi, Dómine, sé-

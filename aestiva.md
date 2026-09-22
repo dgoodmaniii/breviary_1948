@@ -24413,3 +24413,25 @@ QUǽsumus, omnípotens Deus: ut nos gemináta lætítia hodiérnæ festivitátis
 **Oratio** Deus, qui præséntem. 666
 
 {RUBRIC: Ad Matutinum et relíquas Horas Antiphonæ, Psalmi et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; relíqua ut in Festo 646, præter Lectiónes, quæ in I Nocturno dicúntur de Scriptúra occurrénti cum suis Responsóriis de Témpore, in II et III ut hic habéntur.}
+
+##### In II Nocturno
+
+{RUBRIC: Sermo sancti Basilíi Magni}
+
+{RUBRIC: Homilia 2 in Psalm. 28}
+
+#### Lectio iv
+
+VOX Dómini super aquas. Quális vox? super quas aquas? Velut prophetíam accipiámus quod dictum est. Memíneris Joánnis, qui interrogátus a Judǽis: Tu quis es? quod respónsum dábimus iis, qui misérunt nos? respóndit: Ego vox clamántis in desérto. Igitur vox Dómini est Joánnes, Angelus a Deo missus ante fáciem Dómini, ut paráret Dómino plebem perféctam. Hæc ígitur vox super aquas, erat super Jordánem, in quo baptizábat prǽdicans pœniténtiæ baptísmum; et non solum in Jordáne, sed étiam in Ænon prope Salim, quia aquæ multæ erant illic.
+
+℟. Descéndit Angelus Dómini ad Zacharíam, dicens: Accipe púerum in senectúte tua: \* Et habébit nomen Joánnes Baptísta. ℣. Iste puer magnus coram Dómino: nam et manus ejus cum ipso est. — Et.
+
+#### Lectio v
+
+IGitur vox Dómini super aquas, Joánnes est super baptísmum. Illic et Deus majestátis intónuit; venit enim vox de cælo, dicens: Hic est Fílius meus diléctus, in quo mihi complácui. Tunc étiam Dóminus super aquas multas dignátus est descéndere in baptísma Joánnis, ut compléret omnem justítiam quæ in lege est. Vox Dómini in virtúte. Auferet enim debilitátes pópuli per pœniténtiæ baptísmum, per ipsum baptízans in aqua ad pœniténtiam. In virtúte est vox, dicens: Pœniténtiam ágite, appropinquávit enim regnum cælórum; et: Fácite fructus dignos pœniténtiæ.
+
+℟. Hic est præcúrsor diléctus, et lucérna lucens ante Dóminum: \* Ipse est enim Joánnes, qui viam Dómino præparávit in erémo; sed et Agnum Dei demonstrávit, et illumínávit mentes hóminum. ℣. Ipse præíbit ante illum in spíritu et virtúte Elíæ. — Ipse.
+
+#### Lectio vi
+
+VOX Dómini confringéntis cedros. Potest dici quod, parans Dómino pópulum perféctum, elátas impietátes et contra cognitiónem Dei exaltátas confríngens ac cónterens, oblíqua faciébat recta. Qui enim omnem collem ac montem humíliat, hic erat qui confringébat cedros, et

@@ -14141,3 +14141,39 @@ DOMINUS autem benedíxit novíssimis Job magis quam princípio ejus; et facta su
 TOBIAS ex tribu et civitáte Néphthali, quæ est in superióribus Galilǽæ supra Naásson, post viam quæ ducit ad Occidéntem in sinístro habens civitátem Sephet, cum captus esset in diébus Salmánasar regis Assyriórum, in captivitáte tamen pósitus viam veritátis non deséruit; ita ut ómnia, quæ habére póterat, quotídie concaptívis frátribus, qui erant ex ejus génere, impertíret. Cumque esset júnior ómnibus in tribu Néphthali, nihil tamen puerile gessit in ópere.
 
 ℟. Peto, Dómine, ut de vínculo improperii hujus absólvas me, aut certe désuper terram erípias me: \* Ne reminiscáris delícta mea vel paréntum meórum, neque vindíctam sumas de peccátis meis: quia éruis sustinéntes te, Dómine. ℣. Ómnia enim judícia tua justa sunt, et omnes viæ tuæ misericórdia et véritas: et nunc, Dómine, meménto mei. — Ne.
+
+##### Lectio ii
+
+DENIQUE, cum irent omnes ad vítulos áureos, quos Jeróboam fécerat rex Israël, hic solus fugiébat consórtia ómnium; sed pergébat in Jerúsalem ad templum Dómini et ibi adorábat Dóminum Deum Israël, ómnia primitíva sua et décimas suas fidéliter ófferens; ita ut in tértio anno prosélytis et ádvenis ministráret omnem decimatiónem. Hæc et his simília secúndum legem Dei puérulus observábat. Cum vero factus esset vir, accépit uxórem Annam de tribu sua genuítque ex ea fílium, nomen suum impónens ei. Quem ab infántia timére Deum dócuit et abstinére ab omni peccáto.
+
+℟. Omni témpore bénedic Deum, et pete ab eo ut vias tuas dírigat, \* Et in omni témpore consília tua in ipso permáneant. ℣. Inquíre ut fácias quæ plácita sunt illi in veritáte, et in tota virtúte tua. — Et.
+
+##### Lectio iii
+
+IGITUR cum per captivitátem devenísset cum uxóre sua et fílio in civitátem Níniven cum omni tribu sua, cum omnes éderent ex cibis gentílium, iste custodívit ánimam suam et numquam contamínátus est in escis eórum. Et quóniam memor fuit Dómini in toto corde suo, dedit illi Deus grátiam in conspéctu Salmánasar regis, et dedit illi potestátem quocúmque vellet ire, habens libertátem quæcúmque fácere voluísset. Pergébat ergo ad omnes, qui erant in captivitáte, et mónita salútis dabat eis.
+
+℟. Memor esto, fili, quóniam páuperem vitam gérimus: \* Habébis multa bona, si timúeris Deum. ℣. In mente habéto eum, et cave nequándo prætermíttas præcépta ejus. — Habébis. Glória Patri. Habébis.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Leónis Papæ}
+
+{RUBRIC: Sermo 9 de jejúnio 7 mensis}
+
+##### Lectio iv
+
+SCIO quidem, dilectíssimi, plúrimos vestrum ita in iis, quæ ad observántiam christiánæ fídei pértinent, esse devótos, ut nostris cohortatiónibus non indígeant admonéri. Quod enim dudum et tradítio decrévit, et consuetúdo firmávit; nec erudítio ignórat, nec pietas prætermíttit. Sed quia sacerdotális offícii est, erga omnes Ecclésiæ fílios curam habére commúnem, in id quod et rúdibus prosit et doctis, quos simul dilígimus, páriter incitámus; ut jejúnium, quod nobis séptimi mensis recúrsus indícit, fide álacri per castigatiónem ánimi et córporis celebrémus.
+
+℟. Sufficiébat nobis paupértas nostra, ut divítiæ computaréntur: numquam fuísset pecúnia ipsa, pro qua misísti fílium nostrum, \* Báculum senectútis nostræ! ℣. Heu me, fili mi, ut quid te mísimus peregrinári, lumen oculórum nostrórum? — Báculum.
+
+##### Lectio v
+
+IDEO enim ipsa continéntiæ observántia quátuor est assignáta tempóribus, ut in idípsum totíus anni redeúnte decúrsu, cognoscerémus nos indesinénter purificatiónibus indigére; semperque esse niténdum, dum hujus vitæ varietáte jactámur, ut peccátum, quod fragilitáte carnis et cupiditátum pollutióne contráhitur, jejúniis atque eleemósynis deleátur. Esuriámus páululum, dilectíssimi, et aliquántulum, quod juvándis possit prodésse paupéribus, nostræ consuetúdini subtrahámus.
+
+℟. Benedícite Deum cæli et coram ómnibus vivéntibus confitémini ei, \* Quia fecit vobíscum misericórdiam suam. ℣. Ipsum benedícite et cantáte illi: et enarráte ómnia mirabília ejus. — Quia.
+
+##### Lectio vi
+
+ELECTÉTUR consciéntia benignórum frúctibus largitátis: et gáudia tríbuens, quo es lætificándus, accípies. Diléctio próximi, diléctio Dei est, qui plenitúdinem legis et prophetárum in hac gémina caritátis unitáte constítuit; ut nemo ambígeret, Deo se offérre, quod hómini contulísset, dicénte Dómino Salvatóre, cum de aléndis juvandísque paupéribus loquerétur: Quod uni eórum fecísti, mihi fecísti. Quarta ígitur et sexta féria jejunémus; sábbato vero apud beátum Petrum Apóstolum vigílias celebrémus: cujus nos méritis et oratiónibus crédimus adjuvándos, ut misericórdi Deo jejúnio nostro et devotióne placeámus.
+
+℟. Tempus est ut revértar ad eum qui misit me; \* Vos autem benedícite Deum et enarráte ómnia mirabília ejus. ℣. Confitémini ei coram ómnibus vivéntibus, quia fecit vobíscum misericórdiam suam. — Vos. Glória Patri. Vos.

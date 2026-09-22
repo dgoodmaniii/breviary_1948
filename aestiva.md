@@ -31039,3 +31039,68 @@ Te Deum laudámus.
 **2** Lauréntius \* bonum opus operátus est, qui per signum crucis cæcos illuminávit.
 
 **3** Adhǽsit \* ánima mea post te, quia caro mea igne cremáta est pro te, Deus meus.
+
+**4** Misit Dóminus \* Angelum suum, et liberávit me de médio ignis, et non sum æstuátus.
+
+**5** Beátus Lauréntius \* orábat dicens: Grátias tibi ago, Dómine, quia jánuas tuas íngredi mérui.
+
+#### Capitulum
+
+*2 Cor. 9, 6*
+
+FRatres: Qui parce séminat, parce et metet; et qui séminat in benedictiónibus, de benedictiónibus et metet.
+
+#### Hymnus
+
+INvícte Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tædium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis:
+Nos solve vinclis sǽculi,
+Dono supérni Núminis.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum.
+Amen.
+
+℣. Dispérsit, dedit paupéribus. ℟. Justítia ejus manet in sǽculum sǽculi.
+
+**Ad Bened. Ant.** In craticula \* te Deum non negávi, et ad ignem applicátus te Christum conféssus sum; probásti cor meum, et visitásti nocte; igne me examinásti, et non est invénta in me iníquitas.
+
+#### Oratio
+
+DA nobis, quǽsumus, omnípotens Deus, vitiórum nostrórum flammas exstínguere: qui beáto Lauréntio tribuísti tormentórum suórum incéndia superáre. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+### Ad Primam
+
+**Ant.** Lauréntius \* ingréssus, {RUBRIC: ut supra. 878}
+
+### Ad Tertiam
+
+**Ant.** Lauréntius \* bonum, {RUBRIC: ut supra. 878}
+
+**Capit.** Fratres, {RUBRIC: ut supra.}
+
+{RUBRIC: ℟. br. Glória et honóre \* Coronásti eum, Dómine. Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Coronásti. Glória Patri. Glória et. ℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.}
+
+### Ad Sextam
+
+**Ant.** Adhǽsit \* ánima, {RUBRIC: ut supra. 878}
+
+#### Capitulum
+
+*2 Cor. 9, 7*
+
+UNusquísque prout destinávit in corde suo, non ex tristítia aut ex necessitáte; hílarem enim datórem díligit Deus.

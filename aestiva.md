@@ -33051,3 +33051,65 @@ Dirupísti víncula mea: \* tibi sacrificábo hóstiam laudis, et nomen Dómini 
 Vota mea Dómino reddam in conspéctu omnis pópuli ejus: \* in átriis domus Dómini, in médio tui, Jerúsalem.
 
 **Ant.** Da mihi in disco caput Joánnis Baptístæ. Et contristátus est rex propter jusjurándum.
+
+#### Capitulum
+
+*Jac. 1, 12*
+
+BEátus vir, qui suffert tentatiónem: quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+#### Hymnus
+
+DEus, tuórum mílitum
+Sors, et coróna, prǽmium,
+Laudes canéntes Mártyris
+Absólve nexu críminis.
+
+Hic nempe mundi gáudia,
+Et blanda fraudum pábula
+Imbúta felle députans,
+Pervénit ad cæléstia.
+
+Pœnas cucúrrit fórtiter,
+Et sústulit viríliter,
+Fundénsque pro te sánguinem,
+Ætérna dona póssidet.
+
+Ob hoc precátu súpplici
+Te póscimus, piíssime:
+In hoc triúmpho Mártyris
+Dimítte noxam sérvulis.
+
+\* Laus et perénnis glória
+Patri sit, atque Fílio,
+Sancto simul Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Glória et honóre coronásti eum, Dómine. ℟. Et constituísti eum super ópera mánuum tuárum.
+
+**Ad Magnif. Ant.** Misso Heródes \* spiculatóre, præcépit amputári caput Joánnis in cárcere. Quo audíto, discípuli ejus venérunt, et tulérunt corpus ejus, et posuérunt illud in monuménto.
+
+### In II Vesperis
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+**Ad Magnif. Ant.** Misit rex incrédulus \* minístros detestábiles, et amputári jussit caput Joánnis Baptístæ.
+
+#### Oratio
+
+SAncti Joánnis Baptístæ Præcursóris et Mártyris tui, quǽsumus, Dómine, veneránda festívitas: salutáris auxílii nobis prǽstet efféctum: Qui vivis.
+
+{RUBRIC: Et fit Commem. præced.:}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Augustíne, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+#### Oratio
+
+ADésto supplicatiónibus nostris, omnípotens Deus: et, quibus fidúciam sperándæ pietátis indúlges, intercedénte beáto Augustíno Confessóre tuo atque Pontífice, consuétæ misericórdiæ tríbue benígnus efféctum. (Per Dóminum.)
+
+{RUBRIC: Deinde Commem. S. Sabínæ Mart.:}
+
+**Ant.** Símile est regnum cælórum hómini negotia-

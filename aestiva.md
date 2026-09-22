@@ -19736,4 +19736,26 @@ POssédi servos et ancíllas multámque famíliam hábui, arménta quoque et mag
 
 ##### Lectio iii
 
-ET ómnia, quæ desideravérunt óculi mei, non negávi eis, nec prohíbui
+ET ómnia, quæ desideravérunt óculi mei, non negávi eis, nec prohíbui cor meum, quin omni voluptáte fruerétur et oblectáret se in his quæ præparáveram; et hanc ratus sum partem meam si úterer labóre meo. Cumque me convertíssem ad univérsa ópera, quæ fécerant manus meæ, et ad labóres in quibus frustra sudáveram, vidi in ómnibus vanitátem et afflictiónem ánimi et nihil permanére sub sole.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro Ecclesiástæ}
+
+##### Lectio i
+
+*Cap. 3, 1-17*
+
+OMnia tempus habent, et suis spátiis tránseunt univérsa sub cælo. Tempus nascéndi et tempus moriéndi, tempus plantándi et tempus evelléndi quod plantátum est, tempus occidéndi et tempus sanándi, tempus destruéndi et tempus ædificándi, tempus flendi et tempus ridéndi, tempus plangéndi et tempus saltándi, tempus spargéndi lápides et tempus colligéndi, tempus amplexándi et tempus longe fíeri ab ampléxibus, tempus acquiréndi et tempus perdéndi, tempus custodiéndi et tempus abjiciéndi, tempus scindéndi et tempus consuéndi, tempus tacéndi et tempus loquéndi, tempus dilectiónis et tempus ódii, tempus belli et tempus pacis.
+
+℟. Præbe, fili, cor mihi, et óculi tui vias meas custódiant: \* Ut addátur grátia cápiti tuo. ℣. Atténde, fili mi, sapiéntiam meam et ad elóquium meum inclína aurem tuam. — Ut.
+
+##### Lectio ii
+
+QUid habet ámplius homo de labóre suo? Vidi afflictiónem, quam dedit Deus fíliis hóminum, ut distendántur in ea. Cuncta fecit bona in témpore suo et mundum trádidit disputatióni eórum, ut non invéniat homo opus, quod operátus est Deus ab inítio usque ad finem. Et cognóvi quod non esset mélius nisi lætári et fácere bene in vita sua; omnis enim homo qui cómedit et bibit et videt bonum de labóre suo, hoc donum Dei est.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus

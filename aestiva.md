@@ -21880,4 +21880,26 @@ SCiéntiæ ac pietátis laude Bedæ nomen sic brevi cláruit, ut sanctus Sérgiu
 
 #### Lectio ix
 
-BEda présbyter, Girvi in Británniæ et Scótiæ fínibus ortus est. Mónachus factus, vitam sic instítuit, ut, dum se ártium et doctrinárum stúdiis totum impénderet, nihil umquam de regulári disciplína remítteret. Nullum fuit doctrínæ genus, in quo non esset diligentíssime versátus; sed præcípua illi cura fuit divinárum Scripturárum meditátio, ita ut, sacerdótio initiátus, sacros explanáre libros aggrés-
+BEda présbyter, Girvi in Británniæ et Scótiæ fínibus ortus est. Mónachus factus, vitam sic instítuit, ut, dum se ártium et doctrinárum stúdiis totum impénderet, nihil umquam de regulári disciplína remítteret. Nullum fuit doctrínæ genus, in quo non esset diligentíssime versátus; sed præcípua illi cura fuit divinárum Scripturárum meditátio, ita ut, sacerdótio initiátus, sacros explanáre libros aggréssus sit; in quo sanctórum Patrum doctrínis ádeo inhǽsit, ut nihil proférret nisi illórum judício comprobátum, eorúmdem étiam fere verbis usus. Otium perósus semper, ex lectióne ad oratiónem transíbat, ac vicíssim ex oratióne ad lectiónem. Emendándis fidélium móribus, fídei vindicándæ atque asseréndæ libros plures conscrípsit, quibus tantam sui apud omnes opiniónem fecit, ut ejus scripta, eo adhuc vivénte, públice in ecclésiis legeréntur. Ætáte demum et labóribus fractus, pie obdormívit in Dómino. Eum Leo décimus tértius universális Ecclésiæ Doctórem declarávit.
+
+Te Deum laudámus.
+
+---
+
+##### In III Nocturno
+
+{RUBRIC: Si ix Lectio alicújus Offícii commemoráti dicénda non sit, ex vii Lectióne fit étiam viii incipiéndo a signo ¶ et Lectio viii légitur ut ix.}
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+#### Lectio vii
+
+*Cap. 5, 13-19*
+
+IN illo témpore: Dixit Jesus discípulis suis: Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+Homilía sancti Bedæ Venerábilis Presbýteri
+
+**In Ev.** Vos estis sal terræ
+
+IN terra, humána natúra; in sale, sapiéntia verbis significátur. Salis enim natúra, terra efficítur infructuósa; unde quasdam urbes légimus, victórum ira, sale seminátas. Et hoc cónvenit apostólicæ doctrínæ, ut sale sapiéntiæ compéscat in terra humánæ carnis luxum sæculi aut fœditátem vitiórum germináre. Quod si sal evanúerit, in quo saliétur? Id est, si vos, per quos condiéndi sunt pópuli, propter metum persecutiónum, aut terrórem, amiséritis regna cælórum, extra Ecclésiam pósiti, inimicórum oppróbria sustinétis non dúbium. ¶ Vos estis lux mundi: id est, vos, quia vera luce illumináti estis, lux eis qui in mundo sunt, esse debétis. Non potest cívitas abscóndi supra montem pósita: id est, apostólica doctrína super Christum fundáta, sive Ecclésia super Christum ex multis géntibus fídei unitáte constrúcta et caritátis bitúmine conglutináta; quæ sit tuta intrántibus, et laboriósa adeúntibus, habitatóres

@@ -31802,4 +31802,44 @@ IGitur ex stirpe Nathan, fílii David, Levi génuit Melchi et Panthérem. Panthe
 
 #### Lectio ix
 
-POrro Heli, qui ex tribu Nathan erat, nullis líberis suscéptis, e vita migrávit; eáque de causa Jacob ipsíus frater, qui ex tribu Salomónis flúxerat, ipsíus uxórem accépit, fratríque suo semen excitávit ac Joséphum progénuit. Joseph ítaque natúra quidem fílius Jacob erat, a Salomóne oriúndus; legis autem ratióne patrem ha-
+POrro Heli, qui ex tribu Nathan erat, nullis líberis suscéptis, e vita migrávit; eáque de causa Jacob ipsíus frater, qui ex tribu Salomónis flúxerat, ipsíus uxórem accépit, fratríque suo semen excitávit ac Joséphum progénuit. Joseph ítaque natúra quidem fílius Jacob erat, a Salomóne oriúndus; legis autem ratióne patrem habébat Heli, ex Nathan oriúndum. Quæ cum ita sint, Jóachim lectíssimam illam ac summis láudibus dignam mulíerem Annam matrimónio sibi copulávit. Verum, quemádmodum prisca illa Anna, cum sterilitátis morbo laboráret, per oratiónem ac promissiónem, Samuélem procreávit; eódem modo hæc étiam, per obsecratiónem et promissiónem, Dei Genitrícem a Deo accépit, ut ne hic quoque cuíquam ex illústribus matrónis céderet. Itaque grátia (nam hoc sonat Annæ vocábulum) Dóminam parit (id enim Maríæ nómine significátur). Vere étenim rerum ómnium conditárum Dómina facta est, cum Creatóris Mater éxstitit.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+℣. Potens in terra erit semen ejus. ℟. Generátio rectórum benedicétur.
+
+**Ad Bened. Ant.** Laudémus \* virum gloriósum in generatióne sua, quia benedictiónem ómnium géntium dedit illi Dóminus, et testaméntum suum confirmávit super caput ejus.
+
+### Oratio
+
+DEus, qui præ ómnibus Sanctis tuis beátum Jóachim Genitrícis Fílii tui patrem esse voluísti: concéde, quǽsumus; ut, cujus festa venerámur, ejus quoque perpétuo patrocínia sentiámus. Per eúmdem Dóminum.
+
+### In II Vesperis
+
+{RUBRIC: ℣. Potens et ad Magnif. Ant. Laudémus, ut supra ad Laudes.}
+
+{RUBRIC: Et fit Commemoratio tantum sequentis.}
+
+---
+
+### Die 17 Augusti
+
+#### S. Hyacinthi
+
+{RUBRIC: Conf. [94] Duplex (m. t. v.)}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio C 1
+
+DEus, qui nos beáti Hyacínthi Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+YAcínthus Polónus, nobílibus et christiánis paréntibus, in Camiénsi villa episcopátus Vratislaviénsis natus est. A puerítia lítteris instrúctus, post datam ju-

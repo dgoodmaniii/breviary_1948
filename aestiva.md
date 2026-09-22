@@ -27784,4 +27784,34 @@ UBI ergo cáritas est, quid est, quod possit deésse? ubi autem non est, quid es
 
 #### Lectio ix
 
-SYmphorósa Tiburtína, Getúlii Mártyris uxor, ex eo septem fílios péperit, Crescéntium, Juliánum, Nemésium, Primitívum, Justínum, Stácteum et Eugénium; qui omnes propter christiánæ fídei professiónem una cum matre, Hadriáno imperatóre, comprehénsi sunt. Quorum píetas, multis variísque tentáta supplíciis, cum stábilis permanéret, mater, quæ fíliis fídei magístra fúerat, dux eísdem ad martýrium éxstitit. Nam, saxo ad collum alligáto, in profluéntem dejícitur: cujus corpus, conquisítum a fratre ejus Eugénio, sepelítur. Postrídie ejus diéi, qui fuit décimo quinto Kaléndas Augústi, septem fratres sínguli ad palum alligáti, várie sunt interfécti: Crescéntio guttur ferro transfígitur; Juliáno pectus confóditur; Nemésio cor transverberátur; Primitívo trajícitur umbilícus; Justínus membrátim secátur; Stácteus telis confígitur; Eugénius a péctore in duas partes divíditur. Ita octo hóstiæ Deo
+SYmphorósa Tiburtína, Getúlii Mártyris uxor, ex eo septem fílios péperit, Crescéntium, Juliánum, Nemésium, Primitívum, Justínum, Stácteum et Eugénium; qui omnes propter christiánæ fídei professiónem una cum matre, Hadriáno imperatóre, comprehénsi sunt. Quorum píetas, multis variísque tentáta supplíciis, cum stábilis permanéret, mater, quæ fíliis fídei magístra fúerat, dux eísdem ad martýrium éxstitit. Nam, saxo ad collum alligáto, in profluéntem dejícitur: cujus corpus, conquisítum a fratre ejus Eugénio, sepelítur. Postrídie ejus diéi, qui fuit décimo quinto Kaléndas Augústi, septem fratres sínguli ad palum alligáti, várie sunt interfécti: Crescéntio guttur ferro transfígitur; Juliáno pectus confóditur; Nemésio cor transverberátur; Primitívo trajícitur umbilícus; Justínus membrátim secátur; Stácteus telis confígitur; Eugénius a péctore in duas partes divíditur. Ita octo hóstiæ Deo gratíssimæ sunt immolátæ. Córpora in altíssimam fóveam projécta sunt via Tiburtína, nono ab Urbe lápide; quæ, póstea Romam translata, cóndita sunt in ecclésia sancti Angeli in piscína.
+
+Te Deum laudámus.
+
+{RUBRIC: Si autem ix Lectio alicujus Officii commemorati non sit dicenda, erit sequens}
+
+#### Lectio ix
+
+HOC ergo præcéptum Dómini teneámus, ut nos ínvicem diligámus, et quidquid áliud præcépit, faciémus; quóniam quidquid est áliud, hic habémus. Discérnitur quippe ista diléctio ab illa dilectióne, qua se ínvicem díligunt hómines; nam, ut discernerétur, adjúnctum est: Sicut diléxi vos. Ut quid enim díligit nos Christus, nisi ut regnáre possímus cum Christo? Ad hoc ergo et nos ínvicem diligámus, ut dilectiónem nostram discernámus a céteris, qui non ad hoc se ínvicem díligunt, quia nec díligunt. Qui autem se propter habéndum Deum díligunt, ipsi se díligunt. Ergo, ut se díligant, Deum díligunt. Non est hæc diléctio in ómnibus homínibus: pauci se proptérea díligunt, ut sit Deus ómnia in ómnibus. Te Deum.
+
+##### Ad Laudes
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+###### Oratio
+
+DEus, qui sanctum Camíllum, ad animárum in extrémo agóne luctántium subsídium, singulári caritátis prærogatíva decorásti: ejus, quæsumus, méritis spíritum nobis tuæ dilectiónis infúnde; ut in hora éxitus nostri hostem víncere, et ad cæléstem mereámur corónam perveníre. Per Dóminum.
+
+{RUBRIC: Et fit Com. Ss. Symphorosæ et septem Filiorum ejus Mm.:}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+###### Oratio
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum Symphorósæ et filiórum ejus natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+{RUBRIC: Vesperæ a Capítulo de seq., Commemoratio præcedentis.}

@@ -22445,3 +22445,33 @@ Te Deum laudámus.
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+###### Oratio
+
+DEus, qui beátum Norbértum Confessórem tuum atque Pontíficem, verbi tui præcónem exímium effecísti, et per eum Ecclésiam tuam nova prole fœcundásti: præsta quǽsumus, ut ejúsdem suffragántibus méritis, quod ore simul et ópere dócuit, te adjuvánte exercére valeámus. Per Dóminum.
+
+##### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum: stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+---
+
+### Die 9 Junii
+
+#### Ss. Primi et Feliciani
+
+{RUBRIC: Martyrum [49] Simplex}
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+###### Oratio
+
+FAC nos, quǽsumus, Dómine, sanctórum Mártyrum tuórum Primi et Feliciáni semper festa sectári: quorum suffrágiis protectiónis tuæ dona sentiámus. Per Dóminum.
+
+#### Lectio iii
+
+PRimus et Feliciánus fratres, in persecutióne Diocletiáni et Maximiáni accusáti christiánæ religiónis, in víncula conjiciúntur; quibus solúti, inde eripiúntur ab Angelo. Mox ad prætórem addúcti, cum christiánam fidem acérrime tueréntur, alter ab áltero distrácti sunt; ac primum várie tentáta est constántia Feliciáni. Sed, cum suasóres impietátis se posse quidquam verbis profícere desperárent, affíxis stípiti mánibus ejus et pédibus, ipsum sine cibo et potu inde tríduum pendéntem reliquérunt. Postrídie ejus diéi, prætor vocátum ad se Primum sic affátur: Vides quanto sit prudéntior, quam tu, frater tuus, qui obsecútus imperatóribus, apud ipsos est honorátus? Quem si tu quoque imitári volúeris, párticeps eris ejus honóris et grátiæ. Cui Primus: Quid factum sit fratri meo, cognóvi ex Angelo. Utinam, quemádmodum sum cum eo voluntáte conjunctíssimus, sic ab eódem ne martýrio disjúngar. Quo dicto

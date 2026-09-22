@@ -20470,4 +20470,28 @@ JUdex sápiens judicábit pópulum suum, et principátus sensáti stábilis erit
 
 ##### Lectio ii
 
-OMnis injúriæ próximi ne memíneris et nihil agas in opéribus injúriæ. Odíbilis coram Deo est et homínibus supérbia, et exsecrábilis omnis iníquitas géntium. Regnum a gente in gentem transfértur propter injustítias et injúrias et contumélias et divérsos dolos. Aváro autem nihil
+OMnis injúriæ próximi ne memíneris et nihil agas in opéribus injúriæ. Odíbilis coram Deo est et homínibus supérbia, et exsecrábilis omnis iníquitas géntium. Regnum a gente in gentem transfértur propter injustítias et injúrias et contumélias et divérsos dolos. Aváro autem nihil est scelestius. Quid supérbit terra et cinis? Nihil est iníquius quam amáre pecúniam; hic enim et ánimam suam venálem habet, quóniam in vita sua projécit íntima sua.
+
+℟. Inítium sapiéntiæ timor Dómini: \* Intelléctus bonus ómnibus faciéntibus eum; laudátio ejus manet in sæculum sæculi. ℣. Diléctio illíus custódia legum est: quia omnis sapiéntia timor Dómini. — Intelléctus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Intelléctus.}
+
+##### Lectio iii
+
+OMnis potentátus brevis vita: languor prolíxior gravat médicum, brevem languórem præcídit médicus; sic et rex hódie est et cras moriétur: cum enim moriétur homo, hereditábit serpéntes et béstias et vermes. Inítium supérbiæ hóminis apostatáre a Deo; quóniam ab eo, qui fecit illum, recéssit cor ejus, quóniam inítium omnis peccáti est supérbia. Qui tenúerit illam adimplébitur maledíctis, et subvértet eum in finem. Proptérea exhonorávit Dóminus convéntus malórum et destrúxit eos usque in finem.
+
+℟. Verbum iníquum et dolósum longe fac a me, Dómine: \* Divítias et paupertátem ne déderis mihi, sed tantum víctui meo tríbue necessária. ℣. Duo rogávi te, ne déneges mihi, ántequam móriar. — Divítias. Glória Patri. Divítias.
+
+---
+
+## Feria Quarta
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 13, 1-6*
+
+QUI tetígerit picem, inquinábitur ab ea; et, qui communicáverit supérbo, induet supérbiam. Pondus super se tollet qui honestióri se commúnicat, et ditióri te ne sócius fúeris. Quid communicábit cácabus ad ollam? quando enim se colliserint, confringétur. Dives injúste egit et fremet, pauper autem læsus tacébit. Si largítus fúeris, assúmet te, et, si non habúeris, derelínquet te. Si habes, convívet tecum et evacuábit te, et ipse non dolébit super te.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne

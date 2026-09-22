@@ -33311,4 +33311,48 @@ CIbávit illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potáv
 
 JUstus cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
 
-{RUBRIC: ℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória
+{RUBRIC: ℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna. ℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.}
+
+### In II Vesperis
+
+{RUBRIC: Omnia ut in I Vesperis 941, præter sequéntia:}
+
+{RUBRIC: Psalmi ut in I Vesperis de Communi App. [3], sed loco última dícitur Ps. 115 Crédidi, ut supra notátur. 941}
+
+℣. Justus ut palma.
+
+**Ad Magnif. Ant.** Misit rex incrédulus \* minístros detestábiles, et amputári jussit caput Joánnis Baptístæ.
+
+{RUBRIC: Et fit Com. sequéntis ac Ss. Felícis et Adáucti Martyrum, ut infra.}
+
+---
+
+### Die 30 Augusti
+
+#### S. Rosæ a S. Maria
+
+{RUBRIC: Virg. Limánæ [111] Duplex}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+BOnórum ómnium largítor, omnípotens Deus, qui beátam Rosam, cæléstis grátiæ rore prævéntam, virginitátis et patiéntiæ decóre Indis floréscere voluísti: da nobis fámulis tuis; ut in odórem suavitátis ejus curréntes, Christi bonus odor éffici mereámur. (Qui tecum vivit.)
+
+{RUBRIC: Deinde Commem. Ss. Felícis et Adáucti Mm.:}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+###### Oratio
+
+MAjestátem tuam, Dómine, súpplices exorámus: ut, sicut nos júgiter Sanctórum tuórum commemoratióne lætíficas; ita semper supplicatióne deféndas. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+PRimus Américæ meridionális flos sanctitátis, virgo Rosa, christiánis paréntibus Limæ progénita, mox ab incunábulis cláruit futúræ sanctimóniæ indíciis. Nam vultus infántis mirabíliter in rosæ effígiem transfigurátus, huic nómini occasiónem dedit; cui póstea Virgo Deípara cognómen adjécit, jubens vocári deínceps Rosam a sancta María. Quinquénnis, votum

@@ -28611,4 +28611,16 @@ VIctor in África natus, Severo imperatóre rexit Ecclésiam. Confirmávit decr�
 
 #### Lectio vi
 
-INnocéntius Albanénsis, sancti Hierónymi et Augustíni ætáte flóruit. De quo ille ad Demetríadem vírginem: Sancti Innocéntii, qui apostólicæ cáthedræ et beátæ memóriæ
+INnocéntius Albanénsis, sancti Hierónymi et Augustíni ætáte flóruit. De quo ille ad Demetríadem vírginem: Sancti Innocéntii, qui apostólicæ cáthedræ et beátæ memóriæ Anastásii successor et fílius est, téneas fidem, nec peregrínam, quamvis tibi prudens callídaque videáris, doctrínam recípias. Eum, tamquam justum Lot subtráctum Dei providéntia, ad Ravénnam servátum fuísse, scribit Orósius, ne Románi pópuli vidéret excídium. Is, Pelágio et Cæléstio damnátis, contra eórum hǽresim decrétum fecit, ut párvuli, ex christiána étiam mulíere nati, per baptísmum renásci debérent; ut in eis regeneratióne mundétur, quod generatióne contraxérunt. Probávit étiam, ut Sábbato, ob memóriam Christi Dómini sepultúræ jejúnium servarétur. Sedit annos quíndecim, mensem unum, dies decem. Quátuor ordinatiónibus, mense Decémbri, creávit presbýteros trigínta, diáconos quíndecim, epíscopos per divérsa loca quinquagínta quátuor. Sepúltus est in cœmetério ad Ursum pileátum.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+NAzárius, a beáto Lino Papa baptizátus, cum in Gálliam proféctus esset, ibi Celsum púerum, a se christiánis præcéptis prius instrúctum, baptizávit. Póstea Mediolánum ambo veniéntes, cum ibi Christi fidem disseminárent, ab Anolíno præfécto, constantíssime Christum Deum confiténtes, cápite plectúntur; quorum córpora a beáto Ambrósio invénta sunt. In eúmdem diem íncidit memória sancti Victóris Papæ, qui Severo imperatóre rexit Ecclésiam, Theódotum coriárium confutávit, scripsítque de quæstióne Paschæ. Martýrio coronátus, sepúltus est in Vaticáno quinto Kaléndas Augústi. Eódem étiam die recólitur sanctus Innocéntius Papa, qui, Pelágio et Cæléstio damnátis, contra eórum hǽresim decrétum fecit. Cujus corpus sepúltum est in cœmetério ad Ursum pileátum.
+
+Te Deum laudámus.

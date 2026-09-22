@@ -21034,4 +21034,20 @@ QUid est, quod Creátor ómnium Deus, cum surdum et mutum sanáre voluísset, in
 
 ### Ante Dominicam I Augusti
 
-℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram
+℟. Peccávi super númerum arénæ maris, et multiplicáta sunt peccáta mea; et non sum dignus vidére altitúdinem cæli præ multitúdine iniquitátis meæ: quóniam irritávi iram tuam, \* Et malum coram te feci. ℣. Quóniam iniquitátem meam ego cognósco: et delíctum meum contra me est semper, quia tibi soli peccávi. — Et malum coram.
+
+### In Dominicis Augusti
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et ánimo irreverénti.
+
+##### Lectio viii
+
+QUid est vero, quod éxspuens linguam ejus tétigit? Salíva nobis est ex ore Redemptóris, accépta sapiéntia in elóquio divíno. Salíva quippe ex cápite défluit in ore. Ea ergo sapiéntia, quæ ipse est, dum lingua nostra tángitur, mox ad prædicatiónis verba formátur. Qui suspíciens in cælum, ingémuit: non quod ipse necessárium gémitum habéret, qui dabat quod postulábat; sed nos ad eum gémere, qui cælo præsídet, dócuit: ut et aures nostræ per donum Spíritus Sancti aperíri, et lingua per salívam oris, id est, per sciéntiam divínæ locutiónis, solvi débeat ad verba prædicatiónis.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+CUI mox, Ephphetha, id est, Adaperíre dícitur: et statim apértæ sunt aures ejus, et solútum est vínculum linguæ ejus. Qua in re notándum est, quia propter clausas aures dictum est, Adaperíre. Sed cui aures cordis ab obediéndum apértæ fúerint, ex subsequénti procul dúbio étiam linguæ ejus vínculum sólvitur; ut bona, quæ ipse fécerit, étiam faciénda áliis loquátur. Ubi bene ádditur: Et loquebátur recte. Ille enim recte lóquitur, qui prius obediéndo fécerit, quæ loquéndo ádmonet esse faciénda.
+
+Te Deum laudámus.

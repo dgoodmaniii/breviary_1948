@@ -14513,4 +14513,50 @@ ET in superióribus domus suæ fecit sibi secrétum cubículum, in quo cum puél
 
 ##### Lectio iii
 
-HÆC ítaque, cum audísset quóniam Ozías promisísset quod, transácto quinto die, tráderet civitátem, misit ad presbýteros Chabri et Charmi. Et venérunt ad illam,
+HÆC ítaque, cum audísset quóniam Ozías promisísset quod, transácto quinto die, tráderet civitátem, misit ad presbýteros Chabri et Charmi. Et venérunt ad illam, et dixit illis: Quod est hoc verbum, in quo consénsit Ozías, ut tradat civitátem Assýriis, si intra quinque dies non vénerit vobis adjutórium? Et qui estis vos, qui tentátis Dóminum?
+
+℟. Dómine Deus, qui cónteris bella ab inítio, éleva bráchium tuum super gentes, quæ cógitant servis tuis mala: \* Et déxtera tua glorificétur in nobis. ℣. Allíde virtútem eórum in virtúte tua; cadat robur eórum in iracúndia tua. — Et. Glória Patri. Et.
+
+---
+
+## Feria Quarta infra Hebdomadam IV Septembris
+
+{RUBRIC: De libro Judith}
+
+##### Lectio i
+*Cap. 10, 1-4*
+
+FACTUM est autem, cum cessásset clamáre ad Dóminum surréxit de loco in quo jacúerat prostráta ad Dóminum; vocavítque abram suam, et descéndens in domum suam ábstulit a se cilícium et éxuit se vestiméntis viduitátis suæ et lavit corpus suum et unxit se myro óptimo et discriminávit crinem cápitis sui et impósuit mitram super caput suum et índuit se vestiméntis jucunditátis suæ induítque sandália pédibus suis assumpsítque dextralíola et lília et ináures et ánulos et ómnibus ornaméntis suis ornávit se. Cui étiam Dóminus cóntulit splendórem.
+
+℟. Confórta me, Rex Sanctórum principátum tenens: \* Et da sermónem rectum et bene sonántem in os meum. ℣. Dómine, Rex univérsæ potestátis, convérte consílium eórum super eos. — Et.
+
+##### Lectio ii
+*Cap. 10, 11-12*
+
+FACTUM est autem, cum descénderet montem circa ortum diéi, occurrérunt ei exploratóres Assyriórum et tenuérunt eam dicéntes: Unde venis aut quo vadis? Quæ respóndit: Fília sum Hebræórum; ídeo ego fugi a fácie eórum, quóniam futúrum agnóvi quod dentur vobis in deprædatiónem, pro eo quod contemnéntes vos noluérunt ultro trádere seípsos, ut invenírent misericórdiam in conspéctu vestro.
+
+℟. Tribulatiónes civitátum audívimus, quas passæ sunt, et defécimus: timor et hebetúdo mentis cécidit super nos et super líberos nostros: ipsi montes nolunt recípere fugam nostram: \* Dómine, miserére. ℣. Peccávimus cum pátribus nostris, injúste égimus, iniquitátem fécimus. — Dómine.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Dómine.}
+
+##### Lectio iii
+*Cap. 10, 16-20*
+
+DUxerúntque illam ad tabernáculum Holoférnis annuntiántes eam. Cumque intrásset ante fáciem ejus, statim captus est in suis óculis Holoférnes. Dixerúntque ad eum satéllites ejus: Quis contémnat pópulum Hebræórum, qui tam decóras mulíeres habent, ut non pro his mérito pugnáre contra eos debeámus? Videns ítaque Judith Holoférnem sedéntem in conopéo, quod erat ex púrpura et auro et smarágdo et lapídibus pretiósis intéxtum, et, cum in fáciem ejus intendísset, adorávit eum prostérnens se super terram.
+
+℟. Benedícat te Dóminus in virtúte sua, qui per te ad níhilum redégit inimícos nostros: \* Ut non defíciat laus tua de ore hóminum. ℣. Benedíctus Dóminus qui creávit cælum et terram; quia hódie nomen tuum ita magnificávit. — Ut. Glória Patri. Ut.
+
+---
+
+## Feria Quinta infra Hebdomadam IV Septembris
+
+{RUBRIC: Si hæc Féria occúrrat post diem 24 Septémbris, ita ut hæc sit última hebdómada mensis, hac nocte pónitur liber Esther cum suis Responsóriis, ut infra in Dominica V, 321: et légitur de eo étiam duóbus sequéntibus diébus, ita tamen ut, lecto Inítio Domínicæ assignáto, sequéntibus Fériis dicántur Lectiónes de respondénti Féria VI aut Sábbato ejúsdem hebdómadæ V.}
+
+{RUBRIC: De libro Judith}
+
+##### Lectio i
+*Cap. 12, 10-13*
+
+ET factum est, in quarto die Holoférnes fecit cœnam servis suis et dixit ad Vágao eunúchum suum: Vade et suáde Hebrǽam illam ut sponte conséntiat habitáre mecum. Foedum est enim apud Assýrios, si fémina irrídeat virum agéndo ut immúnis ab eo tránseat. Tunc introívit Vágao ad Judith et dixit: Non vereátur bona puélla introíre ad dóminum meum, ut honorificétur ante fáciem ejus, ut mandúcet cum eo et bibat vinum in jucunditáte. Cui Judith respóndit: Quæ ego sum, ut contradícam dómino meo?
+
+℟. Adonái, Dómine, Deus magne et mirábilis, qui dedísti salútem in manu féminæ, \* Exáudi preces servórum tuórum. ℣. Benedíctus es, Dómine, qui non derelínquis præsuméntes de te, et de sua virtúte gloriántes humílias. — Exáudi.

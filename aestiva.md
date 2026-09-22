@@ -20444,4 +20444,30 @@ NOli fácere mala, et non te apprehéndent: discéde ab iníquo, et defícient m
 
 NOli quærere fíeri judex, nisi váleas virtúte irrúmpere iniquitátes; ne forte exstiméscas fáciem poténtis et ponas scándalum in æquitáte tua. Non pecces in multitúdinem civitátis nec te immíttas in pópulum neque álliges duplícia peccáta, nec enim in uno eris immúnis. Noli esse pusillánimis in ánimo tuo, exoráre et fácere eleemósynam ne despícias.
 
-℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtu-
+℟. Magna enim sunt judícia tua, Dómine, et inenarrabília verba tua: \* Magnificásti pópulum tuum et honorásti. ℣. Transtulísti illos per Mare Rubrum et transvexísti eos per aquam nímiam. — Magnificásti pópulum tuum et honorásti.
+
+{RUBRIC: In Octávis et Festis ritus simplícis: Glória Patri. Magnificásti.}
+
+##### Lectio iii
+
+NE dicas: In multitúdine múnerum meórum respíciet Deus et, offerénte me Deo altíssimo, múnera mea suscípiet. Non irrídeas hóminem in amaritúdine ánimæ; est enim qui humíliat et exáltat, circumspéctor Deus. Noli aráre mendácium advérsus fratrem tuum neque in amícum simíliter fácias. Noli velle mentíri omne mendácium; assidúitas enim illíus non est bona. Noli verbósus esse in multitúdine presbyterórum et non íteres verbum in oratióne tua.
+
+℟. Quæ sunt in corde hóminum, óculi tui vident, Dómine, et in libro tuo ómnia scribéntur: \* Homo videt in fácie, Deus autem in corde. ℣. Omnia enim corda scrutátur, et univérsas méntium cogitatiónes intélligit. — Homo. Glória Patri. Homo.
+
+---
+
+## Feria Tertia
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+
+*Cap. 10, 1-16*
+
+JUdex sápiens judicábit pópulum suum, et principátus sensáti stábilis erit. Secúndum júdicem pópuli sic et minístri ejus, et qualis rector est civitátis, tales et inhabitántes in ea. Rex insípiens perdet pópulum suum, et civitátes inhabitabúntur per sensum poténtium. In manu Dei potéstas terræ, et útilem rectórem suscitábit in tempus super illam. In manu Dei prospéritas hóminis, et super fáciem scribæ impónet honórem suum.
+
+℟. Præbe, fili, cor mihi, et óculi tui vias meas custódiant: \* Ut addátur grátia cápiti tuo. ℣. Atténde, fili mi, sapiéntiam meam et ad elóquium meum inclína aurem tuam. — Ut.
+
+##### Lectio ii
+
+OMnis injúriæ próximi ne memíneris et nihil agas in opéribus injúriæ. Odíbilis coram Deo est et homínibus supérbia, et exsecrábilis omnis iníquitas géntium. Regnum a gente in gentem transfértur propter injustítias et injúrias et contumélias et divérsos dolos. Aváro autem nihil

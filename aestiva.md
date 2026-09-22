@@ -26669,3 +26669,31 @@ Amen.
 ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
 
 **Ad Magnif. Ant.** Petrus Apóstolus \* et Paulus Doctor géntium, ipsi nos docuérunt legem tuam, Dómine.
+
+###### Oratio
+
+DEus, cujus déxtera beátum Petrum ambulántem in flúctibus, ne mergerétur, eréxit, et coapóstolum ejus Paulum, tértio naufragántem, de profúndo pélagi liberávit: exáudi nos propítius, et concéde; ut, ambórum méritis, æternitátis glóriam consequámur: Qui vivis.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+FAC nos, Dómine Deus, supereminéntem Jesu Christi sciéntiam, spíritu Pauli Apóstoli edíscere; qua beátus Antónius María mirabíliter erudítus, novas in Ecclésia tua clericórum et vírginum famílias congregávit. Per eúmdem Dóminum.
+
+##### Ad Matutinum
+
+{RUBRIC: In I Nocturno Lectiones de Scriptura occurrenti, cum suis Responsoriis de Tempore.}
+
+##### In II Nocturno
+
+Sermo sancti Joánnis Chrysóstomi
+
+*Apud Metaphrasten*
+
+#### Lectio iv
+
+QUasnam vobis, o beáti Apóstoli, referémus grátias, qui tantum pro nobis laborá-

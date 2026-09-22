@@ -27772,4 +27772,16 @@ Homilía sancti Augustíni Epíscopi
 
 QUid putámus, fratres mei? numquídnam solum ejus de ista dilectióne mandátum est, qua dilígimus ínvicem? Nonne est et áliud majus, ut dilígámus Deum? Aut vero de sola Deus nobis dilectióne mandávit, ut ália non requirámus? Tria certe comméndat Apóstolus, dicens: Manent autem fides, spes, cáritas, tria hæc, major autem horum cáritas. Et, si in caritáte, hoc est, in dilectióne conclúduntur duo illa præcépta, major tamen dicta est esse, non sola. De fide ígitur nobis quam multa mandáta sunt, quam multa de spe! Quis potest cuncta collígere, quis enumerándo suffícere? Sed intueámur, quod ait idem Apóstolus: Plenitúdo legis cáritas.
 
-℟. Iste est, qui ante Deum magnas virtútes
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+UBI ergo cáritas est, quid est, quod possit deésse? ubi autem non est, quid est quod possit prodésse? Dæmon credit, nec díligit: nemo díligit, qui non credit. Frustra quidem, sed tamen potest speráre véniam qui non díligit; nemo autem potest desperáre qui díligit. Itaque ubi diléctio est, ibi necessário fides et spes; et, ubi diléctio próximi, ibi necessário étiam diléctio Dei. Qui enim non díligit Deum, quómodo díligit próximum tamquam se ipsum? Quandóquidem non díligit et se ipsum. Est quippe ímpius et iníquus; qui autem díligit iniquitátem, non plane díligit, sed odit ánimam suam.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris: \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória. Et.
+
+{RUBRIC: Pro Ss. Symphorosa et septem Filiis ejus, Mm.}
+
+#### Lectio ix
+
+SYmphorósa Tiburtína, Getúlii Mártyris uxor, ex eo septem fílios péperit, Crescéntium, Juliánum, Nemésium, Primitívum, Justínum, Stácteum et Eugénium; qui omnes propter christiánæ fídei professiónem una cum matre, Hadriáno imperatóre, comprehénsi sunt. Quorum píetas, multis variísque tentáta supplíciis, cum stábilis permanéret, mater, quæ fíliis fídei magístra fúerat, dux eísdem ad martýrium éxstitit. Nam, saxo ad collum alligáto, in profluéntem dejícitur: cujus corpus, conquisítum a fratre ejus Eugénio, sepelítur. Postrídie ejus diéi, qui fuit décimo quinto Kaléndas Augústi, septem fratres sínguli ad palum alligáti, várie sunt interfécti: Crescéntio guttur ferro transfígitur; Juliáno pectus confóditur; Nemésio cor transverberátur; Primitívo trajícitur umbilícus; Justínus membrátim secátur; Stácteus telis confígitur; Eugénius a péctore in duas partes divíditur. Ita octo hóstiæ Deo

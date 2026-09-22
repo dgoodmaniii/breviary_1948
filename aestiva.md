@@ -27897,3 +27897,31 @@ DEus, qui ad evangelizándum paupéribus et ecclesiástici órdinis decórem pro
 ###### Oratio
 
 DEus, misericordiárum pater, per mérita et intercessiónem beáti Hierónymi, quem órphanis adjutórem et patrem esse voluísti: concéde; ut spíritum adoptiónis, quo fílii tui nominámur et sumus, fidéliter custodiámus. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui ad evangelizándum paupéribus et ecclesiástici órdinis decórem promovéndum, beátum Vincéntium apostólica virtúte roborásti: præsta, quæsumus; ut, cujus pia mérita venerámur, virtútum quoque instruámur exémplis. Per Dóminum.
+
+{RUBRIC: Deinde Commem. S. Margaritæ Virg. et Mart.:}
+
+**Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+###### Oratio
+
+INdulgéntiam nobis, quæsumus, Dómine, beáta Margaríta Virgo et Martyr implóret: quæ tibi grata semper éxstitit, et mérito castitátis, et tuæ professióne virtútis. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+HIerónymus, e gente patrícia Æmiliána Venétiis ortus, a prima adoléscéntia milítiæ addíctus, difficíllimis reipúblicæ tempóribus Castro novo ad Quarum in móntibus Tarvisínis præfícitur. Arce ab hóstibus capta, ipse in tetérrimum cárcerem detrúditur, mánibus ac pédibus vinctus; cui omni humána ope destitúto beatíssima Virgo, ejus précibus exoráta, cleméns adest, víncula solvit, et per médios hostes, qui vias omnes obséderant, in Tarvísii conspéctum incólumem ducit. Urbem ingréssus, ad Deíparæ aram, cui se vóverat, mánicas, cómpedes, caténas, quas secum detúlerat, in accépti benefícii testimónium suspéndit. Revérsus Venétias, cœpit pietátis stúdia impénsius cólere, in páuperes mire effúsus, sed puerórum præsértim misértus, qui paréntibus orbáti, egéni et sórdidi per urbem vagabántur; quos in ædes a se condúctas recépit de suo aléndos, et christiánis móribus imbuéndos.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit illi claritátem.

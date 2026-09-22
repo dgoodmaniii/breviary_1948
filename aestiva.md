@@ -28786,3 +28786,33 @@ DEus, qui sanctis tuis Abdon et Sennen ad hanc glóriam veniéndi copiósum munu
 ABdon et Sennen Persæ, a Décio imperatóre, accusáti, quod córpora Christianórum, quæ inhumáta projiciebántur, in suo prǽdio sepelíssent, jussu imperatóris comprehendúntur, et diis jubéntur sacrificáre. Quod cum fácere negligérent, et Jesum Christum Deum constantíssime prædicárent, tráditos in arctam custódiam, Romam póstea rédiens Décius vinctos duxit in triúmpho. Qui cum in Urbe ad simulácra attrácti essent, ea detestáti conspuérunt. Quam ob rem ursis ac leónibus objécti sunt; quos feræ non audébant attíngere. Demum, gládiis trucidáti, colligátis pédibus tracti sunt ante solis simulácrum. Quorum córpora, clam inde asportáta, Quirínus diáconus sepelívit in suis ædibus.
 
 Te Deum laudámus.
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
+
+{RUBRIC: Vesperæ de sequenti.}
+
+---
+
+### Die 31 Julii
+
+#### S. Ignatii
+
+{RUBRIC: Conf. [94] Duplex majus}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+DEus, qui ad majórem tui nóminis glóriam propagándam, novo per beátum Ignátium subsídio militántem Ecclésiam roborásti: concéde; ut, ejus auxílio et imitatióne certántes in terris, coronári cum ipso mereámur in cælis. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+IGnátius, natióne Hispánus, nóbili génere Loyólæ in Cantábria natus, primo cathólici regis aulam, deínde milítiam secútus est. In propugnatióne Pampelonénsi accépto vúlnere gráviter decúmbens, ex fortuíta piórum librórum lectióne, ad Christi Sanctorúmque sectánda vestígia mirabíliter exársit. Ad montem Serrátum proféctus, ante aram beátæ Vírginis suspénsis armis, noctem excúbans, sacræ milítiæ tirocínium pósuit. Inde, ut erat indútus sacco, tráditis antea mendíco pretiósis véstibus, Manrésam secéssit; ubi, emendicáto pane et aqua víctitans, exceptísque diébus Domínicis, jejúnans, áspera caténa cilicióque carnem domans, humi cubans, et férreis se flagéllis cruéntans, per annum commorátus est, claris ádeo illustratiónibus a Deo recreátus, ut póstea dícere sólitus sit: Si sacræ Lítteræ non exstárent, se tamen pro fide mori parátum ex iis solum, quæ sibi Manrésæ patefécerat Dóminus. Quo témpore, homo litterárum plane rudis, admirábilem illum compósuit exercitiórum librum, Sedis apostólicæ judício et ómnium utilitáte comprobátum.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.

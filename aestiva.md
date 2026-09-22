@@ -23058,4 +23058,20 @@ PRæclárum est bonum inchoáre atque perfícere, et gratum Deo esse et útilem 
 
 #### Lectio viii
 
-POrro virtus ista, única uniúsque speciéi dícitur, variárum virtútum in se ipsa habens pulchritúdinem. Diadéma régium absque pretiósis lapídibus candentibúsque margarítis conécti texíque non potest; ita et hæc única virtus sine variárum fulgóre virtútum constáre nequit. Est enim profécto simíllima diadémati régio. Nam, ut illi si lapis unus aut margaríta defúerit, in régio cápite lucére pléniter nequit; ita et hæc única virtus, nisi virtútum cete-
+POrro virtus ista, única uniúsque speciéi dícitur, variárum virtútum in se ipsa habens pulchritúdinem. Diadéma régium absque pretiósis lapídibus candentibúsque margarítis conécti texíque non potest; ita et hæc única virtus sine variárum fulgóre virtútum constáre nequit. Est enim profécto simíllima diadémati régio. Nam, ut illi si lapis unus aut margaríta defúerit, in régio cápite lucére pléniter nequit; ita et hæc única virtus, nisi virtútum ceterárum honóre conséritur, perfécta virtus non appellátur. Símilis item est pretiosíssimis épulis, exquisitíssimis condiméntis præparátis, sed sale caréntibus. Sicut enim pretiósi illi cibi sine sale cómedi néqueunt: ita et ista virtus unifórmis, si variárum virtútum glória et honóre decorétur, absit autem Dei proximíque diléctio, vilis prorsus atque contemptíbilis est.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro Ss. Marco et Marcelliano Martyribus}
+
+#### Lectio ix
+
+MArcus et Marcelliánus, fratres Románi, propter christiánam fidem a Fabiáno duce comprehénsi, ad stípitem alligáti sunt, pédibus clavis confíxis. Ad quos cum ita loquerétur judex: Resipíscite, míseri, et vos ipsos ab his cruciátibus erípite, respondérunt: Numquam tam jucúnde epuláti sumus, quam hæc libénter, Jesu Christi causa, perférimus, in cujus amóre nunc fixi esse cœpimus. Utinam támdiu nos hæc pati sinat, quámdiu hoc corruptíbili córpore vestíti érimus. Qui diem noctémque in torméntis divínas laudes canéntes, dénique, telis transfíxi, ad martýrii glóriam pervenérunt. Quorum córpora via Ardeatína sepúlta sunt.
+
+Te Deum laudámus.
+
+{RUBRIC: Sicubi autem ix Lectio alicujus Officii commemorati non fuerit dicenda, erit sequens}
+
+#### Lectio ix
+
+ADépti sunt quidam hujúsmodi virtútem, ipsámque velut régium diadéma conseréntes, multum ex ea ornaménti cepérunt. Póstmodum vero, vilíssimæ rei cujúslibet grátia virtútem ádeo illústrem deduxérunt ad níhilum. Alligáta enim est illórum mens terrenárum rerum curis, atque vínculis hujúsmodi præpedíta virtus cælum intráre non pótuit. Vigilánter ítaque cave, dilécte mi, ne, teípsum his néxibus vínciens, inimíco ad prædam páteas; neque mirábilem illam clarissimámque virtútem amíttas quam tanto labóre quæsiísti, neque illam prohíbeas cæléstes íngredi jánuas, neque rubóre confúsam ante thálamum státuas, neque capíllo uno humi affígi permíttas. Cé-

@@ -28884,3 +28884,50 @@ DEus, qui ad majórem tui nóminis glóriam propagándam, novo per beátum Igná
 *Act. 12, 1-3*
 
 MIsit Heródes rex manus ut afflígeret quosdam de Ecclésia. Occídit autem Jacóbum, fratrem Joánnis, gládio. Videns autem quia placéret Judǽis, appósuit ut apprehénderet et Petrum.
+
+#### Hymnus
+
+Míris modis repénte liber, férrea,
+Christo jubénte, vincla Petrus éxuit:
+Ovílis ille Pastor et Rector gregis,
+Vitæ reclúdit páscua et fontes sacros,
+Ovésque servat créditas, arcet lupos.
+
+Patri perénne sit per ævum glória;
+Tibíque laudes concinámus ínclytas,
+Ætérne Nate; sit, supérne Spíritus,
+Honor tibi decúsque: sancta júgiter
+Laudétur omne Trínitas per sæculum.
+Amen.
+
+℣. Tu es Petrus. ℟. Et super hanc petram ædificábo Ecclésiam meam.
+
+**Ad Magnif. Ant.** Tu es pastor óvium, \* Princeps Apostolórum, tibi tráditæ sunt claves regni cælórum.
+
+### In II Vesperis
+
+**Ad Magnif. Ant.** Solve, \* jubénte Deo, terrárum, Petre, caténas, qui facis ut páteant cæléstia regna beátis.
+
+#### Oratio
+
+DEus, qui beátum Petrum Apóstolum, a vínculis absolútum, illǽsum abíre fecísti: nostrórum, quæsumus, absólve víncula peccatórum; et ómnia mala a nobis propitiátus exclúde. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Pauli Ap. ante omnes alias Commemorationes:}
+
+**Ant.** Sancte Paule Apóstole, prædicátor veritátis et Doctor géntium, intercéde pro nobis ad Deum, qui te elégit.
+
+℣. Tu es vas electiónis, sancte Paule Apóstole. ℟. Prædicátor veritátis in univérso mundo.
+
+#### Oratio
+
+DEus, qui multitúdinem géntium beáti Pauli Apóstoli prædicatióne docuísti: da nobis, quæsumus; ut, cujus commemoratiónem cólimus, ejus apud te patrocínia sentiámus. Per Dóminum.
+
+{RUBRIC: Deinde Com. præced.:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+#### Oratio
+
+DEus, qui ad majórem tui nóminis glóriam propagándam, novo per beátum Ignátium subsídio militántem Ecclésiam roborásti: concéde; ut, ejus auxílio et imitatióne certántes in terris, coronári cum ipso mereámur in cælis. Per Dóminum.

@@ -32588,4 +32588,14 @@ PHilíppus, ex nóbili Benitiórum família Floréntiæ natus, futúræ sanctit�
 
 #### Lectio v
 
-DIvínæ caritátis et cathólicæ fídei dilatándæ ardóre veheménter accénsus, sui órdinis Generális relúctans atque invítus renuntiátus, fratres ad prædicándum Christi Evangélium in Scýthiam misit. Ipse vero plúrimas Itáliæ urbes concúrsans, gliscéntes in eis cívium discórdias compósuit, mul-
+DIvínæ caritátis et cathólicæ fídei dilatándæ ardóre veheménter accénsus, sui órdinis Generális relúctans atque invítus renuntiátus, fratres ad prædicándum Christi Evangélium in Scýthiam misit. Ipse vero plúrimas Itáliæ urbes concúrsans, gliscéntes in eis cívium discórdias compósuit, multásque ad Románi Pontíficis obediéntiam revocávit; nihílque de stúdio aliénæ salútis omíttens, perditíssimos hómines e vitiórum cœno ad pœniténtiam ac Jesu Christi amórem perdúxit. Oratióni summópere addíctus, sæpe in éxtasim rapi visus est. Virginitátem vero ádeo cóluit, ut ad extrémum usque spíritum voluntáriis ac duríssimis supplíciis illibátam custodíerit.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+#### Lectio vi
+
+EFflóruit in eo júgiter singuláris erga páuperes misericórdia, sed præcípue cum apud Camiliánum, agri Senénsis vicum, lepróso nudo, eleemósynam peténti, própriam, qua indútus erat, vestem fuit elargítus. Qua ille contéctus, statim a lepra mundátus est. Cujus miráculi cum longe latéque fama manásset, nonnúlli ex cardinálibus, qui Vitérbium, Cleménte quarto vita functo, pro successóre deligéndo convénerant, in Philíppum, cujus cæléstem étiam prudéntiam perspéctam habébant, intendérunt. Quo compérto, vir Dei, ne forte pastorális regíminis onus subíre cogerétur, apud Tuniátum montem támdiu delítuit, donec Gregórius décimus Póntifex máximus fúerit renuntiátus; ubi bálneis, quæ étiam hódie sancti Philíppi vocántur, virtútem sanándi morbos suis précibus impetrávit. Dénique Tudérti, anno millésimo ducentésimo octogésimo quinto, in Christi Dómini e cruce pendéntis ampléxu, quem suum appellábat librum, sanctíssime ex hac vita migrávit. Ad ejus túmulum cæci visum, claudi gressum, mórtui vitam recepérunt. Quibus alíisque plúrimis fulgéntem signis Clemens décimus, Póntifex máximus, Sanctórum número adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum: Ingrédere in réquiem meam: \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Nolíte timére, de Comm. Conf. non Pont. 2 loco. [105]}

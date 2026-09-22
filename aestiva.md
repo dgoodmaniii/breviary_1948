@@ -24246,4 +24246,20 @@ JOánnes et Paulus fratres Románi, cum facultátibus a Constántia Constantíni
 
 #### Lectio v
 
-ILli intra id tempus réliqua sua bona distribuérunt paupéribus, quo expeditióres ad Dóminum migráre possent, et plures juvárent, a quibus in ætérna tabernácula reciperéntur. Die décima Terentiánus prætóriæ cohórtis præféctus, ad eos missus cum alláta Jovis effígie ut eam veneraréntur, imperatóris mandátum eis ex-
+ILli intra id tempus réliqua sua bona distribuérunt paupéribus, quo expeditióres ad Dóminum migráre possent, et plures juvárent, a quibus in ætérna tabernácula reciperéntur. Die décima Terentiánus prætóriæ cohórtis præféctus, ad eos missus cum alláta Jovis effígie ut eam veneraréntur, imperatóris mandátum eis expónit, ut nisi Jovi cultum adhíbeant, moriántur. Qui, ut erant orántes, respondérunt, se pro Christi fide, quem Deum mente et ore venerabántur, non dubitánter mortem subitúros.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens: \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+#### Lectio vi
+
+AT Terentiánus véritus, ne, si públice interficeréntur, pópulus commoverétur; domi, ubi tunc erant, abscíssis eórum capítibus, sexto Kaléndas Júlii secréto eos sepeliéndos curávit; rumorémque sparsit, Joánnem et Paulum in exsílium ejéctos esse. Verum eórum mors a spirítibus immúndis, qui multórum córpora vexábant, pervulgáta est; in quibus Terentiáni fílius, et ipse oppréssus a dæmone, ad sepúlcrum Mártyrum perdúctus, liberátus est. Quo miráculo et is in Christum crédidit, et ejus pater Terentiánus; a quo étiam horum beatórum Mártyrum vita scripta esse dícitur.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem: et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+JOánnes et Paulus, fratres Románi, cum facultátes a Constántia, Constantíni fília, cui pie fidelitérque serviérant, sibi relíctas, in Christi páuperes distribúerent, a Juliáno Apóstata in númerum familiárium suórum invitáti, líbere negavérunt se apud eum esse velle, qui a Jesu Christo defecísset. Quare præfinítum est eis spátium decem diérum, ut Jovi sacrificáre induceréntur; quod scelus patráre cum constantíssime recusássent, Terentiáno júdice, abscíssis domi capítibus, martýrii palmam meruérunt. Eórum gloriósus éxitus a spirítibus immúndis est pervulgátus, qui multórum vexábant córpora; in quibus Terentiáni fílius, et ipse opprés-

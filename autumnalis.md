@@ -16664,3 +16664,38 @@ ADhuc me loquénte in oratióne, ecce vir Gábriel, quem víderam in visióne a 
 SCito ergo et animadvérte : Ab éxitu sermónis ut íterum ædificétur Jerúsalem usque ad Christum ducem, hebdómades septem et hebdómades sexagínta duæ erunt, et rúrsum ædificábitur platéa et muri in angústia témporum. Et post hebdómades sexagínta duas occidétur Christus, et non erit ejus pópulus qui eum negatúrus est; et civitátem et sanctuárium dissipábit pópulus cum duce ventúro et finis ejus vástitas, et post finem belli statúta desolátio. Confirmábit autem pactum multis hebdómada una, et in dimídio hebdómadis defíciet hóstia et sacrifícium, et erit in templo abominátio desolatiónis et usque ad consummatiónem et finem perseverábit desolátio.
 
 ℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+## Sabbato ante Dominicam IV Novembris
+
+### AD VESPERAS
+
+℣. Vespertína orátio ascéndat ad te, Dómine. ℟. Et descéndat super nos misericórdia tua.
+
+**Ad Magnif. Ant.** Qui cælórum \* cóntines thronum, et abýssos intuéris, Dómine, Rex regum, montes pónderas, terram palmo conclúdis : exáudi nos, Dómine, in gemítibus nostris.
+
+{RUBRIC: Oratio Dominicæ occurréntis.}
+
+---
+
+## Dominica IV Novembris
+
+{RUBRIC: Semiduplex}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Osée Prophétæ}
+
+##### Lectio i
+*Cap. 1, 1-11*
+
+VErbum Dómini, quod factum est ad Osée fílium Béeri in diébus Oziæ, Jóathan, Achaz, Ezechíæ regum Juda et in diébus Jeróboam fílii Joas regis Israël. Princípium loquéndi Dómino in Osée. Et dixit Dóminus ad Osée : Vade, sume tibi uxórem fornicatiónum et fac tibi fílios fornicatiónum, quia fórnicans fornicábitur terra a Dómino. Et ábiit et accépit Gomer fíliam Debélaim, et concépit et péperit ei fílium.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+
+ET dixit Dóminus ad eum : Voca nomen ejus Jézrahel, quóniam adhuc módicum et visitábo sánguinem Jézrahel super domum Jehu et quiéscere fáciam regnum domus Israël et in illa die cónteram arcum Israël in valle Jézrahel. Et concépit adhuc et péperit fíliam. Et dixit ei : Voca nomen ejus Absque misericórdia, quia non addam ultra miseréri dómui Israël, sed oblivióne oblivíscar eórum et dómui Juda miserébor et salvábo eos in Dómino Deo suo et non salvábo eos in arcu et gládio et in bello et in equis et in equítibus.
+
+℟. Aspice, Dómine, de sede sancta tua, et cógita de nobis : inclína, Deus meus, aurem tuam et audi : \* Aperi óculos tuos et vide tribulatiónem nostram. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph. — Aperi.

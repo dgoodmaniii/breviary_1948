@@ -21352,4 +21352,46 @@ Iræ famísque immémores.
 Verso deórsum vértice
 Hauríre fumum cógitur;
 Costas utrímque et víscera
-Succénsa lampas ústulat
+Succénsa lampas ústulat.
+
+Athléta Christi nóbilis
+Idóla damnat géntium,
+Deíque amóre sáucius
+Vitæ perícla déspicit.
+
+Loris revínctus ásperis,
+E rupe præceps vólvitur:
+Spinéta vultum láncinant;
+Per saxa corpus scínditur.
+
+Dum membra raptant Mártyris,
+Languent siti satéllites;
+Signo crucis Venántius
+E rupe fontes élicit.
+
+Bellátor o fortíssime,
+Qui pérfidis tortóribus
+E caute præbes póculum,
+Nos rore grátiæ írriga.
+
+{RUBRIC: Sequens Conclusio numquam mutatur.}
+
+Sit laus Patri, sit Fílio,
+Tibíque, Sancte Spíritus:
+Da per preces Venántii
+Beáta nobis gáudia.
+Amen.
+
+{RUBRIC: In I Nocturno, si dicéndæ non sint de Scriptúra occurrénti, Lectiónes Fratres: Debitóres, de Communi plurimórum Mártyrum, cum ℟℟. de Communi uníus Mart. ibídem notátis. [52]}
+
+##### In II Nocturno
+
+#### Lectio iv
+
+VEnántius Camers, quíndecim annos natus, cum christiánæ religiónis accusarétur apud Antíochum, qui sub Décio imperatóre Cameríno præerat, in porta civitátis præsídi se óbtulit. Quem ille, pollicitatiónibus ac terróribus diu tentátum, flagris cædi et vínculis astríngi jussit; sed is, mirabíliter ab Angelo solútus, lampádibus póstea adúritur, atque invérso ore, fumo suppósito, suspénditur. Ejus constántiam in torméntis demirátus Anastásius Corniculárius, et quod eum ab Angelo íterum solútum cándida veste supra fumum ambulántem vidísset, in Christum crédidit; et a beáto Porphýrio presbýtero cum família baptizátus, paulo post martýrii palmam cum eódem proméruit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+#### Lectio v
+
+AT Venántius præsídi sístitur, et ab eo íterum frustra tentátus, ut Christi fidem deséreret, in cárcerem conjícitur; quo Attalus præco míttitur, qui ei dicat se quoque Christiánum fuísse et ei nómini proptérea renuntiásse, quod cognovísset ináne

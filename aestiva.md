@@ -32842,4 +32842,16 @@ DEus, qui per sanctum Joséphum Confessórem tuum, ad erudiéndam spíritu intel
 
 #### Lectio iv
 
-JOséphus Calasánctius a Matre Dei, Petráltæ in Aragónia, nóbili génere natus, a téneris annis futúræ in púeros caritátis et eórum institutiónis indícia prǽbuit. Nam adhuc párvulus eos, ad se convocátos, in mystériis fídei et sacris précibus erudiébat. Humánis divinísque lítteris egrégie doctus, cum stúdiis theológicis Valéntiæ óperam daret, nóbilis potentísque féminæ illécebris fórtiter superátis, virginitátem, quam Deo vóverat, inoffénsam insígni victória servávit. Sacérdos ex voto factus, a complúribus epíscopis in Castéllæ Novæ, Aragóniæ et Cata-
+JOséphus Calasánctius a Matre Dei, Petráltæ in Aragónia, nóbili génere natus, a téneris annis futúræ in púeros caritátis et eórum institutiónis indícia prǽbuit. Nam adhuc párvulus eos, ad se convocátos, in mystériis fídei et sacris précibus erudiébat. Humánis divinísque lítteris egrégie doctus, cum stúdiis theológicis Valéntiæ óperam daret, nóbilis potentísque féminæ illécebris fórtiter superátis, virginitátem, quam Deo vóverat, inoffénsam insígni victória servávit. Sacérdos ex voto factus, a complúribus epíscopis in Castéllæ Novæ, Aragóniæ et Cataláuniæ regnis in partem labóris adscítus, exspectatiónem ómnium vicit, pravis ubíque móribus emendátis, ecclesiástica discíplina restitúta, inimícitiis cruentísque factiónibus mirífice exstínctis. At cælésti visióne et Dei voce frequénter admónitus, Romam proféctus est.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+IN Urbe, summa vitæ asperitáte, vigíliis et jejúniis corpus affligens, in oratiónibus et cæléstium rerum contemplatióne dies noctésque versabátur, septem ejúsdem Urbis ecclésias síngulis fere nóctibus obíre sólitus; quem inde morem complúres annos servávit. Dato piis sodalitátibus nómine, mirum quanto ardóre páuperes, infírmos potíssimum aut carcéribus deténtos eleemósynis omníque pietátis offício subleváret. Lue Urbem depopulánte, una cum sancto Camíllo, tanto fuit actus ímpetu caritátis, ut prǽter subsídia ægrótis paupéribus large colláta, ipsa étiam defunctórum cadávera suis húmeris tumulánda transférret. Verum, cum divínitus accepísset se ad informándos intelligéntiæ ac pietátis spíritu adolescéntulos, præcípue páuperes, destinári; órdinem Clericórum regulárium páuperum Matris Dei scholárum piárum fundávit, qui peculiárem curam circa puerórum eruditiónem ex próprio institúto profiteréntur. Ipsúmque órdinem a Cleménte octávo, a Paulo quinto alíisque summis Pontifícibus magnópere probátum, brevi témpore per plúrimas Európæ províncias et regna mirabíliter propagávit. In hoc autem tot labóres perpéssus est ac tot ærúmnas invícto ánimo tolerávit, ut ómnium voce miráculum fortitúdinis et sancti Jobi exémplum diceretur.
+
+℟. Amávit eum Dóminus, et ornávit eum: stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+
+QUamvis órdini univérso præésset, totísque víribus ad animárum salútem incúmberet, num-

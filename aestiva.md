@@ -21980,4 +21980,12 @@ AUgustínus, Romæ in Lateranénsi cœnóbio mónachus, a Gregório Magno cum s�
 
 #### Lectio v
 
-CÆléstis doctrínæ prædicatióne plúrimis firmáta miráculis, ac vitæ exémplo sic insulános illos demúlsit, ut eórum
+CÆléstis doctrínæ prædicatióne plúrimis firmáta miráculis, ac vitæ exémplo sic insulános illos demúlsit, ut eórum plerósque ad christiánam fidem perdúxerit, ac demum regem ipsum, quem, cum innúmero suórum comitátu, sacro fonte lustrávit, summa cum lætítia Berthæ régiæ uxóris, quæ Christiána erat. Olim in Natáli Dómini, cum decem míllibus et ámplius baptísmum in álveo flúminis Eboráci contulísset, quotquot ex iis morbo áliquo afféctí erant, cum ánimæ salúte, córporis quoque sanitátem recepísse memóriæ próditum est. Jussu Gregórii ordinátus epíscopus, Sedem Cantuáriæ instítuit in ecclésia Salvatóris a se erécta, in qua mónachos óperis sui subsidiários collocávit; et sancti Petri monastérium, quod póstea et a suo nómine dictum est, in suburbánis constrúxit. Idem Gregórius usum pállii cum facultáte ecclesiásticæ hierarchíæ in Anglia instituéndæ ei concéssit: quo novam étiam operariórum manum misit, nempe Mellítum, Justum, Paulínum et Rufiniánum.
+
+℟. Pósui adjutórium super poténtem et exaltávi eléctum de plebe mea: \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+DIspósitis ejus ecclésiæ rebus, sýnodum hábuit Augustínus cum epíscopis atque doctóribus véterum Britónum, qui in Paschæ celebratióne aliísque rítibus ab Ecclésia Romána jamdúdum dissidébant. Sed, cum eos neque apostólicæ Sedis auctoritáte neque miráculis movére posset, ut dissídio cessárent, prophético spíritu eis excídium prænuntiávit. Dénique máximis pro Christo exantlátis labóribus, miráculis clarus, cum Mellítum Londinénsi ecclésiæ præfecísset, Justum Roffénsi, suæ Lauréntium, in cælum migrávit séptimo Kaléndas Júnias, Ethelbérto regnánte, ac sepúltus est in monastério sancti Petri, quod exínde Cantuariénsium antístitum et áliquot regum conditórium fuit. Ejus cultum fervénti stúdio prosecútæ sunt Anglórum gentes; ac Leo décimus tértius Póntifex máximus ejus Offícium et Missam ad univérsam exténdit Ecclésiam.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populó-

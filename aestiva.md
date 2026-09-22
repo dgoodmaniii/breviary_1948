@@ -33263,4 +33263,52 @@ SAncti Joánnis Baptístæ Præcursóris et Mártyris tui, quǽsumus, Dómine, v
 
 **Ant.** Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus.
 
-℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætér-
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+#### Oratio
+
+DEus, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti: concéde propítius; ut, qui beátæ Sabínæ Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+### Ad Primam
+
+**Ant.** Heródes enim ténuit \* et ligávit Joánnem et pósuit in cárcerem propter Herodíadem.
+
+### Ad Tertiam
+
+**Ant.** Dómine mi rex, \* da mihi in disco caput Joánnis Baptístæ.
+
+#### Capitulum
+
+*Jac. 1, 12*
+
+BEátus vir, qui suffert tentatiónem: quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+{RUBRIC: ℟. br. Glória et honóre \* Coronásti eum, Dómine. Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Coronásti. Glória Patri. Glória et. ℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.}
+
+### Oratio
+
+SAncti Joánnis Baptístæ Præcursóris et Mártyris tui, quǽsumus, Dómine, veneránda festívitas: salutáris auxílii nobis prǽstet efféctum: Qui vivis.
+
+### Ad Sextam
+
+**Ant.** Puéllæ saltánti \* imperávit mater: Nihil áliud petas, nisi caput Joánnis.
+
+#### Capitulum
+
+*Eccli. 15, 3*
+
+CIbávit illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potávit illum Dóminus, Deus noster.
+
+{RUBRIC: ℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. Glória Patri. Posuísti. ℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.}
+
+### Ad Nonam
+
+**Ant.** Da mihi in disco \* caput Joánnis Baptístæ. Et contristátus est rex propter jusjurándum.
+
+#### Capitulum
+
+*Eccli. 39, 6*
+
+JUstus cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+{RUBRIC: ℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória

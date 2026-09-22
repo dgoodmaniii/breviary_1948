@@ -31607,4 +31607,32 @@ SAnctum Evangélium cum legerétur, audívimus a fémina religiósa suscéptum e
 
 #### Lectio viii
 
-DOminus autem pro María respóndit Marthæ; et ipse ejus factus est ad-
+DOminus autem pro María respóndit Marthæ; et ipse ejus factus est advocátus, qui judex fúerat interpellátus. Martha, inquit, circa multa es occupáta, quando unum est necessárium; María melíórem partem elégit, quæ non auferétur ab ea. Audívimus enim et interpellatiónem interpellántis et senténtiam júdicis. Quæ senténtia interpellánti respóndit, suscéptam deféndit; erat enim María inténta dulcédini verbi Dómini. Inténta erat Martha quómodo pásceret Dóminum, inténta María quómodo pascerétur a Dómino. A Martha convívium Dómino parabátur, in cujus convívio María jam jucundabátur.
+
+℟. Beáta es, Virgo María, Dei Génitrix, quæ credidísti Dómino: perfécta sunt in te quæ dicta sunt tibi: \* ecce exaltáta es super choros Angelórum: Intercéde pro nobis ad Dóminum, Deum nostrum. ℣. Ave, María, grátia plena; Dóminus tecum. — Intercéde. Glória Patri. Intercéde.
+
+#### Lectio ix
+
+CUm ergo María suáviter audíret verbum dulcíssimum, et corde intentíssimo pascerétur, interpelláto Dómino a soróre sua, quómodo putámus eam timuísse ne díceret ei Dóminus: Surge, et ádjuva sorórem tuam? Mira enim suavitáte tenebátur; quæ profécto major est mentis quam ventris. Excusáta est, sedit secúrior. Quómodo autem excusáta? Attendámus, inspiciámus, perscrutémur quod póssumus, ut pascámur et nos.
+
+Te Deum laudámus.
+
+### Ad Laudes
+
+{RUBRIC: et per Horas, Ant.}
+
+**1** Assúmpta est María in cælum: \* gaudent Angeli, laudántes benedícunt Dóminum.
+
+**2** María Virgo assúmpta est \* ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
+
+**3** In odórem \* unguentórum tuórum cúrrimus: adolescéntulæ dilexérunt te nimis.
+
+**4** Benedícta \* fília tu a Dómino: quia per te fructum vitæ communicávimus.
+
+**5** Pulchra es \* et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+#### Capitulum
+
+*Eccli. 24, 11-12*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo.

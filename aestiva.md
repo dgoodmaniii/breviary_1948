@@ -23405,4 +23405,18 @@ DIvítiis quibus abundábat spretis, bona véndidit pretiúmque paupéribus dist
 
 #### Lectio vi
 
-HǼC inter, sapiéntia referta, de religióne ac fide pertractántia edíderat scripta, sæpe étiam númeris indúlgens concínnis carmínibus Sanctórum acta concelebráverat, summam christiáni poétæ famam adéptus. Quotquot sanctitáte ac doctrína præstantíssimi viri eo témpore erant, tot sibi amicítia atque admiratióne devínxit. Quamplúrimi ad eum, ceu ad christiánæ perfectiónis magístrum, undequáquam confluébant. Vastáta a Gothis Campánia, facultátem omnem, ne relíctis quidem sibi rebus ad vitam necessáriis, in aléndos páuperes et captívos rediméndos cóntulit. Póstea vero, Vándalis eásdem regiónes infestántibus, cum ab eo pósceret vídua ut fílium sibi redímeret ab hóstibus captum; consúmptis bonis ómnibus in offício pietátis, se ipsum pro illo tradit in servitútem, atque in víncula conjéctus in Africam rápitur. Tandem, non sine præsénti Dei ope, libertáte donátus et Nolam revérsus, diléctum ovíle bonus pa-
+HǼC inter, sapiéntia referta, de religióne ac fide pertractántia edíderat scripta, sæpe étiam númeris indúlgens concínnis carmínibus Sanctórum acta concelebráverat, summam christiáni poétæ famam adéptus. Quotquot sanctitáte ac doctrína præstantíssimi viri eo témpore erant, tot sibi amicítia atque admiratióne devínxit. Quamplúrimi ad eum, ceu ad christiánæ perfectiónis magístrum, undequáquam confluébant. Vastáta a Gothis Campánia, facultátem omnem, ne relíctis quidem sibi rebus ad vitam necessáriis, in aléndos páuperes et captívos rediméndos cóntulit. Póstea vero, Vándalis eásdem regiónes infestántibus, cum ab eo pósceret vídua ut fílium sibi redímeret ab hóstibus captum; consúmptis bonis ómnibus in offício pietátis, se ipsum pro illo tradit in servitútem, atque in víncula conjéctus in Africam rápitur. Tandem, non sine præsénti Dei ope, libertáte donátus et Nolam revérsus, diléctum ovíle bonus pastor revísit; ibíque annum agens septuagésimum octávum ætátis suæ, placidíssimo éxitu obdormívit in Dómino. Corpus, prope sancti Felícis sepúlcrum cónditum, póstea, Longobardórum témpore, Benevéntum, atque, Ottóne tértio imperatóre, Romam ad basílicam sancti Bartholomǽi ad ínsulam Tiberínam translátum fuit. Pius vero Papa décimus jussit sacras Paulíni exúvias Nolæ restítui, et festum ipsíus ad ritum dúplicem pro univérsa Ecclésia evéxit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+PAulínus, anno reparátæ salútis trecentésimo quinquagésimo tértio a claríssima cívium Romanórum família Burdígalæ natus, senatória dignitáte potítus est. Nolæ consul renuntiátus, divíno lúmine tactus consulátum dimísit, et, Burdígalam revérsus, a beáto Delphíno baptizátus est. Dein, bonórum quibus abundábat prétio paupéribus distribúto, in Hispániam secéssit, ubi présbyter ordinátur. Nolam cum rediísset, penes sancti Felícis sepúlcrum monastérium cóndidit, sociísque adscítis, cœnobíticam vitam eámque arctíssimam est aggréssus. Precrebrescénte ejus sanctimóniæ fama, ad Nolánum episcopátum evéhitur, quo in múnere admiránda pietátis, patiéntiæ ac potíssimum caritátis exémpla relíquit. Multa ad sacram doctrínam pertinéntia scripsit, atque ínsuper eloquéntiæ et poéseos laude excélluit. Vastáta a Gothis Campánia, facultátes omnes in aléndos páuperes et captívos rediméndos cóntulit. Póstea vero, Vándalis eásdem regiónes infestántibus, cum nil ámplius erogándum habéret, se ipsum pro fílio cujúsdam víduæ in servitútem trádidit, et in Africam ductus est. Tandem, Dei ope libertáte donátus, Nolæ placidíssimo éxitu obdormívit in Dómino.
+
+Te Deum laudámus.
+
+---

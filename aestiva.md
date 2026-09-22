@@ -29785,4 +29785,34 @@ FRatres: Magis satágite, ut per bona ópera certam vestram vocatiónem et elect
 
 #### Lectio ii
 
-DAbo autem óperam et frequénter habére vos post óbitum meum, ut horum memóriam faciátis. Non enim doctas fábulas
+DAbo autem óperam et frequénter habére vos post óbitum meum, ut horum memóriam faciátis. Non enim doctas fábulas secúti notam fécimus vobis Dómini nostri Jesu Christi virtútem et præséntiam, sed speculatóres facti illíus magnitúdinis. Accípiens enim a Deo Patre honórem et glóriam, voce delápsa ad eum hujuscémodi a magnífica glória: Hic est Fílius meus diléctus, in quo mihi complácui; ipsum audíte.
+
+℟. In splendénti nube Spíritus Sanctus visus est, Patérna vox audíta est: \* Hic est Fílius meus diléctus, in quo mihi bene complácui; ipsum audíte. ℣. Appáruit nubes obúmbrans, et vox Patris intónuit. — Hic.
+
+#### Lectio iii
+
+ET hanc vocem nos audívimus de cælo allátam, cum essémus cum ipso in monte sancto. Et habémus firmiórem prophéticum sermónem, cui bene fácitis attendéntes quasi lucérnæ lucénti in caliginóso loco, donec dies elucéscat et lúcifer oriátur in córdibus vestris, hoc primum intelligéntes quod omnis prophetía Scriptúræ própria interpretatióne non fit. Non enim voluntáte humána alláta est aliquándo prophetía; sed Spíritu Sancto inspiráti locúti sunt sancti Dei hómines.
+
+℟. Vidéte qualem caritátem dedit nobis Deus Pater, \* Ut fílii Dei nominémur et simus. ℣. Scimus quóniam, cum apparúerit, símiles ei érimus, quóniam vidébimus eum sícuti est. — Ut. Glória Patri. Ut.
+
+### In II Nocturno
+
+**Ant.** Illúminans \* tu mirabíliter a móntibus ætérnis: turbáti sunt omnes insipiéntes corde.
+
+#### Psalmus 75
+
+NOtus in Judǽa Deus: \* in Israël magnum nomen ejus.
+
+Et factus est in pace locus ejus: \* et habitátio ejus in Sion.
+
+Ibi confrégit poténtias árcuum, \* scutum, gládium, et bellum.
+
+Illúminans tu mirabíliter a móntibus ætérnis: \* turbáti sunt omnes insipiéntes corde.
+
+Dormiérunt somnum suum: \* et nihil invenérunt omnes viri divitiárum in mánibus suis.
+
+Ab increpatióne tua, Deus Jacob, \* dormitavérunt qui ascendérunt equos.
+
+Tu terríbilis es, et quis resístet tibi? \* ex tunc ira tua.
+
+De cælo audítum fecísti judícium: \* terra trémuit et quiévit.

@@ -27604,4 +27604,54 @@ NON in hoc tantum sæculo órdinem sibi tam accéptum multis prærogatívis beat
 
 #### Lectio ix
 
-CUM sacra Pentecóstes die viri plúrimi, ut fertur, qui vestígiis sanctórum Prophetárum Elíæ ac Eliséi institérant, evangélicam fidem fuíssent amplexáti, in eo montis Carméli loco, ubi Elías olim ascendéntem nébulam, beátæ Maríæ Vírginis typo insígnem, conspéxerat, eídem puríssimæ Vírgini sacéllum constrúere cœpérunt; eamdémque, velut singulárem órdinis tutélam, veneráti sunt, fratrum beátæ Maríæ de monte Carmélo exínde nómine accépto. Eis numquam défuit speciális protéctio beatíssimæ Vírginis, quæ Honórium tértium ab órdine exstinguéndo per sómnium detérruit, et insígne sacri scapuláris órdini tríbuit, quod qui gestáverint et abstinéntiam módicam precésque paucas frequentáverint, igne purgatórii deténti, obténtu suo quantócius in cæléstem pátriam pie credúntur efférri. Tot
+CUM sacra Pentecóstes die viri plúrimi, ut fertur, qui vestígiis sanctórum Prophetárum Elíæ ac Eliséi institérant, evangélicam fidem fuíssent amplexáti, in eo montis Carméli loco, ubi Elías olim ascendéntem nébulam, beátæ Maríæ Vírginis typo insígnem, conspéxerat, eídem puríssimæ Vírgini sacéllum constrúere cœpérunt; eamdémque, velut singulárem órdinis tutélam, veneráti sunt, fratrum beátæ Maríæ de monte Carmélo exínde nómine accépto. Eis numquam défuit speciális protéctio beatíssimæ Vírginis, quæ Honórium tértium ab órdine exstinguéndo per sómnium detérruit, et insígne sacri scapuláris órdini tríbuit, quod qui gestáverint et abstinéntiam módicam precésque paucas frequentáverint, igne purgatórii deténti, obténtu suo quantócius in cæléstem pátriam pie credúntur efférri. Tot ergo tantísque benefíciis ordo cumulátus, solémnem beatíssimæ Vírginis Commemoratiónem quotánnis celebrándam instítuit.
+
+Te Deum laudámus.
+
+---
+
+{RUBRIC: In III Nocturno Homilía in Ev. Loquénte Jesu, ut in Communi. [186]}
+
+{RUBRIC: In ℟. vii Felix loco sanctam festivitátem dícitur solémnem Commemoratiónem, ut in Communi notátur. [186]}
+
+##### Ad Laudes
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Caput tuum \* ut Carmélus, et comæ cápitis tui sicut púrpura Regis vincta canálibus, allelúja.
+
+###### Oratio
+
+DEus, qui beatíssimæ semper Vírginis et Genitrícis tuæ Maríæ singulári título Carméli órdinem decorásti: concéde propítius; ut, cujus hódie Commemoratiónem solémni celebrámus offício, ejus muníti præsídiis, ad gáudia sempitérna perveníre mereámur: Qui vivis.
+
+##### In II Vesperis
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Glória Líbani \* data est ei, decor Carméli et Saron, allelúja.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+### Die 17 Julii
+
+#### S. Alexii
+
+{RUBRIC: Conf. [94] Semiduplex}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+###### Oratio C 1
+
+DEus, qui nos beáti Aléxii Confessóris tui ánnua solemnitáte lætíficas: concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+##### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato Lectio iv dicitur ut ix.}
+
+#### Lectio iv
+
+ALéxius, Románórum nobilíssimus, própter eximium Jesu Christi amórem prima nocte nuptiárum peculiári Dei mónitu relínquens intáctam sponsam, illústrium orbis terræ ecclésiárum peregrinatiónem suscépit. Quibus in itinéribus cum ignótus se-

@@ -22587,3 +22587,25 @@ DEus, qui nos beáti Bárnabæ Apóstoli tui méritis et intercessióne lætífi
 CUM dimíssa esset synagóga, secúti sunt multi Judæórum et coléntium advenárum, Paulum et Bárnabam; qui loquéntes suadébant eis ut permanérent in grátia Dei. Sequénti vero sábbato pene univérsa cívitas convénit audíre verbum Dei. Vidéntes autem turbas Judǽi, repléti sunt zelo et contradicébant his, quæ a Paulo dicebántur, blasphemántes. Tunc constánter Paulus et Bárnabas dixérunt: Vobis oportébat primum loqui verbum Dei; sed, quóniam repéllitis illud et indígnos vos judicátis ætérnæ vitæ, ecce convértimur ad gentes; sic enim præcépit nobis Dóminus: Pósui te in lucem géntium, ut sis in salútem usque ad extrémum terræ.
 
 ℟. Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus: \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte.
+
+#### Lectio ii
+
+AUdiéntes autem gentes gavísæ sunt et glorificábant verbum Dómini, et credidérunt quotquot erant præordináti ad vitam ætérnam. Disseminabátur autem verbum Dómini per univérsam regiónem. Judǽi autem concitavérunt mulíeres religiósas et honéstas et primos civitátis, et excitavérunt persecutiónem in Paulum et Bárnabam, et ejecérunt eos de fínibus suis. At illi, excússo púlvere pedum in eos, venérunt Icónium. Discípuli quoque replebántur gáudio et Spíritu Sancto.
+
+℟. Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde: \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum.
+
+#### Lectio iii
+
+*Cap. 14, 1-3*
+
+FActum est autem Icónii, ut simul introírent in synagógam Judæórum et loqueréntur, ita ut créderet Judæórum et Græcórum copiósa multitúdo. Qui vero incréduli fuérunt Judǽi, suscitavérunt et ad iracúndiam concitavérunt ánimas géntium advérsus fratres. Multo ígitur témpore demoráti sunt fiduciáliter agéntes in Dómino, testimónium perhibénte verbo grátiæ suæ, dante signa et prodígia fíeri per manus eórum.
+
+℟. Dum stetéritis ante reges et præsides, nolíte cogitáre quómodo aut quid loquámini: \* Dábitur enim vobis in illa hora, quid loquámini. ℣. Non enim vos estis qui loquímini; sed Spíritus Patris vestri, qui lóquitur in vobis. — Dábitur. Glória Patri. Dábitur.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+BArnabas Levítes, Cýprius génere, qui et Joseph, cum Paulo géntium Apóstolus ordinátus est ad prædicándum Jesu Christi Evangélium. Is, agro véndito quem habébat, redáctam ex eo pecúniam áttulit Apóstolis. Missus autem Antiochíam prædicatiónis causa, cum ibi multos ad Christi Dómini fidem convérsos esse comperísset, incredíbiliter lætátus, eos hortabátur ut in Christi fide permanérent. Qua cohortatióne multum proficiébat, quod ab ómnibus vir bonus et Spíritu Sancto plenus habebátur.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas ve-

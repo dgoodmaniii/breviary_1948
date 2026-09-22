@@ -15588,3 +15588,19 @@ FRátribus qui sunt per Ægýptum Judǽis salútem dicunt fratres qui sunt in Je
 FActúri ígitur quinta et vigésima die mensis Casleu, purificatiónem templi, necessárium dúximus significáre vobis, ut et vos quoque agátis diem scenopégiæ et diem ignis, qui datus est quando Nehemías, ædificáto templo et altári, óbtulit sacrifícia. Nam, cum in Pérsidem duceréntur patres nostri, sacerdótes qui tunc cultóres Dei erant, accéptum ignem de altári occúlte abscondérunt in valle, ubi erat púteus altus et siccus, et in eo contutáti sunt eum, ita ut ómnibus ignótus esset locus.
 
 ℟. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+##### Lectio iii
+
+CUM autem præterissent anni multi, et plácuit Deo ut mitterétur Nehemías a rege Pérsidis, nepótes sacerdótum illórum, qui abscónderant, misit ad requiréndum ignem; et, sicut narravérunt nobis, non invenérunt ignem, sed aquam crassam. Et jussit eos hauríre et afférre sibi, et sacrifícia, quæ impósita erant, jussit sacérdos Nehemías aspérgi ipsa aqua et ligna et quæ erant superpósita. Utque hoc factum est, et tempus áffuit quo sol refúlsit, qui prius erat in núbilo, accénsus est ignis magnus, ita ut omnes miraréntur.
+
+℟. Congregáti sunt inimíci nostri, et gloriántur in virtúte sua : cóntere fortitúdinem illórum, Dómine, et dispérge illos : \* Ut cognóscant quia non est álius qui pugnet pro nobis, nisi tu, Deus noster. ℣. Dispérge illos in virtúte tua, et déstrue eos, protéctor noster, Dómine. — Ut. Glória Patri. Ut.
+
+### In II Nocturno
+
+{RUBRIC: Ex Tractátu sancti Joánnis Chrysóstomi super Psalmum quadragésimum tértium.}
+
+##### Lectio iv
+
+DEus, áuribus nostris audívimus, patres nostri annuntiavérunt nobis opus quod operátus es in diébus eórum. Hunc Psalmum dicit quidem prophéta, dicit autem non ex persóna própria, sed ex persóna Machabæórum, narrans et prædícens quæ futúra erant illo témpore. Tales enim sunt prophétæ : ómnia témpora percúrrunt, præséntia, prætérita, futúra. Quinam sint autem hi Machabǽi, quidque passi sint et quid fécerint, necessárium est primum dícere, ut sint apertióra, quæ in arguménto dicúntur. Ii enim, cum invasísset Judǽam Antíochus, qui díctus est Epíphanes, et ómnia devastásset, et multos qui tunc erant, a pátriis institútis resilíre coegísset, permansérunt illǽsi ab illis tentatiónibus.
+
+℟. Impetum inimicórum ne timuéritis : mémores estóte quómodo salvi facti sunt patres nostri : \* Et nunc clamémus in cælum, et miserébitur nostri Deus noster. ℣. Mementóte mirabílium ejus, quæ fecit pharaóni et exercítui ejus in Mari Rubro. — Et.

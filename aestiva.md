@@ -27815,3 +27815,33 @@ DEus, qui sanctum Camíllum, ad animárum in extrémo agóne luctántium subsíd
 DEus, qui nos concédis sanctórum Mártyrum tuórum Symphorósæ et filiórum ejus natalítia cólere: da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
 
 {RUBRIC: Vesperæ a Capítulo de seq., Commemoratio præcedentis.}
+
+---
+
+### Die 19 Julii
+
+#### S. Vincentii a Paulo
+
+{RUBRIC: Confessoris [94] Duplex (m. t. v.)}
+
+###### Oratio
+
+DEus, qui ad evangelizándum paupéribus et ecclesiástici órdinis decórem promovéndum, beátum Vincéntium apostólica virtúte roborásti: præsta, quæsumus; ut, cujus pia mérita venerámur, virtútum quoque instruámur exémplis. Per Dóminum.
+
+{RUBRIC: Et fit Com. præcedentis:}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+###### Oratio
+
+DEus, qui sanctum Camíllum, ad animárum in extrémo agóne luctántium subsídium, singulári caritátis prærogatíva decorásti: ejus, quæsumus, méritis spíritum nobis tuæ dilectiónis infúnde; ut in hora éxitus nostri hostem víncere, et ad cæléstem mereámur corónam perveníre. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+VIncéntius a Paulo, natióne Gallus, Pódii non procul ab Aquis Tarbéllis in Aquitánia natus, jam tum a púero exímiam in páuperes caritátem præ se tulit. A custódia patérni gregis ad lítteras evocátus, humánas Aquis, divínas cum Tolósæ, tum Cæsaraugústæ dídicit. Sacerdótio initiátus ac theologíæ láurea insignítus, in Turcas íncidit, qui captívum in Africam abduxérunt. Sed in captivitáte pósitus herum ipsum Christo rursus lucrifécit. Cum eo ígitur ex bárbaris oris, opitulánte Deípara, sese proripiens, ad apostólica límina iter instítuit. Unde in Gálliam revérsus, Clippíaci primum, mox Castelliónis parœcias sanctíssime rexit. Renuntiátus a rege primárius Sacrórum miníster in Gálliæ trirémibus, mirum quo zelo et ducum et rémigum salúti óperam posúerit. Moniálibus Visitatiónis a sancto Francísco Salésio præpósitus, tanta prudéntia per annos círciter quadragínta eam curam sustínuit, ut máxime comprobáverit judícium sanctíssimi præsulis, qui sacerdótem Vincéntio digniórem nullum se nosse fatebátur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum: \* Et dedit illi claritátem

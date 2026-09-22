@@ -15856,3 +15856,57 @@ ET hoc ita defúncto, quartum vexábant simíliter torquéntes; et, cum jam esse
 ℟. Tu, Dómine universórum, qui nullam habes indigéntiam, voluísti templum tuum fíeri in nobis, \* Consérva domum istam immaculátam in ætérnum, Dómine. ℣. Tu elegísti, Dómine, domum istam ad invocándum nomen tuum in ea, ut esset domus oratiónis et obsecratiónis pópulo tuo. — Consérva.
 
 {RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Consérva.}
+
+##### Lectio iii
+
+SUpra modum autem mater mirábilis et bonórum memória digna, quæ pereúntes septem fílios sub uníus diéi témpore conspíciens bono ánimo ferébat propter spem quam in Deum habébat; síngulos illórum hortabátur voce pátria fórtiter repléta sapiéntia et femíneæ cogitatióni masculínum ánimum ínserens dixit ad eos : Néscio quáliter in útero meo apparuístis, neque enim ego spíritum et ánimam donávi vobis et vitam et singulórum membra non ego ipsa compégi; sed enim mundi Creátor, qui formávit hóminis nativitátem quique ómnium invénit oríginem et spíritum vobis íterum cum misericórdia reddet et vitam, sicut nunc vosmetípsos despícitis propter leges ejus.
+
+℟. Aperi óculos tuos, Dómine, et vide afflictiónem nostram : circumdedérunt nos gentes ad puniéndum nos; \* Sed tu, Dómine, exténde bráchium tuum, et líbera ánimas nostras. ℣. Afflíge oppriméntes nos et contuméliam faciéntes in supérbiam; et custódi partem tuam. — Sed. Glória Patri. Sed.
+
+---
+
+## Feria Quarta infra Hebdomadam V Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 7, 24-41*
+
+ANtíochus autem, contémni se arbitrátus, simul et exprobrántis voce despécta, cum adhuc adolescéntior superésset, non solum verbis hortabátur, sed et cum juraménto affirmábat se dívitem et beátum factúrum et translátum a pátriis légibus amícum habitúrum et res necessárias ei præbitúrum. Sed ad hæc cum adoléscens nequáquam inclinarétur, vocávit rex matrem et suadébat ei ut adoléscénti fíeret in salútem. Cum autem multis eam verbis esset hortátus, promísit suasúram se fílio suo; itaque inclináta ad illum, irrídens crudélem tyránnum ait pátria voce : Fili mi, miserére mei, quæ te in útero novem ménsibus portávi et lac triénnio dedi et álui et in ætátem istam perdúxi.
+
+℟. Refúlsit sol in clýpeos áureos, et resplenduérunt montes ab eis : \* Et fortitúdo géntium dissipáta est. ℣. Erat enim exércitus magnus valde et fortis : et appropiávit Judas et exércitus ejus in prǽlio. — Et.
+
+##### Lectio ii
+
+PEto, nate, ut aspícias ad cælum et terram et ad ómnia quæ in eis sunt, et intélligas quia ex níhilo fecit illa Deus et hóminum genus. Ita fiet, ut non tímeas carníficem istum, sed dignus frátribus tuis efféctus párticeps súscipe mortem, ut in illa miseratióne cum frátribus tuis te recípiam. Cum hæc illa adhuc díceret, ait adoléscens : Quem sustinétis? non obédio præcépto regis sed præcépto legis, quæ data est nobis per Móysen. Tu vero, qui invéntor omnis malítiæ factus es in Hebrǽos, non effúgies manum Dei. Nos enim pro peccátis nostris hæc pátimur; et, si nobis propter increpatiónem et correptiónem Dóminus Deus noster módicum irátus est, sed íterum reconciliábitur servis suis.
+
+℟. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino : \* Et facta est lætítia magna in pópulo. ℣. In hymnis et confessiónibus benedicébant Dóminum. — Et.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Et.}
+
+##### Lectio iii
+
+TU autem, o sceléste et ómnium hóminum flagitiosíssime, noli frustra extólli vanis spébus in servos ejus inflammátus; nondum enim omnipoténtis Dei et ómnia inspiciéntis judícium effugísti. Nam fratres mei, módico nunc dolóre sustentáto, sub testaménto ætérnæ vitæ efféctus sunt; tu vero judício Dei justas supérbiæ tuæ pœnas exsólves. Ego autem, sicut et fratres mei, ánimam et corpus meum trado pro pátriis légibus, ínvocans Deum matúrius genti nostræ propítium fíeri teque cum torméntis et verbéribus confitéri, quod ipse est Deus solus. In me vero et in frátribus meis désinet Omnipoténtis ira, quæ super omne genus nostrum juste superdúcta est. Tunc rex accénsus ira in hunc super omnes crudélius desǽvit indígne ferens se derísum. Et hic ítaque mundus óbiit per ómnia in Dómino confídens. Novíssime autem post fílios et mater consúmpta est.
+
+℟. In hymnis et confessiónibus benedicébant Dóminum, \* Qui magna fecit in Israël, et victóriam dedit illis Dóminus omnípotens. ℣. Ornavérunt fáciem templi corónis áureis, et dedicavérunt altáre Dómino. — Qui. Glória Patri. Qui.
+
+---
+
+## Feria Quinta infra Hebdomadam V Octobris
+
+{RUBRIC: De libro secúndo Machabæórum}
+
+##### Lectio i
+*Cap. 9, 1-10*
+
+EOdem témpore Antíochus inhonéste revertebátur de Pérside. Intráverat enim in eam quæ dícitur Persépolis, et tentávit exspoliáre templum et civitátem opprímere; sed, multitúdine ad arma concurrénte, in fugam versi sunt, et ita cóntigit ut Antíochus post fugam túrpiter redíret. Et, cum venísset circa Ecbátanam, recognóvit quæ erga Nicánorem et Timótheum gesta sunt. Elátus autem in ira arbitrabátur se injúriam illórum qui se fugáverant posse in Judǽos retorquére, ideóque jussit agitári currum suum sine intermissióne agens iter, cælésti eum judício perurgénte, eo quod ita supérbe locútus est, se ventúrum Jerosólymam et congériem sepúlcri Judæórum eam factúrum.
+
+℟. Adapériat Dóminus cor vestrum in lege sua et in præcéptis suis et fáciat pacem in diébus vestris : \* Concédat vobis salútem et rédimat vos a malis. ℣. Exáudiat Dóminus oratiónes vestras et reconciliétur vobis nec vos déserat in témpore malo. — Concédat.
+
+##### Lectio ii
+
+SED qui univérsa cónspicit, Dóminus Deus Israël, percússit eum insanábili et invisíbili plaga. Ut enim finívit hunc ipsum sermónem, apprehéndit eum dolor dirus víscerum et amára internórum torménta; et quidem satis juste, quippe qui multis et novis cruciátibus aliórum tórserat víscera, licet ille nullo modo a sua malítia cessáret. Super hoc autem supérbia replétus, ignem spirans ánimo in Judǽos et præcípiens accelerári negótium, cóntigit illum ímpetu eúntem de curru cádere et gravi córporis collisióne membra vexári.
+
+℟. Exáudiat Dóminus oratiónes vestras, et reconciliétur vobis nec vos déserat in témpore malo \* Dóminus, Deus noster. ℣. Det vobis cor ómnibus, ut colátis eum et faciátis ejus voluntátem. — Dóminus.
+
+{RUBRIC: In Octávis et Festis ritus simplícis : Glória Patri. Dóminus.}

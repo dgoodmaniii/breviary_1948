@@ -32337,3 +32337,45 @@ De Cánticis canticórum
 QUÆ est ista, quæ ascéndit de desérto, delíciis áffluens, inníxa super diléctum suum? Sub árbore malo suscitávi te, ibi corrúpta est mater tua, ibi violáta est génitrix tua. Pone me ut signáculum super cor tuum, ut signáculum super bráchium tuum; quia fortis est ut mors diléctio, dura sicut inférnus æmulátio; lámpades ejus lámpades ignis atque flammárum.
 
 ℟. Vidi speciósam sicut colúmbam, ascendéntem désuper rivos aquárum,
+
+---
+
+## Die 22 Augusti
+
+# Festum Immaculati Cordis B. Mariae Virginis
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Comm. Festórum B. M. V., præter ea quæ hic habéntur própria.}
+
+{RUBRIC: ¶ De die Octáva Assumptiónis B. Maríæ V. nihil fit in Offício Immaculáti Cordis. Sicúbi tamen hac die celebrétur áliquod Festum duplex I vel II classis, quod non sit B. Maríæ Virg., de ipsa die Octáva fit Commemoratio, juxta Rúbricas.}
+
+### In I Vesperis
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Exsultávit cor meum \* in Dómino, et exaltátum est cornu meum in Deo meo, quia lætáta sum in salutári tuo.
+
+#### Oratio
+
+OMnípotens sempitérne Deus, qui in Corde beátæ Maríæ Vírginis dignum Spíritus Sancti habitáculum præparásti: concéde propítius; ut ejúsdem immaculáti Cordis festivitátem devóta mente recoléntes, secúndum cor tuum vívere valeámus. Per Dóminum... in unitáte ejúsdem.
+
+{RUBRIC: Et fit Commemoratio tantum præcedéntis:}
+
+**Ant.** Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+#### Oratio
+
+OMnípotens et miséricors Deus, qui beátam Joánnam Franciscam tuo amóre succénsam, admirábili spíritus fortitúdine per omnes vitæ sémitas in via perfectiónis donásti, quique per illam illustráre Ecclésiam tuam nova prole voluísti: ejus méritis et précibus concéde; ut, qui infirmitátis nostræ cónscii de tua virtúte confídimus, cæléstis grátiæ auxílio cuncta nobis adversántia vincámus. Per Dóminum.
+
+### In II Nocturno
+
+Sermo sancti Bernardíni Senénsis
+
+{RUBRIC: Sermo 9 de Visitatione}
+
+#### Lectio iv
+
+QUis mortálium, nisi divíno tutus oráculo, de vera Dei et hóminis Genitríce quidquam módicum, sive grande præsúmat incircumcísis, immo pollútis lábiis nomináre, quam Pater ante sǽcula Deus perpétuam prædestinávit in Vírginem, digníssimam Fílius elégit in Matrem, Spíritus Sanctus

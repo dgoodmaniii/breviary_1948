@@ -23259,4 +23259,38 @@ GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Silvérium Már
 
 #### Lectio iii
 
-SIlvérius, Campánus, post Agapítum próxime Póntifex creátus est: cujus doctrína et sánctitas illúxit in insectándis hæréticis, et constántis ánimi magnitúdo perspécta est in tuéndo judício Agapíti. Nam Anthimum, quem, quia Eutychiánam hǽre-
+SIlvérius, Campánus, post Agapítum próxime Póntifex creátus est: cujus doctrína et sánctitas illúxit in insectándis hæréticis, et constántis ánimi magnitúdo perspécta est in tuéndo judício Agapíti. Nam Anthimum, quem, quia Eutychiánam hǽresim defendébat, Agapítus ab episcopátu Constantinopolitáno deposúerat, cum a Theodóra Augústa sæpíssime rogátus esset, restitúere nóluit. Quam ob rem iráta múlier mandat Belisário ut Silvérium mittat in exsílium. Qui exsulávit in ínsula Póntia, unde his verbis scripsísse fertur ad Amatórem epíscopum: Susténtor pane tribulatiónis et aqua angústiæ; nec tamen dimísi, aut dimítto offícium meum. Et sane, brevi incómmodis ærumnísque conféctus, obdormívit in Dómino, duodécimo Kaléndas Júlii. Cujus corpus, Romam delátum et in basílica Vaticána depósitum, multis miráculis illustrátum fuit. Præfuit Ecclésiæ annos tres et ámplius, creátis mense Decémbri presbýteris trédecim, diáconis quinque, epíscopis per divérsa loca decem et novem.
+
+Te Deum.
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+###### Oratio
+
+GRegem tuum, Pastor ætérne, placátus inténde: et per beátum Silvérium Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vesperæ de sequenti.}
+
+---
+
+### Die 21 Junii
+
+#### S. Aloisii Gonzagæ
+
+{RUBRIC: Conf. [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+###### Oratio
+
+CǼléstium donórum distribútor, Deus, qui in angélico júvene Aloísio miram vitæ innocéntiam pari cum pœniténtia sociásti: ejus méritis et précibus concéde; ut, innocéntem non secúti, pœniténtem imitémur. Per Dóminum.
+
+##### In II Nocturno
+
+#### Lectio iv
+
+LOísius, Ferdinándi Gonzágæ Castelliónis Stiverórum marchiónis fílius, festináto propter vitæ perículum baptísmo, prius cælo quam terris nasci visus, primam illam grátiam tam constánter retínuit, ut in ea confirmátus crederétur. A primo ratiónis usu, quo se

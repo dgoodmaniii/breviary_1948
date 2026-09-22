@@ -26294,3 +26294,55 @@ FAmulis tuis, quǽsumus, Dómine, cæléstis grátiæ munus impertíre: ut, quib
 **Ant.** Vestri capílli cápitis omnes numeráti sunt: nolíte timére: multis passéribus melióres estis vos.
 
 ℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+###### Oratio
+
+DEus, qui nos sanctórum Mártyrum tuórum Procéssi et Martiniáni gloriósis confessiónibus circúmdas et prótegis: da nobis et eórum imitatióne profícere, et intercessióne gaudére. Per Dóminum.
+
+### Ad Tertiam
+
+{RUBRIC: Capit. Ab inítio, ut supra. 720}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+### Ad Nonam
+
+#### Capitulum
+
+*Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi: quasi myrrha elécta, dedi suavitátem odóris.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+### In II Vesperis
+
+{RUBRIC: Añæ de Laudibus, ut supra, p. 720. Capitulum et Hymnus de Communi.}
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus, allelúja.
+
+{RUBRIC: Et fit Commemoratio sequéntis tantum.}
+
+---
+
+### Die 3 Julii
+
+#### S. Leonis II
+
+{RUBRIC: Papæ et Confessoris [69]}
+
+{RUBRIC: Semiduplex}
+
+**Ant.** Sacérdos et Póntifex, et virtútum ópifex,

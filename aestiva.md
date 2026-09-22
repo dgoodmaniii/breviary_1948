@@ -24366,3 +24366,50 @@ Nec carpsit penetrália.
 
 Cædúntur gládiis more bidéntium:
 Non murmur résonat, non querimónia;
+Sed corde impávido mens bene cónscia
+Consérvat patiéntiam.
+
+Quæ vox, quæ póterit lingua retéxere
+Quæ tu Martýribus múnera præparas?
+Rubri nam flúido sánguine, fúlgidis
+Cingunt témpora láureis.
+
+Te, summa o Déitas, únaque póscimus:
+Ut culpas ábigas, nóxia súbtrahas,
+Des pacem fámulis; ut tibi glóriam,
+Annórum in sériem, canant.
+Amen.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Magnif. Ant.** Isti sunt \* duæ olívæ, et duo candelábra lucéntia ante Dóminum; habent potestátem claúdere cælum núbibus et aperíre portas ejus, quia linguæ eórum claves cæli factæ sunt.
+
+###### Oratio
+
+QUǽsumus, omnípotens Deus: ut nos gemináta lætítia hodiérnæ festivitátis excípiat, quæ de beatórum Joánnis et Pauli glorificatióne procédit; quos éadem fides et pássio vere fecit esse germános. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio seq. diei infra Oct. S. Joannis.}
+
+{RUBRIC: Completorium de Feria.}
+
+---
+
+### Die 27 Junii
+
+#### De IV die infra Octavam S. Joannis
+
+{RUBRIC: Semiduplex}
+
+**Ant.** Ingrésso Zacharía templum Dómini, appáruit ei Gábriel Angelus stans a dextris altáris incénsi.
+
+℣. Fuit homo missus a Deo. ℟. Cui nomen erat Joánnes.
+
+{RUBRIC: ¶ Si vero hac die faciéndum non sit Offícium de Octava, tunc dícitur}
+
+**Ant.** Puer qui natus est nobis, plus quam Prophéta est: hic est enim, de quo Salvátor ait: Inter natos mulíerum non surréxit major Joánne Baptísta.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+**Oratio** Deus, qui præséntem. 666
+
+{RUBRIC: Ad Matutinum et relíquas Horas Antiphonæ, Psalmi et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; relíqua ut in Festo 646, præter Lectiónes, quæ in I Nocturno dicúntur de Scriptúra occurrénti cum suis Responsóriis de Témpore, in II et III ut hic habéntur.}

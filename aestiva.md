@@ -21902,4 +21902,20 @@ Homilía sancti Bedæ Venerábilis Presbýteri
 
 **In Ev.** Vos estis sal terræ
 
-IN terra, humána natúra; in sale, sapiéntia verbis significátur. Salis enim natúra, terra efficítur infructuósa; unde quasdam urbes légimus, victórum ira, sale seminátas. Et hoc cónvenit apostólicæ doctrínæ, ut sale sapiéntiæ compéscat in terra humánæ carnis luxum sæculi aut fœditátem vitiórum germináre. Quod si sal evanúerit, in quo saliétur? Id est, si vos, per quos condiéndi sunt pópuli, propter metum persecutiónum, aut terrórem, amiséritis regna cælórum, extra Ecclésiam pósiti, inimicórum oppróbria sustinétis non dúbium. ¶ Vos estis lux mundi: id est, vos, quia vera luce illumináti estis, lux eis qui in mundo sunt, esse debétis. Non potest cívitas abscóndi supra montem pósita: id est, apostólica doctrína super Christum fundáta, sive Ecclésia super Christum ex multis géntibus fídei unitáte constrúcta et caritátis bitúmine conglutináta; quæ sit tuta intrántibus, et laboriósa adeúntibus, habitatóres
+IN terra, humána natúra; in sale, sapiéntia verbis significátur. Salis enim natúra, terra efficítur infructuósa; unde quasdam urbes légimus, victórum ira, sale seminátas. Et hoc cónvenit apostólicæ doctrínæ, ut sale sapiéntiæ compéscat in terra humánæ carnis luxum sæculi aut fœditátem vitiórum germináre. Quod si sal evanúerit, in quo saliétur? Id est, si vos, per quos condiéndi sunt pópuli, propter metum persecutiónum, aut terrórem, amiséritis regna cælórum, extra Ecclésiam pósiti, inimicórum oppróbria sustinétis non dúbium. ¶ Vos estis lux mundi: id est, vos, quia vera luce illumináti estis, lux eis qui in mundo sunt, esse debétis. Non potest cívitas abscóndi supra montem pósita: id est, apostólica doctrína super Christum fundáta, sive Ecclésia super Christum ex multis géntibus fídei unitáte constrúcta et caritátis bitúmine conglutináta; quæ sit tuta intrántibus, et laboriósa adeúntibus, habitatóres custódit, et omnes inimícos seclúdit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum: \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+NEque accéndunt lucérnam, et ponunt eam sub módio, sed super candelábrum. Sub módio ergo lucérnam ponit quisquis lucem doctrínæ cómmodis temporálibus obscúrat et tegit; super candelábrum vero, qui se ita ministério Dei súbjicit, ut supérior sit doctrína veritátis quam sérvitus córporis. Áliter Salvátor accéndit lucérnam, qui humánæ testam natúræ flamma suæ divinitátis implévit; et hanc super candelábrum, id est Ecclésiam, pósuit, quod in fróntibus nostris fidem suæ incarnatiónis fixit. Quæ lucérna non pótuit sub módio poni, id est, sub mensúra legis inclúdi; nec in sola Judǽa, sed in univérso illúxit orbe.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+---
+
+{RUBRIC: Pro S. Joánne I P. et M.}
+
+#### Lectio ix
+
+JOánnes Etrúscus, Justíno senióre imperatóre, rexit Ecclésiam; ad quem proféctus est Constantinópolim auxílii causa, quod Theodorícus rex hæréticus divexábat Itáliam. Cujus étiam iter Deus miráculis illustrávit. Nam, cum ei nóbilis vir ad Corínthum, equum, quo ejus uxor mansuéto utebátur, itíneris causa commodásset, factum est, ut dómino póstea remíssus equus ita ferox eváderet, ut frémitu et totíus córporis agitatióne semper deínceps dóminam expúlerit; tamquam indignarétur mulíerem recípere, ex quo sedísset in eo Jesu Christi Vicárius. Quam ob rem illi equum Pontífici donavérunt. Sed illud majus miráculum, quod Constantinópoli, in áditu portæ Aureæ, inspectánte frequentíssimo pópulo, qui una cum imperatóre Pontífici honóris causa occúrrerat, cæco lumen restítuit.

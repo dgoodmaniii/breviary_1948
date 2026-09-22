@@ -28991,4 +28991,26 @@ ET éxiens sequebátur eum, et nesciébat quia verum est quod fiébat per Angelu
 
 THeodósio juníore imperánte, cum Eudócia ejus uxor Jerosólymam solvéndi voti causa venísset, ibi multis est affécta munéribus. Præ céteris insígne donum accépit férreæ caténæ, auro gemmísque ornátæ, quam illam esse affirmábant, qua Petrus Apóstolus ab Heróde vinctus fúerat. Eudócia, caténam pie veneráta, eam póstea Romam ad fíliam Eudóxiam misit; quæ illam Pontífici Máximo détulit. Isque vicíssim illi monstrávit álteram caténam, qua, Neróne imperatóre, idem Apóstolus constríctus fúerat.
 
-℟. Dómine, si tu es, jube me veníre ad te super aquas. \* Et exténdens manum apprehéndit eum, et dixit Jesus: Módicæ fídei, quare dubitásti? ℣. Cum
+℟. Dómine, si tu es, jube me veníre ad te super aquas. \* Et exténdens manum apprehéndit eum, et dixit Jesus: Módicæ fídei, quare dubitásti? ℣. Cumque vidísset ventum válidum veniéntem, tímuit; et, cum cœpísset mergi, clamávit dicens: Dómine, salvum me fac.
+
+℟. Dómine, si tu es, jube me veníre ad te super aquas. — Et.
+
+#### Lectio v
+
+CUM ígitur Póntifex Románam caténam cum ea, quæ Jerosólymis alláta fúerat, contulísset, factum est ut illæ inter se sic connecteréntur, ut non duæ, sed una caténa ab eódem artífice confécta esse viderétur. Quo miráculo tantus honor sacris illis vínculis habéri cœpit, ut proptérea hoc nómine sancti Petri ad víncula ecclésia, título Eudóxiæ, dedicáta sit in Exquíliis, ejúsque memóriæ dies festus institútus Kaléndis Augústi.
+
+℟. Surge, Petre, et índue te vestiméntis tuis, áccipe fortitúdinem ad salvándas gentes: \* Quia cecidérunt caténæ de mánibus tuis. ℣. Angelus Dómini ástitit, et lumen refúlsit in habitáculo cárceris, percussóque látere Petri, excitávit eum, dicens: Surge velóciter. — Quia.
+
+#### Lectio vi
+
+QUO ex témpore honos, qui eo die profánis gentílium celebritátibus tríbui sólitus erat, Petri vínculis habéri cœpit, quæ tacta ægros sanábant et dǽmones ejiciébant. Quo in génere, anno salútis humánæ nongentésimo sexagésimo nono áccidit, ut quidam comes, Ottónis imperatóris familiáris, occupátus ab immúndo spíritu, seípsum déntibus dilaniáret. Quare is jussu imperatóris ad Joánnem Pontíficem dúcitur, qui ut sacra caténa cómitis collum áttigit, erúmpens nefárius spíritus hóminem líberum relíquit; ac deínceps in Urbe sanctórum vinculórum relígio propagáta est.
+
+℟. Tu es Pastor óvium, Princeps Apostolórum: tibi trádidit Deus ómnia regna mundi: \* Et ídeo tibi tráditæ sunt claves regni cælórum. ℣. Quodcúmque ligáveris super terram, erit ligátum et in cælis; et quodcúmque sólveris super terram, erit solútum et in cælis. — Et. Glória Patri. Et.
+
+---
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+#### Lectio ix
+
+THeodósio juníore imperánte, Eudócia ejus uxor Jerosólymæ insígne præ céteris donum accépit férreæ caténæ, quam illam esse affirmábant, qua Petrus Apóstolus ab Heróde vinctus fúerat. Eudócia caténam pie veneráta, Romam ad fíliam Eudóxiam

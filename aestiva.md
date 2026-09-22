@@ -21092,4 +21092,26 @@ Homilía sancti Bedæ Venerábilis Presbýteri
 
 *Liber 3 in Lucæ 10*
 
-NON óculi scribárum et pharisæórum, qui corpus tantum Dómini vidére; sed illi beáti óculi, qui ejus possunt cognóscere sacraménta, de quibus dícitur: Et revelásti ea párvulis. Beáti óculi parvulórum, quibus et se et Patrem Fílius reveláre dignátur. Abraham exsultávit, ut vidéret diem Christi; et vidit, et gavísus est. Isaías quoque, et Michǽas, et multi álii prophétæ vidérunt glóriam Dómini, qui et proptérea Vidéntes sunt appelláti; sed hi omnes, a longe aspiciéntes et salutántes,
+NON óculi scribárum et pharisæórum, qui corpus tantum Dómini vidére; sed illi beáti óculi, qui ejus possunt cognóscere sacraménta, de quibus dícitur: Et revelásti ea párvulis. Beáti óculi parvulórum, quibus et se et Patrem Fílius reveláre dignátur. Abraham exsultávit, ut vidéret diem Christi; et vidit, et gavísus est. Isaías quoque, et Michǽas, et multi álii prophétæ vidérunt glóriam Dómini, qui et proptérea Vidéntes sunt appelláti; sed hi omnes, a longe aspiciéntes et salutántes, per spéculum et in ænígmate vidérunt.
+
+℟. Dómine, pater et Deus vitæ meæ, ne derelínquas me in cogitátu malígno: extolléntiam oculórum meórum ne déderis mihi, et desidérium malígnum avérte a me, Dómine; aufer a me concupiscéntiam, \* Et ánimo irreverénti et infruníto ne tradas me, Dómine. ℣. Ne derelínquas me, Dómine, ne accréscant ignorántiæ meæ, nec multiplicéntur delícta mea. — Et.
+
+##### Lectio viii
+
+APóstoli autem, in præsentiárum habéntes Dóminum, convescentésque ei, et quæcúmque voluíssent interrogándo discéntes, nequáquam per Angelos aut várias visiónum spécies opus habébant docéri. Quos vero Lucas multos prophétas et reges dicit, Matthǽus apértius prophétas et justos appéllat. Ipsi sunt enim reges magni; quia tentatiónum suárum mótibus non consentiéndo succúmbere, sed regéndo præésse novérunt.
+
+℟. Duo Séraphim clamábant alter ad álterum: \* Sanctus, sanctus, sanctus Dóminus, Deus Sábaoth: \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo: Pater, Verbum, et Spíritus Sanctus; et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+ET ecce quidam legisperítus surréxit, tentans eum et dicens: Magíster, quid faciéndo vitam ætérnam possidébo? Legisperítus, qui de vita ætérna Dóminum tentans intérrogat, occasiónem, ut reor, tentándi de ipsis Dómini sermónibus sumpsit, ubi ait: Gaudéte autem quod nómina vestra scripta sunt in cælis. Sed ipsa sua tentatióne declárat, quam vera sit illa Dómini conféssio, qua Patri lóquitur: Quod abscondísti hæc a sapiéntibus et prudéntibus, et revelásti ea párvulis.
+
+Te Deum.
+
+### Ad Laudes
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Magíster, \* quid faciéndo vitam ætérnam possidébo? At ille dixit ad eum: In lege quid scriptum est? quómodo legis? Díliges Dóminum, Deum tuum, ex toto corde tuo, allelúja.
+
+{RUBRIC: Oratio Omnípotens et miséricors, ut supra.}

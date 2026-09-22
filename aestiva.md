@@ -26041,3 +26041,59 @@ Postquam sed ille trádidit
 Amans volénsque spíritum,
 Pectus ferítur láncea,
 Geminúsque liquor éxsilit.
+
+Ut plena sit redémptio,
+Sub torculári stríngitur;
+Suíque Jesus immemor,
+Sibi nil resérvat sánguinis.
+
+Veníte, quotquot críminum
+Funésta labes ínficit:
+In hoc salútis bálneo
+Qui se lavat, mundábitur.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutátur.}
+
+Summi ad Paréntis déxteram
+Sedénti habénda est grátia,
+Qui nos redémit sánguine,
+Sanctóque firmat Spíritu.
+Amen.
+
+℣. Justificáti in sánguine Christi. ℟. Salvi érimus ab ira per ipsum.
+
+**Ad Bened. Ant.** Erit sanguis Agni \* vobis in signum, dicit Dóminus; et vidébo sánguinem, et transíbo vos nec erit in vobis plaga dispérdens.
+
+###### Oratio
+
+OMnípotens sempitérne Deus, qui unigénitum Fílium tuum mundi Redemptórem constituísti, ac ejus Sánguine placári voluísti: concéde, quǽsumus, salútis nostræ prétium solémni cultu ita venerári, atque a præséntis vitæ malis ejus virtúte deféndi in terris; ut fructu perpétuo lætémur in cælis. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Laudes tantum fit Com. diei Octavæ S. Joannis:}
+
+**Ant.** Apértum est os Zacharíæ, et prophetávit dicens: Benedíctus Deus Israël.
+
+℣. Iste puer magnus coram Dómino. ℟. Nam et manus ejus cum ipso est.
+
+###### Oratio
+
+DEus, qui præséntem diem honorábilem nobis in beáti Joánnis nativitáte fecísti: da pópulis tuis spirituálium grátiam gaudiórum; et ómnium fidélium mentes dírige in viam salútis ætérnæ. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis; et ad eam in ℟. br.}
+
+℣. Qui tuo nos sánguine redemísti.
+
+### Ad Tertiam
+
+{RUBRIC: Capitulum Fratres: ut ad Laudes.}
+
+℟. br. Redemísti nos, Dómine, \* In sánguine tuo. Redemísti. ℣. Ex omni tribu, et lingua, et pópulo, et natióne. In sánguine tuo. Glória Patri. Redemísti.
+
+℣. Sanguis Jesu Christi Fílii Dei. ℟. Emúndat nos ab omni peccáto.
+
+### Ad Sextam
+
+#### Capitulum
+
+*Hebr. 9, 13-14*
+
+SI sanguis hircórum, et taurórum, et cinis vítulæ aspérsus inquinátos

@@ -19064,3 +19064,302 @@ COncéde quǽsumus, omnípotens Deus : ut fidéles tui, qui sub sanctíssimæ V�
 ℣. Dignáre me laudáre te.
 
 **Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus.
+
+---
+
+### Die 14 Septembris — In Exaltatione S. Crucis
+
+{RUBRIC: Duplex majus}
+
+#### IN I VESPERIS
+
+**Ant. 1** O magnum pietátis opus : \* mors mórtua tunc est, in ligno quando mórtua Vita fuit.
+
+{RUBRIC: Psalmi de Dominica 59, sed loco último Ps. 116 Laudáte Dóminum, omnes gentes. 76}
+
+**Ant. 2** Salva nos, \* Christe Salvátor, per virtútem Crucis : qui salvásti Petrum in mari, miserére nobis.
+
+**Ant. 3** Ecce Crucem Dómini, \* fúgite, partes advérsæ, vicit leo de tribu Juda, radix David, allelúja.
+
+**Ant. 4** Nos autem gloriári \* opórtet in Cruce Dómini nostri Jesu Christi.
+
+**Ant. 5** Per signum Crucis \* de inimícis nostris líbera nos, Deus noster.
+
+**Capit.**
+*Philipp. 2, 5-7*
+
+FRatres : Hoc enim sentíte in vobis, quod et in Christo Jesu : qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo : sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+**Hymnus**
+
+VExílla Regis pródeunt :
+Fulget Crucis mystérium,
+Qua Vita mortem pértulit,
+Et morte vitam prótulit.
+
+Quæ, vulneráta lánceæ
+Mucróne diro, críminum
+Ut nos laváret sórdibus,
+Manávit unda et sánguine.
+
+Impléta sunt quæ cóncinit
+David fidéli cármine,
+Dicéndo natiónibus :
+Regnávit a ligno Deus.
+
+Arbor decóra et fúlgida,
+Ornáta Regis púrpura,
+Elécta digno stípite
+Tam sancta membra tángere.
+
+Beáta, cujus bráchiis
+Prétium pepéndit sæculi,
+Statéra facta córporis,
+Tulítque prædam tártari.
+
+{RUBRIC: Séquens strópha dícitur flexis génibus; et última numquam mutátur.}
+
+O Crux, ave, spes única,
+In hac triúmphi glória
+Piis adáuge grátiam,
+Reísque dele crímina.
+
+Te, fons salútis, Trínitas,
+Collaúdet omnis spíritus :
+Quibus Crucis victóriam
+Largíris, adde prǽmium.
+Amen.
+
+℣. Hoc signum Crucis erit in cælo. ℟. Cum Dóminus ad judicándum vénerit.
+
+**Ad Magnif. Ant.** O Crux, \* splendídior cunctis astris, mundo célebris, homínibus multum amábilis, sánctior univérsis, quæ sola fuísti digna portáre taléntum mundi, dulce lignum, dulces clavos, dúlcia ferens póndera; salva præséntem catérvam in tuis hódie láudibus congregátam.
+
+#### In II Vesperis
+
+{RUBRIC: (si alicubi dicéndæ sint)}
+
+**Ad Magnif. Ant.** O Crux benedícta, \* quæ sola fuísti digna portáre Regem cælórum et Dóminum, allelúja!
+
+**Oratio**
+
+DEus, qui nos hodiérna die Exaltatiónis sanctæ Crucis ánnua solemnitáte lætíficas : præsta, quǽsumus; ut, cujus mystérium in terra cognóvimus, ejus redemptiónis prǽmia in cælo mereámur. Per eúmdem Dóminum.
+
+{RUBRIC: Completórium de Dominica.}
+
+#### AD MATUTINUM
+
+**Invit.** Christum Regem, pro nobis in Cruce exaltátum, \* Veníte, adorémus.
+
+**Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus**
+
+PAnge, lingua, gloriósi
+Láuream certáminis,
+Et super Crucis tropǽo
+Dic triúmphum nóbilem :
+Quáliter Redémptor orbis
+Immolátus vícerit.
+
+DE paréntis protoplásti
+Fraude Factor cóndolens,
+Quando pomi noxiális
+In necem morsu ruit :
+Ipse lignum tunc notávit,
+Damna ligni ut sólveret.
+
+HOc opus nostræ salútis
+Ordo depopóscerat;
+Multifórmis proditóris
+Ars ut artem fálleret,
+Et medélam ferret inde,
+Hostis unde læserat.
+
+QUando venit ergo sacri
+Plenitúdo témporis,
+Missus est ab arce Patris
+Natus, orbis Cónditor;
+Atque ventre virgináli
+Carne amíctus pródiit.
+
+VAgit infans, inter arcta
+Cónditus præsépia :
+Membra pannis involúta
+Virgo Mater álligat :
+Et Dei manus pedésque
+Stricta cingit fáscia.
+
+SEmpitérna sit beátæ
+Trinitáti glória,
+Ǽqua Patri, Filióque;
+Par decus Paráclito :
+Unius Triníque nomen
+Laudet univérsitas.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Nóbile lignum \* exaltátur, Christi fides rútilat, dum Crux ab ómnibus venerátur.
+
+**Psalmus 1**
+
+BEátus vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, * et in cáthedra pestiléntiæ non sedit :
+
+Sed in lege Dómini volúntas ejus, * et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, * quod fructum suum dabit in témpore suo :
+
+Et fólium ejus non défluet : * et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic : * sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício : * neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum : * et iter impiórum períbit.
+
+**Ant.** Nóbile lignum exaltátur, Christi fides rútilat, dum Crux ab ómnibus venerátur.
+
+**Ant.** Sancta Crux \* extóllitur a cunctis régibus, virga régia erígitur, in qua Salvátor triumphávit.
+
+**Psalmus 2**
+
+QUare fremuérunt gentes, * et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum * advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum : * et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos : * et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, * et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, * prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me : * Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, * et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, * et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite : * erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre : * et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, * et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, * beáti omnes qui confídunt in eo.
+
+**Ant.** Sancta Crux extóllitur a cunctis régibus, virga régia erígitur, in qua Salvátor triumphávit.
+
+**Ant.** O Crux venerábilis, \* quæ salútem attulísti míseris, quibus te éfferam præcóniis, quóniam vitam nobis cælítem præparásti?
+
+**Psalmus 3**
+
+DOmine, quid multiplicáti sunt qui tríbulant me? * multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ : * Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, * glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi : * et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum : * et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me : * exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa : * dentes peccatórum contrivísti.
+
+Dómini est salus : * et super pópulum tuum benedíctio tua.
+
+**Ant.** O Crux venerábilis, quæ salútem attulísti míseris, quibus te éfferam præcóniis, quóniam vitam nobis cælítem præparásti?
+
+℣. Hoc signum Crucis erit in cælo. ℟. Cum Dóminus ad judicándum vénerit.
+
+{RUBRIC: De libro Númeri}
+
+##### Lectio i
+*Cap. 21, 1-9*
+
+CUm audísset Chananǽus rex Arad, qui habitábat ad merídiem, venísse scílicet Israël per exploratórum viam, pugnávit contra illum et víctor exsístens duxit ex eo prǽdam. At Israël, voto se Dómino óbligans, ait : Si tradíderis pópulum istum in manu mea, delébo urbes ejus. Exaudívitque Dóminus preces Israël, et trádidit Chananǽum, quem ille interfécit, subvérsis úrbibus ejus, et vocávit nomen loci illíus Horma, id est, anáthema.
+
+℟. Gloriósum diem sacra venerátur Ecclésia, dum triumphále exaltátur lignum : \* In quo Redémptor noster, mortis víncula rumpens, cállidum áspidem superávit. ℣. In ligno pendens nostræ salútis sémitam Verbum Patris invénit. — In quo.
+
+##### Lectio ii
+
+PRofécti sunt autem et de monte Hor per viam quæ ducit ad Mare Rubrum, ut circumírent terram Edom. Et tædére cœpit pópulum itíneris ac labóris. Locutúsque contra Deum et Móysen ait : Cur eduxísti nos de Ægýpto ut morerémur in solitúdine? Deest panis, non sunt aquæ, ánima nostra jam náuseat super cibo isto levíssimo. Quam ob rem misit Dóminus in pópulum ignítos serpéntes.
+
+℟. Crux fidélis, inter omnes arbor una nóbilis : nulla silva talem profert, fronde, flore, gérmine : \* Dulce lignum, dulces clavos, dulce pondus sustínuit. ℣. Super ómnia ligna cedrórum tu sola excélsior. — Dulce.
+
+##### Lectio iii
+
+AD quorum plagas et mortes plurimórum venérunt ad Móysen atque dixérunt : Peccávimus, quia locúti sumus contra Dóminum et te : ora ut tollat a nobis serpéntes. Oravítque Móyses pro pópulo. Et locútus est Dóminus ad eum : Fac serpéntem ǽneum et pone eum pro signo : qui percússus aspéxerit eum, vivet. Fecit ergo Móyses serpéntem ǽneum et pósuit eum pro signo; quem cum percússi aspícerent, sanabántur.
+
+℟. Hæc est arbor digníssima, in paradísi médio situáta, \* In qua salútis auctor própria morte mortem ómnium superávit. ℣. Crux præcelléndi decóre fúlgida, quam Heráclius imperátor concupiscénti ánimo recuperávit. — In. Glória Patri. In.
+
+### In II Nocturno
+
+**Ant.** O Crucis victória \* et admirábile signum, in cæléstí cúria fac nos captáre triúmphum.
+
+**Psalmus 4**
+
+CUm invocárem exaudívit me Deus justítiæ meæ : * in tribulatióne dilatásti mihi.
+
+Miserére mei, * et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? * ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum : * Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre : * quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. * Multi dicunt : Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine : * dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui * multiplicáti sunt.
+
+In pace in idípsum * dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** O Crucis victória et admirábile signum, in cæléstí cúria fac nos captáre triúmphum.
+
+**Ant.** Funéstæ mortis \* damnátur supplícium, dum Christus in Cruce nostra destrúxit víncula crimínum.
+
+**Psalmus 10**
+
+IN Dómino confído : quómodo dícitis ánimæ meæ : * Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, * ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt : * justus autem quid fecit?
+
+Dóminus in templo sancto suo, * Dóminus in cælo sedes ejus :
+
+Óculi ejus in páuperem respíciunt : * pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium : * qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos : * ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit : \* æquitátem vidit vultus ejus.
+
+**Ant.** Funéstæ mortis damnátur supplícium, dum Christus in Cruce nostra destrúxit víncula crimínum.
+
+**Ant.** Rex exaltátur \* in ætherá, cum nóbile trophǽum Crucis ab univérsis Christícolis adorátur per sǽcula.
+
+**Psalmus 20**
+
+DOmine, in virtúte tua lætábitur rex : * et super salutáre tuum exsultábit veheménter.
+
+Desidérium cordis ejus tribuísti ei : * et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis : * posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te : * et tribuísti ei longitúdinem diérum in sǽculum, et in sǽculum sǽculi.
+
+Magna est glória ejus in salutári tuo : * glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sǽculum sǽculi : * lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino : * et in misericórdia Altíssimi non commovébitur.

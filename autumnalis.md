@@ -33477,3 +33477,92 @@ Amen.
 {RUBRIC: Completorium de Dominica.}
 
 ---
+
+# II Aliae Lectiones pro plur. Martyribus
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+{RUBRIC: Sermo 1 de Martyribus, tom. 3}
+
+#### Lectio iv
+
+NEmo est qui nésciat, Mártyrum glórias ad hoc divíno consílio a Dei pópulis frequentári, ut et illis débitus honor dicétur, et nobis virtútis exémpla, favénte Christo monstréntur : ut, dum hæc ita celebrári perspícimus, cognoscámus, quanta eos glória máneat in cælis, quorum natalítia táliter celebrántur in terris; quo possímus étiam ipsi tálibus provocári exémplis, virtúte pari, devotióne consímili ac fide; ut, Christo præstánte, dimicáre et víncere hostem possímus, ut, parta victória, cum iísdem Sanctis in regnis cæléstibus triumphémus.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis : \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+#### Lectio v
+
+QUis est enim, qui, eórum volens mérito copulári, nisi prius constántiam eórum téneat, sectétur fidem, imitétur virtútem passiónis; eórum glóriam páribus vitæ lineaméntis aut invéniat aut exquírat? Qui etsi martýrio par esse non possit, tamen múneris tanti dignitáte se quisque bonis áctibus dignum præbeat. Adest enim clementíssimus Deus, qui desiderántibus suis aut martýrium præbeat, aut, sine martýrio, cum Sanctis prǽmia divína retríbuat.
+
+℟. Vérbera carnífícum non timuérunt Sancti Dei, moriéntes pro Christi nómine : \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+#### Lectio vi
+
+UT enim infirmátur peccátor advérsis, ita justus tentatiónibus roborátur. Sic dimicárunt advérsus peccátum Sancti; sic et laborándo fortióres, et moriéndo victóres efécti sunt. Nullus athlétes sine prœlio hostem subjécit; nemo sine bello imperatórem proméruit. Habes, christiáne, competéntia arma, quibus hostem expúgnes; habes fortíssima tela, quibus inimícum debélles.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum : \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem : et fidéles in dilectióne acquiéscent illi. — Quóniam. **Glória Patri.** Quóniam.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+*Cap. 6, 17-23*
+
+IN illo témpore : Descéndens Jesus de monte, stetit in loco campéstri, et turba discipulórum ejus, et multitúdo copiósa plebis ab omni Judǽa, et Jerúsalem, et marítima, et Tyri, et Sidónis. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+{RUBRIC: Lib. 5 in Luc. cap. 6, post init.}
+
+ADvérte ómnia diligénter, quómodo et cum Apóstolis ascéndat, et descéndat ad turbas. Quómodo enim turba nisi in húmili Christum vidéret? Non séquitur ad excélsa, non ascéndit ad sublímia. Dénique ubi descéndit, invénit infírmos; in excélsis enim infírmi esse non possunt. Hinc étiam Matthǽus docet in inferióribus débiles esse sanátos. Prius enim unusquísque sanándus est, ut paulátim virtútibus procedéntibus ascéndere possit ad montem. Et ídeo quemque in inferióribus sanat, hoc est, a libídine révocat, injúriam cæcitátis avértit. Ad vúlnera nostra descéndit; ut usu quodam et cópia suæ natúræ, compartícipes nos fáciat esse regni cæléstis.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis : \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+#### Lectio viii
+
+BEáti páuperes, quia véstrum est regnum Dei. Quátuor tantum beatitúdines sanctus Lucas Domínicas pósuit, octo vero sanctus Matthǽus; sed in illis octo istæ quátuor sunt, et in quátuor istis illæ octo. Hic enim quátuor velut virtútes ampléxus est cardináles; ille in illis octo mýsticum númerum reserávit. Pro octáva enim multi inscribúntur Psalmi, et mandátum áccipis octo illis partem dare, fortásse benedictiónibus. Sicut enim spei nostræ octáva perféctio est, ita octáva summa virtútum est.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis : \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. **Glória Patri.** Mercédem.
+
+{RUBRIC: Vel}
+
+℟. Hæc est vera fratérnitas, quæ numquam pótuit violári certámine : qui effúso sánguine secúti sunt Dóminum : \* Contemnéntes aulam régiam, pervenérunt ad regna cæléstia. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Contemnéntes. **Glória Patri.** Contemnéntes.
+
+#### Lectio ix
+
+SEd prius quæ sunt amplióra videámus. Beáti, inquit, páuperes, quóniam vestrum est regnum Dei. Primam benedictiónem hanc utérque Evangelísta pósuit. Ordine enim prima est, et parens quædam generatióque virtútum; quia qui contémpserit sæculária, ipse merébitur sempitérna, nec potest quisquam méritum regni cæléstis adipísci, qui, mundi cupiditáte pressus, emergéndi non habet facultátem.
+
+**Te Deum laudámus.**
+
+---
+
+# III Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+*Cap. 12, 1-8*
+
+IN illo témpore : Dixit Jesus discípulis suis : Atténdite a ferménto pharisæórum, quod est hypócrisis. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+{RUBRIC: Lib. 4 in Luc. cap. 12}
+
+DE hoc ferménto Apóstolus præcípit : Itaque epulémur, non in ferménto véteri, neque in ferménto malítiæ, et nequítiæ, sed in ázymis sinceritátis et veritátis. Nam sicut módicum ferméntum totam farínam, cui injícitur, massam corrúmpit, universámque mox conspersiónem suo sapóre commáculat : sic nimírum simulátio, cujus semel ánimum imbúerit, tota virtútum sinceritáte et veritáte fraudábit. Est ergo sensus : Atténdite, ne æmulémini simulatóres, quia véniet profécto tempus, in quo et vestra virtus ómnibus et eórum revelétur hypócrisis.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis : \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+#### Lectio viii
+
+VErum quod séquitur : Quóniam quæ in ténebris dixístis, in lúmine dicéntur; non solum in futúro, quando cuncta córdium abscóndita proferéntur ad lucem, sed et in præsénti témpore potest congruénter accípi. Quóniam quæ inter ténebras quondam pressurárum, carcerúmque umbras vel locúti, vel passi sunt Apóstoli, nunc, clarificáta per orbem Ecclésia, lectis eórum áctibus, públice prædicántur. Ne terreámini ab his, qui occídunt corpus. Si persecutóres Sanctórum, occísis corpóribus, non habent ámplius quid contra illos agant; ergo supervácua furunt insánia, qui mórtua Mártyrum membra feris avibúsque discerpénda projíciunt, cum nequáquam omnipoténtiæ Dei, quin ea resuscitándo vivíficet, obsístere possint.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis : \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. **Glória Patri.** Mercédem.
+
+{RUBRIC: Vel ℟. Hæc est vera. [67]}
+
+#### Lectio ix
+
+DUO autem sunt génera persecutórum : unum palam sæviéntium, álterum ficte fraudulentérque blandiéntium. Contra utrúmque nos muníre atque instítuere volens Salvátor, et supra ab hypócrisi pharisæórum atténdere, et hic a carnífícum cæde præcípit non timére; quia vidélicet post mortem nec horum crudélitas, nec illórum váleat simulátio duráre. Nonne quinque pásseres véneunt dipóndio? Si minutíssima, inquit, animália, et quæ quólibet per áëra ferúntur volatília, Deus oblivísci non potest; vos, qui imáginem facti estis Creatóris, non debétis terréri ab his, qui occídunt corpus; quia, qui irrationabília animália gubérnat, rationabília curáre non désinit.
+
+**Te Deum laudámus.**

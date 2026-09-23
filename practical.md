@@ -1433,6 +1433,32 @@ Other Offices (doubles, semi-doubles, and simples) may not be transferred, but t
 
 **86.** (a) *Major Sundays of the second class* are preferred to any feast whatsoever, with the exception of doubles of the first class.
 
-(b) *Privileged octaves of the second order* are preferred — on days within the octave — to any feast whatsoever, excepting doubles of the first class; and — on the octave-day — to all doubles of
+(b) *Privileged octaves of the second order* are preferred — on days within the octave — to any feast whatsoever, excepting doubles of the first class; and — on the octave-day — to all doubles of the first class which are not celebrated in the Universal Church.[^104]
+
+(c) *Privileged octaves of the third order*, and *common octaves*, are preferred — on days within the octave — only to Offices of simple rite; and — on the octave-day — to all doubles that are not of the first or second class.
+
+(d) *Simple octaves*, having no "*dies infra octavam*," are preferred, on their octave-day (which is only of simple rite), to simples and to the Office of *S. Maria in Sabbato*.
+
+(e) The *vigil of the Epiphany*, which is the one and only privileged vigil of the second class, is — like a Sunday — preferred to all feasts excepting feasts of the Lord and doubles of the first and second class.
+
+(f) *Major non-privileged ferials* are preferred only to feasts of simple rite.
+
+[^104]: Wapelhorst, *Compendium S. Liturgiæ*, n. 245, I., says, or, rather implies, that the octave-day of the Epiphany does not yield to a double of the first class celebrated in the whole Church. He does not, however, give any references in favor of his statement. The Rubrics given on privileged octaves would seem to prove the contrary.
+
+---
+
+## CHAPTER XIII
+
+## OTHER CASES OF OCCURRENCE
+
+**87.** So far we have taken up the question of concurrence in relation to certain festivals and certain other determined days. There are, however, numerous cases in which Offices may occur in various ways, and for these cases there are special rules.
+
+When many Offices of different rite and dignity occur, we want to know which one will be actually celebrated; and what about the others which may have to be transferred (if they have that privilege) or merely commemorated? The questions of Translation and Commemorations will be dealt with under their own proper headings, and now we will treat of rules by which one Office is preferred to other Offices which may fall on the same day.
+
+**88.** *General rule.* The "most important" Office is preferred; the other, or others, are either transferred, reduced to a commemoration, or entirely omitted.
+
+### Points to be Considered
+
+In order to determine which is the *most important* Office, the following points are given to be
 
 ---

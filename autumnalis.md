@@ -24842,3 +24842,151 @@ ET nunc misit me Dóminus ut curárem te, et Saram, uxórem fílii tui a dæmón
 ### In II Nocturno
 
 **Ant.** Dixit autem Angelus : \* Apprehénde bránchiam piscis, et trahe eum extra aquas.
+
+**Psalmus 18**
+
+CÆli enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum : \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum : \* et ipse tamquam sponsus procédens de thálamo suo :
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus :
+
+Et occúrsus ejus usque ad summum ejus : \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas : \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda : \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sǽculum sǽculi : \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum : \* et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me : \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint dominiáti, tunc immaculátus ero : \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei : \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** Dixit autem Angelus : Apprehénde bránchiam piscis, et trahe eum extra aquas.
+
+**Ant.** Obsecro te, \* Azaría frater, ut dicas mihi, quod remédium habébunt ista, quæ de pisce serváre jussísti.
+
+**Psalmus 23**
+
+DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens : Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Obsecro te, Azaría frater, ut dicas mihi, quod remédium habébunt ista, quæ de pisce serváre jussísti.
+
+**Ant.** Lúmina fel sanat, \* sed virtus cordis et jécoris diáboli expéllit potestátem.
+
+**Psalmus 33**
+
+BEnedícam Dóminum in omni témpore : \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea : \* áudiant mansuéti, et lætántur.
+
+Magnificáte Dóminum mecum : \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me : \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini : \* et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum : \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum : \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus : \* beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus : \* quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt : \* inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me : \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam : \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo : \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum : \* inquíre pacem, et perséquere eam.
+
+Óculi Dómini super justos : \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala : \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos : \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde : \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum : \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum : \* unum ex his non conterétur.
+
+Mors peccatórum péssima : \* et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum : \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Lúmina fel sanat, sed virtus cordis et jécoris diáboli expéllit potestátem.
+
+℣. Ascéndit fumus aromátum in conspéctu Dómini. ℟. De manu Angeli.
+
+{RUBRIC: Sermo sancti Bonaventúræ Epíscopi (De sanctis Angelis Sermo 5, sub fine)}
+
+##### Lectio iv
+
+RAphaël interpretátur medicína Dei. Et debémus notáre quod edúctio a malo est per tria benefícia, a Ráphaéle nobis collátta medicánte nos. Edúcit ergo nos Ráphaël médicus ab infirmitáte ánimi, inducéndo nos ad amaritúdinem contritiónis; unde in Tobía dixit Ráphaël : Ubi introíeris domum tuam, lini super óculos ejus ex felle. Sic fecit, et vidit. Quare Ráphaël non pótuit ipse fácere? Quia Angelus non dat compunctiónem, sed osténdit viam. Per fel intellígitur amaritúdo contritiónis, quæ sanat óculos interióris mentis; Psalmus : Qui sanat contrítos corde. Hoc est óptimum collýrium. In Júdicum secúndo dícitur quod Angelus ascéndit ad locum fléntium, et dixit pópulo : Edúxi vos de terra Ægýpti, feci vobis tot et tanta bona; et flevit omnis pópulus, ita ut locus ille appellarétur locus fléntium. Caríssimi, Angeli tota die narrant nobis benefícia Dei, et redúcunt ea nobis ad memóriam : Quis est qui te creávit, qui te redémit? Quid fecísti, quem offendísti? Hoc si consideráveris, nullum habes remédium nisi flere.
+
+℟. Interrogávit Tobías Angelum : De qua domo, aut de qua tribu es tu? Qui respóndens, ait : \* Ego sum Azarías, Ananíæ magni fílius. ℣. Genus quǽris mercenárii, an ipsum mercenárium, qui cum fílio tuo eat? Sed ne forte sollícitus sis. — Ego.
+
+##### Lectio v
+
+SEcúndo Ráphaël edúcit de servitúte diáboli, persuadéndo nobis memóriam passiónis Christi; in cujus figúram dictum est Tobíæ sexto : Cordis ejus partículam si super carbónes ponas, fumus ejus extrícat omne genus dæmoniórum. Dícitur Tobíæ octávo quod pósuit Tobías partículam cordis super carbónes, et Ráphaël religávit dæmónium in desérto superióris Ægýpti. Quid est hoc? Non póterat Ráphaël religáre dæmónium nisi ponerétur cor super carbónes? Numquid cor piscis dabat Angelo tantam virtútem? Nequáquam! Nihil posset, nisi ibi mystérium esset. In hoc enim nobis datur intélligi quod nihil est quod ita nos líberet hódie a servitúte diáboli sicut pássio Christi, quæ procéssit ex radíce cordis sive caritátis. Cor enim fons est calóris cunctæ vitæ. Si ergo Cor Christi, hoc est passiónem quam sustínuit, procedéntem ex radíce caritátis et fonte calóris, ponas super carbónes, hoc est super inflammátam memóriam; statim dæmon religábitur, ut tibi nocére non possit.
+
+℟. Exívit Tobías, ut laváret pedes suos, et ecce piscis immánis exívit ad devorándum eum : qui expavéscens, clamávit voce magna, dicens : Dómine, invádit me. Et dixit ei Angelus : Apprehénde bránchiam ejus, et trahe eum ad te. \* Exéntera hunc piscem, et cor ejus, et fel et jecur repóne tibi : sunt enim necessária ad medicaménta utíliter. ℣. Attráxit autem Tobías piscem in siccum, et palpitáre cœpit ante pedes ejus; et ait Angelus ei. — Exéntera.
+
+##### Lectio vi
+
+TErtio líberat nos a contrarietáte Dei, quam incúrrimus per offénsam Dei, et hoc inducéndo nos ad instántiam oratiónis; et hoc est quod dixit Angelus Ráphaël Tobíæ duodécimo : Quando orábas cum lácrimis, ego óbtuli oratiónem tuam Dómino. Ipsi enim Angeli reconcíliant nos Deo, quantum possunt. Accusatóres nostri coram Deo sunt dæmones. Angeli autem excúsant nos, quando ófferunt oratiónes nostras, ad quas devóte faciéndas nos indúcunt; Apocalýpsis octávo : Ascéndit fumus aromátum in conspéctu Dómini de manu Angeli. Arómata ista suáviter redoléntia sunt oratiónes Sanctórum. Vis placáre Deum, quem offendísti? Ora devóte. Offerunt Deo oratiónem tuam, ut te Deo reconcílient. Dícitur in Luca quod Christus, factus in agónia, prolíxius orábat, et appáruit Angelus Dómini confórtans eum. Et hoc totum factum est propter nos, quia non indíguit confortatióne sua, sed ut ostenderétur quod libénter assístunt devóte orántibus, et libénter juvant eos et ipsos confórtant, et oratiónes eórum Deo ófferunt. — Festum sancti Raphaëlis Archángeli Benedíctus Papa décimus quintus ad univérsam Ecclésiam exténdit.
+
+℟. Ubi introíeris domum tuam, dixit Angelus Ráphaël ad Tobíam, statim adóra Dóminum Deum tuum, et, grátias agens ei, accéde ad patrem tuum, et osculáre eum : \* Statímque lini super óculos ejus ex felle isto piscis, quem portas tecum; scias enim quóniam mox aperiéntur óculi ejus, et vidébit pater tuus lumen cæli, et in aspéctu tuo gaudébit. ℣. Tolle tecum ex felle isto piscis; erit enim necessárium. — Statímque. Glória Patri. Statímque.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+{RUBRIC: Sermo sancti Bonaventúræ Epíscopi (De Ss. Angelis, Sermo 1 in Collationis medio)}
+
+##### Lectio ix
+
+ANgeli condescéndunt nobis, eripiéndo nos a culpa; unde in Tobía, postquam flevit Tobías et Sara, Tobías propter cæcitátem oculórum, Sara propter dæmónium, quod interfécerat marítos, missus est Ráphaël Angelus. Ráphaël interpretátur medicína Dei. Vidéte, quómodo est mundítia et quorum, quia plorántium. Et quómodo? Per víscera piscis exenteráti : fumus jécoris pósiti super carbónes fugat dæmónium, et fel ejus claríficat visum. In quo significátur, quod ad hoc, quod sanémur per ministérium Angelórum, necessária est nobis recognítio miseriárum nostrárum, et dolor de peccátis, et cum his memória passiónis Christi. Vile est esse cæcum et sub servitúte diáboli. In tali statu est peccátor, quia pérdidit lucem spirituálem et subjéctus est dæmóni. Fratres, vidéte mystérium salútis nostræ. Angeli non possunt nos curáre, nisi hábeant collýrium, partim accéptum a nobis, scílicet quantum ad recognitiónem miseriárum nostrárum, et quantum ad memóriam passiónis, et partim accéptum a pisce, id est a caritáte Christi. Quámdiu habémus tempus pœniténtiæ, satisfaciámus pro posse nostro; non studeámus acquírere novas infirmitátes.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+**Ant.** Est hic Sara \* Raguélis fília; quæ tibi conjúgio dábitur, et omnis substántia ejus.

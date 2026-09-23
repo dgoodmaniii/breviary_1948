@@ -30056,3 +30056,35 @@ DEus, qui sanctum Joánnem, Confessórem tuum atque Doctórem, perféctæ sui ab
 **Ant.** Dedísti, Dómine, habitáculum Mártyri tuo Cleménti in mari, in modum templi marmórei angélicis mánibus præparátum : iter præbens pópulo terræ, ut enárrent mirabília tua.
 
 ℣. Justus ut palma.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Cleméntem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Deínde Commem. S. Chrysógoni Mart. :}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória.
+
+**Oratio**
+
+ADésto, Dómine, supplicatiónibus nostris : ut, qui ex iniquitáte nostra reos nos esse cognóscimus, beáti Chrysógoni Mártyris tui intercessióne liberémur. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+JOánnes a Cruce, Fontíberi in Hispánia piis paréntibus natus, a primis annis certo innótuit quam Deíparæ Vírgini futúrus esset accéptus; nam quinquénnis, in púteum lapsus, ejúsdem Deíparæ manu sublátus, incólumis evásit. Tanto autem patiéndi desidério flagrávit, ut, novénnis, spreto mollióri lecto, super sarméntis cubáre consuéverit. Adoléscens hospítio páuperum ægrotántium Metýmnæ Campi fámulum sese addíxit, quibus magno caritátis ardóre, vilíssima quæque compléctens offícia, præsto áderat. Cujus exémplo excitáti céteri, éadem caritátis múnera ardéntius obíbant. Verum, ad altióra vocátus, beátæ Maríæ Vírginis de Monte Carmélo institútum ampléxus est; ubi sacérdos ex obediéntia factus, severióris disciplínæ et arctióris vitæ cupidíssimus, primitívam órdinis régulam ex superióris licéntia ita proféssus est, ut, ob jugem Domínicæ passiónis memóriam, bello in se, tamquam in infensíssimum hostem indícto, vigíliis, jejúniis, férreis flagéllis omníque pœnárum génere, brevi carnem cum vítiis et concupiscéntiis suis crucifíxerit; dignus plane, qui a sancta Terésia inter puríores sanctiorésque ánimas, Ecclésiam Dei id témporis illustrántes, recenserétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit illi claritátem ætérnam.
+
+##### Lectio v
+
+SIngulári vitæ austeritáte et ómnium virtútum præsídio munítus, præ assídua rerum divinárum contemplatióne, diutúrnas et mirábiles éxtases frequénter patiebátur; tantóque in Deum æstuábat amóre, ut, cum divínus ignis sese intro diútius continére non posset, foras erúmpere ejúsque vultum irradiáre visus sit. Proximórum salúti summópere inténtus, tum in verbi Dei prædicatióne, tum in sacramentórum administratióne fuit assíduus. Hinc tot méritis auctus, strictiorísque disciplínæ promovéndæ ardóre veheménter accénsus, sanctæ Terésiæ comes divínitus datus est, ut, quam ipsa inter soróres primǽvam Carméli órdinis observántiam instauráverat, eámdem et inter fratres, Joánne adjutóre, restitúeret. Innúmeros ítaque una cum Dei fámula in divíno ópere promovéndo perpéssus labóres, cœnóbia, quæ ejúsdem sanctæ Vírginis cura per totam Hispániam erécta fúerant, nullis vitæ incómmodis et perículis térritus, síngula perlustrávit. In quibus aliísque quamplúrimis ejus ópera eréctis, restaurátam observántiam propagándo, verbo et exémplo firmávit; ut mérito primus, post sanctam Terésiam, Carmelitárum excalceatórum órdinis proféssor et parens habeátur.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+VIrginitátem perpétuo cóluit, impudentésque mulíeres ejus pudicítiæ insidiári conántes, non modo répulit, sed étiam Christo lucrifécit. In divínis explicándis arcánis æque ac sancta Terésia, apostólicæ Sedis judício, divínitus instrúctus, libros de mýstica theología, cæléstí sapiéntia refértos, conscrípsit. Semel interrogátus a Christo, quid prǽmii pro tot labóribus pósceret, respóndit : Dómine, pati et contémni pro te.

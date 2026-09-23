@@ -29956,3 +29956,103 @@ BEáta Felícitas, cujus hódie natalítia celebrámus, septem fílios sic post 
 **Ant. 4** De sub cujus pede \* fons vivus emánat : flúminis ímpetus lætíficat civitátem Dei.
 
 **Ant. 5** Omnes gentes \* per gyrum credidérunt Christo Dómino.
+
+{RUBRIC: Capitulum Jac. 1, 12}
+
+BEátus vir, qui suffert tentatiónem : quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+**Hymnus**
+
+INvícte Martyr, únicum
+Patris secútus Fílium,
+Victis triúmphas hóstibus,
+Victor fruens cæléstibus.
+
+Tui precátus múnere
+Nostrum reátum dílue,
+Arcens mali contágium,
+Vitæ repéllens tædium.
+
+Solúta sunt jam víncula
+Tui sacráti córporis :
+Nos solve vínclis sæculi,
+Dono supérni Núminis.
+
+Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Cum iter ad mare cepísset, \* pópulus voce magna clamábat : Dómine Jesu Christe, salva illum; et Clemens cum lácrimis dicébat : Súscipe, Pater, spíritum meum.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Cleméntem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et fit Com. S. Felicitátis M. :}
+
+**Ant.** Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+℣. Diffúsa est grátia.
+
+**Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, beátæ Felicitátis Mártyris tuæ solémnia recenséntes, méritis ipsíus protegámur et précibus. Per Dóminum nostrum.
+
+{RUBRIC: Ad Horas, Añæ et Psalmi de Feria; ad Primam Lectio brevis Justus, ut infra ad Nonam.}
+
+{RUBRIC: Sicúbi autem hoc Festum sub ritu duplíci I vel II clássis recolátur, Antíphonæ de Laudibus, ut supra 846, cum Psalmis de Dominica ut in Festis.}
+
+#### AD TERTIAM
+
+{RUBRIC: Capit. Beátus vir, ut supra.}
+
+℟. br. Glória et honóre \* Coronásti eum, Dómine. Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Coronásti eum, Dómine. Glória Patri. Glória et. ℣. Posuísti, Dómine, super caput ejus. ℟. Corónam de lápide pretióso.
+
+#### AD SEXTAM
+
+{RUBRIC: Capitulum Eccli. 15, 3}
+
+CIbávit illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potávit illum Dóminus, Deus noster.
+
+℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. Glória Patri. Posuísti. ℣. Magna est glória ejus in salutári tuo. ℟. Glóriam et magnum decórem impónes super eum.
+
+#### AD NONAM
+
+{RUBRIC: Capitulum Eccli. 39, 6}
+
+JUstus cor suum trádit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. Glória Patri. Magna est. ℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+#### IN II VESPERIS
+
+{RUBRIC: Añæ de Laud. 846; Psalmi ut in I Vésperis de Communi Apóstoli. [3], sed loco último Ps. 115 Crédidi. [18]}
+
+{RUBRIC: A Capítulo fit de sequénti, Commemoratio præcedéntis et S. Chrysogóni Mártyris.}
+
+{RUBRIC: Si II Vésperæ dicéndæ sint íntegræ, Capítulum et Hymnus de I Vésperis 842; Versus et Ant. ad Magníficat, ut infra.}
+
+---
+
+# Die 24 Novembris
+
+## S. Joannis a Cruce
+
+{RUBRIC: Conf. et Eccl. Doct. [94] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Joánnes, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+**Oratio**
+
+DEus, qui sanctum Joánnem, Confessórem tuum atque Doctórem, perféctæ sui abnegatiónis et crucis amatórem exímium effecísti : concéde; ut, ejus imitatióni júgiter inhæréntes, glóriam assequámur ætérnam. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** Dedísti, Dómine, habitáculum Mártyri tuo Cleménti in mari, in modum templi marmórei angélicis mánibus præparátum : iter præbens pópulo terræ, ut enárrent mirabília tua.
+
+℣. Justus ut palma.

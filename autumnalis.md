@@ -29863,3 +29863,47 @@ GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Cleméntem Má
 {RUBRIC: Et fit Commem. præced. :}
 
 **Ant.** Virgo gloriósa semper Evangélium Christi gerébat in péctore suo, et non diébus neque nóctibus a collóquiis divínis et oratióne cessábat.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Oratio**
+
+DEus, qui nos ánnua beátæ Cæcíliæ Vírginis et Mártyris tuæ solemnitáte lætíficas : da, ut, quam venerámur offício, étiam piæ conversatiónis sequámur exémplo. (Per Dóminum.)
+
+{RUBRIC: Deínde Commem. S. Felicitátis Mart. :}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Spécie tua et.
+
+**Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, beátæ Felicitátis Mártyris tuæ solémnia recenséntes, méritis ipsíus protegámur et précibus. Per Dóminum.
+
+{RUBRIC: Completorium de Feria.}
+
+### In II Nocturno
+
+##### Lectio iv
+
+CLemens, Románus, Faustíni fílius, de regióne Cælii montis, discípulus beáti Petri, cujus méminit Paulus scribens ad Philippénses : Etiam rogo et te, germáne compar, ádjuva illas quæ mecum laboravérunt in Evangélio, cum Cleménte et céteris adjutóribus meis, quorum nómina sunt in libro vitæ. Hic septem Urbis regiónes divísit septem notáriis, síngulas síngulis attríbuens, qui passiónes Mártyrum et res ab eis gestas, diligentíssime conquisítas, lítteris mandárent. Multa scripsit et ipse accuráte et salutáriter, quibus christiánam religiónem illustrávit.
+
+℟. Oránte sancto Cleménte, appáruit ei Agnus Dei, \* De sub cujus pede fons vivus emánat : flúminis ímpetus lætíficat civitátem Dei. ℣. Vidi supra montem Agnum stantem. — De.
+
+##### Lectio v
+
+CUM autem doctrína ac vitæ sanctitáte multos ad Christi fidem convérteret, a Trajáno imperatóre relegátus est trans mare Pónticum in solitúdine urbis Chersónæ, in qua duo míllia Christianórum reperit, qui ab eódem Trajáno condemnáti fúerant. Qui cum in eruéndis et secándis marmóribus aquæ penúria laborárent, Clemens, facta oratióne, in vicínum collem ascéndit, in cujus jugo vidit Agnum déxtero pede fontem aquæ dulcis, qui inde scatébat, attingéntem; ubi omnes sitim explevérunt. Eóque miráculo multi infidéles, ad Christi fidem convérsi, Cleméntis étiam sanctitátem venerári cœpérunt.
+
+℟. Omnes una voce dixérunt : Ora pro nobis, sancte Clemens; \* Ut digni efficiámur promissiónibus Christi. ℣. Non meis méritis ad vos me misit Dóminus vestris corónis partícipem fíeri. — Ut.
+
+##### Lectio vi
+
+QUibus concitátus Trajánus, misit illuc qui Cleméntem, alligáta ad ejus collum ánchora, in profúndum dejícerent. Quod cum factum esset, Christiánis ad littus orántibus, mare ad tria milliária recéssit; eóque illi accedéntes, ædículam marmóream in templi formam et intus arcam lapídeam, ubi Mártyris corpus cónditum erat, et juxta illud ánchoram qua mersus fúerat, invenérunt. Quo miráculo íncolæ permóti, Christi fidem suscepérunt. Ejus corpus póstea Romam, Nicoláo primo Pontífice, translátum, in ecclésia ipsíus sancti Cleméntis cónditum est. Ecclésia étiam in eo ínsulæ loco unde divínitus fons manárat, ejúsdem nómine dedicáta est. Vixit in pontificátu annos novem, menses sex, dies sex. Fecit ordinatiónes duas mense Decémbri, quibus creávit presbýteros decem, diáconos duos, epíscopos per divérsa loca quíndecim.
+
+℟. Dedísti, Dómine, habitáculum Mártyri tuo Cleménti in mari, in modum templi marmórei angélicis mánibus præparátum : \* Iter præbens pópulo terræ, ut enárrent mirabília tua. ℣. Dedísti, Dómine, Sanctis tuis viam in mari, et in flumínibus sémitam. — Iter. Glória Patri. Iter.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+CLemens Románus discípulus beáti Petri, septem Urbis regiónes divísit septem notáriis, síngulas síngulis attríbuens, qui passiónes Mártyrum et res ab eis gestas, diligentíssime conquisítas, lítteris mandárent. Multa scripsit et ipse accuráte et salutáriter, quibus christiánam religiónem illustrávit.

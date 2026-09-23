@@ -39247,3 +39247,31 @@ SPíritus meus attenuábitur, dies mei breviabúntur, et solum mihi súperest se
 *Job 19, 20-27*
 
 PElli meæ, consúmptis cárnibus, adhǽsit os meum, et derelícta sunt tantúmmodo lábia circa dentes meos. Miserémini mei, miserémini mei, saltem vos, amíci mei, quia manus Dómini tétigit me. Quare persequímini me sicut Deus, et cárnibus meis saturámini? Quis mihi tríbuat, ut scribántur sermónes mei? quis mihi det, ut exaréntur in libro, stilo férreo et plumbi lámina, vel celte sculpántur in sílice? Scio enim quod redémptor meus vivit, et in novíssimo die de terra surrectúrus sum : et rursum circúmdabor pelle mea, et in carne mea vidébo Deum meum. Quem visúrus sum ego ipse, et óculi mei conspectúri sunt, et non álius : repósita est hæc spes mea in sinu meo.
+
+℟. Dómine, secúndum actum meum noli me judicáre : nihil dignum in conspéctu tuo egi; ídeo déprecor majestátem tuam, \* Ut tu, Deus, déleas iniquitátem meam. ℣. Amplius lava me, Dómine, ab injustítia mea, et a delícto meo munda me. — Ut.
+
+#### Lectio ix
+
+*Job 10, 18-22*
+
+QUare de vulva eduxísti me? qui útinam consúmptus essem ne óculus me vidéret. Fuíssem quasi non essem, de útero translátus ad túmulum. Numquid non páucitas diérum meórum finiétur brevi? Dimítte ergo me, ut plangam páululum dolórem meum, ántequam vadam, et non revértar, ad terram tenebrósam et opértam mortis calígine; terram misériæ et tenebrárum, ubi umbra mortis et nullus ordo, sed sempitérnus horror inhábitat.
+
+{RUBRIC: Sequens Responsórium tunc pónitur, quando dictus fúerit tértius tantum Noctúrnus pro Defúnctis.}
+
+℟. Líbera me, Dómine, de viis inférni, qui portas ǽreas confregísti, et visitásti inférnum, et dedísti eis lumen, ut vidérent te \* Qui erant in pœnis tenebrárum. ℣. Clamántes et dicéntes : Advenísti, Redémptor noster. — Qui. Réquiem ætérnam dona eis, Dómine : et lux perpétua lúceat eis. Qui.
+
+{RUBRIC: Sequens Responsórium pónitur loco præcedéntis, quando tres Noctúrni dicti fúerint pro Defúnctis.}
+
+℟. Líbera me, Dómine, de morte ætérna in die illa treménda, \* Quando cæli movéndi sunt et terra, \* Dum véneris judicáre sǽculum per ignem. ℣. Tremens factus sum ego et tímeo, dum discússio vénerit atque ventúra ira. Quando. ℣. Dies illa, dies iræ, calamitátis et misériæ, dies magna et amára valde. — Dum. Réquiem ætérnam dona eis, Dómine : et lux perpétua lúceat eis. Líbera me, {RUBRIC: usque ad primum ℣. Tremens exclusíve.}
+
+{RUBRIC: Si Matutínum, cum único vel tribus Nocturnis, in privátá recitatióne a Láudibus sepárétur, post últimum Responsórium subjúngitur :}
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+{RUBRIC: Deinde dícitur Orátio (seu dicúntur Oratiónes), ut supra in Vésperis [206], addítis sequéntibus :}
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Laudes vero, dictis secréto Pater noster et Ave María,}

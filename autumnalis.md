@@ -23029,3 +23029,126 @@ Intéxta acútis séntibus,
 Coróna contuméliæ,
 Squalénti amíctum púrpura,
 Regem corónat glóriæ.
+
+Molis crucem ter árduæ,
+Sudans, anhélans, cóncidens,
+Ad montis usque vérticem
+Gestáre vi compéllitur.
+
+Confíxus atro stípite
+Inter sceléstos ínnocens,
+Orándo pro tortóribus,
+Exsánguis efflat spíritum.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Angelus Gábriel \* nuntiávit Maríæ : et concépit de Spíritu Sancto.
+
+**Psalmus 8**
+
+DOmine, Dóminus noster, * quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, * super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, * ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos ópera digitórum tuórum : * lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? * aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : * et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, * oves et boves univérsas : ínsuper et pécora campi.
+
+Volúcres cæli, et pisces maris, * qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, * quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Angelus Gábriel nuntiávit Maríæ : et concépit de Spíritu Sancto.
+
+**Ant.** Intrávit María \* in domum Zacharíæ, et salutávit Elísabeth.
+
+**Psalmus 18**
+
+CÆli enárrant glóriam Dei, * et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, * et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, * quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum : * et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum : * et ipse tamquam sponsus procédens de thálamo suo :
+
+Exsultávit ut gigas ad curréndam viam, * a summo cælo egréssio ejus :
+
+Et occúrsus ejus usque ad summum ejus : * nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas : * testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda : * præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sǽculum sǽculi : * judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum : * et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, * in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me : * et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero : * et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei : * et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, * et redémptor meus.
+
+**Ant.** Intrávit María in domum Zacharíæ et salutávit Elísabeth.
+
+**Ant.** Péperit Fílium suum \* primogénitum, et reclinávit eum in præsépio.
+
+**Psalmus 23**
+
+DOmini est terra, et plenitúdo ejus : * orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : * et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? * aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, * qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : * et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, * quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : * et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? * Dóminus fortis et potens : Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : * et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? * Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Péperit Fílium suum primogénitum, et reclinávit eum in præsépio.
+
+℣. Sancta Dei Génitrix, semper Virgo María. ℟. Intercéde pro nobis ad Dóminum, Deum nostrum.
+
+{RUBRIC: De libro Ecclesiástici}
+
+##### Lectio i
+*Cap. 24, 11-22*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo, et dixit mihi : In Jacob inhábita, et in Israël hereditáre, et in eléctis meis mitte radíces. Ab inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso ministrávi. Et sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. Súmite psaltérium jucúndum in insígni die solemnitátis vestræ : \* Et exsultáte Vírgini adjutríci nostræ. ℣. Cantáte ei cánticum novum : annuntiáte inter gentes glóriam ejus. — Et.
+
+##### Lectio ii
+
+QUasi cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion : quasi palma exaltáta sum in Cades, et quasi plantátio rosæ in Jéricho : quasi olíva speciósa in campis, et quasi plátanus exaltáta sum juxta aquam in platéis. Sicut cinnamómum et bálsamum aromatízans odórem dedi : quasi myrrha elécta, dedi suavitátem odóris; et quasi storax et gálbanus et úngula et gutta et quasi Líbanus non incísus vaporávi habitatiónem meam, et quasi bálsamum non mistum odor meus. Ego quasi terebínthus exténdi ramos meos, et rami mei honóris et grátiæ.
+
+℟. Vidi speciósam ascendéntem désuper rivos aquárum; cujus inæstimábilis odor erat nimis; \* Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. ℣. Astitit Regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et.

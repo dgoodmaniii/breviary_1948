@@ -26308,3 +26308,75 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 **Ant.** Admirábile est nomen tuum, Dómine; quia glória et honóre coronásti Sanctos tuos, et constituísti eos super ópera mánuum tuárum.
 
 ℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+{RUBRIC: De libro Apocalýpsis beáti Joánnis Apóstoli}
+
+##### Lectio i
+*Cap. 4, 2-8*
+
+ET ecce sedes pósita erat in cælo, et supra sedem sedens. Et qui sedébat, símilis erat aspéctui lápidis jáspidis et sárdinis : et iris erat in circúitu sedis símilis visióni smarágdinæ. Et in circúitu sedis sedília vigínti quátuor : et super thronos vigintiquátuor senióres sedéntes, circumamícti vestiméntis albis, et in capítibus eórum corónæ áureæ. Et de throno procedébant fúlgura, et voces, et tonítrua : et septem lámpades ardéntes ante thronum, qui sunt septem spíritus Dei. Et in conspéctu sedis tamquam mare vítreum símile crystállo : et in médio sedis, et in circúitu sedis quátuor animália plena óculis ante et retro. Et animal primum símile leóni, et secúndum ánimal símile vítulo, et tértium ánimal habens fáciem quasi hóminis, et quartum ánimal símile áquilæ volánti. Et quátuor animália, síngula eórum habébant alas senas : et in circúitu et intus plena sunt óculis, et réquiem non habébant die ac nocte, dicéntia : Sanctus, sanctus, sanctus Dóminus, Deus omnípotens, qui erat, et qui est, et qui ventúrus est.
+
+℟. Vidi Dóminum sedéntem super sólium excélsum et elevátum : et plena erat omnis terra majestáte ejus : \* Et ea, quæ sub ipso erant, replébant templum. ℣. Séraphim stabant super illud : sex alæ uni, et sex alæ álteri. — Et.
+
+##### Lectio ii
+*Cap. 5, 1-14*
+
+ET vidi in déxtera sedéntis supra thronum, librum scriptum intus et foris, signátum sigíllis septem. Et vidi Angelum fortem, prædicántem voce magna : Quis est dignus aperíre librum, et sólvere signácula ejus? Et nemo póterat, neque in cælo, neque in terra, neque subtus terram, aperíre librum neque respícere illum. Et ego flebam multum, quóniam nemo dignus invéntus est aperíre librum nec vidére eum. Et unus de senióribus dixit mihi : Ne fléveris : ecce vicit leo de tribu Juda, radix David, aperíre librum, et sólvere septem signácula ejus. Et vidi : et ecce in médio throni et quátuor animálium, et in médio seniórum, Agnum stantem tamquam occísum, habéntem córnua septem et óculos septem : qui sunt septem spíritus Dei, missi in omnem terram. Et venit, et accépit de déxtera sedéntis in throno librum. Et, cum aperuísset librum, quátuor animália et vigínti quátuor senióres cecidérunt coram Agno, habéntes sínguli cítharas, et phíalas áureas plenas odoramentórum, quæ sunt oratiónes Sanctórum.
+
+℟. Beáta es, Virgo María, Dei Génitrix, quæ credidísti Dómino : perfécta sunt in te quæ dicta sunt tibi : ecce exaltáta es super choros Angelórum : \* Intercéde pro nobis ad Dóminum, Deum nostrum. ℣. Ave, María, grátia plena; Dóminus tecum. — Intercéde.
+
+##### Lectio iii
+
+ET cantábant cánticum novum, dicéntes : Dignus es, Dómine, accípere librum, et aperíre signácula ejus : quóniam occísus es, et redemísti nos Deo in sánguine tuo ex omni tribu et língua et pópulo et natióne et fecísti nos Deo nostro regnum, et sacerdótes : et regnábimus super terram. Et vidi, et audívi vocem Angelórum multórum in circúitu throni, et animálium, et seniórum : et erat númerus eórum míllia míllium, dicéntium voce magna : Dignus est Agnus, qui occísus est, accípere virtútem, et divinitátem, et sapiéntiam, et fortitúdinem, et honórem, et glóriam, et benedictiónem. Et omnem creatúram, quæ in cælo est, et super terram, et sub terra, et quæ sunt in mari, et quæ in eo, omnes audívi dicéntes : Sedénti in throno, et Agno, benedíctio, et honor, et glória, et potéstas in sǽcula sæculórum. Et quátuor animália dicébant : Amen. Et vigintiquátuor senióres cecidérunt in fácies suas, et adoravérunt vivéntem in sǽcula sæculórum.
+
+℟. In conspéctu Angelórum psallam tibi, \* Et adorábo ad templum sanctum tuum : et confitébor nómini tuo, Dómine. ℣. Super misericórdia tua et veritáte tua : quóniam magnificásti super nos nomen sanctum tuum. — Et. Glória Patri. Et.
+
+### In II Nocturno
+
+**Ant.** Dómine, \* qui operáti sunt justítiam, habitábunt in tabernáculo tuo, et requiéscent in monte sancto tuo.
+
+**Psalmus 14**
+
+DOmine, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam :
+
+Qui lóquitur veritátem in corde suo \* qui non egit dolum in lingua sua :
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus : \* timéntes autem Dóminum glorificat :
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Dómine, qui operáti sunt justítiam, habitábunt in tabernáculo tuo, et requiéscent in monte sancto tuo.
+
+**Ant.** Hæc est generátio \* quæréntium Dóminum, quæréntium fáciem Dei Jacob.
+
+**Psalmus 23**
+
+DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens : Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Hæc est generátio quæréntium Dóminum, quæréntium fáciem Dei Jacob.
+
+**Ant.** Lætámini in Dómino \* et exsultáte, justi, et gloriámini omnes recti corde.

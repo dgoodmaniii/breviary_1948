@@ -41172,3 +41172,103 @@ VIrginum custos et pater, sancte Joseph, cujus fidéli custódiæ ipsa Innocént
 SAncte N., in cujus honórem incruéntum Córporis et Sánguinis Christi sacrifícium óbtuli, fac tua poténti apud Deum intercessióne, ut, usu hujus mystérii, passiónis et mortis ejúsdem Christi Salvatóris nostri mérita cónsequar, ac cum illíus frequentatióne contínuo crescat meæ salútis efféctus. Amen.
 
 ---
+
+# Litaniæ de sanctissimo Nomine Jesu
+
+{RUBRIC: Indulgéntia 7 annórum; plenária, si per íntegrum mensem, suetis conditiónibus, S. P. A. 2 Jan. 1933}
+
+Kýrie, eléison.
+
+Christe, eléison.
+
+Kýrie, eléison.
+
+Jesu, audi nos.
+
+Jesu, exáudi nos.
+
+Pater de cælis, Deus, miserére nobis.
+
+Fili, Redémptor mundi, Deus, miserére nobis.
+
+Spíritus Sancte, Deus, miserére nobis.
+
+Sancta Trínitas, unus Deus, miserére nobis.
+
+Jesu, Fili Dei vivi, miserére.
+
+Jesu, splendor Patris, miserére.
+
+Jesu, candor lucis ætérnæ, miserére nobis.
+
+Jesu, rex glóriæ, miserére.
+
+Jesu, sol justítiæ, miserére.
+
+Jesu, Fili Maríæ Vírginis, miserére nobis.
+
+Jesu amábilis, miserére.
+
+Jesu admirábilis, miserére.
+
+Jesu, Deus fortis, miserére.
+
+Jesu, pater futúri sǽculi, miserére nobis.
+
+Jesu, magni consílii ángele, miserére nobis.
+
+Jesu potentíssime, miserére.
+
+Jesu patientíssime, miserére.
+
+Jesu obedientíssime, miserére.
+
+Jesu, mitis et húmilis corde, miserére nobis.
+
+Jesu, amátor castitátis, miserére nobis.
+
+Jesu, amátor noster, miserére.
+
+Jesu, Deus pacis, miserére.
+
+Jesu, auctor vitæ, miserére.
+
+Jesu, exémplar virtútum, miserére nobis.
+
+Jesu, zelátor animárum, miserére nobis.
+
+Jesu, Deus noster, miserére.
+
+Jesu, refúgium nostrum, miserére nobis.
+
+Jesu, pater páuperum, miserére nobis.
+
+Jesu, thesáure fidélium, miserére nobis.
+
+Jesu, bone pastor, miserére.
+
+Jesu, lux vera, miserére.
+
+Jesu, sapiéntia ætérna, miserére nobis.
+
+Jesu, bónitas infiníta, miserére.
+
+Jesu, via et vita nostra, miserére nobis.
+
+Jesu, gáudium Angelórum, miserére nobis.
+
+Jesu, rex Patriarchárum, miserére nobis.
+
+Jesu, magíster Apostolórum, miserére nobis.
+
+Jesu, doctor Evangelistárum, miserére nobis.
+
+Jesu, fortitúdo Mártyrum, miserére nobis.
+
+Jesu, lumen Confessórum, miserére nobis.
+
+Jesu, púritas Vírginum, miserére nobis.
+
+Jesu, coróna Sanctórum ómnium, miserére nobis.
+
+Propítius esto, parce nobis, Jesu.

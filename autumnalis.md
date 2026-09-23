@@ -25188,3 +25188,221 @@ Amen.
 **Oratio**
 
 DEus, qui beátum Ráphaélem Archángelum Tobíæ fámulo tuo cómitem dedísti in via : concéde nobis fámulis tuis; ut ejúsdem semper protegámur custódia et muniámur auxílio. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** Missus est, ut supra. 694
+
+#### AD TERTIAM
+
+**Ant.** Ingréssus Angelus, ut supra. 694
+
+**Capitulum** Quando orábas, ut supra. 694
+
+℟. br. Stetit Angelus juxta aram templi. \* Stetit. ℣. Habens thuríbulum áureum in manu sua. Juxta. Glória Patri. Stetit.
+
+℣. Ascéndit fumus aromátum in conspéctu Dómini. ℟. De manu Angeli.
+
+#### AD SEXTAM
+
+**Ant.** Forti ánimo, ut supra. 694
+
+**Capitulum**
+*Tob. 12, 14-15*
+
+ET nunc misit me Dóminus, ut curárem te, et Saram, uxórem fílii tui, a dæmónio liberárem. Ego enim sum Ráphaël Angelus : unus ex septem, qui astámus ante Dóminum.
+
+℟. br. Ascéndit fumus aromátum \* In conspéctu Dómini. Ascéndit. ℣. De manu Angeli. In conspéctu. Glória Patri. Ascéndit.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+#### AD NONAM
+
+**Ant.** Pax vobis, ut supra. 694
+
+**Capitulum**
+*Tob. 12, 20*
+
+TEmpus est ut revértar ad eum qui me misit : vos autem benedícite Deum, et narráte ómnia mirabília ejus.
+
+℟. br. In conspéctu Angelórum \* Psallam tibi, Deus meus. In conspéctu. ℣. Adorábo ad templum sanctum tuum, et confitébor nómini tuo. Psallam. Glória Patri. In. ℣. Adoráte Deum. ℟. Omnes Angeli ejus.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vesperis 679, sed loco últimi Psalmi dícitur Ps. 137 Confitébor, ut ibídem.}
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+**Ad Magnif. Ant.** Princeps gloriosíssime, \* Ráphaël Archángele, esto memor nostri; hic et ubíque semper precáre pro nobis Fílium Dei.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+# DOMINICA ULTIMA OCTOBRIS
+
+## In Festo D. N. Jesu Christi Regis
+
+#### IN I VESPERIS
+
+**Ant. 1** Pacíficus \* vocábitur, et thronus ejus erit firmíssimus in perpétuum.
+
+{RUBRIC: Ps. de Dominica 59, sed loco últimi dícitur Ps. 116 Laudáte Dóminum, omnes gentes. 76}
+
+**Ant. 2** Regnum ejus \* regnum sempitérnum est, et omnes reges sérvient ei et obédient.
+
+**Ant. 3** Ecce Vir Oriens \* nomen ejus : sedébit et dominábitur, et loquétur pacem géntibus.
+
+**Ant. 4** Dóminus \* judex noster, Dóminus légifer noster : Dóminus Rex noster, ipse salvábit nos.
+
+**Ant. 5** Ecce dedi te \* in lucem géntium, ut sis salus mea usque ad extrémum terræ.
+
+**Capit.**
+*Coloss. 1, 12-13*
+
+FRatres : Grátias ágimus Deo Patri, qui dignos nos fecit in partem sortis sanctórum in lúmine, qui erípuit nos de potestáte tenebrárum, et tránstulit in regnum Fílii dilectiónis suæ.
+
+**Hymnus**
+
+TE sæculórum Príncipem,
+Te, Christe, Regem géntium,
+Te méntium, te córdium
+Unum fatémur árbitrum.
+
+Scelésta turba clámitat :
+Regnáre Christum nólumus :
+Te nos ovántes ómnium
+Regem suprémum dícimus.
+
+O Christe, Princeps Pácifer,
+Mentes rebélles súbjice,
+Tuóque amóre dévios
+Ovíle in unum cóngrega.
+
+Ad hoc cruénta ab árbore
+Pendes apértis bráchiis,
+Diráque fossum cúspide
+Cor igne flagrans éxhibes.
+
+Ad hoc in aris ábderis
+Vini dapísque imágine,
+Fundens salútem fíliis
+Transverberáto péctore.
+
+Te natiónum Prǽsides
+Honóre tollant público,
+Colant magístri, júdices,
+Leges et artes éxprimant.
+
+Submíssa regum fúlgeant
+Tibi dicáta insígnia :
+Mitíque sceptro pátriam
+Domósque subde cívium.
+
+Jesu, tibi sit glória,
+Qui scepta mundi témperas,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+{RUBRIC: Sic termínantur omnes Hymni usque ad Completórium sequéntis diéi inclusíve.}
+
+℣. Data est mihi omnis potéstas. ℟. In cælo et in terra.
+
+**Ad Magnif. Ant.** Dabit illi \* Dóminus Deus sedem David, patris ejus : et regnábit in domo Jacob in ætérnum, et regni ejus non erit finis, allelúja.
+
+{RUBRIC: In II Vesperis}
+
+℣. Multiplicábitur ejus impérium. ℟. Et pacis non erit finis.
+
+**Ad Magnif. Ant.** Habet in vestiménto \* et in fémore suo scriptum : Rex regum, et Dóminus dominántium. Ipsi glória et impérium in sǽcula sæculórum.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui in diléctó Fílio tuo, universórum Rege, ómnia instauráre voluísti : concéde propítius; ut cunctæ famíliæ Géntium, peccáti vúlnere disgregátæ, ejus suavíssimo império subdántur : Qui tecum.
+
+{RUBRIC: Et fit Commemoratio Dominicæ occurréntis.}
+
+{RUBRIC: Completórium de Domínica.}
+
+#### AD MATUTINUM
+
+**Invit.** Jesum Christum, Regem regum : \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus**
+
+ÆTérna Imágo Altíssimi,
+Lumen, Deus, de Lúmine,
+Tibi, Redémptor, glória,
+Honor, potéstas régia.
+
+Tu solus ante sǽcula
+Spes atque centrum témporum,
+Cui jure sceptrum géntium
+Pater suprémum crédidit.
+
+Tu flos pudícæ Vírginis,
+Nostræ caput propáginis,
+Lapis cadúcus vértice
+Ac mole terras óccupans.
+
+Diro tyránno súbdita,
+Damnáta stirps mortálium,
+Per te refrégit víncula
+Síbique cælum víndicat.
+
+Doctor, Sacérdos, Légifer
+Prǽfers notátum sánguine
+In veste « Princeps príncipum
+Regúmque Rex Altíssimus ».
+
+Tibi voléntes súbdimur,
+Qui jure cunctis ímperas :
+Hæc cívium beátitas,
+Tuis subésse légibus.
+
+Jesu, tibi sit glória,
+Qui scepta mundi témperas,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Ego autem \* constitútus sum Rex ab eo super Sion montem sanctum ejus, prǽdicans præcéptum ejus.
+
+**Psalmus 2**
+
+QUare fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum : \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos : \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.
+
+Dóminus dixit ad me : \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite : \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre : \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, prǽdicans præcéptum ejus.
+
+**Ant.** Glória \* et honóre coronásti eum, Dómine : ómnia subjecísti sub pédibus ejus.

@@ -40847,3 +40847,25 @@ Pater noster.
 Orémus.
 
 AUres tuæ pietátis, mitíssime Deus, inclína précibus nostris, et grátia Sancti Spíritus illúmina cor nostrum : ut tuis mystériis digne ministráre, teque ætérna caritáte dilígere mereámur.
+
+DEus, cui omne cor patet et omnis volúntas lóquitur, et quem nullum latet secrétum : purífica per infusiónem Sancti Spíritus cogitatiónes cordis nostri; ut te perfécte dilígere, et digne laudáre mereámur.
+
+URE igne Sancti Spíritus renes nostros et cor nostrum, Dómine : ut tibi casto córpore serviámus, et mundo corde placeámus.
+
+MEntes nostras, quǽsumus, Dómine, Paráclitus, qui a te procédit, illúminet : et indúcat in omnem, sicut tuus promísit Fílius, veritátem.
+
+ADsit nobis, quǽsumus, Dómine, virtus Spíritus Sancti : quæ et corda nostra cleménter expúrget et ab ómnibus tueátur advérsis.
+
+DEus, qui corda fidélium Sancti Spíritus illustratióne docuísti : da nobis in eódem Spíritu recta sápere; et de ejus semper consolatióne gaudére.
+
+COnsciéntias nostras, quǽsumus, Dómine, visitándo purífica : ut véniens Dóminus noster Jesus Christus, Fílius tuus, parátam sibi in nobis invéniat mansiónem : Qui tecum vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. Amen.
+
+---
+
+## Oratio S. Ambrosii Episcopi
+
+{RUBRIC: Indulgéntia trium annórum pro quálibet ex sequéntibus oratiónibus S. Ambrósii si in die assignáta recitétur. Pius Pp. XI, 3 Octóbris 1936.}
+
+### Die Dominica
+
+SUmme Sacérdos et vere Póntifex, Jesu Christe, qui te obtulísti Deo Patri hóstiam puram et immaculátam in ara Crucis pro nobis míseris et peccatóribus, et qui dedísti nobis Carnem tuam ad manducándum et Sánguinem tuum ad bibéndum, et posuísti mystérium istud in virtúte Spíritus Sancti tui, dicens : Hæc quotiescúmque fecéritis, in mei memóriam faciétis : rogo per eúmdem Sánguinem tuum, magnum salútis nostræ prétium, rogo per hanc miram et ineffábilem caritátem, qua nos míseros et indígnos sic amáre dignátus es, ut laváres nos a peccátis nostris in Sánguine tuo. Doce me servum tuum indígnum, quem inter cétera dona tua étiam ad offícium sacerdotále vocáre dignátus es, nullis meis méritis, sed sola dignatióne misericórdiæ tuæ; doce me, quǽ-

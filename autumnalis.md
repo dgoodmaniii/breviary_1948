@@ -24274,3 +24274,140 @@ UT jussa Redemptóris impléret Margaríta omni diligéntia studébat. Nec tamen
 MArgaríta María Alacóque, in pago diœcésis Augustodunénsis honésto génere nata, jam a téneris annis futúræ sanctitátis indícia præbuit. In Deíparam Vírginem et in augústum Eucharístiæ sacraméntum amóre flagrans, adolescéntula Deo virginitátem devóvit; ac Ordinem Visitatiónis ingréssa, statim religiósæ vitæ fulgóre nitére cœpit. Altióris dono oratiónis a Deo est decoráta, aliísque grátiæ munéribus et crebris visiónibus. Harum celebérrima fuit cum ante Eucharístiam precánti Jesus semetípsum conspiciéndum óbtulit, et divínum Cor in apérto péctore flammis incénsum ac spinis constríctum osténdit, præcepítque ut, ob talem caritátem et ad ingratórum hóminum injúrias expiándas, illa públicum Cordi suo cultum, magnis propósitis cæléstis thesáuri præmiis, instituéndum curáret. Religiósæ perfectiónis laude florens et per æternárum rerum contemplatiónem in dies síngulos cælésti sponso conjúnctior, ad eum evolávit, anno ætátis suæ quadragésimo tértio, reparátæ salútis millésimo sexcentésimo nonagésimo. Miráculis insígnem Benedíctus décimus quintus sanctis adscrípsit : ejúsque offícium Pius undécimus ad univérsam Ecclésiam exténdit.
 
 **Te Deum laudámus.**
+
+### In III Nocturno
+
+Léctio sancti Evangélii secúndum Matthǽum
+
+##### Lectio vii
+*Cap. 11, 25-30*
+
+IN illo témpore, respóndens Jesus dixit : Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus et revelásti ea párvulis. Et réliqua.
+
+{RUBRIC: Homilía sancti Francísci Salésii Epíscopi (Sermo 23 in die Pent. alter. circa médium)}
+
+NUlla ália est vera sciéntia, nisi ea quæ a Spíritu Sancto datur, sed hæc humílibus tantúmmodo tribúitur. Nonne magnos vídimus theólogos qui mira dixérunt de virtútibus, sed ut eas non exercérent? E contra complúres vídimus féminas, quæ de virtútibus disserere nesciébant, sed virtútum ópera digne nóverant adimplére. Eas enim Spíritus Sanctus sapiéntes effécit, quia et timórem Dómini et pietátem et humilitátem habébant.
+
+℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum : \* Et veniénte Dómino, introívit cum eo ad núptias. ℣. Média nocte clamor factus est : Ecce sponsus venit, exíte óbviam ei. — Et veniénte.
+
+##### Lectio viii
+
+{RUBRIC: (Fragm. serm. 16 in III Dom. post Pent. initio)}
+
+DOminus noster, magnus et præclaríssimus ómnium nostrárum infirmitátum médicus, ántequam in hunc mundum veníret, per Prophétas suos palam nuntiáverat : Quod confráctum fúerit alligábo, et quod infírmum fúerit consolidábo. Et deínde suo ipse ore clamávit dicens : Veníte ad me, omnes qui laborátis et oneráti estis, et ego refíciam vos. Quid ígitur mirum si ipsum ab ægrótis, a peccatóribus et publicánis circúmdatum cérnimus? Nonne médici glória est ab ægrótis exquíri?
+
+℟. Média nocte clamor factus est : \* Ecce sponsus venit, exíte óbviam ei. ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. Glória Patri. Ecce.
+
+##### Lectio ix
+
+{RUBRIC: (Fragm. serm. 10 pro feria II post Pascha, in fine)}
+
+FErt ille nostras misérias et eas nobílitat, appónit misériam Cordi suo, osténdit latus. Sed eum redamémus opórtet, alióquin qui præ amóre osténdit vúlnera, semel osténdet præ ira et indignatióne. Fac, o bone Jesu, ut pacem, quam offers, accipiámus, videamúsque vúlnera tua, ut quandóquidem manent fides, spes, cáritas, fide radicáti, spe gaudéntes et caritáte fervéntes, exspectémus beátam spem et advéntum tuum, ita ut in illo Te, Agnum ad déxteram non leónem ad sinístram videámus; ac pro fide visiónem, pro spe possessiónem et pro caritáte imperfécta perféctam habeámus, in qua gaudébimus in sǽcula sæculórum. Amen.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio**
+
+DOmine Jesu Christe, qui investigábiles divítias Cordis tui beátæ Margarítæ Maríæ Vírgini mirabíliter revelásti; da nobis ejus méritis et imitatióne, ut te in ómnibus et super ómnia diligéntes, jugem in eódem Corde tuo mansiónem habére mereámur. Qui vivis.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 18 Octobris — S. Lucæ Evangelistæ
+
+{RUBRIC: DUPLEX II CLASSIS}
+
+{RUBRIC: Omnia de Communi Evangelistárum [3] et [24], præter ea quæ hic habéntur própria.}
+
+**Oratio**
+
+INtervéniat pro nobis, quǽsumus, Dómine, sanctus tuus Lucas Evangelísta : qui crucis mortificatiónem júgiter in suo córpore, pro tui nóminis honóre, portávit. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est.
+
+**Oratio** Dómine Jesu, ut supra.
+
+{RUBRIC: In I Nocturno Lectiones Et factum est. [24]}
+
+### In II Nocturno
+
+##### Lectio iv
+
+{RUBRIC: Ex libro sancti Hierónymi Presbýteri de Scriptóribus ecclesiásticis Cap. 7}
+
+LUcas, médicus Antiochénsis, ut ejus scripta índicant, Græci sermónis non ignárus, fuit sectátor Apóstoli Pauli, et omnis peregrinatiónis ejus comes. Scripsit Evangélium, de quo idem Paulus : Mísimus, inquit, cum illo fratrem, cujus laus est in Evangélio per omnes ecclésias. Et ad Colossénses : Salútat vos Lucas, médicus caríssimus. Et ad Timótheum : Lucas est mecum solus. Aliud quoque édidit volúmen egrégium, quod título, Acta Apostolórum, prænotátur; cujus história usque ad biénnium Romæ commorántis Pauli pérvenit, id est, usque ad quartum Nerónis annum. Ex quo intellígimus, in eádem urbe librum esse compósitum.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti sunt.
+
+##### Lectio v
+
+IGitur períodos Pauli et Theclæ, et totam baptizáti Leónis fábulam, inter apócryphas scriptúras computámus. Quale enim est, ut indivíduus comes Apóstoli, inter céteras ejus res, hoc solum ignoráverit? Sed et Tertulliánus, vicínus eórum témporum, refert presbýterum quemdam in Asia, amatórem Apóstoli Pauli, convíctum a Joánne quod auctor esset libri, et conféssum se hoc Pauli amóre fecísse, et ob id loco excidísse. Quidam suspicántur, quotiescúmque in epístolis suis Paulus dicit, Juxta Evangélium meum, de Lucæ significáre volúmine.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me : \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+##### Lectio vi
+
+LUcam autem non solum ab Apóstolo Paulo didicísse Evangélium, qui cum Dómino in carne non fúerat, sed et a céteris Apóstolis; quod ipse quoque in princípio sui volúminis declárat, dicens : Sicut tradidérunt nobis, qui a princípio ipsi vidérunt et minístri fuérunt sermónis. Igitur Evangélium, sicut audíerat, scripsit; Acta vero Apostolórum, sicut víderat ipse, compósuit. Vixit octogínta et quátuor annos, uxórem non habens. Sepúltus est Constantinópoli, ad quam urbem, vigésimo Constantíni anno, ossa ejus cum relíquiis Andréæ Apóstoli transláta sunt de Achája.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui, contemnéntes jussa príncipum, meruérunt prǽmia ætérna : \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+**Oratio**
+
+INtervéniat pro nobis, quǽsumus, Dómine, sanctus tuus Lucas Evangelísta : qui crucis mortificatiónem júgiter in suo córpore, pro tui nóminis honóre, portávit. Per Dóminum.
+
+{RUBRIC: In Vésperis Com. sequéntis.}
+
+---
+
+## Die 19 Octobris — S. Petri de Alcantara
+
+{RUBRIC: Conf. [94] Duplex (m. t. v.), nisi tamen alícubi I Vésperas hábeat.}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+
+DEus, qui beátum Petrum Confessórem tuum admirábilis pœniténtiæ et altíssimæ contemplatiónis múnere illustráre dignátus es : da nobis, quǽsumus; ut, ejus suffragántibus méritis, carne mortificáti, facílius cæléstia capiámus. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+PEtrus, Alcántaræ in Hispánia nobílibus paréntibus natus, a téneris annis futúræ sanctitátis indícia præbuit. Décimo sexto ætátis anno órdinem Minórum ingréssus, se ómnium virtútum exémplar exhíbuit. Tum munus concionatóris ex obediéntia exércens, innúmeros a vítiis ad veram pœniténtiam tradúxit. Primǽvum sancti Francísci institútum exactíssime reparáre cúpiens, ope divína fretus et apostólica múnitus auctoritáte, angustíssimum et paupérrimum cœnóbium juxta Pedrósum fundávit; quod vitæ genus aspérrimum, ibi felíciter cœptum, per divérsas Hispániæ províncias usque ad Indias mirífice propagátum fuit. Sanctæ Terésiæ, cujus probáverat spíritum, in promovénda Carmelitárum reformatióne adjútor fuit. Ipsa autem a Deo edócta quod Petri nómine nihil quisquam péteret quin prótinus exaudirétur, ejus précibus se commendáre et ipsum adhuc vivéntem sanctum appelláre consuévit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+PRíncipum obséquia, qui ipsum velut oráculum consulébant, summa humilitáte declínans, Cárolo quinto imperatóri a conféssiónibus esse recusávit. Paupertátis rigidíssimus custos, una túnica, qua nulla detérior esset, conténtus erat. Puritátem ita cóluit, ut a fratre in extrémo morbo sibi inserviénte ne léviter quidem tangi passus sit. Corpus suum perpétuis vigíliis, jejúniis, flagéllis, frígore, nuditáte atque omni génere asperitátum in servitútem redégit; cum quo pactum ínierat ne ullam in hoc sǽculo ei réquiem præbéret. Cáritas Dei et próximi, in ejus corde diffúsa, tantum quandóque excitábat incéndium, ut e cellæ angústiis in apértum campum prosilíre, aerísque refrigério concéptum ardórem temperáre cogerétur.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+GRátia contemplatiónis admirábilis in eo fuit; qua cum assídue spíritus reficerétur, intérdum áccidit ut ab omni cibo et potu plúribus diébus abstinúerit. In áëra frequénter sublátus, miro fulgóre coruscáre visus est. Rápidos flúvios sicco pede trajécit. Fratres in extréma penúria, cælitus deláta alimónia, cibávit. Báculus, ab ipso terræ defíxus, mox in víridem ficúlneam excrévit. Cum noctu iter ágeret, densa nive cadénte, dirútam domum sine tecto ingréssus est, eíque nix in áëre péndula pro tecto fuit, ne illíus cópia suffocarétur. Dono prophétiæ ac discretiónis spíritum imbútum fuísse sancta Terésia testátur. Dénique, annum agens sexagésimum tértium, hora qua prædíxerat, migrávit ad Dóminum, mirábili visióne Sanctórumque præséntia confortátus. Quem eódem moménto in cælum ferri beáta Terésia procul distans vidit; cui póstea appárens dixit : O felix pœniténtia, quæ tantam mihi proméruit glóriam! Post mortem vero plúrimis miráculis cláruit, et a Cleménte nono Sanctórum número adscríptus est.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+PEtrus, Alcántaræ in Hispánia nobílibus paréntibus natus, décimo sexto ætátis anno órdinem Minórum ingréssus, se ómnium virtútum, præcípue paupertátis et castitátis, exémplar exhíbuit et innúmeros, verbi Dei prædicatióne, a vítiis ad pœniténtiam tradúxit. Primǽvum sancti Francísci institútum reparáre studens, in angustíssimo et paupérrimo cœnóbio, juxta Pedrósum exstrúcto, aspérrimum vitæ genus felíciter incépit, quod deínde mirífice propagátum est. Sanctæ Terésiæ, cujus probáverat spíritum et a qua sanctus vivens passim vocabátur, in promovénda Carmelitárum reformatióne adjútor fuit. Contemplatiónis et miraculórum grátia insígnem, dono prophétiæ ac discretiónis spíritum imbútum fuísse éadem sancta Terésia testátur. Dénique, annum agens sexagésimum tértium, migrávit in cælum. Quem beáta Terésia mirábili glória renidéntem per visum conspéxit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilia in Ev. Nolíte timére, de Comm. Conf. non Pont. 2 loco. [105]}

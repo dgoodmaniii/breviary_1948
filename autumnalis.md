@@ -18771,3 +18771,83 @@ Amen.
 
 ℣. Natívitas est hódie sanctæ Maríæ Vírginis.
 ℟. Cujus vita ínclyta cunctas illústrat ecclésias.
+
+**Ad Bened. Ant.** Nativitátem hodiérnam \* perpétuæ Vírginis Genitrícis Dei Maríæ solémniter celebrémus, qua celsitúdo throni procéssit, allelúja.
+
+**Oratio**
+
+FAmulis tuis, quǽsumus, Dómine, cæléstis grátiæ munus impertíre : ut, quibus beátæ Vírginis partus éxstitit salútis exórdium; Nativitátis ejus votíva solémnitas pacis tríbuat increméntum. Per Dóminum.
+
+{RUBRIC: Ad Laudes tantum fit Commemoratio S. Hadriani Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+**Oratio**
+
+PRǽsta, quǽsumus, omnípotens Deus : ut, qui beáti Hadriáni Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+#### AD PRIMAM
+
+**Ant.** Nativitas gloriósæ, ut supra. 490
+
+#### AD TERTIAM
+
+**Ant.** Natívitas est, ut supra. 490
+
+**Capitulum** Ab inítio, ut supra. 490
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+#### AD SEXTAM
+
+**Ant.** Regáli, ut supra. 490
+
+**Capit.** *Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta símiliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+#### AD NONAM
+
+**Ant.** Cum jucunditáte, ut supra. 490
+
+**Capit.** *Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi : quasi myrrha elécta, dedi suavitátem odóris.
+
+℟. br. Elégit eam Deus, \* Et præelégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. Glória Patri. Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in primis præter Ant. ad Magníficat.}
+
+℣. Nativitas est hódie sanctæ Maríæ Vírginis.
+℟. Cujus vita ínclyta cunctas illústrat ecclésias.
+
+**Ad Magnif. Ant.** Nativitas tua, \* Dei Génitrix Virgo, gáudium annuntiávit univérso mundo : ex te enim ortus est sol justítiæ Christus Deus noster : qui solvens maledictiónem, dedit benedictiónem; et confúndens mortem, donávit nobis vitam sempitérnam.
+
+{RUBRIC: Et non fit Com. sequéntis.}
+
+{RUBRIC: De Octáva Nativitátis B. Maríæ Vírginis nihil fit, ne in ipsa quidem die Octáva, nisi in ea celebrétur áliquod Offícium duplex II classis, quod non sit de eádem B. María, ut suo loco notátur. 515}
+
+---
+
+## Sabbato post festum Nativit. B. Mariæ V.
+
+{RUBRIC: quod non fúerit impedítum juxta Rúbricas, fit Offícium sanctæ Maríæ in Sábbato. In eo tamen ómnia quæ ex Ordinário et Psaltério accipiénda non sunt, sumúntur de ipso Festo Nativitátis, præter Absolutiónem et Benedictiónes e commúni Offício sanctæ Maríæ in Sábbato suméndas, necnon Lectiónes I et II cum suis Responsóriis de Sábbato curránti, et Lectiónem III, quæ dícitur ut infra.}
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis}
+*In Dom. infra Oct. Assumpt. B. Mariæ Virg.*
+
+##### Lectio iii
+
+QUid ergo sidéreum micat in generatióne Maríæ? Plane quod ex régibus orta, quod ex sémine Abrahæ, quod generósa ex stirpe David. Si id parum vidétur, adde quod generatióni illi ob singuláre privilégium sanctitátis divínitus nóscitur esse concéssa, quod longe ante eísdem pátribus cǽlitus repromíssa, quod mýsticis præfiguráta miráculis, quod oráculis prænuntiáta prophéticis. Hanc enim sacerdotális virga, dum sine radíce flóruit; hanc Gedeónis vellus, dum in médio siccæ áreæ máduit; hanc in Ezechiélis visióne orientális porta, quæ nulli umquam pátuit, præsignábat. Hanc dénique præ céteris Isaías nunc virgam de radíce Jesse oritúram promittébat, nunc evidéntius vírginem paritúram.

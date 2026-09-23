@@ -25586,3 +25586,65 @@ Príncipes populórum congregáti sunt cum Deo Abraham : \* quóniam dii fortes 
 CUM Annus sacer non unam ad inlustrándum Christi regnum habúerit opportunitátem, vidémur rem factúri Apostólico múneri in primis consentáneam, si, plurimórum Patrum Cardinálium, Episcopórum fidéliúmque précibus, ad Nos aut singillátim aut commúniter delátis, concedéntes, hunc ipsum Annum peculiári festo Dómini Nostri Jesu Christi Regis in ecclesiásticam litúrgiam inducéndo clausérimus. Ut translátaverbi significatióne Rex appellarétur Christus ob summum excelléntiæ gradum, quo inter omnes res creátas præstat atque éminet, jam diu communitérque usu venit. Ita enim fit, ut regnáre is « in méntibus hóminum » dicátur non tam ob mentis áciem scientiǽque suæ amplitúdinem, quam quod ipse est Véritas, et veritátem ab eo mortáles hauríre atque obediénter accípere necésse est; « in voluntátibus » item « hóminum », quia non modo sanctitáti in eo voluntátis divínæ perfécta prorsus respóndet humánæ integritas atque obtemperátio, sed étiam líberæ voluntáti nostræ id permotióne instinctúque suo súbjicit, unde ad nobilíssima quæque exardescámus. «Córdium» dénique «Rex» Christus agnóscitur ob ejus «superemínentem sciéntiæ caritátem» et mansuetúdinem benignitatémque ánimos alliciéntem : nec enim quemquam usque ádeo ab universitáte géntium, ut Christum Jesum, aut amári aliquándo cóntigit aut amátum iri in pósterum contínget. Verum, ut rem préssius ingrediámur, nemo non videt, nomen potestatémque regis, própria quidem verbi significatióne, Christo hómini vindicári oportére; nam, nisi quátenus homo est, a Patre «potestátem et honórem et regnum» accepísse dici nequit, quandóquidem Dei Verbum, cui éadem est cum Patre substántia, non potest ómnia cum Patre non habére commúnia, proptereáque ipsum in res creátas univérsas summum atque absolutíssimum impérium.
 
 ℟. Exsúlta satis, fília Sion; júbila, fília Jerúsalem : ecce Rex tuus véniet tibi justus et Salvátor : \* Et loquétur pacem géntibus. ℣. Potéstas ejus a mari usque ad mare : et a flumínibus usque ad fines terræ. — Et loquétur.
+
+##### Lectio v
+
+QUo autem hæc Dómini nostri dígnitas et potéstas fundaménto consístat, apte Cyríllus Alexandrínus animadvértit : «Ómnium, ut verbo dicam, creaturárum dominátum óbtinet, non per vim extórtum, nec aliúnde invéctum, sed esséntia sua et natúra»; scílicet ejus principátus illa nítitur unióne mirábili, quam hypostáticam appéllant. Unde conséquitur, non modo ut Christus ab ángelis et homínibus Deus sit adorándus, sed étiam ut ejus império Hóminis, Angeli et hómines páreant et subjécti sint : nempe ut vel solo hypostáticæ uniónis nómine Christus potestátem in univérsas creatúras obtíneat. Jamvéro, ut hujus vim et natúram principátus paucis declarémus, dícere vix áttinet tríplici eum potestáte continéri, qua si carúerit, principátus vix intellígitur. Id ipsum deprómpta atque alláta ex sacris Lítteris de universáli Redemptóris nostri império testimónia plus quam satis signíficant, atque est cathólica fide credéndum, Christum Jesum homínibus datum esse útique Redemptórem cui fidant, at una simul legislatórem cui obédiant. Ipsum autem evangélia non tam leges condidísse narrant, quam leges condéntem indúcunt : quæ quidem præcépta quicúmque servárint, íidem a divíno Magístro, álias áliis verbis, et suam in eum caritátem probatúri et in dilectióne ejus mansúri dicúntur. Judiciáriam vero potestátem sibi a Patre attribútam ipse Jesus Judǽis, de Sábbati requiéte per mirábilem débilis hóminis sanatiónem violáta criminántibus, denúntiat : «Neque enim Pater júdicat quemquam, sed omne judícium dedit Fílio». In quo id étiam comprehénditur (quóniam res a judício disjúngi nequit) ut prǽmia et pœnas homínibus adhuc vivéntibus jure suo déferat. At prætérea potéstas illa, quam exsecutiónis vocant, Christo adjudicánda est, útpote cujus império paréré omnes necésse sit, et ea quidem denuntiáta contumácibus irrogatióne suppliciórum, quæ nemo possit effúgere.
+
+℟. Opórtet illum regnáre, quóniam ómnia subjécit Deus sub pédibus ejus : \* Ut sit Deus ómnia in ómnibus. ℣. Cum subjécta fúerint illi ómnia, tunc et ipse Fílius subjéctus erit Patri. — Ut sit.
+
+##### Lectio vi
+
+VErúmtamen ejúsmodi regnum præcípuo quodam modo et spirituále esse et ad spirituália pertinére, cum ea, quæ ex Bíbliis supra protúlimus, verba planíssime osténdunt, tum Christus Dóminus sua agéndi ratióne confírmat. Síquidem, non una data occasióne, cum Judǽi, immo vel ipsi Apóstoli, per errórem censérent, fore ut Messías pópulum in libertátem vindicáret regnúmque Israël restitúeret, vanam ipse opiniónem ac spem adímere et convéllere; rex a circumfúsa admirántium multitúdine renuntiándus, et nomen et honórem fugiéndo latendóque detrectáre; coram Prǽside románo edícere, regnum suum «de hoc mundo» non esse. Quod quidem regnum tale in evangéliis propónitur, in quod hómines pœniténtiam agéndo íngredi parent, íngredi vero néqueant nisi per fidem et baptísmum, qui etsi est ritus extérnus, interiórem tamen regeneratiónem signíficat atque éfficit; oppónitur únice regno Sátanæ et potestáti tenebrárum, et ab ásseclis póstulat, non solum ut, abalienáto a divítiis rebúsque terrénis ánimo, morum prǽferant lenitátem et esúriant sitiántque justítiam, sed étiam ut semetípsos ábnegent et crucem suam tollant. Cum autem Christus et Ecclésia Redémptor sánguine suo acquisíverit et Sacérdos se ipse pro peccátis hóstiam obtúlerit perpetuóque ófferat, cui non videátur régium ipsum munus utriúsque illíus natúram múneris indúere ac participáre? Túrpiter, ceteróquin, erret, qui a Christo hómine rerum civílium quarúmlibet impérium abjúdicet, cum is a Patre jus in res creátas absolutíssimum sic obtíneat, ut ómnia in suo arbítrio sint pósita. Itaque, auctoritáte Nostra apostólica, festum Dómini Nostri Jesu Christi Regis institúimus, quotánnis, postrémo mensis Octóbris domínico die, qui scílicet Omnium Sanctórum celebritátem próxime antecédit, ubíque terrárum agéndum. Item præcípimus, ut eo ipso die géneris humáni Sacratíssimo Cordi Jesu dedicátio quotánnis renovétur.
+
+℟. Fecit nos regnum et sacerdótes Deo et Patri suo : \* Ipsi glória et impérium, in sǽcula sæculórum. ℣. Ipse est primogénitus mortuórum, et princeps regum terræ. — Ipsi glória. Glória Patri. Ipsi glória.
+
+### In III Nocturno
+
+**Ant.** Benedicéntur \* in ipso omnes tribus terræ; omnes gentes magnificábunt eum.
+
+**Psalmus 71**
+
+DEus, judícium tuum regi da : \* et justítiam tuam fílio regis :
+
+Judicáre pópulum tuum in justítia, \* et páuperes tuos in judício.
+
+Suscípiant montes pacem pópulo : \* et colles justítiam.
+
+Judicábit páuperes pópuli, et salvos fáciet fílios páuperum : \* et humiliábit calumniatórem.
+
+Et permanébit cum sole, et ante lunam, \* in generatióne et generatiónem.
+
+Descéndet sicut plúvia in vellus : \* et sicut stillicídia stillántia super terram.
+
+Oriétur in diébus ejus justítia, et abundántia pacis : \* donec auferátur luna.
+
+Et dominábitur a mari usque ad mare : \* et a flúmine usque ad términos orbis terrárum.
+
+Coram illo prócident Æthíopes : \* et inimíci ejus terram lingent.
+
+Reges Tharsis, et ínsulæ múnera ófferent : \* reges Arabum et Saba dona addúcent.
+
+Et adorábunt eum omnes reges terræ : \* omnes gentes sérvient ei :
+
+Quia liberábit páuperem a poténte : \* et páuperem, cui non erat adjútor.
+
+Parcet páuperi et ínopi : \* et ánimas páuperum salvas fáciet.
+
+Ex usúris et iniquitáte rédimet ánimas eórum : \* et honorábile nomen eórum coram illo.
+
+Et vivet, et dábitur ei de auro Arábiæ, et adorábunt de ipso semper : \* tota die benedícent ei.
+
+Et erit firmaméntum in terra in summis móntium, superextollétur super Líbanum fructus ejus : \* et florébunt de civitáte sicut fœnum terræ.
+
+Sit nomen ejus benedíctum in sǽcula : \* ante solem pérmanet nomen ejus.
+
+Et benedicéntur in ipso omnes tribus terræ : \* omnes gentes magnificábunt eum.
+
+Benedíctus Dóminus, Deus Israël, \* qui facit mirabília solus :
+
+Et benedíctum nomen majestátis ejus in ætérnum : \* et replébitur majestáte ejus omnis terra : fiat, fiat.
+
+**Ant.** Benedicéntur in ipso omnes tribus terræ; omnes gentes magnificábunt eum.
+
+**Ant.** Et ego primogénitum \* ponam illum : excélsum præ régibus terræ.

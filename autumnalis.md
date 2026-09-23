@@ -31152,3 +31152,119 @@ Sæclum per omne glória. Amen.
 ℟. Et in fines orbis terræ verba eórum.
 
 **Ad Magnif. Ant.** Tradent enim vos \* in concíliis, et in synagógis suis flagellábunt vos, et ante reges et præsides ducémini propter me in testimónium illis, et géntibus.
+
+{RUBRIC: Oratio própria.}
+{RUBRIC: Completórium de Domínica.}
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Apostolórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+**Hymnus**
+
+ÆTérna Christi múnera,
+Apostolórum glóriam,
+Palmas et hymnos débitos
+Lætis canámus méntibus.
+
+Ecclesiárum Príncipes,
+Belli triumpháles duces,
+Cæléstis aulæ mílites,
+Et vera mundi lúmina.
+
+Devóta Sanctórum fides,
+Invícta spes credéntium,
+Perfécta Christi cáritas
+Mundi tyránnum cónterit.
+
+In his Patérna glória,
+In his triúmphat Fílius,
+In his volúntas Spíritus,
+Cælum replétur gáudio.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória. Amen.
+
+### In I Nocturno
+
+**Ant.** In omnem terram \* exívit sonus eórum, et in fines orbis terræ verba eórum.
+
+###### Psalmus 18
+
+CÆli enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum : \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum : \* et ipse tamquam sponsus procédens de thálamo suo :
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus :
+
+Et occúrsus ejus usque ad summum ejus : \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas : \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda : \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi : \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum : \* et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me : \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero : \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei : \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum.
+
+**Ant.** Clamavérunt justi, \* et Dóminus exaudívit eos.
+
+###### Psalmus 33
+
+BEnedícam Dóminum in omni témpore : \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea : \* áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum : \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me : \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini : \* et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum : \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum : \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus : \* beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus : \* quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt : \* inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me : \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam : \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo : \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum : \* inquíre pacem, et perséquere eam.
+
+Oculi Dómini super justos : \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala : \* perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos : \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde : \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum : \* et de ómnibus his liberábit eos Dóminus.

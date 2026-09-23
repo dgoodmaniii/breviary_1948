@@ -36162,3 +36162,53 @@ Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus : \* esc
 Memor erit in sæculum testaménti sui : \* virtútem óperum suórum annuntiábit pópulo suo :
 
 Ut det illis hereditátem géntium : \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus : confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo : \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus : \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum : \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Domus mea domus oratiónis vocábitur.
+
+**Ant.** Hæc est domus Dómini \* fírmiter ædificáta, bene fundáta est supra firmam petram.
+
+###### Psalmus 111
+
+BEátus vir, qui timet Dóminum : \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus : \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus : \* et justítia ejus manet in sæculum sæculi.
+
+Exórtum est in ténebris lumen rectis : \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício : \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus : \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus : \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus : justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet : \* desidérium peccatórum períbit.
+
+**Ant.** Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram.
+
+**Ant.** Bene fundáta est \* domus Dómini supra firmam petram.
+
+###### Psalmus 112
+
+LAudáte, púeri, Dóminum : \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sæculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem :

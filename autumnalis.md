@@ -27754,3 +27754,26 @@ INtelléctus cóngruit mundis corde, tamquam purgáto óculo, quo cerni possit q
 ##### Lectio iv
 
 QUI Sanctórum mérita religiósa caritáte mirátur, quique justórum glórias frequénti laude collóquitur, eórum mores sanctos atque justítiam imitétur; quóniam, quem deléctat Sancti alicújus méritum, delectáre debet par circa cultum Dei obséquium. Quare aut imitári debet, si laudat; aut laudáre non debet, si imitári detréctat : ut, qui álium laudat, laudábilem se reddat; et, qui Sanctórum mérita admirátur, mirábilis ipse vitæ sanctitáte reddátur. Nam, si proptérea justos fidelésque dilígimus, quod in ipsis justítiam fidémque suspícimus, póssumus nos quoque esse quod sunt, si faciámus ipsi quod fáciunt.
+
+℟. Abstérget Deus omnem lácrimam ab óculis Sanctórum : et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor, \* Quóniam prióra transiérunt. ℣. Non esúrient, neque sítient ámplius, neque cadet super illos sol, neque ullus æstus. — Quóniam.
+
+##### Lectio v
+
+NEque enim difficíle nobis est quod ab ipsis géritur imitári, cum sine præcedénti exémplo ab antíquis tália gesta conspícimus, ut non ipsi aliórum æmuli redderéntur, sed æmulándæ virtútis seípsos nobis præbérent exémplum; ut, dum nos ex ipsis, et ex nobis álii profíciunt, sic Christus in suis semper servis in Ecclésia sancta laudétur. Unde, ab orígine mundi, ínnocens Abel occíditur, Enoch Deo placens transfértur, justus Noë invenítur, Abraham fidélis probátur, Móyses mansuétus dignóscitur, Jesus castus, David lenis, Elías accéptus, Dániel sanctus, tres púeri victóres reddúntur.
+
+℟. Pretiósa in conspéctu Dómini \* Mors Sanctórum ejus. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors.
+
+##### Lectio vi
+
+APóstoli, discípuli Christi, credéntium magístri habéntur; e quibus erudíti Confessóres fortíssimi pugnant, Mártyres perfécti triúmphant, et christiáni semper exércitus diábolum Deo armáti debéllant. In istis semper pares virtútes, dissímiles pugnæ, gloriósæ victóriæ. Unde tu, Christiáne, delicátus es miles, si putas te posse sine pugna víncere, sine certámine triumpháre. Exsere vires, fórtiter dímica, atróciter in prælio isto concérta. Consídera pactum, conditiónem atténde, milítiam nosce : pactum quod spopondísti; conditiónem qua accessísti; milítiam cui nomen dedísti.
+
+℟. Stola jucunditátis índuit eos Dóminus : \* Et corónam pulchritúdinis pósuit super cápita eórum. ℣. Cibávit illos Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illos. — Et corónam. Glória Patri. Et corónam.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 5, 1-12*
+
+IN illo témpore : Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.

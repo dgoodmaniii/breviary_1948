@@ -1492,3 +1492,42 @@ Days within privileged octaves of the third order, and days within common octave
 [^110]: Prominent relics are the entire body or the head, arm, forearm, heart, tongue, hand, leg, or that part of the body in which the martyr suffered, provided the relic be entire and not small (canon 1281). Prominent relics of saints or blessed may not be kept in private houses and private oratories without explicit permission of the Ordinary (c. 1282).
 
 ---
+
+## CHAPTER XIV
+
+## OCCURRENCE AND OCTAVES
+
+**89.** Since the titular and the dedication of churches — as well as the anniversaries of these feasts — are to be celebrated with a *common octave*, it is fitting that some additional remarks be here made on the subject.
+
+### Remarks
+
+(a) Preference of an octave is to be made according to the same rules as those by which one feast is preferred to another among themselves.
+
+(b) All octaves that are not in the Roman Breviary cease (i. e., "*de eis nihil fit*"), from December 17th to the vigil of Christmas; from Ash Wednesday to Low Sunday; and from the eve of Pentecost to Trinity Sunday, always inclusive.
+
+(c) The days within a common octave are semi-doubles secondary, and the octave-day is a double major. Moreover, the octave-days of titular and dedication feasts are primary doubles major.
+
+(d) Days within common octaves are preferred — in case of occurrence — to simple Offices only, and the octave-day is preferred to all doubles that are not of first or second class.
+
+(e) When commemoration of an octave has to be made at Vespers, it is taken from second Vespers unless the Office of the octave is recited on the following day, in which case the commemoration is taken from first Vespers.
+
+(f) *Privileged octaves* only — during the whole octave — are said "*modo solemni*," i. e., the psalms at Lauds, the Little Hours, and Compline are taken from the Sunday in the Psalter; during *all other octaves* the psalms are all taken from the current day in the Psalter.
+
+(g) When two feasts or two octaves in honor of the *same person* accidentally occur, and may not be transferred according to the Rubrics,[^111] the Office of the more important ("*nobiliori*") feast or octave is celebrated, omitting — unless it is a question of different mysteries of the Lord — the commemoration of the other. Likewise, if during some common octave, or on the octave-day itself (even octave-days of simple rite),[^112] there occurs a feast (of any rite whatever) of the same person, the Office of such occurring feast is celebrated with all the privileges due to the octave itself (unless, indeed, the occurring feast is celebrated with higher rite), and a commemoration of the octave is omitted unless
+
+[^111]: As, for instance, when one feast is only a double major.
+[^112]: Compare, for instance, September 15th, which is the feast of the Seven Dolors and also the octave-day (simple rite) of the Nativity of the Blessed Virgin. Commemoration of the octave-day is omitted, whereas it would otherwise be made.
+
+it is a question of different mysteries of the Lord, in which case the commemoration is added.
+
+If, however, during some privileged octave or on some privileged octave-day, a feast of the same person should occur, the more important Office is celebrated, according to the Rubrics, and commemoration of the other is omitted, except when it is a question of different mysteries of the Lord (*New Rubrics*, tit. iv., n. 7).
+
+(h) If the octave-day of any feast is accidentally impeded, it is not transferred, but it is celebrated or omitted on its own day, according to the Rubrics.
+
+However, the octave-day of the feast of the Most Holy Name of Jesus — should this feast be anywhere celebrated with an octave — will be celebrated *eight* days after the day on which the feast itself was celebrated, even if this day was not a Sunday, but the second of January[^113] (*loc. cit.* n. 8).
+
+(i) If, during some octave or on the octave-day itself, there *perpetually* occurs some feast of the same person, what has been said above regarding their *accidental* occurrence will be then also likewise observed.
+
+[^113]: This case is a good illustration of the preceding rule, because the octave-day would fall on January 9th, i. e., during the *privileged* octave of the Epiphany, a commemoration of which would be made, since these are different mysteries of the Lord.
+
+---

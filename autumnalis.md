@@ -38116,4 +38116,28 @@ SAcraméntum reconciliatiónis nostræ, ante témpora ætérna dispósitum, null
 
 #### Lectio iii
 
-AMplectámur Maríæ vestígia, fratres mei, et devotíssima supplicatióne beátis illíus pédibus provolvámur. Teneámus eam nec dimittámus, donec benedíxerit nobis; potens
+AMplectámur Maríæ vestígia, fratres mei, et devotíssima supplicatióne beátis illíus pédibus provolvámur. Teneámus eam nec dimittámus, donec benedíxerit nobis; potens est enim. Nempe vellus est médium inter rorem et áream : múlier inter solem et lunam : María inter Christum et Ecclésiam constitúta. Sed forte miráris, non tam vellus opértum rore, quam amíctam sole mulíerem. Magna síquidem familiáritas, sed mira omníno vicínitas solis et mulíeris. Quómodo enim in tam veheménti fervóre tam frágilis natúra subsístit? Mérito quidem admiráris, Móyses sancte, et curiósius desíderas intuéri. Verúmtamen solve calceaménta de pédibus tuis, et involúcra pone carnálium cogitatiónum, si accédere concupíscis.
+
+**Te Deum laudámus.**
+
+## Mense Novembri
+
+**De Expositióne sancti Basílii Epíscopi in Isaíam Prophétam**
+*In cap. 8 post inítium*
+
+#### Lectio iii
+
+ACcéssi, inquit, ad Prophetíssam, et in útero accépit et péperit fílium. Quod María Prophetíssa fúerit, ad quam próxime accéssit Isaías per prænotiónem spíritus, nemo contradíxerit, qui sit memor verbórum Maríæ, quæ prophético affláta spíritu elocúta est Quid enim ait? Magníficat ánima mea Dóminum : et exsultávit spíritus meus in Deo, salutári meo. Quia respéxit humilitátem ancíllæ suæ : ecce enim ex hoc beátam me dicent omnes generatiónes. Quod si ánimum accommodáveris univérsis ejus verbis, non útique per dissídium negáveris eam fuísse Prophetíssam, quod Dómini Spíritus in eam supervénerit, et virtus Altíssimi obumbráverit ei.
+
+**Te Deum laudámus.**
+
+## Mense Decembri
+
+{RUBRIC: ante Advéntum}
+
+**Ex libro Officiórum sancti Ambrósii Epíscopi**
+*Liber 1, cap. 18*
+
+#### Lectio iii
+
+BOnus regéndæ castitátis pudor est comes, qui primus, in ipso cognitiónis ingréssu, Dómini Matrem comméndat legéntibus, et tamquam testis lócuples dignam quæ ad tale munus eligerétur ástruit : quod in cubículo, quod sola, quod salutáta ab Angelo tacet et mota est in intróitu ejus, quod ad virílis sexus spéciem peregrínam turbátur aspéctus Vírginis. Itaque, quamvis esset húmilis, præ verecúndia ta-

@@ -35023,3 +35023,53 @@ Quocúmque tendis, Vírgines
 Sequúntur, atque láudibus
 Post te canéntes cúrsitant,
 Hymnósque dulces pérsonant.
+
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+\* Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula.
+Amen.
+
+℣. Spécie tua et pulchritúdine tua.
+℟. Inténde, próspere procéde, et regna.
+
+### In II Vesperis
+
+℣. Diffúsa est grátia in lábiis tuis.
+℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: In utrisque Vesperis}
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Pro Virgine Martyre}
+
+**1 — Oratio**
+
+DEus, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti : concéde propítius; ut, qui beátæ N. Vírginis et Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+**2 — Alia Oratio**
+
+INdulgéntiam nobis, quæsumus, Dómine, beáta N. Virgo et Martyr implóret : quæ tibi grata semper éxstitit, et mérito castitátis et tuæ professióne virtútis. Per Dóminum.
+
+{RUBRIC: Pro Virgine non Martyre}
+
+**3 — Oratio**
+
+EXáudi nos, Deus, salutáris noster : ut, sicut de beátæ N. Vírginis tuæ festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Si fuerint plures Vírgines Mártyres, in utrisque Vésperis Versus, Antíphona ad Magníficat et Orátio, ut sequitur :}
+
+℣. Adducéntur Regi Vírgines post eam.
+℟. Próximæ ejus afferéntur tibi.
+
+**Ad Magnif. Ant.** Prudéntes Vírgines, \* aptáte vestras lámpades : ecce Sponsus venit, exíte óbviam ei.
+
+**4 — Oratio**
+
+DA nobis, quæsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tuárum N. et N. palmas incessábili devotióne venerári : ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}

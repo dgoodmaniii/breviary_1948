@@ -40197,3 +40197,27 @@ Glória Patri. Sicut erat.
 ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
 
 ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+**Oratio**
+
+DEus, cui próprium est miseréri semper et párcere : súscipe deprecatiónem nostram, ut nos, et omnes fámulos tuos, quos delictórum caténa constríngit, miserátio tuæ pietátis cleménter absólvat.
+
+EXáudi, quǽsumus, Dómine, súpplicum preces, et confiténtium tibi parce peccátis : ut páriter nobis indulgéntiam tríbuas benígnus et pacem.
+
+INeffábilem nobis, Dómine, misericórdiam tuam cleménter osténde : ut simul nos et a peccátis ómnibus éxuas, et a pœnis, quas pro his merémur, erípias.
+
+DEus, qui culpa offénderis, pæniténtia placáris : preces pópuli tui supplicántis propítius réspice; et flagélla tuæ iracúndiæ, quæ pro peccátis nostris merémur, avérte.
+
+OMnípotens sempitérne Deus, miserére fámulo tuo Pontífici nostro N., et dírige eum secúndum tuam cleméntiam in viam salútis ætérnæ : ut, te donánte, tibi plácita cúpiat, et tota virtúte perfíciat.
+
+DEus, a quo sancta desidéria, recta consília et justa sunt ópera : da servis tuis illam, quam mundus dare non potest, pacem; ut et corda nostra mandátis tuis dédita, et, hóstium subláta formídine, témpora sint, tua protectióne, tranquílla.
+
+URE igne Sancti Spíritus renes nostros et cor nostrum, Dómine : ut tibi casto córpore serviámus, et mundo corde placeámus.
+
+FIdélium, Deus, ómnium Cónditor et Redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum : ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur.
+
+ACtiónes nostras, quǽsumus, Dómine, aspirándo prǽveni et adjuvándo proséquere : ut cuncta nostra orátio et operátio a te semper incípiat, et per te cœpta finiátur.
+
+OMnípotens sempitérne Deus, qui vivórum domináris simul et mortuórum, omniúmque miseréris quos tuos fide et ópere futúros esse prænóscis : te súpplices exorámus; ut, pro quibus effúndere preces decrévimus, quosque vel præsens sǽculum ad-

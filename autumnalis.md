@@ -23821,3 +23821,456 @@ DOmine Jesu Christe, veræ humilitátis et exémplar et prǽmium : quǽsumus; ut
 **Ant. 4** Benedícta fília \* tu a Dómino, quia per te fructum vitæ communicávimus.
 
 **Ant. 5** Vidérunt eam \* fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam.
+
+**Capitulum**
+*Eccli. 24, 12-13*
+
+QUI creávit me, requiévit in tabernáculo meo : et dixit mihi : In Jacob inhábita, et in eléctis meis mitte radíces.
+
+**Hymnus**
+
+TE Mater alma Núminis
+Orámus omnes súpplices,
+A fraude nos ut dæmonis
+Tua sub umbra prótegas.
+
+Ob pérditum nostrum genus
+Primi paréntis crímine,
+Ad ínclytum Matris decus
+Te Rex suprémus éxtulit.
+
+Cleménter ergo próspice
+Lapsis Adámi pósteris :
+A te rogátus Fílius
+Depónat iram víndicem.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Germinávit radix Jesse, orta est stella ex Jacob. ℟. Virgo péperit Salvatórem, te laudámus Deus noster.
+
+**Ad Bened. Ant.** Sancta María \* succúrre míseris, juva pusillánimes, réfove flébiles, ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu : séntiant omnes tuum juvámen, quicúmque célebrant tuam admirábilem Maternitátem.
+
+**Oratio**
+
+DEus, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti : præsta supplícibus tuis, ut qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+#### AD PRIMAM
+
+**Ant.** Beáta es, \* Virgo, ut supra. 650
+
+{RUBRIC: Ad Primam in ℟. br. ℣. Qui natus es de María Vírgine.}
+
+#### AD TERTIAM
+
+**Ant.** Genuísti, ut supra.
+
+**Capit.** Qui creávit, ut supra.
+
+℟. br. Spécie tua, \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et pulchritúdine tua. Glória Patri. Spécie tua.
+
+℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+#### AD SEXTAM
+
+**Ant.** Cum essem párvula, \* plácui Altíssimo et de meis viscéribus génui Deum et hóminem.
+
+**Capit.**
+*Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus. Glória Patri. Adjuvábit.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+#### AD NONAM
+
+**Ant.** Vidérunt eam \* fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam.
+
+**Capit.**
+*Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum, et bálsamum aromatízans odórem dedi : quasi myrrha elécta dedi suavitátem odóris.
+
+℟. br. Elégit eam Deus, \* Et præelégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et præelégit. Glória Patri. Elégit eam.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut supra in primis Vesperis p. 644, præter sequéntia :}
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Magnif. Ant.** Matérnitas tua, \* Dei Génitrix Virgo, gáudium annuntiávit universo mundo; ex te enim ortus est sol justítiæ, Christus Deus noster.
+
+**Oratio**
+
+DEus, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti : præsta supplícibus tuis, ut qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+---
+
+## Die 13 Octobris — S. Eduardi
+
+{RUBRIC: Regis, Conf. [94] Semiduplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+DEus, qui beátum regem Eduárdum, Confessórem tuum, æternitátis glória coronásti : fac nos, quǽsumus; ita eum venerári in terris, ut cum eo regnáre possímus in cælis. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+EDuárdus, cognoménto Conféssor, nepos sancti Eduárdi Regis et Mártyris, Anglo-Sáxonum regum últimus, quem futúrum regem Brithuáldo viro sanctíssimo in mentis excéssu Dóminus demonstrávit, decénnis a Danis Angliam vastántibus quæsítus ad necem, exsuláre cógitur apud avúnculum, Normánniæ ducem. Ubi in médiis vitiórum illécebris talem se exhíbuit integritáte vitæ morúmque innocéntia, ut ómnibus admiratióni esset. Elúxit in eo vel tum mira píetas in Deum ac res divínas, fuítque ingénio mitíssimo atque ab omni dominándi cupiditáte aliéno. Cujus ea vox fertur, Malle se regno carére, quod sine cæde et sánguine obtinéri non possit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+EXstínctis mox tyránnis, qui frátribus suis vitam et regnum eripúerant, revocátur in pátriam. Ubi, summis ómnium votis et gratulatióne, regno potítus, ad hostílium irárum delénda vestígia totum se convértit, a sacris exórsus ac Divórum templis, quorum ália a fundaméntis eréxit, ália refécit auxítque redítibus ac privilégiis; in eam curam potíssimum inténtus, ut reflorésceret collápsa relígio. Ab aulæ procéribus compúlsum ad núptias, constans est assértio scriptórum, cum vírgine sponsa virginitátem in matrimónio servásse. Tantus in eo fuit in Christum amor et fides, ut illum aliquándo inter Missárum solémnia vidére merúerit, blando vultu et divína luce fulgéntem. Ob profúsam caritátem, orphanórum et egenórum pater passim dicebátur, numquam lætior quam cum régios thesáuros exhausísset in páuperes.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+PRophetíæ dono illústris, de Angliæ futúro statu multa cǽlitus prævídit; et illud in primis memorábile, quod Sweýni Danórum regis in mare demérsi mortem, dum Angliam invadéndi ánimo classem conscénderet, eódem quo áccidit moménto, divínitus intelléxit. Joánnem Evangelístam mirífice cóluit, nihil cuíquam, quod ejus nómine peterétur, negáre sólitus. Cui olim sub lácera veste suo nómine stipem rogánti, cum nummi deéssent, detráctum ex dígito ánulum porréxit; quem Divus non ita multo post Eduárdo remísit, una cum núntio secutúræ mortis. Quare rex, indíctis pro se précibus, ipso ab Evangelísta prædícto die píissime óbiit, Nonis vidélicet Januárii, anno salútis millésimo sexagésimo sexto. Quem sequénti sǽculo Alexánder Papa tértius, miráculis clarum, Sanctórum fastis adscrípsit. At ejus memóriam Innocéntius undécimus Offício público per univérsam Ecclésiam eo die celebrári præcépit, quo annis ab óbitu sex et trigínta translátum ejus corpus, incorrúptum et suávem spirans odórem repértum est.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+EDuárdus, cognoménto Conféssor, nepos sancti Eduárdi Regis et Mártyris, Anglo-Sáxonum regum últimus, decénnis a Danis Angliam vastántibus quæsítus ad necem, exsuláre cógitur, apud avúnculum, Normánniæ ducem, ubi morum innocéntia ómnibus admiratióni fuit. Exstínctis mox tyránnis, qui frátribus suis vitam et regnum eripúerant, revocátur in pátriam, ubi ad hostílium irárum delénda vestígia totum se convértit, a sacris exórsus templis. Prophetíæ dono illústris, de Angliæ futúro statu multa cǽlitus prævídit. Joánnem Evangelístam mirífice cóluit. Ipso ab Evangelísta prædícto die píissime óbiit, Nonis vidélicet Januárii, anno salútis millésimo sexagésimo sexto. Quem Alexánder Papa tértius Sanctórum fastis adscrípsit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Noct. Homilia in Ev. Sint lumbi vestri, de Comm. Conf. non Pont. 1 loco. [98]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui beátum regem Eduárdum, Confessórem tuum, æternitátis glória coronásti : fac nos, quǽsumus; ita eum venerári in terris, ut cum eo regnáre possímus in cælis. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 14 Octobris — S. Callisti I
+
+{RUBRIC: Papæ et Mart. [29] Duplex}
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+**Oratio**
+
+DEus, qui nos cónspicis ex nostra infirmitáte defícere : ad amórem tuum nos misericórditer per Sanctórum tuórum exémpla restáura. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus, qui beátum, ut supra.
+
+### In II Nocturno
+
+##### Lectio iv
+
+CAllístus, Románus, præfuit Ecclésiæ, Antoníno Heliogábalo imperatóre. Constítuit quátuor anni Témpora, quibus jejúnium, ex apostólica traditióne accéptum, ab ómnibus servarétur. Ædificávit basílicam sanctæ Maríæ trans Tíberim, et in via Appia vetus cœmetérium ampliávit, in quo multi sancti Sacerdótes et Mártyres sepúlti sunt; unde ab eo Callísti cœmetérium appellátur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+##### Lectio v
+
+EJúsdem pietátis fuit, quod beáti Calepódii Presbýteri et Mártyris corpus, jactátum in Tíberim, conquíri diligénter curávit, et, invéntum, honorífice sepelívit. Palmátium consulári, Simplícium senatória dignitáte illústres, Felícem et Blandam, qui deínde omnes martýrium subiére, cum baptísmo lustrásset, missus est in cárcerem, ubi Privátum mílitem, ulcéribus plenum, admirabíliter sanitáti restitútum, Christo adjúnxit; pro quo idem, recens adhuc a fide suscépta, plumbátis usque ad mortem cæsus occúbuit.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+##### Lectio vi
+
+SEdit Callístus annos quinque, mensem unum, dies duódecim. Ordinatiónibus quinque, mense Decémbri, creávit presbýteros séxdecim, diáconos quátuor, epíscopos octo. Post longam famem crebrásque verberatiónes præceps jactus in púteum, atque ita martýrio coronátus sub Alexándro imperatóre, illátus est in cœmetérium Calepódii, via Aurélia, tértio ab Urbe lápide, prídie Idus Octóbris. Ejus póstmodum corpus in basílicam sanctæ Maríæ trans Tíberim, ab ipso ædificátam, delátum, sub ara majóri, máxima veneratióne cólitur.
+
+℟. Stola jucunditátis índuit eum Dóminus : \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illum. — Et corónam. Glória Patri. Et corónam.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+CAllístus, Románus, præfuit Ecclésiæ, Antoníno Heliogábalo imperatóre. Constítuit quátuor anni Témpora, quibus jejúnium, ex apostólica traditióne accéptum, ab ómnibus servarétur. Ædificávit basílicam sanctæ Maríæ trans Tíberim, et in via Appia vetus cœmetérium ampliávit, in quo multi sancti Sacerdótes et Mártyres sepúlti sunt; unde ab eo Callísti cœmetérium appellátur. Sedit annos quinque, mensem unum, dies duódecim. Post longam famem crebrásque verberatiónes præceps jactus in púteum, martýrio coronátur sub Alexándro imperatóre, et sepúltus est in cœmetério Calepódii, via Aurélia, tértio ab Urbe lápide, prídie Idus Octóbris. Ejus póstmodum corpus in basílicam sanctæ Maríæ trans Tíberim delátum, sub ara majóri, máxima veneratióne cólitur.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Noct. Homilia in Ev. Venit Jesus, de Comm. unius aut plúrium Summórum Pontíficum. [281]}
+
+#### AD LAUDES
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio**
+
+DEus, qui nos cónspicis ex nostra infirmitáte defícere : ad amórem tuum nos misericórditer per Sanctórum tuórum exémpla restáura. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 15 Octobris — S. Teresiæ
+
+{RUBRIC: Virg. [111] Duplex}
+
+#### IN I VESPERIS
+
+**Capit.**
+*2 Cor. 10, 17-18*
+
+FRatres : Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+**Hymnus**
+
+REgis supérni núntia,
+Domum patérnam déseris,
+Terris, Terésa, bárbaris
+Christum datúra aut sánguinem.
+
+Sed te manet suávior
+Mors, pœna poscit dúlcior :
+Divíni amóris cúspide
+In vulnus icta cóncides.
+
+O caritátis víctima!
+Tu corda nostra cóncrema,
+Tibíque gentes créditas
+Avérni ab igne líbera.
+
+Sit laus Patri cum Fílio
+Et Spíritu Paráclito,
+Tibíque, sancta Trínitas,
+Nunc et per omne sǽculum.
+Amen.
+
+{RUBRIC: In I Vesperis ℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.}
+
+{RUBRIC: In II Vesperis ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.}
+
+{RUBRIC: In utrisque Vesperis}
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+**Oratio**
+
+EXáudi nos, Deus, salutáris noster : ut, sicut de beátæ Terésiæ Vírginis tuæ festivitáte gaudémus; ita cæléstis ejus doctrínæ pábulo nutriámur, et piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+**Oratio** Deus, qui nos, ut supra.
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus** Regis supérni, ut supra. 657
+
+### In II Nocturno
+
+##### Lectio iv
+
+TErésia Virgo, nata est Abúlæ in Hispánia paréntibus tum génere tum pietáte præcláris. Ab iis divíni timóris lacte educáta, admirándum futúræ sanctitátis in tenérrima adhuc ætáte spécimen dedit. Nam cum sanctórum Mártyrum acta perlégeret, ádeo in ejus meditatióne Sancti Spíritus ignis exársit, ut, domo aufúgiens, in Africam trajíceret, ubi vitam pro glória Jesu Christi et animárum salúte profúnderet. A pátruo revocáta, ardens martýrii desidérium eleemósynis aliísque piis opéribus compensávit, júgibus lácrimis deplórans óptimam sibi sortem fuísse præréptam. Mórtua matre, cum a beatíssima Vírgine péteret, ut se matrem esse monstráret, pii voti compos effécta est; semper perínde ac fília patrocínio Deíparæ pérfruens. Vigésimum ætátis annum agens, ad moniáles sanctæ Maríæ de Monte Carmélo se cóntulit. Ibi, per duodevigínti annos gravíssimis morbis et váriis tentatiónibus vexáta, constantíssime méruit in castris christiánæ pœniténtiæ, nullo refécta pábulo cæléstium eárum consolatiónum, quibus solet étiam in terris sánctitas abundáre.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+##### Lectio v
+
+ANgélicis ditáta virtútibus, non modo própriam, sed públicam étiam salútem sollícita caritáte curávit. Quare severiórem véterum Carmelitárum régulam, Deo afflánte et Pio quarto approbánte, primum muliéribus, deínde viris observándam propósuit. Effióruit in eo consílio omnípotens miseréntis Dómini benedíctio; nam duo supra trigínta monastéria inops virgo pótuit ædificáre, ómnibus humánis destitúta auxíliis, quinímmo adversántibus plerúmque sǽculi princípibus. Infidélium et hæreticórum ténebras perpétuis deflébat lácrimis, atque, ad placándam divínæ ultiónis iram, voluntários próprii córporis cruciátus Deo pro eórum salúte dicábat. Tanto autem divíni amóris incéndio cor ejus conflagrávit, ut mérito víderit Angelum igníto jáculo sibi præcórdia transverberántem, et audíerit Christum, data déxtera, dicéntem sibi : Deínceps, ut vera sponsa, meum zelábis honórem. Eo consiliánte, máxime árduum votum emísit effíciéndi semper quidquid perféctius esse intellígeret. Multa cæléstis sapiéntiæ documénta conscrípsit, quibus fidélium mentes ad supérnæ pátriæ desidérium máxime excitántur.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+CUM autem assídua éderet exémpla virtútum, tam ánxio castigándi córporis desidério æstuábat, ut, quamvis secus suadérent morbi quibus afflictabátur, corpus cilíciis, caténis, urticárum manípulis aliísque aspérrimis flagéllis sæpe cruciáret, et aliquándo inter spinas volutáret, sic Deum álloqui sólita : Dómine, aut pati aut mori; se semper misérrima morte pereúntem existimans, quámdiu a cælésti ætérnæ vitæ fonte abésset. Prophetíæ dono excélluit, eámque divínis charismátibus tam liberáliter locupletábat Dóminus, ut sæpius exclámans péteret benefíciis in se divínis modum impóni, nec tam céleri obliviónè culpárum suárum memóriam aboléri. Intolerábili ígitur divíni amóris incéndio pótius quam vi morbi, Albæ cum decúmberet, prænuntiáto suæ mortis die, ecclesiásticis sacraméntis muníta, alúmnos ad pacem, caritátem et regulárem observántiam adhortáta, sub colúmbæ spécie puríssimam ánimam Deo réddidit, annos nata sexagínta septem, anno millésimo quingentésimo octogésimo secúndo, Idibus Octóbris, juxta Kalendárii Románi emendatiónem. Ei moriénti adésse visus est inter Angelórum ágmina Christus Jesus; et arbor árida, cellæ próxima, statim effióruit. Ejus corpus, usque ad hanc diem incorrúptum, odoráto liquóre circumfúsum, pia veneratióne cólitur. Miráculis cláruit ante et post óbitum, eámque Gregórius décimus quintus in Sanctórum númerum rétulit.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+TErésia, piis nobilibúsque paréntibus Abúlæ in Hispánia nata, adhuc puéllula, martýrii cupiditáte incénsa, domo aufúgiens, Africam pétere tentávit. Domum redúcta, post matris óbitum patrocínio beátæ Vírginis se totam commisísset, vicénnis moniálium sanctæ Maríæ de Monte Carmélo régulam proféssa est. De animárum salúte sollícita, plúrimis exstrúctis monastériis, véterem Carmelitárum régulam muliéribus et viris observándam propósuit. Pro infidélibus atque hæréticis voluntários próprii córporis cruciátus Deo júgiter offerébat, et divíno æstuans amóre, cum máxime árduum votum emisísset effíciéndi semper id, quod perféctius esse intellígeret, ab Angelo méruit igníto jáculo sibi præcórdia transverberári. Multa cæléstis sapiéntiæ documénta conscrípsit, múltaque verbo et exémplo dócuit, illud in ore sæpe habens : Dómine, aut pati aut mori. Virtútibus, prophetíæ dono aliísque charismátibus clara, Albæ puríssimam ánimam Deo réddidit, anno millésimo quingentésimo octogésimo secúndo, ætátis suæ sexagésimo séptimo, Idibus Octóbris.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Noct. Homilia in Ev. Símile erit regnum cælórum, de Comm. Virg. 1 loco. [122]}
+
+#### AD LAUDES
+
+**Capit.**
+*2 Cor. 10, 17-18*
+
+FRatres : Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+**Hymnus**
+
+HÆC est dies, qua cándidæ
+Instar colúmbæ, Cǽlitum
+Ad sacra templa spíritus
+Se tránstulit Terésiæ.
+
+Sponsíque voces áudiit :
+Veni, soror, de vértice
+Carméli ad Agni núptias;
+Veni ad corónam glóriæ.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Te, Sponse Jesu Vírginum,
+Beáti adórent órdines,
+Et nuptiáli cántico
+Laudent per omne sǽculum.
+Amen.
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio**
+
+EXáudi nos, Deus, salutáris noster : ut, sicut de beátæ Terésiæ Vírginis tuæ festivitáte gaudémus; ita cæléstis ejus doctrínæ pábulo nutriámur, et piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+#### IN II VESPERIS
+
+{RUBRIC: Capit. et Hymnus ut in I Vesperis 657, præter}
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+---
+
+## Die 16 Octobris — S. Hedwigis
+
+{RUBRIC: Víduæ [130] Semiduplex}
+
+**Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Spécie tua.
+
+**Oratio**
+
+DEus, qui beátam Hedwígem a sǽculi pompa ad húmilem tuæ crucis sequélam toto corde transíre docuísti : concéde; ut ejus méritis et exémplo discámus peritúras mundi calcáre delícias, et in ampléxu tuæ crucis ómnia nobis adversántia superáre : Qui vivis et regnas.
+
+### In II Nocturno
+
+##### Lectio iv
+
+HEdwígis, régiis clara natálibus, innocéntia tamen vitæ longe clárior, sanctæ Elísabeth fíliæ regis Hungáriæ matértera, Bertholdi et Agnétis Móraviæ marchiónum fília, ánimi ab ineúnte ætáte moderatiónem prótulit. Adhuc enim puéllula puerílibus abstínuit, et, duodénnis Henríco Polóniæ duci a paréntibus núptui trádita, thálami fide sancte serváta, prolem inde suscéptam in Dei timóre erudívit. Ut autem commódius Deo vacáret, ex pari voto et consénsu unánimi, ad separatiónem thori virum indúxit. Quo defúncto, ipsa in monastério Trebnicénsi, Deo, quem assíduis précibus exoráverat, inspiránte, Cisterciénsem devóta sumpsit hábitum; in eóque, contemplatióni inténta, divínis Offíciis et Missárum solémniis a solis ortu ad merídiem usque assídua assístens, antíquum humáni géneris hostem fortis contémpsit.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+##### Lectio v
+
+SÆculi autem commércia, ni divína vel animárum salútem attíngerent, audíre vel loqui non sustínuit. Prudéntia in agéndis sic emícuit, ut neque excéssus esset in modo nec error in órdine, comis alióqui et mansuéta in próximum. Grandem autem de se triúmphum jejúniis et vigíliis vestiúmque asperitáte, austéra carnem mácerans, reportávit; hinc sublimióribus florens virtútibus christiánis, consiliórum gravitáte, animíque cándore et quiéte, in exímium religiósæ pietátis evásit exémplar. Omnibus se ultro subjícere atque vilióra præ céteris moniálibus alácriter múnia subíre, paupéribus étiam flexo genu ministráre, leprosórum pedes ablúere et osculári, ipsi familiáre erat; neque illórum úlcera sánie manántia, sui víctrix, abhórruit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+MIra fuit ejus patiéntia animíque constántia; præcípue vero in morte Henríci ducis Silésiæ, sui, quem matérne diligébat, fílii in bello a Tártaris cæsi, enítuit; pótius enim grátias Deo, quam fílio lácrimas réddidit. Miraculórum dénique glória percrébuit; púerum enim demérsum et molendíni rotis allísum et prorsus attrítum, invocáta vitæ restítuit; alíaque præstítit, ut, rite iis probátis, Sanctórum número eam adscrípserit Cleméns quartus, ejúsque festum in Polónia, ubi præcípua veneratióne uti patróna cólitur, die décima quinta Octóbris celebrári concésserit. Quod deínde ut décima séptima in tota Ecclésia fíeret, Innocéntius undécimus ampliávit.
+
+℟. Fallax grátia, et vana est pulchritúdo : \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+HEdwígis, régiis clara natálibus, sanctæ Elísabeth fíliæ regis Hungáriæ matértera, duodénnis Henríco Polóniæ duci núptui trádita, prolem inde suscéptam in Dei timóre erudívit. Ut autem commódius Deo vacáret, ex pari voto et consénsu unánimi, ad separatiónem thori virum indúxit. Quo defúncto, ipsa in monastério Trebnicénsi Cisterciénsem sumpsit hábitum; in eóque, contemplatióni inténta, divínis Offíciis et Missárum solémniis assídua assístere in delíciis hábuit. Sublimióribus florens virtútibus, arctíssima pœniténtia, consiliórum gravitáte animíque cándore, in exímium religiósæ pietátis evásit exémplum.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Noct. Homilia in Ev. Símile est regnum, de Comm. non Virg. [134]}
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+**Oratio**
+
+DEus, qui beátam Hedwígem a sǽculi pompa ad húmilem tuæ crucis sequélam toto corde transíre docuísti : concéde; ut ejus méritis et exémplo discámus peritúras mundi calcáre delícias, et in ampléxu tuæ crucis ómnia nobis adversántia superáre : Qui vivis et regnas.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 17 Octobris — S. Margaritæ Mariæ Alacoque
+
+{RUBRIC: Virginis [111] Duplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+**Oratio**
+
+DOmine Jesu Christe, qui investigábiles divítias Cordis tui beátæ Margarítæ Maríæ Vírgini mirabíliter revelásti; da nobis ejus méritis et imitatióne, ut te in ómnibus et super ómnia diligéntes, jugem in eódem Corde tuo mansiónem habére mereámur. Qui vivis.
+
+{RUBRIC: Et fit Commem. præcedentis :}
+
+**Ant.** Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Deus, qui beátam, ut supra.
+
+### In II Nocturno
+
+##### Lectio iv
+
+MArgaríta María Alacóque, in pago diœcésis Augustodunénsis, honésto génere nata, jam inde a téneris annis futúræ sanctitátis indícia præbuit. In Deíparam Vírginem et in augústum Eucharístiæ sacraméntum amóre flagrans, adolescéntula Deo virginitátem devóvit, id exóptans únice ut ad christiánas virtútes vitam compóneret. In delíciis habébat prolíxas preces rerúmque cæléstium contemplatiónem, sui contémptum, patiéntiam in advérsis, córporis afflictatiónem, caritátem in próximos, præsértim egénos; summóque stúdio nitebátur ut sanctíssima divíni Redemptóris exémpla pro víribus reférret.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+##### Lectio v
+
+ORdinem Visitatiónis ingréssa, statim religiósæ vitæ fulgóre nitére cœpit. Altióris dono oratiónis a Deo est decoráta, aliísque grátiæ munéribus et crebris visiónibus. Harum celebérrima fuit cum ante Eucharístiam precánti Jesus semetípsum conspiciéndum óbtulit, et divínum Cor in apérto péctore flammis incénsum ac spinis constríctum osténdit, præcepítque ut, ob talem caritátem et ad ingratórum hóminum injúrias expiándas illa públicum Cordi suo cultum, magnis propósitis cæléstis thesáuri præmiis, instituéndum curáret. Cunctánti ex humilitáte seque tantæ rei ímparem profiténti amantíssimus Salvátor addit ánimum, simúlque exímia sanctitáte virum, Cláudium de la Colombière, ducem et adjutórem desígnat; eámque spe fovet illíus summæ utilitátis, quæ póstea e divíni Cordis cultu in Ecclésiam dimanávit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+UT jussa Redemptóris impléret Margaríta omni diligéntia studébat. Nec tamen illi defuére moléstiæ plures atque acres contuméliæ ab iis qui eam vano mentis erróri obnóxiam esse dictitábant. Quæ ómnia æquo ánimo tulit, immo apponébat lucro, existimans se per oppróbria et dolóres hóstiam Deo gratam fore, et majóra ad propósitum suum auxília consecutúram. Religiósæ perfectiónis laude florens et per æternárum rerum contemplatiónem in dies síngulos cælésti sponso conjúnctior, ad eum evolávit, anno ætátis suæ quadragésimo tértio, reparátæ salútis millésimo sexcentésimo nonagésimo. Miráculis insígnem Benedíctus décimus quintus sanctis adscrípsit ejúsque offícium Pius undécimus Póntifex Máximus ad univérsam Ecclésiam exténdit.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur. Glória Patri. Afferéntur.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+MArgaríta María Alacóque, in pago diœcésis Augustodunénsis honésto génere nata, jam a téneris annis futúræ sanctitátis indícia præbuit. In Deíparam Vírginem et in augústum Eucharístiæ sacraméntum amóre flagrans, adolescéntula Deo virginitátem devóvit; ac Ordinem Visitatiónis ingréssa, statim religiósæ vitæ fulgóre nitére cœpit. Altióris dono oratiónis a Deo est decoráta, aliísque grátiæ munéribus et crebris visiónibus. Harum celebérrima fuit cum ante Eucharístiam precánti Jesus semetípsum conspiciéndum óbtulit, et divínum Cor in apérto péctore flammis incénsum ac spinis constríctum osténdit, præcepítque ut, ob talem caritátem et ad ingratórum hóminum injúrias expiándas, illa públicum Cordi suo cultum, magnis propósitis cæléstis thesáuri præmiis, instituéndum curáret. Religiósæ perfectiónis laude florens et per æternárum rerum contemplatiónem in dies síngulos cælésti sponso conjúnctior, ad eum evolávit, anno ætátis suæ quadragésimo tértio, reparátæ salútis millésimo sexcentésimo nonagésimo. Miráculis insígnem Benedíctus décimus quintus sanctis adscrípsit : ejúsque offícium Pius undécimus ad univérsam Ecclésiam exténdit.
+
+**Te Deum laudámus.**

@@ -26679,3 +26679,185 @@ BEnedíctio et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fo
 **Oratio**
 
 OMnípotens sempitérne Deus, qui nos ómnium Sanctórum tuórum mérita sub una tribuísti celebritáte venerári : quǽsumus; ut desiderátam nobis tuæ propitiatiónis abundántiam, multiplicátis intercessóribus, largiáris. Per Dóminum.
+
+{RUBRIC: Post Vésperas diéi dicúntur Vésperæ et Completórium Defunctórum, ut inférius notátur. Si tamen hódie fúerit Sabbátum, in II Vésperis Omnium Sanctórum fit Commemoratio sequéntis Domínicæ, de qua die sequénti fiet Offícium cum Commemoratióne Octávæ, et dícitur Completórium páriter de Domínica. 62}
+
+{RUBRIC: Infra Octávam et in die Octáva Antíphonæ et Psalmi ad omnes Horas et Versus Nocturnórum de occurrénti hebdómadæ die, ut in Psaltério; réliqua ut in Festo prǽter Lectiónes cum suis Respónsoriis, quæ in I Noctúrno dicúntur de Scriptúra occurrénti, in II et III pro síngulis diébus assignántur própriæ.}
+
+---
+
+# Die 2 Novembris
+
+## In Commemoratione Omnium Fidelium Defunctorum
+
+{RUBRIC: vel, si in Dominicam incíderit, die 3 sequénti}
+
+{RUBRIC: DUPLEX}
+
+{RUBRIC: ¶ Commemoratio Omnium Fidélium Defunctórum exclúdit tum Festa occurréntia, tum Festa transferénda cujúsvis ritus. Si tamen incíderit in Domínicam, iísdem cum júribus in sequénti Féria II celebrátur, translátoi vel pénitus omísso, juxta Rúbricas, quólibet álio Festo.}
+
+#### AD VESPERAS
+
+{RUBRIC: In II Vésperis Omnium Sanctórum vel altérius Offícii, ut supra, post Versum Benedicámus Dómino, immediáte dicúntur Vésperæ Defunctórum, eísque non præmíttitur Pater noster et Ave María, nisi quando extra Chorum a Vésperis antecedéntis Offícii separéntur, sed absoluté incípitur ab Antíphona Placébo Dómino, ut infra.}
+
+{RUBRIC: Antíphonæ autem ad Vésperas, sicúti et ad Matutínum ac Laudes, ante et post Psalmos et Cánticum íntegræ dicúntur.}
+
+**Ant.** Placébo cum Psalmis ut infra. [202]
+
+{RUBRIC: Repetíta post Cánticum Magníficat Antíphona, dícitur flexis génibus :}
+
+{RUBRIC: Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+{RUBRIC: Et immédiate subjúngitur :}
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+**Oratio**
+
+FIdélium, Deus, ómnium cónditor et redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum : ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur : Qui vivis et regnas cum Deo Patre in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Et ita absolvúntur Vésperæ Defunctórum, neque áliud adjúngitur.}
+
+#### AD COMPLETORIUM
+
+{RUBRIC: Non dícitur Jube, domne nec Léctio brevis, neque Versus Adjutórium nostrum, neque Orátio Domínica; sed, facta Confessióne et Absolutióne, statim sine Antíphona incípitur a Psalmis sequéntibus; et in fine cujúslibet Psalmi, ad omnes Horas, loco Glória Patri dícitur Réquiem ætérnam.}
+
+**Psalmus 122**
+
+AD te levávi óculos meos, \* qui hábitas in cælis.
+
+Ecce sicut óculi servórum \* in mánibus dominórum suórum.
+
+Sicut óculi ancíllæ in mánibus dóminæ suæ : \* ita óculi nostri ad Dóminum, Deum nostrum, donec misereátur nostri.
+
+Miserére nostri, Dómine, miserére nostri : \* quia multum repléti sumus despectióne :
+
+Quia multum repléta est ánima nostra : \* oppróbrium abundántibus, et despéctio supérbis.
+
+Réquiem ætérnam.
+
+**Psalmus 141**
+
+VOce mea ad Dóminum clamávi : \* voce mea ad Dóminum deprecátus sum :
+
+Effúndo in conspéctu ejus oratiónem meam, \* et tribulatiónem meam ante ipsum pronúntio.
+
+In deficiéndo ex me spíritum meum, \* et tu cognovísti sémitas meas.
+
+In via hac, qua ambulábam, \* absconderúnt láqueum mihi.
+
+Considerábam ad déxteram, et vidébam : \* et non erat qui cognósceret me.
+
+Périit fuga a me, \* et non est qui requírat ánimam meam.
+
+Clamávi ad te, Dómine, \* dixi : Tu es spes mea, pórtio mea in terra vivéntium.
+
+Inténde ad deprecatiónem meam : \* quia humiliátus sum nimis.
+
+Líbera me a persequéntibus me : \* quia confortáti sunt super me.
+
+Educ de custódia ánimam meam ad confiténdum nómini tuo : \* me exspéctant justi, donec retríbuas mihi.
+
+Réquiem ætérnam.
+
+**Psalmus 142**
+
+DOmine, exáudi oratiónem meam : áuribus pércipe obsecratiónem meam in veritáte tua : \* exáudi me in tua justítia.
+
+Et non intres in judícium cum servo tuo : \* quia non justificábitur in conspéctu tuo omnis vivens.
+
+Quia persecútus est inimícus ánimam meam : \* humiliávit in terra vitam meam.
+
+Collocávit me in obscúris sicut mórtuos sǽculi : \* et anxiátus est super me spíritus meus, in me turbátum est cor meum.
+
+Memor fui diérum antiquórum, meditátus sum in ómnibus opéribus tuis : \* in factis mánuum tuárum meditábar.
+
+Expándi manus meas ad te : \* ánima mea sicut terra sine aqua tibi.
+
+Velóciter exáudi me, Dómine : \* defécit spíritus meus.
+
+Non avértas fáciem tuam a me : \* et símilis ero descendéntibus in lacum.
+
+Audítam fac mihi mane misericórdiam tuam : \* quia in te sperávi.
+
+Notam fac mihi viam, in qua ámbulem : \* quia ad te levávi ánimam meam.
+
+Eripe me de inimícis meis, Dómine, ad te confúgi : \* doce me fácere voluntátem tuam, quia Deus meus es tu.
+
+Spíritus tuus bonus dedúcet me in terram rectam : \* propter nomen tuum, Dómine, vivificábis me, in æquitáte tua.
+
+Edúces de tribulatióne ánimam meam : \* et in misericórdia tua díspérdes inimícos meos.
+
+Et perdes omnes, qui tríbulant ánimam meam : \* quóniam ego servus tuus sum.
+
+Réquiem ætérnam.
+
+{RUBRIC: Explétis Psalmis, statim subjúngitur}
+
+**Canticum Simeonis**
+*Luc. 2, 29-32*
+
+NUnc dimíttis servum tuum, Dómine, \* secúndum verbum tuum in pace :
+
+Quia vidérunt óculi mei \* salutáre tuum,
+
+Quod parásti \* ante fáciem ómnium populórum,
+
+Lumen ad revelatiónem géntium, \* et glóriam plebis tuæ Israël.
+
+Réquiem ætérnam.
+
+{RUBRIC: Deínde dícitur flexis génibus :}
+
+{RUBRIC: Pater noster secréto usque ad}
+
+℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+**Oratio**
+
+PRopitiáre, quǽsumus, Dómine, animábus ómnium famulórum famularúmque tuárum, pro quibus majestátem tuam supplíciter exorámus : ut, per hæc piæ deprecatiónis offícia, pervenire mereántur ad réquiem sempitérnam. Per Dóminum. ℟. Amen.
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Et ita absolvítur Completórium, neque áliud adjúngitur.}
+
+#### AD MATUTINUM
+
+{RUBRIC: Dictis secréto Pater noster, Ave María et Credo, absolúte incípitur}
+
+**Invit.** Regem, cui ómnia vivunt, \* Veníte, adorémus.
+
+{RUBRIC: Ps. 94 Veníte, exsultémus (cum Invitatório). [209]}
+
+{RUBRIC: Antíphonæ cum Psalmis ac Versibus trium Nocturnórum ut in Communi Officio Defunctórum. [210]}
+
+{RUBRIC: ¶ Lectiónes trium Noct. dicúntur sine Absolutióne et Benedictiónibus, et Lectiónes I Noctúrni insuper sine Título.}
+
+### In I Nocturno
+
+##### Lectio i
+*Job 7, 16-21*
+
+PArce mihi, Dómine; nihil enim sunt dies mei. Quid est homo, quia magníficas eum? aut quid appónis erga eum cor tuum? Vísitas eum dilúculo, et súbito probas illum. Usquequo non parcis mihi, nec dimíttis me, ut glútiam salívam meam? Peccávi, quid fáciam tibi, o custos hóminum? quare posuísti me contrárium tibi, et factus sum mihimétipsi gravis? Cur non tollis peccátum meum, et quare non aufers iniquitátem meam? Ecce nunc in púlvere dórmiam : et si mane me quæsíeris, non subsístam.

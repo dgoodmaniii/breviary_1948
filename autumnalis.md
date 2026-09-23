@@ -37911,3 +37911,70 @@ AVE, maris stella,
 Dei Mater alma,
 Atque semper Virgo,
 Felix cæli porta.
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus. Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: ¶ Si tamen præcédens Versus dictus jam fúerit in Offício de Communi Virgínum vel non Virgínum, tunc dícitur séquens}
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Magnif. Ant.** Beáta Mater \* et intácta Virgo, gloriósa Regína mundi, intercéde pro nobis ad Dóminum.
+
+**Oratio**
+
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére : et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Suffrágium de ómnibus Sanctis, ut infra ad Laudes. [192]}
+
+{RUBRIC: Ad Completórium et ad omnes Horas usque ad Nonam inclusíve, in fine Hymnórum dícitur :}
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+#### AD MATUTINUM
+
+**Invit.** Ave, María, grátia plena; \* Dóminus tecum. **Ps. 94** Veníte, exsultémus.
+
+**Hymnus**
+
+QUem terra, pontus, sídera
+Colunt, adórant, prædicant,
+Trinam regéntem máchinam,
+Claustrum Maríæ bájulat.
+
+Cui luna, sol et ómnia
+Desérviunt per témpora,
+Perfúsa cæli grátia,
+Gestant puéllæ víscera.

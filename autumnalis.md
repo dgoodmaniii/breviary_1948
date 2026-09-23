@@ -34774,3 +34774,47 @@ INtercéssio nos, quæsumus, Dómine, beáti N. Abbátis comméndet : ut, quod n
 **Capitulum** *Eccli. 31, 8-9*
 
 BEátus vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.
+
+℟. br. Amávit eum Dóminus, \* Et ornávit eum. Amávit. ℣. Stolam glóriæ índuit eum. Et. **Glória Patri.** Amávit. ℣. Os justi meditábitur sapiéntiam. ℟. Et lingua ejus loquétur judícium.
+
+#### AD SEXTAM
+
+**Capitulum** *Eccli. 39, 6*
+
+JUstus cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Os justi \* Meditábitur sapiéntiam. Os. ℣. Et lingua ejus loquétur judícium. Meditábitur. **Glória Patri.** Os. ℣. Lex Dei ejus in corde ipsíus. ℟. Et non supplantabúntur gressus ejus.
+
+#### AD NONAM
+
+**Capitulum** *Sap. 10, 10*
+
+JUstum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit illi sciéntiam sanctórum; honestávit illum in labóribus, et complévit labóres illíus.
+
+℟. br. Lex Dei ejus \* In corde ipsíus. Lex. ℣. Et non supplantabúntur gressus ejus. In. **Glória Patri.** Lex. ℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vésperis [94], præter}
+
+℣. Justum dedúxit Dóminus per vias rectas.
+℟. Et osténdit illi regnum Dei.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Si celebrári occúrrat Festum plúrium Confessórum non Pontíficum, Offícium fit ut supra : sed in Oratióne et Sermóne, ea quæ habéntur in singulári, dicántur in plúrali; et in I Nocturno sumúntur Lectiónes Laudémus viros gloriósos, quæ in Communi Confessóris Pontíficis 2 loco plúribus Pontíficibus sunt assignátæ [83], cum Responsóriis tamen de Communi Confessóris non Pontíficis, ut ibídem.}
+
+---
+
+# II Aliae Lectiones pro Conf. non Pontifice
+
+### In I Nocturno
+
+{RUBRIC: De libro Sapiéntiæ}
+{RUBRIC: Cap. 4, 7-20; 5, 1-5}
+
+#### Lectio i
+
+JUstus si morte præoccupátus fúerit, in refrígerio erit.

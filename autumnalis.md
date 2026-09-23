@@ -22425,3 +22425,151 @@ QUantam tibi debet hoc verbum inférre reveréntiam, afférre devotiónem, conf�
 IN ipso ítaque, fratres, affectuóse diligámus Angelos ejus, tamquam futúros aliquándo cohærédes nostros, ínterim vero actóres et tutóres, a Patre pósitos et præpósitos nobis. Quid sub tantis custódibus timeámus? Nec superári nec sedúci, minus autem sedúcere possunt, qui custódiunt nos in ómnibus viis nostris. Fidéles sunt, prudéntes sunt, poténtes sunt : quid trepidámus? Tantum sequámur eos, adhæreámus eis, et in protectióne Dei cæli commorémur. Quóties ergo gravíssima cérnitur urgére tentátio et tribulátio véhemens immenére, ínvoca custódem tuum, ductórem tuum, adjutórem tuum in opportunitátibus, in tribulatióne; incláma eum et dic : Dómine, salva nos, perímus.
 
 ℟. In omni tribulatióne eórum non est tribulátus, \* Et Angelus faciéi ejus salvávit eos. ℣. In dilectióne sua et indulgéntia sua ipse redémit eos, et portávit eos, et elevávit eos cunctis diébus sǽculi. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+**Ant.** Misit Dóminus \* Angelum suum, qui percússit omnem virum robústum et bellatórem, et príncipem exércitus regis Assyriórum.
+
+**Psalmus 95**
+
+CAntáte Dómino cánticum novum : * cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus : * annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, * in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis : * terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia : * Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus : * sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem : * afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus : * adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra : * dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur : * judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : * gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : * quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, * et pópulos in veritáte sua.
+
+**Ant.** Misit Dóminus Angelum suum, qui percússit omnem virum robústum et bellatórem, et príncipem exércitus regis Assyriórum.
+
+**Ant.** Adoráte Dóminum, \* omnes Angeli ejus : audívit, et lætáta est Sion.
+
+**Psalmus 96**
+
+DOminus regnávit, exsúltet terra : * læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : * justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, * et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : * vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : * a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : * et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : * et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : * audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, * propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : * nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : * custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, * et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : * et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Adoráte Dóminum, omnes Angeli ejus : audívit, et lætáta est Sion.
+
+**Ant.** Benedícite Dómino, \* omnes Angeli ejus, poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+**Psalmus 102**
+
+BEnedic, ánima mea, Dómino : * et ómnia, quæ intra me sunt, nómini sancto ejus.
+
+Bénedic, ánima mea, Dómino : * et noli oblivísci omnes retributiónes ejus.
+
+Qui propitiátur ómnibus iniquitátibus tuis : * qui sanat omnes infirmitátes tuas.
+
+Qui rédimit de intéritu vitam tuam : * qui corónat te in misericórdia et miseratiónibus.
+
+Qui replet in bonis desidérium tuum : * renovábitur ut áquilæ juvéntus tua :
+
+Fáciens misericórdias Dóminus : * et judícium ómnibus injúriam patiéntibus.
+
+Notas fecit vias suas Móysi, * fíliis Israël voluntátes suas.
+
+Miserátor, et miséricors Dóminus : * longánimis, et multum miséricors.
+
+Non in perpétuum irascétur : * neque in ætérnum comminábitur.
+
+Non secúndum peccáta nostra fecit nobis : * neque secúndum iniquitátes nostras retríbuit nobis.
+
+Quóniam secúndum altitúdinem cæli a terra : * corroborávit misericórdiam suam super timéntes se.
+
+Quantum distat ortus ab occidénte : * longe fecit a nobis iniquitátes nostras.
+
+Quómodo miserétur pater filiórum, misértus est Dóminus timéntibus se : * quóniam ipse cognóvit figméntum nostrum.
+
+Recordátus est quóniam pulvis sumus : * homo, sicut fœnum dies ejus, tamquam flos agri sic efflorébit.
+
+Quóniam spíritus pertransíbit in illo, et non subsístet : * et non cognóscet ámplius locum suum.
+
+Misericórdia autem Dómini ab ætérno, * et usque in ætérnum super timéntes eum.
+
+Et justítia illíus in fílios filiórum, * his qui servant testaméntum ejus :
+
+Et mémores sunt mandatórum ipsíus, * ad faciéndum ea.
+
+Dóminus in cælo parávit sedem suam : * et regnum ipsíus ómnibus dominábitur.
+
+Benedícite Dómino, omnes Angeli ejus : * poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+Benedícite Dómino, omnes virtútes ejus : * minístri ejus, qui fácitis voluntátem ejus.
+
+Benedícite Dómino, ómnia ópera ejus * in omni loco dominatiónis ejus, bénedic, ánima mea, Dómino.
+
+**Ant.** Benedícite Dómino, omnes Angeli ejus, poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 18, 1-10*
+
+IN illo témpore : Accessérunt discípuli ad Jesum, dicéntes : Quis, putas, major est in regno cælórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+*Comment. in Matth. can. 18, post initium*
+
+OMnisi revérsos in natúram puerórum introíre regnum cælórum Dóminus docet : id est, per simplicitátem puerílem vítia córporum nostrórum animǽque revocánda. Púeros autem, credéntes omnes per audiéntiæ fidem nuncupávit. Hi enim patrem sequúntur, matrem amant, próximo velle malum nésciunt, curam opum néglígunt; non insoléscunt, non odérunt, non mentiúntur, dictis credunt, et quod áudiunt, verum habent. Reverténdum ígitur est ad simplicitátem infántium; quia, in ea collocáti, spéciem humilitátis Domínicæ circumferémus.
+
+℟. Machabǽus et qui cum eo erant cognovérunt expugnári præsídia; \* Cum fletu et lácrimis rogábant Dóminum et omnis turba simul, ut bonum Angelum mítteret ad salútem Israël. ℣. Cum páriter prompto ánimo procéderent, Jerosólymis appáruit præcédens eos eques in veste cándida. — Cum fletu.
+
+**Bened.** Quorum festum.
+
+{RUBRIC: Si dicenda sit ix Lectio alicujus Officii commemorati, ex viii et ix Lectione fit una.}
+
+##### Lectio viii
+
+VÆ huic mundo ab scándalis. Humílitas passiónis scándalum mundo est. In hoc enim máxime ignorántia detinétur humána, quod sub deformitáte crucis, ætérnæ glóriæ Dóminum nóluit accípere. Et quid mundo tam periculósum, quam non recepísse Christum? Ideo vero necésse esse ait veníre scándala; quia, ad sacraméntum reddéndæ nobis æternitátis, omnis in eo passiónis humílitas esset explénda.
+
+℟. Tu, Dómine, qui misísti Angelum tuum sub Ezechía rege Juda et interfecísti de castris Sennácherib centum octogínta quinque míllia, \* Et nunc, Dominátor cælórum, mitte Angelum tuum bonum ante nos, in timóre et tremóre magnitúdinis bráchii tui. ℣. Ut métuant qui cum blasphémia véniunt advérsus sanctum pópulum tuum. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+VIdéte ne contemnátis unum de pusíllis istis, qui credunt in me. Aptíssimum vínculum mútui amóris impósuit, ad eos præcípue qui vere in Dómino credidíssent. Pusillórum enim Angeli quotídie Deum vident : quia Fílius hóminis venit salváre quæ pérdita sunt. Ergo et Fílius hóminis salvat, et Deum Angeli vident, et Angeli pusillórum præsunt fidélium oratiónibus. Præésse Angelos absolúta auctóritas est. Salvatórum ígitur per Christum oratiónes Angeli quotídie Deo offérunt. Ergo periculóse ille contémnitur, cujus desidéria ac postulatiónes ad ætérnum et invisíbilem Deum, ambitióso Angelórum famulátu ac ministério, pervehúntur.
+
+**Te Deum laudámus.**

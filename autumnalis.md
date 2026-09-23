@@ -18912,3 +18912,155 @@ ADúlta ætáte, jam clericáli milítiæ adscríptus et canónicus factus, cum 
 ##### Lectio vi
 
 ORándi assíduum stúdium, quamvis sátanæ insídiis várie vexátus et flagéllis intérdum cǽsus, non intermittébat. Demum, sex ante óbitum ménsibus, síngulis nóctibus angélicum concéntum audívit; cujus suavitáte cum jam paradísi gáudia prægustáret, crebro illud Apóstoli repetébat : Cúpio dissólvi, et esse cum Christo. Dénique óbitus sui diem frátribus prædíxit, qui fuit quarto Idus Septémbris. Miráculis multis étiam post mortem cláruit; quibus rite et órdine cógnitis, ab Eugénio Papa quarto in Sanctórum número est relátus.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+NIcoláus, Tolentínas a diutúrno illíus civitátis domicílio appellátus, in óppido sancti Angeli in Picéno natus est piis paréntibus, qui illum ex voto, sancti Nicolái intercessióne, a Deo impetrárunt. Puer, multárum virtútum, abstinéntiæ in primis, spécimen dedit. Clericáli milítiæ dein adscríptus et canónicus factus, cum quodam die concionatórem órdinis Eremitárum sancti Augustíni de mundi contémptu dicéntem audísset, eo sermóne inflammátus, statim eúmdem órdinem est ingréssus; in quo tam exáctam religiósæ vitæ ratiónem cóluit, ut jejúnio, rudi vestítu, verbéribus et áspera caténa corpus domáret, atque ómnibus áliis virtútibus prælucéret. Orándi assíduum stúdium, quamvis sátanæ insídiis várie vexátus et flagéllis intérdum cǽsus, non intermittébat. Sex ante óbitum ménsibus síngulis nóctibus angélicum concéntum audívit, et tandem, óbitus die prænuntiáto, obdormívit in Dómino. Miráculis in vita et post mortem clarus, ab Eugénio quarto in Sanctórum número relátus est.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Nolíte timére, de Comm. Conf. non Pont. 2 loco. [105]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+*C 2*
+
+ADésto, Dómine, supplicatiónibus nostris, quas in beáti Nicolái Confessóris tui solemnitáte defférimus : ut, qui nostræ justítiæ fidúciam non habémus, ejus qui tibi plácuit, précibus adjuvémur. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commemoratio sequéntis.}
+
+---
+
+### Die 11 Septembris — Ss. Proti et Hyacinthi
+
+{RUBRIC: Martyrum [49] Simplex}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+BEatórum Mártyrum tuórum Proti et Hyacínthi nos, Dómine, fóveat pretiósa conféssio : et pia júgiter intercéssio tueátur. Per Dóminum.
+
+##### Lectio iii
+
+PRotus et Hyacínthus fratres, beátæ Eugéniæ Vírginis eunúchi, una cum illa ab Héleno epíscopo baptizáti, ac stúdiis déditi divinárum litterárum, aliquámdiu in Ægýpto inter ascétas mira humilitáte et vitæ sanctitáte vixérunt. Sed póstea, sanctam Vírginem Eugéniam Romam prosecúti, Galliéno imperatóre, in Urbe propter christiánæ fídei professiónem comprehénsi sunt. A quibus cum nullo modo impetrári posset ut, christiánam religiónem deseréntes, deos cólerent, acérbis verbéribus cæsi, secúri feriúntur tértio Idus Septémbris.
+
+**Te Deum laudámus.**
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+### Die 12 Septembris — Ssmi Nominis Mariæ
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Festórum B. Maríæ Virg. [174], præter ea quæ hic habéntur própria.}
+
+#### IN I VESPERIS
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Sancta María, \* succúrre míseris, juva pusillánimes, réfove flébiles, ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu : séntiant omnes tuum juvámen, quicúmque célebrant tui sancti nóminis commemoratiónem.
+
+**Oratio**
+
+COncéde quǽsumus, omnípotens Deus : ut fidéles tui, qui sub sanctíssimæ Vírginis Maríæ Nómine et protectióne lætántur; ejus pia intercessióne a cunctis malis liberéntur in terris, et ad gáudia ætérna pervenire mereántur in cælis. Per Dóminum.
+
+#### In II Nocturno
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis}
+*Homilía 2 super Missus est, circa finem*
+
+##### Lectio iv
+
+ET nomen, inquit, Vírginis María. Loquámur pauca, et super hoc nómine, quod interpretátum maris stella dícitur, et Matri Vírgini valde conveniénter aptátur. Ipsa namque aptíssime síderi comparátur, quia sicut sine sui corruptióne sidus suum emíttit rádium, sic absque sui læsióne Virgo parturívit Fílium. Nec síderi rádius suam mínuit claritátem, nec Vírgini Fílius suam integritátem. Ipsa est ígitur nóbilis illa stella ex Jacob orta, cujus rádius univérsum orbem illúminat, cujus splendor et præfúlget in supérnis, et ínferos pénetrat; terras étiam perlústrans, et calefáciens magis mentes quam córpora, fovet virtútes, excóquit vítia. Ipsa, inquam, est præclára et exímia stella super hoc mare magnum et spatiósum necessário subleváta, micans méritis, illústrans exémplis.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion : quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+##### Lectio v
+
+OQuisquis te intélligis in hujus sǽculi profúvio magis inter procéllas et tempestátes fluctuáre, quam per terram ambuláre; ne avértas óculos a fulgóre hujus síderis, si non vis óbrui procéllis. Si insúrgant venti tentatiónum, si incúrras scópulos tribulatiónum, réspice stellam, voca Maríam. Si jactáris supérbiæ undis, si ambitiónis, si detractiónis, si æmulatiónis, réspice stellam, voca Maríam. Si iracúndia aut avarítia aut carnis illécebra navículam concússerit mentis, réspice ad Maríam. Si críminum immanitáte turbátus, consciéntiæ fœditáte confúsus, judícii horróre pertérritus, bárathro incípias absorbéri tristítiæ, desperatiónis abýsso, cógita Maríam.
+
+℟. Quæ est ista quæ procéssit tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt.
+
+##### Lectio vi
+
+IN perículis, in angústiis, in rebus dúbiis Maríam cógita, Maríam ínvoca. Non recédat ab ore, non recédat a corde; et, ut ímpetres ejus oratiónis suffrágium, non déseras conversatiónis exémplum. Ipsam sequens, non dévias; ipsam rogans, non despéras; ipsam cógitans, non erras; ipsa tenénte, non córruis; ipsa protegénte, non métuis; ipsa duce, non fatigáris; ipsa propítia, pervénis : et sic in temetípso experíris quam mérito dictum sit : Et nomen Vírginis María. — Quod quidem venerábile nomen, jampridem in quibúsdam christiáni orbis pártibus speciáli ritu cultum, Innocéntius undécimus Románus Póntifex, ob insígnem victóriam sub ejúsdem Vírginis Maríæ præsídio de immaníssimo Turcárum týranno, cervícibus pópuli christiáni insultánti, Viénnæ in Austria partam, et in perénne tanti benefícii monuméntum, in Ecclésia universáli síngulis annis celebrári præcépit.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit : \* Et vidéntes eam fíliæ Sion, beatíssimam prǽdicavérunt, dicéntes : \* Unguéntum effúsum nomen tuum. ℣. Astitit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et. Glória. Unguéntum.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+VEnerábile Vírginis Maríæ nomen, quod interpretátum maris stella dícitur, Matri Vírgini valde conveniénter aptátur. Ipsa namque aptíssime síderi comparátur, quia, sicut sine sui corruptióne sidus suum emíttit rádium, sic absque sui læsióne Virgo parturívit Fílium. Nec síderi rádius suam mínuit claritátem, nec Vírgini Fílius suam integritátem. Ipsa est ígitur nóbilis illa stella ex Jacob orta, super hoc mare magnum et spatiósum necessário subleváta, micans méritis, illústrans exémplis. O quisquis te intélligis in hujus sǽculi profúvio magis inter procéllas et tempestátes fluctuáre quam per terram ambuláre, ne avértas óculos a fulgóre hujus síderis. Maríam cógita, Maríam ínvoca, ut sic in temetípso experiáris quam mérito dictum sit : Et nomen Vírginis María. — Quod quidem dulcíssimum nomen, jampridem in quibúsdam christiáni orbis pártibus speciáli ritu cultum, Innocéntius undécimus Románus Póntifex, ob insígnem victóriam de immaníssimo Turcárum tyránno, cervícibus pópuli christiáni insultánti, Viénnæ in Austria partam, et in perénne tanti benefícii monuméntum, in Ecclésia universáli síngulis annis celebrári præcépit.
+
+**Te Deum.**
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio vii
+*Cap. 1, 26-38*
+
+IN illo témpore : Missus est Angelus Gábriel a Deo in civitátem Galilǽæ, cui nomen Názareth, ad Vírginem desponsátam viro, cui nomen erat Joseph, de domo David, et nomen Vírginis María. Et réliqua.
+
+{RUBRIC: Homilía sancti Petri Chrysólogi}
+*Sermo 142, de Annuntiatione*
+
+AUdístis hódie, fratres caríssimi, Angelum cum mulíere de hóminis reparatióne tractántem. Audístis agi, ut homo cúrsibus eísdem, quibus dilápsus fúerat ad mortem, rediret ad vitam. Agit, agit cum María Angelus de salúte, quia cum Heva ángelus égerat de ruína. Audístis Angelum de carnis nostræ limo templum divínæ majestátis arte ineffábili construéntem. Audístis in terris Deum, in cælis hóminem sacraménto incomprehensíbili collocári. Audístis inaudíta ratióne in uno córpore Deum hóminémque miscéri. Audístis frágilem nostræ carnis natúram ad portándam totam Deitátis glóriam angélica exhortatióne roborári.
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima : \* Quia ex te ortus est sol justítiæ, Christus Deus noster. ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu : séntiant omnes tuum juvámen, quicúmque célebrant tui sancti nóminis commemoratiónem. — Quia.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+##### Lectio viii
+
+DEnique, ne tanto póndere cæléstis fábricæ in María subtílis nostri córporis aréna succúmberet, et in Vírgine totíus géneris humáni portatúra fructum, virga ténuis frangerétur; fugatúra metum vox Angeli mox præcéssit, dicens : Ne tímeas, María. Ante causam dígnitas Vírginis annuntiátur ex nómine; nam María Hebrǽo sermóne, Latíne Dómina nuncupátur. Vocat ergo Angelus Dóminam, ut Dominatóris Genitrícem trepidátio déserat servitútis, quam nasci et vocári Dóminam ipsa sui Gérminis fecit et impetrávit auctóritas. Ne tímeas, María, invenísti enim grátiam. Verum est, quia, qui invénit grátiam, nescit timére : Invenísti grátiam.
+
+℟. Beátam me dicent omnes generatiónes : \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia. Glória Patri. Quia.
+
+##### Lectio ix
+
+BEáta, quæ inter hómines audíre sola méruit præ ómnibus : Invenísti grátiam. Quantam? Quantam supérius díxerat : plenam. Et vere plenam, quæ largo imbre totam fúnderet et infúnderet creatúram : Invenísti enim grátiam apud Deum. Hæc cum dicit, et ipse Angelus mirátur, aut féminam tantum, aut omnes hómines vitam meruísse per féminam : stupet Angelus totum Deum veníre intra virgináles úteri angústias, cui tota simul angústa est creatúra. Hinc est quod remorátur Angelus, hinc est quod vírginem vocat de mérito, de grátia compéllat, vix causam prodit audiénti, sane ut sensum promóveat, vix longa trepidatióne compónit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Beáta es, \* María, quæ credidísti : perficiéntur in te, quæ dicta sunt tibi a Dómino, allelúja.
+
+**Oratio**
+
+COncéde quǽsumus, omnípotens Deus : ut fidéles tui, qui sub sanctíssimæ Vírginis Maríæ Nómine et protectióne lætántur; ejus pia intercessióne, a cunctis malis liberéntur in terris, et ad gáudia ætérna pervenire mereántur in cælis. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Dignáre me laudáre te.
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus.

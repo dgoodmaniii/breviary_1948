@@ -39274,4 +39274,54 @@ QUare de vulva eduxísti me? qui útinam consúmptus essem ne óculus me vidére
 
 ℣. Requiéscant in pace. ℟. Amen.
 
-{RUBRIC: Laudes vero, dictis secréto Pater noster et Ave María,}
+{RUBRIC: Laudes vero, dictis secréto Pater noster et Ave María, absolúte inchoántur ab Antíphona Exsultábunt Dómino.}
+
+{RUBRIC: Sed in recitatióne públicā vel privátā, si Laudes omníno omittántur, post últimum Responsórium dicúntur Preces, ut infra ad Laudes. [226]}
+
+#### AD LAUDES
+
+{RUBRIC: Absolúte incípitur ab}
+
+**Ant.** Exsultábunt Dómino \* ossa humiliáta.
+
+###### Psalmus 50
+
+MIserére mei, Deus, \* secúndum magnam misericórdiam tuam.
+
+Et secúndum multitúdinem miseratiónum tuárum, \* dele iniquitátem meam.
+
+Amplius lava me ab iniquitáte mea : \* et a peccáto meo munda me.
+
+Quóniam iniquitátem meam ego cognósco : \* et peccátum meum contra me est semper.
+
+Tibi soli peccávi, et malum coram te feci : \* ut justificéris in sermónibus tuis, et vincas cum judicáris.
+
+Ecce enim in iniquitátibus concéptus sum : \* et in peccátis concépit me mater mea.
+
+Ecce enim veritátem dilexísti : \* incérta et occúlta sapiéntiæ tuæ manifestásti mihi.
+
+Aspérges me hyssópo, et mundábor : \* lavábis me, et super nivem dealbábor.
+
+Audítui meo dabis gáudium et lætítiam : \* et exsultábunt ossa humiliáta.
+
+Avérte fáciem tuam a peccátis meis : \* et omnes iniquitátes meas dele.
+
+Cor mundum crea in me, Deus : \* et spíritum rectum ínnova in viscéribus meis.
+
+Ne projícias me a fácie tua : \* et spíritum sanctum tuum ne áuferas a me.
+
+Redde mihi lætítiam salutáris tui : \* et spíritu principáli confírma me.
+
+Docébo iníquos vias tuas : \* et ímpii ad te converténtur.
+
+Líbera me de sanguínibus, Deus, Deus salútis meæ : \* et exsultábit lingua mea justítiam tuam.
+
+Dómine, lábia mea apéries : \* et os meum annuntiábit laudem tuam.
+
+Quóniam si voluísses sacrifícium, dedíssem útique : \* holocáustis non delectáberis.
+
+Sacrifícium Deo spíritus contribulátus : \* cor contrítum, et humiliátum, Deus, non despícies.
+
+Benígne fac, Dómine, in bona voluntáte tua Sion : \* ut ædificéntur muri Jerúsalem.
+
+Tunc acceptábis sacrifícium justítiæ, oblatiónes, et holocáusta : \* tunc im-

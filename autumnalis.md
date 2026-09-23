@@ -37978,3 +37978,70 @@ Cui luna, sol et ómnia
 Desérviunt per témpora,
 Perfúsa cæli grátia,
 Gestant puéllæ víscera.
+
+Beáta Mater múnere,
+Cujus, supérnus Artifex
+Mundum pugíllo cóntinens,
+Ventris sub arca clausus est.
+
+Beáta cæli núntio,
+Fecúnda Sancto Spíritu,
+Desiderátus géntibus
+Cujus per alvum fusus est.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+{RUBRIC: In Nocturno Antiphonæ, Psalmi et Versus de Sábbato. 241}
+
+{RUBRIC: Deínde Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+**Absolutio**
+
+PRécibus et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne.
+
+{RUBRIC: Pro I Lect. Bened.} Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+{RUBRIC: Lectio I et II dicúntur de Scriptúra occurrénti, cum suis Responsóriis de Témpore; Lectio vero III erit una ex inférius [193]-[194] pósitis, juxta órdinem ménsium.}
+
+{RUBRIC: Pro II Lect. Bened.} Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+{RUBRIC: Pro III Lect. Bened.} Per Vírginem matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
+
+{RUBRIC: Post III Lectiónem dícitur Hymnus Te Deum.}
+
+#### AD LAUDES
+
+{RUBRIC: Antiphónæ cum Psalmis de Sábbato I loco. 248}
+
+**Capitulum** *Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sæculum non désinam, et in habitatióne sancta coram ipso minístrávi.
+
+**Hymnus**
+
+O Gloriósa vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine :
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida :
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.

@@ -24990,3 +24990,201 @@ ANgeli condescéndunt nobis, eripiéndo nos a culpa; unde in Tobía, postquam fl
 ### In III Nocturno
 
 **Ant.** Est hic Sara \* Raguélis fília; quæ tibi conjúgio dábitur, et omnis substántia ejus.
+
+**Psalmus 95**
+
+CAntáte Dómino cánticum novum : \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus : \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis : \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia : \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus : \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem : \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus : \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra : \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur : \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+**Ant.** Est hic Sara Raguélis fília; quæ tibi conjúgio dábitur, et omnis substántia ejus.
+
+**Ant.** Septem viros hábuit, \* quos dæmónium oppréssit; tímeo ne mihi símile contíngat.
+
+**Psalmus 96**
+
+DOminus regnávit, exsúltet terra : \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Septem viros hábuit, quos dæmónium oppréssit; tímeo ne mihi símile contíngat.
+
+**Ant.** Per tres dies \* oratióni cum uxóre tua vacábis, ut in sémine Abrahæ benedictiónem in fíliis consequáris.
+
+**Psalmus 102**
+
+BEnedic, ánima mea, Dómino : \* et ómnia, quæ intra me sunt, nómini sancto ejus.
+
+Bénedic, ánima mea, Dómino : \* et noli oblivísci omnes retributiónes ejus.
+
+Qui propitiátur ómnibus iniquitátibus tuis : \* qui sanat omnes infirmitátes tuas.
+
+Qui rédimit de intéritu vitam tuam : \* qui corónat te in misericórdia et miseratiónibus.
+
+Qui replet in bonis desidérium tuum : \* renovábitur ut áquilæ juvéntus tua :
+
+Fáciens misericórdias Dóminus : \* et judícium ómnibus injúriam patiéntibus.
+
+Notas fecit vias suas Móysi, \* fíliis Israël voluntátes suas.
+
+Miserátor, et miséricors Dóminus : \* longánimis, et multum miséricors.
+
+Non in perpétuum irascétur : \* neque in ætérnum comminábitur.
+
+Non secúndum peccáta nostra fecit nobis : \* neque secúndum iniquitátes nostras retríbuit nobis.
+
+Quóniam secúndum altitúdinem cæli a terra : \* corroborávit misericórdiam suam super timéntes se.
+
+Quantum distat ortus ab occidénte : \* longe fecit a nobis iniquitátes nostras.
+
+Quómodo miserétur pater filiórum, misértus est Dóminus timéntibus se : \* quóniam ipse cognóvit figméntum nostrum.
+
+Recordátus est quóniam pulvis sumus : \* homo, sicut fœnum dies ejus, tamquam flos agri sic efflorébit.
+
+Quóniam spíritus pertransíbit in illo, et non subsístet : \* et non cognóscet ámplius locum suum.
+
+Misericórdia autem Dómini ab ætérno, \* et usque in ætérnum super timéntes eum.
+
+Et justítia illíus in fílios filiórum, \* his qui servant testaméntum ejus :
+
+Et mémores sunt mandatórum ipsíus, \* ad faciéndum ea.
+
+Dóminus in cælo parávit sedem suam : \* et regnum ipsíus ómnibus dominábitur.
+
+Benedícite Dómino, omnes Angeli ejus : \* poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+Benedícite Dómino, omnes virtútes ejus : \* minístri ejus, qui fácitis voluntátem ejus.
+
+Benedícite Dómino, ómnia ópera ejus : \* in omni loco dominatiónis ejus, bénedic, ánima mea, Dómino.
+
+**Ant.** Per tres dies oratióni cum uxóre tua vacábis, ut in sémine Abrahæ benedictiónem in fíliis consequáris.
+
+℣. Apprehéndit Angelus Ráphaël dæmónium. ℟. Et religávit illud in desérto superióris Ægýpti.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+*Cap. 5, 1-4*
+
+IN illo témpore : Erat dies festus Judæórum, et ascéndit Jesus Jerosólymam. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi (Homilía 39, álias 35, in Joánnem num. 1)}
+
+QUis hic curatiónis modus? quale mystérium subindicátur? Neque enim sine causa hæc scripta sunt; sed futúra nobis quasi in figúra et imágine descríbit, ne, si res stupénda accíderet inexspectáta, auditórum multórum fidem aliquátenus labefactáret. Quænam ígitur hæc descríptio? Futúrum baptísma dandum erat, plenum virtúte et grátia máxima, baptísma quod peccáta ómnia ablúeret, quod ex mórtuis vivos rédderet. Hæc ergo ut in imágine depingúntur in piscína et in áliis multis. Et primo quidem aquam dedit, quæ córporum máculas ablúeret, sordésque non veras, sed tales existimátas, ex fúnere nempe, ex lepra, et símiles; múltaque vidére est eádem de causa in véteri lege per aquam mundáta.
+
+℟. Benedícite Deum cæli, dixit Angelus Ráphaël, et coram ómnibus vivéntibus confitémini ei : \* Quia fecit vobíscum misericórdiam suam. ℣. Ipsum benedícite, et cantáte illi, et narráte ómnia mirabília ejus. — Quia.
+
+##### Lectio viii
+
+SEd ad propósitum jam redeámus. Primo itaque, ut díximus, córporum máculas, deínde várias infirmitátes per aquam solvi curat. Ut enim nos Deus ad baptísmi grátiam própius redúceret, non jam máculas solum, sed et morbos sanat. Imágines enim quæ própius ad veritátem accédunt, et in baptísmate, et in passióne, et in áliis magis conspícuæ sunt quam vetustióres. Quemádmodum enim qui prope regem sunt satéllites, remotióribus sunt honoratióres; ita et in figúris factum est. Et Angelus descéndens turbábat aquam, et sanándi vim indébat ipsi, ut díscerent Judǽi, Angelórum Dóminum multo magis posse ánimæ morbos omnes curáre. Sed, quemádmodum hic aquárum natúra non simplíciter curábat (alióquin enim semper id fáceret), sed Angeli operatióne id fiébat; sic in nobis non aqua simplíciter operátur, sed, postquam Spíritus grátiam accéperit, tunc ómnia solvit peccáta.
+
+℟. Tempus est ut revértar ad eum, qui me misit, dixit Angelus Ráphaël; \* Vos autem benedícite Dóminum, et narráte ómnia mirabília ejus. ℣. Confitémini ei coram ómnibus vivéntibus, quia fecit vobíscum misericórdiam suam. — Vos. Glória Patri. Vos.
+
+##### Lectio ix
+
+CIrca hanc piscínam jacébat multitúdo magna infirmórum, cæcórum, claudórum, aridórum, aquæ motum exspectántium. Sed tunc infírmitas impediménto erat quóminus is qui vellet, sanarétur; nunc autem unusquísque potestátem accedéndi habet. Non enim Angelus est qui aquam movet, sed Angelórum Dóminus ómnia éfficit. Nec dícere póssumus : Dum ego accédo, álius ante me descéndit. Sed, si totus orbis vénerit, grátia non consúmitur, neque vis vel operátio déficit, sed semper éadem manet. Ac, quemádmodum soláres rádii quotídie illúminant, nec absumúntur, neque, quod multis subministréntur, lucis quidpiam amíttunt; sic, immo multo minus, Spíritus operátio minúitur a multitúdine accipiéntium. Hoc autem factum est ut qui díscerent in aqua curándos esse córporis morbos, et hac in re diu exercitáti essent, facílius créderent étiam morbos ánimi posse curári.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Missus est \* Angelus Ráphael ad Tobíam et Saram, ut curáret eos.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Ingréssus Angelus \* ad Tobíam, salutávit eum, et dixit : Gáudium sit tibi semper.
+
+**Ant. 3** Forti ánimo \* esto, Tobía : in próximo enim est ut a Deo curéris.
+
+**Ant. 4** Benedícite Deum cæli, \* et coram ómnibus vivéntibus confitémini illi, quia fecit vobíscum misericórdiam suam.
+
+**Ant. 5** Pax vobis, \* nolíte timére : Deum benedícite, et cantáte illi.
+
+**Capitulum**
+*Tob. 12, 12*
+
+QUando orábas cum lácrimis, et sepeliébas mórtuos, et derelinquébas prándium tuum, et mórtuos abscondébas per diem in domo tua, et nocte sepeliébas eos, ego óbtuli oratiónem tuam Dómino.
+
+**Hymnus**
+
+PLacáre, Christe, sérvulis,
+Quibus Patris cleméntiam
+Tuæ ad tribúnal grátiæ
+Patróna Virgo póstulat.
+
+Nobis adésto, Archángele,
+Dei medélam dénotans :
+Morbos repélle córporum,
+Affer salútem méntibus.
+
+Et vos, beáta per novem
+Distíncta gyros ágmina,
+Antíqua cum præséntibus
+Futúra damna péllite.
+
+Auférte gentem pérfidam
+Credéntium de fínibus,
+Ut unus omnes únicum
+Ovíle nos pastor regat.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Deo Patri sit glória,
+Qui, quos redémit Fílius,
+Et Sanctus unxit Spíritus,
+Per Angelos custódiat.
+Amen.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+**Ad Bened. Ant.** Ego sum Ráphaël Angelus, \* qui asto ante Dóminum : vos autem benedícite Deum, et narráte ómnia mirabília ejus, allelúja.
+
+**Oratio**
+
+DEus, qui beátum Ráphaélem Archángelum Tobíæ fámulo tuo cómitem dedísti in via : concéde nobis fámulis tuis; ut ejúsdem semper protegámur custódia et muniámur auxílio. Per Dóminum.

@@ -30940,4 +30940,39 @@ NIhil autem profíciénte Rufína, quæ, præter dolósa verba, illam quotídie 
 
 ##### Lectio ix
 
-BIbiána virgo Romána, nóbili génere nata, christiána fide nobílior fuit. Ejus enim paréntes Flaviánus et Dafrósa, sub Juliáno Apóstata martýrium subiérunt. Tum Bibiána ejúsque soror Demétria, bonis ómnibus exspoliátæ et ab Aproniáno Urbis prætóre, blandítiis et minis tentátæ, ut a recta fide declinárent, prætóris impietátem constantíssime detestátæ sunt. Quo in agóne Demétria, ob óculos Bibiánæ repénte córruens, óbiit in Dómino.
+BIbiána virgo Romána, nóbili génere nata, christiána fide nobílior fuit. Ejus enim paréntes Flaviánus et Dafrósa, sub Juliáno Apóstata martýrium subiérunt. Tum Bibiána ejúsque soror Demétria, bonis ómnibus exspoliátæ et ab Aproniáno Urbis prætóre, blandítiis et minis tentátæ, ut a recta fide declinárent, prætóris impietátem constantíssime detestátæ sunt. Quo in agóne Demétria, ob óculos Bibiánæ repénte córruens, óbiit in Dómino. Bibiána autem Rufínæ mulíeri vaférrimæ seducénda tráditur; sed, ejus superátis insídiis, prætóris astus delúsit. Quare hujus jussu plumbátis cæsa est, donec ánimam efflávit. Ejus sacrum corpus, bíduo cánibus objéctum, illæsum tamen divínitus servátum, Joánnes presbýter sepelívit noctu juxta sepúlcrum soróris et matris ad palátium Liciniánum, ubi nunc exstat ecclésia Deo, sanctæ Bibiánæ nómine, dicáta.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est regnum cælórum thesáuro abscóndito, ut in Communi non Vírginum cum Responsóriis de Communi Vírginum ibi notátis. [134]}
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quæránti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio**
+
+DEus, ómnium largítor bonórum, qui in fámula tua Bibiána cum virginitátis flore martýrii palmam conjunxísti : mentes nostras ejus intercessióne tibi caritáte conjúnge; ut, amótis perículis, præmia consequámur ætérna. Per Dóminum.
+
+---
+
+# Commune Sanctorum
+
+In ómnibus Festis novem Lectiónum Apostolórum vel Evangelistárum, in Duplícibus I et II classis aliórum Sanctórum, in Dedicatióne Ecclésiæ, in Festis beátæ Maríæ Vírginis, non autem per eórum Octávas, Offícium íntegrum, præter ea quæ suis locis própria assignántur, dícitur de respectívo Communi, ut infra.
+
+In réliquis Sanctórum Festis, in Octávis non privilegiátis quibúslibet et in Offício sanctæ Maríæ in Sábbato, præter ea quæ páriter suis locis assignántur própria, Antíphonæ et Psalmi ad omnes Horas et Versus Nocturnórum sumúntur de occurrénti hebdómadæ die; Lectiónes I Nocturni aut Lectio I et II cum suis Responsóriis dicúntur de Scriptúra occurrénti, juxta Rúbricas; réliqua ómnia de respectívo Communi, ut infra, vel, in Octávis, ut in die Festo.
+
+## In Vigiliis Apostolorum
+
+{RUBRIC: Offícium fit de Feria, ut in Ordinário et Psaltério, præter Lectiónes et Oratiónem, quæ, nisi própria suis locis assignéntur, dicúntur ut infra, cum Responsóriis tamen de Feria currénti, ut in Proprio de Témpore.}
+
+{RUBRIC: Ad Nocturnum vero in Feria IV tres última Antíphonæ cum suis Psalmis, et ad Laudes in qualíbet Feria Antíphonæ omnes et Psalmi sumúntur de 2 loco; ad Primam addítur quartus Psalmus, ut in Psaltério notátur, et ad omnes Horas dicúntur Preces feriáles, ut in Ordinário.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio i
+*Cap. 15, 12-16*
+
+IN illo témpore : Dixit Jesus discípulis suis : Hoc est præcéptum meum, ut díligátis ínvicem, sicut diléxi vos. Et réliqua.

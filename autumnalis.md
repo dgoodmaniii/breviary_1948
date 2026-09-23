@@ -34259,3 +34259,34 @@ ET ignorántiam illam diéi ómnibus táciti non sine útilis siléntii ratióne
 QUisnam est fidélis servus et prudens, quem constítuit Dóminus super famíliam suam? Quamquam in commúne nos ad indeféssam vigilántiæ curam adhortétur, speciálem tamen pópuli princípibus, id est, epíscopis, in exspectatióne adventúque suo sollicitúdinem mandat. Hunc enim servum fidélem atque prudéntem, præpósitum famíliæ signíficat, commóda atque utilitátes commíssi sibi pópuli curántem. Qui, si dicto áudiens et præcéptis obédiens erit, id est, si doctrínæ opportunitáte et veritáte infírma confírmet, disrúpta consólidet, depraváta convértat et verbum vitæ in æternitátis cibum alénda famíliæ dispéndat, atque hæc agens hisque ímmorans deprehendátur; glóriam a Dómino tamquam dispensátor fidélis et víllicus útilis consequétur, et super ómnia bona constituétur, id est, in Dei glória collocábitur, quia nihil sit ultra, quod mélius sit.
 
 ℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. **Glória Patri.** Et.
+
+#### Lectio ix
+
+QUod si cóntuens longam Dei patiéntiam, quæ in proféctum humánæ salútis exténditur, advérsum consérvos insoléscet, et sæculi malis vitiísque se tradet, præséntium tantum curam in cultu ventris exércens; desperáta die Dóminus advéniet, eúmque a bonis quæ spopónderat dívidet, portionémque ejus cum hypócritis in pœnæ æternitáte constítuet : quia advéntum desperáverit, quia mandátis non obtemperáverit, quia præséntibus studúerit, quia vita géntium víxerit, quia desperatióne judícii commíssam sibi famíliam fame, siti, cæde vexáverit.
+
+**Te Deum laudámus.**
+
+---
+
+# Commune Doctorum
+
+{RUBRIC: Omnia de Communi Confessóris aut Pontíficis [69] aut non Pontíficis [94], juxta qualitátem Festi, præter sequéntia :}
+
+**Ad Magnif. in utrisque Vesp. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte N., divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+**Oratio**
+
+DEus, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti : præsta, quæsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Si vero agénda sit Commemorátio altérius Doctóris, Antíphona in utrísque Vésperis et Orátio sumúntur de respectívo Communi Confessóris aut Pontíficis aut non Pontíficis, pro qualitáte Festi.}
+
+### In I Nocturno
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+*Cap. 39, 1-14*
+
+SApiéntiam ómnium antiquórum exquíret sápiens, et in prophétis vacábit. Narratiónem virórum nominatórum conservábit, et in versútias parabolárum simul introíbit. Occúlta provérbiórum exquíret, et in abscónditis parabolárum conversábitur. In médio magnatórum ministrábit, et in conspéctu præsídis apparébit. In terram alienigenárum géntium pertránsiet; bona enim et mala in homínibus tentábit.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam : \* Intra in gáudium Dómini tui.

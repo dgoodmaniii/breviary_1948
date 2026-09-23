@@ -29052,4 +29052,56 @@ ILluc Constantínus Magnus imperátor octávo die post suscéptum baptísmum ven
 
 ##### Lectio vi
 
-POrro Vaticánam basílicam, vetustáte jamprídem collabéntem, ac proptérea multórum Pontíficum pietáte látius ac magnificéntius a fundaméntis eréctam, Urbánus octávus, hac eádem recurrénte die anni millésimi sexcentésimi vigésimi sexti, solémni ritu consecrávit.
+POrro Vaticánam basílicam, vetustáte jamprídem collabéntem, ac proptérea multórum Pontíficum pietáte látius ac magnificéntius a fundaméntis eréctam, Urbánus octávus, hac eádem recurrénte die anni millésimi sexcentésimi vigésimi sexti, solémni ritu consecrávit. Basílicam vero Ostiénsem, quam dira incéndii vis anno millésimo octingentésimo vigésimo tértio pénitus consumpsísset, indeféssa quátuor Pontíficum cura splendídius quam ántea eréctam, et ab intéritu véluti vindicátam, Pius nonus, auspicatíssimam nactus occasiónem qua dogma de immaculáta beátæ Maríæ Vírginis Conceptióne, nuper ab ipso proclamátum, ingéntem cardinálium et episcopórum númerum ex díssitis étiam cathólici orbis regiónibus Romam attráxerat; die décima Decémbris anni millésimi octingentésimi quinquagésimi quarti, tanta circúmdatus purpuratórum patrum et antístitum coróna, solémniter dedicávit, ejúsque celebritátis memóriam hac die recoléndam decrévit.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nesciébam. ℣. Cumque evigilásset Jacob de somno, ait. — Vere. Glória Patri. Vere.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+EX locis sacris, quæ ab inítio apud Christiános veneratiónem habuérunt, insígnis semper hábita est Conféssio sancti Petri in Vaticánis, Príncipis Apostolórum sepúlcro consecráta. Illuc Constantínus Magnus perrexísse tráditur, et sumpto ligóne ac bidénte terram eruísse, ac locum designásse basílicæ, quam suis súmptibus ipse ædificávit. Eam sanctus Silvéster Papa décimo quarto Kaléndas Decémbris dedicávit, et ex eo témpore præscrípsit, ne deínceps altária nisi ex lápide fíerent. Quam, vetustáte jamprídem collabéntem, ac multórum Pontíficum pietáte magnificéntius a fundaméntis eréctam, Urbánus octávus eádem die, anno millésimo sexcentésimo vigésimo sexto, solémniter dedicávit. Itémque basílicam sancti Pauli Apóstoli, in via Ostiénsi ab eódem Constantíno imperatóre sumptuosíssime exstrúctam, et a sancto Silvéstro Papa item consecrátam, ac, diro incéndio consúmptam, indeféssa quátuor Pontíficum cura splendídius quam ántea eréctam; Pius nonus, auspicatíssimam nactus occasiónem definitiónis dógmatis de immaculáta beátæ Vírginis Maríæ Conceptióne, solémni antístitum corona circúmdatus, consecrávit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ingréssus Jesus, ut in die Octávæ Dedicatiónis. [172]}
+
+{RUBRIC: In Vésperis fit Commemoratio sequéntis ac S. Pontiáni Papæ et Mártyris.}
+
+---
+
+# Die 19 Novembris
+
+## S. Elisabeth
+
+{RUBRIC: Víduæ [130] Duplex}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Spécie tua et.
+
+**Oratio**
+
+TUórum corda fidélium, Deus miserátor, illústra : et, beátæ Elísabeth précibus gloriósis; fac nos próspera mundi despícere, et cælésti semper consolatióne gaudére. (Per Dóminum nostrum.)
+
+{RUBRIC: Deínde fit Commemoratio S. Pontiáni Papæ et Mart. :}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Pontiánum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+ELísabeth, Andréæ regis Hungáriæ fília, ab infántia Deum timére cœpit; et, crescens ætáte, crevit étiam pietáte. Ludovíco Lantgrávio Hássiæ et Thuríngiæ in cónjugem copuláta, non minóri cura quæ Dei quam quæ viri sui erant, exsequebátur. Surgens enim noctúrno témpore, oratióni diu incumbébat; ac, váriis misericórdiæ offíciis dédita, víduis, pupíllis, ægrótis, egéntibus sédulo inserviébat, gravíque fame urgénte, domus suæ fruménta liberáliter erogábat. Leprósos hospítio suscípiens, manus eórum et pedes osculabátur. Curándis autem et aléndis páuperibus insígne xenodochíum constrúxit.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+##### Lectio v
+
+DEfúncto cónjuge, ut Deo libérius servíret, depósitis ómnibus sæculáris glóriæ induméntis, vili túnica indúta est, atque, órdinem Pœniténtium sancti Francísci ingréssa, patiéntiæ et humilitátis virtúte máxime enítuit. Nam, bonis ómnibus exúta, a própriis ædibus ejécta, ab ómnibus derelícta, contumélias, irrisiónes, obtrectatiónes invícto ánimo tolerávit, ádeo ut summópere gaudéret se tália pro Deo pati.

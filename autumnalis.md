@@ -23591,3 +23591,135 @@ Amen.
 DEus, cujus Unigénitus per vitam, mortem et resurrectiónem suam nobis salútis ætérnæ prǽmia comparávit : concéde, quǽsumus; ut, hæc mystéria sacratíssimo beátæ Maríæ Vírginis Rosário recoléntes, et imitémur quod cóntinent, et quod promíttunt, assequámur. Per eúmdem Dóminum.
 
 {RUBRIC: Et fit Commem. sequéntis.}
+
+---
+
+## Die 8 Octobris — S. Birgittae
+
+{RUBRIC: Viduæ [130] Duplex}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Spécie tua et.
+
+**Oratio**
+
+DOmine, Deus noster, qui beátæ Birgíttæ per Fílium tuum unigénitum secréta cæléstia reveláti : ipsíus pia intercessióne da nobis fámulis tuis; in revelatióne sempitérnæ glóriæ tuæ gaudére lætántes. Per eúmdem Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+BIrgítta, in Suécia illústribus et piis paréntibus orta, sanctíssime vixit. Cum adhuc in útero gestarétur, a naufrágio propter eam mater erépta est. Decénnis, post audítum de passióne Dómini sermónem, sequénti nocte Jesum in cruce, recénti sánguine perfúsum, vidit, et de eádem passióne secum loquéntem. Quo ex témpore in ejúsdem meditatióne ita afficiebátur, ut de ea sine lácrimis cogitáre deínceps numquam posset.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+##### Lectio v
+
+ULfóni, Neríciæ príncipi, in matrimónium trádita, virum ipsum ad pietátis offícia, tum óptimis exémplis, tum efficácibus verbis adhortáta est. In filiórum educatióne piíssima; paupéribus, et máxime infírmis, domo ad id múneris dicáta, inserviébat quam diligentíssime, illórum pedes sólita laváre et osculári. Cum autem una cum viro suo redíret Compostélla, ubi sancti Jacóbi Apóstoli sepúlcrum visitáverant, et Atrébati Ulfo gráviter ægrotáret, sanctus Dionýsius Birgíttæ noctu appáruit, et de maríti salúte aliísque de rebus, quæ futúræ erant, præmónuit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+VIro Cisterciénsi mónacho facto et paulo post defúncto, Birgítta, audíta Christi voce in somnis, arctiórem vitæ formam est aggréssa. Cui deínde arcána multa fuérunt divínitus reveláta. Monastérium Vastanénse sub régula sancti Salvatóris, ab ipso Dómino accépta, Dómino jussu instítuit. Romam Dei jussu venit, ubi plúrimos ad amórem divínum vehemémter accéndit. Inde Jerosólymam pétiit, et íterum Romam. Qua ex peregrinatióne cum in febrim incidísset, grávibus per annum íntegrum afflictáta morbis, cumuláta méritis, prænuntiáto mortis die, migrávit in cælum. Corpus ejus ad Vastanénse monastérium translátum est; et miráculis illústrem Bonifátius nonus in Sanctórum númerum rétulit.
+
+℟. Fallax grátia, et vana est pulchritúdo : \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+BIrgítta, in Suécia illústribus et piis paréntibus orta, sanctíssime vixit. In passiónis Domínicæ meditatióne ita afficiebátur, ut de ea sine lácrimis cogitáre non posset. Ulfóni, Neríciæ príncipi, in matrimónium trádita, virum ipsum ad pietátis offícia, tum óptimis exémplis, tum efficácibus verbis adhortáta est. In filiórum educatióne piíssima, paupéribus et infírmis inserviébat. Viro Cisterciénsi mónacho facto et paulo post defúncto, Birgítta arctiórem vitæ formam est aggréssa. Cui deínde arcána multa fuérunt divínitus reveláta. Monastérium Vastanénse sub régula sancti Salvatóris instítuit, Jerosólymam, devotiónis causa, pétiit. Tandem Romæ, grávibus per annum íntegrum afflictáta morbis, migrávit in cælum. Ipsam, miráculis illústrem, Bonifátius nonus in Sanctórum númerum rétulit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Noct. Homilía in Ev. Símile est regnum cælórum, de Communi non Virg. [134]}
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+**Oratio**
+
+DOmine, Deus noster, qui beátæ Birgíttæ per Fílium tuum unigénitum secréta cæléstia revelásti; ipsíus pia intercessióne da nobis, fámulis tuis; in revelatióne sempitérnæ glóriæ tuæ gaudére lætántes. Per eúmdem Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 9 Octobris — S. Joannis Leonardi
+
+{RUBRIC: Confessoris [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+DEus, qui beátum Joánnem Confessórem tuum ad fidem in géntibus propagándam mirabíliter excitáre dignátus es, ac per eum in erudiéndis fidélibus novam in Ecclésia tua famíliam congregásti : da nobis fámulis tuis; ita ejus institútis profícere, ut prǽmia consequámur ætérna. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** Manum suam \* apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Dómine, Deus noster, ut supra. 636
+
+{RUBRIC: Deinde Ss. Dionysii Ep., Rustici et Eleutherii Mm. :}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+DEus, qui hodiérna die beátum Dionýsium, Mártyrem tuum atque Pontíficem, virtúte constántiæ in passióne roborásti, quique illi, ad prædicándum Géntibus glóriam tuam, Rústicum et Eleuthérium sociáre dignátus es : tríbue nobis, quǽsumus; eórum imitatióne, pro amóre tuo próspera mundi despícere, et nulla ejus advérsa formidáre. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+JOánnes Leonárdi, in óppido Décimi, non longe a Lucénsi urbe, piis et honéstis ortus paréntibus, jam inde a prima ætáte, solitúdinis et precatiónis amóre, grave quiddam ac matúrum præsétulit. Annos natus vigínti sex a Deo vocátus ad ecclesiásticæ milítiæ nomen dandum, sæculáribus curis íllico núntium remísit. Ac primo inter púeros latínæ linguæ rudiméntis instrúctus, deínde in lítteris et philosóphicis ac theológicis disciplínis ádeo profécit, ut vix acto quadriénnio ad sacerdótium ex obediéntia promótus fúerit. Mox áliquot nactus bonæ índolis nóbiles júvenes, cum eos ad virtútis perfectiónem sédulo exercuísset, insequénti anno Congregatiónem instítuit Clericórum Regulárium, quam a Matre Dei, ob incénsum erga ipsam suæ devotiónis afféctum, nuncupávit. Horum cura et zelo tanta perácta est animórum commutátio, ut, cum in Lucénsi república, hæreticórum præsértim perfidiósis ártibus, ardérent cívium ódia, profligatíque essent mores, brevi témpore primǽva Christianórum pietas ibídem revixísse vederétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit.
+
+##### Lectio v
+
+TAm salutárium óperum causa incídit Joánnes in acérrimas insectatiónes hóminum nequam, qui recens coáctam famíliam pérdere omni ope conáti sunt. Sed vir Dei, ǽquo ánimo libénter ómnia ferens, impetráta a Summo Pontífice Gregório decimotértio suæ Congregatiónis confirmatióne, apostólici sui labóris fructus constánter serváit. In árduis negótiis componéndis multi epíscopi eo consiliário et adjutóre usi sunt, et vel ipse Románus Póntifex eum delegávit ad intricáta litígia diriménda, et ad religiósas famílias reformándas. Sancto Josépho Calasánctio, ejúsque pene collápsæ societáti, præsto fuit. Haud levem quoque impéndit óperam negótiis nosocómii sancti Spíritus in Sáxia, et moniálibus oblátis sanctæ Francíscæ Románæ excoléndis.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+GRáviter dolens, gentes ádeo plúrimas remótis in regiónibus luce Evangélii carére, inflammabátur desidério migrándi in illas oras ad lumen veræ religiónis effundéndum. At cum intellexísset a sancto Philíppo Nério, a quo verus reformátor dicebátur, se suámque Congregatiónem ad instituéndos Itáliæ pópulos destinári, divínæ acquiévit voluntáti; mínime tamen abstínuit quin, si áliquam infidélibus opem afférre posset, experirétur. Hinc ínitis consíliis cum piíssimo præsule Vives, cœtum institúit presbyterórum, quibus propósitum esset idóneos informáre adolescéntes, in díssitas regiónes subínde mitténdos ad fidem propagándam. Quare mérito véluti auctor censétur præclaríssimi illíus institúti, quod summórum Pontíficum ópera amplificátum, proferéndæ per univérsum orbem cathólicæ fídei mirabíliter inservit. Plura ópera de re sacra et moráli conscrípsit, cuívis hóminum conditióni accommodatíssima. Dénique a sacro ministério numquam defíciens, in cínere et cilício ad Dóminum migrávit Romæ, die nona octóbris, anno millésimo sexcentésimo nono, ætátis sexagésimo sexto. Quem sanctitátis et miráculis illústrem Pius nonus Póntifex Máximus Beatórum fastis accénsuit. Pius vero undécimus, anno millésimo nongentésimo trigésimo octávo, die solémni Paschæ, inter Sanctos adscrípsit.
+
+℟. Iste homo perfécit ómnia, quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia te vidi. Glória Patri. Quia te vidi.
+
+{RUBRIC: In III Nocturno Homilía in Evangélium Designávit Dóminus, de Communi Evangelistárum, cum Responsóriis de Communi Confessóris non Pontíficis. [27]}
+
+{RUBRIC: Pro Ss. Dionysio Ep., Rustico et Eleutherio Mm.}
+
+##### Lectio ix
+
+DIonýsius Athéniénsis, unus ex Areopagítis judícibus, cum adhuc in gentilitátis erróre versarétur, eo die, quo Christus Dóminus Cruci affíxus est, solem præter natúram defecísse animadvértens, exclamásse tráditur : Aut Deus natúræ pátitur, aut mundi máchina dissólvitur. Cum autem Paulus Apóstolus in Areopágo Christum annuntiásset, Dionýsius fidem christiánam ampléxus, ab eódem Apóstolo Atheniénsium Ecclésiæ præféctus est. Póstea, ut tráditur, Romam véniens, et a Cleménte Pontífice missus in Gálliam, Lutétiam usque Parisiórum, cum Rústico presbýtero et Eleuthério diácono, Evangélium prædicávit. Ibi omnes, quod Christum prædicárent, a Fescénnio præfécto apprehénsi, váriis torméntis cruciántur, et demum secúri feriúntur séptimo idus Octóbris.
+
+{RUBRIC: Si hoc festum ad instar Simplicis redigátur, et de ipso nona lectio juxta Rubricas sit dicénda, sumitur sequens :}
+
+##### Lectio ix
+
+JOánnes Leonárdi, non longe a Lucénsi urbe ortus, a prima ætáte grave quiddam ac matúrum præsétulit. Annos natus vigínti sex a Deo vocátus ad ecclesiásticæ milítiæ nomen dandum, primum inter púeros latínæ linguæ rudiméntis instrúctus, in lítteris et philosóphicis ac theológicis disciplínis ádeo profécit ut vix acto quadriénnio ad sacerdótium ex obediéntia promótus fúerit. Congregatiónem instítuit Clericórum Regulárium a Matre Dei, quorum cura et zelo in Lucénsi república magna animórum commutátio perácta est. Hinc in acérrimas hóminum nequam insectatiónes incídit, sed, ǽquo ánimo ómnia libénter ferens, a Gregório decimotértio suæ Congregatiónis confirmatiónem impetrávit. Gráviter dolens gentes plúrimas remótis in regiónibus luce Evangélica carére, consíliis initis cum piíssimo præsule Vives, cœtum instítuit presbyterórum, quibus propósitum esset idóneos informáre adolescéntes, in díssitas regiónes subínde mitténdos ad fidem propagándam. A sacro ministério numquam defíciens, in cínere et cilício ad Dóminum migrávit Romæ, die nona octóbris, anno millésimo sexcentésimo nono, et a Pio undécimo Sanctórum fastis adscríptus est.
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui beátum Joánnem Confessórem tuum ad fidem in géntibus propagándam mirabíliter excitáre dignátus es, ac per eum in erudiéndis fidélibus novam in Ecclésia tua famíliam congregásti : da nobis fámulis tuis; ita ejus institútis profícere, ut prǽmia consequámur ætérna. Per Dóminum.

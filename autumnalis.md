@@ -38434,3 +38434,15 @@ COncéde, misericors Deus, fragilitáti nostræ præsídium : ut, qui sanctæ De
 **Capit.** *Eccli. 24, 19-20*
 
 IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi : quasi myrrha elécta dedi suavitátem odóris. ℟. Deo grátias.
+
+℣. Post partum, Virgo, invioláta permansísti. ℟. Dei Génitrix, intercéde pro nobis.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce : ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui, Dómini nostri, intercessióne salvémur : Qui tecum vivit.
+
+---

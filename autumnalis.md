@@ -40908,4 +40908,26 @@ ADmensam dulcíssimi convívii tui, pie Dómine Jesu Christe, ego peccátor de p
 
 {RUBRIC: Indulgéntia trium annórum; plenária, dúmmodo quotidiána oratiónis recitátio in íntegrum mensem prodúcta fúerit et prætérea sacramentális confessio, alícujus ecclésiæ vel públici oratórii visitátio et ad mentem Summi Pontíficis preces addítæ fúerint. Pius Pp. XI, 10 Decémbris 1936.}
 
-OMnípotens sempitérne Deus, ecce accédo ad sacraméntum unigéniti Fílii tui, Dómini nostri Jesu Christi; accédo tamquam infírmus ad médicum vitæ, immúndus ad fontem misericórdiæ, cæcus ad lumen claritátis ætérnæ, pauper et egénus ad Dóminum cæli et terræ. Rogo ergo imménsæ largitátis tuæ abundántiam, quátenus meam curáre dignéris infirmitátem, laváre fœditátem, illumináre cæcitátem, ditáre paupertátem, vestíre nuditátem : ut panem Angelórum, Regem regum et Dóminum dominántium, tanta suscípiam reveréntia et humilitáte, tanta contritióne et devotióne, tanta puritáte
+OMnípotens sempitérne Deus, ecce accédo ad sacraméntum unigéniti Fílii tui, Dómini nostri Jesu Christi; accédo tamquam infírmus ad médicum vitæ, immúndus ad fontem misericórdiæ, cæcus ad lumen claritátis ætérnæ, pauper et egénus ad Dóminum cæli et terræ. Rogo ergo imménsæ largitátis tuæ abundántiam, quátenus meam curáre dignéris infirmitátem, laváre fœditátem, illumináre cæcitátem, ditáre paupertátem, vestíre nuditátem : ut panem Angelórum, Regem regum et Dóminum dominántium, tanta suscípiam reveréntia et humilitáte, tanta contritióne et devotióne, tanta puritáte et fide, tali propósito et intentióne, sicut éxpedit salúti ánimæ meæ. Da mihi, quǽso, Domínici Córporis et Sánguinis non solum suscípere sacraméntum, sed étiam rem et virtútem sacraménti. O mitíssime Deus, da mihi Corpus unigéniti Fílii tui, Dómini nostri Jesu Christi, quod traxit de Vírgine María, sic suscípere, ut córpori suo mýstico mérear incorporári, et inter ejus membra connumerári. O amantíssime Pater, concéde mihi diléctum Fílium tuum, quem nunc velátum in via suscípere propóno, reveláta tandem fácie perpétuo contemplári : Qui tecum vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. Amen.
+
+---
+
+## Oratio ad B. Mariam V. ante Missam
+
+{RUBRIC: Indulgéntia trium annórum. Pius Pp. XI, 3 Octóbris 1936.}
+
+OMater pietátis et misericórdiæ, beatíssima Virgo María, ego miser et indígnus peccátor ad te confúgio toto corde et afféctu; et precor pietátem tuam, ut, sicut dulcíssimo Fílio tuo in Cruce pendénti astitísti, ita et mihi, mísero peccatóri, et sacerdótibus ómnibus, hic et in tota sancta Ecclésia hódie offeréntibus, cleménter assístere dignéris, ut, tua grátia adjúti, dignam et acceptábilem hóstiam in conspéctu summæ et indivíduæ Trinitátis offérre valeámus. Amen.
+
+---
+
+## Oratio ad S. Joseph
+
+{RUBRIC: Indulgéntia trium annórum. Pius Pp. XI, 3 Octóbris 1936.}
+
+OFelícem virum, beátum Joseph, cui datum est, Deum, quem multi reges voluérunt vidére et non vidérunt, audíre et non audiérunt, non solum vidére et audíre, sed portáre, deosculári, vestíre et custodíre!
+
+℣. Ora pro nobis, beáte Joseph. ℟. Ut digni efficiámur promissiónibus Christi.
+
+Orémus.
+
+DEus, qui dedísti nobis regále sacerdótium : præsta, quǽsumus; ut, sicut beátus Joseph unigénitum Fílium tuum, natum ex María Vírgine, suis mánibus reverénter tractáre méruit et portáre, ita nos fácias cum cordis mundítia et óperis innocéntia tuis sanctis altáribus deservíre, ut sacrosánctum Fílii tui Corpus et Sánguinem hódie digne sumámus, et in futúro sǽculo prǽmium habére mereámur

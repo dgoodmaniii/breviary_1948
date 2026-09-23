@@ -21171,3 +21171,61 @@ DA, quǽsumus, omnípotens Deus : ut, qui beátæ Theclæ Vírginis et Mártyris
 ℣. Dignáre me laudáre te.
 
 **Ad Magnif. Ant.** Sancta María, \* succúrre míseris, juva pusillánimes, réfove flébiles, ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu : séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam festivitátem.
+
+**Oratio**
+
+DEus, qui per gloriosíssimam Fílii tui Matrem, ad liberándos Christi fidéles a potestáte paganórum nova Ecclésiam tuam prole amplificáre dignátus es : præsta, quǽsumus; ut, quam pie venerámur tanti óperis institutrícem, ejus páriter méritis et intercessióne, a peccátis ómnibus et captivitáte dæmonis liberémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+**Oratio** Gregem tuum, ut supra. 564
+
+### In II Nocturno
+
+##### Lectio iv
+
+QUO témpore major feliciórque Hispaniárum pars diro Saracenórum opprimebátur jugo, innúmerique fidéles sub immáni servitúte, máximo cum perículo christiánæ fídei abjurándæ, amittendǽque salútis ætérnæ, infelíciter detinebántur, beatíssima cælórum Regína, tot tantísque benígniter occúrrens malis, nímiam caritátem suam in iis rediméndis osténdit. Nam sancto Petro Nolásco, pietáte et ópibus florénti, qui, sanctis vacans meditatiónibus, júgiter ánimo recogitábat qua ratióne tot Christianórum ærúmnis sub Maurórum captivitáte degéntium succúrri posset, ipsamet beatíssima Virgo, seréna fronte, se conspiciéndam dedit; et acceptíssimum sibi ac unigénito suo Fílio fore dixit, si suum in honórem instituerétur ordo religiósórum, quibus cura incúmberet captívos e Turcárum tyránnide liberándi. Qua cæléstí visióne vir Dei recreátus, mirum est quo caritátis ardóre flagráre cœperit, hoc unum servans in corde suo, ut ipse ac instituénda ab eo religio máximam illam caritátem sédulo exercérent, ut quisque ánimam suam póneret pro amícis et próximis suis.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion : \* quasi myrrha elécta, dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+##### Lectio v
+
+EA ipsa nocte éadem Virgo sanctíssima beáto Raymúndo de Péñafort et Jacóbo Aragóniæ regi appáruit, idípsum de religiósis instituéndis admónens, suadénsque ut opem pro constructióne tanti óperis ferrent. Petrus autem statim ad Raymúndi pedes, qui ipsi erat a sacris confessiónibus, ádvolans, ei rem omnem apéruit; quem étiam cælitus instrúctum réperit, ejúsque directióni se humíllime subjécit. At, supervéniens Jacóbus rex, quam et ipse accéperat a beatíssima Vírgine, revelatiónem éxsequi státuit. Unde, collátis inter se consíliis, et consentiéntibus ánimis, in honórem ejúsdem Vírginis Matris órdinem institúere aggréssi sunt, sub invocatióne sanctæ Maríæ de Mercéde redemptiónis captivórum.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt.
+
+##### Lectio vi
+
+DIE ígitur décima Augústi anno Dómini millésimo ducentésimo décimo octávo, rex idem Jacóbus eam institutiónem, jamprídem ab iísdem sanctis viris concéptam, éxsequi státuit, sodálibus quarto voto adstríctis manéndi in pignus sub paganórum potestáte, si pro Christianórum liberatióne opus fúerit. Quibus rex ipse arma sua régia in péctore deférre concéssit, et a Gregório nono illud tam præcelléntis erga próximum caritátis institútum et religiónem confirmári curávit. Sed et ipse Deus per Vírginem Matrem increméntum dedit, ut talis institútio celérius ac felícius totum per orbem divulgarétur, sanctísque viris florúerit caritáte ac pietáte insígnibus, qui eleemósynas a Christi fidélibus colléctas in prétium redemptiónis suórum proximórum expénderent, seque ipsos intérdum darent in redemptiónem multórum. Ut autem tanti benefícii et institutiónis, débitæ Deo et Vírgini Matri referántur grátiæ, Sedes apostólica hanc peculiárem festivitátem celebrári et Offícium recitári indúlsit, cum ália fere innúmera eídem órdini privilégia páriter contulísset.
+
+℟. Ornátam mónilibus fíliam Jerúsalem Dóminus concupívit : \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes : \* Unguéntum effúsum nomen tuum. ℣. Astitit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et. Glória Patri. Unguéntum.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+QUO témpore innúmeri fidéles sub immáni Saracenórum servitúte, cum perículo amitténdæ salútis ætérnæ, infelíciter detinebántur, beáta Virgo María, sancto Petro Nolásco, beáto Raymúndo de Péñafort et Jacóbo Aragóniæ regi noctu appárens, acceptíssimum sibi ac unigénito suo Fílio fore dixit, si suum in honórem instituerétur ordo religiosórum, quibus cura incúmberet captívos e Turcárum tyránnide liberándi. Quare, collátis inter se consíliis, et consentiéntibus ánimis, in honórem ejúsdem Vírginis Matris órdinem institúere aggréssi sunt, sub invocatióne sanctæ Maríæ de Mercéde redemptiónis captivórum, sodálibus quarto voto adstríctis manéndi in pignus sub paganórum potestáte, si pro Christianórum liberatióne opus esset. Quibus rex ipse arma sua régia in péctore deférre concéssit, et a Gregório nono illud tam præcelléntis caritátis institútum confirmándum curávit. Ut autem tanti benefícii et institutiónis, débitæ Deo et Vírgini Matri referántur grátiæ, Sedes apostólica hanc peculiárem festivitátem celebrári indúlsit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Sábbato Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemoratio ad Laudes tantum.}
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Beáta es, \* María, quæ credidísti : perficiéntur in te, quæ dicta sunt tibi a Dómino, allelúja.
+
+**Oratio**
+
+DEus, qui per gloriosíssimam Fílii tui Matrem, ad liberándos Christi fidéles a potestáte paganórum, nova Ecclésiam tuam prole amplificáre dignátus es : præsta, quǽsumus; ut, quam pie venerámur tanti óperis institutrícem, ejus páriter méritis et intercessióne, a peccátis ómnibus et captivitáte dæmonis liberémur. Per eúmdem Dóminum.
+
+#### IN II VESPERIS
+
+℣. Dignáre me laudáre te.
+
+**Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus.

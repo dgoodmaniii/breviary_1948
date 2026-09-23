@@ -38080,4 +38080,40 @@ AB inítio et ante sǽcula creáta sum, et usque ad futúrum sæculum non désin
 
 ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
 
-℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvá-
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvá-bit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. **Glória Patri.** Adjuvábit. ℣. Elégit eam Deus, et prælégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+#### AD NONAM
+
+**Capit.** *Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi : quasi myrrha elécta dedi suavitátem odóris.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et. **Glória Patri.** Elégit.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Post Nonam termínatur Offícium sanctæ Maríæ in Sábbato.}
+
+---
+
+{RUBRIC: Lectiónes sequéntes dicúntur síngulis ménsibus in Offício sanctæ Maríæ in Sábbato, órdine subscrípto :}
+
+## Mense Septembri
+
+**Ex Epístola sancti Leónis Papæ ad Pulchériam Augústam**
+*Epístola 13 ante médium*
+
+#### Lectio iii
+
+SAcraméntum reconciliatiónis nostræ, ante témpora ætérna dispósitum, nullæ implébant fígúræ; quia nondum supervénerat Spíritus Sanctus in Vírginem nec virtus Altíssimi obumbráverat ei, ut et intra intemeráta víscera, ædificánte sibi Sapiéntia domum, Verbum caro fíeret, et, forma Dei ac forma servi in unam conveniénte persónam, Creátor témporum nascerétur in témpore, et, per quem facta sunt ómnia, ipse inter ómnia gignerétur. Nisi enim novus homo, factus in similitúdinem carnis peccáti, nostram suscíperet vetustátem, et, consubstantiális Patri, consubstantiális esse dignarétur et matri, naturámque sibi nostram solus a peccáto liber uníret; sub jugo diáboli generáliter tenerétur humána captívitas.
+
+**Te Deum laudámus.**
+
+## Mense Octobri
+
+**Sermo sancti Bernárdi Abbátis**
+*Sermo in cap. 12 Apocalypsis, ante médium*
+
+#### Lectio iii
+
+AMplectámur Maríæ vestígia, fratres mei, et devotíssima supplicatióne beátis illíus pédibus provolvámur. Teneámus eam nec dimittámus, donec benedíxerit nobis; potens

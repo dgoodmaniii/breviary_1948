@@ -28775,3 +28775,45 @@ VErum ab utróque se dissidére osténdit Christus : ab illis quidem, qui in ali
 EXcita, quæsumus, Dómine, in Ecclésia tua Spíritum, quo replétus beátus Jósaphat Martyr et Póntifex tuus ánimam suam pro óvibus pósuit : ut, eo intercedénte, nos quoque eódem Spíritu moti ac roboráti, ánimam nostram pro frátribus pónere non vereámur. Per Dóminum... in unitáte ejúsdem Spíritus.
 
 {RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 15 Novembris
+
+## S. Alberti Magni
+
+{RUBRIC: Episcopi, Confessoris et Ecclésiæ Doctóris [69] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Albérte, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+**Oratio**
+
+DEus, qui beátum Albértum Pontíficem tuum atque Doctórem, in humána sapiéntia divínæ fídei subjiciénda magnum effecísti : da nobis, quæsumus, ita ejus magistérii inhærére vestígiis : ut luce perfécta fruámur in cælis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+{RUBRIC: Oratio Excita, quæsumus, ut supra. 806}
+
+### In II Nocturno
+
+##### Lectio iv
+
+ALbértus, ob singulárem doctrínam cognoménto Magnus, Lauíngiæ ad Danúbium, in Suévia, natus, a púero diligénter institútus est. Studiórum causa e pátria discédens, dum Patávii morarétur, hortánte beáto Jordáno, generáli Magístro Ordinis Prædicatórum, Dominiciánæ famíliæ, frustra obsisténte avúnculo, adscríbi postulávit. Inter fratres adléctus, in ómnibus Deo déditus, religiósa observántia et pietáte enítuit, filiáli ac tenérrima in Beátam Maríam Vírginem devotióne flagrans. Totam vitæ formam, oratióne stúdium prævéniéndo, ita dispósuit, ut, apostólicam religiónem proféssus, ad prædicatiónem verbi Dei et animárum salútem procurándam idóneus eváderet adminíster. Mox ad stúdia explénda Colóniam Agrippínam missus, ita profécit, ut omnes fere sæculáres sciéntias diligentíssime præ ómnibus suis coævis investigáverit atque áuxerit; et de divínæ legis fonte, testánte Alexándro quarto, ádeo salutífera fluénta doctrínæ potávit, ut ejúsdem in suo péctore vigéret plenitúdo.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus enim mea auxiliábitur ei.
+
+##### Lectio v
+
+UT scientiárum thesáuris álios ditáret, lector Hildeshémii, deínceps Fribúrgi, Ratisbónæ et Argentínæ constitútus est. Omnium in se admiratiónem converténs, cum in Parisiénsi ínclyta universitáte sacræ facultáti docéndo decus ádderet, magíster theológiæ renuntiátus est. Doctrínis gentílium philosophórum ad rectæ ratiónis dictámina revocátis, eárum cum fide cohæréntiam clárius commonstrávit. De divinórum intelléctu mira expósuit. Quantum vero univérsas discíplinas, præsértim sacras, férvido ingénio atque indefésso stúdio provéxerit, plúrima ejus scripta in omni fere scientiárum génere apérte declárant. Ut stúdio generáli sui Órdinis præésset, Colóniam revérsus est, eo succéssu ut ejus in scholis auctóritas et doctrínæ fama magis magísque vigúerit. Thomam de Aquíno discípulum diléctum hábuit, cujus altitúdinem mentis ipse primus perspéxit ac prædicávit. Erga Sacrosánctum altáris Sacraméntum piíssimo ferebátur afféctu, deque eo præclára conscrípsit; rei quoque mýsticæ ánimis instituéndis vias amplióres parávit, ádeo ut frúgifer tanti magístri zelus quam late in Ecclésia patúerit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea : \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus enim mea auxiliábitur ei.
+
+##### Lectio vi
+
+TOT inter gravíssima múnia, religiósæ vitæ exémplis præfúlgens, a frátribus Prior Teutóniæ provínciæ eléctus est. Anagníam vocátus, Guliélmum, Órdines mendicántes ímpio ausu impeténtem, coram Summo Pontífice Alexándro quarto rétudit, qui Epíscopum Ratisbonénsem eum póstea constítuit. Curæ sui gregis Albértus se totum impéndit, morum humilitáte ac paupertátis amóre studiosíssime reténtis. Dimísso offício, ad episcopális tamen órdinis labóres promptus atque álacer per Germániam et finítimas regiónes spirituália ministrávit.

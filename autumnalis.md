@@ -17481,3 +17481,71 @@ QUam ob rem símile est huic? Quóniam hoc illud indúcit, et ab illo rursus mun
 SI ergo dilígere Deum, dilígere próximum est : (nam si díligis me, o Petre, inquit, pasce oves meas) si étiam diléctio próximi facit ut mandáta custódias : mérito ait in his totam legem et Prophétas pendére. Et quemádmodum in superióribus, cum de resurrectióne interrogarétur, plus dócuit quam tentántes petébant; sic in hoc loco de primo interrogátus mandáto, secúndum étiam non valde quam primum inférius, sponte áttulit; secúndum enim est primo símile. Ita occúlte insinuávit, ódio illos ad quæréndum incitári. Cáritas enim, inquit, non æmulátur.
 
 **Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Magíster, \* quod est mandátum magnum in lege? Ait illi Jesus : Díliges Dóminum Deum tuum ex toto corde tuo, allelúja.
+
+**Oratio**
+
+DA, quǽsumus, Dómine, pópulo tuo diabólica vitáre contágia : et te solum Deum pura mente sectári. Per Dóminum.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Quid vobis \* vidétur de Christo? cujus fílius est? Dicunt ei omnes : David. Dicit eis Jesus : Quómodo David in spíritu vocat eum Dóminum dicens : Dixit Dóminus Dómino meo : Sede a dextris meis?
+
+---
+
+## Dominica XVIII post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+DIrigat corda nostra, quǽsumus Dómine, tuæ miseratiónis operátio : quia tibi sine te placére non póssumus. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 9, 1-8*
+
+IN illo témpore : Ascéndens Jesus in navículam transfretávit et venit in civitátem suam. Et réliqua.
+
+{RUBRIC: Homilía sancti Petri Chrysólogi}
+*Sermo 50*
+
+CHristum in humánis áctibus divína gessísse mystéria, et in rebus visibílibus invisibília exercuísse negótia, léctio hodiérna monstrávit. Ascéndit, inquit, in navículam, et transfretávit, et venit in civitátem suam. Nonne ipse est, qui, fugátis flúctibus, maris profúnda nudávit, ut Israëlíticus pópulus inter stupéntes undas sicco vestígio velut móntium cóncava pertransíret? Nonne hic est, qui Petri pédibus marínos vórtices inclinávit, ut iter líquidum humánis gréssibus sólidum præbéret obséquium?
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+ET quid est, quod ipse sibi sic maris dénegat servitútem, ut brevíssimi lacus tránsitum sub mercéde náutica transfretáret? Ascéndit, inquit, in navículam, et transfretávit. Et quid mirum, fratres? Christus venit suscípere infirmitátes nostras, et suas nobis conférre virtútes; humána quǽrere, præstáre divína; accípere injúrias, réddere dignitátes; ferre tǽdia, referre sanitátes : quia médicus, qui non fert infirmitátes, curáre nescit; et qui non fúerit cum infírmo infirmátus, infírmo non potest conférre sanitátem.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+CHristus ergo, si in suis mansísset virtútibus, commúne cum homínibus nil habéret; et nisi implésset carnis órdinem, carnis in illo esset otiósa susceptio. Ascéndit, inquit, in navículam, et transfretávit, et venit in civitátem suam. Creátor rerum orbis Dóminus, posteáquam se propter nos nostra angustávit in carne, cœpit habére humánam pátriam, cœpit civitátis Judáicæ esse civis, paréntes habére cœpit paréntum ómnium ipse parens; ut invitáret amor, attráheret cáritas, vincíret afféctio, suadéret humánitas, quos fugárat dominátio, metus dispérserat, fécerat vis potestátis extórres.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Dixit Dóminus \* paralýtico : Confíde, fili, remittúntur tibi peccáta tua.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Tulit ergo \* paralýticus lectum suum, in quo jacébat, magníficans Deum : et omnis plebs, ut vidit, dedit laudem Deo.
+
+**Oratio** Dirigat, ut supra. 446

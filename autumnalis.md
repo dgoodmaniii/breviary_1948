@@ -18630,3 +18630,73 @@ Amen.
 #### In II Vesperis
 
 **Ad Magnif. Ant.** Nativitas tua, \* Dei Génitrix Virgo, gáudium annuntiávit univérso mundo : ex te enim ortus est sol justítiæ, Christus Deus noster : qui solvens maledictiónem, dedit benedictiónem; et confúndens mortem, donávit nobis vitam sempitérnam.
+
+**Oratio**
+
+FAmulis tuis, quǽsumus, Dómine, cæléstis grátiæ munus impertíre : ut, quibus beátæ Vírginis partus éxstitit salútis exórdium; Nativitátis ejus votíva solémnitas pacis tríbuat increméntum. Per Dóminum.
+
+#### AD MATUTINUM
+
+**Invit.** Nativitátem Vírginis Maríæ celebrémus : \* Christum ejus Fílium adorémus Dóminum.
+
+**Ps. 94** Veníte, exsultémus.
+
+### In I Nocturno
+
+{RUBRIC: Incípiunt Cántica canticórum}
+
+##### Lectio i
+*Cap. 1, 1-16*
+
+OSculétur me ósculo oris sui, quia melióra sunt úbera tua vino, fragrántia unguéntis óptimis. Oleum effúsum nomen tuum; ídeo adolescéntulæ dilexérunt te. Trahe me : post te currémus in odórem unguentórum tuórum. Introdúxit me rex in cellária sua; exsultábimus et lætábimur in te mémores úberum tuórum super vinum. Recti díligunt te. Nigra sum, sed formósa, fíliæ Jerúsalem, sicut tabernácula Cedar, sicut pelles Salomónis.
+
+℟. Hódie nata est beáta Virgo María ex progénie David; \* Per quam salus mundi credéntibus appáruit, cujus vita gloriósa lucem dedit sǽculo. ℣. Nativitátem beátæ Maríæ Vírginis cum gáudio celebrémus. — Per quam.
+
+##### Lectio ii
+
+NOlíte me consideráre quod fusca sim, quia decolorávit me sol. Fílii matris meæ pugnavérunt contra me, posuérunt me custódem in víneis, víneam meam non custodívi. Índica mihi, quem díligit ánima mea, ubi pascas, ubi cubes in merídie, ne vagári incípiam post greges sodálium tuórum. Si ignóras te, o pulchérrima inter mulíeres, egrédere et abi post vestígia gregum, et pasce hædos tuos juxta tabernácula pastórum. Equitátui meo in cúrribus pharaónis assimilávi te, amíca mea. Pulchræ sunt genæ tuæ sicut túrturis, collum tuum sicut monília.
+
+℟. Beatíssimæ Vírginis Maríæ Nativitátem devotíssime celebrémus, \* Ut ipsa pro nobis intercédat ad Dóminum Jesum Christum. ℣. Cum jucunditáte Nativitátem beátæ Maríæ Vírginis devotíssime celebrémus. — Ut.
+
+##### Lectio iii
+
+MUrénulas áureas faciémus tibi vermiculátas argénto. Dum esset rex in accúbito suo, nardus mea dedit odórem suum. Fascículus myrrhæ diléctus meus mihi, inter úbera mea commorábitur. Botrus Cypri diléctus meus mihi in víneis Engáddi. Ecce tu pulchra es, amíca mea, ecce tu pulchra es; óculi tui columbárum. Ecce tu pulcher es, dilécte mi, et decórus. Léctulus noster flóridus, tigna domórum nostrárum cédrina, laqueária nostra cypréssina.
+
+℟. Gloriósæ Vírginis Maríæ ortum digníssimum recolámus, \* Cujus Dóminus humilitátem respéxit, quæ, Angelo nuntiánte, concépit Salvatórem mundi. ℣. Beatíssimæ Vírginis Maríæ Nativitátem devotíssime celebrémus. — Cujus. Glória Patri. Cujus.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+*Sermo 18 de Sanctis, qui est 2 de Annunt. Dominica*
+
+##### Lectio iv
+
+ADest nobis, dilectíssimi, optátus dies beátæ ac venerábilis semper Vírginis Maríæ; ídeo cum summa exsultatióne gáudeat terra nostra tantæ Vírginis illustráta natáli. Hæc est enim flos campi, de qua ortum est pretiósum lílium convállium, per cujus partum mutátur natúra protoplastórum, delétur et culpa. Præcísum est in ea illud Hevæ infelicitátis elógium, quo dícitur : In dolóre páries fílios tuos; quia ista in lætítia Dóminum péperit.
+
+℟. Natívitas gloriósæ Vírginis Maríæ ex sémine Abrahæ, ortæ de tribu Juda, clara ex stirpe David; \* Cujus vita ínclyta cunctas illústrat ecclésias. ℣. Hódie nata est beáta Virgo María ex progénie David. — Cujus.
+
+##### Lectio v
+
+HEva enim luxit, ista exsultávit : Heva lácrimas, María gáudium in ventre portávit; quia illa peccatórem, ista édidit innocéntem. Mater géneris nostri pœnam íntulit mundo, Génitrix Dómini nostri salútem íntulit mundo. Auctrix peccáti Heva, auctrix mériti María. Heva occidéndo óbfuit. María vivificándo prófuit. Illa percússit, ista sanávit. Pro inobediéntia enim obediéntia commutátur, fides pro perfídia compensátur.
+
+℟. Cum jucunditáte Nativitátem beátæ Maríæ celebrémus, \* Ut ipsa pro nobis intercédat ad Dóminum Jesum Christum. ℣. Corde et ánimo Christo canámus glóriam in hac sacra solemnitáte præcélsæ Genitrícis Dei Maríæ. — Ut.
+
+##### Lectio vi
+
+PLaudat nunc órganis María, et inter velóces artículos týmpana puérperæ cóncrepent. Cóncinant lætántes chori, et alternántibus módulis dulcísona cármina misceántur. Audíte ígitur quemádmodum tympanístria nostra cantáverit; ait enim : Magníficat ánima mea Dóminum : et exsultávit spíritus meus in Deo, salutári meo. Quia respéxit humilitátem ancíllæ suæ : ecce enim ex hoc beátam me dicent omnes generatiónes. Quia fecit mihi magna qui potens est. Causam ígitur invalescéntis erráti, miráculum novi partus evícit; et Hevæ planctum Maríæ cantus exclúsit.
+
+℟. Nativitas tua, Dei Génitrix Virgo, gáudium annuntiávit univérso mundo; \* Ex te enim ortus est sol justítiæ, Christus Deus noster : \* Qui, solvens maledictiónem, dedit benedictiónem, et confúndens mortem, donávit nobis vitam sempitérnam. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Ex te enim. Glória Patri. Qui solvens.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 1, 1-16*
+
+LIber generatiónis Jesu Christi, fílii David, fílii Abraham. Abraham génuit Isaac, Isaac autem génuit Jacob. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 1 Comment. in Matth., in initium*
+
+IN Isaía légimus : Generatiónem ejus quis enarrábit? Non ergo putémus Evangelístam Prophétæ esse contrárium, ut quod ille impossíbile dixit effátu, hic narráre incípiat : quia ibi de generatióne Divinitátis, hic de incarnatióne est dictum. A carnálibus autem cœpit, ut per hóminem, Deum díscere incipiámus. Fílii David, fílii Abraham. Ordo præpósterus, sed necessário commutátus. Si enim primum posuísset Abraham et póstea David, rursus ei repeténdus fúerat Abraham, ut generatiónis séries texerétur.

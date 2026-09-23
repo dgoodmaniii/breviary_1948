@@ -19595,3 +19595,78 @@ Laudet univérsitas.
 Amen.
 
 ℣. Adorámus te, Christe, et benedícimus tibi. ℟. Quia per Crucem tuam redemísti mundum.
+
+**Ad Bened. Ant.** Super ómnia \* ligna cedrórum tu sola excélsior, in qua Vita mundi pepéndit, in qua Christus triumphávit, et mors mortem superávit in ætérnum.
+
+**Oratio**
+
+DEus, qui nos hodiérna die Exaltatiónis sanctæ Crucis ánnua solemnitáte lætíficas : præsta, quǽsumus; ut, cujus mystérium in terra cognóvimus, ejus redemptiónis prǽmia in cælo mereámur. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, sed ad Primam loco Psalmi 117 Confitémini, dícitur Ps. 53 Deus, in nómine tuo 44; quod observátur in ómnibus Festis, in quibus séquens pónitur Rúbrica : Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** O magnum pietátis opus : \* mors mórtua tunc est, in ligno quando mórtua Vita fuit.
+
+#### AD TERTIAM
+
+**Ant.** Salva nos, \* Christe Salvátor, per virtútem Crucis : qui salvásti Petrum in mari, miserére nobis.
+
+**Capitulum**
+*Philipp. 2, 5-7*
+
+FRatres : Hoc enim sentíte in vobis, quod et in Christo Jesu : qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo : sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+℟. br. Hoc signum Crucis \* Erit in cælo. Hoc. ℣. Cum Dóminus ad judicándum vénerit. Erit. Glória Patri. Hoc. ℣. Adorámus te, Christe, et benedícimus tibi. ℟. Quia per Crucem tuam redemísti mundum.
+
+**Oratio** Deus, qui nos hodiérna, ut supra.
+
+#### AD SEXTAM
+
+**Ant.** Ecce Crucem Dómini, \* fúgite, partes advérsæ, vicit leo de tribu Juda, radix David, allelúja.
+
+**Capitulum**
+*Galat. 6, 14*
+
+MIhi autem absit gloriári, nisi in Cruce Dómini nostri Jesu Christi; per quem mihi mundus crucifíxus est, et ego mundo.
+
+℟. br. Adorámus te, Christe, \* Et benedícimus tibi. Adorámus. ℣. Quia per Crucem tuam redemísti mundum. Et. Glória Patri. Adorámus. ℣. Omnis terra adóret te, et psallat tibi. ℟. Psalmum dicat nómini tuo, Dómine.
+
+#### AD NONAM
+
+**Ant.** Per signum Crucis \* de inimícis nostris líbera nos, Deus noster.
+
+**Capitulum**
+*Philipp. 2, 8-9*
+
+HUmiliávit semetípsum factus obédiens usque ad mortem, mortem autem Crucis. Propter quod et Deus exaltávit illum, et donávit illi nomen, quod est super omne nomen.
+
+℟. br. Omnis terra adóret te, \* Et psallat tibi. Omnis. ℣. Psalmum dicat nómini tuo, Dómine. Et. Glória Patri. Omnis. ℣. Hoc signum Crucis erit in cælo. ℟. Cum Dóminus ad judicándum vénerit.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio tantum præcedéntis.}
+
+{RUBRIC: Sicubi tamen hoc Festum hábeat II Vésperas íntegras, ómnia dicúntur ut in I Vésperis 501, præter Antiphonam ad Magníficat, ut ibídem pro II Vésperis notátur. 502}
+
+{RUBRIC: Et Completórium dícitur de Domínica. 62}
+
+{RUBRIC: In ómnibus novem Lectiónum Officiis in Fériis Quátuor Témporum occurréntibus, dícitur ix Lectio de Homília Fériæ curréntis, et fit ejus Commemorátio ad Laudes tantum, ante Commemoratiónem Festi simplícis forte occurréntis.}
+
+---
+
+## Die 15 Septembris — Septem Dolorum B. Mariæ Virginis
+
+{RUBRIC: Duplex II classis}
+
+{RUBRIC: De die Octáva Nativitátis beátæ Maríæ Vírginis nihil fit in Offício septem Dolórum. Sicubi tamen hac die celebrétur áliquod Festum nobílius Duplex II classis, quod non sit B. Maríæ Virg., de ipsa die Octáva fit Commemorátio ad Laudes, per Antiphónam, Versum et Oratiónem de die festo 490, ante Commemoratiónem S. Nicomédis.}
+
+#### IN I VESPERIS
+
+**Ant. 1** Quo ábiit \* diléctus tuus, o pulchérrima muliérum? quo declinávit diléctus tuus, et quærémus eum tecum?
+
+{RUBRIC: Psalmi de Communi Festórum B. Maríæ Virginis. [174]}
+
+**Ant. 2** Recédite a me, \* amáre flebo, nolíte incúmbere ut consolémini me.
+
+**Ant. 3** Non est ei \* spécies neque decor, et vídimus eum, et non erat aspéctus.
+
+**Ant. 4** A planta pedis \* usque ad vérticem cápitis non est in eo sánitas.

@@ -973,3 +973,37 @@ There is another psalm in *Sunday* Prime, viz., the
 **47.** Prime (like Compline) ends with a "*Benedictio*," to which a *Pater noster* is added unless another Hour immediately follows.
 
 ---
+
+## CHAPTER VII
+
+## VESPERS
+
+**48.** The *scheme* of Vespers is the same as that of Lauds as far as the "ordinary ending" inclusive (n. 26). The canticle *Benedictus* of Lauds is, of course, replaced by the canticle *Magnificat* at Vespers. This difference being indicated, it must also be stated that what has been said in Lauds regarding *Preces feriales* and commemorations[^57] (including the *Suffragium*) holds good for Vespers also.
+
+[^57]: Commemoration of an octave is taken from the feast's first Vespers if the Office of the octave is said on the following day. In other cases the commemoration is taken from the second Vespers of the feast itself.
+
+### First and Second Vespers
+
+**49.** What is meant by Lauds I. and Lauds II. is entirely different from what is understood by I. and II. Vespers, as will be readily understood by the following explanation.
+
+*First* Vespers of a feast means a set of Vespers to be said on the day *preceding* the feast, whereas *Second* Vespers always refers to (another set of) Vespers as recited on the very day of the feast itself, e. g., to-day at Vespers it is a question of the second Vespers of the feast celebrated to-day, and of the first Vespers of the feast that is to be celebrated to-morrow.
+
+**50.** Now, all feasts of semi-double rank,[^58] or higher, have first and second Vespers, and it therefore very often occurs that, on a given day, account must be taken of the second Vespers of that day and the first Vespers of the following day. The question naturally suggests itself: Are both sets[^59] of Vespers said? This will be answered by taking the following examples as general principles.
+
+(a) Supposing the Office recited *to-day* is relatively important (e. g., a double), and the Office of to-morrow[^60] is of lower rank (e. g., a semi-double), then to-day's Vespers (i. e., second Vespers) will be said with a commemoration of to-morrow's (first) Vespers. In this case, to-morrow's Vespers is called "*sequens*" (Officium) in relation to to-day's. Thus, to-day we would find written in the Ordo: *In. Vesp. com. seq.*, meaning: in to-day's Vespers, a commemoration of to-morrow's (first) Vespers will be made.
+
+(b) If to-day's Office is of minor importance (e. g., a semi-double), and to-morrow's is of higher rite (e. g., a double), then the first Vespers of to-morrow's
+
+[^58]: Simples have no second Vespers. Ferials have second Vespers only. Vigils have no Vespers. The Offices, as found in the Breviary, begin with first Vespers.
+[^59]: On All Saints' Day two sets of Vespers are said, viz., Vespers of All Saints and Vespers of the Dead. The reason of this is obviously the entirely different character of both Vespers.
+[^60]: Sometimes, on very important feasts, no commemoration is made of "the following," and *vice versa*.
+
+Office will be said to-day, with a commemoration of to-day's (second) Vespers. In this case, to-day's Vespers is called "*Præcedens*" (Officium) in relation to to-morrow's first Vespers recited to-day. Thus, to-day we would find written in the Ordo: *Vesp. de seq. com. præc.*, meaning: The Vespers recited to-day is to-morrow's first Vespers, with a commemoration of to-day's (second) Vespers.
+
+(c) If to-day's Office is of equal importance with to-morrow's (e. g., both are doubles), then the first half of to-day's (second) Vespers will be said, followed by the second half of to-morrow's (first) Vespers. Where are Vespers halved? The bisection, so to say, is made between the antiphon after the last (i. e., fifth) psalm and the Capitulum following it. Thus to-day we would find written in the Ordo: *Vesp. a cap. de seq. com. præc.*, meaning that to-day's second Vespers will be said as far as the Capitulum exclusive, from which part (inclusive), to-morrow's first Vespers will begin, to form thus a complete set of Vespers with a commemoration of to-day's second Vespers, which is regarded as not having been said, since some of its very important parts were omitted.[^61]
+
+**51.** In conclusion, then, it may be easily understood how, on one and the same day, the Office may,
+
+[^61]: The ordinary Sunday's first Vespers is that found in the Psalter for Saturday. The current "Sabbato" in the *Proprium de Tempore* should, however, be first consulted, so that nothing be taken from the Psalter which is given as proper in the *Proprium de Temp.* The *Oration* used is always that of the next day.
+
+---

@@ -32038,4 +32038,49 @@ DEus, qui Ecclésiam tuam in apostólicæ petræ soliditáte fundátam, ab infer
 #### Lectio vii
 *Cap. 16, 13-19*
 
-IN illo témpore : Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens :
+IN illo témpore : Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens : Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ}
+{RUBRIC: Sermo 2 in anniversário assumpt. suæ, ante médium}
+
+CUM, sicut evangélica lectióne resérátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens : Tu es Christus Fílius Dei vivi; Dóminus ait : Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui in cælis est : et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam. Et tibi dabo claves regni cælórum : et quodcúmque ligáveris super terram, erit ligátum et in cælis : et quodcúmque sólveris super terram, erit solútum et in cælis. Manet ergo dispósitio veritátis, et beátus Petrus, in accépta fortitúdine petræ persevérans, suscépta Ecclésiæ gubernácula non relíquit.
+
+{RUBRIC: Pro Pontifice Martyre}
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa. **Glória Patri.** Expréssa.
+
+{RUBRIC: Pro pluribus Pont. Mart.}
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis : \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+{RUBRIC: Pro Pontifice Conf.}
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+{RUBRIC: Pro pluribus Pontif. Conf.}
+
+℟. Beáti, qui custódiunt judícium, \* Et fáciunt justítiam in omni témpore. ℣. Deus judícii Dóminus : beáti omnes, qui exspéctant eum. — Et.
+
+#### Lectio viii
+
+IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis lingua, quæ confitétur Dóminum, magistério hujus vocis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc érutos mundo, ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte muníta est, ut eam neque hærética umquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, rationábili obséquio celebrétur hodiérna festívitas : ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendáta sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.
+
+{RUBRIC: Pro Pontifice Martyre :}
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit : \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. **Glória Patri.** Qui.
+
+{RUBRIC: Sequens Responsorium dícitur, loco præcedéntis, in Offício uníus Mártyris, qui non effúso sánguine occúbuerit.}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis : \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. **Glória Patri.** Posuísti.
+
+{RUBRIC: Pro pluribus Pont. Mart. :}
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis : \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. **Glória Patri.** Mercédem.
+
+{RUBRIC: Pro Pontifice Confessore :}
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. **Glória Patri.** Et.
+
+{RUBRIC: Pro Pontifice Doctore :}
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et implévit. **Glória Patri.** Et implévit.

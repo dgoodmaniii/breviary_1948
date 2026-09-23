@@ -18291,3 +18291,65 @@ BOnórum ómnium largítor, omnípotens Deus, qui beátam Rosam, cæléstis grá
 MAjestátem tuam, Dómine, súpplices exorámus : ut, sicut nos júgiter Sanctórum tuórum commemoratióne lætíficas; ita semper supplicatióne deféndas. Per Dóminum.
 
 {RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis.}
+
+---
+
+### Die 31 Augusti — S. Raymundi Nonnati
+
+{RUBRIC: Confessóris [94] — Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+DEus, qui in liberándis fidélibus tuis ab impiórum captivitáte beátum Raymúndum Confessórem tuum mirábilem effecísti : ejus nobis intercessióne concéde; ut a peccatórum vínculis absolúti, quæ tibi sunt plácita, líberis méntibus exsequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Bonórum ómnium, ut supra. 472
+
+#### In II Nocturno
+
+##### Lectio iv
+
+RAymúndus, Nonnátus cognoménto dictus, quia præter commúnem natúræ legem e mórtuæ matris dissécto látere in lucem edúctus fuit, Portélli in Cataláunia piis et nobílibus paréntibus ortus, ab ipsa infántia futúræ sanctitátis indícia dedit. Nam puerília oblectaménta mundíque illécebras réspuens, ita pietáti óperam dabat, ut omnes in púero adúltam virtútem admiraréntur. Crescénte vero ætáte, litterárum stúdiis incúbuit; sed mox, jubénte patre, vitam ruri agens, sacéllum sancti Nicolái, in Portélli fínibus situm, crebro adíbat, ut sacram Deíparæ imáginem, quæ in eo summa fidélium veneratióne étiam nunc cólitur, visitáret. Ibi effúsus in preces, ipsam Dei paréntem, ut se in fílium adoptáre viámque salútis ac sciéntiam Sanctórum edocére dignarétur, eníxe deprecabátur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+NEC défuit votis ejus benigníssima Virgo. Ab ipsa enim intelléxit gratíssimum sibi fore, si religiónem sub título de mercéde seu de misericórdia redemptiónis captivórum, ea suggerénte nuper fundátam, ingrederétur. Qua monitióne percépta, Barcinónem statim proféctus, illud tam præcelléntis erga próximum caritátis institútum ampléxus est. Regulári ígitur milítiæ adscríptus, virginitátem, quam pridem beátæ Vírgini consecráverat, perpétuo cóluit, ceterísque virtútibus enítuit, caritáte præsértim erga Christiános, qui sub potestáte paganórum míseram in captivitáte vitam degébant. Hos ut redímeret, in Áfricam missus, cum jam multos a servitúte liberásset, ne, consúmpta pecúnia, áliis item in próximo abnegándæ fídei discrímine constitútis deésset, se ipsum pígnori dedit. Sed cum, ardentíssimo salútis animárum desidério succénsus, plures Mahometános suis conciónibus ad Christum convérteret, in arctam custódiam a bárbaris conjéctus variísque supplíciis cruciátus, mox lábiis perforátis et sera férrea clausis, crudéle martýrium diu sustínuit.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+OB hæc et ália fórtiter gesta sanctitátis ejus fama longe latéque diffúsa est. Qua permótus Gregórius nonus, in amplíssimum sanctæ Románæ Ecclésiæ cardinálium collégium Raymúndum adscrípsit. Sed vir Dei, in ea dignitáte ab omni pompa abhórrens, religiósæ humilitátis tenacíssimus semper fuit. Romam vero pergens, statim ac Cardónam pervénit, extrémo morbo conféctus, ecclesiásticis sacraméntis muníri summis précibus postulávit. Cumque morbus ingravésceret et sacérdos diútius tardáret, Angelórum ministério, sub spécie religiosórum sui órdinis apparéntium, salutári Viático reféctus fuit. Quo sumpto et grátiis Deo peráctis, migrávit ad Dóminum Dominica última Augústi anno millésimo ducentésimo quadragésimo. Mórtui corpus, cum circa locum sepultúræ conténtio orta esset, arcæ inclúsum et mulæ cæcæ impósitum, ad sacéllum sancti Nicolái, Dei nutu, delátum fuit, ut ibi tumularétur ubi prima jécerat sanctióris vitæ fundaménta. Illic, constrúcto sui órdinis cœnóbio, a confluéntibus voti causa ex univérsa Cataláunia fidélibus pópulis honorátur, váriis miráculis et signis gloriósus.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+RAymúndus, Nonnátus cognoménto dictus, quia præter commúnem natúræ legem e mórtuæ matris dissécto látere in lucem edúctus fuit, puerí les ludos mundíque illécebras réspuens, ita pietáti óperam dabat, ut omnes in púero adúltam virtútem admiraréntur. Dei Matrem, quam sédulo deprecabátur, summópere diléxit. Religiónem sub título de Mercéde seu de misericórdia redemptiónis captivórum ingréssus, virginitátem, quam pridem beátæ Vírgini consecráverat, perpétuo cóluit, ceterísque virtútibus enítuit, caritáte præsértim erga Christiános, qui sub potestáte paganórum míseram vitam degébant. Eum Gregórius nonus inter patres cardináles adscrípsit; sed vir Dei, in ea dignitáte ab omni pompa abhórrens, religiósæ humilitátis tenacíssimus semper fuit. Cardónæ, extrémo morbo conféctus et Ecclésiæ sacraméntis munítus, migrávit ad Dóminum Domínica última Augústi, anno millésimo ducentésimo quadragésimo.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Sint lumbi, de Comm. Conf. non Pont. 1 loco. [98]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui in liberándis fidélibus tuis ab impiórum captivitáte beátum Raymúndum Confessórem tuum mirábilem effecísti : ejus nobis intercessióne concéde; ut a peccatórum vínculis absolúti, quæ tibi sunt plácita, líberis méntibus exsequámur. Per Dóminum.

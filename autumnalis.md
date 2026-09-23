@@ -29195,3 +29195,69 @@ POst exáctam laudabíliter adolescéntiam cœpit ex cæléstis contemplatiónis
 ##### Lectio vi
 
 REgula própria, ex summi Pontíficis Innocéntii confirmatióne, accépta, in diœcési Meldénsi apud locum qui Cervus Frígidus dícitur, primum órdinis paulo ante a se et sócio exstrúctum cœnóbium ampliávit, ubi religiósam observántiam et redemptiónis institútum mirífice cóluit, ac inde per alúmnos in álias províncias diligentíssime propagávit. Illústrem hic a beáta Vírgine Matre favórem accépit; dormiéntibus síquidem cunctis frátribus et ad matutínas preces in pervigílio Nativitátis Deíparæ média nocte recitándas, Deo sic disponénte, non surgéntibus, Felix, de more vígilans et horas prævéniens, chorum ingréssus, réperit beátam Vírginem in médio chori, hábitu cruce órdinis insigníto indútam, ac Cælítibus simíliter indútis sociátam. Quibus permíxtus Felix, præcinénte Deípara, laudes divínas concínuit ríteque persólvit. Et, quasi jam a terréstri ad cæléstem chorum evocarétur, instántis mortis ab Angelo cértior factus, fílios ad caritátem erga páuperes et captívos adhórtans, ánimam Deo réddidit, ætáte ac méritis consummátus, anno post Christum natum ducentésimo duodécimo supra millésimum, sub eódem Pontífice Innocéntio tértio.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+FElix, Hugo ántea dictus, ex regáli Valesiórum família ortus in Gállia, ab adolescéntia cœpit cæléstis contemplatiónis stúdio solitúdinem cogitáre. Sacérdos factus, in erémum secéssit, ubi cum sancto Joánne de Matha per áliquot annos vixit, donec ambo per Angelum a Deo admóniti Romam petiérunt, ubi a summo Pontífice Innocéntio tértio, cælitus item admónito, approbatiónem novi órdinis ad rediméndos captívos obtinuérunt; quem ex cándidis véstibus, bicolóri cruce signátis, ab Angelo accéptis, idem Póntifex sanctíssimæ Trinitátis nómine decorávit. Mox in diœcési Meldénsi apud locum, qui Cervus Frígidus dícitur, primum órdinis cœnóbium exstruxérunt. Illústrem ibi Felix a beáta Vírgine María favórem accépit, cum eam in médio chori, hábitu cruce órdinis insigníto indútam, réperit. Ætáte ac méritis consummátus, óbiit in Dómino, anno ducentésimo duodécimo supra millésimum.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Nolíte timére, de Communi Confessóris non Pontíficis 2 loco. [105]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui beátum Felícem Confessórem tuum ex erémo ad munus rediméndi captívos cælitus vocáre dignátus es : præsta, quæsumus, ut per grátiam tuam ex peccatórum nostrórum captivitáte, ejus intercessióne, liberáti, ad cæléstem pátriam perducámur. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 21 Novembris
+
+## In Praesentatione beatae Mariae Virginis
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Comm. Festórum B. Maríæ Virg. [174], præter ea quæ hic habéntur própria.}
+
+#### IN I VESPERIS
+
+℣. Dignáre me laudáre te Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Beáta Dei Génitrix, María, \* Virgo perpétua, templum Dómini, sacrárium Spíritus Sancti, sola sine exémplo placuísti Dómino nostro Jesu Christo, allelúja.
+
+**Oratio**
+
+DEus, qui beátam Maríam semper Vírginem, Spíritus Sancti habitáculum, hodiérna die in templo præsentári voluísti : præsta, quæsumus; ut, ejus intercessióne, in templo glóriæ tuæ præsentári mereámur. Per Dóminum... in unitáte ejúsdem Spíritus.
+
+{RUBRIC: Et fit Commemoratio præcedéntis.}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio**
+
+DEus, qui beátum Felícem Confessórem tuum ex erémo ad munus rediméndi captívos cælitus vocáre dignátus es : præsta, quæsumus, ut per grátiam tuam ex peccatórum nostrórum captivitáte, ejus intercessióne, liberáti, ad cæléstem pátriam perducámur. Per Dóminum.
+
+#### AD MATUTINUM
+
+### In II Nocturno
+
+{RUBRIC: Pro hoc Festo simplificato Lectio iv dícitur ut ix.}
+
+{RUBRIC: Ex libro sancti Joánnis Damascéni de fide orthodóxa (Liber 4, cap. 15)}
+
+##### Lectio iv
+
+JOachim lectíssimam illam ac summis láudibus dignam mulíerem Annam matrimónio sibi copulávit. Verum, quemádmodum prisca illa Anna, cum sterilitátis morbo laboráret, per oratiónem ac promissiónem, Samuélem procreávit; eódem modo hæc étiam, per obsecratiónem et promissiónem, Dei Genitrícem a Deo accépit, ut ne hic quoque cuíquam ex illústribus matrónis céderet. Itaque grátia (nam hoc sonat Annæ vocábulum) Dóminam parit (id enim Maríæ nómine significátur). Vere étenim rerum ómnium conditárum Dómina facta est, cum Creatóris Mater éxstitit. In lucem autem éditur in domo probáticæ Jóachim, atque ad templum addúcitur.

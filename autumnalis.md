@@ -35386,3 +35386,35 @@ QUóniam hódie natális est Vírginis, invítat nunc integritátis amor, ut ál
 ℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
 
 **Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+HÆC nubes, áëra, Angelos, sideráque transgrédiens, Verbum Dei in ipso sinu Patris invénit, et toto hausit péctere. Nam quis tantum, cum invénerit, relínquat boni? Unguéntum enim exinanítum est nomen tuum : proptérea adolescéntulæ dilexérunt te et attraxérunt te. Postrémo, non meum est illud quóniam, Quæ non nubunt neque nubéntur, erunt sicut Angeli Dei in cælo. Nemo ergo mirétur, si Angelis comparéntur, quæ Angelórum Dómino copulántur.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+**Bened.** Ignem sui amóris.
+
+#### Lectio vi
+
+QUis ígitur neget hanc vitam fluxísse de cælo, quam non fácile invénimus in terris, nisi postquam Deus in hæc terréni córporis membra descéndit? Tunc in útero Virgo concépit, et Verbum caro factum est, ut caro fíeret Deus. Dicet áliquis : Sed étiam Elías nullíus corpórei cóitus fuísse permíxtus cupiditátibus invenítur. Ideo ergo curru raptus ad cælum; ídeo cum Dómino appáret in glória; ídeo Domínici ventúrus est præcúrsor advéntus.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. **Glória Patri.** Afferéntur tibi.
+
+### In III Nocturno
+
+**Ant.** Nigra sum, \* sed formósa, fíliæ Jerúsalem; ídeo diléxit me Rex, et introdúxit me in cubículum suum.
+
+###### Psalmus 95
+
+CAntáte Dómino cánticum novum : \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus : \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis : \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia : \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus : \* sanctimónia et magnificéntia in sanctificatióne ejus.

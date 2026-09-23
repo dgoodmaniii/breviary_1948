@@ -35937,3 +35937,52 @@ CÆlórum regnum, fratres caríssimi, idcírco terrénis rebus símile dícitur,
 #### Lectio viii
 
 QUa in re hoc quoque notándum est, quod invéntus thesáurus abscónditur, ut servétur : quia stúdium cæléstis desidérii a malígnis spirítibus custodíre non súfficit, qui hoc ab humánis láudibus non abscóndit. In præsénti étenim vita quasi in via sumus, qua ad pátriam pérgimus. Malígni autem spíritus iter nostrum quasi quidam latrúnculi óbsident. Deprædári ergo desíderat, qui thesáurum públice portat in via. Hoc autem dico, non ut próximi ópera nostra bona non vídeant, cum scriptum sit : Vídeant ópera vestra bona, et glorífícent Patrem vestrum, qui in cælis est; sed ut per hoc, quod ágimus, laudes extérius non quærámus. Sic autem sit opus in público, quátenus inténtio máneat in occúlto : ut et de bono ópere próximis præbeámus exémplum, et tamen per intentiónem, qua Deo soli placére quǽrimus, semper optémus secrétum.
+
+{RUBRIC: Pro non Virgine}
+
+℟. Regnum mundi et omnem ornátum sæculi contémpsi, propter amórem Dómini mei Jesu Christi : \* Quem vidi, quem amávi, in quem crédidi, quem diléxi. ℣. Eructávit cor meum verbum bonum : dico ego ópera mea Regi. — Quem. **Glória Patri.** Quem.
+
+{RUBRIC: Pro Virgine}
+
+℟. Média nocte clamor factus est : \* Ecce sponsus venit, exíte óbviam ei. ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. **Glória Patri.** Ecce.
+
+**Bened.** Ad societátem.
+
+#### Lectio ix
+
+THesáurus autem cæléste est desidérium; ager vero, in quo thesáurus abscónditur, disciplína stúdii cæléstis. Quem profécto agrum, vénditis ómnibus, cómparat, qui, voluptátibus carnis renúntians, cuncta sua terréna desidéria per disciplínæ cæléstis custódiam calcat : ut nihil jam, quod caro blandítur, líbeat; nihil, quod carnálem vitam trucídat, spíritus perhorréscat.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+**Ant. 1** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**Ant. 2** In odórem \* unguentórum tuórum cúrrimus : adolescéntulæ dilexérunt te nimis.
+
+**Ant. 3** Jam hiems tránsiit, \* imber ábiit et recéssit : surge, amíca mea, et veni.
+
+**Ant. 4** Veni, elécta mea, \* et ponam in te thronum meum, allelúja.
+
+**Ant. 5** Ista est speciósa \* inter fílias Jerúsalem.
+
+{RUBRIC: Pro Martyre tantum}
+
+**Capitulum** *Eccli. 51, 1-3*
+
+COnfitébor tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo : quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+{RUBRIC: Pro nec Virgine nec Mart.}
+
+**Capit.** *Prov. 31, 10-11*
+
+MUlíerem fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+
+**Hymnus**
+
+FOrtem viríli péctore
+Laudémus omnes féminam,
+Quæ sanctitátis glória
+Ubíque fulget ínclita.

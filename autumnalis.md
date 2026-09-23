@@ -37069,3 +37069,28 @@ IN illo témpore : Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine 
 ET cum venísset ad locum, suspíciens Jesus vidit illum. Perámbulans Jéricho Salvátor, venit ad locum, ubi præcúrrens Zachǽus sycómorum conscénderat : quia, missis per mundum sui verbi præcónibus, in quibus ipse nimírum et loquebátur et ibat, venit ad pópulum natiónum, qui passiónis ejus fide jam sublímis exsístens, étiam divinitátis ejus ardébat ágnita fácie beári. Suspíciens vidit illum, quia per grátiam fídei a terrénis cupiditátibus elevátum, turbísque infidélibus præeminéntem elégit. Vidére enim Dei, elígere vel amáre est; unde est illud : Oculi Dómini super justos. Nam et nos quæ amámus, vidére; ab his, quæ exsecrámur, intúitum festinámus avértere.
 
 ℟. Domus mea domus oratiónis vocábitur, dicit Dóminus : in ea omnis qui petit, áccipit; et qui quærit, invénit; \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quærite, et inveniétis. — Et.
+
+#### Lectio viii
+
+VIdit ergo Jesus vidéntem se, quia elégit eligéntem se, et amávit amántem. Hunc sane órdinem proficiéndi, hoc est, per fidem Domínicæ incarnatiónis ad cognitiónem divinitátis perveniéndi, quasi per sycómorum Jesu fáciem speculándi, Doctor egrégius osténdit, cum ait : Non enim judicávi scire me áliquid inter vos, nisi Christum Jesum, et hunc crucifíxum. Itémque áliis éxprobrans : Facti estis, inquit, quibus lacte opus sit, non sólido cibo; lac infírma temporáriæ dispensatiónis, sólidum cibum árdua perpétuæ majestátis appéllans.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. **Glória Patri.** Et.
+
+#### Lectio ix
+
+ET dixit ad eum : Zachǽe, festínans descénde, quia hódie in domo tua opórtet me manére. Et festínans descéndit, et excépit illum gaudens. Manébat aliquándo Dóminus in domo príncipis pharisæórum, hoc est, in Judæórum synagóga docébat. Sed quia non baptizátum ante prándium, sábbato curántem, publicános et peccatóres recipiéntem, contra avarítiam disputántem, et cétera digna Deo geréntem, lingua venenáta carpébant; pertǽsus eórum facínora, discéssit et aufúgit, dicens : Relinquétur vobis domus vestra desérta. Hódie autem in domo pusílli Zachǽi opórtet illum manére : hoc est, novæ lucis grátia coruscánte, in húmili credéntium natiónum corde quiéscere.
+
+**Te Deum laudámus.**
+
+## Die VII infra Octavam Dedicationis Ecclesiae
+
+{RUBRIC: Semiduplex}
+
+### In II Nocturno
+
+**Sermo sancti Joánnis Chrysóstomi**
+*Homilía 33 in cap. 9 Matth.*
+
+#### Lectio iv
+
+COmmúnis ómnium domus est ecclésia, in quam, vobis prius ingréssis, nos intrámus, discipulórum formam retinéntes. Ideóque commúniter ómnibus statim atque ingréssi fúerimus, ut illis datam legem sequámur, pacem offérimus. Nemo ígitur socórdia tórpeat, nemo sæculáribus

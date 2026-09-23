@@ -795,6 +795,68 @@ Should any Little Hour or Hours be recited immediately after Lauds, the antiphon
 
 ### Lauds of the First and Second Schemes
 
-**35.** In looking through the *Psalter*, the student may have noticed the expressions: *Ad Laudes I.*
+**35.** In looking through the *Psalter*, the student may have noticed the expressions: *Ad Laudes I.* and *Ad Laudes II.* This simply means that Lauds has *two* sets of five psalms with their antiphons.
+
+Lauds II., like the *Preces feriales*, is always used on *ferials of a penitential character*,[^47] e. g., on days of Advent and Lent. This is better understood from the fact that the first psalm in Lauds of the second scheme is *always* the *Miserere*. The ordinary psalms of Lauds (i. e., the "Ad Laudes I." set) are used on all other days.
+
+What is the difference between both sets? The only important difference is that the first psalm[^48] in Lauds I. becomes the *Miserere* in Lauds II., for example:
+
+*Lauds I. of Tuesday:*
+
+1. Cantate Domino (Ps. 95).
+2. Judica me.
+3. Deus misereatur nostri.
+4. (*Canticle*[^49] of Tobias).
+5. Laudate nomen Dni.
+
+*Lauds II. of Tuesday:*
+
+1. Miserere mei, Deus (Ps. 50).
+2. Judica me.
+3. Deus misereatur nostri.
+4. (Canticle of Ezechias).
+5. Laudate nomen Dni.
+
+**36.** The psalm in Lauds I., replaced by the *Miserere* in Lauds II., will not be omitted in the Office
+
+[^47]: The days for saying Lauds II. are not exactly the same as those on which the "*Preces feriales*" are recited, e. g., the Lauds II. psalms are said on ordinary *ferials* of Septuagesima week when there is no question of "*Preces feriales*."
+[^48]: The antiphons of both sets are all different.
+[^49]: In every Lauds this n. 4 is always a canticle, but, for practical purposes, it has been called a psalm in these pages.
+
+on that account. It is added to the ordinary three psalms of Prime, where, therefore, it is not surprising to find the following Rubric: "Quando ad Laudes dictus fuerit Psalmus 50. *Miserere*, hic subjungitur Psalmus 95. *Cantate Domino*, qui in Laudibus locum non habuit; secus vero, tribus Psalmis expletis, statim dicitur Antiphona."
+
+These explanations hold good for every day except Sunday. This exception will be understood by the following scheme:
+
+*Lauds I. of Sunday:*
+
+1. Dominus regnavit (Ps. 92).
+2. Jubilate Deo (Ps. 99).
+3. Deus, Deus meus.
+4. (Canticle of the Three Young Men.)
+5. Laudate Dominum.
+
+*Lauds II. of Sunday:*
+
+1. Miserere (Ps. 50).
+2. Confitemini Domino (Ps. 117).
+3. Deus, Deus meus.
+4. (Canticle[^50] of the Three Young Men.)
+5. Laudate Dominum.
+
+Now the ordinary Sunday psalms of Prime are:
+
+1. Confitemini Domino (Ps. 117).
+2. Beati immaculati.
+3. Retribue servo tuo.
+
+In comparing these schemes, therefore, it is found at Prime that, whereas the psalm *Confitemini* has already been said in Lauds II., the psalms *Dominus regnavit* and *Jubilate Deo* of Lauds I. have been omitted, since they were not said in Lauds II. The following Rubric, then, found *before* the Sunday
+
+[^50]: This canticle is *not* the same as the one referred to in Lauds I.
+
+psalms of Prime, will settle the question: "Ad Primam loco sequentis Psalmi 117. *Confitemini*, dicuntur Psalmi 92. *Dominus regnavit* et 99. *Jubilate*, qui in Laudibus locum non habuerint." Thus does the Church, for good reasons, avoid either the omission or the repetition of any psalm in the same Office.
+
+**37.** The explanations just given lead to an inquiry into the singular fact that, for the third nocturn of *Wednesday* — and for that nocturn alone — two sets of three psalms are given in the Psalter thus: "In III. Nocturno I.," and "In III. Nocturno II."
+
+On examining the first set of psalms it is found that the *Miserere* is one of them; but, if at Lauds the second scheme is used, it would mean a repetition of the *Miserere*. The Church, therefore, to avoid this, has given a second set of psalms to the nocturn in question (leaving unchanged its remaining two psalms), which second set of psalms is used on ferials requiring Lauds II.
 
 ---

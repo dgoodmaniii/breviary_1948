@@ -33797,3 +33797,25 @@ Dómini est salus : \* et super pópulum tuum benedíctio tua.
 *Cap. 3, 1-7*
 
 FIdélis sermo : Si quis episcopátum desíderat, bonum opus desíderat. Opórtet ergo epíscopum irreprehensíbilem esse, uníus uxóris virum, sóbrium, prudéntem, ornátum, pudícum, hospitálem, doctórem, non vinoléntum, non percussórem, sed modéstum; non litigiósum, non cúpidum, sed suæ dómui bene præpósitum, fílios habéntem súbditos cum omni castitáte. Si quis autem dómui suæ præésse nescit, quómodo Ecclésiæ Dei diligéntiam habébit? Non neóphytum, ne, in supérbiam elátus, in judícium íncidat diáboli. Opórtet autem illum et testimónium habére bonum ab iis qui foris sunt, ut non in oppróbrium íncidat, et in láqueum diáboli.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam : \* Intra in gáudium Dómini tui. ℣. Dómine, quinque talénta tradidísti mihi, ecce, ália quinque superlucrátus sum. — Intra.
+
+**Benedictio.** Unigénitus Dei.
+
+{RUBRIC: De Epístola ad Titum}
+
+#### Lectio ii
+*Cap. 1, 7-11*
+
+OPórtet enim epíscopum sine crímine esse, sicut Dei dispensatórem : non supérbum, non iracúndum, non vinoléntum, non percussórem, non turpis lucri cúpidum; sed hospitálem, benígnum, sóbrium, justum, sanctum, continéntem, amplecténtem eum, qui secúndum doctrínam est, fidélem sermónem : ut potens sit exhortári in doctrína sana, et eos, qui contradícunt, argúere. Sunt enim multi étiam inobediéntes, vaníloqui et seductóres : máxime qui de circumcisióne sunt : quos opórtet redárgui : qui univérsas domos subvértunt, docéntes quæ non opórtet, turpis lucri grátia.
+
+℟. Ecce sacérdos magnus, qui in diébus suis plácuit Deo : \* Ideo jurejurándo fecit illum Dóminus créscere in plebem suam. ℣. Benedictiónem ómnium géntium dedit illi, et testaméntum suum confirmávit super caput ejus. — Ideo.
+
+**Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+*Cap. 2, 1-8*
+
+TU autem lóquere quæ decent sanam doctrínam : Senes ut sóbrii sint, pudíci, prudéntes, sani in fide, in dilectióne, in patiéntia : Anus simíliter in hábitu sancto, non criminatríces, non multo vino serviéntes, bene docéntes : ut prudéntiam dóceant adolescéntulas, ut viros suos ament, fílios suos díligant, prudéntes, castas, sóbrias, domus curam habéntes, benígnas, súbditas viris suis, ut non blasphemétur verbum Dei. Júvenes simíliter hortáre ut sóbrii sint. In ómnibus teípsum præbe exémplum bonórum óperum, in doctrína, in integritáte, in gravitáte, verbum sanum, irreprehensíbile : ut is, qui ex advérso est, vereátur, nihil habens malum dícere de nobis.
+
+℟. Jurávit Dóminus, et non pænitébit eum : \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. ℣. Dixit Dóminus Dómino meo : Sede a dextris meis. — Tu. **Glória Patri.** Tu.

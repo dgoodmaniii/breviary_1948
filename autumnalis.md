@@ -34224,3 +34224,24 @@ SEd illi viri misericórdiæ sunt, quorum pietátes non defuérunt : cum sémine
 BEáti Patris N. mérita, jam in tuto pósita, secúri magnificémus; qui, gubernáculum fídei viríliter tenens, ánchoram spei tranquílla jam in statióne compósuit, et plenam cæléstibus divítiis et ætérnis mércibus navem optáto in líttore collocávit. Qui, contra omnes adversários, scutum timóris Dei tamdiu infatigábiliter ténuit, donec ad victóriam pervenéret. Quid enim fuit totus vitæ illíus cursus, nisi uníus cum vígili hoste conflíctus?
 
 ℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+#### Lectio v
+
+QUantis hic cæcis, a via veritátis errántibus et de summa jam in profúndum rupe pendéntibus, amíssum réddidit visum; et illum, quo Christus viderétur, reparávit intúitum? Quantórum áuribus surdis et infidelitátis obturatióne damnátis, ad percipiéndam vocem cæléstium mandatórum, pretiósum infúdit audítum? ut vocánti Deo ad misericórdiam respondérent per obediéntiam? Quantos intrínsecus vulnerátos, angélici oris arte et oratiónum, ab infirmitáte curávit?
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea : \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+#### Lectio vi
+
+QUantos, per longam incúriam peccáti labe resolútos et quadam lepræ contagióne perfúsos, castigatiónibus et exhortatiónibus expiándo, Deo in se operánte, mundávit? Quantórum ánimas, vivéntes in córpore jam defúnctas et delictórum mole óbrutas ac sepúltas, ad emendatiónem tamquam ad lucem vocándo, Deo resuscitávit; ut, Dómini sui admirándus imitátor, jam mórtuas Deo, e contrário mortíficet, vitáli morte, peccáto?
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. **Glória Patri.** Ipse.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 24, 42-47*
+
+IN illo témpore : Dixit Jesus discípulis suis : Vigiláte, quia nescítis qua hora Dóminus vester ventúrus sit. Et réliqua.

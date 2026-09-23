@@ -2112,4 +2112,103 @@ A. M. D. G.
 **Commune Sanctorum:** 5, (e).
 **Compline:** 72; on important feasts, 59.
 
+**Conclusion:** of Orations, 31.
+**Concurrence:** of Offices, 96 seqq.; Breviary table of, 96, note; rules of, 97 seqq.
+**Confitemini,** ps., 36.
+**Confiteor:** 27, note; 68, note.
+**Consecrated church:** 73.
+**Credo:** at beginning of Matins and Prime, 14.
+**Cross:** sign of the, 70.
+
+**DAYS:** of the week, 4; 5, (c).
+**Dates:** 4; 5, (d).
+**Dedication:** meaning of, 74 and 76; office of the, 117.
+**De ea:** meaning of, 4.
+**Deus, in nomine tuo:** ps. at Prime, 59.
+**Dignity:** when comparing two Offices, 88, (d).
+**Divisions:** of the Breviary, 5.
+**Domne:** 17.
+**Dominica:** 4.
+**Dominus regnavit:** in Sunday Prime, 36.
+**Doubles:** 3.
+**Doubling antiphons:** (saying them entire), 9.
+**Doxology:** of hymns, 11; Append., 9.
+
+**ENDING:** of an Hour, 7; of Matins, 22; of Prime, 47.
+**External solemnity of Titular transferred:** Append., 13.
+
+**FEAST:** primary and secondary, 88, c.; dignity of, 88, (c).
+**Feria:** 4; meaning of, 81, note.
+**Ferial Offices:** 4; ninth Lesson from, 19, (b).
+**Feriation:** 81, note; 88, (b), note.
+**Festal Offices,** 4; ninth Lesson from, 19, (a).
+
+**GLORIA PATRI:** after pss., 10; after last Responsorium in each Nocturn, 21 and 25.
+
+**HISTORICAL Lessons,** 18, c.
+**Homily:** 18, B.
+
+---
+
+**Hours:** 6; when they are to be said, 65.
+**Hymns:** 11; rules for conclusion of, Append., 9.
+
+**IMPEDED:** Offices, 83; feast of Titular, Append., 10.
+**Interruption:** of an Hour, 65, (d).
+**Invitatory:** how said, 15.
+
+**LAUDS:** 26 seqq.; of first and second Schemes, 35.
+**Laus tibi, Domine:** 7.
+**Lectio brevis:** of Prime, 43.
+**Lessons:** 18; "Tu autem" after, 12, B; ferial, 25; Matins of three, 23 seqq.; on feasts, 55, (a); on ferials and Sundays, 55, (b); historical, 107.
+**Litany:** on Rogation Days, Append., 5, (b).
+**Little Hours:** 6.
+
+**MAJOR Sundays:** 61; ferials, 62.
+**Mass:** of Titular, 116.
+**Matins:** of nine Lessons, 13 seqq.; of three Lessons, 23 seqq.; ninth Lesson in, 106; Matins and Lauds before Mass, Append., 5, (c).
+**Meter:** of hymns, 11.
+**Missionary:** and Titular of church, 79.
+**Modus ordinarius:** 54.
+**Modus solemnis:** 56; what feasts fall under, 57.
+
+**NEW Rubrics:** in the Office, 76; in the new Missal, Append., 10 seqq.
+**Ninth Lesson:** 19 and 106.
+
+**OCCURRENCE:** meaning of, 81; inclusive and exclusive, 82; rules of, 84 seqq. and 87 seqq.; and octaves, 89 seqq.
+**Octavarium Romanum:** 114, (b).
+**Octave:** feasts having, 3; Office during an, 57, note; privileged, 64, (a); sometimes said "modo solemni," 89 seqq.; common, 64, (b); simple, 64, (c); occurrence and, 89 seqq.; sometimes ceases, 89, (b); days within
+
+---
+
+an, 89, (c) and (d); two octaves occurring in honor of the same person, 89, (g); of Titular, 113.
+
+**Office:** ferial and festal, 4; one in place of another, 66.
+**Omission:** of part of the Office, 67.
+**Orations:** 30 seqq.; on ferials, 30; preceded by "Oremus," 30; in Saturday's Vespers, 30, note; conclusion of, 31.
+**Order:** in Hours of the Office, Append., 3; of Commemorations, Append., 8.
+**Ordinarium:** 5, (a); 54.
+**Oremus:** precedes Orations, 30.
+
+**PATER NOSTER:** its recitation in secret, 7; at end of an Hour, 8.
+**Patron:** meaning of, 75; principal, 109; secondary, 110.
+**Penance:** on ordination to subdeaconship, Append., 4; its obligation, Append., 5, (d).
+**Place:** to read the Office, 69.
+**Position:** in reading Office, 69 and note.
+**Præcedens (officium):** 101; at Vespers, 50, (b).
+**Preces dominicales:** 44.
+**Preces feriales:** 27 seqq.; when said, 28; where said, 29.
+**Preference:** of feasts, 81.
+**Priests:** concerned with Titular and Dedication, 77; parish-priest having more than one church, 78.
+**Primary:** Doubles of first class that are, 85, note; feasts, 88, (c).
+**Prime:** 42 seqq.; fourth ps. in, 36 and 45; "Lectio brevis" of, 43; Athanasian Creed at, 46; ending of, 47; Sunday at, 59; feast-days at, 59.
+**Privileged:** Octaves said "modo solemni," 89, (f).
+**Pronunciation:** when reading Office, 68.
+
+**Proper:** feast that is, 88, (e).
+**Proprium de Tempore:** 5, (c).
+**Proprium Sanctorum:** 5, (d).
+**Psalms:** 9 and 10; in Matins of three Lessons, 23; taken from current day, 54.
+**Psalter:** 5, (b).
+
 ---

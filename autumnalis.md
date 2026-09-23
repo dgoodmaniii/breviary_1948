@@ -39082,4 +39082,46 @@ REspónde mihi : Quantas hábeo iniquitátes et peccáta, scélera mea et delíc
 
 HOmo natus de muliére, brevi vivens témpore, replétur multis misériis. Qui quasi flos egréditur et contéritur, et fugit velut umbra, et numquam in eódem statu pérmanet. Et dignum ducis super hujuscémodi aperíre óculos tuos, et addúcere eum tecum in judícium? Qui potest fácere mundum de immúndo concéptum sémine? Nonne tu qui solus es? Breves dies hóminis sunt, númerus ménsium ejus apud te est : constituísti términos ejus, qui prætériri non póterunt. Recéde páululum ab eo, ut quiéscat, donec optáta véniat, sicut mercenárii, dies ejus.
 
-℟. Hei mihi, Dómine, quia peccávi nimis in vita mea : Quid fáciam, miser? ubi fúgiam, nisi ad te, Deus meus? \* Miserére mei, dum véneris in novíssimo die. ℣. Anima mea turbáta est
+℟. Hei mihi, Dómine, quia peccávi nimis in vita mea : Quid fáciam, miser? ubi fúgiam, nisi ad te, Deus meus? \* Miserére mei, dum véneris in novíssimo die. ℣. Anima mea turbáta est valde, sed tu, Dómine, succúrre ei. — Miserére mei, dum véneris in novíssimo die.
+
+#### Lectio vi
+
+*Job 14, 13-16*
+
+QUis mihi hoc tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, et constítuas mihi tempus in quo recordéris mei? Putásne mórtuus homo rursum vivat? Cunctis diébus quibus nunc mílito, exspécto donec véniat immutátio mea. Vocábis me, et ego respondébo tibi; óperi mánuum tuárum pórriges déxteram. Tu quidem gressus meos dinumerásti, sed parce peccátis meis.
+
+℟. Ne recordéris peccáta mea, Dómine, \* Dum véneris judicáre sǽculum per ignem. ℣. Dírige, Dómine, Deus meus, in conspéctu tuo viam meam. — Dum. Réquiem ætérnam dona eis, Dómine : et lux perpétua lúceat eis. Dum.
+
+{RUBRIC: Postea ad Laudes, ut infra [222], quando dícitur unum tantum Noctúrnum.}
+
+### In III Nocturno
+
+{RUBRIC: Pro Féria IV et Sábbato}
+
+**Ant.** Compláceat \* tibi, Dómine, ut erípias me : Dómine, ad adjuvándum me réspice.
+
+###### Psalmus 39
+
+EXspéctans exspectávi Dóminum, \* et inténdit mihi.
+
+Et exaudívit preces meas : \* et edúxit me de lacu misériæ, et de luto fæcis.
+
+Et státuit super petram pedes meos : \* et diréxit gressus meos.
+
+Et immísit in os meum cánticum novum, \* carmen Deo nostro.
+
+Vidébunt multi, et timébunt : \* et sperábunt in Dómino.
+
+Beátus vir, cujus est nomen Dómini spes ejus : \* et non respéxit in vanitátes et insánias falsas.
+
+Multa fecísti tu, Dómine, Deus meus, mirabília tua : \* et cogitatiónibus tuis non est qui símilis sit tibi.
+
+Annuntiávi et locútus sum : \* multiplicáti sunt super númerum.
+
+Sacrifícium et oblatiónem noluísti : \* aures autem perfecísti mihi.
+
+Holocáustum et pro peccáto non postulásti : \* tunc dixi : Ecce, vénio.
+
+In cápite libri scriptum est de me ut fácerem voluntátem tuam : \* Deus meus, vólui, et legem tuam in médio cordis mei.
+
+Annuntiávi justítiam tuam in ecclésia magna, \*

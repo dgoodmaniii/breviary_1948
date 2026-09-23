@@ -22972,3 +22972,60 @@ Verbum, quod ante sǽcula
 E mente Patris pródiit,
 E Matris alvo Vírginis,
 Mortális Infans, náscitur.
+
+Templo puéllus sístitur,
+Legíque paret Légifer,
+Hic se Redémptor páupere
+Prétio redémptus immolat.
+
+Quem jam dolébat pérditum,
+Mox læta Mater invénit
+Ignóta doctis méntibus
+Edisseréntem Fílium.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Regína sacratíssimi Rosárii, ora pro nobis. ℟. Ut digni efficiámur promissiónibus Christi.
+
+**Ad Magnif. Ant.** Beáta es, \* Virgo María, Dei Génitrix, quæ credidísti Dómino; perfécta sunt in te quæ dicta sunt tibi, intercéde pro nobis ad Dóminum, Deum nostrum.
+
+**Oratio**
+
+DEus, cujus Unigénitus per vitam, mortem et resurrectiónem suam nobis salútis ætérnæ prǽmia comparávit : concéde, quǽsumus; ut, hæc mystéria sacratíssimo beátæ Maríæ Vírginis Rosário recoléntes, et imitémur quod cóntinent, et quod promíttunt, assequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio tantum præcedéntis :}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio**
+
+SAncti Brunónis Confessóris tui, quǽsumus, Dómine, intercessiónibus adjuvémur : ut, qui majestátem tuam gráviter delinquéndo offéndimus, ejus méritis et précibus, nostrórum delictórum véniam consequámur. Per Dóminum.
+
+#### AD MATUTINUM
+
+**Invitat.** Solemnitátem Rosárii Vírginis Maríæ celebrémus : \* Christum ejus Fílium adorémus Dóminum.
+
+**Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus**
+
+IN monte olívis cónsito
+Redémptor orans prócidit,
+Mæret, pavéscit, déficit,
+Sudóre manans sánguinis.
+
+A proditóre tráditus
+Raptátur in pœnas Deus,
+Durísque vinctus néxibus,
+Flagris cruéntis cǽditur.
+
+Intéxta acútis séntibus,
+Coróna contuméliæ,
+Squalénti amíctum púrpura,
+Regem corónat glóriæ.

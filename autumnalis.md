@@ -29104,4 +29104,64 @@ ELísabeth, Andréæ regis Hungáriæ fília, ab infántia Deum timére cœpit; 
 
 ##### Lectio v
 
-DEfúncto cónjuge, ut Deo libérius servíret, depósitis ómnibus sæculáris glóriæ induméntis, vili túnica indúta est, atque, órdinem Pœniténtium sancti Francísci ingréssa, patiéntiæ et humilitátis virtúte máxime enítuit. Nam, bonis ómnibus exúta, a própriis ædibus ejécta, ab ómnibus derelícta, contumélias, irrisiónes, obtrectatiónes invícto ánimo tolerávit, ádeo ut summópere gaudéret se tália pro Deo pati.
+DEfúncto cónjuge, ut Deo libérius servíret, depósitis ómnibus sæculáris glóriæ induméntis, vili túnica indúta est, atque, órdinem Pœniténtium sancti Francísci ingréssa, patiéntiæ et humilitátis virtúte máxime enítuit. Nam, bonis ómnibus exúta, a própriis ædibus ejécta, ab ómnibus derelícta, contumélias, irrisiónes, obtrectatiónes invícto ánimo tolerávit, ádeo ut summópere gaudéret se tália pro Deo pati. Ad ínfima quæque ministéria erga páuperes et ægrótos se abjíciens, eis necessária procurábat, solis oléribus et legumínibus pro suo victu conténta.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+CUM vero in his aliísque plúrimis sanctis opéribus vitam religiosíssime transegísset, finis tandem suæ peregrinatiónis advénit, quem domésticis suis ante prædíxit. Cumque, defíxis in cælum óculis, divínæ contemplatióni vacáret, a Deo mirabíliter recreáta et sacraméntis refécta, obdormívit in Dómino. Statímque plúrima ad ejus túmulum miácula patráta sunt. Quibus audítis et rite probátis, Gregórius nonus Sanctórum número eam adscrípsit.
+
+℟. Fallax grátia, et vana est pulchritúdo : \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. Glória Patri. Múlier.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+ELísabeth, Andréæ regis Hungáriæ fília, ab infántia timére Deum cœpit; et, crescens ætáte, crevit étiam pietáte. Ludovíco Lantgrávio Hássiæ et Thuríngiæ in cónjugem copuláta, non minóri cura quæ Dei quam quæ viri sui erant, exsequebátur. Oratióni assídue incúmbens et misericórdiæ opéribus dédita, víduis, pupíllis, ægrótis, egéntibus sédulo inserviébat, in quorum étiam levámen insígne xenodochíum constrúxit. Defúncto cónjuge, ut Deo libérius servíret, vili túnica indúta est, atque órdinem Pœniténtium sancti Francísci ingréssa, patiéntiæ et humilitátis virtúte máxime enítuit. Nam bonis ómnibus exúta, a própriis dómibus ejécta, ab ómnibus derelícta, contumélias, irrisiónes, obtrectatiónes invícto ánimo tolerávit, ádeo ut summópere gaudéret se tália pro Deo pati. Cum tandem in sanctis opéribus vitam religiosíssime transegísset, obdormívit in Dómino. Eam, miráculis claram, Gregórius nonus in Sanctórum número réttulit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile est, de Communi non Vírginum. [134]}
+
+{RUBRIC: Pro S. Pontiano Papa et Mart.}
+
+##### Lectio ix
+
+POntiánus, Románus, præfuit Ecclésiæ Alexándro imperatóre; qui sanctum Pontíficem, propter christiánæ fídei confessiónem, in Sardíniam ínsulam cum Hippólyto presbýtero relegávit. Ubi is, pro Christi fide multis calamitátibus afflíctus, tértio Kaléndas Novémbris e vita migrávit. Ejus corpus, Fabiáno Pontífice, cum clero Romam delátum, in cœmetério Callísti via Áppia sepelítur. Sedit annos quátuor, menses quátuor, dies vigínti quinque. Fecit ordinatiónes duas mense Decémbri, quibus creávit presbýteros sex, diáconos quinque, epíscopos per divérsa loca sex.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+**Oratio**
+
+TUórum corda fidélium, Deus miserátor, illústra : et, beátæ Elísabeth précibus gloriósis; fac nos próspera mundi despícere, et cælésti semper consolatióne gaudére. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Pontiani Papæ et Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Pontiánum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 20 Novembris
+
+## S. Felicis de Valois
+
+{RUBRIC: Confessoris [94] Duplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.

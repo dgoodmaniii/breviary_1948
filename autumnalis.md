@@ -24606,3 +24606,239 @@ Amen.
 **Oratio**
 
 DA, quǽsumus, omnípotens Deus : ut, sancti Joánnis Confessóris exémplo in sciéntia Sanctórum profíciéntes, atque áliis misericórdiam exhibéntes; ejus méritis, indulgéntiam apud te consequámur. Per Dóminum.
+
+#### IN II VESPERIS
+
+{RUBRIC: Capit. et Hymnus Gentis Polónæ, ut in I Vesp. 673}
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir, despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commemoratio sequéntis ac Ss. Ursulæ et Sociárum Vv. et Mm. ut infra.}
+
+---
+
+## Die 21 Octobris — S. Hilarionis
+
+{RUBRIC: Abbátis [107] Simplex}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+*C 4*
+
+INtercéssio nos, quǽsumus, Dómine, beáti Hilariónis Abbátis comméndet : ut, quod nostris méritis non valémus, ejus patrocínio assequámur. (Per Dóminum.)
+
+{RUBRIC: Pro Commem. Ss. Ursulæ et Sociárum Vv. et Mart. :}
+
+**Ant.** Prudéntes Vírgines, aptáte vestras lámpades : ecce Sponsus venit, exíte óbviam ei.
+
+℣. Adducéntur Regi Vírgines post eam. ℟. Próximæ ejus afferéntur tibi.
+
+##### Lectio iii
+
+HIlárion, ortus Tabáthæ in Palæstína ex paréntibus infidélibus, Alexandríam missus studiórum causa, ibi morum et ingénii laude flóruit; ac, Jesu Christi suscépta religióne, in fide et caritáte mirabíliter profécit. Frequens enim erat in ecclésia, assíduus in jejúnio et oratióne; omnes voluptátum illécebras et terrenárum rerum cupiditátes contemnébat. Cum autem Antónii nomen in Ægýpto celebérrimum esset, ejus vidéndi stúdio in solitúdinem conténdit; apud quem duóbus ménsibus omnem ejus vitæ ratiónem dídicit. Domum revérsus, mórtuis paréntibus, facultátes suas paupéribus dilargítus est; necdum quintum décimum annum egréssus, rédiit in solitúdinem, ubi, exstrúcta exígua casa, quæ vix ipsum cáperet, humi cubábat. Nec vero saccum, quo semel amíctus est, umquam aut lavit aut mutávit, cum supervacáneum esse díceret, mundítias in cilício quǽrere. In sanctárum Litterárum lectióne et meditatióne multus erat. Paucas ficus et succum herbárum ad víctum adhibébat; nec illis ante solis occásum vescebátur. Continéntia et humilitáte fuit incredíbili. Quibus alíisque virtútibus várias horribilésque tentatiónes diáboli superávit, et innumerábiles dæmones in multis orbis terræ pártibus ex hóminum corpóribus ejécit. Qui, octogésimum annum agens, multis ædificátis monastériis, et clarus miráculis, in morbum íncidit; cujus vi cum extrémo pene spíritu conflictarétur, dicébat : Egrédere, quid times? egrédere, ánima mea, quid dúbitas; septuagínta prope annis servísti Christo, et mortem times? Quibus in verbis spíritum exhalávit.
+
+**Te Deum.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+{RUBRIC: Pro Commem. Ss. Ursulæ et Sociárum Vv. et Mm. :}
+
+**Ant.** Prudéntes, ℣. Adducéntur
+
+**Oratio** Da nobis, ut supra ad Vésperas.
+
+---
+
+## Die 24 Octobris — S. Raphaëlis Archangeli
+
+{RUBRIC: Duplex majus}
+
+#### IN I VESPERIS
+
+**Ant. 1** Missus est \* Angelus Ráphael ad Tobíam et Saram, ut curáret eos.
+
+{RUBRIC: Psalmi de Dominica 59, sed loco últimi Ps. 116 Laudáte Dóminum, omnes gentes 76, vel, si II Vésperæ de hoc Festo non sint dicéndæ, Ps. 137 Confitébor, ut infra.}
+
+**Ant. 2** Ingréssus Angelus \* ad Tobíam salutávit eum, et dixit : Gáudium sit tibi semper.
+
+**Ant. 3** Forti ánimo \* esto, Tobía : in próximo enim est ut a Deo curéris.
+
+**Ant. 4** Benedícite Deum cæli, \* et coram ómnibus vivéntibus confitémini illi, quia fecit vobíscum misericórdiam suam.
+
+**Ant. 5** Pax vobis, \* nolíte timére : Deum benedícite, et cantáte illi.
+
+{RUBRIC: In II Vesperis, loco últimi Psalmi :}
+
+**Psalmus 137**
+
+CONfitébor tibi, Dómine, in toto corde meo : \* quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi : \* adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua : \* quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me : \* multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ : \* quia audiérunt ómnia verba oris tui :
+
+Et cantent in viis Dómini : \* quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit : \* et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me : \* et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me : \* Dómine, misericórdia tua in sǽculum : ópera mánuum tuárum ne despícias.
+
+**Ant.** Pax vobis, nolíte timére : Deum benedícite, et cantáte illi.
+
+**Capitulum**
+*Tob. 12, 12*
+
+QUando orábas cum lácrimis, et sepeliébas mórtuos, et derelinquébas prándium tuum, et mórtuos abscondébas per diem in domo tua, et nocte sepeliébas eos, ego óbtuli oratiónem tuam Dómino.
+
+**Hymnus**
+
+CHriste, sanctórum decus Angelórum,
+Gentis humánæ sator et redémptor,
+Cælitum nobis tríbuas beátas
+Scándere sedes.
+
+Angelus nostræ médicus salútis
+Adsit e cælo Ráphael, ut omnes
+Sanet ægrótos, dubiósque vitæ
+Dírigat actus.
+
+Virgo dux pacis, Genitríxque lucis,
+Et sacer nobis chorus Angelórum
+Semper assístat, simul et micántis
+Régia cæli.
+
+Præstet hoc nobis Déitas beáta
+Patris, ac Nati, paritérque Sancti
+Spíritus, cujus résonat per omnem
+Glória mundum.
+Amen.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+**Ad Magnif. Ant.** Ego sum Ráphaël Angelus, \* qui asto ante Dóminum : vos autem benedícite Deum, et narráte ómnia mirabília ejus, allelúja.
+
+#### IN II VESPERIS
+
+**Ad Magnif. Ant.** Princeps gloriosíssime, \* Ráphael Archángele, esto memor nostri; hic et ubíque semper precáre pro nobis Fílium Dei.
+
+**Oratio**
+
+DEus, qui beátum Ráphaélem Archángelum Tobíæ fámulo tuo cómitem dedísti in via : concéde nobis fámulis tuis; ut ejúsdem semper protegámur custódia et muniámur auxílio. Per Dóminum.
+
+{RUBRIC: Completórium de Dominica.}
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Archangelórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus** Christe, sanctórum, ut supra. 680
+
+### In I Nocturno
+
+**Ant.** Egréssus Tobías \* invénit júvenem præcínctum, et quasi parátum ad ambulándum, et ignórans quod Angelus esset, salutávit eum.
+
+**Psalmus 8**
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum : \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas : ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Egréssus Tobías invénit júvenem præcínctum, et quasi parátum ad ambulándum, et ignórans quod Angelus esset, salutávit eum.
+
+**Ant.** Angelus Ráphaël \* seípsum occúltans, ait : Ego sum Azarías, magni Ananíæ fílius.
+
+**Psalmus 10**
+
+IN Dómino confído : \* quómodo dícitis ánimæ meæ : Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti destruxérunt : \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus :
+
+Óculi ejus in páuperem respíciunt : \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium : \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos : \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit : \* æquitátem vidit vultus ejus.
+
+**Ant.** Angelus Ráphaël seípsum occúltans, ait : Ego sum Azarías, magni Ananíæ fílius.
+
+**Ant.** Sanum ducam \* fílium tuum in regiónem Medórum, et sanum tibi redúcam, allelúja.
+
+**Psalmus 14**
+
+DOmine, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam :
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua :
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus : \* timéntes autem Dóminum gloríficat :
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Sanum ducam fílium tuum in regiónem Medórum, et sanum tibi redúcam, allelúja.
+
+℣. Data sunt Angelo incénsa multa. ℟. Ut adoléret ea ante altáre áureum, quod est ante óculos Dómini.
+
+{RUBRIC: De libro Tobíæ}
+
+##### Lectio i
+*Cap. 12, 1-22*
+
+VOcávit ad se Tobías fílium suum, dixítque ei : Quid póssumus dare viro isti sancto, qui venit tecum? Respóndens Tobías, dixit patri suo : Pater, quam mercédem dábimus ei? aut quid dignum póterit esse benefíciis ejus? Me duxit et redúxit sanum, pecúniam a Gabélo ipse recépit, uxórem ipse me habére fecit, et dæmónium ab ea ipse compéscuit, gáudium paréntibus ejus fecit, meípsum a devoratióne piscis erípuit, te quoque vidére fecit lumen cæli, et bonis ómnibus per eum repléti sumus. Quid illi ad hæc potérimus dignum dare? Sed peto te, pater mi, ut roges eum, si forte dignábitur medietátem de ómnibus, quæ alláta sunt, sibi assúmere.
+
+℟. In illo témpore exaudítæ sunt preces ambórum in conspéctu glóriæ summi Dei : \* Et missus est Angelus Dómini sanctus Ráphaël, ut curáret eos ambos, quorum uno témpore sunt oratiónes in conspéctu Dómini recitátæ. ℣. Tobías et Sara in tribulatióne pósiti cum lácrimis oráre cœpérunt. — Et.
+
+##### Lectio ii
+
+ET vocántes eum, pater scílicet et fílius, tulérunt eum in partem : et rogáre cœpérunt ut dignarétur dimídiam partem ómnium, quæ attúlerant, accéptam habére. Tunc dixit eis occúlte : Benedícite Deum cæli, et coram ómnibus vivéntibus confitémini ei, quia fecit vobíscum misericórdiam suam. Etenim sacraméntum regis abscóndere bonum est : ópera autem Dei reveláre et confitéri honoríficum est. Bona est orátio cum jejúnio, et eleemósyna magis quam thesáuros auri recóndere; quóniam eleemósyna a morte líberat, et ipsa est, quæ purgat peccáta, et facit inveníre misericórdiam et vitam ætérnam. Qui autem fáciunt peccátum et iniquitátem, hostes sunt ánimæ suæ. Manifésto ergo vobis veritátem, et non abscóndam a vobis occúltum sermónem. Quando orábas cum lácrimis, et sepeliébas mórtuos, et derelinquébas prándium tuum, et mórtuos abscondébas per diem in domo tua, et nocte sepeliébas eos, ego óbtuli oratiónem tuam Dómino. Et quia accéptus eras Deo, necésse fuit ut tentátio probáret te.
+
+℟. Egréssus Tobías invénit júvenem spléndidum stantem præcínctum, et quasi parátum ad ambulándum, et salutávit eum, et dixit : \* Unde te habémus, bone júvenis? ℣. Et respóndens Tobías, ait : Quale gáudium mihi erit, qui in ténebris sédeo, et lumen cæli non vídeo? — Unde te habémus. Glória Patri. Unde te habémus.
+
+##### Lectio iii
+
+ET nunc misit me Dóminus ut curárem te, et Saram, uxórem fílii tui a dæmónio liberárem. Ego enim sum Ráphaël Angelus, unus ex septem, qui astámus ante Dóminum. Cumque hæc audíssent, turbáti sunt, et treméntes cecidérunt super terram in fáciem suam. Dixítque eis Angelus : Pax vobis, nolíte timére. Etenim, cum essem vobíscum, per voluntátem Dei eram : ipsum benedícite, et cantáte illi. Vidébar quidem vobíscum manducáre, et bíbere : sed ego cibo invisíbili, et potu, qui ab homínibus vidéri non potest, utor. Tempus est ergo ut revértar ad eum, qui me misit : vos autem benedícite Deum, et narráte ómnia mirabília ejus. Et cum hæc dixísset, ab aspéctu eórum ablátus est, et ultra eum vidére non potuérunt. Tunc prostráti per horas tres in fáciem, benedixérunt Deum, et exsurgéntes narravérunt ómnia mirabília ejus.
+
+℟. Ingréssus Angelus ad Tobíam, salutávit eum, et dixit : Gáudium sit tibi semper : \* Forti ánimo esto, in próximo enim est ut a Deo curéris. ℣. Et respóndens Tobías, ait : Quale gáudium mihi erit, qui in ténebris sédeo, et lumen cæli non vídeo? — Forti. Glória Patri. Forti.
+
+### In II Nocturno
+
+**Ant.** Dixit autem Angelus : \* Apprehénde bránchiam piscis, et trahe eum extra aquas.

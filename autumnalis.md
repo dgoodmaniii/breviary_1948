@@ -38180,4 +38180,62 @@ COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córpor
 
 PRótege, Dómine, pópulum tuum, et, Apostolórum tuórum Petri et Pauli et aliórum Apostolórum patrocínio confidéntem, perpétua defensióne consérva.
 
-OMnes Sancti tui, quǽsumus, Dómine, nos ubíque ádjuvent : ut, dum eórum mérita recólimus, patrocínia sentiámus : et pacem tuam nostris concéde témporibus, et ab Ecclésia tua cunctam re-
+OMnes Sancti tui, quǽsumus, Dómine, nos ubíque ádjuvent : ut, dum eórum mérita recólimus, patrocínia sentiámus : et pacem tuam nostris concéde témporibus, et ab Ecclésia tua cunctam re-pélle nequítiam; iter, actus et voluntátes nostras, et ómnium famulórum tuórum, in salútis tuæ prosperitáte dispóne, benefactóribus nostris sempitérna bona retríbue, et ómnibus fidélibus defúnctis réquiem ætérnam concéde. Per Dóminum.
+
+#### AD COMPLETORIUM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Convérte nos, Deus, salutáris noster. ℟. Et avérte iram tuam a nobis.
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Ps. 128 Sæpe expugnavérunt, Ps. 129 De profúndis, et Ps. 130 Dómine, non est exaltátum, ut in Vésperis Fériæ IV. 162}
+
+**Hymnus**
+
+MEménto, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+María, Mater grátiæ,
+Dulcis Parens cleméntiæ,
+Tu nos ab hoste prótege
+Et mortis hora súscipe.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+**Capitulum** *Eccli. 24, 24*
+
+EGO mater pulchræ dilectiónis, et timóris, et agnitiónis, et sanctæ spei.
+
+℟. Deo grátias.
+
+℣. Ora pro nobis, sancta Dei Génitrix. ℟. Ut digni efficiámur promissiónibus Christi.
+
+**Ad Nunc dimittis Ant.** Sub tuum præsídium \* confúgimus, sancta Dei Génitrix : nostras deprecatiónes ne despícias in necessitátibus, sed a perículis cunctis líbera nos semper, Virgo gloriósa et benedícta.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+BEátæ et gloriósæ semper Vírginis Maríæ, quǽsumus, Dómine, intercéssio gloriósa nos prótegat : et ad vitam perdúcat ætérnam. Per Dóminum.
+
+#### AD MATUTINUM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Dómine, lábia mea apéries. ℟. Et os meum annuntiábit laudem tuam.
+
+℣. Deus, in adjutórium.
+
+**Invitat.** Ave, María, grátia plena; \* Dóminus tecum. **Ps. 94** Veníte, exsultémus.
+
+{RUBRIC: Hymn. Quem terra. [177]}

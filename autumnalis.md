@@ -19527,3 +19527,71 @@ OAdmirábilis poténtia Crucis! o ineffábilis glória Passiónis, in qua et tri
 TRaxísti, Dómine, ómnia ad te, ut, quod in uno Judǽæ templo obumbrátis significatiónibus tegebátur, pleno apertóque sacraménto univerárum ubíque natiónum devótio celebráret. Nunc étenim et ordo clárior levitárum, et dígnitas ámplior seniórum, et sacrátior est únctio sacerdótum : quia Crux tua ómnium fons benedictiónum, ómnium est causa gratiárum; per quam credéntibus datur virtus de infirmitáte, glória de oppróbrio, vita de morte. Nunc étiam, carnálium sacrificiórum varietáte cessánte, omnes differéntias hostiárum una córporis et sánguinis tui implet oblátio : quóniam tu es verus Agnus Dei, qui tollis peccáta mundi; et ita in te univérsa pérficis mystéria, ut sicut unum est pro omni víctima sacrifícium, ita unum de omni gente sit regnum.
 
 **Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Antíphonæ}
+
+**Ant. 1** O magnum pietátis opus : \* mors mórtua tunc est, in ligno quando mórtua Vita fuit.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Salva nos, \* Christe Salvátor, per virtútem Crucis : qui salvásti Petrum in mari, miserére nobis.
+
+**Ant. 3** Ecce Crucem Dómini, \* fúgite, partes advérsæ, vicit leo de tribu Juda, radix David, allelúja.
+
+**Ant. 4** Nos autem gloriári \* opórtet in Cruce Dómini nostri Jesu Christi.
+
+**Ant. 5** Per signum Crucis \* de inimícis nostris líbera nos, Deus noster.
+
+**Capitulum**
+*Philipp. 2, 5-7*
+
+FRatres : Hoc enim sentíte in vobis, quod et in Christo Jesu : qui, cum in forma Dei esset, non rapínam arbitrátus est esse se æquálem Deo : sed semetípsum exinanívit, formam servi accípiens, in similitúdinem hóminum factus, et hábitu invéntus ut homo.
+
+**Hymnus**
+
+LUstra sex qui jam perégit,
+Tempus implens córporis,
+Sponte líbera Redémptor
+Passióni déditus,
+Agnus in Crucis levátur
+Immolándus stípite.
+
+Felle potus ecce languet :
+Spina, clavi, láncea
+Mite corpus perforárunt :
+Unda manat, et cruor :
+Terra, pontus, astra, mundus,
+Quo lavántur flúmine!
+
+Crux fidélis, inter omnes
+Arbor una nóbilis :
+Silva talem nulla profert
+Fronde, flore, gérmine :
+Dulce ferrum, dulce lignum,
+Dulce pondus sústinent.
+
+Flecte ramos, arbor alta,
+Tensa laxa víscera,
+Et rigor lentéscat ille,
+Quem dedit natívitas;
+Et supérni membra Regis
+Tende miti stípite.
+
+Sola digna tu fuísti
+Ferre mundi víctimam;
+Atque portum præparáre
+Arca mundo náufrago,
+Quam sacer cruor únxit,
+Fusus Agni córpore.
+
+Sempitérna sit beátæ
+Trinitáti glória,
+Ǽqua Patri, Filióque;
+Par decus Paráclito :
+Unius Triníque nomen
+Laudet univérsitas.
+Amen.
+
+℣. Adorámus te, Christe, et benedícimus tibi. ℟. Quia per Crucem tuam redemísti mundum.

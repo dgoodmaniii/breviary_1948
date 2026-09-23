@@ -25769,3 +25769,114 @@ Benedíctus Dóminus in ætérnum : \* fiat, fiat.
 *Cap. 18, 33-37*
 
 IN illo témpore : Dixit Pilátus ad Jesum : Tu es Rex Judæórum? Respóndit Jesus : A temetípso hoc dicis, an álii dixérunt tibi de me? Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi (Tract. 51 in Joann. 12-13 et Tract. 117 in Joann. 19-21)}
+
+QUid magnum fuit Regi sæculórum Regem fíeri hóminum? Non enim Rex Israël Christus ad exigéndum tribútum vel exércitum ferro armándum hostésque visibíliter debellándos; sed Rex Israël, quod mentes regat, quod in ætérnum cónsulat, quod in regnum cælórum credéntes, sperántes amantésque perdúcat. Dei ergo Fílius æquális Patri, Verbum per quod facta sunt ómnia, quod Rex esse vóluit Israël, dignátio est, non promótio; miseratiónis indícium est, non potestátis augméntum. Qui enim appellátus est in terra Rex Judæórum, in cælis est Dóminus Angelórum. Sed Judæórum tantum Rex est Christus, an et géntium? Immo et géntium. Cum enim dixísset in prophetía : Ego autem sum constitútus Rex ab eo super Sion montem sanctum ejus, prǽdicans præcéptum Dómini : ne propter montem Sion solis Judǽis eum quisquam díceret constitútum, contínuo subjécit : Dóminus dixit ad me : Fílius meus es tu, ego hódie génui te; póstula a me et dabo tibi gentes hereditátem tuam et possessiónem tuam términos terræ.
+
+℟. Factum est regnum hujus mundi Dómini nostri et Christi ejus : \* Et regnábit in sǽcula sæculórum. ℣. Adorábunt in conspéctu ejus univérsæ famíliæ géntium; quóniam Dómini est regnum. — Et regnábit.
+
+##### Lectio viii
+*(Tract. 115 in Joann. 18-36)*
+
+RESpóndit Jesus : Regnum meum non est de hoc mundo. Si ex hoc mundo esset regnum meum, minístri mei útique decertárent, ut non tráderer Judǽis; nunc autem regnum meum non est hinc. Hoc est quod bonus Magíster scire nos vóluit; sed prius nobis demonstránda fúerat vana hóminum de regno ejus opínio, sive géntium, sive Judæórum a quibus id Pilátus audíerat : quasi proptérea morte fuísset plecténdus, quod illícitum affectáverit regnum, vel quóniam solent regnatúris invidére regnántes, et vidélicet cavéndum erat ne ejus regnum sive Románis, sive Judǽis esset advérsum. Póterat autem Dóminus quod ait, Regnum meum non est de hoc mundo, ad primam interrogatiónem prǽsidis respondére, ubi ei dixit, Tu es rex Judæórum? sed eum vicíssim intérrogans, utrum hoc a semetípso díceret, an audísset ab áliis, illo respondénte osténdere vóluit hoc sibi apud illum fuísse a Judǽis velut crimen objéctum : patefáciens nobis cogitatiónes hóminum, quas ipse nóverat, quóniam vanæ sunt; eísque post respónsiónem Piláti, jam Judǽis et géntibus opportúnius aptiúsque respóndens, Regnum meum non est de hoc mundo.
+
+℟. Decem córnua quæ vidísti, decem reges sunt : Hi cum Agno pugnábunt, et Agnus vincet illos, \* Quóniam Dóminus dominórum est, et Rex regum. ℣. Regnávit Dóminus Deus noster omnípotens : gaudeámus et exsultémus, et demus glóriam ei. — Quóniam. Glória Patri. Quóniam.
+
+{RUBRIC: Lectio ix de Homilía Dominícæ occurréntis.}
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Suscitábit \* Deus cæli regnum quod commínuet et consúmet univérsa regna, et ipsum stabit in ætérnum.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Dedit ei Dóminus \* potestátem et honórem et regnum; et omnes pópuli, tribus et linguæ ipsi sérvient.
+
+**Ant. 3** Exíbunt aquæ vivæ \* de Jerúsalem; et erit Dóminus Rex super omnem terram.
+
+**Ant. 4** Magnificábitur \* usque ad términos terræ, et erit iste pax.
+
+**Ant. 5** Gens et regnum \* quod non servíerit tibi, períbit : et gentes solitúdine vastabúntur.
+
+**Capit.**
+*Coloss. 1, 12-13*
+
+FRatres : Grátias ágimus Deo Patri, qui dignos nos fecit in partem sortis sanctórum in lúmine, qui erípuit nos de potestáte tenebrárum, et tránstulit in regnum Fílii dilectiónis suæ.
+
+**Hymnus**
+
+VExílla Christus ínclyta
+Late triúmphans éxplicat :
+Gentes, adéste súpplices,
+Regíque regum pláudite.
+
+Non Ille regna cládibus,
+Non vi metúque súbdidit :
+Alto levátus stípite,
+Amóre traxit ómnia.
+
+O ter beáta cívitas
+Cui rite Christus ímperat,
+Quæ jussa pergit éxsequi
+Edícta mundo cǽlitus!
+
+Non arma flagrant ímpia,
+Pax usque firmat fœdera,
+Arrídet et concórdia,
+Tutus stat ordo cívicus.
+
+Servat fides connúbia,
+Juvénta pubet íntegra,
+Pudíca florent lúmina
+Doméstícis virtútibus.
+
+Optáta nobis spléndeat
+Lux ista, Rex dulcíssime :
+Te, pace adépta cándida,
+Adóret orbis súbditus.
+
+Jesu, tibi sit glória,
+Qui sceptra mundi témperas,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Multiplicábitur ejus impérium. ℟. Et pacis non erit finis.
+
+**Ad Bened. Ant.** Fecit nos Deo \* et Patri suo regnum, primogénitus mortuórum, et Princeps regum terræ, allelúja.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui in diléctó Fílio tuo, universórum Rege, ómnia instauráre voluísti : concéde propítius; ut cunctæ famíliæ géntium, peccáti vúlnere disgregátæ, ejus suavíssimo império subdántur : Qui tecum vivit.
+
+{RUBRIC: Et fit Commemoratio Dominicæ occurréntis.}
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** Suscitábit \* Deus cæli regnum quod commínuet et consúmet univérsa regna, et ipsum stabit in ætérnum.
+
+{RUBRIC: In ℟. br. ℣. Qui primátum in ómnibus tenes.}
+
+#### AD TERTIAM
+
+**Ant.** Dedit ei Dóminus \* potestátem et honórem et regnum; et omnes pópuli, tribus et linguæ ipsi sérvient.
+
+**Capit.**
+*Coloss. 1, 12-13*
+
+FRatres : Grátias ágimus Deo Patri, qui dignos nos fecit in partem sortis sanctórum in lúmine, qui erípuit nos de potestáte tenebrárum, et tránstulit in regnum Fílii dilectiónis suæ.
+
+℟. br. Data est mihi \* Omnis potéstas. Data. ℣. In cælo et in terra. Omnis. Glória Patri. Data.
+
+℣. Afférte Dómino, famíliæ populórum. ℟. Afférte Dómino glóriam et impérium.
+
+#### AD SEXTAM
+
+**Ant.** Exíbunt aquæ vivæ \* de Jerúsalem; et erit Dóminus Rex super omnem terram.

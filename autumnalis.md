@@ -20056,3 +20056,357 @@ Ad meípsum ánima mea conturbáta est : * proptérea memor ero tui de terra Jor
 Abýssus abýssum ínvocat, * in voce cataractárum tuárum.
 
 Ómnia excélsa tua, et fluctus tui * super me transiérunt.
+
+In die mandávit Dóminus misericórdiam suam : * et nocte cánticum ejus.
+
+Apud me orátio Deo vitæ meæ, * dicam Deo : Suscéptor meus es.
+
+Quare oblítus es mei? * et quare contristátus incédo, dum afflígit me inimícus?
+
+Dum confringúntur ossa mea, * exprobravérunt mihi qui tríbulant me inimíci mei.
+
+Dum dicunt mihi per síngulos dies : Ubi est Deus tuus? * quare tristis es, ánima mea? et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi : * salutáre vultus mei, et Deus meus.
+
+**Ant.** Fuérunt mihi lácrimæ meæ panes die ac nocte.
+
+℣. Fascículus myrrhæ diléctus meus mihi. ℟. Inter úbera mea commorábitur.
+
+Sermo sancti Bernárdi Abbátis
+Sermo de duodecim stellis
+
+##### Lectio iv
+
+MArtýrium Vírginis tam in Simeónis prophetía, quam in ipsa Domínicæ passiónis história commendátur. Pósitus est hic (ait sanctus senex de púero Jesu) in signum cui contradicétur; et tuam ipsíus ánimam (ad Maríam autem dicébat) pertransíbit gládius. Vere tuam, o beáta Mater, ánimam pertransívit. Alióquin non nisi eam pertránsiens, carnem Fílii tui penetráret. Et quidem posteáquam emísit spíritum tuus ille Jesus, ipsíus plane non áttigit ánimam crudélis láncea, quæ ipsíus apéruit latus, sed tuam útique ánimam pertransívit. Ipsíus nimírum ánima jam ibi non erat, sed tua plane inde nequíbat avélli.
+
+℟. Jesum bajulántem sibi crucem \* Sequebátur turba mulíerum, quæ plangébant et lamentabántur eum. ℣. Fíliæ Jerúsalem, super vos ipsas flete et super fílios vestros. — Sequebátur.
+
+##### Lectio v
+
+TUam ergo pertransívit ánimam vis dolóris, ut plusquam Mártyrem non immérito prædicémus, in qua nimírum corpóreæ sensum passiónis excésserit compassiónis afféctus. An non tibi plusquam gládius fuit sermo ille, revéra pertránsiens ánimam, et pertíngens usque ad divisiónem ánimæ et spíritus : Múlier, ecce fílius tuus? O commutatiónem! Joánnes tibi pro Jesu tráditur, servus pro Dómino, discípulus pro Magístro, fílius Zebedǽi pro Fílio Dei, homo purus pro Deo vero. Quómodo non tuam affectuosíssimam ánimam pertransíret hæc audítio, quando et nostra, licet sáxea, licet férrea péctora, sola recordátio scindit?
+
+℟. Postquam venérunt in locum qui dícitur Calváriæ, ibi crucifixérunt eum : \* Stabat autem juxta crucem Jesu Mater ejus. ℣. Tunc beátam illíus ánimam dolóris gládius pertransívit. — Stabat.
+
+##### Lectio vi
+
+NOn mirémini, fratres, quod María Martyr in ánima fuísse dicátur. Mirétur qui non memínerit se audivísse Paulum inter máxima géntium crímina memorántem quod sine affectióne fuíssent. Longe id fuit a Maríæ vísceribus, longe sit a sérvulis ejus. Sed forte quis dicat : Numquid non eum præsciérat moritúrum? Et indubitánter. Numquid non sperábat contínuo resurrectúrum? Et fidéliter. Super hæc dóluit crucifíxum? Et vehementér. Alióquin quisnam tu, frater, aut unde tibi hæc sapiéntia, ut miréris plus Maríam compatiéntem quam Maríæ Fílium patiéntem? Ille étiam mori córpore pótuit; ista cómmori corde non pótuit. Fecit illud cáritas, qua majórem nemo hábuit; fecit et hoc cáritas, cui post illam símilis áltera non fuit.
+
+℟. Joseph ab Arimathǽa \* Pétiit corpus Jesu, quod de cruce depósitum, Suo compléxu Mater excépit. ℣. Dolens Sunamítis sinu et génibus suis sustínuit mórtuum fílium. — Pétiit. Glória Patri. Suo.
+
+### In III Nocturno
+
+**Ant.** Intendérunt arcum \* rem amáram, ut sagíttent in occúltis immaculátum.
+
+**Psalmus 63**
+
+EXáudi, Deus, oratiónem meam cum déprecor : * a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium : * a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas : * intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt : * firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos : * dixérunt : Quis vidébit eos?
+
+Scrutáti sunt iniquitátes : * defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum : * et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum : * et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos : * et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, * et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, * et laudabúntur omnes recti corde.
+
+**Ant.** Intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+**Ant.** Anima mea \* turbáta est valde : sed tu, Dómine, úsquequo?
+
+**Psalmus 6**
+
+DOmine, ne in furóre tuo árguas me, * neque in ira tua corrípias me.
+
+Miserére mei, Dómine, quóniam infírmus sum : * sana me, Dómine, quóniam conturbáta sunt ossa mea.
+
+Et ánima mea turbáta est valde : * sed tu, Dómine, úsquequo?
+
+Convértere, Dómine, et éripe ánimam meam : * salvum me fac propter misericórdiam tuam.
+
+Quóniam non est in morte qui memor sit tui : * in inférno autem quis confitébitur tibi?
+
+Laborávi in gémitu meo, lavábo per síngulas noctes lectum meum : * lácrimis meis stratum meum rigábo.
+
+Turbátus est a furóre óculus meus : * inveterávi inter omnes inimícos meos.
+
+Discédite a me, omnes qui operámini iniquitátem : * quóniam exaudívit Dóminus vocem fletus mei.
+
+Exaudívit Dóminus deprecatiónem meam, * Dóminus oratiónem meam suscépit.
+
+Erubéscant, et conturbéntur veheménter omnes inimíci mei : * convertántur et erubéscant valde velóciter.
+
+**Ant.** Anima mea turbáta est valde : sed tu, Dómine, úsquequo?
+
+**Ant.** Deus adjútor \* in tribulatiónibus quæ invenérunt nos nimis.
+
+**Psalmus 45**
+
+DEus noster refúgium, et virtus : * adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra : * et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum : * conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei : * sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur : * adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna : * dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum : * suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram : * áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma : * et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus : * exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum : * suscéptor noster Deus Jacob.
+
+**Ant.** Deus adjútor in tribulatiónibus quæ invenérunt nos nimis.
+
+℣. Per te salútem hauriámus, Virgo María. ℟. Ex vulnéribus Christi.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+*Cap. 19, 25-27*
+
+IN illo témpore : Stabant juxta crucem Jesu Mater ejus, et soror Matris ejus María Cléophæ, et María Magdaléne. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+*De institut. Virg. cap. 7*
+
+STAbat juxta crucem Mater, et, fugiéntibus viris, stabat intrépida. Vidéte utrum pudórem mutáre potúerit Mater Jesu, quæ ánimum non mutávit. Spectábat piis óculis Fílii vúlnera, per quæ sciébat ómnibus futúram redemptiónem. Spectábat non degéneri Mater spectáculo, quæ non metúerat peremptórem. Pendébat in cruce Fílius, Mater se persecutiónibus offerébat.
+
+℟. Quis tibi sensus fuit, o Mater dolórum, \* Dum Joseph síndone Fílium tuum invólvit, et pósuit eum in monuménto? ℣. Consideráte et vidéte, si est dolor, sicut dolor meus. — Dum.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+##### Lectio viii
+*Epist. 25 ad Ecclesiam Vercellensem, prope finem*
+
+MAría Mater Dómini ante crucem Fílii stabat. Nullus me hoc dócuit nisi sanctus Joánnes Evangelísta. Mundum álii concússum in passióne Dómini conscripsérunt, cælum ténebris obdúctum, refugísse solem, in paradísum latrónem, sed post piam confessiónem, recéptum. Joánnes dócuit, quod álii non docuérunt, quemádmodum in cruce pósitus Matrem appelláverit. Pluris putátur quod victor suppliciórum pietátis offícia Matri exhibébat, quam quod regnum cæléste donábat. Nam, si religiósum est quod latróni donátur vénia, multo uberióris pietátis est quod a Fílio Mater tanto afféctu honorátur.
+
+℟. In toto corde tuo gémitus Matris tuæ ne obliviscáris, \* Ut perficiátur propitiátio et benedíctio. ℣. Ave, princeps generósa, Martyrúmque prima rosa, Virginúmque lílium. — Ut. Glória Patri. Ut.
+
+{RUBRIC: In Fería IV Quátuor Témporum Lectio ix de Homília Fériæ et fit ejus Commemorátio ad Laudes ante Commemoratiónem S. Nicomédis, alias}
+
+Pro S. Nicomede Martyre
+
+##### Lectio ix
+
+NIcomédes presbýter, persequénte Christiános Domitiáno imperatóre, quod corpus Felículæ Vírginis, propter confessiónem christiánæ fídei a Flacco cómite interfectæ, sepelísset, comprehéndi jussus est; ductúsque ad státuas deórum, cum eis sacrificáre velle (quod fácere jubebátur) constánter negavísset, proptérea quod sacrifícium uni Deo vero, qui regnat in cælis, deberétur, plumbátis cæsus, in eo martýrio ánimam Deo réddidit. Cujus corpus cum idem comes in profluéntem Tíberim projíci imperásset, Justus, Nicomédis cléricus, diligénter conquisítum, ad muros Urbis via Nomentána honorífice in sepúlcro cóndidit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Si autem Lectio ix alicújus Officii commemoráti non sit dicénda, erit séquens}
+
+##### Lectio ix
+
+ECce, inquit, fílius tuus : ecce mater tua. Testabátur de cruce Christus, et inter matrem atque discípulum dividébat pietátis offícia. Condébat Dóminus non solum públicum, sed étiam doméstricum testaméntum; et hoc ejus testaméntum signábat Joánnes, dignus tanto testatóre testis. Bonum testaméntum, non pecúniæ, sed vitæ ætérnæ; quod non atraménto scriptum est, sed Spíritu Dei vivi, qui ait : Lingua mea cálamus scribæ velóciter scribéntis.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Antíphonæ}
+
+**Ant. 1** Quo ábiit \* diléctus tuus, o pulchérrima muliérum? quo declinávit diléctus tuus, et quærémus eum tecum?
+
+{RUBRIC: Psalmi de Domínica. 37}
+
+**Ant. 2** Recédite a me, \* amáre flebo, nolíte incúmbere ut consolémini me.
+
+**Ant. 3** Non est ei \* spécies neque decor, et vídimus eum, et non erat aspéctus.
+
+**Ant. 4** A planta pedis \* usque ad vérticem cápitis non est in eo sánitas.
+
+**Ant. 5** Fúlcite me flóribus, \* stipáte me malis, quia amóre lángueo.
+
+**Capitulum**
+*Thren. 2, 13*
+
+CUI comparábo te? vel cui assimilábo te, fília Jerúsalem? cui exæquábo te, et consolábor te, virgo fília Sion? Magna est velut mare contrítio tua.
+
+**Hymnus**
+
+SUmmæ Deus cleméntiæ,
+Septem dolóres Vírginis
+Plagásque Jesu Fílii
+Fac rite nos revólvere.
+
+Nobis salútem cónferant
+Deíparæ tot lácrimæ,
+Quibus laváre súfficis
+Totíus orbis crímina.
+
+Sit quinque Jesu vúlnerum
+Amára contemplátio,
+Sint et dolóres Vírginis
+Ætérna cunctis gáudia.
+
+Jesu, tibi sit glória,
+Qui passus es pro sérvulis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. María Virgo, per virtútem tot dolórum. ℟. Fac nos gaudére in regno cælórum.
+
+**Ad Bened. Ant.** Veníte, \* ascendámus ad montem Dómini, et vidéte, si est dolor, sicut dolor meus.
+
+**Oratio**
+
+DEus, in cujus passióne, secúndum Simeónis prophetíam, dulcíssimam ánimam gloriósæ Vírginis et Matris Maríæ dolóris gládius pertransívit : concéde propítius; ut, qui dolóres ejus venerándo recólimus, passiónis tuæ efféctum felícem consequámur : Qui vivis et regnas.
+
+{RUBRIC: Ad Laudes tantum, post Commemoratiónem Fériæ in Quátuor Témporibus, fit Commemorátio S. Nicomédis Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+**Oratio**
+
+ADésto, Dómine, pópulo tuo : ut, beáti Nicomédis Mártyris tui mérita præclára suscípiens, ad impetrándam misericórdiam tuam semper ejus patrocíniis adjuvétur. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Domínica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** Quo ábiit \* diléctus tuus, o pulchérrima muliérum? quo declinávit diléctus tuus, et quærémus eum tecum?
+
+{RUBRIC: In ℟. br. ℣. Qui passus es propter nostram salútem.}
+
+#### AD TERTIAM
+
+**Ant.** Recédite a me, \* amáre flebo, nolíte incúmbere ut consolémini me.
+
+**Capitulum**
+*Thren. 2, 13*
+
+CUI comparábo te? vel cui assimilábo te, fília Jerúsalem? cui exæquábo te, et consolábor te, virgo fília Sion? Magna est velut mare contrítio tua.
+
+℟. br. O vos omnes, \* Qui transítis per viam. O vos. ℣. Atténdite et vidéte, si est dolor, sicut dolor meus. — Qui. Glória Patri. O vos. ℣. Defecérunt præ lácrimis óculi mei. ℟. Conturbáta sunt ómnia víscera mea.
+
+#### AD SEXTAM
+
+**Ant.** Non est ei \* spécies neque decor, et vídimus eum, et non erat aspéctus.
+
+**Capitulum**
+*Thren. 1, 2*
+
+PLorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus : non est qui consolétur eam ex ómnibus caris ejus.
+
+℟. br. Defecérunt \* Præ lácrimis óculi mei. Defecérunt. ℣. Conturbáta sunt ómnia víscera mea. Præ. Glória Patri. Defecérunt. ℣. Fascículus myrrhæ diléctus meus mihi. ℟. Inter úbera mea commorábitur.
+
+#### AD NONAM
+
+**Ant.** Fúlcite me flóribus, \* stipáte me malis, quia amóre lángueo.
+
+**Capitulum**
+*Thren. 2, 18*
+
+DEduc quasi torréntem lácrimas per diem et noctem; non des réquiem tibi, neque táceat pupílla óculi tui.
+
+℟. br. Fascículus myrrhæ \* Diléctus meus mihi. Fascículus. ℣. Inter úbera mea commorábitur. Diléctus. Glória Patri. Fascículus. ℣. Anima mea liquefácta est. ℟. Ut diléctus locútus est.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vésperis 515, præter Ant. ad Magníficat.}
+
+℣. Regína Mártyrum, ora pro nobis. ℟. Quæ juxta crucem Jesu constitísti.
+
+**Ad Magnif. Ant.** Opprés sit me dolor, \* et fácies mea intúmuit a fletu, et pálpebræ meæ caligavérunt.
+
+{RUBRIC: Et fit Commemoratio sequentis tantum.}
+
+{RUBRIC: Completórium de Domínica.}
+
+---
+
+## Die 16 Septembris — Ss. Cornelii Papæ et Cypriani Ep., Mm.
+
+{RUBRIC: [49] Semidupl.}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+*C 1*
+
+BEatórum Mártyrum paritérque Pontíficum Cornélii et Cypriáni nos, quǽsumus, Dómine, festa tueántur : et eórum comméndet orátio veneránda. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+CORnélius Románus, Gallo et Volusiáno imperatóribus pontificátum gerens, cum Lucína, fémina sanctíssima, córpora Apostolórum Petri et Pauli a catacúmbis in opportuniórem locum tránstulit; ac Pauli corpus Lucína in suo prǽdio via Ostiénsi, prope eum locum, ubi fúerat gládio percússus, collocávit; Cornélius Príncipis Apostolórum corpus non longe inde, ubi crucifíxus fúerat, repósuit. Quod cum ad imperatóres delátum esset, et Pontífice auctóre multos fíeri christiános, míttitur is in exsílium ad Centum cellas; ubi eum sanctus Cypriánus, epíscopus Carthaginiénsis, per lítteras est consolátus.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis : \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+##### Lectio v
+
+HOc autem christiánæ caritátis offícium cum frequens alter álteri persólveret, deteriórem in partem id accipiéntes imperatóres, accersítum Romam Cornélium tamquam de majestáte reum plumbátis cǽdi, raptúmque ad Martis simulácrum, ei sacrificáre jubent. Quam impietátem cum ille detestarétur, ei caput abscíssum est décimo octávo Kaléndas Octóbris. Cujus corpus beáta Lucína, cléricis adjutóribus, humávit in arenária prǽdii sui prope cœmetérium Callísti. Víxit in pontificátu annos círciter duos.
+
+℟. Vérbera carnéficum non timuérunt Sancti Dei, moriéntes pro Christi nómine : \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+{RUBRIC: Ex libro sancti Hierónymi Presbýteri de Scriptóribus ecclesiásticis}
+
+##### Lectio vi
+*Cap. 67*
+
+CYpriánus, Afer, primum gloriósa rhetóricam dócuit. Exínde, suadénte presbýtero Cæcílio a quo et cognoméntum sortítus est, christiánus factus, omnem substántiam suam paupéribus erogávit. Ac post non multum témporis, eléctus in presbýterum, étiam epíscopus Carthaginiénsis constitútus est. Hujus ingénii supérfluum est índicem téxere, cum sole clarióra sint ejus ópera. Passus est sub Valeriáno et Galliéno princípibus, persecutióne octáva, eódem die quo Romæ Cornélius, sed non eódem anno.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem : et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+CORnélius Románus, Gallo et Volusiáno imperatóribus pontificátum gerens, Novatiáni schísmati fórtiter réstitit, plúraque de lapsis magna caritáte conscrípsit; ad quem octo sancti Cypriáni exstant epístolæ. In exsílio, ad Centum cellas, ærúmnis conféctus, Martyr óbiit. Cypriánus, Afer, primum gloriósa rhetóricam dócuit; exínde, suadénte presbýtero Cæcílio, a quo et cognoméntum sortítus est, christiánus factus, omnem substántiam suam paupéribus erogávit, ac post non multum témporis eléctus in presbýterum, étiam epíscopus Carthaginiénsis constitútus est. Et ipse in schísmate Nováti plura pérferens, damna Ecclésiæ illáta reparáre omni ope conátus est. Hujus vero ingénii supérfluum est índicem téxere, cum sole clarióra sint ejus ópera. Passus est sub Valeriáno et Galliéno princípibus, persecutióne octáva.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Cum audiéritis, de Communi plurimórum Mártyrum 1 loco. [60]}
+
+{RUBRIC: In Fería IV Quátuor Témporum Lectio ix de Homília Fériæ, et fit ejus Commemorátio ad Laudes, alias}
+
+Pro Ss. Euphemia Virg., Lucia et Geminiano Mart.
+
+##### Lectio ix
+
+EUphémia, Lúcia et Geminiánus, in persecutióne Diocletiáni, non eódem loco, sed eódem die, martýrio coronáti sunt. Euphémia Virgo apud Chalcédonem, Prisco procónsule, vária tormentórum génera, virgárum, equúlei, rotárum, ignis constánter passa; demum béstiis objécta, una ex iis morsum sancto córpori infigénte, céteris pédibus ejus lambéntibus, immaculátum spíritum Deo réddidit. Lúcia, vídua Romána, a fílio Eutrópio, quod christiánum multos annos coluísset, accusáta, in ollam pice ac plumbo fervéntem demíttitur; unde incólumis evádens, cum ferro plumbóque onerátam per Urbem ducerétur, Geminiánum, nóbilem virum, constántia fídei et martýrii ad Christum convértit. Quem étiam cum multis áliis ad fidem perdúctis, várie tortum, gloriósi martýrii, abscísso cápite, sócium hábuit. Quorum córpora Máxima, múlier christiána, honorífice sepelívit.
+
+**Te Deum laudámus.**
+
+**Oratio**
+*C 1*
+
+BEatórum Mártyrum paritérque Pontíficum Cornélii et Cypriáni nos, quǽsumus, Dómine, festa tueántur : et eórum comméndet orátio veneránda. Per Dóminum.
+
+{RUBRIC: Ad Laudes, post Commemoratiónem Fériæ in Quátuor Témporibus, fit Com. Ss. Euphémiæ Virg., Lúciæ et Geminiáni Mm. :}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Oratio**
+
+PRǽsta, Dómine, précibus nostris cum exsultatióne provéntum : ut sanctórum Mártyrum Euphémiæ, Lúciæ et Geminiáni, quorum diem passiónis ánnua devotióne recólimus, étiam fídei constántiam subsequámur. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}

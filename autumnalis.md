@@ -30530,3 +30530,84 @@ Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
 Sedes tua, Deus, in sæculum sæculi : \* virga directiónis virga regni tui.
 
 Dilexísti justítiam, et odísti iniquitátem : \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis : \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto : \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam : \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum : \* quóniam ipse est Dóminus, Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur : omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam : \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne : \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii : \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui : \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum : \* et in sæculum sæculi.
+
+**Ant.** Relíctis rétibus suis, secúti sunt Dóminum Redemptórem.
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+{RUBRIC: De Epístola beáti Pauli Apóstoli ad Romános}
+
+##### Lectio i
+*Cap. 10, 4-21*
+
+FInis legis, Christus, ad justítiam omni credénti. Móyses enim scripsit, quóniam justítiam, quæ ex lege est, qui fécerit homo, vivet in ea. Quæ autem ex fide est justítia, sic dicit : Ne díxeris in corde tuo : Quis ascéndet in cælum? id est, Christum dedúcere : aut quis descéndet in abýssum? hoc est, Christum a mórtuis revocáre. Sed quid dicit Scriptúra? Prope est verbum in ore tuo et in corde tuo : hoc est verbum fídei, quod prædicámus. Quia si confiteáris in ore tuo Dóminum Jesum, et in corde tuo credíderis quod Deus illum suscitávit a mórtuis, salvus eris.
+
+℟. Cum perambuláret Dóminus juxta mare Galilǽæ, vidit Petrum et Andréam rétia mitténtes in mare, et vocávit eos, dicens : \* Veníte post me, fáciam vos fíeri piscatóres hóminum. ℣. Erant enim piscatóres, et ait illis. — Veníte.
+
+##### Lectio ii
+
+CÓrde enim créditur ad justítiam, ore autem conféssio fit ad salútem. Dicit enim Scriptúra : Omnis, qui credit in illum, non confundétur. Non enim est distínctio Judǽi et Græci : nam idem Dóminus ómnium, dives in omnes qui ínvocant illum. Omnis enim, quicúmque invocáverit nomen Dómini, salvus erit. Quómodo ergo invocábunt, in quem non credidérunt? Aut quómodo credent ei, quem non audiérunt? Quómodo autem áudient sine prædicánte? Quómodo vero prædicábunt nisi mittántur? sicut scriptum est : Quam speciósi pedes evangelizántium pacem, evangelizántium bona!
+
+℟. Mox ut vocem Dómini prædicántis audívit beátus Andréas, relíctis rétibus, quorum usu actúque vivébat, \* Ætérnæ vitæ secútus est prǽmia largiéntem. ℣. Hic est qui pro amóre Christi pepéndit in cruce, et pro lege ejus sustínuit passiónem. — Ætérnæ.
+
+##### Lectio iii
+
+SEd non omnes obédiunt Evangélio. Isaías enim dicit : Dómine, quis crédidit audítui nostro? Ergo fides ex audítu, audítus autem per verbum Christi. Sed dico : Numquid non audiérunt? Et quidem in omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. Sed dico : Numquid Israël non cognóvit? Primus Móyses dicit : Ego ad æmulatiónem vos addúcam in non gentem : in gentem insipiéntem, in iram vos mittam. Isaías autem audet, et dicit : Invéntus sum a non quæréntibus me : palam appárui iis, qui me non interrogábant. Ad Israël autem dicit : Tota die expándi manus meas ad pópulum non credéntem, et contradicéntem.
+
+℟. Doctor bonus et amícus Dei Andréas dúcitur ad crucem, quam a longe aspíciens dixit : Salve, crux, \* Súscipe discípulum ejus, qui pepéndit in te magíster meus Christus. ℣. Salve, crux, quæ in córpore Christi dedicáta es, et ex membris ejus tamquam margarítis ornáta. — Súscipe. **Glória Patri.** Súscipe.
+
+### In II Nocturno
+
+**Ant.** Dignum sibi Dóminus \* computávit Mártyrem, quem vocávit Apóstolum, dum esset in mari, allelúja.
+
+**Psalmus 46**
+
+OMnes gentes, pláudite mánibus : \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis : \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis : \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam : \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo : \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite : \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus : \* psállite sapiénter.
+
+Regnábit Deus super gentes : \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham : \* quóniam dii fortes terræ vehementér eleváti sunt.
+
+**Ant.** Dignum sibi Dóminus computávit Mártyrem, quem vocávit Apóstolum, dum esset in mari, allelúja.
+
+**Ant.** Diléxit Andréam \* Dóminus in odórem suavitátis.
+
+**Psalmus 60**
+
+EXáudi, Deus, deprecatiónem meam : \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi : \* dum anxiarétur cor meum, in petra exaltásti me.

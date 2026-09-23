@@ -36890,3 +36890,30 @@ LIgna ista et lápides si non sibi certo órdine cohærérent, si non se pacífi
 #### Lectio vi
 
 COnsíderet ergo cáritas vestra, ædificári adhuc istam domum toto, sicut prædíctum est et promíssum, orbe terrárum. Cum enim ædificátur domus post captivitátem, sicut habet álius Psálmus, dícitur : Cantáte Dómino cánticum novum : cantáte Dómino, omnis terra. Quod ibi dixit, Cánticum novum; hoc Dóminus dixit, Mandátum novum. Quid enim habet cánticum novum, nisi amórem novum? Cantáre amántis est. Vox hujus cantóris, fervor est sancti amóris. Amémus, gratis amémus; Dóminum enim amámus, quo nihil mélius invenímus : ipsum amémus propter ipsum, et nos in ipso, tamen propter ipsum.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nesciébam. ℣. Cumque evigilásset Jacob de somno, ait. — Vere. **Glória Patri.** Vere.
+
+### In III Nocturno
+
+**Léctio sancti Evangélii secúndum Lucam**
+
+**Lectio vii** *Cap. 19, 1-10*
+
+IN illo témpore : Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus : et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+**De Homilía sancti Ambrósii Epíscopi**
+*Liber 8 in Luc., prope finem*
+
+QUæ autem turba, nisi imperítæ confúsio multitúdinis, quæ vérticem nequit vidére sapiéntiæ? Ergo Zachǽus quámdiu in turba est, non videt Christum; supra turbam ascéndit, et vidit : hoc est, plebis jam transgréssus inscítiam, méruit quem desiderábat, aspícere. Pulchre autem áddidit : Quia illa parte erat transitúrus Dóminus : vel ubi sycómorus, vel ubi creditúrus; ut et mystérium serváret, et grátiam semináret. Sic enim vénerat, ut per Judǽos transíret ad gentes.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus : in ea omnis qui petit, áccipit; et qui quærit, invénit : \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quærite, et inveniétis. — Et.
+
+#### Lectio viii
+
+VIdit ítaque Zachǽum sursum. Jam enim sublimitáte fídei inter fructus novórum óperum, velut fecúndæ altitúdine árboris, eminébat. Et quóniam de typo ad morália defléximus, inter tot credéntium voluptátes Domínica die relaxáre ánimum, festivitátem admiscére deléctat. Zachǽus in sycómoro, novum vidélicet novi témporis pomum, ut in hoc quoque complerétur illud : Arbor fici prodúxit grossos suos.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. **Glória Patri.** Et.
+
+#### Lectio ix
+
+AD hoc enim Christus advénit, ut ex lignis non poma, sed hómines nascerétur. Légimus áli-

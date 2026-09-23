@@ -37024,4 +37024,25 @@ MYstice autem Zachǽus, qui interpretátur justificátus, credéntem ex géntibu
 
 #### Lectio ix
 
-EAdem namque turba nóxiæ consuetúdinis, quæ supra cæcum clamántem, ne lumen péteret, increpábat; étiam suspicién-
+EAdem namque turba nóxiæ consuetúdinis, quæ supra cæcum clamántem, ne lumen péteret, increpábat; étiam suspicién-tem publicánum, ne Jesum vídeat, tardat. Sed sicut cæcus turbárum voces magis ac magis clamándo devícit : ita pusíllus necésse est turbæ nocéntis obstáculum altióra peténdo transcéndat, terréna relínquat, árborem crucis ascéndat. Sycómorus namque (quæ est arbor fóliis moro símilis, sed altitúdine præstans, unde et a Latínis celsa nuncupátur), ficus fátua dícitur. Et éadem Domínica Crux, quæ credéntes alit ut ficus, ab incrédulis irridétur ut fátua.
+
+**Te Deum laudámus.**
+
+## Die VI infra Octavam Dedicationis Ecclesiae
+
+{RUBRIC: Semiduplex}
+
+### In II Nocturno
+
+**De Sermóne sancti Augustíni Epíscopi**
+*Sermo 256 de Tempore*
+
+#### Lectio iv
+
+ERgo, dum novam constructiónem sanctæ hujus ecclésiæ libénter atténdimus, quam divíno nómini hódie dedicámus, invénimus a nobis debéri et Deo nostro máximam laudem, et sanctitáti vestræ cóngruum de divínæ domus ædificatióne sermónem. Tunc autem sermo noster cóngruus erit, si in se áliquid ædificatiónis hábeat, quod utilitáti animárum vestrárum, Deo vos intérius ædificánte, profíciat. Quod hic factum corporáliter vidémus in pariétibus, spiritáliter fiat in méntibus; et, quod hic perféctum cérnimus in lapídibus et lignis, hoc, ædificánte grátia Dei, perficiátur in corpóribus vestris.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+#### Lectio v
+
+PRincipáliter ergo grátias agámus Dómino, Deo nostro, a quo est omne datum óptimum et omne donum perféctum : et ejus bonitátem tota cordis alacritáte laudémus, quóniam ad construéndam istam domum oratiónis, fidélium suórum visitávit ánimum, excitávit afféctum, surrogávit auxílium, inspirávit necdum voléntibus ut vellent, adjúvit bonæ voluntátis conátus ut fácerent. Ac per hoc Deus, qui operátur in suis et velle et perfícere pro bona voluntáte, hæc ómnia ipse cœpit, ipse perfécit.

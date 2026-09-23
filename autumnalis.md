@@ -34886,3 +34886,33 @@ VEndite quæ possidétis, et date eleemósynam. Nolíte, inquit, timére, ne pro
 FAcite vobis sácculos, qui non veteráscunt; eleemósynas vidélicet operándo, quarum merces in ætérnum máneat. Ubi non hoc præcéptum esse putándum est, ut nil pecúniæ reservétur a sanctis, vel suis scílicet vel páuperum úsibus suggeréndæ; cum et ipse Dóminus, cui ministrábant Angeli, tamen ad informándam Ecclésiam suam lóculos habuísse legátur, et a fidélibus obláta conservábant, et suórum necessitátibus aliísque indigéntibus tríbuens; sed, ne Deo propter ista serviátur, et ob inópiæ timórem justítia deserátur.
 
 **Te Deum laudámus.**
+
+---
+
+# Commune Abbatum
+
+{RUBRIC: Omnia de Communi Confessóris non Pontíficis [94], præter Oratiónem et Lectiónes III Noctúrni, ut infra.}
+
+**Oratio**
+
+INtercéssio nos, quæsumus, Dómine, beáti N. Abbátis comméndet : ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 19, 27-29*
+
+IN illo témpore : Dixit Petrus ad Jesum : Ecce nos relíquimus ómnia, et secúti sumus te : quid ergo erit nobis? Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+{RUBRIC: Liber 3 in Matth. cap. 19}
+
+GRandis fidúcia! Petrus piscátor erat, dives non fúerat, cibos manu et arte quærébat; et tamen lóquitur confidénter : Relíquimus ómnia. Et quia non súfficit tantum relínquere, jungit quod perféctum est : Et secúti sumus te. Fécimus quod jussísti : quid ígitur nobis dabis præmii? Jesus autem dixit illis : Amen dico vobis quod vos, qui secúti estis me, in regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ, sedébitis et vos super sedes duódecim, judicántes duódecim tribus Israël. Non dixit : Qui reliquístis ómnia; hoc enim et Crates fecit philósophus, et multi álii divítias contempsérunt : sed, Qui secúti estis me; quod próprie Apostolórum est atque credéntium.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse intercédat.
+
+#### Lectio viii
+
+IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quando et mórtui de corruptióne resúrgent incorrúpti), sedébitis et vos in sóliis judicántium, condemnántes duódecim tribus Israël; quia, vobis credéntibus, illi crédere noluérunt.

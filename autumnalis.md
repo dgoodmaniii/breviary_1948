@@ -35986,3 +35986,62 @@ FOrtem viríli péctore
 Laudémus omnes féminam,
 Quæ sanctitátis glória
 Ubíque fulget ínclita.
+
+Hæc sancto amóre sáucia,
+Dum mundi amórem nóxium
+Horréscit, ad cæléstia
+Iter perégit árduum.
+
+Carnem domans jejúniis,
+Dulcíque mentem pábulo
+Oratiónis nútriens,
+Cæli potítur gáudiis.
+
+Rex Christe, virtus fórtium,
+Qui magna solus éfficis,
+Hujus precátu, quǽsumus,
+Audi benígnus súpplices.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sǽculum.
+Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Date ei \* de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+{RUBRIC: Pro Martyre tantum}
+
+**1 — Oratio**
+
+DEus, qui inter cétera poténtiæ tuæ mirácula étiam in sexu frágili victóriam martýrii contulísti : concéde propítius; ut, qui beátæ N. Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+{RUBRIC: Pro nec Virgine nec Mart.}
+
+**2 — Oratio**
+
+EXáudi nos, Deus, salutáris noster : ut, sicut de beátæ N. festivitáte gaudémus; ita piæ devotiónis erudiámur afféctu. Per Dóminum.
+
+{RUBRIC: Si fuerint plures Martyres non Vírgines :}
+
+℣. Glória et honóre coronásti eas, Dómine. ℟. Et constituísti eas super ópera mánuum tuárum.
+
+**Ad Bened. Ant.** Istárum est enim \* regnum cælórum, quæ contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**3 — Oratio**
+
+DA nobis, quǽsumus, Dómine, Deus noster, sanctárum Mártyrum tuárum N. et N. palmas incessábili devotióne venerári : ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD TERTIAM
+
+{RUBRIC: Pro Martyre tantum}
+
+**Capit.** Confitébor. [136]
+
+{RUBRIC: Pro nec Virgine nec Mart.}
+
+**Capit.** Muliérem. [136]

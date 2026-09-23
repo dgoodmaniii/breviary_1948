@@ -17709,3 +17709,35 @@ FAmíliam tuam, quǽsumus, Dómine, contínua pietáte custódi : ut a cunctis a
 ℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
 
 **Ad Magnif. Ant.** Serve nequam, \* omne débitum dimísi tibi, quóniam rogásti me; nonne ergo opórtuit et te miseréri consérvi tui, sicut et ego tui misértus sum? allelúja.
+
+---
+
+## Dominica XXII post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+DEus, refúgium nostrum, et virtus : adésto piis Ecclésiæ tuæ précibus, auctor ipse pietátis, et præsta; ut, quod fidéliter pétimus, efficáciter consequámur. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 22, 15-21*
+
+IN illo témpore : Abeúntes pharisǽi consílium iniérunt ut cáperent Jesum in sermóne. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+*Comment. in Matth. can. 23*
+
+FRequénter pharisǽi commovéntur, et occasiónem insimulándi eum habére ex prætéritis non possunt. Cádere enim vítium in gesta ejus et dicta non póterat; sed de malítiæ afféctu, in omnem se inquisitiónem reperiúndæ accusatiónis exténdunt. Namque a sǽculi vítiis, atque a superstitiónibus humanárum religiónum, univérsos ad spem regni cæléstis vocábat. Igitur an violáret sǽculi potestátem, de propósitæ interrogatiónis conditióne perténtant; an vidélicet reddi tribútum Cǽsari oportéret.
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+QUI intérna cognitiónum secréta cognóscens (Deus enim nihil eórum quæ intra hóminem sunt abscónsa, non speculátur) afférri sibi denárium jussit, et quæsívit cujus et inscríptio esset et forma. Pharisǽi respondérunt : Cǽsaris eam esse. Quibus ait : Cǽsari redhibénda esse quæ Cǽsaris sunt; Deo autem reddénda esse, quæ Dei sunt. O plenam miráculi responsiónem, et perféctam dicti cæléstis absolutiónem! Ita ómnia inter contémptum sǽculi, et contuméliam lædéndi Cǽsaris temperávit, ut curis ómnibus et offíciis humánis devótas Deo mentes absólveret, cum Cǽsari quæ ejus essent, reddénda decérnit.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.

@@ -30797,3 +30797,99 @@ SEd fortásse áliquis tácitis sibi cogitatiónibus dicat : Ad vocem Domínicam
 **Ant. 1** Salve, crux pretiósa, \* súscipe discípulum ejus, qui pepéndit in te magíster meus Christus.
 
 **Ant. 2** Beátus Andréas \* orábat, dicens : Dómine, Rex ætérnæ glóriæ, súscipe me pendéntem in patíbulo.
+
+**Ant. 3** Andréas Christi fámulus, \* dignus Dei Apóstolus, germánus Petri, et in passióne sócius.
+
+**Ant. 4** Maximílla Christo amábilis \* tulit corpus Apóstoli, óptimo loco cum aromátibus sepelívit.
+
+**Ant. 5** Qui persequebántur justum, \* demersísti eos, Dómine, in inférno, et in ligno crucis dux justi fuísti.
+
+**Capit.** *Rom. 10, 10-11*
+
+FRatres : Corde enim créditur ad justítiam, ore autem conféssio fit ad salútem. Dicit enim Scriptúra : Omnis, qui credit in illum, non confundétur.
+
+**Hymnus**
+
+EXsúltet orbis gáudiis,
+Cælum resúltet láudibus :
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices
+Et vera mundi lúmina,
+Votis precámur córdium :
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quæsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus :
+
+Ut, cum redíbit árbiter
+In fine Christus sæculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória. Amen.
+
+℣. Annuntiavérunt ópera Dei.
+℟. Et facta ejus intellexérunt.
+
+**Ad Bened. Ant.** Concéde nobis \* hóminem justum, redde nobis hóminem sanctum : ne interfícias hóminem Deo carum, justum, mansuétum et pium.
+
+**Oratio**
+
+MAjestátem tuam, Dómine, supplíciter exorámus : ut, sicut Ecclésiæ tuæ beátus Andréas Apóstolus éxstitit prædicátor et rector; ita apud te sit pro nobis perpétuus intercéssor. Per Dóminum.
+
+#### AD PRIMAM
+
+{RUBRIC: Ant. Salve, crux pretiósa, ut supra. 872}
+
+#### AD TERTIAM
+
+{RUBRIC: Ant. Beátus Andréas, ut supra. 872}
+
+{RUBRIC: Capit. ut ad Laudes.}
+
+℟. br. In omnem terram \* Exívit sonus eórum. In. ℣. Et in fines orbis terræ verba eórum. Exívit. **Glória Patri.** In. ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+**Oratio**
+
+MAjestátem tuam, Dómine, supplíciter exorámus : ut, sicut Ecclésiæ tuæ beátus Andréas Apóstolus éxstitit prædicátor et rector; ita apud te sit pro nobis perpétuus intercéssor. Per Dóminum.
+
+#### AD SEXTAM
+
+**Ant.** Andréas Christi fámulus, \* dignus Dei Apóstolus, germánus Petri, et in passióne sócius.
+
+**Capit.** *Rom. 10, 12-13*
+
+NOn enim est distínctio Judǽi et Græci : nam idem Dóminus ómnium, dives in omnes qui ínvocant illum. Omnis enim, quicúmque invocáverit nomen Dómini, salvus erit.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super. **Glória Patri.** Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+#### AD NONAM
+
+**Ant.** Qui persequebántur justum, \* demersísti eos, Dómine, in inférno, et in ligno crucis dux justi fuísti.
+
+**Capit.** *Rom. 10, 16-18*
+
+ISaías enim dicit : Dómine, quis crédidit audítui nostro? Ergo fides ex audítu, audítus autem per verbum Christi. Sed dico : Numquid non audiérunt? Et quidem in omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. **Glória Patri.** Nimis. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+#### IN II VESPERIS
+
+{RUBRIC: Antiphonæ, Capit. et Hymnus ut ad Laudes. 872}
+
+℣. Annuntiavérunt ópera Dei.
+℟. Et facta ejus intellexérunt.
+
+**Ad Magnif. Ant.** Cum pervenísset \* beátus Andréas ad locum, ubi crux paráta erat, exclamávit et dixit : O bona crux, diu desideráta, et jam concupiscénti ánimo præparáta : secúrus et gaudens vénio ad te, ita et tu exsúltans suscípias me discípulum ejus, qui pepéndit in te.

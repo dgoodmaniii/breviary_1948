@@ -39173,3 +39173,51 @@ Et si ingrediebátur ut vidéret, vana loquebátur : \* cor ejus congregávit in
 Egrediebátur foras, \* et loquebátur in idípsum.
 
 Advérsum me susurrábant omnes inimíci mei : \* advérsum me cogitábant mala mihi.
+
+Verbum iníquum constituérunt advérsum me : \* Numquid qui dormit non adjíciet ut resúrgat?
+
+Etenim homo pacis meæ, in quo sperávi : \* qui edébat panes meos, magnificávit super me supplantatiónem.
+
+Tu autem, Dómine, miserére mei, et resúscita me : \* et retríbuam eis.
+
+In hoc cognóvi quóniam voluísti me : \* quóniam non gaudébit inimícus meus super me.
+
+Me autem propter innocéntiam suscepísti : \* et confirmásti me in conspéctu tuo in ætérnum.
+
+Benedíctus Dóminus, Deus Israël, a sǽculo et usque in sǽculum : \* fiat, fiat.
+
+Réquiem ætérnam.
+
+**Ant.** Sana, Dómine, ánimam meam, quia peccávi tibi.
+
+**Ant.** Sitívit \* ánima mea ad Deum vivum : quando véniam, et apparébo ante fáciem Dómini?
+
+###### Psalmus 41
+
+QUemádmodum desíderat cervus ad fontes aquárum : \* ita desíderat ánima mea ad te, Deus.
+
+Sitívit ánima mea ad Deum fortem vivum : \* quando véniam, et apparébo ante fáciem Dei?
+
+Fuérunt mihi lácrimæ meæ panes die ac nocte : \* dum dícitur mihi quotídie : Ubi est Deus tuus?
+
+Hæc recordátus sum, et effúdi in me ánimam meam : \* quóniam transíbo in locum tabernáculi admirábilis, usque ad domum Dei.
+
+In voce exsultatiónis, et confessiónis : \* sonus epulántis.
+
+Quare tristis es, ánima mea? \* et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi : \* salutáre vultus mei, et Deus meus.
+
+Ad meípsum ánima mea conturbáta est : \* proptérea memor ero tui de terra Jordánis, et Hermóniim a monte módico.
+
+Abýssus abýssum invócat, \* in voce cataractárum tuárum.
+
+Omnia excélsa tua, et flúctus tui \* super me transiérunt.
+
+In die mandávit Dóminus misericórdiam suam : \* et nocte cánticum ejus.
+
+Apud me orátio Deo vitæ meæ, \* dicam Deo : Suscéptor meus es.
+
+Quare oblítus es mei? \* et quare contristátus incédo, dum afflígit me inimícus?
+
+Dum confringúntur ossa mea, \* exprobravérunt mihi qui tríbulant me inimíci mei.

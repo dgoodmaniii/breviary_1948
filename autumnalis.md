@@ -40472,4 +40472,28 @@ Orémus.
 
 **Oratio**
 
-CLementíssime Deus, Pater misericordiárum et Deus totíus consolatiónis, qui némini vis períre in te credéntem atque sperántem : secúndum multitúdinem miseratiónum tuárum réspice propítius fámulum tuum N., (fámulam tuam N., quam) tibi vera fides et spes christiána comméndant. Vísita eum (eam) in salutári tuo, et, per Unigéniti tui passiónem et mortem, ómnium ei delictórum suórum remissiónem et véniam cleménter indúlge; ut ejus ánima in hora éxitus sui te júdicem propitiátum invéniat, et, in sánguine ejúsdem Fílii tui
+CLementíssime Deus, Pater misericordiárum et Deus totíus consolatiónis, qui némini vis períre in te credéntem atque sperántem : secúndum multitúdinem miseratiónum tuárum réspice propítius fámulum tuum N., (fámulam tuam N., quam) tibi vera fides et spes christiána comméndant. Vísita eum (eam) in salutári tuo, et, per Unigéniti tui passiónem et mortem, ómnium ei delictórum suórum remissiónem et véniam cleménter indúlge; ut ejus ánima in hora éxitus sui te júdicem propitiátum invéniat, et, in sánguine ejúsdem Fílii tui ab omni mácula ablúta, transíre ad vitam mereátur perpétuam. Per eúmdem Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Tunc, dicto ab uno e Clerícis astántibus Confíteor, Sacérdos dicat Misereátur et Indulgéntiam, ac deínde :}
+
+DOminus noster Jesus Christus, Fílius Dei vivi, qui beáto Petro Apóstolo suo dedit potestátem ligándi atque solvéndi, per suam piíssimam misericórdiam recípiat confessiónem tuam, et restítuat tibi stolam primam, quam in baptísmate recepísti. Et ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo. In nómine Patris, et Fílii, ✠ et Spíritus Sancti. ℟. Amen.
+
+Per sacrosáncta humánæ reparatiónis mystéria, remíttat tibi omnípotens Deus omnes præséntis et futúræ vitæ pœnas, paradísi portas apériat et ad gáudia sempitérna perdúcat. ℟. Amen.
+
+Benedícat te omnípotens Deus Pater, et Fílius, ✠ et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: Si vero Infírmus sit adeo morti próximus, ut neque confessiónis generális faciéndæ, neque præmíssarum precum recitándarum súppetat tempus, statim sacérdos benedictiónem ei impertiátur, dicéndo :}
+
+Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo. In nómine Patris, et Fílii, ✠ et Spíritus Sancti. ℟. Amen.
+
+Per sacrosáncta... etc., {RUBRIC: ut supra.}
+
+Benedícat te... {RUBRIC: ut supra.}
+
+{RUBRIC: In casu vero necessitátis súfficit dícere :}
+
+Ego facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo, et benedíco te. In nómine Patris et Fílii, ✠ et Spíritus Sancti. ℟. Amen.
+
+{RUBRIC: Quando hujúsmodi Benedíctio Apostólica plúribus simul infírmis impertítur, ómnia dicántur semel ut supra, singulári tantum número in plurálem immutáto.}
+
+---

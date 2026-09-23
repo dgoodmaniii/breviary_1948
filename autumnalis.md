@@ -26123,3 +26123,188 @@ DOmine, Deus noster, multíplica super nos grátiam tuam : et, quorum prævením
 {RUBRIC: Et omíttitur Suffrágium de Omnibus Sanctis, étiam si Vigília commemoránda tantum fúerit in Festo semidúplici occurrénti.}
 
 {RUBRIC: Vésperæ de sequénti.}
+
+---
+
+# FESTA NOVEMBRIS
+
+# Die 1 Novembris
+
+## In Festo Omnium Sanctorum
+
+{RUBRIC: DUPLEX I CLASSIS CUM OCTAVA COMMUNI}
+
+#### IN I VESPERIS
+
+**Ant. 1** Vidi turbam magnam, \* quam dinumeráre nemo póterat, ex ómnibus géntibus stantes ante thronum.
+
+{RUBRIC: Psalmi de Dominica 59, sed loco últimi Psalmus 116 Laudáte Dóminum, omnes gentes. 76}
+
+**Ant. 2** Et omnes Angeli \* stabant in circúitu throni, et cecidérunt in conspéctu throni in fácies suas et adoravérunt Deum.
+
+**Ant. 3** Redemísti nos, \* Dómine Deus, in sánguine tuo ex omni tribu et língua et pópulo et natióne, et fecísti nos Deo nostro regnum.
+
+**Ant. 4** Benedícite Dóminum, \* omnes elécti ejus : ágite dies lætítiæ, et confitémini illi.
+
+**Ant. 5** Hymnus \* ómnibus Sanctis ejus : fíliis Israël, pópulo appropinquánti sibi : glória hæc est ómnibus Sanctis ejus.
+
+{RUBRIC: In II Vesperis}
+
+**Psalmus 115**
+
+CRédidi, propter quod locútus sum : \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo : \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam : \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus : \* pretiósa in conspéctu Dómini mors sanctórum ejus :
+
+O Dómine, quia ego servus tuus : \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea : \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus : \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Hymnus ómnibus Sanctis ejus : fíliis Israël, pópulo appropinquánti sibi : glória hæc est ómnibus Sanctis ejus.
+
+**Capitulum**
+*Apoc. 7, 2-3*
+
+ECce ego Joánnes vidi álterum Angelum ascendéntem ab ortu solis, habéntem signum Dei vivi; et clamávit voce magna quátuor Angelis, quibus datum est nocére terræ et mari, dicens : Nolíte nocére terræ et mari neque arbóribus, quoadúsque signémus servos Dei nostri in fróntibus eórum.
+
+**Hymnus**
+
+PLacáre, Christe, sérvulis,
+Quibus Patris cleméntiam
+Tuæ ad tribúnal grátiæ
+Patróna Virgo póstulat.
+
+Et vos, beáta per novem
+Distíncta gyros ágmina,
+Antíqua cum præséntibus
+Futúra damna péllite.
+
+Apóstoli cum Vátibus,
+Apud sevérum Júdicem
+Veris reórum flétibus
+Expóscite indulgéntiam.
+
+Vos, purpuráti Mártyres,
+Vos, candidáti prǽmio
+Confessiónis, éxsules
+Vocáte nos in pátriam.
+
+Choréa casta Vírginum,
+Et quos erémus íncolas
+Transmísit astris, cælitum
+Locáte nos in sédibus.
+
+Auférte gentem pérfidam
+Credéntium de fínibus,
+Ut unus omnes únicum
+Ovíle nos Pastor regat.
+
+Deo Patri sit glória,
+Natóque Patris único,
+Sancto simul Paráclito,
+In sempitérna sǽcula.
+Amen.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Ad Magnif. Ant.** Angeli, \* Archángeli, Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, Chérubim atque Séraphim, Patriárchæ et Prophétæ, sancti legis Doctóres, Apóstoli, omnes Christi Mártyres, sancti Confessóres, Vírgines Dómini, Anachorítæ, Sanctíque omnes, intercédite pro nobis.
+
+#### In II Vesperis
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Magnif. Ant.** O quam gloriósum est regnum \* in quo cum Christo gaudent omnes Sancti, amícti stolis albis sequúntur Agnum quocúmque íerit!
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui nos ómnium Sanctórum tuórum mérita sub una tribuísti celebritáte venerári : quǽsumus; ut desiderátam nobis tuæ propitiatiónis abundántiam, multiplicátis intercessóribus, largiáris. Per Dóminum.
+
+{RUBRIC: Completórium de Domínica.}
+
+#### AD MATUTINUM
+
+**Invit.** Regem regum Dóminum, veníte, adorémus : \* Quia ipse est coróna Sanctórum ómnium. **Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus** Placáre, Christe, ut supra. 723
+
+### In I Nocturno
+
+**Ant.** Novit Dóminus \* viam justórum, qui in lege ejus meditántur die ac nocte.
+
+**Psalmus 1**
+
+BEátus vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit :
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo :
+
+Et fólium ejus non défluet : \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic : \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício : \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum : \* et iter impiórum períbit.
+
+**Ant.** Novit Dóminus viam justórum, qui in lege ejus meditántur die ac nocte.
+
+**Ant.** Mirificávit \* Dóminus Sanctos suos, et exaudívit eos clamántes ad se.
+
+**Psalmus 4**
+
+CUM invocárem exaudívit me Deus justítiæ meæ : \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quǽritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum : \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre : \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt : Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine : \* dedísti lætítiam in corde meo.
+
+A fructu fruménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** Mirificávit Dóminus Sanctos suos, et exaudívit eos clamántes ad se.
+
+**Ant.** Admirábile est \* nomen tuum, Dómine; quia glória et honóre coronásti Sanctos tuos, et constituísti eos super ópera mánuum tuárum.
+
+**Psalmus 8**
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum : \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas : ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Admirábile est nomen tuum, Dómine; quia glória et honóre coronásti Sanctos tuos, et constituísti eos super ópera mánuum tuárum.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.

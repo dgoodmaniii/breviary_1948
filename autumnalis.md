@@ -34055,4 +34055,51 @@ LEctio sancti Evangélii, fratres caríssimi, sollícite considerári nos ádmon
 
 #### Lectio viii
 
-QUis ítaque iste homo est, qui péregre proficíscitur, nisi Redémptor noster, qui in ea carne, quam assúmpserat, ábiit in cælum? Carnis enim locus próprius terra est; quæ quasi ad peregrína dúcitur, dum per Redemptórem nostrum in cælo collocátur. Sed homo iste, péregre proficíscens, servis suis bona sua trádidit, quia fidélibus suis spirituália dona concéssit. Et uni quidem quinque talénta, álii duo, álii vero commísit unum. Quinque éténim sunt córporis sensus, vidélicet : visus, audítus, gustus, odorátus et tactus. Quinque ergo taléntis donum quinque sénsuum, id est, exteriórum sciéntia exprimítur.
+QUis ítaque iste homo est, qui péregre proficíscitur, nisi Redémptor noster, qui in ea carne, quam assúmpserat, ábiit in cælum? Carnis enim locus próprius terra est; quæ quasi ad peregrína dúcitur, dum per Redemptórem nostrum in cælo collocátur. Sed homo iste, péregre proficíscens, servis suis bona sua trádidit, quia fidélibus suis spirituália dona concéssit. Et uni quidem quinque talénta, álii duo, álii vero commísit unum. Quinque éténim sunt córporis sensus, vidélicet : visus, audítus, gustus, odorátus et tactus. Quinque ergo taléntis donum quinque sénsuum, id est, exteriórum sciéntia exprimítur. Uníus autem talénti nómine intelléctus tantúmmodo designátur.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. **Glória Patri.** Et.
+
+**Benedictio.** Ad societátem.
+
+#### Lectio ix
+
+SEd is, qui quinque talénta accéperat, ália quinque lucrátus est : quia sunt nonnúlli, qui, etsi intérna ac mýstica penetráre nésciunt, pro intentióne tamen supérnæ pátriæ docent recta quos possunt; de ipsis exterióribus, quæ accepérunt, duplum talén tum portant; dumque se a carnis petulántia et a terrenárum rerum ámbitu atque a visibílium voluptáte custódiunt, ab his étiam álios admonéndo compéscunt. Et sunt nonnúlli, qui, quasi duóbus taléntis ditáti, intelléctum atque operatiónem percípiunt, subtília de intérnis intélligunt, mira in exterióribus operántur. Cumque et intelligéndo et operándo áliis prædicant, quasi duplicátum de negótio lucrum repórtant.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Ecce sacérdos magnus, \* qui in diébus suis plácuit Deo, et invéntus est justus.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**Ant. 2** Non est invéntus \* símilis illi, qui conserváret legem Excélsi.
+
+**Ant. 3** Ideo jurejurándo \* fecit illum Dóminus créscere in plebem suam.
+
+**Ant. 4** Sacerdótes Dei, \* benedícite Dóminum : servi Dómini, hymnum dícite Deo, allelúja.
+
+**Ant. 5** Serve bone \* et fidélis, intra in gáudium Dómini tui.
+
+**Capit.** *Eccli. 44, 16-17*
+
+ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus : et in témpore iracúndiæ factus est reconciliátio.
+
+**Hymnus**
+
+JEsu, Redémptor ómnium,
+Perpes coróna Præsulum,
+In hac die cleméntius
+Indúlgeas precántibus,
+
+Tui sacri qua nóminis
+Conféssor almus cláruit :
+Hujus celébrat ánnua
+Devóta plebs solémnia,
+
+Qui rite mundi gáudia
+Hujus cadúca réspuens,
+Æternitátis prǽmio
+Potítur inter Angelos.

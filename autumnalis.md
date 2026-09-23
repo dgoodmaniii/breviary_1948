@@ -34553,3 +34553,40 @@ DEus, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti : præ
 INtercéssio nos, quæsumus, Dómine, beáti N. Abbátis comméndet : ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
 
 {RUBRIC: Completorium de Dominica.}
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Confessórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+{RUBRIC: Hymnus Iste Conféssor, ut supra. [94]}
+
+{RUBRIC: Antiphonæ et Psalmi trium Nocturnorum dicúntur ut in Communi Conf. Pont. [71]; Versus ut (ibidem et) infra.}
+
+### In I Nocturno
+
+℣. Amávit eum Dóminus, et ornávit eum.
+℟. Stolam glóriæ índuit eum.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Benedictio.** Benedictióne.
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+*Cap. 31, 8-11*
+
+BEátus vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua. Qui probátus est in illo et perféctus est, erit illi glória ætérna. Qui pótuit tránsgredi, et non est transgréssus; fácere mala, et non fecit : ídeo stabilíta sunt bona illíus in Dómino, et eleemósynas illíus enarrábit omnis ecclésia sanctórum.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam : \* Intra in gáudium Dómini tui. ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.
+
+**Benedictio.** Unigénitus Dei.
+
+#### Lectio ii
+*Cap. 32, 18-20, 28; 33, 1-3*
+
+QUI timet Dóminum, excípiet doctrínam ejus : et qui vigiláverint ad illum, invénient benedictiónem. Qui quærit legem, replébitur ab ea : et qui insidióse agit, scandalizábitur in ea. Qui timent Dóminum, invénient judícium justum, et justítias quasi lumen accéndent. Qui credit Deo, atténdit mandátis : et qui confídit in illo, non minorábitur. Timénti Dóminum non occúrrent mala; sed in tentatióne Deus illum conservábit, et liberábit a malis. Sápiens non odit mandáta et justítias, et non illidétur quasi in procélla navis. Homo sensátus credit legi Dei, et lex illi fidélis.
+
+℟. Justus germinábit sicut lílium : \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et florébit.
+
+**Benedictio.** Spíritus Sancti.

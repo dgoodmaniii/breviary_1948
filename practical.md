@@ -1006,4 +1006,28 @@ Office will be said to-day, with a commemoration of to-day's (second) Vespers. I
 
 [^61]: The ordinary Sunday's first Vespers is that found in the Psalter for Saturday. The current "Sabbato" in the *Proprium de Tempore* should, however, be first consulted, so that nothing be taken from the Psalter which is given as proper in the *Proprium de Temp.* The *Oration* used is always that of the next day.
 
+for example, be ferial and festal: *ferial* (even with *Preces*, etc.) until None inclusive, and *festal* from Vespers on, because of some feast celebrated the following day.[^62]
+
+[^62]: When two or more feasts fall on the same day there is said to be *occurrence* of Offices, but when the Office of a given day comes into conflict with the Office of the following day at Vespers, that is called *concurrence* (always referring, therefore, to the meeting of one day's second Vespers with the first Vespers of the next day).
+
+---
+
+## CHAPTER VIII
+
+## COMPLINE
+
+**52.** Compline is a very irregular Hour, but, being practically invariable, it is one of the easiest to recite, and the best rule to give is: "Say Compline as it is written in the Ordinarium," paying attention, however, to the following points.
+
+(a) Compline begins "*absolute*," i. e., without the usual introductory preamble.
+
+(b) Compline has a set of *Preces* used either as *feriales* or *dominicales*, according to principles already given.
+
+(c) Compline, like the Little Hours, has three variable psalms accompanied by one antiphon which is *never* doubled.
+
+(d) Compline, like Prime, ends with a "*Benedictio*," after which the Final Antiphon to the Blessed Virgin (according to the Time of the year) is *immediately* recited, without being preceded by a *Pater noster* or the prayer: "Dominus det nobis suam pacem: Et vitam æternam. Amen." (Cf. n. 26.)
+
+(e) As an appropriate ending to the day's Office, the *Pater*, *Ave*, and *Credo* are recited after the antiphon to the Blessed Virgin following Compline.
+
+Should the Matins of the next day's Office be said immediately after Compline, then the *Pater*, *Ave*, and *Credo* must be recited again as the beginning of a new Office.
+
 ---

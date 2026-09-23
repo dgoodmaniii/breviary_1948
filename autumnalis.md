@@ -38711,3 +38711,37 @@ INclína, Dómine, aurem tuam ad preces nostras, quibus misericórdiam tuam súp
 **Oratio**
 
 QUǽsumus, Dómine, pro tua pietáte miserére ánimæ fámulæ tuæ N. : et a contágiis mortalitátis exútam, in ætérnæ salvatiónis partem restítue. Per Dóminum.
+
+**Pro defúnctis frátribus, propínquis et benefactóribus**
+
+**Oratio**
+
+DEus, véniæ largítor et humánæ salútis amátor : quǽsumus cleméntiam tuam; ut nostræ congregatiónis fratres, propínquos et benefactóres, qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium perveníre concédas. Per Dóminum.
+
+**Pro patre et matre**
+
+**Oratio**
+
+DEus, qui nos patrem et matrem honoráre præcepísti : miserére cleménter animábus patris et matris meæ, eorúmque peccáta dimítte; meque eos in ætérnæ claritátis gáudio fac vidére. Per Dóminum.
+
+{RUBRIC: Si fit pro plúribus, dicátur : animábus paréntum nostrórum, et, ubi dícitur meque, dicátur nosque.}
+
+{RUBRIC: Si pro patre tantum, dicátur ánimæ patris mei, vel nostri.}
+
+{RUBRIC: Si pro matre tantum, dicátur ánimæ matris meæ, vel nostræ.}
+
+**In Officio Defunctorum per Annum**
+
+**Oratio**
+
+DEus, qui inter apostólicos sacerdótes fámulos tuos pontificáli seu sacerdotáli fecísti dignitáte vigére : præsta, quǽsumus; ut eórum quoque perpétuo aggregéntur consórtio.
+
+DEus, véniæ largítor et humánæ salútis amátor : quǽsumus cleméntiam tuam; ut nostræ congregatiónis fratres, propínquos et benefactóres, qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium perveníre concédas.
+
+FIdélium, Deus, ómnium Cónditor et Redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum : ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur : Qui vivis et regnas cum Deo Patre in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
+
+{RUBRIC: Post Oratiónem dícitur (semper plúrali número) :}
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.

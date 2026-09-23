@@ -30666,3 +30666,71 @@ ANdréas Apóstolus, Bethsáidæ natus, qui est Galilǽæ vicus, frater Petri, d
 ##### Lectio v
 
 TUm Ægéas irátus, Désine, inquit, Christum jactáre, cui simília verba nihil profuérunt, quóminus a Judǽis crucifigerétur. Andréam vero de Christo nihilóminus líbere prædicántem quod pro salúte humáni géneris se crucifigéndum obtulísset, ímpia oratióne interpéllat, ac demum hortátur, ut sibi cónsulens, diis velit immoláre. Cui Andréas : Ego omnipoténti Deo, qui unus et verus est, ímmolo quotídie, non taurórum carnes, nec hircórum sánguinem, sed immaculátum Agnum in altári; cujus carnem posteáquam omnis pópulus credéntium manducáverit, Agnus, qui sacrificátus est, ínteger persevérat et vivus. Quam ob rem ira accénsus Ægéas, jubet eum in cárcerem detrúdi : unde pópulus Andréam fácile liberásset, nisi ipse sedásset multitúdinem, vehementíus rogans, ne se ad optatíssimam martýrii corónam properántem impedírent.
+
+℟. O bona crux, quæ decórem et pulchritúdinem de membris Dómini suscepísti; áccipe me ab homínibus, et redde me magístro meo : \* Ut per te me recípiat, qui per te me redémit. ℣. Beátus Andréas expánsis mánibus ad cælum orábat, dicens : Salva me, bona crux. — Ut.
+
+##### Lectio vi
+
+IGitur paulo post in tribúnal prodúctum, cum Ægéas crucis extolléntem mystéria sibíque suam impietátem exprobrántem diútius ferre non posset, in crucem tolli, et Christi mortem imitári jussit. Addúctus Andréas ad locum martýrii, cum crucem vidísset, longe exclamáre cœpit : O bona crux, quæ decórem ex membris Dómini suscepísti, diu desideráta, sollícite amáta, sine intermissióne quæsíta, et aliquándo cupiénti ánimo præparáta : áccipe me ab homínibus, et redde me magístro meo; ut per te me recípiat, qui per te me redémit. Itaque cruci affíxus est : in qua bíduum vivus pendens, et Christi fidem prædicáre numquam intermíttens, ad eum migrávit, cujus mortis similitúdinem concupíerat. Quæ ómnia presbýteri et diáconi Acháiæ, qui ejus passiónem scripsérunt, se ita ut commemoráta sunt, audísse et vidísse testántur. Ejus ossa primum Constantíno imperatóre Constantinópolim, deínde Amálphim transláta sunt. Caput, Pio secúndo Pontífice, Romam allátum, in basílica sancti Petri collocátum est.
+
+℟. Expándi manus meas tota die ad pópulum non credéntem, sed contradicéntem mihi : \* Qui ámbulant vias non bonas, sed post peccáta sua. ℣. Deus ultiónum Dóminus, Deus ultiónum líbere egit : exaltáre, qui júdicas terram, redde retributiónem supérbis. — Qui. **Glória Patri.** Qui.
+
+### In III Nocturno
+
+**Ant.** Non me permíttas, Dómine, \* fámulum tuum a te separári : tempus est ut commendétur terræ corpus meum, et me ad te veníre júbeas.
+
+**Psalmus 74**
+
+COnfitébimur tibi, Deus : \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua : \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea : \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis : Nolíte iníque ágere : \* et delinquéntibus : Nolíte exaltáre cornu :
+
+Nolíte extóllere in altum cornu vestrum : \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus : \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat : \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc : verúmtamen fæx ejus non est exinaníta : \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sæculum : \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam : \* et exaltabúntur córnua justi.
+
+**Ant.** Non me permíttas, Dómine, fámulum tuum a te separári : tempus est ut commendétur terræ corpus meum, et me ad te veníre júbeas.
+
+**Ant.** Andréas vero rogábat pópulum, \* ut non impedíret passiónem ipsíus.
+
+**Psalmus 96**
+
+DOminus regnávit, exsúltet terra : \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Andréas vero rogábat pópulum, ut non impedíret passiónem ipsíus.

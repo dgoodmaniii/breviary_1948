@@ -933,4 +933,43 @@ The remaining "branching-off" part of Prime, being invariable, will cause no dif
 
 [^53]: The verse "*Qui sedes ad dexteram Patris*," however, changes from time to time. The change is usually indicated after Lauds in the Proper of the Office that entails it, e. g., after Lauds given in the *Proprium Sanctorum* for the feast of the Transfiguration (Aug. 6th), directions are given to change the verse referred to, into "*Qui apparuisti hodie*."
 
+one particular part (near the end of the Hour) which, being variable, requires special attention. That part is:
+
+### The "Lectio Brevis"
+
+**43.** Like other Lessons, the *Lectio brevis* is preceded by a Benediction (invariable at Prime) and followed by "*Tu, autem, Domine*," etc., (12, B).
+
+The rule for finding the *Lectio brevis* at Prime is:
+
+(a) On *feasts* it is the same as the *Capitulum of None* in the Office recited. This Capitulum, when used as such, takes *Deo gratias* after it, but, as a Lesson it ends with "*Tu, autem, Domine*," etc.
+
+(b) On *Sundays* and *ferials* it is found in its proper place in the Ordinarium, or sometimes in the Psalter.
+
+In a word, it may be said that Prime is invariable, excepting the psalms and the *Lectio brevis*.
+
+### Preces Dominicales
+
+**44.** Every Hour except Matins has *Preces feriales*, but Prime and Compline alone have an additional set of prayers called *Preces Dominicales*,[^54] which, indeed, are very similar to the former. Their place in the scheme of the Office is the same as that of the *Preces feriales* (n. 29), and they are recited, as a general rule, in Prime, when the Suf-
+
+[^54]: The *Preces dominicales* in Prime are simply part of the *Preces feriales*. In Compline both are the same.
+
+fragium has been said at Lauds; and in Compline, when the Suffragium has been said at Vespers.[^55]
+
+### The Psalms of Prime
+
+**45.** Each of the Little Hours has three psalms accompanied by one antiphon which is simply announced before the first psalm and said entire after the last one, according to the general rules already stated. Now, Prime is the only Little Hour that may have four psalms. This fact has already been explained when treating of Lauds of the second scheme (n. 35), where it was said that the first psalm of Lauds I. (replaced by the *Miserere* in Lauds II.) is made the fourth psalm of Prime, when Lauds of the second scheme is used in the Office.[^56]
+
+**46.** Sometimes the *Athanasian Creed* ("Quicumque") is likewise added, *per modum Psalmi*, to the ordinary three psalms of *Sunday* Prime. This is usually the case on the *Sundays after the Epiphany and Pentecost*, whenever the Sunday Office is said without a commemoration (in Lauds) of either a double or an octave. It is also recited on the feast of the Blessed Trinity. The Athanasian Creed is found after the Sunday psalms of Prime in the Psalter.
+
+There is another psalm in *Sunday* Prime, viz., the
+
+[^55]: The *Preces feriales* and *dominicales* cannot both be said at the same Hour.
+[^56]: On Sundays, however, the additional psalms taken from Lauds are said before the psalms of Prime, not after them.
+
+*Deus, in nomine tuo salvum me fac*, which will be treated of later on (n. 59).
+
+### Ending of Prime
+
+**47.** Prime (like Compline) ends with a "*Benedictio*," to which a *Pater noster* is added unless another Hour immediately follows.
+
 ---

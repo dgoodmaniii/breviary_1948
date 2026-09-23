@@ -21998,3 +21998,61 @@ DEus, qui Ecclésiæ tuæ in exponéndis sacris Scriptúris beátum Hierónymum,
 HIerónymus, Eusébii fílius, Stridóne in Dalmátia, Constántio imperatóre, natus, Romæ adoléscens est baptizátus, et in liberálibus disciplínis a Donáto et áliis viris doctíssimis erudítus. Tum discéndi stúdio Gálliam peragrávit; ubi pios áliquot et in divínis lítteris erudítos viros cóluit, multósque sacros libros sua manu descrípsit. Mox, se in Grǽciam cónferens, philosóphia et eloquéntia instrúctus, summórum theológorum consuetúdine flóruit. In primis vero, Gregório Nazianzéno Constantinópoli óperam dedit; quo doctóre se sacras lítteras didicísse profitétur. Tum religiónis causa visit Christi Dómini incunábula, totámque lustrávit Palæstínam; quam peregrinatiónem, adhíbitis Hebræórum eruditíssimis, ad sacræ Scriptúræ intelligéntiam sibi multum profuísse testátur.
 
 ℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+DEínde secéssit in vastam Sýriæ solitúdinem; ubi quadriénnium in lectióne divinórum librórum cæléstisque beatitúdinis contemplatióne consúmpsit, assídua se abstinéntia, vi lacrimárum et córporis afflictatióne discrúcians. Présbyter a Paulíno epíscopo Antiochíæ factus, Romam de controvérsis quorúmdam episcopórum cum Paulíno et Epiphánio ad Dámasum Pontíficem proféctus, ejus ecclesiásticis epístolis scribéndis adjútor fuit. Verum, cum prístinæ solitúdinis desidério tenerétur, in Palæstínam revérsus, Béthlehem ad Christi Dómini præsépe, in monastério quod a Paula Romána exstrúctum erat, cæléstem quamdam vitæ ratiónem instítuit; et, quamquam várie morbis doloribúsque tentarétur, tamen córporis incómmoda piis labóribus et perpétua lectióne ac scriptióne superábat.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+TAmquam ad oráculum, ex ómnibus orbis pártibus, ad ipsum divínæ Scriptúræ quæstiónes explicándæ referebántur. Illum Dámasus Póntifex, illum sanctus Augustínus de locis Scriptúræ difficíllimis sæpe consúluit, propter ejus singulárem doctrínam, et linguæ non solum Latínæ et Grǽcæ, sed Hebráicæ étiam et Chaldáicæ, intelligéntiam; et quod omnes pene scriptóres, ejúsdem Augustíni testimónio, légerat. Hæréticos acérrimis scriptis exagitávit; piórum et cathólicórum patrocínium semper suscépit. Vetus Testaméntum ex Hebrǽo convértit; novum, jussu Dámasi, Grǽcæ fídei réddidit, magna étiam ex parte explicávit. Multa prætérea Latíne réddidit scripta doctórum virórum, et ipse áliis próprii ingénii monuméntis christiánam disciplínam illustrávit. Qui ad summam senectútem pervéniens, sanctitáte et doctrína illústris, Honório imperatóre, migrávit in cælum. Cujus corpus, ad Béthlehem sepúltum, póstea Romam in basílicam sanctæ Maríæ ad Præsépe translátum est.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+HIerónymus, Stridóne in Dalmátia natus, Romæ adoléscens est baptizátus, et liberálibus discíplinis a Donáto et áliis viris doctíssimis erudítus. Religiónis causa, totam lustrávit Palæstínam. Deínde secéssit in vastam Sýriæ solitúdinem, ubi quadriénnium in lectióne divinórum librórum cæléstisque beatitúdinis contemplatióne consúmpsit. Présbyter a Paulíno epíscopo Antiochíæ factus et in Palæstínam revérsus, Béthlehem ad Christi Dómini præsépe cæléstem quamdam vitæ ratiónem instítuit, et diáboli insídias piis labóribus ac perpétua lectióne et scriptióne superávit. Tamquam ad oráculum, úndique ad ipsum divínæ Scriptúræ quæstiónes explicándæ referebántur. Illum Dámasus Románus Póntifex et sanctus Augustínus de locis Scriptúræ difficíllimis sæpe consuluérunt propter ejus singulárem doctrínam et linguæ non solum Latínæ et Grǽcæ, sed Hebráicæ étiam et Chaldáicæ intelligéntiam. Vetus Testaméntum ex Hebrǽo convértit; novum, jussu Dámasi, Grǽcæ fídei rédditum, magna étiam ex parte explicávit. In summa senectúte migrávit in cælum. Ejus corpus, ad Béthlehem sepúltum, póstea Romam delátum, in basílica sanctæ Maríæ majóris cónditum fuit.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 5, 13-19*
+
+IN illo témpore : Dixit Jesus discípulis suis : Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 1 Comment. in cap. 5 Matthǽi*
+
+SAL appellántur Apóstoli et Doctóres; quia per illos univérsum hóminum condítur genus. Quod si sal evanúerit, in quo saliétur? Si doctor erráverit, a quo álio doctóre emendábitur? Ad níhilum valet ultra, nisi ut mittátur foras, et conculcétur ab homínibus. Exémplum de agricultúra sumptum est. Sal étenim, sicut in cibórum condiméntum et ad siccándas carnes necessárium est, ita álium usum non habet. Certe légimus in Scriptúris urbes quasdam, ira victórum, sale seminátas, ut nullum in ipsis germen orirétur.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine querély, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse intercédat pro peccátis ómnium populórum.
+
+##### Lectio viii
+
+CAveant ergo doctóres et epíscopi, et vídeant Poténtes poténter torménta sustinére; nihílque esse remédii, sed majórum ruínam ad tártarum dúcere. Vos estis lux mundi. Non potest cívitas abscóndi supra montem pósita; neque accéndunt lucérnam, et ponunt eam sub módio, sed super candelábrum, ut lúceat ómnibus qui in domo sunt. Docet fidúciam prædicándi, ne Apóstoli abscondántur ob metum, et sint símiles lucérnæ sub módio; sed tota libertáte se prodant, ut, quod audiérunt in cubículis, prǽdicent in tectis.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+NOlíte putáre quóniam veni sólvere legem aut prophétas; non veni sólvere, sed adimplére. Sive quod de se per álios prophetáta compléverit, sive quod ea, quæ ante propter infirmitátem audiéntium rúdia et imperfécta fúerant, sua prædicatióne compléverit, iram tollens et vicem taliónis exclúdens et occúltam in mente concupiscéntiam damnans. Donec tránseat cælum et terra. Promittúntur nobis cæli novi et terra nova, quæ factúrus est Dóminus Deus. Si ergo nova creánda sunt, conseqénter vétera transitúra.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui Ecclésiæ tuæ in exponéndis sacris Scriptúris beátum Hierónymum, Confessórem tuum, Doctórem máximum providére dignátus es : præsta, quǽsumus; ut, ejus suffragántibus méritis, quod ore simul et ópere dócuit, te adjuvánte, exercére valeámus. Per Dóminum.

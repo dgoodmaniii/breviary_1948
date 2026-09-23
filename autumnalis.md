@@ -21376,3 +21376,198 @@ WEncesláus, Bohémiæ dux, Wratisláo patre christiáno, Drahomíra matre gent�
 DEus, qui beátum Wencesláum per martýrii palmam a terréno principátu ad cæléstem glóriam transtulísti : ejus précibus nos ab omni adversitáte custódi; et ejúsdem tríbue gaudére consórtio. Per Dóminum.
 
 {RUBRIC: Vésperæ de sequénti, sine Commemoratióne præced.}
+
+---
+
+## Die 29 Septembris — In Dedicatione S. Michaëlis Archangeli
+
+{RUBRIC: DUPLEX I CLASSIS}
+
+#### IN I VESPERIS
+
+**Ant. 1** Stetit Angelus \* juxta aram templi, habens thuríbulum áureum in manu sua.
+
+{RUBRIC: Psalmi de Dominica 59, sed loco ultimi Ps. 116 Laudáte Dóminum, omnes gentes. 76}
+
+**Ant. 2** Dum prælliarétur \* Michaël Archángelus cum dracóne, audíta est vox dicéntium : Salus Deo nostro, allelúja.
+
+**Ant. 3** Archángele Míchaël, \* constítui te príncipem super omnes ánimas suscipiéndas.
+
+**Ant. 4** Angeli Dómini, \* Dóminum benedícite in ætérnum.
+
+**Ant. 5** Angeli, Archángeli, \* Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+#### In II Vesperis
+
+**Psalmus 137**
+
+COnfitébor tibi, Dómine, in toto corde meo : * quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi : * adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua : * quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me : * multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ : * quia audiérunt ómnia verba oris tui :
+
+Et cantent in viis Dómini : * quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit : * et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me : * et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me : * Dómine, misericórdia tua in sǽculum : ópera mánuum tuárum ne despícias.
+
+**Ant.** Angeli, Archángeli, Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+**Capitulum**
+*Apoc. 1, 1-2*
+
+SIgnificávit Deus quæ opórtet fíeri cito, loquens per Angelum suum servo suo Joánni, qui testimónium perhíbuit verbo Dei, et testimónium Jesu Christi, quæcúmque vidit.
+
+**Hymnus**
+
+TE, splendor et virtus Patris,
+Te vita, Jesu, córdium,
+Ab ore qui pendent tuo,
+Laudámus inter Angelos.
+
+Tibi mille densa míllium
+Ducum coróna mílitat;
+Sed éxplicat victor crucem
+Míchaël salútis sígnifer.
+
+Dracónis hic dirum caput
+In ima pellit tártara,
+Ducémque cum rebéllibus
+Cælésti ab arce fúlminat.
+
+Contra ducem supérbiæ
+Sequámur hunc nos príncipem,
+Ut detur ex Agni throno
+Nobis coróna glóriæ.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+DEo Patri sit glória,
+Qui, quos redémit Fílius,
+Et Sanctus unxit Spíritus,
+Per Angelos custódiat.
+Amen.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+**Ad Magnif. Ant.** Dum sacrum mystérium \* cérneret Joánnes, Archángelus Míchaël tuba cécinit : Ignósce, Dómine, Deus noster, qui áperis librum, et solvis signácula ejus, allelúja.
+
+#### In II Vesperis
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+**Ad Magnif. Ant.** Princeps gloriosíssime, \* Míchaël Archángele, esto memor nostri : hic et ubíque semper precáre pro nobis Fílium Dei, allelúja, allelúja.
+
+**Oratio**
+
+DEus, qui, miro órdine, Angelórum ministéria hominúmque dispénsas : concéde propítius; ut, a quibus tibi ministrántibus in cælo semper assístitur, ab his in terra vita nostra muniátur. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+#### AD MATUTINUM
+
+**Invit.** Regem Archangelórum Dóminum, \* Veníte, adorémus.
+
+**Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus** Te, splendor, ut supra. 574
+
+### In I Nocturno
+
+**Ant.** Concússum est mare, \* et contrémuit terra, ubi Archángelus Míchaël descendébat de cælo.
+
+**Psalmus 8**
+
+DOmine, Dóminus noster, * quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, * super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, * ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos ópera digitórum tuórum : * lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? * aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : * et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, * oves et boves univérsas : ínsuper et pécora campi.
+
+Volúcres cæli, et pisces maris, * qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, * quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Concússum est mare, et contrémuit terra, ubi Archángelus Míchaël descendébat de cælo.
+
+**Ant.** Laudémus Dóminum, \* quem laudant Angeli, quem Chérubim et Séraphim, sanctus, sanctus, sanctus proclámant.
+
+**Psalmus 10**
+
+IN Dómino confído : quómodo dícitis ánimæ meæ : * Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, * ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt : * justus autem quid fecit?
+
+Dóminus in templo sancto suo, * Dóminus in cælo sedes ejus :
+
+Óculi ejus in páuperem respíciunt : * pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium : * qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos : * ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit : * æquitátem vidit vultus ejus.
+
+**Ant.** Laudémus Dóminum, quem laudant Angeli, quem Chérubim et Séraphim, sanctus, sanctus, sanctus proclámant.
+
+**Ant.** Ascéndit \* fumus arómatum in conspéctu Dómini de manu Angeli.
+
+**Psalmus 14**
+
+DOmine, quis habitábit in tabernáculo tuo? * aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, * et operátur justítiam :
+
+Qui lóquitur veritátem in corde suo, * qui non egit dolum in lingua sua :
+
+Nec fecit próximo suo malum, * et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus : * timéntes autem Dóminum gloríficat :
+
+Qui jurat próximo suo, et non décipit, * qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, * non movébitur in ætérnum.
+
+**Ant.** Ascéndit fumus arómatum in conspéctu Dómini de manu Angeli.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+{RUBRIC: De Daniéle Prophéta}
+
+##### Lectio i
+*Cap. 7, 9-11*
+
+ASpiciébam donec throni pósiti sunt, et antíquus diérum sedit. Vestiméntum ejus cándidum quasi nix, et capílli cápitis ejus quasi lana munda, thronus ejus flammæ ignis, rotæ ejus ignis accénsus. Flúvius ígneus rapidúsque egrediebátur a fácie ejus; míllia míllium ministrábant ei, et décies míllies centéna míllia assistébant ei. Judícium sedit, et libri apérti sunt. Aspiciébam propter vocem sermónum grándium, quos cornu illud loquebátur; et vidi quóniam interfécta esset béstia, et periísset corpus ejus, et tráditum esset ad comburéndum igni.
+
+℟. Factum est siléntium in cælo, dum commítteret bellum draco cum Michaéle Archángelo : \* Audíta est vox míllia míllium dicéntium : Salus, honor et virtus omnipoténti Deo. ℣. Míllia míllium ministrábant ei, et décies centéna míllia assistébant ei. — Audíta.
+
+##### Lectio ii
+*Cap. 10, 4-14*
+
+DIe autem vigésima et quarta mensis primi, eram juxta flúvium magnum, qui est Tigris. Et levávi óculos meos, et vidi : et ecce vir unus vestítus líneis, et renes ejus accíncti auro obrízo; et corpus ejus quasi chrysólithus, et fácies ejus velut spécies fúlguris, et óculi ejus ut lampas ardens, et bráchia ejus, et quæ deórsum sunt usque ad pedes, quasi spécies æris candéntis; et vox sermónum ejus ut vox multitúdinis. Vidi autem ego Dániel solus visiónem; porro viri qui erant mecum non vidérunt; sed terror nímius írruit super eos, et fugérunt in abscónditum. Ego autem, relíctus solus, vidi visiónem grandem hanc, et non remánsit in me fortitúdo, sed et spécies mea immutáta est in me, et emárcui nec hábui quidquam vírium.
+
+℟. Stetit Angelus juxta aram templi, habens thuríbulum áureum in manu sua, et data sunt ei incénsa multa : \* Et ascéndit fumus arómatum de manu Angeli in conspéctu Dómini. ℣. In conspéctu Angelórum psallam tibi : adorábo ad templum sanctum tuum, et confitébor nómini tuo, Dómine. — Et.
+
+##### Lectio iii
+
+ET audívi vocem sermónum ejus : et áudiens jacébam consternátus super fáciem meam, et vultus meus hærébat terræ. Et ecce manus tétigit me, et eréxit me super génua mea et super artículos mánuum meárum. Et dixit ad me : Dániel, vir desideriórum, intéllige verba quæ ego loquor ad te, et sta in gradu tuo; nunc enim sum missus ad te. Cumque dixísset mihi sermónem istum, steti tremens. Et ait ad me : Noli metúere, Dániel, quia ex die primo quo posuísti cor tuum ad intelligéndum, ut te afflígeres in conspéctu Dei tui, exaudíta sunt verba tua, et ego veni propter sermónes tuos. Princeps autem regni Persárum réstitit mihi vigínti et uno diébus; et ecce Michaël, unus de princípibus primis, venit in adjutórium meum, et ego remánsi ibi juxta regem Persárum. Veni autem ut docérem te quæ ventúra sunt pópulo tuo in novíssimis diébus, quóniam adhuc vísio in dies.
+
+℟. In conspéctu Angelórum psallam tibi, et adorábo ad templum sanctum tuum : \* Et confitébor nómini tuo, Dómine. ℣. Super misericórdia tua et veritáte tua : quóniam magnificásti super nos nomen sanctum tuum. — Et. Glória Patri. Et.

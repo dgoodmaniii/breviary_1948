@@ -26017,3 +26017,109 @@ COncéde, quǽsumus, omnípotens Deus : ut, sicut Apostolórum tuórum Simónis 
 **Oratio**
 
 DEus, qui nos per beátos Apóstolos tuos Simónem et Judam ad agnitiónem tui nóminis veníre tribuísti : da nobis eórum glóriam sempitérnam et proficiéndo celebráre, et celebrándo profícere. Per Dóminum.
+
+### In I Nocturno
+
+{RUBRIC: Incipit Epístola cathólica beáti Judæ Apóstoli}
+
+##### Lectio i
+*Vers. 1-13*
+
+JUdas, Jesu Christi servus, frater autem Jacóbi, his qui sunt in Deo Patre diléctis et Christo Jesu conservátis et vocátis. Misericórdia vobis et pax et cáritas adimpleátur. Caríssimi, omnem sollicitúdinem fáciens scribéndi vobis de commúni vestra salúte, necésse hábui scríbere vobis déprecans supercertári semel tráditæ sanctis fídei. Subintroiérunt enim quidam hómines, qui olim præscrípti sunt in hoc judícium, ímpii, Dei nostri grátiam transferéntes in luxúriam, et solum Dominatórem et Dóminum nostrum Jesum Christum negántes.
+
+℟. Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus : \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte.
+
+##### Lectio ii
+
+COmmonére autem vos volo, sciéntes semel ómnia, quóniam Jesus pópulum de terra Ægýpti salvans, secúndo eos, qui non credidérunt, pérdidit : ángelos vero, qui non servavérunt suum principátum, sed dereliquérunt suum domicílium, in judícium magni diéi, vínculis ætérnis sub calígine reservávit. Sicut Sódoma et Gomórrha et finítimæ civitátes símili modo exfornicátæ, et abeúntes post carnem álteram, factæ sunt exémplum, ignis ætérni pœnam sustinéntes; símiliter et hi carnem quidem máculant, dominatiónem autem spernunt, majestátem autem blasphémant.
+
+℟. Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde : \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum enim.
+
+##### Lectio iii
+
+CUM Michaël Archángelus cum diábolo dispútans altercarétur de Móysi córpore, non est ausus judícium inférre blasphémiæ, sed dixit : Imperet tibi Dóminus. Hi autem quæcúmque quidem ignórant, blasphémant : quæcúmque autem naturáliter, tamquam muta animália, norunt, in his corrúmpuntur. Væ illis, quia in via Cain abiérunt, et erróre Bálaam mercéde effúsi sunt et in contradictióne Core periérunt! Hi sunt in épulis suis máculæ, convivántes sine timóre, semetípsos pascéntes, nubes sine aqua, quæ a ventis circumferúntur, árbores autumnáles, infructuósæ, bis mórtuæ, eradicátæ, fluctus feri maris despumántes suas confusiónes, sídera errántia : quibus procélla tenebrárum serváta est in ætérnum.
+
+℟. Dum stetéritis ante reges et prǽsides, nolíte cogitáre, quómodo aut quid loquámini : \* Dábitur enim vobis in illa hora, quid loquámini. ℣. Non enim vos estis qui loquímini; sed Spíritus Patris vestri, qui lóquitur in vobis. — Dábitur. Glória Patri. Dábitur.
+
+### In II Nocturno
+
+##### Lectio iv
+
+SImon Chananǽus, qui et Zelótes, et Thaddǽus, qui et Judas Jacóbi appellátur in Evangélio, uníus ex cathólicis Epístolis scriptor; hic Mesopotámiam, ille Ægýptum evangélica prædicatióne peragrávit. Póstea in Pérsidem conveniéntes, cum innumerábiles fílios Jesu Christo peperíssent fidémque in vastíssimis illis regiónibus et efferátis géntibus disseminássent, doctrína et miráculis, ac dénique glorióso martýrio, simul sanctíssimum Jesu Christi nomen illustrárunt.
+
+℟. Vidi conjúnctos víros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+{RUBRIC: Sermo sancti Gregórii Papæ (Homilía 30 in Ev., post med.)}
+
+##### Lectio v
+
+SCríptum est : Spíritus Dómini ornávit cælos. Ornaménta enim cælórum sunt virtútes prædicántium. Quæ vidélicet ornaménta Paulus enúmerat, dicens : Alii datur per Spíritum sermo sapiéntiæ, álii sermo sciéntiæ secúndum eúmdem Spíritum, álteri fides in eódem Spíritu, álii grátia sanitátum in uno Spíritu, álii operátio virtútum, álii prophetía, álii discrétio spirítuum, álii génera linguárum, álii interpretátio sermónum. Hæc autem ómnia operátur unus atque idem Spíritus, dívidens síngulis prout vult.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me : \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+##### Lectio vi
+
+QUot ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est : Verbo Dómini cæli firmáti sunt. Verbum enim Dómini, Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur : Et Spíritu oris ejus omnis virtus eórum. Cælórum ergo virtus de Spíritu sumpta est : quia mundi hujus potestátibus contraíre non præsúmerent, nisi eos Sancti Spíritus fortitúdo solidásset. Quales namque doctóres sanctæ Ecclésiæ ante advéntum hujus Spíritus fúerint, scimus; et post advéntum illíus, cujus fortitúdinis facti sint, conspícimus.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui, contemnéntes jussa príncipum, meruérunt prǽmia ætérna : \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+*Cap. 15, 17-25*
+
+IN illo témpore : Dixit Jesus discípulis suis : Hæc mando vobis, ut dilígátis ínvicem. Si mundus vos odit, scitóte quia me priórem vobis ódio hábuit. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi (Tractátus 87 in Joánnem)}
+
+IN lectióne evangélica quæ hanc antecédit, díxerat Dóminus : Non vos me elegístis; sed ego elégi vos et pósui vos, ut eátis, et fructum afferátis, et fructus vester máneat : ut quodcúmque petiéritis Patrem in nómine meo, det vobis. Hic autem dicit : Hæc mando vobis, ut diligátis ínvicem. Ac per hoc intellígere debémus hunc esse fructum nostrum, de quo ait : Ego vos elégi, ut eátis, et fructum afferátis, et fructus vester máneat. Et quod adjúnxit, Ut quodcúmque petiéritis Patrem in nómine meo, det vobis, tunc útique dabit nobis, si diligámus ínvicem; cum et hoc ipsum ipse déderit nobis, qui nos elégit non habéntes fructum, quia non eum nos elegerámus, et pósuit nos ut fructum afferámus, hoc est, ínvicem diligámus.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo : \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+{RUBRIC: Bened. Quorum festum cólimus.}
+
+##### Lectio viii
+
+CAritas ergo est fructus noster, quam définit Apóstolus, De corde puro, et consciéntia bona, et fide non ficta. Hac dilígimus ínvicem, hac dilígimus Deum; neque enim vera dilectióne dilígerémus ínvicem, nisi dilligéntes Deum. Díligit enim unusquísque próximum suum tamquam seípsum, si díligit Deum. Nam, si non díligit Deum, non díligit seípsum; in his enim duóbus præcéptis caritátis tota lex pendet et prophétæ. Hic est fructus noster. De fructu ítaque nobis mandans, Hæc mando, inquit, vobis, ut diligátis ínvicem. Unde et Apóstolus Paulus, cum contra ópera carnis comméndáre fructum spíritus vellet, a cápite hoc pósuit : Fructus, inquit, spíritus, cáritas est; ac deínde cétera, tamquam ex isto cápite exórta et religáta contéxuit, quæ sunt, gáudium, pax, longanímitas, benígnitas, bónitas, fides, mansuetúdo, continéntia, castitas.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam : \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna : operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+##### Lectio ix
+
+QUis autem bene gaudet, qui bonum non díligit unde gaudet? Quis pacem veram, nisi cum illo potest habére, quem veráciter díligit? Quis est longánimis in bono ópere perseveránter manéndo, nisi férveat diligéndo? Quis est benígnus, nisi díligat cui opitulátur? Quis bonus, nisi diligéndo efficiátur? Quis salúbriter fidélis, nisi ea fide quæ per dilectiónem operátur? Quis utíliter mansuétus, cui non diléctio moderétur? Quis ab eo cóntinet unde turpátur, nisi díligat unde honestátur? Mérito ítaque Magíster bonus dilectiónem sic sæpe comméndat, tamquam sola præcipiénda sit, sine qua non possunt prodésse cétera bona, et quæ non potest habéri sine céteris bonis, quibus homo efficítur bonus.
+
+**Te Deum laudámus.**
+
+#### IN II VESPERIS
+
+℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+**Ad Magnif. Ant.** Estóte fortes \* in bello, et pugnáte cum antíquo serpénte : et accipiétis regnum ætérnum, allelúja.
+
+**Oratio**
+
+DEus, qui nos per beátos Apóstolos tuos Simónem et Judam ad agnitiónem tui nóminis veníre tribuísti : da nobis eórum glóriam sempitérnam et proficiéndo celebráre et celebrándo profícere. Per Dóminum.
+
+---
+
+## Die 30 Octobris
+
+{RUBRIC: ¶ Si hódie fúerit Sabbátum, fit Offícium de Vigília anticipáta Omnium Sanctórum, ut sequénti die notátur.}
+
+---
+
+## Die 31 Octobris — In Vigilia Omnium Sanctorum
+
+{RUBRIC: Offícium fit de Féria, ut in Ordinário et Psaltério, præter Lectiónes quæ dicúntur de Homilía in Ev. Descéndens Jesus, ut in Communi plurimórum Mártyrum 2 loco [66], cum Responsóriis tamen de Féria currénti ut in Próprio de Témpore, et Oratiónem, ut infra.}
+
+{RUBRIC: Ad Noctúrnum vero in Féria IV tres últimæ Antíphonæ cum suis Psalmis, et ad Laudes in qualíbet Féria Antíphonæ omnes et Psalmi sumúntur de 2 loco; ad Primam addítur quartus Psalmus, ut in Psaltério notátur, et ad omnes Horas dicúntur Preces feriáles, ut in Ordinário.}
+
+**Oratio**
+
+DOmine, Deus noster, multíplica super nos grátiam tuam : et, quorum prævenímus gloriósa solémnia, tríbue súbsequi in sancta professióne lætítiam. Per Dóminum.
+
+{RUBRIC: Et omíttitur Suffrágium de Omnibus Sanctis, étiam si Vigília commemoránda tantum fúerit in Festo semidúplici occurrénti.}
+
+{RUBRIC: Vésperæ de sequénti.}

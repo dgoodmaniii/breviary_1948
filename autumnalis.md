@@ -27913,4 +27913,30 @@ ET venit unus de septem Angelis habéntibus phíalas plenas septem plagis novís
 
 ##### Lectio ii
 
-ET habébat murum magnum et altum habéntem portas duódecim et in portis Angelos duódecim et nómina inscrípta, quæ sunt nómina duódecim tríbuum filiórum Israël. Ab Oriénte portæ tres et ab Aquilóne portæ tres et ab Austro portæ tres et ab Occásu portæ tres.
+ET habébat murum magnum et altum habéntem portas duódecim et in portis Angelos duódecim et nómina inscrípta, quæ sunt nómina duódecim tríbuum filiórum Israël. Ab Oriénte portæ tres et ab Aquilóne portæ tres et ab Austro portæ tres et ab Occásu portæ tres. Et murus civitátis habens fundaménta duódecim, et in ipsis duódecim nómina duódecim Apostolórum Agni. Et qui loquebátur mecum habébat mensúram arundíneam áuream, ut metirétur civitátem et portas ejus et murum.
+
+℟. Fundáta est domus Dómini supra vérticem móntium, et exaltáta est super omnes colles : \* Et vénient ad eam omnes gentes, et dicent : Glória tibi, Dómine. ℣. Veniéntes autem vénient cum exsultatióne, portántes manípulos suos. — Et.
+
+##### Lectio iii
+
+ET cívitas in quadro pósita est, et longitúdo ejus tanta est quanta et latitúdo; et mensus est civitátem de arúndine áurea per stádia duódecim míllia, et longitúdo et altitúdo et latitúdo ejus æquália sunt. Et mensus est murum ejus centum quadragínta quátuor cubitórum, mensúra hóminis, quæ est Angeli. Et erat structúra muri ejus ex lápide jáspide; ipsa vero cívitas aurum mundum símile vitro mundo.
+
+℟. Bénedic, Dómine, domum istam, quam ædificávi nómini tuo : veniéntium in loco isto \* Exáudi preces in excélso sólio glóriæ tuæ. ℣. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum. — Exáudi. Glória Patri. Exáudi.
+
+### In II Nocturno
+
+##### Lectio iv
+
+ITus, quos in consecrándis ecclésiis et altáribus Romána servat Ecclésia, beátus Silvéster Papa primus instítuit. Nam, etsi jam ab Apostolórum témpore loca fuérunt Deo dicáta, quæ a quibúsdam oratória, áliis ecclésiæ dicebántur, ubi colléctæ fíebant per unam sábbati, et christiánus pópulus oráre, Dei verbum audíre, et Eucharístiam súmere sólitus erat; non tamen illa ádeo solémni ritu consecrabántur, nec in eis adhuc in títulum eréctum erat altáre, quod, chrísmate delibútum, Dómini nostri Jesu Christi, qui altáre, hóstia et sacérdos noster est, figúram exprímeret.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+##### Lectio v
+
+SED, ubi Constantínus Imperátor per baptísmi sacraméntum sanitátem salutémque consecútus est, tum primum lege ab eo lata concéssum est toto orbe terrárum, Christiáni ut ecclésias ædificárent; quos ille, non solum edícto, sed étiam exémplo ad sacram ædificatiónem est cohortátus. Nam, et in suo Lateranénsi palátio ecclésiam Salvatóri dedicávit, et ei continéntem basílicam nómine sancti Joánnis Baptístæ cóndidit, eo loco quo ipse, baptizátus a sancto Silvéstro, ab infidelitátis lepra mundátus est; quam ídem Póntifex consecrávit quinto Idus Novémbris. Cujus consecratiónis memória celebrátur hodiérno die, quo primum Romæ públice ecclésia consecráta est, et imágo Salvatóris, in paríete depícta, pópulo Románo appáruit.
+
+℟. O quam metuéndus est locus iste : \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+##### Lectio vi
+
+QUod, si beátus Silvéster póstea in consecratióne altáris Príncipis Apostolórum decrévit ut deínceps nisi ex lápide altária non ædificaréntur; tamen basílicæ Lateranénsis altáre fuit e ligno eréctum. Quod mirum non est; nam, cum a sancto Petro usque ad Silvéstrum, propter persecutiónes, Pontífices certo loco consístere non possent, quocúmque eos necéssitas compulísset, sive in cryptas, sive in cœmetéria, sive in ædes piórum, super illo altári lígneo ad arcæ similitúdinem cóncavo, sacra faciébant. Quo altári sanctus Silvéster, réddita Ecclésiæ pace, honóris causa Príncipis Apostolórum, qui in illo sacrificásse dícitur, et reliquórum Pontíficum, qui usque ad id tempus ad mystéria conficiénda eo usi fúerant, in Lateranénsi prima ecclésia collocáto, sancívit ne quisquam in eo, præter Románum Pontíficem, Missam deínceps celebráret.

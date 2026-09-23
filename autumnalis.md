@@ -28963,3 +28963,63 @@ BEáti Patris Gregórii mérita jam in tuto pósita secúri magnificémus; qui, 
 *Cap. 11, 22-24*
 
 IN illo témpore : Respóndens Jesus discípulis suis ait illis : Habéte fidem Dei. Amen dico vobis quia quicúmque díxerit huic monti : Tóllere et míttere in mare, et non hæsitáverit in corde suo, sed credíderit quia quodcúmque díxerit fiat, fiet ei. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis, Presbýteri (Lib. 3 Comment. in Marc. cap. 11)}
+
+SOlent gentíles qui contra Ecclésiam maledícta scripsére, improperáre nostris quod non habúerint plenam fidem Dei, quia numquam montes transférre potúerint. Quibus respondéndum est non ómnia scripta esse, quæ in Ecclésia sunt gesta, sicut étiam de factis ipsíus Christi et Dómini nostri Scriptúra testátur. Unde et hoc quoque fíeri potuísset, ut mons ablátus de terra mitterétur in mare, si necéssitas id fíeri poposcísset. Quómodo légimus factum précibus beáti Patris Gregórii, Neocæsaréæ Ponti antístitis, viri méritis et virtútibus exímii, ut mons in terra tantum loco céderet, quantum íncolæ civitátis opus habébant.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio viii
+
+CUM enim, volens ædificáre ecclésiam in loco apto, vidéret eum angustiórem esse quam res exigébat, eo quod ex una parte, rupe maris, ex ália, monte próximo coarctarétur; venit nocte ad locum, et, génibus flexis, admónuit Dóminum promissiónis suæ, ut montem lóngius juxta fidem peténtis ágeret. Et, mane facto, revérsus invénit montem tantum spátii reliquísse structóribus ecclésiæ quantum opus habúerant. Póterat ergo hic, póterat álius quis ejúsdem mériti vir, si opportúnitas exegísset, impetráre a Dómino, mérito fídei, ut étiam mons tollerétur et mitterétur in mare.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+VErum, quia montis nómine nonnúmquam diábolus significátur, vidélicet propter supérbiam qua se contra Deum érigit, et esse vult símilis Altíssimo; mons ad præcéptum eórum qui fortes fide sunt, tóllitur de terra et in mare projícitur, cum, prædicántibus verbum doctóribus sanctis, immúndus spíritus ab eórum corde repéllitur qui ad vitam sunt præordináti, et in turbuléntis amarísque infidélium méntibus vesániam suæ tyránnidis exercére permíttitur.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+**Oratio**
+*C 1*
+
+DA, quæsumus, omnípotens Deus : ut beáti Gregórii Confessóris tui atque Pontíficis venerámda solémnitas, et devotiónem nobis áugeat, et salútem. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 18 Novembris
+
+## In Dedicatione Basilicarum Ss. Petri et Pauli Apostolorum
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Communi Dedicatiónis Ecclésiæ [140], præter Lectiónes, ut infra.}
+
+{RUBRIC: In I Vésperis fit Commemoratio præcedéntis :}
+
+**Ant.** Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Da quæsumus, ut supra.}
+
+### In I Nocturno
+
+{RUBRIC: De libro Apocalýpsis beáti Joánnis Apóstoli}
+
+##### Lectio i
+*Cap. 21, 18-27*
+
+ET erat structúra muri ejus ex lápide jáspide; ipsa vero cívitas aurum mundum símile vitro mundo. Et fundaménta muri civitátis omni lápide pretióso ornáta. Fundaméntum primum jaspis, secúndum sapphírus, tértium chalcedónius, quartum smarágdus, quintum sárdonyx, sextum sárdius, séptimum chrysólithus, octávum berýllus, nonum topázius, décimum chrysóprasus, undécimum hyacínthus, duodécimum amethýstus.
+
+℟. In dedicatióne templi decantábat pópulus laudem : \* Et in ore eórum dulcis resonábat sonus. ℣. Fundáta est domus Dómini supra vérticem móntium, et vénient ad eam omnes gentes. — Et.

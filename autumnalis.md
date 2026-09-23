@@ -40396,4 +40396,40 @@ DElícta juventútis et ignorántias ejus, quǽsumus, ne memíneris, Dómine; se
 
 **Oratio**
 
-CLementíssima Virgo Dei Génitrix María, mæréntium píissima consolátrix, fámuli (fámulæ) N. spíritum Fílio suo comméndet : ut, hoc matérno
+CLementíssima Virgo Dei Génitrix María, mæréntium píissima consolátrix, fámuli (fámulæ) N. spíritum Fílio suo comméndet : ut, hoc matérno intervéntu, terróres mortis non tímeat; sed desiderátam cæléstis pátriæ mansiónem, ea cómite, lætus (-a) ádeat. ℟. Amen.
+
+**Oratio**
+
+ADte confúgio, sancte Joseph, Patróne moriéntium, tibíque, in cujus beáto tránsitu vígiles astitérunt Jesus et María, per hoc utrúmque caríssimum pignus, ánimam hujus fámuli N. (fámulæ N.) in extrémo agóne laborántem eníxe comméndo, ut ab insídiis diáboli, et a morte perpétua, te protegénte, liberétur, et ad gáudia ætérna pervenire meréatur. Per eúmdem Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Si anxiátur adhuc ánima, dicúntur hi Psalmi, vidélicet Ps. 117 Confitémini 42, et totus Ps. 118 Beáti immaculáti, per Horas Domínicæ distribútus. 44-58}
+
+### In Exspiratione
+
+{RUBRIC: Móriens, si potest, dicat; vel si non potest, assístens sive Sacérdos pro eo clara voce pronúntiet : Jesu, Jesu, Jesu. Quod et ea quæ sequúntur, ad illíus aures, si vidébitur, étiam sæpius repétat :}
+
+In manus tuas, Dómine, comméndo spíritum meum. Dómine Jesu Christe, súscipe spíritum meum.
+
+Sancta María, ora pro me.
+
+María, mater grátiæ, mater misericórdiæ, tu me ab hoste prótege, et hora mortis súscipe.
+
+Sancte Joseph, ora pro me. Sancte Joseph, cum beáta Vírgine Sponsa tua, áperi mihi divínæ misericórdiæ sinum.
+
+Jesu, María, Joseph, vobis cor et ánimam meam dono.
+
+Jesu, María, Joseph, astáte mihi in extrémo agóne.
+
+Jesu, María, Joseph, in pace vobíscum dórmiam et requiéscam.
+
+{RUBRIC: Egréssa autem ánima, dícitur hoc}
+
+℟. Subveníte, Sancti Dei, occúrrite, Angeli Dómini, \* Suscipiéntes ánimam ejus, \* Offeréntes eam in conspéctu Altíssimi.
+
+℣. Suscípiat te Christus, qui vocávit te, et in sinum Abrahæ Angeli dedúcant te. ℟. Suscipiéntes ánimam ejus, \* Offeréntes eam in conspéctu Altíssimi.
+
+℣. Réquiem ætérnam dona ei, Dómine : et lux perpétua lúceat ei. — Offeréntes.
+
+{RUBRIC: Deinde} Kýrie, eléison, Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Postea} Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.

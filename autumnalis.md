@@ -38918,4 +38918,32 @@ PArce mihi, Dómine; níhil enim sunt dies mei. Quid est homo, quia magníficas 
 
 *Job 10, 1-12*
 
-TÆdet ánimam meam vitæ meæ, dimíttam advérsum me elóquium meum, loquar in amaritúdine ánimæ meæ. Dicam Deo : Noli me condemnáre : índica mihi, cur me ita
+TÆdet ánimam meam vitæ meæ, dimíttam advérsum me elóquium meum, loquar in amaritúdine ánimæ meæ. Dicam Deo : Noli me condemnáre : índica mihi, cur me ita júdices. Numquid bonum tibi vidétur, si calumniéris me, et ópprimas me, opus mánuum tuárum, et consílium impiórum ádjuves? Numquid óculi cárnei tibi sunt; aut, sicut videt homo, et tu vidébis? Numquid sicut dies hóminis dies tui, et anni tui sicut humána sunt témpora, ut quǽras iniquitátem meam, et peccátum meum scrutéris? Et scias quia nihil ímpium fécerim, cum sit nemo qui de manu tua possit erúere.
+
+℟. Qui Lázarum resuscitásti a monuménto fétidum, \* Tu eis, Dómine, dona réquiem, et locum indulgéntiæ. ℣. Qui ventúrus es judicáre vivos et mórtuos, et sǽculum per ignem. — Tu.
+
+#### Lectio iii
+
+MAnus tuæ fecérunt me, et plasmavérunt me totum in circúitu : et sic repénte præcípitas me? Meménto, quǽso, quod sicut lutum féceris me, et in púlverem redúces me. Nonne sicut lac mulsísti me, et sicut cáseum me coagulásti? Pelle et cárnibus vestísti me, óssibus et nervis compegísti me. Vitam et misericórdiam tribuísti mihi, et visitátio tua custodívit spíritum meum.
+
+℟. Dómine, quando véneris judicáre terram, ubi me abscóndam a vultu iræ tuæ? \* Quia peccávi nimis in vita mea. ℣. Commíssa mea pavésco, et ante te erubésco : dum véneris judicáre, noli me condemnáre. — Quia. Réquiem ætérnam dona eis, Dómine : et lux perpétua lúceat eis. Quia.
+
+{RUBRIC: Postea ad Laudes, ut infra [222], quando dícitur unum tantum Noctúrnum.}
+
+{RUBRIC: Quando tamen in die depositiónis defúncti Laudes non dicúntur, post III Responsórium dicúntur Pater noster, et Preces, ut supra ad Vésperas. [205]}
+
+### In II Nocturno
+
+{RUBRIC: Pro Féria III et VI}
+
+**Ant.** In loco páscuæ \* ibi me collocávit.
+
+###### Psalmus 22
+
+DOminus regit me, et nihil mihi déerit : \* in loco páscuæ ibi me collocávit.
+
+Super aquam refectiónis educávit me : \* ánimam meam convértit.
+
+Dedúxit me super sémitas justítiæ, \* propter nomen suum.
+
+Nam, et si ambulávero in médio umbræ mortis, non timébo mala : \* quóniam tu mecum es.

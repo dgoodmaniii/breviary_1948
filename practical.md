@@ -501,6 +501,109 @@ not be used as first nocturn Lessons, since, from their very composition, they b
 
 **E.** This, then, is the ordinary arrangement for complete Offices, i. e., Offices of nine Lessons, to which any Office of, at least, semi-double rank is entitled. On *Sundays*, however, the entire nine Lessons, with their Responsoria, are ordinarily[^19] given right in the "Proprium de Tempore."
 
-[^19]: There are exceptions. Cf. the "De Tempore" Offices as found in the *Pars Aestiva* where, from the third Sunday after Pentecost to the end of the season, the usual order kept in the "Proprium de Tempore" is (wisely) disturbed. The following scheme of this irregularity may be first use-
+[^19]: There are exceptions. Cf. the "De Tempore" Offices as found in the *Pars Aestiva* where, from the third Sunday after Pentecost to the end of the season, the usual order kept in the "Proprium de Tempore" is (wisely) disturbed. The following scheme of this irregularity may be first usefully given, before the place of the various Lessons is indicated:
+
+> *First Division.* From the third to the twelfth Sunday after Pentecost.
+>
+> a) *Sunday* Office — Lessons and Responsoria for the first and second nocturns only and also the Responsoria for the eighth and ninth Lessons.
+>
+> b) *Ferial* Office — Three Lessons (nn. 1, 2, 3) with their Responsoria.
+>
+> *Second Division.* From the first to the fifth week of August.
+>
+> The same as in the First Division.
+>
+> *Third Division.* For Sundays only, from the third to the fifteenth after Pentecost.
+>
+> a) Oration
+> b) Homily (i. e., Lessons 7, 8, 9).
+> c) Antiphons for the *Benedictus* and *Magnificat*.
+>
+> From this it is easily seen that, whilst the Lessons (and RR.) of the first and second nocturns may be taken from either the first or second division according to the Time of the year, the Lessons of the third nocturn are taken from the third division with the Responsoria for Lessons 8 and 9, found where the first and second nocturns were taken from.
+
+### Ninth Lesson from Another Office
+
+**19.** It sometimes happens that, when an Office of nine Lessons is said, a kind of commemoration is made of some occurring feast or ferial, by substituting for the *ninth* Lesson of the Office recited another taken from the occurring feast or ferial. There are, then, two cases:
+
+(a) *Ninth Lesson taken from an occurring feast of a saint;* this is done by reciting as ninth Lesson *all* the Lessons of the saint in question that give an account of his *life* (i. e., that are historical), uniting them, however, and saying them *per modum unius*.
+
+Since the account of a saint's life is usually given in the *second* nocturn, the Lessons sought for as commemoration will be in this nocturn, which itself will be found in the "Proprium Sanctorum."
+
+If these Lessons are not truly historical, they are not taken, e. g., if some or all of them are simply extracts from a sermon or treatise. If only one Lesson is historical, it alone is taken as *ninth* Lesson.[^20]
+
+(b) *Ninth Lesson taken from the homily of a Sunday or ferial;* in this case the ninth Lesson of the Office recited will be the *beginning* (all that is given) of the gospel of the Sunday or ferial (or vigil) in question, as well as the *first*[^21] of the *three* Lessons given as a homily on it.[^22] The ferials given in the "Proprium de Tempore" (Scripture occurring) with a gospel (i. e., the beginning of a gospel) and homily are generally major or more important ferials, e. g., the week-days of Lent. The *Benediction* used with the ninth Lesson in this case is: *Per evangelica dicta*, etc.
+
+The *Ordo* gives directions as to when these rules are to be applied.
+
+[^20]: If the Office recited be of a Sunday, it is supposed that there is no ninth Responsorium. When the ninth Lesson of a Sunday is replaced by some other Lesson, it may be omitted or joined to the eighth Lesson.
+[^21]: The three Lessons of a homily may also be said *per modum unius*.
+[^22]: In the Mass a kind of parallelism is found with regard to these rules, inasmuch as the Gospel of St. John, at the end of Mass, is also replaced by the gospel of an occurring Sunday, ferial, vigil, or feast (having a strictly proper gospel).
+
+### Responsoria
+
+**20.** The following examples of Responsoria are given, so that, by comparison, the student may be able to settle any difficulties concerning their recitation:
+
+(a) *First example:*
+
+*How written:*
+
+> ℟. Non auferetur sceptrum de Juda, et dux de femore ejus, donec veniat qui mittendus est: \* Et ipse erit expectatio Gentium. ℣. Pulchriores sunt oculi ejus vino, et dentes ejus lacte candidiores. Et.
+>
+> (Resp. IV Sunday Advent, Lesson 2.)
+
+*How said:*[^23]
+
+> Non auferetur sceptrum de Juda, et dux de femore ejus, donec veniat qui mittendus est: Et ipse erit expectatio Gentium. Pulchriores sunt oculi ejus vino, et dentes ejus lacte candidiores. *Et* ipse erit expectatio Gentium.[^24]
+
+(b) *Second example:*
+
+*How written:*
+
+> ℟. Me oportet minui, illum autem crescere: qui autem post me venit, ante me factus est: \* Cujus non sum dignus corrigiam calceamentorum solvere.
+>
+> ℣. Ego baptizavi vos aqua: ille autem baptiz-
+
+*How said:*
+
+> Me oportet minui, illum autem crescere: qui autem post me venit ante me factus est: Cujus non sum dignus corrigiam calceamentorum solvere. Ego baptizavi vos aqua: ille autem baptizabit vos Spiritu Sancto. *Cujus* non sum dignus corrigiam calceamentorum solvere. *Gloria Patri*, et Filio, et Spiritui Sancto.[^25] *Cujus* non sum dignus corrigiam calceamentorum solvere.
+
+(Loc. cit., Lesson 3.)
+
+(c) *Third example:*
+
+*How written:*
+
+> ℟. Virgo Israel, revertere ad civitates tuas: \* Usquequo dolens averteris? Generabis Dominum Salvatorem, oblationem novam in terra: \* Ambulabunt homines in salvationem. ℣. In caritate perpetua dilexi te: ideo attraxi te miserans tui. Usquequo. Gloria. Ambulabunt.
+>
+> (Loc. cit. Lesson 6.)
+
+*How said:*
+
+> Virgo Israel, revertere ad civitates tuas: Usquequo dolens averteris? Generabis Dominum Salvatorem, oblationem novam in terra: Ambulabunt homines in salvationem. In caritate perpetua dilexi te: ideo attraxi te miserans tui. *Usquequo* dolens averteris? Generabis Dominum Salvatorem, oblationem novam in terra. *Gloria Patri*, et Filio, et Spiritui Sancto. *Ambulabunt* homines in salvationem.[^26]
+
+[^25]: Never with *Sicut erat*, etc.
+[^26]: Practical rule: If the Responsorium has two asterisks, the part between both is said after the verse, and the rest after the *Gloria Patri* (S. R. C.).
+
+(d) *Fourth example:*
+
+*How written:*
+
+> ℟. Usquequo exaltabitur inimicus meus super me? \* Respice, et exaudi me, Domine, Deus meus. ℣. Qui tribulant me, exsultabunt si motus fuero: ego autem in misericordia tua sperabo. Respice. Usquequo.
+>
+> (Passion Sunday, Lesson 3.)
+
+*How said:*
+
+> Usquequo exaltabitur inimicus meus super me? Respice, et exaudi me, Domine, Deus meus. Qui tribulant me, exsultabunt si motus fuero: ego autem in misericordia tua sperabo. *Respice*, et exaudi me, Domine, Deus meus. *Usquequo* exaltabitur inimicus meus super me? Respice, et exaudi me, Domine, Deus meus.
+
+**21.** The ninth Lesson is not always followed by a Responsorium, but by the *Te Deum* on *all* feasts.[^27]
+
+*Gloria Patri* is added to the *last* Responsorium of each nocturn, so that if the *Te Deum* takes the place of the Responsorium after the ninth Lesson, the *Gloria Patri* in that case would be added to the Responsorium after the eighth Lesson, it being the last Responsorium of the nocturn.
+
+[^27]: As a general rule, when the *Te Deum* is recited at Matins, the *Gloria in excelsis* is said at Mass (not in a *Votive* Mass, which is nothing else than a Mass "*extra ordinem Officii*").— The Rubrics prescribe the recitation of Matins and Lauds before Mass, the first gospel of which is usually explained in the homily of Matins.
+
+### The Ending of Matins
+
+**22.** If Lauds is said immediately after Matins, the latter ends with either the ninth Responsorium or the *Te Deum*. If Lauds, however, is separated from Matins, the latter ends up with the Oration of the Office recited, preceded as well as followed by *Dominus vobiscum*, and then comes the "ordinary ending" (n. 8).
 
 ---

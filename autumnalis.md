@@ -29165,3 +29165,33 @@ GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Pontiánum Má
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+DEus, qui beátum Felícem Confessórem tuum ex erémo ad munus rediméndi captívos cælitus vocáre dignátus es : præsta, quæsumus; ut per grátiam tuam ex peccatórum nostrórum captivitáte, ejus intercessióne, liberáti, ad cæléstem pátriam perducámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem, et panem otiósa non comédit.
+
+℣. Diffúsa est grátia.
+
+{RUBRIC: Oratio Tuórum corda, ut supra. 822}
+
+### In II Nocturno
+
+##### Lectio iv
+
+FElix, Hugo ántea dictus, ex regáli Valesiórum família ortus in Gállia, ab ineúnte ætáte non lévia dedit futúræ sanctitátis indícia, præsértim misericórdiæ erga páuperes. Nam, adhuc infántulus manu própria, ac si grándior esset et judícii maturitáte polléret, nummos egénis distríbuit; jam grandiúsculus, solébat ex appósitis in mensa dápibus ad ipsos míttere, et ferme eo, quod sapídius erat, obsónio paupérculos púeros recreábat; adoléscens, non semel véstibus se exspoliávit, ut ínopes cooperíret. Ab avúnculo Theobáldo, Xamphánæ et Blésii cómite, vitam reo mortis impetrávit, prædícens hunc infámem háctenus sicárium, mox sanctíssimis prædítum móribus evasúrum : verídicum testimónium monstrávit evéntus.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+POst exáctam laudabíliter adolescéntiam cœpit ex cæléstis contemplatiónis stúdio solitúdinem cogitáre; prius tamen vóluit Sacris initiári, ut omnem regni, a cujus successióne jure legis Sálicæ non longe distábat, spem sibi præcíderet. Sacérdos factus, et prima Missa devotíssime celebráta, non multo post in erémum secéssit, ubi, summa abstinéntia víctitans, cæléstium charísmatum abundántia pascebátur. Ibi cum sancto Joánne de Matha Parisiénsi doctóre, a quo ex divína inspiratióne quæsítus et invéntus, per áliquot annos sanctíssime vixit; donec ambo per Angelum a Deo admóniti Romam petiérunt, speciálem a summo Pontífice vivéndi régulam impetratúri. Facta ígitur Innocéntio Papæ tértio inter Missárum solémnia revelatióne religiónis et institúti de rediméndis captívis, ab ipso Pontífice, simul cum sócio, cándidis véstibus bicolóri cruce signátis indúitur, ad eam formam qua Angelus indútus appáruit. Et ínsuper vóluit Póntifex, ut nova religio, juxta tríplicem colórem quo hábitus constat, sanctíssimæ Trinitátis título decorarétur.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+REgula própria, ex summi Pontíficis Innocéntii confirmatióne, accépta, in diœcési Meldénsi apud locum qui Cervus Frígidus dícitur, primum órdinis paulo ante a se et sócio exstrúctum cœnóbium ampliávit, ubi religiósam observántiam et redemptiónis institútum mirífice cóluit, ac inde per alúmnos in álias províncias diligentíssime propagávit. Illústrem hic a beáta Vírgine Matre favórem accépit; dormiéntibus síquidem cunctis frátribus et ad matutínas preces in pervigílio Nativitátis Deíparæ média nocte recitándas, Deo sic disponénte, non surgéntibus, Felix, de more vígilans et horas prævéniens, chorum ingréssus, réperit beátam Vírginem in médio chori, hábitu cruce órdinis insigníto indútam, ac Cælítibus simíliter indútis sociátam. Quibus permíxtus Felix, præcinénte Deípara, laudes divínas concínuit ríteque persólvit. Et, quasi jam a terréstri ad cæléstem chorum evocarétur, instántis mortis ab Angelo cértior factus, fílios ad caritátem erga páuperes et captívos adhórtans, ánimam Deo réddidit, ætáte ac méritis consummátus, anno post Christum natum ducentésimo duodécimo supra millésimum, sub eódem Pontífice Innocéntio tértio.

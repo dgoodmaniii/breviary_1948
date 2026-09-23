@@ -17119,3 +17119,113 @@ ET óculi vestri vidébunt, et vos dicétis : Magnificétur Dóminus super térm
 SI offerátis cæcum ad immolándum, nonne malum est? et, si offerátis claudum et lánguidum, nonne malum est? Offer illud duci tuo, si placúerit ei aut si suscéperit fáciem tuam, dicit Dóminus exercítuum. Et nunc deprecámini vultum Dei, ut misereátur vestri (de manu enim vestra factum est hoc), si quómodo suscípiat fácies vestras, dicit Dóminus exercítuum. Quis est in vobis qui claudat óstia et incéndat altáre meum gratúito? Non est mihi volúntas in vobis, dicit Dóminus exercítuum, et munus non suscípiam de manu vestra; ab ortu enim solis usque ad occásum magnum est nomen meum in géntibus, et in omni loco sacrificátur et offértur nómini meo oblátio munda, quia magnum est nomen meum in géntibus, dicit Dóminus exercítuum.
 
 ℟. Misit Dóminus Angelum suum et conclúsit ora leónum, \* Et non contamináverunt, quia coram eo injustítia invénta non est in me. ℣. Misit Deus misericórdiam suam et veritátem suam : ánimam meam erípuit de médio catulórum leónum. — Et. Glória Patri. Et.
+
+---
+
+# Homiliae et Orationes
+
+{RUBRIC: In Dominicis per ordinem dispositæ usque ad ultimam post Pentecosten}
+
+## Dominica XI post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui abundántia pietátis tuæ, et mérita súpplicum excédis et vota : effúnde super nos misericórdiam tuam; ut dimíttas quæ consciéntia métuit, et adjícias quod orátio non præsúmit. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+##### Lectio vii
+*Cap. 7, 31-37*
+
+IN illo témpore : Exiens Jesus de fínibus Tyri venit per Sidónem ad mare Galilǽæ inter médios fines Decapóleos. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+*Homilia 10, liber 1 in Ezech., ante medium*
+
+QUid est quod creátor ómnium Deus, cum surdum et mutum sanáre voluísset, in aures illíus suos dígitos misit, et exspuens línguam ejus tétigit? Quid per dígitos Redemptóris, nisi dona Sancti Spíritus designántur? Unde cum in álio loco ejecísset dæmónium, dixit : Si in dígito Dei ejício dæmónia, profécto pervénit in vos regnum Dei. Qua de re per Evangelístam álium dixísse descríbitur : Si ego in Spíritu Dei ejício dæmónes, ígitur pervénit in vos regnum Dei. Ex quo utróque loco collígitur, quia dígitus Spíritus vocátur. Dígitos ergo in aurículas míttere, est per dona Spíritus Sancti mentem surdi ad obediéndum aperíre.
+
+℟. Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et.
+
+##### Lectio viii
+
+QUid est vero, quod éxspuens linguam ejus tétigit? Salíva nobis est ex ore Redemptóris, accépta sapiéntia in elóquio divíno. Salíva quippe ex cápite défluit in ore. Ea ergo sapiéntia, quæ ipse est, dum lingua nostra tángitur, mox ad prædicatiónis verba formátur. Qui suspíciens in cælum, ingémuit : non quod ipse necessárium gémitum habéret, qui dabat quod postulábat; sed nos ad eum gémere, qui cælo prǽsidet, dócuit : ut et aures nostræ per donum Spíritus Sancti aperíri, et lingua per salívam oris, id est, per sciéntiam divínæ locutiónis, solvi débeat ad verba prædicatiónis.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+CUI mox, Ephphetha, id est, Adaperíre dícitur : et statim apértæ sunt aures ejus, et solútum est vínculum linguæ ejus. Qua in re notándum est, quia propter clausas aures dictum est, Adaperíre. Sed cui aures cordis ad obediéndum apértæ fúerint, ex subsequénti procul dúbio étiam linguæ ejus vínculum sólvitur; ut bona quæ ipse fécerit, étiam faciénda áliis loquátur. Ubi bene addítur : Et loquebátur recte. Ille enim recte lóquitur, qui prius obediéndo fécerit, quæ loquéndo ádmonet esse faciénda.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum transísset Dóminus \* fines Tyri, surdos fecit audíre et mutos loqui.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Bene ómnia fecit \* et surdos fecit audíre et mutos loqui.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui abundántia pietátis tuæ, et mérita súpplicum excédis et vota : effúnde super nos misericórdiam tuam; ut dimíttas quæ consciéntia métuit, et adjícias quod orátio non præsúmit. Per Dóminum.
+
+---
+
+## Dominica XII post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+OMnípotens et miséricors Deus, de cujus múnere venit, ut tibi a fidélibus tuis digne et laudabíliter serviátur : tríbue, quæsumus, nobis; ut ad promissiónes tuas sine offensióne currámus. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio vii
+*Cap. 10, 23-37*
+
+IN illo témpore : Dixit Jesus discípulis suis : Beáti óculi qui vident quæ vos vidétis; dico enim vobis quod multi prophétæ et reges voluérunt vidére quæ vos vidétis, et non vidérunt. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+*Liber 3 in Lucæ 10*
+
+NON óculi scribárum et pharisæórum, qui corpus tantum Dómini vidére; sed illi beáti óculi, qui ejus possunt cognóscere sacraménta, de quibus dícitur : Et revelásti ea párvulis. Beáti óculi parvulórum, quibus et se et Patrem Fílius reveláre dignátur. Abraham exsultávit, ut vidéret diem Christi; et vidit, et gavísus est. Isaías quoque, et Michǽas, et multi álii prophétæ vidérunt glóriam Dómini, qui et proptérea Vidéntes sunt appelláti; sed hi omnes, a longe aspiciéntes et salutántes, per spéculum et in ænígmate vidérunt.
+
+℟. Quis mihi tríbuat, ut in inférno prótegas me et abscóndas me, donec pertránseat furor tuus, Dómine, nisi tu, qui solus es Deus? \* Et constítuas mihi tempus, in quo recordéris mei? ℣. Numquid sicut dies hóminis dies tui, ut quæras iniquitátem meam; cum sit nemo, qui de manu tua possit erúere? — Et.
+
+##### Lectio viii
+
+APóstoli autem, in præsentiárum habéntes Dóminum, convescentésque ei, et quæcúmque voluíssent interrogándo discéntes, nequáquam per Angelos aut várias visiónum spécies opus habébant docéri. Quos vero Lucas multos prophétas et reges dicit, Matthǽus apértius prophétas et justos appéllat. Ipsi sunt enim reges magni; quia tentatiónum suárum mótibus non consentiéndo succúmbere, sed regéndo prǽesse novérunt.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+ET ecce quidam legisperítus surréxit, tentans eum et dicens : Magíster, quid faciéndo vitam ætérnam possidébo? Legisperítus, qui de vita ætérna Dóminum tentans intérrogat, occasiónem, ut reor, tentándi de ipsis Dómini sermónibus sumpsit, ubi ait : Gaudéte autem quod nómina vestra scripta sunt in cælis. Sed ipsa sua tentatióne declárat quam vera sit illa Dómini conféssio, qua Patri lóquitur : Quod abscondísti hæc a sapiéntibus et prudéntibus, et revelásti ea párvulis.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Magíster, \* quid faciéndo vitam ætérnam possidébo? At ille dixit ad eum : In lege quid scriptum est? quómodo legis? Díliges Dóminum Deum tuum ex toto corde tuo, allelúja.
+
+**Oratio** Omnípotens et miséricors, ut supra. 436
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Homo quidam \* descendébat ab Jerúsalem in Jéricho et íncidit in latrónes, qui étiam despoliavérunt eum et, plagis impósitis, abiérunt semivívo relícto.

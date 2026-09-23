@@ -26861,3 +26861,97 @@ PRopitiáre, quǽsumus, Dómine, animábus ómnium famulórum famularúmque tuá
 *Job 7, 16-21*
 
 PArce mihi, Dómine; nihil enim sunt dies mei. Quid est homo, quia magníficas eum? aut quid appónis erga eum cor tuum? Vísitas eum dilúculo, et súbito probas illum. Usquequo non parcis mihi, nec dimíttis me, ut glútiam salívam meam? Peccávi, quid fáciam tibi, o custos hóminum? quare posuísti me contrárium tibi, et factus sum mihimétipsi gravis? Cur non tollis peccátum meum, et quare non aufers iniquitátem meam? Ecce nunc in púlvere dórmiam : et si mane me quæsíeris, non subsístam.
+
+{RUBRIC: ¶ Lectiónes trium Nocturnórum termínantur sine Versu Tu autem, Dómine, vel ália conclusióne.}
+
+℟. Credo quod Redémptor meus vivit, et in novíssimo die de terra surrectúrus sum, \* Et in carne mea vidébo Deum Salvatórem meum. ℣. Quem visúrus sum ego ipse, et non álius; et óculi mei conspectúri sunt. — Et.
+
+##### Lectio ii
+*Job 14, 1-6*
+
+HOmo natus de mulíere, brevi vivens témpore, replétur multis misériis. Qui quasi flos egréditur et contéritur, et fugit velut umbra, et numquam in eódem statu pérmanet. Et dignum ducis super hujuscémodi aperíre óculos tuos, et addúcere eum tecum in judícium? Quis potest fácere mundum de immúndo concéptum sémine? Nonne tu qui solus es? Breves dies hóminis sunt, númerus ménsium ejus apud te est : constituísti términos ejus, qui prætertíri non póterunt. Recéde páululum ab eo, ut quiéscat, donec optáta véniat, sicut mercenárii, dies ejus.
+
+℟. Qui Lázarum resuscitásti a monuménto fœtidum, \* Tu eis, Dómine, dona réquiem, et locum indulgéntiæ. ℣. Qui ventúrus es judicáre vivos et mórtuos, et sæculum per ignem. — Tu.
+
+##### Lectio iii
+*Job 19, 20-27*
+
+PElli meæ, consúmptis cárnibus, adhǽsit os meum, et derelícta sunt tantúmmodo lábia circa dentes meos. Miserémini mei, miserémini mei, saltem vos, amíci mei, quia manus Dómini tétigit me. Quare persequímini me sicut Deus, et cárnibus meis saturámini? Quis mihi tríbuat ut scribántur sermónes mei? quis mihi det ut exaréntur in libro, stylo férreo et plumbi lámina, vel celte sculpántur in sílice? Scio enim quod redémptor meus vivit, et in novíssimo die de terra surrectúrus sum : et rursum circúmdabor pelle mea, et in carne mea vidébo Deum meum. Quem visúrus sum ego ipse, et óculi mei conspectúri sunt, et non álius : repósita est hæc spes mea in sinu meo.
+
+℟. Dómine, quando véneris judicáre terram, ubi me abscóndam a vultu iræ tuæ? \* Quia peccávi nimis in vita mea. ℣. Commíssa mea pavésco, et ante te erubésco : dum véneris judicáre, noli me condemnáre. — Quia. Réquiem ætérnam dona eis, Dómine : et lux perpétua lúceat eis. Quia.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Augustíni Epíscopi de cura pro mórtuis gerénda}
+
+##### Lectio iv
+*Cap. 2 et 3*
+
+CUrátio fúneris, condítio sepultúræ, pompa exsequiárum magis sunt vivórum solátia, quam subsídia mortuórum. Nec ídeo tamen contemnénda et abjiciénda sunt córpora defunctórum, maximéque justórum ac fidélium, quibus tamquam órganis et vasis ad ómnia bona ópera sancte usus est spíritus. Si enim patérna vestis et ánnulus, ac si quid hujúsmodi, tanto cárius est postéris, quanto erga paréntes major afféctus : nullo modo ipsa spernénda sunt córpora, quæ útique multo familiárius atque conjúnctius quam quǽlibet induménta gestámus. Hæc enim non ad ornaméntum vel adjutórium, quod adhibétur extrínsecus, sed ad ipsam natúram hóminis pértinent. Unde et antiquórum justórum fúnera officiósa pietáte curáta sunt, et exséquiæ celebrátæ, et sepultúra provísa; ipsíque, cum víverent, de sepeliéndis vel étiam transferéndis suis corpóribus fíliis mandavérunt.
+
+℟. Meménto mei, Deus, quia ventus est vita mea, \* Nec aspíciat me visus hóminis. ℣. De profúndis clamávi ad te, Dómine : Dómine, exáudi vocem meam. — Nec.
+
+##### Lectio v
+*Cap. 4*
+
+REcordántis et precántis afféctus cum defúnctis a fidélibus caríssimis exhibétur, eum prodésse non dúbium est iis, qui cum in córpore víverent, tália sibi post hanc vitam prodésse meruérunt. Verum, etsi áliqua necéssitas vel humári córpora, vel in sacris locis humári nulla data facultáte permíttat, non sunt prætermitténdæ supplicatiónes pro spirítibus mortuórum : quas faciéndas pro ómnibus in christiána et cathólica societáte defúnctis, étiam tácitis eórum nomínibus, sub generáli commemoratióne suscépit Ecclésia; ut quibus ad ista desunt paréntes, aut fílii, aut quicúmque cognáti vel amíci, ab una eis exhibeántur pia matre commúni. Si autem deéssent istæ supplicatiónes, quæ fiunt recta fide ac pietáte pro mórtuis, puto quod nihil prodésset spirítibus eórum, quámlibet in locis sanctis exánima córpora poneréntur.
+
+℟. Hei mihi, Dómine, quia peccávi nimis in vita mea : Quid fáciam, miser? ubi fúgiam, nisi ad te, Deus meus? \* Miserére mei, dum véneris in novíssimo die. ℣. Anima mea turbáta est valde, sed tu, Dómine, succúrre ei. — Miserére.
+
+##### Lectio vi
+*Cap. 18*
+
+QUÆ cum ita sint, non existimémus ad mórtuos, pro quibus curam gérimus, perveníre, nisi quod pro eis sive altáris, sive oratiónum, sive eleemosynárum sacrifíciis solémniter supplicámus : quamvis non pro quibus fiunt, ómnibus prosint; sed iis tantum pro quibus, dum vivunt, comparátur ut prosint. Sed quia non discérnimus qui sunt, opórtet ea pro regenerátis ómnibus fácere, ut nullus eórum prætermittátur, ad quos hæc benefícia possint et débeant pervenire. Mélius enim supérerunt ista eis, quibus nec obsunt nec prosunt; quam eis déerunt, quibus prosunt. Diligéntius tamen facit hæc quisque pro necessáriis suis, quo pro illo fiat símiliter a suis. Córpori autem humándo quidquid impénditur, non est præsídium salútis, sed humanitátis offícium, secúndum afféctum quo nemo umquam carnem suam ódio habet. Unde opórtet ut quam potest pro carne próximi curam gerat, cum ille inde recésserit, qui gerébat. Et si hæc fáciunt qui carnis resurrectiónem non credunt, quanto magis debent fácere, qui credunt; ut córpori mórtuo, sed tamen resurrectúro et in æternitáte mansúro, impénsum ejúsmodi offícium sit étiam quodámmodo ejúsdem fídei testimónium!
+
+℟. Ne recordéris peccáta mea, Dómine, \* Dum véneris judicáre sǽculum per ignem. ℣. Dírige, Dómine, Deus meus, in conspéctu tuo viam meam. — Dum. Réquiem ætérnam. Dum.
+
+### In III Nocturno
+
+{RUBRIC: De Epístola prima beáti Pauli Apóstoli ad Corínthios}
+
+##### Lectio vii
+*Cap. 15, 12-22*
+
+SI Christus prædicátur quod resurréxit a mórtuis, quómodo quidam dicunt in vobis quóniam resurréctio mortuórum non est? Si autem resurréctio mortuórum non est, neque Christus resurréxit. Si autem Christus non resurréxit, inánis est ergo prædicátio nostra, inánis est et fides vestra. Inveniámur autem et falsi testes Dei, quóniam testimónium díximus advérsus Deum quod suscitáverit Christum; quem non suscitávit, si mórtui non resúrgunt. Nam, si mórtui non resúrgunt, neque Christus resurréxit. Quod si Christus non resurréxit, vana est fides vestra, adhuc enim estis in peccátis vestris; ergo et qui dormiérunt in Christo periérunt. Si in hac vita tantum in Christo sperántes sumus, miserabilióres sumus ómnibus homínibus. Nunc autem Christus resurréxit a mórtuis, primítiæ dormiéntium; quóniam quidem per hóminem mors, et per hóminem resurréctio mortuórum. Et sicut in Adam omnes moriúntur, ita et in Christo omnes vivificabúntur.
+
+℟. Peccántem me quotídie, et non me pœniténtem, timor mortis contúrbat me : \* Quia in inférno nulla est redémptio, miserére mei, Deus, et salva me. ℣. Deus, in nómine tuo salvum me fac, et in virtúte tua líbera me. — Quia in inférno.
+
+##### Lectio viii
+*Ibid. 35-44*
+
+SEd dicet áliquis : Quómodo resúrgunt mórtui? qualíve córpore vénient? Insípiens, tu quod séminas non vivificátur, nisi prius moriátur. Et quod séminas, non corpus quod futúrum est séminas, sed nudum granum, ut puta, trítici aut alicújus ceterórum; Deus autem dat illi corpus sicut vult, et unicuíque séminum próprium corpus. Non omnis caro éadem caro, sed ália quidem hóminum, ália vero pécorum, ália vólucrum, ália autem píscium : et córpora cæléstia, et córpora terréstria; sed ália quidem cæléstium glória, ália autem terréstrium. Alia cláritas solis, ália cláritas lunæ, et ália cláritas stellárum; stella enim a stella differt in claritáte. Sic et resurréctio mortuórum. Seminátur in corruptióne, surget in incorruptióne; seminátur in ignobilitáte, surget in glória; seminátur in infirmitáte, surget in virtúte; seminátur corpus animále, surget corpus spirituale.
+
+℟. Dómine, secúndum actum meum noli me judicáre : nihil dignum in conspéctu tuo egi; ídeo déprecor majestátem tuam, \* Ut tu, Deus, déleas iniquitátem meam. ℣. Amplius lava me, Dómine, ab injustítia mea, et a delícto meo munda me. — Ut tu, Deus.
+
+##### Lectio ix
+*Ibid. 51-58*
+
+ECce mystérium vobis dico : Omnes quidem resurgémus, sed non omnes immutábimur. In moménto, in ictu óculi, in novíssima tuba; canet enim tuba, et mórtui resúrgent incorrúpti, et nos immutábimur. Opórtet enim corruptíbile hoc indúere incorruptiónem, et mortále hoc indúere immortalitátem. Cum autem mortále hoc indúerit immortalitátem, tunc fiet sermo qui scriptus est : Absórpta est mors in victória. Ubi est, mors, victória tua? ubi est, mors, stímulus tuus? Stímulus autem mortis peccátum est, virtus vero peccáti lex. Deo autem grátias, qui dedit nobis victóriam per Dóminum nostrum Jesum Christum. Itaque, fratres mei diléctí, stábiles estóte et immóbiles; abundántes in ópere Dómini semper, sciéntes quod labor vester non est inánis in Dómino.
+
+℟. Líbera me, Dómine, de morte ætérna in die illa treménda, \* Quando cæli movéndi sunt et terra, \* Dum véneris judicáre sǽculum per ignem. ℣. Tremens factus sum ego et tímeo, dum discússio vénerit atque ventúra ira. — Quando. ℣. Dies illa, dies iræ, calamitátis et misériæ, dies magna et amára valde. — Dum.
+
+Réquiem ætérnam.
+
+{RUBRIC: Et repetítur Responsórium Líbera me, Dómine, usque ad primum ℣. Tremens exclusíve.}
+
+{RUBRIC: Si Matutínum in priváta recitatióne a Laudibus separétur, expléto Responsório præcedénti, statim subjúngitur ℣. Dóminus vobíscum, Orátio Fidélium et réliqua, ut infra ad Laudes.}
+
+{RUBRIC: Et ita absolvítur Matutínum, neque áliud adjúngitur.}
+
+#### AD LAUDES
+
+{RUBRIC: Si Laudes extra Chorum separántur a Matutíno, ante eas dícitur secréto Pater noster et Ave María; secus absolúte incípitur ab Antíphona Exsultábunt Dómino. [222]}
+
+{RUBRIC: Repetíta post Cánticum Benedíctus Antíphona, dícitur flexis génibus :}
+
+{RUBRIC: Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+{RUBRIC: Et immédiate subjúngitur :}
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.

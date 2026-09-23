@@ -1624,3 +1624,77 @@ The Vespers of any two consecutive feasts are preferred among themselves in much
 [^120]: Cf. special Rubrics for the octave-day of Corpus Christi.
 
 ---
+
+## CHAPTER XVII
+
+## COMMEMORATIONS
+
+**100.** Commemoration can be made of either *occurring* or *concurring* Offices.
+
+Now, commemoration of occurring Offices may be made not only in Lauds, but also in both Vespers of the Office actually said (i. e., preferred).
+
+If the foregoing statements are properly understood, it will not be very difficult to see that, in the *Vespers* of any particular day (in which the one who recites the Office actually is — either really or mentally) there may be three *types* of commemorations.
+
+Let us suppose, for instance, that to-day we are saying the Vespers of to-day's feast (i. e., second Vespers) with a commemoration of to-morrow's Offices, (i. e., their first Vespers), then the three types may be:
+
+1st, commemoration (from first Vespers) of the Office celebrated to-morrow[^121];
+2d, commemoration of its (i. e., the Office celebrated to-morrow) occurring (simplified) Offices;
+3d, commemoration of the Offices which occur with to-day's Office.
+
+[^121]: In Vespers, commemoration of *concurring* Offices is always made first.
+
+### Illustration
+
+**101.**
+
+*To-day's Office: II. VESPERS.*
+
+1. Double of 1st class.
+2. Sunday.
+
+&nbsp;&nbsp;&nbsp;&nbsp;"*Præcedens*" (Officium).
+
+"*Sequens*" (Officium). *I. VESPERS: To-morrow's Office.*
+
+1. Double of 2d class.
+2. Semi-double.
+
+Since, in this illustration, the second Vespers of to-day's feast (double of the first class) is said, the three types of commemorations are:
+
+1st, commemoration of to-morrow's feast, which is a double of the second class;
+2d, commemoration of a (simplified) semi-double, occurring with to-morrow's feast;
+3d, commemoration of Sunday's Office, which occurs with to-day's feast (which has been preferred to it).
+
+**102.** These three *types* may be reduced to two *classes*:
+
+1st, commemoration of the Offices that *concur* with the Office of which the Vespers is actually recited (entire or in part);
+2d, commemoration of the Offices which *occur* with the Office of which the Vespers is actually recited (whether entire or in part).
+
+### Commemorations Proper
+
+**103.** *General remarks.*
+
+(a) All Offices have both first and second Vespers, except:
+
+1st, *simples*, which have only first Vespers;
+2d, *ferials*, which have only second Vespers;
+3d, *vigils*, which have neither first nor second Vespers.
+
+(b) As a general rule, commemoration of the following Offices (when impeded) is always made where commemorations may be made (viz., in Lauds and both Vespers when they *occur*, and in Vespers only when they *concur*):
+
+1st, Sundays;
+2d, privileged octaves;
+3d, major ferials:[^122]
+
+&nbsp;&nbsp;&nbsp;&nbsp;of Advent and Lent (commemorated in Lauds and subsequent Vespers only);
+&nbsp;&nbsp;&nbsp;&nbsp;ember-days and Rogation Monday (all commemorated in Lauds only).
+
+(c) At Vespers it is important to remember that commemoration of the *concurring* Vespers[^123] always comes first. This being remembered, the order of the various commemorations (in Lauds and both Vespers) is as follows:
+
+1st, any Sunday (or the vigil of the Epiphany);
+2d, a day within an octave of the second order;
+
+[^122]: Here it cannot be a question of major *privileged* ferials since these Offices exclude all other Offices that may occur.
+[^123]: That is, the Vespers other than that actually recited at the time commemorations are made.
+
+---

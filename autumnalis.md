@@ -41414,3 +41414,97 @@ Cor Jesu, láncea perforátum, miserére.
 Cor Jesu, fons totíus consolatiónis, miserére.
 
 Cor Jesu, vita et resurréctio nostra, miserére.
+
+Cor Jesu, pax et reconciliátio nostra, miserére.
+
+Cor Jesu, víctima peccatórum, miserére.
+
+Cor Jesu, salus in te sperántium, miserére.
+
+Cor Jesu, spes in te moriéntium, miserére.
+
+Cor Jesu, delíciæ Sanctórum ómnium, miserére.
+
+Agnus Dei, qui tollis peccáta mundi, parce nobis, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, exáudi nos, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, miserére nobis.
+
+℣. Jesu, mitis et húmilis Corde. ℟. Fac cor nostrum secúndum Cor tuum.
+
+Orémus.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, réspice in Cor dilectíssimi Fílii tui, et in laudes et satisfactiónes, quas in nómine peccatórum tibi persólvit, iísque misericórdiam tuam peténtibus tu véniam concéde placátus, in nómine ejúsdem Fílii tui Jesu Christi : Qui tecum vivit et regnat in sǽcula sæculórum. ℟. Amen.
+
+---
+
+# Litaniæ Lauretanæ B. Mariæ Virg.
+
+{RUBRIC: Indulgéntia 7 annórum. Ind. plenária, si per íntegrum mensem, suetis conditiónibus, S. P. A. 28 Mart. 1933}
+
+Kýrie, eléison.
+
+Christe, eléison.
+
+Kýrie, eléison.
+
+Christe, audi nos.
+
+Christe, exáudi nos.
+
+Pater de cælis, Deus, miserére nobis.
+
+Fili, Redémptor mundi, Deus, miserére.
+
+Spíritus Sancte, Deus, miserére nobis.
+
+Sancta Trínitas, unus Deus, miserére.
+
+Sancta María, ora pro nobis.
+
+Sancta Dei Génitrix, ora.
+
+Sancta Virgo vírginum, ora pro nobis.
+
+Mater Christi, ora.
+
+Mater divínæ grátiæ, ora.
+
+Mater puríssima, ora.
+
+Mater castíssima, ora.
+
+Mater invioláta, ora.
+
+Mater intemeráta, ora.
+
+Mater amábilis, ora.
+
+Mater admirábilis, ora.
+
+Mater boni Consílii, ora.
+
+Mater Creatóris, ora.
+
+Mater Salvatóris, ora.
+
+Virgo prudentíssima, ora.
+
+Virgo veneránda, ora.
+
+Virgo prædicánda, ora.
+
+Virgo potens, ora.
+
+Virgo clemens, ora.
+
+Virgo fidélis, ora.
+
+Spéculum justítiæ, ora.
+
+Sedes sapiéntiæ, ora.
+
+Causa nostræ lætítiæ, ora.

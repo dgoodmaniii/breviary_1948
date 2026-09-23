@@ -17741,3 +17741,264 @@ FRequénter pharisǽi commovéntur, et occasiónem insimulándi eum habére ex p
 QUI intérna cognitiónum secréta cognóscens (Deus enim nihil eórum quæ intra hóminem sunt abscónsa, non speculátur) afférri sibi denárium jussit, et quæsívit cujus et inscríptio esset et forma. Pharisǽi respondérunt : Cǽsaris eam esse. Quibus ait : Cǽsari redhibénda esse quæ Cǽsaris sunt; Deo autem reddénda esse, quæ Dei sunt. O plenam miráculi responsiónem, et perféctam dicti cæléstis absolutiónem! Ita ómnia inter contémptum sǽculi, et contuméliam lædéndi Cǽsaris temperávit, ut curis ómnibus et offíciis humánis devótas Deo mentes absólveret, cum Cǽsari quæ ejus essent, reddénda decérnit.
 
 ℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+SI enim nihil ejus penes nos reséderit, conditióne reddéndi ei quæ sua sunt, non tenébimur. Porro autem si rebus illíus incubámus, si jure potestátis ejus útimur, et nos tamquam mercenários aliéni patrimónii procuratióni subjícimus; extra querélam injúriæ est, Cǽsari redhibéri quod Cǽsaris est, Deo autem quæ ejus sunt própria, réddere nos oportére, corpus, ánimam, voluntátem. Ab eo enim hæc profécta atque aucta retinémus : proínde condígnum est, ut ei se totum reddant, cui debére se récolunt et oríginem et proféctum.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Magíster, \* scimus quia verax es et viam Dei in veritáte doces, allelúja.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Réddite ergo \* quæ sunt Cǽsaris Cǽsari, et quæ sunt Dei Deo, allelúja.
+
+{RUBRIC: Si sequens Dominica fuerit última post Pentecósten, ejus loco pónitur Dominica XXIV, ut infra 465, et Offícium Dominicæ XXIII anticipátur Sábbato, sub ritu semidúplici cum ómnibus privilégiis Dominicæ própriis, tam in occúrsu quam in concúrsu ad I Vésperas. De II autem Vésperis nihil fit, quamvis séquens Dominica XXIV post Pentecósten commemoránda tantum sit, juxta Rúbricas. In Officio hujus Domínicæ anticipátæ ómnia dicúntur de Sábbato, et, in I Vésperis et Completório eas sequénti, de Feria VI, ut in Psaltério, præter Capítulum ad Primam, quod dícitur de Dominica ut in Ordinário, Oratiónem et Antiphónam ad Benedíctus quæ dicúntur de ipsa Domínica XXIII, et Lectiónes, quæ in I Nocturno sumúntur de Scriptúra in Sábbato occurrénti, juxta Rúbricas, cum Responsóriis tamen de I Nocturno Domínicæ, in II autem et III Nocturno dicúntur ut infra.}
+
+---
+
+## Dominica XXIII post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+ABsólve, quǽsumus, Dómine, tuórum delícta populórum : ut a peccatórum néxibus, quæ pro nostra fragilitáte contráximus, tua benignitáte liberémur. Per Dóminum.
+
+{RUBRIC: In I et II Nocturno Lectiónes de Dominica occurrénti, juxta órdinem ménsium ut supra; in III autem Nocturno, ut infra habéntur 456. Si vero Offícium hujus Domínicæ anticipétur Sábbato, ut dícitur in superióri Rúbrica, in II Nocturno dicúntur sequéntes Lectiónes :}
+
+### In II Nocturno
+
+{RUBRIC: Ex Tractátu sancti Augustíni Epíscopi super Psalmos}
+*In Ps. 35, n. 11-13*
+
+##### Lectio iv
+
+MUltiplicáta est misericórdia tua, Deus, ut non solum homínibus, sed et juméntis detur, quæ datur homínibus, ista carnális et temporális salus. Ergo hómines non habent áliquid apud Deum excéptum, quod juménta non mereántur, et quo juménta non pervéniant? Habent plane. Hortámur illos, ut fílii sint hóminum, qui sub tégmine alárum ejus sperent et misericórdiam illam desíderent, quæ in cælo est, et quæ annuntiáta est per nubes. Sed si non possunt adhuc, ínterim vel temporália bona non desíderent, nisi ab uno Deo : sic et in véteri Testaménto sérviant, ut ad novum pervéniant. Nam et pópulus ille terréna bona desiderávit, et regnum Jerúsalem, subjectiónem inimicórum suórum, abundántiam frúctuum, salútem própriam, salútem filiórum suórum. Tália desiderábant, et tália accipiébant, sub Lege custodiebántur.
+
+℟. Super muros tuos, Jerúsalem, constítui custódes; \* Tota die et nocte non tacébunt laudáre nomen Dómini. ℣. Prædicábunt pópulis fortitúdinem meam, et annuntiábunt géntibus glóriam meam. — Tota.
+
+##### Lectio v
+
+DEsiderábant a Deo bona, quæ dat et juméntis, quia nondum ad illos vénerat Fílius hóminis, ut essent fílii hóminum : tamen jam habébant nubes annuntiántes Fílium hóminis. Venérunt ad illos prophétæ, annuntiavérunt Christum : et erant ibi quidam qui intelligébant et spem futúram habébant, ut accíperent misericórdiam, quæ in cælo est. Erant ibi qui nónnisi carnália desiderárent et terrénam ac temporálem felicitátem. Ipsis labebántur pedes ad faciénda vel adoránda idóla. Quando enim illos admonébat, et flagellábat in his ómnibus quibus delectabántur, et auferébat ea, patiebántur famem, bella, pestiléntias, morbos, et convertebántur ad idóla. Tália bona, quæ pro magno a Deo desideráre debébant, ab idólis desiderábant, et dimittébant Deum. Attendébant enim ipsa bona, quæ quærébant, abundáre ímpiis et scelerátis, et putábant se frustra Deum cólere, quia non dabat mercédem terrénam.
+
+℟. Muro tuo inexpugnábili circumcínge nos, Dómine, et armis tuæ poténtiæ prótege nos semper : \* Líbera, Dómine, Deus Israël, clamántes ad te. ℣. Erue nos in mirabílibus tuis, et da glóriam nómini tuo. — Líbera.
+
+##### Lectio vi
+
+OHomo, operárius es Dei; póstea est tempus mercédem accipiéndi : quid jam flágitas mercédem ante quam operéris? Si vénerit operárius ad domum tuam, numquid dabis mercédem ante, nisi perfécerit ópera sua? Nam pervérsum eum existimábis, si díxerit : Prius accípiam mercédem, et tunc operábor. Irascéris. Quare autem irascéris? Quia non hábuit fidem hómini mendáci. Quómodo Deus non irascétur, cum tu fidem non hábeas ipsi veritáti? Quod tibi promísit, datúrus est : non fallit, quia Véritas est qui promísit. Sed times, ne forte non hábeat quod det? Omnípotens est. Noli timére, ne non sit qui det; immortális est. Non tímeas, ne succedátur ei; perpétuus est : secúrus esto. Si vis in te præsúmere tota die operárium tuum, crede et tu Deo tota vita tua; quia vita tua moméntum témporis est apud Deum.
+
+℟. Sustinúimus pacem, et non venit : quæsívimus bona, et ecce turbátio : cognóvimus, Dómine, peccáta nostra : \* Non in perpétuum obliviscáris nos. ℣. Peccávimus, ímpie géssimus, iniquitátem fécimus, Dómine, in omnem justítiam tuam. — Non. Glória Patri. Non.
+
+### In III Nocturno
+
+{RUBRIC: Tam si hæc Dominica sua die celebrétur, quam si anticipétur Sábbato, dicúntur sequéntes Lectiónes :}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 9, 18-26*
+
+IN illo témpore : Loquénte Jesu ad turbas, ecce princeps unus accéssit et adorábat eum dicens : Dómine, fília mea modo defúncta est. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 1 Comment. in cap. 9 Matthǽi*
+
+OCtávum signum est, in quo princeps suscitári póstulat fíliam suam, nolens de mystério veræ circumcisiónis exclúdi : sed subíntrat múlier sánguine fluens, et octávo sanátur loco; ut príncipis fília de hoc exclúsa número, véniat ad nonum juxta illud quod in Psalmis dícitur : Æthiópia prævéniet manus ejus Deo; et, Cum intráverit plenitúdo géntium, tunc omnis Israël salvus fiet.
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+ET ecce múlier, quæ sánguinis fluxum patiebátur duódecim annis, accéssit retro, et tétigit fímbriam vestiménti ejus. In Evangélio secúndum Lucam scríbitur, quod príncipis fília duódecim annos habéret ætátis. Nota ergo, quod eo témpore hæc múlier, id est, géntium pópulus cœpérit ægrotáre, quo genus Judæórum credíderat. Nisi enim ex comparatióne virtútum, vítium non osténditur.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+HÆC autem múlier sánguine fluens, non in domo, non in urbe accédit ad Dóminum, quia juxta legem úrbibus excludebátur; sed in itínere, ambulánte Dómino; ut, dum pergit ad áliam, ália curétur. Unde dicunt et Apóstoli : Vobis quidem oportébat prædicári verbum Dei : sed quóniam vos judicástis indígnos salúte, transgrédimur ad gentes.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Dicébat enim \* intra se : Si tetígero fímbriam vestiménti ejus tantum, salva ero.
+
+**Oratio**
+
+ABsólve, quǽsumus, Dómine, tuórum delícta populórum : ut a peccatórum néxibus, quæ pro nostra fragilitáte contráximus, tua benignitáte liberémur. Per Dóminum.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** At Jesus convérsus \* et videns eam dixit : Confíde, fília, fides tua te salvam fecit, allelúja.
+
+{RUBRIC: Dominicæ post Pentecósten non possunt esse paucióres XXIII, neque plures XXVIII. Cum autem fúerint plures vigínti quátuor, tunc post XXIII Domínicam resumúntur, quæ eo anno superfuérunt post Epiphaníam, quoad Oratiónem, Homilíam, et Antiphónas ad Benedíctus et Magníficat, hoc órdine :
+
+Si Domínicæ post Pentecósten fúerint XXV, Domínica XXIV post Pentecósten erit quæ est VI post Epiphaníam.
+
+Si fúerint XXVI, Domínica XXIV erit quæ est V post Epiphaníam, et XXV quæ est VI.
+
+Si fúerint XXVII, Domínica XXIV erit quæ est IV post Epiphaníam, XXV erit V, et XXVI erit VI.
+
+Si fúerint XXVIII, Domínica XXIV erit quæ est III post Epiphaníam, XXV erit IV, et XXVI erit V, et XXVII erit VI.
+
+Et último loco semper pónitur, quæ séquitur hic in órdine XXIV.}
+
+---
+
+## Dominica III quæ superfuit post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+OMnípotens sempitérne Deus, infirmitátem nostram própitius réspice : atque ad protegéndum nos déxteram tuæ majestátis exténde. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 8, 1-13*
+
+IN illo témpore : Cum descendísset Jesus de monte, secútæ sunt eum turbæ multæ : et ecce leprósus véniens, adorábat eum. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 1 Comment. in cap. 8 Matthǽi*
+
+DE monte Dómino descendénte, occúrrunt turbæ, quia ad altióra ascéndere non valuérunt. Et primus ei occúrrit leprósus : necdum enim póterat cum lepra tam multíplicem in monte Salvatóris audíre sermónem. Et notándum, quod hic primus speciáliter curátus sit : secúndo, puer centuriónis : tértio, socrus Petri fébriens in Caphárnaum : quarto loco, qui obláti sunt ei a dæmónio vexáti : quorum spíritus verbo ejiciébat, quando et omnes male habéntes curávit.
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+ET ecce leprósus véniens adorábat eum, dicens. Recte post prædicatiónem atque doctrínam, signi offértur occásio, ut per virtútem miráculi, prætéritus apud audiéntes sermo firmétur. Dómine, si vis, potes me mundáre. Qui voluntátem rogat, de virtúte non dúbitat. Et exténdens Jesus manum tétigit eum, dicens : Volo, mundáre. Extendénte manum Dómino, statim lepra fugit. Simúlque consídera, quam húmilis, et sine jactántia respónsio. Ille díxerat, Si vis : Dóminus respóndit, Volo. Ille præmíserat, Potes me mundáre : Dóminus jungit, et dicit, Mundáre. Non ergo, ut plerique Latinórum putant, jungéndum est, et legéndum, Volo mundáre : sed separátim, ut primum dicat, Volo; deínde ímperet, Mundáre.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus, et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+ET ait illi Jesus : Vide, némini díxeris. Et revéra quid erat necésse ut sermóne jactáret, quod córpore præferébat? Sed vade, osténde te sacerdóti. Várias ob causas mittit eum ad sacerdótem : primum propter humilitátem, ut sacerdótibus deférre honórem videátur. Erat enim lege præcéptum, ut, qui mundáti fúerant a lepra, offérrent múnera sacerdótibus. Deínde, ut mundátum vidéntes leprósum, aut créderent Salvatóri, aut non créderent : si créderent, salvaréntur; si non créderent, inexcusábiles forent. Et simul, ne, quod in eo sæpíssime criminabántur, legem viderétur infríngere.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum descendísset Jesus \* de monte, ecce leprósus véniens adorábat eum, dicens : Dómine, si vis, potes me mundáre : et exténdens manum, tétigit eum, dicens : Volo, mundáre.
+
+**Oratio** Omnípotens, ut supra. 458
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Dómine, \* si vis, potes me mundáre : et ait Jesus : Volo, mundáre.
+
+---
+
+## Dominica IV quæ superfuit post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+DEus, qui nos in tantis perículis constitútos, pro humána scis fragilitáte non posse subsístere : da nobis salútem mentis et córporis; ut ea, quæ pro peccátis nostris pátimur, te adjuvánte vincámus. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 8, 23-27*
+
+IN illo témpore : Ascendénte Jesu in navículam, secúti sunt eum discípuli ejus : et ecce motus magnus factus est in mari, ita ut navícula operirétur flúctibus : ipse vero dormiébat. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 1 Comment. in cap. 8 Matthǽi*
+
+QUintum signum fecit, quando ascéndens navem de Caphárnaum, ventis imperávit et mari. Sextum, quando in regióne Gerasenórum dedit potestátem dæmónibus in porcos. Séptimum, quando ingrédiens civitátem suam, paralýticum secúndum curávit in léctulo. Primus enim paralýticus est puer centuriónis.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+##### Lectio viii
+
+IPse vero dormiébat : et accessérunt ad eum, et suscitavérunt eum dicéntes : Dómine, salva nos. Hujus signi typum in Jona légimus, quando céteris periclitántibus, ipse secúrus est, et dormit, et suscitátur; et império ac sacraménto passiónis suæ líberat suscitántes. Tunc surgens imperávit ventis et mari. Ex hoc loco intellígimus, quod omnes creatúræ séntiant Creatórem. Quas enim increpávit, et quibus imperávit, séntiunt imperántem : non erróre hæreticórum qui ómnia putant animántia, sed majestáte Conditóris, quæ apud nos insensibília, illi sensibília sunt.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+POrro hómines miráti sunt, dicéntes : Qualis est hic, quia venti et mare obédiunt ei? Non discípuli, sed nautæ, et céteri, qui in navi erant, mirabántur. Sin autem quis contentióse volúerit, eos, qui mirabántur, fuísse discípulos : respondébimus, recte hómines appellátos, qui necdum nóverant poténtiam Salvatóris.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Ascendénte Jesu \* in navículam, ecce motus magnus factus est in mari : et suscitavérunt eum discípuli ejus, dicéntes : Dómine, salva nos, perímus.
+
+**Oratio** Deus, qui nos, ut supra. 460
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Dómine, \* salva nos, perímus : ímpera, et fac, Deus, tranquillitátem.
+
+---
+
+## Dominica V quæ superfuit post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+FAmíliam tuam, quǽsumus, Dómine, contínua pietáte custódi : ut, quæ in sola spe grátiæ cæléstis innítitur, tua semper protectióne muniátur. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 13, 24-30*
+
+IN illo témpore : Dixit Jesus turbis parábolam hanc : Símile factum est regnum cælórum hómini, qui seminávit bonum semen in agro suo. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+*Liber Quæst. Evang. in Matth. cap. 11, tom. 4*
+
+CUm negligéntius ágerent præpósiti Ecclésiæ, aut cum dormitiónem mortis accéperent Apóstoli, venit diábolus, et superseminávit eos, quos malos fílios Dóminus interpretátur. Sed quǽritur, utrum hærétici sint, an male vivéntes cathólici? Possunt enim dici fílii mali étiam hærétici, quia ex eódem Evangélii sémine, et Christi nómine procreáti, pravis opiniónibus ad falsa dógmata convertúntur.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+##### Lectio viii
+
+SED quod dicit eos in médio trítici semináto, quasi vidéntur illi signíficári, qui uníus communiónis sunt. Verúmtamen quóniam Dóminus agrum ipsum, non Ecclésiam, sed hunc mundum interpretátus est : bene intelligúntur hærétici, quia non societáte uníus Ecclésiæ, vel uníus fídei, sed societáte solíus nóminis christiáni in hoc mundo permiscéntur bonis. At illi, qui in eádem fide mali sunt, pálea pótius quam zizánia reputántur : quia pálea étiam fundaméntum ipsum habet cum fruménto, radicémque commúnem.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+IN illa plane ságena, qua conclúduntur et mali et boni pisces, non absúrde mali cathólici intelligúntur. Aliud est enim mare, quod magis mundum istum signíficat : áliud ságena, quæ uníus fídei, vel uníus Ecclésiæ communiónem vidétur osténdere. Inter hæréticos et malos cathólicos hoc ínterest, quod hærétici falsa credunt : illi autem, vera credéntes, non vivunt ita ut credunt.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Dómine, \* nonne bonum semen seminásti in agro tuo? unde ergo habet zizánia? Et ait illis : Hoc fecit inimícus homo.

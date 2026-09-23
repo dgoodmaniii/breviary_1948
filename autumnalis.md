@@ -21086,3 +21086,88 @@ ANnue, quǽsumus, omnípotens Deus : ut sanctórum Mártyrum tuórum Mauritii et
 **Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
 
 ℣. Glória et honóre.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Linum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. (Per Dóminum).
+
+{RUBRIC: Deinde Commem. S. Theclæ Virg. et Mart. :}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+**Oratio**
+
+DA, quǽsumus, omnípotens Deus : ut, qui beátæ Theclæ Vírginis et Mártyris tuæ natalítia cólimus; et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.
+
+### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato Lectio iv dicitur ut ix.}
+
+##### Lectio iv
+
+LInus Póntifex, Volatérris in Etrúria natus, primus post Petrum gubernávit Ecclésiam. Cujus tanta fides et sánctitas fuit, ut non solum dæmones ejíceret, sed étiam mórtuos revocáret ad vitam. Scripsit res gestas beáti Petri, et ea máxime quæ ab illo acta sunt contra Simónem magum. Sancívit ne qua múlier, nisi veláto cápite, in ecclésiam introíret. Huic Pontífici caput amputátum est ob constántiam christiánæ fídei, jussu Saturníni ímpii et ingratíssimi consuláris, cujus fíliam a dæmónum vexatióne liberáverat. Sepúltus est in Vaticáno prope sepúlcrum Príncipis Apostolórum, nono Kaléndas Octóbris. Sedit annos úndecim, menses duos, dies vigínti tres, creátis, bis mense Decémbri, epíscopis quíndecim, presbýteris decem et octo.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+{RUBRIC: De Expositióne sancti Ambrósii Epíscopi in Psalmum centésimum decimum octávum.}
+
+##### Lectio v
+*Sermo 21*
+
+PRíncipes persecúti sunt me gratis : et a verbis tuis trepidávit cor meum. Bene hoc Martyr dicit, quod injúste persecutiónum torménta sustíneat; qui nihil rapúerit, nullíus sánguinem fúderit, nullíus torum putáverit esse violándum; qui nihil légibus débeat, et gravióra latrónum sustinére cogátur supplícia; qui loquátur juste, et non audiátur; qui loquátur plena salútis, et impugnétur, ut possit dícere : Cum loquébar illis, impugnábant me gratis. Gratis ígitur persecutiónem pátitur, qui impugnátur sine crímine; impugnátur ut nóxius, cum sit in tali confessióne laudábilis; impugnátur quasi venéficus, qui in nómine Dómini gloriátur, cum pietas virtútum ómnium fundaméntum sit.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+##### Lectio vi
+
+VEre frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, cum fídei sit magíster. Verum, qui gratis impugnátur, fortis debet esse et constans; quómodo ergo subtéxuit : Et a verbis tuis trepidávit cor meum? Trepidáre infirmitátis est, timóris atque formídinis. Sed est étiam infírmitas ad salútem, est étiam timor sanctórum : Timéte Dóminum, omnes sancti ejus; et, Beátus vir, qui timet Dóminum. Qua ratióne beátus? Quia in mandátis ejus cupit nimis.
+
+℟. Stola jucunditátis índuit eum Dóminus : \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Venit Jesus, de Comm. unius aut plurium Summórum Pontíficum. [28¹]}
+
+{RUBRIC: In Fériis Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemoratio ad Laudes tantum, alias}
+
+Pro S. Thecla Virg. et Mart.
+
+##### Lectio ix
+
+THecla virgo, ex illústribus paréntibus Icónii nata, a Paulo Apóstolo fídei præcéptis institúta, miris sanctórum Patrum láudibus celebrátur. Quæ décimum octávum annum agens, Thamíride sponso relícto, cum eam paréntes, quod christiána esset, accusássent, in ardéntem rogum, qui, nisi Christo renuntiáret, ei parátus erat, prius signo crucis armáta, seípsam injécit. Sed igne, plúvia quæ repénte exórta est, exstíncto, Antiochíam venit; ubi, feris objécta et tauris in divérsa incitátis alligáta, mox conjécta in fossam plenam serpéntibus, ex ómnibus Jesu Christi grátia liberátur. Cujus ardóre fídei et vítæ sanctitáte multi ad Christum convérsi sunt. Iterum in pátriam rédiens, in montem sola secéssit. Deínde, multis virtútibus et miráculis insígnis, nonagenária migrávit ad Dóminum, ac Seleúciæ sepúlta est.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Linum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et, post Commemoratiónem Fériæ in Quátuor Témporibus, fit Com. S. Theclæ Virg. et Mart. :}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Diffúsa est grátia.
+
+**Oratio**
+
+DA, quǽsumus, omnípotens Deus : ut, qui beátæ Theclæ Vírginis et Mártyris tuæ natalítia cólimus; et ánnua solemnitáte lætémur, et tantæ fídei profíciámus exémplo. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 24 Septembris — B. Mariæ V. de Mercede
+
+{RUBRIC: Duplex majus}
+
+{RUBRIC: Omnia de Comm. Festorum B. Mariæ V. [174], præter ea quæ hic habentur propria.}
+
+℣. Dignáre me laudáre te.
+
+**Ad Magnif. Ant.** Sancta María, \* succúrre míseris, juva pusillánimes, réfove flébiles, ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu : séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam festivitátem.

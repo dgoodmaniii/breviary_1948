@@ -38140,4 +38140,44 @@ ACcéssi, inquit, ad Prophetíssam, et in útero accépit et péperit fílium. Q
 
 #### Lectio iii
 
-BOnus regéndæ castitátis pudor est comes, qui primus, in ipso cognitiónis ingréssu, Dómini Matrem comméndat legéntibus, et tamquam testis lócuples dignam quæ ad tale munus eligerétur ástruit : quod in cubículo, quod sola, quod salutáta ab Angelo tacet et mota est in intróitu ejus, quod ad virílis sexus spéciem peregrínam turbátur aspéctus Vírginis. Itaque, quamvis esset húmilis, præ verecúndia ta-
+BOnus regéndæ castitátis pudor est comes, qui primus, in ipso cognitiónis ingréssu, Dómini Matrem comméndat legéntibus, et tamquam testis lócuples dignam quæ ad tale munus eligerétur ástruit : quod in cubículo, quod sola, quod salutáta ab Angelo tacet et mota est in intróitu ejus, quod ad virílis sexus spéciem peregrínam turbátur aspéctus Vírginis. Itaque, quamvis esset húmilis, præ verecúndia ta-men non resalutávit, nec ullum respónsum rétulit, nisi ubi de suscipiénda Dómini generatióne cognóvit; ut qualitátem efféctus dísceret, non ut sermónem refélleret.
+
+**Te Deum laudámus.**
+
+---
+
+# Officium Parvum B. Mariae Virginis
+
+#### IN VESPERIS
+
+{RUBRIC: Ave María secréto, quod dícitur semper in princípio ómnium Horárum.}
+
+℣. Deus, in adjutórium meum inténde. ℟. Dómine, ad adjuvándum me festína.
+
+Glória Patri. Sicut erat. Allelúja.
+
+{RUBRIC: Antíphonæ, quæ in toto Offício parvo non duplicántur, Psalmi, Capítulum et Hymnus, ut supra in Communi Festórum B. Maríæ Vírginis. [174]}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Magnif. Ant.** Beáta Mater \* et intácta Virgo, gloriósa Regína mundi, intercéde pro nobis ad Dóminum.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére : et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio de Sanctis :}
+
+**Ant.** Sancti Dei omnes, intercédere dignémini pro nostra omniúmque salúte.
+
+℣. Lætámini in Dómino et exsultáte, justi. ℟. Et gloriámini, omnes recti corde.
+
+**Oratio**
+
+PRótege, Dómine, pópulum tuum, et, Apostolórum tuórum Petri et Pauli et aliórum Apostolórum patrocínio confidéntem, perpétua defensióne consérva.
+
+OMnes Sancti tui, quǽsumus, Dómine, nos ubíque ádjuvent : ut, dum eórum mérita recólimus, patrocínia sentiámus : et pacem tuam nostris concéde témporibus, et ab Ecclésia tua cunctam re-

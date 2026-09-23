@@ -35896,4 +35896,25 @@ AGrum hunc Ecclésiæ fértilem cerno, nunc integritátis flore vernántem, nunc
 
 #### Lectio v
 
-UNde et illi, qui deórum suórum adultéria et probra venerántur, cælibátus et viduitátis statuére
+UNde et illi, qui deórum suórum adultéria et probra venerántur, cælibátus et viduitátis statuére pœnas, ut ǽmuli críminum mulctárent stúdia virtútum, spécie quidem, qua fecunditátem quærérent, sed stúdio, quo propósitum castitátis abolérent. Nam conféctis et miles stipéndiis arma depónit, et relícto offício quod gerébat, ad própria veteránus rura dimíttitur, ut et ipse exércitæ labóribus vitæ réquiem consequátur et álios spes futúræ quiétis subeúndis fáciat operíbus promptióres. Agrícola quoque matúrior torquéndam áliis stivam commíttit, et, juveníli gravátus ópere, providéntiam curæ senílis explórat : vitem facílius tondére quam prémere, ut juvenescéntem luxúriam réprimat, et adolescéntem lascíviam falce succídat; parcórum quamdam pártuum castitátem docens étiam in vítibus expeténdam.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+**Bened.** Ignem sui amóris.
+
+#### Lectio vi
+
+SImilis huic vídua, velut eméritis veterána stipéndiis castitátis, et si conjúgii arma depónat, domus tamen totíus pacem gubérnat; et si vehéndis onéribus otiósa, maritándis tamen junióribus próvida, ubi cultus utílior, ubi fructus ubérior sit, quarum cópulam aptiórem seníli gravitáte dispónit. Itaque si maturióribus quam junióribus commíttitur ager, cur putes utiliórem nuptam esse quam víduam? Quod si persecutóres fídei persecutóres fuérunt étiam viduitátis, útique fidem sequéntibus vidúitas non pro supplício fugiénda est, sed tenénda pro præmio.
+
+℟. Fallax grátia, et vana est pulchritúdo : \* Múlier timens Deum, ipsa laudábitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. **Glória Patri.** Múlier.
+
+### In III Nocturno
+
+**Absolutio.** A vínculis.
+**Bened.** Evangélica léctio.
+
+**Léctio sancti Evangélii secúndum Matthǽum**
+
+**Lectio vii** *Cap. 13, 44-52*
+
+IN illo témpore : Dixit Jesus discípulis suis parábolam hanc : Símile est regnum cælórum thesáuro abscóndito in agro. Et réliqua.

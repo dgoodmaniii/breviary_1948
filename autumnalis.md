@@ -37477,3 +37477,42 @@ Dómine, adjútor meus, \* et redémptor meus.
 ###### Psalmus 23
 
 DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite, portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens : Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Ante torum hujus Vírginis frequentáte nobis dúlcia cántica drámatis.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+**Absolutio.** Exáudi, Dómine.
+**Benedictio.** Benedictióne.
+
+{RUBRIC: De Parábolis Salomónis}
+
+**Lectio i** *Cap. 8, 12-25*
+
+EGO sapiéntia hábito in consílio, et erudítis intérsum cogitatiónibus. Timor Dómini odit malum : arrogántiam, et supérbiam, et viam pravam, et os bilíngue detéstor. Meum est consílium et ǽquitas, mea est prudéntia, mea est fortitúdo. Per me reges regnant, et legum conditóres justa decérnunt; per me príncipes ímperant, et poténtes decérnunt justítiam. Ego diligéntes me díligo; et qui mane vígilant ad me, invénient me.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio : \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+**Benedictio.** Unigénitus Dei.
+
+#### Lectio ii
+
+MEcum sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim fructus meus auro et lápide pretióso, et genímina mea argénto elécto. In viis justítiæ ámbulo, in médio semitárum judícii, ut ditem diligéntes me, et thesáuros eórum répleam. Dóminus

@@ -30242,3 +30242,31 @@ INfirmitátem nostram réspice, omnípotens Deus : et, quia pondus própriæ act
 SIlvéster, Auxími in Picéno nóbili génere ortus, statim puerílem ætátem lítteris ac bonis móribus mirífice exornávit. Adoléscens, Bonóniam ad stúdia jurisprudéntiæ missus a patre, cum sacris lítteris, a Deo mónitus, dedísset óperam, paréntis incúrrit indignatiónem; quam æquo ánimo toto decénnio pértulit. Ob egrégiam ejus virtútem a canónicis cathedrális Auximánæ ecclésiæ sócius honóris eléctus est; in quo múnere pópulo oratiónibus, exémplo et conciónibus opem tulit.
 
 ℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit.
+
+##### Lectio v
+
+INter funus nóbilis cujúsdam defúncti, in apérto túmulo formósi viri suíque propínqui defórme cadáver conspíciens : Ego, inquit, sum, quod hic fuit; quod hic est, ego ero. Et mox, perácto fúnere, illa sibi Dómini occurrénte senténtia : Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me; in solitúdinem, majóris perfectiónis stúdio, secéssit, ibíque vigíliis, oratiónibus jejuniísque déditus, crudas tantum herbas in cibum sæpius adhíbuit. Ut autem magis latéret hómines, várias mutávit sedes; ac demum pervénit ad montem Fanum, locum, quamvis prope Fabriánum, eo tamen témpore desértum, ibíque in honórem sanctíssimi patris Benedícti templum eréxit, congregationísque Silvestrinórum fundaménta jecit, sub régula et hábitu in visióne sibi ab eódem Sancto osténsis.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+##### Lectio vi
+
+AT invidens sátanas váriis terróribus illíus mónachos turbáre nitebátur, noctu monastérii jánuas hostíliter invádens. Sed vir Dei hostis ímpetum ita représsit, ut mónachi in sancto institúto magis confirmaréntur ac patris sanctitátem agnóscerent. Spíritu prophétiæ aliísque donis enítuit. Quæ ut semper profúnda humilitáte conservávit, ita contra se dǽmonis invídiam concitávit; a quo præceps actus per scalas oratórii, et prope interiméndus, præsentíssimo Vírginis benefício incolumitáti rédditus est. Quod benefícium perpétua et singulári in illam pietáte comméndat ad últimum usque vitæ spíritum, quem, fere nonagenárius, sanctitáte et miráculis clarus, Deo réddidit anno salútis millésimo ducentésimo sexagésimo séptimo, sexto Kaléndas Decémbris. Ejus Offícium ac Missam Leo décimus tértius Póntifex máximus ad univérsam exténdit Ecclésiam.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+SIlvéster, Auxími in Picéno nóbili génere ortus, puerílem ætátem lítteris ac bonis móribus mirífice exornávit. Sacris lítteris rite imbútus et canónicus factus, exémplo et sacris conciónibus pópulo opem tulit. Inter funus nóbilis cujúsdam defúncti, in apérto túmulo formósi viri suíque propínqui defórme cadáver conspíciens : Ego, inquit, sum, quod hic fuit; quod hic est, ego ero. Et mox in solitúdinem, majóris perfectiónis stúdio, secéssit, ibíque vigíliis, oratiónibus jejuniísque déditus fuit. Ut autem magis latéret hómines, várias mutávit sedes, ac tandem ad montem Fanum, locum eo témpore desértum, in honórem sancti Benedícti templum eréxit, congregationísque Silvestrinórum fundaménta jecit. Ibi mira sanctitáte mónachis præfúlsit; spíritu prophétiæ, potestáte in dǽmones aliísque donis enítuit, quæ semper profúnda humilitáte conservávit. Obdormívit in Dómino, anno salútis millésimo ducentésimo sexagésimo séptimo.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Evang. Ecce nos relíquimus, de Communi Abbátum 1 loco. [107]}
+
+{RUBRIC: Pro S. Petro Alexandrino Ep. et Mart.}
+
+##### Lectio ix
+
+PEtrus, epíscopus Alexándriæ, post Theónam virum sanctíssimum, sanctitátis et doctrínæ splendóre non solum illustrávit Ægýptum, sed toti luxit Ecclésiæ Dei. Qui in persecutióne Maximiáni Galérii illam témporum acerbitátem ita pértulit, ut multi, admirábilem ejus patiéntiam intuéntes, plúrimum in christiána virtúte profícerent. Is primus Arium diáconum Alexandrínum, propter schisma Meletiánum cui favébat, a fidélium communióne sejúnxit. Ad eum, cápitis ab eódem Maximiáno damnátum, in cárcere cum Achíllas et Alexánder presbýteri deprecatóres Arii veníssent, respóndit, noctu apparuísse sibi Jesum veste discíssa, causámque rei scitánti dixísse : Arius vestem meam, quæ est Ecclésia, dilacerávit. Quibus étiam prædícens fore, ut sibi in episcopátu succéderent, præcépit, ne umquam Arium in communiónem recíperent, quem Deo mórtuum esse sciret. Et hanc divínam prænotiónem veram fuísse, non diu post rei probávit evéntus.

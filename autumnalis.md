@@ -38637,3 +38637,41 @@ Réquiem ætérnam.
 {RUBRIC: Deinde:}
 
 ℣. A porta ínferi. ℟. Erue, Dómine, ánimam ejus (ánimas eórum).
+
+℣. Requiésca(n)t in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+{RUBRIC: Dícitur Orátio convéniens ex iis, quæ sequúntur; deinde ℣. Réquiem ætérnam, cum relíquis, ut infra. [208]}
+
+**In die depositiónis defúncti**
+
+**Oratio**
+
+ABsólve, quǽsumus, Dómine, ánimam fámuli tui N. (fámulæ tuæ N.), ut defúnctus (-a) sæculo tibi vivat : et, quæ per fragilitátem carnis humána conversatióne commísit, tu vénia misericordíssimæ pietátis abstérge. Per Dóminum nostrum Jesum Christum, Fílium tuum : qui tecum vivit et regnat in unitáte Spíritus Sancti Deus, per ómnia sǽcula sæculórum. ℟. Amen.
+
+**Vel alia Oratio**
+
+DEus, cui próprium est miseréri semper et párcere, te súpplices exorámus pro ánima fámuli tui N. (fámulæ tuæ N.), quam hódie de hoc sǽculo migráre jussísti : ut non tradas eam in manus inimíci, neque obliviscáris in finem, sed júbeas eam a sanctis Angelis súscipi, et ad pátriam paradísi perdúci; ut, quia in te sperávit et crédidit, non pœnas inférni sustíneat, sed gáudia ætérna possídeat. Per Dóminum.
+
+**In die tértio, séptimo et trigésimo depositiónis defúncti**
+
+**Oratio**
+
+QUǽsumus, Dómine, ut ánimæ fámuli tui N. (fámulæ tuæ N.), cujus depositiónis diem tértium (vel séptimum, vel trigésimum) commemorámus, Sanctórum atque electórum tuórum largíri dignéris consórtium; et rorem misericórdiæ tuæ perénnem infúndas. Per Dóminum.
+
+**In Anniversario**
+
+**Oratio**
+
+DEus, indulgentiárum Dómine : da ánimæ fámuli tui N. (fámulæ tuæ N., vel animábus famulórum famularúmque tuárum), cujus (quorum) anniversárium depositiónis diem commemorámus, refrigérii sedem, quiétis beatitúdinem, et lúminis claritátem. Per Dóminum.
+
+**Pro defúncto Summo Pontífice**
+
+**Oratio**
+
+DEus, qui inter summos sacerdótes fámulum tuum N. ineffábili tua dis-

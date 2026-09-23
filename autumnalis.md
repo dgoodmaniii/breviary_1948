@@ -36117,4 +36117,48 @@ PEr mulíerem vicit, per mulíerem superátus est. Hoc illíus ántea telum erat
 
 FUit illi corpus imbecíllum, et obnóxius sexus injúriæ; verúmtamen ómnium horum imbecillitátem advéniens grátia occultávit. Nihil enim est, nihil plane poténtius est eo, qui magno cum stúdio Dei timórem hábeat in mente defíxum; sed quamvis ignes, quamvis ferrum, quamvis béstias, quamvis áliud quidvis minéntur hostes, ómnia nullo negótio contémnit; quod útique Beáta ista étiam fecit.
 
-℟. Fallax grátia, et vana est pulchritúdo : \* Múlier timens Deum, ipsa laudá-
+℟. Fallax grátia, et vana est pulchritúdo : \* Múlier timens Deum, ipsa laudá-bitur. ℣. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus. — Múlier. **Glória Patri.** Múlier timens Deum, ipsa laudábitur.
+
+---
+
+# Commune Dedicationis Ecclesiae
+
+#### IN I VESPERIS
+
+**Ant.** Domum tuam, Dómine, \* decet sanctitúdo in longitúdinem diérum.
+
+###### Psalmus 109
+
+DIxit Dóminus Dómino meo : \* Sede a dextris meis :
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion : \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum : \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pænitébit eum : \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas : \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet : \* proptérea exaltábit caput.
+
+**Ant.** Domum tuam, Dómine, decet sanctitúdo in longitúdinem diérum.
+
+**Ant.** Domus mea \* domus oratiónis vocábitur.
+
+###### Psalmus 110
+
+COnfitébor tibi, Dómine, in toto corde meo : \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini : \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus : \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus : \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui : \* virtútem óperum suórum annuntiábit pópulo suo :
+
+Ut det illis hereditátem géntium : \* ópera mánuum ejus véritas, et judícium.

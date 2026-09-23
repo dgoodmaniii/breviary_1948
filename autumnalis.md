@@ -35869,4 +35869,31 @@ MUlíerem fortem quis invéniet? Procul et de últimis fínibus prétium ejus. C
 
 #### Lectio ii
 
-GUstávit, et vidit quia bona est negotiátio ejus : non exstinguétur in nocte lucérna ejus. Manum suam misit ad fórtia, et dígiti ejus apprehendérunt fusum. Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem. Non timébit dómui suæ a frigóribus nivis : omnes enim doméstici ejus vestíti sunt duplícibus. Stragulátam vestem fecit sibi : byssus et púrpura induméntum ejus. Nóbilis in portis vir
+GUstávit, et vidit quia bona est negotiátio ejus : non exstinguétur in nocte lucérna ejus. Manum suam misit ad fórtia, et dígiti ejus apprehendérunt fusum. Manum suam apéruit ínopi, et palmas suas exténdit ad páuperem. Non timébit dómui suæ a frigóribus nivis : omnes enim doméstici ejus vestíti sunt duplícibus. Stragulátam vestem fecit sibi : byssus et púrpura induméntum ejus. Nóbilis in portis vir ejus, quando séderit cum senatóribus terræ. Síndonem fecit et véndidit, et cíngulum trádidit Chananǽo.
+
+℟. Diffúsa est grátia in lábiis tuis : \* Proptérea benedíxit te Deus in ætérnum. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Proptérea.
+
+**Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+
+FOrtitúdo et decor induméntum ejus, et ridébit in die novíssimo. Os suum apéruit sapiéntiæ, et lex cleméntiæ in lingua ejus. Considerávit sémitas domus suæ, et panem otiósa non comédit. Surrexérunt fílii ejus, et beatíssimam prædicavérunt : vir ejus, et laudávit eam. Multæ fíliæ congregavérunt divítias : tu supergréssa es univérsas. Fallax grátia, et vana est pulchritúdo : múlier timens Dóminum, ipsa laudábitur. Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+℟. Spécie tua et pulchritúdine tua \* Inténde, próspere procéde, et regna. ℣. Diffúsa est grátia in lábiis tuis, proptérea benedíxit te Deus in ætérnum. — Inténde. **Glória Patri.** Inténde.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Víduis}
+{RUBRIC: Prope finem}
+
+#### Lectio iv
+
+AGrum hunc Ecclésiæ fértilem cerno, nunc integritátis flore vernántem, nunc viduitátis gravitáte polléntem, nunc étiam conjúgii frúctibus redundántem. Nam etsi divérsi, uníus tamen agri fructus sunt : nec tanta hortórum lília, quantæ áristæ ségetum, méssium spicæ; compluriúmque spátia campórum recipiéndis aptántur semínibus, quam rédditis nováles frúctibus feriántur. Bona ergo vidúitas, quæ tóties apostólico judício prædicátur. Hæc enim magístra fídei, magístra est castitátis.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+UNde et illi, qui deórum suórum adultéria et probra venerántur, cælibátus et viduitátis statuére

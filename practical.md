@@ -1286,4 +1286,24 @@ The ordinary sign of the cross is made:
 [^88]: "Non autem cubando extra necessitatem." Tanquerey-Quévastre, *Brev. Synop. Theol. Moral.* (1918), n. 709.— Any reasonable cause excuses.
 [^89]: Not at the *Adjutorium* after the *Lectio brevis* of Prime, since the sign of the cross is made immediately after at *Dominus nos benedicat*.
 
+(i. e., any) *Confiteor*,[^90] and the *Indulgentiam* following it.
+
+(d) At the *Dominus nos benedicat* ending Prime, and the *Benedicat et custodiat nos* (whilst saying *Pater et Filius*, etc.) ending Compline.
+
+(e) At *Afferte Domino*, the first antiphon of Matins on the feast of the Epiphany.
+
+(f) At Matins, Lauds, and Vespers of the three last days in Holy Week, whilst beginning the first antiphon; and at the remaining Hours, whilst beginning the first psalm.
+
+[^90]: Including that of Compline though it be immediately preceded by the *Pater noster*.
+
+### Ordo Reading
+
+**71.** *Example:*
+
+Fer. IV. *alb.* S. Remigii Ep. C. *simpl.*— Ad Mat. Invit. Hymn. de Comm. Antt. pss. et V. de fer. L. I et II de Scr. occ. 3. pr. loc.— Ad Laud. omn. de fer. a cap. de Comm. et Suffr.—Ad Hor. omn. de fer. (Ad Pr. Prec.) a cap. de Comm.—(Missa *Statuit* Gl. 2 or. Fidelium 3 or. *A cunctis*) — Vesp. (alb.) de seq. (pr. loc.) — Compl. de Dom.
+
+*Meaning:*
+
+Wednesday. White. St. Remigius, Bishop Confessor. *Simple.*— In Matins the Invitatorium and hymn from the *Commune*. The antiphons, psalms, and versicle from the ferial. First and second Lessons (taken) from Scripture occurring. Third Lesson in proper place.— At Lauds everything from the ferial. From Capitulum as found in the *Commune*.— Suffragium said.— At the Little Hours everything is from the ferial. (At Prime *Preces dominicales*.) From Capitulum on is taken from the *Commune*. (Mass *Statuit*, Gloria, second Oration: Fidelium; third oration: *A cunctis*.) — Vespers (white) of the following (in the proper place).— Compline of the Sunday.
+
 ---

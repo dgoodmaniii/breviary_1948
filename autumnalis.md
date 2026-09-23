@@ -28434,4 +28434,81 @@ QUia in superióribus Ecclésiam Synagógæ prætulit, hortátur nos ut fidem p�
 
 ##### Lectio viii
 
-HÆC est lucérna quæ accénditur, virtus scílicet nostræ mentis et sensus, ut drachma illa possit, quæ períerat, reperíri. Nemo ergo fidem sub lege constítuat; lex enim intra mensúram est, ultra mensúram grátia; lex obúmbrat, grátia clarífícat. Et ídeo nemo fidem suam intra mensúram legis inclúdat, sed ad Ecclésiam cónferat, in qua septifórmis Spíritus relúcet grátia, quam Princeps ille sacerdótum fulgóre supérnæ divinitátis illúminat, ne eam legis umbra restínguat. ¶
+HÆC est lucérna quæ accénditur, virtus scílicet nostræ mentis et sensus, ut drachma illa possit, quæ períerat, reperíri. Nemo ergo fidem sub lege constítuat; lex enim intra mensúram est, ultra mensúram grátia; lex obúmbrat, grátia clarífícat. Et ídeo nemo fidem suam intra mensúram legis inclúdat, sed ad Ecclésiam cónferat, in qua septifórmis Spíritus relúcet grátia, quam Princeps ille sacerdótum fulgóre supérnæ divinitátis illúminat, ne eam legis umbra restínguat. ¶ Dénique lucérna illa, quam matutínis vespertinísque témporibus, ritu véteri Judæórum, princeps sacerdótum solébat accéndere, velut sub módio sita legis, evánuit; et cívitas illa Jerúsalem quæ in terris est, quæ occídit prophétas, quasi in conválle fletus pósita delitéscit. Illa autem Jerúsalem quæ in cælo est, in qua mílitat fides nostra, in illo altíssimo ómnium locáta monte, hoc est Christo, non potest ténebris et ruínis hujus mundi abscóndi; sed, fulgens candóre Solis ætérni, luce nos grátiæ spiritális illúminat.
+
+℟. Martínus Abrahæ sinu lætus excípitur : Martínus, hic pauper et módicus, \* Cælum dives ingréditur, hymnis cæléstibus honorátur. ℣. Martínus epíscopus migrávit a sæculo : vivit in Christo gemma sacerdótum. — Cælum. Glória Patri. Cælum.
+
+{RUBRIC: Pro S. Menna Mart.}
+
+##### Lectio ix
+
+MEnnas Ægýptius, christiánus miles, in persecutióne Diocletiáni et Maximiáni imperatórum, cum pœniténtiæ causa in solitúdinem secessísset, natáli die imperatórum, quo pópulus célebri spectáculo tenebátur, in theátrum prosíliens, líbera voce gentílium superstitiónem insectabátur. Quam ob rem comprehénsus, et, Pyrrho præside, in metrópoli Cottiénsium Phrýgiæ vinctus, loris crudéliter cǽditur. Deínde, equúleo tortus, lampádibus ardéntibus ad corpus admótis plagísque cilício confricátis, tum per tríbulos et virgas férreas mánibus ac pédibus colligátis tractus, plumbátis étiam contúsus, demum gládio interfícitur in ignémque conjícitur. Corpus, inde a Christiánis eréptum, sepúltum est ac póstea Constantinópolim translátum.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+**Ant. 1** Dixérunt discípuli \* ad beátum Martínum; Cur nos, pater, déseris, aut cui nos desolátos relínquis? Invádent enim gregem tuum lupi rapáces.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Dómine, \* si adhuc pópulo tuo sum necessárius, non recúso labórem : fiat volúntas tua.
+
+**Ant. 3** O virum ineffábilem, \* nec labóre victum, nec morte vincéndum, qui nec mori tímuit, nec vívere recusávit!
+
+**Ant. 4** Oculis ac mánibus \* in cælum semper inténtus, invíctum ab oratióne spíritum non relaxábat, allelúja.
+
+**Ant. 5** Martínus \* Abrahæ sinu lætus excípitur : Martínus, hic pauper et módicus, cælum dives ingréditur, hymnis cæléstibus honorátur.
+
+{RUBRIC: Capit. Eccli. 44, 16-17}
+
+ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus : et in témpore iracúndiæ factus est reconciliátio.
+
+**Hymnus**
+
+JEsu, Redémptor ómnium,
+Perpes coróna Præsulum,
+In hac die cleméntius
+Indúlgeas precántibus,
+
+Tui sacri qua nóminis
+Conféssor almus cláruit :
+Hujus celébrat ánnua
+Devóta plebs solémnia.
+
+Qui rite mundi gáudia
+Hujus cadúca réspuens,
+Æternitátis prǽmio
+Potítur inter Angelos.
+
+Hujus benígnus ánnue
+Nobis sequi vestígia :
+Hujus precátu, sérvulis
+Dimítte noxam críminis.
+
+Sit, Christe, Rex piíssime,
+Tibi, Patríque glória,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum. Amen.
+
+℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+**Ad Bened. Ant.** O beátum virum, \* cujus ánima paradísum póssidet! Unde exsúltant Angeli, lætántur Archángeli, chorus Sanctórum proclámat, turba Vírginum invítat : Mane nobíscum in ætérnum.
+
+**Oratio**
+
+DEus, qui cónspicis quia ex nulla nostra virtúte subsístimus : concéde propítius; ut, intercessióne beáti Martíni Confessóris tui atque Pontíficis, contra ómnia advérsa muniámur. Per Dóminum.
+
+{RUBRIC: Pro Commem. S. Mennæ Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+**Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, qui beáti Mennæ Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+{RUBRIC: Ad Horas Antíphona et Psalmi de Feria; ad Primam Léctio brevis Fungi sacerdótio, ut infra ad Nonam.}
+
+{RUBRIC: Sicúbi autem hoc Festum sub ritu duplíci I vel II clássis recolátur, Antíphonæ de Laudibus, ut supra, cum Psalmis de Dominica ut in Festis.}

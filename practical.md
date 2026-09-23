@@ -1905,7 +1905,9 @@ Should the feast of the titular fall within Holy Week or within the octave of Ea
 
 **115.** The Lessons of the third nocturn (during the octave) are always the same as those of the feast itself (so as to agree with the gospel of the Mass); those of the second nocturn are taken from the *Commune*, alternatively *de primo* and *secundo loco* (according as the Office of the days within the octave — not excluding the octave-day — has to be recited).
 
-### The Mass of the Titular
+## CHAPTER XX
+
+## THE MASS OF THE TITULAR
 
 **116.** As a general rule, the Mass said will be in accordance with the Office recited. The following points should, however, be noted:
 

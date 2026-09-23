@@ -23423,3 +23423,171 @@ MArcus, Románus, Constantíno Magno imperatóre Póntifex, instítuit ut epísc
 *Eccli. 24, 25 et 39, 17*
 
 IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis.
+
+Ego, quasi rosa plantáta super rivos aquárum, fructificávi.
+
+**Hymnus**
+
+JAM morte, victor, óbruta,
+Ab ínferis Christus redit,
+Fractísque culpæ vínculis,
+Cæli reclúdit lúmina.
+
+Visus satis mortálibus
+Ascéndit ad cæléstia,
+Dextrǽque Patris ássidet
+Consors Patérnæ glóriæ.
+
+Quem jam suis promíserat,
+Sanctum datúrus Spíritum,
+Linguis amóris ígneis
+Mæstis alúmnis ímpluit.
+
+Solúta carnis póndere
+Ad astra Virgo tóllitur,
+Excépta cæli júbilo
+Et Angelórum cánticis.
+
+Bis sena cingunt sídera
+Almæ paréntis vérticem :
+Throno propínqua Fílii
+Cunctis creátis ímperat.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. Et habitáre eam fecit in tabernáculo suo.
+
+**Ad Bened. Ant.** Solemnitátem hodiérnam \* sacratíssimi Rosárii Genitrícis Dei Maríæ devóte celebrémus, ut ipsa pro nobis intercédat ad Dóminum Jesum Christum.
+
+**Oratio**
+
+DEus, cujus Unigénitus per vitam, mortem et resurrectiónem suam nobis salútis ætérnæ prǽmia comparávit : concéde, quǽsumus; ut, hæc mystéria sacratíssimo beátæ Maríæ Vírginis Rosário recoléntes, et imitémur quod cóntinent, et quod promíttunt, assequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Ad Laudes tantum fit Com. S. Marci Papæ et Conf. :}
+
+**Ant.** Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+℣. Justum dedúxit.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Marcum Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. (Per Dóminum.)
+
+{RUBRIC: Deinde item ad Laudes tantum Com. Ss. Sergii, Bacchi, Marcelli et Apuleji Mm. :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+**Oratio**
+
+SAnctórum Mártyrum tuórum nos, Dómine, Sérgii, Bacchi, Marcélli et Apuléji beáta mérita prosequántur : et tuo semper fáciant amóre ferventes. Per Dóminum.
+
+#### AD PRIMAM
+
+**Ant.** Lætáre, \* Virgo Mater; surréxit Christus de sepúlcro.
+
+#### AD TERTIAM
+
+**Ant.** Ascéndit Deus \* in jubilatióne, et Dóminus in voce tubæ.
+
+**Capitulum**
+*Eccli. 24, 25 et 39, 17*
+
+IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Ego, quasi rosa plantáta super rivos aquárum, fructificávi.
+
+℟. br. Sancta Dei Génitrix, \* Semper Virgo María. Sancta. ℣. Intercéde pro nobis ad Dóminum, Deum nostrum. Semper. Glória Patri. Sancta.
+
+℣. Post partum, Virgo, invioláta permansísti. ℟. Dei Génitrix, intercéde pro nobis.
+
+**Oratio** Deus cujus, ut supra. 632
+
+#### AD SEXTAM
+
+**Ant.** Spíritus Dómini \* replévit orbem terrárum.
+
+**Capitulum**
+*Eccli. 39, 19*
+
+FLoréte flores quasi lílium et date odórem et frondéte in grátiam; collaudáte cánticum et benedícite Dóminum in opéribus suis.
+
+℟. br. Post partum, Virgo, \* Inviolátam permansísti. Post partum. ℣. Dei Génitrix, intercéde pro nobis. Inviolátam permansísti. Glória Patri. Post partum.
+
+℣. Speciósa facta es et suávis. ℟. In delíciis tuis, sancta Dei Génitrix.
+
+#### AD NONAM
+
+**Ant.** Exaltáta est \* Virgo María super choros Angelórum, et in cápite ejus coróna stellárum duódecim.
+
+**Capit.**
+*Eccli. 24, 17-18*
+
+QUasi cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion : quasi palma exaltáta sum in Cades, et quasi plantátio rosæ in Jéricho.
+
+℟. br. Speciósa facta es \* Et suávis. Speciósa. ℣. In delíciis tuis, sancta Dei Génitrix. Et suávis. Glória Patri. Speciósa.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. Et habitáre eam fecit in tabernáculo suo.
+
+#### IN II VESPERIS
+
+**Ant. 1** Quæ est ista, \* speciósa sicut colúmba, quasi rosa plantáta super rivos aquárum?
+
+**Ant. 2** Virgo potens, \* sicut turris David : mille clýpei pendent ex ea, omnis armatúra fórtium.
+
+**Ant. 3** Ave, María, \* grátia plena; Dóminus tecum : benedícta tu in muliéribus.
+
+**Ant. 4** Benedíxit te Dóminus \* in virtúte sua, quia per te ad níhilum redégit inimícos nostros.
+
+**Ant. 5** Vidérunt eam \* fíliæ Sion vernántem in flóribus rosárum, et beatíssimam prædicavérunt.
+
+**Capitulum**
+*Eccli. 24, 25 et 39, 17*
+
+IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Ego, quasi rosa plantáta super rivos aquárum, fructificávi.
+
+**Hymnus**
+
+TE gestiéntem gáudiis,
+Te sáuciam dolóribus,
+Te jugi amíctam glória,
+O Virgo Mater, pángimus.
+
+Ave, redúndans gáudio
+Dum cóncipis, dum vísitas;
+Et edis, offers, ínvenis,
+Mater beáta, Fílium.
+
+Ave, dolens, et íntimo
+In corde agónem, vérbera,
+Spinas crucémque Fílii
+Perpéssa, princeps Mártyrum.
+
+Ave, in triúmphis Fílii,
+In ígnibus Paráclíti,
+In regni honóre et lúmine,
+Regína fulgens glória.
+
+Veníte, gentes, cárpite
+Ex his rosas mystériis,
+Et pulchri amóris ínclytæ
+Matri corónas néctite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Regína sacratíssimi Rosárii, ora pro nobis. ℟. Ut digni efficiámur promissiónibus Christi.
+
+**Ad Magnif. Ant.** Beáta Mater \* et intácta Virgo, gloriósa Regína mundi, séntiant omnes tuum juvámen, quicúmque célebrant tuam sacratíssimi Rosárii solemnitátem.
+
+**Oratio**
+
+DEus, cujus Unigénitus per vitam, mortem et resurrectiónem suam nobis salútis ætérnæ prǽmia comparávit : concéde, quǽsumus; ut, hæc mystéria sacratíssimo beátæ Maríæ Vírginis Rosário recoléntes, et imitémur quod cóntinent, et quod promíttunt, assequámur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commem. sequéntis.}

@@ -34710,3 +34710,67 @@ DA supplicánti cœtui,
 Hujus rogátu, nóxii
 Remissiónem críminis,
 Rumpéndo nexum vínculi.
+
+Anni revérso témpore,
+Dies refúlsit lúmine,
+Quo Sanctus hic de córpore
+Migrávit inter sídera.
+
+Hic, vana terræ gáudia
+Et luculénta prædia
+Pollúta sorde députans,
+Ovans tenet cæléstia.
+
+Te, Christe, Rex piíssime,
+Hic confiténdo júgiter,
+Calcávit artes dæmonum
+Sævúmque avérni príncipem.
+
+Virtúte clarus et fide,
+Confessióne sédulus,
+Jejúna membra déferens,
+Dapes supérnas óbtinet.
+
+Proínde te, piíssime,
+Precámur omnes súpplices,
+Nobis ut hujus grátia
+Pœnas remíttas débitas.
+
+\* Patri perénnis glória,
+Natóque Patris único,
+Sanctóque sit Paráclito,
+Per omne semper sæculum.
+Amen.
+
+℣. Justum dedúxit Dóminus per vias rectas.
+℟. Et osténdit illi regnum Dei.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**1 — Oratio**
+
+DEus, qui nos beáti N. Confessóris tui ánnua solemnitáte lætíficas : concéde propítius; ut, cujus natalítia cólimus, étiam actiónes imitémur. Per Dóminum.
+
+**2 — Alia Oratio**
+
+ADésto, Dómine, supplicatiónibus nostris, quas in beáti N. Confessóris tui solemnitáte deférimus : ut, qui nostræ justítiæ fidúciam non habémus, ejus, qui tibi plácuit, précibus adjuvémur. Per Dóminum.
+
+{RUBRIC: Pro Doctore non Pontifice}
+
+**3 — Oratio**
+
+DEus, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti : præsta, quæsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Si fuerit Abbas}
+
+**4 — Oratio**
+
+INtercéssio nos, quæsumus, Dómine, beáti N. Abbátis comméndet : ut, quod nostris méritis non valémus, ejus patrocínio assequámur. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD TERTIAM
+
+**Capitulum** *Eccli. 31, 8-9*
+
+BEátus vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.

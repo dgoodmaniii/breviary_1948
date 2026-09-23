@@ -37515,4 +37515,33 @@ EGO sapiéntia hábito in consílio, et erudítis intérsum cogitatiónibus. Tim
 
 #### Lectio ii
 
-MEcum sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim fructus meus auro et lápide pretióso, et genímina mea argénto elécto. In viis justítiæ ámbulo, in médio semitárum judícii, ut ditem diligéntes me, et thesáuros eórum répleam. Dóminus
+MEcum sunt divítiæ et glória, opes supérbæ et justítia. Mélior est enim fructus meus auro et lápide pretióso, et genímina mea argénto elécto. In viis justítiæ ámbulo, in médio semitárum judícii, ut ditem diligéntes me, et thesáuros eórum répleam. Dóminus possédit me in inítio viárum suárum, ántequam quidquam fáceret a princípio. Ab ætérno ordináta sum et ex antíquis, ántequam terra fíeret. Nondum erant abýssi, et ego jam concépta eram; necdum fontes aquárum erúperant; necdum montes gravi mole constíterant; ante colles ego parturiébar.
+
+℟. Congratulámini mihi, omnes, qui dilígitis Dóminum : quia, cum essem párvula, plácui Altíssimo, \* Et de meis viscéribus génui Deum et hóminem. ℣. Beátam me dicent omnes generatiónes, quia ancíllam húmilem respéxit Deus. — Et.
+
+**Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+*Cap. 8, 34-36 et 9, 1-5*
+
+BEátus homo qui audit me, et qui vígilat ad fores meas quotídie, et obsérvat ad postes óstii mei. Qui me invénerit, invéniet vitam, et háuriet salútem a Dómino; qui autem in me peccáverit, lædet ánimam suam. Omnes, qui me odérunt, díligunt mortem. Sapiéntia ædificávit sibi domum, excídit colúmnas septem. Immolávit víctimas suas, míscuit vinum et propósuit mensam suam. Misit ancíllas suas, ut vocárent ad arcem et ad mœnia civitátis : Si quis est párvulus, véniat ad me. Et insipiéntibus locúta est : Veníte, comédite panem meum, et bíbite vinum quod míscui vobis.
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi : \* Genuísti qui te fecit, et in ætérnum pérmanes Virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti. **Glória Patri.** Genuísti.
+
+### In II Nocturno
+
+**Ant.** Spécie tua \* et pulchritúdine tua inténde, próspere procéde, et regna.
+
+###### Psalmus 44
+
+ERuctávit cor meum verbum bonum : \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ, \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis : \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justí-

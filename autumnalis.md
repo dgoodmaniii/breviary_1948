@@ -33319,3 +33319,161 @@ SEd cum tot signa perturbatiónis dicta sint, opórtet, ut eórum consideratión
 {RUBRIC: Psalmi de Dominica.}
 
 **Ant. 2** Cum palma \* ad regna pervenérunt Sancti, corónas decóris meruérunt de manu Dei.
+
+**Ant. 3** Córpora Sanctórum \* in pace sepúlta sunt : et vivent nómina eórum in ætérnum.
+
+**Ant. 4** Mártyres Dómini, \* Dóminum benedícite in ætérnum.
+
+**Ant. 5** Mártyrum chorus, \* laudáte Dóminum de cælis, allelúja.
+
+**Capitulum** *Sap. 3, 1-3*
+
+JUstórum ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+**Hymnus**
+
+REX glorióse Mártyrum,
+Coróna confiténtium,
+Qui respuéntes térrea
+Perdúcis ad cæléstia :
+
+Aurem benígnam prótinus
+Inténde nostris vócibus :
+Trophǽa sacra pángimus :
+Ignósce quod delíquimus.
+
+Tu vincis inter Mártyres
+Parcísque Confessóribus :
+Tu vince nostra crímina,
+Largítor indulgéntiæ.
+
+\* Deo Patri sit glória,
+Ejúsque soli Fílio,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Exsultábunt Sancti in glória.
+℟. Lætabúntur in cubílibus suis.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+{RUBRIC: Pro pluribus Martyribus Pontificibus}
+
+**1 — Oratio**
+
+BEatórum Mártyrum paritérque Pontíficum N. et N. nos, quæsumus, Dómine, festa tueántur : et eórum comméndet orátio veneránda. Per Dóminum.
+
+{RUBRIC: Si non fuerint Pontifices}
+
+**2 — Oratio**
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere : da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+**3 — Alia Oratio**
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum N. et N. solemnitáte lætíficas : concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD TERTIAM
+
+**Capitulum** Justórum, ut supra.
+
+℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde. Lætámini. Glória Patri. Lætámini. ℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+#### AD SEXTAM
+
+**Capitulum** *Sap. 10, 17*
+
+RÉddidit Deus mercédem labórum sanctórum suórum, et dedúxit illos in via mirábili : et fuit illis in velaménto diéi, et in luce stellárum nocte.
+
+℟. br. Exsúltent justi \* In conspéctu Dei. Exsúltent. ℣. Et delecténtur in lætítia. In conspéctu Dei. Glória Patri. Exsúltent. ℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+#### AD NONAM
+
+**Capitulum** *Sap. 3, 7-8*
+
+FUlgébunt justi, et tamquam scintíllæ in arundinéto discúrrent. Judicábunt natiónes, et dominabúntur pópulis : et regnábit Dóminus illórum in perpétuum.
+
+℟. br. Justi autem \* In perpétuum vivent. Justi. ℣. Et apud Dóminum est merces eórum. In perpétuum vivent. Glória Patri. Justi. ℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+#### IN II VESPERIS
+
+**Ant. 1** Isti sunt Sancti, \* qui pro testaménto Dei sua córpora tradidérunt, et in sánguine Agni lavérunt stolas suas.
+
+{RUBRIC: Psalmi ut in I Vésperis de Communi Apostolórum [3], sed loco últimi Ps. 115 Crédidi, ut infra.}
+
+**Ant. 2** Sancti per fidem \* vicérunt regna, operáti sunt justítiam, adépti sunt repromissiónes.
+
+**Ant. 3** Sanctórum velut áquilæ \* juvéntus renovábitur : florébunt sicut lílium in civitáte Dómini.
+
+**Ant. 4** Abstérget Deus \* omnem lácrimam ab óculis Sanctórum : et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor : quóniam prióra transiérunt.
+
+**Ant. 5** In cæléstibus regnis \* Sanctórum habitátio est, et in ætérnum réquies eórum.
+
+###### Psalmus 115
+
+CRédidi, propter quod locútus sum : \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo : \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam : \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus : \* pretiósa in conspéctu Dómini mors sanctórum ejus :
+
+O Dómine, quia ego servus tuus : \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea : \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus : \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** In cæléstibus regnis Sanctórum habitátio est, et in ætérnum réquies eórum.
+
+**Capitulum** *Sap. 3, 1-3*
+
+JUstórum ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+**Hymnus**
+
+SAnctórum méritis ínclyta gáudia
+Pangámus, sócii, géstaque fórtia :
+Gliscens fert ánimus prómere cántibus
+Victórum genus óptimum.
+
+Hi sunt, quos fátue mundus abhórruit;
+Hunc fructu vácuum, flóribus áridum
+Contempsére tui nóminis ásseclæ,
+Jesu, Rex bone cælitum.
+
+Hi pro te fúrias atque minas truces
+Calcárunt hóminum, sǽvaque vérbera :
+His cessit lácerans fórtiter úngula,
+Nec carpsit penetrália.
+
+Cædúntur gládiis more bidéntium :
+Non murmur résonat, non querimónia;
+Sed corde impávido mens bene cónscia
+Consérvat patiéntiam.
+
+Quæ vox, quæ póterit lingua retéxere,
+Quæ tu Mártyribus múnera præparas?
+Rubri nam flúido sánguine, fúlgidis
+Cingunt témpora láureis.
+
+Te, summa o Déitas, únaque póscimus :
+Ut culpas ábigas, nóxia súbtrahas,
+Des pacem fámulis; ut tibi glóriam,
+Annórum in sériem, canant.
+Amen.
+
+℣. Exsultábunt Sancti in glória.
+℟. Lætabúntur in cubílibus suis.
+
+**Ad Magnif. Ant.** Gaudent in cælis \* ánimæ Sanctórum, qui Christi vestígia sunt secúti : et quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+{RUBRIC: Completorium de Dominica.}
+
+---

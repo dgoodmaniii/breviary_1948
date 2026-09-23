@@ -1117,3 +1117,90 @@ Note that in the hymn *ISTE CONFESSOR*, the third verse "*Meruit beatas scandere
 [^76]: "The 'birthday' (*dies natalis*) of a saint is the day of his death, which is the day of his birth to everlasting life. The *quasi-birthday* (*dies quasi-natalis*) is the day appointed for the feast of the saint, when his 'birthday' is occupied by another feast."—Vigourel, *Manual of Liturgy*, n. 109 (note).
 
 ---
+
+## CHAPTER X
+
+## USEFUL ADDITIONS
+
+### Translation of Feasts
+
+**60.** In order that a feast be capable of being transferred, it must be, at least, a double of the second class. Translation takes place on account of the fact that the celebration of a feast may be hindered by an occurring feast of higher rank.
+
+### Major Sundays[^77]
+
+**61.** Major Sundays are divided into two classes:
+
+a) *Sundays of the First Class:*
+
+> First Sunday of Advent
+> First Sunday of Lent
+> Second Sunday of Lent
+> Third Sunday of Lent
+> Fourth Sunday of Lent
+> Passion Sunday
+> Palm Sunday
+> Easter Sunday
+> Low Sunday
+> Pentecost Sunday
+
+[^77]: The other Sundays are termed *minor* or *common* Sundays. The rite of Sundays is usually semi-double, though they may be of sufficient relative importance to exclude even double of the first class feasts, as may be readily understood from the above rubrical statements. As a general rule, common Sundays yield only to doubles of first or second class.
+
+which, in occurrence, be it accidental or not, are preferred to any feasts whatsoever.
+
+b) *Sundays of the Second Class:*
+
+> Second Sunday of Advent
+> Third Sunday of Advent
+> Fourth Sunday of Advent
+> Septuagesima Sunday
+> Sexagesima Sunday
+> Quinquagesima Sunday
+
+which, in accidental occurrence, are preferred to all feasts except doubles of the first class.
+
+### Major Ferials
+
+**62.** Major ferials are likewise divided into two classes:
+
+a) *Privileged Ferials:*
+
+> Ash Wednesday
+> Monday of Holy Week
+> Tuesday of Holy Week
+> Wednesday of Holy Week
+
+which, in occurrence, are preferred to any feasts whatever.
+
+b) *Non-privileged Major Ferials:*
+
+> Ferials of Advent
+> Ferials of Lent
+> Ember-days of September[^78]
+> Rogation Monday
+
+[^78]: The ember-days are committed to memory by means of the verse: "*Post Lent, post Pent, post Cruci, post Luci*," meaning that ember-days occur within the week after the first Sunday of Lent and Pentecost Sunday, and on the Wednesday, Friday, and Saturday following both the feast of the Exaltation of the *Holy Cross* (Sept. 14th) and that of St. Lucy (Dec. 13th). From this it will be seen that all the ember-days, except those of September, are already equal to *major ferials* for one reason or another, e. g., the ember-days after the first Sunday of Lent are *major ferials* from the fact that they are ferials of Lent, as above.
+
+which, in occurrence, are preferred only to feasts of simple rite.
+
+### Privileged Vigils
+
+**63.** Privileged vigils are also divided into two classes:
+
+a) *Vigils of the First Class:*
+
+> Vigil of Christmas
+> Vigil of Pentecost
+
+which, in occurrence, are preferred to any feast whatsoever.
+
+(b) *Vigil of the Second Class:* Vigil of the Epiphany, which, in occurrence, is preferred to any feast whatsoever, excepting doubles of first or second class and feasts of Our Lord.
+
+### Octaves
+
+**64.** Some feasts have *privileged octaves*, of which the Office is said, or, at least, commemorated; others have *common octaves*, the commemoration of which may also be sometimes omitted, according to the Rubrics; others, again, have *simple octaves*, of which nothing is said except on the octave-day.
+
+a) *Privileged Octaves:*
+
+of the *first* order: Octave of Easter, Octave of Pentecost
+
+---

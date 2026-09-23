@@ -37364,4 +37364,66 @@ Tribus honor unus. Amen.
 
 **Oratio**
 
-COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére : et, gloriósa beátæ Maríæ semper Vír-
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére : et, gloriósa beátæ Maríæ semper Vír-ginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+{RUBRIC: Completórium de Dominica.}
+
+{RUBRIC: Conclúsio Hymnórum ad omnes Horas, étiam per Octávas commúnes, erit séquens :}
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+#### AD MATUTINUM
+
+**Invitat.** Sancta María, Dei Génitrix Virgo, \* Intercéde pro nobis. **Ps. 94** Veníte, exsultémus.
+
+**Hymnus**
+
+QUem terra, pontus, sídera
+Colunt, adórant, prædicant,
+Trinam regéntem máchinam,
+Claustrum Maríæ bájulat.
+
+Cui luna, sol et ómnia
+Desérviunt per témpora,
+Perfúsa cæli grátia,
+Gestant puéllæ víscera.
+
+Beáta Mater múnere,
+Cujus, supérnus Artifex
+Mundum pugíllo cóntinens,
+Ventris sub arca clausus est.
+
+Beáta cæli núntio,
+Fecúnda Sancto Spíritu,
+Desiderátus géntibus
+Cujus per alvum fusus est.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Benedícta tu \* in muliéribus, et benedíctus fructus ventris tui.
+
+###### Psalmus 8
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum : \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves

@@ -41153,4 +41153,22 @@ OBsecro te, dulcíssime Dómine Jesu Christe, ut pássio tua sit mihi virtus, qu
 
 {RUBRIC: Indulgéntia trium annórum. Pius Pp. XI, 3 Octóbris 1936.}
 
-OMaría, Virgo et Mater sanctíssima, ecce suscépi dilectíssimum Fílium tuum, quem immaculáto útero tuo concepísti, genuísti, lactásti, atque sua-
+OMaría, Virgo et Mater sanctíssima, ecce suscépi dilectíssimum Fílium tuum, quem immaculáto útero tuo concepísti, genuísti, lactásti, atque sua-víssimis ampléxibus strinxísti. Ecce cujus aspéctu lætabáris et ómnibus delíciis replebáris, illum ipsum tibi humíliter et amánter repræsénto et óffero tuis bráchiis constringéndum, tuo corde amándum, sanctissimæque Trinitáti in suprémum latríæ cultum, pro tui ipsíus honóre et glória et pro meis totiúsque mundi necessitátibus, offeréndum. Rogo ergo te, piíssima Mater, ímpetra mihi véniam ómnium peccatórum meórum, uberémque grátiam ipsi deínceps fidélius serviéndi, ac dénique grátiam finálem, ut eum tecum laudáre possim per ómnia sǽcula sæculórum. Amen.
+
+---
+
+## Oratio ad S. Joseph
+
+{RUBRIC: Indulgéntia trium annórum; plenária suetis conditiónibus, oratióne quotídie per íntegrum mensem pia mente iteráta. Pius Pp. XI, 18 Maji 1936.}
+
+VIrginum custos et pater, sancte Joseph, cujus fidéli custódiæ ipsa Innocéntia Christus Jesus et Virgo vírginum María commíssa fuit : te per hoc utrúmque caríssimum pignus Jesum et Maríam óbsecro et obtéstor, ut me, ab omni immundítia præservátum, mente incontamináta, puro corde et casto córpore Jesu et Maríæ semper fácias castíssime famulári. Amen.
+
+---
+
+## Oratio ad Sanctum in cujus honorem Missa celebrata est
+
+{RUBRIC: Indulgéntia trium annórum. Pius Pp. XI, 3 Octóbris 1936.}
+
+SAncte N., in cujus honórem incruéntum Córporis et Sánguinis Christi sacrifícium óbtuli, fac tua poténti apud Deum intercessióne, ut, usu hujus mystérii, passiónis et mortis ejúsdem Christi Salvatóris nostri mérita cónsequar, ac cum illíus frequentatióne contínuo crescat meæ salútis efféctus. Amen.
+
+---

@@ -29755,3 +29755,111 @@ Quocúmque tendis, Vírgines
 Sequúntur, atque láudibus
 Post te canéntes cúrsitant,
 Hymnósque dulces pérsonant;
+
+Te deprecámur súpplices,
+Nostris ut addas sénsibus
+Nescíre prorsus ómnia
+Corruptiónis vúlnera.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sæcula. Amen.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Dum auróra \* finem daret, Cæcília exclamávit dicens : Eja, mílites Christi, abjícite ópera tenebrárum et induímini arma lucis.
+
+**Oratio**
+
+DEus, qui nos ánnua beátæ Cæcíliæ Vírginis et Mártyris tuæ solemnitáte lætíficas : da, ut quam venerámur offício, étiam piæ conversatiónis sequámur exémplo. Per Dóminum.
+
+{RUBRIC: Ad Horas Antiphona et Psalmi de Feria; ad Primam Lectio brevis Dómine, Deus, ut infra ad Nonam.}
+
+{RUBRIC: Sicúbi autem hoc Festum sub ritu duplíci I vel II clássis recolátur, Antíphonæ de Laudibus, ut supra 840, cum Psalmis de Dominica ut in Festis.}
+
+#### AD TERTIAM
+
+{RUBRIC: Capit. Fratres, ut supra. 840}
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. Glória Patri. Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+#### AD SEXTAM
+
+{RUBRIC: Capitulum 2 Cor. 11, 2}
+
+ÆMulor enim vos Dei æmulatióne. Despóndi enim vos uni viro vírginem castam exhibére Christo.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvábit. ℣. Deus in médio ejus, non commovébitur. Deus vultu suo. Glória Patri. Adjuvábit. ℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+#### AD NONAM
+*C*
+
+{RUBRIC: Capit. Eccli. 51, 13-14}
+
+DOmine, Deus meus, exaltásti super terram habitatiónem meam, et pro morte defluénte deprecáta sum. Invocávi Dóminum, Patrem Dómini mei, ut non derelínquat me in die tribulatiónis meæ, et in témpore superbórum sine adjutório.
+
+℟. br. Elégit eam Deus, \* Et prælégit eam. Elégit. ℣. In tabernáculo suo habitáre facit eam. Et prælégit eam. Glória Patri. Elégit. ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+#### IN II VESPERIS
+
+{RUBRIC: Antíphonæ de Laudibus. 840; Psalmi ut in Communi Festórum B. Maríæ Virg. [174]}
+
+{RUBRIC: A Capítulo fit de sequénti, Commemoratio præcedéntis et S. Felicitátis Mártyris.}
+
+{RUBRIC: Si II Vésperæ dicéndæ sint íntegræ, Capítulum et Hymnus de Laudibus 840; Versus et Antíphona ad Magníficat, ut infra notátur.}
+
+---
+
+# Die 23 Novembris
+
+## S. Clementis I
+
+{RUBRIC: Papæ et Mart. [29] Duplex}
+
+#### IN I VESPERIS
+
+{RUBRIC: Si I Vésperæ dicéndæ sint íntegræ, Añæ erunt de Laudibus 846; Psalmi ut in I Vésperis de Communi Apostolórum. [3]}
+
+{RUBRIC: Capitulum Jac. 1, 12}
+
+BEátus vir, qui suffert tentatiónem : quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+**Hymnus**
+
+DEus, tuórum mílitum
+Sors et coróna, prǽmium,
+Laudes canéntes Mártyris
+Absólve nexu críminis.
+
+Hic nempe mundi gáudia
+Et blanda fraudum pábula
+Imbúta felle députans,
+Pervénit ad cæléstia.
+
+Pœnas cucúrrit fórtiter
+Et sústulit viríliter,
+Fundénsque pro te sánguinem,
+Ætérna dona póssidet.
+
+Ob hoc precátu súpplici
+Te póscimus, piíssime :
+In hoc triúmpho Mártyris
+Dimítte noxam sérvulis.
+
+Laus et perénnis glória
+Patri sit, atque Fílio,
+Sancto simul Paráclito,
+In sempitérna sæcula. Amen.
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Orémus omnes \* ad Dóminum Jesum Christum, ut Confessóribus suis fontis venam apériat.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Cleméntem Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Virgo gloriósa semper Evangélium Christi gerébat in péctore suo, et non diébus neque nóctibus a collóquiis divínis et oratióne cessábat.

@@ -36519,3 +36519,33 @@ Numquid cognoscéntur in ténebris mirabília tua, \* et justítia tua in terra 
 Et ego ad te, Dómine, clamávi : \* et mane orátio mea prævéniet te.
 
 Ut quid, Dómine, repéllis oratiónem meam : \* avértis fáciem tuam a me?
+
+Pauper sum ego, et in labóribus a juventúte mea : \* exaltátus autem, humiliátus sum et conturbátus.
+
+In me transiérunt iræ tuæ : \* et terróres tui conturbavérunt me.
+
+Circumdedérunt me sicut aqua tota die : \* circumdedérunt me simul.
+
+Elongásti a me amícum et próximum : \* et notos meos a miséria.
+
+**Ant.** Eréxit Jacob lápidem in títulum, fundens óleum désuper.
+
+℣. Domus mea. ℟. Domus oratiónis vocábitur.
+
+**Absolutio.** Ipsíus pietas.
+**Benedictio.** Deus Pater.
+
+**Sermo sancti Augustíni Epíscopi**
+*Sermo 252 de Tempore*
+
+#### Lectio iv
+
+QUotiescúmque, fratres caríssimi, altáris vel templi festivitátem cólimus, si fidéliter ac diligénter atténdimus et sancte ac juste vívimus, quidquid in templis manufáctis ágitur, totum in nobis spiritáli ædificatióne complétur. Non enim mentítus est ille, qui dixit : Templum enim Dei sanctum est, quod estis vos; et íterum : Nescítis, quia córpora vestra templum sunt Spíritus Sancti, qui in vobis est? Et ídeo, fratres caríssimi, quia, nullis præcedéntibus méritis, per grátiam Dei meruímus fíeri templum Dei, quantum póssumus, cum ipsíus adjutório laborémus, ne Dóminus noster in templo suo, hoc est, in nobis ipsis, invéniat quod óculos suæ majestátis offéndat.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+SEd habitáculum cordis nostri evacuétur vítiis, et virtútibus repleátur; claudátur diábolo, et aperiátur Christo. Et ita laborémus, ut nobis bonórum óperum clávibus jánuam regni cæléstis aperíre possímus. Sicut enim malis opéribus, quasi quibúsdam seris ac véctibus, vitæ nobis jánua cláuditur : ita, absque dúbio, bonis opéribus aperítur. Et ídeo, fratres caríssimi, unusquísque consíderet consciéntiam suam, et, quando se áliquo crímine vul-

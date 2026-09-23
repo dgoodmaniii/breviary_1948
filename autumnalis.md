@@ -32733,4 +32733,49 @@ AD se autem nobis veniéntibus Dóminus præcépit, ut renuntiémus nostris : qu
 #### Lectio vii
 *Cap. 10, 34-42*
 
-IN illo témpore : Dixit Jesus discípulis suis : Nolíte arbitrári, quia pacem vénerim míttere in
+IN illo témpore : Dixit Jesus discípulis suis : Nolíte arbitrári, quia pacem vénerim míttere in terram : non veni pacem míttere, sed gládium. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+{RUBRIC: Comment. in Matth., can. 10}
+
+QUæ ista divísio est? inter prima enim legis præcépta accépimus : Honóra patrem tuum et matrem tuam; et ipse Dóminus ait : Pacem meam do vobis, pacem meam relínquo vobis. Quid sibi vult missus pótius gládius in terram, et separátus a patre fílius, et fília a matre, et nurus advérsus socrum, et hóminis doméstici ejus inimíci? Igitur exínde pública auctóritas impietáti proferétur. Ubíque ódia, ubíque bella, et gládius Dómini inter patrem et fílium, et inter fíliam matrémque desǽviens.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+GLádius telórum ómnium telum acutíssimum est, in quo sit jus potestátis, et judícii sevéritas, et animadvérsio peccatórum. Et hujus quidem teli nómine novi Evangélii prædicatiónem appellátam frequens in Prophétis auctóritas est. Dei ígitur verbum nuncupátum meminérimus in gládio; qui gládius missus in terram est, idest, prædicátio ejus hóminum córdibus infúsa. Fitque gravis in domo una disséncio, et doméstica novo hómini erunt inimíca; quia ille per verbum Dei divísus ab illis, manére et intérior et extérior, id est, et corpus et ánima, in spíritus novitáte gaudébit.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit : \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. **Glória Patri.** Qui.
+
+{RUBRIC: Vel}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis : \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. **Glória Patri.** Posuísti.
+
+#### Lectio ix
+
+PErgit deínde eódem præceptórum et intelligéntiæ decúrsu. Nam, posteáquam relinquénda ómnia, quæ in sǽculo caríssima sunt, imperáverat, adjécit : Qui non áccipit crucem suam, et séquitur me, non est me dignus; quia Qui Christi sunt, crucifixérunt corpus cum vítiis et concupiscéntia. Et indígnus est Christo, qui non crucem suam, in qua compátimur, commórimur, consepelímur, conresúrgimus, accípiens, Dóminum sit secútus, in hoc sacraménto fídei spíritus novitáte victúrus.
+
+**Te Deum laudámus.**
+
+---
+
+# IV Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 10, 26-32*
+
+IN illo témpore : Dixit Jesus discípulis suis : Nihil est opértum, quod non revelábitur; et occúltum, quod non sciétur. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+{RUBRIC: Comment. in Matth., can. 10, post medium}
+
+DOminus diem judícii osténdit, quæ abstrúsam voluntátis nostræ consciéntiam prodet; et ea quæ nunc occúlta existimántur, luce cognitiónis públicæ déteget. Igitur non minas, non consília, non potestátes insectántium monet esse metuéndas; quia dies judícii nulla hæc fuísse, atque inánia revelábit. Et quod dico vobis in ténebris, dícite in lúmine; et quod in aure audístis, prædicáte super tecta. Non légimus Dóminum sólitum fuísse nóctibus sermocinári, et doctrínam in ténebris tradidísse : sed quia omnis sermo ejus carnálibus ténebræ sunt, et verbum ejus infidélibus nox est.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+ITaque id quod a se díctum est, cum libertáte fídei et confessiónis vult esse loquéndum. Idcírco, quæ in ténebris dicta sunt, prædicári jussit in lúmine; ut, quæ secréto áurium commíssa sunt, super tecta, id est, excélso loquéntium præcónio audiántur.

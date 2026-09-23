@@ -32685,3 +32685,52 @@ PRíncipes persecúti sunt me gratis : et a verbis tuis trepidávit cor meum. Be
 VEre frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, cum fídei sit magíster. Verum, qui gratis impugnátur, fortis debet esse et constans. Quómodo ergo subtéxuit : Et a verbis tuis trepidávit cor meum? Trepidáre infirmitátis est, timóris atque formídinis. Sed est étiam infírmitas ad salútem, est étiam timor sanctórum. Timéte Dóminum, omnes sancti ejus : et, Beátus vir, qui timet Dóminum. Qua ratióne beátus? Quia in mandátis ejus cupit nimis.
 
 ℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis : posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+#### Lectio vi
+
+POne ergo Mártyrem inter perícula constitútum, cum inde immánitas bestiárum ad incutiéndum terrórem ínfremat, aliúnde stridor candéntium lamínarum et flamma fornácis ardéntis exæstuet, ex parte ália persónent tractus grávium catenárum, hinc cárnifex cruéntus assístat : Pone, inquam, circumspectántem ómnia plena supplíciis, deínde cogitántem mandáta divína, illum ignem perpétuum, illud sine fine incéndium perfidórum, illam pœnæ recrudescéntis ærúmnam; trepidáre corde, ne, dum præséntibus cedat, perpétuis se dedat exítiis; perturbári ánimo, dum futúri judícii rhomphǽam illam terríbilem quadam conspéctus spécie contuétur. Nonne ad hanc trepidatiónem fidúciæ viri constántis, æquális in eúmdem concúrrit efféctum confidéntia cupiéntis ætérna, et divína trepidántis?
+
+℟. Stola jucunditátis índuit eum Dóminus : \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illum. — Et. **Glória Patri.** Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 16, 24-27*
+
+IN illo témpore : Dixit Jesus discípulis suis : Si quis vult post me veníre, ábneget semetípsum, et tollat crucem suam, et sequátur me. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+{RUBRIC: Homilía 32 in Evang.}
+
+NOva Dóminus ac Redémptor noster nóvus homo venit in mundum, nova præcépta dedit mundo. Vitæ étenim nostræ véteri in vítiis enutrítæ contrariétátem oppósuit novitátis suæ. Quid enim vetus, quid carnális homo nóverat, nisi sua retinére, aliéna rápere, si posset; concupíscere, si non posset? Sed cæléstis médicus síngulis quibúsque vítiis obviántia ádhibet medicaménta. Nam sicut arte medicínæ cálida frígidis, frígida cálidis curántur : ita Dóminus noster contrária oppósuit medicaménta peccátis, ut lúbricis continéntiam, tenácibus largitátem, iracúndis mansuetúdinem, elátis præcíperet humilitátem.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+#### Lectio viii
+
+CErte, cum se sequéntibus nova mandáta propóneret, dixit : Nisi quis renuntiáverit ómnibus quæ póssidet, non potest meus esse discípulus. Ac si apérte dicat : Qui per vitam véterem aliéna concupíscitis, per novæ conversatiónis stúdium et vestra largímini. Quid vero in hac lectióne dicat, audiámus : Qui vult post me veníre, ábneget semetípsum. Ibi dícitur, ut abnegémus nostra : hic dícitur, ut abnegémus nos. Et fortásse laboriósum non est hómini relínquere sua; sed valde laboriósum est relínquere semetípsum. Minus quippe est abnegáre quod habet; valde autem multum est abnegáre quod est.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit : \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. **Glória Patri.** Qui.
+
+{RUBRIC: Vel}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis : \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. **Glória Patri.** Posuísti.
+
+#### Lectio ix
+
+AD se autem nobis veniéntibus Dóminus præcépit, ut renuntiémus nostris : quia, quicúmque ad fídei agónem venímus, luctámen contra malígnos spíritus súmimus. Nihil autem malígni spíritus in hoc mundo próprium póssident : nudi ergo cum nudis luctári debémus. Nam si vestítus quisque cum nudo luctátur, cítius ad terram dejícitur, quia habet unde teneátur. Quid enim sunt terréna ómnia nisi quædam córporis induménta? Qui ergo contra diábolum ad certámen próperat, vestiménta abjíciat, ne succúmbat.
+
+**Te Deum laudámus.**
+
+---
+
+# III Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 10, 34-42*
+
+IN illo témpore : Dixit Jesus discípulis suis : Nolíte arbitrári, quia pacem vénerim míttere in

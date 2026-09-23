@@ -41053,3 +41053,23 @@ Orémus.
 DEus, qui tribus púeris mitigásti flammas ígnium : concéde propítius; ut nos fámulos tuos non exúrat flamma vitiórum.
 
 ACtiónes nostras, quǽsumus, Dómine, aspirándo prǽveni et adjuvándo proséquere : ut cuncta nostra orátio et operátio a te semper incípiat, et per te cœpta finiátur.
+
+DA nobis, quǽsumus, Dómine, vitiórum nostrórum flammas exstínguere : qui beáto Lauréntio tribuísti tormentórum suórum incéndia superáre. Per Christum, Dóminum nostrum. ℟. Amen.
+
+---
+
+# Orationes pro opportunitate Sacerdotis dicendae
+
+## Oratio S. Thomae Aquinatis
+
+{RUBRIC: Indulgéntia trium annórum; plenária, oratióne quotídie in íntegrum mensem pie reiteráta et addítis sacramentáli confessióne, alícujus ecclésiæ vel públici oratórii visitatióne et précibus ad Summi Pontíficis mentem. Pius Pp. XI, 22 Novémbris 1934.}
+
+GRátias tibi ago, Dómine sancte, Pater omnípotens, ætérne Deus, qui me peccatórem, indígnum fámulum tuum, nullis meis méritis, sed sola dignatióne misericórdiæ tuæ satiáre dignátus es pretióso Córpore et Sánguine Fílii tui, Dómini nostri Jesu Christi. Et precor, ut hæc sancta commúnio non sit mihi reátus ad pœnam, sed intercéssio salutáris ad véniam. Sit mihi armatúra fídei et scutum bonæ voluntátis. Sit vitiórum meórum evacuátio, concupiscéntiæ et libídinis extermínátio, caritátis et patiéntiæ, humilitátis et obediéntiæ, omniúmque virtútum augmentátio; contra insídias inimicórum ómnium, tam visibílium quam invisibílium, firma defénsio; mótuum meórum, tam carnálium quam spirituálium, perfécta quietátio; in te uno ac vero Deo firma adhǽsio; atque finis mei felix consummátio. Et precor te, ut ad illud ineffábile convívium me peccatórem perdúcere dignéris, ubi tu cum Fílio tuo et Spíritu Sancto Sanctis tuis es lux vera, satíetas plena, gáudium sempitérnum, jucúnditas consummáta et felícitas perfécta. Per eúmdem Christum Dóminum nostrum. Amen.
+
+---
+
+## Oratio S. Bonaventuræ
+
+{RUBRIC: Indulgéntia trium annórum. Pius Pp. XI, 3 Octóbris 1936.}
+
+TRansfíge, dulcíssime Dómine Jesu, medúllas et víscera ánimæ meæ suavíssimo ac salubérrimo amóris tui vúlnere, vera serenáque et apostólica

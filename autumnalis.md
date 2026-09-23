@@ -23152,3 +23152,92 @@ IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcé
 QUasi cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion : quasi palma exaltáta sum in Cades, et quasi plantátio rosæ in Jéricho : quasi olíva speciósa in campis, et quasi plátanus exaltáta sum juxta aquam in platéis. Sicut cinnamómum et bálsamum aromatízans odórem dedi : quasi myrrha elécta, dedi suavitátem odóris; et quasi storax et gálbanus et úngula et gutta et quasi Líbanus non incísus vaporávi habitatiónem meam, et quasi bálsamum non mistum odor meus. Ego quasi terebínthus exténdi ramos meos, et rami mei honóris et grátiæ.
 
 ℟. Vidi speciósam ascendéntem désuper rivos aquárum; cujus inæstimábilis odor erat nimis; \* Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. ℣. Astitit Regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et.
+
+##### Lectio iii
+*Ibid. 24-31*
+
+EGO mater pulchræ dilectiónis, et timóris, et agnitiónis, et sanctæ spei. In me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Transíte ad me, omnes qui concupíscitis me, et a generatiónibus meis implémini; spíritus enim meus super mel dulcis, et heréditas mea super mel et favum. Memória mea in generatiónes sæculórum. Qui edunt me adhuc esúrient, et qui bibunt me adhuc sítient. Qui audit me non confundétur, et qui operántur in me non peccábunt. Qui elúcidant me vitam ætérnam habébunt.
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? Vidérunt eam fíliæ Sion, et beátam dixérunt, \* Et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Et regínæ. Glória Patri. Et regínæ.
+
+### In II Nocturno
+
+**Ant.** Cum indúcerent \* Jesum paréntes ejus, ut sísterent eum Dómino, Símeon accépit eum in ulnas suas, et benedíxit Deum.
+
+**Psalmus 44**
+
+ERuctávit cor meum verbum bonum : * dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ, * velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis : * proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, * potentíssime,
+
+Spécie tua et pulchritúdine tua : * inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam : * et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, * in corda inimicórum Regis.
+
+Sedes tua, Deus, in sǽculum sǽculi : * virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem : * proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis : * ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto : * circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam : * et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum : * quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus * vultum tuum deprecabúntur : omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, * in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam : * próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne : * adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii : * constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui : * in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum : * et in sǽculum sǽculi.
+
+**Ant.** Cum indúcerent Jesum paréntes ejus, ut sísterent eum Dómino, Símeon accépit eum in ulnas suas, et benedíxit Deum.
+
+**Ant.** Requiréntes Jesum \* paréntes ejus, invenérunt illum post tríduum in médio doctórum.
+
+**Psalmus 45**
+
+DEus noster refúgium, et virtus : * adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra : * et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum : * conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei : * sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur : * adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna : * dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum : * suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram : * áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma : * et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus : * exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum : * suscéptor noster Deus Jacob.
+
+**Ant.** Requiréntes Jesum paréntes ejus, invenérunt illum post tríduum in médio doctórum.
+
+**Ant.** Cœpit contristári, \* et factus est sudor ejus in horto sicut guttæ sánguinis.
+
+**Psalmus 86**
+
+FUndaménta ejus in móntibus sanctis : * díligit Dóminus portas Sion super ómnia tabernácula Jacob.

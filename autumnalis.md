@@ -30734,3 +30734,66 @@ Lux orta est justo, \* et rectis corde lætítia.
 Lætámini, justi, in Dómino : \* et confitémini memóriæ sanctificatiónis ejus.
 
 **Ant.** Andréas vero rogábat pópulum, ut non impedíret passiónem ipsíus.
+
+**Ant.** Accípe me ab homínibus \* et redde me magístro meo : ut per te me recípiat, qui per te me redémit, allelúja.
+
+**Psalmus 98**
+
+DOminus regnávit, irascántur pópuli : \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus : \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno : quóniam terríbile, et sanctum est : \* et honor regis judícium díligit.
+
+Tu parásti directiónes : \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum Deum nostrum, et adoráte scabéllum pedum ejus : \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus : \* et Sámuel inter eos, qui ínvocant nomen ejus :
+
+Invocábant Dóminum, et ipse exaudiébat eos : \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos : \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum Deum nostrum, et adoráte in monte sancto ejus : \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Accípe me ab homínibus et redde me magístro meo : ut per te me recípiat, qui per te me redémit, allelúja.
+
+℣. Nimis honoráti sunt amíci tui, Deus.
+℟. Nimis confortátus est principátus eórum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 4, 18-22*
+
+IN illo témpore : Ambulans Jesus juxta mare Galilǽæ, vidit duos fratres, Simónem, qui vocátur Petrus, et Andréam fratrem ejus, mitténtes rete in mare. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+{RUBRIC: Homilía 5 in Evangelia}
+
+AUdístis, fratres caríssimi, quia ad uníus jussiónis vocem Petrus et Andréas relíctis rétibus secúti sunt Redemptórem. Nulla vero hunc fácere adhuc miracula víderant, nihil ab eo de præmio ætérnæ retributiónis audíerant : et tamen ad unum Dómini præcéptum, hoc quod possidére videbántur, oblíti sunt. Quanta nos ejus miracula vidémus, quot flagéllis afflígimur, quantis minárum asperitátibus deterrémur, et tamen vocántem sequi contémnimus?
+
+℟. Orávit sanctus Andréas, dum respíceret in cælum, et voce magna clamávit et dixit : Tu es Deus meus, quem vidi : ne me patiáris ab ímpio júdice depóni : \* Quia virtútem sanctæ crucis agnóvi. ℣. Tu es magíster meus Christus, quem diléxi, quem cognóvi, quem conféssus sum : tantúmmodo in ista voce exáudi me. — Quia.
+
+##### Lectio viii
+
+IN cælo jam sedet, qui de conversióne nos admónet; jam jugo fídei colla géntium súbdidit, jam mundi glóriam stravit, jam ruínis ejus crebrescéntibus, districti sui judícii diem propinquántem denúntiat : et tamen supérba mens nostra adhuc non vult hoc sponte desérere, quod quotídie perdit invíta. Quid ergo, fratres caríssimi, quid in ejus judício dictúri sumus, qui ab amóre præséntis sæculi nec præcéptis fléctimur, nec verbéribus emendámur?
+
+℟. Videns crucem Andréas exclamávit, dicens : O crux admirábilis, o crux desiderábilis, o crux quæ per totum mundum rútilas : \* Súscipe discípulum Christi, ac per te me recípiat, qui per te móriens me redémit. ℣. O bona crux, quæ decórem et pulchritúdinem de membris Dómini suscepísti. — Súscipe. **Glória Patri.** Súscipe.
+
+##### Lectio ix
+
+SEd fortásse áliquis tácitis sibi cogitatiónibus dicat : Ad vocem Domínicam utérque iste piscátor quid, aut quantum dimísit, qui pene nihil hábuit? Sed hac in re, fratres caríssimi, afféctum debémus pótius pensáre quam censum. Multum relíquit, qui sibi nihil retínuit : multum relíquit, qui quantúmlibet parum, totum deséruit. Certe nos et hábita cum amóre possidémus, et ea, quæ mínime habémus, ex desidério quǽrimus. Multum ergo Petrus et Andréas dimísit, quando utérque étiam desidéria habéndi dereliquit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Salve, crux pretiósa, \* súscipe discípulum ejus, qui pepéndit in te magíster meus Christus.
+
+**Ant. 2** Beátus Andréas \* orábat, dicens : Dómine, Rex ætérnæ glóriæ, súscipe me pendéntem in patíbulo.

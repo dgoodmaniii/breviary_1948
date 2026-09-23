@@ -30118,3 +30118,61 @@ CHrysógonus, Diocletiáno imperatóre, Romæ inclúsus in cárcere, ibi biénni
 **Oratio**
 
 DEus, qui sanctum Joánnem, Confessórem tuum atque Doctórem, perféctæ sui abnegatiónis et crucis amatórem exímium effecísti : concéde; ut, ejus imitatióni júgiter inhæréntes, glóriam assequámur ætérnam. Per Dóminum.
+
+{RUBRIC: Et fit Commem. S. Chrysogoni Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+**Oratio**
+
+ADésto, Dómine, supplicatiónibus nostris : ut, qui ex iniquitáte nostra reos nos esse cognóscimus, beáti Chrysógoni Mártyris tui intercessióne liberémur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 25 Novembris
+
+## S. Catharinae
+
+{RUBRIC: Virg. et Mart. [111] Duplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+**Oratio**
+
+DEus, qui dedísti legem Móysi in summitáte montis Sínai, et in eódem loco per sanctos Angelos tuos corpus beátæ Catharínæ Vírginis et Mártyris tuæ mirabíliter collocásti : præsta, quæsumus; ut, ejus méritis et intercessióne, ad montem, qui Christus est, pervenire valeámus : Qui tecum vivit.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Joánnes, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui sanctum, ut supra. 852}
+
+{RUBRIC: In I Nocturno, si suméndæ sint de Communi, Lectiónes Confitébor, 2 loco. [126]}
+
+### In II Nocturno
+
+##### Lectio iv
+
+CAtharína, nóbilis virgo Alexandrína, a prima ætáte stúdia liberálium ártium cum fídei ardóre conjúngens, brevi ad eam sanctitátis et doctrínæ perfectiónem pervénit, ut, decem et octo annos nata, eruditíssimum quemque superáret. Quæ cum Maximíni jussu multos, propter christiánæ religiónis professiónem, várie torméntis cruciátos, ad supplícium rapi vidéret, non dubitánter ipsum ádiit Maximínum, eíque nefáriam immanitátem objíciens, sapientíssimis ratiónibus Christi fidem ad salútem necessáriam esse affirmávit.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+##### Lectio v
+
+CUjus prudéntiam Maximínus admirátus, retinéri eam jubet, accersítis úndique doctíssimis homínibus, magnísque propósitis prǽmiis, qui convíctam Catharínam a Christi fide ad idolórum cultum perduxíssent. Quod contra áccidit. Nam plures philósophi, qui ad eam coarguéndam convénerant, vi ac subtilitáte ejus disputatiónis tanto Jesu Christi amóre sunt incénsi, ut pro illo mori non dubitáverint. Quam ob rem Maximínus blandítiis ac promíssis Catharínam de senténtia dedúcere aggréditur; verum, id frustra fíeri intélligens, verbéribus afféctam plumbatísque contúsam, dies úndecim sine cibo ac potu inclúsam tenet in cárcere.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+QUO témpore Maximíni uxor et Porphýrius belli dux, viséndæ Vírginis causa cárcerem ingréssi, et ejúsdem prædicatióne in Jesum Christum credéntes, póstea martýrio coronáti sunt. Interim Cathárina edúcitur e custódia; et rota expedítur, crebris et acútis præfíxa gládiis, ut Vírginis corpus crudelíssime dilacerarétur. Quæ máchina, brevi, Catharínæ oratióne, confrácta est; eóque miráculo multi Christi fidem suscepérunt. Ipse Maximínus, in impietáte et crudelitáte obstinátior, Catharínam secúri pércuti ímperat. Quæ, fórtiter dato cápite, ad duplicátum virginitátis et martýrii prǽmium evolávit séptimo Kaléndas Decémbris; cujus corpus ab Angelis in Sina, Arábiæ monte, mirabíliter collocátum est.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.

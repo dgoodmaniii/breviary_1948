@@ -35235,4 +35235,26 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 #### Lectio i
 *Cap. 7, 25-40*
 
-DE virgínibus præcéptum Dómini non hábeo : consílium autem do, tamquam misericórdiam consecútus a Dómino, ut sim fidélis. Exístimo ergo hoc bonum esse propter instántem necessitátem, quóniam bonum est hómini sic esse. Alligátus es uxóri? noli quærere solutiónem.
+DE virgínibus præcéptum Dómini non hábeo : consílium autem do, tamquam misericórdiam consecútus a Dómino, ut sim fidélis. Exístimo ergo hoc bonum esse propter instántem necessitátem, quóniam bonum est hómini sic esse. Alligátus es uxóri? noli quærere solutiónem. Solútus es ab uxóre? noli quærere uxórem. Si autem accéperis uxórem, non peccásti. Et si núpserit virgo, non peccávit. Tribulatiónem tamen carnis habébunt hujúsmodi. Ego autem vobis parco. Hoc ítaque dico, fratres : Tempus breve est : réliquum est, ut et qui habent uxóres, tamquam non habéntes sint; et qui flent, tamquam non fléntes; et qui gaudent, tamquam non gaudéntes; et qui emunt, tamquam non possidéntes; et qui utúntur hoc mundo, tamquam non utántur; præterit enim figúra hujus mundi.
+
+{RUBRIC: Pro Virgine Martyre}
+
+℟. Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum; pro cujus amóre sánguinem tuum fudísti, \* Et cum Angelis in paradísum introísti. ℣. Veni, elécta mea, et ponam in te thronum meum; quia concupívit Rex spéciem tuam. — Et.
+
+{RUBRIC: Pro Virgine non Martyre}
+
+℟. Veni, elécta mea, et ponam in te thronum meum : \* Quia concupívit Rex spéciem tuam. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Quia.
+
+**Bened.** Unigénitus Dei.
+
+#### Lectio ii
+
+VOlo autem vos sine sollicitúdine esse. Qui sine uxóre est, sollícitus est quæ Dómini sunt, quómodo pláceat Deo. Qui autem cum uxóre est, sollícitus est quæ sunt mundi, quómodo pláceat uxóri, et divísus est. Et múlier innúpta, et virgo cógitat quæ Dómini sunt, ut sit sancta córpore et spíritu. Quæ autem nupta est, cógitat quæ sunt mundi, quómodo pláceat viro. Porro hoc ad utilitátem vestram dico, non ut láqueum vobis injíciam, sed ad id, quod honéstum est, et quod facultátem præbeat sine impediménto Dóminum obsecrándi.
+
+℟. Diffúsa est grátia in lábiis tuis, \* Proptérea benedíxit te Deus in ætérnum. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Proptérea.
+
+**Bened.** Spíritus Sancti.
+
+#### Lectio iii
+
+SI quis autem túrpem se vidéri exístimat super vírgine sua, quod sit superadúlta, et ita opórtet fíeri; quod vult fáciat : non peccat, si nubat.

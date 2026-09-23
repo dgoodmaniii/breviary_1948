@@ -40352,4 +40352,36 @@ DEus miséricors, Deus clemens, Deus, qui secúndum multitúdinem miseratiónum 
 
 **Oratio**
 
-COmméndo te omnipoténti Deo, caríssime frater (caríssima soror), et ei, cujus es creatúra, commítto; ut, cum humanitátis débitum morte interveniénte persólveris, ad auctórem tuum, qui te de limo terræ formáverat, revertáris. Egrediénti ítaque ánimæ tuæ de córpore spléndidus Angelórum cœtus occúrrat : judex Apostolórum tibi senátus advéniat : candidatórum tibi Mártyrum triumphátor exércitus óbviet : liliáta rutilántium te Confessórum turma circúmdet : jubilántium te Vírginum chorus excípiat : et beátæ quiétis in sinu Patriarchárum te compléxus astríngat : sanctus Joseph, moriéntium Patrónus dulcíssimus, in magnam spem te érigat : sancta Dei Génitrix Virgo María suos benígna óculos ad te convértat : mitis atque festívus Christi Jesu tibi aspéctus appáreat, qui te inter assisténtes sibi júgiter interésse decérnat. Ignóres omne quod horret in ténebris, quod stridet in flammis, quod crúciat in torméntis. Cedat tibi tetérrimus sátanas cum satellítibus suis : in advéntu tuo, te comitántibus Angelis, contremíscat, atque in ætérnæ noctis chaos immáne diffúgiat. Exsúrgat Deus, et dissipéntur inimíci ejus, et fúgiant qui odérunt eum, a fácie ejus. Sicut déficit fumus, defíciant : sicut fluit cera a fácie ignis, sic péreant peccatóres a fácie Dei. Et justi epuléntur, et exsúltent in conspéctu Dei. Confundántur ígitur et erubéscant omnes tartáreæ legiónes, et minístri sátanæ iter tuum impedíre non áudeant. Líberet te a cruciátu Christus, qui pro te crucifíxus est. Líberet te ab ætérna morte Christus, qui pro te mori dignátus est. Constítuat te Christus, Fílius Dei vivi, intra paradísi sui semper amœna viréntia, et inter oves suas te verus ille Pastor agnóscat. Ille ab ómnibus peccátis tuis te absólvat, atque ad déxteram suam in electórum suórum te sorte constítuat. Redemptórem tuum fácie ad fáciem vídeas, et præsens
+COmméndo te omnipoténti Deo, caríssime frater (caríssima soror), et ei, cujus es creatúra, commítto; ut, cum humanitátis débitum morte interveniénte persólveris, ad auctórem tuum, qui te de limo terræ formáverat, revertáris. Egrediénti ítaque ánimæ tuæ de córpore spléndidus Angelórum cœtus occúrrat : judex Apostolórum tibi senátus advéniat : candidatórum tibi Mártyrum triumphátor exércitus óbviet : liliáta rutilántium te Confessórum turma circúmdet : jubilántium te Vírginum chorus excípiat : et beátæ quiétis in sinu Patriarchárum te compléxus astríngat : sanctus Joseph, moriéntium Patrónus dulcíssimus, in magnam spem te érigat : sancta Dei Génitrix Virgo María suos benígna óculos ad te convértat : mitis atque festívus Christi Jesu tibi aspéctus appáreat, qui te inter assisténtes sibi júgiter interésse decérnat. Ignóres omne quod horret in ténebris, quod stridet in flammis, quod crúciat in torméntis. Cedat tibi tetérrimus sátanas cum satellítibus suis : in advéntu tuo, te comitántibus Angelis, contremíscat, atque in ætérnæ noctis chaos immáne diffúgiat. Exsúrgat Deus, et dissipéntur inimíci ejus, et fúgiant qui odérunt eum, a fácie ejus. Sicut déficit fumus, defíciant : sicut fluit cera a fácie ignis, sic péreant peccatóres a fácie Dei. Et justi epuléntur, et exsúltent in conspéctu Dei. Confundántur ígitur et erubéscant omnes tartáreæ legiónes, et minístri sátanæ iter tuum impedíre non áudeant. Líberet te a cruciátu Christus, qui pro te crucifíxus est. Líberet te ab ætérna morte Christus, qui pro te mori dignátus est. Constítuat te Christus, Fílius Dei vivi, intra paradísi sui semper amœna viréntia, et inter oves suas te verus ille Pastor agnóscat. Ille ab ómnibus peccátis tuis te absólvat, atque ad déxteram suam in electórum suórum te sorte constítuat. Redemptórem tuum fácie ad fáciem vídeas, et præsens semper assístens, manifestíssimam beátis óculis aspícias veritátem. Constitútus (-a) ígitur inter ágmina Beatórum, contemplatiónis divínæ dulcédine potiáris in sǽcula sæculórum. ℟. Amen.
+
+**Oratio**
+
+SUscipe, Dómine, servum tuum (ancíllam tuam) in locum sperándæ sibi salvatiónis a misericórdia tua. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ) ex ómnibus perículis inférni, et de láqueis pœnárum, et ex ómnibus tribulatiónibus. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Henoch et Elíam de commúni morte mundi. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Noë de dilúvio. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Abraham de Ur Chaldæórum. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Job de passiónibus suis. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Isaac de hóstia, et de manu patris sui Abrahæ. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Lot de Sódomis, et de flamma ignis. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Móysen de manu Pharaónis regis Ægyptiórum. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Daniélem de lacu leónum. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti tres púeros de camíno ignis ardéntis, et de manu regis iníqui. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Susánnam de falso crímine. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti David de manu regis Saul, et de manu Golíæ. ℟. Amen.
+
+Líbera, Dómine, ánimam servi tui (ancíllæ tuæ), sicut liberásti Petrum et Paulum de carcéribus. ℟. Amen.
+
+Et sicut beatíssimam Theclam Vírginem et Mártyrem tuam de tribus atrocíssimis torméntis liberásti, sic liberáre dignéris ánimam hujus servi tui (ancíllæ tuæ), et tecum fácias in bonis congaudére cæléstibus. ℟. Amen.

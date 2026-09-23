@@ -1915,4 +1915,36 @@ Should the feast of the titular fall within Holy Week or within the octave of Ea
 
 [^133]: The purpose of the book is explained by its title, "Octavarium Romanum, Lectiones II et III Nocturni complectens recitandas infra octavas Festorum, praesertim patronorum locorum et titularium Ecclesiarum quae cum octavis celebrari debent, juxta rubricas Breviarii Romani, a S. R. C. ad usum totius orbis Ecclesiarum approbatum."
 
+memoration of occurring doubles major or minor and semi-doubles is omitted, but in private Masses it is not omitted. The *oratio imperata* is also omitted in all Masses of this day.
+
+2. The *Gloria* and *Credo* are said. If the feast has a proper Preface, this also will be used. If the feast has no Preface proper, and is celebrated within the octave of some other feast having a proper Preface, the latter is said. In other cases the common Preface is used unless there be one proper to the season (e. g., Lent, Passion Time, Easter, etc.).[^134] The Preface proper to the season is said even on Sundays falling within the season. In a word, the general rule on Prefaces should be followed: "Praefatio magis *communis* cedit magis *propriæ*."
+
+The Last Gospel will be special if there was a special ninth Lesson in Matins.
+
+(b) *During the Octave.*
+
+1. When the days within the octave are impeded (by any Office of semi-double or higher rite) they are commemorated, except on doubles of the first or second class.
+
+2. When the octave-day is impeded (by a Sunday or a double of the first or second class) it is
+
+[^134]: The Preface proper to the season is said even on Sundays falling within the season. On other Sundays (even those within an octave having no proper Preface), the Preface of the Blessed Trinity is said. The Preface of the Blessed Trinity is also used on Sundays impeded by any feast having no Preface proper.
+
+always commemorated, except in the solemn Masses of feasts which are doubles of the first class; moreover, if these impeding doubles of the first class are primary feasts of the Lord celebrated in the whole Church, the octave-day is not commemorated at all.
+
+3. During the entire octave the *Credo* is said, and if the feast has its own Preface, this also will be used during the octave, according to the rules given for the festival itself.
+
+4. A "slight" inclination of the head is made on pronouncing the name of a saint, both on his feast-day and during the octave, even if accidentally the Office has not been commemorated.
+
+5. If the Mass of a day within the octave is to be said (with all due regard to the privilege of saying Votive Masses), the Mass of the feast itself is read, and — if there are no *special* commemorations — the second Oration will be of the Blessed Virgin (according to the season), and the third, *Ecclesiæ, vel pro Papa*. If, however, the feast itself is one of the Blessed Virgin, the second Oration in the Mass of a day within the octave will be *de Spiritu Sancto*.
+
+6. On the Sunday within the octave, the second Oration will be a commemoration of the octave; no third "Common" Oration is then added, except it be a commemoration of some other occurring Office, and in this case the *order* of commemorations given in n. 103, (c) should be observed.
+
+### The Office of the Dedication
+
+**117.** What has been said regarding the Office and Mass of a titular, holds good also for the Office and Mass of the Dedication (with its octave) and its anniversaries. The following differences may be noted:
+
+1. In the Breviary, the Lessons, etc., to be recited during the octave are given near the end of each volume under the title: *Commune Dedicationis Ecclesiæ*.
+
+2. Should the feast of the dedication *occur* with the feast of the titular (because the church was consecrated on the feast of the titular) the dedication, which is regarded as *a feast of the Lord*, is celebrated in preference to the titular saint. If, however, the titular saint (e. g., St. Michael) is celebrated in the Universal Church as a primary double of the first class, then the Office of the titular, being *proper* and *universal*, is preferred to the Office of the dedication, which, although it is likewise "proper" (cf. n. 88), is, nevertheless, a *particular* feast (cf. *New Rubrics*, tit. 11).
+
 ---

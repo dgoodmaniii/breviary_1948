@@ -22215,3 +22215,213 @@ Volúcres cæli, et pisces maris, * qui perámbulant sémitas maris.
 Dómine, Dóminus noster, * quam admirábile est nomen tuum in univérsa terra!
 
 **Ant.** Dóminus, Deus cæli et terræ, ipse mittet Angelum suum coram te.
+
+**Ant.** Deus meus \* misit Angelum suum et conclúsit ora leónum, et non nocuérunt mihi.
+
+**Psalmus 10**
+
+IN Dómino confído : quómodo dícitis ánimæ meæ : * Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, * ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt : * justus autem quid fecit?
+
+Dóminus in templo sancto suo, * Dóminus in cælo sedes ejus :
+
+Óculi ejus in páuperem respíciunt : * pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium : * qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos : * ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit : * æquitátem vidit vultus ejus.
+
+**Ant.** Deus meus misit Angelum suum et conclúsit ora leónum, et non nocuérunt mihi.
+
+**Ant.** Bene ambulétis, \* et Dóminus sit in itínere vestro, et Angelus ejus comitétur vobíscum.
+
+**Psalmus 14**
+
+DOmine, quis habitábit in tabernáculo tuo? * aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, * et operátur justítiam :
+
+Qui lóquitur veritátem in corde suo, * qui non egit dolum in lingua sua :
+
+Nec fecit próximo suo malum, * et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus : * timéntes autem Dóminum gloríficat :
+
+Qui jurat próximo suo, et non décipit, * qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, * non movébitur in ætérnum.
+
+**Ant.** Bene ambulétis, et Dóminus sit in itínere vestro, et Angelus ejus comitétur vobíscum.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+{RUBRIC: De libro Exodi}
+
+##### Lectio i
+*Cap. 23, 20-23*
+
+ECce ego mittam Angelum meum, qui præcédat te et custódiat in via et introdúcat in locum quem parávi. Obsérva eum et audi vocem ejus, nec contemnéndum putes, quia non dimíttet cum peccáveris, et est nomen meum in illo. Quod, si audíeris vocem ejus et féceris ómnia quæ loquor, inimícus ero inimícis tuis et afflígam affligéntes te. Præcedétque te Angelus meus.
+
+℟. Angelis suis Deus mandávit de te, ut custódiant te in ómnibus viis tuis : \* In mánibus portábunt te, ne umquam offéndas ad lápidem pedem tuum. ℣. Míllia míllium ministrábant ei, et décies míllies centéna míllia assistébant ei. — In.
+
+{RUBRIC: De Zacharía Prophéta}
+
+##### Lectio ii
+*Cap. 1, 7-11*
+
+FActum est verbum Dómini ad Zacharíam, fílium Barachíæ fílii Addo, prophétam, dicens : Vidi per noctem, et ecce vir ascéndens super equum rufum, et ipse stabat inter myrtéta, quæ erant in profúndo, et post eum equi rufi, várii et albi; et dixi : Quid sunt isti, Dómine mi? Et dixit ad me Angelus qui loquebátur in me : Ego osténdam tibi quid sint hæc. Et respóndit vir qui stabat inter myrtéta et dixit : Isti sunt quos misit Dóminus ut perámbulent terram. Et respondérunt Angelo Dómini, qui stabat inter myrtéta, et dixérunt : Perambulávimus terram, et ecce omnis terra habitátur et quiéscit.
+
+℟. Respóndit Angelus Dómini et dixit : Dómine exercítuum, \* Usquequo tu non miseréberis Jerúsalem et úrbium Juda, quibus irátus es? ℣. Iste enim septuagésimus annus est. — Usquequo.
+
+##### Lectio iii
+*Cap. 2, 1-5*
+
+ET levávi óculos meos et vidi, et ecce vir, et in manu ejus funículus mensórum; et dixi : Quo tu vadis? Et dixit ad me : Ut métiar Jerúsalem et vídeam quanta sit latitúdo ejus, et quanta longitúdo ejus. Et ecce Angelus qui loquebátur in me, egrediebátur, et Angelus álius egrediebátur in occúrsum ejus et dixit ad eum : Curre, lóquere ad púerum istum dicens : Absque muro habitábitur Jerúsalem, præ multitúdine hóminum et jumentórum in médio ejus. Et ego ero ei, ait Dóminus, murus ignis in circúitu, et in glória ero in médio ejus.
+
+℟. In conspéctu géntium nolíte timére; vos enim in córdibus vestris adoráte et timéte Dóminum; \* Angelus enim ejus vobíscum est. ℣. Stetit Angelus juxta aram templi, habens thuríbulum áureum in manu sua. — Angelus. Glória Patri. Angelus.
+
+### In II Nocturno
+
+**Ant.** Cum essem vobíscum, \* per voluntátem Dei eram : ipsum benedícite et cantáte ei.
+
+**Psalmus 18**
+
+CÆli enárrant glóriam Dei, * et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, * et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, * quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum : * et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum : * et ipse tamquam sponsus procédens de thálamo suo :
+
+Exsultávit ut gigas ad curréndam viam, * a summo cælo egréssio ejus :
+
+Et occúrsus ejus usque ad summum ejus : * nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas : * testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda : * præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sǽculum sǽculi : * judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum : * et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, * in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me : * et ab aliénis parce servo tuo.
+
+Si mei non fúerint dominári, tunc immaculátus ero : * et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei : * et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, * et redémptor meus.
+
+**Ant.** Cum essem vobíscum, per voluntátem Dei eram : ipsum benedícite et cantáte ei.
+
+**Ant.** Tollens se \* Angelus Dómini, qui præcedébat castra Israël, ábiit post eos.
+
+**Psalmus 23**
+
+DOmini est terra, et plenitúdo ejus : * orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : * et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? * aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, * qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : * et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, * quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : * et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? * Dóminus fortis et potens : Dóminus potens in prælio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : * et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? * Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Tollens se Angelus Dómini, qui præcedébat castra Israël, ábiit post eos.
+
+**Ant.** Immíttet Angelus Dómini \* in circúitu timéntium eum, et erípiet eos.
+
+**Psalmus 33**
+
+BEnedícam Dóminum in omni témpore : * semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea : * áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum : * et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me : * et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini : * et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum : * et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum : * et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus : * beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus : * quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt : * inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me : * timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam : * díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo : * et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum : * inquíre pacem, et perséquere eam.
+
+Óculi Dómini super justos : * et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala : * ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos : * et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde : * et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum : * et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum : * unum ex his non conterétur.
+
+Mors peccatórum péssima : * et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum : * et non delínquent omnes qui sperant in eo.
+
+**Ant.** Immíttet Angelus Dómini in circúitu timéntium eum, et erípiet eos.
+
+℣. Ascéndit fumus arómatum in conspéctu Dómini. ℟. De manu Angeli.
+
+{RUBRIC: Pro hoc Festo simplificato, Lectio iv dicitur ut ix.}
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis}
+*In Psalmum Qui hábitat*
+
+##### Lectio iv
+
+ANgelis suis mandávit de te. Mira dignátio, et vere magna diléctio caritátis. Quis enim? quibus? de quo? quid mandávit? Studióse considerémus, fratres, diligénter commendémus memóriæ hoc tam grande mandátum. Quis enim mandávit? cujus sunt Angeli? cujus mandátis obtémperant? cujus obédiunt voluntáti? Nempe Angelis suis mandávit de te, ut custódiant te in ómnibus viis tuis. Nec cunctántur quin étiam in mánibus tollant te. Summa ergo Majéstas mandávit Angelis, et Angelis suis mandávit. Illis útique sublímibus, tam beátis quam próximis sibi cohæréntibus et vere domésticis mandávit de te. Tu quis es? Quid est homo, quod memor es ejus? aut fílius hóminis, quóniam réputas eum? Quasi vero non sit homo putrédo, et fílius hóminis vermis! Sed quid putas mandávit de te? Ut custódiant te.
+
+℟. Vivit ipse Dóminus, \* Quóniam custodívit me Angelus ejus et hinc eúntem et ibi commorántem et inde huc reverténtem. ℣. Et non permísit me Dóminus ancíllam suam coinquinári. — Quóniam.
+
+##### Lectio v
+
+QUantam tibi debet hoc verbum inférre reveréntiam, afférre devotiónem, conférre fidúciam! Reveréntiam pro præséntia, devotiónem pro benevoléntia, fidúciam pro custódia. Caute ámbula, ut vidélicet cui adsunt Angeli, sicut eis mandátum est, in ómnibus viis tuis. In quovis diversório, in quovis ángulo, Angelo tuo reveréntiam habe. Tu ne áudeas illo præsénte, quod vidénte me non audéres. An præséntem esse dúbitas, quem non vides? Quid si audíres? quid si tángeres? quid si olfáceres? Vide quia non solo visu, rerum præséntia comprobétur.
+
+℟. Angelus Dómini descéndit cum Azaría et sóciis ejus in fornácem, et excússit flammam ignis de fornáce; \* Et non tétigit eos omníno ignis neque contristávit. ℣. Benedíctus Deus eórum, qui misit Angelum suum, et éruit servos suos qui credidérunt in eum. — Et.
+
+##### Lectio vi
+
+IN ipso ítaque, fratres, affectuóse diligámus Angelos ejus, tamquam futúros aliquándo cohærédes nostros, ínterim vero actóres et tutóres, a Patre pósitos et præpósitos nobis. Quid sub tantis custódibus timeámus? Nec superári nec sedúci, minus autem sedúcere possunt, qui custódiunt nos in ómnibus viis nostris. Fidéles sunt, prudéntes sunt, poténtes sunt : quid trepidámus? Tantum sequámur eos, adhæreámus eis, et in protectióne Dei cæli commorémur. Quóties ergo gravíssima cérnitur urgére tentátio et tribulátio véhemens immenére, ínvoca custódem tuum, ductórem tuum, adjutórem tuum in opportunitátibus, in tribulatióne; incláma eum et dic : Dómine, salva nos, perímus.
+
+℟. In omni tribulatióne eórum non est tribulátus, \* Et Angelus faciéi ejus salvávit eos. ℣. In dilectióne sua et indulgéntia sua ipse redémit eos, et portávit eos, et elevávit eos cunctis diébus sǽculi. — Et. Glória Patri. Et.

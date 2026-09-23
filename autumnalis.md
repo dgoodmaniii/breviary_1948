@@ -41804,4 +41804,24 @@ Si vivis, per istam sanctam Unctiónem ✠ indúlgeat tibi Dóminus quidquid del
 
 Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo. In nómine Patris, ✠ et Fílii, et Spíritus Sancti. Amen.
 
-Per sacrosáncta humánæ reparatiónis mystéria, remíttat tibi omnípotens Deus omnes præséntis et
+Per sacrosáncta humánæ reparatiónis mystéria, remíttat tibi omnípotens Deus omnes præséntis et futúræ vitæ pœnas, paradísi portas apériat et ad gáudia sempitérna perdúcat. ℟. Amen.
+
+Benedícat te omnípotens Deus Pater, ✠ et Fílius, et Spíritus Sanctus. ℟. Amen.
+
+{RUBRIC: In casu vero necessitátis súfficit dícere :}
+
+Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo, et benedíco te. In nómine Patris, ✠ et Fílii, et Spíritus Sancti. Amen.
+
+## Formula Absolutionis generalis impertiendæ Tertiariis saecularibus in confessionali
+
+Auctoritáte a Summis Pontifícibus mihi concéssa, plenáriam ómnium peccatórum tuórum indulgéntiam tibi impértior. In nómine Patris, et Fílii, ✠ et Spíritus Sancti. Amen.
+
+## Formula ad impertiendam populo benedictionem cum indulgentiae plenariae favore in fine concionum (Missionum, Exercitiorum)
+
+{RUBRIC: Hæc benedíctio fit per únicum signum crucis cum Crucifíxo, adhibíta fórmula :}
+
+Benedíctio Dei omnipoténtis, Patris, ✠ et Fílii, et Spíritus Sancti descéndat super vos, et máneat semper. ℟. Amen.
+
+{RUBRIC: Decréta authéntica S. R. C. 4265 ad III.}
+
+---

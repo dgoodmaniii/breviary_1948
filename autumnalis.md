@@ -30176,3 +30176,69 @@ CUjus prudéntiam Maximínus admirátus, retinéri eam jubet, accersítis úndiq
 QUO témpore Maximíni uxor et Porphýrius belli dux, viséndæ Vírginis causa cárcerem ingréssi, et ejúsdem prædicatióne in Jesum Christum credéntes, póstea martýrio coronáti sunt. Interim Cathárina edúcitur e custódia; et rota expedítur, crebris et acútis præfíxa gládiis, ut Vírginis corpus crudelíssime dilacerarétur. Quæ máchina, brevi, Catharínæ oratióne, confrácta est; eóque miráculo multi Christi fidem suscepérunt. Ipse Maximínus, in impietáte et crudelitáte obstinátior, Catharínam secúri pércuti ímperat. Quæ, fórtiter dato cápite, ad duplicátum virginitátis et martýrii prǽmium evolávit séptimo Kaléndas Decémbris; cujus corpus ab Angelis in Sina, Arábiæ monte, mirabíliter collocátum est.
 
 ℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+CAtharína, nóbilis virgo Alexandrína, liberálium ártium stúdia cum fídei ardóre conjúngens, cum multos Christiános Maximíni jussu ad supplícium rapi vidéret, ipsum ádiit Maximínum, eíque Christi fidem ad salútem esse necessáriam strénue affirmávit. Ejus prudéntiam admirátus, tyránnus retinéri eam jubet; et, accersítis úndique doctíssimis homínibus, ei persuadére studet, ut ad idolórum cultum se convértat. Sed contra áccidit; plures enim ex iis viris, sapientíssimis ratiónibus a Catharína convícti, Christi fidem sunt ampléxi et pro ea mori non dubitárunt. Quam ob rem Maximínus blandítiis primum, deínde torméntis Catharínam de senténtia dedúcere aggréditur; sed, cum nihil profíceret, eam secúri pércuti ímperat.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum, de Communi Virginum 1 loco. [122]}
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio**
+
+DEus, qui dedísti legem Móysi in summitáte montis Sínai, et in eódem loco per sanctos Angelos tuos corpus beátæ Catharínæ Vírginis et Mártyris tuæ mirabíliter collocásti : præsta, quæsumus; ut, ejus méritis et intercessióne, ad montem, qui Christus est, pervenire valeámus : Qui tecum vivit.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis ac S. Petri Alexandríni Ep. et Mart.}
+
+---
+
+# Die 26 Novembris
+
+## S. Silvestri
+
+{RUBRIC: Abb. [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+CLementíssime Deus, qui sanctum Silvéstrum Abbátem, sǽculi hujus vanitátem in apérto túmulo pie meditántem, ad erémum vocáre, et præcláris vitæ méritis decoráre dignátus es : te súpplices exorámus; ut, ejus exémplo terréna despiciéntes, tui consórtio perfruámur ætérno. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+**Oratio**
+
+DEus, qui dedísti legem Móysi in summitáte montis Sínai, et in eódem loco per sanctos Angelos tuos corpus beátæ Catharínæ Vírginis et Mártyris tuæ mirabíliter collocásti : præsta, quæsumus; ut, ejus méritis et intercessióne, ad montem, qui Christus est, pervenire valeámus : Qui tecum vivit.
+
+{RUBRIC: Deínde Commem. S. Petri Alexandríni Ep. et Mart. :}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+**Oratio**
+
+INfirmitátem nostram réspice, omnípotens Deus : et, quia pondus própriæ actiónis gravat, beáti Petri Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+SIlvéster, Auxími in Picéno nóbili génere ortus, statim puerílem ætátem lítteris ac bonis móribus mirífice exornávit. Adoléscens, Bonóniam ad stúdia jurisprudéntiæ missus a patre, cum sacris lítteris, a Deo mónitus, dedísset óperam, paréntis incúrrit indignatiónem; quam æquo ánimo toto decénnio pértulit. Ob egrégiam ejus virtútem a canónicis cathedrális Auximánæ ecclésiæ sócius honóris eléctus est; in quo múnere pópulo oratiónibus, exémplo et conciónibus opem tulit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit.

@@ -41094,3 +41094,39 @@ In Cruce latébat sola Déitas,
 At hic latet simul et humánitas;
 Ambo tamen credens atque cónfitens,
 Peto quod petívit latro pæniténs.
+
+Plagas, sicut Thomas, non intúeor,
+Deum tamen meum te confíteor :
+Fac me tibi semper magis crédere,
+In te spem habére, te dilígere.
+
+O memoriále mortis Dómini,
+Panis vivus, vitam præstans hómini,
+Præsta meæ menti de te vívere,
+Et te illi semper dulce sápere.
+
+Pie pellicáne, Jesu Dómine,
+Me immúndum munda tuo Sánguine,
+Cujus una stilla salvum fácere
+Totum mundum quit ab omni scélere.
+
+Jesu, quem velátum nunc aspício,
+Oro, fiat illud quod tam sítio :
+Ut, te reveláta cernens fácie,
+Visu sim beátus tuæ glóriæ. Amen.
+
+---
+
+## Aspirationes S. Ignatii ad Sanctissimum Redemptorem
+
+{RUBRIC: Indulgéntia septem annórum, si Sacérdos post Missam invocatiónes pie recitáverit; trecentórum diérum tóties quóties; plenária suetis conditiónibus, dúmmodo quotídie per íntegrum mensem invocatiónum recitátio devóte peracta fúerit. Pius Pp. IX, 9 Januárii 1854.}
+
+ANima Christi, sanctífica me. Corpus Christi, salva me. Sanguis Christi, inébria me. Aqua láteris Christi, lava me. Pássio Christi, confórta me. O bone Jesu, exáudi me. Intra tua vúlnera abscónde me. Ne permíttas me separári a te. Ab hoste malígno defénde me. In hora mortis meæ voca me. Et jube me veníre ad te, ut cum Sanctis tuis laudem te in sǽcula sæculórum. Amen.
+
+---
+
+## Oblatio sui
+
+{RUBRIC: Indulgéntia trium annórum; plenária suetis conditiónibus, si quotídie per íntegrum mensem actus oblatiónis devóte recitátus fúerit. Pius Pp. XI, 4 Decémbris 1932.}
+
+SUscipe, Dómine, univérsam meam libertátem. Accipe memóriam, intelléctum atque voluntátem omnem. Quidquid hábeo vel possídeo, mihi largítus es : id tibi totum restítuo, ac tuæ prorsus voluntáti trado gubernándum. Amórem tui solum cum grátia tua mihi dones, et dives sum satis, nec áliud quidquam ultra posco.

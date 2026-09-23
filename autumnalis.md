@@ -31574,4 +31574,97 @@ GRandis fidúcia! Petrus piscátor erat, dives non fúerat, cibos manu et arte q
 
 #### Lectio viii
 
-IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quando et mórtui de corruptióne resúrgent incorrúpti), sedébitis et vos in sóliis judicántium, condemnántes duódecim tribus Israël; quia, vobis credéntibus, illi crédere noluérunt. Et omnis, qui reliquérit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum accípiet, et vitam ætérnam possidébit. Locus iste cum illa senténtia cóngruit, in qua Salvátor lóquitur : Non veni pacem míttere, sed gládium.
+IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quando et mórtui de corruptióne resúrgent incorrúpti), sedébitis et vos in sóliis judicántium, condemnántes duódecim tribus Israël; quia, vobis credéntibus, illi crédere noluérunt. Et omnis, qui reliquérit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum accípiet, et vitam ætérnam possidébit. Locus iste cum illa senténtia cóngruit, in qua Salvátor lóquitur : Non veni pacem míttere, sed gládium. Veni enim separáre hóminem a patre suo, et matrem a fília, et nurum a socru : et inimíci hóminis doméstici ejus. Qui ergo, propter fidem Christi et prædicatiónem Evangélii, omnes afféctus contémpserint atque divítias et sæculi voluptátes : isti céntuplum recípient, et vitam ætérnam possidébunt.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam : \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna : operáti sunt justítiam. — Quorum. **Glória Patri.** Quorum.
+
+**Bened.** Ad societátem.
+
+#### Lectio ix
+
+EX occasióne hujus senténtiæ quidam introdúcunt mille annos post resurrectiónem, dicéntes, tunc nobis céntuplum ómnium rerum quas dimísimus, et vitam ætérnam esse reddéndam; non intelligéntes, quod, si in céteris digna sit repromíssio, in uxóribus appáreat turpitúdo, ut, qui unam pro Dómino dimíserit, centum recípiat in futúro. Sensus ergo iste est : Qui carnália pro Salvatóre dimíserit, spirituália recípiet; quæ comparatióne et mérito sui ita erunt, quasi si parvo número centenárius números comparétur.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Hoc est præcéptum meum, \* ut diligátis ínvicem, sicut diléxi vos.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**Ant. 2** Majórem caritátem \* nemo habet, ut ánimam suam ponat quis pro amícis suis.
+
+**Ant. 3** Vos amíci mei estis, \* si fecéritis quæ præcípio vobis, dicit Dóminus.
+
+**Ant. 4** Beáti pacífici, \* beáti mundo corde : quóniam ipsi Deum vidébunt.
+
+**Ant. 5** In patiéntia vestra \* possidébitis ánimas vestras.
+
+**Capit.** *Ephes. 2, 19-20*
+
+FRatres : Jam non estis hóspites, et ádvenæ; sed estis cives Sanctórum, et doméstici Dei, superædificáti super fundaméntum Apostolórum et Prophetárum, ipso summo angulári lápide Christo Jesu.
+
+**Hymnus**
+
+EXsúltet orbis gáudiis,
+Cælum resúltet láudibus :
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices
+Et vera mundi lúmina,
+Votis precámur córdium :
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quæsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus :
+
+Ut, cum redíbit árbiter
+In fine Christus sæculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória. Amen.
+
+℣. Annuntiavérunt ópera Dei.
+℟. Et facta ejus intellexérunt.
+
+**Ad Bened. Ant.** Vos qui reliquístis \* ómnia, et secúti estis me, céntuplum accipiétis, et vitam ætérnam possidébitis.
+
+{RUBRIC: Oratio própria.}
+
+{RUBRIC: Ad Horas Psalmi de Domínica, sed ad Primam loco Psalmi 117 Confitémini, dícitur Psalmus 53 Deus, in nómine tuo. 55 Quod semper observátur, quando ponítur sequens Rúbrica : Ad Horas Psalmi de Domínica, ad Primam tamen ut in Festis.}
+
+#### AD TERTIAM
+
+**Capit.** Fratres. [16]
+
+℟. br. In omnem terram \* Exívit sonus eórum. In omnem. ℣. Et in fines orbis terræ verba eórum. Exívit. **Glória Patri.** In omnem. ℣. Constítues eos príncipes super omnem terram. ℟. Mémores erunt nóminis tui, Dómine.
+
+#### AD SEXTAM
+
+**Capitulum** *Act. 5, 12*
+
+PER manus autem Apostolórum fiébant signa et prodígia multa in plebe.
+
+℟. br. Constítues eos príncipes \* Super omnem terram. Constítues. ℣. Mémores erunt nóminis tui, Dómine. Super omnem terram. **Glória Patri.** Constítues. ℣. Nimis honoráti sunt amíci tui, Deus. ℟. Nimis confortátus est principátus eórum.
+
+#### AD NONAM
+
+**Capitulum** *Act. 5, 41*
+
+IBant Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contumélias pati.
+
+℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. **Glória Patri.** Nimis. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.

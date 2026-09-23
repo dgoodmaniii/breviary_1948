@@ -36324,3 +36324,51 @@ DEus, qui invisibíliter ómnia cóntines, et tamen pro salúte géneris humáni
 DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
 
 Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens : Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Tóllite portas, príncipes, vestras, et elevámini, portæ æternáles.
+
+**Ant.** Erit mihi Dóminus \* in Deum, et lapis iste vocábitur domus Dei.
+
+###### Psalmus 45
+
+DEus noster refúgium, et virtus : \* adjútor in tribulatiónibus, quæ invenérunt nos nimis.
+
+Proptérea non timébimus dum turbábitur terra : \* et transferéntur montes in cor maris.
+
+Sonuérunt, et turbátæ sunt aquæ eórum : \* conturbáti sunt montes in fortitúdine ejus.
+
+Flúminis ímpetus lætíficat civitátem Dei : \* sanctificávit tabernáculum suum Altíssimus.
+
+Deus in médio ejus, non commovébitur : \* adjuvábit eam Deus mane dilúculo.
+
+Conturbátæ sunt gentes, et inclináta sunt regna : \* dedit vocem suam, mota est terra.
+
+Dóminus virtútum nobíscum : \* suscéptor noster Deus Jacob.
+
+Veníte, et vidéte ópera Dómini, quæ pósuit prodígia super terram : \* áuferens bella usque ad finem terræ.
+
+Arcum cónteret, et confrínget arma : \* et scuta combúret igni.
+
+Vacáte, et vidéte quóniam ego sum Deus : \* exaltábor in géntibus, et exaltábor in terra.
+
+Dóminus virtútum nobíscum : \* suscéptor noster Deus Jacob.
+
+**Ant.** Erit mihi Dóminus in Deum, et lapis iste vocábitur domus Dei.
+
+**Ant.** Ædificávit \* Móyses altáre Dómino Deo.

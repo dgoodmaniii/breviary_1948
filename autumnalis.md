@@ -40091,3 +40091,59 @@ Per mystérium sanctæ Incarnatiónis tuæ, líbera.
 Per advéntum tuum, líbera.
 
 Per nativitátem tuam, líbera nos, Dómine.
+
+Per baptísmum et sanctum jejúnium tuum, líbera nos, Dómine.
+
+Per crucem et passiónem tuam, líbera.
+
+Per mortem et sepultúram tuam, líbera.
+
+Per sanctam resurrectiónem tuam, líbera.
+
+Per admirábilem ascensiónem tuam, líbera.
+
+Per advéntum Spíritus Sancti Paráclti, líbera.
+
+In die judícii, líbera.
+
+Peccatóres, te rogámus, audi nos.
+
+Ut nobis parcas, te rogámus.
+
+Ut nobis indúlgeas, te rogámus.
+
+Ut ad veram pæniténtiam nos perdúcere dignéris, te rogámus.
+
+Ut Ecclésiam tuam sanctam régere et conserváre dignéris, te rogámus.
+
+Ut domnum Apostólicum et omnes ecclesiásticos órdines in sancta religióne conserváre dignéris, te rogámus.
+
+Ut inimícos sanctæ Ecclésiæ humiliáre dignéris, te rogámus.
+
+Ut régibus et princípibus christiánis pacem et veram concórdiam donáre dignéris, te rogámus.
+
+Ut cuncto pópulo christiáno pacem et unitátem largíri dignéris, te rogámus.
+
+Ut omnes errántes ad unitátem Ecclésiæ revocáre, et infidéles univérsos ad Evangélii lumen perdúcere dignéris, te rogámus.
+
+Ut nosmetípsos in tuo sancto servítio confortáre et conserváre dignéris, te rogámus.
+
+Ut mentes nostras ad cæléstia desidéria érigas, te rogámus.
+
+Ut ómnibus benefactóribus nostris sempitérna bona retríbuas, te rogámus, audi nos.
+
+Ut ánimas nostras, fratrum, propinquórum et benefactórum nostrórum ab ætérna damnatióne erípias, te rogámus, audi nos.
+
+Ut fructus terræ dare et conserváre dignéris, te rogámus.
+
+Ut ómnibus fidélibus defúnctis réquiem ætérnam donáre dignéris, te rogámus, audi nos.
+
+Ut nos exaudíre dignéris, te rogámus.
+
+Fili Dei, te rogámus.
+
+Agnus Dei, qui tollis peccáta mundi, parce nobis, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, exáudi nos, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, miserére nobis.

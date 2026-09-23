@@ -34188,4 +34188,39 @@ LAudémus viros gloriósos et paréntes nostros in generatióne sua. Multam gló
 
 #### Lectio ii
 
-HOmines dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes in dómibus suis.
+HOmines dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes in dómibus suis. Omnes isti in generatiónibus gentis suæ glóriam adépti sunt, et in diébus suis habéntur in láudibus. Qui de illis nati sunt, reliquérunt nomen narrándi laudes eórum : et sunt quorum non est memória : periérunt quasi qui non fúerint : et nati sunt, quasi non nati, et fílii ipsórum cum ipsis.
+
+{RUBRIC: Pro Confessore Pontifice}
+
+℟. Ecce sacérdos magnus, qui in diébus suis plácuit Deo : \* Ideo jurejurándo fecit illum Dóminus créscere in plebem suam. ℣. Benedictiónem ómnium géntium dedit illi, et testaméntum suum confirmávit super caput ejus. — Ideo.
+
+{RUBRIC: Pro Confessore non Pont.}
+
+℟. Justus germinábit sicut lílium : \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+#### Lectio iii
+
+SEd illi viri misericórdiæ sunt, quorum pietátes non defuérunt : cum sémine eórum pérmanent bona, heréditas sancta nepótes eórum, et in testaméntis stetit semen eórum. Et fílii eórum propter illos usque in ætérnum manent : semen eórum et glória eórum non derelinquétur. Córpora ipsórum in pace sepúlta sunt, et nomen eórum vivit in generatiónem et generatiónem. Sapiéntiam ipsórum narrent pópuli, et laudem eórum núntiet Ecclésia.
+
+{RUBRIC: Pro Confessore Pontifice}
+
+℟. Jurávit Dóminus, et non pænitébit eum : \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech. ℣. Dixit Dóminus Dómino meo, Sede a dextris meis. — Tu. **Glória Patri.** Tu.
+
+{RUBRIC: Pro Confessore non Pont.}
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum : \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. **Glória Patri.** Et.
+
+---
+
+# II Aliae Lectiones pro Confessore Pont.
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Máximi Epíscopi}
+{RUBRIC: Homilía 59, de S. Eusébio 2}
+
+#### Lectio iv
+
+BEáti Patris N. mérita, jam in tuto pósita, secúri magnificémus; qui, gubernáculum fídei viríliter tenens, ánchoram spei tranquílla jam in statióne compósuit, et plenam cæléstibus divítiis et ætérnis mércibus navem optáto in líttore collocávit. Qui, contra omnes adversários, scutum timóris Dei tamdiu infatigábiliter ténuit, donec ad victóriam pervenéret. Quid enim fuit totus vitæ illíus cursus, nisi uníus cum vígili hoste conflíctus?
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. **Glória Patri.** Ipse.

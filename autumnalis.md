@@ -19363,3 +19363,75 @@ Magna est glória ejus in salutári tuo : * glóriam et magnum decórem impónes
 Quóniam dabis eum in benedictiónem in sǽculum sǽculi : * lætificábis eum in gáudio cum vultu tuo.
 
 Quóniam rex sperat in Dómino : * et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis : * déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui : * Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes : * et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala : * cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum : * in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua : * cantábimus et psallémus virtútes tuas.
+
+**Ant.** Rex exaltátur in ætherá, cum nóbile trophǽum Crucis ab univérsis Christícolis adorátur per sǽcula.
+
+℣. Adorámus te, Christe, et benedícimus tibi. ℟. Quia per Crucem tuam redemísti mundum.
+
+##### Lectio iv
+
+CHósroas, Persárum rex, extrémis Phocæ impérii tempóribus, Ægýpto et África occupáta ac Jerosólyma capta multísque ibi cæsis Christianórum míllibus, Christi Dómini Crucem, quam Hélena in monte Calváriæ collocárat, in Pérsidem ábstulit. Itaque Heráclius, qui Phocæ succésserat, multis belli incómmodis et calamitátibus afféctus, pacem petébat; quam a Chósroa, victóriis insolénte, ne iníquis quidem conditiónibus impetráre póterat. Quare in summo discrímine se assíduis jejúniis et oratiónibus exércens, opem a Deo vehemónter implorábat; cujus mónitu exércitu comparáto, signa cum hoste cóntulit, ac tres duces Chósroæ cum tríbus exercítibus superávit.
+
+℟. Nos autem gloriári opórtet in Cruce Dómini nostri Jesu Christi, in quo est salus, vita, et resurréctio nostra : \* Per quem salváti et liberáti sumus. ℣. Tuam Crucem adorámus, Dómine, et recólimus tuam gloriósam passiónem. — Per.
+
+##### Lectio v
+
+QUibus cládibus fractus Chósroas, in fuga, qua trajícere Tígrim parábat, Medársen fílium sócium regni desígnat. Sed eam contuméliam cum Síroës, Chósroæ major natu fílius, ferret atróciter, patri simul et fratri necem machinátur; quam paulo post utríque ex fuga retrácto áttulit, regnúmque ab Heraclío impetrávit, quibúsdam accéptis conditiónibus, quarum ea prima fuit, ut Crucem Christi Dómini restitúeret. Ergo Crux, quatuórdecim annis postquam vénerat in potestátem Persárum, recépta est. Quam rédiens Jerosólymam Heraclíus solémni celebritáte suis húmeris rétulit in eum montem, quo eam Salvátor túlerat.
+
+℟. Dum sacrum pignus cælitus exaltátur, Christi fides roborátur : \* Adsunt prodígia divína in virga Móysi prímitus figuráta. ℣. Ad Crucis contáctum resúrgunt mórtui, et Dei magnália reserántur. — Adsunt.
+
+##### Lectio vi
+
+QUod factum illústri miráculo commendátum est. Nam Heraclíus, ut erat auro et gemmis ornátus, insístere coáctus est in porta, quæ ad Calváriæ montem ducébat. Quo enim magis prógredi conabátur, eo magis retinéri videbátur. Cumque ea re et ipse Heraclíus et réliqui omnes obstupéscerent; Zacharías, Jerosolymórum antístes, Vide, inquit, imperátor, ne isto triumpháli ornátu in Cruce feréndam parum Jesu Christi paupertátem et humilitátem imitére. Tum Heraclíus, abjécto amplíssimo vestítu detractísque cálceis ac plebéjo amíctu indútus, réliquum viæ fácile conféci, et in eódem Calváriæ loco Crucem státuit, unde fúerat a Persis asportáta. Itaque Exaltatiónis sanctæ Crucis solémnitas, quæ hac die quotánnis celebrabátur, illústrior habéri cœpit ob ejus rei memóriam, quod ibídem fúerit repósita ab Heraclío, ubi Salvatóri primum fúerat constitúta.
+
+℟. Hoc signum Crucis erit in cælo, cum Dóminus ad judicándum vénerit : \* Tunc manifésta erunt abscóndita cordis nostri. ℣. Cum séderit Fílius hóminis in sede majestátis suæ, et cœperit judicáre sǽculum per ignem. — Tunc. Glória Patri. Tunc.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+SAncta Crux Dómini, ab Hélena in monte Calváriæ collocáta índeque a Chósroa Persárum rege abláta, ab Heraclío imperatóre, post trinam victóriam in Persas obténtam, recépta est, et suis húmeris in eum montem reláta, quo eam Salvátor túlerat. Quod factum illústri miráculo commendátum est. Nam Heraclíus, ut erat auro et gemmis ornátus, insístere coáctus est in porta, quæ ad Calváriæ montem ducébat. Quo enim magis prógredi conabátur, eo magis retinéri videbátur. Cumque ea re ipse Heraclíus et réliqui omnes obstupéscerent, Zacharías, Jerosolymórum antístes, Vide, inquit, imperátor, ne isto triumpháli ornátu in Cruce feréndam parum Jesu Christi paupertátem et humilitátem imitére. Tunc Heraclíus, abjécto amplíssimo vestítu detractísque cálceis ac plebéjo amíctu indútus, réliquum viæ fácile confécit. Itaque Exaltatiónis sanctæ Crucis solémnitas, quæ hac die quotánnis celebrabátur, ob ejus rei memóriam illústrior habéri cœpit.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+**Ant.** Adorámus te, Christe, \* et benedícimus tibi, quia per Crucem tuam redemísti mundum.
+
+**Psalmus 95**
+
+CAntáte Dómino cánticum novum : * cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus : * annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, * in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis : * terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia : * Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus : * sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem : * afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus : * adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra : * dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur : * judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : * gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : * quóniam venit judicáre terram.

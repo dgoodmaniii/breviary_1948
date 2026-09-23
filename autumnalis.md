@@ -40497,3 +40497,61 @@ Ego facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et re
 {RUBRIC: Quando hujúsmodi Benedíctio Apostólica plúribus simul infírmis impertítur, ómnia dicántur semel ut supra, singulári tantum número in plurálem immutáto.}
 
 ---
+
+# Benedictio Mensæ
+
+### Ante Prandium
+
+{RUBRIC: Sacérdos benedictúrus mensam incípit : Benedícite, et álii repétunt : Benedícite.}
+
+{RUBRIC: Deinde Sacérdos incípit Versum :}
+
+OCuli ómnium, {RUBRIC: et álii prosequúntur :} In te sperant, Dómine, et tu das escam illórum in témpore opportúno. Aperis tu manum tuam, et imples omne ánimal benedictióne.
+
+Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+{RUBRIC: Postea Sacérdos dicit :}
+
+Orémus.
+
+BEnedic, Dómine, nos, et hæc tua dona, quæ de tua largitáte sumus súmpturi. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Deinde Lector :} Jube, domne, benedícere.
+
+**Bened.** Mensæ cæléstis partícipes fáciat nos Rex ætérnæ glóriæ. ℟. Amen.
+
+### Post Prandium
+
+{RUBRIC: agúntur grátiæ hoc modo :}
+
+{RUBRIC: Dicto a Lectóre} Tu autem, Dómine, miserére nobis. ℟. Deo grátias, {RUBRIC: omnes surgunt.}
+
+{RUBRIC: Sacérdos incípit :} ℣. Confiteántur tibi, Dómine, ómnia ópera tua. ℟. Et Sancti tui benedícant tibi.
+
+Glória Patri. Sicut erat.
+
+{RUBRIC: Postea Sacérdos absolúte dicat :}
+
+AGimus tibi grátias, omnípotens Deus, pro univérsis benefíciis tuis : Qui vivis et regnas in sǽcula sæculórum. ℟. Amen.
+
+{RUBRIC: Deinde alternátim dícitur Ps. 50 Miserére mei, Deus 77 vel [231].}
+
+###### Vel Psalmus 116
+
+LAudáte Dóminum, omnes gentes : \* laudáte eum, omnes pópuli :
+
+Quóniam confirmáta est super nos misericórdia ejus : \* et véritas Dómini manet in ætérnum.
+
+Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Sacérdos dicit} Pater noster, {RUBRIC: quod cum áliis secréto proséquitur usque ad}
+
+℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Dispérsit, dedit paupéribus. ℟. Justítia ejus manet in sǽculum sǽculi.

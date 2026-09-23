@@ -21571,3 +21571,311 @@ DIe autem vigésima et quarta mensis primi, eram juxta flúvium magnum, qui est 
 ET audívi vocem sermónum ejus : et áudiens jacébam consternátus super fáciem meam, et vultus meus hærébat terræ. Et ecce manus tétigit me, et eréxit me super génua mea et super artículos mánuum meárum. Et dixit ad me : Dániel, vir desideriórum, intéllige verba quæ ego loquor ad te, et sta in gradu tuo; nunc enim sum missus ad te. Cumque dixísset mihi sermónem istum, steti tremens. Et ait ad me : Noli metúere, Dániel, quia ex die primo quo posuísti cor tuum ad intelligéndum, ut te afflígeres in conspéctu Dei tui, exaudíta sunt verba tua, et ego veni propter sermónes tuos. Princeps autem regni Persárum réstitit mihi vigínti et uno diébus; et ecce Michaël, unus de princípibus primis, venit in adjutórium meum, et ego remánsi ibi juxta regem Persárum. Veni autem ut docérem te quæ ventúra sunt pópulo tuo in novíssimis diébus, quóniam adhuc vísio in dies.
 
 ℟. In conspéctu Angelórum psallam tibi, et adorábo ad templum sanctum tuum : \* Et confitébor nómini tuo, Dómine. ℣. Super misericórdia tua et veritáte tua : quóniam magnificásti super nos nomen sanctum tuum. — Et. Glória Patri. Et.
+
+### In II Nocturno
+
+**Ant.** Michaël Archángele, \* veni in adjutórium pópulo Dei.
+
+**Psalmus 18**
+
+CÆli enárrant glóriam Dei, * et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, * et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, * quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum : * et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum : * et ipse tamquam sponsus procédens de thálamo suo :
+
+Exsultávit ut gigas ad curréndam viam, * a summo cælo egréssio ejus :
+
+Et occúrsus ejus usque ad summum ejus : * nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas : * testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda : * præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sǽculum sǽculi : * judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum : * et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, * in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me : * et ab aliénis parce servo tuo.
+
+Si mei non fúerint dominári, tunc immaculátus ero : * et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei : * et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, * et redémptor meus.
+
+**Ant.** Michaël Archángele, veni in adjutórium pópulo Dei.
+
+**Ant.** Michaël \* præpósitus paradísi, quem honoríficant Angelórum cives.
+
+**Psalmus 23**
+
+DOmini est terra, et plenitúdo ejus : * orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : * et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? * aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, * qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : * et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, * quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : * et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? * Dóminus fortis et potens : Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : * et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? * Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Michaël præpósitus paradísi, quem honoríficant Angelórum cives.
+
+**Ant.** Gloriósus \* apparuísti in conspéctu Dómini : proptérea decórem índuit te Dóminus.
+
+**Psalmus 33**
+
+BEnedícam Dóminum in omni témpore : * semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea : * áudiant mansuéti, et læténtur.
+
+Magnificáte Dóminum mecum : * et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me : * et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini : * et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum : * et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum : * et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus : * beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus : * quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt : * inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me : * timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam : * díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo : * et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum : * inquíre pacem, et perséquere eam.
+
+Óculi Dómini super justos : * et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala : * ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos : * et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde : * et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum : * et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum : * unum ex his non conterétur.
+
+Mors peccatórum péssima : * et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum : * et non delínquent omnes qui sperant in eo.
+
+**Ant.** Gloriósus apparuísti in conspéctu Dómini : proptérea decórem índuit te Dóminus.
+
+℣. Ascéndit fumus arómatum in conspéctu Dómini. ℟. De manu Angeli.
+
+{RUBRIC: Sermo sancti Gregórii Papæ}
+
+##### Lectio iv
+*Hom. 34 in Evang., ante medium*
+
+NOvem Angelórum órdines dícimus, quia vidélicet esse, testánte sacro elóquio, scimus : Angelos, Archángelos, Virtútes, Potestátes, Principátus, Dominatiónes, Thronos, Chérubim atque Séraphim. Esse namque Angelos et Archángelos pene omnes sacri elóquii páginæ testántur. Chérubim vero atque Séraphim sæpe, ut notum est, libri prophetárum loquúntur. Quátuor quoque órdinum nómina Paulus Apóstolus ad Ephésios enúmerat, dicens : Supra omnem Principátum, et Potestátem, et Virtútem, et Dominatiónem. Qui rursus ad Colossénses scribens, ait : Sive Throni, sive Potestátes, sive Principátus, sive Dominatiónes. Dum ergo illis quátuor, quæ ad Ephésios dixit, conjungúntur Throni, quinque sunt órdines; quibus dum Angeli et Archángeli, Chérubim atque Séraphim adjúncta sunt, procul dúbio novem esse Angelórum órdines inveniúntur.
+
+℟. Hic est Michaël Archángelus, princeps milítiæ Angelórum, \* Cujus honor præstat benefícia populórum, et orátio perdúcit ad regna cælórum. ℣. Archángelus Michaël præpósitus paradísi, quem honoríficant Angelórum cives. — Cujus.
+
+##### Lectio v
+
+SCiéndum vero quod Angelórum vocábulum nomen est offícii, non natúræ. Nam sancti illi cæléstis pátriæ spíritus, semper quidem sunt spíritus, sed semper vocári Angeli nequáquam possunt; quia tunc solum sunt Angeli, cum per eos áliqua nuntiántur. Unde et per Psalmístam dícitur : Qui facit Angelos suos spíritus; ac si paténter dicat : Qui eos, quos semper habet Spíritus, étiam, cum volúerit, Angelos facit. Hi autem qui mínima núntiant, Angeli; qui vero summa annúntiant, Archángeli vocántur. Hinc est enim quod ad Maríam Vírginem non quílibet Angelus, sed Gábriel Archángelus míttitur; ad hoc quippe ministérium, summum Angelum veníre dignum fúerat, qui summum ómnium nuntiábat. Qui idcírco étiam privátis nomínibus censéntur, ut signétur per vocábula étiam in operatióne quid váleant. Michaël namque, Quis ut Deus? Gábriel autem, Fortitúdo Dei; Ráphaël vero dícitur Medicína Dei.
+
+℟. Venit Michaël Archángelus cum multitúdine Angelórum, cui trádidit Deus ánimas Sanctórum, \* Ut perdúcat eas in paradísum exsultatiónis. ℣. Emítte, Dómine, Spíritum Sanctum tuum de cælis, spíritum sapiéntiæ et intelléctus. — Ut perdúcat eas in paradísum exsultatiónis.
+
+##### Lectio vi
+
+ET quóties míræ virtútis áliquid ágitur, Michaël mitti perhibétur; ut ex ipso actu et nómine detur intélligi, quia nullus potest fácere, quod fácere prǽvalet Deus. Unde et ille antíquus hostis, qui Deo esse per supérbiam símilis concupívit, dicens : In cælum conscéndam, supra astra cæli exaltábo sólium meum, símilis ero Altíssimo; dum in fine mundi in sua virtúte relinquétur extrémo supplício periméndus, cum Michaéle Archángelo prǽliatúrus esse perhibétur, sicut per Joánnem dícitur : Factum est prǽlium cum Michaéle Archángelo. Ad Maríam quoque Gábriel míttitur, qui Dei Fortitúdo nominátur; illum quippe nuntiáre veniébat, qui ad debellándas aéreas potestátes húmilis apparére dignátus est. Ráphaël quoque interpretátur, ut díximus, Medicína Dei; quia vidélicet, dum Tóbiæ óculos quasi per offícium curatiónis tétigit, cæcitátis ejus ténebras tersit.
+
+℟. In témpore illo consúrget Michaël, qui stat pro fíliis vestris : \* Et véniet tempus, quale non fuit, ex quo gentes esse cœpérunt, usque ad illud. ℣. In témpore illo salvábitur pópulus tuus omnis, qui invéntus fúerit scriptus in libro vitæ. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+**Ant.** Angelus Archángelus Michaël, \* Dei núntius pro animábus justis, allelúja, allelúja.
+
+**Psalmus 95**
+
+CAntáte Dómino cánticum novum : * cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus : * annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, * in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis : * terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia : * Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus : * sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem : * afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus : * adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra : * dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur : * judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : * gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : * quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, * et pópulos in veritáte sua.
+
+**Ant.** Angelus Archángelus Michaël, Dei núntius pro animábus justis, allelúja, allelúja.
+
+**Ant.** Data sunt ei \* incénsa multa, ut adoléret ea ante altáre áureum, quod est ante óculos Dómini.
+
+**Psalmus 96**
+
+DOminus regnávit, exsúltet terra : * læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : * justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, * et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : * vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : * a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : * et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : * et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : * audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, * propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : * nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : * custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, * et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : * et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Data sunt ei incénsa multa, ut adoléret ea ante altáre áureum, quod est ante óculos Dómini.
+
+**Ant.** Multa magnália \* de Michaéle Archángelo, qui, fortis in prǽlio, fecit victóriam.
+
+**Psalmus 102**
+
+BEnedic, ánima mea, Dómino : * et ómnia, quæ intra me sunt, nómini sancto ejus.
+
+Bénedic, ánima mea, Dómino : * et noli oblivísci omnes retributiónes ejus.
+
+Qui propitiátur ómnibus iniquitátibus tuis : * qui sanat omnes infirmitátes tuas.
+
+Qui rédimit de intéritu vitam tuam : * qui corónat te in misericórdia et miseratiónibus.
+
+Qui replet in bonis desidérium tuum : * renovábitur ut áquilæ juvéntus tua :
+
+Fáciens misericórdias Dóminus : * et judícium ómnibus injúriam patiéntibus.
+
+Notas fecit vias suas Móysi, * fíliis Israël voluntátes suas.
+
+Miserátor, et miséricors Dóminus : * longánimis, et multum miséricors.
+
+Non in perpétuum irascétur : * neque in ætérnum comminábitur.
+
+Non secúndum peccáta nostra fecit nobis : * neque secúndum iniquitátes nostras retríbuit nobis.
+
+Quóniam secúndum altitúdinem cæli a terra : * corroborávit misericórdiam suam super timéntes se.
+
+Quantum distat ortus ab occidénte : * longe fecit a nobis iniquitátes nostras.
+
+Quómodo miserétur pater filiórum, misértus est Dóminus timéntibus se : * quóniam ipse cognóvit figméntum nostrum.
+
+Recordátus est quóniam pulvis sumus : * homo, sicut fœnum dies ejus, tamquam flos agri sic efflorébit.
+
+Quóniam spíritus pertransíbit in illo, et non subsístet : * et non cognóscet ámplius locum suum.
+
+Misericórdia autem Dómini ab ætérno, * et usque in ætérnum super timéntes eum.
+
+Et justítia illíus in fílios filiórum, * his qui servant testaméntum ejus :
+
+Et mémores sunt mandatórum ipsíus, * ad faciéndum ea.
+
+Dóminus in cælo parávit sedem suam : * et regnum ipsíus ómnibus dominábitur.
+
+Benedícite Dómino, omnes Angeli ejus : * poténtes virtúte, faciéntes verbum illíus, ad audiéndam vocem sermónum ejus.
+
+Benedícite Dómino, omnes virtútes ejus : * minístri ejus, qui fácitis voluntátem ejus.
+
+Benedícite Dómino, ómnia ópera ejus : * in omni loco dominatiónis ejus, bénedic, ánima mea, Dómino.
+
+**Ant.** Multa magnália de Michaéle Archángelo, qui, fortis in prǽlio, fecit victóriam.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 18, 1-10*
+
+IN illo témpore : Accessérunt discípuli ad Jesum, dicéntes : Quis, putas, major est in regno cælórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 3 Comment. in cap. 18 Matthǽi*
+
+POst invéntum statérem, post tribúta réddita, quid sibi vult Apostolórum repentína interrogátio, Quis, putas, major est in regno cælórum? Quia víderant pro Petro et Dómino idem tribútum rédditum, ex æqualitáte prétii arbitráti sunt Petrum ómnibus Apóstolis esse prælátum, qui in redditióne tribúti Dómino fúerat comparátus; ídeo intérrogant, quis major sit in regno cælórum. Vidénsque Jesus cogitatiónes eórum et causas erróris intélligens, vult desidérium glóriæ, humilitátis contentióne, sanáre.
+
+℟. In conspéctu géntium nolíte timére; vos enim in córdibus vestris adoráte et timéte Dóminum; \* Angelus enim ejus vobíscum est. ℣. Stetit Angelus juxta aram templi, habens thuríbulum áureum in manu sua. — Angelus.
+
+**Bened.** Quorum festum.
+
+{RUBRIC: Si dicenda sit ix Lectio alicujus Officii commemorati, ex viii et ix Lectione fit una.}
+
+##### Lectio viii
+
+SI autem manus tua vel pes tuus scandalízat te, abscínde eum et prójice abs te. Necésse est quidem veníre scándala; væ tamen ei est hómini, qui, quod necésse est ut fiat in mundo, vítio suo facit ut per se fiat. Igitur omnis truncátur afféctus et univérsa propínquitas amputátur, ne per occasiónem pietátis unusquísque credéntium scándalis páteat. Si, inquit, ita est quis tibi conjúnctus, ut manus, pes, óculus; et est útilis atque sollícitus, et acútus ad perspiciéndum, scándalum autem tibi facit, et propter dissonántiam morum te pértrahit in gehénnam : mélius est ut et propinquitáte ejus et emoluméntis carnálibus cáreas, ne, dum vis lucrifácere cognátos et necessários, causam hábeas ruinárum.
+
+℟. Michaël Archángelus venit in adjutórium pópulo Dei, \* Stetit in auxílium pro animábus justis. ℣. Stetit Angelus juxta aram templi, habens thuríbulum áureum in manu sua. — Stetit in. Glória Patri. Stetit in.
+
+##### Lectio ix
+
+DIco vobis quia Angeli eórum in cælis semper vident fáciem Patris mei. Supra díxerat, per manum et pedem et óculum, omnes propinquitátes et necessitúdines, quæ scándalum fácere póterant, amputándas; austeritátem ítaque senténtiæ subjécto præcépto témperat, dicens : Vidéte ne contemnátis unum ex pusíllis istis. Sic, inquit, præcípio severitátem, ut commisceri cleméntiam dóceam. Quia Angeli eórum in cælis vident semper fáciem Patris. Magna dígnitas animárum, ut unaquǽque hábeat ab ortu nativitátis, in custódiam sui, Angelum delegátum. Unde légimus in Apocalýpsi Joánnis : Angelo Ephesi, et réliquárum ecclesiárum scribe hæc. Apóstolus quoque prǽcipit velári cápita, in ecclésiis, femínárum propter Angelos.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Antíphonæ}
+
+**Ant. 1** Stetit Angelus \* juxta aram templi, habens thuríbulum áureum in manu sua.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Dum prælliarétur \* Michaël Archángelus cum dracóne, audíta est vox dicéntium : Salus Deo nostro, allelúja.
+
+**Ant. 3** Archángele Míchaël, \* constítui te príncipem super omnes ánimas suscipiéndas.
+
+**Ant. 4** Angeli Dómini, \* Dóminum benedícite in ætérnum.
+
+**Ant. 5** Angeli, Archángeli, \* Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+**Capitulum**
+*Apoc. 1, 1-2*
+
+SIgnificávit Deus quæ opórtet fíeri cito, loquens per Angelum suum servo suo Joánni, qui testimónium perhíbuit verbo Dei, et testimónium Jesu Christi, quæcúmque vidit.

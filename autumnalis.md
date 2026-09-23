@@ -28512,3 +28512,75 @@ PRæsta, quæsumus, omnípotens Deus : ut, qui beáti Mennæ Mártyris tui natal
 {RUBRIC: Ad Horas Antíphona et Psalmi de Feria; ad Primam Léctio brevis Fungi sacerdótio, ut infra ad Nonam.}
 
 {RUBRIC: Sicúbi autem hoc Festum sub ritu duplíci I vel II clássis recolátur, Antíphonæ de Laudibus, ut supra, cum Psalmis de Dominica ut in Festis.}
+
+#### AD TERTIAM
+
+{RUBRIC: Capit. Eccli. 44, 16-17}
+
+ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus : et in témpore iracúndiæ factus est reconciliátio.
+
+℟. br. Amávit eum Dóminus, \* Et ornávit eum. Amávit. ℣. Stolam glóriæ índuit eum. Et. Glória Patri. Amávit. ℣. Elégit eum Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+**Oratio**
+
+DEus, qui cónspicis quia ex nulla nostra virtúte subsístimus : concéde propítius; ut, intercessióne beáti Martíni Confessóris tui atque Pontíficis, contra ómnia advérsa muniámur. Per Dóminum.
+
+#### AD SEXTAM
+
+{RUBRIC: Capitulum Eccli. 44, 20}
+
+NOn est invéntus símilis illi, qui conserváret legem Excélsi : ídeo jurejurándo fecit illum Dóminus créscere in plebem suam.
+
+℟. br. Elégit eum Dóminus \* Sacerdótem sibi. Elégit. ℣. Ad sacrificándum ei hóstiam laudis. Sacerdótem. Glória Patri. Elégit. ℣. Tu es sacérdos in ætérnum. ℟. Secúndum órdinem Melchísedech.
+
+#### AD NONAM
+
+{RUBRIC: Capit. Eccli. 45, 19-20}
+
+FUngi sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+℟. br. Tu es sacérdos \* In ætérnum. Tu. ℣. Secúndum órdinem Melchísedech. In. Glória Patri. Tu. ℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+#### IN II VESPERIS
+
+{RUBRIC: Antíphonæ de Laud. 794; Psalmi ut in I Vésperis de Communi Apóstoli [3], sed loco último dícitur Ps. 131 Meménto, Dómine. [69]}
+
+{RUBRIC: Capitulum et Hymnus de Communi. [70]}
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O beátum Pontíficem, \* qui totis viscéribus diligébat Christum Regem, et non formidábat impérii principátum! o sanctíssima ánima, quam etsi gládius persecutóris non ábstulit, palmam tamen martýrii non amísit!
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+{RUBRIC: Completorium de Feria.}
+
+---
+
+# Die 12 Novembris
+
+## S. Martini I
+
+{RUBRIC: Papæ et Mártyris [29] Semiduplex}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Martínum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+MArtínus, Tudérti in Umbria natus, ínitio pontificátus, et lítteris et legatiónibus missis óperam dedit, ut Paulum Constantinopolitánum patriárcham a nefária hǽresi ad cathólicæ fídei veritátem revocáret. Qui, Constánte imperatóre hærético fretus, eo améntiæ progréssus fúerat, ut Sedis apostólicæ legátos várie in ínsulas relegárit. Quo ejus scélere commótus Póntifex, coácto Romæ concílio centum quinque episcopórum, eum condemnávit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+##### Lectio v
+
+QUÆ causa fuit Constánti mitténdi in Itáliam Olýmpium exárchum, ut Martínum Pontíficem interficiéndum aut ad se perducéndum curáret. Igitur Olýmpius, Romam véniens, lictóri mandat ut Pontíficem, dum in basílica sanctæ Maríæ ad Præsépe Missárum solémnia celebráret, occíderet. Quod ubi lictor aggréditur, cæcus repénte factus est.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.

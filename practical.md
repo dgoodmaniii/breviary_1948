@@ -1459,6 +1459,36 @@ When many Offices of different rite and dignity occur, we want to know which one
 
 ### Points to be Considered
 
-In order to determine which is the *most important* Office, the following points are given to be
+In order to determine which is the *most important* Office, the following points are given to be considered in the *order* here stated (if the question cannot be solved by one, take the *next in order*).
+
+(a) *RITUS ALTIOR*; the Office of higher rank is preferred; thus, a double of the second class is preferred to an occurring double major. It is to be remembered, however, that there are Sundays, privileged ferials, vigils, and octaves, which exclude feasts of higher rite. Thus, for instance, the ordinary Sundays are only semi-doubles, but they are preferred even to doubles major. Thus, again, Ash Wednesday is only of simple rite, but, being a major privileged ferial, it is preferred to any feast whatsoever.
+
+(b) *MAJOR SOLEMNITAS*; this point is to be considered when, for example, the feast is celebrated with feriation[^105] ("*etiam in foro reducta vel sublata*") or with an octave. The reason of "greater solemnity" arising from an octave, is, however, to be taken into account only on the festival itself and on its octave-day, not on the days within the octave.
+
+(c) *RATIO PRIMARII*[^106] *aut Secundarii*; at the beginning of each volume of the Breviary a list of feasts is found arranged according to the order of
+
+[^105]: A list of the "*festa feriata*" will be found in the Breviary. Feriation — which refers to exterior solemnity — implies the obligation of hearing Mass and abstaining from servile work; in a word, feasts "celebrated with feriation" means feasts *of obligation* ("*feria*" originally meant a feast-day, a free day).
+[^106]: "As to the feasts of *Our Lord* and the *Blessed Virgin*, they are *primary*, whenever their object is of great importance, and is not implicitly included in another feast."— Vigourel, n. 109.
+
+primary and secondary.[^107] Let it be noted in passing, that the following feasts are primary[^108] doubles of the first class: the Titular and Dedication both of one's own church and of the cathedral (as well as the anniversaries of these dedication feasts); the principal patrons of a town, city, diocese, province, and nation; the titular (e. g., the Most Holy Redeemer) and Holy Founder (e. g., St. Alphonsus Liguori) of an Order or Congregation.
+
+Note also that the following are doubles major *primary*: the octave-day of any festival that is a primary double of the first class, and the feasts of less principal patrons.
+
+Days within privileged octaves of the third order, and days within common octaves, are all *secondary* (cf. D. 3886, ad 1).
+
+(d) *DIGNITAS PERSONALIS*; in solving difficulties by this point the following order of "personal dignity" must be observed: feasts of the Lord, of the Blessed Virgin, of the Angels, of St. John the Baptist, of St. Joseph, of the Apostles (including St. Barnabas), of the Evangelists.[^109] The feast of the dedication of any church is always primary, and a feast of the Lord.
+
+[^107]: The distinction between primary and secondary feasts also extends to doubles (major and minor) and semi-doubles, both in occurrence and concurrence.— D. 3837.
+[^108]: Other primary feasts (each according to its own rite) are the "birthday" or "quasi-birthday" of any saint. See 59, footnote. Other feasts of the same saint (e. g., the translation of his relics, his patronage, etc.,) are secondary.
+[^109]: All other saints are of equal dignity liturgically.
+
+(e) *PROPRIETAS FESTORUM*; a feast is said to be *proper* to a place if, leaving aside the titular and dedication of one's own church, it is a question of the principal patron of a place; the titular and holy Founder of an Order or Congregation; or also, the secondary patron of a place; or again, a saint (described in the martyrology or in its approved appendix) whose body — or any other prominent relic[^110] ("*insignis reliquia*") — is preserved in the place; or a saint who has special relations to the church, to the place, or to the body of persons ("*personarum cœtum*"). Any feast, proper in this way, is therefore — all things else being equal, — preferred to a feast of the Universal Church. Exception, however, must be made in favor of the following Offices (of the whole Church) which must be considered, and they really are proper to every place.
+
+1. Privileged Sundays, ferials, vigils, and octaves;
+2. Feasts that are primary doubles of the first class in the Universal Church.
+
+(f) Lastly may be considered the relative dignity according to which a pontiff-martyr precedes a martyr only; a martyr, a confessor, and so on. (Note the arrangement followed in the *Commune*.)
+
+[^110]: Prominent relics are the entire body or the head, arm, forearm, heart, tongue, hand, leg, or that part of the body in which the martyr suffered, provided the relic be entire and not small (canon 1281). Prominent relics of saints or blessed may not be kept in private houses and private oratories without explicit permission of the Ordinary (c. 1282).
 
 ---

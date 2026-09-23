@@ -25406,3 +25406,183 @@ Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
 **Ant.** Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, prǽdicans præcéptum ejus.
 
 **Ant.** Glória \* et honóre coronásti eum, Dómine : ómnia subjecísti sub pédibus ejus.
+
+**Psalmus 8**
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum : \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas : ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Glória et honóre coronásti eum, Dómine : ómnia subjecísti sub pédibus ejus.
+
+**Ant.** Elevámini, \* portæ æternáles, et introíbit Rex glóriæ.
+
+**Psalmus 23**
+
+DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens : Dóminus potens in prǽlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Elevámini, portæ æternáles, et introíbit Rex glóriæ.
+
+℣. Data est mihi omnis potéstas. ℟. In cælo et in terra.
+
+{RUBRIC: De Epístola beáti Pauli Apóstoli ad Colossénses}
+
+##### Lectio i
+*Cap. 1, 3-23*
+
+GRátias ágimus Deo, et Patri Dómini nostri Jesu Christi, semper pro vobis orántes, audiéntes fidem vestram in Christo Jesu, et dilectiónem quam habétis in sanctos omnes, propter spem quæ repósita est vobis in cælis, quam audístis in verbo veritátis evangélii, quod pervénit ad vos, sicut et in univérso mundo est, et fructíficat, et crescit, sicut in vobis, ex ea die qua audístis et cognovístis grátiam Dei in veritáte, sicut didicístis ab Epaphra, caríssimo consérvo nostro, qui est fidélis pro vobis miníster Christi Jesu, qui étiam manifestávit nobis dilectiónem vestram in spíritu.
+
+℟. Super sólium David et super regnum ejus sedébit in ætérnum : \* Et vocábitur nomen ejus Deus, Fortis, Princeps pacis. ℣. Multiplicábitur ejus impérium, et pacis non erit finis. — Et.
+
+##### Lectio ii
+
+IDeo et nos ex qua die audívimus, non cessámus pro vobis orántes, et postulántes ut impleámini agnitióne voluntátis ejus, in omni sapiéntia et intelléctu spiritáli; ut ambulétis digne Deo per ómnia placéntes; in omni ópere bono fructificántes, et crescéntes in sciéntia Dei; in omni virtúte confortáti secúndum poténtiam claritátis ejus, in omni patiéntia et longanimitáte cum gáudio grátias agéntes Deo Patri, qui dignos nos fecit in partem sortis sanctórum in lúmine, qui erípuit nos de potestáte tenebrárum, et tránstulit in regnum Fílii dilectiónis suæ, in quo habémus redemptiónem per sánguinem ejus, remissiónem peccatórum. Qui est imágo Dei invisíbilis, primogénitus omnis creatúræ; quóniam in ipso cóndita sunt univérsa in cælis et in terra, visibília et invisibília, sive throni, sive dominatiónes, sive principátus, sive potestátes : ómnia per ipsum et in ipso creáta sunt : et ipse est ante omnes, et ómnia in ipso constant.
+
+℟. Aspiciébam in visu noctis, et ecce in núbibus cæli Fílius hóminis veniébat : et datum est ei regnum et honor : \* Et omnis pópulus, tribus et linguæ sérvient ei. ℣. Potéstas ejus, potéstas ætérna, quæ non auferétur : et regnum ejus, quod non corrumpétur. — Et omnis.
+
+##### Lectio iii
+
+ET ipse est caput córporis Ecclésiæ, qui est princípium, primogénitus ex mórtuis, ut sit in ómnibus ipse primátum tenens; quia in ipso complácuit omnem plenitúdinem inhabitáre, et per eum reconciliáre ómnia in ipsum, pacíficans per sánguinem crucis ejus sive quæ in terris, sive quæ in cælis sunt. Et vos cum essétis aliquándo alienáti, et inimíci sensu in opéribus malis; nunc autem reconciliávit in córpore carnis ejus per mortem, exhibére vos sanctos, et immaculátos, et irreprehensíbiles coram ipso; si tamen permanétis in fide fundáti, et stábiles, et immóbiles a spe evangélii, quod audístis, quod prædicátum est in univérsa creatúra quæ sub cælo est, cujus factus sum ego Paulus miníster.
+
+℟. Tu Béthlehem Ephráta, párvulus in míllibus Juda : ex te mihi egrediétur qui sit dominátor in Israël : \* Et erit iste Pax. ℣. Egréssus ejus ab inítio, a diébus æternitátis : stabit, et pascet in fortitúdine Dómini. — Et erit. Glória Patri. Et erit.
+
+### In II Nocturno
+
+**Ant.** Sedébit \* Dóminus Rex in ætérnum : Dóminus benedícet pópulo suo in pace.
+
+**Psalmus 28**
+
+AFférte Dómino, fílii Dei : \* afférte Dómino fílios aríetum.
+
+Afférte Dómino glóriam et honórem, afférte Dómino glóriam nómini ejus : \* adoráte Dóminum in átrio sancto ejus.
+
+Vox Dómini super aquas, Deus majestátis intónuit : \* Dóminus super aquas multas.
+
+Vox Dómini in virtúte : \* vox Dómini in magnificéntia.
+
+Vox Dómini confringéntis cedros : \* et confrínget Dóminus cedros Líbani :
+
+Et commínuet eas tamquam vítulum Líbani : \* et diléctus quemádmodum fílius unicórnium.
+
+Vox Dómini intercidéntis flammam ignis : \* vox Dómini concutiéntis desértum : et commovébit Dóminus desértum Cades.
+
+Vox Dómini præparántis cervos, et revelábit condénsa : \* et in templo ejus omnes dicent glóriam.
+
+Dóminus dilúvium inhabitáre facit : \* et sedébit Dóminus rex in ætérnum.
+
+Dóminus virtútem pópulo suo dabit : \* Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Sedébit Dóminus Rex in ætérnum : Dóminus benedícet pópulo suo in pace.
+
+**Ant.** Virga directiónis, \* virga regni tui : proptérea pópuli confitebúntur tibi in ætérnum, et in sǽculum sǽculi.
+
+**Psalmus 44**
+
+ERuctávit cor meum verbum bonum : \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ, \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis : \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* poténtíssime.
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam : \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sǽculum sǽculi : \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem : \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis : \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astitit regína a dextris tuis in vestítu deauráto : \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam : \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum : \* quóniam ipse est Dóminus Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur : omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.
+
+Adducéntur Regi vírgines post eam : \* próximæ ejus afferéntur tibi.
+
+Afferéntur in lætítia et exsultatióne : \* adducéntur in templum Regis.
+
+Pro pátribus tuis nati sunt tibi fílii : \* constítues eos príncipes super omnem terram.
+
+Mémores erunt nóminis tui : \* in omni generatióne et generatiónem.
+
+Proptérea pópuli confitebúntur tibi in ætérnum : \* et in sǽculum sǽculi.
+
+**Ant.** Virga directiónis, virga regni tui : proptérea pópuli confitebúntur tibi in ætérnum, et in sǽculum sǽculi.
+
+**Ant.** Psállite Regi nostro, \* psállite : quóniam Rex magnus super omnem terram.
+
+**Psalmus 46**
+
+OMnes gentes, pláudite mánibus : \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis : \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis : \* et Gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam : \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo : \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite : \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus : \* psállite sapiénter.
+
+Regnábit Deus super gentes : \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham : \* quóniam dii fortes terræ veheménter eleváti sunt.
+
+**Ant.** Psállite Regi nostro, psállite : quóniam Rex magnus super omnem terram.
+
+℣. Afférte Dómino, famíliæ populórum. ℟. Afférte Dómino glóriam et impérium.
+
+{RUBRIC: Ex Lítteris Encýclicis Pii Papæ undécimi}
+
+##### Lectio iv
+*(Litt. Encycl. Quas primas, diéi 11 Decémbris 1925)*
+
+CUM Annus sacer non unam ad inlustrándum Christi regnum habúerit opportunitátem, vidémur rem factúri Apostólico múneri in primis consentáneam, si, plurimórum Patrum Cardinálium, Episcopórum fidéliúmque précibus, ad Nos aut singillátim aut commúniter delátis, concedéntes, hunc ipsum Annum peculiári festo Dómini Nostri Jesu Christi Regis in ecclesiásticam litúrgiam inducéndo clausérimus. Ut translátaverbi significatióne Rex appellarétur Christus ob summum excelléntiæ gradum, quo inter omnes res creátas præstat atque éminet, jam diu communitérque usu venit. Ita enim fit, ut regnáre is « in méntibus hóminum » dicátur non tam ob mentis áciem scientiǽque suæ amplitúdinem, quam quod ipse est Véritas, et veritátem ab eo mortáles hauríre atque obediénter accípere necésse est; « in voluntátibus » item « hóminum », quia non modo sanctitáti in eo voluntátis divínæ perfécta prorsus respóndet humánæ integritas atque obtemperátio, sed étiam líberæ voluntáti nostræ id permotióne instinctúque suo súbjicit, unde ad nobilíssima quæque exardescámus. «Córdium» dénique «Rex» Christus agnóscitur ob ejus «superemínentem sciéntiæ caritátem» et mansuetúdinem benignitatémque ánimos alliciéntem : nec enim quemquam usque ádeo ab universitáte géntium, ut Christum Jesum, aut amári aliquándo cóntigit aut amátum iri in pósterum contínget. Verum, ut rem préssius ingrediámur, nemo non videt, nomen potestatémque regis, própria quidem verbi significatióne, Christo hómini vindicári oportére; nam, nisi quátenus homo est, a Patre «potestátem et honórem et regnum» accepísse dici nequit, quandóquidem Dei Verbum, cui éadem est cum Patre substántia, non potest ómnia cum Patre non habére commúnia, proptereáque ipsum in res creátas univérsas summum atque absolutíssimum impérium.
+
+℟. Exsúlta satis, fília Sion; júbila, fília Jerúsalem : ecce Rex tuus véniet tibi justus et Salvátor : \* Et loquétur pacem géntibus. ℣. Potéstas ejus a mari usque ad mare : et a flumínibus usque ad fines terræ. — Et loquétur.

@@ -28236,3 +28236,85 @@ Miserére mei, \* et exáudi oratiónem meam.
 Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quæritis mendácium?
 
 Et scitóte quóniam mirificávit Dóminus sanctum suum : \* Dóminus exáudiet me cum clamávero ad eum.
+
+Irascímini, et nolíte peccáre : \* quæ dícitis in córdibus vestris, in cubílibus vestris compungímini.
+
+Sacrificáte sacrifícium justítiæ, et speráte in Dómino. \* Multi dicunt : Quis osténdit nobis bona?
+
+Signátum est super nos lumen vultus tui, Dómine : \* dedísti lætítiam in corde meo.
+
+A fructu frumménti, vini, et ólei sui \* multiplicáti sunt.
+
+In pace in idípsum \* dórmiam, et requiéscam;
+
+Quóniam tu, Dómine, singuláriter in spe \* constituísti me.
+
+**Ant.** Confído in Dómino quod fília mea, précibus tuis, reddénda sit sanitáti.
+
+**Ant.** Tetrádius, \* cógnita Dei virtúte, ad baptísmi grátiam pervénit.
+
+**Psalmus 5**
+
+VErba mea áuribus pércipe, Dómine, \* intéllige clamórem meum.
+
+Inténde voci oratiónis meæ, \* Rex meus et Deus meus.
+
+Quóniam ad te orábo : \* Dómine, mane exáudies vocem meam.
+
+Mane astábo tibi et vidébo : \* quóniam non Deus volens iniquitátem tu es.
+
+Neque habitábit juxta te malígnus : \* neque permanébunt injústi ante óculos tuos.
+
+Odísti omnes, qui operántur iniquitátem : \* perdes omnes, qui loquúntur mendácium.
+
+Virum sánguinum et dolósum abominábitur Dóminus : \* ego autem in multitúdine misericórdiæ tuæ,
+
+Introíbo in domum tuam : \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua : \* propter inimícos meos dírige in conspéctu tuo viam meam.
+
+Quóniam non est in ore eórum véritas : \* cor eórum vanum est.
+
+Sepúlcrum patens est guttur eórum, linguis suis dolóse agébant, \* júdica illos, Deus.
+
+Décidant a cogitatiónibus suis, secúndum multitúdinem impietátum eórum expélle eos, \* quóniam irritavérunt te, Dómine.
+
+Et læténtur omnes, qui sperant in te, \* in ætérnum exsultábunt : et habitábis in eis.
+
+Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíces justo.
+
+Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
+
+**Ant.** Tetrádius, cógnita Dei virtúte, ad baptísmi grátiam pervénit.
+
+**Ant.** O ineffábilem virum, \* per quem nobis tanta mirácula corúscant!
+
+**Psalmus 8**
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos, ópera digitórum tuórum : \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas : ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** O ineffábilem virum, per quem nobis tanta mirácula corúscant!
+
+℣. Elégit eum Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+##### Lectio iv
+
+MArtínus, Sabáriæ in Pannónia natus, cum décimum attigísset annum, invítis paréntibus ad ecclésiam confúgiens, in catechumenórum númerum adscríbi vóluit. Quíndecim annos natus in milítiam proféctus, primum in Constántii, deínde Juliáni exércitu militávit. Qui, cum nihil habéret præter arma et vestiméntum quo tegebátur, Ambiáni, páuperi ac nudo, ab eo peténti ut Christi nómine sibi eleemósynam tribúeret, partem chlámydis dedit. Cui sequénti nocte Christus, dimidiáta illa veste indútus, appáruit, hanc mittens vocem : Martínus catechúmenus hac me veste contéxit.
+
+℟. Oculis ac mánibus in cælum semper inténtus, \* Invíctum ab oratióne spíritum non relaxábat. ℣. Dum sacraménta offérret beátus Martínus, globus ígneus appáruit super caput ejus. — Invíctum.

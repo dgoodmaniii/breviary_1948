@@ -29906,4 +29906,53 @@ QUibus concitátus Trajánus, misit illuc qui Cleméntem, alligáta ad ejus coll
 
 ##### Lectio ix
 
-CLemens Románus discípulus beáti Petri, septem Urbis regiónes divísit septem notáriis, síngulas síngulis attríbuens, qui passiónes Mártyrum et res ab eis gestas, diligentíssime conquisítas, lítteris mandárent. Multa scripsit et ipse accuráte et salutáriter, quibus christiánam religiónem illustrávit.
+CLemens Románus discípulus beáti Petri, septem Urbis regiónes divísit septem notáriis, síngulas síngulis attríbuens, qui passiónes Mártyrum et res ab eis gestas, diligentíssime conquisítas, lítteris mandárent. Multa scripsit et ipse accuráte et salutáriter, quibus christiánam religiónem illustrávit. Cum autem doctrína ac vitæ sanctitáte multos ibi infidéles ad Christi fidem convertísset, jussu ejúsdem imperatóris alligáta ad ejus collum ánchora, in mare præcipitátus, martýrio coronátus est. Ejus corpus, Nicoláo primo Pontífice Romam translátum, in ecclésia, quæ ejus nómine ántea fúerat dicáta, honorífice recónditum est.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 16, 13-19*
+
+IN illo témpore : Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens : Quem dicunt hómines esse Fílium hóminis? Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ (Sermo 2 in anniversário assúmpt. suæ, ante médium)}
+
+CUM, sicut evangélica lectióne reserátum est, interrogásset Dóminus discípulos, quem ipsum (multis divérsa opinántibus) créderent; respondissétque beátus Petrus, dicens : Tu es Christus Fílius Dei vivi; Dóminus ait : Beátus es, Simon Bar-Jona, quia caro et sanguis non revelávit tibi, sed Pater meus, qui in cælis est : et ego dico tibi, quia tu es Petrus, et super hanc petram ædificábo Ecclésiam meam, et portæ ínferi non prævalébunt advérsus eam. Et tibi dabo claves regni cælórum : et quodcúmque ligáveris super terram, erit ligátum et in cælis : et quodcúmque sólveris super terram, erit solútum et in cælis. Manet ergo dispositío veritátis, et beátus Petrus, in accépta fortitúdine petræ persevérans, suscépta Ecclésiæ gubernácula non relíquit.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+##### Lectio viii
+
+IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus dicit; et omnis lingua, quæ confitétur Dóminum, magistério hujus vocis imbúitur. Hæc fides diábolum vincit et captivórum ejus víncula dissólvit. Hæc érutos mundo, ínserit cælo, et portæ ínferi advérsus eam prævalére non possunt. Tanta enim divínitus soliditáte muníta est, ut eam neque hærética tamquam corrúmpere právitas, nec pagána potúerit superáre perfídia. His ítaque modis, dilectíssimi, ratiónábili obséquio celebrétur hodiérna festívitas : ut in persóna humilitátis meæ ille intelligátur, ille honorétur, in quo et ómnium pastórum sollicitúdo, cum commendatárum sibi óvium custódia persevérat, et cujus étiam dígnitas in indígno heréde non déficit.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit : \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+{RUBRIC: Si ix Lectio alicújus Offícii commemoráti dicénda non sit, sumátur Lectio Cum ergo cohortatiónes de Communi. [28¹]}
+
+{RUBRIC: Pro S. Felicitate Mart.}
+
+{RUBRIC: Sermo sancti Gregórii Papæ (Homilía 3 in Evangelia)}
+
+##### Lectio ix
+
+BEáta Felícitas, cujus hódie natalítia celebrámus, septem fílios sic post se tímuit vivos in carne relínquere, sicut carnáles paréntes solent metúere ne mórtuos præmíttant. In persecutiónis enim labóre deprehénsa, filiórum corda in amóre supérnæ pátriæ prædicándo roborávit; et parturívit spíritu quos carne pepérerat, ut prædicatióne páreret Deo quos carne pepérerat mundo. Numquid ergo hanc féminam Mártyrem díxerim? Sed plus quam Mártyrem; quæ, septem pignóribus ad regnum præmíssis, tot ante se mórtuos transmísit. Ad pœnam prima venit, sed pervénit octáva.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+**Ant. 1** Oránte \* sancto Cleménte, appáruit ei Agnus Dei.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Non meis méritis \* ad vos me misit Dóminus, vestris corónis partícipem fíeri.
+
+**Ant. 3** Vidi supra montem \* Agnum stantem, de sub cujus pede fons vivus emánat.
+
+**Ant. 4** De sub cujus pede \* fons vivus emánat : flúminis ímpetus lætíficat civitátem Dei.
+
+**Ant. 5** Omnes gentes \* per gyrum credidérunt Christo Dómino.

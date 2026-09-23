@@ -34369,3 +34369,39 @@ IN illo témpore : Dixit Jesus discípulis suis : Vos estis sal terræ. Quod si 
 {RUBRIC: Liber 1 de Sermóne Dómini in monte, cap. 6}
 
 OSténdit Dóminus fátuos esse judicándos, qui, temporálium bonórum vel cópiam sectántes vel inópiam metuéntes, amíttunt ætérna, quæ nec dari possunt ab homínibus nec auférri. Itaque, si sal infatuátum fúerit, in quo saliétur? Id est, si vos, per quos condiéndi sunt quodámmodo pópuli, metu persecutiónum temporálium amiséritis regna cælórum; qui erunt hómines, per quos a vobis error auferátur, cum vos elégerit Deus, per quos errórem áuferat ceterórum?
+
+{RUBRIC: Pro Doctore Pontifice}
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+{RUBRIC: Pro Doctore non Pontifice}
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+ERgo ad níhilum valet sal infatuátum, nisi ut mittátur foras et calcétur ab homínibus. Non ítaque calcátur ab homínibus, qui pátitur persecutiónem; sed qui, persecutiónem timéndo, infatuátur. Calcári enim non potest nisi inférior; sed inférior non est, qui, quamvis córpore multa in terra sustíneat, corde tamen fixus in cælo est.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et implévit. **Glória Patri.** Et implévit.
+
+#### Lectio ix
+
+VOS estis lumen mundi. Quómodo dixit supérius sal terræ, sic nunc dicit lumen mundi. Nam neque supérius ista terra accipiénda est, quam pédibus corpóreis calcámus; sed hómines, qui in terra hábitant, vel étiam peccatóres, quorum condiéndis et exstinguéndis putóribus apostólicum salem Dóminus misit. Et hic mundum non cælum et terram, sed hómines, qui sunt in mundo, vel díligunt mundum, opórtet intélligi; quibus illuminándis Apóstoli missi sunt. Non potest cívitas abscóndi super montem pósita; id est, fundáta super insígnem magnámque justítiam, quam signíficat étiam ipse mons, in quo dísputat Dóminus.
+
+**Te Deum laudámus.**
+
+---
+
+# II Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vi
+*Cap. 5, 13-19*
+
+IN illo témpore : Dixit Jesus discípulis suis : Vos estis sal terræ. Quod si sal evanúerit, in quo saliétur? Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+{RUBRIC: Comment. in Matth., can. 4}
+
+VOS estis sal terræ. Quod si sal infatuátum fúerit, ad níhilum valet id quod saliétur.

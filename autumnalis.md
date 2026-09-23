@@ -18700,3 +18700,74 @@ LIber generatiónis Jesu Christi, fílii David, fílii Abraham. Abraham génuit 
 *Liber 1 Comment. in Matth., in initium*
 
 IN Isaía légimus : Generatiónem ejus quis enarrábit? Non ergo putémus Evangelístam Prophétæ esse contrárium, ut quod ille impossíbile dixit effátu, hic narráre incípiat : quia ibi de generatióne Divinitátis, hic de incarnatióne est dictum. A carnálibus autem cœpit, ut per hóminem, Deum díscere incipiámus. Fílii David, fílii Abraham. Ordo præpósterus, sed necessário commutátus. Si enim primum posuísset Abraham et póstea David, rursus ei repeténdus fúerat Abraham, ut generatiónis séries texerétur.
+
+℟. Beátam me dicent omnes generatiónes, \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia.
+
+**Bened.** Cujus festum cólimus, ipsa Virgo vírginum.
+
+##### Lectio viii
+
+IDeo autem, céteris prætermíssis, horum fílium nuncupávit, quia ad hos tantum facta est de Christo repromíssio. Ad Abraham : In sémine, inquit, tuo benedicéntur omnes gentes, quod est Christus. Ad David : De fructu ventris tui ponam super sedem tuam. Judas autem génuit Phares et Zaram de Thamar. Notándum, in genealógia Salvatóris nullam sanctárum assúmi mulíerum, sed eas quas Scriptúra reprehéndit; ut, qui propter peccatóres vénerat, de peccatóribus nascens, ómnium peccáta deléret. Unde et in consequéntibus Ruth Moabítis pónitur, et Bethsabée uxor Uríæ.
+
+℟. Felix namque es, sacra Virgo María, et omni laude digníssima : \* Quia ex te ortus est sol justítiæ, \* Christus Deus noster. ℣. Ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu : séntiant omnes tuum juvámen, quicúmque célebrant tuam sanctam Nativitátem. — Quia. Glória Patri. Christus.
+
+{RUBRIC: Pro S. Hadriano Martyre}
+
+##### Lectio ix
+
+HAdriánus, jussu Maximiáni imperatóris apud Nicomedíam pérsequens Christiános, cum sǽpius eórum in fídei confessióne et tormentórum perpessióne constántiam demirátus esset, veheménter ea re commótus, ad Christum sese convértit. Quam ob rem cum áliis vigínti tríbus Christiánis conjéctus est in cárcerem; ubi eum vísitans Natália uxor, quæ et ipsa ántea in Christum credíderat, ad martýrium incéndit. Itaque, e custódia edúctus, támdiu flagéllis cæsus est, donec intestína diffluerent. Postrémo, fractis crúribus, mánibus pedibúsque præcísis, una cum multis áliis martýrii certámen felíciter absólvit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Si autem Lectio ix alícujus Offícii commemoráti non sit dicénda, erit séquens}
+
+##### Lectio ix
+
+JAcob autem génuit Joseph. Hunc locum objécit nobis Juliánus Augústus de dissonántia Evangelistárum, cur Evangelísta Matthǽus Joseph díxerit fílium Jacob, et Lucas eum fílium appellárit Heli; non intélligens consuetúdinem Scripturárum, quod alter secúndum natúram, alter secúndum legem ei pater sit. Scimus enim hoc per Móysen, Deo jubénte præcéptum, ut, si frater aut propínquus absque líberis mórtuus fúerit, álius accípiat uxórem ad suscitándum semen fratris vel propínqui sui. Joseph vi rum Maríæ. Cum virum audíeris, suspício tibi non súbeat nuptiárum; sed recordáre consuetúdinis Scripturárum, quod sponsi viri, et sponsæ vocéntur uxóres.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Antíphonæ}
+
+**Ant. 1** Nativitas gloriósæ \* Vírginis Maríæ ex sémine Abrahæ, ortæ de tribu Juda, clara ex stirpe David.
+
+**Ant. 2** Natívitas est hódie \* sanctæ Maríæ Vírginis, cujus vita ínclyta cunctas illústrat ecclésias.
+
+**Ant. 3** Regáli ex progénie \* María exórta refúlget; cujus précibus nos adjuvári, mente et spíritu devotíssime póscimus.
+
+**Ant. 4** Corde et ánimo \* Christo canámus glóriam in hac sacra solemnitáte præcélsæ Genitrícis Dei Maríæ.
+
+**Ant. 5** Cum jucunditáte \* Nativitátem beátæ Maríæ celebrémus, ut ipsa pro nobis intercédat ad Dóminum Jesum Christum.
+
+**Capitulum**
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso minístrávi.
+
+**Hymnus**
+
+O Gloriósa vírginum,
+Sublímis inter sídera,
+Qui te creávit, párvulum
+Lacténte nutris úbere.
+
+Quod Heva tristis ábstulit,
+Tu reddis almo gérmine :
+Intrent ut astra flébiles,
+Cæli reclúdis cárdines.
+
+Tu Regis alti jánua
+Et aula lucis fúlgida :
+Vitam datam per Vírginem,
+Gentes redémptæ, pláudite.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+℣. Natívitas est hódie sanctæ Maríæ Vírginis.
+℟. Cujus vita ínclyta cunctas illústrat ecclésias.

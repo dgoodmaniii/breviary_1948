@@ -36985,4 +36985,18 @@ DIcet fortásse áliquis, cur vir sanctus et Salvatórem præséntem videns, non
 
 #### Lectio iv
 
-MOdo, quando impléntur ecclésiæ, putámus jucundári Judǽos? Ecclésiæ ædificántur, dedicántur, impléntur; quómodo illi jucundántur? Non solum non jucundántur, sed étiam confundúntur, et implétur vox exsultántis : Exaltábo te, Dómine, quóniam suscepísti me : et non jucundásti inimícos meos super me. Non jucundásti super me : si mihi credant, jucundábis in me. Ne multa dicámus, ad illa, quæ cantávimus, aliquándo veniámus. Quómodo dicit Chri-
+MOdo, quando impléntur ecclésiæ, putámus jucundári Judǽos? Ecclésiæ ædificántur, dedicántur, impléntur; quómodo illi jucundántur? Non solum non jucundántur, sed étiam confundúntur, et implétur vox exsultántis : Exaltábo te, Dómine, quóniam suscepísti me : et non jucundásti inimícos meos super me. Non jucundásti super me : si mihi credant, jucundábis in me. Ne multa dicámus, ad illa, quæ cantávimus, aliquándo veniámus. Quómodo dicit Chri-stus : Conscidísti saccum meum, et accinxísti me lætítia? Saccus ejus erat similitúdo carnis peccáti.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+#### Lectio v
+
+NON tibi viléscat, quod ait, Saccum meum : ibi erat inclúsum prétium tuum. Conscidísti saccum meum. Evásimus ad saccum istum. Conscidísti saccum meum. In passióne conscíssus est. Quómodo ergo Deo Patri dícitur : Conscidísti saccum meum? Quómodo Patri dicátur, vis audíre : Concidísti saccum meum? Quia próprio Fílio non pepércit, sed pro nobis ómnibus trádidit illum. Fecit enim per Judǽos nesciéntes, unde redimeréntur sciéntes et confunderéntur negántes. Nésciunt enim quid boni nobis operáti sunt malo suo. Suspénsus est saccus, et quasi lætátus est ímpius. Conscídit saccum láncea persecútor, et fudit prétium nostrum Redémptor.
+
+℟. O quam metuéndus est locus iste : \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+#### Lectio vi
+
+CAntet Christus Redémptor, gemat Judas vénditor, erubéscat Judǽus emptor. Ecce Judas véndidit, Judǽus emit; malum negótium egérunt, ambo damnáti sunt, seípsos perdidérunt vénditor et emptor. Dicat ergo caput nostrum, dicat pro córpore occíso, pro córpore dedicáto. Dicat, audiámus : Conscidísti saccum meum, et accinxísti me lætítia : id est, conscidísti mortalitátem meam, et accinxísti me immortalitáte et incorruptióne. Ut cantet tibi glória mea, et non compúngar. Quid est, Non compúngar? Jam contra me non ferat lánceam persecútor, Ut non compúngar. Christus enim surgens a mórtuis, jam non móritur, et mors illi ultra non dominábitur.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nescié-

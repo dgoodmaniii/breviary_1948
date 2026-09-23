@@ -32778,4 +32778,55 @@ DOminus diem judícii osténdit, quæ abstrúsam voluntátis nostræ consciénti
 
 #### Lectio viii
 
-ITaque id quod a se díctum est, cum libertáte fídei et confessiónis vult esse loquéndum. Idcírco, quæ in ténebris dicta sunt, prædicári jussit in lúmine; ut, quæ secréto áurium commíssa sunt, super tecta, id est, excélso loquéntium præcónio audiántur.
+ITaque id quod a se díctum est, cum libertáte fídei et confessiónis vult esse loquéndum. Idcírco, quæ in ténebris dicta sunt, prædicári jussit in lúmine; ut, quæ secréto áurium commíssa sunt, super tecta, id est, excélso loquéntium præcónio audiántur. Constánter enim Dei ingerénda cognítio est, et profúndum doctrínæ evangélicæ secrétum in lúmine prædicatiónis apostólicæ revelándum, non timéntes eos, quibus, cum sit licéntia in córpora, tamen in ánimam jus nullum est; sed timéntes pótius Deum, cui perdéndæ in gehénna et ánimæ et córporis sit potéstas.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit : \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui minas. **Glória Patri.** Qui minas.
+
+{RUBRIC: Vel}
+
+℟. Dómine, prævenísti eum in benedictiónibus dulcédinis : \* Posuísti in cápite ejus corónam de lápide pretióso. ℣. Vitam pétiit a te, et tribuísti ei longitúdinem diérum in sæculum sæculi. — Posuísti. **Glória Patri.** Posuísti.
+
+#### Lectio ix
+
+NOlíte timére eos, qui occídunt corpus. Nullus ígitur córporum nostrórum casus est pertiméscéndus, neque ullus interiméndæ carnis admitténdus est dolor; quando pro natúræ suæ atque oríginis conditióne resolúta, in substántiam spirituális ánimæ refundátur. Et quia doctrínis tálibus confirmátos opórtet líberam confiténdi Dei habére constántiam, étiam conditiónem, qua tenerémur, adjécit, negatúrum se eum Patri in cælis, qui se homínibus in terra negásset; eum porro, qui conféssus coram homínibus se fuísset, a se in cælis confiténdum; qualésque nos nóminis sui testes homínibus fuissémus, tali nos apud Deum Patrem testimónio ejus usúros.
+
+**Te Deum laudámus.**
+
+---
+
+# Commune plurimorum Martyrum
+
+### In I Vesperis
+
+**Ant. 1** Omnes Sancti, \* quanta passi sunt torménta, ut secúri pervenírent ad palmam martýrii!
+
+{RUBRIC: Psalmi ut in I Vésperis de Communi Apostolórum. [3]}
+
+**Ant. 2** Cum palma \* ad regna pervenérunt Sancti, corónas decóris meruérunt de manu Dei.
+
+**Ant. 3** Córpora Sanctórum \* in pace sepúlta sunt : et vivent nómina eórum in ætérnum.
+
+**Ant. 4** Mártyres Dómini, \* Dóminum benedícite in ætérnum.
+
+**Ant. 5** Mártyrum chorus, \* laudáte Dóminum de cælis, allelúja.
+
+**Capitulum** *Sap. 3, 1-3*
+
+JUstórum ánimæ in manu Dei sunt, et non tanget illos torméntum mortis. Visi sunt óculis insipiéntium mori; illi autem sunt in pace.
+
+**Hymnus**
+
+SAnctórum méritis ínclyta gáudia
+Pangámus, sócii, géstaque fórtia :
+Gliscens fert ánimus prómere cántibus
+Victórum genus óptimum.
+
+Hi sunt, quos fátue mundus abhórruit;
+Hunc fructu vácuum, flóribus áridum
+Contempsére tui nóminis ásseclæ,
+Jesu, Rex bone cælitum.
+
+Hi pro te fúrias atque minas truces
+Calcárunt hóminum, sǽvaque vérbera :
+His cessit lácerans fórtiter úngula,
+Nec carpsit penetrália.

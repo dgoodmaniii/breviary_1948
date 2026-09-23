@@ -34103,3 +34103,49 @@ Qui rite mundi gáudia
 Hujus cadúca réspuens,
 Æternitátis prǽmio
 Potítur inter Angelos.
+
+Hujus benígnus ánnue
+Nobis sequi vestígia :
+Hujus precátu, sérvulis
+Dimítte noxam críminis.
+
+\* Sit, Christe, Rex piíssime,
+Tibi, Patríque glória,
+Cum Spíritu Paráclito,
+Nunc et per omne sæculum.
+Amen.
+
+℣. Justum dedúxit Dóminus per vias rectas.
+℟. Et osténdit illi regnum Dei.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+**1 — Oratio**
+
+DA, quæsumus, omnípotens Deus : ut beáti N. Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+**2 — Alia Oratio**
+
+EXáudi, quæsumus, Dómine, preces nostras, quas in beáti N. Confessóris tui atque Pontíficis solemnitáte deférimus : et, qui tibi digne méruit famulári, ejus intercedéntibus méritis, ab ómnibus nos absólve peccátis. Per Dóminum.
+
+**3 — Pro Doctore Oratio**
+
+DEus, qui pópulo tuo ætérnæ salútis beátum N. minístrum tribuísti : præsta, quæsumus; ut, quem Doctórem vitæ habúimus in terris, intercessórem habére mereámur in cælis. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD TERTIAM
+
+**Capit.** *Eccli. 44, 16-17*
+
+ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus : et in témpore iracúndiæ factus est reconciliátio.
+
+℟. br. Amávit eum Dóminus, \* Et ornávit eum. Amávit. ℣. Stolam glóriæ índuit eum. Et. **Glória Patri.** Amávit. ℣. Elégit eum Dóminus sacerdótem sibi. ℟. Ad sacrificándum ei hóstiam laudis.
+
+#### AD SEXTAM
+
+**Capit.** *Eccli. 44, 20 et 22*
+
+NON est invéntus símilis illi, qui conserváret legem Excélsi : ídeo jurejurándo fecit illum Dóminus créscere in plebem suam.
+
+℟. br. Elégit eum Dóminus \* Sacerdótem sibi. Elégit. ℣. Ad sacrificándum ei hóstiam laudis. Sacerdótem. **Glória Patri.** Elégit. ℣. Tu es sacérdos in ætérnum. ℟. Secúndum órdinem Melchísedech.

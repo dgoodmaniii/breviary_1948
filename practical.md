@@ -1076,4 +1076,44 @@ In a word: on *modus solemnis* feasts everything is found in the *Proprium* (and
 [^70]: The numeration is according to the *Litany of the Saints*, as found at the end of any volume of the Breviary.
 [^71]: For example, Vigils of Christmas and the Epiphany, and on the Sundays within the octaves of certain feasts (e. g., the Epiphany). This will be noted in the Ordo.
 
+2. Days within *privileged* octaves[^72] (n. 64).
+3. Doubles of the first and second class.[^73]
+
+**58.** Where are the *Antiphons* for Lauds and the Little Hours taken from?
+
+They are found in the *Proprium* of the feast itself, e. g., on looking up the feast of the Epiphany[^74] there are found after Matins five antiphons under the heading: *Ad Laudes et per Horas*,[^75] which means that the antiphons there given will be used with the psalms taken from (Lauds I. of) Sunday in the Psalter, and that they will be also used (though simply announced) with the psalms of the Sunday Little Hours, as follows:
+
+1. At *Prime*, the *first* antiphon of Lauds is taken.
+
+[^72]: During ordinary octaves, as well as on octave-days, the psalms (with antiphons and the versicles of the nocturns) are taken from the current day in the Psalter; the remainder is said as found in the feast itself, excepting the Lessons and Responsoria of the first nocturn, which are taken from *Scripture occurring*, and the Lessons and Responsoria of the second and third nocturns, which are found proper (under the respective days within the octave). It is, therefore, seen that octaves fall under the ordinary rules, as already given, if the feast itself be considered as the *Commune*.
+[^73]: It sometimes happens that a feast may be only of double major rite and still be entitled to *modus solemnis* recitation for another reason, e. g., *St. John* (Apostle) *before the Latin gate* (May 6th), double major.
+[^74]: In the *Pars Hiemalis* some feasts attached to *dates* are found, not in the *Proprium Sanctorum*, as would be expected, but in the *Proprium de Tempore*, e. g., the Epiphany (January 6th), St. Thomas of Canterbury, etc. This, of course, is an exception to the general rule.
+[^75]: On some *ordinary* feasts (e. g., St. Lucy, Dec. 13th) special antiphons are given for some of the Hours (e. g., 5 Antt. "Ad Laudes" only) which entail the *modus solemnis* recitation *for those Hours only*.
+
+2. At *Terce*, the *second* antiphon.
+3. At *Sext*, the *third* antiphon.
+4. At *None*, the *fifth* (the fourth being entirely omitted).
+
+The antiphon accompanying the three psalms of Sunday Compline is never changed, whether the psalms be used as Sunday psalms or as *modus solemnis* psalms.
+
+**59.** When the psalms of Sunday Prime are said in an ordinary Sunday Office, they are:
+
+1. Confitemini Domino.
+2. Beati immaculati.
+3. Retribue servo tuo.
+
+Now, when these same psalms are to be said on a feast entitled to *modus solemnis* recitation (n. 57), the first one, viz., *Confitemini*, is replaced by psalm *Deus, in nomine tuo* (which is much shorter and more accommodated to important feasts), even if one of the feasts in question be celebrated on a Sunday.
+
+What is, therefore, meant by the following Rubric, usually given after Lauds on the above feasts, will now be clearly understood: "*Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.*"
+
+In a word, then, the Sunday psalms as found in the Psalter for all the Hours except Matins and Vespers are both *dominical* (i. e., for Sunday use) and *festal* (i. e., for use on above mentioned important feasts).
+
+Whenever the *entire* Vespers (or, at least, first Vesp. *a cap.*) preceding Compline is recited *modo solemni* then Compline itself takes its three psalms, with their one antiphon, from Sunday in the Psalter; this is what is meant by saying: "Compline follows Vespers," inasmuch as if Vespers is *modo solemni*, Compline also will be.
+
+In the preceding chapters several remarks have been made regarding the finding of different parts of the Office in particular.
+
+Note that in the hymn *ISTE CONFESSOR*, the third verse "*Meruit beatas scandere sedes*" is changed to "*Meruit supremos laudis honores*" when the letters *m. t. v.* (*mutatur tertius versus*) are found in the Ordo or in the *Proprium Sanctorum*. This change occurs when the feast of a confessor is not celebrated on the day (i. e., anniversary) of his death.[^76]
+
+[^76]: "The 'birthday' (*dies natalis*) of a saint is the day of his death, which is the day of his birth to everlasting life. The *quasi-birthday* (*dies quasi-natalis*) is the day appointed for the feast of the saint, when his 'birthday' is occupied by another feast."—Vigourel, *Manual of Liturgy*, n. 109 (note).
+
 ---

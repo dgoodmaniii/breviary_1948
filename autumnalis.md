@@ -21879,3 +21879,122 @@ DIco vobis quia Angeli eórum in cælis semper vident fáciem Patris mei. Supra 
 *Apoc. 1, 1-2*
 
 SIgnificávit Deus quæ opórtet fíeri cito, loquens per Angelum suum servo suo Joánni, qui testimónium perhíbuit verbo Dei, et testimónium Jesu Christi, quæcúmque vidit.
+
+**Hymnus**
+
+CHriste, sanctórum decus Angelórum,
+Gentis humánæ Sator et Redémptor,
+Cælitum nobis tríbuas beátas
+Scándere sedes.
+
+Angelus pacis Michaël in ædes
+Cælitus nostras véniat, serénæ
+Auctor ut pacis lacrimósa in orcum
+Bella reléget.
+
+Angelus fortis Gábriel, ut hostes
+Pellat antíquos, et amíca cælo,
+Quæ triumphátor státuit per orbem,
+Templa revísat.
+
+Angelus nostræ médicus salútis,
+Adsit e cælo Ráphaël, ut omnes
+Sanet ægrótos, dubiósque vitæ
+Dírigat actus.
+
+Virgo dux pacis Genitríxque lucis,
+Et sacer nobis chorus Angelórum
+Micántis semper assístat, simul et
+Régia cæli.
+
+Prǽstet hoc nobis Déitas beáta
+Patris, ac Nati, paritérque Sancti
+Spíritus, cujus résonat per omnem
+Glória mundum.
+Amen.
+
+℣. Stetit Angelus juxta aram templi. ℟. Habens thuríbulum áureum in manu sua.
+
+**Ad Bened. Ant.** Factum est \* siléntium in cælo, dum draco commítteret bellum; et Michaël pugnávit cum eo, et fecit victóriam, allelúja.
+
+**Oratio**
+
+DEus, qui, miro órdine, Angelórum ministéria hominúmque dispénsas : concéde propítius; ut, a quibus tibi ministrántibus in cælo semper assístitur, ab his in terra vita nostra muniátur. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** Stetit Angelus, ut supra. 586
+
+#### AD TERTIAM
+
+**Ant.** Dum prælliarétur, ut supra. 586
+
+**Capit.** Significávit Deus, ut supra. 586
+
+℟. br. Stetit Angelus \* Juxta aram templi. Stetit. ℣. Habens thuríbulum áureum in manu sua. Juxta. Glória Patri. Stetit.
+
+℣. Ascéndit fumus arómatum in conspéctu Dómini. ℟. De manu Angeli.
+
+#### AD SEXTAM
+
+**Ant.** Archángele Michaël, ut supra. 586
+
+**Capitulum**
+*Apoc. 5, 11-12*
+
+AUdívi vocem Angelórum multórum in circúitu throni, et animálium et seniórum; et erat númerus eórum míllia míllium, voce magna dicéntium : Salus Deo nostro.
+
+℟. br. Ascéndit fumus arómatum \* In conspéctu Dómini. Ascéndit. ℣. De manu Angeli. In. Glória Patri. Ascéndit.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+#### AD NONAM
+
+**Ant.** Angeli, Archángeli, \* Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, laudáte Dóminum de cælis, allelúja.
+
+**Capitulum**
+*Apoc. 12, 7-8*
+
+FActum est prǽlium magnum in cælo : Michaël et Angeli ejus præliabántur cum dracóne, et draco pugnábat et ángeli ejus : et non prævaluérunt, neque locus invéntus est eórum ámplius in cælo.
+
+℟. br. In conspéctu Angelórum \* Psallam tibi, Deus meus. In. ℣. Adorábo ad templum sanctum tuum, et confitébor nómini tuo. Psallam. Glória Patri. In.
+
+℣. Adoráte Deum. ℟. Omnes Angeli ejus.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vesperis 573, sed loco ultimi Psalmi dícitur Ps. 137 Confitébor ut ibidem pro II Vesperis notatur.}
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+**Ad Magnif. Ant.** Princeps gloriosíssime, \* Michaël Archángele, esto memor nostri : hic et ubíque semper precáre pro nobis Fílium Dei, allelúja, allelúja.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## Die 30 Septembris — S. Hieronymi
+
+{RUBRIC: Presb. Conf. et Eccl. Doct. [94] Duplex}
+
+**Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Hierónyme, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+
+DEus, qui Ecclésiæ tuæ in exponéndis sacris Scriptúris beátum Hierónymum, Confessórem tuum, Doctórem máximum providére dignátus es : præsta, quǽsumus; ut, ejus suffragántibus méritis, quod ore simul et ópere dócuit, te adjuvánte exercére valeámus. Per Dóminum.
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Sapiéntiam. [87]}
+
+### In II Nocturno
+
+##### Lectio iv
+
+HIerónymus, Eusébii fílius, Stridóne in Dalmátia, Constántio imperatóre, natus, Romæ adoléscens est baptizátus, et in liberálibus disciplínis a Donáto et áliis viris doctíssimis erudítus. Tum discéndi stúdio Gálliam peragrávit; ubi pios áliquot et in divínis lítteris erudítos viros cóluit, multósque sacros libros sua manu descrípsit. Mox, se in Grǽciam cónferens, philosóphia et eloquéntia instrúctus, summórum theológorum consuetúdine flóruit. In primis vero, Gregório Nazianzéno Constantinópoli óperam dedit; quo doctóre se sacras lítteras didicísse profitétur. Tum religiónis causa visit Christi Dómini incunábula, totámque lustrávit Palæstínam; quam peregrinatiónem, adhíbitis Hebræórum eruditíssimis, ad sacræ Scriptúræ intelligéntiam sibi multum profuísse testátur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.

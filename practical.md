@@ -1307,3 +1307,19 @@ Fer. IV. *alb.* S. Remigii Ep. C. *simpl.*— Ad Mat. Invit. Hymn. de Comm. Antt
 Wednesday. White. St. Remigius, Bishop Confessor. *Simple.*— In Matins the Invitatorium and hymn from the *Commune*. The antiphons, psalms, and versicle from the ferial. First and second Lessons (taken) from Scripture occurring. Third Lesson in proper place.— At Lauds everything from the ferial. From Capitulum as found in the *Commune*.— Suffragium said.— At the Little Hours everything is from the ferial. (At Prime *Preces dominicales*.) From Capitulum on is taken from the *Commune*. (Mass *Statuit*, Gloria, second Oration: Fidelium; third oration: *A cunctis*.) — Vespers (white) of the following (in the proper place).— Compline of the Sunday.
 
 ---
+
+# PRACTICAL THEORY
+
+# TITULAR AND DEDICATION OF CHURCHES
+
+## CHAPTER XI
+
+## THE TITULAR AND DEDICATION OF ONE'S OWN CHURCH
+
+### State of the Question
+
+**72.** Many a priest has been perplexed when, on opening the diocesan *Ordo* on the feast-day of the titular of his church, he finds there anything but directions suited to a feast which is a double of the first class (with an octave), such as titulars are. The church may be called after St. Augustine, and still the Ordo has it marked down as an ordinary *duplex* without any mention whatsoever of an octave. He may look the whole Ordo through without, perhaps, finding a solution to his difficulties. The conclusion is at once clear to him; he must needs make out his own Ordo for that week.
+
+Now, these cases are not rare. There are churches called by the names of practically every saint in the Calendar; thus, for example, we hear of St. Helen's Church, St. Paul's Church, St. Patrick's Church; we likewise hear of the Church of the Holy Rosary, of the Most Holy Redeemer, the Church of the Nativity, and so on. To solve these various problems, then, certain rules are laid down, since one is not allowed to treat the case as he
+
+---

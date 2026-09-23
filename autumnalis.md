@@ -36703,3 +36703,61 @@ VErum, ne cæcum illum, tamquam fastidiósi páuperum, cito reliquísse videámu
 {RUBRIC: Psalmi de Dominica.}
 
 **Ant. 2** Domus mea \* domus oratiónis vocábitur.
+
+**Ant. 3** Hæc est domus Dómini \* fírmiter ædificáta, bene fundáta est supra firmam petram.
+
+**Ant. 4** Bene fundáta est \* domus Dómini supra firmam petram.
+
+**Ant. 5** Lápides pretiósi \* omnes muri tui, et turres Jerúsalem gemmis ædificabúntur.
+
+**Capitulum** *Apoc. 21, 2*
+
+VIdi civitátem sanctam, Jerúsalem novam, descendéntem de cælo a Deo, parátam sicut sponsam ornátam viro suo.
+
+**Hymnus**
+
+ALto ex Olýmpi vértice
+Summi Paréntis Fílius,
+Ceu monte deséctus lapis
+Terras in imas décidens,
+Domus supérnæ et ínfimæ
+Utrúmque junxit ángulum.
+
+Sed illa sedes cælitum
+Semper resúltat láudibus,
+Deúmque trinum et únicum
+Jugi canóre prǽdicat :
+Illi canéntes júngimur
+Almæ Siónis ǽmuli.
+
+Hæc templa, Rex cæléstium,
+Imple benígno lúmine :
+Huc, o rogátus, ádveni,
+Plebísque vota súscipe,
+Et nostra corda júgiter
+Perfúnde cæli grátia.
+
+Hic ímpetrent fidélium
+Voces precésque súpplicum
+Domus beátæ múnera,
+Partísque donis gáudeant :
+Donec, solúti córpore,
+Sedes beátas ímpleant.
+
+Decus Parénti débitum
+Sit usquequáque Altíssimo,
+Natóque Patris único,
+Et ínclyto Paráclito,
+Cui laus, potéstas, glória
+Ætérna sit per sǽcula.
+Amen.
+
+℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram.
+
+**Ad Bened. Ant.** Zachǽe, \* festínans descénde, quia hódie in domo tua opórtet me manére. At ille festínans descéndit, et suscépit illum gaudens in domum suam. Hódie huic dómui salus a Deo facta est, allelúja.
+
+{RUBRIC: In Anniversário Dedicatiónis Ecclésiæ :}
+
+**Oratio**
+
+DEus, qui nobis per síngulos annos hujus sancti templi tui consecratiónis réparas diem, et sacris semper mystériis repræséntas íncolumes : exáudi preces pópuli tui, et præsta; ut, quisquis hoc templum benefícia petitúrus ingréditur, cuncta se im-

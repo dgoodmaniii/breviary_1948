@@ -1393,6 +1393,46 @@ Other Offices (doubles, semi-doubles, and simples) may not be transferred, but t
 
 **82.** When several Offices occur, one is always preferred and, therefore, celebrated, whereas the others may be all commemorated (= *inclusive occurrence*), or they may be transferred (= *exclusive occurrence*) according to the prescriptions of the Rubrics. Some, again, may be transferred, and others merely commemorated, or even entirely omitted that year. When doubles and semi-doubles are thus merely commemorated, they are said to be simplified.
 
-**83.** When we say that a certain office is *impeded*, we mean that it may not be celebrated on its
+**83.** When we say that a certain office is *impeded*, we mean that it may not be celebrated on its own proper day ("*sedes propria*"), but that it is either transferred, simplified, or entirely omitted. If a certain Office is impeded in the same way every year, it is said to be *perpetually impeded*. If it is indeed impeded, but rather by accident — not in the same manner each successive year — it is then said to be *accidentally impeded*.
+
+---
+
+## CHAPTER XII
+
+## OCCURRENCE AND TRANSLATION
+
+**84.** When several Offices fall on the same day, it is important to know:
+
+1st, what Office will be preferred;
+2d, what Offices will be transferred; and
+3d, to what day will they be transferred;
+4th, what Offices will be merely commemorated (i. e., simplified) or entirely omitted.
+
+### General Rules
+
+**85.** (a) There are Offices which are always celebrated the day on which they fall, no matter what other Offices may occur; these are:
+
+1st, major Sundays of the first class;[^101]
+2d, major privileged ferials;
+3d, privileged vigils of the first class;
+4th, privileged octaves (i. e., each day within such octave as well as the octave-day itself) of the first order;[^102]
+5th, the feast of the Circumcision (although it is only a double of the second class);
+
+[^101]: Do not take "first class" as meaning "double of the first class."
+[^102]: A list of all these privileged Offices is given in n. 62 f.
+
+6th, All Souls' Day (except when it falls on a Sunday, in which case it is always celebrated on the following day).
+
+(b) Primary (n. 88, c) doubles of the first class celebrated in the Universal Church[^103] are likewise celebrated the day on which they fall, provided none of them come in occurrence with the Offices just given in (a).
+
+(c) *Common Sundays*, called "*Dominicæ per annum*" (i. e., those that do not come under the heading of "major Sundays"), are preferred to all occurring Offices save doubles of the first or second class, or any feast of the Lord having nine Lessons in Matins, and also the privileged octave-days of the Lord.
+
+[^103]: Feasts celebrated in the Universal Church are those found in the Calendar (at the beginning of each volume of the Breviary) or in the *Proprium de Tempore*. It may be here usefully stated that all doubles of the first class found in the places just referred to are primary, with one exception, viz., the feast of the Sacred Heart (celebrated on the Friday following the octave of Corpus Christi), which is secondary.
+
+### Other Rules
+
+**86.** (a) *Major Sundays of the second class* are preferred to any feast whatsoever, with the exception of doubles of the first class.
+
+(b) *Privileged octaves of the second order* are preferred — on days within the octave — to any feast whatsoever, excepting doubles of the first class; and — on the octave-day — to all doubles of
 
 ---

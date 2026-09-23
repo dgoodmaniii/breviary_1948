@@ -27856,4 +27856,61 @@ BEáti éritis, inquit, cum vobis maledícent, et persequéntur vos, et dicent o
 
 ##### Lectio viii
 
-NON enim ista pérpeti fructuósum est, sed ista pro Christi nómine non solum æquo ánimo, sed étiam cum exsultatióne toleráre. Nam multi hærétici, nómine christiáno ánimas decipiéntes, multa tália patiúntur; sed ídeo excludúntur ab ista mercéde, quia non dictum est tantum : Beáti qui persecutiónem patiúntur, sed ádditum est, Propter justítiam. Ubi autem sana fides non est, non potest esse justítia; quia, Justus ex fide vivit. Neque schismátici áliquid sibi ex ista mercéde promíttant; quia simíliter, ubi cáritas non est, non potest esse justítia.
+NON enim ista pérpeti fructuósum est, sed ista pro Christi nómine non solum æquo ánimo, sed étiam cum exsultatióne toleráre. Nam multi hærétici, nómine christiáno ánimas decipiéntes, multa tália patiúntur; sed ídeo excludúntur ab ista mercéde, quia non dictum est tantum : Beáti qui persecutiónem patiúntur, sed ádditum est, Propter justítiam. Ubi autem sana fides non est, non potest esse justítia; quia, Justus ex fide vivit. Neque schismátici áliquid sibi ex ista mercéde promíttant; quia simíliter, ubi cáritas non est, non potest esse justítia. Diléctio enim próximi malum non operátur; quam si habérent, non dilaniárent corpus Christi, quod est Ecclésia.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti. Glória Patri. Isti.
+
+{RUBRIC: Pro Ss. Quátuor Coronátis Martýribus}
+
+##### Lectio ix
+
+SEvérus, Severiánus, Carpóphorus, et Victorínus fratres, in persecutióne Diocletiáni, deórum cultum líbere detestántes, plumbátis cæsi, in verbéribus vitam pro Christi nómine profudérunt. Quorum córpora, cánibus objécta, cum ab illis intácta diu fuíssent, subláta a Christiánis, via Lavicána tértio ab Urbe lápide, in arenária sepeliúntur prope sepúlcrum sanctórum Mártyrum Cláudii, Nicóstrati, Symphoriáni, Castórii et Simplícii, qui eódem imperatóre passi erant; quod, cum essent summi sculptóres, nullo modo addúci potúerant ut idolórum státuas fácerent, et, ad solis simulácrum ducti, ut illud venerarántur, numquam commissúros se dixérunt ut adorárent ópera mánuum hóminum. Quam ob rem in cárcerem conjécti, cum ibi multos dies in eódem propósito perstitíssent, primum scorpiónibus cæsi, deínde, vivi plúmbeis lóculis inclúsi, in flumen dejiciúntur. Exstat in Urbe ecclésia sub nómine sanctórum Quátuor Coronatórum, quorum diu ignóta nómina divínitus póstea patefácta sunt; ubi non solum illórum quátuor, sed étiam horum quinque Mártyrum córpora honorífice sepúlta sunt, et eórum festívitas sexto Idus Novémbris celebrátur.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Ad Laudes, fit Commemoratio Ss. Quátuor Coronatórum Mm. :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio tantum præcedéntis.}
+
+---
+
+# Die 9 Novembris
+
+## In Dedicatione Archibasilicæ Sanctissimi Salvatoris
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Comm. Dedicat. Ecclésiæ [140], præter Lectiónes I et II Nocturni, ut infra.}
+
+{RUBRIC: In I Vesp. fit Com. præced. :}
+
+**Ant.** O quam gloriósum est regnum in quo cum Christo gaudent omnes Sancti, amícti stolis albis sequúntur Agnum quocúmque íerit!
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui nos ómnium Sanctórum tuórum mérita sub una tribuísti celebritáte venerári : quæsumus, ut desiderátam nobis tuæ propitiatiónis abundántiam, multiplicátis intercessóribus, largiáris. Per Dóminum.
+
+### In I Nocturno
+
+{RUBRIC: De libro Apocalýpsis beáti Joánnis Apóstoli}
+
+##### Lectio i
+*Cap. 21, 9-18*
+
+ET venit unus de septem Angelis habéntibus phíalas plenas septem plagis novíssimis et locútus est mecum dicens : Veni et osténdam tibi sponsam uxórem Agni. Et sústulit me in spíritu in montem magnum et altum et osténdit mihi civitátem sanctam Jerúsalem, descendéntem de cælo a Deo, habéntem claritátem Dei, et lumen ejus símile lápidi pretióso tamquam lápidi jáspidis, sicut crystállum.
+
+℟. In dedicatióne templi decantábat pópulus laudem : \* Et in ore eórum dulcis resonábat sonus. ℣. Fundáta est domus Dómini supra vérticem móntium, et vénient ad eam omnes gentes. — Et.
+
+##### Lectio ii
+
+ET habébat murum magnum et altum habéntem portas duódecim et in portis Angelos duódecim et nómina inscrípta, quæ sunt nómina duódecim tríbuum filiórum Israël. Ab Oriénte portæ tres et ab Aquilóne portæ tres et ab Austro portæ tres et ab Occásu portæ tres.

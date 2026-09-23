@@ -34915,4 +34915,28 @@ GRandis fidúcia! Petrus piscátor erat, dives non fúerat, cibos manu et arte q
 
 #### Lectio viii
 
-IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quando et mórtui de corruptióne resúrgent incorrúpti), sedébitis et vos in sóliis judicántium, condemnántes duódecim tribus Israël; quia, vobis credéntibus, illi crédere noluérunt.
+IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quando et mórtui de corruptióne resúrgent incorrúpti), sedébitis et vos in sóliis judicántium, condemnántes duódecim tribus Israël; quia, vobis credéntibus, illi crédere noluérunt. omnis, qui reliquerit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum accípiet, et vitam ætérnam possidébit. Locus iste cum illa senténtia cóngruit, in qua Salvátor lóquitur : Non veni pacem míttere, sed gládium. Veni enim separáre hóminem a patre suo, et matrem a fília, et nurum a socru : et inimíci hóminis doméstici ejus. Qui ergo, propter fidem Christi et prædicatiónem Evangélii, omnes afféctus contémpserint atque divítias et sæculi voluptátes : isti céntuplum recípient, et vitam ætérnam possidébunt.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. **Glória Patri.** Et.
+
+#### Lectio ix
+
+EX occasióne hujus senténtiæ quidam introdúcunt mille annos post resurrectiónem, dicéntes, tunc nobis céntuplum ómnium rerum quas dimísimus, et vitam ætérnam esse reddéndam; non intellígentes, quod, si in céteris digna sit repromíssio, in uxóribus appáreat turpitúdo, ut, qui unam pro Dómino dimíserit, centum recípiat in futúro. Sensus ergo iste est : Qui carnália pro Salvatóre dimíserit, spirituália recípiet; quæ comparatióne et mérito sui ita erunt, quasi si parvo número centenárius númerus comparétur.
+
+**Te Deum laudámus.**
+
+---
+
+# II Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 11, 25-30*
+
+IN illo témpore : Respóndens Jesus dixit : Confíteor tibi, Pater, Dómine cæli et terræ, quia abscondísti hæc a sapiéntibus et prudéntibus, et revelásti ea párvulis. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi}
+{RUBRIC: Sermo 10 de verbis Dómini}
+
+VEníte ad me, omnes qui laborátis. Quare enim omnes laborámus, nisi quia sumus hómines mortáles, frágiles, infírmi, lútea vasa portántes, quæ fáciunt ínvicem angústias? Sed, si angustiántur vasa carnis, dilaténtur spátia caritátis.

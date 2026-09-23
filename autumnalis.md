@@ -34149,3 +34149,43 @@ ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus
 NON est invéntus símilis illi, qui conserváret legem Excélsi : ídeo jurejurándo fecit illum Dóminus créscere in plebem suam.
 
 ℟. br. Elégit eum Dóminus \* Sacerdótem sibi. Elégit. ℣. Ad sacrificándum ei hóstiam laudis. Sacerdótem. **Glória Patri.** Elégit. ℣. Tu es sacérdos in ætérnum. ℟. Secúndum órdinem Melchísedech.
+
+#### AD NONAM
+
+**Capit.** *Eccli. 45, 19-20*
+
+FUngi sacerdótio, et habére laudem in nómine ipsíus, et offérre illi incénsum dignum in odórem suavitátis.
+
+℟. br. Tu es sacérdos \* In ætérnum. Tu. ℣. Secúndum órdinem Melchísedech. In. **Glória Patri.** Tu. ℣. Justum dedúxit Dóminus per vias rectas. ℟. Et osténdit illi regnum Dei.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vésperis [69], sed loco último dícitur Psalmus 131 Meménto, ut ibidem pro II Vésperis notátur.}
+
+℣. Justum dedúxit Dóminus per vias rectas.
+℟. Et osténdit illi regnum Dei.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum : stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+{RUBRIC: Sequens Antiphona dícitur ad Magníficat in II Vésperis pro solis Summis Pontíficibus. Si vero agénda sit Commemorátio altérius Summi Pontíficis, súmitur Antíphona Amávit, ut supra.}
+
+**Ant.** Dum esset Summus Póntifex, \* terréna non métuit, sed ad cæléstia regna gloriósus migrávit.
+
+{RUBRIC: Completorium de Dominica.}
+
+{RUBRIC: Si occurrat celebrári Festum plúrium Pontíficum et Confessórum, Offícium fit ut supra : sed in Oratióne et Sermóne ea, quæ habéntur in singulári dicántur in plúrali; et in I Nocturno legántur sequéntes Lectiónes de Scriptúra.}
+
+{RUBRIC: De libro Ecclesiástici}
+
+#### Lectio i
+*Cap. 44, 1-15*
+
+LAudémus viros gloriósos et paréntes nostros in generatióne sua. Multam glóriam fecit Dóminus magnificéntia sua a sæculo. Dominántes in potestátibus suis hómines magni virtúte, et prudéntia sua prǽditi, nuntiántes in prophétis dignitátem prophetárum, et imperántes in præsénti pópulo, et virtúte prudéntiæ pópulis sanctíssima verba. In perítia sua requiréntes modos músicos, et narrántes cármina scripturárum.
+
+{RUBRIC: Pro Conf. Pont. et non Pont.}
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam : \* Intra in gáudium Dómini tui. ℣. Dómine, quinque talénta tradidísti mihi, ecce, ália quinque superlucrátus sum. — Intra.
+
+#### Lectio ii
+
+HOmines dívites in virtúte, pulchritúdinis stúdium habéntes, pacificántes in dómibus suis.

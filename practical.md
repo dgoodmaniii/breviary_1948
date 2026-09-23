@@ -1806,4 +1806,71 @@ If his companions are likewise described in the Calendar as doubles of the first
 
 What has just been said of a titular saint and his companions holds good also for the associates of the *principal patron* of a place, or of any other saint whose feast is anywhere celebrated as a double of the first or second class, if his feast must be regarded as a "festum *proprium*" in the sense explained in n. 88 (e).
 
+### Secondary Patron
+
+**110.** If a *secondary patron* (or any other "Sanctus *proprius*"), whose feast is of double major or minor, or semi-double rite, is likewise described in the Calendar with companions whose feast is of simple rite, then the feast of the secondary patron is celebrated with a commemoration of the companions, according to the Rubrics.
+
+If, however, there exists between them a necessary reason of consanguinity or affinity, or if they died in the same place, at the same time, and for the same cause, then the secondary patron (or other "Sanctus proprius") is not separated from his companions, but the one feast is celebrated for all, "*sub ritu qui Patrono aut Sancto proprio competat*" (New Rubrics, tit. ix., 5). The same is also done if *all* (for any reason whatsoever) are inscribed in the Calendar as doubles major or minor, or as semi-doubles. In this case, however, the name and deeds of the "Sanctus proprius," which are separated, are preferred to the name and deeds of his companions, in the Oration and in the Lessons of the second nocturn.
+
+---
+
+## CHAPTER XIX
+
+## PRACTICAL RECAPITULATION
+
+**111.** The feast of the titular, being a double of first class with a common octave, must be always celebrated when it falls, except when it *occurs* with any of the following Offices:
+
+1. Primary doubles of the first class celebrated in the Universal Church.
+2. All Souls' Day (even when this day accidentally happens to be the third of November).
+3. Feast of the Circumcision ("New Rubrics," notanda, 13).
+4. Major Sundays of the first class:[^129]
+
+&nbsp;&nbsp;&nbsp;&nbsp;First Sunday of Advent,
+&nbsp;&nbsp;&nbsp;&nbsp;First Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Second Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Third Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Fourth Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Passion Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Palm Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Easter Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Low Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Pentecost Sunday.
+
+[^129]: Do not confound the words "first class" with "doubles of the first class."
+
+5. Major privileged ferials:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ash Wednesday,
+&nbsp;&nbsp;&nbsp;&nbsp;Monday of Holy Week,[^130]
+&nbsp;&nbsp;&nbsp;&nbsp;Tuesday of Holy Week,
+&nbsp;&nbsp;&nbsp;&nbsp;Wednesday of Holy Week.
+
+6. Privileged vigils of the first class:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vigil of Christmas,
+&nbsp;&nbsp;&nbsp;&nbsp;Vigil of Pentecost.
+
+7. Privileged octaves of the first order:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Octave of Easter,
+&nbsp;&nbsp;&nbsp;&nbsp;Octave of Pentecost.
+
+8. Privileged octave-days of the second order:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Octave-day of the Epiphany,
+&nbsp;&nbsp;&nbsp;&nbsp;Octave-day of Corpus Christi.
+
+**112.** If, therefore, the feast of the titular falls on any of those days, it is to be transferred, with its octave, to the first following day which is not:
+
+1st, a Sunday;
+2d, a double of first or second class.
+
+[^130]: The remaining days of Holy Week are primary doubles of first class in the Universal Church.
+
+Should the feast of the titular fall within Holy Week or within the octave of Easter, it is then transferred to the first free day (as above) following Low Sunday; if the feast of the titular falls on the vigil or during the octave of Pentecost, it is transferred to the first free day after Trinity Sunday.
+
+### During Octave of Titular
+
+**113.** Now, since the feast of the titular is usually celebrated with a *common octave*, it may be given
+
 ---

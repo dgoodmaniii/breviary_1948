@@ -36940,3 +36940,24 @@ ATténdite in psalmo dedicatiónis, quem modo cantávimus, ex ruína ædificiór
 CUjus ánima jam ab ínferis éruta est, nisi de qua dictum est álio loco : Non derelínques ánimam meam in inférno? Propónitur dedicátio, et cantátur liberátio, cánticum dedicatiónis domus, et dícitur : Exaltábo te, Dómine, quóniam suscepísti me : et non jucundásti inimícos meos super me. Atténdite, qui se putábant occidísse Christum, vicísse tamquam inimícum, perdidísse quasi hóminem céteris símilem atque mortálem.
 
 ℟. O quam metuéndus est locus iste : \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere non est.
+
+#### Lectio vi
+
+REsurréxit tértia die, et ejus vox est : Exaltábo te, Dómine, quóniam suscepísti me. Atténdite Apóstolum dicéntem : Propter quod eum exaltávit. Et non jucundásti inimícos meos super me. Ipsi quidem in Christi morte jucundabántur, sed in ejus resurrectióne, ascensióne, prædicatióne áliqui compungebántur. In ejus ergo prædicatióne, et per Apostolórum constántiæ diffamatiónem áliqui compungebántur et convertebántur; áliqui obdurabántur et confundebántur; nulli tamen jucundabántur.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nesciébam. ℣. Cumque evigilásset Jacob de somno ait. — Vere. **Glória Patri.** Vere.
+
+### In III Nocturno
+
+**Léctio sancti Evangélii secúndum Lucam**
+
+**Lectio vii** *Cap. 19, 1-10*
+
+IN illo témpore : Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus : et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+**Homilía sancti Máximi Epíscopi**
+*Sermo 100, de Zachǽo 1*
+
+PÉruit Zachǽus divítibus quibúsque cæléstem jánuam, dum eos dócuit hoc ipso perveníre ad regnum, quo arcebátur a regno; scílicet ut substántia, quæ eis exprobrabátur ad perníciem, profíceret ad salútem. Multum ergo Zachǽus divítibus cóntulit, ut eos fáceret in ætérnum suas divítias possidére, ut qui hic numquam páuperes fuérunt, nec essent in futúro mendíci, sed quadam lucratíva commutatióne recíperent pro parvis magna, pro terrénis cæléstia, pro temporálibus sempitérna. Lucratíva plane commutátio est nolle habére quod póssides, ut possis obtinére quod non habes, et jactúram fácere quamdam relinquéndæ pecúniæ, ut quæstum cápias semper grátiæ possidéndæ.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus : in ea omnis qui petit, áccipit; et qui quærit, invénit; \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quærite, et inveniétis. — Et.

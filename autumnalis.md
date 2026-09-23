@@ -30269,4 +30269,81 @@ SIlvéster, Auxími in Picéno nóbili génere ortus, puerílem ætátem lítter
 
 ##### Lectio ix
 
-PEtrus, epíscopus Alexándriæ, post Theónam virum sanctíssimum, sanctitátis et doctrínæ splendóre non solum illustrávit Ægýptum, sed toti luxit Ecclésiæ Dei. Qui in persecutióne Maximiáni Galérii illam témporum acerbitátem ita pértulit, ut multi, admirábilem ejus patiéntiam intuéntes, plúrimum in christiána virtúte profícerent. Is primus Arium diáconum Alexandrínum, propter schisma Meletiánum cui favébat, a fidélium communióne sejúnxit. Ad eum, cápitis ab eódem Maximiáno damnátum, in cárcere cum Achíllas et Alexánder presbýteri deprecatóres Arii veníssent, respóndit, noctu apparuísse sibi Jesum veste discíssa, causámque rei scitánti dixísse : Arius vestem meam, quæ est Ecclésia, dilacerávit. Quibus étiam prædícens fore, ut sibi in episcopátu succéderent, præcépit, ne umquam Arium in communiónem recíperent, quem Deo mórtuum esse sciret. Et hanc divínam prænotiónem veram fuísse, non diu post rei probávit evéntus.
+PEtrus, epíscopus Alexándriæ, post Theónam virum sanctíssimum, sanctitátis et doctrínæ splendóre non solum illustrávit Ægýptum, sed toti luxit Ecclésiæ Dei. Qui in persecutióne Maximiáni Galérii illam témporum acerbitátem ita pértulit, ut multi, admirábilem ejus patiéntiam intuéntes, plúrimum in christiána virtúte profícerent. Is primus Arium diáconum Alexandrínum, propter schisma Meletiánum cui favébat, a fidélium communióne sejúnxit. Ad eum, cápitis ab eódem Maximiáno damnátum, in cárcere cum Achíllas et Alexánder presbýteri deprecatóres Arii veníssent, respóndit, noctu apparuísse sibi Jesum veste discíssa, causámque rei scitánti dixísse : Arius vestem meam, quæ est Ecclésia, dilacerávit. Quibus étiam prædícens fore, ut sibi in episcopátu succéderent, præcépit, ne umquam Arium in communiónem recíperent, quem Deo mórtuum esse sciret. Et hanc divínam prænotiónem veram fuísse, non diu post rei probávit evéntus. Dénique, duodécimo sui episcopátus anno, sexto Kaléndas Decémbris, abscísso cápite, ad martýrii corónam evolávit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+CLementíssime Deus, qui sanctum Silvéstrum Abbátem, sǽculi hujus vanitátem in apérto túmulo pie meditántem, ad erémum vocáre, et præcláris vitæ méritis decoráre dignátus es : te súpplices exorámus; ut, ejus exémplo terréna despiciéntes, tui consórtio perfruámur ætérno. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio S. Petri Alexandríni Ep. et Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+**Oratio**
+
+INfirmitátem nostram réspice, omnípotens Deus : et, quia pondus própriæ actiónis gravat, beáti Petri Mártyris tui atque Pontíficis intercéssio gloriósa nos prótegat. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+---
+
+# Die 28 Novembris
+
+{RUBRIC: ¶ Si hódie fúerit Sábbatum, fit Offícium de Vigília anticipáta S. Andréæ Apóstoli, ut sequénti die notátur, omíssa tamen Commemoratióne S. Saturníni Mart., quæ tunc fit in Offício Dominícæ sequéntis.}
+
+---
+
+# Die 29 Novembris
+
+## Pro Commemoratione S. Saturnini Mart.
+
+{RUBRIC: In Vésperis præced. diéi :}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+**Oratio**
+
+DEus, qui nos beáti Saturníni Mártyris tui concédis natalítio pérfrui : ejus nos tríbue méritis adjuvári. Per Dóminum.
+
+---
+
+## In Vigilia S. Andreae Apostoli
+
+{RUBRIC: Officium fit de Feria, ut pro Vigiliis Apostolórum in Communi [1], præter Lectiónes et Orationem ut infra :}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio i
+*Cap. 1, 35-51*
+
+IN illo témpore : Stabat Joánnes et ex discípulis ejus duo. Et respíciens Jesum ambulántem, dicit : Ecce Agnus Dei. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi (Tract. 7 in Joann., post init.)}
+
+QUia talis erat Joánnes amícus sponsi, non quærébat glóriam suam, sed testimónium perhibébat veritáti; numquid vóluit apud se remanére discípulos suos, ut non sequeréntur Dóminum? Magis ipse osténdit discípulis suis quem sequeréntur. Habébant enim illum tamquam Agnum; et ille : Quid me atténditis? ego non sum Agnus; ecce Agnus Dei. De quo et supérius díxerat : Ecce Agnus Dei. Et quid nobis prodest Agnus Dei? Ecce, ait, qui tollit peccátum mundi. Secúti sunt illum, hoc audíto, duo qui erant cum Joánne.
+
+{RUBRIC: Responsoria de Feria currénti.}
+
+##### Lectio ii
+
+VIdeámus sequéntia. Ecce Agnus Dei. Hoc Joánnes. Et audiérunt eum duo discípuli loquéntem, et secúti sunt Jesum. Non sic illum sequebántur, quasi jam ut inhærérent illi; nam maniféstum est, quando illi inhæsérunt, quia de navi eos vocávit. In his enim duóbus erat Andréas, sicut modo audístis, Andréas autem frater Petri erat; et nóvimus in Evangélio quod Petrum et Andréam Dóminus de navi vocávit dicens : Veníte post me, et fáciam vos piscatóres hóminum. Et ex illo jam inhæsérunt illi, ut non recéderent.
+
+##### Lectio iii
+
+MOdo ergo quod illum sequúntur isti duo, non quasi non recessúri sequúntur; sed vidére voluérunt ubi habitáret, et fácere quod scriptum est : Limen ostiórum ejus éxterat pes tuus : surge ad illum veníre assídue, et erudíre præcéptis ejus. Osténdit eis ille ubi manéret; venérunt, et fuérunt cum illo. Quam beátum diem duxérunt, quam beátam noctem! Quis est, qui nobis dicat quæ audíerint illi a Dómino?

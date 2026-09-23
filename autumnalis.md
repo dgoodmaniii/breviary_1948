@@ -36674,4 +36674,32 @@ IN illo témpore : Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine 
 **Homilía sancti Ambrósii Epíscopi**
 *Liber 8 in Luc., prope finem*
 
-ZAchǽus, statúra pusíllus, hoc est, nulla nobilitátis ingénitæ dignitáte sublímis, exíguus méritis sicut pópulus natiónum, audíto Dómini Salvatóris advéntu, quem sui non recéperant, vidére cupiébat. Sed nemo fácile Jesum videt; nemo potest Jesum vidére constitútus in terra. Et, quia non Prophétas, non Legem habébat, tamquam formæ grátiam naturális, ascéndit
+ZAchǽus, statúra pusíllus, hoc est, nulla nobilitátis ingénitæ dignitáte sublímis, exíguus méritis sicut pópulus natiónum, audíto Dómini Salvatóris advéntu, quem sui non recéperant, vidére cupiébat. Sed nemo fácile Jesum videt; nemo potest Jesum vidére constitútus in terra. Et, quia non Prophétas, non Legem habébat, tamquam formæ grátiam naturális, ascéndit in sycómorum, vanitátem scílicet Judæórum vestígio suo próterens, erráta quoque córrigens superióris ætátis. Et ídeo Jesum in interióris domus recépit hospítio.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus : in ea omnis qui petit, áccipit; et qui quærit, invénit; \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quærite, et inveniétis. — Et.
+
+**Bened.** Divínum auxílium.
+
+#### Lectio viii
+
+ET bene ascéndit in árborem, ut arbor bona bonos fructus fáceret, ac, naturáli excísus oleástro et contra natúram insértus in bonam olívam, fructum posset Legis afférre. Radix enim sancta, etsi rami inútiles. Quorum infructuósam glóriam plebs géntium, fide resurrectiónis, quasi quadam córporis elevatióne, transcéndit. Zachǽus ergo in sycómoro, cæcus in via : quorum álterum Dóminus miseratúrus exspéctat, álterum mansiónis suæ claritáte nobílitat; álterum sanatúrus intérrogat, apud álterum se, non invitátus, invítat. Sciébat enim úberem hospítii sui esse mercédem. Sed tamen, etsi nondum vocem invitántis audíerat, jam víderat afféctum.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. **Glória Patri.** Et.
+
+**Benedictio.** Ad societátem.
+
+#### Lectio ix
+
+VErum, ne cæcum illum, tamquam fastidiósi páuperum, cito reliquísse videámur et transísse ad dívitem, exspectémus eum, quia exspectávit et Dóminus; interrogémus eum, quia interrogávit et Christus. Nos interrogémus, quia nescímus : ille, quia nóverat. Nos interrogémus, ut sciámus unde iste curátus sit : ille interrogávit, ut in uno plures discerémus unde Dóminum vidére mereámur. Interrogávit enim, ut credérémus, néminem, nisi confiténtem, posse salvári.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Domum tuam, Dómine, \* decet sanctitúdo in longitúdinem diérum.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**Ant. 2** Domus mea \* domus oratiónis vocábitur.

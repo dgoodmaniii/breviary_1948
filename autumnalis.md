@@ -29573,3 +29573,35 @@ Quóniam hic est Deus, Deus noster in ætérnum, et in sæculum sæculi : \* ips
 **Ant.** Fiat, Dómine, cor meum et corpus meum immaculátum, ut non confúndar.
 
 ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+{RUBRIC: De Epístola prima beáti Pauli Apóstoli ad Corínthios}
+
+##### Lectio iv
+
+CÆcília, virgo Romána, nóbili génere nata, a prima ætáte christiánæ fídei præcéptis institúta, virginitátem suam Deo vovit. Sed, cum póstea, contra suam voluntátem, data esset in matrimónium Valeriáno, prima nuptiárum nocte hunc cum eo sermónem hábuit : Ego, Valeriáne, in Angeli tutéla sum, qui virginitátem meam custódit; quare ne quid in me commíttas, quo ira Dei in te concitétur. Quibus verbis commótus Valeriánus, illam attíngere non est ausus; quin étiam áddidit se in Christum creditúrum, si eum Angelum vidéret. Cui Cæcília cum sine baptísmo negáret id fíeri posse, incénsus cupiditáte vidéndi Angelum, se baptizári velle respóndit. Quare hortátu Vírginis ad Urbánum Papam, qui propter persecutiónem in Mártyrum sepúlcris via Áppia latébat, véniens, ab eo baptizátur.
+
+℟. Cilício Cæcília membra domábat, Deum gemítibus exorábat, \* Tibúrtium et Valeriánum ad corónas vocábat. ℣. Hæc est Virgo sápiens, et una de número prudéntum. — Tibúrtium.
+
+##### Lectio v
+
+INde ad Cæcíliam revérsus, orántem et cum ea Angelum divíno splendóre fulgéntem invénit. Quo aspéctu obstupefáctus, ut primum ex timóre confirmátus est, Tibúrtium fratrem suum accérsit; qui, a Cæcília Christi fide imbútus et ab eódem Urbáno baptizátus, ipse étiam ejúsdem Angeli, quem frater ejus víderat, aspéctu dignátus est. Utérque autem paulo post, Almáchio præfécto, constánter martýrium súbiit. Qui mox Cæcíliam comprehéndi ímperat, ab eáque primum, ubi Tibúrtii et Valeriáni facultátes sint, exquírit.
+
+℟. Cæcíliam intra cubículum orántem invénit, et juxta eam stantem Angelum Dómini : \* Quem videns Valeriánus, nímio terróre corréptus est. ℣. Angelus Dómini descéndit de cælo, et lumen refúlsit in habitáculo. — Quem.
+
+##### Lectio vi
+
+CUI, cum Virgo ómnia illórum páuperibus distribúta esse respondísset, eo furóre concitátus est, ut eam, in ipsíus ædes redúctam, in bálneo combúri jússerit. Quo in loco cum diem noctémque ita fuísset ut ne flamma quidem illam attíngeret, eo immíssus est cárnifex, qui ter secúri ictam, cum caput abscíndere non potuísset, semivívam relíquit. Illa tríduo post, sextodécimo Kaléndas Octóbris, Alexándro imperatóre, dúplici virginitátis et martýrii palma decoráta, evolávit in cælum. Cujus corpus ab ipso Urbáno Papa in Callísti cœmetério sepúltum est, in ejus ædibus ecclésia ipsíus Cæcíliæ nómine consecráta. Ejus et Urbáni ac Lúcii Pontíficum, Tibúrtii, Valeriáni et Máximi córpora, a Pascháli primo Pontífice inde transláta in Urbem, in eádem sanctæ Cæcíliæ ecclésia cóndita sunt.
+
+℟. Dómine Jesu Christe, pastor bone, seminátor casti consílii, súscipe séminum fructus, quos in Cæcília seminásti : \* Cæcília fámula tua quasi apis tibi argumentósa desérvit. ℣. Nam sponsum, quem quasi leónem ferócem accépit, ad te quasi agnum mansuetíssimum destinávit. — Cæcília. Glória Patri. Cæcília.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+CÆcília, virgo Romána, nóbili génere nata, a prima ætáte virginitátem suam Deo vovit. Sed cum invíta núptui data esset Valeriáno, huic persuásit, ut ipsam illibátam relínqueret et ad beátum Urbánum Papam iret, ut, accépto baptísmate, dignus fíeret, qui Angelum Cæcíliæ protectórem vidéret. Quod cum Valeriánus obtinuísset, fratrem suum Tibúrtium convértit ad Christum, ita ut ambo paulo post sub Almáchio præfécto martýrium subíerint. Cæcília autem ab eódem Almáchio comprehénsa, quod illórum facultátes in páuperes distribuísset, in bálneo combúri jussa est. Sed, cum flamma eam attíngere non audéret, ibídem secúri ter percússa et semivíva relícta, post tríduum virginitátis et martýrii palmam est consecúta, et in cœmetério Callísti sepúlta. Ejus et Urbáni ac Lúcii Pontíficum, Tibúrtii, Valeriáni et Máximi córpora, a Pascháli Papa primo in Urbem transláta, in ecclésia, ipsíus sanctæ Cæcíliæ nómine consecráta, cóndita sunt.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+**Ant.** Crédimus Christum \* Fílium Dei verum Deum esse, qui sibi talem elégit fámulam.

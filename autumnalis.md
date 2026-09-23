@@ -30611,3 +30611,58 @@ Príncipes populórum congregáti sunt cum Deo Abraham : \* quóniam dii fortes 
 EXáudi, Deus, deprecatiónem meam : \* inténde oratióni meæ.
 
 A fínibus terræ ad te clamávi : \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea : \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sæcula : \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam : \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies : \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei : \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in sæculum sæculi : \* ut reddam vota mea de die in diem.
+
+**Ant.** Diléxit Andréam Dóminus in odórem suavitátis.
+
+**Ant.** Bíduo vivens \* pendébat in cruce beátus Andréas pro Christi nómine, et docébat pópulum.
+
+**Psalmus 63**
+
+EXáudi, Deus, oratiónem meam cum déprecor : \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium : \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas : \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt : \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos : \* dixérunt : Quis vidébit eos?
+
+Scrutáti sunt iniquitátes : \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum : \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum : \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos : \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Bíduo vivens pendébat in cruce beátus Andréas pro Christi nómine, et docébat pópulum.
+
+℣. Constítues eos príncipes super omnem terram.
+℟. Mémores erunt nóminis tui, Dómine.
+
+##### Lectio iv
+
+ANdréas Apóstolus, Bethsáidæ natus, qui est Galilǽæ vicus, frater Petri, discípulus Joánnis Baptístæ, cum eum de Christo dicéntem audísset : Ecce Agnus Dei; secútus Jesum, fratrem quoque suum ad eúmdem perdúxit. Cum póstea una cum fratre piscarétur in mari Galilǽæ, ambo a prætereúnti Christo Dómino ante álios Apóstolos vocáti illis verbis : Veníte post me, fáciam vos fíeri piscatóres hóminum; nullam interponéntes moram, et relíctis rétibus, secúti sunt eum. Post cujus passiónem et resurrectiónem, Andréas, cum in Scýthiam Európæ, quæ ei província ad Christi fidem disseminándam obtígerat, venísset, deínde Epírum ac Thráciam peragrásset; doctrína et miráculis innumerábiles hómines ad Christum convértit. Post, Patras Acháiæ proféctus, et in ea urbe plúrimis ad veritátem evangélicam perdúctis, Ægéam procónsulem, prædicatióni evangélicæ resisténtem, libérrime increpávit, quod, qui judex hóminum habéri vellet, Christum Deum ómnium júdicem, a dæmónibus elúsus, non agnósceret.
+
+℟. Homo Dei ducebátur ut crucifígerent eum : pópulus autem clamábat voce magna, dicens : \* Innocens ejus sánguis sine causa damnátur. ℣. Cumque dúcerent eum, ut crucifigerétur, factus est concúrsus populórum clamántium et dicéntium. — Innocens.
+
+##### Lectio v
+
+TUm Ægéas irátus, Désine, inquit, Christum jactáre, cui simília verba nihil profuérunt, quóminus a Judǽis crucifigerétur. Andréam vero de Christo nihilóminus líbere prædicántem quod pro salúte humáni géneris se crucifigéndum obtulísset, ímpia oratióne interpéllat, ac demum hortátur, ut sibi cónsulens, diis velit immoláre. Cui Andréas : Ego omnipoténti Deo, qui unus et verus est, ímmolo quotídie, non taurórum carnes, nec hircórum sánguinem, sed immaculátum Agnum in altári; cujus carnem posteáquam omnis pópulus credéntium manducáverit, Agnus, qui sacrificátus est, ínteger persevérat et vivus. Quam ob rem ira accénsus Ægéas, jubet eum in cárcerem detrúdi : unde pópulus Andréam fácile liberásset, nisi ipse sedásset multitúdinem, vehementíus rogans, ne se ad optatíssimam martýrii corónam properántem impedírent.

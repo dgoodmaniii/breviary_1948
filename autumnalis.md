@@ -31905,4 +31905,44 @@ ET justa prorsus retribútio, ut, qui hic pro Christo humánæ glóriam celsitú
 
 #### Lectio ix
 
-ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur?
+ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur? cum ipse dicat : Nescítis, quóniam ángelos judicábimus, quanto magis sæculária? Sciéndum namque est, omnes, qui, ad exémplum Apostolórum, sua reliquérunt ómnia et secúti sunt Christum, júdices sum eo ventúros, sicut étiam omne mortálium genus esse judicándum. Quia enim duodenário sæpe número solet in Scriptúris univérsitas designári, per duódecim sedes Apostolórum, ómnium numerósitas judicántium, et, per duódecim tribus Israël, univérsitas eórum, qui judicándi sunt, osténditur.
+
+**Te Deum laudámus.**
+
+---
+
+# Commune Evangelistarum
+
+{RUBRIC: Omnia ut in Communi Apostolórum [3], præter Lectiónes ut infra :}
+
+### In I Nocturno
+
+{RUBRIC: Incipit liber Ezechiélis Prophétæ}
+
+#### Lectio i
+*Cap. 1, 1-12*
+
+ET factum est in trigésimo anno, in quarto, in quinta mensis, cum essem in médio captivórum juxta flúvium Chobar, apérti sunt cæli, et vidi visiónes Dei. In quinta mensis, ipse est annus quintus transmigratiónis regis Jóachim, factum est verbum Dómini ad Ezechiélem, fílium Buzi, sacerdótem in terra Chaldæórum, secus flumen Chobar : et facta est super eum ibi manus Dómini. Et vidi, et ecce ventus túrbinis veniébat ab Aquilóne : et nubes magna, et ignis invólvens, et splendor in circúitu ejus : et de médio ejus quasi spécies eléctri, id est, de médio ignis.
+
+℟. Ecce ego mitto vos sicut oves in médio lupórum, dicit Dóminus : \* Estóte ergo prudéntes sicut serpéntes, et símplices sicut colúmbæ. ℣. Dum lucem habétis, crédite in lucem, ut fílii lucis sitis. — Estóte ergo prudéntes.
+
+#### Lectio ii
+
+ET in médio ejus similitúdo quátuor animálium : et hic aspéctus eórum, similitúdo hóminis in eis. Quátuor fácies uni, et quátuor pennæ uni. Pedes eórum pedes recti, et planta pedis eórum, quasi planta pedis vítuli, et scintíllæ quasi aspéctus æris candéntis. Et manus hóminis sub pennis eórum in quátuor pártibus : et fácies, et pennas per quátuor partes habébant, junctǽque erant pennæ eórum altérius ad álterum. Non revertebántur cum incéderent : sed unumquódque ante fáciem suam gradiebátur.
+
+℟. Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde : \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum enim meum.
+
+#### Lectio iii
+
+SImilitúdo autem vultus eórum : fácies hóminis, et fácies leónis a dextris ipsórum quátuor : fácies autem bovis, a sinístris ipsórum quátuor, et fácies áquilæ désuper ipsórum quátuor. Fácies eórum, et pennæ eórum exténtæ désuper : duæ pennæ singulórum jungebántur, et duæ tegébant córpora eórum : et unumquódque eórum coram fácie sua ambulábat : ubi erat ímpetus spíritus, illuc gradiebántur, nec revertebántur cum ambulárent.
+
+℟. Dum stetéritis ante reges et præsides, nolíte cogitáre, quómodo aut quid loquámini; \* Dábitur enim vobis in illa hora, quid loquámini. ℣. Non enim vos estis, qui loquímini; sed Spíritus Patris vestri, qui lóquitur in vobis. — Dábitur enim vobis. **Glória Patri.** Dábitur enim vobis.
+
+### In II Nocturno
+
+{RUBRIC: De Expositióne sancti Gregórii Papæ super Ezechiélem Prophétam}
+{RUBRIC: Hom. 3 Lib. 1}
+
+#### Lectio iv
+
+SAncta quátuor animália, quæ prophétiæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum dícitur : Quátuor fácies uni, et quátuor pennæ uni. Quid per fáciem, nisi notítia; et quid per pennas, nisi volátus exprímitur? Per fáciem quippe unusquísque cognóscitur : per pennas vero in altum ávium córpora sublevántur. Fácies ítaque ad fidem pértinet, penna ad contemplatiónem. Per fidem namque ab omnipoténti Deo cognóscimur, sicut ipse de suis óvibus dicit : Ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ. Qui rursus ait : Ego scio quos elégerim.

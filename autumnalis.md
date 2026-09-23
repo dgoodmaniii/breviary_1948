@@ -25928,3 +25928,92 @@ IN ipso complácuit omnem plenitúdinem inhabitáre, et per eum reconciliáre ó
 **Oratio**
 
 BEatórum Mártyrum tuórum, Dómine, Chrysánthi et Daríæ, quǽsumus, adsit nobis orátio : ut, quos venerámur obséquio, eórum pium júgiter experiámur auxílium. Per Dóminum.
+
+##### Lectio iii
+
+CHrysánthus et Daría cónjuges, nóbili génere nati, fide étiam clarióres, quam Daría, maríti ópera, cum baptísmo suscéperat; Romæ innumerábilem hóminum multitúdinem, hæc mulíerum, ille virórum, ad Christum convertérunt. Quare Celerínus præféctus comprehénsos trádidit Cláudio tribúno, qui jussit a milítibus Chrysánthum vinctum cruciátibus torquéri; sed víncula ómnia resolúta sunt, mox cómpedes, in quos conjéctus fúerat, confrácti. Deínde, bovis cório inclúsum, in ardentíssimo sole constítuunt. Tum, pédibus ac mánibus caténa constríctis, in obscúrum cárcerem detrúdunt; ubi, solútis caténis, claríssima lux locum illustrávit. Daría vero in lupánar compúlsa, leónis tutéla, dum in oratióne defíxa est, a contumélia divínitus defénsa est. Dénique in arenáriam, quæ est via Salária, utérque ductus, effóssa terra, lapídibus óbruti, parem martýrii corónam adépti sunt.
+
+**Te Deum laudámus.**
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Die 26 Octobris — S. Evaristi
+
+{RUBRIC: Papæ et Mart. [29] Simplex}
+
+{RUBRIC: ¶ Si hódie fúerit Sabbátum, fit de Vigília anticipáta Ss. Simónis et Judæ App., ut die sequénti notátur, et de S. Evaristo fit tantum Commemoratio in Vésperis Fériæ præcedéntis et ad Laudes.}
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Evarístum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+##### Lectio iii
+
+EVarístus, Græcus, ex Judǽo patre, Trajáno imperatóre, pontificátum gessit. Qui ecclesiárum títulos urbis Romæ presbýteris divísit, et ordinávit ut septem diáconi epíscopum custodírent dum evangélicæ prædicatiónis offício fungerétur. Idem constítuit, ex traditióne apostólica, ut matrimónium públice celebrétur et sacerdótis benedíctio adhibeátur. Præfuit Ecclésiæ annos novem, menses tres, presbýteris decem et septem, diáconis duóbus, epíscopis quíndecim, quater mense Decémbri, ordinátis. Martýrio coronátus, prope sepúlcrum Príncipis Apostolórum in Vaticáno sepúltus est séptimo Kaléndas Novémbris.
+
+**Te Deum laudámus.**
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+---
+
+## Die 27 Octobris — In Vigilia Ss. Simonis et Judae
+
+{RUBRIC: Apostolórum}
+
+{RUBRIC: Offícium fit de Féria, ut pro Vigíliis Apostolórum in Communi [1], præter Lectiónes et Oratiónem, ut infra.}
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio i
+*Cap. 15, 1-7*
+
+IN illo témpore : Dixit Jesus discípulis suis : Ego sum vitis vera, et Pater meus agrícola est. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi (Tractátus 80 in Joánnem)}
+
+ISte locus evangélicus, fratres, ubi se dicit Dóminus vitem et discípulos suos pálmites, secúndum hoc dicit, quod est caput Ecclésiæ nosque membra ejus, mediátor Dei et hóminum, homo Christus Jesus. Uníus quippe natúræ sunt vitis et pálmites. Propter quod, cum esset Deus, cujus natúræ non sumus, factus est homo, ut in illo esset vitis humána natúra, cujus et nos hómines pálmites esse possémus.
+
+{RUBRIC: Responsoria de Féria currénti, ut in Próprio de Témpore.}
+
+##### Lectio ii
+
+QUid ergo est, Ego sum vitis vera? Numquid ut ádderet, vera, hoc ad eam vitem rétulit, unde ista similitúdo translátaest? Sic enim dícitur vitis per similitúdinem, non per proprietátem, quemádmodum dícitur ovis, agnus, leo, petra, lapis anguláris, et cétera hujúsmodi; quæ magis ipsa sunt vera, ex quibus ducúntur istæ similitúdines, non proprietátes. Sed cum dicit, Ego sum vitis vera; ab illa se útique discérnit, cui dícitur : Quómodo convérsa es in amaritúdinem, vitis aliéna? Nam, quo pacto est vitis vera, quæ exspectáta est ut fáceret uvam, fecit autem spinas?
+
+##### Lectio iii
+
+EGO sum, inquit, vitis vera, et Pater meus agrícola est. Numquid unum sunt agrícola et vitis? Secúndum hoc ergo vitis Christus, secúndum quod ait : Pater major me est. Secúndum autem id, quod ait : Ego et Pater unum sumus, et ipse agrícola est; nec talis, quales sunt qui extrínsecus operándo éxhibent ministérium; sed talis, ut det étiam intrínsecus increméntum. Nam, neque qui plantat est áliquid, neque qui rigat; sed qui increméntum dat, Deus. Sed útique Deus est Christus, quia Deus erat Verbum; unde ipse et Pater unum sunt. Et, si Verbum caro factum est, quod non erat; manet quod erat.
+
+**Oratio**
+
+COncéde, quǽsumus, omnípotens Deus : ut, sicut Apostolórum tuórum Simónis et Judæ gloriósa natalítia prævenímus; sic, ad tua benefícia promeréndam, majestátem tuam pro nobis ipsi prævéniant. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Die 28 Octobris — Ss. Simonis et Judae Apostolorum
+
+{RUBRIC: DUPLEX II CLASSIS}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], præter ea quæ hic habéntur própria.}
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Tradent enim vos \* in concíliis, et in synagógis suis flagellábunt vos, et ante reges et prǽsides ducémini propter me in testimónium illis, et géntibus.
+
+**Oratio**
+
+DEus, qui nos per beátos Apóstolos tuos Simónem et Judam ad agnitiónem tui nóminis veníre tribuísti : da nobis eórum glóriam sempitérnam et proficiéndo celebráre, et celebrándo profícere. Per Dóminum.

@@ -39595,3 +39595,53 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
 ℣. Meménto Congregatiónis tuæ. ℟. Quam possedísti ab inítio.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+**Oratio**
+
+DEus, cui próprium est miseréri semper et párcere : súscipe deprecatiónem nostram; ut nos, et omnes fámulos tuos, quos delictórum caténa constríngit, miserátio tuæ pietátis cleménter absólvat. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Post Oratiónem statim dicúntur álii Psalmi Graduáles qui sequúntur; et in fine cujúslibet Psalmi dícitur Glória Patri.}
+
+{RUBRIC: Psalmus 129 De profúndis, 163;}
+
+{RUBRIC: Ps. 130 Dómine, non est exaltátum, ibid.;}
+
+{RUBRIC: Ps. 131 Meménto, Dómine, ibid.;}
+
+{RUBRIC: Ps. 132 Ecce quam bonum, 196;}
+
+{RUBRIC: Ps. 133 Ecce nunc benedícite. 64}
+
+{RUBRIC: Deinde dícitur flexis génibus :}
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Salvos fac servos tuos. ℟. Deus meus, sperántes in te.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+**Oratio**
+
+PRætÉnde, Dómine, fámulis et famulábus tuis déxteram cæléstis auxílii : ut te toto corde perquírant, et, quæ digne póstulant, cónsequi mereántur. Per Christum Dóminum nostrum. ℟. Amen.
+
+---
+
+# Septem Psalmi Pænitentiales
+
+**Cum Litaniis**
+
+{RUBRIC: Sicúbi recitántur in Choro, congrue dicúntur post Matutínum et Laudes diéi flexis génibus, dicto Benedicámus Dómino et Deo grátias; extra Chorum pro témporis opportunitáte.}
+
+{RUBRIC: Litaníæ simíliter, quando dicéndæ sunt sine Psalmis Pæniteniálibus, dicúntur, extra Processiónem, flexis génibus in Choro post Matutínum et Laudes diéi, dicto Benedicámus Dómino et Deo}

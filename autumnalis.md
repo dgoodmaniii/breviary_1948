@@ -37194,3 +37194,55 @@ PUsíllus ítaque Zachǽus sycómorum súbiit et Dóminum vidit : quia, qui mund
 QUasi enim sycómorum nos ascéndere Dóminus præcípit, cum dicit : Qui aufert quæ tua sunt, ne répetas; et rursum : Si quis te percússerit in déxteram maxíllam, præbe illi et álteram. Per sycómorum Dóminus tránsiens cérnitur : quia per hanc sapiéntem stultítiam, etsi necdum, ut est, sólide, jam tamen per contemplatiónis lumen Dei sapiéntia quasi in tránsitu vidétur, quam vidére néqueunt qui sibi sapiéntes esse vidéntur; quia ad conspiciéndum Dóminum, in eláta cogitatiónum suárum turba deprehénsi, adhuc sycómori árborem non invenérunt.
 
 **Te Deum laudámus.**
+
+---
+
+# Commune Festorum B. Mariae Virg.
+
+#### IN I VESPERIS
+
+**Ant.** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis.
+
+###### Psalmus 109
+
+DIxit Dóminus Dómino meo : \* Sede a dextris meis :
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion : \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum : \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pænitébit eum : \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas : \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet : \* proptérea exaltábit caput.
+
+**Ant.** Dum esset Rex in accúbitu suo, nardus mea dedit odórem suavitátis.
+
+**Ant.** Læva ejus \* sub cápite meo, et déxtera illíus amplexábitur me.
+
+###### Psalmus 112
+
+LAudáte, púeri, Dóminum : \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sǽculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem :
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Læva ejus sub cápite meo, et déxtera illíus amplexábitur me.
+
+**Ant.** Nigra sum, \* sed formósa, fíliæ Jerúsalem; ídeo diléxit me Rex, et introdúxit me in cubículum suum.

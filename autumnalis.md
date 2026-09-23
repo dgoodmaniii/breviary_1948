@@ -34817,4 +34817,16 @@ JUstum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei, et dedit
 
 #### Lectio i
 
-JUstus si morte præoccupátus fúerit, in refrígerio erit.
+JUstus si morte præoccupátus fúerit, in refrígerio erit. non diutúrna, neque annórum número computáta; cani autem sunt sensus hóminis, et ætas senectútis vita immaculáta. Placens Deo factus est diléctus, et vivens inter peccatóres translátus est. Raptus est, ne malítia mutáret intelléctum ejus aut ne fíctio decíperet ánimam illíus. Fascinátio enim nugacitátis obscúrat bona, et inconstántia concupiscéntiæ transvértit sensum sine malítia. Consummátus in brevi explévit témpora multa; plácita enim erat Deo ánima illíus, propter hoc properávit edúcere illum de médio iniquitátum.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam : \* Intra in gáudium Dómini tui. ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.
+
+#### Lectio ii
+
+POpuli autem vidéntes et non intelligéntes, nec ponéntes in præcórdiis tália : quóniam grátia Dei et misericórdia est in sanctos ejus, et respéctus in eléctos illíus. Condémnat autem justus mórtuus vivos ímpios, et juvéntus celérius consummáta longam vitam injústi. Vidébunt enim finem sapiéntis et non intélligent, quid cogitáverit de illo Deus et quare muníerit illum Dóminus. Vidébunt et conténment eum; illos autem Dóminus irridébit. Et erunt post hæc decidéntes sine honóre, et in contumélia inter mórtuos in perpétuum : quóniam disrúmpet illos inflátos sine voce, et commovébit illos a fundaméntis, et usque ad suprémum desolabúntur.
+
+℟. Justus germinábit sicut lílium : \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+#### Lectio iii
+
+ET erunt geméntes, et memória illórum períbit. Vénient in cogitatióne peccatórum suórum tímidi, et tradúcent illos ex advérso iniquitátes ipsórum. Tunc stabunt justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum. Vidéntes turbabúntur timóre horríbili, et mirabúntur in subitatióne insperátæ salútis; dicéntes intra se, pæniténtiam agéntes, et præ angústia spíritus geméntes : Hi sunt, quos habúimus áliquándo in derísum et in similitúdinem impropérii.

@@ -25880,3 +25880,51 @@ FRatres : Grátias ágimus Deo Patri, qui dignos nos fecit in partem sortis sanc
 #### AD SEXTAM
 
 **Ant.** Exíbunt aquæ vivæ \* de Jerúsalem; et erit Dóminus Rex super omnem terram.
+
+**Capit.**
+*Coloss. 1, 16-17*
+
+OMnia per ipsum et in ipso creáta sunt, et ipse est ante omnes, et ómnia in ipso constant. Et ipse est caput córporis Ecclésiæ, qui est princípium, primogénitus ex mórtuis, ut sit in ómnibus ipse primátum tenens.
+
+℟. br. Afférte Dómino, \* Famíliæ populórum. Afférte. ℣. Afférte Dómino glóriam et impérium. Famíliæ. Glória Patri. Afférte.
+
+℣. Adorábunt eum omnes reges terræ. ℟. Omnes gentes sérvient ei.
+
+#### AD NONAM
+
+**Ant.** Gens et regnum \* quod non servíerit tibi, períbit : et gentes solitúdine vastabúntur.
+
+**Capit.**
+*Coloss. 1, 19-20*
+
+IN ipso complácuit omnem plenitúdinem inhabitáre, et per eum reconciliáre ómnia in ipsum, pacíficans per sánguinem crucis ejus sive quæ in terris, sive quæ in cælis sunt, in Christo Jesu Dómino nostro.
+
+℟. br. Adorábunt eum \* Omnes reges terræ. Adorábunt. ℣. Omnes gentes sérvient ei. Omnes. Glória Patri. Adorábunt.
+
+℣. Multiplicábitur ejus impérium. ℟. Et pacis non erit finis.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vésperis, præter sequéntia :}
+
+℣. Multiplicábitur ejus impérium. ℟. Et pacis non erit finis.
+
+**Ad Magnif. Ant.** Habet in vestiménto \* et in fémore suo scriptum : Rex regum, et Dóminus dominántium. Ipsi glória et impérium, in sǽcula sæculórum.
+
+{RUBRIC: Et fit Commemoratio Dominicæ occurréntis.}
+
+{RUBRIC: Completórium de Domínica.}
+
+---
+
+## Die 25 Octobris — Ss. Chrysanthi et Dariae
+
+{RUBRIC: Mártyrum [49] Simplex}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+BEatórum Mártyrum tuórum, Dómine, Chrysánthi et Daríæ, quǽsumus, adsit nobis orátio : ut, quos venerámur obséquio, eórum pium júgiter experiámur auxílium. Per Dóminum.

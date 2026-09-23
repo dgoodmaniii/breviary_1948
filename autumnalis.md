@@ -40667,3 +40667,31 @@ PRæsta, quǽsumus, omnípotens Deus : ut família tua per viam salútis incéda
 ℣. Procedámus in pace. ℟. In nómine Dómini. Amen.
 
 ---
+
+# Preces ante et post Missam
+
+## Praeparatio ad Missam
+
+**Pro opportunitate Sacerdotis facienda**
+
+{RUBRIC: Quílibet Sacérdos, ex concessióne Pii Pp. XI, sub die 3 Octóbris 1936, lucrári potest : Indulgéntiam quinque annórum si, ante Missæ celebratiónem, récitet Psalmos 83, 84, 85, 115 et 129 cum adnéxa antíphona, versículis et Orémus ut infra; plenáriam, si per íntegrum mensem prædíctas preces quotídie recitáverit, addítis confessióne sacraméntali et oratióne ad Summi Pontíficis mentem.}
+
+**Ant.** Ne reminiscáris, \* Dómine, delícta nostra vel paréntum nostrórum, neque vindíctam sumas de peccátis nostris.
+
+{RUBRIC: Quæ Antíphona in Duplícibus tantum duplicátur.}
+
+###### Psalmus 83
+
+QUam dilécta tabernácula tua, Dómine virtútum : \* concupíscit, et déficit ánima mea in átria Dómini.
+
+Cor meum, et caro mea \* exsultavérunt in Deum vivum.
+
+Etenim passer invénit sibi domum : \* et turtur nidum sibi, ubi ponat pullos suos.
+
+Altária tua, Dómine virtútum : \* Rex meus, et Deus meus.
+
+Beáti, qui hábitant in domo tua, Dómine : \* in sǽcula sæculórum laudábunt te.
+
+Beátus vir, cujus est auxílium abs te : \* ascensiónes in corde suo dispósuit, in valle lacrimárum in loco, quem pósuit.
+
+Etenim benedictiónem dabit legislátor, ibunt de

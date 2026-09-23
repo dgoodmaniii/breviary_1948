@@ -30087,4 +30087,34 @@ SIngulári vitæ austeritáte et ómnium virtútum præsídio munítus, præ ass
 
 ##### Lectio vi
 
-VIrginitátem perpétuo cóluit, impudentésque mulíeres ejus pudicítiæ insidiári conántes, non modo répulit, sed étiam Christo lucrifécit. In divínis explicándis arcánis æque ac sancta Terésia, apostólicæ Sedis judício, divínitus instrúctus, libros de mýstica theología, cæléstí sapiéntia refértos, conscrípsit. Semel interrogátus a Christo, quid prǽmii pro tot labóribus pósceret, respóndit : Dómine, pati et contémni pro te.
+VIrginitátem perpétuo cóluit, impudentésque mulíeres ejus pudicítiæ insidiári conántes, non modo répulit, sed étiam Christo lucrifécit. In divínis explicándis arcánis æque ac sancta Terésia, apostólicæ Sedis judício, divínitus instrúctus, libros de mýstica theología, cæléstí sapiéntia refértos, conscrípsit. Semel interrogátus a Christo, quid prǽmii pro tot labóribus pósceret, respóndit : Dómine, pati et contémni pro te. Império in dǽmones, quos e corpóribus sæpe fugábat, discretióne spirítuum, prophétiæ dono, miraculórum glória celebratíssimus, ea semper fuit humilitáte, ut sæpius a Dómino flagitáverit eo loco mori, ubi ómnibus esset ignótus. Voti compos factus, Ubédæ, diro morbo et in crure quinque plagis sánie manántibus, ad impléndum patiéndi desidérium constantíssime tolerátis, Ecclésiæ sacraméntis pie sanctéque suscéptis, in Christi crucifíxi ampléxu, quem semper in corde atque ore habúerat, post illa verba : In manus tuas comméndo spíritum meum, obdormívit in Dómino, die et hora a se prædíctis, anno salútis millésimo quingentésimo nonagésimo primo, ætátis quadragésimo nono. Migrántem ejus ánimam splendidíssimus ignis globus excépit; corpus vero suavíssimum odórem spirávit, quod, étiam nunc incorrúptum, Segóviæ honorífice cólitur. Eum, plúrimis ante et post óbitum fulgéntem signis, Benedíctus décimus tértius Póntifex máximus in Sanctórum número rétulit, et Pius undécimus, ex Sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctórem declarávit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+JOánnes a Cruce, Fontíberi in Hispánia piis paréntibus natus, a primis annis certo innótuit, quam Deíparæ Vírgini futúrus esset accéptus; nam quinquénnis in púteum lapsus, ejúsdem manu sublátus, incólumis evásit. Adoléscens hospítio páuperum ægrotántium Metýmnæ Campi fámulum amantíssime se addíxit; tum beátæ Maríæ Vírginis de Monte Carmélo institútum ampléxus et sacérdos ex obediéntia factus, primitívam régulam proféssus est. Strictióris disciplínæ promovéndæ ardóre succénsus, sanctæ Terésiæ, a qua inter puríores et excellentióres ánimas Ecclésiam Dei tunc témporis illustrántes habebátur, comes divínitus datus est ad primǽvam Carméli órdinis observántiam inter fratres instaurándam. Quo in ópere enixe cum laborásset et multa esset passus, interrogátus a Christo, quid prǽmii pro tot labóribus pósceret, respóndit : Dómine, pati et contémni pro te. Libros de mýstica theológia, cælésti sapiéntia refértos, conscrípsit. Tandem Ubédæ, diro morbo patientíssime toleráto, obdormívit in Dómino, anno millésimo quingentésimo nonagésimo primo, ætátis quadragésimo nono. Eum Pius undécimus, ex Sacrórum Rítuum Congregatiónis consúlto, universális Ecclésiæ Doctórem declarávit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Vos estis sal terræ, de Communi Doct. 1 loco. [90]}
+
+{RUBRIC: Pro S. Chrysogono Mart.}
+
+##### Lectio ix
+
+CHrysógonus, Diocletiáno imperatóre, Romæ inclúsus in cárcere, ibi biénnium sanctæ Anastásiæ facultátibus vixit; quam étiam, afflíctam propter Christum a viro suo Públio, proptereáque a suis oratiónibus per lítteras auxílium postulántem, mútuis epístolis est consolátus. Sed, cum imperátor Romam scripsísset ut, réliquis Christiánis qui in vínculis essent interféctis, Chrysógonus Aquiléjam ad se mitterétur, eo perdúctus est. Cui imperátor : Accersívi, inquit, te, Chrysógone, ut honóribus áugeam, si modo indúxeris ánimum deos cólere. At ille : Ego eum, qui vere est Deus, mente et oratióne véneror; deos autem, qui nihil sunt nisi dæmónum simulácra, odi et éxsecror. Quo respónso excandéscens imperátor, ad Aquas Gradátas eum secúri percúti jubet octávo Kaléndas Decémbris. Cujus corpus, projéctum in mare, paulo post in líttore invéntum, Zóilus presbýter in suis ǽdibus sepelívit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui sanctum Joánnem, Confessórem tuum atque Doctórem, perféctæ sui abnegatiónis et crucis amatórem exímium effecísti : concéde; ut, ejus imitatióni júgiter inhæréntes, glóriam assequámur ætérnam. Per Dóminum.

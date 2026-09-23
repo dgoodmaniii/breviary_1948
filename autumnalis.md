@@ -34647,3 +34647,22 @@ QUam ob rem máximópere grátulor hujus Sancti felicitáti, quod, quamquam tran
 *Cap. 12, 35-40*
 
 IN illo témpore : Dixit Jesus discípulis suis : Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+{RUBRIC: Homilía 13 in Evangelia}
+
+SAncti Evangélii, fratres caríssimi, apérta vobis est léctio recitáta. Sed, ne alíquibus ipsa ejus planíties alta fortásse videátur, eam sub brevitáte transcúrrimus, quátenus ejus expositio ita nesciéntibus fiat cógnita, ut tamen sciéntibus non sit onerósa. Dóminus dicit : Sint lumbi vestri præcíncti. Lumbos enim præcíngimus, cum carnis luxúriam per continéntiam coarctámus. Sed, quia minus est mala non ágere, nisi étiam quisque stúdeat et bonis opéribus insudáre, prótinus ádditur : Et lucérnæ ardéntes in mánibus vestris. Lucérnas quippe ardéntes in mánibus tenémus, cum per bona ópera próximis nostris lucis exémpla monstrámus. De quibus profécto opéribus Dóminus dicit : Lúceat lux vestra coram homínibus, ut vídeant ópera vestra bona et gloríficent Patrem vestrum, qui in cælis est.
+
+{RUBRIC: Pro Confessore non Pont.}
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+{RUBRIC: Pro Confessore Pontifice}
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+**Benedictio.** Cujus festum.
+
+#### Lectio viii
+
+DUo autem sunt, quæ jubéntur : et lumbos restríngere, et lucérnas tenére; ut et mundítia sit castitátis in córpore, et lumen veritátis in operatióne. Redemptóri étenim nostro unum sine áltero placére nequáquam potest; si, aut is qui bona agit, adhuc luxúriæ inquinaménta non déserit, aut is qui castitáte præéminet, necdum se per bona ópera exércet. Nec cástitas ergo magna est sine bono ópere, nec opus bonum est áliquod sine castitáte. Sed, et si utrúmque ágitur, restat, ut, quisquis ille est, spe ad supérnam pátriam tendat, et nequáquam se a vítiis pro mundi hujus honestáte contíneat.

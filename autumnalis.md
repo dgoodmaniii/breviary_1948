@@ -36279,3 +36279,48 @@ Locántur in fastígio.
 
 Decus Parénti débitum
 Sit usquequáque Altíssimo,
+Natóque Patris único,
+Et ínclito Paráclito,
+Cui laus, potéstas, glória
+Ætérna sit per sǽcula.
+Amen.
+
+℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram.
+
+**Ad Magnif. Ant.** Sanctificávit Dóminus \* tabernáculum suum : quia hæc est domus Dei, in qua invocábitur nomen ejus, de quo scriptum est : Et erit nomen meum ibi, dicit Dóminus.
+
+### In II Vesperis
+
+℣. Domum tuam, Dómine, decet sanctitúdo. ℟. In longitúdinem diérum.
+
+**Ad Magnif. Ant.** O quam metuéndus est \* locus iste : vere non est hic áliud, nisi domus Dei et porta cæli.
+
+{RUBRIC: In Anniversário Dedicatiónis Ecclésiæ :}
+
+**Oratio**
+
+DEus, qui nobis per síngulos annos hujus sancti templi tui consecratiónis réparas diem, et sacris semper mystériis repræséntas íncolumes : exáudi preces pópuli tui, et præsta; ut, quisquis hoc templum benefícia petitúrus ingréditur, cuncta se impetrásse lætétur. Per Dóminum.
+
+{RUBRIC: In ipso die Dedicatiónis Ecclésiæ et per Octávam, et quando varíanda est Orátio, dícitur séquens}
+
+**Oratio**
+
+DEus, qui invisibíliter ómnia cóntines, et tamen pro salúte géneris humáni signa tuæ poténtiæ visibíliter osténdis : templum hoc poténtiæ tuæ inhabitatiónis illústra, et concéde; ut omnes, qui huc deprecatúri convéniunt, ex quacúmque tribulatióne ad te clamáverint, consolatiónis tuæ benefícia consequántur. Per Dóminum.
+
+{RUBRIC: Completórium de Dominica.}
+
+#### AD MATUTINUM
+
+**Invitat.** Domum Dei decet sanctitúdo : \* Sponsum ejus Christum adorémus in ea. **Ps. 94** Veníte, exsultémus.
+
+**Hymnus** Cæléstis urbs, ut supra. [142]
+
+### In I Nocturno
+
+**Ant.** Tóllite portas, \* príncipes, vestras, et elevámini, portæ æternáles.
+
+###### Psalmus 23
+
+DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.

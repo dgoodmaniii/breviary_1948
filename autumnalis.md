@@ -26955,3 +26955,154 @@ Réquiem ætérnam.
 ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
 
 ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+**Oratio**
+
+FIdélium, Deus, ómnium cónditor et redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum : ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur : Qui vivis et regnas. ℟. Amen.
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Et ita absolvúntur Laudes neque áliud adjúngitur.}
+
+#### AD PRIMAM
+
+{RUBRIC: Dictis secréto Pater noster, Ave María et Credo, absolúte incípitur a Psalmis sequéntibus :}
+
+**Psalmus 87**
+
+DOmine, Deus salútis meæ : \* in die clamávi, et nocte coram te.
+
+Intret in conspéctu tuo orátio mea : \* inclína aurem tuam ad precem meam :
+
+Quia repléta est malis ánima mea : \* et vita mea inférno appropinquávit.
+
+Æstimátus sum cum descendéntibus in lacum : \* factus sum sicut homo sine adjutório, inter mórtuos liber.
+
+Sicut vulneráti dormiéntes in sepúlcris, quorum non es memor ámplius : \* et ipsi de manu tua repúlsi sunt.
+
+Posuérunt me in lacu inferióri : \* in tenebrósis, et in umbra mortis.
+
+Super me confirmátus est furor tuus : \* et omnes fluctus tuos induxísti super me.
+
+Longe fecísti notos meos a me : \* posuérunt me abominatiónem sibi.
+
+Tráditus sum, et non egrediébar : \* óculi mei languérunt præ inópia.
+
+Clamávi ad te, Dómine, tota die : \* expándi ad te manus meas.
+
+Numquid mórtuis fácies mirabília : \* aut médici suscitábunt, et confitebúntur tibi?
+
+Numquid narrábit áliquis in sepúlcro misericórdiam tuam, \* et veritátem tuam in perditióne?
+
+Numquid cognoscéntur in ténebris mirabília tua, \* et justítia tua in terra oblivóionis?
+
+Et ego ad te, Dómine, clamávi : \* et mane orátio mea prævéniet te.
+
+Ut quid, Dómine, repéllis oratiónem meam : \* avértis fáciem tuam a me?
+
+Pauper sum ego, et in labóribus a juventúte mea : \* exaltátus autem, humiliátus sum et conturbátus.
+
+In me transiérunt iræ tuæ : \* et terróres tui conturbavérunt me.
+
+Circumdedérunt me sicut aqua tota die : \* circumdedérunt me simul.
+
+Elongásti a me amícum et próximum : \* et notos meos a miséria.
+
+Réquiem ætérnam.
+
+**Psalmus 27**
+
+AD te, Dómine, clamábo, Deus meus, ne síleas a me : \* nequándo táceas a me, et assimilábor descendéntibus in lacum.
+
+Exáudi, Dómine, vocem deprecatiónis meæ dum oro ad te : \* dum extóllo manus meas ad templum sanctum tuum.
+
+Ne simul trahas me cum peccatóribus : \* et cum operántibus iniquitátem ne perdas me.
+
+Qui loquúntur pacem cum próximo suo \* mala autem in córdibus eórum.
+
+Da illis secúndum ópera eórum, \* et secúndum nequítiam adinventiónum ipsórum.
+
+Secúndum ópera mánuum eórum tríbue illis : \* redde retributiónem eórum ipsis.
+
+Quóniam non intellexérunt ópera Dómini, et in ópera mánuum ejus \* déstrues illos, et non ædificábis eos.
+
+Benedíctus Dóminus : \* quóniam exaudívit vocem deprecatiónis meæ.
+
+Dóminus adjútor meus, et protéctor meus : \* in ipso sperávit cor meum, et adjútus sum.
+
+Et reflóruit caro mea : \* et ex voluntáte mea confitébor ei.
+
+Dóminus fortitúdo plebis suæ : \* et protéctor salvatiónum Christi sui est.
+
+Salvum fac pópulum tuum, Dómine, et bénedic hereditáti tuæ : \* et rege eos, et extólle illos usque in ætérnum.
+
+Réquiem ætérnam.
+
+**Psalmus 31**
+
+BEáti quorum remíssæ sunt iniquitátes : \* et quorum tecta sunt peccáta.
+
+Beátus vir, cui non imputávit Dóminus peccátum, \* nec est in spíritu ejus dolus.
+
+Quóniam tácui, inveteravérunt ossa mea, \* dum clamárem tota die.
+
+Quóniam die ac nocte graváta est super me manus tua : \* convérsus sum in ærúmna mea, dum confígitur spina.
+
+Delíctum meum cógnitum tibi feci : \* et injustítiam meam non abscóndi.
+
+Dixi : Confitébor advérsum me injustítiam meam Dómino : \* et tu remisísti impietátem peccáti mei.
+
+Pro hac orábit ad te omnis sanctus, \* in témpore opportúno.
+
+Verúmtamen in dilúvio aquárum multárum, \* ad eum non approximábunt.
+
+Tu es refúgium meum a tribulatióne, quæ circúmdedit me : \* exsultátio mea, érue me a circumdántibus me.
+
+Intelléctum tibi dabo, et ínstruam te in via hac, qua gradiéris : \* firmábo super te óculos meos.
+
+Nolíte fíeri sicut equus et mulus, \* quibus non est intelléctus.
+
+In camo et fræno maxíllas eórum constrínge, \* qui non appróximant ad te.
+
+Multa flagélla peccatóris, \* sperántem autem in Dómino misericórdia circúmdabit.
+
+Lætámini in Dómino et exsultáte, justi, \* et gloriámini, omnes recti corde.
+
+Réquiem ætérnam.
+
+{RUBRIC: Explétis Psalmis, dícitur flexis génibus :}
+
+{RUBRIC: Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+**Oratio**
+
+SUpplices, Dómine, pro animábus ómnium famulórum famularúmque tuárum preces effúndimus : ut, quidquid conversatióne contraxérunt humána, clemens indúlgeas, et pœnis eórum finem benígnus impónas. Per Dóminum. ℟. Amen.
+
+{RUBRIC: Deínde in Choro legítur Martyrológium, ut ibi suo loco notátur.}
+
+{RUBRIC: Deínde, étiam extra Chorum, licet omíssa fúerit léctio Martyrológii, subjúngitur :}
+
+℣. In memória ætérna erunt justi. ℟. Ab auditióne mala non timébunt.
+
+**Orémus.**
+**Oratio**
+
+DEus, véniæ largítor et humánæ salútis amátor : quǽsumus cleméntiam tuam; ut ánimas ómnium fidélium qui ex hoc sǽculo transiérunt, beáta María semper Vírgine intercedénte cum ómnibus Sanctis tuis, ad perpétuæ beatitúdinis consórtium pervenire concédas. Per Christum, Dóminum nostrum. ℟. Amen.
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Et ita absolvítur Prima, neque áliud adjúngitur.}

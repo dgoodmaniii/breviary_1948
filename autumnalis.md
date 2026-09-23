@@ -27364,3 +27364,139 @@ Dies mei sicut umbra declinavérunt : \* et ego sicut fœnum árui.
 Tu autem, Dómine, in ætérnum pérmanes : \* et memoriále tuum in generatiónem et generatiónem.
 
 Réquiem ætérnam.
+
+**Psalmus 101, ii**
+
+TU exsúrgens miserebéris Sion : \* quia tempus miseréndi ejus, quia venit tempus.
+
+Quóniam placuérunt servis tuis lápides ejus : \* et terræ ejus miserebúntur.
+
+Et timébunt gentes nomen tuum, Dómine, \* et omnes reges terræ glóriam tuam.
+
+Quia ædificávit Dóminus Sion : \* et vidébitur in glória sua.
+
+Respéxit in oratiónem humílium : \* et non sprevit precem eórum.
+
+Scribántur hæc in generatióne áltera : \* et pópulus, qui creábitur, laudábit Dóminum :
+
+Quia prospéxit de excélso sancto suo : \* Dóminus de cælo in terram aspéxit :
+
+Ut audíret gémitus compeditórum : \* ut sólveret fílios interemptórum :
+
+Ut annúntient in Sion nomen Dómini : \* et laudem ejus in Jerúsalem.
+
+In conveniéndo pópulos in unum, \* et reges ut sérviant Dómino.
+
+Réquiem ætérnam.
+
+**Psalmus 101, iii**
+
+RESpóndit ei in via virtútis suæ : \* Paucitátem diérum meórum núntia mihi.
+
+Ne révoces me in dimídio diérum meórum : \* in generatiónem et generatiónem anni tui.
+
+Inítio, tu, Dómine, terram fundásti : \* et ópera mánuum tuárum sunt cæli.
+
+Ipsi períbunt, tu autem pérmanes : \* et omnes sicut vestiméntum veteráscent.
+
+Et sicut opertórium mutábis eos, et mutabúntur : \* tu autem idem ipse es, et anni tui non defícient.
+
+Fílii servórum tuórum habitábunt : \* et semen eórum in sæculum dirigétur.
+
+Réquiem ætérnam.
+
+{RUBRIC: Explétis Psalmis, dícitur flexis génibus :}
+
+{RUBRIC: Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+**Oratio**
+
+FIdélium, Deus, ómnium cónditor et redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum : ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur : Qui vivis et regnas. ℟. Amen.
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Et ita absolvítur Nona, neque áliud adjúngitur.}
+
+{RUBRIC: ¶ Post Nonam, celebráta Missa, termínatur Offícium Commemoratiónis Omnium Fidélium Defunctórum; et Vésperæ dicúntur de sequénti Offício, ut in I Vésperis.}
+
+---
+
+# Die 3 Novembris
+
+## De III die infra Octavam Omnium Sanctorum
+
+{RUBRIC: Semiduplex 724}
+
+### In II Nocturno
+
+{RUBRIC: De sermóne sancti Bedæ Venerábilis, Presbýteri (Sermo 18 de Sanctis)}
+
+##### Lectio iv
+
+NUlla erit tunc usquam discórdia, sed cuncta consóna, cuncta conveniéntia; quia ómnium erit Sanctórum una concórdia, pax cuncta et lætítia cóntinet, tranquílla sunt ómnia et quiéta. Jugis splendor, non iste qui nunc est, sed tanto clárior quanto felícior; quia cívitas, ut légitur, illa non egébit lúmine solis, sed Dóminus omnípotens illuminábit eam, et lucérna ejus est Agnus. Ibi Sancti fulgébunt ut stellæ in perpétuas æternitátes, et sicut splendor firmaménti qui erúdiunt multos.
+
+℟. Abstérget Deus omnem lácrimam ab óculis Sanctórum : et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor, \* Quóniam prióra transiérunt. ℣. Non esúrient, neque sítient ámplius, neque cadet super illos sol neque ullus æstus. — Quóniam.
+
+##### Lectio v
+
+QUaprópter nox ibi nulla, nullæ ténebræ, concúrsus núbium nullus, nec frígoris aut ardóris aspéritas ulla. Sed talis quædam erit rerum tempéries, qualem nec óculus vidit, nec auris audívit, nec in cor hóminis ascéndit, nisi illórum qui ea pérfrui digni inveniúntur, quorum nómina scripta sunt in libro vitæ; qui et lavérunt stolas suas in sánguine Agni, et sunt ante sedem Dei serviúntque ei die ac nocte. Non est senéctus ibi, nec senectútis míseria, dum omnes occúrrunt in virum perféctum, in mensúram ætátis plenitúdinis Christi.
+
+℟. Pretiósa in conspéctu Dómini \* Mors Sanctórum ejus. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors.
+
+##### Lectio vi
+
+VErum, super hæc ómnia est consociári Angelórum et Archangelórum cœtibus, Thronis étiam et Dominatiónibus, Principátibus et Potestátibus, omniúmque cæléstium supernárum Virtútum contubérniis pérfrui, et intuéri ágmina Sanctórum splendídius sidéribus micántia, Patriarchárum fide fulgéntia, Prophetárum spe lætántia, Apostolórum in duódecim tríbubus Israël orbem judicántia, Mártyrum purpúreis victóriæ corónis lucéntia, Vírginum quoque choros candéntia serta gestántes inspícere.
+
+℟. Stola jucunditátis índuit eos Dóminus : \* Et corónam pulchritúdinis pósuit super cápita eórum. ℣. Cibávit illos Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illos. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 5, 1-12*
+
+IN illo témpore : Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi (Liber 1 de Sermóne Dómini in monte, cap. 2)}
+
+BEáti mundo corde; quóniam ipsi Deum vidébunt. Quam ergo stulti sunt, qui Deum istis exterióribus óculis quærunt, cum corde videátur, sicut álibi scriptum est : Et in simplicitáte cordis quærite illum. Hoc est enim mundum cor, quod est simplex cor. Et quemádmodum lumen hoc vidéri non potest, nisi óculis mundis, ita nec Deus vidétur, nisi mundum sit illud quo vidéri potest. Beáti pacífici; quóniam ipsi fílii Dei vocabúntur. In pace perféctio est, ubi nihil repúgnat; et ídeo fílii Dei pacífici, quóniam nihil in his resístit Deo, et útique fílii similitúdinem patris habére debent.
+
+℟. Amávit eos Dóminus, et ornávit eos : stolam glóriæ índuit eos, \* Et ad portas paradísi coronávit eos. ℣. Induit eos Dóminus lorícam fídei, et ornávit eos. — Et.
+
+##### Lectio viii
+
+PAcífici autem in semetípsis sunt, qui, omnes ánimi sui motus componéntes et subjiciéntes ratióni, id est menti et spirítui, carnalésque concupiscéntias habéntes edómitas, fiunt regnum Dei. In quo ita sunt ordináta ómnia, ut id quod est in hómine præcípuum et excéllens, hoc ímperet, céteris non reluctántibus quæ sunt nobis bestiísque commúnia; atque idípsum quod excéllit in hómine, id est mens et rátio, subjiciátur potióri, quod est ipsa Véritas, unigénitus Fílius Dei. Neque enim imperáre inferióribus potest, nisi superióri se ipse subjíciat. Et hæc est pax, quæ datur in terra homínibus bonæ voluntátis; hæc vita consummáti perféctique sapiéntis.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti. Glória Patri. Isti.
+
+##### Lectio ix
+
+DE hujúsmodi regno pacatíssimo et ordinatíssimo missus est foras princeps hujus sǽculi, qui pervérsis inordinatísque dominátur. Hac pace intrínsecus constitúta atque firmáta, quascúmque persecutiónes ille, qui foras missus est, forínsecus concitáverit, auget glóriam quæ secúndum Deum est; non áliquid in illo ædifício labefáctans, sed deficiéntibus máchinis suis innotéscere fáciens, quanta firmitas intus exstrúcta sit. Ideo séquitur : Beáti, qui persecutiónem patiúntur propter justítiam; quóniam ipsórum est regnum cælórum.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis ac Ss. Vitalis et Agricolæ Mm., ut infra.}
+
+---
+
+## Die 4 Novembris — S. Caroli
+
+{RUBRIC: Ep. et Conf. [69] Duplex}
+
+{RUBRIC: Si de hoc Festo in I Vésperis facta fúerit tantum Commemoratio, m. t. v.}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.

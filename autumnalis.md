@@ -19435,3 +19435,95 @@ Etenim corréxit orbem terræ qui non commovébitur : * judicábit pópulos in �
 Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : * gaudébunt campi, et ómnia quæ in eis sunt.
 
 Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : * quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, * et pópulos in veritáte sua.
+
+**Ant.** Adorámus te, Christe, et benedícimus tibi, quia per Crucem tuam redemísti mundum.
+
+**Ant.** Per lignum \* servi facti sumus, et per sanctam Crucem liberáti sumus : fructus árboris sedúxit nos, Fílius Dei redémit nos, allelúja.
+
+**Psalmus 96**
+
+DOminus regnávit, exsúltet terra : * læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : * justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, * et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : * vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : * a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : * et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : * et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : * audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, * propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : * nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : * custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, * et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : * et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Per lignum servi facti sumus, et per sanctam Crucem liberáti sumus : fructus árboris sedúxit nos, Fílius Dei redémit nos, allelúja.
+
+**Ant.** Salvátor mundi, \* salva nos : qui per Crucem et sánguinem tuum redemísti nos, auxiliáre nobis, te deprecámur, Deus noster.
+
+**Psalmus 97**
+
+CAntáte Dómino cánticum novum : * quia mirabília fecit.
+
+Salvávit sibi déxtera ejus : * et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum : * in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, * et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ * salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra : * cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi : * in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini : * moveátur mare, et plenitúdo ejus : orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini : * quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, * et pópulos in æquitáte.
+
+**Ant.** Salvátor mundi, salva nos : qui per Crucem et sánguinem tuum redemísti nos, auxiliáre nobis, te deprecámur, Deus noster.
+
+℣. Omnis terra adóret te, et psallat tibi. ℟. Psalmum dicat nómini tuo, Dómine.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+*Cap. 12, 31-36*
+
+IN illo témpore : Dixit Jesus turbis Judæórum : Nunc judícium est mundi, nunc princeps hujus mundi ejiciétur foras. Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ}
+*Sermo 8 de Passione Domini, post medium*
+
+EXaltáto, dilectíssimi, per Crucem Christo, non illa tantum spécies aspéctui mentis occúrrat, quæ fuit in óculis impiórum, quibus per Móysen dictum est : Et erit pendens vita tua ante óculos tuos, et timébis die ac nocte, et non credes vitæ tuæ. Isti enim nihil in crucifíxo Dómino præter facínus suum cogitáre potuérunt, habéntes timórem, non quo fides vera justificátur, sed quo consciéntia iníqua torquétur. Noster vero intelléctus, quem spíritus veritátis illúminat, glóriam Crucis, cælo terráque radiántem, puro ac líbero corde suscípiat; et interióre ácie vídeat, quale sit quod Dóminus, cum de passiónis suæ loquerétur instántia, dixit : Nunc judícium mundi est, nunc princeps hujus mundi ejiciétur foras. Et ego, si exaltátus fúero a terra, ómnia traham ad meípsum.
+
+℟. Dulce lignum, dulces clavos, dulce pondus sustínuit : \* Quæ sola digna fuit portáre prétium hujus sǽculi. ℣. Hoc signum Crucis erit in cælo, cum Dóminus ad judicándum vénerit. — Quæ sola digna fuit portáre prétium hujus sǽculi.
+
+**Bened.** Divínum auxílium.
+
+##### Lectio viii
+
+OAdmirábilis poténtia Crucis! o ineffábilis glória Passiónis, in qua et tribúnal Dómini, et judícium mundi, et potéstas est Crucifíxi! Traxísti enim, Dómine, ómnia ad te, et cum expandísses tota die manus tuas ad pópulum non credéntem et contradicéntem tibi, confiténdæ majestátis tuæ sensum totus mundus accépit. Traxísti, Dómine, ómnia ad te, cum in exsecratiónem Judáici scéleris, unam protulérunt ómnia eleménta senténtiam; cum, obscurátis lumináribus cæli et convérso in noctem die, terra quoque mótibus quaterétur insólitis, univérsaque creatúra impiórum úsui se negáret. Traxísti, Dómine, ómnia ad te, quóniam, scisso templi velo, Sancta sanctórum ab indígnis pontifícibus recessérunt; ut figúra in veritátem, prophetía in manifestatiónem, et lex in Evangélium verterétur.
+
+℟. Sicut Móyses exaltávit serpéntem in desérto, ita exaltári opórtet Fílium hóminis : \* Ut omnis qui credit in ipsum, non péreat, sed hábeat vitam ætérnam. ℣. Non misit Deus Fílium suum in mundum ut júdicet mundum, sed ut salvétur mundus per ipsum. — Ut. Glória Patri. Ut.
+
+##### Lectio ix
+
+TRaxísti, Dómine, ómnia ad te, ut, quod in uno Judǽæ templo obumbrátis significatiónibus tegebátur, pleno apertóque sacraménto univerárum ubíque natiónum devótio celebráret. Nunc étenim et ordo clárior levitárum, et dígnitas ámplior seniórum, et sacrátior est únctio sacerdótum : quia Crux tua ómnium fons benedictiónum, ómnium est causa gratiárum; per quam credéntibus datur virtus de infirmitáte, glória de oppróbrio, vita de morte. Nunc étiam, carnálium sacrificiórum varietáte cessánte, omnes differéntias hostiárum una córporis et sánguinis tui implet oblátio : quóniam tu es verus Agnus Dei, qui tollis peccáta mundi; et ita in te univérsa pérficis mystéria, ut sicut unum est pro omni víctima sacrifícium, ita unum de omni gente sit regnum.
+
+**Te Deum laudámus.**

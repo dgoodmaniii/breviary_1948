@@ -31039,3 +31039,116 @@ COnfitébor tibi, Dómine, in toto corde meo : \* in consílio justórum, et con
 Magna ópera Dómini : \* exquisíta in omnes voluntátes ejus.
 
 Conféssio et magnificéntia opus ejus : \* et justítia ejus manet in sæculum sæculi.
+
+Memóriam fecit mirabílium suórum, miséricors et miserátor Dóminus : \* escam dedit timéntibus se.
+
+Memor erit in sæculum testaménti sui : \* virtútem óperum suórum annuntiábit pópulo suo :
+
+Ut det illis hereditátem géntium : \* ópera mánuum ejus véritas, et judícium.
+
+Fidélia ómnia mandáta ejus : confirmáta in sæculum sæculi, \* facta in veritáte et æquitáte.
+
+Redemptiónem misit pópulo suo : \* mandávit in ætérnum testaméntum suum.
+
+Sanctum, et terríbile nomen ejus : \* inítium sapiéntiæ timor Dómini.
+
+Intelléctus bonus ómnibus faciéntibus eum : \* laudátio ejus manet in sæculum sæculi.
+
+**Ant.** Majórem caritátem nemo habet, ut ánimam suam ponat quis pro amícis suis.
+
+**Ant.** Vos amíci mei estis, \* si fecéritis quæ præcípio vobis, dicit Dóminus.
+
+###### Psalmus 111
+
+BEátus vir, qui timet Dóminum : \* in mandátis ejus volet nimis.
+
+Potens in terra erit semen ejus : \* generátio rectórum benedicétur.
+
+Glória, et divítiæ in domo ejus : \* et justítia ejus manet in sæculum sæculi.
+
+Exórtum est in ténebris lumen rectis : \* miséricors, et miserátor, et justus.
+
+Jucúndus homo qui miserétur et cómmodat, dispónet sermónes suos in judício : \* quia in ætérnum non commovébitur.
+
+In memória ætérna erit justus : \* ab auditióne mala non timébit.
+
+Parátum cor ejus speráre in Dómino, confirmátum est cor ejus : \* non commovébitur donec despíciat inimícos suos.
+
+Dispérsit, dedit paupéribus : justítia ejus manet in sæculum sæculi, \* cornu ejus exaltábitur in glória.
+
+Peccátor vidébit, et irascétur, déntibus suis fremet et tabéscet : \* desidérium peccatórum períbit.
+
+**Ant.** Vos amíci mei estis, si fecéritis quæ præcípio vobis, dicit Dóminus.
+
+**Ant.** Beáti pacífici, \* beáti mundo corde : quóniam ipsi Deum vidébunt.
+
+###### Psalmus 112
+
+LAudáte, púeri, Dóminum : \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sæculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem :
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Beáti pacífici, beáti mundo corde : quóniam ipsi Deum vidébunt.
+
+**Ant.** In patiéntia vestra \* possidébitis ánimas vestras.
+
+###### Psalmus 116
+
+LAudáte Dóminum, omnes gentes : \* laudáte eum, omnes pópuli :
+
+Quóniam confirmáta est super nos misericórdia ejus : \* et véritas Dómini manet in ætérnum.
+
+**Ant.** In patiéntia vestra possidébitis ánimas vestras.
+
+**Capit.** *Ephes. 2, 19-20*
+
+FRatres : Jam non estis hóspites, et ádvenæ; sed estis cives Sanctórum, et doméstici Dei, superædificáti super fundaméntum Apostolórum et Prophetárum, ipso summo angulári lápide Christo Jesu.
+
+**Hymnus**
+
+EXsúltet orbis gáudiis,
+Cælum resúltet láudibus :
+Apostolórum glóriam
+Tellus et astra cóncinunt.
+
+Vos, sæculórum júdices
+Et vera mundi lúmina,
+Votis precámur córdium :
+Audíte voces súpplicum.
+
+Qui templa cæli cláuditis
+Serásque verbo sólvitis,
+Nos a reátu nóxios
+Solvi jubéte, quæsumus.
+
+Præcépta quorum prótinus
+Languor salúsque séntiunt,
+Sanáte mentes lánguidas,
+Augéte nos virtútibus :
+
+Ut, cum redíbit árbiter
+In fine Christus sæculi,
+Nos sempitérni gáudii
+Concédat esse cómpotes.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória. Amen.
+
+℣. In omnem terram exívit sonus eórum.
+℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Tradent enim vos \* in concíliis, et in synagógis suis flagellábunt vos, et ante reges et præsides ducémini propter me in testimónium illis, et géntibus.

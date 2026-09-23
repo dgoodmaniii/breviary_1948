@@ -31668,3 +31668,111 @@ PER manus autem Apostolórum fiébant signa et prodígia multa in plebe.
 IBant Apóstoli gaudéntes a conspéctu concílii, quóniam digni hábiti sunt pro nómine Jesu contumélias pati.
 
 ℟. br. Nimis honoráti sunt \* Amíci tui, Deus. Nimis. ℣. Nimis confortátus est principátus eórum. Amíci. **Glória Patri.** Nimis. ℣. Annuntiavérunt ópera Dei. ℟. Et facta ejus intellexérunt.
+
+#### IN II VESPERIS
+
+**Ant.** Jurávit Dóminus, \* et non pænitébit eum : Tu es sacérdos in ætérnum.
+
+###### Psalmus 109
+
+DIxit Dóminus Dómino meo : \* Sede a dextris meis :
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion : \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum : \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pænitébit eum : \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas : \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet : \* proptérea exaltábit caput.
+
+**Ant.** Jurávit Dóminus, et non pænitébit eum : Tu es sacérdos in ætérnum.
+
+**Ant.** Cóllocet eum \* Dóminus cum princípibus pópuli sui.
+
+###### Psalmus 112
+
+LAudáte, púeri, Dóminum : \* laudáte nomen Dómini.
+
+Sit nomen Dómini benedíctum, \* ex hoc nunc, et usque in sæculum.
+
+A solis ortu usque ad occásum, \* laudábile nomen Dómini.
+
+Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
+
+Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
+
+Súscitans a terra ínopem, \* et de stércore érigens páuperem :
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Cóllocet eum Dóminus cum princípibus pópuli sui.
+
+**Ant.** Dirupísti, Dómine, \* víncula mea : tibi sacrificábo hóstiam laudis.
+
+###### Psalmus 115
+
+CRédidi, propter quod locútus sum : \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo : \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam : \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus : \* pretiósa in conspéctu Dómini mors sanctórum ejus :
+
+O Dómine, quia ego servus tuus : \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea : \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus : \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Dirupísti, Dómine, víncula mea : tibi sacrificábo hóstiam laudis.
+
+**Ant.** Eúntes ibant \* et flebant, mitténtes sémina sua.
+
+###### Psalmus 125
+
+IN converténdo Dóminus captivitátem Sion : \* facti sumus sicut consoláti :
+
+Tunc replétum est gáudio os nostrum : \* et lingua nostra exsultatióne.
+
+Tunc dicent inter gentes : \* Magnificávit Dóminus fácere cum eis.
+
+Magnificávit Dóminus fácere nobíscum : \* facti sumus lætántes.
+
+Convérte, Dómine, captivitátem nostram, \* sicut torrens in Austro.
+
+Qui séminant in lácrimis, \* in exsultatióne metent.
+
+Eúntes ibant et flebant, \* mitténtes sémina sua.
+
+Veniéntes autem vénient cum exsultatióne, \* portántes manípulos suos.
+
+**Ant.** Eúntes ibant et flebant, mitténtes sémina sua.
+
+**Ant.** Confortátus est \* principátus eórum, et honoráti sunt amíci tui, Deus.
+
+###### Psalmus 138
+
+DOmine, probásti me, et cognovísti me : \* tu cognovísti sessiónem meam, et resurrectiónem meam.
+
+Intellexísti cogitatiónes meas de longe : \* sémitam meam, et funículum meum investigásti.
+
+Et omnes vias meas prævidísti : \* quia non est sermo in lingua mea.
+
+Ecce, Dómine, tu cognovísti ómnia novíssima, et antíqua : \* tu formásti me, et posuísti super me manum tuam.
+
+Mirábilis facta est sciéntia tua ex me : \* confortáta est, et non pótero ad eam.
+
+Quo ibo a spíritu tuo? \* et quo a fácie tua fúgiam?
+
+Si ascéndero in cælum, tu illic es : \* si descéndero in inférnum, ades.

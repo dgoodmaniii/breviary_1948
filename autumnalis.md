@@ -35184,3 +35184,55 @@ Desiderabília super aurum et lápidem pretiósum multum : \* et dulcióra super
 Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
 
 Delícta quis intélligit? ab occúltis meis munda me : \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero : \* et emundábor a delícto máximo.
+
+Et erunt ut compláceant elóquia oris mei : \* et meditátio cordis mei in conspéctu tuo semper.
+
+Dómine, adjútor meus, \* et redémptor meus.
+
+**Ant.** Ante torum hujus Vírginis frequentáte nobis dúlcia cántica drámatis.
+
+{RUBRIC: Pro non Virgine}
+
+**Ant.** Læva ejus sub cápite meo, et déxtera illíus amplexábitur me.
+
+**Ant.** Revértere, \* revértere, Sunamítis; revértere, revértere, ut intueámur te.
+
+###### Psalmus 23
+
+DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec jurávit in dolo próximo suo.
+
+Hic accípiet benedictiónem a Dómino : \* et misericórdiam a Deo, salutári suo.
+
+Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens : Dóminus potens in prœlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Revértere, revértere, Sunamítis; revértere, revértere, ut intueámur te.
+
+℣. Spécie tua et pulchritúdine tua.
+℟. Inténde, próspere procéde, et regna.
+
+**Absolutio.** Exáudi, Dómine.
+
+**Benedictio.** Benedictióne.
+
+{RUBRIC: De Epístola prima beáti Pauli Apóstoli ad Corínthios}
+
+#### Lectio i
+*Cap. 7, 25-40*
+
+DE virgínibus præcéptum Dómini non hábeo : consílium autem do, tamquam misericórdiam consecútus a Dómino, ut sim fidélis. Exístimo ergo hoc bonum esse propter instántem necessitátem, quóniam bonum est hómini sic esse. Alligátus es uxóri? noli quærere solutiónem.

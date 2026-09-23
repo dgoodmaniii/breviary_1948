@@ -32830,3 +32830,114 @@ Hi pro te fúrias atque minas truces
 Calcárunt hóminum, sǽvaque vérbera :
 His cessit lácerans fórtiter úngula,
 Nec carpsit penetrália.
+
+Cædúntur gládiis more bidéntium :
+Non murmur résonat, non querimónia;
+Sed corde impávido mens bene cónscia
+Consérvat patiéntiam.
+
+Quæ vox, quæ póterit lingua retéxere,
+Quæ tu Mártyribus múnera præparas?
+Rubri nam flúido sánguine, fúlgidis
+Cingunt témpora láureis.
+
+Te, summa o Déitas, únaque póscimus :
+Ut culpas ábigas, nóxia súbtrahas,
+Des pacem fámulis; ut tibi glóriam,
+Annórum in sériem, canant.
+Amen.
+
+℣. Lætámini in Dómino et exsultáte, justi.
+℟. Et gloriámini, omnes recti corde.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+{RUBRIC: Pro pluribus Martyribus Pontificibus}
+
+**1 — Oratio**
+
+BEatórum Mártyrum paritérque Pontíficum N. et N. nos, quǽsumus, Dómine, festa tueántur : et eórum comméndet orátio veneránda. Per Dóminum.
+
+{RUBRIC: Si non fuerint Pontifices}
+
+**2 — Oratio**
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum N. et N. natalítia cólere : da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+**3 — Alia Oratio**
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum N. et N. solemnitáte lætíficas : concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Completórium de Domínica.}
+
+#### AD MATUTINUM
+
+**Invit.** Regem Mártyrum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+**Hymnus**
+
+CHristo profúsum sánguinem
+Et Mártyrum victórias
+Dignámque cælo láuream
+Lætis sequámur vócibus.
+
+Terróre victo sæculi
+Pœnísque spretis córporis,
+Mortis sacræ compéndio
+Vitam beátam póssident.
+
+Tradúntur igni Mártyres
+Et bestiárum déntibus,
+Armáta sævit úngulis
+Tortóris insáni manus.
+
+Nudáta pendent víscera,
+Sanguis sacrátus fúnditur;
+Sed pérmanent immóbiles
+Vitæ perénnis grátia.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Te nunc, Redémptor, quæsumus,
+Ut Mártyrum consórtio
+Jungas precántes sérvulos
+In sempitérna sæcula.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Secus decúrsus aquárum \* plantávit víneam justórum, et in lege Dómini fuit volúntas eórum.
+
+###### Psalmus 1
+
+BEátus vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit :
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo :
+
+Et fólium ejus non défluet : \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic : \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício : \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum : \* et iter impiórum períbit.
+
+**Ant.** Secus decúrsus aquárum plantávit víneam justórum, et in lege Dómini fuit volúntas eórum.
+
+**Ant.** Tamquam aurum \* in fornáce probávit eléctos Dóminus : et quasi holocáusta accépit eos in ætérnum.
+
+###### Psalmus 2
+
+QUare fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum : \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos : \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prǽdicans præcéptum ejus.

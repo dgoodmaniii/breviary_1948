@@ -34829,4 +34829,21 @@ POpuli autem vidéntes et non intelligéntes, nec ponéntes in præcórdiis tál
 
 #### Lectio iii
 
-ET erunt geméntes, et memória illórum períbit. Vénient in cogitatióne peccatórum suórum tímidi, et tradúcent illos ex advérso iniquitátes ipsórum. Tunc stabunt justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum. Vidéntes turbabúntur timóre horríbili, et mirabúntur in subitatióne insperátæ salútis; dicéntes intra se, pæniténtiam agéntes, et præ angústia spíritus geméntes : Hi sunt, quos habúimus áliquándo in derísum et in similitúdinem impropérii.
+ET erunt geméntes, et memória illórum períbit. Vénient in cogitatióne peccatórum suórum tímidi, et tradúcent illos ex advérso iniquitátes ipsórum. Tunc stabunt justi in magna constántia advérsus eos, qui se angustiavérunt et qui abstulérunt labóres eórum. Vidéntes turbabúntur timóre horríbili, et mirabúntur in subitatióne insperátæ salútis; dicéntes intra se, pæniténtiam agéntes, et præ angústia spíritus geméntes : Hi sunt, quos habúimus áliquándo in derísum et in similitúdinem impropérii. Nos insensáti vitam illórum æstimabámus insániam et finem illórum sine honóre : ecce, quómodo computáti sunt inter fílios Dei, et inter sanctos sors illórum est.
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum : \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et invéntus. **Glória Patri.** Et invéntus.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro Morálium sancti Gregórii Papæ}
+{RUBRIC: Liber 10, cap. 16, in c. 12 Job}
+
+#### Lectio iv
+
+DEridétur justi simplícitas. Hujus mundi sapiéntia est : cor machinatiónibus tégere, sensum verbis veláre : quæ falsa sunt, vera osténdere; quæ vera sunt, falsa demonstráre. Hæc nimírum prudéntia usu a juvénibus scitur, hæc a púeris prétio díscitur : hanc qui sciunt, céteros despiciéndo supérbiunt : hanc qui nésciunt, subjécti et tímidi in áliis mirántur; quia ab eis hæc éadem duplicitátis iníquitas, nómine palliáta, dilígitur, dum mentis pervérsitas urbánitas vocátur. Hæc sibi obsequéntibus præcípit honórum cúlmina quærere; adépta temporális glóriæ vanitáte gaudére; irrogáta ab áliis mala multiplícius réddere : cum vires súppetunt, nullis resisténtibus cédere; cum virtútis possibílitas deest, quidquid explére per malítiam non valent, hoc in pacífica bonitáte simuláre.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+#### Lectio v
+
+AT contra, sapiéntia justórum est : nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quærere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mundi sapiéntibus puritátis virtus fatúitas créditur. Omne enim, quod innocénter ágitur, ab eis proculdúbio stultum putátur.

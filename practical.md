@@ -860,3 +860,77 @@ psalms of Prime, will settle the question: "Ad Primam loco sequentis Psalmi 117.
 On examining the first set of psalms it is found that the *Miserere* is one of them; but, if at Lauds the second scheme is used, it would mean a repetition of the *Miserere*. The Church, therefore, to avoid this, has given a second set of psalms to the nocturn in question (leaving unchanged its remaining two psalms), which second set of psalms is used on ferials requiring Lauds II.
 
 ---
+
+## CHAPTER VI
+
+## THE LITTLE HOURS
+
+**38.** The *scheme* of the Little Hours is as follows:
+
+**I. INTRODUCTION.**
+
+a) "Ordinary beginning"
+b) Invariable hymn.[^51]
+
+**II. BODY OF EACH HOUR.**
+
+a) *Three Psalms* \* with one antiphon,\* never doubled
+b) Capitulum \* (*Deo Gratias*)
+c) Responsorium Breve \*
+d) *Preces* (if said).
+e) *Oration* \* (of Office recited, with "*Oremus*") preceded and followed by *Dominus vobiscum*.
+
+**III. "ORDINARY ENDING."**
+
+a) Benedicamus Domino
+b) Fidelium animæ
+c) Pater noster, "totum secreto" (if no other Hour follows).
+
+[^51]: At Terce, however, the usual hymn, "*Nunc, Sancte, nobis, Spiritus*," is replaced by the hymn "*Veni, Creator Spiritus*" on the feast of Pentecost and during its octave.
+
+**39.** Prime, although different from the other Little Hours, will be treated later, by contrast with them.
+
+The *one* antiphon accompanying the *three psalms* of the Little Hours (and Compline) is never doubled. The only Hours, in fact, having antiphons capable of being doubled are Matins, Lauds, and Vespers, all of which have also an antiphon to each psalm.[^52]
+
+### Responsorium Breve
+
+**40.** This is of peculiar construction, and will best be explained by an example:
+
+*How written:*
+
+> ℟. *br.* Ipse liberavit me \* De laqueo venantium. Ipse.
+>
+> ℣. Et a verbo aspero. De laqueo. Gloria Patri. Ipse.
+
+*How said:*
+
+> Ipse liberavit me, de laqueo venantium. *Ipse* liberavit me, de laqueo venantium. Et a verbo aspero: *de laqueo* venantium. *Gloria Patri*, et Filio, et Spiritui Sancto. Ipse liberavit me, de laqueo venantium.
+
+℣. Scapulis suis obumbrabit tibi.
+℟. Et sub pennis ejus sperabis.
+
+(*Ordinarium*, at Terce, *Temp. Quad.*)
+
+**41.** Every *Responsorium breve* is preceded by a Capitulum. Remarks concerning *Preces feriales*
+
+[^52]: During Paschal Time, however, there is usually only one (*Alleluiatic*) antiphon for a set of psalms, but this antiphon can be doubled at Matins, Lauds, and Vespers.
+
+— which are always found in the Ordinarium — have already been made (27 f.).
+
+### Prime in Particular
+
+**42.** Prime follows the general scheme given for the Little Hours (n. 38) as far as the *Benedicamus Domino* of the "ordinary ending" inclusive. It then branches off, becoming an entirely different Hour.
+
+Note, however, the following points.
+
+(a) The *Credo* ("symbolum Apostolorum") is added to the *Pater* and *Ave* of the "ordinary beginning."
+
+(b) The Capitula of Prime are invariable. There is one for feasts ("*Regi sæculorum*"), and another ("*Pacem et veritatem*") for ferials.
+
+(c) The "*Responsorium breve*[^53] and the Oration of Prime are also invariable, whereas, in the other Little Hours, all these parts change with the Office recited. It may not be amiss to state again that *invariable* parts of the Office are found in the *Ordinarium*.
+
+The remaining "branching-off" part of Prime, being invariable, will cause no difficulty, as all that is to be done consists simply in reciting it as it is written in the Ordinarium. There is, nevertheless,
+
+[^53]: The verse "*Qui sedes ad dexteram Patris*," however, changes from time to time. The change is usually indicated after Lauds in the Proper of the Office that entails it, e. g., after Lauds given in the *Proprium Sanctorum* for the feast of the Transfiguration (Aug. 6th), directions are given to change the verse referred to, into "*Qui apparuisti hodie*."
+
+---

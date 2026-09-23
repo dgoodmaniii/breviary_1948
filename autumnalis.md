@@ -28865,3 +28865,37 @@ DEus, qui in corde beátæ Gertrúdis Vírginis jucúndam tibi mansiónem præpa
 ℣. Justum dedúxit.
 
 {RUBRIC: Oratio Deus, qui beátum, ut supra.}
+
+### In II Nocturno
+
+##### Lectio iv
+
+GErtrúdis, Islébii in Saxónia nóbili génere nata, quinquénnis in monastério Rodardénsi, órdinis sancti Benedícti, virginitátem suam ac seípsam Jesu Christo óbtulit. Quo ex témpore a mundánis rebus prorsus aliéna, virtutíque sédulo inténta, cæléstis vitæ genus institúit. Ad humaniórum litterárum notítiam, rerum divinárum cognitiónem adjúnxit; quarum meditatióne veheméntius ad virtútem incénsa, brevi christiánam perfectiónem adépta est. De Christo ejúsque vitæ mystériis sæpenúmero pio cum ánimi sensu loquebátur, unámque Dei glóriam cógitans, ad illam vota sua ómnia et actiónes referébat. Quamvis autem multis exímiis natúræ et grátiæ donis a Deo aucta esset, ita tamen sibi ipsa vilescébat, ut, inter præcípua divínæ bonitátis miácula hoc item memoráret, quod se indigníssimam misericórditer sustinéret.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+##### Lectio v
+
+TRigésimum ætátis annum agens, primum Rodardénsis monastérii, ubi religiósam vitam est proféssa, deínde Elpediáni præses elécta, quadragínta annórum spátio, ea caritáte, prudéntia, et regulári disciplínæ stúdio munus obívit, ut cœnóbium religiósæ perfectiónis domicílium vidérétur. Utróbique vero, licet esset ómnium mater et magístra, ómnium tamen mínima habéri volébat, ac demissióne pari ministram se exhibébat. Quo libérius Deo vacáret, vigíliis, abstinéntia aliísque cruciátibus corpus afflíxit; semperque sui símilis, morum innocéntiam, mansuetúdinem ac patiéntiam prætulit singulárem. Proximórum salúti omni ope stúduit, piæque curæ copiósum fructum rétulit. Divíni amóris vi frequéntes patiebátur exstáses, altissimǽque contemplatiónis et divínæ uniónis donum obtínuit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+UT méritum acceptíssimæ sibi sponsæ Christus osténderet, in corde Gertrúdis jucúndam sibi esse mansiónem testátus est. Deíparam Vírginem véluti matrem et curatrícem a Jesu accéptam, pietáte præcípua prosequebátur, ab eáque multa accépit benefícia. Erga diviníssimum Eucharístiæ sacraméntum et passiónem Dómini tanto amóre cum grati ánimi sensu afficiebátur, ut intérdum ubéribus lácrimis perfunderétur. Justórum ánimas piaculáribus flammis addíctas, quotidiánis subsídiis et précibus juvábat. Multa ad confovéndam pietátem scripsit. Divinárum étiam revelatiónum et prophétiæ dono cláruit. Dénique, flagrantíssimo Dei amóre pótius quam morbo languéscens, anno Dómini millésimo ducentésimo nonagésimo secúndo vita decéssit. Miráculis vivens et post mortem a Deo illustráta est.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur. Glória Patri. Afferéntur.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+GErtrúdis, Islébii in Saxónia nata, quinquénnis in monastério Elpidiénsi, órdinis sancti Benedícti, virginitátem suam ac seípsam Jesu Christo óbtulit. Sanctam Mechtíldem magístram hábuit, qua duce ad altíssima contemplatiónis dona pervénit. Erga diviníssimum Eucharístiæ sacraméntum et passiónem Dómini tanta caritáte æstuábat, ut, ea recógitans, ubéribus lácrimis perfunderétur. Multa ad confovéndam pietátem scripsit. Divinárum étiam revelatiónum et prophétiæ dono cláruit. Dénique, flagrantíssimo Dei amóre pótius quam morbo languéscens, vita decéssit, miráculis vivens et post mortem illústris.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Símile erit regnum cælórum, de Communi Vírginum 1 loco. [122]}
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.

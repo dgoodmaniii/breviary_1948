@@ -28318,3 +28318,49 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 MArtínus, Sabáriæ in Pannónia natus, cum décimum attigísset annum, invítis paréntibus ad ecclésiam confúgiens, in catechumenórum númerum adscríbi vóluit. Quíndecim annos natus in milítiam proféctus, primum in Constántii, deínde Juliáni exércitu militávit. Qui, cum nihil habéret præter arma et vestiméntum quo tegebátur, Ambiáni, páuperi ac nudo, ab eo peténti ut Christi nómine sibi eleemósynam tribúeret, partem chlámydis dedit. Cui sequénti nocte Christus, dimidiáta illa veste indútus, appáruit, hanc mittens vocem : Martínus catechúmenus hac me veste contéxit.
 
 ℟. Oculis ac mánibus in cælum semper inténtus, \* Invíctum ab oratióne spíritum non relaxábat. ℣. Dum sacraménta offérret beátus Martínus, globus ígneus appáruit super caput ejus. — Invíctum.
+
+##### Lectio v
+
+DEcem et octo annos cum habéret, baptizátus est. Quare, relícta militári vita, ad Hilárium Pictaviénsem epíscopum se cóntulit, a quo in acolythórum númerum redáctus est. Post, factus epíscopus Turonénsis, monastérium ædificávit, ubi cum octogínta mónachis sanctíssime aliquámdiu vixit. Qui, cum póstea ad Candacénsem vicum suæ diœcésis in gravem febrim incidísset, assídua Deum oratióne precabátur, ut se ex illo mortáli cárcere liberáret. Quem audiéntes discípuli, sic rogábant : Cur nos, pater, déseris? cui nos míseros derelínquis? Quorum voce commótus Martínus, ita Deum orábat : Dómine, si adhuc pópulo tuo sum necessárius, non recúso labórem.
+
+℟. Beátus Martínus óbitum suum longe ante præscívit, dixítque frátribus, \* Dissolutiónem sui córporis imminére, quia judicábat se jam resólvi. ℣. Víribus córporis cœpit repénte destítui, convocatísque discípulis dixit. — Dissolutiónem.
+
+##### Lectio vi
+
+SED, cum eum in illa veheménti febre supínum orántem vidérent discípuli, suppliciter ab eo petiérunt, ut, convérso córpore, tantísper, dum remítteret morbi vis, pronus conquiésceret. Quibus Martínus, Sínite me, inquit, cælum pótius quam terram aspícere, ut suo jam itínere itúrus ad Dóminum, spíritus dirigátur. Instánte jam morte, viso humáni géneris hoste, Quid, inquit, astas, cruénta béstia? nihil in me funéste repéries. Ea in voce, unum et octogínta annos natus, ánimam Deo réddidit; quam Angelórum chorus excépit, eósque divínas canéntes laudes multi, in primísque sanctus Severínus Coloniénsis epíscopus audiérunt.
+
+℟. Dixérunt discípuli ad beátum Martínum : Cur nos, pater, déseris, aut cui nos desolátos relínquis? \* Invádent enim gregem tuum lupi rapáces. ℣. Scimus quidem desideráre te Christum, sed salva sunt tibi tua prǽmia : nostri pótius miserére, quos déseris. — Invádent. Glória Patri. Invádent.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+MArtínus, Sabáriæ in Pannónia natus, cum décimum attigísset annum, invítis paréntibus ad ecclésiam confúgiens, in catechumenórum númerum adscríbi vóluit. Adoléscens quíndecim annórum in milítiam proféctus, primum in Constántii, deínde in Juliáni exércitu militávit. Decem et octo annos natus, cum Ambiáni partem chlámydis cuídam páuperi donásset, mira éxinde Jesu Christi apparitióne recreátus, álacri ánimo baptísmum suscépit; tum, relícta militári vita, ab Hilário Pictaviénsi epíscopo in acolythórum númerum est recéptus. Póstea factus epíscopus Turonénsis, monastérium ædificávit, ubi cum octogínta mónachis sanctíssime aliquámdiu vixit. Qui cum ad Candacénsem vicum suæ diœcésis in gravem febrim incidísset, suórum miserátus discipulórum, sic Deum rogábat : Dómine, si adhuc pópulo tuo sum necessárius, non recúso labórem. Mox instánte jam morte, viso humáni géneris hoste, Quid, inquit, astas, cruénta béstia? nihil in me funéste repéries. Ea in voce, unum et octogínta annos natus, multis miráculis gloriósus, ánimam Deo réddidit.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+**Ant.** Dóminus Jesus Christus, \* non purpurátum aut diadémate reniténtem, se ventúrum esse prædíxit.
+
+**Psalmus 10**
+
+IN Dómino confído : \* quómodo dícitis ánimæ meæ : Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in phárétra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt : \* justus autem quid fecit?
+
+Dóminus in templo sancto suo, \* Dóminus in cælo sedes ejus :
+
+Oculi ejus in páuperem respíciunt : \* pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium : \* qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos : \* ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit : \* æquitátem vidit vultus ejus.
+
+**Ant.** Dóminus Jesus Christus, non purpurátum aut diadémate reniténtem, se ventúrum esse prædíxit.
+
+**Ant.** Sacérdos Dei, Martíne, \* apérti sunt tibi cæli et regnum Patris mei.

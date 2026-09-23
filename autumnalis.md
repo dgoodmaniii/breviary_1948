@@ -40555,3 +40555,57 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
 
 ℣. Dispérsit, dedit paupéribus. ℟. Justítia ejus manet in sǽculum sǽculi.
+
+℣. Benedícam Dóminum in omni témpore. ℟. Semper laus ejus in ore meo.
+
+℣. In Dómino laudábitur ánima mea. ℟. Audiant mansuéti, et læténtur.
+
+℣. Magnificáte Dóminum mecum. ℟. Et exaltémus nomen ejus in idípsum.
+
+℣. Sit nomen Dómini benedíctum. ℟. Ex hoc nunc et usque in sǽculum.
+
+{RUBRIC: Deinde Sacérdos absolúte dicat :}
+
+REtribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. ℟. Amen.
+
+℣. Benedicámus Dómino. ℟. Deo grátias.
+
+℣. Fidélium ánimæ per misericórdiam Dei requiéscant in pace. ℟. Amen.
+
+Pater noster, {RUBRIC: totum secréto.}
+
+{RUBRIC: Quo fínito, Sacérdos dicit :} ℣. Deus det nobis suam pacem. ℟. Amen.
+
+### Ante Cœnam
+
+{RUBRIC: Sacérdos benedictúrus mensam incípit : Benedícite, et álii repétunt : Benedícite.}
+
+{RUBRIC: Deinde Sacérdos incípit Versum :}
+
+EDent páuperes, {RUBRIC: et álii prosequúntur :} Et saturabúntur, et laudábunt Dóminum, qui requírunt eum : vivent corda eórum in sǽculum sǽculi.
+
+Glória Patri. Sicut erat.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+Orémus.
+
+BEnedic, Dómine, nos, et hæc tua dona, quæ de tua largitáte sumus súmpturi. Per Christum Dóminum nostrum. ℟. Amen.
+
+℣. Jube, domne, benedícere.
+
+**Bened.** Ad cœnam vitæ ætérnæ perdúcat nos Rex ætérnæ glóriæ. ℟. Amen.
+
+### Post Cœnam
+
+{RUBRIC: agúntur grátiæ ut post Prándium, sed dícitur :}
+
+℣. Memóriam fecit mirabílium suórum miséricors et miserátor Dóminus. ℟. Escam dedit timéntibus se.
+
+Glória Patri. Sicut erat.
+
+BEnedíctus Deus in donis suis, et sanctus in ómnibus opéribus suis : Qui vivit et regnat in sǽcula sæculórum. ℟. Amen.
+
+{RUBRIC: Deinde alternátim dícitur Ps. 116 Laudáte Dóminum, omnes gentes, et relíqua ut supra. [247]}

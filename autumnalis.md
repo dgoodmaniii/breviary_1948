@@ -18120,3 +18120,57 @@ EXcita, quǽsumus, Dómine, tuórum fidélium voluntátes : ut divíni óperis f
 ℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
 
 **Ad Magnif. Ant.** Amen dico vobis, \* quia non præteríbit generátio hæc, donec ómnia fiant : cælum et terra transíbunt, verba autem mea non transíbunt, dicit Dóminus.
+
+---
+
+# Proprium Sanctorum
+
+{RUBRIC: In ómnibus Festis novem Lectiónum Dómini, beátæ Maríæ Virginis, Angelórum, sancti Joánnis Baptístæ, sancti Joseph, Apostolórum, Evangelistárum, necnon in ómnibus Duplícibus I vel II clássis, íntegrum Offícium dícitur ut in Próprio vel Commúni, et Lectiónes I Nocturni cum suis Responsóriis, nisi própriæ vel specialíter assignátæ habeántur, sumúntur de Commúni 1 loco.
+
+In relíquis vero Festis novem Lectiónum, nisi própria suis locis assignéntur, Antiphónæ et Psalmi ad omnes Horas, et ad Matutínum Versus Nocturnórum, dicúntur de occurrénti hebdómadæ die, ad Laudes quidem et Feria IV étiam in III Nocturno, 1 loco; Lectiónes I Nocturni de Scriptúra occurrénti, vel resuméndæ aut anticipándæ juxta Rúbricas, cum suis Responsóriis de Témpore; quæ si omníno desint, Lectiónes et Responsória de Commúni 1 loco, nisi áliter própriis locis notétur; réliqua ómnia ítem de Commúni, nempe præter Oratiónem :
+
+Ad utrásque Vésperas et Laudes Capítulum, Hymnus, Versus et Antiphóna ad Magníficat vel Benedíctus.
+
+Ad Matutínum Invitatórium, Hymnus, Lectiónes II et III Nocturni cum suis Responsóriis.
+
+Ad Primam Léctio brevis, pro qua súmitur Capítulum Nonæ.
+
+Ad Tértiam, Sextam et Nonam Capítulum et ℟. breve.
+
+Per Octávas autem commúnes, simíliter Antiphónæ et Psalmi dicúntur de occurrénti hebdómadæ die, réliqua, nisi áliter suis locis notétur, ut in Festo : sed Lectiónes et Responsória I Nocturni, nisi própria habeántur, sumúntur de Scriptúra occurrénti, ut supra, et iis deficiéntibus, Lectiónes in diébus infra Octávam dicúntur de Commúni, in die Octáva, et pro Festis Dómini Commúne non habéntibus étiam infra Octávam, ut in Festo; Responsória vero, tam infra Octávam quam in die Octáva, ut in Festo. Item Lectiónes II et III Nocturni, si própriæ de Octáva non habeántur, in diébus infra Octávam dicúntur de Commúni, in die Octáva, et pro Festis Dómini ut supra, ut in Festo. Et de Festo étiam infra Octávam sumúntur Lectiónes III Nocturni, si ália non habeátur Homilía in Evangélium Festi.
+
+In Festis autem et diébus Octávis simplícibus ómnia páriter dicúntur de occurrénti hebdómadæ die, et de Festo vel de Commúni, ut supra; sed ad Matutínum, omíssis versíbus I et II, novem Psalmi sub suis Antiphónis dicúntur continuátim in único Nocturno, et in eo sumúntur I et II Lectio de Scriptúra occurrénti cum suis Responsóriis de Témpore, addíto II Responsório Glória Patri, ut notátur; Lectio vero III de Festo, ut in Próprio vel Commúni.}
+
+---
+
+## Festa Augusti
+
+### Die 28 Augusti — S. Augustini
+
+{RUBRIC: Ep., Conf. et Eccl. Doct. — Duplex}
+
+#### IN II VESPERIS
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Augustíne, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+**Oratio**
+
+ADésto supplicatiónibus nostris, omnípotens Deus : et, quibus fidúciam sperándæ pietátis indúlges, intercedénte beáto Augustíno Confessóre tuo atque Pontífice, consuétæ misericórdiæ tríbue benígnus efféctum. Per Dóminum.
+
+---
+
+### Die 29 Augusti — In Decollatione S. Joannis Baptistae
+
+{RUBRIC: Duplex majus sed ad modum Simplicis recolendum}
+
+#### IN I VESPERIS
+
+**Ant.** Misso Heródes spiculatóre, præcépit amputári caput Joánnis in cárcere. Quo audíto, discípuli ejus venérunt, et tulérunt corpus ejus, et posuérunt illud in monuménto.
+
+℣. Glória et honóre.
+
+**Oratio**
+
+SAncti Joánnis Baptístæ Præcursóris et Mártyris tui, quǽsumus, Dómine, veneránda festívitas : salutáris auxílii nobis præstet efféctum. (Qui vivis.)

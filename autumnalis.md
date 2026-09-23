@@ -31348,3 +31348,92 @@ HÆC autem, fratres, transfigurávi in me et Apóllo, propter vos, ut in nobis d
 ℟. Tóllite jugum meum super vos, dicit Dóminus, et díscite a me, quia mitis sum et húmilis corde : \* Jugum enim meum suáve est, et onus meum leve. ℣. Et inveniétis réquiem animábus vestris. — Jugum.
 
 **Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+
+NOS stulti propter Christum, vos autem prudéntes in Christo : nos infírmi, vos autem fortes : vos nóbiles, nos autem ignóbiles. Usque in hanc horam et esurímus, et sitímus, et nudi sumus, et cólaphis cædimur, et instábiles sumus, et laborámus operántes mánibus nostris : maledícimur, et benedícimus : persecutiónem pátimur, et sustinémus : blasphemámur, et obsecrámus : tamquam purgaménta hujus mundi facti sumus, ómnium peripséma usque adhuc. Non ut confúndam vos, hæc scribo, sed ut fílios meos caríssimos móneo. Nam si decem míllia pædagógorum habeátis in Christo : sed non multos patres; nam in Christo Jesu per Evangélium ego vos génui.
+
+℟. Dum stetéritis ante reges et præsides, nolíte cogitáre, quómodo aut quid loquámini; \* Dábitur enim vobis in illa hora, quid loquámini. ℣. Non enim vos estis, qui loquímini; sed Spíritus Patris vestri, qui lóquitur in vobis. — Dábitur. **Glória Patri.** Dábitur.
+
+### In II Nocturno
+
+**Ant.** Príncipes populórum \* congregáti sunt cum Deo Abraham.
+
+###### Psalmus 46
+
+OMnes gentes, pláudite mánibus : \* jubiláte Deo in voce exsultatiónis.
+
+Quóniam Dóminus excélsus, terríbilis : \* Rex magnus super omnem terram.
+
+Subjécit pópulos nobis : \* et gentes sub pédibus nostris.
+
+Elégit nobis hereditátem suam : \* spéciem Jacob, quam diléxit.
+
+Ascéndit Deus in júbilo : \* et Dóminus in voce tubæ.
+
+Psállite Deo nostro, psállite : \* psállite Regi nostro, psállite.
+
+Quóniam Rex omnis terræ Deus : \* psállite sapiénter.
+
+Regnábit Deus super gentes : \* Deus sedet super sedem sanctam suam.
+
+Príncipes populórum congregáti sunt cum Deo Abraham : \* quóniam dii fortes terræ vehementér eleváti sunt.
+
+**Ant.** Príncipes populórum congregáti sunt cum Deo Abraham.
+
+**Ant.** Dedísti hereditátem \* timéntibus nomen tuum, Dómine.
+
+###### Psalmus 60
+
+EXáudi, Deus, deprecatiónem meam : \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi : \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea : \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sæcula : \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam : \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies : \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei : \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in sæculum sæculi : \* ut reddam vota mea de die in diem.
+
+**Ant.** Dedísti hereditátem timéntibus nomen tuum, Dómine.
+
+**Ant.** Annuntiavérunt \* ópera Dei, et facta ejus intellexérunt.
+
+###### Psalmus 63
+
+EXáudi, Deus, oratiónem meam cum déprecor : \* a timóre inimíci éripe ánimam meam.
+
+Protexísti me a convéntu malignántium : \* a multitúdine operántium iniquitátem.
+
+Quia exacuérunt ut gládium linguas suas : \* intendérunt arcum rem amáram, ut sagíttent in occúltis immaculátum.
+
+Súbito sagittábunt eum, et non timébunt : \* firmavérunt sibi sermónem nequam.
+
+Narravérunt ut abscónderent láqueos : \* dixérunt : Quis vidébit eos?
+
+Scrutáti sunt iniquitátes : \* defecérunt scrutántes scrutínio.
+
+Accédet homo ad cor altum : \* et exaltábitur Deus.
+
+Sagíttæ parvulórum factæ sunt plagæ eórum : \* et infirmátæ sunt contra eos linguæ eórum.
+
+Conturbáti sunt omnes qui vidébant eos : \* et tímuit omnis homo.
+
+Et annuntiavérunt ópera Dei, \* et facta ejus intellexérunt.
+
+Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes recti corde.
+
+**Ant.** Annuntiavérunt ópera Dei, et facta ejus intellexérunt.
+
+℣. Constítues eos príncipes super omnem terram.
+℟. Mémores erunt nóminis tui, Dómine.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.

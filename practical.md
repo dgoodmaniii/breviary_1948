@@ -354,4 +354,153 @@ When each psalm has its own individual antiphon, this antiphon is *always* said 
 [^8]: "Antiphons are short sentences, either extracted from Scripture or composed by the Church, calculated to excite piety or to show why such a psalm has found place in the Office. Formerly antiphons were repeated several times in the course of the psalm, as is still done with the psalm *Venite exsultemus*." (Vigourel, Syn. Man. of Liturgy, n. 96.)
 [^9]: The expressions: "doubling" and "announcing" refer only to the way of saying the antiphon before — not after — the psalm.
 
+double rites, and in the remaining Offices — whether semi-doubles or simples — it is merely announced.
+
+Matins, Lauds, and Vespers are the only Hours in which *each* psalm is accompanied by its own antiphon. The Little Hours and Compline have only *one* antiphon for *each set* (of three psalms), and this antiphon is *never* doubled.[^10]
+
+**10.** It sometimes happens that the antiphon (e. g., when "doubled"), or the part of it (e. g., when simply "announced") *which must be recited*[^11] before the psalm has the same wording as the *beginning* of the psalm following it. In this case the antiphon is said entire or in part — as the case may be — but the corresponding opening words of the psalm are omitted to avoid repetition. If the entire antiphon is the same as the beginning of the psalm, but, e. g., "Alleluja" has to be added to the antiphon on account of Paschal Time, then, since the antiphon and the beginning of the psalm are made different by the addition of this one word "Alleluja," the above rule does not hold good in this particular case, and the words of the antiphon are not omitted in the psalm. Consult, as a practical
+
+[^10]: There are, of course, exceptions to these rules, e. g., during Paschal Time the psalms of the different Hours have only one antiphon (Alleluja) to each set; and sometimes the Little Hours have no antiphon at all, e. g., during Easter week.
+[^11]: When the antiphon is only partly said (i. e., when merely "announced"), it does not matter whether the unrecited part of the antiphon continues to agree in wording with the psalm or not.
+
+example, the first psalm in the third nocturn of the *Commune Dedicationis Ecclesiæ*.
+
+The *Gloria Patri* (with *Sicut erat*) is added to the end of all psalms and canticles unless it is otherwise stated by particular Rubrics.
+
+### Hymns
+
+**11.** The *Doxology* (or last strophe) of hymns is liable to be replaced, in any Hour, by Doxologies proper to certain feasts of Our Lord and of the Blessed Virgin, e. g., the ordinary last strophe of the (invariable) hymn in Prime[^12] is:
+
+> Deo Patri sit gloria,
+> Ejusque soli Filio,
+> Cum Spiritu Paraclito,
+> Nunc, et per omne sæculum. Amen;
+
+but on feasts of the Blessed Virgin the conclusion of all hymns is (four iambic verses of eight syllables):
+
+> Jesu, tibi sit gloria,
+> Qui natus es de Virgine,
+> Cum Patre, et almo Spiritu,
+> In sempiterna sæcula. Amen.[^13]
+
+The *meter* of the hymns, however, must always be taken into account; thus, after the hymn of Christmas Day's first vespers, the following Rubric is given: "Sic terminantur omnes Hymni *ejusdem metri* usque ad Vigiliam Epiphaniæ inclusive."
+
+[^12]: The Little Hours and Compline have the same meter in the Hymns.
+[^13]: Cf. Rubric as written in the *Commune Festorum B. M. V.*, before Matins.
+
+### Varia
+
+**12. A.** "Deo Gratias" is added to the end of all *Capitula*.[^14]
+
+**B.** "*Tu autem, Dne, miserere nobis: Deo gratias*" is said after all Lessons, be they the ordinary Lessons (as at Matins) or the "*Lectiones breves*" (as at Prime and Compline).
+
+**C.** Subdeacons always say: "*Domine, exaudi orationem meam: Et clamor meus ad te veniat*," instead of: "*Dnus vobiscum: Et cum spiritu tuo*," at all the Hours; when a *Dne exaudi* already precedes a *Dnus vobiscum*, the former is not repeated.
+
+**D.** Each time the Breviary is opened to say a part of the day's Office the indulgenced prayer "*Aperi, Dne*" is commendably said. Before closing the Breviary it is likewise praiseworthy to recite the prayer "*Sacrosanctæ*," which, however, should be said kneeling, to obtain pardon of the faults committed during the recitation of the Office.[^15]
+
+The "*Aperi*" is found at the beginning, and the "*Sacrosanctæ*" at the end of the Ordinarium.
+
+[^14]: The *Capitulum* (meaning *Short Chapter*) is nothing else than a short extract from Scripture, accommodated to the Office recited.
+[^15]: For this it is also sufficient to say it once only, at the end of Compline, with the intention of obtaining the remission of all the faults committed during the entire Office. If Matins and Lauds are immediately added to Compline, it is sufficient to say the "Sacrosanctæ" after Lauds. All the privileges take effect when this prayer is not said kneeling, "infirmitatis tantum causa."
+
+---
+
+## CHAPTER III
+
+## MATINS OF NINE LESSONS
+
+**13.** The *scheme* of Matins is as follows:
+
+**I. INTRODUCTION.**
+
+*Irregular beginning.*
+
+a) Pater, Ave, Credo (as this is the *first* Hour).
+b) Dne, labia mea aperies: Et os meum annuntiabit laudem tuam. (This serves as an introductory prayer to the whole Office.)
+c) Deus, in adjutorium, etc.
+d) Gloria Patri with Sicut erat, etc.
+e) Alleluja (sometimes Laus tibi, Dne, etc.).
+
+*Preamble.*
+
+f) Invitatorium \* with psalm Venite exsultemus.
+g) Hymn \* (according to the Invitatorium).
+
+**II. THREE NOCTURNS,** *each* nocturn being composed of three psalms, three "links," and three Lessons, thus:
+
+a) *Three Psalms*, each psalm having its own antiphon.\*
+
+b) *Intervening parts* —
+
+- Versicle and Response \* (found after each set of three psalms).
+- Pater noster (without *Amen* after it).
+- Absolution (one for every three Lessons).
+
+c) *Three Lessons*,\* *each* of which is preceded by its own Benediction, as well as followed by "Tu autem, Dne, miserere nobis: Deo gratias" and a Responsorium.\*
+
+**14.** All the above parts marked with an asterisk \* are entirely variable. This method of indicating the variable parts of the Office will be used in all the plans.
+
+The *Credo* (Apostles' Creed) is said at the beginning of Matins and Prime only, as they are relatively important Hours, being first in their own groups.
+
+### The "Invitatorium" and Ps. "Venite Exsultemus"
+
+**15.** The *Invitatorium* is nothing else than an antiphon. The apparent difficulty arises from the way this antiphon is said with its invariable psalm. The simple rule for both is:
+
+Before the *first* verse of the *Venite*, the Invitatorium is said in full, twice. After the *uneven* (i. e., odd) verses it is said in full once, and after the *even* verses it is only *partly* recited, i. e., from the aster-
+
+isk \* to the end. When the psalm (with *Gloria Patri* and *Sicut erat*) has been thus recited, the Invitatorium is once more said in full.
+
+Let it be supposed, for example, that *abc\*def* represents the Invitatorium, and ABCDEF a (any) verse of the psalm, then they will be said as follows:
+
+```
+abcdef.
+abcdef.
+    ABCDEF.
+abcdef.
+    ABCDEF.
+        def.
+    ABCDEF.
+abcdef.
+    ABCDEF.
+        def.
+    ABCDEF.
+abcdef.
+    Gloria Patri....Sicut erat.
+        def.
+    abcdef.
+```
+
+### Versicle and Response
+
+**16.** The Versicle and Response are found immediately following the three psalms of which they form, so to say, an integral part. Not only do they vary with each set of three psalms, but they also vary for one and the same set, according to the different seasons of the year.[^16]
+
+[^16]: Cf., for example, *Pars Verna*, Sunday, at end of three psalms given for the first nocturn, or any *Pars*, at end of third nocturn psalms on week-days.
+
+### Absolutions and Benedictions
+
+**17.** The Absolutions and Benedictions are given in the *Ordinarium*, like all other invariable parts of the Office. Each set of three Lessons has one *Absolution*, but three *Benedictions*. Note that all the Benedictions are introduced by "*Jube, Domine* (or *Domne*, in choir), *benedicere*," and that they, as well as the Absolutions, have an "*Amen*" at the end.
+
+The *eighth* Benediction changes according to the Office recited, as will be better understood by a glance at the Ordinarium.
+
+More will be said further on to help the student understand better that, whilst the Absolutions are strictly invariable, the Benedictions are really accommodated to the Lessons they accompany (n. 24).
+
+### The Lessons
+
+**18. A.** The *first* nocturn Lessons are usually taken from the current day (ferial) in the *Proprium de Tempore*,[^17] and are called *Scripture occurring* Lessons[^18] (e. g., in the Ordo, "L. I. N. de Scr. occ." means: Lessons of the first nocturn from Scripture occurring).
+
+**B.** Those Lessons may be a *homily* on a given gospel or not. In the first case the Lessons can-
+
+[^17]: It usually gives only three Lessons numbered 1, 2, and 3. These are the very Lessons that would be used in ferial Offices, which have only three Lessons.
+[^18]: Lessons are read with the *title* (in black print) of the book from which they are taken.
+
+not be used as first nocturn Lessons, since, from their very composition, they belong to the third nocturn, being, as is supposed, a gospel with a homily (cf. D of this number). When the first three Lessons cannot be thus taken from the "*Proprium de Tempore*," they are sought for in the "*Commune Sanctorum*" if not already given in the "Proprium Sanctorum." Instances of this kind occur frequently during Lent. These facts should be noted, as more will have to be said about them later. — Cf. n. 19 (b).
+
+**C.** The Lessons of the *second* nocturn are generally found in the *Proprium Sanctorum* on feasts, and contain the life of the saint celebrated, being, therefore, known as *historical Lessons*.
+
+**D.** The Lessons of the *third* nocturn always contain a *homily on a gospel*, and directions are usually given in the "Proprium Sanctorum" that these Lessons are to be taken from the "Commune Sanctorum."
+
+**E.** This, then, is the ordinary arrangement for complete Offices, i. e., Offices of nine Lessons, to which any Office of, at least, semi-double rank is entitled. On *Sundays*, however, the entire nine Lessons, with their Responsoria, are ordinarily[^19] given right in the "Proprium de Tempore."
+
+[^19]: There are exceptions. Cf. the "De Tempore" Offices as found in the *Pars Aestiva* where, from the third Sunday after Pentecost to the end of the season, the usual order kept in the "Proprium de Tempore" is (wisely) disturbed. The following scheme of this irregularity may be first use-
+
 ---

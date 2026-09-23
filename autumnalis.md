@@ -18353,3 +18353,138 @@ RAymúndus, Nonnátus cognoménto dictus, quia præter commúnem natúræ legem 
 **Oratio**
 
 DEus, qui in liberándis fidélibus tuis ab impiórum captivitáte beátum Raymúndum Confessórem tuum mirábilem effecísti : ejus nobis intercessióne concéde; ut a peccatórum vínculis absolúti, quæ tibi sunt plácita, líberis méntibus exsequámur. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commem. sequéntis et Ss. duódecim Fratrum Mm.}
+
+---
+
+## Festa Septembris
+
+### Die 1 Septembris — S. Ægidii
+
+{RUBRIC: Abbátis [94] Simplex}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+*C 4*
+
+INtercéssio nos, quǽsumus, Dómine, beáti Ægídii Abbátis comméndet : ut, quod nostris méritis non valémus, ejus patrocínio assequámur. (Per Dóminum.)
+
+{RUBRIC: Pro Commem. Ss. duódecim Fratrum Mártyrum :}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+FRatérna nos, Dómine, Mártyrum tuórum coróna lætíficet : quæ et fídei nostræ prǽbeat increménta virtútum, et multíplici nos suffrágio consolétur. Per Dóminum.
+
+##### Lectio iii
+
+ǼGídius Atheniénsis, régiæ stirpis, a prima ætáte divínis lítteris et caritátis offíciis ita déditus fuit, ut nihil prætérea curáre viderétur. Itaque, paréntibus mórtuis, totum patrimónium in páuperes erogávit; quin étiam túnicam éxuit, ut ægrótum egéntem tégeret, qua ille indútus, statim conváluit. Sed multis deínceps clárior miráculis, timens sui nóminis celebritátem, Arelátem ad beátum Cæsárium conténdit. A quo post biénnium discédens, secéssit in erémum; ubi diútius herbárum radícibus et cervæ lacte, quæ statis ad eum horis veniébat, admirábili sanctitáte vixit. Quæ cerva, insequéntibus quodam die cánibus régiis, cum in antrum Ægídii refugísset, Gálliæ regem impulit, ut ab eo summis précibus péteret, ut in loco spelúncæ monastérium éxstrui paterétur. Cujus adminis tratiónem, flagitánte rege, invítus suscépit; eóque múnere áliquot annis prudénter pióque gesto, migrávit in cælum.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+{RUBRIC: Pro Commem. Ss. duódecim Fratrum Mártyrum :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+### Die 2 Septembris — S. Stephani
+
+{RUBRIC: Regis, Conf. [94] — Semidúplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+COncéde, quǽsumus, Ecclésiæ tuæ, omnípotens Deus : ut beátum Stéphanum Confessórem tuum, quem regnántem in terris propagatórem hábuit, propugnatórem habére mereátur gloriósum in cælis. Per Dóminum.
+
+#### In II Nocturno
+
+##### Lectio iv
+
+STéphanus in Hungáriam Christi fidem et régium nomen invéxit. Régia coróna a Románo Pontífice impetráta, ejúsque jussu in regem inúnctus, regnum Sedi apostólicæ óbtulit. Vária pietátis domicília Romæ, Jerosólymis, Constantinópoli; in Hungária archiepiscopátum Strigoniénsem, episcopátus decem admirábili religióne et munificéntia fundávit. Par in páuperes amor et liberálitas, quos véluti Christum ipsum compléctens, néminem a se mæréntem ac vácuum umquam dimísit; quin ad eórum inópiam sublevándam, amplíssimis facultátibus erogátis, doméstica quoque supelléctilem exímia benignitáte frequénter distríbuit. Suis ínsuper mánibus laváre páuperum pedes, noctu solus et ignótus nosocómia frequentáre, decumbéntibus inservíre ac cétera caritátis offícia exhibére consuévit. Quarum virtútum mérito, illíus déxtera, resolúto cétero córpore, incorrúpta mánsit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+ORándi stúdio noctes pene totas ducébat insómnes; atque in cæléstium rerum contemplatióne defíxus, intérdum extra sensus raptus, sublímis in áëra ferri visus fuit. Perduéllium conspiratiónes ac validórum hóstium ímpetus, miro prorsus modo, non semel oratiónis præsídio evitávit. Suscéptum ex Ghisélla Bavárica, sancti Henríci imperatóris soróre, quam sibi matrimónio júnxerat, Emerícum fílium tanta morum discíplina talíque pietáte enutrívit, quantum ejus póstea sanctitas declarávit. Regni vero negótia ita dispósuit, ut, accítis úndique prudentíssimis et sanctíssimis viris, nihil umquam sine illórum consílio molirétur; humíllimis intérim précibus in cínere et cilício Deum déprecans, ut univérsum Hungáriæ regnum, ántequam e vita migráret, cathólicum vidére mererétur; vere, propter ingens dilatándæ fídei stúdium, illíus gentis Apóstolus nuncupátus, facta a Románo Pontífice ipsi posterísque régibus præferéndæ crucis potestáte.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+DEI Genitrícem, quam ardentíssime venerabátur, amplíssimo in ejus honórem constrúcto templo, Hungáriæ patrónam instítuit; ab eádem vicíssim Vírgine recéptus in cælum ipso suæ Assumptiónis die, quem Húngari e sancti Regis institúto Magnæ Dóminæ diem appéllant. Sacrum ejus corpus, suavíssimo fragrans odóre, liquóre cælésti scatens, inter multa et vária miácula, Románi Pontíficis jussu, nobiliórem in locum translátum est atque honorificéntius cónditum. Ejus autem festum Innocéntius undécimus Póntifex máximus, quarto Nonas Septémbris, ob insígnem victóriam ab exércitu Leopóldi primi, Románorum eléctí imperatóris et Hungáriæ regis, eádem die in Budæ expugnatióne, ope divína, e Turcis reportátam, celebrándum instítuit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+STéphanus, Hungarórum rex, in Hungáriam Christi fidem et régium nomen invéxit. Régia coróna a Románo Pontífice impetráta, ejúsque jussu rex inúnctus, regnum Sedi apostólicæ óbtulit. Vária pietátis domicília Romæ, Jerosólymis, Constantinópoli constítuit; in Hungária archiepiscopátum Strigoniénsem et episcopátus decem admirábili religióne et munificéntia fundávit. Exímia in páuperes caritáte et assíduo orándi stúdio enítuit. Dei Genitrícem, quam ardentíssime venerabátur, amplíssimo in ejus honórem constrúcto templo, Hungáriæ patrónam instítuit; ab eádem vicíssim Vírgine recéptus in cælum ipso suæ Assumptiónis die, quem Húngari e sancti Regis institúto Magnæ Dóminæ diem appéllant. Ejus tamen festum ex constitutióne Innocéntii Papæ undécimi hac die potíssimum recólitur, qua Budæ munitíssima arx, sancti Regis ope, ab exércitu christiáno strénue recuperáta fuit.
+
+**Te Deum laudámus.**
+
+#### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio vii
+*Cap. 19, 12-26*
+
+IN illo témpore : Dixit Jesus discípulis suis parábolam hanc : Homo quidam nóbilis ábiit in regiónem longínquam accípere sibi regnum et revérti. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+*Liber 8 in Lucam*
+
+BOnus ordo, ut vocatúrus gentes, et Judǽos jussúrus interfíci, qui noluérunt regnáre supra se Christum, hanc præmítteret comparatiónem, ne diceréetur : Nihil déderat pópulo Judæórum; unde póterat mélior fíeri? ut quid ab eo, qui nihil recépit, exígitur? Non medíocris ista est mna, quam supra múlier evangélica, quia non invénit, lucérnam accéndit, lúmine quǽrit admóto, gratulátur invéntam.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+##### Lectio viii
+
+DEnique ex una decem mnas álius fecit, álius quinque. Fortásse iste morália habet, quia quinque sunt córporis sensus; ille duplícia, id est, mýstica legis et morália probitátis. Unde et Matthǽus quinque talénta et duo talénta pósuit : in quinque talén tis, ut sint morália; in duóbus utrúmque, mýsticum atque morále. Ita quod número inférius, re ubérius.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+##### Lectio ix
+
+ET hic póssumus decem mnas decem verba intellígere, id est, legis doctrínam; quinque autem mnas, magistéria disciplínæ. Sed legisperítum in ómnibus volo esse perféctum; non enim in sermóne sed in virtúte est regnum Dei. Bene autem, quia de Judǽis dicit, duo soli multiplicátam pecúniam déferunt; non útique æris, sed dispensatiónis usúris. Alia est enim pecúniæ fænebris, ália doctrínæ cæléstis usúra.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+COncéde, quǽsumus, Ecclésiæ tuæ, omnípotens Deus : ut beátum Stéphanum Confessórem tuum, quem regnántem in terris propagatórem hábuit, propugnatórem habére mereátur gloriósum in cælis. Per Dóminum.

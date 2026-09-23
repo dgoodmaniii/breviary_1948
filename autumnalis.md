@@ -30346,4 +30346,109 @@ VIdeámus sequéntia. Ecce Agnus Dei. Hoc Joánnes. Et audiérunt eum duo discí
 
 ##### Lectio iii
 
-MOdo ergo quod illum sequúntur isti duo, non quasi non recessúri sequúntur; sed vidére voluérunt ubi habitáret, et fácere quod scriptum est : Limen ostiórum ejus éxterat pes tuus : surge ad illum veníre assídue, et erudíre præcéptis ejus. Osténdit eis ille ubi manéret; venérunt, et fuérunt cum illo. Quam beátum diem duxérunt, quam beátam noctem! Quis est, qui nobis dicat quæ audíerint illi a Dómino?
+MOdo ergo quod illum sequúntur isti duo, non quasi non recessúri sequúntur; sed vidére voluérunt ubi habitáret, et fácere quod scriptum est : Limen ostiórum ejus éxterat pes tuus : surge ad illum veníre assídue, et erudíre præcéptis ejus. Osténdit eis ille ubi manéret; venérunt, et fuérunt cum illo. Quam beátum diem duxérunt, quam beátam noctem! Quis est, qui nobis dicat quæ audíerint illi a Dómino? Ædificémus et nosmetípsi in corde nostro, et faciámus domum, quo véniat ille et dóceat nos et colloquátur nobis.
+
+**Oratio**
+
+QUæsumus, omnípotens Deus : ut beátus Andréas Apóstolus, cujus prævenímus festivitátem, tuum pro nobis implóret auxílium; ut, a nostris reátibus absolúti, a cunctis étiam perículis eruámur. Per Dóminum.
+
+{RUBRIC: Ad Laudes fit Commemoratio S. Saturníni Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+**Oratio**
+
+DEus, qui nos beáti Saturníni Mártyris tui concédis natalítio pérfrui : ejus nos tríbue méritis adjuvári. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+# Die 30 Novembris
+
+## S. Andreae Apostoli
+
+{RUBRIC: Duplex II Classis}
+
+{RUBRIC: Omnia de Communi Apostolórum [3], præter ea, quæ hic habéntur própria.}
+
+#### IN I VESPERIS
+
+{RUBRIC: Añæ, Capítulum et Hymnus de Laudibus. 872}
+
+{RUBRIC: Psalmi ut in I Vésperis de Communi App. [3]}
+
+℣. In omnem terram exívit sonus eórum. ℟. Et in fines orbis terræ verba eórum.
+
+**Ad Magnif. Ant.** Unus ex duóbus, \* qui secúti sunt Dóminum, erat Andréas, frater Simónis Petri, allelúja.
+
+**Oratio**
+
+MAjestátem tuam, Dómine, suppliciter exorámus : ut, sicut Ecclésiæ tuæ beátus Andréas Apóstolus éxstitit prædicátor et rector; ita apud te sit pro nobis perpétuus intercéssor. Per Dóminum nostrum Jesum Christum.
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Apostolórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus**
+
+ÆTérna Christi múnera,
+Apostolórum glóriam,
+Palmas et hymnos débitos
+Lætis canámus méntibus.
+
+Ecclesiárum Príncipes,
+Belli triumpháles duces,
+Cæléstis aulæ mílites,
+Et vera mundi lúmina.
+
+Devóta Sanctórum fides,
+Invícta spes credéntium,
+Perfécta Christi cáritas
+Mundi tyránnum cónterit.
+
+In his Patérna glória,
+In his triúmphat Fílius,
+In his volúntas Spíritus,
+Cælum replétur gáudio.
+
+Patri, simúlque Fílio,
+Tibíque, Sancte Spíritus,
+Sicut fuit, sit júgiter
+Sæclum per omne glória. Amen.
+
+### In I Nocturno
+
+**Ant.** Vidit Dóminus \* Petrum et Andréam, et vocávit eos.
+
+**Psalmus 18**
+
+CÆli enárrant glóriam Dei, \* et ópera mánuum ejus annúntiat firmaméntum.
+
+Dies diéi erúctat verbum, \* et nox nocti índicat sciéntiam.
+
+Non sunt loquélæ, neque sermónes, \* quorum non audiántur voces eórum.
+
+In omnem terram exívit sonus eórum : \* et in fines orbis terræ verba eórum.
+
+In sole pósuit tabernáculum suum : \* et ipse tamquam sponsus procédens de thálamo suo :
+
+Exsultávit ut gigas ad curréndam viam, \* a summo cælo egréssio ejus :
+
+Et occúrsus ejus usque ad summum ejus : \* nec est qui se abscóndat a calóre ejus.
+
+Lex Dómini immaculáta, convértens ánimas : \* testimónium Dómini fidéle, sapiéntiam præstans párvulis.
+
+Justítiæ Dómini rectæ, lætificántes corda : \* præcéptum Dómini lúcidum, illúminans óculos.
+
+Timor Dómini sanctus, pérmanens in sæculum sæculi : \* judícia Dómini vera, justificáta in semetípsa.
+
+Desiderabília super aurum et lápidem pretiósum multum : \* et dulcióra super mel et favum.
+
+Etenim servus tuus custódit ea, \* in custodiéndis illis retribútio multa.
+
+Delícta quis intélligit? ab occúltis meis munda me : \* et ab aliénis parce servo tuo.
+
+Si mei non fúerint domináti, tunc immaculátus ero : \* et emundábor a delícto máximo.

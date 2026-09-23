@@ -18227,3 +18227,67 @@ BOnórum ómnium largítor, omnípotens Deus, qui beátam Rosam, cæléstis grá
 **Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
 
 ℣. Lætámini in Dómino.
+
+**Oratio**
+
+MAjestátem tuam, Dómine, súpplices exorámus : ut, sicut nos júgiter Sanctórum tuórum commemoratióne lætíficas; ita semper supplicatióne deféndas. Per Dóminum.
+
+#### In II Nocturno
+
+##### Lectio iv
+
+PRimus Américæ meridionális flos sanctitátis, virgo Rosa, christiánis paréntibus Limæ progénita, mox ab incunábulis cláruit futúræ sanctimóniæ indíciis. Nam vultus infántis mirabíliter in rosæ effígiem transfigurátus, huic nómini occasiónem dedit; cui póstea Virgo Deípara cognómen adjécit, jubens vocári deínceps Rosam a sancta María. Quinquénnis, votum perpétuæ virginitátis emísit : adúltior, ne a paréntibus ad núptias cogerétur, clam síbimet venustíssimam cápitis cæsáriem præcídit. Jejúniis supra humánum modum addícta, íntegras Quadragésimas transégit pane ábstinens ac diétim solis quinque gránulis mali cítrini víctitans.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et dedúcet.
+
+##### Lectio v
+
+HAbitu tértii órdinis sancti Domínici assúmpto, prístinas vitæ austeritátes duplicávit : oblóngo asperrimóque cilício sparsim minúsculas acus innéxuit; sub velo corónam densis acúleis intrórsus obarmátam intérdiu noctúque gestávit. Sanctæ Catharínæ Senénsis árdua premens vestígia, caténa férrea, tríplici nexu circumdúcta, lumbos cinxit. Léctulum sibi e truncis nodósis compósuit, horúmque vácuas commissúras fragmínibus testárum implévit. Céllulam sibi angustíssimam struxit in extrémo horti ángulo; ubi, cæléstium contemplatióni dédita, crebris disciplínis, inédia, vigíliis corpúsculum exténuans, at spíritu vegetáta, larvas dæmónum, frequénti certámine victrix, impávide protrívit ac superávit.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+ǼGritúdinum torméntis, domesticórum insúltibus, linguárum mórsibus dire agitáta, nondum satis pro mérito se afflígi querebátur. Per quíndecim annos, ad plúsculas horas desolatióne spíritus et ariditáte misérrime contabéscens, forti ánimo tulit agónes omni morte amarióres. Exínde cœpit supérnis abundáre delíciis, illustrári visiónibus, colliquéscere seráphicis ardóribus. Angelo tutelári, sanctæ Catharínæ Senénsi, Vírgini Deíparæ inter assíduas apparitiónes mire familiáris, a Christo has voces audíre méruit : Rosa cordis mei, tu mihi sponsa esto. Dénique, Sponsi hujus paradíso felíciter invéctam, plurimísque ante et post óbitum miráculis corúscam, Clemens décimus, Póntifex máximus, sanctárum Vírginum catálogo ritu solémni adscrípsit.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. Glória Patri. Afferéntur tibi.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+PRimus Américæ meridionális flos sanctitátis, virgo Rosa, christiánis paréntibus Limæ progénita, mox ab incunábulis cláruit futúræ sanctimóniæ indíciis; nam vultus infántis, mirabíliter in rosæ effígiem transfigurátus, huic nómini occasiónem dedit. Ne a paréntibus ad núptias cogerétur, clam síbimet venustíssimam comam præcídit. Singuláris fuit ejus vitæ austéritas. Assúmpto hábitu tértii órdinis sancti Domínici, sanctæ Catharínæ Senénsis árdua pressit vestígia. Per quíndecim annos, ad plúsculas horas desolatióne spíritus et ariditáte misérrime contabéscens, fórtiter tulit agónes omni morte amarióres. Angelo tutelári, sanctæ Catharínæ Senénsi, Vírgini Deíparæ inter assíduas apparitiónes mire familiáris, a Christo has voces audíre méruit : Rosa cordis mei, tu mihi sponsa esto. Plúribus ante et post mortem miráculis claram, Clemens Papa décimus eam sanctárum Vírginum catálogo adscrípsit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Evangélium Símile erit regnum cælórum, de Communi Vírginum 1 loco. [122]}
+
+{RUBRIC: Pro Ss. Felíce et Adáucto Mm. :}
+
+##### Lectio ix
+
+FElix, Diocletiáno et Maximiáno imperatóribus, propter suscéptam Christi religiónem comprehénsus, in Serápidis templum addúctus est. Cui sacrificáre cum juberétur, os simulácri cónspuit; quo facto, statim ǽrea státua corruit. Quod cum íterum ac tértio in ǽde Mercúrii Dianǽque factum esset, impietátis et mágicæ artis accusátus, equúleo torquétur. Mox ad secúndum ab Urbe lápidem via Ostiénsi dúcitur, ut secúri ferirétur. Cui inter viam oblátus quidam Christiánus, cum, Felícem agnóscens, ad martýrium duci vidéret, Ego quoque, clara voce inquit, eádem, qua iste lege vivo; ego eúmdem Jesum Christum colo. Itaque Felícem osculátus, cum eo secúri percútitur, tértio Kaléndas Septémbris. Cujus nomen cum ignótum esset Christiánis, is Adáucti nómine nobilitátus est, quod sancto Mártyri Felíci adáuctus sit ad corónam.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio**
+
+BOnórum ómnium largítor, omnípotens Deus, qui beátam Rosam, cæléstis grátiæ rore prævéntam, virginitátis et patiéntiæ decóre Indis floréscere voluísti : da nobis fámulis tuis; ut in odórem suavitátis ejus curréntes, Christi bonus odor éffici mereámur : Qui tecum vivit.
+
+{RUBRIC: Et fit Commem. Ss. Felícis et Adáucti Mm. :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+**Oratio**
+
+MAjestátem tuam, Dómine, súpplices exorámus : ut, sicut nos júgiter Sanctórum tuórum commemoratióne lætíficas; ita semper supplicatióne deféndas. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemorátio præcedéntis.}

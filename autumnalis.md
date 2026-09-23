@@ -39051,3 +39051,35 @@ Ne avértas fáciem tuam a me : \* ne declínes in ira a servo tuo.
 Adjútor meus esto : \* ne derelínquas me, neque despícias me, Deus, salutáris meus.
 
 Quóniam pater meus, et mater mea dereliquérunt me : \* Dóminus autem assúmpsit me.
+
+Legem pone mihi, Dómine, in via tua : \* et dírige me in sémitam rectam propter inimícos meos.
+
+Ne tradíderis me in ánimas tribulántium me : \* quóniam insurrexérunt in me testes iníqui, et mentíta est iníquitas sibi.
+
+Credo vidére bona Dómini \* in terra vivéntium.
+
+Exspécta Dóminum, viríliter age : \* et confortétur cor tuum, et sústine Dóminum.
+
+Réquiem ætérnam.
+
+**Ant.** Credo vidére bona Dómini in terra vivéntium.
+
+℣. Cóllocet eos Dóminus cum princípibus. ℟. Cum princípibus pópuli sui.
+
+Pater noster, {RUBRIC: totum secréto.}
+
+#### Lectio iv
+
+*Job 13, 22-28*
+
+REspónde mihi : Quantas hábeo iniquitátes et peccáta, scélera mea et delícta osténde mihi. Cur fáciem tuam abscóndis, et arbitráris me inimícum tuum? Contra fólium, quod vento rápitur, osténdis poténtiam tuam, et stípulam siccam perséqueris. Scríbis enim contra me amaritúdines, et consúmere me vis peccátis adolescéntiæ meæ. Posuísti in nervo pedem meum, et observásti omnes sémitas meas, et vestígia pedum meórum considerásti; qui quasi putrédo consuméndus sum, et quasi vestiméntum, quod comméditur a tínea.
+
+℟. Meménto mei, Deus, quia ventus est vita mea, \* Nec aspíciat me visus hóminis. ℣. De profúndis clamávi ad te, Dómine : Dómine, exáudi vocem meam. — Nec.
+
+#### Lectio v
+
+*Job 14, 1-6*
+
+HOmo natus de muliére, brevi vivens témpore, replétur multis misériis. Qui quasi flos egréditur et contéritur, et fugit velut umbra, et numquam in eódem statu pérmanet. Et dignum ducis super hujuscémodi aperíre óculos tuos, et addúcere eum tecum in judícium? Qui potest fácere mundum de immúndo concéptum sémine? Nonne tu qui solus es? Breves dies hóminis sunt, númerus ménsium ejus apud te est : constituísti términos ejus, qui prætériri non póterunt. Recéde páululum ab eo, ut quiéscat, donec optáta véniat, sicut mercenárii, dies ejus.
+
+℟. Hei mihi, Dómine, quia peccávi nimis in vita mea : Quid fáciam, miser? ubi fúgiam, nisi ad te, Deus meus? \* Miserére mei, dum véneris in novíssimo die. ℣. Anima mea turbáta est

@@ -27106,3 +27106,103 @@ DEus, véniæ largítor et humánæ salútis amátor : quǽsumus cleméntiam tua
 ℣. Requiéscant in pace. ℟. Amen.
 
 {RUBRIC: Et ita absolvítur Prima, neque áliud adjúngitur.}
+
+#### AD TERTIAM
+
+{RUBRIC: Dictis secréto Pater noster et Ave María, absolúte incípitur a Psalmis sequéntibus :}
+
+**Psalmus 37, i**
+
+DOmine, ne in furóre tuo árguas me, \* neque in ira tua corrípias me.
+
+Quóniam sagíttæ tuæ infíxæ sunt mihi : \* et confirmásti super me manum tuam.
+
+Non est sánitas in carne mea a fácie iræ tuæ : \* non est pax óssibus meis a fácie peccatórum meórum.
+
+Quóniam iniquitátes meæ supergréssæ sunt caput meum : \* et sicut onus grave graváta sunt super me.
+
+Putruérunt et corrúptæ sunt cicatríces meæ, \* a fácie insipiéntiæ meæ.
+
+Miser factus sum, et curvátus sum usque in finem : \* tota die contristátus ingrediébar.
+
+Quóniam lumbi mei impléti sunt illusiónibus : \* et non est sánitas in carne mea.
+
+Afflíctus sum, et humiliátus sum nimis : \* rugiébam a gémitu cordis mei.
+
+Dómine, ante te omne desidérium meum : \* et gémitus meus a te non est abscónditus.
+
+Cor meum conturbátum est, derelíquit me virtus mea : \* et lumen oculórum meórum, et ipsum non est mecum.
+
+Réquiem ætérnam.
+
+**Psalmus 37, ii**
+
+AMíci mei, et próximi mei \* advérsum me appropinquavérunt, et stetérunt.
+
+Et qui juxta me erant, de longe stetérunt : \* et vim faciébant qui quærébant ánimam meam.
+
+Et qui inquirébant mala mihi, locúti sunt vanitátes : \* et dolos tota die meditabántur.
+
+Ego autem tamquam surdus non audiébam : \* et sicut mutus non apériens os suum.
+
+Et factus sum sicut homo non áudiens : \* et non habens in ore suo redargutiónes.
+
+Quóniam in te, Dómine, sperávi : \* tu exáudies me, Dómine, Deus meus.
+
+Quia dixi : Nequándo supergáudeant mihi inimíci mei : \* et dum commovéntur pedes mei, super me magna locúti sunt.
+
+Quóniam ego in flagélla parátus sum : \* et dolor meus in conspéctu meo semper.
+
+Quóniam iniquitátem meam annuntiábo : \* et cogitábo pro peccáto meo.
+
+Inimíci autem mei vivunt, et confirmáti sunt super me : \* et multiplicáti sunt qui odérunt me iníque.
+
+Qui retríbuunt mala pro bonis, detrahébant mihi : \* quóniam sequébar bonitátem.
+
+Ne derelínquas me, Dómine, Deus meus : \* ne discésseris a me.
+
+Inténde in adjutórium meum, \* Dómine, Deus salútis meæ.
+
+Réquiem ætérnam.
+
+**Psalmus 55**
+
+MIserére mei, Deus, quóniam conculcávit me homo : \* tota die impúgnans tribulávit me.
+
+Conculcavérunt me inimíci mei tota die : \* quóniam multi bellántes advérsum me.
+
+Ab altitúdine diéi timébo : \* ego vero in te sperábo.
+
+In Deo laudábo sermónes meos, in Deo sperávi : \* non timébo quid fáciat mihi caro.
+
+Tota die verba mea exsecrabántur : \* advérsum me omnes cogitatiónes eórum in malum.
+
+Inhabitábunt et abscóndent : \* ipsi calcáneum meum observábunt.
+
+Sicut sustinuérunt ánimam meam, pro níhilo salvos fácies illos : \* in ira pópulos confrínges.
+
+Deus, vitam meam annuntiávi tibi : \* posuísti lácrimas meas in conspéctu tuo,
+
+Sicut et in promissióne tua : \* tunc converténtur inimíci mei retrórsum :
+
+In quacúmque die invocávero te : \* ecce cognóvi quóniam Deus meus es.
+
+In Deo laudábo verbum, in Dómino laudábo sermónem : \* in Deo sperávi, non timébo quid fáciat mihi homo.
+
+In me sunt, Deus, vota tua, \* quæ reddam, laudatiónes tibi.
+
+Quóniam eripuísti ánimam meam de morte, et pedes meos de lapsu : \* ut pláceam coram Deo in lúmine vivéntium.
+
+Réquiem ætérnam.
+
+{RUBRIC: Explétis Psalmis, dícitur flexis génibus :}
+
+{RUBRIC: Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.

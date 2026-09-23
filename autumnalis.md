@@ -31437,3 +31437,62 @@ Lætábitur justus in Dómino, et sperábit in eo, \* et laudabúntur omnes rect
 **Absolutio.** Ipsíus píetas.
 
 **Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Gregórii Papæ}
+{RUBRIC: Homilía 30 in Evang., post médium}
+
+#### Lectio iv
+
+SCriptum est : Spíritus Dómini ornávit cælos. Ornaménta enim cælórum sunt virtútes prædicántium. Quæ vidélicet ornaménta Paulus enúmerat, dicens : Alii datur per Spíritum sermo sapiéntiæ, álii sermo sciéntiæ secúndum eúmdem Spíritum, álteri fides in eódem Spíritu, álii grátia sanitátum in uno Spíritu, álii operátio virtútum, álii prophetía, álii discrétio spirítuum, álii génera linguárum, álii interpretátio sermónum. Hæc autem ómnia operátur unus atque idem Spíritus, dívidens síngulis prout vult.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+QUot ergo sunt bona prædicántium, tot sunt ornaménta cælórum. Hinc rursus scriptum est : Verbo Dómini cæli firmáti sunt. Verbum enim Dómini Fílius est Patris. Sed eósdem cælos, vidélicet sanctos Apóstolos, ut tota simul sancta Trínitas ostendátur operáta, repénte de Sancti Spíritus divinitáte adjúngitur : Et Spíritu oris ejus omnis virtus eórum. Cælórum ergo virtus de Spíritu sumpta est : quia mundi hujus potestátibus contraíre non præsúmerent, nisi eos Sancti Spíritus fortitúdo solidásset. Quales namque doctóres sanctæ Ecclésiæ ante advéntum hujus Spíritus fúerint, scímus; et post advéntum illíus, cujus fortitúdinis facti sint, conspícimus.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me : \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+**Bened.** Ignem sui amóris.
+
+#### Lectio vi
+
+CErte iste ipse pastor Ecclésiæ, ad cujus sacratíssimum corpus sedémus, quantæ debilitátis quantǽque formídinis ante advéntum Spíritus fúerit, ancílla ostiária requisíta dicat. Una enim mulíeris voce percúlsus, dum mori tímuit, Vitam negávit. Et pensándum, quia eum comprehénsum Petrus negávit in terra, quem suspénsum latro conféssus est in cruce. Sed vir iste tantæ formídinis quális post advéntum Spíritus exsístat, audiámus. Fit convéntus magistrátus atque seniórum, cæsis denuntiátur Apóstolis, ne in nómine Jesu loqui débeant; Petrus magna auctoritáte respóndet : Obedíre opórtet Deo magis quam homínibus.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna : \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. **Glória Patri.** Modo.
+
+### In III Nocturno
+
+**Ant.** Exaltabúntur \* córnua justi, allelúja.
+
+###### Psalmus 74
+
+COnfitébimur tibi, Deus : \* confitébimur, et invocábimus nomen tuum.
+
+Narrábimus mirabília tua : \* cum accépero tempus, ego justítias judicábo.
+
+Liquefácta est terra, et omnes qui hábitant in ea : \* ego confirmávi colúmnas ejus.
+
+Dixi iníquis : Nolíte iníque ágere : \* et delinquéntibus : Nolíte exaltáre cornu :
+
+Nolíte extóllere in altum cornu vestrum : \* nolíte loqui advérsus Deum iniquitátem.
+
+Quia neque ab Oriénte, neque ab Occidénte, neque a desértis móntibus : \* quóniam Deus judex est.
+
+Hunc humíliat, et hunc exáltat : \* quia calix in manu Dómini vini meri plenus misto.
+
+Et inclinávit ex hoc in hoc : verúmtamen fæx ejus non est exinaníta : \* bibent omnes peccatóres terræ.
+
+Ego autem annuntiábo in sæculum : \* cantábo Deo Jacob.
+
+Et ómnia córnua peccatórum confríngam : \* et exaltabúntur córnua justi.
+
+**Ant.** Exaltabúntur córnua justi, allelúja.
+
+**Ant.** Lux orta est \* justo, allelúja, rectis corde lætítia, allelúja.
+
+###### Psalmus 96
+
+DOminus regnávit, exsúltet terra : \* læténtur ínsulæ multæ.

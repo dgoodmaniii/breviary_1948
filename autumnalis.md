@@ -28364,3 +28364,74 @@ Quóniam justus Dóminus, et justítias diléxit : \* æquitátem vidit vultus e
 **Ant.** Dóminus Jesus Christus, non purpurátum aut diadémate reniténtem, se ventúrum esse prædíxit.
 
 **Ant.** Sacérdos Dei, Martíne, \* apérti sunt tibi cæli et regnum Patris mei.
+
+**Psalmus 14**
+
+DOmine, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam :
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua :
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus : \* timéntes autem Dóminum glorífícat :
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Sacérdos Dei, Martíne, apérti sunt tibi cæli et regnum Patris mei.
+
+**Ant.** Sacérdos Dei, Martíne, \* pastor egrégie, ora pro nobis Deum.
+
+**Psalmus 20**
+
+DOmine, in virtúte tua lætábitur rex : \* et super salutáre tuum exsultábit veheménter.
+
+Desidérium cordis ejus tribuísti ei : \* et voluntáte labiórum ejus non fraudásti eum.
+
+Quóniam prævenísti eum in benedictiónibus dulcédinis : \* posuísti in cápite ejus corónam de lápide pretióso.
+
+Vitam pétiit a te : \* et tribuísti ei longitúdinem diérum in sæculum, et sæculum sæculi.
+
+Magna est glória ejus in salutári tuo : \* glóriam et magnum decórem impónes super eum.
+
+Quóniam dabis eum in benedictiónem in sæculum sæculi : \* lætificábis eum in gáudio cum vultu tuo.
+
+Quóniam rex sperat in Dómino : \* et in misericórdia Altíssimi non commovébitur.
+
+Inveniátur manus tua ómnibus inimícis tuis : \* déxtera tua invéniat omnes, qui te odérunt.
+
+Pones eos ut clíbanum ignis in témpore vultus tui : \* Dóminus in ira sua conturbábit eos, et devorábit eos ignis.
+
+Fructum eórum de terra perdes : \* et semen eórum a fíliis hóminum.
+
+Quóniam declinavérunt in te mala : \* cogitavérunt consília, quæ non potuérunt stabilíre.
+
+Quóniam pones eos dorsum : \* in relíquiis tuis præparábis vultum eórum.
+
+Exaltáre, Dómine, in virtúte tua : \* cantábimus et psallémus virtútes tuas.
+
+**Ant.** Sacérdos Dei, Martíne, pastor egrégie, ora pro nobis Deum.
+
+℣. Tu es sacérdos in ætérnum. ℟. Secúndum órdinem Melchísedech.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio vii
+*Cap. 11, 33-36*
+
+IN illo témpore : Dixit Jesus discípulis suis : Nemo lucérnam accéndit et in abscóndito ponit neque sub módio, sed supra candelábrum, ut qui ingrediúntur, lumen vídeant. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi (Liber 7 Comment. in Luc. c. 11 post initium)}
+
+QUia in superióribus Ecclésiam Synagógæ prætulit, hortátur nos ut fidem pótius nostram ad Ecclésiam transferámus. Lucérna enim fides est, juxta quod scriptum est : Lucérna pédibus meis verbum tuum, Dómine. Verbum enim Dei fides nostra est; Verbum Dei lux est; Lucérna est fides : Erat Lux vera, quæ illúminat omnem hóminem veniéntem in hunc mundum. Lucérna autem lucére non potest, nisi aliúnde lumen accéperit.
+
+℟. O beátum virum, in cujus tránsitu Sanctórum canit númerus, Angelórum exsúltat chorus, \* Omniúmque cæléstium Virtútum occúrrit psalléntium exércitus! ℣. Ecclésia virtúte roborátur, sacerdótes Dei revelatióne glorificántur, quem Michaël assúmpsit cum Angelis. — Omniúmque.
+
+{RUBRIC: Si ix Lectio alicújus Offícii commemoráti dicénda non sit, tunc ex viii Lectióne fiunt duæ, quarum prior desínit ad signum ¶.}
+
+##### Lectio viii
+
+HÆC est lucérna quæ accénditur, virtus scílicet nostræ mentis et sensus, ut drachma illa possit, quæ períerat, reperíri. Nemo ergo fidem sub lege constítuat; lex enim intra mensúram est, ultra mensúram grátia; lex obúmbrat, grátia clarífícat. Et ídeo nemo fidem suam intra mensúram legis inclúdat, sed ad Ecclésiam cónferat, in qua septifórmis Spíritus relúcet grátia, quam Princeps ille sacerdótum fulgóre supérnæ divinitátis illúminat, ne eam legis umbra restínguat. ¶

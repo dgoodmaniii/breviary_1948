@@ -36212,3 +36212,70 @@ Excélsus super omnes gentes Dóminus, \* et super cælos glória ejus.
 Quis sicut Dóminus, Deus noster, qui in altis hábitat, \* et humília réspicit in cælo et in terra?
 
 Súscitans a terra ínopem, \* et de stércore érigens páuperem :
+
+Ut cóllocet eum cum princípibus, \* cum princípibus pópuli sui.
+
+Qui habitáre facit stérilem in domo, \* matrem filiórum lætántem.
+
+**Ant.** Bene fundáta est domus Dómini supra firmam petram.
+
+**Ant.** Lápides pretiósi \* omnes muri tui, et turres Jerúsalem gemmis ædificabúntur.
+
+###### Psalmus 147
+
+LAuda, Jerúsalem, Dóminum : \* lauda Deum tuum, Sion.
+
+Quóniam confortávit seras portárum tuárum : \* benedíxit fíliis tuis in te.
+
+Qui pósuit fines tuos pacem : \* et ádipe fruménti sátiat te.
+
+Qui emíttit elóquium suum terræ : \* velóciter currit sermo ejus.
+
+Qui dat nivem sicut lanam : \* nébulam sicut cínerem spargit.
+
+Mittit crystállum suam sicut buccéllas : \* ante fáciem frígoris ejus quis sustinébit?
+
+Emíttet verbum suum, et liquefáciet ea : \* flabit spíritus ejus, et fluent aquæ.
+
+Qui annúntiat verbum suum Jacob : \* justítias, et judícia sua Israël.
+
+Non fecit táliter omni natióni : \* et judícia sua non manifestávit eis.
+
+**Ant.** Lápides pretiósi omnes muri tui, et turres Jerúsalem gemmis ædificabúntur.
+
+**Capitulum** *Apoc. 21, 2*
+
+VIdi civitátem sanctam, Jerúsalem novam, descendéntem de cælo a Deo, parátam sicut sponsam ornátam viro suo.
+
+**Hymnus**
+
+CÆléstis urbs Jerúsalem,
+Beáta pacis vísio,
+Quæ celsa de vivéntibus
+Saxis ad astra tólleris,
+Sponsǽque ritu cíngeris
+Mille Angelórum míllibus.
+
+O sorte nupta próspera,
+Dotáta Patris glória,
+Respérsa Sponsi grátia,
+Regína formosíssima,
+Christo jugáta Príncipi,
+Cæli corúsca cívitas.
+
+Hic margarítis émicant
+Paténtque cunctis óstia;
+Virtúte namque prǽvia
+Mortális illuc dúcitur,
+Amóre Christi pércitus
+Torménta quisquis sústinet.
+
+Scalpri salúbris íctibus
+Et tunsióne plúrima,
+Fabri políta málleo
+Hanc saxa molem cónstruunt,
+Aptísque juncta néxibus
+Locántur in fastígio.
+
+Decus Parénti débitum
+Sit usquequáque Altíssimo,

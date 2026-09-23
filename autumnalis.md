@@ -18488,3 +18488,85 @@ ET hic póssumus decem mnas decem verba intellígere, id est, legis doctrínam; 
 **Oratio**
 
 COncéde, quǽsumus, Ecclésiæ tuæ, omnípotens Deus : ut beátum Stéphanum Confessórem tuum, quem regnántem in terris propagatórem hábuit, propugnatórem habére mereátur gloriósum in cælis. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+---
+
+### Die 5 Septembris — S. Laurentii Justiniani
+
+{RUBRIC: Ep. et Conf. [69] — Semidúplex (m. t. v.)}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+**Oratio**
+*C 1*
+
+DA, quǽsumus, omnípotens Deus : ut beáti Lauréntii Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+#### In II Nocturno
+
+##### Lectio iv
+
+LAuréntius, ex illústri Justinianórum família Venétiis natus, exímiam vel puer morum gravitátem præ se tulit. Exácta inter pietátis offícia adolescéntia, ad castum verbi et ánimæ conúbium a divína sapiéntia invitátus, de religiósæ vitæ institúto capesséndo deliberáre cœpit. Novæ ítaque milítiæ clam prolúdens, præter álias córporis afflictatiónes, super nudos cubábat ásseres; sedénsque velut árbiter hinc inter sǽculi blandiménta paratásque a matre núptias, illinc claustráles inter austeritátes, óculis in Christi patiéntis crucem convérsis : Tu, inquit, es, Dómine, spes mea : ibi posuísti certíssimum refúgium tuum; ad canonicórum sancti Geórgii in Alga congregatiónem convolávit. Ubi, novis excogitátis cruciátibus, ácrius in seípsum, véluti in hostem infensíssimum, instáurans bellum, nullam ádeo sibi oblectatiónem indulgébat, ut ne in doméstícum umquam hortum, nec in patérnam quidem domum, nisi cum moriénti matri extréma pietátis offícia siccis óculis persólvit, exínde intráverit. Par erat obediéntiæ, mansuetúdinis ac præcípue humilitátis stúdium, cum abjectíssima quæque cœnóbii múnia sibi ultro desúmeret, celebérrima per urbis loca non tam victum quam ludíbria emendicáret, illatásque contumélias ac calúmnias immótus ac silens perférret; assíduæ præsértim oratiónis subsídio, qua sæpe per mentis excéssum rapiebátur in Deum, tantóque cor ejus æstuábat ardóre, ut nutántes étiam sodáles ad perseverántiam ac Jesu Christi amórem inflammáret.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+##### Lectio v
+
+AB Eugénio quarto pátriæ epíscopus designátus, quem magna contentióne honórem detrectáverat, majóri gessit cum laude. Nam consuéta vivéndi ratióne nihil ádmodum immutáta, paupertátem, quam semper colúerat, in mensa, supelléctili ac lecto, perpétuo retínuit. Módicam domi alébat famíliam, quod grandem álteram sibi esse díceret, páuperes Christi significans. Quacúmque adirétur hora, præsto ómnibus erat, patérna omnes caritáte allevábat, non ré nuens vel ære se aliéno graváre, illórum ne inópiæ deésset. Rogátus qua spe id fáceret : Dómini mei, qui pro me dissólvere fácile póterit, respondébat. Spem autem non confúndere divína providéntia, summíssis inopináto subsídiis, júgiter declarábat. Plura vírginum monastéria constrúxit, quas étiam ad perfectióris vitæ ratiónem sua vigilántia compósuit. Matrónis a sǽculi pompis et ornátus vanitáte revocándis, ecclesiásticæ disciplínæ ac móribus reformándis maximópere stúduit; dignus sane, qui ab eódem Eugénio glória et decus præsulum coram cardinálibus vocarétur, et qui a Nicoláo quinto ejus successóre, transláto e Gradénsi civitáte título, primus Venetiárum patriárcha renuntiarétur.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea : \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+##### Lectio vi
+
+LAcrimárum dono insignítus omnipoténti Deo placatiónis hóstiam quotídie offerébat. Quod cum aliquándo nocte Domínicæ Nativitátis perágeret, Christum Jesum sub pulchérrimi infántis spécie vidére proméruit. Tantúmque in eo erat commíssi gregis præsídium, ut cælitus aliquándo accéptum fúerit, pontíficis sui intercessióne ac méritis stetísse rempúblicam. Prophetíæ spíritu afflátus, plura humánæ cognitióni prorsus impérvia prædíxit; morbos ac dæmones suis précibus sæpe fugávit; libros étiam cæléstem doctrínam ac pietátem spirántes, grammáticæ pene rudis, conscrípsit. Dénique, cum lethálem incidísset in morbum, et commodiórem doméstici lectum seni atque ægro pararent, aversátus ejúsmodi delícias, tamquam a duríssima moriéntis Dómini sui cruce plus nímio abhorréntes, consuéto in strámine se jussit depóni, et finem vitæ suæ adventáre prænóscens, sublátis in cælum óculis : Vénio, inquit, ad te, o bone Jesu; ac die octáva Januárii obdormívit in Dómino. Pretiósam ejus mortem testáti sunt angélici concéntus, a Carthusiánis quibúsdam mónachis audíti, et sacrum cadáver, per duos ultra menses inhumátum, suávi fragrans odóre, et rubescénte fácie, íntegrum atque incorrúptum, ac nova post mortem patráta mirácula. Quibus permótus Alexánder octávus Póntifex máximus eum Sanctórum número adscrípsit. Innocéntius vero duodécimam Septémbris diem, qua vir sanctus ad pontifíciam primo cáthedram fúerat evéctus, celebrándo illíus festo assignávit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+LAuréntius, ex illústri Justinianórum família Venétiis natus, miro affligéndi córporis stúdio ab adolescéntia cláruit, et, mundi illécebris paratísque a matre núptiis spretis, in congregatiónem canonicórum sancti Geórgii in Alga recéptus est. Ab Eugénio quarto pátriæ epíscopus renuntiátus, consuéta vivéndi forma nihil ádmodum immutáta, páuperum necessitátes subleváre, étiam ære se aliéno gravans, numquam déstitit, divínæ fidens providéntiæ, quæ inopinátis subsídiis illi semper ádfuit. Plura vírginum monastéria excitávit, vel ad perfectióris vitæ normas compósuit. Christiánæ humilitátis exémplar exímium, ecclesiásticæ discíplínæ ac móribus reformándis maximópere stúduit, dignus, qui a summis Pontifícibus glória præsulum vocarétur, et primus Venetiárum patriárcha, e Gradénsi civitáte transláto título, renuntiarétur. Lacrimárum, prophetíæ, et curatiónum dono insígnis, libros étiam cælésti doctrína ac pietáte conspícuos, grammáticæ pene rudis, conscrípsit. Obdormívit in Dómino die octáva Januárii. Ejus vero festum hac die recólitur, qua vir Dei ad episcopálem cáthedram evéctus est.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Comm. Conf. Pont. 1 loco. [80]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+**Oratio**
+*C 1*
+
+DA, quǽsumus, omnípotens Deus : ut beáti Lauréntii Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat, et salútem. Per Dóminum.
+
+#### AD VESPERAS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum : stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+---
+
+## Die 8 Septembris — In Nativitate Beatæ Mariæ Virginis
+
+{RUBRIC: Duplex II classis cum Octava simplici}
+
+{RUBRIC: Omnia de Communi Festórum B. Maríæ V. [174], præter ea quæ hic habéntur própria.}
+
+#### IN I VESPERIS
+
+**Ant. 1** Nativitas gloriósæ \* Vírginis Maríæ ex sémine Ábrahæ, ortæ de tribu Juda, clara ex stirpe David.
+
+**Ant. 2** Natívitas est hódie \* sanctæ Maríæ Vírginis, cujus vita ínclyta cunctas illústrat ecclésias.

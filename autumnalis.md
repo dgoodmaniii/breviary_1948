@@ -36428,4 +36428,42 @@ SAcerdótes autem stabant in offíciis suis, et Levítæ in órganis cárminum D
 
 #### Lectio iii
 
-COmplevítque Sálomon domum Dómini, et domum regis, et ómnia quæ disposúerat in corde suo, ut fáceret in domo Dómini et in domo sua, et prosperátus est. Appáruit autem ei Dóminus nocte, et ait : Audívi oratiónem tuam, et elégi locum istum mihi in domum sacrifícii. Si cláusero cælum, et plúvia non flúxerit, et mandávero et præcépero locústæ, ut dévoret terram, et mísero pestiléntiam in pópulum meum : convérsus autem pópulus meus, super quos invocátum est nomen meum, deprecátus me fúerit, et exquisíerit fáciem meam, et egérit pæniténtiam a viis suis péssimis : et ego exáudiam de cælo, et propítius ero peccátis eórum, et sanábo terram eórum. Óculi quoque mei
+COmplevítque Sálomon domum Dómini, et domum regis, et ómnia quæ disposúerat in corde suo, ut fáceret in domo Dómini et in domo sua, et prosperátus est. Appáruit autem ei Dóminus nocte, et ait : Audívi oratiónem tuam, et elégi locum istum mihi in domum sacrifícii. Si cláusero cælum, et plúvia non flúxerit, et mandávero et præcépero locústæ, ut dévoret terram, et mísero pestiléntiam in pópulum meum : convérsus autem pópulus meus, super quos invocátum est nomen meum, deprecátus me fúerit, et exquisíerit fáciem meam, et egérit pæniténtiam a viis suis péssimis : et ego exáudiam de cælo, et propítius ero peccátis eórum, et sanábo terram eórum. Óculi quoque mei erunt apérti, et aures meæ eréctæ ad oratiónem ejus qui in loco isto oráverit. Elégi enim et sanctificávi locum istum, ut sit nomen meum ibi in sempitérnum, et permáneant óculi mei et cor meum ibi cunctis diébus.
+
+℟. Bénedic, Dómine, domum istam, quam ædificávi nómini tuo : veniéntium in loco isto, \* Exáudi preces in excélso sólio glóriæ tuæ. ℣. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum. — Exáudi. **Glória Patri.** Exáudi.
+
+### In II Nocturno
+
+**Ant.** Non est hic áliud, \* nisi domus Dei et porta cæli.
+
+###### Psalmus 83
+
+QUam dilécta tabernácula tua, Dómine virtútum : \* concupíscit, et déficit ánima mea in átria Dómini.
+
+Cor meum, et caro mea \* exsultavérunt in Deum vivum.
+
+Etenim passer invénit sibi domum : \* et turtur nidum sibi, ubi ponat pullos suos.
+
+Altária tua, Dómine virtútum : \* Rex meus, et Deus meus.
+
+Beáti, qui hábitant in domo tua, Dómine : \* in sæcula sæculórum laudábunt te.
+
+Beátus vir, cujus est auxílium abs te : \* ascensiónes in corde suo dispósuit, in valle lacrimárum in loco, quem pósuit.
+
+Etenim benedictiónem dabit legislátor, ibunt de virtúte in virtútem : \* vidébitur Deus deórum in Sion.
+
+Dómine, Deus virtútum, exáudi oratiónem meam : \* áuribus pércipe, Deus Jacob.
+
+Protéctor noster, áspice, Deus : \* et réspice in fáciem Christi tui :
+
+Quia mélior est dies una in átriis tuis, \* super míllia.
+
+Elégi abjéctus esse in domo Dei mei : \* magis quam habitáre in tabernáculis peccatórum.
+
+Quia misericórdiam, et veritátem díligit Deus : \* grátiam et glóriam dabit Dóminus.
+
+Non privábit bonis eos, qui ámbulant in innocéntia : \* Dómine virtútum, beátus homo, qui sperat in te.
+
+**Ant.** Non est hic áliud, nisi domus Dei et porta cæli.
+
+**Ant.** Vidit Jacob scalam, \* súmmitas ejus cælos tangébat, et descendéntes Angelos, et dixit : Vere locus iste sanctus est.

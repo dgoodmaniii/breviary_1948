@@ -1592,4 +1592,35 @@ N. B. It would be well to rehearse all the rules just given by perusing the Tabl
 
 [^118]: If, when referring to the *Table of Concurrence* given in the Breviary, the Office that precedes the word "*cum*" is taken as the second Vespers of *to-day*, and the Office that follows the word "*cum*," as the first Vespers of *to-morrow*, no difficulty will be found in understanding the answer. Thus, for instance: "Quando concurrit duplex majus cum duplici II classis," (solution:) *Totum de sequenti* (= to-morrow), *commemoratio præcedentis* (= to-day).
 
+deals with *only one* particular Hour (viz., Vespers) of consecutive Offices.
+
+(b) In the question of concurrence there are never any difficulties on "translation" to be solved, because concurrence deals with Offices that are actually celebrated or, at least, commemorated.
+
+### Rules of Concurrence
+
+**97.** *General rule.*
+
+The Vespers of any two consecutive feasts are preferred among themselves in much the same way as are occurring Offices. In concurrence, however, it often happens (when both Offices are in every way equal) that both Vespers may be said to be recited, inasmuch as the second Vespers of one day is said as far as the *Capitulum* (exclusive), from which the first Vespers of the following day starts. No compromise of this kind takes place in occurrence.
+
+**98.** *Rules in Particular.*
+
+(a) The entire Vespers of an Office (whether *præcedens* or *sequens*) will be said if (as in occurrence) it is the more *important* by reason of (the following points which are to be taken in order and considered as already explained in n. 88):
+
+1st, higher rite, with the exception given below in (b);
+2d, greater solemnity (with a commemoration of the other);
+3d, primary or secondary (with a commemoration of the other);
+4th, personal dignity.
+
+**99.** When these *four* points have been considered, and it is found that the concurring Offices are in every way equal, then, as a general rule, the Vespers is divided in such a way that from the *Capitulum* on will be of the first Vespers of the *following Office* with a commemoration of the second Vespers of the *preceding Office*.[^119] See exception given below in (c).
+
+(b) Notwithstanding the rules already given, exception must be made of:
+
+1st, major Sundays, of which the entire Vespers is always said, unless they concur with doubles of the first or second class;
+2d, minor (= common) Sundays, of which the entire Vespers is said, unless they concur with the feasts of the Lord, with the privileged octave-days of feasts of the Lord, or with doubles of the first or second class.
+
+(c) When two Offices of the *same person* concur, the more important is celebrated, omitting — except in the case of their being different mysteries of the Lord — the commemoration of the other.[^120] If the two Offices are of equal importance, the second Vespers of the preceding is said, omitting the commemoration of the following, unless it is a question of different mysteries of the Lord.
+
+[^119]: There are exceptions, as, for instance, during the octave of Christmas.
+[^120]: Cf. special Rubrics for the octave-day of Corpus Christi.
+
 ---

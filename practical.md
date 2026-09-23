@@ -1948,3 +1948,49 @@ always commemorated, except in the solemn Masses of feasts which are doubles of 
 2. Should the feast of the dedication *occur* with the feast of the titular (because the church was consecrated on the feast of the titular) the dedication, which is regarded as *a feast of the Lord*, is celebrated in preference to the titular saint. If, however, the titular saint (e. g., St. Michael) is celebrated in the Universal Church as a primary double of the first class, then the Office of the titular, being *proper* and *universal*, is preferred to the Office of the dedication, which, although it is likewise "proper" (cf. n. 88), is, nevertheless, a *particular* feast (cf. *New Rubrics*, tit. 11).
 
 ---
+
+# APPENDIX
+
+**1.** A cleric, on the day of his ordination to subdeaconship, is not bound to recite the whole Office of that day, but he is obliged to begin his Office at that Canonical Hour which corresponds, or is nearest to the hour of the day in which he receives ordination (Terce corresponds to nine a. m., and Sext to noon).
+
+**2.** The recitation of the ordination day's Office (or of any part of it) before receiving subdeaconship does not in any way satisfy the obligation (of saying the Office) imposed by that order.
+
+**3.** It is commonly held that, outside of choir, the *order* of the Office is merely accidental and not obligatory. For any reasonable cause, therefore, the order of the Hours (or of the different parts of the same Hour) may be inverted without fault. Cf. Carbone, *Praxis Ordinand.*, Q. 201, note.
+
+### Ordination Penance
+
+**4.** On those ordained to subdeaconship or deaconship the Bishop imposes a penance which he refers to as "Nocturnum *talis diei*." By this word "nocturn" is meant:
+
+(a) The nine psalms (with their antiphons) of Matins, if the day specified by the Bishop is a ferial.
+
+(b) The three psalms (with their antiphons) used in the first nocturn if the day he specifies is a Sunday or feast-day having nine Lessons at Matins (cf. S. R. C., June 27, 1899).
+
+The word *nocturn*, then, in no case includes the recitation of the Invitatory, Hymn, or Lessons (S. R. C., July 10, 1903).
+
+The recitation of this penance is in no way connected with the obligation of reciting the Office arising from ordination. It is separate and therefore additional.[^135]
+
+### Probable Opinions
+
+**5.** (a) A priest who is bound to the recitation of the *Roman Breviary* is not obliged to recite any part of his Office from a Breviary proper to a certain Order (e. g., the Benedictines) if he should not happen to have the Roman Breviary; neither must he recite the psalms of Matins who has not the Responsoria and Lessons; or any psalms at all, if he has not the antiphons and Capitula.— Sabetti, Suarez, Sanchez, Paulus, St. Alphonsus, and others quoted by Telch.
+
+(b) The omission of the *litaniæ majores* on the feast of St. Mark and during the Rogation days is not a grave sin.— Ballerini-Palmieri, St. Alphonsus, quoted by Telch.
+
+[^135]: This penance need not be recited on the day of ordination. It may be said with a companion.— Carbone, quoting Scavini and Gury-Tummolo.
+
+(c) There is no obligation to recite Matins and Lauds before Mass.— Ballerini, Noldin, quoted by Telch.
+
+(d) It is no sin not to recite the *prayers*, or not to celebrate the *Masses* imposed by the Bishop on newly-ordained priests.— St. Alphonsus, quoted by Telch.
+
+### Some Recent Changes
+
+**6.** (a) November 2d, All Souls' Day, has been made equal ("*æquiparatur*") to a primary double of the first class for the Universal Church (S. R. C., 28 Feb. 1917). Changes to be made in the Rubrics are given accordingly.
+
+(b) In the Office of St. Thomas of Villanova (Sept. 22d), the following words are to be omitted at the end of the sixth Lesson: "atque ejus memoriam quarto decimo Kalendas Octobris celebrari mandavit" (*ibid.*).
+
+(c) The feast of St. Joseph (March 19th) and of the Dedication of St. Michael the Archangel (Sept. 29th), which were doubles of the second class, are now doubles of the first class (S. R. C., Dec. 12, 1917). Consequent changes to be made in various parts of the Breviary are also given.
+
+### Commemorations
+
+**7.** The rules for commemorations on doubles of the first and second class are as follows:
+
+---

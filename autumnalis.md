@@ -41508,3 +41508,94 @@ Spéculum justítiæ, ora.
 Sedes sapiéntiæ, ora.
 
 Causa nostræ lætítiæ, ora.
+
+Vas spirituále, ora.
+
+Vas honorábile, ora.
+
+Vas insígne devotiónis, ora pro nobis.
+
+Rosa mýstica, ora.
+
+Turris Davídica, ora.
+
+Turris ebúrnea, ora.
+
+Domus áurea, ora.
+
+Fœderis arca, ora.
+
+Jánua cæli, ora.
+
+Stella matutína, ora.
+
+Salus infirmórum, ora.
+
+Refúgium peccatórum, ora pro nobis.
+
+Consolátrix afflictórum, ora pro nobis.
+
+Auxílium Christianórum, ora pro nobis.
+
+Regína Angelórum, ora.
+
+Regína Patriarchárum, ora pro nobis.
+
+Regína Prophetárum, ora.
+
+Regína Apostolórum, ora.
+
+Regína Mártyrum, ora.
+
+Regína Confessórum, ora.
+
+Regína Vírginum, ora.
+
+Regína Sanctórum ómnium, ora.
+
+Regína sine labe origináli concépta, ora.
+
+
+Regína sacratíssimi Rosárii, ora.
+
+Regína pacis, ora.
+
+Agnus Dei, qui tollis peccáta mundi, parce nobis, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, exáudi nos, Dómine.
+
+Agnus Dei, qui tollis peccáta mundi, miserére nobis.
+
+℣. Ora pro nobis, sancta Dei Génitrix. ℟. Ut digni efficiámur promissiónibus Christi.
+
+Orémus.
+
+**Oratio**
+
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére : et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia, et ætérna pérfrui lætítia. Per Christum, Dóminum nostrum. ℟. Amen.
+
+---
+
+# Litaniæ de S. Joseph
+
+{RUBRIC: Indulgéntia 5 annórum. Ind. plenária, si per íntegrum mensem, suetis conditiónibus, S. P. A. 21 Mart. 1935}
+
+Kýrie, eléison.
+
+Christe, eléison.
+
+Kýrie, eléison.
+
+Christe, audi nos.
+
+Christe, exáudi nos.
+
+Pater de cælis, Deus, miserére nobis.
+
+Fili, Redémptor mundi, Deus, miserére.
+
+Spíritus Sancte, Deus, miserére nobis.
+
+Sancta Trínitas, unus Deus, miserére.
+
+Sancta María, ora pro nobis.

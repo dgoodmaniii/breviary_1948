@@ -37772,4 +37772,34 @@ Præsentatiónem.
 
 #### Lectio viii
 
-SED, si caro Verbi Dei secúndum carnem nascéntis a carne Vírginis matris pronuntiátur extránea, sine causa venter qui eam portásset, úbera quæ lactássent, beatificántur. Dicit autem Apóstolus : Quia misit Deus Fílium suum factum ex muliere, factum sub lege. Neque audiéndi sunt, qui legéndum putant : Natum ex muliere, factum sub lege, sed, Factum ex muliere : quia concéptus ex
+SED, si caro Verbi Dei secúndum carnem nascéntis a carne Vírginis matris pronuntiátur extránea, sine causa venter qui eam portásset, úbera quæ lactássent, beatificántur. Dicit autem Apóstolus : Quia misit Deus Fílium suum factum ex muliere, factum sub lege. Neque audiéndi sunt, qui legéndum putant : Natum ex muliere, factum sub lege, sed, Factum ex muliere : quia concéptus ex útero virgináli, carnem non de níhilo, non aliúnde, sed matérna traxit ex carne. Alióquin nec vere Fílius hóminis dicerétur, qui oríginem non habéret ex hómine. Et nos ígitur, his contra Eutýchen dictis, extollámus vocem cum Ecclésia cathólica, cujus hæc múlier typum gessit, extollámus et mentem de médio turbárum, dicamúsque Salvatóri : Beátus venter qui te portávit, et úbera quæ suxísti. Vere enim beáta parens, quæ, sicut quidam ait, Eníxa est puérpera Regem, qui cælum terrámque tenet per sǽcula.
+
+℟. Beátam me dicent omnes generatiónes : \* Quia fecit mihi Dóminus magna qui potens est, et sanctum nomen ejus. ℣. Et misericórdia ejus a progénie in progénies timéntibus eum. — Quia. Glória. Quia.
+
+**Benedictio.** Ad societátem.
+
+#### Lectio ix
+
+QUinímmo beáti qui áudiunt verbum Dei et custódiunt. Pulchre Salvátor attestatióni mulíeris ánnuit, non eam tantúmmodo quæ Verbum Dei corporáliter generáre meruérat, sed et omnes qui idem Verbum spiritáliter audítu fídei concípere, et boni óperis custódia vel in suo vel in proximórum corde párere et quasi álere studúerint, assevérans esse beátos; quia, et éadem Dei Génitrix, et inde quidem beáta, quia Verbi incarnándi minístra facta est temporális; sed inde multo beátior, quia ejúsdem semper amándi custos manébat ætérna.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**Ant. 2** Læva ejus \* sub cápite meo, et déxtera illíus amplexábitur me.
+
+**Ant. 3** Nigra sum, \* sed formósa, fíliæ Jerúsalem; ídeo diléxit me Rex, et introdúxit me in cubículum suum.
+
+**Ant. 4** Jam hiems tránsiit, \* imber ábiit et recéssit : surge, amíca mea, et veni.
+
+**Ant. 5** Speciósa \* facta es et suávis in delíciis tuis, sancta Dei Génitrix.
+
+**Capitulum** *Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sæculum non désinam, et in habitatióne sancta coram ipso minístrávi.

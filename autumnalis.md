@@ -38380,3 +38380,57 @@ DEus, qui virginálem aulam beátæ Maríæ, in qua habitáres, elígere dignát
 ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. ℟. Deo grátias.
 
 ℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+DEus, qui salútis ætérnæ, beátæ Maríæ virginitáte fecúnda, humáno géneri prǽmia præstitísti : tríbue quǽsumus; ut ipsam pro nobis intercédere sentiámus, per quam merúimus auctórem vitæ suscípere, Dóminum nostrum Jesum Christum, Fílium tuum : Qui tecum vivit.
+
+#### AD SEXTAM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Hymnus Meménto. [199]}
+
+**Ant.** In odórem.
+
+{RUBRIC: Ps. 122 Ad te levávi 127; Ps. 123 Nisi quia Dóminus ibid.; Ps. 124 Qui confídunt in Dómino 128}
+
+**Ant.** In odórem unguentórum tuórum cúrrimus : adolescéntulæ dilexérunt te nimis.
+
+**Capitulum** *Eccli. 24, 16*
+
+ET radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea. ℟. Deo grátias.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+COncéde, misericors Deus, fragilitáti nostræ præsídium : ut, qui sanctæ Dei Genitrícis memóriam ágimus; intercessiónis ejus auxílio, a nostris iniquitátibus resurgámus. Per eúmdem Dóminum.
+
+#### AD NONAM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Hymnus Meménto. [199]}
+
+**Ant.** Pulchra es.
+
+{RUBRIC: Ps. 125 In converténdo 128; Ps. 126 Nisi Dóminus ibid.; Ps. 127 Beáti omnes. 162}
+
+**Ant.** Pulchra es et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+**Capit.** *Eccli. 24, 19-20*
+
+IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi : quasi myrrha elécta dedi suavitátem odóris. ℟. Deo grátias.

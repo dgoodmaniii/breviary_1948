@@ -20967,3 +20967,76 @@ SAncta quátuor animália, quæ prophetíæ spíritu futúra prævidéntur, subt
 *Cap. 9, 9-13*
 
 IN illo témpore : Vidit Jesus hóminem sedéntem in telónio, Matthǽum nómine, et ait illi : Séquere me. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 1 Comment. in Matth. cap. 9*
+
+CEteri Evangelístæ, propter verecúndiam et honórem Matthǽi, noluérunt eum nómine appelláre vulgáto, sed dixérunt, Levi; dúplici quippe vocábulo fuit. Ipse autem Matthǽus (secúndum illud quod dícitur a Salomóne : Justus accusátor est sui in princípio sermónis; et in álio loco : Dic tu peccáta tua, ut justificéris) Matthǽum se et publicánum nóminat, ut osténdat legéntibus nullum debére salútem desperáre, si ad melióra convérsus sit, cum ipse de publicáno in Apóstolum sit repénte mutátus.
+
+℟. Isti sunt qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo : \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+##### Lectio viii
+
+ARguit in hoc loco Porphýrius et Juliánus Augústus, vel imperítiam históríci mentiéntis, vel stultítiam eórum qui statim secúti sint Salvatórem, quasi irrationabíliter quémlibet vocántem hóminem sint secúti; cum tantæ virtútes tántaque signa præcésserint, quæ Apóstolos, ántequam créderent, vidísse non dúbium est. Certe fulgor ipse et majéstas Divinitátis occúltæ, quæ étiam in humána fácie relucébat, ex primo ad se vidéntes tráhere póterat aspéctu. Si enim in magnéte lápide et súccinis hæc esse vis dícitur, ut ánulos et stípulam et festúcas sibi cópulent; quanto magis Dóminus ómnium creaturárum ad se tráhere póterat quos vocábat?
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam : \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna : operáti sunt justítiam. — Quorum. Glória Patri. Quorum.
+
+{RUBRIC: In Fériis Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemoratio ad Laudes tantum, alias}
+
+##### Lectio ix
+
+ET factum est, discumbénte eo in domo, ecce multi publicáni et peccatóres veniéntes discumbébant cum Jesu. Vidébant publicánum, a peccátis ad melióra convérsum, locum invenísse pœniténtiæ; et ob id étiam ipsi non despérant salútem. Neque vero in prístinis vítiis permanéntes véniunt ad Jesum, ut pharisǽi et scribæ múrmurant, sed pœniténtiam agéntes, ut sequens Dómini sermo signíficat, dicens : Misericórdiam volo, et non sacrifícium; non enim veni vocáre justos, sed peccatóres. Ibat autem Dóminus ad convívia peccatórum, ut occasiónem habéret docéndi, et spirituáles invitatóribus suis præbéret cibos.
+
+**Te Deum laudámus.**
+
+**Oratio**
+
+BEáti Apóstoli et Evangelístæ Matthǽi, Dómine, précibus adjuvémur : ut, quod possibílitas nostra non óbtinet, ejus nobis intercessióne donétur. Per Dóminum.
+
+{RUBRIC: In Vésperis Commemoratio sequéntis tantum.}
+
+---
+
+## Die 22 Septembris — S. Thomæ de Villanova
+
+{RUBRIC: Ep. et Conf. [69] Duplex (m. t. v.)}
+
+**Ant.** Dispérsit, dedit paupéribus : justítia ejus manet in sǽculum sǽculi.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+
+DEus, qui beátum Thomam Pontíficem insígnis in páuperes misericórdiæ virtúte decorásti : quǽsumus; ut, ejus intercessióne, in omnes, qui te deprecántur, divítias misericórdiæ tuæ benígnus effúndas. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+THomas, in óppido Fontispláni Toletánæ diœcéseos in Hispánia natus anno Dómini millésimo quadringentésimo octogésimo, ab óptimis paréntibus, ineúnte vita, pietátem et singulárem in páuperes misericórdiam accépit. Cujus adhuc puer complúra dedit exémpla; sed illud in primis nóbile, quod, ut nudos operíret, própriis véstibus non semel seípsum éxuit. Exácta puerítia, Complúto, quo missus fúerat ut alúmnus in collégio majóri sancti Ildefónsi lítteris óperam daret, patris óbitu revocátus, univérsam hereditátem egénis virgínibus aléndis dicávit; eodémque statim revérsus est, et, sacræ theologíæ cursu conféto, ádeo doctrína excélluit, ut, in eádem universitáte cáthedram ascénderet jussus, philosóphicas theologicásque quæstiónes mirabíliter explanáverit, interim assíduis précibus sciéntiam Sanctórum et rectam vitæ morúmque normam a Dómino vehementíssime póstulans. Quare, divíno instínctu, Eremitárum sancti Augustíni ampléxus est institútum.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+##### Lectio v
+
+REligiónem proféssus, ómnibus religiósi hóminis virtútibus et ornaméntis excélluit, humilitáte, patiéntia, continéntia, sed ardentíssima caritáte summe conspícuus, inter várĩos et assíduos labóres oratióni rerúmque divinárum meditatióni invícto spíritu semper inténtus. Prædicándi onus, útpote sanctimónia et doctrína præstans, subíre jussus, cælésti aspiránte grátia, innumerábiles e vitiórum cœno in viam salútis edúxit. Regéndis deínde frátribus admótus, prudéntiam, æquitátem et mansuetúdinem pari sedulitáte ac severitáte conjúnxit; ádeo, ut priscam sui órdinis discíplinam multis in locis vel firmáverit vel restitúerit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea : \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+##### Lectio vi
+
+GRanaténsis archiepíscopus designátus, mira humilitáte et constántia insígne munus rejécit. Verum, non multo post, Valentínam ecclésiam, superiórum auctoritáte coáctus, gubernándam suscépit; quam annis ferme úndecim ita rexit, ut sanctíssimi et vigilantíssimi pastóris partes explévérit. Céterum, consuéta vivéndi ratióne nihil ádmodum immutáta, inexplébili caritáti multo magis indúlsit, cum amplos ecclésiæ réditus in egénos dispérsit, ne léctulo quidem sibi relícto : nam eum, in quo decumbébat cum in cælum evocarétur, ab eódem commodátum hábuit, cui paulo ante eleemósynæ loco donáverat. Obdormívit in Dómino, sexto Idus Septémbris, annos natus octo et sexagínta. Servi sui sanctitátem adhuc vivéntis, et exínde post mortem, miráculis Deus testátam vóluit; præsértim, cum hórreum, fruménto paupéribus distribúto, pénitus vácuum, repénte plenum invéntum est, et cum ad ejus sepúlcrum puer mórtuus revíxit. Quibus aliísque non paucis fulgéntem signis, Alexánder séptimus, Póntifex máximus, Sanctórum número adscrípsit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+THomas, in óppido Fontispláni Toletánæ diœcéseos in Hispánia natus, a bonis paréntibus, ineúnte vita, pietátem et singulárem in páuperes misericórdiam accépit, cujus toto vitæ suæ decúrsu præclára dedit exémpla. Puer enim, ut nudos operíret, própriis véstibus non semel seípsum éxuit; adoléscens, post patris óbitum univérsam hereditátem egénis virgínibus aléndis dicávit. Cum, theologíæ cursu conféto, divíno instínctu, Eremitárum sancti Augustíni institútum ampléxus esset, virtútibus ómnibus ornátus, caritáte præsértim erga páuperes et peccatóres excélluit, quos e vitiórum cœno edúcere satégit. Præcípue vero ejus misericórdia elúxit, cum, ad regéndam Valentínam ecclésiam ex obediéntia vocátus, vigilantíssimi pastóris vices explévit et amplos ecclésiæ réditus in egénos dispérsit, ne léctulo quidem sibi relícto. Obdormívit in Dómino, sexto Idus Septémbris, annos natus octo supra sexagínta.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Comm. Conf. Pont. 1 loco. [80]}
+
+{RUBRIC: In Fériis Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemoratio ad Laudes tantum, alias}

@@ -35708,3 +35708,30 @@ NEque inánis hæc cáutio est et vana formído, quæ ad salútis viam cónsulit
 DEnuo quoque per hanc Angeli vocem continéntiæ munus osténditur, virgínitas prædicátur : Hi sunt, qui cum muliéribus se non coinquinavérunt; vírgines enim permansérunt : hi sunt qui sequúntur Agnum quocúmque íerit. Neque enim tantum másculis continéntiæ grátiam Dóminus repromíttit, et féminas prǽterit; sed, quóniam fémina viri pórtio est et ex eo sumpta atque formáta est, in Scriptúris fere ómnibus ad protoplástum Deus lóquitur, quia sunt duo in carne una, et in másculo simul significátur et fémina. Quod si Christum continéntia séquitur, et regno Dei virgínitas destinátur; quid est illis cum terréno cultu et cum ornaméntis, quibus, dum homínibus placére géstiunt, Deum offéndunt?
 
 ℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur tibi. **Glória Patri.** Afferéntur tibi.
+
+{RUBRIC: In III Nocturno Homilía in Evangélium Símile est regnum cælórum thesáuro, ut infra in Communi non Virgínum [134], cum Responsóriis pro Vírgine ibi notátis.}
+
+# III Alia Homilia
+
+**Léctio sancti Evangélii secúndum Matthǽum**
+
+**Lectio vii** *Cap. 19, 3-12*
+
+IN illo témpore : Accessérunt ad Jesum pharisǽi, tentántes eum et dicéntes : Si licet hómini dimíttere uxórem suam quacúmque ex causa? Et réliqua.
+
+**Homilía sancti Joánnis Chrysóstomi**
+*Homilía 63 in Matth., sub médium*
+
+DOminus noster, quia ad virginitátem hortári grave esse videbátur, a necessitáte legis de non solvéndo matrimónio, eos ad cupiditátem illíus tráhere studet. Deínde, ut eam esse possíbilem osténdat, sic inquit : Sunt eunúchi qui ex ventre matris ita nati sunt, et sunt qui ab homínibus eunúchi facti sunt, et sunt qui seípsos castravérunt propter regnum cælórum. Quibus verbis laténter eos ad eligéndam virginitátem indúcit, dum eam virtútem esse possíbilem ástruit.
+
+℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum : \* Et veniénte Dómino, introívit cum eo ad núptias. ℣. Média nocte clamor factus est : Ecce sponsus venit, exíte óbviam ei. — Et.
+
+#### Lectio viii
+
+ID autem hoc fere modo confírmat : Cógita tecum, si aut a natúra talis esses, aut ab homínibus eam injúriam passus, quid fáceres, cum et ejúsmodi voluptáte caréres, et nullam, caréndo, mercédem consequeréris? Grátias ígitur nunc Deo agas, quod cum mercéde atque corónis idem sústines, quod illi sine corónis ac præmio tólerant. Immo vero non idem, sed multo lévius; tum quia spe erígeris et consciéntia recte facti, tum quia non ita ingéntibus concupiscéntiæ flúctibus jactáris.
+
+℟. Média nocte clamor factus est : \* Ecce sponsus venit, exíte óbviam ei. ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. **Glória Patri.** Ecce.
+
+#### Lectio ix
+
+CUM ergo de illis eunúchis díxerit, qui, nisi étiam ipsi mente se contíneant, frustra et inútiliter

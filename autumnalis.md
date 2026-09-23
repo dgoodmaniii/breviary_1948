@@ -22056,3 +22056,108 @@ NOlíte putáre quóniam veni sólvere legem aut prophétas; non veni sólvere, 
 **Oratio**
 
 DEus, qui Ecclésiæ tuæ in exponéndis sacris Scriptúris beátum Hierónymum, Confessórem tuum, Doctórem máximum providére dignátus es : præsta, quǽsumus; ut, ejus suffragántibus méritis, quod ore simul et ópere dócuit, te adjuvánte, exercére valeámus. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** O Doctor óptime, \* Ecclésiæ sanctæ lumen, beáte Hierónyme, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+{RUBRIC: Et fit Commemoratio sequentis.}
+
+---
+
+## FESTA OCTOBRIS
+
+---
+
+## Die 1 Octobris — S. Remigii
+
+{RUBRIC: Ep. et Conf. [69] Simplex (m. t. v.)}
+
+**Ant.** Sacérdos et Póntifex, et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+*C 1*
+
+DA, quǽsumus, omnípotens Deus : ut beáti Remígii Confessóris tui atque Pontíficis veneránda solémnitas, et devotiónem nobis áugeat, et salútem. Per Dóminum.
+
+##### Lectio iii
+
+REmígius, epíscopus Rheménsis, flóruit Clodovéo rege Francórum; quem étiam baptizávit, et, primus ómnium, doctrína et miráculis Francos ad Christi Dómini fidem perdúxit. Ejus oratióne, mórtua puélla revíxit. Multos interpretátus est divínæ Scriptúræ libros. Amplius septuagínta annos summa cum laude Rheménsem ecclésiam administrávit. Cujus vitæ et mortis sanctitátem multa, quæ consecúta sunt, mirácula comprobárunt.
+
+**Te Deum laudámus.**
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Die 2 Octobris — Ss. Angelorum Custodum
+
+{RUBRIC: Duplex majus}
+
+#### IN I VESPERIS
+
+**Ant. 1** Angelis suis \* Deus mandávit de te, ut custódiant te in ómnibus viis tuis.
+
+{RUBRIC: Psalmi de Dominica 59, sed loco ultimi Ps. 116 Laudáte Dóminum, omnes gentes. 76, vel, si II Vésperæ non sint dicéndæ, Ps. 137, ut infra.}
+
+**Ant. 2** Laudémus Dóminum, \* quem laudant Angeli, quem Chérubim et Séraphim, sanctus, sanctus, sanctus proclámant.
+
+**Ant. 3** Angeli eórum \* semper vident fáciem Patris mei, qui est in cælis.
+
+**Ant. 4** Benedíctus Deus, \* qui misit Angelum suum, et éruit servos suos qui credidérunt in eum.
+
+**Ant. 5** Laudáte Deum, \* omnes Angeli ejus : laudáte eum, omnes Virtútes ejus.
+
+#### In II Vesperis
+
+**Psalmus 137**
+
+COnfitébor tibi, Dómine, in toto corde meo : * quóniam audísti verba oris mei.
+
+In conspéctu Angelórum psallam tibi : * adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+Super misericórdia tua, et veritáte tua : * quóniam magnificásti super omne, nomen sanctum tuum.
+
+In quacúmque die invocávero te, exáudi me : * multiplicábis in ánima mea virtútem.
+
+Confiteántur tibi, Dómine, omnes reges terræ : * quia audiérunt ómnia verba oris tui :
+
+Et cantent in viis Dómini : * quóniam magna est glória Dómini.
+
+Quóniam excélsus Dóminus, et humília réspicit : * et alta a longe cognóscit.
+
+Si ambulávero in médio tribulatiónis, vivificábis me : * et super iram inimicórum meórum extendísti manum tuam, et salvum me fecit déxtera tua.
+
+Dóminus retríbuet pro me : * Dómine, misericórdia tua in sǽculum : ópera mánuum tuárum ne despícias.
+
+**Ant.** Laudáte Deum, omnes Angeli ejus : laudáte eum, omnes Virtútes ejus.
+
+**Capit.**
+*Exodi 23, 20-21*
+
+ECce ego mittam Angelum meum, qui præcédat te et custódiat in via et introdúcat in locum quem parávi. Obsérva eum et audi vocem ejus.
+
+**Hymnus**
+
+CUstódes hóminum psállimus Angelos,
+Natúræ frágili quos Pater áddidit
+Cæléstis cómites, insidiántibus
+Ne succúmberet hóstibus.
+
+Nam, quod corrúerit próditor ángelus,
+Concéssis mérito pulsus honóribus,
+Ardens invídia péllere nítitur
+Quos cælo Deus ádvocat.
+
+Huc, custos, ígitur pérvigil ádvola,
+Avértens pátria de tibi crédita
+Tam morbos ánimi quam requiéscere
+Quidquid non sinit íncolas.

@@ -28645,4 +28645,16 @@ OMnípotens sempitérne Deus, qui dispositióne mirábili infírma mundi éligis
 
 ##### Lectio iv
 
-DIdacus, Hispánus, ex óppido sancti Nicolái de Portu diœcésis Hispalénsis, ab ineúnte ætáte, pii sub sacerdótis discíplina, sanctióris vitæ, solitária in ecclésia, tirocínium exércuit. Deínde, ut firmius Deo se conjúngeret, in convéntu de Arizzáta fratrum Minórum (quos Observántes vocant) sancti Francísci régulam in statu laicáli proféssus est.
+DIdacus, Hispánus, ex óppido sancti Nicolái de Portu diœcésis Hispalénsis, ab ineúnte ætáte, pii sub sacerdótis discíplina, sanctióris vitæ, solitária in ecclésia, tirocínium exércuit. Deínde, ut firmius Deo se conjúngeret, in convéntu de Arizzáta fratrum Minórum (quos Observántes vocant) sancti Francísci régulam in statu laicáli proféssus est. Magna ibi alacritáte húmilis obediéntiæ et reguláris observántiæ jugum súbiens, contemplatióni in primis déditus, mira Dei luce perfundebátur, ádeo ut de rebus cæléstibus, litterárum expers, mirándum in modum et plane divínitus loquerétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit.
+
+##### Lectio v
+
+CAnáriis in ínsulis, ubi frátribus sui órdinis præfuit, multa perpéssus, martýrii æstuans desidério, plures infidéles verbo et exémplo ad Christi fidem convértit. Romam véniens anno jubilæi, Nicoláo quinto Pontífice, ægrotórum curæ in convéntu Aræ cæli destinátus, eo caritátis afféctu munus hoc exércuit, ut, Urbe annónæ inópia laboránte, ægrótis tamen, quorum aliquándo úlcera étiam lambéndo abstergébat, nihil pénitus necessárii defécerit. Exímia quoque fides et grátia curatiónum in eo elúxit, cum lámpadis, quæ collucébat ante imáginem beatíssimæ Dei Genitrícis, quam summa devotióne colébat, óleo ægros inúngens, signo crucis imprésso, multórum morbos mirabíliter sanáverit.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+##### Lectio vi
+
+DEmum, Complúti finem sibi vitæ adésse intellígens, lácera et obsoléta indútus túnica, conjéctis in crucem óculis, singulári devotióne illis verbis ex sacro hymno pronuntiátis : Dulce lignum, dulces clavos, dúlcia ferens póndera, quæ fuísti digna portáre Regem cælórum et Dóminum, ánimam Deo réddidit prídie Idus Novémbris, anno Dómini supra millésimum quadringentésimo sexagésimo tértio. Ejus corpus, cum menses non paucos (ut pio confluéntium desidério fíeret satis) insepúltum mansísset, quasi jam incorruptiónem indúerit, odórem suavíssimum efflávit. Illum, multis et illústribus miráculis clarum, Xystus quintus Póntifex máximus Sanctórum número adscrípsit.

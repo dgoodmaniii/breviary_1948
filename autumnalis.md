@@ -32084,3 +32084,53 @@ IN univérsa namque Ecclésia, Tu es Christus Fílius Dei vivi, quotídie Petrus
 {RUBRIC: Pro Pontifice Doctore :}
 
 ℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et implévit. **Glória Patri.** Et implévit.
+
+{RUBRIC: Pro pluribus Pontif. Conf. :}
+
+℟. Vigiláte ergo, nescítis enim quando Dóminus véniat : \* Ne cum vénerit repénte, invéniat vos dormiéntes. ℣. Quod autem vobis dico, ómnibus dico : Vigiláte. — Ne. **Glória Patri.** Ne.
+
+#### Lectio ix
+
+CUM ergo cohortatiónes nostras áuribus vestræ sanctitátis adhibémus, ipsum vobis, cujus vice fúngimur, loqui crédite : quia et illíus vos afféctu monémus, et non áliud vobis, quam quod dócuit, prædicámus; obsecrántes, ut succíncti lumbos mentis vestræ, castam et sóbriam vitam in Dei timóre ducátis. Coróna mea, sicut Apóstolus ait, et gáudium vos estis, si fides vestra, quæ ab inítio Evangélii in univérso mundo prædicáta est, in dilectióne et sanctitáte permánserit. Nam licet omnem Ecclésiam, quæ in toto est orbe terrárum, cunctis opórteat floréré virtútibus; vos tamen præcípue inter céteros pópulos decet méritis pietátis excéllere, quos in ipsa apostólicæ petræ arce fundátos, et Dóminus noster Jesus Christus cum ómnibus redémit, et beátus Apóstolus Petrus præ ómnibus erudívit.
+
+**Te Deum laudámus.**
+
+---
+
+# Commune unius Martyris
+
+### In I Vesperis
+
+**Ant. 1** Qui me conféssus fúerit \* coram homínibus, confitébor et ego eum coram Patre meo.
+
+{RUBRIC: Psalmi ut in I Vésperis de Communi Apostolórum. [3]}
+
+**Ant. 2** Qui séquitur me, \* non ámbulat in ténebris, sed habébit lumen vitæ, dicit Dóminus.
+
+**Ant. 3** Qui mihi minístrat, \* me sequátur : et ubi ego sum, illic sit et miníster meus.
+
+**Ant. 4** Si quis mihi ministráverit, \* honorificábit eum Pater meus, qui est in cælis, dicit Dóminus.
+
+**Ant. 5** Volo, Pater, \* ut, ubi ego sum, illic sit et miníster meus.
+
+### In II Vesperis
+
+###### Psalmus 115
+
+CRédidi, propter quod locútus sum : \* ego autem humiliátus sum nimis.
+
+Ego dixi in excéssu meo : \* Omnis homo mendax.
+
+Quid retríbuam Dómino, \* pro ómnibus, quæ retríbuit mihi?
+
+Cálicem salutáris accípiam : \* et nomen Dómini invocábo.
+
+Vota mea Dómino reddam coram omni pópulo ejus : \* pretiósa in conspéctu Dómini mors sanctórum ejus :
+
+O Dómine, quia ego servus tuus : \* ego servus tuus, et fílius ancíllæ tuæ.
+
+Dirupísti víncula mea : \* tibi sacrificábo hóstiam laudis, et nomen Dómini invocábo.
+
+Vota mea Dómino reddam in conspéctu omnis pópuli ejus : \* in átriis domus Dómini, in médio tui, Jerúsalem.
+
+**Ant.** Volo, Pater, ut, ubi ego sum, illic sit et miníster meus.

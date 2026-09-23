@@ -21229,3 +21229,29 @@ DEus, qui per gloriosíssimam Fílii tui Matrem, ad liberándos Christi fidéles
 ℣. Dignáre me laudáre te.
 
 **Ad Magnif. Ant.** Beátam me dicent \* omnes generatiónes, quia ancíllam húmilem respéxit Deus.
+
+---
+
+## Die 26 Septembris — Ss. Cypriani et Justinæ
+
+{RUBRIC: Virginis, Martyrum [49] Simplex}
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio**
+
+BEatórum Mártyrum Cypriáni et Justínæ nos, Dómine, fóveant continuáta præsídia : quia non désinis propítius intuéri, quos tálibus auxíliis concésseris adjuvári. Per Dóminum.
+
+##### Lectio iii
+
+CYpriánus, primum magus, póstea Martyr, cum Justínam, christiánam Vírginem, quam júvenis quidam ardénter amábat, cantiónibus ac venefíciis ad ejus libídinis assénsum allícere conarétur, dæmonem consúluit quanam id re cónsequi posset. Cui dæmon respóndit nullam illi artem processúram advérsus eos qui vere Christum cólerent. Quo respónso commótus Cypriánus, vehementer dolére cœpit vitæ superióris institútum. Itaque, relíctis mágicis ártibus se totum ad Christi Dómini fidem convértit. Quam ob causam una cum Vírgine Justína comprehénsus est, et ambo cólaphis flagellísque cæsi sunt; mox in cárcerem conjécti, si forte senténtiam commutárent. Verum, inde póstea emíssi, cum in christiána religióne constantíssimi reperiréntur, in sartáginem plenam fervéntis pícis, ádipis et ceræ injécti sunt. Demum Nicomedíæ secúri feriúntur. Quorum projécta córpora cum sex dies inhumáta jacuíssent, noctu quidam nautæ clam ea in navem impósita Romam portavérunt. Ac primum in prǽdio Rufínæ nóbilis féminæ sepúlta sunt; póstea, tránslata in Urbem, in basílica Constantiniána cóndita sunt prope baptistérium.
+
+**Te Deum laudámus.**
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+{RUBRIC: Vésperæ de sequénti.}

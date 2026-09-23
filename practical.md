@@ -2042,6 +2042,74 @@ If the conclusion and verse proper to a commemorated Office are wanting, those o
 
 **A. Impeded Feast of Titular:**
 
-If the feast of the Titular or Dedication of one's own church is *accidentally* impeded, on that day one chanted Mass of the impeded feast (or its com-
+If the feast of the Titular or Dedication of one's own church is *accidentally* impeded, on that day one chanted Mass of the impeded feast (or its commemoration in the chanted Mass of the day) is allowed as a Solemn (= privileged) Votive Mass.— *New Missal-Rubrics*, tit. IV., n. 1.
+
+**11.** This one chanted Mass, however, is forbidden:
+
+(a) on all Sundays of the first class;
+(b) on all primary doubles of the first class celebrated in the Universal Church;
+(c) on privileged ferials;
+(d) on the privileged vigils of Christmas and Pentecost;
+(e) on All Souls' Day.
+
+**12.** When this Mass is thus forbidden, it is permitted to add its Oration, *sub unica conclusione*, to the Oration of the Mass of the day except:
+
+(a) on All Souls' Day;
+(b) on Christmas Day;
+(c) on the feast of the Epiphany;
+(d) on the three last days of Holy Week;
+(e) on Easter and Pentecost Sundays;
+(f) on Ascension Thursday;
+(g) on the feasts of the Blessed Trinity and Corpus Christi.
+
+**B. Transferred External Solemnity of Titular and Dedication:**
+
+**13.** Where the external solemnity of the feast of the Titular or Dedication is transferred to the next Sunday, the following rules hold good:
+
+(a) If the Sunday in question is a *minor* Sunday ("per annum") and no double of the first class occurs, then one chanted Mass and one low Mass of the transferred solemnity are permitted.
+
+(b) Should the Sunday in question happen to be a *major* Sunday or a double of the first class, Masses of the external solemnity are altogether prohibited, but the Oration of the impeded transferred solemnity is added, *sub una conclusione*, to the principal Oration, except on the following days:
+
+1st. Easter, Pentecost, and Trinity Sundays;
+2d. Christmas and the Epiphany (should they happen to fall on a Sunday).
+
+*New Missal-Rubrics*, tit. IV., n. 3.
+
+**C. Litany Days:**
+
+On all (= major and minor) Litany Days commemoration of the Rogations must be made in any chanted or low Mass which is not *de Rogationibus* or *de Requie* (Tit. I., n. 3); this is a noteworthy change, as up to the present commemoration of the Rogations was omitted on doubles of the first class occurring on Rogation Tuesday and Wednesday.
+
+N. B. Many other useful and important changes are omitted here for the sole reason that they have not a *direct* bearing on the matter at issue.
+
+A. M. D. G.
+
+---
+
+## INDEX
+
+*(Numbers refer to paragraphs.)*
+
+**ABSOLUTIONS:** 17; in Matins of three Lessons, 23.
+**All Souls' Day:** made equal to Dl. I cl., Append. 6, (a).
+**Antiphons:** 9; when same as first words of ps., 10; at the Little Hours, 39; "ad Laudes et per Horas," 58.
+**Amen:** when is it added to the "Pater," 7.
+**Aperi, Domine:** 12, D.
+**Athanasian Creed:** at Prime, 46.
+
+**BEATIFIED persons:** churches cannot be dedicated to, 73.
+**Beginning:** of an Hour, 7; of Lauds, 26, note.
+**Benedictions:** 17; on ferials, 24.
+**Birthday:** of a saint, 59, note.
+**Breviary:** when forgotten, Append. 5, (a).
+
+**CAPITULUM:** 12, note; "Deo gratias" after, 12, A.
+**Ceremonies:** when reciting the Office, 70.
+**Changes:** some recent, Append. 6 seqq.; in the New Missal, Append. 10 seqq.
+**Church:** consecrated, 73.
+**Commemoratio de Cruce:** 33.
+**Commemorations:** how made, 32; of occurring and concurring Offices, 100; illustration of, 101; rules of, 103 seqq.; in Vespers, 103, (c); of vigils, 104; another plan of, Append., 7; order of, Append., 8; of Litany Days, Append., 13, c.
+**Common Sundays:** 85.
+**Commune Sanctorum:** 5, (e).
+**Compline:** 72; on important feasts, 59.
 
 ---

@@ -39838,4 +39838,58 @@ Respéxit in oratiónem humílium : \* et non sprevit precem eórum.
 
 Scribántur hæc in generatióne áltera : \* et pópulus, qui creábitur, laudábit Dóminum :
 
-Quia prospéxit de excélso sancto suo : \* Dóminus
+Quia prospéxit de excélso sancto suo : \* Dóminus de cælo in terram aspéxit :
+
+Ut audíret gémitus compeditórum : \* ut sólveret fílios interemptórum :
+
+Ut annúntient in Sion nomen Dómini : \* et laudem ejus in Jerúsalem.
+
+In conveniéndo pópulos in unum, \* et reges ut sérviant Dómino.
+
+Respóndit ei in via virtútis suæ : \* Paucitátem diérum meórum núntia mihi.
+
+Ne révoces me in dimídio diérum meórum : \* in generatiónem et generatiónem anni tui.
+
+Inítio tu, Dómine, terram fundásti : \* et ópera mánuum tuárum sunt cæli.
+
+Ipsi períbunt, tu autem pérmanes : \* et omnes sicut vestiméntum veteráscent.
+
+Et sicut opertórium mutábis eos, et mutabúntur : \* tu autem idem ipse es, et anni tui non defícient.
+
+Fílii servórum tuórum habitábunt : \* et semen eórum in sǽculum dirigétur.
+
+Glória Patri.
+
+###### Psalmus 129
+
+DE profúndis clamávi ad te, Dómine : \* Dómine, exáudi vocem meam :
+
+Fiant aures tuæ inténdentes, \* in vocem deprecatiónis meæ.
+
+Si iniquitátes observáveris, Dómine : \* Dómine, quis sustinébit?
+
+Quia apud te propitiátio est : \* et propter legem tuam sustínui te, Dómine.
+
+Sustínuit ánima mea in verbo ejus : \* sperávit ánima mea in Dómino.
+
+A custódia matutína usque ad noctem : \* speret Israël in Dómino.
+
+Quia apud Dóminum misericórdia : \* et copiósa apud eum redémptio.
+
+Et ipse rédimet Israël, \* ex ómnibus iniquitátibus ejus.
+
+Glória Patri.
+
+###### Psalmus 142
+
+DOmine, exáudi oratiónem meam : áuribus pércipe obsecratiónem meam in veritáte tua : \* exáudi me in tua justítia.
+
+Et non intres in judícium cum servo tuo : \* quia non justificábitur in conspéctu tuo omnis vivens.
+
+Quia persecútus est inimícus ánimam meam : \* humiliávit in terra vitam meam.
+
+Collocávit me in obscúris sicut mórtuos sǽculi : \* et anxiátus est super me spíritus meus, in me turbátum est cor meum.
+
+Memor fui diérum antiquórum, meditátus sum in ómnibus opéribus tuis : \* in factis mánuum tuárum meditábar.
+
+Expándi manus meas ad te : \* ánima mea sicut terra sine aqua tibi.

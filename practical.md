@@ -1993,4 +1993,55 @@ The recitation of this penance is in no way connected with the obligation of rec
 
 **7.** The rules for commemorations on doubles of the first and second class are as follows:
 
+(a) *Doubles of the First Class:*
+
+- *Commemoratio præcedentis:* If it is: a Sunday; a privileged octave; a double of the first or second class; a ferial of Advent or Lent (whether only commemorated or not).
+- *Commemoratio occurrentis:* a) In Lauds and Vespers: Sunday; privileged octave; major ferial. b) In Lauds only: double (major or minor) and semi-double.[^136]
+- *Commemoratio sequentis:* Commemoration is made of every Office (even if only commemorated itself) except a day within a non-privileged octave and a simple.
+
+(b) *Doubles of the Second Class:*
+
+- *Commemoratio præcedentis:* Commemoration is made of every Office (even if only itself commemorated) except: a semi-double; a day within a non-privileged octave; a ferial (not, however, those of Advent or Lent, which are commemorated).
+- *Commemoratio occurrentis:* If it is: a double (major or minor); a semi-double; a day within a privileged octave; a major ferial; a common vigil; simple (in Lauds only).
+- *Commemoratio sequentis:* Same as given for doubles of the first class.
+
+[^136]: Doubles (major or minor) and semi-doubles are not even commemorated in Lauds on feasts of the Lord which are primary doubles of the first class in the whole Church. Cf. *New Rubrics*, tit. 7.
+
+In studying the rules just given, the following Rubric, found in the *Notanda in præc. tabellis* (n. 15), should be borne in mind:
+
+Impeded ferials of Advent and Lent are commemorated in Lauds and Vespers. Ember-days and Rogation Monday are only commemorated at Lauds. Common vigils, too, are commemorated at Lauds only. These common ferials and vigils, however, must be commemorated at Matins by means of the ninth Lesson (provided their gospel be not the same as that of the occurring Office), except they be ferials of Advent (excluding ember-days, which have their own gospel).
+
+### Order of Commemorations
+
+**8.** The order to be observed when several commemorations are to be made is as follows:
+
+Sunday;
+day within a privileged octave of the second order;
+double major octave-day;
+double major;
+double minor;
+semi-double;
+day within privileged octave of the third order;
+day within a common octave;
+major ferial;
+common vigil;
+octave day of simple rite;
+simple.
+
+It must be remembered that, in Vespers, the *concurring* Office always comes first (if it is to be commemorated).
+
+### Conclusion of Hymns
+
+**9.** The conclusion of hymns, and the variable verse in the *Responsorium breve* of Prime, must be those of the Office recited. Should that Office have none proper, the conclusion and verse used must be those proper to the Office first commemorated having them. If such feast or simple octave-day or Office of *S. Maria in Sabbato* is not even commemorated in Vespers, its proper conclusions are omitted.
+
+If the conclusion and verse proper to a commemorated Office are wanting, those of the occurring common octave are used, otherwise those that are *de tempore* must be taken.
+
+### New Missal-Rubrics
+
+**10.** The following information is taken from the "*Additiones et Variationes*" in the new typical edition of the Roman Missal approved by a decree of the S. C. R. dated April 25, 1920.
+
+**A. Impeded Feast of Titular:**
+
+If the feast of the Titular or Dedication of one's own church is *accidentally* impeded, on that day one chanted Mass of the impeded feast (or its com-
+
 ---

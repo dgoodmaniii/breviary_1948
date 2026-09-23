@@ -22643,3 +22643,61 @@ DEus, qui ineffábili providéntia sanctos Angelos tuos ad nostram custódiam m�
 #### AD PRIMAM
 
 **Ant.** Angelis suis \* Deus mandávit de te, ut custódiant te in ómnibus viis tuis.
+
+#### AD TERTIAM
+
+**Ant.** Laudémus, ut supra. 606
+
+**Capit.** Ecce ego, ut ad Laudes.
+
+℟. br. Stetit Angelus \* Juxta aram templi. Stetit. ℣. Habens thuríbulum áureum in manu sua. Juxta. Glória Patri. Stetit.
+
+℣. Ascéndit fumus arómatum in conspéctu Dómini. ℟. De manu Angeli.
+
+#### AD SEXTAM
+
+**Ant.** Angeli eórum, ut supra. 606
+
+**Capitulum**
+*Exodi 23, 21*
+
+NEC contemnéndum putes, quia non dimíttet cum peccáveris, et est nomen meum in illo.
+
+℟. br. Ascéndit fumus arómatum \* In conspéctu Dómini. Ascéndit. ℣. De manu Angeli. In. Glória Patri. Ascéndit.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+#### AD NONAM
+
+**Ant.** Laudáte Deum, ut supra. 606
+
+**Capit.**
+*Exodi 23, 22-23*
+
+QUod, si audíeris vocem ejus et féceris ómnia quæ loquor, inimícus ero inimícis tuis et affligam affligéntes te. Prædecétque te Angelus meus.
+
+℟. br. In conspéctu géntium \* Psallam tibi, Deus meus. In. ℣. Adorábo ad templum sanctum tuum, et confitébor nómini tuo. Psallam. Glória Patri. In.
+
+℣. Adoráte Deum. ℟. Omnes Angeli ejus.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vésperis 593, sed loco últimi Psalmi dícitur Ps. 137 Confitébor, ut ibídem pro II Vésperis notátur.}
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+**Ad Magnif. Ant.** Sancti Angeli, \* custódes nostri, defféndite nos in prǽlio, ut non pereámus in treméndo judício.
+
+{RUBRIC: Et fit Commem. sequentis.}
+
+{RUBRIC: Completorium de Dominica.}
+
+---
+
+## Die 3 Octobris — S. Teresiæ a Jesu Infante
+
+{RUBRIC: Virg. [111] Duplex}
+
+**Ant.** Veni, Sponsa Christi : áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.

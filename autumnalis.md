@@ -23723,3 +23723,101 @@ JOánnes Leonárdi, non longe a Lucénsi urbe ortus, a prima ætáte grave quidd
 **Oratio**
 
 DEus, qui beátum Joánnem Confessórem tuum ad fidem in géntibus propagándam mirabíliter excitáre dignátus es, ac per eum in erudiéndis fidélibus novam in Ecclésia tua famíliam congregásti : da nobis fámulis tuis; ita ejus institútis profícere, ut prǽmia consequámur ætérna. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Ss. Martyrum :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+**Oratio**
+
+DEus, qui hodiérna die beátum Dionýsium, Mártyrem tuum atque Pontíficem, virtúte constántiæ in passióne roborásti, quique illi, ad prædicándum Géntibus glóriam tuam, Rústicum et Eleuthérium sociáre dignátus es : tríbue nobis, quǽsumus; eórum imitatióne, pro amóre tuo próspera mundi despícere, et nulla ejus advérsa formidáre. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ant.** Hic vir, despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+**Oratio** Deus, qui beátum, ut supra. 640
+
+{RUBRIC: Et fit Commemoratio sequéntis.}
+
+---
+
+## Die 10 Octobris — S. Francisci Borgiae
+
+{RUBRIC: Confessoris [94] Semiduplex (m. t. v.)}
+
+**Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+
+DOmine Jesu Christe, veræ humilitátis et exémplar et prǽmium : quǽsumus; ut, sicut beátum Francíscum in terréni honóris contémptu imitatórem tui gloriósum effecísti, ita nos ejúsdem imitatiónis et glóriæ tríbuas esse consórtes : Qui vivis et regnas.
+
+### In II Nocturno
+
+##### Lectio iv
+
+FRancíscus, Gándiæ dux quartus, Joánne Bórgia et Joánna Aragónia Ferdinándi Cathólici nepte génitus, post puerílem ætátem inter domésticos mira innocéntia et pietáte transáctam, in aula primum Cároli quinti cǽsaris, mox in Cataláuniæ administratióne, admirábilior fuit christiánæ virtútis et vitæ austerióris exémplis. Ad Granaténse sepúlcrum Isabéllam imperatrícem cum detulísset, in ejus vultu, fœde commutáto, mortálium ómnium caducitátem rélegens, voto se adstrínxit, rebus ómnibus, cum primum licéret, abjéctis, regum Regi únice servíéndi. Inde tantum virtútis increméntum fecit, ut, inter negotiórum turbas, religiósæ perfectiónis simíllimam imáginem réferens, miráculum príncipum appellarétur.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit.
+
+##### Lectio v
+
+MOrtua Eleonóra de Castro cónjuge, ingréssus est Societátem Jesu, ut in ea latéret secúrius et præclúderet dignitátibus áditum, interpósita voti religióne; dignus, quem et viri príncipes complúres in amplecténdo severióri institúto fúerint secúti, et Cárolus quintus ipse in abdicándo império hortatórem sibi aut ducem exstitísse non diffiterétur. In eo arctióris vitæ stúdio Francíscus jejúniis, caténis férreis, aspérrimo cilício, cruéntis longísque verberatiónibus, somno brevíssimo, corpus ad extrémam usque máciem redégit, nullis prætérea parcens labóribus ad sui victóriam et ad salútem animárum. Tot ítaque instrúctus virtútibus, a sancto Ignátio primum generális commissárius in Hispániis, nec multo post præpósitus generális tértius a Societáte univérsa, licet invítus, elígitur. Quo in múnere princípibus ac summis Pontifícibus prudéntia ac morum sanctitáte appríme carus, præter complúra vel cóndita vel aucta ubíque domicília, sócios in regnum Polóniæ, in ínsulas Océani, in Mexicánam et Peruánam províncias invéxit; missis quoque in álias regiónes apostólicis viris, qui prædicatióne, sudóribus, sánguine fidem cathólicam Románam propagárunt.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+DE se ita demísse sentiébat, ut peccatóris nomen sibi próprium fáceret. Románam púrpuram, a summis Pontifícibus sǽpius oblátam, invícta humilitátis constántia recusávit. Vérrere sordes, emendicáre víctum ostiátim, ægris ministráre in nosocomíis, mundi ac sui contémptor, in delíciis hábuit. Síngulis diébus multas continénter horas, frequénter octo, quandóque decem, dabat cæléstium contemplatióni. Cénties quotídie de genu Deum adorábat. Numquam a sacrificándo abstínuit, probabátque sese divínus quo æstuábat ardor, ejus vultu, sacram Hóstiam offeréntis aut concionántis, intérdum radiánte. Sanctíssimum Christi corpus in Eucharístia latens ubi asservarétur, instínctu cæléstí sentiébat. Cardináli Alexandríno, ad conjungéndos contra Turcas christiános príncipes, legáto comes áddítus a beáto Pio quinto, árduum iter, fractis jam pene víribus, suscépit ex obediéntia; in qua et vitæ cursum Romæ, ut optárat, felíciter consummávit, anno ætátis suæ sexagésimo secúndo, salútis vero millésimo quingentésimo septuagésimo secúndo. A sancta Terésia, quæ ejus utebátur consíliis, vir sanctus, a Gregório décimo tértio fidélis adminíster appellátus; demum a Cleménte décimo, plúribus magnísque clarus miráculis, in Sanctórum númerum est adscríptus.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+FRancíscus, Gándiæ dux quartus, in aula Cároli quinti cǽsaris, vitæ integritáte primum cláruit. Ad Granaténse vero sepúlcrum Isabéllam imperatrícem cum detulísset, in ejus vultu, fœde commutáto, mortálium ómnium caducitátem rélegens, voto se adstrínxit, rebus ómnibus abjéctis, regum Regi únice servíéndi. Mórtua ígitur Eleonóra de Castro cónjuge, Societáti Jesu nomen dedit. A sancto Ignátio generális commissárius in Hispániis factus, paulo post præpósitus generális tértius a Societáte univérsa, licet invítus, elígitur. Cardináli Alexandríno, ad conjungéndos contra Turcas christiános príncipes, legáto comes ádditus a beáto Pio Papa quinto, cum árduum iter suscepísset ex obediéntia, vitæ tamen cursum Romæ, ut optárat, felíciter consummávit, anno salútis millésimo quingentésimo septuagésimo secúndo. A Cleménte décimo in Sanctórum númerum est adscríptus.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Ecce nos relíquimus, de Communi Abbátum 1 loco. [107]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DOmine Jesu Christe, veræ humilitátis et exémplar et prǽmium : quǽsumus; ut, sicut beátum Francíscum in terréni honóris contémptu imitatórem tui gloriósum effecísti, ita nos ejúsdem imitatiónis et glóriæ tríbuas esse consórtes : Qui vivis.
+
+{RUBRIC: Vésperæ de sequénti sine Commemoratióne præcedéntis.}
+
+---
+
+## DIE 11 OCTOBRIS
+
+## Maternitatis B. M. V.
+
+{RUBRIC: DUPLEX II CLASSIS}
+
+{RUBRIC: Omnia de Communi Festorum B. Mariæ Virginis [174] præter ea quæ hic habéntur própria.}
+
+#### IN I VESPERIS
+
+**Ant. 1** Beáta es, \* Virgo María, quæ ómnium portásti Creatórem.
+
+**Ant. 2** Genuísti \* qui te fecit, et in ætérnum pérmanes Virgo.
+
+**Ant. 3** Cum essem párvula, \* plácui Altíssimo et de meis viscéribus génui Deum et hóminem.
+
+**Ant. 4** Benedícta fília \* tu a Dómino, quia per te fructum vitæ communicávimus.
+
+**Ant. 5** Vidérunt eam \* fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam.

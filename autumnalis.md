@@ -27679,3 +27679,78 @@ SExto gradu est cordis mundítia de bona consciéntia bonórum óperum, valens a
 CUM jam dícitur : Quis nos separábit a caritáte Christi? Tribulátio, an angústia, an persecútio, an fames, an núditas, an perículum, an gládius? Septem sunt ergo, quæ perfíciunt; nam octáva claríficat, et quod perféctum est, demónstrat, ut per hos gradus perficiántur et céteri, tamquam a cápite rursum exórdiens. Vidétur ergo mihi étiam septifórmis operátio Spíritus Sancti, de qua Isaías lóquitur, his grádibus sententiísque congrúere. Sed ínterest órdinis; nam ibi enumerátio ab excellentióribus cœpit, hic vero ab inferióribus. Ibi namque íncipit a sapiéntia Dei, et désinit ad timórem Dei; sed inítium sapiéntiæ timor Dómini est.
 
 **Te Deum laudámus.**
+
+---
+
+# Die 6 Novembris
+
+## De VI die infra Octavam Omnium Sanctorum
+
+{RUBRIC: Semiduplex 724}
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Bernárdi Abbátis (Sermo 2 de Festo Omn. Ss.)}
+
+##### Lectio iv
+
+QUia Sanctórum ómnium festívam hódie, dilectíssimi, omníque digníssimam devotióne memóriam celebrámus; óperæ prétium puto, de commúni eórum felicitáte, in qua beáta jam réquie perfruúntur, et futúra quam præstolántur consummatióne, adjuvánte Spíritu Sancto, sermónem fácere caritáti vestræ. Fidélis quippe sermo et omni acceptióne dignus, ut, quos solémni veneratióne proséquimur, étiam símili conversatióne sequámur; quos beatíssimos prædicámus, ad eórum beatitúdinem tota aviditáte currámus; quorum delectámur præcóniis, sublevémur eórum patrocíniis.
+
+℟. Abstérget Deus omnem lácrimam ab óculis Sanctórum : et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor, \* Quóniam prióra transiérunt. ℣. Non esúrient, neque sítient ámplius, neque cadet super illos sol, neque ullus æstus. — Quóniam.
+
+##### Lectio v
+
+{RUBRIC: Sermo 5 de eódem Festo, circa médium}
+
+AD quid ergo Sanctis laus nostra? ad quid glorificátio nostra? ad quid nostra hæc ipsa solémnitas? Quo eis terrénos honóres, quos, juxta verácem Fílii promissiónem, honoríficat Pater cæléstis? quo eis præcónia nostra? Pleni sunt. Prorsus ita est, dilectíssimi : bonórum nostrórum Sancti non egent, nec quidquam eis nostra devotióne præstátur. Plane, quod eórum memóriam venerámur, nostra ínterest, non ipsórum. Vultis scire quantum ínterest nostra? Ego in me, fáteor, ex hac recordatióne séntio desidérium véhemens inflammári, et desidérium tríplex.
+
+℟. Pretiósa in conspéctu Dómini \* Mors Sanctórum ejus. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors.
+
+##### Lectio vi
+
+VUlgo dícitur : Quod non videt óculus, cor non dolet. Óculus meus, memória mea; et cogitáre de Sanctis, quodámmodo eos vidére est. Sic nempe pórtio nostra in terra vivéntium; nec módica sane pórtio, si tamen, ut decet, memóriam afféctio comitétur. Sic, ínquam, conversátio nostra in cælis est; verúmtamen non sic nostra, sicut illórum. Ipsórum enim substántia ibi est, nostra autem desidéria; ipsi per præséntiam, nos per memóriam ibi sumus.
+
+℟. Stola jucunditátis índuit eos Dóminus : \* Et corónam pulchritúdinis pósuit super cápita eórum. ℣. Cibávit illos Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illos. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 5, 1-12*
+
+IN illo témpore : Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi (Liber 1 de Sermóne Dómini in monte, cap. 4)}
+
+QUaprópter, si gradátim tamquam ascendéntes numerémus, primus ibi est timor Dei, secúnda pietas, tértia sciéntia, quarta fortitúdo, quintum consílium, sextus intelléctus, séptima sapiéntia. Timor Dei cóngruit humílibus; de quibus hic dícitur : Beáti páuperes spíritu; quóniam ipsórum est regnum cælórum; id est, non infláti, non supérbi, de quibus Apóstolus dicit : Noli altum sápere, sed time; id est, noli extólli. Pietas cóngruit mítibus; qui enim pie quærit, honórat sanctam Scriptúram, et non reprehéndit quod nondum intélligit, et proptérea non resístit; quod est mitem esse. Unde hic dícitur : Beáti mites; quóniam ipsi hereditáte possidébunt terram.
+
+℟. Amávit eos Dóminus, et ornávit eos : stolam glóriæ índuit eos, \* Et ad portas paradísi coronávit eos. ℣. Induit eos Dóminus lorícam fídei, et ornávit eos. — Et.
+
+##### Lectio viii
+
+SCiéntia cóngruit lugéntibus, qui jam cognovérunt in Scriptúris, quibus malis vincti teneántur, quæ tamquam bona et utília ignorántes appetiérunt; de quibus hic dícitur : Beáti qui lugent nunc. Fortitúdo cóngruit esuriéntibus et sitiéntibus; labórant enim desiderántes gáudium de veris bonis, et amórem a terrénis et corporálibus avértere cupiéntes; de quibus hic dícitur : Beáti qui esúriunt et sítiunt justítiam. Consílium cóngruit misericórdibus; hoc enim unum remédium est de tantis malis evadéndi, ut dimittámus, sicut nobis dimítti vólumus, et adjuvémus, in quo póssumus, álios, sicut et nos, in quo non póssumus, cúpimus adjuvári; de quibus hic dícitur : Beáti misericórdes; quóniam ipsórum miserébitur Deus.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti sunt. Glória Patri. Isti sunt.
+
+##### Lectio ix
+
+INtelléctus cóngruit mundis corde, tamquam purgáto óculo, quo cerni possit quod corpóreus óculus non vidit, nec auris audívit, nec in cor hóminis ascéndit; de quibus hic dícitur : Beáti mundo corde; quóniam ipsi Deum vidébunt. Sapiéntia cóngruit pacíficis, in quibus jam ordináta sunt ómnia, nullúsque motus advérsus ratiónem rebéllis est, sed cuncta obtémperant spirítui hóminis, cum et ipse obtémperet Deo; de quibus hic dícitur : Beáti pacífici. Unum autem præmium, quod est regnum cælórum, pro his grádibus várie nominátum est.
+
+**Te Deum laudámus.**
+
+---
+
+# Die 7 Novembris
+
+## De VII die infra Octavam Omnium Sanctorum
+
+{RUBRIC: Semiduplex 724}
+
+### In II Nocturno
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi (Sermo de Martýribus, quod aut imitándi sunt, aut non laudándi)}
+
+##### Lectio iv
+
+QUI Sanctórum mérita religiósa caritáte mirátur, quique justórum glórias frequénti laude collóquitur, eórum mores sanctos atque justítiam imitétur; quóniam, quem deléctat Sancti alicújus méritum, delectáre debet par circa cultum Dei obséquium. Quare aut imitári debet, si laudat; aut laudáre non debet, si imitári detréctat : ut, qui álium laudat, laudábilem se reddat; et, qui Sanctórum mérita admirátur, mirábilis ipse vitæ sanctitáte reddátur. Nam, si proptérea justos fidelésque dilígimus, quod in ipsis justítiam fidémque suspícimus, póssumus nos quoque esse quod sunt, si faciámus ipsi quod fáciunt.

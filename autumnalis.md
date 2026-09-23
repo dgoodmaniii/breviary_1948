@@ -27206,3 +27206,161 @@ Réquiem ætérnam.
 ℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
 
 ℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+**Oratio**
+
+FIdélium, Deus, ómnium cónditor et redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum : ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur : Qui vivis et regnas. ℟. Amen.
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Et ita absolvítur Tértia, neque áliud adjúngitur.}
+
+#### AD SEXTAM
+
+{RUBRIC: Dictis secréto Pater noster et Ave María, absolúte incípitur a Psalmis sequéntibus :}
+
+**Psalmus 69**
+
+DEus, in adjutórium meum inténde : \* Dómine, ad adjuvándum me festína.
+
+Confundántur et revereántur, \* qui quærunt ánimam meam.
+
+Avertántur retrórsum, et erubéscant, \* qui volunt mihi mala.
+
+Avertántur statim erubescéntes, \* qui dicunt mihi : Euge, euge.
+
+Exsúltent et læténtur in te omnes qui quærunt te, \* et dicant semper : Magnificétur Dóminus : qui díligunt salutáre tuum.
+
+Ego vero egénus, et pauper sum : \* Deus, ádjuva me.
+
+Adjútor meus, et liberátor meus es tu : \* Dómine, ne moréris.
+
+Réquiem ætérnam.
+
+**Psalmus 84**
+
+BEnedixísti, Dómine, terram tuam : \* avertísti captivitátem Jacob.
+
+Remisísti iniquitátem plebis tuæ : \* operuísti ómnia peccáta eórum.
+
+Mitigásti omnem iram tuam : \* avertísti ab ira indignatiónis tuæ.
+
+Convérte nos, Deus, salutáris noster : \* et avérte iram tuam a nobis.
+
+Numquid in ætérnum irascéris nobis? \* aut exténdes iram tuam a generatióne in generatiónem?
+
+Deus, tu convérsus vivificábis nos : \* et plebs tua lætábitur in te.
+
+Osténde nobis, Dómine, misericórdiam tuam : \* et salutáre tuum da nobis.
+
+Audiam quid loquátur in me Dóminus Deus : \* quóniam loquétur pacem in plebem suam.
+
+Et super sanctos suos : \* et in eos, qui convertúntur ad cor.
+
+Verúmtamen prope timéntes eum salutáre ipsíus : \* ut inhábitet glória in terra nostra.
+
+Misericórdia, et véritas obviavérunt sibi : \* justítia et pax osculátæ sunt.
+
+Véritas de terra orta est : \* et justítia de cælo prospéxit.
+
+Etenim Dóminus dabit benignitátem : \* et terra nostra dabit fructum suum.
+
+Justítia ante eum ambulábit : \* et ponet in via gressus suos.
+
+Réquiem ætérnam.
+
+**Psalmus 85**
+
+INclína, Dómine, aurem tuam, et exáudi me : \* quóniam inops, et pauper sum ego.
+
+Custódi ánimam meam, quóniam sanctus sum : \* salvum fac servum tuum, Deus meus, sperántem in te.
+
+Miserére mei, Dómine, quóniam ad te clamávi tota die : \* lætífica ánimam servi tui, quóniam ad te, Dómine, ánimam meam levávi.
+
+Quóniam tu, Dómine, suávis, et mitis : \* et multæ misericórdiæ ómnibus invocántibus te.
+
+Auribus pércipe, Dómine, oratiónem meam : \* et inténde voci deprecatiónis meæ.
+
+In die tribulatiónis meæ clamávi ad te : \* quia exaudísti me.
+
+Non est símilis tui in diis, Dómine : \* et non est secúndum ópera tua.
+
+Omnes gentes quascúmque fecísti, vénient, et adorábunt coram te, Dómine : \* et glorificábunt nomen tuum.
+
+Quóniam magnus es tu, et fáciens mirabília : \* tu es Deus solus.
+
+Deduc me, Dómine, in via tua, et ingrédiar in veritáte tua : \* lætétur cor meum ut tímeat nomen tuum.
+
+Confitébor tibi, Dómine, Deus meus, in toto corde meo, \* et glorificábo nomen tuum in ætérnum :
+
+Quia misericórdia tua magna est super me : \* et eruísti ánimam meam ex inférno inferióri.
+
+Deus, iníqui insurrexérunt super me, et synagóga poténtium quæsiérunt ánimam meam : \* et non proposuérunt te in conspéctu suo.
+
+Et tu, Dómine, Deus miserátor et miséricors, \* pátiens, et multæ misericórdiæ, et verax,
+
+Réspice in me, et miserére mei, \* da impérium tuum púero tuo : et salvum fac fílium ancíllæ tuæ.
+
+Fac mecum signum in bonum, ut vídeant qui odérunt me, et confundántur : \* quóniam tu, Dómine, adjuvísti me, et consolátus es me.
+
+Réquiem ætérnam.
+
+{RUBRIC: Explétis Psalmis, dícitur flexis génibus :}
+
+{RUBRIC: Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimas eórum.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Orémus.**
+**Oratio**
+
+FIdélium, Deus, ómnium cónditor et redémptor, animábus famulórum famularúmque tuárum remissiónem cunctórum tríbue peccatórum : ut indulgéntiam, quam semper optavérunt, piis supplicatiónibus consequántur : Qui vivis et regnas. ℟. Amen.
+
+℣. Réquiem ætérnam dona eis, Dómine. ℟. Et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+{RUBRIC: Et ita absolvítur Sexta, neque áliud adjúngitur.}
+
+#### AD NONAM
+
+{RUBRIC: Dictis secréto Pater noster et Ave María, absolúte incípitur a Psalmis sequéntibus :}
+
+**Psalmus 101, i**
+
+DOmine, exáudi oratiónem meam : \* et clamor meus ad te véniat.
+
+Non avértas fáciem tuam a me : \* in quacúmque die tríbulor, inclína ad me aurem tuam.
+
+In quacúmque die invocávero te, \* velóciter exáudi me.
+
+Quia defecérunt sicut fumus dies mei : \* et ossa mea sicut crémium aruérunt.
+
+Percússus sum ut fœnum, et áruit cor meum : \* quia oblítus sum comédere panem meum.
+
+A voce gémitus mei \* adhǽsit os meum carni meæ.
+
+Símilis factus sum pellicáno solitúdinis : \* factus sum sicut nyctícorax in domicílio.
+
+Vigilávi, \* et factus sum sicut passer solitárius in tecto.
+
+Tota die exprobrábant mihi inimíci mei : \* et qui laudábant me, advérsum me jurábant.
+
+Quia cínerem tamquam panem manducábam, \* et potum meum cum fletu miscébam.
+
+A fácie iræ et indignatiónis tuæ : \* quia élevans allisísti me.
+
+Dies mei sicut umbra declinavérunt : \* et ego sicut fœnum árui.
+
+Tu autem, Dómine, in ætérnum pérmanes : \* et memoriále tuum in generatiónem et generatiónem.
+
+Réquiem ætérnam.

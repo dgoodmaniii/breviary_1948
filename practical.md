@@ -744,4 +744,57 @@ In the Office (as well as at Mass) the *long conclusions* are always used, excep
 [^42]: Cf. *Rub. Generales*, tit. XXX, n. 4.
 [^43]: This applies also to the Orations of the Mass.
 
+### Commemorations
+
+**32.** Commemorations are made (in Lauds and Vespers only) of certain occurring feasts or ferials, the Offices of which cannot be recited for particular reasons stated in the Rubrics.
+
+*Three* parts are taken from the Office commemorated, by means of which parts the commemoration is made. These parts are represented by the mnemonic *AVO*, the explanation of which is as follows:
+
+(a) *A* means *Antiphon*, and refers to the antiphon that would have been said at the *Benedictus* (in Lauds — or the *Magnificat* in Vespers) of the Office commemorated were that Office said entire. This antiphon is *always* said in full (not merely "announced") when made use of in a commemoration, but if the Office to which it belongs were recited as a complete independent Office, then it may or may not be said entire — hence the asterisk (\*) dividing it into two parts — according to the same rules that have already been given (n. 9) for psalm antiphons.
+
+(b) *V* stands for *Versicle and Response*.[^44] Again, if the Office now commemorated were said as a complete independent Hour in itself, then the *V* in question would precede the *A* just referred to, whereas now (in a commemoration) it comes after that same *A*.
+
+(c) *O* means the *Oration* proper to the Office commemorated. This Oration is always preceded
+
+[^44]: In the Lauds or Vespers (as the case may be) of the Office to be commemorated.
+
+by *Oremus*, even though it be the third or fourth Prayer said (Rub. generales, tit. XXX, nn. 3 and 5).
+
+For *each* commemoration, parts corresponding to *AVO* are taken. Only the *first* and *last* Orations have conclusions, always long. Thus, if, say in today's Office, there are two commemorations, one of St. X., and another of St. Y., the order will be as follows:
+
+*Dominus vobiscum: Et cum spiritu tuo.*
+
+(1) Today's Office. — *Oremus.* Oration with long conclusion.
+
+(2) Office of St. X. —
+&nbsp;&nbsp;&nbsp;&nbsp;A: Antiphon at *Benedictus*, always said entire.
+&nbsp;&nbsp;&nbsp;&nbsp;V: Versicle and Response.
+&nbsp;&nbsp;&nbsp;&nbsp;O: Oration with "*Oremus*," but without conclusion.
+
+(3) Office of St. Y. —
+&nbsp;&nbsp;&nbsp;&nbsp;A: Ant. ad *Bened.*, always said entire.
+&nbsp;&nbsp;&nbsp;&nbsp;V: Versicle and Response.[^45]
+&nbsp;&nbsp;&nbsp;&nbsp;O: Oration with "*Oremus*," and long conclusion.
+
+*Dominus vobiscum: Et cum spiritu tuo.*
+
+**33.** The *Suffragium* (*de omnibus Sanctis*) is that invariable commemoration,[^46] found in the Ordinarium for Lauds and Vespers, at which Hours alone
+
+[^45]: It may happen that the versicle or antiphon of a commemoration is the same as an antiphon or versicle already said; in this case they must be changed according to given rules.
+[^46]: With parts corresponding to AVO.
+
+it is said. It is recited as a commemoration on semi-doubles and in Offices of lower rite, but not during octaves, or when commemoration of a simplified double (n. 4, note) has been just made. During Easter Time, this *Suffragium* is replaced by the *Commemoratio de Cruce*, as found in the Ordinarium.
+
+As may be noticed, the *Suffragium* corresponds to the "*Orationes communes*" used at Mass.
+
+### The Final Antiphon to the Blessed Virgin
+
+**34.** This antiphon is put between the two prayers: *Dominus det nobis*, etc., and *Divinum auxilium*, etc. It is said (as found at the end of the Ordinarium) after the "ordinary ending" of Lauds and Compline only — in the private recitation of the Office.
+
+Should any Little Hour or Hours be recited immediately after Lauds, the antiphon to the Blessed Virgin is said, not after Lauds, but at the end of the Hour or Hours so added. If the whole Office (i. e., from Matins to Compline inclusive) were said at the one time, the antiphon to the Blessed Virgin would be said *once*, at the end of Compline. The antiphon varies according to the season of the year, and its Oration always takes the short conclusion (cf. n. 31).
+
+### Lauds of the First and Second Schemes
+
+**35.** In looking through the *Psalter*, the student may have noticed the expressions: *Ad Laudes I.*
+
 ---

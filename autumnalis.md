@@ -31986,3 +31986,56 @@ DOminus et Salvátor noster, fratres caríssimi, aliquándo nos sermónibus, ali
 {RUBRIC: Pro Conf. non Pontifice}
 
 ℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine querélæ, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+ECce enim, binos ad prædicándum discípulos Dóminus mittit : quátenus hoc nobis tácitus ínnuat, quia qui caritátem erga álterum non habet, prædicatiónis offícium suscípere nullátenus débet. Bene autem dícitur, quia misit eos ante fáciem suam in omnem civitátem et locum, quo erat ipse ventúrus. Prædicatóres enim suos Dóminus séquitur : quia prædicátio prǽvenit, et tunc ad mentis nostræ habitáculum Dóminus venit, quando verba exhortatiónis præcúrrunt : atque per hoc véritas in mente suscípitur.
+
+{RUBRIC: Pro Evangelistis}
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam : \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna : operáti sunt justítiam. — Quorum. **Glória Patri.** Quorum.
+
+{RUBRIC: Pro Confessore Pontifice et non Pontifice}
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. **Glória Patri.** Et.
+
+{RUBRIC: Pro Doctore}
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. **Glória Patri.** Et.
+
+#### Lectio ix
+
+HInc namque eísdem prædicatóribus Isaías dicit : Paráte viam Dómini, rectas fácite sémitas Dei nostri. Hinc fíliis Psalmísta ait : Iter fácite ei, qui ascéndit super occásum. Super occásum namque Dóminus ascéndit : quia unde in passióne occúbuit, inde majórem suam glóriam resurgéndo manifestávit. Super occásum vidélicet ascéndit; quia mortem quam pértulit, resurgéndo calcávit. Ei ergo qui ascéndit super occásum, iter fácimus, cum nos ejus glóriam vestris méntibus prædicámus, ut eas et ipse post véniens, per amóris sui præséntiam illústret.
+
+**Te Deum laudámus.**
+
+---
+
+# Commune unius aut plurium Summorum Pontificum
+
+{RUBRIC: Omnia de Communi unius aut plurimórum Mártyrum vel Confessóris Pontíficis, juxta qualitátem festi, præter sequéntia :}
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum N. (Mártyrem tuum atque) Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Pro plúribus Sum. Pontif. :}
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátos N. et N. (Mártyres tuos átque) Summos Pontífices, perpétua protectióne custódi; quos totíus Ecclésiæ præstitísti esse pastóres. Per Dóminum.
+
+{RUBRIC: Si vero agénda sit commemorátio altérius Summi Pontíficis, dícitur sequens}
+
+**Oratio**
+
+DEus, qui Ecclésiam tuam in apostólicæ petræ soliditáte fundátam, ab infernárum éruis terróre portárum : præsta, quæsumus, ut intercedénte beáto N. (Mártyre tuo atque) Summo Pontífice, in tua veritáte persístens, contínua securitáte muniátur. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 16, 13-19*
+
+IN illo témpore : Venit Jesus in partes Cæsaréæ Philíppi, et interrogábat discípulos suos, dicens :

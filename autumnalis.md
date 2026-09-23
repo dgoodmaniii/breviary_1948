@@ -22701,3 +22701,44 @@ QUod, si audíeris vocem ejus et féceris ómnia quæ loquor, inimícus ero inim
 **Ant.** Veni, Sponsa Christi : áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
 
 ℣. Spécie tua et.
+
+**Oratio**
+
+DOmine, qui dixísti : Nisi efficiámini sicut párvuli, non intrábitis in regnum cælórum : da nobis, quǽsumus; ita sanctæ Terésiæ Vírginis in humilitáte et simplicitáte cordis vestígia sectári, ut prǽmia consequámur ætérna : Qui vivis.
+
+### In II Nocturno
+
+##### Lectio iv
+
+TErésia a Jesu Infánte, Alensónii in Gállia, honéstis paréntibus, singulári et assídua erga Deum pietáte conspícuis, orta est. Inde a prima ætáte, divíno Spíritu prævénta, religiósam vitam ágere cupiébat. Sério autem promísit, se nihil Deo denegatúram, quod ipse ab ea pétere viderétur : quam promissiónem fidéliter usque ad mortem serváre satégit. Quinto ætátis anno, matre amíssa, Dei providéntiæ se totam commísit sub vigilánti custódia amantíssimi patris, sororúmque natu majórum : quibus magístris, Terésia ad curréndam perfectiónis viam ut gigas exsultávit. Novénnis virgínibus ex Órdine sancti Benedícti Lexóviis excolénda tráditur ibíque in rerum divinárum cognitióne excéllere visa est. Décimo ætátis anno, arcánus et gravis morbus eam diu cruciávit, a quo, prout ipsa enárrat, ope beatíssimæ Vírginis, quæ eídem subrídens appáruit, et quam, sub título Dóminæ Nostræ a Victória, per novendiália invocáre stúduit, divínitus fuit liberáta. Tunc angélico fervóre repléta, ad sacrum convívium, in quo Christus súmitur, se diligentíssime præparáre curávit.
+
+℟. Propter veritátem, et mansuetúdinem, et justítiam : \* Et dedúcet te mirabíliter déxtera tua. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Et.
+
+##### Lectio v
+
+UT prímitus eucharístico pane fuit refécta, insatiábilem cæléstis hujus cibi famem haurire visa est : unde, velut inspiráta, Jesum rogábat, ut omnem mundánam consolatiónem in amaritúdinem sibi vérteret. Inde tenérrimo in Christum Dóminum et in Ecclésiam amóre exæstuans, nil antíquius hábuit, quam Carmelitárum Excalceatórum Órdinem íngredi, ut sui abnegatióne, suísque sacrifíciis, sacerdótibus, missionáriis, totíque Ecclésiæ opem afférret, et innúmeras ánimas Christo Jesu lucrifáceret : quod, jam morti próxima, apud Deum se factúram pollícita est. Propter ætátis deféctum, multas ad religiósam vitam amplecténdam nacta est difficultátes, quibus tamen incredíbili ánimi fortitúdine superátis, quíndecim annos nata, Lexoviénsem Carmélum felíciter ingréssa est. Ibi mirábiles Deus in Terésiæ corde ascensiónes dispósuit, quæ, Maríæ Vírginis vitam abscónditam imitáta, quasi hortus irríguus, flores ómnium virtútum germinávit, præcípue vero exímiæ in Deum et in próximum caritátis.
+
+℟. Dilexísti justítiam, et odísti iniquitátem : \* Proptérea unxit te Deus, Deus tuus, óleo lætítiæ. ℣. Propter veritátem, et mansuetúdinem, et justítiam. — Proptérea.
+
+##### Lectio vi
+
+QUO magis Altíssimo placéret, cum in Sacris Scriptúris mónitum illud legísset : Si quis est párvulus, véniat ad me; párvula in spíritu esse vóluit, et inde filiáli fidúcia Deo, tamquam Patri amantíssimo, se perpétuo trádidit. Hanc spirituális infántiæ viam, secúndum Evangélii doctrínam, álios dócuit, speciátim novítias, quas ex obediéntia ad religiosárum virtútum stúdium informándas suscépit, atque ita apostólico zelo repléta, mundo, supérbia infláto et vanitátes dilígenti, evangélicæ simplicitátis iter patefécit. Sponsus autem Jesus eam patiéndi desidério, tam in ánima, quam in córpore, pénitus inflammávit. Insuper Dei caritátem undequáque negléctam animadvértens, summo dolóre afécta, duóbus ante óbitum annis, Dei miseréntis amóri se víctimam óbtulit. Tunc, ut ipsa refert, cæléstis ignis flamma vulneráta est : unde caritáte consúmpta, in écstasim rapta, ferventíssime ingéminans : Deus meus, te díligo, vigínti quátuor annos nata, die trigésima Septémbris, anno millésimo octingentésimo nonagésimo séptimo, ad Sponsum evolávit. Quod autem móriens promíserat, se perénnem rosárum plúviam in terram demissúram, hoc, in cælum recépta, innúmeris miráculis reápse adimplévit et in dies adímplet. Quam Pius undécimus, Póntifex Máximus, Beátis Virgínibus adscríptam, et biénnio post, jubiléo máximo recurrénte, inter Sanctas relátam, peculiárem ómnium Missiónum Patrónam constítuit ac declarávit.
+
+℟. Afferéntur Regi vírgines post eam, próximæ ejus \* Afferéntur tibi in lætítia et exsultatióne. ℣. Spécie tua et pulchritúdine tua inténde, próspere procéde, et regna. — Afferéntur. Glória Patri. Afferéntur.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+TErésia a Jesu Infánte, Alensónii in Gállia, ex honéstis piísque paréntibus orta est. Quinto ætátis anno, matre amíssa, Dei providéntiæ se totam commísit sub vigilántia amantíssimi patris et sorórum natu majórum : quibus magístris, ad curréndam perfectiónis viam ut gigas exsultávit. Novénnis virgínibus ex Órdine Sancti Benedícti Lexóviis excolénda tráditur. Décimo ætátis anno, arcáno et gravi morbo diu cruciáta, ope Dóminæ nostræ a Victória, divínitus fuit liberáta. Angélico fervóre repléta, ad sacrum convívium prímitus accédens, insatiábilem hujus cibi famem haurire visa est. Carmelitárum Excalceatórum Órdinem íngredi cúpiens, ob ætátis deféctum, multas ad religiósam vitam amplecténdam nacta est difficultátes, quibus fórtiter superátis, Lexoviénsem Carmélum, quíndecim annos nata, felíciter ingréssa est; ibíque erga Deum et próximum exímia caritáte flagrávit. Spirituálem infántiæ viam, secúndum Evangélii doctrínam, secúta, álios, speciátim novítias, eámdem edócuit. Eádem caritáte succénsa, duóbus ante óbitum annis Dei miseréntis amóri se víctimam óbtulit. Vigínti quátuor annos nata, die trigésima Septémbris, anno millésimo octingentésimo nonagésimo séptimo, ad Sponsum evolávit. Quam Pius undécimus, Póntifex Máximus, Beátis Virgínibus adscríptam, et biénnio post, Jubiléo máximo recurrénte, solémniter inter Sanctas relátam, peculiárem ómnium Missiónum Patrónam constítuit atque declarávit.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 18, 1-4*
+
+IN illo témpore : Accessérunt discípuli ad Jesum, dicéntes : Quis, putas, major est in regno cælórum? Et réliqua.

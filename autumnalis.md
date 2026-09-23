@@ -21040,3 +21040,49 @@ THomas, in óppido Fontispláni Toletánæ diœcéseos in Hispánia natus, a bon
 {RUBRIC: In III Nocturno Homilía in Ev. Homo péregre, de Comm. Conf. Pont. 1 loco. [80]}
 
 {RUBRIC: In Fériis Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemoratio ad Laudes tantum, alias}
+
+Pro Ss. Mauritio et Sociis Martyribus
+
+##### Lectio ix
+
+CUM Maximiánus imperátor, ducto in Gálliam exércitu, in fínibus Sedunórum sacrifícii causa constitísset, Thebæórum légio, ne se impiórum sacrórum societáte contamináret, a réliquis cópiis céssit. Quare imperátor misit ad eos mílites, qui suo nómine nuntiárent ut, si salvi esse vellent, in castra ad sacrifícia redírent : qui se christiána religióne impedíri respondérunt. Quorum respónsum ille indignissime ferens, majóri iracúndia quam ántea exársit. Itaque, immíssa parte exércitus in Thebǽos, décimum quemque eórum primum occídi jussit; quod martýrium sua sponte, maximéque hortatóre Maurítio, ferre maluérunt quam imperáta fácere nefárii imperatóris. Ac deínde réliquos omnes, constantíssime Christum prædicántes, décimo Kaléndas Octóbris ab univérso exércitu trucidári ímperat.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Eleemósynas \* illíus enarrábit omnis ecclésia Sanctórum.
+
+**Oratio**
+
+DEus, qui beátum Thomam Pontíficem insígnis in páuperes misericórdiæ virtúte decorásti : quǽsumus; ut, ejus intercessióne, in omnes, qui te deprecántur, divítias misericórdiæ tuæ benígnus effúndas. Per Dóminum.
+
+{RUBRIC: Et, post Commemoratiónem Fériæ in Quátuor Témporibus, fit Commemoratio Ss. Mauritii et Sociórum Mm. :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+**Oratio**
+
+ANnue, quǽsumus, omnípotens Deus : ut sanctórum Mártyrum tuórum Mauritii et Sociórum ejus nos lætíficet festíva solémnitas; ut, quorum suffrágiis nítimur, eórum natalítiis gloriémur. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Dispérsit, \* dedit paupéribus : justítia ejus manet in sǽculum sǽculi.
+
+{RUBRIC: Et fit Commem. sequentis ac S. Theclæ Virg. et Mart.}
+
+---
+
+## Die 23 Septembris — S. Lini
+
+{RUBRIC: Papæ et Martyris [29] Semiduplex}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.

@@ -27576,3 +27576,106 @@ VItális et Agrícola ejus dóminus, in persecutióne Diocletiáni et Maximiáni
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+**Oratio**
+
+ECclésiam tuam, Dómine, sancti Cároli Confessóris tui atque Pontíficis contínua protectióne custódi : ut, sicut illum pastorális sollicitúdo gloriósum réddidit; ita nos ejus intercéssio in tuo semper fáciat amóre fervéntes. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Octávæ :}
+
+**Ant.** Te gloriósus Apostolórum chorus, te Prophetárum laudábilis númerus, te Mártyrum candidátus laudat exércitus; te omnes Sancti et elécti voce confiténtur unánimes, beáta Trínitas, unus Deus.
+
+℣. Exsultábunt Sancti.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui nos ómnium Sanctórum tuórum mérita sub una tribuísti celebritáte venerári : quæsumus, ut desiderátam nobis propitiatiónis abundántiam, multiplicátis intercessóribus, largiáris. (Per Dóminum.)
+
+{RUBRIC: Deínde Commem. Ss. Vitális et Agrícolæ Mm. :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, qui sanctórum Mártyrum tuórum Vitális et Agrícolæ solémnia cólimus, eórum apud te intercessiónibus adjuvémur. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Amávit eum Dóminus, \* et ornávit eum : stolam glóriæ índuit eum, et ad portas paradísi coronávit eum.
+
+{RUBRIC: Oratio Ecclésiam, ut supra.}
+
+{RUBRIC: Et fit Commemoratio sequéntis.}
+
+---
+
+# Die 5 Novembris
+
+## De V die infra Octavam Omnium Sanctorum
+
+{RUBRIC: Semiduplex 724}
+
+**Ant.** Angeli, Archángeli, Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, Chérubim atque Séraphim, Patriárchæ et Prophétæ, sancti legis Doctóres, Apóstoli, omnes Christi Mártyres, sancti Confessóres, Vírgines Dómini, Anachorítæ, Sanctíque omnes, intercédite pro nobis.
+
+℣. Lætámini in Dómino.
+
+{RUBRIC: Si vero hac die faciéndum non sit Offícium de Octáva :}
+
+**Ant.** O quam gloriósum est regnum in quo cum Christo gaudent omnes Sancti, amícti stolis albis sequúntur Agnum quocúmque íerit!
+
+℣. Exsultábunt Sancti.
+
+{RUBRIC: Oratio Omnípotens, ut supra. [762]}
+
+### In II Nocturno
+
+{RUBRIC: De Sermóne sancti Bedæ Venerábilis, Presbýteri (Sermo 18 de Sanctis)}
+
+##### Lectio iv
+
+AD hanc ígitur óperum salutárium deléctet nos perveníre palmam. Libénter ac prompte certémus; omnes in agóne justítiæ, Deo et Christo spectánte, currámus; et, qui sæculo et mundo majóres esse jam cœpimus, cursum nostrum nulla sæculi cupiditáte tardémus. Si céleres in óperis agóne curréntes, dies nos últimus invénerit, nusquam Dóminus méritis nostris déerit remunerátor.
+
+℟. Abstérget Deus omnem lácrimam ab óculis Sanctórum : et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor, \* Quóniam prióra transiérunt. ℣. Non esúrient, neque sítient ámplius, neque cadent super illos sol neque ullus æstus. — Quóniam.
+
+##### Lectio v
+
+QUI corónam in persecutióne purpúream pro passióne donábit, ipse in pace vincéntibus, pro justítiæ méritis, dabit et cándidam. Nam nec Abraham, nec Isaac, nec Jacob occísi sunt, et tamen, fídei et justítiæ méritis honoráti, inter Patriárchas primi esse meruérunt; ad quorum congregátur convívium quisquis fidélis, et justus, et laudábilis invenítur. Mémores esse debémus, voluntátem non nostram, sed Dei fácere debére; quia qui fécerit ejus voluntátem, manet in ætérnum, quómodo et ille manet in ætérnum.
+
+℟. Pretiósa in conspéctu Dómini \* Mors Sanctórum ejus. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors.
+
+##### Lectio vi
+
+QUaprópter, caríssimi, mente íntegra, fide firma, virtúte robústa, caritáte perfécta, paráti ad omnem voluntátem Dei simus, conservántes fórtiter Domínica mandáta : in simplicitáte innocéntiam, in caritáte concórdiam, in humilitáte modéstiam, in administratióne vigilántiam, in adjuvándis laborántibus misericórdiam, in fovéndis paupéribus, in defendénda veritáte constántiam, in disciplínæ severitáte censúram, ne áliquid ad exémplum bonórum factórum desit in nobis. Hæc sunt enim vestígia quæ nobis Sancti quique, reverténtes in pátriam, reliquérunt, ut, illórum sémitis inhæréntes, sequerémur et gáudia.
+
+℟. Stola jucunditátis índuit eos Dóminus : \* Et corónam pulchritúdinis pósuit super cápita eórum. ℣. Cibávit illos Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illos. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 5, 1-12*
+
+IN illo témpore : Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi (Liber 1 de Sermóne Dómini in monte, cap. 3 et 4)}
+
+ITaque in hoc tértio gradu, in quo sciéntia est, lugétur amíssio summi boni, quia inhærétur extrémis. In quarto autem gradu labor est; ubi veheménter incúmbitur, ut sese ánimus avéllat ab eis, quibus pestífera dulcédine innéxus est. Hic ergo esurítur et sitítur justítia, et multum necessária est fortitúdo; quia non relínquitur sine dolóre quod cum delectatióne retinétur. Quinto autem gradu perseverántibus in labóre datur evadéndi consílium; quia, nisi quisque adjuvétur a superióre, nullo modo sibi est idóneus ut sese tantis miseriárum implicaméntis expédiat. Est autem justum consílium, ut, qui se a potentióri adjuvári vult, ádjuvet et infirmiórem, in quo est ipse poténtior. Itaque, Beáti misericórdes; quia ipsórum miserébitur Deus.
+
+℟. Amávit eos Dóminus, et ornávit eos : stolam glóriæ índuit eos, \* Et ad portas paradísi coronávit eos. ℣. Induit eos Dóminus lorícam fídei, et ornávit eos. — Et.
+
+##### Lectio viii
+
+SExto gradu est cordis mundítia de bona consciéntia bonórum óperum, valens ad contemplándum summum illud bonum, quod solo puro et seréno intelléctu cerni potest. Postrémo est séptima ipsa sapiéntia, id est, contemplátio veritátis, pacíficans totum hóminem, et suscípiens similitúdinem Dei, quæ ita conclúditur : Beáti pacífici; quóniam ipsi fílii Dei vocabúntur. Octáva tamquam ad caput redit, quia consummátum perféctumque osténdit et probat. Itaque in prima et in octáva nominátum est regnum cælórum : Beáti páuperes spíritu; quóniam ipsórum est regnum cælórum : et, Beáti qui persecutiónem patiúntur propter justítiam; quóniam ipsórum est regnum cælórum.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti. Glória Patri. Isti.
+
+##### Lectio ix
+
+CUM jam dícitur : Quis nos separábit a caritáte Christi? Tribulátio, an angústia, an persecútio, an fames, an núditas, an perículum, an gládius? Septem sunt ergo, quæ perfíciunt; nam octáva claríficat, et quod perféctum est, demónstrat, ut per hos gradus perficiántur et céteri, tamquam a cápite rursum exórdiens. Vidétur ergo mihi étiam septifórmis operátio Spíritus Sancti, de qua Isaías lóquitur, his grádibus sententiísque congrúere. Sed ínterest órdinis; nam ibi enumerátio ab excellentióribus cœpit, hic vero ab inferióribus. Ibi namque íncipit a sapiéntia Dei, et désinit ad timórem Dei; sed inítium sapiéntiæ timor Dómini est.
+
+**Te Deum laudámus.**

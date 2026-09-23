@@ -26380,3 +26380,109 @@ Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 **Ant.** Hæc est generátio quæréntium Dóminum, quæréntium fáciem Dei Jacob.
 
 **Ant.** Lætámini in Dómino \* et exsultáte, justi, et gloriámini omnes recti corde.
+
+**Psalmus 31**
+
+BEáti quorum remíssæ sunt iniquitátes : \* et quorum tecta sunt peccáta.
+
+Beátus vir, cui non imputávit Dóminus peccátum, \* nec est in spíritu ejus dolus.
+
+Quóniam tácui, inveteravérunt ossa mea, \* dum clamárem tota die.
+
+Quóniam die ac nocte graváta est super me manus tua : \* convérsus sum in ærúmna mea, dum confígitur spina.
+
+Delíctum meum cógnitum tibi feci : \* et injustítiam meam non abscóndi.
+
+Dixi : Confitébor advérsum me injustítiam meam Dómino : \* et tu remisísti impietátem peccáti mei.
+
+Pro hac orábit ad te omnis sanctus, \* in témpore opportúno.
+
+Verúmtamen in dilúvio aquárum multárum, \* ad eum non approximábunt.
+
+Tu es refúgium meum a tribulatióne, quæ circúmdedit me : \* exsultátio mea, érue me a circumdántibus me.
+
+Intelléctum tibi dabo, et ínstruam te in via hac, qua gradiéris : \* firmábo super te óculos meos.
+
+Nolíte fíeri sicut equus et mulus, \* quibus non est intelléctus.
+
+In camo et fræno maxíllas eórum constrínge, \* qui non appróximant ad te.
+
+Multa flagélla peccatóris, \* sperántem autem in Dómino misericórdia circúmdabit.
+
+Lætámini in Dómino et exsultáte, justi, \* et gloriámini, omnes recti corde.
+
+**Ant.** Lætámini in Dómino et exsultáte, justi, et gloriámini, omnes recti corde.
+
+℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+{RUBRIC: Sermo sancti Bedæ Venerábilis Presbýteri (Sermo 18 de Sanctis)}
+
+##### Lectio iv
+
+HOdie, dilectíssimi, ómnium Sanctórum sub una solemnitátis lætítia celebrámus festivitátem; quorum societáte cælum exsúltat, quorum patrocíniis terra lætátur, triúmphis Ecclésia sancta coronátur. Quorum conféssio quanto in passióne fórtior, tanto est clárior in honóre; quia, dum crevit pugna, crevit et pugnántium glória, et martýrii triúmphus multíplici passiónum génere adornátur, perque gravióra torménta, gravióra fuére et prǽmia. Dum cathólica mater Ecclésia, quæ per totum orbem longe latéque diffúsa est, in ipso cápite suo Christo Jesu edócta est contumélias, cruces et mortem non timére; magis magísque roboráta, non resisténdo sed perferéndo, univérsis, quos ágmine ínclyto carcer pœnális inclúsit, pari et símili calóre virtútis, ad geréndum certámen, glóriam triumphálem inspirávit.
+
+℟. Præcúrsor Dómini venit, de quo ipse testátur : \* Nullus major inter natos mulíerum Joánne Baptísta. ℣. Hic est enim prophéta, et plus quam prophéta, de quo Salvátor ait. — Nullus.
+
+##### Lectio v
+
+O Vere beáta mater Ecclésia, quam sic honor divínæ dignatiónis illúminat, quam vincéntium gloriósus Mártyrum sanguis exórnat, quam inviolátæ confessiónis cándida índuit virgínitas! Flóribus ejus nec rosæ nec lília desunt. Certent nunc, caríssimi, sínguli ut ad utrósque honóres amplíssimam accípiant dignitátem, corónas vel de virginitáte cándidas vel de passióne purpúreas. In cæléstibus castris pax et ácies habent flores suos, quibus mílites Christi coronántur.
+
+℟. Isti sunt qui vivéntes in carne plantavérunt Ecclésiam sánguine suo : \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+##### Lectio vi
+
+DEI enim ineffábilis et imménsa bónitas étiam hoc providit, ut labórum quidem tempus et agónis non exténderet nec longum fáceret aut ætérnum, sed breve et, ut ita dicam, momentáneum : ut in hac brevi et exígua vita agónes essent et labóres, in illa vero quæ ætérna est, corónæ et prǽmia meritórum; ut labóres quidem cito finiréntur, meritórum vero prǽmia sine fine durárent; ut post hujus mundi ténebras visúri essent candidíssimam lucem, et acceptúri majórem passiónum cunctárum acerbitátibus beatitúdinem, testánte hoc idem Apóstolo, ubi ait : Non sunt condígnæ passiónes hujus témporis ad superventúram glóriam, quæ revelábitur in nobis.
+
+℟. Sancti mei, qui, in carne pósiti, certámen habuístis : \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória Patri. Mercédem.
+
+### In III Nocturno
+
+**Ant.** Timéte Dóminum, \* omnes Sancti ejus, quóniam nihil deest timéntibus eum : ecce óculi Dómini super justos, et aures ejus ad preces eórum.
+
+**Psalmus 33**
+
+BEnedícam Dóminum in omni témpore : \* semper laus ejus in ore meo.
+
+In Dómino laudábitur ánima mea : \* áudiant mansuéti, et lætántur.
+
+Magnificáte Dóminum mecum : \* et exaltémus nomen ejus in idípsum.
+
+Exquisívi Dóminum, et exaudívit me : \* et ex ómnibus tribulatiónibus meis erípuit me.
+
+Accédite ad eum, et illuminámini : \* et fácies vestræ non confundéntur.
+
+Iste pauper clamávit, et Dóminus exaudívit eum : \* et de ómnibus tribulatiónibus ejus salvávit eum.
+
+Immíttet Angelus Dómini in circúitu timéntium eum : \* et erípiet eos.
+
+Gustáte, et vidéte quóniam suávis est Dóminus : \* beátus vir, qui sperat in eo.
+
+Timéte Dóminum, omnes sancti ejus : \* quóniam non est inópia timéntibus eum.
+
+Dívites eguérunt et esuriérunt : \* inquiréntes autem Dóminum non minuéntur omni bono.
+
+Veníte, fílii, audíte me : \* timórem Dómini docébo vos.
+
+Quis est homo qui vult vitam : \* díligit dies vidére bonos?
+
+Próhibe linguam tuam a malo : \* et lábia tua ne loquántur dolum.
+
+Divérte a malo, et fac bonum : \* inquíre pacem, et perséquere eam.
+
+Óculi Dómini super justos : \* et aures ejus in preces eórum.
+
+Vultus autem Dómini super faciéntes mala : \* ut perdat de terra memóriam eórum.
+
+Clamavérunt justi, et Dóminus exaudívit eos : \* et ex ómnibus tribulatiónibus eórum liberávit eos.
+
+Juxta est Dóminus iis, qui tribuláto sunt corde : \* et húmiles spíritu salvábit.
+
+Multæ tribulatiónes justórum : \* et de ómnibus his liberábit eos Dóminus.
+
+Custódit Dóminus ómnia ossa eórum : \* unum ex his non conterétur.
+
+Mors peccatórum péssima : \* et qui odérunt justum, delínquent.
+
+Rédimet Dóminus ánimas servórum suórum \* et non delínquent omnes qui sperant in eo.
+
+**Ant.** Timéte Dóminum, omnes Sancti ejus, quóniam nihil deest timéntibus eum : ecce óculi Dómini super justos, et aures ejus ad preces eórum.

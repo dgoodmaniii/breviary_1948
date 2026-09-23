@@ -29702,3 +29702,56 @@ Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
 *Cap. 25, 1-13*
 
 IN illo témpore : Dixit Jesus discípulis suis parábolam hanc : Símile erit regnum cælórum decem virgínibus, quæ, accipiéntes lámpades suas, exiérunt óbviam sponso et sponsæ. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi (Homilía 79 in Matth., post inítium)}
+
+QUam ob causam in persóna virgínum hanc parábolam profert, nec qualemcúmque persónam sine discrímine súbjicit? Magna quædam de virginitáte disseruerat dicens : Sunt eunúchi, qui seípsos castravérunt propter regnum cælórum; et, Qui potest cápere, cápiat. Nec ignorábat, de virginitáte magnam esse vulgo existimatiónem, quippe cum sit ea res natúra sublímis : quod inde patet, quia neque in véteri Testaménto a priscis illis sanctísque viris culta fuit, et in novo nulla legis necessitáte jubétur. Non enim id imperávit, sed fidélium voluntáti permísit. Unde et Paulus ait : De virgínibus autem præcéptum Dómini non hábeo; et laudo quidem eum, qui hoc sectátur institútum, noléntem autem non cogo, neque eam rem præcéptum fácio.
+
+℟. Beáta Cæcília dixit Tibúrtio : Hódie te fáteor meum esse cognátum, quia amor Dei te fecit esse \* Contemptórem idolórum. ℣. Sicut enim amor Dei mihi tuum fratrem cónjugem fecit, ita te mihi cognátum fecit esse. — Contemptórem.
+
+##### Lectio viii
+
+QUóniam ígitur et magna res erat, ac de ea apud multos magna erat existimátio, ne quis, ea perfécta, se totum perfecísse putáret ac cétera negligéret, hanc parábolam pósuit; ut osténderet, virginitátem, quamvis cétera hábeat, si misericórdiæ bonis carúerit, cum fornicatóribus éjici. Ac mérito quidem inhumánum ac misericórdia caréntem cum illis cóllocat; fornicátor enim córporum, istæ vero pecuniárum cupiditáte vincúntur. Non est autem córporum et pecúniæ par cupíditas; sed ácrior multo atque veheméntior illa córporum est. Quanto ígitur cum imbecillióre luctántur, tanto minus vénia dignæ sunt, si vincántur. Idcírco étiam fátuas appellávit; quóniam, majóri certámine superáto, in facilióre totum perdidérunt.
+
+℟. Cæcília me misit ad vos, ut ostendátis mihi sanctum antístitem; \* Quia ad ipsum hábeo secréta quæ pérferam. ℣. Tunc Valeriánus perréxit, et, signo quod accéperat, invénit sanctum Urbánum. — Quia ad ipsum hábeo secréta quæ pérferam. Glória Patri. Quia.
+
+##### Lectio ix
+
+LAmpades autem hoc loco illud ipsum virginitátis donum appéllat et sanctimóniæ puritátem; óleum vero benignitátem, eleemósynam, impénsum indigéntibus auxílium. Tardánte autem sponso, dormitavérunt omnes, et dormiérunt. Non parvum témporis rursus spátium interjéctum osténdit, ut discípulos, regnum ipsíus mox futúrum exspectántes, ab ea opinióne dedúceret; id enim illi sperábant : quaprópter crebro ab hujúsmodi eos spe révocat. Ad hoc, illud quoque índicat, somnum quemdam esse mortem. Dormiérunt, inquit; média autem nocte clamor factus est : vel, ut in eádem parábola persístat, vel rursus osténdit in nocte futúram esse resurrectiónem. Clamórem étiam Paulus commémorat, dicens : In jussu, in voce Archángeli, in novíssima tuba descéndet de cælo.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+**Ant. 1** Cantántibus órganis, \* Cæcília Dómino decantábat dicens : Fiat cor meum immaculátum, ut non confúndar.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Valeriánus \* in cubículo Cæcíliam cum Angelo orántem invénit.
+
+**Ant. 3** Cæcília \* fámula tua, Dómine, quasi apis tibi argumentósa desérvit.
+
+**Ant. 4** Benedíco te, \* Pater Dómini mei Jesu Christi, quia per Fílium tuum ignis exstínctus est a látere meo.
+
+**Ant. 5** Triduánas \* a Dómino popósci indútias, ut domum meam ecclésiam consecrárem.
+
+{RUBRIC: Capit. 2 Cor. 10, 17-18}
+
+FRatres : Qui gloriátur, in Dómino gloriétur. Non enim qui seípsum comméndat, ille probátus est; sed quem Deus comméndat.
+
+**Hymnus**
+
+JEsu, coróna Vírginum,
+Quem Mater illa cóncipit,
+Quæ sola Virgo párturit,
+Hæc vota clemens áccipe :
+
+Qui pergis inter lília,
+Septus choréis Vírginum,
+Sponsus decórus glória
+Sponsísque reddens prǽmia,
+
+Quocúmque tendis, Vírgines
+Sequúntur, atque láudibus
+Post te canéntes cúrsitant,
+Hymnósque dulces pérsonant;

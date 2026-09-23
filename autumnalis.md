@@ -17620,3 +17620,92 @@ LArgíre, quǽsumus, Dómine, fidélibus tuis indulgéntiam placátus et pacem :
 *Cap. 4, 46-53*
 
 IN illo témpore : Erat quidam régulus, cujus fílius infirmabátur Caphárnaum. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+*Homilia 28 in Evangelia*
+
+LEctio sancti Evangélii, quam modo, fratres, audístis, expositióne non índiget : sed ne hanc táciti prætériísse videámur, exhortándo pótius quam exponéndo in ea áliquid loquámur. Hoc autem nobis solúmmodo de expositióne vídeo esse requiréndum, cur is, qui ad salútem fílio peténdam vénerat, audívit : Nisi signa et prodígia vidéritis, non créditis. Qui enim salútem fílio quærébat, proculdúbio credébat; neque enim ab eo quǽreret salútem, quem non créderet Salvatórem. Quare ergo dícitur : Nisi signa et prodígia vidéritis, non créditis : qui ante crédidit, quam signa vidéret?
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+SED mementóte quid pétiit; et apérte cognoscétis, quia in fide dubitávit. Popóscit namque, ut descénderet et sanáret fílium ejus. Corporálem ergo præséntiam Dómini quærébat, qui per spíritum nusquam déerat. Minus ítaque in illum crédidit, quem non putávit posse salútem dare, nisi præsens esset et córpore. Si enim perfécte credidísset, proculdúbio sciret, quia non esset locus ubi non esset Deus.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+EX magna ergo parte diffísus est, qui virtútem non dedit majestáti, sed præséntiæ corporáli. Salútem ítaque fílio pétiit, et tamen in fide dubitávit; quia eum ad quem vénerat, et poténtem ad curándum crédidit, et tamen moriénti fílio esse abséntem putávit. Sed Dóminus, qui rogátur ut vadat, quia non desit ubi invitátur, índicat : solo jussu salútem réddidit, qui voluntáte ómnia creávit.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Erat quidam régulus, \* cujus fílius infirmabátur Caphárnaum. Hic cum audísset quod Jesus veníret in Galilǽam, rogábat eum ut sanáret fílium ejus.
+
+**Oratio**
+
+LArgíre, quǽsumus, Dómine, fidélibus tuis indulgéntiam placátus et pacem : ut páriter ab ómnibus mundéntur offénsis, et secúra tibi mente desérviant. Per Dóminum.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Cognóvit autem pater, \* quia illa hora erat, in qua dixit Jesus : Fílius tuus vivit; et crédidit ipse et domus ejus tota.
+
+---
+
+## Dominica XXI post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+FAmíliam tuam, quǽsumus, Dómine, contínua pietáte custódi : ut a cunctis adversitátibus, te protegénte, sit líbera; et in bonis áctibus tuo nómini sit devóta. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 18, 23-35*
+
+IN illo témpore : Dixit Jesus discípulis suis parábolam hanc : Assimilátum est regnum cælórum hómini regi, qui vóluit ratiónem pónere cum servis suis. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 3 Comment. in cap. 18 Matth.*
+
+FAmiliáre est Syris, et máxime Palæstínis, ad omnem sermónem suum parábolas júngere; ut quod per simplex præcéptum tenéri ab auditóribus non potest, per similitúdinem exémplaque teneátur. Præcépit ítaque Dóminus Petro sub comparatióne regis et dómini, et servi, qui débitor decem míllium talentórum a dómino rogans véniam impetráverat; ut ipse quoque dimíttat consérvis suis minóra peccántibus. Si enim ille rex et dóminus servo debitóri decem míllia talentórum tam fácile dimísit; quanto magis servi consérvis suis debent minóra dimíttere?
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+QUod ut manifestíus fiat, dicámus sub exémplo. Si quis nostrum commíserit adultérium, homicídium, sacrilégium : majóra crímina decem míllium talentórum rogántibus dimittúntur, si et ipsi dimíttant minóra peccántibus. Sin autem ob factam contuméliam simus implacábiles, et propter amárum verbum pérpetes habeámus discórdias; nonne nobis vidémur recte redigéndi in cárcerem, et sub exémplo óperis nostri hoc ágere, ut majórum nobis delictórum vénia non relaxétur?
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+SIC et Pater meus cæléstis fáciet vobis, si non remiséritis unusquísque fratri suo de córdibus vestris. Formidolósa senténtia, si juxta nostram mentem senténtia Dei fléctitur atque mutátur : si parva frátribus non dimíttimus, magna nobis a Deo non dimitténtur. Et quia potest unusquísque dícere : Nihil hábeo contra eum, ipse novit, habet Deum júdicem; non mihi curæ est quid velit ágere, ego ignóvi ei : confírmat senténtiam suam, et omnem simulatiónem fíctæ pacis evértit, dicens : Si non remiséritis unusquísque fratri suo de córdibus vestris.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Dixit autem \* dóminus servo : Redde quod debes. Prócidens autem servus ille rogábat eum dicens : Patiéntiam habe in me, et ómnia reddam tibi.
+
+**Oratio**
+
+FAmíliam tuam, quǽsumus, Dómine, contínua pietáte custódi : ut a cunctis adversitátibus, te protegénte, sit líbera; et in bonis áctibus tuo nómini sit devóta. Per Dóminum.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Serve nequam, \* omne débitum dimísi tibi, quóniam rogásti me; nonne ergo opórtuit et te miseréri consérvi tui, sicut et ego tui misértus sum? allelúja.

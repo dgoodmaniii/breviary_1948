@@ -33910,3 +33910,31 @@ Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
 
 ℣. Elégit eum Dóminus sacerdótem sibi.
 ℟. Ad sacrificándum ei hóstiam laudis.
+
+{RUBRIC: Pro Conf. non Pont.}
+
+℣. Os justi meditábitur sapiéntiam.
+℟. Et lingua ejus loquétur judícium.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Máximi Epíscopi}
+{RUBRIC: Homilía 59, quæ est 2 de S. Eusébio Vercellénsi}
+
+#### Lectio iv
+
+DE sancti ac beatíssimi Patris nostri N., cujus hódie festa celebrámus, laudes addidísse áliquid, decerpsísse est; síquidem virtútum ejus grátia non sermónibus exponénda est, sed opéribus comprobánda. Cum enim dicat Scriptúra : Glória patris est fílius sápiens; quantæ hujus sunt glóriæ, qui tantórum filiórum sapiéntia et devotióne lætátur? In Christo enim Jesu per Evangélium ipse nos génuit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus enim.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+QUidquid ígitur in hac sancta plebe potest esse virtútis et grátiæ, de hoc, quasi quodam fonte lucidíssimo, ómnium rivulórum púritas emanávit. Etenim, quia castitátis pollébat vigóre, quia abstinéntiæ gloriabátur angústiis, quia blandiméntis erat prǽditus lenitátis, ómnium cívium in Deum provocávit afféctum; quia Pontíficis administratióne fulgébat, plures e discípulis relíquit sui sacerdótii successóres.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea : \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+**Bened.** Ignem sui amóris.

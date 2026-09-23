@@ -1564,4 +1564,32 @@ As a general rule, (accidentally or perpetually) impeded doubles of the first or
 [^115]: Special rules are given, in their proper place, for the following feasts: Holy Name; Sacred Heart; Purification; St. Joseph; Annunciation; Nativity of St. John the Baptist.
 [^116]: This case refers to particular churches or places.
 
+must be said of the octave-day of a feast proper (n. 88) to some nation, diocese, Order, or Institute, when such feast has to be transferred to another day in some *particular* church.
+
+**94.** If, on the contrary, a feast (having an octave) proper to a nation, diocese, Order, Institute, or particular church (e. g., the titular) is impeded in the whole nation, diocese, Order, Institute, or in its own particular church respectively, and if it is therefore transferred according to the Rubrics, the octave-day — transferred accordingly — will be observed *eight days* after the day on which the feast was actually celebrated, just as if the feast itself had been celebrated on its own proper day.
+
+**95.** Feasts of double major or minor, and semi-double rite that are proper to any nation, diocese, Order, Institute, or particular church, and that are *perpetually* impeded in the whole[^117] nation, diocese, Order, Institute, or in their own particular church, are transferred to the first following day which is free from:
+
+1st, An Office of double or semi-double rite;
+2d, privileged vigils;
+3d, privileged octaves of the second order.
+
+Moreover, if they are celebrated with an octave, they will have the entire octave, just as if they had been celebrated on their own day.
+
+[^117]: If any feast is only impeded in one or other particular church, it is commemorated or omitted like other Offices of similar rite.
+
+N. B. It would be well to rehearse all the rules just given by perusing the Table of Concurrence given at the beginning of any volume of the Breviary.
+
+---
+
+## CHAPTER XVI
+
+## CONCURRENCE OF OFFICES
+
+**96.** Concurrence means the meeting, so to say, of the second Vespers of one day's Office with the following day's first Vespers (since, liturgically, to-morrow's Office, for instance, begins to-day at the canonical Hour of Vespers). It is readily understood, then, that concurrence implies *two* days (no more and no less) as considered in the Hour of Vespers, which, as a canonical Hour, is recited *only once* each (civil) day.[^118] In conclusion, then, it may be said that:
+
+(a) More serious mistakes can be made by the wrong handling of the rules of occurrence than by the inaccurate application of the rubrics on concurrence. Effectively, the question of *occurrence* mainly considers *complete* Offices (as well as the Mass, which follows them), whereas *concurrence*
+
+[^118]: If, when referring to the *Table of Concurrence* given in the Breviary, the Office that precedes the word "*cum*" is taken as the second Vespers of *to-day*, and the Office that follows the word "*cum*," as the first Vespers of *to-morrow*, no difficulty will be found in understanding the answer. Thus, for instance: "Quando concurrit duplex majus cum duplici II classis," (solution:) *Totum de sequenti* (= to-morrow), *commemoratio præcedentis* (= to-day).
+
 ---

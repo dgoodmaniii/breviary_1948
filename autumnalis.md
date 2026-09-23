@@ -28175,3 +28175,64 @@ Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
 **Ant.** Sanctæ Trinitátis fidem Martínus conféssus est, et baptísmi grátiam percépit.
 
 **Ant.** Ego signo crucis, \* non clýpeo protéctus aut gálea, hóstium cúneos penetrábo secúrus.
+
+**Psalmus 3**
+
+DOmine, quid multiplicáti sunt qui tríbulant me? \* multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ : \* Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, susceptor meus es, \* glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi : \* et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum : \* et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me : \* exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa : \* dentes peccatórum contrivísti.
+
+Dómini est salus : \* et super pópulum tuum benedíctio tua.
+
+**Ant.** Ego signo crucis, non clýpeo protéctus aut gálea, hóstium cúneos penetrábo secúrus.
+
+℣. Amávit eum Dóminus, et ornávit eum. ℟. Stolam glóriæ índuit eum.
+
+{RUBRIC: De Epístola prima beáti Pauli Apóstoli ad Timótheum}
+
+##### Lectio i
+*Cap. 3, 1-7*
+
+FIdélis sermo : Si quis episcopátum desíderat, bonum opus desíderat. Opórtet ergo epíscopum irreprehensíbilem esse, uníus uxóris virum, sóbrium, prudéntem, ornátum, pudícum, hospitálem, doctórem, non vinoléntum, non percussórem, sed modéstum; non litigiósum, non cúpidum, sed suæ dómui bene præpósitum, fílios habéntem súbditos cum omni castitáte. Si quis autem dómui suæ præésse nescit, quómodo Ecclésiæ Dei diligéntiam habébit? Non neóphytum, ne in supérbiam elátus, in judícium íncidat diáboli. Opórtet autem illum et testimónium habére bonum ab iis qui foris sunt, ut non in oppróbrium íncidat, et in láqueum diáboli.
+
+℟. Hic est Martínus, eléctus Dei Póntifex, cui Dóminus post Apóstolos tantam grátiam conférre dignátus est, \* Ut in virtúte Trinitátis Deíficæ mererétur fíeri trium mortuórum suscitátor magníficus. ℣. Sanctæ Trinitátis fidem Martínus conféssus est. — Ut.
+
+{RUBRIC: De Epístola ad Titum}
+
+##### Lectio ii
+*Cap. 2, 7-11*
+
+OPórtet enim epíscopum sine crímine esse, sicut Dei dispensatórem : non supérbum, non iracúndum, non vinoléntum, non percussórem, non turpis lucri cúpidum; sed hospitálem, benígnum, sóbrium, justum, sanctum, continéntem, amplecténtem eum, qui secúndum doctrínam est, fidélem sermónem : ut potens sit exhortári in doctrína sana, et eos, qui contradícunt, argúere. Sunt enim multi étiam inobediéntes, vaníloqui et seductóres : máxime qui de circumcisióne sunt : quos opórtet redárgui : qui univérsas domos subvértunt, docéntes quæ non opórtet, turpis lucri grátia.
+
+℟. Dómine, si adhuc pópulo tuo sum necessárius, non recúso subíre propter eos labórem : \* Fiat volúntas tua. ℣. Óculis ac mánibus in cælum semper inténtus, invíctum ab oratióne spíritum non relaxábat. — Fiat.
+
+##### Lectio iii
+*Cap. 2, 1-8*
+
+TU autem lóquere quæ decent sanam doctrínam : Senes ut sóbrii sint, pudíci, prudéntes, sani in fide, in dilectióne, in patiéntia : Anus simíliter in hábitu sancto, non criminatríces, non multo vino serviéntes, bene docéntes : ut prudéntiam dóceant adolescéntulas, ut viros suos ament, fílios suos díligant, prudéntes, castas, sóbrias, domus curam habéntes, benígnas, súbditas viris suis, ut non blasphemétur verbum Dei. Júvenes simíliter hortáre ut sóbrii sint. In ómnibus teípsum præbe exémplum bonórum óperum, in doctrína, in integritáte, in gravitáte, verbum sanum, irreprehensíbile : ut is, qui ex advérso est, vereátur, nihil habens malum dícere de nobis.
+
+℟. O beátum virum Martínum antístitem, \* Qui nec mori tímuit, nec vívere recusávit! ℣. Dómine, si adhuc pópulo tuo sum necessárius, non recúso labórem : fiat volúntas tua. — Qui. Glória Patri. Qui.
+
+### In II Nocturno
+
+**Ant.** Confído in Dómino \* quod fília mea, précibus tuis, reddénda sit sanitáti.
+
+**Psalmus 4**
+
+CUM invocárem exaudívit me Deus justítiæ meæ : \* in tribulatióne dilatásti mihi.
+
+Miserére mei, \* et exáudi oratiónem meam.
+
+Fílii hóminum, úsquequo gravi corde? \* ut quid dilígitis vanitátem, et quæritis mendácium?
+
+Et scitóte quóniam mirificávit Dóminus sanctum suum : \* Dóminus exáudiet me cum clamávero ad eum.

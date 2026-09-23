@@ -22161,3 +22161,57 @@ Huc, custos, ígitur pérvigil ádvola,
 Avértens pátria de tibi crédita
 Tam morbos ánimi quam requiéscere
 Quidquid non sinit íncolas.
+
+Sanctæ sit Tríadi laus pia júgiter,
+Cujus perpétuo númine máchina
+Triplex hæc régitur, cujus in ómnia
+Regnat glória sǽcula.
+Amen.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+**Ad Magnif. Ant.** Omnes sunt \* administratórii Spíritus, in ministérium missi propter eos, qui hereditátem cápiunt salútis.
+
+#### In II Vesperis
+
+**Ad Magnif. Ant.** Sancti Angeli, \* custódes nostri, defféndite nos in prǽlio, ut non pereámus in treméndo judício.
+
+**Oratio**
+
+DEus, qui ineffábili providéntia sanctos Angelos tuos ad nostram custódiam míttere dignáris : largíre supplícibus tuis; et eórum semper protectióne defféndi, et ætérna societáte gaudére. Per Dóminum.
+
+{RUBRIC: Completorium de Dominica.}
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Angelórum Dóminum \* Veníte, adorémus.
+
+**Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus** Custódes, ut supra. 594
+
+### In I Nocturno
+
+**Ant.** Dóminus, Deus \* cæli et terræ, ipse mittet Angelum suum coram te.
+
+**Psalmus 8**
+
+DOmine, Dóminus noster, * quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, * super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, * ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos ópera digitórum tuórum : * lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? * aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : * et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, * oves et boves univérsas : ínsuper et pécora campi.
+
+Volúcres cæli, et pisces maris, * qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, * quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Dóminus, Deus cæli et terræ, ipse mittet Angelum suum coram te.

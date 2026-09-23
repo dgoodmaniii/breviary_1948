@@ -30972,7 +30972,70 @@ In réliquis Sanctórum Festis, in Octávis non privilegiátis quibúslibet et i
 
 {RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
 
-##### Lectio i
+#### Lectio i
 *Cap. 15, 12-16*
 
 IN illo témpore : Dixit Jesus discípulis suis : Hoc est præcéptum meum, ut díligátis ínvicem, sicut diléxi vos. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+{RUBRIC: Homilía 27 in Evangelia}
+
+CUm cuncta sacra elóquia Domínicis plena sint præcéptis, quid est quod de dilectióne, quasi de singulári mandáto, Dóminus dicit : Hoc est præcéptum meum, ut diligátis ínvicem; nisi quia omne mandátum de sola dilectióne est, et ómnia unum præcéptum sunt? Quia, quidquid præcípitur, in sola caritáte solidátur. Ut enim multi árboris rami ex una radíce pródeunt : sic multæ virtútes ex una caritáte generántur. Nec habet áliquid viriditátis ramus boni óperis, si non manet in radíce caritátis.
+
+{RUBRIC: Responsoria de Feria, ut in Proprio de Tempore.}
+
+#### Lectio ii
+
+PRæcépta ergo Domínica et multa sunt, et unum : multa per diversitátem óperis, unum in radíce dilectiónis. Quáliter autem ista diléctio tenénda sit, ipse insínuat, qui in plerísque Scriptúræ suæ senténtiis, et amícos jubet díligi in se, et inimícos propter se. Ille enim veráciter caritátem habet, qui et amícum díligit in Deo, et inimícum díligit propter Deum. Nam sunt nonnúlli, qui díligunt próximos, sed per afféctum cognatiónis et carnis; quibus tamen in hac dilectióne sacra elóquia non contradícunt. Sed áliud est quod sponte impénditur natúræ, áliud quod præcéptis Domínicis ex caritáte debétur obediéntiæ.
+
+#### Lectio iii
+
+HI nimírum et próximum díligunt, et tamen illa sublímia dilectiónis præmia non assequúntur; quia amórem suum non spiritáliter, sed carnáliter impéndunt. Proínde cum Dóminus díceret : Hoc est præcéptum meum ut diligátis ínvicem, prótinus áddidit : Sicut diléxi vos. Ac si apérte dicat : Ad hoc amáte, ad quod amávi vos. Qua in re, fratres caríssimi, solérter intuéndum est, quod antíquus hostis, dum mentem nostram ad rerum temporálium dilectiónem trahit, infirmiórem contra nos próximum éxcitat, qui ea ipsa, quæ dilígimus, auférre molíátur.
+
+#### Oratio
+
+DA, quæsumus, omnípotens Deus : ut beáti N., Apóstoli tui, quam prævenímus festivitátem, tuum pro nobis implóret auxílium; ut, a nostris reátibus absolúti, a cunctis étiam perículis eruámur. Per Dóminum.
+
+{RUBRIC: Si tamen præcédens Oratio dicta jam fúerit in Offício vel Commemoratióne de Communi Conf. Pont., tunc dicátur sequens}
+
+#### Oratio
+
+QUæsumus, omnípotens Deus : ut beátus N. Apóstolus, cujus prævenímus festivitátem, tuum pro nobis implóret auxílium; ut, a nostris reátibus absolúti, a cunctis étiam perículis eruámur. Per Dóminum.
+
+---
+
+# Commune Apostolorum
+
+### In I Vesperis
+
+**Ant.** Hoc est præcéptum meum, \* ut diligátis ínvicem, sicut diléxi vos.
+
+###### Psalmus 109
+
+DIxit Dóminus Dómino meo : \* Sede a dextris meis :
+
+Donec ponam inimícos tuos, \* scabéllum pedum tuórum.
+
+Virgam virtútis tuæ emíttet Dóminus ex Sion : \* domináre in médio inimicórum tuórum.
+
+Tecum princípium in die virtútis tuæ in splendóribus sanctórum : \* ex útero ante lucíferum génui te.
+
+Jurávit Dóminus, et non pænitébit eum : \* Tu es sacérdos in ætérnum secúndum órdinem Melchísedech.
+
+Dóminus a dextris tuis, \* confrégit in die iræ suæ reges.
+
+Judicábit in natiónibus, implébit ruínas : \* conquassábit cápita in terra multórum.
+
+De torrénte in via bibet : \* proptérea exaltábit caput.
+
+**Ant.** Hoc est præcéptum meum, ut diligátis ínvicem, sicut diléxi vos.
+
+**Ant.** Majórem caritátem \* nemo habet, ut ánimam suam ponat quis pro amícis suis.
+
+###### Psalmus 110
+
+COnfitébor tibi, Dómine, in toto corde meo : \* in consílio justórum, et congregatióne.
+
+Magna ópera Dómini : \* exquisíta in omnes voluntátes ejus.
+
+Conféssio et magnificéntia opus ejus : \* et justítia ejus manet in sæculum sæculi.

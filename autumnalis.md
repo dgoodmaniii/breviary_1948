@@ -28658,3 +28658,59 @@ CAnáriis in ínsulis, ubi frátribus sui órdinis præfuit, multa perpéssus, m
 ##### Lectio vi
 
 DEmum, Complúti finem sibi vitæ adésse intellígens, lácera et obsoléta indútus túnica, conjéctis in crucem óculis, singulári devotióne illis verbis ex sacro hymno pronuntiátis : Dulce lignum, dulces clavos, dúlcia ferens póndera, quæ fuísti digna portáre Regem cælórum et Dóminum, ánimam Deo réddidit prídie Idus Novémbris, anno Dómini supra millésimum quadringentésimo sexagésimo tértio. Ejus corpus, cum menses non paucos (ut pio confluéntium desidério fíeret satis) insepúltum mansísset, quasi jam incorruptiónem indúerit, odórem suavíssimum efflávit. Illum, multis et illústribus miráculis clarum, Xystus quintus Póntifex máximus Sanctórum número adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+DIdacus, Hispánus, ex óppido sancti Nicolái de Portu diœcésis Hispalénsis, ab ineúnte ætáte, pii sub sacerdótis discíplina, sanctióris vitæ tirocínium exércuit. Deínde, ut firmius Deo se conjúngeret, in convéntu de Arizzáfa sancti Francísci Assisiénsis régulam in statu laicáli proféssus est. Magna ibi alacritáte húmilis obediéntiæ et reguláris observántiæ jugo se subjíciens, contemplatióni in primis déditus, mira Dei luce perfundebátur, ádeo ut de rebus cæléstibus, litterárum expers, mirándum in modum et plane divínitus loquerétur. Canáriis in ínsulis multa perpéssus, martýrii æstuans desidério, plures infidéles verbo et exémplo ad Christi fidem convértit. Romæ in convéntu Aræ cæli ægrotórum curæ destinátus, miro caritátis afféctu hoc munus exércuit. Grátia ínsuper curatiónum in eo elúxit. Demum Complúti piíssime ex hac vita migrávit, anno Dómini millésimo quadringentésimo sexagésimo tértio. Illum, multis miráculis clarum, Xystus quintus Sanctórum número adscrípsit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Nolíte timére, de Comm. Conf. non Pont. 2 loco. [105]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui dispositióne mirábili infírma mundi éligis, ut fórtia quæque confúndas : concéde propítius humilitáti nostræ : ut, piis beáti Dídaci Confessóris tui précibus, ad perénnem in cælis glóriam sublimári mereámur. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 14 Novembris
+
+## S. Josaphat
+
+{RUBRIC: Ep. et Mart. [29] Duplex}
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus \* pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+**Oratio**
+
+EXcita, quæsumus, Dómine, in Ecclésia tua Spíritum, quo replétus beátus Jósaphat Martyr et Póntifex tuus ánimam suam pro óvibus pósuit : ut, eo intercedénte, nos quoque eódem Spíritu moti ac roboráti, ánimam nostram pro frátribus pónere non vereámur. Per Dóminum... in unitáte ejúsdem Spíritus.
+
+{RUBRIC: Et fit Commem. præced.}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui dispositióne mirábili infírma mundi éligis, ut fórtia quæque confúndas : concéde propítius humilitáti nostræ : ut, piis beáti Dídaci Confessóris tui précibus, ad perénnem in cælis glóriam sublimári mereámur. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+JOsaphat Kuncewítius, nobílibus et cathólicis paréntibus Vladimíriæ in Volhínia natus, cum púerulus matrem de Christi passióne loquéntem audíret, jáculo e látere imáginis Jesu crucifíxi immísso, vulnus in corde suscépit. Dei amóre incénsus, ádeo oratióni aliísque piis opéribus instáre cœpit, ut provectióribus adolescéntibus exémplo et admiratióni esset. Vicénnis inter claustráles sancti Basílii alúmnos monásticam régulam proféssus, mirum quos in evangélica perfectióne progréssus fécerit. Nudis pédibus, frigidíssima licet sæviénte regiónis híeme, incedébat; carnes numquam, vinum nónnisi ex obediéntia adhíbuit, asperrimóque cilício ad óbitum usque corpus afflíxit. Castitátis florem, quem ab adolescéntia Vírgini Deíparæ vóverat, inviolátum servávit.

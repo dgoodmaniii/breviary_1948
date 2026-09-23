@@ -40147,3 +40147,53 @@ Agnus Dei, qui tollis peccáta mundi, parce nobis, Dómine.
 Agnus Dei, qui tollis peccáta mundi, exáudi nos, Dómine.
 
 Agnus Dei, qui tollis peccáta mundi, miserére nobis.
+
+Christe, audi nos.
+
+Christe, exáudi nos.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+###### Psalmus 69
+
+DEus, in adjutórium meum inténde : \* Dómine, ad adjuvándum me festína.
+
+Confundántur et revereántur, \* qui quærunt ánimam meam.
+
+Avertántur retrórsum, et erubéscant, \* qui volunt mihi mala.
+
+Avertántur statim erubescéntes, \* qui dicunt mihi : Euge, euge.
+
+Exsúltent et læténtur in te omnes qui quærunt te, \* et dicant semper : Magnificétur Dóminus : qui díligunt salutáre tuum.
+
+Ego vero egénus, et pauper sum : \* Deus, ádjuva me.
+
+Adjútor meus, et liberátor meus es tu : \* Dómine, ne moréris.
+
+Glória Patri. Sicut erat.
+
+℣. Salvos fac servos tuos. ℟. Deus meus, sperántes in te.
+
+℣. Esto nobis, Dómine, turris fortitúdinis. ℟. A fácie inimíci.
+
+℣. Nihil profíciat inimícus in nobis. ℟. Et fílius iniquitátis non appónat nocére nobis.
+
+℣. Dómine, non secúndum peccáta nostra fácias nobis. ℟. Neque secúndum iniquitátes nostras retríbuas nobis.
+
+℣. Orémus pro Pontífice nostro N. ℟. Dóminus consérvet eum, et vivíficet eum, et beátum fáciat eum in terra, et non tradat eum in ánimam inimicórum ejus.
+
+℣. Orémus pro benefactóribus nostris. ℟. Retribúere dignáre, Dómine, ómnibus, nobis bona faciéntibus propter nomen tuum, vitam ætérnam. Amen.
+
+℣. Orémus pro fidélibus defúnctis. ℟. Réquiem ætérnam dona eis, Dómine, et lux perpétua lúceat eis.
+
+℣. Requiéscant in pace. ℟. Amen.
+
+℣. Pro frátribus nostris abséntibus. ℟. Salvos fac servos tuos, Deus meus, sperántes in te.
+
+℣. Mitte eis, Dómine, auxílium de sancto. ℟. Et de Sion tuére eos.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.

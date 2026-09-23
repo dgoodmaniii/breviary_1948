@@ -29260,4 +29260,73 @@ DEus, qui beátum Felícem Confessórem tuum ex erémo ad munus rediméndi capt�
 
 ##### Lectio iv
 
-JOachim lectíssimam illam ac summis láudibus dignam mulíerem Annam matrimónio sibi copulávit. Verum, quemádmodum prisca illa Anna, cum sterilitátis morbo laboráret, per oratiónem ac promissiónem, Samuélem procreávit; eódem modo hæc étiam, per obsecratiónem et promissiónem, Dei Genitrícem a Deo accépit, ut ne hic quoque cuíquam ex illústribus matrónis céderet. Itaque grátia (nam hoc sonat Annæ vocábulum) Dóminam parit (id enim Maríæ nómine significátur). Vere étenim rerum ómnium conditárum Dómina facta est, cum Creatóris Mater éxstitit. In lucem autem éditur in domo probáticæ Jóachim, atque ad templum addúcitur.
+JOachim lectíssimam illam ac summis láudibus dignam mulíerem Annam matrimónio sibi copulávit. Verum, quemádmodum prisca illa Anna, cum sterilitátis morbo laboráret, per oratiónem ac promissiónem, Samuélem procreávit; eódem modo hæc étiam, per obsecratiónem et promissiónem, Dei Genitrícem a Deo accépit, ut ne hic quoque cuíquam ex illústribus matrónis céderet. Itaque grátia (nam hoc sonat Annæ vocábulum) Dóminam parit (id enim Maríæ nómine significátur). Vere étenim rerum ómnium conditárum Dómina facta est, cum Creatóris Mater éxstitit. In lucem autem éditur in domo probáticæ Jóachim, atque ad templum addúcitur. Ac deínde, in domo Dei plantáta atque per Spíritum sagináta, instar olívæ frugíferæ virtútum ómnium domicílium efficítur; ut quæ vidélicet ab omni hujúsce vitæ et carnis concupiscéntia mentem abstraxísset, atque ita vírginem una cum córpore ánimam conservásset, ut eam decébat, quæ Deum sinu suo exceptúra erat.
+
+℟. Sicut cedrus exaltáta sum in Líbano, et sicut cypréssus in monte Sion : quasi myrrha elécta, \* Dedi suavitátem odóris. ℣. Et sicut cinnamómum et bálsamum aromatízans. — Dedi.
+
+{RUBRIC: Ex libro sancti Ambrósii Epíscopi de Vírginibus (Liber 2, post inítium)}
+
+##### Lectio v
+
+TAlis fuit María, ut ejus uníus vita ómnium sit discíplina. Si ígitur auctor non displicet, opus probémus; ut, quæcúmque sibi ejus exóptat prǽmium, imitétur exémplum. Quantæ in una Vírgine spécies virtútum émicant! Secrétum verecúndiæ, vexíllum fídei, devotiónis obséquium; virgo intra domum, comes ad ministérium, mater ad templum. O quantis illa virgínibus occúrret; quantas compléxa, ad Dóminum trahet, dicens : Hæc torum fílii mei, hæc thálamos nuptiáles immaculáto servávit pudóre!
+
+℟. Quæ est ista quæ procéssit sicut sol, et formósa tamquam Jerúsalem? \* Vidérunt eam fíliæ Sion, et beátam dixérunt, et regínæ laudavérunt eam. ℣. Et sicut dies verni circúmdabant eam flores rosárum et lília convállium. — Vidérunt.
+
+##### Lectio vi
+
+QUid ergo éxsequar cibórum parsimóniam, officiórum redundántiam : álterum ultra natúram superfuísse, álterum pene ipsi natúræ defuísse? Illic nulla intermíssa témpora, hic congeminátos jejúnio dies. Et, si quando reficiéndi successísset volúntas, cibus plerúmque óbvius, qui mortem arcéret, non delícias ministráret. Dormíre non prius cupíditas quam necéssitas fuit; et tamen, cum quiésceret corpus, vigiláret ánimus, qui frequénter in somnis aut lecta répetit, aut somno interrúpta contínuat, aut dispósita gerit, aut gerénda prænúntiat.
+
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit : \* Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt, dicéntes : \* Unguéntum effúsum nomen tuum. ℣. Astitit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et. Glória Patri. Unguéntum.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Loquénte Jesu. [186]}
+
+{RUBRIC: In ℟. vii dícitur : tuam sanctam Præsentatiónem.}
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+**Ad Bened. Ant.** Beáta es, \* María, quæ credidísti : perficiéntur in te, quæ dicta sunt tibi a Dómino, allelúja.
+
+**Oratio**
+
+DEus, qui beátam Maríam semper Vírginem, Spíritus Sancti habitáculum, hodiérna die in templo præsentári voluísti : præsta, quæsumus; ut, ejus intercessióne, in templo glóriæ tuæ præsentári mereámur. Per Dóminum... in unitáte ejúsdem Spíritus Sancti Deus.
+
+#### IN II VESPERIS
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+**Ad Magnif. Ant.** Beáta Dei Génitrix, María, \* Virgo perpétua, templum Dómini, sacrárium Spíritus Sancti, sola sine exémplo placuísti Dómino nostro Jesu Christo, allelúja.
+
+{RUBRIC: Et fit Commem. sequéntis.}
+
+---
+
+# Die 22 Novembris
+
+## S. Caeciliae
+
+{RUBRIC: Virg. et Mart. Duplex}
+
+#### IN I VESPERIS
+
+{RUBRIC: Quando I Vésperæ dicéndæ sint íntegræ, Ant. erunt de Laud. 840; Psalmi ut in Communi Festórum B. Maríæ Vírginis [174]; Capítulum et Hymnus de Laudibus. 840}
+
+**Ant.** Est secrétum, Valeriáne, quod tibi volo dícere : Angelum Dei hábeo amatórem, qui nímio zelo custódit corpus meum.
+
+℣. Spécie tua et.
+
+**Oratio**
+
+DEus, qui nos ánnua beátæ Cæcíliæ Vírginis et Mártyris tuæ solémnitáte lætíficas : da, ut quam venerámur offício, étiam piæ conversatiónis sequámur exémplo. Per Dóminum.
+
+#### AD MATUTINUM
+
+**Invit.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+**Hymnus**
+
+VIrginis Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis partos cánimus decóra
+Morte triúmphos.

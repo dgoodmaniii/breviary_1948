@@ -28005,4 +28005,83 @@ PLúribus in locis Clericórum regulárium órdinem propagávit, eorúmdem domic
 
 ##### Lectio ix
 
-ANdréas Avellínus, dictus ántea Lancellóttus, apud Castrum Novum Lucániæ natus, Neápoli láuream jurisprudéntiæ adéptus et sacerdótio auctus, causárum patrocínia, in foro dumtáxat ecclesiástico, ágere cœpit.
+ANdréas Avellínus, dictus ántea Lancellóttus, apud Castrum Novum Lucániæ natus, Neápoli láuream jurisprudéntiæ adéptus et sacerdótio auctus, causárum patrocínia, in foro dumtáxat ecclesiástico, ágere cœpit. Sed, cum aliquándo inter causam agéndam leve ei mendácium excidísset et in ea Scriptúræ verba incidísset : Os, quod méntitur, occídit ánimam; ejus culpæ dolóre corréptus, forénsibus curis valedíxit atque, ut inter Cléricos reguláres adscriberétur, supplíciter postulávit. Votíque compos factus, ob ingéntem, quo æstuábat, crucis amórem, ut sibi Andréæ nomen imponerétur, précibus impetrávit. Abstinéntia et patiéntia, nec non abjectióne atque ódio sui summópere præstitit. Clericórum regulárium órdinem mirífice propagávit. Deíparam Vírginem singulári amóre et cultu prosequebátur. Post heróica virtútum exémpla, annis gravis et fractus labóribus, Missam celebratúrus, in verbis illis tértio repetítis : Introíbo ad altáre Dei, apopléctico morbo corréptus, mox sacraméntis munítus, plácide exspirávit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Evang. Sint lumbi vestri, de Communi Conf. non Pont. 1 loco. [98]}
+
+{RUBRIC: Pro Ss. Tryphone, Respicio et Nympha Virg., Mm.}
+
+##### Lectio ix
+
+TRyphon, Décio imperatóre, cum, Jesu Christi fidem prǽdicans, omnes ad ejus cultum perdúcere conarétur, a Décii satellítibus comprehénsus, primum equúleo torquétur et úngulis férreis excarnificátur; deínde, sublímibus pédibus candéntibus clavis confíxus, fústibus cǽditur, et, admótis fácibus ardéntibus, adúritur. Quæ cum ómnia fórtiter feréntem vidísset Respícius tribúnus, ad Christi Dómini fidem convérsus, statim se christiánum esse palam proféssus est. Qui, várie cruciátus, una cum Tryphóne rápitur ad Jovis simulácrum; quæ státua, Tryphóne oránte, cóncidit. Quare plumbátis crudelíssime contúsi, nobilíssimum martýrium consecúti sunt quarto Idus Novémbris. Eódem die quædam, cui nomen Nympha, cum Jesum Christum verum esse Deum clara voce testarétur, martýrii palmam ad virginitátis corónam adjúnxit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui in corde beáti Andréæ Confessóris tui, per árduum quotídie in virtútibus proficiéndi votum, admirábiles ad te ascensiónes disposuísti : concéde nobis, ipsíus méritis et intercessióne, ita ejúsdem grátiæ partícipes fíeri : ut, perfectióra semper exsequéntes, ad glóriæ tuæ fastígium felíciter perducámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. Ss. Tryphonis, Respicii et Nymphæ Virg., Mm. :}
+
+**Ant.** Vestri capílli cápitis omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+℣. Exsultábunt Sancti.
+
+**Oratio**
+
+FAC nos, quæsumus, Dómine, sanctórum Mártyrum tuórum Tryphónis, Respícii et Nymphæ semper festa sectári : quorum suffrágiis, protectiónis tuæ dona sentiámus. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis et S. Mennæ Mart.}
+
+---
+
+# Die 11 Novembris
+
+## S. Martini
+
+{RUBRIC: Ep. et Conf. [69] Duplex}
+
+#### IN I VESPERIS
+
+{RUBRIC: Si dicéndæ sint íntegræ, Ant. erunt de Laud. 794; Psalmi ut in I Vesp. de Communi App. [3]}
+
+{RUBRIC: Capit. Eccli. 44, 16-17}
+
+ECce sacérdos magnus, qui in diébus suis plácuit Deo, et invéntus est justus : et in témpore iracúndiæ factus est reconciliátio.
+
+**Hymnus**
+
+ISte Conféssor Dómini, coléntes
+Quem pie laudant pópuli per orbem,
+Hac die lætus méruit beátas
+Scándere sedes.
+
+Qui pius, prudens, húmilis, pudícus,
+Sóbriam duxit sine labe vitam,
+Donec humános animávit auræ
+Spíritus artus.
+
+Cujus ob præstans méritum, frequénter
+Ægra quæ passim jacuére membra,
+Víribus morbi dómitis, salúti
+Restituúntur.
+
+Noster hinc illi chorus obsequéntem
+Cóncinit laudem celebrésque palmas,
+Ut piis ejus précibus juvémur
+Omne per ævum.
+
+Sit salus illi, decus atque virtus,
+Qui, super cæli sólio corúscans,
+Tótius mundi sériem gubérnat
+Trinus et unus. Amen.
+
+℣. Amávit eum Dóminus.

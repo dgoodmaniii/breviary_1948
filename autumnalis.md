@@ -37652,4 +37652,46 @@ MAgnum revéra miráculum, fratres dilectíssimi, fuit beáta semper Virgo Marí
 
 HÆC ejus mater est, qui a Patre ante omne princípium génitus fuit, quem Angeli et hómines agnóscunt Dóminum rerum ómnium. Visne cognóscere, quanto Virgo hæc præstántior sit cæléstibus Poténtiis? Illæ cum timóre et tremóre assístunt, fáciem velántes suam : hæc humánum genus illi offert, quem génuit. Per hanc et peccatórum véniam conséquimur. Ave ígitur, mater, cælum, puélla, virgo, thronus, Ecclésiæ nostræ decus, glória et firmaméntum : assídue pro nobis precáre Jesum, Fílium tuum et Dóminum nostrum, ut per te misericórdiam inveníre in die judícii, et quæ repósita sunt iis, qui díligunt Deum, bona cónsequi possímus, grátia et benignitáte Dómini nostri Jesu Christi : cum quo Patri simul et Sancto Spirítui glória, et honor, et impérium, nunc et semper in sæcula sæculórum. Amen.
 
-℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit : \* Et vidéntes eam fíliæ Sion, beatíssi-
+℟. Ornátam monílibus fíliam Jerúsalem Dóminus concupívit : \* Et vidéntes eam fíliæ Sion, beatíssi-mam prædicavérunt, dicéntes : \* Unguéntum effúsum nomen tuum. ℣. Astitit regína a dextris tuis in vestítu deauráto, circúmdata varietáte. — Et vidéntes eam fíliæ Sion, beatíssimam prædicavérunt dicéntes. **Glória Patri.** Unguéntum.
+
+### In III Nocturno
+
+**Ant.** Gaude, María Virgo : \* cunctas hǽreses sola interemísti in univérso mundo.
+
+###### Psalmus 95
+
+CAntáte Dómino cánticum novum : \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus : \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis : \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia : \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus : \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem : \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus : \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra : \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur : \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+**Ant.** Gaude, María Virgo : cunctas hǽreses sola interemísti in univérso mundo.
+
+**Ant.** Dignáre me \* laudáre te, Virgo sacráta : da mihi virtútem contra hostes tuos.
+
+###### Psalmus 96
+
+DOminus regnávit, exsúltet terra : \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : \* justítia, et judícium corréctio sedis ejus.

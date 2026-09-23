@@ -27777,3 +27777,41 @@ APóstoli, discípuli Christi, credéntium magístri habéntur; e quibus erudít
 *Cap. 5, 1-12*
 
 IN illo témpore : Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi (Liber 1 de Sermóne Dómini in monte, cap. 4)}
+
+IN primo gradu, sicut oportébat, pósitum est regnum cælórum, quod est perféctæ summæque sapiéntiæ ánimæ rationális. Sic ítaque dictum est : Beáti páuperes spíritu; quóniam ipsórum est regnum cælórum; tamquam dicerétur : Inítium sapiéntiæ timor Dómini. Mítibus heréditas data est, tamquam testaméntum Patris cum pietáte quæréntibus : Beáti mites; quóniam ipsi hereditáte possidébunt terram. Lugéntibus consolátio, tamquam sciéntibus quid amíserint et quibus mersi sunt : Beáti qui lugent nunc; quóniam ipsi consolabúntur. Esuriéntibus et sitiéntibus satúritas, tamquam reféctio laborántibus fortitérque certántibus ad salútem : Beáti qui esúriunt et sítiunt justítiam; quóniam ipsi saturabúntur.
+
+℟. Amávit eos Dóminus, et ornávit eos : stolam glóriæ índuit eos, \* Et ad portas paradísi coronávit eos. ℣. Induit eos Dóminus lorícam fídei, et ornávit eos. — Et ad portas.
+
+##### Lectio viii
+
+MIsericórdibus misericórdia, tamquam vero et óptimo consílio uténtibus, ut hoc eis exhibeátur a potentióre, quod invalidióribus ipsi éxhibent : Beáti misericórdes; quóniam ipsórum miserébitur Deus. Mundis corde facúltas est vidéndi Deum, tamquam purum óculum ad intelligénda ætérna geréntibus : Beáti mundo corde; quóniam ipsi Deum vidébunt. Pacíficis Dei similitúdo est, tamquam perfécte sapiéntibus, formatísque ad imáginem Dei per regeneratiónem renováti hóminis : Beáti pacífici; quóniam ipsi fílii Dei vocabúntur. Et ista quidem in hac vita possunt compléri, sicut compléta esse in Apóstolis crédimus. Nam illa omnímoda et in angélicam formam mutátio, quæ post hanc vitam promíttitur, nullis verbis expóni potest.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti. Glória Patri. Isti.
+
+##### Lectio ix
+
+BEáti ergo, qui persecutiónem patiúntur propter justítiam; quóniam ipsórum est regnum cælórum. Hæc octáva senténtia, quæ ad caput redit perfectúmque hóminem declárat, significátur fortásse et circumcisióne octávo die in véteri Testaménto; et Dómini resurrectióne post sábbatum, qui est útique octávus idémque primus dies; et celebratióne octavárum feriárum, quas in regeneratióne novi hóminis celebrámus; et número ipso Pentecóstes. Nam septenário número sépties multiplicáto, quo fiunt quadragínta novem, quasi octávus ádditur, ut quinquagínta compleántur. Et tamquam redeátur ad caput, quo die missus est Spíritus Sanctus, eo in regnum cælórum dúcimur, et hereditátem accípimus, et consolámur, et páscimur, et misericórdiam conséquimur, et mundámur, et pacificámur. Atque, ita perfécti, omnes extrínsecus illátas moléstias pro veritáte et justítia sustinémus.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Vésperæ de sequénti die Octáva, Commem. Ss. Quátuor Coronatórum Mm.}
+
+---
+
+# Die 8 Novembris
+
+## In Octava Omnium Sanctorum
+
+{RUBRIC: Duplex majus 722}
+
+{RUBRIC: In I Vésperis fit Commem. Ss. Quátuor Coronatórum Mm. :}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Exsultábunt Sancti.
+
+**Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.

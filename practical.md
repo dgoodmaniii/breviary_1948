@@ -1697,4 +1697,66 @@ Since, in this illustration, the second Vespers of to-day's feast (double of the
 [^122]: Here it cannot be a question of major *privileged* ferials since these Offices exclude all other Offices that may occur.
 [^123]: That is, the Vespers other than that actually recited at the time commemorations are made.
 
+3d, doubles:
+
+&nbsp;&nbsp;&nbsp;&nbsp;double major octave-day,
+&nbsp;&nbsp;&nbsp;&nbsp;double major,
+&nbsp;&nbsp;&nbsp;&nbsp;double minor;
+
+4th, semi-doubles:
+
+&nbsp;&nbsp;&nbsp;&nbsp;semi-double,
+&nbsp;&nbsp;&nbsp;&nbsp;day within octave of the third order,
+&nbsp;&nbsp;&nbsp;&nbsp;day within a common octave,[^124]
+&nbsp;&nbsp;&nbsp;&nbsp;Friday after the octave of the Ascension;[^125]
+
+5th, simples:
+
+&nbsp;&nbsp;&nbsp;&nbsp;major ferial,
+&nbsp;&nbsp;&nbsp;&nbsp;common vigil,
+&nbsp;&nbsp;&nbsp;&nbsp;octave-day of simple rite,
+&nbsp;&nbsp;&nbsp;&nbsp;simple.
+
+(d) Doubles (major or minor) and semi-doubles which may not be commemorated, according to the Rubrics, are entirely omitted that year.
+
+[^124]: A day within a common octave is, no doubt, a semi-double, but it is *secondary* (i. e., in practice it is lower than the ordinary semi-double). Sometimes the word "semi-double" does not refer at all to a day within a common octave; thus, for instance, the *New Rubrics*, tit. VII., nn. 1 and 2, speak of "*de quolibet semiduplici*," which excludes a day within a common octave, as may be verified in the Table of Occurrence.
+[^125]: This is a kind of privileged ferial from the fact that it comes — all alone — between the privileged octave of the Ascension and the privileged vigil of Pentecost.
+
+### Rules in Particular
+
+**104.** (a) *Vigils* are commemorated in Lauds only, and not even in Lauds if:
+
+1st, the vigil falls on a *major ferial* (a commemoration, however, is made in the Mass);
+
+2d, the vigil *accidentally*[^126] concurs or occurs with a double of the first class (the vigil of the Epiphany is an exception).
+
+(b) *Doubles* (major or minor) are commemorated in Lauds and both Vespers. Exceptions:
+
+1st, on doubles of the first class they are commemorated in Lauds (and in private Masses) only;
+2d, on feasts of the Lord which are primary doubles of the first class in the Universal Church they are not commemorated at all.
+
+(c) *Semi-doubles* are likewise commemorated in Lauds and both Vespers. Exceptions:
+
+1st, on doubles of the first class they are commemorated in Lauds (and in private Masses) only. Moreover, on feasts of the Lord which are primary doubles of the first class in the Universal Church they are not commemorated at all.
+
+2d, a day within a common octave is also commemorated in Lauds and both Vespers, except when it *occurs* or *concurs* with either a double of the first or second class.
+
+(d) *Simples* are commemorated in first Vespers and Lauds (they have no second Vespers). Exceptions:
+
+1st, if they occur or concur with a double of the first class they are entirely omitted;
+
+[^126]: A vigil which is *perpetually* impeded by a double of the first class and a vigil which falls on a Sunday are anticipated.
+
+2d, if they *occur* with a double of the second class, they are commemorated in Lauds only; but if they *concur* with a double of the second class they are entirely omitted.
+
+(e) In *concurrence*, the Vespers of one Office will be recited at least from the *Capitulum* on. Now, as a general rule, commemoration is made of the *other* concurring Office or Offices. Exceptions (besides those already mentioned):
+
+1st, in the first Vespers of a double of the first class, no commemoration is made of a preceding Office which is not a double of the second class or higher rite;
+
+2d, in the first Vespers of a double of the second class, no commemoration is made of a preceding semi-double.
+
+N. B. It has been taken for granted that throughout these rules the student has not forgotten what was said in (a) and (b).
+
+**105.** Another plan of commemorations is given in the Appendix (n. 7). Only doubles of the first and second class have been treated of, but for other Offices of inferior rite it may be said that, as a general rule, commemoration of occurring and concurring Offices is *always* made where commemorations may be made (i. e., in Lauds and both Vespers) when they are at all possible. (No one can make a commemoration of the second Vespers of a simple, because a simple has no second Vespers.)
+
 ---

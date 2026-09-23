@@ -34590,3 +34590,30 @@ QUI timet Dóminum, excípiet doctrínam ejus : et qui vigiláverint ad illum, i
 ℟. Justus germinábit sicut lílium : \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et florébit.
 
 **Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+*Cap. 34, 14-20*
+
+SPíritus timéntium Deum quæritur, et in respéctu illíus benedicétur. Spes enim illórum in salvántem illos, et óculi Dei in diligéntes se. Qui timet Dóminum, nihil trepidábit, et non pavébit : quóniam ipse est spes ejus. Timéntis Dóminum beáta est ánima ejus. Ad quem réspicit, et quis est fortitúdo ejus? Óculi Dómini super timéntes eum : protéctor poténtiæ, firmaméntum virtútis, tégimen ardóris, et umbráculum meridiáni, deprecátio offensiónis et adjutórium casus, exáltans ánimam et illúminans óculos, dans sanitátem et vitam et benedictiónem.
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum : \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et invéntus. **Glória Patri.** Et invéntus.
+
+### In II Nocturno
+
+℣. Os justi meditábitur sapiéntiam.
+℟. Et lingua ejus loquétur judícium.
+
+**Absol.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Joánnis Chrysóstomi}
+{RUBRIC: Oratio de S. Philogonio}
+
+#### Lectio iv
+
+BEáti N. dies, cujus festivitátem celebrámus, ad ipsíus recte factórum enarratiónem linguam nostram evocávit. Síquidem hódie Beátus iste ad tranquíllam omnísque perturbatiónis expértem vitam tránsiit; eóque navígium áppulit, ubi deínceps non póterit metúere naufrágium, nec ullam ánimi perturbatiónem aut dolórem. Et quid mirum est, si locus ille purus est ab omni moléstia ánimi, cum Paulus, homínibus adhuc in hac vita degéntibus loquens, dicat : Semper gaudéte, sine intermissióne oráte?
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+**Bened.** Christus perpétuæ.

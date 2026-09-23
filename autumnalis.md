@@ -28584,3 +28584,65 @@ MArtínus, Tudérti in Umbria natus, ínitio pontificátus, et lítteris et lega
 QUÆ causa fuit Constánti mitténdi in Itáliam Olýmpium exárchum, ut Martínum Pontíficem interficiéndum aut ad se perducéndum curáret. Igitur Olýmpius, Romam véniens, lictóri mandat ut Pontíficem, dum in basílica sanctæ Maríæ ad Præsépe Missárum solémnia celebráret, occíderet. Quod ubi lictor aggréditur, cæcus repénte factus est.
 
 ℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+##### Lectio vi
+
+COnstánti autem imperatóri ex eo témpore multæ calamitátes incidérunt; quibus níhilo mélior factus, Theodórum Calliópam ad Urbem mittens, imperat ut Pontífici manus injíciat. A quo per fraudem captus Martínus et Constantinópolim perdúctus, deínde in Chersonésum relegátus; ibi ob cathólicam fidem ærúmnis conféctus, sextodécimo Kaléndas Octóbris cessit e vita, clarus miráculis. Cujus corpus, Romam póstea translátum, in ecclésia cónditum est, quæ sanctórum Silvéstri et Martíni nómine dedicáta erat. Præfuit Ecclésiæ annos sex, mensem unum, dies vigínti sex. Hábuit ordinatiónes duas mense Decémbri, quibus creávit presbýteros úndecim, diáconos quinque, epíscopos per divérsa loca trigínta tres.
+
+℟. Stola jucunditátis índuit eum Dóminus : \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+MArtínus, Tudérti in Umbria natus, ínitio pontificátus, et lítteris et legatiónibus missis óperam dedit, ut ad cathólicam veritátem revocáret Paulum Constantinopolitánum hæréticum, qui, Constánte imperatóre fretus, vel ipsos apostólicæ Sedis legátos várias in ínsulas relegáverat. Hoc scélere commótus Póntifex, coácto Romæ concílio centum quinque episcopórum, eum condemnávit. Quo duránte concílio, imperátor in Itáliam Olýmpium exárchum misit, qui Summum Pontíficem extrúderet. Verum cum Olýmpius nullum Martíno malum inférre potuísset, et mox misérrime decessísset; Theodórus Calliópas, jussu imperatóris, basílica Lateranénsi proximísque pontificálibus ædibus occupátis, Martínum vi captum primo in ínsulam Naxum relegávit, dein Constantinópolim perdúxit. Ibi sanctus Póntifex, in víncula conjéctus, ludíbria et contumélias expértus est, donec pulsus in Chersonésum, ob cathólicam fidem ærúmnis et inópia conféctus, cessit e vita, pontificátus sui anno octávo incépto. Ejus corpus, Romam póstea translátum, in ecclésia cónditum est, quæ sanctórum Silvéstri et Martíni nómine dedicáta est.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Venit Jesus, de Communi uníus vel plúrium Summórum Pontíficum. [28¹]}
+
+{RUBRIC: ℟. viii Dómine, prævenísti. [28³]}
+
+#### AD LAUDES
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio**
+
+GRegem tuum, Pastor ætérne, placátus inténde : et per beátum Martínum Mártyrem tuum atque Summum Pontíficem, perpétua protectióne custódi; quem totíus Ecclésiæ præstitísti esse pastórem. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 13 Novembris
+
+## S. Didaci
+
+{RUBRIC: Conf. [94] Semiduplex}
+
+{RUBRIC: Si de hoc Festo in I Vésperis facta fúerit tantum Commemoratio, m. t. v.}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui dispositióne mirábili infírma mundi éligis, ut fórtia quæque confúndas : concéde propítius humilitáti nostræ; ut, piis beáti Dídaci Confessóris tui précibus, ad perénnem in cælis glóriam sublimári mereámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** Qui vult veníre post me, ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+℣. Justus ut palma.
+
+{RUBRIC: Oratio Gregem tuum, ut supra.}
+
+### In II Nocturno
+
+##### Lectio iv
+
+DIdacus, Hispánus, ex óppido sancti Nicolái de Portu diœcésis Hispalénsis, ab ineúnte ætáte, pii sub sacerdótis discíplina, sanctióris vitæ, solitária in ecclésia, tirocínium exércuit. Deínde, ut firmius Deo se conjúngeret, in convéntu de Arizzáta fratrum Minórum (quos Observántes vocant) sancti Francísci régulam in statu laicáli proféssus est.

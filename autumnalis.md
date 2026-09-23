@@ -38446,3 +38446,27 @@ Kýrie, eléison. Christe, eléison. Kýrie, eléison.
 FAmulórum tuórum, quǽsumus, Dómine, delíctis ignósce : ut, qui tibi placére de áctibus nostris non valémus; Genitrícis Fílii tui, Dómini nostri, intercessióne salvémur : Qui tecum vivit.
 
 ---
+
+# Officium Defunctorum
+
+{RUBRIC: Dícitur in Choro in die depositiónis et áliis diébus pro témporis opportunitáte et ecclesiárum consuetúdine : Vésperæ post Vésperas diei; Matutínum cum Láudibus post Laudes diei, immédiate post ℣. Benedicámus Dómino et Deo grátias. Et non duplicántur Antíphonæ prǽterquam in die depositiónis, in die post accéptum mortis núntium, et tértio, séptimo, trigésimo, et anniversário, étiam late sumpto; et quóties solémniter celebrátur Offícium. In fine vero ómnium Psalmórum semper dícitur : Réquiem ætérnam \* dona eis, Dómine. Et lux perpétua \* lúceat eis étiam si pro uno tantum fiat Offícium.}
+
+#### AD VESPERAS
+
+{RUBRIC: Quóties Vésperæ vel delatiónem cadáveris ad ecclésiam ac Responsórium Subveníte vel Offícium diei curréntis immédiate non sequántur, dícitur secréto Pater noster et Ave María; secus absolúte incípitur ab}
+
+**Ant.** Placébo Dómino \* in regióne vivórum.
+
+###### Psalmus 114
+
+DIléxi, quóniam exáudiet Dóminus \* vocem oratiónis meæ.
+
+Quia inclinávit aurem suam mihi : \* et in diébus meis invocábo.
+
+Circumdedérunt me dolóres mortis : \* et perícula inférni invenérunt me.
+
+Tribulatiónem et dolórem invéni : \* et nomen Dómini invocávi.
+
+O Dómine, líbera ánimam meam : \* miséricors Dóminus, et justus, et Deus noster miserétur.
+
+Custódiens párvulos Dóminus : \* humiliátus sum, et liberávit me.

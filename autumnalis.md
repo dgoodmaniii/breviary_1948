@@ -41728,4 +41728,44 @@ EXáudi nos, Dómine sancte, Pater omnípotens, ætérne Deus : et míttere dign
 
 {RUBRIC: Formula brévior (approbáta a S. R. C. die 23 Nov. 1918)}
 
-ADlaudem et glóriam Deíparæ Vírginis Maríæ, in memóriam mystériórum vitæ, mortis et re-
+ADlaudem et glóriam Deíparæ Vírginis Maríæ, in memóriam mystériórum vitæ, mortis et re-surrectiónis ejúsdem Dómini nostri Jesu Christi, bene ✠ dicá(n)tur et sancti ✠ ficé(n)tur hæc (hæ) sacratíssimi Rosárii coróna (æ) : in nómine Patris, et Fílii, ✠ et Spíritus Sancti. Amen.
+
+{RUBRIC: Stola et aqua benedícta adhibéri possunt ad libítum.}
+
+{RUBRIC: Si fúerint plures corónæ dicátur in plurali.}
+
+---
+
+## Benedictio ad quodcumque comestibile
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+**Oratio**
+
+BEnedic, ✠ Dómine, creatúram istam N., ut sit remédium salutáre géneri humáno : et præsta per invocatiónem sancti nóminis tui; ut, quicúmque ex ea súmpserint, córporis sanitátem et ánimæ tutélam percípiant. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Aspérgat aqua benedícta.}
+
+---
+
+## Benedictio ad omnia
+
+{RUBRIC: Hæc benedictiónis fórmula adhibéri potest a quóvis Sacerdóte pro ómnibus rebus, de quibus speciális benedíctio non habétur in Rituáli Románo.}
+
+℣. Adjutórium nostrum in nómine Dómini. ℟. Qui fecit cælum et terram.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+**Oratio**
+
+DEus, cujus verbo sanctificántur ómnia, benedictiónem tuam effúnde super creatúram istam (vel creatúras istas) : et præsta; ut, quisquis ea (vel eis) secúndum legem et voluntátem tuam cum gratiárum actióne usus fúerit, per invocatiónem sanctíssimi Nóminis tui, córporis sanitátem et ánimæ tutélam, te auctóre, percípiat. Per Christum Dóminum nostrum. ℟. Amen.
+
+{RUBRIC: Deinde illam (vel illas) Sacerdos aspérgit aqua benedícta.}
+
+---

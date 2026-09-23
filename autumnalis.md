@@ -28816,4 +28816,52 @@ UT scientiárum thesáuris álios ditáret, lector Hildeshémii, deínceps Frib�
 
 ##### Lectio vi
 
-TOT inter gravíssima múnia, religiósæ vitæ exémplis præfúlgens, a frátribus Prior Teutóniæ provínciæ eléctus est. Anagníam vocátus, Guliélmum, Órdines mendicántes ímpio ausu impeténtem, coram Summo Pontífice Alexándro quarto rétudit, qui Epíscopum Ratisbonénsem eum póstea constítuit. Curæ sui gregis Albértus se totum impéndit, morum humilitáte ac paupertátis amóre studiosíssime reténtis. Dimísso offício, ad episcopális tamen órdinis labóres promptus atque álacer per Germániam et finítimas regiónes spirituália ministrávit.
+TOT inter gravíssima múnia, religiósæ vitæ exémplis præfúlgens, a frátribus Prior Teutóniæ provínciæ eléctus est. Anagníam vocátus, Guliélmum, Órdines mendicántes ímpio ausu impeténtem, coram Summo Pontífice Alexándro quarto rétudit, qui Epíscopum Ratisbonénsem eum póstea constítuit. Curæ sui gregis Albértus se totum impéndit, morum humilitáte ac paupertátis amóre studiosíssime reténtis. Dimísso offício, ad episcopális tamen órdinis labóres promptus atque álacer per Germániam et finítimas regiónes spirituália ministrávit. Consília requiréntibus quam recta ac salutífera sollícite præbébat, et in sedándis discórdiis tam prudéntem se osténdit, ut eum non solum Colónia pacis conciliatórem nóverit, verum étiam ad díssitas regiónes Prǽláti ac viri príncipes árbitrum componéndis dissídiis eum sæpe advocáverint. A sancto Ludóvico, Francórum rege, relíquiis Christi Passiónis, quam devotíssime Albértus colébat, donátus est. In áltero Concílio Lugdunénsi negótia gravióra perégit. Tandem, sénio consúmptus, docére déstitit. Contemplatióni exínde inténtus, in gáudium Dómini sui intrávit anno millésimo ducentésimo octogésimo. Sacros honóres in diœcésibus plúribus atque in Órdine Prædicatórum ei, Romanórum Pontíficum auctoritáte, jam ántea tribútos, Pius Papa undécimus cúmulans, Sancti Albérti Magni festum, áddito Doctóris título, Sacrórum Rítuum Congregatiónis votum libentíssime excípiens, ad Ecclésiam univérsam exténdit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. — Ipse.
+
+{RUBRIC: In III Nocturno Homilía in Evang. Vos estis sal terræ, de Communi Doctórum 1 loco.}
+
+{RUBRIC: Lectio pro festo commemorato ad Matutinum legénda juxta Rubricas.}
+
+##### Lectio ix
+
+ALbértus, ob singulárem doctrínam, cognoménto Magnus, Lauíngiæ ad Danúbium, in Suévia natus, a púero diligénter institútus, studiórum causa e pátria discédens, dum Patávii morarétur, hortánte beáto Jordáno, generáli magístro Ordinis Prædicatórum, frustra obsisténte avúnculo, Dominiciánæ famíliæ adscríbi postulávit. Inter fratres adléctus, religiósa observántia ac pietáte enítuit, et Beátam Maríam Vírginem summópere diléxit, animarúmque zelo flagrávit. Ad stúdia explénda, Colóniam Agrippínam missus fuit. Póstea Hildeshémii, Fribúrgi, Ratisbónæ et Argentínæ lector fuit constitútus. In Parisiénsi cáthedra multam sibi laudem comparávit. Thomam de Aquíno discípulum diléctum hábuit, ejúsque altitúdinem mentis primus perspéxit ac prædicávit. Anagníæ, coram Summo Pontífice Alexándro Quarto, Guliélmum, Órdines Mendicántes ímpio ausu impeténtem, rétudit, et póstea Epíscopus Ratisbonénsis fuit renuntiátus. In consíliis suppeditándis, in discórdiis componéndis mirífice se gessit, ádeo ut pacis conciliátor mérito fúerit appellátus. Plúrima scripta in omni fere scientiárum génere, præsértim sacrárum, exarávit, et de mirábili Altáris Sacraménto præclára compósuit. Virtútibus et miráculis claríssimus, óbiit in Dómino anno millésimo ducentésimo octogésimo. Cultum in plúribus Diœcésibus et in Ordine Prædicatórum jamdúdum, Romanórum Pontíficum auctoritáte, ei præstítum, Pius Papa Undécimus auxit, ejúsque festum, áddito Doctóris título, Sacrórum Rítuum Congregatiónis votum libénter excípiens, ad Univérsam Ecclésiam exténdit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.
+
+**Oratio**
+
+DEus, qui beátum Albértum Pontíficem tuum atque Doctórem, in humána sapiéntia divínæ fídei subjiciénda magnum effecísti : da nobis, quæsumus, ita ejus magistérii inhærére vestígiis : ut luce perfécta fruámur in cælis. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+# Die 16 Novembris
+
+## S. Gertrudis
+
+{RUBRIC: Virg. [111] Duplex}
+
+℣. Spécie tua et.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi : \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+**Oratio**
+
+DEus, qui in corde beátæ Gertrúdis Vírginis jucúndam tibi mansiónem præparásti : ipsíus méritis et intercessióne; cordis nostri máculas cleménter abstérge, et ejúsdem tríbue gaudére consórtio. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** O Doctor óptime, Ecclésiæ sanctæ lumen, beáte Albérte, divínæ legis amátor, deprecáre pro nobis Fílium Dei.
+
+℣. Justum dedúxit.
+
+{RUBRIC: Oratio Deus, qui beátum, ut supra.}

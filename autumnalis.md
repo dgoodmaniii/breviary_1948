@@ -20618,3 +20618,259 @@ Amen.
 DOmine Jesu Christe, qui, frigescénte mundo, ad inflammándum corda nostra tui amóris igne, in carne beatíssimi Francísci passiónis tuæ sacra Stígmata renovásti : concéde propítius; ut ejus méritis et précibus crucem júgiter ferámus, et dignos fructus pæniténtiæ faciámus : Qui vivis et regnas.
 
 {RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 18 Septembris — S. Josephi a Cupertino
+
+{RUBRIC: Confessoris [94] Duplex}
+
+#### IN I VESPERIS
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Mórtuus sum, \* et vita mea est abscóndita cum Christo in Deo.
+
+**Oratio**
+
+DEus, qui ad unigénitum Fílium tuum exaltátum a terra ómnia tráhere disposuísti : pérfice propítius; ut, méritis et exémplo seráphici Confessóris tui Joséphi, supra terrénas omnes cupiditátes eleváti, ad eum pervenire mereámur : Qui tecum vivit et regnat.
+
+{RUBRIC: Et fit Com. præcedentis}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Signásti, Dómine, servum tuum Franciscum. ℟. Signis redemptiónis nostræ.
+
+**Oratio** Dómine, ut supra.
+
+### In I Nocturno
+
+{RUBRIC: De Epístola secúnda beáti Pauli Apóstoli ad Corínthios}
+*Cap. 4, 6-11; 5, 1-8; 12, 1-9*
+
+##### Lectio i
+
+DEus, qui dixit de ténebris lucem splendéscere, ipse illúxit in córdibus nostris ad illuminatiónem sciéntiæ claritátis Dei in fácie Christi Jesu. Habémus autem thesáurum istum in vasis fictílibus, ut sublímitas sit virtútis Dei et non ex nobis. In ómnibus tribulatiónem pátimur, sed non angustiámur; aporiámur, sed non destitúimur; persecutiónem pátimur, sed non derelínquimur; dejícimur, sed non perímus; semper mortificatiónem Jesu in córpore nostro circumferéntes, ut et vita Jesu manifestétur in corpóribus nostris. Semper enim nos, qui vívimus, in mortem trádimur propter Jesum, ut et vita Jesu manifestétur in carne nostra mortáli.
+
+℟. Euge, serve bone et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam : \* Intra in gáudium Dómini tui. ℣. Dómine, quinque talénta tradidísti mihi, ecce ália quinque superlucrátus sum. — Intra.
+
+##### Lectio ii
+
+SCimus enim quóniam si terréstris domus nostra hujus habitatiónis dissolvátur, quod ædificatiónem ex Deo habémus, domum non manufáctam, ætérnam in cælis. Nam et in hoc ingemíscimus, habitatiónem nostram, quæ de cælo est, superíndui cupiéntes : si tamen vestíti, non nudi inveniámur. Nam et qui sumus in hoc tabernáculo, ingemíscimus gravati : eo quod nólumus exspoliári, sed supervéstiri, ut absorbeátur quod mortale est, a vita. Qui autem éfficit nos in hoc ipsum, Deus, qui dedit nobis pignus spíritus. Audéntes ígitur semper, sciéntes quóniam dum sumus in córpore, peregrinámur a Dómino : (per fidem enim ambulámus et non per spéciem) audémus autem, et bonam voluntátem habémus magis peregrinári a córpore, et præséntes esse ad Dóminum.
+
+℟. Justus germinábit sicut lílium : \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+##### Lectio iii
+
+SI gloriári opórtet (non éxpedit quidem) véniam autem ad visiónes, et revelatiónes Dómini. Scio hóminem in Christo ante annos quatuórdecim (sive in córpore néscio, sive extra corpus néscio, Deus scit) : raptum hujúsmodi usque ad tértium cælum. Et scio hujúsmodi hóminem, (sive in córpore, sive extra corpus, néscio, Deus scit) : quóniam raptus est in paradísum : et audívit arcána verba, quæ non licet hómini loqui. Pro hujúsmodi gloriábor : pro me autem nihil gloriábor nisi in infirmitátibus meis. Nam, et si volúero gloriári, non ero insípiens : veritátem enim dicam : parco autem, ne quis me exístimet supra id, quod videt in me, aut áliquid audit ex me. Et ne magnitúdo revelatiónum extóllat me, datus est mihi stímulus carnis meæ ángelus sátanæ, qui me colaphízet. Propter quod ter Dóminum rogávi, ut discéderet a me : et dixit mihi : Súfficit tibi grátia mea : nam virtus in infirmitáte perfícitur. Libénter ígitur gloriábor in infirmitátibus meis, ut inhábitet in me virtus Christi.
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum : \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. Glória Patri. Et.
+
+### In II Nocturno
+
+##### Lectio iv
+
+JOséphus a Cupertíno, óppido in Salentínis diœcésis Neritonénsis, anno reparátæ salútis millésimo sexcentésimo tértio, piis paréntibus ortus, Deíque amóre prævéntus, pueritíam atque adolescéntiam summa cum simplicitáte morúmque innocéntia transégit. A diutúrno molestóque morbo, patientíssime toleráto, Deíparæ Vírginis ope liberátus, se totum pietátis opéribus ac excoléndis virtútibus dedit; utque Deo ad majóra vocánti se íntimius conjúngeret, órdini seráphico nomen dare constítuit. Post várĩos evéntus voti tandem compos factus, apud Minóres Conventuáles in cœnóbio Crýptulæ, inter láicos primum ob litterárum imperítiam, deínde inter clérícos divína dispositióne connumerátus est. Sacerdótio post solémnia vota initiátus, perféctius sibi vitæ institútum propósuit. Quam ob rem, mundánis quibuscúmque afféctibus terrénisque rebus pene ad vitam necessáriis íllico a se abdicátis, cilíciis, flagéllis, caténis, omni demum aspéritátum ac pœnárum génere corpus afflíxit; spíritum vero sanctæ oratiónis altissimæque contemplatiónis assiduitáte dúlciter enutrívit. Hinc factum est, ut cáritas Dei, quæ jam erat in ejus corde a prima ætáte diffúsa, miro planéque singulári modo in dies coruscáverit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+ELúxit præcípue ardentíssima ejus cáritas in extásibus ad Deum suavíssimis stupendísque ráptibus, quibus frequénter afficiebátur. Mirum autem, quod, alienáto a sénsibus ánimo, statim ab éxtasi eum revocábat sola obediéntia. Hanc quippe virtútem exímio stúdio prosequebátur, dícere sólitus, se ab ea véluti cæcum circumdúci, et mori pótius velle, quam non obedíre. Paupertátem vero seráphici Patriárchæ ita æmulátus est, ut, morti próximus, prælato suo assérere vere potúerit se nihil habére, quod more religiósórum resignáret. Itaque, mundo sibíque mórtuus, vitam Jesu manifestábat in carne sua, quæ dum aliquibus ex turpitúdine obscœnum flagítium sentiébat, prodigiósum de se efflábat odórem, indícium nitidíssimæ illíus puritátis, quam, immúndo spíritu vehementíssimis tentatiónibus frustra obnubiláre diu conánte, servávit illǽsam, tum arcta sénsuum custódia, tum jugi córporis maceratióne, tum dénique speciáli protectióne puríssimæ Vírginis Maríæ, quam matrem suam appelláre consuévit, ac véluti matrem dulcíssimam íntimo cordis afféctu venerábatur, eámque ab áliis venerári exoptábat, ut cum ejúsdem patrocínio, sicut ipse ajébat, ómnia bona consequeréntur.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+HÆC beáti Joséphi sollicitúdo a sua erga próximos caritáte prodíbat; tanto enim animárum zelo exardébat, ut ómnium salútem modis ómnibus instantíssime procuráret. Exténdens páriter caritátem suam in próximum, sive páuperem, sive infírmum, sive quacúmque ália tribulatióne vexátum, quantum in ipso erat, illum recreábat. Nec aliéni erant ab ejus caritáte, qui objurgatiónibus, probris omnísque géneris injúriis ipsum appéterent; nam eádem patiéntia, mansuetúdine, vultúsque hilaritáte tália excipiébat, qua tot inter ac tantas vicissitúdines resplénduit, dum vel moderatórum órdinis vel sacræ Inquisitiónis jussu hac illac erráre versáríque coáctus est. Quamquam vero pópuli non solum, sed viri príncipes exímiam ejus sanctitátem et supérna charísmata admiraréntur, ea nihilóminus erat humilitáte, ut, magnum se peccatórem réputans, Deum eníxe deprecarétur ut sua ab eo illústria dona removéret, hómines vero exoráret ut in eum locum mórtuum ejus corpus injícerent, ubi memória sui esset prorsus oblitteráta. At Deus, qui ponit húmiles in sublíme quique servum suum, dum víveret, cæléstí sapiéntia, prophetía, córdium perscrutatióne, curatiónum grátia ceterísque donis cumulatíssime exornáverat, ejus quoque mortem iis, quibus ipse ántea prædíxerat, loco ac témpore; anno ætátis suæ sexagésimo primo, Auxími in Picéno pretiósam réddidit sepulcrúmque gloriósum. Illum dénique, étiam post óbitum miráculis coruscántem, Benedíctus quartus décimus Beátórum, Clemens tértius décimus Sanctórum fastis adscrípsit. Ejus autem Offícium et Missam Clemens quartus décimus, ejúsdem órdinis, ad univérsam Ecclésiam exténdit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+JOséphus a Cupertíno, piis paréntibus ortus, adoléscens castis móribus insígnis, apud Minóres Conventuáles in cœnóbio Crýptulæ inter láicos primum, ob litterárum imperítiam, deínde inter cléricos divína dispositióne connumerátus est. Sacerdótio initiátus, cilíciis, flagéllis omníque asperitátum génere corpus afflíxit; spíritum vero sanctæ oratiónis assíduo pábulo enutrívit, quo factum est, ut ad altíssimæ contemplatiónis gradum a Deo vocátus sit. Obediéntia et paupertáte insígnis, castitátem summópere cóluit, eámque, magnis tentatiónibus devíctis, servávit illǽsam. Mira dilectióne Vírginem Maríam prosecútus est, et magna caritáte in páuperes resplénduit. Tanta erat humilitáte, ut, magnum peccatórem se réputans, Deum eníxe deprecarétur, ut sua ab eo illústria dona removéret. Ordinis moderatórum vel sacræ Inquisitiónis jussu multas peragrávit regiónes; demum, Auxími in Picéno, anno ætátis suæ sexagésimo primo, ad cælum evolávit.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 22, 1-14*
+
+IN illo témpore : Loquebátur Jesus princípibus sacerdótum et pharisǽis in parábolis dicens : Símile factum est regnum cælórum hómini regi, qui fecit núptias fílio suo. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+*Liber 2 Homiliar. Hom. 38, circa medium*
+
+QUia jam, largiénte Dómino, nuptiárum domum, id est, sanctam Ecclésiam intrástis, solérter, fratres, aspícite, ne áliquid de mentis vestræ hábitu rex ingrédiens reprehéndat. Cum magno enim cordis timóre pensándum est quod prótinus súbditur : Intrávit autem rex, ut vidéret discumbéntes, et vidit ibi hóminem non vestítum veste nuptiáli. Quid, fratres caríssimi, éxprimi per nuptiálem vestem putámus? Si enim vestem nuptiálem baptísma vel fidem dícimus, quis sine baptísmate et fide has núptias intrávit? Eo enim ipso foris est, qui necdum crédidit. Quid ergo debémus intellígere per nuptiálem vestem, nisi caritátem? Intrat enim ad núptias, sed cum nuptiáli veste non intrat, qui, in sancta Ecclésia assístens, fidem habet, sed caritátem non habet. Recte enim cáritas, nuptiális vestis vocátur, quia hanc in se Cónditor noster hábuit, dum ad sociándæ sibi Ecclésiæ núptias venit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine querély, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+##### Lectio viii
+
+SOla quippe dilectióne Dei actum est, ut ejus Unigénitus mentes sibi electórum hóminum uníret. Unde et Joánnes dicit : Sic enim diléxit Deus mundum, ut Fílium suum unigénitum daret pro nobis. Qui ergo per caritátem venit ad hómines, eámdem caritátem innótuit vestem esse nuptiálem. Omnis ergo vestrum, qui in Ecclésia pósitus Deo crédidit, jam ad núptias intrávit; sed cum nuptiáli veste non venit, si caritátis grátiam non custódit. Et certe, fratres, si quis ad carnáles núptias esset invitátus, vestem mutáret, congaudére se sponso et sponsæ ex ipso sui hábitus decóre osténderet, inter gaudéntes et festa celebrántes despéctis véstibus apparére erubésceret. Nos ad Dei núptias venímus, et cordis vestem mutáre dissimulámus. Congáudent Angeli, cum ad cælum assumúntur eléti. Qua ergo mente hæc spirituália festa conspícimus, qui nuptiálem vestem, id est, caritátem, quæ sola nos speciósos éxhibet, non habémus?
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. Glória Patri. Et.
+
+{RUBRIC: In Fériis Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemoratio ad Laudes tantum, alias}
+
+##### Lectio ix
+
+SCiéndum vero est quia, sicut in duóbus lignis, superióre vidélicet et inferióre vestis téxitur; ita in duóbus præcéptis cáritas habétur, in dilectióne scílicet Dei et próximi. Scriptum quippe est : Díliges Dóminum Deum tuum ex toto corde tuo et ex tota ánima tua et ex tota virtúte tua, et próximum tuum sicut teípsum. Qua in re notándum est, quia in dilectióne próximi mensúra amóris pónitur, cum dícitur : Díliges próximum tuum sicut teípsum. Dei autem diléctio nulla mensúra constríngitur, cum dícitur : Díliges Dóminum Deum tuum ex toto corde tuo, ex tota ánima tua, ex tota virtúte tua. Non enim jubétur quisque quantum díligat, sed ex quanto, cum dícitur, Ex toto; quia ille veráciter Deum díligit, qui sibi de se nihil relínquit. Duo ergo necésse est ut caritátis præcépta custódiat, quisquis habére in núptiis vestem nuptiálem curat.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Osténdit mihi \* Dóminus flúvium aquæ vívæ, spléndidum tamquam crystállum, procedéntem de sede Dei et Agni.
+
+**Oratio**
+
+DEus, qui ad unigénitum Fílium tuum exaltátum a terra ómnia tráhere disposuísti : pérfice propítius; ut, méritis et exémplo seráphici Confessóris tui Joséphi, supra terrénas omnes cupiditátes eleváti, ad eum pervenire mereámur : Qui tecum vivit.
+
+{RUBRIC: Vésperæ a Cápitulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 19 Septembris — Ss. Januarii Ep. et Sociorum Mm.
+
+{RUBRIC: [49] Duplex}
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio**
+*C 3*
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum Januárii et Sociórum ejus solemnitáte lætíficas : concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedentis :}
+
+**Ant.** Exístimo ómnia detriméntum esse propter eminéntem sciéntiam Jesu Christi Dómini mei.
+
+℣. Justum dedúxit.
+
+**Oratio** Deus qui ad, ut supra.
+
+### In II Nocturno
+
+##### Lectio iv
+
+JAnuárius, Benevénti epíscopus, Diocletiáno et Maximiáno in Christiános sæviéntibus, ad Timótheum Campániæ præsidem ob christiánæ fídei professiónem Nolam perdúcitur. Ibi, ejus constántia várie tentáta, in ardéntem fornácem conjéctus, ita illǽsus evásit, ut ne vestiméntum aut capíllum quidem flamma violáverit. Hinc præses, accénsus iracúndia, Mártyris corpus ímperat usque eo dístrahi, quoad nervórum compáges artuúmque solvántur. Festus intérea ejus diáconus et Desidérius lector, comprehénsi vinctíque, una cum epíscopo ante rhedam præsidis Putéolos pertrahúntur, et in eúmdem cárcerem, in quo Sósius Misénas et Próculus Puteolánus diáconus, Eutyches et Acútius láici, ad béstias damnáti, detinebántur, simul conjiciúntur.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis : \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+##### Lectio v
+
+POstero die omnes in amphitheátro feris objécti sunt; quæ, naturáli oblítæ feritáte, ad Januárii pedes se prostravére. Id Timótheus mágicis cantiónibus tríbuens, cum senténtiam cápitis in Christi Mártyres pronuntiásset, óculis repénte captus, oránte mox beáto Januário, lumen recépit; quo miráculo hóminum míllia fere quinque Christi fidem suscepérunt. Verum ingrátus judex, níhilo placátior factus benefício, sed conversióne tantæ multitúdinis actus in rábiem; véritus máxime príncipum decréta, sanctum Epíscopum cum sóciis gládio pércuti jussit.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine : \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+##### Lectio vi
+
+HOrum córpora finítimæ urbes, pro suo quǽque stúdio certum sibi patrónum ex iis apud Deum adoptándi, sepeliénda curárunt. Januárii corpus Neapolitáni divíno admónitu extulére; quod, primo Benevéntum, inde ad monastérium montis Vírginis, postrémo Neápolim translátum et in majóri ecclésia cónditum, multis miráculis cláruit. Sed illud in primis memorándum, quod erúmpentes olim e monte Vesúvio flammárum globos, nec vicínis modo sed longínquis étiam regiónibus vastitátis metum afferéntes, exstínxit. Præclárum illud quoque, quod ejus sánguis, qui in ampúlla vítrea concrétus asservátur, cum in conspéctu cápitis ejúsdem Mártyris pónitur, admirándum in modum colliquefíeri et ebullíre perínde atque recens effúsus, ad hæc usque témpora cérnitur.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem : et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+JAnuárius, Benevénti epíscopus, Diocletiáno et Maximiáno in Christiános sæviéntibus, a Timótheo Campániæ præside ob christiánæ fídei professiónem frustra igne et equúleo tentátus est. Mox vinctus una cum Festo ejus diácono et Desidério lectóre, ante rhedam præsidis Putéolos pertráhitur, et póstero die cum sóciis, quibus adjécti sunt Sósius Misénas, Próculus Puteolánus diáconus, Eutyches et Acútius láici, béstiis objícitur. Verum, cum hæ innóxiæ illis fuíssent, et hóminum míllia fere quinque Christi fidem suscepíssent, actus in rábiem præses, sanctum Epíscopum cum sóciis gládio pércuti jussit. Horum córpora Christiáni sepeliénda curavérunt. Januárii corpus primo Benevéntum, inde ad monastérium montis Vírginis, postrémo in majóri ecclésia Neápolis cónditum multis miráculis cláruit. Ejus sanguis, qui in ampúlla vítrea asservátur, cum in conspéctu cápitis ejúsdem Mártyris pónitur, admirándum in modum colliquefíeri et ebullíre ad hæc témpora cérnitur.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 24, 3-13*
+
+IN illo témpore : Sedénte Jesu super montem Olivéti, accessérunt ad eum discípuli secréto dicéntes : Dic nobis, quando hæc erunt? Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+*Comment. in Matth. can. 25*
+
+DIscípuli Dóminum intérrogant quando hæc fíerent, quodve signum et advéntus sui et consummatiónis sæculi nóscerent. Et, quia tria hæc in unum quæsíta sunt, distínctis et intelligéntiæ significatiónibus separántur. Respondétur ígitur primum de civitátis occásu, et confirmántur veritáte doctrínæ, ne quis fallax ignorántibus posset obrépere; ventúri enim erant étiam eórum témpore, qui se Christum essent nuncupatúri. Ut ígitur fides pestífero mendácio détrahi posset, admonítio præcéssit.
+
+℟. Propter testaméntum Dómini et leges patérnas, Sancti Dei perstitérunt in amóre fraternitátis : \* Quia unus fuit semper spíritus in eis, et una fides. ℣. Ecce quam bonum et quam jucúndum habitáre fratres in unum! — Quia.
+
+##### Lectio viii
+
+COnfírmat ígitur eos ad tolerántiam passiónum, fugæ, verberatiónis, intéritus et públici in eos ódii propter nomen ejus. Atque his quidem vexatiónibus multi turbabúntur, et, tantis insurgéntibus malis scandalizabúntur et usque in mútuum ódium excitabúntur. Et falsi prophétæ erunt (ut Nicoláus unus ex septem diacónibus fuit), multósque ementíta veritáte pervértent; et, abundánte nequítia, cáritas refrigéscet.
+
+℟. Sancti mei, qui in carne pósiti, certámen habuístis, \* Mercédem labóris ego reddam vobis. ℣. Veníte, benedícti Patris mei, percípite regnum. — Mercédem. Glória Patri. Mercédem.
+
+{RUBRIC: In Fériis Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemorátio ad Laudes tantum, alias}
+
+##### Lectio ix
+
+SEd usque in finem perseverántibus salus reserváta est; ac tum, per omnes orbis partes viris apostólicis dispérsis, Evangélii véritas prædicábitur. Et, cum univérsis fúerit cognítio sacraménti cæléstis invécta, tum Jerúsalem occásus et finis incúmbet; ut prædicatiónis fidem, et infidélium pœna et metus civitátis érutæ consequántur. Hæc ígitur in eam, ut fúerant prædícta, perfécta sunt; et, lapidátis, fugátis, perémptis Apóstolis, fame, bello, captivitáte consúmpta est. Ac tum fuit digna non esse, cum, ejéctis prædicatóribus Christi, indígnam Dei prædicatióne se præbuit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+**Oratio**
+*C 3*
+
+DEus, qui nos ánnua sanctórum Mártyrum tuórum Januárii et Sociórum ejus solemnitáte lætíficas : concéde propítius; ut, quorum gaudémus méritis, accendámur exémplis. Per Dóminum.
+
+{RUBRIC: Vésperæ a Cápitulo de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 20 Septembris — Ss. Eustachii et Sociorum Mm.
+
+{RUBRIC: [49] Duplex}
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio**
+*C 2*
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum Eustáchii et Sociórum ejus natalítia cólere : da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedentis :}
+
+**Ant.** Gaudent in cælis ánimæ Sanctórum, qui Christi vestígia sunt secúti; et, quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+℣. Exsultábunt Sancti.
+
+**Oratio** Deus qui nos ánnua, ut supra.
+
+### In II Nocturno
+
+##### Lectio iv
+
+EUstáchius, qui et Plácidus, génere, opibus et militári glória inter Romános insígnis, sub Trajáno imperatóre magístri mílitum títulum méruit. Cum vero sese aliquándo in venatióne exercéret ac fugiéntem miræ magnitúdinis cervum insequerétur, vidit repénte inter consisténtis feræ córnua excélsam atque fulgéntem Christi Dómini e cruce pendéntis imáginem. Cujus voce ad immortális vitæ prædam invitátus, una cum uxóre Theopísta ac duóbus párvulis fíliis Agapíto et Theopísto, christiánæ milítiæ nomen dedit.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis : \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+##### Lectio v
+
+MOx ad visiónis pristínæ locum, sicut ei Dóminus præcéperat, regréssus, illum prænuntiántem audívit quanta sibi deínceps, pro ejus glória, perferénda essent. Quocírca incredíbiles calamitátes mira patiéntia perpéssus, brevi in summam egestátem redáctus est. Cumque clam se subdúcere cogerétur, in itínere cónjugem primum, deínde étiam líberos sibi miserabíliter eréptos ingémuit. Tantis obvolútus ærúmnis, in regióne longínqua villicum agens longo témpore delítuit, donec, cælésti voce recreátus ac nova occasióne a Trajáno conquisítus, íterum bello præfícitur.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine : \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+##### Lectio vi
+
+ILla in expeditióne, líberis simul cum uxóre insperáto recéptis, victor Urbem ingénti ómnium gratulatióne ingréditur. Sed paulo post inánibus diis pro parta victória sacrificáre jussus, constantíssime rénuit. Cumque váriis ártibus ad Christi fidem ejurándam frustra tentarétur, una cum uxóre et líberis, leónibus objícitur. Horum mansuetúdine concitátus imperátor, ǽneum in taurum subjéctis flammis candéntem eos immítti jubet, ubi divínis in láudibus consummáto martýrio, duodécimo Kaléndas Octóbris ad sempitérnam felicitátem convolárunt. Quorum illǽsa córpora, religióse a fidélibus sepúlta, póstmodum ad ecclésiam eórum nómine eréctam honorífice translátam sunt.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem : et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+{RUBRIC: In III Nocturno Homilía in Evang. Descéndens Jesus, de Communi plurimórum Mártyrum 2 loco. [66]}

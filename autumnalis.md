@@ -19722,3 +19722,337 @@ Amen.
 **Oratio**
 
 DEus, in cujus passióne, secúndum Simeónis prophetíam, dulcíssimam ánimam gloriósæ Vírginis et Matris Maríæ dolóris gládius pertransívit : concéde propítius; ut, qui dolóres ejus venerándo recólimus, passiónis tuæ efféctum felícem consequámur : Qui vivis et regnas.
+
+{RUBRIC: Et fit Commemoratio tantum præcedéntis :}
+
+**Ant.** O Crux benedícta, \* quæ sola fuísti digna portáre Regem cælórum et Dóminum, allelúja!
+
+℣. Hoc signum Crucis erit in cælo. ℟. Cum Dóminus ad judicándum vénerit.
+
+**Oratio**
+
+DEus, qui nos hodiérna die Exaltatiónis sanctæ Crucis ánnua solemnitáte lætíficas : præsta, quǽsumus; ut, cujus mystérium in terra cognóvimus, ejus redemptiónis prǽmia in cælo mereámur. Per eúmdem Dóminum.
+
+{RUBRIC: Completórium de Domínica.}
+
+{RUBRIC: Conclúsio Hymnórum, étiam ad Horas, erit séquens :}
+
+Jesu, tibi sit glória,
+Qui passus es pro sérvulis,
+Cum Patre, et almo Spíritu,
+In sempitérna sǽcula.
+Amen.
+
+#### AD MATUTINUM
+
+**Invit.** Stemus juxta crucem cum María Matre Jesu, \* Cujus ánimam dolóris gládius pertransívit.
+
+**Ps. 94** Veníte. 3
+
+**Hymnus**
+
+O Quot undis lacrimárum,
+Quo dolóre vólvitur,
+Luctuósa de cruénto
+Dum revúlsum stípite,
+Cernit ulnis incubántem
+Virgo Mater Fílium!
+
+Os suáve, mite pectus
+Et latus dulcíssimum,
+Dexterámque vulnerátam
+Et sinístram sáuciam,
+Et rubras cruóre plantas
+Ægra tingit lácrimis.
+
+Centiésque milliésque
+Stringit arctis néxibus,
+Pectus illud et lacértos,
+Illa figit vúlnera;
+Sicque tota colliquéscit
+In dolóris ósculis.
+
+Eja, Mater, obsecrámus
+Per tuas has lácrimas,
+Filiíque triste funus,
+Vulnerúmque púrpuram,
+Hunc tui cordis dolórem
+Conde nostris córdibus.
+
+Esto Patri, Filióque,
+Et coǽvo Flámini,
+Esto summæ Trinitáti
+Sempitérna glória,
+Et perénnis laus honórque
+Hoc et omni sǽculo.
+Amen.
+
+### In I Nocturno
+
+**Ant.** Multiplicáti sunt \* qui tríbulant me, multi insúrgunt advérsum me.
+
+**Psalmus 3**
+
+DOmine, quid multiplicáti sunt qui tríbulant me? * multi insúrgunt advérsum me.
+
+Multi dicunt ánimæ meæ : * Non est salus ipsi in Deo ejus.
+
+Tu autem, Dómine, suscéptor meus es, * glória mea, et exáltans caput meum.
+
+Voce mea ad Dóminum clamávi : * et exaudívit me de monte sancto suo.
+
+Ego dormívi, et soporátus sum : * et exsurréxi, quia Dóminus suscépit me.
+
+Non timébo míllia pópuli circumdántis me : * exsúrge, Dómine, salvum me fac, Deus meus.
+
+Quóniam tu percussísti omnes adversántes mihi sine causa : * dentes peccatórum contrivísti.
+
+Dómini est salus : * et super pópulum tuum benedíctio tua.
+
+**Ant.** Multiplicáti sunt qui tríbulant me, multi insúrgunt advérsum me.
+
+**Ant.** Paravérunt sagíttas suas \* in pháretra, ut sagíttent in obscúro rectos corde.
+
+**Psalmus 10**
+
+IN Dómino confído : quómodo dícitis ánimæ meæ : * Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, * ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, dextruxérunt : * justus autem quid fecit?
+
+Dóminus in templo sancto suo, * Dóminus in cælo sedes ejus :
+
+Óculi ejus in páuperem respíciunt : * pálpebræ ejus intérrogant fílios hóminum.
+
+Dóminus intérrogat justum et ímpium : * qui autem díligit iniquitátem, odit ánimam suam.
+
+Pluet super peccatóres láqueos : * ignis, et sulphur, et spíritus procellárum pars cálicis eórum.
+
+Quóniam justus Dóminus, et justítias diléxit : * æquitátem vidit vultus ejus.
+
+**Ant.** Paravérunt sagíttas suas in pháretra, ut sagíttent in obscúro rectos corde.
+
+**Ant.** Defécit in dolóre \* vita mea, et anni mei in gemítibus.
+
+**Psalmus 30**
+
+IN te, Dómine, speravi, non confúndar in ætérnum : * in justítia tua líbera me.
+
+Inclína ad me aurem tuam, * accélera ut éruas me.
+
+Esto mihi in Deum protectórem, et in domum refúgii : * ut salvum me fácias.
+
+Quóniam fortitúdo mea, et refúgium meum es tu : * et propter nomen tuum dedúces me, et enútries me.
+
+Edúces me de láqueo hoc, quem abscondérunt mihi : * quóniam tu es protéctor meus.
+
+In manus tuas comméndo spíritum meum : * redemísti me, Dómine, Deus veritátis.
+
+Odísti observántes vanitátes, * supervácue.
+
+Ego autem in Dómino sperávi : * exsultábo, et lætábor in misericórdia tua.
+
+Quóniam respexísti humilitátem meam, * salvásti de necessitátibus ánimam meam.
+
+Nec conclusísti me in mánibus inimíci : * statuísti in loco spatióso pedes meos.
+
+Miserére mei, Dómine, quóniam tríbulor : * conturbátus est in ira óculus meus, ánima mea, et venter meus :
+
+Quóniam defécit in dolóre vita mea : * et anni mei in gemítibus.
+
+Infirmáta est in paupertáte virtus mea : * et ossa mea conturbáta sunt.
+
+Super omnes inimícos meos factus sum oppróbrium et vicínis meis valde : * et timor notis meis.
+
+Qui vidébant me, foras fugérunt a me : * oblivióni datus sum, tamquam mórtuus a corde.
+
+Factus sum tamquam vas pérditum : * quóniam audívi vituperatiónem multórum commorántium in circúitu.
+
+In eo dum convenírent simul advérsum me, * accípere ánimam meam consiliáti sunt.
+
+Ego autem in te sperávi, Dómine : * dixi : Deus meus es tu : in mánibus tuis sortes meæ.
+
+Eripe me de manu inimicórum meórum, * et a persequéntibus me.
+
+Illústra fáciem tuam super servum tuum, salvum me fac in misericórdia tua : * Dómine, non confúndar, quóniam invocávi te.
+
+Erubéscant ímpii, et deducántur in inférnum : * muta fiant lábia dolósa.
+
+Quæ loquúntur advérsus justum iniquitátem, * in supérbia, et in abusióne.
+
+Quam magna multitúdo dulcédinis tuæ, Dómine, * quam abscondísti timéntibus te.
+
+Perfecísti eis, qui sperant in te, * in conspéctu filiórum hóminum.
+
+Abscóndes eos in abscóndito faciéi tuæ, * a conturbatióne hóminum.
+
+Próteges eos in tabernáculo tuo * a contradictióne linguárum.
+
+Benedíctus Dóminus : * quóniam mirificávit misericórdiam suam mihi in civitáte muníta.
+
+Ego autem dixi in excéssu mentis meæ : * Projéctus sum a fácie oculórum tuórum.
+
+Ideo exaudísti vocem oratiónis meæ, * dum clamárem ad te.
+
+Dilígite Dóminum, omnes sancti ejus : * quóniam veritátem requíret Dóminus, et retríbuet abundánter faciéntibus supérbiam.
+
+Viríliter ágite, et confortétur cor vestrum, * omnes, qui sperátis in Dómino.
+
+**Ant.** Defécit in dolóre vita mea, et anni mei in gemítibus.
+
+℣. Regína Mártyrum, ora pro nobis. ℟. Quæ juxta crucem Jesu constitísti.
+
+{RUBRIC: De Jeremía Prophéta}
+*Thren. 1, 2 et 20-21*
+
+##### Lectio i
+
+PLorans plorávit in nocte, et lácrimæ ejus in maxíllis ejus : non est qui consolétur eam ex ómnibus caris ejus : omnes amíci ejus sprevérunt eam, et facti sunt ei inimíci. Vide, Dómine, quóniam tríbulor, conturbátus est venter meus, subvérsum est cor meum in memetípsa, quóniam amaritúdine plena sum. Foris intérficit gládius, et domi mors símilis est. Audiérunt quia ingémisco ego, et non est qui consolétur me.
+
+℟. Símeon, vir justus et timorátus, dixit ad Maríam : \* Tuam ipsíus ánimam pertransíbit gládius. ℣. Ne vocétis me pulchram, sed amáram, quia amaritúdine valde replévit me Omnípotens. — Tuam.
+
+##### Lectio ii
+*Thren. 2, 13 et 15-18*
+
+CUI comparábo te? vel cui assimilábo te, fília Jerúsalem? cui exæquábo te, et consolábor te, virgo fília Sion? Magna est enim velut mare contrítio tua : quis medébitur tui? Plausérunt super te mánibus omnes transeúntes per viam : sibilavérunt, et movérunt caput suum super fíliam Jerúsalem : Hǽccine est urbs, dicéntes, perfécti decóris, gáudium univérsæ terræ? Aperuérunt super te os suum omnes inimíci tui, sibilavérunt et fremuérunt déntibus, et dixérunt : Devorábimus.
+
+℟. Surge, et áccipe Púerum et Matrem ejus, et fuge in Ægýptum; \* Et esto ibi usque dum dicam tibi. ℣. Vocávi Fílium meum ex Ægýpto, ut véniat salus in Israël. — Et.
+
+##### Lectio iii
+
+FEcit Dóminus quæ cogitávit, complévit sermónem suum quem præcéperat a diébus antíquis : destrúxit et non pepércit, et lætificávit super te inimícum et exaltávit cornu hóstium tuórum. Clamávit cor eórum ad Dóminum super muros fíliæ Sion : Deduc quasi torréntem lácrimas per diem et noctem; non des réquiem tibi, neque táceat pupílla óculi tui.
+
+℟. Fili, quid fecísti nobis sic? \* Ego et pater tuus \* Doléntes quærebámus te. ℣. Quid est quod me quærebátis? In his quæ Patris mei sunt, opórtet me esse. — Ego. Glória Patri. Doléntes.
+
+### In II Nocturno
+
+**Ant.** Factum est cor meum \* tamquam cera liquéscens in médio ventris mei.
+
+**Psalmus 21**
+
+DEus, Deus meus, réspice in me : quare me dereliquísti? * longe a salúte mea verba delictórum meórum.
+
+Deus meus, clamábo per diem, et non exáudies : * et nocte, et non ad insipiéntiam mihi.
+
+Tu autem in sancto hábitas, * laus Israël.
+
+In te speravérunt patres nostri : * speravérunt, et liberásti eos.
+
+Ad te clamavérunt, et salvi facti sunt : * in te speravérunt, et non sunt confúsi.
+
+Ego autem sum vermis, et non homo : * oppróbrium hóminum, et abjéctio plebis.
+
+Omnes vidéntes me, derisérunt me : * locúti sunt lábiis, et movérunt caput.
+
+Sperávit in Dómino, erípiat eum : * salvum fáciat eum, quóniam vult eum.
+
+Quóniam tu es, qui extraxísti me de ventre : * spes mea ab ubéribus matris meæ. In te projéctus sum ex útero :
+
+De ventre matris meæ Deus meus es tu, * ne discésseris a me :
+
+Quóniam tribulátio próxima est : * quóniam non est qui ádjuvet.
+
+Circumdedérunt me vítuli multi : * tauri pingues obsedérunt me.
+
+Aperuérunt super me os suum, * sicut leo rápiens et rúgiens.
+
+Sicut aqua effúsus sum : * et dispérsa sunt ómnia ossa mea.
+
+Factum est cor meum tamquam cera liquéscens * in médio ventris mei.
+
+Aruit tamquam testa virtus mea, et lingua mea adhǽsit fáucibus meis : * et in púlverem mortis deduxísti me.
+
+Quóniam circumdedérunt me canes multi : * concílium malignántium obsédit me.
+
+Fodérunt manus meas et pedes meos : * dinumeravérunt ómnia ossa mea.
+
+Ipsi vero consideravérunt et inspexérunt me : * divisérunt sibi vestiménta mea, et super vestem meam misérunt sortem.
+
+Tu autem, Dómine, ne elongáveris auxílium tuum a me : * ad defensiónem meam cónspice.
+
+Erue a frámea, Deus, ánimam meam : * et de manu canis únicam meam :
+
+Salva me ex ore leónis : * et a córnibus unicórnium humilitátem meam.
+
+Narrábo nomen tuum frátribus meis : * in médio ecclésiæ laudábo te.
+
+Qui timétis Dóminum, laudáte eum : * univérsum semen Jacob, glorificáte eum.
+
+Tímeat eum omne semen Israël : * quóniam non sprevit, neque despéxit deprecatiónem páuperis :
+
+Nec avértit fáciem suam a me : * et cum clamárem ad eum, exaudívit me.
+
+Apud te laus mea in ecclésia magna : * vota mea reddam in conspéctu timéntium eum.
+
+Edent páuperes, et saturabúntur : et laudábunt Dóminum qui requírunt eum : * vivent corda eórum in sǽculum sǽculi.
+
+Reminiscéntur et converténtur ad Dóminum * univérsi fines terræ :
+
+Et adorábunt in conspéctu ejus * univérsæ famíliæ géntium.
+
+Quóniam Dómini est regnum : * et ipse dominábitur géntium.
+
+Manducavérunt et adoravérunt omnes pingues terræ : * in conspéctu ejus cadent omnes qui descéndunt in terram.
+
+Et ánima mea illi vivet : * et semen meum sérviet ipsi.
+
+Annuntiábitur Dómino generátio ventúra : * et annuntiábunt cæli justítiam ejus pópulo qui nascétur, quem fecit Dóminus.
+
+**Ant.** Factum est cor meum tamquam cera liquéscens in médio ventris mei.
+
+**Ant.** Deus, vitam meam \* annuntiávi tibi : posuísti lácrimas meas in conspéctu tuo.
+
+**Psalmus 55**
+
+MIserére mei, Deus, quóniam conculcávit me homo : * tota die impúgnans tribulávit me.
+
+Conculcavérunt me inimíci mei tota die : * quóniam multi bellántes advérsum me.
+
+Ab altitúdine diéi timébo : * ego vero in te sperábo.
+
+In Deo laudábo sermónes meos, in Deo sperávi : * non timébo quid fáciat mihi caro.
+
+Tota die verba mea exsecrabántur : * advérsum me omnes cogitatiónes eórum in malum.
+
+Inhabitábunt et abscóndent : * ipsi calcáneum meum observábunt.
+
+Sicut sustinuérunt ánimam meam, pro níhilo salvos fácies illos : * in ira pópulos confrínges.
+
+Deus, vitam meam annuntiávi tibi : * posuísti lácrimas meas in conspéctu tuo,
+
+Sicut et in promissióne tua : * tunc converténtur inimíci mei retrórsum :
+
+In quacúmque die invocávero te : * ecce cognóvi quóniam Deus meus es.
+
+In Deo laudábo verbum, in Dómino laudábo sermónem : * in Deo sperávi, non timébo quid fáciat mihi homo.
+
+In me sunt, Deus, vota tua, * quæ reddam, laudatiónes tibi.
+
+Quóniam eripuísti ánimam meam de morte, et pedes meos de lapsu : * ut pláceam coram Deo in lúmine vivéntium.
+
+**Ant.** Deus, vitam meam annuntiávi tibi : posuísti lácrimas meas in conspéctu tuo.
+
+**Ant.** Fuérunt mihi \* lácrimæ meæ panes die ac nocte.
+
+**Psalmus 41**
+
+QUemádmodum desíderat cervus ad fontes aquárum : * ita desíderat ánima mea ad te, Deus.
+
+Sitívit ánima mea ad Deum fortem vivum : * quando véniam, et apparébo ante fáciem Dei?
+
+Fuérunt mihi lácrimæ meæ panes die ac nocte : * dum dícitur mihi quotídie : Ubi est Deus tuus?
+
+Hæc recordátus sum, et effúdi in me ánimam meam : * quóniam transíbo in locum tabernáculi admirábilis, usque ad domum Dei.
+
+In voce exsultatiónis, et confessiónis : * sonus epulántis.
+
+Quare tristis es, ánima mea? * et quare contúrbas me?
+
+Spera in Deo, quóniam adhuc confitébor illi : * salutáre vultus mei, et Deus meus.
+
+Ad meípsum ánima mea conturbáta est : * proptérea memor ero tui de terra Jordánis, et Hermóniim a monte módico.
+
+Abýssus abýssum ínvocat, * in voce cataractárum tuárum.
+
+Ómnia excélsa tua, et fluctus tui * super me transiérunt.

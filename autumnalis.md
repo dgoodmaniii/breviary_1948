@@ -38322,3 +38322,61 @@ DEus, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, ca
 {RUBRIC: Ave María, ut supra.}
 
 ℣. Deus, in adjutórium.
+
+**Hymnus**
+
+MEménto, rerum Cónditor,
+Nostri quod olim córporis,
+Sacráta ab alvo Vírginis
+Nascéndo, formam súmpseris.
+
+María, Mater grátiæ,
+Dulcis Parens cleméntiæ,
+Tu nos ab hoste prótege
+Et mortis hora súscipe.
+
+Jesu, tibi sit glória,
+Qui natus es de Vírgine,
+Cum Patre, et almo Spíritu,
+In sempitérna sæcula.
+Amen.
+
+**Ant.** Assúmpta est María in cælum.
+
+{RUBRIC: Ps. 53 Deus in nómine tuo 155; Ps. 84 Benedixísti 216; Ps. 116 Laudáte Dóminum, omnes gentes. 76}
+
+**Ant.** Assúmpta est María in cælum : gaudent Angeli, laudántes benedícunt Dóminum.
+
+**Capitulum** *Cant. 6, 9*
+
+QUÆ est ista, quæ progréditur quasi auróra consúrgens, pulchra ut luna, elécta ut sol, terríbilis ut castrórum ácies ordináta? ℟. Deo grátias.
+
+℣. Dignáre me laudáre te, Virgo sacráta. ℟. Da mihi virtútem contra hostes tuos.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+DEus, qui virginálem aulam beátæ Maríæ, in qua habitáres, elígere dignátus es : da, quǽsumus; ut, sua nos defensióne munítos, jucúndos fácias suæ interésse commemoratióni : Qui vivis.
+
+#### AD TERTIAM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Deus, in adjutórium.
+
+{RUBRIC: Hymnus Meménto, ut supra.}
+
+**Ant.** María Virgo assúmpta est.
+
+{RUBRIC: Ps. 119 Ad Dóminum cum tribulárer 95; Ps. 120 Levávi óculos meos et Ps. 121 Lætátus sum ibid.;}
+
+**Ant.** María Virgo assúmpta est ad æthǽreum thálamum, in quo Rex regum stelláto sedet sólio.
+
+**Capitulum** *Eccli. 24, 15*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. ℟. Deo grátias.
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.

@@ -39977,3 +39977,117 @@ Sancte Bartholomǽe, ora.
 Sancte Matthǽe, ora.
 
 Sancte Simon, ora.
+
+Sancte Thaddǽe, ora pro nobis.
+
+Sancte Matthía, ora.
+
+Sancte Bárnaba, ora.
+
+Sancte Luca, ora.
+
+Sancte Marce, ora.
+
+Omnes sancti Apóstoli et Evangelístæ, oráte.
+
+Omnes sancti Discípuli Dómini, oráte.
+
+Omnes sancti Innocéntes, oráte.
+
+Sancte Stéphane, ora.
+
+Sancte Laurénti, ora.
+
+Sancte Vincénti, ora.
+
+Sancti Fabiáne et Sebastiáne, oráte.
+
+Sancti Joánnes et Paule, oráte.
+
+Sancti Cosma et Damiáne, oráte.
+
+Sancti Gervási et Protási, oráte.
+
+Omnes sancti Mártyres, oráte.
+
+Sancte Silvéster, ora.
+
+Sancte Gregóri, ora.
+
+Sancte Ambrósi, ora.
+
+Sancte Augustíne, ora.
+
+Sancte Hierónyme, ora.
+
+Sancte Martíne, ora.
+
+Sancte Nicoláe, ora.
+
+Omnes sancti Pontífices et Confessóres, oráte.
+
+Omnes sancti Doctóres, oráte.
+
+Sancte Antóni, ora.
+
+Sancte Benedícte, ora.
+
+Sancte Bernárde, ora.
+
+Sancte Domínice, ora.
+
+Sancte Francísce, ora.
+
+Omnes sancti Sacerdótes et Levítæ, oráte.
+
+Omnes sancti Mónachi et Eremítæ, oráte.
+
+Sancta María Magdaléna, ora.
+
+Sancta Agatha, ora.
+
+Sancta Lúcia, ora.
+
+Sancta Agnes, ora.
+
+Sancta Cæcília, ora.
+
+Sancta Catharína, ora.
+
+Sancta Anastásia, ora.
+
+Omnes sanctæ Vírgines et Víduæ, oráte.
+
+Omnes Sancti et Sanctæ Dei, intercédite pro nobis.
+
+Propítius esto, parce nobis, Dómine.
+
+Propítius esto, exáudi nos, Dómine.
+
+Ab omni malo, líbera nos, Dómine.
+
+Ab omni peccáto, líbera.
+
+Ab ira tua, líbera.
+
+A subitánea et improvísa morte, líbera.
+
+Ab insídiis diáboli, líbera.
+
+Ab ira, et ódio, et omni mala voluntáte, líbera.
+
+A spíritu fornicatiónis, líbera.
+
+A fúlgure et tempestáte, líbera.
+
+A flagéllo terræmótus, líbera.
+
+A peste, fame et bello, líbera.
+
+A morte perpétua, líbera.
+
+Per mystérium sanctæ Incarnatiónis tuæ, líbera.
+
+Per advéntum tuum, líbera.
+
+Per nativitátem tuam, líbera nos, Dómine.

@@ -36829,4 +36829,27 @@ JErúsalem, quæ ædificátur ut cívitas. Fratres, quando dicébat ista David, 
 
 #### Lectio v
 
-IPsa ergo modo cívitas ædificátur. Præcidúntur de móntibus lápides per manus prædicántium veritátem, conquadrántur, ut intrent in structúram sempitérnam. Adhuc multi lápides in mánibus artíficis sunt : non cadant de mánibus artíficis, ut possint perfécti coædificári in structúram templi. Est ergo ista Jerúsalem, quæ ædificátur ut cívitas; fundaméntum ipsíus Christus est. Dicit Apóstolus Paulus : Fundaméntum áliud
+IPsa ergo modo cívitas ædificátur. Præcidúntur de móntibus lápides per manus prædicántium veritátem, conquadrántur, ut intrent in structúram sempitérnam. Adhuc multi lápides in mánibus artíficis sunt : non cadant de mánibus artíficis, ut possint perfécti coædificári in structúram templi. Est ergo ista Jerúsalem, quæ ædificátur ut cívitas; fundaméntum ipsíus Christus est. Dicit Apóstolus Paulus : Fundaméntum áliud nemo potest pónere præter id quod pósitum est, quod est Christus Jesus.
+
+℟. O quam metuéndus est locus iste : \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+#### Lectio vi
+
+FUndaméntum quando pónitur in terra, désuper ædificántur paríetes; et pondus paríetum ad ima tendit, quia in imo pósitum est fundaméntum. Si autem fundaméntum nostrum in cælo est, ad cælum ædificémur. Córpora ædificavérunt istam structúram, quam vidétis amplam surrexísse hujus basílicæ; et quia córpora ædificavérunt, fundaméntum in imo posuérunt. Quia vero spiritáliter ædificámur, fundaméntum nostrum in summo pósitum est. Illuc ergo currámus, ibi ædificémur, quia de ipsa Jerúsalem dictum est : Stantes erant pedes nostri in átriis tuis, Jerúsalem.
+
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nesciébam. ℣. Cumque evigilásset Jacob de somno, ait. — Vere. **Glória Patri.** Vere.
+
+### In III Nocturno
+
+**Léctio sancti Evangélii secúndum Lucam**
+
+**Lectio vii** *Cap. 19, 1-10*
+
+IN illo témpore : Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus : et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+**De Homilía sancti Ambrósii Epíscopi**
+*Liber 8 in Lucam, in fine*
+
+ET conféstim, inquit, vidit, et sequebátur illum, magníficans Dóminum. Aliter enim non vidéret, nisi sequerétur Christum, nisi Dóminum prædicáret, nisi sǽculum præteríret. Cum divítibus quoque in grátiam revertámur. Nólumus enim offéndere dívites, qui vólumus, si fíeri potest, sanáre omnes; ne in caméli comparatióne præstrícti et in Zachǽo cítius quam opórtuit, derelícti, justæ hábeant commotiónis offénsam.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus : in ea omnis qui petit, áccipit; et qui quærit, invénit; \* Et pulsánti aperiétur. ℣. Pétite, et

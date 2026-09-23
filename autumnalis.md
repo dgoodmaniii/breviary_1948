@@ -36631,3 +36631,47 @@ Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : \
 Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : \* quóniam venit judicáre terram.
 
 Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua. Gl.
+
+**Ant.** Templum Dómini sanctum est, Dei structúra est, Dei ædificátio est.
+
+**Ant.** Benedícta \* glória Dómini, de loco sancto suo, allelúja.
+
+###### Psalmus 98
+
+DOminus regnávit, irascántur pópuli : \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus : \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno : quóniam terríbile, et sanctum est : \* et honor regis judícium díligit.
+
+Tu parásti directiónes : \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte scabéllum pedum ejus : \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus : \* et Sámuel inter eos, qui ínvocant nomen ejus.
+
+Invocábant Dóminum, et ipse exaudiébat eos : \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos : \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum, Deum nostrum, et adoráte in monte sancto ejus : \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Benedícta glória Dómini, de loco sancto suo, allelúja.
+
+℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram.
+
+**Absolutio.** A vínculis.
+**Bened.** Evangélica léctio.
+
+**Léctio sancti Evangélii secúndum Lucam**
+
+**Lectio vii** *Cap. 19, 1-10*
+
+IN illo témpore : Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus : et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+**Homilía sancti Ambrósii Epíscopi**
+*Liber 8 in Luc., prope finem*
+
+ZAchǽus, statúra pusíllus, hoc est, nulla nobilitátis ingénitæ dignitáte sublímis, exíguus méritis sicut pópulus natiónum, audíto Dómini Salvatóris advéntu, quem sui non recéperant, vidére cupiébat. Sed nemo fácile Jesum videt; nemo potest Jesum vidére constitútus in terra. Et, quia non Prophétas, non Legem habébat, tamquam formæ grátiam naturális, ascéndit

@@ -19670,3 +19670,55 @@ HUmiliávit semetípsum factus obédiens usque ad mortem, mortem autem Crucis. P
 **Ant. 3** Non est ei \* spécies neque decor, et vídimus eum, et non erat aspéctus.
 
 **Ant. 4** A planta pedis \* usque ad vérticem cápitis non est in eo sánitas.
+
+**Ant. 5** Fulcíte me flóribus, \* stipáte me malis, quia amóre lángueo.
+
+**Capitulum**
+*Thren. 2, 13*
+
+CUI comparábo te? vel cui assimilábo te, fília Jerúsalem? cui exæquábo te, et consolábor te, virgo fília Sion? Magna est velut mare contrítio tua.
+
+**Hymnus**
+
+JAM toto súbitus vésperat polo,
+Et sol attónitum præcípitet diem,
+Dum sævæ récolo ludíbrium necis,
+Divinámque catástrophen.
+
+Spectátrix áderas supplício, Parens,
+Malis uda, gerens cor adamántinum;
+Natus funérea péndulus in Cruce
+Altos dum gémitus dabat.
+
+Pendens ante óculos Natus, atrócibus
+Sectus verbéribus, Natus hiántibus
+Fossus vulnéribus, quot penetrántibus
+Te confíxit acúleis!
+
+Eheu! Sputa, alápæ, vérbera, vúlnera,
+Clavi, fel, áloë, spóngia, láncea,
+Sitis, spina, cruor, quam vária pium
+Cor pressére tyránnide!
+
+Cunctis intérea stas generósior,
+Virgo, Martýribus : prodígio novo,
+In tantis móriens non móreris, Parens,
+Diris fixa dolóribus.
+
+Sit summæ Tríadi glória, laus, honor,
+A qua supplíciter, sollícita prece,
+Posco virgínei róboris ǽmulas
+Vires rebus in ásperis.
+Amen.
+
+℣. Regína Mártyrum, ora pro nobis. ℟. Quæ juxta crucem Jesu constitísti.
+
+**Ad Magnif. Ant.** Nolíte \* me consideráre quod fusca sim, quia decolorávit me sol : fílii matris meæ pugnavérunt contra me.
+
+#### In II Vesperis
+
+**Ad Magnif. Ant.** Opprés sit me dolor, \* et fácies mea intúmuit a fletu, et pálpebræ meæ caligavérunt.
+
+**Oratio**
+
+DEus, in cujus passióne, secúndum Simeónis prophetíam, dulcíssimam ánimam gloriósæ Vírginis et Matris Maríæ dolóris gládius pertransívit : concéde propítius; ut, qui dolóres ejus venerándo recólimus, passiónis tuæ efféctum felícem consequámur : Qui vivis et regnas.

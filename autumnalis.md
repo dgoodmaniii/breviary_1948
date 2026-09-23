@@ -18570,3 +18570,63 @@ DA, quǽsumus, omnípotens Deus : ut beáti Lauréntii Confessóris tui atque Po
 **Ant. 1** Nativitas gloriósæ \* Vírginis Maríæ ex sémine Ábrahæ, ortæ de tribu Juda, clara ex stirpe David.
 
 **Ant. 2** Natívitas est hódie \* sanctæ Maríæ Vírginis, cujus vita ínclyta cunctas illústrat ecclésias.
+
+**Ant. 3** Regáli ex progénie \* María exórta refúlget; cujus précibus nos adjuvári, mente et spíritu devotíssime póscimus.
+
+**Ant. 4** Corde et ánimo \* Christo canámus glóriam in hac sacra solemnitáte præcélsæ Genitrícis Dei Maríæ.
+
+**Ant. 5** Cum jucunditáte \* Nativitátem beátæ Maríæ celebrémus, ut ipsa pro nobis intercédat ad Dóminum Jesum Christum.
+
+**Capitulum**
+*Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sǽculum non désinam, et in habitatióne sancta coram ipso minístrávi.
+
+{RUBRIC: Prima strópha sequéntis Hymni dícitur flexis génibus.}
+
+**Hymnus**
+
+AVE, maris stella,
+Dei Mater alma,
+Atque semper Virgo,
+Felix cæli porta.
+
+Sumens illud Ave
+Gabriélis ore,
+Funda nos in pace,
+Mutans Hevæ nomen.
+
+Solve víncla reis,
+Profer lumen cæcis,
+Mala nostra pelle,
+Bona cuncta posce.
+
+Monstra te esse matrem,
+Sumat per te preces,
+Qui pro nobis natus
+Tulit esse tuus.
+
+Virgo singuláris,
+Inter omnes mitis,
+Nos, culpis solútos,
+Mites fac et castos.
+
+Vitam præsta puram,
+Iter para tutum,
+Ut, vidéntes Jesum,
+Semper collætémur.
+
+Sit laus Deo Patri,
+Summo Christo decus,
+Spirítui Sancto,
+Tribus honor unus.
+Amen.
+
+℣. Nativitas est hódie sanctæ Maríæ Vírginis.
+℟. Cujus vita ínclyta cunctas illústrat ecclésias.
+
+**Ad Magnif. Ant.** Gloriósæ \* Vírginis Maríæ ortum digníssimum recolámus, quæ et Genitrícis dignitátem obtínuit, et virginálem pudicítiam non amísit.
+
+#### In II Vesperis
+
+**Ad Magnif. Ant.** Nativitas tua, \* Dei Génitrix Virgo, gáudium annuntiávit univérso mundo : ex te enim ortus est sol justítiæ, Christus Deus noster : qui solvens maledictiónem, dedit benedictiónem; et confúndens mortem, donávit nobis vitam sempitérnam.

@@ -34846,4 +34846,25 @@ DEridétur justi simplícitas. Hujus mundi sapiéntia est : cor machinatiónibus
 
 #### Lectio v
 
-AT contra, sapiéntia justórum est : nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quærere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mundi sapiéntibus puritátis virtus fatúitas créditur. Omne enim, quod innocénter ágitur, ab eis proculdúbio stultum putátur.
+AT contra, sapiéntia justórum est : nil per ostensiónem fíngere, sensum verbis aperíre, vera ut sunt dilígere, falsa devitáre; bona gratis exhibére, mala libéntius toleráre quam fácere; nullam injúriæ ultiónem quærere, pro veritáte contuméliam lucrum putáre. Sed hæc justórum simplícitas deridétur; quia ab hujus mundi sapiéntibus puritátis virtus fatúitas créditur. Omne enim, quod innocénter ágitur, ab eis proculdúbio stultum putátur. Et quidquid in ópere véritas ápprobat, carnáli sapiéntiæ fátuum sonat. Quid namque stúltius vidétur mundo quam mentem verbis osténdere, nil cállida machinatióne simuláre, nullas injúriis contumélias réddere, pro maledicéntibus oráre, paupertátem quærere, posséssa relínquere, rapiénti non resístere, percutiénti álteram maxíllam præbére?
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio vi
+*Cap. 17, post initium*
+
+LAmpas contémpta apud cogitatiónes dívitum. Sæpe contíngit, ut eléctus quisque, qui ad ætérnam felicitátem dúcitur, contínua hic adversitáte deprimátur; non hunc rerum abundántia fúlciat, non dignitátum glória honorábilem osténdat, nulla ei obsequéntium frequéntia súppetat, nulla hunc humánis óculis véstium pompa compónat. A cunctis vero despicábilis cérnitur, et hujus mundi grátia indígnus æstimátur; sed tamen ante occúlti júdicis óculos virtútibus émicat, vitæ méritis corúscat : honorári métuit, déspici non réfugit : corpus continéntia áfficit, sola in ánimo dilectióne pinguéscit : mentem semper ad patiéntiam præparat, et, eréctus pro justítia, de percéptis contuméliis exsúltat : afflíctis ex corde compátitur, de bonórum prosperitátibus quasi de própriis lætátur, sacri verbi pábula in mente sollícitus rúminat, et, inquisítus, quódlibet éloqui duplíciter ignórat.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. **Glória Patri.** Quia.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+#### Lectio vii
+*Cap. 12, 32-34*
+
+IN illo témpore : Dixit Jesus discípulis suis : Nolíte timére, pusíllus grex, quia complácuit Patri vestro dare vobis regnum. Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+{RUBRIC: Liber 4 cap. 54 in Luc. 12}

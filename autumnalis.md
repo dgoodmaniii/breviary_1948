@@ -22573,3 +22573,73 @@ VÆ huic mundo ab scándalis. Humílitas passiónis scándalum mundo est. In hoc
 VIdéte ne contemnátis unum de pusíllis istis, qui credunt in me. Aptíssimum vínculum mútui amóris impósuit, ad eos præcípue qui vere in Dómino credidíssent. Pusillórum enim Angeli quotídie Deum vident : quia Fílius hóminis venit salváre quæ pérdita sunt. Ergo et Fílius hóminis salvat, et Deum Angeli vident, et Angeli pusillórum præsunt fidélium oratiónibus. Præésse Angelos absolúta auctóritas est. Salvatórum ígitur per Christum oratiónes Angeli quotídie Deo offérunt. Ergo periculóse ille contémnitur, cujus desidéria ac postulatiónes ad ætérnum et invisíbilem Deum, ambitióso Angelórum famulátu ac ministério, pervehúntur.
 
 **Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Antíphonæ}
+
+**Ant. 1** Angelis suis \* Deus mandávit de te, ut custódiant te in ómnibus viis tuis.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Laudémus Dóminum, \* quem laudant Angeli, quem Chérubim et Séraphim, sanctus, sanctus, sanctus proclámant.
+
+**Ant. 3** Angeli eórum \* semper vident fáciem Patris mei, qui est in cælis.
+
+**Ant. 4** Benedíctus Deus, \* qui misit Angelum suum, et éruit servos suos qui credidérunt in eum.
+
+**Ant. 5** Laudáte Deum, \* omnes Angeli ejus : laudáte eum, omnes Virtútes ejus.
+
+**Capit.**
+*Exodi 23, 20-21*
+
+ECce ego mittam Angelum meum, qui præcédat te et custódiat in via et introdúcat in locum quem parávi. Obsérva eum et audi vocem ejus.
+
+**Hymnus**
+
+ÆTérne Rector síderum,
+Qui, quidquid est, poténtia
+Magna creásti, nec regis
+Minóre providéntia :
+
+Adésto supplicántium
+Tibi reórum cœtui,
+Lucísque sub crepúsculum
+Lucem novam da méntibus.
+
+Tuúsque nobis Angelus
+Eléctus ad custódiam,
+Hic adsit; a contágio
+Ut críminum nos prótegat.
+
+Nobis dracónis ǽmuli
+Versútias extérminet;
+Ne rete frauduléntiæ
+Incáuta nectat péctora.
+
+Métum repéllat hóstium
+Nostris procul de fínibus;
+Pacem procúret cívium,
+Fugétque pestiléntiam.
+
+{RUBRIC: ¶ Sequens Conclusio numquam mutatur.}
+
+DEo Patri sit glória,
+Qui, quos redémit Fílius,
+Et Sanctus unxit Spíritus,
+Per Angelos custódiat.
+Amen.
+
+℣. In conspéctu Angelórum psallam tibi, Deus meus. ℟. Adorábo ad templum sanctum tuum, et confitébor nómini tuo.
+
+**Ad Bened. Ant.** Revérsus est \* Angelus qui loquebátur in me, et suscitávit me quasi virum, qui suscitátur a somno suo.
+
+**Oratio**
+
+DEus, qui ineffábili providéntia sanctos Angelos tuos ad nostram custódiam míttere dignáris : largíre supplícibus tuis; et eórum semper protectióne defféndi, et ætérna societáte gaudére. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** Angelis suis \* Deus mandávit de te, ut custódiant te in ómnibus viis tuis.

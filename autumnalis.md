@@ -27815,3 +27815,45 @@ BEáti ergo, qui persecutiónem patiúntur propter justítiam; quóniam ipsórum
 **Oratio**
 
 PRæsta, quæsumus, omnípotens Deus : ut, qui gloriósos Mártyres fortes in sua confessióne cognóvimus, pios apud te in nostra intercessióne sentiámus. Per Dóminum.
+
+### In II Nocturno
+
+{RUBRIC: Ex libro sancti Cypriáni Epíscopi et Mártyris de mortalitáte}
+
+##### Lectio iv
+*In fine*
+
+COnsiderándum est, fratres dilectíssimi, et idéntidem cogitándum, renuntiásse nos mundo, et tamquam hóspites et peregrínos hic ínterim dégere. Amplectámur diem, qui assígnat síngulos domicílio suo, qui nos, ístinc eréptos et láqueis sæculáribus exsolútos, paradíso restítuit et regno cælésti. Quis non, péregre constitútus, properáret in pátriam régredi? Quis non, ad suos navigáre festínans, ventum prósperum cupídius optáret, ut velóciter caros licéret amplécti?
+
+℟. Abstérget Deus omnem lácrimam ab óculis Sanctórum : et jam non erit ámplius neque luctus, neque clamor, sed nec ullus dolor, \* Quóniam prióra transiérunt. ℣. Non esúrient, neque sítient ámplius, neque cadet super illos sol neque ullus æstus. — Quóniam.
+
+##### Lectio v
+
+PAtriam nostram paradísum computámus, paréntes Patriárchas habére jam cœpimus : quid non properámus et cúrrimus, ut pátriam nostram vidére, ut paréntes salutáre possímus? Magnus illic nos carórum númerus exspéctat, paréntum, fratrum, filiórum frequens nos et copiósa turba desíderat, jam de sua immortalitáte secúra et adhuc de nostra salúte sollícita. Ad horum conspéctum et compléxum veníre, quanta et illis et nobis in commúne lætítia est! Qualis illic cæléstium regnórum volúptas sine timóre moriéndi, et cum æternitáte vivéndi! Quam summa et perpétua felícitas!
+
+℟. Pretiósa in conspéctu Dómini \* Mors Sanctórum ejus. ℣. Custódit Dóminus ómnia ossa eórum, unum ex his non conterétur. — Mors.
+
+##### Lectio vi
+
+ILlic Apostolórum gloriósus chorus, illic Prophetárum exsultántium númerus, illic Mártyrum innumerábilis pópulus, ob certáminis et passiónis victóriam coronátus. Triumphántes illic Vírgines, quæ concupiscéntiam carnis et córporis, continéntiæ róbore, subegérunt. Remuneráti misericórdes, qui, aliméntis et largitiónibus páuperum, justítiæ ópera fecérunt : qui, Domínica præcépta servántes, ad cæléstes thesáuros terréna patrimónia transtulérunt. Ad hos, fratres dilectíssimi, ávida cupiditáte properémus, et cum his cito esse, ut cito ad Christum veníre contíngat, optémus.
+
+℟. Stola jucunditátis índuit eos Dóminus : \* Et corónam pulchritúdinis pósuit super cápita eórum. ℣. Cibávit illos Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illos. — Et. Glória Patri. Et.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 5, 1-12*
+
+IN illo témpore : Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+{RUBRIC: De Homilía sancti Augustíni Epíscopi (Liber 1 de Sermóne Dómini in monte, cap. 5)}
+
+BEáti éritis, inquit, cum vobis maledícent, et persequéntur vos, et dicent omne malum advérsum vos, mentiéntes, propter me : gaudéte et exsultáte, quóniam merces vestra multa est in cælis. Animadvértat quisquis delícias hujus sǽculi et facultátes rerum temporálium quærit in nómine christiáno, intrínsecus esse beatitúdinem nostram; sicut de ánima ecclesiástica ore prophético dícitur : Omnis glória ejus fíliæ regis ab intus. Nam extrínsecus maledícta, et persecutiónes, et detractiónes promittúntur; de quibus tamen magna merces est in cælis, quæ sentítur in corde patiéntium, eórum qui jam possunt dícere : Gloriámur in tribulatiónibus, sciéntes quod tribulátio patiéntiam operátur, patiéntia autem probatiónem, probátio vero spem, spes autem non confúndit; quia cáritas Dei diffúsa est in córdibus nostris per Spíritum Sanctum, qui datus est nobis.
+
+℟. Amávit eos Dóminus, et ornávit eos : stolam glóriæ índuit eos, \* Et ad portas paradísi coronávit eos. ℣. Induit eos Dóminus lorícam fídei, et ornávit eos. — Et.
+
+##### Lectio viii
+
+NON enim ista pérpeti fructuósum est, sed ista pro Christi nómine non solum æquo ánimo, sed étiam cum exsultatióne toleráre. Nam multi hærétici, nómine christiáno ánimas decipiéntes, multa tália patiúntur; sed ídeo excludúntur ab ista mercéde, quia non dictum est tantum : Beáti qui persecutiónem patiúntur, sed ádditum est, Propter justítiam. Ubi autem sana fides non est, non potest esse justítia; quia, Justus ex fide vivit. Neque schismátici áliquid sibi ex ista mercéde promíttant; quia simíliter, ubi cáritas non est, non potest esse justítia.

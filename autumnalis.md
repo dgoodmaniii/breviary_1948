@@ -38585,3 +38585,55 @@ Réquiem ætérnam.
 MAgníficat \* ánima mea Dóminum :
 
 Et exsultávit spíritus meus \* in Deo, salutári meo.
+
+Quia respéxit humilitátem ancíllæ suæ : \* ecce enim, ex hoc beátam me dicent omnes generatiónes.
+
+Quia fecit mihi magna qui potens est : \* et sanctum nomen ejus.
+
+Et misericórdia ejus a progénie in progénies \* timéntibus eum.
+
+Fecit poténtiam in bráchio suo : \* dispérsit supérbos mente cordis sui.
+
+Depósuit poténtes de sede, \* et exaltávit húmiles.
+
+Esuriéntes implévit bonis : \* et dívites dimísit inánes.
+
+Suscépit Israël, púerum suum, \* recordátus misericórdiæ suæ.
+
+Sicut locútus est ad patres nostros, \* Abraham, et sémini ejus in sæcula.
+
+Réquiem ætérnam.
+
+**Ant.** Omne quod dat mihi Pater, ad me véniet; et eum qui venit ad me, non ejíciam foras.
+
+{RUBRIC: Preces infrascríptæ dicúntur flexis génibus; simíliter et ad Laudes.}
+
+Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+{RUBRIC: Sequens Ps. Lauda, ánima mea, non dícitur in die óbitus seu depositiónis defúncti, neque quandocúmque Offícium recitátur ritu duplíci.}
+
+###### Psalmus 145
+
+LAuda, ánima mea, Dóminum, laudábo Dóminum in vita mea : \* psallam Deo meo quámdiu fúero.
+
+Nolíte confídere in princípibus : \* in fíliis hóminum, in quibus non est salus.
+
+Exíbit spíritus ejus, et revertétur in terram suam : \* in illa die períbunt omnes cogitatiónes eórum.
+
+Beátus, cujus Deus Jacob adjútor ejus, spes ejus in Dómino, Deo ipsíus : \* qui fecit cælum et terram, mare, et ómnia, quæ in eis sunt.
+
+Qui custódit veritátem in sæculum, facit judícium injúriam patiéntibus : \* dat escam esuriéntibus.
+
+Dóminus solvit compedítos : \* Dóminus illúminat cæcos.
+
+Dóminus érigit elísos, \* Dóminus díligit justos.
+
+Dóminus custódit ádvenas, pupíllum et víduam suscípiet : \* et vias peccatórum dispérdet.
+
+Regnábit Dóminus in sæcula, Deus tuus, Sion, \* in generatiónem et generatiónem.
+
+Réquiem ætérnam.
+
+{RUBRIC: Deinde:}
+
+℣. A porta ínferi. ℟. Erue, Dómine, ánimam ejus (ánimas eórum).

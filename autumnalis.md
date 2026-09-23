@@ -40307,3 +40307,45 @@ Propítius esto, parce ei, Dómine.
 Propítius esto, líbera eum (eam), Dómine.
 
 Propítius esto, líbera.
+
+Ab ira tua, líbera.
+
+A perículo mortis, líbera.
+
+A mala morte, líbera.
+
+A pœnis inférni, líbera.
+
+Ab omni malo, líbera.
+
+A potestáte diáboli, líbera.
+
+Per nativitátem tuam, líbera.
+
+Per crucem et passiónem tuam, líbera.
+
+Per mortem et sepultúram tuam, líbera.
+
+Per gloriósam resurrectiónem tuam, líbera.
+
+Per admirábilem ascensiónem tuam, líbera.
+
+Per grátiam Spíritus Sancti Paráclti, líbera.
+
+In die judícii, líbera.
+
+Peccatóres, te rogámus, audi nos.
+
+Ut ei parcas, te rogámus.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+{RUBRIC: Deinde, cum in agóne sui éxitus ánima anxiátur, dicántur sequéntes Oratiónes :}
+
+**Oratio**
+
+PRoficíscere, ánima christiána, de hoc mundo, in nómine Dei Patris omnipoténtis, qui te creávit; in nómine Jesu Christi Fílii Dei vivi, qui pro te passus est; in nómine Spíritus Sancti, qui in te effúsus est; in nómine gloriósæ et sanctæ Dei Genitrícis Vírginis Maríæ; in nómine beáti Joseph, ínclyti ejúsdem Vírginis Sponsi; in nómine Angelórum et Archangelórum; in nómine Thronórum et Dominatiónum; in nómine Principátuum et Potestátum; in nómine Virtútum, Chérubim et Séraphim; in nómine Patriarchárum et Prophetárum; in nómine sanctórum Apostolórum et Evangelistárum; in nómine sanctórum Mártyrum et Confessórum; in nómine sanctórum Monachórum et Eremitárum; in nómine sanctárum Vírginum, et ómnium Sanctórum et Sanctárum Dei; hódie sit in pace locus tuus, et habitátio tua in sancta Sion. Per eúmdem Christum, Dóminum nostrum. ℟. Amen.
+
+**Oratio**
+
+DEus miséricors, Deus clemens, Deus, qui secúndum multitúdinem miseratiónum tuárum peccáta pœniténtium deles, et præteritórum críminum culpas vénia remissiónis evácuas : réspice propítius super hunc fámulum tuum N. (hanc fámulam tuam N.), et remissiónem ómnium peccatórum suórum tota cordis confessióne poscéntem deprecátus exáudi. Rénova in eo (ea), píissime Pater, quidquid terréna fragilitáte corrúptum, vel quidquid diabólica fraude violátum est;

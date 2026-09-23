@@ -36999,4 +36999,29 @@ NON tibi viléscat, quod ait, Saccum meum : ibi erat inclúsum prétium tuum. Co
 
 CAntet Christus Redémptor, gemat Judas vénditor, erubéscat Judǽus emptor. Ecce Judas véndidit, Judǽus emit; malum negótium egérunt, ambo damnáti sunt, seípsos perdidérunt vénditor et emptor. Dicat ergo caput nostrum, dicat pro córpore occíso, pro córpore dedicáto. Dicat, audiámus : Conscidísti saccum meum, et accinxísti me lætítia : id est, conscidísti mortalitátem meam, et accinxísti me immortalitáte et incorruptióne. Ut cantet tibi glória mea, et non compúngar. Quid est, Non compúngar? Jam contra me non ferat lánceam persecútor, Ut non compúngar. Christus enim surgens a mórtuis, jam non móritur, et mors illi ultra non dominábitur.
 
-℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nescié-
+℟. Mane surgens Jacob erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nescié-bam. ℣. Cumque evigilásset Jacob de somno, ait. — Vere. **Glória Patri.** Vere.
+
+### In III Nocturno
+
+**Léctio sancti Evangélii secúndum Lucam**
+
+**Lectio vii** *Cap. 19, 1-10*
+
+IN illo témpore : Ingréssus Jesus perambulábat Jéricho. Et ecce vir nómine Zachǽus : et hic princeps erat publicanórum, et ipse dives. Et réliqua.
+
+**Homilía sancti Bedæ Venerábilis Presbýteri**
+*Liber 5, cap. 77 in Luc. 19*
+
+QUæ impossibília sunt apud hómines, possibília sunt apud Deum. Ecce enim camélus, depósita gibbi sárcina, per forámen acus transit, hoc est, dives et publicánus, relícto ónere divitiárum, contémpto censu fraudum, angústam portam arctámque viam, quæ ad vitam ducit, ascéndit. Qui, mira devotióne fídei, ad vidéndum Salvatórem, quod natúra minus habúerat, ascénsu supplet árboris; atque ídeo juste, quamvis ipse rogáre non áudeat, benedictiónem Domínicæ susceptiónis, quam desiderábat, accépit.
+
+℟. Domus mea domus oratiónis vocábitur, dicit Dóminus : in ea omnis qui petit, áccipit; et qui quærit, invénit; \* Et pulsánti aperiétur. ℣. Pétite, et accipiétis; quærite, et inveniétis. — Et pulsánti.
+
+#### Lectio viii
+
+MYstice autem Zachǽus, qui interpretátur justificátus, credéntem ex géntibus pópulum signíficat. Qui, quanto curis sæculáribus occupátior, tanto flagítiis depriméntibus erat factus humílior. Sed ablútus est, sed sanctificátus, sed justificátus in nómine Dómini nostri Jesu Christi et in Spíritu Dei nostri. Qui intrántem Jéricho Salvatórem vidére quærébat, sed præ turba non póterat; quia grátiæ fídei, quam mundo Salvátor áttulit, participáre cupiébat, sed inólita vitiórum consuetúdo, ne ad votum perveníret, obstíterat.
+
+℟. Lápides pretiósi omnes muri tui, \* Et turres Jerúsalem gemmis ædificabúntur. ℣. Portæ Jerúsalem ex sapphíro et smarágdo ædificabúntur, et ex lápide pretióso omnis circúitus muri ejus. — Et. **Glória Patri.** Et.
+
+#### Lectio ix
+
+EAdem namque turba nóxiæ consuetúdinis, quæ supra cæcum clamántem, ne lumen péteret, increpábat; étiam suspicién-

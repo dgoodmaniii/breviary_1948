@@ -29023,3 +29023,33 @@ DA, quæsumus, omnípotens Deus : ut beáti Gregórii Confessóris tui atque Pon
 ET erat structúra muri ejus ex lápide jáspide; ipsa vero cívitas aurum mundum símile vitro mundo. Et fundaménta muri civitátis omni lápide pretióso ornáta. Fundaméntum primum jaspis, secúndum sapphírus, tértium chalcedónius, quartum smarágdus, quintum sárdonyx, sextum sárdius, séptimum chrysólithus, octávum berýllus, nonum topázius, décimum chrysóprasus, undécimum hyacínthus, duodécimum amethýstus.
 
 ℟. In dedicatióne templi decantábat pópulus laudem : \* Et in ore eórum dulcis resonábat sonus. ℣. Fundáta est domus Dómini supra vérticem móntium, et vénient ad eam omnes gentes. — Et.
+
+##### Lectio ii
+
+ET duódecim portæ duódecim margarítæ sunt per síngulas, et síngulæ portæ erant ex síngulis margarítis, et platéa civitátis aurum mundum, tamquam vitrum perlúcidum. Et templum non vidi in ea; Dóminus enim Deus omnípotens templum illíus est, et Agnus. Et cívitas non eget sole neque luna, ut lúceant in ea; nam cláritas Dei illuminávit eam, et lucérna ejus est Agnus.
+
+℟. Fundáta est domus Dómini supra vérticem móntium, et exaltáta est super omnes colles : \* Et vénient ad eam omnes gentes, et dicent : Glória tibi, Dómine. ℣. Veniéntes autem vénient cum exsultatióne, portántes manípulos suos. — Et.
+
+##### Lectio iii
+
+ET ambulábunt gentes in lúmine ejus, et reges terræ áfferent glóriam suam et honórem in illam. Et portæ ejus non claudéntur per diem, nox enim non erit illic. Et áfferent glóriam et honórem géntium in illam. Non intrábit in eam áliquod coinquinátum aut abominatiónem fáciens et mendácium, nisi qui scripti sunt in libro vitæ Agni.
+
+℟. Bénedic, Dómine, domum istam, quam ædificávi nómini tuo : veniéntium in loco isto \* Exáudi preces in excélso sólio glóriæ tuæ. ℣. Dómine, si convérsus fúerit pópulus tuus, et oráverit ad sanctuárium tuum. — Exáudi. Glória Patri. Exáudi.
+
+### In II Nocturno
+
+##### Lectio iv
+
+EX locis sacris quæ olim apud Christiános veneratiónem habuérunt, illa celebérrima et frequentíssima fúerunt, in quibus cóndita Sanctórum córpora, vel áliquod Mártyrum vestígium aut monuméntum esset. In quorum número sanctórum locórum, in primis semper fuit insígnis ea Vaticáni pars, quam sancti Petri Confessiónem appellábant. Nam eo Christiáni ex ómnibus orbis terræ pártibus, tamquam ad fídei petram et Ecclésiæ fundaméntum conveniéntes, locum, Príncipis Apostolórum sepúlcro consecrátum, summa religióne ac pietáte venerabántur.
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+##### Lectio v
+
+ILluc Constantínus Magnus imperátor octávo die post suscéptum baptísmum venit, depositóque diadémate, et humi jacens, vim lacrimárum profúdit. Mox, sumpto ligóne ac bidénte, terram éruit; índeque duódecim terræ cóphinis, honóris causa duódecim Apostolórum, ablátis, ac loco basílicæ Príncipis Apostolórum designáto, ecclésiam ædificávit. Quam sanctus Silvéster Papa décimo quarto Kaléndas Decémbris, eo modo quo Lateranénsem ecclésiam quinto Idus Novémbris consecráverat, dedicávit, et in ea altáre lapídeum, chrísmate delibútum, eréxit; atque ex eo témpore sancívit ne deínceps altária nisi ex lápide fíerent. Idem beátus Silvéster basílicam sancti Pauli Apóstoli, in via Ostiénsi ab eódem Constantíno imperatóre magnificentíssime ædificátam, dedicávit. Quas basílicas idem imperátor multis prǽdiis attribútis locupletávit, ac munéribus amplíssimis exornávit.
+
+℟. O quam metuéndus est locus iste : \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere.
+
+##### Lectio vi
+
+POrro Vaticánam basílicam, vetustáte jamprídem collabéntem, ac proptérea multórum Pontíficum pietáte látius ac magnificéntius a fundaméntis eréctam, Urbánus octávus, hac eádem recurrénte die anni millésimi sexcentésimi vigésimi sexti, solémni ritu consecrávit.

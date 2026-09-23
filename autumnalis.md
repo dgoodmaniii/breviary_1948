@@ -34666,3 +34666,47 @@ SAncti Evangélii, fratres caríssimi, apérta vobis est léctio recitáta. Sed,
 #### Lectio viii
 
 DUo autem sunt, quæ jubéntur : et lumbos restríngere, et lucérnas tenére; ut et mundítia sit castitátis in córpore, et lumen veritátis in operatióne. Redemptóri étenim nostro unum sine áltero placére nequáquam potest; si, aut is qui bona agit, adhuc luxúriæ inquinaménta non déserit, aut is qui castitáte præéminet, necdum se per bona ópera exércet. Nec cástitas ergo magna est sine bono ópere, nec opus bonum est áliquod sine castitáte. Sed, et si utrúmque ágitur, restat, ut, quisquis ille est, spe ad supérnam pátriam tendat, et nequáquam se a vítiis pro mundi hujus honestáte contíneat.
+
+{RUBRIC: Pro Conf. Pont. et non Pont.}
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et vos símiles. **Glória Patri.** Et vos símiles.
+
+**Benedictio.** Ad societátem.
+
+#### Lectio ix
+
+ET vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis; ut, cum vénerit et pulsáverit, conféstim apériant ei. Venit quippe Dóminus, cum ad judícium próperat; pulsat vero, cum jam per ægritúdinis moléstias esse mortem vicínam desígnat. Cui conféstim aperímus, si hunc cum amóre suscípimus. Aperíre enim júdici pulsánti non vult, qui exíre de córpore trépidat, et vidére eum, quem contémpsísse se méminit, júdicem formídat. Qui autem de sua spe et operatióne secúrus est, pulsánti conféstim áperit, quia lætus júdicem sústinet; et, cum tempus propínquæ mortis advénerit, de glória retributiónis hiaréscit.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Dómine, quinque talénta \* tradidísti mihi, ecce ália quinque superlucrátus sum.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**Ant. 2** Euge, serve bone, \* in módico fidélis, intra in gáudium Dómini tui.
+
+**Ant. 3** Fidélis servus \* et prudens, quem constítuit Dóminus super famíliam suam.
+
+**Ant. 4** Beátus ille servus, \* quem, cum vénerit Dóminus ejus et pulsáverit jánuam, invénerit vigilántem.
+
+**Ant. 5** Serve bone \* et fidélis, intra in gáudium Dómini tui.
+
+**Capitulum** *Eccli. 31, 8-9*
+
+BEátus vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.
+
+**Hymnus**
+
+JEsu, coróna célsior,
+Et véritas sublímior,
+Qui confiténti sérvulo
+Reddis perénne prǽmium :
+
+DA supplicánti cœtui,
+Hujus rogátu, nóxii
+Remissiónem críminis,
+Rumpéndo nexum vínculi.

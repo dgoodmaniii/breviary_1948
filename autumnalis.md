@@ -28733,4 +28733,45 @@ TOT cathólicæ fídei increménta perditíssimórum hóminum ádeo excitavérun
 
 ##### Lectio ix
 
-JOsaphat Kuncewítius, nobílibus et cathólicis paréntibus Vladimíriæ in Volhínia natus, cum púerulus matrem de Christi passióne loquéntem audíret, jáculo e látere imáginis Christi crucifíxi immísso, vulnus in corde suscépit. Vicénnis inter claustráles sancti Basílii alúmnos monásticam régulam proféssus est. Mox Vilnénsis archimandríta, demum archiepíscopus Polocénsis renuntiátus, se præbuit ómnium virtútum exémplar.
+JOsaphat Kuncewítius, nobílibus et cathólicis paréntibus Vladimíriæ in Volhínia natus, cum púerulus matrem de Christi passióne loquéntem audíret, jáculo e látere imáginis Christi crucifíxi immísso, vulnus in corde suscépit. Vicénnis inter claustráles sancti Basílii alúmnos monásticam régulam proféssus est. Mox Vilnénsis archimandríta, demum archiepíscopus Polocénsis renuntiátus, se præbuit ómnium virtútum exémplar. Strénuus promótor éxstitit uniónis Ecclésiæ Græcæ cum Latína, et in sinum matris Ecclésiæ innúmeros hæréticos revocávit. Vitépscum pastorális visitatiónis grátia proféctus et a schismáticis ad necem quæsítus, ipsis, archiepiscopáles ædes jam invadéntibus, sponte occúrrens : Fílioli, inquit, si quid contra me habétis, ecce adsum. Hinc, ímpetu facto, eum verbéribus contúndunt, telis confódiunt et, secúri necátum, in flumen projíciunt. Sanguis Mártyris parricídis ipsis in primis prófuit, qui fere omnes, cápitis damnáti, ejuráto schísmate, scelus detestáti sunt. Urbánus Papa octávus eum Beatórum honóribus decorávit; Pius autem nonus hunc ecclesiásticæ unitátis assertórem, primum ex orientálibus, Sanctórum órdini accénsuit.
+
+**Te Deum laudámus.**
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+*Cap. 10, 11-16*
+
+IN illo témpore : Dixit Jesus pharisǽis : Ego sum pastor bonus. Bonus pastor ánimam suam dat pro óvibus suis. Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi (Homilía 59 in Joánnem)}
+
+MAgnum quiddam, dilectíssimi, magnum, inquam, est Ecclésiæ prælátio, et quæ multa índiget sapiéntia et fortitúdine, qualem Christus propósuit : ut ánimam pro óvibus ponámus, et numquam illas deserámus; ut lupo generóse resistámus. Hæc enim inter pastórem et mercenárium est differéntia : alter própriæ, contémptis óvibus; alter, sua contémpta, óvium semper salúti invígilat. Pastóris ergo exémplo demonstráto, deceptóres duos méminit : furem mactántem et rapiéntem oves; et mercenárium permitténtem, neque defendéntem commíssas.
+
+℟. Coróna áurea super caput ejus, \* Expréssa signo sanctitátis, glória honóris, et opus fortitúdinis. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Expréssa.
+
+##### Lectio viii
+
+QUod superióri témpore Ezéchiel his verbis insectátus est : Væ pastóribus Israël : nonne greges pascúntur a pastóribus? Sed illi contrárium faciébant, quod máximæ malítiæ genus est, et plurimórum causa malórum. Idcírco inquit : Neque quod abjéctum erat, reducébant : neque quod períerat, quærébant : neque confráctum alligábant, neque infírmum consolidábant; quóniam se, non gregem pascébant. Idem et Paulus áliis verbis signíficat : Omnes quæ sua sunt, quærunt, non quæ Jesu Christi.
+
+℟. Hic est vere Martyr, qui pro Christi nómine sánguinem suum fudit : \* Qui minas júdicum non tímuit, nec terrénæ dignitátis glóriam quæsívit, sed ad cæléstia regna pervénit. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Qui. Glória Patri. Qui.
+
+##### Lectio ix
+
+VErum ab utróque se dissidére osténdit Christus : ab illis quidem, qui in aliórum perníciem véniunt, cum dicat, se proptérea venísse, ut vitam habérent, et abundántius habérent; ab his autem, qui oves a lupis rapi negligébant, dicéndo se propter eas ánimam pónere, ne oves perírent. Nam cum Judǽi ipsum interímere vellent, non proptérea déstitit a doctrína, neque credéntes trádidit, sed pérstitit, et pértulit mortem : ídeo frequénter inquit : Ego sum pastor bonus. Quæ cum nullo niti testimónio viderétur, (quod enim póneret ánimam suam, non multo post re monstrátum est; quod autem vitam habérent, et abundántius habérent, eventúrum erat in futúro sæculo) álterum ab áltero confírmat.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio**
+
+EXcita, quæsumus, Dómine, in Ecclésia tua Spíritum, quo replétus beátus Jósaphat Martyr et Póntifex tuus ánimam suam pro óvibus pósuit : ut, eo intercedénte, nos quoque eódem Spíritu moti ac roboráti, ánimam nostram pro frátribus pónere non vereámur. Per Dóminum... in unitáte ejúsdem Spíritus.
+
+{RUBRIC: Vésperæ a Capítulo de sequénti, Commemoratio præcedéntis.}

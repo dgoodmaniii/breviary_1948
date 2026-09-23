@@ -32611,3 +32611,77 @@ INfirmitátem nostram réspice, omnípotens Deus : et, quia pondus própriæ act
 **2 — Alia Oratio**
 
 DEus, qui nos beáti N. Mártyris tui atque Pontíficis ánnua solemnitáte lætíficas : concéde propítius; ut, cujus natalítia cólimus, de ejúsdem étiam protectióne gaudeámus. Per Dóminum.
+
+{RUBRIC: Pro Martyre non Pontifice}
+
+**3 — Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, qui beáti N. Mártyris tui natalítia cólimus, intercessióne ejus in tui nóminis amóre roborémur. Per Dóminum.
+
+**4 — Alia Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, intercedénte beáto N. Mártyre tuo, et a cunctis adversitátibus liberémur in córpore, et a pravis cogitatiónibus mundémur in mente. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Domínica, ad Primam tamen ut in Festis.}
+
+#### AD TERTIAM
+
+**Capitulum** *Jac. 1, 12*
+
+BEátus vir, qui suffert tentatiónem : quóniam, cum probátus fúerit, accípiet corónam vitæ, quam repromísit Deus diligéntibus se.
+
+℟. br. Glória et honóre \* Coronásti eum, Dómine. Glória et. ℣. Et constituísti eum super ópera mánuum tuárum. Coronásti. **Glória Patri.** Glória et.
+
+℣. Posuísti, Dómine, super caput ejus.
+℟. Corónam de lápide pretióso.
+
+#### AD SEXTAM
+
+**Capitulum** *Eccli. 15, 3*
+
+CIbávit illum pane vitæ et intelléctus, et aqua sapiéntiæ salutáris potávit illum Dóminus, Deus noster.
+
+℟. br. Posuísti, Dómine, \* Super caput ejus. Posuísti. ℣. Corónam de lápide pretióso. Super. **Glória Patri.** Posuísti.
+
+℣. Magna est glória ejus in salutári tuo.
+℟. Glóriam et magnum decórem impónes super eum.
+
+#### AD NONAM
+
+**Capitulum** *Eccli. 39, 6*
+
+JUstus cor suum trádidit ad vigilándum dilúculo ad Dóminum, qui fecit illum, et in conspéctu Altíssimi deprecábitur.
+
+℟. br. Magna est glória ejus \* In salutári tuo. Magna est. ℣. Glóriam et magnum decórem impónes super eum. In. **Glória Patri.** Magna est. ℣. Justus ut palma florébit. ℟. Sicut cedrus Líbani multiplicábitur.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vésperis [29], sed loco últimi dícitur Psalmus 115 Crédidi ut ibídem pro II Vésperis notátur.}
+
+℣. Justus ut palma florébit.
+℟. Sicut cedrus Líbani multiplicábitur.
+
+**Ad Magnif. Ant.** Qui vult veníre post me, \* ábneget semetípsum, et tollat crucem suam, et sequátur me.
+
+{RUBRIC: Completórium de Domínica.}
+
+---
+
+# II Aliae Lectiones pro uno Martyre
+
+### In I Nocturno
+
+{RUBRIC: De Expositióne sancti Ambrósii Epíscopi in Psalmum centésimum décimum octávum}
+{RUBRIC: Sermo 21}
+
+#### Lectio iv
+
+PRíncipes persecúti sunt me gratis : et a verbis tuis trepidávit cor meum. Bene hoc Martyr dicit, quod injúste persecutiónum torménta sustíneat; qui nihil rapúerit, nullum violéntus oppresserit, nullíus sánguinem fúderit, nullíus torum putáverit esse violándum; qui nihil légibus débeat, et gravióra latrónum sustinére cogátur supplícia; qui loquátur juste, et non audiátur; qui loquátur plena salútis, et impugnétur, ut possit dícere : Cum loquébar illis, impugnábant me gratis. Gratis ígitur persecutiónem pátitur, qui impugnátur sine crímine; impugnátur ut nóxius, cum sit in tali confessióne laudábilis; impugnátur quasi venéficus, qui in nómine Dómini glóriátur, cum pietas virtútum ómnium fundaméntum sit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non dereliquit eum. — Et.
+
+#### Lectio v
+
+VEre frustra impugnátur, qui apud ímpios et infídos impietátis arcéssitur, cum fídei sit magíster. Verum, qui gratis impugnátur, fortis debet esse et constans. Quómodo ergo subtéxuit : Et a verbis tuis trepidávit cor meum? Trepidáre infirmitátis est, timóris atque formídinis. Sed est étiam infírmitas ad salútem, est étiam timor sanctórum. Timéte Dóminum, omnes sancti ejus : et, Beátus vir, qui timet Dóminum. Qua ratióne beátus? Quia in mandátis ejus cupit nimis.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis : posuísti in cápite ejus corónam de lápide pretióso. — Et.

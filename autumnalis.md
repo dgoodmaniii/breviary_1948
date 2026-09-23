@@ -18174,3 +18174,56 @@ ADésto supplicatiónibus nostris, omnípotens Deus : et, quibus fidúciam sper�
 **Oratio**
 
 SAncti Joánnis Baptístæ Præcursóris et Mártyris tui, quǽsumus, Dómine, veneránda festívitas : salutáris auxílii nobis præstet efféctum. (Qui vivis.)
+
+{RUBRIC: Deínde fit Commemorátio S. Sabínæ Mart. :}
+
+**Ant.** Símile est regnum cælórum hómini negotiatóri quærénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+℣. Spécie tua et.
+
+**Oratio**
+*C 1*
+
+DEus, qui inter cétera poténtiæ tuæ miracula étiam in sexu frágili victóriam martýrii contulísti : concéde propítius; ut, qui beátæ Sabínæ Mártyris tuæ natalítia cólimus, per ejus ad te exémpla gradiámur. Per Dóminum.
+
+#### AD LAUDES
+
+**Ant.** Misso Heródes spiculatóre, præcépit amputári caput Joánnis in cárcere. Quo audíto, discípuli ejus venérunt, et tulérunt corpus ejus, et posuérunt illud in monuménto.
+
+℣. Justus ut palma.
+
+{RUBRIC: Pro Com. S. Sabínæ Mart. :}
+
+**Ant.** Date ei de fructu mánuum suárum, et laudent eam in portis ópera ejus.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Deus, ut supra.
+
+---
+
+### Die 30 Augusti — S. Rosæ a S. Maria
+
+{RUBRIC: Virg. Limanæ [111] — Duplex}
+
+**Ant.** Veni, Sponsa Christi, áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Spécie tua et.
+
+**Oratio**
+
+BOnórum ómnium largítor, omnípotens Deus, qui beátam Rosam, cæléstis grátiæ rore prævéntam, virginitátis et patiéntiæ decóre Indis florescere voluísti : da nobis fámulis tuis; ut in odórem suavitátis ejus curréntes, Christi bonus odor éffici mereámur. (Qui tecum vivit.)
+
+{RUBRIC: Deínde fit Commemorátio S. Joánnis Baptístæ :}
+
+**Ant.** Misit rex incrédulus minístros detestábiles, et amputári jussit caput Joánnis Baptístæ.
+
+℣. Justus ut palma.
+
+**Oratio** Sancti Joánnis, ut supra. 468
+
+{RUBRIC: Póstea Commem. Ss. Felícis et Adáucti Mm. :}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.

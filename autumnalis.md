@@ -35734,4 +35734,53 @@ ID autem hoc fere modo confírmat : Cógita tecum, si aut a natúra talis esses,
 
 #### Lectio ix
 
-CUM ergo de illis eunúchis díxerit, qui, nisi étiam ipsi mente se contíneant, frustra et inútiliter
+CUM ergo de illis eunúchis díxerit, qui, nisi étiam ipsi mente se contíneant, frustra et inútiliter tales sunt, ac de illis, qui, ut regnum cælórum consequántur, se cóntinent; subjúnxit rursus, dicens : Qui potest cápere, cápiat; ut alacrióres effíciat eo ipso, quod grave esse opus osténdit, et ineffábili benignitáte sua nóluit eam rem intra necessitátem legis conclúdere. Idque dicéndo, adhuc magis possíbilem esse demónstrat, ut voluntátis stúdium plus augeátur.
+
+**Te Deum laudámus.**
+
+---
+
+# Commune non Virginum
+
+#### IN I VESPERIS
+
+**Ant. 1** Dum esset Rex \* in accúbitu suo, nardus mea dedit odórem suavitátis.
+
+{RUBRIC: Psalmi ut in Communi Festórum B. Maríæ Virg. [174]}
+
+**Ant. 2** In odórem \* unguentórum tuórum cúrrimus : adolescéntulæ dilexérunt te nimis.
+
+**Ant. 3** Jam hiems tránsiit, \* imber ábiit et recéssit : surge, amíca mea, et veni.
+
+**Ant. 4** Veni, elécta mea, \* et ponam in te thronum meum, allelúja.
+
+**Ant. 5** Ista est speciósa \* inter fílias Jerúsalem.
+
+{RUBRIC: Pro Martyre tantum}
+
+**Capitulum** *Eccli. 51, 1-3*
+
+COnfitébor tibi, Dómine, Rex, et collaudábo te Deum, Salvatórem meum. Confitébor nómini tuo : quóniam adjútor et protéctor factus es mihi, et liberásti corpus meum a perditióne.
+
+{RUBRIC: Pro nec Virg. nec Martyre}
+
+**Capit.** *Prov. 31, 10-11*
+
+MUliérem fortem quis invéniet? Procul et de últimis fínibus prétium ejus. Confídit in ea cor viri sui, et spóliis non indigébit.
+
+**Hymnus**
+
+FOrtem viríli péctore
+Laudémus omnes féminam,
+Quæ sanctitátis glória
+Ubíque fulget ínclita.
+
+Hæc sancto amóre sáucia,
+Dum mundi amórem nóxium
+Horréscit, ad cæléstia
+Iter perégit árduum.
+
+Carnem domans jejúniis,
+Dulcíque mentem pábulo
+Oratiónis nútriens,
+Cæli potítur gáudiis.

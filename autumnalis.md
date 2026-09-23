@@ -33867,3 +33867,46 @@ Odísti omnes, qui operántur iniquitátem : \* perdes omnes, qui loquúntur men
 Virum sánguinum et dolósum abominábitur Dóminus : \* ego autem in multitúdine misericórdiæ tuæ.
 
 Introíbo in domum tuam : \* adorábo ad templum sanctum tuum in timóre tuo.
+
+Dómine, deduc me in justítia tua : \* propter inimícos meos dírige in conspéctu tuo viam meam.
+
+Quóniam non est in ore eórum véritas : \* cor eórum vanum est.
+
+Sepúlcrum patens est guttur eórum, linguis suis dolóse agébant, \* júdica illos, Deus.
+
+Décidant a cogitatiónibus suis, secúndum multitúdinem impietátum eórum expélle eos, \* quóniam irritavérunt te, Dómine.
+
+Et læténtur omnes, qui sperant in te, \* in ætérnum exsultábunt : et habitábis in eis.
+
+Et gloriabúntur in te omnes, qui díligunt nomen tuum, \* quóniam tu benedíces justo.
+
+Dómine, ut scuto bonæ voluntátis tuæ \* coronásti nos.
+
+**Ant.** Læténtur omnes, qui sperant in te, Dómine : quóniam tu benedixísti justo, scuto bonæ voluntátis tuæ coronásti eum.
+
+**Ant.** Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra! quia glória et honóre coronásti Sanctum tuum, et constituísti eum super ópera mánuum tuárum.
+
+###### Psalmus 8
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.
+
+Quóniam vidébo cælos tuos ópera digitórum tuórum : \* lunam et stellas, quæ tu fundásti.
+
+Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
+
+Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas : ínsuper et pécora campi.
+
+Volúcres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** Dómine, Dóminus noster, quam admirábile est nomen tuum in univérsa terra! quia glória et honóre coronásti Sanctum tuum, et constituísti eum super ópera mánuum tuárum.
+
+℣. Elégit eum Dóminus sacerdótem sibi.
+℟. Ad sacrificándum ei hóstiam laudis.

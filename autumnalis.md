@@ -26486,3 +26486,102 @@ Mors peccatórum péssima : \* et qui odérunt justum, delínquent.
 Rédimet Dóminus ánimas servórum suórum \* et non delínquent omnes qui sperant in eo.
 
 **Ant.** Timéte Dóminum, omnes Sancti ejus, quóniam nihil deest timéntibus eum : ecce óculi Dómini super justos, et aures ejus ad preces eórum.
+
+**Ant.** Dómine, spes Sanctórum \* et turris fortitúdinis eórum, dedísti hereditátem timéntibus nomen tuum, et habitábunt in tabernáculo tuo in sǽcula.
+
+**Psalmus 60**
+
+EXáudi, Deus, deprecatiónem meam : \* inténde oratióni meæ.
+
+A fínibus terræ ad te clamávi : \* dum anxiarétur cor meum, in petra exaltásti me.
+
+Deduxísti me, quia factus es spes mea : \* turris fortitúdinis a fácie inimíci.
+
+Inhabitábo in tabernáculo tuo in sǽcula : \* prótegar in velaménto alárum tuárum.
+
+Quóniam tu, Deus meus, exaudísti oratiónem meam : \* dedísti hereditátem timéntibus nomen tuum.
+
+Dies super dies regis adjícies : \* annos ejus usque in diem generatiónis et generatiónis.
+
+Pérmanet in ætérnum in conspéctu Dei : \* misericórdiam et veritátem ejus quis requíret?
+
+Sic psalmum dicam nómini tuo in sǽculum sǽculi : \* ut reddam vota mea de die in diem.
+
+**Ant.** Dómine, spes Sanctórum et turris fortitúdinis eórum, dedísti hereditátem timéntibus nomen tuum, et habitábunt in tabernáculo tuo in sǽcula.
+
+**Ant.** Qui dilígitis Dóminum, \* lætámini in Dómino, et confitémini memóriæ sanctitátis ejus.
+
+**Psalmus 96**
+
+DOminus regnávit, exsúltet terra : \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Qui dilígitis Dóminum, lætámini in Dómino, et confitémini memóriæ sanctitátis ejus.
+
+℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 5, 1-12*
+
+IN illo témpore : Videns Jesus turbas, ascéndit in montem, et cum sedísset, accessérunt ad eum discípuli ejus. Et réliqua.
+
+{RUBRIC: Homilía sancti Augustíni Epíscopi (Liber 1 de Sermóne Dómini in monte, sub inítium)}
+
+SI quǽritur quid significet mons, bene intellígitur significáre majóra præcépta justítiæ, quia minóra erant quæ Judǽis data sunt. Unus tamen Deus, per sanctos prophétas et fámulos suos, secúndum ordinatíssimam distributiónem témporum, dedit minóra præcépta pópulo quem adhuc timóre alligári oportébat; et, per Fílium suum, majóra pópulo quem caritáte jam liberári convénerat. Cum autem minóra minóribus, majóra majóribus dantur, ab eo dantur, qui solus novit congruéntem suis témporibus géneri humáno exhibére medicínam.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et.
+
+{RUBRIC: Bened. Quorum festum.}
+
+##### Lectio viii
+
+NEC mirum est quod dantur præcépta majóra propter regnum cælórum, et minóra data sunt propter regnum terrénum, ab eódem uno Deo, qui fecit cælum et terram. De hac ergo justítia, quæ major est, per prophétam dícitur : Justítia tua sicut montes Dei; et hoc bene significat, quod ab uno magístro, solo docéndis tantis rebus idóneo, docétur in monte. Sedens autem docet, quod pértinet ad dignitátem magistérii. Et accédunt ad eum discípuli ejus, ut audiéndis illíus verbis hi essent étiam córpore vicinióres, qui præcéptis adimpléndis étiam ánimo propinquábant. Et apériens os suum docébat eos, dicens. Ista circumlocútio, qua scríbitur, Et apériens os suum, fortássis, ipsa mora, comméndat aliquánto longiórem futúrum esse sermónem; nisi forte non vacet quod nunc eum dictum est aperuísse os suum, quod ipse, in lege véteri, aperíre solérat ora prophetárum.
+
+℟. Média nocte clamor factus est : \* Ecce sponsus venit, exíte óbviam ei. ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. Glória Patri. Ecce.
+
+##### Lectio ix
+
+QUid ergo dicit? Beáti páuperes spíritu; quóniam ipsórum est regnum cælórum. Légimus scriptum de appetitióne rerum temporálium : Omnia vánitas, et præsúmptio spíritus. Præsúmptio autem spíritus, audáciam et supérbiam significat. Vulgo étiam magnos spíritus supérbi habére dicúntur; et recte, quandóquidem spíritus étiam ventus vocátur. Unde scriptum est : Ignis, grando, nix, glácies, spíritus procellárum. Quis vero nésciat supérbos infláitos dici tamquam vento disténtos? Unde est étiam illud Apóstoli : Sciéntia inflat, cáritas vero ædíficat. Quaprópter recte hic intelligúntur páuperes spíritu, húmiles et timéntes Deum, id est, non habéntes inflántem spíritum.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+{RUBRIC: et per Horas, Añæ}
+
+**Ant. 1** Vidi turbam magnam, \* quam dinumeráre nemo póterat, ex ómnibus géntibus stantes ante thronum.
+
+{RUBRIC: Psalmi de Dominica. 37}
+
+**Ant. 2** Et omnes Angeli \* stabant in circúitu throni, et cecidérunt in conspéctu throni in fácies suas et adoravérunt Deum.
+
+**Ant. 3** Redemísti nos, \* Dómine Deus, in sánguine tuo ex omni tribu et língua et pópulo et natióne, et fecísti nos Deo nostro regnum.
+
+**Ant. 4** Benedícite Dóminum, \* omnes elécti ejus : ágite dies lætítiæ, et confitémini illi.
+
+**Ant. 5** Hymnus \* ómnibus Sanctis ejus : fíliis Israël, pópulo appropinquánti sibi : glória hæc est ómnibus Sanctis ejus.

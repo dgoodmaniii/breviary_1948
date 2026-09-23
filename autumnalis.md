@@ -18851,3 +18851,64 @@ IN platéis sicut cinnamómum et bálsamum aromatízans odórem dedi : quasi myr
 ##### Lectio iii
 
 QUid ergo sidéreum micat in generatióne Maríæ? Plane quod ex régibus orta, quod ex sémine Abrahæ, quod generósa ex stirpe David. Si id parum vidétur, adde quod generatióni illi ob singuláre privilégium sanctitátis divínitus nóscitur esse concéssa, quod longe ante eísdem pátribus cǽlitus repromíssa, quod mýsticis præfiguráta miráculis, quod oráculis prænuntiáta prophéticis. Hanc enim sacerdotális virga, dum sine radíce flóruit; hanc Gedeónis vellus, dum in médio siccæ áreæ máduit; hanc in Ezechiélis visióne orientális porta, quæ nulli umquam pátuit, præsignábat. Hanc dénique præ céteris Isaías nunc virgam de radíce Jesse oritúram promittébat, nunc evidéntius vírginem paritúram.
+
+Mérito signum hoc magnum in cælo apparuísse scríbitur, quod tanto ante de cælo nóscitur fuísse promíssum.
+
+**Te Deum.**
+
+---
+
+### Die 9 Septembris — S. Gorgonii
+
+{RUBRIC: Mart. [29] Simplex}
+
+##### Lectio iii
+
+GOrgónius, Nicomedíæ natus, Diocletiáni imperatóris cubiculárius, Dorótheo collega suo adjutóre, réliquos omnes cubículi minístros ad Christi fidem perdúxit. Utérque autem, cum vidísset quodam die Mártyrem coram Diocletiáno acerbíssime cruciári, ejus exémplo martýrii amóre incénsus est. Itaque ambórum hæc vox erúpit : Quid est, imperátor, quod hujus condemnáta senténtia, quæ nobis cum eo commúnis est, unum illum punis? Istíus nostra étiam est fides, idem propósitum. Eos ígitur vinctos imperátor flagéllis concídi jubet, ita ut toto córpore cutis dirumperétur, et in plagas acétum infúndi sale permíxtum; mox revínctis in cratícula súbjici ímperat vim candéntium carbónum. Dénique, várie torti, suspéndio necáti sunt. Ac sancti Gorgónii corpus aliquándo Romam portátum, inter duas Lauros via Latína sepúltum, póstea a Gregório quarto summo Pontífice in basílicam Príncipis Apostolórum translátum est.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio**
+
+SAnctus tuus, Dómine, Gorgónius sua nos intercessióne lætíficet : et pia fáciat solemnitáte gaudére. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+### Die 10 Septembris — S. Nicolai de Tolentino
+
+{RUBRIC: Confessóris [94] — Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+*C 2*
+
+ADésto, Dómine, supplicatiónibus nostris, quas in beáti Nicolái Confessóris tui solemnitáte defférimus : ut, qui nostræ justítiæ fidúciam non habémus, ejus qui tibi plácuit, précibus adjuvémur. Per Dóminum.
+
+#### In II Nocturno
+
+##### Lectio iv
+
+NIcoláus, Tolentínas a diutúrno illíus civitátis domicílio appellátus, in óppido sancti Angeli in Picéno est natus piis paréntibus; qui, liberórum desidério Bárium voti causa profécti, ibíque a sancto Nicoláo de futúra prole confirmáti, quem suscepérunt fílium de illíus nómine appellárunt. Is ab infántia multárum virtútum, sed abstinéntiæ in primis, spécimen dedit. Nam anno vix séptimo, beátum ipsum Nicoláum imitátus, compléres hebdómadæ dies jejunáre cœpit; póstea consuetúdinem retínuit, solo pane et aqua conténtus.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+ADúlta ætáte, jam clericáli milítiæ adscríptus et canónicus factus, cum quodam die concionatórem órdinis Eremitárum sancti Augustíni de mundi contémptu dicéntem audísset, eo sermóne inflammátus, statim eúmdem órdinem est ingréssus. In quo tam exáctam religiósæ vitæ ratiónem cóluit, ut áspero vestítu, verbéribus et férrea caténa corpus domans, atque a carne et omni fere obsónio ábstinens, caritáte, humilitáte, patiéntia ceterísque virtútibus, áliis præluceret.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+ORándi assíduum stúdium, quamvis sátanæ insídiis várie vexátus et flagéllis intérdum cǽsus, non intermittébat. Demum, sex ante óbitum ménsibus, síngulis nóctibus angélicum concéntum audívit; cujus suavitáte cum jam paradísi gáudia prægustáret, crebro illud Apóstoli repetébat : Cúpio dissólvi, et esse cum Christo. Dénique óbitus sui diem frátribus prædíxit, qui fuit quarto Idus Septémbris. Miráculis multis étiam post mortem cláruit; quibus rite et órdine cógnitis, ab Eugénio Papa quarto in Sanctórum número est relátus.

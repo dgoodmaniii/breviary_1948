@@ -28899,3 +28899,67 @@ GErtrúdis, Islébii in Saxónia nata, quinquénnis in monastério Elpidiénsi, 
 #### AD LAUDES
 
 ℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quæ rénti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio**
+
+DEus, qui in corde beátæ Gertrúdis Vírginis jucúndam tibi mansiónem præparásti : ipsíus méritis et intercessióne; cordis nostri máculas cleménter abstérge, et ejúsdem tríbue gaudére consórtio. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Diffúsa est grátia.
+
+**Ad Magnif. Ant.** Veni, Sponsa Christi, \* áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+{RUBRIC: Et fit Com. sequéntis.}
+
+---
+
+# Die 17 Novembris
+
+## S. Gregorii Thaumaturgi
+
+{RUBRIC: Episc. et Conf. [69] Semiduplex}
+
+**Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+*C 1*
+
+DA, quæsumus, omnípotens Deus : ut beáti Gregórii Confessóris tui atque Pontíficis venerámda solémnitas, et devotiónem nobis áugeat, et salútem. Per Dóminum.
+
+### In II Nocturno
+
+{RUBRIC: Pro hoc Festo simplificato, Lectiónes iv et v in unam junctæ dicúntur ut ix.}
+
+##### Lectio iv
+
+GRegórius, Neocæsaréæ Ponti epíscopus, sanctitáte doctrináque illústris, signis vero ac miráculis multo illústrior, quorum multitúdine atque præstántia Thaumatúrgus appellátus est, et sancti Basílii testimónio cum Móyse, Prophétis et Apóstolis comparátus; montem, qui ecclésiæ ædificatiónem impediébat, oratióne álio tránstulit. Item palúdem, inter fratres causam discordiárum, exsiccávit. Lycum flúvium, perniciósa agros inundántem, defíxo ad ripam quo sustentabátur báculo qui statim viréntem crevit in árborem, coércuit, ut póstea ultra eum términum non efflúxerit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus enim.
+
+##### Lectio v
+
+SÆpíssime dǽmones ex idolórum simulácris atque ex hóminum corpóribus ejécit, múltaque ália mirabíliter effécit, quibus innumerábiles hómines traxit ad Jesu Christi fidem, cum étiam prophético spíritu futúra prædíceret. Qui, migratúrus e vita, cum quæsísset quot in civitáte Neocæsariénsi réliqui essent infidéles, responsúmque esset tantum esse septémdecim; Deo grátias agens, Tótidem, inquit, erant fidéles, cum cœpi episcopátum. Plura scripsit, quibus étiam, non solum miráculis, Dei Ecclésiam illustrávit.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea : \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus enim.
+
+{RUBRIC: Sermo sancti Máximi Epíscopi (Homilía 59, quæ est 2 de S. Eusébio)}
+
+##### Lectio vi
+
+BEáti Patris Gregórii mérita jam in tuto pósita secúri magnificémus; qui, gubernáculum fídei viríliter tenens, ánchoram spei tranquílla jam in statióne compósuit, et plenam cæléstibus divítiis et ætérnis mércibus navem optáto in líttore collocávit. Qui, contra omnes adversários, scutum timóris Dei tamdiu infatigábiliter ténuit, donec ad victóriam pervenéret. Quid enim fuit totus vitæ illíus cursus, nisi uníus cum vígili hoste conflíctus?
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Marcum}
+
+##### Lectio vii
+*Cap. 11, 22-24*
+
+IN illo témpore : Respóndens Jesus discípulis suis ait illis : Habéte fidem Dei. Amen dico vobis quia quicúmque díxerit huic monti : Tóllere et míttere in mare, et non hæsitáverit in corde suo, sed credíderit quia quodcúmque díxerit fiat, fiet ei. Et réliqua.

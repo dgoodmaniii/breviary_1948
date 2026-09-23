@@ -34245,3 +34245,17 @@ QUantos, per longam incúriam peccáti labe resolútos et quadam lepræ contagi�
 *Cap. 24, 42-47*
 
 IN illo témpore : Dixit Jesus discípulis suis : Vigiláte, quia nescítis qua hora Dóminus vester ventúrus sit. Et réliqua.
+
+{RUBRIC: Homilía sancti Hilárii Epíscopi}
+{RUBRIC: Comment. in Matth. can. 26 in fine}
+
+ET ignorántiam illam diéi ómnibus táciti non sine útilis siléntii ratióne esse scirémus, vigiláre nos Dóminus própter advéntum furis admónuit, et, oratiónum assiduitáte deténtos, ómnibus præceptórum suórum opéribus inhærére. Furem enim esse osténdit zábulum, ad detrahénda ex nobis spólia pervígilem et córporum nostrórum dómibus insidiántem; ut ea, incuriósis nobis et somno déditis, consiliórum suórum atque illecebrárum jáculis perfódiat. Parátos ígitur esse nos convénit, quia diéi ignorátio inténtam sollicitúdinem suspénsæ exspectatiónis exágitet.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+#### Lectio viii
+*Can. 27*
+
+QUisnam est fidélis servus et prudens, quem constítuit Dóminus super famíliam suam? Quamquam in commúne nos ad indeféssam vigilántiæ curam adhortétur, speciálem tamen pópuli princípibus, id est, epíscopis, in exspectatióne adventúque suo sollicitúdinem mandat. Hunc enim servum fidélem atque prudéntem, præpósitum famíliæ signíficat, commóda atque utilitátes commíssi sibi pópuli curántem. Qui, si dicto áudiens et præcéptis obédiens erit, id est, si doctrínæ opportunitáte et veritáte infírma confírmet, disrúpta consólidet, depraváta convértat et verbum vitæ in æternitátis cibum alénda famíliæ dispéndat, atque hæc agens hisque ímmorans deprehendátur; glóriam a Dómino tamquam dispensátor fidélis et víllicus útilis consequétur, et super ómnia bona constituétur, id est, in Dei glória collocábitur, quia nihil sit ultra, quod mélius sit.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. **Glória Patri.** Et.

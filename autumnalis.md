@@ -17549,3 +17549,74 @@ CHristus ergo, si in suis mansísset virtútibus, commúne cum homínibus nil ha
 **Ad Magnif. Ant.** Tulit ergo \* paralýticus lectum suum, in quo jacébat, magníficans Deum : et omnis plebs, ut vidit, dedit laudem Deo.
 
 **Oratio** Dirigat, ut supra. 446
+
+---
+
+## Dominica XIX post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+OMnípotens et miséricors Deus, univérsa nobis adversántia propitiátus exclúde : ut mente et córpore páriter expedíti, quæ tua sunt, líberis méntibus exsequámur. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 22, 1-14*
+
+IN illo témpore : Loquebátur Jesus princípibus sacerdótum et pharisǽis in parábolis, dicens : Símile factum est regnum cælórum hómini regi, qui fecit núptias fílio suo. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+*Homilia 38 in Ev., post init.*
+
+SǼpe jam me dixísse mémini, quod plerúmque in sancto Evangélio regnum cælórum prǽsens Ecclésia nominátur : congregátio quippe justórum, regnum cælórum dícitur. Quia enim per prophétam Dóminus dicit : Cælum mihi sedes est; et Sálomon ait : Anima justi sedes sapiéntiæ; Paulus étiam dicit Christum Dei virtútem, et Dei sapiéntiam : líquido collígere debémus, quia si Deus sapiéntia, ánima autem justi, sedes sapiéntiæ, dum cælum dícitur sedes Dei, cælum ergo est ánima justi. Hinc per Psalmístam de sanctis prædicatóribus dícitur : Cæli enárrant glóriam Dei.
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+REgnum ergo cælórum est Ecclésia justórum : quia dum eórum corda in terra nil ámbiunt, per hoc quod ad supérna suspírant, jam in eis Dóminus quasi in cæléstibus regnat. Dicátur ergo : Símile est regnum cælórum hómini regi, qui fecit núptias fílio suo. Jam intélligit cáritas vestra, quis est iste Rex, Regis fílii pater : ille nimírum, cui Psalmísta ait : Deus judícium tuum Regi da, et justítiam tuam fílio Regis. Qui fecit núptias fílio suo. Tunc enim Deus Pater Deo Fílio suo núptias fecit, quando hunc in útero Vírginis humánæ natúræ conjúnxit, quando Deum ante sǽcula fíeri vóluit hóminem in fine sæculórum.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+SED quia ex duábus persónis fíeri solet ista nuptiális conjúnctio; absit hoc ab intelléctibus nostris, ut persónam Dei et hóminis Redemptóris nostri Jesu Christi, ex duábus persónis credámus unítam. Ex duábus quippe atque in duábus hunc natúris exsístere dícimus; sed ex duábus persónis compósitum credi, ut nefas vitámus. Apértius ergo atque secúrius dici potest, quia in hoc Pater Regi Fílio núptias fecit, quo ei per incarnatiónis mystérium sanctam Ecclésiam sociávit. Uterus autem Genitrícis Vírginis, hujus sponsi thálamus fuit. Unde et Psalmísta dicit : In sole pósuit tabernáculum suum, et ipse tamquam sponsus procédens de thálamo suo.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Dícite invitátis : \* Ecce prándium meum parávi, veníte ad núptias, allelúja.
+
+**Oratio** Omnípotens, ut supra. 448
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Intrávit autem rex, \* ut vidéret discumbéntes, et vidit ibi hóminem non vestítum veste nuptiáli et ait illi : Amíce, quómodo huc intrásti non habens vestem nuptiálem?
+
+---
+
+## Dominica XX post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+LArgíre, quǽsumus, Dómine, fidélibus tuis indulgéntiam placátus et pacem : ut páriter ab ómnibus mundéntur offénsis, et secúra tibi mente desérviant. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Joánnem}
+
+##### Lectio vii
+*Cap. 4, 46-53*
+
+IN illo témpore : Erat quidam régulus, cujus fílius infirmabátur Caphárnaum. Et réliqua.

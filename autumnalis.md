@@ -17399,3 +17399,85 @@ ECclésiam tuam, Dómine, miserátio continuáta mundet et múniat : et quia sin
 **Oratio**
 
 TUA nos, quǽsumus, Dómine, grátia semper et prævéniat et sequátur : ac bonis opéribus júgiter præstet esse inténtos. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio vii
+*Cap. 14, 1-11*
+
+IN illo témpore : Cum intráret Jesus in domum cujúsdam príncipis pharisæórum sábbato manducáre panem, et ipsi observábant eum. Et ecce homo quidam hydrópicus erat ante illum. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+*Liber 7 in Lucæ cap. 14*
+
+CUrátur hydrópicus, in quo fluxus carnis exúberans ánimæ gravábat offícia, spíritus exstinguébat ardórem. Deínde docétur humílitas, dum in illo convívio nuptiáli appeténtia loci superióris arcétur; cleménter tamen, ut persuásio humanitátis asperitátem coercitiónis exclúderet, rátio profíceret ad persuasiónis efféctum, et corréctio emendáret afféctum. Huic quasi próximo límine humánitas copulátur : quæ ita Dominícæ senténtiæ definitióne distínguitur, si in páuperes et débiles conferátur : nam hospitálem esse remuneratúris, afféctus avarítiæ est.
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+POstrémo jam quasi eméritæ milítiæ viro contemnendárum stipéndium præscríbitur facultátum : quod neque ille, qui stúdiis inténtus inferióribus possessiónes sibi terrénas coémit, regnum cæli possit adipísci, cum Dóminus dicat : Vende ómnia tua, et séquere me : nec ille qui emit boves, cum Eliséus occíderit, et pópulo divíserit quos habébat : et ille qui duxit uxórem, cógitet quæ mundi sunt, non quæ Dei. Non quo conjúgium reprehendátur, sed quia ad majórem honórem vocétur integritas : quóniam múlier innúpta et vídua cógitat quæ sunt Dómini, ut sit sancta córpore et spíritu.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+SED ut in grátiam, ut supra cum víduis, ita nunc étiam cum conjúgibus revertámur : non refúgimus opiniónem, quam sequúntur plerique, ut tria génera hóminum a consórtio magnæ illíus cœnæ æstimémus exclúdi : gentílium, Judæórum, Hæreticórum. Et ídeo Apóstolus avarítiam dicit esse fugiéndam; ne impedíti more gentíli, iniquitáte, malítia, impudicítia, avarítia, ad regnum Christi pervenire nequeámus. Omnis enim immúndus aut avárus, quod est idolórum sérvitus, non habet hereditátem in regno Christi et Dei.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum intráret Jesus \* in domum cujúsdam príncipis pharisæórum sábbato manducáre panem, ecce homo quidam hydrópicus erat ante illum : ipse vero apprehénsum sanávit eum, ac dimísit.
+
+**Oratio**
+
+TUA nos, quǽsumus, Dómine, grátia semper et prævéniat et sequátur : ac bonis opéribus júgiter præstet esse inténtos. Per Dóminum.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Cum vocátus fúeris \* ad núptias, recúmbe in novíssimo loco, ut dicat tibi qui te invitávit : Amíce, ascénde supérius. Et erit tibi glória coram simul discumbéntibus, allelúja.
+
+---
+
+## Dominica XVII post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+DA, quǽsumus, Dómine, pópulo tuo diabólica vitáre contágia : et te solum Deum pura mente sectári. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 22, 34-46*
+
+IN illo témpore : Accessérunt ad Jesum pharisǽi, et interrogávit eum unus ex eis legis doctor tentans eum : Magíster, quod est mandátum magnum in lege? Et réliqua.
+
+{RUBRIC: Homilía sancti Joánnis Chrysóstomi}
+*Homilia 72 in Matthǽum*
+
+SAdducǽis confúsis, pharisǽi rursus aggrediúntur; cumque quiéscere oportéret, decertáre voluérunt : et legis perítiam profiténtem præmíttunt, non díscere, sed tentáre cupiéntes; ac ita intérrogant : Quodnam primum mandátum in lege sit. Nam cum primum illud sit, Díliges Dóminum Deum tuum : putántes causas sibi allatúrum ad mandátum hoc corrigéndum, áliquid addéndo, quóniam Deum se faciébat, hoc modo intérrogant. Quid ígitur Christus? Ut osténdat idcírco ad hæc eos devenísse, quia nulla in eis esset cáritas, sed invídiæ livóre tabéscerent : Díliges, inquit, Dóminum Deum tuum : hoc primum et magnum mandátum est. Secúndum autem símile huic : Díliges próximum tuum sicut teípsum.
+
+{RUBRIC: Responsorium conveniens.}
+
+##### Lectio viii
+
+QUam ob rem símile est huic? Quóniam hoc illud indúcit, et ab illo rursus munítur. Quicúmque enim male agit, ódio habet lucem, et non venit ad lucem. Et rursus : Dixit insípiens in corde suo, Non est Deus. Deínde séquitur : Corrúpti sunt, et abominábiles facti sunt in stúdiis suis. Et íterum : Radix ómnium malórum avarítia est; quam quidam appeténtes, erravérunt a fide. Et, Qui díligit me, mandáta mea servábit : quorum caput et radix est : Díliges Dóminum Deum tuum, et próximum tuum sicut teípsum.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+SI ergo dilígere Deum, dilígere próximum est : (nam si díligis me, o Petre, inquit, pasce oves meas) si étiam diléctio próximi facit ut mandáta custódias : mérito ait in his totam legem et Prophétas pendére. Et quemádmodum in superióribus, cum de resurrectióne interrogarétur, plus dócuit quam tentántes petébant; sic in hoc loco de primo interrogátus mandáto, secúndum étiam non valde quam primum inférius, sponte áttulit; secúndum enim est primo símile. Ita occúlte insinuávit, ódio illos ad quæréndum incitári. Cáritas enim, inquit, non æmulátur.
+
+**Te Deum laudámus.**

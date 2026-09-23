@@ -33012,3 +33012,83 @@ SCimus autem quóniam diligéntibus Deum ómnia cooperántur in bonum, iis, qui 
 {RUBRIC: Pro pluribus Martyribus}
 
 ℟. Viri sancti gloriósum sánguinem fudérunt pro Dómino, amavérunt Christum in vita sua, imitáti sunt eum in morte sua : \* Et ídeo corónas triumpháles meruérunt. ℣. Unus spíritus, et una fides erat in eis. — Et.
+
+{RUBRIC: Pro uno Mart. non Pont.}
+
+℟. Justus germinábit sicut lílium : \* Et florébit in ætérnum ante Dóminum. ℣. Plantátus in domo Dómini, in átriis domus Dei nostri. — Et.
+
+**Benedictio.** Spíritus Sancti.
+
+#### Lectio iii
+
+QUis ergo nos separábit a caritáte Christi? tribulátio, an angústia, an fames, an núditas, an perículum, an persecútio, an gládius? (sicut scriptum est : Quia propter te mortificámur tota die : æstimáti sumus sicut oves occisiónis.) Sed in his ómnibus superámus propter eum, qui diléxit nos. Certus sum enim quia neque mors, neque vita, neque Angeli, neque Principátus, neque Virtútes, neque instántia, neque futúra, neque fortitúdo, neque altitúdo, neque profúndum, neque creatúra ália póterit nos separáre a caritáte Dei, quæ est in Christo Jesu, Dómino nostro.
+
+{RUBRIC: Pro pluribus Martyribus}
+
+℟. Tradidérunt córpora sua propter Deum ad supplícia : \* Et meruérunt habére corónas perpétuas. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Et. **Glória Patri.** Et.
+
+{RUBRIC: Pro uno Mart. non Pont.}
+
+℟. Iste cognóvit justítiam, et vidit mirabília magna, et exorávit Altíssimum : \* Et invéntus est in número Sanctórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Et. **Glória Patri.** Et.
+
+### In II Nocturno
+
+**Ant.** Dabo Sanctis meis \* locum nominátum in regno Patris mei, dicit Dóminus.
+
+###### Psalmus 14
+
+DOmine, quis habitábit in tabernáculo tuo? \* aut quis requiéscet in monte sancto tuo?
+
+Qui ingréditur sine mácula, \* et operátur justítiam :
+
+Qui lóquitur veritátem in corde suo, \* qui non egit dolum in lingua sua :
+
+Nec fecit próximo suo malum, \* et oppróbrium non accépit advérsus próximos suos.
+
+Ad níhilum dedúctus est in conspéctu ejus malígnus : \* timéntes autem Dóminum gloríficat :
+
+Qui jurat próximo suo, et non décipit, \* qui pecúniam suam non dedit ad usúram, et múnera super innocéntem non accépit.
+
+Qui facit hæc, \* non movébitur in ætérnum.
+
+**Ant.** Dabo Sanctis meis locum nominátum in regno Patris mei, dicit Dóminus.
+
+**Ant.** Sanctis, qui in terra sunt ejus, \* mirificávit omnes voluntátes meas inter illos.
+
+###### Psalmus 15
+
+COnsérva me, Dómine, quóniam sperávi in te. \* Dixi Dómino : Deus meus es tu, quóniam bonórum meórum non eges.
+
+Sanctis, qui sunt in terra ejus, \* mirificávit omnes voluntátes meas in eis.
+
+Multiplicátæ sunt infirmitátes eórum : \* póstea acceleravérunt.
+
+Non congregábo conventícula eórum de sanguínibus, \* nec memor ero nóminum eórum per lábia mea.
+
+Dóminus pars hereditátis meæ, et cálicis mei : \* tu es, qui restítues hereditátem meam mihi.
+
+Funes cecidérunt mihi in præcláris : \* étenim heréditas mea præclára est mihi.
+
+Benedícam Dóminum, qui tríbuit mihi intelléctum : \* ínsuper et usque ad noctem increpuérunt me renes mei.
+
+Providébam Dóminum in conspéctu meo semper : \* quóniam a dextris est mihi, ne commóvear.
+
+Propter hoc lætátum est cor meum, et exsultávit lingua mea : \* ínsuper et caro mea requiéscet in spe.
+
+Quóniam non derelínques ánimam meam in inférno : \* nec dabis sanctum tuum vidére corruptiónem.
+
+Notas mihi fecísti vias vitæ, adimplébis me lætítia cum vultu tuo : \* delectatiónes in déxtera tua usque in finem.
+
+**Ant.** Sanctis, qui in terra sunt ejus, mirificávit omnes voluntátes meas inter illos.
+
+**Ant.** Sancti, qui sperant in Dómino, \* habébunt fortitúdinem, assúment pennas ut áquilæ, volábunt et non defícient.
+
+###### Psalmus 23
+
+DOmini est terra, et plenitúdo ejus : \* orbis terrárum, et univérsi qui hábitant in eo.
+
+Quia ipse super mária fundávit eum : \* et super flúmina præparávit eum.
+
+Quis ascéndet in montem Dómini? \* aut quis stabit in loco sancto ejus?
+
+Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam

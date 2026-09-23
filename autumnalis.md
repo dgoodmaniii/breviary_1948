@@ -38239,3 +38239,38 @@ BEátæ et gloriósæ semper Vírginis Maríæ, quǽsumus, Dómine, intercéssio
 **Invitat.** Ave, María, grátia plena; \* Dóminus tecum. **Ps. 94** Veníte, exsultémus.
 
 {RUBRIC: Hymn. Quem terra. [177]}
+
+### In Nocturno
+
+{RUBRIC: Antíphonæ et Psalmi ut in Communi Festórum beátæ Maríæ Vírginis, scílicet :}
+{RUBRIC: Domínica, Féria II et V : De I Noctúrno. [177]}
+{RUBRIC: Féria III et VI : De II Noctúrno. [180]}
+{RUBRIC: Féria IV et Sábbato : De III Noctúrno. [184]}
+
+℣. Diffúsa est grátia in lábiis tuis. ℟. Proptérea benedíxit te Deus in ætérnum.
+
+{RUBRIC: Pater noster secréto usque ad ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.}
+
+**Absolutio**
+
+PRécibus et méritis beátæ Maríæ semper Vírginis et ómnium Sanctórum, perdúcat nos Dóminus ad regna cælórum. ℟. Amen.
+
+℣. Jube, domne, benedícere. **Bened.** Nos cum prole pia benedícat Virgo María. ℟. Amen.
+
+**Lectio i** *Eccli. 24, 11-13*
+
+IN ómnibus réquiem quæsívi, et in hereditáte Dómini morábor. Tunc præcépit et dixit mihi Creátor ómnium, et, qui creávit me, requiévit in tabernáculo meo, et dixit mihi : In Jacob inhábita, et in Israël hereditáre, et in eléctis meis mitte radíces. Tu autem, Dómine, miserére nobis.
+
+℟. Deo grátias.
+
+℟. Sancta et immaculáta virgínitas, quibus te láudibus éfferam, néscio : \* Quia quem cæli cápere non póterant, tuo grémio contulísti. ℣. Benedícta tu in muliéribus, et benedíctus fructus ventris tui. — Quia.
+
+℣. Jube, domne, benedícere. **Bened.** Ipsa Virgo vírginum intercédat pro nobis ad Dóminum. ℟. Amen.
+
+**Lectio ii** *Eccli. 24, 15-20*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea. Tu autem.
+
+℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi : \* Genuísti qui te fecit, et in ætérnum pérmanes virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti. **Glória Patri.** Genuísti.
+
+℣. Jube, domne, benedícere. **Bened.** Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.

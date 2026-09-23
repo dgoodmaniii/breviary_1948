@@ -34404,4 +34404,26 @@ IN illo témpore : Dixit Jesus discípulis suis : Vos estis sal terræ. Quod si 
 {RUBRIC: Homilía sancti Hilárii Epíscopi}
 {RUBRIC: Comment. in Matth., can. 4}
 
-VOS estis sal terræ. Quod si sal infatuátum fúerit, ad níhilum valet id quod saliétur.
+VOS estis sal terræ. Quod si sal infatuátum fúerit, ad níhilum valet id quod saliétur. Sal, ut árbitror, terræ nullum est. Quómodo ergo Apóstolos sal terræ nuncupávit? Sed proprietas est quærénda dictórum, quam et Apostolórum offícium et ipsíus salis natúra monstrábit. Sal est in se uno cóntinens aquæ et ignis eleméntum, et hoc ex duóbus est unum.
+
+{RUBRIC: Pro Doctore Pontifice}
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+{RUBRIC: Pro Doctore non Pontifice}
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+HIc ígitur in omnem usum humáni géneris efféctus, incorruptiónem corpóribus, quibus fúerit aspérsus, impértit, et ad omnem sensum condíti sapóris aptíssimus est. Apóstoli autem sunt rerum cæléstium prædicatóres et æternitátis velut satóres, immortalitátem ómnibus corpóribus, quibus eórum sermo aspérsus fúerit, conferéntes. Mérito ígitur sal terræ nuncupáti sunt, per doctrínæ virtútem, saliéndi modo, æternitáti córpora reservántes.
+
+℟. In médio Ecclésiæ apéruit os ejus, \* Et implévit eum Dóminus spíritu sapiéntiæ et intelléctus. ℣. Jucunditátem et exsultatiónem thesaurizávit super eum. — Et. **Glória Patri.** Et.
+
+#### Lectio ix
+
+SEd natúra salis semper éadem est, nec immutári umquam potest. Verum quia conversióni homo súbjacet, et solus beátus, qui usque ad finem in ómnibus Dei opéribus permánserit; ídeo eos, sal terræ nuncupátos, monet in tráditæ sibi potestátis virtúte persístere, ne infatuáti nihil sáliant, et ipsi, sensu accépti sapóris amísso, vivificáre corrúpta non possint, et projécti de Ecclésiæ promptuáriis, cum his quos salíerint, pédibus incedéntium proterántur.
+
+**Te Deum laudámus.**
+
+---

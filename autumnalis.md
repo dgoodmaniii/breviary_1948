@@ -38045,3 +38045,39 @@ Qui natus es de Vírgine,
 Cum Patre, et almo Spíritu,
 In sempitérna sæcula.
 Amen.
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Bened. Ant.** Beáta Dei Génitrix, María, \* Virgo perpétua, templum Dómini, sacrárium Spíritus Sancti, sola sine exémplo placuísti Dómino nostro Jesu Christo : ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu.
+
+**Oratio**
+
+COncéde nos fámulos tuos, quǽsumus, Dómine Deus, perpétua mentis et córporis sanitáte gaudére : et, gloriósa beátæ Maríæ semper Vírginis intercessióne, a præsénti liberári tristítia et ætérna pérfrui lætítia. Per Dóminum.
+
+**Suffragium de omnibus Sanctis**
+
+**Ant.** Sancti omnes intercédant pro nobis ad Dóminum.
+
+℣. Mirificávit Dóminus Sanctos suos. ℟. Et exaudívit eos clamántes ad se.
+
+**Orémus. Oratio**
+
+ACunctis nos, quǽsumus, Dómine, mentis et córporis defénde perículis : et, intercedénte beáto Joseph, cum beátis Apóstolis tuis Petro et Paulo, atque beáto N. et ómnibus Sanctis, salútem nobis tríbue benígnus et pacem; ut, destrúctis adversitátibus et erróribus univérsis, Ecclésia tua secúra tibi sérviat libertáte. Per Dóminum. ℟. Amen.
+
+{RUBRIC: Ad Primam in ℟. br. ℣. Qui natus es de María Vírgine, et ad absolutiónem Capítuli Léctio brevis In platéis, ut infra ad Nonam.}
+
+#### AD TERTIAM
+
+**Capitulum** *Eccli. 24, 14*
+
+AB inítio et ante sǽcula creáta sum, et usque ad futúrum sæculum non désinam, et in habitatióne sancta coram ipso minístrávi.
+
+℟. br. Spécie tua \* Et pulchritúdine tua. Spécie. ℣. Inténde, próspere procéde, et regna. Et. **Glória Patri.** Spécie. ℣. Adjuvábit eam Deus vultu suo. ℟. Deus in médio ejus, non commovébitur.
+
+#### AD SEXTAM
+
+**Capit.** *Eccli. 24, 15-16*
+
+ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi, et in Jerúsalem potéstas mea. Et radicávi in pópulo honorificáto, et in parte Dei mei heréditas illíus, et in plenitúdine sanctórum deténtio mea.
+
+℟. br. Adjuvábit eam \* Deus vultu suo. Adjuvá-

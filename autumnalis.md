@@ -18002,3 +18002,121 @@ IN illa plane ságena, qua conclúduntur et mali et boni pisces, non absúrde ma
 ℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
 
 **Ad Bened. Ant.** Dómine, \* nonne bonum semen seminásti in agro tuo? unde ergo habet zizánia? Et ait illis : Hoc fecit inimícus homo.
+
+**Oratio**
+
+FAmíliam tuam, quǽsumus, Dómine, contínua pietáte custódi : ut, quæ in sola spe grátiæ cæléstis innítitur, tua semper protectióne muniátur. Per Dóminum.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Collígite \* primum zizánia, et alligáte ea in fascículos ad comburéndum : tríticum autem congregáte in hórreum meum, dicit Dóminus.
+
+---
+
+## Dominica VI quæ superfuit post Epiphaniam
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+PRǽsta, quǽsumus, omnípotens Deus : ut semper rationabília meditántes; quæ tibi sunt plácita, et dictis exsequámur, et factis. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 13, 31-35*
+
+IN illo témpore : Dixit Jesus turbis parábolam hanc : Símile est regnum cælórum grano sinápis, quod accípiens homo seminávit in agro suo. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 2 Comment. in cap. 13 Matthǽi*
+
+REgnum cælórum prædicátio Evangélii est, et notítia Scripturárum, quæ ducit ad vitam, et de qua dícitur ad Judǽos : Auferétur a vobis regnum Dei, et dábitur genti faciénti fructus ejus. Símile est ergo hujuscémodi regnum grano sinápis, quod accípiens homo seminávit in agro suo. Homo qui séminat in agro suo, a plerísque Salvátor intelligítur, quod in ánimis credéntium séminet : ab áliis ipse homo séminans in agro suo, hoc est in semetípso, et in corde suo.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+##### Lectio viii
+
+QUis est iste, qui séminat, nisi sensus noster et ánimus; qui suscípiens granum prædicatiónis, et fovens seméntem, humóre fídei facit in agro sui péctoris pullulláre? Prædicátio Evangélii mínima est ómnibus disciplínis. Ad primam quippe doctrínam, fidem non habet veritátis, hóminem Deum Christum mórtuum, et scándalum crucis prǽdicans. Confer hujuscémodi doctrínam dogmátibus philosophórum, et libris eórum, et splendóri eloquéntiæ, et compositióni sermónum : et vidébis quanto minor sit céteris semínibus seméntis Evangélii.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+SED illa cum créverint, nihil mordax, nihil vívidum, nihil vitále demónstrant : sed totum fláccidum marcidúmque et mollítum ebúllit in ólera et in herbas, quæ cito aréscunt et córruunt. Hæc autem prædicátio, quæ parva videbátur in princípio, cum vel in ánima credéntis, vel in toto mundo sata fúerit, non exsúrgit in ólera, sed crescit in árborem : ita ut vólucres cæli (quas vel ánimas credéntium, vel fortitúdines Dei servítio mancipátas, sentíre debémus) véniant et hábitent in ramis ejus. Ramos puto evangélicæ árboris quæ de grano sinápis créverit, dógmatum esse diversitátes, in quibus supradictárum vólucrum unaquǽque requiéscit.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Símile est \* regnum cælórum grano sinápis, quod mínimum est ómnibus semínibus : cum autem créverit, majus est ómnibus oléribus.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Símile est \* regnum cælórum ferménto, quod accéptum múlier abscóndit in farínæ satis tríbus, donec fermentátum est totum.
+
+**Oratio**
+
+PRǽsta, quǽsumus, omnípotens Deus : ut semper rationabília meditántes; quæ tibi sunt plácita, et dictis exsequámur, et factis. Per Dóminum.
+
+---
+
+## Dominica XXIV et ultima post Pentecosten
+
+{RUBRIC: Semiduplex}
+
+**Oratio**
+
+EXcita, quǽsumus, Dómine, tuórum fidélium voluntátes : ut divíni óperis fructum propénsius exsequéntes; pietátis tuæ remédia majóra percípiant. Per Dóminum.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 24, 15-35*
+
+IN illo témpore : Dixit Jesus discípulis suis : Cum vidéritis abominatiónem desolatiónis, quæ dicta est a Daniéle prophéta, stantem in loco sancto : qui legit, intélligat. Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+*Liber 4 Comment. in cap. 24 Matthǽi*
+
+QUando ad intelligéntiam provocámur, mýsticum monstrátur esse quod dictum est. Légimus autem in Daniéle hoc modo : Et in dimídio hebdómadis auferétur sacrifícium et libámina; et in templo abominátio desolatiónum erit, usque ad consummatiónem témporis, et consummátio dábitur super solitúdinem. De hoc et Apóstolus lóquitur, quod homo iniquitátis, et adversárius elevándus sit contra omne quod dícitur Deus et cólitur; ita ut áudeat stare in templo Dei, et osténdere quod ipse sit Deus : cujus advéntus secúndum operatiónem sátanæ déstruat eos, et ad Dei solitúdinem rédigat, qui se suscéperint.
+
+℟. Laudábilis pópulus, \* Quem Dóminus exercítuum benedíxit dicens : Opus mánuum meárum tu es, heréditas mea Israël. ℣. Beáta gens, cujus est Dóminus Deus, pópulus eléctus in hereditátem. — Quem.
+
+##### Lectio viii
+
+POtest autem simplíciter aut de Antichrísto áccipi, aut de imágine Cǽsaris, quam Pilátus pósuit in templo, aut de Hadriáni equéstri státua, quæ in ipso sancto sanctórum loco usque in præséntem diem stetit. Abominátio quoque secúndum véterem Scriptúram idólum nuncupátur; et idcírco additur, desolatiónis, quod in desoláto templo atque destrúcto idólum pósitum sit.
+
+℟. Duo Séraphim clamábant alter ad álterum : \* Sanctus, sanctus, sanctus Dóminus Deus Sábaoth : \* Plena est omnis terra glória ejus. ℣. Tres sunt qui testimónium dant in cælo, Pater, Verbum, et Spíritus Sanctus : et hi tres unum sunt. — Sanctus. Glória Patri. Plena.
+
+##### Lectio ix
+
+ABominátio desolatiónis intélligi potest et omne dogma pervérsum : quod cum vidérimus stare in loco sancto, hoc est in Ecclésia, et se osténdere Deum, debémus fúgere de Judǽa ad montes, hoc est, dimíssa occidénte líttera, et Judáica pravitáte, appropinquáre móntibus ætérnis, de quibus illúminat mirabíliter Deus; et esse in tecto et in dómate, quo non possint ignita diáboli jácula perveníre, nec descéndere et tóllere áliquid de domo conversatiónis prístinæ, nec quǽrere quæ retrórsum sunt, sed magis sérere in agro spirituálium Scriptúrarum, ut fructus capiámus ex eo; nec tóllere álteram túnicam, quam Apóstoli habére prohibéntur.
+
+**Te Deum laudámus.**
+
+### AD LAUDES
+
+℣. Dóminus regnávit, decórem índuit. ℟. Induit Dóminus fortitúdinem, et præcínxit se virtúte.
+
+**Ad Bened. Ant.** Cum vidéritis \* abominatiónem desolatiónis quæ dicta est a Daniéle prophéta, stantem in loco sancto : qui legit, intélligat.
+
+**Oratio**
+
+EXcita, quǽsumus, Dómine, tuórum fidélium voluntátes : ut divíni óperis fructum propénsius exsequéntes; pietátis tuæ remédia majóra percípiant. Per Dóminum.
+
+### AD VESPERAS
+
+℣. Dirigátur, Dómine, orátio mea. ℟. Sicut incénsum in conspéctu tuo.
+
+**Ad Magnif. Ant.** Amen dico vobis, \* quia non præteríbit generátio hæc, donec ómnia fiant : cælum et terra transíbunt, verba autem mea non transíbunt, dicit Dóminus.

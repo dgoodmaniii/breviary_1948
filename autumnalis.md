@@ -38274,3 +38274,51 @@ ET sic in Sion firmáta sum, et in civitáte sanctificáta simíliter requiévi,
 ℟. Beáta es, Virgo María, quæ Dóminum portásti, Creatórem mundi : \* Genuísti qui te fecit, et in ætérnum pérmanes virgo. ℣. Ave, María, grátia plena; Dóminus tecum. — Genuísti. **Glória Patri.** Genuísti.
 
 ℣. Jube, domne, benedícere. **Bened.** Per Vírginem Matrem concédat nobis Dóminus salútem et pacem. ℟. Amen.
+
+#### Lectio iii
+
+QUasi cedrus exaltáta sum in Líbano, et quasi cypréssus in monte Sion : quasi palma exaltáta sum in Cades, et quasi plantátio rosæ in Jéricho : quasi olíva speciósa in campis, et quasi plátanus exaltáta sum juxta aquam in platéis. Sicut cinnamómum et bálsamum aromatízans odórem dedi; quasi myrrha elécta dedi suavitátem odóris. Tu autem.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Deus, in adjutórium.
+
+**Ant. 1** Assúmpta est María in cælum : \* gaudent Angeli, laudántes benedícunt Dóminum.
+
+{RUBRIC: Psalmi de Dominica.}
+
+**Ant. 2** María Virgo assúmpta est \* ad æthéreum thálamum, in quo Rex regum stelláto sedet sólio.
+
+**Ant. 3** In odórem \* unguentórum tuórum cúrrimus : adolescéntulæ dilexérunt te nimis.
+
+**Ant. 4** Benedícta \* fília tu a Dómino : quia per te fructum vitæ communicávimus.
+
+**Ant. 5** Pulchra es \* et decóra, fília Jerúsalem, terríbilis ut castrórum ácies ordináta.
+
+**Capitulum** *Cant. 6, 8*
+
+VIdérunt eam fíliæ Sion, et beatíssimam prædicavérunt, et regínæ laudavérunt eam. ℟. Deo grátias.
+
+{RUBRIC: Hymnus O gloriósa. [191]}
+
+℣. Benedícta tu in muliéribus. ℟. Et benedíctus fructus ventris tui.
+
+**Ad Bened. Ant.** Beáta Dei Génitrix, María, \* Virgo perpétua, templum Dómini, sacrárium Spíritus Sancti, sola sine exémplo placuísti Dómino nostro Jesu Christo : ora pro pópulo, intérveni pro clero, intercéde pro devóto femíneo sexu.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+**Oratio**
+
+DEus, qui de beátæ Maríæ Vírginis útero Verbum tuum, Angelo nuntiánte, carnem suscípere voluísti : præsta supplícibus tuis; ut, qui vere eam Genitrícem Dei crédimus, ejus apud te intercessiónibus adjuvémur. Per eúmdem Dóminum.
+
+{RUBRIC: Et fit Commemoratio de Sanctis, ut supra ad Vésperas. [195]}
+
+#### AD PRIMAM
+
+{RUBRIC: Ave María, ut supra.}
+
+℣. Deus, in adjutórium.

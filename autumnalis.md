@@ -22922,3 +22922,53 @@ BRuno, Carthusiánæ religiónis institútor, Colóniæ Agrippínæ natus est. A
 ℣. Justum dedúxit.
 
 **Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+SAncti Brunónis Confessóris tui, quǽsumus, Dómine, intercessiónibus adjuvémur : ut, qui majestátem tuam gráviter delinquéndo offéndimus, ejus méritis et précibus, nostrórum delictórum véniam consequámur. Per Dóminum nostrum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio tantum præcedéntis.}
+
+---
+
+## DIE 7 OCTOBRIS
+
+## Sacratissimi Rosarii B. Mariæ Virginis
+
+{RUBRIC: DUPLEX II CLASSIS}
+
+{RUBRIC: Omnia de Comm. Festorum B. Mariæ V. [174], præter ea quæ hic habéntur própria.}
+
+#### IN I VESPERIS
+
+**Ant. 1** Quæ est ista, \* speciósa sicut colúmba, quasi rosa plantáta super rivos aquárum?
+
+**Ant. 2** Virgo potens, \* sicut turris David : mille clýpei pendent ex ea, omnis armatúra fórtium.
+
+**Ant. 3** Ave, María, \* grátia plena; Dóminus tecum : benedícta tu in muliéribus.
+
+**Ant. 4** Benedíxit te Dóminus \* in virtúte sua, quia per te ad níhilum redégit inimícos nostros.
+
+**Ant. 5** Vidérunt eam \* fíliæ Sion vernántem in flóribus rosárum, et beatíssimam prædicavérunt.
+
+**Capit.**
+*Eccli. 24, 25; 39, 17*
+
+IN me grátia omnis viæ et veritátis, in me omnis spes vitæ et virtútis. Ego, quasi rosa plantáta super rivos aquárum, fructificávi.
+
+**Hymnus**
+
+CÆléstis aulæ Núntius,
+Arcána pandens Núminis,
+Plenam salútat grátia
+Dei Paréntem Vírginem.
+
+Virgo propínquam sánguine
+Matrem Joánnis vísitat,
+Qui, clausus alvo, géstiens
+Adésse Christum núntiat.
+
+Verbum, quod ante sǽcula
+E mente Patris pródiit,
+E Matris alvo Vírginis,
+Mortális Infans, náscitur.

@@ -29430,3 +29430,54 @@ Innocens mánibus et mundo corde, \* qui non accépit in vano ánimam suam, nec 
 Hic accípiet benedictiónem a Dómino : \* et misericórdiam a Deo, salutári suo.
 
 Hæc est generátio quæréntium eum, \* quæréntium fáciem Dei Jacob.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus fortis et potens : Dóminus potens in prœlio.
+
+Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* et introíbit Rex glóriæ.
+
+Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
+
+**Ant.** Cilício Cæcília membra domábat, Deum gemítibus exorábat.
+
+℣. Spécie tua et pulchritúdine tua. ℟. Inténde, próspere procéde, et regna.
+
+{RUBRIC: De Epístola prima beáti Pauli Apóstoli ad Corínthios}
+
+##### Lectio i
+*Cap. 7, 25-40*
+
+DE virgínibus præcéptum Dómini non hábeo : consílium autem do, tamquam misericórdiam consecútus a Dómino, ut sim fidélis. Exístimo ergo hoc bonum esse propter instántem necessitátem, quóniam bonum est hómini sic esse. Alligátus es uxóri? noli quærere solutiónem. Solútus es ab uxóre? noli quærere uxórem. Si autem accéperis uxórem, non peccásti. Et si núpserit virgo, non peccávit. Tribulatiónem tamen carnis habébunt hujúsmodi. Ego autem vobis parco. Hoc ítaque dico, fratres : Tempus breve est : réliquum est, ut et qui habent uxóres, tamquam non habéntes sint; et qui flent, tamquam non flentes; et qui gaudent, tamquam non gaudéntes; et qui emunt, tamquam non possidéntes; et qui utúntur hoc mundo, tamquam non utántur : præterit enim figúra hujus mundi.
+
+℟. Cantántibus órganis, Cæcília virgo in corde suo soli Dómino decantábat dicens : \* Fiat, Dómine, cor meum et corpus meum immaculátum, ut non confúndar. ℣. Biduánis et triduánis jejúniis orans, commendábat Dómino quod timébat. — Fiat.
+
+##### Lectio ii
+
+VOlo autem vos sine sollicitúdine esse. Qui sine uxóre est, sollícitus est quæ Dómini sunt, quómodo pláceat Deo. Qui autem cum uxóre est, sollícitus est quæ sunt mundi, quómodo pláceat uxóri; et divísus est. Et múlier innúpta et virgo cógitat quæ Dómini sunt, ut sit sancta córpore et spíritu. Quæ autem nupta est, cógitat quæ sunt mundi, quómodo pláceat viro. Porro hoc ad utilitátem vestram dico, non ut láqueum vobis injíciam, sed ad id, quod honéstum est, et quod facultátem præbeat sine impediménto Dóminum obsecrándi.
+
+℟. O beáta Cæcília, quæ duos fratres convertísti, Almáchium júdicem superásti, \* Urbánum epíscopum in vultu angélico demonstrásti. ℣. Quasi apis argumentósa Dómino servísti. — Urbánum.
+
+##### Lectio iii
+
+SI quis autem turpem se vidéri exístimat super vírgine sua, quod sit superadúlta, et ita opórtet fíeri; quod vult fáciat : non peccat, si nubat. Nam, qui státuit in corde suo firmus, non habens necessitátem, potestátem autem habens suæ voluntátis, et hoc judicávit in corde suo serváre vírginem suam, bene facit. Igitur et qui matrimónio jungit vírginem suam, bene facit; et qui non jungit, mélius facit. Múlier alligáta est legi quanto témpore vir ejus vivit. Quod, si dormíerit vir ejus, liberáta est; cui vult nubat, tantum in Dómino. Beátior autem erit, si sic permánserit, secúndum meum consílium; puto autem quod et ego Spíritum Dei hábeam.
+
+℟. Virgo gloriósa semper Evangélium Christi gerébat in péctore, et non diébus neque nóctibus vacábat \* A collóquiis divínis et oratióne. ℣. Expánsis mánibus, orábat ad Dóminum, et cor ejus igne cælésti ardébat. — A collóquiis. Glória Patri. A collóquiis.
+
+### In II Nocturno
+
+**Ant.** Dómine Jesu Christe, \* seminátor casti consílii, súscipe séminum fructus, quos in Cæcília seminásti.
+
+**Psalmus 44**
+
+ERuctávit cor meum verbum bonum : \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ, \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis : \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime,
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam : \* et dedúcet te mirabíliter déxtera tua.

@@ -1871,6 +1871,48 @@ Should the feast of the titular fall within Holy Week or within the octave of Ea
 
 ### During Octave of Titular
 
-**113.** Now, since the feast of the titular is usually celebrated with a *common octave*, it may be given
+**113.** Now, since the feast of the titular is usually celebrated with a *common octave*, it may be given as a general rule that the diocesan Ordo is followed throughout the octave, except in so far as the following considerations on common octaves may modify it:
+
+(a) The Office of a day within a common octave is of *secondary* semi-double rite, and is preferred only to Offices of simple rite; when it is impeded, commemoration of it will be always made in the Lauds and both Vespers of occurring Offices as well as in the Vespers of concurring Offices. When, however, it occurs or concurs with doubles of the first or second class, commemoration of it is entirely omitted.
+
+(b) The *octave-day* is a primary double major, and is preferred to all other occurring (non-privileged)[^131] Offices, excepting doubles of the first or second class; when it is impeded, it is commemorated in the Lauds and both Vespers of the occurring Office. If, however, the occurring Office is a double of the first class, the octave-day — like other doubles major — is commemorated in Lauds only (and in private Masses). In concurrence, commemoration of an octave-day is always made except when it concurs with a following double of the first class.
+
+(c) When the Office of the octave is said, or when a commemoration of it is made, the *Suffragium* (or "*Commemoratio de Cruce*") is omitted in Lauds, and the *Preces dominicales* are omitted in Prime and Compline. The *Athanasian Creed*
+
+[^131]: Such as, for instance, Sundays, privileged vigils, etc.
+
+"*Quicumque*" is likewise omitted at Prime on a Sunday within the octave, commemoration of which has been made.
+
+(d) All octaves that are not in the Roman Breviary cease (i. e., "*de eis nihil fit*") from December 17th to the vigil of Christmas; from Ash Wednesday to Low Sunday; and from the vigil of Pentecost to Trinity Sunday, always inclusive.
+
+### How to Say the Office of the Feast
+
+**114.** With regard to the different parts of the Office, the following points should be noted:
+
+(a) *The feast itself:* the feast is celebrated "*modo solemni*," and therefore everything which is not already proper is taken from the *Commune* (according to the "quality" of the saint), except that at Lauds and the Little Hours the psalms are taken from Sunday in the Psalter.
+
+(b) *During the octave:* everything is said as on the feast itself,[^132] with the following exceptions, however, since the Office of the octave is recited "*modo ordinario*":
+
+1. The psalms of the various Hours are taken from the current day in the Psalter.
+
+2. The Lessons of the first nocturn are taken from the "Scripture occurring" in the *Proprium de Tempore*.
+
+[^132]: If there are two Orations, the first or second is taken according as the Lessons of the third nocturn are taken from the first or second place, so that the Mass may correspond with the Office as far as the Oration and the gospel are concerned.
+
+3. The Lessons of the second and third nocturns are taken from the *Octavarium Romanum*[^133] (the use of which is not obligatory), or from the *Commune*, or from the feast itself, in the manner indicated in n. 115.
+
+4. The Office of an occurring octave is not commemorated by means of a ninth Lesson in Matins, even though the Office of the octave may have a gospel and homily proper.
+
+**115.** The Lessons of the third nocturn (during the octave) are always the same as those of the feast itself (so as to agree with the gospel of the Mass); those of the second nocturn are taken from the *Commune*, alternatively *de primo* and *secundo loco* (according as the Office of the days within the octave — not excluding the octave-day — has to be recited).
+
+### The Mass of the Titular
+
+**116.** As a general rule, the Mass said will be in accordance with the Office recited. The following points should, however, be noted:
+
+(a) *On the festival itself.*
+
+1. In the Mass, the Commemorations are made as in Lauds. In the solemn Mass, however, com-
+
+[^133]: The purpose of the book is explained by its title, "Octavarium Romanum, Lectiones II et III Nocturni complectens recitandas infra octavas Festorum, praesertim patronorum locorum et titularium Ecclesiarum quae cum octavis celebrari debent, juxta rubricas Breviarii Romani, a S. R. C. ad usum totius orbis Ecclesiarum approbatum."
 
 ---

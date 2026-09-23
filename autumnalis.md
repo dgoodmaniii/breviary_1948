@@ -34024,3 +34024,35 @@ Attóllite portas, príncipes, vestras, et elevámini, portæ æternáles : \* e
 Quis est iste Rex glóriæ? \* Dóminus virtútum ipse est Rex glóriæ.
 
 **Ant.** Hic accípiet benedictiónem a Dómino, et misericórdiam a Deo salutári suo; quia hæc est generátio quæréntium Dóminum.
+
+℣. Tu es sacérdos in ætérnum.
+℟. Secúndum órdinem Melchísedech.
+
+{RUBRIC: Pro Conf. non Pont.}
+
+℣. Lex Dei ejus in corde ipsíus.
+℟. Et non supplantabúntur gressus ejus.
+
+**Absolutio.** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 25, 14-23*
+
+IN illo témpore : Dixit Jesus discípulis suis parábolam hanc : Homo péregre proficíscens, vocávit servos suos, et trádidit illis bona sua. Et réliqua.
+
+{RUBRIC: Homilía sancti Gregórii Papæ}
+{RUBRIC: Homilía 9 in Evang.}
+
+LEctio sancti Evangélii, fratres caríssimi, sollícite considerári nos ádmonet, ne nos, qui plus céteris in hoc mundo accepísse áliquid cérnimur, ab Auctóre mundi grávius inde judicémur. Cum enim augéntur dona, ratiónes crescunt donórum. Tanto ergo esse humílior atque ad serviéndum Deo prómptior quisque debet ex múnere, quanto se obligatiórem esse cónspicit in reddénda ratióne. Ecce homo, qui péregre proficíscitur, servos suos vocat eísque ad negótium talénta partítur. Post multum vero témporis positúrus ratiónem revértitur. Bene operántes pro apportáto lucro remúnerat, servum vero a bono ópere torpéntem damnat.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+**Benedictio.** Cujus festum.
+
+#### Lectio viii
+
+QUis ítaque iste homo est, qui péregre proficíscitur, nisi Redémptor noster, qui in ea carne, quam assúmpserat, ábiit in cælum? Carnis enim locus próprius terra est; quæ quasi ad peregrína dúcitur, dum per Redemptórem nostrum in cælo collocátur. Sed homo iste, péregre proficíscens, servis suis bona sua trádidit, quia fidélibus suis spirituália dona concéssit. Et uni quidem quinque talénta, álii duo, álii vero commísit unum. Quinque éténim sunt córporis sensus, vidélicet : visus, audítus, gustus, odorátus et tactus. Quinque ergo taléntis donum quinque sénsuum, id est, exteriórum sciéntia exprimítur.

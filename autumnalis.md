@@ -41769,3 +41769,39 @@ DEus, cujus verbo sanctificántur ómnia, benedictiónem tuam effúnde super cre
 {RUBRIC: Deinde illam (vel illas) Sacerdos aspérgit aqua benedícta.}
 
 ---
+
+# Formulæ Brevissimæ
+
+## Formula Baptismi
+
+{RUBRIC: Si non habeátur aqua baptismális, et perículum impéndeat, Sacérdos utátur aqua simplíci, ter vel étiam semel infúndens aquam super caput baptizándi in modum crucis, dicens :}
+
+N. Ego te baptízo in nómine Patris, ✠ et Fílii, ✠ et Spíritus ✠ Sancti.
+
+{RUBRIC: Quodsi dúbitet an vivat adhuc, dicat :}
+
+Si vivis, ego te baptízo in nómine Patris, ✠ et Fílii, ✠ et Spíritus ✠ Sancti.
+
+## Formula administrandi Viatici
+
+Accípe, frater (vel soror), Viáticum córporis Dómini nostri Jesu Christi, qui te custódiat ab hoste malígno, et perdúcat in vitam ætérnam. Amen.
+
+## Formula Absolutionis sacramentalis
+
+Ego te absólvo ab ómnibus censúris et peccátis, in nómine Patris, ✠ et Fílii, et Spíritus Sancti. Amen.
+
+## Formula Extremæ Unctionis
+
+Per istam sanctam Unctiónem ✠ indúlgeat tibi Dóminus quidquid deliquísti. Amen.
+
+{RUBRIC: Quodsi dúbitet an vivat adhuc, dicat :}
+
+Si vivis, per istam sanctam Unctiónem ✠ indúlgeat tibi Dóminus quidquid deliquísti. Amen.
+
+## Formula Benedictionis Apostolicae in articulo mortis
+
+{RUBRIC: Si mors próxime úrgeat, dicat :}
+
+Ego, facultáte mihi ab Apostólica Sede tribúta, indulgéntiam plenáriam et remissiónem ómnium peccatórum tibi concédo. In nómine Patris, ✠ et Fílii, et Spíritus Sancti. Amen.
+
+Per sacrosáncta humánæ reparatiónis mystéria, remíttat tibi omnípotens Deus omnes præséntis et

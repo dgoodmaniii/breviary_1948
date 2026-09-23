@@ -31496,3 +31496,82 @@ Et ómnia córnua peccatórum confríngam : \* et exaltabúntur córnua justi.
 ###### Psalmus 96
 
 DOminus regnávit, exsúltet terra : \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Lux orta est justo, allelúja, rectis corde lætítia, allelúja.
+
+**Ant.** Custodiébant testimónia ejus, \* et præcépta ejus, allelúja.
+
+###### Psalmus 98
+
+DOminus regnávit, irascántur pópuli : \* qui sedet super Chérubim, moveátur terra.
+
+Dóminus in Sion magnus : \* et excélsus super omnes pópulos.
+
+Confiteántur nómini tuo magno : quóniam terríbile, et sanctum est : \* et honor regis judícium díligit.
+
+Tu parásti directiónes : \* judícium et justítiam in Jacob tu fecísti.
+
+Exaltáte Dóminum Deum nostrum, et adoráte scabéllum pedum ejus : \* quóniam sanctum est.
+
+Móyses et Aaron in sacerdótibus ejus : \* et Sámuel inter eos, qui ínvocant nomen ejus :
+
+Invocábant Dóminum, et ipse exaudiébat eos : \* in colúmna nubis loquebátur ad eos.
+
+Custodiébant testimónia ejus, \* et præcéptum quod dedit illis.
+
+Dómine, Deus noster, tu exaudiébas eos : \* Deus, tu propítius fuísti eis, et ulcíscens in omnes adinventiónes eórum.
+
+Exaltáte Dóminum Deum nostrum, et adoráte in monte sancto ejus : \* quóniam sanctus Dóminus, Deus noster.
+
+**Ant.** Custodiébant testimónia ejus, et præcépta ejus, allelúja.
+
+℣. Nimis honoráti sunt amíci tui, Deus.
+℟. Nimis confortátus est principátus eórum.
+
+**Absolutio.** A vínculis.
+
+**Bened.** Evangélica léctio.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 19, 27-29*
+
+IN illo témpore : Dixit Petrus ad Jesum : Ecce nos relíquimus ómnia, et secúti sumus te : quid ergo erit nobis? Et réliqua.
+
+{RUBRIC: Homilía sancti Hierónymi Presbýteri}
+{RUBRIC: Lib. 3 in Matth., cap. 19}
+
+GRandis fidúcia! Petrus piscátor erat, dives non fúerat, cibos manu et arte quærébat; et tamen lóquitur confidénter : Relíquimus ómnia. Et quia non súfficit tantum relínquere, jungit quod perféctum est : Et secúti sumus te. Fécimus quod jussísti : quid ígitur nobis dabis præmii? Jesus autem dixit illis : Amen, dico vobis, quod vos, qui secúti estis me, in regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ, sedébitis et vos super sedes duódecim, judicántes duódecim tribus Israël. Non dixit : Qui reliquístis ómnia; hoc enim et Crates fecit philósophus, et multi álii divítias contempsérunt : sed, Qui secúti estis me; quod próprie Apostolórum est atque credéntium.
+
+℟. Isti sunt, qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo : \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+**Bened.** Cujus vel Quorum festum cólimus, ipse vel ipsi.
+
+#### Lectio viii
+
+IN regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ (quando et mórtui de corruptióne resúrgent incorrúpti), sedébitis et vos in sóliis judicántium, condemnántes duódecim tribus Israël; quia, vobis credéntibus, illi crédere noluérunt. Et omnis, qui reliquérit domum, vel fratres, aut soróres, aut patrem, aut matrem, aut uxórem, aut fílios, aut agros propter nomen meum, céntuplum accípiet, et vitam ætérnam possidébit. Locus iste cum illa senténtia cóngruit, in qua Salvátor lóquitur : Non veni pacem míttere, sed gládium.

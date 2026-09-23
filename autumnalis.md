@@ -27500,3 +27500,79 @@ DE hujúsmodi regno pacatíssimo et ordinatíssimo missus est foras princeps huj
 ℣. Amávit eum Dóminus.
 
 **Ad Magnif. Ant.** Sacérdos et Póntifex, \* et virtútum ópifex, pastor bone in pópulo, ora pro nobis Dóminum.
+
+**Oratio**
+
+ECclésiam tuam, Dómine, sancti Cároli Confessóris tui atque Pontíficis contínua protectióne custódi : ut, sicut illum pastorális sollicitúdo gloriósum réddidit : ita nos ejus intercéssio in tuo semper fáciat amóre fervéntes. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis diéi infra Octávam :}
+
+**Ant.** O quam gloriósum est regnum in quo cum Christo gaudent omnes Sancti, amícti stolis albis sequúntur Agnum quocúmque íerit!
+
+℣. Exsultábunt Sancti.
+
+{RUBRIC: Si vero die 3 Nov. celebráta fúerit Commemoratio Omnium Fidélium Defunctórum, pro Com. Octávæ sumúntur seq. Ant. et ℣. de I Vesp. :}
+
+{RUBRIC: Et tunc pro Com. Ss. Mm., dícitur ℣. Exsultábunt.}
+
+**Ant.** Angeli, Archángeli, Throni et Dominatiónes, Principátus et Potestátes, Virtútes cælórum, Chérubim atque Séraphim, Patriárchæ et Prophétæ, sancti legis Doctóres, Apóstoli, omnes Christi Mártyres, sancti Confessóres, Vírgines Dómini, Anachorítæ, Sanctíque omnes, intercédite pro nobis.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui nos ómnium Sanctórum tuórum mérita sub una tribuísti celebritáte venerári; quǽsumus, ut desiderátam nobis tuæ propitiatiónis abundántiam, multiplicátis intercessóribus, largiáris. (Per Dóminum.)
+
+{RUBRIC: Deínde Commem. Ss. Vitális et Agrícolæ Mártyrum :}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+
+PRǽsta, quǽsumus, omnípotens Deus : ut, qui sanctórum Mártyrum tuórum Vitális et Agrícolæ solémnia cólimus, eórum apud te intercessiónibus adjuvémur. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+CArolus, Medioláni nóbili Borromæórum família natus, quanta futúrus esset sanctitáte conspícuus, divína lux super paréntis matris cubículum noctu corúscans præsignávit. A puerítia clericáli milítiæ adscríptus, abbátia póstmodum insignítus, patrem admónuit ne réditus in rem familiárem converteréntur; quorum ipse nactus administratiónem, quidquid supérerat, expendébat in páuperes. Adoléscens liberálibus discíplinis Papíæ operam dedit. Castitátem ádeo cóluit, ut impudícas étiam mulíeres, ad labefactándam ejus pudicítiam plúries immíssas, invícta constántia fugáverit. Vigésimum tértium ætátis annum agens, a Pio quarto ejus avúnculo in sacrum cardinálium collégium cooptátus, insígni pietátis ac virtútum ómnium splendóre prælúxit. Mox ab eódem Mediolanénsis archiepíscopus creátus, in eo plúrimam óperam adhíbuit, ut, juxta sacrosánctum Tridentínum concílium, quod ejus potíssimum sollicitúdine jam tum fúerat absolútum, ecclésiam sibi commíssam compóneret; atque, ut depravátos plebis suæ mores reformáret, præter iterátam sǽpius synodórum celebratiónem, seípsum exímiæ sanctitátis præbuit exémplar. In profligándis hæréticis e pártibus Rhætórum et Helvetiórum, quorum plúrimos ad christiánam fidem convértit, máxime laborávit.
+
+℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.
+
+##### Lectio v
+
+HUjus viri cáritas præcípue enítuit, cum, Uritáno principátu véndito, prétium univérsum, ad quadragínta aureórum míllia, una die in páuperes erogávit. Nec minóre pietáte vigínti míllia, quæ sibi fúerant legáta, distríbuit. Ecclesiásticos provéntus, quibus ab avúnculo copióse fúerat cumulátus, dimísit, nonnúllis reténtis, quibus ad próprios usus et egenórum necessitátes uterétur. Quo témpore pestis Mediolání grassabátur, domésticam supelléctilem, ne relícto sibi léctulo, in eósdem aléndos cóntulit, super nuda in pósterum tábula decúmbens; eóque morbo laborántes sédulo invísens, patérno reficiébat afféctu, et Ecclésiæ sacraménta própriis ipse mánibus ministrans, mirum in modum solabátur. Humíllimis intérim précibus reconciliátor accédens, públíca supplicatióne indícta, fune sibi ad collum alligáto, nudis pédibus étiam offendículo cruentátis, crucem bájulans, semetípsum pro peccátis pópuli hóstiam ófferens, divínam indignatiónem avértere satagébat. Ecclesiásticæ libertátis fuit acérrimus propugnátor. Disciplínæ vero restituéndæ sollícitus, a seditiósis, dum oratióni insísteret, torménti béllici laxáta rota, ígneo glóbulo percússus, divína virtúte servátur illǽsus.
+
+℟. Pósui adjutórium super poténtem, et exaltávi eléctum de plebe mea : \* Manus enim mea auxiliábitur ei. ℣. Invéni David servum meum, óleo sancto meo unxi eum. — Manus.
+
+##### Lectio vi
+
+ABstinéntia fuit admirábili; jejunábat sæpíssime, pane tantum et aqua, solis quandóque lupínis conténtus. Noctúrnis vigíliis, aspérrimo cilício, assíduis flagéllis corpus domábat. Humilitátis ac mansuetúdinis studiosíssimus fuit. Oratiónem ac verbi Dei prædicatiónem, gravíssimis licet curis occupátus, numquam intermísit. Multas ecclésias, monastéria, collégia ædificávit. Plura scripsit, ad episcopórum præsértim instructiónem utilíssima; cujus étiam ópera parochórum catechísmus pródiit. Demum, in solitúdinem Varálli montis, ubi sculptis imagínibus Domínicæ passiónis mystéria ad vivum repræsentántur, secéssit; ibíque, diébus áliquot voluntária castigatióne, ásperam, sed Christi dolórum meditatiónibus suávem vitam ducens, in febrim íncidit. Mediolánum revérsus, ingravescénte morbo, cínere ac cilício coopértus, et óculis in Crucifíxi imáginem defíxis, migrávit in cælum, ætátis anno quadragésimo séptimo, Dómini vero millésimo quingentésimo octogésimo quarto, tértio Nonas Novémbris. Quem, miráculis clarum, Paulus quintus Póntifex máximus in Sanctórum númerum rétulit.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. Glória Patri. Ipse.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+CArolus, Medioláni nóbili Borromæórum família natus, cum vigésimum tértium ætátis annum ágeret, a Pio quarto ejus avúnculo in sacrum cardinálium collégium cooptátus est. Mox ab eódem Mediolanénsis archiepíscopus creátus, in eo plúrimam óperam adhíbuit, ut juxta sacrosánctum Tridentínum concílium, quod ejus potíssimum sollicitúdine jam tum fúerat absolútum, ecclésiam sibi commíssam compóneret. Peste Mediolání grassánte, domésticam supelléctilem in egénos aléndos cóntulit; eóque morbo laborántes sédulo invísens, mirum in modum solabátur, Ecclésiæ sacraménta própriis ipse mánibus ministrans. Ecclesiásticæ libertátis acérrimus fuit propugnátor, plúraque scripsit ad episcopórum præsértim instructiónem utilíssima; cujus étiam ópera parochórum catechísmus pródiit. Mediolání óbiit ætátis suæ anno quadragésimo séptimo, tértio Nonas Novémbris. Quem, miráculis clarum, Paulus quintus in Sanctórum númerum rétulit.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Evang. Homo péregre, de Comm. Conf. Pont. 1 loco. [80]}
+
+{RUBRIC: Pro Ss. Vitale et Agrícola Martýribus}
+
+##### Lectio ix
+
+VItális et Agrícola ejus dóminus, in persecutióne Diocletiáni et Maximiáni, Bonóniæ ob Jesu Christi prædicatiónem comprehénsi sunt. Cumque Vitális, quo magis précibus et minis tentarétur ut senténtiam mutáret, eo magis se Christi cultórem ac servum profiterétur; vário torméntorum génere cruciátus, constánter ómnia pérferens, in oratióne spíritum Deo réddidit. Agrícola vero, cum ejus supplícium dilátum esset, si forte, torméntis servi permótus, Christo vellet renuntiáre, ejus exémplo magis confirmátus est. Itaque, cruci affíxus, Vitáli servo consors et sócius fuit nóbilis martýrii. Eórum córpora, ad Judæórum sepúlcra cum essent humáta, a sancto Ambrósio invénta, in sacrum celebrémque locum transláta sunt.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, dicit Dóminus.

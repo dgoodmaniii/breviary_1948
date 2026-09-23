@@ -36916,4 +36916,27 @@ VIdit ítaque Zachǽum sursum. Jam enim sublimitáte fídei inter fructus novór
 
 #### Lectio ix
 
-AD hoc enim Christus advénit, ut ex lignis non poma, sed hómines nascerétur. Légimus áli-
+AD hoc enim Christus advénit, ut ex lignis non poma, sed hómines nascerétur. Légimus áli-bi : Cum esses sub árbore fici, vidi te. Ergo Natháaël sub árbore, hoc est, supra radícem, quia justus; radix enim sancta. Sub árbore tamen Natháaël, quia sub lege : Zachǽus supra árborem, quia supra legem. Ille Dómini occúltus defénsor, hic públicus prædicátor. Ille adhuc Christum ex lege quærébat : iste jam supra legem relinquébat sua et Dóminum sequebátur.
+
+**Te Deum laudámus.**
+
+## Die IV infra Octavam Dedicationis Ecclesiae
+
+{RUBRIC: Semiduplex}
+
+### In II Nocturno
+
+**De Sermóne sancti Augustíni Epíscopi**
+*Sermo 256 de Tempore*
+
+#### Lectio iv
+
+ATténdite in psalmo dedicatiónis, quem modo cantávimus, ex ruína ædificiórum. Conscidísti saccum meum : hoc pértinet ad ruínam. Quid ergo ad ædifícium? Et accinxísti me lætítia. Vox dedicatiónis : Ut cantet tibi glória mea, et non compúngar. Quis est, qui lóquitur? In verbis ejus agnóscite. Si expóno, obscúrum est. Ergo verba ejus dicam, contínuo agnoscétis loquéntem, ut amétis alloquéntem. Quis est, qui dícere pótuit : Eruísti, Dómine, ab ínferis ánimam meam?
+
+℟. Orántibus in loco isto, \* Dimítte peccáta pópuli tui, Deus, et osténde eis viam bonam, per quam ámbulent, et da glóriam in loco isto. ℣. Qui regis Israël, inténde, qui dedúcis velut ovem Joseph, qui sedes super Chérubim. — Dimítte.
+
+#### Lectio v
+
+CUjus ánima jam ab ínferis éruta est, nisi de qua dictum est álio loco : Non derelínques ánimam meam in inférno? Propónitur dedicátio, et cantátur liberátio, cánticum dedicatiónis domus, et dícitur : Exaltábo te, Dómine, quóniam suscepísti me : et non jucundásti inimícos meos super me. Atténdite, qui se putábant occidísse Christum, vicísse tamquam inimícum, perdidísse quasi hóminem céteris símilem atque mortálem.
+
+℟. O quam metuéndus est locus iste : \* Vere non est hic áliud, nisi domus Dei et porta cæli. ℣. Hæc est domus Dómini fírmiter ædificáta, bene fundáta est supra firmam petram. — Vere non est.

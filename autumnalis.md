@@ -41336,3 +41336,81 @@ DOmine Jesu Christe, qui dixísti : Pétite, et accipiétis; quǽrite, et inveni
 SAncti Nóminis tui, Dómine, timórem páriter et amórem fac nos habére perpétuum : quia numquam tua gubernatióne destítuis, quos in soliditáte tuæ dilectiónis instítuis : Qui vivis et regnas in sǽcula sæculórum. ℟. Amen.
 
 ---
+
+# Litaniæ de sacratissimo Corde Jesu
+
+{RUBRIC: Indulgéntia 7 annórum; plenária, si per íntegrum mensem, suetis conditiónibus, S. P. A. 10 Mart. 1933}
+
+Kýrie, eléison.
+
+Christe, eléison.
+
+Kýrie, eléison.
+
+Christe, audi nos.
+
+Christe, exáudi nos.
+
+Pater de cælis, Deus, miserére nobis.
+
+Fili, Redémptor mundi, Deus, miserére.
+
+Spíritus Sancte, Deus, miserére nobis.
+
+Sancta Trínitas, unus Deus, miserére.
+
+Cor Jesu, Fílii Patris ætérni, miserére.
+
+Cor Jesu, in sinu Vírginis Matris a Spíritu Sancto formátum, miserére.
+
+Cor Jesu, Verbo Dei substantiáliter unítum, miserére nobis.
+
+Cor Jesu, majestátis infinítæ, miserére.
+
+Cor Jesu, templum Dei sanctum, miserére.
+
+Cor Jesu, tabernáculum Altíssimi, miserére.
+
+Cor Jesu, domus Dei et porta cæli, miserére.
+
+Cor Jesu, fornax ardens caritátis, miserére.
+
+Cor Jesu, justítiæ et amóris receptáculum, miserére.
+
+Cor Jesu, bonitáte et amóre plenum, miserére.
+
+Cor Jesu, virtútum ómnium abýssus, miserére.
+
+Cor Jesu, omni laude digníssimum, miserére.
+
+Cor Jesu, rex et centrum ómnium córdium, miserére.
+
+Cor Jesu, in quo sunt omnes thesáuri sapiéntiæ et sciéntiæ, miserére.
+
+Cor Jesu, in quo hábitat omnis plenitúdo divinitátis, miserére.
+
+Cor Jesu, in quo Pater sibi bene complácuit, miserére.
+
+Cor Jesu, de cujus plenitúdine omnes nos accépimus, miserére.
+
+Cor Jesu, desidérium cóllium æternórum, miserére.
+
+Cor Jesu, pátiens et multæ misericórdiæ, miserére.
+
+Cor Jesu, dives in omnes qui invocant te, miserére.
+
+Cor Jesu, fons vitæ et sanctitátis, miserére.
+
+Cor Jesu, propitiátio pro peccátis nostris, miserére.
+
+Cor Jesu, saturátum oppróbriis, miserére.
+
+Cor Jesu, attrítum propter scélera nostra, miserére.
+
+Cor Jesu, usque ad mortem obédiens factum, miserére nobis.
+
+Cor Jesu, láncea perforátum, miserére.
+
+Cor Jesu, fons totíus consolatiónis, miserére.
+
+Cor Jesu, vita et resurréctio nostra, miserére.

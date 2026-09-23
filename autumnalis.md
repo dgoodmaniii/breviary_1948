@@ -29605,3 +29605,100 @@ CÆcília, virgo Romána, nóbili génere nata, a prima ætáte virginitátem su
 ### In III Nocturno
 
 **Ant.** Crédimus Christum \* Fílium Dei verum Deum esse, qui sibi talem elégit fámulam.
+
+**Psalmus 95**
+
+CAntáte Dómino cánticum novum : \* cantáte Dómino, omnis terra.
+
+Cantáte Dómino, et benedícite nómini ejus : \* annuntiáte de die in diem salutáre ejus.
+
+Annuntiáte inter gentes glóriam ejus, \* in ómnibus pópulis mirabília ejus.
+
+Quóniam magnus Dóminus, et laudábilis nimis : \* terríbilis est super omnes deos.
+
+Quóniam omnes dii géntium dæmónia : \* Dóminus autem cælos fecit.
+
+Conféssio, et pulchritúdo in conspéctu ejus : \* sanctimónia et magnificéntia in sanctificatióne ejus.
+
+Afférte Dómino, pátriæ géntium, afférte Dómino glóriam et honórem : \* afférte Dómino glóriam nómini ejus.
+
+Tóllite hóstias, et introíte in átria ejus : \* adoráte Dóminum in átrio sancto ejus.
+
+Commoveátur a fácie ejus univérsa terra : \* dícite in géntibus quia Dóminus regnávit.
+
+Etenim corréxit orbem terræ qui non commovébitur : \* judicábit pópulos in æquitáte.
+
+Læténtur cæli, et exsúltet terra : commoveátur mare, et plenitúdo ejus : \* gaudébunt campi, et ómnia quæ in eis sunt.
+
+Tunc exsultábunt ómnia ligna silvárum a fácie Dómini, quia venit : \* quóniam venit judicáre terram.
+
+Judicábit orbem terræ in æquitáte, \* et pópulos in veritáte sua.
+
+**Ant.** Crédimus Christum Fílium Dei verum Deum esse, qui sibi talem elégit fámulam.
+
+**Ant.** Nos sciéntes \* sanctum nomen ejus, omníno negáre non póssumus.
+
+**Psalmus 96**
+
+DOminus regnávit, exsúltet terra : \* læténtur ínsulæ multæ.
+
+Nubes, et calígo in circúitu ejus : \* justítia, et judícium corréctio sedis ejus.
+
+Ignis ante ipsum præcédet, \* et inflammábit in circúitu inimícos ejus.
+
+Illuxérunt fúlgura ejus orbi terræ : \* vidit, et commóta est terra.
+
+Montes, sicut cera fluxérunt a fácie Dómini : \* a fácie Dómini omnis terra.
+
+Annuntiavérunt cæli justítiam ejus : \* et vidérunt omnes pópuli glóriam ejus.
+
+Confundántur omnes, qui adórant sculptília : \* et qui gloriántur in simulácris suis.
+
+Adoráte eum, omnes Angeli ejus : \* audívit, et lætáta est Sion.
+
+Et exsultavérunt fíliæ Judæ, \* propter judícia tua, Dómine :
+
+Quóniam tu Dóminus Altíssimus super omnem terram : \* nimis exaltátus es super omnes deos.
+
+Qui dilígitis Dóminum, odíte malum : \* custódit Dóminus ánimas sanctórum suórum, de manu peccatóris liberábit eos.
+
+Lux orta est justo, \* et rectis corde lætítia.
+
+Lætámini, justi, in Dómino : \* et confitémini memóriæ sanctificatiónis ejus.
+
+**Ant.** Nos sciéntes sanctum nomen ejus, omníno negáre non póssumus.
+
+**Ant.** Tunc Valeriánus \* perréxit, et, signo quod accéperat, invénit sanctum Urbánum.
+
+**Psalmus 97**
+
+CAntáte Dómino cánticum novum : \* quia mirabília fecit.
+
+Salvávit sibi déxtera ejus : \* et bráchium sanctum ejus.
+
+Notum fecit Dóminus salutáre suum : \* in conspéctu géntium revelávit justítiam suam.
+
+Recordátus est misericórdiæ suæ, \* et veritátis suæ dómui Israël.
+
+Vidérunt omnes términi terræ \* salutáre Dei nostri.
+
+Jubiláte Deo, omnis terra : \* cantáte, et exsultáte, et psállite.
+
+Psállite Dómino in cíthara, in cíthara et voce psalmi : \* in tubis ductílibus, et voce tubæ córneæ.
+
+Jubiláte in conspéctu regis Dómini : \* moveátur mare, et plenitúdo ejus : orbis terrárum, et qui hábitant in eo.
+
+Flúmina plaudent manu, simul montes exsultábunt a conspéctu Dómini : \* quóniam venit judicáre terram.
+
+Judicábit orbem terrárum in justítia, \* et pópulos in æquitáte.
+
+**Ant.** Tunc Valeriánus perréxit, et, signo quod accéperat, invénit sanctum Urbánum.
+
+℣. Elégit eam Deus, et præelégit eam. ℟. In tabernáculo suo habitáre facit eam.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 25, 1-13*
+
+IN illo témpore : Dixit Jesus discípulis suis parábolam hanc : Símile erit regnum cælórum decem virgínibus, quæ, accipiéntes lámpades suas, exiérunt óbviam sponso et sponsæ. Et réliqua.

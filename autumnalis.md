@@ -34956,3 +34956,25 @@ QUod est fastígium construéndæ fábricæ, quam molímur? quo ventúrum est ca
 **Te Deum laudámus.**
 
 ---
+
+# III Alia Homilia
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 19, 27-29*
+
+IN illo témpore : Dixit Petrus ad Jesum : Ecce nos relíquimus ómnia, et secúti sumus te : quid ergo erit nobis? Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+{RUBRIC: Homilía in Natáli S. Benedícti Ep.}
+
+DUO sunt órdines electórum in judício futúri : unus judicántium cum Dómino, de quibus hoc loco mémorat, qui reliquérunt ómnia et secúti sunt illum. Alius judicandórum a Dómino, qui non quidem ómnia sua páriter reliquérunt, sed de his tamen, quæ habébant, quotidiánas dare eleemósynas Christi paupéribus curábant; unde et audítúri sunt in judício : Veníte, benedícti Patris mei, possidéte præparátum vobis regnum a constitutióne mundi; esurívi enim, et dedístis mihi manducáre; sitívi, et dedístis mihi bíbere.
+
+℟. Iste est, qui ante Deum magnas virtútes operátus est, et de omni corde suo laudávit Dóminum : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Ecce homo sine queréla, verus Dei cultor, ábstinens se ab omni ópere malo, et pérmanens in innocéntia sua. — Ipse.
+
+#### Lectio viii
+
+SEd et reprobórum duos síbi futúros órdines, Dómino narránte, comperímus : unum eórum, qui, fídei christiánæ mystériis initiáti, ópera fídei exercére contémnunt; quibus in judício testátur : Discédite a me, maledícti, in ignem ætérnum, qui præparátus est diábolo et ángelis ejus; esurívi enim, et non dedístis mihi manducáre. Álterum eórum, qui fidem et mystéria Christi vel numquam suscepére, vel suscéptam per apostásiam deseruére; de quibus dicit : Qui autem non credit, jam judicátus est, quia non credit in nómine unigéniti Fílii Dei.
+
+℟. Sint lumbi vestri præcíncti, et lucérnæ ardéntes in mánibus vestris : \* Et vos símiles homínibus exspectántibus dóminum suum, quando revertátur a núptiis. ℣. Vigiláte ergo, quia nescítis qua hora Dóminus vester ventúrus sit. — Et. **Glória Patri.** Et.

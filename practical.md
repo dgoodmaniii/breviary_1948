@@ -2211,4 +2211,41 @@ an, 89, (c) and (d); two octaves occurring in honor of the same person, 89, (g);
 **Psalms:** 9 and 10; in Matins of three Lessons, 23; taken from current day, 54.
 **Psalter:** 5, (b).
 
+**RELIC:** prominent, 88, (e).
+**Responsoria:** examples of, 20.
+**Responsorium breve:** 40.
+**Rite:** 3; of ferials, 4; of days within an octave, 4; in considering two Offices, 88, (a).
+**Rogations:** commemoration of, Append., 13, (c).
+**Rubrics:** 2; in new Missal, Append., 10 seqq.
+
+**SACROSANCTÆ:** 12, D, and note.
+**Saint Thomas of Villanova:** change in sixth Lesson, Append., 6, (b).
+**Scheme:** asterisk (\*) in, 14; of Matins, 13; of Lauds, 26; of Little Hours, 38.
+**Scripture occurring:** 18.
+**Secondary:** feasts, 88, (c); patron, 110.
+**Sedes propria:** of feasts, 83.
+**Sequens (officium):** in Vespers, 50, (a); 101.
+**Sign of the Cross:** in the Office, 70.
+**Simplified:** double, etc., 3, note.
+**Solemnity:** in considering two Offices, 88, (b).
+**Subdeacons:** 12, (c).
+**Subdeaconship:** recitation of Office on day of ordination to, Append., 1 and 2; penance imposed by Bishop, Append., 4.
+**Suffragium:** 33.
+**Sunday:** rank and privileges of, 4; in "Pars aestiva," 13, note; ninth Lesson from, 19, (b); pss. at Prime on, 36; first Vespers of, 50, (c); major, 61; common, 85.
+
+**TE DEUM:** 21 and note; in Offices of three Lessons, 25.
+**Titular:** meaning of, 73; with associate, 109; and Octave, 113; Office of, 114; and Dedication occurring, 117.
+**Transferred:** external solemnity of Titular, Append., 13.
+**Translation:** of feasts, 60 and 81; 90 seqq.; octaves and, 93 seqq.
+
+**VENITE EXSULTEMUS:** 15.
+**Versicle and Response:** 16; in Matins of three Lessons, 23.
+
+**Vespers:** 48 seqq.; first and second, 49; during Lent, 65, (b).
+**Vigil:** ninth Lesson from, 19, (b); privileged, 63; of the Epiphany, 86.
+
+**WEDNESDAY:** two sets of pss. in third Nocturn, 37.
+
 ---
+
+PRINTED BY BLASE BENZIGER & CO., INC., NEW YORK

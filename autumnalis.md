@@ -35073,3 +35073,66 @@ EXáudi nos, Deus, salutáris noster : ut, sicut de beátæ N. Vírginis tuæ fe
 DA nobis, quæsumus, Dómine, Deus noster, sanctárum Vírginum et Mártyrum tuárum N. et N. palmas incessábili devotióne venerári : ut, quas digna mente non póssumus celebráre; humílibus saltem frequentémus obséquiis. Per Dóminum.
 
 {RUBRIC: Completorium de Dominica.}
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Vírginum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus.
+
+**Hymnus**
+
+{RUBRIC: Pro Virgine Martyre}
+
+VIrginis Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis partos cánimus decóra
+Morte triúmphos.
+
+Hæc enim palmæ dúplicis beáta
+Sorte, dum gestit frágilem domáre
+Córporis sexum, dómuit cruéntum
+Cæde tyránnum.
+
+Unde nec mortem, nec amíca mortis
+Mille pœnárum génera expavéscens,
+Sánguine effúso méruit serénum
+Scándere cælum.
+
+Hujus orátu Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+Témporis ævo.
+Amen.
+
+{RUBRIC: Pro Virgine non Martyre}
+
+VIrginis Proles Opiféxque Matris,
+Virgo quem gessit, peperítque Virgo;
+Vírginis festum cánimus beátæ,
+Accipe votum.
+
+Hujus orátu, Deus alme, nobis
+Débitas pœnas scélerum remítte;
+Ut tibi puro resonémus almum
+Péctore carmen.
+
+Sit decus Patri, genitǽque Proli,
+Et tibi, compar utriúsque virtus,
+Spíritus semper, Deus unus, omni
+Témporis ævo. Amen.
+
+### In I Nocturno
+
+**Ant.** O quam pulchra \* est casta generátio cum claritáte!
+
+###### Psalmus 8
+
+DOmine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+Quóniam eleváta est magnificéntia tua, \* super cælos.
+
+Ex ore infántium et lacténtium perfecísti laudem propter inimícos tuos, \* ut déstruas inimícum et ultórem.

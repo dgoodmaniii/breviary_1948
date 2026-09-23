@@ -27939,4 +27939,50 @@ SED, ubi Constantínus Imperátor per baptísmi sacraméntum sanitátem salutém
 
 ##### Lectio vi
 
-QUod, si beátus Silvéster póstea in consecratióne altáris Príncipis Apostolórum decrévit ut deínceps nisi ex lápide altária non ædificaréntur; tamen basílicæ Lateranénsis altáre fuit e ligno eréctum. Quod mirum non est; nam, cum a sancto Petro usque ad Silvéstrum, propter persecutiónes, Pontífices certo loco consístere non possent, quocúmque eos necéssitas compulísset, sive in cryptas, sive in cœmetéria, sive in ædes piórum, super illo altári lígneo ad arcæ similitúdinem cóncavo, sacra faciébant. Quo altári sanctus Silvéster, réddita Ecclésiæ pace, honóris causa Príncipis Apostolórum, qui in illo sacrificásse dícitur, et reliquórum Pontíficum, qui usque ad id tempus ad mystéria conficiénda eo usi fúerant, in Lateranénsi prima ecclésia collocáto, sancívit ne quisquam in eo, præter Románum Pontíficem, Missam deínceps celebráret.
+QUod, si beátus Silvéster póstea in consecratióne altáris Príncipis Apostolórum decrévit ut deínceps nisi ex lápide altária non ædificaréntur; tamen basílicæ Lateranénsis altáre fuit e ligno eréctum. Quod mirum non est; nam, cum a sancto Petro usque ad Silvéstrum, propter persecutiónes, Pontífices certo loco consístere non possent, quocúmque eos necéssitas compulísset, sive in cryptas, sive in cœmetéria, sive in ædes piórum, super illo altári lígneo ad arcæ similitúdinem cóncavo, sacra faciébant. Quo altári sanctus Silvéster, réddita Ecclésiæ pace, honóris causa Príncipis Apostolórum, qui in illo sacrificásse dícitur, et reliquórum Pontíficum, qui usque ad id tempus ad mystéria conficiénda eo usi fúerant, in Lateranénsi prima ecclésia collocáto, sancívit ne quisquam in eo, præter Románum Pontíficem, Missam deínceps celebráret. Eándem ecclésiam incéndiis, vastatiónibus, terræ ínsuper mótibus disjéctam eversámque, ac sédula summórum Pontíficum cura reparátam, nova póstmodum molitióne restitútam, Benedíctus décimus tértius, Póntifex máximus, órdinis Prædicatórum, die vigésima octáva Aprílis anni millésimi septingentésimi vigésimi sexti, ritu solémni consecrávit, ejúsque celebritátis memóriam hac die recoléndam státuit. Quod autem Pius nonus perficiéndum censúerat, Leo décimus tértius cellam máximam, vetustáte fatiscéntem, ingénti molitióne producéndam laxandámque curávit; vetus musívum, multis jam ántea pártibus instaurátum, ad antíquum exémplar restítui et in novam ábsidem, ópere cultúque magnífico exornátam, transférri; aulam transvérsam, laqueári et contignatióne reféctis, expolíri jussit, anno millésimo octingentésimo octogésimo quarto; sacrário, æde canonicórum, perpetuáque ad baptistérium Constantiniánum pórticu adjéctis.
+
+℟. Mane surgens Jacob, erigébat lápidem in títulum, fundens óleum désuper; votum vovit Dómino : \* Vere locus iste sanctus est, et ego nesciébam. ℣. Cumque evigilásset Jacob de somno, ait. — Vere. Glória Patri. Vere.
+
+{RUBRIC: In III Nocturno Homilía in Evang. Ingréssus Jesus, de eódem Communi. [152]}
+
+{RUBRIC: Pro S. Theodoro Martyre}
+
+##### Lectio ix
+
+THeodórus, miles christiánus, Maximiáno imperatóre, quod idolórum fanum incendísset, comprehénsus, cum a præfécto legiónis pœna ei remitterétur, si pœnitens facti christiánam fidem exsecrarétur, constánter in fídei confessióne persevérans, missus est in cárcerem. Ubi, úngulis excarnificátus, dum costæ nudaréntur, lætus canébat : Benedícam Dóminum in omni témpore. Quare, in ardéntem rogum injéctus, in oratióne et divínis láudibus ánimam Christo réddidit, quinto Idus Novémbris. Cujus corpus Eusébia matróna, síndone involútum, sepelívit in suo prǽdio.
+
+**Te Deum laudámus.**
+
+{RUBRIC: Ad Laudes tantum fit Com. S. Theodóri Mart. :}
+
+**Ant.** Qui odit ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+℣. Justus ut palma.
+
+**Oratio**
+
+DEus, qui nos beáti Theodóri Mártyris tui confessióne gloriósa circúmdas et prótegis : præsta nobis ex ejus imitatióne profícere, et oratióne fulcíri. Per Dóminum.
+
+{RUBRIC: In Vésperis Commemoratio sequéntis tantum.}
+
+---
+
+# Die 10 Novembris
+
+## S. Andreæ Avellini
+
+{RUBRIC: Confessóris [94] Duplex}
+
+**Ant.** Similábo eum viro sapiénti, qui ædificávit domum suam supra petram.
+
+℣. Amávit eum Dóminus.
+
+**Oratio**
+
+DEus, qui in corde beáti Andréæ Confessóris tui, per árduum quotídie in virtútibus proficiéndi votum, admirábiles ad te ascensiónes disposuísti : concéde nobis, ipsíus méritis et intercessióne, ita ejúsdem grátiæ partícipes fíeri; ut, perfectióra semper exsequéntes, ad glóriæ tuæ fastígium felíciter perducámur. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+ANdréas Avellínus, dictus ántea Lancellóttus, apud Castrum Novum Lucániæ pagum natus, inter ipsa infántiæ primórdia, futúræ sanctitátis non obscúra præbuit indícia. Adoléscens, ad lítteras addiscéndas patérna e domo egréssus, lúbricam illíus ætátis sémitam inter bonárum ártium stúdia ita perégit, ut sapiéntiæ inítium, quod est timor Dómini, ob óculos potíssimum habére numquam prætermíserit. Cum egrégia proínde forma exímium castitátis stúdium conjúnxit, quo impudícas sæpe muliérum insídias elúsit, intérdum étiam apértam vim propulsávit. Clericáli milítiæ jam prídem adscríptus, Neápolim se cóntulit, ut legálibus disciplínis vacáret; ibíque jurisprudéntiæ láuream adéptus atque intérea ad sacerdotálem dignitátem evéctus, causárum patrocínia in foro dumtáxat ecclesiástico proque privátis quibúsdam persónis, juxta sacrórum cánonum sanctiónes ágere cœpit. Verum, cum aliquándo inter causam agéndam leve ei mendácium excidísset, mox vero fortúita sacrárum Scripturárum lectióne in illa verba incidísset : Os, quod méntitur, occídit ánimam; tanto ejus culpæ dolóre ac pœniténtia corréptus est, ut statim ab ejúsmodi vitæ institúto sibi recedéndum esse dúxerit. Itaque, abdicátis forénsibus curis, se totum divíno cúltui sacrísque ministériis mancipávit.

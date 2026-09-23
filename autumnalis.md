@@ -32396,3 +32396,55 @@ Quóniam vidébo cælos tuos, ópera digitórum tuórum : \* lunam et stellas, q
 Quid est homo, quod memor es ejus? \* aut fílius hóminis, quóniam vísitas eum?
 
 Minuísti eum paulo minus ab Angelis, glória et honóre coronásti eum : \* et constituísti eum super ópera mánuum tuárum.
+
+Omnia subjecísti sub pédibus ejus, \* oves et boves univérsas : ínsuper et pécora campi.
+
+Vólucres cæli, et pisces maris, \* qui perámbulant sémitas maris.
+
+Dómine, Dóminus noster, \* quam admirábile est nomen tuum in univérsa terra!
+
+**Ant.** In univérsa terra glória et honóre coronásti eum.
+
+℣. Posuísti, Dómine, super caput ejus.
+℟. Corónam de lápide pretióso.
+
+**Absolutio.** Ipsíus píetas.
+
+**Benedictio.** Deus Pater.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+{RUBRIC: Sermo 44 de Sanctis}
+
+#### Lectio iv
+
+TRiumphális beáti Mártyris N. dies hódie nobis anniversária celebritáte recúrrit; cujus glorificatióni sicut congáudet Ecclésia, sic ejus propónit sequénda vestígia. Si enim compátimur, et conglorificábimur. In cujus glorióso agóne duo nobis præcípue consideránda sunt : indúráta vidélicet tortóris sævítia, et Mártyris invícta patiéntia. Sævítia tortóris, ut eam detestémur; patiéntia Mártyris, ut eam imitémur. Audi Psalmístam advérsus malítiam increpántem : Noli æmulári in malignántibus, quóniam tamquam fœnum velóciter aréscent. Quod autem advérsus malignántes patiéntia exhibénda sit, audi Apóstolum suadéntem : Patiéntia vobis necessária est, ut reportétis promissiónes.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non dereliquit eum. — Et.
+
+**Bened.** Christus perpétuæ.
+
+#### Lectio v
+
+COronáta ítaque est beáti Mártyris patiéntia : mancipáta est ætérnis cruciátibus tortóris incorrécta malítia. Hoc atténdens in agóne suo gloriósus Christi Athléta, non exhórruit cárcerem. Ad imitatiónem cápitis sui tolerávit probra, sustínuit irrisiónes, flagélla non tímuit, et quot ante mortem pro Christo pértulit supplícia, tot ei de se óbtulit sacrifícia. Quod enim propinánte Apóstolo bíberat, alte retinébat : Quia non sunt condígnæ passiónes hujus témporis ad futúram glóriam, quæ revelábitur in nobis; et Quia momentáneum hoc et leve nostræ tribulatiónis, ætérnum glóriæ pondus operátur in cælis. Hujus promissiónis amóre a terrénis suspénsus, et prægustáta supérnæ suavitátis dulcédine ineffabíliter afféctus, dicébat cum Psalmísta : Quid mihi est in cælo, et a te quid vólui super terram? Defécit caro mea et cor meum : Deus cordis mei, et pars mea Deus in ætérnum.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis : posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+**Bened.** Ignem sui amóris.
+
+#### Lectio vi
+
+COntemplabátur enim quantum in ænígmate infírmitas humána óculum mentis in æternitáte fígere potest, quanta sint supérnæ civitátis gáudia : et ea enarráre non súfficiens, admirándo clamábat : Quid mihi est in cælo? Quasi díceret : Excédit vires meas, excédit facultátem eloquéntiæ meæ, transcéndit capacitátem intelligéntiæ meæ illud decus, illa glória, illa celsitúdo, qua nobis, a conturbatióne hóminum remótis, in abscóndito faciéi suæ Jesus Christus Dóminus noster reformábit corpus humilitátis nostræ, configurátum córpori claritátis suæ. Hujus perféctæ libertátis contemplatióne nullum vitábat perículum, nullum horrébat supplícium : et si míllies posset mori, non putábat se hanc digne posse áliqua ratióne proméréri.
+
+℟. Stola jucunditátis índuit eum Dóminus : \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illum. — Et. **Glória Patri.** Et.
+
+### In III Nocturno
+
+**Ant.** Justus Dóminus, \* et justítiam diléxit : æquitátem vidit vultus ejus.
+
+###### Psalmus 10
+
+IN Dómino confído : \* quómodo dícitis ánimæ meæ : Tránsmigra in montem sicut passer?
+
+Quóniam ecce peccatóres intendérunt arcum, paravérunt sagíttas suas in pháretra, \* ut sagíttent in obscúro rectos corde.
+
+Quóniam quæ perfecísti, destruxérunt : \* justus autem quid fecit?

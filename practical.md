@@ -607,3 +607,86 @@ The *Ordo* gives directions as to when these rules are to be applied.
 **22.** If Lauds is said immediately after Matins, the latter ends with either the ninth Responsorium or the *Te Deum*. If Lauds, however, is separated from Matins, the latter ends up with the Oration of the Office recited, preceded as well as followed by *Dominus vobiscum*, and then comes the "ordinary ending" (n. 8).
 
 ---
+
+## CHAPTER IV
+
+## OFFICES OF THREE LESSONS
+
+**23.** Up to the present there has been question of Matins with nine Lessons, but on feasts of simple rite and on ferials (classed as being of simple rite) there are only three Lessons in Matins. The scheme is the same as that given for Matins of nine Lessons with the following important differences.
+
+The three sets of (three) psalms used in *full* Matins (i. e., of nine Lessons) are said, one immediately after the other, thus giving nine consecutive psalms with their antiphons (all taken from the current ferial in the Psalter). The Versicle and Response used after the ninth psalm are those given after the third set of psalms (the other Versicles and Responses — after the first and second sets of psalms — being entirely omitted). Next comes the usual *Pater noster*, followed by an Absolution which is taken according to given rules:[^28]
+
+[^28]: Since in full Matins three Absolutions and nine Benedictions are used, the question arises: which one Absolution and three Benedictions are to be taken for an Office having only three Lessons? Hence the rules given above, which resemble the method followed in the saying of the various mysteries of the Rosary on week-days.
+
+(a) On *Mondays* and *Thursdays* the Absolution used is that one said in the *first* nocturn of an Office of nine Lessons.
+
+(b) On *Tuesdays* and *Fridays* the Absolution is taken from the *second* nocturn.
+
+(c) On *Wednesdays* and *Saturdays* the Absolution is taken from the *third* nocturn.
+
+They are all found under their respective nocturns in the Ordinarium.
+
+**24.** The first and second rules given apply also to Benedictions for ferial Offices which have not a homily with a gospel as their three Lessons; but, as the third rule refers to the third nocturn, which always implies a homily and gospel, the Benedictions given for this nocturn[^29] will *always* be used on ferials with a homily and gospel, no matter what day of the week it may be.
+
+The Benedictions used for ferials[^30] occurring on Wednesdays and Saturdays are:
+
+1. Ille nos benedicat, qui sine fine vivit et regnat. Amen.[^31]
+2. Divinum auxilium maneat semper vobiscum. Amen.
+3. Ad societatem civium supernorum perducat nos Rex Angelorum. Amen.[^32]
+
+[^29]: Since there are three Benedictions given for the eighth Lesson alone, the one used in this case will be: *Divinum auxilium*, etc.
+[^30]: Other than those with a homily and gospel, for which the rule has just been given.
+[^31]: This Benediction *never* occurs in an Office of nine Lessons.
+[^32]: Note that these Benedictions are practically the same as those given for the third nocturn, excepting, of course, the first.
+
+The Benedictions used on *feasts* of three Lessons are:
+
+1. Ille nos, *as above*.
+2. Cujus (*vel* quorum *aut* quarum) festum colimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercedat (*vel* intercedant) pro nobis ad Dominum. Amen.
+3. Ad societatem,[^33] *as above*.
+
+These rules will not appear so difficult if studied hand-in-hand with the Ordinarium. In practice, it should be remembered that the Benedictions are more or less suited to the Lessons said, and, if the current day be taken into account, no trouble will be experienced by the student.
+
+**25.** In the "*Proprium de Tempore*," as was already stated, are found three Lessons, which, in themselves, make up the Lessons of ferial Offices. On feasts of simple rite, the first two of these ferial Lessons (with their Responsoria), and a third historical Lesson,[^34] found in the "*Proprium Sanctorum*," make up the required three Lessons to be recited on such feasts.[^35]
+
+The *Te Deum* is not said in ferial Matins except during Paschal Time, but it is always said on saints'
+
+[^33]: This Benediction, as may be noticed, is last in all cases.
+[^34]: If, on simples, there were three historical Lessons, there would be no means of reciting any Scripture occurring Lessons (which are, after all, a kind of *ferial* commemoration, when used in *festal* Offices).
+[^35]: Sometimes Matins are found having only three psalms and three Lessons, e. g., Easter week, but this is exceptional.
+
+feasts, and this fact implies that *Gloria Patri* will be added to the Responsorium following the second Lesson, i. e., to the last Responsorium of the nocturn.
+
+When separated from Lauds, Matins of three Lessons follows the rules already given for Offices of nine Lessons.
+
+---
+
+## CHAPTER V
+
+## LAUDS
+
+**26.** The *scheme* of Lauds is as follows:
+
+**I. "ORDINARY BEGINNING."**[^36]
+
+**II. BODY OF LAUDS.**
+
+a) *Five Psalms* \* with their antiphons \*
+b) Capitulum \*
+c) Hymn \*
+d) Versicle and Response \*
+e) *Benedictus* Canticle with its proper Antiphon \*
+f) (*Preces feriales*, if said).
+
+*Dominus vobiscum*
+
+g) Orations:
+&nbsp;&nbsp;&nbsp;&nbsp;1. Oration \* of Office recited.
+&nbsp;&nbsp;&nbsp;&nbsp;2. Commemorations according to AVO (n. 32).
+&nbsp;&nbsp;&nbsp;&nbsp;3. Suffragium (fixed commemoration) if said.
+
+*Dominus vobiscum*
+
+[^36]: If Lauds is said immediately after Matins, it will have the "ordinary beginning," minus, however, the introductory *Pater* and *Ave*.
+
+---

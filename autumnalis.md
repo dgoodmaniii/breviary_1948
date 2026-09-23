@@ -26585,3 +26585,97 @@ QUid ergo dicit? Beáti páuperes spíritu; quóniam ipsórum est regnum cælór
 **Ant. 4** Benedícite Dóminum, \* omnes elécti ejus : ágite dies lætítiæ, et confitémini illi.
 
 **Ant. 5** Hymnus \* ómnibus Sanctis ejus : fíliis Israël, pópulo appropinquánti sibi : glória hæc est ómnibus Sanctis ejus.
+
+**Capitulum**
+*Apoc. 7, 2-3*
+
+ECce ego Joánnes vidi álterum Angelum ascendéntem ab ortu solis, habéntem signum Dei vivi; et clamávit voce magna quátuor Angelis, quibus datum est nocére terræ et mari, dicens : Nolíte nocére terræ et mari neque arbóribus, quoadúsque signémus servos Dei nostri in fróntibus eórum.
+
+**Hymnus**
+
+SAlútis ætérnæ dator,
+Jesu, redémptis súbveni;
+Virgo, Parens cleméntiæ,
+Dona salútem sérvulis.
+
+Vos, Angelórum míllia,
+Patrúmque cœtus, ágmina
+Canóra Vatum; vos, reis
+Precámini indulgéntiam.
+
+Baptísta Christi prǽvius,
+Summíque cæli Cláviger
+Cum céteris Apóstolis
+Nexus resólvant críminum.
+
+Cohors triúmphans Mártyrum,
+Almus Sacerdótum chorus,
+Et virginális cástitas
+Nostros reátus ábluant.
+
+Quicúmque in alta síderum
+Regnátis aula príncipes,
+Favéte votis súpplicum,
+Qui dona cæli flágitant.
+
+Virtus, honor, laus, glória
+Deo Patri cum Fílio,
+Sancto simul Paráclito,
+In sæculórum sǽcula.
+Amen.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Bened. Ant.** Te gloriósus \* Apostolórum chorus, te Prophetárum laudábilis númerus, te Mártyrum candidátus laudat exércitus; te omnes Sancti et elécti voce confiténtur unánimes, beáta Trínitas, unus Deus.
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui nos ómnium Sanctórum tuórum mérita sub una tribuísti celebritáte venerári : quǽsumus; ut desiderátam nobis tuæ propitiatiónis abundántiam, multiplicátis intercessóribus, largiáris. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** Vidi turbam magnam, ut supra. 734
+
+#### AD TERTIAM
+
+**Ant.** Et omnes Angeli, ut supra. 734
+
+**Capit.** Ecce ego Joánnes, ut supra.
+
+℟. br. Lætámini in Dómino, \* Et exsultáte, justi. Lætámini. ℣. Et gloriámini, omnes recti corde. Et. Glória Patri. Lætámini. ℣. Exsúltent justi in conspéctu Dei. ℟. Et delecténtur in lætítia.
+
+#### AD SEXTAM
+
+**Ant.** Redemísti nos, \* Dómine Deus, in sánguine tuo ex omni tribu et língua et pópulo et natióne, et fecísti nos Deo nostro regnum.
+
+**Capitulum**
+*Apoc. 7, 9*
+
+POst hæc vidi turbam magnam, quam dinumeráre nemo póterat, ex ómnibus géntibus et tríbubus et pópulis et linguis stantes ante thronum Dei in conspéctu Agni, amícti stolis albis et palmæ in mánibus eórum.
+
+℟. br. Exsúltent justi \* In conspéctu Dei. Exsúltent. ℣. Et delecténtur in lætítia. In. Glória Patri. Exsúltent. ℣. Justi autem in perpétuum vivent. ℟. Et apud Dóminum est merces eórum.
+
+#### AD NONAM
+
+**Ant.** Hymnus \* ómnibus Sanctis ejus : fíliis Israël, pópulo appropinquánti sibi : glória hæc est ómnibus Sanctis ejus.
+
+**Capitulum**
+*Apoc. 7, 12*
+
+BEnedíctio et cláritas et sapiéntia et gratiárum áctio, honor, virtus et fortitúdo Deo nostro in sǽcula sæculórum. Amen.
+
+℟. br. Justi autem \* In perpétuum vivent. Justi. ℣. Et apud Dóminum est merces eórum. In. Glória Patri. Justi. ℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+#### IN II VESPERIS
+
+{RUBRIC: Omnia ut in I Vésperis 722, sed loco últimi Psalmi dícitur Ps. 115 Crédidi, ut ibídem notátur.}
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+**Ad Magnif. Ant.** O quam gloriósum est regnum \* in quo cum Christo gaudent omnes Sancti, amícti stolis albis sequúntur Agnum quocúmque íerit!
+
+**Oratio**
+
+OMnípotens sempitérne Deus, qui nos ómnium Sanctórum tuórum mérita sub una tribuísti celebritáte venerári : quǽsumus; ut desiderátam nobis tuæ propitiatiónis abundántiam, multiplicátis intercessóribus, largiáris. Per Dóminum.

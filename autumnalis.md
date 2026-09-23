@@ -36760,4 +36760,40 @@ Amen.
 
 **Oratio**
 
-DEus, qui nobis per síngulos annos hujus sancti templi tui consecratiónis réparas diem, et sacris semper mystériis repræséntas íncolumes : exáudi preces pópuli tui, et præsta; ut, quisquis hoc templum benefícia petitúrus ingréditur, cuncta se im-
+DEus, qui nobis per síngulos annos hujus sancti templi tui consecratiónis réparas diem, et sacris semper mystériis repræséntas íncolumes : exáudi preces pópuli tui, et præsta; ut, quisquis hoc templum benefícia petitúrus ingréditur, cuncta se im-petrásse lætétur. Per Dóminum.
+
+{RUBRIC: In ipso die Dedicatiónis Ecclésiæ et per Octávam, et quando varíanda est Orátio, dícitur séquens}
+
+**Oratio**
+
+DEus, qui invisibíliter ómnia cóntines, et tamen pro salúte géneris humáni signa tuæ poténtiæ visibíliter osténdis : templum hoc poténtia tuæ inhabitatiónis illústra, et concéde; ut omnes, qui huc deprecatúri convéniunt, ex quacúmque tribulatióne ad te clamáverint, consolatiónis tuæ benefícia consequántur. Per Dóminum.
+
+{RUBRIC: Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.}
+
+#### AD PRIMAM
+
+**Ant.** Domum tuam, Dómine, \* decet sanctitúdo in longitúdinem diérum.
+
+#### AD TERTIAM
+
+**Ant.** Domus mea \* domus oratiónis vocábitur.
+
+**Capit.** Vidi civitátem. [154]
+
+℟. br. Domum tuam, Dómine, \* Decet sanctitúdo. Domum. ℣. In longitúdinem diérum. Decet. **Glória Patri.** Domum. ℣. Locus iste sanctus est, in quo orat sacérdos. ℟. Pro delíctis et peccátis pópuli.
+
+#### AD SEXTAM
+
+**Capitulum** *Apoc. 21, 3*
+
+ET audívi vocem magnam de throno dicéntem : Ecce tabernáculum Dei cum homínibus, et habitábit cum eis; et ipsi pópulus ejus erunt, et ipse Deus cum eis erit eórum Deus.
+
+℟. br. Locus iste sanctus est, \* In quo orat sacérdos. Locus. ℣. Pro delíctis et peccátis pópuli. In. **Glória Patri.** Locus. ℣. Hæc est domus Dómini fírmiter ædificáta. ℟. Bene fundáta est supra firmam petram.
+
+#### AD NONAM
+
+**Capitulum** *Apoc. 21, 4-5*
+
+ET abstérget Deus omnem lácrimam ab óculis eórum : et mors ultra non erit, neque luctus, neque clamor, neque dolor erit ultra, quia prima abiérunt. Et dixit qui sedébat in throno : Ecce nova fácio ómnia.
+
+℟. br. Hæc est domus Dómini \* Fírmiter ædificáta. Hæc. ℣. Bene fundáta est supra firmam petram. Fírmiter. **Glória Patri.** Hæc. ℣. Bene fundáta est domus Dómini. ℟. Supra firmam petram.

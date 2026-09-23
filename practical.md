@@ -1320,6 +1320,46 @@ Wednesday. White. St. Remigius, Bishop Confessor. *Simple.*— In Matins the Inv
 
 **72.** Many a priest has been perplexed when, on opening the diocesan *Ordo* on the feast-day of the titular of his church, he finds there anything but directions suited to a feast which is a double of the first class (with an octave), such as titulars are. The church may be called after St. Augustine, and still the Ordo has it marked down as an ordinary *duplex* without any mention whatsoever of an octave. He may look the whole Ordo through without, perhaps, finding a solution to his difficulties. The conclusion is at once clear to him; he must needs make out his own Ordo for that week.
 
-Now, these cases are not rare. There are churches called by the names of practically every saint in the Calendar; thus, for example, we hear of St. Helen's Church, St. Paul's Church, St. Patrick's Church; we likewise hear of the Church of the Holy Rosary, of the Most Holy Redeemer, the Church of the Nativity, and so on. To solve these various problems, then, certain rules are laid down, since one is not allowed to treat the case as he
+Now, these cases are not rare. There are churches called by the names of practically every saint in the Calendar; thus, for example, we hear of St. Helen's Church, St. Paul's Church, St. Patrick's Church; we likewise hear of the Church of the Holy Rosary, of the Most Holy Redeemer, the Church of the Nativity, and so on. To solve these various problems, then, certain rules are laid down, since one is not allowed to treat the case as he thinks best. As far as a feast with an octave is concerned, what has been said also applies to the dedication of a church.
+
+### Meaning of Words
+
+**73.** "The *Titular* of a church," says Vigourel, is the person, the mystery, or the sacred object (the cross, for instance), whose name the church has received when consecrated or solemnly blessed."[^91]
+
+In the New Code of Canon Law we see that divine worship cannot take place in a new church before it has been consecrated,[^92] or at least blessed (c. 1165). The law also says that each church which is either consecrated or blessed shall have its *title*, which may not be changed afterwards; and that churches cannot be dedicated in honor of beatified persons without permission of the Holy See (c. 1168); and that the feast of the consecration[^93] and the feast of the title of a church are to be observed each year according to liturgical laws (canons 1167 and 1168).
+
+**74.** In a wide sense, the *Dedication* of a church means the "setting aside" of the material building for divine worship, by either solemn consecration
+
+[^91]: *Synthetical Manual of Liturgy*, p. 121.
+[^92]: A church built of wood, iron, or other metal, can only be blessed, not consecrated (c. 1165).
+[^93]: The *consecration* of a church is reserved to those possessed of episcopal dignity, whereas the *blessing* of a church may be performed by a priest, usually through delegation (c. 1156). A *public* oratory may be blessed or consecrated (c. 1191); *semi-public* (and "domestic" i. e., private) oratories need not be even blessed, but they may be blessed with the *Benedictio Loci* of the Roman Ritual (c. 1196).
+
+or blessing. Now churches and public oratories alone may be either consecrated or solemnly blessed. Therefore the obligations arising from dedication, viz., the Office of the titular and — in some cases — the Office of the consecration (as well as the anniversaries of those days) affect churches and public oratories only, i. e., those attached to such churches and oratories[^94] either *ratione beneficii* or *ratione subjectionis* (n. 77).
+
+**75.** The titular of a church is sometimes called the patron of the church, and, as such, the term "patron" must not be confounded with the *patron of a place*[^95] (of a town, city, diocese, province, or nation). The patron of a place is always a person, whereas the titular of a church is not.
+
+### New Office-Rubrics
+
+**76.** In the *New Rubrics*[^96] we find the following information regarding titulars, etc.
+
+(a) The feast of the dedication of any church is always primary (n. 88) and a feast of the Lord.
+
+The word "dedication" is here taken (as in all similar applications) in its strict liturgical sense,
+
+[^94]: Chapels (e. g., those of seminaries) that are solemnly blessed fall under these rules. S. R. C., n. 4110.
+[^95]: "*The patron of a place*," says Vigourel, *loc. cit.*, "is its protector. There are patrons of a city, of a diocese, of a country, of the Universal Church. The patron is chosen by the people, the choice approved by the clergy and the Bishop, and confirmed by the S. Congregation of Rites. (S. R. C., 526.)"
+[^96]: These are the "Additiones et Variationes in Rubricis Breviarii ad normam Bullæ *Divino afflatu*," and the "Duæ Tabellæ."
+
+viz., the *consecration* of a church. Consecrated churches, therefore, will have two distinct feasts, which, as we shall see, are to be celebrated with octaves: one, the feast of the titular; the other, the feast of the consecration, which is called the *dedication*. Churches and oratories that are merely blessed have no *festum dedicationis*, but they have the feast of the titular (with its octave).
+
+(b) The feast of the dedication of one's own church and its anniversary, as well as the titular of the same and likewise its anniversary,[^97] are not only *primary* doubles of the first class, but also feasts having a *common octave* (the octave-day being, in each case, a primary double major).
+
+Several other useful points taken from the New Rubrics will be given further on.
+
+### Priests Concerned
+
+**77.** It has been already stated that those concerned with the Offices of the titular and dedication of a church are those attached to it (i. e., whose own the church may be said to be) either *ratione beneficii* or *ratione subjectionis* (S. R. C., n. 3863, ad 2). Such, for instance, are the parish priest; the assistants; rectors (in case of non-parochial churches); the faculty as well as the seminarians, if their seminary chapel has been at least solemnly blessed. In other churches — not having their own,
+
+[^97]: If such churches (public oratories, seminary chapels, etc.) have been at least solemnly blessed.
 
 ---

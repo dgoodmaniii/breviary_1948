@@ -34223,4 +34223,4 @@ SEd illi viri misericórdiæ sunt, quorum pietátes non defuérunt : cum sémine
 
 BEáti Patris N. mérita, jam in tuto pósita, secúri magnificémus; qui, gubernáculum fídei viríliter tenens, ánchoram spei tranquílla jam in statióne compósuit, et plenam cæléstibus divítiis et ætérnis mércibus navem optáto in líttore collocávit. Qui, contra omnes adversários, scutum timóris Dei tamdiu infatigábiliter ténuit, donec ad victóriam pervenéret. Quid enim fuit totus vitæ illíus cursus, nisi uníus cum vígili hoste conflíctus?
 
-℟. Iste est, qui ante Deum magnas virtútes operátus est, et omnis terra doctrína ejus repléta est : \* Ipse intercédat pro peccátis ómnium populórum. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Ipse. **Glória Patri.** Ipse.
+℟. Invéni David servum meum, óleo sancto meo unxi eum : \* Manus enim mea auxiliábitur ei. ℣. Nihil profíciet inimícus in eo, et fílius iniquitátis non nocébit ei. — Manus.

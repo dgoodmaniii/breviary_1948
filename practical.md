@@ -689,4 +689,59 @@ g) Orations:
 
 [^36]: If Lauds is said immediately after Matins, it will have the "ordinary beginning," minus, however, the introductory *Pater* and *Ave*.
 
+**III. "ORDINARY ENDING."**
+
+*Dominus det nobis suam pacem: et vitam eternam. Amen.*
+
+**IV. FINAL ANTIPHON**[^37] **OF THE BLESSED VIRGIN.**
+
+a) Hymn
+b) Versicle and Response
+c) Oration (with short conclusion)
+
+*Divinum auxilium maneat semper vobiscum. Amen.*
+
+[^37]: The word "antiphon" is not to be here taken in the sense of Scriptural extracts accompanying psalms. In many English works the word "anthem" will be found instead of the word "antiphon."
+
+### Preces Feriales
+
+**27.** *Preces feriales* may be said at every Hour except Matins alone. Since they are invariable,[^38] no explanations are required. They are found under the different Hours in the Ordinarium.
+
+The *Preces feriales* of Lauds and Vespers are exactly the same. Those of Terce, Sext, and None, though different from the preceding sets, are also the same, one with another. Those of Prime and Compline differ from each other, and from the sets already referred to.
+
+**28.** As their name indicates, the *Preces feriales* are said on *ferials*, not on all ferials, however, but only on those of a *penitential* character, e. g., ember-
+
+[^38]: When saying the *Preces* in the private recitation of the Office, note should be taken of the *Confiteor* given for such circumstances. So also whenever the Confiteor occurs.
+
+days and vigils generally. Whenever said at Lauds, they run through all the remaining Hours, unless Vespers be the first Vespers of a feast celebrated on the next day, in which case the *Preces feriales* cease at Vespers (exclusive).
+
+**29.** As a rule to be remembered, the *Preces* are recited immediately *before* the *Dominus vobiscum* that always precedes the Oration (fixed, as in Prime and Compline, or variable as in the other Hours) of any Hour. In fact, when examining the *Preces*, it will be noticed that their ending naturally leads on to: *Dominus vobiscum*, according to the usual formula of liturgical prayer.
+
+### Orations[^39]
+
+**30.** All Orations in the Office are preceded and followed by *Dominus vobiscum*. If two or more be said at the one time, e. g., in commemorations, *Dominus vobiscum* precedes the *first* Oration and follows the *last*, so that, in all cases, the Prayers intervene. Immediately before *each* Oration, "*Oremus*" is said,[^40] whether it be a question of commemorations or not (cf. *Rub. Generales*, tit. XXX., nn. 3 and 5).
+
+[^39]: By *Oratio* is meant any Oration that has some relation to the Office recited, whereas *Collecta* designates an Oration that has no connection with it.
+[^40]: What may be called the *secondary* Orations of Prime make exception to these remarks, but as the Orations referred to are invariable, no difficulty will be found in practice.— In the Mass *Oremus* is put before the first and second Orations only.
+
+On ferials that have no Oration proper that of the preceding Sunday is taken.[^41]
+
+### Conclusions of Orations
+
+**31.** There are different kinds of conclusions to Orations, according to whom the Prayer is addressed, or of whom mention has been made in it. The following verses show when one conclusion is used rather than another:
+
+> *Per Dominum* dicat, si Patrem quilibet orat.
+> Si Christum memores, *per eumdem* dicere debes.
+> Si loqueris Christo, *Qui vivis* scire memento;
+> *Qui tecum*, si sit collectæ finis in ipso;
+> Si memores Flamen, *ejusdem* dic prope finem.[^42]
+
+Each conclusion may be short (e. g., *Qui vivis et regnas in sæcula sæculorum*) or long, i. e., solemn (e. g., *Qui vivis et regnas cum Deo Patre in unitate Spiritus Sancti Deus, per omnia sæcula sæculorum*).
+
+In the Office (as well as at Mass) the *long conclusions* are always used, exceptions being noted. Each Oration has its conclusion, but when two or more Prayers are said at the one time, e. g., in commemorations, only the *first* and *last* Orations have conclusions. The last conclusion varies according to the last Prayer said, independently of the number of Orations that may have preceded it.[^43]
+
+[^41]: When Saturday's Vespers is used as the first Vespers of Sunday, the Oration of that Sunday is taken. Sometimes it is the only part taken from the Sunday.
+[^42]: Cf. *Rub. Generales*, tit. XXX, n. 4.
+[^43]: This applies also to the Orations of the Mass.
+
 ---

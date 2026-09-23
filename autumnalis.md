@@ -31871,4 +31871,38 @@ FUndaménta ejus in móntibus sanctis : díligit Dóminus portas Sion. Quare sun
 
 #### Lectio v
 
-SI duódecim sellæ ibi sunt, non est ubi sédeat tértius décimus Paulus Apóstolus, et non erit quómodo júdicet; et ipse se judicatúrum dixit, non hómines tantum, sed et ángelos.
+SI duódecim sellæ ibi sunt, non est ubi sédeat tértius décimus Paulus Apóstolus, et non erit quómodo júdicet; et ipse se judicatúrum dixit, non hómines tantum, sed et ángelos. Quos ángelos, nisi apóstatas ángelos? Nescítis, inquit, quia ángelos judicábimus? Respondéret ergo turba : Quid te jactas judicatúrum? Ubi sedébis? Duódecim sedes dixit Dóminus duódecim Apóstolis, unus cécidit Judas, in locum ipsíus sanctus Matthías ordinátus est; implétus est duodenárius númerus sédium. Primo locum invéni, ubi sédeas, et sic te mináre judicatúrum. Duódecim ergo sedes quid sibi velint, videámus. Sacraméntum est cujúsdam universitátis; quia per totum orbem terrárum futúra erat Ecclésia, unde vocátur hoc ædifícium ad Christi compágem.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me : \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+#### Lectio vi
+
+ET ídeo, quia úndique venítur ad judicándum, duódecim sedes sunt; sicut, quia úndique intrátur in illam civitátem, duódecim portæ sunt. Non solum ergo illi duódecim et Apóstolus Paulus, sed quotquot judicatúri sunt, propter significatiónem universitátis ad sedes duódecim pértinent; quemádmodum quotquot intrábunt, ad duódecim portas pértinent. Partes enim mundi quátuor sunt, Oriens, Occídens, Aquilo et Merídies. Istæ quátuor partes assídue nominántur in Scriptúris. Ab istis quátuor ventis, sicut dicit Dóminus in Evangélio, a quátuor ventis se collectúrum eléctos suos; ab ómnibus ergo istis quátuor ventis vocátur Ecclésia. Quómodo vocátur? Undique in Trinitáte vocátur. Non vocátur nisi per baptísmum in nómine Patris, et Fílii, et Spíritus Sancti. Quátuor ergo ter ducta duódecim inveniúntur.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui contemnéntes jussa príncipum, meruérunt prǽmia ætérna : \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt, qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. **Glória Patri.** Modo coronántur.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+#### Lectio vii
+*Cap. 19, 27-29*
+
+IN illo témpore : Dixit Petrus ad Jesum : Ecce nos relíquimus ómnia, et secúti sumus te : quid ergo erit nobis? Et réliqua.
+
+{RUBRIC: Homilía sancti Bedæ Venerábilis Presbýteri}
+{RUBRIC: Homilía in Natáli S. Benedícti Episc.}
+
+PErféctus ille est, qui ábiens vendit ómnia quæ habet, et dat paupéribus, ac véniens séquitur Christum; habébit enim thesáurum non deficiéntem in cælis. Unde bene, interrogánte Petro, dixit tálibus Jesus : Amen dico vobis, quod vos, qui secúti estis me, in regeneratióne, cum séderit Fílius hóminis in sede majestátis suæ, sedébitis et vos super sedes duódecim, judicántes duódecim tribus Israël. In hac quippe vita pro ejus nómine laboréntes in ália prǽmium speráre dócuit, id est, in regeneratióne; cum vidélicet in vitam immortálem fuérimus resurgéndo regeneráti, qui in vitam cadúcam mortáliter erámus géniti.
+
+℟. Isti sunt, qui vivéntes in carne, plantavérunt Ecclésiam sánguine suo : \* Cálicem Dómini bibérunt, et amíci Dei facti sunt. ℣. In omnem terram exívit sonus eórum, et in fines orbis terræ verba eórum. — Cálicem.
+
+#### Lectio viii
+
+ET justa prorsus retribútio, ut, qui hic pro Christo humánæ glóriam celsitúdinis neglexérunt, illic a Christo júdices glorificáti singuláriter cum eo assídeant, qui a sequéndis ejus vestígiis nulla ratióne póterant avélli. Nemo autem putet, duódecim tantum Apóstolos, quia pro Juda prævaricánte Matthías eléctus est, tunc esse judicatúros; sicut nec duódecim solæ sunt tribus Israël judicándæ : alióquin tribus Levi, quæ tértia décima est, injudicáta recédet.
+
+℟. Isti sunt viri sancti, quos elégit Dóminus in caritáte non ficta, et dedit illis glóriam sempitérnam : \* Quorum doctrína fulget Ecclésia, ut sole luna. ℣. Sancti per fidem vicérunt regna : operáti sunt justítiam. — Quorum. **Glória Patri.** Quorum.
+
+#### Lectio ix
+
+ET Paulus, qui tértius décimus est Apóstolus, judicándi sorte privábitur?

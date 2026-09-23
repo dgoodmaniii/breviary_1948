@@ -22742,3 +22742,106 @@ TErésia a Jesu Infánte, Alensónii in Gállia, ex honéstis piísque paréntib
 *Cap. 18, 1-4*
 
 IN illo témpore : Accessérunt discípuli ad Jesum, dicéntes : Quis, putas, major est in regno cælórum? Et réliqua.
+
+{RUBRIC: Homilía sancti Leónis Papæ}
+*Sermo 37 ad Epiphaniæ solemn. 7 cap. 3-4*
+
+TOta, dilectíssimi, christiánæ sapiéntiæ disciplína, non in abundántia verbi, non in astútia disputándi, neque in appetítu laudis et glóriæ, sed in vera et voluntária humilitáte consístit, quam Dóminus Jesus Christus ab útero Matris usque ad supplícium Crucis pro omni fortitúdine et elégit et dócuit. Nam, cum discípuli ejus inter se, ut ait Evangelísta, disquírerent quis eórum major esset in regno cælórum, vocávit párvulum, et státuit eum in médio eórum, et dixit : Amen, dico vobis, nisi convérsi fuéritis et efficiámini sicut párvuli, non intrábitis in regnum cælórum. Quicúmque ergo humiliáverit se sicut puer iste, hic major erit in regno cælórum. Amat Christus infántiam, quam primum et ánimo suscépit et córpore. Amat Christus infántiam, humilitátis magístram, innocéntiæ régulam, mansuetúdinis formam. Amat Christus infántiam, ad quam majórum dírigit mores, ad quam senum redúcit ætátes; et eos ad suum inclínat exémplum, quos ad regnum sublímat ætérnum.
+
+℟. Hæc est Virgo sápiens, quam Dóminus vigilántem invénit, quæ accéptis lampádibus sumpsit secum óleum : \* Et veniénte Dómino, introívit cum eo ad núptias. ℣. Média nocte clamor factus est : Ecce sponsus venit, exíte óbviam ei. — Et.
+
+##### Lectio viii
+
+UT autem plene valeámus agnóscere quómodo apprehéndi possit tam mira convérsio et in puerílem gradum qua nobis mutatióne redeúndum sit, dóceat nos beátus Paulus, et dicat : Nolíte púeri éffici sénsibus, sed malítia párvuli estóte. Non ergo ad lúdicra infántiæ et imperfécta nobis primórdia reverténdum est, sed áliquid, quod étiam graves annos déceat, inde suméndum, ut velox sit commotiónum tránsitus, citus ad pacem recúrsus : nulla sit memória offensiónis, nulla cupíditas dignitátis; amor sóciæ communiónis, æquálitas naturális. Magnum enim bonum est nocére non nosse et malígna non sápere; quia inférre ac ferre injúriam, mundi hujus prudéntia est; némini autem malum pro malo réddere, christiánæ est æquanimitátis infántia.
+
+℟. Média nocte clamor factus est : \* Ecce sponsus venit, exíte óbviam ei. ℣. Prudéntes vírgines, aptáte vestras lámpades. — Ecce. Glória Patri. Ecce.
+
+##### Lectio ix
+
+AD hanc vos, dilectíssimi, similitúdinem parvulórum mystérium hodiérnæ festivitátis invítat; et hanc vobis humilitátis formam adorátus a Magis puer Salvátor insínuat : qui, ut imitatóribus suis quid glóriæ paráret, osténderet, ortus sui témpore éditos martýrio consecrávit; ut in Béthlehem, ubi Christus natus est, géniti, per communiónem ætátis consórtes fíerent passiónis. Amétur ígitur humílitas, et omnis a fidélibus vitétur elátio. Alter álterum sibi præferat, et nemo quod suum est quærat, sed quod altérius; ut, cum in ómnibus abundáverit afféctus benevoléntiæ, in nullo virus inveniátur invídiæ : quóniam qui se exáltat, humiliábitur, et qui se humíliat, exaltábitur, eódem ipso testánte Jesu Christo Dómino nostro, qui cum Patre et Spíritu Sancto vivit et regnat Deus in sǽcula sæculórum. Amen.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Diffúsa est grátia.
+
+**Ad Bened. Ant.** Símile est regnum cælórum \* hómini negotiatóri quǽrenti bonas margarítas : invénta una pretiósa, dedit ómnia sua, et comparávit eam.
+
+**Oratio**
+
+DOmine, qui dixísti : Nisi efficiámini sicut párvuli, non intrábitis in regnum cælórum : da nobis, quǽsumus; ita sanctæ Terésiæ Vírginis in humilitáte et simplicitáte cordis vestígia sectári, ut prǽmia consequámur ætérna : Qui vivis.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 4 Octobris — S. Francisci
+
+{RUBRIC: Confessoris [94] Duplex majus}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+DEus, qui Ecclésiam tuam beáti Francísci méritis fœtu novæ prolis amplíficas : tríbue nobis; ex ejus imitatióne, terréna despícere, et cæléstium donórum semper participatióne gaudére. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præced. :}
+
+**Ant.** Veni, Sponsa Christi : áccipe corónam, quam tibi Dóminus præparávit in ætérnum.
+
+℣. Diffúsa est grátia.
+
+**Oratio** Dómine, qui dixísti, ut supra. 612
+
+{RUBRIC: In I Nocturno, si sumendæ sint de Communi, Lectiónes Justus ut morte, 2 loco. [102]}
+
+### In II Nocturno
+
+##### Lectio iv
+
+FRancíscus, Assísii in Umbria natus, patris exémplum secútus, a prima ætáte mercatúram fecit. Qui, quodam die, páuperem, pro Christi amóre flagitántem pecúniam, cum præter consuetúdinem repulísset, repénte eo facto commótus, large ei misericórdiam impertívit; et ex eo die Deo promísit se némini umquam poscénti eleemósynam negatúrum. Cum vero post in gravem morbum incidísset, ex eo aliquándo confirmátus, cœpit ardéntius cólere offícia caritátis; qua in exercitatióne tantum profécit, ut, evangélicæ perfectiónis cúpidus, quidquid habéret, paupéribus largirétur. Quod ferens iníquius pater, eum ad Assisinátem epíscopum duxit, ut coram illo bonis céderet patérnis; qui, rejéctis étiam véstibus, patri concéssit ómnia, illud subjúngens, sibi in pósterum majórem facultátem fore dicéndi : Pater noster, qui es in cælis.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+CUm autem illud ex Evangélio audísset : Nolíte possidére aurum, neque argéntum, neque pecúniam in zonis vestris, non peram in via, neque duas túnicas, neque calceaménta; sibi eam régulam serváre propósuit. Itaque, detráctis cálceis et una conténtus túnica, cum duódecim sócios adhibuísset, órdinem Minórum instítuit. Quare Romam venit anno salútis millésimo ducentésimo nono, ut sui órdinis régula ab apostólica Sede confirmarétur. Quem cum accedéntem ad se summus Póntifex Innocéntius tértius rejecísset; quod in somnis póstea sibi ille, quem repúlerat, collabéntem Lateranénsem basílicam suis húmeris sustinére visus esset, conquisítum accérsi jussit, benígnéque accípiens, omnem ejus institutórum ratiónem confirmávit. Francíscus ígitur, dimíssis in omnes orbis terræ partes frátribus ad prædicándum Christi Evangélium, ipse cúpiens sibi áliquam dari martýrii occasiónem, navigávit in Sýriam; ubi, a rege Soldáno liberalíssime tractátus, cum nihil profíceret, rédiit in Itáliam.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et ad portas.
+
+##### Lectio vi
+
+MUltis ígitur exstrúctis suæ famíliæ domicíliis, se in solitúdinem montis Alvérni contúlit; ubi quadragínta diérum, propter honórem sancti Michaélis Archángeli, jejúnio inchoáto, festo die Exaltatiónis sanctæ Crucis, ei Séraphim crucifíxi effígiem inter alas contínens appáruit; qui ejus et mánibus, et pédibus, et láteri vestígia clavórum impréssit. Quæ sanctus Bonaventúra, cum Alexándri quarti summi Pontíficis prædicatióni interésset, narrásse Pontíficem a se visa esse, lítteris comméndavit. His insígnibus summi in eum Christi amóris, máximam habébat ómnium admiratiónem. Ac biénnio post, gráviter ægrótans, defférri vóluit in ecclésiam sanctæ Maríæ Angelórum; ut, ubi grátiæ spíritum a Deo accéperat, ibi spíritum vitæ rédderet. Eo in loco fratres ad paupertátem ac patiéntiam, et sanctæ Románæ Ecclésiæ fidem servándam cohortátus, Psalmum illum pronúntians, Voce mea ad Dóminum clamávi; in eo versículo, Me exspéctant justi, donec retríbuas mihi, efflávit ánimam quarto Nonas Octóbris. Quem, miráculis clarum, Gregórius nonus Póntifex máximus in Sanctórum númerum adscrípsit.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+FRancíscus, Assísii in Umbria natus, patris exémplum secútus, a prima ætáte mercatúram fecit. Gravi morbo corréptus, cum convaluísset, cœpit ardéntius cólere caritátis offícia, et patri id indígne ferénti, bona ómnia cessit, subjúngens sibi in pósterum majórem facultátem fore dicéndi : Pater noster, qui es in cælis. Cum autem ex Evangélio apostólicæ paupertátis mónita audísset, detráctis cálceis et una conténtus túnica, cum duódecim sócios adhibuísset, órdinem Minórum instítuit; quem, a summo Pontífice Innocéntio tértio, cælítus admónito, confirmátum, mirífice propagávit. Mox in solitúdinem montis Alvérni se contúlit, ibíque, die Exaltatiónis sanctæ Crucis a Séraphim crucifíxi effígiem inter alas præseferénti, sacra accépit stígmata; in ejus mánibus, pédibus et látere clavórum et lánceæ vestígiis apparéntibus. Biénnio post gráviter ægrótans, in ecclésia sanctæ Maríæ Angelórum, ubi grátiæ spíritum a Deo accéperat, fratres ad paupertátem, patiéntiam et sanctæ Románæ Ecclésiæ fidem servándam hortátus, piíssime ánimam efflávit quarto Nonas Octóbris.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Ev. Confíteor tibi, de Communi Abbátum 2 loco. [108]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui Ecclésiam tuam beáti Francísci méritis fœtu novæ prolis amplíficas : tríbue nobis; ex ejus imitatióne, terréna despícere, et cæléstium donórum semper participatióne gaudére. Per Dóminum.
+
+#### IN II VESPERIS
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+{RUBRIC: Et fit Commemoratio sequéntis.}

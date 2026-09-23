@@ -1244,4 +1244,46 @@ Matins and Lauds may always be separated as if both formed two distinct Hours. T
 
 [^84]: In these pages no remarks are given regarding Religious Orders having special Calendars. Let it be said, however, that Tertiary Priests may follow the Breviary of the Order.
 
+of their church. Simple priests, and those who are not strictly attached to the service of a church, are at liberty to choose between the Office of their own diocese and that of the diocese in which they happen to be.
+
+(b) If some one, through inadvertence, says one Office for another, the principle: "*officium pro Officio valet*" holds good,[^85] even if the mistake is seen in time to say the Office of the day also.[^86] When, however, the Office thus taken is much shorter than that which should have been said, it would be well — though not necessary — to recite, by way of compensation, a part of the Office omitted. Moreover, it must be here stated that if the mistake is detected before finishing the Office, the person in question must continue the Office of the day from where he is, according to the rule: "*Error corrigitur ubi deprehenditur*."
+
+(c) Knowingly to *CHANGE THE OFFICE* of the day for another nearly equal to it is no fault at all, if it rarely occurs (three or four times a year), and there is a reasonable cause, e. g., a special devotion, or charity. If, however, this is *often* done, and without a just cause, not more than a venial sin is committed (provided contempt be excluded), since
+
+[^85]: He is also free to recite the Office omitted that day on which the Office he actually said occurs, or the Office of the day.
+[^86]: "*Officium pro Officio* valide recitatur ex errore involuntario, sed probabilius *error corrigi debet ubi deprehenditur*." Tanquerey-Quévastre, *Brev. Syn. Theol. Moralis* (1918), n. 706.
+
+the Church, in this law, has regard to the quantity rather than to the quality of the Office.
+
+**67.** It is generally held that the omission of a Little Hour, or of what would be equal to a Little Hour, constitutes sufficient matter for a mortal sin. The omission of Vespers on Holy Saturday would, nevertheless, be only a venial sin on account of its shortness. He who omits one whole day's Office is guilty of only one mortal sin. (*Ita probabilius.*)
+
+**68.** In reading the Office the *PRONUNCIATION* must be *distinct* and *articulate*. The words must be *vocally* pronounced, not merely followed with the eyes without motion of the vocal organs. But it is not necessary for the reader to pronounce the words so that he himself may hear them. That hissing recitation of the Office, so common, should be avoided, both as being unnecessary and unpleasant to those who may be nearby. When a person recites his Office with a companion,[^87] each one says his part, and it is sufficient to listen to him, without saying a word, whilst he reads a verse or a Lesson. One should not begin to read his part until the other has completely finished his.
+
+**69.** The Office may be recited in any place and
+
+[^87]: Whenever the *Confiteor* in the Office is said privately, even with a companion, it is said only *once*, and the words *Tibi pater*, *Vobis fratres*, and the like, are omitted. In that case, too, "*Misereatur nostri*," etc., is said instead of what would otherwise have to be recited. These directions are found in their proper place in the Ordinarium. If several say the Office privately together, the Confiteor is alternately recited as in Choir.
+
+in any position[^88] that exclude distractions or irreverence.
+
+### Ceremonies
+
+**70.** No ceremonies are obligatory in the private recitation of the Office. It is, however, praiseworthy to make the signs of the cross, and the inclination of the head at the *Gloria Patri* for example, and also to recite the *Preces feriales* kneeling.
+
+For the utility of students, the various signs of the cross, prescribed for choir recitation, are added here.
+
+At *Domine labia mea aperies* and (from custom) *Aperi Domine*, the sign of the cross is made on the lips with the thumb of the right hand.
+
+Where it is customary, the sign of the cross may be made on the breast at *Converte nos* in Compline.
+
+The ordinary sign of the cross is made:
+
+(a) At the beginning of the canticles *Benedictus*, *Magnificat*, and (by laudable custom) *Nunc dimittis*.
+
+(b) At the *Deus in adjutorium*, beginning each Hour (not in the psalms, or *Preces*, or in the "*ter dicitur*" of Prime).
+
+(c) At the *Adjutorium nostrum*[^89] before the
+
+[^88]: "Non autem cubando extra necessitatem." Tanquerey-Quévastre, *Brev. Synop. Theol. Moral.* (1918), n. 709.— Any reasonable cause excuses.
+[^89]: Not at the *Adjutorium* after the *Lectio brevis* of Prime, since the sign of the cross is made immediately after at *Dominus nos benedicat*.
+
 ---

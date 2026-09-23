@@ -28085,3 +28085,93 @@ Tótius mundi sériem gubérnat
 Trinus et unus. Amen.
 
 ℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** O beátum virum, \* cujus ánima paradísum póssidet! Unde exsúltant Angeli, lætántur Archángeli, chorus Sanctórum proclámat, turba Vírginum invítat : Mane nobíscum in ætérnum.
+
+**Oratio**
+
+DEus, qui cónspicis quia ex nulla nostra virtúte subsístimus : concéde propítius; ut, intercessióne beáti Martíni Confessóris tui atque Pontíficis, contra ómnia advérsa muniámur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedéntis :}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio**
+
+DEus, qui in corde beáti Andréæ Confessóris tui, per árduum quotídie in virtútibus proficiéndi votum, admirábiles ad te ascensiónes disposuísti : concéde nobis, ipsíus méritis et intercessióne, ita ejúsdem grátiæ partícipes fíeri; ut, perfectióra semper exsequéntes, ad glóriæ tuæ fastígium felíciter perducámur. Per Dóminum.
+
+{RUBRIC: Deínde Commem. S. Mennæ Mart. :}
+
+**Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+℣. Glória et honóre.
+
+**Oratio**
+
+PRæsta, quæsumus, omnípotens Deus : ut, qui beáti Mennæ Mártyris tui natalítia cólimus, intercessióne ejus, in tui nóminis amóre roborémur. Per Dóminum.
+
+{RUBRIC: Completorium de Feria.}
+
+#### AD MATUTINUM
+
+**Invit.** Laudémus Deum nostrum \* In confessióne beáti Martíni. **Ps. 94** Veníte, exsultémus. 3
+
+{RUBRIC: Hymnus Iste Conféssor, ut in I Vésperis. 783}
+
+### In I Nocturno
+
+**Ant.** Martínus, \* adhuc catechúmenus, hac me veste contéxit.
+
+**Psalmus 1**
+
+BEátus vir, qui non ábiit in consílio impiórum, et in via peccatórum non stetit, \* et in cáthedra pestiléntiæ non sedit :
+
+Sed in lege Dómini volúntas ejus, \* et in lege ejus meditábitur die ac nocte.
+
+Et erit tamquam lignum, quod plantátum est secus decúrsus aquárum, \* quod fructum suum dabit in témpore suo :
+
+Et fólium ejus non défluet : \* et ómnia quæcúmque fáciet, prosperabúntur.
+
+Non sic ímpii, non sic : \* sed tamquam pulvis, quem prójicit ventus a fácie terræ.
+
+Ideo non resúrgent ímpii in judício : \* neque peccatóres in concílio justórum.
+
+Quóniam novit Dóminus viam justórum : \* et iter impiórum períbit.
+
+**Ant.** Martínus, adhuc catechúmenus, hac me veste contéxit.
+
+**Ant.** Sanctæ Trinitátis \* fidem Martínus conféssus est, et baptísmi grátiam percépit.
+
+**Psalmus 2**
+
+QUare fremuérunt gentes, \* et pópuli meditáti sunt inánia?
+
+Astitérunt reges terræ, et príncipes convenérunt in unum \* advérsus Dóminum, et advérsus Christum ejus.
+
+Dirumpámus víncula eórum : \* et projiciámus a nobis jugum ipsórum.
+
+Qui hábitat in cælis, irridébit eos : \* et Dóminus subsannábit eos.
+
+Tunc loquétur ad eos in ira sua, \* et in furóre suo conturbábit eos.
+
+Ego autem constitútus sum Rex ab eo super Sion montem sanctum ejus, \* prædicans præcéptum ejus.
+
+Dóminus dixit ad me : \* Fílius meus es tu, ego hódie génui te.
+
+Póstula a me, et dabo tibi gentes hereditátem tuam, \* et possessiónem tuam términos terræ.
+
+Reges eos in virga férrea, \* et tamquam vas fíguli confrínges eos.
+
+Et nunc, reges, intellígite : \* erudímini, qui judicátis terram.
+
+Servíte Dómino in timóre : \* et exsultáte ei cum tremóre.
+
+Apprehéndite disciplínam, nequándo irascátur Dóminus, \* et pereátis de via justa.
+
+Cum exárserit in brevi ira ejus, \* beáti omnes qui confídunt in eo.
+
+**Ant.** Sanctæ Trinitátis fidem Martínus conféssus est, et baptísmi grátiam percépit.
+
+**Ant.** Ego signo crucis, \* non clýpeo protéctus aut gálea, hóstium cúneos penetrábo secúrus.

@@ -40609,3 +40609,51 @@ Glória Patri. Sicut erat.
 BEnedíctus Deus in donis suis, et sanctus in ómnibus opéribus suis : Qui vivit et regnat in sǽcula sæculórum. ℟. Amen.
 
 {RUBRIC: Deinde alternátim dícitur Ps. 116 Laudáte Dóminum, omnes gentes, et relíqua ut supra. [247]}
+
+{RUBRIC: Quando semel comedítur, ómnia dicúntur ut in Cœna.}
+
+{RUBRIC: Prædíctus modus benedicéndi mensam, et agéndi grátias, servátur omni témpore hujus Partis Autumnális.}
+
+---
+
+# Itinerarium
+
+{RUBRIC: Clericus in ipso itíneris ingréssu, si solus fúerit, dicat quæ sequúntur in singulári; si cum sóciis, in plúrali.}
+
+**Ant.** In viam pacis.
+
+{RUBRIC: Canticum Zachariæ Benedíctus Dóminus, Deus Israël. [225]}
+
+**Ant.** In viam pacis et prosperitátis dírigat nos omnípotens et miséricors Dóminus, et Angelus Ráphaël comitétur nobíscum in via; ut cum pace, salúte et gáudio revertámur ad própria.
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster {RUBRIC: secréto usque ad} ℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Salvos fac servos tuos. ℟. Deus meus, sperántes in te.
+
+℣. Mitte nobis, Dómine, auxílium de sancto. ℟. Et de Sion tuére nos.
+
+℣. Esto nobis, Dómine, turris fortitúdinis. ℟. A fácie inimíci.
+
+℣. Nihil profíciat inimícus in nobis. ℟. Et fílius iniquitátis non appónat nocére nobis.
+
+℣. Benedíctus Dóminus die quotídie. ℟. Prósperum iter fáciat nobis Deus salutárium nostrórum.
+
+℣. Vias tuas, Dómine, demónstra nobis. ℟. Et sémitas tuas édoce nos.
+
+℣. Utinam dirigántur viæ nostræ. ℟. Ad custodiéndas justificatiónes tuas.
+
+℣. Erunt prava in dirécta. ℟. Et áspera in vias planas.
+
+℣. Angelis suis Deus mandávit de te. ℟. Ut custódiant te in ómnibus viis tuis.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+**Oratio**
+
+DEus, qui fílios Israël per maris médium sicco vestígio ire fecísti, quíque tribus Magis iter ad te stella duce pandísti : tríbue nobis, quǽsumus, iter prósperum tempúsque tranquíllum; ut, Angelo tuo sancto cómite, ad eum quo pérgimus locum, ac de-

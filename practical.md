@@ -1031,3 +1031,49 @@ for example, be ferial and festal: *ferial* (even with *Preces*, etc.) until Non
 Should the Matins of the next day's Office be said immediately after Compline, then the *Pater*, *Ave*, and *Credo* must be recited again as the beginning of a new Office.
 
 ---
+
+## CHAPTER IX
+
+## WHERE THE DIFFERENT PARTS OF THE OFFICE ARE TO BE FOUND
+
+**53.** It may be here again observed that each *Proprium* has its *Commune*; thus, the *Proprium Sanctorum* has the *Commune Sanctorum*, and the *Proprium de Tempore* has as its "Commune" the Ordinarium and Psalter. The object of a *Commune* is to supply parts that are missing in the Proprium[^63] (cf. n. 5).
+
+**54.** Starting off with general principles, it may be well to state that *invariable* parts of the Office (not marked with an asterisk \* in the schemes) are found in the Ordinarium, which resembles, in this, the Ordo Missæ. Likewise, the psalms and antiphons at the various Hours of each Office are taken from the current day in the Psalter. This method holds good for all the ordinary feasts[^64] as well as for ferials, and is sometimes referred to as the *modus ordinarius* recitation of the Office.[^65]
+
+[^63]: The *Proprium* should always be looked at first, so that parts therein contained will not be taken from the *Commune*.
+[^64]: Those not included in the *modus solemnis* (n. 57).
+[^65]: When looking for the parts of any Office, a little reasoning should be done on words like *ferial*, *festal*, etc. Who, when looking for parts of a *ferial* Office, will think of, and, still less, scrutinize the *Proprium* or *Commune Sanctorum*? Who would think of looking for *Lessons* in the Psalter? Strange mistakes are, nevertheless, sometimes made.
+
+**55.** It being taken for granted that the foregoing remarks are borne in mind, the following directions will hold good for all the Hours of the ordinary Offices (exceptions being noted later):
+
+(a) *On feasts:*
+
+1. *Of nine Lessons:* Everything is found in the *Proprium*[^66] and *Commune Sanctorum*, excepting the Lessons and Responsoria of the first nocturn, which are taken from *Scripture occurring* (Prop. de Temp.).
+
+2. *Of three Lessons:* Same rule except that the first two Lessons are usually taken from Scripture occurring.
+
+(b) *On ferials and Sundays:* everything is found in the *Proprium de Tempore*,[^67] Psalter,[^68] and Ordinarium.[^69]
+
+[^66]: The *Proprium* gives, at least, the Oration, the Lessons, and Responsoria of the second nocturn, with directions where to find the Lessons and Responsoria of the third nocturn (e. g., June 6th).
+[^67]: This *Proprium* usually gives three Lessons (with their Responsoria), and, on Saturdays, a special *Ant. ad. Magnificat.*— The Oration will be that of the preceding Sunday if there is none proper. On Saturdays, however, the Oration is taken from the following Sunday, at Vespers only.
+[^68]: The Psalter very often repeats for convenience what is already contained in the Ordinarium.
+[^69]: Note that the various Hours in the Ordinarium give different parts according to different ecclesiastical *Tempora* (*Tempus Quadragesimæ*, *Passionis*, etc.). Cf. *Pars Verna*, Prime.
+
+### The Office on Important Feasts
+
+**56.** There are a number of special feasts (n. 57) on which the Office is not said according to the foregoing rules (i. e., *modo ordinario*), but according to a special procedure, termed *modus solemnis*, which means:
+
+(a) That the psalms, with their antiphons, at Matins and Vespers are found in the feast (Prop. or Comm.). So also are all the remaining parts of the Office, except those usually found as invariable in the Ordinarium.
+
+(b) That the psalms (*not* antiphons, except for Compline) for Lauds, the Little Hours, and Compline, are taken from *Sunday* in the Psalter, no matter what day of the week it may be.
+
+In a word: on *modus solemnis* feasts everything is found in the *Proprium* (and *Commune*) excepting the *psalms* at Lauds, the Little Hours, and Compline, which are taken from the corresponding Hour of Sunday in the Psalter (cf. n. 59).
+
+**57.** What Offices are being referred to as recited *modo solemni*? They are (in general):
+
+1. Feasts (of nine Lessons) of Our Lord, the Blessed Virgin, the Angels, St. John the Baptist, St. Joseph, the Apostles, the Evangelists,[^70] and a few other days.[^71]
+
+[^70]: The numeration is according to the *Litany of the Saints*, as found at the end of any volume of the Breviary.
+[^71]: For example, Vigils of Christmas and the Epiphany, and on the Sundays within the octaves of certain feasts (e. g., the Epiphany). This will be noted in the Ordo.
+
+---

@@ -24411,3 +24411,198 @@ PEtrus, Alcántaræ in Hispánia nobílibus paréntibus natus, décimo sexto æt
 **Te Deum laudámus.**
 
 {RUBRIC: In III Nocturno Homilia in Ev. Nolíte timére, de Comm. Conf. non Pont. 2 loco. [105]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DEus, qui beátum Petrum Confessórem tuum admirábilis pœniténtiæ et altíssimæ contemplatiónis múnere illustráre dignátus es : da nobis, quǽsumus; ut, ejus suffragántibus méritis, carne mortificáti, facílius cæléstia capiámus. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capítulo de seq., Commemoratio præcedéntis.}
+
+---
+
+## Die 20 Octobris — S. Joannis Cantii
+
+{RUBRIC: Confessoris [94] Duplex}
+
+#### IN I VESPERIS
+
+**Capitulum**
+*Eccli. 31, 8-9*
+
+BEátus vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.
+
+**Hymnus**
+
+GEntis Polónæ glória,
+Cleríque splendor nóbilis,
+Decus Lycǽi, et pátriæ
+Pater, Joánnes ínclyte.
+
+Legem supérni Núminis
+Doces magíster, et facis.
+Nil scire prodest : sédulo
+Legem nitámur éxsequi.
+
+Apostolórum límina
+Pedes viátor vísitas;
+Ad pátriam, ad quam téndimus,
+Gressus viámque dírige.
+
+Urbem petis Jerúsalem :
+Signáta sacro Sánguine
+Christi colis vestígia,
+Rigásque fusis flétibus.
+
+Acérba Christi vúlnera,
+Hæréte nostris córdibus,
+Ut cogitémus cónsequi
+Redemptiónis prétium.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Te prona mundi máchina,
+Clemens, adóret, Trínitas,
+Et nos novi per grátiam
+Novum canámus cánticum.
+Amen.
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+### In II Vesperis
+
+℣. Justum dedúxit.
+
+**Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+**Oratio**
+
+DA, quǽsumus, omnípotens Deus : ut, sancti Joánnis Confessóris exémplo in sciéntia Sanctórum profíciéntes, atque áliis misericórdiam exhibéntes; ejus méritis, indulgéntiam apud te consequámur. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedentis :}
+
+**Ant.** Hic vir, despíciens mundum et terréna, triúmphans, divítias cælo cóndidit ore, manu.
+
+℣. Justum dedúxit.
+
+**Oratio**
+
+DEus, qui beátum Petrum Confessórem tuum admirábilis pœniténtiæ et altíssimæ contemplatiónis múnere illustráre dignátus es : da nobis, quǽsumus; ut, ejus suffragántibus méritis, carne mortificáti, facílius cæléstia capiámus. Per Dóminum.
+
+#### AD MATUTINUM
+
+**Invitat.** Regem Confessórum Dóminum, \* Veníte, adorémus. **Ps. 94** Veníte, exsultémus. 3
+
+{RUBRIC: Si hoc Festum non habúerit I Vésperas, saltem a Capítulo, ad Matutínum pónitur Hymnus Gentis Polónæ, ad Laudes Corpus domas, in II Vésperis Te deprecánte; si vero nec hábeat II Vésperas íntegras, Hymnus Gentis Polónæ, omíssa Conclusióne, jungítur ad Matutínum cum Hymno Corpus domas.}
+
+**Hymnus**
+
+CORpus domas jejúniis,
+Cædis cruénto vérbere,
+Ut castra pœniténtium
+Miles sequáris ínnocens.
+
+Sequámur et nos sédulo
+Gressus paréntis óptimi,
+Sequámur, ut licéntiam
+Carnis refrénet spíritus.
+
+Rigénte bruma, próvidum
+Præbes amíctum páuperi,
+Sitim famémque egéntium
+Esca potúque súblevas.
+
+O qui negásti némini
+Opem rogánti, pátrium
+Regnum tuére, póstulant
+Cives Polóni et éxteri.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+Sit laus Patri, sit Fílio,
+Tibíque, Sancte Spíritus;
+Preces Joánnis ímpetrent
+Beáta nobis gáudia.
+Amen.
+
+### In II Nocturno
+
+##### Lectio iv
+
+JOánnes, in óppido Kenty Cracoviénsis diœcésis, a quo Cántii cognómen duxit, Stanisláo et Anna piis et honéstis paréntibus natus, morum suavitáte, innocéntia, gravitáte, ab ipsa infántia spem fecit máximæ virtútis. In universitáte Cracoviénsi philosophiæ ac theológiæ primum audítor, tum, per omnes academíæ gradus ascendéndo, proféssor ac doctor, sacra, quam annis multis trádidit, doctrína mentes audiéntium non illustrábat modo, sed et ad omnem pietátem inflammábat, simul docens scílicet et fáciens. Sacérdos factus, nihil de litterárum stúdio remíttens, stúdium auxit christiánæ perfectiónis. Utque passim offéndi Deum máxime dolébat, sic eum sibi et pópulo placáre, obláto quotídie non sine multis lácrimis incruénto sacrifício, satagébat. Ilkusiénsem paróchiam annis áliquot egrégie administrávit; sed, animárum perículo commótus, póstea dimísit, ac, postulánte académia, ad prístinum docéndi offícium rédiit.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et.
+
+##### Lectio v
+
+QUidquid témporis a stúdio superérat, partim salúti proximórum sacris præsértim conciónibus curándæ, partim oratióni dabat, in qua cæléstibus quandóque visiónibus et collóquiis dignátus fertur. Christi vero passióne sic afficiebátur, ut in ea contemplánda totas intérdum noctes dúceret insómnes, ejúsque causa mélius recoléndæ Jerosólymam peregrinátus sit; ubi, et martýrii desidério flagrans, Turcis ipsis Christum crucifíxum prædicáre non dubitávit. Quáter étiam ad Apostolórum límina, pedes atque viária onústus sárcina, Romam venit, tum ut Sedem apostólicam, cui máxime addíctus fuit, honoráret, tum ut sui (sic enim ajébat) purgatórii pœnas expósita illic quotídie peccatórum vénia redímeret. Quo in itínere a latrónibus olim spoliátus et num quid habéret prætérea interrogátus, cum negásset, áureos deínde áliquot suo insútos pállio recordátus, fugiéntibus hos étiam clamans óbtulit latrónibus; qui, viri sancti candórem simul et largitátem admiráti, étiam ablátos ultro reddidére. Aliénæ famæ ne quis detráheret, descríptis, beáti Augustíni exémplo, in paríete versículis, se atque álios perpétuo vóluit admónitos. Famélicos de suo étiam obsónio satiábat; nudos autem non emptis modo sed detráctis quoque sibi véstibus et cálceis operiébat, demísso ipse ínterim usque ad terram pállio, ne domum núdipes redíre viderétur.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+BRevis illi somnus, atque humi; vestis, quæ nuditátem, cibus, qui mortem dumtáxat arcéret. Virginálem pudicítiam, velut lílium inter spinas, áspero cilício, flagéllis atque jejúniis custodívit. Quin et per annos ante óbitum trigínta círciter et quinque, ab esu cárnium perpétuo abstínuit. Tandem diérum juxta ac meritórum plenus, cum vicínæ, quam præsénsit, morti se diu diligéntérque præparásset, ne qua re ámplius tenerétur, si quid domi supérerat, id omníno paupéribus distríbuit. Tum Ecclésiæ sacraméntis rite munítus, dissólvi jam cúpiens et esse cum Christo, prídie Nativitátis ejus, in cælum evolávit, miráculis ante et post mortem clarus. Mórtuus ad próximam académiæ ecclésiam sanctæ Annæ delátus est, ibíque honorífice sepúltus. Auctáque in dies pópuli veneratióne ac frequéntia, inter primários Polóniæ ac Lithuániæ patrónos religiosíssime cólitur. Novísque corúscans miráculis, a Cleménte décimo tértio Pontífice máximo, décimo séptimo Kaléndas Augústi, anno millésimo septingentésimo sexagésimo séptimo, solémni ritu Sanctórum fastis adscríptus est.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+JOánnes, in óppido Kenty Cracoviénsis diœcésis, a quo Cántii cognómen duxit, Stanisláo et Anna piis et honéstis paréntibus natus, morum suavitáte et innocéntia, ab ipsa infántia spem fecit máximæ virtútis. Sacérdos factus, stúdium auxit christiánæ perfectiónis. Ilkusiénsem paróchiam annis áliquot egrégie administrávit. Quidquid témporis a stúdio superérat, partim salúti proximórum sacris præsértim conciónibus curándæ, partim oratióni dabat. Quáter ad Apostolórum límina, pedes et viária onústus sárcina, venit, tum ut Sedem apostólicam honoráret, tum, ut sui (sic enim ajébat) purgatórii pœnas expósita illic quotídie peccatórum vénia redímeret. Virginálem pudicítiam vigilantíssime custodívit, et ante óbitum per annos trigínta círciter et quinque ab esu cárnium abstínuit. Prídie Nativitátis Christi volávit in cælum. A Cleménte Papa décimo tértio fastis Sanctórum adscríptus, inter primários Polóniæ ac Lithuániæ patrónos cólitur.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilia in Ev. Sint lumbi, de Communi Conf. non Pont. 1 loco. [98]}
+
+#### AD LAUDES
+
+**Capitulum**
+*Eccli. 31, 8-9*
+
+BEátus vir, qui invéntus est sine mácula, et qui post aurum non ábiit, nec sperávit in pecúnia et thesáuris. Quis est hic, et laudábimus eum? fecit enim mirabília in vita sua.
+
+**Hymnus**
+
+TE deprecánte, córporum
+Lues recédit, ímprobi
+Morbi fugántur, prístina
+Rédeunt salútis múnera.
+
+Phthísi febríque et úlcere
+Diram redáctos ad necem,
+Sacrátas morti víctimas,
+Ejus rapis e fáucibus.
+
+Te deprecánte, túmido
+Merces abáctæ flúmine,
+Tractæ Dei poténtia,
+Sursum fluunt retrógradæ.
+
+Cum tanta possis, sédibus
+Cæli locátus, póscimus :
+Respónde votis súpplicum,
+Et invocátus súbveni.
+
+{RUBRIC: ¶ Sequens Conclúsio numquam mutátur.}
+
+O una semper Trínitas,
+O trina semper Únitas :
+Da, supplicánte Cántio,
+Ætérna nobis prǽmia.
+Amen.
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.
+
+**Oratio**
+
+DA, quǽsumus, omnípotens Deus : ut, sancti Joánnis Confessóris exémplo in sciéntia Sanctórum profíciéntes, atque áliis misericórdiam exhibéntes; ejus méritis, indulgéntiam apud te consequámur. Per Dóminum.

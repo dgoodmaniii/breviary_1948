@@ -1531,3 +1531,37 @@ However, the octave-day of the feast of the Most Holy Name of Jesus — should t
 [^113]: This case is a good illustration of the preceding rule, because the octave-day would fall on January 9th, i. e., during the *privileged* octave of the Epiphany, a commemoration of which would be made, since these are different mysteries of the Lord.
 
 ---
+
+## CHAPTER XV
+
+## TRANSLATION OF FEASTS
+
+**90.** Festivals that are doubles of the first or second class may be transferred if they are either *accidentally* or *perpetually* impeded. Other feasts (viz., doubles major or minor and semi-doubles) are not transferred, but are either commemorated or entirely omitted the day they fall.[^114]
+
+As a general rule, (accidentally or perpetually) impeded doubles of the first or second class are to be transferred to the first following day which is free from:
+
+1st, other doubles of the first or second class;
+2d, a privileged vigil and other Offices that exclude such feasts;
+3d, any Sunday, if there be question of "*repositio accidentalis*" (i. e., transferring an accidentally impeded feast to another day — as above — but not to that day each year);
+4th, an octave-day of double major rite, if there be question of "*repositio perpetua*" (i. e., celebrating a perpetually impeded feast on another *fixed day* which, each year, is to regarded as its "sedes propria").
+
+[^114]: Note the one exception given in n. 95.
+
+**91.** Doubles of the first and second class that are assigned to certain ferials (e. g., the feast of the Sacred Heart is assigned to the Friday following the octave of Corpus Christi), if they are *perpetually impeded*, are likewise transferred to the first following day that is perpetually free, on which day ("*tamquam in sede propria*") they will always be celebrated.
+
+**92.** When more than one feast has to be transferred, attention should be paid to the following points (already explained in n. 88) which should be taken in the order here given:[^115]
+
+1st, higher rite;
+2d, greater solemnity;
+3d, reason of primary or secondary;
+4th, personal dignity;
+5th, "proprietas festorum."
+
+### Translation and Octaves
+
+**93.** When feasts of the Universal Church having an octave are — on account of a *perpetual* impediment — to be transferred[^116] to the first following free day, according to the Rubrics, these octave-days are not likewise transferred accordingly, but they (i. e., the octave-days) must be celebrated in the Universal Church on their own day. The same
+
+[^115]: Special rules are given, in their proper place, for the following feasts: Holy Name; Sacred Heart; Purification; St. Joseph; Annunciation; Nativity of St. John the Baptist.
+[^116]: This case refers to particular churches or places.
+
+---

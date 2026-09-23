@@ -21255,3 +21255,124 @@ CYpriánus, primum magus, póstea Martyr, cum Justínam, christiánam Vírginem,
 **Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
 
 {RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Die 27 Septembris — Ss. Cosmae et Damiani
+
+{RUBRIC: Martyrum [49] Semiduplex}
+
+℣. Lætámini in Dómino.
+
+**Ad Magnif. Ant.** Istórum est enim \* regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+**Oratio**
+
+PRǽsta, quǽsumus, omnípotens Deus : ut, qui sanctórum Mártyrum tuórum Cosmæ et Damiáni natalítia cólimus, a cunctis malis imminéntibus, eórum intercessiónibus, liberémur. Per Dóminum.
+
+### In II Nocturno
+
+{RUBRIC: ¶ Pro hoc Festo simplificato, Lectiones iv et v in unam junctæ dicantur ut ix.}
+
+##### Lectio iv
+
+COsmas et Damiánus, fratres Arabes, in Ægéa urbe nati, nóbiles médici, imperatóribus Diocletiáno et Maximiáno, non magis medicínæ sciéntia quam Christi virtúte, morbis étiam insanabílibus medebántur. Quorum religiónem cum Lýsias præféctus cognovísset, addúci eos ad se jubet, ac de vivéndi institúto et de fídei professióne interrogátos, cum se et christiános esse, et christiánam fidem esse ad salútem necessáriam, líbere prædicárent, deos venerári ímperat; et, si id recúsent, minátur cruciátus et necem acerbíssimam.
+
+℟. Sancti tui, Dómine, mirábile consecúti sunt iter, serviéntes præcéptis tuis, ut inveniréntur illǽsi in aquis válidis : \* Terra appáruit árida, et in Mari Rubro via sine impediménto. ℣. Quóniam percússit petram, et fluxérunt aquæ, et torréntes inundavérunt. — Terra.
+
+##### Lectio v
+
+VErum, ut se frustra hæc illis propónere intélligit : Colligáte, inquit, manus et pedes istórum, eósque exquisítis torquéte supplíciis. Quibus jussa exsequéntibus, nihilóminus Cosmas et Damiánus in senténtia persistébant. Quare, ut erant vincti, in profúndum mare jaciúntur. Unde cum salvi ac solúti essent egréssi, mágicis ártibus præféctus factum assígnans, in cárcerem tradit, ac postrídie edúctos in ardéntem rogum injíci jubet; ubi, cum ab ipsis flamma refúgeret, várie et crudéliter tortos secúri pércuti vóluit. Itaque, in Jesu Christi confessióne, martýrii palmam accepérunt.
+
+℟. Vérbera carníficum non timuérunt Sancti Dei, moriéntes pro Christi nómine : \* Ut herédes fíerent in domo Dómini. ℣. Tradidérunt córpora sua propter Deum ad supplícia. — Ut.
+
+{RUBRIC: Sermo sancti Augustíni Epíscopi}
+
+##### Lectio vi
+*Sermo 47 de Sanctis*
+
+QUotiescúmque, fratres caríssimi, sanctórum Mártyrum solémnia celebrámus, ita, ipsis intercedéntibus, exspectémus a Dómino cónsequi temporália benefícia, ut, ipsos Mártyres imitándo, accípere mereámur ætérna. Ab ipsis enim sanctórum Mártyrum in veritáte festivitátum gáudia celebrántur, qui ipsórum Mártyrum exémpla sequúntur. Solemnitátes enim Mártyrum exhortatiónes sunt martyriórum; ut imitári non pígeat, quod celebráre deléctat.
+
+℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem : et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
+
+{RUBRIC: In III Nocturno Homilía in Ev. Descéndens Jesus, de Communi plur. Mm. 2 loco. [66]}
+
+{RUBRIC: ℟. viii Hæc est vera. [67]}
+
+#### AD LAUDES
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+**Oratio**
+
+PRǽsta, quǽsumus, omnípotens Deus : ut, qui sanctórum Mártyrum tuórum Cosmæ et Damiáni natalítia cólimus, a cunctis malis imminéntibus, eórum intercessiónibus, liberémur. Per Dóminum.
+
+{RUBRIC: Vésperæ a Capit. de sequénti, Commem. præcedéntis.}
+
+---
+
+## Die 28 Septembris — S. Wenceslai
+
+{RUBRIC: Ducis, Mart. [29] Semiduplex}
+
+℣. Glória et honóre.
+
+**Ad Magnif. Ant.** Iste Sanctus pro lege Dei sui certávit usque ad mortem, et a verbis impiórum non tímuit; fundátus enim erat supra firmam petram.
+
+**Oratio**
+
+DEus, qui beátum Wencesláum per martýrii palmam a terréno principátu ad cæléstem glóriam transtulísti : ejus précibus nos ab omni adversitáte custódi; et ejúsdem tríbue gaudére consórtio. Per Dóminum.
+
+{RUBRIC: Et fit Commem. præcedentis :}
+
+**Ant.** Gaudent in cælis ánimæ Sanctórum, qui Christi vestígia sunt secúti; et, quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+℣. Exsultábunt Sancti.
+
+**Oratio** Præsta, quǽsumus, ut supra. 570
+
+{RUBRIC: In I Nocturno, si dicéndæ non sint de Scriptúra occurrénti, Lectiónes Fratres : Debitóres, de Comm. plurim. Mm. cum ℟℟. de Comm. uníus Mart. non Pont. ibi notátis. [52]}
+
+### In II Nocturno
+
+##### Lectio iv
+
+WEncesláus Bohémiæ dux, Wratisláo patre christiáno, Drahomíra matre gentíli natus, ab ávia Ludmílla fémina sanctíssima pie educátus, omni virtútum génere insígnis, summo stúdio virginitátem per omnem vitam servávit illibátam. Mater, per nefáriam Ludmíllæ necem regni administratiónem assecúta, ímpie cum junióre fílio Boleslávo vivens, concitávit in se prócerum indignatiónem; quare, tyránnici et ímpii regíminis pertǽsi, utriúsque excússo jugo, Wencesláum in urbe Pragénsi regem salutárunt.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Descendítque cum illo in fóveam, et in vínculis non derelíquit eum. — Et.
+
+##### Lectio v
+
+ILle, regnum pietáte magis quam império regens, órphanis, víduis, egénis tanta caritáte subvénit, ut própriis húmeris aliquándo ligna indigéntibus noctu comportárit, paupéribus humándis frequénter affúerit, captívos liberárit, carcéribus deténtos nocte intempésta visitárit, pecúniis et consílio sæpíssime consolátus. Miti ánimo princeps veheménter dolébat quémpiam, etsi reum, morti adjudicári. Summa religióne sacerdótes venerátus, suis mánibus tríticum serébat et vinum exprimébat, quibus in Missæ sacrifício uteréntur. Nocte nudis pédibus super nivem et gláciem circuíbat ecclésias, sanguínea et terram calefaciéntia post se relínquens vestígia.
+
+℟. Desidérium ánimæ ejus tribuísti ei, Dómine, \* Et voluntáte labiórum ejus non fraudásti eum. ℣. Quóniam prævenísti eum in benedictiónibus dulcédinis, posuísti in cápite ejus corónam de lápide pretióso. — Et.
+
+##### Lectio vi
+
+ANgelos hábuit sui córporis custódes. Cum enim ad singuláre certámen advérsus Radisláum, ducem Curiménsem, eo fine accéderet, ut suórum salúti prospíceret, visi sunt Angeli arma ministrásse, et dixísse adversário : Ne férias. Pertérritus hostis, venerabúndus prócidens véniam exorávit. Cum in Germániam proféctus esset, imperátor, conspéctis duóbus Angelis áurea cruce ad se accedéntem ornántibus, e sólio prosíliens bráchiis excépit, régiis insígnibus decorávit, eíque sancti Viti bráchium donávit. Nihilóminus ímpius frater, matre hortánte, convívio excéptum et póstea in ecclésia orántem, parátæ sibi mortis præscium, adhíbitis scéleris comítibus, interfécit. Sanguis per paríetes aspérsus adhuc conspícitur, et, Deo víndice, matrem inhumánam terra absórbuit, interfectóres váriis modis mísere periérunt.
+
+℟. Stola jucunditátis índuit eum Dóminus : \* Et corónam pulchritúdinis pósuit super caput ejus. ℣. Cibávit illum Dóminus pane vitæ et intelléctus : et aqua sapiéntiæ salutáris potávit illum. — Et. Glória Patri. Et.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+WEncesláus, Bohémiæ dux, Wratisláo patre christiáno, Drahomíra matre gentíli natus, ab ávia Ludmílla fémina sanctíssima pie educátus, omni virtútum génere insígnis, summo stúdio virginitátem per omnem vitam servávit illibátam. Mater, per nefáriam Ludmíllæ necem regni administratiónem assecúta, ímpie cum junióre fílio Boleslávo vivens, concitávit in se prócerum indignatiónem; quare, ímpii regíminis pertǽsi, utriúsque excússo jugo, Wencesláum in urbe Pragénsi regem salutárunt. Qui regnum pietáte magis quam império gubernávit, in egénis et afflíctis sublevándis solers et assíduus. Summa religióne sacerdótes venerátus, suis ipse mánibus tríticum serébat et vinum exprimébat, in Missæ sacrifício adhibénda. Cum vero ab imperatóre régiis insígnibus decorátus fuísset, ab ímpio fratre, matris suásu, orans in ecclésia interféctus est. Sanguis ejus per paríetes aspérsus adhuc conspícitur.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Evang. Nolíte arbitrári, de Comm. uníus Mart. 3 oco. [45]}
+
+#### AD LAUDES
+
+℣. Justus ut palma.
+
+**Ad Bened. Ant.** Qui odit \* ánimam suam in hoc mundo, in vitam ætérnam custódit eam.
+
+**Oratio**
+
+DEus, qui beátum Wencesláum per martýrii palmam a terréno principátu ad cæléstem glóriam transtulísti : ejus précibus nos ab omni adversitáte custódi; et ejúsdem tríbue gaudére consórtio. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, sine Commemoratióne præced.}

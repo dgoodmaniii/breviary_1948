@@ -35257,4 +35257,42 @@ VOlo autem vos sine sollicitúdine esse. Qui sine uxóre est, sollícitus est qu
 
 #### Lectio iii
 
-SI quis autem túrpem se vidéri exístimat super vírgine sua, quod sit superadúlta, et ita opórtet fíeri; quod vult fáciat : non peccat, si nubat.
+SI quis autem túrpem se vidéri exístimat super vírgine sua, quod sit superadúlta, et ita opórtet fíeri; quod vult fáciat : non peccat, si nubat. Nam qui státuit in corde suo firmus, non habens necessitátem, potestátem autem habens suæ voluntátis, et hoc judicávit in corde suo, serváre vírginem suam, bene facit. Ígitur et qui matrimónio jungit vírginem suam, bene facit; et qui non jungit, mélius facit. Múlier alligáta est legi quanto témpore vir ejus vivit. Quod si dormíerit vir ejus, liberáta est : cui vult nubat, tantum in Dómino. Beátior autem erit, si sic permánserit, secúndum meum consílium; puto autem quod et ego Spíritum Dei hábeam.
+
+℟. Spécie tua et pulchritúdine tua \* Inténde, próspere procéde, et regna. ℣. Diffúsa est grátia in lábiis tuis, proptérea benedíxit te Deus in ætérnum. — Inténde. **Glória Patri.** Inténde.
+
+### In II Nocturno
+
+**Ant.** Spécie tua \* et pulchritúdine tua inténde, próspere procéde, et regna.
+
+###### Psalmus 44
+
+ERuctávit cor meum verbum bonum : \* dico ego ópera mea Regi.
+
+Lingua mea cálamus scribæ, \* velóciter scribéntis.
+
+Speciósus forma præ fíliis hóminum, diffúsa est grátia in lábiis tuis : \* proptérea benedíxit te Deus in ætérnum.
+
+Accíngere gládio tuo super femur tuum, \* potentíssime,
+
+Spécie tua et pulchritúdine tua \* inténde, próspere procéde, et regna.
+
+Propter veritátem, et mansuetúdinem, et justítiam : \* et dedúcet te mirabíliter déxtera tua.
+
+Sagíttæ tuæ acútæ, pópuli sub te cadent, \* in corda inimicórum Regis.
+
+Sedes tua, Deus, in sæculum sæculi : \* virga directiónis virga regni tui.
+
+Dilexísti justítiam, et odísti iniquitátem : \* proptérea unxit te Deus, Deus tuus, óleo lætítiæ præ consórtibus tuis.
+
+Myrrha, et gutta, et cásia a vestiméntis tuis, a dómibus ebúrneis : \* ex quibus delectavérunt te fíliæ regum in honóre tuo.
+
+Astítit regína a dextris tuis in vestítu deauráto : \* circúmdata varietáte.
+
+Audi, fília, et vide, et inclína aurem tuam : \* et oblivíscere pópulum tuum, et domum patris tui.
+
+Et concupíscet Rex decórem tuum : \* quóniam ipse est Dóminus, Deus tuus, et adorábunt eum.
+
+Et fíliæ Tyri in munéribus \* vultum tuum deprecabúntur : omnes dívites plebis.
+
+Omnis glória ejus fíliæ Regis ab intus, \* in fímbriis áureis circumamícta varietátibus.

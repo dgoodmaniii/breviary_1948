@@ -1203,4 +1203,45 @@ a) *Privileged Octaves:*
 
 of the *first* order: Octave of Easter, Octave of Pentecost
 
+of the *second* order: Octave of the Epiphany, Octave of Corpus Christi
+
+of the *third* order: Octave of Christmas, Octave of the Ascension
+
+Those of the *first* order are, in occurrence, preferred to any feasts whatsoever. Those of the *second* order are, on days within the octave, preferred to any feasts whatsoever, except to doubles of the first class, but on the octave-day they are also preferred to doubles of the first class that are not of the Universal Church. Those of the *third* order are, in occurrence, preferred only to the same feasts as those to which common octaves are preferred.
+
+(b) *Common Octaves:* Those of other doubles of the first class. These octaves are preferred, during the octave, only to Offices of simple rite, and, on the octave-day, to all doubles that are not of the first or second class.
+
+(c) *Simple Octaves:* Those of doubles of the second class. These octaves, on the octave-day, are preferred to feasts of simple rite and to the Office of *S. Maria in Sabbato*.
+
+### When the Hours are to be Said
+
+**65.** It must be first noted that the time fixed for the saying of any day's complete Office is "*ad definiendam obligationem*," and it is, therefore, necessary that the full Office of any day should be recited before the midnight[^79] closing that day.
+
+[^79]: Can. 33 of the New Code says that in the private recitation of the Breviary, any time (local, true or mean time — legal, regional or extraordinary time) may be followed.
+
+(a) As regards the time when the Office of any particular day may begin, it may be said that Matins and Lauds may be privately anticipated after two o'clock in the afternoon[^80] of the day preceding that to which the Office is attached. According to the Rubrics of the Missal, Matins and Lauds are to be said before celebrating Mass, but, although this obligation is *sub levi* — cfr. Append., n. 5, (c) — any reasonable cause will excuse. It is likewise prescribed *sub veniali* that Matins, Lauds, Prime, and Terce be recited before mid-day,[^81] unless there be a legitimate reason for not doing so, e. g., greater devotion, better time for study, etc.
+
+(b) Vespers is to be said in the afternoon. In the private recitation of the Office, from the first Saturday in Lent till Easter, Vespers (not Compline) may also be said before noon.[^82]
+
+(c) Compline is always said in the afternoon.[^83] The regular order of the Hours may be inverted, provided there be a legitimate cause for doing so,
+
+[^80]: Matins and Lauds may be anticipated at one o'clock P. M. by members of the "*Priests' Eucharistic League*."
+[^81]: "The proper time for Little Hours is between six o'clock A. M. and eight o'clock P. M. It is customary to recite them privately in the forenoon."— Vigourel, *Man. of Liturgy*.
+[^82]: At the time it is customary to say them in choir (after the conventual Mass and None). On Sundays, Vespers may not be anticipated.
+[^83]: In order to anticipate or postpone (within the natural day) any of the Hours, all that is required is a good reason, e. g., greater devotion, better time to study, and the like.
+
+e. g., the invitation of a friend to say Matins and Lauds with him, when some of the preceding Hours have not yet been said by the person invited.
+
+(d) May an Hour be *INTERRUPTED*? Not without venial sin, the gravity of which is determined by the duration of the interruption. There is no sin, however, if there is found sufficient reason (of necessity, utility, or charity) for the interruption, and in such cases it is not necessary to repeat the part of the Hour already said.
+
+Matins and Lauds may always be separated as if both formed two distinct Hours. The nocturns may likewise be recited separately, and without any reason, provided the duration of the interruption does not extend beyond three hours, and even longer, if there exists a just cause.
+
+### One Office Instead of Another
+
+**66.** When the Bishop publishes an *ORDO*, diocesan priests[^84] are bound to conform to it, even when the contrary of what is prescribed therein appears certain; uniformity comes before all other considerations. In details, however, manifest mistakes may be corrected, e. g., in the case of a commemoration added or omitted.
+
+(a) Beneficiaries and Canons, when absent, are held to the Office of their church. The parish priest and his assistants are likewise held to the Office
+
+[^84]: In these pages no remarks are given regarding Religious Orders having special Calendars. Let it be said, however, that Tertiary Priests may follow the Breviary of the Order.
+
 ---

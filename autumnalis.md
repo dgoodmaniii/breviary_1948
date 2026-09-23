@@ -41001,3 +41001,55 @@ Benedícite, cete, et ómnia, quæ movéntur in aquis, Dómino : \* benedícite,
 Benedícite, omnes béstiæ et pécora, Dómino : \* benedícite, fílii hóminum, Dómino.
 
 Benedícat Israël Dóminum : \* laudet et superexáltet eum in sǽcula.
+
+Benedícite, sacerdótes Dómini, Dómino : \* benedícite, servi Dómini, Dómino.
+
+Benedícite, spíritus, et ánimæ justórum, Dómino : \* benedícite, sancti, et húmiles corde, Dómino.
+
+Benedícite, Ananía, Azaría, Mísaël, Dómino : \* laudáte et superexaltáte eum in sǽcula.
+
+Benedicámus Patrem et Fílium cum Sancto Spíritu : \* laudémus et superexaltémus eum in sǽcula.
+
+Benedíctus es, Dómine, in firmaménto cæli : \* et laudábilis, et gloriósus, et superexaltátus in sǽcula.
+
+{RUBRIC: Hic non dícitur Glória Patri, neque Amen.}
+
+###### Psalmus 150
+
+LAudáte Dóminum in sanctis ejus : \* laudáte eum in firmaménto virtútis ejus.
+
+Laudáte eum in virtútibus ejus : \* laudáte eum secúndum multitúdinem magnitúdinis ejus.
+
+Laudáte eum in sono tubæ : \* laudáte eum in psaltério, et cíthara.
+
+Laudáte eum in týmpano, et choro : \* laudáte eum in chordis, et órgano.
+
+Laudáte eum in cýmbalis benesonántibus : laudáte eum in cýmbalis jubilatiónis : \* omnis spíritus laudet Dóminum.
+
+Glória Patri.
+
+**Ant.** Trium puerórum cantémus hymnum, quem cantábant Sancti in camíno ignis, benedicéntes Dóminum.
+
+{RUBRIC: Postea Sacérdos dicit :}
+
+Kýrie, eléison. Christe, eléison. Kýrie, eléison.
+
+Pater noster.
+
+℣. Et ne nos indúcas in tentatiónem. ℟. Sed líbera nos a malo.
+
+℣. Confiteántur tibi, Dómine, ómnia ópera tua. ℟. Et Sancti tui benedícant tibi.
+
+℣. Exsultábunt Sancti in glória. ℟. Lætabúntur in cubílibus suis.
+
+℣. Non nobis, Dómine, non nobis. ℟. Sed nómini tuo da glóriam.
+
+℣. Dómine, exáudi oratiónem meam. ℟. Et clamor meus ad te véniat.
+
+℣. Dóminus vobíscum. ℟. Et cum spíritu tuo.
+
+Orémus.
+
+DEus, qui tribus púeris mitigásti flammas ígnium : concéde propítius; ut nos fámulos tuos non exúrat flamma vitiórum.
+
+ACtiónes nostras, quǽsumus, Dómine, aspirándo prǽveni et adjuvándo proséquere : ut cuncta nostra orátio et operátio a te semper incípiat, et per te cœpta finiátur.

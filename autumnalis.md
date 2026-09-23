@@ -20874,3 +20874,96 @@ ILla in expeditióne, líberis simul cum uxóre insperáto recéptis, victor Urb
 ℟. Tamquam aurum in fornáce probávit eléctos Dóminus, et quasi holocáusti hóstiam accépit illos; et in témpore erit respéctus illórum, \* Quóniam donum et pax est eléctis Dei. ℣. Qui confídunt in illum, intélligent veritátem : et fidéles in dilectióne acquiéscent illi. — Quóniam. Glória Patri. Quóniam.
 
 {RUBRIC: In III Nocturno Homilía in Evang. Descéndens Jesus, de Communi plurimórum Mártyrum 2 loco. [66]}
+
+{RUBRIC: In Fériis Quátuor Témporum ix Lectio de Homília Fériæ, et fit ejus Commemoratio ad Laudes tantum, alias}
+
+Pro Vigilia S. Matthæi Ap. :
+
+**Bened.** Per Evangélica dicta.
+
+{RUBRIC: Léctio sancti Evangélii secúndum Lucam}
+
+##### Lectio ix
+*Cap. 5, 27-32*
+
+IN illo témpore : Vidit Jesus publicánum, nómine Levi, sedéntem ad telónium, et ait illi : Séquere me. Et réliqua.
+
+{RUBRIC: Homilía sancti Ambrósii Epíscopi}
+*Liber 5 Comment. in Lucæ cap. 5 post initium*
+
+MYstica est hæc vocátio publicáni, quem sequi jubet, non córporis gressu, sed mentis afféctu. Itaque ille, prius avára de mercédibus, dura de labóribus periculísque nautárum emolúmenta convértens, verbo vocátus, própria derelínquit, qui rapiébat aliéna; ac, vile illud sedíle destítuens, toto post Dóminum vestígio mentis incédit. Convívii quoque magni exhíbet apparátum; qui enim domicílio Christum récipit intérno, máximis delectatiónibus exuberántium páscitur voluptátum.
+
+**Te Deum laudámus.**
+
+#### AD LAUDES
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+**Oratio**
+*C 2*
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum Eustáchii et Sociórum ejus natalítia cólere : da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+{RUBRIC: Ad Laudes extra Quatuor Tempora pro Commemoratione Vigiliæ : Ant. et ℣. de Feria currenti.}
+
+**Oratio**
+
+DA, quǽsumus, omnípotens Deus : ut beáti Matthǽi Apóstoli tui et Evangelístæ, quam prævénimus, venerándia solémnitas, et devotiónem nobis áugeat et salútem. Per Dóminum.
+
+{RUBRIC: Vésperæ de sequénti, Commemoratio præcedéntis.}
+
+---
+
+## Die 21 Septembris — S. Matthæi Apostoli et Evangelistæ
+
+{RUBRIC: DUPLEX II CLASSIS}
+
+{RUBRIC: Omnia de Communi Evangelistarum [3] et [24], præter ea, quæ hic habentur propria.}
+
+**Oratio**
+
+BEáti Apóstoli et Evangelístæ Matthǽi, Dómine, précibus adjuvémur : ut, quod possibílitas nostra non óbtinet, ejus nobis intercessióne donétur. Per Dóminum.
+
+{RUBRIC: Et fit Commemoratio præcedentis :}
+
+**Ant.** Gaudent in cælis ánimæ Sanctórum, qui Christi vestígia sunt secúti; et, quia pro ejus amóre sánguinem suum fudérunt, ídeo cum Christo exsúltant sine fine.
+
+℣. Exsultábunt Sancti.
+
+**Oratio** Deus, qui nos, ut supra. 554
+
+{RUBRIC: In I Nocturno Lectiones Et factum est. [24]}
+
+### In II Nocturno
+
+##### Lectio iv
+
+MAtthǽus, qui et Levi, Apóstolus et Evangelísta, Caphárnai cum ad telónium sedéret, a Christo vocátus, statim secútus est ipsum; quem étiam cum réliquis discípulis convívio excépit. Post Christi resurrectiónem, ántequam in provínciam proficiscerétur, quæ ei ad prædicándum óbtigerat, primus in Judǽa, propter eos qui ex circumcisióne credíderant, Evangélium Jesu Christi Hebráice scripsit. Mox in Æthiópiam proféctus, Evangélium prædicávit, ac prædicatiónem multis miráculis confirmávit.
+
+℟. Vidi conjúnctos viros, habéntes spléndidas vestes, et Angelus Dómini locútus est ad me, dicens : \* Isti sunt viri sancti facti amíci Dei. ℣. Vidi Angelum Dei fortem, volántem per médium cælum, voce magna clamántem et dicéntem. — Isti.
+
+##### Lectio v
+
+ILlo ígitur in primis miráculo quo regis fíliam a mórtuis excitávit, regem patrem et uxórem ejus cum univérsa província ad Christi fidem convértit. Rege mórtuo, Hírtacus, ejus successór, cum Iphigéniam, régiam fíliam, vellet sibi dari in matrimónium; Matthǽum, cujus ópera illa virginitátem Deo vóverat et in sancto propósito perseverábat, ad altáre mystérium celebrántem jussit occídi. Qui undécimo Kaléndas Octóbris munus apostólicum martýrii glória cumulávit. Cujus corpus Salérnum translátum, ac póstmodum in ecclésia ejus nómine dedicáta, Gregório séptimo summo Pontífice, cónditum, ibídem magno hóminum concúrsu ac pietáte cólitur.
+
+℟. Beáti estis, cum maledíxerint vobis hómines, et persecúti vos fúerint, et díxerint omne malum advérsum vos, mentiéntes, propter me : \* Gaudéte et exsultáte, quóniam merces vestra copiósa est in cælis. ℣. Cum vos óderint hómines, et cum separáverint vos, et exprobráverint, et ejécerint nomen vestrum tamquam malum propter Fílium hóminis. — Gaudéte.
+
+{RUBRIC: De Expositióne sancti Gregórii Papæ super Ezechiélem Prophétam}
+
+##### Lectio vi
+*Hom. 3, lib. 1*
+
+SAncta quátuor animália, quæ prophetíæ spíritu futúra prævidéntur, subtíli narratióne describúntur, cum dícitur : Quátuor fácies uni, et quátuor pennæ uni. Quid per fáciem, nisi notítia; et quid per pennas, nisi volátus exprímitur? Per fáciem quippe unusquísque cognóscitur; per pennas vero in altum ávium córpora sublevántur. Fácies ítaque ad fidem pértinet, penna ad contemplatiónem. Per fidem namque ab omnipoténti Deo cognóscimur, sicut ipse de suis óvibus dicit : Ego sum pastor bonus, et cognósco oves meas, et cognóscunt me meæ. Qui rursus ait : Ego scio quos elégerim. Per contemplatiónem vero, qua super nosmetípsos tóllimur, quasi in áëra levámur.
+
+℟. Isti sunt triumphatóres et amíci Dei, qui, contemnéntes jussa príncipum, meruérunt prǽmia ætérna : \* Modo coronántur, et accípiunt palmam. ℣. Isti sunt qui venérunt ex magna tribulatióne, et lavérunt stolas suas in sánguine Agni. — Modo. Glória Patri. Modo.
+
+### In III Nocturno
+
+{RUBRIC: Léctio sancti Evangélii secúndum Matthǽum}
+
+##### Lectio vii
+*Cap. 9, 9-13*
+
+IN illo témpore : Vidit Jesus hóminem sedéntem in telónio, Matthǽum nómine, et ait illi : Séquere me. Et réliqua.

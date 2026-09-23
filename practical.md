@@ -1362,4 +1362,37 @@ Several other useful points taken from the New Rubrics will be given further on.
 
 [^97]: If such churches (public oratories, seminary chapels, etc.) have been at least solemnly blessed.
 
+rectors — those feasts are celebrated by the Masses which may be said by priests celebrating in them.[^98]
+
+**78.** A parish-priest who has two churches (at least solemnly blessed) united, must recite the Office of both titulars, according to the Rubrics, especially if the churches are equally united ("*peræque unitæ*").[^99] S. R. C., July 5, 1698, n. 2002, ad 5. The public Office, however, and the Masses that are sung must conform to the church in which they take place, without regard to the other (Wapelhorst, n. 248, 2.).
+
+**79.** A *missionary* who exercises the pastoral care of souls in several (solemnly blessed) churches, one of which is attached to the place where he usually resides, must celebrate only the titular "ecclesiæ apud quem residere solet, vel dignioris" (S. R. C., Aug. 25, 1882, n. 3554). Cf. n. 3571, ad 2, where it
+
+[^98]: In some localities there exists a custom of celebrating, on one and the same day, the anniversary of the dedication of all the churches in the place. It is obvious, then, that the dedication of the individual consecrated churches is celebrated on that day, and on that day only.
+[^99]: Cf. canon 1419, n. i., which says that the union of "benefices" is *æque principalis* when the united benefices remain the same as they were before, one not being subordinate to the other.— In a union that is *minus principalis*, one or several of the various benefices are subordinate to another, principal, benefice. Canon 1420 says that in an *equally principal* union each benefice conserves its nature, rights, and obligations, but, by virtue of the union effected, the titles to the different benefices are conferred on one and the same cleric; whereas, in the *less principal* union the accessory benefice follows the principal one, so that the cleric who obtains the principal benefice also acquires the accessory, and must fulfil the obligations of both.
+
+is a question of missionaries who, as rectors, attend several churches.
+
+### The Question Proper
+
+**80.** When we come face to face with the question of titulars and that of dedication, we find that it is not at all as easy a subject as it may at first seem to be. Certain questions naturally present themselves regarding both the festivals and their octaves. The questions, of course, must be answered, and all concomitant difficulties must be solved. Now, even this would not be a very hard task if the titular and dedication of one particular church only were to be considered; when, however, rules are to be given which must apply to churches in general, it is quite obvious that the work is thereby rendered far more difficult. Meeting, then, the difficulty face to face, the various and rather profuse directions given in the following pages will be most useful, not only for solving difficulties connected with the question at issue, but also for understanding many various similar questions and solving the problems with which they are generally associated.
+
+At the end of this treatise a summary is given under the title: "Practical Recapitulation."
+
+### General Information
+
+**81.** When two or more Offices[^100] fall on the same day, they are said to *occur* (hence the noun "occur-
+
+[^100]: We do not say two or more *feasts*. Thus, for instance, St. Valentine's Day, which is a *feast*, may fall on Ash Wednesday, which is not a feast but a *ferial* (though "*feria*" originally meant "feast-day," but it no longer retains that meaning except, perhaps, in the word *feriation*, which denotes the exterior solemnity of feasts — *festa fori*).
+
+rence"). When several Offices thus fall simultaneously, only one can be duly celebrated (i. e., one is *preferred*), and the others are either simply commemorated, or entirely omitted, or *transferred* to another day, on which they may also be properly celebrated.
+
+Doubles of the first and second class alone have the privilege of being transferred (hence the noun "*translation*") if they cannot be celebrated the day on which they fall.
+
+Other Offices (doubles, semi-doubles, and simples) may not be transferred, but they must often be commemorated, for instance in the Vespers, Lauds, or in the Mass of the occurring Office that has been *preferred*.
+
+**82.** When several Offices occur, one is always preferred and, therefore, celebrated, whereas the others may be all commemorated (= *inclusive occurrence*), or they may be transferred (= *exclusive occurrence*) according to the prescriptions of the Rubrics. Some, again, may be transferred, and others merely commemorated, or even entirely omitted that year. When doubles and semi-doubles are thus merely commemorated, they are said to be simplified.
+
+**83.** When we say that a certain office is *impeded*, we mean that it may not be celebrated on its
+
 ---

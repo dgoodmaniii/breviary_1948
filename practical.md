@@ -1759,4 +1759,51 @@ N. B. It has been taken for granted that throughout these rules the student has 
 
 **105.** Another plan of commemorations is given in the Appendix (n. 7). Only doubles of the first and second class have been treated of, but for other Offices of inferior rite it may be said that, as a general rule, commemoration of occurring and concurring Offices is *always* made where commemorations may be made (i. e., in Lauds and both Vespers) when they are at all possible. (No one can make a commemoration of the second Vespers of a simple, because a simple has no second Vespers.)
 
+### Ninth Lesson in Matins
+
+**106.** Occurrence also entails consideration of commemorations in Matins by means of a ninth Lesson[^127]:
+
+(a) Whenever commemoration is made of a vigil, ferial or Sunday, the ninth Lesson of the feast actually celebrated will be the (first Lesson of the) homily proper to these commemorated Offices, provided the gospel in the commemorated Office is not the same as the gospel of the Office actually recited.
+
+Now the following Offices have a homily proper:
+
+1st, Sundays;
+2d, major ferials (excluding those of Advent that are not ember-days);
+3d, vigils, remembering that no commemoration of a vigil is made (in the Office) when it occurs with a major ferial or a double of the first class.
+
+(b) When commemoration is made of a *feast* of double or semi-double rite, the ninth Lesson in Matins will likewise be of these commemorated festivals. The ninth Lesson, however, will not be of commemorated doubles or semi-doubles in the following Offices:
+
+1st, Sundays;
+2d, doubles of the first class;
+3d, during the octave of Corpus Christi;
+
+[^127]: When a homily is said in the Office as ninth Lesson, then the last gospel in the Mass is likewise special.
+
+4th, when the ninth Lesson is already a commemoration of a Sunday, ferial, or vigil;
+5th, Offices of three Lessons.
+
+**107.** This equally applies to commemorated festal Offices of simple rite, and, in every case, it is necessary that the Lesson or Lessons used as ninth Lesson be really and truly *historical* (i. e., giving an account of the life of the saint). In Offices of nine Lessons the historical Lessons are found in the second nocturn. It often happens that, if little or nothing is recorded of the life of the saint, the Lesson of the second nocturn will be supplied by a sermon or something similar, which cannot be said to be historical in the sense explained above.
+
+**108.** When we speak of taking the historical Lessons of a commemorated feast, in order to make a ninth Lesson for an occurring Office, it must be always understood that *all* the historical Lessons (of a commemorated feast) are taken and united *per modum unius*.[^128]
+
+When two or more commemorated Offices should — according to the rules given — have the historical Lessons taken as ninth Lesson, "legitur tantum illa dignioris." *Rub. gener.* xxvi., 3.
+
+[^128]: In some of the new Breviaries special *single* Lessons are found which may be used as ninth Lesson in occurring Offices. These single Lessons sum up the life of the saint as given in the three Lessons of the second nocturn. Cf. S. R. C., June 24, 1914.
+
+---
+
+## CHAPTER XVIII
+
+## TITULARS WITH ASSOCIATES
+
+**109.** If the *Titular Saint of a Church* is described in the Calendar with other saints, he is not to be separated from them when the reason of the union is a necessary reason of consanguinity or affinity.
+
+If, however, the reason of the union is merely one of occasion, viz., because they died the same day, then the titular is separated and celebrated alone.
+
+If his companions are likewise described in the Calendar as doubles of the first or second class, they are transferred — with the rite they have in the Calendar — to the first following day, according to the Rubrics on Translation. If they are of a rite inferior to double of the second class in the Calendar, then they are merely commemorated or omitted, according to the rules already stated.
+
+### Principal Patron
+
+What has just been said of a titular saint and his companions holds good also for the associates of the *principal patron* of a place, or of any other saint whose feast is anywhere celebrated as a double of the first or second class, if his feast must be regarded as a "festum *proprium*" in the sense explained in n. 88 (e).
+
 ---

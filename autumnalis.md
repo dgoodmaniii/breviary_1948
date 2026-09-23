@@ -38674,4 +38674,40 @@ DEus, indulgentiárum Dómine : da ánimæ fámuli tui N. (fámulæ tuæ N., vel
 
 **Oratio**
 
-DEus, qui inter summos sacerdótes fámulum tuum N. ineffábili tua dis-
+DEus, qui inter summos sacerdótes fámulum tuum N. ineffábili tua dis-positióne connumerári voluísti : præsta, quǽsumus; ut, qui unigéniti Fílii tui vices in terris gerébat, sanctórum tuórum Pontíficum consórtio perpétuo aggregétur. Per eúmdem Dóminum.
+
+**Pro defúncto Epíscopo**
+
+**Oratio**
+
+DEus, qui inter apostólicos sacerdótes fámulum tuum N. (fámulos tuos N. et N.) pontificáli fecísti dignitáte vigére : præsta, quǽsumus; ut eórum quoque perpétuo aggregé(n)tur consórtio. Per Dóminum.
+
+{RUBRIC: Pro Epíscopo Cardináli defúncto dicátur fámulum tuum N. Epíscopum Cardinálem pontificáli fecísti dignitáte.}
+
+{RUBRIC: Pro Presbytero Cardináli (Epíscopo) defúncto : fámulum tuum N. Presbýterum Cardinálem pontificáli fecísti.}
+
+{RUBRIC: Pro Presbytero (vel Diácono) Cardináli (Sacerdóte) defúncto : fámulum tuum N. Presbýterum (Diáconum) Cardinálem sacerdotáli fecísti.}
+
+{RUBRIC: Pro Diácono autem Cardináli, qui in órdine Presbyterátus non fúerit constitútus, dicátur Orátio Inclína, Dómine, quæ habétur paulo infra, hoc modo : ut ánimam fámuli tui N. Diáconi Cardinális, quam de hoc sǽculo etc.}
+
+**Pro defúncto Sacerdóte**
+
+**Oratio**
+
+DEus, qui inter apostólicos sacerdótes fámulum tuum N. (fámulos tuos N. et N.) sacerdotáli fecísti dignitáte vigére : præsta, quǽsumus; ut eórum quoque perpétuo aggregé(n)tur consórtio. Per Dóminum.
+
+**Alia Oratio**
+
+PRǽsta, quǽsumus, Dómine : ut ánima fámuli tui N. Sacerdótis, quem, in hoc sǽculo commorántem, sacris munéribus decorásti, in cælésti sede gloriósa semper exsúltet. Per Dóminum.
+
+**Pro uno defúncto**
+
+**Oratio**
+
+INclína, Dómine, aurem tuam ad preces nostras, quibus misericórdiam tuam súpplices deprecámur : ut ánimam fámuli tui N., quam de hoc sǽculo migráre jussísti, in pacis ac lucis regióne constítuas, et Sanctórum tuórum júbeas esse consórtem. Per Dóminum.
+
+**Pro una defúncta**
+
+**Oratio**
+
+QUǽsumus, Dómine, pro tua pietáte miserére ánimæ fámulæ tuæ N. : et a contágiis mortalitátis exútam, in ætérnæ salvatiónis partem restítue. Per Dóminum.

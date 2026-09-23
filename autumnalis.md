@@ -22845,3 +22845,80 @@ DEus, qui Ecclésiam tuam beáti Francísci méritis fœtu novæ prolis amplífi
 **Ad Magnif. Ant.** Hic vir despíciens mundum \* et terréna, triúmphans, divítias cælo cóndidit ore, manu.
 
 {RUBRIC: Et fit Commemoratio sequéntis.}
+
+---
+
+## Die 5 Octobris — Ss. Placidi et Sociorum
+
+{RUBRIC: Martyrum [49] Simplex}
+
+**Ant.** Istórum est enim regnum cælórum, qui contempsérunt vitam mundi, et pervenérunt ad prǽmia regni, et lavérunt stolas suas in sánguine Agni.
+
+℣. Lætámini in Dómino.
+
+**Oratio**
+*C 2*
+
+DEus, qui nos concédis sanctórum Mártyrum tuórum Plácidi et Sociórum ejus natalítia cólere : da nobis in ætérna beatitúdine de eórum societáte gaudére. Per Dóminum.
+
+##### Lectio iii
+
+PLácidus Románæ, Tertúllo patre in primis nóbili, natus, puer Deo oblátus et sancto Benedícto tráditus, tantum ejus disciplína et monásticæ vitæ institútis profécit, ut inter præcípuos illíus discípulos numerétur. Ab eo in Sicíliam missus, monastérium et ecclésiam in honórem sancti Joánnis Baptístæ prope Messánæ portum constrúxit, ubi cum mónachis admirábili sanctitáte vixit. Ejus visséndi causa cum eo veníssent Eutýchius et Victorínus, illíus fratres, et Flávia, virgo soror, eódem témpore illuc áppulit immánis quidam piráta, Manúcha nómine; qui, capto monastério, cum Plácidum et céteros nullo modo addúcere potuísset ut Christum negárent, ipsum fratrésque illíus ac sorórem crudéliter necári jussit. Cum quibus étiam Donátus, Firmátus diáconus, Faustus alíique trigínta mónachi, martýrii agónem felíciter consummárunt tértio Nonas Octóbris, anno salútis quingentésimo trigésimo nono.
+
+**Te Deum laudámus.**
+
+℣. Exsultábunt Sancti.
+
+**Ad Bened. Ant.** Vestri capílli cápitis \* omnes numeráti sunt : nolíte timére : multis passéribus melióres estis vos.
+
+{RUBRIC: Vésperæ de sequénti.}
+
+---
+
+## Die 6 Octobris — S. Brunonis
+
+{RUBRIC: Conf. [94] Duplex}
+
+℣. Amávit eum Dóminus.
+
+**Ad Magnif. Ant.** Similábo eum \* viro sapiénti, qui ædificávit domum suam supra petram.
+
+**Oratio**
+
+SAncti Brunónis Confessóris tui, quǽsumus, Dómine, intercessiónibus adjuvémur : ut, qui majestátem tuam gráviter delinquéndo offéndimus, ejus méritis et précibus, nostrórum delictórum vé-niam consequámur. Per Dóminum.
+
+### In II Nocturno
+
+##### Lectio iv
+
+BRuno, Carthusiánæ religiónis institútor, Colóniæ Agrippínæ natus est. Ab ipsis incunábulis spécimen futúræ sanctitátis præferens, morum gravitáte, puerília illíus ætátis, divína favénte grátia, declínans, ádeo excélluit, ut jam inde monachórum pater vitǽque anachoréticæ futúrus instaurátor agnoscerétur. A paréntibus, génere ac virtúte claris, Lutétiam Parisiórum missus, tantum ibi in philosophíæ ac theológiæ stúdiis profécit, ut doctóris ac magístri munus in utráque facultáte sit adéptus; nec multo post, ob egrégias ipsíus virtútes, ecclésiæ Rheménsis canonicátu potítus.
+
+℟. Honéstum fecit illum Dóminus, et custodívit eum ab inimícis, et a seductóribus tutávit illum : \* Et dedit illi claritátem ætérnam. ℣. Justum dedúxit Dóminus per vias rectas, et osténdit illi regnum Dei. — Et dedit.
+
+##### Lectio v
+
+ELápsis áliquot annis, cum sex áliis familiáribus mundo renúntians, sanctum Hugónem epíscopum Gratianopolitánum ádiit. Qui, causa eórum advéntus cógnita, eosdémque intélligens esse quos eádem nocte véluti septem stellas ad suos pedes corruéntes in somnis víderat, montes suæ diœcésis aspérrimos, quos Carthusiános appéllant, illis concéssit. Illuc Bruno cum sóciis, ipso Hugóne comitánte, secédens, cum per áliquot annos eremíticam vitam egísset, ab Urbáno secúndo, qui ejúsdem Brunónis discípulus fúerat, Romam accérsitur. Ejus consílio ac doctrína Póntifex, in tot illis Ecclésiæ calamitátibus, per áliquot annos usus est; dónec Bruno, recusáto Rhegiénsi archiepiscopátu, discedéndi facultátem obtínuit.
+
+℟. Amávit eum Dóminus, et ornávit eum : stolam glóriæ índuit eum, \* Et ad portas paradísi coronávit eum. ℣. Induit eum Dóminus lorícam fídei, et ornávit eum. — Et.
+
+##### Lectio vi
+
+IGitur, solitúdinis amóre, erémum quamdam apud Squillácum in Calábriæ fínibus pétiit. Quo in loco, cum ipsum orántem Rogérius comes Calábriæ inter venándum, latrántibus ad illíus speluncam cánibus, reperísset, sanctitáte viri permótus, illum ac sócios fovére et cólere impénse cœpit. Nec liberálitas sine prǽmio fuit; cum enim idem Rogérius Cápuam obsidéret, eúmque Sérgius quidam excubiárum magíster pródere statuísset, Bruno, adhuc in dicta erémo vivens, in somnis illi ómnia apériens, ab imminénti perículo cómitem liberávit. Tandem virtútibus ac méritis plenus, nec sanctitáte minus quam doctrína fama clarus, obdormívit in Dómino; sepultúsque est in monastério sancti Stéphani, ab ipso Rogério constrúcto, ubi háctenus honorífice cólitur.
+
+℟. Iste homo perfécit ómnia quæ locútus est ei Deus, et dixit ad eum : Ingrédere in réquiem meam : \* Quia te vidi justum coram me ex ómnibus géntibus. ℣. Iste est, qui contémpsit vitam mundi, et pervénit ad cæléstia regna. — Quia. Glória Patri. Quia.
+
+{RUBRIC: Pro hoc Festo simplificato}
+
+##### Lectio ix
+
+BRuno, Carthusiánæ religiónis institútor, Colóniæ Agrippínæ natus est. A puerítia, morum gravitáte et solitúdinis desidério præstitit. A paréntibus Lutétiam Parisiórum missus, tantum ibi in philosophíæ ac theológiæ stúdiis profécit, ut doctóris et magístri munus in utráque facultáte sit adéptus; nec multo post, ob egrégias ejus virtútes, ecclésiæ Rheménsis canonicátu potítus. Órdine Carthusianórum institúto, cum in eo per áliquot annos eremíticam vitam egísset, ab Urbáno secúndo, qui ejus discípulus fúerat, Romam accérsitur. Ejus consílio ac doctrína Póntifex, in tot illíus témporis calamitátibus, per áliquot annos usus est; donec vir Dei, recusáto Rhegiénsi archiepiscopátu, discedéndi facultáte accépta, erémum íterum pétiit, ubi, virtútibus ac méritis plenus, obdormívit in Dómino.
+
+**Te Deum laudámus.**
+
+{RUBRIC: In III Nocturno Homilía in Evang. Sint lumbi vestri, de Comm. Conf. non Pont. 1 loco. [98]}
+
+#### AD LAUDES
+
+℣. Justum dedúxit.
+
+**Ad Bened. Ant.** Euge, serve bone \* et fidélis, quia in pauca fuísti fidélis, supra multa te constítuam, intra in gáudium Dómini tui.

@@ -2001,4 +2001,48 @@ Unless we have misread or misunderstood the meaning of the good Alcuin, he seems
 
 [^angilbcarmen]: Angilb. *Carmen* [Latin], v., 340.
 
-The customary national muster took place at Lippeham,
+The customary national muster took place at Lippeham, and the army, increased by Aquitanian auxiliaries, which King Louis had been commanded to send to the Rhine,[^vitahludc9] marched to Paderborn. There, on that natural camping ground, Charles pitched his military city, remaining in camp for the purpose of entertaining Pope Leo, but ordering his son Charles, with half the army, into the interior of the country. The prince entered the Bardengau, and there conducted negotiations with the Welatabians and Abodrites, besides receiving the submission of many Northalbingian Saxons.
+
+[^vitahludc9]: Vita Hlud. c. 9.
+
+The pacification seems to have been conducted on the Alcuinian plan, for the annals record that the king on his return carried off a multitude of Saxons, with their wives and children, into banishment, and that the prince also returned in great triumph with a similar train, presumably from the Bardengau; temporarily, therefore, the Saxon war was ended. The lands of the dispossessed and exiled pagans were confiscated, and, by royal command, distributed, in reward for military services, among the faithful lieges of Charles, and in recompense of efficient missionary labors, and prayers offered, among the bishops, priests, and abbots in his train.[^annallauriss9]
+
+[^annallauriss9]: Annal. Lauriss.; Einh.; Lauresh.; Petav.; Chron. Moiss.
+
+These beneficiaries kept Frisia and Saxony, within the limits named, in good order for several years to come, but the Northalbingians beyond the Elbe maintained a stubborn resistance. An army of Francised Saxons, but doubtless **802]** under Frankish officers, was ordered to devastate their country. The raid was made, but seems to have been a failure, since the annals omit to record a success; their silence is always suspicious.[^annaleinhenhfuld]
+
+[^annaleinhenhfuld]: Annal. Einh.; Enh. Fuld.
+
+Two years later, however, Charles, now emperor, determined to consummate the final, total, and absolute subjugation of the entire country. After the necessary preparations, the *heerbann* [German] assembled at Lippspringe. A large **804]** army was directed to the Elbe, and Charles went into camp at Hollenstedt, south of Harburg.[^annalmettchronmoiss]
+
+[^annalmettchronmoiss]: Annal. Mett.; Chron. Moiss.
+
+His arrival there in imperial state, with his family, was followed by that of the princes and chieftains of his allies the Abodrites, who laid their offerings at his feet, and invoked his counsel in the regulation of their domestic affairs. The richest gifts were presented by Thrasco, the hero of the Zventinefeld, and the most powerful of their number. Charles accepted the gifts and, in recognition of his superior merit, instituted him King of the Abodrites.[^annalmettlobienschronmoiss]
+
+[^annalmettlobienschronmoiss]: Annal. Mett.; Lobiens.; Chron. Moiss.; cf. Annal. Einh. a. 817.
+
+Then he announced the plan of the campaign. In order to understand it, we should remember that the rebellious districts lay substantially within the lines of an irregular parallelogram, having for its base a line drawn from Bremen to Hamburg, and for its northern limit the course of the Eider. The River Elbe ran through it diagonally in a northwesterly direction, so that the entire region was enclosed on three sides by water. The country of the Abodrites was situated on the right bank of the Elbe and immediately contiguous to that of the Northalbingians, who occupied the modern district of Holstein.
+
+The imperial plan provided for the division of the army into a number of sections, and their invasion of a corresponding number of regions of the infected district, with orders to sweep them, and hunt down, seize, and drive out all the inhabitants. To the Franks was assigned the duty of doing this work on the left bank of the Elbe, and to the Abodrites that of performing the same operations on the right, while with a view to stimulating the zeal of these allies they were promised beforehand the country of the Northalbingians as the guerdon of their exertions.
+
+The plan, which in some respects resembled that of "netting," so much in vogue among the Persians, seemed in others to be an adaptation of a rabbit hunt, in which the Saxons represent the rabbits, the Franks and their allies, the ferrets. It was immediately and successfully carried into effect; the Frankish raiding expeditions entered the cantons of Wigmodia, Hostingabi, and Rosogabi, and others besides, while the Sclavonian Abodrites fell upon the country of the Northalbingians.
+
+The Saxons, without all military organization, were at home on their farms, or concealed in their burrows, and **804]** utterly helpless. The more martial Northalbingians might have roused themselves to energetic resistance, if the expected aid of Gottfried, king of the Danes, who lay with a strong armament off the neighboring coast of Sleswig, had been available to them; but it failed them, and they were as much at the mercy of the Abodrites, as their brothers beyond the river at that of the Franks.
+
+They had no escape; they must either perish in the sea, or surrender. Overwhelmed by numbers the miserable and defenceless pagans were driven from their homes, hunted out of their hiding-places, and soon the entire population, men, women, and children, was led at the point of the spear to the imperial presence, and thence dispersed throughout the Frankish dominions.[^annaleinhmetten] Not less than ten thousand met that fate, but that number is doubtless far short of the truth.[^vitacaroli7]
+
+[^annaleinhmetten]: Annal. Einh., Metten.; Enh. Fuld., *al.* [Latin]
+
+[^vitacaroli7]: Vita Caroli, c. 7.
+
+The statement of one authority[^annallaurissmin] that this terrible measure was executed "without war" is flatly contradicted by that of another, "that an indefinite number were put to death;"[^annalsamandi] but no one may doubt the evangelical accuracy of a third, that it was accomplished without any hurt to the imperial army.[^annalmett2]
+
+[^annallaurissmin]: Annal. Lauriss. min.
+
+[^annalsamandi]: Annal. S. Amandi.
+
+[^annalmett2]: Annal. Mett.
+
+It is unnecessary to speculate on the spirit in which it was performed, since veracious documentary evidence fully reveals the fact that the raiders were men of brutal violence, without discrimination, who drove away whomsoever they met or found, the loyal with the rebel, and confiscated alike the possessions of Christians and pagans.
+
+In the next reign, for instance, a number of Wigmodians appeared before the imperial commissioners complaining that though they always were loyal to Charles, yet had

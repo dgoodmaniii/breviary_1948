@@ -232,3 +232,70 @@ It represents him wearing the imperial crown, in the posture of kneeling, and ho
 | | Birth of Louis and Lothair.—Chasseneuil. |
 | | Raid by the Saxons. Pursuit of the raiders. |
 | 779 | Hildeprand, Duke of Spoleto, brings presents. |
+| | Saxon expedition. Victory at Bocholt. Submission of Westphalian and Transalbingian Saxons. |
+| 780 | Saxon expedition. General submission. Saxons in the Bardengau and Northalbingia receive baptism. |
+| | Visit to Italy. |
+| 781 | Meeting with Alcuin at Parma, March. |
+| | Rome.—Hadrian baptizes Pepin (= Carloman) and Louis, and anoints them Kings of Italy and Aquitaine. Easter. |
+| | Thomas, Archbishop of Milan, baptizes Gisla. June. |
+| | Tassilo swears fealty in the Diet of Worms. |
+| 782 | Diet at the head-waters of the Lippe.—Wittekind absent. |
+| | *Capitulatio de partibus Saxoniæ* [Latin]. |
+| 782 | Sclavonians invade the frontiers of Thuringia and Saxony; Adalgis, Geilo and Worad march against them. |
+| | Disaster of the Süntel.—Expedition. |
+| | Butchery at Verden on the Aller. |
+| 783 | Death of Hildegard, April 30th; buried in St. Arnulf's at Metz. |
+| | Death of the queen-mother Berthrada, July 13th; buried in St. Denis. |
+| | Saxon expedition; victorious engagements at Detmold, and on the Hase. |
+| | Devastation of the country to the Elbe. |
+| | Charles marries Fastrada, before October 9th. |
+| 784 | Saxon expedition, early in the spring; the king marches against the Eastphalians; his son Charles against the Westphalians; cavalry fight in the Dreingau; Charles the younger defeats the enemy. |
+| | Winter campaign in Saxony.—Raids. |
+| 785 | Diet at Paderborn. Louis is brought from Aquitaine. |
+| | Destructive warfare; the Saxons receive Christianity. |
+| | Negotiations with Wittekind and Abbio. |
+| | Wittekind and his following are baptized at Attigny. |
+| | Surrender of Gerona. |
+| 786 | Seneschal Audulf chastises the rebels in Brittany. |
+| 786 | Conspiracy of Thuringian counts and nobles. |
+| | Expedition into Italy; late in the year. |
+| 787 | Visit to Rome. Demonstration against Benevento. |
+| | Arigiso, Rumoald, and the Beneventans take the oath of allegiance, and pay tribute. Grimoald, the king's son, one of the hostages. |
+| | Failure of the matrimonial alliance of princess Rotrud and emperor Constantine Porphyrogenitus. |
+| | Embassies from and to Tassilo. |
+| | Invasion of Bavaria. Tassilo submits, and accepts the duchy as a fief. |
+| | Embassy from Benevento. |
+| | Despatch of *Missi* [Latin]. |
+| | Death of Rumoald and Arigiso. |
+| 788 | Trial and deposition of Tassilo. Annexation of Bavaria. |
+| | Grimoald, duke of Benevento. |
+| | Successful fights with the Avars on the Ips, the Danube, and in Friuli. |
+| | Duke Hildeprand, duke Grimoald and Winegisus defeat the Byzantines in Calabria. |
+| 789 | Expedition against the Welatabians; their submission. |
+| | Differences between Charles and Offa. |
+| 790 | Diet of Worms. Punishment of Adalric. Embassy from and to the Avars. |
+| 791 | First expedition against the Avars. |
+| 792 | *Adoptianism* [Latin]. Felix recants. Synod of Ratisbon. |
+| | Revolt in Saxony and Frisia. |
+| | Conspiracy of Pepin the Hunchback. |
+| | War with Benevento.—The great famine. |
+| 793 | Failure of the canal connecting the Altmühl and the Rednitz. |
+| | Invasion and victory of the Saracens on the Orbieu. |
+| 794 | Synod and Diet at Frankfort. *Adoptianism* [Latin].—The Council denies the *œcumenical* [Latin] character of the second Council of Nicæa and rejects its decree concerning *image worship*.—Tassilo apologizes, and renounces all claim to Bavaria. |
+| | Death of Fastrada, August 10th. Buried in St. Alban's, Mayence. |
+| | Saxon expedition.—Sendfeld. |
+| | Charles marries Liutgard. |
+| | Regulation of Aquitanian affairs. |
+| 795 | Saxon expedition. The camp at Lüne (*Hliuni* [German]). |
+| | Embassy from the Tudun. |
+| | Eric, margrave of Friuli, plunders the "Ring" of the Avars, and carries the spoils to Aix-la-Chapelle (796). |
+| | Louis receives embassies from Alonso II., and the Saracenic *wali* [Arabic], Bahlul Ben Makhluk, and erects fortresses on the frontiers of Aquitaine. |
+| | Death of Hadrian III., Dec. 25th; Leo III. elected pope, Dec. 26th. |
+| 796 | Distribution of the Avar treasures. |
+| | Embassies from and to Leo. |
+| | Baptism of the Tudun of the Avars, at Aix-la-Chapelle. |
+| | Saxon expedition. |
+| | Louis marries Hermingard, daughter of Count Ingram (?). |
+| | Pepin's expedition against the Avars. |
+| | Frankish raid against the Saracens. |
+| 797 | The wali of Barcelona (Zeik) makes his submission. |

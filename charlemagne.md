@@ -451,6 +451,26 @@ ity, and indirectly in founding the Teutonic "Holy Roman Empire" of the Middle A
 
 [^augustine]: St. Augustine, the apostle to England, must not be confounded with the great theologian of the same name who was bishop of Hippo, in Africa.
 
+varia, revived the dying Christianity of Thuringia, and chastised heretics in Gaul. Wherever the armies of Charles Martel marched, in Friesland, in Saxony, in Hesse, Archbishop Boniface followed, smashing idols, felling sacred oaks, and baptizing half-unwilling converts. Towards the end of his life his roving commission was changed into the more stationary office of Archbishop of Mainz, and he sometimes retired for repose to the great monastery of Fulda which he had founded in the Hessian land near the source of the Weser. But the old war-horse was still stirred by the sound of the trumpet. Three years after his consecration of Pippin, Boniface went forth on a last expedition for the conversion of the Frisians. When he reached Dockum (in the north of the present province of Friesland) he found there, instead of the expected catechumens, a multitude of the heathen, zealous for the honor of their idols which Boniface had so often destroyed, and eager for the spoil of the ecclesiastical invader. From their hands he received the crown of martyrdom for which he longed.
+
+The career of Boniface is of especial importance because of his absolute devotion to the see of Rome. It was observed that the recently converted nations, as is so often the case with new converts, surpassed their older brethren in the
+
+fervor of their faith. While the bishops of Gaul were lukewarm, sometimes almost insubordinate, the Anglo-Saxon bishops were the devoted adherents of the papacy. Boniface especially professed the most unbounded reverence for the chair of St. Peter, and took with alacrity an oath of implicit obedience, substantially the same which was exacted from the "suburbicarian" bishops of the sees in the immediate neighborhood of Rome. This was the spirit in which the infant churches were trained, and this no doubt was the tenor of the advice which the zealous Archbishop of Mainz gave to the new King of the Franks on the day of his coronation.
+
+A traveller through the pleasant valleys of Devonshire when he comes to the little town, scarcely more than a village, of Crediton between its two overhanging hills, may reflect with interest that he beholds the birthplace of the man who, more than any other, brought about the entrance of the German nation into the family of Christian Europe.[^bonifacebirth]
+
+The coronation of Pippin took place probably about November 751. In four months from that time Pope Zacharias died, doubtless without any
+
+[^bonifacebirth]: St. Boniface was born at Crediton. The date of his birth is not known. He died in Friesland, June 5, 755, and was known as "the Apostle of Germany."
+
+presentiment of the abiding importance of the event in which by his answer to the Frankish messengers he had borne a part, but which is not even mentioned by his biographer in the *Liber Pontificalis* [Latin] ("Book of the Popes"). After a short interval, an ecclesiastic of Roman parentage, who figures in the annals of the papacy as Stephen II., was raised to the papal see. His pontificate was short; it lasted but five years, but they were years full of import for the destinies of Europe.
+
+In order to concentrate our attention on the transformation of the Arnulfing mayors of the palace into Frankish kings, I have hitherto said as little as possible about the affairs of Italy, but this silence can be kept no longer, now that a Roman pope is about to cross the Alps and ask for Frankish aid to enable him to smite down his foes.
+
+The Lombards had invaded Italy in the year 568, and for nearly two centuries from that time there had been waged a kind of triangular contest which, to compare great things with small, was like the litigation which might go on in an English parish between an absentee landlord, a big Nonconformist farmer, and a cultured but acquisitive parson.
+
+The Emperor was the great absentee. Though still always spoken of as Emperor of Rome, he had been in fact for some centuries an absolutely Oriental Sovereign. Since the deposition of Romulus
+
 ---
 
 pushing any dispute between them to extremities, in view of the far more tremendous danger which threatened them and all Christendom from the turbaned followers of the Prophet who were now beginning to swarm over the passes of the Pyrenees.

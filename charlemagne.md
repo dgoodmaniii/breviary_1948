@@ -397,6 +397,28 @@ In the next century a libellous vision was forged by a famous archbishop,[^hincm
 
 ---
 
+## CHAPTER IV.
+
+### PIPPIN, KING OF THE FRANKS.
+
+The unity of the Frankish State, so dearly purchased by the heroic labors of Charles Martel, was as usual placed in jeopardy by the dying ruler's arrangements for the succession to that which was now openly spoken of as his "*principatus*" [Latin] ("principate").
+
+He left two sons, Carloman and Pippin, by his first wife Hrotrudis, and one, Grifo, by a Bavarian princess named Swanahild, whom he had married after an invasion of her country, and whose sister was the wife of the Lombard king Liutprand.
+
+This was the manner in which Charles Martel divided his dominions among his sons. To the eldest, Carloman, he gave the greater part of Austrasia, Alamannia, and Thuringia; to Pippin, the younger, Neustria, Burgundy and Provence. Apparently both Aquitaine in the south-west, and Bavaria in the south-east were too nearly independent to be thus disposed of by a ruler who, after all, was still, in theory only the chief adviser of a Merovin-
+
+gian king, though that king's royalty was for the present in abeyance.
+
+To Grifo, whose turbulent attempts at insurrection aided by his mother Swanahild, had troubled the last years of Charles, who assigned a small central state carved out of all the three realms, Austrasia, Neustria, and Burgundy, at their point of meeting. "As to this third portion," says the chronicler, "which the dying prince had assigned to the young man Grifo, the Franks were sorely displeased that by the advice of a wicked woman they should be cut up and separated from the lawful heirs. Taking counsel together and joining with them the princes Carloman and Pippin, they collected an army for the capture of Grifo, who, hearing of their intent, took to flight, together with his mother Swanahild and all who were willing to follow him, and all shut themselves up in Lugdunum Clavatum (Laon). But Grifo, seeing that he could not possibly escape, surrendered himself to the keeping of his brothers. Carloman receiving the captive sent him to be kept in safe custody at the New Castle (Neuf Château in the Ardennes): and they placed Swanahild in the monastery of Cala (Chelles near Paris.)"
+
+We shall rapidly pass in review the events which led to the concentration of the whole power of the State in the hands of Pippin alone, but first we must
+
+notice that for some unexplained reason, possibly in order to give them a better title to the obedience of Aquitaine and Bavaria, the princely brothers decided to bring the kingless period to an end. In 743 Childeric III. was placed on the throne. He was probably about twenty years of age, but the date of his birth, and even his place in the royal pedigree are doubtful. Of his character, of course, we know nothing. He is but the shadow of a shadow, this last Merovingian king.
+
+Very different from shadows were the two Arnulfing brothers, as they warred with Hunald, Duke of Aquitaine (son of their father's old troubler Eudo), with Odilo, Duke of Bavaria, with the heathen Saxons, with the restless and disloyal Alamanni. Of the two brothers, Pippin seems to have been somewhat the gentler. It was Carloman the strong and stern warrior, who, infuriated by the faithlessness of the Alamanni, entered their territory, called a muster of their warriors at Cannstadt (near Stuttgart), and then surrounding them by his Franks, disarmed them, and slew many of their leaders. The accounts of this assembly at Cannstadt are dark and perplexing, but on comparing them it certainly seems probable that there was great severity on the part of Carloman, probably treachery and possibly widespread slaughter.
+
+---
+
 pushing any dispute between them to extremities, in view of the far more tremendous danger which threatened them and all Christendom from the turbaned followers of the Prophet who were now beginning to swarm over the passes of the Pyrenees.
 
 It was in 711, three years before Pippin's death, that the Visigothic monarchy of Spain fell before the Moslem invader. In 716 the Moors seem to have first entered Gaul in detached squadrons. In 720, the year after the campaign of Soissons, they invaded Gaul in force, took Narbonne and established themselves in the old Visigothic province of Septimania, from which they were not finally dislodged for nearly forty years. They besieged Toulouse with many great engines of war, and their retreat from this place, compelled by the appearance of Duke Eudo with an army, may be noted as the first sign of ebb in the tide of Moslem conquest in Western Europe.

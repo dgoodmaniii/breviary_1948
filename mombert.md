@@ -1380,3 +1380,41 @@ Nor was he less reticent in the matter of Carloman. That king, the record of who
 Such were his feelings towards Charles, and could he hesitate as to whose cause it was his duty to espouse, the Patrician's or the Lombard's? He would not have been a true Roman pontiff without accepting fully the policy of his predecessors towards the kings of the iron crown. Stephen said that the enmity of the Lombards to the papal see was implacable; the reader of his epistle might truly add that the enmity of the popes to the Lombards was superlatively so.[^seep79]
 
 [^seep79]: See p. 79.
+
+On the accession of Hadrian, Desiderius tried to establish friendly relations, but ineffectually. Such delightful assurances of his good will as he sent to the king did not exactly tend in the direction of amity. He was a man of peace, he said, and desired to live at peace with all men, but how could he follow peace, and trust a king who, on the authority of his sainted predecessor, failed to perform to the Church the most sacred obligations he had undertaken?
+
+It is not clear if this bluntness was uninspired; at any rate it incensed the king, who nevertheless proposed an alliance between Hadrian and himself against Charles, and, with a view to terrifying him into compliance, ordered the occupation by Lombard troops of the cities of Faenza, Ferrara, and Comacchio, which King Pepin and his royal sons had added to the papal jurisdiction. Hadrian demanded their restoration as an indispensable preliminary to amicable intercourse, but Desiderius remained deaf to his expostulations, although he changed his tone when Gerberga arrived with her children. He took up their cause and appealed to the justice, compassion, and gratitude of Hadrian, urging him to befriend the orphans and anoint them kings of the Franks; but appealed in vain, for Hadrian refused.[^vitahadriani1625]
+
+[^vitahadriani1625]: Vita Hadriani, cc. 16–25; cf. Vita Caroli, c. 6.; Annal. Lauriss.; Chron. Moiss., Cod. Carol. (ed. Jaffé) No. 57.
+
+He was angry, and in his anger thought him recreant to the duties of his high office and a time-server. Nor was the matter of Gerberga and her children his sole grievance; he believed Hadrian implicated in the assassination of Paul Afiarte,[^paulbanished] his own strong partisan at Rome, in spite of the pontiff's declaration that he had only banished him for the godly purpose of placing him in the way of repentance and saving his soul.
+
+[^paulbanished]: Paul was banished on the charge of having blinded and killed Sergius, before Pope Stephen died; but Paul had also committed himself to the indiscreet speech, that he meant, if need be, to take Hadrian "with a rope around his feet" before Desiderius.—Vita Hadriani, c. 16 sqq.
+
+In such a frame of mind the king of the Lombards undertook, at the head of an army, accompanied by his whole family, Gerberga and her children, and Otgar, the doughty Frank and partisan of Carloman, to break the adamantine stubbornness of Hadrian, and force him to do his bidding. He marched upon Rome and demanded an interview with him.
+
+Hadrian refused it, believing that the protection of the patrician would suffice to shield the Church and humble the Lombard.
+
+He sent messengers to Charles by sea entreating him to hasten to Italy, and protect the Church from the machinations of Desiderius, the enemy alike of himself and Charles. He was bent upon separating him, Hadrian, from the love of Charles, and with a view to dividing Francia had asked him to anoint the sons of Carloman kings; nothing would satisfy him but the subjugation of Rome and all Italy under his sceptre. He had steadfastly refused to do his bidding; the Lombard had already seized the cities of Faenza, Ferrara and Comacchio, and in spite of his (Hadrian's) protest and earnest exhortation declined to surrender them.
+
+Such was his message to Charles; he likewise did all he could in the way of preparing for armed resistance; he collected as many troops as he was able to raise and put Rome in a state of defence. And, in the last instance, sent three bishops to Desiderius forbidding him, on pain of the interdict, to violate the territory of the Church.
+
+They met him at Viterbo and, strange to tell, arrested his progress. We may not be able to see in his action the miracle wrought by the threatened sentence of excommunication, because it is not improbable that certain intelligence of the tempest gathering beyond the Alps dictated the necessity of a change in the disposition of his army. But be that as it may, the fact remains that Desiderius returned.
+
+It is charged that he caused the report to go abroad that he had restored the cities; but the Frankish ambassadors, who, in response to Hadrian's complaints, arrived at Rome, verified the contrary, and in company with papal legates, proceeded to Desiderius demanding their surrender. Desiderius refused.
+
+Charles sent a second embassy renewing the demand, and offering to pay him an indemnity of fourteen thousand gold solidi for their restoration. It does not appear if the Frankish proposal was absolute or conditional, for the precise terms are not known; if it was absolute, the infatuation of Desiderius must have been great; if conditional, as some think, suggesting the surrender not only of the Roman cities, but of the royal refugees at his court, his second refusal becomes honorable and chivalrous. It is only just to add, that the seizure of the cities, though a high-handed measure, was hardly an act of rapacity; he took them ostensibly as a pledge or security for the payment of a loan of his to the pope.
+
+The persistent refusal of Desiderius exasperated Charles; he summoned the *heerbann* [German], and upon due reflection concluded that the gravity of the situation provoked the arbitrament of the sword, and that he must needs undertake this war for the protection of the Church. He accordingly proceeded with all the military strength of the Franks to Geneva, and there made all necessary dispositions for the commencement of hostilities.[^seeonprecedingparagraphs]
+
+[^seeonprecedingparagraphs]: See on the preceding paragraphs: Annal. Lauriss., Vita Caroli, c. 6; Chron. Moiss.; Cod. Carol., 57 (ed. Jaffé); Vita Hadriani, cc. 16–26, 29; Paul. Diac. c. MG. SS. Langob. 201, 202.; cf. Baronius; and Chron. Salern., c. 9. MG. SS. III., 476. — Annal. Einh.
+
+While preparations were in progress the customary national sanction of the enterprise was obtained in the diet held there, it seems in May;[^annallaurissguelf] there was a due declaration of war,[^vitacaroli6] and the army was separated into two grand divisions, one commanded by Charles in person, and the other by his uncle Bernard, son of Charles Martel.[^seegenealtable2]
+
+[^annallaurissguelf]: Annal. Lauriss., Guelf.; Einh.
+
+[^vitacaroli6]: Vita Caroli, c. 6.
+
+[^seegenealtable2]: See Geneal. Table.
+
+He took the route of Mount Cenis, his uncle that of Mount Jupiter, that is the Great St. Bernard, which some think owes its Christian name to this march. The passage of the Alps was difficult, but not more so than usual, for although we read, in rather vague phrase, of "the hardships

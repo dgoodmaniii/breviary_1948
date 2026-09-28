@@ -2240,3 +2240,29 @@ Such and similar reasons, the hope of spoil cherished by the warriors, and of ri
 The king and his family went early in the year to Chasseneuil, on the Clain,[^annallaurissmetten] the designated rendezvous. The assembled host, composed of Burgundians, Bavarians, Austrasians, Provençals, Septimanians, Lombards, and other bodies not mentioned by name, was divided into two
 
 [^annallaurissmetten]: Annal. Lauriss.; Metten., Einh.
+
+armies: the one commanded by the king's uncle, Duke Bernard, of Italian fame; the other by Charles in person. The plan provided for a simultaneous invasion of the peninsula from opposite directions, and a junction at Saragossa.
+
+Bernard accordingly took the road between the Mediterranean and the mountains, and Charles followed the line of Vasconia and the Pyrenees through the valley of Roncesvalles.[^annaleinhvitacaroli9]
+
+[^annaleinhvitacaroli9]: Annal. Einh.; Vita Caroli, c. 9.
+
+Brilliant and easy success seems to have attended the course of both armies until they reached Saragossa. The governors of Gerona and Barcelona gave hostages[^annalmaxim] to Bernard and furnished the necessary supplies, enabling him to conduct his column, without any mishap, to the walls of Saragossa.
+
+[^annalmaxim]: Annal. Maxim.
+
+**778]** On the other hand, the progress of Charles, also, must have been satisfactory; he entered Vasconia, doubtless with the concurrence of Lupus, but it is questionable if it was spontaneous or compulsory. Although there is no evidence that he was his vassal, his relations to Charles must have been those of formal amity; cordiality, however, was out of the question. Charles, by the right of conquest, established by his father and asserted by himself, was Lord of Aquitaine, which not long since formed part of the ancestral possessions of Lupus. The loss of Aquitaine, therefore, was one grievance, but by no means the greatest, which rankled in his breast; he was a Merovingian, and, as such, recalled the history of the mayors of the palace and the wrongs they had inflicted on his house. Had he been able, he would have refused passage to Charles; he granted it, because necessity compelled. Perhaps he took the customary oaths of vassalage, under compulsion; at any rate, if he did, his submission "was not without umbrage or without all the feelings of a true son of Waifre, that he saw the Franks and the son of Pepin so close to him."[^faurielhistoire]
+
+[^faurielhistoire]: Fauriel, *Histoire de la Gaule* [French].
+
+The passage of the Pyrenees was difficult, but the genius of Charles made it easy.[^vitahludc2] At his approach the confederates
+
+[^vitahludc2]: Vita Hlud. c. 2.
+
+of Ibn-al-Arabi surrendered the cities of Pampeluna and Huesca, and accompanied him to the gates of Saragossa, where he effected a junction with Bernard.
+
+"All Spain," says an annalist,[^annalmett2b] "trembled at the innumerable legions" of the king of the Franks. This is exaggeration, for the Moslems in Saragossa beheld them from their battlements without trepidation, and showed no signs of fear when they cast an iron girdle around them; nor did fear assail the rest of Spain, for the danger to Saragossa roused the martial ardor of the Moslems, who came in bands from all quarters, swarmed round the Franks, and kept them in a state of incessant anxiety and danger.
+
+[^annalmett2b]: Annal. Mett.
+
+But why did Saragossa, whose pretended governor, Ibn-al-Arabi, had already made formal surrender of the place into the hands of Charles many months ago in the depths of a Westphalian forest, not open her gates to the victorious king who demanded admittance? The city and her defenders repudiated the action of Ibn-al-Arabi, who either had drawn upon his imagination, or at the supreme moment found himself deserted by his friends. The brilliant picture of an easy conquest of a fair portion of Spain, with Saragossa as a point of support, dissolved like one on the screen of a magic lantern; the great king had suffered himself to be lured into the heart of a hostile country; he was in stress of supplies, seemingly caught in a trap, exposed to assault from within the stronghold and from the daily increasing bands of Arabs, that scoured the country for miles around. He was also deficient in the apparatus necessary for a siege, which might be of indefinite duration, for Saragossa was well supplied, and as strongly garrisoned as fortified. The ecclesiastical abettors of the scheme, moreover, had drawn as much upon their imagination as Ibn-al-Arabi; the splendid and touching spectacle of multitudes of Christians groaning under Moslem rule, praying, awaiting, and welcoming the champion of the faith, the grandson of Charles Martel—that also faded into airy nothingness.

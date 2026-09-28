@@ -53,3 +53,114 @@ New York,
 The portrait, printed by Montfaucon in *Monumens de la Monarchie Françoise* [French], tome I., plate xxiii., page 276, is taken from a MS. drawing in the MSS. of M. de Peiresc, and believed to be authentic. At any rate it is less conventional, and as to expression and naturalness more satisfactory than any of the numerous representations of Charles in print, or in stone, which I have seen.
 
 It represents him wearing the imperial crown, in the posture of kneeling, and holding on his arm the basilica of St. Mary the Virgin at Aix-la-Chapelle (see p. 271 sqq. and Index). The lower portions of the body are entirely hidden by an ample cloak, remarkable for the width of the sleeves, the imperial collar, and especially the buttons, which though seldom found in pictures of that period, were nevertheless in use as early as the time of the Emperor Constantius.
+
+---
+
+## CHRONOLOGICAL ANNALS.
+
+### CHARLES MARTEL
+
+*Son of Pepin of Heristal and Alpais (= Chalpais, Alphais).*
+
+| A.D. | Event |
+|---|---|
+| 688, 689 | Conjectured date of his birth. |
+| 715 | Plectrud with her grandsons in power.—Ragenfrid, mayor of the palace, in Neustria. |
+| | Charles escapes from confinement.—Death of Dagobert III.—Chilperic II. rules Neustria. |
+| 716 | Ratbod, the Frisian, defeats Charles. |
+| | Charles surprises and defeats the Neustrians at Amblève. |
+| 717 | Defeats the Neustrians in the decisive engagement at Vincy. |
+| | Pursues the fugitives to Paris. |
+| | Brings Plectrud to terms at Cologne.—Appoints Chlotair king. |
+| 718 (?) | Devastates Saxony to the Weser. |
+| 719 | Defeats Chilperic, Ragenfrid, and their ally, Eudo, duke of Aquitaine, at Soissons.—Pursues Eudo, who escapes. |
+| 720 | Makes peace with Eudo. |
+| | Expedition against the Saxons.—Theodoric IV. (aged 7), son of Dagobert III., king. |
+| 722 | Wars in the North. (The enemy not named.) |
+| 723 | Imprisons two sons of his step-brother Drogo.—Accords protection to Boniface. |
+| 724 | Marches against Ragenfrid, and invests Angers. |
+| | Gains a victory over the rebellious Saxons. |
+| 725 | Invades and subdues Bavaria, returns with Bilitrud and Swanahild. |
+| 728 | Revisits Bavaria, with an army. |
+| 730 | Marches against Lantfrid, duke of Alemannia.—Death of Lantfrid. |
+| 731 | Marches against Eudo, and devastates Vasconia. |
+| 732 | Defeats the Saracens in the battle of Tours. |
+| 733 | Regulates the affairs of Burgundy. |
+| | Invades the Westergau in Frisia. |
+| 734 | Again invades the Westergau, and devastates the country. |
+| 735 | Death of Eudo.—Charles marches to the Garonne, and subdues the country. |
+| 736 | Defeats the sons of Eudo, takes Hatto prisoner, and receives the homage of Hunold. |
+
+### CHARLES MARTEL — *Continued.*
+
+| A.D. | Event |
+|---|---|
+| 736 | Enters Burgundy and subdues the country from Lyons to Marseilles, and Arles. |
+| 737 | Death of Theodoric IV.—Charles reigns "without another king." |
+| | Marches against the Saracens, defeats them on the Berre, and lays siege to Narbonne. |
+| 738 | Marches against the Saxons, makes them tributary, and takes hostages. |
+| 739 | Quells the rebellion in the Provence. |
+| | Receives an embassy from Pope Gregory III. |
+| 740 | A year of peace. |
+| 741 | Divides his dominions among his sons. |
+| | Death of Charles, October 22d.—Buried in the Church of St. Denis. |
+
+### CARLOMAN
+
+*Eldest Son of Charles Martel.*
+
+| A.D. | Event |
+|---|---|
+| — | Date of his birth not known. |
+| 741 | Receives as his share of the divided kingdom, Austrasia, Suabia, and Thuringia. |
+| | Marches conjointly with Pepin against their step-brother Grifo.—Grifo prisoner at Neufchâteau [French]. |
+| 742 | Marches conjointly with Pepin into Aquitaine, against the rebels. |
+| | Marches conjointly with Pepin into Alemannia, against the rebels. |
+| 743 | Childeric III. instituted king. |
+| | Marches conjointly with Pepin against Odilo, duke of Bavaria, their brother-in-law. |
+| 744 | Marches against the Saxons; surrender of Hoohseoburg, and Theodoric. |
+| | Makes peace with Odilo. |
+| | Expedition against the Saxons; submission of the frontier population; many Saxons baptized. |
+| 745 | Marches with Pepin into Aquitaine; they subdue the rebellion, and humble Hunold. |
+| 746 | Sanguinary punishment of the rebellious Alemannians. |
+| 747 | Abdicates together with his son Drogo in favor of Pepin; goes to Rome, receives tonsure, builds a monastery, and withdraws to Monte Soracte. |
+| 750 | Takes up his abode in Monte Casino. |
+| 754 | Goes to Francia in the interest of Astolf against the pope, and Frankish interference. |
+| | Pepin shuts him up in a monastery; probably at Vienne. |
+| | Death of Carloman, August 17th.—Buried on Monte Casino. |
+
+### PEPIN
+
+*Second Son of Charles Martel, Mayor of the Palace.*
+
+| A.D. | Event |
+|---|---|
+| 714 | Birth. |
+| 735 | Visits the court of Desiderius, who adopts him. |
+| 741 | Receives as his share of the divided kingdom, Burgundy, Neustria, and the Provence. |
+| | For the events of 741–745, see above, under "Carloman." |
+| 745 | Marches against Theudbald, son of Duke Godfred, into Alsatia. |
+| 747 | Takes charge of the kingdom and son of Carloman; see before.—Carloman had several sons. |
+| | Sets Grifo at liberty. |
+| 748 | Grifo escapes into Saxony. |
+| 749 | Expedition against the Saxons; they submit; Grifo escapes into Bavaria. |
+| | Successful expedition against Grifo; Grifo and Lantfrid, duke of Alemannia, taken prisoners. |
+| | Accords to Grifo twelve counties in Neustria; Grifo escapes into Aquitaine. |
+
+### PEPIN
+
+*Second Son of Charles Martel, King.*
+
+| A.D. | Event |
+|---|---|
+| 751 | Elected, and, with the approbation of the pope, elevated and anointed king, by Boniface, at Soissons. |
+| | Childeric is shaved and sent to St. Sithiu. |
+| 753 | Victorious expedition against the Saxons.—Iburg.—Advance to the Wesel. |
+| | Grifo slain in combat. |
+| 754 | January 6. Receives Pope Stephen III., and promises him help against the Lombards. |
+| | The Diet, at Braisne (*Brennacus* [Latin]), and then at Quierzy (*Carisiaco* [Latin]) resolves upon war with the Lombards. |
+| | Pepin, together with Charles and Carloman his sons, guarantees to the Church of Rome the restoration of the possessions wrested from the same by the Lombards.—The document is lost. |
+| | Stephen III., at St. Denis, anoints Pepin, and his sons. July 28th. |
+| | First expedition against the Lombards. Pepin invades Italy; his van defeats the Lombards in the valley of Susa; he pursues Astolf to Pavia, invests the city, dictates a peace, takes hostages, and returns into Francia. |
+| 755 | The old March-field is changed into a May-field, *i. e.*, the Annual Assembly is thereafter to meet in May. Death of Boniface. |
+| 756 | Second expedition against the Lombards. Pepin defeats them at the *clausæ* [Latin], again invests Pavia, and makes a peace humiliating to Astolf. |

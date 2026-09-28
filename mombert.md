@@ -725,4 +725,42 @@ Stephen nerved himself to undergo the fatigue and peril of so long a journey, bu
 
 The king's eldest son, Prince Charles,[^firstmentioncharles] then only in his
 
-[^firstmentioncharles]: This is the first mention of Charles in history. I accept April 2, 742, as the date of his birth. The marriage of Pepin and Berthrada is said to have taken place in 744, some say as late
+[^firstmentioncharles]: This is the first mention of Charles in history. I accept April 2, 742, as the date of his birth. The marriage of Pepin and Berthrada is said to have taken place in 744, some say as late as 749. The earlier date is attested in the *Annales* communicated by Goldmann in *Neues Archiv* XII, 404: "744. [con]junctio Pippini regis et Bertrade regine;" [Latin] the latter date in *Annal. Bertiniani* [Latin], 749, rec Waitz: "*Pippinus coniugem duxit Bertradam cognomine Bertram, Chariberti Laudunensis comitis filiam.*" [Latin] It is difficult to set aside this testimony, which seems to establish the fact that Pepin lived with Berthrada before his marriage, and that Charles was born before that event. This circumstance, moreover, may explain the silence of Einhard, and the bitter feelings between the brothers; for Carloman, said to have been born in 751 (*Annal. Petav.* [Latin] MG. SS. I, 11), may have claimed the prerogative of legitimacy, and denied it to his elder brother.—Hahn, *Jahrbücher d. fränk. Reichs* [German], pp. 5, 151 sqq.; Oelsner, *Jahrb. d. f. Reichs unter König Pippin* [German], pp. 18, 352; Simson, *id. unter Karl. d. Grossen* [German], 2d ed. I., 13.
+
+twelfth year, at the head of a cavalcade, met him at a distance of a hundred miles from Ponthion; at a distance of three miles from the palace Pepin himself, with Queen Berthrada and the royal family, and attended by a glittering assemblage of courtiers, gave him greeting. The papal biographer reports that the king at his approach dismounted, and, together with the queen, his sons, and the nobility present, fell prostrate on the ground before him, and that the king walked by his side and held his stirrup.
+
+The pope and his clergy gave vent to their feelings in hymns of thanksgiving, and proceeded chanting to the palace, where, if the Frankish records are true, the [754, Jan. 6] pope and his clergy, clad in sackcloth and with ashes on their heads, returned the compliment of prostration and refused to rise until the king had promised his aid against Astolf.
+
+He passed his royal word under oath to do as the pope requested, and bade him take up his abode in the abbey of St. Denis.
+
+Meanwhile an embassy was sent to Astolf requiring him to give assurance of not further molesting the patrimony of St. Peter. This he refused to do, and thereupon the Annual Assembly of the Franks resolved to go to war.[^annaleinhlauriss754]
+
+[^annaleinhlauriss754]: *Annal. Einh., Lauriss.* [Latin] a. 754.
+
+This national act indicates the pope's personal influence. The general sentiment of the Franks was opposed to armed intervention, but the persuasion of his eloquence and judicious attentions in the form of presents, together with the halo of sanctity attached to his person, overcame it. For he was the first pope who had ever crossed the Alps, and the distinguished honors which Pepin lavished upon him, as well as the impassioned earnestness of his appeal, evoked the hearty sympathy and unanimous support of the estates of the realm.[^vitacaroli6]
+
+[^vitacaroli6]: *Vita Caroli*, c. 6.
+
+Astolf, for his part, remained not idle and tried to prevent the war by every means in his power. As a last resort he despatched an envoy in the person of Carloman, the king's own brother, thinking his influence sufficient to break the new alliance between Pepin and the pope. The choice was unfortunate, for the relations of the two brothers were not happy. Carloman doubtless grieved over the harsh treatment of his family, and may have thought the juncture favorable to the reassertion of his rights. At any rate his appearance on the scene strengthened the papal cause, and hurt his own.
+
+The clergy explained his course by diabolical influence; Pepin saw in it a peril and a menace, and the pope denounced it as an unjustifiable breach of his vows. The result was, that the unfortunate and deluded monk-prince was imprisoned for life in the monastery at Vienne, and that his sons were shaven, and thus disqualified in the succession.
+
+The imprisonment of Carloman was not of long duration; he took a fever, was nursed by queen Berthrada, and died Dec. 9, 754, before Pepin returned from Italy. His remains, by order of the king, were taken to Monte Casino, where he had assumed the monastic garb.[^annaleinh753]
+
+[^annaleinh753]: *Annal. Einh.* [Latin] a. 753, 755.—Mosell., Lauresh., Petav.—Anast. *Vita Steph.* [Latin]
+
+Both Pepin and Stephen again exhorted and entreated Astolf to surrender peaceably the possessions of the Church and of the Roman Commonwealth,[^vitasteph3133] but he was deaf to entreaty or menace, and prepared to dispute the progress of the Frankish army on its descent from the Alps. He attacked the vanguard of the Franks and was defeated; Pepin
+
+[^vitasteph3133]: *Vita Steph.* [Latin] 31-33.
+
+with the bulk of his troops pursued him to Pavia, invested the city, and compelled him to accept the terms of an ignominious peace, according to which he pledged himself on oath to restore the territory of Rome, and never at any future time vex it with hostile incursions. He also gave hostages, and, according to one authority, not only paid Pepin an indemnity of thirty thousand gold solidi, but promised the payment of an annual tribute of five thousand more.[^fredegarcont120]
+
+[^fredegarcont120]: *Fredegar. cont.* [Latin] c. 120.—cf. Annal. Metten.; Lauriss. maj., et minor. a. 753.
+
+Stephen would fain have persuaded Pepin to prolong his stay in Italy until the terms of the peace had been fulfilled, but the king took the hostages and returned to Francia. He had no sooner passed the Alps than Astolf voided the solemn engagement, and a month later marched with an army upon Rome, ravaged the country, blockaded the city, and demanded the surrender of the pope. Nothing short of that would satisfy him. He stood under the walls, and harangued the Romans, saying: "Open to me the Salarian gate that I may enter the city, and deliver to me your pontiff."[^stephepistgretser] In case of refusal he threatened to destroy the city, and avowed his purpose not to restore so much as a foot of land to St. Peter or the Roman Commonwealth.[^ibidsteph]
+
+[^stephepistgretser]: Steph. epist. Gretser, 261.
+
+[^ibidsteph]: Ibid.
+
+In the extremity of his distress, Stephen despatched messengers by sea to Pepin, with letters urging his speedy return. In a first letter, he wrote that his royal ally "hazarded eternal damnation if he did not complete the donation which he had vowed to St. Peter, and St. Peter had promised him eternal life. If the king was not faithful to his word, the apostle had his handwriting to the grant, which he would produce against him in the day of judgment." A second letter, which was placed in the hands of the Frankish envoy, the martial abbot Warnerius, came on the heels of the first. It depicted the terror of the situation, the menace of Astolf, that unless the pope were surrendered he would put the whole city to the sword. He had already burned all the villas and suburbs, plundered and defiled the

@@ -1132,3 +1132,83 @@ The Church approved of the principle of this law and the Council of Orleans pass
 This law also was re-enacted by Charles, and explains that some entered the Church not from motives of piety, but for the purpose of escaping from military service and other public obligations, and others did so under the advice of designing men coveting their possessions.[^capitiia805]
 
 [^capitiia805]: Capit. II., a. 805.
+
+---
+
+## BOOK II.
+
+### ROYAL PERIOD, A.D. 768–A.D. 800.
+
+### GENEALOGICAL TABLE
+
+**SHOWING THE DESCENT, RELATIONSHIP, AND FAMILY OF CHARLES THE GREAT.**
+
+- **Generation I.** — **Arnulf**, Bishop of Metz; †641.
+- **Generation II.** — **Anchisus** [same as Ansegisel, Ansigisus, etc.] = **Begga**, daughter of Pepin the Old, assassinated, 685.
+- **Generation III.** — **Alpais** [same as Chalpais, Alphais] = **Pepin of Heristal** = **Plectrud**; Title "inluster vir" and "dux;" †714.
+- **Generation IV.**
+  - **Hildebrand.**
+  - **Swanahild** = **Charles Martel** = **Rotrud**; Title "inluster vir;" †741.
+  - **Grimoald**, †714.
+  - **Drogo**, †708.
+- **Generation V.**
+  - (of Hildebrand): **Bernhard**; **Remigius**; **Grifo**, †753.
+  - (of Charles Martel and Rotrud): **Carloman**, first duke, then monk, †754; **Pepin, King** = **Berthrada**,[^berthradanote] †783.
+  - (of Grimoald): **Hiltrud** = **Odilo**, Duke of Bavaria.
+  - (of Drogo): **Theodoald**, illegitimate; **Godfred**, †730; **Hugo**, †730; **Arnulf**, †723.
+
+[^berthradanote]: Berthrada, Bertrada, Bertha, Berta, daughter of Charibert, Count of Laon, and grand-daughter of Bertrada or Berta, founders of the Monastery of Prüm.—MG. SS. I., p. 137. note; Böhmer, *Regesten* [German], No. 51 g. Cf. ibid. No. 93, a diploma of benefactions to the same monastery by Pepin and his queen.
+
+- **Generation VI.**
+  - (of Carloman): **Adalhard**; **Wala.**
+  - (of Pepin and Berthrada): **Ada**,[^adaburial] buried at Treves; **Adelhaid**, [buried at] Metz; **Rothaid**, [buried at] Metz; **Gisla**, †810; **CHARLES THE GREAT**, *b.* 742, †814; **Carloman, King**, married Gerberga, †771; **Pepin**, *b.* 759, †761.
+  - (of Hiltrud and Odilo): **Tassilo** = **Liutberga**, daughter of Desiderius.
+
+[^adaburial]: Ada was buried at Treves.—Mabillon, *l. c.* [Latin] t. ii., p. 391, and Brower, *Annal. Trevir.* [Latin], t. ii., p. 393.
+
+- **Generation VII.** (children of Charles the Great, by his several wives)
+  - 1. = *Himiltrud* [morganatic]; disowned. — **Pepin the Hunchback**, †811.
+  - 2. = *Desiderata* [morganatic]; divorced. — **Rothaid.**
+  - 3. = *Hildegard*,[^hildegardnote] †783. — **Charles**, †811; **Pepin, King of Italy**, †810; **Louis, Emperor**, *b.* 780; **Lothair**, †780; **Adelhaid**, †774; **Rotrud**, †810; **Bertha**, †775; **Gisla**, †781; **Hildegard**, †783.
+  - 4. = **Fastrada**, †794. — **Theodrada**; **Hiltrud.**
+  - 5. = *Liutgard*, †800.
+  - 6. = *Maltegard*. — **Rothild.**
+  - 7. = *Gerswinda*. — **Adaltrud.**
+  - 8. = *Regina*. — **Drogo**; **Hugo.**
+  - 9. = *Adelhaid*. — **Theoderic**; **Theodo and others.**
+
+[^hildegardnote]: Grand-daughter, or great grand-daughter of Gottfrid, Duke of Alemannia, †709.—Cf. Vita Caroli, c. 18; Thegani V. Hlud. c. 2.
+
+- **Generation VIII.** (children of Pepin, King of Italy): **Bernhard, King of Italy**, †818; **Lothair**; **Pepin**; **Louis.**
+
+*Key:* † denotes "died." = denotes "married." Names in italics are those of morganatic wives.
+
+---
+
+## BOOK II.
+
+### ROYAL PERIOD, A.D. 768–A.D. 800.
+
+#### CHAPTER I.
+
+##### CHARLES AND CARLOMAN.
+
+*Birth, childhood, and youth of Charles.—Dissensions between the brothers.—Revolt in Aquitaine.—Matrimony.—Pope Stephen indignant.—Desiderata.—Hildegard.—Death of Carloman.—Charles usurps his kingdom.—Flight of Gerberga and her children.—Charles at thirty.*
+
+It is surprising, perplexing, and vexatious that next to nothing is known of the birth and infancy, and even the boyhood of Charles. His biographer, Eginhard, or more correctly Einhard, deemed it unwise to commit himself to any statement, "for nothing," he says, "has ever been written on the subject, and there is no one alive now who can give information of it. Accordingly I have determined to pass that by as unknown."[^seenote2p40]
+
+[^seenote2p40]: See note 2, p. 40.
+
+The 2d of April is accepted as his birthday, and the [A.D. 742] best authorities consider the year 742 as that of his nativity. Quite a number of localities contend for the honor of being his birth-place. Ingelheim, near Mayence, Aix-la-Chapelle, Carlsburg near Munich, Carlstadt in Franconia, Liège in Belgium, and even a Villa in Aquitaine, have their advocates. One of the older writers, who claims Ingelheim, adds the doubtless erroneous notice that his mother Berthrada, or Bertha, was a Hungarian, and one of the most recent writers, who stands up for the Aquitanian Villa, conjectures that the lady was either a Hungarian or a Greek. As a matter of fact it may suffice to say that she was a Frankish lady, a daughter of Charibert, Count of Laon, and that Pope Stephen, in a letter addressed to Charles and Carloman, distinctly affirms that their father Pepin did not marry a lady belonging to another kingdom, or a foreign nation. Accepting his testimony as the best offered,[^sednecgenitor] it is proper to add that Pepin had three sons and four daughters.[^seenamesgeneal]
+
+[^sednecgenitor]: "*Sed nec genitor vester ex alio regno vel extranea natione conjugem accepit.*" [Latin] ("Nor did your father take a wife from another kingdom or a foreign nation.")
+
+[^seenamesgeneal]: See their names in Genealogical Table.
+
+It has been stated that the birth of Charles almost coincides with the death of his grandfather, Charles Martel, and the commencement of his father's reign. The former died October 22, 741, and the latter immediately succeeded to his inheritance. The record of his long reign contains only very few references to Charles and his brother Carloman, but it is safe to say that their education was rather physical and martial than scholastic and literary.
+
+The first mention of Charles occurs in connection with the visit of Pope Stephen. He was then in his twelfth year, and travelled at the head of a military cavalcade a distance of a hundred miles to welcome and accompany the pope to Ponthion. On the consecration of Pepin in the basilica of St. Denis, both he and Carloman received unction at the hands of Stephen. His name is found in several documents; he accompanied his father on two of the Aquitanian campaigns, repaired to him in his last sickness, was present at the solemn act of "partition," and appeared among the mourners at his father's funeral.
+
+Such are the meagre details of more than the first third of the life of the great Charles which the most diligent research has yielded. One might add the incidental particular found in a diploma belonging to the last years of his reign, that Pepin and Berthrada spent the earliest days of their married life on the estate of Vargahala on the Unstrut, if the diploma were genuine.[^muhlbacher356]
+
+[^muhlbacher356]: See Mühlbacher, *l. c.* [Latin], No. 356.

@@ -2266,3 +2266,31 @@ of Ibn-al-Arabi surrendered the cities of Pampeluna and Huesca, and accompanied 
 [^annalmett2b]: Annal. Mett.
 
 But why did Saragossa, whose pretended governor, Ibn-al-Arabi, had already made formal surrender of the place into the hands of Charles many months ago in the depths of a Westphalian forest, not open her gates to the victorious king who demanded admittance? The city and her defenders repudiated the action of Ibn-al-Arabi, who either had drawn upon his imagination, or at the supreme moment found himself deserted by his friends. The brilliant picture of an easy conquest of a fair portion of Spain, with Saragossa as a point of support, dissolved like one on the screen of a magic lantern; the great king had suffered himself to be lured into the heart of a hostile country; he was in stress of supplies, seemingly caught in a trap, exposed to assault from within the stronghold and from the daily increasing bands of Arabs, that scoured the country for miles around. He was also deficient in the apparatus necessary for a siege, which might be of indefinite duration, for Saragossa was well supplied, and as strongly garrisoned as fortified. The ecclesiastical abettors of the scheme, moreover, had drawn as much upon their imagination as Ibn-al-Arabi; the splendid and touching spectacle of multitudes of Christians groaning under Moslem rule, praying, awaiting, and welcoming the champion of the faith, the grandson of Charles Martel—that also faded into airy nothingness.
+
+It is uncertain what took place before Saragossa; a great battle is said to have been fought there of a Sunday afternoon in which many thousand Saracens were slain, but this assertion is believed to be as fabulous as an alleged defeat of the Franks mentioned by Arab writers.[^chronmoiss296]
+
+[^chronmoiss296]: Chron. Moiss. in MG. SS. I., 296.—Fauriel, *l. c.* [Latin] III., 344.
+
+It is said that the Moslems made a successful sortie, that sickness broke out in the camp, and that Moslem gold, which Charles divided among his troops, hastened his departure. If gold was paid, it was not paid by Saragossa, but most probably exacted as indemnity of war, or the price of safety from districts or cities which were at the mercy of Charles. It is certain that he scored no victory at Saragossa, neither took nor entered the city, and left from under her walls, because necessity compelled him so to do. Ibn-al-Arabi gave hostages, but the king retained him also, and carried him bound[^annalpetav2] into captivity; his confederate, Abu-Taher (or Abitaurus), also gave hostages, but could not save the fate of Pampeluna, for Charles, on his retreat, caused its walls to be razed to the ground either in a fit of anger (as some hold) or "that it might not be able to revolt."[^annallaurissminmosell]
+
+[^annalpetav2]: Annal. Petav.
+
+[^annallaurissminmosell]: Annal. Lauriss. min., Mosell. Lauresh., Einh., Lauriss. maj.
+
+The oath of fealty was doubtless exacted all along the march, and Frankish officers together with adequate troops placed in command of all points of importance.
+
+Charles might say, as others have said for him, that he extended his conquest to the Ebro; still, for all practical purposes, the Spanish invasion was a failure, and the reader may determine if it is true "that all the towns and castles that he attacked surrendered."[^vitacarc9initb] It may hold good of other places, but not of Saragossa, unless we infer that he contented himself with an investment of the place without an attack. This is hardly credible, for Charles emulated Cæsar, and would not have laid himself open to the charge of wilful omission of the third and most important particular of his famous saying. He doubtless *tried* to win, although he only came, saw—and *went (away)*
+
+[^vitacarc9initb]: Vita Car. c. 9 *ad init.* [Latin]
+
+The army retreated in one body, and what befell it on the march is thus told by the king's biographer and friend:
+
+"The king brought back his army without any loss, save that at the summit of the Pyrenees he suffered somewhat from the perfidy of the Vasconians. Whilst the army of the Franks, embarrassed in a narrow defile, was forced by the nature of the ground to advance in one long, close line, the Vasconians, who were in ambush on the crest of the mountain (for the dense forest covering those parts is favorable to ambuscade), descended and fell suddenly on the baggage-train and on the troops of the rear-guard, whose duty it was to cover all in their front, and precipitated them to the bottom of the valley.
+
+"There a fight took place in which the Franks were killed to a man. The Vasconians, having plundered the baggage-train, profited by the night which had come on, and rapidly dispersed. They owed all their success in this engagement to the lightness of their equipment and the nature of the spot where the action took place. The Franks, on the other hand, being heavily armed, and in an unfavorable position, struggled against too many disadvantages.
+
+"Eggihard, master of the king's household; Anselm, count Palatine; and Roland, prefect of the marches of Brittany, fell in this engagement. There were no means at the time for taking revenge for this check; for, after their sudden attack, the enemy dispersed to such good purpose that there was no gaining any trace of the direction in which he should be sought for."[^vitacaroli9b]
+
+[^vitacaroli9b]: Vita Caroli, c. 9.
+
+The valley of Roncesvalles, or Roncevaux, is situated between the defiles of Sizer and *Val-Carlos* [Spanish], that is the valley of Charles, and the small chapel of Ibagueta is pointed out as the precise spot on which the drama was enacted. The roadway is very narrow—so narrow that hardly two men, at the most three, may pass abreast. It was near sunset when the terrible Basques fell upon the mail-clad and heavy-armed Frankish rear, in charge of the baggage and the spoil, and

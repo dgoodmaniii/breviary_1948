@@ -585,4 +585,30 @@ Charles Martel's relations to the pope were friendly but not intimate. Towards t
 
 [^liutprandepitaph]: The epitaph of Liutprand asserts his personal presence in the Saracenic war. ". . . . . deinde tremuere feroces usque Saraceni, quos dispulit impiger, ipsos cum premerent Gallos, Karolo poscente, juvari." [Latin] Note to Paul. Diacon., apud Muratori, c. lviii. The Lombard historian states that Charles invoked, and Liutprand rendered, the aid he sought. His relations to the Lombard were cordial; he sent his son Pepin to the court of Liutprand, requesting him, in further token of their amity, to adopt Pepin by the symbolic act of cutting his hair. Paul. Diac., H. L., 53 sq. in MG. SS. Lang., 183; cf. 11 with Chron. Noval. III, I.
 
-The last act of Charles Martel has been censured as unwise; he divided the dominion, to whose reconstruction and
+The last act of Charles Martel has been censured as unwise; he divided the dominion, to whose reconstruction and defence he had devoted so many years of toilsome and heroic effort, between his two sons Carloman and Pepin, and made certain provision for Grifo, his youngest son by Swanahild, a princess of Bavaria, to whom he was married morganatically.[^swanahildmarriage]
+
+[^swanahildmarriage]: Some deny the marriage altogether. See authorities for the controversy in Böhmer-Mühlbacher, *l. c.* [Latin], No. 37 c. The fact that her name appears in a contemporary document as *inlustris matrona* [Latin] seems to favor a marriage. See Böhm.-Mühlb. *l. c.* [Latin], No. 43. The current title of Charles Martel was: *Inluster vir K. maiorem domus filius Pippini quondam* [Latin]. ("Illustrious man, Charles, mayor of the palace, son of the late Pippin.")
+
+In the division Carloman received Austrasia,[^austriaeextent] Suavia (or Alemannia, as the latter province or duchy was then called), and Thuringia; while to Pepin was assigned the rule of Burgundy, Neustria, and the Provence. The provision for Grifo was restricted to sundry estates in, or portions of, Neustria, Austrasia, and Burgundy, which were given to him as vassal of his brothers, not as an independent sovereign.[^annalmetten]
+
+[^austriaeextent]: On the extent of Austrasia, see Spruner-Menke, *Hand-Atlas* [German], Vorbemerk., 33.
+
+[^annalmetten]: *Annal. Metten.* [Latin]
+
+---
+
+#### CHAPTER II.
+
+##### PEPIN.
+
+*Fraternal concord of Carloman and Pepin.—Carloman abdicates and turns monk.—Pepin sole ruler.—Pope Zacharias.—Childeric III. deposed.—Pepin, king of the Franks.—Grifo slain.—Astolf and Pope Stephen.—Stephen visits Pepin.—Astolf humbled.—His death.—Division of the kingdom.—Death of Pepin.*
+
+Pepin and Carloman entered upon their inheritance as mayors of the palace, probably under the title of dukes.[^carlomantitle]
+
+[^carlomantitle]: Carloman's title is given generally as: "*K. maiorem domus filius Karoli quondam;*" [Latin] but the *Capitulare a. 743 (?)* [Latin] (of Liftinas=Lestines, now Estinnes, in Belgium S.E. of Mons.—Jaffé, *Bibl.* III, 129 No. 2) apud Baluz. *Capit.* I., 825, introduces it as: "*dux et princeps Francorum.*" [Latin]—That of Pepin also appears ordinarily as "*maiorem domus*" [Latin] with the additional "*inluster vir;*" [Latin] but the *Capitulare* of Soissons (Baluz. I, 155) a. 744 introduces him as "*dux et princeps Francorum;*" [Latin] this applies, of course, only to the portion of his reign prior to November, 751.
+
+The evil consequences of the injudicious partition became soon apparent. Insurrections broke out among the Saxons, Alemannians and Bavarians; Hunold, the new duke of Aquitaine, attempted to recover his independence, and the restive Arabs of Septimania renewed their predatory and vexatious incursions.
+
+The German notables, moreover, disliked and viewed with suspicion the prolonged vacancy in the nominal royal throne. This difficulty was easily overcome, for the brothers discovered the last descendant of Clovis, and in due course, probably at the next March-field (743?), effected his elevation.
+
+Their brother Grifo, also, at the instigation of his mother, the Bavarian princess Swanahild, rose in arms and claimed the inheritance. They marched against him, took Laon

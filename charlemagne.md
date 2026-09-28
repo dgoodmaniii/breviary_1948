@@ -755,4 +755,24 @@ but it was surely in part also from his statesman-like insight into the conditio
 
 What, then, during the years of transition between 774 and 800, were his relations to that eastern emperor? Some answer to this question will be given in a subsequent chapter. And what were his relations to the pope, in those territories in which his or his father's donation had taken effect? A question almost impossible to answer. Never was there a more striking case of that phenomenon of the Middle Ages to which M. Guizot has drawn attention, the co-existence of two opposing theories of
 
+law without any apparent perception of their discord in the minds of the men who had to carry them into practice. But though both Charles and the pope are spoken of as sovereigns in these territories it appears probable—we cannot say more—that Hadrian, had he been closely questioned on the subject, would have recognized that even in the duchy of Rome he was, in a manner difficult to define, subject to the over-lordship of the Frankish king.
+
+As has been said, the conduct of Charles in reference to the kingdom of Italy, if that of an ambitious man, was on the whole wise and statesmanlike. This praise can hardly be given to his relations to the papacy, in which there was a want of that clear and frank statement of what was granted and what was withheld, which is the only means of avoiding future misunderstandings between the giver and the receiver of a benefit. And the consequences of this omission weighed heavily on Europe for centuries, and often involved two really upright and honest men, a Pope and an Emperor, in hopeless quarrels.
+
+If we may recur to the simile of a country parish which was used in a foregoing chapter, the old absentee squire and the big Nonconformist farmer have both vanished from the scene. In their stead
+
+we have a new squire, young, enthusiastic, and devoted to the Church, who, as all the rustics see, is "hand and glove with the parson." But he has other large estates in a distant county which claim the greater portion of his time; and, partly in his haste to return to them, partly in the effusion of his ecclesiastical zeal, he makes or is understood to make to his clerical friend such promises of subscriptions, endowments, rebuildings, and upholdings as he finds in after days of calmer calculation would practically exhaust his whole rent-roll.
+
+---
+
+## CHAPTER VI.
+
+### THE CONVERSION OF THE SAXONS.
+
+The year 772, which opened upon a reunited Frankish kingdom (Carloman having died at the close of the year preceding), and which was a blank as far as Frankish operations in Italy were concerned, was memorable as witnessing the beginning of that long struggle with Saxon independence and Saxon heathenism which was to occupy thirty-two central years in the life of Charles the Great.
+
+Whether he entered upon this struggle with a light heart it is impossible for us to say. Many a time he thought it was ended, but found that he had only bent not broken the stubborn spirit of his foes, and assuredly it was with no light heart that he found himself, when past middle life and entering on his sixth decade, still obliged to resume his Sisyphean labor.[^sisyphus]
+
+[^sisyphus]: According to ancient Greek mythology, Sisyphus was, for his great wickedness, condemned in Hades to roll a great stone from the bottom to the top of a hill; but before he reached the top, the stone broke away and rolled down again, so that his task had to be begun anew, and thus it resulted in endless and tantalizing monotony.
+
 ---

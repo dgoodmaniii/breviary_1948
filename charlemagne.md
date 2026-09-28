@@ -905,3 +905,23 @@ invitation to Franks to settle in the evacuated lands—acts which remind us of 
 in this instance was not "ever won." Christianity, or a religion which believed itself to be Christianity, was triumphant from the Rhine to the Elbe, and three fat bishoprics, Bremen, Münster, and Paderborn, divided between themselves the conquered land. "Saxonia" was henceforth an inseparable part of the newly-founded Frankish Empire.
 
 ---
+
+## CHAPTER VII.
+
+### REVOLTS AND CONSPIRACIES.
+
+In tracing the history of Charles's long struggle with the Saxons we have come down to a very late point in the story of his reign. We must now retrace our steps and notice some of the more important events that happened during that struggle of thirty years. And first it will be well to deal with some of the unsuccessful attempts that were made in various parts of his dominions, other than Saxon-land, to throw off the yoke of this strong and masterful ruler.
+
+Less than two years after the downfall of the Lombard monarchy, at the end of 775, when Charles was fully committed to his life-and-death contest with Saxon heathenism, he received tidings of an attempt on the part of at least one Lombard duchy to recover its independence. Before leaving Italy he had either appointed a Lombard noble named Hrodgaud, Duke of Friuli, or had confirmed him in the possession of that duchy. Forum Julii, which we
+
+now know by the name of Friuli, and whose chief city is now called Cividale, included the fertile lands north of the Venetian Gulf, and was of primary importance to the Frankish king as it touched on the one side the provinces of Venetia and Istria (wavering at this time between allegiance to him and their old allegiance to Constantinople) and on the other side the lands of the Duke of Bavaria, who, as we shall soon see, was one of the most untrustworthy of subject princes.
+
+Hrodgaud appears to have been engaged in some obscure negotiations with the Lombard dukes of Chiusi and Benevento for cutting short the new papal territories, perhaps also for bringing in the exiled son of Desiderius and raising once more the standard of Lombard independence. But the combination failed, owing perhaps in part to the death of the Emperor Constantine V., which happened in the autumn of 775. The young Lombard prince Adelchis failed to make his appearance in Italy; the Dukes of Chiusi and Benevento hung back from the dangerous enterprise and Hrodgaud of Friuli was left alone to meet the Frankish avenger. His courage did not fail; he seems to have proclaimed himself king, doubtless "King of the Lombards," and persuaded many cities in Northern Italy to join his standard. But Charles, warned of his revolt be-
+
+fore the end of 775, crossed the Alps in the early months of 776. The passes cannot yet have been open, and it must have been with a small but select body of troops that he made his rapid descent upon Friuli. Hrodgaud seems to have fallen in battle. Cividale surrendered. Treviso, where Hrodgaud's father-in-law, Stabilinus, sought to prolong the struggle, was also captured and was the scene of Charles's Easter festivities. All the other revolted cities were taken, and in June Charles recrossed the Alps to march swiftly northward to recapture the oft-taken Eresburg, and to baptize some thousands of Saxons in the Lippe.
+
+Considering the difficulties of locomotion at that time this short Italian campaign against Hrodgaud seems to have been one of the most rapid and brilliant of all the military operations of King Charles. The suppression of the revolt was followed, not indeed by bloodshed, but by severe confiscations of the property of the insurgents. We have a piteous account by the great Lombard historian, Paulus Diaconus,[^paulusdiaconus2] of the seven years' captivity of his brother, who is generally believed to have been punished for his share in this insurrection. "My brother languishes a captive in your land, broken-
+
+[^paulusdiaconus2]: See p. 58, note.
+
+---

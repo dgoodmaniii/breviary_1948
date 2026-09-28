@@ -2501,4 +2501,30 @@ Under such circumstances a meeting with Hadrian would have been painfully embarr
 
 This brief and brilliant Friulian campaign illustrates, perhaps better than any other as yet presented, one of the most striking characteristics of the military ability of Charles. The thirty-two years of Saxon warfare mark the relentless and inexorable purpose of the tyrant, the conquest of Lombardy the skill of the strategist and tactician, the invasion of Spain the wisdom of the disappointed general, but this Friulian expedition shows the genius of Charles and the versatility of his powers.
 
-Even now, with all the appliances and conveniences of modern contrivance, the sight of an equestrian in any of the hollow approaches to the Alpine passes, who in mid-
+Even now, with all the appliances and conveniences of modern contrivance, the sight of an equestrian in any of the hollow approaches to the Alpine passes, who in midwinter proposed so difficult and perilous an undertaking would undoubtedly receive the old man's advice so generously given to the hero of "Excelsior;" but think of that magnificent *scara* [Latin] of troopers, which left Schlettstadt about New Year, 776, and its wonderful achievements! The roads, bad at all seasons of the year, at least at that time, were buried in snow; the terrible savageness of ice-bound precipices along whose slippery edge ran their course might make the boldest shudder as he looked upward past sombre and icicled pines to the rocky needles which shot from the base of eternal whiteness into the sky, and down into the black depths of certain death in the wild, seething and roaring waters which yawned at his feet; a storm, a false step, meant destruction to the mail-clad *scara* [Latin], which in biting cold, and through blinding snow, followed the intrepid captain, who did what only Hannibal and Cæsar had done before.
+
+He crossed the mountains, swept over the plains of Lombardy with incredible speed, strangled the revolt, punished the offenders, and made such wise dispositions in the administration of the conquered territory, that for several years to come revolt did not dare to lift its head.
+
+Celerity and executive ability of the highest order achieved this remarkable success in the course of a few months, in a country distracted by faction, jealousy, and misrule. Such was the power of his presence, and the dread of his revenge, that he might leave to his lieutenants the administration of affairs, and attract the rich and spontaneous homage of the duke Hildeprand of Spoleto, who sought and delighted the new king of the Lombards with a visit of state which he paid to him at Verzenay, in the heart of his Frankish dominions.
+
+**779]** Still he felt the necessity of an early return into Italy, and embraced the opportunity of a lull in the Saxon tempest to make a prolonged stay.
+
+The objects of the journey were strictly peaceable; one was religious, the other political.[^annaleinhlauriss11]
+
+[^annaleinhlauriss11]: Annal. Einh. Lauriss., Mosell.
+
+It was in fulfilment of a religious vow coupled with the desire of praying at the tomb of the apostles, and taking personal cognizance of the internal and external affairs of Italy, that orders were given for the progress, in which the Court and part of the royal family participated.
+
+The family of Charles was already large; he had eight children living, two by Himiltrud, and six by Queen Hildegard; altogether four sons and four daughters. Pepin, surnamed the Hunchback, and Rothaid were the children of Himiltrud, while Charles, Rothrud, Bertha, Carloman, Louis, and Gisla were those of the latter.
+
+Of these Pepin and Charles remained at Worms; the others accompanied him to Italy.[^sameauthorities]
+
+[^sameauthorities]: Same authorities as in the last note.
+
+Couriers were despatched to prepare the way and announce his coming; the royal party travelled under strong military escort, and probably followed the course of Constance,[^radpertic3] Chur, and the Splugen; in the absence of royal palaces, villas, or hotels, the monastic and religious establishments on the road offered convenient resting places. It was late in the year when the King of the Franks and of the Lombards made his entry into Pavia, and took up his residence in the palace for the winter.
+
+[^radpertic3]: Radperti Casus S. Galli, c. 3.
+
+**781]** Much public business of a miscellaneous nature arising from the conquest, and inadequate, vague, or conflicting legislation, such as the conduct of the counts and judges, the adjustment of claims, and the correction of abuses, engaged his attention. Two capitularies were set forth, one in the Diet which he held at Mantua, some time before the middle of March,[^boretiuscapitul108] whose provisions disclose a most unenviable state of society. The country was infested by robbers; Christian and pagan serfs were sold into slavery; tolls were unlawfully extorted, and the ends of justice most shamefully perverted. Even the pope had been accused, it is thought by the duke of Spoleto, of encouraging the nefarious traffic in slaves, and Charles wrote to him on the subject. A few paragraphs from his reply shed some light on it:
+
+[^boretiuscapitul108]: Boretius, Capitul. 108.

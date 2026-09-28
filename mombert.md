@@ -2616,3 +2616,29 @@ The sympathies of Tassilo were entirely with his brother-in-law of Benevento, no
 Again and again he assumed the conduct of an independent sovereign, and quite recently, while the king was marching against Benevento, undertook to settle a territorial dispute with a Frankish noble in the Tyrol, by the arbitrament of the sword. Tassilo was a good churchman, and Hadrian would fain have laid him under obligations, if he could do so without alienating the good will of Charles. The Bavarian embassy, consisting of Arno, bishop of Salzburg, and Hunrich, abbot of Mondsee, arrived during the Easter festivities,[^annallaurissmajeinhmaxim] and prevailed with Hadrian to act as
 
 [^annallaurissmajeinhmaxim]: Annal. Lauriss. maj., Einh., Maxim., al.; cf. Luden, IV., 350, 542, n. 8.
+
+mediator between Charles and the duke. The king accepted his good offices, and asked the ambassadors what security they could give for the duke's good faith in the future.
+
+They replied, that they had no instructions beyond reporting to their master the words of Charles and Hadrian. This so incensed Hadrian, who suspected trickery, that he forthwith launched the anathema of the Church against Tassilo, notifying the ambassadors that in the event of a further breach of good faith, the responsibility of a sanguinary and destructive war must rest on his guilty head, but that Charles and the Franks should be innocent.
+
+This message the Bavarian ambassadors bore to their master; Charles took leave of Hadrian and set out for Francia, stopping at Pavia, to add to his train many Lombard nobles of suspected loyalty, a number of persons skilled in arithmetic and grammar, together with Theodore and Benedict, two fine musicians, the last for the express purpose of introducing the Gregorian chant in the churches of Francia.
+
+**787]** He arrived in Germany in time for the May Parade at Worms. Tassilo, who ought to have been in attendance, stayed away; the Assembly heard with great enthusiasm the king's account of the Italian campaign, and with corresponding indignation the course of the Bavarian duke; it was resolved to anticipate the threatened peril to the Frankish monarchy by an immediate declaration of war; three armies were directed to march into Bavaria; one led by Pepin through the valley of the Adigo to the Enns; a second, probably commanded by his brother, prince Charles, was massed at Pföring on the Danube, while the third, under the king in person, crossed the Rhine and passed through Suabia to the Lechfeld near Augsburg.
+
+Tassilo was in sore plight; he was simultaneously assailed from three cardinal points; the Greeks and Huns upon whose aid he had counted failed him, and, worse than all, his own subjects deserted him. The stars were against him, but accepting the situation, he went to Charles, humbly apologized, returned to him, as an ordinary fief, his duchy, and received it again as the king's vassal. This was done by means of a symbolical ceremony; he presented to the sovereign a small staff with the figure of a man engraved on the head; Charles took and then returned it to him; this signified that Tassilo had become his vassal.
+
+The king, moreover, in token of his reconciliation, and of Tassilo's perpetual vassalage, gave him gemmed bracelets of gold, and a steed covered with a housing of cloth of gold. A contemporary poet explains that Charles said while presenting the symbols, "Receive, my son, these symbols of your vassalage," adding that Tassilo then kissed the king's knees, saying, "O King, you wield your office for the happiness of the world, and I acknowledge my service to you world without end." Then he took the royal gifts and repaired to his camp.[^annalnazarcont]
+
+[^annalnazarcont]: Annal. Nazar., Cont. MG. SS. I., 43. Lauriss. maj., Einh., Guelf. contin. MG. SS. I., 43.—Versus Hibern. exulis in Poet. Lat. aev. Carol. I., 399.
+
+Both he and the Bavarians, moreover, were required to take the oath of allegiance; Charles also took twelve hostages besides his son Theodo, and bound Tassilo to appear at the forthcoming Diet to be held at Ingelheim near Mayence.[^annaleinhnazar]
+
+[^annaleinhnazar]: Annal. Einh., Nazar.; Lauriss. Lauresh., Maxim.—Cf. Vita. Caroli, c. 11.
+
+What occurred during the interval is not known; but to Ingelheim the duke repaired in due course. The Diet was the most imposing thus far convened in that reign; the whole hierarchy of Francia and the most illustrious dignitaries of the realm were assembled. Tassilo came openly without suspicion; he was seized, disarmed, and placed in arrest;[^annalnazarlc] at the same time the duchess Liutperga, his wife, and their children were surprised and arrested in the palace at Ratis- **788]** bon; they also and their hereditary treasure, were transported by royal command to Ingelheim.[^annalnazarguelf]
+
+[^annalnazarlc]: Annal. Nazar. *l. c.* [Latin] Lauriss. maj., Einh., Maxim., al.
+
+[^annalnazarguelf]: Annal. Nazar., Guelf.
+
+A number of Bavarian counts, the counsellors and legates

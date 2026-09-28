@@ -1569,4 +1569,36 @@ The *heerschau* [German], muster, or annual parade, took place in the month of M
 
 [^capitulaadexercit]: Capitula ad exercit. promov. a. 808.
 
-The first expedition which Charles undertook against the Saxons was in consequence of a disturbance caused by the imprudent zeal of Lebuinus, one of the Anglo-Saxon missionaries sent forth by Willibrord of Utrecht. He seemed to think that the erection of a church was the one thing needful to the conversion of the wicked Saxons; but as they refused to go to it and hear their ancestors evil spoken
+The first expedition which Charles undertook against the Saxons was in consequence of a disturbance caused by the imprudent zeal of Lebuinus, one of the Anglo-Saxon missionaries sent forth by Willibrord of Utrecht. He seemed to think that the erection of a church was the one thing needful to the conversion of the wicked Saxons; but as they refused to go to it and hear their ancestors evil spoken of, and declared to reap the reward of their wickedness in the uncomfortable regions of eternal flame, Lebuinus resolved to go to them, and suited his visit to the time of their Annual Assembly at Eresburg, and the great national religious festival at the Irminsul.
+
+Arrayed in gorgeous robes and carrying a cross in his hand, the zealous missionary passed through the throng to an open circular enclosure, peculiarly sacred to the worshippers.
+
+The Saxons resented the intrusion as sacrilegious, but suppressed their indignation, and for a while listened to him.
+
+"What do ye?" he cried, "the idols you worship live not, neither do they perceive; they are the work of men's hands; they cannot do anything, either for themselves or for others. Wherefore the one God, good and just, having compassion on your errors, has sent me unto you. If you do not put away your iniquity, I predict trouble which you do not expect, but which the King of Heaven has ordained aforetime. A prince shall come, strong, wise, and indefatigable, not from afar, but from nigh at hand, and burst upon you like a torrent; he shall soften your hard hearts and bow down your proud heads. At one rush he shall invade your land, waste it with fire and sword, and drag you, your wives and children, into captivity."
+
+The people, in their wrath, would have killed Lebuinus on the spot, but were prevented by the temperate counsel of the aged Buto.
+
+"Listen, brethren," he said, "ye are the most wise. There have often come to us ambassadors from neighboring nations, from the Northmen, the Sclavonians, and the Frisians; we received them in peace, heard what they had to say, and dismissed them with presents. Here is an ambassador from a great god, and would ye slay him?"[^vitalebuini]
+
+[^vitalebuini]: Vita Lebuini, MG. SS. II., p. 363, al.
+
+His counsel prevailed that day; they allowed Lebuinus to go unhurt, but a few days later, set on fire the church at Deventer.
+
+Tidings of these and probably other disturbances became known to Charles in due course, and led him to plan and execute the first Saxon expedition. It is not at all improbable that the aggressive policy of the Franks was one of the first and strongest causes of Saxon opposition to Christianity. Undefined territorial limits in a rude state of society invariably lead to war; all along the Saxon and Frisian borders life and property were insecure, and the fierce pagans ever watched for convenient seasons of retaliation. They did not spare, nor did the Franks. The subjection or, as it was viewed at the time, the conversion, of the Saxons became a political necessity. Empire and Christianity were synonymous terms; the Franks were Christians, the Saxons a race of savage, treacherous idolaters. Their crimes must be punished, and the sword alone could decide which was to prevail, idolatry and diabolism, or Christianity and the Franks. It was the finger of destiny; idolatry must perish, and Christianity triumph; Charles was strong and Francia a unit; the Saxons were strong, but they were divided; they had almost as many chieftains and rulers as they had villages. Their subjugation might be delayed, but it was inevitable.
+
+**772]** The expedition took place after the Diet had been held at Worms, and was conducted by Charles in person. He advanced into the hostile country with fire and sword on a line from Mayence, where he crossed the Rhine, to the Diemel in the Hessian country, attacked and took the Eresburg, and afterwards destroyed the Irminsul.[^annallaurisseinh]
+
+[^annallaurisseinh]: Annal. Lauriss., Einh. al.
+
+The former was a natural stronghold, rendered still stronger by art, and situated upon the present site of Stadtberge, between Cassel and Paderborn; the latter stood at a point several thousand paces distant from the headwaters of the Lippe, and was a famous columnar structure associated with the religion and patriotism of the Saxons. It is spoken of as an idol, signifying the deity, and in the popular mind, the visible embodiment of divine power sustaining the universe. There was a column, a sanctuary, and a heroic image, which some connect with Arminius, the Cheruscan chief, who defeated the famous legions.
+
+It is said that the hero stood forth fully armed, with a standard in his right hand and a balance in the left, emblematic of the fluctuations of war; that the breastplate depicted a bear, the symbol of fearless courage, the shield a lion bedded on flowers, to teach the Saxon warrior that the battlefield is the most beautiful place of repose; that a large body of priests and priestesses, the former engaged with sacrifices, the latter with divinations, was connected with the Irminsul; that they persuaded the people that all enterprises undertaken at their bidding, and in virtue of divine revelations made to them, must infallibly succeed; that their influence was prodigious, especially in the election of judges, of whom they had sixteen to every district of seventy-two families, the noblest born of their number being the president-judge; that these judges, represented by their president and the lowest of their order, were wont to repair semi-annually, in April and October, to the priests at the Irminsul presenting offerings and invoking the aid of the godhead; that the priests nominated new judges to fill vacancies caused by death, in the event of war carried the statue of the godhead in front of the army, and sacrificed prisoners to their idols.[^meibomrerumgerm]
+
+[^meibomrerumgerm]: Meibom, *Rerum Germ.* [Latin] t. iii., p. 9; Grupen, *Observ. Rer. et Antiq. German et Rom.* [Latin] p. 165 sqq. See the literature in Abel, *l. c.* [Latin] I., 105, 107.—Transl. S. Alex. c. 3, in MG. SS. II., 276. Pertz; Lüden, Guizot, and many others admit the connection of the Irminsul with Arminius.
+
+This famous and grand national idol and fane Charles destroyed, carried off the treasure in gold and silver which he found there,[^annalauriss2] and continued his march to the Weser, where the Saxons stood in force. There negotiations were had, in consequence of which the Saxons gave twelve hostages, and thus the expedition terminated. It is stated,[^annalnordhumbr] but not established, that his successes were dear-bought; this
+
+[^annalauriss2]: Annal. Lauriss., Einh., Mosell., al.
+
+[^annalnordhumbr]: Annal. Nordhumbr.

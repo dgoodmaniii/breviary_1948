@@ -1602,3 +1602,37 @@ This famous and grand national idol and fane Charles destroyed, carried off the 
 [^annalauriss2]: Annal. Lauriss., Einh., Mosell., al.
 
 [^annalnordhumbr]: Annal. Nordhumbr.
+
+is, however, not improbable, for the Saxons were brave, and unless overwhelmed by numbers, would offer desperate resistance.
+
+Their submission was not of long duration, and the occasion of the next outbreak will now be told.
+
+It was mid-summer when Charles with his victorious legions crossed the Alps and re-entered the Frankish dominions; on the way to the Rhone the march was arrested by an afflictive occurrence; the king and the queen mourned the loss of their youngest daughter Adelhaid, which befell them on the journey.[^mgss265]
+
+[^mgss265]: MG. SS. II., 265.
+
+This sad sequel to the triumphal Lombard campaign **774]** cast its shadow on his joy, which was deepened by the announcement that the Saxons had taken advantage of his absence in Italy and were in arms.
+
+Early in the season they entered the Hessian territory, and advancing westward, ravaged the country, assaulted the Buriaburg, and set fire to Fritzlar. The church of St. Boniface, it is said, escaped by a miracle. The saintly founder of the church predicted that it should never be burned with fire. The prophecy was known to the Saxons, but reposing no faith in Boniface and his Christians, they undertook to put it to the test and set the church on fire. In the midst of their endeavor, and while the Christian inmates of the church trembled for their lives, they paused, threw their torches aside, and panic-stricken fled to their own country, though no one pursued them. They, as well as the Christians, had seen the sudden appearance of two young men in shining garments as the defenders of the church. Whoever they were, angels from paradise, or angels provided by the ecclesiastics, the Saxons went—and when the Christians came forth, they saw a Saxon in kneeling posture, his mouth in the act of blowing on the lighted torch, which he was even then applying to the church,—transfixed in death.
+
+The season was too far advanced for extensive operations, the troops moreover after the long Italian campaign wanted rest; but the Saxons must be punished, and four *scaræ* [Latin] were ordered to their country; three of their number sought and defeated the offenders, while the fourth, which did no fighting, secured much booty, and all returned proud of their easy victory.
+
+**775]** That winter Charles made up his mind to prosecute the Saxon war in good earnest, and never to sheathe the sword "until they were either subdued and converted to Christ, or annihilated."[^dumautvicti]
+
+[^dumautvicti]: ". . . dum aut victi christianæ religioni subicerentur, aut omnino tollerentur."—Ann. Einh.
+
+That was the object of the war, and the spirit in which it was conceived and conducted to the bitter end. It had not only the approbation of the personal friend and biographer of Charles, who records it in the Annals and the Life, but that of all Christendom from the pope down to the humblest acolyte. Einhard ingenuously declares that "the king did not suffer his high purpose . . . to be wearied by any fickleness" of the enemy, "or to be turned from the task; he never allowed their perfidy to go unpunished, but either took the field against them in person, or sent his counts with an army to wreak vengeance, or exact righteous satisfaction."[^vitac7]
+
+[^vitac7]: Vita, c. 7.
+
+The Saxon poet, writing in the next century, lauds the savage resolve, comments upon it in strains of gratitude to Almighty God, and says that his people—such was the obstinate ferocity of their nature—required just such a teacher as Charles, who constrained them by force of arms, willing or unwilling, to save their souls.
+
+Immediately after the Diet of Düren, where the *heerbann* [German] lay encamped, the king crossed the Rhine, took the fortress of Sigburg, at the confluence of the Ruhr and the Lenne, put a Frankish garrison into the place, and continuing the march to the Eresburg, caused his soldiers to rebuild that stronghold, garrisoned it with Franks, and penetrated to the country near the Weser, where he found the enemy in force, prepared to dispute his passage. A fight took place in which the Saxons were routed with great loss; he occupied both sides of the river, pursued the flying foe to the Ocker, and there made a truce with him, in virtue of which the Eastphalians and Hassio, their leader, gave hostages and swore fealty. Charles retraced his steps and met the same success in the canton of Bucki, where Bruno and other leaders of the Angrians followed the example of the Eastphalians.
+
+They were rather hasty and clearly ignorant of what had taken place on the Weser. The Franks, whom Charles left behind to guard the river, seeing no enemy present, grew careless and scoured the country for forage, while those who stayed in camp fell to idleness and good living. The wary foe saw his opportunity; a number of Saxons donned the Frankish garb and came into the Frankish camp as "good friends and faithful allies." The Frankish soldiers, like their king, were wont to sleep after dinner. At the ninth hour, that is, at 3 P.M., the foraging party returned to camp, and the Saxons entered with it. How they duped the Franks, and how long they kept up the fraud, is not known; at any rate, they fell upon the sleepers, and put many to the sword; the tumult roused the camp, a *mêlée* [French] ensued, in which some of the intruders were killed, but most escaped. Indeed, it seems, if another account is accurate, that the surprise was complete, and that the Franks had to purchase their lives in a humiliating cartel. The Saxons who performed this stratagem were Westphalians, and they would have escaped but for the timely approach of Charles. He immediately gave pursuit, overtook and defeated them, and compelled them, like the Eastphalians and Angrians, to submit and give hostages.[^annaleinhlaurissfuldens]
+
+[^annaleinhlaurissfuldens]: Annal. Einh., Lauriss., Fuldens.; Poeta Saxo.
+
+He then returned into Francia with great spoil and began the work of conversion with the Saxon hostages, who as a rule were young nobles, found homes in Frankish monasteries, and became or were made Christians.
+
+**776]** Practically the campaign had been useless, for in less

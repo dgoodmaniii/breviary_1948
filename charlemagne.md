@@ -1046,4 +1046,16 @@ justified much earlier operations than were possible in the late spring of undra
 
 It had been ordered that the two sections of the army should meet at Cæsar-Augusta, now Saragossa, on the Ebro. Both sections appear to have crossed the Pyrenees without difficulty, and Charles, descending into Navarre, laid siege to Pampelona and took it apparently with little difficulty. The reader learns with some surprise that Pamelona had previously belonged to the little Christian kingdom of the
 
+Asturias, against whom Charles must therefore have now been waging war.
+
+And this was really the only warlike deed in the whole campaign: for all the rest of the operations recorded by the chroniclers (who evidently have something to conceal in this part of their story) cannot be dignified by the name of war. Charles is said to have crossed the Ebro by a ford, to have approached, perhaps entered, Saragossa, to have received the hostages whom Ibn-el-Arabi and another Saracen chief whom the chronicler calls Abuthaur (probably Abu Taker) brought to him. No doubt the hostages represented the surrender of a certain number of cities in the corner of Spain between the Ebro and the Pyrenees, but how many we have no means of deciding. In the month of August Charles set out on his return march, taking Ibn-el-Arabi with him in chains. Evidently the expedition had been a comparative failure: the large promises of Ibn-el-Arabi had not been fulfilled, and Charles, resentful, perhaps suspecting treachery, determined not to suffer the evil counsellor to be at large.
+
+The cause of the failure was probably in part to be found in the premature rising of Abderrahman-ibn-Habib, son-in-law of Yussuf, who, before Charles entered Spain, had landed in Murcia with an army of Berbers, and had raised the standard of the
+
+Abbaside caliphs against his namesake Abderrahman-ben-Merwan. The utter failure of this expedition probably made it hopeless for Charles to proceed beyond the Ebro.
+
+Returning to Pampelona Charles levelled the walls of that city to the ground, to prevent its rebelling against him, and then began his march across the Pyrenees. On the highest point of the pass an ambush had been planted by the Wascones whose operations were concealed by the dense forests growing there. When the baggage-train and rear-guard came in sight they dashed down upon them. The surprise and the possession of the higher ground fully compensated for the mountaineers' inferiority in arms and discipline; in fact, in such an encounter the heavier armor of the Franks was a positive disadvantage. By the confession of the biographer of Charlemagne at least the whole of the rear-guard were cut to pieces, and with them fell many of the nobles of Charles's court, notably Eggihard the seneschal, Anselm the count of the palace; and Hruodland the governor of the Breton March. As night soon fell and the nimble invaders dispersed rapidly to their homes and hiding-places, revenge was impossible, and Charles returned to Chasseneuil with clouded brow, all his satisfaction at his successes in Spain—such as they were—being
+
+> *[Illustration: "Charlemagne fighting his way across the Pyrenees." Facing p. 196.]*
+
 ---

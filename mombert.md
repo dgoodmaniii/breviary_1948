@@ -1448,3 +1448,39 @@ At the gates an imperial reception awaited him at the hands of the most honored 
 The sight of the cross stirred the religious sentiment of the king; he dismounted, and his example was instantly followed by all the officers and nobles of his suite; he entered the city on foot and proceeded to the ancient basilica of St. Peter; as he ascended the stairs he kissed each step in a burst of reverential devotion, and when he reached the top, Hadrian, at the head of his clergy, gave him affectionate welcome. They kissed, but even on the way to the altar the king walked on the right of the pope.[^popeattime]
 
 [^popeattime]: The pope, at that time, certainly had not the faintest thought of asserting his equality, still less his superiority.—The whole account of this memorable visit follows the "Vita Hadriani."
+
+Charles was not remiss in any of the outward tokens of Christian devotion; he performed the prescript round, then in vogue with pilgrims, of all the basilicas; repaired to the Lateran to witness the administration of baptism by the pope, and on Easter Day set the edifying example of receiving at his hands, in the basilica of S. Maria Maggiore, the Holy Communion.
+
+Dinner in the Lateran prepared the way for much private intercourse. The pope approved all his acts past and future, nor failed to incite him to generosity by the presentation of the deed of the territorial grant made by his father of blessed memory to Stephen his predecessor. This is said to have occurred in St. Peter's on Wednesday in Easter week. The sight of that document, says the report, moved the king not only to confirm the grant but to augment it by further donations in territory which would soon become his by the right of conquest.
+
+It was not an oral promise only, but drawn up in writing. There in the basilica of St. Peter the king gave to the apostle and promised to the pope the cities and territory within the line of Luni, together with the island of Corsica, following that of Saranza, the Mons Bardonis, Berceto, Parma, Reggio, Mantua, and Monselice, the entire Exarchate as originally defined, as well as the Venetian provinces, Istria, and lastly the duchies of Spoleto and Benevento.
+
+The grant, writes Anastasius, was duly signed by all the bishops, abbots, dukes and counts present and drawn up in triplicate; one copy the king, with his own hands, placed upon the high altar of the church, a second he deposited in the tomb of the apostles, and a third (even more copies are mentioned) he kept for safe keeping in the Frankish archives.
+
+Unfortunately all the copies have been lost, and lost long ago, for not one of them has ever been produced.
+
+The high contracting parties then and there bound themselves by the most sacred and terrible[^subterribili] oaths to the inviolate observance of all the provisions of the engagement, which, if it ever was entered into, was one of the most memorable of record.
+
+[^subterribili]: "*Sub terribili sacramento.*" [Latin]
+
+Without discussing the wide question of the evidence, it is not hazardous to express doubt, for it is hard to believe that so sagacious and cautious a man as Charles should ever have committed himself to the bestowal of territory, the greater part of which did not yet belong to him; and, as a matter of fact, the alleged donation could not have been in any sense real, since his successors enjoyed until about the eleventh century all the rights of full sovereignty over the patrimony of St. Peter.[^vitahadriani4243]
+
+[^vitahadriani4243]: Vita Hadriani, cc. 42, 43.—Codex Carol. (ed. Jaffé) Nos. 54, 56, 61, 70–74; also respecting Spoleto, No. 57, Benevento, Nos. 83, 84, 87, and Corsica, Leonis II. ep. Jaffé, Bibl. IV., p. 310.
+
+Before parting the pope is said to have presented to the king a copy of the canons of the Church with a metrical dedication, inscribed with his own hand, and forming the anagram "Pope Hadrian to his most excellent son, King Charles the Great." The dedication styles him "the defender of Holy Church who, after the example of his father, and with the help of Christ and the keys of St. Peter, had trodden under foot the nations, his enemies;" it adds, "that the light of the true doctrine shone on his throne; that he had restored to the Church her ancient possessions; that he had conquered the Lombards and Huns; that the fame of his glorious line was destined to resound throughout the world," and concludes thus: "he reigns high, noble and in splendor over the kingdoms which obey his sceptre; he has followed the wake of the apostles; the people have welcomed him with songs of praise and thanksgiving; Pope Hadrian, the pontiff of Christ, predicts his triumph; Peter and Paul are sure to protect him."[^sirmondconcil]
+
+[^sirmondconcil]: Sirmond, *Concil. Gall.* [Latin] t. ii., p. 117.
+
+A dedication inscribed to "Charles *the Great*" in 774, and adverting to the conquest of the Huns, which occurred more than twenty-one years later and after the death of Hadrian, is either a most wonderful prophecy or the production of an author not well up in chronology. It is unquestionably a forgery.
+
+Slightly anticipating the order of events, it seems safest to conclude the account of the donation in the words of Einhard: "Suffice it to say that this war ended with the subjection of Italy, the banishment of King Desiderius for life, the expulsion of his son Adelchis from Italy, and the restoration of the conquests of the Lombard kings to Hadrian, the head of the Roman Church."[^vitac6]
+
+[^vitac6]: Vita, c. 6.
+
+The meeting of the king and the pope was one of clear understanding; they formed a strong and enduring alliance of mutual friendship and support, and commemorated the event by ordering a medal to be struck which represents them holding conjointly the Gospels lying on an altar; bearing on the obverse the words: "With thee as with Peter, with thee as with Gaul," and on the reverse, the legend: "Sacred League."[^obversetecum]
+
+[^obversetecum]: Obverse: "*Tecum sicut cum Petro, tecum sicut cum Gallia.*" [Latin] Reverse: "*Sacr. foed.*" [Latin]—Leblanc, *Traité des Monnaies* [French].
+
+They had looked into each other's eyes, and essayed to probe each other, with the result, that they deemed themselves as mutually indispensable as the hands of the body, which, in the proverbial phrase of Germany, wash one another. Hadrian, before they parted, advised his royal guest to seize the whole of Lombardy, but warned him against its incorporation with the Frankish empire; he thought the style and title of "King of the Franks and of Lombardy" ought to content him, and that such a course would both enhance his personal popularity and conciliate the people. He wrote in the same strain afterwards, for he had the matter much at heart, and doubtless thought not less of his own interests than of those of his most excellent son. Hitherto he had been able to invoke the aid of the king of the Franks against the Lombards, but in the possible event of a disagreement with the king of the Franks, as master of Italy, whose aid could he seek against *him*? Charles took the hint, but worked it in his own way.[^codcarolep55]
+
+[^codcarolep55]: Cod. Carol. Ep. 55, apud Bou-

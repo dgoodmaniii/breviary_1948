@@ -1058,4 +1058,16 @@ Returning to Pampelona Charles levelled the walls of that city to the ground, to
 
 > *[Illustration: "Charlemagne fighting his way across the Pyrenees." Facing p. 196.]*
 
+marred by this dishonor to his arms and by the loss of so many of his friends.
+
+The date of this disaster is fixed by the epitaph of the seneschal Eggihard to the 18th of August 778. The place, by undeviating tradition, has been identified with the wild gorge of Roncesvalles. It is indeed somewhat difficult to understand how even the main body of the Frankish army could have escaped, if the foes were on the very summit of the pass, and if the skirmish took place at Roncesvalles on the Spanish side of the mountain: but this may be accounted for by the distance at which the baggage-train and the rear-guard lagged behind the van.
+
+It was at this same point of the Pyrenean ridge and through this same defile of Roncesvalles that Soult's gallant soldiers forced their way in 1813, when the French marshal made his brilliant, but unsuccessful, attempt to turn Wellington's position and raise the siege of Pampelona.
+
+But who were these Wascones, and what was their quarrel with Charles? Certainly they were not Saracens or Mussulmans as the minstrels of later centuries supposed. A part of the mysterious Basque race, which has throughout the historic period occupied the high upland valleys on either side of the Western Pyrenees, and has given its
+
+name to Biscay in Spain and to Gascony in France, these mountaineers represent probably the oldest population of Europe of which any traces now remain. Their language, bearing no relation to any Aryan or Semitic tongue, is to this day one of the great unsolved enigmas of philology. As has been said, they were certainly not Mussulmans, and they may have professed and called themselves Christians, but it is not necessary to seek for any deep political combination, Christian or Mohammedan, to account for their attack on Charles's baggage-train. The men whose ancestors had been driven, perhaps two thousand years before, into those mountains by the Celts, were determined, and had been determined ever since, to keep their last asylum free from the foot of the invader. Roman and Goth had vainly tried to subdue them, and now this Frankish interloper should have a lesson that should prevent his paying too frequent visits to their mountains. Theirs was a savage love, not merely of independence but of absolute isolation: that, and the attractions of the Frankish baggage-train seem quite sufficient to account for the disaster of Roncesvalles.
+
+Among the nobles who fell was, as has been said, Hruodland, governor of the Breton March. This is none other than the far-famed Roland of mediæval romance. The minstrels and *trouveurs* [French] of much
+
 ---

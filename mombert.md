@@ -431,3 +431,30 @@ It represents him wearing the imperial crown, in the posture of kneeling, and ho
 | | Death of Pepin the Hunchback, at Prüm. |
 | | Death of King Charles, December 4th. |
 | 812 | Death of Hemming, king of the Danes. Struggle for the succession. Harald and Reginfrid kings. |
+| | Arrival of Byzantine ambassadors from Emperor Michael I., Rhangabe. |
+| | Frankish ratification of the peace at St. Mary's, Aix-la-Chapelle. |
+| | Charles sends Bernhard, son of Pepin, to Italy. |
+| | Saracen piracies in the Mediterranean. |
+| | Peace (armistice) with El-Hhakem. Failure of the siege of Huesca. |
+| | Peace with Benevento. |
+| | Subjection of the Welatabians. |
+| 813 | Despatch of an embassy to Constantinople. Leo V., emperor. |
+| | Diet at Aix-la-Chapelle (?), early in the year. |
+| | Provincial Synods at Mayence, Rheims, Tours, Chalon, and Arles. |
+| | Burning of the Rhine-bridge at Mayence. |
+| | Louis quells the revolt of the Vasconians, and crosses the Pyrenees. Attempted ambuscade. |
+| | Charles is taken sick in the Ardennes; he sends for Louis. |
+| | General Diet at Aix-la-Chapelle. Important legislation. |
+| | Designation, acclamation, and coronation of Louis as associate-emperor. |
+| | Ratification of peace with Denmark. Revolution in Denmark. |
+| | Norman and Saracen piracies. |
+| 814 | Charles has an attack of fever, January 22d; pleurisy sets in. |
+| | Receives the sacrament, January 27th. |
+| | Death, at 9 A. M., January 28th. |
+| | Buried, the same day, in the basilica of St. Mary at Aix-la-Chapelle. |
+
+---
+
+## BOOK I.
+
+### ANCESTRAL PERIOD, A.D. 680–A.D. 768.

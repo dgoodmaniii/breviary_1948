@@ -2189,4 +2189,24 @@ According to the explicit testimony of a reputable author, writing towards the c
 
 [^translatiosliboriimgss]: Translatio S. Liborii, MG. SS. IV., 149 sqq.
 
-Some of these details doubtless belong to later times, but the general principle appears to be correctly stated. Such an arrangement existed with respect to Paderborn, etc.; the subsequent diocese of Verden was in the first instance a dependency of the monastery of Amorbach, and the first two bishops of Verden were abbots of the said monastery; their episcopal status being purely titular, and hardly rising
+Some of these details doubtless belong to later times, but the general principle appears to be correctly stated. Such an arrangement existed with respect to Paderborn, etc.; the subsequent diocese of Verden was in the first instance a dependency of the monastery of Amorbach, and the first two bishops of Verden were abbots of the said monastery; their episcopal status being purely titular, and hardly rising above that of *episcopi in partibus* [Latin];[^abelsimson1349] a similar plan was observed with the mission in Eastphalia.[^ibidp354] Sundry assertions to the contrary, such as the erection of the eight Saxon dioceses of Bremen, Halberstadt, Hildesheim, Verden, Paderborn, Minden, Münster, and Asenbrugg, at one time, according to one authority in *one day*,[^thietmarvii53] are doubtless pure inventions of a later age, and simply incredible.[^simson1356] The same applies to a pretended arrangement in virtue of which Charles engaged to donate portions of the conquered Saxon territory to St. Peter, that he set off and founded Saxon bishoprics by papal command, and endowed them with tithes; all such notices are destitute of authority, and conflict with the well-defined relations between Charles and the pope.[^simson1181]
+
+[^abelsimson1349]: Abel-Simson, *l. c.* [Latin] I., 349 sqq., 353, sqq.
+
+[^ibidp354]: Ibid., p. 354.
+
+[^thietmarvii53]: Thietmar, VII., 53, MG. SS. III., 860; cf. Annal. Saxo., MG. SS. VI., 560.
+
+[^simson1356]: Simson, *l. c.* [Latin] I., 356 sq.
+
+[^simson1181]: Simson, *l. c.* [Latin] I., 181 sq., 357 sq., and compare the respective chapters in Book III. of this work.
+
+The actual establishment of the Saxon bishoprics belongs to the period following the termination of the Saxon war. Bremen seems to have become the seat of a bishop in 805; Münster (*i. e.* [Latin], Mimigernäford) in 804; the only other Saxon bishopric erected during the life of Charles is that of Paderborn in 806, when the Saxon Hathumar, who had been educated at Würzburg, was consecrated as its first bishop. Paderborn, of whose church notices are given in another connection, had until then been under the ecclesiastical direction of the see of Würzburg.[^simson2313]
+
+[^simson2313]: Simson, *l. c.* [Latin] II., 313 sq.
+
+A peculiar case is that of the virtual abolition of the diocese of Buriaburg, near the Saxon country. It occurred under the following circumstances: Richulfus, the successor of archbishop Lul, stood in near personal relations to Charles; he was a member of the Palace School, where he bore the name of Flavius Damoetas. Contrary to usage his consecration took place, not at Mayence, but at Fritzlar, situated in the diocese of Buriaburg. The monasteries at these places having been founded by Boniface were in a certain sense dependencies of the archiepiscopal see of Mayence, and closely inter-related.
+
+Richulfus, desirous of asserting the dependence of Fritzlar on Mayence, designated it as the place of his consecration. The late bishop Witta of Buriaburg was suffragan of his predecessor, but judging it undesirable to revive the office, Richulfus adopted the expedient of abolishing the small diocese as a proper compensation to Mayence for the alleged loss of certain possessions or sources of revenue, which had been diverted to the support of the missions, eventually of the dioceses, in Saxony. His consecration at Fritzlar appears to have been the first step towards the cessation of Buriaburg, as a separate diocese,[^simson2538] and its incorporation with that of Mayence.
+
+[^simson2538]: Simson, *l. c.* [Latin] II., 538 sqq., and the authorities he cites.

@@ -2136,3 +2136,29 @@ This happened in 775. After that time he labored in the interior of the country,
 [^ibidc22]: Ibid. c. 22; cf. Spruner-Menke, *Histor. Handatlas* [German] No. 33.
 
 He was very successful, and with the king's approbation extended his labors to the island of Heligoland, or Fosetesland, as it was called, after Fosete, a divinity worshipped there. Though the island had been visited by Willibrord in the beginning of the century, probably not a vestige of his labors remained, and Liudger had to begin the work of conversion anew.
+
+As he drew near Heligoland, a dense fog which had hidden the island from view suddenly lifted; the change appeared to him in the light of a symbol, and he remarked to his companions, that it betokened the merciful power of God, who had chased away the Evil One who had so long covered the island with darkness. The work of conversion progressed apace; Liudger caused the sanctuaries of Fosete to be demolished and replaced by Christian churches, and baptized many of the islanders, among them Landric, the son of a chieftain, with the water of the same holy well which Willibrord had used at the baptism of three men. That act had almost cost Willibrord his life, for the usage of the island forbade any to take water speaking, and his infraction of the law was viewed as sacrilege.[^ibidc22alcuini]
+
+[^ibidc22alcuini]: Ibid., c. 22; Alcuini Vita Willibr. (Jaffé, IV., 47, 48).
+
+The date of these events, and the duration of Liudger's stay on the island are not known; but he returned to the continent, and continued his work in Frisia, until (perhaps in 793) the king superadded to his pastoral care the district of Westphalia. About 804 he was consecrated as the first bishop of Westphalia. He built a monastery at Mimigernäford on the Aa; this old Saxon name gradually fell into disuse, and about the close of the eleventh century had been displaced by that of Münster (= minster, *monasterium* [Latin]). Liudger long resisted episcopal dignity, but at last yielded to the entreaties of archbishop Hildibald, of Cologne, who is believed to have been his consecrator. His diocese extended from the Lippe to the middle course of the Ems in Westphalia, and embraced also the five Frisian *gaue* [German], east of the Lauwers, the sphere of his former labors. Charles, moreover, provided for the diocese of Liudger, in the gift of the monastery of St. Peter at Lotusa in Brabant, with all its dependencies. Liudger, the first bishop of Westphalia, died March 26, 809, and was buried in the church of Werden on the Ruhr which he had built.[^abelsimson2ii]
+
+[^abelsimson2ii]: Abel-Simson, *l. c.* [Latin] II., 311 sqq.
+
+Another zealous and successful laborer was Willehad, or Vilhaed, an Anglo-Saxon from Northumbria. He was a friend of Alcuin, and before 780 rendered good service successively at Dokkum in the Ostergau, the scene of Boniface's martyrdom, at Hugmerke, and Thrianta. At Hugmerke he was in imminent peril, for the pagans declared his preaching the Gospel a capital offence, and he would have suffered death but for the interposition of some more mercifully inclined who persuaded their brethren to let the lot decide his fate; it fell in his favor, but though his life was spared, he was obliged to quit the locality.
+
+At Thrianta also he had a narrow escape in consequence of the imprudent zeal of some of his followers in the destruction of pagan sanctuaries. An infuriated Frisian struck him with his sword, but the blow, which was aimed at his head, fortunately glanced off in virtue of a reliquary suspended from his neck. The miracle so impressed the Frisians, that they desisted from further violence, spared his life, and suffered him to depart unhurt.[^vitawillehadic2]
+
+[^vitawillehadic2]: Vita Willehadi, c. 2 sqq., MG. SS. II.
+
+About 780 the conversions appear to have been of considerable magnitude. "The Saxons forsook their idols, worshipped the true God and believed in his works, and built churches. A multitude of pagan Wends also made their submission," say some authorities, while another annalist records that "a great multitude of Wends and Frisians were converted to *him*."[^annalpetavmosell]
+
+[^annalpetavmosell]: Annal. Petav., Mosell.
+
+The personal pronoun relates to Charles, and the conversion may denote either political submission, or reception of Christianity. At any rate we learn that the king in 777 "divided the country among the bishops, presbyters, and abbots, that they might preach and baptize."[^vitasturmic22] In virtue of this informal division of the country among a number of Frankish ecclesiastics, repeated and extended on a larger scale in 780,[^annalmosell2] Charles, impressed with the high qualifications of Willehad, commissioned him to proceed to Wigmodia, that is, the district between the Lower Weser and the Elbe, build churches and preach to the people.[^vitawillehadic5] After two years
+
+[^vitasturmic22]: Vita Sturmi, c. 22. MG. SS. II.
+
+[^annalmosell2]: Annal. Mosell.
+
+[^vitawillehadic5]: Vita Willehadi, c. 5.

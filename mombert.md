@@ -2641,4 +2641,24 @@ What occurred during the interval is not known; but to Ingelheim the duke repair
 
 [^annalnazarguelf]: Annal. Nazar., Guelf.
 
-A number of Bavarian counts, the counsellors and legates
+A number of Bavarian counts, the counsellors and legates of Tassilo, stood up in the Diet and laid to his charge numerous crimes worthy of death. It was charged that he had, at the instigation of Liutperga, violated his oath, in making overtures to the Avars, in essaying to corrupt the king's vassals, and in recommending or commanding his subjects to take the oath of allegiance with mental reservation; they also charged that he had said "that he would rather lose ten sons, if he had them, and die himself than have them fulfil the obligations he had undertaken on oath; it were better to be dead than endure the disgrace of such a life."
+
+Such was the tenor of the crimes of which he was accused; it is said that he admitted them, and "did not begin to deny any one of these charges." If he was guilty, it would have been madness to attempt a denial; if the charges were trumped up, the assertion of his innocence would not have bettered his case, but probably made it worse. His only chance of escaping the headman's axe was silence, or confession. He understood the temper of his cousin and brother-in-law, and knew that his fate was sealed; he could not possibly err in that conviction, when he found that the crime of *herisliz* [German], or desertion, of which he was declared to have been guilty twenty-five years before in the time of King Pepin, was raked up and added to the other charges. That was a capital offence, and the High Court of the Diet accordingly convicted him of high treason and condemned him to death.[^annallaurissmajeinh2]
+
+[^annallaurissmajeinh2]: Annal. Lauriss. maj., Einh., Lauresh., Nazar., al.
+
+**788]** What then occurred in the Diet is not of full record; there was probably a colloquy between Charles and Tassilo, and the unfortunate man doubtless implored the mercy of his all-powerful cousin, nor implored in vain, for Charles of his clemency commuted the sentence of death into compulsory assumption of monastic vows. The act of deposition and degradation, at the further request of Tassilo, did not take place then and there; he was spared that humiliation, and permitted to repair to the neighboring monastery of St. Goar, where the metamorphosis was effected privately. The monk who issued forth from that cell was sent to the monastery of Jumièges in Neustria. He went gladly (*libenter* [Latin]) to that haven of rest in order to spend the residue of his life in acts of penance for his many sins and to save his soul alive.[^annallaurissmajeinh3]
+
+[^annallaurissmajeinh3]: Annal. Lauriss. maj., Einh.—Annal. Nazar. say that tonsure was distasteful (*invitus* [Latin]) to him; Regino, MG. SS. adds that Tassilo prostrated himself before Charles, begging to be permitted to enter a monastery.
+
+A similar fate was meted out to the whole ducal family. The duchess Liutperga (a daughter of Desiderius and a sister of Desiderata) was compelled to take the veil in a convent,[^rudhartp323] perhaps that of Chelles, of which Gisla, the king's sister, was abbess; her daughters were forced to renounce the world in that of Laon;[^somesaybavarian] Theodo and Theotbert, the sons of Tassilo, also became, involuntarily, monks, the former at St. Maximin's, the latter in another monastery not known.
+
+[^rudhartp323]: Rudhart, p. 323, names Kochlsee, dioc. of Augsburg; but the place is uncertain.
+
+[^somesaybavarian]: Some say that the Bavarian princesses, who bore the names of Cotani and Hrodrud, were shut up in different convents, the one at Chelles, the other at Laon.—Riezler, *Geschichte Baierns* [German], I., 170, note.
+
+The estates and treasures of the ducal house were confiscated by Charles. Such of the Bavarian nobles as had stood by Tassilo, or even after his degradation had the hardihood of resisting, or attempting to resist, Charles, were sent into exile.[^annallauresheinh4]
+
+[^annallauresheinh4]: Annal. Lauresh., Einh., Lauriss., Nazar., Petav.; Gesta abb. Fontan. c.; 16; Chron. Moiss.; Vita Caroli, c. 11.
+
+Then, most probably immediately after the adjournment of the Diet, Charles proceeded in person to Bavaria to complete the subjugation of the duchy. He defined the frontiers, especially in the direction of the Avars, by military occupation; undertook the regulation of its internal affairs by immediate annexation and the radical change of its status from that of an independent state into a Frankish province, administered not by a duke, but by counts, acting under his own directions as expounded by his brother-in-law, duke Gerold (brother of the sainted Queen Hildegard),

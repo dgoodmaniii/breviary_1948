@@ -1483,4 +1483,48 @@ The meeting of the king and the pope was one of clear understanding; they formed
 
 They had looked into each other's eyes, and essayed to probe each other, with the result, that they deemed themselves as mutually indispensable as the hands of the body, which, in the proverbial phrase of Germany, wash one another. Hadrian, before they parted, advised his royal guest to seize the whole of Lombardy, but warned him against its incorporation with the Frankish empire; he thought the style and title of "King of the Franks and of Lombardy" ought to content him, and that such a course would both enhance his personal popularity and conciliate the people. He wrote in the same strain afterwards, for he had the matter much at heart, and doubtless thought not less of his own interests than of those of his most excellent son. Hitherto he had been able to invoke the aid of the king of the Franks against the Lombards, but in the possible event of a disagreement with the king of the Franks, as master of Italy, whose aid could he seek against *him*? Charles took the hint, but worked it in his own way.[^codcarolep55]
 
-[^codcarolep55]: Cod. Carol. Ep. 55, apud Bou-
+[^codcarolep55]: Cod. Carol. Ep. 55, apud Bouquet. The epistle was written before the capture of Pavia. Muratori fails to establish the date of 782. Annali d'Italia, IV., p. 365.
+
+Laden with the benisons of the pontiff, the king returned to the army before Pavia, and ordered the most vigorous prosecution of the war, not only under his own immediate observation, but at Verona, which was also girdled by his steel-clad warriors, and throughout the territory north of the Po. The results became soon manifest; the northern country submitted without much resistance; Pavia held out two months longer, until famine and pestilence, sent (according to Anastasius) by an angry God, compelled Desiderius to open her gates, and surrender at discretion.
+
+The isolated notice[^annlaurissminor] that he and the Lombards entered the Frankish camp and voluntarily laid down their arms is credible; but there is no good ground for the story that an Italian, called Peter, treacherously opened the gates to the conqueror, and in reward of the act became bishop of Verdun.[^mgss4] An ancient chronicler also narrates the treason, but makes Desiderata the traitor. According to him, she wrote a letter to Charles, tied it to a stone, thrust it by means of a *ballista* [Latin], or military engine, into the hostile camp, in which she undertook to give him the city if he would marry her. She received a favorable reply, stole the keys, despatched a second letter by *ballista* [Latin], and notified her lover that that selfsame night, at a given signal, he might enter the city. The gates were opened at the set time, when the love-lorn maiden hastened forth to greet her husband, but in the tumult and the darkness of the night was trampled to death by the horses.[^chronnoval3] The ridiculous myth, doubtless the invention of a later age, may possibly cover something which the obsequious annalists would not or dared not record.
+
+[^annlaurissminor]: Ann. Lauriss. minor.
+
+[^mgss4]: MG. SS. iv., 44.
+
+[^chronnoval3]: Chron. Noval, III., 14.
+
+It is certain that Pavia was surrendered, that Desiderius, Ansa his queen, and Desiderata his daughter, became prisoners of war, and that the royal treasure fell into the hands of Charles.
+
+The fall of Verona followed, some say preceded,[^forauthoritiesreasons] that of Pavia. The gallant Adelchis held out to the last, but, preferring voluntary exile to the dreaded fate of involuntary religious contemplation, left the city to its fate. He was the last hope of the Lombards, and in expectation of a turn in the affairs of his country sought the coast, sailed to Constantinople, found a hospitable and cordial welcome at the court of Constantine, and there grew old with the honors of the rank of a patrician.[^annaleinh2] It will be remembered that the widow and children of Carloman, together with Otgar, were in Verona; they also fell into the hands of Charles.
+
+[^forauthoritiesreasons]: For authorities and reasons see Böhmer, *l. c.* [Latin], 64.
+
+[^annaleinh2]: Annal. Einh.
+
+What became of her and hers is not known; the fate of the members of the royal family also, who went into banishment, is by no means established. The most respectable authorities simply state that Charles carried them into Francia;[^annalsamand] others add, that Desiderius and Ansa were shut up in the monastery of Corbie, where he spent the residue of his days in vigils, prayers, and fasting, and many good works;[^annalsangallmaj] and still others speak of a more fearful fate. The common people of Italy believed, as late as the eleventh century, that the conqueror caused his eyes to be put out before he left Pavia;[^chronsalern] but such a statement, though not incredible, is certainly weakened by the explicit declaration of a contemporary Lombard historian, famed for his great attachment to the Lombard family, "that he [Charles] exhibited the rare example of tempering his victory with clemency."[^pauldiacss265]
+
+[^annalsamand]: Annal. S. Amand., Mosell., Lauresh.—Vita Hadr., c. 44.
+
+[^annalsangallmaj]: Annal. Sangall. maj. cf. Bouquet, V., 385.
+
+[^chronsalern]: Chron. Salern.
+
+[^pauldiacss265]: Paul. Diac. MG. SS. II., p. 265.
+
+It seems, therefore, most charitable to indulge the hope that all the royal captives found the best asylum to be had in those fearful days in the seclusion of cloistered walls.
+
+The capture of the royal family and treasure, the flight of Adelchis, the fall of the capital and the strongest cities, together with the virtual conquest of the whole country, left the dukes, princes, and nobles of the Lombard dominion no other choice but that of acknowledging the supremacy of the king of the Franks and accepting him as their lord. All took the oath of fealty, except the dukes of Benevento and Spoleto.
+
+Thus ended the Lombard dynasty, which had lasted two **774]** hundred and four years. The earliest authentic date of the change is June 5th; it occurs in a document, executed on that day in the city of Pavia, and marks the beginning of the second period of the reign of Charles (774–800), during which he bore the title of "King of the Franks and Lombards," augmented by the further designation of "Patrician of the Romans." The epoch of the event is now accepted to lie between the 30th of May and the 2d of June.[^seeauthoritiesbohmer]
+
+[^seeauthoritiesbohmer]: See authorities in Böhmer, *l. c.* [Latin]
+
+We cannot vouch for the reality of the grand and imposing ceremonial alleged to have been enacted in the cathedral of Monza, but give it as one of the numerous legends belonging to this reign.
+
+On a set day the Estates of Lombardy were assembled, and Charles, attended by a large number of bishops, was conducted to the presence of the archbishop of Milan, who asked them if they were willing to be subject and render faithful obedience to the king before them. The sacred edifice rang with their loud acclaim. Mass was begun, and in the middle of the service the archbishop anointed the king, girded him with a sword, presented to him the bracelets, the ring, and the royal mantle, and crowned him with the golden crown, which on account of an iron band on the inner side, believed to have been wrought of the nails used in the Crucifixion, bears the name of the "Iron Crown."[^someholdanciently]
+
+[^someholdanciently]: Some hold that anciently the iron band was the only crown in use, while others assert that one of the Lombard queens devised the plan of two kinds of metal as a standing admonition to the kings that the crown is often a crushing burden, and that "all is not gold that glitters." See Sigonius, p. 145; cf. Muratori, *Anecd.* [Latin] II., 267 sqq. Le Cointe, VI., 51 sqq.; Leibniz, *Annales*, I., 55 sq.; Pauli Diac. Hist. Langob., VI., 55. SS. rer. Langob., p. 184.
+
+The legendary character of this pretended coronation at Monza is clearly established, for according to Lombard usage the elevation of the sovereign was attended, not by coronation, but the presentation of a spear. The "Iron

@@ -1722,3 +1722,53 @@ As it was, Charles laid waste the country, carried off a multitude of prisoners 
 [^annalpetav]: Annal. Petav.
 
 [^anneinhfuldmosell]: Ann. Einh., Fuld., Mosell., Lauresh.
+
+still greater than before; many thousands of them lay dead on the field, a long train of prisoners went into captivity, and a great quantity of spoil fell into the hands of the victorious Franks. The Saxons, utterly demoralized, were unable to rally that season, or dispute the progress of Charles, who crossed the Weser, laid waste the whole country as far as the Elbe, sowed dragon's teeth against the future, took his measures for the present, "all well disposed and ordained," and returned into Francia.[^annaleinhlaurissfragment] What these dispositions were is not known; perhaps the phrase means only the garrisoning of forts, and possibly the distribution of mounted troops or gendarmes.
+
+[^annaleinhlaurissfragment]: Annal. Einh., Lauriss., Fragment in Forsch. VIII., p. 632.
+
+At any rate they did not prevent the resumption of hostilities, for part of the Saxons during the winter formed an alliance with the Frisians, and the whole Saxon country was as much in revolutionary commotion as before.
+
+**784]** But Charles was bent upon its final subjugation, and marched against the doomed people as soon as the roads were passable to his army. After the periodical devastation of Westphalia he went into camp on the Weser at a place called *Huculvi* [Latin], supposed to be identical with the modern Petershagen; but as freshets in the river checked his progress in the North, he determined to continue the work of destruction in the eastern parts of the country, and leaving his son Charles, a lad of only thirteen summers, in command of a *scara* [Latin] for warfare in Westphalia, swept through the territory of the Thuringians to near the confluence of the Saale and the Elbe, made a convention with the natives of the region, of which nothing is known, and returned to beyond the Rhine—not, as had been his wont heretofore, for the year—but only temporarily, in order to make the necessary preparations for a winter campaign. Prince Charles took part in an insignificant cavalry fight which figures in the annals as a victory.[^annaleinhfuldlauriss]
+
+[^annaleinhfuldlauriss]: Annal. Einh., Fuld., Lauriss.
+
+Late in the year the Frankish army arrived, went into camp on the Emmer, and after New Year the king, with the **785]** royal family, proceeded to the Eresburg and inaugurated the new campaign with a series of raids, conducted partly by himself, partly by others, designed to terrify the enemy, and prevent further insurrections.
+
+It was terrible work; the whole country was laid waste with fire, and every Saxon rebel instantly cut down; the Frankish troopers hunted the wretched people out of their hiding-places, and with such remorseless severity "that the roads were cleansed, and no rebels to be seen."[^annallaurisseinh2] 
+
+[^annallaurisseinh2]: Annal. Lauriss., Einh., Fragment, *l. c.* [Latin]
+
+With the exception of a short interval occasioned by the meeting of the Diet at Paderborn, the systematic devastation of the country was continued with unabated violence. The whole region lay open before Charles, records a scribe, and in that part of Saxony he might go without let or hinderance wherever he pleased.[^annallauriss3] In other words, the country was a wilderness; a famine broke out; and neither forage nor supplies of any kind could be had for many miles around; all military operations were suspended until provisions arrived from beyond the Rhine.
+
+[^annallauriss3]: Annal. Lauriss.
+
+An expedition into the *Bardengau* [German] consummated the subjugation and conversion of its Saxon inhabitants, and led to successful negotiations with Wittekind and Abbio, who were with the Northalbingians beyond the Elbe. Charles sent Saxon ambassadors to the chieftains, bidding them come to him in good faith, nothing doubting.
+
+If he charged them with perfidy, they also put no faith in his promises and tender mercies, and refused to come, not "because the consciousness of their many crimes" filled them with fear, but because they required hostages for their personal safety.
+
+The king acceded to their request, and promised to give them, not improbably in a personal interview with them, when all the details of their projected journey to Francia were arranged.
+
+None can tell by what means he overcame their stubborn resistance; by the suasions of his eloquence or something else; the conviction of the utter hopelessness of further resistance, or the interposition of Divine Providence. The fact that he overcame it is indisputable; he left Saxony, sent the promised hostages, and soon greeted the illustrious chiefs at Attigny in Francia.
+
+The conversion of Wittekind was a grand and wonderful event. It terminates the first stage of the terrible struggle.
+
+The famous champion swore fealty to Charles, king of the Franks, and fealty in Holy Baptism to the King of the king of the Franks, and of all kings. Charles himself stood sponsor for Wittekind, received him out of the font, in token of his good will loaded him with royal gifts,[^annalmosell785] and named him duke of Saxony, not however as an independent sovereign, but as his vassal. Beyond the undoubted fact, that thenceforth he observed good faith, both as a vassal and a Christian, nothing is known of him in history. Abbio also embraced Christianity, and their example was largely followed by their countrymen. The king was so delighted with his successful missionary operations that he sent a special envoy to Hadrian announcing the conversion of the Saxons, and desiring him to signalize the glorious event
+
+[^annalmosell785]: Annal. Mosell. a 785.—I subjoin, as of special interest, the form of words used probably at the baptism of Wittekind, and at that of Saxons generally. It has been assigned to the eighth century; the clause in the third response concerning the Saxon deities may have been added at Fulda where *this* formula probably originated.
+
+    FORMULA.
+
+    "Forsáchistu diabolae? et respondeat: ec forsacho diabolae.
+
+    end allum diobolgeldae? respondeat: end ec forsacho allum diobolgeldae.
+
+    end allum dioboles uuercum? respondeat: end ec forsacho allum dioboles uuercum end uuordum thunaer ende woden ende saxnote ende allum them unholdum the hira genotas sint." [Old Saxon]
+
+    gelobistu in got alamehtigan fadaer? ec gelobo in got alamehtigan fadaer.
+
+    gelobistu in crist godes suno? ec gelobo in crist gotes suno.
+
+    gelobistu in halogan gast? ec gelobo in halogan gast." [Old Saxon]
+
+    Capp. ed. Boretius, I., 222, No. 107. A Frankish formula, assigned to 787–813, and of Mayence origin, is given by Müllenhoff and Scherer, *Denkmäler deutscher Poesie und Prosa* [German], 2 ed., p. 156, No. 52. Cf. ibidem, p. 494 sqq.; Waitz, III., 2 ed., p. 161;—Abel-Simson, *l. c.* [Latin] I., 499 sq.

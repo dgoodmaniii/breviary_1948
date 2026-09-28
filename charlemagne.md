@@ -1005,4 +1005,18 @@ slain by the sword and partly hung from gallows, and so with their lives paid fo
     "They met in the church of St. Peter at Ratisbon and discussed all the details of the plot in the hearing of a cleric who from some cause or other had found his way into the church. Perhaps he came to sleep there; the conspirators found him hiding under the altar, and, strange to tell, contented themselves with his solemn promise on oath that he would not divulge the ominous secret. But the oath sat lightly on his conscience, and the moment after the conspirators had left he ran half-dressed at the dead of night to the royal palace and gave the alarm.
     "No one could stay his progress on his way to the royal bed-chamber; he passed through seven doors and at last stood before it and so frightened the ladies in attendance upon the queen that they shut it in his face; they tried to stifle their laughter at his appearance with their dresses [*sic*]. But the king had heard the noise and asked what it meant. They said that a half-clad, scraped, silly, and raving scamp demanded to see the king, and made an unmannerly noise. Charles sent for him and made him tell all he knew. 'Before the third hour of the day,' writes the Monk, 'all the chief conspirators, not expecting anything of the kind, were either on the way to exile or punishment. The dwarfish, hunchbacked Pippin received a good beating, was shaved, and sent *for a little while* to the monastery of St. Gall to do penance.'"—Mombert, p. 219.
 
+Pippin's own life was spared, but his head was shorn, and he was sent "to serve God in a monastery." The place of his confinement was Prum in the Moselle country, and there apparently he remained till his death, which happened in 811. So ended the last and probably the most dangerous of the conspiracies against King Charles's life and government.
+
+---
+
+## CHAPTER VIII.
+
+### RONCESVALLES.
+
+Though the greater part of his life was passed in war, and though he was undoubtedly a man of great personal courage, Charlemagne cannot be considered a great military commander. We have the testimony of Einhard that in the whole long Saxon war he himself was personally engaged in only two pitched battles, and most of his campaigns seem to have consisted rather of military promenades, against brave but ill-armed foes, than of hard-fought battles in which the genius and courage of the king at a critical moment secured victory to his troops. But if not a great captain, he was a great and successful planner of campaigns; not so much a Hannibal or a Napoleon as an "organizer of victory" like Carnot.[^carnot]
+
+It is remarkable that in the most famous battle which he fought, neither his strategy nor his tactics
+
+[^carnot]: Lazare Nicolas Marguerite Carnot (1753–1823) served as minister of war for nearly three years during the French revolution. His success as a strategist won for him the popular title of "organizer of victory."
+
 ---

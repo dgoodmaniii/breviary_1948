@@ -527,6 +527,24 @@ and so supported, was one that he dared not refuse, and he most reluctantly gave
 
 "But the king," says the papal biographer, "hearing of the pope's arrival, went with great speed to meet him, together with his wife, his sons, and his chief nobles. For which purpose also he directed his son, named Carolus, to meet that quasi-angelic pope, together with some of his nobles. Then he himself, starting from his palace at Ponticum [Ponthieu], dismounted from his horse, and going three miles to meet him, with great humility prostrated himself before him on the ground, and so, together with his wife,
 
+sons, and nobles, received that most holy pope, to whom also he served the office of a groom, running for some distance by his stirrup. Then the aforesaid health-bringing man, with all his train, in a loud voice giving glory and ceaseless praises to Almighty God, marched to the palace, together with the king, with hymns and spiritual songs. This befell on the 6th day of January (754), on the most holy festival of the Epiphany."
+
+This journey of the pope across the Alps is not only the first of a long and fateful series, but affords us our first glance at that young lad who was then only "the king's son Carolus," but who was one day to deal with popes on his own account, and was to be known, the world over, as *Carolus Magnus* [Latin] ("Charles the Great"). The date, as well as the place of his birth, is uncertain, but it is probable that he was born in 742, the year after his father's accession to the mayoralty, and was therefore under twelve years of age when he was sent by his father to accompany Pope Stephen II. on his journey of not less than 200 miles from St. Maurice in Switzerland, to Ponthieu in Champagne.
+
+At the entry of the pope, the Frankish king had humbled himself before him. On the next day the parts were reversed. "The pope appeared, together with his clerical companions, in the presence of Pip-
+
+pin. Clothed in sackcloth, and with ashes on his head, he cast himself on the ground, and besought the king, by the mercies of Almighty God, and by the merits of the blessed Apostles Peter and Paul, that he would free himself and the Roman people from the hand of the Lombards, and from slavery to the proud king Aistulf; nor would he arise until King Pippin, together with his sons and the nobles of the Franks, stretched forth their hands and lifted him from the ground as a sign of their future support and a pledge of his liberation."
+
+There are some indications that the nobles and warriors of the Frankish Court were averse to undertaking the risks and hardships of a Transalpine campaign, and it was probably for the sake of winning their concurrence that this scene was enacted. The king, though not perhaps very eager in the cause, was sufficiently bound to the pope by the memory of past favors, and the hope of favors to come, in the shape of papal blessings on his newly-assumed royalty.
+
+The winter months of 754 were passed in embassies between the two kings. Pippin called upon Aistulf to cease from his impious presumption, and to leave unmolested the city of St. Peter and St. Paul. His ambassadors brought back naught but words of pride and obstinacy from the Lombard. War was
+
+resolved on, but before it began, Pippin, mindful of the chances of war, and determined to secure the succession in his family, resolved to have another confirmation of his doubtful title from the hands of his venerable guest. Pope Stephen, who had passed the winter at the wealthy convent of St. Denis, "anointed the most pious Prince Pippin King of the Franks and Patrician of the Romans with the oil of holy anointing, according to the custom of the ancients, and at the same time crowned his two sons, who stood next him, in happy succession, namely, Charles and Carloman, with the same honor."
+
+This passage is an important one, and we must pause upon it for a few minutes.
+
+First, as to the rite of anointing. The writers who have most carefully inquired into the matter, are clear that this rite, though it had been practised upon the later Visigothic kings of Spain, and upon some of the British kings in Wales, was new to the Frankish monarchy, when performed first by Boniface and then by Stephen on the head of Pippin. It really rested upon Old Testament precedents, such as the anointings of Saul and of David: and it was possibly intended, as already hinted, to replace in some degree the religious sanction which in old heathen days royal families, such as the Merovin-
+
 ---
 
 pushing any dispute between them to extremities, in view of the far more tremendous danger which threatened them and all Christendom from the turbaned followers of the Prophet who were now beginning to swarm over the passes of the Pyrenees.

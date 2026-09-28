@@ -175,3 +175,21 @@ Thus already in the fissure between the western and eastern portions of the Mero
 [^merovingian]: The Merovingian kingdom took its name from the grandfather of Clovis: Merwig, or Merowig: the Latin form being *Merovœus* [Latin], and the French *Mérovée* [French].
 
 ---
+
+## CHAPTER II.
+
+### EARLY MAYORS OF THE PALACE.
+
+The historical student who visits in thought the nursery of modern European states—the period from 500 to 800 of the Christian era—finds with amused surprise how many of the features familiar to him in their weather-beaten old age he can trace in the faces of those baby kingdoms. Gothic Spain, with its manifold councils, its ecclesiastical intolerance, and its bitter persecutions of the Jews, is the anticipation of the Spain of the Ferdinands and the Philips. Italy, cleft in sunder by the patrimony of St. Peter and with the undying hostility between the pope and the Lombard king, presages the very conflict which is now being waged between the Vatican and the Quirinal. England, notwithstanding all her early elements of confusion and mismanagement, clings desperately to her one great saving institution of the Witan,[^witan] and thus travails in birth with the future parliament.
+
+[^witan]: The Anglo-Saxon word *witan* [Anglo-Saxon] means wise man. The council called the Witenagemot was the assembly of the king, nobles, and clergy, a precursor of the parliament of later years, but with greater powers than those ever exercised by parliament.
+
+And even so, France under the Merovingian kings is the land of centralized government, which though strong and imposing in theory, repeatedly shows itself weak and insufficient in practice from the incapacity of the governing brain to perform the manifold functions assigned to it by destiny. As far as we can see, Clovis and his immediate successors wielded a power which was practically unlimited. The checks which the German nations from the time of Tacitus downwards had imposed on the authority of their kings had almost entirely disappeared before the overmastering power of the great Salian chief who had united the whole of Gaul under his sway, and who was continually reminded by his friends, the Christian bishops, how high had been the throne and how heavy the sceptre of the Roman Augustus in that very region. The well-known story of the vase of Soissons illustrates at once the German memories of freedom and the Merovingian mode of establishing a despotism. As a battle comrade the Frankish warrior protests against Clovis receiving an ounce beyond his due share of the spoils. As a battle leader Clovis rebukes his henchman for the dirtiness of his accoutrements, and cleaves his skull to punish him for his independence.
+
+There can be little doubt that it was the influence of Roman and ecclesiastical ideas which tended to
+
+exalt the rude chiefs of the Salian tribe into their later position of practically despotic monarchs, surrounded by a crowd of fawning flatterers and servile courtiers. The effect of this exaltation on the royal house itself was disastrous. Merovingian royalty flowered too soon and faded early. Clovis himself was short-lived, dying, as we have seen, at the age of five-and-forty. But two or three generations later the career of the kings, his descendants, was of far more portentous brevity. Nothing is more common than to find a Merovingian king who is a father at fifteen, or even earlier, and who dies (not always by a violent death) under thirty. Let us take a few of the lives of the later kings as an illustration. Dagobert I., who is a sort of patriarch among them, dies at thirty-eight; his son, Clovis II., at twenty-four; of the sons of this latter king, Chlothair III. dies at eighteen, Childeric II. at twenty. Theodoric III. actually lives to the age of thirty-eight, but of his sons one dies at thirteen and another at eighteen. And so on with many other names that might be quoted. It was evidently by their vices that these hapless "do-nothing" kings were hurried to such early graves. Every student of the pages of Gregory of Tours[^gregory] knows the
+
+[^gregory]: Gregory was born in Auvergne, France, about 540, and became bishop of Tours in 573. He wrote a work in ten books
+
+---

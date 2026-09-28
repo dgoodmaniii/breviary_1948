@@ -2793,4 +2793,34 @@ The progress of the Frankish hosts was unimpeded; the Avars were strongly intren
 
 They were utterly demoralized from the start, but their miraculous stampede may possibly be explained by the intelligence they possessed of the defeat of their brethren at the hands of the Italian army. But be that as it may, they did nothing to check the advance of Charles. He led his legions to the Raab, crossed that river, and swept along its northern bank to where it joins the Danube.
 
-There he rested for several days, and ordered the army to return by way of Sabaria, the modern *Stein am Anger* [German], where the old Roman roads met. His army carried fire and sword throughout the whole country for the space of fifty-
+There he rested for several days, and ordered the army to return by way of Sabaria, the modern *Stein am Anger* [German], where the old Roman roads met. His army carried fire and sword throughout the whole country for the space of fifty-two days. Universal devastation marked the path of all the armies; they carried off "spoil without measure and number, together with a countless multitude of prisoners in men, women, and children." His loss in men was merely nominal, but in horses prodigious, for an epidemic broke out which carried off nine-tenths of those in his own army.
+
+The army-corps of Theoderic and Maginfrid returned by the same way on the northern bank of the Danube through Bohemia, while his own took the southern, and thus retraced its way into Bavaria. Charles disbanded the army, and with his family and the court resided at Ratisbon.
+
+The net results of the expedition were these: the discomfiture of the impotent enemy was as much an established fact as the irresistible power and superiority of the Franks. The terror of their presence was prophetic of the ultimate destiny of the Avars. Their strength was broken, and their final subjugation only a question of time.
+
+Thus closed the first campaign against the Avars.[^annallaurisseinhlauresh]
+
+[^annallaurisseinhlauresh]: Annal. Lauriss., Einh., Lauresh.; cf. Chron. Moiss.
+
+The prosecution of the war was interrupted by several calamities, notably the conspiracy of Pepin the Hunchback, the massacre of count Theoderic, and revolts of the Saxons, as narrated in other connections, when an unexpected circumstance set in, which seemed to contemporary writers an almost miraculous interposition.
+
+Charles was in his camp at Hliune in the Bardengau when there arrived an embassy from the Tudun, one of the most powerful chieftains of the Avars, with the message that he and his people had determined to surrender themselves to the king of the Franks, and accept the Christian faith.[^annlauriss15]
+
+[^annlauriss15]: Ann. Lauriss., Einh., Enh. Fuld., Poeta Saxo.
+
+This was truly wonderful and seemed almost too good to be true; the king was delighted, and forthwith (for thus we construe what ensued) directed the margrave Eric of **795]** Friuli, as nearest to the country of the Avars, to take advantage of the internal dissensions of the enemy and strike a blow. The good news of so favorable a turn, and so signal an augury of success spread far and near, and the gentle Alcuin wrote to the patriarch of Aquileia: "How great is the goodness and wisdom of God! by His power and grace the race of the Avars has been wonderfully conquered. They have sent messengers to the king offering to submit in peace, and welcome the Christian faith!"[^epist56]
+
+[^epist56]: Epist. 56.
+
+It is known that a most sanguinary and destructive civil war distracted the Avars; and that the Khakhan (*i. e.* [Latin], the Khan of the Khans), or supreme ruler, and the Jugur, another chief leader, were put to death by their own people.[^annlaurisseinh2] At this juncture the raid, organized by the margrave Eric in conjunction with the auxiliary troops of Woinimir, a Sclavonian chief, was carried into effect. It was a brilliant and most successful affair. The troopers invaded Pannonia, swept through the country, entered and plundered the chief Ring, which for centuries had not been molested by an enemy, subdued such of the enemy whom they met, and carried off an immense amount of booty. It was one of the most remarkable exploits, perhaps the most dashing, successful, and important, in the reign of Charles; it stunned, crushed, almost annihilated the power of a foe who for ages past had been the terror of Europe.[^annlauriss16]
+
+[^annlaurisseinh2]: Ann. Lauriss., Einh.; cf. Zeuss, *Die Deutschen u. die Nachbarstämme* [German], pp. 729, 739.
+
+[^annlauriss16]: Annal. Lauriss., Einh., Enh. Fuld.
+
+Unfortunately the details of the expedition, of record, are hardly fuller than here narrated, but its results are established beyond all doubt. The stronghold or royal cas- **795]** tle and residence of the Avars, which the Franks call the "ring," and the Lombards "the field,"[^hringuscampus] is believed to have stood in the level plain between the Danube and the Theiss, and the most recent investigation indicates the Pusste Sarto-Sar, in the neighborhood of Tatar, as the probable site, where traces of the wonderful circular structure are said to have been discovered.[^riezlergeschichte182] The most circumstantial
+
+[^hringuscampus]: "Hringus" . . . "*Campus*." [Latin]—Annal. Einh., Enh. Fuld. cf. Zeuss., *l. c.* [Latin], pp. 4, 73.
+
+[^riezlergeschichte182]: Riezler, *Geschichte Baierns* [German], I., 182 n.

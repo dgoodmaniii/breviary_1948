@@ -1327,4 +1327,12 @@ master of his soul, and the legends of a later generation told how the visit of 
 
 Alcuin has been called the Erasmus of the eighth century, and though in one respect the comparison is too flattering, since the Northumbrian did but little for critical science, it gives on the whole not an incorrect impression of the literary position of this man, the "child and champion" of the Carolingian Renascence. It is evident that he and the men with whom he associated, Angles, Saxons, or Franks, were tired of the barbarism which had pervaded Europe for three centuries, and looked back with
 
+longing, perhaps sometimes with unwise longing, to the great days of Roman supremacy and peace. Even their Teutonic names were to them somewhat of a humiliation. In the literary circle or academy which formed itself in Charles's court, chiefly under Alcuin's influence, the members assumed classical names (like the Melancthon and Œcolampadius[^melanchthon] of a later Renascence), and corresponded with one another under these disguises. Thus Alcuin himself was Flaccus Albinus, Riculf (afterwards Archbishop of Mainz) was Damœtas; Angilbert, Charles's chaplain, was Homer; Arno, Archbishop of Salzburg, was Aquila. The name of the great king himself was David, a name admirably chosen to express his piety, his success in war, and his love of women.
+
+The event which brought "Albinus" and his "dearest David" together was a journey which Alcuin undertook to Rome in 781, in order to obtain the *pallium* [Latin] for his friend and superior, Eanbald II., Archbishop of York. Alcuin himself was at this time, and in fact throughout middle life and old age, only a deacon, though from his learning and
+
+[^melanchthon]: Melan-Chthon is merely the Greek translation of the German Schwarz-Erd, or Black-Earth; and Œco-Lampadius is the Greek equivalent of the German Hans-Schein which in turn was substituted for Hussgen or Heussgen.
+
+> *[Illustration: "Roland riding to his death at the battle of Roncesvalles." Page 190. Facing p. 250.]*
+
 ---

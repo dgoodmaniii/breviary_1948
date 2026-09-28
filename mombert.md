@@ -2045,4 +2045,46 @@ The statement of one authority[^annallaurissmin] that this terrible measure was 
 
 It is unnecessary to speculate on the spirit in which it was performed, since veracious documentary evidence fully reveals the fact that the raiders were men of brutal violence, without discrimination, who drove away whomsoever they met or found, the loyal with the rebel, and confiscated alike the possessions of Christians and pagans.
 
-In the next reign, for instance, a number of Wigmodians appeared before the imperial commissioners complaining that though they always were loyal to Charles, yet had
+In the next reign, for instance, a number of Wigmodians appeared before the imperial commissioners complaining that though they always were loyal to Charles, yet had their possessions been seized and confiscated. Upon thorough scrutiny it appeared that their allegations were true, and thereupon the confiscated possessions were restored to them.[^simsonjahrbucher]
+
+[^simsonjahrbucher]: Simson, *Jahrbücher* [German], p. 304, citing Sickel, and Wilmans.
+
+Even the Saxon Richard, a Christian, and in the service of Charles, a man of undoubted and self-sacrificing loyalty and devotion,[^seep136] suffered most grievously at the hands of the raiders. After the plucky recovery of his wife he succeeded in reaching his maternal inheritance in the canton of Merstem, situated between the Leine and the Süntel. That district also was doomed, and its population driven away. The hapless Richard, with his wife and children, were sent from place to place, and Richard died in banishment, or as his son expresses himself in a petition to Louis the Pious, "My father was removed from this light, and my mother only together with my sister and myself are left, and by the mercy of God survive to this day. Nevertheless we have not yet been able to recover our paternal inheritance."[^jaffe3]
+
+[^seep136]: See p. 136.
+
+[^jaffe3]: Jaffé, III., 319 sqq.; compare the list in MG., Leges, I., 89, which seems to contain the name of the said Richard.
+
+It is to be hoped that Louis was not slow in ordering its restoration, and rewarding the survivors for Richard's devotion to his father.
+
+The records do not name the localities to which the ejected and dispossessed Saxons were transported. Einhard says that Charles settled them, with their wives and children, in many different bodies, here and there in Gaul and Germany.[^vitacaroli7b] This is rather vague information, and the term "Germany" must be understood as comprehending the "marches." In a general way it is established that Charles had the habit of sending many Saxon hostages and captives to Frankish churches and monasteries with a view to their education as monks or priests. Many such are mentioned in connection with the monastery of Corbie on the Somme,[^translatiosviti] of which his cousin Adalhard was abbot; others
+
+[^vitacaroli7b]: Vita Caroli, c. 7.
+
+[^translatiosviti]: Translatio S. Viti; Jaffé, I., 6, 7.
+
+are spoken of as under the care of the bishops of Würzburg, Constance, Augsburg, and Mayence, the archbishop of Rheims, the abbot of Reichenau, and sundry Alemannian nobles. The first and second bishops of Paderborn were Saxons, the one a hostage, the other a noble.[^translsliborii]
+
+[^translsliborii]: Transl. S. Liborii, cc. 5, 6. MG. SS. IV., 151.
+
+The chronicles of St. Denis make the Brabants and Flemish Saxons, and say that they spoke the Saxon dialect,[^chrondesdenis] and a number of archæologists refer, but not on convincing grounds, the occurrence of names like Sachsenhausen, etc., to settlements incident upon the final deportation of the Saxons.[^seewaitz136]
+
+[^chrondesdenis]: Chron. de S. Denis, Bouquet V., 252.
+
+[^seewaitz136]: See Waitz, III., 136. Nos. 2, 3; Eckhart, *Franc. or.* [Latin] II., 35.
+
+Thus cruelly and ingloriously ended the Saxon war, "on the terms offered by the king," and accepted by the Saxons.
+
+But is this statement of his biographer entitled to respect? He adds that these terms were: "renunciation of their national religious customs, and the worship of devils, acceptance of the sacraments of the Christian faith and religion, and union with the Franks to form one people."[^vitacaroli7c]
+
+[^vitacaroli7c]: Vita Caroli, c. 7.
+
+They were accepted by those who escaped the sword, but not by those who were driven forth into the living death of a nameless exile; these last had no choice left to them.
+
+"Charles," writes one of the chroniclers, "returned with triumphal rejoicing into Francia."[^chronmoiss] He might exult in the consummation of his purpose, and riding through the desolated country, denuded of its inhabitants, past the ruins of their former idolatry, over the fields fertilized with their blood, think what his grandson Nithard the historian set down in writing: that "the savage and iron hearts of the Franks and barbarians, which the Romans sought in vain to subdue, had been curbed by the moderated terror of his indomitable will."[^histi1]
+
+[^chronmoiss]: Chron. Moiss.
+
+[^histi1]: Hist. I., 1.—MG. SS. II., 651.
+
+"Moderated terror" may be a pardonable euphemism

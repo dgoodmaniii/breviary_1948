@@ -2681,4 +2681,28 @@ The tantalizing mystification, which runs through the whole of the biography of 
 
 Reviewing the case of Tassilo it seems established that the invincible desire of independence was the remote cause of his fall, and his unpardonable offence. He doubtless felt and believed that the title of the Frankish sovereigns to the suzerainty of Bavaria was neither clear nor absolute. He saw in them the relentless enemies of his house, the usurpers of his hereditary rights and possessions. This explains his conduct in the reign of Pepin, and afterward in that of Charles. Alone, and uninfluenced by Liutperga, the daughter of the degraded and exiled king of the Lombards, he might have submitted with good grace and acted the part of a faithful vassal; but her antipathy to Charles gave him no rest, and fanned the embers of his discontent into open and persistent antagonism.
 
-That antagonism, however, was not shared by his subjects, who were more loyal to Charles than to their duke,
+That antagonism, however, was not shared by his subjects, who were more loyal to Charles than to their duke, and, if we may credit the Frankish annals, not only acknowledged the justice of his claim, but preferred acquiescence to hostile opposition.[^annallaurissmaj2] The papal bann of excommunication, moreover, widened the breach between the duke and his people; even bishop Arno, his own ambassador to Hadrian, seems to have shared the popular feeling, and aware of the sentiments both of the pope and Charles, used his influence with Tassilo to counsel submission.[^seenotessimson]
+
+[^annallaurissmaj2]: Annal. Lauriss. maj.
+
+[^seenotessimson]: See the notes in Simson, *l. c.* [Latin] I., 599 —Arno appears soon after as the partisan of Charles.
+
+Such was the situation at the time of the impressive ceremony in the Lechfeld. Then Tassilo returned to Ratisbon, while Charles conducted his army into Francia, and set up his court at Ingelheim near Mayence.
+
+The duke of Bavaria, in spite of his solemn oath of allegiance and the acceptance of the symbols of his vassalage, took immediate steps towards making it of non-effect. His course was most impolitic and injudicious; indeed an illustration of the old adage, that those whom God wishes to destroy, He first makes mad. He opened commerce with the enemies of Charles, and denounced him to his people; he absolved his subjects from the consequences of their oath, and recommended them to swear with mental reservation; he committed himself to the utterance of impassioned and hostile sentiments; he remained blind to the fact that he was surrounded by spies and enemies who reported all he said or did to Charles.
+
+His doom was fixed before he went to Ingelheim, and we can hardly doubt that the plan of his arrest, trial, humiliation, and degradation had been minutely mapped out.
+
+His own subjects, the most trusted and prominent of his counsellors, were his accusers, and when he was taken before the Diet, he must have felt that his case was utterly hopeless.
+
+The crowning accusation of the capital offence of *herisliz* [German] demonstrates, first, that the charges enumerated were probably exaggerated, at any rate not sufficiently established by evidence to justify extreme measures; and, secondly, that it was the set purpose of Charles to ruin Tassilo. None but Charles would have dared to unearth that old and seemingly forgotten crime of high treason.
+
+When Tassilo heard the word *herisliz* [German] in the accusation his heart must have failed him, for he knew that it meant death. Then monastic imprisonment was his only hope.
+
+Charles did not favor half measures, and effectually settled the Bavarian question by visiting the disgrace and degradation of Tassilo on all the members of his family. He made them all harmless and the whilom duchy of Bavaria sunk into a province of the Frankish Empire.
+
+Special pleading may succeed in justifying the course of Charles on the ground of political necessity, but even-handed justice condemns it as violent and cruel usurpation.
+
+The absorption of Bavaria into the Frankish system made the empire of Charles stand forth, well rounded off, in all the splendor of an unbroken whole from the Atlantic to the Elbe, from southern Italy to the northern seas.
+
+Only once more in the course of history re-appears the fallen Tassilo, at a place and a time where we might least expect him. The place was the Synod of Frankfort, and the time, the year of grace 794. The scene of Ingelheim was re-enacted, and, as it were, legalized by a Council of the Church. He was dragged from the obscurity of his cell, and introduced to the Synod, the veriest object of misery, invoking the royal clemency, because of his numerous crimes, both in the reign of the late King Pepin and in that of the present most pious King Charles. He renounced, without all wrath and strife, from the plenitude of a truly penitent heart and pure mind, then and for all time to come any and every claim in behalf of himself, his sons and daughters, to all his lawful possessions in Bavaria, and left the fate of his children in the hands of the mighty King of the Franks. Then, when Charles as *sobrinus* [Latin], or cousin-german, of the deposed and now beggared Tassilo, had secured the full legal title to all the personal property at stake, his bowels of mercy constrained him to extend to him the richest and freest token of forgiveness, and receive him

@@ -737,4 +737,22 @@ On the other hand, Abbé Duchesne, the learned and impartial editor of the *Libe
 
 Another theory for which some good arguments may be adduced, is that in this promised gift we are still dealing not with a grant of sovereignty but with a restitution of property; that for instance when Spoleto and Benevento are mentioned, all that
 
+Charles undertook, or at least meant to undertake, was that any "patrimonies" in either of those duchies of which the see of St. Peter had been unjustly despoiled by the Lombards should be restored to it.
+
+It is not for the present author to pretend to decide a question on which so many able scholars are at issue, and to which so many special treatises have been devoted; but the impression produced on his mind is that at least the hand of the interpolator, if not that of the wholesale fabricator, must have been at work in the passage which he has quoted from the *Liber Pontificalis* [Latin].
+
+Having finished his conferences with the Pope, in which he discussed with him many matters ecclesiastical as well as civil, Charles returned to his camp under the walls of Pavia. It was now the tenth month of the siege: disease and probably famine were pressing the defenders hard: and Desiderius, who had never been a popular sovereign, heard on every side of the defection of his countrymen. At length on a certain Tuesday in June (774) the city opened her gates to her conqueror. The great hoard was handed over, the nobles and chief men from all the cities of northern Italy came to Charles seated in the royal palace of Pavia, and acknowl-
+
+edged him as their lord: the dominion of the Lombards in Italy was at an end.[^brycequote]
+
+To Desiderius and his family Charles showed himself merciful in his triumph. The fallen king was carried across the Alps, accompanied by his wife and one daughter (whether this was the divorced wife of Charles we know not), and was invited to enter the seclusion of a monastery, in Austrasia, where, if any faith is to be placed in the stories that were current a century or two after his death, he devoted himself with assiduity to the duties of the cloister, and even declared that he would not desire to resume his crown, having entered the service of the King of Kings.
+
+Very soon after the capture of Pavia, Charles was back again on the Rhine, as the affairs of North Germany required his immediate attention. It was perhaps in part from the scantiness of his leisure,
+
+[^brycequote]: "Charlemagne swept down like a whirlwind from the Alps at the call of Pope Hadrian, seized the King Desidirius in his capital, himself assumed the Lombard crown, and made northern Italy thenceforward an integral part of the Frankish empire. Proceeding to Rome at the head of his victorious army, the first of a long line of Teutonic kings who were to find her love more deadly than her hate, he was received by Hadrian with distinguished honors, and welcomed by the people as their leader and deliverer."—Bryce, *The Holy Roman Empire*, chap. iv.
+
+but it was surely in part also from his statesman-like insight into the conditions of the problem before him, that he made so little change in the internal constitution of his new kingdom. There was no attempt to amalgamate the regions north and south of the Alps: Italy did not become a part of "Francia," but Charles took his place as successor of the long line of kings from Alboin to Desiderius who had reigned over Lombard Italy. "*Rex Francorum et Langobardorum atque Patricius Romanorum*" [Latin] ("King of the Franks and Lombards, and Patrician of the Romans"): that was now his full title. As King of the Franks he ruled the wide regions north of the Alps: as King of the Lombards he ruled all of Italy that the Lombards had once held: as Patrician of the Romans he seems to have been recognized as supreme ruler of all the rest of Italy except the little fragments on the coast which still held by their allegiance to the eastern emperor.
+
+What, then, during the years of transition between 774 and 800, were his relations to that eastern emperor? Some answer to this question will be given in a subsequent chapter. And what were his relations to the pope, in those territories in which his or his father's donation had taken effect? A question almost impossible to answer. Never was there a more striking case of that phenomenon of the Middle Ages to which M. Guizot has drawn attention, the co-existence of two opposing theories of
+
 ---

@@ -2921,4 +2921,32 @@ Exposed to the incessant and vexatious depredations of the Sclavonians, they des
 
 The piteous appeal of that broken-hearted Christian Avar chieftain, standing on the verge of the grave, told most eloquently and most pathetically what the Franks had done. "This war," writes Einhard, "was almost bloodless so far as the Franks were concerned;" but the mysterious work of the armies going into Pannonia, and returning in triumph throughout those long years, stands revealed in that dying man's story. The Avars were almost exterminated as a nation, and the poor remnant was obliged to retire before the pressure of the Sclavonians, and seek under the protection of the Frankish flag security of life and property.
 
-The descendants of the proud khakhans who dictated terms of peace, and exacted golden tribute from the Emperor of the East, came invoking the aid of the mighty Emperor
+The descendants of the proud khakhans who dictated terms of peace, and exacted golden tribute from the Emperor of the East, came invoking the aid of the mighty Emperor of the West, and craving his leave to occupy a strip of land not wider than the interspace of two of their ancient rings.
+
+Charles heard, and heard graciously, granted all that Theodore had asked, rejoiced him with tokens of his favor in an imperial gift, and sent him home. Soon after his return Theodore died.[^annaleinhmaxim] The new khakhan sent a legate to Charles, begging the emperor to permit his resuming the position and authority of old enjoyed by his predecessors. The request was reasonable enough, but only imported the empty honors of a degraded office which, under Frankish supremacy, could never be exalted to its former glory.
+
+[^annaleinhmaxim]: Annal. Einh. Maxim.
+
+It is idle to speculate on the precise character of the dignities attached to the khakhanship, but the petitioner obtained what he sought. The emperor ordered that thenceforth the khakhan should be clothed, as of old, with supreme power.[^annaleinhmaxim2] The khakhan was pleased, and the Bavarian annals record the fact that he accepted Christian baptism and was christened Abraham.[^annaljuvmaj] It is certain, moreover, but unrecorded, that the imperial permission was not prejudicial to the interests of the Frankish dominions, and for all practical purposes this is truly the end of the Avar wars and—of the Avar nation.
+
+[^annaleinhmaxim2]: Annal. Einh. Maxim., Enh. Rat. Maj. Fuld.
+
+[^annaljuvmaj]: Annal. Juv. Maj.; S. Emmer.
+
+---
+
+The conquest and conversion of the Avars, and the contact of the Franks with certain Sclavonian tribes on the eastern and southern frontiers of Bavaria, suggest a retrospective view of the course of events in that country prior to the degradation of its last duke, the unfortunate Tassilo.
+
+In no country east of the Rhine had Christianity struck deeper roots. Bavaria was the natural bulwark to western civilization from the fierce barbarism of Asiatic tribes, and her last duke was as valiant a champion in the field, as a zealous propagator of the Christian faith.
+
+Synods, composed of secular and spiritual dignitaries, were held at an early date, one at Aschheim in 756, another at Dingolfing, about 769; several at Freising, and yet another at Neuching, unless it be accepted as identical with that of Dingolfing. The decrees of the last-named synod form part of the so-called "Laws of duke Tassilo," incorporated with the Bavarian Code.
+
+The twelve Canons of the latter are of a miscellaneous character, dealing alike with civil and ecclesiastical affairs. They enjoin strict Sabbath observance, exhort bishops to live according to the Canons, and abbots according to the Rule, and make the marriage of nuns a canonical offence.
+
+They likewise provide for the *weregeld* [German] of certain laics, the tenure and conveyance of property, and accord to a noble lady ignorantly marrying a man not free the privilege of annulling the marriage; they also regulate judicial combat, etc., etc.[^simsonlc151]
+
+[^simsonlc151]: Simson, *l. c.* [Latin] I., 51 sqq.
+
+Connected with the Canons is the "League made by the bishops and abbots in Bavaria for deceased brethren."[^legiii461] It was a "Covenant of Death," or "Death League," much in vogue at the time, and reflecting the current belief as to the condition of the departed. In the event of a member of the League dying, his surviving brethren, being bishops or abbots, were bound to say for his benefit a hundred masses, or cause to be chanted a hundred psalms. Every bishop or abbot, moreover, was obliged to say himself, or cause one of his clergy to say, thirty additional masses for the same purpose. If the deceased was a presbyter or a monk, it was the duty of his bishop or abbot to cause a presbyter or a monk to say thirty masses, and chant the same number of psalms. The Bavarian Death League numbered nineteen members, six bishops and thirteen abbots; the bishops were the following: Manno (Neuburg), Alim (Seben), Virgilius (Salzburg), Wisurich (Passau), Sindpert (Ratisbon), Heres or Arbeo (Freising); and the abbots: Oportunus (Mondsee), Wolfpert (Niederaltaich), Adalpert (Tegernsee), Atto (Scharnitz-Schledorf), Uto (Illmünster), Landfrit (Benedictbeuern),
+
+[^legiii461]: Leg. III., 461.

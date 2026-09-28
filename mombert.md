@@ -2846,3 +2846,35 @@ The greater part of this wealth in gold and silver coin, sacred vessels, garment
 His gratitude was great and sincere, and found expression not only in liberal offerings to the churches of Christendom, but in munificent donations to the poor, the counts, the nobility, the royal officers and servants.[^annlaurisseinhlauresh2] A large share of the spoil he set apart as a special offering to Pope Hadrian, but before the gifts left Aix-la-Chapelle, he was
 
 [^annlaurisseinhlauresh2]: Ann. Lauriss.; Einh., Lauresh., alii.
+
+grieved by the intelligence of his death, of which more remains to be said on a subsequent page; in due course they were sent to his successor; nor did he stop there, for he directed that parts of the Hungarian spoils should be given to the Anglo-Saxon metropolitical cities, and he even remembered the king of Mercia in the presentation of a sword-belt, an Avar sword, and two Syrian palls or cloaks.[^epcarol1011]
+
+[^epcarol1011]: Ep. Carol. 10, 11.
+
+About this time, we suppose on good grounds,[^seethemreasoned] Charles was delighted that the Tudun, whose ambassadors had brought such good news into the camp at Hliune, kept his promise, and arrived with a large retinue at Aix-la-Chapelle, **796]** made the submission of himself and his people,[^annallaurisseinhalam] craving Christian baptism. The whole deputation expressed the same readiness, and then, probably at Easter or Whitsuntide, a scene was witnessed in the cathedral, the like of which had never occurred before.
+
+[^seethemreasoned]: See them reasoned out in Simson-Abel, *l. c.* [Latin] II., p. 117.
+
+[^annallaurisseinhalam]: Annal. Lauriss., Einh., Alam. al.
+
+A large number of Avars, so great that it is called "a large part of the Avars," in their strange costume, their hair braided in long tresses, intertwined with cords, falling on their necks, presented themselves for baptism, and were received into the church.[^thesame] The king himself[^annalmaxim2] received the Tudun from the font, gave honorable treatment to all the converts, and sent them, with rich gifts, to their distant homes.[^annallaurissmaximlauresh] Their baptism was the theme of universal comment throughout Christendom; the muse of Theodulf described it in metre, the ready pen of Alcuin rehearsed it in prose, and the eloquent lips of Paulinus announced it to a synod in Friuli.[^theodulfcarm25]
+
+[^thesame]: The same.
+
+[^annalmaxim2]: Annal. Maxim.
+
+[^annallaurissmaximlauresh]: Annal. Lauriss., Maxim., Lauresh., Alam. a. 795.
+
+[^theodulfcarm25]: Theodulf. Carm. 25; Alc. ep. 67; Paul. Aquil. Migne, XCIX., 284. Subjoined are the passages in full. "*Adveniunt gentes Christo servire paratae, Quas dextra ad Christum sollicitante vocas. Pone venit textis ad Christum crinibus Hunnus, Estque humilis fidei, qui fuit ante ferox.*" [Latin]—Theodulf. "*. . . tuis suo honori militantibus subdidit sceptris [Christus] praevenienteque gratia, colla diu superbissima sacrae fidei iugo devinxit et caecis ab antiquo tempore mentibus lumen veritatis infudit. . . .*" [Latin]—Alcuin. "*Gentes populosque Hunorum, antiqua feritate et fortitudine formidabiles, . . . Nunc autem divina opitulante clementia attritis utique ferocium barbarorum superbiae typho erectis cervicibus, auxilio per omnia adminiculante de coelo, reddita jam quietissima pace terris, superna prorsus largiente gratia . . .*" [Latin]—Paulinus.
+
+Unfortunately the Tudun's religious sincerity was equal to his political loyalty; he returned to Pannonia but soon fell from both, and miserably perished in captivity without the use of his hands, and the light of his eyes.[^annaleinhleibniz]
+
+[^annaleinhleibniz]: Annal. Einh.; Leibniz, Annal. imp. I., 190.
+
+The Franks followed up the advantage they had gained the year before. A large army, composed of troops collected in Italy, and an auxiliary force of Bavarians and Alemannians, was mustered by Pepin and entered the hostile country. At his coming the new khakhan and many magnates presented offerings and voluntarily made their submission to the Franks. Thus encouraged the martial king of Italy advanced, apparently without opposition, to the "ring," possessed himself of the treasure which Eric's raiders had left, and so effectually demolished the entire enclosure that, "the site of the khan's palace became a desert without all trace of human habitation." That treasure, among other things, contained, if the record is true, many sacred vessels, church ornaments, ecclesiastical vestments, the robes of nuns, and the like, for which the Avars and Huns had a singular fondness, although the uses to which they put them were vile and insulting, it being charged that their own women affected to wear under demoniac influence the hallowed garments of Christian ministers and nuns.[^histlangobss]
+
+[^histlangobss]: Hist. Langob. SS. rer. Langob. et Ital. saec. VI.–IX., 11.—Rhythmus de Pipp., etc. Poet. Lat. aevi Carol. I., 116.
+
+It is difficult to reconcile this bloodless triumph with the statement, that "the general destruction of the region, and the depopulation of the country, bear witness how many battles were fought in those [seven] years, and how much blood was shed," and that "the entire body of the Hun nobility perished in this contest, and all its glory with it."[^annallauriss17]
+
+[^annallauriss17]: Annal. Lauriss.; Alam. (Murb.); S. Amandi.—Rhythmus de Pippin.

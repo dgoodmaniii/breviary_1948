@@ -1078,3 +1078,57 @@ The domestics on a *hof* [German] were often mechanics and artisans; for as ther
 The Frankish kings were judges, and the administration of justice was regarded as the primary function of royalty.[^marculfform25]
 
 [^marculfform25]: Marculf, l. I., form. 25.
+
+Next to the king ranked the duke, whose office is expressly described as a judiciary dignity. Assessors or assistant judges appear in the presence of the king, the duke, and the count, who ranked next to the duke. Bishops and the highest secular officers assisted the king, *scabini* [Latin] and *rachimburgii* [Latin] the duke and the count.[^guizotessai] There were likewise deputy officers, or "vicars." Petty cases were decided by hundreders, who were subordinated to the counts. The hundreder probably derived his name from the limitation of his jurisdiction, in times of peace, to a hundred men (or families) who in time of war constituted his command.[^marculfi8]
+
+[^guizotessai]: Guizot, *Essai sur l'Histoire de France* [French], pp. 259, 272.
+
+[^marculfi8]: Marculf, I., 8. Schmidt, *l. c.* [Latin], II., 8.
+
+The Court was mostly held in a field or on a hill, called *mallstatt* [German], or *mallberg* [German], that is, the place or hill where the *mall* [German], or Court, assembled, and the judge set up his shield of office, without which he might not hold Court. The Court was always open to the people; sometimes attendance of the people was compulsory. Extreme simplicity marked the procedure; cases relating to the church, widows, and orphans had the priority.
+
+The laws were brief and pointed, the arguments oral. In Bavaria forgetful or over-reticent witnesses were quickened to intellectual activity by having their ears pulled.
+
+It should be added that the terms "duke" and "count" were simply official designations, unconnected with the geographical and political division of the country.
+
+The duke might have a larger judicial district than the count, but both filled similar positions, and directed the administration of justice, police, and the royal revenue.
+
+It was their duty faithfully and firmly to dispense justice to the Franks, Romans, and Burgundians according to their several laws, defend the cause of the widow and orphan, punish crime, promote the public safety, and collect the royal dues.
+
+These offices, in the early period of Frankish history, were held only for a limited term; in later times they were granted for life, and among the Bavarians and Alemannians appear to have been hereditary.[^legalemxxx5] The Bavarians were privileged to retain their ancient prerogative of choosing their dukes from the race of the Agilolfingians.[^legbaiaorii20]
+
+[^legalemxxx5]: Leg. Alem. XXX., 5; Baiaor. II., 10.
+
+[^legbaiaorii20]: Leg. Baiaor. II., 20.
+
+Hereditary succession appears from a memorable custom of the Alemannians for adjudicating the case of a rebellious son, who during his father's life-time, and while that father was still able to promote the king's advantage (that is able to command an army and mount a horse), sought to secure the duchy by violence. The attempt was disallowed, but the son's right to succession seems implied, not only upon the father's natural demise, but also in the event of his political death, which occurred when he became physically unfit to carry arms and mount a horse.[^schmidtii266]
+
+[^schmidtii266]: Schmidt, *l. c.* [Latin] II., 266.
+
+This ancient notion prevailed as late as the thirteenth and fourteenth centuries among the Saxons and Suabians. The Saxon code enacts:
+
+"A man may, without the consent of the heirs, freely dispose of his personal belongings and landed estate . . . so long as he is able, having a sword girded to his side, and carrying a shield, to mount a horse from a stone or stand, an ell high, without other assistance than that of some one holding the horse and stirrup. If he cannot do this, he may not dispose of such belongings, etc., to the detriment of those looking to their possession after his death."[^legsaxi52]
+
+[^legsaxi52]: Leg. Sax. I., 52.
+
+The Franks had no standing army, but all nobles and freemen, both among the Franks proper and the nations confederated with them, were bound to military service.
+
+"Two classes of persons were bound to military service; the *leudes* [French], both vassals and after-vassals, in virtue of their fiefs; and the free Franks, Romans, and Gauls serving under the count, and led by him and his officers.
+
+"Freemen were such as, on the one hand, held no benefice or fief, and on the other, were not liable to the servitude of the glebe; their lands were called allodial lands.
+
+"The counts assembled the freemen and led them to war; they had subordinate officers whom they called 'vicars,' and as all freemen were divided into hundreds, constituting a borough (*bourg* [French]), the counts were set over yet another class of officers, called 'centenaries' (hundreders), who led the free men of the borough, or their hundreds, to war."[^montesquieuespritiv]
+
+[^montesquieuespritiv]: Montesquieu, *Esprit des Lois* [French], t. IV., l. xxx. c. 17.
+
+Similar regulations were established throughout Germany; obligation to military service was inseparable from all lands held under Frankish rule; nor were church-lands exempt from it. The rigorous provisions of the military laws set forth in the reign of Charles, which are noted in other portions of this volume, existed for the most part in Merovingian times.
+
+We conclude this sketch with a reference to the curious law prohibiting freemen to enter the church without the sovereign's permission. The reason, however, is sufficiently clear, for as all freemen were bound to military service, while ecclesiastics and monks were exempt from it, it follows that the State lost an able soldier in every instance.
+
+The Church approved of the principle of this law and the Council of Orleans passed a canon to that effect.[^canvi]
+
+[^canvi]: Can. VI.
+
+This law also was re-enacted by Charles, and explains that some entered the Church not from motives of piety, but for the purpose of escaping from military service and other public obligations, and others did so under the advice of designing men coveting their possessions.[^capitiia805]
+
+[^capitiia805]: Capit. II., a. 805.

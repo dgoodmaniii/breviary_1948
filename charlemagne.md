@@ -617,4 +617,26 @@ While Pippin was laboring over the work, so necessary from his point of view, of
 
 It was while tarrying at Saintes and celebrating his triumph over Waifar that Pippin was attacked by his last and fatal sickness. In vain did he visit the shrines of St. Martin at Tours and St. Denis at Paris. The hand of death was upon him, and having convoked all the nobles, dukes, and counts of the Franks, and all the bishops and chief ecclesiastics of the kingdom to an assembly at Paris, he there solemnly, "with the consent of his chiefs," divided his dominions between his two sons, Charles and Carloman. He then after a few days died (24th September, 768) and was buried at St. Denis with great pomp. He had governed the people of the Franks either as *major domus* [Latin] or as king for twenty-
 
+six years, and he had probably reached about the 54th year of his age. The princes of the Arnulfing line, though not like the debauched and short-lived Merovings, seldom saw the end of their sixth decade of life.
+
+What Pippin did for the foundation of the monarchy which was to be the basis of the new settlement of Europe, was in its way quite as important and even more enduring than that which was done by his more illustrious son, upon whose reign we now enter.
+
+---
+
+# PART II.
+
+## FROM THE BIRTH OF CHARLEMAGNE.
+
+---
+
+## CHAPTER V.
+
+### FALL OF THE LOMBARD MONARCHY.
+
+THE situation of affairs after the death of Pippin seems at first sight almost the exact counterpart of that which existed at the death of Charles Martel. We have again two brothers ruling, one of them a Carloman, and the Frankish dominions are divided between them. There are however some important differences. In the first place the two young princes are now not mere *majores domus* [Latin] but acknowledged kings. Moreover, the division of the Frankish territories between the brothers proceeds on a different principle from that adopted in 741. The dividing line then ran north and south: now it is more nearly east and west. Thus Charles, the elder son, again has Austrasia and the North German lands dependent upon it, but probably also the larger
+
+part of Neustria; while Burgundy, Provence, and Alamannia (Swabia) fall to the lot of Carloman. Aquitaine, which Pippin looked upon as his own conquest, was probably included in Charles's portion. But the general tendency of this division, even more perhaps than of the division of 741, must have been to give the lands where the memories of Roman civilization were strong and where the Latin tongue was used, to the younger brother, and all the specially Teutonic, Frankish lands, the cradle of the Arnulfing race, to the elder.
+
+Another, and what might have been a more important difference between the two partitions, lay in the relation between the brothers. So long as the partnership lasted between the elder Carloman and Pippin they appear to have lived in mutual loyalty and love; but the relation between Charles and the younger Carloman was one of scarcely veiled enmity. Their mother, the good and clever queen Bertrada, did her best to keep the peace between them, but some of Carloman's friends fanned the flame of discord. Dislike might have broken out into actual civil war but for the opportune death of Carloman, which occurred on the 4th of December 771, after a little more than three years of joint sovereignty. This Carloman is a much less strongly marked figure than his uncle and namesake, and in
+
 ---

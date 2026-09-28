@@ -1035,4 +1035,46 @@ A similar notion was present to the mind of the infamous Fredegonda, as she was 
 
 The ancient Germanic codes depict the people as chiefly occupied with war and the chase.
 
-In the Thuringian law "a lance" and "a man" occur as synonymous terms; the Alemannian code punishes the theft of a hunting dog with a fine of twelve solidi, that of a horse with six, and that of a cow with only one solidus. Dogs
+In the Thuringian law "a lance" and "a man" occur as synonymous terms; the Alemannian code punishes the theft of a hunting dog with a fine of twelve solidi, that of a horse with six, and that of a cow with only one solidus. Dogs and hawks seem to be in universal use; and their distinctive names, still current, are mostly of Germanic origin. The chase was followed not as a sport, but as a means of life. The forest was vast, game abundant, and a freeman might hunt on his own land to his heart's content.
+
+The various branches of agricultural life are also duly recognized in the codes; thus we read of cabbage gardens, orchards, and even vineyards, and learn from the *weregeld* [German] the relative estimate of human life as to occupation. Thus a swineherd or a shepherd ranks with a cook; a marshal set over twelve horses; a seneschal set over twelve men; and an armorer; the *weregeld* [German] of any of these classes of men was forty solidi.
+
+The Franks, and the Germans generally, did not favor city life; most of their cities, at this period, were of Roman origin. Farms and detached homesteads, well fenced in, and supplied with all the necessaries of life, were found wherever the forest had been cleared.
+
+But a large section of the country was still in a state of primeval wilderness. The great Buchonian forest stretched from the Werra to the Main, and north and south to an indefinite distance.
+
+Through this wilderness the abbot Sturmi wandered in search of a site for a monastery. He found nowhere settled habitations, and rested at night wherever he might be when the sun was setting. With a sword, which he carried, he cut down branches of trees, formed them into a fence for the protection of his beast from wild animals, which abounded in great number, called upon the Lord in prayer, and signing his forehead with the sign of the cross in token of his resignation, lay down to sleep. The earth was his bed. On one occasion a troop of wild Sclavonians, who had bathed in the river, met him naked as they were. They looked terrible and received him with insulting cries. Their interpreter asked him whither he was going, and he answered calmly: "Farther into the forest." The hand of God watched over him, and they let him pass unhurt. The place of their meeting struck him as suited to his purpose, and he chose it as the site of his monastery. There he built on the Fulda the famous institution known by that name.[^neandermemor]
+
+[^neandermemor]: Neander, *Memor. of Christian Life* [English], Bohn's ed., p. 474.
+
+Such was the forest. In the open country, a farm with all its immediate dependencies, such as houses, barns, stables, etc., was called a *hof* [German], that is a yard, or an area "hedged in;" a *hof* [German] with the land belonging to it was a *weiler* [German], that is a villa, or village; a number of such *weilers* [German] constituted a *markung* [German], and several of these formed a *gau* [German], canton, or county.
+
+The codes, likewise, contain references to houses, rooms, heated rooms, halls, barns, granaries, cellars, etc., which may describe an advance in civilization or indicate a lack of architectural skill, perhaps both, for it is singular that to this day a large number, one might say most, of the village houses in the south of Germany and elsewhere on the Continent are built on the primitive plan of affording, under the same roof, storage room for the produce of the field, apartments for the use of the family, and stable room for cattle.
+
+Agriculture was an occupation inferior to the military life, and the laws distinctly name such occupations as driving a cart, mending a fence, cutting hay, reaping grain, etc., under the head of *servile* labor.[^legbaioarvi2]
+
+[^legbaioarvi2]: Leg. Baioar., VI., 2.
+
+The true explanation of this and other peculiarities is the existence of slavery among the Franks and the Germanic nations generally.
+
+The prevailing usage of war deprived the captive, unable to provide his ransom, of his liberty; others lost it through debt or crime. Men were bought and sold, or stolen. Sometimes the state of servitude was assumed voluntarily and deliberately as an escape from military service or starvation. Sometimes "men surrendered themselves, as well as their properties, to churches and monasteries, in return for such benefits as they might reap by the prayers of their masters."[^hallamiic2citing]
+
+[^hallamiic2citing]: Hallam, *l. c.* [Latin], II., 2, citing Beaumanoir, c. 45.
+
+Such slaves, or serfs, were employed either as menials or tillers of the soil; or they received a piece of land to work for their own use, but subject to certain "villein" service, and the return of part of the produce to their master.
+
+"The third estate of men is that of such as are not free; and these are not all of one condition, for some are so subject to their lord that he may take all they have, alive or dead, and imprison them whenever he pleases, being accountable to none but God: while others are treated more gently, from whom the lord can take nothing but customary payments, though at their death all they have escheats to him."[^hallamducange]
+
+[^hallamducange]: Hallam, as before. Ducange, s.vv. *Villanus, Servus* [Latin], and Schmidt, *l. c.* [Latin], II., 260.
+
+The condition of a German serf was most abject and miserable, and under the law he was entirely at the mercy of his lord.
+
+The lord was wont to reserve certain fields, meadows, vineyards, etc., called "domanial lands" which were worked solely by serfs; they were bound to give three days of the week, throughout the year, to their culture; at seed time, moreover, it was their duty to provide part of the seed for those lands, plough and sow them, and in the harvest give every other day for cutting and reaping the crops. If the serf had received cattle, the compulsory service laid upon him was still greater, and bounded only by his ability to render it.[^legbaiaori14]
+
+[^legbaiaori14]: Leg. Baiaor, I., 14.
+
+The domestics on a *hof* [German] were often mechanics and artisans; for as there were only few towns, and as the free-born lord thought labor degrading, the unfortunate serfs were compelled to build the houses, and make the harness, shoes, and leather garments of their masters; the female serfs spun flax and wool, but that occupation was not degrading, and followed so universally by women of every class that the same code which calls the man "a lance" dubs the woman "a distaff" (*Kunkel* [German]).
+
+The Frankish kings were judges, and the administration of justice was regarded as the primary function of royalty.[^marculfform25]
+
+[^marculfform25]: Marculf, l. I., form. 25.

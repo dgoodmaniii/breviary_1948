@@ -2824,3 +2824,25 @@ Unfortunately the details of the expedition, of record, are hardly fuller than h
 [^hringuscampus]: "Hringus" . . . "*Campus*." [Latin]—Annal. Einh., Enh. Fuld. cf. Zeuss., *l. c.* [Latin], pp. 4, 73.
 
 [^riezlergeschichte182]: Riezler, *Geschichte Baierns* [German], I., 182 n.
+
+description, though rather fantastic and legendary, is that which the garrulous and credulous Monk of St. Gall, writing late in the next century, declares to have committed to writing from the oral description of a certain Adalbert, who took part in the fights with the Avars under count Gerold, the supreme count in Bavaria.
+
+The said Adalbert was greatly his senior, a man of only one topic, with which he ceased not to familiarize the Monk, who at the time was a boy, and a rather reluctant hearer. With this explanation the reader may peruse the subjoined account of that interesting and famous locality.
+
+"'The country of the Huns was surrounded with nine rings—' 'Rings?' asked the boy. 'It was protected by nine walls, or palisades,' explained the old soldier. 'The diameter of the first ring [*i. e.* [Latin], the distance of the space enclosed between the first and the second] was equal to the distance from Zurich to Constance.' The palisades were constructed of oak, beach, and pine logs, twenty feet in height and twenty feet in width, filled in with stones and lime, and closely covered above with sod. Trees were planted on the edges. Within the enclosures [*i. e.* [Latin], the interspace] the farms and villages were so disposed as to distance that each was so near the other as to fall within reach of the voice. The impregnable walls had narrow gates through which those living within or without the immediate enclosure were wont to issue forth on their predatory excursions. The distance from the second ring, which resembled the first in construction, to the third was equal to twenty German or forty Italian miles, and so on to the ninth, although each succeeding ring was much wider than that before. Homesteads, moreover, were so distributed between the rings, that trumpet-signals given in one were easily heard in the other."[^monachsangjaffe] The picture suggests a kind of Chinese wall nine times repeated, and the ninth concentric circle would enclose the royal residence, in which the accumulated wealth of ages, collected on predatory excursions,
+
+[^monachsangjaffe]: Monach. Sang. (ed. Jaffé), I., 34; II., 1
+
+from the wars of Attila until then, or extorted as tribute, lay treasured up. Some idea of the last may be had from the undoubted fact that the Greek emperors paid the Avars throughout the seventh century an annual tribute of 80,000 gold solidi, and upon one occasion the emperor Heraclius was forced to submit to the payment of 800,000 gold solidi.[^simson2102]
+
+[^simson2102]: Simson, *l. c.* [Latin] II., p. 102. Soetbeer in *Forschungen* [German], IV., 351; II., 336, n. 2.—Büdinger, *Oester. Gesch.* [German], I., 70. A view different from that presented in the text may commend itself to others. Contemporary and later writers treat the Huns and the Avars as the same people; this is the current opinion, which some denounce as inaccurate. Soetbeer, *l. c.* [Latin] observes: "It is possible that a large part of the plunder of the Huns found its way into the hands of the Avars; but the evidence is awanting, and the thing itself hardly probable. Nor is it established that the Avars gathered much booty on their predatory incursions of Western Europe, although they possibly took some." If this be the true state of the case, the mystery of the vast treasure found in the Ring is greater than ever; or are we to hold that the whole of the record is a myth? I accept the record, and the statements of the text rest on it.
+
+The greater part of this wealth in gold and silver coin, sacred vessels, garments, weapons and the like was seized by the raiders, and taken by Eric to Aix-la-Chapelle. Never before had such a multitude of spoil fallen into the hands of the Franks. "Up to that time the Huns had passed for a poor people, but so much gold and silver was found in the khan's palace, and so much valuable spoil taken in battle, that one may well think that the Franks took justly from the Huns what the Huns had formerly taken unjustly from other nations."[^vitacarc13] It is stated that fifteen wagons each drawn by four oxen, and all laden with the aforesaid treasure, were laid at the feet of Charles.[^annalnordhchronmelr]
+
+[^vitacarc13]: Vita Car., c. 13.
+
+[^annalnordhchronmelr]: Annal. Nordh., Chron. Melr.
+
+His gratitude was great and sincere, and found expression not only in liberal offerings to the churches of Christendom, but in munificent donations to the poor, the counts, the nobility, the royal officers and servants.[^annlaurisseinhlauresh2] A large share of the spoil he set apart as a special offering to Pope Hadrian, but before the gifts left Aix-la-Chapelle, he was
+
+[^annlaurisseinhlauresh2]: Ann. Lauriss.; Einh., Lauresh., alii.

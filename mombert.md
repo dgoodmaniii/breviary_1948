@@ -2549,4 +2549,28 @@ The royal offerings appear to have been truly magnificent, for as such we may re
 
 It is said that the pope had been approached by the Empress Irene, through her ambassadors, in the matter of an attempted reunion of the East and the West by means of intermarriages. There is no doubt whatsoever that the Princess Rothrud, the eldest daughter of Hildegard, a young lady of eight, was solemnly affianced to the Emperor Constantine (Porphyrogenitus), about two years her senior. The Greeks converted her name into Erythrea, and it was arranged that a Constantinopolitan officer came to the court of Charles and taught her Greek. There the matter ended, for the engagement was ultimately annulled. There is no evidence that the betrothal of the children covered the project of a matrimonial alliance by their parents.
 
-The presence of Hildegard, morality, politics, and last, not least, the unenviable reputation of Irene (of having poisoned the Emperor Leo, her husband) may be adduced
+The presence of Hildegard, morality, politics, and last, not least, the unenviable reputation of Irene (of having poisoned the Emperor Leo, her husband) may be adduced as grounds for discrediting the rumor, at least at this time.
+
+Some think, and probably they are right, that the plan of separate kingdoms with nominal but visible figure heads originated with the pope. One cannot read without a smile the grave contemporary notice that Charles on that Easter Day divided his dominions among his sons;[^annalsam2] as a matter of fact the whole arrangement was fictitious, for he held the reins of government with a firm grasp until he died. The juvenile kings were solemnly established in their capitals, put in charge of nurses, governesses, tutors, and guardians, who received their instructions down to the minutest particulars from Charles, and were required to keep him well informed of all their acts. He was also in the habit of despatching at stated intervals his *missi* [Latin], or special commissioners, whom he empowered to inquire into the conduct of the guardians, and, if necessary, to correct or cancel their acts. The record is silent as to the ceremonial observed with respect to the introduction of Pepin into Lombardy; but we know almost to a certainty that Rotechild, apparently an arbitrary man, was his *baiulus* [Latin], that is, his guardian and administrator. The common statement, that abbot Adalhard, and Angilbert, the latter with the title of *primicerius* [Latin], officiated in that capacity during the minority of Pepin, is untenable.[^vitaadalhc16]
+
+[^annalsam2]: Annal. S. Am.
+
+[^vitaadalhc16]: Vita Adalh. c. 16, is adduced in favor of Adalhard; Alcuini, ep. 4, 5 (Jaffé), in favor of Angilbert; and Muratori, *Antiq. Ital.* [Latin], II., 977 sq., in favor of Rotechild. See the merits of the question in Simson *l. c.* [Latin] II., 435, note 6; 436, notes 1, 2.
+
+In the case of Louis the information is fuller. The *baiulus* [Latin] Arnold was chief-guardian, and with him went a number of Frankish officers of rank and ability, "distinguished not only for bravery and firmness, but also for adroitness, and such as they should be, to be neither deceived nor scared by the cunning, fickle, and turbulent populations with whom they had to deal." A company of good nurses, under strong military escort, took charge of the juvenile majesty of Aquitaine, and conducted him in a cradle from the banks of the Meuse to those of the Loire. At Orleans they took him out of the cradle and prepared him for more dignified and martial presentation of the people. They encased him in a coat of mail, expressly constructed for his tender frame, gave him suitable weapons, set him on a charger, and, as he was too small to guide it or sit alone, held him in place, and thus introduced him into his dominions.[^vitahludc4]
+
+[^vitahludc4]: Vita Hlud., c. 4.
+
+The political situation in Italy was thoroughly discussed by Hadrian and Charles, and the former, as we know from his epistles, did not spare his insinuations as to the inimical attitude of Arigiso, the powerful duke of Benevento, a son-in-law of the dethroned Desiderius.
+
+He was truly a thorn in his eye, but Arigiso had cause to say that Hadrian was literally a scourge in his side. The pontiff saw his interest in the humiliation of so dangerous a neighbor, and would fain have persuaded Charles to overrun him with war, so that the patrimony of St. Peter, unrighteously withheld by the husband of Adelberga, might be restored, and so forth.[^codcarolejaffe]
+
+[^codcarolejaffe]: Cod. Carol., ed. Jaffé; Nos. 66, 87.
+
+The time for Frankish intervention in Benevento had not yet come, but there was another son-in-law of Desiderius, the duke of Bavaria, whose attitude was far from satisfactory to Charles. It is difficult to understand how Hadrian came to interfere, if he acted *proprio motu* [Latin], or at the instance of Charles. At any rate, a mixed embassy, composed of two bishops representing the pope, and of the deacon Riculf and the cupbearer Eberhard on the part of Charles, was sent to the refractory duke, to remind him of his oath of allegiance and demand its renewal.[^anneinh6b]
+
+[^anneinh6b]: Ann. Einh.
+
+Leaving this embassy on its way to Bavaria, we accompany Charles to Milan, where the archbishop Thomas did for the baby of the royal household, the princess Gisla, what the pope had done in the case of Pepin, that is, he baptized her **781, June]** and stood sponsor.[^annallauriss12]
+
+[^annallauriss12]: Annal. Lauriss.

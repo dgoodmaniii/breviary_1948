@@ -611,4 +611,36 @@ The evil consequences of the injudicious partition became soon apparent. Insurre
 
 The German notables, moreover, disliked and viewed with suspicion the prolonged vacancy in the nominal royal throne. This difficulty was easily overcome, for the brothers discovered the last descendant of Clovis, and in due course, probably at the next March-field (743?), effected his elevation.
 
-Their brother Grifo, also, at the instigation of his mother, the Bavarian princess Swanahild, rose in arms and claimed the inheritance. They marched against him, took Laon
+Their brother Grifo, also, at the instigation of his mother, the Bavarian princess Swanahild, rose in arms and claimed the inheritance. They marched against him, took Laon which he had seized, and placed him in close confinement in the fortress of Neufchâteau in the Ardennes.
+
+Fortunately they had the good sense of clinging together in cordial union, with the result that their authority was acknowledged at home, and its recognition speedily enforced in the outlying provinces and dependencies of the Frankish empire.
+
+[743] Their energy was remarkable; in one year they undertook two successful expeditions against the Aquitanians and Alemannians, and in the next, jointly defeated and routed the army of their rebellious brother-in-law, Odilo, [744] duke of the Bavarians; then they separated, and while Carloman chastised the Saxon Theoderic, Pepin stamped out a revolt in Alsatia.
+
+This harmonious co-operation continued two years longer, and was followed by the mysterious and still unexplained abdication of Carloman in favor of Pepin. It was a strange act, and although we may take our choice among the reasons which have been given, and speculate on the extent of his "devotion," "predilection for the contemplative life," or "remorse for cruelty in war," we cannot understand how any or all of them could justify it in so far as it affected the future of his sons. The spontaneous character of his abdication may be true in his own case, but few thinking people will believe that it was unaccompanied by pressure in the case of the sons who, though he commended them to Pepin, lost their inheritance, and practically vanished out of existence.[^carlomansons] His case, though the most conspicuous, is not the first example of the kind. Ceolwulf was the eighth Anglo-Saxon prince who turned monk, and Hunold, duke of Aquitaine, after an act of atrocious cruelty, donned the monastic garb in the island of Rhé, where his father was buried. His case was singular. He lured his brother Hatto from the city of Poitiers, had his eyes put out, abdicated in
+
+[^carlomansons]: *Annal. Einh.; Vita Caroli M.* [Latin] c. 2; *Annal. Petavian.* [Latin], MG. SS. I, 11; III, 170; *Vita Zachariæ* [Latin], apud Murat. ss. III, 164.—"*Sponte regnum reliquit filiosque suos Pippino fratri commendavit.*" [Latin] ("Of his own will he relinquished the kingdom, and commended his sons to his brother Pepin.") *Chron. Moissiac.* [Latin], a. 745.
+
+favor of his son Waifre, turned monk, and remained in that monastery until his son died, a quarter of a century later. Then he returned to his duchy, and to his wife,[^muratoriannali] but not to stay, as the sequel will show.
+
+[^muratoriannali]: Muratori, *Annali d'Italia* [Italian], a. 747.
+
+Carloman soon executed his purpose, went to Italy, took the monastic vows, and built a monastery on Mount Soracte, where he "enjoyed, for several years, the seclusion he desired; but so many Franks made the pilgrimage to Rome to fulfil their vows, and, on the way, insisted upon paying their respects to him, as their former lord, that the repose he so much loved was broken by these frequent visits, and he was compelled to change his abode. Accordingly . . . he abandoned the mountain, withdrew to the monastery of St. Benedict, near the castle of Monte Casino, in the province of Samnium,"[^vitacaroli2] and remained there, until, in an access of political aspiration, he returned to the world, to the indignation alike of the pope and his brother, and to his own unspeakable sorrow.
+
+[^vitacaroli2]: *Vita Caroli*, c. 2.
+
+His abdication left Pepin sole ruler of the Franks. Pepin, though short of stature, was a man of prodigious strength, and his physical endowment a fair exponent of his will power and intellectual calibre.
+
+About this time Grifo effected his escape. He fled first into Saxony, then into Bavaria, collected a large army, seized the government, and constrained Tassilo, duke of Bavaria, to make his submission. This course angered Pepin, who marched against him, took him prisoner, restored Tassilo, but, in token of his fraternal good feeling, and with a view to reconciliation, set Grifo over twelve counties in Neustria. His unruly step-brother, however, disliked the arrangement, soon broke loose again, and fled to Waifre, duke of Aquitaine.
+
+Retracing the course of events to the time of the accession of Pepin and Carloman, the situation in Italy now claims attention.
+
+The imperilled fortunes of the Church of Rome passed about the same time into the able hands of Zacharias, who entered upon the duties of the pontificate without the formality of its confirmation by the Greek emperor, or his representative, the exarch; and concluding that neither of these, nor the Frankish princes, were likely to espouse his cause against the Lombards, established amicable relations with Liutprand, and maintained them with growing cordiality until he died.
+
+Liutprand was succeeded by his nephew Hildebrand, for nine years past his associate in the throne; but his reign was of short duration, for after only seven months the people deposed him and elevated Rachis, duke of Friuli, to his place.
+
+With him also Zacharias lived on pleasant terms—and, strange to tell, such was the magic of his presence, that Rachis, at his bidding, not only gave up all hostile designs upon the city of Perugia, which he had invested, but abdicated the throne, turned monk, and joined the whilom duke of Austrasia in the cloister of Monte Casino. Nor was the conversion confined to the person of the king, for his wife and daughter also gave up the pomp and glory of the world, and withdrew to the retirement of the neighboring convent of Piombaruola.
+
+[749] The presence of two royal converts in a monastery within his call added lustre to the fame for sagacity which the successful intervention of Zacharias in public affairs had spread throughout Europe. And so it came to pass that Boniface, who was a warm admirer and earnest partisan of the pontiff, and had the ear of Pepin, suggested the expedient of submitting to his decision the vexed question of the Frankish kings.
+
+The mockery of that phantom royalty, so long maintained, was universally felt, and its utter uselessness as universally acknowledged. Charles Martel reasoned, if he did not say so, that it were better to have no king at all than the contemptible puppets who disgraced their ancestry and the royal office. It was his policy, and indeed that of all the mayors of the palace, to lessen respect for the effete Merovingian

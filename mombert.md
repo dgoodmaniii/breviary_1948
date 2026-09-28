@@ -981,4 +981,58 @@ Trial by combat was allowed in doubtful cases, especially "where a crime not cap
 
 In disputes touching land, the judge bade the litigants take some of the earth of the land in dispute, insert therein twigs of trees growing on it, place both in a sack, and hand it to him; the judge put his seal upon it and gave it to a trusted person for safe-keeping; the litigants, moreover, gave security for the combat.
 
-At the time set for the trial, the symbolical sack was placed between the combatants, who were required to touch it with their swords, and call God to witness, in prayer, that victory might be given to him whose cause was just. The victor was awarded ownership of the disputed possession,
+At the time set for the trial, the symbolical sack was placed between the combatants, who were required to touch it with their swords, and call God to witness, in prayer, that victory might be given to him whose cause was just. The victor was awarded ownership of the disputed possession, and the vanquished combatant or his relatives were fined in the sum of twelve solidi.[^legalemlxxxiv] Nobles fought on horseback, plebeians on foot, with the weapons belonging to their order. The Bavarians enjoined previous examination of the arms for preventing diabolical or magical fraud, and, if found free from such influences, their solemn consecration to the purpose in hand.[^heineccorpjur]
+
+[^legalemlxxxiv]: Leg. Alem. lxxxiv.
+
+[^heineccorpjur]: Heinecc. *Corp. Jur. Germ. Antiq.* [Latin], p. 329.
+
+Trial by combat was only one of not less than eight modes of *ordeal*, by which the judgment of God was ascertained, and a man expurgated of crimes imputed to him.
+
+In that "of hot iron," a priest seized the iron with a pair of pincers from before the altar, and carried it to the fire, chanting the *Benedicite* [Latin]; he sanctified the place with prayer, the fire with the Benediction, put the iron into the fire, sprinkled it with holy water, and said mass over it. Then, after a second sprinkling, he bade the accused take it up and carry it a distance of nine feet. His hand was sealed; after three days the seal was removed, and if the hand was unhurt, his innocence was established.
+
+In the "ordeal of boiling water," the so-called *Kesselfang* [German], a stone was thrown, or by a rope let down, into a cauldron filled with hot water. The accused was required to thrust his hand into it up to the elbow and bring up the stone; if he did it, he was innocent; if he failed, he lost his hand.
+
+In the "ordeal of cold water," the inculpated person was bound with a rope and let down into a vessel filled with water, or a ducking-pond; if he sank, he was innocent; if he rose, he was guilty.
+
+The "ordeal of a cut of bread or cheese," also called "corsned bread," or "ordeal bread," was much simpler. The accused had to eat the slice, and was innocent if it agreed with him, but guilty if it choked him, stuck in his throat, or caused pallor or trepidation.[^corsnedsayings] There was also the
+
+[^corsnedsayings]: Compare the old sayings, "May this bread be my poison," "May this bread be my last," and the French, "*Que ce morceau de pain m'étrangle si que je dis, n'est vrai*" [French] ("May this morsel of bread strangle me if what I say is not true.")—Giles Jacob, and Du Cange, s. v. "Corsned."
+
+ordeal of "taking the sacrament," a custom which lingers in the phrase, "I will take the sacrament upon it."
+
+In the "ordeal of the cross," the inculpated person stood in a cross, that is, with his arms extended for a certain time, at the end of which he would fall down in token of his guilt, but keep standing in attestation of his innocence.
+
+The "ordeal of the lot" was practised with osier twigs, or the twigs of a fruit-tree.[^tacitusdemgerm]
+
+[^tacitusdemgerm]: Compare Tacitus, *De M. Germ.* [Latin] c. 10; Leges Ripuar. XXXI., 5; Lex Frisonum, 14, ii.
+
+The ancient usage of compurgation, in which the accused sustained his own oath by the oaths of his friends, called *consacramentales* [Latin], who pledged their knowledge, or, at least, belief, of his innocence, was also allowed among the Germanic nations. Their choice, however, was not always optional with the accused; they were sometimes appointed by the court or judge, and called *denominati* [Latin]; they were generally twelve in number.
+
+Attempting the life of a king or duke, and the introduction of an enemy into the country, were the leading capital crimes; but even these might be composed, the first by the payment of the legal fine, the latter by banishment, in the option of the sovereign.
+
+The crimes of patricide, fratricide and incest were punished by confiscation of the property of the criminals, but all others might be settled by pecuniary composition.
+
+Composition, or the payment of the *weregeld* [German], for every kind of offence, from abusive or injurious speech to homicide, was all but universal.
+
+Every offence or crime had a fixed legal valuation, or taxation, called the *weregeld* [German], a compound in which *were* [German] expressed the value, and *geld* [German], the money or compensation. Every limb and part of the body, every life, according to station, every theft, etc., every animal, had a fixed legal value.
+
+The Salian law condemned the offender to pay to the relatives of the person slain, for an *antrustion* [Latin] of the king, that is, a person under his immediate and personal protection, six hundred solidi; for a free Frank, two hundred; for a free Roman or land-owner, one hundred; for a tributary Roman, forty-five. Under Burgundian law, however, murder was uniformly punished with death. The *weregeld* [German] for a stolen horse was forty-five solidi, and that for a kidnapped villain or servant only thirty-five.[^legsalxi]
+
+[^legsalxi]: Leg. Sal. XI., XLIII.; Burg. II.
+
+A curious illustration of the universality of the system is afforded by the following anecdote, showing the adroit use to which the clergy put it as an incentive to benefactions.
+
+Salvianus, citing the words of the Vulgate, "Redeem thy sins by almsgiving,"[^daniv24] argues in this wise: "What is meant by redeeming a thing? I believe, to pay its value. Then value thy sins as nicely as thou art able. Ascertain how much thou owest for lying, cursing, and perjury, how much for sins of omission, how much for filthy speaking, how much for wicked desires, etc., etc. Then, if thou hast added all together, note carefully the precise and actual value of each and all. I do not ask thee to give to God all that thou hast, but only so much as thou really owest, provided that thou art able to make a true valuation of thine indebtedness."[^salvmassil]
+
+[^daniv24]: Dan. iv. 24.
+
+[^salvmassil]: Salv. Massil. opp. Paris, 1634.
+
+A similar notion was present to the mind of the infamous Fredegonda, as she was sending forth a band of miscreants to assassinate her brother-in-law. They were instructed to surprise him in his tent, and bidding them success in their unholy endeavor, she dismissed them saying: "If you return count upon my gratitude, and rest assured that I will greatly advance you and your children; but if you die in the attempt, depend upon my distributing among the churches rich alms for the salvation of your souls."[^gestafrancepit]
+
+[^gestafrancepit]: Gesta Franc. Epit. XXXII., 712.
+
+The ancient Germanic codes depict the people as chiefly occupied with war and the chase.
+
+In the Thuringian law "a lance" and "a man" occur as synonymous terms; the Alemannian code punishes the theft of a hunting dog with a fine of twelve solidi, that of a horse with six, and that of a cow with only one solidus. Dogs

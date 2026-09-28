@@ -2748,3 +2748,27 @@ Such were the preliminaries of the war against the Avars, which will now engage 
 A war with a people, regarded with abhorrence by all the nations of Europe, was sure to be popular. The Huns were more martial and formidable than their modern cousins the Chinese. In the eighth century the remembrance of Attila and his hordes was still fresh, and the sight of a Hun provoked bitterness. The Huns were believed to be invincibly cruel, and compared "to the animals that walk very awkwardly on two legs, and to the misshapen figures, the *Termini* [Latin], which were often placed on the bridges of antiquity; they were distinguished from the rest of the human species by their broad shoulders, flat noses, and small black eyes, deeply buried in the head; and as they were almost destitute of beards, they never enjoyed either the manly graces of youth, or the venerable aspect of age."[^gibbondeclxxvi]
 
 [^gibbondeclxxvi]: Gibbon, *Decl. and Fall* [English], c. xxvi. See notes in Smith's ed., London, 1854.
+
+The preparations were on a gigantic scale, and we read of "an innumerable multitude," and many thousands of **791]** horses; throughout the winter the whole Frankish world was in commotion; orders for the mobilization of all available troops were sent to every part of the empire, and as soon as the weather allowed the king himself set out for Bavaria, while all Europe was preparing for the contest to be waged for the acquisition of some of her fairest and richest lands.
+
+He ordered the formation of three separate army corps; the Italians, massing in Friuli, commanded nominally by King Pepin, but in reality by the dukes of Istria and Friuli, were ordered to advance from the south; a colossal concentration of troops from Gaul and Germany took place under his own eyes. Ratisbon witnessed an imposing muster, at which Louis of Aquitaine, then in his thirteenth year, according to ancient usage was advanced to the degree of a warrior by receiving formally, before the whole army, the investiture of the sword.[^vitahludovc6] He accompanied his father as far as the Cumeoberg, and then returned, probably as the bearer of important despatches for Queen Fastrada, to Ratisbon.
+
+[^vitahludovc6]: Vita Hludov. c. 6.
+
+Then followed a *placitum* [Latin] at which the nobles of the united Franks, Saxons, and Frisians resolved upon war with **791]** the Avars in punishment of the many grievous and intolerable acts of malice which they had inflicted on the Franks and the Church of God.[^annallaurisschronregino]
+
+[^annallaurisschronregino]: Annal. Lauriss., Chron. Regino.
+
+The hierarchy invoked the divine blessing on so laudable an enterprise, and forth went the victorious hosts of Charles in the following order:
+
+Count Theoderic, of Süntel fame, and the chamberlain Magenfrid, led a column of Franks, Saxons, and Frisians, through southern Bohemia to the Danube, and followed the course of that river on its northern bank; Charles with the remaining troops took the southern bank and marched upon Pannonia; while the Bavarians, on board a fleet with the commissariat, descended the river, and kept open communication between the two armies.
+
+The march was interrupted at the confluence of the Enns and the Danube; the former river being the recognized boundary between the Bavarians and the Avars, a religious service was ordered to inaugurate the war. The whole army went into camp, sheathed the sword and united with the clergy in a three days' fast and litany of prayers for their safety and victory.
+
+We glean many particulars of this interesting and striking incident from an epistle of Charles addressed to the queen. The solemn exercises of the *triduum* [Latin] of litanies were appointed for the express purpose of invoking the divine blessing on the martial enterprise of the Frankish host. It must have been an imposing, impressive, and edifying spectacle. Charles, the clergy, and the whole army made their humble supplication for peace, safety, and victory, a prosperous march, and a successful campaign, devoutly and fervently praying that God of His mercy and goodness would vouchsafe to guide, help, and defend the Franks in all their tribulations.
+
+This *triduum* [Latin] moreover bore a penitential character; it was a Lenten exercise in September, and the entire host, by royal command and episcopal injunction, were required for the space of three days to forego the use of wine and meat. Quite a number of bishops were present; among them Angilram, archbishop of Metz and archchaplain of Charles, Sindpert, bishop of Ratisbon, and Arno, bishop of Salzburg.
+
+Abstinence was to be general, except on the part of the sick, and such as by reason of old age or tender youth were physically unable to observe it. Provision was also made for valetudinarians requiring the use of wine, who, if they were rich, might on payment of a solidus a day indulge their taste, while those in more humble circumstances could procure a license for a denarius a day.
+
+It was likewise recommended that every person according to his ability should make an offering in alms. Every cleric was expected, unless prevented by sickness, to say a spe-

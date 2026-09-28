@@ -2210,3 +2210,33 @@ A peculiar case is that of the virtual abolition of the diocese of Buriaburg, ne
 Richulfus, desirous of asserting the dependence of Fritzlar on Mayence, designated it as the place of his consecration. The late bishop Witta of Buriaburg was suffragan of his predecessor, but judging it undesirable to revive the office, Richulfus adopted the expedient of abolishing the small diocese as a proper compensation to Mayence for the alleged loss of certain possessions or sources of revenue, which had been diverted to the support of the missions, eventually of the dioceses, in Saxony. His consecration at Fritzlar appears to have been the first step towards the cessation of Buriaburg, as a separate diocese,[^simson2538] and its incorporation with that of Mayence.
 
 [^simson2538]: Simson, *l. c.* [Latin] II., 538 sqq., and the authorities he cites.
+
+---
+
+#### CHAPTER V.
+
+##### INVASION OF SPAIN.
+
+*Occasion.—Muster.—March.—Saragossa.—Results.—Retreat.—Ambuscade.—Roncesvalles.—Legend.—The Altabiçaren Cantua.—Roland.*
+
+**777]** It is probable that the remarkable administration of the Sacrament of Baptism to a multitude of Saxons at the Diet of Paderborn was witnessed by personages who must have been as much amazed at what they saw, as their presence interested the Frankish warriors and their converts, who until that hour had never seen any of their countrymen. They were perhaps the first Arabs who penetrated so far north; if their person and presence were strange, the errand on which they came was stranger.
+
+They had heard in Spain, as those with whom they sympathized in heart and aim had heard in far away Bagdad, of the martial glory of the king of the Franks, and in the phrase of one of the annalists, Ibn-al-Arabi, the head of the embassy, together with his son and son-in-law, and other Saracens, came "to surrender to the king of the Franks himself and all the towns which the king of the Saracens had confided to his keeping."[^annaleinhlauriss10] He was the governor of Saragossa, and stood politically much in the same relation to the reigning king at Cordova, as did the Lombard princes to the king of the Franks, and proposed to do to him what they would fain have done to the Greek emperor. As Charles had conquered Lombardy, so had Abdel-Rhaman, the last descendant of the Ommiad khalifs, conquered Spain, and held it independent of the Khalif of Bagdad. Ibn-al-Arabi and his party were disaffected Abbassides, and proposed to desert the cause of Abdel-Rhaman, place
+
+[^annaleinhlauriss10]: Ann. Einh., Lauriss., Fuld.
+
+the northern frontier of Spain under the protection of Charles, acknowledge his suzerainty, and, in the event of war, invoke his aid against the Emir[^titleofkhalif] of Cordova.
+
+[^titleofkhalif]: The title of Khalif was not assumed by his successors until the reign of the third emir of the same name (912–961).
+
+The matter appealed to his pride and interest, and he was readily persuaded to entertain it; it was a novel enterprise, promising adventure and conquest, and a monition which the most Christian king could not disregard.
+
+There was a Nemesis in the broken power of the Saracens, once the terror of Europe, when not long since they threatened to overrun her fairest provinces, until the hammer strokes of his grandsire stunned them, and drove them back. Then an Aquitanian prince sought Saracen aid against the Franks, now the Saracens invoked his help against their own emir. The proud Frankish banners would wave beyond the Pyrenees, and the ecclesiastics in the camp said that his coming would quicken the hope of deliverance slumbering in many Christian hearts, which even then were speeding their prayers to heaven for his success.
+
+Such and similar reasons, the hope of spoil cherished by the warriors, and of rich livings flowing from the conquest by the bishops and abbots, combined to make the Spanish invasion a most popular undertaking. The *heerbann* [German] was called out, and the martial strength of Francia heard with enthusiasm the summons to a holy war against the infidel Moslems.
+
+**778]** Preparations were going on in midwinter; the armorer's din was heard everywhere, and soon the old Roman roads were thronged with warriors on the march to Spain.
+
+The king and his family went early in the year to Chasseneuil, on the Clain,[^annallaurissmetten] the designated rendezvous. The assembled host, composed of Burgundians, Bavarians, Austrasians, Provençals, Septimanians, Lombards, and other bodies not mentioned by name, was divided into two
+
+[^annallaurissmetten]: Annal. Lauriss.; Metten., Einh.

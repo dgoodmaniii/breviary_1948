@@ -1772,3 +1772,51 @@ The famous champion swore fealty to Charles, king of the Franks, and fealty in H
     gelobistu in halogan gast? ec gelobo in halogan gast." [Old Saxon]
 
     Capp. ed. Boretius, I., 222, No. 107. A Frankish formula, assigned to 787–813, and of Mayence origin, is given by Müllenhoff and Scherer, *Denkmäler deutscher Poesie und Prosa* [German], 2 ed., p. 156, No. 52. Cf. ibidem, p. 494 sqq.; Waitz, III., 2 ed., p. 161;—Abel-Simson, *l. c.* [Latin] I., 499 sq.
+
+by the appointment of a special thanksgiving. Hadrian thereupon set forth a circular letter requiring all Christendom to observe, for the first time in the history of the Church, a *triduum* [Latin] of prayers, that is, a litany or procession extended over three days.[^ephadrianiaddomnum]
+
+[^ephadrianiaddomnum]: Ep. Hadriani ad domnum Carol. apud Bouquet, t. v., p. 568.
+
+The appearance of Wittekind in this momentous struggle resembles that of a new comet, bursting on our vision in all the splendor of its glory, and then vanishing in the hidden depths of infinite space.
+
+Beyond the meagre details already familiar to us we search in vain for other authentic information. As to his origin we only know that he was one of the Westphalian nobles;[^unumexprimoribus] but nothing else. It is also certain that he was the soul of the stubborn resistance of his countrymen, and at a critical moment embraced Christianity.
+
+[^unumexprimoribus]: *Unum ex primoribus Westfalaorum.*—Annal. Einh.
+
+After his baptism the curtain of history falls; for all other accounts of him, in annals and chronicles of later date, are legendary or mythical. Such is the story of his hot zeal as a Christian convert. More than thirty years before his conversion the fierce pagans of Frisia massacred Boniface and his companions. A legend makes Wittekind the avenger of the outrage in the next generation, invading Frisia, turning the fertile regions of the Ostergau and Westergau into a howling wilderness, and putting all the inhabitants to the sword.
+
+Legend names him as founder of the cathedral at Enger, in Westphalia, Gerold, a duke of Suabia, as his murderer, and the same church as the place of his burial, adding that his bones lay there undisturbed until the time of Henry the Fowler, when they were removed to Paderborn.
+
+Still later his tomb was shown at Enger, with an inscription in which he is called Wittekind, the son of Warnechinus, King of the Angrians.
+
+The year of his death also is uncertain. There is no record of his canonization, although the people honored him as a saint, the Church commemorated him on January 7th, and the miracles wrought by his relics are attested in the inscription on his tomb.[^abelsimson2ed]
+
+[^abelsimson2ed]: Abel-Simson, *l. c.* [Latin], 2 ed. I., 506 sqq., where all the authorities are carefully enumerated.
+
+The lustre attaching to the name of Wittekind is remarkable. "Several families of Germany hold him for their ancestor, and some French genealogists have, without solid ground, discovered in him the grandfather of Robert the Strong, great grandfather of Hugh Capet.[^guizothistfrance] His name, like that of Roland, Arthur, and other illustrious defeated ones, lay forgotten until poetry visited the battle-fields to rescue them from oblivion, showing that the imagination of the world is generous, and not always on the side of the conqueror.[^ozanamcivilization]
+
+[^guizothistfrance]: Guizot, *Hist. of France*, v. i., p. 218.
+
+[^ozanamcivilization]: Ozanam, *La Civilization chrétienne chez les Francs* [French].
+
+The imperial house of the Ottos is believed to be descended from Wittekind. At any rate his namesake, Widukind the Saxon historian, affirms that Mathilda, the consort of Henry I., and mother of Otto the Great, was a lineal descendant of the famous Saxon chieftain.[^mgss3]
+
+[^mgss3]: MG. SS. III., 431, 455. Adami Gesta Hammab., etc. Ibid. VII., 322; Waitz, *Jahrb. Heinrich's I.* [German], 3 ed. Exc. I., 179 sqq.
+
+Legend also comes in to surround him with a halo of glory. At Easter of 785, it says, Wittekind in beggar's guise, or a minstrel's, found his way into the Frankish camp by stealth, to spy out its arrangements. Wandering through the camp he passed the tent in which Charles attended mass; an irresistible impulse guided his steps, and he joined the throng of worshippers; the strangeness and solemnity of the scene held him spellbound, and he wondered what it might mean. The priest was elevating the host, and that self-same moment he saw therein the figure of a child of unearthly and dazzling beauty.
+
+A wondrous change came over him, which he sought to hide from those around him, but was not able. Disguise could not deceive the Franks, who soon detected in the mendicant minstrel the famous chieftain and took him to Charles. He told what he had seen, desired and craved leave to enter the Church; and when it was granted, the force of his own example and exhortation bore excellent fruit in the number of his Saxon brethren, who came to be baptized and enrolled as soldiers and servants of Christ.
+
+All Christendom might exult with the pope and Charles in the June litanies, poetry and legend irradiate the conversion of the Saxons with heavenly glory, but the bitter reality of their sad lot remained unchanged. The summer solstice came, but the rays of that sun did not quicken the fields into verdure and fertility; the lands far and near lay waste, the angel of death had swept over them, and their sons were not.
+
+The whole country, by the law of conquest, became the property of the victorious Charles, who forthwith began to parcel it out among the abbots and clerics in his train.
+
+If legend does not mislead, the blood of more than two hundred thousand Saxons changed the very color of the soil, and the brown clay of the Saxon period gave way to the red earth of Westphalia. Thus fertilized, the naturally rich land, which, in the language of Holy Scripture, flowed with milk and honey, brought forth more bountifully and soon yielded copious harvests to the clerical and military occupants of the next generation.
+
+The only voice raised on behalf of humanity and the religion of Jesus Christ, as now understood, is Alcuin's; at least it is the only one which has come down to us.
+
+His views, as those of an earnest, thoughtful, and temperate man, stand in such marked and honorable contrast to the universal and fulsome applause with which the pope,[^seenote1p123] the hierarchy, and obsequious vassals of the Frankish ruler, greeted his savage processes for the conversion of the Saxons, that it were a crying wrong to omit their reproduction.
+
+[^seenote1p123]: See note 1, p. 123.
+
+He wrote, though at a later date, that preaching the faith, the administration of baptism, and the living exhibition of the precepts of Christ, should ever go hand in hand. Without such concurrence the hearer could not be led to salvation.

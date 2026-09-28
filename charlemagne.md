@@ -1134,4 +1134,20 @@ to pursue with their hatred, to oppress and harass in war all their neighbors wh
 
 [^rhineq]: Rhine?
 
+from modern diplomacy, "in the Frankish sphere of influence," but they were not obedient citizens of the Frankish state.
+
+We return to the affairs of the Avars. The year 790 was a quiet one, so much so that Charles, now verging on his fiftieth year, and "fearing to grow torpid through lack of exercise," sailed up the Main and the Franconian Saale to his palace of Königshofen by the banks of the latter river, and returned in like manner to Worms. But even in this year there were discussions and altercations concerning boundaries with the ambassadors of the Avars. Charles was evidently making his preparations and accumulating materials for his case against the doomed nationality.
+
+Next year, 791, the storm burst, and Charles made his great, his only personally commanded expedition, into Avar-land. At a council of Franks, Saxons, and Frisians held at Ratisbon, it was decided that "on account of the great and intolerable malice which the Avars had shown towards the Holy Church and the Christian people, and the impossibility of obtaining justice at their hands by means of the royal messengers, a hostile expedition should march against them." The whole army marched to the river Enns, the boundary of Avar-land, and there for three days sang litanies and witnessed
+
+solemn masses imploring God "for the safety of the army, the help of our Lord Jesus Christ, and victory and vengeance against the Avars." Charles then, according to his usual custom, divided his army, marching himself along the south bank of the Danube, and sending the Saxon and Frisian auxiliaries with some Franks along the northern bank. The Avars had erected two strongholds, one on each side of the river, at a little distance above the modern city of Vienna: but they were struck with panic fear when they saw the two columns marching on either side of the river, and the ships (laden probably with provisions) sailing majestically between them. They abandoned their strongholds without striking a blow, "and so, Christ leading on his own people, both armies entered the country without sustaining any loss." It was, in fact, a military promenade. Charles marched through the country, ravaging as he went, as far as the river Raab, and then, "after traversing and laying waste a great part of Pannonia, carried back his army safe and sound into Bavaria. This expedition was made without inconvenience of any kind, save that in that part of the army which the king commanded, so great a pestilence arose among the horses that scarcely the tenth part out of so many thousands of horses is said to have remained alive." The king
+
+returned to Ratisbon, which he evidently intended now to make his headquarters till the end of the Avar war, and kept his Christmas there.
+
+Next year, however (792), broke out the conspiracy of Pippin the Hunchback, and this probably occupied so much of Charles's attention as to make it impossible to undertake an expedition into Avar-land. He remained, however, during the whole year in Bavaria, and ordered the construction of a bridge of boats which he might in the next campaign throw across the Danube, and so at any moment unite the two armies marching along the opposite banks of the river.
+
+In 793 came the terrible tidings of the destruction of Theodoric's army by the banks of the Weser, and the rekindling of the Saxon war, deadlier and fiercer than ever. The abortive attempt to canalize the feeders of the Danube and the Rhine, and so unite those two great arteries of his kingdom, occupied Charles all the summer of that year. On its failure he recognized that the war against the Avars must be suspended for a season, at any rate as far as his personal share in it was concerned. He set his face northward and made Frankfurt, Aachen, and the towns of Saxon-land itself, his abiding places during the six years that followed.
+
+But it seems that the great campaign of 791 had
+
 ---

@@ -1919,4 +1919,48 @@ The subjugation of the entire country, from the Lippe to the Elbe, and from the 
 
 [^baluzelc]: Baluze, *l. c.* [Latin] t. i., p. 275.
 
-It is a vast improvement, in point of humanity, upon the sanguinary bill set forth before. The capitula are only eleven in number, and, on the whole, place the Saxons upon a footing of equality with the Franks; they repeal, by silence, the obnoxious capital crimes, and substitute pecuniary fines, to wit, that the *königsbann* [German] of sixty solidi be paid
+It is a vast improvement, in point of humanity, upon the sanguinary bill set forth before. The capitula are only eleven in number, and, on the whole, place the Saxons upon a footing of equality with the Franks; they repeal, by silence, the obnoxious capital crimes, and substitute pecuniary fines, to wit, that the *königsbann* [German] of sixty solidi be paid alike by Saxon or Frank for the crimes of disturbing the peace of churches, widows, and orphans, of rape, arson, acts of violence, and refusal of military service (c. 1).
+
+They likewise provide, in a more merciful spirit, that it shall be optional with the king, in the case of criminals, who under Saxon law have forfeited their lives, to commute the sentence of death into one of banishment, on the principle that though politically dead in their own country, they might (probably with a new name) be colonized elsewhere within or without the limits of the Frankish dominions.
+
+Armed with these new laws, which seem to breathe the gentle spirit of Alcuin, and Queen Liutgard, Charles, accompanied by his entire court and an army, returned into Saxony, in order to terminate, if possible, the regulations necessary to the pacification of the country. It was late in the season[^novembriomense] when the royal camp was pitched on the Weser, near the mouth of the Diemel; the army was required to erect wooden barracks, and the *place* where they stood, as well as the purpose for which they were used, induced Charles to name the spot *Heristelle* [Latin], that is, the place of the army; it survives to this day in the Westphalian "Herstelle;"[^intheprussianprovince] there is no doubt that he was guided in the choice of the name by **797]** his ancestral *Héristal* [Latin] on the Meuse, for we read, that he called it *Niwi Heristalli* [Latin] (*i. e.* [Latin], New Heristal), and that others speak of "Saxon Heristall."[^annallaurissmosell2]
+
+[^novembriomense]: *Novembrio mense mediante.*—Ann. Lauriss.
+
+[^intheprussianprovince]: In the Prussian province of Westphalia, W. of Karlshafen, dist. of Minden, in the circuit of Höxter.
+
+[^annallaurissmosell2]: Annal. Lauriss., Mosell.
+
+That camp, however, was used only by a part of the army, enough for the protection and circumstance of the royal court; the great bulk of the host went into winter quarters throughout the region—possibly in more distant localities.[^annaleinh5] Its situation in the depth of a Westphalian forest was not too remote for diplomatic intercourse with representatives of distant potentates. It was enlivened by the arrival of an Avar embassy bearing rich presents for the
+
+[^annaleinh5]: Annal. Einh. "*per totam Saxoniam in hiberna divisit.*" [Latin]
+
+king, and that of an ambassador from Alonso II., king of Gallicia and Asturia, who brought a most timely and useful token of affectionate and thoughtful regard in the shape of a magnificent tent.
+
+The presence of the royal family, including that of the king's sons, the kings of Italy and Aquitaine, added splendor to the romantic beauty of Herstelle, and made the camp as unlike an ordinary camp as possible. Charles had come for work, but there was abundant opportunity for diversion. The pleasures of the chase, of sleighing and skating, alternated with military duties,[^alargestone] and the more genial pastime of music and literature. Letters also came, and here is one from Alcuin to the queen:
+
+[^alargestone]: A large stone on the top of a bluff is indicated as the spot from which Charles inspected the troops.
+
+"To the most noble lady Leutgarda, in the love of Christ greeting. I entreat you, if it be the king's pleasure to prolong his stay in Saxony, to let me know how he and the Christian army do fare and when he expects to return. Pray tell me also all about your winter residence, and in which palace it has been decided to spend the winter.
+
+"As for you, most noble lady, I rejoice that you ever set unto all the most shining example of a most virtuous life acceptable unto God, and that you are praised in word and beloved in heart by all who know you.
+
+"May God of his mercy advance you to ever-increasing honors until you are worthy of passing from the happiness of earthly prosperity to the blessedness of eternal life in heaven. May you live and flourish in all virtues in Christ Jesus."[^monumalcuinian]
+
+[^monumalcuinian]: Monum. Alcuinian, p. 376.
+
+In another letter of his addressed to the king, he begs him to diversify the horrid clash of arms and the shrill notes of the trumpet with the sweeter melody of poetry and song, and thereby counteract the fierce motions of his warriors, as needing the softer influences of vocal and instrumental music to assuage their natural ferocity.[^epalcno100]
+
+[^epalcno100]: Ep. Alc., No. 100 (ed. Jaffé).
+
+Christmas came and passed away; the Saxons saw how **798]** the Franks kept Lent, and Charles was unremitting in his efforts for the disposition of their affairs.[^annallauriss7] He preferred the peaceable solution of still impending troubles on the part of the unconverted, intractable, and rebellious Saxons beyond the Elbe, the *Nordliudi* [Latin], as they were called, and sent *missi* [Latin] to them to administer justice.
+
+[^annallauriss7]: Annal. Lauriss.
+
+About Easter these Nordliudi, incensed at the persistent missionary zeal, it would seem, of the *missi* [Latin], fell upon them, and put some of their number to death. The movement was general, and the infuriated pagans even laid violent hands on Count Gottschalk, the king's ambassador to Denmark. He was on his way back to Charles, and obnoxious to them, it is thought, on account of his mission, the nature of which is not known, but which they doubtless construed as inimical to themselves; at any rate they seized and slew him. Some of the *missi* [Latin] escaped death, but owed their lives less to the mercy than to the cupidity of the rebels, who expected and exacted a rich ransom for their delivery. The ransom was paid; still others, more fortunate than they, found means of making their way to the king and informing him of what had occurred.[^annallaurisseinhpoeta]
+
+[^annallaurisseinhpoeta]: Annal. Lauriss., Einh. Poeta Saxo.
+
+The Northalbingians raised the standard of revolt at a time when lack of forage prevented the army, which was largely composed of cavalry, from leaving winter quarters. The commissariat stores were scanty; the whole country, far and near, had been devastated, and until fresh supplies from beyond the Rhine came in, the army must remain idle. Until they arrived the rebels might breathe freely, but the tempest, though deferred, would overtake them soon enough.
+
+Among those who carried tidings of the revolt into the royal camp was a certain Richard, a Christian Saxon and brother of Richolf, one of the victims. As soon as he heard of the massacre he hastened forth to inform the king; during his absence the murderers of the *missi* [Latin] seized his wife, and robbed her of the little she had left. Richard was a plucky fellow and succeeded in setting her free. This inci-

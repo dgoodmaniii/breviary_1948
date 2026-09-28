@@ -1963,4 +1963,42 @@ About Easter these Nordliudi, incensed at the persistent missionary zeal, it wou
 
 The Northalbingians raised the standard of revolt at a time when lack of forage prevented the army, which was largely composed of cavalry, from leaving winter quarters. The commissariat stores were scanty; the whole country, far and near, had been devastated, and until fresh supplies from beyond the Rhine came in, the army must remain idle. Until they arrived the rebels might breathe freely, but the tempest, though deferred, would overtake them soon enough.
 
-Among those who carried tidings of the revolt into the royal camp was a certain Richard, a Christian Saxon and brother of Richolf, one of the victims. As soon as he heard of the massacre he hastened forth to inform the king; during his absence the murderers of the *missi* [Latin] seized his wife, and robbed her of the little she had left. Richard was a plucky fellow and succeeded in setting her free. This inci-
+Among those who carried tidings of the revolt into the royal camp was a certain Richard, a Christian Saxon and brother of Richolf, one of the victims. As soon as he heard of the massacre he hastened forth to inform the king; during his absence the murderers of the *missi* [Latin] seized his wife, and robbed her of the little she had left. Richard was a plucky fellow and succeeded in setting her free. This incident is mentioned in a petition addressed, many years later, by his son to the emperor Louis, setting forth the additional detail that their neighbors, at the outbreak of the revolt, plundered the houses of those whose loyalty to the king and fidelity to Christ were peculiarly odious to them.[^epistmogunt]
+
+[^epistmogunt]: Epist. Mogunt. 4.—Jaffé, Bibl. III., 320.
+
+Charles was very angry, and ordering the camp at Herstelle to be struck, moved north, and halted at Minden on the Weser. There the necessary dispositions were made in virtue of which he conducted in person a large army through the country between the Weser and the Elbe, wasted it with fire and sword,[^annallaurisspetav] advanced to Bardowick, received the submission of the people, seized a number of the most intractable nobles, and took as many hostages as he pleased.[^annallauresh4] The Northalbingians, as might be expected, were most defiant, and elated by the massacre of the royal messengers,[^annallauriss8] prepared for desperate resistance. While Charles was engaged **798]** with the pacification of Saxon Mesopotamia, his allies, the Abodrites, doubtless in conformity with his directions, made a movement against the Northalbingians, and took them from the rear. The whole of their army, nominally commanded by Thrasco, their prince, but under the direction of able Frankish generals, and with the co-operation of a body of Frankish troops, entered[^annallaureshsinh] and ravaged the hostile country. The Northalbingians collected their forces, and encountered the invading host at Suentana,[^seemuhlbacherbohmer] identified as the Zventinefeld on the Schwentine.[^itflowsintothebay] A fierce battle was fought, in which the Northalbingians were routed with great loss. According to the credible report of the *missus* [Latin] Eboris, who commanded the right wing of the Abodrites, four thousand of the enemy fell at the first onset.[^annallaurisseinh9] Panic-struck they fled for their lives; still, although many more
+
+[^annallaurisspetav]: Annal. Lauriss., Petav., Alamann. c., Einh.
+
+[^annallauresh4]: Annal. Lauresh., S. Amandi, Lauriss.
+
+[^annallauriss8]: Annal. Lauriss., Einh.
+
+[^annallareshsinh]: Annal. Lauresh., Einh. The latter make the N. attack the Abodrites.
+
+[^seemuhlbacherbohmer]: See Mühlbacher—Böhmer, *l. c.* [Latin] p. 137. Some, but I think wrongly, identify it with the modern Schwante on the Warnow.
+
+[^itflowsintothebay]: It flows into the bay of Kiel.
+
+[^annallaurisseinh9]: Annal. Lauriss., Einh.
+
+were cut down by their pursuers, the flying foe not only reached a place of safety, but was strong enough to discuss terms of peace.[^annallaurisseinhsybel] The Frankish accounts, therefore, seem to be exaggerated.
+
+[^annallaurisseinhsybel]: Annal. Lauriss., Einh. See H. v. Sybel, *Kleine hist. Schriften* [German], III., 50.
+
+It is difficult to explain why Charles did not follow up his advantage; he marched from Bardowick to the confines of the Wendish country in the *Gau* [German] of Norththuringia, and seems to have contented himself with giving audience to a deputation of Abodrites, and extolling their merits in terms of unbounded admiration.[^ethonoravit]
+
+[^ethonoravit]: *Et honoravit eos domnus rex ut digni erant mirifice.*—Annal. Lauresh.
+
+Thus ended that year's work. The contemporary records are meagre, singularly vague, and convey no clear idea of the nature of the pacific measures or the warlike operations set in motion for the final conquest of the unhappy country, and the conversion of its still more unfortunate people from revolt and paganism to loyalty and Christianity. We catch a glimpse of the true condition of the country at this time from an epistle of Alcuin's, in which he urges the king by all means to stay the effusion of blood and make peace with the Saxons, and recommends a policy of conciliation.[^seep126] In one passage he expresses doubt if Saxony was really worthy of becoming a country chosen by God, because a number of Saxons who had left it had turned out good Christians, while those who stayed at home persisted in paganism.[^thesameepistle]
+
+[^seep126]: See p. 126.
+
+[^thesameepistle]: The same epistle—No. 114 in Jaffé's edition.
+
+Unless we have misread or misunderstood the meaning of the good Alcuin, he seems to have advocated deportation as the best means of terminating the Saxon affair; at any rate, the king believed in its efficacy as one means, while he disdained not the more martial counsel of others, for instance, that of Angilbert, who, adverting to his departure for Saxony in the next year, plainly unfolds the purpose of the expedition, as intended "to subjugate the rebellious people and cut off the savage race with cold steel."[^angilbcarmen]
+
+[^angilbcarmen]: Angilb. *Carmen* [Latin], v., 340.
+
+The customary national muster took place at Lippeham,

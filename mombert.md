@@ -1527,4 +1527,26 @@ On a set day the Estates of Lombardy were assembled, and Charles, attended by a 
 
 [^someholdanciently]: Some hold that anciently the iron band was the only crown in use, while others assert that one of the Lombard queens devised the plan of two kinds of metal as a standing admonition to the kings that the crown is often a crushing burden, and that "all is not gold that glitters." See Sigonius, p. 145; cf. Muratori, *Anecd.* [Latin] II., 267 sqq. Le Cointe, VI., 51 sqq.; Leibniz, *Annales*, I., 55 sq.; Pauli Diac. Hist. Langob., VI., 55. SS. rer. Langob., p. 184.
 
-The legendary character of this pretended coronation at Monza is clearly established, for according to Lombard usage the elevation of the sovereign was attended, not by coronation, but the presentation of a spear. The "Iron
+The legendary character of this pretended coronation at Monza is clearly established, for according to Lombard usage the elevation of the sovereign was attended, not by coronation, but the presentation of a spear. The "Iron Crown," moreover, could not have been used, for the excellent reason that Queen Theodelinda did not institute it till centuries later, and as a matter of fact, Henry of Luxemburg is believed to have been the first German emperor who wore it, in A.D. 1311.
+
+The archbishop then declared him duly elected and crowned king of the Lombards, led him to a throne, gave him the customary kiss, and concluded the service.[^histeccldec]
+
+[^histeccldec]: Hist. Eccl. Medial. Dec. I., 1. cf. Abel-Simson, I., 192 sq.
+
+The alleged service was designed to convey the impression that though the dynasty had changed, the kingdom of the Lombards continued; that its autonomy was preserved; that the old ways should be followed, and the old laws maintained.
+
+It is certain, that the conqueror restored to the keeping of the pope the cities and territories which the Lombard had seized, bestowed rich gifts on certain monasteries, left strong French garrisons in Pavia and other cities, and returned with great triumph into Francia.[^annalbertinmurat]
+
+[^annalbertinmurat]: Annal. Bertin.—Murat. II., 2, 498; Lauriss.; Böhmer, *l. c.* [Latin] No. 163, a.
+
+---
+
+#### CHAPTER III.
+
+##### SAXON WAR, TO CONVERSION OF WITTEKIND.
+
+*The Saxons.—Object and conduct of the war.—Military institutions of Charles.—Eresburg.—Irminsul.—Miracle at Fritzlar.—Purpose of Charles.—Treachery.—Miracle at Sigburg.—Wholesale baptism.—Wittekind.—Saxon raid.—Bocholt.—Conversions.—Laws for the Saxons.—Fight at the Süntel.—Butchery at Verden.—Battles at Detmold, and on the Hase.—Winter campaign.—Negotiations with Wittekind.—His conversion.—Legend.—Alcuin's advice.*
+
+The second period of the reign of Charles spans more than a quarter of a century, but falls short by six years of one of the longest and most remarkable wars ever conducted. What it cost in human life, toil, and money defies numerical expression, since all trustworthy data indispensable to such a calculation are wanting; but the expenditure in all three must have been enormous, and it is understating the truth, if we name millions of lives, and many millions in money or its equivalent. The foe with whom it was waged was terrible in strength, ferocity, vindictiveness, and valor,—we may say was not only the equal but the superior of the Franks in every martial attribute, and would never have been subdued even by Charles, the greatest captain of his century, had he known the secret of his strength, and, under the command, say, of such a leader as Wittekind, buried all jealousies, and in the spirit of his descendants, who found their way to these western shores, repelled the invaders.
+
+The Saxons were divided, and their unhappy feuds were the chief and earliest cause of their misfortunes. The country which they inhabited was not too vast for united action; it was bounded by the Rhine in the west, the Elbe in the east, the Main in the south, the sea in the north. Even their neighbors, with few exceptions, were friendly, of kin-

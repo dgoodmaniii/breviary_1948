@@ -2162,3 +2162,31 @@ The personal pronoun relates to Charles, and the conversion may denote either po
 [^annalmosell2]: Annal. Mosell.
 
 [^vitawillehadic5]: Vita Willehadi, c. 5.
+
+of a successful ministry the revolt of Wittekind annihilated his work. Willehad had to flee for his life, and apprehensive of a long continuance of the hostility of the people, repaired to King Pepin, in Italy, and to Rome. Returning to Francia, he took up his abode in the monastery of Echternach, collected his scattered and suffering disciples, and in 785 was enabled to resume his long-suspended labors in Wigmodia.[^vitawillehadicc68]
+
+[^vitawillehadicc68]: Vita Willehadi, cc. 6, 8.
+
+Nevertheless the strictly missionary character of the Church in Saxony proper prevailed certainly as late as 787, when Willehad was consecrated bishop for the aforesaid district. But even this does not signify anything like a diocese, duly organized, and supplied with a cathedral and other adjuncts. It is known that Willehad designated Bremen, where he built and consecrated the Church of St. Peter, as a cathedral city; but his speedy death arrested the progress of the movement for a considerable period, since Willerich, Willehad's successor, did not take up his residence at Bremen until 805, after the close of the Saxon war, when Charles endowed his bishopric with a hundred *mansi* [Latin] of land.[^adamgesthammab]
+
+[^adamgesthammab]: Adam. Gest. Hammab. eccl. pontif. I., 20; Simson, *l. c.* [Latin] II., 310.
+
+We have still to mention the pioneer of the Saxon mission, the abbot Sturmi of Fulda. He enjoyed to a remarkable degree the confidence of Charles, accompanied him at the beginning of the war to Saxony, and directed the work of the numerous clerics, his associates. He is expressly named as placed in charge of the largest district, set apart for missionary operations in 777, and it has been conjectured from his subsequent, though not permanent, residence at Eresburg, that the region about the Diemel, and the district ultimately embraced in the diocese of Paderborn mark the sphere of his labors. Eresburg certainly was an early missionary station."[^vitasturmicc222425]
+
+[^vitasturmicc222425]: Vita Sturmi, cc. 22, 24, 25, MG. SS. II.
+
+The case of Sturmi seems to shed light on the principles which guided the judgment of Charles in the choice of missionaries, and the conduct of the missions.
+
+He selected men who, from their connection with institutions already securely established, like the monastery of Fulda, and because of their aptitude for organization, might be expected to prosecute the work of conversion with vigor, and give it substantial support. Thus Paderborn was afterwards connected with Würzburg, Verden with Amorbach in the Odenwald, and the region about Osnabrück placed in charge of bishop Agilfrid of Liège.[^abelsimson1268]
+
+[^abelsimson1268]: Abel-Simson, *l. c.* [Latin] I., 268.
+
+Another, and probably the most efficacious means for the conversion of the Saxons, was the Christian education of Saxon hostages. Thus the first two bishops of Paderborn were Saxons, and instances of genuine Saxon converts are not wanting.[^translsliborii56]
+
+[^translsliborii56]: Transl. S. Liborii, cc. 5, 6, MG. SS. IV., 151; Simson, *l. c.* [Latin] I., 269.
+
+According to the explicit testimony of a reputable author, writing towards the close of the ninth century, Charles was wont to build churches as soon as possible, and carefully set off the several ecclesiastic districts; but owing to the singular lack of cities which, agreeably to ancient usage, might have been designated as episcopal seats, chose localities geographically and by reason of adequate population well suited for the purpose he had in hand. The king, he continues, committed such districts to other ecclesiastical dignitaries, who periodically repaired there in person, instructing the people in the doctrines of the Christian faith, and designated approved ministers as resident clergy; and that this arrangement continued until the Church was sufficiently established to warrant the permanent settlement of bishops in their several dioceses.[^translatiosliboriimgss]
+
+[^translatiosliboriimgss]: Translatio S. Liborii, MG. SS. IV., 149 sqq.
+
+Some of these details doubtless belong to later times, but the general principle appears to be correctly stated. Such an arrangement existed with respect to Paderborn, etc.; the subsequent diocese of Verden was in the first instance a dependency of the monastery of Amorbach, and the first two bishops of Verden were abbots of the said monastery; their episcopal status being purely titular, and hardly rising

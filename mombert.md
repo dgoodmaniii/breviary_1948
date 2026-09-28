@@ -1274,3 +1274,39 @@ Still the truth became known after she left, and it fairly stunned him. It was t
 The royal brothers he knew were married and had children; on that point his language is explicit, and flatly contradicts the common notion that their wives were not legitimate, or only morganatically united to the kings. He says that by the express direction of their father they had been married in lawful wedlock, and brands as iniquitous the hidden purpose of their hearts of taking other *wives* besides those they had already married.[^etenimconjugio] The pertinent portions of his epistle to them are essential to a correct understanding of the case; it might have been more temperate and dignified, more Christian and less venomous, but it mirrors the deep unquenchable hatred of the Lombards which burned in the pontiff's breast.
 
 [^etenimconjugio]: "*Etenim . . . conjugio legitimo ex præceptione genitoris vestri copulati estis, accipientes . . .*" [Latin] — "*Impium enim est ut vel penitus vestris ascendat cordibus, alias accipere uxores super eas, quas primitus vos certum est accepisse.*" [Latin]
+
+The epistle is addressed to Charles and Carloman, and couched in these terms: "He had heard that Desiderius had persuaded one of their number to marry his daughter; the devil alone could have suggested such intention, for since it could not be a marriage it must be a most shameful connection. It was madness to attempt a union of the most noble race of the Franks and the fetid brood of the Lombards, a brood hardly human, that had brought leprosy into the land. . . . They should remember, that by their father's express injunction they were united in marriage to most beautiful Frankish ladies, to whom they ought to cleave in love; that it was unbecoming and unlawful in them to repudiate their wives for strangers of another race; it would be sinful and heathenish. . . . They should remember that the vicegerent of St. Peter had anointed them and sanctified them with the blessing of heaven; . . . that their father had been prevented by the remonstrances of his predecessor from divorcing their mother; remember, moreover, their father's promise to St. Peter to be the friend of his friends, and the enemy of his enemies; he had kept his promise, and how could they . . . dare to make common cause against the apostolical see with the perfidious race of the Lombards? . . . Wherefore, St. Peter, himself, he, the pope, the clergy and people of Rome, adjure them by all that is lawful, by the living and true God, the judge of the quick and dead, by the ineffable omnipotence divine, by the tremendous day of judgment, by all the divine mysteries, and by the most sacred body of St. Peter, that neither of them presume to wed the daughter of Desiderius, or give their God-beloved sister Gisla in wedlock to his son. . . .
+
+"He had laid this his exhortation and adjuration on the tomb of the apostles, presented it in sacrifice to God, and from that sacred spot did now send it to them.
+
+"Should either of them, contrary to his expectation, presume to disregard it, then by the authority of St. Peter he is under the ban of the most fearful anathema, an alien from the kingdom of God, and doomed, with the devil and his most wicked ministers, and all impious men, to undergo concremation in eternal flames. But he who shall obey and observe this exhortation shall be worthy of divine enlightenment with all heavenly blessings, and of exaltation to everlasting glory with all the saints and elect of God."[^codexcarolep45]
+
+[^codexcarolep45]: Codex Carol. Ep. 45 (Jaffé).
+
+The epistle came too late to deter Charles from his purpose, **770]** for he was married to Desiderata; but it bore immediate fruit in the annulment of the projected marriage of Gisla and Adelchis. The royal maiden took irrevocable vows and became abbess of the convent of Chelles. There the matter rested, but not long, for after the lapse of only **771]** one year Charles disowned Desiderata and sent her back to Pavia.
+
+The reticent and diplomatic biographer of Charles says that he repudiated her "for some reason unknown;"[^einhardvita18] the more communicative Monk of St. Gall suggests a physical reason. The anathema of the pope and his subsequent representations of the impolicy of a Lombard alliance may have carried some weight, but it is more probable that the sight of one more favored was the most potent motive in this heartless, insulting, and perfidious act. There is no doubt that Desiderius received the customary guarantee given under oath that Charles would never discard his daughter.[^paschradbert]
+
+[^einhardvita18]: Einhard, *Vita*, c. 18.
+
+[^paschradbert]: Pasch. Radbert in *Vita Adalh.* [Latin]—Mabillon, "*Acta SS. Ord. S. Ben.*" [Latin] S. IV., I., 310. The exact date of the repudiation is not known. It is certain that Charles married Hildegard immediately after, for as she died April 30, 783, in the twelfth year of her marriage, it follows that either the close of 771 or the beginning of 772 furnishes the required date.
+
+Her repudiation was immediately followed by the marriage of Charles with Hildegard, a Suabian lady of noble birth.[^seegenealogicaltable]
+
+[^seegenealogicaltable]: See "Genealogical Table."
+
+The pope maintained a discreet silence, but the indignation of Desiderius was intense; the queen-mother, whose tearful intervention was disregarded, always felt sore on the subject;[^charlesmotherberthrada] and there was at least one man, the venerable
+
+[^charlesmotherberthrada]: "Charles's mother, Berthrada, passed her old age with him in great honor; he entertained the greatest veneration for her; and there was never any disagreement between them, except when he divorced the daughter of King Desiderius, whom he had married to please her."—Einh., *Life*, XVIII. See Genealogical Table.
+
+abbot of Corbie, Adalhard, the king's cousin-german, who on high moral and religious grounds refused all intercourse with the unlawful successor of the discarded queen.[^seenote2] 
+
+[^seenote2]: See note 2. He distinctly says that no crime could be laid to her charge.
+
+Hildegard was reputed to be one of the most attractive women of the age. Her peerless beauty is poetically described as that of lilies blended with roses, and it is said that she added to the charms of her person the shining attributes of a bright intellect and a kind heart. She was benevolent and devout, and universally beloved by all who knew her.
+
+Her influence over Charles was excellent, and confessedly great, although she could not always carry her point.
+
+An anecdote told by the Monk of St. Gall appears to be true to life. A certain young man, in whom the king took an interest, and whose hopes he had raised as to securing a vacant bishopric, happened to be with him at an hour set for the reception of courtiers. The king told him that he had many competitors for the vacancy, and bade him retire behind a curtain to learn their number. One by one the nobles came to secure the position either for themselves or for special favorites; at last Queen Hildegard appeared and asked it for her own clerk. The king objected, protesting that, although he would not and could not say nay to her in almost anything she might ask, yet in this case he must needs disoblige her, for he had already promised the place to the aforesaid young man. The queen, who was not free from the weakness of women of setting their influence against the judgment of men, suppressed her anger, but forthwith opened upon her susceptible spouse the battery of dulcet speech and languid looks, saying: "O my Lord King, why waste that bishopric on such a boy? Let me entreat my sweetest king, my glory, my tower of strength, to confer it on your faithful servant, my own clerk."
+
+The young man heard and saw from behind the curtain what was going on, dreaded the worst, and unable to con-

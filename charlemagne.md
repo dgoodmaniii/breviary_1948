@@ -1180,4 +1180,25 @@ Now that we are approaching the most important event in the life of Charlemagne,
 
 It will be hardly needful here to repeat the warning given by many recent historians against considering the State which was governed from Constantinople, between 476 and 800, as anything else than the *Roman* empire. As its centre of gravity was now on the Bosphorus instead of being on the Tiber, and as its chief possessions were situated on the east of the Gulf of Venice, or even on the east of the Archipelago, it is difficult to avoid speaking of it as the eastern empire; but for all the centuries between the fifth and the ninth we must remember that this is not a strictly accurate expression. It was during all that period "*the empire*," "the dominion of the
 
+world," nay, it was still the "Roman republic," though the man who sat in Julius Cæsar's seat was practically the uncontrolled despot of the Roman world.
+
+And during all these intermediate centuries, though the empire might be cut very short, by Frank and Goth and Saxon in the west, or by the Saracen in the east, it would be safe to say that it never acquiesced in its limitations. Pre-eminently the wonderful reconquests of Italy, of Africa, of part of Spain, which were wrought in the sixth century by the generals of Justinian, might well keep alive the hope that, after the "little systems" of barbarian and infidel had "had their day," the true Divinely-appointed world-ruler would emerge from his temporary eclipse and be again supreme all round the shores of the Mediterranean.
+
+Doubtless, though the name "Roman" was still kept and still gloried in, the empire was, with each succeeding century, becoming more thoroughly Greek, or rather Graeco-Asiatic, in its character. From this point of view it has been observed by a modern historian that the great pestilence which raged in 747 (five years after the birth of Charles) was an important factor in the transformation of the empire. "A vast portion of the inhabitants of Byzantium, who maintained Roman character and
+
+many Roman traditions amid all their half-Hellenic, half-Oriental ways, had been carried off by the plague, and were replaced by pure Greeks who had not inherited the effect of Roman influence. This was an important step in the direction of becoming a Greek nationality, to which goal the Roman empire was steadily tending" (Bury, *History of the Later Roman Empire*, ii. 456).
+
+But, notwithstanding this, the emperor at Byzantium never forgot that he was Roman, but always looked upon Italy as his lawful, his almost inalienable, possession. Gaul, Spain, Britain—it might be necessary to abandon these to the barbarians—but Italy, but Rome, were rightfully his, and all the shades of all the buried Cæsars would pass in angry procession before the eyes of the degenerate successor who should be so base as formally to abandon his right to hold them. This, or something like this, we may believe to have been the secret underlying thought of the Leos and the Constantines when they heard what the Frank was doing in Italy.
+
+Through the greater part of the eighth century the Iconoclastic controversy was the dominating element in the politics of the empire. We have already seen something of the career of the first great image-breaker, Leo III. On his death, which happened in 740 (two years before the birth of
+
+Charlemagne) he was succeeded by his son Constantine V., as able a general, as strong a statesman, and as determined an image-breaker as his father. He was a great enemy also of the monks, and both they and the image-worshippers suffered at his hands a persecution which (at any rate according to their account of it) might seem to recall the days of Decius and Diocletian.
+
+To the court of Constantine V. fled the young Adelchis, son of Desiderius, on the downfall of the Lombard kingdom (774).[^seep125] He was well received by the emperor, who bestowed upon him the high-sounding title of Patrician, thus making him, as far as rank in the empire went, at least the equal of his conqueror, Charles. We have seen how the combination of rebellious Italian dukes, independent princes, and Byzantine generals, which was formed to restore Adelchis to the Lombard throne, failed, owing to the death of Constantine V. (September 775), and how Hrodgaud of Friuli was left alone to bear and to sink under the vengeful might of the Frankish king.[^seepp165166]
+
+The Emperor Constantine V. was succeeded by his son Leo IV., surnamed the Khazar, his mother having been a princess of that barbarous Tartar
+
+[^seep125]: See p. 125.
+[^seepp165166]: See pp. 165, 166.
+
 ---

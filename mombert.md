@@ -484,3 +484,29 @@ At his death Plectrud assumed the government, and imprisoned Charles at Cologne.
 A struggle was inevitable. Charles soon succeeded in the recovery of liberty, and aided by Austrasian nobles, who scorned the rule of a woman, attempted to wrest it from her hands.
 
 The situation was complicated. The Neustrians, with their phantom king Dagobert III., revolted from Austrasian rule, and marched against the youthful Theodoald, whom Plectrud, under escort of a strong force, had sent to Neustria. An engagement took place in the forest of Cuise, in which the Austrasians were defeated, while Theodoald barely escaped with his life.
+
+They then chose Ragenfrid mayor of the palace, and, under his lead, invaded Austrasia and devastated the country to the Meuse.
+
+In the mean time Dagobert died, and they found his successor in the person of the cleric Daniel, whom they elevated to the throne under the name of Chilperic II.
+
+This new king made an alliance with the Frisians, and marched upon Cologne, where Plectrud had established herself, and was glad to purchase the departure of the enemy at a high price. The Neustrians left, but on the march were overtaken and defeated by Charles at Amblève.
+
+[717] Fruitless negotiations ensued, and Charles, the year following, at the head of a powerful army, entered Neustria, met and defeated the enemy in the decisive battle of Vincy, south of Cambray. Chilperic and Ragenfrid fled to Paris, while Charles, laden with spoil, retraced his steps to Cologne, and compelled Plectrud not only to open the city, but to surrender the treasure of Pepin, and submit to his authority.
+
+In the lull of war which followed Charles satisfied the clamor of the populace for a king, and presented to them an obscure Merovingian prince of the name of Clothair, as their puppet-king, while he himself ruled the Frankish dominions under the title of duke of Austrasia.
+
+On the other hand, the king of the Neustrians, and his mayor of the palace had not been idle. They opened negotiations and concluded an alliance with Eudo, the rebellious duke of Aquitaine, in virtue of which he joined them with an army at Paris, and enabled them to resume [719] offensive operations against Charles. The opposing hosts met at Soissons, and in the battle which they fought, the arms of Charles were again victorious. He pursued the flying foe first to Paris, and thence to the Loire, but though he moved by forced marches, such was the speed of the fugitives, that Eudo, with Chilperic and the royal treasure, crossed that river before Charles was able to overtake them.
+
+[720] The contest was brought to a close soon afterward. A peace was concluded in virtue of which Eudo surrendered the person and treasure of Chilperic, and Charles, taking advantage of the opportune death of his shadow king Clothair, set up Chilperic in his stead, and treated him honorably to his dying day. This happened in the same year, and necessitated the appointment of a new king. Charles discovered another Merovingian scion in the abbey of Chelles, summoned him forth, and launched him upon his career of royal indolence under the name of Theoderic, or Thierry IV.
+
+Thus established in the undisputed rule of Austrasia, Neustria, and Burgundy, Charles felt at liberty to undertake a series of expeditions against the Frisians and Saxons, which though sometimes aggressive and attended by temporary success, appear to have resulted only in bloodshed, widespread desolation, and invincible antipathy. In one instance we read of a stinging defeat which he inflicted upon a most savage Saxon tribe, and not only made it tributary but took hostages;[^saxontribute] on another occasion he overran Frisia with war and punished the rebels with indiscriminate devastation and extermination.[^frisiadevastation] The causes of the revolt seem to be unknown.
+
+[^saxontribute]: *Fredeg. Cont.* [Latin] c. 109; *Annal. Mosell., Lauresh., Petav.* [Latin], a. 738.
+
+[^frisiadevastation]: *Annal. Lauresh.* [Latin], a. 934.
+
+Military expeditions against the Suabians and Bavarians also were aggressive and led to territorial acquisitions. Charles crossed the Rhine, traversed Suabia to the Danube, passed that river, occupied the frontier of Bavaria and subdued the country. Besides great spoil, he returned with Bilitrud the widow of Grimoald, duke of Bavaria, and Swanahild her daughter. The latter he married, but it is doubtful if she enjoyed the full rights of a lawful wife. At any rate he did not, in the subsequent partition of his dominions, treat Grifo, his son by Swanahild, on equal terms with his other sons by Rotrud.[^grifoterms]
+
+[^grifoterms]: *Fredeg. Cont.* [Latin] c. 108; *Annal. S. Amandi, Petav., Juvav.* [Latin] a. 725; *Einh.* [Latin] a. 741.
+
+Thus far the military achievements of Charles had been directed to the consolidation of the Frankish monarchy,

@@ -1164,4 +1164,20 @@ In the next year (796) Charles's son Pippin, King of Italy, followed up Eric's s
 
 There were indeed some upflickerings of the apparently extinguished fire. The baptized *tudun* [Avar] failed to keep his oath of fealty to Charles, and had to be punished for his perfidy. In 799 Gerold, the Frankish governor of Bavaria, brother of Charles's late queen Hildegard, fell in battle with the insurgent Avars. But this Turanian people made not near so obstinate or long continued a resistance as the Teutonic Saxons. In the year 805 we find the *capchan* [Avar], who was a Christian, and bore the Greek name Theodore, humbly petitioning the Emperor
 
+Charles that on account of the needs of his people a place of habitation might be assigned to them between Sabaria and Carnuntum (the country round the Neusiedler See). His request was granted, and he returned to his people enriched by presents from the emperor, but soon after died. The new *chagan* [Avar] soon after "sent one of his nobles praying that he might have the ancient honor which the *chagan* [Avar] used to have among the Avars. To which prayer the emperor gave his assent, and ordered that the *chagan* [Avar] should have the supremacy over the whole kingdom according to the old custom of the Avars."
+
+After this we practically hear no more of the Avars during the lifetime of Charles. The power of the great Turanian kingdom was utterly broken, and possibly, but for the invasion of the Hungarians, who appeared upon the scene about seventy years after the death of Charlemagne, there would have been a complete reconquest of the lands of the Middle Danube by the Teutonic race. It must not be forgotten, however, that here, as well as further north, Sclavonic tribes were hovering round the eastern border of the Frankish kingdom, and, in fact, it was in a war with one of these tribes, the Croatian inhabitants of Tarsatica, on the Adriatic, that the valiant Eric of Friuli lost his life (799). The news was brought to King Charles at Pader-
+
+born at the same time as the tidings of the death of his brother-in-law, Gerold, and saddened him in the midst of his Saxon victories. Bishop Paulinus wrote a Latin elegy on the death of his friend, in which, like David in his lament over Saul, he prayed that neither dew nor rain might fall on the Liburnian shore, nor corn nor wine might gladden the hills on which the noble Eric met his doom.
+
+---
+
+## CHAPTER X.
+
+### RELATIONS WITH THE EAST.
+
+Now that we are approaching the most important event in the life of Charlemagne, his assumption of the imperial title, it will be necessary to glance at his relations with the line of sovereigns who alone up to the year 800 wore the title of Emperor, the Cæsars of Constantinople.
+
+It will be hardly needful here to repeat the warning given by many recent historians against considering the State which was governed from Constantinople, between 476 and 800, as anything else than the *Roman* empire. As its centre of gravity was now on the Bosphorus instead of being on the Tiber, and as its chief possessions were situated on the east of the Gulf of Venice, or even on the east of the Archipelago, it is difficult to avoid speaking of it as the eastern empire; but for all the centuries between the fifth and the ninth we must remember that this is not a strictly accurate expression. It was during all that period "*the empire*," "the dominion of the
+
 ---

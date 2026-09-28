@@ -833,4 +833,44 @@ Astolf did not long survive his misfortune; he was accidentally killed on a hunt
 
 The fame of Pepin spread throughout the world, and even the emperor Constantine Copronymus sent an embassy to him with presents, including an organ, the first ever seen in Francia.
 
-He now devoted himself to necessary legislation, the establishment and consolidation of his large empire, and the
+He now devoted himself to necessary legislation, the establishment and consolidation of his large empire, and the pacification of outlying and populous provinces, impatient of subordination.
+
+Among these Bavaria claimed his first attention. The attitude of its duke, Tassilo, his nephew and vassal, was defiant and haughty. Summoned to the Diet of Compiègne, he was required and compelled to take the customary oath of vassalage, and in further confirmation thereof, renew it on the tombs of St. Denis, St. Martin, and St. Germain; in the same way the oath of fidelity was administered to the nobles in his train.
+
+But Tassilo, in spite of this solemn swearing, persisted in his refractory mood, and not many years after,[^tassilo763] on pretence of sickness, left Pepin's army at a critical time, declaring again on oath that he would be independent, and never thereafter obey the royal mandate. He kept this oath, entered into close alliance with the Lombards by marrying a daughter of Desiderius, and lived to repent his course.
+
+[^tassilo763]: In 763, on the march to Aquitaine.
+
+The Saxons kept Pepin busy in the north, while the Moslems in the south, together with Waifre, the rebellious duke of Aquitaine, taxed all his energies. Waifre, like Astolf, Tassilo, and other crowned heads of that and the next generation, had the habit of swearing in the most reckless manner, and forgetting the obligations of his oaths after they had been taken.
+
+The Aquitanian revolt lasted nine years; campaign succeeded campaign, until Pepin succeeded in chastising the province into loyalty and compelled the unfortunate Waifre to roam the forest in quest of an asylum from his revenge. Even there he could not escape his doom. Four *scaræ* [Latin] of Frankish troopers tracked his steps, surrounded the woods of Edobola, his hiding-place, and hunted him down. He was assassinated by his own subjects, but by the king's command.[^fredegarcont135]
+
+[^fredegarcont135]: Fredegar. cont. c. 135; Annal. Lauriss.
+
+The conquest of Septimania and the final expulsion of the Moslems belong to an earlier period, and might have been long delayed but for a secret understanding between the generals of Pepin and the Christian Goths of Narbonne, who, tired of Arab oppression and the hardships of war, opened the gates of the city which then passed definitely under Frankish rule.
+
+The inhabitants were guaranteed the "free enjoyment of their Gothic and Roman law and of their local institutions. It even appears that in the province of Spain bordering on Septimania an Arab chief, called Solimary, who was in command at Gerona and Barcelona, between the Ebro and the Pyrenees, submitted to Pepin himself and the country under him. This was an important event, indeed, in the reign of Pepin, for here was the point at which Islamism, but lately aggressive and victorious in southern Europe, began to feel definitely beaten, and to recoil before Christianity."[^guizotic9]
+
+[^guizotic9]: Guizot, *l. c.* [Latin] t. I., c. 9.
+
+Pepin, at the close of his last Aquitanian expedition, elated with the final subjugation of the refractory province, returned to Saintes, making a prolonged stay for the promotion of salutary legislation.[^capitulaquit] In the midst of his labors he fell sick; but ill as he was, and prompted by the superstitious belief of his age, hastened to Tours, and earnestly prayed on the tomb of St. Martin for his recovery. But the saint at Tours was as deaf to his entreaties as St. Denis, to whose monastery he then proceeded. His wife and his sons, Charles and Carloman, were with him. Convinced that his sickness was incurable—he had the dropsy—he provided for the transmission of his empire to other hands. He summoned all the notables of the realm, the dukes and counts of the Franks, together with the bishops and clergy, to his presence, and directed, with their consent, that his two sons, Charles and Carloman, should divide between them the whole of his dominions, in such wise that the kingdom of Charles, the elder, should embrace Austrasia and Neustria, and that of Carloman, the younger, consist of Burgundy, the Provence, Gothia (Septimania), Alsatia and Alemannia; the duchy of Aquitaine, which he had so recently conquered, he divided between them.[^fredegarcont136]
+
+[^capitulaquit]: Capitul. Aquit. MG. Leges, II., 13.
+
+[^fredegarcont136]: Fredegar. cont. c. 136. Annal. Mett.
+
+The biographer of Charles states that the Franks, in a general assembly of the people, made them both kings on condition that they should divide the kingdom equally between them, Charles to take and rule the part that had belonged to their father, Pepin, and Carloman the part which their uncle, Carloman, had governed.[^einhardividacaroli3] This is true in so far as the last clause is concerned; the earlier requires to be modified by the particulars before indicated, which doubtless imply Pepin's designation of his sons as his successors, and the solemn ratification of his will by the free choice of the estates of the realm. This, though in conformity with ancient law, was in the present case a mere formality, for the Franks were bound by the solemn oath which Stephen administered to them at the time of Pepin's consecration, thenceforth to choose their kings only of the race of Charles Martel.[^montesquieuesprit]
+
+[^einhardividacaroli3]: Einhardi Vita Caroli, c. 3.
+
+[^montesquieuesprit]: "*J'y vois deux choses en quelque façon contraires: qu'il fit le partage du consentiment des grands; et ensuite, qu'il le fit par un droit paternel. Cela prouve ce que j'ai dit, que le droit du peuple dans cette race étoit d'élire dans la famille; c'était à proprement parler, plutôt un droit d'exclure, qu'un droit d'élire.*" [French] ("I see here two things in some way contrary to one another: that he made the division with the consent of the nobles; and yet that he made it by paternal right. This proves what I have said, that the right of the people in this dynasty was to elect within the family; it was, properly speaking, rather a right of exclusion than a right of election.") Montesquieu, *Esprit des Loix* [French], l. XXI. ch. xvii.—cf. Canisius, *Lect. antiquæ* [Latin] t. II. Annal. Mett., and Einhardi s. a. 768; Claus. de Pippini Elect.
+
+We may complain of want of clearness as to the line of division, and hesitate to take sides in this obscure and knotty question, but can hardly err concerning the principle on which it was made. That was the preservation of the unity of the Frankish empire, and in the division Pepin accordingly avoided the separation of nationalities, as fatal to the maintenance of such unity.
+
+He gave to each of the brothers a kingdom containing a mixed population of Germans and Romans; the former predominating in the kingdom of Charles, the latter in that of Carloman, anticipating the necessary and salutary result that the kings should observe a just regard to the national peculiarities of their subjects, and the people of the one kingdom cherish fraternal feelings for those of the other.[^waitzdvg]
+
+[^waitzdvg]: Waitz, *D. V. G.* [German], III., 96; 2d ed.; Abel-Simson, *l. c.* [Latin] I., 29; 2d ed.
+
+Soon after Pepin died and was buried [Sept. 24, 768] in the basilica of St. Denis the Martyr.[^dateofdeath]
+
+[^dateofdeath]: The date of his death is mentioned in Annal. Lauriss., Mett., S. Amandi, Guelf., etc. For variations see Böhmer, *Regesta* [Latin]: s. a. 768.

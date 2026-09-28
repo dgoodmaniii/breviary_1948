@@ -2467,4 +2467,38 @@ Such a Job's message awaited him on his return from **775]** Saxony; it was more
 
 Hadrian felt sore, and, in this letter, drew largely on his imagination; Charles doubtless did not depend solely upon him for intelligence, but judged the situation, in spite of the pope's exaggeration, sufficiently grave to call for instant action. It was midwinter; the army had been disbanded, but something must be done. The revolt in Friuli must be quelled forthwith and its faithless head chastised; the example of a Frankish vassal breaking his oath, and proclaiming his independence was perilous to his rule in Italy, and left him no choice but instant action.
 
-He left Schlettstadt in Alsace immediately after Christmas with a *scara* [Latin] of picked household troops, and crossed the Alps with amazing rapidity. He was in the duchy of Friuli before Hrodgaud knew that he was coming. The feeble resistance he offered ended in defeat, imprisonment, and death. It is not certain how he lost his life, whether
+He left Schlettstadt in Alsace immediately after Christmas with a *scara* [Latin] of picked household troops, and crossed the Alps with amazing rapidity. He was in the duchy of Friuli before Hrodgaud knew that he was coming. The feeble resistance he offered ended in defeat, imprisonment, and death. It is not certain how he lost his life, whether he fell in combat, or was put to death by his followers, who went over to Charles in large numbers, not voluntarily, however, but by bribery.[^annaleinhlaurissfuld]
+
+[^annaleinhlaurissfuld]: Annal. Einh.; Lauriss.; Fuld.; cf. Böhmer, *l. c.* [Latin] Nos. 196 c. 198. Andr. Berg. c. 4.
+
+**776]** His speedy punishment frightened the rest of the league, and nipped it in the bud. Hrodgaud's father-in-law, Count Stebelinius, with a number of revolted Lombards, withdrew behind the ramparts of Treviso, and prepared to stand a siege. Charles took it by storm, and in like manner marched against the other cities, and conquered them. The story that Treviso was betrayed by Petrus, an Italian priest, who reaped the reward of his treachery in the honors and emoluments of the see of Verdun, is not credited, although the unfortunate bishop labors, let us hope, under the false imputation of having performed the same act in the capture of Pavia.[^mgss444]
+
+[^mgss444]: MG. SS. IV., 44; VIII., 351.
+
+The conquered cities were placed under the direction of Frankish counts, the customary oaths were administered, the property of the rebels was confiscated, a number of whom were sent into banishment. Charles gave one of the sequestered estates to his devoted adherent, the grammarian Paulinus, the same who afterwards became patriarch of Aquileia,[^bohmerno198] and divided the others, as was his wont, among his warriors and the Church. The rebellion was quelled, the league evaporated, Rome continued safe, and Charles, with more pressing work on hand in Francia, denying himself the pleasure of an excursion to Rome, as quickly as he had come recrossed the mountains blessed with prosperity and victory,[^eademquavenerat] and accompanied by a number of prisoners, among whom is mentioned by name the Lombard Arichis, a brother of Paul the Deacon.
+
+[^bohmerno198]: Böhmer, *l. c.* [Latin] No. 198.
+
+[^eademquavenerat]: "*Eadem qua venerat velocitate reversus est.*" [Latin]—Annal. Einh., cf. Lauriss., and note 2, p. 169.
+
+The devotion of Arichis to the Lombard dynasty entailed separation from his wife and children, who languished in misery, and his own most sad and long captivity.
+
+Six years later his brother, the deacon, also strongly attached to the Lombards, in a touching poem interceded for him with Charles, and obtained his freedom.
+
+This was the occasion of his personal relations to Charles, and removal to Francia.[^annallaurissmgss]
+
+[^annallaurissmgss]: Annal. Lauriss., MG. SS. Lang. 15.—Versus Pauli ad regem precando, in Poet. Lat. aev. Carolin. I., 47 sq.—Cf. Abel-Simson, *l. c.* [Latin] I., 253.
+
+The annals suppress the reason why Charles did not go to Rome, and their language is misleading. He spent more than two months in Italy after the fall of Treviso, and had plenty of time to visit Rome, had such been his purpose.
+
+But he clearly avoided Hadrian, and felt as reluctant to admit his inordinate claims to territorial possessions, alleged to have been given or promised to St. Peter, as to espouse his cause against the archbishop of Ravenna, the duke of Spoleto and others.
+
+The archbishop of Ravenna had the king's ear, and more influence with him than Hadrian. Charles, moreover, had confirmed to its duke the duchy of Spoleto, which the pontiff claimed for St. Peter; and, in fact, had completely ignored him in the recent regulation of the affairs of the Peninsula.
+
+Under such circumstances a meeting with Hadrian would have been painfully embarrassing, and for these reasons Charles returned to Francia without visiting Rome.[^seeabelsimson1258]
+
+[^seeabelsimson1258]: See Abel-Simson, *l. c.* [Latin] I., 258, together with his authorities and references, especially to Codex Carol. Nos. 57, 58, in Bibl. Rer. Germanic. IV., 190. sqq.
+
+This brief and brilliant Friulian campaign illustrates, perhaps better than any other as yet presented, one of the most striking characteristics of the military ability of Charles. The thirty-two years of Saxon warfare mark the relentless and inexorable purpose of the tyrant, the conquest of Lombardy the skill of the strategist and tactician, the invasion of Spain the wisdom of the disappointed general, but this Friulian expedition shows the genius of Charles and the versatility of his powers.
+
+Even now, with all the appliances and conveniences of modern contrivance, the sight of an equestrian in any of the hollow approaches to the Alpine passes, who in mid-

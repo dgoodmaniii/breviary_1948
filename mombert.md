@@ -2878,3 +2878,27 @@ The Franks followed up the advantage they had gained the year before. A large ar
 It is difficult to reconcile this bloodless triumph with the statement, that "the general destruction of the region, and the depopulation of the country, bear witness how many battles were fought in those [seven] years, and how much blood was shed," and that "the entire body of the Hun nobility perished in this contest, and all its glory with it."[^annallauriss17]
 
 [^annallauriss17]: Annal. Lauriss.; Alam. (Murb.); S. Amandi.—Rhythmus de Pippin.
+
+The subjugation of the Avars cannot have been so absolute and entire, for part of them fled across the Theiss, and Pepin not only carried the treasure to Aix-la-Chapelle, but a large number of prisoners. Besides, it is indisputable that, although we may hold in a general way that the operations and events of the present campaign under Pepin mark the epoch of the fall of the Avars,[^paulicromss] much fighting remained to be done, and the final conquest did not take place till years after.
+
+[^paulicromss]: Pauli c. Rom., SS. rer. Langob. et Ital., p. 202, a. 796.
+
+Their conversion was not lost sight of. The Franks had stripped them of all their earthly treasures, and sent them houseless into the wide world; still they might recover a home, and perhaps earn a living, if they would only renounce the devil, forswear paganism, and become good Christians.
+
+Pepin discussed the matter with a number of bishops in his camp on the Danube, and gravely argued the propriety of administering baptism more frequently than at Easter and Whitsuntide. For thus far the whole of the Christianity of the Avars began and ended with baptism, even **797]** without the formal rehearsal of the Creed. It was now proposed to pursue a more judicious and rational course; the rude and ignorant people should receive some Christian instruction and not be baptized by violence. Owing to the small number of priests baptism might be lawfully administered any Sunday in the year. Persons already baptized by lawful ministers should not be rebaptized, while those who had been baptized without a confession of faith, and really undergone only ablution with water, were to be considered unbaptized. The conversion of the Avars engaged the minds of Paulinus and Arno, but ultimately the missionary operations were committed to the care of the bishop of Salzburg, and military measures resumed the very next year by the margrave of Friuli.
+
+A battle was fought in which Eric triumphed, "con- **799]** quered the country and brought it under the domination of the lord king Charles."[^annalguelfalam] But even this battle was not decisive, for only two years later the Avars were again in open insurrection, and falsified the hope of their peaceful submission.[^annallaurissalam798]
+
+[^annalguelfalam]: Annal. Guelf., Alam. (Murb.).
+
+[^annallaurissalam798]: Annal. Lauriss., Alam. (Murb.) a. 798: "*Wandali mentiti sunt.*" [Latin]
+
+New fighting ensued, and it is safe to conclude that the Avars showed mettle and scored a success, since the Frankish annals maintain discreet silence as to Frankish victories, and only record the untimely death of count Gerold, one of the best of the generals of Charles. He was "slain, with only two other men in his company, by an unknown hand, while he was marshalling his forces for battle against the Huns, and riding up and down the line encouraging each of his command."[^annallaurisseinhenhfuld]
+
+[^annallaurisseinhenhfuld]: Annal. Lauriss., Einh., Enh. Fuld., al.—Vita Caroli, c 13.
+
+What then ensued is not known; but his death appears to have caused a panic, for neither his Alemannian countrymen nor his Bavarian followers remained to recover the body of the king's brother-in-law, of late supreme in command, and supreme in the general government of Bavaria. That service of love was rendered by a faithful Saxon, who took up the remains and carried them to far distant Reichenau for burial in the church of St. Mary.[^seetheepitaph]
+
+[^seetheepitaph]: See the epitaph and metrical tributes to his memory in Simson, *l. c.* [Latin] II., 190 sq. Of these the following passage is from *Visio Wetini* [Latin], 18, in Mabillon, A. S. o. S. Bened. IV. a. ed. Venet. p. 256: *De Gerolto vero quodam comite dixit idem angelus, quos in requie esset gloriae martyrum adaequatus. "Zelo enim," inquiens, "Dei in defensione sanctae ecclesiae infidelium turbis congressus, temporalis vitae dispendia est passus: ideo aeternae vitae est particeps factus."* [Latin]
+
+By a strange coincidence the death of Eric, margrave of Friuli, took place about the same time. He was perhaps the ablest of Frankish generals, and fell into an ambush which the Croat inhabitants of the town of Tharsatica (*Terzatto* [Italian]) near Fiume on the Adriatic had set. He fought with desperate and heroic valor against his assailants, maintaining an unequal contest until his shield was broken, his lance dropped shivered from his grasp, and, pierced with

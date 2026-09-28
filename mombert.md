@@ -2389,3 +2389,50 @@ The Etcheco-Ioana, a Vasconian chief, hears in his hut on the lofty Ibaneta a sh
 > *Combien sont ils? enfant compte-les bien!*
 > *Vingt, dix-neuf, dix-huit, dix-sept, seize, quinze, quatorze, treize,*
 > *Douze, onze, dix, neuf, huit, sept, six, cinq, quatre, trois, deux, un;* [French]
+
+*8.*
+
+> *Un! il n'y en a même plus un!*
+> *C'est fini. Etcheco-Joana, vous pouvez rentrer avec votre chien,*
+> *Embrasser votre femme et vos enfants,*
+> *Nettoyer vos flèches, les serrer avec votre corne de bœuf, et ensuite vous coucher et dormir dessus;*
+> *La nuit, les aigles viendront manger ces chairs écrasées,*
+> *Et tous ces os blanchiront dans l'éternité.* [French]
+
+The prose paraphrase which follows may make the drift of this rugged old song more intelligible to the reader unfamiliar with French.
+
+He rushes forth to see and hear, shouting, "Who's there? What do you want?" His dog, till then asleep, has also heard the cry, and with its bark wakes the echoes of Altabiçar.
+
+The cry is followed by another sound, dull, confused, and strong, shifting from rock to rock, and coming nearer. He concludes that it is the noise of a moving host, hears the familiar notes of the bull-horn[^customofsummoning] from every mountain-top, smiles, and sharpens his arrows.
+
+[^customofsummoning]: The custom of summoning the Basque mountaineers with the blast of the bull-horn is primitive, and common to other nations. An old statute requires the mountaineer on hearing the signal to leave his flocks, seize his arms, and follow the call. "*Cum homines de villis qui stant in montanis cum suis ganatis (flocks), audierint appelitum, omnes capiant arma, et, demissis ganatis, sequantur appelitum.*" [Latin]—Biancae Comment. Hispan. illustr. Compare the lines of "Pibroch of Donald Dhu:" "Leave untended the herd, the flock without shelter, etc.," showing that a similar custom prevailed in Scotland.
+
+A forest of lances, with gay banners and flashing helmets and coats of mail, emerges from the pass. He bids his son count them. The lad counts: "One, two, three, four," and so forth, to twenty.
+
+"Twenty thousand, and many more thousands following." "Stop counting!" he cries.
+
+> ". . . . 'Tis waste of time to count.
+> Let's use our arms, displace these stones.
+> Direct their course and downward roll,
+> In death involve each living soul,
+> And crush their bones!"
+
+Thus occupied, the father asks: "What came they for, those northern men? Why did they enter our mountains and disturb our peace?" and replies, "when God made the mountains, he set them as barriers between man and man."
+
+The stones roll down, and bury the battalions. The savage Basque feasts his eyes on the pandemonium below, expatiating on the quivering flesh and shattered bones in seas of blood.
+
+Then he bids them fly, knowing that flight is vain; scornfully bids Charles fly, Charles with his sable plume and crimson pall, telling him that his nephew, his brave and loved Roland, lies dead in the vale.
+
+Their work is done aloft, but other work awaits them below; they shoot their arrows after the flying host until they are spent, draw them out of the bodies of the slain, and return to their mountain home.
+
+Again the Etcheco-Ioana stands looking, and watching the flight triumphantly exclaims: "Where is it now, that forest of lances? where are the banners gay? No sunlight flashes from those blood-stained helmets and coats of mail!" Again he bids his son count them; the lad obeys, but reversing the order, says, "Twenty, nineteen, eighteen," and so forth down to one.
+
+"No, not one," shouts the savage Basque, "it is all finished."
+
+"Yes," concludes the poet, "turn in now, Etcheco-Ioana, and take your dog with you. Kiss your wife and children; cleanse your arrows and tie them to your bull-horn; seek your rest and sleep upon them. In the night the eagles will come and feast on the flesh, and the bones they leave will blanch into eternity."
+
+The solitary notice of the death of Roland in the massacre of Roncesvalles is the groundwork of the famous Song of Roland of the romance writers.
+
+A few passages, supposed to describe the event, are sufficient for the purpose in hand.
+
+Roland "now blew a loud blast with his horn, to summon any Christian concealed in the adjacent woods to his assistance, or to recall his friends beyond the pass. This horn was endued with such power that all other horns were split by

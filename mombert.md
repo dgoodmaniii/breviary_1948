@@ -643,4 +643,44 @@ With him also Zacharias lived on pleasant terms—and, strange to tell, such was
 
 [749] The presence of two royal converts in a monastery within his call added lustre to the fame for sagacity which the successful intervention of Zacharias in public affairs had spread throughout Europe. And so it came to pass that Boniface, who was a warm admirer and earnest partisan of the pontiff, and had the ear of Pepin, suggested the expedient of submitting to his decision the vexed question of the Frankish kings.
 
-The mockery of that phantom royalty, so long maintained, was universally felt, and its utter uselessness as universally acknowledged. Charles Martel reasoned, if he did not say so, that it were better to have no king at all than the contemptible puppets who disgraced their ancestry and the royal office. It was his policy, and indeed that of all the mayors of the palace, to lessen respect for the effete Merovingian
+The mockery of that phantom royalty, so long maintained, was universally felt, and its utter uselessness as universally acknowledged. Charles Martel reasoned, if he did not say so, that it were better to have no king at all than the contemptible puppets who disgraced their ancestry and the royal office. It was his policy, and indeed that of all the mayors of the palace, to lessen respect for the effete Merovingian race, and prepare the nations united in the Frankish confederation for the accession of a new dynasty. This is doubtless the true reason why he allowed the throne to remain vacant for the space of four years.[^sinealiorege]
+
+[^sinealiorege]: "*Sine alio rege imperavit.*" [Latin] ("He ruled without another king.")—Geneal. Reg. Merov. MG. SS. II., 308.
+
+Pepin, now sole ruler of the Franks, thought the time had come for a radical change, and had the mettle and tact to accomplish it.
+
+He designated Burchard, bishop of Würzburg, and Folrad, his priest-chaplain, ambassadors to Rome, and instructed them to submit the whole case to the wise judgment of Zacharias. The story of their mission and of the *coup d'état* [French], for such it was, of contemporary record, reads as follows:
+
+"A.D. 750.—Pepin sent ambassadors to Pope Zacharias to ask his opinion in the matter of the kings of the Franks, who, though of the line royal, and bearing the regal title, took no part in the conduct of the government except that official documents were issued in their name; they were destitute of power, and only did what the mayor of the palace told them.
+
+"When upon the set day of the March Assembly the gifts of the people, according to ancient usage, were presented to the sovereign, the king, surrounded by the military, sat in his chair, the mayor of the palace standing before him, and proclaimed such laws as had been established by the Franks. When this was done he returned home, and stayed there during the remainder of the year.
+
+"Pope Zacharias, therefore, in virtue of apostolic authority, told the ambassadors that he judged it better and more advantageous that the regal title and office should inhere in the person already clothed with executive power, and not in that of one who was falsely called king.
+
+"The said pontiff accordingly enjoined the king and the people of the Franks, that Pepin, already clothed with regal power, should be duly called king and raised to the throne.
+
+"And this was done by St. Boniface, archbishop, who anointed him king in the city of Soissons. Pepin was called king, and Childeric, falsely called king, was shaven, and sent to the monastery."[^annallaurissminor]
+
+[^annallaurissminor]: *Annal. Lauriss. minor.* [Latin] MG. SS. I., 116. See the authorities for the deposition of Childeric and the coronation of Pepin, in the "Appendix," A.
+
+The story of this revolutionary change of dynasty is adroitly placed by Einhard, or Eginhard, the biographer of Charles the Great, at the beginning of his work, composed after the death of his patron. It reads as follows:
+
+"The Merovingian family, from which the Franks used to choose their kings, is commonly said to have lasted until the time of Childeric, who was deposed, shaven, and thrust into the cloister by command of the Roman pontiff Stephen.[^stephenmistake] But although, to all outward appearance, it ended with him, it had long since been devoid of vital strength, and conspicuous only from bearing the empty epithet royal; the real power and authority in the kingdom lay in the hand of the chief officer of the court, the so-called mayor of the palace, and he was at the head of affairs. There was nothing left the king to do but to be content with his name of king, his flowing hair, and long beard; to sit on his throne and play the ruler; to give ear to the ambassadors that came from all quarters, and to dismiss them as if on his own responsibility, in words that were, in fact, suggested to him, or even imposed upon him. He had nothing that he could call his own beyond this vain title of king, and the precarious support allowed by the mayor of the palace in his discretion, except a single country-seat, that brought him a very small income. There was a dwelling-house upon this, and a small number of servants attached to it, sufficient to perform the necessary offices. When he had to go abroad he used to ride in a cart, drawn by a yoke of oxen, driven, peasant fashion, by a ploughman; he rode in this way to the palace and general assembly of the people, that met once a year for the welfare of the kingdom, and he returned home in like manner. The mayor of the
+
+[^stephenmistake]: This is, of course, a mistake. Substitute "Zacharias." See also Hallam, *Middle Ages*, ch. vii.
+
+palace took charge of the government, and of everything that had to be planned or executed at home or abroad.
+
+"At the time of Childeric's deposition, Pepin, the father of King Charles, held this office of mayor of the palace, one might almost say, by hereditary right; for Pepin's father, Charles, had received it at the hands of his father, Pepin, and filled it with distinction."[^turnertranslation]
+
+[^turnertranslation]: The version of the text is taken from Turner's translation of Eginhard's *Life of Charlemagne*, from *Monumenta Germaniæ* [Latin], New York, 1880.
+
+The instructions given to Burchard and Folrad were doubtless precise and minute, and Zacharias could have no hesitation as to the answer he was expected to give, and gave.
+
+It was published far and near, in preparation of the com- [751] ing event, in the year following, when, in the presence and by consent of the General Assembly of the hierarchy, nobility, and people, was enacted the formal deposition of Childeric III., and the proclamation of Pepin as king of the Franks.
+
+There was the customary and time-honored acclamation, the impressive clash of arms, the significant elevation on the buckler, and the grand ceremonial of the Church, administered by the venerable Boniface, who poured holy oil on the head of the first king of the Franks of Carlovingian lineage.
+
+The ecclesiastical fiction of unction being the seal of divine authority, or conferring the same right as that divinely bestowed on the kings of Israel, was probably an unction to the soul and uneasy conscience of Pepin, and served the purpose of salving over his dubious title to the throne.
+
+In plain speech, the deposition of Childeric was a political necessity, the coronation of Pepin perhaps a necessary usurpation, and the reference of the case to papal decision a precedent as dangerous to the prince and his successors, as salutary to the aspirations of Zacharias and the pretensions of his successors.

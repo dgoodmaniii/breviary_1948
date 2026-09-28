@@ -885,4 +885,23 @@ In several of these campaigns the Frankish king was effectually seconded by his 
 
 One of the fiercest campaigns was that of 798 against the Nordalbingi, who had grievously enraged Charles by the murder of his *missi* [Latin] ("envoys") or plenipotentiaries, one of whom was clothed with the
 
+sacred character of an ambassador to the King of Denmark. In his vengeance for this murder Charles was powerfully seconded by Thrasco, Duke of the Abodrites.
+
+During the next four eventful years (800–803) Charles had abundant occupation south of the Alps. In 804 he led his army into Saxon-land, "transferred all the Saxons who dwelt beyond the Elbe and in Wigmodia with their wives and children into Frankland, and gave the shires beyond the Elbe to the Abodrites." As these Sclavonian allies of Charles were heathens, this handing over to them of the duchy of Holstein was so far a confession of failure in the attempt to win the whole of the Saxon territory for Christianity. The number of the Saxons on both banks of the Elbe thus transported is given by Einhard at 10,000. When the inhabitants of whole districts were thus forcibly removed, much injustice, even from the point of view of Frankish "law and order," must often have been committed. In the next generation complaints reached the ears of Charles's successor from the sons of loyal and peaceable dwellers by the Weser who had been swept off into exile together with the rebel Wigmodians, and had never recovered the property of which they were then despoiled.
+
+The resistance of the Saxons was powerfully aided
+
+by their Danish neighbor on the north. "Godofrid, King of Denmark," says the chronicler, "with his fleet and all the cavalry of his kingdom came to a place which is called Sliesthorp, on the borders of his kingdom and Saxon-land, for a conference with Charles, but would not venture further. Charles remained close to the river Elbe in a place which is called Holdunsteti, from whence he sent an embassy to Godofrid to treat about the surrender of deserters." As "the place called Sliesthorp" is Schleswig, and "the place called Holdunsteti" is Holstein, the student of contemporary history will recognize in this passage the germs of that controversy on "the Schleswig-Holstein question" which was settled in our day by the Dano-German war and led eventually to the supremacy of Prussia in the Germanic Confederation.[^schleswig]
+
+At last the Saxon war was ended. The wholesale transportation of inhabitants to which Charles had at length resorted, and which was balanced by the
+
+[^schleswig]: The Schleswig-Holstein question is proverbially complicated, being made so by the relations of the two provinces to each other, by the further relations of each separately and both combined to Denmark, and by the relations of all three to Austria, Prussia, etc. There was an almost ceaseless succession of wars over the question, or questions, from 1848 to 1866, when Schleswig-Holstein became a province of Prussia. For a full statement of the subject, see Bryce, *Holy Roman Empire*, note B.
+
+invitation to Franks to settle in the evacuated lands—acts which remind us of the proceedings of Shalmaneser and Nebuchadnezzar towards the people of Israel—had the desired effect.
+
+> "Freedom's battle once begun
+> Bequeathed from bleeding sire to son"
+
+in this instance was not "ever won." Christianity, or a religion which believed itself to be Christianity, was triumphant from the Rhine to the Elbe, and three fat bishoprics, Bremen, Münster, and Paderborn, divided between themselves the conquered land. "Saxonia" was henceforth an inseparable part of the newly-founded Frankish Empire.
+
 ---

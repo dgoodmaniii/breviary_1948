@@ -874,3 +874,47 @@ He gave to each of the brothers a kingdom containing a mixed population of Germa
 Soon after Pepin died and was buried [Sept. 24, 768] in the basilica of St. Denis the Martyr.[^dateofdeath]
 
 [^dateofdeath]: The date of his death is mentioned in Annal. Lauriss., Mett., S. Amandi, Guelf., etc. For variations see Böhmer, *Regesta* [Latin]: s. a. 768.
+
+---
+
+#### CHAPTER III.
+
+##### CIVILIZATION.
+
+*Extent of Francia.—Nationalities.—General immorality.—The Clergy.—Superstition.—Royalty.—Oaths.—Relics.—Ordeals.—Weregeld.—Political division: hof, weiler, markung, gau.—Domestic architecture.—Agriculture.—Slavery.—Domanial lands.—The Judiciary.—Military service.*
+
+According to the biographer of Charles, the kingdom of Pepin was confined "to that part of Gaul included between the Rhine and the Loire, the Ocean and the Balearic Sea; to that part of Germany which is inhabited by the so-called Eastern Franks, and bounded by Saxony and the Danube, the Rhine and the Saale—the stream which separates the Thuringians from the Sorabians; and to the country of the Alemannians and Bavarians."[^einhardivitacaroli15]
+
+[^einhardivitacaroli15]: Einhardi Vita Caroli, c. 15.
+
+Many of these nations were of Germanic origin, and their names were thought to express characteristics of their race; thus the Franks claimed that they were born *frank* [German], that is, free; the Alemannians proudly asserted their manhood, saying that they were *all men* [German]; the Saxons, divided into Eastphalians, Westphalians, and Angrians, derived their name, in the opinion of some, from the immemorial usage of their race of carrying a distinctive knife, the formidable *sachs* or *sax* [German], and in that of others from their inalienable right to the land they occupied, of which they were the *sassen* [German], that is, on which they sat, or were firmly established.
+
+The same civilization, or, more accurately, the want of it, was common to all the nations, directly or indirectly connected with the Franks. Vasconian, Aquitanian, Burgundian, Frank, Saxon, Lombard, Roman, and all the rest, were involved in the same moral, intellectual, and social degradation. The culture, splendor, and glory of ancient Rome had departed, and only its vices remained. The ancient pagan superstitions were blended with the religion of the age, which, with a few illustrious exceptions, failed to improve even the highest classes.
+
+Kings, princes, and even the higher clergy flagrantly violated every commandment of the decalogue. The testimony of Boniface is terrible.
+
+He says in one of his letters to Pope Zacharias, "that for sixty or seventy years past religion had vanished; that for eighty years the Franks had had neither a synod nor an archbishop; that most of the bishoprics were held by greedy laics, or adulterous, worldly-minded ecclesiastics; that most of their deacons had lived from their youth up in fornication and uncleanness, and kept even in the diaconate four or five, and even more concubines; that in spite of this they stood up in public to read the Gospel, and ultimately became bishops; that some of the bishops, though alleging their chastity, were addicted to drunkenness, injustice, and hunting, or wont to go armed to battle, and indiscriminately, with their own hands, shed the blood of Christians and pagans."[^labbconcil6]
+
+[^labbconcil6]: Labb. *Concil.* VI., 1494; Ep. 49 ad Zachar.
+
+Priests sometimes celebrated mass "gorged with food and dull with wine."[^pitraviedestleger] The case of Gewillieb, Bishop of Mayence, is remarkable.
+
+[^pitraviedestleger]: Pitra, *Vie de St. Léger* [French], p. 172 sqq.
+
+His father Gerold was slain in battle in an engagement with the Saxons. Gewillieb, though a man of good report, but uneducated, and a notorious lover of dogs and hawks, was appointed his successor. In the next campaign he inquired for the Saxon who had slain his father, and having learned his name, invited him to a friendly interview, and treacherously stabbed him in the Weser. This case was considered by a synod, and, at the instance of Boniface, he was deposed.[^neanderchurchhist90]
+
+[^neanderchurchhist90]: Neander, *Church History*, V., 90 sq.
+
+The synods forbade the clergy, on pain of deposition, to engage in war or the chase; to practise witchcraft and soothsaying; the use of amulets and chrism as a remedy for diseases.[^neanderchurchhist77]
+
+[^neanderchurchhist77]: Neander, *Church History*, V., 77.
+
+The ignorance of the clergy was appalling; some could not read;[^labbe1030] it was necessary to forbid the ordination of priests unable to recite the form of renunciation in baptism, and the confession of sins in the *vernacular*. Boniface charged Virgilius, an Irish priest, with the administration of baptism *in nomine patria et filia* [Latin] ("in the name of the fatherland and the daughter" — a garbled form of the baptismal formula). But this must be taken with a grain of allowance, for that priest was not a favorite with Boniface, who accused him, among other things, of holding the heretical notion "that under the earth existed another world, and other men." This is sometimes explained of the antipodes, but such an explanation is hardly in keeping with the intelligence of the eighth century. Virgilius, at any rate, must have satisfied the pope of his orthodoxy, for he was not only restored to the priesthood, but advanced to the episcopate, and ultimately exalted to canonization.
+
+[^labbe1030]: Labbe, *l. c.* [Latin] V., 1030.
+
+The degraded condition of the clergy is also apparent from the facility with which vagabonds passed themselves off with the ignorant and credulous multitude as priests. They shaved, donned the priestly garb, imitated the ceremonies of the Church, and made a good living as soothsayers.
+
+A certain Desiderius went about in a cowl and a shirt of goats' hair, pretending to lead a strictly abstemious life, and enjoy frequent intercourse with the apostles Peter and Paul. Many sick people were brought to him to be healed. If the species of faith cure which he practised did not succeed, as in the case of lame people, he called in the aid of science, administered by muscular attendants, who pulled the hands or feet of the poor patients with great violence until the refractory limbs became straightened in life—or death.
+
+Another man pretended to be Christ, and travelled about with a woman whom he introduced as the Virgin Mary. The people brought their sick that he might heal them by his touch. He also claimed to be a prophet, and deceived

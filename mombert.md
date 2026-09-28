@@ -819,4 +819,18 @@ This treaty was concluded in presence of the Byzantine representative, who claim
 
 [^appendixc]: See the authorities for the grant in the "Appendix," C.
 
-The pope, whose influence and intercourse with the prince of the apostles appears, from his own letters, to have been
+The pope, whose influence and intercourse with the prince of the apostles[^peteragency] appears, from his own letters, to have been
+
+[^peteragency]: The agency of St. Peter is one of the most curious things in these strange chapters of history. He not only writes letters and delivers messages from the Holy Virgin and all the hierarchy of heaven, but, by the potency of his intercession, heals the sick, confounds the enemies of the Church, and conducts the Franks to victory, while, in the exercise of his high prerogatives, he also dispenses eternal blessings and punishments. But, singularly enough, from some cause inexplicable and unrecorded, he is powerless at Rome to deliver the Church and her sanctuaries from the oppressive and sacrilegious presence of the Lombards. The pope, by a strange and incomprehensible want of faith, seems, upon the whole, to prefer the earthly arms of the Franks to the spiritual weapons of St. Peter.
+
+singularly frequent and intimate, may have received his sanction of accepting, on his behalf, a territory which of right belonged to his liege lord, the emperor at Constantinople. But, as the emperor's iconoclastic heresy absolved the pope from allegiance to him, so, by parity of reasoning, it seems to have deprived him of his vested territorial rights; and he saw, therefore, no reason for refusing the generosity of Pepin and possessing himself of the splendid donation, which, while it crippled and humbled the hateful Lombard, raised him to the dignity of a temporal sovereign. The service of Zacharias and the ceremonial at St. Denis were thus speedily and magnificently rewarded; there is little doubt that the deep workings of conscience and superstitious awe were important factors in the donation, but the pope was nevertheless the beneficiary.
+
+Astolf did not long survive his misfortune; he was accidentally killed on a hunt, doubtless, if the clerical writers of the day are to be credited, in punishment of his sins, and, in the opinion of Stephen, met his reward in the nether abyss of the infernal regions.[^divinoictu] Rachis, the monk, and brother of the late king, and Desiderius, his constable, claimed the succession. The pope opposed that of Rachis on ecclesiastical grounds, and, for a valuable consideration, supported Desiderius, who ascended the throne with the express approbation of Pepin and the Franks.[^fredegcont122]
+
+[^divinoictu]: "*Divino ictu percussus est et in inferni voraginem demersus.*" [Latin] ("He was struck down by a divine blow and plunged into the abyss of hell.") Epist. ad Pippin. VI.
+
+[^fredegcont122]: Fredeg. cont. c. 122., cf. Vita Steph. c. 49. Paul. Diac. MG. SS. Langob., 217. Thus Faenza, Imola, and other castles, together with the Duchy of Ferrara, passed under the jurisdiction of Stephen.
+
+The fame of Pepin spread throughout the world, and even the emperor Constantine Copronymus sent an embassy to him with presents, including an organ, the first ever seen in Francia.
+
+He now devoted himself to necessary legislation, the establishment and consolidation of his large empire, and the

@@ -365,3 +365,69 @@ It represents him wearing the imperial crown, in the posture of kneeling, and ho
 | | Arrival of Fortunatus, patriarch of Grado. |
 | | Expedition into Pannonia. |
 | | Local Diet at Ratisbon. Submission of the Tudun, together with many other Avars and Sclavonians. |
+| 804 | Saxon expedition for the final subjection of the country. |
+| | Diet at the headwaters of the Lippe. |
+| | Camp at Hollenstedt. Charles appoints Thrasco king of the Abodrites. |
+| | The Franks and the Abodrites expel the Saxons. Wholesale deportation. End of the Saxon war. |
+| | Proposed interview of Gottfried, king of the Danes, and Charles. |
+| | Alleged discovery of the blood of Christ at Mantua. |
+| | Pope Leo III. visits Charles. |
+| 805 | Return of the pope, January 14th. |
+| | The Avars are permitted to settle between Sabaria and Carnuntum. Death of the khakhan Theodore; baptism of the new khakhan Abraham. |
+| | King Charles invades Bohemia. |
+| | Remarkable instructions for the *missi* [Latin].—Military regulations, and directions relating to frontier trade and the exportation of arms. |
+| | Celebration of Christmas at Thionville; arrival of Louis and Pepin. |
+| | Obelierius and Beatus, doges of Venetia, together with dignitaries from Dalmatia, make their submission. |
+| 806 | Partition of the empire. |
+| | Expedition, commanded by King Charles, against the Sorabians. |
+| | Expedition into Bohemia. |
+| | Arrival of a Byzantine fleet in the Adriatic. Blockade of Venetia. |
+| | A Frankish vessel runs the blockade. |
+| | An Italian fleet drives Saracen pirates from Corsica. |
+| | Saracen pirates capture the monks of Patelaria. |
+| | Submission of Navarra and Pampeluna. |
+| | Death of Grimoald III., duke of Benevento. Accession of Grimoald *Storesaiz* [Italian]. |
+| 807 | Arrival of embassies from Harun-al-Raschid, and the patriarch of Jerusalem. |
+| | Alfdeni, a Danish chieftain, makes his submission. |
+| | A Frankish fleet, commanded by constable Burchard, defeats the Saracen pirates. |
+| | King Pepin makes a truce with the Byzantine admiral Nicetas. |
+| 808 | Eardulf, the fugitive king of Northumbria, visits Charles and the pope. |
+| | Gottfried, king of the Danes, invades the country of the Abodrites. |
+| | Expedition, by King Charles, against the Linonians and Smeldings. |
+| | Erection of fortresses on the Eider, and on the Elbe. |
+| | Strained relations of Pepin and the pope. |
+| 809 | Restoration of Eardulf. |
+| | The Greek *Orobiotae* [Greek] (mountaineers) plunder Populonia, a seaport of Tuscia. |
+| | Repulse of the Byzantine fleet at Comacchio; admiral Paulus sails to Constantinople. |
+| | Saracenic descent upon Corsica, April 7th. |
+| | Expedition, by Louis, against the Saracens. Ineffectual siege of Tortosa. |
+| | Meeting of Frankish and Danish commissioners at Badenfliot. |
+| | Expedition, by Thrasco, king of the Abodrites, against the Welatabians and Smeldings. |
+| | Council at Aix-la-Chapelle, in November, on the Procession of the Holy Spirit. The *Filioque* [Latin]. |
+| | Assassination of Thrasco. Erection of a fortress at Esesfeld (Itzehoe). |
+| 810 | Amoroz, wali of Saragossa and Huesca, seizes the command of the late count Aureolus. |
+| | Saracen pirates plunder Corsica. |
+| | Expedition, by King Pepin, against Venetia. |
+| | Death of Princess Rotrud, June 6th. |
+| | Descent of a Danish fleet on the coast of Frisia. |
+| | Orders for the building of vessels for the protection of rivers and the coast. |
+| | The emperor, accompanied by King Charles, conducts an army into Saxony. Camp at Verden on the Aller. |
+| | Assassination of Gottfried. |
+| | Capture, by the Welatabians, of the fortress of Hohbuoki. |
+| | Death of King Pepin, July 8th. |
+| | Arrival of embassies from the courts of Constantinople and Cordova. |
+| | Accident of the emperor. |
+| | The epizooty.—Mortal powder.—General prayers. |
+| | Negotiations for peace with Constantinople, Cordova, and Denmark. |
+| | Raid into Spain, by the *missus* [Latin] Ingobert; second ineffectual siege of Tortosa. |
+| | Administration of Italy by *missi* [Latin]. |
+| 811 | Testamentary distribution of the imperial treasure. |
+| | Embassy to Constantinople. |
+| | Deposition of the doges. |
+| | Ratification of peace with Denmark. |
+| | Despatch of armies against the Linonians and Bretons, and into Pannonia. |
+| | The emperor inspects the fleets building at Boulogne and Ghent. |
+| | Siege and surrender of Tortosa. |
+| | Death of Pepin the Hunchback, at Prüm. |
+| | Death of King Charles, December 4th. |
+| 812 | Death of Hemming, king of the Danes. Struggle for the succession. Harald and Reginfrid kings. |

@@ -458,3 +458,29 @@ It represents him wearing the imperial crown, in the posture of kneeling, and ho
 ## BOOK I.
 
 ### ANCESTRAL PERIOD, A.D. 680–A.D. 768.
+
+#### CHAPTER I.
+
+##### CHARLES MARTEL.
+
+*Introductory remarks.—Pepin of Heristal's mistake.—Charles obtains the mastery of Austrasia, Neustria, and Burgundy.—Aggressive warfare.—He aids Eudo, duke of Aquitaine, against the Saracens.—The deadly battle of Tours.—Reduction of Aquitaine, and suppression of revolt in Burgundy.—Renewed and successful contests with the Saracens.—Charles chastises in the same summer, the Saxons, Provençals, and Saracens.—His relations to the Church.—Division of his dominions.—His death.*
+
+The three grandest names of Carlovingian lineage are so closely connected, and so nearly contemporary, that the history of one of their number necessarily involves that of the others. For this reason a sketch of the memorable career of the first Charles, surnamed "the Hammer," may not be an inappropriate introduction to the life of his grandson, and namesake, called "the Great."[^surnames]
+
+[^surnames]: The surnames "Tudites" [Latin] and "Martellus" [Latin] arose in the second half of the ninth century, nearly a century after his death. The first soon fell into disuse, but the latter is almost universal.
+
+Pepin of Heristal,[^pepinheristal] the father of Charles Martel, and conqueror of Testry, presided, for a period of twenty-seven years, with singular ability and energy over the affairs of the Frankish dominions in the capacities of duke of Austrasia, and mayor of the palace of Neustria. By his authority not less than four puppet-kings maintained a phantom royalty in Neustria and Burgundy. So abject was their estate that the annals of the period record events in such significant phrase as: "In such a year of the sovereignty of Pepin over Theoderic," and designate his reign as that of "Pepin with the kings subject to his rule."[^pepintheoderic]
+
+[^pepinheristal]: The descent of Pepin of Heristal.—Arnulf, bishop of Metz, died Aug. 6, 641, and left two sons: Chlodulf, bishop of Metz, and Ansigisil (or Adalgisel, Anchisus), reputed to have been mayor of the palace in Austrasia. He married Begga, daughter of Pepin the Old (or "of Landen"), also a mayor of the palace, and was the father of Pepin of Heristal, the date of whose birth is not known. See "Genealogical Table," for all matters relating to lineage; the "Chronological Annals" for dates; and the "Index" for geographical details.
+
+[^pepintheoderic]: *Annal. Metten., Fuld., Lauriss.* [Latin], a. 691.
+
+His was unquestionably the master intellect of his age, which held in check the fierce nations encroaching upon Frankish territory in the East and the South, devised and enforced necessary and wholesome legislation, and befriended in powerful protection and liberal donations the Christian missionaries from England, Ireland, and Rome.
+
+Unfortunately he was not free from the polygamy of the Frankish sovereigns and their license of repudiation. He had two wives, Plectrud and Alpais, but, his sons by the former being dead, committed the grand mistake of designating, at the instance of their imperious mother, his grandson Theodoald, only six years of age, his successor in the throne, to the exclusion of Charles and Hildebrand, his sons by Alpais.
+
+At his death Plectrud assumed the government, and imprisoned Charles at Cologne.
+
+A struggle was inevitable. Charles soon succeeded in the recovery of liberty, and aided by Austrasian nobles, who scorned the rule of a woman, attempted to wrest it from her hands.
+
+The situation was complicated. The Neustrians, with their phantom king Dagobert III., revolted from Austrasian rule, and marched against the youthful Theodoald, whom Plectrud, under escort of a strong force, had sent to Neustria. An engagement took place in the forest of Cuise, in which the Austrasians were defeated, while Theodoald barely escaped with his life.

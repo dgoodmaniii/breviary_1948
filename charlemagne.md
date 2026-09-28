@@ -1263,4 +1263,22 @@ against him." Fear made the conspirators bold; they seized the emperor while at 
 
 The deed was done on Saturday the 15th of August 797, at the ninth hour of the day. On the same day of the week and at the same hour, five years before, had his uncle suffered the same punishment. Men observed the coincidence and traced a divine retribution therein. But with greater horror did they learn that the emperor had suffered this brutal punishment in the Purple Chamber which was always reserved for the birth of an emperor's children. Here, in the very same room of the palace where he first saw the light, did he with the connivance, if not by the express command, of his mother lose the light of day and all that makes life worth living. "For seventeen days," says the historian, himself an image-worshipper and adherent of Irene, "the sun was
 
+darkened and did not give forth his rays, so that vessels lost their course and drifted helplessly, and all men said and confessed that because of the blinding of the emperor the sun did not show his beams. Thus did Irene his mother obtain supreme power."
+
+The character of the Empress Irene receives unbounded praise from the writers of the image-worshipping party. She is for them "the most pious Irene," "that strong-minded and God-guided woman, if, indeed, it be right to call her a woman, who was armed against all foes and all calamities with truly masculine temper." "Irene, that strong-minded and God-beloved woman, if we ought to call 'woman' one who surpassed even man in her pious disposition, one through whom God mercifully expelled the crooked heresy which had crept snakelike into the Church and brought back orthodoxy."
+
+But neither these flatteries of the monkish image-worshippers, nor her outward show of magnificence when, on Easter Monday (799), the proud Athenian rode forth from the Church of the Apostles in a golden car drawn by four white horses, which were driven by four patricians, and showered money among the multitude after the fashion of the ancient Consuls of Rome, represented the real place of the empress in the hearts of her subjects. The rule of Irene meant, as every one knew, the rule and the
+
+bickerings of the eunuchs who advised her. Moreover, there was really no precedent for a woman sitting alone in the seat of empire. When Pulcheria, sister of Theodosius II., was hailed as Augusta, it was on condition of her giving her hand to the soldier Marcian. Theodora and Sophia were Augustæ, but ruled only during the lifetime of their husbands. When Martina, widow of Heraclius, tried to pose as joint-ruler with her son and stepson (641), the multitude shouted an indignant denial of her claims. "How can you sit upon the throne and answer foreign envoys when they come to the royal city. God forbid that the polity of the Romans should come into such a plight as that." It was a hundred and fifty-six years since the Byzantine populace had hurled these words at Martina and compelled her to descend from the throne, but we may be sure that the spirit which prompted them still dwelt in the hearts of the mass of the people who yet called themselves Romans. To be ruled by a woman, and such a woman, the despoiler and all but murderer of her own son, was felt to be an unendurable humiliation. The insecurity of Irene's position was shown by the shortness of her reign, but that short reign of five years (797–802) was long enough to include, in a certain sense to necessitate, the great event which will be the subject of the following chapter.
+
+---
+
+## CHAPTER XI.
+
+### CAROLUS AUGUSTUS.
+
+The events described at the end of the last chapter happened in August 797. In the autumn of the following year, when Charles was resting at Aachen from the fatigues of a Saxon campaign on the banks of the Elbe, there appeared before him two Byzantine ambassadors, Michael, aforetime Patrician of Phrygia, and Theophilus, a priest of Blachernæ, who, on behalf of the Empress Irene, sought for and obtained the restoration of friendly relations between the empire and the kingdom. The covenant of peace was ratified by the return of an illustrious Greek captive, Sisinnius, brother of the Patriarch Tarasius, who had been taken prisoner probably in the Apulian war of 788.
+
+But a far more distinguished visitor than either Michael or Theophilus was to visit Charles's court in the following year, and to plead in lowlier fashion for his help. To understand the nature of this visit we must go back for a few years and glance at the
+
 ---

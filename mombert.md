@@ -1309,4 +1309,46 @@ Her influence over Charles was excellent, and confessedly great, although she co
 
 An anecdote told by the Monk of St. Gall appears to be true to life. A certain young man, in whom the king took an interest, and whose hopes he had raised as to securing a vacant bishopric, happened to be with him at an hour set for the reception of courtiers. The king told him that he had many competitors for the vacancy, and bade him retire behind a curtain to learn their number. One by one the nobles came to secure the position either for themselves or for special favorites; at last Queen Hildegard appeared and asked it for her own clerk. The king objected, protesting that, although he would not and could not say nay to her in almost anything she might ask, yet in this case he must needs disoblige her, for he had already promised the place to the aforesaid young man. The queen, who was not free from the weakness of women of setting their influence against the judgment of men, suppressed her anger, but forthwith opened upon her susceptible spouse the battery of dulcet speech and languid looks, saying: "O my Lord King, why waste that bishopric on such a boy? Let me entreat my sweetest king, my glory, my tower of strength, to confer it on your faithful servant, my own clerk."
 
-The young man heard and saw from behind the curtain what was going on, dreaded the worst, and unable to con-
+The young man heard and saw from behind the curtain what was going on, dreaded the worst, and unable to contain himself, exclaimed: "Keep firm, O King; and let no one deprive you of the power which God has given you!" The speech pleased Charles, so for the nonce he disobliged the charmer and made the young man bishop.[^monachsangall]
+
+[^monachsangall]: Monach. Sangall. apud Bouquet, V., p. 108 B.
+
+The repudiation of Desiderata was resented not only in Lombardy, but much nearer home; it added fuel to the hatred which slumbered in the breast of Tassilo, duke of Bavaria, who was married to one of her sisters, and revived or intensified the hostility of Carloman, whom respectable authority represents as the husband of another. At any rate both those princes were in open sympathy with Desiderius, and in the event of war would have sided with him against Charles.[^fabulouswriter]
+
+[^fabulouswriter]: A fabulous writer states, that Carloman was violently opposed to the marriage with Desiderata, and *compelled* Charles to disown her; that Berthrada, incensed at his course, cursed Carloman, who in consequence became blind, and died.—Andr. Bergam. hist. c. 3; SS. rer. Langob., p. 223 sq. There is no evidence that the repudiation was the result of papal remonstrance; even Ranke, *Weltgeschichte* [German], v. ii., p. 113, n. 1, shares this view.
+
+**771]** Probable war between the two brothers was averted by the opportune death[^seenote3p74] of Carloman at the critical moment. He died on the second nones of December in the Villa of Samoussy in the Ardennes. He had been in poor health, and the insinuation, sometimes made, that Charles was implicated in the event, is purely gratuitous, since it rests neither on truth nor a show of probability.[^pilatusgeschichte]
+
+[^seenote3p74]: See note 3, p. 74.
+
+[^pilatusgeschichte]: See Pilatus, *Geschichte des Deutschen Reichs und Italiens* [German], vol. ii.
+
+The widow of Carloman, knowing Charles, and dreading the worst for her children and her personal safety, concluded to seek refuge at the court of Desiderius. This course was the most natural, if he was her father.[^seenote2p77] At any rate, she went there, escorted by Otgar[^variationsogger] and other Frankish nobles more attached to the house of Carloman than to Charles.
+
+[^seenote2p77]: See note 2, p. 77.
+
+[^variationsogger]: The variations "Ogger," "Otker," "Otgar," "Otger," "Autchar," etc., denote the same person. His fidelity to Carloman, his widow and children was his crime; he escorted them to Italy, and was delivered to Charles. On his return to France he renounced the world, and with Benedictus, his former companion in arms, entered the monastery of St. Faro apud Meldos (Meaux), in the basilica of which the two friends are interred. Their mausoleum was still extant in 1701, and disclosed, among other interesting particulars, the fact that Auda, the sister of Ogger, was betrothed to the famous Roland. See Mabillon, *Annal. Ord. Benedict.* [Latin], t. iii., p. 376.
+
+The death of Carloman was expected, and Charles was near at hand for prompt and decisive action. He was at Longlier, a short distance from Corbeny, within the limits of his brother's kingdom. Immediately after the death of Carloman he proceeded, doubtless under a strong military escort, to Corbeny, accompanied by a number of the highest ecclesiastical and secular dignitaries, and announced to the feudatories of Carloman, who had been summoned to appear, his intention of possessing himself of the vacant throne. Resistance would have been useless; the farce of a formal election took place; the lieges of Carloman swore fealty to him; the bishops poured holy oil on his head, and thus "felicitously he obtained the monarchy of the kingdom of the Franks."[^annallauriss771]
+
+[^annallauriss771]: Annal. Lauriss., Mettenses; Fragment in "Forschungen," XVII., 628; Chron. Moiss., and S. Denis, a. 771. cf. Böhmer, *l. c.* [Latin] c. p. 59, No. 139. Some hold that the succession was decided in a lawful Diet, arguing that the two sons of Carloman, by reason of their tender age, were unfit to succeed; that their claim to the throne was not established; that there was no fixed law regulating the succession, beyond the general principle of an equality of right enjoyed by all the members of the royal family; that the claims of Charles to the vacant throne were equal to those of the sons of Carloman *per se* [Latin], and superior to them on account of his years, to which came the vital political necessity of an immediate reunion of the separated members of the Frankish Empire. The argument is ingenious, but is it true? Waitz, *l. c.* [Latin] III., 100, 275 sq., 2d ed.—Abel-Simson, *l. c.* [Latin] I., 102 sq.—cf. Wolf, *Kritische Beiträge* [German], p. 75, n. 5.
+
+He heard the account of Gerberga's flight, according to one reading "with indifference;" "with displeasure,"[^patienterimp] according to another; perhaps with both, for, being master of the situation, he may have known, as an old chronicle distinctly says he did, that it would not turn to her advantage or to that of the nobles who accompanied her, and felt that her "unnecessary journey"[^profectionem] reflected upon him. Perhaps she
+
+[^patienterimp]: *Patienter*, or impatienter.
+
+[^profectionem]: *Profectionem . . . supervacuam.* [Latin] Annal. Einh.
+
+dreaded violence, more probably the scissors of obsequious barber-monks and the living tomb of a convent.
+
+The sequel will show that her fears were not unfounded. It is useless to speculate on a state of things of which no authentic information may be had. Most of the annals extant maintain total silence on the true merits of the jealousies and quarrels of the sons of Pepin, and of the usurpation of Carloman's kingdom by his powerful brother, now sole king of the Franks. The remembrance of the wrong accompanied him to the tomb, and the principle of its justification is stated in a legal provision belonging to the last years of his life.[^seebkiiichiii]
+
+[^seebkiiichiii]: See bk. iii., ch. iii., *Division of the Empire*, § 5.
+
+Charles was now about thirty years old. "He was large and strong, and of lofty stature, though not disproportionately tall (his height is well known to have been seven times the length of his foot); the upper part of his head was round; his eyes were very large and animated; his nose was somewhat long, his hair light, his face laughing and merry. Thus his appearance was always stately and dignified, whether he was standing or sitting; although his neck was thick and somewhat short, and his body rather prominent, yet the symmetry of the rest of his person concealed these defects. His gait was firm, his whole carriage manly, and his voice clear, though not so strong as his size led one to expect."[^vitacaroli22]
+
+[^vitacaroli22]: Vita Caroli, c. 22.
+
+Such appeared the man to one who knew him well, and drew his portrait from the remembrance of long and intimate familiarity.
+
+Still it may not be superfluous to compare it with another description, the prototype of the traditional "Charlemagne," met in legend and song, in poetry and art. "The emperor was of a ruddy complexion, with brown hair; of a well-made, handsome form, but a stern visage. His height was about eight of his own feet, which were very long. He was of a strong, robust make; his legs and thighs were very stout, and his sinews firm. His face was thirteen inches long, his

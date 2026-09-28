@@ -164,3 +164,71 @@ It represents him wearing the imperial crown, in the posture of kneeling, and ho
 | | First expedition against the Lombards. Pepin invades Italy; his van defeats the Lombards in the valley of Susa; he pursues Astolf to Pavia, invests the city, dictates a peace, takes hostages, and returns into Francia. |
 | 755 | The old March-field is changed into a May-field, *i. e.*, the Annual Assembly is thereafter to meet in May. Death of Boniface. |
 | 756 | Second expedition against the Lombards. Pepin defeats them at the *clausæ* [Latin], again invests Pavia, and makes a peace humiliating to Astolf. |
+| | Donation to St. Peter and the Roman Church of the cities of Ravenna, Rimini, Pesara, etc., etc., restored by Astolf.—The instrument of donation is lost. |
+| 757 | Death of Astolf.—Desiderius, king of the Lombards. |
+| | Tassilo takes the oath of allegiance at Compiègne [French]. |
+| 758 | Victorious expedition against the Saxons. |
+| 759 | A year of peace.—Birth of Pepin (he died in his third year). |
+| 760 | Victorious expedition into Aquitaine. Waifre sues for peace. |
+| 761 | Pepin, accompanied by Charles, marches into Aquitaine and quells the revolt, with partial success. |
+| 762 | New campaign in Aquitaine; Charles and Carloman accompany their father; with partial success. |
+| 763 | Further campaign in Aquitaine.—Tassilo leaves the army on the march.—Pepin defeats Waifre.—Escape of Waifre. |
+| 764 | War with Waifre and Tassilo prevented by negotiations. |
+| 765 | A year of peace. |
+| 766 | Expedition into Aquitaine. |
+| 767 | Synod of Gentilly on the Holy Trinity, and Image Worship. |
+| | Expedition into Aquitaine. |
+| 768 | Expedition into Aquitaine. The mother, sister and niece of Waifre, together with his uncle Remistan, are taken prisoners. Remistan is hanged; Waifre assassinated, by his own subjects. |
+| | Sept. 23d. Divides the kingdom between Charles and Carloman; see under "Carloman, King" and "Charles the Great." |
+| | Sickness and death, September 24th, of Pepin.—Buried in the church of St. Denis. |
+
+### CARLOMAN
+
+*Second Son of Pepin, King.*
+
+| A.D. | Event |
+|---|---|
+| 751 (?) | *Date of his birth.* |
+| 754 | Is anointed by Stephen III., in St. Denis, July 28th. |
+| 768 | Receives as his kingdom Burgundy, the Provence, Alsatia, Alemannia, and the half of Aquitaine, Sept. 23d. |
+| | Elevated and anointed king at Soissons, October 9th. |
+| 769 | Meeting and disagreement with Charles at Duasdives. |
+| 770 | Meets his mother at Selz. |
+| 771 | Breaks with Charles. Danger of war. |
+| | Death, December 4th.—Buried in the church of St. Remigius, near Rheims. |
+
+### CHARLES THE GREAT
+
+| A.D. | Event |
+|---|---|
+| 742 | Date of his birth, April 2d. |
+| 753 | Escorts Pope Stephen III. |
+| 754 | Is anointed by Stephen III., in St. Denis, July 28th. |
+| 761 | Accompanies the expedition into Aquitaine. |
+| 762 | Accompanies the expedition into Aquitaine. |
+| 768 | Receives as his kingdom Austrasia, the half of Aquitaine, and Neustria. |
+| | Elevated, and, according to some, anointed king at Noyon, October 9th. |
+| 769 | Expedition into Aquitaine.—Meeting with Carloman at Duasdives. |
+| | Builds Fronsac on the Dordogne.—Lupus surrenders Hunold and his wife. |
+| 770 | Disowns Himiltrud, and marries Desiderata. |
+| 771 | Breaks with Carloman. |
+| | Upon the death of Carloman, Charles seizes his kingdom.—Gerberga, with the children of Carloman, escapes to Desiderius. |
+| | Disowns Desiderata, and marries Hildegard. |
+| 772 | First Saxon expedition.—Eresburg, Irminsul. |
+| 773 | Receives the legate of Hadrian I., invoking his aid against the Lombards. |
+| | Diet at Geneva. |
+| | Invades Lombardy. Siege of Pavia and Verona. |
+| 774 | Visit to Rome. |
+| | Promises to donate to St. Peter certain territories.—The instrument of donation is lost. April 6th. |
+| | Fall of Pavia, and of the Lombards, June. |
+| | Consecration of the church at Lauresham; present, the king, the queen and their sons, Charles and Pepin, August 14th. |
+| | Despatch of four *scaræ* [Latin] against the Saxons. |
+| 775 | Determines to prosecute war with the Saxons until they are converted to Christianity or exterminated.—Diet at Quierzy, January.—Diet at Düren, June and July. |
+| | Saxon expedition.—Hohensyburg, Eresburg, Brunisberg.—Defeat of the Eastphalians.—Treachery.—Defeat of the Westphalians. August to October. |
+| 776 | Winter campaign in Friuli. The revolt is quelled. January to July. |
+| | Saxon expedition. Subjection of the Saxons; many are baptized. |
+| 777 | Diet at Paderborn. Wittekind absent. Numerous baptisms. Saracen embassy. |
+| 778 | Invasion of Spain. Advance to the Ebro. Ambuscade at Roncesvalles. |
+| | Birth of Louis and Lothair.—Chasseneuil. |
+| | Raid by the Saxons. Pursuit of the raiders. |
+| 779 | Hildeprand, Duke of Spoleto, brings presents. |

@@ -2087,4 +2087,30 @@ They were accepted by those who escaped the sword, but not by those who were dri
 
 [^histi1]: Hist. I., 1.—MG. SS. II., 651.
 
-"Moderated terror" may be a pardonable euphemism
+"Moderated terror" may be a pardonable euphemism for copious bloodshed and adamantine cruelty, to which must be added the bribery, which even Alcuin admits.[^ep14lc]
+
+[^ep14lc]: Ep. 14. *l. c.* [Latin]
+
+By such means he conquered and converted the Saxons. But neither their conquest nor their conversion redounds to his honor. The Saxon war was conducted with almost unparalleled ferocity; the twenty years which separate the massacre of Verden from the final removal of the people, are years of brutal violence and oppression, unrelieved by heroism, or even strategical skill on the part of the Franks. They conquered by sheer force, and our sympathy, despite all the monkish annalists and chroniclers fable of the wickedness of the Saxons, is given to them rather than to their conqueror.
+
+The pacification was complete; a new era of peace and religiousness set in; the Church flourished, eight Saxon bishoprics arose; churches, abbeys, and monasteries were multiplied; and the poor Saxons, in unknown regions, saw the error of their ways, and in due time doubtless became as good Christians as their neighbors.
+
+---
+
+The Saxon war was ostensibly waged for the glory of Christ, and the conversion of the Saxons to the religion of Jesus; but the most diligent examination of contemporary records fails to reveal, on the part of the Franks, the spirit of its blessed Founder, the Prince of Peace, the Teacher of Mercy, the Embodiment of Love.
+
+The Christian conqueror who directed it, and the priests in his train, were zealous and inflexible in their purpose; baptism, or death even unto extermination, was their watchword and policy.
+
+In what sense then are we to understand the conversion of the Saxons? Not in the common and grammatical sense. Multitudes of the Saxons had been slain in battle or put to death, many thousands had been driven into exile, and excepting the baptized Saxons who remained, the whole of their country by the law of conquest passed into the hands of Charles, who, among other things, provided for the establishment and maintenance of Christian institutions, built churches and monasteries, and richly endowed them with land and tithes.
+
+The conversion of the Saxons may be a myth, but that of Saxony into a dependency or province of Christian Francia is a historical reality.
+
+A few details may illustrate these statements, unfold the principles on which Saxony was Christianized, and fix certain dates of the progress of Christian institutions.
+
+Among the earliest establishments near the Saxon country is the monastery of Hersfeld in Hessia. It was founded by bishop Lul, probably in 774, and consecrated to the apostles Simon and Thaddeus; through his influence with Charles it was at once enriched with the royal protection, the privilege of the free choice of its abbot, and with tithes.[^bohmermuhlbacher]
+
+[^bohmermuhlbacher]: Böhmer-Mühlbacher, *l. c.* [Latin] Nos. 172, 173, 188, 189.
+
+Nothing seemed to be wanting to the growing prosperity of the monastery but the acquisition of the relics of an undoubted saint, as an important and unfailing means for attracting the benefactions of the faithful. The remains of such a saint reposed in the neighboring church at Fritzlar; they were those of St. Wigbert, and the monks of Hersfeld greatly longed for their removal to their own establishment. They prayed, and an angel appeared either to Witta, the suffragan bishop of Buriaburg, or to bishop Lul, enjoining the change.
+
+Bishop Lul referred the case to Charles and, armed with a royal permit, proceeded to direct the translation. Three monks were designated for the purpose, and they performed the deed secretly under cover of night; this precaution was necessary, as its execution by day would doubtless have led to violent opposition on the part of the people. Lupus, the biographer of St. Wigbert, remarks that though bishop Lul did not doubt the saint's ability of protecting

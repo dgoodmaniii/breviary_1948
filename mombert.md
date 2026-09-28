@@ -684,3 +684,45 @@ There was the customary and time-honored acclamation, the impressive clash of ar
 The ecclesiastical fiction of unction being the seal of divine authority, or conferring the same right as that divinely bestowed on the kings of Israel, was probably an unction to the soul and uneasy conscience of Pepin, and served the purpose of salving over his dubious title to the throne.
 
 In plain speech, the deposition of Childeric was a political necessity, the coronation of Pepin perhaps a necessary usurpation, and the reference of the case to papal decision a precedent as dangerous to the prince and his successors, as salutary to the aspirations of Zacharias and the pretensions of his successors.
+
+Common sense and even-handed justice demanded the important preliminary inquiries, if the alleged powers of the mayors of the palace had been rightfully acquired, if the proposed change in the dynasty was founded in justice, and if the pope had any vested right enabling him to dispose of what did not belong to him and adjudicate a case in which only one side was heard. Possession, it seems, was even then nine points of the law, might was right, and beyond this the will of the Franks was the most valid title to the elevation of Pepin, who, perhaps because of the defective character of that title, added, it is believed, for the first time the words "by the grace of God" to his official designation.
+
+Volumes have been written on the subject that Pepin became king by authority of the pope. It is doubtful if the words "authority," "injunction," "commandment," etc., designated at the time more than simple approbation, but certain that thenceforth arose the opinion that the vested right of deposing or appointing kings at will inhered in the pontifical office. Gregory VII. cited this case as a precedent establishing his indubitable right of deposing emperors.
+
+Impartiality imposes the duty of a parting word on behalf of the last Merovingian kings, who are so constantly mentioned by the annalists in contemptuous phrase. They wrote under the new dynasty, and felt that representing their shortcomings in the most odious light was the best way of gilding those of their successors. They describe them as cowardly and imbecile sluggards, but also record the fact that the craft and machinations of the mayors of the palace made them such. If a man is bound hand and foot, locked up in a monastery or on a farm, it is difficult to tell if he is industrious or lazy, courageous or craven, quick or slow in his movements.[^schmidtgeschichte]
+
+[^schmidtgeschichte]: This is the drift of some capital reflections made by Schmidt, "*Geschichte der Deutschen* [German]," ii, p. 131.
+
+But be this as it may, Pepin became king, and poor Childeric, shorn of his royal beard and locks, found a living tomb in the monastery of St. Sithiu at St. Omer. Pope [752] Zacharias died soon after, and was succeeded by Stephen, the second or third pontiff of that name.[^stephencount]
+
+[^stephencount]: The third, if the immediate successor of Zacharias, also called Stephen, who died a day after his election, is counted.
+
+[753] One of the first military acts of King Pepin was the suppression of an almost annual revolt of the Saxons; he devastated their country, took many prisoners and great spoil, and bound them by oaths to the punctual payment of an annual tribute of three hundred horses, to fidelity, and the reception of Christian missionaries.[^fredegcont118]
+
+[^fredegcont118]: *Fredeg. cont.* [Latin] c. 118; *Annal. Lauriss., Mett.* [Latin]
+
+Upon his return he heard, probably at Bonn, that Grifo, his brother, was dead. On his flight to the Lombards, he had an encounter with Theodoin, count of Vienne, and Frederic, count of Burgundy, in the valley of Maurienne, on the southern declivity of the Jura range, in which he was slain.[^annallauriss118]
+
+[^annallauriss118]: *Annal. Lauriss., Mett., Petav., Chron. Adon., Fredeg. cont.* [Latin] c. 118.
+
+About the same time alarming intelligence was received from Italy. King Astolf, true to the aggressive policy of his predecessors, had entered the exarchate and possessed himself of Ravenna, in direct and flagrant violation of the provisions of a treaty of amity recently entered into by the pope and himself. The treaty had been concluded for forty years, but did not last more than four months. Stephen protested, but in vain, for Astolf was imperious, menacing, and exacting. He proposed the alternative of war, or instant submission of Rome and the payment of tribute.
+
+All remonstrance was in vain; an imperial representative protested against the invasion of the exarchate, but his protest was not heeded. The king, at the head of an army, marched upon Rome, and was approaching the city.
+
+Great was the consternation of the pope and the Roman people.[^anastasvitasteph] He appointed a solemn procession, in which he walked barefooted, and the Romans, with ashes on their
+
+[^anastasvitasteph]: Anastas., *Vita Steph.* [Latin] II.
+
+heads, made the round of all the sacred places; he carried the famous picture of Christ, called the *Antecopsita* [Greek], fastened a copy of the broken treaty to the holy cross, and invoked the aid and vengeance of Heaven against the perfidious and sacrilegious Lombards. But the times were not favorable to a miraculous deliverance by means of litanies and comminations; neither the prayers nor the curses arrested the progress of the enemy; and in the extremity of his despair the pope appealed to Pepin, the patrician of Rome.[^patricianappendix]
+
+[^patricianappendix]: See, on the meaning of the term "patrician," the Appendix, B.
+
+The king of the Franks had his hands full with domestic troubles, especially with the refractory duke of Aquitaine, and the Moslems, who still held Narbonne, and could not, so late in the year, undertake an expedition into Italy. But the pressure was great, and Stephen now proposed a visit to the king. The matter was discussed in a national assembly of the Franks, and Chrodegang, bishop of Metz, together with duke Autchar, were commissioned to set out for Italy and escort the pope.
+
+Stephen nerved himself to undergo the fatigue and peril of so long a journey, but though miracles attended his progress, he neither disdained to make an attempt of plundering the treasures of the Church at Ravenna, nor shrunk from that of entreating or awing the king of the Lombards into compliance with his demands, which were the immediate restoration of all the Lombard conquests. Astolf would fain have diverted him from his journey and retained him, but the ambassadors of Pepin protected him, and enabled him to leave Pavia unhurt. At the convent of St. Maurice, where he hoped to find Pepin, he was met by duke Rothard and abbot Folrad,[^folradstdenis] with a message from the king, and orders to conduct him to the court.
+
+[^folradstdenis]: The same who submitted the question to Pope Zacharias, and was now abbot of St. Denis.
+
+The king's eldest son, Prince Charles,[^firstmentioncharles] then only in his
+
+[^firstmentioncharles]: This is the first mention of Charles in history. I accept April 2, 742, as the date of his birth. The marriage of Pepin and Berthrada is said to have taken place in 744, some say as late

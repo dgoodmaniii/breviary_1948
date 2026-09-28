@@ -1613,3 +1613,79 @@ I need not here allude to the divergence in language, customs and modes of thoug
 than some that were presented by the rulers of the Holy Roman Empire — men bearing the great names of Cæsar and Augustus — tossed helplessly to and fro on the waves of European politics, the laughing-stock of their own barons and marquises, and often unable to provide for the ordinary expenses of their households.
 
 But all this belongs to the story of the Middle Ages, not to the life of the founder of the empire. It would be absurd to say that he could have foreseen all the weak points of the great, and on the whole beneficent, institution which he bestowed on Western Europe. And whatever estimate we may form of the good or the evil which resulted from the great event of the eight hundredth Christmas day, none will deny that the whole history of Europe for at least seven hundred years was profoundly modified by the life and mighty deeds of Charles the Great.
+
+## APPENDIX A
+
+### GENEALOGY OF THE ANCESTORS OF CHARLES THE GREAT
+
+- **St. Arnulf**, 582–640; Bishop of Metz, 612–627(?)
+  - = **Itta(?)**, 591–651 (wife, possibly shared with the Pippin line below)
+  - **Adelgisel** or **Ansegisel**, 605–685(?)
+    - = **Begga** (daughter of Pippin "of Landin," see below)
+    - **Pippin "of Heristal,"** 631–714
+      - = **Alphaida**
+        - **Drogo**, †708
+        - **Grimwald**, †714
+        - **Charles Martel**, 686–741
+      - = **Plectrudis**
+        - **Drogo**
+        - **Grimwald**, †714
+          - **Theudwald**
+- **Pippin "of Landin,"** 585–639
+  - = **Itta(?)**, 591–651
+    - **Chlodulf**, 599–696; Bishop of Metz, 656–696
+    - **Begga**, 615–694 (= Adelgisel/Ansegisel, above)
+    - **Grimwald**, †658
+      - **Childebert**, proclaimed king by his father, 657
+    - **Gertrude**, Abbess of Nivelles, 625–659
+
+**Charles Martel**, 686–741
+  - = **Swanahild**
+    - **Grifo**, †753
+  - (by another union)
+    - **Carloman**, 713–755; abdicated 747
+    - **Pippin I.**, *b.* 714; crowned 752, †768
+      - = **Bertrada**, †783
+        - **Charles the Great**, *b.* 742(?), king 768, Emperor 800, †814
+        - **Carloman**, *b.* 751, king 768, †771
+
+*Note.* — Many of the above dates are conjectural.
+
+## APPENDIX B
+
+### FAMILY OF ST. CHARLES THE GREAT
+
+**Wives:**
+
+- **Himiltrud** = Charles the Great
+  - **Pippin the Hunchback**
+- **Desiderata**, daughter of Desiderivs, King of the Lombards = Charles the Great (771); divorced 771
+- **Hildegard**, *b.* 759, †783 (771) = Charles the Great, 742–814
+  - **Charles**, 772–811
+  - **Pippin**, or Carloman, 777–810
+  - **Louis** the Pious, or the Debonnair, 778–840
+  - **Lothair**, twin-brother of Louis, born and died 778
+  - **Hrotrud**, 772–810
+  - **Gisela**, *b.* 781
+  - **Adelheid**, died young
+  - **Bertha**
+  - **Hiltrud**, Abbess of Argenteuil
+  - **Theoderada**, Abbess of Argenteuil
+
+- **Fastrada**, †794 (783) = Charles the Great
+
+*(children not separately enumerated here; see Chapter XII)*
+
+- **Liutgard**, †800 (795) = Charles the Great
+
+**Concubines:**
+
+- **Mathalgard(?)** = Charles the Great
+  - **Rothaid**
+- **Gersvindis**, a Saxon = Charles the Great
+  - **Theodoric**, *b.* 810; made an ecclesiastic, 818
+- **Regina** = Charles the Great
+  - **Drogo**, Archbishop of Metz; Archchaplain, †855
+  - **Hugo**, Abbot of St. Quentin, and Chancellor of Louis I., †844
+- **Adelinda** = Charles the Great
+  - Two daughters and three sons. The youngest, Theodoric, †807

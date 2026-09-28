@@ -2435,4 +2435,16 @@ The solitary notice of the death of Roland in the massacre of Roncesvalles is th
 
 A few passages, supposed to describe the event, are sufficient for the purpose in hand.
 
-Roland "now blew a loud blast with his horn, to summon any Christian concealed in the adjacent woods to his assistance, or to recall his friends beyond the pass. This horn was endued with such power that all other horns were split by
+Roland "now blew a loud blast with his horn, to summon any Christian concealed in the adjacent woods to his assistance, or to recall his friends beyond the pass. This horn was endued with such power that all other horns were split by its sound; and it is said that Orlando at that time blew it so vehemently that he burst the veins and nerves of his neck.
+
+"The sound reached the king's ears, who lay encamped in the valley still called by his name, about eight miles from Ronceval, towards Gascony, being carried so far by supernatural power. Charles would have flown to his succor, but was prevented by Ganalon who, conscious of Orlando's sufferings, insinuated it was usual with him to sound his horn on light occasions. 'He is perhaps,' said he, 'pursuing some wild beast, and the sound echoes through the woods; it will be fruitless, therefore, to seek him.'"
+
+Meanwhile Orlando, resigning himself to his fate, confesses his sins and dies; angels appear and carry his soul to paradise. This happened at Roncesvalles, but "whilst the soul of the blessed Orlando was leaving his body, I, Turpin, standing near the king in the valley of Charles, at the moment I was celebrating the mass of the dead, namely, on the 16th day of June, fell into a trance, and hearing the angelic choir sing aloud, I wondered what it might be. Now, when they had ascended on high, behold there came after them a phalanx of terrible ones, like warriors returning from the spoil bearing their prey. Presently I inquired of one of them what it meant, and was answered, 'We are bearing the soul of Mansir to hell, but yonder is Michael bearing the Horn-winder to heaven.' When the mass was over I told the king what I had seen; and whilst I was yet speaking, behold Baldwin rode up on Orlando's horse, and related what had befallen him, and where he had left the hero in the agonies of death, beside a stone in the meadows at the foot of the mountain; whereupon the whole army immediately marched back to Ronceval."
+
+The body is discovered by Charles himself, "lying in the form of a cross, and he began to lament over him with bitter sighs and sobs, wringing his hands, and tearing his hair and beard."
+
+We omit the words of the lamentation and the "poetry," and conclude this veracious account in the words of the monastic forger:
+
+"There did Charles mourn for Orlando to the very last day of his life. On the spot where he died he encamped, and caused the body to be embalmed with balsam, myrrh and aloes. The whole camp watched it that night, honoring his corse with hymns and songs and innumerable torches and fires kindled on the adjacent mountains."[^roddstranslation]
+
+[^roddstranslation]: Rodd's Translation of the *History of Charlemagne and Orlando* [English], falsely ascribed to Turpin.—According to Itinerarium Antonini et Hierosolymitanum, ed. Pinder-Parthey, p. 217, the road from Spain to Aquitaine ran as follows: Pampalone, Turissa, Summo Pyrenaeo (*Roncesvalles* [Latin]), Imo Pyrenaeo (*St. Jean-Pied de Port* [French]) Carasa, Aquis Terebelicis (*Dax* [Latin]), etc., etc.

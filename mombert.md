@@ -2293,4 +2293,99 @@ The army retreated in one body, and what befell it on the march is thus told by 
 
 [^vitacaroli9b]: Vita Caroli, c. 9.
 
-The valley of Roncesvalles, or Roncevaux, is situated between the defiles of Sizer and *Val-Carlos* [Spanish], that is the valley of Charles, and the small chapel of Ibagueta is pointed out as the precise spot on which the drama was enacted. The roadway is very narrow—so narrow that hardly two men, at the most three, may pass abreast. It was near sunset when the terrible Basques fell upon the mail-clad and heavy-armed Frankish rear, in charge of the baggage and the spoil, and
+The valley of Roncesvalles, or Roncevaux, is situated between the defiles of Sizer and *Val-Carlos* [Spanish], that is the valley of Charles, and the small chapel of Ibagueta is pointed out as the precise spot on which the drama was enacted. The roadway is very narrow—so narrow that hardly two men, at the most three, may pass abreast. It was near sunset when the terrible Basques fell upon the mail-clad and heavy-armed Frankish rear, in charge of the baggage and the spoil, and almost annihilated it. The Moslems may have made common cause with them.[^itishistoricallycredible] The date of the disaster (August 15, 778) is fixed by the epitaph on the tomb of one of the slain.[^thatofeggihard]
+
+[^itishistoricallycredible]: It is historically credible and possible. See Reinaud, *Invasion des Sarrazins, en France* [French], p. 96.
+
+[^thatofeggihard]: That of Eggihard. See Dümmler in Haupt's Zeitchrift für d. Alterth. v. 16, p. 279.
+
+Thus meagre are the historical notices of an event so famed in poetry and song; but the deficiency of the record is amply made up by legendary lore, and we may be pardoned in drawing upon it for two or three particulars which few readers of this history might care to have suppressed.
+
+The great, sore, and sanguinary disaster which had occurred was past repair, and would have been so, had Charles caught the bugle-blast of Roland's horn, to which Sir Walter Scott refers in the well-known stanza:
+
+> "O for the voice of that wild horn,
+> On Fontarabian echoes borne,
+> &emsp;&emsp;The dying hero's call,
+> That told imperial Charlemagne,
+> How Paynim sons of swarthy Spain
+> &emsp;&emsp;Had wrought his champion's fall."[^robroych2]
+
+[^robroych2]: *Rob Roy* [English], ch. 2. Marm. 6, 33.
+
+For Charles was many miles away, and the massacre most probably lasted through the night; he heard the terrible tidings with excessive grief and ordered a halt.[^annaleinh6]
+
+[^annaleinh6]: Annal Einh.
+
+When the Franks returned in quest of their missing comrades they found them slain, robbed and dishonored in that dark valley of the shadow of death, and no living soul to tell the sad and cruel story.
+
+Not a vestige of the enemy was to be seen—but they were Basques, and the story runs that Lupus their duke was implicated in the foul deed, and that he met his reward in the fate of Haman.
+
+The Franks saw in it a *national* act, and so did the Basques, as is clear from the *Altabiçaren Cantua* [Basque], which is of great antiquity, and claimed to have been preserved by the Pyrenean mountaineers to this day.[^theoriginalsong]
+
+[^theoriginalsong]: The original song in Basque is on record. A French version, though inadequate, published by M. E. de Montgrave, in the Journal Historique, t. i. p. 76 sqq., may interest some readers.
+
+### LE CHANT D'ALTABIÇAR.
+
+The Etcheco-Ioana, a Vasconian chief, hears in his hut on the lofty Ibaneta a shrill cry proceeding from the Escaldunac
+
+*1.*
+
+> *Un cri s'est élevé*
+> *Du milieu des montagnes des Escaldunacs,*
+> *Et l'Etcheco-Joana, debout devant sa porte,*
+> *A ouvert l'oreille, et a dit: "Qui va là? Que me veut on?"*
+> *Et le chien qui dormait aux pieds de son maître*
+> *S'est levé et a rempli les environs d'Altabiçar de ses aboiements.* [French]
+
+*2.*
+
+> *Au col d'Ibaneta un bruit retentit,*
+> *Il approche, en frôlant, à droite, à gauche, les rochers.*
+> *C'est le murmure sourd d'une armée qui vient,*
+> *Les nôtres y ont répondu du sommet des montagnes;*
+> *Ils ont soufflés dans leur cornes de bœuf,*
+> *Et l'Etcheco-Joana aiguise ses flèches.* [French]
+
+*3.*
+
+> *Ils viennent, ils viennent! Quelle haie de lances,*
+> *Comme les bannières versicolores flottent au milieu!*
+> *Quel éclairs jaillissent des armes!*
+> *Combien sont ils? Enfant compte-les bien!*
+> *Un, deux, trois, quatre, cinq, six, sept, huit, neuf, dix, onze, douze,*
+> *Treize, quatorze, quinze, seize, dix-sept, dix-huit, dix-neuf, vingt.* [French]
+
+*4.*
+
+> *Vingt, et des milliers d'autres encore!*
+> *On perdrait son temps à les compter.*
+> *Unissons nos bras nerveux, déracinons ces rochers,*
+> *Lançons les du haut des montagnes jusque sur leurs têtes!*
+> *Écrasons les, tuons les.* [French]
+
+*5.*
+
+> *Et qu'avaient ils à faire dans nos montagnes, ces hommes du Nord?*
+> *Pourquoi sont ils venus troubler notre paix?*
+> *Quand Dieu fait des montagnes, c'est pour que les hommes ne les franchissent pas.*
+> *Mais les rochers en roulant tombent: ils écrasent les bataillons.*
+> *Le sang ruisselle, les chairs palpitent;*
+> *Oh! combien d'os broyés! quelle mer de sang!* [French]
+
+*6.*
+
+> *Fuyez, fuyez, ceux à qui il reste de la force et un cheval,*
+> *Fuis, roi Carloman, avec ta plume noire et ta cape rouge!*
+> *Ton neveu, ton plus brave, ton chéri Roland, est étendu mort là-bas;*
+> *Son courage ne lui a servi à rien.*
+> *Et maintenant, Escaldunac, laissons les rochers;*
+> *Descendons vite en lançant nos flèches à ceux qui fuient.* [French]
+
+*7.*
+
+> *Ils fuient! ils fuient! où est donc la haie de lances?*
+> *Où sont ces bannières versicolores flottant au milieu?*
+> *Les éclairs ne jaillissent plus de leurs armes souillées de sang.*
+> *Combien sont ils? enfant compte-les bien!*
+> *Vingt, dix-neuf, dix-huit, dix-sept, seize, quinze, quatorze, treize,*
+> *Douze, onze, dix, neuf, huit, sept, six, cinq, quatre, trois, deux, un;* [French]

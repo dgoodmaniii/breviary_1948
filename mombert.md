@@ -1878,3 +1878,45 @@ The situation, however, was far from satisfactory, and in the course of the wint
 **795]** A new expedition against the rebellious Saxons was undertaken. The king at the head of a large army marched into their country, and had the gratification of receiving on the march a body of loyal Saxons,[^annallauresh] which joined the army. In the Bardengau a halt was ordered, and a camp formed at Lüne on the Ilmenau, south of Bardowick. At this point his allies, the Abodrites, were expected to join the expedition. He waited awhile, but waited in vain; suddenly news was brought that his vassal, Prince Witzan, in moving his Abodrites across the Elbe, had fallen into an ambush, set by the Northalbingian Saxons, and been slain. The king's
 
 [^annallauresh]: Annal. Lauresh. Moiss.
+
+indignation was intense, nor was he slow in chastising the offenders.
+
+All the Saxons had been commanded to come to Lüne, and came in great numbers; they made their humble submission, confessed the guilt of their repeated defection, promised amendment, and avowed their readiness of doing whatsoever the king might enjoin.
+
+But the Northalbingians, dreading the consequences of the ambush, together with the inhabitants of the swampy regions, and of Wigmodia, were conspicuous by their absence.
+
+It follows from these statements that the king's authority was now established throughout Saxony except in the districts on the banks of the Elbe. Charles ordered the devastation of the entire disaffected region, but accepted the offer of the professedly loyal parts of giving hostages for their future good conduct to an extent which they certainly did not expect. He took one-third of the entire male population of the country as hostages and commanded them to be removed into Francia.[^annaleinhlauresh2] That measure, he thought, would cure them of their treachery; but such was the invincible and inveterate perfidy of the race, writes one of the early annalists, that no sooner had the king left, than they fell to breaking the covenant.[^annalxanth]
+
+[^annaleinhlauresh2]: Annal. Einh., Lauresh., Xanth., Max., al.
+
+[^annalxanth]: Annal. Xanth.
+
+The official number of the hostages thus removed is set down at 7,070;[^annalalamcont] it might seem small, if it represented the whole of Saxony; but it clearly refers only to those who that year had violated their oaths, and designates indiscriminately nobles (*edlinge* [German]) and the common people.
+
+[^annalalamcont]: Annal. Alam. cont. Murb.
+
+The king, writes a Christian author, refrained from the effusion of blood, and, confiding in the promises of the penitent people, rejoiced that so great and happy a result had been achieved by "peaceful" measures;[^annallauresh3] these, however, might have been more pacific and humane, for another Christian scribe records, that not less than thirty thousand warriors were put to the sword.[^ademarapduchesne]
+
+[^annallauresh3]: Annal. Lauresh.
+
+[^ademarapduchesne]: Ademar, ap. Duchesne II., 78.
+
+Convinced that the time had come for the final subjugation of the country, Charles undertook yet another expedition in the following year, on which he was accompanied by his sons Charles and Louis. It was substantially a repetition of the same ruthless destruction in all the disaffected districts which had not yet felt the ravages of the war. He swept through the country north of the Lippe, crossed the Weser, re-entered Wigmodia, and left desolation behind him. **796]** He took hostages, plundered the people of their portable property, applied the torch to the rest, dragged into captivity a number of men, women and children, and returned, laden with "an innumerable multitude" of spoil, "without any loss," and "prosperously" into Francia.[^annalmosell796]
+
+[^annalmosell796]: Annal. Mosell., Lauresh., Lauriss.; al. Petav.
+
+In spite of this prosperity, and the suasions of his army, the unconverted Saxons resisted his authority, and had retired to this Wigmodia, already twice mentioned in recent paragraphs. It was an almost inaccessible region, situated between the mouths of the Weser and the Elbe. Protected from the sea by lofty dikes, and intersected by numerous canals and ditches not more than a hundred paces apart, it presented almost insuperable difficulties to military operations. In wet weather the roads were impassable. In that retreat the rebels had thoroughly intrenched themselves behind formidable earthworks, and maintained the defensive; they had also built a strong fortress, and until then compelled the king to content himself with ravaging the outlying regions.
+
+**797]** But now he came in good earnest, during the dry season, and with all his resources. He led a large army of Franks, his best troops, ordered a fleet of large vessels to join him by water, and, for the special purpose in hand, carried a large number of others, each composed of four sections, which were transported across the country. Two horses or mules sufficed to draw one of the sections, and as the sappers carried the requisite tools, nails, pins, pitch and the like, ready prepared, the boats could be put together where they were needed, and at the shortest notice. The army, supported by the fleet, broke through the fort, and thus entered the *Gau* [German].
+
+The work of devastation began; his soldiers had orders to demolish every house and wall, and set on fire whatever would take the flame. The people, with all they had, sought the most inaccessible regions, but Charles forced his way through the swamps, crossed the canals, and never rested until he reached the uttermost limit of the country, the land of Hadeln, between the mouths of the Weser and the Elbe.
+
+Then at last the unfortunate people came forth from "all ends and corners" to which they had fled, took the inevitable oaths, surrendered at discretion, and gave as many hostages as he required. Two years before the king was satisfied with taking every third *man* in the revolted districts; now nothing would satisfy him but the third man *with his wife and children*. These he sent away into Francia, and gave their homesteads to loyal Franks. The same policy was pursued in the case of the Frisians.[^annallauriss6]
+
+[^annallauriss6]: Annal. Lauriss., major., minor., Lauresh.
+
+The subjugation of the entire country, from the Lippe to the Elbe, and from the confines of Thuringia to the North Sea, being now nominally completed, the question of the permanent occupation of the country, together with the treatment to be meted out to the conquered people had to be decided, and for that purpose Charles convened a Diet at Aix-la-Chapelle, and repaired to that city. The Diet was composed of bishops, abbots, and counts, together with representative Westphalian, Angrian, and Eastphalian Saxons, and unanimously enacted the instrument known as the *Capitulare Saxonicum* [Latin] of 797.[^baluzelc]
+
+[^baluzelc]: Baluze, *l. c.* [Latin] t. i., p. 275.
+
+It is a vast improvement, in point of humanity, upon the sanguinary bill set forth before. The capitula are only eleven in number, and, on the whole, place the Saxons upon a footing of equality with the Franks; they repeal, by silence, the obnoxious capital crimes, and substitute pecuniary fines, to wit, that the *königsbann* [German] of sixty solidi be paid

@@ -1820,3 +1820,33 @@ His views, as those of an earnest, thoughtful, and temperate man, stand in such 
 [^seenote1p123]: See note 1, p. 123.
 
 He wrote, though at a later date, that preaching the faith, the administration of baptism, and the living exhibition of the precepts of Christ, should ever go hand in hand. Without such concurrence the hearer could not be led to salvation.
+
+He describes faith as a voluntary thing, superior to coercion; though a man be forced to baptism, yet would it not avail to faith. Adults must of their own will and sincerity express their belief and hope of salvation; a hypocritical profession of faith could not save; it was therefore incumbent upon preachers to instruct their pagan hearers by gentleness, and give them wise counsel.
+
+"Let but the same pains be taken," he writes,[^alcuiniep104] "to preach the easy yoke and light burthen of Christ to the obstinate people of the Saxons as are had to collect the tithes from them, or to punish the least transgression of the laws imposed on them, and perhaps they would no longer be found to repel baptism with abhorrence; let the missionaries after the apostolical example acquire a competent knowledge of the faith, let them be *preachers*, not *plunderers*, let them but rely on the gracious providence of Him who says: 'Carry neither scrip nor purse,' etc."
+
+[^alcuiniep104]: Alcuini Ep. 104, ed. Quercetan., p. 1647.
+
+In an epistle to Charles[^ibidep80] he unfolds with outspoken candor, and not without pointed sharpness, the principles on which, in his opinion, the Saxons ought to be treated. All threats ought for a time to be suspended, that they might not become inveterate in their hostile feelings to the Frankish empire, and afraid to enter into any compromise whatsoever, but be encouraged with hope until by salutary counsel they could be brought back to the ways of peace.
+
+[^ibidep80]: Ibid. Ep. 80.
+
+He likewise testifies that the terror of the headsman's axe, and bribery, were the means used in the conversion of the Saxons and Frisians. Those who refused baptism were sent to the block; those who received it were rewarded with gifts; and in the case of prisoners of war, who forswore paganism, it was enacted that they should be "restored to the liberty they had forfeited by the fate of arms, and freed from the obligation of paying tribute."[^alcuinapudwilh]
+
+[^alcuinapudwilh]: Alcuin apud Wilh. Malmesbury, *De gestis Anglorum* [Latin], l. I. c. IV.—Capit. Reg. Franc., I., 246, 252. See p. 112, and note 1.
+
+---
+
+#### CHAPTER IV.
+
+##### SAXON WAR, TO ITS CLOSE.
+
+*Reduction of the Welatabians.—Insurrections.—Camp at Lüne.—Deportation and pacification.—Wigmodia.—Further deportations.—New laws.—Heristelle.—Revolt of the Northalbingians.—Abodrite aid.—Counsel of Alcuin and Angilbert.—Camps at Paderborn and Hollenstedt.—The hunt.—Final pacification.*
+
+The political necessity of the conversion of Wittekind may detract from its spontaneousness, but its wisdom cannot be doubted; it bore excellent fruit; for seven years the Saxons kept quiet, and outwardly submitted to Frankish rule; they went to church, ate no meat in Lent, paid tithe, had their children christened, forsook cannibalism and other heathenish practices, and even rendered military service in the king's wars with the Welatabians and the Avars.
+
+**789]** An expedition against the former was undertaken with the express concurrence of the Saxons, who, like other members of the Frankish empire, participated in the annual assemblies which deliberated, among other matters, upon peace and war.
+
+The Wilzen, as the Franks called them, or the Welatabians, as they called themselves, were perhaps the most powerful of the Sclavonian tribes, and at that time occupied the southern coast of the Baltic; their immediate neighbors were the Abodrites, old allies of the Franks, whom they harassed by continual raids. Their obstinate defiance and contempt of the king's warnings to desist required chastisement, and occasioned the war.
+
+Charles entered the Saxon country, and with a Saxon contingent as part of his army, marched to the Elbe and pitched his camp. The troops crossed the river on two bridges which he caused to be constructed; one of which

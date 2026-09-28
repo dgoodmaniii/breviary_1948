@@ -2771,4 +2771,26 @@ This *triduum* [Latin] moreover bore a penitential character; it was a Lenten ex
 
 Abstinence was to be general, except on the part of the sick, and such as by reason of old age or tender youth were physically unable to observe it. Provision was also made for valetudinarians requiring the use of wine, who, if they were rich, might on payment of a solidus a day indulge their taste, while those in more humble circumstances could procure a license for a denarius a day.
 
-It was likewise recommended that every person according to his ability should make an offering in alms. Every cleric was expected, unless prevented by sickness, to say a spe-
+It was likewise recommended that every person according to his ability should make an offering in alms. Every cleric was expected, unless prevented by sickness, to say a special mass; and, if skilled in psalmody, to chant fifty psalms. All the clergy moreover were enjoined to walk barefooted.
+
+Charles, in communicating some of these details to Fastrada, recommended her to propitiate Heaven, by causing similar litany processions to be arranged at Ratisbon, but cautioned her not to overtax her strength by too rigid fasting. He wrote feelingly on the subject, for he knew that fasting did not agree with him, and the queen, being in delicate health, might follow his example.
+
+Taking all in all, this *triduum* [Latin] of litanies together with the fast was a strange religious preparation for the indiscriminate plunder, devastation and slaughter, which marked the progress of the Franks through the country of the Avar Canaanites.[^annaleinhlauriss14]
+
+[^annaleinhlauriss14]: Annal. Einh., Lauriss.; Epist. Carolin. 6 (Jaffé, IV., 349–351); Vita Caroli, c. 24.—Cf. Annal. Lauresh. Sithiens., Enh. Fuld., Regino.
+
+The phraseology of the prayer also seems a strange perversion of fact. Is it not a stretch of the imagination to represent so purely aggressive a war as that with the Avars as a tribulation of the Franks? It was a terrible and crushing tribulation to the Avars, but a triumphant exultation to their Christian foe.
+
+In this camp Charles received messengers from his son Pepin, informing him that his army had already invaded the enemy's country and on the 23d of August scored a great victory; the engagement, he wrote, was most disastrous to the Avars, and their loss in slain very great; it was the most stinging defeat they were known to have sustained; the victorious Franks also took the fortified camp (the Ring) of the Avars and plundered it; spent all night there, and at 9 A.M. left with the spoils without opposition; they took also a hundred and fifty Avar prisoners, and he desired to know the king's pleasure as to their disposition.
+
+The king's joy was great; a formal declaration of war to the Avars was proclaimed, and immediately followed by the invasion of their territory.[^annaleinhlaureshmeichelbeck]
+
+[^annaleinhlaureshmeichelbeck]: Annal. Einh., Lauriss., Lauresh., Meichelbeck, *Hist. Frising.* [Latin], I.ᵇ 81, 82; Epist. ad Fastradam (Ep. Carol. 6, Jaffé).
+
+The progress of the Frankish hosts was unimpeded; the Avars were strongly intrenched within the fortifications which they had erected on both banks of the river; one of the forts, that on the north bank, stood at the mouth of the river Camp, below Krems; another, on the south side of the Danube, very strong, had been built on the Cumeoberg near the city of Comagenæ, that is, in modern phrase in the *Wiener Wald* [German], near *Tuln* [German], above *Klosterneuburg* [German].[^seetheauthorities] If the erection of those forts showed a valorous purpose the event proved that it could not ripen in their craven hearts. The simultaneous advance of two armies on both banks of the Danube, and of the vessels in the river, must have convinced them of the utter hopelessness of resistance; they made not the faintest attempt of defending their forts, but fled like sheep, and allowed the Franks to come up and level them with the ground. The consternation of their flight was unexampled; the clergy saw in it the finger of God; He filled them with dismay, and conducted the hosts of Charles; it was the invasion of Canaan over again; the Avars were the Canaanites, and Charles was Joshua. At his approach, or that of his army, they deserted the trenches, fortifications, and other defences they had set up on the mountains, in the woods or near rivers, surrendered or were cut down and driven to flight; they threw down everything, left their engines and whatever could impede their progress.
+
+[^seetheauthorities]: See the authorities for these localities in Mühlbacher, *l. c.* [Latin], p. 119.
+
+They were utterly demoralized from the start, but their miraculous stampede may possibly be explained by the intelligence they possessed of the defeat of their brethren at the hands of the Italian army. But be that as it may, they did nothing to check the advance of Charles. He led his legions to the Raab, crossed that river, and swept along its northern bank to where it joins the Danube.
+
+There he rested for several days, and ordered the army to return by way of Sabaria, the modern *Stein am Anger* [German], where the old Roman roads met. His army carried fire and sword throughout the whole country for the space of fifty-

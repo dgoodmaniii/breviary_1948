@@ -497,6 +497,24 @@ dominion in Italy. But at this crisis the pope (Gregory II.), though he had been
 
 The question of the pope's position is somewhat complicated by the fact that he was probably the largest landowner in Italy. The "Patrimony of St. Peter," as it was called, comprised great estates in the Campagna, in Samnium, on the Adriatic coast, besides a considerable portion of Sicily. Any estimate of their extent and value can be only guess-work, but it is conjectured that in the time of Gregory the Great they would, if all massed together, have formed a district as large as Lanca-
 
+shire,[^lancashire] and that the yearly revenue derived from them amounted to £420,000. It is to be observed that we are here dealing not with sovereignty but with ownership, and that the wide domains thus actually owned by the Bishop of Rome had probably been increased rather than diminished in the century and a half that had elapsed since the death of Gregory.
+
+As to the purposes to which this vast wealth was applied, even a severe critic of the mediæval papacy must admit that they were, in the main, right and noble ones. We have no hint now of that nepotism which was the disgrace of the Roman see in much later ages. None of these early popes, as far as we know, ever "founded a family." The maintenance of the large and brilliant papal household was doubtless a first charge on the revenues of the see. The costly and somewhat ostentatious gifts of plate to St. Peter's Church, which are punctually recorded in the *Liber Pontificalis* [Latin], were perhaps a second charge upon them. But after all, a large proportion of these revenues must have gone towards the relief of poverty, sickness, and distress. The pope was now what the emperor had once been, the great relieving officer of Rome; not only in the Eternal City, but all over Italy, at any rate while
+
+[^lancashire]: Lancashire contains 1,887 square miles.
+
+such a pope as the first Gregory sat in St. Peter's chair, whenever a bishop brought a case of distress under his notice there was a strong probability that he would receive a grant in aid from the papal revenues.
+
+It is needless to point out what enormous power the ownership of such vast estates and the distribution of such princely revenues must have placed in the hands of the elderly ecclesiastic who was acclaimed as pope by the assembled multitude in the basilica of St. Peter. In the year 751 he was not yet a sovereign, but he was that kind of territorial magnate out of whom a sovereign might easily be made.
+
+The curious and difficult relation which had subsisted for so long between the three great powers in Italy was ended in 751, the year of Pippin's coronation, when Aistulf, King of the Lombards, captured the city of Ravenna and terminated the exarch's rule in Italy. Believing evidently that the time had come for the long postponed consolidation of Italy under the Lombard rule, he drew nigh to the city of Rome, and in some way or other threatened its independence. What he actually did it is difficult to discover from the verbose and passionate declamation of the papal biographer, but it seems clear that his soldiers committed some depredations
+
+on the "Patrimony of St. Peter," and it is probable that without laying formal siege to the city he threatened it with war unless the citizens would consent to pay him a poll-tax in acknowledgment of his sovereignty over them.
+
+These depredations, or these schemes of conquest, were not needed to arouse the fierce and passionate hostility of the pope to the all-absorbing Lombard. So long as there had been three great powers in Italy there had been an equilibrium of a certain kind between them. In fact, the pope had more than once invoked the help of the Lombard, "unspeakable" as he called him, against his "most Christian" sovereign in Constantinople, when the latter pressed him too hard. But now the pope and the Lombard king stood face to face with no other rival to their greatness, and each of them probably felt, dimly but certainly, that it would be a duel to the death between them.
+
+It was probably in the year 752, some months after the conquest of Ravenna, and when the hostile intentions of King Aistulf against Rome had been sufficiently indicated, that Pope Stephen II. sent a secret message by a pilgrim who had visited Rome, imploring the King of the Franks to give him a formal invitation to his court. In the spring of 753 the envoys of Pippin brought the desired invitation,
+
 ---
 
 pushing any dispute between them to extremities, in view of the far more tremendous danger which threatened them and all Christendom from the turbaned followers of the Prophet who were now beginning to swarm over the passes of the Pyrenees.

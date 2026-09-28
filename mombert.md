@@ -788,3 +788,35 @@ Among the most striking passages of this unique epistle are the following:
 "That you may tenderly grieve for this city of Rome, to us divinely committed, and for the flock of Christ there abiding, and for the Holy Church of God, to me commended by the Lord;
 
 "That you will defend and deliver her without unnecessary delay from the persecuting hands of the Lombards;
+
+"Lest, God forbid, my body which for the Lord did suffer cruel torments, and my house, where by divine appointment it is laid to rest, be by them defiled, and my peculiar people be yet more lacerated and massacred by the wicked race of the Lombards, infamous for flagrant perjury, and notorious for their transgressions of the Sacred Scriptures;
+
+"Extend, then, by the aid of God and with all the power at your command, your mighty help to my people of Rome, your brethren, to me of God committed in this life, that I, Peter, called an apostle of God, may protect you in this life and in the day of judgment, preparing for you the most glorious mansions in the kingdom of heaven, and promising to you the richest prize of eternal reward, as well as the infinite delights of Paradise, if as quickly as you may be able you will hasten to the defence of this my city and own people of Rome, your brethren, from the hands of the wicked Lombards.
+
+"Hasten, oh, hasten, I exhort and adjure you by the living and true God, hasten and assist us, before the living fountain of your spiritual life and renovation is dried up; before the residue of the glimmering spark of the burning flame from which your light has been drawn is wholly extinct; before your spiritual mother, the Holy Church of God, wherein you hope to find eternal life, is humbled, invaded, violated, and defiled by impious hands. . . .
+
+"I adjure you, I adjure you, most dearly beloved, as aforesaid, by the living God, and without reserve protest, that ye will not in any, not the least wise allow this, my city of Rome and the people therein abiding, to be any longer lacerated by the race of the Lombards, lest your own bodies and souls be lacerated and tormented in everlasting and inextinguishable hell fire, with the devil and his pestilential angels, and the sheep of the Lord's flock (to me by God committed), that is to say, the Roman people, to be any longer scattered.
+
+"May the Lord not scatter and cast you forth, as He has scattered the people of Israel. . . .
+
+"Behold, most dearly beloved sons, I have charged and admonished you, that if you obey speedily great will be your reward, and, by my suffrage, you shall in this life be crowned with victory over all your enemies, blessed with length of days, and filled with all the good things of earth, and made partakers of the bliss of eternal life in the world to come.
+
+"If, however, as we do not believe, by reason of any delay or pretext whatsoever, you linger in giving effect to this our exhortation, that is to say, if you do not hasten to deliver this my city of Rome, and the people there abiding, as well as the Holy Apostolic Church (to me by the Lord committed), together with the Head (*præsulem* [Latin]) of the same, know ye, by authority of the Holy and Sole Trinity, through the apostolic grace to me by Christ the Lord committed, that for such transgression of our exhortation you shall be alienated from the Kingdom of God, and from eternal life.
+
+"But God and our Lord Jesus Christ who has redeemed us with His precious blood, brought us to the light of the truth, and appointed us to be preachers and enlighteners of the whole world, grant you to know, understand, and provide all things necessary to your speedy arrival for the deliverance of this city of Rome, and of all the people, or the Holy Church of God (to me by the Lord committed), and of His infinite mercy, and by my suffrage, deign to enrich you with length of days, security, and victory in this life, and in the life to come multiply to you the blessings of His reward in the company of His saints and chosen. Fare ye well."
+
+The reader may well pause and take breath, after perusing so daring and impious a forgery. What shall we think of it? Stephen knew Pepin and his sons, as well as their councillors, and unless he had believed them capable of being influenced by such means, would hardly have hazarded so perilous and audacious an experiment. On the other hand, it seems incredible that Pepin and his court could be thus duped, and more probable that he acted from policy or resentment. But all speculation on the subject is idle, for the fact remains that he hastened, with a large army, to the relief of Stephen and the further punishment of Astolf.
+
+He advanced by way of Châlons-sur-Marne and Geneva to the valley of Maurienne, where Grifo had been slain, crossed Mount Cenis, defeated the Lombards at the Cluses, invested Pavia, and compelled Astolf to agree to the terms of an ignominious peace.
+
+Astolf might live and rule, but only on delivering forthwith one-third of the royal treasure then at Pavia, and engaging, by means of new oaths and hostages, never thereafter to rebel against Pepin and the Franks, and to pay the annual tribute which the Lombards, for a long time past, had been wont to pay the Franks; he likewise undertook the instant restoration of all the cities and territory belonging to the jurisdiction of the Roman Empire, but then under Lombard occupation.[^fredegarcont45121]
+
+[^fredegarcont45121]: Fredegar, cont. c. 45, 121; cf. Chron. Moiss., Annal. Lauriss. mai. et min., a. 755; Vita Stephani, c. 46.
+
+This treaty was concluded in presence of the Byzantine representative, who claimed, or proposed, on tempting terms, the restitution to the emperor at Constantinople of Ravenna and the exarchate. Pepin, acting in the interest, not improbably under the inspiration,[^stephenmalitia] of the pope, disallowed it, and, alleging the right of conquest, declared that he had undertaken the war solely from veneration for St. Peter, and forthwith disposed of the whole territory in question, which comprehended (in modern phrase) the Romagna, the Duchy of Urbino, and part of the Marches of Ancona, in favor of the pope and his successors.[^appendixc]
+
+[^stephenmalitia]: In his letter to Pepin, Stephen is at pains to impress him with his duty to protect the Catholic Church against malicious wickedness (which *malitia* [Latin] Milman correctly understands to refer to the iconoclastic heresy of the emperor) and to keep her property secure.
+
+[^appendixc]: See the authorities for the grant in the "Appendix," C.
+
+The pope, whose influence and intercourse with the prince of the apostles appears, from his own letters, to have been

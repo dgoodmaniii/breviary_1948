@@ -1417,4 +1417,34 @@ While preparations were in progress the customary national sanction of the enter
 
 [^seegenealtable2]: See Geneal. Table.
 
-He took the route of Mount Cenis, his uncle that of Mount Jupiter, that is the Great St. Bernard, which some think owes its Christian name to this march. The passage of the Alps was difficult, but not more so than usual, for although we read, in rather vague phrase, of "the hardships
+He took the route of Mount Cenis, his uncle that of Mount Jupiter, that is the Great St. Bernard, which some think owes its Christian name to this march. The passage of the Alps was difficult, but not more so than usual, for although we read, in rather vague phrase, of "the hardships that the Franks endured in climbing the trackless mountain ridges, the heaven-aspiring cliffs, and ragged peaks,"[^vitacarolivi] it is doubtful if these were chosen; both armies doubtless followed the easiest roads available. The passage by Mount Cenis, regarded as the gate of Italy, was expected and disputed. Desiderius had caused all the valleys and approaches leading from Francia into Italy to be strongly fortified.
+
+[^vitacarolivi]: Vita Caroli, c. vi.
+
+When Charles reached the cluses (*clausæ* [Latin]) he seems to have ordered a halt, and before attacking the formidable walls and towers again sent ambassadors to Desiderius demanding the surrender of the papal cities, and expressing his readiness to accept three hostages for the faithful fulfilment of the request.
+
+But this seems as improbable as an alleged defeat of the Franks by Adelchis; their consternation and preparations for a retreat, when, by divine interposition, the king of the Lombards gave up all resistance and fled in hot haste.
+
+It appears more reasonable to explain the undoubted flight of Desiderius in another way. Charles, unwilling to sacrifice his army in storming the fortifications, ordered his *scaræ* [Latin] to turn the enemy's position, and when that had been accomplished, the Lombards fled. We may reject as history, but introduce as legend, the story of the Lombard jester who found his way into the Frankish camp, singing a strange song with this meaning: "What reward will be given to the man who shall safely conduct Charles into Italy? on paths where no spear will be hurled, nor shield raised against him, nor any hurt come to him or his?" The story continues **773]** that he was taken before the king, who promised him all he asked. It is not incredible that Martin, the deacon, guided the Franks, and certain that for many years to come the "Way of the Franks" was known in the mountains as the road by which the troopers of Charles turned the Lombard position and entered the plain country.
+
+The appearance of so formidable an enemy in their rear, or perhaps more accurately, intelligence of his approach, decided the course of the Lombards, who could not indulge the hope of the successful issue of an engagement with the Franks so superior to them in numbers, discipline, generalship, and moral prestige. Retreat to the shelter of a fortress was a military necessity, and neither Charles nor Bernard appears to have encountered opposition in the open field.
+
+The Lombard forces became demoralized and disbanded. Desiderius shut himself up in Pavia, and strengthened its fortifications, while Adelchis, accompanied by the widow and sons of Carloman, sought the protection of Verona, then the strongest city in all Italy.[^annalauglaus]
+
+[^annalauglaus]: Annal. Aug. Laus. a. 774; S. Amandi; Lauriss.; Chron. Moiss. a. 773; Vita Hadr. cc. 29–31, 34; Annal. Petav.; Maxim.—Cf. Chron. Noval. III. 7, 14.
+
+The moral effect of the Frankish invasion was tremendous; the vassals of Desiderius, and many towns, perceiving themselves isolated, and entirely cut off from the sovereign and the seat of government, only consulted their own safety, and either submitted to the conqueror or fled to the pope, who transformed them into Roman citizens by the simple expedient of making them wear their hair in the Roman fashion.
+
+During the progress of the siege negotiations took place, but their character is not known. Desiderius made a gallant defence of the city, repulsed the first assault with spirit and skill, and compelled Charles to undertake the complete investment of the place, which was very spacious, strongly fortified, and well supplied with provisions. A Frankish city arose under the walls of Pavia, in which a chapel was built, and a military court established, which was presently graced by the arrival of Queen Hildegard.
+
+Thus winter passed away, and the question of the fall of the Lombard capital and that of the Lombard dynasty was only one of time. The mass of the people of the Lombard kingdom was still Roman, and indifferent if it obeyed a Lombard despot or a Frank; the presence of a victorious army numerically superior to that of Desiderius, and the zealous co-operation of an army of ecclesiastics implacably hostile to the Lombards, caused wide-spread defection which made the king of the Franks virtually and *de facto* [Latin] master of the whole of northern Italy. Every day weakened the tottering fabric of Lombard rule, brightened the prospect of a speedy conquest by Charles, and raised the fondest expectations of the pontiff.
+
+**774]** Hadrian sent most pressing and flattering invitations to Charles to come to Rome, and promised him a reception never before accorded to a German prince. They were accepted, and, leaving the conduct of the siege in the hands of his lieutenants, he set out for Rome.
+
+His progress was one of triumph. The Senate and the nobles went forth to greet the Patrician, who came attired in Roman costume, and was attended by a brilliant retinue. They proceeded as far as Novi, thirty miles distant. On Easter Even he approached the city by the Flaminian Way, which for the distance of a mile was lined with the flower of the Roman soldiery, and the Schools, or national communities of Greeks, Lombards, Saxons and others, while young children waved palms and olive branches in triumphal rejoicing, and sang hymns of praise and thanksgiving in honor of the victorious deliverer of the Church of God.
+
+At the gates an imperial reception awaited him at the hands of the most honored dignitaries, who carried the venerable standards and crosses of the city.
+
+The sight of the cross stirred the religious sentiment of the king; he dismounted, and his example was instantly followed by all the officers and nobles of his suite; he entered the city on foot and proceeded to the ancient basilica of St. Peter; as he ascended the stairs he kissed each step in a burst of reverential devotion, and when he reached the top, Hadrian, at the head of his clergy, gave him affectionate welcome. They kissed, but even on the way to the altar the king walked on the right of the pope.[^popeattime]
+
+[^popeattime]: The pope, at that time, certainly had not the faintest thought of asserting his equality, still less his superiority.—The whole account of this memorable visit follows the "Vita Hadriani."

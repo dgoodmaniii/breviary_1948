@@ -917,4 +917,68 @@ The degraded condition of the clergy is also apparent from the facility with whi
 
 A certain Desiderius went about in a cowl and a shirt of goats' hair, pretending to lead a strictly abstemious life, and enjoy frequent intercourse with the apostles Peter and Paul. Many sick people were brought to him to be healed. If the species of faith cure which he practised did not succeed, as in the case of lame people, he called in the aid of science, administered by muscular attendants, who pulled the hands or feet of the poor patients with great violence until the refractory limbs became straightened in life—or death.
 
-Another man pretended to be Christ, and travelled about with a woman whom he introduced as the Virgin Mary. The people brought their sick that he might heal them by his touch. He also claimed to be a prophet, and deceived
+Another man pretended to be Christ, and travelled about with a woman whom he introduced as the Virgin Mary. The people brought their sick that he might heal them by his touch. He also claimed to be a prophet, and deceived more than three thousand people, among whom were some priests. Gregory of Tours, who records these things, describes what occurred in the sixth century, but his statements apply to the eighth, when so-called Christian ministers, in order to please the rude populace, mixed up pagan customs with Christian, and even sacrificed bulls and goats to the idol deities of the pagans.[^gregturix6]
+
+[^gregturix6]: Greg. Tur. IX., 6; X., 25; Neander, *l. c.* [Latin] V., 73, 77.
+
+In opposing such shocking enormities Boniface was taunted with the reply that they were followed at Rome, and wrote to the pope, asking if it could be true that such pagan usages as feasts at the kalends of January, phylacteries worn by women, enchantments and divinations were tolerated there?
+
+His information was doubtless correct, and the admixture of pagan usage with Christian is expressly attested by an intelligent observer, who saw in Italy inscriptions in which the *dii manes* [Latin] appear conjointly with the Holy Spirit.[^mabillonitiner]
+
+[^mabillonitiner]: Mabillon, *Itiner. Ital.* [Latin] p. 63.
+
+The condition of society under the Merovingians almost beggars description. There can be but one opinion on the subject. "The facts of these times are of little other importance than as they impress on the mind a thorough notion of the extreme wickedness of almost every person concerned in them, and consequently of the state to which society was reduced."[^hallammiddleagesi] It is a succession of atrocities, each more outrageous than the rest, which makes up the history of the period as unfolded in the heavy tomes of Fredegarius and Gregory.
+
+[^hallammiddleagesi]: Hallam, *Middle Ages*. Ch. I.
+
+One sickens to read the story of the bestial Canitius, a bishop, who had to be carried by four men from the table, and ordered one of his priests to be buried alive;[^gregturiv12] of the revolting crimes of Brunhild and Fredegonda; of a prince delighting in the pastime of torturing slaves with fire;[^ibidv3] of deeds too foul to be spread on these pages, and of cruelties, such as the mutilation of persons doomed to undergo the
+
+[^gregturiv12]: Greg. Tur. IV., 12.
+
+[^ibidv3]: Ibid. V., 3.
+
+most dreadful tortures and find the consummation of their miseries in the flames, or on the wheel.
+
+Among the least revolting are the court anecdotes of the period. Fredegonda and Rigontha, her daughter, had violent altercations in which they often came to blows. On one such occasion the daughter was in the act of taking something out of an open chest, when her angry mother violently flung the lid over her head, and would have strangled her but for the opportune intervention of some maid-servants who saved the unfortunate princess from the cruel hands of her infuriated mother.[^gregturix34]
+
+[^gregturix34]: Greg. Tur. IX., 34.
+
+This Rigontha was betrothed to the king of the Visigoths, and set out with a strong escort for her new Spanish home. The very first night fifty men of the escort deserted with a hundred of the best horses; such robberies and desertions were of daily occurrence, and upon the intelligence of the death of her father, Duke Desiderius, her chosen protector, stole what was left, and locked her up in Toulouse.[^ibidvii9]
+
+[^ibidvii9]: Ibid. VII., 9.
+
+Austragild, queen of King Gontram, lying on her deathbed, bound her husband to put to death her two physicians, because she believed that they had caused her own. Gontram kept the promise.[^ibidv36]
+
+[^ibidv36]: Ibid. V., 36.
+
+This Gontram, in the naive language of Gregory, was an honest man, but so much given to perjury that he was sure to break the most sacred promise and betray the friend to whom he had pledged his oath.[^ibidv14] In the ethical code of Gregory, habitual perjury and shameless treachery were compatible with a general reputation for honesty.
+
+[^ibidv14]: Ibid. V., 14.
+
+Conjugal fidelity was almost unknown, and seldom observed by the kings, the princes, and the hierarchy of the Franks. A certain Eulalius, who took pains to reclaim his peccant wife from one with whom she had eloped, incurred for his weakness universal derision.[^aimoindegest]
+
+[^aimoindegest]: Aimoin. *De Gest. Franc.* [Latin] III., 5.
+
+It was customary to put kings under bond and oath that they would not repudiate their wives.[^gregturiii27] They gave the bond
+
+[^gregturiii27]: Greg. Tur. III., 27.
+
+and took the oath, but the royal word was often as worthless as the bond.
+
+The Franks were proverbial for the number of their oaths, and the facility with which they broke them. With a view to increasing their sanctity, it became custom to administer them over the relics of saints, under the belief that their violation exposed the perjurer to the peculiar vengeance of God and the departed.
+
+In cases of special importance, the common method of making a person swear with his hand on the relics was deemed insufficient; he was conducted to the tomb of a saint reputed for the miracles he wrought, and sometimes required to make the round of all the famous shrines and tombs throughout the realm, and at each renew the oath with terrible imprecations upon himself in the event of violation.[^aimoiniv14] Although relics could not prevent perjury, such was the veneration in which they were held that they served to check it. This, among other reasons, explains their coveted possession.
+
+[^aimoiniv14]: Aimoin, *l. c.* [Latin] IV., 14.
+
+The Bavarian and Alemannian codes discourage the frequency of oaths.[^legbaiviii16] A criminal, convicted by three or four witnesses, was disqualified from testifying upon oath.
+
+[^legbaiviii16]: Leg. Bai. VIII., 16; Leg. Alem. XLII., 1.
+
+Trial by combat was allowed in doubtful cases, especially "where a crime not capable of notorious proof was charged, . . . and God, as they deemed, was the judge."[^hallamiic2]
+
+[^hallamiic2]: Hallam, *l. c.* [Latin] II., 2.
+
+In disputes touching land, the judge bade the litigants take some of the earth of the land in dispute, insert therein twigs of trees growing on it, place both in a sack, and hand it to him; the judge put his seal upon it and gave it to a trusted person for safe-keeping; the litigants, moreover, gave security for the combat.
+
+At the time set for the trial, the symbolical sack was placed between the combatants, who were required to touch it with their swords, and call God to witness, in prayer, that victory might be given to him whose cause was just. The victor was awarded ownership of the disputed possession,

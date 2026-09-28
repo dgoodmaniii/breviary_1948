@@ -1975,7 +1975,7 @@ Charles was very angry, and ordering the camp at Herstelle to be struck, moved n
 
 [^annallauriss8]: Annal. Lauriss., Einh.
 
-[^annallareshsinh]: Annal. Lauresh., Einh. The latter make the N. attack the Abodrites.
+[^annallaureshsinh]: Annal. Lauresh., Einh. The latter make the N. attack the Abodrites.
 
 [^seemuhlbacherbohmer]: See Mühlbacher—Böhmer, *l. c.* [Latin] p. 137. Some, but I think wrongly, identify it with the modern Schwante on the Warnow.
 

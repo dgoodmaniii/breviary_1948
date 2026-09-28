@@ -299,3 +299,69 @@ It represents him wearing the imperial crown, in the posture of kneeling, and ho
 | | Pepin's expedition against the Avars. |
 | | Frankish raid against the Saracens. |
 | 797 | The wali of Barcelona (Zeik) makes his submission. |
+| | Futile investment of Huesca. |
+| | Pepin takes the field against Sclavonians, Eric against the Avars. |
+| | Charles leads an expedition against the Saxons into Wigmodia. |
+| | The Ommaiad Saracen Abdallah commends himself to Charles at Aix-la-Chapelle. |
+| | Charles sends Lantfrid and Sigimund as his ambassadors to Harun-al-Raschid. |
+| | *Capitulare Saxonicum* [Latin]. |
+| | Winter campaign in Saxony. Camp at Heristelle. November. |
+| | Embassy from the Avars. |
+| | Louis (with Abdallah) and Pepin return to their kingdoms. |
+| 798 | Embassy from Alonso II. |
+| | Revolt of the Nordliudi, or Saxons beyond the Elbe. Murder of *missi* [Latin]. |
+| | General devastation. Thrasco attacks and defeats the Northalbingians at Zwentinefeld. |
+| | Charles carries 1,600 Saxon nobles as hostages into Francia. |
+| | An embassy from the empress Irene announces her accession to the throne. |
+| | Embassy from Alonso II. |
+| | Piratical descent by the Saracens on the Balearic Islands. |
+| | Theodulf, bishop of Orleans, and Laidradus, *missi* [Latin] to Septimania and the Provence. |
+| 799 | Felix, bishop of Urgel, disputes with Alcuin, and recants. |
+| | Conspiracy against Leo III. He escapes. |
+| | Saxon expedition. Camp at Paderborn. Charles the younger in the Bardengau. |
+| | Leo III. visits Charles. His restoration. |
+| | Embassies from Michael, patrician of Sicily, and the empress Irene. |
+| | Death of Gerold, chief count in Bavaria, in battle, and of duke Eric in an ambuscade. |
+| | Deportation of many Saxons. |
+| | The Balearic Islands make their submission to Francia. |
+| | Count Wido quells a revolt in Brittany. |
+| | The wali of Huesca sends the keys of the city to Charles. |
+| | The patriarch of Jerusalem sends a benediction and relics from the Holy Sepulchre. |
+| 800 | Norman piracies. Building of a fleet, and of coast defences. |
+| | Charles visits the coast, St. Riquier, Rouen, Tours, etc. |
+| | Death of Queen Liutgard at Tours, June 4th. Buried there. |
+| | Diet at Mayence, August. |
+| | Journey to Italy, with an army. Departure, before November. |
+| | King Pepin conducts the army to Benevento, having left his father at Ancona. |
+| | Reception of Charles at Rome, November 24th. |
+| | Trial of Leo III., December 1st. |
+| | Leo exculpates himself, December 23d. |
+| | The patriarch of Jerusalem sends symbolical gifts, December 23d. |
+| | Charles crowned Emperor; Charles the younger anointed and crowned King, December 25th. |
+| | Condemnation of the conspirators against Leo. |
+| 801 | Regulation of Roman and Italian affairs. |
+| | Pepin returns to Benevento, before January 6th. Capture of Chieti. |
+| | A destructive earthquake in Italy; it is felt on the Rhine, in Gaul, and Germany, April 30th. |
+| | Arrival of ambassadors from Harun-al-Raschid at Pisa, and their reception between Vercelli and Ivrea. |
+| | Return into Francia, July. |
+| | Siege and capture of Barcelona, date uncertain. |
+| 802 | Administrative reforms. |
+| | Formulas of the new oath of allegiance. |
+| | Embassies from and to the empress Irene. |
+| | Synod at Aix-la-Chapelle, March. |
+| | Isaac, the Jew, brings the presents from Harun-al-Raschid, among them the elephant Abulabbas. |
+| | Despatch of an expedition against the Saxons beyond the Elbe. |
+| | Hostilities in Benevento. Indecisive and fluctuating fortunes. |
+| | General Synod and Diet at Aix-la-Chapelle, October. |
+| | The conciliar canons and pontifical decrees are read and explained to the clergy. |
+| | The rule of St. Benedict is read and explained to abbots and monks. |
+| | All the national laws current in Francia are read, explained, and amended in the secular division of the Diet, and ordered to be committed to writing. |
+| 803 | Grimoald, duke of Benevento, releases Winigisus, duke of Spoleto. |
+| | Earthquake at and near Aix-la-Chapelle. Great mortality. |
+| | *Missi* [Latin] sent out for securing the popular ratification of the additions to the national codes lately set forth. |
+| | The emperor, after the Diet at Mayence, repairs to Salz on the Saale in Franconia. |
+| | Arrival of the Frankish ambassadors to Constantinople, accompanied by those of Nicephorus, the new emperor of the East. |
+| | Arrival of two ambassadors from George, patriarch of Jerusalem. |
+| | Arrival of Fortunatus, patriarch of Grado. |
+| | Expedition into Pannonia. |
+| | Local Diet at Ratisbon. Submission of the Tudun, together with many other Avars and Sclavonians. |

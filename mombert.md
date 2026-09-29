@@ -1409,11 +1409,11 @@ The persistent refusal of Desiderius exasperated Charles; he summoned the *heerb
 
 [^seeonprecedingparagraphs]: See on the preceding paragraphs: Annal. Lauriss., Vita Caroli, c. 6; Chron. Moiss.; Cod. Carol., 57 (ed. Jaffé); Vita Hadriani, cc. 16–26, 29; Paul. Diac. c. MG. SS. Langob. 201, 202.; cf. Baronius; and Chron. Salern., c. 9. MG. SS. III., 476. — Annal. Einh.
 
-While preparations were in progress the customary national sanction of the enterprise was obtained in the diet held there, it seems in May;[^annallaurissguelf] there was a due declaration of war,[^vitacaroli6] and the army was separated into two grand divisions, one commanded by Charles in person, and the other by his uncle Bernard, son of Charles Martel.[^seegenealtable2]
+While preparations were in progress the customary national sanction of the enterprise was obtained in the diet held there, it seems in May;[^annallaurissguelf] there was a due declaration of war,[^vitacaroli6b] and the army was separated into two grand divisions, one commanded by Charles in person, and the other by his uncle Bernard, son of Charles Martel.[^seegenealtable2]
 
 [^annallaurissguelf]: Annal. Lauriss., Guelf.; Einh.
 
-[^vitacaroli6]: Vita Caroli, c. 6.
+[^vitacaroli6b]: Vita Caroli, c. 6.
 
 [^seegenealtable2]: See Geneal. Table.
 
@@ -3059,9 +3059,9 @@ He took hostages and compelled moreover a number of Breton chieftains, called in
 
 [^mabillonvetanalect]: Mabillon, *Vet. Analect.* [Latin] nov. ed. p. 171, cf. the Verbrüderungsbuch von St. Peter, Salzburg ed. Karajan, p. 7 (col. 35), where the names stand thus: Carolus rex, Fastrada, Pippinus, Charlus, Ludvih, Pippinus.
 
-were those who not only derided his person, but cast a slur on his birth; and if his deformity was not the cause of the slight which had been put upon him in the provision made for the three sons of Hildegard, for Charles also had received three or four years before the duchy of Maine,[^annalsamandi] his feelings arising from the other point must have been painful. It was moreover his peculiar misfortune of having three step-mothers in succession, and the last and living one, although she had no sons, doubtless increased his misery. This seems not calumny, for it is stated that while the king was passing the summer months at Ratisbon, a plot was made against him by Pepin, his eldest son, and certain Frankish noblemen, who, alleging that they were unable to endure the cruelty of Queen Fastrada any longer, conspired together to take the king's life.[^annaleinh793]
+were those who not only derided his person, but cast a slur on his birth; and if his deformity was not the cause of the slight which had been put upon him in the provision made for the three sons of Hildegard, for Charles also had received three or four years before the duchy of Maine,[^annalsamandib] his feelings arising from the other point must have been painful. It was moreover his peculiar misfortune of having three step-mothers in succession, and the last and living one, although she had no sons, doubtless increased his misery. This seems not calumny, for it is stated that while the king was passing the summer months at Ratisbon, a plot was made against him by Pepin, his eldest son, and certain Frankish noblemen, who, alleging that they were unable to endure the cruelty of Queen Fastrada any longer, conspired together to take the king's life.[^annaleinh793]
 
-[^annalsamandi]: Annal. S. Amandi, brev. et brevis. a. 780; Mett. a. 790. Theod. Carm. 35, v. 11 in Poet. Lat. aevi Carol. I., 527.
+[^annalsamandib]: Annal. S. Amandi, brev. et brevis. a. 780; Mett. a. 790. Theod. Carm. 35, v. 11 in Poet. Lat. aevi Carol. I., 527.
 
 [^annaleinh793]: Annal. Einh. a. 793.
 
@@ -3667,4 +3667,6655 @@ This is stated best in his own words.
 
 "To these reasons," he writes in the Prologue to his Life of Charles, "comes yet another, which in my opinion outweighs the rest, and of itself not only justifies, but necessarily compels me to write. I mean, the tender care bestowed upon me since my childhood, as well as the constant friendship with which both King Charles and his sons have favored me ever since I began to live at the Court.
 
-"I feel bound to him by so many tokens of kindness, that I must needs cherish for him, now that he is dead, the same
+"I feel bound to him by so many tokens of kindness, that I must needs cherish for him, now that he is dead, the same gratitude which I bore to him when he was alive. Indeed I should be an ingrate if, forgetful of the benefits he ever lavished upon me, I could suffer his memory to pass away without narrating the most glorious and illustrious achievements of the man to whom I owe everything, and suffer his life to remain as if he had never lived, without the memorial and tribute of praise to which his shining merit entitles him."[^vitaprologus]
+
+[^vitaprologus]: Vita, Prologus.
+
+Einhard and Imma had an only son, called Vussinus, who seems to have chosen the monastic profession, and after a preliminary education at Seligenstadt, was sent to the great monastery at Fulda and placed under the celebrated Rhabanus Maurus, its abbot from 822 to 847.
+
+A letter of Einhard addressed to that son at the time of his departure for Fulda, opens an insight into his heart, and proclaims the man. No true parent will read it without profit or emotion.
+
+"To my most dearly beloved son Vussinus, greeting in the Lord.
+
+"I greatly fear that, when you have left the sheep-fold [his home at Seligenstadt], you may be alike forgetful of yourself and me, for inexperienced youth, unless held in by the bridle of discipline, is apt to forsake the ways of righteousness.
+
+"Strive, therefore, dear child, to follow good example, and in no way give umbrage to the excellent man whom I have set before you as your model; as much as you are able, and your master may direct, remember your calling, and apply yourself to study.
+
+"If you follow in practice his instructions, you will not fall short in vital knowledge. As I have advised you by word of mouth, so I now urge you to persevere in study that you become skilled in all the sciences which the brilliant genius of the eminent orator, your master, may unfold to you.
+
+"But, above all things, endeavor to imitate his great virtues, for grammar, rhetoric, and the rest of the liberal arts, are vain things and hurtful to the servants of God, unless grace divine convince us to subordinate them to good morals, for 'knowledge puffeth up, but love edifieth.'
+
+"I would rather know that you were dead, than that you are stained with vice and pride, for the Saviour enjoins us to learn and copy His gentleness and humanity, but He nowhere bids us imitate His miracles.
+
+"What more shall I say? These and similar counsels you have often heard from my lips. God grant that by His grace you may sincerely love whatever promotes purity in heart, and purity in body. . . ."[^advussinumfilium]
+
+[^advussinumfilium]: "*Ad Vussinum filium suum*" [Latin], in Einh. Epist. ed. Teulet, II., 45 sq.
+
+Among the personal friends of Charles and the royal family, Theodulf, bishop of Orleans, held a distinguished, honored, and prominent position. He was the recognized poet of the Court, and in the Palace School bore the pseudonym of *Pindar* [Latin]. His merits were considerable, and quite a number of his poems have been preserved. Some of his graphic descriptions are already familiar to the reader, as lively delineations of persons and incidents. This makes them peculiarly interesting and instructive. His perceptions were accurate, his vocabulary large, his culture considerable, his expression fluent and telling.
+
+One of his poems describes a royal dinner, and the episcopal bard narrates a curious episode or incident when, after the courses of eatables had been despatched, he rose for the purpose of reading one of his compositions. They might be pleasant enough to the king, the royal family and members of the Palace School, but not over interesting to the bibulous sons of Mars present, one of whom, sarcastically introduced as "Wibodus the hero," appears to have been an absent-minded hearer; he struck his thick head three or four times, and fiercely glared at the poet. The king watched him closely and either frowned or expressed his disapprobation. The broad-shouldered and huge-limbed warrior thereupon set in motion the vast machinery of his frame, whose middle portion by reason of its hilly character was ever in the van, and with shaking knees pursued an oblique line of retreat, to the intense mirth of the spectators, who needs thought of Vulcan when they beheld his feet, and of the thunders of Jove when they heard his voice.[^theodcarmadcarolum]
+
+[^theodcarmadcarolum]: Theod. Carm. *Ad Carolum Regem* [Latin].
+
+In spite of his high culture and sacred vocation, he occasionally dipped his pen in vitriol, and threw off unepiscopal adjectives and epithets in great profusion. Thus he lashed most unmercifully, in a carmen addressed to Angilbert (who by the bye was also a graceful poet and would relish the thrust), an unfortunate Irish schoolmaster, who somehow had disobliged him and obtained his reward; he calls him *Scottus, sottus, cottus* [Latin], dubs him "a thing," dire, atrocious, savage, vile, infamous, pestiferous, and worse. His crime seems to have been the unpardonable one of contradicting the bishop in argument, and, the savage assault implies as much, worse than all, defeating him.[^idemadangilbert] Some think that the castigation was intended for the Irish Clement, of whom the ever-communicative monk of St. Gall draws, however, a very different picture.
+
+[^idemadangilbert]: Idem, *Ad Angilbert.* [Latin]—Migne, cv., 322.
+
+    > *"Haec ita dum fiunt, dum carmina nostra leguntur*
+    > *Stet Scotellus ibi, res sine lege furens,*
+    > *Res dira, hostis atrox, hebeo horror, pestis acerba,*
+    > *Litigiosa lues, res fera, grande nefas.*
+    > *Res fera, res turpis, res segnis, resque nefanda,*
+    > *Res infesta piis, res inimica bonis.*
+    > *Et manibus curvis, paulum cervice reflexa,*
+    > *Non recta ad stolidum brachia pectus eant.*
+    > *Anceps, attonitus, tremulus, furibundus, anhelus,*
+    > *Stet levis aure, manu, lumine, mente, pede,*
+    > *Et celeri motu nunc hos nunc comprimat illos,*
+    > *Nunc gemitus tantum, nunc fera verba sonet.*
+    > . . . . . . .
+    > *Plurima qui didicit, nil fixum, nil quoque certum,*
+    > *Quae tamen ignorat, omnia nosce putat.*
+    > *Non ideo didicit, sapiens ut possit haberi,*
+    > *Sed contendendi ut promptus ad arma foret."* [Latin]
+
+"It so happened," he says, "that one day there arrived in Gaul two Scotchmen from Ireland,[^dungalmentioned] fine scholars, well versed in letters sacred and profane. They had no merchandise to sell, but day after day cried in the market-place: 'Whoso desireth knowledge may have it of us, for we sell it.' This was only a figurative way of theirs, for they perceived that even then people were wont to value what they received, not according to its intrinsic worth, but according to what they paid for it.
+
+[^dungalmentioned]: Dungal, mentioned in a later paragraph, Clement, a certain Joseph (on terms of friendship with Alcuin and Liudger), and perhaps Dicuil, were Scotchmen from Ireland.
+
+    Joseph versified and addressed several metrical pieces, remarkable for artificial acrostics, to Charles.—Hagen, *Carmina Medii Aevi* [Latin], p. 116, sqq.; Poet. Latin. aevi Carolin., I., 149 sqq.
+
+    Dicuil wrote a work, *De mensura orbis terrae* [Latin]; verses on grammar, and a metrical manual of astronomy in four books, remaining in manuscript.—Dümmler, *N.A.*, IV., 256, and Poet. Latin. aevi Carolin., I., 666.
+
+"The matter being reported to Charles, he sent for the merchants of knowledge, and asked them if it was true that they carried knowledge about with them, as he had been told.
+
+"'Yes,' said the men, 'we have it and are willing to part with it to such as sincerely seek it, for the glory of God.'
+
+"Their answer pleased the king, and he committed to the care of one of them a number of children, belonging to the nobility, the middle and the lower classes, to teach them. This was Clement.
+
+"After a long absence the most victorious Charles returned into Gaul, and caused the children, whom he had left with Clement as his pupils, to be brought before him. He required them to be examined, and was amazed at the commendable progress of the poorer class of children, whose written productions were most creditable to them. On the other hand, those of illustrious parentage showed very poor specimens of their skill.
+
+"He then set the good scholars on his right, and the poor on his left, saying: 'I praise you much, dear children, for your excellent efforts, and desire you to continue so that you may attain unto perfection; then I intend to give you rich bishoprics, or splendid abbeys, and shall ever regard you as persons of merit.'
+
+"Then he turned in anger to those on his left, who trembled at his frowns and the sound of his voice, which resembled the roll of thunder, as he cried out to them: 'Look here, ye scions of our best nobility, ye pampered ones who, trusting to your birth or fortune, have disobeyed me, and instead of studying, as you were bound, and I expected you to do, have wasted your time in idleness, on play, luxury, or unprofitable occupation.'
+
+"He then took his accustomed oath, and with uplifted head and arm, said in a voice of thunder: 'By the king of heaven, let others admire you as much as they please; as for me, I set little store by your birth or beauty; understand ye and remember it well, that unless you give heed speedily to amend your past negligence by diligent study, you will never obtain anything from Charles."[^monachsangall13]
+
+[^monachsangall13]: Monach. Sangall. I., 3, Bouquet, V., 107. On Clement, see Simson, *Jahrb. Ludw. d. Frommen* [German], II., 256 sqq.
+
+Peter of Pisa, a fine grammarian, taught grammar at the Court. Charles found him at Pavia, and claimed him as part of the spoil when he took that city. He was much beloved by Charles, Alcuin, and Angilbert. Alcuin heard him in his youthful days in a public disputation with Lullus, at Pavia, and sundry tributes to his memory have been preserved. He was advanced in years and died before 799; a grammar of his is still extant.[^alcuiniep112]
+
+[^alcuiniep112]: Alcuini ep. 112 (Jaffé); Einh. Vita Caroli, c. 25; Alc. Carm. IV., 42 sqq., Angilb. Carm. II., 19 sqq. al. in Poet Latin. Carolin, I.
+
+Speaking of grammar, the name of Smaragdus, who taught it with great success at St. Mihiel on the Meuse, occurs, of whom it is known that he wrote a commentary on Donatus in which he selected his examples, not from the classics, but from the Bible and the Fathers. This he did in order to silence the objections of ultra-orthodox Christians and lazy scribes, who were wont to denounce grammar as a heathenish study.[^mabillonvetanalect358]
+
+[^mabillonvetanalect358]: Mabillon, Vet. Analect. nov. ed. p. 358; Wattenbach, *Schriftwesen im Mittelalter* [German], 2 ed. p. 37.
+
+Among the men of note whom Charles drew to his court, Paulus Diaconus, the son of Warnefrid, deserves to be specially mentioned. He was a native of Friuli, born about 720–725, of noble parentage, and received his education at the court of Rachis in Pavia; he was also warmly attached to Desiderius, and much beloved by him. His daughter Adelperga, the wife of Arigiso, duke of Benevento, was his pupil, and at the time of the fall of the Lombards he found an asylum at the Beneventan Court.
+
+Arigiso was a man of intellectual tastes, and his Lombard wife fully sympathized with him. She was highly educated and an enthusiastic student. Her tenacious memory stood her in good stead, and she was wont to grace her conversation with apt citations from the classical poets and the ancient philosophers. Paulus Diaconus placed in her hands the historical compend of Eutropius, but his gifted and diligent pupil deemed it unsatisfactory both on account of its great brevity and total silence concerning sacred history.
+
+She induced him to enlarge the history and supplement the necessary references to sacred subjects. Paulus performed the work but not independently, for his additions are taken mostly from Orosius, Jerome, Jordanis, and others, and not very skilfully welded together. He extended the narrative of Eutropius from the reign of Valens to Justinian, but never carried out a projected continuation to his own time.[^mgauctantiquiss] It so happened that his brother Arigiso, or Arichis, who was implicated in the Friulian revolt, had been taken prisoner and carried into Francia. Six years after that event, Paul, convinced of the clemency of Charles, addressed, and presented in person, an elegy to him, in which he made intercession for that brother.
+
+[^mgauctantiquiss]: MG. Auct. antiquiss. II., 4 sq.; Simson, *l. c.* [Latin] I., 365.
+
+    Paulus seems to have continued at the court of Arigiso a number of years, probably until 781, when circumstances introduced a change.
+
+Charles accorded to him a friendly reception, and induced him to spend several years in Germany. Paulus bore the reputation of being a very learned man, and men fabled of his proficiency in Greek and Hebrew. It was reported that he taught Greek to the Metz clergy, and Peter of Pisa, on the strength of that report which had reached the king's ears, by his command and in his name, indited a poetic epistle to Paulus, desiring him to instruct the companions of Princess Rothrud, then still affianced to the Emperor Constantine, in Greek. The deacon declined the offer, and his reply shows that his own estimate of himself was much more modest, for he wrote that if the Metz clergy spoke only the Greek they had learned of him, they would, like dumb statues, be the laughing stock of all who heard them.[^bouquetv849]
+
+[^bouquetv849]: Bouquet, V., 849; Poet. Lat. I., 48 (Dümmler). Some think that the lines of Peter, written as stated in the name of Charles, establish the fact that he did instruct the Frankish ecclesiastics designated to accompany the princess to Constantinople. They read as follows:
+
+    > *Haud te latet, quod iubente Christo nostro filia,*
+    > *Michaele comitante, sollers maris spatia*
+    > *ad tenenda sceptra regni transitura properat.*
+    >
+    > *Hac pro causa Graecam doces Clericos grammaticam*
+    > *nostros, ut in eius pergant manentes obsequio*
+    > *et Graiorum videantur eruditi regulis.* [Latin]
+
+During his stay in Germany, Paul, who was a fair historian, and wrote poetry, composed a history of the bishops of Metz, and took pains, it is thought, to dwell at great length on the family and ancestry of Charles, with the evident design of representing the Carlovingian usurpation as justifiable, and the whole race entitled to the throne by virtue of its saints.[^bethmanninarchiv] But this is hardly a fair statement of the case, and a gratuitous reflection on his character as a historian.[^bonnellanfange]
+
+[^bethmanninarchiv]: Bethmann, in Archiv., X. 303.
+
+[^bonnellanfange]: Bonnell, *Anfänge* [German], p. 45.
+
+While there is no reason to doubt his ultimate loyalty and sincere attachment to Charles, it is nevertheless certain that both were less profound than his strong feelings for the Lombard family. It is said that he never would suffer a word injurious to the memory and character of his former master, the King of the Lombards. The Franks reported the matter to Charles, and in the excess of their loyalty recommended the savage remedy of cutting off his hands, and putting out his eyes.
+
+But Charles would have none of their counsel, and stopped the matter saying: "God forbid that I should thus treat so excellent a poet and a historian." Whatever may be the worth of the anecdote, it certainly is alike creditable to the king and the deacon.
+
+Paulus was not a first-class historian. His best work, the History of the Lombards, unfortunately closes with the death of Liutprand (744); had he lived to continue it through his own time, his excellent information and unquestioned veracity would have made it a most valuable contribution to the history of that important and interesting period.[^foranestimate]
+
+[^foranestimate]: For an estimate of Paulus as a historian, see Wattenbach, *l. c.* [Latin] I., 160 sqq.
+
+At any rate he returned to Italy, and we know that he composed epitaphs for Queen Hildegard and other members of the Frankish family, as well as for Arigiso, duke of Benevento.
+
+A list of his works is given below.[^theworksofpaulus] One of them, more especially connected with the history of Charles, is the collection of homilies which he prepared at the king's express request.
+
+[^theworksofpaulus]: The works of Paulus Diaconus, now extant, embrace the following: 1. "*Eutropius historiographus, et post eum Paulus Diaconus de historiis Italicae provinc. ac Romanor.*" [Latin]; 2. "*De gestis Langobardorum libri sex.*" [Latin]; 3. "*Gesta episcoporum Mettensium.*" [Latin]; 4. "*Homiliarium.*" [Latin] Of his poetry, besides the verses printed by Waitz in Monum. Germ. Hist. Langob. Saec. VI.–IX., p. 12 sq., the hymn for the feast of St. John, "*Ut queant laxis,*" [Latin] etc., is of special interest in the history of music; see "Guido d'Arezzo" in the cyclopedias.
+
+As his father, King Pepin, had directed his efforts towards the introduction of the Gregorian chant into the churches of Francia, so it was his desire to supply the want of a good collection of homilies. Those in use were utterly inadequate, and Charles denounced their intolerable and offensive solecisms. He accordingly requested Paulus to supply the deficiency. Paulus, who was then at Monte Casino, associating with himself his monastic father and friend, the abbot Benedict, selected the best homilies he could find among the tracts and sermons of the Fathers, in sufficient number to cover the entire circle of the church year, edited them in two volumes, and presented them to Charles. The king having read and approved them, set them forth, accompanied by a remarkable circular letter in which he commended them to the "readers." This Book of Homilies, known as the *Homiliarium* [Latin], has often been printed between 1482 and 1569, and translated into German and Spanish.[^caroliepistolageneralis]
+
+[^caroliepistolageneralis]: Caroli epistola generalis, 786–800? apud Boretius, *Capitul.* [Latin] p. 80. Compare the Dedication of Paulus in "Poet. Lat. aev. Carol." I., 68, No. 34. An entry in Bernold. Chron. 781. apud MG. SS. V., 418, states that the two volumes were completed in A.D. 808.
+
+    The Dedication referred to runs thus:
+
+    > *En iutus patris Benedicti mira patrantis*
+    > *Auxilio meritisque piis vestrique fidelis*
+    > *Abbatis dominique mei, etsi iussa nequivi*
+    > *Explere ut dignum est, tamen, o pietatis amator,*
+    > *Excipe gratanter, decus et mirabile mundi,*
+    > *Qualemcumque tui famuli, rex magne, laborem;*
+    > *Quodque sacro nuper mandasti famine condi, etc.* [Latin]
+
+    For notice of a collection of homilies in two volumes by Alcuin see V. alch. 12 (Jaffé VI); Pertz, *Archiv.* [German] IX., 469; Werner, *Alcuin* [German], p. 38.
+
+Among those, who, like Einhard, were indebted to Charles and the Palace School for their education, may be named Angilbert; Adalhard and Wala, the king's cousins; Tatto, afterwards master of the monastery school at Reichenau; Walafrid Strabo, his pupil; Grimald,[^neverooblivisci] subsequently abbot of St. Gall; Bernald, a Saxon, who became bishop of Strasburg, and others.[^concerningbernald]
+
+[^neverooblivisci]: *Ne vero oblivisci vel neglegere videar de Albino, hoc vere de industria vel meritis eius agnovi, quod de discipulis eius nullus remansit, qui non abba sanctissimus vel antistes extiterit clarissimus. Apud quem et domnus meus Grimaldus primo in Gallia, post vero in Italia liberalibus est disciplinis imbutus.* [Latin]—Monach. Sangall. I., 9 (Jaffé).
+
+[^concerningbernald]: Concerning Bernald, Ermoldus Nigellus (Eleg. I., 147 sqq. MG. SS. II., 519) writes:
+
+    > *Quem Carolus, sapiens quondam regnator in orbe,*
+    > *Doctrine studiis imbuit atque fide,*
+    > *Saxona hic equidem veniens de gente sagaci.*
+    > *Sensu atque ingenio nunc bene doctus homo, etc.* [Latin]
+
+    Simson *l. c.* [Latin] II., 572 n. 5 adds the following references: Mommsen's Fragment of his epitaph (*Rhein. Museum für Philologie N. F.* [German], IX., 1854, p. 309); Erchenbald, Vers. de episc. Argentin. Boehmer Fontt., III., 2.
+
+Other schools in different parts of his empire enjoyed the munificent patronage of Charles. The school at Tours, under the direction of Alcuin, was one of the most celebrated; it sent forth a large number of distinguished men, and almost every man of parts of the next age was a pupil of Alcuin; Wizo, Fridugisus, Adalbert, Rhabanus Maurus, Hatto, Haimonus, and many more are said to have been his disciples.
+
+The Missionary School of Utrecht, which flourished in the time of Gregory, bore an enviable reputation, and was much frequented.
+
+The celebrated Rhabanus (Hrabanus)[^thesuccessorsofsturmi] Maurus taught at Fulda; Smaragdus at St. Mihiel on the Meuse; the schools at Würzburg, Reichenau,[^heitoafterwards] Hirschau, St. Aniane in Aquitaine,[^onstaniane] St. Wandrille, St. Germain d'Auxerre did noble work. Laidradus, archbishop of Lyons, had excellent "singing schools," and "reading schools;" of the former he wrote to the emperor, that such was the proficiency of the pupils that they had not only mastered the art of chanting the service, and conducted it after the pattern of the imperial chapel at Aix-la-Chapelle, but instructed others; concerning the "reading schools" he reported that the pupils not only read well, and gave evidence of their understanding what they read, but studied the Scriptures and were competent to explain the spiritual sense of the New Testament. This was truly remarkable.
+
+[^thesuccessorsofsturmi]: The successors of Sturmi as abbots of Fulda were: Baugulf (780–803); Ratgar (803–817); Eigil (817–822); Rhabanus (822–842). Of these Rhabanus is the most celebrated. He was a pupil of Alcuin, who called him Maurus after the favorite pupil of St. Benedict. About 804, the year of Alcuin's death, Rhabanus presided already over the school at Fulda, which enjoyed the patronage of the best society throughout the Frankish Empire. The students at Fulda might according to their intended vocation pursue an ecclesiastical or a secular course of studies. Many of course entered the Church, but quite a number followed the secular discipline. Rhabanus was an advanced thinker, and held that the study of the Classics was indispensable to the right understanding of the Scriptures.—Schneider, *Fulda* [German], p. 4 sqq.; Wattenbach, *l. c.* [Latin] I., 221; Kunstman, *Hrabanus Magnentius Maurus* [Latin], Mainz, 1841.
+
+[^heitoafterwards]: Heito, afterwards bishop of Basel, was at the head of the monastery school of Reichenau. Among his pupils was a noble youth, called Erlebald, who ultimately became his successor. Heito, it seems, only taught him the Scriptures, and he acquired the seven liberal arts under the direction of a learned Scot, not improbably Clement.
+
+    See a collection of references in Simson, *Jahrb. Ludwigs des Frommen* [German], II., 256 sqq. (concerning Clement) and Abel-Simson, *l. c.* [Latin] II., 575 (concerning Erlebald). The following passage is interesting:
+
+    > *Post septem denosque petit venerabilis annos*
+    > *Insulanense solum: sociatu fratribus illis*
+    > *Atque magisterio Hettonis contraditur almi.*
+    > *Quo monstrante, sacris non parva ex parte libellis*
+    > *Imbuitur, variaeque vetant ne traderet artes*
+    > *Septenas curae, antiqui quas auribus indunt*
+    > *Nobilium; namque illa refert scriptura Joannis*
+    > *Ante retroque animalia sancta oculata fuisse.*
+    > *Sensus adest: sic doctus homo ex ratione biformi*
+    > *Ante superna videt, retro terrena cavetque*
+    > *Hac ex parte foret ne clauso lumine caecus.* [Latin]
+    >
+    > —Visio Wetini metr. 3. Mabillon A. S. o. s. Ben. IV., 1, p. 260.
+
+[^onstaniane]: On St. Aniane, and its founder, see Chapter IX., and Index.
+
+The impetus to education, moreover, was general throughout the Frankish empire. In the diocese of Orleans, Theodulf charged the parochial clergy to found village schools, and provide for the gratuitous instruction of youth, reminding them that "teachers should shine as the brightness of the firmament, and they that turn many to righteousness as the stars forever and ever."[^danxii3]
+
+[^danxii3]: Dan. XII., 3.
+
+In a cell or hermitage near St. Wandrille sat the presbyter Harduin, and taught a large number of pupils the arts of writing and arithmetic. He bore a good reputation for morals and learning, and allied to the contemplative habits of the hermit the more practical avocations of a teacher. The history of the cell, consecrated to a famous martyr, and built by the illustrious founder of the neighboring monastery, might stimulate profitable meditation, for St. Vandrille or Wandregesilus, was a remarkable man in his day and generation; he was a near relative of Pepin of Landen, and consequently connected with the ancestry of Charles; an energetic and zealous worker, who in spite of his austerities attained the rare old age of ninety-six. Harduin not only mused upon the virtues of the martyr and the saint, but spent much of his time in useful employment, and like St. Vandrille reached an exceptionally old age; he died, 811, in the abbacy of Trasarus.[^seenote2page267]
+
+[^seenote2page267]: See note 2, page 267.
+
+At St. Denis, and later at Pavia, Dungal, the Scot, taught astronomy and other branches; in fine, every monastery and cathedral became a centre of intellectual activity, and the enlightened views of Charles are abundantly set forth in circular letters and capitularies still extant.[^epistolageneralis780]
+
+[^epistolageneralis780]: Epistola generalis, 780–800; "*De litteris colendis,*" [Latin] Capp. reg. Franc. I., 1, p. 79; see also Boretius, *l. c.* [Latin] p. 78.—See on the most important schools of the period, Monnier, *Alcuin et Charlemagne* [French], p. 79; Werner, *Alcuin* [German] p. 37.
+
+Without going into greater detail it may suffice to say that the intellectual life of the Frankish empire, its culture and influence for ages to come, are due to the intelligence, liberality, patronage, zeal, and enthusiasm of Charles. It is impossible to resist this conclusion, attested by Alcuin, Einhard, Angilbert, Theodulf, Rhabanus Maurus, Hincmar, Nithard, Otfried, and many other illustrious men.
+
+Indeed we ought to say more on this head, at least, in one or two additional observations. As every school, and every church, stood in need of books, their supply gave an impetus to the art of writing and the production of libraries.
+
+Thus the aged Harduin not only taught youth the art of writing in the cell of St. Saturnine, but copied quite a number of books, among them a book of the Gospels in uncial letters, which he bequeathed to the abbey of St. Wandrille.[^gestaabbfontanell] Willehad, afterwards bishop of Bremen, engaged in the same occupation during his residence at Echternach; Laidradus, archbishop of Lyons, caused many volumes to be copied by monks and others; Angilbert collected at St. Riquier a library of two hundred volumes; Benedict of Aniane displayed a similar activity in the collection of books; and there is no doubt that Charles himself formed a most valuable library, some speak of several libraries, at Aix-la-Chapelle. It would lead too far to mention by name the magnificent specimens of the calligraphy of the Caroline age extant, but they are a feast to the eyes of all lovers of the beautiful, and standing monuments to the intelligence of Charles.[^seeonthissubject]
+
+[^gestaabbfontanell]: Gesta abb. Fontanell., c. 16, MG. SS., II., 202.
+
+[^seeonthissubject]: See on this subject: Wattenbach, *Das Schriftwesen im Mittelalter* [German], 2 ed., p. 111; and Mabillon, A. S., s. B. ed. Ven. IV., 1, p. 110, on the Evangeliarium with letters of gold, illuminations in silver, and precious stones.
+
+Before passing on to other topics, the interest he took in astronomical subjects may detain us a little longer. He spent much time in the study, and corresponded on it with Alcuin;[^seeappendixd268] he acquired the art of the computation of Easter,[^vitaalch6] and there is evidence that astronomy was much cultivated at the Court.
+
+[^seeappendixd268]: See Appendix D.
+
+[^vitaalch6]: Vita Alch., 6, Jaffé, VI., 17.
+
+Two solar eclipses, one on the 5th of July, and the other on November 30th, 810, occasioned direct inquiries made of Dungal, then at St. Denis.[^epistcarol30] The nature of the observations, and the manner of their record, indicating the state of astronomical science, will appear from the following notice for one year beginning September 1st, 806:
+
+[^epistcarol30]: Epist. Carol., 30, Jaffé, IV., 396 sqq.
+
+"On the 4th nones of September occurred an eclipse of the moon; the sun stood in the sixteenth degree of the sign of Virgo, the moon in the sixteenth degree of Pisces.
+
+"This year on the day before the kalends of February, the moon being seventeen days old, the planet Jupiter seemed to make the transit of the moon.
+
+"On the 3d ides of February, about noon, an eclipse of the sun took place; the two stars stood in the twenty-fifth degree of Aquarius.
+
+"Again, on the 4th kalends of March there was an eclipse of the moon, and that same night many meteors of astounding magnitude were seen; the sun standing at the time in the eleventh degree of Pisces, the moon in the eleventh degree of Virgo.
+
+"On the 16th kalends of April, the planet Mercury appeared on the sun like a small black spot, and it was observed for the space of eight days slightly above the centre of that star; but clouds prevented our noting the exact time both of its entrance of the sun's disc and of its exit.
+
+"In the month of August also, on the 11th kalends of September, occurred an eclipse of the moon in the third hour of the night, the sun standing in the fifth degree of Virgo, the moon in the fifth degree of Pisces.
+
+"Thus from the month of September of the last year to the month of September of the present year, the moon was obscured three times, and the sun once."[^annaleinha807]
+
+[^annaleinha807]: Annal. Einh., a. 807.
+
+In a former paragraph the breadth, and vast range of the king's interest in every conceivable variety of subjects were mentioned; in this we may furnish some illustrations.
+
+He noticed the inconvenience arising from the deficient method then in vogue of designating the quarters of the heavens by the four cardinal points only, and forthwith applied himself to the device of a scheme for defining the regions with greater accuracy, and upon its completion, gave the names and the bearings he had gained to the winds.[^seeappendixe]
+
+[^seeappendixe]: See Appendix, E.
+
+His partiality for German, his mother-tongue, was remarkable; it grieved him to think that the vast capabilities of that noble language should lie fallow or droop into decay. With that feeling, Charles encouraged its study, recommended its use in preaching and reading, in the collection of songs, poems, and laws, and with a view to freeing it from foreign and barbarous admixtures, and elevating it to the rank of the dead languages, especially Latin, began to compose a German grammar. For throughout his reign Latin reigned supreme in the realm of letters; everything was written in Latin: the Scriptures, laws, epistles, poems, and even history; for instance, all the authorities of contemporary origin pertaining to his reign are *written* in Latin, although Latin had long ceased to be spoken.
+
+He also invented a set of German names of the months instead of the Latin and barbarous designations in use.
+
+The Latin names, however, could not be displaced, and his list, though ingenious, and in some of the names poetical, was never adopted. It possesses, nevertheless, a philological interest as showing what passed for good German in his day.[^seeappendixf]
+
+[^seeappendixf]: See Appendix, F.
+
+The medical profession also was represented at the court of Charles, but its representatives appear to have been sadly deficient in knowledge. As a class they were known as the "Sect of Hippocrates," and even the inventive genius of Alcuin could say nothing better of them than that they bled their patients, compounded mixtures of herbs, and boiled poultices.
+
+It seems that they practised medicine in connection with other avocations; perhaps they were monks or clerics otherwise provided for in the matter of support, or he would not have recommended the gratuitous dispensation of their art in order that the blessing of Christ might rest upon the labor of their hands.[^accurruntmedici]
+
+[^accurruntmedici]:
+
+    > *Accurrunt medici mox, Hippocratica secta:*
+    > *Hic venas fundit, herbas hic miscet in olla,*
+    > *Ille coquit pultes, alter sed pocula praefert.*
+    > *Et tamen, o medici, cunctis impendite gratis,*
+    > *Ut manibus vestris adsit benedictio Christi.* [Latin]
+
+    Alc. Carm. 26. vv. 12–16.
+
+One of these physicians, the king's physician in ordinary, was a friend of Alcuin's; his name was Winthari. The aged and infirm Sturmi, abbot of Fulda, being about to travel from the Eresburg to his monastery, was placed by royal command in charge of the said Winthari, in the expectation that the arrangement would minister to his comfort and possibly lead to his recovery. The nature of his ailing is not known, but Eigil, the biographer of Sturmi, narrates as follows: "On a certain day the doctor made him take I know not what potion of his art, thinking it would lessen the pain, and improve the condition of the patient. But it had the opposite effect; he grew worse and worse, and the most alarming symptoms of the disease appeared in the most aggravated form. The poor abbot said full of anxiety, that the physician, who ought to have lessened the malady, had inflicted a worse evil."[^vitasturmii] Sturmi protested, but in vain, his case was beyond the skill of the royal physician in ordinary, for he soon died.
+
+[^vitasturmii]: Vita Sturmii, MG. SS. II., 377. Alcuin called him simply "Winter" (Uinter); he mentions his name in connection with a promised present of choice wine.—Alc. ep. 16 (Jaffé, VI., 171).
+
+Charles had a very indifferent opinion of the medical profession and made light of their advice. Being generally in robust health himself, and watching their experience in the case of others, he conceived the notion that he could prescribe for himself far better than they were able. He was in the habit of confiding in the healing power of nature, and considered plentiful physical exercise, together with temperance and an occasional fast, the medicine best suited to his constitution. Sometimes he consulted the medical poem of Serenus Sammonicus and followed his advice.[^teuffelgesch]
+
+[^teuffelgesch]: Teuffel, *Gesch. der römischen Literatur* [German], ed. 4, p. 877 sqq. Compare on the medical profession in the next reign, Simson, *Jahrb. unter Ludw. d. Frommen* [German], II., 255, No. 4.
+
+But as a rule he preferred his own inclinations to medical directions, and in the last years of his life, almost hated physicians, "because they wanted him to give up roasts, to which he was accustomed, and eat boiled meat instead."[^vitacaroli22b]
+
+[^vitacaroli22b]: Vita Caroli, c. 22.
+
+The king encouraged to an uncommon degree the introduction and development of art, especially in connection with architecture. Palaces on a grand and imperial scale rose at Nimeguen,[^vitacaroli17] Ingelheim, and Aix-la-Chapelle, but the grandest of his architectural undertakings were churches, not palaces.
+
+[^vitacaroli17]: Vita Caroli, c. 17: Erm. Nigell. III., 583 sqq.; IV., 179 sqq.; Poeta Saxo, V., 429 sq. The last named author says of Ingelheim:
+
+    > *Ingylemhem dictus locus est, ubi condidit aulam,*
+    > *Aetas cui vidit nostra parem minime.*
+    > *Quorum multiplicem si quis describere laudem*
+    > *Curabit, longum texet opus nimium.* [Latin]
+
+    The best and fullest description of this palace, and the church at Ingelheim, is that of Ermold. Nigell. *l. c.* [Latin]
+
+The most beautiful of these was the basilica at Aix-la-Chapelle, erected in honor of the Virgin Mary, built throughout in the most massive style, of cut stone and exquisite symmetry, and, in the opinion of competent critics equal, if not superior, to the best and most ancient specimens then extant.
+
+He summoned the most skilful workmen from every part of Europe, and imported the choicest columns, marbles, and mosaics from Rome and Ravenna.[^theuseforthepurpose] The mosaics were used in the ornamentation of the walls and pavements. This splendid cathedral, adorned with gold and silver, superb candelabra, railings and doors of solid brass, and admired as a masterpiece of the age, is said, but on doubtful authority, to have been consecrated by Leo III.
+
+[^theuseforthepurpose]: The use, for the purpose named, of those at Ravenna, was granted by Hadrian, as appears from his epistle to Charles:
+
+    *Praefulgidos atque nectareos regalis potentiae vestrae per Aruinum ducem suscepimus apices. In quibus referebatur, quod palatii Ravennate civitatis mosivo atque marmores ceterisque exemplis tam in strato quamque in parietibus sitis vobis tribuissemus. Nos quippe libenti animo et puro corde cum nimio amore vestre excellentiae tribuimus effectum et tam marmores quamque mosivo ceterisque exemplis de eodem palatio vobis concedimus abstollendum.* [Latin]—Cod. Carol. 89 (Jaffé, IV., 268). The alleged use of marbles and mosaics from Trèves (Gesta Trever. 25, MG. SS. VIII., 163) and Verdun (MG. SS. VIII., 352) is legendary.
+
+Master Odo of Metz was the architect of this celebrated cathedral; the roof was covered with tiles of lead, and ornamented with a golden apple on the dome.
+
+Two entertaining, but unsubstantiated, anecdotes relate to this period. Charles, says the Monk of St. Gall, set the most skilful of all his architects over the workmen employed in the building of the cathedral. He was an abbot, but that did not prevent his being a sharper. "The moment the emperor left home, the overseer undertook upon his own authority to discharge a number of the mechanics for the sole purpose of extorting from them bribes for their reappointment. As for those who were unable to pay the bribe, or for whom their masters refused to pay, they were in sore plight, for the abbot, after the example of the Egyptian overseers, laid grievous burdens upon them, and never gave them a moment's rest.
+
+"By such nefarious means he accumulated a large fortune in silver and gold, and silk garments. He showed only the least valuable of his treasures openly in his room, but carefully concealed the most precious of them in chests and closets. One day he heard that his house was on fire; he ran home and rushing through the flames made his way to the room in which his gold lay secreted; eager to save as much as possible, he was not content with removing one chest at a time, but placed several boxes on his shoulders, and was on the point of leaving the burning chamber, when suddenly a huge beam, undermined by the flames, gave way, and falling on him, delivered his body to the tongue of terrestrial fire, but his soul to the unquenchable flames of hell. Thus did divine justice protect the cause and interest of Charles, when by reason of other and more important matters of his empire, he could not be present in person."
+
+Such is the pious reflection of the chatty monk, who continues that "on these selfsame works was employed a singularly expert artificer in metal and glass. Tanchon, a monk of St. Gall, having cast a very fine bell of sweet tone, which greatly delighted the emperor's ear, the aforesaid skilful artificer said to him: 'May it please Your Majesty to command copper in large quantities to be delivered to me, and in order to make it absolutely pure in the casting, to direct that in place of tin, as is usual, the necessary weight of silver be placed at my disposal, not less than a hundred weight; let this be done, and I will make you a bell within the hearing whereof that of Tanchon shall seem dumb!'"
+
+The speech pleased the emperor, who, "though immensely rich," did not set his heart on his riches, and commanded that the man should have all the precious metal and the copper he had asked for. The wretch, however, immediately after receiving it, went his way rejoicing, and purified the copper as well as he knew how to do it, not with silver but with tin thoroughly refined; nevertheless even of this debased metal he contrived to produce a bell which was in all respects superior to the first; it was tested, and in due course presented to the emperor. He much admired the elegance of its shape, ordered the clapper to be attached, and the bell to be raised to the belfry.
+
+"And so it was done forthwith, even as he commanded."
+
+The bell, it seems, though hoisted to its proper place, and made fast by proper rule, was unmanageable. The guardian of the church, the chaplains of the imperial establishment, the most able and skilful mechanics, in turn tried to ring the bell, but tried in vain. "At last, the maker, even the same who had cast it, and been guilty of such unparalleled knavery, grasped the rope, and pulled the bell; suddenly the iron cross-piece to which it was fastened gave way and fell upon his head already weighted with so much iniquity; it went clean through his body and killed him outright. It was an appalling spectacle;" it was the judgment of heaven; "all the silver was found, which the most just Charles distributed among the poorest of the palace servants."[^monachsangall130]
+
+[^monachsangall130]: Monach. Sangall. I., 30, 31; Bouquet, V., 118 sq.
+
+Of the alleged prodigies connected with this church we shall speak on a subsequent page, but note here the partial denudation of the roof in an earthquake which shook Aix-la-Chapelle in the year 829.
+
+A portion of it remaining in the present cathedral is improperly called "the nave." It is an "octagon in the style of S. Vitale at Ravenna, fifty feet in diameter, surrounded by a sixteen-sided gallery, and terminates in a cupola [which in the words of the Saxon poet 'climbs to the stars']. It is one of the most remarkable monuments of early Christian architecture, but unfortunately marred by modern disfigurements." The marble and granite columns, and the gates of the archways of the upper gallery date from the time of Charles.
+
+"As long as his health allowed he was a daily worshipper at this church, going morning and evening, even after nightfall, besides attending mass; and he took care that all the services there conducted should be administered with the utmost propriety, very often warning the sextons not to let any improper or unclean thing be brought into the building, or remain in it. He provided it with numerous sacred vessels of gold and silver, and ecclesiastical vestments in great abundance, so that not even the door-keepers, who fill the humblest office in the church, were obliged to wear their ordinary clothes when in the exercise of their duties. He was at great pains to improve the church reading and psalmody, for he was well skilled in both, although he neither read in public nor sang, except in a low voice, and with others."[^vitacaroli2627]
+
+[^vitacaroli2627]: Vita Caroli, cc. 26, 27; Franc. Petrarcha, I., ep. 3; Petrus à Beek, *Aquisgrano* [Latin], c. IV., Cod. Carol. ep. 77 (Jaffé); Bädeker, *Northern Germany*, p. 5.—Also, Vita Caroli., c. 32; Annal. Einh., a. 829.—Vita Hlud. 43.
+
+The basilica was connected by a porticus with the royal palace, which among other peculiarities riveted attention by a bronze eagle with outspread wings which crowned the pinnacle, and the magnificent equestrian statue of Theoderic, which also came from Ravenna. It impressed Charles more than any other similar work of art he had ever seen. It was of colossal dimensions, and represented a snorting charger, the nostrils distended, and the opened mouth showing a terrible set of teeth. The spirited figure of the rider displayed a shield protecting the left shoulder, and holding a lance in the act of hurling in the uplifted right hand. The birds of the air chose the body of the horse for their nests, and flew in and out by the nostrils and the mouth.
+
+The statue, it is said, was in the first instance set up in honor of the Emperor Zeno, and Theoderic only placed his name on it.[^agnellilibpontif]
+
+[^agnellilibpontif]: Agnelli, *Lib. pontif. Raven.* [Latin], c. 94; cf. Vita Caroli, c. 26; and Cod. Carolin., 89 (Jaffé).
+
+The Rhine-bridge at Mayence was one of the most remarkable public works erected by Charles. Though only a wooden structure, it was of prodigious strength throughout its entire length of five hundred paces, and seemed as if it must last forever. This fine bridge, which associated his name with Cæsar's, had been ten years building, and constructed with admirable skill, was so completely destroyed by fire in the space of three hours that not a splinter of it was left except what was under water.[^vitacaroli32] It must have been a marvel for strength; the Saxon poet states at the close of the ninth century that the piers of stone and earth remained visible as monumental ruins of its former splendor; nine hundred years later the submerged portions of the wooden buttresses had not yet disappeared (in 1881); but stranger still, this is contradicted, the intimation being, that the ancient oaken buttresses are not remnants of the bridge of Charles which was burned in 813, but of the Roman bridge built probably before the Christian era![^dummlerallgdbiogr]
+
+[^vitacaroli32]: Vita Caroli, c. 32.
+
+[^dummlerallgdbiogr]: Dümmler, *Allg. D. Biogr.* [German], XV., 147; Simson, *l. c.* [Latin], II., 512.
+
+The accidental character of the fire, however, has been disputed; but the explanations offered instead are far from convincing. One says, that it was either the work of robbers who came at night in quest of discharged merchandise lying on the bridge, or of incendiaries desirous of building up a profitable ferry business. Others pretend that Richulf, archbishop of Mayence, ordered the bridge to be set on fire as the best method of stopping the highway robberies enacted on the bridge, and often attended by the murder of luckless passengers and their disappearance in the river. This is incredible, for such an act on the part of the archbishop would necessarily imply the express approbation of his imperial master; the loss of the bridge, moreover, was regarded as a national disaster of ominous significance, and it is known that Charles entertained the idea of replacing it by one in stone.[^monachsangall130b]
+
+[^monachsangall130b]: Monach. Sangall., I., 30, Marian. Scot. Chron. a. 835; Annal. Wirz., a. 813; Disibodenberg, a. 813.
+
+His death prevented the execution of his purpose, and the Saxon poet describing the ruins, about the close of the century, breaks forth in lamentation, and predicts with gloomy forebodings that the work would never be performed.[^poetasaxov601]
+
+[^poetasaxov601]: Poeta Saxo, V., 601 sq.
+
+This prophecy proved true for nearly a millennium, for the first stone bridge over the Rhine at Mayence was not erected until 1862.
+
+In the same connection deserves to be mentioned the grandiose scheme of a system of canalization designed primarily to establish a water-way from the Rhine to the Danube, and ultimately, from the North Sea to the Euxine. It came up during the war with the Avars, as a feasible plan for the transportation of armies by water from and to the seat of war. The military advisers of Charles represented that troops, material of war, and especially pontoon-bridges, which until then had to be carried in sections overland, might, by means of a short canal connecting two given points, be conveyed from the heart of Francia, and at a vast saving in time and expenditure, to any locality in the enemy's country suitable for military operations.[^annallaureshguelf]
+
+[^annallaureshguelf]: Annal. Lauresh., Guelf., Einh. *al.* [Latin]
+
+The projected canal contemplated the connection of the Altmühl and the Rednitz, or more accurately, of the Suabian Rezat, a tributary of the latter. The scheme pleased Charles, and he commanded the work to be undertaken at once. A large force of men was detailed for its execution, and such was his interest that he proceeded in person, accompanied by the entire court, to the designated spot. The royal party sailed up the Danube and the Altmühl and disembarked at Sualafeld,[^annalguelflocality] one of the termini. There was no lack of energy in the prosecution of the work, and the personal presence of Charles animated and encouraged all engaged in it. It was vigorously pushed forward throughout the autumn, and the workmen began to make the necessary excavations for the distance of two thousand steps at the width of three hundred feet; the data of the depth are not known.
+
+[^annalguelflocality]: Annal. Guelf. The locality does not agree with the names given by later writers.
+
+But in spite of the most unremitting zeal and perseverance, the enterprise made no headway, and the bright prophecy of its easy and speedy accomplishment was falsified by the event. It was a grand and total failure.
+
+Canal-building was one of the things which neither Charles nor his engineers understood. It is doubtful if the survey rested on accurate data touching the water-level of the respective rivers, and if the objective points were practicable; at any rate the skill of the engineers was not equal to the local difficulties of the line they selected. It ran through a low and swampy region, and the naturally soft character of the soil was aggravated by continuous rain.
+
+The greatest obstacle they encountered was found in a section called the "Ried,"[^eckhartfrancorient] where a quicksand baffled their efforts. The shifting and slippery nature of the spot forbade all progress; the superstitious workmen said that the devil was in it; that the place was bewitched and under the spell of fiends more potent than the labor of thousands of Christian hands; it had an invisible, unfathomable, omnivorous maw which devoured during the night the multitudinous loads of mud which the workmen dug out during the day.[^annaleinha793]
+
+[^eckhartfrancorient]: Eckhart, *Franc. Orient.* [Latin], II., 750; he gives a diagram.
+
+[^annaleinha793]: Annal. Einh. a. 793; Mosell. 792; Lauresh.
+
+It was an unholy and evil enterprise, thought or muttered the monks; nor stopped at the thought and the speech, but set it down in writing, for we read in the Annals, drawn up in the neighboring archiepiscopal establishment at Salzburg, that "it was an idle work. But prudence and counsel cannot prevail against the Lord." This was evident by the result, for "afterwards might be heard every night the hurly-burly din of hideous noises, roaring defiance, and exulting in the laughter of derision."[^annalsalisb]
+
+[^annalsalisb]: Annal. Salisb., MG. SS. XIII., 23.
+
+The record does not say if the nocturnal din and the ominous voices troubled Charles; but he ordered the work to be stopped.
+
+Archæologists indicate Bubenheim on the Altmühl as the initial point of the "ditch," a place called "Graben" (*i. e.* [Latin], ditch), as a station, and "Weissenburg" on the Rezat, as its extreme terminus. Traces of the "Karlsgraben" (*i. e.* [Latin], the ditch of Charles) remain there to this day.[^auctariumekkehardi]
+
+[^auctariumekkehardi]: Auctarium Ekkehardi Altahense, 792, MG. SS. XVII., 362. Riezler, *l. c.* [Latin] I., 181, no. 1.
+
+By a strange coincidence this undertaking, like that of the permanent bridge at Mayence, remained unexecuted until the present century. The scheme, which so greatly interested Charles, was taken up more than a thousand years later by Louis I., King of Bavaria, and pushed to a successful termination. The canal, called after him the "König Ludwig Kanal," connects the river systems of the Danube and the Rhine by a different and much longer line. Its length of twenty-three German miles, however, bears no proportion to its width and depth, which are unfortunately inadequate to the requirements of a remunerative navigation, and a successful competition with the railroads.
+
+In these respects it is an absolute failure.[^danielslc]
+
+[^danielslc]: Daniels, *l. c.* [Latin] I., 233; Heigel, *Ludwig I., König von Bayern* [German], p. 170 sq.—Riezler, *l. c.* [Latin] I., 181.
+
+---
+
+#### CHAPTER XI.
+
+##### BOHEMIAN WAR.—THE ROYAL SONS AND THEIR KINGDOMS.—EXTRANEA.
+
+*Conquest of Bohemia.—Affairs of Aquitaine and Spain.—Adalric.—Saracen invasion.—Incident of Datus.—Poverty of Louis.—Domanial lands and villas.—Diplomatic intercourse with the Saracens.—Mission of Theodulf and Laidradus.—Theodulf on bribery.—Louis meets his father at Tours.—Alleged prediction of his succession in the imperial throne.—Affairs in Pepin's kingdom.—The Beneventans.—Defeat of the Byzantines.—Death of Adelchis.—Revolt of the Bretons.—Piracies.—Anecdote.*
+
+**805]** The cause of the Bohemian war is obscure. It occurs in point of time as a sequel to the subjugation of the Avars. The Bohemians were bellicose, irritated the Franks, and roused the martial ire of Charles;[^poetasaxolv164] they took advantage of the misfortunes of their neighbors, the Avars, and so vexed them with perpetual inroads of their territory, that they had to leave it and seek a new home in a more remote region. But as the Avars were now the friends, allies, and subjects of the emperor, and their former territory had become his by the right of conquest, its wanton invasion by the Bohemians was construed as a *casus belli* [Latin], and an insult that could not remain unpunished.
+
+[^poetasaxolv164]: Poeta Saxo, l. v., 164 sqq.
+
+This explanation is offered at its worth; it is only a conjecture proceeding on the hypothesis that the Sclavonians of Bohemia, and the Southern Sclavonians were equally inimical to the Franks, and naturally opposed to their policy of conquest.
+
+But it is not improbable that the war was unprovoked and purely aggressive.
+
+Accordingly the heerbann was called out, and a large army ordered to invade and conquer Bohemia. The Frankish hosts moved in three columns, while a fourth sailed up the Elbe to Magdeburg and devastated the region of Genewana.[^chronmoiss281] The first of the three columns, commanded by the young "king" Charles, advanced through Franconia and the Bohemian Forest; the second, composed of Alemannian, Suabian, and Bavarian troops, and commanded by the generals Audulf and Werinarius, approached the hostile country from Bavaria; the third, commanders unknown, moved through Saxony, and after collecting the Saxon and Wendish contingents, proceeded to Werinofelde beyond the Saale, entered the country of the Demelcians with the ultimate destination of reaching Bohemia through the passes of the Ore Mountains. In other words, the plan provided for the simultaneous invasion of Bohemia by the only three practical routes from the north, the south and west.
+
+[^chronmoiss281]: Chron. Moiss.
+
+The third column met and defeated Semela, prince of the Demelcians, took his two sons as hostages, pushed through the Ore Mountains to the champaign country on the Eger, and at that point effected a junction with the two other columns. There the young king held a muster of the entire host, and received the homage of the Sclavonian vassals of the Frankish crown. The three divisions went into camp, and from that base overran the whole country. The Bohemians avoided an engagement, and retreating before the overwhelming number of the Franks, withdrew to the depth of inaccessible and pathless forests.
+
+Beyond the meagre notice that the invading army laid siege to Canburg, an unidentified fortress,[^eckhartsuggests] the annals, without exception, record not a single warlike achievement; even the result of the siege is unknown. They state, however, that for the space of forty days the immense army, under the lead of Charles and his generals, engaged in the work of savage and relentless devastation. The whole country was "depopulated," and so universal was the indiscriminate destruction of whatever could be set on fire, that the entire region was "reduced to nothing." One of the Czech *lechos* [Czech], or princes, also was put to death.
+
+[^eckhartsuggests]: Eckhart suggests Camburg on the Saale, Pertz conjectures Kammerburg, while Palacky and others name Kaden on the Eger.
+
+Having converted Bohemia into a wilderness, so that neither man nor beast could find food, the king ordered the home march. The columns retraced their steps to the "marches," and dispersed to their homes; their royal leader returned "victoriously, prosperously, and with great joy" to his father in Francia; and thus was conducted, and thus gloriously ended, the first Bohemian campaign.[^annaleinhcfguelf]
+
+[^annaleinhcfguelf]: Annal. Einh., cf. Guelf., S. Amandi; Chron. Moiss.; Vita Caroli, c. 14; Poeta Saxo, IV., 164; Brandl, *Glossarium* [Latin], 121; Palacky, *Geschichte von Böhmen* [German], I., 101; No. 55.
+
+**806]** The annihilation of the Bohemians, however, was only a figure of speech, for the younger Charles left plenty of work to be performed by a new army of Bavarians, Alemannians, and Burgundians in a second campaign, which again destroyed the greater part of the unhappy country already "reduced to nothing." Beyond this the operations of the army appear to have been rather passive than active, for the ominous sentence in the official annals that the host "returned without serious calamity," seems to justify the inference of a Bohemian historian that the natives showed sufficient vitality for inflicting some loss, and compelling the invaders to beat an inglorious retreat.[^annaleinhmax]
+
+[^annaleinhmax]: Annal. Einh., Max; Palacky, *l. c.* [Latin], I., 102; No. 59.
+
+"King" Charles, at the same time, scored a great victory over the Sorabians, who occupied the country between the Saale and the Elbe, and bordered upon the Czechs, Eastphalians, and Thuringians. After mustering the troops at Waladala in Thuringia,[^thesituationofwaladala] and detailing a number of *scarae* [Latin] for service beyond the Elbe, he crossed the Saale. The *scarae* [Latin] ravaged the entire district with fire and sword, and the king seems to have encountered the enemy at Werinofelde, and slain in battle Milito, a proud Sorabian prince. His death decided the fate of the country. Charles retraced his steps to the Elbe, and marked his progress with the customary devastation of the open country, and the destruction of the cities. The terror of his warfare broke the resistance of the enemy; the remaining Sorabian princes laid down their arms, and gave hostages. Their conqueror, moreover, took additional security for their future loyalty in the immediate erection of two fortresses, one on the Elbe opposite to Magdeburg, and another, on the Saale, near Halle, serving the double purpose of giving him the free passage of both rivers, and of defending the country against hostile incursions from beyond.
+
+[^thesituationofwaladala]: The situation of Waladala is uncertain, but it lay west of the Elbe and the Saale. Simson, *l. c.* [Latin] II., 356, n. 1.
+
+It is not known who built them, the Sorabians, or the Franks; but the fact of their erection is established beyond all doubt, and the victorious king might carry the glad tidings of the subjugation of the Sorabians to his imperial father.[^annalmaxim806]
+
+[^annalmaxim806]: Annal. Maxim., Einh., Chron. Moiss., a. 806.
+
+Having narrated the military exploits of King Charles to this point, we take up the course of events in the kingdoms of his brothers, beginning with the affairs of Aquitaine, and the Spanish peninsula.
+
+The administration of Aquitaine, under the nominal rule of King Louis, was virtually directed by his father. He drew up the necessary instructions for the conduct of the public business and committed their execution to the hands of judicious counsellors, who under the style of *baiuli* [Latin], or guardians, directed the actions of the king, discharged the functions of local governors, and were responsible to Charles. At stated intervals, moreover, he sent special commissioners, or *missi* [Latin], clothed with full executive powers, and instructed to investigate the conduct of the local officers, inquire into the general condition of the province, and correct abuses; he was also wont to summon the guardians and the nominal king to his presence, take personal cognizance of administrative and executive matters, and adjudicate upon them in the last instance. This method seems to have been followed, in the main, throughout the entire period of his long reign, and was doubtless matter of absolute necessity.
+
+The kingdom of Aquitaine embraced Vasconia, Septimania, Aquitaine proper (that is, the country between the Garonne and the Loire), and the county, subsequently the duchy of Toulouse.
+
+Nominally a kingdom, Aquitaine was in reality a province, entirely dependent on the central and personal government of Charles. The law of the country was almost wholly Roman, and the provincial diets were held rather for form and show than for purposes of legislation. The king, it is true, had a court and maintained a kind of royal estate; he occasionally received ambassadors; he had also an executive department and a treasury; but the whole work of his officers, though transacted in his name, was like the government of the province, secondary and delegated. The nominal designations of king, and kingdom, might gratify the feelings of the Aquitanians, but it was a scheme contrived for holding them in a state of absolute dependence and subordination. The regal functions of Louis were very circumscribed, although he executed, but doubtless under well-defined restrictions, and instructions from his father, certain official documents, some of which are still of record.[^muhlbacherlc497]
+
+[^muhlbacherlc497]: Mühlbacher, *l. c.* [Latin] Nos. 497–500.
+
+An illustrative case of the early period of the nominal reign of the juvenile king is that of the archbishop Daniel of Narbonne which came up in 782. The archbishop having made the pilgrimage of the Holy Land, had appointed a certain Arluin curator of his diocese. During his absence Count Milo of Narbonne took advantage of the situation by appropriating to his own use sundry possessions of certain churches of that city, and doubtless by false statements prevailed with Charles in confirming them to him as fiefs.
+
+Arluin, in the name and interest of the absent archbishop, brought suit against Milo before the royal commissioners, empowered to hold court. Milo appealed to the royal grant, but failed to prove his title to the sequestered possessions. Arluin, on the other hand, produced witnesses who testified under oath that they belonged to Daniel.
+
+The Court accordingly confirmed them to Daniel and compelled Milo to make restitution. The members of the Court are expressly described as acting under power from Charles, and as his plenipotentiaries, and the case shows that all matters of importance were referred to him for decision.[^histoiregenerale]
+
+[^histoiregenerale]: *Histoire générale de Languedoc* [French], I., 24 sq. Waitz, IV., 2 ed. p. 410, No. 4.—Simson, *l. c.* [Latin] I., 438.
+
+To the same period belongs the establishment of the monastery of Aniane by Benedict. A scion of the Gothic family of the counts of Magdalona, he bore originally the Gothic name of Vitiza. He entered the Court School and spent his youth successively in the service of Pepin and Charles, as cup-bearer at the Court, and as a soldier on their military expeditions.
+
+Against the wishes both of his father and of his royal master, he forsook the world, and in 774 became a monk in the monastery of St. Seine, in the diocese of Langres. "He spent two years and a half in wonderful abstinence, treating his body as a furious wild beast, to which he would show no other mercy than barely not to kill it. . . . He strove to make himself contemptible by all manner of humiliations, and received all insults with joy, so perfectly was he dead to himself. . . . Not content to fulfil the rule of St. Benedict in its full rigor, he practised all the severest observances, prescribed by the rules of St. Pachomius and St. Basil. Being made cellarist, he was very solicitous to provide for others whatever St. Benedict's rule allowed, and had a particular care of the poor and of the guests."
+
+His brethren, upon the abbot's death, would fain have chosen him his successor, but being unwilling to accept the charge on account of their known aversion to reformation, he left St. Seine, and, accompanied by the blind monk Widmar, went to his paternal possessions in Languedoc, and on the brook Aniane, not far from the river Erau (*Arauris* [Latin]) and near a chapel of St. Saturninus, built a small cell or hermitage.
+
+He lived there for several years in great poverty with others who joined him. "They earned their living by labor, and subsisted on bread and water, except on Sundays . . . when they added a little wine and milk, when it was given to them in alms. Benedict did not exempt himself from the work of the others, but besides doing the same work copied good books." The number of his disciples increasing, he quitted the valley, and built a monastery in a more spacious place in that neighborhood.
+
+The new edifice was ready in 792. "He showed his love of poverty by its rigorous practice; for he long used wooden, and afterward glass or pewter chalices at the altar; and if any presents of silk ornaments were made him, he gave them to other churches." On this subject, however, he changed his mind, for after a while "he built a cloister, and a stately church adorned with marble pillars, furnished it with silver chalices and rich ornaments, and bought a great number of books."
+
+He soon had three hundred cenobites under his direction, and also exercised a general inspection over all the monasteries of Provence, Languedoc, and Vasconia; in fact, over the whole of Aquitaine, requiring, with great firmness, that all should submit to the Rule. Benedict, as might be expected, had plenty of enemies, clerical and otherwise; they charged him with malversation in office and even succeeded in influencing the mind of Charles against him. But Benedict, conscious of his rectitude, sought the imperial presence, justified himself, and Charles, in token of his affection and good-will, kissed him, and with his own hand gave the cup to his whilom cupbearer.
+
+Benedict took a prominent part in the controversy with Elipandus and Felix, and in the next reign rose to the highest favor and honor. He died in the monastery of Inde, near Aix-la-Chapelle, in 821.
+
+The monastery of Aniane was completed in 792; and its abbot, probably the most influential man in Aquitaine, stood in near personal relations to King Louis, yet the charter of the monastery, bearing date July 27 of the said year, is issued not in the name of the King of Aquitaine but in that of Charles. It recites that he accords his protection to the monastery of Aniane in the canton of Maguelonne, erected by the abbot Benedict on his own property, and by him personally surrendered to the king, together with immunity from secular and ecclesiastical control, and the free choice of its abbot.[^muhlbacherlc309]
+
+[^muhlbacherlc309]: Mühlbacher, *l. c.* [Latin] No. 309.—Vita Benedicti Anian. apud Mabillon, A. S. o. s. Bened. ed. Venet. IV., 185 sqq. 187 sqq.—Butler, *Lives of the Saints*, I., 235 sqq.
+
+We have in the course of this history met with Louis as an infant entering his dominions on horseback, as a child enlivening the Frankish camp in the Saxon country, on the verge of adolescence receiving the insignia of a warrior at Ratisbon, accompanying his father on the great expedition against the Avars to the occupation of the fortress on the Cumeoberg, and returning to Queen Fastrada, probably as bearer of the victorious tidings.
+
+The unsatisfactory character of the administration of the kingdom of Aquitaine appears from the rebellious conduct of Adalric, the Vasconian, who after forming an alliance with the Arab walis, or governors of the Spanish Marche, surprised, defeated, and took prisoner Chorso, duke of Toulouse; though a Frankish vassal himself, he refused to liberate the captive Chorso, also a Frankish vassal, except upon his swearing fealty to himself. The guardians of Louis committed the radical error of negotiating with the haughty rebel instead of forthwith punishing him. They summoned him to appear at an Aquitanian Diet, held at a **789]** place called "The Death of the Goths" (*Mors Gothorum* [Latin]), which he refused to attend until hostages were given him for his personal safety. Then he came, but such was the craven incapacity of the local governors that they could only effect an exchange of prisoners and prevent civil war by rich presents, with which they purchased his obedience.[^vitahlud5a] Their action was sternly disapproved by Charles; he commanded Louis, Chorso, and the rebel Adalric to appear before him at a Diet convened at Worms,[^vitahludcc56] and his orders were heeded. The refractory Adalric was arraigned before the Diet and required to clear himself of the crimes with which he stood charged; he tried but failed, and was condemned to perpetual banishment. Chorso also was indicted for incompetence and cowardice, and deprived of his duchy, because he had consented to the will of Adalric and brought such great dishonor on the king and on the Franks.[^vitahlud5b] His place was given to a valiant Frank, the famous Wilhelmus, the son of Theoderic and Aldana, a daughter of Charles Martel.[^mabillonactasanct]
+
+[^vitahlud5a]: Vita Hlud., c. 5.
+
+[^vitahludcc56]: Vita Hlud., cc. 5, 6; Annal. Mosell. a. 789; Chron. Moiss.
+
+[^vitahlud5b]: Vita Hlud., c. 5.
+
+[^mabillonactasanct]: Mabillon, *Acta Sanct.* [Latin] (ed. Venet), IV., 1, p. 68.
+
+We shall meet Wilhelmus again, but add here some particulars, which though pertaining to a later period, yet on account of their connection with Benedict of Aniane, seem most appropriate in this place. Wilhelmus, like many other illustrious men of the Middle Ages, in course of time exchanged the burden of high station and the distractions of secular pursuits for monastic retirement, and in 804 founded the monastery of Gellone, situated in the valley of that name, a league distant from Aniane. Two years later, with the consent of his wife, who also renounced the world, and the approbation of Charles, reluctantly obtained, he withdrew to his own monastery which after him was called *St. Guillelm* [French], or *St. Guillaume du Désert* [French]. He received the habit at the hands of the abbot Benedict of Aniane, "was directed by him in the exercises of a religious life and sanctified himself, with great fervor embracing the most humbling and laborious employment, and practising extraordinary austerities" until his happy death in 812. He was often seen riding on a donkey carrying a flask of wine in his wallet and a cup on his shoulder, to relieve the thirsty monks of Aniane in the harvest-field; it is added that he made himself very useful in the bakery and the kitchen.[^vbenedictianian199] Wilhelmus is often, though inaccurately, described as Duke of Aquitaine.
+
+[^vbenedictianian199]: V. Benedicti Anian. *l. c.* [Latin] 199; Butler, *l. c.* [Latin] I., 232.
+
+In this connection it is said that "in those days duchies were not hereditary, but like bailiwicks bestowed or taken for a time; this Wilhelmus found the Vasconians very proud and overbearing at the beginning, like people who are by nature impulsive and easily moved, even because of the Vasconian Adalric, whom the king had banished; but in a little time by good sense and force of arms he made them keep the peace, and so curbed their pride that they did not dare to undertake anything against him."[^vitahlud5ermold]
+
+[^vitahlud5ermold]: Vita Hlud., c. 5, cf. Ermold Nig. I., 57, 58.
+
+This is an unquestionable exaggeration, for the Vasconians were chronically disloyal.[^vitahlud13]
+
+[^vitahlud13]: Vita Hlud., c. 13, etc.
+
+The presence of that celebrated paladin was most bene- **790]** ficial to the minor king, who that self-same year presided in the local Diet of Toulouse, and received a Saracen embassy from the wali Abu Taher (*Abu-tor, Abutaurus* [Latin]) and other Arab walis implicated in the late revolt, suing for peace and presenting gifts, which seem to have been the stipulated tribute (*dona regia* [Latin]). The peace was granted and the tribute accepted, from which it follows that the course of events had not run as smoothly in the peninsula as the language of Alcuin seems to imply. It is known that Gerona surrendered to Charles in 785, but doubtful if the Frankish conquests extended in 790 to three hundred miles of littoral territory.[^alcep14]
+
+[^alcep14]: Alc. ep., 14. Vita Hlud. 5.
+
+At any rate, the Frankish supremacy was by no means established, and the Saracens took advantage of the military enterprises of Charles on the northern and eastern confines of the Frankish dominions, and not only repossessed themselves of the city of Gerona, but invaded the province of Septimania.
+
+The emir Hesham, the son and successor of Abdel-Rhaman, roused the enthusiasm of the Arabs throughout the peninsula by means of the *Algihad* [Arabic], or proclamation of a holy war against the Christians, substantially of this tenor:
+
+"Praised be God, who has raised the glory of Islam by the sword of the champions of the faith, and promised the faithful in His holy book and in terms which may not be misunderstood, His help, and glorious victory.
+
+"This ever-adorable Being has said: 'O ye faithful, if you cleave to God, He will help you and confirm your ways. Consecrate therefore to the Lord your good actions. He only, by His aid, is able to rally your standards.' There is no other God but God. He is One, and there is none to share His glory. Mahommed is His apostle, and His apostle is His beloved friend. Men, hearken unto me! God has been pleased to place you under the guidance of the most noble of His prophets, and blessed you with the gift of faith. He has in store for you in the world to come bliss such as ear never heard, or heart conceived. Show yourselves worthy of such great blessing; it is the greatest proof of His love God could give you.
+
+"Defend the cause of your immortal faith, and be true in the right way. God bids you do so in the holy book He has deigned to provide for your guidance.
+
+"Is it not God who has said: 'O ye faithful, fight the unbelieving nations around you, and show them no mercy'?
+
+"Come then with the utmost speed to this holy war, and quit you like men! Try to please God. Victory and power are sure to be yours, for the Most High God has said: 'We must needs help the faithful.'"[^reinaudinvasions]
+
+[^reinaudinvasions]: Reinaud, *Invasions des Sarracins en France* [French], p. 101.
+
+The Arabs heard and shouted for joy, dashed on their fleet horses through the mountain passes, and entered Vasconia, seemingly with the sole purpose of terrifying the **793]** Christians; but in the following year their visit was not one of ceremony or state. A hundred thousand Saracens obeyed the command of Abd-el-Malek; part of their number fell upon the Asturias, others, set apart for the conquest of the Frankish dominions, overpowered the lieges of Charles in the Spanish Marche, retook and sacked their cities, and swept with amazing and destructive celerity over the plains of Septimania; they set on fire the suburbs of Narbonne, and flew onward, like a whirlwind, in the direction of Carcassonne.[^chronmoissvitaswillelmi]
+
+[^chronmoissvitaswillelmi]: Chron. Moiss., Vita S. Willelmi, apud Mabillon, A. S. *l. c.* [Latin] p. 70; Erm. Nigell. I., 211 sqq.—Annal. Alam., Einh., al.
+
+The whole country trembled at their coming; the valiant count of Toulouse collected as many soldiers as he was able, and though but a handful as compared with the enemy, sallied forth to meet them and dispute their progress.
+
+Near the confluence of the Orbieux and the Aude the Franks and the Saracens met; a most sanguinary battle was fought, known in history as that of Villedaigne, in epic poetry as that of Abiscamp.
+
+The Christians, under the inspiring command of the heroic William, fought with a vigor and determination rarely paralleled or eclipsed, stood their ground unshaken, and allowed themselves to be literally hacked to pieces without budging, so animating was the example of their leader, who used his sword as a mower plies his scythe in cutting grass. Those heroic men stemmed the tide of Saracen invasion, and though most of them were slain, the few left made good their retreat in excellent order. The Saracens scored a dear victory, for one of their "kings," that is, one of their leaders, was among the slain, and deeming discretion the better part of valor, abstained from the pursuit, secured their enormous booty, valued at more than thirty millions of francs, and returned into Spain.[^chronmoissannalalam]
+
+[^chronmoissannalalam]: Chron. Moiss., Annal. Alam., Lauresh., Enh. Fuld., Sithiens., Einh.
+
+The emir's share of one-fifth amounted to six millions and a half of francs, the whole of which he set apart to the completion of the splendid mosque at Cordova which had been commenced by his father. Tradition says that this devout Mohammedan, not content with the glory of building a mosque with Christian money, cherished the strange conceit that it should stand on Christian "soil," and for that purpose caused sacks filled with earth from the battle-field of Villedaigne to be carried on the shoulders of his Christian prisoners of war to Cordova, and the foundations of the monumental pile to be laid in that earth.[^chronmoissannaleinhalamann] If the statement is true, the fate of that mosque points the lesson of the instability of things below, for the mosque is now the cathedral of Cordova.
+
+[^chronmoissannaleinhalamann]: Chron. Moiss., Annal. Einh., Alamann., Enh. Fuld., Lauresh.—Reinaud.
+
+The incident, historic or legendary, of Datus, which doubtless belongs to the Saracen invasion, illustrates the spirit of the age. He lived with his mother on the paternal homestead in the Rouergue, when the miscreants burst into the land; not expecting them to come so far, he hastened forth to dispute their progress; but during his absence a band of raiders found their way to his native country, laid it waste, plundered his home and dragged his mother into captivity. He heard that the marauders were still within reach, and sped with a number of his friends to the castle in which they lay. He asked them to surrender his mother, but refusing to give his horse in exchange for her, was doomed to witness her cruel murder by one of the Saracens. The pangs of remorse converted the warrior into a hermit, and led him in concert with others to found the monastery of Conques, and spend the residue of his life in the still greater solitude of Grandvabre.[^lecointevii507]
+
+[^lecointevii507]: Le Cointe, VII., 507; Bouquet, VI., 517.
+
+It was probably on the occasion of his marriage to Hermingard, a daughter of Count Ingram, that the corrupt administration of the kingdom of Louis drew forth the direct interposition of his royal father. Some provision had to be made for the domestic establishment of the king, who was then about sixteen. His father expressed surprise at what seemed to be an exhibition of parsimony, for he failed to bring (unless by special request) the so-called *benedictio* [Latin]; and was amazed to learn that the administrators of the kingdom of Aquitaine had taken advantage of the inexperience of Louis, diverted the crown-property in land to their own uses, and reduced the young puppet-king to a state of poverty. Charles immediately stopped the outrage by the appointment of special commissioners charged with the duty of recovering the royal domain, and applying the revenue to the use of the crown.
+
+The task was one of great delicacy and its execution one of considerable difficulty; but the tact of the commissioners, Willibert, and Richard, the brother of Angilbert,[^conjecturemabillon] especially that of Meginarius, sufficed to accomplish the necessary measures without much inconvenience to any class of persons except the rapacious vassals who had so grossly abused the confidence of Charles.
+
+[^conjecturemabillon]: If the conjecture of Mabillon, *Ann. Ben.* [Latin], II., 266 is correct.
+
+The juncture, moreover, appeared favorable to the introduction of certain reforms, which might enhance the personal popularity of Louis; but his royal father instructed the commissioners to proceed with the utmost caution, lest the sensitive nobles should withdraw their affection from his beloved son.
+
+The King of Aquitaine had no civil list, and the expense of the royal establishment was defrayed from the revenue derived from domanial possessions, and certain dues and supplies; it was ordered that thenceforth the king should reside during the winter months in fixed rotation on the royal villas at Doué, Chasseneuil, Angeac, and Ebreuil,[^ihavegivenmodernnames] and this arrangement, in the opinion of the commissioners, would equally distribute the burden of supplying the Court, and not overtax the ability of any one villa. Under this regulation the Court came only once in four years, and the event proved that it was a salutary measure as well as an economic necessity. The summer months Louis generally spent with his father, but the city of Toulouse, where he held the provincial diets, was nominally, at least, his permanent residence.
+
+[^ihavegivenmodernnames]: I have given in the text the modern names. The authorities mention the Latin names; thus Doué, or more fully Doué-la-Fontaine, dep. Maine-et-Loire, arr. Saumur, answers to *Theotuadum* [Latin]; Chasseneuil, the birth-place of Louis, on the Clain in Poitou, to *Cassinogilus* [Latin], or *Cassinogilum* [Latin]; Angeac on the Charente, to *Andiacum* [Latin]; and Ebreuil, north of Clermont, to *Eurogilum* [Latin].
+
+    These localities have been the subject of considerable controversy. Concerning *Theotuadum* [Latin], Ermold. Nigell. *l. c.* [Latin] p. 480 (II., 93 sqq.) writes:
+
+    > *Trans fluvium Ligeris locus est quippe uber et aptus*
+    > *Cingitur hinc silvis, hinc quoque planitie,*
+    > *At medius placido fluviorum gurgite vernat,*
+    > *Piscibus est habilus est locuplexque feris,*
+    > *Quo Hludowicus ovans praecelsa palatia struxit.*
+    > *Quaeris? Inest Thedwat nomen, amice, sibi.* [Latin]
+
+    The following authentic passage relates to Chasseneuil, dep. Vienne, arr. Poitiers Cant. St. Georges:—"*Cassanogilo villa palatio nostro in pago Pictavo secus alveum Clinno.*" [Latin]—*Polyptychum Irminonis* [Latin], publié par Guérard, II., 344. Append. No. 9. Cf. Simson, *Ludw. d. Fromme* [German], I., 33, No. 5; Mühlbacher, *l. c.* [Latin] p. 80.
+
+    On all the localities, see the collection of passages, Simson, *l. c.* [Latin] II., 89 sqq.
+
+The domanial income was considerable and adequate to the extension of the reforms to the removal of an onerous and most unpopular obligation which until that time remained operative. Louis abolished the so-called *fodrum* [Latin], that is, supplies in kind for the support of "military men," a term which comprehended not only the militia, but the counts and judges. It was an annual tax and its collection frequently accompanied by "excessive harshness"[^crudelitas] on the part of the collectors; its abolition, therefore, was hailed as a great blessing. The king engaged to defray or provide for the *fodrum* [Latin] from his own revenue, to the satisfaction of the people, and the sole discontent of the extortionate collectors.
+
+[^crudelitas]: *Crudelitas.* [Latin]
+
+He abolished, likewise, the tribute in corn and wine which the Albigenses had been obliged to pay.
+
+These judicious and merciful reforms were most beneficial, and, it is said, so greatly admired by Charles, that he ordered the abolition of the *fodrum* [Latin] throughout his dominions. But this seems to be purely imaginary, for the capitularies not only do not mention, but flatly contradict, such repeal.[^vitahludcc57]
+
+[^vitahludcc57]: Vita Hlud. cc. 5–7; Ermold. Nigell. II., 93–98; Mabillon, *l. c.* [Latin] IV., 1; id. Vita Bened. Anian., 41.
+
+**795]** Meanwhile the relations of the Frankish government to the Saracens near the Aquitanian frontier and the Christian King Alonso II., were marked by growing cordiality, and the vexed delimitation of the Spanish Marche was accomplished without much difficulty. The town of Ausona (*Vich*), the castle of Cardona, the town of Castaserra (*Casseres*) and other places were fortified, garrisoned by Frankish troops, and placed under the general direction of Count Burellus.[^vitahlud8lembke] In the following year the death of the emir Hescham appears to have been the immediate occasion of a raid into Saracen territory, which led to no important immediate results.[^annallaureshlembke]
+
+[^vitahlud8lembke]: Vita Hlud., c. 8. Lembke, *Geschichte von Spanien* [German], I., p. 385 sq.
+
+[^annallaureshlembke]: Annal. Lauresh., cf. Lembke, *l. c.* [Latin], I., p. 363, sq.
+
+Still, the presence at the court of Charles in Aix-la-Chapelle, of Zeid, the wali of Barcelona, who commended himself and his city (that is, made his submission), shows that there was a favorable opening for the recovery of **797]** what had been lost and the conquest of new territory. Louis was ordered to undertake the work and begin it with the investment of Huesca; but this expedition like the former seems to have been a failure.[^annlaurisseinhmaxim]
+
+[^annlaurisseinhmaxim]: Ann. Lauriss., Einh., Maxim.
+
+Later in the same year the Saracen Abdallah, a son of Abdel-Rhaman, proceeded to Aix-la-Chapelle and made his submission. This was peculiar, and affords striking illustration of the fame and power of Charles. The Saracens who heretofore came for aid or suing for peace were the rebellious subjects or enemies of the reigning Ommiad family of Cordova. Abdallah was a member of that family and sought the king's protection against the ruling emir. "I am," he said in substance, "a son of Abdel-Rhaman. When my father died my brother Hesham rose against me and dispossessed me. I was banished to Mauritania. Hesham is dead and his son El Hakem sits in the throne, which of right belongs to me. I commend myself to you, and invoke your aid against the usurper."
+
+Abdel-Rhaman, or, as he was also called, Abderrhaman, or Abdurrhaman, the Emir of Cordova, upon the authority of Ahmed el Mokri, an Arab historian of the eleventh century, sought after the campaign of 778 to form an alliance with Charles by marriage, "but the former having met with an accident on the loins . . . that design was abandoned. Charles, however, courted his friendship and pressed the alliance, and, though the latter was declined, peace was established between the sovereigns."[^murphyhistory]
+
+[^murphyhistory]: Murphy, *History of the Mahometan Empire in Spain*, p. 84.—Lembke *l. c.* [Latin] I., 349.
+
+This statement is legendary and improbable. The said emir died in the 59th year of his life, probably in 788, and passing over his elder two sons, was succeeded by Hesham. We may accept as an established fact that soon after his accession, about 789, the Franks conquered a tract of littoral territory from the Saracens.[^alcuinep14simson] Abdallah was one of the elder brothers.
+
+[^alcuinep14simson]: Alcuin. ep. 14 (Simson, *l. c.* [Latin] II., 15).
+
+Charles accepted his homage and promised to help him; the extent of the support he gave is not known, but it was doubtless inadequate. Such an army as the claimant to the throne of Cordova needed in order to enforce his rights, say a body of from eighty to a hundred thousand men, Charles could not and would not furnish. The notices of record are vague. We learn that late in the year Abdallah was directed to return with King Louis to Aquitaine, and that agreeably to his own desire he was afterwards conducted into Spain, and committed to the hands of trusty men, of whose good faith he entertained no doubt.[^annallaurisseinhlembke] It is proper to add that his enterprise miscarried.
+
+[^annallaurisseinhlembke]: Annal. Lauriss., Einh. cf. Lembke, *l. c.* [Latin] I., 356, 364.
+
+The singular cordiality between Charles and Alonso II., King of the Asturias, has been mentioned before. His admi- **798]** ration of the king of the Franks was remarkable and he neglected no opportunity of expressing it. The year before he sent him a magnificent tent; now he apprised him of the conquest of Lisbon, and in token of his regard Froia and Basiliscus, his ambassadors, brought a present of seven captive Moors, seven mules, and as many coats of mail.[^annallaurisseinhmax] Such was his devotion that when he sent "letters or ambassadors to Charles, he invariably styled himself his *subject*."[^vitacaroli16]
+
+[^annallaurisseinhmax]: Annal. Lauriss., Einh., Max.
+
+[^vitacaroli16]: Vita Caroli, c. 16, *proprium suum.* [Latin]
+
+Legend, without a shadow of authority, fables of a tender explanation of their cordial intercourse, representing that Alonso was affianced to a sister of Charles, whom he never saw.[^lembke395]
+
+[^lembke395]: Lembke, *l. c.* [Latin] I., 395. Alonso reigned from 791 to 843.
+
+As an offset to these living Saracen trophies in the palace at Aix-la-Chapelle, came the alarming intelligence that their unconfined brethren had made a piratical descent upon the Balearic Islands of Majorica and Minorica,[^annlaurisseinhenhfuld] as the inhabitants called them. The pirates are described as Saracens and Moors.
+
+[^annlaurisseinhenhfuld]: Ann. Lauriss., Einh., Enh. Fuld.
+
+About this time the bishop Theodulf of Orleans, and Laidradus, archbishop-designate of Lyons, were sent as special commissioners into the Provence and Septimania. A curious poetic report of their mission, from the pen of the former, sheds much light on the condition of society in the kingdom of Louis, and is here reproduced in part.
+
+He writes, that vast multitudes of people, of both sexes, and of every age, crowded upon them, seeking to press the adjudication of their suits by bribery, attempted in various ways.
+
+"One man," he says, "offers me Oriental gems for putting him in possession of his neighbor's lands; another gold coin with Arabic inscriptions, or silver with Latin legends, as the price of some coveted estate or house." The case of a third, seeking to influence him through one of his servants, is remarkable. He took him aside, saying: "I have a splendid and costly vase; it is a marvel for the purity of its metal, its great weight, and still greater antiquity; it is superbly ornamented.
+
+"You may see thereon the story of the crimes of Cacus; the bruised and blood-stained faces of the shepherds, and all the tokens of his many acts of rapine. There is a field saturated with the blood of cattle and of men; Hercules in his fury breaking the bones of the son of Vulcan, from whose savage mouth belch forth the most fearful of his father's flames; Hercules thrusts his knee into his vitals, his feet into his sides, and with his iron club crushes the face and smoke-emitting throat of his fierce opponent. There he drives the oxen out of the cave, and you plainly see their dread of being pulled a second time by their tails.
+
+"All this covers the hollow part of the vase within a bordered circle. The other side, though less grand in design, represents the infant of Tyrinthus in the act of strangling the two serpents, and all the ten labors in regular succession.
+
+"Constant use, however, has unfortunately made the outside of the vase so smooth that the effigies of Hercules, the river Chalydon, and Nessus fighting for the beautiful Deianira, have almost become effaced. Nevertheless there remain distinctly visible the fatal robe poisoned with the blood of Nessus, and the terrible fate of the hapless Lychas; aye, and you may see expire in those fearful arms the famous Anteus, who, unlike other mortals, could not be vanquished in combat, or thrown on the ground.[^iamundecided]
+
+[^iamundecided]: I am undecided whether Theodulf made fun of the strange mythological statements of the tempter, or selected him as the mouthpiece of his own learning, for he is as fond of innuendo as of scholastic display.
+
+"This beautiful vase I propose to offer to my lord, if he does as I desire. You understand that my parents have presented their freedom to a large number of persons, who are now virtually free; but if we change their papers, your master will take comfort from the ownership of that beautiful vase, I from the possession of all those people, and you from the handsome present I intend to make to you."
+
+Theodulf mentions a number of similar attempts at bribery, and concludes the long but entertaining poem with a solemn charge to the "judges," terminating as follows:
+
+"Spare, mortal man, thy fellow-mortals, whenever you are able; there is but one law for them and you. However different your course may be here upon earth, remember that both its beginning and its ending must ever be the same to them and to yourself.
+
+"For them as well as yourself there flows a sacred fount in which both you and they must wash away the stain of inherited sin. . . .
+
+"The author of life died both for you and them, and will reward every man as he deserves. I now furl the sails of my finished book, trusting that my bark may ever ride at anchor on that trusty shore."[^theodulfcarm28]
+
+[^theodulfcarm28]: Theodulf. Carm. 28, in Poetae Lat. aev. Carol., I.
+
+The Saracen descent on the Balearic Islands was followed by a direct appeal to Charles on the part of the inhabitants. **799]** He was not slow in punishing the pirates, who were a source of terror to the dwellers on the coasts of Aquitaine. He issued orders for the outfit of a Frankish fleet, in the ports of Narbonensis and Septimania, and along the whole coast of Italy as far as Rome for defensive and offensive service.
+
+The Frankish fleet appeared off the islands, defeated the Saracens with great loss, set up the Frankish flag, received the submission of the islanders, and sent to Charles the Saracen standards.[^annallaurisseinhalcuin127]
+
+[^annallaurisseinhalcuin127]: Annal. Lauriss., Einh.; cf. Alcuin. ep. 127, and Vita Caroli, c. 17.
+
+Fortune also smiled upon him in the Spanish peninsula, for, ere the year closed, Hassan, wali of Huesca, sent ambassadors, with presents and the keys of the city, promising its surrender on the first favorable opportunity.[^annallaurisseinh299] Some time, however, was to elapse before it presented itself.
+
+[^annallaurisseinh299]: Annal. Lauriss.; Einh.
+
+Louis might desire and urge the necessity of his father's **800]** personal presence at Chasseneuil, both with respect to military operations in Spain and the better establishment of his kingdom; but Charles, feeling that domestic sorrow and more important business forbade compliance, commanded him to meet him at Tours, to which place he was about to repair accompanied by the Queen Liutgard, who was in failing health, and his two sons, Charles and Pepin.[^vitahlud12]
+
+[^vitahlud12]: Vita Hlud., c. 12.
+
+The objects of the royal visit were two-fold, the one religious, the other political, but the first clearly masked the second. It was given out that the lord king was about to frequent (in connection with a journey of inspection to the seaport towns in the Channel), during and after Lent, certain holy places containing the relics of illustrious saints "for the sake of prayer." The prayer was not only for the salvation of his soul, but more particularly for the recovery of the beautiful and beloved Liutgard; the physicians could not help her, but the saints might; still, they remained deaf to entreaty, and even St. Martin disregarded both her own fervent prayer and the intercessions of her mighty husband, his three royal sons, and the saintly custodian of his bones, for she grew worse and died at Tours.
+
+The political object of the royal progress had respect to the grand event in course of preparation which exalted Charles to the summit of earthly power. He conferred with Angilbert at St. Riquier, with Alcuin at Tours, and on his return, after the queen's funeral, with Theodulf at Orleans.[^annallaureshguelf799]
+
+[^annallaureshguelf799]: Annal. Lauresh., Guelf. (799), Lauriss. Einh. Alc. ep. nos. 132, 133, 238.—See Note, p. 313.
+
+The biographer of Alcuin (who, by the bye, wrote in the next reign and in glorification of the pious Louis) makes him a prophet.
+
+The king, holding Alcuin by the hand, asked him in a low voice: "Tell me, master mine, which of these my three sons will in your opinion succeed me in the honors which God on me unworthy has bestowed?" Alcuin directed his eye on Louis and said, "The humble Louis will be your excellent successor."
+
+Only the king heard what he said. They entered the Church of St. Stephen, and Alcuin noticing the attitude of the royal brothers, Charles and Pepin with their heads proudly erect, but Louis meekly bowing his, said to those around him: "Do you see Louis more humble than his brothers? Verily you will behold him as the most illustrious successor of his father."
+
+Presently, while administering the Holy Sacrament to the royal brothers, the humble Louis again bowed his head and kissed the hand of the venerable man. Alcuin turned round to Sigulf and said: "'Whosoever shall exalt himself shall be abased; and he that shall humble himself shall be exalted.'[^matthxxiii12] Verily Francia will rejoice in this man's succession in the *empire*."[^vitaalchuini23]
+
+[^matthxxiii12]: Matth. xxiii. 12.
+
+[^vitaalchuini23]: Vita Alchuini, p. 23 sq.
+
+The present writer rejects the prophecy, which labors under the suspicion of having been uttered, or rather manufactured after the event; for its credibility is neither established by the biographer's assertion that Sigulf was his authority, nor by his testimony as to the reality of the event: "We also now see and rejoice in the fulfilment."[^hocnosjamfactum]
+
+[^hocnosjamfactum]: *Hoc nos jam factum et videmus et gaudemus, etc.* [Latin]
+
+The reference, moreover, to Charles as *emperor* at a time when he was only *king* savors of historical inaccuracy; while the striking resemblance of the alleged Alcuinian prediction with that which the poetic Ermoldus Nigellus puts on the lips of Paulinus, patriarch of Aquileia,[^lv564600] impugns the authenticity of both; and last, not least, comes the improbability of Charles committing himself to so indiscreet a question at that or any other time, and the yet greater improbability of Alcuin committing himself to so injudicious a reply and vaticination.
+
+[^lv564600]: l. V., 564–600 in MG. SS. 477 sq.
+
+One thing, however, is certain, that Louis asked Alcuin to send him from time to time hortatory epistles, that he read them with great humility, and that Alcuin had an exalted opinion of his piety.
+
+This is evident from a letter of Alcuin to the junior Charles (date 801–804), in which he exclaims: "Would that I might have the privilege of frequently addressing to your majesty (*almitati* [Latin]) letters of admonition, even as the most noble youth, your brother Chlodoicus (Louis) has desired me often to send admonitory epistles; the which also I have done, and God willing, shall continue to do; which letters, I know, he is wont to read with great humility, etc."[^alcep245]
+
+[^alcep245]: Alc. ep. 245, *l. c.* [Latin], p. 790.
+
+Bidding for the present adieu to the pious king of Aquitaine, we now follow his brother Pepin to Italy in order to chronicle the martial events falling within this period and belonging to his kingdom.
+
+We have heard of his birth, that his original name of Carloman gave way to that of Pepin when Pope Hadrian, his godfather, baptized, crowned, and anointed him king of Italy, and that he resided from his childhood in Pavia.
+
+His rule was purely nominal, for the *baiulus* [Latin], or guardian, whom Charles placed by his side, conducted in his name, but under the direction of his royal father, the affairs of his kingdom. We have met him in company with his father in the Beneventan campaign, in command of one of the armies on the way to Bavaria, and as a victorious leader and conqueror in Pannonia.
+
+It is proper to recall the circumstance that at the time of the submission of Arigiso, duke of Benevento, Charles made choice of Grimoald, his younger son, as the thirteenth hostage, and took him to Francia. This happened early in 787; a few months later death removed first Rumoald (21st July), and, after only five weeks (26th of August), duke Arigiso, so that the hostage fell heir to the duchy.
+
+**788]** The Beneventans sent an embassy to Charles, entreating him to surrender Grimoald, while the pope used his influence in checkmating them. Charles refused, but despatched five plenipotentiaries, to wit: Maginarius, abbot of St. Denis, the deacons Atto and Joseph, the *ostiarius* [Latin] Goteramnus, and count Liuderich as special commissioners to the spot, where, according to Hadrian, Adelchis, son of Desiderius, and Byzantine agents were exerting themselves against Frankish supremacy.[^codcaroljaffe8486]
+
+[^codcaroljaffe8486]: Cod. Carol. (Jaffé), nos. 84–86; Ep. Carol. (Jaffé), 5; Erchempert, *Hist. Langob.* [Latin] (in MG., SS. Langob., I., 236).
+
+The policy of all the parties concerned in this matter was as diverse as were their interests; the whole situation was full of embarrassments, suggesting a few words of explanation.
+
+Under the arrangement made with Arigiso,[^seep177] Benevento became tributary to Francia, and Grimoald, the duke's youngest son, a hostage in the hands of Charles. In their sudden bereavement the Beneventans turned to him, requesting the liberation of Grimoald, and the royal consent to his succession in the ducal throne.
+
+[^seep177]: See p. 177 sq.
+
+Charles hesitated, for he may have suspected the loyalty of Adelperga, whose feelings towards him could not be cordial, and of the Beneventans generally. He deemed it expedient, before committing himself in the matter, to ascertain their true sentiments, and appointed the aforenamed commissioners, instructing them to learn from personal intercourse with the ducal family and the Beneventans, and their independent observation all the bearings of the case and report to him the results of their inquiries. The king, moreover, desired them to confer with the pope before they proceeded to Benevento.
+
+Hadrian was less the friend and partisan of Charles than the enemy of the Lombards generally, and of the duchess Adelperga and her children in particular; but first and foremost he was the friend of himself or, as he put it, of St. Peter.
+
+The interests of the apostle and his enmity of the Lombards shaped his policy and controlled his actions. He left no stone unturned in order to prevent the return of Grimoald and accomplish the reduction of Benevento to a province of the Frankish empire.
+
+Such was the situation when the royal commissioners arrived at Rome. Hadrian doubtless tried to instil his views into their minds, and influenced some of their number to act upon his suggestions.
+
+He warned them of foul play and bade them by all means travel together; they nevertheless found it not convenient to act upon this hint, but agreed to meet at Benevento.
+
+When Maginarius arrived there, he learned that his colleagues had continued their journey to Salerno, and was told by Frankish partisans that the Beneventans designed forcibly to detain the commissioners until Charles should decide the matter of Grimoald, and the restoration to their rule of the cities previously promised, assigned, or donated to St. Peter, agreeably to their wishes.[^seep178]
+
+[^seep178]: See p. 178.
+
+He then decided to remain at Benevento, and pretending sickness, requested the duchess to direct the return of his colleagues, and send her own commissioners for a conference to Benevento. This proposal the duchess rejected, and probably the same Frankish partisans frightened the commissioners with the rumor of a Beneventan conspiracy against their lives, so that they fled during the night and found safety at Valva on Spoletan territory.
+
+Atto also, it was said, hearing the same rumor at Salerno, took sanctuary in the church; but his fears, if he had any, were as unfounded as those of his colleagues, since the Beneventans, so far from offering him violence or attempting to detain him, begged him to return to Charles and assure him of their loyalty, pledging him to use his influence with the king to consent to the liberation and return of Grimoald.
+
+Atto, it seems, returned to Francia before the other commissioners and kept his promise.
+
+The failure of the joint conference was doubtless the effect of Hadrian's intriguing, and the alarming insinuations of the Francophiles at Benevento probably emanated from the same source.
+
+The epistles of Hadrian, from which most of these details are drawn, are most damaging to his reputation.
+
+Immediately after Atto left Salerno, writes the pontiff, two *spatharii* [Latin], envoys from Constantinople, accompanied by the governor of Sicily, who during the stay of Atto had not been permitted to come ashore, landed at Acropoli in Lucania, and under conduct of a Beneventan escort, proceeded to Salerno, where for the space of three days they were in close conference with the duchess and the notables. The Beneventans, he adds, informed the Greeks that they had, first through their own ambassadors, and then through Atto, requested Charles to set Grimoald at liberty, desiring them pending his expected return to remain at Naples, and assuring them that Grimoald would certainly fulfil all the obligations which Arigiso had undertaken, but not been able to perform, and make his submission to the Greek emperor, their master.[^epistcaroljaffe256]
+
+[^epistcaroljaffe256]: Epist. Carol., Jaffé IV., 256 sqq.; 346 sq.; 348; Cod. Carol., 257 sq., 258, 261.
+
+It is unnecessary to discuss so improbable and incredible a statement. The *spatharii* [Latin], however, proceeded to Naples, and, according to Hadrian, ceased not to plot against Charles.
+
+In one of his epistles the pontiff declares that even though the Beneventans should in all respects comply with the demands of Charles, he considered the return of Grimoald most undesirable. "Rest assured," he writes, "that if you send Grimoald to Benevento, you cannot be secure in the possession of Italy."[^ibidjaffe254]
+
+[^ibidjaffe254]: Ibid. Jaffé, IV., 254, sq.
+
+He also enlarges upon the scheme of Adelchis attempting with the aid of the Greeks the restoration of the Lombard kingdom.
+
+Another topic of constant recurrence is the Beneventan request of the restitution to their rule of the Beneventan cities which Charles had given to the apostle.[^ibidjaffe255] It is a most sore point with him, and he conjures Charles to perfect the donation so that he might be able at the apostle's tomb to pray both for Charles, the queen, his spiritual daughter, and his children.[^ibidjaffe259]
+
+[^ibidjaffe255]: Ibid. Jaffé, IV., 255, sq. 263; cf. 347 sq.
+
+[^ibidjaffe259]: Ibid. Jaffé, IV., 259.
+
+In this connection the case of Capua is remarkable for pontifical casuistry. He informs the commissioners that the presbyter Gregory with nine other Capuans had come to him denouncing the machinations of the Beneventans and Greeks, and acknowledging his authority, saying that they desired to become the subjects of himself and St. Peter, even as they were recognized as such by virtue of the king's donation.
+
+These men were private individuals and partisans of his, opposed to the return of Grimoald, and, of course, utterly unauthorized to speak or act for their city. Hadrian, however, saw in their coming a splendid opening for getting Capua, saying that "it seemed to him expedient to receive them into the service of St. Peter because it would foster dissensions among the Capuans, which would prove most beneficial to St. Peter and his most excellent son the lord king," thinking "that division was very desirable as tending to save both of them much trouble, and proving the best means for effecting the submission of the Capuans."[^ibidjaffe258]
+
+[^ibidjaffe258]: Ibid. Jaffé, IV., 258, 345, sq.
+
+The Prince of Peace bequeathed His peace to His disciples, and tenderly prayed for the Unity of the Church; but He also said once, speaking of the opposition to His religion by a wicked world, that He came to set men at variance. Hadrian appears to have forgotten the first passage and misapplied the latter.[^comparestjohn]
+
+[^comparestjohn]: Compare St. John xiv., 27; xvii., 22, with St. Matth. x., 35.
+
+He begged the commissioners to give him their opinion; their answer is not of record, but he actually received the Capuans soon after, and although he took the precaution of making them likewise swear fealty to Charles, the city remained Beneventan, and his claim of it vanishes altogether from the record.[^jaffeiv260]
+
+[^jaffeiv260]: Jaffé, IV., 260.
+
+Such was the situation in Italy when the Beneventan case awaited the final decision of Charles. It redounds to his credit that he set aside the recommendations of Hadrian, and on much higher political grounds, probably also from a sense of justice and humanity, pursued the most honorable course.
+
+The commissioners reported to Charles that open revolt was inevitable, unless he respected the popular will and allowed Grimoald to succeed in the government.
+
+That revolt would most probably have convulsed all Italy, and promoted a certain alliance between Benevento and the Greeks; and these allies would have supported Tassilo and the Avars, and involved Charles in a most dangerous war.[^annallaureshnazar]
+
+[^annallaureshnazar]: Annal. Lauresh.; Nazar.; Lauriss.; Einh. Vita Caroli, c. 11.
+
+He therefore released Grimoald, and binding him by terrible oaths to the performance of the duties of a faithful vassal, presumably to the continuance of the tribute, to the recognition of Frankish supremacy by causing the royal name to appear on his coins, and to the injunction requiring all Lombards to shave their chins, confirmed him in the succession, and allowed him to set out for his dominions.[^annallaurmajeinh]
+
+[^annallaurmajeinh]: Annal. Laur. maj.; Einh., Maxim., 787; Altahens., 787. Erchempert, *l. c.* [Latin] p. 236. Chron. Salern. cc. 24, 25. The language concerning the oath runs thus: *Et Grimoldum per terribile sacramentum constituit ducem, etc.* [Latin]—Annal. Maxim. a. 787, MG. SS. XIII.; and on the provision about the beard: *Sed prius eum sacramento vinxit, ut Langobardorum mentum tondere faceret.* [Latin]—Erchempert, as before. See Muratori, *Annali* [Italian], a. 788, cf. V. Hadriani, Duchesne, *l. c.* [Latin] 495 sq., where the new subjects of the pope "*more Romanorum tonsorati sunt*;" [Latin] and Codex Carol. Jaffé, IV., 260, containing the promise of Arigiso to the Byzantines, "*tam in tonsura quam in vestibus usu Grecorum perfrui sub eiusdem imperatoris dicione.*" [Latin]
+
+It is also said that Authari and Paulipert were designated resident royal commissioners, to observe Grimoald, and make sure of his loyalty, Grimoald being expected to make honorable provision for them. They were probably Lombards, at least their names are Lombard names, and it is added that Charles desired Grimoald to select a maiden of their noble race as his wife.[^chronsalern25]
+
+[^chronsalern25]: Chron. Salern. c. 25.
+
+It seems that Grimoald soon forgot these obligations, assumed a decidedly rebellious attitude, and by marrying the princess Wantia, niece of one of the Greek emperors, formed a close alliance with the East, which in the strained relations between Charles and the Byzantine Court,[^seeconcludingparagraphs] opened the door to intrigue. It is difficult, after the lapse of nearly eleven centuries, and with so few data to guide us, to form an impartial judgment of his conduct; but appearances are decidedly against him, and expose him to the charge of insincerity.
+
+[^seeconcludingparagraphs]: See the concluding paragraphs of this chapter.
+
+Two of his gold coins extant, displaying on the obverse his image and name, and on the reverse the inscription, DOMS CARO RX, as well as an official document of his, of this period (say 789), setting forth the preamble: "In the twentieth year of the reign of the most pious Charles, the great King of the Franks and of the Lombards, and patrician of the Romans," prove that he observed formally some of the engagements of his oath.[^soetbeerforschungen]
+
+[^soetbeerforschungen]: Soetbeer, in *Forschungen* [German], IV., 339, and Hirsch, *ib.* [Latin], XIII., 64.
+
+On the other hand, the Lombard historian charges him with flagrant violations of the rest, and beginning the strife of rebellion.[^erchempertlc307] Beneventan private documents extant disclose the fact that he completely ignored the existence of Charles, for they designate Grimoald "chief duke," "the most glorious lord, by divine providence clothed with supreme power, and appointed prince of the Lombards;" and only mention the year of *his* "principate."[^coddiplcavens]
+
+[^erchempertlc307]: Erchempert, *l. c.* [Latin]
+
+[^coddiplcavens]: Cod. dipl. Cavens., I., 1–6, Nos. 1–5.
+
+All such rebellious acts were duly noted, and reported, by the ever vigilant Hadrian, whose communications are not chargeable with understatement, and drew forth a royal order in virtue of which Pepin led an army into the Bene- **791]** ventan territory, which ravaged "a great part" of the same and set it on fire.[^annalguelferb791] In the following year Pepin and Louis returned with a large army, composed in part of Aquitanian troops, devastated the duchy, seized a castle, and flushed with victory, retraced their steps to Germany because, according to the intimation of an encomiastic biographer of his Aquitanian majesty, filial regard prompted them to hasten to the side of Charles and comfort him in the sorrowful conspiracy of their half-brother. This was doubtless part of the truth, but not the whole; the retreat of the Frankish army was a stern necessity, for it arrived at the time **792]** of a famine so exceeding sore that not a few were unable to keep the Lenten fast, and—in the total failure of bread-supplies—had to maintain themselves by eating meat.[^vitahlud6lauresh]
+
+[^annalguelferb791]: Annal. Guelferb. a. 791.
+
+[^vitahlud6lauresh]: Vita Hlud. c. 6; Annal. Lauresh.
+
+The famine was not confined to Benevento but extended over a large territory; it raged throughout Italy, in Burgundy, Gothia, the Provence, and other parts of Francia. The incidents connected with it, of which we read, are too horrid to be credible. The poor people in their distress ate everything, devoured the most revolting substances, and even turned cannibals, "brothers eating their brothers, and mothers their own children." In some parts their misery was heightened by nature mocking them with the lying promise of rich harvests; the fields brought forth an immense quantity of "false corn;" "whoever ate of it died, while the flour which was made of it vanished under their hands."[^annalmosell79192]
+
+[^annalmosell79192]: Annal. Mosell. 791, 92. Lauresh., Salisb. addit. auct. Cod. Monac. MG. SS. XIII. 237.—See Capit. Francof., Book III., Ch. I., no. 25.
+
+The authorities are silent concerning the details of military events in Benevento during the remaining years of the eighth century; and it must serve our purpose to supplement the omission by the subjoined general paragraphs of the Lombard historian. "Charles," he writes, "frequently overran the Beneventan territory with armies of immense strength, but God, under whose protection we have flourished until now, sent a pestilence on them [*i. e.* [Latin] later], and again and again compelled him after the loss of countless multitudes ingloriously to return with a mere handful of soldiers.
+
+"Thus it happened that while Pepin ruled in Ticinum (=Pappia or Pavia] and Grimoald defended Benevento, perpetual war was the sad lot of the poor Beneventans, so much so that during the lifetime of the said princes they had not a moment of peace. For both princes from early youth to age excelled and delighted only in commotion and war. Pepin, with a large army under his command, was ever stirring up strife for Grimoald, while Grimoald, safe in the possession of strong cities, and the compact support of the nobles and the people, lightly esteemed and despised the persecution of Pepin, and in no manner gave way to him. The ambassadors of Pepin had instructions to say that it was his steadfast purpose to make Grimoald as much his subject as Arigiso, his progenitor, had been the subject of Desiderius, King of Italy."
+
+To this vaunt Grimoald replied: "Free and freeborn I am on the side of my father and mother, and I believe that, with the help of God, free I shall ever remain."[^liberetingenuus]
+
+[^liberetingenuus]: "*Liber et ingenuus sum natus utroque parente; Semper ero liber, credo, tuente Deo.*" [Latin] Erchempertus, *Hist. Langob. Benevent.* [Latin] MG. SS. (S.S. Rerum Langob. et Ital. Saec. VI.–IX.) t. i., p. 236.
+
+Retracing the course of events, it is strange to record in the light of subsequent events the episode of the long-expected Byzantine intervention in the affairs of Italy, occasioned, it is alleged, by the refusal of Charles to ratify in actual marriage the matrimonial engagement of the Emperor Constantine and his daughter Rotrud.[^annaleinh788greeks] At any rate it is certain that hostilities began on the part of the Greeks, and that Arigiso shortly before his death succeeded in stirring up a Greek feeling in some of the cities of Tuscany, while negotiating with the Court of Constantinople on the subject of a union of Naples and Benevento under Byzantine supremacy, but to be administered by himself as imperial vassal.
+
+[^annaleinh788greeks]: Annal. Einh. a. 788. The Greeks represent that the Empress Irene broke off the match; cf. Theoph. Chronogr. Bouquet, V., 188. See p. 231, note 2.
+
+His death put an end to the plot, and Grimoald, fresh from his transalpine abode with Charles, in a burst of loyalty, remained deaf to the entreaties of his mother (a daughter of Desiderius), and the overtures of the Greeks and his uncle Adelchis (the son of Desiderius), looking to the overthrow of Frankish supremacy in Italy, the independence of Benevento, and the restoration of the Lombard kingdom.
+
+An imperial army landed in Calabria and marched, under conduct of prince Adelchis, John the treasurer, and Theodore, prefect and patrician of Sicily, upon Benevento.
+
+A Frankish army, composed of troops collected in Northern Italy, and the Spoletan and Beneventan contingents, set out to meet them. Hildeprand, Duke of Spoleto, and Grimoald, Duke of Benevento, led their own forces, but under the general direction of the royal legate Count Winigisus, a Frankish officer of great ability. An engagement took place in which the imperialists suffered a stinging defeat, deploring the loss of John the treasurer, and of the gallant Adelchis, "who was slain in bitter death," if the statement of the authority named last in the note were entitled to respect. But as it is manifestly the result of a palpable mistake, the additional detail that the Franks took him prisoner and executed him falls to the ground. It is generally believed that he returned to Constantinople and died there in old age.[^annaleinhlaurissmaxim788] The Frankish authorities admit only a slight loss, but claim many prisoners and rich spoils.
+
+[^annaleinhlaurissmaxim788]: Annal. Einh.; Lauriss.; Maxim.; cf. Chron. Theophon.; Sigeberti, a. 788.
+
+The event gave the death-blow to the restoration of Lombard rule, and crushed the hopes of the Byzantines for the recovery of their departed prestige.[^annaleinhlaurissmaxim788] The Greek loss in slain is given at four thousand, and in prisoners at one thousand. The Greeks fled to their ships and sailed away.[^annaleinhalcuinep14]
+
+[^annaleinhalcuinep14]: Annal. Einh., Alcuin. Ep. 14.
+
+Among the remaining events of this period the subjugation of Brittany and the Norman piracies are most memorable.
+
+The fierce Bretons, a people of Celtic origin, having felt the power of the Franks for more than half a century, but too turbulent to acquiesce in a rule which they loathed, took occasion to assert their independence whenever they could. In 786 their refusal to pay tribute was followed by a Frankish army which entered the Marche and exacted their submission.[^annaleinhlauriss786] After the lapse of thirteen years they raised once more the standard of revolt. Count Wido, a valiant, just and pure man of parts, and of illustrious descent, led an army throughout the entire province, over which he presided as prefect, and for the *first time* subdued it. Until then the submission had only been partial, but now it "seemed to be wholly subdued, and would have been so in reality," adds the annalist, "had not the habitual fickleness of the treacherous people soon changed the appearance of things."[^annaleinh799wido] Wido received the submission of the chiefs, and in token of its reality, their arms, inscribed with the name of their owners; their delivery, it would seem, was the expressive symbol of the obedience of the respective chief together with that of the people living on his land. The solemn presentation of these trophies, arranged in stands, and inscribed as told, in the royal residence at Aix-la-Chapelle, must have been an imposing scene, alike grateful to the king and his faithful prefect.[^annallaurisseinh311]—It is added, that the Breton chieftains in the year next ensuing paid their respects to Charles at Tours, with presents, and ratifying their submission by taking the customary oath of allegiance.[^annalmett]
+
+[^annaleinhlauriss786]: Annal. Einh., Lauriss., a. 786; cf. Vita Caroli, c. 10. See p. 217.
+
+[^annaleinh799wido]: Annal. Einh., a. 799, cf. Annal. Lauriss. cf. on Wido the authorities cited or named by Simson, *l. c.* [Latin] II., 200 n. 7.
+
+[^annallaurisseinh311]: Annal. Lauriss., Einh.
+
+[^annalmett]: Annal. Mett.
+
+By a strange coincidence the Frankish dominions began to be exposed simultaneously to piratical descents on the islands of the Mediterranean by the Moors, and along the vast stretch of coast from Aquitaine and Brittany to the mouth of the Elbe, by the Normans, or Northmen. They were Danes who "began their career as pirates, but afterwards took to laying waste the coasts of Gaul and Germany with a large fleet."[^vitacaroli14]
+
+[^vitacaroli14]: Vita Caroli, c. 14.
+
+Charles, at their first appearance, with his usual energy, commanded the defence of the coast, and if necessary, the pursuit and punishment of the invaders. He instituted a coast-guard service in all the harbors, and the mouths of rivers large enough to admit the entrance of vessels,[^ibidc17annallauriss] ordered the building of a fleet, and proceeded in person, as we have seen, to inspect the progress of the work.
+
+[^ibidc17annallauriss]: Ibid., c. 17, Annal. Lauriss., Einh., a. 800.
+
+The northern pirates infested the islands, and coast, of Aquitaine;[^alcep127jaffe] these islands were Oléron, Ré, Yeu (Dieu), and Noirmoutier, off the French coast, in the Bay of Biscay.[^seedummlersnote] Alcuin states that in one of their descents, part of them perished, and that a hundred and five of the pirates lay dead on the shore, adding that the great and sore chastisement of such visitation, unknown to Christians of former generations, was probably caused by the unfaithfulness of the servants of God in the matter of their vows. The subsequent history of the Norman piracies seems to intimate a different cause.[^alcuinep127]
+
+[^alcep127jaffe]: Alc. ep. 127 (Jaffé).
+
+[^seedummlersnote]: See Dümmler's note on the last citation, and Simson, *l. c.* [Latin] II., 207, no. 2.
+
+[^alcuinep127]: Alcuin. ep. 127.
+
+An anecdote, more legendary than historical, belonging to this period, is given at its worth.
+
+"Charles who was ever astir," records the Monk, "arrived by mere hap, and unexpectedly, in a certain town of Narbonnese Gaul. Whilst he was at dinner, and as yet unrecognized of any, some corsairs of the Northmen came to ply their piracies in that very port. When their vessels were descried, it was thought that they were Jewish traders, as some conjectured; others said that they were African, and still others declared that they were British. But the gifted monarch, perceiving from the build and lightness of the craft, that they bore not merchandise but foes, said to his own folk: 'These vessels are not laden with merchandise, but manned with cruel enemies.'
+
+"At these words, all the Franks, in rivalry with one another, ran to their ships, but uselessly; for the Northmen, indeed, hearing that yonder was he whom it was still their wont to call Charles the Hammer, feared lest all their fleet should be taken or destroyed in the port, and avoided, by a flight of inconceivable rapidity, not only the glaives, but even the eyes of those who were pursuing them.
+
+"Pious Charles, however, a prey to well-grounded fear, rose up from table, stationed himself at a window looking eastward, remained there a long while, and his eyes filled with tears. As none durst question him, this warlike prince explained to the nobles who were about his person the cause of his movement and of his tears: 'Know ye, my lieges, wherefore I weep thus bitterly? Of a truth I fear not lest these fellows should succeed in injuring me by their miserable piracies; but it deeply grieves me that, whilst I live, they should have been nigh to touching at this shore, and I am a prey to violent sorrow when I foresee what evils they will heap upon my descendants and their people.'"[^monachsangall212]
+
+[^monachsangall212]: Monach. Sangall. II., 12.
+
+**Note.**
+
+*The progress of Charles a. 800.*
+
+Charles left Aix-la-Chapelle about the middle of March on the tour of inspection along the Channel Coast, in the course of which he appointed the coast guard, and directed the building of a fleet intended for service against the Normans.
+
+He also visited the royal villas and sanctuaries.
+
+Easter he spent with Angilbert, in the monastery of St. Riquier at Centula, receiving there Alcuin.
+
+From St. Riquier he proceeded along the coast to Rouen; at that place Hademar, the ambassador of King Louis, met Charles, entreating him to extend his journey to Chasseneuil. Charles declined and instead desired his son to meet him at Tours.
+
+He then continued his journey to that city accompanied by Queen Liutgard and his sons Charles and Pepin.
+
+From Tours the king returned, by way of Orleans, Paris, and Ver, to Aix-la-Chapelle; Louis accompanied him to Ver, and then returned to Aquitaine.
+
+---
+
+#### CHAPTER XII.
+
+##### CHARLES AND THE CHURCH, TO THE DEATH OF HADRIAN I.
+
+*Inconsistency of Charles.—His relations to the Church.—"General Admonition."—"Instruction for the Royal Commissioners."—"Exhortation."—Theological questions: Adoptianism; Image Worship.—The "Caroline Books."—Liberal views of Charles.—Death of Hadrian.—Charles and Hadrian.—Epitaph.—Estimate of Hadrian.*
+
+In essaying to narrate the relations of Charles to the Church we naturally try to probe the man. Thus far we have considered his life in sundry aspects, and discovered first the indomitable will which in the pursuit of its object surmounts every obstacle, removes by the assertion of right, just or unjust, by fair means or foul, individuals or nations that may resist his purpose and dare to oppose his sway; thus Carloman and his family, Desiderius and his family, Tassilo and his family, were ruthlessly and for all time to come made harmless; thus the poor Saxons were cruelly butchered and exterminated, and the hardly more fortunate Avars robbed, killed, and nationally annihilated. We have also discovered in him the sagacity of a far-sighted statesman, the genius of a brilliant soldier alike in strategy, resource, and valor, the enlightened patron of learning, literature, art, and science, the selfish violator of laws human and divine in the facility with which he formed or severed matrimonial alliances, the kind and affectionate husband, the indulgent parent, the loving and generous friend.
+
+The evidence in support of all these traits and facts already presented is too overwhelming to admit of dispute. What then, it will be asked, was the religion of Charles? Was he religious in the general sense of the word? Had he a conscience? Was he uninformed or misinformed on matters of theoretical and practical morality?
+
+Perhaps the best way of answering these questions is to leave them unanswered, or ask the reader if he can believe the king of the Franks a weakling on any point, who could be duped by living mortal in his day and generation?
+
+No, he was the best-informed man of his age, and in the expressed opinion of the highest contemporary authorities, the most pious, devoted, zealous Christian in all Christendom; his praise was rehearsed in every living tongue as that of a Moses, a Joshua, a David, a St. Paul, or a Boanerges. He studied the Scriptures and knew much of them by heart, frequented the service of the Church with scrupulous regularity, knew all the Canons, was deeply versed in scholastic, especially patristic, theology, revised or drew up the Canons, engrafted provisions of the Mosaic code upon the codes of the nations under his rule, preached to the hierarchy of occidental Christendom, exhorted the pope, and originated or corrected the decisions of Church Councils; he was instant in prayer, steeped to the core in religious learning, an enthusiastic lover of Church music, and wont to accompany the rich and pure service of the palace church in the low, sweet tones of his melodious voice.
+
+Such was Charles, inconsistent, peccant, contradictory, in brief—*a man.*
+
+To the Church at large he was the most Christian, the most ardent defender of the faith, animated by the grand and dominant desire of propagating Christianity, imposing the easy yoke of Christ upon pagan idolaters and Moslem misbelievers, and ranging all the nations of Europe under his victorious sceptre. The Saracens fabled of Allah and Mohammed, his prophet; the Christians might point to Charles and say that he was greater than that prophet, and destined to make the Crescent pay homage to the Cross.
+
+With the popes he maintained most friendly intercourse; with Hadrian, for a long time, that of a cordial friendship.
+
+It may be convenient to consider, first, his general relations to the whole hierarchy, and then the great church questions which belong to the royal reign, as well as trace the course of events which culminated in his coronation as Emperor of the West.
+
+The opening speech, preface, or "General Admonition," made or delivered by Charles in the Diet holden in the palace at Aix-la-Chapelle "in the year of our Lord's incarnation 789, of the Indiction 12, of our reign 21," affords one of the best illustrations of his precise relation to the Church. It reads substantially as follows:
+
+"Jesus Christ, our Lord reigning forever, I, Charles, by the grace and mercy of God, King of the Franks and defender of holy Church, to all orders of ecclesiastical piety or secular power, greeting and peace in Christ Jesus, our eternal Lord.
+
+"Considering attentively with the bishops and our counsellors the special protection of Jesus Christ vouchsafed to ourselves and to our people, as well as the necessity of setting forth without ceasing our thankfulness not only in heart and words, but in the constant practice of good works, in order that we may continue to enjoy such protection, it has seemed expedient to us to stir up your minds, O pastors of the Church of Christ, who are the leaders of His flock and shining lights of the world, exhorting you by your example and advice to conduct the flock of Christ to the pastures of eternal life, and carry on your shoulders the wandering sheep to the wholesome shelter of the Church, safe from the destroying teeth of the wolf lying in wait to devour any tempted to transgress the canonical requirements and the decisions of all the General Councils. On which account we have sent unto you our commissioners in order that conjointly with you they may undertake the correction of such things as need it. . . .
+
+"We have also caused to be added certain new necessary articles in agreement with the Canons of the Church, for the due observance of which you will please take order.
+
+"Let no man deem this our course presumptuous, but rather believe with an ingenuous mind and pure heart that love prompts us to correct error, remove superfluous things, and essay the improvement of such as are good, etc., etc."
+
+The tone of this striking document is that of an episcopal charge, and confirms the remark of the Monk of St. Gall that Charles was "a bishop of bishops." The Church had to obey him, not he the Church.
+
+Fifty-nine of its eighty-one articles are extracts from the Collection of Canons compiled by Dionysius Exiguus, and the whole document is closely connected with an "Instruction for the Royal Commissioners." The reforms aimed at were of a miscellaneous character, as a few examples may show:
+
+Perjurers and children under years of discretion are forbidden to testify on oath (63).[^thearabicnumerals]
+
+[^thearabicnumerals]: The Arabic numerals refer to the "General Admonition;" those with the prefix I., to the "Instruction."
+
+    The full text of both is given in Boretius. *Capitul.* [Latin] 67, 70.
+
+    Abstract of the "Instruction for the Royal Commissioners."
+
+    1. Priority of orphan cases in the Counts' Courts; counts forbidden to go hunting or attend feasts on Court Days.—2. Form of the oath of allegiance to the king and his sons.—3. Consolidation of lesser nunneries, etc. See p. 320.—4. *De tabulis et codicibus requirendis* [Latin]; superstitious abuse of the Psalter and the Gospel (Migne, XCVII., 187).—5. Searching and keeping a thing *per iniustam rationem* [Latin] (by magic).—6. Forbidding the remission of legal fines.—7. Baptism according to Roman usage.—8. Shoes (for liturgical use) after the Roman pattern (cf. Vita Caroli, c. 23).—9. Attendance at church on Sundays and Holy Days; Mass forbidden to be celebrated in private houses.—10. Prohibition of drunkenness, and of conjuring by St. Stephen, the king and his sons.—11. Prevention of complaints concerning spiritual and secular dignitaries; reports to be made direct to the king.—12. *De iniustis teloneis.* [Latin]—13. *De manu leprosi.* [Latin]—14. Exclusion of monks and priests from secular affairs, etc.—15. Prohibiting bishops, abbots, and abbesses to keep hounds, falcons, etc.—16. Beggars lying in the streets and cross-roads required to go to confession.—17. Altar cloths.—18. Forbidding the baptism of bells, and the attachment to them of papers as preventives of hail.—19. Inspection of the management of royal fiefs, etc.—20 Separation of lepers.—21. Setting the example (by the *missi* [Latin]) in observing royal commands.—On the Literature, Numeration, etc., of this document see Mühlbacher, *l. c.* [Latin], No. 291.
+
+    Abstract of the "General Admonition," see p. 316.
+
+    CC. 1–59 set forth Canons, etc. See above.
+
+    60. Diligent reading and preaching of the Catholic Faith.—61. Of the unity of Christians.—62. Judges enjoined to render righteous judgment and to know the law.—63. Against perjury and oaths by children under years of discretion, as the *Guntbodingi* [Latin] (that is, Burgundians living under the law of St. Gundebod) do.—64. Against magic and weather-making; destruction of holy trees, groves, and springs.—65. Against hatred, envy, avarice and covetousness.—66. Against murder.—67. Against theft, unlawful marriages, false witness.—68. Of filial respect.—69. Examination by the bishop of the official acts, and of the attainments, of priests; clerics forbidden to carry arms.—70. Separation to sacred uses, of churches, altars, and vessels; of reverence during Mass.—71. Of the well-ordered conversation of clerics; sons of serfs and freemen to be admitted to clerical functions; of the establishment of schools, the correction of books, and care against their being injured by scholars; of copies of the necessary Gospels, Psalters, and Mass-Books to be diligently written by adults.—72. Of the regular life in monasteries, and of *canonici* [Latin] under their bishop, etc.—73. Of true measure and weight.—74. Of hospitality.—75. Against benedictions by abbesses.—76. Of the correction of clerics pretending to be monks.—77. Against mendacious writings and suspicious stories injurious to the Catholic Faith, especially the forged letter said to have fallen from heaven the year before; such writings to be burned.—78. Against vagabond deceivers, brokers, and pretended penitents.—79. Of the study of the Roman Chant in place of the Gallican.—80. Against servile work on Sundays, as enjoined by King Pepin.—81. Of good sermons, and their topics.
+
+    On the Literature, Numeration, and other details, see Mühlbacher, *l. c.* [Latin], No. 292.
+
+    The Chron. Bernold. (MG. SS. V., 419) records a. 789: *Hoc anno Karolus 83 pene canonum capitula totius regni sui episcopis transmisit, ut eius auxilio corrigenda corrigere possent.* [Latin]
+
+    On the Canons and Decretals referred to compare Rettberg, *Kirchengesch. Deutschlands* [German], I., 426; Boretius, *l. c.* [Latin] 70; Malfatti, II., 420 sqq.
+
+Monks and clerics to be exempt from lay jurisdiction; counts or judges are enjoined to give priority to the case of minors, and widows, and forbidden to go hunting while the Court is in session (I., 1).
+
+Bishops, abbots, and abbesses, are forbidden to keep hounds, falcons, hawks, or jugglers (I., 15).
+
+A discarded wife may not marry during the husband's life, nor the husband during the life of the wife (43).
+
+This capitulum proves that Charles, like many modern legislators, excelled rather in making than in keeping the law.
+
+The following is a sermonic capitulum:
+
+"Let peace, concord, and unanimity be maintained by all Christians; betwixt bishops, abbots, counts, judges, and all persons everywhere, whether of high or low degree; for God eschews every service without peace, yea the gifts presented at the altar, as the Lord Himself declares in the Gospel, and because the second commandment of the Decalogue enjoins 'Thou shalt love thy neighbor as thyself,'" etc. (61).
+
+This is unexceptionable doctrine, but rather at variance with the practice of the royal preacher, who was the most bellicose character of his age.
+
+The capitulum on the observance of the Lord's Day is sufficiently strict to please the most rigid Puritan.
+
+"We command," says the royal legislator, "agreeably to the precept laid down in the law of God, that no servile work whatsoever be wrought on the Lord's Day, even as my father of good memory commanded in his synodal edicts, that men must not engage in any agricultural labor, such as working in the vineyard or the field, they must not plough, reap, cut grass, or set fences, or in the woods dig for roots or fell trees; they must not work in quarries or build houses, attend to gardening, hold meetings, or go hunting.
+
+"Only three kinds of carriage are allowed on the Lord's Day, that of sacred vessels, of provisions, and, in case of great necessity, of a body for burial.
+
+"The women likewise must not weave, cut garments, sew, embroider, spin wool, beat flax, wash clothes in public, or cleanse sheep, so that in every way the honor and rest of the Lord's Day be observed.
+
+"But let all men everywhere attend solemn Mass, and praise God for all the benefits He provides for us on that day" (80).
+
+Fair readers may smile at some of the occupations of their sisters in the dominions of Charles eleven hundred years ago, and contrasting the past and the present, rejoice that they live in the nineteenth century and reap the benefits of a civilization largely promoted by that enlightened monarch.
+
+But legislators and the clergy might take a hint from the clause relating to burials, which only "in case of great necessity" were permitted to take place on the Lord's Day. Would it not be well, and advantageous to the best interests of religion, to discourage Sunday funerals on the general principle of their violating the design of the Sabbath as a day of rest?
+
+The concluding sentences of this extraordinary capitulary we give in full; they are addressed to all in authority, ecclesiastical or secular, and read as follows:
+
+. . . "But be instant in your admonition as to the practice of the love of God and of our neighbor, of faith, and hope in God, of humility and patience, of chastity and continence, of kindness and mercy, of almsgiving and confession of sins, that, according to the Lord's Prayer, as men forgive so may they be forgiven, knowing most assuredly that they who do such things shall be partakers of the Kingdom of God.
+
+"And this we enjoin the more diligently upon your love, because we know that in the last days false teachers shall come, as the Lord Himself foretold in the Gospel, and Paul the apostle testified to Timothy. Therefore, most dearly beloved, let us with all our heart abound in the knowledge of the truth, that we may the more effectually resist those who oppose it, and that by the grace of heaven the Word of God may grow, run, and multiply to the benefit of the Holy Church of God, the salvation of our souls, and the praise and glory of the name of our Lord Jesus Christ.
+
+"Peace be to those who preach, grace to those who obey, and glory to our Lord Jesus Christ. Amen."
+
+Turning for a moment to the "Instruction" the tenor of its first article commands attention. It reads as follows:
+
+"Of lesser monasteries in which nuns reside without a 'Rule,' it is our will that they hold a regular congregation in one place, and that the bishop provide where it is to be done; likewise that no abbess presume to go outside such monastery without our command, or allow her place to be supplied by substitutes; moreover that their cloister be well secured, and that she presume under no circumstances to write or despatch love-letters. . . . (I., 3.)"
+
+These startling provisions would be well-nigh inexplicable on the ground of general immorality, but their coincidence in point of time with the involuntary seclusion in lesser monasteries or convents of a number of royal and ducal ladies, sheds light on one of the bearings of the capitulum. These matrons and maidens had feelings and attachments stronger than the strongest bolts of the most secure cloister. As it is there may lurk in the words of this capitulum many a tender secret, the knowledge of which might even now gladden the heart of minstrel or poet.
+
+No apology is needed for these extracts, which better than any comment or speculation, lift the veil from the insipid, garbled, illogical, credulous, and often provokingly mysterious pages of the monastic annalists and chroniclers, who, with hardly an exception, wrote to glorify the omnipotent king of the Franks. They enable us to understand the spirit and drift of the times, enter clearly into the trials and hardships of the downtrodden people, and form an accurate estimate of the terrible despotism of Charles' reign as well as of the chief actors in the grand drama of his government.
+
+The habits, vices, virtues, usages, superstitions, the very occupation and pastimes of all classes and conditions of men are reflected in the true mirror of these capitularies.
+
+They were moreover often of a general character, and sent by special messengers throughout the Frankish dominions; there is also evidence that bishops, upon their return from a General Diet, set forth in their several dioceses special capitularies, applying, explaining, adapting, or amplifying the provisions of the General Capitularies for the special benefit of their jurisdiction. One such special capitulary, set forth by Theodulf, bishop of Orleans, to his presbyters contains about fifty titles bearing on a great variety of themes, such as matters of discipline and details of function, prescribing for instance the manner of their appearance as to dress, etc., at synods; forbidding the use of churches for secular purposes and sepulture; and enjoining his clergy on no pretence whatsoever to harbor a woman under their roof, even though she might be the cleric's own mother or sister, seeing that under the sanctity of such relationship strange females had been smuggled into clerical abodes; the clergy of his diocese were also forbidden to frequent taverns, etc.
+
+Another of his capitularies is a compend of theological instruction, and a Directory for the Confessional, clearly intended for private circulation, and of dubious morality.[^theyareprintedmigne]
+
+[^theyareprintedmigne]: They are printed in Migne, *l. c.* [Latin], CV., 19 sqq.
+
+Soon after his coronation as Emperor of the West, Charles addressed, probably at the close of the session, to a legislative assembly composed of archbishops, bishops, abbots, and the most distinguished laics, the following admirable "Exhortation," which better than any commentary could do unfolds his religious character and his relations to the Church:
+
+"Dearly beloved brethren: We are sent hither for your benefit in order that we may admonish you to lead a righteous and good life as to God, and follow justice and mercy as to this world.
+
+"And, first, I admonish you to believe in One Almighty God, the Father, the Son, and the Holy Spirit, the Perfect Trinity and the True Unity; the Creator of all things visible and invisible in whom we have salvation, and who is the Giver of all the good things we enjoy.
+
+"Believe ye, that the Son of God was made man for the salvation of the world, and that He was begotten of the Holy Spirit out of the Virgin Mary; that for our salvation He suffered death, on the third day rose from the dead, ascended into heaven, and sitteth at the right hand of God; that He shall come to judge the quick and the dead and render to every man according to his works.
+
+"Believe ye in One Church, that is, the congregation of good men throughout this earthly sphere; and know that they only can be saved and belong to the kingdom of heaven, who in the faith, communion, and charity of this Church persevere unto the end, while those who for their sins are excommunicated from this Church and fail penitently to return to the same, cannot in this world render acceptable service unto God.
+
+"Be assured that in baptism you have received forgiveness of all your sins.
+
+"Expect that of God's mercy through confession and penitence your daily sins are forgiven you.
+
+"Believe in the general resurrection of the good unto eternal life, and of the evil unto eternal punishment.
+
+"This then is your faith, through which you will be saved, if you firmly cleave thereto and abound in good works, for faith without works is dead, and works without faith, though they should be good, cannot please God.
+
+"First then, love God Almighty with all your heart and with all your powers, and whatever ye know pleases Him, that do always, He being your helper, and as ye are able; shun what ye know displeases Him; for he that says that he loves God, and does not keep His commandments, is a liar. Love your neighbor as yourself; give alms to the poor as ye are able. Entertain strangers; visit the sick; be merciful to prisoners. Do ill to no man, nor consent unto such as do, for the receiver is as bad as the thief; forgive as ye hope to be forgiven; redeem the captive, help the oppressed, defend the cause of the widow and orphan; render righteous judgment; do not consent to any wrong; persevere not in wrath; shun excess in eating and drinking.
+
+"Be humble and kind one to another; serve your lord faithfully; do not steal, do not perjure yourselves, nor let others do so. Envy, hatred, and violence[^violingue] separate men from the Kingdom of God.
+
+[^violingue]: Violingue = *violentiaque* [Latin]?
+
+"Be swift to reconciliation; for to sin is human, to amend is angelical, but to persevere in sin is diabolical.
+
+"Defend the Church and promote her cause, so that the priests of God may pray for you. Remember what you did promise unto God in baptism; you promised to renounce the devil through all his works; do not return to that you did renounce, but remain faithful to God as you did vow, and love Him who created you, and of whom ye hold all the good things ye have.
+
+"Let every person in whatsoever station he be, serve God faithfully.
+
+"Let the wife be subject to her husband in all goodness and purity; let them abstain from fornication, rewards and avarice, for those who do such things go contrary to God.
+
+"Let them bring up their children in the fear of God, and give alms, as they are able, with cheerfulness and a good will.
+
+"Let the husband love his wife, and call her not by improper names; let him rule his house well, and in all goodness frequent church.
+
+"Let men render unto men what they owe to them without grudging, and unto God what is due Him with a good will.
+
+"Sons, love your parents and honor them. Let them not be disobedient; let them beware of theft, murder, and fornication; when they are of lawful age, let them marry a lawful wife, unless they prefer to enter the service of God.
+
+"Let clerics, and canonici, diligently obey their bishops; let them not wander from place to place. Let them abstain from the entanglements of secular pursuits, maintain their chastity, study the Holy Scripture, and discharge the duties of their sacred ministry. Let monks be true to their calling, obey their abbot, and avoid filthy lucre. Let them remember and faithfully observe the Rule, knowing that it is better not to vow a thing, than to break a vow once made.
+
+"Dukes, counts, and judges, I bid you judge the people righteously; be compassionate to the poor, abhor bribery, and let not personal considerations lead you to punish the innocent.
+
+"Always remember the words of the Apostle: 'We must all appear at the judgment-seat of Christ, that each man may receive according to that which he has done, be it good or bad.' Even as our Lord has said: 'With what judgment ye judge, even so shall ye be judged.' That is, be merciful, that ye may obtain mercy of God. 'There is nothing hid but it shall become known, and nothing concealed but it shall be revealed.' And 'for every idle word we must give account in the day of judgment.'
+
+"Whatever we do, let us endeavor in all things to please God, that after this present life we may enjoy with the saints of God that which is everlasting.
+
+"This life is short, and uncertain the time of death; it is wise to be always prepared.
+
+"Let us remember that it is a fearful thing to fall into the hands of God. If we confess our sins, show penitence, and give alms, the Lord is merciful and kind.
+
+"Yea, if we turn to Him with all our heart, He will be very merciful, and grant us in this life prosperity, and in that which is to come, everlasting happiness with His saints. God bless you, dearly beloved brethren!"[^mglegesi101]
+
+[^mglegesi101]: MG. Leges, I., 101.
+
+The consideration of two important theological questions, which came up in his reign, enables us to illustrate the relations of Charles to the popes.
+
+The first was the heresy of *Adoptianism*,[^hefeleconciliengesch] or the doctrine that Jesus Christ as to His human nature was not truly the Son of God, but only His son by adoption; the dogma is also known as the Felician heresy, after Felix, bishop of La Seo de Urgel in the Pyrenees, one of its chief promoters.
+
+[^hefeleconciliengesch]: Hefele, *Conciliengeschichte* [German], 2d ed. III., 643. Annal. Einh., Lauriss., cf. Maxim., and see for a full list of authorities, Simson, *l. c.* [Latin] II., p. 29 sqq.
+
+It did not originate with him, however, but with Elipandus, bishop of Toledo,[^abelipando] who had broached it more than a decade before it became generally known. Elipandus, it seems, addressed a letter to Felix asking "what he ought to think of the humanity of Christ, and if it were proper to believe and teach that He was truly the Son of God or only His adopted son?"
+
+[^abelipando]: *Ab Elipando, auctore noxii sceleris, etc.* [Latin]—Paulini Libell. c. Elip. ed. Madrisius, p. 1.—Al.
+
+Felix replied agreeably to the well-known tenor of his opinion that "Jesus Christ, being a new man, must have a new name. As in our first generation according to the flesh we share the nature of Adam, so in our second, which is purely spiritual, we receive the grace of adoption by Jesus Christ, who partook of both natures, the one through his Virgin-Mother, the other in his baptism. Jesus Christ in his humanity is the son of David and the son of God; now a man cannot have two natural fathers, therefore the one is natural, and the other his father by adoption. But adoption is nothing else than election, grace, etc., etc."[^annaleinh792lauresh]
+
+[^annaleinh792lauresh]: Annal. Einh. a. 792; Lauresh. a. 794.
+
+Both bishops were men of great worth; the bishop of Toledo was quite aged, and Felix enjoyed the reputation of singular piety.[^alcuiniep123]
+
+[^alcuiniep123]: Alcuini, ep. 123; epp. 2, 30, 115, 122; Advers. Elip. I., 5; III. 20 (ed. Froben.).
+
+The controversy excited all Christendom, and even the annalists ring changes on the name of one of the bishops, lamenting that one with the excellent name of *Felix* [Latin], denoting happy, should be so unhappy in his speech.[^annallaureshpun] The notion was not at all original, but related to Nestorianism, and Ascaricus, another Spanish bishop, one of its chief advocates.[^codexcarol99] It was warmly and ably controverted by the presbyter Beatus, and Etherius, bishop of Osma in Asturia.[^mabillonas]
+
+[^annallaureshpun]: Annal. Lauresh.—The pun or play was a sort of standing joke. Thus Jon. Aurelian has, "*Felix nomine, actu infelix*;" [Latin] and Hincmar writes, "*Felicem, infelicem . . . episcopum.*" [Latin]
+
+[^codexcarol99]: Codex Carol. 99 (Jaffé, IV., 294 sqq.).
+
+[^mabillonas]: Mabillon, *A. S.* [Latin]; IV., 600; praef. III., *Annal. Ben.* [Latin] II., 273.—Alcuin. adv. Felicem, I., 8.—Simson, *l. c.* [Latin], II., 32, n. 4.
+
+Pope Hadrian rebuked the Spanish bishops for teaching such damnable heresy and enjoined them to refrain;[^codexcarol99] saying, that no man besides the perfidious Nestorius had ever dared to utter such blasphemy. But the Spanish heretics **792]** were deaf to his entreaty, and his protest remaining unheeded, Charles interfered and convened a Synod at Ratisbon,[^annaleinhmaxim792] to take action in the matter. It was largely attended by bishops and other clergy from various parts of the "Christian empire," and the king presided in person.[^annaleinhmaxim792]
+
+[^annaleinhmaxim792]: Annal. Einh., Maxim., al. a. 792. Alc. adv. Elip. (ed. Froben.) I., 3, p. 882.
+
+Felix, whose see lay within the Frankish dominions, was placed before the Council, required to state, and permitted to defend his views.[^alclcannaleinhmaxim] They were unanimously condemned; the Council, moreover, demanded and obtained his recantation; it was complete, and he anathematized in writing all who should dare to say that our Lord Jesus Christ was as to the flesh only the Son of God by adoption.[^annaleinhjuvav] Nor did this recantation suffice, for Charles, who eschewed half work, caused many of the writings of Elipandus and Felix to be burned,[^annalmaxim327] required Felix to make his peace with the Church at large, and for that purpose sent him, in charge of Angilbert, to Rome.
+
+[^alclcannaleinhmaxim]: Alc. *l. c.* [Latin], Annal. Einh., Maxim.
+
+[^annaleinhjuvav]: Annal. Einh., Juvav. (791); Lauriss., Alcuin. *l. c.* [Latin], Poeta Saxo, V., 469 sq.—Concil. Rom. a. 799.
+
+[^annalmaxim327]: Annal. Maxim.
+
+There, it seems, he was held in confinement, and, under the godly instruction of Hadrian, drew up an orthodox declaration in which he again recanted absolutely his former opinion, and confessed that our Lord Jesus Christ is truly the Son of God. This his belief he then attested in a solemn oath before the pope, his orthodox declaration having been placed first upon the "sacred mysteries" of the Gospels, and then upon the apostle's tomb; that is, he swore twice.[^annallaurissconcilrom] Then in full reconciliation with the Church, he returned to his Pyrenean diocese[^annaleinhsomesay]—and preached his heresy as lustily as ever.
+
+[^annallaurissconcilrom]: Annal. Lauriss.;—Concil. Rom. a. 799; Adon. Chron., Bouquet, V., 320. Some think that "*orthodoxum in vinculis libellum*," [Latin] does not necessarily imply imprisonment, but indicates a local reference, viz.: to *San Pietro in Vincoli* [Italian] (?).
+
+[^annaleinhsomesay]: Annal. Einh.—Some say that Felix upon his return to Spain fled into Saracen territory; this is not improbable, for the sequel seems to intimate that though he returned to Spain, he was not reinstated into his see.—Alc. adv. Elip. I., 16 ed. Froben. I., 3, p. 882;—Concil. Rom. a. 799.
+
+**794]** Two years later took place the famous Synod of Frankfort, over which Charles again presided.[^epconcfranc] Two papal legates (the bishops Theophylact and Stephanus), the whole hierarchy of Francia including that of Italy, Aquitaine, and the Provence, together with a large number of presbyters, deacons, subdeacons, and monks were in attendance.[^simsonlc63]
+
+[^epconcfranc]: Ep. conc. Franc., Migne, t. CI., p. 1331; but the Annal. Lauriss. only state that the Synod took place "*in praesentia principis*." [Latin]
+
+[^simsonlc63]: Simson, *l. c.* [Latin] II., 63 sq.; Böhmer-Mühlbacher, *l. c.* [Latin] p. 125.
+
+At the king's express desire, the Synod by a unanimous vote received Alcuin to its fellowship and prayers.[^synodfranconof]
+
+[^synodfranconof]: Synod. Franconof. (a. 794) 56. Cf. *Capitulare* [Latin] No. II., Book III., ch. I., below.
+
+The primary object for which this great Council had been convened was the condemnation of the heresy of Adoptianism.[^annaleinhalsimson] The condemnation of the doctrine, and the recantation of Felix, so far from extinguishing the pestilent error, had caused it like an angry boil to throb and gather with increasing violence.[^thewordsofcharles]
+
+[^annaleinhalsimson]: Annal. Einh., al. see Simson, *l. c.* [Latin] II. p. 67.
+
+[^thewordsofcharles]: The words of Charles according to the Libell. sacrosyll. of Paulinus (Op. ed. Madrisius, p. 1); Chron. Moiss. cod. Anian. MG. SS., I., 301.
+
+It seems that the Spanish bishops in vindication of their dogmatic position set forth two documents, one addressed to the Frankish hierarchy, the other to the king; they desired the Synod to examine and debate it before Charles, and conjured him to reinstate Felix into his see; they even had the audacity of warning him against the fate of Constantine, who after his conversion to Christianity through the influence of his serpent of a sister turned Arian and went to hell.[^seetheepistletocharles]
+
+[^seetheepistletocharles]: See the epistle to Charles in Florez, *España sagrada* [Spanish], V., 539 sqq. (Migne t. XCVI., p. 867 sqq.), and that to the hierarchy in Migne, t. CI., p. 1321; both in Alc. Opp. ed. Froben., II., App. 2, p. 567 sqq.—"*reminiscens et illud, quod omnipotens Deus a vobis longe efficiat, de Constantino imperatore, qui dum esset idolatriae cultor per beatum Sylvestrium factus est christianus, postea per serpentem sororem suam sanctorum trecentorum decem et octo sententiam refutans, in Ariano dogmate et ad infernum flenda ruina dimersus, diem clausit extremum.*" [Latin]—Migne, XCVI., 869.
+
+This was a little strong and as unpalatable to the king as to Hadrian, to whom he forthwith referred the matter. The result of the reference was the Synod of Frankfort, which took up the Spanish memorial, sentence by sentence, and ultimately by a unanimous vote condemned the dogma as rank heresy.
+
+Charles sent to the Spanish episcopal heretics three distinct essays on the condemned dogma, one of which, at least, together with the synodal resolution, was duly signed by all the Frankish bishops present.[^annallaurisseinh794] His own epistle accompanying the documents, stated that he fully shared the conclusions reached by his clergy, notifying them, that in the event of their persistence in error, he must treat them as heretics and refuse all further intercourse with them. He also pointed out to them the inevitable secular disabilities and inconveniences of their schismatic separation from the unity of the Church, which would render it impossible for him to carry out his intention of delivering them, at a favorable juncture, from the yoke of Moslem domination.[^mansixiii901]
+
+[^annallaurisseinh794]: Annal. Lauriss., Einh. a. 794. See Simson, *l. c.* [Latin] and Mühlbacher for full lists of authorities.
+
+[^mansixiii901]: Mansi, XIII., 901–906, cf. Cod. Carol. 78, 79, 99 (Jaffé); Hefele, *l. c.* [Latin] p. 631 sqq.
+
+But Adoptianism was far from extinct; five years later the new pope, Leo III., spoke of it as sprouting with renewed vigor.[^nuncmagis]
+
+[^nuncmagis]: *Nunc magis ac magis crescendo pullulat.* [Latin]—Mansi, XIII., 1031.
+
+The Spanish bishops in the Moslem territory remained toughly heretical. Alcuin addressed himself to the task of rooting out the heresy; he wrote to Felix, and drew up a collection of passages from the Scriptures and the Fathers, condemnatory of the error, which he sent to the abbots and monks of Gothia. Felix replied at length in a strong pamphlet, and sent a copy to the king. It was so intensely and dangerously heretical, that Alcuin while urging the necessity of a thorough and exhaustive refutation, frankly admitted his inability to do it unaided, and proposed that copies of the pamphlet should be sent to the pope, the patriarch Paulinus of Aquileia, the archbishop of Treves (Richbodo), and the bishop of Orleans, with the request that they also should draw up and submit their refutations.[^alcepp99139]
+
+[^alcepp99139]: Alc. epp. 99, 139, 142.
+
+Charles acted upon his suggestion, and, moreover, requested the pope to convene an ecclesiastical Synod for the express purpose of passing sentence on the book of Felix. It met and condemned it, by irrefragable proofs from the Scriptures and the Fathers, *in perpetuum* [Latin].[^alcuinep139mansi]
+
+[^alcuinep139mansi]: Alcuin. ep. 139; Mansi, XIII., 1029–1032; Pauli cont. Romana; Script. rer. Langob., p. 202. Cf. Jaffé, *Regest. Pontif. Rom.* [Latin] p. 216.
+
+But even this did not end the matter. The king gave Felix the assurance of personal safety and commanded his attendance at a Synod to be holden at Aix-la-Chapelle, to which Alcuin also had been summoned, for the purpose of stating his views, promising that they should not be assailed by violence, but by reason, and recognized, if they could not be refuted from the Fathers.[^alcepp132134135] The disputation took place at a Synod in the presence of Charles, and a large number of bishops, priests, monks and nobles. The king sat in their midst and commanded Felix to dispute with Alcuin concerning the human nature of Christ.[^vitaalch7adveliph]
+
+[^alcepp132134135]: Alc. epp. 132, 134, 135; Vita Alch. 7.
+
+[^vitaalch7adveliph]: Vita Alch. 7; adv. Eliph. I., 16; epp. 139, 132, 148.
+
+The intellectual combat is said to have lasted six *days* (some say so many *hours*), and ended in a grand victory for Alcuin. Felix admitted his defeat and recanted.[^vitaalch7epp147] The slippery nature of his former recantation, however, raised doubts as to the sincerity of the last; Felix and one of his presbyters, reputed to excel him in the obstinacy of heretical taint, were placed under the supervision of Laidradus, archbishop of Lyons, who was to test the reality of their conversion.
+
+[^vitaalch7epp147]: Vita Alch. 7; epp. 147, 139.
+
+Felix drew up a written recantation, which he sent to the clergy and laity of his diocese of Urgel, in which he stated that as this time his return to the Catholic Church was not feigned but genuine, so he begged them to believe and confess as he had done.[^alcep147cf148]
+
+[^alcep147cf148]: Alc. ep. 147. cf. 148; 139; 141, n. 8.
+
+It is sad to record, that in spite of his written declaration, a parchment of his, found after his decease, revealed the fact that he died in the full bloom of his heresy.[^agobardlibadvfelic]
+
+[^agobardlibadvfelic]: Agobard, *Lib. adv. Felic.* [Latin] 1.—Ado. MG. SS., II., 320. See also *Nouvelle Biographie Générale* [French], t. XVII., p. 299; XV., p. 832 sq.
+
+Elipandus also remained a heretic to the last. The famous work of Alcuin's against him, however, is said to have wrought wonders in the hands of Laidradus, Nifridius, and Benedictus, abbot of Aniane, who conducted so successful and eloquent a crusade against the noxious heresy, that Alcuin could report to Arno the conversion, in a short period, of twenty thousand heretics, bishops, priests, monks, laics and women.[^alcep148]
+
+[^alcep148]: Alc. ep. 148.
+
+Returning to the Council of Frankfort, the second question under consideration presented, upon the whole, still greater difficulties than the heresy of the Adoptians.
+
+**787]** The Church Council of Nicæa, consisting of five hundred and seventy-seven Eastern bishops, as well as two legates of Hadrian, claimed an œcumenical character, and commanded, on pain of the anathema, the worship or adoration of images.[^labbeiconcilviii1202] Charles, upon receipt of the Canons of the Council from Constantinople, sent them to Britain, when Alcuin drew up a refutation of the injunction, and in the name of the Anglo-Saxon princes and bishops presented the same to the king of the Franks.[^annalnordhumb792]
+
+[^labbeiconcilviii1202]: Labbei Concil. VIII., 1202 sqq.—See the concluding paragraphs of the Nicæan Definition in "Illustrative Extracts," Appendix I.
+
+[^annalnordhumb792]: Annal. Nordhumb. 792. MG. SS. XIII., 155.
+
+The king then caused to be drawn up a capitulary in which the several points of the legislation of the Nicæan Synod which seemed to him objectionable were set up *seriatim* [Latin] and accompanied by a rejection (*reprehensio* [Latin]). They were based on the remarkable work, known as the "Caroline Books," which though set forth in his name, is on good grounds ascribed to Alcuin.
+
+The opening sentence reads as follows: "Here beginneth the work of the most illustrious, excellent, and honorable (*spectabilis* [Latin]) man Carolus, by divine command (*nutu* [Latin]) King of the Franks, and with the help of the Lord ruler of Gaul, Germany and Italy, together with their adjoining provinces, against the Synod which stolidly or arrogantly has recently been held in the parts of Greece for the adoration of images."[^jaffeiv220hincmar]
+
+[^jaffeiv220hincmar]: Jaffé, IV., 220; Hincmar. adv. Hinc. Laud. c. 20, Opp., II., 457.
+
+This striking title may inform the reader that the contents are worthy of the mind of the great warrior, and defender of the Church, and their language is sufficiently emphatic to command respectful attention. The book deserves to be widely known, for it abounds in good sense, contains a scathing exposure of the peril to which the worship or adoration of images exposes the ignorant or superstitious masses, and affords a striking contrast of the sentiment of the Church speaking by Charles, with that of the Church whose lamentable corruptions led to the Reformation, and necessitated on the part of all the participants in that movement the introduction into their confessions of faith of special articles directed against image-worship.[^jaffevi220hincmar]
+
+[^jaffevi220hincmar]: Jaffé, VI., 220; Hincmar. adv. Hinc. Laud. c. 20; Opp., II., 457.
+
+The king, moreover, opened communications on the subject of the Nicæan decrees with Hadrian, whose legates had taken part in the Synod, while he himself had expressed his approbation of their course. Charles sent the aforesaid capitulary by the hands of Angilbert to the pope, instructing that ambassador to explain it to Hadrian and move him to bring about the repeal of the objectionable decrees. In this he failed, for the pope took up the several articles of the capitulary giving to each *reprehensio* [Latin] an appropriate *responsio* [Latin].
+
+Only the last *capitulum* [Latin], in which the king writes: "We desire our apostolic lord and father, together with the whole Roman Church, to know that while agreeably to the tenor of the epistle which St. Gregory wrote to Serenus, bishop of Massilia, we permit any who may so desire, for the love of God and His saints, to set up (*formare* [Latin]) images inside or outside the churches, we shall never coerce those, who object to worship them, nor allow those so inclined to break or destroy them, . . ."[^mignexcviii1248] he identifies as emanating from Charles and praises accordingly.[^alcuiniep33]
+
+[^mignexcviii1248]: Migne, *l. c.* [Latin] t. XCVIII., col. 1248.
+
+[^alcuiniep33]: Alcuini ep. 33 (Jaffé).
+
+The turn he gives to the decrees of the Nicæan Council is characteristic; he had received them, he says, because they agreed with St. Gregory, and was constrained to receive them, lest the Greeks should relapse into error and the loss of their souls be laid to his charge. "But," he continues, "we have thus far forborne addressing the emperor on the subject of the Council and confined our **794]** remarks to the suggestion that the work of restoration should not be done half; if they restored the images, they ought likewise to restore to the care and jurisdiction of St. Peter the episcopal and archiepiscopal dioceses together with our patrimonies,[^hadrianalludes] unlawfully alienated from us at the time of the destruction of the images. To this no answer has as yet been received, which shows," as Hadrian observes not without a touch of sarcasm, "that though converted on one point, they remain unconverted on two others.
+
+[^hadrianalludes]: Hadrian alludes to the action of Leo III., the Isaurian, who in response to the ban of excommunication launched by Gregory III., under date Nov. 1, 731, against him and all other iconoclasts, caused the sequestration of the patrimonies of the Roman *Curia* [Latin] in Calabria and Sicily, together with the alienation from her jurisdiction of the churches in Calabria, Sicily and the province of *Illyricum Orientale* [Latin].—Simson, *l. c.* [Latin] II., 81 sq. n.
+
+"We therefore propose, if the matter commends itself to your judgment, in thanking the emperor for the restoration of the images, strenuously to exhort him to the restoration of the aforesaid episcopal and archiepiscopal dioceses and patrimonies, and in the event of his refusing such restitution, declare him, because of his stubborn perseverance in error, a heretic, etc., etc."[^mignelccol1292]
+
+[^mignelccol1292]: Migne, *l. c.* [Latin], Col. 1292.
+
+The pope's unwillingness to do his bidding in the matter of the obnoxious Nicæan decrees did not deter Charles from the prosecution of his purpose. The subject was taken up by the Council of Frankfort, which denied the œcumenical character of the second Council of Nicæa (falsely called by the Greeks the seventh Œcumenical or General Council), read and examined the acts of that pseudo-synod, and unanimously condemned its decrees concerning the adoration or worship of images, in these terms:
+
+"On the question of the recent Council of the Greeks held at Constantinople,[^synodfrancof2] touching the adoration of images, and the written declaration, that 'whosoever failed to render to the images of the saints the same service and worship which are paid to the Holy Trinity should be anathematized,' the very holy fathers of this Council absolutely reject and despise such service and worship, and unanimously condemn the same."[^capita794art2]
+
+[^synodfrancof2]: Synod. Francof. 2; Chron. Moiss., Annal. Einh., Hincmar, *l. c.* [Latin] call the Council the Synod of Constantinople, where it was to have been held, and where the last session took place.—Simson, *l. c.* [Latin] II., p. 82.—See Hefele, *l. c.* [Latin] III., 474, 693, n. 2; and Döllinger, in *Münchener hist. Jahrb.* [German] 1865, p. 339.
+
+[^capita794art2]: Capit. a. 794, art. 2, in Migne, t. XCVII., c. 191. There is no doubt that the "Caroline Books" fairly captured the Council, but it is only just to add that the Greeks nicely discriminated between absolute worship, λατρεία, due only to God, and relative worship, προσκύνησις, due to images. See the text in Labbei Concil. t. VIII., p. 1202 sqq.
+
+The action of the Council of Frankfort must have been embarrassing and painful to Hadrian, whose legates had authorized by their presence and votes the acts of two church synods as hopelessly irreconcilable and contradictory as those of Nicæa and Frankfort.
+
+Two of the fifty-six *capitula* [Latin] enacted by the Council of Frankfort are here singled out as illustrating the intelligent foresight and liberality of Charles; they are the thirty-third and the fifty-second; the former enjoining that everybody throughout the realm be taught and required to know the Catholic Belief concerning the Holy Trinity, the Lord's Prayer and the Creed; and the latter couched in this hortatary form:
+
+"Let no one believe that God may be prayed to in only three languages; nay, the rather that God should be worshipped in every tongue, and that He will hear the prayers of men if they pray for just things."[^seecapitulareii]
+
+[^seecapitulareii]: See *Capitulare* [Latin] No. II., Book III., Ch. I., below.
+
+These, and many other capitula and canons, demonstrate that if he was a bishop of bishops, he showed his superiority in liberal intelligence and a breadth of enlightenment alien to the minds and hearts of the vast army of bishops, priests and deacons, abbots and monks, who with very few exceptions, advocated a brainless, mechanical and vicarious religion, and were the worthy predecessors of a race of modern bigots holding that the Bible in the vernacular without tradition imperils the souls of men.
+
+**795]** The death of Hadrian moved Charles to tears; he wept for him as a son might mourn for his father, or a friend bewail the loss of his dearest friend.[^vitacaroli19c] The cordiality of their friendship is indisputable; they thoroughly understood each other; they had often looked into each other's eyes; they had taken sweet counsel together, and though for several years past there had been an estrangement, neither the frequency of the pontiff's letters of complaint nor dogmatic differences could sever the bond of amity which linked them together.
+
+[^vitacaroli19c]: Vita Caroli, c. 19. Alc. ep. 61. Annal. Lauresh., Nordhumbr. a. 795. Epist. Carol. 10.
+
+The expression of his sorrow was touching; when he had stayed weeping for him, he ordered prayers to be said for him throughout his dominions, also the distribution of rich gifts from his private treasury among all the metropolitan churches, and of special memorials among the episcopal sees in Mercia and Northumberland, accompanied by his request of prayers for the repose of the soul of the departed pontiff, for himself, the stability of his empire, and the propagation of Christianity.[^alcepp575861]
+
+[^alcepp575861]: Alc. epp. 57, 58, 61.
+
+One of his epistles, that to King Offa, explaining the import of the said commemorative prayers, is here presented in full. It is very interesting and illustrates not only the personal piety of Charles as well as his tender friendship for Hadrian, but the habits and pursuits of Anglo-Saxons about the close of the eighth century.
+
+Even then they were great travellers; some were doubtless devout pilgrims, others resembled those so charmingly described by Chaucer, and a goodly number of them, addicted, like modern Englishmen, to commercial pursuits.
+
+"Charles, by the grace of God, King of the Franks and Lombards, and Patrician of the Romans, to the venerable man, his dearly beloved brother Offa, King of the Mercians, greeting.
+
+"First of all we thank Almighty God for the purity of the Catholic Faith so laudably cultivated in your letters.
+
+"Passing to the case of travellers, who, impelled by the love of God, and for the salvation of their souls, desire to visit the tombs of the blessed Apostles, it is ordered that they may proceed thither in peace without let or hinderance.
+
+"Such, however, among them as may travel not for religious purposes but for gain, must pay the tolls where they are established.
+
+"Merchants, likewise, by our express command, and throughout our realm, are guaranteed the protection of the law, and the right of appeal to ourselves or our judges, and in the event of unjust oppression we shall enjoin that full justice be meted out to them.
+
+"We also desire to notify your Love, that in token of our good will we have commanded the distribution throughout the several episcopal sees in your realm, and in that of Ethelred,[^kingofnorthumbria] of dalmatics and pallia, in pious commemoration of the Lord Apostolic Hadrian, with the request that you will command intercession to be made for him, not because of any doubt as to the repose of his blessed soul, but as a mark of our faith and an expression of our affection for our dearest friend.
+
+[^kingofnorthumbria]: King of Northumbria a. 774–796.
+
+"We have, in like manner, commanded that part of our earthly treasure, with which the Lord Jesus has graciously enriched us, be sent to the metropolitan cities, and that to your Love be presented a belt, a Hunnish sword, and two Syrian pallia."[^epistolcarol11]
+
+[^epistolcarol11]: Epistol. Carol. 11 (Jaffé).
+
+Hadrian, who held the apostolic chair for the space of twenty-three years, ten months, and seventeen days, died on the twenty-fifth of December, 795.
+
+What he was to the Church is set forth in the summary of the Catholic writer, in whose opinion his long pontificate was one of exceptional prosperity, though rather in the material than the spiritual triumphs of the Church.
+
+He states that the cordial, ready, potent, and magnanimous protection of Charles caused the authority of the Church of Rome to be universally respected; that infidel races were converted to Christianity; that the perfidy of the Lombards was duly punished; the pride of the Greeks, and the insolence of their abettors, signally rebuked. The evangelical splendor of the Cross, he adds, could not be dimmed or obscured under the long duration of the galling yoke of the Greeks which sorely oppressed the Church, or under the pressure of the oft-repeated investment of Rome by the Lombards, which wrung from her the plaints of sorrow. When the heavens were overcast with darksome clouds, yea at the very height of the sable gloom, the sun rose from behind them in all the strength of his effulgent glory, even at the bidding of Him, whose mighty voice laid the tempest on the lake of Galilee, and bade the roaring, tumultuous sea hold its peace and be still.
+
+What Hadrian *was*, how he thought and felt, has in part been sketched on preceding pages, and may be read in full in a number of his letters which have come down to us and are contained in almost all the Collections. What he *did*, partly as dispenser of the prodigal benefactions of Charles, partly as that of his own munificence for the cult and glory of the Church in the city of Rome, is given at great length in the pages of his biographer.[^anastasiibibl]
+
+[^anastasiibibl]: Anastasii Bibl. *S. Adrianus* [Latin], Migne, CXXVIII., 1181 sqq.—Baronius, IX., 543 sqq.
+
+Charles commanded the epitaph of Hadrian to be chiselled with gilt letters in a slab of black marble, and sent it in ornamentation of his tomb to the city of Rome, where it remains to this day not far from the principal portal of St. Peter's.[^annallaureshnordhumbr]
+
+[^annallaureshnordhumbr]: Annal. Lauresh. a. 795; Nordhumbr. a. 794.
+
+The thought and feeling of this fine tribute to the memory of Hadrian are doubtless those of Charles, but the phrase and metre are Alcuin's. The epitaph of Theodulf excels it in poetical merit, but that which Charles approved and adopted as his own belongs to these pages.[^dummlerpoetlat]
+
+[^dummlerpoetlat]: Dümmler, *Poet. Lat. aevi Carol.* [Latin] I. 101; Theodulf, *Carm.* [Latin] ibid. I., 489 sq.; cf. p. 101. My version follows the text of Labbe, *Concil.* [Latin], VIII., 20.
+
+> Epitaph.
+>
+> Here sleeps the famous chief, and ornament of Rome,
+> The Father of the Church, Pope Hadrian the blest;
+> Whom God gave life, the Law his virtue, glory Christ.
+> An apostolic father to goodness always prompt;
+> Of grand ancestral line a noble scion he,
+> More noble than they all, through holiness became.
+> A faithful pastor with untiring zeal who strove
+> The temples of his God in beauty to array.
+> The Church with choicest gifts, with sacred love the flock
+> Imbued, and unto all the way beyond the stars he traced.
+> His bounty blessed the poor, his goodness passed by none,
+> In ceaseless vigils for the flock his prayers arose.
+> With learning, wealth, and walls thy battlements he reared,
+> Thrice honor'd Rome! chief city through the world renowned.
+> Grim death, by that of Christ redeemed, could hurt him naught,
+> And proved to him but gateway to the better life.
+> O father, thee beweeping, I Charles these lines have writ,
+> For thee, sweet love and father mine, with sorrow bowed.
+> Remember me, whose mind forever follows thee,
+> When thou with Christ the blissful realms above shalt sway.
+> The clergy, all the Church, in love did thee enshrine,
+> O best of pontiffs, who to all wast all their love.
+> Illustrious man, our names and titles now I join,
+> Aye Hadrian and Charles the King, the pontiff thou.
+> Kind reader of these lines, with loving heart for both
+> In pray'r engage, and gently Miserere say.
+> This tomb, O dearest friend, thine earthly frame doth hold,
+> The while thy happy soul with Saints of God delights,
+> Until the final trump within thy ears shall sound:
+> "Awake! with princely Peter rise thy God to see;"
+> When sure, I know, the Judge with loving voice will call:
+> "Into thy Lord's surpassing joy now enter thou."
+> Then best of fathers all, thy son bear thou in mind;
+> "A son should join his father," say, "And this is mine."
+> To Christ's celestial realms, blest father, lead the way,
+> With intercessions thence thine orphaned flock to aid,
+> The while his fiery locks the sun resplendent shakes,
+> Thy praises, Holy Father, throughout the world shall sound.
+>
+> This pope of blessed memory filled the pontifical chair XXIII. years, X. months, and XVII. days, and died on the VII. Kalends of January.
+
+---
+
+#### CHAPTER XIII.
+
+##### CHARLES AND LEO III.
+
+*Leo III., pope.—Rumors.—Conspiracy against him.—His miraculous recovery.—He visits Charles at Paderborn.—Conjectures.—Leo reinstated.—Preparations.*
+
+**795]** The unanimous election, on the very day of Hadrian's burial, of his successor, Leo III., was extraordinary and, many thought, miraculous.
+
+He was a native of Rome; from early youth an inmate of the Lateran; skilled in music; familiar with the Holy Scriptures and the ritual of the Church.
+
+Leo took minor orders, and was soon advanced to the priesthood. He bore a good reputation, while his pure life, eloquence, and manliness, allied to pleasant manners and affability, made him a general favorite; secured his election as pope by the unanimous vote of all the bishops, nobles, clergy, and people of Rome on St. Stephen's Day; and his episcopal consecration on the next day, St. John's Day, which fell on Sunday.[^vitaleonisiii]
+
+[^vitaleonisiii]: Vita Leonis III.; Epist. Carol. 10.
+
+**796]** His first act was the despatch of legates to Charles with letters announcing his election, expressing his obedience and fidelity, and bearing the keys of St. Peter, the standard of the city of Rome, and presents. He likewise desired Charles to send one of his chief officers to Rome with authority to receive the oath of fidelity and obedience on the part of the people.[^epcarol10annaleinh796]
+
+[^epcarol10annaleinh796]: Ep. Carol. 10.—Annal. Einh., a. 796.
+
+Charles was delighted with this unusual act of deference, and sent Angilbert, one of his most confidential and familiar officers, with a letter and a large share of the Avar spoils.
+
+The letter explains that the presents were ready to be forwarded to Hadrian, when the intelligence of his death caused a delay; it congratulates Leo on the unanimity of his election; apprises him that Angilbert is authorized to confer with him on all matters touching the glory of the Church, the dignity of the pontifical office and his own patriciate; and exhorts him to enforce the Canons.
+
+In one place he writes: "As I made a league of sacred confraternity with your sainted predecessor, so I desire to form with your holiness an inviolable compact of the like faith and love. It is my duty, by the grace of God, to defend the Church of Christ everywhere: against the assaults of pagans or the ravages of infidels, which may threaten her from without, and to exert all my power towards the stability of the Catholic Faith in my realm. It is yours, most holy father, like Moses to lift up your hands in prayer to God for the success of my arms. . . .
+
+"In your wisdom you will not fail everywhere to enjoin and enforce the commandments and statutes of the Fathers, so that the shining example of your holiness in such godly conversation may be known to all men, while your saintly admonitions fall on willing ears; yea, let your light so shine before men that they may see your good works, and glorify your Father who is in heaven."
+
+Charles must have had some private information leading him to fear that matters at Rome might not run as smoothly as Leo seemed to think they would. His private and confidential letter instructed Angilbert to remind the holy father of the duties of his office, both as to his morals and the maintenance of canonical authority in the godly conduct of church government.
+
+"Tell him often," he writes, "that the honors of those clothed with the sacred office last but a few years, but the reward of those who well discharge its duties, is eternal. Press upon him the necessity of abolishing the heresy of simony, so grievously defiling the Church in many parts, and of correcting all other abuses which we have so often bewailed together."[^epadangilb]
+
+[^epadangilb]: Ep. ad Angilb. ib. p. 353.
+
+It is thought that the expense of a large number of vases and rich ornaments, made by order of Leo in the beginning of his pontificate, for the Roman churches, was defrayed by the royal offering of part of the Pannonian spoils.
+
+Among those works of art was the grand banquet-hall in the Lateran, all in marble, and richly ornamented with columns and mosaics. One of the latter, still shown, represents St. Peter seated, with three keys on his knee, Leo on his right and Charles on the left, in the act of presenting to the pope a pallium, and to the king a standard with six roses, inscribed: "May St. Peter grant life to Pope Leo, and victory to King Charles."[^anastaslc]
+
+[^anastaslc]: Anastas., *l. c.* [Latin]
+
+This mosaic was the pendant of another, on the opposite end of the hall, representing Christ delivering to Peter (or Pope Sylvester) two keys, and to Constantine the Great a standard.
+
+**799]** Leo's popularity was of short duration. A revolutionary outbreak directed against his person occurred in the third year of his pontificate. Two papal officers, to wit, the primicerius Paschalis, and the sacellarius Campulus, together with many Roman nobles, had entered into a conspiracy against the pope.
+
+Paschalis was a nephew of Pope Hadrian, and Campulus was personally known to Charles.[^annaleinhvitaleonisiii] The causes of the conspiracy are not established. It was alleged by the partisans of Leo, that he incurred the hatred of the Romans from his stern opposition to their contemplated revolt from Frankish rule, and that the promoters of the plot were moved by jealousy; on the other hand the opponents of Leo charged that his notorious adultery, perjury, and other crimes, provoked the revolt.[^seetheauthoritiessimson]
+
+[^annaleinhvitaleonisiii]: Annal. Einh.; Vita Leonis, III.; Cod. Carol. 62, 68; Epist. Caroli. 10.
+
+[^seetheauthoritiessimson]: See the authorities in Simson, II., 165, n. and below, pp. 348, sqq., 364.
+
+It is certain that Leo continued hateful to the Romans to the last.[^hispositionevenafter]
+
+[^hispositionevenafter]: His position, even after his restoration, was most unpleasant. In 804 he was glad of a convenient temporary escape from the city; nine years later another conspiracy against him was suppressed with blood, and during his sickness the people rose in arms, plundered his farms, and set them on fire.—Monach. Sangall. I., 26; Annal. S. Amandi; Lauresh. a. 800. Simson, *l. c.* [Latin] II., 166.
+
+On the twenty-third day of April, being St. George's Day, the Great Litany was chanted in the church consecrated to his memory, which, two days later, on St. Mark's Day, was ordered to be concluded in the Church of St. Laurentius *ad craticulam* [Latin], that is, of the gridiron.
+
+The pope was riding in the procession of the "black crosses," instituted by St. Gregory, and the aforesaid Paschalis and Campulus ought to have taken their places in it, but arriving after it had formed, the former without his *planeta* [Latin], apologized to Leo on the hypocritical plea of sickness and other excuses, but accompanied him in friendly discourse.
+
+Meanwhile the rest of the conspirators had taken up a concealed position near the monastery of Saints Stephen and Sylvester which lay in the way of the procession. When it came up, a band of assassins rushed from their hiding place into the thick of the unarmed people who were following the pope. They terrified, and speedily dispersed the populace, made their way to Leo, Paschalis standing before, and Campulus behind him, seized him, tore him from his seat, threw him to the ground, and cruelly beat and plundered him. It was their *intention* to put out his eyes, cut off his tongue, and even—kill him. Some witnesses declared, and the perpetrators of the outrage are reported to have believed, that the double mutilation *was* really accomplished; at any rate, the conspirators left him where he lay in the street, naked and half dead.
+
+The papal account adds, that when the assassins had gone, Paschalis and Campulus dragged Leo into the conventual church of Saints Stephen and Sylvester, trying to complete before the altar of the same the mutilation which had only been imperfectly performed in the street.
+
+At night, the same high officials, together with Maurus de Nepi, an accomplice, caused him to be removed to the monastery of St. Erasmus where he would be in safe keeping (for it was a prison), and might recover from his wounds.
+
+In that place, as some say (or on the way to it, as others affirm), a miracle was wrought, for the maltreated pontiff recovered the use both of his tongue and eyes. Some actually fable of a double miracle, alleging that Leo had recovered the use of the missing members on the way to the monastery, when his cruel enemies deprived him absolutely (*radicitus* [Latin]) both of his tongue and eyes. Then, according to the Monk of St. Gall, the divine vindicator of his innocence replaced the eyes, thus cruelly removed by wicked hands, with others more beautiful than the first, except that the mark of his virtue remained in a most beautiful wound like a delicate thread of snowy whiteness distinctly visible on the pupil.[^monachsangall26]
+
+[^monachsangall26]: Monach. Sangall. I., 26. MG. SS., II., 743.
+
+Albinus, the chamberlain of Leo, came by night, probably with other faithful dependants, and enabled the sacerdotal captive by means of a rope to leave his monastic prison. This exit becomes in the hands of one of the scribes another miracle, and in those of a third truly apostolic, for he makes him, like St. Paul, descend by the *city* wall. His deliverers took him to St. Peter's where two royal *missi* [Latin], to wit, Wirundus, abbot of Stablo, and Winigisus, duke of Spoleto, received him. The latter, apprised of the outrage, forthwith collected a body of troops, hastened before the city (St. Peter's then stood without the walls) and conducted the pope to Spoleto.
+
+The rebels, it is added, resented the action of the devoted chamberlain, and having nothing else to do, attacked his house, plundered, and destroyed it.[^vitaleonisannalmaxim]
+
+[^vitaleonisannalmaxim]: Vita Leonis; Annal. Maxim., Lauresh., Theophan. Chronogr. (Bouquet, V., 188); Annal. Einh., Lauriss. al. Compare for a minutely circumstantial examination of the attempt on Leo, *Excurus I.* [Latin], in Simson, *l. c.* [Latin] II., 583.
+
+Messengers from Leo, the royal *missi* [Latin], and not improbably **799]** from others,[^seep346line1] hastened to inform Charles of the occurrences at Rome. It is not certain, though highly probable, that the exigencies of the case and public pressure moved Leo to invoke the royal aid.
+
+[^seep346line1]: See p. 346, line 1, sqq.
+
+According to a poetic version, the king sees in a vision the mutilated pontiff, supplicating his protection, and sends three messengers to Rome. The pope summons them to Spoleto, bidding them conduct him to the king in order that he might examine and avenge his cause; they honor his request and conduct him to Germany.[^angilbertcarm332]
+
+[^angilbertcarm332]: Angilbert, Carm. vv. 332 sqq. 342, 376, 400, p. 374 sqq.
+
+According to history, Charles immediately commanded the pope to be conducted to him, and designated his arch-chaplain Hildibald, archbishop of Cologne, and count Ascarius as special commissioners to meet and escort him;[^anneinhvitaleon] it would seem, however, that it was the king's first impulse to hasten to Rome in person, but that he changed his mind, because he felt that he could not omit his contemplated journey into Saxony, which was then undergoing the process of pacification.[^alcuiniep118]
+
+[^anneinhvitaleon]: Ann. Einh. Vita Leon.
+
+[^alcuiniep118]: Alcuini Ep. 118; Annal. Einh. a. 799.
+
+As for Leo, he travelled, doubtless under military escort, furnished by the duke of Spoleto, and attended by a goodly number of bishops, presbyters, and nobles (*primatibus* [Latin]).[^annalmaximlaurissmin] His progress excited universal attention, and stirred up the religious enthusiasm of the people wherever he went; multitudes came forth to kiss his feet, gaze upon his new eyes, listen with enraptured emotion to the words he uttered with his new and heaven-sent tongue, and enrich him with their gifts.[^vleonibangilbert]
+
+[^annalmaximlaurissmin]: Annal. Maxim., Lauriss. min.; Liber pontific. (V. Leonis III., p. 198.)
+
+[^vleonibangilbert]: V. Leon. *ib.* [Latin]; Angilbert, *l. c.* [Latin] v. 408 sqq.
+
+What took place in Germany is best told in the language of the poem, which is generally ascribed to the pen of Angilbert, who from his confidential and intimate relations to Charles, and personal acquaintance with most of the actors, and knowledge of the localities, could write more intelligently on the subject than any one else. Still it is proper to preface his account with a caution; he writes poetry, and the reader should remember that a *penchant* [French] for picturesque embellishment and an exuberant fancy guided his hand; he exaggerates, but that is poetic license.
+
+His description is substantially as follows: "When Charles heard that the papal procession was drawing near, he sent his son Pepin, King of Italy, at the head of an army of a hundred thousand (?) men to meet him. The spectacle of so vast a multitude of armed men was overwhelming; the pope lifted his hands to heaven, invoking the divine blessing on the Franks. When he came up to Pepin he clasped him to his heart, tenderly embraced and kissed him. Then the pope and Pepin walked side by side to meet the king; the venerable hero forthwith ordered the entire host under arms, saying to his brave veterans: 'Go as you are wont to go into battle and give martial greeting to the pontiff!'
+
+"The host is profoundly moved; a forest of spears, thrice-leashed cuirasses, helmets, javelins, and shields, sways to and fro; the clash of the brazen shields resembles the voice of thunder; the cavalry sweeps round as to a charge; the air is dark with clouds of dust, and vocal with the clangor of trumpets, and the shrill tones of bugle signals; the very ground seems to tremble under the hoofs of the fierce chargers; in the midst of the concourse wave the bright banners, and the multitudes in motion are eager to hear the pontiff's voice; a burning desire seems to enter the very marrow of their bones. . . .
+
+"At the extremity of the camp the whole army is ordered to halt: the clergy in large numbers, arrayed in sacerdotal costume, form into three companies or choirs, ranging themselves under the sacred banner of the cross in an inner circle, round which in ever-widening lines the whole army is disposed like a city wall; in the very centre, overtowering all the rest, Charles awaits the pontiff.
+
+"Leo beholds with wondering eyes the magnificent spectacle of that vast multitude, representing so many nationalities collected from all quarters, compacted together, so different in appearance, speech, uniform, and arms; it is an overwhelming sight; he looks hither and thither, and beholds Charles coming forth; he lies prostrate in lowly veneration, and rising, gives him a tender, loving welcome in cordial embrace.
+
+"The king and the pontiff join hands, and walk together, engaged in earnest and affectionate conversation. At a signal the entire army, thrice in succession, falls prostrate before the pope, to be enriched with his prayers and benediction thrice bestowed.
+
+"Again Charles, the father of Europe, and Leo, the sovereign pontiff, move forward; the king desires to know the story of his trouble; the wickedness of the Roman people astounds and horrifies him; he beholds with amazement the light stream forth from the windows that had been bereft of it, and catches in wonderment the accents of the tongue which the cruel forceps had torn out."
+
+At this point the choirs of the priests sing their antiphons of praise for his marvellous restoration; the earnest and loud strains of their chants make the welkin ring.[^exoriturclamor]
+
+[^exoriturclamor]: "*Exoritur clamor, vox ardua pulsat Olympum*," [Latin] may be illustrated by the following passage, in which an Italian, with an educated ear, comments upon the musical performances of the transalpine clergy. He says, that like other European nations, the Germans and Gauls had repeatedly essayed the mastery of the superior merits of the Gregorian Chant, but their attempts were failures partly from carelessness in mixing up with it their own methods, and partly from their natural wildness; for "the bodies of the transalpines who are wont to emit a thundering noise with their voices, cannot reproduce the sweet modulations which are sung to them for imitation, because the barbarous wildness of their drunken throat seeks in vain to utter by means of artificial contortions and resonances the soft tones of a melodious voice; the stiff sounds they send forth resemble the roll of distant thunder or the confused noise of a number of empty barrels in rotary motion, whose roughness instead of delighting, irritates and confuses the minds of the hearers." Who can fail to recognize in this description the familiar beer voices of the opera, the concert room, and "*horresco referens*," [Latin] of the cathedrals of continental Europe, Great Britain, and even of minor churches elsewhere? See the whole passage in Joann. Diacon., *Vita Gregorii M.* [Latin] c. VI. in Opp. Gregor. T. II., p. 47.
+
+Under the guidance of the blessed Charles the pope enters the church and celebrates Mass. . . .
+
+At the conclusion of the sacred office, the pope is led to a magnificent repast; the *sedilia* [Latin] are ornamented with purple and gold; the king and the pontiff, the Court, and the glittering host of grandees sit down and feast upon the rich and abundant provisions of that royal banquet; on all the tables the fiery Falernian is served in golden bowls.
+
+"King Charles and the sovereign pontiff are seated by themselves, and feast together; they quaff bowls full of sparkling wine in long delicious draughts. The exquisite food and sweet cups of Bacchus come to an end; pious Charles presents many gifts to Leo, and in happy mood, withdraws to the inner chambers of the palace, while the apostolicus retires to his camp."[^angilberticarminadubia]
+
+[^angilberticarminadubia]: Angilberti Carmina dubia, in *Poetae Latini Med. Aevi.* [Latin] I. 1, 377 sqq.
+
+Thus hilariously, humorously, and quaintly, run the verses of the courtly Angilbert, who plainly recalls the festive scene with pleasant recollections. His verses show in numerous verbal coincidences an intimate knowledge of Virgil, and afford a lively insight of the manners and usages of the Frankish Court. The peculiar turn of the "apostolicus" expresses familiarity, and unless the language is to be taken literally, the manner in which the miraculous restoration of the windows and the tongue of the pontiff is told, seems to insinuate a doubt both in the mind of Charles and in his own.
+
+Leo spent some time at Paderborn, where the meeting took place. The church in which he celebrated Mass had a peculiar history. As far back as 777, Charles caused a church to be built there in honor of the Saviour, which the fierce pagans repeatedly set on fire and destroyed. But his will and zeal being stronger than their hatred and violence, he built a much larger church and had it consecrated. Leo consecrated one of the altars, and deposited therein the relics of St. Stephen, the proto-martyr, which, at the express desire of Charles, he had brought from Rome, assuring the king that the virtue of the relics would protect the church from a repetition of such a calamity in the future.
+
+This was a safe prophecy so far as the pagan Saxons were concerned, who had already ceased to be an object of terror, and would soon be placed beyond the reach of possible harm; they never set that church on fire thereafter—but the relics were not an absolute insurance against it, for it burnt down in A.D. 1000.[^annaleinh799translatio]
+
+[^annaleinh799translatio]: Annal. Einh., a. 799; Translatio S. Liborii, in MG. SS. IV., 150.
+
+The enemies of Leo, however, were not idle; the report of his distinguished reception by Charles roused the worst passions of "those wicked sons of the devil," as the biographer of Leo calls them; they set on fire the pontifical domains, and would fain have consumed him by means of the terrible accusations against him which they sent to the king. They were doubtless greatly exaggerated, but too grave to be disregarded. Where there is so much smoke, men said, there must be some fire. The charges of adultery, carnal or spiritual, and perjury, were freely circulated, and not entirely disbelieved at the Court.
+
+Even Alcuin, who appears as the staunch friend of Leo, seems to have been not altogether incredulous as to their truth. His information, moreover, came not from the conspirators, but from his friend Arno, archbishop of Salzburg, who had recently been at Rome, and in a confidential letter enumerated the complaints so injurious to the pontiff's morality. Alcuin in reply states, among other things, that he had burnt the letter, because he did not wish it to fall into other hands, lest through the negligence of his servants the contents might become known and the occasion of scandal.[^epistalcuini127]
+
+[^epistalcuini127]: Epist. Alcuini, 127 (Jaffé).
+
+The matter of the abdication of Leo was freely discussed, and recommended by some as necessary; it was argued that the exigencies of the case required his withdrawal from the pontifical chair and retirement to a monastery. But Alcuin opposed the measure as unwise and mischievous, and his counsel prevailed.[^epalc120119]
+
+[^epalc120119]: Ep. Alc. 120, 119.
+
+Charles finally decided that the charges should be investigated by a royal commission, and Leo reinstated to office.[^vitaleonisflodoard]
+
+[^vitaleonisflodoard]: Vita Leonis, III.; Flodoard, *De Pontif. Rom.* [Latin] Murat. III. b., 284. Annal. Einh., Maxim., al.
+
+Pending these discussions, others, not of record, are believed to have taken place at Paderborn. The intercourse between the king and the pope led to important results. It would be strange if the political aims of Charles had not been freely and confidentially unfolded to Leo. History, with one exception, is silent on the subject. Still it is impossible to resist the conviction that elevation to imperial dignity had long filled the mind of Charles.
+
+It had doubtless been discussed orally, and otherwise, with Hadrian. William of Malmesbury expressly affirms that Hadrian often proposed it to the king of the Franks, but on conditions, which the latter thought exorbitant and unacceptable.[^wilmalmesb]
+
+[^wilmalmesb]: Wil. Malmesb. in MG. SS. X., 453.
+
+The nature of these conditions is clearly intimated in one of Hadrian's epistles, still extant. He writes, "that if Charles would restore to the Church the possessions which Constantine, the patricians, and other godly benefactors had granted to her, the nations of the earth would exclaim: 'O Lord, save the king, and hear us in the day when we call upon thee,[^psxix10] for a new emperor of God, a most Christian Constantine has risen in these days,'" adding that "St. Peter, the prince of the Apostles, could not pray before the throne of God for the prosperity, long life, and exaltation of the king, or the majesty of his divinely established dominion, until such restoration had been made."[^codcarolep60]
+
+[^psxix10]: Ps. XIX., 10.
+
+[^codcarolep60]: Cod. Carol. ep. 60 (Jaffé).
+
+That was Hadrian's price, which Charles would not, and could not pay. It meant the renunciation of his own sovereignty in Italy, and the exaltation of *his* vassal, or, more accurately in point of law, of the Greek emperor's vassal, to temporal sovereignty.
+
+On that point Charles remained inflexible, and when Hadrian died, Leo, as has been explained before, succeeded him in the same capacity of vassal, and actually desired the king to send commissioners that they might administer the oath of allegiance to the Roman people.
+
+Then followed the incidents which led to the pontifical presence at Paderborn. In this connection it is now pertinent to read the statements of a contemporary:
+
+"At that time," he writes, "wicked men having conspired together against Leo III., pontiff of Rome, possessed themselves of his person. It was their purpose to put out his eyes, and in the tumult which broke out among themselves, as it often happens, slightly hurt one of his eyes. The pontiff thereupon fled to King Charles for protection, promising, that if he would defend him from his enemies, he, for his part, would crown him with the imperial diadem. Charles, having heard the wished-for promise, immediately marched against the enemy with great power, took the city, and reinstated Leo to office. Then he crowned Charles, and took a dignified revenge upon his enemies."[^johdiacchronic]
+
+[^johdiacchronic]: Joh. Diac. Chronic. apud Murat. *l. c.* [Latin] I., 2, p. 312.
+
+The concluding sentences of this passage are not accurate, but they may pass for a loose statement in a condensed form. The testimony of John the Deacon is not good, and the foregoing statement, in the opinion of thoughtful, learned, and judicious critics, not credible. They may be **799]** right, still few unbiased minds will read it in the light of what is known and established beyond all doubt, and deny its accuracy. The chronicler may have expressed himself boldly and set the matter down from hearsay rather than authentic sources, but he doubtless recorded what men said and thought of the subject.
+
+Charles dismissed Leo as honorably as he had received him. A most distinguished escort of royal *missi* [Latin] conducted him to Rome and reinstated him with every mark of honor, which rises in the phrase of one of the Annals to the "highest glory" into the pontifical chair. They were: the archbishops Hildibald and Arno, the bishops Cunipert, Bernhard, Hatto and Jesse, the bishop-elect Flaccus, and counts Helmgaud, Rothgar, and Germar.[^annallaurissmaxim]
+
+[^annallaurissmaxim]: Annal. Lauriss. Maxim., Einh., Lauresh., Petav., Vita Leon. III.
+
+He made his solemn entry into the city November 29th, under circumstances which in the eulogistic coloring of the Papal record exceeded in demonstrative enthusiasm the cordial and reverential greetings he had received on the journey. In the exuberance of their joy at his safe return all the ecclesiastical dignitaries, and the lower clergy, together with the nobles, senators, military, the entire people, the ladies sanctimonial, the deaconesses, the most noble matrons, and, in fine, the entire female population, likewise the united Schools of foreigners, to wit, Franks, Frisians, Saxons, and Lombards, went conjointly out to the Milvian Bridge, and with the banners and standards gayly waving, welcomed their pastor, and conducted him to St. Peter's, where Mass was said, and all took the Holy Communion.[^anastasapudmuratori] On the next day they led him with similar demonstrations of joy into the city, and thus proceeded with him to the Lateran.
+
+[^anastasapudmuratori]: Anastas. apud Muratori, t. III., p. 198.
+
+The royal *missi* [Latin], a few days later, assembled in the triclinium of that palace, and began their inquisition into the causes of the late rebellion. Paschalis, Campulus and their accomplices underwent a searching examination, and being unable to substantiate their charges against Leo, the Court, after remaining more than a week in session, ordered their arrest, and sent them to Charles.[^ibidp198sq]
+
+[^ibidp198sq]: Ibid. p. 198 sq.—Flodoard, *De pontif. Rom.* [Latin] *ibid.* [Latin] III. b., 284.
+
+The king undertook, as stated on a previous page, the journey to the coast, and conferred on his circular tour to the Holy Places with Angilbert, Alcuin, and Theodulf. Soon after, in the month of August, 800, he acquainted the Diet, assembled in Mayence, with his intention of visiting Italy.
+
+The ostensible reasons for his visit were: 1, the examination of the charges preferred against Leo, and in the event of their falsity, the punishment of the outrage; 2, the restoration of order and confidence at Rome and the regulation of the affairs of Italy in general; 3, the chastisement of Benevento.[^vitacaroli2728]
+
+[^vitacaroli2728]: Vita Caroli, cc. 27, 28; Annal. Lauriss., Einh., al., Capitul. Italic 801.
+
+He would fain have had the company of Alcuin, and the benefit of his counsel in the important business which he had in hand. He begged him to exchange the smoky roofs of Tours for the golden palaces of Rome. But his saintly friend declined, saying he knew that Charles was familiar [was he personal?] with the excellent counsel of Solomon writ in Proverbs, xxi., 9.
+
+"And I will say in all peace," he added, "that iron is more hurtful to the eyes than smoke. Tours with its smoked roofs is content, by divine permission and your kindness, to enjoy the blessings of peace, whereas Rome suffers from fraternal dissensions whose venom is still operative; but I trust that you, who have left your sweet German home with a view to destroy it, may be eminently successful in eradicating so hurtful a scourge."[^mignetc331]
+
+[^mignetc331]: Migne, t. C., p. 331.
+
+Charles, by this time, had doubtless sounded, and others, themselves inspired, had inspired the pontiff on the providential leadings pointing so unmistakably to the necessity of a revival or restoration of the Roman empire in his person. There were many, and excellent reasons why such a restoration should take place.[^theyarewellargued]
+
+[^theyarewellargued]: They are well argued by Luden, *Geschichte des deutschen Volks* [German], vol. IV. lib. X. ch. XIV. *Von der Herstellung der Kaiserwürde* [German].
+
+It was, moreover, a measure as familiar to the mind of Leo, who on prudential grounds would hardly have originated it, as to Angilbert, Alcuin, and Theodulf of Orleans, with all of whom Charles had just conferred in their homes. The view of Alcuin, communicated the year before soon after the Roman outrage, may have suggested, prompted, or justified the measure.
+
+"The three highest persons in the world," he says, in substance, "are, first, the apostolic sublimity, wont to rule the chair of St. Peter; second, the imperial dignity and the secular power of New Rome; third, the regal dignity to which the goodness of the Lord Jesus Christ has advanced you, as the governor of Christendom.
+
+"You are," says the Briton, in plain and suggestive speech, "superior to the other dignities in power, wisdom, and the glory of your kingdom. On you alone depends the salvation of the Church; you are the righteous judge that punishes the wicked; you are the guide of all that err from the truth; you are the comforter of all that mourn, yea, you are the exceeding great rewarder of all good people."[^alcuiniepist114]
+
+[^alcuiniepist114]: Alcuini Epist. no. 114 (Jaffé).
+
+Thus wrote the abbot of St. Martin's, and the poetic bishop of Orleans echoes the sentiment in the following lines:
+
+"You are the righteous judge that punishes the wicked and rewards the good. Whatever you do, may it thus turn out by the favor of God. You are the shield of the pontiff, the hope and defence of the clergy, through you the pontiff wields his sacred office."[^alcuiniepist114]
+
+Such language, from such men, and at such a juncture, was more than oratorical flourish; one feels tempted, in the absence of all authentic information on this instructing theme, to read between the lines, reason, speculate and even listen, for the nonce, to the tittle-tattle of the loquacious Monk of St. Gall. The saying of children and the other folk, whom one must not name, comes up, as one reads the story as it ran in the monastery, to wit, that his holiness, deeming it to be the will of God that the invincible Charles, already wielding imperial power and directing the destinies of most of the nations of the earth, ought, by and under apostolical authority, to be likewise endued with the names of Emperor, Cæsar, and Augustus, bade him come for that purpose to the city of Rome.[^monachsangall117]
+
+[^monachsangall117]: Monach. Sangall. apud Bouquet, V., p. 117.
+
+---
+
+#### CHAPTER XIV.
+
+##### THE CORONATION.
+
+*Reception of Charles at Rome.—Trial of Leo.—His exculpation.—Symbolical gifts from Jerusalem.—Debate on the restoration of the empire.—The Coronation: Charles crowned and anointed "emperor;" Charles the younger "king."—Offerings.—Statement of Einhard examined.—Judgment on the conspirators.—Imperial prerogatives at Rome.*
+
+**800]** It is known that the expedition conducted by Charles and his son Pepin made a halt of only one week at Ravenna and proceeded to Ancona, whence Pepin, by command of his father, led it through the duchy of Spoleto and invaded Benevento, while Charles, with whom we are now concerned, continued the journey in the direction of Rome. On the twenty-third day of November he was met at Nomentum (the modern Mentana), situated at the fourteenth[^notthetwelfth] mile-stone from the city, by Leo and the Roman Senate, who received him with great humility and honor. After a joint meal the pope returned to the city in order to make the necessary preparations for the reception due to the illustrious visitor, who spent the night at Nomentum.[^annallaurisseinhmaxim354]
+
+[^notthetwelfth]: Not the twelfth, as some of the annals state.—Nibby; Gregorovius.
+
+[^annallaurisseinhmaxim354]: Annal. Lauriss., Einh., Maxim.; Chron. Regin., Moiss.
+
+On the following day, all Rome hastened forth to greet their potent patrician; the road was lined with eager and enthusiastic multitudes, the native military, and the foreign Schools with their ensigns and standards, singing the customary *lauds*. The royal procession at last drew near to the venerable basilica of St. Peter, where Leo together with the hierarchy and clergy of the city awaited the king on the platform of the magnificent marble staircase.
+
+Charles dismounted and solemnly ascended the stairs; Leo received him, offered a prayer of thanksgiving, and conducted him, amid psalms of praise, into the church.[^annallaurisseinhvleon]
+
+[^annallaurisseinhvleon]: Annal. Lauriss., Einh.; V. Leon. III.
+
+An entire week was devoted to rest, and probably to preliminary work connected with the impending trial. Then followed the opening session of the Great Synod which he had convoked; it consisted of the archbishops, bishops, abbots, presbyters, and deacons, together with the counts, and other Frankish nobles in attendance upon the king, as well as the Roman nobility and people. The Synod assembled in St. Peter's, and it is known that the archbishops of Mayence and Salzburg as well as the bishops of Orleans and Auxerre were present. The king's eldest son Charles and his daughters were also in Rome, but it does not appear that they attended the sessions of the Synod.[^vitaleonisiiib]
+
+[^vitaleonisiiib]: Vita Leonis III., Annal. Lauresh., Lauriss., Einh.
+
+Charles, arrayed in the Roman costume of the patrician, to wit, a long tunic, a chlamys, and Roman shoes,[^vitacaroli23b] announced to the Synod the objects which had brought him to Rome, and charged it to investigate—doubtless under his own direction and presidency—the charges preferred against the pontiff.[^annallaurisseinhmaxim355] The account of the proceedings is confused, and, in some respects, contradictory.
+
+[^vitacaroli23b]: Vita Caroli, c. 23.
+
+[^annallaurisseinhmaxim355]: Annal. Lauriss., Einh., Maxim.
+
+There is no doubt that they were protracted,[^annallaurisseinhmaxim355] for the Synod met December 1st, and the solemn act of Leo did not take place until more than three weeks after. It was a most difficult matter; it was taken up first, and Charles entered into every detail with the greatest diligence.[^annallaurisseinhmaxim355b] There is no reason to doubt that Paschalis and Campulus, together with their accomplices, were summoned to appear before the Court; that the former had been brought for the purpose from beyond the Alps,—and were probably put to torture, for the ominous word *quaestio* [Latin] intimates as much.[^annaleinhlauresh]
+
+[^annallaurisseinhmaxim355b]: Annal. Lauriss., Einh., Maxim.
+
+[^annaleinhlauresh]: Annal. Einh. Lauresh.
+
+But they came only as witnesses then, for their own case was not taken up until after Christmas. Charles discovered that there was no valid, legal foundation for their charges, but that they sprang from envy.[^annallauresh355]
+
+[^annallauresh355]: Annal. Lauresh.
+
+On the other hand it is distinctly stated, and probably true, that the witnesses were cowed into silence; refused to testify against Leo; that none was willing to assume the burden of proof.[^annallaurisseinhmaximfuld]
+
+[^annallaurisseinhmaximfuld]: Annal. Lauriss., Einh. Maxim., Enh. Fuld.
+
+It is also an established fact that the powerful influence of Alcuin in favor of the pontiff made itself felt in the eloquent advocacy of his innocence by the archbishop of Mayence (Richulf) and the bishop of Orleans (Theodulf). And lastly, it is alleged, but not credible, that the archbishops, bishops, and abbots present, in response to the king's charge to adjudicate the case put in the plea of incompetency and with one voice exclaimed: "We dare not sit in judgment upon the chair of St. Peter, which is the head of all the churches of God; for that chair and its vicar is our lawful judge. That chair cannot be judged by any man, for thus it has been held from of old, and we are ready canonically to obey the pontiff, even as he may direct."[^vitaleonisiiimigne]
+
+[^vitaleonisiiimigne]: Vita Leonis III., Migne, t. CXXVIII., 218.
+
+Such a declaration, under the circumstances, and due regard being had to the relations of Charles to the popes and the Church at large, is inconceivable and seems to justify the conclusion, that the biographer of Leo is intentionally wrong.[^sodollinger]
+
+[^sodollinger]: So Döllinger, in Münch. n. Jahrb. für 1865. Simson, *l. c.* [Latin], II. 229, n. 1; see also Baxmann, *Die Politik der Päpste* [German], I., 314 sq.; and in favor of Anastasius, v. Reumont, *Geschichte der Stadt Rom.* [German], II., 131, 150; Niehues, *Gesch. d. Verh. zwischen Kaiserthum u. Papstthum im Mittelalter* [German], I., 587; Jacobs, *Qua via, etc.* [Latin] p. 29, No. 4.—Cf. also Alcuini ep. 120 (Jaffé) and Concil. Sinuess. 303, Mansi I., 1257.
+
+But be that as it may, the result is unchanged, for the Synod did not pronounce a sentence; the charges against Leo were not proven, and it was left with him to clear himself of them by oath, yet so that the solemn act should appear to be strictly voluntary on his part.[^annallaureshnontamen]
+
+[^annallaureshnontamen]: Annal. Lauresh.:—"*non tamen per eorum judicium sed spontanea voluntate se purificare debuisset;*" [Latin] cf. chron. Moiss.
+
+According to Anastasius, Leo said after the aforesaid declaration of incompetency: "I desire to tread in the footsteps of my predecessors, and am ready to purge myself from the false accusations which have been wickedly brought against me."[^vitaleonislc]
+
+[^vitaleonislc]: Vita Leonis, *l. c.* [Latin]
+
+And upon the next day when the king, all the archbishops, bishops, abbots, together with the most illustrious Franks and Romans, were again assembled in the same church of St. Peter, the venerable pontiff, in the presence of all, took into his hands the Holy Gospels of Christ, entered the pulpit, and after the solemn invocation of the Holy Trinity, said in a loud voice:
+
+"It is notorious, dearly beloved brethren, that wicked men have risen up against me, and charged me with the commission of heinous crimes.
+
+"The august, and most gracious lord King Charles, accompanied by his priests and princes, has come to this city in order to investigate these charges.
+
+"On which account, I, Leo, pontiff of the Holy Roman Church, being neither condemned nor constrained by any man, but of my own free will, purify and purge myself, in your presence, before God, who knows the conscience, His angels, and St. Peter the prince of the Apostles, in whose basilica we are now assembled:
+
+"I have never perpetrated, or commanded others to perpetrate, the criminal and wicked deeds of which I stand accused.[^anastasiuslcgives]
+
+[^anastasiuslcgives]: Anastasius, *l. c.* [Latin], gives his words thus: "I have no knowledge of these false charges, which the Romans have wickedly brought against me, nor do I know that I have done them."
+
+"I call God to witness, whose judgment we all must undergo, and in whose sight we are now assembled; and this I do, being bound by no law, nor wishing to impose this custom or duty on my successors, or on my brother bishops in the Holy Church, but solely that I may altogether relieve you from any suspicion that may linger in your minds."
+
+Thereupon all the aforesaid archbishops, bishops, and abbots, together with all the clergy present, chanted a solemn litany, followed by the ancient hymn "*Te Deum laudamus*," [Latin] in which the king himself took part, and at its close united in praise to God for having preserved their apostolical bishop Leo sound in body and soul.[^annallaurisseinhmaximvleonis]
+
+[^annallaurisseinhmaximvleonis]: Annal. Lauriss., Einh., Maxim., V. Leonis, c. 22; and for the oath see MG. SS., II., 15.
+
+The oath, upon good authority, is agreeably to the Roman ritual, and according to precedent. Pope Pelagius I. thus purged himself from the charge of having caused the death of Vigilius, his predecessor.[^jafferegestapontif]
+
+[^jafferegestapontif]: Jaffé, *Regesta Pontif. Rom.* [Latin] p. 83. Epist. Carol. (Jaffé), IV., 378; Baronius, s. a. 800.
+
+The same day on which Leo avouched his innocence, there arrived in Rome the presbyter Zacharias, one of the Court clergy at Aix-la-Chapelle, whom Charles had sent about a year before as bearer of his bounty to the Holy Sepulchre and the other Holy Places. He now returned accompanied by two Eastern monks, belonging respectively to the monasteries on the Mount of Olives and at St. Sabas. They were sent by the patriarch of Jerusalem, who in token of his high regard for the king committed to their care his "benediction," consisting of the keys of the Holy Sepulchre and of Mount Calvary, together with those of the city of Jerusalem and of Mount Zion, as well as of a standard, called that "of the cross," and "the silver standard." There is no doubt that these gifts were symbolical, and betokened the subjection of all those places to the supremacy of Charles. Their presentation on the eve of his coronation as Emperor of the West was a happy and grateful omen. We shall show on a subsequent page their true import; it is sufficient to state here that his supremacy over the Holy Places was purely honorary and nominal.
+
+So distinguished and rare a compliment, however, secured to the monks a warm reception, and munificent reward.[^annallaurisseinhchronmoiss]
+
+[^annallaurisseinhchronmoiss]: Annal. Lauriss., Einh.; Chron. Moiss.; Alcuini ep. 159.
+
+The impressive service connected with the unique exculpation of Leo took place three days before Christmas. The interval was devoted by him, the assembled hierarchy and clergy, the Roman and Frankish nobles, and even the Roman people, to the discussion of the grand question of the coronation of Charles as Roman emperor.
+
+It took a wide range. Certain deputies waited upon Charles at the time, that is, during the interval between his public entry and Christmas, representing that, in consequence of the events at Constantinople, the name of emperor had been virtually abolished; they dwelt upon the outrageous conduct of the Empress Irene, who, after possessing herself of the person of her unfortunate son, caused his eyes to be put out, and, after the example of Atalia, usurped the throne. It was intolerable, and against all reason, that Charles should continue to hold the office of patrician, which implied subordination to the Byzantine sovereign, under such a woman.
+
+The matter was communicated to Leo, who thereupon convened a General Council, or Synod, composed of all the bishops and clergy then present in Rome, together with the Senate or councillors of the Franks, the Roman nobility, and representatives of universal Christendom, and referred the question to their adjudication.
+
+Charles, it was argued, ought to be proclaimed Emperor, because he was Master of Rome, the mother of empire, where the Cæsars and emperors had always been wont to reside; he was also Master of Italy, Gaul and Germany; God had manifestly blessed his arms, and put all these lands in his power. Who, they asked, should defend the Church, who could defend her from the insults of the pagans, but an emperor?
+
+The Greeks had deserted her, and allowed the very name of emperor to lapse. Was it, therefore, not fit and just that, with the help of God, the name and title of emperor should be given to Charles?[^annallauresh801]
+
+[^annallauresh801]: Annal. Lauresh., 801; Chron. Moiss., cf. Vita Willehadi, c. 5, in MG. SS. II., 381.
+
+The Council decided that this was the only true and just course, and drew up a petition to Charles, in which all Christendom besought him to assume the style and title of emperor.
+
+He felt that he durst not say no to his petitioners, who voiced the sentiment of the Church and the Christian world, saying that it was his duty, in all humility, to bow to the will of God, and gratify the Council.
+
+The forthcoming coronation was the absorbing theme of Rome; couriers announced the event to Pepin, and it seems safe to conclude from the undoubted fact of his presence in the city before the Epiphany, 801, that is January 6th,[^annaleinh360] that he spent Christmas there, and was in attendance upon his father at the solemnities of that day.
+
+[^annaleinh360]: Annal. Einh.
+
+The feast of the Nativity, the most gladsome festival of the Church, was near at hand. When the Christmas chimes awakened Rome, they fell upon the ears of a vast multitude alive to the fact that never since the establishment of the faith was the Bride of Christ more beauteously arrayed; never before had the Church militant here upon earth had such an antepast of the Church triumphant in heaven.
+
+The glorious memories of departed greatness were awakened; the dark shadows of the long night of sorrow, first under a race of emperors hostile to the faith, then under another which disgraced the purple, and yet under a third which from afar chained the Church to an intolerable despotism, or allowed her to groan under the heel of Lombard oppression, were passing away, and the Christmas sun rose with healing in his wings.
+
+Never before had the basilica of St. Peter, the prince of the apostles, and key-bearer of the kingdom of heaven, held so extraordinary, devout, enthusiastic and distinguished a congregation as on that day.
+
+The noble pile, but lately enriched with the most costly gifts, placed by the munificence of Charles at the disposal of Leo, was radiant in the effulgence of glory. The spoils of the Avars had been converted into the most beautiful ornaments consecrated to the worship of the King, whose natal day was then being celebrated.
+
+Before the altar stood the golden censers, which weighed seventeen pounds; three hundred and seven pounds of solid silver had been wrought into three grand coronas, ablaze with a glory of waxen light, diffusing its softness over the vast edifice.
+
+The shrine of St. Peter dazzled the eye by its "rugas,"[^rugassenrugulas] made of forty-nine pounds of the purest gold, and reflecting the light and sparkle of innumerable gems. There waved the superb white silken curtains, embroidered with roses, a central cross in purple and gold, and a rich border all around; and grander still, the glory and crown of all the beautiful paintings, the peerless picture of the Saviour, suspended under the key-stone of the principal arch, fascinated every eye, and exalted the faith of the worshippers.[^anastvitaleoniii]
+
+[^rugassenrugulas]: "*. . . Rugas*, sen *Rugulas nihil alind quam Portas, porticellas fenestellasve, quæ tum ad ingressum presbyterii tum in vestibulo altaris, tum intra et extra Confessionem erat, tum denique cancellis intermixtæ: atque inde vocem Italicam* Ringhiere, *quæ fenestellas ciboriorum hodie quoque significat, derivatam fuisse.*" [Latin]—Du Cange s. v. *Ruga* [Latin].
+
+[^anastvitaleoniii]: Anast. *Vita Leon. III.* [Latin]—apud Migne, CXXVIII., 1210.
+
+Through the wide portals of the church filed the bronzed veterans of the Frankish host and the body-guard of Charles; the nobility of Rome and the flower of the people, together with the most illustrious counts, generals, the Court of the monarch, and the pontifical officers.
+
+There were warriors from Septimania and Aquitaine, from Austrasia and Neustria, from Saxony, Bavaria, Friuli, and many a Lombard town, whose martial uniforms, of divers colors, with their corslets and winged helmets of glittering steel, contrasted with the more gorgeous robes of civic functionaries, the white dalmatics of the army of priests around the chancel, and the gorgeous vestments of the hierarchy in Rome assembled.
+
+All Christendom was represented, and if the oriental monks might be regarded as messengers of Harun-al-Raschid, the commander of the Crescent, the great friend and admirer of Charles, also witnessed the memorable transactions of the day. Near the shrine of St. Peter, close to Leo, were Charles, King of Austrasia, Pepin, King of Italy, other members of the royal family, and, overtowering all the rest, Charles, probably clad in Roman costume, the observed of all observers.
+
+There were present those who remembered him bidding defiance to the Saracens beyond the Pyrenees, chastising the Saxons, and the dusky Avars, or sweeping like a whirlwind over the plains of Lombardy and the downs of Gaul.
+
+To all he was the embodiment of earthly power, the deliverer, defender, and patron of the Church, the avenging judge of her enemies, the potent scourge of infidel and pagan.
+
+The jubilant strains of Christmas joy introduced the solemn service. Mass was said, and Charles knelt in prayer. As he rose from his knees, some say, while he was still kneeling before the altar, standing before it and "the Confession," that is, the tomb of St. Peter, Leo took a splendid golden crown from off the altar, and, placing it upon his brow, exclaimed:
+
+"Long life and victory to Charles, the most pious Augustus, by God crowned the Great and Pacific Emperor of the Romans!"
+
+Under an impulse, they say, proceeding from God and St. Peter, the dome resounded with the same acclamation, thrice repeated, by the multitude of the assembled soldiery, people, and clergy.
+
+As it died away, the solemn chant of the "laudes," or a litany, arose, and at its conclusion, Leo, after the demonstrative usage observed at the coronation of the Byzantine emperors, fell down at the feet of Charles and adored him.
+
+The act of adoration was succeeded by that of unction, the pontiff anointing with holy oil, from the head to the feet, first Charles the Emperor, then his son King Charles,[^vitaleonisiiialcepp] who had borne the regal title since 789, when his father assigned to him the duchy of Maine.[^seetheauthoritiessimsonb]
+
+[^vitaleonisiiialcepp]: Vita Leonis III., Alc. Epp. 162, 163 (ed. Jaffé). The slip-shod statement that *Pepin* was crowned and anointed, repeated in otherwise respectable books, ought to be corrected. Pepin was anointed king in 781.
+
+[^seetheauthoritiessimsonb]: See the authorities cited by Simson, *l. c.* [Latin] II., 6.
+
+An oath of office was not administered; at least, no evidence to that effect can be found in contemporary writers. Whoever is responsible for that given by a Roman cardinal we cannot tell, but as it is the form which, upon his authority, was afterwards used on similar occasions, it is here presented. It reads thus:
+
+"I, Charles, emperor, engage and promise, in the name of Christ, in the presence of God, and St. Peter the apostle, to protect and defend the Holy Roman Church in all things profitable to the same, and, God being my helper, to the best of my knowledge and ability."[^baroniustix]
+
+[^baroniustix]: Baronius, t. ix., ad a. 800.
+
+Mass being ended, Charles made a precious offering to St. Peter's, and extended his liberality both to that basilica and other churches. Thus we read that he presented immediately after the coronation a silver table, and, in conjunction with his son Charles and his daughters, divers golden vessels, belonging to the table, weighing five hundred pounds; this he followed up on the Feast of the Circumcision, by a superb golden corona, ornamented with precious stones, which was suspended over the altar, weighing fifty pounds, and on the Feast of the Epiphany by three golden chalices, forty-two pounds in weight, two for his children and one for himself, and a golden paten twenty-two pounds in weight. The basilica of St. Paul received a silver table, fifty-five pounds in weight, with sundry vessels thereto pertaining; the basilica of Constantine, a magnificent cross set with sapphires, an altar, and an *evangelium* [Latin] of purest gold, set with jewels, etc., etc.; the pope also was made the recipient of magnificent gifts, and he distributed three thousand pounds of silver among the poor.[^authoritiesforthecoronation]
+
+[^authoritiesforthecoronation]: Authorities for the coronation, etc. General: Annal. Einh., Maxim., Lauriss., V. Leonis III., Vita Caroli, c. 28, and the lesser authorities cited in Simson, *l. c.* [Latin] II., 235 sqq. Mühlbacher, *l. c.* [Latin], p. 147 sq. On the unction: V. Leonis III.; Flodoard, *l. c.* [Latin] (Muratori, col. 285); cf. Theoph. Chronogr. *l. c.* [Latin], p. 733; Const. Manasses, *Compend. Chronic.* [Latin] V. 4517 sqq. On the offerings: Vita Leonis III.; Annal. Altah. in MG. SS. XX., 783; Nordhumbr. a. 800, cf. Vita Carol. c. 27.
+
+His biographer doubtless thought of these and previous offerings when he wrote: "He cherished the Church of St. Peter the Apostle at Rome, above all other holy and sacred places, and heaped its treasury with a vast wealth of gold, silver, and precious stones. He sent great and countless gifts to the popes; and throughout his whole reign the wish he had nearest at heart was to re-establish the ancient authority of the city of Rome under his care and by his influence, and to defend and protect the Church of St. Peter, and to beautify and enrich it out of his own store above all other churches."[^vitacaroli27]
+
+[^vitacaroli27]: Vita Caroli, c. 27.
+
+Such are the details of that important act, so long, laboriously, and thoughtfully prepared, and provided for, concerning which the biographer of Charles writes as follows: "It was then that he received the titles of Emperor, and Augustus, to which he had at first such an aversion, that he declared, that had he been able to foresee the pope's intention, he would not have set foot in the church the day they were bestowed, although it was a high festival."[^ibidc28]
+
+[^ibidc28]: Ibid. c. 28.
+
+This passage is positively startling; it takes one's breath away by its flat contradiction of all that had occurred since Leo's visit to Paderborn. One shrinks from applying the sting and stigma of hypocrisy to the high parties concerned in the transaction. Charles was certainly no hypocrite, still less the creature of Leo. Why, then, should he, how could he, have committed himself to so transparent an affectation?
+
+History, as read in the Annals, the epistles of Hadrian and Alcuin, the verses of Theodulf, the Chronicle of John the Deacon, and the events culminating in the coronation, as just narrated, would require the absolute rejection of Einhard's statement, if it bore only one explanation, but fortunately for his reputation as a trustworthy historian, it admits another, which does not lie on the surface.
+
+The impending coronation, so long and ardently desired, could not have been a surprise to anybody, least of all to Charles.
+
+The surprise was the unexpected, unforeseen, and audacious act of Leo. The crown lay on the altar; Charles had knelt in prayer, and was in the act of advancing, on bended knee and in reverential adoration, to the altar, for the purpose of taking the crown and with the intention of placing it on his head with his own hands, when Leo, in an access of irresistible impulse, some say, by inspiration, seized the diadem, and performed the coronation. The solemnity of the moment, and regard for decorum, moved Charles to repress his indignation, and tolerate the unwarranted and unauthorized improvisation. But he divined the pontiff's motive, and dreading the consequences of his officious interference, as a most dangerous precedent which might be cited in support of the papal claim to the bestowal of the imperial crown, tried to correct it on the occasion of his son's institution as his successor. Viewed in this light, it is credible, and highly probable, that the reception of his imperial titles, under such circumstances, filled him at first "with such an aversion that he declared that he would not have set foot in the church the day that they were conferred, although it was a great feast-day, if he could have foreseen the design of the pope."[^vitacaroli28]
+
+[^vitacaroli28]: Vita Caroli, c. 28.
+
+This construction is confirmed by the circumstances attending the coronation of Louis, when neither the pope nor any other ecclesiastic placed the crown on his head but he himself commanded Louis to take it from off the altar and set it on his own head.[^thegan6] Einhard says, that Charles placed it on his head, but he is doubtless inaccurate in that statement.[^vitacaroli30]
+
+[^thegan6]: Thegan. c. 6.
+
+[^vitacaroli30]: Vita Caroli, c. 30, cf. Einh. Annal.
+
+That feeble monarch allowed himself to be persuaded that the act was not sufficient, and not only submitted to a second coronation at St. Remi by Pope Stephen V. (who brought the crown along with him, which later writers said was that of the Emperor Constantine), but to unction.[^a816thegan]
+
+[^a816thegan]: a. 816.—Thegan. cc. 16, 17; Erm. Nig. *l. c.* [Latin] II., 451.
+
+The reader will bear in mind that Einhard wrote the biography of Charles in the reign of Louis and his own sagacity may supply the rest.
+
+The coronation of Charles as emperor of the Romans necessarily abolished his title of "patrician," and sundered the bond of union which had so long existed between the ancient Rome of the West, and the New Rome of the East.
+
+A sarcastic Greek, in not over-complimentary phrase, calls it the separation of "New Rome, the beautiful maiden, from the wrinkled Old Rome."[^constantmanass] Some papal writers describe the transaction which was manifestly a *coup d'état* [French], and an act of usurpation, as a transfer of the empire, by Leo, to Charles.
+
+[^constantmanass]: Constant. Manass. Chron. Syn.
+
+But neither had the Empress Irene renounced her rights, nor Leo, her vassal, acquired any, except by the dangerous and astounding fiction of the Vicar of St. Peter's title to all the kingdoms of the earth. The notion of a transfer, therefore, is absurd. The Western empire, moreover, had practically ceased to exist, and this shows that the event of the coronation was not, and could not be, in any sense, a transfer, but a renewal or restoration, and this was manifestly the view taken at the time, as attested by commemorative coins still extant, bearing the legend, *Renovatio Imperii* [Latin], that is, the Restoration of the Empire.
+
+It is, therefore, more correct to say that Leo restored the title of the imperial office, which more than three centuries before lapsed with Momyllus Augustulus, the last emperor of the West, in order that the Church of Rome might have in Charles a protector against the machinations of heretics and tumultuous persons, an office which the emperors of the East appeared to have relinquished long before.[^baroniusbellarm]
+
+[^baroniusbellarm]: Baronius; Bellarm. *De Transl. imperii* [Latin], I., 4; Sigonius, *De regni Ital* [Latin], ad a. 801; Pagi, ad a. 800, No. 10.
+
+**801]** It remains to state that a few days after the coronation the emperor sat in judgment upon the promoters of the conspiracy against Leo. The facts established against them appear to have been overwhelming; it is said that during the examination, which at one time, at least, included the confrontation of the accused, Campulus cried out to Paschalis: "It was an evil hour in which I saw thy face, for it is thou who hast brought me into this peril."[^vitaleonisiiimigne1218] Their mutual incriminations established the guilt of all, and under Roman law they were tried for the crime of high treason, and sentenced to death. Leo interceded for them successfully, while the emperor granted them life, forbade their mutilation, and sent them into exile in Francia.[^annallaurisseinhmaximvitaleon]
+
+[^vitaleonisiiimigne1218]: Vita Leonis III., Migne, t. CXXVIII., 1218.
+
+[^annallaurisseinhmaximvitaleon]: Annal. Lauriss., Einh., Maxim. Vita Leon. III.
+
+The statement that only the most distinguished conspirators had the benefit of executive clemency, and that three hundred of the rest were executed with the sword, or hung, is remanded to the realm of fable.[^annaleinhmaximguelf]
+
+[^annaleinhmaximguelf]: Annal. Einh., Maxim., Guelf. a. 800.—Annal. Nordhumbr. a. 800; Libell. de imper. pot. MG. SS., III., 720; Ekkehard. Chron. 801, ib. VI., 169.
+
+A concluding paragraph of this section may be devoted to a brief outline of the imperial power at Rome. The emperor had the prerogative of revising the election of the pope, who could not be consecrated without his express approbation. It was required "that the decree of the election, duly furnished with the signatures of the electors, should be sent by the hands of ambassadors to the emperor for his written approbation."[^simsonlc245] He had the right of exacting the oath of allegiance from the Romans.[^thegan16mg] He had the right of sending his *missi* [Latin] into the papal possessions, and they sometimes discharged the duties of their office in so objectionable and injudicious a manner as to draw forth a mild protest on the part of Leo. They disregarded the authority and feelings of the pontiff in the arbitrary removal of many people from one place to another, and the imposition of onerous taxes, even to the extent that the pontifical dukes were unable to collect and remit his own dues.[^leonep2]
+
+[^simsonlc245]: Simson, *l. c.* [Latin] II., 245 and the notes, containing all the authorities *in extenso* [Latin].
+
+[^thegan16mg]: Thegan. 16, MG. SS. II., 594. Vita Sergii. II., apud Murat. Rer. It. SS. III., 1, p. 228. Flodoard. ib. III., 2, 292.
+
+[^leonep2]: Leon. ep. 2 (a. 808), ed. Jaffé, IV., 312.
+
+There is also of record an instance in which the emperor, as was his wont elsewhere, exercised supreme judicial functions in the city of Rome, and at the time immediately following his coronation.
+
+He sat in St. Peter's where the bishop of Arezzo appeared as plaintiff against the bishop of Siena in the matter of the monastery of St. Ansanus and other churches, of which he and his predecessor in the see of Siena had unjustly deprived him, and now prayed for their restoration to the jurisdiction of Arezzo. Charles taking cognizance of the sentence, rendered at his request by the pope and other bishops present, ordered, according to Canon Law, the restoration of the ancient possessions of the church of Arezzo, and issued his diploma under date, March 4, 801.[^bohmermuhlbacher149]
+
+[^bohmermuhlbacher149]: Böhmer-Mühlbacher, *l. c.* [Latin], p. 149. No. 363; Sickel, K., 173; Simson, *l. c.* [Latin], II., 248.
+
+These facts agree in all points with the tenor of an entire capitulum, claiming on the part of Charles supreme jurisdiction throughout those parts of Italy which obeyed his sceptre, and embraced, of course, the papal possessions.[^capitulareitalicum]
+
+[^capitulareitalicum]: Capitulare Italicum, apud Boretius, *l. c.* [Latin], p. 119; Böhmer-Mühlbacher, *l. c.* [Latin], No. 366.
+
+---
+
+## BOOK III.
+
+### THE IMPERIAL PERIOD.
+
+---
+
+## BOOK III.
+
+### THE IMPERIAL PERIOD.
+
+#### CHAPTER I.
+
+##### THE DIET AND THE CAPITULARIES.
+
+*The imperial "Title."—Forms of oath of allegiance.—The Diet: times of meeting, and method of business, in Committee, and in Joint Assembly.—Activity of the monarch.—Executive, and other officers.—Charles, supreme Judge.—His policy towards conquered provinces.—Military service:—"Capitulary of Boulogne."—Missi.—Despotism of the Caroline government.—A popular ratification.—The Capitularies.—Their classification.—Examples: Heristal, 779; Frankfort, 794; Thionville, 805 or 806.—Legislative ability of Charles.—The "Provincial Synods:" their work, and its redaction by Charles.—Abstract of canons.*
+
+**801]** One of the first authentic tokens of the change introduced in the administration of the Frankish realm appears in the preamble to the legal instrument named at the close of the preceding chapter. The phraseology is strikingly peculiar, and reads as follows:
+
+"Charles, by divine command crowned, ruling the Roman Empire, Serenissimus Augustus, to all dukes, counts, prefects, and all others of our clemency set in authority throughout Italy, greeting. In the year of the Incarnation of our Lord DCCCI., of the Indiction IX., of our reign in Francia XXXIII., in Italy XXVIII., and of our Consulate I."[^baluzius346]
+
+[^baluzius346]: Baluzius, I., 346; Boretius, *l. c.* [Latin], 119.
+
+It differs in some respects from the new title, found in almost all official documents of later date, of the tenor here set forth: "Charles Serenissimus Augustus by God crowned great and pacific emperor, ruling the Roman Empire, and by divine mercy King of the Franks and Lombards."[^sickelul263]
+
+[^sickelul263]: Sickel, *U. L.* [German], 263.
+
+A similar change was introduced in the important form of the oath of allegiance so often mentioned in the course of this history.
+
+The old form ran thus:
+
+"I declare and promise without fraud and malice that I am, and will be, faithful to my lord King Charles, and his sons, all the days of my life."[^capitula789]
+
+[^capitula789]: Capitul. a. 789.—Baluz. I., 241, 243, c. 2; Boretius, *l. c.* [Latin], 67.
+
+Its terrible simplicity was well understood throughout the Frankish dominions, and the consequences of its infraction may be illustrated by the fate of the Saxons and Avars, the fall of the Lombards, the degradation of Tassilo, and hosts of others.
+
+The new oath, prescribed to be administered by special *missi* [Latin] throughout the realm to all persons, from twelve years upward, was set forth in two forms, one for those who took it the first time, and another for those who had taken it to the king, and were now required to renew it to the emperor.
+
+The former swore:
+
+"I promise on oath that from this day forward I am faithful to lord Charles, the most pious emperor, son of King Pepin and Berthana his queen, with a pure mind, without fraud or malice, of my part to his part, and to the honor of his government, as of law a man is bound to be to his master. So help me God and the patronage of the Saints, whose relics are in this place, because all the days of my life I will thus attend and of my own free consent, according to the light to me vouchsafed."
+
+The latter swore:
+
+"I repromise on oath to lord Charles, the most pious emperor, son of King Pepin and Berthana, that I am faithful as of law a man is bound to be to his master, both as touching his reign and his rights. And this oath, which I have taken, I will, and intend to keep, so far as I know and understand, from this day forth. So help me God, who made heaven and earth, and the patronage of these Saints."[^capitula802]
+
+[^capitula802]: Capitul. a. 802; Baluz. I., 362; Boretius, 71.
+
+    Text of the forms of oath.
+
+    I.—Old Oath.
+
+    "*Sic promitto ego ille partibus domini mei Caroli regis, et filiorum eius, quia fidelis sum et ero diebus vitæ meæ, sine fraude et malo ingenio.*" [Latin]
+
+    II.—New Oaths.
+
+    1.
+
+    "*Sacramentale qualiter promitto ego quod ab isto die inanteà fidelis sum Domno Karolo piissimo Imperatori, filio Pippini Regis et Berthanæ Reginæ, pura mente, absque fraude et malo ingenio de mea parte ad suam partem, et ad honorem regni sui, sicut per drictum debet esse homo domino suo. Sic me adiuvet Deus, et ista Sanctorum patrocinia quæ in hoc loco sunt, quia diebus vitæ meæ per meam voluntatem, in quantum mihi Deus intellectum dederit, sic attendam et consentiam.*" [Latin]
+
+    2.
+
+    "*Sacramentale qualiter repromitto ego Domno Karolo piissimo Imperatori, filio Pippini Regis et Berthanæ, fidelis sum sicut homo per drictum debet esse domino suo, ad suum regnum et ad suum rectum. Et illud sacramentum, quod iuratum habeo, custodeam et custodire volo, in quantum ego scio et intelligo, ab isto die inanteà. Sic me adiuvet Deus qui cœlum et terram creavit, et ista Sanctorum patrocinia.*" [Latin]—Baluz. I., 378.
+
+Special *missi* [Latin] had instructions to administer this oath to every subject, cleric, or layman and explain it publicly, in order that all persons might understand it in all its bearings. They were most comprehensive, covering not only fidelity to the emperor throughout life, and binding the subject on no pretence to facilitate the ingress of enemies; aid in, abet, or conceal any act of unfaithfulness on the part of others, but enjoining him to keep the laws of God, refrain from withholding anything belonging to the emperor, from acts of violence against churches, widows, and strangers, on the ground that next to God the emperor is bound to hold such under his immediate protection. It warned him, moreover, to refrain from the alienation of imperial fiefs, the neglect of the *heerbann* [German], and, in the case of counts, from unlawful or corrupt dispensation from the same, from every kind of disobedience, and from the corrupt or unjust administration of the law.
+
+It was a most solemn and important act, and left no loop-hole of escape to any tempted to take it lightly, unadvisedly, or with mental reservation.[^capitmissorumgenerale]
+
+[^capitmissorumgenerale]: Capit. missorum generale, 1–9, *ll. cc.* [Latin]
+
+Before passing to the consideration of the legislation of Charles, as the most striking characteristic of the imperial period of his reign, it seems appropriate to glance at the constitution, method, and rules of order observed at the Diets, *placita* [Latin], or Annual Assemblies, at which the laws were made and promulgated.
+
+Our sketch follows the account of Adalhard, abbot of Corbie, the cousin-german of Charles, his trusted, loved, and highly-honored confidential adviser and friend. It was originally in the form of a treatise unfortunately lost. But Hincmar, archbishop of Rheims, who in early youth was personally acquainted with Adalhard, fortunately read and copied the lost treatise, and was able to reproduce it about the close of the ninth century for the guidance of certain nobles seeking his advice with respect to the government of Carloman, son of Louis the Stammerer.[^ephincmar]
+
+[^ephincmar]: Ep. Hincmar. *de ord. et offic. palat* [Latin] apud Duchesne, II., p. 490 sqq.
+
+It specified among other matters that the status of the whole empire consisted of two grand divisions, one containing the fixed and permanent constitution of the Court, the other defining the policy to be followed in the government of the entire monarchy. Among the provisions laid down for the holding of the Diet are these:
+
+"It was customary at this time to hold two Assemblies every year, one in spring, of a general character, and another in autumn, attended only by the most prominent seniors and counsellors. . . .
+
+"In both, that they might not seem to have been convoked without motive, there were submitted, . . . by virtue of royal order, the fragments of law, called *capitula* [Latin], which the king himself had drawn up under the inspiration of God, or the necessity for which had been manifested to him in the intervals between the meetings. . . .
+
+"On these communications they deliberated two or three days more according to the importance of the business. Palace messengers, going and coming, took their questions and carried back the answers. No stranger came near the place of their meeting until the result of their deliberations had been submitted to the scrutiny of the great prince, who then, with the wisdom he had received from God, *adopted a resolution which all obeyed*. . . .
+
+"Thus things went on for one or two capitularies, or a greater number, until, with God's help, all the necessities of the occasion were regulated.
+
+"Whilst these matters were thus proceeding out of the king's presence, the prince himself, in the midst of the multitude, came to the General Assembly, was occupied in receiving the presents, saluting the men of most note, conversing with those he saw seldom, showing towards the elder a tender interest, disporting himself with the youngsters, and doing the same thing, or something like it, with the ecclesiastics as well as the seculars. However, if those who were deliberating about the matter submitted to their examination, showed a desire for it, the king repaired to them and remained with them as long as they wished; and then they reported to him with perfect familiarity what they thought about all matters, and what were the friendly discussions that had arisen amongst them.
+
+"I must not forget to say that, if the weather were fine, everything took place in the open air; otherwise, in several distinct buildings, where those who had to deliberate on the king's proposals were separated from the multitude of persons come to the Assembly, and then the men of greater note were admitted.
+
+"The places appointed for the meeting of the lords were divided into two parts, in such sort that the bishops, the abbots, and the clerics of high rank might meet without mixture with the laity.
+
+"In the same way the counts and other chiefs of the State underwent separation, in the morning, until, whether the king was present or absent, all were gathered together; then the lords above specified, the clerics on their side, and the laics on theirs, repaired to the hall which had been assigned to them, and where seats had been with due honor prepared for them.
+
+"When the lords, laical and ecclesiastical, were thus separated from the multitude, it remained in their power to sit separately or together, according to the nature of the business they had to deal with, ecclesiastical, secular, or mixed. In the same way, if they wished to send for one, either to demand refreshment, or to put any question and to dismiss him after getting what they wanted, it was at their option. Thus took place the examination of affairs proposed to them by the king for deliberation.
+
+"The second business of the king was to ask of each what there was to report to him, or enlighten him touching the part of the kingdom each had come from. Not only was this permitted to all, but they were strictly enjoined to make inquiries, during the interval between the Assemblies, about what happened within or without the kingdom; and they were bound to seek knowledge from foreigners as well as natives, enemies as well as friends, sometimes by employing emissaries, and without troubling themselves much about the manner in which they acquired their information. The king wished to know whether in any part, in any corner of the kingdom, the people were restless, and what was the cause of their restlessness; or whether there had happened any disturbance to which it was necessary to draw the attention of the Council-General, and other similar matters.
+
+"He sought also to know whether any of the subjugated nations were inclined to revolt; whether any of those that had revolted seemed disposed towards submission, and whether those that were still independent were threatening the kingdom with any attack. On all these subjects, whenever there was any manifestation of disorder or danger, he demanded chiefly what were the motives or occasion of them."
+
+The decisions, resolutions, decrees, precepts, and capitularies enacted by the Annual Assembly passed into the hands of the Executive, always in attendance upon the person, or within call of the monarch, in the palace, which, during the last years of his reign, was established at Aix-la-Chapelle.
+
+Although an autocracy, pure and simple, the government of Charles was patriarchal, paternal, and even domestic. The whole realm was his family and household, over which he presided as father, and his queen as mother.
+
+All matters of etiquette and ceremony, the annual gifts of the soldiers, and the general conduct of palatial and domestic affairs devolved officially upon the queen.[^hincmarlcxiii]
+
+[^hincmarlcxiii]: Hincmar, *l. c.* [Latin], c. XIII.
+
+The military estate was the foundation of the Caroline government; it was the avenue to preferment, and, with few exceptions, all civil officers were also soldiers; those who were not soldiers were ecclesiastics.
+
+The chief officers, few in number, will be considered separately; of the rest it may suffice to indicate the name and nature of their functions.
+
+The Arch-Chaplain, also called Custodian of the Palace, and *apocrisiarius* [Latin], literally the answer-giver, was the sovereign's eye, ear, and mouth, his privy councillor, notary, and secretary. All matters spiritual and ecclesiastical passed through his hands, and as these, in the reign of Charles, were of supreme importance, it follows that his office was first in dignity and influence. The Arch-Chaplain was also clothed with judiciary powers second only to those of the monarch. This high office was held successively by Folrad, abbot of St. Denis, Angilram, bishop of Metz, and Hildibald, archbishop of Cologne.
+
+Among other functions which he held was that of Dean of the Royal, or Imperial Chapel, an establishment to which quite a number of distinguished men were permanently attached. It was of a collegiate character, and Maginarius, Angilbert, the presbyter Zacharias and others belonged to it.
+
+The Arch-Chaplain seems to have shared the vast burden of his portfolio with the Chancellor, whose duties appear to have been of a similar character. He stood in near personal relations to the sovereign, and held a post answering to that of a modern Prime-Minister, or Secretary of State.
+
+It is known that Hitherius, Rado, Ercanbald, Jeremias, and Einhard, successively discharged the duties of the chancellorship.
+
+Next in importance and influence was the office of the Count Palatine, which seems to have combined the functions of a supreme judge and those of a minister of police.
+
+"Among the countless other matters pertaining to his department were all law suits, no matter where they might have originated, which came up for final adjudication, in order that justice and equity might prevail, and all false or unjust decisions undergo correction conformably to the law of God and that of established usage. Cases not provided for in the Codes, or belonging to laws in conflict with the spirit and genius of Christianity, the Count Palatine was obliged to refer to the king. The latter, on such occasions, took the opinion of good and learned lawyers, fearing God more than man, with a view to determining the true merits of such cases, and deciding them, if possible, by the law of God or of man; but if that could not be done, the human code had to yield to the divine, in order that the justice of God might prevail."[^hincmarlcxxi]
+
+[^hincmarlcxxi]: Hincmar, *l. c.* [Latin], c. XXI.
+
+Modern lawyers may smile or tremble at the thought of such herculean labor. Perhaps it sounds more tremendous than it really was, for we learn, on the same authority, that the Executive was supplied with a numerous corps of prudent, intelligent, and honest men, who wrote the royal precepts "without exorbitant venality of cupidity, and faithfully kept the confidential matters therein contained."[^ibidcxvi]
+
+[^ibidcxvi]: Ibid. c. XVI. Annal. Lauresh. a. 802.
+
+Such exemplary fidelity, trustworthiness, and purity would deserve to be held up to the admiration and imitation of all government officers, if the picture were only true.
+
+We may believe, or doubt, if the saintly Adalhard thought so. The good archbishop of Rheims doubtless cited him as his authority, but unfortunately his good opinion is flatly contradicted by numerous Capitularies and the Annals.
+
+The other officers were: the Chamberlain or Custodian of the Treasury; the Seneschal, or Marshal set over the rest of the servants, and over the table; the Constable was Master of the Horse; the *buticularius* [Latin], or Chief Butler, had charge of the cellar; the *mansionarius* [Latin], or Quarter-master General had the duty of providing "mansions" or quarters for the Court and strangers. There were four Masters of the Hunt; a Chief Falconer; a Chief Door-keeper; a *sacellarius* [Latin], or Custodian of the Fiscus, was probably only a janitor; a Master of the Wardrobe; there were likewise Masters of the wicker enclosures of the Game, Masters of the Hounds, and Masters of the Beavers.[^forfulldetails]
+
+[^forfulldetails]: For full details on these several officers, their functions, etc., see Du Cange, and the older glossaries under: *Apocrisiarius; cancellarius; comes palatii; camerarius; senescalcus; buticularius; comes stabuli; mansionarius; venator; falconarius; ostiarius; sacellarius; dispensator scapoardus; bersarius; veltrarius; beverarius* [Latin].
+
+The policy of Charles towards the conquered provinces bore harder on the deposed princes than on their subjects; the Lombards and Bavarians fared as well under his rule as under that of their former masters; perhaps, on the whole, their absorption into the Frankish dominion made life less burdensome and more enjoyable.
+
+As to the princes, they were made harmless by the simple expedient of sending them to the cells of monasteries outside their dominions, where, free from the perplexing cares and distractions of this naughty world, they might repent them of their sins, and make their peace with God. There they found peace, and ultimately—a grave.
+
+Their places, shorn of the attributes of sovereignty, Charles gave to loyal Franks, who under the title of Duke administered the provinces as local governors, and at his pleasure. The term "duke" in his reign lost its political significance, and designated not a sovereign or prince, but a military leader.
+
+The Counts, *centenarii* [Latin] or Hundreders, as well as the *thungini* [Latin] retained the status they had held in Merovingian times; but the power of the first, as well as their dignity, became greater. They were directly responsible to the crown, and often in their respective cantons, "counties," or *gauen* [German] the highest functionaries in a military, judicial, and administrative capacity.
+
+The other judicial officers named were petty judges, inferior to the Counts, with functions restricted to trifling matters, for as they lacked the competence of taking cognizance of cases of life and death, liberty and property, it is evident that they were only police magistrates.
+
+By far the most onerous duty devolving upon the people and flowing from the iron-clad oath of allegiance was the obligation to military service.
+
+This topic has already engaged our attention in another connection;[^seep103] but additional interesting details, drawn from one of the capitularies relating to it, are now in place.
+
+[^seep103]: See p. 103.
+
+The bill recites:
+
+1. That every freeman is liable to military service and, in the event of failure, subject to a fine of sixty solidi, called the *heerbann* [German], or the loss of his liberty, if he cannot pay the fine; the payment of the fine restores him to freedom; death alone annuls the obligation.
+
+2. Two-thirds of the *heerbann* [German] are payable to the sovereign, one-third to the count. Gold, silver, clothes, arms, game, and serviceable cattle are legal tender, but land and slaves are not legal tender, in payment of the *bann* [German].
+
+3. Delinquent beneficed persons, tardy in responding to the call for field service, are to undergo the punishment of subsisting on bread and water only for as many days as they are late.
+
+4. The crime of *herisliz* [German], or desertion from before the enemy, to be a capital offence.
+
+5. Refusal of a beneficed person to serve with his equal, to be punished with the loss of his benefice.
+
+6. Absolute defence of a demand for drink before the enemy. Inebriates in the army to be put on water. . . .
+
+The eighth article is given in full:
+
+"Ordered, that preparation for war follow ancient usage, as here set forth, to wit, 'victuals from the marche' for three months, arms and clothing for half a year. Which is to be understood as follows: For soldiers marching from the Rhine to the Loire, the Loire is the point where their victualling begins, but those marching from the Loire to the Rhine must have their three months' supply from the Rhine, while those living beyond the Rhine and marching through Saxony to the Elbe will understand that the Elbe is their 'marche;' and lastly those living beyond the Loire and under orders to march into Spain, will understand that the Pyrenees are their 'marche.'"[^capitulbonon]
+
+[^capitulbonon]: Capitul. Bonon. apud Boretius I., 166 sqq. Cf. the Capitulary named in n. 1, p. 104; and *Capitula de rebus exercit. in placito tractanda* [Latin], a. 811, Boretius, I., 164.
+
+It may not be superfluous to explain that as the victualling had to be supplied by the soldier, and the three months counted from the "marche," it follows that he had likewise to provide for his support to and from the "marche," which sometimes amounted to many days beside.
+
+As a rule the people were guaranteed the benefit of established usage and judgment under their own laws, provided they did not conflict with the numerous capitularies, promulgated at an alarming but doubtless necessary rate, for the laudable purpose of furthering the ends of justice and equity, and of correcting the defects and errors of the national laws. But as these were not only uncodified[^thefirstcodification] throughout the greater period of this reign, but most loosely and shamefully administered, it stands to reason that such a system was open to the gravest objections, and far too complicated to work smoothly.
+
+[^thefirstcodification]: The first codification was made in 803.
+
+Even the institution of *missi* [Latin], or special commissioners, clothed with extraordinary visitatory powers, and chosen—at least during the imperial period—from the purest, most affluent and able of dignitaries, secular and ecclesiastic, was inadequate to the correction of abuses arising from the avarice, arrogance, and incompetence of many counts and their subordinates.
+
+The despotism of the whole government of Charles was opposed to popular co-operation and decentralization. Liberty, as understood, say in Great Britain and the United States, was not only unknown, but inconceivable to Charles, who was undoubtedly the most liberal and intelligent man of his age, and in many of his views about five centuries in advance of his servants in or out of the Church. The reports of the *missi* [Latin] led to new acts of legislation, as they occurred to the *father* of the vast Frankish fatherland, and explain the singular repetitions found in the capitularies.
+
+A good illustration of the insufficiency of the Old Codes and their attempted amelioration by means of additions, together with the method observed for their ratification, is found in the brief preamble to the so-called Supplementary Capitula to the Salian Code, which are also embodied in the Ripuarian, Bavarian and Lombard Codes. It reads as follows:
+
+"In the name of Christ here begin the capitula of the **803]** law of the emperor Charles lately set forth (*inventa* [Latin]) in the third year of our most clement lord Charles Augustus.
+
+"In the said year these capitula were made and committed to Count Stephen for proclamation in the City of Paris at a public mall, and reading therein before the *scabini* [Latin]. This having been done, all with one consent assented thereto, promising to observe them from that day forth for all time to come; and this all the *scabini* [Latin], bishops, abbots and counts confirmed under their own hand."[^mglegesi2p112]
+
+[^mglegesi2p112]: MG. Leges, I., 2, p. 112.
+
+In Italy they were simply "proclaimed" without a popular ratification, and this arbitrary act gave rise to considerable trouble.[^epistcarol27]
+
+[^epistcarol27]: Epist. Carol. 27 (Jaffé); cf. capp. I., 1, apud Boretius.
+
+The ratification, of course, was a transparent farce, for since the *missi* [Latin] chose the *scabini* [Latin], and the bishops, abbots and counts present were bound to say "yea" to whatever came to them by imperial command, the unanimous acceptation and confirmation of the said laws by the mall was a foregone conclusion; even if the public, in a much wider sense, was present in the mall, and voted upon the laws, their vote doubtless confirmed that of the *scabini* [Latin], etc., for the Latin language, in which they were written, was unintelligible to them, the whole mall was made up of *Jamänner* [German], *i. e.* [Latin], of men who said "yea" to whatever the *missus* [Latin], and after him the *scabini* [Latin], might propose.
+
+The whole proceeding strikingly resembles the famous *plébiscites* [French] of Napoleon III., and the cut-and-dried business at the public meetings of political parties.
+
+The Capitularies open so vast, diversified, and instructive a range of topics that it is difficult to drop them, after they have been taken up. They contain by far the truest history of the times, and shed light on matters which the Annals, Chronicles, and Letters of the period touch only slightly, or wholly conceal. They are indispensable to this history, and, in fact, no person can write intelligently of Charles and his reign, or essay the portraiture of his age, without studying them in the light of the magnificent help provided by the laborious zeal of recent German investigators.[^irefermoreparticularly]
+
+[^irefermoreparticularly]: I refer more particularly to the works of Boretius, Ficker, Sickel, Böhmer-Mühlbacher, and Abel-Simson, so frequently cited in this volume.
+
+They are very numerous,[^seethelistappg384] and touch almost every conceivable subject in the realm of religion and the daily life of the period. They contain, according to one enumeration, eleven hundred and fifty-one articles or capitula, of which eighty-seven belong to morals, two hundred and seventy-three to politics, one hundred and thirty to penal provisions, one hundred and ten to civil subjects, eighty-five to religion, three hundred and five to Canon Law, seventy-three to domestic matters, and twelve to miscellaneous themes, or topics of circumstance.[^guizothistdelaciviliz]
+
+[^seethelistappg384]: See the list, Appendix G.
+
+[^guizothistdelaciviliz]: Guizot, *Hist. de la Civiliz. en France* [French], t. II., p. 146 sqq.
+
+This enumeration with analysis, may pass for general purposes, but the new material recovered will yield very different results.[^seethelistappg384b]
+
+[^seethelistappg384b]: See the list, Appendix G.
+
+Space fails us to enter fully into the subject, and the synopsis, without comment, of three capitularies, belonging to the three separate periods of the reign of Charles, must suffice in evidence of the statements made.
+
+I. Capitulary set forth in the Diet holden at Heristal in the month of March, 779.
+
+1. Enjoins Suffragan Bishops to obey the Metropolitan as the Canons provide.
+2. Enjoins the immediate consecration of Bishops not yet consecrated.
+3. Enjoins the inmates of monasteries and convents to live according to the Rule.
+4. Confirms the canonical jurisdiction of diocesans over their clergy.
+5. Grants to Bishops executive power over incestuous persons, and widows.
+6. Forbids the reception or ordination of stranger clerics.
+7. Enjoins tithes and their use as the Bishop directs.
+8. Denies the right of asylum and support to murderers and criminals under sentence of death who have taken sanctuary in a church.
+9. Enjoins the extradition of robbers from places of immunity to the Count's Court on pain of loss of fief or payment of the bann.
+10. Adjudges a perjurer to the loss of his hand, accords to the plaintiff the privilege of proof by the Ordeal of the Cross, but enjoins the use of lawful means in more important cases and especially in cases relating to liberty.
+11. Treats of the punishment of robbers, and of unjust sentences.
+12. Enjoins the observance of the laws set forth by his father Pepin.
+13. Enjoins the payment of tithe and the ninth, with interest, on rented ecclesiastical possessions, the renewal and recording of precarious possessions [*precariæ* [Latin]], and discriminates between *precariæ de verbo nostro* [Latin] and those voluntarily entered into.
+14. Prohibits *trustes* [Latin].
+15. Enjoins the observance of established regulations concerning *tributarii ecclesiarum* [Latin].
+16. Prohibits guilds requiring members to take an oath, but freely permits associations for mutual aid in fire and shipwreck not requiring the taking of an oath.
+17. Accords to travellers protection from bands [of robbers?], and limits the supply of provender to the military and *missi* [Latin].
+18. Forbids the levying of tolls previously forbidden.
+19. Forbids the sale of serfs except in presence of a Bishop, Count, Arch-deacon, Hundreder, etc., or other persons of good repute, and not beyond the marche.
+20. Forbids the export of corslets [*brunia* = *lorica* [Latin]].
+21. Regulates the process of such to whom justice has been denied.
+22. Regulates the process in cases where the penalty for feud is refused to be received or paid.
+23. Prescribes the punishment of robbers.[^boretiuscapit57]
+
+[^boretiuscapit57]: Boretius, Capit. 57; Böhmer-Mühlbacher, no. 213.
+
+II. *Capitulare* [Latin], set forth in the Synod of Frankfort, convened by papal authority and royal command, in the twenty-sixth year of the reign of Charles.
+
+1. Condemnation of the Adoptian heresy of Elipandus, Bishop of Toledo, and Felix, Bishop of Urgel.
+2. Condemnation of the Constantinopolitan decree on Image Worship.
+3. Proceedings in the matter of Tassilo.
+4. Tariff on cereals and bread; injunction to the royal lieges, or beneficiaries, not to allow any of their serfs[^serfsthatispersons] to die of starvation, and to sell first the stored surplus.
+
+[^serfsthatispersons]: Serfs, that is, persons compelled to labor on the soil where they were born, and without any right to go elsewhere without the consent of their lord, or master.
+
+5. Legalization of the new *denarii* [Latin], with fines.
+6. Jurisdiction of bishops over their clergy; co-operation of the counts; metropolitans and their suffragans to be a Court of Appeal in the second instance, the king in the last instance.
+7. Residence enjoined upon bishops and the parochial clergy.
+8. Decision of the difference between Bishop Ursio of Vienne, and the advocate of Bishop Elifant of Arles, etc.
+9. Decree concerning the purgation of Bishop Peter (Petrus) of Verdun, etc.
+10. Deposition of Bishop Gaerbod, upon his own confession of not having been ordained deacon or priest.
+11. Of the exclusion of monks from secular affairs, and judicial proceedings.
+12. *Reclusi* [Latin] must have the approbation of the bishop and the abbot.
+13. The abbot to sleep with his monks.
+14. Qualification of cellarists in monasteries.
+15. Of monasteries containing the bodies of saints.
+16. No money to be exacted from persons entering a monastery.
+17. No abbot to be elected without the bishop's consent.
+18. Abbots prohibited to blind or mutilate monks.
+19. Clerics forbidden to frequent taverns.
+20. Bishops required to know the Canons and the Rule.
+21. Sunday observance.
+22. Bishops not to be appointed in small towns and villages.
+23. Stranger serfs not to be ordained or received without the approbation of their masters.
+24. Of clerics and monks retaining their vocation.
+25. Ecclesiastical beneficiaries bound to pay the ninth, tithe, and rent; payment of tithe on personal property, with reference to the experience during the year of the great famine (a. 793) of *vacuas annonas a daemonibus devoratas* [Latin].[^seep308]
+
+[^seep308]: See p. 308.
+
+26. Beneficiaries bound to keep their churches in repair.
+27. Clerics forbidden to take a new cure, etc., without episcopal approbation.
+28. Absolute ordinations forbidden.
+29. Bishops enjoined to provide for the education of well-qualified successors.
+30. Disputes betwixt clerics to be decided by Canon Law, those betwixt clerics and laics by the joint action of the bishop and the count.
+31. Prohibition and dissolution of *conjurationes et conspirationes* [Latin].
+32. Of the conservation of monasteries.
+33. Of preaching on the Catholic dogma of the Trinity, the Lord's Prayer, and the Creed.
+34. Against cupidity and covetousness.
+35. Of hospitality.
+36. Of the disqualification of vicious persons as plaintiffs against nobles and bishops.
+37. Of ecclesiastical reconciliation in times of distress.
+38. Clerics of the Chapel Royal forbidden conversation with refractory priests, to prevent their falling under the ban.
+39. Of legal proceedings against priests seized in criminal acts.
+40. Female orphans to be educated by honorable matrons under the supervision of the clergy.
+41. Of the residence of the bishop in his see; his absence from the see on private business not to exceed three weeks; personal property acquired by him during his episcopate to go upon his decease to the Church, not to his relatives.
+42. Prohibition of the adoration of new saints.
+43. Of the continuance of the ecclesiastical injunction touching the destruction of holy trees and groves.
+44. Of the recognition of umpires chosen by both parties.
+45. Validity of church usage concerning witnesses; the exclusion of children as witnesses *sicut Guntbadingi faciunt* [Latin].
+46. Observance of the Canonical Rule as to the time when virgins may take the veil, and of their occupation to the twenty-fifth year of their life.
+47. Abbesses living contrary to their Rule to be denounced by the bishop to the king with a view to their deposition.
+48. Of the application of alms to the Church and the poor, agreeably to ecclesiastical statute.
+49. Ordination to the priesthood forbidden to take place before the thirtieth year.
+50. General *pax* [Latin] after Mass; participation in the Mass to be the token of mutual peace.
+51. The reading from the Diptychs not to take place until after the Oblation.[^accordingtoancientusage]
+
+[^accordingtoancientusage]: According to ancient usage there were in every church two written tables, "whereof one contained the names of all eminent bishops and clergymen then living, with whom the Church held communion and correspondence; the other the names of all eminent bishops and other men of their own or other churches then dead. The deacons rehearsed all the names in both tables, at the altar, whenever the Eucharist was celebrated. Those tables were by the Greeks called *Diptycha* [Latin], and by some English writers diptychs."—Johnson, *Vade Mecum* [Latin].
+
+52. Let no man believe that God may be prayed to in three languages only.
+53. Bishops and priests are required to know the Canons (cf. No. 20).
+54. Churches erected by free persons may be donated or sold, provided that they be not desecrated or destroyed.
+55. Address of the king, reciting that as with the approbation of Pope Hadrian, the archbishop Angilram was permitted *propter utilitates ecclesiasticas* [Latin] permanently to reside at Court, so, with the like papal approbation already obtained, he desired the Synod to sanction a similar arrangement on behalf of Bishop Hildibald (of Cologne).—Consent of the Synod.
+56. Request of the king that the Synod would on account of his ecclesiastical erudition receive Alcuin into their communion, and include him in their prayers.—Consent of the Synod.[^muhlbacherlcno316]
+
+[^muhlbacherlcno316]: Mühlbacher, *l. c.* [Latin], No. 316.
+
+III. Instruction for the *Missi* [Latin], set forth at Thionville, either in 805 or 806.
+
+1. Punishment of breakers of the peace.
+2. Legal protection for churches, widows, and orphans.
+3. Due regard to the royal immunity.
+4. Directs public prayers to be said in seasons of famine, pestilence, and other public calamity without special command of the king; the relief of the poor during the prevailing famine; the cheap price of grain; and forbids the exportation of necessaries of life.
+5. Forbids the use of arms at home, in order to check avengement of blood.
+6. Equipment for war as formerly directed, together with a corselet for every twelve *mansi* [Latin] on pain of loss of the fief and of the corselet, if it is left behind.
+7. Defines commercial limits against the Sclavonians, and Saxons on the line of Bardowick, Schessel, Magdeburg, Erfurt, Hallstadt, Forchheim, Bremberg, Ratisbon, and Lorch, and forbids the exportation of arms on pain of confiscation.
+8. Directs the maintenance of the old regulation requiring the incarceration of litigants refusing to respect or denounce the sentence of a judge.
+9. Enjoins the oath of allegiance to the emperor to be administered to those who could not take it before because disqualified by age.
+10. Directs the severe punishment of oath-bound conspiracies.
+11. Of the evidence of witnesses; perjury to be punished with the loss of the hand.
+12. Directs the removal of bad judges (*vögte* [German]) and officers, the choice of others able and willing to render justice, and the denunciation of bad ones to the emperor.
+13. Treats of the levying of only established and lawful tolls, etc.
+14. Treats of the process with regard to fugitives, etc.
+15. Forbids freemen to enter the clerical vocation without the emperor's permission, because men frequently did so in order to evade the *heerbann* [German] and the royal service, or to escape from covetous oppression.
+16. Forbids the oppression of poor freemen, etc.
+17. Forbids the worship of new saints and [erection of new] churches, unless by episcopal permission, etc.
+18. Forbids the stamping of coin in all places other than the royal palace until the capitulum is countermanded, because of the frequent occurrence of counterfeit money, etc.
+19. Enjoins the conscientious collection of the forfeited *heerbann* [German].
+20. Enjoins the payment of the royal tax (*Königszins* [German]) on the person, and property, where it has been in use.
+21. Process against robbers as formerly directed.[^theprocesswasbrief]
+
+[^theprocesswasbrief]: The process was brief but very emphatic; a robber was punished with the loss of his limbs for the first two offences, and of his life for the third. Capit. 779, c. 23, ed. Baluz., *l. c.* [Latin], t. I., p. 195.
+
+22. Treats of the security of patrimony, defence of one's own cause, and the competence to testify on the part of freemen marrying female serfs attached to domanial estates, as an honor due the emperor and his ancestors.[^boretiuslccapit87]
+
+[^boretiuslccapit87]: Boretius, *l. c.* [Latin], Capit. 87. Baluz., Capit. I., 423. Böhmer-Mühlbacher, *l. c.* [Latin], no. 406. Such serfs were called *fiscalinen* [German].
+
+It is almost certain that all the Capitularies, down to the minutest detail of each title, were drawn up under the dictate or eye of Charles, and express his mind far better than anything else which has come down to us. His legislative and administrative capacity was marvellous.[^seethenumberofcapitularies] The difficulties in the way of harmonizing the several national codes seemed to him much greater than the reconciliation of church laws, and the framing into one general Capitulary of the legislation necessary for the correction of abuses which had crept into the Church. The year before his death he directed, with a view to this grand reformation, the holding **813]** of five Provincial Synods at Mayence, Rheims, Tours, Chalons-sur-Saone and Arles. They were directed, most probably in a General Admonition, to give their attention to particular points, legislate upon them, and submit their resolutions for examination and final action to the emperor.
+
+[^seethenumberofcapitularies]: See the number of Capitularies set forth after 800, as plainly stated in the list, Appendix G.
+
+The Councils met, adopted altogether two hundred and forty-three Canons, and presented them to the emperor. The Council of Arles which adopted twenty-six Canons, of which only the first related to the Catholic Faith, the rest to discipline, accompanied them by a brief clause addressed to the emperor personally, in which the fathers desired his prudence to supply any deficiency, his judgment to correct any error, and his clemency, with the aid of God, to confirm whatever was reasonable in their legislation.[^thiswasnotemptyverbiage]
+
+[^thiswasnotemptyverbiage]: This was not empty verbiage, but profound conviction.
+
+The other Councils added similar clauses, and all the Canons after examination in Committee, probably under the immediate presidency of Charles (who was the best canonist of the age), were reported to the Diet, in the form of a digest or collation, from which he selected twenty-six brief capitula which were set forth for the whole empire. Copies might be had in the several episcopal cities, as well as at Aix-la-Chapelle where they were placed in the Archives.[^labbeconcil]
+
+[^labbeconcil]: Labbe, *Concil.* [Latin] ed. Coleti IX., 375; Mansi, XIV. b 343; Sirmond. *Concil.* [Latin] II., 323; Le Cointe, *Annal. Eccl. Franc.* [Latin] VII., a. 813.—Böhmer-Mühlbacher, *l. c.* [Latin], no. 468; Abel-Simson, *l. c.* [Latin], II., p. 502 sqq.—Annal. Einh., Chron. Moiss., a. 813.—Cf. also Fragm. Vitæ S. Barnardi, apud Bouquet, V., 481.
+
+It would lead too far to open the questions under discussion, but the method followed in the Synod of Mayence, which conformed to the example set in the Diet of Aix-la-Chapelle,[^heldoctober802] is instructive and interesting. It was composed of thirty bishops, twenty-five abbots, a number of the clergy, monks, counts and laymen. The arch-chaplain and archbishop of Cologne, the archbishops of Mayence and Salzburg, and the bishop of Worms were present in the character of imperial *missi* [Latin]. They deliberated not conjointly, but in three sections: in the *first* were the bishops and clergy; in the *second* the abbots and monks; in the *third* the counts and other laics. The bishops discussed church matters with reference to the Gospels, Epistles, and Acts of the Apostles, the Canons, and certain works of the Fathers, especially the pastoral book of Gregory, and other dogmatical works; the abbots and approved monks deliberated on the amelioration of the monastic estate with special reference to the Rule of St. Benedict; lastly, the counts and laics took cognizance of legal points and settled knotty questions which came before them. The results were fifty-six Canons.[^concilmoguntpraef]
+
+[^heldoctober802]: Held October, 802.
+
+[^concilmoguntpraef]: Concil. Mogunt. præf col. 64, 65.
+
+Those which the emperor set forth were the following:
+
+Abstract of the Canons.[^capitulaecanonibus]
+
+[^capitulaecanonibus]: *Capitula e Canonibus excerpta* [Latin]. a. 813, apud Boretius, *l. c.* [Latin], p. 173 sqq. Mühlbacher, *l. c.* [Latin], No. 468. Cod. Gandav. contains four additional *capitula* [Latin], of which the last two are expansions of cc. 4, 5, but the first two are new, enjoining the investigation of the alleged charge against Austrasian priests of extorting money from persons known to them through the Confessional as robbers, and severe measures against *homines faidosi* [Latin] addicted to causing disturbance on Sundays and Holy Days.
+
+1. Enjoins archbishops to exhort their bishops to stop the abuses concerning baptism of which presbyters were guilty.
+2. Forbids the laity to eject their ministers.
+3. Forbids the laity to sell livings.
+4. Enjoins the strict observance of the Canons and the Rule.
+5. Authorizes the clergy to say Mass in convents, but enjoins them to leave immediately after Mass.
+6. Forbids the unnecessary crowding of conventual establishments.
+7. Enjoins the payment of tithes.
+8. Enjoins the purification of the Church from incest.
+9. Enjoins bishops and counts, the clergy, monks, and the laity generally to live peaceably with one another.
+10. Enjoins counts, judges, and the people generally to obey the bishop, and all concerned to render justice, refusing bribes and false witnesses.
+11. Enjoins the care of servants and serfs because of the famine.
+12. Authorizes bishops to sustain the poor from church funds.
+13. Commands just and equal weights and measures.
+14. Enjoins preachers to preach intelligently.
+15. Enjoins the sanctity of the Lord's Day.
+16. Enjoins bishops to visit their dioceses.
+17. Interdicts presbyters, on pain of deprivation, to give chrism as medicine, or against witchcraft.
+18. Enjoins sponsors to do their duty.
+19. Interdicts the practice of depriving old churches of tithes or property in order to benefit new ones.
+20. Interdicts sepulture in churches except in the case of bishops, abbots, and good presbyters.
+21. Interdicts placita to be held in houses or churchyards.
+22. Prohibits counts and the judiciary generally to buy or seize the property of the poor.
+23. Enjoins bishops to remand fugitive priests to their own bishops.
+24. Enjoins the beneficed clergy to be at the charge of repairing churches.
+25. Enjoins that public criminals be sentenced in public and required to do penance in public.
+26. Enjoins presbyters to lead good lives and teach the people so to do.
+
+---
+
+#### CHAPTER II.
+
+##### ADMINISTRATION.
+
+*Finances and Revenue.—Contributions in kind for the army, the missi, and the Court.—Taxes.—Tolls.—Pilgrimage.—The Villas: their government; Capitulary concerning them; Inventories.—Commerce.—Coinage.*
+
+The finances and revenue of the Frankish empire were peculiar. Under the ancient unwritten laws taxation was incompatible with liberty; the payment of any tax whatsoever was denounced as a token of subordination. This principle remained in force long after the establishment of royalty. The revenue of the sovereign was derived from the income of his own possessions, from dues payable by vassals, from tolls, from fiscal fines, and from the yield of the law of inheritance, by which the fiscus fell heir to the possessions of childless freemen to the third generation, and the estates of disfranchised freemen.
+
+Charles had no public exchequer or treasury in the modern acceptation of the term; his exchequer was only the receiver, not the dispenser, of the public revenue, except for purposes of war as he saw fit.
+
+He had no salaried officers. The counts, and their subalterns, charged with the administration of the public business in districts smaller than the "Gau," or county, received certain benefices in landed estate, royal or fiscal.
+
+The counts were in things temporal what the bishops and abbots were in things spiritual. They were either large land-owners in fee simple, or royal beneficiaries, privileged to levy banns or fines for offences of every kind or degree. These pecuniary compositions were their income. The system worked well enough for them, but most disastrously to the morals, as well as to the secular and eternal welfare of the people, who groaned under their extortions, suffered, wept, entered into involuntary slavery, praying for better times which came not for many long and dreadful centuries.
+
+Although the ordinary revenue of Charles was insufficient for the cost of his many wars, his armies entailed neither on him, nor on the State proper, an expense proportionate to that incurred in military countries at the present.
+
+The burden fell wholly on the people, who as the vassals, feudaries, and lieges of their several lords, were bound to march against the enemy, or, as freemen, expected to come cheerfully when commanded so to do.
+
+The count or lord was, in theory, supposed to be at the charge of arming and supporting his men, but the capitularies show that the supposition was generally at fault.
+
+The soldiers on their journey to and from the "marche," or rendezvous, lived at the cost of the several districts through which they passed.
+
+The sovereign's treasurer had to provide for such expenditures as the cost of ammunition and transportation; the cost of the *schaar* [German], or household-troops; that of embassies; that of the *missi* [Latin], together with the expenditure necessary for the support of the entire Court. The first and third of these items were nominal, for the counts were bound to furnish a *pro rata* [Latin] contribution in ammunition and transportation, while the *missi* [Latin] were privileged to receive relays of horses, free quarters and entertainment.
+
+But the wants of a *missus* [Latin] were neither few nor small. If he was a bishop he might feast upon a *daily* allowance of forty rolls, three fresh hams, three *modii* [Latin] of drink [wine, brandy, or beer, it is not clear which], a young pig, three chickens, fifteen eggs, and four *modii* [Latin] of horse-feed; if he was an abbot, count, or other ministerial officer, he had to content himself with only thirty rolls, two fresh hams, two *modii* [Latin] of drink, a young pig, three chickens, fifteen eggs, and three *modii* [Latin] of horse-feed; and if he was only a common vassal his claim must not rise higher than seventeen rolls, a fresh ham, a young pig, one *modius* [Latin] of drink, two chickens, ten eggs, and two *modii* [Latin] of horse-feed. These were only the major constituents of the daily rations of a *missus* [Latin], which consisted altogether of about forty articles, duly prescribed, down to the requisite quantities of pepper, salt, and cinnamon.[^hludovicipiicapit]
+
+[^hludovicipiicapit]: Hludovici Pii Capit. Missor. a. 819. Cf. Marculf., Form l. I., c. XI.
+
+Even the monarch and his Court received, and was entitled to receive, such entertainment on his journeys. The hospitality of his lieges was compulsory, not voluntary; it is not surprising to read that some were ungracious enough to petition for relief.[^hullmanndeutschefinanz]
+
+[^hullmanndeutschefinanz]: Hüllmann, *Deutsche Finanz-geschichte* [German].
+
+In spite of such uncommon facilities for the conduct of war, the expenditure exceeded the income, and the deficit was made up by extraordinary extortions, such as contributions in kind of provisions and necessaries for the use of the Court and of the army on a march.[^capitularea813c10]
+
+[^capitularea813c10]: Capitulare a. 813. c. 10. MG. LL., I., 188.
+
+These unpleasant and ruinous innovations soon became established. The old Merovingian custom of so-called voluntary gifts presented by the Franks to their king at the annual May-Field was converted into a regular tax;[^hincmarlccxxx] and there is hardly room to doubt the existence of a general tax, a tax on real estate, and a capitation tax.[^seeabovetheinstruction]
+
+[^hincmarlccxxx]: Hincmar, *l. c.* [Latin] c. XXX.
+
+[^seeabovetheinstruction]: See above, the Instruction, etc., c. 20, p. 390, and cf. Luden, *l. c.* [Latin], V., 560.
+
+Little is known of the means resorted to for the collection of those obnoxious taxes, which were thorns in the side of the poorer freemen and almost drove them to despair. As for the bishops, abbots, counts, and magnates generally, they understood how to secure immunities and avoid payment by other expedients.
+
+The tolls were a terrible institution to all classes and conditions of men except the privileged. They took root in the principle that every man, as lord absolute of his own possessions, is endowed with the inalienable right of dictating and enforcing his own terms upon all who set foot thereon, or seek in any other way to use it for their own benefit. The whole country, with its roads and rivers, belonged to the sovereign and his vassals. Landed estates were royal domains, or benefices, granted to the lords spiritual and temporal, or allodial possessions belonging to freemen. The sovereign was lord and master on the royal villas, the vassal held that position on benefices, but on the allodial or freehold estates the nation, or the king as its representative, claimed and held sovereign rule.
+
+All these several lords and masters established dues or tolls for the use of their meadows, woods, gates, bridges, rivers, streams, canals, etc., etc.; the whole country was filled with toll-gates and toll-gatherers; no trader might enter with his commodities a village or castle and attempt their sale without paying toll for the privilege. The robber-knights of the Middle Ages, whose romantic strongholds, now mostly in ruins, enchant the eye of travellers, were the bane of their contemporaries, and their prototype, as well as the prototype of the army of modern tax-gatherers who are the bane of modern travellers, flourished under the bishops, counts, and nobles in the glorious reign of the invincible Charles.
+
+In that halcyon epoch of the minions and protégés of the conqueror of Europe the only persons or things exempt from toll were the royal *missi* [Latin] and officers on their journeys to and from the Court, commodities in course of transportation to the same place, conscripts called out for military service, pilgrims, and travellers for pleasure. The latter were few, but the pilgrims most numerous.[^seeludenlctv]
+
+[^seeludenlctv]: See Luden, *l. c.* [Latin] t. V., l. XI., cc. 7–10, p. 109 sqq.
+
+One hardly knows, without hurting the sensibilities of some, how to denominate this singular movement which was quite general in the reign of Pepin.[^oelsnerjahrb] Numbers of Frankish pilgrims interfered with the monastic repose of Carloman on Mount Soracte.[^vitacarolic2] Ansa, the queen of the hapless Desiderius, had the merit of providing for the wants of pilgrims in such wise that such as hailed from the West and undertook the pilgrimage to St. Peter's, or to the sanctuary of the arch-angel Michael on Mount Gargano, might quietly and safely march along, for thanks to her liberality they need fear in the darkness of night, neither the arms of robbers, nor frost and rain, but find ample accommodation of food and shelter under the hospitable roof, presumably of some hospice which she had founded.[^paulidiaconcarm8] Besides Rome, the cities of Tours, Paris (St. Denis and St. Germain des Prés), St. Quentin and Rheims, and Echternach, were frequented by multitudes of pilgrims. The Anglo-Saxons were wont to go in large numbers. Charles himself not only visited the Holy Places, as has been stated before, but took them, and the pilgrims, under his peculiar protection.[^capitmissorgenerale802] He granted them privileges, and provided for their wants, but the numbers of the pilgrims were so great and led to so many abuses,[^seetheepistletooffa] that it became necessary to take legislative measures for their correction. It not unfrequently happened that the rich undertook pilgrimages as a pretext for extortion, and vagabonds pretended to be pilgrims in order to beg.[^concilcabilon813] Negligent clergymen, moreover, and peccant laics saw in a pilgrimage the atonement for their sins of omission and commission.[^ibid398a] The matter came up in the Provincial Council of Chalons, and the fathers unanimously resolved that the clergy, without the express permission of the bishop, were forbidden to make the pilgrimage of Rome or Tours,[^ibidc44] citing the words of Jerome, that "it was more praiseworthy to have lived well in Jerusalem, than to have seen Jerusalem."[^ibidc46] Theodulf also adverts to the matter, and expounds the Hieronymian idea into the sentiment that "not the way of the feet, but that of pure morals conducts men to heaven."[^theodulfcarm67]
+
+[^oelsnerjahrb]: Oelsner, *Jahrb. d. fränk. Reichs unter K. Pippin* [German], p. 106.
+
+[^vitacarolic2]: Vita Caroli., c. 2.
+
+[^paulidiaconcarm8]: Pauli diacon. Carm. 8. in Poet. Lat. ævi Carol. I., 45, 46; cf. Simson, *l. c.* [Latin] II., p. 505 sqq.
+
+[^capitmissorgenerale802]: Capit. missor. generale a. 802 c. 27; Pippini regis capit. 782–786, c. 10.
+
+[^seetheepistletooffa]: See the epistle to Offa, p. 335.
+
+[^concilcabilon813]: Concil. Cabilon. 813. c. 46 apud Mansi, XIV., 102 sq.
+
+[^ibid398a]: Ibid.
+
+[^ibidc44]: Ibid. c. 44.
+
+[^ibidc46]: Ibid. c. 46.
+
+[^theodulfcarm67]: Theodulf. Carm. 67. See the whole subject in Simson, *l. c.* [Latin], II., 505 sqq., to whom I am indebted for the collection of the facts.
+
+After this digression, we resume the topic of internal government.
+
+The royal villas were much better managed, and their administration may now be briefly considered. They were quite numerous, and unlike anything to be found in lands of modern culture. More vast and primitive than the castles of the next ages, they were not cities or villages; but the modern German, Flemish, or French village with a mansion house in the centre, a large number of houses in the streets and lanes radiating from it, and terminating in the open field or forest, is perhaps the nearest picture to be had of villas as they existed at Aix-la-Chapelle (before the cathedral and palace were built), at Attigny, Chasseneuil, Compiègne, Corbeny, Douzy, Duren, Frankfort, Héristal, Ingelheim, Liège, Mayence, Nimeguen, Paderborn, Quierzy, Ratisbon, Salz, Schlettstadt, Thionville, and many other places.
+
+We have interesting and contemporary documents descriptive of their construction, the number of their dwellings, and their general conduct.
+
+One of the best known of the Capitularies states in the opening article the general sentiment of Charles on the subject of the villas.
+
+"We desire," he says, "that our villas which we have founded for our own use, should wholly minister to our own wants, not to those of others.
+
+"We desire that our family be well cared for, and none thereto belonging be reduced to want.
+
+"We desire that our judges presume not to bring our family into their service, or compel them to render villein socage, hew wood, or do any other kind of work, or accept of them any gift, neither horse, steer, cow, pig, ram, shoat or lamb, except bottles and fruit of the garden, apples, chickens, eggs," etc., etc.[^capitdevillislcp83]
+
+[^capitdevillislcp83]: Capit. de Villis, *l. c.* [Latin], p. 83.—The bottles were not empty.
+
+The government of the villas resembled that of the empire. The sovereign gave his general directions, and his consort her special orders through the seneschal or butler, to the judge or director of the villa. This judge had under him a superintendent set over managers in charge of the several estates, and the managers directed the stewards placed over each estate.
+
+The stewards were chosen from persons not freemen but attached to the place, and had under them the foremen of the numerous institutions of the villa establishment. All these officers were beneficed, and the judge, the head of all, held a very responsible position. He issued general orders to those in inferior appointments, held them accountable for their execution, received their reports, and sent his own to the sovereign. He was, moreover, clothed with the authority and power of a judge in the composition of differences, and the infliction of punishment on those convicted of minor offences.
+
+All the directions emanated in the first instance from Charles and were drawn up with an almost incredible minuteness of detail; they specified everything essential to the prosperity of the establishment.
+
+The farm and the forest were model establishments for thrift and cleanliness, as well as for the variety and quality of the produce. The aim was to have the best of everything in large quantities and with a provident anticipation of the future.
+
+In this respect Charles was another Joseph. The royal villas supplied each other's wants by an interchange of commodities; the fields and meadows, forests, mountains, rivers, and ponds were planted and stocked with the very best varieties suitable to the climate and capabilities of the domain.
+
+All the cereals grown in the country were cultivated; the flower gardens were furnished with the choicest specimens for beauty and fragrance, the orchards and kitchen gardens produced the richest and best varieties of fruit and vegetables. Charles specified by name not less than seventy-four varieties of herbs which he commanded to be cultivated; all the vegetables still raised in Central Europe, together with many herbs now found in Botanical Gardens only, bloomed on his villas; his orchards yielded a rich harvest in cherries, apples, pears, prunes, peaches, figs, chestnuts, and mulberries. The hill-sides were vineyards laden with the finest varieties of grapes.
+
+His cattle was thoroughbred throughout; his stables contained only the most superb and purest breeds; the lineage of all his animals was accurately traced. Domestic animals of every kind were kept, and every villa had a stock-farm; multitudinous herds of swine were driven to mast in the woods, while flocks of geese, chickens, and pigeons were kept in appropriate yards. Peacocks, pheasants, guinea-fowl, ducks, pigeons and turtle-doves were not forgotten for ornamental or gastronomical purposes; hawks and falcons might be seen, together with every variety of canine for domestic use or the chase. The utmost care was given to the preservation of game and of the woods. Not even the culture of fish and bees was neglected. Very careful book-keeping of the yield, consumption, and disposal of everything, together with the stock on hand, was maintained, and the tenth of the yield religiously given to the Church.
+
+The choicest of everything went to the royal table and the tables of the Court; a large share was prepared and set aside for unforeseen emergencies; whatever was in excess of present or future use was duly catalogued, sold in the market, and accounted for at Christmas.
+
+Attached to the royal villa, in the centre of which stood the palace or manse, were numerous dependent and humbler dwellings, occupied by mechanics, artisans, and tradesmen, or rather manufacturers and craftsmen, in great numbers. The dairy, the bakery, the butchery, the brewery, the flour-mill were there.
+
+Almost everything was "home-made;" the "semmel," loaf, sausages, cheese, beer, mead, wine, in fact everything belonging to the kitchen and the table came from the villa. But whatever pertained to the household in a much wider sense was made on the villa. The finest of wool and flax was spun by the women, while others of their sex wove the thread into linen and cloth. Dyers were at hand to dye the fabrics; tailors, tailoresses and seamstresses made them up into garments. Furriers, tanners, saddlers, and shoemakers plied their trades with material raised on the villa; there were also carpenters, joiners, cabinet-makers, masons, smiths of high and low degree, from the blacksmith to the goldsmith, together with armorers and turners—and on some of the villas even mints were kept busy.
+
+It was the judge's duty to see that all these multifarious trades and pursuits should be plied and followed by those skilled in them.
+
+The villa was a city in embryo, and in due course grew into one, for as it supplied in many respects the wants of the surrounding country, so it attracted population and became a centre of commerce.
+
+This cursory sketch may be illustrated by a paragraph from the capitulary cited, setting forth the royal directions, with respect to the "judge."
+
+It ordains that "each judge shall make an annual statement of all the work done by our ploughmen with oxen; of the number of *mansi* [Latin] under cultivation; of the revenue from the fields and rents; of payment from credits and fines for breaches of the peace; of the number of animals in our forests caught without our leave; of receipts from legal fines, mills, forests, fields, bridges, and vessels; from freemen and hundreders attending to our fiscal business; from markets, vineyards, and vendors of wine; from hay, wood, and torches; returns of the stock of axes and other material; of peat; of the yield, consumption, and stock of millet and fennel-millet; of wool; of flax, linen, and canvas; of orchard-fruit, large and small nuts, grafted fruit; of turnips; of fish-ponds; of hides, skins and horns; of honey and wax; of fat, tallow, and soap; of mulberry wine, cooked wine, mead, vinegar, beer, new and old wine; of new and old crops; of chickens, eggs, and cheese; returns from fishermen, armorers, smiths, and shoemakers; of bake-houses, safes, and closets; from saddlers, turners, and blacksmiths; of iron and lead-mines; of royalties; of fillies and other young animals—such statement to be presented to us separately, distinctly, and in proper order, at Christmas, that we may know how much we are worth, and the exact quantity of these several things."[^capitdevillisedboret]
+
+[^capitdevillisedboret]: Capit de Villis, ed. Boret., *l. c.* [Latin], I., 88, sq.
+
+The foregoing blank, or form, of the judge's report conveys an animated though not exhaustive view of the royal villas. The law, of which it forms part, consists of seventy sections, or capitula, specifying in addition to the items named, that the villas were used as prisons or places for the safe-keeping of hostages, and stations for the manufacture and storage of material of war. Great attention was paid to forestry, not only with respect to the felling of trees for fuel and other purposes, but the culture of new plantations, the supervision of game, and especially the destruction of wolves, whose skins were sent to headquarters, while the foresters were required to devote the month of May to the extermination of young wolves.
+
+Christmas was the set time for the reports from all the villas, and Lent the season for the transmission of the surplus in money. Charles, doubtless with the assistance of a corps of expert accountants, found time for the personal examination of the reports, and provided for the systematic visitation of the villas by comptrollers charged with the duty of inventorying any and everything belonging to them, and in due time forwarding their reports to him.
+
+Examples of such reports have escaped the gnawing tooth of time, and one relating to the status of the fiscal villa of Asnapium, supposed to be identical with Gennapium, near Cleves, unfolds the nature of the investigation. The commissioners went over the whole territorial extent of the establishment, which appears to have belonged to the primitive order in vogue in Merovingian times. They traversed the fields and woods, entered every dwelling, hut, barn, and stable, visited every room from the garret to the cellar, opened every cupboard, closet, and drawer, inventorying not only all they found, but certain things or persons, called for in their blanks, they did not find.
+
+A few paragraphs from that instructive and entertaining return, presented without further comment, show how the royal instructions were carried out.
+
+"In the domanial fiscus of Asnapium we found: a royal hall, built of stone in the best manner; 3 rooms; the house entirely surrounded by balconies; 11 female apartments.
+
+"Below: 1 cellar, 2 porticoes.
+
+"Other houses below the yard: 17 frame dwellings, with as many chambers and other attachments, all well constructed; 1 stable; 1 kitchen; 1 mill; 2 granaries; 3 barns.
+
+"[We found] the yard well protected by a fence with a stone gate, and above, a balcony for offices; the inner yard likewise set off by a fence, laid out in the usual manner, and planted with a variety of trees.
+
+"Vestments: 1 bed, ready; 1 table-cloth; 1 towel.
+
+"Utensils: 2 ore dishes; 2 drinking cups; 2 ore cauldrons; 1 iron cauldron; 1 brewing pan . . ; 1 pair of andirons; 1 lamp; 2 hatchets; 1 stone-chisel; 2 braces; 1 axe; 1 fire basket; 1 large plane; 1 small plane; 2 scythes; 2 sickles; 2 spades.—Wooden vessels for household use in sufficient quantity.
+
+"[We found] of farm produce: *Old spelt*, last year's crop, 90 baskets, equal to a yield of 450 pensas of flour; 100 modii of corn.
+
+"This year's *spelt*: yield, 110 baskets; planted, 60 baskets; the remainder found.
+
+"*Wheat*: yield, 100 modii; planted, 60 modii; the remainder found.
+
+"*Rye*: yield, 98 modii; planted as many.
+
+"*Barley*: yield, 1800 modii; planted, 1500; the remainder found.
+
+"*Oats*, 430 modii; *beans*, 1 modius; *peas*, 12 modii.
+
+"[We found] 5 mills; 800 modii, small measure; given to the prebendaries, 240; the remainder found;—2 bridges.
+
+"*Salt*: 60 modii, and 2 solidos [*i.e.* [Latin], valued at so much].
+
+"Gardens, 4; 11 solidos; honey, 3 modii.
+
+"Census: Butter, 1 modius; lard,—last year's bacon 10 [sides?], new bacon, 200, together with sausages and rendered lard; this year's cheese, 43 pensas.
+
+"Stock: Old draught cattle, 51 head; of the third year, 5; of the second year, 7; of this year, 7; fillies of the second year, 10; of this year, 8; stallions, 3; oxen, 16; asses, 2; cows with calf, 50; young bullocks, 20; yearling calves, 38; bulls, 3; pigs: old, 260; young, 100; boar-pigs, 5; sheep with lamb, 150; yearling lambs, 200; rams, 120; goats with kid, 30; yearling kids, 30; bucks, 3. Geese, 30; chickens, 80; peacocks, 22."
+
+The inventory of one of the dependencies states:
+
+"We found all the dry and liquid measures even as in the palace.
+
+"Of handicraft-men we found neither goldsmiths, nor silversmiths, nor blacksmiths; nor were there any huntsmen and other attendants.
+
+"We found of garden produce: lilies, cost-wort, mint, parsley, rue, celery, small beans, sage, hyssop, *savina* [Latin], leek, garlick, wormwort, heart's-ease, coriander, shallots, onions, cabbage, cauliflower, *betonica officinalis* [Latin].
+
+"Trees: pear, apple, mispil, peach, walnut, filbert, mulberry, and cotton-mulberry."[^breviumexempla]
+
+[^breviumexempla]: "*Brevium exempla, etc.*" [Latin], Boretius, *l. c.* [Latin] p. 254, sq.—"*Beneficiorum Fiscor. Regal. describ. Form.*" [Latin], Pertz., *l. c.* [Latin] p. 178 sqq.
+
+Commerce, in the Caroline age, moved in narrow channels. Anglo-Saxons, Frisians, and Sclavonians are often named in connection with the foreign trade of Central Europe.
+
+Boulogne, Ghent, Malines, Paris, Poitiers, Quentowic on the Canche, Duurstede, and Sluis were commercial centres, and sea-ports, in Central Europe; Venice maintained commercial intercourse with the Levant, and Ancona, together with Porto Venere, in the Genoese territory, had a sea-trade.
+
+The fair of St. Denis (Paris) was much frequented in Merovingian times; on the Rhine, Worms and Mayence, were the oldest and most important commercial cities.
+
+Frisians, the progenitors of the Dutch, were famous traders and wont, on the Rhine, to exchange cloth, garments, and pottery for wine, cereals, and wood.
+
+The Sclavonians also excelled in trade; an old commercial road connected Thuringia with Mayence; it ran through the great Buchonian forest, and was much frequented by Sclavonians.
+
+Abbot Sturmi, wandering through that forest, in search of a suitable locality for the establishment of a monastery, came to the valley of the Fulda, and finding great numbers of Sclavonians bathing in the river, near the spot where the said commercial road crossed it, made choice of that place as best suited to his purpose.
+
+In later times a chain of commercial points, running from the mouth of the Elbe to the confluence of the Enns with the Danube, was established for the regulation of the frontier-trade with foreign nations. Such establishments, under government supervision, existed at Bardowick, Schlessel, Magdeburg, Erfurt, Hallstadt, Forchheim, Ratisbon, and Lorch, and foreign traders were not permitted to carry their commodities beyond them.[^vitasturmiic7]
+
+[^vitasturmiic7]: Vita Sturmii, c. 7; Einh. *Translatio SS. Marcell. et Petri* [Latin], IV., 39 (Jaffé); Mirac. S., Goar, cc., 20, 27, 28; Ermold. Nigell. l. V., 107, sqq.; Monach. Sangall. I., 34; II., 9;—Mühlbacher, *l. c.* [Latin], p. 167, no. 406. See p. 389.
+
+The old standard of the coinage extant at the accession of Charles was the Roman pound of 325 grams, divided into 240 denarii of 1.35 grams. The *gold* solidus of the Gauls, Franks, Anglians, etc., of 40 denarii had an approximate value of about $3.50. Charles introduced a heavier standard, based on a pound of about 367 grams, which for centuries later was known as "Karles lot," or *pondus Caroli* [Latin], that is, Charles's weight.
+
+Much of the silver, used for coinage, came from Poitou, and the locality which from that circumstance received the name of "Metallum," the modern Melle, was surrounded with the halo of secrecy; at any rate the approaches to the mines were religiously concealed.
+
+Counterfeiting prevailed to a large extent and led to special legislation, restricting the issue of coin to mints established in the imperial palaces, and certain villas.[^beverindepond]
+
+[^beverindepond]: Beverin. *De Pond. et Mens.* [Latin], p. 51; Soetbeer, *Forschungen z. deutschen Geschichte* [German], IV., 293, sqq.—See p. 390.
+
+---
+
+#### CHAPTER III.
+
+##### THE NEW ERA.
+
+*"Pacific"? policy—The Empress Irene.—War with Benevento.—War with the Saracens.—Siege of Barcelona.—Capture of Zeid.—Surrender of the city.—Intercourse with Harun al Raschid.—The elephant Abul-Abbas.—Fortunatus.—Venetian affairs.—Discovery of the blood of Christ.—Leo visits Charles.—Death of Alcuin—Christmas celebration cum gaudio at Thionville.—Partition of the empire.*
+
+The familiar announcement that "the empire is peace" was a coincidence or an adaptation, and as true as the epithet "pacific" imbedded in the title of the new Emperor of the West. At the time of its bestowal it was glaringly inapt, for he had in hand the wars in Benevento and Spain, and his mind was bent on war with the Saxons and Sclavonians until he could have peace on his own terms. Perhaps it was intended as a manifesto to the Byzantine Court, which would not view the Coronation in the same light in which it was regarded at Rome and throughout the Frankish dominion. There his motives were certainly suspected; it was even rumored at Constantinople that he had hostile designs upon Sicily, and the flight of the *spatharius* [Latin] Leo, a Sicilian, to the emperor, seemed to give color to the suspicion.[^theophanchronogr] The biographer of Charles intimates as much when he writes that "the Greeks suspected him of designing to wrest the empire from them, because of his assumption of the title of emperor. . . . In fact, the power of the Franks was always viewed by the Greeks and Romans with a jealous eye, whence the Greek proverb, 'Have the Frank for your friend, but not for your neighbor.'"[^vitacarolic16]
+
+[^theophanchronogr]: Theophan. Chronogr. (ed. Bonn), p. 736 sq.; Annal. Einh. a. 811.
+
+[^vitacarolic16]: Vita Caroli, c. 16.
+
+The Empress Irene, whose name was peace, took the initiative in the direction of amity, and despatched an ambassador to Charles in the person of another *spatharius* [Latin],[^thecoincidenceispeculiar] also called Leo, while the emperor returned the attention by an embassy of his own composed of Jesse, Bishop of Amiens, and count Helmgaud, for the purpose of conducting negotiations looking to the conclusion of a definite treaty of peace.[^annaleinha802] They were accompanied, if the Greek historians state correctly, by papal legates, and instructed to propose to the Empress of the East a matrimonial union with the new Emperor of the West. The statement, though unsupported by the Frankish records, is not incredible. The grandiose scheme was favorably entertained by the lady, but sternly and violently opposed by the patrician Aëtius, who made it the pretext for the execution of a long-cherished and deeply-laid plot looking to the dethronement of Irene and the elevation of Nicephorus, his brother. The palace revolution was entirely successful, terminated in the fall of Irene, and entailed of course the utter failure of the projected matrimonial alliance. The conspirators arrested and deposed Irene, proclaimed Nicephorus emperor during the night, and crowned him in the morning. She bore her misfortune with dignity, and the ambassadors of Charles saw her on her way to the exile chosen for her in the monastery on Prince's Island, which she herself had founded. This happened October 31st, 802.
+
+[^thecoincidenceispeculiar]: The coincidence is peculiar, but *established*; see Mühlbacher, *l. c.* [Latin], p. 149. *Spatharius* [Latin] is a term almost equivalent to "knight." The *spatharii* [Latin] wore a peculiar dress called *scaramangium* [Latin], a sword, and a chain.—Zanetti, apud Pertz, MG. SS., 14 n. 49.
+
+[^annaleinha802]: Annal. Einh. a. 802.
+
+Nicephorus, a man of low origin, and distinguished only by his vices, dreading a popular movement in favor of his benefactress, who, in spite of the crimes by which she had procured the purple, was a good sovereign, much beloved by the clergy and people, took advantage of a fierce November gale, sent her to the island of Lesbos, and placed her in close confinement. No person was permitted to see her, and it is said that the ingrate emperor withheld from her even the necessaries of life and compelled her to spin for a living. She fell sick, died August 9th, 803, and was buried on Prince's Island. Her unfortunate son survived her, but died in the same obscurity and distress.[^annaleinhmaximguelph]
+
+[^annaleinhmaximguelph]: Annal. Einh., Maxim., Guelph.—Theophan. Chronogr. ap. Bouquet, V., 188; Andr. Dandul. Chron. ap. Murat. Rer. It. SS. XII., 150 D.—Cf. Harnak, *Das Karol. u. Byzant. Reich* [German], etc., 43; Döllinger, in Münchner Jahrb. f. 1865, p. 355, 380, no. 33.
+
+The Frankish ambassadors left Constantinople, and, accompanied by those of Nicephorus, in due time were received by Charles at Salz. The mission of the Byzantines was pacific, and negotiations looking to a treaty of peace and amity were opened. A preliminary treaty was drawn up and given to them; it seems also that they were directed to return by way of Rome, where they doubtless conferred, at the instance of Charles, with the pope, who invariably appears in negotiations with the Byzantine Court. They also carried an epistle of Charles to Nicephorus, in which, as is inferred from one of later date,[^epistolcarollc29] he specified the terms essential to his acceptance of a formal and definite treaty of peace, among which his recognition as Emperor of the West was doubtless the *conditio sine qua non* [Latin]. Nicephorus, however, was not in a hurry to commit himself on that point, and years elapsed before the proposed peace became reality.[^seeonthewholesubject]
+
+[^epistolcarollc29]: Epistol. Carol., *l. c.* [Latin], 29.
+
+[^seeonthewholesubject]: See on the whole subject the authorities adduced by Mühlbacher, *l. c.* [Latin], p. 160, and Simson, *l. c.* [Latin], II., p. 289 sqq.
+
+The Beneventan war, which was resumed immediately after the coronation, lasted throughout the summer, but did not result in much. We only read of the customary devastation of the country, the capture and burning of Chieti, and the taking of Roselmus, its governor, as prisoner of war. Pepin sent him to Aix-la-Chapelle where he arrived on the same day with Zeid, the captive governor of Barcelona, and like him was sent into exile.[^annaleinha801erchemp] Pepin returned to Benevento the next year, and scored new successes in the subjugation of Ortona and Luceria (not Nocera); to the latter place, which had successfully resisted several previous sieges and was very strong, he gave a Frankish garrison, commanded by Winigisus, duke of Spoleto, and left. Soon after he had gone the duke succumbed to sickness, induced probably by the unhealthy climate,[^cfalcuiniep165] and the matter becoming known to Grimoald, the latter appeared in force, reconquered the city and took Winigisus and the whole garrison prisoners of war. He held him for an entire year in honorable captivity and then set him free.[^annaleinhmaxima802] Beyond these meagre data nothing is known of the condition of Benevento during the next few years, except that it continued in a state of chronic resistance to the Franks, and experienced the periodical visitations of Pepin.[^seep309]
+
+[^annaleinha801erchemp]: Annal. Einh., a. 801, Erchemp. Hist. Langob. c. 6. See p. 413.
+
+[^cfalcuiniep165]: Cf. Alcuini ep. 165.
+
+[^annaleinhmaxima802]: Annal. Einh., Maxim. a. 802; Erchemp. *l. c.* [Latin] c. 5.
+
+[^seep309]: See p. 309.
+
+Meanwhile his brother Louis had not been inactive, and pushed the progress of Frankish enterprise in Spain. Zeid, the wali of Barcelona, it will be remembered,[^seep295] submitted himself and his city to Charles as far back as 797. Louis, however, found that Zeid could not be depended on, for on his coming to the vicinity of Barcelona, the wali hastened forth to greet him, but did not surrender the city. Since then Frankish troops, for the space of two years, maintained a desultory siege of the place, which, according to the panegyrist of Louis, was always inimical to the Franks, the rendezvous and hiding-place of enemies, wont to sally forth from thence on destructive and tantalizing raids into the Frankish territory.
+
+[^seep295]: See p. 295.
+
+The Franks retaliated by similar visitations, generally about harvest-time, when they reaped the crops the Moors had planted, and removed them to their own country.
+
+But as Barcelona succeeded in drawing supplies by the sea, an investment in good earnest, and not by fits and starts, was now undertaken.
+
+A strong army, divided into three corps, was despatched for that purpose. The corps, under command of the king, remained at Roussilon, north of the Pyrenees; the second corps, commanded by Rostagnus, Count of Gerona, had orders to invest the city, while the third, commanded by William, Duke of Toulouse, and Hademar, was directed, as an army of observation, and support of the second army, to take up a position west of the beleaguered city.
+
+Barcelona invoked the aid of the emir of Cordova. He sent an army of relief which proceeded to Cæsar-Augusta, *i. e.* [Latin], Saragossa, but, finding the corps of Rostagnus in the way, turned in the direction of Asturia, surprised and defeated the Christians, but was in turn defeated with greater loss. Rostagnus then marched upon Barcelona and effected a junction with the investing force.
+
+The siege lasted seven months, and, by a fortunate circumstance, the wali Zeid fell into the hands of the Franks.
+
+It happened, according to the poet, as follows: Zeid, in the extremity of the distress occasioned by famine and disease, essayed the desperate expedient of repairing in person to Cordova, in order to obtain the necessary succors. Having espied from the ramparts a point in the enemy's line less protected than the rest, at which he believed himself able to make his escape into the open country without the knowledge of the Franks, he announced his purpose, charging his friends to hold out until his return, and even, in the event of his capture, refuse to capitulate.
+
+He chose a very dark night for the execution of his purpose; silently a sally-port was opened, and Zeid, mounted on his swiftest horse, rode at its softest tread into the Frankish lines. He had almost cleared the camp unobserved, when the horse unfortunately neighed; the tell-tale sound was heard and the enemy in great numbers flew to the point whence it proceeded. Zeid would fain have made good his escape, but failed; he was taken prisoner, and led to the royal (?) tent. Great was the excitement in the Frankish camp when in the morning the quality of the prisoner became known.
+
+The king, whom the poet places in command, sought to turn the capture to good account, ordered William of Toulouse to take Zeid close to the walls, and compel him to demand the surrender of the city. The duke accordingly conducted him, the one hand in gyves, but the other free, to a spot adapted to a parley.
+
+"Open the gates, friends!" shouted Zeid to the soldiers on the rampart, "surrender the city; it has held out long enough."
+
+The soldiers heard his words, but observed that he contradicted the command by a sign with his free hand, consisting in a nervous movement of the fingers by which he closed the opened hand. The sign, though quickly and adroitly made, did not escape the eagle eye of William; he flew into a rage at the ruse and struck Zeid with his fist, saying, that but for his duty to the king, he would take his life.
+
+The besieged took the manual direction, and maintained the defence, while the Franks, with redoubled energy, made the most desperate efforts for taking the city by storm. All their engines were set in motion and they breached the walls. But the Saracens still held out, until according to the poetic biographer of Louis, a miracle took place.
+
+Among the volleys of arrows, which flew into the city, they noticed one which rose higher than all the rest, and in its downward course entered and disappeared in a block of marble. That arrow came from a bow of prodigious strength and was sped on its way by no less a person than the king (who was, however, far away at Roussilon). The Saracens beheld their doom in that arrow and capitulated on honorable terms, etc., etc.[^ermoldnigell111]
+
+[^ermoldnigell111]: Ermold. Nigell. l. I., 111 sqq.
+
+But to return to history. The wali became a prisoner of war and famine broke out in the city; it is said that the poor people ate old leather curtains,[^ireadostiis] and cast themselves headlong from the ramparts; the surrender of the city could not be long delayed; the king was sent for that the glory of the capitulation might belong to him;[^chronmoiss803] and so the city surrendered on honorable terms, the garrison was accorded the privilege of free retreat, but many of the citizens became prisoners of war. It is added, that at the time of the surrender a temporary garrison was placed into the city, and that on the next day Louis made his solemn entry with military and religious pomp; he proceeded amid hymns of praise to the Church of the Holy Cross[^seeprobabilitychurch] where a solemn act of thanksgiving was celebrated. The city was permanently garrisoned by a body of Gothic troops under Count Bera, and Louis returned in peace and triumph into Aquitaine. A special messenger hastened to inform Charles of the fall of Barcelona; Louis also sent to him a share of the spoil as well as the wali Zeid in chains. His fate is known to the reader.[^seep409] The emperor, at the first intelligence of impending peril in Spain, directed his son King Charles to proceed with an auxiliary force to the seat of war; he had advanced as far as Lyons, when a messenger from his brother brought the news of the fall of Barcelona and that consequently the succors were not required; so he retraced his steps and returned to his father.[^annaleinhmaximbouquet]
+
+[^ireadostiis]: I read "*ostiis detrahere coria*" [Latin]; cf. Vita Caroli, c. 33.
+
+[^chronmoiss803]: Chron. Moiss. a. 803.
+
+[^seeprobabilitychurch]: See on the probability of the existence of that church after ninety years' occupation of Barcelona by the Saracens, the authorities *pro* [Latin] and *contra* [Latin] in Simson, *l. c.* [Latin] II., p. 267, n. 1.
+
+[^seep409]: See p. 409.
+
+[^annaleinhmaximbouquet]: Annal. Einh. Maxim.; cf. Bouquet, V., 386.—For full accounts see Vita Hlud. c. 13; Ermold Nig. *l. c.* [Latin], Annal. S. Amandi a. 801. Lembke, *Gesch. v. Spanien* [German], I., 377, n. 3. Funck, *Ludwig d. Fromme* [German], 288 sq.; 308, 312.
+
+Apart from the military events of this period certain matters relating to foreign politics remain to be narrated. First among these in point of time, and in logical connection with the Moslems of Spain, was the arrival of an embassy from the khalif Harun al Raschid, of whom Einhard writes that such were the relations of Charles to him, that "that prince preferred his favor to that of all the kings and potentates of the earth and considered that to him alone marks of honor and munificence were due. . . ." Further on he states that "Charles had asked for an elephant, and he sent the only one that he had."[^vitacaroli16c] If the reader asks, "whence this strong bond of amity between the Defender of the Cross, and the Head of Islam?" the simple answer is, "Cordova." On this point these two great men were certainly united, although the fact should not be forgotten that Charles was as ready to fight the emir of Cordova, as those who revolted from his rule.
+
+[^vitacaroli16c]: Vita Caroli, c. 16. It is singular that the Arab authorities contain no reference to intercourse between the khalif and Charles. See Weil, *Gesch. d. Khalifen* [German], II., 162, no. 2.
+
+The embassy was purely one of amity, and informed him that the Jew Isaac, whom he had sent with two ambassadors to Harun, was on the home journey and the bearer of great presents, especially an elephant, but that his ambassadors had died.[^annaleinh801] Isaac was still in Africa,[^seesimson255] awaiting a vessel suitable to the transportation of his charge, and the imperial chancellor Ercanbald received orders to proceed to Liguria, prepare, and despatch a ship to Africa for the conveyance of the presents. In due course Isaac arrived in Porto **Oct., 801]** Venere, but finding that snow rendered the passage of the Alps impracticable, spent the winter at Vercelli, and reached Aix-la-Chapelle in July of the next year.
+
+[^annaleinh801]: Annal. Einh. 801.
+
+[^seesimson255]: See Simson, *l. c.* [Latin] II., 255 sqq.
+
+This was the first elephant ever seen in Francia, and its coming created universal excitement, and intense curiosity. It bore the name of Abul-Abbas, which is that of the ancestral head of the Abbassides.[^annaleinhlaureshb] The elephant did not take kindly to Germany, and died in 810.
+
+[^annaleinhlaureshb]: Annal. Einh., Lauresh., Lauriss., Chron. Moiss.
+
+Charles acknowledged the courtesy by a personal embassy to Harun, headed by Radbertus, who returned, as was then usual, after the lapse of about four years.[^annaleinh801806]
+
+[^annaleinh801806]: Annal. Einh., a. 801, 806, 807.
+
+Pending negotiations for peace with the Byzantines, some matters came up of an opposite tendency.
+
+Soon after the Greek ambassadors had left, Fortunatus, Patriarch of Grado, commended himself to Charles with the usual presents, and sought his protection. He came as a fugitive from the indignation of the doges, in consequence of their discovery of his participation in a plot against them. Being personally and favorably known to Charles, for some service in the past, he accomplished the objects of his visit and was confirmed by the emperor in the metropolitical jurisdiction of his see over all its possessions in Istria, Romagna, and Lombardy. The details need not detain us,[^seemuhlbacher392] but his visit is doubtless connected with the history of Venetia, and indicates the source of the emperor's information as to the strong leaning of the doges to the Byzantines.[^andrdandchron]
+
+[^seemuhlbacher392]: See Mühlbacher, *l. c.* [Latin], no. 392; and Simson, *l. c.* [Latin], II., 293.
+
+[^andrdandchron]: Andr. Dand. Chron., *l. c.* [Latin], 150, 154.
+
+The affairs of Venice were hopelessly distracting; there was great rivalry; and about this time the tribune Obelie- **805]** rius, together with his brother Beatus, controlled the government. Impatient of Byzantine supremacy, they suddenly evinced or affected great devotion to Charles, and jointly with Paulus, Duke of Dalmatia, and Donatus, Bishop of Zara, waited upon him at Thionville, laid their offerings at his feet, and formally gave in their submission to his authority.
+
+Charles received it, and forthwith took order for the regulation of the political status of his new vassals, and the people of Venetia and Dalmatia.[^chronvenet]
+
+[^chronvenet]: Chron. Venet., MG. SS., VII., 14. Annal. Einh., Maxim., cf. Vita Caroli, c. 15.
+
+His action caused great dissatisfaction at Constantinople, and indefinitely postponed negotiations for peace.
+
+A most curious circumstance became the occasion of a pontifical visit to Charles. In the summer of 804 the emperor was informed that some of the blood of Christ had been discovered in the city of Mantua. The announcement appeared to him so surprising and important that he wrote to Leo about it, requesting him to investigate the matter, and ascertain if the miracles reported to have been wrought by it were true.
+
+The pope, it seems, thought it best to repair in person to Mantua, and made the inquiry the pretext of a journey to Charles. The phraseology of the record is suggestive; snatching at the opportunity of leaving the city, he went first, ostensibly for the purpose of making the necessary inquiry, to Lombardy, and then by a sudden movement, hastened to visit the emperor. It is not hazardous to infer that Rome was beginning to grow uncomfortable for him, and that he sought the benefit of imperial advice. The Saxon poet says that his love of Charles prompted the impulse.[^annaleinhpoetasaxo]
+
+[^annaleinhpoetasaxo]: Annal. Einh. Poeta Saxo., iv., 140 (Jaffé).
+
+At any rate the unexpected announcement of his coming was not displeasing to the emperor, who sent King Charles to meet him as far as St. Maurice, and for the same purpose travelled in person to Rheims. He received Leo in the basilica of St. Remigius, proceeded with him to the imperial villa at Quierzy, and after Christmas, to the monastery of St. Médard near Soissons. There he left the pontiff for a short space (devoted to a visit to his beloved sister Gisla, the abbess of Chelles, who was sick), and rejoining him at Quiercy, conducted him to Aix-la-Chapelle. The pontifical visit extended to about a week after the Epiphany,[^annaleinhmaximmett] and during its continuance ecclesiastical matters were discussed, among which the affairs of the patriarchical see of Aquileia appear to have been prominent. It is also stated, though only on legendary authority, that Leo consecrated on that occasion the Church of St. Mary the Virgin at Aix-la-Chapelle.[^annaltiliens] The emperor made the pontiff the recipient of magnificent gifts, and at his request, caused him to be escorted through Bavaria to Ravenna.[^annaleinhmaximlauriss] The pontifical report on the invention of the blood of Christ at Mantua must have been verbal and unsatisfactory, for the records maintain profoundest silence.
+
+[^annaleinhmaximmett]: Annal. Einh., Maxim., Mett.
+
+[^annaltiliens]: Annal. Tiliens; Epist. Leonis, apud. Jaffé, IV., 321.
+
+[^annaleinhmaximlauriss]: Annal. Einh., Maxim., Lauriss., minor.
+
+About this time, Charles deplored, and most sorrowfully, the loss of his loved preceptor, counsellor, and friend, the good Alcuin. He died on the 14 Kalends of June, 804, under circumstances, which, if not strictly true, reflect nevertheless the spirit of the age, and the estimate in which he was held.
+
+Throughout the night preceding his death the archbishop Joseph, and others, saw over the spot where he lay in great weakness, a globe of fire of singular brightness, which disappeared at dawn of Whitsun Day, at the precise moment when Alcuin's soul, attended by celestial ministrants, was conducted to heaven.
+
+At that identical instant of time, a hermit, in far-away Italy, was privileged to witness the same wonderful translation; he saw the host of the heavenly Levites, and heard their ineffable hymns of praise, as they conducted Alcuin, arrayed in a dalmatic of dazzling white, to heaven, to enter upon the perennial joys of his celestial ministry in presence of the Great High-priest above.[^vitabalcuini]
+
+[^vitabalcuini]: Vita B. Alcuini, c. XV., Monum. Alcuin. p. 32, and note, p. 31.
+
+**805]** One of the most striking features, common to all the Annals, is the constant record of the place at which Charles spent Christmas and Easter of each year of his long reign. Christmas in particular was then as now the most gladsome of all the Christian feasts, and the occasion of family gatherings; that was the rule in the home of Charles, but among all the Christmas festivities, those of the year 805 appear to have been among the most joyous. They took place at Thionville and, presuming that King Charles was as usual present with his father, the undoubted arrival of the kings of Italy and Aquitaine justifies the affirmation of one of the Annals that Charles celebrated that Christmas with "all his sons,"[^annalmaximcumomnibus] and the literal acceptation of the phrase, that he did so with exultant rejoicing.[^annalmettcumgaudio]
+
+[^annalmaximcumomnibus]: Annal. Maxim., "*Cum omnibus filiis suis*," [Latin] *i. e.* [Latin], those of Hildegard; Pepin, the Hunchback, of course, is excluded.
+
+[^annalmettcumgaudio]: Annal. Mett. "*Cum gaudio et exultacione.*" [Latin]
+
+The meeting was doubtless of set purpose, and at his special request; he was now in the sixty-fourth year of his age, and, true to the traditions of his house, desired to make an equitable and lawful division among his sons of his vast dominions. Taking it for granted that, with his established caution, every point had been well considered before **806]** his sons came, and freely discussed in all its bearings after their arrival, it is only necessary to state that the emperor convened a Diet of the most distinguished estates of the Franks at Thionville, and announced his purpose to the effect that the proposed partition of the empire into three parts should subserve the ends of peace, so that each of his sons might be certified beforehand as to the portion of the empire over which he was to reign.[^annaleinhmaxim418]
+
+[^annaleinhmaxim418]: Annal. Einh., Maxim.
+
+**800]** The extreme importance of this well-attested instrument cannot be overrated. The division, it is true, was frustrated by the early deaths of Charles and Pepin, but the principles laid down in it have had an important bearing on the subsequent history of Germany, France, and Italy, and their frontiers. Indeed it may be viewed in the light of a veiled history of the reign of Charles, and a revelation of his secret thoughts and feelings on matters which Einhard and other annalists pass over in silence. For these reasons it is given entire.
+
+"In the Name of the Father, and of the Son, and of the Holy Ghost. Serenissimus Charles Augustus of God crowned Great and Pacific Emperor, ruling the Roman empire, and by Divine mercy King of the Franks, and of the Lombards, to all the faithful of the Church of God, and to all our loyal subjects, present or future, greeting.
+
+"We believe that all of you know that God, who of His mercy is wont to check for generations to come the inevitable tendency of all earthly things to fall into decay, has in the gift of three sons, enriched us with His singular blessing and mercy; for through them He confirms our vows as to the perpetuity of this government, and makes us hope that our memory will be preserved to distant generations.
+
+"Be it therefore known to you that it is our will, by Divine permission, to constitute these our sons, our associates in the throne while we continue to live, and heirs of our government and empire after our decease, and that loth to transmit this inheritance to them in confusion and disorder, so as to provoke strife and dispute, we purpose to divide the entire body of the empire into three parts, and assign to each of their number the part he is to rule and defend; and agreeably thereto, that each, we hope, will be satisfied with the lot we appoint to him, and by the help of God give all diligence to defend the frontiers of such part against enemies without, but maintain peace and love with his brothers.
+
+"1. It has pleased us to make the division of our kingdom and empire as here follows: To our beloved son Louis we have assigned the whole of Aquitaine and Vasconia, except the canton of Tours [Touraine]; and whatever lieth beyond that point looking westward and towards Spain; the city of Nevers on the Loire with its canton, as well as the cantons of Avalon, Auxois, Chalon-sur-Saône, Mâcon, Lyons, Savoy, Maurienne, Tarentaise, Mount Cenis, the valley of Susa to the Cluses [*clausas* [Latin]]; thence following the mountains bordering upon Italy to the sea; these cantons with their cities, and whatsoever beyond them lieth to the westward unto the sea, and unto Spain; that is to say, this part of Burgundy, Provence, Septimania, and Gothia.
+
+"2. To our beloved son Pepin we have apportioned Italy, which is also called Lombardy, and Bavaria, such as Tassilo had it, excepting only the two villas of Ingolstadt and Lutrahahof, which we have given in benefice to Tassilo and which belong to the Northgau, together with that part of Alemannia situated upon the southern bank of the river Danube, and from the sources of the Danube to the Rhine, within the confines of the Chletgau, and the Hegau, to a point called Engi, and thence following the course of the Upper Rhine even unto the Alps; whatsoever is contained within these limits looking southward and eastward together with the duchy of Chur [Coire], and the canton of Torgau.
+
+"3. To our beloved son Charles we have assigned whatever of our dominion lieth outside of the limits aforesaid, that is, France and Burgundy, except that part which we have given to Louis; and Alemannia, except that part which we have assigned to Pepin; Austria and Neustria, Thuringia, Saxonia, Frisia, and that part of Bavaria which is called the Northgau; so that Charles and Louis may go into Italy to carry aid to Pepin, should the necessity arise, Charles, by the valley of Aosta, which belongs to his kingdom, and Louis by the valley of Susa; and that Pepin likewise may come or go by the Norican Alps and Chur.
+
+"4. In making these dispositions, we provide that if Charles, our first-born, should die before his brothers, the portion of the empire which belonged to him shall be divided between Pepin and Louis, as aforetime such division was made between us and our brother Carloman, in such wise that Pepin shall receive the share once had by our brother Carloman, and Louis the share which in the same apportionment fell unto ourself.
+
+"But should Pepin during the lifetime of Charles and Louis pay the debt of nature, then Charles and Louis are to divide among themselves his kingdom, and effect such division as follows: entering Italy by the city of Aosta, Charles is to receive Yorée, Verceil, Pavia, and the country along the river Po to the territory of Reggio; the city of Reggio, the New City, and Modena, even unto the territory of St. Peter. These cities with their suburbs and territories, and the counties thereunto belonging, and whatever on the way to Rome is situated on the left, together with the duchy of Spoleto, shall be the kingdom of Pepin to be given to Charles, as aforesaid; but that part of the said kingdom which on the way to Rome is situated to the right of the aforesaid cities and counties, that is, the remaining part of the country beyond the Po [Transpadana], together with the duchy of Toscana, unto the Southern Sea, and unto the Provence, shall go to the augmentation of the kingdom of Louis.
+
+"In the event of Louis dying during the lifetime of his brothers, Pepin is to receive that part of Burgundy which we have added to his kingdom together with the Provence, Septimania or Gothia, as far as Spain; but Aquitaine and Vasconia are to go to Charles.
+
+"5. If there be born to any of these three brothers a son whom the people wish to choose as his father's successor in the throne, it is our will that the uncles of such child shall give their consent to their choice, and permit the son of their brother to rule in that portion of the kingdom over which his father, their brother, did rule.[^schmidtlc44]
+
+[^schmidtlc44]: Schmidt, *l. c.* [Latin] t. III., p. 44, observes on this clause that it explains the principle on which Charles excluded the children of his deceased brother Carloman from the succession. The nobles of Carloman's kingdom preferred him, and that settled the matter. The grounds of their preference are not stated, but doubtless proceeded from the *argumentum ad hastam* [Latin].
+
+"6. After these dispositions by our authority set forth, it has pleased us to establish and ordain as betwixt our sons, that in view of the peace which we desire to establish forever amongst them, none of them presume to invade his brother's frontiers, or fraudulently enter them with intent to trouble his kingdom, or diminish his territory; but that each shall help his brother and, so far as reason, or his ability, may permit, aid him against enemies, either at home, or against foreign nations.
+
+"7. That none of the brothers shall receive any subject of his brother, who for whatsoever cause or crime shall fly to him for refuge, or make intercession for him, because it is our will and pleasure that a man at fault and standing in need of intercession, shall seek refuge within his own master's kingdom, either by taking sanctuary at the Holy Places or with honorable persons, and there shall render himself worthy of such intercession. . . .
+
+"8. Likewise we ordain that any free man who against the wishes of his lord leaves him and passes from one kingdom to another, shall not be received by the king, nor shall the king allow him to be received by his subjects, or by them unjustly be detained. . . .
+
+"9. For which cause it seems expedient to us to ordain that after our decease, a subject of any one of our sons shall hold benefice only in the kingdom of his own lord, but not in that of another, lest such practice give occasion to trouble. Nevertheless such a subject may with impunity enjoy an inheritance in that kingdom where of right he may possess the same.
+
+"10. A freeman may, after his master's death, commend himself [that is, become vassal] to any one within the three kingdoms; the same to apply to persons who have not yet commended themselves.
+
+"11. Concerning cessions, bequests, or purchases, betwixt several parties, it is ordered that none of the three brothers shall receive or acquire by title of cession, bequest, or purchase, any real estate within his brother's kingdom, such as lands, vineyards, forests, serfs [*servi* [Latin]], and slaves [*casati* [Latin]], and all other things in the name of inheritance comprised, except gold, silver, gems, arms, vestments, emancipated slaves, and all other things which are properly negotiable. But this shall not apply to other freemen.
+
+"12. If women, as is usual, are lawfully asked in marriage from one of the three kingdoms, such just demand is not forbidden, but expressly allowed, and such marriages may be contracted, seeing that by such affinities the several nations may be the closer bound together. Women, moreover, may freely dispose of their possessions within the kingdom of their nativity, although because, and in consequence, of their marriage they should live in another kingdom.
+
+"13. Concerning hostages given in pledge, and by us sent for safe keeping to sundry places, it is our will that the king in whose kingdom they happen to be, shall not, without the express consent of the king from whose kingdom they were taken, suffer them to return to the land of their birth. Contrariwise it is enjoined that the brothers shall hereafter mutually aid and protect each other in the custody of hostages whensoever one of their number shall make of the other a reasonable demand of this kind. It is ordered that the same principle apply to persons now in exile, or to be exiled, because of crimes by them committed.
+
+"14. In the event of differences and disputes respecting the frontiers and confines of the several kingdoms which cannot be settled by evidence, it is our will that the declaration of the matter in doubt, the will of God, and the truth of the facts be ascertained by the judgment of the cross [ordeal], and that such cause be never decided by war, or any kind of combat. And if a subject of one kingdom appear before his own lord charging the subject of another kingdom with disloyalty to his lord's brother, his lord shall send such plaintiff to his brother, that he may there prove his charge.
+
+"15. Above all things we command and enjoin that the three brothers unite in undertaking the care and protection of the Church of St. Peter, even as aforetime was done by our grandfather Charles, by our father Pepin, of blessed memory, and afterwards by ourself; that with the help of God they will exert themselves in protecting her from enemies, and so far as they are bound, and reason may require, in the enjoyment of all her rights. We enjoin the same with respect to all other churches placed under their care; in order that they may enjoy their rights and honors, and that the pastors and rectors of all venerable places may have power over all things to them pertaining, no matter in which of the three kingdoms the possessions of such churches may be situated.
+
+"16. If, contrary to our expectation, these our statutes and conventions shall through ignorance or inadvertence be infringed upon, we command that such infringement be at once corrected, lest through delay still greater mischief should ensue.
+
+"17. As to our daughters, the sisters of our sons aforesaid, we command that after our decease any of them shall be at liberty to choose the brother in whose kingdom, and under whose care, she desires to make her home. If any of them makes choice of the monastic profession, she shall be at liberty to live honorably under that brother's protection whose kingdom she shall choose. If any of them be justly and reasonably asked in marriage of a man worthy of her, and she prefer the married estate, her brothers shall not oppose her wishes, provided that the intentions both of the suitor and of her who accepts his suit, be honest and reasonable.
+
+"18. As to our grandsons, the sons of our aforesaid sons, born or to be born, it has pleased us to command that none of our sons, upon any pretext whatever, shall cause any of our grandsons, who to any of them may be accused of crime, to be put to death, mutilated, blinded, or forcibly shaved [*i. e.* [Latin] sent to a monastery], without a just trial and examination previously had; and to notify our will that they may be honored near their fathers and uncles, and likewise that they be obedient unto them in all subjection as pertaining to such degree of consanguinity.
+
+"19. Finally it is ordained that should we see fit hereafter to add unto these present decrees and constitutions, other provisions profitable and useful to our beloved sons aforesaid, such additions shall be kept and observed as we enjoin that these present decrees and statutes shall be kept, and observed.
+
+"20. All these things, moreover, are here in order set forth and established with the proviso, that so long as it may please the Majesty of God to preserve our life, our power over this government and empire shall remain unchanged and unimpaired, as heretofore it has been, in every attribute of royal or imperial prerogative, and that we may have the full obedience both of our beloved sons, and of our people beloved of God, with all the submission due a father from his sons, and an emperor and king from his subjects. Amen."[^mytranslationfollows]
+
+[^mytranslationfollows]: My translation follows the text of Boretius, *l. c.* [Latin], p. 126 sqq.
+
+Reading this remarkable instrument, the transcript of the hidden purpose of the heart of Charles, in the light of the history unfolded in this volume, it is difficult to resist the conviction that Article 5 not only seeks to justify his usurpation of the inheritance of right belonging to the children of Carloman, but that it expresses remorse, or the workings of a conscience not at ease.[^boretiussimsondestatu]
+
+[^boretiussimsondestatu]: Boretius, *l. c.* [Latin]; Simson, *De statu quæstionis, etc.* [Latin], p. 32, No. 1.; Manitius, *Neues Archiv.* [German] VII., 564; cf. Leibnitz, *Annal. imp.* [Latin] I., 239–242; Muratori, *Annali d'Italia* [Italian], IV., 2, p. 240 sqq.; Luden, *l. c.* [Latin] V., 218–221, 572 sq.; Waitz, IV., 554 sqq.
+
+The several points enumerated in the next nine articles illustrate the working of the feudal system and the rude state of society and morals.
+
+Article 17 seems to imply the injurious reports current as to the daughters of the imperial family, and Article 19 as plainly intimates that Charles thought the brothers capable of such atrocity as therein described. Nor was he mistaken, for Louis, their sole survivor, meted it out to Bernhard, the lawful son and heir of Pepin.
+
+If the document is genuine, as not generally admitted by competent critics, it settles the point of the legitimacy of his other sons, for he recognizes only three.
+
+The document was adopted and sworn to by the nobility assembled, and sent by the hands of Einhard to the pope for his cognizance and written approbation.[^thedateofthisdocument]
+
+[^thedateofthisdocument]: The date of this document is fixed by an entry in Cod. No. 272, Biblioth. Sangall. p. 272, of contemporary origin, reading: "*Anno 806 ab incarnatione Domini, indictione 14. anno 38 regnante Karolo imperatore, 8. Id. Febr. die Veneris, divisum est regnum illius inter filiis suis, quantum unusquis post illum habet, et ego alia die hoc opus. . . .*" [Latin]
+
+---
+
+#### CHAPTER IV.
+
+##### EVENTS FROM THE DIVISION OF THE EMPIRE TO THE DEATH OF PEPIN.
+
+*In Italy: Piratical descents of the Saracens.—Grimoald Storesaiz, duke of Benevento.—Relations of Pepin to Leo, and to the Byzantines.—Submission of Venetia.*
+
+*In Spain: Struggle for Tortosa; two ineffectual investments of the place.*
+
+*In the Empire: Embassies to and from Bagdad.—Presents.—Restoration of the fugitive king of Northumbria.—Danish invasion by Gottfried, of Northalbingia.—Fortresses.—Commissioners of peace.—Assassination of Thrasco, an ally of Charles.—Danish descent upon Frisia.—Charles marches against Gottfried.—His fate.—Camp at Verden-on-the-Aller.—Death of Pepin.—Domestic sorrows.—The epizooty.—A prodigy.—The Filioque.*
+
+**806]** After the adjournment of the Diet Charles sailed down the Moselle and the Rhine to Nimeguen, while his royal sons, Pepin and Louis, returned to their distant dominions.[^annaleinh426]
+
+[^annaleinh426]: Annal. Einh.
+
+An interval of about five years lies between the partition of the empire, or the first and public testament of Charles, and his second testament concerning his personal estate. In tracing the course of events belonging to that period, we propose to take up first the affairs of Italy, then those of Aquitaine and Spain, and lastly those of the empire at large.
+
+The frequent piratical descents, by the Moors of Spain, upon Corsica, Sardinia, and other islands were most vexatious and needed chastisement. King Pepin accordingly fitted out a fleet against them and ordered it to Corsica; at its unexpected approach the pirates made for their fast vessels and sailed away, not however without a fight, imprudently brought on by the Genoese count Hadumar, in which he lost his life. Otherwise the Franks scored an almost bloodless victory, and, under the law of conquest, claimed the island of Corsica, which the Moors, by the same right, had snatched from the Greeks.[^annaleinhenhfuldb] The pirates, however, did not return empty; besides the Corsican plunder they carried off sixty monks from the small island of Patelaria, between Sicily and Africa, and sold them in Spain. Their misfortune excited the sympathy of the emperor, who generously ransomed, and restored them to their home.[^annaleinhaliqui] By direct command of Charles, an imperial fleet, under the constable Burchard, was despatched into Corsican **807]** waters in anticipation of another visit of the pirates in the year following. They came in due course, and began operations with a descent upon Sardinia; the inhabitants gave them a warm reception and signally defeated them in an engagement with a loss to the pirates of three thousand.
+
+[^annaleinhenhfuldb]: Annal. Einh., Enh. Fuld., Maxim.
+
+[^annaleinhaliqui]: Annal. Einh., "*aliqui*;" [Latin] Maxim. a. 807; "*multi.*" [Latin]
+
+Still enough of their number survived to undertake the unfinished part of their enterprise. Sailing straight for Corsica, they ran into the jaws of the Frankish fleet; Burchard compelled them to fight, defeated them, took thirteen of their vessels, killed a large number of their men, and drove the rest to flight.[^annaleinhmaximenhfuld]
+
+[^annaleinhmaximenhfuld]: Annal. Einh., Maxim., Enh. Fuld.
+
+Leo took a peculiar interest in the conquest of that island by the Franks as included in the alleged grants to St. Peter made by certain patricians, emperors, and other God-fearing men for the salvation of their souls, and in atonement of their sins.[^codcarolep61] Having received several communications on the subject from Charles, alluding to the restoration, to St. Peter, of divers papal possessions on the island, he notifies the emperor, in reply, of his willingness of leaving the final adjustment of the said claims, based on deeds of donation and promises, with him, and after adverting to certain oral messages of the emperor's delivered by Count Helmgaud, expresses the confident and prayerful expectation that the imperial donation may be permanent, and through the joint intercession of the Virgin Mary, and the apostles St. Peter and St. Paul, as well as the emperor's most valiant arm, safe from the insidious malice of enemies.[^leonisiiiep1jaffe]
+
+[^codcarolep61]: Cod. Carol., ep. 61 (Jaffé).
+
+[^leonisiiiep1jaffe]: Leonis III., ep. I., Jaffé, IV., 310 sqq.
+
+The last especially was needed, for the Moors returned two years later, and on Easter Even, when the Christians were preparing for the high festival of the Resurrection, fell upon a city in Corsica, plundered it, and, with the exception of the bishop and a few infirm and aged people, dragged the entire population into captivity.[^annaleinhmaxim809]
+
+[^annaleinhmaxim809]: Annal. Einh., Maxim. a. 809.
+
+**810]** This they followed up, in the following year, on a much larger scale, with a powerful fleet from all parts of Spain, which, after touching in Sardinia, sailed for Corsica, and finding the island utterly unprotected, devastated and almost wholly subdued it. Then they sailed away, but returned in the autumn and consummated the conquest.[^annaleinhmaxim810]
+
+[^annaleinhmaxim810]: Annal. Einh., Maxim. a. 810.
+
+In Italy proper the duke of Benevento successfully maintained his independence to the last. He died in 806, and was succeeded by another Grimoald, surnamed *Storesaiz* [Lombard], a Lombard word signifying "the treasurer," in allusion to his official position in the reign of his predecessor. He was a man of a pacific turn of mind, but his policy towards the Franks was unfriendly throughout this period.[^annallaurminerchempert]
+
+[^annallaurminerchempert]: Annal. Laur. min.—Erchempert, *l. c.* [Latin], c. 7 Chron. S. Bened. Cas.; Agobard, *De grandine, etc.* [Latin], in Bibl. Patr. Lugd. XIV., 74; Pasch. Radb. MG. SS., II., 527.
+
+The personal relations of Leo and Pepin were not good. This appears from the pontiff's epistle to Charles,[^samenote1] protesting that "while his feelings for Pepin were sincerely cordial, bad men were ever sowing *zizania* [Latin] [that is, tares], and making mischief;" continuing "that he had received the presents and letters with which Charles had honored him and been much gratified by the announcement of a promised visit, at mid-Lent, of King Pepin; that he had made the necessary preparations, but on the day before the appointed meeting Pepin sent messengers saying that he could not come till after Easter; that the imperial *missi* [Latin], moreover, had informed him, the pope, that their imperial master had commanded them to proceed to Pepin, enjoining him, in his father's name, to consent to a personal interview with himself, at a convenient point, for the purpose of establishing peace and concord between the king and himself; that he was truly grateful for these, the emperor's good offices, who justly bore the title of *pacificus* [Latin], and illustrated the biblical description of an evangelist of peace,[^howbeautiful] assuring him of his ready co-operation towards promoting the rights of the churches of God and placing the coasts in a proper state of defence against pagan and inimical assaults, adding that both he, the pope, and Pepin needed the emperor's counsel and help."[^leonisiiiep1b]
+
+[^samenote1]: The same as in note 1.
+
+[^howbeautiful]: "How beautiful are the feet," etc.
+
+[^leonisiiiep1b]: Leonis III., ep. 1.
+
+It is not known how the matter ended, but it appears from a second epistle of Leo's to Charles, written after Easter, 808, that the imperial *missi* [Latin] on their return-journey stopped at Ravenna, and on Palm-Sunday took luncheon with the archbishop. The pope submits that the emperor had better ask the *missi* [Latin], if the lessons and exhortations they heard there were appropriate to Lent, for his own sense of shame forbade his setting them down in writing.[^ibidep2]
+
+[^ibidep2]: Ibid. ep. 2.
+
+This shows that there was not much love lost between Rome and Ravenna, and the understanding between Rome and Verona, the favorite residence of Pepin, was not much better.
+
+The Byzantines, however, gave the king of Italy more to do than the Moors, Benevento, and the pope. The Court of Constantinople resented the action of Charles in the matter of Venice and Dalmatia.[^seep415] A fleet, commanded by the patrician Nicetas, having orders to reconquer Dalmatia, **806]** appeared in Venetian waters and blockaded the coast. The Venetians, if their historian writes truly, straightway forgot their allegiance to Charles and furnished military aid to the Greek admiral.[^annaleinhandrdandul] The patriarch Fortunatus ran away from Grado, and, again by the emperor's favor, was enabled to take up his seat at Polo in Istria, though not without a gentle demurrer on the part of Leo, who did not hold him either in the bonds of brotherly love.[^chronjohan] The blockade was not effective, for a vessel having on board the ambassadors of Charles to Harun, now on their return-journey, together with an ambassador from Harun and a deputation from Jerusalem, ran it without trouble, and entered the port of Treviso.[^annaleinhcfvitacaroli16] The nature of the hostilities perpetrated by the Byzantines cannot be determined, but there is no uncertainty whatever concerning the moral effects of the Greek fleet. Nicetas appears to have been a man of great tact and ability, for he succeeded in alienating the doges and their party from the Franks. He conferred on the doge Obelierius the dignity of a *spatharius* [Latin], and induced Beatus his brother to accompany him (with Venetian hostages, as well as the bishop of Olivolo and the tribune Felix "because they favored the Franks") to Constantinople. Having thus re-established the authority of the Byzantine emperor, he had no difficulty in moving Pepin to agree to an armistice to last until August next ensuing (*i. e.* [Latin], 808), and the preliminaries of a treaty of peace, subject to ratification by Nicephorus. He raised the blockade, and having accomplished the objects of his expedition, among which should be understood the submission of Dalmatia, sailed away. Nicephorus seems to have approved the action of his admiral, for he sent the Francophile bishop and tribune into banishment, but rewarded the converted Beatus with the honorary distinction of *hypatos* [Greek], or titulary consul, and allowed him to return to Venice, where he and his brother Obelierius associated their third brother Valentinus with themselves in the government, so that Venice might now boast of a fraternal triumvirate of doges.[^annaleinh807joh]
+
+[^seep415]: See p. 415.
+
+[^annaleinhandrdandul]: Annal. Einh., Andr. Dandul. *l. c.* [Latin] l. VII., c. 14.
+
+[^chronjohan]: Chron. Johan. in MG. SS. VII., 13 sqq. Cf. Leonis III., ep. 5 (Jaffé); Liber de S. Hildulfi, MG. SS. IV., 88.
+
+[^annaleinhcfvitacaroli16]: Annal. Einh., cf. Vita Caroli, c. 16 and below.
+
+[^annaleinh807joh]: Annal. Einh. a. 807; Joh. Chron. Venet, *l. c.* [Latin] p. 14.—Cf. Harnak, *Das Karoling. u. Byzantin. Reich* [German], p. 49; and on *hypatos* [Greek], Zanetti apud Pertz, MG. SS. VII., no. 50.
+
+The truce expired, but the peace fell through, and another **809]** Greek armament appeared in the Adriatic, which, after touching in Dalmatia, sailed to Venice and spent the winter there. A squadron, under orders to attack Comacchio, had an engagement with the garrison, was defeated, and compelled to return to Venice. Paulus, who was in command of the fleet, showed a conciliatory disposition and, alleging to have orders to negotiate for peace, opened communications with the king of Italy, but finding that the doges bitterly opposed him in every way, and imperilled his safety by secret machinations, cut the Gordian knot and sailed away.
+
+It is difficult to explain the policy of the doges. Their action against the admiral seemed inimical to the Byzantines, and it was clearly not friendly to the Franks. Did they intrigue for independence, thinking it their advantage to keep the belligerents asunder? Perhaps they only played fast and loose, for a favorable turn. They were certainly slippery and treacherous, and it might be argued, that any arrangement which placed Venice under Frankish domination would be odious to them, as entailing a punishment which they knew they richly deserved.[^idonotpretend]
+
+[^idonotpretend]: I do not pretend to explain the puzzle. See Döllinger, *l. c.* [Latin], pp. 357, 381, Harnak, *l. c.* [Latin], p. 50; and Simson, *l. c.* [Latin], II., p. 395, text and notes.
+
+There is little doubt that Pepin regarded their conduct as perfidious, and resented it by ordering an attack upon Venice by land and by sea. An armament, having on board a very powerful army of Lombard troops, including cavalry, penetrated to the heart of Venetia, crossed the lagoons, or, in the language of a Venetian authority, the "ports" which separate the isles, under great difficulties, took Palestrina, and advanced to a place, now disappeared, called Albiola, which was situated near Malamocco. At that point the Venetians were able to check the advance of the enemy, by blocking the channel with masts and spars which they sunk in the shallow water. This, it is said, prevented the vessels of Pepin from carrying his troops, which were posted on the coast, to the Rialto, and compelled him to confine his operations to a blockade by land for the space of six months. To this dubious account must be added the fabulous story that the doges attacked and defeated Pepin with great loss at Albiola and forced him to withdraw in confusion.[^confususrecessit] Other versions still more fabulous, and demonstrably the manufacture of a later period, need not be repeated. We drop therefore the Venetian account, and, though admitting the probability of a check to the army of Pepin, state the result of the expedition in the language of the Frankish annals, to wit, that Pepin subdued Venetia and **810]** compelled the doges to make their submission. This appears to be established and confirmed by a Greek writer, saying, that the Venetians, owing to the distress caused by the long blockade and the devastation of their country, were forced to sue for peace.[^constporphyro] The fleet of Pepin thereupon was ordered to proceed to the coast of Dalmatia and waste the country, but that part of the expedition proved an utter failure, for the arrival of Paulus, Prefect of Cephalonia, who came with a Greek fleet in aid of the Dalmatians, compelled the Franks to desist from their purpose and sail away.
+
+[^confususrecessit]: "*Confusus recessit.*" [Latin]—Joh. Chron. Ven. p. 15.
+
+[^constporphyro]: Const. Porphyro. de administr. imper. c. 28, ed. Bonn.
+
+It may not be superfluous to add that the explicit record of the failure, by the same authority which notes the previous success, enhances of course the credibility of the whole.[^authoritiesforthis]
+
+[^authoritiesforthis]: The authorities for this, the last military enterprise of Pepin, are the following: Annal. Einh., Maxim.—Joh. Chron. Venet. MG. SS. VII., 14, 22; Const. Porphyr., De adm. imp. c. 28 (ed. Bonn); Andr. Dand. apud Muratori, Rer. Ib. SS. XII., 158 sq.—Cf. Harnak, *l. c.* [Latin], p. 51 n.—Mühlbacher, *l. c.* [Latin], no. 437 a. See an exhaustive critical examination of the legendary account of the attack of Venetia in Simson, *l. c.* [Latin], II., Excursus, VI., p. 594 sqq.
+
+We now turn to the kingdom of Aquitaine and the affairs of Spain. The first event to be chronicled is the submission **806]** of Navarra and Pampeluna. The first reduction of these cities to Frankish authority occurred twenty-eight years before when Charles invaded the peninsula in person. Since then, most probably in recent years, the victorious emir of Cordova reconquered them, as Arab authorities state the case, while the Frankish annals speak of their defection to the Saracens. The circumstances under which they returned to Frankish allegiance are unknown.[^annaleinhmaxim806]
+
+[^annaleinhmaxim806]: Annal. Einh. Maxim. a. 806.—Vita Hludov. c. 18, cf. also Annal. Metten., and for a rich crop of conjectures: Leibniz, *Ann. imp.* [Latin] I., 244; Funck, *Ludwig d. Fromme* [German], p. 30 sq. 319 sq.; Foss, *Ludwig d. Fromme vor seiner Thronbesteigung* [German], p. 23.—See also Lembke, *Gesch. von Spanien* [German], I., 378.
+
+We have better information of an aggressive movement directed against the city of Tortosa, at the mouth of the Ebro. It was strongly fortified and commanded that river. Its importance as a military position did not escape the emperor's eye. He accordingly directed Louis, in a personal interview with him at Aix-la-Chapelle (February, 809), to strike a blow for its possession. The king of Aquitaine moved at the head of a seemingly adequate army into Spain, and proceeded to St. Columba, two marches west of Barcelona in the direction of Lerida. There he divided it into two columns, a greater and a lesser. With the former, under his own command, he marched to Tarragona and captured the Moslems whom he found there, that is, those who were unable to escape. Detached companies scoured the country and spread consternation throughout the region; he set on fire and destroyed whatever lay in his path; hamlets, castles and cities, all the way to Tortosa, were laid in ruins; and then, having by such indiscriminate destruction isolated the place, he pitched his camp under its walls. The second column, evidently composed of picked troops, and conducted by able commanders, among whom Isambard, Hademar, Bera, and Burellus are mentioned by name, was under orders to cross the Ebro, surprise the enemy from the rear and either attack or otherwise harass him.
+
+The work assigned to the raiding expedition was difficult and perilous. It had to proceed with the greatest caution and, in order to conceal the movement, was obliged to turn night into day. The raiders marched only by night and rested during the day in the dense seclusion of the woods; they were even forbidden to light camp-fires, lest the smoke should betray them. Thus stealthily advancing they reached on the morning of the seventh day the neighborhood of the Cinca, swam that stream, which after its junction with the Segre, forms a confluence with the Ebro at Mequinenza. Near the latter point they also swam this river and forthwith began the work of devastation throughout the region, one of the most fertile and opulent sections of the whole peninsula. Thus they advanced without opposition to a place of considerable size, called Villa-Rubea, and as the Saracens in the consternation of such a sudden irruption gave what they had or fled in hot haste, they were able to carry off rich spoils. But the news of their coming spread like wildfire, and a considerable (*non minima* [Latin]) multitude of Saracens and Moors (*sic* [Latin]) collected near the opening of the Valla-Ibana, a deep ravine hidden between high and precipitous rocks, to dispute their passage in a well-set ambush.
+
+Had the raiders entered that hollow they would either have been killed to a man or taken prisoners, for escape was impossible. But precaution and prudence, or some other cause, directed their course and led them to make choice of another road, not as direct, and seemingly in a line opposite to their advance.
+
+The Moors seeing them turn round, thought they were flying and gave the pursuit. The Franks soon disabused them, for leaving the spoils, they faced about, engaged, defeated, and chased their Moslem pursuers; those who fell into their hands, they put to the sword; then taking up the spoils, and flushed with victory, they began and completed the return march. They accomplished this plucky and successful raid in twenty days and, it is added, with inconsiderable loss.
+
+The king doubtless rejoiced at the safe return of his troops with such valuable booty, and would have rejoiced still more had his own operations been correspondingly successful. His biographer records with laconic and judicious brevity that after devastating the country all around, he returned home. A supplementary notice, on Arab authority, explains that brevity.
+
+It seems that El Hakem, the emir of Cordova, at the first intelligence of the Frankish invasion, ordered his son Abd-el-Rhaman, then at Saragossa, to effect a junction of his available forces with those of the emir of Valencia and by forced marches hasten to the relief of Tortosa. His order was instantly and intelligently obeyed; the Moslems attacked the Franks in their camp, defeated them, and compelled Louis to raise the siege and retreat. They were nevertheless not strong enough to give the pursuit.[^annaleinhvitahludc14]
+
+[^annaleinhvitahludc14]: Annal. Einh.; Vita Hlud. c. 14; cf. Ademar, apud Duchesne, II., 84.—Conde. I., pt. II., p. 35; Fauriel names the Arab historian, Ahmed el Mocri, MS. Arab. 704.—See also Funck, *l. c.* [Latin], 290 sq.; Lembke, *l. c.* [Latin], I., 379, note 2.
+
+**809]** About the same time a curious incident occurred, which claims attention. Count Aureolus, the Frankish commandant who had his head-quarters in the Spanish Marche at a point opposite to Huesca and Saragossa, died, and at his death, a certain Amoroz, wali of those cities, occupied his territory and put garrisons into his castles. He then sent an embassy to Charles, charged to explain or justify his strange proceedings on the plea that it was his purpose to submit himself with all things to him belonging, and according to another notice, with all his people, to Frankish rule. **810]** The emperor must have thought favorably of the proposal, for he sent legates in return requiring the crafty Amoroz to fulfil his promise. He made further promises and proposed a conference with the Frankish counts in the Spanish Marche at which the promised submission was to take place. The emperor approved also of this proposal, but the matter fell through, because "many causes occurred to prevent." What they were we do not learn. But the sequel seems to imply that the whole thing was a ruse, and as objectionable to the Moslems as to the Franks; the affair became the subject of diplomatic intercourse and led to the appointment of an Arab embassy to Charles, empowered to treat of peace. It was virtually concluded, and in reciprocation of the emir El Hakem setting free the Frankish Count Haimrich, a prisoner of war, the emperor appears to have surrendered, or, at any rate, relinquished his hold upon his dubious vassal Amoroz, who was forced by Abd-el-Rhaman, the emir's son, to fly from Saragossa and escape to Huesca.[^annaleinh809810] The terms of the peace, according to a Spanish writer, were these:
+
+[^annaleinh809810]: Annal. Einh. a. 809, 810; Maxim., a. 810.
+
+The Moors and the Franks to live in peace; each of the two sovereigns to be satisfied with the territory then in his possession; the king of Cordova to drive his vassal Amoroz from the fortresses, and restore to Charles the count Henricus, for some time past a prisoner in his hands.—El Hakem fulfilled the terms of this agreement, set the count at liberty, and commanded his son to take up arms against Amoroz, faithless alike to both kings. Abd-el-Rhaman forced him out of Saragossa, and pursued him to Huesca, where he intended to fortify himself.[^historiacritica]
+
+[^historiacritica]: *Historia Critica de España* [Spanish], XII., p. 114 sq.
+
+The first two conditions appear to be purely imaginary; at least they were flatly contradicted by the events then in progress.
+
+The peace, moreover, cannot have been general, for it did not stop hostilities. A new expedition, destined to accomplish the objects proposed in that of the preceding year, was ordered to be prepared. Louis intended to conduct it in person, but the emperor decided otherwise; the military ability he then displayed did not render his presence indispensable, besides he was wanted for other work of great urgency. He was directed to push and watch the building of ships on the Rhone, the Garonne, and the Silida (?),[^itisnotknownwhatriver] for service against the Northmen,[^seep443] and count Ingobert was accordingly placed in command as his lieutenant or representative.
+
+[^itisnotknownwhatriver]: It is not known what river is meant. Conjectures are abundant.
+
+[^seep443]: See p. 443.
+
+He safely conducted the army to Barcelona and held a military council; it was decided that the former plan with a diversion beyond the Ebro should be repeated. The bulk of the force was to remain with count Ingobert and undertake the siege of Tortosa. A flying column of picked men, commanded by Hademar and Bera, was to march to the Ebro and observe the same cautions as before; it was ordered, however, that they should not swim the river, but cross on boats. For this purpose the necessary number of boats was built in sections, four sections to each boat, each section to be drawn by two horses or mules. Clamps and nails for putting them together, as well as pitch, wax, and oakum for calking the seams, were provided, and when all was ready, the raiders set out on their perilous venture. Their former experience stood them in good stead, and as they were neither encumbered with unnecessary baggage, nor troubled with tents, they did not loiter by the way, and as stealthily and unobserved as on the former occasion,[^seep433] performed the journey in only three days, or less than half the time then consumed. On the fourth day the men crossed the Ebro on the boats, but the horses swam the river.
+
+[^seep433]: See p. 433.
+
+Nevertheless they failed in surprising the foe. It seems that the wali of Tortosa had been on the alert, and in anticipation of a sudden descent placed troops on both banks of the Ebro, which proves that he had profited by past experience. Now it so happened that a Moor, while bathing, detected in the water evidence of the presence of Frankish horses and gave the alarm. Two mounted sentries galloped up the river and, sighting the enemy in force, informed their brethren who fled in hot haste and left their camp, with all its belongings, as it stood, so that the Franks could take and turn it to good use by spending the next night in Arab tents.
+
+On the following day Abaidun, wali of Tortosa, came out to meet them. An engagement took place in which the Moors, though greatly superior in numbers, were defeated with great loss. The Franks gave the pursuit and killed the flying enemy until night stayed the massacre. They gathered a rich booty, and, flushed with victory, repaired to the investing host to join in the operations against Tortosa. But here they were not successful, for the Moors defended their city with skill and valor, and defied the efforts of count Ingobert, who was at last compelled to raise the siege and return.[^vitahludovc15]
+
+[^vitahludovc15]: Vita Hludov. c. 15, and see the record of Arab writers in Funck, *l. c.* [Latin], p. 290.
+
+Events belonging to this period, other than legislative and administrative, in which the emperor appears personally, are now in order. The reader will remember the ship which ran the blockade and entered the port of Treviso.[^seepage430] It bore the emperor's ambassadors to Harun al Raschid, returning, and accompanied by Abdallah, the khalif's ambassador to Charles, together with George and Felix, two monks from Jerusalem, who came on a mission from the patriarch Thomas.[^annaleinha807b] Abdallah was the bearer of many rare, costly and artistic presents, which excited universal interest and admiration. Besides rich silken vestments, perfumes, salves, and balsam, together with two splendid candelabra of brass or bronze, exquisite in form and of large dimensions, they brought a remarkably fine tent and a water-clock which were extolled above the rest. The tent was a prodigy in size and beauty, and the door curtains together with the ropes and cords were of byssus dyed in variegated colors. The Saxon poet fables of its wonderful dimensions and contrivances; it was so lofty that no arm was strong enough to shoot an arrow beyond its roof, and so spacious, and contained so many splendid apartments, that it seemed to be a palace.[^poetasaxoliv] The brass or bronze water-clock was a most artistic work. A mechanism, set in motion by water, marked the course of twelve hours; at every full hour as many bronze balls as the dial indicated fell upon a bell placed underneath and made it strike the time; there were also twelve windows which opened as each hour passed away, and lastly at the end of the twelve hours, twelve cavaliers issued forth from the twelve windows in so spirited a way that the windows could not resist the shock and shut in consequence.
+
+[^seepage430]: See page 430.
+
+[^annaleinha807b]: Annal. Einh. a. 807.
+
+[^poetasaxoliv]: Poeta Saxo l. IV., v. 85 sqq., 208 sqq.
+
+The clock had yet many other surprising contrivances too numerous to be mentioned, as the annalist observes, and we therefore drop the subject.[^annaleinh439]
+
+[^annaleinh439]: Annal. Einh.
+
+It is doubtless with reference to this embassy that we read that "when the ambassadors sent by Charles to visit the most holy sepulchre and place of resurrection of our Lord and Saviour, presented themselves before him [Harun] with gifts, and made known their master's wishes, he not only granted what they asked, but gave possession of that holy and blessed spot. When they returned, he despatched his ambassadors with them and sent magnificent gifts, etc."[^vitacaroli16b]
+
+[^vitacaroli16b]: Vita Caroli, c. 16.
+
+The evangelical accuracy of this statement may fairly be questioned, but there is no reason to doubt the fact that the khalif ratified the nominal suzerainty of Charles over the Holy Places, whose symbols the patriarch of Jerusalem had sent him on the eve of his coronation (800).[^seepage216] In the hands of the Monk of St. Gall the khalif goes so far as to propose to the ambassadors of Charles a cession of the entire Holy Land, content to administer the same in the capacity of a deputy (*advocatus* [Latin])![^monachsangallb]
+
+[^seepage216]: See page 216 sq.
+
+[^monachsangallb]: Monach. Sangall. II., 9.
+
+The embassy of Harun was purely one of amity, but of the object of the mission of Brothers George and Felix the record is silent. We may connect it, however, with the generosity of Charles who upon the discovery of "Christians living in poverty in Syria, Egypt, and Africa, at Jerusalem, Alexandria, and Carthage, had compassion on their wants, and used to send money over the seas to them. The reason that he so zealously strove to make friends with the kings beyond seas was that he might get help and relief to the Christians living under their rule."[^vitacaroli27b]
+
+[^vitacaroli27b]: Vita Caroli, c. 27.
+
+**808]** During the emperor's stay at Nimeguen he accorded hospitable protection to Eardulf, the fugitive king of Northumbria. His subjects, as appears from the epistles of Alcuin,[^alcuiniepp] had just grounds of complaint against him, but he always maintained friendly relations with Charles[^leonisiiiepist2] and naturally turned to him in his distress; he also had the ear and interest of Leo to whom he was wont to send embassies. The latter, moreover, espoused his cause and sent the Anglo-Saxon deacon Aldulf as his legate into Great Britain, for the purpose of composing the difficulty. In the meantime Eardulf, upon consultation with Charles, proceeded to Rome,[^annaleinha808] where he spent some time, and, thanks to the joint good offices of the emperor and the pope, was enabled to return to his kingdom. His restoration appears to have taken place under imposing circumstances, for we read that the aforesaid Aldulf, representing the pope, and the notary Hrotfrid together with Nautharius, Abbot of St. Omer, representing Charles, accompanied him on the occasion.[^annaleinh808809]
+
+[^alcuiniepp]: Alcuini Epp., *l. c.* [Latin], 65, 79, 173, 229.
+
+[^leonisiiiepist2]: Leonis III., epist. 2 (Jaffé).
+
+[^annaleinha808]: Annal. Einh. a. 808.
+
+[^annaleinh808809]: Annal. Einh., a. 808, 809; Maxim., 808.
+
+The ambassadors, upon the successful execution of their mission, set sail for their distant homes. Those of Charles **809]** escaped the dangers of the sea, but the papal legate was less fortunate; he fell into the hands of pirates who carried him back to Britain, and held him until a vassal of Cœnulf, King of Mercia, paid his ransom. It appears that his deliverance, perhaps only his ultimate safe return to Rome, was due to the kind intervention or assistance of Charles.[^annaleinheaeleon]
+
+[^annaleinheaeleon]: Annal. Einh. e. a. Leon III., ep. 4.
+
+About this time (808) the inimical conduct of Gottfried,[^thedanescallhim] King of the Danes, called for energetic resistance and chastisement. He invaded the territory of the Abodrites, whom we left in possession of the land of the expatriated Northalbingians,[^seep140] and committed terrible outrages, in which the Wilzen or Welatabians, the Smeldings, and Linonians appear as his allies. It is stated that he took and destroyed a number of castles, and devastated the country; that he drove away Thrasco, the not over-popular ruler of the Abodrites, treacherously possessed himself of the person of Godelib, another duke of the same people, and hung him; and that he made two-thirds of the people tributary. His successes, however, were dear-bought, for the Abodrites offered stubborn resistance, and in the defence of an unnamed town fought so valiantly that by far the best of the Danish warriors lay dead on the field, and Reginold, the king's own nephew and heir-apparent in the throne, was among the slain. The announcement of the invasion provoked immediate action. It was feared that the intrepid Dane might attempt to cross the Elbe, and the emperor accordingly sent his son Charles at the head of a strong army to that river, with orders to resist the advance of the insensate (*væsano* [Latin]) king. When Charles arrived at the Elbe he cast a bridge over that river, and learning that the enemy, doubtless too weak, after his severe losses, for further offensive operations, was in retreat, with great celerity entered the country of the Linonians and the Smeldings, and laid it waste. The campaign, however, was not successful; his losses in men were considerable, and he deemed it prudent to recross the Elbe. Gottfried, on the other hand, appears to have pursued his march to the coast, and, after the destruction of a mercantile sea-port called Reric, and the removal of the traders on board his vessels, set sail and disembarked his army at Sliesthorp, the modern Sleswig. There, it is added, he provided for the protection of his frontier against encroachments from the direction of Saxony, by ordering the building of a wall, on the northern bank of the Eider, from the Baltic to the North Sea, furnished with only one gate for the ingress and egress of wagons and horses. Leaving the execution of this prodigious work in the hands of his army, he went home.[^annaleinha808b]
+
+[^thedanescallhim]: The Danes call him *Göttrik* [Danish], and a saga of his acts and exploits has been published by Olaüs Verelius.
+
+[^seep140]: See p. 140.
+
+[^annaleinha808b]: Annal. Einh. a. 808.
+
+Nor was the emperor remiss in the protection of his frontier. He ordered his *missi* [Latin] to direct the building of two castles on the Elbe, in which he placed Frankish garrisons as a precautionary measure against the Sclavonians.[^annaleinhmaximsamandi] The Danish king, however, apprehending further trouble, and ostensibly with a view to peace, sent several merchants with a message to this effect: he had heard that the emperor was angry with him for having made war, the year before, with the Abodrites, and avenged his injuries; this he could easily explain since it was they and not himself who in the first instance had broken the peace; so, with a view to a satisfactory discussion and solution of the pending difficulties, he recommended the appointment of an international commission. The emperor did not disfavor the Danish proposals and consented to the appointment of his commissioners, who met the Danish deputies at a place beyond the Elbe, called Badenfliot. The conference took place, the commissioners discussed the criminations which were made on both sides, and separated without any practical results.
+
+[^annaleinhmaximsamandi]: Annal. Einh.; Maxim.; S. Amandi; Chronic. Moiss. a. 808. One of these castles was probably Hohbuoki. See Simson, *l. c.* [Latin], II., p. 390, note 8.
+
+Meanwhile the excitement among the Sclavonian tribes was at flood-tide. Thrasco, it seems, who in compliance with the demand of Gottfried, had given him his son as hostage, felt at liberty to return to his country, and straightway undertook to avenge his wrongs. He collected an army, composed of his own people and Saxon auxiliaries, and in punishment of their alliance with Gottfried, invaded the country of the Welatabians, laid it waste with fire and sword, and, laden with booty, returned home. Flushed with his success, he accepted still more Saxon (*i. e.* [Latin] Frankish) auxiliaries and fell upon the Smeldings. He took their capital city, and forced them, as well as others, who had revolted from his rule, to return to their allegiance. We understand that he did this as the ally and vassal of Charles, under his directions, and with the troops which he sent him.[^annaleinhmaximregino]
+
+[^annaleinhmaximregino]: Annal. Einh., Maxim.; Regino; Chronic. Moiss.
+
+The effect of these events on the mind of Gottfried may be divined. Thrasco had absolutely destroyed his work and made his former success of none effect; and on Thrasco he meant to be avenged. He succeeded in enticing him by specious representations to Reric, and there caused him to be assassinated by one of his vassals.[^chronmoissannaleinh442]
+
+[^chronmoissannaleinh442]: Chron. Moiss. Annal. Einh.
+
+Gottfried was a reckless and most dangerous enemy, so "puffed up with vain aspirations that he counted on gaining empire over all Germany, and looked upon Saxony and Frisia as his provinces. He had already subdued his neighbors the Abodrites, and made them tributary, and boasted that he would soon appear with a great army before Aix-la-Chapelle, where the king held his court. Some faith was put in his words,"[^vitacaroli14a] and Charles, in anticipation of further hostilities, ordered the immediate erection of a strong fortress at Esesfeld on the Stoer, the modern Itzehoe.[^annaleinhmaxima809]
+
+[^vitacaroli14a]: Vita Caroli, c. 14.
+
+[^annaleinhmaxima809]: Annal. Einh., Maxim., a. 809. Chron. Moiss. a. 810.
+
+**810]** But the Dane stole a march upon him and struck a blow where he was least expected. The emperor was still at Aix-la-Chapelle, when suddenly tidings came of a most alarming character. A Danish fleet of two hundred sail, after devastating the islands off the coast, had landed in Frisia, defeated the Frisians in three successive engagements, made them tributary, and already exacted a first contribution of three hundred pounds of silver. The report continued that the descent had been made by Gottfried's lieutenants, but that he himself had stayed at home.
+
+Inquiry proved that the announcement was strictly true; it was by far the boldest attack on the Frankish dominions ever made by northern foe. It fairly stunned Charles, and roused not only his anger, but all the latent energy of his nature. He summoned the *heerbann* [German], ordered the completion of the ships building in different parts of the empire, the collection of a fleet, and the coast-guard to every point where the enemy might be able to land.[^anneinha811]
+
+[^anneinha811]: Ann. Einh. a. 811.—See p. 426, and Vita Caroli, c. 17.
+
+He immediately left the palace, it being his first purpose to attack the hostile fleet; but as this was not practicable, he changed his mind, and deeming it best that operations should begin from a point near the reported descent, proceeded with the younger Charles to Lippeham, the designated rendezvous of the troops, led them by forced marches to Verden on the Aller, and went into camp.
+
+There he awaited further developments, for the movements and designs of the enemy were shrouded in mystery. Would Gottfried fulfil his boast and meet him in open field? Whence would he come? From beyond the Elbe, or from Frisia?
+
+Prepared for every possible emergency, and pending the uncertainty, he held a placitum, received a deputation of his staunch allies, the Abodrites, and in response to their solicitation, designated Sclaomir successor to their murdered king.[^annaleinha817]
+
+[^annaleinha817]: Annal. Einh., a. 817; Aquens. 809; Mühlbacher, *l. c.* [Latin], pp. 181, 251.
+
+The long continued dearth of intelligence and suspense at last gave way to a series of startling announcements. "The Danes had re-embarked and sailed home," was the burden of the messages which came from Frisia; "Gottfried has been assassinated by one of his own body-guard," shouted couriers from the Elbe as they entered the camp. This ended the war in a most wonderful and unexpected way.[^annaleinhmaximchronmoiss444]
+
+[^annaleinhmaximchronmoiss444]: Annal. Einh.; Maxim.; Chron. Moiss.; Vita Caroli, c. 14. The Monk of St. Gall says, that Gottfried was slain by his own son in revenge for the repudiation of his mother, adding that while Charles glorified God for this singular judgment, he greatly deplored the calamity of his own absence, and the consequent escape of the Danes, exclaiming: "Woe is me, that I was not worthy to see how my Christian soldiers would have handled those *dogheads!*" Monach. Sangall. II., 13; Ekkehard, *Chron. Univ.* [Latin] MG. SS. VI., 162, 170.
+
+The fate of Gottfried was a Nemesis, which Charles and his warriors heard with a sense of relief, but on the heels of its announcement came another of an opposite character. The Welatabians had surprised the castle of Hohbuoki on the Elbe, with a garrison of Eastphalian troops, commanded by an imperial *missus* [Latin], and destroyed it; the loss was vexatious, but easy to repair.[^annaleinh444]
+
+[^annaleinh444]: Annal. Einh.
+
+It was the precursor of one much sorer, and irreparable, in the untimely death of Pepin, King of Italy. The circumstances under which it occurred are not known, for the vague statement of a later writer, that it was preceded by a painful illness, sheds no light on the subject.[^poetasaxiv241] It was utterly unexpected; the last tidings of Pepin were those of the Venetian campaign,[^seep432sq] which must have swelled his father's heart with grateful joy, and fond expectation; and now, in immediate succession, came this crushing blow.
+
+[^poetasaxiv241]: Poeta Sax. IV., 241.
+
+[^seep432sq]: See p. 432 sq.
+
+Twice before that year, not yet eight months old, the angel of death had visited his house; first he summoned away Gisla, his beloved and only surviving sister, the saintly abbess of Chelles, who was as dear to him as his mother;[^vitacaroli18] then he took his eldest daughter, princess Rotrud, once affianced to the emperor Constantine, Alcuin's *Columba* [Latin], the mother of Louis, subsequently abbot of St. Denis, and of late years the frequent companion of her aunt; and now he removed, in distant Italy, his well-beloved Pepin.[^ermnigellelegii175] It was a great sorrow, and he wept for him—for he was wont to weep in bereavement[^vitacaroli19d]—in his camp at Verden on the Aller, the same place where in years gone by he gazed, with unmoved eye, on the gory punishment of the perfidious Saxons.
+
+[^vitacaroli18]: Vita Caroli, c. 18.
+
+[^ermnigellelegii175]: Erm. Nigell. Eleg. II., 175.
+
+[^vitacaroli19d]: Vita Caroli, c. 19.
+
+Pepin died in the thirty-third year of his life, and was reputed to be a kind and tender-hearted man, of winsome presence, and considerable culture. He excelled most in arms, as the Beneventans, Avars, and Venetians knew to their cost, and Angilbert told in verse.[^carmlcvi200]
+
+[^carmlcvi200]: Carm. *l. c.* [Latin] VI., 200 sqq.
+
+He was buried at Milan, and a mural tablet of recent recovery, in the left nave of St. Ambrose, bears a Latin inscription of this tenor:
+
+"Here rests in peace Pepin who reigned in this province twenty-eight years and three months. He was buried on the fifth of the Ides of July in the third year of the Indiction. A son of the great lord Charles."[^thelatininscription]
+
+[^thelatininscription]: The Latin inscription is as follows:
+
+    > *+ Hic Pipinus rex quiescit in pace qui in hac regnavit provincia ann. XXVIII. m. III. Depositus V. Idus Iul. indictione III. fil. d. m. Caroli.* [Latin]
+
+    The death and burial of Pepin, in Milan, are attested: 1. The death, by Sigebert, *l. c.* [Latin] a. 809; Dand., Muratori, Rer. It. SS., XII., 158 E.; 2. The burial, Annal. Lauriss. minor. cod. Rem.; Chronic Vedast. MG. SS. XIII., 707.
+
+    The tradition, naming St. Zeno in Verona as the place of his burial, is untenable. See Malfatti, *Bernardo re d'Italia* [Italian], p. 53 sq.
+
+    The authenticity of the mural tablet in St. Ambrose's is not undisputed. Another, and very elegant epitaph, printed by Dümmler in Poet. Latin. æv. Carol. I., 405, bears intrinsic evidence of having been intended to be placed over the tomb, and presumably was set up. The first two lines expressly and emphatically affirm as much:
+
+    > *Hoc iacet in tumulo* Pippinus, rez venerandus, [Latin]
+    >
+    > Hesperiam rexit, *hoc iacet in tumulo.* [Latin]
+
+The emperor at once sent for his children, one son and five daughters,[^theirnameswere] placed Bernhard, for some time, in the monastery at Fulda,[^simsonlcii485] for the purpose of profiting by the instructions of the famous Rhabanus, its abbot, and provided for the orphaned daughters at the Court, where they found a loving home, and were educated under the direction and in the company of their aunts.
+
+[^theirnameswere]: Their names were: Adelaide, Atula, Gundrada, Berthaid, Theodrada.—The name of their mother is not known; an allusion to her occurs in Alc. ep. 77.
+
+[^simsonlcii485]: Simson, *l. c.* [Latin], II., 485.
+
+Besides these personal and domestic griefs, Charles was much cast down by a great national calamity, which bore, with unexampled severity, especially on the army in Westphalia. The epizooty, a pestilential murrain, broke out, and cut off all the cattle of the expedition to a head.
+
+The prevalence of that fatal disease in every part of the Frankish empire filled the people with despair and led to terrible results. The ignorant, suspicious, and unreasoning populace sought to explain the epidemic, and from inability to find a solution, believed a wide-spread rumor that Grimoald, Duke of Benevento, had sent out emissaries who poisoned all the wells, meadows, and even the grazing lands of mountainous regions by scattering broad-cast "mortal powder," as it was called. In vain did more enlightened persons protest, denounce the wickedness and absurdity of so dangerous a rumor, explaining that the Grimoald, who for so many years had been at enmity with the Franks was dead, and that the new Grimoald, who had risen in his place, was an urbane and peaceful man, and inclined to be the friend of Charles. They preached to deaf ears, for the insensate people would arrest strangers or suspicious characters, accuse them of scattering poison, and lay violent hands on them.
+
+Some, according to an eye-witness, they killed on the spot, but most of the victims were tied to boards and drowned. By far the most wonderful feature of the murderous excitement was the strange circumstance that some of the persons seized actually confessed that they had scattered "mortal powder."
+
+The writer does not state that their confession was voluntary, but torture is probably its explanation.
+
+The frenzy was so dangerous that special legislation became necessary, and the clergy were instructed to admonish the people to give alms and humble themselves in prayer for the removal of the many plagues with which for their sins they were grievously afflicted.[^agobarddegrand]
+
+[^agobarddegrand]: Agobard, *De grand. et tonitruis* [Latin], c. 16; Capit. Missor. Aquisgr. 1, a. 810; idem, 2, 810; apud Boretius, *l. c.* [Latin], p. 153.
+
+A sample of the manner in which the metropolitans complied with the imperial mandate has been preserved. The circular enjoins a three days' fast with humiliation and prayer to be universally observed, throughout the archiepiscopal see by all persons, except such as by reason of old age, or infancy, were unable to keep it; directs the fast to extend to abstinence from meat and wine, from beer, milschida (a concoction of beans and honey) and mead; and that all persons unable to fast were fined a solidus a day if they were rich; if in middling circumstances, in six denarii a day, and if poor, in as much as they were able to give. Perhaps these amounts were required of all persons as part of the fast.
+
+The clerics and nuns able to recite the Psalter were required to repeat the entire book in three daily portions of fifty Psalms. The remainder of the circular is wanting.[^rhicolfiarchiepisc]
+
+[^rhicolfiarchiepisc]: Rhicolfi archiepisc. ad Eginonem epistola a. 810, apud Boretius, *l. c.* [Latin], p. 249.
+
+On this, the last expedition conducted by Charles in person, occurred the accident included among the prodigies prophetic of his death.[^vitacaroli32b] If it happened at that time, it impressed him doubtless as a similar event would impress strong-minded and enlightened men of common sense now, who would view it as a merciful deliverance, or, should their convictions tend that way, as a special providence. The intimation of impending death would probably be as remote from their minds as it was from the thought of Charles.
+
+[^vitacaroli32b]: Vita Caroli, c. 32. See p. 490.
+
+But that camp at Verden marks a change in his life; the hand of God had touched him inly, and he left the Aller, a chastened and a better man.[^forthewholesection]
+
+[^forthewholesection]: For the whole section, besides the special references see on the Danish expedition: 809, Annal. Mett.; Einh.; Maxim.; Chron. Moiss.—810. Annal. Einh., Maxim., S. Amandi; Chron. Moiss.; Annal. Aquens.—Vita Caroli, cc. 17, 14.—On Pepin: Annal. Einh.
+
+Another subject of great moment to theologians of the ninth century, and still of considerable interest, remains to be considered.
+
+The dogma of the Procession of the Holy Ghost, often remanded to the realm of the unknown or unknowable, is one of the questions which led to the great schism eventuating in the separation of the Greek and Latin Churches. It is an indisputable fact that the Council of Constantinople **A. D. 381]** inserted in the Creed of the Council of Nice **A. D. 325]** the words "proceeding from the Father," and **A. D. 431]** that the Council of Ephesus decreed that thenceforth no additions should be made to that Creed. The Greek Church accordingly taught that the Holy Ghost proceeded from the Father. Thus the dogma stood in the *Creed*, although there is good ground for the opinion that both early Greek and Latin theologians held the view that the Holy Ghost proceeded from the Father and the Son. **A. D. 589]** In the Latin Church, the Council of Toledo inserted the words *filioque* [Latin], *i. e.* [Latin], "and from the Son," in the aforesaid Creed, and thus it passed into the Frankish Church. The question was examined in a Synod held at **A. D. 767]** Gentilly in the reign of King Pepin, at which Byzantine and papal representatives were present, but it remained open. At the instance of Charles it was taken up, and Alcuin wrote a treatise upon it which took strong ground in favor of the double procession.[^libellusdeprocessione]
+
+[^libellusdeprocessione]: Libellus de processione spiritus sancti, Opp. ed. Froben. I., 3; Alcuini ep. 242.
+
+A monk of St. Sabas at Jerusalem, the presbyter John, raised the question in a vehement attack of the Frankish congregation on the Mount of Olives, and declared them and all the Franks, because of the obnoxious interpolation, heretics. The excitement was intense, and the controversy grew so hot that it became necessary to refer the dispute for decision in the first instance to Pope Leo III., and through him to the emperor. Charles introduced the **809]** matter in the Synod of Aix-la-Chapelle, but although that Council showed a strong leaning in favor of the view ably presented by the bishop of Orleans (Theodulf), and Smaragdus, abbot of St. Mihiel on the Meuse, that the dogma of the Double Procession rested upon the express testimony of passages from the Old and New Testaments and the Fathers, did not reach a decision.[^thehymnvenicreator] But the emperor, unwilling to leave the matter unsettled, appointed Bernharius bishop of Worms, and his cousin Adalhard, abbot of Corbie, ambassadors to Leo with a view to bring it to a formal decision. They read to Leo all the proof passages in favor of the *filioque* [Latin], and then discussed them with him in a very friendly spirit, urging that if the dogma of the Double Procession set forth an important truth, every means of making it known should be adopted, submitting that the chanting of the Creed with the *filioque* [Latin] in public [*i. e.* [Latin], especially in the imperial Chapel Service], would greatly conduce to so desirable an end. The pope, while adopting the dogma that the Holy Ghost proceeded from the Father and the Son, opposed the introduction of the word *filioque* [Latin] as an unauthorized interpolation, on the ground of veneration of the fathers who framed the Creed, and of tender regard for the Greeks to whom it was obnoxious. He declared it as his opinion that the word should be dropped, and that the chanting of the Creed, because it was not chanted in his own church, should be gradually omitted.
+
+[^thehymnvenicreator]: The Hymn *Veni Creator Spiritus* [Latin] is ascribed to Charles; probability points to another authorship, but whose I do not pretend to affirm.
+
+In order, moreover, to give a public intimation of his views he caused to be set up in the churches of St. Peter and St. Paul, at Rome, the Nicene-Constantinopolitan Creed in the precise form (*i. e.* [Latin], without the *filioque* [Latin]) in which it had been set forth. It was engraved on two very massive silver shields, on the one in Greek and on the other in Latin, which appeared on either side of the entrance to the tomb of St. Peter, and again on another such shield at the entrance to that of St. Paul. Underneath he added these words: "I, Leo, have set this up in token of my love and protection (*cautela* [Latin]) of the orthodox faith."[^epistcarol2223]
+
+[^epistcarol2223]: Epist. Carol. 22, 23 (Jaffé); Migne t. CV., p. 239; t. 98, 923.—Epist. Mogunt. 1 (Jaffé, III., 317). Annal. Einh. a. 810; Maxim.; cf. Adonis Chron. MG. SS. II., 320.—Mansi XIV., 18. See also Le Cointe, *Annal. Eccles. Franc.* [Latin] t. IV., ad. a. 809. Longueval, *Histoire de l'Église Gallicane* [French], t. V., p. 151.—Vita Leonis III., ap. Muratori, *Rer. It. SS.* [Latin] III., 1, p. 208.
+
+In spite of his opinion, however, the use of Aix-la-Chapelle remained in force; and in due course the famous word gradually found its way into the form of the Creed throughout the Latin Churches.
+
+---
+
+#### CHAPTER V.
+
+##### LAST YEARS OF CHARLES.
+
+*Provisional government of Italy by missi.—Peace with Nicephorus.—Charles divides his treasure.—Text of the Testament.—Case of Obelierius.—Events in the Eastern empire.—Michael I. emperor.—Ratification of peace.—Leo V. emperor.—Peace with Denmark.—Affairs in that country.—Norman and Saracen pirates.—Peace and war in Spain.—Futile investment of Huesca.—Military expeditions against the Vasconians; the Bretons, Linnonians, etc.; and, for the establishment of order, to Pannonia; later, against the Welatabians—Final submission of Benevento.—Adalhard.*
+
+The death of Pepin imposed the necessity of immediate provision for the administration of his kingdom. His rule, like that of Louis, was strictly dependent on that of Charles,[^seeart20] and purely nominal.
+
+[^seeart20]: See Art. 20 of the Instrument of Division, p. 424.
+
+Even in the matter of the coinage, the supremacy of Charles was strictly maintained, and coins struck in Italy, Aquitaine, and the Spanish Marche, still extant, bear his name.[^soetbeerforschungenb]
+
+[^soetbeerforschungenb]: Soetbeer, *Forschungen* [German], IV., 299, 303, 307, 341, sq.
+
+Accordingly at his death the instructions, before given to him, were transferred to imperial *missi* [Latin], among whom the abbot of Corbie was the most illustrious.[^tiraboschistoria] The arrangement, however, was only provisional.
+
+[^tiraboschistoria]: Tiraboschi, *Storia della badia di Nonantola* [Italian], II., 36, no. 20;—Murarori, *Antiq. Ital.* [Latin] II., 977; V., 953. The last place names the patriarch Paulinus, archbishop Arno, abbot Fardulf, and the count palatine Echerigus as imperial *missi* [Latin] in Italy, before this period; and the last but one distinctly states that Rotechild was the *baiulus* [Latin] of Pepin.
+
+Soon after his demise, the *spatharius* [Latin] Arsafius, an ambassador from the Greek emperor, the bearer of letters, and messages for Pepin, arrived in Italy.
+
+Charles, upon his own testimony, heard the announcement of his arrival with pleasure, and unable to doubt the purport of his mission, concluded to treat it as directed to himself, and invited the *spatharius* [Latin] to proceed to his court. The tenor of the imperial letter, and the oral communications of the ambassador, convinced him of the pacific intentions of the Byzantine government and paved the way for an amicable understanding. A preliminary treaty of peace, on the basis of the restoration to Greek supremacy of Venetia and the sea-ports in Liburnia and Dalmatia, and the recognition, by the Byzantine emperor, of Charles as Emperor of the West, was the result of the negotiations. Charles, upon the conclusion of this treaty, addressed a very cordial epistle to Nicephorus, in which he dwells with manifest gratification on the pacific disposition of his imperial "brother" (for whom he has also such endearing terms as "amiable fraternity," "loving dilection," "affection"), and concludes with the announcement of his purpose of speedily sending to him an embassy for the continuation, and, eventually, the confirmation and ratification of the peace.[^annaleinhmaxima810811]
+
+[^annaleinhmaxima810811]: Annal. Einh. Maxim. a. 810, 811, cf. 812.—Vita Carol. cc. 15, 16, 28.—Epistol. Carol. 29 (Jaffé), and see on the whole subject, Simson, *l. c.* [Latin], II., p. 444 sqq. and *ibid.* [Latin], Excursus V.
+
+He probably made Arsafius, in a farewell audience, bearer of the said epistle, and soon after, say early in 811, sent his own ambassadors, to wit, Heito, Bishop of Basel, Hugo, Count of Tours, and the Lombard Aio of Friuli to Constantinople.
+
+It is added, that the embassy,—doubtless in consequence of a previous understanding reached by Charles and Arsafius—conducted Obelierius, the deposed doge of Venice, to "his master," *i. e.* [Latin], the Greek emperor, as well as the *spatharius* [Latin] Leo of Sicily, a fugitive at the court of Charles, who now desired to return to Constantinople.[^annaleinhmaxima811cf] Before the departure of the said embassy,[^thisisestablished] the emperor took action in a matter which is doubtless closely connected with his sad bereavements.
+
+[^annaleinhmaxima811cf]: Annal. Einh. Maxim. a. 811. Cf. Monach. Sangall. II., 6, and on Obelierius, Johan. Chron. Ven. MG. SS., VII., 15.
+
+[^thisisestablished]: This is established, for Heito, bishop of Basel, was one of the witnesses of his testament.
+
+**811]** There were monitions, which the stealthy approach of old age bade him heed. Five years before he had regulated the division of his empire, and the succession, but he had not yet made his will. Strictly speaking he never disposed by testamentary provision of his real estate. Einhard writes that "he had intended to make a will that he might apportion to his daughters and the children of his concubines shares in his inheritance, but it was begun too late, and could not be finished. Three years before his death, however, he made a division of his *treasure*, etc."[^vitacaroli33]
+
+[^vitacaroli33]: Vita Caroli, c. 33.
+
+It is with this division that we are now concerned. Concerning this interesting document, happily preserved, it is known that on a certain day, not mentioned, he assembled his friends and ministers, and called them in as witnesses, that their voices might insure the ratification of his dispositions after his decease. He had a summary drawn up of his wishes regarding this distribution of his property, the terms and text of which are as follows:
+
+"In[^ihaveusedthetext] the name of Lord God Almighty, the Father, the Son, and the Holy Ghost.
+
+[^ihaveusedthetext]: I have used the text of Teulet, but compared it with the texts of Pertz, Schmincke and Jaffé.
+
+"This is the inventory and division made by the most glorious and most pious[^thewordspious] Lord Charles, Emperor Augustus, in the year of the Incarnation of our Lord Jesus Christ DCCCXI., of his reign in Francia XLIII., in Italy XXXVII., of his empire XI., and of the Indiction IV., which considerations of piety and prudence have moved him by divine favor to make of his treasures and money as found this day in his treasure-room.
+
+[^thewordspious]: The words *pious* and *piety* do not signify religious veneration as to God, but denote humane considerations as to man.
+
+"By this act he specially desires to provide not only that out of his wealth there be made for himself such largess of alms as Christians are wont to make of their possessions, but that his heirs shall be free from all doubt, know clearly what is their own, and be able to secure their share in the property by just partition without litigation or strife.
+
+"With this purpose and to this end he has divided all his substance and movable goods, found this day in his treasure-room, consisting of gold, silver, precious stones, and royal ornaments, first into three lots, and then subdivided and set off two of these three lots into twenty-one parts, but reserved the third entire.
+
+"The first two lots have been thus subdivided into twenty-one parts because there are in his empire twenty-one[^therewere24] metropolitan cities, and it is ordered that each archiepiscopal see shall receive as alms at the hands of his heirs and friends, one of the said parts, and that the archbishop, then administering the affairs of the same, shall take the said part and in such wise share the same with his suffragans that one third thereof be given to his Church and the two-thirds remaining be divided among the suffragans. The twenty-one parts into which the first two lots are to be divided conformably to the number of the metropolitan cities, have been separated, and each of them has been placed by itself in a box inscribed with the name of the city for which it is destined. The names of the cities to which this alms or largess is to be given are these: Rome, Ravenna, Milan, Friuli, Grado, Cologne, Mayence, Juvarum (Salzburg), Treves, Sens, Besançon, Lyons, Rouen, Rheims, Arles, Vienne, Moutiers-en-Tarantaise, Embrun, Bordeaux, Tours, and Bourges.
+
+[^therewere24]: There were *twenty-four* metropolitan cities in his empire. Eause (*Elusa* [Latin]); Aix in Provence; and Narbonne, are omitted. Eause, the metropolis of Novempopulania, having been destroyed by the Vandals the metropolitan seat of the province was temporarily reunited to that of Bordeaux, and not restored to the Church of Auch until about 845.
+
+    The Church of Aix, metropolis of the second Narbonnessia, appears to have lost its metropolitan title about 596, and not recovered it until 828; throughout that period it was regarded as a suffragan see of the metropolis of Arles. The omission of these two names from the list is easily accounted for, but that of so famous a metropolis as Narbonne is difficult to explain. See Le Cointe, *Ann. Eccl. Franc.* [Latin], ad. a. 811, no. VIII., and Baluzius, *Capitul. Reg. Franc.* [Latin], II., 1071.—Teulet.
+
+    Compare also Leibniz, Ann. Imp. I., 275; Synod. Francof. 794, 8. Jaffé, Reg. Pont. Rom. no. CCCXXIV., Mühlbacher, *l. c.* [Latin], p. 126.
+
+"The third lot, which he wills shall be kept entire, shall be appropriated as here set forth: while the first two lots shall be divided into the parts aforesaid, and under seal set aside, the third lot shall be applied to the owner's daily wants, as property exempt from alienation because of the obligations of any vow, even so long as he shall survive, or deem it necessary for his use. But upon his death, or voluntary renunciation of the affairs of this world,[^thisseemstointimate] this lot shall be divided into four parts, one of which shall be added to the aforesaid twenty-one parts; it being his will that the second part shall be given to his sons and daughters, and to the sons and daughters of his sons, and distributed among them in just and equal partition; that the third part, agreeably to the custom observed by Christians, be appropriated to the poor; and that the fourth part, in like manner, and as alms, be applied to the men-servants and maid-servants holding office in the palace.
+
+[^thisseemstointimate]: This seems to intimate that such an idea had passed through his mind.
+
+"To this third lot of the whole estate which, like the two first lots, consists of gold and silver, the testator directs, shall be added all vessels and utensils of bronze, iron, and other metals, together with arms, vestments, and other movable goods, costly or cheap, adapted to divers uses, such as hangings, coverlets, carpets, felt-cloth,[^filtrum] leather ware, saddles, and whatsoever may be found in his treasure-room and wardrobe on that day, to the end that the parts of the said lot may be thus augmented, and the distribution of the alms benefit a greater number of persons.
+
+[^filtrum]: *Filtrum* [Latin], then much used for the housings of horses and tent covers. See Ducange, s v., *feltrum* [Latin].
+
+"As to his Chapel, that is to say, all the objects pertaining to the service thereof, both those by himself provided and collected, and those which came to him by inheritance from his father, shall according to his will remain entire, and not be dissevered by any partition whatsoever. If, however, there be found in the same any books, vessels, or other articles, of which it is positively ascertained that they were not given by him to the aforesaid Chapel, which any one desires to have, he may secure them on payment of their value at a just estimation.
+
+"He likewise directs that the books which he has collected in great numbers in his library, may be sold for just prices to those who may desire to have them, and that the money received for them be given to the poor.
+
+"It is well known that among his other property and treasures there are three silver tables and one very large and massive one of gold. He directs and commands that the square silver table, upon which appears a representation of the city of Constantinople, together with the other gifts set apart for the same, shall be sent to the Basilica of St. Peter the Apostle at Rome; that the second table, of circular shape, and ornamented with a delineation of the city of Rome, shall be given to the Bishop's Church at Ravenna; that the third, which in beauty of workmanship and weight surpasses the other two, and is made in three circles displaying the plan of the whole universe skilfully and delicately drawn,[^thisistheonlyobject] together with the golden table already named before as the fourth, shall be applied to the augmentation of that lot ordered to be appropriated to his heirs and to alms.
+
+[^thisistheonlyobject]: This is the only object of his father's treasure which Louis took as a memorial of him. It was formed of three circles like three bucklers united, and remained at Aix-la-Chapelle until 842, when Lotharius removed, and divided it among his partisans.
+
+    The table, a marvel for size and beauty, displayed in relief, and in separate places, the terrestrial globe, the constellations, and the movement of the planets.
+
+    Thegan. c. 8.—Annal. Bertin.—Bouquet, V., 61.
+
+"This act, and the dispositions thereof he has made and constituted in the presence of the bishops, abbots, and counts able to be present, whose names are hereunto subscribed:
+
+Bishops: "Hildebaldus,[^signera] Ricolfus,[^signerb] Arno,[^signerc] Wolfarius,[^signerd] Bernoin,[^signere] Laidradus,[^signerf] Johannes,[^signerg] Theodulfus,[^signerh] Jesse,[^signeri] Heito,[^signerj] Waltgaudus.[^signerk]
+
+[^signera]: Archbishop of Cologne.
+
+[^signerb]: Archbishop of Mayence.
+
+[^signerc]: Archbishop of Salzburg.
+
+[^signerd]: Archbishop of Rheims.
+
+[^signere]: Archbishop of Besançon.
+
+[^signerf]: Archbishop of Lyons.
+
+[^signerg]: Archbishop of Arles.
+
+[^signerh]: Bishop of Orleans.
+
+[^signeri]: Bishop of Amiens.
+
+[^signerj]: Bishop of Basle.
+
+[^signerk]: Bishop of Liège.
+
+Abbots: "Fredugisus,[^signerl] Adalung,[^signerm] Angilbertus,[^signern] Irmino.[^signero]
+
+[^signerl]: Abbot of St. Martin's, Tours, and Cormery.
+
+[^signerm]: Abbot of Lorsch.
+
+[^signern]: Abbot of St. Riquier.
+
+[^signero]: Abbot of St. Germain-des-Près.
+
+Counts: "Wala,[^signerp] Meginherus,[^signerq] Otulfus,[^signerr] Stephanus,[^signers] Unruochus,[^signert] Burchardus,[^signeru] Meginhardus,[^signerv] Hatto, Richowinus,[^signerw] Edo, Ercangarius, Geroldus,[^signerx] Bera,[^signery] Hildigern, Rocculfus.[^signerz]"[^noticesconcerningsigners]
+
+[^signerp]: Son of Bernhard, brother of Pepin, King of the Franks; first cousin of Charles, and brother of Adalhard.
+
+[^signerq]: Probably Count of Sens.—Simson.
+
+[^signerr]: Probably identical with the seneschal, Audulfus.
+
+[^signers]: Count of Paris (?). See page 382.
+
+[^signert]: Imperial missus; grandfather of Berengar I.
+
+[^signeru]: The constable mentioned p. 427.
+
+[^signerv]: One of the plenipotentiaries at the peace with Denmark, a. 811.
+
+[^signerw]: Patavinus, ambassador of Louis to Leo V., a. 814 (?).
+
+[^signerx]: Count of the East Marche.—Cf. Dümmler, *Südöstliche Marken* [German], p. 19, no. 4.—Mühlbacher, *l. c.* [Latin], p. 186, no. 452.
+
+[^signery]: Commandant at Barcelona, a. 801.
+
+[^signerz]: Cf. Epist. Carol. 41 (Jaffé), Boretius, *l. c.* [Latin], I., 1 (?).
+
+[^noticesconcerningsigners]: Notices concerning the signers of the will.
+
+It will be remembered that the embassy of Charles conveyed Obelierius, the ex-doge of Venice, to Constantinople.
+
+His case was peculiar; alike faithless to both emperors, his fall was inevitable. Arsafius demanded his extradition, and upon the conclusion of the preliminary peace, went to Venice for the regulation of its affairs. The Frankish annals state that Obelierius was degraded because of his perfidy, and sent to his master at Constantinople, while Venetian authorities explain that the deposition of all the doges was effected by joint action of Arsafius and the Venetians, adding that Obelierius was sent to Constantinople, and Beatus to Zara, but that their brother Valentine, on account of his youth, was suffered to remain.
+
+At the same time the Rialto was chosen as the seat of the doge; Agnello Partecipazio, a brave and catholic man, raised to the dogeate; and two tribunes, holding office for one year, were appointed as his assistants in the administration of justice.[^anneinha811joh]
+
+[^anneinha811joh]: Ann. Einh. a. 811; Joh. Chron. Ven. VII., 15, 16; Andr. Dand. *l. c.* [Latin] XII., 159, 160, 161, 165, 173.
+
+When the ambassadors of Charles reached their destination, they learned that Nicephorus was dead, and had been succeeded by Michael, his son-in-law.
+
+**811]** Nicephorus, "unskilful and unfortunate in war," perished at the hands of Krumm, the fierce Bulgarian khan, who in a nocturnal surprise of the imperial camp, massacred the emperor and many Byzantine nobles, severely wounded Stauracius, the emperor's son, set up the head of Nicephorus on a pole, made the people, as he went, tributary, marched on Develtus, took that city and other places, and carried off their inhabitants to his own thinly-settled territory on the Danube.[^annaleinha812813]
+
+[^annaleinha812813]: Annal. Einh. a. 812, 813. Theoph. Chronogr. ed. Bonn., p. 764. Harnak, *l. c.* [Latin], 54, no. 2.
+
+Stauracius, having escaped from the massacre, succeeded his father; "yet six months of an expiring life were sufficient to refute his indecent, though popular declaration, that he would in all things avoid the example of his father. On the near prospect of his decease, Michael, the great master of the palace, and the husband of his sister Procopia, was named by every person of the palace and city, except by his envious brother. Tenacious of a sceptre, now falling from his hand, he conspired against the life of his successor, and cherished the idea of changing to a democracy the Roman empire. But these rash projects served only to inflame the zeal of the people, and to remove the scruples of the candidate: Michael the First accepted the purple, and before he sunk into the grave, the son of Nicephorus implored the clemency of his new sovereign."[^gibbondeclineb]
+
+[^gibbondeclineb]: Gibbon, *Decline and Fall*, c. xlviii.
+
+Michael I. ascended the throne, October 2, 811. He received the ambassadors of Charles, and on their departure gave them his own as their companions. They were: Michael, Metropolitan of Philadelphia, and the *protospatharii* [Latin] Arsafius and Theognostus. Empowered to ratify the preliminary peace and extend it to Theophylactus, the emperor's son whom he was about to associate with himself in the throne,[^annaleinh812theoph] the ambassadors bore likewise honorable, imperial gifts, and upon their arrival at Aix-la-Chapelle proceeded to the basilica, where the act of ratification was celebrated with religious solemnity.
+
+[^annaleinh812theoph]: Annal. Einh., 812. Theoph., *l. c.* [Latin], p. 770.
+
+**812]** They received at the hands of Charles the treaty of peace, duly subscribed by himself, and the most distinguished ecclesiastical and secular dignitaries. Then, agreeably to Byzantine usage, the ambassadors rehearsed in Greek a laudatory litany, for the first time addressing Charles as *basileus* [Greek], or emperor. This was the recognition of his imperial dignity, for until then the Greeks had only called him by the lesser appellative of *rex* [Latin], or king.
+
+Returning by the way of Rome the pope, after attaching his signature to the treaty, finally delivered it to them in the basilica of St. Peter.
+
+Nicephorus, Patriarch of Constantinople, moreover, in token of the restoration of fraternal intercourse, had addressed to the pope a synodal communication, and commissioned the ecclesiastic member of the embassy to present it, with his gifts.[^annaleinh812poetasaxo]
+
+[^annaleinh812poetasaxo]: Annal. Einh., 812. Theoph., *l. c.* [Latin], Poeta Saxo, V., 311 sq.; Vita Caroli, cc. 16, 28; Ep Carol. 40; Mansi, XIV., 29, sqq.; 53, 56.—Döllinger, *l. c.* [Latin], p. 358; Harnak, *l. c.* [Latin], p. 53.
+
+The solemn delivery of the treaty in St. Peter's completed only the occidental part of the ratification, the oriental part remaining to be performed at Constantinople.[^harnaklcp55]
+
+[^harnaklcp55]: Harnak, *l. c.* [Latin], p. 55.
+
+This appears from the extant text of an epistle of Charles to the Emperor Michael, sent by the Greek ambassadors, dwelling with great satisfaction on the restoration of peace, and the reunion of the Catholic Church, and notifying the Eastern monarch that as he, Charles, had done everything towards the consummation of so joyous a result, so he had arranged with the ambassadors that the same should be done by his beloved and honorable brother, to whom he proposed to send, at the proper time for navigation, Amalharius, Bishop of Treves, and Peter, Abbot of Nonantola, as his ambassadors, for the purpose of receiving of him a copy of the same treaty, drawn up in Greek, duly subscribed by himself, his bishops, patricians, and other notables, desiring him to take the same with his own hands from the altar and deliver it to the aforesaid ambassadors.[^epistcarol40]
+
+[^epistcarol40]: Epist. Carol. 40 (Jaffé).
+
+They set out for Constantinople in the spring of 813, and by a strange coincidence,[^seep458] upon their arrival found a new occupant of the imperial throne in the person of Leo V.
+
+[^seep458]: See p. 458.
+
+The Emperor Michael, unequal to the exigencies of his position, and like Nicephorus, "unskilful and unfortunate **June 22]** in war," after a stinging defeat by Krumm, in the battle of Bersinica, fled for his life, and lost his crown. It is uncertain if he abdicated voluntarily, or under compulsion, **813]** in favor of Leo, son of Bardas, an Armenian, who, after a tumultuous proclamation in the camp, received the imperial diadem at the hands of the patriarch Nicephorus.
+
+The new emperor spared the life of Michael, caused him to be shaved, banished him to an island in the Propontis, and commanded his martial wife with her sons to withdraw to the seclusion of a convent.[^annaleinhjohchron]
+
+[^annaleinhjohchron]: Annal. Einh., Joh. Chron. Ven., Andr. Dandol.—Leon. epp. 7, 8 (Jaffé); Jacobs, *Das Jahr 813* [German].
+
+Leo gave audience to the Frankish ambassadors, drew up a new treaty of peace, placed it in the hands of his own ambassadors, together with a formal application to the Emperor of the West for assistance against the Bulgarians, and sent them in company of the Franks to Aix-la-Chapelle.
+
+Having thus briefly outlined the course of diplomatic intercourse with the Byzantines, we take up that with Denmark.
+
+Hemming, a nephew of Gottfried,[^seep443b] succeeded him in the throne. Charles concluded with him a preliminary peace, of an informal character, since the contracting parties swore only on their arms, because the severity of a late winter, interrupting communication by land and by water, prevented the conclusion of a definite treaty.
+
+[^seep443b]: See p. 443.
+
+But, as soon as the vernal sun opened the roads, an international commission of twelve Franks, and the same number of Danes, met for the promotion of peace on the Eider. The negotiations were entirely satisfactory, and the plenipotentiaries confirmed the peace by oath, agreeably to the rite and usage observed by both nations.[^annaleinhlaurissmaior]
+
+[^annaleinhlaurissmaior]: Annal. Einh., Lauriss. maior. minor.; cf. Maxim.
+
+The reign of Hemming was of short duration, for he died early in the next year. Then two claimants of the throne presented themselves, to wit, Siegfried, another nephew of Gottfried, and Anulo, the nephew of a former king, called Heriold, or Harald. So fierce was the contention, and so unyielding the disposition of the rivals, that they had recourse to arms. They fought a pitched battle of most sanguinary character, with the result that nearly eleven thousand of the combatants lay dead on the field, the claimants among the slain. Victory remaining with the partisans of Anulo, they proclaimed Heriold and Reginfried, his brothers, kings, and compelled the vanquished party, in spite of their influence and number, to acquiesce in their choice.[^annaleinha812cfchron]
+
+[^annaleinha812cfchron]: Annal. Einh., a. 812, cf. Chron. Moiss.
+
+Their adherence, however, was not cordial; Gottfried had other sons, and these, together with a large number of nobles, preferring exile to submission, went to Sweden. Nor was their defection solitary, for the whole province of Westerfalda refused to recognize the new government.[^annaleinh813]
+
+[^annaleinh813]: Annal. Einh., 813.
+
+Heriold and Reginfried inaugurated their reign with an embassy to Charles, suing for a continuance of the peace, and the liberation of their brother Hemming, a captive in his hands. The Franks, in a General Diet, ordered the appointment of sixteen Frankish and Saxon nobles, as commissioners, to meet the same number of Danish commissioners at a point beyond the Elbe, on the "Norman" frontier, and ratify the peace. The arrangement was carried out, the peace confirmed by oath, and Hemming, the Danish prince, surrendered to his countrymen.[^annaleinha812813chron]
+
+[^annaleinha812813chron]: Annal. Einh. a. 812, 813. Chron. Moiss.
+
+The event took place during the absence of the royal brothers on a military expedition against the refractory Westerfaldans, the occupants of a district in South Norway, quaintly described in contemporary phrase, as "situated in the remotest region of their dominions between north and west and looking towards the northern extremity of Britain."[^annaleinh462] Their efforts were crowned with success, and their rejoicing augmented by the Frankish peace and the return of their brother, whom they associated with themselves in the kingdom.[^chronmoiss462]
+
+[^annaleinh462]: Annal. Einh.
+
+[^chronmoiss462]: Chron. Moiss.
+
+Unfortunately they were not permitted to enjoy the blessings of peace for many days, for the sons of Gottfried had not been idle, having been able to collect a large army in Sweden, and invade Denmark. A large number of disaffected Danes flocked to their standard; the opposing hosts met in battle; the royal brothers were defeated, and compelled to fly from the wrath of the victors into the country of the Abodrites. There they found an asylum, hospitable welcome, and substantial tokens of the sympathy of Charles, together with his best wishes for the recovery of their kingdom.[^chronmoissa813]
+
+[^chronmoissa813]: Chron. Moiss., a. 813.
+
+The successful Danish dynasty, however, revived the aggressive policy of Gottfried, inaugurating it with a piratical descent on the Frisian coast, in which they took rich booty, and dragged a number of the inhabitants, of both sexes, into captivity.[^annaleinhchronmoiss462]
+
+[^annaleinhchronmoiss462]: Annal. Einh. Chron. Moiss.
+
+Normans made a similar descent, the year before, on a more distant region. A piratical fleet appeared off the coast of the island of *Hibernia Scottorum* [Latin], that is, Ireland, and effected a landing. The plucky Scots engaged with them in battle, defeated them with great loss in slain, and drove the survivors in ignominious flight to their ships. One of the authorities mentions "an innumerable multitude of slain Normans," but that is doubtless rhetorical flourish.[^annaleinh812ademar]
+
+[^annaleinh812ademar]: Annal. Einh. 812. Ademar, apud Duchesne, II., 86.
+
+The Norman piracies, though vexatious, were less extensive and destructive than those of the Saracens in the Mediterranean.
+
+But the matter was of infinite importance, and stimulated the energies of Charles in the direction of efficient maritime defences and the creation of a fleet.
+
+**811]** Thus we find him on an inspecting tour to the shipyards at Ghent, on the Scheldt, and Boulogne-sur-Mer. In the latter place, the old *Gesoriacum* [Latin], and in Roman times the seaport for passage to Britain, stood an ancient lighthouse, erected in the reign of Caligula, which had fallen into decay. Charles repaired it, and "lit thereon a nocturnal light for directing the course of mariners."[^annaleinha811pauly] During that visit to Boulogne he also set forth a Capitulary, providing, among other things, for liability to naval service.[^capitulbononiense]
+
+[^annaleinha811pauly]: Annal. Einh. a. 811. See Pauly, *R. E. des Class. Alterth.* [German], III., 852.
+
+[^capitulbononiense]: Capitul. Bononiense, a. 811.
+
+The Saracen piracies open the question, how far they were the act of the emirate of Cordova. The pirates were privateers, and their infamous trade so lucrative that the power of the emir appears to have been inadequate to its suppression, even in times of peace, or, more accurately, during the continuance of a prolonged truce, or armistice. Such truces were very loosely observed.
+
+For instance, the "peace" of 810 arrested hostilities neither by land nor by water. A year after its conclusion, the king of Aquitaine undertook the siege and final reduction of Tortosa. At the head of a powerful army, and supported by such able generals as Heribert, Liutard, and Isambard, he moved upon the city, enclosed it, for forty terrible days, with an iron girdle, hurled missiles into it, shook its walls with battering-rams and other military engines until they tottered and fell, and the inhabitants, unable to offer further resistance, were forced to capitulate. He took the keys of the city and carried them to Aix-la-Chapelle, content with the conquest of a stronghold, whose fall was a warning example to the Saracens, prophetic of the fate of other cities reluctant in making their submission to the Franks.[^vitahludc16]
+
+[^vitahludc16]: Vita Hlud.; c 16; cf. Vita Caroli, c. 15; Poeta Saxo, V., 185.
+
+A year later the Saracens took their revenge by sea. **812]** Early in the spring, tidings of an impending naval expedition, composed of Spanish and African vessels, arrived at Aix-la-Chapelle, in consequence of which Charles forthwith warned the pope, and instructed his *missi* [Latin] to make the necessary preparations.[^annaleinhepistleon]
+
+[^annaleinhepistleon]: Annal. Einh.; Epist. Leon. III., 6 (Jaffé).
+
+The Saracens made a simultaneous attack on Corsica and Sardinia, but not with equal results. That on Sardinia was an absolute failure, and most disastrous to the Saracens, for the greater part of their fleet was destroyed; but in Corsica they scored a success, and carried off much spoil.[^annaleinh464]
+
+[^annaleinh464]: Annal. Einh.
+
+An epistle of Leo III. to Charles, dated August 26th, and assigned to this year, sheds light on the nature of these piratical enterprises.
+
+He informs Charles of a contemplated Saracen descent on Sicily; thanks him for his timely warning, specifying that the pirates had attacked certain islands belonging to the Byzantines, and that the Emperor Michael I. had sent a patrician and several *spatharii* [Latin] for their protection to Sicily; that the said patrician applied to Anthimus, Duke of Naples, for help, and that, while the said Anthimus ignored his request, the cities of Gaëta and Amalfi had sent him a few small vessels; that the Moors thereupon fell upon the island of Lampedusa, and plundered it; that the Moors captured seven Byzantine vessels and put the crews to the sword; that then the entire Byzantine fleet assailed, and, through the compassion of Christ, annihilated the iniquitous Moors so that not one of them escaped alive; that nevertheless forty Moorish vessels plundered the island of Ponza, on which monks were established;[^seep427] after that they attacked Ischia, and for the space of three days plundered the island, and then, unmolested by the Neapolitans, loaded their vessels with captives and provisions, and sailed away; that Gaëtans, who, after their departure, visited the island, saw there the dead bodies of men, the carcasses of horses, and provisions which the Moors had left behind; and that, in contrast with the sad fate of those under Byzantine rule, it was his grateful duty to report that, thanks to the emperor's provident warning, his own territory had wholly escaped the visitation.[^leonisiiiep6]
+
+[^seep427]: See p. 427.
+
+[^leonisiiiep6]: Leonis III., ep. 6 (Jaffé).
+
+**813]** A year later the Saracens revisited Corsica and carried off large booty and numerous captives; on the return voyage they fell into an ambush which Irmingar of Ampurias, one of the Frankish counts in the Spanish Marche, had set for them on the island of Mallorca (*Majorica* [Latin]); the count captured eight of their vessels, and restored to liberty above five hundred Corsicans who languished in their holds. With a view to avenging the calamity, the pirates fell upon Civita Vecchia (*Centumcellæ* [Latin]) and Nice and devastated the country; of the former, it is said, they obtained possession by treachery and sacked it. They likewise attacked Sardinia, but were repulsed with great loss.[^annaleinh813vitacaroli17]
+
+[^annaleinh813vitacaroli17]: Annal. Einh., 813. Vita Caroli, c. 17.
+
+Again we derive additional information from an epistle of Leo to Charles under date of the third of the Ides of November (*i. e.* [Latin], Nov. 11th), 813, in which he writes, "that in the month of June of that year a Saracen fleet of a hundred vessels about to assail Sardinia, was engulfed in the sea, in consequence, it seems, of the sea suddenly opening its mouth and swallowing them up, and that this unheard-of phenomenon occurred simultaneously with a fiery sign in the heavens which many affirmed to have seen; to him the intelligence was brought by a messenger of his whom he had sent with the emperor's letter to the patrician of Sicily; that messenger had his information from the ambassadors of the khalif, and it was, moreover, confirmed to the said messenger by a notary of the patrician's, who knew it from a letter he had received from an African Christian."
+
+This seems a circuitous source of information, but the matter is explained by the circumstance that some of the pirates were Africans, and that the story of their horrible death raised such a cry of distress on the part of their surviving friends there, the like of which had never been heard before.
+
+The pope continues, "that the same papal messenger, moreover, on his return to Rome, met in Catania a man on his way to the patrician with the announcement that seven Moorish vessels had plundered a village near Rhegium."
+
+It is interesting to glean from the same epistle particulars concerning a peace negotiating between ambassadors of the khalif of Bagdad and the patrician of Sicily. The latter was at first averse to such a pact, on the ground that no confidence could be put in the good faith of the Saracens, alleging that they had as readily broken the treaty of A. D. 728, as that which his predecessor had concluded with them for the space of ten years terminating Sept. 1, 814.
+
+The Saracen plenipotentiaries excused the infractions by the confusion incident upon the death of the late Harun-al-Raschid **+ March 23, 809]** which his youthful son had been unable to check, saying, that then "the servant became free, and every free-man was his own master and all acted as if they had no ruler. But matters stood different now that the khalif had reconquered all the possessions of his father, and was fully purposed inviolably to observe the conditions of the proposed treaty of peace."[^theambassadorswerenot] They could not, however, make themselves answerable for the Spanish Saracens, as not under the jurisdiction of their khalif, but promised to oppose them at sea; they would do their part, but expected the Christians to do theirs also, adding, that they had already pursued that course on their voyage in ordering two Spanish vessels which they met to be burned.
+
+[^theambassadorswerenot]: The ambassadors were not aware that he had ceased to reign. His brother Al-Mamam succeeded him Sept. 25, 813.
+
+The pope continues saying, "that a treaty of peace had been concluded for the space of ten years between the aforesaid Bagdad Saracens and the patrician, who for the ratification of the same sent a notary to accompany them, and on condition that they should deliver his Christian subjects remaining captive in their hands, surrendered to them such Saracen prisoners as were in his possession."[^leonisiiiep7]
+
+[^leonisiiiep7]: Leonis III. ep. 7 (Jaffé), cf. no. 6. See the valuable notes of Jaffé, his authorities, and the further extracts by Simson, *l. c.* [Latin], II., p. 526.
+
+With the light derived from this exposition of the case, the annals record the conclusion of a treaty of peace between the khalif El Hakem (= *Abulaz*) of Cordova and Charles; it was to last three years (from 812 to 815), and the initiative, it appears, was taken by the former.[^annaleinh812cfchronmoiss]
+
+[^annaleinh812cfchronmoiss]: Annal. Einh., 812. Cf. Chron. Moiss., Vita Hlud., c. 20.
+
+It is difficult to reconcile it with the expedition, by order of Louis, against Huesca.[^vitahludovc17some] It was commanded by the "imperial" *missus* [Latin] Heribert, who on his way put to flight, or took prisoners, all who offered any resistance, and then began the regular investment of the place.
+
+[^vitahludovc17some]: Vita Hludov. c. 17. Some place it in 811, and 810. See Mühlbacher, *l. c.* [Latin], no. 500, p. 213 sq.; Simson, *l. c.* [Latin], II., 493.
+
+During its continuance a party of youthful Franks in foolhardy arrogance drew quite near to the walls, and irritated the soldiers on the ramparts with offensive remarks and arrows which they shot at them. The Arabs, seeing an opportunity for resenting the outrage, opened a sally-port and fell upon the offenders. In the *mêlée* [French] which ensued much blood was shed, when the Arabs returned into the city and the Franks to their camp. This is the only known incident of the siege, which ran its weary length until the country around Huesca was a wilderness, and the besiegers, doubtless from want of food, raised it, returned to Aquitaine, and might report the utter failure of the enterprise to King Louis, who was indulging his passion for the chase in the woods, for it was late in autumn.[^vitahludovc17]
+
+[^vitahludovc17]: Vita Hludov. c. 17.
+
+**813]** It seems that the military expedition of that king against the Vasconians was undertaken in the course of the ensuing summer.[^seemuhlbacher500a] Those refractory mountaineers were again troublesome, and the king stated to a General Diet, which he had convened, that in his judgment the rebellious movement imperilled the public safety and ought to be forthwith put down. The Diet shared his views and recommended the immediate and energetic execution of his purpose.
+
+[^seemuhlbacher500a]: See Mühlbacher, *l. c.* [Latin], no. 500 a.
+
+Louis thereupon led an army into the region in insurrection, and having ordered a halt at *Aquæ* [Latin], *i. e.* [Latin], Dax on the Adour, commanded the rebels to appear before him. They paid no heed to his summons. He then moved upon their own district and bade his warriors lay it waste; this brought them to terms, for it is stated that they came as suppliants for mercy, and "with great gifts purchased forgiveness." He then crossed the Pyrenees, marched to Pampeluna, and stayed in that region for some time until he had ordered matters essential to public and private interest. But the record fails to state what they were.
+
+On his return the treacherous Vasconians attempted to repeat their old and habitual scheme of ambuscade, but the plan was discovered, and its promoters brought to justice. One of the ringleaders was seized and hung; the rest of those compromised were adjudged in the loss of their wives and children (it is intimated as hostages or pledges for their future good behavior), while the king and his army, thus mercifully saved from imminent peril, returned safe and sound into Aquitaine.[^vitahludovc18]
+
+[^vitahludovc18]: Vita Hludov. c. 18. Cf. Lembke, *Geschichte v. Spanien* [German], I., 382, and the fabulous story in Hist. reg. Franc. monast. s. Dionysii, 19, SS. IX., 400.
+
+To the period under consideration belong likewise several other military expeditions conducted by the lieutenants of Charles, for the last enterprise, which he led in person, was that against the Danes narrated on a former page. Thus **811]** we hear of three separate expeditions sent in the same year, against the Linonians, into Pannonia, and Brittany; the objects for which they were undertaken were the following.
+
+The first had instructions to cross the Elbe, devastate the country of the inimical Linonians and Bethencians, and rebuild the fortress of Hohbuoki, on the Elbe, which the Welatabians had destroyed in the preceding year.
+
+The second had the duty of terminating the ceaseless quarrels between the Avars and their Sclavonian neighbors.
+
+The third was required to put down a fresh insurrection which had broken out in Brittany, and punish the perfidy of its rebellious population.[^cfcapitularebonon]
+
+[^cfcapitularebonon]: Cf. Capitulare Bonon. a. 811.
+
+Although the annals record with laconic brevity that these several expeditions prosperously accomplished all the objects for which they were sent forth and returned unhurt,[^annaleinhmaximcfchron469] it is proper to take this with certain qualifications. The results of the first enterprise were doubtless satisfactory; **Nov., 811]** those of the second also were so measurably, for a few months later the Pannonian chieftains, Avars and Sclavonians, in response to directions received from the leaders of the expedition, appeared before the emperor in person, presumably for the purpose of learning his final dispositions, of which we know that thenceforth no member of the blood royal of the Huns should reign in Hungary, but that conformably to the wishes of their nobility the government should be administered by legates or *missi* [Latin], and that the people, as far as practicable, should be brought up in the Christian religion;[^melchiorinchofer] those of the third, however, were not so satisfactory, as the records of the next reign clearly set forth.[^simsonjahrb]
+
+[^annaleinhmaximcfchron469]: Annal. Einh., Maxim.; cf. Chron. Moiss.
+
+[^melchiorinchofer]: Melchior Inchofer ad. an. apud Cointe, *l. c.* [Latin], VII., 189.
+
+[^simsonjahrb]: Simson, *Jahrb. d. fränk. Reichs unter Ludwig d. Frommen* [German], I., 128 sqq.
+
+In the following, otherwise pacific, year a considerable expedition was sent against the hostile Welatabians, the same who made common cause with Gottfried and destroyed (810) the fortress of Hohbuoki, and who until then had not yet been chastised. Three armies, probably only detachments of the same expeditionary force, entered their territory from three separate directions and accomplished their subjugation. They made their submission and gave hostages.[^annaleinhchronmoissa812]
+
+[^annaleinhchronmoissa812]: Annal. Einh.; Chron. Moiss. a. 812.
+
+The final submission of Benevento also appears among the achievements of that pacific year. It seems to have been mainly due to the diplomatic ability and personal influence of the excellent Adalhard, at that time imperial *missus* [Latin], and at the head of the Italian kingdom. It is said that he went in person to Benevento, composed the difficulty with Spoleto, and arranged a peace with duke Grimoald Storesaiz, who agreed to the immediate payment of a tribute of twenty-five thousand gold *solidi* [Latin] for arrears, and thereafter to that of an annual tribute of seven thousand gold *solidi* [Latin]. He was guaranteed the entire possession of his duchy, excepting only the Teatensian territory which Pepin had conquered,[^annaleinh812vitaadalh] and remained separate from Beneventan rule. It is interesting to know how he accomplished so much. "Wherever he went he carried peace with him. When he arrived at Benevento the whole country was in arms against Spoleto. Such was their martial frenzy that they annihilated their all by fire, and sword, and pillage. Savage Bellona incited them to indiscriminate slaughter, and made them think it a glorious thing to recover their losses by robbing the enemy. They would rather endure want than defeat. At last a man of God appeared among them as a mediator and herald, and being consulted by both sides, urged them to peace; nor forbore his blessed offices until he had united them in the bonds of peace so that they kissed (*ad oscula* [Latin]) each other. Thus he restored peace, etc."[^thismaybeexaggeration] That herald doubtless was Adalhard.
+
+[^annaleinh812vitaadalh]: Annal. Einh., 812. Vita Adalh. 29, MG. SS., II., 527; Erchempert, *Hist. Lang.* [Latin] c. 7, *ibid.* [Latin] SS. Langob. 236.
+
+[^thismaybeexaggeration]: This may be exaggeration, but the narrative fits the man. Alia Vita [Adalh.], auct. Gerardo, c. 21, apud Mabilon, A. S., ed. Venet. IV., p. 330.
+
+---
+
+#### CHAPTER VI.
+
+##### THE MAN CHARLES.
+
+*Death of Charles the Younger.—Estimate.—Death of Adelhaid.—Death of Pepin the Hunchback.—Charles broken by grief.—He appoints Bernhard king of Italy.—Attack of sickness.—Charles designates Louis his associate in the empire.—Version of Nigellus.—Opposition to Louis.—He is sent for.—Proclaimed emperor.—His coronation.—Last illness and death of Charles.—His burial.—Legendary accounts.—Emperor Otto III. opens the tomb of Charles.—Elevation of the remains, and canonization of Charles.*
+
+The man Charles, dissociated from war, and external relations, other than those of his family, will now engage our exclusive attention.
+
+It was late in 811, when a terrible blow struck him in the death of Charles, his eldest son by Hildegard. Next to nothing is known of its cause, the sole record being that "he died in consequence of a headache proceeding from the eyes."[^annallobiens] This is vague information. It is equally surprising that we have to chronicle similar reticence on other matters of personal moment; for instance, there are no certain data concerning his age, the place of his death and burial. The only person who knew is silent.[^idonotwishtowrong]
+
+[^annallobiens]: Annal. Lobiens.
+
+[^idonotwishtowrong]: I do not wish to wrong Einhard, but submit that his reticence deserves censure. He had at this time daily intercourse with the emperor, and was on terms of intimacy with the whole imperial family. After the emperor's death he stood in similar relations to Louis, and in his reign wrote the biography of Charles, which contains not a line or a word that by implication could detract from the reigning emperor.
+
+    Praise of the dead brother, for qualities in which Louis was deficient, might be distasteful or suggest comparison. May this explain his silence?
+
+Charles, probably born in 772, was not yet forty years of age at the time of his death. The first mention of him in history is his presence with his parents at the consecration of the church at Lorsch,[^mulbacherlcp68] in 774; his first military exploit took place ten years later in the Saxon war; in 790 his father gave him the duchy of Maine, and probably the title of "king." About that time he sued for the hand of a daughter of King Offa, but the project fell through, and he never married.[^annalmett790]
+
+[^mulbacherlcp68]: Mülbacher, *l. c.* [Latin], p. 68.
+
+[^annalmett790]: Annal. Mett. 790, S. Amandi cont. 789.—Gest. abb. Fontan.
+
+He distinguished himself in war, especially in the Saxon campaigns, and the expeditions against the Czechs and Wends. He was the favorite son and constant companion of his father, whom he resembled in appearance and manner.[^angilbertcarm6]
+
+[^angilbertcarm6]: Angilbert, Carm. 6; Annal. Quedlinb. 811.
+
+He was handsome, the ornament of the Court, uniting to physical strength, celerity, executive ability, and military skill, a pleasant address, and a naturally strong mind, graced by accomplishment in letters. He is spoken of as endowed with the spirit and intellectual qualities of his sire, the hope of the empire, and the destined occupant of the imperial throne.
+
+This was expressed during his life, and asserted in the next and successive reigns. It seems also confirmed by what had occurred. The portion assigned to him in the division of the empire was greater than that of his brothers, and embraced the whole of the original Frankish dominions. And in this connection the Saxon poet exclaims: "Him did his sire designate to succeed in the throne of the Franks, had not the Lord been pleased to direct otherwise."[^angilbertcarm233]
+
+[^angilbertcarm233]: Angilbert, Carm. 2, 33 sqq.; Poeta Saxo, IV., 281 sqq.; Erm. Nigell. Eleg. II., 171, 2.—Cf. Art. 3, p. 419.
+
+Who can doubt, after this bare recital of facts, that the death of Charles evoked universal grief,[^cumluctuomnium] and that none grieved more sadly, or wept more bitterly than his aged father?[^vitacaroli19poetasaxo]
+
+[^cumluctuomnium]: "*Cum luctu omnium defunctus est.*" [Latin]—Annal. Lobiens. a. 812.
+
+[^vitacaroli19poetasaxo]: Vita Caroli, c. 19.—Poeta Saxo, V., 271 sqq.; 275 sqq.
+
+We see him weeping for Charles, as Jacob wept for Joseph. Jacob wept, and lived to see Joseph again; the emperor wept, but wept in vain, for Charles was not.
+
+No epitaph of his has been preserved; the nearest approach to one is the high-flown but affectionate greeting of Theodulf, indited in more sunny days, on the occasion of Charles taking possession of the duchy of Maine, and descriptive of the youthful king.[^ocharlesmysweet]
+
+[^ocharlesmysweet]: "O Charles! my sweet delight, the empire's hope and praise,\
+    May God for aye hold bliss for thee in store!\
+    Thy sire's, thy country's, yea all the senate's joy\
+    Thou multipli'st, with glory on thy path.\
+    Electrum bright, and glitt'ring gold in fire refin'd,\
+    Yea, all the metals, at thy splendor fade.\
+    More fleet than bird thou art, in strength the lion's lord,\
+    In arts well skill'd, with weapons prompt at hand.\
+    The sister orbs within my head for thee I strain,\
+    For cherish'd sight of thee my heart cries out.\
+    Ah! if thy coming to these western parts I knew,\
+    Thy loving vassal wist his master near,\
+    More swift than Notus light, or dawn-born Eurus fleet,\
+    I'd hasten forth and eager kiss thy welcome feet."
+
+    Theodulf. Carm. 35.—Poet. Latin., etc., *l. c.* [Latin], p. 526 sq.
+
+Alcuin wrote to Charles: "I rejoice, most dearly beloved son, as I heard from your servant Osulfus, in the devotedness of your good inclination, the frequency of your alms, and your practice of humility. Such things, you may assuredly believe, are well pleasing to God, and certain, of His mercy, to redound to your eternal blessedness."[^alcep245b]
+
+[^alcep245b]: Alc. ep. 245 (Jaffé).
+
+This testimony flatly contradicts the alleged want of humility with which the biographer of Alcuin charges the younger Charles.[^seep300] He seems to have considered the humility of attitude the token and expression of inward humility of heart. The unpleasant ecclesiastical, monkish, and conventional humility of drooping head, downcast eyes, and folded hands, is often misleading, and suggestive of anything rather than true humility, which, ever disdainful of outward show, and mindful of the precepts of the Great Teacher of humility, studiously avoids it.
+
+[^seep300]: See p. 300.
+
+Why should not the royal Charles kneel at the chancel rail with head erect and yet be a humble-minded Christian as Alcuin expressly testifies he was?
+
+Nor was this the only bereavement of that sad and trying year. Adelaide, or Adalinda, the last of the morganatic wives of Charles, the mother of Theoderic,[^bornin810] his infant son, died at Aix-la-Chapelle. One of the old chroniclers calls her *li empereres* [Old French], the empress, quaintly adding that "from that day forth the emperor Charles spent the residue of his days without a wife."[^chronstdenis]
+
+[^bornin810]: Born in 810.
+
+[^chronstdenis]: Chron. de St. Denis, apud Bouquet, V., 260.
+
+And yet a third bereavement. The death, in the monastery of Prüm, of the eldest born of all his children, the son of his youth, the child of Himiltrud, the poor, misguided, unhappy Pepin the Hunchback. What memories his death awakened! And can we doubt, as we recall them, and remember the mercy of Charles, that he wept also for him? He had long since forgiven him; time had softened his feelings; the chastening hand of God, moreover, made him more tender, and we know that he would often relieve himself in weeping.[^vitacaroli19weeping]
+
+[^vitacaroli19weeping]: Vita Caroli, c. 19.
+
+Christmas came. In former years it came laden with the blessings of domestic joys, this year it was cheerless. The sweet chimes of the basilica by the palace, and the grand music of the rich service, fell upon his ears and stirred the memories of the golden past. Of what else could he think that day but of the service in St. Peter's at Rome, when that basilica rang with the loud acclaim of Christendom assembled to witness his imperial coronation, followed by the coronation and unction of the royal Charles? Or, when he retraced his steps to the palace, and gazed upon the vacant seats at the family table, and the orphans of Pepin, would there not recur to his mind the *magnum gaudium* [Latin] of the Christmas at Thionville, six years ago, when all his royal sons were present, and he unfolded to them his plans with the bright and golden visions of their long and glorious reign? Alas for him, two of those sons lay bedded in marble. The strong man's heart quivered with sorrow, and though he might dash away the tears which unbidden would flow, he sate grieving, and his heart went out to Louis in distant Aquitaine, sole hope of his declining years.
+
+The death of Pepin and Charles cancelled the law of the partition of the empire, but Charles, in token of his affection, designated Bernhard to succeed Pepin his father.[^vitacaroli19bernhard] During his minority[^ripuarianlaw] the affairs of Italy were administered by *missi* [Latin].
+
+[^vitacaroli19bernhard]: Vita Caroli, c. 19.
+
+[^ripuarianlaw]: Under Ripuarian law the completion of the 15th year.
+
+Charles sent Bernhard to Italy in 812, probably with the regal title, for documents dating from that year name it as the first of his reign.
+
+It is of record that after the departure of the Byzantine ambassadors, Charles "held a General Diet at Aix-la-Chapelle and sent his grandson Bernhard, the son of Pepin, to Italy,"[^annaleinh812] and "gave him the kingdom of the Lombards."[^annalxanthb]
+
+[^annaleinh812]: Annal. Einh., a. 812.
+
+[^annalxanthb]: Annal. Xanth.
+
+Adalhard, moreover, during the term of his administration as *missus* [Latin] for Italy, "took him a wife, and by command of the sovereign, set [Bernhard] over the whole realm."[^translsviti]
+
+[^translsviti]: Transl. S. Viti (Jaffé), I., 7, 8.
+
+The name of his wife was Cunigund,[^affoparma] but his mother's, and the dates of his birth and majority, are uncertain, although it is believed, on good grounds, that he became of age, and married during the life-time of Charles.[^knottypoints]
+
+[^affoparma]: Affo, Parma, I., 283.
+
+[^knottypoints]: On these knotty points see Mühlbacher, *l. c.* [Latin], nos. 466 a; 496 b. c.; and Simson, *l. c.* [Latin], II., 483 sqq.
+
+Charles had passed the three score years and ten, but he was not an old man. He never grew old, and in the last year of his life did more hard work of the highest intellectual reach than many of the ablest men of only half his age are able to accomplish in twice the time. It is impossible to resist this conviction if we read, to name only one part of his activity, the numerous laws, civil and ecclesiastical, which were drawn up and enacted in that year, under his direction, and most probably with his personal co-operation. Nor was he old physically, for in spite of his hoary head he was early and late in the saddle, hunting in the Ardennes. Still, during the last four years of his life, his health was not robust, he was subject to frequent fevers, while constant fretting and undue exposure told upon him. It is hinted that he had the gout, and stated, that at the last he limped a little with one foot. In May, that year, **813]** while hunting in the Ardennes, he had a violent attack of pain in his foot, and was compelled to go to bed. When the pain subsided he returned to Aix-la-Chapelle.[^annaleinh813gout]
+
+[^annaleinh813gout]: Annal. Einh., 813, Vita Caroli, c. 22.
+
+Before that he had held the Diet in which he introduced the matter touching the five Provincial Councils for the reformation of the Church already familiar to us. There he is said, but not on good authority, to have also broached the question of the succession of Louis. The account, which is manifestly, and not very tastefully, embellished, reads more like caricature than history; it is metrical and given in prose for what it is worth.
+
+"The aged emperor convoked a Diet at Aix-la-Chapelle, and from his golden throne thus spoke to his chosen great:
+
+"'Listen, liege vassals, to what I believe you know full well. In the fiery days of youthful strength I went to war and led my Franks to victory in foreign lands. But now my blood runs cold, old age creeps on, as my silvered hair and trembling right hand, once famed for warlike deeds throughout the world, do show.
+
+"'Two of my sons, alas, by God's decree, are dead and buried; I bow to His will, rejoicing that Christ has not wholly forsaken you, and spared the third who has always been delighted to obey me and exalt my sway. He has ever had a loving care for the Church, and led his kingdom to great prosperity. You remember his victories over the Moors, and the rich spoil he brought. Counsel me then, Franks, that I may know what to do.'
+
+"Then Einhard, much beloved by Charles, a man wise and good, fell down before the king, and kissing his feet thus wisely spoke:
+
+"'Cæsar! from pole to pole renowned, on earth and on the sea, who hast given us the splendor of empire, we cannot by our advice improve what God has put into thy heart. Carry out thy purpose. Thou hast a son whose virtues fit him well to rule thy realm. I utter the voice of all thy lands in praying thee to give him to us; thus begs the Church, and Christ Himself approves the choice. We think him fit, upon thy death, to shield the law by arms, by intellect, and faith.'
+
+"The speech pleased Cæsar well; he prayed to Christ, and sent for his son to come with speed, for Louis, as I have said before, was in distant Aquitaine in the glorious conduct of his kingdom, etc., etc."[^ermoldnigell]
+
+[^ermoldnigell]: Ermold. Nigell. *l. c.* [Latin], l. II., v. 3 sqq.
+
+This is credible but only in so far as the introduction of the question to the Diet is concerned; the narrative and the speeches bear the impress of the writer who had a strong motive for flattering Louis and Einhard; the remainder of his account is omitted, to make room for better information.[^fulsomeeulogy]
+
+[^fulsomeeulogy]: The fulsome eulogy of Nigellus, of course, is not history. A few explanatory words respecting the historical value of the authorities about to be cited may not be superfluous.
+
+    Nigellus was a native of Aquitaine, a monk, and the favorite of Pepin II., the son of Louis; he sided with the son, and set him against his father. Louis banished him to Strasburg, where he found a friend in bishop Bernald. There he wrote four books in elegiac verse in glorification of the deeds of Louis; sent them to the emperor and the empress Judith, but his flatteries were too transparent to impose upon Louis, which is saying a great deal. His object was to regain his liberty, but he failed then, although the victory of the conspirators in 830 appears to have set him free. (Wattenbach, Dümmler, Funck, Simson.)
+
+    Theganus, Thegan, or Degan, chorepiscopos in the diocese of Trier (Treves), wrote a biography of Louis reaching to 835, during the lifetime of the emperor, hardly less fulsome in eulogy than the former. Being a strong partisan of Louis, all his statements require to be received with great caution. (Wattenbach.)
+
+    The anonymous author of the Vita Hludovici, called Astronomus, was a cleric of the court of Louis and wrote after his death. This work also is strongly partisan, but its earlier portions are valuable. (Wattenbach.)
+
+As a matter of fact the nomination of Louis was far from unanimous; it is known that a powerful party was in favor of Bernhard, and Louis himself expected strong opposition.[^muhlbacher500g] That Einhard favored and strongly advocated it, may be accepted as much established as the rich reward it brought him in the abbacies which fell to his share.[^wattenbachdeutschl172] The glorious conduct, by Louis, of his kingdom of Aquitaine, is pure verbiage. It was administered by Frankish counts acting under the directions of Charles,[^abel329] and even the military achievements ascribed to him were due rather to the genius of Charles, again acting through able lieutenants, than to his own generalship. In the sole direction of ameliorating the condition of monastic institutions he seems to have acted independently and earned the praise of its inmates.[^simson516]
+
+[^muhlbacher500g]: See the references in Mühlbacher, *l. c.* [Latin], nos. 500, g.; 509, a.
+
+[^wattenbachdeutschl172]: Wattenbach, *Deutschl. Geschichtsquellen, etc.* [German], I., 172.
+
+[^abel329]: Abel, *l. c.* [Latin], I., 329, 360; and the authorities cited by Simson, *l. c.* [Latin], II., 515, n. 6.
+
+[^simson516]: Simson, *l. c.* [Latin], II., 516, and notes.
+
+Resuming the narrative, it appears that soon after the emperor's attack in the Ardennes and return to Aix-la-Chapelle the grand-falconer of Louis arrived on public business requiring the emperor's action. While waiting for it, Frankish and German nobles at the Court took him aside and advised him to urge upon the king of Aquitaine the necessity of his presence at Aix-la-Chapelle, representing that the infirmities of years and excessive grief would, in their opinion, hasten the emperor's end in the near future.
+
+Returning to Aquitaine he told the king what he had heard. Louis, thinking, in the nobility of his nature, as his biographer puts it, that such a course might make him suspected by his father, contrary to the advice of his nobles who counselled his going, remained at home. He adds that God (the fear of whom ever prompted the action of Louis) and who exalts those who supremely love Him, ordered the matter more wisely.
+
+"The king," he writes, "had just generously accorded to the people whom he was wont to fatigue with incessant war [*i. e.* [Latin], the Saracens] a two years' truce, when the Emperor Charles, considering that the sands of his life were running out and apprehensive that his sudden removal from earthly affairs might cause confusion in the empire for whose consolidation **813]** and good government he had done so much, exposing it to attacks from without and dissensions within, sent his messengers recalling his son from Aquitaine.
+
+"Upon his arrival at the palace the emperor lovingly received him, retained him throughout the summer, and instructed him on all points which he thought he ought to know, advising him as to the rule of life he should follow, the means by which he should establish order in the government, and having done so, adhere thereto."[^vitahludovc20]
+
+[^vitahludovc20]: Vita Hludov. c. 20. Cf. Vita Caroli, c. 30; Thegan. c. 6; Annal. Einh., a. 813; cf. Simson, *Ludwig der Fromme* [German], I., 4; note 3.
+
+Although the notice that Charles retained Louis throughout the summer is rather dubious,[^seep468] the clauses which follow appear to be entitled to acceptance, first, because they agree with the charge at the Coronation, and secondly, because they were necessary.
+
+[^seep468]: See p. 468.
+
+Then followed the General Diet,[^sept813] in which the 26 Capitula became law. It was a very large and solemn assembly of all the chief men of the Frankish dominions with whom the emperor took counsel in the matter of associating with himself his son Louis in the throne.[^seep390]
+
+[^sept813]: Sept., 813.
+
+[^seep390]: See p. 390 sqq.
+
+In kind and gentle words he charged the Diet to be faithful to his son, asking all present, from the highest to the lowest, if they agreed to his proposal of bestowing the imperial title upon his son Louis, and if such was their pleasure, to express it. Their response was an exultant affirmation, and all with one consent declared that it was the will of God.[^theganc6will] Another account states that they unanimously pronounced him worthy.[^chronmoissb] Then it seems Louis was declared associate emperor by general acclamation, but this was only a preliminary act.
+
+[^theganc6will]: Thegan. c. 6.
+
+[^chronmoissb]: Chron. Moiss.
+
+The Coronation proper took place upon the Sunday following, September 11th, in the church of St. Mary the Virgin. The emperor, arrayed in imperial robes, and wearing a crown, attended by the Estates assembled, proceeded to the altar of the basilica and caused to be placed thereon another golden crown; he and Louis then knelt down in prayer; at its conclusion he addressed a charge to him in the audience of all the bishops, princes, and lords assembled.
+
+He bade him, above all things, fear and love Lord God Almighty and keep His commandments, govern well His Church and protect her from all her enemies.
+
+He exhorted him to show the most tender regard for his sisters and younger brothers, his nephews and all his relatives; to honor the priests as his fathers, love the people as if they were his sons, constrain the proud and evil-doers to walk in the way of salvation, protect monastic institutions, and watch like their father over the poor.
+
+Moreover he advised him to receive to his confidence only faithful ministers whom he knew to be God-fearing men and opposed to every form of corruption.
+
+He bade him likewise deprive no man of his honors and living, without just cause, and be at pains always to set an example without reproach before God and all his people.
+
+Thus spoke Charles, and much more to the same effect; and at the close of his charge, asked Louis if he was resolved obediently to keep all these precepts. Louis replied that he would cheerfully obey them, and, God being his helper, was fully resolved to keep all the precepts which his father had enjoined upon him.
+
+Then Charles desired him to take with his own hands the crown from the altar and place it upon his head as a memorial of the counsels he had given him, and handed to him the imperial sceptre.[^annallaurissminb]
+
+[^annallaurissminb]: Annal. Lauriss. min.; cf. Annal. S. Emmer., Juvav maj., Vita Hludov. c. 20.
+
+At the supreme moment of that symbolical act, Charles, according to one authority, commanded him to be proclaimed Emperor and Augustus, while agreeably to another, the assembled multitude with one accord, and as it were spontaneously, exclaimed: "Long life (*vivat* [Latin]) to Emperor Louis!"
+
+Charles then declared Louis joint emperor with himself and concluded with the ascription of praise: "Blessed art thou, O Lord God, for that thou hast granted me grace to see, with my own eyes, my son seated on my throne!"
+
+"The act was hailed with great favor by all present, who viewed it in the light of a divine inspiration for the salvation of the realm."[^vitacaroli30act]
+
+[^vitacaroli30act]: Vita Caroli, c. 30.
+
+The Coronation being ended, Mass was said, and at the close of the service the emperors proceeded arm-in-arm to the palace. Their departure was the signal for the dispersion of the multitude; the day was publicly observed at Aix-la-Chapelle as one of festal rejoicing, and the Court celebrated the event by a state-banquet.[^annaleinhbanquet]
+
+[^annaleinhbanquet]: Annal. Einh., Vita Caroli, c. 30, Chron. Moiss., Thegan. c. 20. Cf. Mühlbacher, *l. c.* [Latin], no. 466 b.
+
+Not long after his coronation, Louis returned to Aquitaine.[^theganc6returned] After his departure, the emperor, although weak from age, set out to hunt, as usual, near his palace at Aix-la-Chapelle, and passed the rest of the autumn in the chase, returning thither about the first of November.[^vitacaroli30november] This shows that his general state of health was not bad, and although we read that he spent the whole of his time in alms and prayers and the correction of books,[^theganc7books] it does not follow that after his return from the hunt he was exclusively occupied with the preparation for death.
+
+[^theganc6returned]: Thegan. c. 6. The statement of Vita Hludov. c. 20, that he stayed till November, is inadmissible.
+
+[^vitacaroli30november]: Vita Caroli, c. 30.
+
+[^theganc7books]: Thegan. c. 7.
+
+The winter was very severe,[^annalxant813] and during its course, which as usual he spent at Aix-la-Chapelle, he had a violent attack of fever. It befell him after his customary bath on the twenty-first day of January.[^accordingtothegan] At all times averse to taking medicine and wont to prescribe for himself, he took to his bed, and depending on the remedial power of nature, forthwith followed his usual plan in such attacks, of abstaining from nourishment. In this he persisted, although he could not easily subsist without it, and often complained that fasting injured his health.[^vitacaroli24e] The fever, however, so far from yielding to this treatment, seems to have increased in violence, and his condition became critical, when in addition to the fever a new assailant appeared in the form of pleurisy. Even then he persisted in fasting, and kept up his strength only by an occasional draught of water.
+
+[^annalxant813]: Annal. Xant. 813.
+
+[^accordingtothegan]: According to Thegan
+
+[^vitacaroli24e]: Vita Caroli, c. 24.
+
+Thus he lay in great and ever-growing weakness for the space of a week, when aware of his condition, he summoned to his side his archchaplain and intimate friend, Hildibald, archbishop of Cologne, for the purpose of administering to him the Holy Sacrament of the Body and Blood of Christ, and preparing him for death.[^thegansaysthis] This preparation did not include extreme unction; for its sacramental character was not introduced before the twelfth century.
+
+[^thegansaysthis]: Thegan says that this occurred the day before he died, while Einhard states, that it took place on the day of his death.—Thegan. c. 7. Vita Caroli, c. 30. I follow the former.
+
+Throughout that day and the night following he labored in great weakness. But at daybreak, knowing what was about to happen, he made an earnest effort, and gathering all his strength, stretched out his right hand, signed himself with the sign of the cross, first on the forehead, and thence over all the body, and at last, joining his hands across the chest, closed his eyes, chanting in a low voice: *In manus tuas Domine commendo spiritum meum.* [Latin][^intothyhands]
+
+[^intothyhands]: "Into thy hands, O Lord, I commend my spirit."—Ps. 31, 5. A. V; 30, 6. Vulg. Lke. 23, 46.
+
+Then he ceased to breathe. Thus died Charles in the seventy-second year of his age, and the forty-sixth[^einhardsays47th] of his reign, on the fifth of the Kalends of February, in the year of the Incarnation 814, at the third hour of the day, that is in modern phrase, on Saturday,[^annallaurissminsangall] January 28, 814, at 9 A.M.[^alltheauthorities]
+
+[^einhardsays47th]: Einhard says, the 47th year, probably misled by the tenor of the erroneous epitaph.
+
+[^annallaurissminsangall]: Annal. Lauriss. min., Sangall. (Baluz.), Aquens.
+
+[^alltheauthorities]: All the authorities for the date are cited by Simson, *l. c.* [Latin], II., 532, 534.
+
+The body was solemnly washed and prepared (*curatum* [Latin]),[^vitacaroli31curatum] that is, most probably embalmed[^ademar2_9] and carried into the church.
+
+[^vitacaroli31curatum]: Vita Caroli, c. 31.
+
+[^ademar2_9]: Ademar, II., 9.
+
+At first there was some hesitation as to where the interment should take place, because the emperor had given no directions as to his burial, as his biographer records.[^vitacaroli31burial] His wish in the matter, expressed in writing many years before, as far back as 769, seems to have been overlooked. In that year, under date January 13th, he donated to the monastery of St. Denis, then administered by the abbot Fulrad, the small monastery of St. Dié in the Vosges, and in the deed expressed his desire of being buried at St. Denis, where his grandfather Charles Martel and his father were at rest. To that cathedral he also conveyed the remains of his mother Bertha.[^seep214]
+
+[^vitacaroli31burial]: Vita Caroli, c. 31.
+
+[^seep214]: See p. 214.—Mühlbacher *l. c.* [Latin], No. 128. Abel I., 32, Simson II., 535.
+
+Uncertainty soon gave way to the general conviction that no more appropriate resting place for him, and none more honorable, could be found than in the basilica of Aix-la-Chapelle, his favorite city, in the church which he had built at his own charge, "for love of God and our Lord Jesus Christ, and in honor of the Holy and Ever Virgin His mother."[^tantemomnium]
+
+[^tantemomnium]: Vita Caroli c. 31.—*Tantem omnium animis sedit nusquam eum honestius tumulari posse quam in ea basilica, quam ipse propter amorem Dei et domini nostri Iesu Christi et ob honorem sanctae et aeternae virginis genetricis eius proprio sumptu in eodem vico construxit.* [Latin]
+
+There he was buried on the very day of his death, amid the universal lamentations of the people; it is not improbable that the body, appropriately arrayed, having a cross suspended from his neck, was placed in a Roman marble sarcophagus[^sofarthietmar] with a representation, in relief, of the rape of Proserpina, presumably the same in which it was found at the time of its elevation in 1165,[^seep487] and which remains to this day at Aix-la-Chapelle.[^seelindner]
+
+[^sofarthietmar]: So far Thietmar Chron. IV., 29 in MG. SS. III., 781. I understand the words *in solio* [Latin] to signify "in a tomb;" which they demonstrably may mean. See Lindner, in Preuss. Jahrb. XXXI., 431 sqq., and Forschungen XIX., 181 sqq. The simple fact of the sepulture is stated in Vita Caroli, c. 31; Poeta Saxo, V., 695; Annal. Lobiens., Chron. Moiss. al. with additions.
+
+[^seep487]: See p. 487.
+
+[^seelindner]: See Lindner, in Forschungen, etc., XIX., 183; Förster, *Raub u. Rückkehr der Persephone* [German]; Käntzeler, in Jahrb. d. V., v. Alterthumsfreunden im Rheinlande, XXIX., XXX. p. 193 sqq.; Zeitsehr. des Aachener. Geschichtsvereins III., 97 sqq. (Fritz Berndt, *Der Sarg Karls d. Grossen* [German], m. Abbildung.)—Simson.
+
+Over the tomb a gilded arch was set up with an image and inscription of this tenor:
+
+> "Underneath this sepulchre reposes the body of Charles,\
+> The Great and Orthodox Emperor,\
+> Who did gloriously extend the kingdom of the Franks,\
+> And after a prosperous reign of forty-seven years\
+> Died a Septuagenarian\
+> In the year of the Lord DCCCXIIII\
+> Of the Indiction VII\
+> On the V. Kalends of February."[^subhocconditorio]
+
+[^subhocconditorio]: "SUB *hoc conditorio situm est corpus Karoli Magni atque Orthodoxi imperatoris. Qui regnum Francorum nobiliter ampliavit et per annos XLVII feliciter rexit. Decessit septuagenarius anno Domini* [DCCCXIIII], *indictione* [VII], V. *Kal. Febr.*" [Latin]—Einh., Vita Caroli, c. 31.
+
+    Some manuscripts omit the figures in brackets. The inscription contains an error; Charles died in the 46th year of his reign. His age is variously stated. I accept, upon the highest authority extant, April 2, 742, as his birthday, and hold that he died in the 72d year of his age. The authorities referred to are cited with scholarly accuracy by Simson, *l. c.* [Latin], II., 534 sq. and less fully by Mühlbacher, *l. c.* [Latin], pp. 53, 54.
+
+The foregoing account of the circumstances attending the death and burial is strictly historical; that which follows has been impugned as mythical, and the authorities containing it are not above suspicion. It cannot be rejected and is given at its worth. With this necessary caution we proceed. The writer narrates that "the body" of Charles, "after having been embalmed was placed in sitting posture on a golden seat in the vault of the sepulchre, girt with a golden sword, holding a golden *evangelium* [Latin][^evangeliumstated] in the hands upon the knees, the arms reclining on the seat, and the head held up erect by means of a golden chain fastened to the diadem; in the diadem was placed a piece of the holy cross. And they filled the sepulchre with aromatics, pigments [*sic* [Latin]], balsam and musk and many treasures in gold. The body was arrayed in imperial robes, and the face covered with a handkerchief under the diadem. The *cilicium* [Latin] [*i. e.* [Latin], hair-cloth garment] which [Charles] was always wont to wear in secret they placed next to his skin, and the pilgrim's wallet he carried on his journeys to Rome outside the imperial robes. A golden sceptre, and a golden shield, which Pope Leo had consecrated, were suspended before him; then they closed and sealed the sepulchre."[^ademar2_9mgss]
+
+[^evangeliumstated]: It is stated that the *evangelium* [Latin], or, Book of the Gospels, written on purple vellum in characters of gold, still shown at Aix-la-Chapelle, together with other *curiosa* [Latin], is that named in the text. I can only repeat what is said, for a letter of mine, addressed to the highest ecclesiastical authorities at Aix-la-Chapelle desiring official information on the subject, has brought no response.
+
+[^ademar2_9mgss]: Ademar. II., 9. MG. SS. I., 201.
+
+It is incomprehensible, if not incredible, that so wide and startling a departure from the usual mode of burial should have escaped the notice of contemporary scribes, nor is the omission less surprising if we recollect that with hardly an exception they were clerics or monks. The solitary record of a late authority of a corrupt character needs authentication.
+
+But such authentication is supposed to be furnished in the subjoined account.
+
+In the year A.D. 1000, the Emperor Otto III., being at Aix-la-Chapelle, under an irresistible impulse of seeing the tomb of Charles, ordered it to be opened and descended into the crypt, accompanied by two bishops and count Otto of Lomello. The latter describes that memorable visit in these words:
+
+"We entered and went to Charles, for unlike the bodies of other men his did not lie, but sat upright like a living person on a chair. The body was crowned with a golden diadem; the hands were covered with gloves through which the nails had grown, and held a sceptre. Above it stood a handsome marble mausoleum, through which an opening had to be broken before we could draw near. A strong odor met us as we entered; we paid our homage in the attitude of kneeling. Then the emperor covered the body with white vestments, cut the nails, and repaired whatever had fallen into decay.
+
+"All the limbs were in a state of perfect preservation, but a small portion of the bridge of the nose was missing, which the emperor caused to be supplied in gold. He removed one of the teeth from the mouth, had the opening in the mausoleum walled up again, and left."[^chronicnovalic]
+
+[^chronicnovalic]: Chronic. Novalic, apud Muratori, *Rer. Italic.* [Latin], c. II., pt. 2, p. 728.
+
+Another version of the same visit contains the additional details, that Otto having been admonished in a dream to elevate the body of the Emperor Charles the Great, discovered the place of his sepulture, after a three days' fast even as he had seen it in the vision, found the body as before described, elevated and showed it to the people. One of the canons of the cathedral, a certain Adalbert, a very tall and large man, placed the imperial crown on his own head and found that it was too large for him; he also measured his leg with the emperor's and perceived that his was shorter. Nor was this all; by divine power (*virtute* [Latin]) his own immediately broke or shrunk so that he remained a cripple for forty years to come. The account continues that the body of Charles was placed in the right aisle of his basilica behind the altar of St. John Baptist, etc., etc.[^ademarlabbe]
+
+[^ademarlabbe]: Ademar, Labbe, *Nov. Bibl. manuscript* [Latin], l. II., 169.
+
+On the other hand, it is distinctly asserted that "being in doubt as to the place where the bones of Charles the emperor might repose, and having secretly removed the pavement where he believed them to be, he ordered the laborers to dig until they were found in the royal tomb (*solio regio* [Latin]). Having taken the golden cross, suspended from the neck, and a portion of the vestments which were still in perfect preservation, he replaced the rest with great reverence."[^thietmarsolium]
+
+[^thietmarsolium]: Thietmar, Chron. IV., 29. MG. SS., III., 781. *Solium* [Latin] means a throne, a chair, a bath-tub, a *coffin* (Pliny. Curtius), a barrel, a door-sill, a pulpit, a room. See the dictionaries.
+
+Will the reader draw his own conclusions?
+
+There is no room for doubting the fact that Otto disturbed the repose of the imperial remains, and was censured for it.[^annalhildesh1000] The superstitious saw in it an omen of evil; this may be the origin of the legend that Charles appeared to him in a dream and foretold to him the nearness of his own death. The vision may be doubted, but the fact of his speedy demise is established. It is commonly reported that Otto desired to be buried by the side of Charles. He died January 23, 1002, at Paterno in Italy. His wish was respected and his remains, after a long and eventful journey on which they often lay in state, were taken to Aix-la-Chapelle, and on Easter Day lowered into a vault in the centre of the cathedral, not finally, however, for they were subsequently removed to another spot which the elector Frederic the Wise marked with a monument in 1513; it disappeared during the French occupation of the city in 1803, and the tomb of Otto III. is now unknown.
+
+[^annalhildesh1000]: Annal. Hildesh. a. 1000.
+
+We may add that the remains of Charles were not suffered to lie undisturbed. Three hundred and fifty-two years after their first entombment they were brought forth under the following circumstances.
+
+It appears from official records that the Emperor Frederic I., yielding to the earnest entreaties of King Henry II., of England, and his own impulse, by consent and authority of the antipope Paschalis, obtained the canonization of Charles, and that the rightful pope, Alexander III., sanctioned the act.
+
+There was first a solemn service for the elevation, exaltation, and canonization on Christmas Day, and then on the 4 Kalends of January the basilica of Aix-la-Chapelle was filled to its utmost capacity with a vast multitude of worshippers, among them the Emperor Frederic Barbarossa, the Empress Beatrice, their sons Frederic and Henry, a large concourse of princes and ecclesiastics, to witness amid the singing of hymns and spiritual songs, the solemn and reverential elevation and exaltation of the body of Charles, and his canonization as a holy Confessor. His bones were elevated with great reverence and honorably enclosed in a silver chest by Raynaldus, archbishop of Cologne, and Alexander, bishop of Liège.
+
+It would seem, however, that the remains thus enclosed did not include the entire body, but that the head was sent to Osnabrück, where it is honored with the relics of Crispinus and Crispinianus, martyrs.
+
+The Roman Church observes his day on the 28th of January, and the special Collect then used at Minden and elsewhere, reads as follows:
+
+"O God, who in the superabounding plenitude of thy goodness hast exalted the blessed Charles the Great, Emperor and Thy Confessor, after having laid aside the veil of the flesh, to the glory of a blissful immortality, mercifully grant that as Thou didst raise him to the praise and glory of Thy Name to imperial honor upon earth, so of Thy grace we may be found worthy ever to enjoy his pious and propitious intercession in heaven, through Jesus Christ, our Lord."[^bolandactasanct]
+
+[^bolandactasanct]: Boland. *Acta Sanct.* [Latin], ad Jan. 28, p. 874.
+
+---
+
+#### CHAPTER VII.
+
+##### RÉSUMÉ.
+
+*Sorrow for Charles.—Omens.—"Vision of Charles the Great."—Charles "the Father of the Universe."—Sketch of his empire, subjects, and tributary races.—Estimate.—The night-side and light-side of his character.—Comparison with other illustrious men.—Names he bore in life.—Unanimous verdict of posterity.—The love he inspired.—Passage from Alcuin.—The Funeral Chant.*
+
+**814]** The sorrow for Charles was doubtless sincere, though hardly as profound and universal as the monk of Angoulême insinuates. "It would be impossible," he writes, "to tell how men wept and mourned for him throughout the earth; even the pagans lamented for him as for the Father of the Universe. But most of all did Christians bewail his death, especially throughout the whole extent of his empire."[^monachengol]
+
+[^monachengol]: Monach. Engol. Bouquet, V., 186.
+
+The pagans, to whom he alludes, were friendly Danish chiefs, the Frankish Saracens of the Spanish Marche, the emir of Cordova, and a number of unconverted Abodrites, Sclavonians and Avars.
+
+The Christians other than those of the Frankish empire, were the Byzantines, and the people of Great Britain.
+
+The sincerity of the grief of the pope, the hierarchy, the priests and monks, the counts and beneficed persons generally, was beyond dispute; but the subjugated races, especially the exiled Saxons, may have heard the tidings of his death not without a sense of relief.
+
+With these exceptions the sorrow was general, and men wondered what would follow the demise of the mighty king, who had added so many kingdoms to the kingdom of his inheritance, that he might justly be regarded as the Father of the Universe.[^epitaphcm]
+
+[^epitaphcm]: Epitaph. C. M. Migne, XCVIII., 1446. See note 2, p. 483.
+
+The biographer of Charles comments upon his death in the spirit which marks the author of the "Account of the Translation of the Relics of St. Marcellinus and St. Peter." He says that "numerous omens had portended his approaching end, a fact that he had recognized as well as others. Eclipses both of the sun and moon were frequent during the last three years of his life, and a black spot was visible on the sun for the space of seven days."[^heexplainsthis]
+
+[^heexplainsthis]: He explains this very differently in the Annals, s. a. 807.
+
+"The gallery between the basilica and the palace, which he had built at great pains and labor, fell in sudden ruin to the ground on the day of our Lord's Ascension.
+
+"The wooden bridge over the Rhine at Mayence, which he had caused to be constructed with admirable skill, at the cost of ten years' hard work, so that it seemed as if it might last for ever, was so completely consumed in three hours by an accidental fire that not a single splinter of it was left, except what was under water.[^seep275]
+
+[^seep275]: See p. 275 sq.
+
+"Moreover, one day in his last campaign in Saxony against Godofrid, King of the Danes, Charles himself saw a ball of fire fall suddenly from the heavens with a great light, just as he was leaving camp before sunrise to set out on the march. It rushed across the clear sky from right to left, and everybody was wondering what was the meaning of the sign, when the horse he rode gave a sudden plunge headforemost, and fell, and threw him to the ground so heavily that his cloak-buckle was broken, and his sword-belt shattered; and after his servants had hastened to him and relieved him of his arms, he could not rise without their assistance. He happened to hold a javelin in his hand when he was thrown, which was flung from his grasp with such force that it was found lying at a distance of twenty feet or more from the spot.[^thishappened810]
+
+[^thishappened810]: This happened in 810.
+
+"Again, the palace at Aix-la-Chapelle frequently trembled; the roofs of whatever buildings he tarried in kept up a continual crackling noise; the basilica, in which he was afterwards buried, was struck by lightning, and the gilded ball that adorned the pinnacle of the roof was shattered by the thunderbolt, and hurled upon the bishop's house adjoining.
+
+"In this same basilica, on the margin of the cornice that ran around the interior, between the upper and lower tiers of arches, a legend was inscribed in red letters, stating who was the builder of the temple, the last words of which were *Karolus Princeps* [Latin].
+
+"The year that he died it was remarked by some, a few months before his decease, that the letters of the word *Princeps* [Latin] were so effaced as to be no longer decipherable.
+
+"But Charles despised, or said he despised, all these omens, as having no reference whatever to him."[^vitacaroli32c]
+
+[^vitacaroli32c]: Vita Caroli, c. 32.
+
+It is pleasing to record the last sentence. The reader of these pages has doubtless long since learned that the great Charles could not have but despised these "omens," or any other omens whatsoever, for he knew that they had no reference to him. Is there an enlightened man of common sense who could think otherwise? What reference should they have? And what kind of philosophy and theology is theirs who recognize such a reference?
+
+It is very doubtful, if the whole story of these "omens" has any other foundation than the heated imagination of the superstitious Einhard. At any rate they bear a remarkable resemblance to those which Suetonius records in his life of Augustus.[^hisdeathofwhich]
+
+[^hisdeathofwhich]: "His death, of which I shall now speak, and his subsequent deification, were intimated by divers manifest prodigies. As he was finishing the census amidst a great crowd of people in the Campus Martius, an eagle hovered round him several times, and then directed its course to a neighboring temple, where it settled upon the name of Agrippa, and at the first letter. Upon observing this, he ordered his colleague Tiberius to put up the vows, which it is usual to make on such occasions, for the succeeding Lustrum. For he declared he would not meddle with what it was probable he should never accomplish, though the tables were ready drawn for it. About the same time, the first letter of his name, in an inscription upon one of his statues, was struck out by lightning, which was interpreted as a presage that he would live only a hundred days longer, the letter C denoting that number; and that he would be placed among the gods, as Aesar, which is the remaining part of the word Caesar, signifies in the Tuscan language, a god.<sup>a</sup> Being, therefore, about despatching Tiberius to Illyricum, and designing to go with him as far as Beneventum, but being detained by several persons who applied to him respecting causes they had depending, he cried out (and it was afterwards regarded as an omen of his death), 'Not all the business in the world shall detain me at Rome one moment longer;' and setting out upon his journey, he went as far as Astura,<sup>b</sup> whence, contrary to his custom, he put to sea in the night time, as there was a favorable wind."—Suetonius, *Caesar Augustus* [Latin], c. XCVII. (Bohn's edition, p. 142).
+
+    <sup>a</sup> Aesar is a Greek word with a Tuscan ending; *aisa* [Greek], signifying fate.
+
+    <sup>b</sup> It stood near Terracina on the road to Naples.
+
+This seems a convenient place for the presentation, in brief, of the so-called "Vision of Charles the Great."
+
+Charles was wont on all occasions, at home, or on his expeditions, to have at hand a tablet and a lamp, and forthwith commit to writing such dreams as seemed to him worth preserving.[^vitacaroli25]
+
+[^vitacaroli25]: Vita Caroli, c. 25.
+
+One night, it is not said when, or where, he lay asleep, and in a vision saw a man come up to him with a naked sword. He asked him whence he came. The man replied: "Take this sword, which God sends you as a gift; read and remember the words thereon inscribed, for they shall be fulfilled at the times appointed."
+
+He took the prophetic weapon and discovered the words *Raht, Radoleiba, Nasg, Enti* [Old High German]; the first of these words was near the handle, the last near the end of the blade.
+
+Then he awoke, procured light, and set down in writing all he had seen. In the morning, after prayers, he told the vision to those present, bidding them explain it. None but Einhard spoke, who thought that the sender of the sword would doubtless reveal to him the interpretation.
+
+Then Charles said that so far as he was able to grasp the meaning, he accepted the God-sent weapon as symbolic of the power which had enabled him to subdue so many nations, and that as now, in a time of peace, they enjoyed greater plenty than of yore, so he explained the first word *Raht* [Old High German], near the handle, as denoting "abundance of everything."
+
+The second word *Radoleiba* [Old High German] he believed would not be fulfilled until after his death, when there would be neither the plenty they then enjoyed, nor so many nations as were then subject to his rule, and interpreted it as signifying "speedy deficiency."
+
+And when they were dead, and their sons were reigning, there would be *Nasg* [Old High German]. They would multiply taxes for lucre's sake, oppress strangers and travellers, be destitute of truth, and by foul means acquire wealth; they would rob the Church of what he and his ancestors had given to it, and bestow it upon their minions and satellites. Such he thought was the meaning of *Nasg* [Old High German].
+
+As to the word *Enti* [Old High German] inscribed near the point of the blade, that, he thought, might be understood in two ways, and applied either to the end of the world, or to the end of his dynasty, when none of his offspring should rule the Franks.
+
+Thus ran his interpretation of the vision, "as the abbot Einhard often told it to the monk Rhabanus, and Rhabanus, afterwards archbishop [of Mayence],[^rhabanus814] to many persons, myself included, who have committed it to writing.
+
+[^rhabanus814]: 814–856.
+
+"Some of which things have been fulfilled in former times, some quite recently. For in the reign of the Emperor Louis, the successor of Charles, the Bretons and most of the Sclavonian nations rebelled, and there was great dearth in many places. After his death, his sons Lothair,[^emperor822] Pepin,[^kingofaquitaine814] and Louis, throughout their neglectful reigns, began to multiply *Nasg* [Old High German].
+
+[^emperor822]: Emperor, 822–855.
+
+[^kingofaquitaine814]: King of Aquitaine, 814–838; died before his father, Louis the Pious.
+
+"It would be a long story to tell how many monasteries and churches, how many priests and monks, he spoiled to enrich his satellites. Lothair did the like in Italy. Concerning which matter there is a letter extant, written in the time of his son, in which Bishop Witgarius[^ofaugusta] asks what peace the Holy Roman Church might have, which letter is still preserved in the archives of St. Martin,[^atmayence] and among other things contains this answer: 'The Holy Roman Church, her patron, and the people generally, are wounded, torn asunder, mangled, humiliated, annihilated.'"[^moguntiae]
+
+[^ofaugusta]: Of Augusta, 860(?)–887.
+
+[^atmayence]: At Mayence.
+
+[^moguntiae]: "*Moguntiæ litteris consignatus est post medium sæculum nonum visus nocturnus, quem Carolus Magnus de lapsura progenie sua habitum cum Einharto communicavisse ex istoque compertum Rhabanus scriptori tradidisse fertur.*" [Latin]—Jaffé, Introd. Note to Visio Caroli Magni, in Monumenta Carolina, p. 701.
+
+The monk of Angoulême calls Charles the "Father of the Universe."[^seep489] What was that Universe?
+
+[^seep489]: See p. 489.
+
+Following the coast line in an easterly direction from where the Atlantic breakers thunder against the rock-bound coast of Brittany, along the Channel, past modern France, Belgium, Holland, and Germany, to the Eider, which separated the last-named country from Denmark, and along that river to the Baltic as far as the mouth of the Oder; thence in a south-easterly direction to the confluence of the Theiss and the Danube; thence in a southerly direction to about the forty-fifth degree of latitude near ancient Sirmium; then turning westward to a point in Dalmatia, along the Adriatic past Liburnia and Venetia, thence in a southerly course along the same sea, across the Italian peninsula to the Tyrrhenian Sea, and skirting the whole western coast of Italy north of the Tiber, inclusive of Corsica and other islands, to the southern coast of France; and thence in a south-westerly direction along the coast of Spain to the mouth of the Ebro, thence across the Iberian peninsula, north of Saragossa, to the frontier of Oviedo; thence northward by Roncesvalles to the southernmost point of Gascony, and returning along the Atlantic coast of France to the starting point in Brittany—we have traced in the rough the limits of the Frankish empire at the close of this reign. All the countries included within these limits, and the nations inhabiting them,—and probably others besides—were subject or tributary to Charles.
+
+Speaking more in detail, he added to the Frankish realm, as ruled by Pepin, in the South: the whole of Southern France, except the Provence, together with Catalonia and part of Navarre, beyond the Pyrenees; in the North: modern Hanover, Brandenburg, Prussia to the Baltic and the Oder; in the East and Southeast: Saxony, Silesia, and the countries now comprehended in the Austro-Hungarian monarchy, together with almost the whole of Italy, the former kingdom of Naples only excepted.
+
+> *[Fold-out map, inserted between pp. 494 and 495: a line map of western and central Europe from Britain and the Atlantic ("Oceanus Occidentalis") to Bohemia, Moravia, and Pannonia, and from the Baltic and Denmark south to the Emirate of Cordova, the Tyrrhenian Sea, and the Duchy of Benevento, with meridians east of Greenwich and parallels of latitude, rivers, towns, and dotted boundaries; regions lettered include Neustria, Francia Occidentalis, Media Francia, Austrasia, Francia Orientalis, Saxonia, Westphalia, Thuringia, Abodrites, Wilzen Welatabians, Sorabians, Bohemian Marche, Baioaria, Alamannia, Burgundia, Aquitania, Vasconia, Septimania Gothia, Spanish Marche, Provincia, Britannia, Langobardia, Tuscia, Duc. Spoletanum, Duc. Beneventum, Carantanus, Forum Julii, Croatia, East Marche, and Pannonian Dominion Marche of Avars. Title box captioned "MAP OF THE EMPIRE OF CHARLES THE GREAT A.D. 814. Page 494 sqq." The verso of the map is blank.]*
+
+The extreme limits of his empire were, in Spain: Pampeluna, in the direction of the Asturias, and in that of the Khalifate of Cordova, the lower course of the Ebro. In Italy; Capes San Vito and Cavallo, the rivers Savuto and Nieto, and the northern boundaries of Lower Calabria. In the Southeast: the city of Regusa in the direction of Dalmatia, and the upper Danube in that of Servia and Croatia. In the East: the rivers Theiss, Camp, and Oder. In the North: the Baltic, the Eider, and the North Sea.
+
+The countries and nations within these limits were either subject or tributary to Charles.
+
+The several subject kingdoms and territories were: Austrasia, Neustria, Italy together with Corsica, Sardinia, and the Balearic Isles.
+
+Austrasia, or Eastern Francia, originally bounded by the Scheldt, the Meuse, and the Rhine, came to designate in course of time and in a much wider sense, a territory including Hessia, the Rhenish Provinces, Alsatia, Alemannia, and Suabia (between the Rhine, the Reuss, the Rhetian Alps, the Lech, and the Rhenish Provinces), Bavaria proper between the Lech, the Isar, the Inn, the Enns, the Danube, Bohemia, and Italy. The Bavarian Northgau designated the country bounded by the Danube and Bohemia, and contained the Marches against the Sorabian and Bohemian Sclavonians. The Pannonian or Eastern Marche lay between the Enns and the Raab. Austrasia also embraced Carinthia and Friuli in the Southeast, and nearer, the Saxon territory, Thuringia, Saxony beyond the Elbe, Frisia, and the Northern Marche.
+
+Neustria, or Western Francia, originally bounded by the Scheldt, the Meuse, the Loire, Burgundy and Brittany, designated at a later period a territory including Aquitaine and Gascony between the Loire and the Pyrenees, Septimania or Gothia, with Narbonne in the centre, Burgundy, Savoy, the Provence, and the Spanish Marche between the Pyrenees and the Ebro.
+
+Italy of the Franks comprehended the Lombard kingdom, the State of the Church, and the Marches of Suza, Liguria, Trent, Chieti, and Friuli, although the last-named district had been reunited to Carinthia.
+
+The tributary races and countries were: the Abodrites, a Sclavonian people between the Trave, the Warna, the Elbe, and the Baltic; the Wilzen or Welatabians, a Sclavonian people west of the Oder, inhabiting the island of Rügen, and Mecklenburg, but beyond the Warna and Brandenburg, between the Elbe, the Havel, and the Oder; the Sorabians and Linnonians, also Sclavonians, on both sides of the Elbe, between the Saale, Bohemia, and the Welatabians of Brandenburg; the Bohemians or Czechs, directly south of the Sorabians, and the Moravians, east of the Bohemians, were likewise Sclavonians; the Avars, east of the Theiss, were tributary, but those settled between the Save and the Drave subject to Charles. Croatia and Frankish Dalmatia were governed by a Sclavonian prince subordinate to the duke of Friuli. These two provinces extended on both shores of the Adriatic, from the frontier of Venetia to the mountains of Carinthia, and thence on the Eastern shore to a point in modern Herzegovina. The duchy of Benevento was tributary, and its duke a Frankish vassal.[^geographicalsummary]
+
+[^geographicalsummary]: This geographical summary follows in the main Guizot and Teulet, and the maps of Mentelle, Kruse, Koch, and Spruner. For particulars relating to this difficult and insoluble topic see, besides the authorities named, Beretti, *Dissert. Chorograph.* [Latin]; De Marca, *Marca Hispanica* [Latin]; Conringius, *De Finibus Imperat. Germ.* [Latin]; Lieble, *Mémoires sur les limites de l'Empire de Charlemagne* [French] in Leber's *Collection* [French], t. II., p. 316 sqq.
+
+In the reign of Charles three distinct forms of government existed in Italy alone.
+
+The old Lombard kingdom, incorporated with his empire, was nominally administered, first by his son Pepin, and then, after a brief interval following his death, by his grandson Bernhard, but virtually governed by himself. The State of the Church, or the patrimony of St. Peter, was governed by the pope, acting first under the protection of the Greek emperors, and subsequently under that of Charles, first as Patrician, and ultimately, as Emperor of the West. The duchy of Benevento, as has been stated, obeyed a prince with sovereign rights, but the vassal and tributary of Charles.
+
+The history of the formation, acquisition, and final disposition of this magnificent empire runs parallel with that narrated in this volume. It is a long stretch from the possessions administered by the Mayors of the Palace to the splendid and peerless empire which Charles bequeathed to Louis. It embraced the greater part of Continental Europe.
+
+Within the limits we have outlined the will of Charles was law. All the independent kingdoms embraced by them had been degraded into provinces; their princes had been deposed and thrust into monastic prisons, where they languished in obscurity till death set them free; their people, together with the fiercest, most warlike and potent races, at one time the terror of the world, were subject or tributary to the invincible Charles, and might enjoy such liberty as the world then contained, provided they swore fealty to Charles, and maintained it inviolate.[^formsoftheoath]
+
+[^formsoftheoath]: See the forms of the oath, and its import, p. 372 sq.
+
+Great feats, achievements and results like those just named may be stated at great brevity. Two words suffice to summarize the work of Charles, as it appeared to his contemporaries, when this earthly king of kings received the summons he had to obey, laid aside his crown, and prepared to meet the King of kings, and Lord of lords in heaven.
+
+*Europa subacta* [Latin], that is, Europe subdued, expresses, with the exceptions stated, the actual and visible results of his long reign.
+
+It is unnecessary to recapitulate at length the wonderful history which we have essayed to sketch in these pages. It is doubtless that of one of the most remarkable of men. The reader has perused all that the author, profiting by the splendid labors of many of the most industrious, gifted, and thoughtful writers known to literature, has been able to collect and verify as history, and doubtless formed his own judgment of this grand historical character. It were easy to spread the opinions of others over hundreds of pages, but such reproduction, while it would sustain the views about to be stated, might, on account of its great diversity and length, prove more embarrassing than beneficial, and for that reason, is omitted.
+
+But a summary, plain, comprehensive, and lucid, is doubtless expected and cannot be withheld.
+
+The boy of twelve, sent to escort Pope Stephen, was a prodigy. In him slumbered the strength of Hercules, the sagacity of Odysseus, the enterprise of Alexander, the eloquence of Demosthenes, and the intrepid zeal of Luther.
+
+When he appears on the stage of history for action, he stands forth poorly educated in the learning of the schools, but skilled in arms, endowed with the military glance, and a fine physique worthy of the strength of his ancestral namesake surnamed "the Hammer," and of his sire's who slew the bull and the lion; a fine horseman, a mighty hunter; a fiery, wilful, and imperious man, impatient of contradiction and opposition, of unruly passions, of a strong, clear intellect, allied to singular astuteness and unscrupulous violence.
+
+His character, like the globe, alternates in light and shade. The night side happily belongs to the earlier portions of his long reign.
+
+He understood the true merits of the *coup d'état* [French] by which the sceptre of the Merovingians passed, on the mythical authority of a pope, to the descendants of Charles Martel.
+
+He approved the matrimonial journey of his mother to Pavia, discarded Himiltrud for Desiderata, and as unscrupulously cast her aside that he might wed Hildegard.
+
+At feud with his brother Carloman, he lay in wait at the critical moment, and on his death usurped his throne, driving his widow and children into exile.
+
+Then followed in quick succession, the conquest of Italy, the humiliation of the house of Desiderius, his own discarded wife included; the wrong done to Gerberga, and the children of Carloman; the degradation of Tassilo, and the wrong to his descendants.
+
+The real fate of all these unfortunates is not known, but when in later years the horrors of Verden disturbed his slumbers, who can doubt, that as from the red earth of Westphalia rose the spectral hosts of slaughtered Saxons, the unknown graves of Desiderata, Gerberga, Carloman, Desiderius, Ansa, Tassilo and others, opened to let their occupants flit past his vision?
+
+He lived to see the error of his ways, passed through the furnace of affliction, and became the chastened, smitten Charles, purified, ennobled, and sincere.
+
+Such are the darkest shadows of his life; but the aged monarch, who so calmly, meekly, and Christianly prepared for the last journey, was an imperial penitent, who had made his peace with God.
+
+Turning to the light side of his character, the reflection occurs that, humanly speaking, the fortunate accident of his birth, the inheritance of a throne, a strong constitution, and doubtful principles, would have been the ruin of Charles, as they were of countless other potentates, with the same advantages, who left the world with no other trace of their existence than that they came and reigned till death swept them out into the sea of merited oblivion.
+
+Not so in the case of Charles; he might err, as err he did; stoop to wrong, as undoubtedly he stooped; be the slave of his passions, as he is known to have been; but he had that within him which ever lifted him to a higher plane, to the sunny realm of virtue, piety, and justice.
+
+He turned his strong intellect to the noblest pursuits in philosophy and literature, theology and law; increased in knowledge and wisdom until he distanced some of the brightest and most gifted of his contemporaries.
+
+He was a successful conqueror, a sagacious ruler, a clear legislator, a good counsellor, an eloquent speaker, a munificent patron of literature, a far-sighted philanthropist, and a most princely benefactor of the Church.
+
+He was born to be a ruler of men. Napoleon said of him, that he had the military glance, which explains his conquests; he had likewise the intellectual glance, enabling him to master every situation; the judicious and penetrating glance, making him read the thoughts and probe the hearts of men; and the magnetic glance, attracting the best, strongest, and most enlightened of their number.
+
+All the dukes, counts, and lords of his vast empire, in course of time thought of him, and felt for him, as their loved and rightful lord; the whole hierarchy, from the pope to the village priest, revered and loved him with unparalleled devotion, and cheerfully accorded to him an exceptional position.
+
+He sat in judgment on the pope, preached to metropolitans, and instructed the whole Church in Canon Law. He was well versed in dogmatic theology, profoundly conversant with the rationale of ritual, impatient of perfunctory and mechanical worship. He had a just sense of the importance of cleansing the text of the Scriptures from unauthorized additions and corruptions, the temples of God made with hands from corrupt men, and the temples of God not made with hands, from the defilements of wickedness and vice.
+
+The catalogue of his shining merits is not yet exhausted. He was idolized by his family, as the most affectionate and indulgent of parents. His conversation was delightful; he was witty, and the most versatile man at Court; he spoke Latin as he spoke German; read Greek; cultivated music and excelled in song; loved poetry; studied every law, animated by the desire of establishing a uniform system of law by conforming every body of laws, written or unwritten, to the Law of God.
+
+His fame had spread throughout the world; the khalif at Bagdad, the Saracen emir at Cordova, the emperor at Constantinople, the kings of Britain and Denmark, together with semi-barbarous chieftains beyond the Eastern Marche, acknowledged his power and sought his friendship.
+
+Depicted in the Annals and Capitularies, in the Epistles he wrote and received, in the Minutes of Church Councils, in the Diplomas and Charters setting forth his benefactions, the character of Charles stands out clear and distinct. They portray him far better than the longest and most eloquent description could do. Recurring to these the reader may readily supply whatever defect, in his judgment, attaches to this sketch.
+
+It is certainly not the least striking feature of his life that in almost all these respects he stood unexcelled for nearly half a century.
+
+Looking from the more distant past of European history, all through the ages to the present century, and reading the long roll of illustrious potentates, only four names may be associated with the name of Charles.
+
+Alexander of Macedon was a great conqueror, but his conquests were of little benefit to Europe; he neglected his native country, and left an empire destined to become the prey of barbarism. Julius Cæsar was a great conqueror, but his great and shining merits, which clearly stamp him as the greatest man in antiquity, conferred no lasting benefit on Rome—for after him came the emperors. Constantine was a great emperor and did good service to the Church by making Christianity the religion of the empire—but he tolerated paganism and was a superstitious man. Napoleon was a great conqueror, but his conquests, like his reign, were transitory, and neither beneficial to mankind at large, nor to his country in particular.
+
+If three of these deserve the epithet "Great," who can withhold it from Charles? Weighing his character in a balance just and true, we cannot doubt the verdict. He shed much blood, and sometimes shed it cruelly; he did much wrong, especially in early life, and as we think, heartlessly and cruelly, but he lived it down; for these things he deserves censure, and the censure is not withheld. But the other points, enumerated in late paragraphs, in which he manifestly excelled and eclipsed the splendor of those names, do they not establish his greatness? If he does not deserve the epithet, who does?
+
+In his life-time he did not bear it. It formed not part of his official title, but the whole world thought him great. His title is familiar to us and need not be repeated; but it interests us to know how his contemporaries spoke of him by name; they called him "Emperor" (*Imperator* [Latin]), as betokening his personal and exclusive prerogative; "Charles" (*Karolus* [Latin]), as betokening his baptismal name; "Frank" (*Francus* [Latin]), as setting forth his race; and "Wise" (*Prudens* [Latin]), as coming to him from abroad, that is, as we understand the passage, in recognition of his extraordinary sagacity.[^smaragdusii21]
+
+[^smaragdusii21]: Smaragdus, II., 21 apud Mabillon, Vet. Anal. nov. ed. p. 358; cf. Annal. Bened. II., 408.
+
+When he died, and men felt his death, began to think of what he was and did, contrasted him with the men that succeeded him, and the *Raht* [German] of his reign with the *Nasg* [German][^seep493] of theirs, the nations of the earth with one accord, and as early as the middle of the ninth century, called him the "Great" Emperor.[^nithardi1]
+
+[^seep493]: See p. 493.
+
+[^nithardi1]: Nithard I., 1, MG. SS., II., 651.
+
+That judgment has never been and cannot be reversed. Charles the Great is unquestionably and incomparably the grandest name of the Middle Ages. His light still shines from afar; he is the father of modern civilization, of the common law of all the nations of Teutonic origin, and of other elements that enter into the political systems of the present.
+
+We meet him everywhere, in letters, in poetry, in music and song, in architecture, and last, not least, in the fabled realms of legend and romance.
+
+But by far the most touching proof of his greatness we find in the love he inspired. This is evident in almost every production of the Caroline age which has come down to us; over and above the official reverence due to his station, and the respect due to his attainments and merit, the most illustrious men of his age loved him as a man. It is the most striking characteristic of his biography, as writ by Einhard; it abounds on the pages of Hadrian and Leo, warms the measures of Theodulf and Angilbert, and overflows in the epistles of Alcuin, as a solitary extract may show. The epistle was written by the venerable man in old age, when infirmity tied him to Tours, on the occasion of the emperor's return from Rome after the Coronation.
+
+"Day after day," he writes, "my heart did yearn for the glad tidings of the homeward journey, and in rapture my ear did catch the announcement of the return of my most sweet lord and friend David. . . .
+
+"At last they came and said: 'Albinus, now he cometh; 'now he has crossed the Alps, the friend thou so eagerly desirest to see.'
+
+"I could not contain myself for joy; again and again I cried: 'O Lord Jesus, why dost thou not give me the wings of an eagle, or takest me like the prophet Habaccuc for a day, or for an hour only to clasp and kiss the feet of my dearest friend, whom I prefer to all the world contains, fix my eyes on those of my sweetest friend, and let my ear drink up the music of his words.'"[^alcuiniep170]
+
+[^alcuiniep170]: Alcuini ep. 170, in Monumenta Alcuin. (Jaffé), p. 613.
+
+This is not flattery, it is the impassioned language of a loving nature, certainly of one of the very best and purest men, of one of the finest scholars and brilliant thinkers of the age.
+
+His language will not lose anything by the allusion to the miraculous capture of the prophet, as told in the apocryphal book, whom the angel of the Lord took by the crown, bare by the hair of his head, and through the vehemency of his Spirit, set down in Babylon over the den.[^belandthedragon]
+
+[^belandthedragon]: Bel and the Dragon, 36.
+
+Nor can one doubt that the nameless monk who in the monastic retirement of Bobbio on the Trebbia (probably founded by its sainted abbot Columbanus)[^diedad615] heard the news of the death of Charles, was perfectly sincere in the touching tribute to his memory which sorrow wrung from his heart, and with which we close this history.
+
+[^diedad615]: Died A. D. 615, and known as St. Columbanus since the eighth century.
+
+**Funeral Chant.**
+
+> From Orient far to Occidental shore
+> A dirge of sorrow smites the lab'ring breast:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> The hosts beyond the sea afflicted moan
+> And with unmeasured grief molest their soul:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> The Franks, the Romans, yea, believers all,
+> In doleful lamentation's chain are bound:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> The young and old alike, the honor'd chiefs
+> And matrons, all lament their Cæsar's loss:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> Incessant flow the streams from human eyes,
+> For all the world laments the death of Charles:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> O common Father, of Thine orphan'd hosts,
+> Of ev'ry stranger, widow, maiden pure:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> O Christ, Whose sceptre sways the realms above,
+> Within Thy Kingdom there give rest to Charles:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> Thus all believers pray, Thy faithful flock,
+> The saints and elders, maids, and widows true:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> An earthy mound, with title set, is rais'd
+> Above the Imperator Charles Serene:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> O Holy Spirit, Who dost all things rule,
+> Exalt, we instant pray, his soul to rest:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> Ah, woe to Rome, and to the Romans woe,
+> For snatch'd away is our most glorious Charles:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> Such dreadful griefs, as France has borne, are light
+> In presence of the grief she did sustain:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> When on the Aquisgranian glebe she gave
+> To earth her eloquent Augustus Charles:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> That night to me but fearful dreams rehearsed,
+> And day succeeding brought not cheerful ray:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> Which to the gloomy shades of death conveyed
+> The noble prince to Christendom so dear:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> O Columbanus, stay the briny flood,
+> And offer prayers for him to God the Lord:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> O Father, Lord most merciful to all,
+> A shining place to him, we pray, accord:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> O God, the Lord of all the human race,
+> Of all the hosts on high, and underneath:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate!
+>
+> With Thine apostles all, O Christ, receive
+> The pious Charles within Thy sacred throne:
+> &emsp;&emsp;&emsp;&emsp;O woe to me unfortunate![^ihavetranslatedmuratori]
+
+[^ihavetranslatedmuratori]: I have translated the text of Muratori, *Rer. Ital.* [Latin], II., 2, p. 690, as given in *Illustrative Extracts*, Appendix I. The dirge was composed either immediately, or very soon after the death of Charles. See Dümmler's Introduction to the Rythmus, in Poetae Lat. aev. med. I., 2, p. 435. The text with a specimen of the musical notation of the dirge is given by Coussemaker, *Histoire de l'Harmonie* [French], p. 91. For an early text see Thietmar, VIII., 15, in MG. SS., III., 870.
+
+---
+
+## APPENDIX.
+
+---
+
+### APPENDIX A.
+
+#### Deposition of Childeric and Coronation of Pepin.
+
+"*Anno 750 inc. domin. mittit Pippinus legatos Romam ad Zachariam papam, ut interrogarent de regibus Francorum, qui ex stirpe regia erant et reges appellabantur, nullamque potestatem in regno habebant, nisi tantum quod cartae et privilegia in nomine eorum conscribebantur, potestatem vero regiam penitus nullam habebant, sed quod maior domus Francorum volebat, hoc faciebant; in die autem Martis campo secundum antiquam consuetudinem dona illis regibus a populo offerebantur, et ipse rex sedebat in sella regia circumstante exercitu, et maior domus coram eo, praecipiebatque die illo quicquid a Francis decretum erat; die vero alia et deinceps domi sedebat. Zacharias igitur papa secundum anctoritatem apostolicam ad interrogationem eorum respondit, melius atque utilius sibi videri, ut ille rex nominaretur et esset, qui potestatem in regno habebat, quam ille, qui falso rex appellabatur. Mandavit itaque praefatus pontifex regi et populo Francorum, ut Pippinus qui potestate regia utebatur, rex appellaretur, et in sede regali constitueretur. Quod ita et factum est per unctionem sancti Bonifatii archiepiscopi Suessionis civitate. Appellatur Pippinus rex, et Hildricus qui falso rex appellabatur, tonsoratus in monasterium mittitur.*" [Latin]
+
+Pertz, Mon. Germ. SS. I., p. 116. Annales Lauriss. Minores.
+
+"*749. Burghardus Wirceburgensis episcopus et Folradus capellanus missi fuerunt ad Zachariam papam interrogando de regibus in Francia, qui illis temporibus non habentes regalem potestatem, si bene fuisset, an non. Et Zacharias papa mandavit Pippino, ut melius esset illum regem vocari, qui potestatem haberet, quam illum, qui sine regali potestate manebat; ut non conturbaretur ordo, per auctoritatem apostolicam iussit Pippinum regem fieri.*" [Latin]
+
+"*750. Pippinus secundum morem Francorum electus est ad regem, et unctus per manum sanctae memoriae Bonifacii archiepiscopi, et elevatus a Francis in regno in Suessionis civitate. Hildericus vero, qui falsus rex vocabatur, tonsoratus est, et in monasterium missus*" [Latin][^insithiumonasterium]
+
+[^insithiumonasterium]: [*in Sithiu monasterium missus. Pippinus, monente sancto Bonifacio, quibusdam episcopatibus vel mediates vel tertias rerum, . . . promittens in postmodum omnia restituere 9.* [Latin]]—Pertz.
+
+Ibid. p. 137 sq.
+
+See also Enhardi Fuldens. Annal. a. 751, 752, apud Pertz, *l. c.* [Latin], p. 346, and Annalista Saxo, apud Eccard, *Corpus Hist. Med. Aevi* [Latin], I., 138 sq.
+
+---
+
+### APPENDIX B.
+
+#### "Patricius," Patrician.
+
+The authorities on the title and powers of a Roman *patricius* [Latin] may be collected from Ducange, *Gloss. Latin.* [Latin], tom. V., pp. 149–151; Pagi, *Critica* [Latin] A. D. 740, Nos. 6–11; Muratori, *Annali d'Italia* [Italian], tom. VI., pp. 308–329; St. Marc, *Abrégé Chronologique d'Italie* [French], tom. I., pp. 379–382. The subjoined passages, from Ducange, seem to express the sense in which the word was generally construed by contemporary writers.
+
+The Epistles, Nos. 4, 7, 8, 9, 41, 42, 45, 47, etc., in the *Codex Carolinus* [Latin] are addressed thus: "*Dominis excellentissimis Pippino, Carolo, et Carolomanno Regibus, et nostris Romanorum Patriciis.*" [Latin]
+
+"*Ibi venit ad eum Missus D. Adrianae Papae nomine Petrus, obnixe postulans, et ut populum Romanum de manibus superbi Regis Desiderii liberaret, adjungens, quod ipse legitimus tutor et defensor esset ipsius ecclesiae, quoniam illud praedecessor suus sanctae memoriae Stephanus Papa unctione sacra liniens, in Regem ac Patricium Romanorum ordinavit.*" [Latin]—Annales Francor. Metens. an. 773.
+
+"'*Idem exerte docet Gregor. Mon. in Chronic. Farfensi apud Murator. to. II., p. 2, col. 640, ubi scribit: Italiam totam semper habuisse imperatorios procuratores, rectores, Patricios, exarchos, et duces qui imperatoris jura et reipublicae potentissime possidentes defenderent, dominiumque Italicum obtinerent, usque ad tempora Pipini Regis Francorum, quem Stephanus Papa II. apud Parisium coronavit et unxit cum duobus filiis suis circa annum Dominicae Incarnationis DCCLIV.*'" [Latin]
+
+---
+
+### APPENDIX C.
+
+#### Grant of Pepin.
+
+The authorities for the grant are: Sigonius, *De regno Italiae* [Latin], lib. III., p. 202, tom. II. opp. Bunau, *Historia Imperii Germanici* [Latin], tom. II., pp. 301–366. Muratori, *Annali d'Italiae* [Italian], tom. IV., p. 310.
+
+"The real limits of the Exarchate, granted by Pepin to the Roman pontiff, have been much controverted among the learned, and have, particularly in our times, employed the researches of several eminent writers. The bishops of Rome extend the limits of the exarchate as far as they can with any appearance of decency or probability; while their adversaries are as zealous in contracting this famous grant within narrower bounds. See Muratori, *Droits de l'Empire sur l'État Ecclésiastique* [French], cap. I., II.; also his *Antiquitat. Ital. Medii Aevi* [Latin], tom. I., pp. 64, 68, 986, 987. The same author treats the matter with more circumspection, tom. V., p. 790. This controversy can only be terminated with facility by an inspection of Pepin's grant of the territory in question.
+
+"Fontanini in his *First defence of the temporal jurisdiction of the see of Rome over the city of Comachio*, written in Italian, intimates that this grant is still in being, and even makes use of some phrases that are contained in it; see pp. 242, 346 of that work. This, however, will scarcely be believed. Were it indeed true that such a deed is yet in being, its being published to the world would be, undoubtedly, unfavorable to the pretensions and interests of the Church of Rome.
+
+"It is at least certain that in the recent disputes between the Emperor Joseph and the Roman pontiff, concerning the city of Comachio, the partisans of the latter, though frequently called upon by those of the emperor to produce this grant, refused constantly to comply with this demand.
+
+"On the other hand it must be confessed, that Blanchinus, in his '*Prolegom. ad Anastasium de vitis pontif. Roman.*' [Latin] p. 55, has given us from a Farnesian manuscript, a specimen of this grant, which seems to carry the marks of remote antiquity.
+
+"*Be that as it may, a multitude of witnesses unite in assuring us, that the remorse of a wounded conscience was the source of Pepin's liberality, and that this grant to the Roman pontiff was the superstitious remedy by which he hoped to expiate his enormities, and particularly his horrid perfidy to his master Childeric.*" Mosheim, *Ecclesiastical History*, vol. I. cent. VIII., pt. II., ch. VIII., note *t*.
+
+It is proper to add the testimony of the pope's own letters to Pepin in which he distinctly and explicitly adduces the grant as written under the king's own handwriting.
+
+"*Decertate bonum opus quod coepistis, et quae per donationem manu vestra confirmastis, Protectori vestro B. Petro reddere festinate.—Sciatis enim quia Chirographum vestram donationem Princeps Apostolorum firmiter tenet, et necesse est, ut ipsum Chirographum expleatis.*" [Latin]—Ep. Steph. ad. Pip. Carol. et Carolom., Cod. Carol. IX. apud Censi, *Monum. Dominat. Pontific.* [Latin], tom. I., p. 82.
+
+---
+
+### APPENDIX D.
+
+#### Table of Alcuin's Epistles to Charles.[^thistablefollows]
+
+[^thistablefollows]: This table follows the numeration of Frobenius, and the analysis of Guizot, *Histoire de la Civilization en France* [French], vol. II., 189 sqq. It may be advantageously compared with the best edition of Alcuin's letters, entitled *Monumenta Alcuiniana* [Latin], being vol. VI. of *Bibliotheca Rerum Germanicarum* [Latin]. According to the latest recognition 306 of Alcuin's letters have been published. The last five of this table, with Arabic numerals, correspond to the order of *Monum. Alcuin.* [Latin]
+
+| No. | Date. | Subject. |
+|---|---|---|
+| XIV. | 793 | On the transfiguration of Christ. |
+| XXVIII. | 796 | Alcuin congratulates Charles on the Avar victory, advising: 1. The sending of gentle missionaries to the conquered people. 2. Suspension of tithes, saying, "it is better to lose tithes than faith; even we, born, trained, and instructed in the Catholic faith are loth to pay them. How much greater must be the repugnance of a people of nascent faith, feebleness of heart, and parsimonious habits!" 3. A fixed order of religious instruction. "Begin with teaching the immortality of the soul; future life; just recompense to the good and the evil; the eternity of such retribution; that crimes and sins entail eternal punishment with the devil, but virtues and good works conduce to eternal glory with Christ; inculcate faith in the Holy Trinity, and that Christ came into the world to save the family of man." |
+| XXXII. | 796 | Alcuin recommends Charles to show forbearance to the Avars, and mercy to his enemies. |
+| XXXVIII. | 796 | Alcuin explains his work in the Abbey School at Tours. "I, your Flaccus, agreeably to your exhortation and wise decision, am dispensing, under the roof of St. Martin, to some the honey of the Holy Scriptures, endeavoring to inform the mind of others with the old wine of the classics; some I nourish with the fruit of grammar, others I seek to dazzle with the splendor of the stars. . . . But I sadly miss the best works on education, which, thanks to my master's excellent care and through my own effort, used to be at my service in my own country, submitting to your majesty the propriety of your authorizing the departure of some of our servants to Britain for the purpose of securing for our benefit the bloom of her letters. . . . In the morning of my life I scattered there the seeds of knowledge, which at its eve, although my blood is growing cool, I cease not to sow in Francia, trusting that through the blessing of God the good seed may spring up and thrive in both lands." |
+| LXI. | 797 | Explanation of the lunary cycle. |
+| LXIV. | 798 | Recommendation of certain individuals. |
+| LXV. | " | Explanation of the origin of the words Septuagesima and Sexagesima. [Letter LXVI. contains the king's objections.] |
+| LXVII. | " | Reconsideration of the same topic, and a disclaimer of obstinacy. "As to what you say near the close of your epistle, in a friendly spirit and for my benefit, that, if in my opinion reform is necessary, I should make it in humility, I beg to reply that by divine grace, I have never been obstinate in error, or confident in opinion; I can readily adapt myself to better advice, for I remember the saying that it is better to use our ears than our tongue. Please therefore in your wisdom to remember, that I write less to a disciple than to a judge, and state my humble notions not to one deficient in knowledge, but to one qualified to reform." |
+| LXVIII. | 797 | On the solar course, the phases of the year, and the heresy of Felix, bishop of Urgel. |
+| LXIX. | 798 | On astronomy and chronology, with answers to the questions of a lady, probably Gisla, the sister of Charles. |
+| LXX. | " | On astronomy, answering questions on the solar course, constellations, etc. |
+| LXXI. | " | On the same subject. |
+| LXXX. | 799 | On public affairs. |
+| LXXXI. | " | Apology, on account of ill health, for not accompanying Charles to Rome. |
+| LXXXIV. | 800 | Complimentary, and astronomical calculations. |
+| LXXXV. | " | Alcuin thanks Charles for reading his treatise against bishop Felix, and sends examples of orthography and arithmetic. |
+| XC. | " | Alcuin condoles with Charles on the death of Liutgard (?), and sends a brief epitaph, or pious wish: "*Semper in aeternum vivat feliciter, opto, / Filia cara mihi; sit, rogo, cara Deo.*" [Latin] |
+| XCI. | " | On the same subject. |
+| XCIII. | " | Alcuin congratulates Charles on his victories; exhorts him to clemency; adverts to the health of Pope Leo; apologizes for remissness in writing; and declines going to Rome. |
+| CIII. | 801 | Alcuin having long tried sending Charles a present worthy of his eminent station and expressive of his affection, begs his acceptance of a copy of the Holy Scriptures revised by himself.[^thisisprobablytheexquisite] |
+| CIV. | 801 | Alcuin rejoices in the emperor's safe return from Italy. |
+| | " | Regrets that old age prevents his going to Court. |
+| CV. | " | Alcuin deplores the death of Magenfried; recommends the building of a church;[^notatbenevento] and warns Charles against the dangers of the Beneventan expedition. "My affection for you may seem foolish, but none can charge me with disloyalty in great things or small, and my confidence in your approved humility emboldens me to write as I do. Some one may ask, 'why does he meddle with things outside his province?' Such an one does not know that I consider nothing concerning your welfare to lie outside my province, deeming that welfare higher than my own health, or the term of my life. Thou art the happiness of the realm, the salvation of the people, the ornament of the Church, the protector of all believers in Christ. Under the shadow of thy power and the shelter of thy piety, God has graciously granted us to lead the religious life, and in tranquil peace serve Jesus Christ; wherefore it is meet, and essential to my happiness, that I should intently and with sincere cordiality, follow thy course, take the warmest interest in thy welfare, and pray God to bless King David, most beloved, and most worthy of all honor." |
+| CVI. | " | Alcuin thanks Charles for his kindness, entreating his permission to remain at St. Martin's. |
+| CXCV. | 802–803 | Alcuin apologizes for himself and the brothers of St. Martin in having accorded asylum to a clerk of the church of Orleans, and thereby occasioned trouble, as well as displeasure to Charles and Theodulf. |
+| CXXIII. | Uncertain. | Alcuin answers the king's inquiry on the difference between *aeternum* [Latin] and *sempiternum* [Latin]; *perpetuum* [Latin] and *immortale* [Latin]; *saeculum* [Latin], *aevum* [Latin], and *tempus* [Latin]. |
+| CXXIV. | " | Alcuin answers certain questions of Charles on passages in the Gospels. |
+| CXXV. | " | Alcuin explains why the hymn, which Christ is said to have sung after the Holy Supper, is not of record in the Gospels. |
+| CXXVI. | " | Alcuin answers the king's question, propounded in the name of a learned Greek, "who received the price of redemption?" |
+| CXXVII. | " | Alcuin's advice under the title of *capitula* [Latin] concerning testaments, successions, etc. |
+| 142 | 800 | Alcuin leaves the decision of the publication of his treatise against Felix, bishop of Urgel, with Charles. |
+| " | " | Alcuin names the authorities he followed in the said treatise. |
+| 170 | 801 | Alcuin sends Candidus to meet Charles on his return from Italy, stating that though in better health he should prefer remaining at Tours. |
+| 238 | 801–804 | Alcuin answers the emperor's question of the meaning of the two swords; submits the propriety of an imperial inhibition of bishops suspending presbyters from preaching, and an injunction preventing the desecration of altars. |
+| 239 | 801–804 | Alcuin dedicates his Book on the Life and Miracles of St. Richarius, Confessor, to Charles. |
+
+[^thisisprobablytheexquisite]: This is probably the exquisite MS. of a *Codex Evangeliorum* [Latin], formerly at Prüm, now at Treves, containing, after the Generation of Christ, the following metrical inscription: "*Suscipe, rex, parvum magni modo munus amoris, / Quod tuus Albinus obtulit ecce tibi. / Magna ferunt secli gazarum dona potentes, / Fert mea pauperies ista minuta duo,\* / Ne vacua in sacris venisset dextra diebus / Ante piam faciem, rex venerande, tuam. / Nomina sanctorum signavi sancta parentum / Haebrea depromens ore, Latine, tuo. / Fer mea, carta mea, supplex munuscula domno, / Corpore premodico viscera magna gerens.*" [Latin] \*Cf. Luc. XXI., 2. Cf. Pertz, *Archiv für ältere deutsche Geschichtskunde* [German], VII., 159; Frobenius I., 456.—Dümmler.
+
+[^notatbenevento]: Not at Benevento, but at Tours.—Dümmler, *l. c.* [Latin], p. 584.
+
+---
+
+### APPENDIX E.
+
+#### Table of the Winds.
+
+Charles divided the heavens into twelve regions, giving to the winds blowing from them appropriate names. The table exhibits in the first column the Roman names of the winds, in the second those invented by Charles, and in the last the corresponding cardinal points of the Mariner's Compass.
+
+| Roman Names. | Caroline Names. | Mariner's Compass. |
+|---|---|---|
+| SEPTENTRIO. | NORDRONI. | NORTH. |
+| Aquilo. | Nordostroni. | |
+| Volturnus. | Ostnordroni. | |
+| SUBSOLANUS. | OSTRONI. | EAST. |
+| Eurus. | Ostsundroni. | |
+| Euro-Auster. | Sundostroni. | |
+| AUSTER. | SUNDRONI. | SOUTH. |
+| Austro-Africus. | Sundwestroni. | |
+| Africus. | Westsundroni. | |
+| ZEPHYRUS. | WESTRONI. | WEST. |
+| Caurus. | Westnordroni. | |
+| Circius. | Nordwestroni. | |
+
+---
+
+### APPENDIX F.
+
+#### List of the Months.
+
+Charles called:
+
+| Month | Name | Meaning |
+|---|---|---|
+| January, | *Wintermanoth* [German], | that is, winter month; |
+| February, | *Hornunc* [German], | " the month in which stags shed their horns; |
+| March, | *Lenzinmanoth* [German], | " Lent month; |
+| April, | *Ostermanoth* [German], | " Easter month; |
+| May, | *Winnemanoth* [German], | " pasture month;[^oriftthevariation] |
+| June, | *Brachmanoth* [German], | " the month in which the ground breaks open; |
+| July, | *Hewimanoth* [German], | " hay month; |
+| August, | *Aranmanoth* [German], | " earing month; |
+| September, | *Witumanoth* [German], or *Widemanoth* [German], | " either the month in which cattle is sent to pasture on the second crop, or the month in which the hunt begins; the old German *wide* [German] allows both meanings. |
+| October, | *Windumemanoth* [German], | " vintage month; |
+| November, | *Herbistmanoth* [German], | " autumn, or harvest month; |
+| December, | *Heilagmanoth* [German], | " holy month. |
+
+[^oriftthevariation]: Or, if the variation Wunnimanoth is preferred, the month of delight, for *wunni* [German] = *wonne* [German] is, delight. Compare on the variation in the spelling, Teulet, *l. c.* [Latin], whose list is exhaustive.
+
+---
+
+### APPENDIX G.
+
+#### List of Capitularies set forth in the Reign of Charles the Great.
+
+KAROLI MAGNI CAPITULARIA.
+
+| No. | Title. | Date. | No. of Cap. |
+|---|---|---|---|
+| 1. | Karoli M. Capitulare primum. circa. | 769. | 18. |
+| 2. | Capitulare Heristallense. | 779, March. | 23. |
+| 3. | Capitulare Episcoporum. | 780? | 1. |
+| 4. | Admonitio Generalis. | 789, March. | 82. |
+| 5. | Duplex Legationis Edictum. | " " 23. | 37. |
+| 6. | Breviarium Missorum Aquitanicum. | " | 18. |
+| 7. | Capitulare Missorum. | 792 or 786. | 6. |
+| 8. | Capitulatio de partibus Saxoniae. | 775–790. | 34. |
+| 9. | Capitulare Saxonicum. | 797, Oct. 28. | 11. |
+| 10. | Synodus Franconofurtensis. | 794, June. | 56. |
+| 11. | Karoli epistola de litteris colendis. | 780–800. | 1. |
+| 12. | Karoli epistola Generalis. | 786–800. | 1. |
+| 13. | Capitulum in pago Cenomannico datum. | 800. | 1. |
+| 14. | Capitulare de Villis. | 800 or before? | 70. |
+| 15. | Capitulare Missorum Generale. | 802, early. | 40. |
+| 16. | Capitulare Missorum Speciale. | 802, " | 19. |
+| 17. | Capitulare Missorum item Speciale. | 802? | 59. |
+| | Synodus et conventus exeunte anno 802 Aquisgrani habita. | | |
+| | 18. Capitula a sacerdotibus proposita. | 802, Oct.? | 22. |
+| | 19. Capitula ad lectionem canonum et regulae S. Benedicti pertinentia. | 802, Oct.? | 24. |
+| | 20. Capitula de examinandis ecclesiasticis. | 802, Oct.? | 17. |
+| | 21. Capitulare legibus additum. | 803. | 11. |
+| | 22. Capitulare Missorum. | 803. | 29. |
+| | 23. Capitulare legi Ribuariae additum. | 803. | 12. |
+| 24. | Capitula ecclesiastica ad Salz data. | 803–804. | 8. |
+| | Duplex Capitulare Missorum in Theodonis villi datum. | 805, late. | |
+| | 25. Capit. Missor. in Theod. villa dat., primum, mere ecclesiasticum. | | 16. |
+| | 26. Capit. Missor. in Theod. villa dat., secundum, generale. | | 22. |
+| 27. | Divisio Regnorum. | 806, Feb. 6. | 20. |
+| 28. | Capitulare Missorum Niumagae datum. | 806, March. | 18. |
+| 29. | Capitula excerpta de canone. | 806, later? | 23. |
+| 30. | Memoratorium de exercitu in Gallia occidentale praeparando. | 807, early. | 3. |
+| 31. | Capitula de causis diversis. | 807? | 4. |
+| 32. | Capitulare Missorum de exercitu promovendo. | 808, early. | 9. |
+| 33. | Capitula cum primis conferenda. | 808. | 13. |
+| 34. | Capitula cum primis constituta. | 808. | 7. |
+| 35. | Capitula Missorum. | 808. | 10. |
+| 36. | Capitula per episcopos et comites nota facienda. | 805–808. | 6. |
+| 37. | Capitula post a. 805 addita. | 806–813. | 3. |
+| 38. | Capitula Karoli Magni. | 803–813. | 4. |
+| 39. | Capitula omnibus cognita facienda. | 801–814. / 801–806? | 7. |
+| 40. | Responsa Misso cuidam data. | 801–814? | 8. |
+| 41. | Capitula a Misso cognita facta. | 803–813. | 13. |
+| 42. | Capitulare Missorum. | 802–813. | 4. |
+| 43. | Capitulare Aquisgranense. | 809. | 14. |
+| 44. | " Missorum Aquisgranense primum. | 809. | 29. |
+| 45. | " " " alterum. | 809. | 13. |
+| 46. | " " " primum. | 810. | 20. |
+| 47. | " " " secundum. | 810. | 16. |
+| 48. | Capitula de Missorum officiis. | 810. | 5. |
+| 49. | Capitula per Missos cognita facienda. | 803–813. | 6. |
+| 50. | Capitula ad legem Baiwariorum addita. | 801–813. | 7. |
+| 51. | Capitulare Baiwaricum. | 810, circa. | 9. |
+| 52. | Capitula Karoli apud Ansegisum servata. | 810, 811? | 6. |
+| 53. | Capitula tractanda cum comitibus, episcopis et abbatibus. | 811. | 13. |
+| 54. | Capitula de causis cum episcopis, et abbatis tractandis. | 811. | 13. |
+| 55. | Capitula de rebus exercitalibus in placito tractanda. | 811. | 10. |
+| 56. | Capitulare Bononiense. | 811, Oct. | 11. |
+| 57. | Karoli ad Fulradum abbatem epistola. | 804–811. | 1. |
+| 58. | Praeceptum pro Hispanis. | 812, April 2. | 1. |
+| 59. | Capitulare Aquisgranense. | 801–813. | 20. |
+| 60. | Capitula e canonibus excerpta. | 813. | 26. |
+| 61. | Capitula originis incertae. | 813, or later. | 4. |
+| 62. | Capitulare de iusticiis faciendis. | 811–813. | 13. |
+| 63. | Capitula ecclesiastica. | 810–813? | 20. |
+| 64. | Capitulare Karoli M. de latronibus. | 804–813. | 9. |
+| 65. | Capitula Missorum. | 813? | 9. |
+| 66. | Capitula vel Missorum vel synodalia. | 813? | 14. |
+| 67. | Capitula a Missis Dominicis ad comites directa. | 801–813. | 7. |
+| 68. | Capitula incerti anni. | 789–814? | 5. |
+| 69. | Capitula de rebus ecclesiasticis. | 787–813? | 4. |
+| | KAROLI MAGNI ET PIPPINI FILII CAPITULARIA ITALICA. | | |
+| 70. | Karoli Magni notitia Italica. | 776 or 781, Feb. 20. | 4. |
+| 71. | Capitulare cum episcopis Langobardicis deliberatum. | 780–790 circa. | 10. |
+| 72. | Capitulare Mantuanum. | 781? | 13. |
+| 73. | Pippini Italiae regis Capitulare. | 782–786. | 10. |
+| 74. | Capitulare Mantuanum primum, mere ecclesiasticum. | 787, early? | 11. |
+| 75. | Capitulare Mantuanum secundum, generale. | 787, early? | 8. |
+| 76. | Pippini Capitulare Papiense. | 787, Oct. | 14. |
+| 77. | Pippini Capitulare. | 790, circa. | 17. |
+| 78. | Capitula cum Italiae episcopis deliberata. | 790–800? | 6. |
+| 79. | Karoli epistola in Italiam emissa. | 790–800. | 1. |
+| 80. | Capitulare Italicum. | 801. | 8. |
+| 81. | Karoli M. Capitulare Missorum Italicum. | 781–810. | 13. |
+| 82. | Pippini Italiae regis Capitulare. | 800–810? | 4. |
+| 83. | Karoli Capitulare Italicum. | 790–810? | 3. |
+| 84. | Pippini Capitulare Italicum. | 801 (806?)–810. | 20. |
+| 85. | Karoli ad Pippinum filium Epistola. | 806–810. | 1. |
+| | CAPITULA SINGILLATIM TRADITA KAROLO MAGNO ADSCRIPTA. | | |
+| 86. | Capitula Francia. | 779–813? | 8. |
+| 87. | Capitula Italica. | 779–813? | 22. |
+| | ADDITAMENTA AD PIPPINI ET KAROLI M. CAPITULARIA. | | |
+| 88. | Nomina episcoporum et abbatum Attiniaci congregatum. | 760–762. | |
+| 89. | Interrogationes et responsiones baptismales. | | |
+| 90. | Indiculus superstitionum et paganiarum. | | 30. |
+| 91. | Precatio franconica. | | |
+| 92. | Summula de bannis. | | 8. |
+| 93. | Memoratorium Missis datum ad papam Adrianum legatis. | 785? | 9. |
+| 94. | Statuta Rhispacensia, Frisingensia, Salisburgensia. | 799, 800. | 47. |
+| 95. | Capitula excerpta canonica. | | 7. |
+| 96. | Capitula e conciliorum canonibus collecta. | | 5. |
+| 97. | Indiculus obsidum Saxonum Moguntiam deducendorum. | | |
+| 98. | Interrogationes examinationis. | | 15. |
+| 99. | Quae a presbyteris discenda sint. | | 6. |
+| 100. | Quibus de rebus in synodo quadam provinciali tranctandum sit. | | 12. |
+| 101. | Capitula in dioecesana quadam synodo tractata. | | 9. |
+| 102. | Capitula de presbyteris admonendis. | | |
+| 103. | Missi cuiusdam admonitio. | 801–812. | |
+| 104. | Karoli M. ad Ghaerbald. episc. Leodiens. epistola, et Ghaerbaldi ad dioeceseos suae presbyt. Epistola. | 803–810. | |
+| 105. | Ghaerbaldi Leodicensis episcopi capitula. | 802–810. | 20. |
+| 106. | Karoli ad Ghaerbaldum Episcopum epistola. | 807, Nov. | |
+| 107. | Karoli M. ad Odilbertum epistola. | 809–812. | |
+| 108. | Odilberti ad Karolum M. responsum. | 809–812. | |
+| 109. | Rihcolfi archiep. ad Eginonem epistola. | 810. | |
+| 110. | Brevium exempla ad describendas res ecclesiasticas et fiscales. | 810, circa. | 39. |
+| 111. | Iudicatum regium. | | 1. |
+| 112. | Capitula duo incerta. | | 2. |
+| 113. | Capitula de Iudaeis. | | 6. |
+
+Alfredus Boretius, *Capitularia Regum Francorum* [Latin], t. I. in *Monum. Germ. Historica* [Latin].
+
+---
+
+### APPENDIX H.
+
+#### Rythmus in obitum Caroli Magni Augusti.[^theauthorofthisrythmus]
+
+[^theauthorofthisrythmus]: The author of this *rythmus* [Latin] was neither Columbanus, abbot of Trudo (Bouquet), nor St. Columbanus, abbot of Bobbio, who died 615, but a monk of that monastery.—See Dümmler, *l. c.* [Latin], t. I., pt. 2, p. 435.
+
+Muratori, *Rerum Italicarum* [Latin], tom. II., pars 2, p. 690.
+
+> *A Solis ortu usque ad Occidua litora maris planctus pulsat pectora: heu mihi misero.*
+> &emsp;*Ultra marina agmina tristitia tetigit ingens cum moerore nimio: heu mihi misero.*
+> *Franci, Romani, adque cuncti creduli luctu punguntur & magna molestia: heu mihi misero.*
+> *Infantes, senes, gloriosi Praesules, Matronae plangunt detrimentum Caesaris: heu mihi misero.*
+> *Jam non*[^jamjamd] *cessant lacrymarum flumina: plangit Orbis interitum Caroli: heu mihi misero.*
+> *Pater communis orfanorum omnium, peregrinorum, viduarum, virginum: heu mihi misero.*
+> *Christe, coelorum qui gubernas agmina, tuo in regno da requiem Carolo: heu mihi misero.*
+> *Hoc poscunt omnes fideles & creduli: hoc Sancti, senes, viduae, & virgines: heu mihi misero.*
+> *Imperatorem jam serenum Carolum telluris tetigit titulatus tumulus: heu mihi misero.*
+> *Spiritus Sanctus, qui gubernat omnia, animam suam exaltat in requiem: heu mihi misero.*
+> *Vae tibi Roma, Romanoque Populo, amisso summo glorioso Carolo: heu mihi misero.*
+> *Vae tibi sola formosa Italia, cunctisque tuis tam honestibus Urbibus: heu mihi misero.*
+> *Francia diras perpessa injurias nullum jam talem dolorem sustinuit: heu mihi misero.*
+> *Quando Augustum facundumque Carolum in Aquisgrani glebe*[^glebisd] *terrae tradidit: heu mihi misero.*
+> *Nox mihi dira retulit somnia, diesque clara non adduxit lumina: heu mihi misero.*
+> *Quae cuncti orbis Christiano Populo vexit ad mortem venerandum Principem: heu mihi misero.*
+> *O Columbane, stringe tuas lacrymas, precesque funde pro illo ad Dominum: heu mihi misero.*
+> *Pater cunctorum misericors Dominus, ut illi donet locum splendidissimum: heu mihi misero.*
+> *O Deus cunctae humanae, militiaeque*[^atqued] *Coelorum, Infernorum Domine: heu mihi misero.*
+> *In Sancta Sede cum tuis Apostolis suscipe pium o tu Christe Carolum: heu mihi misero.* [Latin]
+
+[^jamjamd]: jamjam D.
+
+[^glebisd]: glebis D.
+
+[^atqued]: atque D.
+
+---
+
+### APPENDIX I.
+
+#### Illustrative Extracts.
+
+##### I. The Family of Charles.
+
+> 65. *Janna pandatur, multisque volentibus intrent*
+> &emsp;*Pauci, quos sursum quilibet ordo tulit.*
+> *Circumdet pulchrum proles carissima regem,*
+> &emsp;*Omnibus emineat, sol ut in arce solet.*
+> *Hinc adstent pueri, circumstent inde puellae,*
+> &emsp;*Vinea laetificet sicque novella patrem.*
+> *Stent Karolus, Hludowicque simul, quorum unus ephebus,*
+> &emsp;*Iam vehit alterius os iuvenale decus.*
+> *Corpora praevalido quibus est nervosa inventa,*
+> &emsp;*Corque capax studii, consiliique tenax.*
+> *Mente vigent, virtute cluunt, pietate redundant,*
+> &emsp;*Gentis uterque decor, dulcis uterque patri.*
+> *Et nunc ardentes acies—rex flectat ad illos,*
+> &emsp;*Nunc ad virgineum flectat utrimque chorum,*
+> *Virgineum ad coetum, quo non est pulchrior alter,*
+> &emsp;*Veste, habitu, specie, corpore, corde, fide.*
+> *Scilicet ad Bertram et Chodthrudh, ubi sit quoque Gisla—*
+> 82. &emsp;*Pulchrarum una, soror, sit minor ordo trium.*
+> . . . . . . . .
+> 91. *Prompta sit obsequio soboles gratissima regis*
+> &emsp;*Utque magis placeat, certet amore pio.*
+> *Pallia dupla celer, manuum seu tegmina blanda*
+> &emsp;*Suscipiat Carolus, et gladium Ludoich.*
+> *Quo residente, suum grata inter basia munus*
+> &emsp;*Dent natae egregiae, det quoque carus amor*
+> *Berta rosas, Chrodtrudh violas dat, lilia Gisla,*
+> &emsp;*Nectaris ambrosii praemia quaeque ferat;*
+> 99. *Rothaidh poma, Hiltrudh Cererem, Tetrada Liaeum,*
+> &emsp;*Quis varia species, sed decor unus inest.*
+> *Ista nitet gemmis, auro illa splendet et ostro,*
+> &emsp;*Haec gemma viridi praenitet, illa rubra.*
+> *Fibula componit hanc, illam limbus adornat,*
+> &emsp;*Armillae hanc ornant, hancque monile decet.*
+> *Huic ferruginea est, apta huic quoque lutea vestis,*
+> &emsp;*Lacteolum strophium haec vehit, illa rubrum.*
+> *Dulcibus haec verbis faveat regi, altera risu,*
+> &emsp;*Ista patrem gressu mulceat, illa ioco.*
+> *Quod si forte soror fuerit sanctissima regis*
+> &emsp;*Oscula det fratri dulcia, frater ei.*
+> *Talia sic placido moderetur gaudia vultu,*
+> 112. &emsp;*Ut sponsi aeterni gaudia mente gerat. . . .* [Latin]
+
+A. 796. Theodulfi Carmina, Dümmler, MG. Poetae Lat. aevi Carolini, I., 2, p. 485 sq.
+
+##### II. The Family of Charles.
+
+> 210. *Cornua rauca sonant, avido latratibus auras*
+> *Conplent ore canes, fragor ignea sidera pulsat.*
+> *Inde puellarum sequitur mox ordo coruscus;*
+> *Rhodrud ante alias rapidoque invecta puellas*
+> *Fulget equo et placidum prior occupat ordine gressum.*
+> *Immixta est niveis ametistina vitta capillis,*
+> *Ordinibus variis gemmarum luce coruscans;*
+> *Namque corona caput pretiosis aurea gemmis*
+> *Implicat et pulchrum subrectit fibula amictum.*
+> *Virgineos interque choros turbamque sequentem*
+> 220. *Proxima Berta nitet, multis sociata puellis.*
+> *Voce, virili animo, habitu vultuque corusco,*
+> *Os, mores, oculos imitantia pectora patris*
+> *Fert; caput aurato diademate cingitur almum.*
+> *Aurea se niveis commiscent fila capillis;*
+> *Lactea quippe ferunt pretiosam colla murinam.*
+> *Ornatur vestis variis speciosa capillis*
+> *Ordine, gemmarum numerosa luce coruscat*
+> *Bratea, crysolitis ornantur tegmina gemmis.*
+> 229. *Gisala post istas sequitur candore coruscans;*
+> *Virgineo comitata choro, micat aurea proles.*
+> *Tecta melocineo fulgescit femina amicta,*
+> *Mollia purpureis rutilant velamina filis,*
+> *Vox, facies, crines radianti luce coruscant.*
+> *Splendida colla nitent roseo inflammata rubore,*
+> *Argenta stat facta manus, frons aurea fulget,*
+> *Et magnum vincunt oculorum lumina Phoebum.*
+> *Laeta super rapidum conscendit caballum;*
+> *Frena superbus equus spumantia dente volutat.*
+> *Hinc comitata viris, illinc stipata puellis*
+> *Innumeris circum, circumstrepit agmen equorum.*
+> *His cumulata bonis praecelsa solaria linquens,*
+> *Virgo pudica pii sequitur vestigia regis.*
+> 243. *Rhodhaid inde micat multis ornata metallis;*
+> *Agmen ovans rapido praecedit femina gressu.*
+> *Pectora, colla, comae lucent variata lapillis,*
+> *Serica et ex humeris dependent pallia pulchris:*
+> *Inseritur capiti nitido gemmata corona;*
+> *Stringit acus clamidem gemmatis aurea bullis.*
+> *Pulchra vehetur equo Rhodhaidis virgo superbo,*
+> *Quo latitare solent hirsuto tergore cervi.*
+> 251. *Interea egreditur vultu Theodrada corusco,*
+> *Fronte venusta nitens et cedit crinibus aurum;*
+> *Pulchra peregrinis conlucent colla zmaracdis,*
+> *Pes, manus, ora, genae, cervix radiata nitescit.*
+> *Clara serenatis fulgescunt lumina flammis,*
+> *Pallia permixtis lucent iachyntina talpis,*
+> *Clara Sophocleoque ornatur virgo coturno.*
+> *Turba puellarum circumstrepit agmine denso,*
+> *Atque venusta cohors procerum nitet ordine longo.*
+> *Et sedet in niveo pulcherrima virgo caballo;*
+> *Acri fertur equo Karoli pia filia regis;*
+> *In nemus ire parat, sacrata palatia linquens.*
+> *Agminis extremam partem sibi vindicat Hiltrud,*
+> *Illi sorte datur dehinc ultimus ordo senatus;*
+> *Ipsa autem medio fulgescit in agmine virgo;*
+> *Temperat expositum spatii moderamine gressum*
+> 267. *Litorei iuxta ore soli. . . .* [Latin][^a799angilberti]
+
+[^a799angilberti]: A. 799. Angilberti Carmen, Dümmler, *l. c.* [Latin] I., p. 371 sq.
+
+##### III. Image Worship.
+
+The definition of Image Worship passed by the Council of Nicaea (A. D. 787) is too long for reproduction in these pages. For the full text see Labbei *Concil.* [Latin] tom. VIII., p. 1202 sqq. The concluding sentences setting forth the true sentiments of the Council are couched in these words:
+
+"*. . . . definimus in omni certitudine ac diligentia, sicut figuram preciosae ac vivificae crucis, ita venerabiles ac sanctas imagines proponendas, tam quae de coloribus et tesselis, quam quae ex alia materia congruenter in sanctis Dei ecclesiis, et sacris vasis, et vestibus, et in parietibus ac tabulis, domibus et viis: tam videlicet imaginem Dei et salvatoris nostri Jesu Christi, quam intemeratae dominae nostrae sanctae Dei genitricis, honorabiliumque angelorum, et omnium sanctorum simul et almorum virorum. Quanto enim frequentius per imaginalem formationem videntur, tanto qui has contemplantur, alacrius eriguntur ad primitivorum earum memoriam et desiderium, ad osculum, et ad honorariam his adorationem tribuendam.*
+
+"*Non tamen ad veram latriam, quae secundum fidem est, quaeque solam divinam naturam decet, impartiendam; ita ut istis, sicuti figurae preciosae ac vivificae crucis et sanctis evangeliis, et reliquis sacris monumentis, incensorum et luminum oblatio ad harum honorem efficiendum exhibeatur, quemadmodum & antiquis piae consuetudinis erat. Imaginis enim honor ad primitivum transit: & qui adorat imaginem, adorat in ei depicti subsistentiam. Sic enim robur obtinet sanctorum patrum nostrorum doctrina, id est traditio sanctae catholicae ecclesiae, quae a finibus usque ad fines terrae suscepit evangelium. Sic Paulum, qui in Christo locutus est, & omnem divinum apostolicum coetum, & paternam sanctitatem exequimur, tenentes traditiones quas accepimus. Sic triumphales ecclesiae prophetice canimus hymnos: Gaude satis filia Sion. . . . . aeternum* (Soph. III.).
+
+"*Eos ergo qui audent aliter sapere aut docere, aut secundum scelestos haereticos ecclesiasticas traditiones spernere, & novitatem quamlibet excogitare, vel projicere aliquid ex his quae sunt ecclesiae deputata, sive evangelium sive figuram crucis, sive imaginalem picturam, sive sanctas reliquias martyris; aut excogitare prave aut astute ad subvertendum quidquam ex legitimis traditionibus ecclesiae catholicae; vel etiam quasi communibus uti sacris vasis, aut venerabilibus monasterii: si quidem episcopi aut clerici fuerint, deponi praecipimus; monachos autem vel laicos a communione segregari.*" [Latin]
+
+Then follow the subscriptions of so many hundred bishops, presbyters, etc., the majority of whom put the epithet unworthy (ἀνάξιος) after their Christian names; some adding that they held their office "by the mercy of God," and some describing themselves as "sinners" (*e. g.* [Latin] Elias, a sinner, bishop of Crete); and when all this meek company of unworthy ones, sinners, and miracles of divine mercy had subscribed their names, even that Holy Synod with one accord burst forth in this acclaim:
+
+"*Omnes ita credimus, omnes idipsum sapimus, omnes consentientes subscripsimus. Haec est fides apostolorum, haec fides orthodoxorum, haec fides orbem terrarum firmavit. Credentes in unum Deum in Trinitate laudandum, honorabiles imagines osculamur. Qui sic se non habent, anathema sint: qui sic non sentiunt, procul ab ecclesia pellantur. Nos antiquam legislationem ecclesiae catholicae sequimur. Nos leges patrum custodimus. Nos eos qui addunt quid vel adimunt de ecclesia, anathematizamus. Nos subinductam novitatem Christianos accusantium anathematizamus. Nos venerandas imagines recipimus. Nos eo qui sic non se habent, anathematismis submittimus. His qui assumant dicta quae a divina scriptura contra idola proferuntur, in venerabiles imagines, anathema. His qui non salutant sanctas & venerabiles imagines, anathema. His qui vocant sacras imagines idola, anathema. His qui dicunt, quia ut ad deos Christiani ad imagines accesserunt, anathema. His qui dicunt, quia praeter Christum alius eruit nos ab idolis, anathema. His qui audent dicere, catholicam ecclesiam aliquando idola recepisse, anathema. Multos annos imperatorum Constantini & Irenae matris eius multos annos. Victorum imperatorum multos annos. Novo Constantino & novae Helenae aeterna memoria. Dominus custodiat imperium eorum. Coelestis rex terrenos custodi. Omnibus haereticis anathema. Frementi concilio contra venerabiles imagines, anathema. Ei qui recepit impias haereseos ratiunculas ipsorum, anathema. Theodosio falsi nominis episcopo Ephesino anathema. Sisimino cognomento Pastillae anathema. Basilio qui obscoena pronunciatione Tricaccabus appellatus est, anathema.*" [Latin]
+
+After anathematizing a number of ill-savory individuals, with whose shortcomings we are not particularly concerned, but whose teachings, the Holy Synod exclaims, were put down by the Sacred Trinity, specializing the case of John of Nicomedia, and Constantine of Nacolia, as that of heresiarchs, duly anathematizing them, and continuing:—"*Ad nihilum deduxerunt imaginem domini et sanctorum eius: ad nihilum deduxit eos dominus.*
+
+"*Si quis quemquam haereseos Christianos accusantis, vel in ea vitam suam transigentem defendit, anathema.*
+
+"*Si quis Christum Deum circumscriptum secundum humanitatem non confitetur, anathema.*
+
+"*Si quis evangelicas narrationes titulis picturisque factas non admittit, anathema.*
+
+"*Si quis non osculatur has tanquam in nomine domini & sanctorum eius factas, anathema.*
+
+"*Si quis omnem traditionem ecclesiasticam sive scriptam, sive non scriptam, irritam facit* (ἀθετεῖ), *anathema.*
+
+"*Germani orthodoxi aeterna memoria.*
+
+"*Joannis & Gregorii aeterna memoria.*
+
+"*Praedicatorum veritatis aeterna memoria.*
+
+"*Trinitas hos tres glorificant: quorum disputationes sequi mereamur, miserationibus & gratia primi & magni pontificis Christi Dei nostri, intercedente intemerata domina nostra sancta Dei genitrice, & omnibus sanctis eius. Fiat. Amen.*" [Latin]
+
+With which holy sentiments the Synod, having finished its cursing for that day, adjourned until the next.
+
+---
+
+### APPENDIX K.
+
+#### LITERARY NOTES ON SOME OF THE AUTHORITIES FOR THE HISTORY OF CHARLES THE GREAT.
+
+The *Easter Tables*, circulated by Irish and British missionaries, were probably the modest beginnings of the Annals. These Tables had a limited vacant space, mostly on the right hand margin, in which the monks were wont to record meagre, and often uninteresting data concerning their monastery, but occasionally also political events. The oldest example known dates from the sixth century.[^mgssiiitabi] Sometimes the side margin did not suffice, and occasioned entries between the lines, or elsewhere on the page. The original MSS. extant are often difficult to decipher.
+
+[^mgssiiitabi]: MG. SS., III., Tab. I.
+
+The historical value of the Annals depends upon their origin, and the proper sundering of corruptions or later additions from the original documents. The first attempt in this direction for the whole Carlovingian period was made by Pertz.[^seeberichtvonpertz]
+
+[^seeberichtvonpertz]: See *Bericht* [German] von Pertz, in Archiv., VI., 258 sqq.
+
+1. *Annales S. Amandi* [Latin], a. 687–810. MG. SS., I., 6–11. They run in two continuations from 771 to 791, and from 791 to 810. The earlier entries are not contemporary; *e. g.* [Latin], the date of the battle of Testry, a. 687, is an addition of later date.
+
+2. *Annales Tiliani* [Latin], *ibid.* [Latin] I., 6–8, so called after the owner of the MS., are related to No. 1, which they follow to a. 737; the remainder from a. 741–807 is taken from Annal. Lauriss.
+
+3. *Annales Laubacenses* [Latin], *ibid.* [Latin] I., 7–12, 15, 52, appear also to be taken from No. 1.
+
+4. *Annales Mosellani* [Latin] (so-called on account of their conjectured origin in monasteries on the Moselle), *ibid.* [Latin] XVI., 491–499, from a. 703–797.
+
+5. *Annales Petaviani* [Latin], *ibid.* [Latin] I., 7–18; cf. III., 170, seem until a. 770 to be compiled from Nos. 1 and 4, but contain from that date to a. 799 independent, and probably official notices.
+
+6. *Annales Murbacenses* [Latin] denote a series of Annals to which they gave rise, or with which they are connected. Under this general designation may be enumerated:
+
+a. *Annales Laureshamenses* [Latin]; b. *Annales Alamannici* [Latin]; c. *Annales Guelferbytani* [Latin]; d. *Annales Nazariani* [Latin]. Certain gaps excepted, they run parallel to a. 768; then, those named first are independent to a. 803, while the three others run in continuations to a. 790. After that date, *A. Guelf.* [Latin] extend, but not continuously, to a. 826; *A. Alam.* [Latin] were continued at Murbach to a. 800, and at Augia, but in very fragmentary form, to 859. The original of *A. Alam.* [Latin] has been found at Zurich.
+
+*A. Alam.* [Latin], widely circulated in Suabia, found their way to Hersfeld, and are the basis of Lambert's historical work, while the Annals of Reichenau, derived from the same source, are the foundation of the Chronicle of Hermann the Lame.[^wattenbachlc5ed]
+
+[^wattenbachlc5ed]: Wattenbach, *l. c.* [Latin], 5 ed., I., 139; Pertz, *l. c.* [Latin], I., 19 sqq.
+
+7. *Annales Lindisf.* [Latin] (reprinted below), are connected with
+
+8. *Annales S. Dionysii* [Latin],[^mgssxiii718] and
+
+[^mgssxiii718]: MG. SS., XIII., 718–721.
+
+9. *Annales S. Germani minores* [Latin], a. 642–919. MG. SS., III., 136.
+
+10. *Annales S. Germani Paris.* [Latin], a. 466–1061. MG. SS., III., 166–168.
+
+To the same group of Annals belong *A. Juvavenses major.* [Latin], a. 550–855, 976—very defective; *A. Juvav. minor.* [Latin], a. 742–814; *Annal Salisb.* [Latin] a. 499–1049, contemporary since 784; *A. S. Emmerammi majores* [Latin], 748–843, *minores* [Latin], 732–1062, MG. SS., I., 92; XIII., 47; and *Annal. Bawarici breves* [Latin], a. 684–811, MG. SS., XX., 8.
+
+11. *Annal. Fuldenses antiqui* [Latin], MG. SS., III., 16.
+
+It may interest those not familiar with these beginnings of annalistic literature to study out two examples sufficiently brief for reproduction in this volume.
+
+**Annales Lindisfarnenses et Cantuarienses, a. 618–690.**[^thismsaspertzthinks]
+
+[^thismsaspertzthinks]: This MS., as Pertz thinks, was brought by Alcuin to the Court of Charles, where he made the entries specifying the places at which he celebrated Easter. The monks of St. Germain then added their own Annals which have been traced to those of St. Denis until 887, continued from 919–997. Another copy, Arno, the friend of Alcuin, carried to Salzburg: it gives the Easter celebrations until 797, and then continues with Salzburg notices. This copy goes by the name of Annal. Salisb. See Wattenbach, *l. c.* [Latin], 141.
+
+> *Anno ab Incarnationi Domini*
+> 618 *Filius rex Edilbert Cantioriorum Irminrici obiit 6. Kal. Mart. feria 4.*
+> 643 *Oswi regnare incipit.*
+> 651 *Aidan episcopus obiit.*
+> 658 *Finan moritur.*
+> 664 *Colman obiit.*
+> 673 *Ecbert Cantuariorum rex depositus 4 Non. Jul. fit*
+> 680 *Kap. sciēi.*
+> 685 *Hlotheri frater Ecberti Cantuariorum deponitur 7. Id. Feb.*
+> 687 *Edric Cantuariorum rex deponitur 2 Kal. Sept. feria 6.*
+> 690 *Theodorus episcopus deponitur 13: Kal. Oct. feria 2.* [Latin]
+
+**Annales ut videtur Alcuini a. 782–797.**
+
+**Pars Prior a. 782–787.**
+
+> 782 *in Carisiaco.*
+> 783 *in Theudunvilla.*
+> 784 (786) *in Aristalle.*
+> 785 (787) *in Eresburgi.*
+> 786 (788) *Attinago.*
+> 787 (790) *Romae cellebravit pascha domnus.* [Latin]
+
+**Pars altera a. 788–797.**
+
+> 788 *Domnus rex Carolas celebravit pascha in Inglimhaim.*
+> 789 *in Aquis.*
+> 790 *ad Wormatiam.*
+> 791 *Carolus in Pannonia.*
+> 792 *ad Ragenesburc.*
+> 793 *ad Franchonofurt.*
+> 794 *ad Aquis.*
+> 795 *ad Aquis.*
+> 796 *ad Aquis.*
+> 797 *ad Aquis.*
+> 814 *5 Kal. Febr. obiit Karolus [magnus] imperator.* [Latin] MAN. SAEC. IX. INEUNT.
+> &emsp;&emsp;&emsp;&emsp;MG. SS., IV., 2.
+
+**Annales antiqui Fuldenses.**[^thisisaveryinteresting]
+
+[^thisisaveryinteresting]: This is a very interesting document, and requires no comment. The italics denote that the letters and words have been supplied.
+
+> 742 . . . .
+> 753 Bonifat*ii* *martyris* pas*sio*.
+> 768 *Pippinus* rex obiit.
+> 774 Langobardorum . . . Desiderius . . . XV.
+> 776 Saxonum.
+> 779 Sturm *abbas obiit*.
+> 784
+> 789 *depositio* *Tassi*lonis ducis.
+> 790 . . . .
+> 791 in Avaros.
+> 792 in sinodo *haeresis damnata, et Felix per* Engil*bertum Romam ductus est*.
+> 800 . . . .
+> 804 *Leo papa* adivit in Francia.
+> 814 Karolus imperator bonus obiit. [Latin] MG. SS., I., 95.
+
+It would lead us too far to open the vexed and perhaps insoluble question of the origin of these earlier Annals or to take sides in the animated controversy. The brief notices here furnished are purely introductory, and only designed to aid those desirous of studying the matter, by directing them to works dealing with it at considerable length.
+
+By far the most important historical helps for the reign of Charles, apart from Einhard's famous biography, and other works to be mentioned in subsequent paragraphs, are the *Annales Laurissenses majores* [Latin], and the so-called *Annales Einhardi* [Latin].
+
+The former of these are also called *Annales plebei* [Latin], *Annales Loiseliani* [Latin], and Royal, Court or Imperial Annals. They were called *Annales Laurissenses majores* [Latin], after the monastery of Lorsch, where the oldest MS. was found, and where they were believed to have been drawn up.
+
+This monastic origin, however, it was thought, seemed well nigh incredible, because their author could not in his cloistered retirement have procured the information essential to the record of so long and eventful a reign as that of Charles the Great.
+
+The first and most able advocate of a new and very different theory of their origin was Leopold von Ranke. He subjected the Annals to a close and critical examination, and communicated the results to the Berlin Academy in 1854.[^abhandlungen1854]
+
+[^abhandlungen1854]: *Abhandlungen der Berliner Akademie aus dem Jahre* [German] 1854, S. 434.
+
+They met at the time with almost universal approbation, but have been much controverted since. Still the views he advanced, and the manner of his advocacy as well as the keen analysis of his close, compact reasoning, cannot be said to have been set aside by his opponents. I feel, that for the present purpose it may suffice, without entering into the controversy, to present his views in his own language.
+
+Explaining that Ranke understands by the "Old Annalist" the author of *Annales Laurissenses majores* [Latin], he states the case as follows:
+
+"We notice two striking characteristics in the Old Annalist: 1. He suppresses great calamities, either ignoring domestic commotions and occasional conspiracies, or recording them in an unsatisfactory manner; 2. he is uncommonly well-informed on the events themselves.
+
+"A monk could not possibly have found means to collect in his monastery such accurate information as is here described. We have the monastic annals of his country of the same period, but they cannot be named in the same breath with the others. They only record the most general features of the most startling occurrences. But here is an author who describes briefly, yet with the precision of positive knowledge, military expeditions, the character and conduct of the troops and separate feats of valor. He has also comparatively trustworthy information even on the subject of treaties. Only a person having near relations with the imperial Council could have been so well informed on the subject of the Beneventan and Bavarian enterprises.
+
+"These two peculiarities, I mean, good information and great reticence, seem to indicate an official composition, while their characteristic diction discloses a clerical scribe. Every phrase suggests such an origin, and warrants the conclusion that an ecclesiastic, familiar with secular business, was charged with the duty of drawing up the Annals from information officially communicated to him by the Court.
+
+"The crude, unpolished style, moreover, suits the period prior to the establishment of the Palace School, and marks the scribe as a man of the old cut and manner, who attained a higher degree of excellence simply because the events themselves he had to record necessarily entailed such improvement.
+
+"But historiography soon passed into the more skilful literary hand of Einhard, who recast the Old Annals and drew up new ones, apparently in the Palace at Aix-la-Chapelle, and at the very time when the events he recorded took place.
+
+"The credibility of the Older Annals is much enhanced by the circumstance, that Einhard left them substantially unchanged, and that his intercalations are confined to only a few of the more important events. It seems to have been his chief aim to conform their style to the progressive development of the Latin School, and his treatment of the subject to the dignity of his ideal of the new Empire. But the New Annals, that is, his own, constitute his true and personal merit.
+
+"Einhard's Annals are invaluable where they are independent, and our most important historical monument for the last few years of the eighth century, and the first decades of the ninth."
+
+Without discussing the origin of the Annals, Ranke confines himself to the comparison of the two texts, and simply inquires:
+
+1. "Are Einhard's Annals in perfect agreement with the older work?
+
+2. "If they differ, what is the nature of their difference?
+
+3. "Which is entitled to preference?"
+
+He then examines a number of passages, selecting the famous reply of Zacharias to Pepin's question (a. 749); the disagreement of Charles and Carloman on the march to Aquitaine (a. 769); the Lombard campaign (a. 773); the first Saxon expedition (a. 772), etc.; matters connected with the affairs of Benevento and Bavaria, etc., concluding the investigation with these reflections:
+
+1. Einhard's Annals while superior to the older "in ease, style, and arrangement, are more superficial, inaccurate, and less characteristic."
+
+2. "The older Annals are preferable to Einhard's for all purposes of historical inquiry, although those of Einhard have cast them in the shade, and met with all but universal acceptation."
+
+He adds that the "Poeta Saxo" led the way in the ninth century in discarding the older Annals and echoing Einhard, thus inducing many errors which continue to this day.
+
+"But is Einhard to be set absolutely aside for the whole of the period in question? Does he advance nothing that makes his testimony peculiarly valuable?
+
+"The years of which he treats contain two very remarkable additions—both relating to calamities—viz.: the battle at the Süntel, and the defeat in the Pyrenees.
+
+"Einhard has the moral courage to admit undoubted defeats, which the Older Annalist does not seem to possess.
+
+"The disastrous events at the Süntel a. 782 are so vague and ambiguous on the page of the Old Annalist, that his notices suggest only a victory dearly bought with the blood of great men. Einhard, on the other hand, is quite explicit both on the details of the battle and the Frankish loss.
+
+"The description of the Spanish expedition in 778 with its tragical termination is not without merit, as told by the Older Annalist. He indicates with greater precision than later writers, that the army advanced in two divisions, one of which, commanded by Charles himself, took the route of Navarre, and probably consisted in the main of Neustrians, for the other composed of Septimanians, Burgundians, Austrasians, Bavarians and Lombards effected a junction with him at Saragossa.
+
+"It is highly probable that the nationalities moved in the same order on the Spanish retreat, for we know that such was the policy followed on the Avar expedition.
+
+"If this was done, then the calamitous surprise on the retreat through the Pyrenees was meted out to the Neustrians, or North French Division.
+
+"The Old Annalist suppresses the whole of the disaster, which would be unknown to history had Einhard not recorded it."
+
+One of Ranke's examples follows in illustration of his method.
+
+"I begin with the enterprise of Charles against the Lombards in 773. Without dwelling on minor variations I find that the two annalists differ in their conception of the events themselves.
+
+"Einhard's Charles upon receipt of the papal message at Thionville considers the difference pending between the Romans and the Lombards, and resolves to go to war.
+
+"He is introduced as the world's judge and an autocrat (*rebus, quae inter Romanos ac Langobardos gerebantur, diligenti cura pertractatis bellum sibi—suscipiendum ratus* [Latin]).
+
+"The Plebeian Annals, on the other hand, state the case more originally, simply, and in a less grandiose style. The papal nuncio requests Charles to interpose (*pro dei servitio et justitia Sti. Petri seu solatio ecclesiae* [Latin]).
+
+"They represent the pope not only oppressed by the temporary insolence of the enemy, as Einhard does, but explain that the old disputes between the Chair of St. Peter and the Lombards, which took Pepin to Italy, burst forth anew, and the interests of St. Peter must be defended; whereas Einhard treats the case as a judicial sentence, executed forthwith.
+
+"Again Einhard represents the king as reflecting, and resolving upon the course by himself; the Old Annals state that he consults the Franks, and follows their advice (*rex consiliavit una cum Francis, quid perageret, et sumpto consilio, ut sicut missus apostolici postulavit, ita fieret* [Latin]); the Council accedes to the pope's request. Then the assembled *heerbann* [German], *i. e.* [Latin], the nation under arms, which was also a Synod (*sinodum rex tenuit generaliter cum Francis* [Latin]), approved and ratified the action of the Council according to usage.
+
+"Einhard's account of the progress of the expedition also is vague; he says: *superato Alpium jugo Desiderium citra congressionem fugavit* [Latin], which suggests so little that Baronius lauds the invasion as a miracle.
+
+"The *Chronicon Moissiacense* [Latin], forsooth, makes the king send a legion of his ablest warriors across the mountains, who put Desiderius to flight, and I have read in a history, published 1841, that the *clausae* [Latin] were carried by storm. But that chronicle also gives no clear statement, and being only a compilation, is not entitled to independent credibility. If its statement were true, how could Einhard have dared to assert that there was no engagement at all?
+
+"The Old Annals explain the case in the significant but clumsy clause: *mittens* [Latin] [Carolus] *scaram suam per montana, hoc sentiens Desiderius, clusas relinquens* [Latin]. This shows that the king's peculiar troops, his own *scara* [Latin], found a passage across the mountains, like the French, who turned Fort Bard, on the occasion of Napoleon's passage of Mount St. Bernard, by following a shepherd's path. Desiderius anticipated their arrival and fled. The annalist, nevertheless, shared the belief that the easy opening of the *clausae* [Latin] was due to the special protection of St. Peter.
+
+"The account of the end of the expedition, like that of its commencement, is much clearer in the Old Annals than in Einhard who simply states that Pavia, exhausted with the long siege, was forced to capitulate and that all the other cities followed its example, and made their submission to the king of the Franks.
+
+"The Plebeian Annals, on the other hand, relate that Charles took the city, secured the persons of Desiderius, his wife, and daughter, together with the treasure in his palace; that thus the royal castle and treasure fell into his hands, and that then all the Lombards from all the cities of Italy submitted to the lordship of the glorious king Charles, and of the Franks.
+
+"The description of Einhard might suit any place, but the other Annals, which I believe record the truth, represent the Lombards upon their arrival recognizing the conqueror of Desiderius, in possession of the royal treasure, as their new king. Charles became King of the Lombards.
+
+"This entailing, of course, Frankish supremacy, the royal castle thenceforth was garrisoned by Frankish troops. Only the Old Chronicler brings out this point with necessary clearness: *custodia Francorum in Papia civitate dimittens* [Latin].
+
+"Einhard hastily throws out: *pro tempore ordinata Italia* [Latin], although the policy was uniformly adhered to. After the suppression of the Friulian revolt, the conquered cities of the province received Frankish garrisons (*disposuit eas omnes per Francos* [Latin]); it was the natural course for the maintenance of order in the East and West, and the Frankish colonists on the former frontier defended the country from the incursions of the Avars. Here again Einhard has only the general statement that the Avars, he calls them Huns, made a simultaneous attack on Bavaria and the Marche of Friuli, and *in utroque loco victi fugatique sunt* [Latin].
+
+"It is probable that the first of these notices gave rise to the legend told by the peasants about Treviso that the old Roman military road along the Lagunes was guarded by Roland, who amused himself with playing a kind of billiards with milestones."
+
+Thus far Ranke, who expressed the views stated more than thirty years ago. Since that time the most able, sagacious, and keen criticism has busied itself with the whole question from every conceivable point of view, without materially shaking them. They have been, and still are the subject of animated controversy, but as it would lead me too far to open and discuss it here, I beg to refer to Wattenbach, *Deutschland's Geschichtsquellen im Mittelalter* [German], 5 ed., I., 180, sqq., for a statement of the controversy, and to the subjoined literature on the whole subject.
+
+MG. SS. I., 124–218; separate reprint, 1845.
+
+Cod. Steinveld. (9), British Museum, Add. 21,109.
+
+Frese, *De Einhardi Vita et Scriptis Specimen* [Latin]. Diss. Berol. 1845 (denying Einhard's authorship).
+
+Abel, *Einhard's Jahrbücher* [German], Berl. 1850.
+
+L. Ranke, *Zur Kritik fränkisch-deutscher Reichsannalisten* [German], in *Abhandlungen der Berliner Akademie aus dem Jahre* [German], 1854, pp. 415–435.
+
+G. Waitz, *Zu den Lorscher und Einhard's Annalen* [German], in *Götting. Nachrichten* [German], 1857, pp. 46–52.
+
+B. Simson, *De statu quaestionis: sintne Einhardi necne sint quos ei ascribunt, Annales imperii* [Latin], Diss. Regiom. 1860.
+
+W. Giesebrecht, *Die Fränkischen Königsannalen und ihr Ursprung* [German], in Münch. Histor. Jahrbuch, 1864, pp. 186–238.
+
+G. Monod, *Revue Crit.* [French] 1873, no. 42.
+
+Fr. Ebrard, *Reichsannalen* [German] 741–829 *u. ihre Umarbeitung* [German], in *Forschungen* [German] XIII., 425–472.
+
+E. Dünzelmann, Beiträge zur Kritik der Karol. Annalen in N. A. II., 475–537.
+
+H. v. Sybel, *Historische Zeitschrift* [German], XLII., 260–288; *Entgegnung* [German] Simson's, *Forsch.* [German] XX., 205–214; *Replik* [German] von Sybel, H. Z. XLIII., 410; *Duplik* [German] v. Simson, Karl der Grosse, p. 604–611.
+
+Harnak, *Das Karol. u. das byz. Reich* [German], 1880, Excurs.
+
+Manitius, *Die Annal. Sithienses, Lauriss. min., u. Enharti Fuld.* [German]—Dissert. Lips. 1881.
+
+" *Einhard's Werke u. ihr Stil* [German], N. A. VII., 517–568.
+
+Is. Bernays, *Zur Kritik Karol. Annalen* [German], Strassb. 1883.
+
+Dorr, N. A. X.
+
+To these add:
+
+Simson, *Bemerkungen über Sprachgebrauch und Stil der Annales Laurissenses maiores* [German]; Exc. III. in *Jahrb. des Fränk. Reichs unter K. d. G.* [German], I., 659, ed. 1888.
+
+" *In der Controverse über die Annales Sithienses* [German], ibid. Exc. IV.
+
+" *Zur Frage nach dem Ursprung der fränkischen Reichsannalen* [German]. ibid. II., 604, ed. 1883.
+
+The notes to the last three papers contain very full literary references.
+
+It may be accepted as certain that, whatever was the origin of the *Annal. Lauriss. major.* [Latin], they were drawn up by a succession of scribes; and that the author of the Annals known as Einhard's[^seep535] was an incomparably abler man than that of the former.
+
+[^seep535]: See p. 535.
+
+Still avoiding the controversy, I now present in full the record of a. 792 in both Annals.
+
+| *Annales Laurissenses majores.* [Latin] | *Einhardi Annales.* [Latin] |
+|---|---|
+| 792. | 792. |
+| *Haeresis Feliciana primo ibi condemnata est, quem Anghilbertus, ad praesentiam Adriani apostolici adduxit, et confessione facta suam haeresim iterum abdicavit. Conjuratio contra regem a filio ejus Pippino facta, detecta et compressa est. Eodem anno nullum iter exercitale factum est. Pons super navigia flumina transeuntia factus est, anchoris et funibus ita cohaerens, ut jungi et dissolvi possit. Et celebravit domnus rex natalem Domini ibi, similiter pascha celebratum est.* [Latin] | *Orgellis est civitas in Pyrinei montes jugo sita, cujus episcopus nomine Felix, natione Hispanus, ab Elipando, Toleti episcopo, per litteras consultus, quid de humanitate salvatoris dei et domini nostri Jesu Christi sentire deberet, utrum secundum id quod homo est, proprius an adoptivus Dei filius credendus esset ac dicendus, valde incaute atque inconsiderate, et contra antiquam catholicae ecclesiae doctrinam, adoptivum non solum pronuntiavit, sed etiam scriptis ad memoratum episcopum libris, quanta potuit pertinacia pravitatem intentionis suae defendere curavit. Hujus rei causa ductus ad palatiam regis—nam is tunc apud Reginum, Baioariae civitatem, in qua hiemaverat residebat, ubi congregato episcoporum consilio auditus est, et errasse convictus, ad praesentiam Hadriani pontificis Romam missus, ibi etiam coram ipso in basilica beati Petri apostoli haeresem suam damnavit atque abdicavit. Quo facto, ad civitatem suam reversus est. Rege vero ibidem aestatem agente, facta est contra illum conjuratio a filio suo majore, nomine Pippino, et quibusdam Francis, qui se crudelitatem Fastradae reginae ferre non posse adseverabant, atque ideo in necem regis conspiraverant. Quae cum per Fardulfum Langobardorum detecta fuisset, ipse ob meritum fidei servatae monasterio sancti Dionisii donatus est, auctores vero conjurationis ut rei majestatis partim gladio caesi, partim patibulis suspensi, ob meditatum scelus tali morte multati sunt. Rex autem propter bellum cum Hunis susceptum in Baioaria sedens, pontem navalem, quo in Danubio ad id bellum uteretur, aedificavit, ibique natalem Domini et sanctum pascha celebravit.* [Latin] |
+
+Text of Pertz, MG. SS., I.
+
+It is not very hazardous to affirm that the first part of the *Annales Lauriss. major.* [Latin] was not composed till after 788 and extends to the end of a. 794. The record of the years 787 and 788 dealing with the events in Benevento and Bavaria is uncommonly well done, and, in the opinion of some, discloses or suggests the authorship of Arno, archbishop of Salzburg.
+
+This portion of the Annals breathes the vivacity of intelligent, contemporary observation by a man thoroughly familiar with all the ramifications of the political agencies at work. The style, however, and the language are crude and barbarous, but not worse than found in the contemporary documents indited at Rome.[^jaffecommentingonthelatin]
+
+[^jaffecommentingonthelatin]: Jaffé, commenting on the Latin of the papal Epistles, calls it "*scribendi genus, quod ab omnibus fere grammaticorum praeceptis abhorret.*" [Latin]—Bibl. Rer. Germ. IV., 6.
+
+A decided change in both respects runs through the subsequent portions of these Annals, and their striking resemblance with the biography of Einhard, together with the express but not unchallenged testimony of Odilo (MG. SS., XV., 379 sq.), that Einhard wrote them—renders it probable that he took part in their redaction. At any rate, we may not doubt that the writer, who continued the Annals to a. 829, must have stood in official relations to the Court, and recorded contemporary events.
+
+The Annals, ascribed to Einhard, and cited as his, are substantially a revision of the *Annal. Lauriss.* [Latin] to a. 801; and, after that date, almost identical with them. Their coincidences with the Einhardian biography are striking and indicate a mutual dependence, although it is difficult to solve the question if the *Vita* [Latin], as is generally held, be the outcome of the Annals, or, for the period in question, the Annals are the outcome of the *Vita* [Latin].
+
+The *Annales Laurissenses majores* [Latin] underwent other independent redactions, *e. g.* [Latin], one extending to 805, of which fragments have been preserved, has furnished the *Annales Mettenses* [Latin] with peculiar notices.[^seeabelsimson535]
+
+[^seeabelsimson535]: See Abel-Simson, *l. c.* [Latin], I., 5.
+
+*Annal. Xantenses* [Latin] (797–811) and *Annal. Maximin.* [Latin] (beginning with a. 790) seem to be based on *Annal. Lauriss. maj.* [Latin]
+
+By far the greater number of the Annals are of Germanic origin.
+
+The metrical version of the Annals by *Poeta Saxo* [Latin], composed towards the close of the ninth century, is a work of little value to the historian; it closely follows the *Annales Einhardi* [Latin], and adds only special notices respecting the Saxons.[^idemlci6note2]
+
+[^idemlci6note2]: Idem, *l. c.* [Latin], I., 6 and note 2.
+
+Resuming the brief notes on some of the authorities, there remain to be considered:
+
+*Annales Laurissenses minores* [Latin], MG. SS., I., 121–133 cf. III., 18.
+
+They are a poor compend, drawn up from an older compilation (Wattenbach, *l. c.* [Latin], I., 191), with supplementary, and possibly, independent notices. They run from a. 806 to a. 817 in two separate continuations, that of Fulda being strongly tinged with local references. The Vatican MS. Pal. 243 (Arch. XII., 332) has not yet been used.
+
+*Chronica de sex aetatibus mundi* [Latin], MG. SS., II., 256, a fragment, author unknown, extending to a. 810, possesses no independent merit.
+
+*Annales Maximiani* [Latin], MG. SS., XIII., 19–25, extending from a. 741–811. See Wattenbach, *l. c.* [Latin], I., 138 sq.; *Compte-rendu* [French], etc., VIII. (1844), 307–322; *Götting. Nachr.* [German] 1871; NA. V., 475–501.
+
+*Annales Flaviniacenses* [Latin], containing the *Annal. Mosell.* [Latin] to a. 785, are a chronological compilation from a. 816 to 879. Cf. Waitz, NA. V., 484.
+
+*Chronicon Moissiacense* [Latin], MS. only to Honorius; printed MG. SS., I., 280–313; cf. II., 257, giving emendations from a. 804–813 after a new MS.
+
+This Chronicle drawn up from the *Chronicon universale* [Latin] ad a. 741, MG. SS., XIII., 1–19, the compilation ending a. 805 or 806 (Wattenbach, *l. c.* [Latin], I., 193, and note 5, 5 ed., and printed ibid. p. 540, 2 ed.), the *Annal. Lauriss.* [Latin] and other authorities, extends to a. 818. It is believed to contain valuable and otherwise unknown notices of Aquitanian origin. The compiler is so conscientious a copyist, that the continuation, or last part of the Chronicle from a. 813–818, is believed to be also the production of another but unknown author.
+
+The *Chron. Moiss.* [Latin] which appears to have been produced in the South of France, exists in two entirely different redactions, one made at Moissac (in which the period a. 716–777 is omitted), and another at Aniane. The latter contains very arbitrary and astonishing additions, such as the substitution of Spanish names for Saxon ones under a. 779, 780. (Wattenbach, *l. c.* [Latin], I., 194; Monod, *Revue critique* [French], 1873, II., 262.)
+
+Alcuini Opera, ed. Frobenius (Froben Forster, prince-abbot of St. Emmeram) 4 vols. fo. Ratisb. 1777.—Reprinted in Migne C. CL.
+
+Monumenta Alcuiniana, being Vol. VI. of Jaffé, *Bibliotheca Rerum Germanicarum* [Latin], contains the best edition of the epistles and historical writings, edited after the preliminary labors of Jaffé, by Dümmler and Wattenbach. The poetical works of Alcuin are edited by Dümmler in *Poet. Lat. etc.* [Latin], I., 160–351. The epistles of Alcuin are extremely valuable for the second half of the reign of Charles.
+
+On the other hand the epistles in the *Codex Carolinus* [Latin] (Monumenta Carolina, Jaffé, *Bibl. Rer. German.* [Latin] IV.) are a rich storehouse of authentic information, especially for the first half of the same reign. It contains only the epistles of the popes, none of Charles; but the merit of the collection belongs to Charles himself, who commanded it to be made in 791.
+
+Einhard's *Vita Caroli* [Latin] is only of secondary importance as an authority, although, viewed as a purely literary production, it marks an era in the history of literature, being justly regarded as the best biography written since the classical period.
+
+Ranke (*l. c.* [Latin]) says concerning it:
+
+> "Among modern works none is probably more strongly marked by imitation of classical models than Einhard's biography of Charles the Great. He copies Suetonius in expression and phrase, the arrangement of the subject and the very sequence of the chapters. It is truly startling that an author undertaking the portraiture of one of the grandest and rarest characters in the realm of history, hunts for words previously applied to some of the emperors.
+>
+> "He delights to set forth the most striking characteristics of his hero in the phrase of Suetonius as found in the biographies of Augustus, Vespasian, Titus, and even of Tiberius. He arranged the dimensions of his biography, like his architectural works, after antique models, and imbedded antique remains in both. We may believe that he did not violate truth, but he could not with such a method bring out the whole originality of his subject. History demands more than beautiful diction; it insists first and foremost upon strict truthfulness, which is incompatible with artificiality, and must suffer from constant reference to a model.
+>
+> "Einhard doubtless intended to furnish a pleasing and comprehensive account rather than one strictly accurate, and, as a matter of fact, his small volume teems with historical blunders.
+>
+> "The regnal years are not infrequently given wrongly, *e. g.* [Latin] Carloman is said to have reigned only two years, whereas his reign contemporary with that of Charles the Great exceeded three; in the division of the Empire between the two brothers, the biographer narrates the opposite of what actually took place; he represents indecisive battles, *e. g.* [Latin], the engagement on the Berre, as decisive; he confounds the names of the popes, and even blunders in mentioning the wives and children of Charles the Great; indeed his errors are so numerous that the established genuineness of the work has often been questioned."
+
+Thus far Ranke. We may add, that without impugning the honesty of Einhard, the biography is too general, too rhetorical, too much arranged for general effect to be of value to the historian. It is a general sketch of the emperor rather than of the man Charles, and such may have been all that Einhard proposed to do.[^prefacetothevita] He admits that "no man can write with more accuracy than I of events that took place about me, and of facts concerning which I had personal knowledge, ocular demonstration, as the saying goes;" yet in these very points he often maintains a tantalizing silence, and it is impossible to exonerate him from the charge of intentional mystification. It is unnecessary to enlarge upon this theme here, having been frequently noticed in previous portions of this volume.
+
+[^prefacetothevita]: Preface to the *Vita* [Latin].
+
+The general picture of the Einhardian Charles is doubtless accurate and lifelike, but we need the light of the Annals, Epistles, Laws, Poems, and other contemporary records, in order to see and understand it aright.
+
+In German literature, moreover, this biography is a landmark as the first biography commemorating a secular character, for until then the only lives written were those of ecclesiastics, especially of saints.
+
+Among these some are of great value and importance for the history of Charles the Great; especially:
+
+Eigil. *Vita S. Sturmi* [Latin], MG. SS. II.
+
+Altfridii Vita Liudgerii, ed. Diekamp, *Geschichtsquellen des Bisthums Münster* [German], IV.
+
+Vita S. Willehadi, MG. SS. II.
+
+Hucbaldi Vita Lebuini, MG. SS. II.
+
+The epistles of Einhard (Jaffé, Bibl. IV.) are valuable only for the history of Louis the Pious; his *Translatio SS. Marcellini et Petri* [Latin] (ed. Henschen, *Acta SS.* [Latin] Jun. I., 181–206; ed. Waitz, MG. SS. XV.,) sheds light on the morality, and habits of life of the period, such as modes of travel, and contains valuable topographical notices.
+
+Thegani Vita Hludowici imperatoris, MG. SS. II., 585 sqq., the Vita Hludowici imperatoris, ascribed to Astronomus, ibid. II., 604 sqq.; and Ermoldi Nigelli Carmina, ibid. II., 464 sqq., though belonging to the next reign, contain important details for the history of Charles.
+
+Of considerable importance and value also are the lives of the several contemporary popes:
+
+Vita Stephani III., apud Duchesne, Lib. pontif. I.
+
+Vita Hadriani I., apud Muratori, Rer. Ital. SS. III.
+
+Vita Leonis III., ibid.
+
+The *Vitae Pontificum Romanorum sive Liber Pontificalis* [Latin], generally ascribed to Anastasius, the Librarian, exists in many editions, of which that of Vignolle, Romae 1724–53 in 3 vols. 4o, enjoys the reputation of being the best. On the different texts see: Duchesne, *Étude sur le Liber pontificalis* [French], Paris, 1877; and the reply of Waitz in NA. IV., 215 sqq., entitled: *Ueber die verschiedenen Texte des Liber pontificalis* [German].
+
+The *Liber pont.* [Latin] contains biographical sketches of the popes from St. Peter to Nicolaus I., but they are manifestly not the work of Anastasius, who seems to have contributed only the concluding portion. The earlier lives were written by different authors, and at different times; they are of unequal merit, and the book should be used with the utmost caution.
+
+Pauli Diaconi Gesta epp. Mett. MG. SS. II., 260 sqq., his Historia Langobardorum, Waitz, SS. rer. Langob., must not be omitted; the latter extends only to the death of Liutprand, a. 744, and consequently contains hardly anything of use for the history of Charles, but the former, as founded partly on old and lost documents, partly on local tradition, are of permanent value.
+
+Erchempert. Historia Langobardorum Benevent. SS. rerum Langobard., a work written towards the close of the ninth century, and the Chronicon Salernitanum, MG. SS., III., contain valuable information, but require to be used with caution.
+
+The same observation applies to Agnelli Liber pontificalis eccl. Ravenn. SS. rer. Langobard., the Chronicon Cassinense, MG. SS. III., to Theophanis Chronographia, ed. de Boor, to Andr. Dandul. Chronic. Muratori, Rer. It. SS. XII., Andr. Bergom. Hist., SS. rer. Langob., and a number of other works, occasionally cited in this volume.
+
+The work of the Monk of St. Gall (Monachus Sangallensis, MG. SS. II., 726 sqq.; Jaffé, Bibl. IV., 619 sqq.,) though rather a repertory of historical and legendary anecdotes than history, supplies valuable notices, but all his statements need verification and must be received with great caution. Some conjecture him to be identical with Notker, the Stammerer.
+
+His book gives an excellent idea of the popular conception of the great emperor about seventy years after his death, the date of its composition (a. 883), and records many a characteristic trait which otherwise would not be known.
+
+Poetic authorities, mentioned and cited in different portions of this volume need not be recapitulated; they are collected in the meritorious volumes of Dümmler, *Poetae Latini Aevi Carolini* [Latin], 2 vols. 4o, in Monumenta Germ. Historiae.
+
+The vast and most important Collection of Laws, under the splendid editorship of Boretius, in his *Capitularia Regum Francorum* [Latin]; and *Capitularien im Langobardenreich* [German], is a rich treasury especially for the second half of the reign of Charles the Great; unfortunately it is not indexed. A full list of the Capitularies is given in Appendix G.
+
+Numerous public and private documents, mostly diplomas, pertaining to the several portions of the Frankish empire, are in many respects decisive authorities, and very important.
+
+They are given in chronological order and with clear analysis, by Böhmer-Mühlbacher in *Regesten des Kaiserreichs unter den Karolingern* [German]. Compare Sickel, *Regesten der Urkunden der ersten Karolinger; Urkundenlehre* [German]; Fickel, *Beiträge zur Urkundenlehre* [German]; Jaffé, *Regest. Pontif.* [Latin], 2 ed.
+
+Among the earliest traditions respecting Charles the Great may be named:
+
+*Visio domni Caroli* [Latin], assigned to the middle of the ninth century, Jaffé, Bibl. IV., 701. See p. 492 sqq.
+
+*Expeditio Hispanica* [Latin], MG. SS. III., 708.
+
+Legends in the *Chronicon Novaliciense* [Latin], MG. SS. VII.
+
+The story of a duel between Charles and Wittekind, MG. SS. X., 576.
+
+Vita S. Arnoldi, in *Acta SS.* [Latin] Jul. IV., 449 sqq.
+
+On the poetic history of Charles, see G. Paris, *Histoire poétique de Charlemagne* [French], Paris, 1865, and the subjoined Chronological Table of the Poetical History of Charlemagne.
+
+(*From the French of L. Gautier.*)
+
+I. The most ancient group is represented in the *Song of Roland*, founded not only on legends dating from the IXth and even the VIIIth centuries, but on historical texts of considerable importance. [Einh. *Vita Caroli* [Latin], 9; Annales, and Poëta Saxo ad a. 778; Vita Hludowici, MG. SS. II., 608.]
+
+II. Simultaneously with the legend of Roncevaux, but independently in another cycle, arose that of Ogger (Ogier), which has also a historical basis. [Epistle of Pope Paul to Pepin a. 760, Bouquet V., 122; *Chronic. Moissiac.* [Latin] from 752–814, *ib.* [Latin] pp. 69, 70; *Monach. Sangall.* [Latin] II., 26; Anastasius, a. 753, 772, 774; *Annal. Lobiens.* [Latin] MG. SS. II., 195; *Chronic. Sancti Martini Coloniens.* [Latin] a. 778, ibid. II., 214; *Chronic. Sigebert.* [Latin], XIth cent.; Bouquet, V., 376; *Conversio Othgerii militis* [Latin], of the Xth or XIth cent.; the tomb of Ogger at S. Faro, *Acta SS. Ord. S. Bened.* [Latin], saec. IV., pars I., pp. 664, 5.] Related to this group are: *Chevalerie Ogier de Danemarche* [French] by Raimbert; *Enfances Ogier* [French], of Adenès; the third branch of the *Karlamagnus Saga* and the fourth of the Charlemagne of Venice.
+
+III. Towards the close of the Xth century a falsification of the text of Eginhard gave rise to the legend of the voyage to Jerusalem [*Benedicti Chronicon* [Latin], MG. SS. III., pp. 710 sq.] from which sprung the first part of the *Voyage to Jerusalem and Constantinople*, and from this two narratives of the *Karlamagnus Saga*.
+
+IV. In the middle of the XIth century a monk of Compostella wrote the first five chapters of the pretended *Chronique de Turpin* [French], with the history of an entire crusade of Charles in Spain. This narrative has not had any influence on the development of French Romance.
+
+V. Prior to the redaction of the Song of Roland (*Chanson de Roland* [French]) numerous legends, and most probably certain poems treating of other episodes in the lives of Charles or Roland, were already in circulation. The original text of Roland contains very plain allusions to the capture of Nobles, as told in the first branch of the *Karlamagnus Saga*; to the embassy of Basin and Basile, retold much later by the author of the capture of Pampeluna (*Prise de Pampelune* [French]); and to the family of Olivier as presented in *Girars de Viane* [French]. Of course these poems older than the Song of Roland were not identical with those which we possess now, but analogous songs in assonance, and decasyllabic, etc.
+
+VI. The traditions and legends thus far enumerated are based on certainty; but those which follow, and not mentioned in the *Chanson de Roland* [French], rest only on probability. The facts detailed at length in the versions of *Renans de Montauban* [French] which have come down to us, those given in connection with the Spanish war in the *Kaiserscronik* [German] of the XIIth century, in parts I. and V. of the *Karlamagnus Saga*, in the second third of the *Entrée en Espagne* [French], in the *Prise de Pampelune* [French], and the last part of *Girars de Viane* [French], must have circulated in France, for an indefinite length of time, before the XIIth century.
+
+VII. The Song of Roland has passed through different hands and undergone repeated rejuvenation; and it grew under the process. Some of the new episodes added to it, such as the capture of Narbonne, are based on tradition, while others, such as the two flights of Ganelon, his fight with Othe, the interview of Aude and Gilain, etc., are purely imaginary.
+
+VIII. Chapter VI., etc., of the Chronicle of Turpin may be assigned to the interval between 1109 and 1119, when the Romance sources from which it sprang were corrupted, distorted, and clericalized. This apocryphal work has considerably influenced the Romance Literature of the French.
+
+IX. Quite a series of poems, half legendary, half fictitious, originated from rather vague traditions of the XIIth century and later. The taking of Rome by the Saracens gave rise to the old poem of *Balant* [French] revived by M. G. Paris, to *Fierabras* [French], and even to *Aspremont* [French] in which other traditions may be found.
+
+X. Several universal stories, met with in every land (*e. g.* [Latin] the traitor, the avenger, the innocent wife restored to honor, etc.) induced the composition of the *Enfance de Charles* [French] from the close of the XIIth to the commencement of the XIIIth centuries. That legend reappears in *Enfances Charlemagnes* [French] of Venice (at the end of the XIIth century); *Chronique Saintongeaise* [French] (beginning of the XIIIth century); *Meinet* [French] in French verse, fragments of which (XIIth century) have recently been discovered in *Berte aux grans piés* [French] (about 1275); the *Stricker* [German] of 1230; the *Chronicle of Weihenstephan* (originated in the XIVth century, MS. of the XVth cent.); Wolter's *Chronica Bremensis* [Latin] (XVth c.); the *Karlamagnus Saga* (second third of the XIIIth cent.); Girart d'Amiens, *Charlemagne* [French] (beginning of the XIVth c.); *Karl Meinet* [German] (beginning of the XIVth cent.); and in *Reali* [Italian] (about 1350), etc.
+
+XI. However, with a view to contesting the pretensions of French legendaries, there were invented in Spain certain legends designed to ruin the glory of Roland. Such is the drift of the *Cronica Hispaniae* [Latin] by Rodrick of Toledo (+ 1247), of the *Cronica General* [Spanish] of Alphonso X. (2d half of the XIIIth cent.) and several other Romants.
+
+XII. Lastly, the works which follow are purely literary and imaginary; viz., *Jean de Lanson; Simon de Pouille; Otinel* [French]; the last part of the Entrance of Spain (*Roland en Orient* [French]); Gui de Bourgogne; *Gaidon; Anseïs de Carthage* [French]; Galien; the last part of *Voyage to Jerusalem*, and some parts of *Girars de Viane* [French].
+
+Thus all our Songs of Feats (*gestes* [French]) range from those with some historical basis to such as not only cease to be legendary, but are only novels in the modern acceptation of the word.
+
+For a much fuller account, and an analysis of not less than thirty such chansons by M. Gautier, see his *Épopées Françaises* [French], t. II.
+
+---
+
+## INDEX.
+
+*Latin, and occasionally modern foreign proper names, foreign words, and most of the titles of works, are printed in italics.*
+
+*Abbreviations, M., monastery; P., palace; R., river; St., saint.*
+
+*The list of saints precedes that of churches, etc., called after them.*
+
+### A
+
+- Aa, R, 148.
+- Abaidun, wali of Tortosa, 437.
+- Abbassides, 154, 414.
+- Abbio, Saxon chief, 121 sq.
+- Abdallah, ambassador of Harun, 438.
+- Abdallah, Ommiad Saracen, 295 sq.
+- Abd-el-Malek, 290.
+- Abdel-Rhaman, Abderrahman, al. 21 sqq.
+- Abdel-Rhaman, Abderrhaman, Abdurrhaman, emir of Cordova, 154, 155, 295.
+- Abdel-Rhaman, son of El Hakem, 435 sq.
+- Abimelech, son of Gideon, 220.
+- Abiscamp, battle of, 291.
+- Abodrites, a Wendish tribe, 127 sq., 130, 137 sq., 139 sqq., 440 sqq., 462, 489, 496.
+- Abraham, khakhan, 206.
+- Abul-Abbas, elephant, 414.
+- Abu-Taher, *Abu-tor, Abitaurus* [Latin], 158, 289.
+- *Acroama* [Latin], 240.
+- *Acropoli* [Italian], Lucania, 304.
+- Adalbert, canon, 265, 486.
+- Adalbert, vassal of duke Gerold, 198.
+- Adalgis, chamberlain, 116 sq.
+- Adalhard, abbot of Corbie, 81, 86, 142, 174, 243, 253, 264, 374, 378, 449, 451, 470, 475.
+- Adalinda, see Adelaide.
+- Adalpert, abbot of Tegernsee, 207.
+- Adalric, the Vasconian, 287 sqq.
+- Adaltrud, daughter of Charles, 233.
+- Adalung, abbot of Lorsch, 456.
+- Adelaide, Adalhaid, Adelhaid, daughter of Charles, 108.
+- Adelaide, daughter of Pepin, k. of Italy, 446.
+- Adelaide, Adalhaid, Adelheid, Adalinda, morganatic wife of Charles, 473 sq.
+- Adelchis, son and associate of Desiderius, 77, 80, 91 sq., 96, 98, 166 sq., 190, 302, 305, 310.
+- Adelperga, Adelberga, daughter of Desiderius, wife of Arigiso, 175, 261, 302 sq.
+- Adigo, valley of the, 180.
+- "Administration," 394–406.
+  - " in Aquitaine, 283 sqq.
+  - " in Italy, 301 sq., 451, 496.
+- *Adoptianism*, 325 sqq.
+- Adoption, by cutting the hair, 29 note.
+- Adriatic, the, 431, 494, 496.
+- Aelbert, archbishop of York, 241.
+- *Aesar* [Latin], 491 sq., note.
+- Aëtius, patrician, 408.
+- Afiarte, Paul, partisan of Desiderius, 88.
+- Africa, 21, 414, 427, 439.
+- African Christians, 466.
+- Agde, 27.
+- Agilfrid, bishop of Liège, 151.
+- Agilolfingians, 67, 184, 188.
+- Agnellus, *Liber pontific. eccl. Ravenn.* [Latin], 538.
+- Agriculture, 64.
+- Agrippa, 491 note.
+- Ahmed el Mokri, 295, 435 note.
+- Aio, Lombard, duke of Friuli, 452.
+- *Aisa* [Greek], fate, 492 note.
+- Aix, in the Provence, 454 note.
+- Aix-la-Chapelle, 71, 133, 199, 202, 233, 237, 239, 266 sq., 271 sqq., 295 sq., 311, 313 note, 316, 391, 399, 409, 414, 416, 433, 443, 450, 459 sq., 464, 474 sqq., 481, 483 sq. note, 485, 490, 496 note.
+- Aix-la-Chapelle, synod of, 329, 449.
+- Aix-la-Chapelle, cathedral at, see St. Mary the Virgin, basilica of.
+- Alberich, abbot at Utrecht, 146.
+- Albinus, chamberlain, 343.
+- Albiola, 431 sq.
+- Alcuin's epistles to Charles, Table of, 511.
+- *Alcuini Opera* [Latin], 536.
+- *Monumenta Alcuiniana* [Latin], 536.
+- *Alchuini Vita* [Latin], 300.
+- Aldulf, deacon, 440.
+- *Alemannia, Alamannia* [Latin], Suabia, 30, 52, 419, 495, and passim.
+- Alemannian Code, 59 sqq.
+- Alemannians, *Alamanni, Alemanni* [Latin], 31, 32, 54, 67, 185, 201, 203.
+- Alexander the Great, 498, 501.
+- Alcuin, *Flaccus, Albinus* [Latin], abbot of St. Martin's, Tours, 125, 134 sq., 138, 144, 147, 172, 197, 200, 204, 211, 226 sqq., 231, 239, 241–251, 253 sq., 260, 264 sqq., 268, 270, 289, 300 sq., 313 note, 327, 329 sqq., 337, 348, 351 sqq., 364, 388, 416 sq., 439, 449, 473, 503, and passim.
+- Aldana, mother of Wilhelmus, 288.
+- Alexander III. pope, 487.
+- Alexander, bishop of Liège, 487.
+- Alexandria, 439.
+- *Algihad* [Arabic], holy war, 289 sq.
+- Alim, bishop of Seben, 207.
+- Allah, 315.
+- Aller, R., 118.
+- Allo, duke, 172.
+- Allodial lands, 67.
+- Alme, R., 130.
+- Alonso II., king of Gallicia and Asturia, 135, 294, 296.
+- Alpais, wife of Pepin of Heristal, 18.
+- Alps, the, 21, 42 sq., 90, 414, 419 sq., 495, 503.
+- Alpuni, abbot of Sandau, 208.
+- Alsatia, Alsace, Elsass, 32, 52, 167, 495.
+- Altabiçar, *Altabiçaren Cantua* [Basque], 160.
+- Altfrid, biographer of Liudger, 537.
+- Altmühl, R., 277 sq.
+- Amalarius, *Symphosius* [Latin], 244, 460.
+- Amalfi, 464.
+- Amblève, 19.
+- Amorbach, M., in the Odenwald, 151.
+- Amoroz, wali, 435 sq.
+- Ampurias, Spanish Marche, 465.
+- Anastasius, the Librarian, biographer of the popes, 94, 97, 356, 538.
+- Anaxagoras, 227 note.
+- Ancona, 354, 405.
+  - " Marches of, 49.
+- *Andr. Bergom. Hist.* [Latin], 538.
+- *Andr. Dandul. Chron.* [Latin], 538.
+- Anecdotes, 73, 81, 91, 97, 211, 220 sq., 235, 258 sq., 262, 272 sqq., 312, 444 note.
+- Angeac, P., 293.
+- Angilram, archbishop of Metz, 193, 377, 388.
+- Angilbert, *Homer* [Latin], chaplain, poet, *auriculus* [Latin], abbot of St. Riquier, 138, 174, 225, 229, 232, 239, 243 sq., 253 sq., 258 and note, 260, 264, 267, 300, 313 note, 327, 332, 339 sq., 344, 347, 351 sq., 377, 445, 456, 502.
+- Anglo-Saxons, 398, 405.
+- Angria, *Engern* [German], part of Saxony.
+- Angrians, 54, 110, 114, 133 and passim, 101–153.
+- Angoulême, 75.
+- Aniane, M., 285 sq., 287 sq.
+- Aniane, R., 285.
+- *Annales Alamannici* [Latin], 527.
+- *Annales, ut videtur, Alcuini* [Latin], 528.
+- *Annales S. Amandi* [Latin], 526.
+- *Annales Bawarici breves* [Latin], 527.
+- *Annales S. Dionysii* [Latin], 527.
+- *Annales Einhardi* [Latin], 529 sqq.
+- *Annales S. Emmerani maj. et minor.* [Latin], 527.
+- *Annales Flaviniacenses* [Latin], 535.
+- *Annales Fuldenses antiqui* [Latin], 527 sq.
+- *Annales S. Germani Paris* [Latin], 527.
+  - " " " " *minores* [Latin], 527.
+- *Annales Guelferbytani* [Latin], 527.
+- *Annales Juvavenses major. et minor.* [Latin], 527.
+- *Annales Laubacenses* [Latin], 526.
+- *Annales Laureshamenses* [Latin], 527.
+- *Annales Laurissenses majores* [Latin], 529 sqq.
+  - " " " *et Annales Einhardi* [Latin], compared, 529 sqq.
+- *Annales Laurissenses maj. et Annal. Einhardi* [Latin] a. 792, 534.
+- *Annales Laurissenses minores* [Latin], 535.
+- *Annales Lindisfarnenses* [Latin], 527 sq.
+- *Annales Loiseliani* [Latin], see *A. Lauriss. maj.* [Latin]
+- *Annales Maximiani* [Latin], 535.
+- *Annales Mettenses* [Latin], 535.
+- *Annales Mosellani* [Latin], 526.
+- *Annales Murbacenses* [Latin], 527.
+- *Annales Nazariani* [Latin], 527.
+- *Annales Petaviani* [Latin], 526.
+- *Annales plebei* [Latin], see *A. Lauriss. maj.* [Latin]
+- *Annales Tiliani* [Latin], 526.
+- *Annales Xanthenses* [Latin], 535.
+- Annals, Royal, Court, Imperial, see *Annal. Lauriss. maj.* [Latin]
+- Ansa, queen of Desiderius, 97 sq., 397, 499.
+- Anselm, count Palatine, 159.
+- Ansigisil, Adalgisel, Anchisus, 17.
+- *Antecopsita* [Latin], picture of Christ, 40.
+- Anteus, 298.
+- Anthimus, duke of Naples, 464.
+- *Antrustion* [Latin], 61.
+- Anulo, claimant of the Danish throne, 461.
+- Aosta, 420.
+- *Aquae* [Latin], Dax on the Adour, 468.
+- Aquino, 178.
+- Aquitaine, 19, 21, 26, 52, 74 sq., 156, 283 sqq., 287 sqq., 299, 312 sq., 413, 419 sq., 432, 451, 468, 478, 481, 495, passim.
+- Aquitaine, royal villas in, 293 and note.
+- Aquitaine, corruption in, 297 sq.
+- Aquitanian Revolt, 51.
+- Aquitanians, 32, 54, and passim.
+- Arab walis, 287.
+- Arabs, 21 sqq., 31, 154, 290, 435, 467.
+- Arce, 178.
+- Archchaplains, *apocrisiarii* [Latin], 377.
+- Architecture, 271.
+  - " domestic, 64.
+- Ardennes Range, 32, 82, 475 sq., 478.
+- Arezzo, bishopric of, 368.
+- Arichis, Arigiso, brother of Paulus Diaconus, 168 sq., 261.
+- Arigiso, Aregis, Arichiso, al. 175, 177 sq., 179, 190, 261, 263, 302, 304, 309 sq.
+- Arles, 27, 391, and 454 note.
+- Arluin, curator, 284.
+- Arminius, 25, 107, 113.
+- Arno, Arn, *Aquila* [Latin], archbishop of Salzburg, 179 sq., 184, 186, 193, 202, 209, 210 sq., 243 sq., 330, 348, 350, 451 note, 454.
+- Arnold, *baiulus* [Latin] of King Louis of Aquitaine, 174.
+- Arnulf, bishop of Metz, 17.
+- Arpino, 178.
+- Arsafius, *spatharius* [Latin], 451 sq., 457, 459.
+- Arthur, 124.
+- Ascaricus, bishop, 326.
+- Ascarius, count, 344.
+- Asenbrugg, 152.
+- Aschheim, synod of, 207.
+- Asia, 21.
+- Asnapium, Villa, 403 sqq.
+- Astolf, king of the Lombards, 39, 40, 41, 42 to 51.
+- Astronomus, biographer of Louis the Pious, 477 note.
+- Astronomus, *Vita Hludowici imperatoris* [Latin], 477 note.
+- Astronomy, 268.
+- Astura, 492 note.
+- Asturia, 290, 326, 411, 495.
+- Atalia, 359.
+- Atlantic Ocean, 54, 494.
+- Attigny, P., on the Aisne, 122, 399.
+- Attila, 191, 199.
+- Atto, deacon, 302, 304.
+- Atto, Hatto, abbot of Scharnitz, bishop of Freising, 207, 209, 265, 350.
+- Atula, daughter of Pepin, k. of Italy, 446.
+- Auch, church of, 454 note.
+- Auda, sister of Autchar, Otgar, 83.
+- Aude, R., 291.
+- Audulf, *Menalcas* [Latin], seneschal, 217, 244, 281.
+- *Auerochs* [German] (buffalo) hunt, 238.
+- Augsburg, 180.
+- Augustus, Life of, 254.
+- Aureolus, count, 435.
+- *Auriculus* [Latin], 232, 353.
+- Ausona, *Vich* [Spanish], in the Spanish Marche, 294.
+- Autchar, see Autcharius.
+- Austragild, queen, 58.
+- Austrasia, Austria, 18 sqq., 30, 52, 216, 419, 495, and passim.
+- Austrasians, 18 sqq., 155, and passim.
+- Austro-Hungarian monarchy, 495.
+- Autcharius, Autchar, Otger, Ogger, etc., partisan of Carloman, 40, 78 note, 82, 89, 98, 118.
+- Authari, commissioner, 307.
+- "Authorities for the History of Charles the Great," 526.
+- Autun, 21.
+- Auxois, 419.
+- Avalon, 419.
+- Avars, 127 sqq., 179, 182 sq., 189–212, 277, 280, 287, 306, 360, 445, 469, 489, 496, and passim.
+- Avignon, 126 sq.
+- Azov, Sea of, 204.
+
+### B
+
+- Babylon, 503.
+- Bacchus, 229, 347.
+- Baddenfelde, on the Eder, 114.
+- Badenfliot, *Beienfleth* [German], on the Stör, 442.
+- Bagdad, 154.
+  - " khalif of, 466 sq., 500.
+- Bagnorea, *Balneum Regis* [Latin], 178.
+- *Baiulus* [Latin], 174, 253, 283, 301, 451 note.
+- Baldwin, fictitious character, 164.
+- Balearic Isles, 297, 299, 495.
+  - " Sea, 54.
+- *Ballista* [Latin], 97.
+- Baltic, the, 128, 441, 494 sqq.
+- Banns, 394.
+- *Bannum* [Latin], 103 note.
+- Bant, submerged island, 147.
+- Baptismal formula, 122.
+- Barcelona, 52, 156, 410 sqq., 436.
+- Bardengau, 121, 130, 139.
+- Bardowick, 130, 137 sq., 389, 406.
+- *Basileus* [Greek], 459.
+- Basiliscus, ambassador, 296.
+- Basques, 159 sqq.
+- Bathing, 239.
+- Baugulf, abbot of Fulda, 265.
+- Bavaria, 20, 30, 51, 175 sqq., 183 sqq., 189 sq., 196, 206 sqq., 281, 302, 416, 419, 495, and passim.
+- Bavaria, synods in, 207.
+- Bavarian code, 59 sqq., 77, 207, 382.
+- Bavarians, 20, 22, 31, 54, 60, 67, 155, 181 sqq., 190, 193, 201, and passim.
+- Beatrice, wife of Frederic I., 487.
+- Beatus, doge of Venice, 415, 430, 457.
+- Beatus, presbyter, 326.
+- Bede, venerable, 241.
+- Begga, daughter of Pepin the Old, 17.
+- Belgium, 494.
+- Bellona, 470.
+- Benedict of Aniane, Vitiza, 267, 285 sqq., 288, 330.
+- Benedict, musician, 180.
+- *Benedictio* [Latin], 292.
+- Beneventans, 302 sqq., 305, 309, 445.
+- Benevento, Beneventum, city, 303 sqq., 492 note.
+- Benevento, duchy, 94, 175, 177, 179, 308 sqq., 351, 354, 407 sqq., 410, 470, 496 sq.
+- Benevento, duke of, 99, 166, 175 sqq., 306.
+- Bera, count, 413, 433, 437, 457.
+- Berceto, 94.
+- Bernald, bishop of Strasburg, 264, 477 note.
+- Bernard, Great St., 90.
+- Bernard, duke, uncle of Charles the Great, 90, 92, 156 sq.
+- Bernard, Bernhard, king of Italy, 253, 425, 446, 475, 477, 496.
+- Bernhard = Bernhar, bishop of Worms?, 350.
+- Bernharius, Bernhar, bishop of Worms, 449.
+- Bernlef, minstrel, 236.
+- Bernoin, archbishop of Besançon, 456.
+- Bersinica, battle of, 460.
+- Bertha, daughter of Charles, 171, 228 sq., 232, 254.
+- Berthaid, daughter of Pepin, k. of Italy, 446.
+- Berthrada, Bertrada, Bertha, *al.* [Latin], mother of Charles, 40 sq., note, 42, 71 sq., 76, 78, 80 note, 82 note, 214, 483.
+- Besançon, 454.
+- Bethencians, 468.
+- Beziers, 27.
+- Bilitrud, widow of Grimoald, 20.
+- Biscay, bay of, 312.
+- Blaye, 26.
+- Blood of Christ, discovery of, 415 sq.
+- Boanerges, 315.
+- Bobbio, M., 521 note, 503.
+- Bocholt, Buocholt. = Buchholz, beechwood, in Westphalia, 114.
+- Bohemia, 192, 196, 281 sq., 495 sq.
+- Bohemian War, 280 sqq.
+- Bohemians, 208, 280 sqq., 496.
+- Bohemian Forest, 281.
+- Boniface, see St. Boniface.
+- Bonn, city, 39.
+- Bordeaux, 21, 26, 454.
+- Borough, *bourg* [French], 68.
+- Boulogne-sur-Mer, *Gesoriacum* [Latin], 405, 463.
+- Bourges, 454.
+- Brabant, 148.
+- Brabants, 143.
+- Brandenburg, 495 sq.
+- Bremen, 140, 150, 152.
+- Bribery, 297.
+- Bremberg, 389.
+- Bretons, 217, 311, 493.
+- Britain, 331, 440, 463, 500.
+- Britons, 217.
+- Brittany, and Marche of, 159, 217, 311 sqq., 468 sq., 494 sq.
+- Brunhild, queen, 57.
+- *Brunia* = *lorica* [Latin], 379.
+- Bruno, Angrian chief, 110.
+- Bubenheim on the Altmühl, 278.
+- Buchonian Forest, 63, 405.
+- Bukkigau, canton of Bucki, betw. the Weser and Dreister Range, 110.
+- Bulgarians, 460.
+- Bull-horn, 162.
+- Burchard, count, constable, 427, 456.
+- Burchard, bishop of Würzburg, 35, 37.
+- Burellus, count, 294, 433.
+- Burgundian code, 62.
+- Burgundians, 22, 54, 155.
+- Burgundy, 20, 21, 26, 30, 52, 308, 419 sq., 495 sq.
+- Buriaburg, Buraburg, Bürberg, 108, 145, 152 sq.
+- *Buticularius* [Latin], 379.
+- Buto, Saxon chief, 105.
+- Byzantines, Byzantine court, 179, 307, 310, 362, 407, 409, 414 sq., 429 sqq., 465, 489, and passim.
+
+### C
+
+- Cacus, 297.
+- Cæsar-Augusta, see Saragossa.
+- Cæsar Augustus, Life of, 491 sq. note.
+- Cæsar, Julius, 158, 170, 501.
+- Calabria, 310, 333, 495.
+- Caligula, 463.
+- Cambray, 19.
+- Camp, R., 495.
+- Camp, below Krems, 195.
+- *Campus Martius* [Latin], 491 note.
+- Campulus, sacellarius, 341, 351, 355, 366 sq.
+- Canalization, 276 sq.
+- Canburg, Bohemia, 281.
+- Canitius, bishop, 57.
+- Canons, collection of, 317.
+  - " abstract of a. 813, 392 and note.
+- Cape Cavallo, 495.
+- Cape San Vito, 495.
+- *Cap de la Franqui* [French], 26.
+- *Capitanei* [Latin], 217.
+- *Capitula e Canonibus excerpta* [Latin], 392 note.
+- *Capitula* [Latin] of council of Frankfort, 334.
+- *Capitulum* [Latin] on Lord's Day, 319 sq.
+- *Capitulare Saxonicum* [Latin], 133.
+- Capitularies set forth in the reign of Charles the Great, List of, 517.
+- Capitulary of Boulogne, a. 811, 381 and note.
+- *Capitulare de Villis* [Latin], 399, 402.
+- Capitularies, 383.
+  - " Héristal, a. 779, 384.
+  - " Frankfort, a. 794, 385.
+  - " Thionville, a. 805, 806, 389.
+- *Capitulatio de partibus Saxoniae* [Latin], 116.
+- Capua, 177 sq., 305.
+- Capuans, 305 sq.
+- Carantanians, 208 sq.
+- Carcassonne, 291.
+- Cardona, castle, 294.
+- Carinthia, *Carantania* [Latin], 208 sq., 212, 495 sq.
+- Carloman, son of Charles Martel, mayor of the palace, 30, 31 sqq., 42, 397.
+- Carloman, king, brother of Charles the Great, 52 sq., 72, 74 sq., 76 sqq., 79, 82 sq., 87, 89, 98, 314, 420, 424, 498 sq.
+- Carloman, son of Charles, = Pepin, king of Italy, 171, 173.
+- Carloman, son of Louis the Stammerer, 374.
+- Carlovingian lineage, 17, 37.
+- Carlsburg, near Munich, 71.
+- Carlstadt, on the Lippe, 111.
+- Carlstadt, on the Main, 71.
+- Carnuntum, 205.
+- "Caroline Books," 331, 334 note.
+- Carthage, 439.
+- Cassel, 106.
+- Castaserra, *Casseres* [Spanish], 294.
+- Catalonia, 494.
+- Catania, 466.
+- Cathwulf, his epistle to Charles, 74 note.
+- Cenon (Sesone), 22.
+- *Centenarii* [Latin], centenaries, hundreders, 68, 379.
+- Centula, 313 note.
+- Centumcellæ, see Civita Vecchia, 172.
+- Ceolwulf, Anglo-Saxon prince, 32.
+- Ceres, 229.
+- Chalons-sur-Marne, 48.
+- Chalons sur-Saône, 391, 398, 419.
+- Chalydon, River, 298.
+- Chamberlain, 379.
+- Chancellors, 378.
+- Channel, the, 299, 494.
+  - " Coast, 313 note.
+- *Chant d'Altabiçar* [French], 161.
+- Charibert, Heribert, count of Laon, 72.
+- Charlemagne, the traditional, 84.
+  - " reason for discarding the name, Preface.
+- "Charles and Carloman," 71–85.
+- Charles the Great (*David*), passim. See Contents, Chronological Annals, and Genealogical Table.
+  - " " alleged illegitimacy of, 41 note.
+  - " " date of birth of, 40 note.
+  - " " family of. See Appendix, 522 sqq.
+  - " " family life and habits of, 234 sqq.
+  - " " names of, 502.
+  - " " queens and wives of, 213 sq., 221–228. See Genealogical Table and Index s. vv.
+- Charles the Great, sons and daughters of, 228–234. See Geneal. Table and Index s. vv.
+- "Charles and the Church,"—Hadrian, 314–338.
+- "Charles and Leo," 339–353.
+- "Charles, the Man," 471–488.
+- Charles, progress of a. 800, 313 note.
+- Charles, prince, king, son of Charles the Great, 120, 130, 132, 139, 180, 218 sq., 230, 232, 281 sqq., 299 sqq., 313 note, 361 sqq., 413, 416 sq., 419 sq., 441, 443, 471 sqq.
+- Charles Martel, 17, 18, 19–30, 34, 53, 72, 85, 90, 157, 423, 483, 498.
+- "Charles Martel," 17–30.
+- Charles, the Bald, 233.
+- Chase, the, 237 sqq.
+- Chasseneuil, on the Clain, P. in Aquitaine, 155, 293–299, 313, 399.
+- Chaucer, 335.
+- Chelles, M. near Paris, 20, 80, 183.
+- Cheminot, 213.
+- Chiemsee, M., 189.
+- Chieti, *Teate* [Latin], Benevento, 409.
+- Chieti, Marche of, 496.
+- Childeric III., 36, 37, 38.
+- Chilperic II., Merovingian king, 19 sq., 26.
+- Chletgau, 419.
+- Chlodoicus, see Louis the Pious.
+- Chlodulf, bishop of Metz, 17.
+- Choisy au Bac, *Cauciacum* [Latin], 214.
+- Chorso, duke of Toulouse, 287 sq.
+- Chotimir, duke, 208.
+- Chremsa, see Krems, R.
+- Christian effort in Bavaria, 207 sqq.
+- Christian Saxony, 144 sqq.
+- Chrodegang, bishop of Metz, 40.
+- *Chronicon Cassinense* [Latin], 538.
+- *Chronica de sex ætatibus mundi* [Latin], 535.
+- *Chronicon Moissiacense* [Latin], 535 sq.
+- *Chronicon Novaliciense* [Latin], 538.
+- *Chronicon Salernitanum* [Latin], 538.
+- *Chronicon universale* [Latin], 536.
+- "Chronological Table of the Sources of the Poetical History of Charlemagne," 539.
+- Chur, Coire, 171, 419 sq.
+- *Cilicium* [Latin], 485.
+- Cinca, R., 434.
+- Civita-Vecchia, *Centumcellæ* [Latin], 172, 465.
+- "Civilization," 54–68.
+- Civilization of the Merovingians, 54 sqq.
+- Clain, R., 22.
+- Clement, Irish teacher, 258 sq., note 259.
+- Clothair, Merovingian prince, 19, 20.
+- Clovis, 31.
+- Cluses, the, *clausae* [Latin] of the Alps, 49, 91, 419.
+- Clusium, duke of, 166.
+- Codes, ancient Germanic, 61 sqq., 382.
+- *Codex Carolinus* [Latin], 536.
+- *Coenobium Gemmeticense* [Latin], *Jumièges* [French], 188 note.
+- Coenulf, king of Mercia, 440.
+- Coinage, 307, 406, 451.
+- Collect for St. Charles, 488.
+- Colloquy between Alcuin and Charles, 248 sqq.
+- Colloquy between Alcuin and Pepin, 244 sqq.
+- Cologne, 18, 19, 113, 115, 130, 454.
+- Columbanus, abbot of Trudo, 521.
+- Comacchio, *Comiaclum* [Latin], 88 sq., 431.
+- Comagenae, near Tuln, 195.
+- Commerce, 405.
+- Compiègne, *Compendium* [Latin], P., 51, 399.
+- *Confessio* [Latin], 361 note, 362.
+- *Conjurationes et conspirationes* [Latin], 387.
+- Conques, M., 292.
+- "Conquest of the Avars," 189, 212.
+- *Consacramentales* [Latin], 61.
+- Conspiracies:
+  - of Thuringians, 215 sqq.
+  - of Pepin the Hunchback, 218 sqq.
+- Conspiracy against Leo III., 341 sqq.
+- Constable, 379.
+- Constance, 143, 171, 198.
+- Constantine the Great, emperor, 341, 349, 365, 501.
+- Constantine, V. (Copronymos), Byz., emperor, 50.
+- Constantine, VI. (Porphyrogenitus) Byz. emperor, 98, 173, 231, 255, 262, 309, 445.
+- Constantinople, city of, 21, 98, 310, 359, 407, 409, 415, 430, 452, 457, 459, 500.
+- Constantinople, council of, 331, 333, 448.
+- Constantinople, court of, 166, 304, 310, 407, 409, 429 sq.
+- "Contributions in kind," 395.
+- Corbeny, near Laon, Villa, 83, 399.
+- Corbie, M., on the Somme, near Amiens, 142, 253.
+- Cordova, 291 sq., 295 sq., 411, 414.
+- Cordova, cathedral of, 292.
+- Cordova, emir of, 154 sqq., 295, 411, 414, 433, 435, 436–489, 500.
+- Cordova, emirate of, 155, 463, 495.
+- Coriosolitae, 217.
+- "Coronation," the, 354–368, 500.
+  - " of Louis, 479 sqq.
+- Corsica, island, 94, 426 sqq., 464 sq., 494 sq.
+- Corvey, M., 253.
+- Cotani, daughter of Tassilo, 183 note.
+- Council of Constantinople, a. 381, 448.
+  - " " Nicaea, a. 325, 448, 524 sqq.
+  - " " Ephesus, a. 431, 448.
+  - " " Toledo, a. 589, 448.
+  - " " Gentilly, a. 767, 448.
+  - " " Aix-la-Chapelle, a. 809, 449.
+- Council of Orleans, 68.
+- Counterfeiting, 406.
+- Count Palatine, 236, 378.
+- Counts, 379, 394.
+- "Covenant of Death," 207.
+- Creed, Nicene-Constantinopolitan, 450.
+- Crescent, the, 25, 361.
+- Crispinus and Crispinianus, martyrs, relics of, 487.
+- Croatia, 495 sq.
+- Cuise, forest of, 18.
+- Cumeoberg, 192, 195.
+- Cunigund, wife of Bernhard, king of Italy, 475.
+- Cunipert, bishop, 350.
+- *Curia* [Latin], Roman, 333 note.
+- Czechs, 282, 472, 496.
+
+### D
+
+- *Dachtelfeld* [German], 119.
+- Dagobert III., king of the Neustrians, 18, 19.
+- Dalmatia, 415, 429 sqq., 452, 494 sqq.
+- Damoetas, Flavius, see Richulf, 152.
+- Danes, 312, 440 sqq.
+- Daniel, cleric, see Chilperic II.
+- Daniel, archbishop of Narbonne, 284 sq.
+- Danube, R., 20, 54, 191 sq., 195 sqq., 204 sq., 209, 212, 276 sq., 279, 406, 419, 458, 494 sq., and passim.
+- Date of birth of Charles the Great, 40 note.
+- Datus, 292.
+- David, 315.
+- Dax, see *Aquæ* [Latin].
+- Deans of the Chapel Royal, etc., 377.
+- "Death of the Goths," *Mors Gothorum* [Latin], 287.
+- "Death League," 207 sq.
+  - " " Members of, 207, sq.
+- Deianira, 298.
+- *De Joieuse* [French], sword, 85.
+- Demelcians, Dalemincians, 281.
+- Demelcion, country of the Demelcians, Dalemincians, 281.
+- Demosthenes, 498.
+- Denmark, 118, 136, 460 sqq., 462, 494, 500.
+- *Denominati* [Latin], 61.
+- Deoderich, bishop, 212.
+- "Deposition of Childeric and Coronation of Pepin," 34 sqq.
+- Desiderata, daughter of Desiderius, 77 note, 80, 82 note, 86, 97, 183, 498 sq.
+- Desiderius, duke, 58.
+- Desiderius, king of the Lombards, 50 sq., 76–79, 80, 87–98, 175, 183 sq., 190, 222, 261, 310, 314, 498 sq.
+- Desiderius, daughters of, 77 note.
+- Desiderius, an impostor, 56.
+- Detmold, *Theotmalli* [Latin], 119.
+- Deutz, on the Rhine, 114.
+- Develtus, 458.
+- Deventer, Hamaland, 105, 146.
+- Dicuil, author, 259 note.
+- Diemel, R., 106, 130, 150.
+- "Diet and Capitularies," 371–393.
+- *Dii manes* [Latin], 57.
+- Dingolfing, Synod of, 207.
+- Dionysius Exiguus, collection of Canons, 317.
+- Diptychs, 388 and note.
+- "*Disputation of Pepin, etc., with Albinus the pedagogue*," 244 sqq.
+- Division of the dominions of Charles Martel, 29 sq.
+- Division of the dominions of Pepin, 52.
+- Division of the dominions of Charles, 417–425.
+- Dokkum, in the Ostergau, 149.
+- Domanial lands, 65, 293, 394 sqq.
+- *Dona Regia* [Latin], 289.
+- Donations: By Pepin, 49.
+  - " By Charles, 94, 100; Sabina, 173; Beneventan cities, 178.
+- Donatus, commentary on, 260.
+- Donatus, bishop of Zara, 415.
+- Doorkeeper, chief, 379.
+- Dordogne, R., 75.
+- Doué, P., 293.
+- Douzy, Villa, near Sedan, 399.
+- Dragowit, king of the Welatabians, 128.
+- Drave, R., 204, 212, 496.
+- Drenthe, see Thrianta.
+- Duasdives, Moncontour-de-Poitou on the Dive ?, 75.
+- Duke, meaning of, 379.
+- Dungal the Scot, 259 note, 267 sq.
+- Durance, R., 26, 27.
+- Düren, P., 109, 399.
+- Duurstede, 405.
+
+### E
+
+- Eanbald, archbishop of York, 241.
+- Eardulf, king of Northumbria, 439 sq.
+- Easter Tables, 526.
+- Eastern Francia, Austrasia, 495.
+  - " Franks, 54.
+- Eastern Marche, Northgau, 495, 500.
+- Eastphalia, see Saxon War, passim.
+- Eastphalians, 54, 110, 114 and passim, 101–153, 282.
+- Eause, *Elusa* [Latin], 454 note.
+- Eberhard, cupbearer, 175.
+- Eboris, *missus* [Latin], 137.
+- Ebreuil, P., 293.
+- Ebro, R., 52, 158, 433 sqq., 494 sqq.
+- Echerigus, count-palatine, 451 note.
+- Echternach, Epternach, M., 150, 267, 398.
+- Eder, R., 114.
+- *Edlinge* [German], 131.
+- Edo, count, 457.
+- Edobola, 51.
+- Education of the royal children, 230.
+- Egbert, archbishop of York, 241.
+- Eger, R., 281.
+- Eggihard, seneschal, 159.
+- Egypt, 21, 439.
+- Eider, R., 140, 441, 494 sq.
+- Eigil, biographer of Sturmi, 265, 270.
+  - " *Vita S. Sturmi* [Latin], 537.
+- Einhard, Eginhard, *Beseleel* [Latin], biographer of Charles, 36, 71, 109, 243 sq., 251, 254 sqq., 264, 267, 364 sq., 378, 413, 425, 471 note, 476 sq., 491, 493, 502, and passim.
+- *Einhardi Annales* [Latin], 254.
+- *Einhardi Epistolae* [Latin], 254, 537.
+- *Einhardi Translatio SS. Marcellini et Petri* [Latin], 254, 490, 537.
+- *Einhardi Vita Caroli* [Latin], 254, 536.
+- Elbe, R., 100, 116, 120, 127 sq., 130 sq., 132 sq., 139, 149, 281 sqq., 312, 406, 441 sqq., 495 sq., and passim.
+- Elephant Abul-Abbas, 413 sq.
+- El Hakem, 295, 435 sq., 467.
+- Elifant, bishop of Arles, 386.
+- Elipandus, archbishop of Toledo, 286, 325 sqq., 330.
+- Emma or Imma, wife of Einhard, pretended daughter of Charles, legend of, 255 sq.
+- Embrun, 454.
+- Emir, emirate, see Cordova.
+- Emmer, R., 120.
+- Ems, R., 119, 148.
+- Enger, Westphalia, 123.
+- Engi, 419.
+- England, 18, 242.
+- Enns, R., 180, 193, 209, 406, 495.
+- *Enti* [Latin], 492 sq.
+- Ephesus, council of, 448.
+- Epistle from St. Peter, 44 and note sqq.
+- Epitaph of Charles the Great, 484 and note, 489 note.
+- Epitaph of Fastrada, 224.
+  - " " Hadrian, 338.
+  - " " Hildegard, 214.
+  - " " Liutprand, 29 note.
+  - " " Pepin, 445 sq. note.
+- Epizooty, 446.
+- Equestrian statue at Aix-la-Chapelle, 275.
+- Erau, *Arauris* [Latin], R., 285.
+- Ercanbald, chancellor, 378, 414.
+- Ercangarius, count, 457.
+- Erchempert, *Historia Langobardorum Benevent.* [Latin] 538.
+- Eresburg, *Stadtberge* [German] on the Diemel, 105 sqq., 109, 111, 121, 130, 150.
+- Erfurt, 389, 406.
+- Eric, margrave of Friuli, 196 sq., 199, 201, 202 sqq.
+- Erlebald, bishop of Basel, 265 note.
+- Ermoldus Nigellus, poet, see Nigellus.
+  - " " *Carmina* [Latin], 538.
+- Ernst, abbot of Oberaltaich, 208.
+- Erythrea, see Rothrud.
+- Escaldunac Range, 161.
+- Esesfeld, Itzehoe, on the Stör, 443.
+- Etcheco-Ioana, Vasconian chief, 161 sqq.
+- Ethelred, king of Northumbria, 336.
+- Etherius, bishop of Osma, 326.
+- Eudo, duke of Aquitaine, 19, 20, 21, 22, 26.
+- Eulalius, a Frank, 58.
+- Eutropius, 261.
+- Euxine, the, 276.
+- *Evangelium* [Latin], 484 and note.
+- "Events from Division of Empire to death of Pepin," 426–450.
+- Exarchate of Ravenna, 49, 94.
+- *Exenodochia* [Latin], 176.
+- "Exhortation," 322.
+- *Expeditio Hispanica* [Latin], 539.
+
+### F
+
+- Faenza, *Faventia* [Latin], 88 sq.
+- "Fall of the Lombards," 86 to 100.
+- Falconer, Chief, 379.
+- "False Corn," 308, 386, no. 25.
+- Family life of Charles, 234 sq.
+- Famous Men, 253 sqq.
+- Fardulf, abbot of St. Denis, 222, 451.
+- Faremoutier, M. at Meaux, 233.
+- Fastrada, queen of Charles, 192 sqq., 214 sqq., 218, 223 sqq., 228, 230, 287.
+- Fater, abbot of Kremsmünster, 210.
+- "Father of the Universe," 489, 494.
+- Felician heresy, 325 sq.
+- Felix, bishop of La Seo de Urgel, 286, 325 sqq., 329, 330.
+- Felix, monk, 438 sq.
+- Felix, tribune, 430.
+- Ferrara, city, 88 sq.
+- Ferrières, M., diocese of Sens, 242.
+- *Filioque* [Latin], 448 sqq.
+- *Filtrum* [Latin], 495 note.
+- Finances, 394 sqq.
+- *Fiscalinen* [German], 390.
+- Fiume, 203.
+- Flaccus, bishop, 350.
+- Flaminian Way, 93.
+- Flemings, 143.
+- Florence, 177.
+- *Fodrum* [Latin], 294.
+- Folrad, Fulrad, abbot of St. Denis, archchaplain, 35, 37, 40, 377, 487.
+- Fontenelle, see St. Wandrille.
+- Forchheim, 389, 406.
+- Fortunatus, patriarch of Grado, 414, 429.
+- Fosete, a divinity, 147.
+- Fosetesland, see Heligoland, 147.
+- France, 494.
+- Francia, passim.
+- Franconia, 281.
+- Frank, as used by Orientals, 25 sq.
+- Frankfort, Frankfurt on the Main, Villa, 129, 399.
+  - " council of, 187, 222 sq., 327 sq., 330, 333 sq.
+- Franks, passim.
+- Fredegarius, 57.
+- Fredegonda, queen, 57 sq., 62.
+- Frederic, count of Burgundy, 39.
+- Frederic the Wise, elector, 487.
+- Frederic I., Barbarossa, emperor, 487.
+- Frederic, son of Emperor Frederic I., 487.
+- Fridugisus, *Nathanael* [Latin], abbot, 242 note, 265, 456.
+- Freising, synods at, 207, 208.
+- Frisia, 20, 27, 123, 129, 139, 147, 419, 443 sq., 495, and passim.
+- Frisians, 20, 105, 120, 128, 192, 405, and passim.
+- Fritzlar, 108, 145, 152 sq.
+- Friuli, duchy, and Marche of, 166 sqq., 190, 192, 261.
+  - " church at, 454, 495 sq.
+  - " duke of, 166, 496.
+- Froia, ambassador, 296.
+- Fronsac, *Fronciacum* [Latin], fortress, 75.
+- Fulda, M., 114, 151, 216, 256, 446.
+- Fulda, list of abbots, 265 note.
+- Fulda, school at, 254, 265.
+- Fulda, R., 64, 114.
+- Fulrad, see Folrad.
+- Funeral Chant, 504.
+
+### G
+
+- Gaerbod, bishop, 386.
+- Gaëta, 464.
+- Gallican clergy, 27 sqq.
+- Ganalon, fictitious character, 164.
+- Gargano, Mount, 397.
+- Garonne, R., 21, 75, 284, 436.
+- Gascony, Vasconia, 164, 494 sq.
+- *Gau* [German], 64, 380.
+- Gaul, 21, 25, 27, 54, 259, 312.
+- Geilo, marshal, 116 sq.
+- Gellone, M., 288.
+- "General Admonition," 316 sq.
+  - " Abstract, 317 note.
+- Geneva, 48, 90.
+- Genewana, 281.
+- Gentilly, synod of, 448.
+- Gennapium, near Cleves, see Asnapium.
+- George, monk, 438 sq.
+- Gerberga, queen of Carloman, 82 sqq., 88 sq., 98, 499.
+- Germans, Germany, passim.
+- Germar, count, 350.
+- Gerold, bishop of Mayence, 55.
+- Gerold, duke in Bavaria, 183, 190, 198, 203, 212.
+- Gerold, duke of Suabia, 123.
+- Geroldus, Count of the East Marche, 457.
+- Gerona, *Gerunda* [Latin], 52, 156, 289.
+- Gersuinda, morganatic wife of Charles, 233.
+- Gewillieb, bishop of Mayence, 55.
+- Ghent, 405, 463.
+- Gisla, *Lucia* [Latin], sister of Charles, abbess of Chelles, 77, 79 sq., 183, 228, 232, 243 sq., 416, 445.
+- Gisla, Gisala, Gisela, *Delia* [Latin], daughter of Charles, 171, 175, 228 sqq., 233, 244.
+- *Glanz-Leinwand* [German], 237.
+- Godelib, Abodrite duke, 441.
+- Godofrid, see Gottfried.
+- Gontram, king, 58.
+- Gotheramnus, *ostiarius* [Latin], 302.
+- Gothia, 26, 52, 308, 329, 419 sq., 496.
+- Goths, 51.
+- Gottfried, Godofrid, Göttrick, king of the Danes, 141, 440 sqq., 460 sqq., 469, 490.
+- Göttrick, see Gottfried.
+- Gottschalk, count, 136.
+- Graben, 278.
+- Grado, city, 430, 454.
+- Grandvabre, 292.
+- "Grant of Pepin," 49, 510.
+- "Grant of Charles," 94.
+- Great Britain, 382, 489.
+- Greek emperor, 34, 154, 451, 497.
+- Greeks, 180, 304, 306, 309 note sqq., 332, 407, and passim.
+- Gregorian chant, 180, 263, 346 note.
+- Gregory I., pope, 332.
+- Gregory III., pope, 29, 333 note.
+- Gregory VII., pope, 38.
+- Gregory, abbot, and bishop of Utrecht, 146, 265.
+- Gregory, presbyter, 305.
+- Gregory of Tours, 57 sq.
+- Grifo, son of Charles Martel by Swanahild, 20, 30, 31, 33, 39, 49.
+- Grimald, abbot of St. Gall, 264.
+- Grimoald, duke of Bavaria, 20.
+- Grimoald, son of Arigiso, duke of Benevento, 178, 302 sqq., 306 sq., 309 sq., 410, 428.
+- Grimoald Storesaiz, 428, 446, 470.
+- Gundrada, *Eulalia* [Latin], 243 sq.
+- Gundrada, daughter of Pepin, k. of Italy, 446.
+- *Guntbadingi* [Latin], 387.
+- Gunthar, son of Tassilo, 209.
+
+### H
+
+- Habaccuc, prophet, 503.
+- Hadeln, land of, 133.
+- Hademar, Aquitanian noble, 313 note, 411, 433, 437.
+- Hadrian I., pope, 86 sqq., 89, 93 sqq., 122 sq., 167, 169, 173, 177 sqq., 199, 301 sqq., 308, 315, 326–338 passim, 340, 349, 364, 388, 502.
+- Hadumar, count of Genoa, 427.
+- Haimburg, 205.
+- Haimrich, Henricus, count, 436.
+- Halberstadt, 152.
+- Halle, 283.
+- Hallstadt, 406.
+- Hamaland, see Deventer.
+- Haman, 160.
+- Hamburg, 140.
+- Hannibal, 170.
+- Hanover, 495.
+- Harburg, 139.
+- Hardrad, count, 215.
+- Harduin, presbyter, 266 sq.
+- Harun-al-Raschid, 361, 413 sq., 430, 438 sq., 466.
+- Hartnidus, son of Bertha, 232.
+- Hase, R., 119.
+- Hassan, wali of Huesca, 299.
+- Hassio, Hessi, chief of the Eastphalians, 110.
+- Hathumar, bishop of Paderborn, 152.
+- Hatto, see Atto.
+- Hatto, son of Endo, 26, 32.
+- Hatto, count, 456.
+- Havel, R., 128, 496.
+- *Heerbann* [German], 22, 75, 90, 102, 103 sq., 109, 111, 114, 116, 129, 139, 155, 380, 390, 443.
+- *Heerschau* [German], 104.
+- Hegau, 419.
+- Heito, bishop of Basel, 265, 452, 456.
+- Heligoland, *Fosetesland* [German], 147 sq.
+- Helmgaud, count, 350, 408, 428.
+- Hemming, king of the Danes, 460 sqq.
+- Hemming, Danish prince, 461 sq.
+- Hennegau, 211.
+- Henry the Fowler, 123.
+- Henricus, count, see Haimrich.
+- Henry III., emperor, 255.
+- Henry of Luxemburg, 100.
+- Henry, son of Emperor Frederic I., 487.
+- Heraclius, emperor, 199.
+- Hercules, 297 sq., 498.
+- Heres, Arbeo, bishop of Freising, 207.
+- Heribert, *missus* [Latin], 463, 467.
+- Heriold, Harald, king of the Danes, 461.
+- Heriold and Reginfried, Danish kings, 461 sq.
+- *Herisliz* [German], 76, 182, 186 sq., 380.
+- Héristal, P., 134, 399.
+- Hermingard, Irmingard, consort of Louis the Pious, 292.
+- Herodotus, 221 note.
+- Hersfeld, 145 sq.
+- Herstelle, Heristelle, on the Weser, 134 sq., 137.
+- Herzegovina, 496.
+- Hesham, Hescham, emir of Cordova, 289, 295 sq.
+- Hessia, Hessengau, 145, 495.
+- *Hibernia Scottorum* [Latin], Ireland, 462.
+- Hildebrand, brother of Charles Martel, 18, 26, 27 note.
+- Hildebrand, king of the Lombards, 34.
+- Hildegard, queen of Charles, 80 and note, 81, 92, 171, 173, 183, 213 sq. and note, 219, 224 note, 228, 263, 471, 498.
+- Hildegard, daughter of Charles, 213.
+- Hildeprand, duke of Spoleto, 170 sq., 310.
+- Hildesheim, 152.
+- Hildibald, archbishop of Cologne, 148, 344, 350, 377, 388, 456, 482.
+- Hildigern, count, 457.
+- Hiltrud, Chiltrud, mother of Tassilo, 77, 188 note.
+- Hiltrud, daughter of Charles, 225, 228, 233.
+- Himiltrud, wife of Charles, 86, 171, 218, 228, 474, 498.
+- Hincmar, archbishop of Rheims, 253, 267, 374, 378.
+- Hippocrates, Sect of, 270.
+- Hirschau, school at, 265.
+- *History of Charlemagne and Orlando*, 165 note.
+- Hitherius, Itherius, abbot of St. Martin, Tours, and chancellor, 378.
+- Hliuni, Lüne, on the Ilmenau, Bardengau, see Lüne, 196, 200.
+- Hodoinus, 233.
+- Hof, 64 sq.
+- Hohbuoki, on the Elbe, fortress, 444, 469.
+- Holland, 494.
+- Hollenstedt, 139.
+- Holstein, 140.
+- Holy Cross, church of the, Barcelona, 413 and note.
+- Holy Land, 284, 439.
+- Holy Places, 216, 358, 398, 421, 439.
+- Holy Sepulchre, 358.
+- Homage, formula of, 181.
+- *Homiliarium* [Latin], 264.
+- *Homines faidosi* [Latin], 392.
+- Hostingabi, canton, *gau* [German], on the Baltic, 140.
+- Hostlaicus, 223.
+- Höxter, 134 note.
+- Hrabanus Maurus, see Rhabanus.
+- Hrodgaud, duke of Friuli, 166 sqq.
+- Hrodrud, daughter of Tassilo, 183 note.
+- Hrotfrid, notary, 440.
+- Hucbald, biographer of Lebuinus, 537.
+- *Huculvi, Hockeleve* [Latin], now Petershagen, on the Weser, 120.
+- Huesca, *Osca* [Latin], 157, 295, 435 sq., 467.
+- Hugh Capet, 124.
+- Hugmerke, Frisia, 149.
+- Hugo, count of Tours, 452.
+- Hunold, duke of Aquitaine, 26, 31, 32, 74 sqq.
+- Hungary, 103, 469.
+- Hunrich, abbot of Mondsee, 179.
+- Huns, Avars, 180, 184, 191, 199 and note, 200 sq. and note, 203, 469.
+- *Hypatos* [Greek], 430.
+
+### I
+
+- Ibagueta, chapel, 159.
+- Ibaneta, Pyrenees, 161.
+- Iberian peninsula, 494.
+- Ibn-al-Arabi, Saracen noble, 154, 157.
+- Illegitimacy, alleged, of Charles the Great, 41 note.
+- "Illustrative Extracts," 522 sq.
+- *Illyricum Orientale* [Latin], 333 note.
+- Illyricum, 492 note.
+- Ilmenau, R., 130.
+- Image worship, 331 sqq., 524 sqq.
+- Immorality of the clergy and royalty, 55.
+- Inconsistency of Charles, 314 sq.
+- Inde, M., near Aix-la-Chapelle, 286.
+- Imperial prerogatives at Rome, 367 sq.
+- India, Innichen, Puster valley, 209.
+- Ingelheim, P., 71, 186 sq., 271, 399.
+- Ingobert, count, 436 sqq.
+- Ingolstadt, 177, 419.
+- Ingram, count, 292.
+- Inn, R., 495.
+- "Instruction for the royal commissioners," *missi* [Latin], abstract, 317 and note, 320, 389.
+- "Invasion of Spain," 154 to 165.
+- Inventory of villa at Asnapium, 403 sqq.
+- Ireland, *Hibernia Scottorum* [Latin], 18, 462.
+- Irene, Byzant. empress, 173, 309 note, 359, 366, 407 sqq.
+- Irmingar, Frankish count, 465.
+- Irmingard, Hermingard, consort of Louis the Pious, 239.
+- Irmino, abbot, 456.
+- Irminsul, sanctuary of the Saxons, 105 sqq.
+- Iron crown of Lombardy, 99.
+- Isar, R., 495.
+- Isaac, the Jew, 414.
+- Isambard, Aquitanian noble, 433, 463.
+- Ischia, island, 465.
+- Islam, 289.
+- Islamism, 52.
+- Istria, 94, 192, 415.
+- Italy, passim.
+- *Itinerarium Antonini et Hierosolymitanum* [Latin], 165 note.
+- Itherius, see Hitherius.
+- Itzehoe, see Esesfeld.
+
+### J
+
+- Jacob, 472.
+- *Jamänner* [German], 383.
+- Jeremias, chancellor, 378.
+- Jerome, 261, 398.
+- Jerusalem, 358, 430, 438 sq., 449.
+  - " figurative, 398.
+- Jesse, bishop of Amiens, 350, 408, 456.
+- Johannes, archbishop of Arles, 456.
+- John the Deacon, 346, 350, 364.
+- John, presbyter and monk of St. Sabas, 449.
+- John, treasurer, 310.
+- Jordanis, 261.
+- Joseph, archbishop, 416.
+- Joseph, author, 259 note.
+- Joseph, deacon, 302.
+- Joseph, 472.
+- Joshua, 195, 315.
+- Jove, 258.
+- Judiciary, the, 65, 378 sqq.
+- Judith, empress, 477 note.
+- Jugur, 197.
+- Jumièges, *Gemeticum* [Latin], M., near Rouen, 183.
+- Justinian, 261.
+- *Juvarum* [Latin], see Salzburg.
+
+### K
+
+- "Karles lot," *pondus Caroli* [Latin], 406.
+- Karlsgraben, 278.
+- Karlshafen, 134 note.
+- *Karoli Magni Capitularia* [Latin], 517.
+- Kempten, M., 213.
+- *Kesselfang* [German], 60.
+- Khakhan, 197, 205 sq.
+- Khalif, see Bagdad, Cordova.
+- Klosterneuburg, 195.
+- Kochlsee, M., 183.
+- König Ludwig Kanal, 279.
+- *Königsbann* [German], 103, 133.
+- *Königszins* [German], 390.
+- Koran, the, 25.
+- Krems, on the Danube, 195, 210.
+- Kremsmünster., M., 209 sq.
+- Krumm, Bulgarian khan, 458, 460.
+- *Kunkel* [German], 65.
+
+### L
+
+- Lahn, R., 114.
+- Laidradus, archbishop of Lyons, 210, 266 sq., 297, 330, 456.
+- Lampedusa, island, 464.
+- "Lance," a man, 62.
+- *Landes de Charlemagne* [French], 22.
+- Landric, a convert, 148.
+- Languedoc, 285 sq.
+- Lantbertus, commissioner of Louis, 233.
+- Landfrit, abbot of Benedictbeuern, 207.
+- Langres, diocese of, 285.
+- Laon, *Laudunum* [Latin], 31, 183.
+- "Last years of Charles," 451–470.
+- Lateran, P. Rome, 94, 339, 341, 351.
+- *Latreia* [Greek], 334 note.
+- Laurentian hill, 204.
+- Lauresheim, M., 255.
+- Lauwers, Loubach, R., on the coast of Frisia, 148.
+- "Laws of duke Tassilo," 207.
+- Lebuinus, Anglo-Saxon missionary, 104 sq., 146 sq.
+- Lech, R., 185, 495.
+- Lech-feld, near Augsburg, 180, 186.
+- *Lechos* [Latin], 282.
+- Legendary description of "Charlemagne," 84.
+- Legends, 97, 99, 108, 111, 123 sqq., 160, 163 sqq., 188 note, 198 sq., 255, 291, 295 sq., 300, 476, 484 sqq.
+- Legislation, see "List of Capitularies," Appendix G., 517 sqq.
+- Leine, R., 142.
+- Lenne, R., 109.
+- Leo III., pope, 139, 329, 339–353 passim; 354–367 passim; 415 sq., 427 sqq., 440, 449 sq. 464 sqq., 485, 502.
+  - " " Trial and exculpation of, 355 sqq.
+- Leo III., the Isaurian, 332 note.
+- Leo IV., Byzantine emperor, 173.
+- Leo V., Byzantine emperor, 460.
+- Leo, a Sicilian, *spatharius* [Latin], 407, 452.
+- Leo, *spatharius* [Latin], 408.
+- Lerida, 433.
+- Lesbos, island, 408.
+- *Leudes* [Latin], 67.
+- Levant, the, 405.
+- *Liber pontificalis eccl. Ravenn.* [Latin], by Agnellus, 538.
+- Liburnia, 204, 452, 494.
+- Liège, P. Belgium, 71, 399.
+- Liguria, 414.
+- Liguria, Marche of, 496.
+- Linonians, 440 sq., 468, 496.
+- Lippe, R., 106, 111 sq., 115, 133, 148.
+- Lippeham, 138, 443.
+- Lippspringe, 139.
+- Lisbon, 296.
+- "List of Capitularies, set forth in the reign of Charles the Great," 517.
+- List of Metropolitan cities, 454 and note.
+- "List of the Months," 516.
+- List of signers of the testament of Charles, 456 sq., 457 note.
+- Litany, names of royal family in, 218.
+- "Literary Notes on some authorities for the History of Charles the Great," 526–541.
+- Literature on
+  - Annals, 533.
+  - Capitularies, 539.
+  - Diplomas, 539.
+  - Poetical History of Charlemagne, 539.
+- Liuderich, count, 302.
+- Liudger, missionary, bishop of Münster, 146, 147 sq.
+- Liutard, Liuthard, Aquitanian noble, 463.
+- Liutgard, Leutgard, al. *Ava* [Latin], queen of Charles the Great, 134 sq., 225 sqq., 243 sq., 299 sq., 313.
+- Liutperga, Liutberga, daughter of Desiderius, wife of Tassilo, 177, 179, 181 sqq., 185.
+- Liutprand, king of the Lombards, 29, 34, 263.
+- Loire, R., 19, 21 sqq., 54, 175, 284, 495.
+- Lombard Code, 382.
+- Lombard Plot, 166 sqq.
+- Lombards, 29, 34, 40, 49, 54, 155.
+- "Lombards, Fall of the," 86–100.
+- "Lombards, Sequel to Fall of the," 166–188.
+- Lombardy, passim.
+- Longlier, *Longolare* [Latin], P., 83.
+- Lorch, 389, 406.
+- Lord's Day, observance of, 319 sq.
+- Lorsch, M., 471, 529.
+- Lothair, emperor, 493.
+- Lothair, son of Charles, twin-brother of Louis the Pious, 7, s. a. 778.
+- Lotharius, 456 note.
+- Lotusa, Brabant, 148.
+- Louis the Pious, Chlodoicus, Hludowicus, son of Charles, king of Aquitaine, afterwards emperor, 132, 137, 139, 142, 171, 173, 192, 218, 230, 232, sqq., 283 sq., 286 sqq., 292 sqq., 296 sq., 299 sqq., 308, 313 note, 365, 410 sqq., 419 sq., 425 sq., 433 sqq., 436, 451, 463, 467, 471 note, 474, 476 sqq., 493, 497 and passim.
+- Louis, son of Louis the Pious, 493.
+- Louis, son of Rothrud and Roriko, 231.
+- Louis the Germanic, king of East Francia, 28.
+- Louis I., king of Bavaria, 278.
+- Lucania, 304.
+- Luceria, 409.
+- Lul, archbishop of Mayence, 145 sq., 152.
+- Lullus, 260.
+- Lüne, Hliune, on the Ilmenau, 130 sq.
+- Luni, 94.
+- Lupus, biographer of St. Wigbert, 145.
+- Lupus, duke of Vasconia, 75, 156, 160.
+- Luther, 498.
+- Lutrahahof, Lauterhofen, in the Northgau, 177, 419.
+- Lychas, 298.
+- Lyons, 26, 413, 419, 454.
+
+### M
+
+- Mâcon, 419.
+- Mactrians, 217.
+- Maeotic marshes, 204.
+- Magdalona, counts of, 285.
+- Magdeburg, 281, 283, 389, 406.
+- Magenfrid, *Thyrsis* [Latin], chamberlain, 192, 196, 244.
+- Maginarius, chaplain, abbot of St. Denis, 302 sq., 377.
+- Maguelonne, 27, 287.
+- Main, R., passim.
+- Maine, duchy, 219, 362, 472 sq.
+- Maingau, 254.
+- Mais, Tyrol, 208.
+- Mallorca, *Majorica* [Latin], island, 297, 465.
+- Malamocco, 431.
+- Malines, 405.
+- *Mall, mallstatt, mallberg* [German], 66.
+- Maltegard, morganatic wife of Charles, 233.
+- Manno, bishop of Neuburg, 207.
+- *Mansionarius* [Latin], 379.
+- Mansir, fictitious character, 164.
+- Mantua, 94, 171, 415 sq.
+- Marche, see Ancona, Brittany, Chieti, Eastern, Friuli, Liguria, Northern, Pannonian, Susa, Spanish.
+  - " military, 381, 395.
+- *Markung* [German], 64.
+- Marriage of Charles and Carloman, 77 note.
+- *Mars Gravidus* [Latin], 45 note.
+- Marseilles, 27.
+- Martel, see Charles.
+- "Martellus," 17.
+- Master of the Beavers, 379.
+- Master of the Game, 379.
+- Master of the Hounds, 379.
+- Master of the Hunt, 379.
+- Master of the Wardrobe, 379.
+- Mathilda, consort of Henry I., 124.
+- Maurienne, 39, 49, 419.
+- Mauritania, 295.
+- Maurontius, 26 sq.
+- Maurus de Nepi, bishop, 342.
+- Mayence, 106, 152 sq., 224, 275 sq., 351, 390 sq., 399, 405, 454, and passim.
+- Meaux, 83 note.
+- Mecklenburg, 496.
+- Medical men, 269 sq.
+- Mediterranean Sea, 156, 312, 463.
+- Meginarius, count, (?) 293.
+- Meginhardus, 456.
+- Meginherus, count of Sens, (?) 456.
+- Melle, *Metallum* [Latin], 406.
+- Mentana, 354.
+- Mequinenza, R., 434.
+- Mercia, episcopal sees in, 335.
+  - " king of, 200.
+- Merovingians, dynasty, 28, 36, 38, 57 sqq., 156, 498.
+  - " civilization of, 54 sqq.
+- Merstem, canton, 142.
+- *Metallum* [Latin], see Melle.
+- Metrical Passages, 160 sqq., 200 note, 214, 258, 262, 264 sq., 270 sq., 293, 337 sq., 473, 504 sq., 514, 521 sqq.
+- Metropolitan cities, list of, 454, and note.
+- Metz, 213, 261 sq., 272.
+- Meuse, Maas, R., 19, 175, 495.
+- Michael, the archangel, 164.
+- Michael I., Byzantine emperor, 458 sqq., 464.
+- Michael, metropolitan, 459.
+- Milan, 175, 454.
+- Military expeditions, see Chronological Annals.
+- Military Service, 67, 102 sqq., 380.
+- Milito, Sorabian prince, 282.
+- Milo, count of Narbonne, 284 sq.
+- Milvian Bridge, 351.
+- Mimigernäford on the Aa, see Münster.
+- Minden, on the Weser, 117, 137, 152, 487.
+- Minorca, *Minorica* [Latin], island, 297.
+- Miracles, 108, 111, 124, 343, 412. See Omens.
+- Miré, near Tours, 22.
+- *Missus, missi* [Latin], 283, 350 sq., 367, 373, 381 sq., 389, 391, 395, 397, 429, 441, 444, 451, 475, and passim.
+- Modena, 420.
+- Mohammed, 290, 315.
+- Mohammedanism, 25.
+- Momyllus Augustulus, 366.
+- Monasteries, 285 sqq.
+- Mondsee, M., dioc. of Passau, 179.
+- Monk of Angoulême, *Monachus Engol.* [Latin], 489, 494.
+- Monk of St. Gall, *Monachus Sangallensis* [Latin], 80 sq., 118, 198, 220 sq., 258, 272, 312, 343, 353, 439, 444 note, 538.
+- *Mons Bardonis* [Latin], 94.
+- Monselice, *Mons Silicis* [Latin], 94.
+- Monte Casino, M., 33, 34, 42, 147.
+- Months, List of the, 516.
+- *Monumenta Alcuiniana* [Latin], 536.
+  - " *Carolina* [Latin], 536.
+- Monza, 99.
+- Moors, 296 sq., 312, 426 sqq., 434 sqq., 437, 464 sq. and passim.
+- Moravians, 208, 496.
+- Mors Gothorum, *Mourgoudou* [French], 287.
+- Mortal Powder, 446 sq.
+- Mosaics, 272.
+- Moselle, Mosel, R., 114, 426.
+- Moses, 184, 315, 340.
+- Moslems, 21 sqq., 40, 51, 157 sq., 160, 413, 433, 435 and passim.
+- Mount Calvary, 358.
+- Mount Cenis, 49, 90 sq., 419.
+- Mount Jupiter, 90.
+- Mount of Olives, 358, 449.
+- Mount Zion, 358.
+- Moutiers-en-Tarantaise, 454.
+- Münden, near the confluence of the Fulda and Werra, 117.
+- Münster, in Westphalia, 148, 152.
+- Murbach, in Alsatia, see *Annal. Murbac.* [Latin]
+
+### N
+
+- Naples, city, 304.
+  - " duchy, kingdom, 310, 495.
+- Narbonensis, 299.
+- Narbonese Gaul, 312.
+- Narbonessia, 454 note.
+- Narbonne, 24, 26, 40, 51, 284, 291, 454 note, 496.
+- *Nasg* [Latin], 492 sq., 502.
+- Nationalities in Francia, 54.
+- Nautharius, abbot of St. Omer, 440.
+- Navarra, Navarre, 432, 494.
+- Nessus, 298.
+- Nestorianism, 326.
+- Nestorius, 326.
+- Neuching, synod of, 207.
+- Neufchâteau, fortress in the Ardennes, 32.
+- Neustria, 18 sqq., 30, 33, 52, 74, 183, 216, 419, 495, and passim.
+- Neustrians, 18 sqq., passim.
+- Nevers, on the Loire, 419.
+- New City, *Cittanuova* [Italian], 420.
+- "New Era," 407–425.
+- New Rome, 352, 366.
+- Nicæa, council of, 331, 333 sq., 448.
+- Nice, *Nizza* [Italian], 465.
+- Nicephorus, Byzant. emperor, 408 sq., 430, 452, 458, 460.
+- Nicephorus, patriarch, 459 sq.
+- Nicetas, patrician, 429 sq.
+- Niederaltaich, 210.
+- Nieto, R., 495.
+- Nifridius, archbishop of Narbonne, 330.
+- Nigellus, Ermoldus, poet, 301, 477 note.
+  - " " *Carmina* [Latin], 538.
+- Nîmes, 27.
+- Nimeguen, P., 271, 399, 426, 439.
+- Nithard, historian, 143, 232, 267.
+- Noirmoutier, island, 312.
+- Nomentum, Mentana, 354.
+- Nonantola, M., 460.
+- Nordliudi, 136.
+- Norican Alps, 420.
+- Norman frontier, 462.
+- Normans, 312, 313 note, 462 sq.
+- Northalbingians, 121, 130 sq., 136 sq., 139 sqq., 440.
+- Northern Marche, 495.
+- Nordgau, Northgau, 177, 419, 495.
+- Northumbria, episcopal sees of, 335.
+- Northmen, 105, 312 sq., 436.
+- North Sea, 133, 276, 441, 495.
+- Norththuringia, gau of, 138.
+- Notker, the Stammerer, 538.
+- *Novempopulonia* [Latin], 454 note.
+- Novi, 93.
+- Noyon, 74.
+
+### O
+
+- Oath of Allegiance, forms of, 372 sq.
+  - " " Grimoald, 306 and note.
+- Oaths, 59.
+- Obelierius, doge of Venice, 415, 430, 452, 457.
+- Ocker, R., 110.
+- Oder, R., 21, 494 sqq.
+- Odilo, duke of the Bavarians, 32, 77, 189, 210.
+- Odilo, count, 233.
+- Odo, architect, 272.
+- Odysseus, 498.
+- Offa, king of Mercia, 232, 335, 472.
+- Officers, executive and others, 379 and note.
+- Ogger, see Autcharius.
+- Oléron, island, 312.
+- Olivolo, bishop of, 430.
+- Omens, 490 sq.
+- Ommiad family, 154, 295.
+- Oportunus, abbot of Mondsee, 207.
+- Orbieux, R., 291.
+- Ordeals, 60 sq.
+- Ore Mountains, *Erzgebirge* [German], 281.
+- Orlando, Roland, 164 sq.
+- Orleans, 175, 300, 313 note.
+- Orosius, 261.
+- Ortona, 409.
+- Osca, see Huesca.
+- Osnabrück, 117, 151, 487.
+- Ostragau, Ostergau, Asterga, 123, 147.
+- Otfried, 267.
+- Otgar, see Autcharius.
+- Otker, see Autcharius.
+- Otto I., emperor, 124.
+- Otto III., emperor, 485 sq.
+- Otto, count of Lomello, 485.
+- Ottos, the, 124.
+- Osulfus, servant of Alcuin, 473.
+- Otulfus, = Audulfus, seneschal (?), 456.
+- Oviedo, 494.
+- Owar, see Loire.
+
+### P
+
+- Paderborn, 106, 111 sq., 121, 123, 130, 139, 150 sqq., 154, 230, 345 sqq., 364, 399.
+- "Palace School," 241–252, 254, 257 sqq.
+- Palaces, 271 and note.
+- Palatiolum, *Palaiseau* [French], 73.
+- Palestrina, 431.
+- Pampeluna, 157 sq., 432, 468, 495.
+- Pannonia, 129, 192, 201, 204 sq., 302, 468 sq.
+- Pannonian Marche, 495.
+- Paris, 19, 313, 382, 405.
+- Parma, 94, 172, 241.
+- Partecipazio, Agnello, doge of Venice, 458.
+- Partition of the empire, 417–425.
+- Paschalis, antipope, 487.
+- Paschalis, *primicerius* [Latin], 341, 351, 355, 366 sq.
+- Passau, 208.
+- Patelaria, Pantelaria, island, 427.
+- Paterno, Italy, 486.
+- *Patricius* [Latin], Patrician, 40, 87, 93, 99, 366, 497, 510.
+- *Pauli Diaconi Historia Langobardorum* [Latin], 538.
+  - " " *Opera* [Latin], 263 note, 264.
+  - " " *Gesta epp. Mett.* [Latin], 538.
+- Paulinus, grammarian, patriarch of Aquileia, 168, 197, 200, 202, 204, 301, 329, 451 note.
+- Paulipert, commissioner, 307.
+- Paulus, Byzant. admiral, 431.
+- Paulus Diaconus, Paul the deacon, historian and poet, 168 sq., 213, 224, 260 sqq., 263.
+- Paulus, duke of Zara in Dalmatia, 415.
+- Paulus, prefect of Cephalonia, 432.
+- Pavia, 40, 43, 49, 77, 80, 92, 97 sqq., 168, 171, 180, 260 sq., 267, 309, 420, 498.
+- Peene, R., 128.
+- Pelagius I., pope, 358.
+- Pepin of Landen, 266.
+- Pepin of Heristal, 17, 18.
+- Pepin, son of Charles Martel:
+  - " mayor of the palace, 29 note sqq., 33 38.
+  - " king, 39 sqq. to 54, 88, 179, 187, 214, 397, 483.
+- Pepin = Carloman, king of Italy, 150, 173 sq., 175 sqq., 180, 182, 192, 194, 201 sq., 218, 230, 299 sqq., 308 sq., 313 note, 345, 354, 360 sq., 409 sq., 419 sq., 425 sqq., 444, 445 and note, 451, 474 sq., 496.
+- Pepin the Hunchback, 171, 196, 218 sqq., 474.
+- Pepin II., son of Louis the Pious, 477 note, 493.
+- Perahtcoz, abbot of Schliersee, 208.
+- Periander, 221 note.
+- Persia, 21.
+- Persians, 140.
+- Persian ambassadors, 238.
+- Perugia, 34.
+- Peter, abbot of Nonantola, 460.
+- Peter of Pisa, grammarian, 260 sqq.
+- Peter *Petrus* [Latin], bishop of Verdun, 97, 168, 219, 222 sq., 386.
+- Petershagen, see Huculvi.
+- Pföring, on the Danube, 180.
+- "Pibroch of Donald Dhu," 162.
+- Pilgrimage, 397 sq.
+  - " places of, 397 sq.
+- Piombaruola, convent, 34.
+- Pious, piety, 453 note.
+- Piracies, 312, 463 sqq.
+- *Placita* [Latin], 374.
+- *Plébiscites* [French], 383.
+- Plectrud, wife of Pepin of Heristal, 18, 19.
+- Po, R., 97, 211, 420.
+- *Poeta Saxo* [Latin], 109, 225, 535.
+- Poitiers, 22, 32, 405.
+- Poitou, 406.
+- Political division, 64.
+- Pomona, 228.
+- Ponthion, *Pontico, Pontio* [Latin], P., 41, 72.
+- Ponza, island, 465.
+- Populonia, Tuscia, 178.
+- Porto-Venere, 405, 414.
+- *Praesul* [Latin], 45 note, 48.
+- *Precariae* [Latin], 384.
+- Prerogatives, imperial, at Rome, 367 sq.
+- *Primicerius* [Latin], 174.
+- Prince's Island, *Prinkipos* [Greek], 408 sq.
+- Procession of the Holy Ghost, dogma of, 448 sqq.
+- Procopia, Byzant. princess, 458.
+- Prodigies, 447, 490 sq.
+- "Progress of Charles, a. 800," 313 note.
+- Propontis, 460.
+- Proserpina, 483.
+- *Proskunesis* [Greek], 334 note.
+- *Protospatharius* [Latin], 459.
+- Provençals, 155.
+- Provence, 21, 26, 27, 30, 52, 297, 308, 419 sq., 494, 496.
+- Provincial synods, 390 sqq., 476.
+- Prüm, M., 221, 474.
+- Prussia, 495.
+- Pseudonyms, 243 sq.
+- Puppet-kings, see "Charles Martel," 174.
+- Pusste Sarto-Sar, 197.
+- Puster Valley, 209.
+- Pyrenees, the, 21, 52, 155 sqq., 468, 494 sqq.
+
+### Q
+
+- *Quaestio* [Latin], 355.
+- Quentowic, on the Canche, 405.
+- Quierzy on the Oise, P., 5, 399, 416.
+
+### R
+
+- Raab, R., 195, 495.
+- *Rachimburgii* [Latin], 66.
+- Rachis, king of the Lombards, 34, 50, 261.
+- Radbertus, ambassador, 414.
+- Rado, chancellor, 378.
+- *Radoleiba* [German], 492.
+- Radolf, count, 214.
+- Ragenfrid, mayor of the palace, 19.
+- *Raht* [German], 492, 502.
+- Ratgar, abbot of Fulda, 265.
+- Ratisbon, 129, 181, 186, 189, 192, 194, 196, 205, 219 sqq., 287, 399, 406.
+- Ravenna, 39, 49, 272, 274 sq., 416, 429.
+- Ravenna, territory, 39.
+- Ravenna, bishopric, 40, 169, 454, 456.
+- Raynaldus, archbishop of Cologne, 487.
+- Recognition of Charles by the Byzantines, 459.
+- Rednitz, R., 277.
+- Reformation, the, 331.
+- Reggio, *Rhegium* [Latin], 94, 420, 466.
+- Reginold, Danish prince, 441.
+- Reginpert, abbot of Mosburg, 208.
+- Regusa, 495.
+- Reichenau, M., 203, 213.
+  - " school at, 264 sq.
+- Reims, Rheims, 28, 390, 398, 416, 454.
+- Relics, 59, see Saints, St.
+- Religious readings, 236, 240.
+- *Renovatio Imperii* [Latin], 366.
+- Reric, commercial emporium, 441 sq.
+- "Résumé," 490–505.
+- Retrospective view of Christian effort in Bavaria, 206.
+- Reuss, R., 495.
+- Revenue, 394 sqq.
+- *Rex* [Latin], 459.
+- Rezat, Suabian, R., 277 sq.
+- Rhabanus Maurus, 256, 265, 267, 446, 493.
+- Rhé, M., in island of that name, 32, 74, 312.
+- Rhenish Provinces, 495.
+- Rhetian Alps, 495.
+- Rhine, R., 20, 21, passim, 54, 101, 129, 180, 275, 405, 419, 426, 495.
+- Rhine-bridge, Mayence, 275 sqq., 490.
+- Rhone, R., 26, 27, 436.
+- Rialto, 431, 458.
+- Richard, brother of Angilbert, commissioner, 293.
+- Richard, a Christian Saxon, 136, 142.
+- Richbodo, archbishop of Treves, 329.
+- Richolf, a Christian Saxon, 136.
+- Richowinus, count, 457.
+- Richulf, Richulfus, Ricolfus, *Damoetas* [Latin], archbishop of Mayence, 152 sq., 243 sq., 276, 356, 456.
+- Riculf, deacon, 175.
+- Ried, 278.
+- Rigontha, princess, 58.
+- Ring of the Avars, 194, 198.
+- Ripuarian Law, 382, 475 note.
+- Riustrigau, on the Weser, 129.
+- Roadhart, abbot of Isana, 208.
+- Robert the Strong, 124.
+- Rocculfus, count, 457.
+- Roland, prefect of the Marches of Brittany, 124, 159 sqq.
+- Roland's horn, 160.
+- Roland, Song of, 163 sqq.
+- Romagna, 49, 415.
+- Rome, Romans, passim.
+- Roncesvalles, Roncevaux, pass of, 156, 159 sqq., 164, 494.
+- Roriko, count, 231.
+- Rosellæ, in Tuscia, 178.
+- Roselmus, governor of Chieti, 409.
+- Rosogabi, canton, *gau* [German], in Saxony, 140.
+- Rostagnus, count of Gerona, 410 sq.
+- Rotechild, *baiulus* [Latin] of King Pepin, 174, 451 note.
+- Rothaid, daughter of Charles, 171, 228 sq.
+- Rothard, Frankish duke, 40.
+- Rothgar, count, 350.
+- Rothild, daughter of Charles, 233.
+- Rothrud, Rotrud, *Columba* [Latin], daughter of Charles, 171, 173, 228 sq., 231, 244, 262, 309, 445.
+- Rouen, 313, 454.
+- Rotrud, wife of Charles Martel, 20.
+- Rouergue, 292.
+- Roussilon, 410, 412.
+- Royal hunt, 237 sqq.
+- *Rugæ* [Latin], 361 and note.
+- Rügen, island, 496.
+- Ruhr, R., 109.
+- Rule of St. Benedict, 147, 285 sq., 392, and passim.
+- Rules of St. Pachomius and St. Basil, 285.
+- Rumoald, Romuald, eldest son of Arigiso, duke of Benevento, 177 sq., 302.
+- *Rythmus in obitum Caroli Magni Augusti* [Latin], 521.
+
+### S
+
+- Saale, R., 54, 116, 120, 281 sqq.
+- Sabaria, near Sarwar, 195, 205.
+- Sabina, province, 173.
+- *Sacellarius* [Latin], 379.
+- Sachsenhausen, 143.
+- "Sacred League," 96.
+- Saintes, 52.
+- Salerno, 177, 303 sq.
+- Salian Law, 61, 382.
+- *Salii* [Latin], 45 note.
+- Salvianus, Massil. 62.
+- Salz, P., on the Frankish Saale, 399, 409.
+- Salzburg, *Juvarum* [Latin], 278, 454.
+- Salzburg, *Verbrüderungsbuch* [German], etc., 208.
+- Samnium, 33.
+- Samoussy, P., 78 note, 82.
+- Saracens, 21, 29, 154 sq., 158, 289 sqq., 296, 297, 299, 315, 412, 433 sq., 463 sqq., 478.
+- Saragossa, 156 sqq., 411, 435 sq., 494.
+- Saranza, 94.
+- Sardinia, island, 426 sqq., 464 sq., 495.
+- Sarwar, 205.
+- *Sassen* [German], 54.
+- Save, R., 496.
+- Savoy, 419.
+- Savuto, R., 495.
+- *Sax, sachs* [German], 54.
+- Saxon bishoprics, 144, 151 sq.
+- Saxon hostages, 142.
+- "Saxon War," 101 to 153.
+- Saxons, 26, 27, 39, 54, passim to 153, 192, and passim.
+- Saxony, passim.
+- Saxony, modern, 495.
+- *Scabini* [Latin], 66, 382 sq.
+- *Scara, scaræ* [Latin], 102, 109, 282, and passim.
+- *Scaramangium* [Latin], 408.
+- Scheldt, R., 463, 495.
+- Schessel, 389, 406.
+- Schlettstadt, Alsatia, P., 167, 170, 399.
+- Scholars, 265 sqq.
+- Schools, 264 sqq.
+- Schools of Rome, 93, 351, 354.
+- Schwante, on the Warnow, 137 note.
+- Schwentine, R., 137.
+- Sclaomir, prince of the Abodrites, 444.
+- Sclavonians, 63, 77, 105, 116 sq., 127, 179, 208, 211 sq., 280 sq., 405 sq., 407, 441 sq., 469, 489, 493, 495 sq.
+- Scotchmen from Ireland, 258 sqq.
+- Scots, 462.
+- Scott, Sir Walter, 160.
+- Segre, R., 434.
+- Seligenstadt, Mühlheim on the Main, 256.
+- Selz, Alsatia, under Carloman, 6.
+- Semela, prince of the Demelcians, 281.
+- Sendfeld, between the Alme and the Diemel, 130.
+- Seneschal, 379.
+- Sens, 21, 454.
+- Septimania, 21, 24, 26, 51 sq., 284, 289 sq., 297, 299, 419 sq., 495.
+- Septimanians, 155.
+- Serenus, bishop of Massilia, 332.
+- Serenus Sammonicus, 271.
+- Sergius, 88 note.
+- Servia, 495.
+- Sicily, 304, 333 note, 407, 427, 464.
+- Sicily, patrician of, 465 sq.
+- Siegfried, claimant of the Danish throne, 461.
+- Siena, bishop of, 368.
+- Sigburg, Sigiburg, *Hohensyburg* [German] al., fortress, 109, 111.
+- Sigfrid, king of the Danes, 113.
+- Sigidio, abbot of Weltenburg, 208.
+- Signers of the testament of Charles, list of, 456 sq., 457 note.
+- Sigulf, *Vetulus* [Latin], abbot of Ferrières, biographer of Alcuin, 242 note, 300 sq.
+- Silida, R., 436.
+- Sindpert, bishop of Ratisbon, 193, 207.
+- Sirmium, 494.
+- Sizer, Pyrenees, 159.
+- Slavery, 64.
+- Slave-trade in Italy, 172.
+- Sleswig, town, see Sliesthorp.
+- Sleswig, country, 141.
+- Sliesthorp, *Sleswig* [German], 441.
+- Sluis, 405.
+- Smaragdus, abbot of St. Mihiel on the Meuse, 260, 265, 449.
+- Smeldings, 440 sqq.
+- Social condition under the Merovingians, 54–68.
+- Social condition in Lombardy and Italy, 171 sqq.
+- Soissons, 19, 36, 74.
+- *Solatium* [Latin], 130.
+- Solimary, Arab chief, 52.
+- Solomon, 352.
+- Somme, R., 142.
+- Songs, 240.
+- Sora, 178.
+- Sorabians, 54, 116, 128, 282 sq., 496.
+- Soracte Mount, M., 33, 397.
+- Sovana, 178.
+- Spain, 21, 154–165 passim.
+- Spanish Marche, 287, 290, 294, 435, 451, 489, 496.
+- *Spatharius, spatharii* [Latin], 304, 407 sq., 408 note; 430, 451 sq., 464.
+- Spectacular displays, 239.
+- Splugen, pass of, 171.
+- Spoleto, duchy, 94, 354, 428, 470.
+  - " duke of, 99, 166.
+  - " city, 343 sq.
+- St. Augustin, 236.
+- St. Basil, 285.
+- St. Boniface, 27, 28, 34, 35, 37, 55 sqq., 108, 114, 123, 149, 153.
+- St. Columbanus, abbot of Bobbio, 503, 521 note.
+- St. Corbinianus, relics of, 208.
+- St. Eucherius, bishop of Orleans, 28, 29.
+- St. Germanus, relics of, 73.
+- St. Marcellinus and St. Peter, relics of, 490.
+- St. Martin, 299.
+- St. Pachomius, 285.
+- St. Paul, the apostle, 315, 343.
+- St. Peter, the apostle, literally and figuratively, 43, 44, 49 and note, 78, 169, 172, 178 sq., note 1, 303, 305, 341, 427, and passim.
+- St. Peter, chair of, 352, 356.
+- St. Peter, church of, 423.
+- St. Peter, territory of, 420, and passim.
+- St. Peter, tomb of, 29, 94, 216, 361 sqq., 397, 450.
+- St. Valentinus, relics of, 208.
+- St. Vandrille, Wandregesilus, 266.
+- St. Wigbert, relics of, 145 sq.
+- St. Alban's, Mayence, 224.
+- St. Amand, M., 211.
+- St. Ambrose, Milan, 445 sq. note.
+- St. Aniane, M., in Aquitaine, 265.
+- St. Ansanus, M., 368.
+- St. Arnulf's, M., Metz, 213.
+- St. Benedict, M., Monte Casino, 33.
+- St. Columba, 433.
+- St. Denis, church of, 29, 50, 53, 72, 213 sq., 483.
+- St. Denis, fair of, 405.
+- St. Denis, M., 41, 51 sq., 222, 267 sq., 398, 483.
+- St. Dié, M., Vosges, 483.
+- St. Erasmus, M., Rome, 342.
+- St. Faro apud Meldos, Meaux, M., 83.
+- St. Gall, M., 221, 273.
+- St. George's, Rome, 342.
+- St. Germain d'Auxerre, 266.
+- St. Germain des Prés, M., Paris, 51, 398.
+- St. Goar, M., 182, 224 note.
+- St. Guillelm, St. Guillaume du Désert, M., 288.
+- St. John Baptist, altar of, 486.
+- St. Josse-sur-Mer, 242.
+- St. Laurentius *ad craticulam* [Latin], Rome, 342.
+- St. Loup (*Lupus* [Latin]), M., dioc. of Troyes, 242.
+- St. Maria Maggiore, basilica of, Rome, 94.
+- St. Martin's, Mayence, 493.
+- St. Martin, M., Tours, 51 sq., 213, 225, 242.
+- St. Mary the Virgin, basilica of, Aix-la-Chapelle, 85, 271 sq., 274 sq., 416, 459, 474, 479, 483, 485, 487, 490 sqq.
+- St. Mary's Freising, 208.
+- St. Mary's, Reichenau, 203.
+- St. Maurice, M., 40, 416.
+- St. Maximin, M., Trèves, 183.
+- St. Médard, M., near Soissons, 416.
+- St. Michael, the archangel, sanctuary of, Mount Gargano, 397.
+- St. Mihiel, M., on the Meuse, 260, 265.
+- St. Paul, basilica of, Rome, 363, 450.
+- St. Peter, basilica of, Rome, 93 sqq., 351, 354 sqq., 360 sqq., 450, 456, 459, 474.
+- St. Peter's, Bremen, 150.
+- St. Peter's, M., Lotusa, Brabant, 148.
+- St. Peter's, Salzburg, 208.
+- St. Quentin, M., 398.
+- St. Rémi, Remigius, M., near Rheims, 365, 416.
+- St. Riquier, M., 254, 267, 300, 313 note.
+- St. Sabas, M., Jerusalem, 358, 449.
+- St. Saturninus, hermitage, 285.
+- St. Seine, M., diocese of Langres, 285.
+- Sts. Simon and Thaddeus, M., Hersfeld, 145.
+- St. Sithiu, M., at St. Omer, 39.
+- Sts. Stephen and Sylvester, M., Rome, 342.
+- St. Stephen's, Tours, 300.
+- St. Symphorian, chapel of, 73.
+- St. Vincentius, church of, 73.
+- St. Vitale, Ravenna, 274.
+- St. Wandrille, M., diocese of Rouen, 266 sq.
+- St. Zeno, Verona, 446 note.
+- Stephanus, papal legate, 327.
+- Stadtberge, see Eresburg.
+- Standard of the Cross, 358.
+- States of the Church, 496.
+- Stauracius, Byzantine emperor, 458.
+- Stebilinius, count of Treviso, 167 sq.
+- *Stein am Anger* [German], 195.
+- Stephen III., pope, 36, 39, 40–50, 53, 72, 76, sqq., 85, 87 sq., note, 498.
+- Stephen V., pope, 365.
+- Stephen, Stephanus (?), count, 382, 456.
+- Stör, R., 443.
+- Strasburg, 204, 264, 477 note.
+- Sturm, Sturmi, abbot of Fulda, 63, 77, 150, 210, 270, 406.
+- Styria, 208.
+- Suabia, *Suavia, Alemannia al.* [Latin], 20, 30, 180, 495.
+- Suabians, 20, 22.
+- Sualafeld, 277.
+- Suentana, Zventinefeld, 137.
+- Suetonius, *Life of Augustus*, 254, 491, and note.
+- Süntel Range, 117, 119, 142.
+- Superstition, 59 sqq.
+- Susa, 420.
+- Suza, Marche of, 496.
+- Swanahild, mother of Grifo, 20, 30.
+- Sweden, 462.
+- Sylvester, pope, 341.
+- Symbolical gifts from Jerusalem, 358.
+- Syria, 21, 439.
+
+### T
+
+- "Table of Alcuin's epistles to Charles," 511.
+- "Table of the Winds," 516.
+- Tanchon, monk, 273.
+- Tarantaise, 419.
+- Tarragona, 433.
+- Tassilo, duke of Bavaria, 33, 51, 76 sq., 82, 175 sq., 179–188, 189, 206–210, 306, 314, 385, 419, 499.
+  - " daughters of, 183 note.
+- Tatar, 197.
+- Tatto, 264.
+- Taxes, 396.
+- Teano, 178.
+- Teatensian territory, 470.
+- Termini, 191.
+- *Terzatto* [Italian], Tharsatica, 203.
+- Testaments of Charles, 426, 453.
+- Testry, battle of, 17.
+- Tharsatica, *Terzatto* [Italian], 203.
+- *Thegani Vita Hludowici imperatoris* [Latin], 537.
+- Theganus, Thegan, Degan, chorepiscopos in the diocese of Treves, 477 note.
+- Theiss, R., 197, 202, 494 sqq.
+- Theodelinda, queen of the Lombards, 100.
+- Theoderic, king of the Ostragoths, equestrian statue of, 275.
+- Theoderic, Saxon chief, 32.
+- Theoderic, or Thierry IV., 18, 20.
+- Theoderic, count in Ripuaria, 117, 129, 192, 196.
+- Theoderic, infant son of Charles, 474.
+- Theodo, son and associate of Tassilo, 181, 183, 185, 210.
+- Theodoald, grandson of Pepin of Heristal, 18.
+- Theodoin, count of Vienne, 39.
+- Theodore, khakhan, 205 sq.
+- Theodore, musician, 180.
+- Theodore, prefect and patrician of Sicily, 310.
+- Theodrada, daughter of Charles, 225, 228 sqq., 233.
+- Theodrada, daughter of Pepin, k. of Italy, 446 note.
+- Theodulf, *Pindar* [Latin], bishop of Orleans, 200, 222, 224 note, 226, 228 sq., 243 sq., 254, 257 sq., 266 sq., 297, 300, 321, 329, 337, 351 sq., 355 sq., 364, 449, 456, 473, 502.
+- Theognostus, *protospatharius* [Latin], 459.
+- *Theophanis chronographia* [Latin], 538.
+- Theophylact, papal legate, 327.
+- Theophylactus, son and associate of Michael I., 459.
+- Theotbert, son of Tassilo, 183.
+- Theotmalli, Detmold, 119.
+- Theudald, count, 219.
+- Thierry IV., see Theoderic.
+- Thionville, Diedenhofen, P. on the Moselle, 399, 417 sq., 474.
+- "Third estate of men," 65.
+- Thomas, patriarch of Jerusalem, 438.
+- Thomas, archbishop of Milan, 175.
+- Thrasco, prince of the Abodrites, 137, 140, 440 sqq.
+- Thrasybulos, 221 note.
+- Thrianta, Frisia, 149.
+- *Thungini* [Latin], 380.
+- Thuringia, 30, 116, 120, 133, 216, 419, and passim.
+- Thuringians, 22, 54, 120, 215 sqq., 282, and passim.
+- Tiber, R., 494.
+- Tiberius, 491 note, sq.
+- *Ticinum* = *Pappia* [Latin], Pavia, 309.
+- Titles:
+  - Charles Martel, 30 note.
+  - Pepin, 31 note.
+  - Carloman, 31 note.
+  - Charles the Great, 74 note, 99, 331, 362, 364, 371 sq. 418, 429, 453, 484, 502.
+  - Louis the Pious, 480.
+- Toledo, council of, 448.
+- Tolls, 396 sq.
+- Torgan, 419.
+- Tortosa, 433 sqq., 463 sq.
+- Toscana, see Tuscia, 420.
+- Toscanella, 178.
+- Toulouse, city, 21, 58, 289, 294.
+- Toulouse, county, duchy of, 284.
+- Tours, 22 sqq., 52, 225, 227, 264, 299 sq., 313 note, 351 sq., 390, 454, 503.
+  - " territory, *Touraine* [French], 419.
+- Tours, battle of, 25 sq.
+- Transpadana, 420.
+- Trasarus, M., 266.
+- Trave, R., 496.
+- "Treatise of the Order and State of the Palace, etc.," 253.
+- Treaty of peace with the Byzantines, 452.
+  - " the Danes, 461 sq.
+  - " the khalif El Hakem, 467.
+- Trebbia, R., 503.
+- Trent, Trident, Trient, 208.
+- Trent, Marche of, 496.
+- Trèves *Trier* [German], 272 note, 454.
+- Treviso, 168 sq., 430, 438.
+- "Trial by Combat," 59 sq.
+- *Tributarii ecclesiarum* [Latin], 385.
+- *Triduum* [Latin] of prayers, 123, 193 sq., 447.
+- Trudo, M., 28, 521 note.
+- *Trustes* [Latin], 385.
+- "Tudites," 17.
+- Tudun, 196, 200 sq., 205.
+- Tullius, paramour, 233.
+- Tuln, 195.
+- Turpin, 164.
+- Tuscany, 310; see Tuscia.
+- Tuscia, Tuscany, Toscana, 310, 420.
+- Tyrinthus, infant of, 298.
+- Tyrol, 179, 208.
+- Tyrrhenian Sea, 494.
+
+### U
+
+- United States, 382.
+- Unruochus, count, *missus* [Latin], 456.
+- Urbino, duchy, 49.
+- Urgel, *La Seo de Urgel* [Spanish], 330.
+- Ursio, bishop of Vienne, 386.
+- Uto, abbot of Ilmünster, 207.
+- Utrecht, school at, 146, 265.
+
+### V
+
+- *Vacua annona* [Latin], 386.
+- *Val-Carlos* [Spanish], Pyrenees, 159.
+- Valence, 26.
+- Valencia, emir of, 435.
+- Valens, 261.
+- Valentinus, Valentine, doge of Venice, 430, 458.
+- Valla-Ibana, 434.
+- Valva, Spoleto, 304.
+- Vandals, 454 note.
+- Varghel, Vargalaha, on the Unstrut, 72.
+- Vasconia, 21, 156, 284, 286, 419.
+- Vasconians, 54, 159, 289, 467 sq.
+- Veneti, 217.
+- Venetia, 415, 431 sq., 452, 494, 496.
+- Venice, 405, 415, 429 sqq., 457 sq.
+- *Veni Creator Spiritus* [Latin], 449 note.
+- Ver, P., 313 note.
+- "Verbrüderungsbuch of St. Peter's, Salzburg," 208.
+- Vercelli, Verceil, 414, 420.
+- Verden, on the Aller, 118, 144, 151 sq., 213, 443, 445, 448, 499.
+- Verdun, 272 note, see Petrus.
+- Verona, 92, 97 sq., 429.
+- Verzenay, 170.
+- Vienne, R., 22.
+- Vienne, 26, 454.
+  - " M., 42.
+- Vigilius, pope, 358.
+- Villa-Rubea, 434.
+- Villas, 399–405.
+  - " list of, 399.
+- Villedaigne, battle of, 291.
+- Vincy, battle of, 19.
+- Virgil, 347.
+- Virgilius, bishop of Salzburg, 56, 207 sqq.
+- *Visio domni Caroli* [Latin], 539.
+- *Visio Wetini* [Latin], 203 note, 228 note.
+- "Vision of Charles the Great," 492 sq.
+- *Vita S. Arnoldi* [Latin], 539.
+- *Vita Caroli* [Latin], by Einhard, 536.
+- *Vita Hadriani I.* [Latin], 538.
+- *Vita Hludowici imperatoris* [Latin], 537.
+- *Vita Hludowici imperatoris* [Latin], by Astronomus, 537.
+- *Vita S. Lebuini* [Latin], by Hucbald, 537.
+- *Vita Leonis III.* [Latin], 538.
+- *Vita S. Liudgeri* [Latin], by Altfrid, 537.
+- *Vita Stephani* [Latin] III., 538.
+- *Vita S. Sturmi* [Latin], by Eigil, 537.
+- *Vita S. Willehadi* [Latin], 537.
+- *Vitae Pontificum Romanorum, sive Liber Pontificalis* [Latin], 538.
+- Viterbo, 89, 178.
+- Vitiza, see Benedict.
+- *Vögte* [German], 389.
+- Vulcan, 258, 297.
+- *Vulgares cantilenae* [Latin], 236 note.
+- Vussinus, son of Einhard, 256.
+
+### W
+
+- Waifre, duke of Aquitaine, 33, 51, 74, 156.
+- Wala, count, cousin of Charles, 264, 456.
+- Wala, *Arsenius, Jeremiah* [Latin], abbot of Corbie, 244.
+- Waladala, Thuringia, 282.
+- Walafrid Strabo, 254, 264.
+- Waltgaudus, bishop of Liège, 456.
+- Wantia, Greek princess, wife of Grimoald, 307.
+- Warna, R., 496.
+- Warnarius, commissioner of Louis, 233.
+- Warnefrid, 260.
+- Warnerius, abbot, 43.
+- Wars, see Chronological Annals.
+- Way of the Franks, *via Francorum* [Latin], 91.
+- *Weiler* [German], 63.
+- Weissenburg on the Rezat, 278.
+- Welatabians, *Wilzen* [German], 127, 139, 440 sqq., 469, 496.
+- Wends, 115, 128, 472.
+- Werden, M., on the Ruhr, 148.
+- *Weregeld* [German], 61 sq., 63, 207.
+- Werinarius, general, 281.
+- Werinofelde, 281.
+- Wernekind, Warnechinus, king of the Angrians, 113, 123.
+- Werra, R., 63.
+- Weser, R., 55, 107, 110 sq., 117, 120, 132, 137, 149, and passim.
+- Westarfalda, 461 sq.
+- Westergau, 123.
+- Western Francia, 495.
+- Westphalia, 120, 134 note, 148, 499, and passim.
+- Westphalians, 54, 110, 114, 119, 133–135, and passim.
+- Wibodus, the hero, 257.
+- Widmar, monk, 285.
+- Wido, count, 311.
+- Widukind, historian, 124.
+- Wiener Wald, 195.
+- Wigmodia, 131 sq., 140, 149.
+- Wigmodians, 141.
+- Wilhelmus, William, *Guillelme, Guillaume* [French], 288 sq., 291, see William.
+- Willehad, Vilhaed, missionary, bishop of Bremen, 148 sqq., 267.
+- Willerich, bishop of Bremen, 150.
+- William, count, or duke of Toulouse, 411 sqq.
+- William, see Wilhelmus.
+- William of Malmesbury, 255, 349.
+- Willibert, commissioner, 293.
+- Willibrord, bishop of Utrecht, 27, 104, 146 sqq.
+- *Wilzen* [German], see Welatabians.
+- Winds, table of the, 516.
+- Winigisus, *missus* [Latin], count, afterwards duke of Spoleto, 310, 343, 410.
+- Winthari, Winter, physician, 270 and note.
+- Wirundus, abbot of Stablo, 343.
+- Wisurich, bishop of Passau, 207.
+- Witgarius, bishop of Augusta, 493.
+- Witta, Wizo, *Candidus, Albuinus* [Latin], bishop of Buriaburg, 145, 153, 242 note, 244, 265.
+- Wittekind, Widukind, 101, 113, 115 sqq., 121 sqq., 124, 127, 150.
+- Witzan, Witzin, prince of the Abodrites, 130.
+- Woinimir, Sclavonian chief, 197.
+- Wolchanhart, abbot of Osterhofen, 208.
+- Wolfarius, archbishop of Rheims, 456.
+- Wolfpert, abbot of Niederaltaich, 207.
+- Worado, count-palatine, 116.
+- Worms, 106, 171, 176, 180, 216 sq., 287, 405.
+- Würzburg, 151 sq.
+  - " school at, 265.
+
+### Y
+
+- Yeu = Dieu, island, 312.
+- Yorée, 420.
+- York, 240.
+
+### Z
+
+- Zacharias, pope, 34, 35, 37, 39, 50, 55.
+- Zacharias, presbyter, 358, 377.
+- Zara, in Dalmatia, 458.
+- Zeid, governor of Barcelona, 295, 409 sqq.
+- Zeno, Byzantine emperor, 275.
+- *Zizania* [Latin], 428.
+- Zurich, 198.
+- Zventinefeld, 137, 140.
+
+THE END.

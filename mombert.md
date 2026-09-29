@@ -3071,4 +3071,30 @@ It needs no stretch of the imagination, therefore, to conjecture that the army o
 
 [^bohmermuhlbacher327]: Böhmer-Mühlbacher, No. 327.—Synod. Francof. 794, c. 9. I., 1. Gesta epp. Vird. 14 MG. SS. IV., 44.
 
-The details of the plot are said to have embraced the assassination of the king and his three royal sons, and the subsequent proclamation of Pepin as king. This was the
+The details of the plot are said to have embraced the assassination of the king and his three royal sons, and the subsequent proclamation of Pepin as king. This was the bait which the conspirators held out to him; "they seduced him," as Einhard puts it, "with vain promises of the royal authority;"[^vitacarc20] the plot seemed to one of the monkish writers a repetition of the crime of Abimelech, the son of Gideon by a concubine, in the days of the Judges, who killed on one stone both his father and his seventy brothers, and then usurped the throne.[^annlaureshjud]
+
+[^vitacarc20]: Vita Car. c. 20. See Böhmer-Mühlbacher, and Abel-Simson for the authorities, which are numerous.
+
+[^annlaureshjud]: Ann. Lauresh. a. 792.—Jud. c. 8, 9.
+
+The secret was well kept. Pepin shammed sickness, and for a while stayed away from court; the plot was fairly under way and dangerously near a successful termination, when by the inexplicable carelessness of the conspirators the whole of their impious scheme became known.
+
+They met in the church of St. Peter at Ratisbon and discussed all the details of the plot in the hearing of a cleric, who from some cause or other had found his way into the church. Perhaps he came to sleep there; the conspirators found him hiding under the altar, and, strange to tell, contented themselves with his solemn promise on oath that he would not divulge the ominous secret. But the oath sat lightly on his conscience, and the moment after the conspirators had left he ran half-dressed at dead of night to the royal palace and gave the alarm.
+
+No one could stay his progress on his way to the royal bedchamber; he passed through seven doors and at last stood before it, and so frightened the ladies in attendance upon the queen that they shut it in his face; they tried to stifle their laughter at his appearance with their dresses. But the king had heard the noise and asked what it meant. They said that a half-clad, scraped, silly, and raving scamp demanded to see the king, and made an unmannerly noise. Charles sent for him, and made him tell all he knew. "Before the third hour of the day," writes the Monk, "all the chief conspirators, not expecting anything of the kind, were either on the way to exile or punishment. The dwarfish, hunchbacked Pepin received a good beating, was shaved, and sent for *a little while* to the monastery of St. Gall to do penance."[^monachsangall2]
+
+[^monachsangall2]: Monach. Sangall. l. II., c. 18.
+
+The writer must be ironical for the words in italics import incarceration for life.
+
+The judgment, though summary, was not quite as rapid and informal as he intimates. Charles immediately convened an Assembly of Franks and other of his lieges for action in the matter. The conspirators were accused and convicted of high treason, and condemned to undergo the punishment of death together with the loss of all their possessions. Such was the judgment passed upon the prime movers and leaders, but in the case of others it was more lenient. Some were put to death, but not all in the same manner; we read of the sword and the gallows, and of the commutation of the capital sentence into blinding, whipping and exile. Some appealed successfully to the judgment of God, established their innocence and recovered their property. In the case of Pepin, the Court respected the king's recommendation of mercy, and commuted the sentence of death into compulsory orders. He himself is said to have recognized the kindness of the direction and desired it. The prince was shaved and went for life to the monastery of Prüm,[^inthedioceseoftreves] where he died twenty years later.[^annallaurisseinhlauresh2b]
+
+[^inthedioceseoftreves]: In the diocese of Treves.
+
+[^annallaurisseinhlauresh2b]: Annal. Lauriss., Einh., Lauresh., Laur. min, Fuld., Mosell.—Vita Caroli, c. 20. Poeta Saxo.
+
+He was doubtless a sincere penitent, but the Monk of St. Gall's anecdote about him, which is as authentic as many other of his stories, makes him likewise a wag.
+
+The king, according to him, having heard of others implicated in the conspiracy, sent messengers to question Pepin as to the degree of their guilt, and take his opinion of the punishment they ought to have. They found him in the convent-garden hoeing. "Tell Charles," he said, "what you see me do: I pluck out the weeds that the good plants may thrive." The Monk then makes Charles cut off their heads, and give their possessions to loyal men of meaner birth.[^themonksstory]
+
+[^themonksstory]: The Monk's story recalls Livy, I., 54, and that too is an adaptation of the reply of Thrasybulos to Periander, in Herodotus.

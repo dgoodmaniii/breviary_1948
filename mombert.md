@@ -3208,3 +3208,33 @@ Bertha, he says, shines amid a choir of maidens and a throng of attendant ladies
 The similar description of the toilet of the other royal maidens we omit, but the poet tells us that the voice, the face, and the hair of Gisla coruscate in radiant light.[^voxfacies] This seems unintelligible, unless the "voice" import the rows of pearly teeth, which might exceed the undefined limits of poetic license in ordinary writers, but hardly in Angilbert, who dwells upon the "silver hands" and the "golden forehead" of the young lady, the light of whose eyes dims the splendor of the sun. Rothaid, the beautiful maid of more than thirty summers, is praised for the metallic and jewelled
 
 [^voxfacies]: "*Vox, facies, crines radianti luce coruscant.*" [Latin]
+
+splendor of her attire, and of the more juvenile daughters of Fastrada, we learn that Theodrada, hardly less splendid and coruscating than Gisla, rode forth to the hunt in "Sophoclean buskins;"[^sophocleoque] probably all the ladies wore such buskins, but they were not visible as in the case of so young a lady; her still more youthful sister came last, but no particulars are given beyond the effulgence which singled her out in the throng of her companions.[^angilbertcarmendummler]
+
+[^sophocleoque]: "*Sophocleoque . . coturno.*" [Latin]
+
+[^angilbertcarmendummler]: Angilbert, *Carmen* [Latin], Dümmler, *l. c.* [Latin] I., p. 371 sq.—Illustrative Extracts, Appendix I.
+
+The sons of Charles also are introduced in these and other poetical contributions, but as they are already slightly known to the reader, it is unnecessary to cite the lines. Charles, the eldest, was the constant companion of his father, and, it is thought, his favorite, whom he meant to be his immediate successor in the throne; Carloman, his second son, the same who in baptism was christened "Pepin," was cultured and skilled in arms. Louis also was a young man of great promise. As a boy the administrators of his kingdom arrayed him in Aquitanian costume, and sent him, with a number of his companions similarly attired, to Paderborn, where their gay uniform and martial bearing captivated the king and the Franks generally.
+
+We shall soon meet with the royal sons in other connections, but as history but rarely takes note of the royal daughters, present what is known of them at once.
+
+"The plan [Charles] adopted for his children's education was, first of all, to have both his sons and daughters instructed in the liberal arts, to which he also turned his own attention.
+
+"As soon as their years admitted, in accordance with the custom of the Franks, his sons had to learn horsemanship, and practise war and the chase; while his daughters were taught cloth-making as well as the use of the distaff and spindle, that they might not grow indolent through idleness.
+
+"He fostered in them every virtuous sentiment" . . . and was so careful of the training of his children, "that he never took his meals without them when he was at home, and never made a journey without [some of] them; his sons would ride at his side, and his daughters follow him, while a number of his body-guard, detailed for their protection, brought up the rear.
+
+"Strange to say, though they were very handsome, and he greatly loved them, he was never willing to marry any of them to a man of their own nation or to a foreigner, but kept them all at home until his death, saying that he could not dispense with their society.
+
+"Hence, though otherwise happy, he experienced the malignity of fortune as far as they were concerned; yet he concealed his knowledge of the rumors current in regard to them, and of the suspicions entertained of their honor."[^vitacaroli19]
+
+[^vitacaroli19]: Vita Caroli, c. 19.
+
+These statements of the biographer of Charles require correction and comment in sundry particulars. It will be remembered that the princess Rotrud was affianced in childhood to the emperor Constantine. For reasons not known Charles cancelled the engagement.[^annaleinh788] His court was certainly licentious, and unfortunately his beautiful daughters were most indiscreet. Count Roriko of Maine had a *liaison* [French] with the princess Rotrud, and their son Louis became subsequently abbot of St. Denis and other monasteries as well as prothonotary to Charles the Bald.[^hincmarremann] In view of this undoubted fact, it is surprising that contemporary writers not only extol her beauty and intellectuality, but her virtue.[^rotthrudcarmen] She took much interest in poetry and theology, and Alcuin, at any rate, must have had a lofty conception of her purity,
+
+[^annaleinh788]: Annal. Einh. a. 788. The official betrothal of Rotrud to Constantine VI. was solemnly enacted on the occasion of the king's presence at Rome in 781. Annal. Mosell.; Vita Caroli, c. 19; Theophanes, ed. de Boor, I., 455. The engagement was broken off in 787, according to Annal. Einh., and other Frankish authorities at the instance of Charles, but the Byzantine authorities represent Irene as taking the initiative. Theophanes, *l. c.* [Latin] p. 463 sq.
+
+[^hincmarremann]: Hincmar, Rem. Ann., 867. Mabillon, *Ann. Bened.* [Latin] II., 634, 648, 650, 667. Lup. ep. 25, Migne v. CXIX., 475.
+
+[^rotthrudcarmen]: "*Rotthrud carmen amat, mentis clarissima virgo, virgo decora satis et moribus inclita virgo.*" [Latin]—Angilb. Carm. 2, 43 sq.

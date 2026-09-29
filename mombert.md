@@ -5377,12 +5377,6 @@ These facts agree in all points with the tenor of an entire capitulum, claiming 
 
 ### THE IMPERIAL PERIOD.
 
----
-
-## BOOK III.
-
-### THE IMPERIAL PERIOD.
-
 #### CHAPTER I.
 
 ##### THE DIET AND THE CAPITULARIES.

@@ -3306,3 +3306,31 @@ When Lent was nearly over, and the aforesaid bishop was still smarting under the
 The Monk's anecdote depicts the palace usage as to the order in which those connected with the establishment sat down to their meals.
 
 The daily dinner served to the king consisted of only four courses besides the roast, mostly of game, which the hunters brought in on the spit; this was the king's favorite dish.
+
+Charles shared the table with his family; a chaplain said grace; conversation was carried on in a low voice, for provision was made for recitations or readings, which were never omitted.[^poetasaxo2] The reader mostly gave select passages from the writings of St. Augustin, the king's favorite author, and especially from the "City of God," which he preferred to all the rest.
+
+[^poetasaxo2]: Poeta Saxo.
+
+Charles rarely drank more than thrice of wine or any other beverage. In summer he was wont to take a light dessert of fruit after the midday meal, with one cup; then he undressed and slept two or three hours.[^vitacaroli24b]
+
+[^vitacaroli24b]: Vita Caroli, c. 24. Long before the time of Charles it was customary to sing *vulgares cantilenæ, gentilitia carmina* [Latin] during meals. Alfridus says in *Vita Liudgeri* [Latin], l. II., c. I., that "while he was at table with his disciples some one brought in a blind man, called Bernlef, who was much beloved throughout the neighborhood, because of his amiability, and skilful singing of the exploits and wars of the ancient kings."
+
+This habit explains another to which it gave rise, that of rising four or five times during the night, for he suffered from sleeplessness.
+
+Whilst dressing he allowed his friends to bear him company, and if the Count Palatine then notified him of some cause which could not be settled without his decision, he ordered the parties to be introduced, took cognizance of the points at issue, and gave sentence as readily as if he were sitting on the bench. In addition to such judicial decisions, he mapped out the work of the day, and gave necessary orders to his ministers.[^vitacaroli24c]
+
+[^vitacaroli24c]: Vita Caroli, c. 24.
+
+State dinners were of rare occurrence, but he was wont to mark the principal feasts of the year by royal banquets to which numerous guests were invited.
+
+He loved to display in his ordinary dress the same simplicity which reigned at his table.
+
+"He wore the national, that is, the Frankish dress,—next to his skin a linen shirt, and linen breeches, and above these a tunic fringed with silk; while hose fastened by bands covered his lower limbs, and shoes his feet; he protected his shoulders and chest in winter by a close-fitting coat of otter or marten skins. Over all he flung a blue cloak, and always had a sword girt about him, usually one with a gold or silver hilt and belt; he sometimes carried a jewelled sword, but only on great feast days, or at the reception of ambassadors from foreign nations. . . . On great feast days he made use of embroidered clothes, and shoes bedecked with precious stones; his cloak was fastened by a golden buckle, and he wore a golden diadem set with gems; on other days his dress varied little from the common dress of the people."[^vitacaroli23] The ordinary and inevitable cloak or *pallium* [Latin] was double, either white or sapphire-colored; the shape was four-square and it fell from the shoulders so as to touch the feet behind and before, but left the sides from the knees downward entirely free; the hose were really leggings, and the linen of that peculiarly glossy kind, still manufactured in Germany, and known as *Glanz-Leinwand* [German] ("glossy linen").
+
+[^vitacaroli23]: Vita Caroli, c. 23.
+
+Equestrian exercise, the hunt, and the bath were his favorite pastimes. The first two were peculiar to his family and nation, for the Franks were famed for their horsemanship and love of the chase.
+
+A large piece of forest, enclosed throughout with walls, and near the palace at Aix-la-Chapelle, was reserved as a park for game. Woodland, glade, and meadow, enlivened by the little stream of the Worm, made it a splendid preserve, in which game of every kind, especially deer, stags, and wild boar, were kept. It was the chosen scene of the royal hunt, of which a frequent participant and spectator has left a spirited description. He says:
+
+"A vast concourse of huntsmen and ladies including the princesses royal, indeed the whole court, await the signal for the start. Trained dogs and hounds are let loose; their yelping, howling, and barking fills the air; eager for the blood of their victims they tear through the thick underbrush and follow the scent. An animal is brought to cover, and the huntsmen surround the copse in which it has sought shelter. A wild boar bounds through the valley, pursued
